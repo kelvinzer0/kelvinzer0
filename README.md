@@ -1,5 +1,6 @@
 <h1 align="center">Hi 👋, I'm Kelvin</h1>
 <h3 align="center">A passionate backend developer from Indonesia</h3>
+<p align="left"> <img src=https://komarev.com/ghpvc/?username=kelvinzer0 alt=kelvinzer0/> </p>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
