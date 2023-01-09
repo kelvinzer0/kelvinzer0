@@ -44,8 +44,8 @@
 
 <h3 align="left">Badges:</h3>
 <p align="left">
-<div data-iframe-width="150" data-iframe-height="270" data-share-badge-id="0abb5bd7-8acd-43e5-a68a-2b3b67987daa" data-share-badge-host="https://www.credly.com"></div><script type="text/javascript" async src="//cdn.credly.com/assets/utilities/embed.js"></script>
-<div data-iframe-width="150" data-iframe-height="270" data-share-badge-id="4e3b3c9e-dfd3-4ece-a957-3d126ee20b6e" data-share-badge-host="https://www.credly.com"></div><script type="text/javascript" async src="//cdn.credly.com/assets/utilities/embed.js"></script>
-<div data-iframe-width="150" data-iframe-height="270" data-share-badge-id="c26ff9be-2fca-4fe7-b022-84f1cb350f16" data-share-badge-host="https://www.credly.com"></div><script type="text/javascript" async src="//cdn.credly.com/assets/utilities/embed.js"></script>
-<div data-iframe-width="150" data-iframe-height="270" data-share-badge-id="2c00d2f4-8660-45cc-8ee1-fb11be7378b8" data-share-badge-host="https://www.credly.com"></div><script type="text/javascript" async src="//cdn.credly.com/assets/utilities/embed.js"></script>
+<a href="https://www.credly.com/badge/0abb5bd7-8acd-43e5-a68a-2b3b67987daa" target="_blank"><img src="https://api.credly.com/v1/images/badges/0abb5bd7-8acd-43e5-a68a-2b3b67987daa/image" alt="Badge 1" style="max-width:150px;"></a>
+<a href="https://www.credly.com/badge/4e3b3c9e-dfd3-4ece-a957-3d126ee20b6e" target="_blank"><img src="https://api.credly.com/v1/images/badges/4e3b3c9e-dfd3-4ece-a957-3d126ee20b6e/image" alt="Badge 2" style="max-width:150px;"></a>
+<a href="https://www.credly.com/badge/c26ff9be-2fca-4fe7-b022-84f1cb350f16" target="_blank"><img src="https://api.credly.com/v1/images/badges/c26ff9be-2fca-4fe7-b022-84f1cb350f16/image" alt="Badge 3" style="max-width:150px;"></a>
+<a href="https://www.credly.com/badge/2c00d2f4-8660-45cc-8ee1-fb11be7378b8" target="_blank"><img src="https://api.credly.com/v1/images/badges/2c00d2f4-8660-45cc-8ee1-fb11be7378b8/image" alt="Badge 4" style="max-width:150px;"></a>
 </p>
