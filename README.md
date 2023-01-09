@@ -45,7 +45,7 @@
 <h3 align="left">Badges:</h3>
 <p align="left">
 <a href="https://www.credly.com/badge/0abb5bd7-8acd-43e5-a68a-2b3b67987daa/embedded" target="_blank"><img src="https://images.credly.com/images/f70ce45d-0fc5-4e82-a49c-10386b3b5b08/image.png" alt="Badge 1" width="40" height="40"></a>
-<a href="https://www.credly.com/badge/4e3b3c9e-dfd3-4ece-a957-3d126ee20b6e/embedded" target="_blank"><img src="https://api.credly.com/v1/images/badges/4e3b3c9e-dfd3-4ece-a957-3d126ee20b6e/image" alt="Badge 2" style="max-width:150px;"></a>
+<a href="https://www.credly.com/badge/4e3b3c9e-dfd3-4ece-a957-3d126ee20b6e/embedded" target="_blank"><img src="https://images.credly.com/images/964d28c3-1543-4e23-bc30-97a2cdc15a59/image.png" alt="Badge 2" style="max-width:150px;"></a>
 <a href="https://www.credly.com/badge/c26ff9be-2fca-4fe7-b022-84f1cb350f16/embedded" target="_blank"><img src="https://api.credly.com/v1/images/badges/c26ff9be-2fca-4fe7-b022-84f1cb350f16/image" alt="Badge 3" style="max-width:150px;"></a>
 <a href="https://www.credly.com/badges/2c00d2f4-8660-45cc-8ee1-fb11be7378b8/embedded" target="_blank"><img src="https://images.credly.com/images/3cd98d8a-c224-4f8f-a839-d0a87422f2c1/Python_Project_for_AI_and_Application_Development.png" alt="Badge 4" width="40" height="40"></a>
 </p>
