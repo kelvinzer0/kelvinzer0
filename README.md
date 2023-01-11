@@ -49,6 +49,7 @@
 <a href="https://www.credly.com/badges/c26ff9be-2fca-4fe7-b022-84f1cb350f16/embedded" target="_blank"><img src="https://images.credly.com/images/0571ab1d-f43b-43d9-9c68-8ebd0ebd61b7/Python_for_Data_Sci_and_AI_Foundational.png" alt="Badge 3" width="40" height="40"></a>
 <a href="https://www.credly.com/badges/2c00d2f4-8660-45cc-8ee1-fb11be7378b8/embedded" target="_blank"><img src="https://images.credly.com/images/3cd98d8a-c224-4f8f-a839-d0a87422f2c1/Python_Project_for_AI_and_Application_Development.png" alt="Badge 4" width="40" height="40"></a>
 </p>
+
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
