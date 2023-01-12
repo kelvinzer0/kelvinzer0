@@ -53,9 +53,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Experts from Okta, Deloitte, and Verizon share how technology enables the future of work in a safe and collaborative way](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;experts-okta-deloitte-verizon-share-195253032.html)
+* [Billionaire Len Blavatnik’s Sports Streaming Service DAZN Lost $2.3 Billion in 2021](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;billionaire-len-blavatnik-sports-streaming-120000845.html)
+* [Google Keyword-Search Warrants Questioned by Colorado Lawyers](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-keyword-search-warrants-questioned-193115908.html)
 * [Tesla shareholder attorneys taunted Elon Musk over his attempt to move a trial to Texas due to &#39;local negativity:&#39; He has a &#39;knack for attracting &#39;negative&#39; coverage&#39;](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-shareholder-attorneys-taunted-elon-173316061.html)
 * [We updated our Netflix org chart — including new top advertising, gaming, and marketing leadership — after a year of layoffs and restructuring](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;updated-netflix-org-chart-including-133000408.html)
-* [Infosys Raises Sales Forecast, Even as Downturn Fears Loom](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;infosys-raises-sales-forecast-shrugging-102047450.html)
-* [Sam Bankman-Fried&#39;s trading firm borrowed $65 billion from FTX via a &#39;secret backdoor&#39; to fund donations and a luxury lifestyle, bankruptcy court hears](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;sam-bankman-frieds-trading-firm-131659237.html)
-* [ChatGPT and generative AI look like tech&#39;s next boom. They could be the next bubble.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chatgpt-generative-ai-look-techs-125110380.html)
 <!--END_SECTION:feed-->
