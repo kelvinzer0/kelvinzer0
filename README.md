@@ -53,5 +53,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-...
+* [Saudi and Singapore Wealth Funds Join $930 Million Pre-IPO Bet on Anime Giant](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;saudi-wealth-fund-joins-930-003422790.html)
+* [Chip Giant TSMC Plans to Cut Spending to Offset Falling Near-Term Sales](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;world-biggest-chipmaker-tsmc-tops-060729364.html)
+* [Twitter Tells Asia HQ Staff to Clear Desks, Work From Home](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;twitter-orders-workers-asia-hq-050942215.html)
+* [UAE’s Astra Tech Buys Botim, Bolstering Push to Create Super App](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;uae-astra-tech-buys-botim-043000473.html)
+* [Adobe Tried to Buy Figma Twice Before $20 Billion Deal](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;adobe-tried-buy-figma-twice-001243363.html)
 <!--END_SECTION:feed-->
