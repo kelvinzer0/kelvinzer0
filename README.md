@@ -53,9 +53,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Saudi and Singapore Wealth Funds Join $930 Million Pre-IPO Bet on Anime Giant](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;saudi-wealth-fund-joins-930-003422790.html)
-* [Chip Giant TSMC Plans to Cut Spending to Offset Falling Near-Term Sales](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;world-biggest-chipmaker-tsmc-tops-060729364.html)
-* [Twitter Tells Asia HQ Staff to Clear Desks, Work From Home](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;twitter-orders-workers-asia-hq-050942215.html)
-* [UAE’s Astra Tech Buys Botim, Bolstering Push to Create Super App](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;uae-astra-tech-buys-botim-043000473.html)
-* [Adobe Tried to Buy Figma Twice Before $20 Billion Deal](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;adobe-tried-buy-figma-twice-001243363.html)
+* [We updated our Netflix org chart — including new top advertising, gaming, and marketing leadership — after a year of layoffs and restructuring](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;updated-netflix-org-chart-including-133000408.html)
+* [Infosys Raises Sales Forecast, Even as Downturn Fears Loom](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;infosys-raises-sales-forecast-shrugging-102047450.html)
+* [Sam Bankman-Fried&#39;s trading firm borrowed $65 billion from FTX via a &#39;secret backdoor&#39; to fund donations and a luxury lifestyle, bankruptcy court hears](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;sam-bankman-frieds-trading-firm-131659237.html)
+* [ChatGPT and generative AI look like tech&#39;s next boom. They could be the next bubble.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chatgpt-generative-ai-look-techs-125110380.html)
+* [Twitter is being sued for almost $400,000 by a marketing company after being accused of not paying its fees](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;twitter-being-sued-almost-400-114732787.html)
 <!--END_SECTION:feed-->
