@@ -53,9 +53,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Experts from Okta, Deloitte, and Verizon share how technology enables the future of work in a safe and collaborative way](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;experts-okta-deloitte-verizon-share-195253032.html)
 * [Billionaire Len Blavatnik’s Sports Streaming Service DAZN Lost $2.3 Billion in 2021](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;billionaire-len-blavatnik-sports-streaming-120000845.html)
+* [Google Says Curbing Liability Shield Would Make Web Less Safe](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-says-curbing-liability-shield-202332060.html)
+* [Experts from Okta, Deloitte, and Verizon share how technology enables the future of work in a safe and collaborative way](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;experts-okta-deloitte-verizon-share-195253032.html)
 * [Google Keyword-Search Warrants Questioned by Colorado Lawyers](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-keyword-search-warrants-questioned-193115908.html)
-* [Tesla shareholder attorneys taunted Elon Musk over his attempt to move a trial to Texas due to &#39;local negativity:&#39; He has a &#39;knack for attracting &#39;negative&#39; coverage&#39;](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-shareholder-attorneys-taunted-elon-173316061.html)
-* [We updated our Netflix org chart — including new top advertising, gaming, and marketing leadership — after a year of layoffs and restructuring](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;updated-netflix-org-chart-including-133000408.html)
+* [ExxonMobil&#39;s secret projections of the climate crisis were astonishingly accurate, and a legal expert says that&#39;s &#39;a stick of dynamite&#39; for the oil giant&#39;s court battles](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;exxonmobils-secret-projections-climate-crisis-192029937.html)
 <!--END_SECTION:feed-->
