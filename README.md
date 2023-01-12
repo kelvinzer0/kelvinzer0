@@ -53,9 +53,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Frank start-up founder Charlie Javice, accused of defrauding JPMorgan with fake users, previously settled with Department of Education over allegations she misled students](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;frank-start-founder-charlie-javice-223108561.html)
 * [Biden to Talk China Tech With Japan, Dutch Leaders in Washington](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;biden-talk-china-tech-japan-214711773.html)
 * [A proposed H-1B visa fee increase threatens to kneecap Silicon Valley&#39;s ability to hire the foreign talent it needs to compete](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;proposed-h-1b-visa-fee-205656969.html)
 * [Billionaire Len Blavatnik’s Sports Streaming Service DAZN Lost $2.3 Billion in 2021](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;billionaire-len-blavatnik-sports-streaming-120000845.html)
 * [Google Says Curbing Liability Shield Would Make Web Less Safe](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-says-curbing-liability-shield-202332060.html)
-* [Experts from Okta, Deloitte, and Verizon share how technology enables the future of work in a safe and collaborative way](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;experts-okta-deloitte-verizon-share-195253032.html)
 <!--END_SECTION:feed-->
