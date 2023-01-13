@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Sam Bankman-Fried&#39;s trading firm had access to a $65 billion credit line from FTX via a &#39;secret backdoor&#39; to fund donations and a luxury lifestyle, bankruptcy court hears](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;sam-bankman-frieds-trading-firm-131659237.html)
+* [In 2023, cash is king for tech execs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;2023-cash-king-tech-execs-100000351.html)
 * [Biden to Talk China Tech With Japan, Dutch Leaders in Washington](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;biden-talk-china-tech-japan-214711773.html)
 * [TSMC Jumps as Investors Bet on Chip Giant’s Scale in Downturn](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tsmc-jumps-investors-bet-chip-015225852.html)
 * [Apple’s Tim Cook Takes Rare CEO Pay Cut After Pushback](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-tim-cook-takes-rare-232046294.html)
-* [Who are the 2 people who helped bail out Sam Bankman-Fried? Insider and other news organizations asked a judge to unseal their names.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;2-people-helped-bail-sam-230716452.html)
-* [A proposed H-1B visa fee increase threatens to kneecap Silicon Valley&#39;s ability to hire the foreign talent it needs to compete](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;proposed-h-1b-visa-fee-205656969.html)
 <!--END_SECTION:feed-->
