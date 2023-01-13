@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Frank start-up founder Charlie Javice, accused of defrauding JPMorgan with fake users, previously settled with Department of Education over allegations she misled students](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;frank-start-founder-charlie-javice-223108561.html)
+* [TSMC Jumps as Investors Bet on Chip Giant’s Scale in Downturn](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tsmc-jumps-investors-bet-chip-015225852.html)
+* [Apple’s Tim Cook Takes Rare CEO Pay Cut After Pushback](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-tim-cook-takes-rare-232046294.html)
+* [Who are the 2 people who helped bail out Sam Bankman-Fried? Insider and other news organizations asked a judge to unseal their names.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;2-people-helped-bail-sam-230716452.html)
 * [Biden to Talk China Tech With Japan, Dutch Leaders in Washington](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;biden-talk-china-tech-japan-214711773.html)
 * [A proposed H-1B visa fee increase threatens to kneecap Silicon Valley&#39;s ability to hire the foreign talent it needs to compete](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;proposed-h-1b-visa-fee-205656969.html)
-* [Billionaire Len Blavatnik’s Sports Streaming Service DAZN Lost $2.3 Billion in 2021](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;billionaire-len-blavatnik-sports-streaming-120000845.html)
-* [Google Says Curbing Liability Shield Would Make Web Less Safe](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-says-curbing-liability-shield-202332060.html)
 <!--END_SECTION:feed-->
