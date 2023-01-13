@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Need to return an Amazon purchase? The ecommerce giant has doubled its return options.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;return-amazon-purchase-ecommerce-giant-175634293.html)
 * [A woman who claimed she was wrongly dismissed was ordered to repay her former employer about $2,000 for misrepresenting her working hours](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;woman-claimed-she-wrongly-dismissed-134450918.html)
-* [Sam Bankman-Fried&#39;s &#39;secret backdoor&#39; discovered](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;sam-bankman-frieds-trading-firm-131659237.html)
+* [Sam Bankman-Fried&#39;s secret &#39;backdoor&#39; discovered, FTX lawyer says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;sam-bankman-frieds-trading-firm-131659237.html)
 * [In 2023, cash is king for tech execs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;2023-cash-king-tech-execs-100000351.html)
 * [Biden to Talk China Tech With Japan, Dutch Leaders in Washington](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;biden-talk-china-tech-japan-214711773.html)
-* [TSMC Jumps as Investors Bet on Chip Giant’s Scale in Downturn](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tsmc-jumps-investors-bet-chip-015225852.html)
 <!--END_SECTION:feed-->
