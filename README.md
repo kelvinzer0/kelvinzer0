@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [A woman who claimed she was wrongly dismissed was ordered to repay her former employer about $2,000 for misrepresenting her working hours](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;woman-claimed-she-wrongly-dismissed-134450918.html)
 * [Sam Bankman-Fried&#39;s trading firm had access to a $65 billion credit line from FTX via a &#39;secret backdoor&#39; to fund donations and a luxury lifestyle, bankruptcy court hears](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;sam-bankman-frieds-trading-firm-131659237.html)
 * [In 2023, cash is king for tech execs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;2023-cash-king-tech-execs-100000351.html)
 * [Biden to Talk China Tech With Japan, Dutch Leaders in Washington](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;biden-talk-china-tech-japan-214711773.html)
 * [TSMC Jumps as Investors Bet on Chip Giant’s Scale in Downturn](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tsmc-jumps-investors-bet-chip-015225852.html)
-* [Apple’s Tim Cook Takes Rare CEO Pay Cut After Pushback](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-tim-cook-takes-rare-232046294.html)
 <!--END_SECTION:feed-->
