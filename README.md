@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [11 podcasts that busy venture capitalists and founders say they trust right now](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;11-podcasts-busy-venture-capitalists-100000939.html)
 * [Elon Musk lost his bid to move his securities fraud trial out of San Francisco, where his lawyers claim too many potential jurors are biased against him](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elon-musk-lost-bid-move-221050961.html)
 * [Amazon Leads Rebound in Battered Tech as Traders Reload on Risk](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-leads-rebound-battered-tech-191018793.html)
 * [Need to return an Amazon purchase? The ecommerce giant has doubled its return options.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;return-amazon-purchase-ecommerce-giant-175634293.html)
 * [A woman who claimed she was wrongly dismissed was ordered to repay her former employer about $2,000 for misrepresenting her working hours](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;woman-claimed-she-wrongly-dismissed-134450918.html)
-* [Sam Bankman-Fried&#39;s secret &#39;backdoor&#39; discovered, FTX lawyer says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;sam-bankman-frieds-trading-firm-131659237.html)
 <!--END_SECTION:feed-->
