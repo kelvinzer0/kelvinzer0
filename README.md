@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [THE CRYPTO CULLING: Thousands of employees are getting the axe as companies face plunging valuations, scandals, and legal turmoil](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;crypto-culling-thousands-employees-getting-115000480.html)
-* [11 podcasts that busy venture capitalists and founders say they trust right now](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;11-podcasts-busy-venture-capitalists-100000939.html)
-* [Elon Musk lost his bid to move his securities fraud trial out of San Francisco, where his lawyers claim too many potential jurors are biased against him](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elon-musk-lost-bid-move-221050961.html)
-* [Amazon Leads Rebound in Battered Tech as Traders Reload on Risk](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-leads-rebound-battered-tech-191018793.html)
-* [Need to return an Amazon purchase? The ecommerce giant has doubled its return options.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;return-amazon-purchase-ecommerce-giant-175634293.html)
+* [Lithium’s Next Big Risk Is Grand Supply Plans Falling Short](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;lithium-next-big-risk-grand-220000383.html)
+* [Tencent Shares Nearly Double From October Low as Crackdown Eases](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tencent-shares-nearly-double-october-012354539.html)
+* [Energy, Chips, Taiwan: Flashpoints for 2023 in a Fractured World](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;energy-chips-taiwan-flashpoints-2023-000014295.html)
+* [Startup Eyes Australia to Build China-Free Battery Production](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;startup-eyes-australia-build-china-210000311.html)
+* [Taiwan Is Still Semiconductor Leader as Chip Exports Rise Again](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;taiwan-still-semiconductor-leader-chip-210000246.html)
 <!--END_SECTION:feed-->
