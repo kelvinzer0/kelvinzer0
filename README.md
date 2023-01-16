@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Human Waste is Safe for Growing Vegetables, Researchers Say](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;human-waste-safe-growing-vegetables-051502081.html)
+* [Didi Wins Okay to Relaunch Apps as China Tech Crackdown Ebbs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;didi-wins-okay-relaunch-apps-075720749.html)
 * [Tencent Shares Nearly Double From October Low as Crackdown Eases](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tencent-shares-nearly-double-october-012354539.html)
+* [Human Waste is Safe for Growing Vegetables, Researchers Say](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;human-waste-safe-growing-vegetables-051502081.html)
 * [Rallying Japanese Chip Startup Outshines Recent Big Global IPOs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;rallying-japanese-chip-startup-outshines-023446860.html)
 * [Lithium’s Next Big Risk Is Grand Supply Plans Falling Short](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;lithium-next-big-risk-grand-220000383.html)
-* [Energy, Chips, Taiwan: Flashpoints for 2023 in a Fractured World](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;energy-chips-taiwan-flashpoints-2023-000014295.html)
 <!--END_SECTION:feed-->
