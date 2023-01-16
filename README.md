@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [A major union in Germany says workers at Tesla&#39;s Berlin factory face unreasonable working hours and fear speaking out](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;major-union-germany-says-workers-143603171.html)
 * [Teslas are finally getting cheaper. It&#39;s a sign Elon Musk&#39;s back is against the wall.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;teslas-finally-getting-cheaper-sign-125923846.html)
 * [Didi Wins Okay to Relaunch Apps as China Tech Crackdown Ebbs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;didi-wins-okay-relaunch-apps-075720749.html)
 * [Tencent Shares Nearly Double From October Low as Crackdown Eases](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tencent-shares-nearly-double-october-012354539.html)
 * [Human Waste is Safe for Growing Vegetables, Researchers Say](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;human-waste-safe-growing-vegetables-051502081.html)
-* [Rallying Japanese Chip Startup Outshines Recent Big Global IPOs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;rallying-japanese-chip-startup-outshines-023446860.html)
 <!--END_SECTION:feed-->
