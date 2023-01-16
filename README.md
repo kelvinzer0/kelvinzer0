@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Human Waste is Safe for Growing Vegetables, Researchers Say](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;human-waste-safe-growing-vegetables-051502081.html)
 * [Tencent Shares Nearly Double From October Low as Crackdown Eases](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tencent-shares-nearly-double-october-012354539.html)
 * [Rallying Japanese Chip Startup Outshines Recent Big Global IPOs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;rallying-japanese-chip-startup-outshines-023446860.html)
 * [Lithium’s Next Big Risk Is Grand Supply Plans Falling Short](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;lithium-next-big-risk-grand-220000383.html)
 * [Energy, Chips, Taiwan: Flashpoints for 2023 in a Fractured World](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;energy-chips-taiwan-flashpoints-2023-000014295.html)
-* [Startup Eyes Australia to Build China-Free Battery Production](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;startup-eyes-australia-build-china-210000311.html)
 <!--END_SECTION:feed-->
