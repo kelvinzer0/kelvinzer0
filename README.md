@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Rallying Japanese Chip Startup Outshines Recent Big Global IPOs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;rallying-japanese-chip-startup-outshines-023446860.html)
 * [Lithium’s Next Big Risk Is Grand Supply Plans Falling Short](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;lithium-next-big-risk-grand-220000383.html)
 * [Tencent Shares Nearly Double From October Low as Crackdown Eases](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tencent-shares-nearly-double-october-012354539.html)
 * [Energy, Chips, Taiwan: Flashpoints for 2023 in a Fractured World](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;energy-chips-taiwan-flashpoints-2023-000014295.html)
 * [Startup Eyes Australia to Build China-Free Battery Production](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;startup-eyes-australia-build-china-210000311.html)
-* [Taiwan Is Still Semiconductor Leader as Chip Exports Rise Again](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;taiwan-still-semiconductor-leader-chip-210000246.html)
 <!--END_SECTION:feed-->
