@@ -54,7 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Tesla, BYD Finalizing Deals to Invest in Indonesia EV Space](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-byd-finalizing-deals-invest-081045393.html)
 * [Animoca Portfolio Firms Merge to Form Crypto News Site](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;animoca-portfolio-firms-merge-form-075500569.html)
+* [Alibaba Bulls See * [Animoca Portfolio Firms Merge to Form Crypto News Site](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;animoca-portfolio-firms-merge-form-075500569.html)
 * [Alibaba Bulls See * [Alibaba Bulls See * [Alibaba Bulls See * [Foxconn Replaces iPhone Business Chief After Tumultuous Year](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;foxconn-replaces-iphone-business-chief-040700536.html)
 * [Chinese Chip Giant Weighs IPOs, Land Sales to Slash Debt Burden](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chinese-chip-giant-weighs-ipos-025350423.html)
 * [Meme Stock Icon Cohen Buys Into Alibaba in Rare China Activism](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;activist-cohen-takes-stake-alibaba-010534532.html)
@@ -70,5 +72,7 @@
 * [Boston Startup Raises $40 Million to Develop New Low-Carbon Cement Technology](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;boston-startup-raises-40-million-010017024.html)40 Billion Rally Extending on Cohen’s Buy](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;alibaba-bulls-see-140-billion-043931750.html)
 * [Foxconn Replaces iPhone Business Chief After Tumultuous Year](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;foxconn-replaces-iphone-business-chief-040700536.html)
 * [Chinese Chip Giant Weighs IPOs, Land Sales to Slash Debt Burden](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chinese-chip-giant-weighs-ipos-025350423.html)
-* [Meme Stock Icon Cohen Buys Into Alibaba in Rare China Activism](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;activist-cohen-takes-stake-alibaba-010534532.html)
+* [Meme Stock Icon Cohen Buys Into Alibaba in Rare China Activism](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;activist-cohen-takes-stake-alibaba-010534532.html)40 Billion Rally Extending on Cohen’s Buy](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;alibaba-bulls-see-140-billion-043931750.html)
+* [Foxconn Replaces iPhone Business Chief After Tumultuous Year](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;foxconn-replaces-iphone-business-chief-040700536.html)
+* [Chinese Chip Giant Weighs IPOs, Land Sales to Slash Debt Burden](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chinese-chip-giant-weighs-ipos-025350423.html)
 <!--END_SECTION:feed-->
