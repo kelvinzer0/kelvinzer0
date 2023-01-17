@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Amazon HR Staffers Turn From Hiring to Seeking Jobs Themselves](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-hr-staffers-turn-hiring-185015760.html)
 * [Meta’s 54% Stock Comeback Is Still on Shaky Ground](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;meta-54-stock-comeback-still-110414554.html)
 * [Qatar&#39;s sovereign wealth fund — which invested $375 million in Elon Musk&#39;s Twitter buyout — says it hasn&#39;t told the new CEO to tweet less](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;qatars-sovereign-wealth-fund-invested-090010280.html)
 * [Southeast Asia Food Delivery Market Slows in Risk to Grab, GoTo](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;southeast-asia-food-delivery-market-104647155.html)
 * [Tesla, BYD Finalizing Deals to Invest in Indonesia EV Space](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-byd-finalizing-deals-invest-081045393.html)
-* [Animoca Portfolio Firms Merge to Form Crypto News Site](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;animoca-portfolio-firms-merge-form-075500569.html)
 <!--END_SECTION:feed-->
