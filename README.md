@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [A major union in Germany says workers at Tesla&#39;s Berlin factory face unreasonable working hours and fear speaking out](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;major-union-germany-says-workers-143603171.html)
-* [Teslas are finally getting cheaper. It&#39;s a sign Elon Musk&#39;s back is against the wall.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;teslas-finally-getting-cheaper-sign-125923846.html)
-* [Didi Wins Okay to Relaunch Apps as China Tech Crackdown Ebbs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;didi-wins-okay-relaunch-apps-075720749.html)
-* [Tencent Shares Nearly Double From October Low as Crackdown Eases](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tencent-shares-nearly-double-october-012354539.html)
-* [Human Waste is Safe for Growing Vegetables, Researchers Say](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;human-waste-safe-growing-vegetables-051502081.html)
+* [Meme Stock Icon Cohen Buys Into Alibaba in Rare China Activism](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;activist-cohen-takes-stake-alibaba-010534532.html)
+* [Boston Startup Raises $40 Million to Develop New Low-Carbon Cement Technology](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;boston-startup-raises-40-million-010017024.html)
+* [Microsoft to Add ChatGPT to Azure Cloud Services ‘Soon’](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;microsoft-add-chatgpt-azure-cloud-010012463.html)
+* [Microsoft Invests in Human Resources Software Unicorn Darwinbox](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;microsoft-invests-human-resources-software-231500983.html)
+* [Americanas Crash Deepens as BTG Cites Fraud in Legal Battle](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;americanas-crash-deepens-btg-cites-184125592.html)
 <!--END_SECTION:feed-->
