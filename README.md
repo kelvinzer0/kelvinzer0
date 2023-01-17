@@ -54,7 +54,10 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Qatar&#39;s sovereign wealth fund — which invested $375 million in Elon Musk&#39;s Twitter buyout — says it hasn&#39;t told the new CEO to tweet less](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;qatars-sovereign-wealth-fund-invested-090010280.html)
 * [Tesla, BYD Finalizing Deals to Invest in Indonesia EV Space](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-byd-finalizing-deals-invest-081045393.html)
+* [Animoca Portfolio Firms Merge to Form Crypto News Site](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;animoca-portfolio-firms-merge-form-075500569.html)
+* [Alibaba Bulls See * [Tesla, BYD Finalizing Deals to Invest in Indonesia EV Space](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-byd-finalizing-deals-invest-081045393.html)
 * [Animoca Portfolio Firms Merge to Form Crypto News Site](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;animoca-portfolio-firms-merge-form-075500569.html)
 * [Alibaba Bulls See * [Animoca Portfolio Firms Merge to Form Crypto News Site](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;animoca-portfolio-firms-merge-form-075500569.html)
 * [Alibaba Bulls See * [Alibaba Bulls See * [Alibaba Bulls See * [Foxconn Replaces iPhone Business Chief After Tumultuous Year](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;foxconn-replaces-iphone-business-chief-040700536.html)
@@ -74,5 +77,6 @@
 * [Chinese Chip Giant Weighs IPOs, Land Sales to Slash Debt Burden](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chinese-chip-giant-weighs-ipos-025350423.html)
 * [Meme Stock Icon Cohen Buys Into Alibaba in Rare China Activism](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;activist-cohen-takes-stake-alibaba-010534532.html)40 Billion Rally Extending on Cohen’s Buy](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;alibaba-bulls-see-140-billion-043931750.html)
 * [Foxconn Replaces iPhone Business Chief After Tumultuous Year](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;foxconn-replaces-iphone-business-chief-040700536.html)
-* [Chinese Chip Giant Weighs IPOs, Land Sales to Slash Debt Burden](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chinese-chip-giant-weighs-ipos-025350423.html)
+* [Chinese Chip Giant Weighs IPOs, Land Sales to Slash Debt Burden](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chinese-chip-giant-weighs-ipos-025350423.html)40 Billion Rally Extending on Cohen’s Buy](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;alibaba-bulls-see-140-billion-043931750.html)
+* [Foxconn Replaces iPhone Business Chief After Tumultuous Year](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;foxconn-replaces-iphone-business-chief-040700536.html)
 <!--END_SECTION:feed-->
