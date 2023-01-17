@@ -55,9 +55,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Chinese Chip Giant Weighs IPOs, Land Sales to Slash Debt Burden](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chinese-chip-giant-weighs-ipos-025350423.html)
 * [Meme Stock Icon Cohen Buys Into Alibaba in Rare China Activism](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;activist-cohen-takes-stake-alibaba-010534532.html)
 * [Boston Startup Raises $40 Million to Develop New Low-Carbon Cement Technology](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;boston-startup-raises-40-million-010017024.html)
 * [Microsoft to Add ChatGPT to Azure Cloud Services ‘Soon’](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;microsoft-add-chatgpt-azure-cloud-010012463.html)
 * [Microsoft Invests in Human Resources Software Unicorn Darwinbox](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;microsoft-invests-human-resources-software-231500983.html)
-* [Americanas Crash Deepens as BTG Cites Fraud in Legal Battle](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;americanas-crash-deepens-btg-cites-184125592.html)
 <!--END_SECTION:feed-->
