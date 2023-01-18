@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Apple Gets a Boost in India as Chinese Suppliers Given Clearance](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-gets-boost-india-chinese-042818198.html)
 * [NetEase Torches Blizzard in Fiery Post as Warcraft Spat Escalates](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;netease-torches-blizzard-fiery-post-013058172.html)
 * [Adobe, Facing Blowback, Says Customer Data Not Used to Train AI](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;adobe-facing-blowback-says-customer-005827478.html)
 * [Musk’s Twitter Sells Off Coffee Makers, Neon Logo in Auction Blitz](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;musk-twitter-sells-off-coffee-223249348.html)
 * [Amazon HR Staffers Turn From Hiring to Seeking Jobs Themselves](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-hr-staffers-turn-hiring-185015760.html)
-* [SpaceX Prepares for a Breakout Year With Elon Musk Focused on Twitter](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;spacex-prepares-breakout-elon-musk-150017183.html)
 <!--END_SECTION:feed-->
