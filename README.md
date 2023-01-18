@@ -54,7 +54,11 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Microsoft Joins Wave of Tech Layoffs as Slowdown Spreads](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tech-companies-keep-slashing-jobs-004012234.html)
 * [The best smart home gadgets for 2023](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;best-smart-home-devices-154557162.html)
+* [European Executives Eye US Green Plan With Envy in Davos](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;european-executives-eye-us-green-140005764.html)
+* [Amazon Kicks Off Round of Job Cuts Affecting 18,000 People](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-kicks-off-round-job-094757046.html)
+* [Samsung Spars With India Over * [The best smart home gadgets for 2023](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;best-smart-home-devices-154557162.html)
 * [European Executives Eye US Green Plan With Envy in Davos](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;european-executives-eye-us-green-140005764.html)
 * [Amazon Kicks Off Round of Job Cuts Affecting 18,000 People](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-kicks-off-round-job-094757046.html)
 * [Samsung Spars With India Over * [Samsung Spars With India Over * [Samsung Spars With India Over * [Samsung Spars With India Over * [Samsung Spars With India Over * [Samsung Spars With India Over * [Apple Gets a Boost in India as Chinese Suppliers Given Clearance](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-gets-boost-india-chinese-042818198.html)
@@ -82,5 +86,5 @@
 * [Apple Gets a Boost in India as Chinese Suppliers Given Clearance](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-gets-boost-india-chinese-042818198.html)
 * [NetEase Torches Blizzard in Fiery Post as Warcraft Spat Escalates](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;netease-torches-blizzard-fiery-post-013058172.html)
 * [Adobe, Facing Blowback, Says Customer Data Not Used to Train AI](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;adobe-facing-blowback-says-customer-005827478.html)10 Million Production Incentives](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;samsung-spars-india-over-110-082151460.html)
-* [Chipmaker Black Sesame Considers $200 Million Hong Kong IPO](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chipmaker-black-sesame-considers-200-075435742.html)
+* [Chipmaker Black Sesame Considers $200 Million Hong Kong IPO](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chipmaker-black-sesame-considers-200-075435742.html)10 Million Production Incentives](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;samsung-spars-india-over-110-082151460.html)
 <!--END_SECTION:feed-->
