@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Trump’s Campaign Asks Facebook Parent to Reinstate Account](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;trump-campaign-asks-facebook-parent-183554998.html)
+* [A Twitter ad executive reportedly told employees that Q4 revenue fell 35% from a year earlier](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;twitter-ad-executive-reportedly-told-194348859.html)
+* [Researchers find a more sustainable way to grow crops under solar panels](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;researchers-crops-solar-panels-water-uc-davis-192547157.html)
+* [Amazon is breaking the law by putting warehouse workers at risk for back and joint injuries, federal regulators say in new citations](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-breaking-law-putting-warehouse-191404058.html)
+* [Trump Campaign Asks Meta to Reinstate His Facebook Account](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;trump-campaign-asks-facebook-parent-183554998.html)
 * [Microsoft Job Cuts Hit HoloLens Unit After Setback on Army Goggles](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;microsoft-job-cuts-hit-hololens-170810833.html)
-* [This chart shows just how much faster Amazon still delivers your packages despite years of effort by other retailers](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chart-shows-just-much-faster-174908837.html)
-* [Netflix is hiring a flight attendant and offering a salary of anywhere between $60,000 and $385,000](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;netflix-hiring-flight-attendant-offering-170827938.html)
-* [Amazon Fined for Worker Safety Violations in Three US States](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-fined-worker-safety-violations-165428752.html)
 <!--END_SECTION:feed-->
