@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Trump’s Campaign Asks Facebook Parent to Reinstate Account](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;trump-campaign-asks-facebook-parent-183554998.html)
 * [Microsoft Job Cuts Hit HoloLens Unit After Setback on Army Goggles](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;microsoft-job-cuts-hit-hololens-170810833.html)
 * [This chart shows just how much faster Amazon still delivers your packages despite years of effort by other retailers](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chart-shows-just-much-faster-174908837.html)
 * [Netflix is hiring a flight attendant and offering a salary of anywhere between $60,000 and $385,000](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;netflix-hiring-flight-attendant-offering-170827938.html)
 * [Amazon Fined for Worker Safety Violations in Three US States](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-fined-worker-safety-violations-165428752.html)
-* [Peter Thiel Says British Affection for NHS Is Stockholm Syndrome](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;peter-thiel-says-british-affection-162810932.html)
 <!--END_SECTION:feed-->
