@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Musk Has ‘More to Lose’ If He Tries to Skip Twitter Debt Payment](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;musk-more-lose-tries-skip-220927455.html)
+* [Newsletter Service Mailchimp Says It Was Hacked—Again](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;newsletter-mailchimp-says-hacked-again-212426762.html)
 * [Musk’s Twitter Sells Off Coffee Makers, Neon Logo in Auction Blitz](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;musk-twitter-sells-off-coffee-223249348.html)
 * [A Twitter ad executive reportedly told employees that Q4 revenue fell 35% from a year earlier](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;twitter-ad-executive-reportedly-told-194348859.html)
 * [Researchers find a more sustainable way to grow crops under solar panels](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;researchers-crops-solar-panels-water-uc-davis-192547157.html)
-* [Amazon is breaking the law by putting warehouse workers at risk for back and joint injuries, federal regulators say in new citations](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-breaking-law-putting-warehouse-191404058.html)
-* [Trump Campaign Asks Meta to Reinstate His Facebook Account](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;trump-campaign-asks-facebook-parent-183554998.html)
 <!--END_SECTION:feed-->
