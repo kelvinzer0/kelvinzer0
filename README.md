@@ -54,7 +54,10 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Steve Jobs&#39; nepo babies: From a model to a secret daughter, here&#39;s everything we know about the Apple cofounder&#39;s kids](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;steve-jobs-nepo-babies-model-160216157.html)
+* [TikTok Must Follow Coming EU Rules or Face Ban, Official Says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tiktok-must-coming-eu-rules-160132625.html)
 * [Tesla Stock-Price Rout Overshadows Rivian, Lucid Collapses](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-stock-price-rout-overshadows-144827668.html)
+* [Google Fails to Win Suspension of * [Tesla Stock-Price Rout Overshadows Rivian, Lucid Collapses](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-stock-price-rout-overshadows-144827668.html)
 * [Google Fails to Win Suspension of * [Google Fails to Win Suspension of * [Google Fails to Win Suspension of * [AI art generators face separate copyright lawsuits from Getty Images and a group of artists](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ai-art-generators-face-separate-103055257.html)
 * [The Princeton student who built an app to detect ChatGPT plagiarism opposes banning the chatbot in schools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;princeton-student-built-app-detect-095900247.html)
 * [Global Foundry Sales Set to Drop in 2023 in Blow to Taiwan, South Korea](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;global-foundry-sales-set-drop-075459931.html)
@@ -154,5 +157,6 @@
 * [EY says it hasn&#39;t seen &#39;a rash of talent that&#39;s all of a sudden available&#39; despite huge tech layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ey-says-hasnt-seen-rash-043517308.html)60 Million Fine in India](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-fails-win-suspension-160-120016391.html)
 * [Startup Workers’ Dreams of Big Payouts Are Put On Hold](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;startup-workers-dreams-big-payouts-120006793.html)
 * [AI art generators face separate copyright lawsuits from Getty Images and a group of artists](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ai-art-generators-face-separate-103055257.html)
-* [The Princeton student who built an app to detect ChatGPT plagiarism opposes banning the chatbot in schools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;princeton-student-built-app-detect-095900247.html)
+* [The Princeton student who built an app to detect ChatGPT plagiarism opposes banning the chatbot in schools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;princeton-student-built-app-detect-095900247.html)60 Million Fine in India](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-fails-win-suspension-160-120016391.html)
+* [Startup Workers’ Dreams of Big Payouts Are Put On Hold](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;startup-workers-dreams-big-payouts-120006793.html)
 <!--END_SECTION:feed-->
