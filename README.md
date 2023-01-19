@@ -54,7 +54,7 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Google Fails to Win Suspension of * [AI art generators face separate copyright lawsuits from Getty Images and a group of artists](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ai-art-generators-face-separate-103055257.html)
+* [Google Fails to Win Suspension of * [Google Fails to Win Suspension of * [AI art generators face separate copyright lawsuits from Getty Images and a group of artists](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ai-art-generators-face-separate-103055257.html)
 * [The Princeton student who built an app to detect ChatGPT plagiarism opposes banning the chatbot in schools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;princeton-student-built-app-detect-095900247.html)
 * [Global Foundry Sales Set to Drop in 2023 in Blow to Taiwan, South Korea](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;global-foundry-sales-set-drop-075459931.html)
 * [EY says it hasn&#39;t seen &#39;a rash of talent that&#39;s all of a sudden available&#39; despite huge tech layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ey-says-hasnt-seen-rash-043517308.html)
@@ -143,6 +143,10 @@
 * [Newsletter Service Mailchimp Says It Was Hacked—Again](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;newsletter-mailchimp-says-hacked-again-212426762.html).3 Billion Korean EV Fund](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-drops-top-10-stocks-011730173.html)
 * [Musk Has ‘More to Lose’ If He Tries to Skip Twitter Debt Payment](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;musk-more-lose-tries-skip-220927455.html)
 * [Newsletter Service Mailchimp Says It Was Hacked—Again](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;newsletter-mailchimp-says-hacked-again-212426762.html).3 Billion Korean EV Fund](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-drops-top-10-stocks-011730173.html)60 Million Fine in India](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-fails-win-suspension-160-120016391.html)
+* [AI art generators face separate copyright lawsuits from Getty Images and a group of artists](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ai-art-generators-face-separate-103055257.html)
+* [The Princeton student who built an app to detect ChatGPT plagiarism opposes banning the chatbot in schools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;princeton-student-built-app-detect-095900247.html)
+* [Global Foundry Sales Set to Drop in 2023 in Blow to Taiwan, South Korea](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;global-foundry-sales-set-drop-075459931.html)
+* [EY says it hasn&#39;t seen &#39;a rash of talent that&#39;s all of a sudden available&#39; despite huge tech layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ey-says-hasnt-seen-rash-043517308.html)60 Million Fine in India](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-fails-win-suspension-160-120016391.html)
 * [AI art generators face separate copyright lawsuits from Getty Images and a group of artists](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ai-art-generators-face-separate-103055257.html)
 * [The Princeton student who built an app to detect ChatGPT plagiarism opposes banning the chatbot in schools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;princeton-student-built-app-detect-095900247.html)
 * [Global Foundry Sales Set to Drop in 2023 in Blow to Taiwan, South Korea](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;global-foundry-sales-set-drop-075459931.html)
