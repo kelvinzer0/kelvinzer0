@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [US Poised For Dutch, Japanese Help on China Chip Crackdown](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-poised-help-china-chip-172345387.html)
+* [TikTok Must Follow Coming EU Rules or Face Ban, Official Says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tiktok-must-coming-eu-rules-160132625.html)
 * [I&#39;m Microsoft&#39;s former VP of HR. Here are the 3 types of employees most at risk during layoffs — and the 2 that are safest.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;im-microsofts-former-vp-hr-164301254.html)
 * [Steve Jobs&#39; nepo babies: From a model to a secret daughter, here&#39;s everything we know about the Apple cofounder&#39;s kids](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;steve-jobs-nepo-babies-model-160216157.html)
-* [TikTok Must Follow Coming EU Rules or Face Ban, Official Says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tiktok-must-coming-eu-rules-160132625.html)
 * [Zoom Says Competition and Job Cuts Haven’t Hurt Its Business](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;zoom-says-competition-job-cuts-152012206.html)
-* [Tesla Stock-Price Rout Overshadows Rivian, Lucid Collapses](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-stock-price-rout-overshadows-144827668.html)
 <!--END_SECTION:feed-->
