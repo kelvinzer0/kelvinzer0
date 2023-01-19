@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Epic and Match antitrust case against Google goes to trial November 6th](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;epic-match-google-antitrust-lawsuit-trial-date-223014942.html)
 * [Reed Hastings is stepping down as co-CEO of Netflix](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;reed-hastings-stepping-down-co-213605868.html)
+* [Bushfires May Follow Floods as Climate Chaos Grips Australia](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;bushfires-may-floods-climate-chaos-210001985.html)
 * [US Poised for Dutch, Japanese Help on China Chip Crackdown](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-poised-help-china-chip-172345387.html)
 * [TikTok Must Follow Coming EU Rules or Face Ban, Official Says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tiktok-must-coming-eu-rules-160132625.html)
-* [I&#39;m Microsoft&#39;s former VP of HR. Here are the 3 types of employees most at risk during layoffs — and the 2 that are safest.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;im-microsofts-former-vp-hr-164301254.html)
-* [Steve Jobs&#39; nepo babies: From a model to a secret daughter, here&#39;s everything we know about the Apple cofounder&#39;s kids](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;steve-jobs-nepo-babies-model-160216157.html)
 <!--END_SECTION:feed-->
