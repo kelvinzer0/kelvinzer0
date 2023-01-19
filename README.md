@@ -54,7 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Global Foundry Sales Set to Drop in 2023 in Blow to Taiwan, South Korea](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;global-foundry-sales-set-drop-075459931.html)
 * [EY says it hasn&#39;t seen &#39;a rash of talent that&#39;s all of a sudden available&#39; despite huge tech layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ey-says-hasnt-seen-rash-043517308.html)
+* [Tesla Drops Out of Top 10 Stocks in * [EY says it hasn&#39;t seen &#39;a rash of talent that&#39;s all of a sudden available&#39; despite huge tech layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ey-says-hasnt-seen-rash-043517308.html)
 * [Tesla Drops Out of Top 10 Stocks in * [EY says it hasn&#39;t seen &#39;a rash of talent that&#39;s all of a sudden available&#39; despite huge tech layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ey-says-hasnt-seen-rash-043517308.html)
 * [Tesla Drops Out of Top 10 Stocks in * [EY says it hasn&#39;t seen &#39;a rash of talent that&#39;s all of a sudden available&#39; despite huge tech layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ey-says-hasnt-seen-rash-043517308.html)
 * [Tesla Drops Out of Top 10 Stocks in * [EY says it hasn&#39;t seen &#39;a rash of talent that&#39;s all of a sudden available&#39; despite huge tech layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ey-says-hasnt-seen-rash-043517308.html)
@@ -133,6 +135,8 @@
 * [Musk Has ‘More to Lose’ If He Tries to Skip Twitter Debt Payment](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;musk-more-lose-tries-skip-220927455.html)
 * [Newsletter Service Mailchimp Says It Was Hacked—Again](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;newsletter-mailchimp-says-hacked-again-212426762.html).3 Billion Korean EV Fund](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-drops-top-10-stocks-011730173.html)
 * [China Creates ‘Strong Nation’ Ride App as Data Regime Tightens](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;china-creates-strong-nation-ride-003126341.html)
+* [Musk Has ‘More to Lose’ If He Tries to Skip Twitter Debt Payment](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;musk-more-lose-tries-skip-220927455.html)
+* [Newsletter Service Mailchimp Says It Was Hacked—Again](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;newsletter-mailchimp-says-hacked-again-212426762.html).3 Billion Korean EV Fund](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-drops-top-10-stocks-011730173.html)
 * [Musk Has ‘More to Lose’ If He Tries to Skip Twitter Debt Payment](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;musk-more-lose-tries-skip-220927455.html)
 * [Newsletter Service Mailchimp Says It Was Hacked—Again](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;newsletter-mailchimp-says-hacked-again-212426762.html)
 <!--END_SECTION:feed-->
