@@ -54,7 +54,7 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Crypto Lender Genesis Files for Bankruptcy as Crisis Spreads](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;crypto-lender-genesis-files-bankruptcy-043752151.html)
+* [Tech Billionaire’s Loan to Keep Singapore Solar Dream Alive](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tech-billionaire-loan-keep-singapore-053844472.html)
 * [Didi’s Apps Reappear on Mobile Stores in Comeback’s First Step](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;didi-apps-reappear-mobile-stores-033332127.html)
 * [Infosys CEO Signals M&amp;A Ramp-Up as Economic Outlook Brightens](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;infosys-ceo-signals-m-ramp-023430127.html)
 * [Jack Ma Lands in Hong Kong on Latest Stop of a Global Tour](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;jack-ma-lands-hong-kong-010346701.html)
