@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Didi’s Apps Reappear on Mobile Stores in Comeback’s First Step](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;didi-apps-reappear-mobile-stores-033332127.html)
 * [Infosys CEO Signals M&amp;A Ramp-Up as Economic Outlook Brightens](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;infosys-ceo-signals-m-ramp-023430127.html)
 * [Jack Ma Lands in Hong Kong on Latest Stop of a Global Tour](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;jack-ma-lands-hong-kong-010346701.html)
 * [Meituan Left Out of China Tech Rally as Competition Heats Up](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;meituan-left-china-tech-rally-235847927.html)
 * [T-Mobile Says Hacker Stole Data for 37 Million Customers](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;t-mobile-says-hacker-stole-213701117.html)
-* [New Netflix co-CEO Greg Peters is set for a big raise with more than $30 million in potential stock options and bonuses — on top of a $3 million salary](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;netflix-co-ceo-greg-peters-231444288.html)
 <!--END_SECTION:feed-->
