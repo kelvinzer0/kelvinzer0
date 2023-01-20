@@ -54,7 +54,11 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Amazon to Plow Extra $35 Billion Into Virginia Data Centers in Cloud Race](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-plow-extra-35-billion-160000678.html)
 * [Researchers just tested ChatGPT on the same test questions as aspiring doctors – and found the AI was &#39;comfortably within the passing range&#39;](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;researchers-just-tested-chatgpt-same-155500420.html)
+* [Amazon, Microsoft Job Cuts Deal Another Blow to Ailing Seattle](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-microsoft-job-cuts-deal-150014782.html)
+* [Google boss Sundar Pichai tells staff they can work from home to process the &#39;difficult news&#39; of the company&#39;s mass layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-boss-sundar-pichai-tells-125537647.html)
+* [A tiny rural bank which Alameda bought an * [Researchers just tested ChatGPT on the same test questions as aspiring doctors – and found the AI was &#39;comfortably within the passing range&#39;](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;researchers-just-tested-chatgpt-same-155500420.html)
 * [Google boss Sundar Pichai tells staff they can work from home to process the &#39;difficult news&#39; of the company&#39;s mass layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-boss-sundar-pichai-tells-125537647.html)
 * [A tiny rural bank which Alameda bought an * [Google boss Sundar Pichai tells staff they can work from home to process the &#39;difficult news&#39; of the company&#39;s mass layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-boss-sundar-pichai-tells-125537647.html)
 * [A tiny rural bank which Alameda bought an * [Google boss Sundar Pichai tells staff they can work from home to process the &#39;difficult news&#39; of the company&#39;s mass layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-boss-sundar-pichai-tells-125537647.html)
@@ -114,5 +118,5 @@
 * [Google isn&#39;t just afraid of competition from ChatGPT — the giant is scared ChatGPT will kill AI](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-isnt-just-afraid-competition-114000010.html)3,000 a month, prosecutors say](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elizabeth-holmes-still-shows-no-122123937.html)
 * [US Poised for Dutch, Japanese Help on China Chip Crackdown](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-poised-help-china-chip-172345387.html)
 * [Google isn&#39;t just afraid of competition from ChatGPT — the giant is scared ChatGPT will kill AI](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-isnt-just-afraid-competition-114000010.html)3,000 a month, prosecutors say](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elizabeth-holmes-still-shows-no-122123937.html)
-* [US Poised for Dutch, Japanese Help on China Chip Crackdown](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-poised-help-china-chip-172345387.html)
+* [US Poised for Dutch, Japanese Help on China Chip Crackdown](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-poised-help-china-chip-172345387.html)1.5 million stake in is giving up its crypto and weed ambitions to return to its community roots](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tiny-rural-bank-alameda-bought-122906408.html)
 <!--END_SECTION:feed-->
