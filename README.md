@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Playtika Offers $810 Million for Angry Birds Maker Rovio](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;playtika-offers-810-million-angry-193933376.html)
 * [US Poised for Dutch, Japanese Help on China Chip Crackdown](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-poised-help-china-chip-172345387.html)
+* [Japan’s Chip Czar Backs US Push to Contain Chinese ‘Hegemony’](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;japan-chip-czar-backs-us-093000788.html)
+* [Playtika Offers $810 Million for Angry Birds Maker Rovio](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;playtika-offers-810-million-angry-193933376.html)
 * [Tech Billionaire’s Loan to Keep Singapore Solar Dream Alive](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tech-billionaire-loan-keep-singapore-053844472.html)
 * [Didi’s Apps Reappear on Mobile Stores in Comeback’s First Step](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;didi-apps-reappear-mobile-stores-033332127.html)
-* [Infosys CEO Signals M&amp;A Ramp-Up as Economic Outlook Brightens](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;infosys-ceo-signals-m-ramp-023430127.html)
 <!--END_SECTION:feed-->
