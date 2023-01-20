@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Jack Ma Lands in Hong Kong on the Latest Stop of a Global Tour](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;jack-ma-lands-hong-kong-010346701.html)
+* [Meituan Left Out of China Tech Rally as Competition Heats Up](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;meituan-left-china-tech-rally-235847927.html)
+* [T-Mobile Says Hacker Stole Data for 37 Million Customers](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;t-mobile-says-hacker-stole-213701117.html)
+* [New Netflix co-CEO Greg Peters is set for a big raise with more than $30 million in potential stock options and bonuses — on top of a $3 million salary](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;netflix-co-ceo-greg-peters-231444288.html)
 * [Epic and Match antitrust case against Google goes to trial November 6th](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;epic-match-google-antitrust-lawsuit-trial-date-223014942.html)
-* [Reed Hastings is stepping down as co-CEO of Netflix](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;reed-hastings-stepping-down-co-213605868.html)
-* [Bushfires May Follow Floods as Climate Chaos Grips Australia](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;bushfires-may-floods-climate-chaos-210001985.html)
-* [US Poised for Dutch, Japanese Help on China Chip Crackdown](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-poised-help-china-chip-172345387.html)
-* [TikTok Must Follow Coming EU Rules or Face Ban, Official Says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tiktok-must-coming-eu-rules-160132625.html)
 <!--END_SECTION:feed-->
