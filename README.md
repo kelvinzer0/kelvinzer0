@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [College professors are considering creative ways to stop students from using AI to cheat](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;college-professors-considering-creative-ways-080000591.html)
 * [Elon Musk just took the stand in a trial over his &#39;funding secured&#39; tweet — catch up with 8 stand-out quotes from his testimony](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elon-musk-just-took-stand-234617233.html)
 * [Elon Musk made sure the jury knew that short-sellers weren&#39;t &#39;a seller of small stature&#39; during the Tesla shareholder trial](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elon-musk-made-sure-jury-234146286.html)
 * [A consulting firm is suing Twitter, saying it is owed over $2 million for work it did trying to force through Elon Musk&#39;s acquisition](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;consulting-firm-suing-twitter-saying-173018733.html)
 * [Amazon to Plow Extra $35 Billion Into Virginia Data Centers in Cloud Race](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-plow-extra-35-billion-160000678.html)
-* [Amazon, Microsoft Job Cuts Deal Another Blow to Ailing Seattle](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-microsoft-job-cuts-deal-150014782.html)
 <!--END_SECTION:feed-->
