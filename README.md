@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [The world&#39;s third-richest person admits he has &#39;some addiction&#39; to ChatGPT](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;worlds-third-richest-person-admits-175919990.html)
 * [Ukraine is raising funds to build a strike force of 1,000 exploding drones to help defeat Russia](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ukraine-raising-funds-build-strike-134500175.html)
+* [Activist Elliott Takes Multibillion-Dollar Salesforce Stake](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;activist-elliott-takes-multibillion-dollar-150628724.html)
 * [An Apple a day could keep the layoffs away](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-day-could-keep-layoffs-113500717.html)
 * [Amazon Air Launches in India, Defying Slowdown Fears](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-begins-air-freight-services-064424280.html)
-* [An engineer laid off after over 16 years at Google says &#39;faceless&#39; tech giants see staff as &#39;100% disposable&#39;](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;engineer-laid-off-over-16-104711925.html)
-* [JPMorgan CEO says remote work isn&#39;t good for young people and managers, but can be &#39;perfectly reasonable&#39; for coders and women with caregiver concerns](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;jpmorgan-ceo-says-remote-isnt-110000089.html)
 <!--END_SECTION:feed-->
