@@ -55,8 +55,8 @@
 
 <!--START_SECTION:feed-->
 * [Tech’s Ferocious Rally Raises Bar for Earnings as Red Flags Wave](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tech-ferocious-rally-raises-bar-193754618.html)
+* [Google’s Sundar Pichai Tells Staff Cuts Avoided ‘Much Worse’ Issues](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-pichai-tells-staff-cuts-185944242.html)
+* [A ChatGPT bot passed a Wharton business school exam, but a professor says he would&#39;ve only graded the effort a B or B-minus](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chatgpt-bot-passed-wharton-business-210612769.html)
 * [Amazon Union Organizer in Alabama Says He Was Fired](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-union-organizer-alabama-says-193326199.html)
-* [Google’s Pichai Tells Staff Cuts Avoided ‘Much Worse’ Problems](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-pichai-tells-staff-cuts-185944242.html)
 * [The world&#39;s third-richest person admits he has &#39;some addiction&#39; to ChatGPT](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;worlds-third-richest-person-admits-175919990.html)
-* [Ukraine is raising funds to build a strike force of 1,000 exploding drones to help defeat Russia](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ukraine-raising-funds-build-strike-134500175.html)
 <!--END_SECTION:feed-->
