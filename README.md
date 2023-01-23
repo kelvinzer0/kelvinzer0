@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Tech’s Ferocious Rally Raises Bar for Earnings as Red Flags Wave](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tech-ferocious-rally-raises-bar-193754618.html)
+* [Amazon Union Organizer in Alabama Says He Was Fired](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-union-organizer-alabama-says-193326199.html)
+* [Google’s Pichai Tells Staff Cuts Avoided ‘Much Worse’ Problems](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-pichai-tells-staff-cuts-185944242.html)
 * [The world&#39;s third-richest person admits he has &#39;some addiction&#39; to ChatGPT](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;worlds-third-richest-person-admits-175919990.html)
 * [Ukraine is raising funds to build a strike force of 1,000 exploding drones to help defeat Russia](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;ukraine-raising-funds-build-strike-134500175.html)
-* [Activist Elliott Takes Multibillion-Dollar Salesforce Stake](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;activist-elliott-takes-multibillion-dollar-150628724.html)
-* [An Apple a day could keep the layoffs away](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-day-could-keep-layoffs-113500717.html)
-* [Amazon Air Launches in India, Defying Slowdown Fears](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-begins-air-freight-services-064424280.html)
 <!--END_SECTION:feed-->
