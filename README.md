@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [An Apple a day could keep the layoffs away](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-day-could-keep-layoffs-113500717.html)
+* [A Google software engineer says it was a &#39;slap in the face&#39; to find out he was laid off via email after 20 years at the company](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-software-engineer-says-slap-111325428.html)
 * [Amazon Air Launches in India, Defying Slowdown Fears](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-begins-air-freight-services-064424280.html)
+* [An engineer laid off after over 16 years at Google said &#39;faceless&#39; tech giants see staff as &#39;100% disposable&#39;](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;engineer-laid-off-over-16-104711925.html)
 * [College professors are considering creative ways to stop students from using AI to cheat](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;college-professors-considering-creative-ways-080000591.html)
-* [Elon Musk made sure the jury knew that short-sellers weren&#39;t &#39;a seller of small stature&#39; during the Tesla shareholder trial](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elon-musk-made-sure-jury-234146286.html)
-* [Google to Cut 12,000 Jobs in 6% Reduction of Global Workforce](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-cut-12-000-jobs-200302282.html)
-* [A consulting firm is suing Twitter, saying it is owed over $2 million for work it did trying to force through Elon Musk&#39;s acquisition](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;consulting-firm-suing-twitter-saying-173018733.html)
 <!--END_SECTION:feed-->
