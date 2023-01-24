@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Elon Musk&#39;s trial over his Tesla &#39;funding-secured&#39; tweets is underway. Here&#39;s everything you need to know about the case.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elon-musks-trial-over-tesla-102343345.html)
 * [Apple Aims for About 25% of Production in India, Minister Says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-aims-25-production-india-093935570.html)
 * [A lawyer accidentally called Elon Musk &#39;Mr. Tweet&#39; during the Tesla shareholder trial; Musk said it&#39;s pretty accurate](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;lawyer-accidentally-called-elon-musk-011213262.html)
 * [Elizabeth Holmes&#39; attorneys slammed prosecutors&#39; claim that she tried to flee to Mexico as &#39;baseless&#39; and say she no longer planned to make the trip after her conviction](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elizabeth-holmes-attorneys-slammed-prosecutors-002854028.html)
 * [DOJ Poised to Sue Google Over Digital Ad Market Dominance](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;doj-poised-sue-google-over-002448766.html)
+* [Salesforce Job Cuts, Big Deals at Stake as Elliott Pushes for Profit](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;salesforce-job-cuts-big-deals-001516769.html)
 <!--END_SECTION:feed-->
