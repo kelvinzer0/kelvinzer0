@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [US Sues Google to Break Up Ad Unit in Escalating Antitrust Fight](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-sues-google-over-ad-173214350.html)
+* [Harvard professor says he gets thank-you notes from prisoners, some of which are secretly using smartphones to take his free computer-science class](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;harvard-professor-says-gets-thank-174737332.html)
 * [DOJ Poised to Sue Google Over Digital Ad Market Dominance](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;doj-poised-sue-google-over-002448766.html)
 * [Salesforce Job Cuts, Big Deals at Stake as Elliott Pushes for Profit](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;salesforce-job-cuts-big-deals-001516769.html)
 * [A laid-off Google employee said she felt &#39;betrayed&#39; and &#39;reduced to a dollar sign&#39; when the tech giant cut her job](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;laid-off-google-employee-said-134304592.html)
-* [Apple Aims for About 25% of Production in India, Minister Says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-aims-25-production-india-093935570.html)
-* [A lawyer accidentally called Elon Musk &#39;Mr. Tweet&#39; during the Tesla shareholder trial; Musk said it&#39;s pretty accurate](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;lawyer-accidentally-called-elon-musk-011213262.html)
 <!--END_SECTION:feed-->
