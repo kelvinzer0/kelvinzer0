@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Tech’s Ferocious Rally Raises Bar for Earnings as Red Flags Wave](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tech-ferocious-rally-raises-bar-193754618.html)
-* [Google’s Sundar Pichai Tells Staff Cuts Avoided ‘Much Worse’ Issues](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-pichai-tells-staff-cuts-185944242.html)
-* [A ChatGPT bot passed a Wharton business school exam, but a professor says he would&#39;ve only graded the effort a B or B-minus](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chatgpt-bot-passed-wharton-business-210612769.html)
-* [Amazon Union Organizer in Alabama Says He Was Fired](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-union-organizer-alabama-says-193326199.html)
-* [The world&#39;s third-richest person admits he has &#39;some addiction&#39; to ChatGPT](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;worlds-third-richest-person-admits-175919990.html)
+* [A lawyer accidentally called Elon Musk &#39;Mr. Tweet&#39; during the Tesla shareholder trial; Musk said it&#39;s pretty accurate](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;lawyer-accidentally-called-elon-musk-011213262.html)
+* [Elizabeth Holmes&#39; attorneys slammed prosecutors&#39; claim that she tried to flee to Mexico as &#39;baseless&#39; and say she no longer planned to make the trip after her conviction](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elizabeth-holmes-attorneys-slammed-prosecutors-002854028.html)
+* [DOJ Poised to Sue Google Over Digital Ad Market Dominance](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;doj-poised-sue-google-over-002448766.html)
+* [Salesforce Job Cuts, Big Deals at Stake as Elliott Pushes for Profit](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;salesforce-job-cuts-big-deals-001516769.html)
+* [Google’s Pichai Tells Staff Cuts Avoided ‘Much Worse’ Issues](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-pichai-tells-staff-cuts-185944242.html)
 <!--END_SECTION:feed-->
