@@ -54,7 +54,7 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [US Sues Google to Break Up Ad Unit in Escalating Antitrust Fight](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-sues-google-over-ad-173214350.html)
+* [US Sues Google to Break Up Ad Unit in Heated Antitrust Fight](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-sues-google-over-ad-173214350.html)
 * [Harvard professor says he gets thank-you notes from prisoners, some of which are secretly using smartphones to take his free computer-science class](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;harvard-professor-says-gets-thank-174737332.html)
 * [DOJ Poised to Sue Google Over Digital Ad Market Dominance](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;doj-poised-sue-google-over-002448766.html)
 * [Salesforce Job Cuts, Big Deals at Stake as Elliott Pushes for Profit](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;salesforce-job-cuts-big-deals-001516769.html)
