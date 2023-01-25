@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Prosus to Cut 30% of Corporate Staff in Latest Tech Layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;prosus-cut-30-corporate-staff-152825249.html)
 * [Singapore’s Sea Is Said to Eye Sale of Phoenix Labs to Cut Costs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;singapore-sea-said-eye-sale-093039998.html)
 * [US Sues Google to Break Up Ad Unit in Heated Antitrust Fight](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-sues-google-over-ad-173214350.html)
 * [Texas Instruments’ Sales Drop for the First Time Since 2020](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;texas-instruments-sales-drop-first-212107137.html)
 * [YouTube Illegally Uses Return-to-Office Push to Derail Union, Complaint Claims](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;youtube-illegally-uses-return-office-213748908.html)
-* [Microsoft announces $52.7 billion in Q2 revenue amid plans to layoff 10,000 workers](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;microsoft-q2-fy23-earnings-report-211718819.html)
 <!--END_SECTION:feed-->
