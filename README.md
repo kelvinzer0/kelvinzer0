@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [US Sues Google to Break Up Ad Unit in Heated Antitrust Fight](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-sues-google-over-ad-173214350.html)
 * [Texas Instruments’ Sales Drop for the First Time Since 2020](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;texas-instruments-sales-drop-first-212107137.html)
 * [YouTube Illegally Uses Return-to-Office Push to Derail Union, Complaint Claims](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;youtube-illegally-uses-return-office-213748908.html)
 * [Microsoft announces $52.7 billion in Q2 revenue amid plans to layoff 10,000 workers](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;microsoft-q2-fy23-earnings-report-211718819.html)
-* [US Sues Google to Break Up Ad Unit in Heated Antitrust Fight](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-sues-google-over-ad-173214350.html)
 * [I just got laid off from Google by email. The &#39;cold&#39; and &#39;inhuman&#39; way they treated employees is why I&#39;m not going to reapply.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;just-got-laid-off-google-192344204.html)
 <!--END_SECTION:feed-->
