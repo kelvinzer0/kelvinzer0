@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [A major Alphabet investor said the company should cut even more jobs and address &#39;excessive&#39; pay in the wake of mass layoffs](https:&#x2F;&#x2F;www.businessinsider.com&#x2F;google-layoffs-cut-jobs-excessive-pay-investor-alphabet-2023-1)
 * [Prosus to Cut 30% of Corporate Staff in Latest Tech Layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;prosus-cut-30-corporate-staff-152825249.html)
 * [ASML Says Chip Controls Will Push China to Create Own Technology](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;asml-says-chip-controls-push-160223528.html)
 * [Singapore’s Sea Is Said to Eye Sale of Phoenix Labs to Cut Costs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;singapore-sea-said-eye-sale-093039998.html)
 * [US Sues Google to Break Up Ad Unit in Heated Antitrust Fight](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-sues-google-over-ad-173214350.html)
+* [Texas Instruments’ Sales Drop for the First Time Since 2020](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;texas-instruments-sales-drop-first-212107137.html)
 <!--END_SECTION:feed-->
