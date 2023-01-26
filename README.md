@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [The market crash could finally break Big Tech&#39;s addiction to subscriptions](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;market-crash-could-finally-break-175402363.html)
+* [IBM is slashing 3,900 workers, as a wave of layoffs continues into 2023. Here&#39;s the full list of major US companies making cuts.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;salesforce-slashing-thousands-workers-wave-164346684.html)
 * [Tesla Seeks Rapid Output Boost as Profit Beats Estimates](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-seeks-rapid-output-boost-001258459.html)
 * [Snap’s Stock Investors Risk More Pain on Advertising Woes](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;snap-stock-investors-risk-more-111952922.html)
 * [US and EU Discuss Deal to Widen Access to Inflation Reduction Act](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-eu-discuss-deal-widen-230752684.html)
-* [US Filed Microsoft-Activision Suit to Head Off EU Settlement](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-filed-microsoft-activision-suit-234158707.html)
-* [DoNotPay&#39;s CEO says threat of &#39;jail for 6 months&#39; means plan to debut AI &#39;robot lawyer&#39; in courtroom is on ice](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;donotpays-ceo-says-threat-jail-094000006.html)
 <!--END_SECTION:feed-->
