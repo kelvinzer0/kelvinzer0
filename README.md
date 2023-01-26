@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Amazon to Sell Bay Area Office Complex as Sales Growth Cools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-sell-bay-area-office-185913941.html)
 * [Amazon’s Moonshot Chief Lands at Seattle Venture Firm Madrona](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-moonshot-chief-lands-seattle-201306655.html)
 * [Elon Musk calmed anxious Tesla investors by acting like a normal CEO for once](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elon-musk-calmed-anxious-tesla-191740350.html)
-* [Amazon to Sell Bay Area Office Complex as Sales Growth Cools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-sell-bay-area-office-185913941.html)
 * [The market crash could finally break Big Tech&#39;s addiction to subscriptions](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;market-crash-could-finally-break-175402363.html)
 * [Tesla Seeks Rapid Output Boost as Profit Beats Estimates](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-seeks-rapid-output-boost-001258459.html)
 <!--END_SECTION:feed-->
