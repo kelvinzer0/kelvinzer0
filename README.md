@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Amazon to Sell Bay Area Office Complex as Sales Growth Cools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-sell-bay-area-office-185913941.html)
 * [The market crash could finally break Big Tech&#39;s addiction to subscriptions](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;market-crash-could-finally-break-175402363.html)
 * [Tesla Seeks Rapid Output Boost as Profit Beats Estimates](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;tesla-seeks-rapid-output-boost-001258459.html)
 * [Snap’s Stock Investors Risk More Pain on Advertising Woes](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;snap-stock-investors-risk-more-111952922.html)
 * [US and EU Discuss Deal to Widen Access to Inflation Reduction Act](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-eu-discuss-deal-widen-230752684.html)
-* [US Filed Microsoft-Activision Suit to Head Off EU Settlement](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-filed-microsoft-activision-suit-234158707.html)
 <!--END_SECTION:feed-->
