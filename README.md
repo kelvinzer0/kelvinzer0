@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [ServiceNow Pledges ‘Absolutely No’ Job Cuts in 2023 While Stock Falls on Sales Miss](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;servicenow-pledges-absolutely-no-job-230128586.html)
+* [Biden Has Never Been Under More Pressure From Congress to Ban TikTok](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;biden-never-under-more-pressure-004043344.html)
+* [US Filed Microsoft-Activision Suit to Head Off EU Settlement](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-filed-microsoft-activision-suit-234158707.html)
+* [US and EU Discuss Deal to Widen Access to Inflation Reduction Act](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;us-eu-discuss-deal-widen-230752684.html)
 * [Trump&#39;s Facebook, Instagram Accounts Reinstated After Two-Year Ban](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;trumps-facebook-instagram-accounts-reinstated-220812292.html)
-* [Prosus to Cut 30% of Corporate Staff in Latest Tech Layoffs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;prosus-cut-30-corporate-staff-152825249.html)
-* [ASML Says Chip Controls Will Push China to Create Own Technology](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;asml-says-chip-controls-push-160223528.html)
-* [Singapore’s Sea Is Said to Eye Sale of Phoenix Labs to Cut Costs](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;singapore-sea-said-eye-sale-093039998.html)
+* [ServiceNow Pledges ‘Absolutely No’ Job Cuts in 2023 While Stock Falls on Sales Miss](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;servicenow-pledges-absolutely-no-job-230128586.html)
 <!--END_SECTION:feed-->
