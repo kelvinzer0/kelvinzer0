@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Japan, Netherlands to Join US in Chip Controls on China](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;japan-netherlands-join-us-chip-014759438.html)
 * [Amazon to Sell Bay Area Office Complex as Sales Growth Cools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-sell-bay-area-office-185913941.html)
 * [South Korea Tech Industry’s Confidence Sours to Seven-Year Low](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;south-korea-tech-industry-confidence-210000282.html)
 * [Amazon’s Moonshot Chief Lands at Seattle Venture Firm Madrona](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-moonshot-chief-lands-seattle-201306655.html)
 * [Elon Musk calmed anxious Tesla investors by acting like a normal CEO for once](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;elon-musk-calmed-anxious-tesla-191740350.html)
+* [The market crash could finally break Big Tech&#39;s addiction to subscriptions](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;market-crash-could-finally-break-175402363.html)
 <!--END_SECTION:feed-->
