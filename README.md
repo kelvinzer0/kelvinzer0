@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
+* [Crypto Billionaire Wu Cuts Jobs at One Firm, Loses CEO at Other](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;crypto-billionaire-wu-cuts-jobs-094138616.html)
 * [Apple’s iPhone Dominated China Last Quarter Despite Disruptions](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-iphone-dominated-china-last-090048062.html)
 * [Chip Stocks Extend Gains in Asia, Defying Intel’s Sales Warning](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chip-stocks-extend-gains-asia-025836670.html)
 * [Fidelity Cuts Ant Group Valuation by Another 9% to $64 Billion](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;fidelity-cuts-ant-group-valuation-043006694.html)
 * [China Sure to Hit Back Over Chip Controls, Japan Lawmaker Says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;china-sure-hit-back-over-004500740.html)
-* [Amazon to Sell Bay Area Office Complex as Sales Growth Cools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-sell-bay-area-office-185913941.html)
 <!--END_SECTION:feed-->
