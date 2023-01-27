@@ -54,9 +54,9 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Japan, Netherlands to Join US in Chip Controls on China](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;japan-netherlands-join-us-chip-014759438.html)
+* [Goldman Sachs cut CEO David Solomon&#39;s pay by 30% in 2022. He made only $25 million.](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;goldman-sachs-cut-ceo-david-193020130.html)
+* [Biden Nears Win as Japan, Dutch Back China Chip Controls](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;japan-netherlands-join-us-chip-014759438.html)
 * [A Google engineer says survivors of the mass layoffs cried in meetings the day around 12,000 of their colleagues were culled](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;google-engineer-says-survivors-mass-153122052.html)
 * [Crypto Billionaire Wu Cuts Jobs at One Firm, Loses CEO at Other](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;crypto-billionaire-wu-cuts-jobs-094138616.html)
 * [Apple’s iPhone Dominated China Last Quarter Despite Disruptions](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;apple-iphone-dominated-china-last-090048062.html)
-* [Chip Stocks Extend Gains in Asia, Defying Intel’s Sales Warning](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chip-stocks-extend-gains-asia-025836670.html)
 <!--END_SECTION:feed-->
