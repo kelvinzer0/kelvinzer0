@@ -54,8 +54,8 @@
 ### Today's Tech News:
 
 <!--START_SECTION:feed-->
-* [Fidelity Cuts Ant Group Valuation by Another 9% to $64 Billion](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;fidelity-cuts-ant-group-valuation-043006694.html)
 * [Chip Stocks Extend Gains in Asia, Defying Intel’s Sales Warning](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;chip-stocks-extend-gains-asia-025836670.html)
+* [Fidelity Cuts Ant Group Valuation by Another 9% to $64 Billion](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;fidelity-cuts-ant-group-valuation-043006694.html)
 * [China Sure to Hit Back Over Chip Controls, Japan Lawmaker Says](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;china-sure-hit-back-over-004500740.html)
 * [Amazon to Sell Bay Area Office Complex as Sales Growth Cools](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;amazon-sell-bay-area-office-185913941.html)
 * [South Korea Tech Industry’s Confidence Sours to Seven-Year Low](https:&#x2F;&#x2F;finance.yahoo.com&#x2F;news&#x2F;south-korea-tech-industry-confidence-210000282.html)
