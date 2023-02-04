@@ -55,8 +55,8 @@
 
 <!-- feed start -->
 - Feb 04 - ['It's embarrassing for our sport.': Duke University women's basketball coach says her team played first half with the wrong ball](https://news.yahoo.com/embarrassing-sport-duke-university-womens-194826726.html)
-- Feb 04 - [Engine problems force Vegas-bound flight to land in Nebraska](https://news.yahoo.com/engine-problems-force-vegas-bound-194635900.html)
 - Feb 04 - [Eyes on the sky as Chinese balloon shot down over Atlantic](https://news.yahoo.com/eyes-sky-chinese-balloon-heads-192408982.html)
 - Feb 04 - [Former senior military official slams 'feckless' Pentagon response to Chinese balloon, warns of consequences](https://news.yahoo.com/former-senior-military-official-slams-183024291.html)
 - Feb 04 - [Hunt ends for mountain lion that attacked California boy](https://news.yahoo.com/hunt-ends-mountain-lion-attacked-182412406.html)
+- Feb 04 - [‘Miserable’ Marjorie Taylor Greene Whines That Her Congressional Salary Is Too Low](https://news.yahoo.com/miserable-marjorie-taylor-greene-whines-160947144.html)
 <!-- feed end -->
