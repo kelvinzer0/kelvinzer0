@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 04 - [Democrats Becoming ‘Majority-Minority Party’ Led by College-Educated Whites: Report](https://news.yahoo.com/democrats-becoming-majority-minority-party-170504278.html)
 - Feb 04 - [‘Miserable’ Marjorie Taylor Greene Whines That Her Congressional Salary Is Too Low](https://news.yahoo.com/miserable-marjorie-taylor-greene-whines-160947144.html)
+- Feb 04 - [Chinese spy balloon over the US: An aerospace expert explains how the balloons work and what they can see](https://news.yahoo.com/chinese-spy-balloon-over-us-143810616.html)
 - Feb 04 - ['Died suddenly' posts twist tragedies to push vaccine lies](https://news.yahoo.com/died-suddenly-posts-twist-tragedies-141005539.html)
-- Feb 04 - [China spy balloon shows country is preparing citizens for war that could come at ‘any time’: expert](https://news.yahoo.com/china-spy-balloon-shows-country-130019312.html)
 - Feb 04 - ["All Ukraine will burn": Medvedev threatens nuclear strikes for attacking Crimea](https://news.yahoo.com/ukraine-burn-medvedev-threatens-nuclear-100847497.html)
+- Feb 04 - [Europe grapples with raising the retirement age as life expectancy rises and birth rates plummet](https://news.yahoo.com/europe-grapples-with-raising-the-retirement-age-as-life-expectancy-rises-and-birth-rates-plummet-100006381.html)
 <!-- feed end -->
