@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 04 - [People Are Feeling Red-Faced And Downright Exposed After This Interior Designer Called Out 3 Of The Worst Ways To Decorate Your Home](https://news.yahoo.com/people-feeling-red-faced-downright-213451287.html)
+- Feb 04 - [Eyes on the sky as Chinese balloon shot down over Atlantic](https://news.yahoo.com/eyes-sky-chinese-balloon-heads-192408982.html)
+- Feb 04 - [Hunt ends for mountain lion that attacked California boy](https://news.yahoo.com/hunt-ends-mountain-lion-attacked-182412406.html)
 - Feb 04 - [‘Miserable’ Marjorie Taylor Greene Whines That Her Congressional Salary Is Too Low](https://news.yahoo.com/miserable-marjorie-taylor-greene-whines-160947144.html)
-- Feb 04 - [Chinese spy balloon over the US: An aerospace expert explains how the balloons work and what they can see](https://news.yahoo.com/chinese-spy-balloon-over-us-143810616.html)
-- Feb 04 - ['Died suddenly' posts twist tragedies to push vaccine lies](https://news.yahoo.com/died-suddenly-posts-twist-tragedies-141005539.html)
-- Feb 04 - ["All Ukraine will burn": Medvedev threatens nuclear strikes for attacking Crimea](https://news.yahoo.com/ukraine-burn-medvedev-threatens-nuclear-100847497.html)
-- Feb 04 - [Europe grapples with raising the retirement age as life expectancy rises and birth rates plummet](https://news.yahoo.com/europe-grapples-with-raising-the-retirement-age-as-life-expectancy-rises-and-birth-rates-plummet-100006381.html)
+- Feb 04 - [U.S. Shoots Down Chinese Surveillance Balloon](https://news.yahoo.com/biden-gives-ahead-shoot-down-151408441.html)
 <!-- feed end -->
