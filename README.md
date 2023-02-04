@@ -51,7 +51,7 @@
 <a href="https://www.credly.com/badges/966890c4-3f82-4d57-b82a-05b7faf53781/embedded" target="_blank"><img src="https://images.credly.com/images/767c6a2b-4026-4395-80a2-0d2cb1eff8af/image.png" alt="Badge 5" width="40" height="40"></a>
 </p>
 
-### Today's Tech News:
+### Today's Finance News:
 
 <!--START_SECTION:feed-->
 
