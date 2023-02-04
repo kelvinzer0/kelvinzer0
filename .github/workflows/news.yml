@@ -12,3 +12,4 @@ jobs:
         with:
           url: 'https://news.yahoo.com/rss/money'
           file: 'README.md'
+      - uses: sarisia/actions-commit@master
