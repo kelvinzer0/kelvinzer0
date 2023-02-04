@@ -53,6 +53,5 @@
 
 ### Today's Finance News:
 
-<!--START_SECTION:feed-->
-
-<!--END_SECTION:feed-->
+<!-- feed start -->
+<!-- feed end -->
