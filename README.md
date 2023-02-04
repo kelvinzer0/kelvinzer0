@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 04 - [Democrats Becoming ‘Majority-Minority Party’ Led by College-Educated Whites: Report](https://news.yahoo.com/democrats-becoming-majority-minority-party-170504278.html)
 - Feb 04 - [‘Miserable’ Marjorie Taylor Greene Whines That Her Congressional Salary Is Too Low](https://news.yahoo.com/miserable-marjorie-taylor-greene-whines-160947144.html)
-- Feb 04 - [Prosecutors Feared They'd Have To Prove Trump Wasn't Legally Insane, Book Says](https://news.yahoo.com/prosecutors-feared-theyd-prove-trump-142114578.html)
 - Feb 04 - ['Died suddenly' posts twist tragedies to push vaccine lies](https://news.yahoo.com/died-suddenly-posts-twist-tragedies-141005539.html)
-- Feb 04 - [Man punched several girls' basketball players during game, brandished a gun, police say](https://news.yahoo.com/man-punched-several-girls-basketball-140007460.html)
 - Feb 04 - [China spy balloon shows country is preparing citizens for war that could come at ‘any time’: expert](https://news.yahoo.com/china-spy-balloon-shows-country-130019312.html)
+- Feb 04 - ["All Ukraine will burn": Medvedev threatens nuclear strikes for attacking Crimea](https://news.yahoo.com/ukraine-burn-medvedev-threatens-nuclear-100847497.html)
 <!-- feed end -->
