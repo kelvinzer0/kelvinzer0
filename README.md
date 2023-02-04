@@ -58,5 +58,5 @@
 - Feb 04 - [Eyes on the sky as Chinese balloon shot down over Atlantic](https://news.yahoo.com/eyes-sky-chinese-balloon-heads-192408982.html)
 - Feb 04 - [Hunt ends for mountain lion that attacked California boy](https://news.yahoo.com/hunt-ends-mountain-lion-attacked-182412406.html)
 - Feb 04 - [‘Miserable’ Marjorie Taylor Greene Whines That Her Congressional Salary Is Too Low](https://news.yahoo.com/miserable-marjorie-taylor-greene-whines-160947144.html)
-- Feb 04 - [U.S. Shoots Down Chinese Surveillance Balloon](https://news.yahoo.com/biden-gives-ahead-shoot-down-151408441.html)
+- Feb 04 - [Video Shows Chinese Balloon Being Shot Down Over Atlantic Ocean](https://news.yahoo.com/biden-gives-ahead-shoot-down-151408441.html)
 <!-- feed end -->
