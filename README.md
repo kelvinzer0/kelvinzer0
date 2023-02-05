@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [Former Israeli PM: Putin promised not to kill Zelenskyy](https://news.yahoo.com/former-israeli-pm-putin-promised-074150900.html)
 - Feb 05 - [SNL Roasts Santos, MTG and Trump’s ‘Big Ole Dump Truck’](https://news.yahoo.com/snl-roasts-santos-mtg-trump-055732803.html)
 - Feb 05 - [Twitter Critics Post Jan. 6 Photo Of Terrified GOP Rep Now Handing Out Assault Rifle Pins](https://news.yahoo.com/twitter-critics-post-jan-6-032546425.html)
 - Feb 05 - [People Are Feeling Red-Faced And Downright Exposed After This Interior Designer Called Out 3 Of The Worst Ways To Decorate Your Home](https://news.yahoo.com/people-feeling-red-faced-downright-213451287.html)
 - Feb 05 - [China fumes after US pops its balloon, warns of possible ‘responses’ to ‘clear overreaction’](https://news.yahoo.com/china-fumes-us-pops-balloon-021356865.html)
-- Feb 05 - [Revisiting ‘Barb Wire,’ the Movie That Should’ve Made Pamela Anderson a Superstar Actress](https://news.yahoo.com/revisiting-barb-wire-movie-ve-015354096.html)
 <!-- feed end -->
