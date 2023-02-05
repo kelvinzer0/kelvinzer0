@@ -58,5 +58,5 @@
 - Feb 05 - [Daylight saving time: When will the clocks change this year?](https://news.yahoo.com/daylight-saving-time-clocks-change-184331020.html)
 - Feb 05 - [Charles Kimbrough, who played anchor in 'Murphy Brown,' dies](https://news.yahoo.com/charles-kimbrough-played-anchor-murphy-184258794.html)
 - Feb 05 - [CBS News pressed Sen. Ted Cruz on why he's running for reelection after he introduced a bill limiting senators to 2 terms in office: 'Why aren't you holding yourself to that standard?'](https://news.yahoo.com/cbs-news-pressed-sen-ted-182049510.html)
-- Feb 05 - [Peyton Manning's 11-year-old son Marshall gets in throws at Pro Bowl Games](https://news.yahoo.com/peyton-mannings-11-old-son-181917459.html)
+- Feb 05 - [Aramark apologizes for 'unintentional insensitivity' after serving students chicken and watermelon on the first day of Black History Month](https://news.yahoo.com/aramark-apologizes-unintentional-insensitivity-serving-173016987.html)
 <!-- feed end -->
