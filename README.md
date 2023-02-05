@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [Cubans respond with zeal to new US migration policy](https://news.yahoo.com/cubans-respond-zeal-us-migration-161606926.html)
+- Feb 05 - [Donald Trump Tries to Deny That Spy Balloons Also Flew Over U.S. During His Presidency](https://news.yahoo.com/donald-trump-tries-deny-spy-155909555.html)
 - Feb 05 - [2 abducted Missouri children found in a Florida supermarket](https://news.yahoo.com/2-abducted-missouri-children-found-153016467.html)
+- Feb 05 - [The stealth F-22, the top US air superiority fighter, just got its first known air-to-air kill taking out a Chinese balloon.](https://news.yahoo.com/stealth-f-22-top-us-152111186.html)
 - Feb 05 - [Interior-design experts share 12 kitchen trends they think you'll regret in a few years](https://news.yahoo.com/interior-design-experts-share-12-151200669.html)
-- Feb 05 - [An ex-Romney presidential campaign strategist says Nikki Haley 'embodies the collapse' of the Republican Party](https://news.yahoo.com/ex-romney-presidential-campaign-strategist-141404455.html)
-- Feb 05 - [Woman who 'took Prince Harry's virginity' says he could have warned her before publishing Spare](https://news.yahoo.com/woman-took-prince-harrys-virginity-132537173.html)
-- Feb 05 - [Brain teaser: Can you find 3 cats hidden in a sea of penguins?](https://news.yahoo.com/brain-teaser-3-cats-hidden-130046387.html)
 <!-- feed end -->
