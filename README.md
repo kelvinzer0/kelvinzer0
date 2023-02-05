@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [Charles Kimbrough, who played anchor in 'Murphy Brown,' dies](https://news.yahoo.com/charles-kimbrough-played-anchor-murphy-184258794.html)
 - Feb 05 - [Cruz says Biden "telegraphed weakness" with response to Chinese spy balloon](https://news.yahoo.com/cruz-says-biden-telegraphed-weakness-174358846.html)
+- Feb 05 - [Aramark apologizes for 'unintentional insensitivity' after serving students chicken and watermelon on the first day of Black History Month](https://news.yahoo.com/aramark-apologizes-unintentional-insensitivity-serving-173016987.html)
 - Feb 05 - [Pope hits back at critics who used Pope Benedict XVI](https://news.yahoo.com/pope-hits-back-critics-used-171701423.html)
-- Feb 05 - [Prince Harry called upon to give evidence against Meghan’s ‘false and malicious lies’](https://news.yahoo.com/prince-harry-called-upon-evidence-165945662.html)
-- Feb 05 - [Cubans respond with zeal to new US migration policy](https://news.yahoo.com/cubans-respond-zeal-us-migration-161606926.html)
-- Feb 05 - [Donald Trump Tries to Deny That Spy Balloons Also Flew Over U.S. During His Presidency](https://news.yahoo.com/donald-trump-tries-deny-spy-155909555.html)
+- Feb 05 - [Rep. George Santos doubled down on the claim his mother died from cancer due to 9/11, despite records showing she wasn't even in the country](https://news.yahoo.com/rep-george-santos-doubled-down-165951215.html)
 <!-- feed end -->
