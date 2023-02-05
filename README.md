@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [An ex-Romney presidential campaign strategist says Nikki Haley 'embodies the collapse' of the Republican Party](https://news.yahoo.com/ex-romney-presidential-campaign-strategist-141404455.html)
 - Feb 05 - [Woman who 'took Prince Harry's virginity' says he could have warned her before publishing Spare](https://news.yahoo.com/woman-took-prince-harrys-virginity-132537173.html)
 - Feb 05 - [I'm a former cruise director. Here are 9 big mistakes I see first-time passengers make.](https://news.yahoo.com/im-former-cruise-director-9-122100877.html)
+- Feb 05 - [Woman who killed Netflix's 'Dirty John' held his head 'like a zombie,' stabbed him through the eye](https://news.yahoo.com/woman-killed-netflixs-dirty-john-113043604.html)
 - Feb 05 - [Skull-waving neo-Nazi Russian mercenary gets shot in head in execution-style attack](https://news.yahoo.com/skull-waving-neo-nazi-russian-111700163.html)
-- Feb 05 - [The Bengals won because they trusted their QB. The Chiefs put theirs on the sideline](https://news.yahoo.com/bengals-won-because-trusted-qb-110000250.html)
-- Feb 05 - [I've made $630,000 in 2 years as a 55-year-old OnlyFans model. It means I can give my son a better life and save for his college fund.](https://news.yahoo.com/ive-made-630-000-2-104500351.html)
 <!-- feed end -->
