@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [Skull-waving neo-Nazi Russian mercenary gets shot in head in execution-style attack](https://news.yahoo.com/skull-waving-neo-nazi-russian-111700163.html)
+- Feb 05 - [The Bengals won because they trusted their QB. The Chiefs put theirs on the sideline](https://news.yahoo.com/bengals-won-because-trusted-qb-110000250.html)
+- Feb 05 - [I've made $630,000 in 2 years as a 55-year-old OnlyFans model. It means I can give my son a better life and save for his college fund.](https://news.yahoo.com/ive-made-630-000-2-104500351.html)
+- Feb 05 - [I took the trip of a lifetime to New Zealand, and nearly half a year later, I can't stop thinking about 7 things that impressed me](https://news.yahoo.com/took-trip-lifetime-zealand-nearly-103100821.html)
 - Feb 05 - [Former Israeli PM: Putin promised not to kill Zelenskyy](https://news.yahoo.com/former-israeli-pm-putin-promised-074150900.html)
-- Feb 05 - [Pervez Musharraf, Pakistan martial ruler in 9/11 wars, dies](https://news.yahoo.com/pervez-musharraf-pakistan-martial-ruler-064613938.html)
-- Feb 05 - [SNL Roasts Santos, MTG and Trump’s ‘Big Ole Dump Truck’](https://news.yahoo.com/snl-roasts-santos-mtg-trump-055732803.html)
-- Feb 05 - [Twitter Critics Post Jan. 6 Photo Of Terrified GOP Rep Now Handing Out Assault Rifle Pins](https://news.yahoo.com/twitter-critics-post-jan-6-032546425.html)
-- Feb 05 - [People Are Feeling Red-Faced And Downright Exposed After This Interior Designer Called Out 3 Of The Worst Ways To Decorate Your Home](https://news.yahoo.com/people-feeling-red-faced-downright-213451287.html)
 <!-- feed end -->
