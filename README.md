@@ -56,7 +56,7 @@
 <!-- feed start -->
 - Feb 05 - [People Are Feeling Red-Faced And Downright Exposed After This Interior Designer Called Out 3 Of The Worst Ways To Decorate Your Home](https://news.yahoo.com/people-feeling-red-faced-downright-213451287.html)
 - Feb 05 - [Revisiting ‘Barb Wire,’ the Movie That Should’ve Made Pamela Anderson a Superstar Actress](https://news.yahoo.com/revisiting-barb-wire-movie-ve-015354096.html)
-- Feb 04 - [Pentagon reveals details on how Chinese spy balloon was taken down with single shot](https://news.yahoo.com/pentagon-reveals-details-chinese-spy-220701366.html)
+- Feb 05 - [China experts predict Beijing’s next move after spy balloon shot down](https://news.yahoo.com/china-experts-predict-beijing-next-011429582.html)
+- Feb 05 - [Kentucky mom says Bryan Kohberger is her 'divine masculine' and claims she sent him letters and dolled up pics](https://news.yahoo.com/kentucky-mom-says-bryan-kohberger-005129326.html)
 - Feb 04 - ['It's embarrassing for our sport.': Duke University women's basketball coach says her team played first half with the wrong ball](https://news.yahoo.com/embarrassing-sport-duke-university-womens-194826726.html)
-- Feb 04 - [Engine problems force Vegas-bound flight to land in Nebraska](https://news.yahoo.com/engine-problems-force-vegas-bound-194635900.html)
 <!-- feed end -->
