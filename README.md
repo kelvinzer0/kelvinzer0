@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [Cruz says Biden "telegraphed weakness" with response to Chinese spy balloon](https://news.yahoo.com/cruz-says-biden-telegraphed-weakness-174358846.html)
+- Feb 05 - [Pope hits back at critics who used Pope Benedict XVI](https://news.yahoo.com/pope-hits-back-critics-used-171701423.html)
+- Feb 05 - [Prince Harry called upon to give evidence against Meghan’s ‘false and malicious lies’](https://news.yahoo.com/prince-harry-called-upon-evidence-165945662.html)
 - Feb 05 - [Cubans respond with zeal to new US migration policy](https://news.yahoo.com/cubans-respond-zeal-us-migration-161606926.html)
 - Feb 05 - [Donald Trump Tries to Deny That Spy Balloons Also Flew Over U.S. During His Presidency](https://news.yahoo.com/donald-trump-tries-deny-spy-155909555.html)
-- Feb 05 - [2 abducted Missouri children found in a Florida supermarket](https://news.yahoo.com/2-abducted-missouri-children-found-153016467.html)
-- Feb 05 - [The stealth F-22, the top US air superiority fighter, just got its first known air-to-air kill taking out a Chinese balloon.](https://news.yahoo.com/stealth-f-22-top-us-152111186.html)
-- Feb 05 - [Interior-design experts share 12 kitchen trends they think you'll regret in a few years](https://news.yahoo.com/interior-design-experts-share-12-151200669.html)
 <!-- feed end -->
