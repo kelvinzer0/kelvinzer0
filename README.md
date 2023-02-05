@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [Marco Rubio learns Chinese spy balloon over US three times during Trump administration](https://news.yahoo.com/marco-rubio-learns-chinese-spy-191848807.html)
+- Feb 05 - [Daylight saving time: When will the clocks change this year?](https://news.yahoo.com/daylight-saving-time-clocks-change-184331020.html)
 - Feb 05 - [Charles Kimbrough, who played anchor in 'Murphy Brown,' dies](https://news.yahoo.com/charles-kimbrough-played-anchor-murphy-184258794.html)
-- Feb 05 - [Cruz says Biden "telegraphed weakness" with response to Chinese spy balloon](https://news.yahoo.com/cruz-says-biden-telegraphed-weakness-174358846.html)
-- Feb 05 - [Aramark apologizes for 'unintentional insensitivity' after serving students chicken and watermelon on the first day of Black History Month](https://news.yahoo.com/aramark-apologizes-unintentional-insensitivity-serving-173016987.html)
-- Feb 05 - [Pope hits back at critics who used Pope Benedict XVI](https://news.yahoo.com/pope-hits-back-critics-used-171701423.html)
-- Feb 05 - [Rep. George Santos doubled down on the claim his mother died from cancer due to 9/11, despite records showing she wasn't even in the country](https://news.yahoo.com/rep-george-santos-doubled-down-165951215.html)
+- Feb 05 - [CBS News pressed Sen. Ted Cruz on why he's running for reelection after he introduced a bill limiting senators to 2 terms in office: 'Why aren't you holding yourself to that standard?'](https://news.yahoo.com/cbs-news-pressed-sen-ted-182049510.html)
+- Feb 05 - [Peyton Manning's 11-year-old son Marshall gets in throws at Pro Bowl Games](https://news.yahoo.com/peyton-mannings-11-old-son-181917459.html)
 <!-- feed end -->
