@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [Twitter Critics Post Jan. 6 Photo Of Terrified GOP Rep Now Handing Out Assault Rifle Pins](https://news.yahoo.com/twitter-critics-post-jan-6-032546425.html)
 - Feb 05 - [People Are Feeling Red-Faced And Downright Exposed After This Interior Designer Called Out 3 Of The Worst Ways To Decorate Your Home](https://news.yahoo.com/people-feeling-red-faced-downright-213451287.html)
 - Feb 05 - [China fumes after US pops its balloon, warns of possible ‘responses’ to ‘clear overreaction’](https://news.yahoo.com/china-fumes-us-pops-balloon-021356865.html)
 - Feb 05 - [Revisiting ‘Barb Wire,’ the Movie That Should’ve Made Pamela Anderson a Superstar Actress](https://news.yahoo.com/revisiting-barb-wire-movie-ve-015354096.html)
-- Feb 05 - [China experts predict Beijing’s next move after spy balloon shot down](https://news.yahoo.com/china-experts-predict-beijing-next-011429582.html)
 - Feb 05 - [Kentucky mom says Bryan Kohberger is her 'divine masculine' and claims she sent him letters and dolled up pics](https://news.yahoo.com/kentucky-mom-says-bryan-kohberger-005129326.html)
 <!-- feed end -->
