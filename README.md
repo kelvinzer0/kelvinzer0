@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [People Are Feeling Red-Faced And Downright Exposed After This Interior Designer Called Out 3 Of The Worst Ways To Decorate Your Home](https://news.yahoo.com/people-feeling-red-faced-downright-213451287.html)
+- Feb 05 - [Trump Jr. Shares Chinese Balloon Joke That His Dad Might Not Be Too Happy About](https://news.yahoo.com/trump-jr-shares-chinese-balloon-221155349.html)
+- Feb 05 - [Chris Christie says Biden is 'not capable of running a traditional American race' in 2024: 'He's old. He's boring.'](https://news.yahoo.com/chris-christie-says-biden-not-212709116.html)
 - Feb 05 - [Ride at Iowa amusement park where boy died will never reopen](https://news.yahoo.com/ride-iowa-amusement-park-where-211519733.html)
 - Feb 05 - [Dallas Mavericks will regret this one; trading for Kyrie Irving is a desperate move](https://news.yahoo.com/dallas-mavericks-regret-one-trading-204848675.html)
-- Feb 05 - [Marco Rubio learns Chinese spy balloon over US three times during Trump administration](https://news.yahoo.com/marco-rubio-learns-chinese-spy-191848807.html)
-- Feb 05 - [Surfer Bethany Hamilton speaks out against new rule allowing transgender women to compete with females](https://news.yahoo.com/surfer-bethany-hamilton-speaks-against-184531872.html)
-- Feb 05 - [Daylight saving time: When will the clocks change this year?](https://news.yahoo.com/daylight-saving-time-clocks-change-184331020.html)
 <!-- feed end -->
