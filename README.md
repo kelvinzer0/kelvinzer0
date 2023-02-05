@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [Ride at Iowa amusement park where boy died will never reopen](https://news.yahoo.com/ride-iowa-amusement-park-where-211519733.html)
+- Feb 05 - [Dallas Mavericks will regret this one; trading for Kyrie Irving is a desperate move](https://news.yahoo.com/dallas-mavericks-regret-one-trading-204848675.html)
 - Feb 05 - [Marco Rubio learns Chinese spy balloon over US three times during Trump administration](https://news.yahoo.com/marco-rubio-learns-chinese-spy-191848807.html)
+- Feb 05 - [Surfer Bethany Hamilton speaks out against new rule allowing transgender women to compete with females](https://news.yahoo.com/surfer-bethany-hamilton-speaks-against-184531872.html)
 - Feb 05 - [Daylight saving time: When will the clocks change this year?](https://news.yahoo.com/daylight-saving-time-clocks-change-184331020.html)
-- Feb 05 - [Charles Kimbrough, who played anchor in 'Murphy Brown,' dies](https://news.yahoo.com/charles-kimbrough-played-anchor-murphy-184258794.html)
-- Feb 05 - [CBS News pressed Sen. Ted Cruz on why he's running for reelection after he introduced a bill limiting senators to 2 terms in office: 'Why aren't you holding yourself to that standard?'](https://news.yahoo.com/cbs-news-pressed-sen-ted-182049510.html)
-- Feb 05 - [Aramark apologizes for 'unintentional insensitivity' after serving students chicken and watermelon on the first day of Black History Month](https://news.yahoo.com/aramark-apologizes-unintentional-insensitivity-serving-173016987.html)
 <!-- feed end -->
