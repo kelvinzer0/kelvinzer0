@@ -58,5 +58,5 @@
 - Feb 05 - [The Bengals won because they trusted their QB. The Chiefs put theirs on the sideline](https://news.yahoo.com/bengals-won-because-trusted-qb-110000250.html)
 - Feb 05 - [I've made $630,000 in 2 years as a 55-year-old OnlyFans model. It means I can give my son a better life and save for his college fund.](https://news.yahoo.com/ive-made-630-000-2-104500351.html)
 - Feb 05 - [I took the trip of a lifetime to New Zealand, and nearly half a year later, I can't stop thinking about 7 things that impressed me](https://news.yahoo.com/took-trip-lifetime-zealand-nearly-103100821.html)
-- Feb 05 - [Former Israeli PM: Putin promised not to kill Zelenskyy](https://news.yahoo.com/former-israeli-pm-putin-promised-074150900.html)
+- Feb 05 - ['I deserve to be let home,' Sarah Jo Pender said. The man who prosecuted her agrees.](https://news.yahoo.com/deserve-let-home-sarah-jo-100507382.html)
 <!-- feed end -->
