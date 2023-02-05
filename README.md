@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 05 - [2 abducted Missouri children found in a Florida supermarket](https://news.yahoo.com/2-abducted-missouri-children-found-153016467.html)
+- Feb 05 - [Interior-design experts share 12 kitchen trends they think you'll regret in a few years](https://news.yahoo.com/interior-design-experts-share-12-151200669.html)
 - Feb 05 - [An ex-Romney presidential campaign strategist says Nikki Haley 'embodies the collapse' of the Republican Party](https://news.yahoo.com/ex-romney-presidential-campaign-strategist-141404455.html)
 - Feb 05 - [Woman who 'took Prince Harry's virginity' says he could have warned her before publishing Spare](https://news.yahoo.com/woman-took-prince-harrys-virginity-132537173.html)
-- Feb 05 - [I'm a former cruise director. Here are 9 big mistakes I see first-time passengers make.](https://news.yahoo.com/im-former-cruise-director-9-122100877.html)
-- Feb 05 - [Woman who killed Netflix's 'Dirty John' held his head 'like a zombie,' stabbed him through the eye](https://news.yahoo.com/woman-killed-netflixs-dirty-john-113043604.html)
-- Feb 05 - [Skull-waving neo-Nazi Russian mercenary gets shot in head in execution-style attack](https://news.yahoo.com/skull-waving-neo-nazi-russian-111700163.html)
+- Feb 05 - [Brain teaser: Can you find 3 cats hidden in a sea of penguins?](https://news.yahoo.com/brain-teaser-3-cats-hidden-130046387.html)
 <!-- feed end -->
