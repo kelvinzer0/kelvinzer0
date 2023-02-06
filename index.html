@@ -1,0 +1,66 @@
+<!DOCTYPE html><html lang="en"><head>
+    <meta charset="utf-8">
+    <title>Kelvinzer0</title>
+    <base href="/">
+    <meta name="viewport" content="width=device-width, initial-scale=1">
+    <link rel="icon" type="image/x-icon" href="favicon.ico">
+    <link rel="stylesheet" href="https://cdnjs.cloudflare.com/ajax/libs/font-awesome/6.2.1/css/all.min.css">
+    <style>
+        @import url('https://fonts.googleapis.com/css2?family=Poppins&display=swap');
+        html {
+            -webkit-tap-highlight-color: transparent;
+            overflow-x: hidden;
+        }
+        
+        body {
+            margin: 0;
+            font-family: 'Poppins', sans-serif;
+            overflow-x: hidden;
+        }
+    </style>
+<link rel="stylesheet" href="styles.9c99bd8cd72a4783.css" media="print" onload="this.media='all'"><noscript><link rel="stylesheet" href="styles.9c99bd8cd72a4783.css"></noscript></head>
+
+<body>
+    <app-root></app-root>
+<script src="runtime.e8aa58ed72a66f90.js" type="module"></script><script src="polyfills.c317d359dd336177.js" type="module"></script><script src="main.9a2806aea6d517f2.js" type="module"></script>
+<script>
+    function toggleMenu() {
+        var navLinks = document.getElementById("nav-links");
+        var navLinksli = document.querySelectorAll("#nav-links>li");
+        var navLinkslia = document.querySelectorAll("#nav-links>li>a");
+        if (navLinks.style.display === "block") {
+            navLinks.style.display = "none";
+        } else {
+            navLinks.style.display = "block";
+            navLinks.style.width = "100%";
+            navLinks.style.borderRadius = "8px";
+            navLinks.style.background = "purple";
+            navLinks.style.padding = "4px";
+            navLinks.style.borderTopStyle = "solid";
+            navLinks.style.borderTopWidth = "8px";
+            navLinks.style.borderTopColor = "white";
+
+
+            navLinksli.forEach(li => {
+                li.style.margin = "10px"
+            });
+
+
+
+            navLinkslia.forEach(lia => {
+                lia.style.fontSize = "18px";
+                lia.style.color = "white";
+                lia.style.background = "transparent";
+
+                lia.style.borderStyle = "solid";
+                lia.style.borderWidth = "2px";
+                lia.style.borderColor = "white";
+
+
+            });
+
+        }
+    }
+</script>
+
+</body></html>
