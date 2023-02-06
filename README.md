@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 06 - [Selena Gomez Shared A Completely Unfiltered Pic On Instagram, And It Was So Refreshing To See](https://news.yahoo.com/selena-gomez-shared-completely-unfiltered-042802426.html)
-- Feb 06 - [Powerful quake kills at least 195 people in Turkey, Syria](https://news.yahoo.com/7-8-magnitude-earthquake-shakes-015627663.html)
-- Feb 06 - [Taylor Swift politely tells a Grammys photographer to calm down after he yells at a publicist to get out of his shot](https://news.yahoo.com/taylor-swift-politely-tells-grammys-013935757.html)
-- Feb 06 - [Host Trevor Noah kicked off the Grammys — by formally introducing Adele and the Rock?](https://news.yahoo.com/trevor-noah-kicked-off-2023-012325073.html)
-- Feb 06 - [One YouTuber makes $650,000 a year recording himself crushing everything from PlayStation consoles to human teeth. Say hello to the estimated $165 million destructo-economy.](https://news.yahoo.com/one-youtuber-makes-650-000-011027013.html)
+- Feb 06 - [ABC anchor calls out Sen. Marco Rubio during tense exchange over Chinese spy balloon: 'This happened 3 times under the previous president'](https://news.yahoo.com/abc-anchor-calls-sen-marco-052538627.html)
+- Feb 06 - [17 Actors Who Lied, Schemed, And Gambled To Land A Role](https://news.yahoo.com/17-actors-lied-schemed-gambled-222349611.html)
+- Feb 06 - [Ben Affleck Looking Bored At The Grammys Wins Meme Of The Night](https://news.yahoo.com/ben-affleck-looking-bored-grammys-043123826.html)
+- Feb 06 - [The-Dream Says ‘N****s Be On CP Time’ With Beyoncé Stuck In Traffic During First 2023 Grammy Speech](https://news.yahoo.com/dream-says-n-cp-time-032203040.html)
+- Feb 06 - [No One Wanted Trevor Noah to Talk to Them at the Grammys](https://news.yahoo.com/no-one-wanted-trevor-noah-021358793.html)
 <!-- feed end -->
