@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 06 - [Robert Kraft on Tom Brady's retirement: I think he decided it was best for him to move on](https://news.yahoo.com/robert-kraft-tom-bradys-retirement-163942184.html)
-- Feb 06 - [Earthquake death toll climbs in Turkey and Syria](https://news.yahoo.com/earthquake-death-toll-climbs-turkey-163708938.html)
-- Feb 06 - ['SNL' cast can't hold it together during wild dinner skit: 'There were no survivors'](https://news.yahoo.com/snl-cast-cant-hold-together-162444971.html)
-- Feb 06 - [3 US tourists stabbed in popular Puerto Rican neighborhood](https://news.yahoo.com/3-us-tourists-stabbed-popular-161830594.html)
-- Feb 06 - [Harry Styles Has Sparked A Debate About White Privilege After Saying “This Doesn’t Happen To People Like Me Very Often” While Accepting Album Of The Year At The Grammys](https://news.yahoo.com/harry-styles-sparked-debate-white-155907910.html)
+- Feb 06 - [Libby Murdaugh’s caretaker saw Alex night of murders for ’20 minutes’, but he said ‘30 to 40’](https://news.yahoo.com/libby-murdaugh-caretaker-saw-alex-183957216.html)
+- Feb 06 - [Quavo And Offset Had A Physical Altercation Backstage At The Grammys Before Takeoff Tribute: Report](https://news.yahoo.com/quavo-offset-had-physical-altercation-181747300.html)
+- Feb 06 - [Greene calls for probe into why Trump was unaware of previous Chinese balloons](https://news.yahoo.com/greene-calls-probe-why-trump-181105408.html)
+- Feb 06 - [Storm forming in Texas could be severe; heavy snow possible in Washington: Monday weather updates](https://news.yahoo.com/storm-forming-texas-could-severe-114512804.html)
+- Feb 06 - [‘Umm, what?’ Price of this home listed in California has people questioning everything](https://news.yahoo.com/umm-price-home-listed-california-173829654.html)
 <!-- feed end -->
