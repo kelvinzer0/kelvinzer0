@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 06 - [Super Bowl draws epic air show of private planes to Phoenix](https://news.yahoo.com/super-bowl-draws-epic-air-150845882.html)
-- Feb 06 - [Chiefs’ coaching staff reportedly had changes made to the team hotel in Arizona](https://news.yahoo.com/chiefs-coaching-staff-reportedly-had-145723277.html)
-- Feb 06 - [Jaromír Jágr scores his record 1,099th goal at almost 51](https://news.yahoo.com/jarom-r-j-gr-scores-144808039.html)
-- Feb 06 - [He camel, he saw, he conquered, as indignant mammal kills brash Russian](https://news.yahoo.com/camel-saw-conquered-indignant-mammal-143000813.html)
-- Feb 06 - [The remote workers have left, but the housing havoc they created remains](https://news.yahoo.com/remote-workers-left-housing-havoc-140000036.html)
+- Feb 06 - [Robert Kraft on Tom Brady's retirement: I think he decided it was best for him to move on](https://news.yahoo.com/robert-kraft-tom-bradys-retirement-163942184.html)
+- Feb 06 - [Earthquake death toll climbs in Turkey and Syria](https://news.yahoo.com/earthquake-death-toll-climbs-turkey-163708938.html)
+- Feb 06 - ['SNL' cast can't hold it together during wild dinner skit: 'There were no survivors'](https://news.yahoo.com/snl-cast-cant-hold-together-162444971.html)
+- Feb 06 - [3 US tourists stabbed in popular Puerto Rican neighborhood](https://news.yahoo.com/3-us-tourists-stabbed-popular-161830594.html)
+- Feb 06 - [Harry Styles Has Sparked A Debate About White Privilege After Saying “This Doesn’t Happen To People Like Me Very Often” While Accepting Album Of The Year At The Grammys](https://news.yahoo.com/harry-styles-sparked-debate-white-155907910.html)
 <!-- feed end -->
