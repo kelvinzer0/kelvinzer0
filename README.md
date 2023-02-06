@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 06 - [Powerful 7.8 quake knocks down buildings in Turkey, Syria](https://news.yahoo.com/7-8-magnitude-earthquake-shakes-015627663.html)
+- Feb 06 - [Selena Gomez Shared A Completely Unfiltered Pic On Instagram, And It Was So Refreshing To See](https://news.yahoo.com/selena-gomez-shared-completely-unfiltered-042802426.html)
+- Feb 06 - [Powerful quake kills at least 195 people in Turkey, Syria](https://news.yahoo.com/7-8-magnitude-earthquake-shakes-015627663.html)
 - Feb 06 - [Taylor Swift politely tells a Grammys photographer to calm down after he yells at a publicist to get out of his shot](https://news.yahoo.com/taylor-swift-politely-tells-grammys-013935757.html)
 - Feb 06 - [Host Trevor Noah kicked off the Grammys — by formally introducing Adele and the Rock?](https://news.yahoo.com/trevor-noah-kicked-off-2023-012325073.html)
 - Feb 06 - [One YouTuber makes $650,000 a year recording himself crushing everything from PlayStation consoles to human teeth. Say hello to the estimated $165 million destructo-economy.](https://news.yahoo.com/one-youtuber-makes-650-000-011027013.html)
-- Feb 06 - [New York City police arrest 15-year-old girl in connection to deadly Bronx fire: police](https://news.yahoo.com/york-city-police-arrest-15-005932270.html)
 <!-- feed end -->
