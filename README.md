@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 06 - [Libby Murdaugh’s caretaker saw Alex night of murders for ’20 minutes’, but he said ‘30 to 40’](https://news.yahoo.com/libby-murdaugh-caretaker-saw-alex-183957216.html)
-- Feb 06 - [Quavo And Offset Had A Physical Altercation Backstage At The Grammys Before Takeoff Tribute: Report](https://news.yahoo.com/quavo-offset-had-physical-altercation-181747300.html)
-- Feb 06 - [Greene calls for probe into why Trump was unaware of previous Chinese balloons](https://news.yahoo.com/greene-calls-probe-why-trump-181105408.html)
+- Feb 06 - [Charles Barkley is critical of Kyrie Irving, trade to Dallas Mavericks](https://news.yahoo.com/charles-barkley-critical-kyrie-irving-193917854.html)
+- Feb 06 - [LeBron's Miami era, as told by teammate Shane Battier](https://news.yahoo.com/lebrons-miami-era-told-teammate-192912088.html)
+- Feb 06 - [Mary Miller to skip Biden’s State of the Union](https://news.yahoo.com/mary-miller-skip-biden-state-192026239.html)
 - Feb 06 - [Storm forming in Texas could be severe; heavy snow possible in Washington: Monday weather updates](https://news.yahoo.com/storm-forming-texas-could-severe-114512804.html)
-- Feb 06 - [‘Umm, what?’ Price of this home listed in California has people questioning everything](https://news.yahoo.com/umm-price-home-listed-california-173829654.html)
+- Feb 06 - [Libby Murdaugh’s caretaker saw Alex night of murders for ’20 minutes’, but he said ‘30 to 40’](https://news.yahoo.com/libby-murdaugh-caretaker-saw-alex-183957216.html)
 <!-- feed end -->
