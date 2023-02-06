@@ -55,8 +55,8 @@
 
 <!-- feed start -->
 - Feb 06 - [Bad Bunny Performance Has Fans Calling Grammy Awards 'Racist' And 'Ignorant'](https://news.yahoo.com/bad-bunny-performance-fans-calling-115533483.html)
+- Feb 06 - [Family of 3 found dead in apparent suicide pact were 'hell-bent' on Trump winning, thought it could be 'the end' if he lost: reports](https://news.yahoo.com/family-3-found-dead-apparent-115235690.html)
+- Feb 06 - [Barbra Streisand asked Robert Redford to do 'take after take' of sex scene in 'The Way We Were,' book claims](https://news.yahoo.com/barbra-streisand-asked-robert-redford-110025404.html)
 - Feb 06 - [Beijing's response to the US shooting down its balloon has been muted. It might be China's way of preparing for a future in which the roles are reversed, says international law expert.](https://news.yahoo.com/beijings-response-us-shooting-down-090831911.html)
 - Feb 06 - [As Tom Brady retires, Gisele feels empowered: Her 'potential to return to stardom never got destroyed'](https://news.yahoo.com/tom-brady-retires-gisele-feels-080042238.html)
-- Feb 06 - [ABC anchor calls out Sen. Marco Rubio during tense exchange over Chinese spy balloon: 'This happened 3 times under the previous president'](https://news.yahoo.com/abc-anchor-calls-sen-marco-052538627.html)
-- Feb 06 - [The Best, Worst, and Most Shocking Moments of the 2023 Grammys](https://news.yahoo.com/best-worst-most-shocking-moments-051047654.html)
 <!-- feed end -->
