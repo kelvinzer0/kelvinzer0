@@ -2,6 +2,7 @@
 <h3 align="center">A passionate backend developer from Indonesia</h3>
 <p align="left"> <img src=https://komarev.com/ghpvc/?username=kelvinzer0 alt=kelvinzer0/> </p>
 
+https://kelvinzer0.github.io
 <h3 align="left">Connect with me:</h3>
 <p align="left">
     <a href="https://dev.to/kelvinzer0" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/dev-dot-to.svg" alt="kelvinzer0" height="30" width="40" /></a>
@@ -54,9 +55,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 06 - [Storm forming in Texas could be severe; heavy snow possible in Washington: Monday weather updates](https://news.yahoo.com/storm-forming-texas-could-severe-114512804.html)
-- Feb 06 - [‘Umm, what?’ Price of this home listed in California has people questioning everything](https://news.yahoo.com/umm-price-home-listed-california-173829654.html)
-- Feb 06 - [Purdue stays No. 1 in AP Top 25; NC State in at No. 22](https://news.yahoo.com/purdue-stays-no-1-ap-170502040.html)
-- Feb 06 - [Map shows which team each state is rooting for in this year's Super Bowl](https://news.yahoo.com/map-shows-team-state-rooting-170109796.html)
-- Feb 06 - [Mississippi lawmaker sparks outrage for racist meme on suspected Chinese spy balloon](https://news.yahoo.com/mississippi-lawmaker-sparks-outrage-racist-163900436.html)
+- Feb 06 - [Robert Kraft on Tom Brady's retirement: I think he decided it was best for him to move on](https://news.yahoo.com/robert-kraft-tom-bradys-retirement-163942184.html)
+- Feb 06 - [Earthquake death toll climbs in Turkey and Syria](https://news.yahoo.com/earthquake-death-toll-climbs-turkey-163708938.html)
+- Feb 06 - ['SNL' cast can't hold it together during wild dinner skit: 'There were no survivors'](https://news.yahoo.com/snl-cast-cant-hold-together-162444971.html)
+- Feb 06 - [3 US tourists stabbed in popular Puerto Rican neighborhood](https://news.yahoo.com/3-us-tourists-stabbed-popular-161830594.html)
+- Feb 06 - [Harry Styles Has Sparked A Debate About White Privilege After Saying “This Doesn’t Happen To People Like Me Very Often” While Accepting Album Of The Year At The Grammys](https://news.yahoo.com/harry-styles-sparked-debate-white-155907910.html)
 <!-- feed end -->
