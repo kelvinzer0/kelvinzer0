@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 06 - [If You Can Name Every Single One Of Pedro Pascal's Most Famous Characters, You Might Actually Be His Biggest Fan](https://news.yahoo.com/name-every-single-one-pedro-223612160.html)
 - Feb 05 - [People Are Feeling Red-Faced And Downright Exposed After This Interior Designer Called Out 3 Of The Worst Ways To Decorate Your Home](https://news.yahoo.com/people-feeling-red-faced-downright-213451287.html)
 - Feb 05 - [Trump Jr. Shares Chinese Balloon Joke That His Dad Might Not Be Too Happy About](https://news.yahoo.com/trump-jr-shares-chinese-balloon-221155349.html)
-- Feb 05 - [Chris Christie says Biden is 'not capable of running a traditional American race' in 2024: 'He's old. He's boring.'](https://news.yahoo.com/chris-christie-says-biden-not-212709116.html)
+- Feb 05 - [Trump, Christie exchange fire after gloomy 2024 prediction](https://news.yahoo.com/trump-christie-exchange-fire-gloomy-215101237.html)
 - Feb 05 - [Ride at Iowa amusement park where boy died will never reopen](https://news.yahoo.com/ride-iowa-amusement-park-where-211519733.html)
-- Feb 05 - [Dallas Mavericks will regret this one; trading for Kyrie Irving is a desperate move](https://news.yahoo.com/dallas-mavericks-regret-one-trading-204848675.html)
 <!-- feed end -->
