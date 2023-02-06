@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 06 - [The remote workers have left, but the housing havoc they created remains](https://news.yahoo.com/remote-workers-left-housing-havoc-140000036.html)
 - Feb 06 - [‘Ugly fish’ caught in Vermont pond ignites debate. ‘Like it came out of an acid bath’](https://news.yahoo.com/ugly-fish-caught-vermont-pond-130931293.html)
-- Feb 06 - [North Korean leader Kim Jong-un goes missing ahead of military parade](https://news.yahoo.com/north-korean-leader-kim-jong-130725648.html)
 - Feb 06 - [An Etsy customer's refund request for a broken $200 plastic cup spiraled into a furious exchange that went viral on TikTok](https://news.yahoo.com/etsy-customers-refund-request-broken-130554618.html)
-- Feb 06 - [National Enquirer, caught in 'catch-and-kill' scandal, sold](https://news.yahoo.com/national-enquirer-ensnared-catch-kill-124727030.html)
+- Feb 06 - [Storm forming in Texas could be severe; magnitude 3.8 earthquake hits Buffalo area: Monday weather updates](https://news.yahoo.com/storm-forming-texas-could-severe-114512804.html)
 - Feb 06 - [Bad Bunny Performance Has Fans Calling Grammy Awards 'Racist' And 'Ignorant'](https://news.yahoo.com/bad-bunny-performance-fans-calling-115533483.html)
 <!-- feed end -->
