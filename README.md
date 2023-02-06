@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 06 - [‘Ugly fish’ caught in Vermont pond ignites debate. ‘Like it came out of an acid bath’](https://news.yahoo.com/ugly-fish-caught-vermont-pond-130931293.html)
+- Feb 06 - [North Korean leader Kim Jong-un goes missing ahead of military parade](https://news.yahoo.com/north-korean-leader-kim-jong-130725648.html)
+- Feb 06 - [An Etsy customer's refund request for a broken $200 plastic cup spiraled into a furious exchange that went viral on TikTok](https://news.yahoo.com/etsy-customers-refund-request-broken-130554618.html)
+- Feb 06 - [National Enquirer, caught in 'catch-and-kill' scandal, sold](https://news.yahoo.com/national-enquirer-ensnared-catch-kill-124727030.html)
 - Feb 06 - [Bad Bunny Performance Has Fans Calling Grammy Awards 'Racist' And 'Ignorant'](https://news.yahoo.com/bad-bunny-performance-fans-calling-115533483.html)
-- Feb 06 - [Family of 3 found dead in apparent suicide pact were 'hell-bent' on Trump winning, thought it could be 'the end' if he lost: reports](https://news.yahoo.com/family-3-found-dead-apparent-115235690.html)
-- Feb 06 - [Barbra Streisand asked Robert Redford to do 'take after take' of sex scene in 'The Way We Were,' book claims](https://news.yahoo.com/barbra-streisand-asked-robert-redford-110025404.html)
-- Feb 06 - [Beijing's response to the US shooting down its balloon has been muted. It might be China's way of preparing for a future in which the roles are reversed, says international law expert.](https://news.yahoo.com/beijings-response-us-shooting-down-090831911.html)
-- Feb 06 - [As Tom Brady retires, Gisele feels empowered: Her 'potential to return to stardom never got destroyed'](https://news.yahoo.com/tom-brady-retires-gisele-feels-080042238.html)
 <!-- feed end -->
