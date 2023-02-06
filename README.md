@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 06 - [Taylor Swift politely tells a Grammys photographer to calm down after he yells at a publicist to get out of his shot](https://news.yahoo.com/taylor-swift-politely-tells-grammys-013935757.html)
 - Feb 06 - [If You Can Name Every Single One Of Pedro Pascal's Most Famous Characters, You Might Actually Be His Biggest Fan](https://news.yahoo.com/name-every-single-one-pedro-223612160.html)
-- Feb 05 - [People Are Feeling Red-Faced And Downright Exposed After This Interior Designer Called Out 3 Of The Worst Ways To Decorate Your Home](https://news.yahoo.com/people-feeling-red-faced-downright-213451287.html)
-- Feb 05 - [Trump Jr. Shares Chinese Balloon Joke That His Dad Might Not Be Too Happy About](https://news.yahoo.com/trump-jr-shares-chinese-balloon-221155349.html)
-- Feb 05 - [Trump, Christie exchange fire after gloomy 2024 prediction](https://news.yahoo.com/trump-christie-exchange-fire-gloomy-215101237.html)
-- Feb 05 - [Ride at Iowa amusement park where boy died will never reopen](https://news.yahoo.com/ride-iowa-amusement-park-where-211519733.html)
+- Feb 06 - [One YouTuber makes $650,000 a year recording himself crushing everything from PlayStation consoles to human teeth. Say hello to the estimated $165 million destructo-economy.](https://news.yahoo.com/one-youtuber-makes-650-000-011027013.html)
+- Feb 06 - [FACT FOCUS: Egg shortage breeds chicken-feed conspiracies](https://news.yahoo.com/fact-focus-egg-shortage-breeds-001926344.html)
+- Feb 06 - [Rising seas will force North Carolina beach towns to move. The idea of leaving isn’t easy.](https://news.yahoo.com/rising-seas-force-north-carolina-000158721.html)
 <!-- feed end -->
