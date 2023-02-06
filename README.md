@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 06 - [Here Are 16 Of The Best, Most Hilarious Tweets From The 2023 Grammy Awards](https://news.yahoo.com/16-best-most-hilarious-tweets-100154800.html)
+- Feb 06 - [The Grammys ended in controversy, again. Here’s what to know](https://news.yahoo.com/grammys-ended-controversy-again-know-220120483.html)
+- Feb 06 - [Boy who shot teacher allegedly tried to choke another](https://news.yahoo.com/boy-shot-teacher-allegedly-tried-212838399.html)
+- Feb 06 - [I’m Obsessed With The Theory That Ben Affleck And Jennifer Lopez Hate Each Other](https://news.yahoo.com/m-obsessed-theory-ben-affleck-211003411.html)
 - Feb 06 - [Arizona rancher held on $1M bond in killing near US border](https://news.yahoo.com/arizona-rancher-held-1m-bond-203257055.html)
 - Feb 06 - [Officials: Plane carrying Musharraf's body lands in Pakistan](https://news.yahoo.com/officials-plane-carrying-musharrafs-body-200253641.html)
-- Feb 06 - [Woman who survived cardiac arrest at 24 shares the warning sign she dismissed](https://news.yahoo.com/woman-survived-cardiac-arrest-24-200039487.html)
-- Feb 06 - [LeBron's Miami era, as told by teammate Shane Battier](https://news.yahoo.com/lebrons-miami-era-told-teammate-192912088.html)
 <!-- feed end -->
