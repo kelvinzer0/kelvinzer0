@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 06 - [Actor Jim Carrey lists surreal ranch home in California. Check out all its amenities](https://news.yahoo.com/actor-jim-carrey-lists-surreal-223648431.html)
 - Feb 06 - [The Grammys ended in controversy, again. Here’s what to know](https://news.yahoo.com/grammys-ended-controversy-again-know-220120483.html)
-- Feb 06 - [Boy who shot teacher allegedly tried to choke another](https://news.yahoo.com/boy-shot-teacher-allegedly-tried-212838399.html)
-- Feb 06 - [I’m Obsessed With The Theory That Ben Affleck And Jennifer Lopez Hate Each Other](https://news.yahoo.com/m-obsessed-theory-ben-affleck-211003411.html)
+- Feb 06 - [Column: Mike Pence, would-be president, has a plan to kill Social Security. It will cost you](https://news.yahoo.com/column-mike-pence-president-plan-213549823.html)
+- Feb 06 - [After US pops 1st balloon, China admits the 2nd one floating over Latin America is also theirs and gave the same excuse that it was just lost](https://news.yahoo.com/us-pops-1st-balloon-china-204658953.html)
 - Feb 06 - [Arizona rancher held on $1M bond in killing near US border](https://news.yahoo.com/arizona-rancher-held-1m-bond-203257055.html)
-- Feb 06 - [Officials: Plane carrying Musharraf's body lands in Pakistan](https://news.yahoo.com/officials-plane-carrying-musharrafs-body-200253641.html)
 <!-- feed end -->
