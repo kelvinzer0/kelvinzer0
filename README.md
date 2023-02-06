@@ -54,9 +54,9 @@
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 06 - [Beijing's response to the US shooting down its balloon has been muted. It might be China's way of preparing for a future in which the roles are reversed, says international law expert.](https://news.yahoo.com/beijings-response-us-shooting-down-090831911.html)
 - Feb 06 - [As Tom Brady retires, Gisele feels empowered: Her 'potential to return to stardom never got destroyed'](https://news.yahoo.com/tom-brady-retires-gisele-feels-080042238.html)
 - Feb 06 - [ABC anchor calls out Sen. Marco Rubio during tense exchange over Chinese spy balloon: 'This happened 3 times under the previous president'](https://news.yahoo.com/abc-anchor-calls-sen-marco-052538627.html)
 - Feb 06 - [The Best, Worst, and Most Shocking Moments of the 2023 Grammys](https://news.yahoo.com/best-worst-most-shocking-moments-051047654.html)
 - Feb 06 - [Russia prepares large-scale offensive in next 10 days](https://news.yahoo.com/russia-prepares-large-scale-offensive-033424903.html)
-- Feb 06 - [No One Wanted Trevor Noah to Talk to Them at the Grammys](https://news.yahoo.com/no-one-wanted-trevor-noah-021358793.html)
 <!-- feed end -->
