@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 07 - [State Department calls out China for knowingly sending spy balloon over the United States](https://news.yahoo.com/state-department-calls-china-knowingly-134757976.html)
-- Feb 07 - [Ukraine war latest: Russia suffers 'deadliest 24 hours'](https://news.yahoo.com/russia-pouring-troops-eastern-ukraine-074310083.html)
+- Feb 07 - [Ukraine war: Russia suffers 'deadliest 24 hours'](https://news.yahoo.com/russia-pouring-troops-eastern-ukraine-074310083.html)
+- Feb 07 - [Widows of dead soldiers from Kremlin’s sham republics only get fur coats as compensation](https://news.yahoo.com/widows-dead-soldiers-kremlin-sham-140000048.html)
+- Feb 07 - [Taylor Swift Looked So Confused When Trevor Noah Asked Her Fans To Help Lower The Cost Of Eggs And People Think It’s A Sign Of How “Out Of Touch” She Is](https://news.yahoo.com/taylor-swift-looked-confused-trevor-133622757.html)
+- Feb 07 - [Large numbers of Americans want a strong, rough, anti-democratic leader](https://news.yahoo.com/large-numbers-americans-want-strong-133349404.html)
 - Feb 07 - [A passenger's story about refusing to switch plane seats with a mom who wanted to sit with her teenage son has reignited TikTok's flight etiquette debate](https://news.yahoo.com/passengers-story-refusing-switch-plane-124642121.html)
-- Feb 07 - [Kim Jong Un abruptly reappears after 36 days out of the spotlight and orders North Korea to 'prepare for war'](https://news.yahoo.com/kim-jong-un-abruptly-reappears-121645221.html)
-- Feb 07 - [A 14-year-old thought she had 'butterflies' from dancing with a boy at winter formal. It was a heart attack.](https://news.yahoo.com/14-old-thought-she-had-103000657.html)
 <!-- feed end -->
