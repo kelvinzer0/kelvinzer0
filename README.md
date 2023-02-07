@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 07 - [Fans enraged over Manila airport staff seen giggling while frisking ENHYPEN members](https://news.yahoo.com/fans-enraged-over-manila-airport-173849125.html)
-- Feb 07 - [Shooting at Nebraska Target highlights gaps in gun laws](https://news.yahoo.com/shooting-nebraska-target-highlights-gaps-164559885.html)
-- Feb 07 - [Photos capture the moment US Navy sailors pulled the downed Chinese balloon out of the ocean](https://news.yahoo.com/photos-capture-moment-us-navy-164224405.html)
-- Feb 07 - [Travis Barker’s Daughter Responds To Criticism That She Uses ‘Black Girls As Props’ On TikTok](https://news.yahoo.com/travis-barker-daughter-responds-criticism-154205057.html)
-- Feb 07 - [I spent 74 hours on buses from Miami to Seattle, one of Greyhound's longest routes. Here's what the $250 trip was like.](https://news.yahoo.com/spent-74-hours-buses-miami-151658017.html)
+- Feb 07 - [Viral video shows woman asleep behind the wheel of a Tesla on California freeway](https://news.yahoo.com/viral-video-shows-woman-asleep-183528516.html)
+- Feb 07 - [Disney faces losing control of its kingdom with Florida bill](https://news.yahoo.com/disney-faces-losing-control-kingdom-183213767.html)
+- Feb 07 - [A fitness influencer is being dubbed a hero for calling out women who call out men in the gym — but some worry he's only fueling misogyny online](https://news.yahoo.com/fitness-influencer-being-dubbed-hero-182213758.html)
+- Feb 07 - [Top Putin Ally Says He ‘Will Not Hide’ Intention to Invade Poland Anymore](https://news.yahoo.com/top-putin-ally-says-not-180627963.html)
+- Feb 07 - [Cringey 23-Year-Old Mayor Quotes Steve Jobs to Defend His Trumpian Coup](https://news.yahoo.com/cringey-23-old-mayor-quotes-180220017.html)
 <!-- feed end -->
