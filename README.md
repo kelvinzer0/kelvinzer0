@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 07 - [Family confirms missing 74-year-old Florida Lyft driver dead](https://news.yahoo.com/family-confirms-missing-74-old-225043635.html)
+- Feb 07 - [Black '1870' pins to be worn by Congress members for State of the Union have deep significance](https://news.yahoo.com/black-1870-pins-to-be-worn-by-congress-members-for-state-of-the-union-have-deep-significance-223538448.html)
+- Feb 07 - [A major archaeological discovery was made on the Miami River. Was it kept ‘under wraps’?](https://news.yahoo.com/major-archaeological-discovery-made-miami-212341754.html)
 - Feb 07 - [China is mad at the US for blasting its suspected spy balloon, but a few years ago, state TV bragged its fighter pilots could shoot one down](https://news.yahoo.com/china-mad-us-blasting-suspected-192024810.html)
-- Feb 07 - [Trump rape case judge is losing patience with defense requests to delay: 'Things keep happening in this case involving your client'](https://news.yahoo.com/judge-loses-patience-trumps-lawyers-211935488.html)
-- Feb 07 - [These healthy lifestyle habits may cut risk of long COVID in half, Harvard study finds](https://news.yahoo.com/long-covid-healthy-lifestyle-habits-cut-risk-harvard-study-211219447.html)
-- Feb 07 - [Trump rips Club for Growth after he wasn’t invited to donor retreat](https://news.yahoo.com/trump-rips-club-growth-wasn-202831640.html)
-- Feb 07 - [Bill Gates says private jet use doesn’t conflict with his climate change philanthropy](https://news.yahoo.com/bill-gates-climate-change-private-jet-hypocrisy-194136562.html)
+- Feb 07 - [Trump rape case judge is losing patience with defense requests to delay: 'Things keep happening in this case involving your client'](https://news.yahoo.com/judge-loses-patience-trumps-lawyers-211935279.html)
 <!-- feed end -->
