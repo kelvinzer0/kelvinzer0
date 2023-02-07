@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 07 - [Kim Jong Un abruptly reappears after 36 days out of the spotlight and orders North Korea to 'prepare for war'](https://news.yahoo.com/kim-jong-un-abruptly-reappears-121645221.html)
 - Feb 07 - [A 14-year-old thought she had 'butterflies' from dancing with a boy at winter formal. It was a heart attack.](https://news.yahoo.com/14-old-thought-she-had-103000657.html)
 - Feb 07 - [Rep. Ted Lieu Bursts Newt Gingrich's Balloon In High-Flying Fact-Check](https://news.yahoo.com/rep-ted-lieu-bursts-gingrichs-094923082.html)
 - Feb 07 - [Ex-RNC Chair Michael Steele Rips 'Putz' Tucker Carlson After Racist Meltdown](https://news.yahoo.com/ex-rnc-chair-michael-steele-084018408.html)
 - Feb 07 - ['Deadly brew': Amid soaring crime, Memphis cops lowered bar](https://news.yahoo.com/deadly-brew-amid-soaring-crime-055518706.html)
-- Feb 07 - [‘Daily Show’ Guest Host Chelsea Handler Fact-Checks ‘Moron’ Marjorie Taylor Greene](https://news.yahoo.com/daily-show-guest-host-chelsea-035856029.html)
 <!-- feed end -->
