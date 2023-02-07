@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 07 - [Missy Elliott Was Super Drunk In The "Work It" Music Video, Plus 14 Other Juicy Facts About Women In Music](https://news.yahoo.com/missy-elliott-super-drunk-music-052505759.html)
+- Feb 07 - [Manhattan DA was 'weeks' away from filing criminal charges against Trump in 2020, when he was still president, former prosecutor says](https://news.yahoo.com/manhattan-da-weeks-away-filing-013653012.html)
 - Feb 07 - [Texas attorney shot by Cheney during 2006 hunting trip dies](https://news.yahoo.com/texas-attorney-shot-cheney-during-010850830.html)
 - Feb 06 - [Marjorie Taylor Greene Roasted For 'Unholy' Gripe About Sam Smith And Kim Petras](https://news.yahoo.com/marjorie-taylor-greene-roasted-unholy-234440746.html)
 - Feb 06 - [Wagner Group mercenary details Russian war tactics](https://news.yahoo.com/wagner-group-mercenary-details-russian-234400122.html)
