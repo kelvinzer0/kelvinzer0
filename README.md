@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 07 - [‘Daily Show’ Guest Host Chelsea Handler Fact-Checks ‘Moron’ Marjorie Taylor Greene](https://news.yahoo.com/daily-show-guest-host-chelsea-035856029.html)
+- Feb 07 - [Intruder breaches base of Air Force One, shot fired](https://news.yahoo.com/intruder-breaches-air-force-one-035036954.html)
 - Feb 07 - [Marvel's Simu Liu dedicates 'sensory room' at Warriors arena](https://news.yahoo.com/marvels-simu-liu-dedicates-sensory-034819991.html)
-- Feb 07 - [Manhattan DA was 'weeks' away from filing criminal charges against Trump in 2020, when he was still president, former prosecutor says](https://news.yahoo.com/manhattan-da-weeks-away-filing-013653012.html)
 - Feb 07 - [Texas attorney shot by Cheney during 2006 hunting trip dies](https://news.yahoo.com/texas-attorney-shot-cheney-during-010850830.html)
 - Feb 06 - [Wagner Group mercenary details Russian war tactics](https://news.yahoo.com/wagner-group-mercenary-details-russian-234400122.html)
 <!-- feed end -->
