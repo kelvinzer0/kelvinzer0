@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 07 - [Viral video shows woman asleep behind the wheel of a Tesla on California freeway](https://news.yahoo.com/viral-video-shows-woman-asleep-183528516.html)
-- Feb 07 - [Disney faces losing control of its kingdom with Florida bill](https://news.yahoo.com/disney-faces-losing-control-kingdom-183213767.html)
-- Feb 07 - [A fitness influencer is being dubbed a hero for calling out women who call out men in the gym — but some worry he's only fueling misogyny online](https://news.yahoo.com/fitness-influencer-being-dubbed-hero-182213758.html)
-- Feb 07 - [Top Putin Ally Says He ‘Will Not Hide’ Intention to Invade Poland Anymore](https://news.yahoo.com/top-putin-ally-says-not-180627963.html)
-- Feb 07 - [Cringey 23-Year-Old Mayor Quotes Steve Jobs to Defend His Trumpian Coup](https://news.yahoo.com/cringey-23-old-mayor-quotes-180220017.html)
+- Feb 07 - [Bill Gates says private jet use doesn’t conflict with climate change philanthropy](https://news.yahoo.com/bill-gates-climate-change-private-jet-hypocrisy-194136562.html)
+- Feb 07 - [12-year-old girl sues off-duty Kenosha officer, school district and city arguing her rights were violated when the officer knelt on her neck for more than 20 seconds](https://news.yahoo.com/12-old-girl-sues-off-225633417.html)
+- Feb 07 - [China is mad at the US for blasting its suspected spy balloon, but a few years ago, state TV bragged its fighter pilots could shoot one down](https://news.yahoo.com/china-mad-us-blasting-suspected-192024810.html)
+- Feb 07 - [Vladimir Putin is about to make shock gains](https://news.yahoo.com/vladimir-putin-shock-gains-190000881.html)
+- Feb 07 - [McCarthy warns Republicans not to misbehave at State of the Union, promises no 'childish games' like Pelosi's infamous speech tearing moment](https://news.yahoo.com/mccarthy-warns-republicans-not-misbehave-185600454.html)
 <!-- feed end -->
