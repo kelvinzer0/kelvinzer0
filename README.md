@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 06 - [Actor Jim Carrey lists surreal ranch home in California. Check out all its amenities](https://news.yahoo.com/actor-jim-carrey-lists-surreal-223648431.html)
-- Feb 06 - [The Grammys ended in controversy, again. Here’s what to know](https://news.yahoo.com/grammys-ended-controversy-again-know-220120483.html)
-- Feb 06 - [Column: Mike Pence, would-be president, has a plan to kill Social Security. It will cost you](https://news.yahoo.com/column-mike-pence-president-plan-213549823.html)
-- Feb 06 - [After US pops 1st balloon, China admits the 2nd one floating over Latin America is also theirs and gave the same excuse that it was just lost](https://news.yahoo.com/us-pops-1st-balloon-china-204658953.html)
-- Feb 06 - [Arizona rancher held on $1M bond in killing near US border](https://news.yahoo.com/arizona-rancher-held-1m-bond-203257055.html)
+- Feb 06 - [Marjorie Taylor Greene Roasted For 'Unholy' Gripe About Sam Smith And Kim Petras](https://news.yahoo.com/marjorie-taylor-greene-roasted-unholy-234440746.html)
+- Feb 06 - [Wagner Group mercenary details Russian war tactics](https://news.yahoo.com/wagner-group-mercenary-details-russian-234400122.html)
+- Feb 06 - [Beyoncé, the all-time leading Grammy winner, should never attend another Grammy Awards](https://news.yahoo.com/beyonc-time-leading-grammy-winner-234355190.html)
+- Feb 06 - [Ruins of 600-year-old convent in Spain hid much older secret — a three-toed footprint](https://news.yahoo.com/ruins-600-old-convent-spain-224643406.html)
+- Feb 06 - [Staten Island pimp trafficked 14-year-old girl, forced prostitutes to live naked in house with him: feds](https://news.yahoo.com/staten-island-pimp-trafficked-14-224000597.html)
 <!-- feed end -->
