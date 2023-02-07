@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 07 - [Missy Elliott Was Super Drunk In The "Work It" Music Video, Plus 14 Other Juicy Facts About Women In Music](https://news.yahoo.com/missy-elliott-super-drunk-music-052505759.html)
+- Feb 07 - [Texas attorney shot by Cheney during 2006 hunting trip dies](https://news.yahoo.com/texas-attorney-shot-cheney-during-010850830.html)
 - Feb 06 - [Marjorie Taylor Greene Roasted For 'Unholy' Gripe About Sam Smith And Kim Petras](https://news.yahoo.com/marjorie-taylor-greene-roasted-unholy-234440746.html)
 - Feb 06 - [Wagner Group mercenary details Russian war tactics](https://news.yahoo.com/wagner-group-mercenary-details-russian-234400122.html)
 - Feb 06 - [Beyoncé, the all-time leading Grammy winner, should never attend another Grammy Awards](https://news.yahoo.com/beyonc-time-leading-grammy-winner-234355190.html)
-- Feb 06 - [Ruins of 600-year-old convent in Spain hid much older secret — a three-toed footprint](https://news.yahoo.com/ruins-600-old-convent-spain-224643406.html)
-- Feb 06 - [Staten Island pimp trafficked 14-year-old girl, forced prostitutes to live naked in house with him: feds](https://news.yahoo.com/staten-island-pimp-trafficked-14-224000597.html)
 <!-- feed end -->
