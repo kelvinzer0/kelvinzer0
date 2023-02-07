@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 07 - [Eddie Izzard Recalls How She Shot Down A Heckler With 1 Tiny Word](https://news.yahoo.com/eddie-izzard-recalls-she-shot-153442347.html)
+- Feb 07 - [I spent 74 hours on buses from Miami to Seattle, one of Greyhound's longest routes. Here's what the $250 trip was like.](https://news.yahoo.com/spent-74-hours-buses-miami-151658017.html)
 - Feb 07 - [Ukraine war: Russia suffers 'deadliest 24 hours'](https://news.yahoo.com/russia-pouring-troops-eastern-ukraine-074310083.html)
-- Feb 07 - [Widows of dead soldiers from Kremlin’s sham republics only get fur coats as compensation](https://news.yahoo.com/widows-dead-soldiers-kremlin-sham-140000048.html)
 - Feb 07 - [Taylor Swift Looked So Confused When Trevor Noah Asked Her Fans To Help Lower The Cost Of Eggs And People Think It’s A Sign Of How “Out Of Touch” She Is](https://news.yahoo.com/taylor-swift-looked-confused-trevor-133622757.html)
 - Feb 07 - [Large numbers of Americans want a strong, rough, anti-democratic leader](https://news.yahoo.com/large-numbers-americans-want-strong-133349404.html)
-- Feb 07 - [A passenger's story about refusing to switch plane seats with a mom who wanted to sit with her teenage son has reignited TikTok's flight etiquette debate](https://news.yahoo.com/passengers-story-refusing-switch-plane-124642121.html)
 <!-- feed end -->
