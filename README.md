@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 07 - [Anna Kendrick says having the top USA TODAY Ad Meter commercial 'made me really happy'](https://news.yahoo.com/anna-kendrick-says-having-top-203514079.html)
-- Feb 07 - [After ticket flap, Springsteen's fan magazine shutting down](https://news.yahoo.com/ticket-flap-springsteens-fan-magazine-203547206.html)
+- Feb 07 - [China is mad at the US for blasting its suspected spy balloon, but a few years ago, state TV bragged its fighter pilots could shoot one down](https://news.yahoo.com/china-mad-us-blasting-suspected-192024810.html)
+- Feb 07 - [Trump rape case judge is losing patience with defense requests to delay: 'Things keep happening in this case involving your client'](https://news.yahoo.com/judge-loses-patience-trumps-lawyers-211935488.html)
+- Feb 07 - [These healthy lifestyle habits may cut risk of long COVID in half, Harvard study finds](https://news.yahoo.com/long-covid-healthy-lifestyle-habits-cut-risk-harvard-study-211219447.html)
+- Feb 07 - [Trump rips Club for Growth after he wasn’t invited to donor retreat](https://news.yahoo.com/trump-rips-club-growth-wasn-202831640.html)
 - Feb 07 - [Bill Gates says private jet use doesn’t conflict with his climate change philanthropy](https://news.yahoo.com/bill-gates-climate-change-private-jet-hypocrisy-194136562.html)
-- Feb 07 - [When schools are scared of Dr. Seuss, we've gone too far on race](https://news.yahoo.com/when-schools-are-scared-of-dr-seuss-weve-gone-too-far-on-race-193317599.html)
-- Feb 07 - [We asked 3 astrologers to predict the Super Bowl. They all had the same answer](https://news.yahoo.com/asked-3-astrologers-predict-super-193314284.html)
 <!-- feed end -->
