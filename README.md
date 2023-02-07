@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 07 - [‘Daily Show’ Guest Host Chelsea Handler Fact-Checks ‘Moron’ Marjorie Taylor Greene](https://news.yahoo.com/daily-show-guest-host-chelsea-035856029.html)
+- Feb 07 - [Ex-RNC Chair Michael Steele Rips 'Putz' Tucker Carlson After Racist Meltdown](https://news.yahoo.com/ex-rnc-chair-michael-steele-084018408.html)
+- Feb 07 - [Kerala: The transgender couple whose pregnancy photos went viral](https://news.yahoo.com/kerala-transgender-couple-whose-pregnancy-231002704.html)
+- Feb 07 - [Intruder breaches base of Air Force One, shot fired](https://news.yahoo.com/intruder-breaches-air-force-one-035036954.html)
 - Feb 07 - [Marvel's Simu Liu dedicates 'sensory room' at Warriors arena](https://news.yahoo.com/marvels-simu-liu-dedicates-sensory-034819991.html)
 - Feb 07 - [Texas attorney shot by Cheney during 2006 hunting trip dies](https://news.yahoo.com/texas-attorney-shot-cheney-during-010850830.html)
-- Feb 06 - [Wagner Group mercenary details Russian war tactics](https://news.yahoo.com/wagner-group-mercenary-details-russian-234400122.html)
-- Feb 06 - [Beyoncé, the all-time leading Grammy winner, should never attend another Grammy Awards](https://news.yahoo.com/beyonc-time-leading-grammy-winner-234355190.html)
 <!-- feed end -->
