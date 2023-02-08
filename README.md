@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 08 - [Former Twitter executives grilled by House Oversight over Hunter Biden laptop story](https://news.yahoo.com/former-twitter-executives-grilled-house-175822341.html)
+- Feb 08 - ['Losing him is going to be pretty big': Deebo Samuel on Jimmy Garoppolo](https://news.yahoo.com/losing-him-going-pretty-big-182936501.html)
+- Feb 08 - [‘My husband went out for a walk – and never came back’](https://news.yahoo.com/husband-went-walk-never-came-180000043.html)
+- Feb 08 - [House Speaker Kevin McCarthy admits Republicans ‘took bait’ and let Biden turn State of the Union heckling into political gold](https://news.yahoo.com/house-speaker-kevin-mccarthy-admits-175700436.html)
 - Feb 08 - [Neighbors heard ‘noises’ coming from a tree in Florida. Then they saw it was alive](https://news.yahoo.com/neighbors-heard-noises-coming-tree-173252692.html)
-- Feb 08 - [A man charged with beheading his ex-girlfriend in California now claims he did it out of self-defense](https://news.yahoo.com/man-charged-beheading-ex-girlfriend-171514853.html)
-- Feb 08 - [The US military didn't know if the missile that took out a Chinese spy balloon would work when an F-22 took the shot, commander says](https://news.yahoo.com/us-military-didnt-know-missile-162542911.html)
-- Feb 08 - [Dark Brandon shows up at State of the Union, mops the floor with lost Republicans](https://news.yahoo.com/dark-brandon-shows-state-union-051522138.html)
+- Feb 08 - [DeSantis says he won't fight with Trump over Truth Social photos with high schoolers: 'I don't spend my time trying to smear other Republicans'](https://news.yahoo.com/desantis-says-wont-fight-trump-171957572.html)
 <!-- feed end -->
