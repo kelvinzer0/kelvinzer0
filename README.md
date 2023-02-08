@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 08 - [Here Are All The Celebrity Looks From The 2023 Grammy Awards](https://news.yahoo.com/heres-complete-list-celebs-wore-073300168.html)
+- Feb 08 - [Donald Trump Gives 'Real State Of The Union' And Declares He's 'A Victim'](https://news.yahoo.com/donald-trump-gives-real-state-121923430.html)
 - Feb 08 - [US forces returning to Philippines to counter China threats](https://news.yahoo.com/us-forces-returning-philippines-counter-090133589.html)
 - Feb 08 - [Jill Biden kisses Kamala Harris' husband on the mouth](https://news.yahoo.com/jill-biden-kisses-kamala-harris-074611658.html)
 - Feb 08 - [Sarah Huckabee Sanders' 'Normal Or Crazy' Challenge Backfires Spectacularly](https://news.yahoo.com/sarah-huckabee-sanders-normal-crazy-073138695.html)
