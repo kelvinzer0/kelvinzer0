@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 08 - [Dark Brandon shows up at State of the Union, mops the floor with lost Republicans](https://news.yahoo.com/dark-brandon-shows-state-union-051522138.html)
+- Feb 08 - [Scott doubles down on sunsetting all federal programs after Biden’s jab](https://news.yahoo.com/scott-doubles-down-sunsetting-federal-155659465.html)
 - Feb 08 - [Prosecutor: Lindsay Clancy 'created the situation' to kill her 3 children](https://news.yahoo.com/prosecutor-lindsay-clancy-created-situation-210605647.html)
 - Feb 08 - [Abortion-rights activist who was body-shamed by Matt Gaetz confronted him at SOTU address and thanked him for helping her raise $2 million](https://news.yahoo.com/abortion-rights-activist-body-shamed-134932039.html)
 - Feb 08 - [Donald Trump Gives 'Real State Of The Union' And Declares He's 'A Victim'](https://news.yahoo.com/donald-trump-gives-real-state-121923430.html)
-- Feb 08 - [Amber Rose says she has already told her 9-year-old son about her OnlyFans account and once being a stripper: 'Mommy has to make money'](https://news.yahoo.com/amber-rose-says-she-already-120518429.html)
 <!-- feed end -->
