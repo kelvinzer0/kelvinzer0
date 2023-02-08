@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 08 - ['Losing him is going to be pretty big': Deebo Samuel on Jimmy Garoppolo](https://news.yahoo.com/losing-him-going-pretty-big-182936501.html)
+- Feb 08 - ['Dark Brandon' shows up at State of the Union, mops the floor with lost Republicans](https://news.yahoo.com/dark-brandon-shows-state-union-051522138.html)
+- Feb 08 - [Elizabeth Chambers says Armie Hammer was 'the worst' when they quarantined together in the Cayman Islands at the start of the COVID-19 pandemic](https://news.yahoo.com/elizabeth-chambers-says-armie-hammer-182420362.html)
+- Feb 08 - [‘Where’d You Go to Medical School?’: GOP Rep Rips Ex-Twitter Official for Censoring Stanford Doc’s Covid Opinions](https://news.yahoo.com/where-d-medical-school-gop-181407823.html)
 - Feb 08 - [‘My husband went out for a walk – and never came back’](https://news.yahoo.com/husband-went-walk-never-came-180000043.html)
 - Feb 08 - [House Speaker Kevin McCarthy admits Republicans ‘took bait’ and let Biden turn State of the Union heckling into political gold](https://news.yahoo.com/house-speaker-kevin-mccarthy-admits-175700436.html)
-- Feb 08 - [Neighbors heard ‘noises’ coming from a tree in Florida. Then they saw it was alive](https://news.yahoo.com/neighbors-heard-noises-coming-tree-173252692.html)
-- Feb 08 - [DeSantis says he won't fight with Trump over Truth Social photos with high schoolers: 'I don't spend my time trying to smear other Republicans'](https://news.yahoo.com/desantis-says-wont-fight-trump-171957572.html)
 <!-- feed end -->
