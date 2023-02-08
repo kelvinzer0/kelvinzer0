@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 08 - [False idols, money on fire, hate-filled children: Sarah Huckabee Sanders paints bleak picture of Biden's America](https://news.yahoo.com/false-idols-money-fire-hate-031431144.html)
 - Feb 08 - [Dark Brandon shows up at State of the Union, mops the floor with lost Republicans](https://news.yahoo.com/dark-brandon-shows-state-union-051522138.html)
-- Feb 08 - [Gov. Sanders slams Biden for 'woke fantasies'](https://news.yahoo.com/gov-sanders-slams-biden-woke-053513115.html)
 - Feb 08 - [Republican response to Biden State of the Union speech speeds decline of civility in politics](https://news.yahoo.com/biden-state-of-the-union-speech-republican-response-decline-civility-politics-045803818.html)
 - Feb 08 - [Kevin McCarthy Repeatedly Shushes Marjorie Taylor Greene During State Of The Union Speech](https://news.yahoo.com/kevin-mccarthy-repeatedly-shushes-marjorie-044738208.html)
 - Feb 08 - [12-year-old girl sues off-duty Kenosha officer, school district and city arguing her rights were violated when the officer knelt on her neck for more than 20 seconds](https://news.yahoo.com/12-old-girl-sues-off-225633417.html)
