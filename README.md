@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 08 - [12-year-old girl sues off-duty Kenosha officer, school district and city arguing her rights were violated when the officer knelt on her neck for more than 20 seconds](https://news.yahoo.com/12-old-girl-sues-off-225633417.html)
 - Feb 08 - [Biden, Republicans engage in fiery debt ceiling back-and-forth during State of the Union address](https://news.yahoo.com/biden-republicans-engage-in-fiery-debt-ceiling-back-and-forth-during-state-of-the-union-address-031518032.html)
 - Feb 08 - [False idols, money on fire, hate-filled children: Sarah Huckabee Sanders paints bleak picture of Biden's America](https://news.yahoo.com/false-idols-money-fire-hate-031431144.html)
 - Feb 08 - [Marjorie Taylor Greene Shouts 'Liar' At Joe Biden During State Of The Union](https://news.yahoo.com/majorie-taylor-greene-shouts-liar-031339536.html)
 - Feb 08 - ['A Sick Puppy': Mitt Romney And George Santos Get Into Tense Exchange At State Of The Union](https://news.yahoo.com/video-shows-mitt-romney-tense-024639110.html)
-- Feb 08 - [All 5 officers charged in Tyre Nichols' death removed or failed to activate their body-worn cameras. They were caught by a 'sky cop' camera installed to monitor crime hotspots.](https://news.yahoo.com/5-officers-charged-tyre-nichols-024558939.html)
 <!-- feed end -->
