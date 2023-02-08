@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 08 - [Biden touts “Buy American” plan during State of the Union](https://news.yahoo.com/biden-touts-buy-american-plan-024952452.html)
+- Feb 08 - [George Santos grabbed an aisle seat at the State of the Union. Not everyone was eager to shake his hand.](https://news.yahoo.com/george-santos-grabbed-aisle-seat-021512072.html)
 - Feb 08 - [North Korean leader Kim encourages troops with daughter](https://news.yahoo.com/north-korean-leader-kim-encourages-012223635.html)
 - Feb 08 - [‘Hot air’: Marjorie Taylor Greene in State of the Union balloon stunt](https://news.yahoo.com/hot-air-marjorie-taylor-greene-004849163.html)
 - Feb 08 - [Prosecutor: Lindsay Clancy 'created the situation' to kill her 3 children](https://news.yahoo.com/prosecutor-lindsay-clancy-created-situation-210605647.html)
-- Feb 07 - [As jets closed in on China balloon, hobbyists were listening](https://news.yahoo.com/jets-closed-china-balloon-hobbyists-235012272.html)
-- Feb 07 - [Texas man jailed in Dallas monkey case says he'd do it again](https://news.yahoo.com/texas-man-jailed-dallas-monkey-234736944.html)
 <!-- feed end -->
