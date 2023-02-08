@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 08 - [Man awakens his girlfriend with warning, Florida cops say: ‘We’re going to have a bad day’](https://news.yahoo.com/man-awakens-girlfriend-warning-florida-201424619.html)
-- Feb 08 - [A style expert said Kyrsten Sinema's yellow dress at the State of the Union 'reflects her independent spirit,' but that it 'missed the mark'](https://news.yahoo.com/style-expert-said-kyrsten-sinemas-200135922.html)
+- Feb 08 - [A style expert said Kyrsten Sinema's yellow dress at the State of the Union 'reflects her independent spirit,' but that it 'missed the mark'](https://news.yahoo.com/style-expert-said-kyrsten-sinemas-200135567.html)
 - Feb 08 - [Alexandria Ocasio-Cortez Lays Into Republicans](https://news.yahoo.com/alexandria-ocasio-cortez-lays-republicans-191622161.html)
+- Feb 08 - ['Dark Brandon' shows up at State of the Union, mops the floor with lost Republicans](https://news.yahoo.com/dark-brandon-shows-state-union-051522138.html)
 - Feb 08 - [‘Where’d You Go to Medical School?’: GOP Rep Rips Ex-Twitter Official for Censoring Stanford Doc’s Covid Opinions](https://news.yahoo.com/where-d-medical-school-gop-181407823.html)
-- Feb 08 - [‘My husband went out for a walk – and never came back’](https://news.yahoo.com/husband-went-walk-never-came-180000043.html)
 <!-- feed end -->
