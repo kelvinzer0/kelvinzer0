@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 08 - [Biden touts “Buy American” plan during State of the Union](https://news.yahoo.com/biden-touts-buy-american-plan-024952452.html)
-- Feb 08 - [George Santos grabbed an aisle seat at the State of the Union. Not everyone was eager to shake his hand.](https://news.yahoo.com/george-santos-grabbed-aisle-seat-021512072.html)
-- Feb 08 - [North Korean leader Kim encourages troops with daughter](https://news.yahoo.com/north-korean-leader-kim-encourages-012223635.html)
-- Feb 08 - [‘Hot air’: Marjorie Taylor Greene in State of the Union balloon stunt](https://news.yahoo.com/hot-air-marjorie-taylor-greene-004849163.html)
-- Feb 08 - [Prosecutor: Lindsay Clancy 'created the situation' to kill her 3 children](https://news.yahoo.com/prosecutor-lindsay-clancy-created-situation-210605647.html)
+- Feb 08 - [Biden, Republicans engage in fiery debt ceiling back-and-forth during State of the Union address](https://news.yahoo.com/biden-republicans-engage-in-fiery-debt-ceiling-back-and-forth-during-state-of-the-union-address-031518032.html)
+- Feb 08 - [False idols, money on fire, hate-filled children: Sarah Huckabee Sanders paints bleak picture of Biden's America](https://news.yahoo.com/false-idols-money-fire-hate-031431144.html)
+- Feb 08 - [Marjorie Taylor Greene Shouts 'Liar' At Joe Biden During State Of The Union](https://news.yahoo.com/majorie-taylor-greene-shouts-liar-031339536.html)
+- Feb 08 - ['A Sick Puppy': Mitt Romney And George Santos Get Into Tense Exchange At State Of The Union](https://news.yahoo.com/video-shows-mitt-romney-tense-024639110.html)
+- Feb 08 - [All 5 officers charged in Tyre Nichols' death removed or failed to activate their body-worn cameras. They were caught by a 'sky cop' camera installed to monitor crime hotspots.](https://news.yahoo.com/5-officers-charged-tyre-nichols-024558939.html)
 <!-- feed end -->
