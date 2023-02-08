@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 08 - [Donald Trump Gives 'Real State Of The Union' And Declares He's 'A Victim'](https://news.yahoo.com/donald-trump-gives-real-state-121923430.html)
-- Feb 08 - [US forces returning to Philippines to counter China threats](https://news.yahoo.com/us-forces-returning-philippines-counter-090133589.html)
-- Feb 08 - [Jill Biden kisses Kamala Harris' husband on the mouth](https://news.yahoo.com/jill-biden-kisses-kamala-harris-074611658.html)
-- Feb 08 - [Sarah Huckabee Sanders' 'Normal Or Crazy' Challenge Backfires Spectacularly](https://news.yahoo.com/sarah-huckabee-sanders-normal-crazy-073138695.html)
 - Feb 08 - [Dark Brandon shows up at State of the Union, mops the floor with lost Republicans](https://news.yahoo.com/dark-brandon-shows-state-union-051522138.html)
+- Feb 08 - [Rep. Marjorie Taylor Greene heckles President Joe Biden during State of the Union address](https://news.yahoo.com/rep-marjorie-taylor-greene-heckles-132709095.html)
+- Feb 08 - [Donald Trump Gives 'Real State Of The Union' And Declares He's 'A Victim'](https://news.yahoo.com/donald-trump-gives-real-state-121923430.html)
+- Feb 08 - [Amber Rose says she has already told her 9-year-old son about her OnlyFans account and once being a stripper: 'Mommy has to make money'](https://news.yahoo.com/amber-rose-says-she-already-120518429.html)
+- Feb 08 - [A luxury cruise ship will allow its residents to permanently live at sea. See inside its 1,430-square-foot condos selling for $8 million.](https://news.yahoo.com/luxury-cruise-ship-allow-residents-100300934.html)
 <!-- feed end -->
