@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 08 - [Former Twitter executives grilled by House Oversight over Hunter Biden laptop story](https://news.yahoo.com/former-twitter-executives-grilled-house-175822341.html)
+- Feb 08 - [Neighbors heard ‘noises’ coming from a tree in Florida. Then they saw it was alive](https://news.yahoo.com/neighbors-heard-noises-coming-tree-173252692.html)
+- Feb 08 - [A man charged with beheading his ex-girlfriend in California now claims he did it out of self-defense](https://news.yahoo.com/man-charged-beheading-ex-girlfriend-171514853.html)
+- Feb 08 - [The US military didn't know if the missile that took out a Chinese spy balloon would work when an F-22 took the shot, commander says](https://news.yahoo.com/us-military-didnt-know-missile-162542911.html)
 - Feb 08 - [Dark Brandon shows up at State of the Union, mops the floor with lost Republicans](https://news.yahoo.com/dark-brandon-shows-state-union-051522138.html)
-- Feb 08 - [Scott doubles down on sunsetting all federal programs after Biden’s jab](https://news.yahoo.com/scott-doubles-down-sunsetting-federal-155659465.html)
-- Feb 08 - [Prosecutor: Lindsay Clancy 'created the situation' to kill her 3 children](https://news.yahoo.com/prosecutor-lindsay-clancy-created-situation-210605647.html)
-- Feb 08 - [Abortion-rights activist who was body-shamed by Matt Gaetz confronted him at SOTU address and thanked him for helping her raise $2 million](https://news.yahoo.com/abortion-rights-activist-body-shamed-134932039.html)
-- Feb 08 - [Donald Trump Gives 'Real State Of The Union' And Declares He's 'A Victim'](https://news.yahoo.com/donald-trump-gives-real-state-121923430.html)
 <!-- feed end -->
