@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 08 - [North Korean leader Kim encourages troops with daughter](https://news.yahoo.com/north-korean-leader-kim-encourages-012223635.html)
 - Feb 08 - [‘Hot air’: Marjorie Taylor Greene in State of the Union balloon stunt](https://news.yahoo.com/hot-air-marjorie-taylor-greene-004849163.html)
 - Feb 08 - [Prosecutor: Lindsay Clancy 'created the situation' to kill her 3 children](https://news.yahoo.com/prosecutor-lindsay-clancy-created-situation-210605647.html)
 - Feb 07 - [As jets closed in on China balloon, hobbyists were listening](https://news.yahoo.com/jets-closed-china-balloon-hobbyists-235012272.html)
 - Feb 07 - [Texas man jailed in Dallas monkey case says he'd do it again](https://news.yahoo.com/texas-man-jailed-dallas-monkey-234736944.html)
-- Feb 07 - ['Super bloom' swarms force California city to say no more](https://news.yahoo.com/super-bloom-swarms-force-california-234237958.html)
 <!-- feed end -->
