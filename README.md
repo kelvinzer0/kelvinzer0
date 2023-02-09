@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 09 - [21 Facts I Learned This Week That Are So Dang Interesting, I'll Never Be Able To Forget Them](https://news.yahoo.com/21-facts-learned-week-dang-022837700.html)
+- Feb 09 - [Twitter Explodes Over Lauren Boebert's Clueless State Of The Union Tweet](https://news.yahoo.com/twitter-explodes-over-lauren-boeberts-012932674.html)
+- Feb 09 - [Son of Trump’s CDC chief seriously hurt in the Florida Keys. His family wants answers](https://news.yahoo.com/son-trump-cdc-chief-seriously-012531805.html)
 - Feb 08 - [Montana bill would let students misgender classmates](https://news.yahoo.com/montana-bill-allow-students-misgender-235146957.html)
 - Feb 08 - [Parents upset partly nude teacher spotted in classroom still on the job, interacting with students](https://news.yahoo.com/parents-upset-partly-nude-teacher-214355053.html)
 - Feb 08 - [A daughter's video of her father waiting in their empty restaurant has TikTok users flocking to support the business](https://news.yahoo.com/daughters-video-her-father-waiting-222349556.html)
-- Feb 08 - [Here are the spending cuts Republicans have pitched in debt limit talks](https://news.yahoo.com/spending-cuts-republicans-pitched-debt-220000175.html)
 <!-- feed end -->
