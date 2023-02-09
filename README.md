@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 09 - [Beyoncé Turned Down A Drink From Jay-Z In The Middle Of The Grammys, And People Have Theories About What Was Actually Happening](https://news.yahoo.com/jay-z-offered-beyonc-drink-020203588.html)
+- Feb 09 - [Blast, fire severely damages San Francisco home](https://news.yahoo.com/blast-fire-severely-damages-san-193447934.html)
+- Feb 09 - [Russia’s new large-scale offensive already underway, Ukrainian official says](https://news.yahoo.com/russia-large-scale-offensive-already-191900279.html)
+- Feb 09 - [Michigan mother of 3 missing after leaving to see Bronx man she met online](https://news.yahoo.com/michigan-mother-3-missing-leaving-190415621.html)
 - Feb 09 - [A TikToker documented her breakup in real time as thousands watched along. The ordeal went viral, but also led to unforeseen consequences.](https://news.yahoo.com/tiktoker-documented-her-breakup-real-175211375.html)
-- Feb 09 - [Chinese spy balloon sought secret US communications signals, State Department says](https://news.yahoo.com/chinese-spy-balloon-sought-secret-162313357.html)
-- Feb 09 - [Russia's second big offensive: What Putin is betting on - a simple explanation](https://news.yahoo.com/russias-second-big-offensive-putin-154200494.html)
-- Feb 09 - [Burt Bacharach, legendary composer of pop songs, dies at 94](https://news.yahoo.com/burt-bacharach-legendary-composer-pop-145014844.html)
+- Feb 09 - [From 'babaloo' to 'slop chest,' these are 35 secret terms only cruise workers know — and the ones you don't want to hear as a passenger](https://news.yahoo.com/babaloo-slop-chest-35-secret-174411793.html)
 <!-- feed end -->
