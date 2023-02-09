@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 09 - [Minnesota factory workers subdue armed person at plant](https://news.yahoo.com/minnesota-factory-workers-subdue-armed-164857400.html)
+- Feb 09 - [Russia's second big offensive: What Putin is betting on - a simple explanation](https://news.yahoo.com/russias-second-big-offensive-putin-154200494.html)
 - Feb 09 - [Burt Bacharach, legendary composer of pop songs, dies at 94](https://news.yahoo.com/burt-bacharach-legendary-composer-pop-145014844.html)
-- Feb 09 - [Wagner Group stops recruiting prisoners as growing numbers refuse to be enlisted on suicide missions, reports say](https://news.yahoo.com/wagner-group-stops-recruiting-prisoners-145013600.html)
 - Feb 09 - [What does the Bible say about homosexuality? For starters, Jesus wasn't a homophobe](https://news.yahoo.com/does-bible-homosexuality-starters-jesus-141828433.html)
-- Feb 09 - [Republican Nancy Mace's Kevin McCarthy Roast Leaves D.C. Crowd In Shock](https://news.yahoo.com/republican-nancy-maces-kevin-mccarthy-124150840.html)
-- Feb 09 - [Zelenskyy: Ukraine intercepted plans to destroy Moldova](https://news.yahoo.com/zelenskyy-ukraine-intercepted-plans-destroy-123604889.html)
+- Feb 09 - [A former butler to billionaires and celebrities shares the wildest and most surprising things he witnessed on the job](https://news.yahoo.com/former-butler-billionaires-celebrities-shares-133729374.html)
 <!-- feed end -->
