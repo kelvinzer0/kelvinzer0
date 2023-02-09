@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 09 - [James Carville Attacks GOP, Marjorie Taylor Greene As 'White Trash'](https://news.yahoo.com/james-carville-attacks-gop-marjorie-090815792.html)
+- Feb 09 - [California cities rattled by prostitution, human trafficking in broad daylight as cops pin blame on new law](https://news.yahoo.com/california-cities-rattled-prostitution-human-070052475.html)
+- Feb 09 - [The spy who wasn't? New York police officer wants badge back](https://news.yahoo.com/spy-wasnt-york-police-officer-061642514.html)
 - Feb 09 - [‘Daily Show’ Guest Chelsea Handler Is ‘Sexually Attracted’ To This GOP Lawmaker](https://news.yahoo.com/daily-show-guest-chelsea-handler-044134992.html)
 - Feb 09 - [Reporter arrested during news event on Ohio train derailment](https://news.yahoo.com/reporter-arrested-during-news-event-042101040.html)
-- Feb 09 - [UConn women lose 2nd straight game for 1st time since 1993](https://news.yahoo.com/uconn-women-lose-2nd-straight-030233744.html)
-- Feb 09 - [Twitter Explodes Over Lauren Boebert's Clueless State Of The Union Tweet](https://news.yahoo.com/twitter-explodes-over-lauren-boeberts-012932674.html)
-- Feb 09 - [Son of Trump’s CDC chief seriously hurt in the Florida Keys. His family wants answers](https://news.yahoo.com/son-trump-cdc-chief-seriously-012531805.html)
 <!-- feed end -->
