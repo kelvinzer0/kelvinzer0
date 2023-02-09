@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 09 - [SpaceX ignites Starship rocket in crucial pad test](https://news.yahoo.com/spacex-ignites-starship-rocket-crucial-224129882.html)
+- Feb 09 - [Since COVID, more young people are dying of heart attacks. Here's what we know](https://news.yahoo.com/since-covid-more-young-people-214708021.html)
 - Feb 09 - [Rep. George Santos Was Charged In 2017 With Stealing Puppies From Amish Dog Breeders](https://news.yahoo.com/rep-george-santos-charged-stealing-214647499.html)
+- Feb 09 - [Elon Musk reportedly fired a Twitter engineer on the spot after the worker told him his popularity was sinking on the site](https://news.yahoo.com/elon-musk-reportedly-fired-twitter-214412417.html)
 - Feb 09 - [Ukrainian driver acquitted in crash ordered to be deported](https://news.yahoo.com/ukrainian-driver-acquitted-crash-ordered-213259207.html)
-- Feb 09 - [Chinese man abducted as child leaves billionaire adoptive family after reuniting with multimillionaire birth parents](https://news.yahoo.com/chinese-man-abducted-child-leaves-213014550.html)
-- Feb 09 - [House briefing on China spy balloon turns tense with Greene comments: ‘I chewed them out’](https://news.yahoo.com/house-briefing-china-spy-balloon-210421989.html)
-- Feb 09 - [Alec Baldwin never told 'Rust' cinematographer's family he was sorry for killing her on-set, their lawyer alleged](https://news.yahoo.com/alec-baldwin-never-told-rust-203609329.html)
 <!-- feed end -->
