@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 09 - [Ohio derailment raises railroad safety questions](https://news.yahoo.com/ohio-derailment-raises-railroad-safety-064228307.html)
+- Feb 09 - [US general to aggressors: Allies are battle-ready in Asia](https://news.yahoo.com/us-general-aggressors-allies-battle-055907109.html)
 - Feb 09 - [‘Daily Show’ Guest Chelsea Handler Is ‘Sexually Attracted’ To This GOP Lawmaker](https://news.yahoo.com/daily-show-guest-chelsea-handler-044134992.html)
 - Feb 09 - [Reporter arrested during news event on Ohio train derailment](https://news.yahoo.com/reporter-arrested-during-news-event-042101040.html)
 - Feb 09 - [UConn women lose 2nd straight game for 1st time since 1993](https://news.yahoo.com/uconn-women-lose-2nd-straight-030233744.html)
