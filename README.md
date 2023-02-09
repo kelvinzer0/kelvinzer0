@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 09 - [‘Daily Show’ Guest Chelsea Handler Is ‘Sexually Attracted’ To This GOP Lawmaker](https://news.yahoo.com/daily-show-guest-chelsea-handler-044134992.html)
+- Feb 09 - [Reporter arrested during news event on Ohio train derailment](https://news.yahoo.com/reporter-arrested-during-news-event-042101040.html)
 - Feb 09 - [UConn women lose 2nd straight game for 1st time since 1993](https://news.yahoo.com/uconn-women-lose-2nd-straight-030233744.html)
 - Feb 09 - [Twitter Explodes Over Lauren Boebert's Clueless State Of The Union Tweet](https://news.yahoo.com/twitter-explodes-over-lauren-boeberts-012932674.html)
 - Feb 09 - [Son of Trump’s CDC chief seriously hurt in the Florida Keys. His family wants answers](https://news.yahoo.com/son-trump-cdc-chief-seriously-012531805.html)
-- Feb 08 - [Montana bill would let students misgender classmates](https://news.yahoo.com/montana-bill-allow-students-misgender-235146957.html)
 <!-- feed end -->
