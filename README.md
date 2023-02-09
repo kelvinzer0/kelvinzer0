@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 09 - [24 Actors Who Either Did Or Didn't Resemble The Famous People They Portrayed In Movies And TV Shows](https://news.yahoo.com/24-actors-either-did-didnt-022637501.html)
-- Feb 09 - [Students walk out after told to limit Black History program](https://news.yahoo.com/students-walk-told-limit-black-200720419.html)
-- Feb 09 - [GOP Gov. Chris Sununu jokes that Marjorie Taylor Greene's 'fur thing' at the State of the Union made her look like 'she belonged on the top of Mt. Washington'](https://news.yahoo.com/gop-gov-chris-sununu-jokes-194205284.html)
-- Feb 09 - [Russia’s new large-scale offensive already underway, Ukrainian official says](https://news.yahoo.com/russia-large-scale-offensive-already-191900279.html)
-- Feb 09 - [A Clip Of Adele's Reaction To Harry Styles Winning Album Of The Year Is Going Viral, And It's Only 4 Seconds But It's Pretty Dang Messy](https://news.yahoo.com/clip-adeles-reaction-harry-styles-225002063.html)
+- Feb 09 - [Rep. George Santos Was Charged In 2017 With Stealing Puppies From Amish Dog Breeders](https://news.yahoo.com/rep-george-santos-charged-stealing-214647499.html)
+- Feb 09 - [Ukrainian driver acquitted in crash ordered to be deported](https://news.yahoo.com/ukrainian-driver-acquitted-crash-ordered-213259207.html)
+- Feb 09 - [Chinese man abducted as child leaves billionaire adoptive family after reuniting with multimillionaire birth parents](https://news.yahoo.com/chinese-man-abducted-child-leaves-213014550.html)
+- Feb 09 - [House briefing on China spy balloon turns tense with Greene comments: ‘I chewed them out’](https://news.yahoo.com/house-briefing-china-spy-balloon-210421989.html)
+- Feb 09 - [Alec Baldwin never told 'Rust' cinematographer's family he was sorry for killing her on-set, their lawyer alleged](https://news.yahoo.com/alec-baldwin-never-told-rust-203609329.html)
 <!-- feed end -->
