@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 09 - [Beyoncé Turned Down A Drink From Jay-Z In The Middle Of The Grammys, And People Have Theories About What Was Actually Happening](https://news.yahoo.com/jay-z-offered-beyonc-drink-020203588.html)
+- Feb 09 - [A TikToker documented her breakup in real time as thousands watched along. The ordeal went viral, but also led to unforeseen consequences.](https://news.yahoo.com/tiktoker-documented-her-breakup-real-175211375.html)
 - Feb 09 - [Chinese spy balloon sought secret US communications signals, State Department says](https://news.yahoo.com/chinese-spy-balloon-sought-secret-162313357.html)
-- Feb 09 - [Search-and-rescue efforts continue in Turkey  and Syria after earthquake](https://news.yahoo.com/search-rescue-efforts-continue-turkey-174120737.html)
 - Feb 09 - [Russia's second big offensive: What Putin is betting on - a simple explanation](https://news.yahoo.com/russias-second-big-offensive-putin-154200494.html)
 - Feb 09 - [Burt Bacharach, legendary composer of pop songs, dies at 94](https://news.yahoo.com/burt-bacharach-legendary-composer-pop-145014844.html)
-- Feb 09 - [What does the Bible say about homosexuality? For starters, Jesus wasn't a homophobe](https://news.yahoo.com/does-bible-homosexuality-starters-jesus-141828433.html)
 <!-- feed end -->
