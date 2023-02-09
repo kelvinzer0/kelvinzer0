@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 09 - [‘Daily Show’ Guest Chelsea Handler Is ‘Sexually Attracted’ To This GOP Lawmaker](https://news.yahoo.com/daily-show-guest-chelsea-handler-044134992.html)
+- Feb 09 - [UConn women lose 2nd straight game for 1st time since 1993](https://news.yahoo.com/uconn-women-lose-2nd-straight-030233744.html)
 - Feb 09 - [Twitter Explodes Over Lauren Boebert's Clueless State Of The Union Tweet](https://news.yahoo.com/twitter-explodes-over-lauren-boeberts-012932674.html)
 - Feb 09 - [Son of Trump’s CDC chief seriously hurt in the Florida Keys. His family wants answers](https://news.yahoo.com/son-trump-cdc-chief-seriously-012531805.html)
 - Feb 08 - [Montana bill would let students misgender classmates](https://news.yahoo.com/montana-bill-allow-students-misgender-235146957.html)
-- Feb 08 - [Parents upset partly nude teacher spotted in classroom still on the job, interacting with students](https://news.yahoo.com/parents-upset-partly-nude-teacher-214355053.html)
-- Feb 08 - [A daughter's video of her father waiting in their empty restaurant has TikTok users flocking to support the business](https://news.yahoo.com/daughters-video-her-father-waiting-222349556.html)
 <!-- feed end -->
