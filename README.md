@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 09 - [What does the Bible say about homosexuality? For starters, Jesus wasn't a homophobe](https://news.yahoo.com/does-bible-homosexuality-starters-jesus-141828433.html)
 - Feb 09 - [Republican Nancy Mace's Kevin McCarthy Roast Leaves D.C. Crowd In Shock](https://news.yahoo.com/republican-nancy-maces-kevin-mccarthy-124150840.html)
 - Feb 09 - [Zelenskyy: Ukraine intercepted plans to destroy Moldova](https://news.yahoo.com/zelenskyy-ukraine-intercepted-plans-destroy-123604889.html)
 - Feb 09 - [Chewbacca star Peter Mayhew's wife says it 'breaks my heart' that the actor's personal 'Star Wars' memorabilia is being auctioned off](https://news.yahoo.com/chewbacca-star-peter-mayhews-wife-123413709.html)
 - Feb 09 - [James Carville Attacks GOP, Marjorie Taylor Greene As 'White Trash'](https://news.yahoo.com/james-carville-attacks-gop-marjorie-090815792.html)
-- Feb 09 - [California cities rattled by prostitution, human trafficking in broad daylight as cops pin blame on new law](https://news.yahoo.com/california-cities-rattled-prostitution-human-070052475.html)
 <!-- feed end -->
