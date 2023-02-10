@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 10 - [White House says a second 'high altitude object' shot down over Alaska](https://news.yahoo.com/white-house-says-second-high-194351998.html)
+- Feb 10 - [Pentagon shoots down unknown object flying in U.S. airspace](https://news.yahoo.com/pentagon-shoots-down-unknown-object-194709232.html)
+- Feb 10 - [Texas Mother Demanding Answers After Her 6-Year-Old Son Was Sexually Assaulted On School Bus](https://news.yahoo.com/texas-mother-demanding-answers-her-190843654.html)
+- Feb 10 - [Golfers saw ‘something’ by a pool in a gated community in Florida. It was alive](https://news.yahoo.com/golfers-saw-something-pool-gated-190726117.html)
 - Feb 10 - [Turkey earthquake fault lines mapped from space](https://news.yahoo.com/turkey-earthquake-fault-lines-mapped-174335258.html)
-- Feb 10 - [Ad Meter 2023: Pepsi Zero Sugar featuring Steve Martin](https://news.yahoo.com/ad-meter-2023-pepsi-zero-183447725.html)
-- Feb 10 - [Ad Meter 2023: Avocados from Mexico "Make It Better"](https://news.yahoo.com/ad-meter-2023-avocados-mexico-182754176.html)
-- Feb 10 - ['Everybody's tired': South Dakota tribe sues US over crime](https://news.yahoo.com/everybodys-tired-south-dakota-tribe-173015857.html)
-- Feb 10 - [Putin launches major Ukraine offensive with hail of missiles](https://news.yahoo.com/russias-major-offensive-definitely-started-141932239.html)
 <!-- feed end -->
