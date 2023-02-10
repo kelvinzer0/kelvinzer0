@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 10 - [Trump Declares There's Only One Good Thing About Super Bowl Halftime Queen Rihanna](https://news.yahoo.com/trump-declares-theres-only-one-034417494.html)
+- Feb 10 - [Lea Michele Says She Has 265 Days To Learn How To Read](https://news.yahoo.com/lea-michele-says-she-265-235624173.html)
+- Feb 10 - [Oregon court refuses to overturn order blocking gun measure](https://news.yahoo.com/oregon-court-refuses-overturn-order-022630749.html)
 - Feb 10 - [14-year-old girl missing over year found in closet of Michigan home, authorities say](https://news.yahoo.com/14-old-girl-missing-over-020156376.html)
 - Feb 10 - [Biotech CEO famous for spending millions to reverse age accused of walking out on ex after her breast cancer diagnosis and manipulating her in the spirit of 'radical transparency"](https://news.yahoo.com/biotech-ceo-famous-spending-millions-005938433.html)
-- Feb 10 - [Paddleboarder comes across mysterious, transparent sea creature off California coast](https://news.yahoo.com/paddleboarder-comes-across-mysterious-transparent-005509458.html)
-- Feb 10 - [George Santos was accused of issuing $15,125 in bad checks for 'puppies,' but the theft charge was dropped after he said his checkbook was stolen, report says](https://news.yahoo.com/george-santos-accused-issuing-15-003031156.html)
-- Feb 10 - [Florida Gov. Ron DeSantis nears takeover of special Disney district](https://news.yahoo.com/florida-gov-ron-desantis-nears-002414071.html)
 <!-- feed end -->
