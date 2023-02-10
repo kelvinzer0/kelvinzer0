@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 10 - [Madonna Was Criticized For Her Appearance At The Grammys, And She Responded In A Really Powerful Way](https://news.yahoo.com/madonna-criticized-her-appearance-grammys-224444637.html)
-- Feb 10 - [21 Celebs Who Worked For Other Celebrities Before They Became Household Names Themselves](https://news.yahoo.com/21-celebs-worked-other-celebrities-232757907.html)
-- Feb 09 - [Rioter Who Paraded Confederate Flag Through U.S. Capitol On Jan. 6 Sentenced](https://news.yahoo.com/rioter-paraded-confederate-flag-u-233411549.html)
-- Feb 09 - [A woman who was called out by fitness influencer Joey Swoll said she's since been flooded with hate messages and death threats](https://news.yahoo.com/woman-called-fitness-influencer-joey-230110250.html)
-- Feb 09 - [Shunned by the US, Turkey is preparing to launch its first aircraft carrier — but it will come with a twist](https://news.yahoo.com/shunned-us-turkey-preparing-launch-225700091.html)
+- Feb 10 - [I Asked People To Share The Things They Buy The Cheap Versions Of, And It's Honestly Eye-Opening](https://news.yahoo.com/asked-people-share-things-buy-023308946.html)
+- Feb 10 - [You Can Pick Only One 2023 Grammys Look For Every Color Of The Rainbow, And Sorry, But It's Suuuuper Hard](https://news.yahoo.com/pick-only-one-2023-grammys-204142885.html)
+- Feb 10 - [14-year-old girl missing over year found in closet of Michigan home, authorities say](https://news.yahoo.com/14-old-girl-missing-over-020156376.html)
+- Feb 10 - [Biotech CEO famous for spending millions to reverse age accused of walking out on ex after her breast cancer diagnosis and manipulating her in the spirit of 'radical transparency"](https://news.yahoo.com/biotech-ceo-famous-spending-millions-005938433.html)
+- Feb 10 - [Paddleboarder comes across mysterious, transparent sea creature off California coast](https://news.yahoo.com/paddleboarder-comes-across-mysterious-transparent-005509458.html)
 <!-- feed end -->
