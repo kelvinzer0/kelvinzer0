@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 10 - [Tom Brady Posted A Pic Of Him In His Underwear, And People Are Memeing The Hell Out Of It](https://news.yahoo.com/tom-brady-posted-pic-him-224243831.html)
 - Feb 10 - [Trump Declares There's Only One Good Thing About Super Bowl Halftime Queen Rihanna](https://news.yahoo.com/trump-declares-theres-only-one-034417494.html)
-- Feb 10 - [Lea Michele Says She Has 265 Days To Learn How To Read](https://news.yahoo.com/lea-michele-says-she-265-235624173.html)
 - Feb 10 - [Oregon court refuses to overturn order blocking gun measure](https://news.yahoo.com/oregon-court-refuses-overturn-order-022630749.html)
 - Feb 10 - [14-year-old girl missing over year found in closet of Michigan home, authorities say](https://news.yahoo.com/14-old-girl-missing-over-020156376.html)
 - Feb 10 - [Biotech CEO famous for spending millions to reverse age accused of walking out on ex after her breast cancer diagnosis and manipulating her in the spirit of 'radical transparency"](https://news.yahoo.com/biotech-ceo-famous-spending-millions-005938433.html)
