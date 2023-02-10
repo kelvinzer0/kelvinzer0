@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 10 - [‘Massive Attack’ Pummels Ukraine One Day After Zelensky’s European Tour](https://news.yahoo.com/massive-attack-pummels-ukraine-one-121938423.html)
 - Feb 10 - [Reporter Actually Asks Kamala Harris About Husband's Kiss With Jill Biden](https://news.yahoo.com/reporter-actually-asks-kamala-harris-120206746.html)
 - Feb 10 - [Moldovan prime minister resigns, government collapses](https://news.yahoo.com/moldovan-prime-minister-resigns-government-113646061.html)
 - Feb 10 - [Maine Mom Demands Investigation after School Counselor Secretly Gives Daughter a ‘Chest Binder’](https://news.yahoo.com/maine-mom-demands-investigation-school-113001510.html)
-- Feb 10 - [Larry The Cable Guy Defends Joke About GOP Rep. Marjorie Taylor Greene](https://news.yahoo.com/larry-cable-guy-defends-joke-094534070.html)
-- Feb 10 - [A Clip Of Adele's Reaction To Harry Styles Winning Album Of The Year Is Going Viral, And It's Only 4 Seconds But It's Pretty Dang Messy](https://news.yahoo.com/clip-adeles-reaction-harry-styles-225002063.html)
+- Feb 10 - [JonBenet Ramsey case: Newly unearthed documents reveal DNA did not match key players early in unsolved slaying](https://news.yahoo.com/jonbenet-ramsey-case-newly-unearthed-110054267.html)
 <!-- feed end -->
