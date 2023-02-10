@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 10 - [Maine Mom Demands Investigation after School Counselor Secretly Gives Daughter a ‘Chest Binder’](https://news.yahoo.com/maine-mom-demands-investigation-school-113001510.html)
+- Feb 10 - [Some Taliban fighters are sick of the 9 to 5 grind, complaining they've been sucked into urban life by working desk jobs to run Afghanistan](https://news.yahoo.com/taliban-fighters-sick-9-5-101420096.html)
 - Feb 10 - [Larry The Cable Guy Defends Joke About GOP Rep. Marjorie Taylor Greene](https://news.yahoo.com/larry-cable-guy-defends-joke-094534070.html)
+- Feb 10 - [Michelle Rodriguez found out her 'Fast and the Furious' character was returning from the dead by going to the movies to see 'Fast Five'](https://news.yahoo.com/michelle-rodriguez-found-her-fast-092534559.html)
 - Feb 10 - [A Clip Of Adele's Reaction To Harry Styles Winning Album Of The Year Is Going Viral, And It's Only 4 Seconds But It's Pretty Dang Messy](https://news.yahoo.com/clip-adeles-reaction-harry-styles-225002063.html)
-- Feb 10 - [Freshman Democrat Puts Rep. Jim Jordan On Blast Over Whistleblower Claims](https://news.yahoo.com/freshman-democrat-puts-rep-jim-054352102.html)
-- Feb 10 - [China calls US House resolution 'political manipulation'](https://news.yahoo.com/china-says-refused-us-call-052455829.html)
-- Feb 10 - ['It just rang': In crises, US-China hotline goes unanswered](https://news.yahoo.com/just-rang-crises-us-china-051747688.html)
 <!-- feed end -->
