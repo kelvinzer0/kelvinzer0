@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 10 - [White House says a second 'high altitude object' shot down over Alaska](https://news.yahoo.com/white-house-says-second-high-194351998.html)
+- Feb 10 - [Tennessee GOP introduces bills that would shake up Nashville](https://news.yahoo.com/tennessee-gop-introduces-bills-shake-205838792.html)
 - Feb 10 - [Fox News anchor Julie Banderas dropped some \"breaking news\" on Gutfeld](https://news.yahoo.com/fox-news-anchor-julie-banderas-202314699.html)
-- Feb 10 - [McIntosh County teacher accused of having sex with three students](https://news.yahoo.com/mcintosh-county-teacher-accused-having-201152967.html)
 - Feb 10 - [Trump rape case: After 3 years, the former president finally agrees to submit DNA. Here's why it could be too late.](https://news.yahoo.com/trump-rape-case-3-years-201055673.html)
-- Feb 10 - [US jet shoots down unknown object flying off Alaska coast](https://news.yahoo.com/pentagon-shoots-down-unknown-object-194709232.html)
+- Feb 10 - [Texas Mother Demanding Answers After Her 6-Year-Old Son Was Sexually Assaulted On School Bus](https://news.yahoo.com/texas-mother-demanding-answers-her-190843654.html)
+- Feb 10 - [Golfers saw ‘something’ by a pool in a gated community in Florida. It was alive](https://news.yahoo.com/golfers-saw-something-pool-gated-190726117.html)
 <!-- feed end -->
