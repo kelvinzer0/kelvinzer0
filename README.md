@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 10 - [Larry The Cable Guy Defends Joke About GOP Rep. Marjorie Taylor Greene](https://news.yahoo.com/larry-cable-guy-defends-joke-094534070.html)
 - Feb 10 - [A Clip Of Adele's Reaction To Harry Styles Winning Album Of The Year Is Going Viral, And It's Only 4 Seconds But It's Pretty Dang Messy](https://news.yahoo.com/clip-adeles-reaction-harry-styles-225002063.html)
 - Feb 10 - [Freshman Democrat Puts Rep. Jim Jordan On Blast Over Whistleblower Claims](https://news.yahoo.com/freshman-democrat-puts-rep-jim-054352102.html)
 - Feb 10 - [China calls US House resolution 'political manipulation'](https://news.yahoo.com/china-says-refused-us-call-052455829.html)
 - Feb 10 - ['It just rang': In crises, US-China hotline goes unanswered](https://news.yahoo.com/just-rang-crises-us-china-051747688.html)
-- Feb 10 - [Trump Declares There's Only One Good Thing About Super Bowl Halftime Queen Rihanna](https://news.yahoo.com/trump-declares-theres-only-one-034417494.html)
 <!-- feed end -->
