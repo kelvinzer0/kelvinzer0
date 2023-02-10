@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 10 - [Why is a love poem full of sex in the Bible? Readers have been struggling with the Song of Songs for 2,000 years](https://news.yahoo.com/why-love-poem-full-sex-135130470.html)
+- Feb 10 - [Sleeping boy awakes to python wrapped around his arm, biting him in Australia bedroom](https://news.yahoo.com/sleeping-boy-awakes-python-wrapped-123322487.html)
 - Feb 10 - [‘Massive Attack’ Pummels Ukraine One Day After Zelensky’s European Tour](https://news.yahoo.com/massive-attack-pummels-ukraine-one-121938423.html)
 - Feb 10 - [Reporter Actually Asks Kamala Harris About Husband's Kiss With Jill Biden](https://news.yahoo.com/reporter-actually-asks-kamala-harris-120206746.html)
-- Feb 10 - [Moldovan prime minister resigns, government collapses](https://news.yahoo.com/moldovan-prime-minister-resigns-government-113646061.html)
-- Feb 10 - [Maine Mom Demands Investigation after School Counselor Secretly Gives Daughter a ‘Chest Binder’](https://news.yahoo.com/maine-mom-demands-investigation-school-113001510.html)
-- Feb 10 - [JonBenet Ramsey case: Newly unearthed documents reveal DNA did not match key players early in unsolved slaying](https://news.yahoo.com/jonbenet-ramsey-case-newly-unearthed-110054267.html)
+- Feb 10 - [Moldovan President names candidate for Prime Minister](https://news.yahoo.com/moldovan-prime-minister-resigns-government-113646061.html)
 <!-- feed end -->
