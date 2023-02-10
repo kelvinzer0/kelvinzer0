@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 09 - [SpaceX ignites Starship rocket in crucial pad test](https://news.yahoo.com/spacex-ignites-starship-rocket-crucial-224129882.html)
-- Feb 09 - [Since COVID, more young people are dying of heart attacks. Here's what we know](https://news.yahoo.com/since-covid-more-young-people-214708021.html)
-- Feb 09 - [Rep. George Santos Was Charged In 2017 With Stealing Puppies From Amish Dog Breeders](https://news.yahoo.com/rep-george-santos-charged-stealing-214647499.html)
-- Feb 09 - [Elon Musk reportedly fired a Twitter engineer on the spot after the worker told him his popularity was sinking on the site](https://news.yahoo.com/elon-musk-reportedly-fired-twitter-214412417.html)
-- Feb 09 - [Ukrainian driver acquitted in crash ordered to be deported](https://news.yahoo.com/ukrainian-driver-acquitted-crash-ordered-213259207.html)
+- Feb 10 - [Madonna Was Criticized For Her Appearance At The Grammys, And She Responded In A Really Powerful Way](https://news.yahoo.com/madonna-criticized-her-appearance-grammys-224444637.html)
+- Feb 10 - [21 Celebs Who Worked For Other Celebrities Before They Became Household Names Themselves](https://news.yahoo.com/21-celebs-worked-other-celebrities-232757907.html)
+- Feb 09 - [Rioter Who Paraded Confederate Flag Through U.S. Capitol On Jan. 6 Sentenced](https://news.yahoo.com/rioter-paraded-confederate-flag-u-233411549.html)
+- Feb 09 - [A woman who was called out by fitness influencer Joey Swoll said she's since been flooded with hate messages and death threats](https://news.yahoo.com/woman-called-fitness-influencer-joey-230110250.html)
+- Feb 09 - [Shunned by the US, Turkey is preparing to launch its first aircraft carrier — but it will come with a twist](https://news.yahoo.com/shunned-us-turkey-preparing-launch-225700091.html)
 <!-- feed end -->
