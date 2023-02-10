@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 10 - [Tom Brady Posted A Pic Of Him In His Underwear, And People Are Memeing The Hell Out Of It](https://news.yahoo.com/tom-brady-posted-pic-him-224243831.html)
+- Feb 10 - [Freshman Democrat Puts Rep. Jim Jordan On Blast Over Whistleblower Claims](https://news.yahoo.com/freshman-democrat-puts-rep-jim-054352102.html)
+- Feb 10 - [24 Actors Who Either Did Or Didn't Resemble The Famous People They Portrayed In Movies And TV Shows](https://news.yahoo.com/24-actors-either-did-didnt-022637501.html)
+- Feb 10 - [China says refused US call because atmosphere not 'proper'](https://news.yahoo.com/china-says-refused-us-call-052455829.html)
+- Feb 10 - ['It just rang': In crises, US-China hotline goes unanswered](https://news.yahoo.com/just-rang-crises-us-china-051747688.html)
 - Feb 10 - [Trump Declares There's Only One Good Thing About Super Bowl Halftime Queen Rihanna](https://news.yahoo.com/trump-declares-theres-only-one-034417494.html)
-- Feb 10 - [Oregon court refuses to overturn order blocking gun measure](https://news.yahoo.com/oregon-court-refuses-overturn-order-022630749.html)
-- Feb 10 - [14-year-old girl missing over year found in closet of Michigan home, authorities say](https://news.yahoo.com/14-old-girl-missing-over-020156376.html)
-- Feb 10 - [Biotech CEO famous for spending millions to reverse age accused of walking out on ex after her breast cancer diagnosis and manipulating her in the spirit of 'radical transparency"](https://news.yahoo.com/biotech-ceo-famous-spending-millions-005938433.html)
 <!-- feed end -->
