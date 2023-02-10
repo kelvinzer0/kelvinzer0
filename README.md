@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 10 - [Kyrsten Sinema’s office: George Santos lied about State of the Union story](https://news.yahoo.com/kyrsten-sinemas-office-george-santos-lied-about-state-of-the-union-story-160428558.html)
+- Feb 10 - [Fast X Trailer](https://news.yahoo.com/fast-x-trailer-154952653.html)
+- Feb 10 - [US test launches unarmed intercontinental ballistic missile](https://news.yahoo.com/us-test-launches-unarmed-intercontinental-153251363.html)
+- Feb 10 - [After months of stalemate, it looks like Russia's long-feared new offensive in Ukraine has begun](https://news.yahoo.com/months-stalemate-looks-russias-long-135851406.html)
 - Feb 10 - [Why is a love poem full of sex in the Bible? Readers have been struggling with the Song of Songs for 2,000 years](https://news.yahoo.com/why-love-poem-full-sex-135130470.html)
-- Feb 10 - [Sleeping boy awakes to python wrapped around his arm, biting him in Australia bedroom](https://news.yahoo.com/sleeping-boy-awakes-python-wrapped-123322487.html)
-- Feb 10 - [‘Massive Attack’ Pummels Ukraine One Day After Zelensky’s European Tour](https://news.yahoo.com/massive-attack-pummels-ukraine-one-121938423.html)
-- Feb 10 - [Reporter Actually Asks Kamala Harris About Husband's Kiss With Jill Biden](https://news.yahoo.com/reporter-actually-asks-kamala-harris-120206746.html)
-- Feb 10 - [Moldovan President names candidate for Prime Minister](https://news.yahoo.com/moldovan-prime-minister-resigns-government-113646061.html)
 <!-- feed end -->
