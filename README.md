@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 10 - [Ukraine shoots down 10 Russian missiles over Kyiv](https://news.yahoo.com/ukraine-shoots-down-10-russian-163024374.html)
-- Feb 10 - [Kyrsten Sinema's office: George Santos lied about State of the Union story](https://news.yahoo.com/kyrsten-sinemas-office-george-santos-lied-about-state-of-the-union-story-160428558.html)
-- Feb 10 - [Why is a love poem full of sex in the Bible? Readers have been struggling with the Song of Songs for 2,000 years](https://news.yahoo.com/why-love-poem-full-sex-135130470.html)
-- Feb 10 - [My Doctor Offered Me A 'Modern Medical Miracle.' Then A Side Effect Changed My Life Forever.](https://news.yahoo.com/doctor-offered-modern-medical-miracle-133000936.html)
-- Feb 10 - [Sleeping boy awakes to python wrapped around his arm, biting him in Australia bedroom](https://news.yahoo.com/sleeping-boy-awakes-python-wrapped-123322487.html)
+- Feb 10 - [Stefon Diggs on 'dream' of playing with his brother Trevon](https://news.yahoo.com/stefon-diggs-dream-playing-brother-175841282.html)
+- Feb 10 - ['Everybody's tired': South Dakota tribe sues US over crime](https://news.yahoo.com/everybodys-tired-south-dakota-tribe-173015857.html)
+- Feb 10 - [Putin launches major Ukraine offensive with hail of missiles](https://news.yahoo.com/russias-major-offensive-definitely-started-141932239.html)
+- Feb 10 - [Texas AG settles with former aides who reported him to FBI](https://news.yahoo.com/texas-ag-settles-former-aides-171705927.html)
+- Feb 10 - [Super Bowl ad about a dog and its owner's lifelong love for each other will melt your heart](https://news.yahoo.com/super-bowl-ad-dog-owners-163531687.html)
 <!-- feed end -->
