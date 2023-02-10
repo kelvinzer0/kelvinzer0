@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 10 - [Stefon Diggs on 'dream' of playing with his brother Trevon](https://news.yahoo.com/stefon-diggs-dream-playing-brother-175841282.html)
+- Feb 10 - [Turkey earthquake fault lines mapped from space](https://news.yahoo.com/turkey-earthquake-fault-lines-mapped-174335258.html)
+- Feb 10 - [Ad Meter 2023: Pepsi Zero Sugar featuring Steve Martin](https://news.yahoo.com/ad-meter-2023-pepsi-zero-183447725.html)
+- Feb 10 - [Ad Meter 2023: Avocados from Mexico "Make It Better"](https://news.yahoo.com/ad-meter-2023-avocados-mexico-182754176.html)
 - Feb 10 - ['Everybody's tired': South Dakota tribe sues US over crime](https://news.yahoo.com/everybodys-tired-south-dakota-tribe-173015857.html)
 - Feb 10 - [Putin launches major Ukraine offensive with hail of missiles](https://news.yahoo.com/russias-major-offensive-definitely-started-141932239.html)
-- Feb 10 - [Texas AG settles with former aides who reported him to FBI](https://news.yahoo.com/texas-ag-settles-former-aides-171705927.html)
-- Feb 10 - [Super Bowl ad about a dog and its owner's lifelong love for each other will melt your heart](https://news.yahoo.com/super-bowl-ad-dog-owners-163531687.html)
 <!-- feed end -->
