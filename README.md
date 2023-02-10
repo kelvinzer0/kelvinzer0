@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 10 - [New poll shows Americans at odds over Black history](https://news.yahoo.com/new-poll-shows-americans-at-odds-over-black-history-222030915.html)
+- Feb 10 - [How a female gibbon locked in a cage alone in Japan got pregnant](https://news.yahoo.com/female-gibbon-locked-cage-alone-215404436.html)
+- Feb 10 - [A manager of 95 Phoenix Airbnbs is stunned that half his homes are empty over Super Bowl weekend. Is it the latest Airbnbust?](https://news.yahoo.com/manager-95-phoenix-airbnbs-stunned-210658130.html)
 - Feb 10 - [Tennessee GOP introduces bills that would shake up Nashville](https://news.yahoo.com/tennessee-gop-introduces-bills-shake-205838792.html)
-- Feb 10 - [Fox News anchor Julie Banderas dropped some \"breaking news\" on Gutfeld](https://news.yahoo.com/fox-news-anchor-julie-banderas-202314699.html)
-- Feb 10 - [Trump rape case: After 3 years, the former president finally agrees to submit DNA. Here's why it could be too late.](https://news.yahoo.com/trump-rape-case-3-years-201055673.html)
-- Feb 10 - [Texas Mother Demanding Answers After Her 6-Year-Old Son Was Sexually Assaulted On School Bus](https://news.yahoo.com/texas-mother-demanding-answers-her-190843654.html)
-- Feb 10 - [Golfers saw ‘something’ by a pool in a gated community in Florida. It was alive](https://news.yahoo.com/golfers-saw-something-pool-gated-190726117.html)
+- Feb 10 - [Louisiana man allegedly cut tails off live rodents in videos](https://news.yahoo.com/louisiana-man-allegedly-cut-tails-205219162.html)
 <!-- feed end -->
