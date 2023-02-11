@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 11 - [Panel scolds Wisconsin justice for remarks in Trump case](https://news.yahoo.com/panel-scolds-wisconsin-justice-remarks-125451434.html)
+- Feb 11 - [Ukraine claims its first kill of Russia's 'Terminator' armored vehicle, believed to be one of Putin's most advanced weapon systems](https://news.yahoo.com/ukraine-claims-first-kill-russias-124016963.html)
 - Feb 11 - [Ukraine reports record-high number of Russian troops killed in a single day](https://news.yahoo.com/ukraine-reports-record-high-number-111900156.html)
 - Feb 11 - [A man moved to a remote village and cut contact with loved ones. He reappeared months later 137 pounds lighter and says he's broken a decades-long cycle of weight loss and gain.](https://news.yahoo.com/man-moved-remote-village-cut-100000220.html)
 - Feb 11 - [A Trump lawyer said a current aide's laptop turned in to federal investigators contained a copy of a classified folder, report says](https://news.yahoo.com/trump-lawyer-said-current-aides-074513832.html)
-- Feb 11 - [HMS Queen Elizabeth chases away Chinese spy submarine](https://news.yahoo.com/hms-queen-elizabeth-chases-away-060000935.html)
-- Feb 11 - [Actually, the Kevin Durant trade is the worst in Arizona sports history](https://news.yahoo.com/actually-kevin-durant-trade-worst-220558010.html)
 <!-- feed end -->
