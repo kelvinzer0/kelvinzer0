@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 10 - [New poll shows Americans at odds over Black history](https://news.yahoo.com/new-poll-shows-americans-at-odds-over-black-history-222030915.html)
-- Feb 10 - [How a female gibbon locked in a cage alone in Japan got pregnant](https://news.yahoo.com/female-gibbon-locked-cage-alone-215404436.html)
-- Feb 10 - [A manager of 95 Phoenix Airbnbs is stunned that half his homes are empty over Super Bowl weekend. Is it the latest Airbnbust?](https://news.yahoo.com/manager-95-phoenix-airbnbs-stunned-210658130.html)
-- Feb 10 - [Tennessee GOP introduces bills that would shake up Nashville](https://news.yahoo.com/tennessee-gop-introduces-bills-shake-205838792.html)
-- Feb 10 - [Louisiana man allegedly cut tails off live rodents in videos](https://news.yahoo.com/louisiana-man-allegedly-cut-tails-205219162.html)
+- Feb 11 - [33 Pictures That Make Me Laugh Uncontrollably No Matter How Many Times I've Seen Them](https://news.yahoo.com/33-pictures-laugh-uncontrollably-no-005028622.html)
+- Feb 11 - [Actually, the Kevin Durant trade is the worst in Arizona sports history](https://news.yahoo.com/actually-kevin-durant-trade-worst-220558010.html)
+- Feb 10 - [‘Days of Our Lives’ Star Cody Longo Found Dead at 34](https://news.yahoo.com/days-lives-star-cody-longo-235018386.html)
+- Feb 10 - [4 students charged in N.J. school hallway attack on girl who killed herself days later](https://news.yahoo.com/4-students-charged-n-j-232915955.html)
+- Feb 10 - [Fact check: False claim Rep. Lauren Boebert said Chinese balloon's altitude of 60,000 feet was a mile](https://news.yahoo.com/fact-check-false-claim-rep-232730114.html)
 <!-- feed end -->
