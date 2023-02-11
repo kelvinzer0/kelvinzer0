@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Feb 11 - [A Trump lawyer said a current aide's laptop turned in to federal investigators contained a copy of a classified folder, report says](https://news.yahoo.com/trump-lawyer-said-current-aides-074513832.html)
 - Feb 11 - [Actually, the Kevin Durant trade is the worst in Arizona sports history](https://news.yahoo.com/actually-kevin-durant-trade-worst-220558010.html)
 - Feb 11 - [Kari Lake's Idea For A 'Really Fair' Election Is Her Most Bonkers One Yet](https://news.yahoo.com/kari-lakes-idea-really-fair-032843178.html)
-- Feb 11 - [Scott announces new Social Security, Medicare bill amid Biden feud](https://news.yahoo.com/scott-announces-social-security-medicare-001813836.html)
+- Feb 11 - ['I Tore 'Em To Pieces': Marjorie Taylor Greene Reportedly Erupts At Balloon Briefing](https://news.yahoo.com/tore-em-pieces-marjorie-taylor-015730595.html)
 <!-- feed end -->
