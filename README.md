@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 11 - [Twelve arrested by Turkish authorities over earthquake building collapses](https://news.yahoo.com/austria-suspends-rescue-operation-turkey-124936580.html)
+- Feb 11 - [33 Pictures That Make Me Laugh Uncontrollably No Matter How Many Times I've Seen Them](https://news.yahoo.com/33-pictures-laugh-uncontrollably-no-005028622.html)
 - Feb 11 - [Why Trump officials were unaware of Chinese spy balloons](https://news.yahoo.com/why-trump-officials-were-unaware-170000489.html)
 - Feb 11 - [Mystery surrounds what exactly was object US jet shot down over Alaska](https://news.yahoo.com/mystery-surrounds-exactly-object-us-163522536.html)
 - Feb 11 - [Five people injured after an American Airlines plane crashed into a passenger shuttle bus at LAX](https://news.yahoo.com/five-people-injured-american-airlines-155812730.html)
-- Feb 11 - [The sun just did something weird, and 3 other space stories you may have missed this week](https://news.yahoo.com/this-week-in-space-sun-exoplanet-kuiper-belt-154354360.html)
+- Feb 11 - [Debbie Wasserman Schultz Gives Fox News Analyst A Harsh Lesson On Opinion vs. Fact](https://news.yahoo.com/debbie-wasserman-schultz-gives-fox-140011365.html)
 <!-- feed end -->
