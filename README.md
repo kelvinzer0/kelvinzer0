@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 11 - [Mystery surrounds what exactly was object US jet shot down over Alaska](https://news.yahoo.com/mystery-surrounds-exactly-object-us-163522536.html)
+- Feb 11 - [Matt Gaetz Honors Accused Murderer In First Judiciary Committee Meeting](https://news.yahoo.com/matt-gaetz-honors-accused-murderer-203543512.html)
+- Feb 11 - [Security Council Secretary: Russians have started "huge offensive", but have huge problems with it](https://news.yahoo.com/security-council-secretary-russians-started-200932909.html)
 - Feb 11 - [Texas dad convicted of murder in fatal shootings by teen son](https://news.yahoo.com/texas-dad-convicted-murder-fatal-192231042.html)
 - Feb 11 - [New Hampshire students protest urinal ban in gender debate](https://news.yahoo.com/hampshire-students-protest-urinal-ban-182713617.html)
-- Feb 11 - [Channing Tatum says he embarrassed himself by asking Matt Damon where he's from: 'Everyone on the planet knows where Matt Damon is from'](https://news.yahoo.com/channing-tatum-says-embarrassed-himself-175433498.html)
-- Feb 11 - [Cold ‘we haven’t felt in some time’ is coming to South Florida. Here’s a timeline](https://news.yahoo.com/cold-haven-t-felt-time-172312173.html)
 <!-- feed end -->
