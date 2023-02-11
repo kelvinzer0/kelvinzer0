@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 11 - [People Are Sharing Songs They Didn’t Realize Were Overtly Sexual Until They Grew Up, And I Confess I Was One Of The Gullible Little Goobers](https://news.yahoo.com/people-sharing-songs-didn-t-215759876.html)
+- Feb 11 - [Five people injured after an American Airlines plane crashed into a passenger shuttle bus at LAX](https://news.yahoo.com/five-people-injured-american-airlines-155812730.html)
 - Feb 11 - [Debbie Wasserman Schultz Gives Fox News Analyst A Harsh Lesson On Opinion vs. Fact](https://news.yahoo.com/debbie-wasserman-schultz-gives-fox-140011365.html)
-- Feb 11 - [In Pakistan, angry mob lynches man accused of blasphemy](https://news.yahoo.com/pakistan-angry-mob-lynches-man-135124298.html)
-- Feb 11 - [Bickering bogs down Capitol riot trial of Proud Boys leaders](https://news.yahoo.com/bickering-bogs-down-capitol-riot-133308143.html)
 - Feb 11 - [Panel scolds Wisconsin justice for remarks in Trump case](https://news.yahoo.com/panel-scolds-wisconsin-justice-remarks-125451434.html)
+- Feb 11 - [Russian drone boat full of explosives strikes vital bridge](https://news.yahoo.com/russia-ukraine-war-latest-news-093841917.html)
+- Feb 11 - [Ukraine claims its first kill of Russia's 'Terminator' armored vehicle, believed to be one of Putin's most advanced weapon systems](https://news.yahoo.com/ukraine-claims-first-kill-russias-124016963.html)
 <!-- feed end -->
