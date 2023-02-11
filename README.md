@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 11 - [Kari Lake's Idea For A 'Really Fair' Election Is Her Most Bonkers One Yet](https://news.yahoo.com/kari-lakes-idea-really-fair-032843178.html)
 - Feb 11 - [Actually, the Kevin Durant trade is the worst in Arizona sports history](https://news.yahoo.com/actually-kevin-durant-trade-worst-220558010.html)
 - Feb 11 - [Scott announces new Social Security, Medicare bill amid Biden feud](https://news.yahoo.com/scott-announces-social-security-medicare-001813836.html)
 - Feb 10 - [‘Days of Our Lives’ Star Cody Longo Found Dead at 34](https://news.yahoo.com/days-lives-star-cody-longo-235018386.html)
-- Feb 10 - [4 students charged in N.J. school hallway attack on girl who killed herself days later](https://news.yahoo.com/4-students-charged-n-j-232915955.html)
 - Feb 10 - [Fact check: False claim Rep. Lauren Boebert said Chinese balloon's altitude of 60,000 feet was a mile](https://news.yahoo.com/fact-check-false-claim-rep-232730114.html)
 <!-- feed end -->
