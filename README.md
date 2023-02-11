@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 11 - [A man moved to a remote village and cut contact with loved ones. He reappeared months later 137 pounds lighter and says he's broken a decades-long cycle of weight loss and gain.](https://news.yahoo.com/man-moved-remote-village-cut-100000220.html)
 - Feb 11 - [A Trump lawyer said a current aide's laptop turned in to federal investigators contained a copy of a classified folder, report says](https://news.yahoo.com/trump-lawyer-said-current-aides-074513832.html)
 - Feb 11 - [Actually, the Kevin Durant trade is the worst in Arizona sports history](https://news.yahoo.com/actually-kevin-durant-trade-worst-220558010.html)
 - Feb 11 - [Kari Lake's Idea For A 'Really Fair' Election Is Her Most Bonkers One Yet](https://news.yahoo.com/kari-lakes-idea-really-fair-032843178.html)
 - Feb 11 - [Scott announces new Social Security, Medicare bill amid Biden feud](https://news.yahoo.com/scott-announces-social-security-medicare-001813836.html)
-- Feb 10 - [‘Days of Our Lives’ Star Cody Longo Found Dead at 34](https://news.yahoo.com/days-lives-star-cody-longo-235018386.html)
 <!-- feed end -->
