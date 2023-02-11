@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 11 - [33 Pictures That Make Me Laugh Uncontrollably No Matter How Many Times I've Seen Them](https://news.yahoo.com/33-pictures-laugh-uncontrollably-no-005028622.html)
+- Feb 11 - [Cody Longo, 'Days of Our Lives' actor, dead at 34](https://news.yahoo.com/cody-longo-days-lives-actor-180112041.html)
+- Feb 11 - [Texas dad convicted of murder in fatal shootings by teen son](https://news.yahoo.com/texas-dad-convicted-murder-fatal-192231042.html)
+- Feb 11 - [New Hampshire students protest urinal ban in gender debate](https://news.yahoo.com/hampshire-students-protest-urinal-ban-182713617.html)
+- Feb 11 - [Channing Tatum says he embarrassed himself by asking Matt Damon where he's from: 'Everyone on the planet knows where Matt Damon is from'](https://news.yahoo.com/channing-tatum-says-embarrassed-himself-175433498.html)
 - Feb 11 - [Why Trump officials were unaware of Chinese spy balloons](https://news.yahoo.com/why-trump-officials-were-unaware-170000489.html)
-- Feb 11 - [Mystery surrounds what exactly was object US jet shot down over Alaska](https://news.yahoo.com/mystery-surrounds-exactly-object-us-163522536.html)
-- Feb 11 - [Five people injured after an American Airlines plane crashed into a passenger shuttle bus at LAX](https://news.yahoo.com/five-people-injured-american-airlines-155812730.html)
-- Feb 11 - [Debbie Wasserman Schultz Gives Fox News Analyst A Harsh Lesson On Opinion vs. Fact](https://news.yahoo.com/debbie-wasserman-schultz-gives-fox-140011365.html)
 <!-- feed end -->
