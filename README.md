@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 11 - [Debbie Wasserman Schultz Gives Fox News Analyst A Harsh Lesson On Opinion vs. Fact](https://news.yahoo.com/debbie-wasserman-schultz-gives-fox-140011365.html)
 - Feb 11 - [Panel scolds Wisconsin justice for remarks in Trump case](https://news.yahoo.com/panel-scolds-wisconsin-justice-remarks-125451434.html)
+- Feb 11 - [Austria suspends rescue operation in Turkey after ‘clashes’](https://news.yahoo.com/austria-suspends-rescue-operation-turkey-124936580.html)
 - Feb 11 - [Ukraine claims its first kill of Russia's 'Terminator' armored vehicle, believed to be one of Putin's most advanced weapon systems](https://news.yahoo.com/ukraine-claims-first-kill-russias-124016963.html)
 - Feb 11 - [Ukraine reports record-high number of Russian troops killed in a single day](https://news.yahoo.com/ukraine-reports-record-high-number-111900156.html)
-- Feb 11 - [A man moved to a remote village and cut contact with loved ones. He reappeared months later 137 pounds lighter and says he's broken a decades-long cycle of weight loss and gain.](https://news.yahoo.com/man-moved-remote-village-cut-100000220.html)
-- Feb 11 - [A Trump lawyer said a current aide's laptop turned in to federal investigators contained a copy of a classified folder, report says](https://news.yahoo.com/trump-lawyer-said-current-aides-074513832.html)
 <!-- feed end -->
