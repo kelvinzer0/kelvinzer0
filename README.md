@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 11 - [Beyoncé Turned Down A Drink From Jay-Z In The Middle Of The Grammys, And People Have Theories About What Was Actually Happening](https://news.yahoo.com/jay-z-offered-beyonc-drink-020203588.html)
 - Feb 11 - [Mystery surrounds what exactly was object US jet shot down over Alaska](https://news.yahoo.com/mystery-surrounds-exactly-object-us-163522536.html)
 - Feb 11 - [Matt Gaetz Honors Accused Murderer In First Judiciary Committee Meeting](https://news.yahoo.com/matt-gaetz-honors-accused-murderer-203543512.html)
 - Feb 11 - [Security Council Secretary: Russians have started "huge offensive", but have huge problems with it](https://news.yahoo.com/security-council-secretary-russians-started-200932909.html)
 - Feb 11 - [Texas dad convicted of murder in fatal shootings by teen son](https://news.yahoo.com/texas-dad-convicted-murder-fatal-192231042.html)
-- Feb 11 - [New Hampshire students protest urinal ban in gender debate](https://news.yahoo.com/hampshire-students-protest-urinal-ban-182713617.html)
 <!-- feed end -->
