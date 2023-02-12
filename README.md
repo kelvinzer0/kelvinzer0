@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 12 - [Trudeau: US fighter shot down object over Canada](https://news.yahoo.com/trudeau-us-fighter-shot-down-183055776.html)
+- Feb 12 - [Chris Christie says House GOP jeering Biden at State of the Union was ‘big mistake’](https://news.yahoo.com/chris-christie-says-house-gop-181010090.html)
 - Feb 12 - [Scientist reports first rocket launch of a drone in Ukraine — video](https://news.yahoo.com/scientist-reports-first-rocket-launch-154000548.html)
+- Feb 12 - [Chinese authorities said they were preparing to shoot down an 'unidentified flying object' spotted near the Yellow Sea](https://news.yahoo.com/chinese-authorities-said-were-preparing-153840026.html)
 - Feb 12 - [They Are Russians Fighting Against Their Homeland. Here's Why.](https://news.yahoo.com/russians-fighting-against-homeland-heres-153830647.html)
-- Feb 12 - [Adult actress reportedly taken to hospital after shooting scene: 'Almost killed her'](https://news.yahoo.com/adult-actress-reportedly-taken-hospital-150021846.html)
-- Feb 12 - [Montana Airspace Temporarily Closed due to ‘Radar Anomaly’](https://news.yahoo.com/montana-airspace-temporarily-closed-due-144743747.html)
-- Feb 12 - [I stayed alone at a dessert-themed Tokyo hotel designed for sex and romance, and I recommend it to open-minded solo travelers](https://news.yahoo.com/stayed-alone-dessert-themed-tokyo-142600193.html)
 <!-- feed end -->
