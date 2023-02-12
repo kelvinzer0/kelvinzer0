@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 12 - [Army sees safety, not 'wokeness,' as top recruiting obstacle](https://news.yahoo.com/army-sees-safety-not-wokeness-124835984.html)
 - Feb 12 - [China Spots Unidentified Object Flying Near Port City: Paper](https://news.yahoo.com/china-spots-unidentified-object-flying-113000791.html)
+- Feb 12 - [Letters to the editor for Sunday, February 12, 2023](https://news.yahoo.com/letters-editor-sunday-february-12-110121730.html)
 - Feb 12 - [‘Lake Tahoe has a people problem’: how a resort town became unlivable](https://news.yahoo.com/lake-tahoe-people-problem-resort-110022162.html)
-- Feb 12 - [An anonymous donor reportedly walked into the Turkish Embassy in the US and gave $30 million to aid victims of the devastating earthquake](https://news.yahoo.com/anonymous-donor-reportedly-walked-turkish-104216641.html)
-- Feb 12 - [Turkey detains building contractors as quake deaths pass 33K](https://news.yahoo.com/turkey-arrests-building-contractors-6-093941861.html)
 - Feb 12 - [Rep. Jim Jordan criticized online after saying 'only Americans should vote in American elections'](https://news.yahoo.com/rep-jim-jordan-criticized-online-092904130.html)
 <!-- feed end -->
