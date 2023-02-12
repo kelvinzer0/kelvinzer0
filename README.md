@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 12 - [I Honestly Believe No One Under The Age Of 20 Will Know What Any Of These Things Are](https://news.yahoo.com/honestly-believe-no-one-under-234702579.html)
 - Feb 12 - [Chris Christie says House GOP jeering Biden at State of the Union was ‘big mistake’](https://news.yahoo.com/chris-christie-says-house-gop-181010090.html)
+- Feb 12 - [FAA abruptly cancels 'national defense airspace' over Lake Michigan after reporting 'potential contact'](https://news.yahoo.com/faa-abruptly-cancels-national-defense-180749675.html)
 - Feb 12 - [Florida deputies rescue missing 4-year-old boy in woods, reunite him with father](https://news.yahoo.com/florida-deputies-rescue-missing-4-170029140.html)
 - Feb 12 - [Scientist reports first rocket launch of a drone in Ukraine — video](https://news.yahoo.com/scientist-reports-first-rocket-launch-154000548.html)
 - Feb 12 - [Chinese authorities said they were preparing to shoot down an 'unidentified flying object' spotted near the Yellow Sea](https://news.yahoo.com/chinese-authorities-said-were-preparing-153840026.html)
