@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 12 - [Superintendent Resigns After Bashing Family of Student Who Killed Herself](https://news.yahoo.com/superintendent-resigns-bashing-family-student-043317531.html)
 - Feb 11 - [Republicans react to third 'object' shot down over Canada: 'Unprecedented challenge'](https://news.yahoo.com/republicans-react-third-object-shot-230607320.html)
 - Feb 11 - [Union: Fired EMTs didn't get enough info in Nichols response](https://news.yahoo.com/union-fired-emts-didnt-enough-230032187.html)
 - Feb 11 - [4 city inspectors slain at Mexico's Playa del Carmen resort](https://news.yahoo.com/4-city-inspectors-slain-mexicos-222624902.html)
 - Feb 11 - [Mystery surrounds what exactly was object US jet shot down over Alaska](https://news.yahoo.com/mystery-surrounds-exactly-object-us-163522536.html)
-- Feb 11 - [Matt Gaetz Honors Accused Murderer In First Judiciary Committee Meeting](https://news.yahoo.com/matt-gaetz-honors-accused-murderer-203543512.html)
 <!-- feed end -->
