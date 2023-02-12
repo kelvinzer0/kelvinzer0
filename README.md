@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 12 - [14 Actors Who Turned Down Roles They Found Offensive, Uncomfortable, Or A Better Fit For Someone Else To Play](https://news.yahoo.com/14-actors-turned-down-roles-005849563.html)
+- Feb 12 - [An anonymous donor reportedly walked into the Turkish Embassy in the US and gave $30 million to aid victims of the devastating earthquake](https://news.yahoo.com/anonymous-donor-reportedly-walked-turkish-104216641.html)
+- Feb 12 - [Turkey arrests building contractors 6 days after quakes](https://news.yahoo.com/turkey-arrests-building-contractors-6-093941861.html)
+- Feb 12 - [Rep. Jim Jordan criticized online after saying 'only Americans should vote in American elections'](https://news.yahoo.com/rep-jim-jordan-criticized-online-092904130.html)
 - Feb 12 - [British Intelligence reveals reasons for Russia's heavy losses](https://news.yahoo.com/british-intelligence-reveals-reasons-russias-073850371.html)
-- Feb 12 - [Superintendent Resigns After Bashing Family of Student Who Killed Herself](https://news.yahoo.com/superintendent-resigns-bashing-family-student-043317531.html)
-- Feb 12 - [Russell shines in return to Lakers after trade by T-Wolves](https://news.yahoo.com/russell-shines-return-lakers-trade-042026582.html)
-- Feb 12 - [California attorney Elliot Blair found dead on Mexico vacation likely 'hit and dragged': lawyer](https://news.yahoo.com/california-attorney-elliot-blair-found-024106049.html)
-- Feb 11 - [Republicans react to third 'object' shot down over Canada: 'Unprecedented challenge'](https://news.yahoo.com/republicans-react-third-object-shot-230607320.html)
 <!-- feed end -->
