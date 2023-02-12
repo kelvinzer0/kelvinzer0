@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 12 - [Superintendent Resigns After Bashing Family of Student Who Killed Herself](https://news.yahoo.com/superintendent-resigns-bashing-family-student-043317531.html)
+- Feb 12 - [Russell shines in return to Lakers after trade by T-Wolves](https://news.yahoo.com/russell-shines-return-lakers-trade-042026582.html)
+- Feb 12 - [California attorney Elliot Blair found dead on Mexico vacation likely 'hit and dragged': lawyer](https://news.yahoo.com/california-attorney-elliot-blair-found-024106049.html)
 - Feb 11 - [Republicans react to third 'object' shot down over Canada: 'Unprecedented challenge'](https://news.yahoo.com/republicans-react-third-object-shot-230607320.html)
 - Feb 11 - [Union: Fired EMTs didn't get enough info in Nichols response](https://news.yahoo.com/union-fired-emts-didnt-enough-230032187.html)
-- Feb 11 - [4 city inspectors slain at Mexico's Playa del Carmen resort](https://news.yahoo.com/4-city-inspectors-slain-mexicos-222624902.html)
-- Feb 11 - [Mystery surrounds what exactly was object US jet shot down over Alaska](https://news.yahoo.com/mystery-surrounds-exactly-object-us-163522536.html)
 <!-- feed end -->
