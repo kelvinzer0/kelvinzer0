@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 12 - [British Intelligence reveals reasons for Russia's heavy losses](https://news.yahoo.com/british-intelligence-reveals-reasons-russias-073850371.html)
 - Feb 12 - [Superintendent Resigns After Bashing Family of Student Who Killed Herself](https://news.yahoo.com/superintendent-resigns-bashing-family-student-043317531.html)
 - Feb 12 - [Russell shines in return to Lakers after trade by T-Wolves](https://news.yahoo.com/russell-shines-return-lakers-trade-042026582.html)
 - Feb 12 - [California attorney Elliot Blair found dead on Mexico vacation likely 'hit and dragged': lawyer](https://news.yahoo.com/california-attorney-elliot-blair-found-024106049.html)
 - Feb 11 - [Republicans react to third 'object' shot down over Canada: 'Unprecedented challenge'](https://news.yahoo.com/republicans-react-third-object-shot-230607320.html)
-- Feb 11 - [Union: Fired EMTs didn't get enough info in Nichols response](https://news.yahoo.com/union-fired-emts-didnt-enough-230032187.html)
 <!-- feed end -->
