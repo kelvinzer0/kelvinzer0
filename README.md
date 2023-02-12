@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 12 - [Scientist reports first rocket launch of a drone in Ukraine — video](https://news.yahoo.com/scientist-reports-first-rocket-launch-154000548.html)
+- Feb 12 - [They Are Russians Fighting Against Their Homeland. Here's Why.](https://news.yahoo.com/russians-fighting-against-homeland-heres-153830647.html)
+- Feb 12 - [Adult actress reportedly taken to hospital after shooting scene: 'Almost killed her'](https://news.yahoo.com/adult-actress-reportedly-taken-hospital-150021846.html)
 - Feb 12 - [Montana Airspace Temporarily Closed due to ‘Radar Anomaly’](https://news.yahoo.com/montana-airspace-temporarily-closed-due-144743747.html)
 - Feb 12 - [I stayed alone at a dessert-themed Tokyo hotel designed for sex and romance, and I recommend it to open-minded solo travelers](https://news.yahoo.com/stayed-alone-dessert-themed-tokyo-142600193.html)
-- Feb 12 - [Dramatic photos show Lake Oroville's rise after epic storms](https://news.yahoo.com/dramatic-photos-show-lake-orovilles-130008940.html)
-- Feb 12 - [Army sees safety, not 'wokeness,' as top recruiting obstacle](https://news.yahoo.com/army-sees-safety-not-wokeness-124835984.html)
-- Feb 12 - [China Spots Unidentified Object Flying Near Port City: Paper](https://news.yahoo.com/china-spots-unidentified-object-flying-113000791.html)
 <!-- feed end -->
