@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 12 - [Megan Fox Sparks Machine Gun Kelly Breakup Rumors With Cryptic Post](https://news.yahoo.com/megan-fox-sparks-machine-gun-210600479.html)
+- Feb 12 - [33 Pictures That Make Me Laugh Uncontrollably No Matter How Many Times I've Seen Them](https://news.yahoo.com/33-pictures-laugh-uncontrollably-no-005028622.html)
+- Feb 12 - [Megan Fox posts racy revenge photo before deleting Instagram amid breakup rumors with Machine Gun Kelly](https://news.yahoo.com/megan-fox-posts-racy-revenge-201658694.html)
+- Feb 12 - [Kate Winslet says filming sex scenes with Leonardo DiCaprio in front of her then-husband was 'a bit weird'](https://news.yahoo.com/kate-winslet-says-filming-sex-201221546.html)
 - Feb 12 - [Chris Christie says House GOP jeering Biden at State of the Union was ‘big mistake’](https://news.yahoo.com/chris-christie-says-house-gop-181010090.html)
 - Feb 12 - [FAA abruptly cancels 'national defense airspace' over Lake Michigan after reporting 'potential contact'](https://news.yahoo.com/faa-abruptly-cancels-national-defense-180749675.html)
-- Feb 12 - [Florida deputies rescue missing 4-year-old boy in woods, reunite him with father](https://news.yahoo.com/florida-deputies-rescue-missing-4-170029140.html)
-- Feb 12 - [Scientist reports first rocket launch of a drone in Ukraine — video](https://news.yahoo.com/scientist-reports-first-rocket-launch-154000548.html)
 <!-- feed end -->
