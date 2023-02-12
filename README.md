@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 12 - [Russia ‘suffering unprecedented battlefield casualties’](https://news.yahoo.com/russia-suffering-unprecedented-battlefield-casualties-150007914.html)
+- Feb 12 - [Montana Airspace Temporarily Closed due to ‘Radar Anomaly’](https://news.yahoo.com/montana-airspace-temporarily-closed-due-144743747.html)
+- Feb 12 - [I stayed alone at a dessert-themed Tokyo hotel designed for sex and romance, and I recommend it to open-minded solo travelers](https://news.yahoo.com/stayed-alone-dessert-themed-tokyo-142600193.html)
+- Feb 12 - [Dramatic photos show Lake Oroville's rise after epic storms](https://news.yahoo.com/dramatic-photos-show-lake-orovilles-130008940.html)
 - Feb 12 - [Army sees safety, not 'wokeness,' as top recruiting obstacle](https://news.yahoo.com/army-sees-safety-not-wokeness-124835984.html)
-- Feb 12 - [China Spots Unidentified Object Flying Near Port City: Paper](https://news.yahoo.com/china-spots-unidentified-object-flying-113000791.html)
-- Feb 12 - [Letters to the editor for Sunday, February 12, 2023](https://news.yahoo.com/letters-editor-sunday-february-12-110121730.html)
-- Feb 12 - [‘Lake Tahoe has a people problem’: how a resort town became unlivable](https://news.yahoo.com/lake-tahoe-people-problem-resort-110022162.html)
-- Feb 12 - [Rep. Jim Jordan criticized online after saying 'only Americans should vote in American elections'](https://news.yahoo.com/rep-jim-jordan-criticized-online-092904130.html)
 <!-- feed end -->
