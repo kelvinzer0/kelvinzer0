@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 12 - [Ashton Kutcher Says Dealing With Vasculitis Makes Red Carpets Hard Following Those Awkward Photos With Reese Witherspoon](https://news.yahoo.com/ashton-kutcher-says-dealing-vasculitis-005330816.html)
 - Feb 11 - [Trump was issued subpoena for folder marked ‘Classified Evening Briefing’ discovered at Mar-a-Lago](https://news.yahoo.com/trump-issued-subpoena-folder-marked-234108973.html)
 - Feb 11 - [Union: Fired EMTs didn't get enough info in Nichols response](https://news.yahoo.com/union-fired-emts-didnt-enough-230032187.html)
+- Feb 11 - [4 city inspectors slain at Mexico's Playa del Carmen resort](https://news.yahoo.com/4-city-inspectors-slain-mexicos-222624902.html)
 - Feb 11 - [Mystery surrounds what exactly was object US jet shot down over Alaska](https://news.yahoo.com/mystery-surrounds-exactly-object-us-163522536.html)
 - Feb 11 - [Matt Gaetz Honors Accused Murderer In First Judiciary Committee Meeting](https://news.yahoo.com/matt-gaetz-honors-accused-murderer-203543512.html)
 <!-- feed end -->
