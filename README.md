@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 13 - [Moldova's President outlines Russian 'plan' to topple gov't](https://news.yahoo.com/moldovas-president-outlines-russian-plan-112819843.html)
+- Feb 13 - [Woman told armed man she preferred a bullet to enduring sex assault, Florida cops say](https://news.yahoo.com/woman-told-armed-man-she-123831519.html)
+- Feb 13 - [Patrick Mahomes’ halftime speech changed it all. His teammates got him back post-game](https://news.yahoo.com/patrick-mahomes-halftime-speech-changed-120000008.html)
+- Feb 13 - [A Russian general was poisoned by a letter laced with an unknown toxin, close Putin ally says](https://news.yahoo.com/russian-general-poisoned-letter-laced-115952476.html)
 - Feb 13 - [Wagner Group Release ANOTHER Sledgehammer Execution Video](https://news.yahoo.com/wagner-group-release-another-sledgehammer-112608023.html)
-- Feb 13 - [Police have uncovered a ring of 17 men believed to have filmed 10,000 women bathing in hot springs across Japan](https://news.yahoo.com/police-uncovered-ring-17-men-100303985.html)
-- Feb 13 - [A job applicant who lost her hair when she had cancer says interviewers called her headpiece not 'professional' enough](https://news.yahoo.com/job-applicant-lost-her-hair-094500328.html)
-- Feb 13 - [Ukrainian troops destroy elite Russian naval brigade near Vuhledar – again](https://news.yahoo.com/ukrainian-troops-destroy-elite-russian-092500000.html)
+- Feb 13 - [China says more than 10 US balloons flew in its airspace](https://news.yahoo.com/china-says-more-10-us-104706295.html)
 <!-- feed end -->
