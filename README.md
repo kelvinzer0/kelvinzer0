@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 13 - [U.S. military shoots down unidentified objects](https://news.yahoo.com/u-military-shoots-down-unidentified-183303777.html)
+- Feb 13 - [16 Colorful, Mood-Boosting Houseplants to Brighten Your Space](https://news.yahoo.com/16-colorful-mood-boosting-houseplants-200034561.html)
+- Feb 13 - [White House says China has high-altitude balloon program for intelligence collection](https://news.yahoo.com/white-house-says-china-high-193738229.html)
+- Feb 13 - [Biden fires Architect of the Capitol over alleged abuses](https://news.yahoo.com/biden-fires-architect-capitol-over-192705070.html)
+- Feb 13 - [McCarthy calls for resignation of Architect of Capitol](https://news.yahoo.com/mccarthy-calls-resignation-architect-capitol-191344767.html)
 - Feb 13 - ['Little by little they are winning': Tide turns in key Ukraine city. Live updates as Russian offensive begins.](https://news.yahoo.com/little-little-winning-russian-offensive-153849641.html)
-- Feb 13 - [Angler practicing for tournament in Virginia catches rare fish most have ‘never seen’](https://news.yahoo.com/angler-practicing-tournament-virginia-catches-174105168.html)
-- Feb 13 - [Bella Ramsey said that she wore a chest binder 90% of the time while shooting 'The Last of Us' to focus better on set](https://news.yahoo.com/bella-ramsey-said-she-wore-173619378.html)
-- Feb 13 - [Here's why mysterious flying objects are suddenly popping up all over the place, according to the military command that's been shooting them down](https://news.yahoo.com/heres-why-mysterious-flying-objects-173547135.html)
 <!-- feed end -->
