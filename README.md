@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 13 - [Ad Meter 2023: M&M’S](https://news.yahoo.com/ad-meter-2023-m-m-010304693.html)
-- Feb 12 - [Philadelphia Eagles buses are stuck in traffic on Super Bowl Sunday](https://news.yahoo.com/philadelphia-eagles-buses-stuck-traffic-223244291.html)
-- Feb 12 - [Megan Fox posts racy revenge photo before deleting Instagram amid breakup rumors with Machine Gun Kelly](https://news.yahoo.com/megan-fox-posts-racy-revenge-201658694.html)
-- Feb 12 - [Kate Winslet says filming sex scenes with Leonardo DiCaprio in front of her then-husband was 'a bit weird'](https://news.yahoo.com/kate-winslet-says-filming-sex-201221546.html)
-- Feb 12 - [Chris Christie says House GOP jeering Biden at State of the Union was ‘big mistake’](https://news.yahoo.com/chris-christie-says-house-gop-181010090.html)
+- Feb 13 - [‘Do football, not wokeness.’ Boebert’s tweet sets off debate over Super Bowl anthems](https://news.yahoo.com/football-not-wokeness-boebert-tweet-003517145.html)
+- Feb 13 - [Super Bowl ads use nostalgia, star power and light laughs](https://news.yahoo.com/look-lots-cute-animals-humor-000558400.html)
+- Feb 12 - [Florida man accused of murdering hotel employee in Kentucky after couple declined to give him lighter](https://news.yahoo.com/florida-man-accused-murdering-hotel-235856667.html)
+- Feb 12 - [Super Bowl ad shows Elon Musk's Tesla cars crashing and ‘killing children’](https://news.yahoo.com/superbowl-ad-shows-elon-musks-200040179.html)
+- Feb 12 - [33 Pictures That Make Me Laugh Uncontrollably No Matter How Many Times I've Seen Them](https://news.yahoo.com/33-pictures-laugh-uncontrollably-no-005028622.html)
 <!-- feed end -->
