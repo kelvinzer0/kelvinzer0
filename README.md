@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 13 - [After their genitals were cut, some women search for healing](https://news.yahoo.com/genitals-were-cut-women-search-143408520.html)
+- Feb 13 - [LeBron James' 'Corny' And 'Embarrassing' Gesture At Super Bowl Riles Up Viewers](https://news.yahoo.com/lebron-james-corny-embarrassing-gesture-142815708.html)
+- Feb 13 - [Super Bowl attack ad shows a Tesla slamming into 2 child-size mannequins and a stroller](https://news.yahoo.com/super-bowl-attack-ad-shows-132305242.html)
 - Feb 13 - [War for control of Haiti's capital targets women's bodies](https://news.yahoo.com/war-control-haitis-capital-targets-130206916.html)
 - Feb 13 - ['Our Losses Were Gigantic': Life in a Sacrificial Russian Assault Wave](https://news.yahoo.com/losses-were-gigantic-life-sacrificial-125037564.html)
-- Feb 13 - [President of Second Country Scrambles to Prevent Putin Incursion](https://news.yahoo.com/president-second-country-scrambles-prevent-124902707.html)
-- Feb 13 - [Patrick Mahomes And Jalen Hurts Reportedly Didn't Shake Hands On Field After Super Bowl](https://news.yahoo.com/patrick-mahomes-jalen-hurts-reportedly-123951149.html)
-- Feb 13 - [Woman told armed man she preferred a bullet to enduring sex assault, Florida cops say](https://news.yahoo.com/woman-told-armed-man-she-123831519.html)
 <!-- feed end -->
