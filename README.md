@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 13 - [Rihanna's Super Bowl halftime show stuns crowd with pregnancy announcement](https://news.yahoo.com/rihannas-super-bowl-halftime-show-154837002.html)
+- Feb 13 - [Woman held against her will discreetly alerts troopers during traffic stop, police say](https://news.yahoo.com/woman-held-against-her-discreetly-154828068.html)
+- Feb 13 - ['Little by little they are winning': Russian offensive underway as tide turns in key Ukraine city. Updates.](https://news.yahoo.com/little-little-winning-russian-offensive-153849641.html)
+- Feb 13 - [Kim Jong Un reportedly wants his daughter to be the only person in North Korea named 'Ju Ae'](https://news.yahoo.com/kim-jong-un-reportedly-wants-153137701.html)
 - Feb 13 - [After their genitals were cut, some women search for healing](https://news.yahoo.com/genitals-were-cut-women-search-143408520.html)
-- Feb 13 - [LeBron James' 'Corny' And 'Embarrassing' Gesture At Super Bowl Riles Up Viewers](https://news.yahoo.com/lebron-james-corny-embarrassing-gesture-142815708.html)
-- Feb 13 - [Super Bowl attack ad shows a Tesla slamming into 2 child-size mannequins and a stroller](https://news.yahoo.com/super-bowl-attack-ad-shows-132305242.html)
-- Feb 13 - [War for control of Haiti's capital targets women's bodies](https://news.yahoo.com/war-control-haitis-capital-targets-130206916.html)
-- Feb 13 - ['Our Losses Were Gigantic': Life in a Sacrificial Russian Assault Wave](https://news.yahoo.com/losses-were-gigantic-life-sacrificial-125037564.html)
 <!-- feed end -->
