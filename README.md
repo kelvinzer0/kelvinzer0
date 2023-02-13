@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 13 - [‘Do football, not wokeness.’ Boebert’s tweet sets off debate over Super Bowl anthems](https://news.yahoo.com/football-not-wokeness-boebert-tweet-003517145.html)
-- Feb 13 - [Super Bowl ads use nostalgia, star power and light laughs](https://news.yahoo.com/look-lots-cute-animals-humor-000558400.html)
+- Feb 13 - [Rihanna and A$AP Rocky are expecting their 2nd child. Here's a complete timeline of their relationship.](https://news.yahoo.com/complete-timeline-rihanna-ap-rockys-221537451.html)
+- Feb 13 - [Chris Stapleton leaves stadium in tears with Super Bowl national anthem performance](https://news.yahoo.com/chris-stapleton-leaves-stadium-tears-015417878.html)
+- Feb 13 - [NYC mayor says COVID mandates may need to return, blasts people who say 'I want to do whatever I want'](https://news.yahoo.com/nyc-mayor-says-covid-mandates-002931679.html)
+- Feb 13 - [Super Bowl ads use celebs, humor, lots of dogs](https://news.yahoo.com/look-lots-cute-animals-humor-000558400.html)
 - Feb 12 - [Florida man accused of murdering hotel employee in Kentucky after couple declined to give him lighter](https://news.yahoo.com/florida-man-accused-murdering-hotel-235856667.html)
-- Feb 12 - [Super Bowl ad shows Elon Musk's Tesla cars crashing and ‘killing children’](https://news.yahoo.com/superbowl-ad-shows-elon-musks-200040179.html)
-- Feb 12 - [33 Pictures That Make Me Laugh Uncontrollably No Matter How Many Times I've Seen Them](https://news.yahoo.com/33-pictures-laugh-uncontrollably-no-005028622.html)
 <!-- feed end -->
