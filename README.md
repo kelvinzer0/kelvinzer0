@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 13 - [Fans say Terry Bradshaw’s ‘rude’ comment to Chiefs coach Andy Reid made him the loser](https://news.yahoo.com/fans-terry-bradshaw-rude-chiefs-042414405.html)
-- Feb 13 - [Kendall Jenner's Newest Alleged Photoshop Fail Is Prob Her Most Bizarre](https://news.yahoo.com/kendall-jenners-newest-alleged-photoshop-041622716.html)
+- Feb 13 - [Trump bashes Rihanna’s Super Bowl halftime performance](https://news.yahoo.com/trump-bashes-rihanna-super-bowl-041032089.html)
 - Feb 13 - [Steve Bannon Ran Up Huge Legal Bills and Stiffed His Lawyers](https://news.yahoo.com/steve-bannon-ran-huge-legal-035804093.html)
+- Feb 13 - [Philippines: China ship hits Filipino crew with laser light](https://news.yahoo.com/philippines-china-ship-hits-filipino-035544202.html)
 - Feb 13 - [Meet the Hunt dynasty, owners of the Kansas City chiefs, and one of the richest families in America](https://news.yahoo.com/meet-hunt-dynasty-owners-kansas-032246168.html)
-- Feb 13 - [What's a catch? Super Bowl raises the question again](https://news.yahoo.com/whats-catch-super-bowl-raises-031438887.html)
 <!-- feed end -->
