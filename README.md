@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 13 - [Fans say Terry Bradshaw’s ‘rude’ comment to Chiefs coach Andy Reid made him the loser](https://news.yahoo.com/fans-terry-bradshaw-rude-chiefs-042414405.html)
 - Feb 13 - [Kendall Jenner's Newest Alleged Photoshop Fail Is Prob Her Most Bizarre](https://news.yahoo.com/kendall-jenners-newest-alleged-photoshop-041622716.html)
-- Feb 13 - [Questionable late flag takes drama out of Super Bowl ending](https://news.yahoo.com/questionable-flag-takes-drama-super-040927622.html)
-- Feb 13 - [U2 returning to stage in Las Vegas, minus one of quartet](https://news.yahoo.com/u2-returning-stage-las-vegas-030524180.html)
-- Feb 13 - [Rihanna halftime show wows, but fans were talking about something else after performance](https://news.yahoo.com/rihanna-halftime-show-wows-fans-025357060.html)
-- Feb 13 - [Chris Stapleton leaves stadium in tears with Super Bowl national anthem performance](https://news.yahoo.com/chris-stapleton-leaves-stadium-tears-015417878.html)
+- Feb 13 - [Steve Bannon Ran Up Huge Legal Bills and Stiffed His Lawyers](https://news.yahoo.com/steve-bannon-ran-huge-legal-035804093.html)
+- Feb 13 - [Meet the Hunt dynasty, owners of the Kansas City chiefs, and one of the richest families in America](https://news.yahoo.com/meet-hunt-dynasty-owners-kansas-032246168.html)
+- Feb 13 - [What's a catch? Super Bowl raises the question again](https://news.yahoo.com/whats-catch-super-bowl-raises-031438887.html)
 <!-- feed end -->
