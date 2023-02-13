@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 13 - [Georgia judge orders partial release of grand jury report showing Trump allies 'may have lied under oath'](https://news.yahoo.com/georgia-judge-orders-partial-release-of-grand-jury-report-showing-trump-allies-may-have-lied-under-oath-223254275.html)
+- Feb 13 - [People who haven't had COVID will likely catch XBB.1.5 – and many will get reinfected, experts say](https://news.yahoo.com/people-havent-had-covid-likely-144149735.html)
+- Feb 13 - [Exclusive: Ex-Russian military bomber engineer seeks asylum at U.S. border, offers military secrets](https://news.yahoo.com/exclusive-ex-russian-military-bomber-engineer-seeks-asylum-at-us-border-offers-military-secrets-220728915.html)
 - Feb 13 - [Marjorie Taylor Greene’s Super Bowl Take Is Hilariously Bad](https://news.yahoo.com/marjorie-taylor-greene-super-bowl-210841044.html)
-- Feb 13 - [NATO secretary general says Russia has started spring offensive against Ukraine](https://news.yahoo.com/nato-secretary-general-says-russia-210453665.html)
 - Feb 13 - [Legendary Hawaii surf photographer captures his own final moments](https://news.yahoo.com/legendary-hawaii-surf-photographer-captures-204908396.html)
-- Feb 13 - [Disappointing photos of Rihanna's halftime show prove you should never have your phone out at a concert](https://news.yahoo.com/disappointing-photos-rihannas-halftime-show-200747471.html)
-- Feb 13 - [Candace Cameron Bure reflects on 'cancel culture' after 'traditional marriage' comments and says it's important that Christians 'don't back down' from their beliefs](https://news.yahoo.com/candace-cameron-bure-reflects-cancel-200332682.html)
 <!-- feed end -->
