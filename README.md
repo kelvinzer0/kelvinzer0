@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 13 - [Police have uncovered a ring of 17 men believed to have filmed 10,000 women bathing in hot springs across Japan](https://news.yahoo.com/police-uncovered-ring-17-men-100303985.html)
+- Feb 13 - [A job applicant who lost her hair when she had cancer says interviewers called her headpiece not 'professional' enough](https://news.yahoo.com/job-applicant-lost-her-hair-094500328.html)
 - Feb 13 - [Another video of "execution" of Wagner Group member with sledgehammer appears online](https://news.yahoo.com/another-video-execution-wagner-group-081615600.html)
 - Feb 13 - [Patrick Mahomes' dad after Super Bowl 57: I'm smoking Philly Blunts instead of Joe Burrows](https://news.yahoo.com/patrick-mahomes-dad-super-bowl-054800258.html)
 - Feb 13 - [Trump Attorney Gives Bizarre Explanation For Classified Folder At Mar-a-Lago](https://news.yahoo.com/trump-attorney-gives-bizarre-explanation-070230651.html)
-- Feb 13 - [Fans say Terry Bradshaw’s ‘rude’ comment to Chiefs coach Andy Reid made him the loser](https://news.yahoo.com/fans-terry-bradshaw-rude-chiefs-042414405.html)
-- Feb 13 - [Trump bashes Rihanna’s Super Bowl halftime performance](https://news.yahoo.com/trump-bashes-rihanna-super-bowl-041032089.html)
 <!-- feed end -->
