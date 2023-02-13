@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 13 - [War for control of Haiti's capital targets women's bodies](https://news.yahoo.com/war-control-haitis-capital-targets-130206916.html)
+- Feb 13 - ['Our Losses Were Gigantic': Life in a Sacrificial Russian Assault Wave](https://news.yahoo.com/losses-were-gigantic-life-sacrificial-125037564.html)
+- Feb 13 - [President of Second Country Scrambles to Prevent Putin Incursion](https://news.yahoo.com/president-second-country-scrambles-prevent-124902707.html)
+- Feb 13 - [Patrick Mahomes And Jalen Hurts Reportedly Didn't Shake Hands On Field After Super Bowl](https://news.yahoo.com/patrick-mahomes-jalen-hurts-reportedly-123951149.html)
 - Feb 13 - [Woman told armed man she preferred a bullet to enduring sex assault, Florida cops say](https://news.yahoo.com/woman-told-armed-man-she-123831519.html)
-- Feb 13 - [Patrick Mahomes’ halftime speech changed it all. His teammates got him back post-game](https://news.yahoo.com/patrick-mahomes-halftime-speech-changed-120000008.html)
-- Feb 13 - [A Russian general was poisoned by a letter laced with an unknown toxin, close Putin ally says](https://news.yahoo.com/russian-general-poisoned-letter-laced-115952476.html)
-- Feb 13 - [Wagner Group Release ANOTHER Sledgehammer Execution Video](https://news.yahoo.com/wagner-group-release-another-sledgehammer-112608023.html)
-- Feb 13 - [China says more than 10 US balloons flew in its airspace](https://news.yahoo.com/china-says-more-10-us-104706295.html)
 <!-- feed end -->
