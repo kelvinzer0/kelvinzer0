@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 13 - [Rihanna's Super Bowl halftime show stuns crowd with pregnancy announcement](https://news.yahoo.com/rihannas-super-bowl-halftime-show-154837002.html)
+- Feb 13 - ['Little by little they are winning': Tide turns in key Ukraine city. Live updates as Russian offensive begins.](https://news.yahoo.com/little-little-winning-russian-offensive-153849641.html)
+- Feb 13 - [Does the NFL need to make to officiating changes?](https://news.yahoo.com/does-nfl-officiating-changes-163905176.html)
+- Feb 13 - [Rep. George Santos' press secretary said she fields endless angry calls, gets dirty looks on the Hill, but still thinks her boss is a 'borderline genius'](https://news.yahoo.com/rep-george-santos-press-secretary-155256586.html)
+- Feb 13 - [COVID could create crisis in Alex Murdaugh murder trial](https://news.yahoo.com/covid-could-create-crisis-alex-154930039.html)
 - Feb 13 - [Woman held against her will discreetly alerts troopers during traffic stop, police say](https://news.yahoo.com/woman-held-against-her-discreetly-154828068.html)
-- Feb 13 - ['Little by little they are winning': Russian offensive underway as tide turns in key Ukraine city. Updates.](https://news.yahoo.com/little-little-winning-russian-offensive-153849641.html)
-- Feb 13 - [Kim Jong Un reportedly wants his daughter to be the only person in North Korea named 'Ju Ae'](https://news.yahoo.com/kim-jong-un-reportedly-wants-153137701.html)
-- Feb 13 - [After their genitals were cut, some women search for healing](https://news.yahoo.com/genitals-were-cut-women-search-143408520.html)
 <!-- feed end -->
