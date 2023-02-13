@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 13 - ['Little by little they are winning': Tide turns in key Ukraine city. Live updates as Russian offensive begins.](https://news.yahoo.com/little-little-winning-russian-offensive-153849641.html)
-- Feb 13 - [Does the NFL need to make to officiating changes?](https://news.yahoo.com/does-nfl-officiating-changes-163905176.html)
-- Feb 13 - [Rep. George Santos' press secretary said she fields endless angry calls, gets dirty looks on the Hill, but still thinks her boss is a 'borderline genius'](https://news.yahoo.com/rep-george-santos-press-secretary-155256586.html)
-- Feb 13 - [COVID could create crisis in Alex Murdaugh murder trial](https://news.yahoo.com/covid-could-create-crisis-alex-154930039.html)
-- Feb 13 - [Woman held against her will discreetly alerts troopers during traffic stop, police say](https://news.yahoo.com/woman-held-against-her-discreetly-154828068.html)
+- Feb 13 - [Police stop U-Haul after pedestrians struck in NYC](https://news.yahoo.com/police-stop-u-haul-pedestrians-174808193.html)
+- Feb 13 - [United Airlines plane taking off from Maui plunged to within 800 feet of the Pacific Ocean, flight data shows](https://news.yahoo.com/united-airlines-plane-taking-off-165658609.html)
+- Feb 13 - [Witnesses who testified in front of the Georgia grand jury investigating Trump 'may have lied under oath,' judge says](https://news.yahoo.com/witnesses-testified-front-georgia-grand-162752573.html)
+- Feb 13 - [Meet Gracie Hunt, the beauty-queen daughter of mega-wealthy Kansas City Chiefs' owner Clark Hunt](https://news.yahoo.com/meet-gracie-hunt-beauty-queen-200455110.html)
 <!-- feed end -->
