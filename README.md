@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 12 - [33 Pictures That Make Me Laugh Uncontrollably No Matter How Many Times I've Seen Them](https://news.yahoo.com/33-pictures-laugh-uncontrollably-no-005028622.html)
+- Feb 13 - [Ad Meter 2023: M&M’S](https://news.yahoo.com/ad-meter-2023-m-m-010304693.html)
+- Feb 12 - [Philadelphia Eagles buses are stuck in traffic on Super Bowl Sunday](https://news.yahoo.com/philadelphia-eagles-buses-stuck-traffic-223244291.html)
 - Feb 12 - [Megan Fox posts racy revenge photo before deleting Instagram amid breakup rumors with Machine Gun Kelly](https://news.yahoo.com/megan-fox-posts-racy-revenge-201658694.html)
 - Feb 12 - [Kate Winslet says filming sex scenes with Leonardo DiCaprio in front of her then-husband was 'a bit weird'](https://news.yahoo.com/kate-winslet-says-filming-sex-201221546.html)
 - Feb 12 - [Chris Christie says House GOP jeering Biden at State of the Union was ‘big mistake’](https://news.yahoo.com/chris-christie-says-house-gop-181010090.html)
-- Feb 12 - [FAA abruptly cancels 'national defense airspace' over Lake Michigan after reporting 'potential contact'](https://news.yahoo.com/faa-abruptly-cancels-national-defense-180749675.html)
 <!-- feed end -->
