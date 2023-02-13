@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 13 - [Marjorie Taylor Greene’s Super Bowl Take Is Hilariously Bad](https://news.yahoo.com/marjorie-taylor-greene-super-bowl-210841044.html)
+- Feb 13 - [NATO secretary general says Russia has started spring offensive against Ukraine](https://news.yahoo.com/nato-secretary-general-says-russia-210453665.html)
+- Feb 13 - [Legendary Hawaii surf photographer captures his own final moments](https://news.yahoo.com/legendary-hawaii-surf-photographer-captures-204908396.html)
 - Feb 13 - [Disappointing photos of Rihanna's halftime show prove you should never have your phone out at a concert](https://news.yahoo.com/disappointing-photos-rihannas-halftime-show-200747471.html)
-- Feb 13 - [A former sales director will get more than $86,000 after his boss allegedly said he didn't want a team of 'bald-headed 50-year-old men' who were a 'mirror image' of himself](https://news.yahoo.com/former-sales-director-more-86-195659005.html)
-- Feb 13 - [My wife is bisexual and nonbinary, and my daughter is transgender. My queer family helped me better understand myself and my masculinity.](https://news.yahoo.com/wife-bisexual-nonbinary-daughter-transgender-195648373.html)
-- Feb 13 - [McCarthy calls for resignation of Architect of Capitol](https://news.yahoo.com/mccarthy-calls-resignation-architect-capitol-191344767.html)
-- Feb 13 - [JonBenet Ramsey case: Boulder police respond to unearthed DNA bombshell](https://news.yahoo.com/jonbenet-ramsey-case-boulder-police-182135654.html)
+- Feb 13 - [Candace Cameron Bure reflects on 'cancel culture' after 'traditional marriage' comments and says it's important that Christians 'don't back down' from their beliefs](https://news.yahoo.com/candace-cameron-bure-reflects-cancel-200332682.html)
 <!-- feed end -->
