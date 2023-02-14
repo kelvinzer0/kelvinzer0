@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 14 - [31 Divorced People Who Knew On Their Wedding Day That They Made A Huge Mistake And Married The Wrong Person](https://news.yahoo.com/31-divorced-people-knew-wedding-212100964.html)
+- Feb 14 - [US warns Ukraine that war is reaching pivotal point](https://news.yahoo.com/us-warns-ukraine-war-reaching-065801062.html)
 - Feb 14 - ['Little by little they are winning': Tide turns in key Ukraine city: Updates as Russian offensive begins.](https://news.yahoo.com/little-little-winning-russian-offensive-153849641.html)
 - Feb 14 - [US renews warning it'll defend Philippines after China spat](https://news.yahoo.com/us-renews-warning-itll-defend-044357624.html)
 - Feb 14 - [Sharon Stone's Brother Patrick Dies At 57, After The Death Of His Infant Son In 2021](https://news.yahoo.com/sharon-stones-brother-patrick-dies-032030704.html)
