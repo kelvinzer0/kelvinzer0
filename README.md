@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 14 - [Wind farm controversy: the pros and cons of wind energy](https://news.yahoo.com/wind-farm-controversy-pros-cons-194139696.html)
+- Feb 14 - [Marburg virus outbreak hits Equatorial Guinea. Symptoms and source are nightmarish.](https://news.yahoo.com/marburg-virus-symptoms-source-nightmarish-004115185.html)
+- Feb 14 - [Taylor Schabusiness attacks lawyer in Brown County courtroom; she is charged with killing, decapitating friend](https://news.yahoo.com/taylor-schabusiness-attacks-lawyer-brown-161929210.html)
 - Feb 14 - [Lawyer: Pamela Smart, serving life sentence, asks for hope](https://news.yahoo.com/lawyer-pamela-smart-serving-life-182234536.html)
 - Feb 14 - [Vladimir Putin is about to win the ammunition war against the West](https://news.yahoo.com/vladimir-putin-win-ammunition-war-181943795.html)
-- Feb 14 - [Trump's plan for a 2nd term reportedly includes firing squads, hangings, and group executions](https://news.yahoo.com/trumps-plan-2nd-term-reportedly-181144421.html)
-- Feb 14 - [I’m sick of people with an ounce of common sense being labelled ‘far-Right’](https://news.yahoo.com/m-sick-people-ounce-common-180342318.html)
-- Feb 14 - [Pompeo: Biden Made an ‘Enormous Mistake’ with Chinese Spy Balloon](https://news.yahoo.com/pompeo-biden-made-enormous-mistake-175204367.html)
 <!-- feed end -->
