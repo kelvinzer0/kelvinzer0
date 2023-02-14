@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 14 - [Milley says first missile shot at unidentified object over Lake Huron missed](https://news.yahoo.com/milley-says-first-missile-shot-163457909.html)
+- Feb 14 - [Winner of $2B Powerball jackpot to be revealed in California](https://news.yahoo.com/winner-2b-powerball-jackpot-revealed-174241355.html)
+- Feb 14 - [33 Pictures That Make Me Laugh Uncontrollably No Matter How Many Times I've Seen Them](https://news.yahoo.com/33-pictures-laugh-uncontrollably-no-005028622.html)
+- Feb 14 - [Winner of record $2-billion Powerball jackpot comes forward with ticket bought in Altadena](https://news.yahoo.com/winner-record-2-billion-powerball-163938103.html)
+- Feb 14 - [Top US general says Russia has already 'lost' the Ukraine war and has paid an 'enormous price on the battlefield'](https://news.yahoo.com/top-us-general-says-russia-163929944.html)
 - Feb 14 - [Brother of Michigan State University shooting suspect Anthony McRae: He 'secluded himself'](https://news.yahoo.com/brother-michigan-state-university-shooting-162304056.html)
-- Feb 14 - [Tough-guy Ron DeSantis defeats Woke Disney! Except ... he didn’t. At all.](https://news.yahoo.com/tough-guy-ron-desantis-defeats-100022031.html)
-- Feb 14 - [I'm a professional baker and my boyfriend is a chef. Here are 13 of our favorite things to buy at Costco.](https://news.yahoo.com/im-professional-baker-boyfriend-chef-134000640.html)
-- Feb 14 - [Michigan State University shooting suspect's identity revealed at press conference](https://news.yahoo.com/michigan-state-university-shooting-suspects-152050684.html)
 <!-- feed end -->
