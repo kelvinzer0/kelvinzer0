@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 14 - [Rihanna’s Pregnancy Reveal, Hilarious Commercials, And 14 Other Things That Happened During The Super Bowl](https://news.yahoo.com/rihanna-pregnancy-reveal-hilarious-commercials-233648715.html)
+- Feb 14 - [Jamie Lee Curtis reveals she has gotten more screen time in movies like 'Knives Out' because she never goes back to her trailer: 'It's my secret sauce'](https://news.yahoo.com/jamie-lee-curtis-reveals-she-103000803.html)
 - Feb 14 - [Tough-guy Ron DeSantis defeats Woke Disney! Except ... he didn’t. At all.](https://news.yahoo.com/tough-guy-ron-desantis-defeats-100022031.html)
-- Feb 14 - [Ex-Biden Chief Of Staff Ron Klain Taunts Ted Cruz With Out-Of-This World Insult](https://news.yahoo.com/ex-biden-chief-staff-ron-093342559.html)
+- Feb 14 - [Ex-Biden Chief Of Staff Ron Klain Taunts Ted Cruz With Out-Of-This-World Insult](https://news.yahoo.com/ex-biden-chief-staff-ron-093342559.html)
 - Feb 14 - [US warns Ukraine that war is reaching pivotal point](https://news.yahoo.com/us-warns-ukraine-war-reaching-065801062.html)
 - Feb 14 - ['Little by little they are winning': Tide turns in key Ukraine city: Updates as Russian offensive begins.](https://news.yahoo.com/little-little-winning-russian-offensive-153849641.html)
 <!-- feed end -->
