@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Feb 14 - [Oscars response to Smith slap inadequate, academy head says](https://news.yahoo.com/oscars-response-smith-slap-inadequate-004742536.html)
 - Feb 14 - ['Little by little they are winning': Tide turns in key Ukraine city. Live updates as Russian offensive begins.](https://news.yahoo.com/little-little-winning-russian-offensive-153849641.html)
 - Feb 14 - [United flight plunges toward ocean after takeoff from Hawaii](https://news.yahoo.com/united-flight-plunges-toward-ocean-002626686.html)
+- Feb 14 - [Face masks made ‘little to no difference’ in preventing spread of COVID, scientific review finds](https://news.yahoo.com/face-masks-made-little-no-001748577.html)
 - Feb 14 - [North Carolina AG won't defend abortion pill restrictions](https://news.yahoo.com/north-carolina-ag-wont-defend-001544969.html)
-- Feb 14 - [19-year-old in China is world's youngest to be diagnosed with Alzheimer's: study](https://news.yahoo.com/19-old-china-worlds-youngest-000037531.html)
 <!-- feed end -->
