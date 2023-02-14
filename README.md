@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 14 - [Winner of $2B Powerball jackpot to be revealed in California](https://news.yahoo.com/winner-2b-powerball-jackpot-revealed-174241355.html)
-- Feb 14 - [33 Pictures That Make Me Laugh Uncontrollably No Matter How Many Times I've Seen Them](https://news.yahoo.com/33-pictures-laugh-uncontrollably-no-005028622.html)
-- Feb 14 - [Winner of record $2-billion Powerball jackpot comes forward with ticket bought in Altadena](https://news.yahoo.com/winner-record-2-billion-powerball-163938103.html)
-- Feb 14 - [Top US general says Russia has already 'lost' the Ukraine war and has paid an 'enormous price on the battlefield'](https://news.yahoo.com/top-us-general-says-russia-163929944.html)
-- Feb 14 - [Brother of Michigan State University shooting suspect Anthony McRae: He 'secluded himself'](https://news.yahoo.com/brother-michigan-state-university-shooting-162304056.html)
+- Feb 14 - [Lawyer: Pamela Smart, serving life sentence, asks for hope](https://news.yahoo.com/lawyer-pamela-smart-serving-life-182234536.html)
+- Feb 14 - [Vladimir Putin is about to win the ammunition war against the West](https://news.yahoo.com/vladimir-putin-win-ammunition-war-181943795.html)
+- Feb 14 - [Trump's plan for a 2nd term reportedly includes firing squads, hangings, and group executions](https://news.yahoo.com/trumps-plan-2nd-term-reportedly-181144421.html)
+- Feb 14 - [I’m sick of people with an ounce of common sense being labelled ‘far-Right’](https://news.yahoo.com/m-sick-people-ounce-common-180342318.html)
+- Feb 14 - [Pompeo: Biden Made an ‘Enormous Mistake’ with Chinese Spy Balloon](https://news.yahoo.com/pompeo-biden-made-enormous-mistake-175204367.html)
 <!-- feed end -->
