@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 13 - [Georgia judge orders partial release of grand jury report showing Trump allies 'may have lied under oath'](https://news.yahoo.com/georgia-judge-orders-partial-release-of-grand-jury-report-showing-trump-allies-may-have-lied-under-oath-223254275.html)
-- Feb 13 - [People who haven't had COVID will likely catch XBB.1.5 – and many will get reinfected, experts say](https://news.yahoo.com/people-havent-had-covid-likely-144149735.html)
-- Feb 13 - [Exclusive: Ex-Russian military bomber engineer seeks asylum at U.S. border, offers military secrets](https://news.yahoo.com/exclusive-ex-russian-military-bomber-engineer-seeks-asylum-at-us-border-offers-military-secrets-220728915.html)
-- Feb 13 - [Marjorie Taylor Greene’s Super Bowl Take Is Hilariously Bad](https://news.yahoo.com/marjorie-taylor-greene-super-bowl-210841044.html)
-- Feb 13 - [Legendary Hawaii surf photographer captures his own final moments](https://news.yahoo.com/legendary-hawaii-surf-photographer-captures-204908396.html)
+- Feb 14 - [Oscars response to Smith slap inadequate, academy head says](https://news.yahoo.com/oscars-response-smith-slap-inadequate-004742536.html)
+- Feb 14 - ['Little by little they are winning': Tide turns in key Ukraine city. Live updates as Russian offensive begins.](https://news.yahoo.com/little-little-winning-russian-offensive-153849641.html)
+- Feb 14 - [United flight plunges toward ocean after takeoff from Hawaii](https://news.yahoo.com/united-flight-plunges-toward-ocean-002626686.html)
+- Feb 14 - [North Carolina AG won't defend abortion pill restrictions](https://news.yahoo.com/north-carolina-ag-wont-defend-001544969.html)
+- Feb 14 - [19-year-old in China is world's youngest to be diagnosed with Alzheimer's: study](https://news.yahoo.com/19-old-china-worlds-youngest-000037531.html)
 <!-- feed end -->
