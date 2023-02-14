@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 14 - [Milley says first missile shot at unidentified object over Lake Huron missed](https://news.yahoo.com/milley-says-first-missile-shot-163457909.html)
+- Feb 14 - [Brother of Michigan State University shooting suspect Anthony McRae: He 'secluded himself'](https://news.yahoo.com/brother-michigan-state-university-shooting-162304056.html)
 - Feb 14 - [Tough-guy Ron DeSantis defeats Woke Disney! Except ... he didn’t. At all.](https://news.yahoo.com/tough-guy-ron-desantis-defeats-100022031.html)
+- Feb 14 - [I'm a professional baker and my boyfriend is a chef. Here are 13 of our favorite things to buy at Costco.](https://news.yahoo.com/im-professional-baker-boyfriend-chef-134000640.html)
 - Feb 14 - [Michigan State University shooting suspect's identity revealed at press conference](https://news.yahoo.com/michigan-state-university-shooting-suspects-152050684.html)
-- Feb 14 - [My Boyfriend And I Were Falling In Love. Then He Hit Me With A Deal Breaker I Never Saw Coming.](https://news.yahoo.com/boyfriend-were-falling-love-then-140001905.html)
-- Feb 14 - [Resurfaced videos from 2019 shows Turkish president bragging about builders skirting earthquake construction codes in areas now turned to rubble](https://news.yahoo.com/resurfaced-videos-2019-shows-turkish-131708414.html)
-- Feb 14 - [Nikki Haley announces run for president, challenging Trump](https://news.yahoo.com/haley-announces-presidential-campaign-challenging-121534167.html)
 <!-- feed end -->
