@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 14 - [Tough-guy Ron DeSantis defeats Woke Disney! Except ... he didn’t. At all.](https://news.yahoo.com/tough-guy-ron-desantis-defeats-100022031.html)
+- Feb 14 - [Michigan State University shooting suspect's identity revealed at press conference](https://news.yahoo.com/michigan-state-university-shooting-suspects-152050684.html)
 - Feb 14 - [My Boyfriend And I Were Falling In Love. Then He Hit Me With A Deal Breaker I Never Saw Coming.](https://news.yahoo.com/boyfriend-were-falling-love-then-140001905.html)
+- Feb 14 - [Resurfaced videos from 2019 shows Turkish president bragging about builders skirting earthquake construction codes in areas now turned to rubble](https://news.yahoo.com/resurfaced-videos-2019-shows-turkish-131708414.html)
 - Feb 14 - [Nikki Haley announces run for president, challenging Trump](https://news.yahoo.com/haley-announces-presidential-campaign-challenging-121534167.html)
-- Feb 14 - [Gunmen storm hospital of newborn saved from quake in Syria](https://news.yahoo.com/gunmen-storm-hospital-newborn-saved-120955197.html)
-- Feb 14 - [Evers wants to give Brewers nearly $300M to repair stadium](https://news.yahoo.com/evers-wants-brewers-nearly-300m-110200033.html)
-- Feb 14 - [Olivia Wilde clears the air after being accused of thirsting over A$AP Rocky during Rihanna's Super Bowl performance: 'It's hot to respect your partner'](https://news.yahoo.com/olivia-wilde-clears-air-being-105727482.html)
 <!-- feed end -->
