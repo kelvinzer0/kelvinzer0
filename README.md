@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 14 - ['Little by little they are winning': Tide turns in key Ukraine city: Updates as Russian offensive begins.](https://news.yahoo.com/little-little-winning-russian-offensive-153849641.html)
 - Feb 14 - [US renews warning it'll defend Philippines after China spat](https://news.yahoo.com/us-renews-warning-itll-defend-044357624.html)
+- Feb 14 - [Shooter Turns Gun on Self After Killing 3 at Michigan State: Cops](https://news.yahoo.com/michigan-state-university-reports-shots-021136980.html)
 - Feb 14 - [Oscars response to Smith slap inadequate, academy head says](https://news.yahoo.com/oscars-response-smith-slap-inadequate-004742536.html)
 - Feb 14 - [Former Cardinals lineman Conrad Dobler dies at 72](https://news.yahoo.com/former-cardinals-lineman-conrad-dobler-004632429.html)
-- Feb 14 - [United flight plunges toward ocean after takeoff from Hawaii](https://news.yahoo.com/united-flight-plunges-toward-ocean-002626686.html)
 <!-- feed end -->
