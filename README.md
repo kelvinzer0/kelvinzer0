@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 14 - [Actors strike at California medieval-themed dinner theater](https://news.yahoo.com/actors-strike-california-medieval-themed-203025912.html)
+- Feb 14 - [Court to reconsider Connecticut's transgender athlete policy](https://news.yahoo.com/court-reconsider-connecticuts-transgender-athlete-203453499.html)
 - Feb 14 - [3 Michigan State University shooting victims identified: What we know](https://news.yahoo.com/2-michigan-state-university-shooting-185752143.html)
+- Feb 14 - [‘Unusual’ stowaway on celery shipment is concerning first for California port, feds say](https://news.yahoo.com/unusual-stowaway-celery-shipment-concerning-203339679.html)
+- Feb 14 - [Damar Hamlin’s Super Bowl Jacket Condemned And Called Blasphemous By Adrian Peterson, Fans Defend Hamlin](https://news.yahoo.com/damar-hamlin-super-bowl-jacket-200616929.html)
 - Feb 14 - [Judge vacates conviction of man imprisoned nearly 3 decades](https://news.yahoo.com/judge-vacates-conviction-man-imprisoned-194852854.html)
-- Feb 14 - [Marburg virus outbreak hits Equatorial Guinea. Symptoms and source are nightmarish.](https://news.yahoo.com/marburg-virus-symptoms-source-nightmarish-004115185.html)
-- Feb 14 - [Taylor Schabusiness attacks lawyer in Brown County courtroom; she is charged with killing, decapitating friend](https://news.yahoo.com/taylor-schabusiness-attacks-lawyer-brown-161929210.html)
 <!-- feed end -->
