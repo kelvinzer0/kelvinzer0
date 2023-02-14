@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 14 - [Wind farm controversy: the pros and cons of wind energy](https://news.yahoo.com/wind-farm-controversy-pros-cons-194139696.html)
+- Feb 14 - [Actors strike at California medieval-themed dinner theater](https://news.yahoo.com/actors-strike-california-medieval-themed-203025912.html)
+- Feb 14 - [3 Michigan State University shooting victims identified: What we know](https://news.yahoo.com/2-michigan-state-university-shooting-185752143.html)
+- Feb 14 - [Judge vacates conviction of man imprisoned nearly 3 decades](https://news.yahoo.com/judge-vacates-conviction-man-imprisoned-194852854.html)
 - Feb 14 - [Marburg virus outbreak hits Equatorial Guinea. Symptoms and source are nightmarish.](https://news.yahoo.com/marburg-virus-symptoms-source-nightmarish-004115185.html)
 - Feb 14 - [Taylor Schabusiness attacks lawyer in Brown County courtroom; she is charged with killing, decapitating friend](https://news.yahoo.com/taylor-schabusiness-attacks-lawyer-brown-161929210.html)
-- Feb 14 - [Lawyer: Pamela Smart, serving life sentence, asks for hope](https://news.yahoo.com/lawyer-pamela-smart-serving-life-182234536.html)
-- Feb 14 - [Vladimir Putin is about to win the ammunition war against the West](https://news.yahoo.com/vladimir-putin-win-ammunition-war-181943795.html)
 <!-- feed end -->
