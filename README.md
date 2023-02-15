@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 15 - [Buffalo Tops supermarket shooter attacked at sentencing during emotional victim statement](https://news.yahoo.com/buffalo-tops-supermarket-shooter-attacked-155613836.html)
+- Feb 15 - [Why the U.S. used missiles, not cheap bullets, to shoot down Chinese balloon, 3 unidentified objects](https://news.yahoo.com/why-u-used-missiles-not-125447249.html)
 - Feb 15 - [An Ohio restaurant 'forced' servers to work 60 hours a week for just $10 in wages plus tips, the Department of Labor says](https://news.yahoo.com/ohio-restaurant-forced-servers-60-115608247.html)
 - Feb 15 - [Thai suspect in Michigan hit-and-run agrees to return to US](https://news.yahoo.com/thai-suspect-michigan-hit-run-115046729.html)
-- Feb 15 - [15-year-olds charged with murder of transgender teen Brianna Ghey](https://news.yahoo.com/15-olds-charged-murder-transgender-114400970.html)
-- Feb 15 - [Captain of Soccer Team in Famous Thai Cave Rescue Dies at 18](https://news.yahoo.com/captain-soccer-team-famous-thai-101458347.html)
+- Feb 15 - [Dolly Parton says she doesn't eat anything that Miley Cyrus cooks because 'it would have no taste'](https://news.yahoo.com/dolly-parton-says-she-doesnt-114800631.html)
 <!-- feed end -->
