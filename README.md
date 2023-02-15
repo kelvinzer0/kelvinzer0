@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 15 - [The Conners Teaser](https://news.yahoo.com/cnr514-workerscomp-kh-183543466.html)
 - Feb 15 - [Nikki Haley launches GOP campaign by insulting Americans age 75 and over. Great start!](https://news.yahoo.com/nikki-haley-launches-gop-campaign-193422788.html)
 - Feb 15 - [Taylor Schabusiness attacks lawyer in Brown County courtroom; she is charged with killing, decapitating friend](https://news.yahoo.com/taylor-schabusiness-attacks-lawyer-brown-161929210.html)
-- Feb 15 - [Nicola Bulley had 'significant issues with alcohol', say police](https://news.yahoo.com/nicola-bulley-police-hold-press-082635830.html)
 - Feb 15 - [Trump’s DNA Proposal in Rape Accuser Suit Rejected by Judge](https://news.yahoo.com/trump-dna-proposal-rape-accuser-163143040.html)
+- Feb 15 - [Buffalo Tops supermarket shooter attacked at sentencing during emotional victim statement](https://news.yahoo.com/buffalo-tops-supermarket-shooter-attacked-155613836.html)
+- Feb 15 - [Dear white Americans: You’re not racist about guns. You’re worse. | Opinion](https://news.yahoo.com/dear-white-americans-not-racist-134645192.html)
 <!-- feed end -->
