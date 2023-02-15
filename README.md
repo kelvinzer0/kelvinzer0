@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 15 - [Tessa Gourin, Jack Nicholson’s Estranged Daughter, Has a Lot to Say](https://news.yahoo.com/tessa-gourin-jack-nicholson-estranged-093957091.html)
+- Feb 15 - [So Long George Santos, the GOP May Have a New Fabulist in Congress](https://news.yahoo.com/long-george-santos-gop-may-093937853.html)
 - Feb 15 - [Lauren Boebert Tried To Throw Shade At Rachel Maddow And Got A Stark Reminder](https://news.yahoo.com/lauren-boebert-tried-throw-shade-073838556.html)
+- Feb 15 - [American skier Shiffrin splits with longtime coach at worlds](https://news.yahoo.com/shiffrin-splits-longtime-coach-mike-073325356.html)
 - Feb 15 - [U.S. tracked spy balloon after it took off from China](https://news.yahoo.com/u-tracked-spy-balloon-took-013930266.html)
-- Feb 14 - [Brother of Michigan State University shooting suspect Anthony McRae: He 'secluded himself'](https://news.yahoo.com/brother-michigan-state-university-shooting-162304056.html)
-- Feb 14 - [Mitt Romney Issues Urgent Warning About Trump's Path To 2024 GOP Nomination](https://news.yahoo.com/mitt-romney-issues-urgent-warning-220955355.html)
 <!-- feed end -->
