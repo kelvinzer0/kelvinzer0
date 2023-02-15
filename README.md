@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 15 - [Ukraine-Russia war latest: Russia suffering 'almost First World War levels of attrition'](https://news.yahoo.com/ukraine-russia-war-latest-russia-073819472.html)
+- Feb 15 - [Captain of Soccer Team in Famous Thai Cave Rescue Dies at 18](https://news.yahoo.com/captain-soccer-team-famous-thai-101458347.html)
 - Feb 15 - [Tessa Gourin, Jack Nicholson’s Estranged Daughter, Has a Lot to Say](https://news.yahoo.com/tessa-gourin-jack-nicholson-estranged-093957091.html)
 - Feb 15 - [So Long George Santos, the GOP May Have a New Fabulist in Congress](https://news.yahoo.com/long-george-santos-gop-may-093937853.html)
 - Feb 15 - [Lauren Boebert Tried To Throw Shade At Rachel Maddow And Got A Stark Reminder](https://news.yahoo.com/lauren-boebert-tried-throw-shade-073838556.html)
-- Feb 15 - [American skier Shiffrin splits with longtime coach at worlds](https://news.yahoo.com/shiffrin-splits-longtime-coach-mike-073325356.html)
-- Feb 15 - [U.S. tracked spy balloon after it took off from China](https://news.yahoo.com/u-tracked-spy-balloon-took-013930266.html)
 <!-- feed end -->
