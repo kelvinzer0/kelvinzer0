@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 15 - [Buffalo Tops supermarket shooter attacked at sentencing during emotional victim statement](https://news.yahoo.com/buffalo-tops-supermarket-shooter-attacked-155613836.html)
+- Feb 15 - [An Ohio restaurant 'forced' servers to work 60 hours a week for just $10 in wages plus tips, the Department of Labor says](https://news.yahoo.com/ohio-restaurant-forced-servers-60-115608247.html)
 - Feb 15 - [Thai suspect in Michigan hit-and-run agrees to return to US](https://news.yahoo.com/thai-suspect-michigan-hit-run-115046729.html)
 - Feb 15 - [15-year-olds charged with murder of transgender teen Brianna Ghey](https://news.yahoo.com/15-olds-charged-murder-transgender-114400970.html)
-- Feb 15 - [Ukraine-Russia war latest: Ukraine has 'real good chance' of taking the initiative on the battlefield, says US](https://news.yahoo.com/ukraine-russia-war-latest-russia-073819472.html)
 - Feb 15 - [Captain of Soccer Team in Famous Thai Cave Rescue Dies at 18](https://news.yahoo.com/captain-soccer-team-famous-thai-101458347.html)
-- Feb 15 - [Tessa Gourin, Jack Nicholson’s Estranged Daughter, Has a Lot to Say](https://news.yahoo.com/tessa-gourin-jack-nicholson-estranged-093957091.html)
 <!-- feed end -->
