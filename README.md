@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Feb 15 - [Lauren Boebert Tried To Throw Shade At Rachel Maddow And Got A Stark Reminder](https://news.yahoo.com/lauren-boebert-tried-throw-shade-073838556.html)
 - Feb 15 - [‘Daily Show’ Guest Sarah Silverman Shoots Down GOP On Its Signature Issue](https://news.yahoo.com/daily-show-guest-sarah-silverman-042840029.html)
 - Feb 15 - [U.S. tracked spy balloon after it took off from China](https://news.yahoo.com/u-tracked-spy-balloon-took-013930266.html)
-- Feb 14 - [Buffett's firm buys Apple, slashes chipmaker and bank stakes](https://news.yahoo.com/buffetts-firm-buys-apple-slashes-235505407.html)
 - Feb 14 - [Brother of Michigan State University shooting suspect Anthony McRae: He 'secluded himself'](https://news.yahoo.com/brother-michigan-state-university-shooting-162304056.html)
+- Feb 14 - [Mitt Romney Issues Urgent Warning About Trump's Path To 2024 GOP Nomination](https://news.yahoo.com/mitt-romney-issues-urgent-warning-220955355.html)
 <!-- feed end -->
