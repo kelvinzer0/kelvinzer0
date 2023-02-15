@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 14 - [Brother of Michigan State University shooting suspect Anthony McRae: He 'secluded himself'](https://news.yahoo.com/brother-michigan-state-university-shooting-162304056.html)
-- Feb 14 - [Steven Tyler will have a hard time overcoming his own words in the child sexual assault lawsuit he faces, experts say](https://news.yahoo.com/steven-tyler-hard-time-overcoming-221718436.html)
 - Feb 14 - [Mitt Romney Issues Urgent Warning About Trump's Path To 2024 GOP Nomination](https://news.yahoo.com/mitt-romney-issues-urgent-warning-220955355.html)
 - Feb 14 - [Nick Sirianni and wife win court battle over South Jersey home. Here's what happened](https://news.yahoo.com/nick-sirianni-wife-win-court-150806711.html)
+- Feb 14 - [3 Michigan State University shooting victims identified: What we know](https://news.yahoo.com/2-michigan-state-university-shooting-185752143.html)
 - Feb 14 - [‘Unusual’ stowaway on celery shipment is concerning first for California port, feds say](https://news.yahoo.com/unusual-stowaway-celery-shipment-concerning-203339679.html)
 <!-- feed end -->
