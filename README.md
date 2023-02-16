@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 16 - [What does the release of Georgia’s grand jury report mean for Trump?](https://news.yahoo.com/georgia-trump-election-inquiry-lead-100003933.html)
+- Feb 16 - [I came out as bisexual to my husband after 8 years of marriage. A few months later, I learned my husband was having an affair.](https://news.yahoo.com/came-bisexual-husband-8-years-150129155.html)
+- Feb 16 - [Ron DeSantis requested the medical records of all trans students in Florida's public universities. Now students are planning a statewide walkout.](https://news.yahoo.com/ron-desantis-requested-medical-records-145417991.html)
+- Feb 16 - [Is it worth removing your fallopian tubes if you're not at an obvious risk of ovarian cancer? A top advocacy group recommends it](https://news.yahoo.com/removing-fallopian-tubes-not-obvious-risk-ovarian-cancer-advocacy-group-recommends-144125768.html)
 - Feb 16 - [Woman exercising at gym is attacked, Florida cops say. Then bodybuilder fights back](https://news.yahoo.com/woman-exercising-gym-attacked-florida-142943013.html)
-- Feb 16 - [A Russian marine who survived bitter fighting in Vuhledar says soldiers left alive are being treated like deserters: 'It would have been better if I had been captured'](https://news.yahoo.com/russian-marine-survived-bitter-fighting-125756985.html)
-- Feb 16 - [Ukrainian drone downs enemy quadcopter in sneak attack from above](https://news.yahoo.com/ukrainian-drone-downs-enemy-quadcopter-123500219.html)
-- Feb 16 - [Raquel Welch: A life in pictures](https://news.yahoo.com/raquel-welch-life-pictures-000508032.html)
-- Feb 16 - [Husband wakes wife to tell her about his Iowa lottery win. ‘I heard her scream’](https://news.yahoo.com/husband-wakes-wife-tell-her-120000754.html)
 <!-- feed end -->
