@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 16 - [Savannah Chrisley says it's 'really weird' seeing dad Todd Chrisley with gray hair in prison: 'He's definitely used some color over the years'](https://news.yahoo.com/savannah-chrisley-says-really-weird-112557767.html)
+- Feb 16 - [Keanu Reeves says he has a clause in all his movie contracts banning digital edits to his performances: 'That's scary'](https://news.yahoo.com/keanu-reeves-says-clause-movie-111904128.html)
+- Feb 16 - [Lukashenko invites Biden to Minsk to "end war", saying Putin will join, too](https://news.yahoo.com/lukashenko-invites-biden-minsk-end-103342484.html)
+- Feb 16 - [Chelsea Handler Taunts ‘Hate-Masturbating’ Tucker Carlson Over Latest Meltdown](https://news.yahoo.com/chelsea-handler-taunts-hate-masturbating-094039600.html)
 - Feb 15 - [Nikki Haley launches GOP campaign by insulting Americans age 75 and over. Great start!](https://news.yahoo.com/nikki-haley-launches-gop-campaign-193422788.html)
-- Feb 15 - [Messages: Officer often fed information to Proud Boys leader](https://news.yahoo.com/messages-officer-often-fed-information-215958032.html)
-- Feb 15 - [Substances fuel record homeless deaths in Portland, Oregon](https://news.yahoo.com/substances-fuel-record-homeless-deaths-215313128.html)
-- Feb 15 - [Town can't refuse Amazon offer despite Duvall opposition](https://news.yahoo.com/town-cant-refuse-amazon-offer-214403021.html)
-- Feb 15 - [Activists rally behind Missouri lawmaker cut off in debate](https://news.yahoo.com/activists-rally-behind-missouri-lawmaker-212421006.html)
 <!-- feed end -->
