@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 16 - [Canada to deploy Navy vessels to Haiti as violence worsens](https://news.yahoo.com/canada-deploy-navy-vessels-haiti-183028008.html)
-- Feb 16 - [Georgia grand jury report into Trump's election probe recommends 'appropriate indictment'](https://news.yahoo.com/georgia-grand-jury-report-trumps-182823494.html)
-- Feb 16 - [I'm an interior designer. Here are 10 trends that don't actually look good in real life.](https://news.yahoo.com/im-interior-designer-10-trends-173248190.html)
-- Feb 16 - [Boater thought he hit log – then hears horrified screams of American mother in Belize](https://news.yahoo.com/boater-thought-hit-log-then-172020821.html)
-- Feb 16 - [Cops Reveal Contents of ‘Slighted’ MSU Gunman’s Suicide Note](https://news.yahoo.com/cops-reveal-contents-slighted-msu-171928777.html)
+- Feb 16 - [Police say Michigan State shooter felt 'slighted'](https://news.yahoo.com/police-michigan-state-shooter-felt-195213563.html)
+- Feb 16 - [‘Fire-breathing demon’ dog returns to shelter. He was too much for new owner to handle](https://news.yahoo.com/fire-breathing-demon-dog-returns-194933918.html)
+- Feb 16 - [Sen. John Fetterman checks into hospital for depression](https://news.yahoo.com/sen-john-fetterman-check-hospital-194546630.html)
+- Feb 16 - [Prosecution, defense get wins with Alex Murdaugh lead agent](https://news.yahoo.com/prosecution-defense-wins-alex-murdaugh-191324967.html)
+- Feb 16 - [Vladimir Putin’s failures are fooling the West](https://news.yahoo.com/vladimir-putin-failures-fooling-west-190000584.html)
 <!-- feed end -->
