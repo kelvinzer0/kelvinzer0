@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 16 - [A Russian marine who survived bitter fighting in Vuhledar says soldiers left alive are being treated like deserters: 'It would have been better if I had been captured'](https://news.yahoo.com/russian-marine-survived-bitter-fighting-125756985.html)
+- Feb 16 - [Ukrainian drone downs enemy quadcopter in sneak attack from above](https://news.yahoo.com/ukrainian-drone-downs-enemy-quadcopter-123500219.html)
 - Feb 16 - [Raquel Welch: A life in pictures](https://news.yahoo.com/raquel-welch-life-pictures-000508032.html)
+- Feb 16 - ['Masked Singer' Unmasks 'Greatest Reveal Ever' And It's Absolutely Awesome](https://news.yahoo.com/masked-singer-unmasks-greatest-reveal-115110778.html)
 - Feb 16 - [Denver councilman said he was left 'humiliated' after he was forced to crawl onto a debate stage with no wheelchair access](https://news.yahoo.com/denver-councilman-said-left-humiliated-114429575.html)
-- Feb 16 - [Savannah Chrisley says it's 'really weird' seeing dad Todd Chrisley with gray hair in prison: 'He's definitely used some color over the years'](https://news.yahoo.com/savannah-chrisley-says-really-weird-112557767.html)
-- Feb 16 - [Keanu Reeves says he has a clause in all his movie contracts banning digital edits to his performances: 'That's scary'](https://news.yahoo.com/keanu-reeves-says-clause-movie-111904128.html)
-- Feb 16 - [Chelsea Handler Taunts ‘Hate-Masturbating’ Tucker Carlson Over Latest Meltdown](https://news.yahoo.com/chelsea-handler-taunts-hate-masturbating-094039600.html)
 <!-- feed end -->
