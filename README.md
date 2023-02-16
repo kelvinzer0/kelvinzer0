@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 16 - [Police say Michigan State shooter felt 'slighted'](https://news.yahoo.com/police-michigan-state-shooter-felt-195213563.html)
+- Feb 16 - [Biden says 3 unidentified objects shot down over U.S. and Canada likely not used for spying](https://news.yahoo.com/biden-says-3-unidentified-objects-203252584.html)
+- Feb 16 - [Former Vice President Mike Pence says he'll 'fight subpoena from Biden's DOJ'](https://news.yahoo.com/former-vice-president-mike-pence-203237666.html)
+- Feb 16 - [Bruce Willis has frontotemporal dementia, condition worsens](https://news.yahoo.com/bruce-willis-frontotemporal-dementia-condition-202022313.html)
+- Feb 16 - [Justice Dept. in DC taking over Texas AG corruption probe](https://news.yahoo.com/justice-dept-dc-taking-over-195342356.html)
 - Feb 16 - [‘Fire-breathing demon’ dog returns to shelter. He was too much for new owner to handle](https://news.yahoo.com/fire-breathing-demon-dog-returns-194933918.html)
-- Feb 16 - [Sen. John Fetterman checks into hospital for depression](https://news.yahoo.com/sen-john-fetterman-check-hospital-194546630.html)
-- Feb 16 - [Prosecution, defense get wins with Alex Murdaugh lead agent](https://news.yahoo.com/prosecution-defense-wins-alex-murdaugh-191324967.html)
-- Feb 16 - [Vladimir Putin’s failures are fooling the West](https://news.yahoo.com/vladimir-putin-failures-fooling-west-190000584.html)
 <!-- feed end -->
