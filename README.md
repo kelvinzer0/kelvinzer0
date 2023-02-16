@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Feb 15 - [Nikki Haley launches GOP campaign by insulting Americans age 75 and over. Great start!](https://news.yahoo.com/nikki-haley-launches-gop-campaign-193422788.html)
 - Feb 15 - [Messages: Officer often fed information to Proud Boys leader](https://news.yahoo.com/messages-officer-often-fed-information-215958032.html)
 - Feb 15 - [Town can't refuse Amazon offer despite Duvall opposition](https://news.yahoo.com/town-cant-refuse-amazon-offer-214403021.html)
+- Feb 15 - [Activists rally behind Missouri lawmaker cut off in debate](https://news.yahoo.com/activists-rally-behind-missouri-lawmaker-212421006.html)
 - Feb 15 - [Nick Sirianni and wife win court battle over South Jersey home. Here's what happened](https://news.yahoo.com/nick-sirianni-wife-win-court-150806711.html)
-- Feb 15 - [Los Angeles Chinatown restaurant asks for help after being hit with $13,000 gas bill](https://news.yahoo.com/los-angeles-chinatown-restaurant-asks-210705534.html)
 <!-- feed end -->
