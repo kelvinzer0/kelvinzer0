@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 16 - [Alexei Navalny Is Being Tortured in Perpetual Solitary Confinement, Says Director of Oscar-Nominated Doc ‘Navalny’](https://news.yahoo.com/doc-features-social3-083817575.html)
+- Feb 16 - [Canada to deploy Navy vessels to Haiti as violence worsens](https://news.yahoo.com/canada-deploy-navy-vessels-haiti-183028008.html)
+- Feb 16 - [Georgia grand jury report into Trump's election probe recommends 'appropriate indictment'](https://news.yahoo.com/georgia-grand-jury-report-trumps-182823494.html)
+- Feb 16 - [I'm an interior designer. Here are 10 trends that don't actually look good in real life.](https://news.yahoo.com/im-interior-designer-10-trends-173248190.html)
 - Feb 16 - [Boater thought he hit log – then hears horrified screams of American mother in Belize](https://news.yahoo.com/boater-thought-hit-log-then-172020821.html)
-- Feb 16 - [Rep. George Santos barricaded himself in his district office as angry constituents stood outside demanding his resignation: reports](https://news.yahoo.com/rep-george-santos-barricaded-himself-170250783.html)
-- Feb 16 - [John Legend shares 1st photo of his family of 5: ‘Best Valentine’s dates’](https://news.yahoo.com/john-legend-shares-1st-photo-165339346.html)
-- Feb 16 - [‘F—k Your Thoughts and Prayers’: Lawmakers Vow Action After 3 Killed in Mass Shooting at MSU](https://news.yahoo.com/f-k-thoughts-prayers-lawmakers-163000066.html)
+- Feb 16 - [Cops Reveal Contents of ‘Slighted’ MSU Gunman’s Suicide Note](https://news.yahoo.com/cops-reveal-contents-slighted-msu-171928777.html)
 <!-- feed end -->
