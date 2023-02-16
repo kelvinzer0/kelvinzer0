@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 16 - [Alexei Navalny Is Being Tortured in Perpetual Solitary Confinement, Says Director of Oscar-Nominated Doc ‘Navalny’](https://news.yahoo.com/doc-features-social3-083817575.html)
+- Feb 16 - [Boater thought he hit log – then hears horrified screams of American mother in Belize](https://news.yahoo.com/boater-thought-hit-log-then-172020821.html)
+- Feb 16 - [Rep. George Santos barricaded himself in his district office as angry constituents stood outside demanding his resignation: reports](https://news.yahoo.com/rep-george-santos-barricaded-himself-170250783.html)
+- Feb 16 - [John Legend shares 1st photo of his family of 5: ‘Best Valentine’s dates’](https://news.yahoo.com/john-legend-shares-1st-photo-165339346.html)
 - Feb 16 - [‘F—k Your Thoughts and Prayers’: Lawmakers Vow Action After 3 Killed in Mass Shooting at MSU](https://news.yahoo.com/f-k-thoughts-prayers-lawmakers-163000066.html)
-- Feb 16 - [Don Lemon Annoys Female Colleagues Again With ‘Completely Offensive’ Remarks](https://news.yahoo.com/don-lemon-annoys-female-colleagues-162352154.html)
-- Feb 16 - [Top Russian Military Official Dead After Fall From 16th Floor](https://news.yahoo.com/top-russian-military-official-dead-160257516.html)
-- Feb 16 - [Diddy's former bodyguard claims The Notorious B.I.G. wasn't killed in a drive-by shooting: 'The car was probably there all night'](https://news.yahoo.com/diddys-former-bodyguard-claims-notorious-155359452.html)
-- Feb 16 - [What does the release of Georgia’s grand jury report mean for Trump?](https://news.yahoo.com/georgia-trump-election-inquiry-lead-100003933.html)
 <!-- feed end -->
