@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 16 - [Woman exercising at gym is attacked, Florida cops say. Then bodybuilder fights back](https://news.yahoo.com/woman-exercising-gym-attacked-florida-142943013.html)
 - Feb 16 - [A Russian marine who survived bitter fighting in Vuhledar says soldiers left alive are being treated like deserters: 'It would have been better if I had been captured'](https://news.yahoo.com/russian-marine-survived-bitter-fighting-125756985.html)
 - Feb 16 - [Ukrainian drone downs enemy quadcopter in sneak attack from above](https://news.yahoo.com/ukrainian-drone-downs-enemy-quadcopter-123500219.html)
 - Feb 16 - [Raquel Welch: A life in pictures](https://news.yahoo.com/raquel-welch-life-pictures-000508032.html)
-- Feb 16 - ['Masked Singer' Unmasks 'Greatest Reveal Ever' And It's Absolutely Awesome](https://news.yahoo.com/masked-singer-unmasks-greatest-reveal-115110778.html)
-- Feb 16 - [Denver councilman said he was left 'humiliated' after he was forced to crawl onto a debate stage with no wheelchair access](https://news.yahoo.com/denver-councilman-said-left-humiliated-114429575.html)
+- Feb 16 - [Husband wakes wife to tell her about his Iowa lottery win. ‘I heard her scream’](https://news.yahoo.com/husband-wakes-wife-tell-her-120000754.html)
 <!-- feed end -->
