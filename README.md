@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 16 - [‘F—k Your Thoughts and Prayers’: Lawmakers Vow Action After 3 Killed in Mass Shooting at MSU](https://news.yahoo.com/f-k-thoughts-prayers-lawmakers-163000066.html)
+- Feb 16 - [Don Lemon Annoys Female Colleagues Again With ‘Completely Offensive’ Remarks](https://news.yahoo.com/don-lemon-annoys-female-colleagues-162352154.html)
+- Feb 16 - [Top Russian Military Official Dead After Fall From 16th Floor](https://news.yahoo.com/top-russian-military-official-dead-160257516.html)
+- Feb 16 - [Diddy's former bodyguard claims The Notorious B.I.G. wasn't killed in a drive-by shooting: 'The car was probably there all night'](https://news.yahoo.com/diddys-former-bodyguard-claims-notorious-155359452.html)
 - Feb 16 - [What does the release of Georgia’s grand jury report mean for Trump?](https://news.yahoo.com/georgia-trump-election-inquiry-lead-100003933.html)
-- Feb 16 - [I came out as bisexual to my husband after 8 years of marriage. A few months later, I learned my husband was having an affair.](https://news.yahoo.com/came-bisexual-husband-8-years-150129155.html)
-- Feb 16 - [Ron DeSantis requested the medical records of all trans students in Florida's public universities. Now students are planning a statewide walkout.](https://news.yahoo.com/ron-desantis-requested-medical-records-145417991.html)
-- Feb 16 - [Is it worth removing your fallopian tubes if you're not at an obvious risk of ovarian cancer? A top advocacy group recommends it](https://news.yahoo.com/removing-fallopian-tubes-not-obvious-risk-ovarian-cancer-advocacy-group-recommends-144125768.html)
-- Feb 16 - [Woman exercising at gym is attacked, Florida cops say. Then bodybuilder fights back](https://news.yahoo.com/woman-exercising-gym-attacked-florida-142943013.html)
 <!-- feed end -->
