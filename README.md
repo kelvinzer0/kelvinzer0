@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 15 - [Nikki Haley launches GOP campaign by insulting Americans age 75 and over. Great start!](https://news.yahoo.com/nikki-haley-launches-gop-campaign-193422788.html)
 - Feb 15 - [Nick Sirianni and wife win court battle over South Jersey home. Here's what happened](https://news.yahoo.com/nick-sirianni-wife-win-court-150806711.html)
+- Feb 15 - [Los Angeles Chinatown restaurant asks for help after being hit with $13,000 gas bill](https://news.yahoo.com/los-angeles-chinatown-restaurant-asks-210705534.html)
 - Feb 15 - [Taylor Schabusiness attacks lawyer in Brown County courtroom; she is charged with killing, decapitating friend](https://news.yahoo.com/taylor-schabusiness-attacks-lawyer-brown-161929210.html)
-- Feb 15 - [Buffalo Tops supermarket shooter attacked at sentencing during emotional victim statement](https://news.yahoo.com/buffalo-tops-supermarket-shooter-attacked-155613836.html)
-- Feb 15 - [Dear white Americans: You’re not racist about guns. You’re worse. | Opinion](https://news.yahoo.com/dear-white-americans-not-racist-134645192.html)
+- Feb 15 - [Yes, Indiana native Babyface played his guitar upside down at the Super Bowl. Here's why](https://news.yahoo.com/yes-indiana-native-babyface-played-151957521.html)
 <!-- feed end -->
