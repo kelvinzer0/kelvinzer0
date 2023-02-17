@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 17 - [Daughter’s TikTok video pushes dad’s book to bestseller ten years after publication](https://news.yahoo.com/daughter-tiktok-video-pushes-dad-184304137.html)
+- Feb 17 - [Dog vs shark standoff thrills tourists on Bahamas boat tour](https://news.yahoo.com/dog-vs-shark-standoff-thrills-182234358.html)
+- Feb 17 - [Wagner Group releases graphic video of corpses in desperate plea for more ammunition](https://news.yahoo.com/wagner-group-releases-graphic-video-180617426.html)
+- Feb 17 - [Paris Hilton Makes Surprising Confession About Her Sexuality Before Meeting Husband](https://news.yahoo.com/paris-hilton-makes-surprising-confession-175820528.html)
 - Feb 17 - [Republicans to adopt loyalty pledge for debate participants](https://news.yahoo.com/republicans-adopt-loyalty-pledge-debate-172511940.html)
-- Feb 17 - [Trump lawyers try to ban 'Access Hollywood' tape from trial](https://news.yahoo.com/trump-lawyers-try-ban-access-172421688.html)
-- Feb 17 - [Mother of Tyre Nichols reacts to five ex-officers who pleaded not guilty in beating death of her son](https://news.yahoo.com/mother-tyre-nichols-reacts-five-171157191.html)
-- Feb 17 - [Memphis NAACP president reacts to arraignment of officers in Tyre Nichols' death](https://news.yahoo.com/memphis-naacp-president-reacts-arraignment-170306458.html)
-- Feb 17 - [Car data mapped Alex Murdaugh’s movements the night of the murders. What it shows](https://news.yahoo.com/car-data-mapped-alex-murdaugh-165541029.html)
 <!-- feed end -->
