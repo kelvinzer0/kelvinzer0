@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 17 - [I Used AI Technology On 16 Celebs To See What They'd Look Like As Disney Characters, And It's Scary](https://news.yahoo.com/used-ai-technology-16-celebs-230331014.html)
+- Feb 17 - [Eric Bieniemy takes job with Commanders, while Chiefs could replace him quickly: reports](https://news.yahoo.com/eric-bieniemy-takes-job-commanders-222426986.html)
 - Feb 17 - [Wagner Group releases graphic video of corpses in desperate plea for more ammunition](https://news.yahoo.com/wagner-group-releases-graphic-video-180617426.html)
 - Feb 17 - [Wealthy Americans are racing to get the EU's last remaining 'golden passport' before it's gone](https://news.yahoo.com/wealthy-americans-racing-eus-last-190259043.html)
 - Feb 17 - [1st class of Ukraine fighters finishes advanced US training](https://news.yahoo.com/1st-class-ukraine-fighters-finishes-190155026.html)
-- Feb 17 - ['I miss my children so much': Why an American father of 2 is walking endlessly on a treadmill in Seoul](https://news.yahoo.com/miss-children-much-why-american-190059772.html)
-- Feb 17 - [My dad died in September from frontotemporal dementia. My heart breaks for Bruce Willis' family, because I know how hard this disease is.](https://news.yahoo.com/dad-died-september-frontotemporal-dementia-185743317.html)
 <!-- feed end -->
