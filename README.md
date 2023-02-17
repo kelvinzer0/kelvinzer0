@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 17 - [The 6 Best Anti-Inflammatory Foods to Add to Your Diet](https://news.yahoo.com/6-best-anti-inflammatory-foods-194003864.html)
-- Feb 17 - [Dog vs shark standoff thrills tourists on Bahamas boat tour](https://news.yahoo.com/dog-vs-shark-standoff-thrills-182234358.html)
-- Feb 17 - [2,000-year-old hall unearthed in Italian villa where Roman emperor and knights partied](https://news.yahoo.com/2-000-old-hall-unearthed-181249268.html)
 - Feb 17 - [Wagner Group releases graphic video of corpses in desperate plea for more ammunition](https://news.yahoo.com/wagner-group-releases-graphic-video-180617426.html)
-- Feb 17 - [Paris Hilton Makes Surprising Confession About Her Sexuality Before Meeting Husband](https://news.yahoo.com/paris-hilton-makes-surprising-confession-175820528.html)
+- Feb 17 - [Memphis officers plead not guilty in Nichols death](https://news.yahoo.com/memphis-officers-plead-not-guilty-202824705.html)
+- Feb 17 - [Wealthy Americans are racing to get the EU's last remaining 'golden passport' before it's gone](https://news.yahoo.com/wealthy-americans-racing-eus-last-190259043.html)
+- Feb 17 - [1st class of Ukraine fighters finishes advanced US training](https://news.yahoo.com/1st-class-ukraine-fighters-finishes-190155026.html)
+- Feb 17 - ['I miss my children so much': Why an American father of 2 is walking endlessly on a treadmill in Seoul](https://news.yahoo.com/miss-children-much-why-american-190059772.html)
 <!-- feed end -->
