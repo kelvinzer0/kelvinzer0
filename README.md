@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 17 - [Austin Butler says he copied Ryan Gosling and drank microwaved ice cream to gain weight for 'Elvis': 'It's fun for a week and then you feel awful about yourself'](https://news.yahoo.com/austin-butler-says-copied-ryan-111755347.html)
 - Feb 17 - [I spent 11 hours with 3 strangers in a shared cabin on a sleeper train in Europe. 6 surprises made me regret my choice.](https://news.yahoo.com/spent-11-hours-3-strangers-100100128.html)
 - Feb 17 - [I spent a night in New York's worst-rated hotel and 12 things shocked me, from my tiny windowless room to the roll of toilet paper I was handed at check-in](https://news.yahoo.com/spent-night-yorks-worst-rated-100100754.html)
 - Feb 17 - [Romney, outspoken about his own party, weighs reelection run](https://news.yahoo.com/romney-outspoken-own-party-weighs-052919941.html)
 - Feb 17 - [Trump Outlandishly Claims Georgia Grand Jury Excerpts Are 'Total Exoneration' Of Him](https://news.yahoo.com/trump-outlandishly-claims-georgia-grand-051554206.html)
-- Feb 17 - [Indian child marriage crackdown leaves families in anguish](https://news.yahoo.com/indian-child-marriage-crackdown-leaves-051125089.html)
 <!-- feed end -->
