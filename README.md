@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 17 - [US forest issues kill order for feral cows in New Mexico](https://news.yahoo.com/us-forest-issues-kill-order-010809728.html)
+- Feb 17 - [Kari Lake loses appeal in Arizona governor race challenge](https://news.yahoo.com/kari-lake-loses-appeal-loss-002227713.html)
+- Feb 17 - [Texas death row inmate dies after December surgery for tumor](https://news.yahoo.com/texas-death-row-inmate-dies-000351503.html)
+- Feb 16 - [Tucker Carlson told his producer Trump is 'the undisputed world champion' of destroying things and could ruin Fox News if it didn't back his election lies](https://news.yahoo.com/tucker-carlson-told-producer-trump-231515596.html)
 - Feb 16 - ['Don’t Play With Us.' Estonia Sends Message To Russia With Ukraine Aid](https://news.yahoo.com/don-t-play-us-estonia-214443341.html)
-- Feb 16 - [Why did DA drop felony charge against ex-Texas coach Beard?](https://news.yahoo.com/why-did-da-drop-felony-212327168.html)
-- Feb 16 - [Judge suggests jail to limit FTX founder's communications](https://news.yahoo.com/judge-suggests-jail-limit-ftx-211928851.html)
-- Feb 16 - [Texas mall shooting started as fight between groups](https://news.yahoo.com/texas-mall-shooting-started-fight-205114918.html)
-- Feb 16 - [A top Russian military official is dead after falling out of a 16th-floor window, the latest in a string of untimely deaths](https://news.yahoo.com/top-russian-military-official-dead-204550339.html)
 <!-- feed end -->
