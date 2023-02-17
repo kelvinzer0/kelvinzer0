@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 17 - [Resistance in occupied Crimea growing noticeably more pro-Ukrainian – Tasheva](https://news.yahoo.com/resistance-occupied-crimea-growing-noticeably-162600420.html)
+- Feb 17 - [Man rescued from under rubble more than 261 hours after Turkey earthquake](https://news.yahoo.com/man-rescued-under-rubble-more-160053916.html)
+- Feb 17 - [‘Decisive action’: Florida woman, 67, shoots, kills armed man inside her home](https://news.yahoo.com/decisive-action-florida-woman-67-155200609.html)
+- Feb 17 - [Arrested German intel officer was to leak HIMARS and IRIS-T locations in Ukraine to Moscow – Der Spiegel](https://news.yahoo.com/arrested-german-intel-officer-leak-154700821.html)
 - Feb 17 - [100 days after the election, Kari Lake loses again. What a surprise](https://news.yahoo.com/100-days-election-kari-lake-020705872.html)
-- Feb 17 - [Austin Butler says he copied Ryan Gosling and drank microwaved ice cream to gain weight for 'Elvis': 'It's fun for a week and then you feel awful about yourself'](https://news.yahoo.com/austin-butler-says-copied-ryan-111755347.html)
-- Feb 17 - [Apple flexes lobbying power as Apple Watch ban comes before Biden next week](https://news.yahoo.com/apple-flexes-lobbying-power-apple-110000532.html)
-- Feb 17 - [I spent 11 hours with 3 strangers in a shared cabin on a sleeper train in Europe. 6 surprises made me regret my choice.](https://news.yahoo.com/spent-11-hours-3-strangers-100100128.html)
-- Feb 17 - [Cruz responds after Biden allegedly authorized $200 million fighter jet to shoot down $12 science project](https://news.yahoo.com/cruz-responds-biden-allegedly-authorized-071548749.html)
 <!-- feed end -->
