@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 17 - [Resistance in occupied Crimea growing noticeably more pro-Ukrainian – Tasheva](https://news.yahoo.com/resistance-occupied-crimea-growing-noticeably-162600420.html)
-- Feb 17 - [Man rescued from under rubble more than 261 hours after Turkey earthquake](https://news.yahoo.com/man-rescued-under-rubble-more-160053916.html)
-- Feb 17 - [‘Decisive action’: Florida woman, 67, shoots, kills armed man inside her home](https://news.yahoo.com/decisive-action-florida-woman-67-155200609.html)
-- Feb 17 - [Arrested German intel officer was to leak HIMARS and IRIS-T locations in Ukraine to Moscow – Der Spiegel](https://news.yahoo.com/arrested-german-intel-officer-leak-154700821.html)
-- Feb 17 - [100 days after the election, Kari Lake loses again. What a surprise](https://news.yahoo.com/100-days-election-kari-lake-020705872.html)
+- Feb 17 - [Republicans to adopt loyalty pledge for debate participants](https://news.yahoo.com/republicans-adopt-loyalty-pledge-debate-172511940.html)
+- Feb 17 - [Trump lawyers try to ban 'Access Hollywood' tape from trial](https://news.yahoo.com/trump-lawyers-try-ban-access-172421688.html)
+- Feb 17 - [Mother of Tyre Nichols reacts to five ex-officers who pleaded not guilty in beating death of her son](https://news.yahoo.com/mother-tyre-nichols-reacts-five-171157191.html)
+- Feb 17 - [Memphis NAACP president reacts to arraignment of officers in Tyre Nichols' death](https://news.yahoo.com/memphis-naacp-president-reacts-arraignment-170306458.html)
+- Feb 17 - [Car data mapped Alex Murdaugh’s movements the night of the murders. What it shows](https://news.yahoo.com/car-data-mapped-alex-murdaugh-165541029.html)
 <!-- feed end -->
