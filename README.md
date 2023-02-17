@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 17 - [Trump Outlandishly Claims Georgia Grand Jury Excerpts Are 'Total Exoneration' Of Him](https://news.yahoo.com/trump-outlandishly-claims-georgia-grand-051554206.html)
 - Feb 17 - [Indian child marriage crackdown leaves families in anguish](https://news.yahoo.com/indian-child-marriage-crackdown-leaves-051125089.html)
+- Feb 17 - [N. Korea threatens unprecedented response to South-US drill](https://news.yahoo.com/korea-us-hold-simulated-drill-042425830.html)
 - Feb 17 - [An Irishman suffered a sudden cardiac arrest after being attacked by a large chicken. His last word was 'rooster.'](https://news.yahoo.com/irishman-suffered-sudden-cardiac-arrest-030030555.html)
 - Feb 17 - [Michael Cohen Calls Trump's Subpoena Of Him The 'Dumbest Move' He Can Imagine](https://news.yahoo.com/michael-cohen-calls-trumps-subpeona-013205051.html)
-- Feb 17 - [Ann Coulter tells Nikki Haley to ‘go back to your own country’ in racist rant against new GOP presidential candidate](https://news.yahoo.com/ann-coulter-tells-nikki-haley-012605583.html)
-- Feb 17 - [California lawyer accused of living 'extravagant lifestyle' gambling on $10M of company's funds: reports](https://news.yahoo.com/california-lawyer-accused-living-extravagant-011747481.html)
 <!-- feed end -->
