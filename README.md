@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 17 - [Daughter’s TikTok video pushes dad’s book to bestseller ten years after publication](https://news.yahoo.com/daughter-tiktok-video-pushes-dad-184304137.html)
+- Feb 17 - [The 6 Best Anti-Inflammatory Foods to Add to Your Diet](https://news.yahoo.com/6-best-anti-inflammatory-foods-194003864.html)
 - Feb 17 - [Dog vs shark standoff thrills tourists on Bahamas boat tour](https://news.yahoo.com/dog-vs-shark-standoff-thrills-182234358.html)
+- Feb 17 - [2,000-year-old hall unearthed in Italian villa where Roman emperor and knights partied](https://news.yahoo.com/2-000-old-hall-unearthed-181249268.html)
 - Feb 17 - [Wagner Group releases graphic video of corpses in desperate plea for more ammunition](https://news.yahoo.com/wagner-group-releases-graphic-video-180617426.html)
 - Feb 17 - [Paris Hilton Makes Surprising Confession About Her Sexuality Before Meeting Husband](https://news.yahoo.com/paris-hilton-makes-surprising-confession-175820528.html)
-- Feb 17 - [Republicans to adopt loyalty pledge for debate participants](https://news.yahoo.com/republicans-adopt-loyalty-pledge-debate-172511940.html)
 <!-- feed end -->
