@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 17 - [White House defends President Biden's health after Nikki Haley questioned his abilities](https://news.yahoo.com/white-house-defends-president-bidens-133253929.html)
 - Feb 17 - [100 days after the election, Kari Lake loses again. What a surprise](https://news.yahoo.com/100-days-election-kari-lake-020705872.html)
 - Feb 17 - [Austin Butler says he copied Ryan Gosling and drank microwaved ice cream to gain weight for 'Elvis': 'It's fun for a week and then you feel awful about yourself'](https://news.yahoo.com/austin-butler-says-copied-ryan-111755347.html)
 - Feb 17 - [Apple flexes lobbying power as Apple Watch ban comes before Biden next week](https://news.yahoo.com/apple-flexes-lobbying-power-apple-110000532.html)
 - Feb 17 - [I spent 11 hours with 3 strangers in a shared cabin on a sleeper train in Europe. 6 surprises made me regret my choice.](https://news.yahoo.com/spent-11-hours-3-strangers-100100128.html)
+- Feb 17 - [I spent a night in New York's worst-rated hotel and 12 things shocked me, from my tiny windowless room to the roll of toilet paper I was handed at check-in](https://news.yahoo.com/spent-night-yorks-worst-rated-100100754.html)
 <!-- feed end -->
