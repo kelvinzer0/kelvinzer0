@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 17 - [Michael Cohen Calls Trump's Subpoena Of Him The 'Dumbest Move' He Can Imagine](https://news.yahoo.com/michael-cohen-calls-trumps-subpeona-013205051.html)
 - Feb 17 - [Ann Coulter tells Nikki Haley to ‘go back to your own country’ in racist rant against new GOP presidential candidate](https://news.yahoo.com/ann-coulter-tells-nikki-haley-012605583.html)
+- Feb 17 - [California lawyer accused of living 'extravagant lifestyle' gambling on $10M of company's funds: reports](https://news.yahoo.com/california-lawyer-accused-living-extravagant-011747481.html)
 - Feb 17 - [Kill order for New Mexico feral cows issued by US officials](https://news.yahoo.com/us-forest-issues-kill-order-010809728.html)
-- Feb 17 - [Texas death row inmate dies after December surgery for tumor](https://news.yahoo.com/texas-death-row-inmate-dies-000351503.html)
-- Feb 16 - [Tucker Carlson told his producer Trump is 'the undisputed world champion' of destroying things and could ruin Fox News if it didn't back his election lies](https://news.yahoo.com/tucker-carlson-told-producer-trump-231515596.html)
+- Feb 17 - [Alex Murdaugh’s Own Brother Called Detectives To Report Suspicious Behavior After The Roadside Shooting That Murdaugh Planned For An Insurance Payout](https://news.yahoo.com/alex-murdaugh-own-brother-called-000634078.html)
 <!-- feed end -->
