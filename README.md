@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 17 - [US forest issues kill order for feral cows in New Mexico](https://news.yahoo.com/us-forest-issues-kill-order-010809728.html)
+- Feb 17 - [This Student's Assignment Was Due At Midnight. They Turned It In At 11:46 P.M., But Their Teacher Marked It Late, And People Have THOUGHTS](https://news.yahoo.com/students-assignment-due-midnight-turned-222506069.html)
+- Feb 17 - [Michael Cohen Calls Trump's Subpoena Of Him The 'Dumbest Move' He Can Imagine](https://news.yahoo.com/michael-cohen-calls-trumps-subpeona-013205051.html)
+- Feb 17 - [Ann Coulter tells Nikki Haley to ‘go back to your own country’ in racist rant against new GOP presidential candidate](https://news.yahoo.com/ann-coulter-tells-nikki-haley-012605583.html)
+- Feb 17 - [Kill order for New Mexico feral cows issued by US officials](https://news.yahoo.com/us-forest-issues-kill-order-010809728.html)
 - Feb 17 - [Kari Lake loses appeal in Arizona governor race challenge](https://news.yahoo.com/kari-lake-loses-appeal-loss-002227713.html)
-- Feb 17 - [Texas death row inmate dies after December surgery for tumor](https://news.yahoo.com/texas-death-row-inmate-dies-000351503.html)
-- Feb 16 - [Tucker Carlson told his producer Trump is 'the undisputed world champion' of destroying things and could ruin Fox News if it didn't back his election lies](https://news.yahoo.com/tucker-carlson-told-producer-trump-231515596.html)
-- Feb 16 - ['Don’t Play With Us.' Estonia Sends Message To Russia With Ukraine Aid](https://news.yahoo.com/don-t-play-us-estonia-214443341.html)
 <!-- feed end -->
