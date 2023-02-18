@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 18 - [Trump tried to call in to Fox News as the Capitol riot unfolded but the network refused to put him on air, new filing claims](https://news.yahoo.com/trump-tried-call-fox-news-112416385.html)
+- Feb 18 - [Senior ISIS leader killed, 4 U.S. troops wounded in northeast Syria raid](https://news.yahoo.com/senior-isis-leader-killed-4-133925589.html)
+- Feb 18 - [FBI records deepen mystery of dig for Civil War-era gold](https://news.yahoo.com/fbi-records-deepen-mystery-dig-130135987.html)
 - Feb 18 - [A ‘base camp’ has popped up on vacant land in the Florida Keys. What’s happening there?](https://news.yahoo.com/camp-popped-vacant-land-florida-100000311.html)
 - Feb 18 - [Metal detectorists face end of finders keepers as they are told to hand over more ‘treasure’](https://news.yahoo.com/metal-detectorists-face-end-finders-080000033.html)
-- Feb 18 - [George Santos' Response To Book About Him Has Twitter Critics Howling](https://news.yahoo.com/george-santos-response-book-him-072846128.html)
 - Feb 18 - [Russian envoy claims West is determined to destroy Russia](https://news.yahoo.com/russian-envoy-claims-west-determined-062249875.html)
 <!-- feed end -->
