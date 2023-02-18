@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 18 - [Carter Center: Former President Jimmy Carter in hospice care](https://news.yahoo.com/charity-former-president-jimmy-carter-203157861.html)
+- Feb 18 - [Jakub Vrana: 'Really thankful' to be back with Detroit Red Wings](https://news.yahoo.com/jakub-vrana-really-thankful-back-214611296.html)
+- Feb 18 - [Jimmy Carter, 39th US president, in hospice care](https://news.yahoo.com/charity-former-president-jimmy-carter-203157861.html)
 - Feb 18 - [A woman escaped the man who abducted her for a year by running barefoot into a New Jersey gas station](https://news.yahoo.com/woman-escaped-man-abducted-her-200046120.html)
-- Feb 18 - [Armed with rifles, a ‘mudroots’ Detroit group wards off crime](https://news.yahoo.com/armed-with-rifles-a-mudroots-detroit-group-new-era-crime-182026014.html)
-- Feb 18 - [Former WH doctor for Trump, Obama blasts 'alarming' Biden health report: 'The cover-up needs to end'](https://news.yahoo.com/former-wh-doctor-trump-obama-174901498.html)
-- Feb 18 - [Dethroned King: Petty hurt as Johnson takes over race team](https://news.yahoo.com/richard-petty-bothered-johnsons-takeover-173310579.html)
+- Feb 18 - [VP Harris returns from Germany in C-17 support plane after Air Force Two experiences mechanical issues](https://news.yahoo.com/vp-harris-returns-germany-c-192201203.html)
+- Feb 18 - [Virginia school bus video shows student choking 7th-grader in bullying incident, mom says](https://news.yahoo.com/virginia-school-bus-video-shows-190640376.html)
 <!-- feed end -->
