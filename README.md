@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 18 - [25 People Who Spent A Toooooon Of Money On Something And Immediately Regretted It](https://news.yahoo.com/25-people-spent-toooooon-money-224727971.html)
-- Feb 18 - [Former judge critiques Pence's rejection of special counsel's subpoena](https://news.yahoo.com/pences-legal-argument-denying-special-001105873.html)
+- Feb 18 - [New Rule Parliament Fights Real Time with Bill Maher Marjorie Taylor Greene](https://news.yahoo.com/rule-parliament-fights-real-time-043808654.html)
 - Feb 17 - [Alex Murdaugh Got A Text From His Son A Month Before The Murders: “Mom Found Several Bags Of Pills In Your Computer Bag”](https://news.yahoo.com/alex-murdaugh-wife-found-several-231006997.html)
 - Feb 17 - [Meghan Markle's new legal battle raises red flags, experts say: 'Trail of damaged and destroyed relationships'](https://news.yahoo.com/meghan-markles-legal-battle-raises-224012219.html)
 - Feb 17 - [Storm battered historic pier beyond repair in California. Now it’ll be demolished](https://news.yahoo.com/storm-battered-historic-pier-beyond-204636723.html)
+- Feb 17 - [Wagner Group releases graphic video of corpses in desperate plea for more ammunition](https://news.yahoo.com/wagner-group-releases-graphic-video-180617426.html)
 <!-- feed end -->
