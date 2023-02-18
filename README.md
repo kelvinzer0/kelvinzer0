@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 18 - [Trump tried to call in to Fox News as the Capitol riot unfolded but the network refused to put him on air, new filing claims](https://news.yahoo.com/trump-tried-call-fox-news-112416385.html)
 - Feb 18 - [A ‘base camp’ has popped up on vacant land in the Florida Keys. What’s happening there?](https://news.yahoo.com/camp-popped-vacant-land-florida-100000311.html)
 - Feb 18 - [Metal detectorists face end of finders keepers as they are told to hand over more ‘treasure’](https://news.yahoo.com/metal-detectorists-face-end-finders-080000033.html)
 - Feb 18 - [George Santos' Response To Book About Him Has Twitter Critics Howling](https://news.yahoo.com/george-santos-response-book-him-072846128.html)
 - Feb 18 - [Russian envoy claims West is determined to destroy Russia](https://news.yahoo.com/russian-envoy-claims-west-determined-062249875.html)
-- Feb 18 - [Turmoil in courts on gun laws in wake of justices' ruling](https://news.yahoo.com/turmoil-courts-gun-laws-wake-060159734.html)
 <!-- feed end -->
