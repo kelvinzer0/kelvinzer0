@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 18 - [Texas death row inmate who cut out his eyes seeks clemency](https://news.yahoo.com/texas-death-row-inmate-cut-151307473.html)
+- Feb 18 - [How the Native American population in the US increased 87% says more about whiteness than about demographics](https://news.yahoo.com/native-american-population-us-increased-132813095.html)
 - Feb 18 - [Los Angeles oak tree carries legacy of forgotten 1936 Olympic athlete](https://news.yahoo.com/los-angeles-oak-tree-carries-142528372.html)
 - Feb 18 - [Rupert Murdoch suggested Fox News hosts Carlson, Hannity and Ingraham go on air and say Joe Biden had won 2020 election, court filing says](https://news.yahoo.com/rupert-murdoch-suggested-fox-news-141239841.html)
-- Feb 18 - [FBI records deepen mystery of dig for Civil War-era gold](https://news.yahoo.com/fbi-records-deepen-mystery-dig-130135987.html)
-- Feb 18 - [New street drug is surfacing, threatening to make California's overdose crisis worse](https://news.yahoo.com/street-drug-surfacing-threatening-californias-130054778.html)
+- Feb 18 - [Propagandists of Wagner Group accidentally reveal repair base near Luhansk](https://news.yahoo.com/propagandists-wagner-group-accidentally-reveal-130447994.html)
 <!-- feed end -->
