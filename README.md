@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 17 - [I Used AI Technology On 16 Celebs To See What They'd Look Like As Disney Characters, And It's Scary](https://news.yahoo.com/used-ai-technology-16-celebs-230331014.html)
+- Feb 18 - [25 People Who Spent A Toooooon Of Money On Something And Immediately Regretted It](https://news.yahoo.com/25-people-spent-toooooon-money-224727971.html)
+- Feb 18 - [Former judge critiques Pence's rejection of special counsel's subpoena](https://news.yahoo.com/pences-legal-argument-denying-special-001105873.html)
+- Feb 17 - [Meghan Markle's new legal battle raises red flags, experts say: 'Trail of damaged and destroyed relationships'](https://news.yahoo.com/meghan-markles-legal-battle-raises-224012219.html)
 - Feb 17 - [Eric Bieniemy takes job with Commanders, while Chiefs could replace him quickly: reports](https://news.yahoo.com/eric-bieniemy-takes-job-commanders-222426986.html)
 - Feb 17 - [Storm battered historic pier beyond repair in California. Now it’ll be demolished](https://news.yahoo.com/storm-battered-historic-pier-beyond-204636723.html)
-- Feb 17 - [Wagner Group releases graphic video of corpses in desperate plea for more ammunition](https://news.yahoo.com/wagner-group-releases-graphic-video-180617426.html)
-- Feb 17 - [Charlene Tilton reveals 'Dallas' co-star Larry Hagman, church saved her from temptations of fame](https://news.yahoo.com/charlene-tilton-reveals-dallas-co-200024976.html)
 <!-- feed end -->
