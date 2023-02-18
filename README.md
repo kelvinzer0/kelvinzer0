@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 18 - [Carter Center: Former President Jimmy Carter in hospice care](https://news.yahoo.com/charity-former-president-jimmy-carter-203157861.html)
+- Feb 18 - [A woman escaped the man who abducted her for a year by running barefoot into a New Jersey gas station](https://news.yahoo.com/woman-escaped-man-abducted-her-200046120.html)
 - Feb 18 - [Armed with rifles, a ‘mudroots’ Detroit group wards off crime](https://news.yahoo.com/armed-with-rifles-a-mudroots-detroit-group-new-era-crime-182026014.html)
+- Feb 18 - [Former WH doctor for Trump, Obama blasts 'alarming' Biden health report: 'The cover-up needs to end'](https://news.yahoo.com/former-wh-doctor-trump-obama-174901498.html)
 - Feb 18 - [Dethroned King: Petty hurt as Johnson takes over race team](https://news.yahoo.com/richard-petty-bothered-johnsons-takeover-173310579.html)
-- Feb 18 - [Police: 9 children shot at Georgia gas station](https://news.yahoo.com/police-9-children-shot-georgia-172037960.html)
-- Feb 18 - [Texas death row inmate who cut out his eyes seeks clemency](https://news.yahoo.com/texas-death-row-inmate-cut-151307473.html)
-- Feb 18 - [Czech president-elect warns against such Ukrainian victory which would ruin Russia](https://news.yahoo.com/czech-president-elect-warns-against-143605368.html)
 <!-- feed end -->
