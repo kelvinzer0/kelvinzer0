@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 18 - [George Santos' Response To Book About Him Has Twitter Critics Howling](https://news.yahoo.com/george-santos-response-book-him-072846128.html)
 - Feb 18 - [Russian envoy claims West is determined to destroy Russia](https://news.yahoo.com/russian-envoy-claims-west-determined-062249875.html)
+- Feb 18 - [Turmoil in courts on gun laws in wake of justices' ruling](https://news.yahoo.com/turmoil-courts-gun-laws-wake-060159734.html)
 - Feb 18 - [New Rule Parliament Fights Real Time with Bill Maher Marjorie Taylor Greene](https://news.yahoo.com/rule-parliament-fights-real-time-043808654.html)
-- Feb 18 - [North Korean leader brings daughter to soccer match](https://news.yahoo.com/north-korean-leader-brings-daughter-005943268.html)
 - Feb 17 - [Alex Murdaugh Got A Text From His Son A Month Before The Murders: “Mom Found Several Bags Of Pills In Your Computer Bag”](https://news.yahoo.com/alex-murdaugh-wife-found-several-231006997.html)
 <!-- feed end -->
