@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 19 - [Bella Ramsey Wore A Chest Binder 90% Of The Time While Shooting "The Last Of Us"](https://news.yahoo.com/bella-ramsey-wore-chest-binder-223453727.html)
+- Feb 19 - [Lawmaker Bares Blow-By-Blow Of Marjorie Taylor Greene Spy Balloon 'S***show' With General](https://news.yahoo.com/lawmaker-bares-blow-blow-marjorie-025255832.html)
 - Feb 19 - [After more than 40 years, end of the road for Southern California's Cal Worthington car dealership](https://news.yahoo.com/more-40-years-end-road-001517254.html)
 - Feb 18 - [Jimmy Carter, 39th US president, enters hospice care at home](https://news.yahoo.com/charity-former-president-jimmy-carter-203157861.html)
-- Feb 18 - [A woman escaped the man who abducted her for a year by running barefoot into a New Jersey gas station](https://news.yahoo.com/woman-escaped-man-abducted-her-200046120.html)
 - Feb 18 - [Man recounts home assault amid 6 fatal Mississippi shootings](https://news.yahoo.com/man-recounts-home-assault-amid-192043380.html)
+- Feb 18 - [Armed with rifles, a ‘mudroots’ Detroit group wards off crime](https://news.yahoo.com/armed-with-rifles-a-mudroots-detroit-group-new-era-crime-182026014.html)
 <!-- feed end -->
