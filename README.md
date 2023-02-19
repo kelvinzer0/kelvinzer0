@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 19 - [Donald Trump Jr. said he lived off gas station sushi for a year when his family financially cut him off](https://news.yahoo.com/donald-trump-jr-said-lived-161316721.html)
+- Feb 19 - [One Year Into War, Putin Is Crafting the Russia He Craves](https://news.yahoo.com/one-war-putin-crafting-russia-155910590.html)
+- Feb 19 - [50-year-old muscles just can’t grow big like they used to – the biology of how muscles change with age](https://news.yahoo.com/50-old-muscles-just-t-130737439.html)
 - Feb 19 - [Chicago mayor Lori Lightfoot is in danger of an early re-election knockout](https://news.yahoo.com/chicago-mayor-lori-lightfoot-danger-140000528.html)
-- Feb 19 - [Kansas City loves Mahomes and the Chiefs. Our kids didn’t need to see them swill beer | Opinion](https://news.yahoo.com/kansas-city-loves-mahomes-chiefs-140000920.html)
-- Feb 19 - [I spent a night at The Nuthouse and glimpsed the future of the Michigan Republican Party](https://news.yahoo.com/spent-night-nuthouse-glimpsed-future-122540004.html)
 - Feb 19 - [Meet a Navy officer who just got $323,000 in student loans forgiven and said public service was 'the only way' he could have paid off his debt](https://news.yahoo.com/meet-navy-officer-just-got-121500243.html)
-- Feb 19 - [See inside the former Emirates Airbus A340 that flies passengers to Antarctica by landing on a runway made of ice](https://news.yahoo.com/see-inside-former-emirates-airbus-114500213.html)
 <!-- feed end -->
