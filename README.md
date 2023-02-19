@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 19 - [Report: California bishop found dead of gunshot wound](https://news.yahoo.com/report-california-bishop-found-dead-060409126.html)
+- Feb 19 - [Richard Gere hospitalized overnight with pneumonia while vacationing with his family in Mexico](https://news.yahoo.com/richard-gere-hospitalized-overnight-pneumonia-054722525.html)
 - Feb 19 - [MSNBC Analyst Predicts Trump Will Seek Desperate Measures If Hit With Indictment](https://news.yahoo.com/msnbc-analyst-predicts-trump-seek-050449272.html)
 - Feb 19 - [Trumpworld Launches Bonkers New Attack on DeSantis](https://news.yahoo.com/trumpworld-launches-bonkers-attack-desantis-041023980.html)
 - Feb 19 - [Tesla Driver Killed After Plowing Into Fire Truck Parked On California Freeway](https://news.yahoo.com/tesla-driver-killed-plowing-fire-040130266.html)
-- Feb 19 - [Lawmaker Bares Blow-By-Blow Of Marjorie Taylor Greene Spy Balloon 'S***show' With General](https://news.yahoo.com/lawmaker-bares-blow-blow-marjorie-025255832.html)
 <!-- feed end -->
