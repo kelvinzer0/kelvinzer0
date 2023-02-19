@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 19 - [Priyanka Chopra shares first Instagram photo of baby Malti’s full face](https://news.yahoo.com/priyanka-chopra-shares-first-instagram-174036407.html)
+- Feb 19 - [‘Lethal’ Chinese Gifts to Putin Could Spark ‘New Cold War’ With U.S.](https://news.yahoo.com/lethal-chinese-gifts-putin-could-183103319.html)
+- Feb 19 - [Danny DeVito says animals roam all over Arnold Schwarzenegger's house and 'he still smokes his stogies'](https://news.yahoo.com/danny-devito-says-animals-roam-172420312.html)
 - Feb 19 - [Donald Trump Jr. said he lived off gas station sushi for a year when his family financially cut him off](https://news.yahoo.com/donald-trump-jr-said-lived-161316721.html)
 - Feb 19 - [One Year Into War, Putin Is Crafting the Russia He Craves](https://news.yahoo.com/one-war-putin-crafting-russia-155910590.html)
 - Feb 19 - [50-year-old muscles just can’t grow big like they used to – the biology of how muscles change with age](https://news.yahoo.com/50-old-muscles-just-t-130737439.html)
-- Feb 19 - [Chicago mayor Lori Lightfoot is in danger of an early re-election knockout](https://news.yahoo.com/chicago-mayor-lori-lightfoot-danger-140000528.html)
 <!-- feed end -->
