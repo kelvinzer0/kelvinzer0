@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 19 - [Sec. Antony Blinken visits hardest hit areas in Turkey following deadly earthquake](https://news.yahoo.com/sec-antony-blinken-visits-hardest-171324956.html)
 - Feb 19 - [A GOP senator says Republican lawmakers are frustrated with Transportation Secretary Pete Buttigieg because he wants 'everything to be climate and politically correct'](https://news.yahoo.com/gop-senator-says-republican-lawmakers-190159399.html)
+- Feb 19 - [After Bruce Willis' dementia announcement, Patti Davis remembers what it was like when her father, Ronald Reagan, publicly shared his Alzheimer's diagnosis](https://news.yahoo.com/bruce-willis-dementia-announcement-patti-184741102.html)
 - Feb 19 - [‘Lethal’ Chinese Gifts to Putin Could Spark ‘New Cold War’ With U.S.](https://news.yahoo.com/lethal-chinese-gifts-putin-could-183103319.html)
 - Feb 19 - [Love picks Miami; AP source says Heat also to sign Zeller](https://news.yahoo.com/ap-sources-love-picks-miami-172952463.html)
 - Feb 19 - [Danny DeVito says animals roam all over Arnold Schwarzenegger's house and 'he still smokes his stogies'](https://news.yahoo.com/danny-devito-says-animals-roam-172420312.html)
