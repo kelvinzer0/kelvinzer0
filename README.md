@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 19 - [25 People Who Spent A Toooooon Of Money On Something And Immediately Regretted It](https://news.yahoo.com/25-people-spent-toooooon-money-224727971.html)
+- Feb 19 - [MSNBC Analyst Predicts Trump Will Seek Desperate Measures If Hit With Indictment](https://news.yahoo.com/msnbc-analyst-predicts-trump-seek-050449272.html)
 - Feb 19 - [Trumpworld Launches Bonkers New Attack on DeSantis](https://news.yahoo.com/trumpworld-launches-bonkers-attack-desantis-041023980.html)
+- Feb 19 - [Tesla Driver Killed After Plowing Into Fire Truck Parked On California Freeway](https://news.yahoo.com/tesla-driver-killed-plowing-fire-040130266.html)
 - Feb 19 - [Lawmaker Bares Blow-By-Blow Of Marjorie Taylor Greene Spy Balloon 'S***show' With General](https://news.yahoo.com/lawmaker-bares-blow-blow-marjorie-025255832.html)
-- Feb 19 - [Drunk man who brought shotgun into Oregon bar tackled, beaten with his own gun by patrons: police](https://news.yahoo.com/drunk-man-brought-shotgun-oregon-013631211.html)
-- Feb 18 - [Jimmy Carter, 39th US president, enters hospice care at home](https://news.yahoo.com/charity-former-president-jimmy-carter-203157861.html)
-- Feb 18 - [Man recounts home assault amid 6 fatal Mississippi shootings](https://news.yahoo.com/man-recounts-home-assault-amid-192043380.html)
 <!-- feed end -->
