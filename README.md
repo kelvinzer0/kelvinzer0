@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 19 - [Don Lemon Benched on Monday Over Sexist Remark Scandal, Insiders Say](https://news.yahoo.com/don-lemon-cut-cnn-monday-214229392.html)
+- Feb 19 - [Mom of 2 dies in freak skydiving accident, Oklahoma family says. ‘Unbelievable shock’](https://news.yahoo.com/mom-2-dies-freak-skydiving-214032055.html)
+- Feb 19 - [Bella Thorne says she refused to sign photos of herself for someone because they were too sexy and 'inappropriate'](https://news.yahoo.com/bella-thorne-says-she-refused-205404009.html)
+- Feb 19 - [The top investigator for the House Jan. 6 committee said it was hard to interview witnesses when '30 minutes later' their cooperation would leak](https://news.yahoo.com/top-investigator-house-jan-6-203500064.html)
 - Feb 19 - [A GOP senator says Republican lawmakers are frustrated with Transportation Secretary Pete Buttigieg because he wants 'everything to be climate and politically correct'](https://news.yahoo.com/gop-senator-says-republican-lawmakers-190159399.html)
-- Feb 19 - [After Bruce Willis' dementia announcement, Patti Davis remembers what it was like when her father, Ronald Reagan, publicly shared his Alzheimer's diagnosis](https://news.yahoo.com/bruce-willis-dementia-announcement-patti-184741102.html)
-- Feb 19 - [‘Lethal’ Chinese Gifts to Putin Could Spark ‘New Cold War’ With U.S.](https://news.yahoo.com/lethal-chinese-gifts-putin-could-183103319.html)
-- Feb 19 - [Love picks Miami; AP source says Heat also to sign Zeller](https://news.yahoo.com/ap-sources-love-picks-miami-172952463.html)
-- Feb 19 - [Danny DeVito says animals roam all over Arnold Schwarzenegger's house and 'he still smokes his stogies'](https://news.yahoo.com/danny-devito-says-animals-roam-172420312.html)
 <!-- feed end -->
