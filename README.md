@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 19 - [Trumpworld Launches Bonkers New Attack on DeSantis](https://news.yahoo.com/trumpworld-launches-bonkers-attack-desantis-041023980.html)
 - Feb 19 - [Lawmaker Bares Blow-By-Blow Of Marjorie Taylor Greene Spy Balloon 'S***show' With General](https://news.yahoo.com/lawmaker-bares-blow-blow-marjorie-025255832.html)
-- Feb 19 - [After more than 40 years, end of the road for Southern California's Cal Worthington car dealership](https://news.yahoo.com/more-40-years-end-road-001517254.html)
+- Feb 19 - [Drunk man who brought shotgun into Oregon bar tackled, beaten with his own gun by patrons: police](https://news.yahoo.com/drunk-man-brought-shotgun-oregon-013631211.html)
 - Feb 18 - [Jimmy Carter, 39th US president, enters hospice care at home](https://news.yahoo.com/charity-former-president-jimmy-carter-203157861.html)
 - Feb 18 - [Man recounts home assault amid 6 fatal Mississippi shootings](https://news.yahoo.com/man-recounts-home-assault-amid-192043380.html)
-- Feb 18 - [Armed with rifles, a ‘mudroots’ Detroit group wards off crime](https://news.yahoo.com/armed-with-rifles-a-mudroots-detroit-group-new-era-crime-182026014.html)
 <!-- feed end -->
