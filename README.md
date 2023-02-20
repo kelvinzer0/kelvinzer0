@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 20 - [Biden declares 'Kyiv stands' in surprise visit to Ukraine](https://news.yahoo.com/biden-declares-kyiv-stands-surprise-154402332.html)
+- Feb 20 - [Putin's war in Ukraine enters second year](https://news.yahoo.com/putins-war-ukraine-enters-second-164601041.html)
+- Feb 20 - [A Lakeland 13-year-old used a bullhorn during a protest at Munn Park. She was arrested soon after](https://news.yahoo.com/lakeland-13-old-used-bullhorn-152028371.html)
 - Feb 20 - [U.S. alerted Russia to Biden's secret Ukraine visit ahead of time](https://news.yahoo.com/u-alerted-russia-bidens-secret-145600438.html)
 - Feb 20 - [Get ready to spring forward: Here's when daylight saving time 2023 begins](https://news.yahoo.com/does-daylight-saving-time-start-172432576.html)
 - Feb 20 - [Wrong-way driver crashes, blames oncoming cars for being in her way, Florida cops say](https://news.yahoo.com/wrong-way-driver-crashes-blames-142041210.html)
-- Feb 20 - [Seattle considers historic law barring caste discrimination](https://news.yahoo.com/seattle-considers-historic-law-barring-140736079.html)
 <!-- feed end -->
