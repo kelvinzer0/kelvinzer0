@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 20 - [Russia sells weapons at Abu Dhabi arms fair amid Ukraine war](https://news.yahoo.com/russia-sells-weapons-abu-dhabi-101829212.html)
+- Feb 20 - [​​Inside the Dark Underbelly of New York’s Most Glam Strip Club](https://news.yahoo.com/inside-dark-underbelly-york-most-093441502.html)
 - Feb 20 - [Trump absent as Iowa 2024 GOP caucus train begins to roll](https://news.yahoo.com/trump-absent-iowa-2024-gop-050434110.html)
-- Feb 20 - [Here's why Ja Morant won't ever compete in NBA slam-dunk contest](https://news.yahoo.com/heres-why-ja-morant-wont-031548810.html)
 - Feb 20 - [Pastrana adds one more motorsports thrill in Daytona 500](https://news.yahoo.com/pastrana-adds-one-more-motorsports-014107675.html)
 - Feb 20 - [NASA confirms half-ton meteor crashed in South Texas](https://news.yahoo.com/nasa-confirms-half-ton-meteor-003641053.html)
-- Feb 19 - [China likely to pull back on lethal aid to Russia after US warning: retired general](https://news.yahoo.com/china-likely-pull-back-lethal-234034823.html)
 <!-- feed end -->
