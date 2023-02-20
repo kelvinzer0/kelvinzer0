@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 20 - [Pastrana adds one more motorsports thrill in Daytona 500](https://news.yahoo.com/pastrana-adds-one-more-motorsports-014107675.html)
+- Feb 20 - [NASA confirms half-ton meteor crashed in South Texas](https://news.yahoo.com/nasa-confirms-half-ton-meteor-003641053.html)
 - Feb 19 - ['Awful coverage today by Fox': NASCAR Twitter reacts to missing Daytona 500 crash](https://news.yahoo.com/awful-coverage-today-fox-nascar-230221251.html)
+- Feb 19 - [Don Lemon Benched on Monday Over Sexist Remark Scandal, Insiders Say](https://news.yahoo.com/don-lemon-cut-cnn-monday-214229392.html)
 - Feb 19 - [Mom of 2 dies in freak skydiving accident, Oklahoma family says. ‘Unbelievable shock’](https://news.yahoo.com/mom-2-dies-freak-skydiving-214032055.html)
-- Feb 19 - [Much of Wisconsin is expected to have a 'long duration snow event' starting Tuesday night](https://news.yahoo.com/much-wisconsin-expected-long-duration-213830952.html)
-- Feb 19 - [Arizona man fatally beats coworker with baseball bat at Intel cafeteria: police](https://news.yahoo.com/arizona-man-fatally-beats-coworker-204349005.html)
 <!-- feed end -->
