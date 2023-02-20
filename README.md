@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 20 - [Tyler Walker Reveals How This Drag Performance Is Helping to Encourage Him to Come Out](https://news.yahoo.com/tyler-walker-reveals-drag-performance-180000791.html)
-- Feb 20 - [Brittney Griner re-signs with the Phoenix Mercury for a one-year contract](https://news.yahoo.com/brittney-griner-signs-phoenix-mercury-173506992.html)
+- Feb 20 - [Arrest made in shooting death of Los Angeles Catholic auxiliary bishop](https://news.yahoo.com/arrest-made-shooting-death-los-180508979.html)
+- Feb 20 - [Houston back at No. 1 as Northwestern makes AP Top 25 debut](https://news.yahoo.com/houston-back-no-1-northwestern-170736703.html)
+- Feb 20 - [A federal monitor raped a Miami woman on house arrest. He didn’t count on what she saved](https://news.yahoo.com/federal-monitor-raped-miami-woman-163911735.html)
 - Feb 20 - [Sneaking a president from DC to Kyiv without anyone noticing](https://news.yahoo.com/sneaking-president-dc-kyiv-without-154524280.html)
 - Feb 20 - [A Lakeland 13-year-old used a bullhorn during a protest at Munn Park. She was arrested soon after](https://news.yahoo.com/lakeland-13-old-used-bullhorn-152028371.html)
-- Feb 20 - [Trump rages against New York Post after DeSantis profile](https://news.yahoo.com/trump-rages-against-york-post-151758244.html)
 <!-- feed end -->
