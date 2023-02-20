@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 20 - [Sam Smith Was Heckled And Called A "Pedophile" While Walking In NYC, And It's Seriously Disturbing](https://news.yahoo.com/sam-smith-heckled-called-pedophile-023329534.html)
+- Feb 19 - ['Awful coverage today by Fox': NASCAR Twitter reacts to missing Daytona 500 crash](https://news.yahoo.com/awful-coverage-today-fox-nascar-230221251.html)
 - Feb 19 - [Don Lemon Benched on Monday Over Sexist Remark Scandal, Insiders Say](https://news.yahoo.com/don-lemon-cut-cnn-monday-214229392.html)
 - Feb 19 - [Mom of 2 dies in freak skydiving accident, Oklahoma family says. ‘Unbelievable shock’](https://news.yahoo.com/mom-2-dies-freak-skydiving-214032055.html)
-- Feb 19 - [Bella Thorne says she refused to sign photos of herself for someone because they were too sexy and 'inappropriate'](https://news.yahoo.com/bella-thorne-says-she-refused-205404009.html)
-- Feb 19 - [Arizona man fatally beats coworker with baseball bat at Intel cafeteria: police](https://news.yahoo.com/arizona-man-fatally-beats-coworker-204349005.html)
-- Feb 19 - [The top investigator for the House Jan. 6 committee said it was hard to interview witnesses when '30 minutes later' their cooperation would leak](https://news.yahoo.com/top-investigator-house-jan-6-203500064.html)
+- Feb 19 - [Much of Wisconsin is expected to have a 'long duration snow event' starting Tuesday night](https://news.yahoo.com/much-wisconsin-expected-long-duration-213830952.html)
 <!-- feed end -->
