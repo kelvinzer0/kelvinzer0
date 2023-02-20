@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 20 - ['Awful coverage today by Fox': NASCAR Twitter reacts to missing Daytona 500 crash](https://news.yahoo.com/awful-coverage-today-fox-nascar-230221251.html)
+- Feb 20 - [Alec Baldwin formally charged with involuntary manslaughter in 'Rust' shooting](https://news.yahoo.com/alec-baldwin-charged-involuntary-manslaughter-180529705.html)
+- Feb 20 - [6.3 magnitude earthquake rocks Turkey-Syria border towns weeks after deadly earthquake](https://news.yahoo.com/6-4-magnitude-earthquake-rocks-213901466.html)
 - Feb 20 - [Arrest made in shooting death of Los Angeles Catholic auxiliary bishop](https://news.yahoo.com/arrest-made-shooting-death-los-180508979.html)
-- Feb 20 - [He tried a gas station po-boy in ‘middle of nowhere’ South MS. It’s now going viral.](https://news.yahoo.com/tried-gas-station-po-boy-173353299.html)
-- Feb 20 - [Houston back at No. 1 as Northwestern makes AP Top 25 debut](https://news.yahoo.com/houston-back-no-1-northwestern-170736703.html)
-- Feb 20 - [Fisherman finds huge megalodon tooth in oysters pulled from Maryland’s Chesapeake Bay](https://news.yahoo.com/fisherman-finds-huge-megalodon-tooth-165939331.html)
+- Feb 20 - [Missing hiker’s body found on snowy peak month after vanishing, California officials say](https://news.yahoo.com/missing-hiker-body-found-snowy-180014071.html)
+- Feb 20 - [Savannah Chrisley says mother’s prison treats dogs better than inmates, dad’s hair is gray](https://news.yahoo.com/savannah-chrisley-says-mother-prison-174232731.html)
 <!-- feed end -->
