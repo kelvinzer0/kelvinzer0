@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 20 - [Arrest made in shooting death of Los Angeles Catholic auxiliary bishop](https://news.yahoo.com/arrest-made-shooting-death-los-180508979.html)
-- Feb 20 - [19 Movie Characters Who Were Definitely In The Wrong, Despite The Film Doing Everything To Make You Believe Otherwise](https://news.yahoo.com/19-movie-characters-were-definitely-225301558.html)
 - Feb 20 - [Houston back at No. 1 as Northwestern makes AP Top 25 debut](https://news.yahoo.com/houston-back-no-1-northwestern-170736703.html)
 - Feb 20 - [Fisherman finds huge megalodon tooth in oysters pulled from Maryland’s Chesapeake Bay](https://news.yahoo.com/fisherman-finds-huge-megalodon-tooth-165939331.html)
 - Feb 20 - [A federal monitor raped a Miami woman on house arrest. He didn’t count on what she saved](https://news.yahoo.com/federal-monitor-raped-miami-woman-163911735.html)
+- Feb 20 - [Sneaking a president from DC to Kyiv without anyone noticing](https://news.yahoo.com/sneaking-president-dc-kyiv-without-154524280.html)
 <!-- feed end -->
