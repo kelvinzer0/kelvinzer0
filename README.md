@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 20 - [Where do Bryce Young and C.J. Stroud land in latest NFL mock draft](https://news.yahoo.com/where-qbs-land-latest-nfl-142121232.html)
-- Feb 20 - [Nations: No clarity on neutrality, no Olympics for Russia](https://news.yahoo.com/nations-no-clarity-neutrality-no-130019323.html)
-- Feb 20 - [A pastor who has gone viral for scolding Christians for being Beyoncé fans once tweeted she had been to one of her concerts and it was 'amazing'](https://news.yahoo.com/pastor-gone-viral-scolding-christians-124635998.html)
-- Feb 20 - [Ernie Hudson calls 'Ghostbusters' the most 'difficult' movie of his career because the studio treated him differently: 'I'm not an add-on'](https://news.yahoo.com/ernie-hudson-calls-ghostbusters-most-122634147.html)
-- Feb 20 - [Ask the expert: How long do electric car batteries really last?](https://news.yahoo.com/ask-expert-long-electric-car-120000322.html)
+- Feb 20 - [Biden declares 'Kyiv stands' in surprise visit to Ukraine](https://news.yahoo.com/biden-declares-kyiv-stands-surprise-154402332.html)
+- Feb 20 - [U.S. alerted Russia to Biden's secret Ukraine visit ahead of time](https://news.yahoo.com/u-alerted-russia-bidens-secret-145600438.html)
+- Feb 20 - [Get ready to spring forward: Here's when daylight saving time 2023 begins](https://news.yahoo.com/does-daylight-saving-time-start-172432576.html)
+- Feb 20 - [Wrong-way driver crashes, blames oncoming cars for being in her way, Florida cops say](https://news.yahoo.com/wrong-way-driver-crashes-blames-142041210.html)
+- Feb 20 - [Seattle considers historic law barring caste discrimination](https://news.yahoo.com/seattle-considers-historic-law-barring-140736079.html)
 <!-- feed end -->
