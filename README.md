@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 20 - [Biden makes surprise visit to Kyiv](https://news.yahoo.com/biden-makes-surprise-visit-kyiv-134405430.html)
+- Feb 20 - [Where do Bryce Young and C.J. Stroud land in latest NFL mock draft](https://news.yahoo.com/where-qbs-land-latest-nfl-142121232.html)
 - Feb 20 - [Nations: No clarity on neutrality, no Olympics for Russia](https://news.yahoo.com/nations-no-clarity-neutrality-no-130019323.html)
 - Feb 20 - [A pastor who has gone viral for scolding Christians for being Beyoncé fans once tweeted she had been to one of her concerts and it was 'amazing'](https://news.yahoo.com/pastor-gone-viral-scolding-christians-124635998.html)
 - Feb 20 - [Ernie Hudson calls 'Ghostbusters' the most 'difficult' movie of his career because the studio treated him differently: 'I'm not an add-on'](https://news.yahoo.com/ernie-hudson-calls-ghostbusters-most-122634147.html)
-- Feb 20 - [A 63-year-old doctor who says he's biologically 43 starts his morning with a smoothie. Here's the recipe.](https://news.yahoo.com/63-old-doctor-says-hes-111411865.html)
+- Feb 20 - [Ask the expert: How long do electric car batteries really last?](https://news.yahoo.com/ask-expert-long-electric-car-120000322.html)
 <!-- feed end -->
