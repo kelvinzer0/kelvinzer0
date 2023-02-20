@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 20 - [Here's why Ja Morant won't ever compete in NBA slam-dunk contest](https://news.yahoo.com/heres-why-ja-morant-wont-031548810.html)
 - Feb 20 - [Pastrana adds one more motorsports thrill in Daytona 500](https://news.yahoo.com/pastrana-adds-one-more-motorsports-014107675.html)
 - Feb 20 - [NASA confirms half-ton meteor crashed in South Texas](https://news.yahoo.com/nasa-confirms-half-ton-meteor-003641053.html)
 - Feb 19 - [China likely to pull back on lethal aid to Russia after US warning: retired general](https://news.yahoo.com/china-likely-pull-back-lethal-234034823.html)
 - Feb 19 - ['Awful coverage today by Fox': NASCAR Twitter reacts to missing Daytona 500 crash](https://news.yahoo.com/awful-coverage-today-fox-nascar-230221251.html)
-- Feb 19 - [Mom of 2 dies in freak skydiving accident, Oklahoma family says. ‘Unbelievable shock’](https://news.yahoo.com/mom-2-dies-freak-skydiving-214032055.html)
 <!-- feed end -->
