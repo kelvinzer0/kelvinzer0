@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 20 - ['Awful coverage today by Fox': NASCAR Twitter reacts to missing Daytona 500 crash](https://news.yahoo.com/awful-coverage-today-fox-nascar-230221251.html)
 - Feb 20 - [Arrest made in shooting death of Los Angeles Catholic auxiliary bishop](https://news.yahoo.com/arrest-made-shooting-death-los-180508979.html)
+- Feb 20 - [He tried a gas station po-boy in ‘middle of nowhere’ South MS. It’s now going viral.](https://news.yahoo.com/tried-gas-station-po-boy-173353299.html)
 - Feb 20 - [Houston back at No. 1 as Northwestern makes AP Top 25 debut](https://news.yahoo.com/houston-back-no-1-northwestern-170736703.html)
 - Feb 20 - [Fisherman finds huge megalodon tooth in oysters pulled from Maryland’s Chesapeake Bay](https://news.yahoo.com/fisherman-finds-huge-megalodon-tooth-165939331.html)
-- Feb 20 - [A federal monitor raped a Miami woman on house arrest. He didn’t count on what she saved](https://news.yahoo.com/federal-monitor-raped-miami-woman-163911735.html)
-- Feb 20 - [Sneaking a president from DC to Kyiv without anyone noticing](https://news.yahoo.com/sneaking-president-dc-kyiv-without-154524280.html)
 <!-- feed end -->
