@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 21 - [Putin pulls Russia back from nuclear treaty amid mounting tensions with US, NATO](https://news.yahoo.com/putin-pulls-russia-back-nuclear-164327417.html)
 - Feb 21 - [Bar employees stabbed inspectors at Mexico resort](https://news.yahoo.com/bar-employees-stabbed-inspectors-mexico-153833594.html)
 - Feb 21 - ['Travel will be difficult to impossible,' NWS says as major winter storm looms](https://news.yahoo.com/travel-difficult-impossible-nws-says-010915250.html)
 - Feb 21 - [These 17 Couples Broke Up Because One Of Them Did Something AWFUL, And I'm Shocked These People Are Walking Among Us](https://news.yahoo.com/17-couples-broke-because-one-021320761.html)
-- Feb 21 - [Justices reject appeal from man arrested for spoofing police](https://news.yahoo.com/justices-reject-appeal-man-arrested-145231989.html)
-- Feb 21 - [Hackers claim to have caused Russian websites broadcasting Vladimir Putin's annual address to go offline](https://news.yahoo.com/hackers-claim-caused-russian-websites-144629003.html)
+- Feb 21 - [Inside the life of Bill Gates' daughter Jennifer, an elite equestrian who stands to inherit 'a minuscule portion' of her father's $106 billion fortune](https://news.yahoo.com/inside-life-bill-gates-daughter-144535627.html)
 <!-- feed end -->
