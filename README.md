@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 21 - [Civil Rights attorney Ben Crump to sue State of N.Y., FBI and CIA for 100 million dollars over Malcolm X assassination](https://news.yahoo.com/civil-rights-attorney-ben-crump-195405087.html)
+- Feb 21 - [House GOP meet with Zelenskyy as far-right oppose future aid](https://news.yahoo.com/house-gop-meet-zelenskyy-far-201055212.html)
 - Feb 21 - [Trump set to visit East Palestine after cutting rail regulations as president](https://news.yahoo.com/trump-east-palestine-ohio-visit-train-rail-regulations-cut-norfolk-southern-193551291.html)
+- Feb 21 - [I am a Ukrainian American political scientist, and this is what the past year of war has taught me about Ukraine, Russia and defiance](https://news.yahoo.com/am-ukrainian-american-political-scientist-193356757.html)
 - Feb 21 - [Grandma shoves her two young grandchildren into freezing river, New York cops say](https://news.yahoo.com/grandma-shoves-her-two-young-185632166.html)
 - Feb 21 - [The oldest restaurant in every state, from historic taverns to classic diners](https://news.yahoo.com/oldest-restaurant-every-state-historic-195740975.html)
-- Feb 21 - [Pink says her 11-year-old daughter will have a 'minimum wage' job on her upcoming tour](https://news.yahoo.com/pink-says-her-11-old-182230214.html)
 <!-- feed end -->
