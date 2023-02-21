@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 21 - [Upset our Kansas City Chiefs were drinking at the Super Bowl parade? I have two words | Opinion](https://news.yahoo.com/upset-kansas-city-chiefs-were-182153177.html)
-- Feb 21 - [Female soldier ‘straddled and humped’ fellow recruit and ‘poked’ her breasts](https://news.yahoo.com/female-soldier-straddled-humped-fellow-175445898.html)
-- Feb 21 - [I Used AI Technology On 16 Celebs To See What They'd Look Like As Disney Characters, And It's Scary](https://news.yahoo.com/used-ai-technology-16-celebs-230331014.html)
-- Feb 21 - [Romanian court rules to hold Andrew Tate for 30 more days](https://news.yahoo.com/romanian-court-rules-hold-andrew-164841965.html)
-- Feb 21 - [Ex-Russian commander who helped invade Crimea trashes Putin's war speech for leaving out all of Russia's failures in Ukraine](https://news.yahoo.com/ex-russian-commander-helped-invade-163743719.html)
+- Feb 21 - [Civil Rights attorney Ben Crump to sue State of N.Y., FBI and CIA for 100 million dollars over Malcolm X assassination](https://news.yahoo.com/civil-rights-attorney-ben-crump-195405087.html)
+- Feb 21 - [Trump set to visit East Palestine after cutting rail regulations as president](https://news.yahoo.com/trump-east-palestine-ohio-visit-train-rail-regulations-cut-norfolk-southern-193551291.html)
+- Feb 21 - [Grandma shoves her two young grandchildren into freezing river, New York cops say](https://news.yahoo.com/grandma-shoves-her-two-young-185632166.html)
+- Feb 21 - [The oldest restaurant in every state, from historic taverns to classic diners](https://news.yahoo.com/oldest-restaurant-every-state-historic-195740975.html)
+- Feb 21 - [Pink says her 11-year-old daughter will have a 'minimum wage' job on her upcoming tour](https://news.yahoo.com/pink-says-her-11-old-182230214.html)
 <!-- feed end -->
