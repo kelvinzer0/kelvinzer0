@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 21 - [Blinken: Putin START announcement 'irresponsible'](https://news.yahoo.com/blinken-putin-start-announcement-irresponsible-173756769.html)
+- Feb 21 - [Upset our Kansas City Chiefs were drinking at the Super Bowl parade? I have two words | Opinion](https://news.yahoo.com/upset-kansas-city-chiefs-were-182153177.html)
+- Feb 21 - [Female soldier ‘straddled and humped’ fellow recruit and ‘poked’ her breasts](https://news.yahoo.com/female-soldier-straddled-humped-fellow-175445898.html)
+- Feb 21 - [I Used AI Technology On 16 Celebs To See What They'd Look Like As Disney Characters, And It's Scary](https://news.yahoo.com/used-ai-technology-16-celebs-230331014.html)
 - Feb 21 - [Romanian court rules to hold Andrew Tate for 30 more days](https://news.yahoo.com/romanian-court-rules-hold-andrew-164841965.html)
-- Feb 21 - [Putin took a swipe at oligarchs who have fled abroad, while asking them to come back and invest in Russia](https://news.yahoo.com/putin-took-swipe-oligarchs-fled-155851538.html)
-- Feb 21 - [Bar employees stabbed inspectors at Mexico resort](https://news.yahoo.com/bar-employees-stabbed-inspectors-mexico-153833594.html)
-- Feb 21 - ['Travel will be difficult to impossible,' NWS says as major winter storm looms](https://news.yahoo.com/travel-difficult-impossible-nws-says-010915250.html)
+- Feb 21 - [Ex-Russian commander who helped invade Crimea trashes Putin's war speech for leaving out all of Russia's failures in Ukraine](https://news.yahoo.com/ex-russian-commander-helped-invade-163743719.html)
 <!-- feed end -->
