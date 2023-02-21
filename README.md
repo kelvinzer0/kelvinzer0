@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 21 - [Calls for change in Iran reach even Shiite heartland of Qom](https://news.yahoo.com/calls-change-iran-reach-even-062102668.html)
 - Feb 21 - [Kari Lake looks to harness her movement after Arizona loss](https://news.yahoo.com/kari-lake-looks-harness-her-050738277.html)
-- Feb 21 - [Fox News Analyst Uses Trump's Go-To Insult Against Him](https://news.yahoo.com/fox-news-analyst-uses-trumps-041603796.html)
 - Feb 21 - [Man arrested for baseball bat attack on food vendor in San Jose](https://news.yahoo.com/man-arrested-baseball-bat-attack-023753625.html)
 - Feb 21 - [Meghan Markle has been 'upset and overwhelmed' by portrayal on 'South Park' episode: report](https://news.yahoo.com/meghan-markle-upset-overwhelmed-portrayal-015746782.html)
+- Feb 21 - [Jesuit barred from artistic activity after new abuse claims](https://news.yahoo.com/jesuit-barred-artistic-activity-abuse-014410592.html)
+- Feb 21 - [What's in U.S. foods that Europe deems unfit for human consumption?](https://news.yahoo.com/whats-u-foods-europe-deems-001334449.html)
 <!-- feed end -->
