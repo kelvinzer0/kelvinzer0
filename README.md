@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 21 - [Pope intervenes again to restrict celebration of Latin Mass](https://news.yahoo.com/pope-intervenes-again-restrict-celebration-115811057.html)
+- Feb 21 - [Madeline McCann’s Parents Agree to DNA Test Woman Who Claims to Be Their Missing Child](https://news.yahoo.com/madeline-mccann-parents-agree-dna-111413387.html)
+- Feb 21 - [Florida's climate exodus has already begun — and it's only going to get worse](https://news.yahoo.com/floridas-climate-exodus-already-begun-110000919.html)
 - Feb 21 - [Inside the Trump grand jury that probed election meddling](https://news.yahoo.com/inside-trump-grand-jury-probed-102635348.html)
 - Feb 21 - [By pandering to the woke for his Coronation, Charles begins his suicide note](https://news.yahoo.com/pandering-woke-coronation-charles-begins-100000339.html)
-- Feb 21 - [Calls for change in Iran reach even Shiite heartland of Qom](https://news.yahoo.com/calls-change-iran-reach-even-062102668.html)
-- Feb 21 - [Kari Lake looks to harness her movement after Arizona loss](https://news.yahoo.com/kari-lake-looks-harness-her-050738277.html)
-- Feb 21 - [Man arrested for baseball bat attack on food vendor in San Jose](https://news.yahoo.com/man-arrested-baseball-bat-attack-023753625.html)
 <!-- feed end -->
