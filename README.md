@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 21 - [Ukraine's wartime leader gets 'role of a lifetime'](https://news.yahoo.com/ukraines-wartime-leader-gets-role-053701756.html)
+- Feb 21 - [Kari Lake looks to harness her movement after Arizona loss](https://news.yahoo.com/kari-lake-looks-harness-her-050738277.html)
+- Feb 21 - [Fox News Analyst Uses Trump's Go-To Insult Against Him](https://news.yahoo.com/fox-news-analyst-uses-trumps-041603796.html)
 - Feb 21 - [Man arrested for baseball bat attack on food vendor in San Jose](https://news.yahoo.com/man-arrested-baseball-bat-attack-023753625.html)
 - Feb 21 - [Meghan Markle has been 'upset and overwhelmed' by portrayal on 'South Park' episode: report](https://news.yahoo.com/meghan-markle-upset-overwhelmed-portrayal-015746782.html)
-- Feb 21 - [What's in U.S. foods that Europe deems unfit for human consumption?](https://news.yahoo.com/whats-u-foods-europe-deems-001334449.html)
-- Feb 20 - [Alec Baldwin's manslaughter charge downgraded in "Rust" shooting](https://news.yahoo.com/alec-baldwins-manslaughter-charge-downgraded-234958442.html)
-- Feb 20 - [Arrest made in killing of Los Angeles bishop](https://news.yahoo.com/arrest-made-killing-los-angeles-233957370.html)
 <!-- feed end -->
