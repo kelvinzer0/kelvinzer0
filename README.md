@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 21 - [Good News, Claw Clips Are Back—Here are 7 Modern Ways to Wear Them](https://news.yahoo.com/good-news-claw-clips-back-215254846.html)
-- Feb 21 - [Southern Baptists oust Saddleback Church over woman pastor](https://news.yahoo.com/southern-baptists-oust-saddleback-church-195805313.html)
-- Feb 21 - [Trump set to visit East Palestine after cutting rail regulations as president](https://news.yahoo.com/trump-east-palestine-ohio-visit-train-rail-regulations-cut-norfolk-southern-193551291.html)
-- Feb 21 - [I am a Ukrainian American political scientist, and this is what the past year of war has taught me about Ukraine, Russia and defiance](https://news.yahoo.com/am-ukrainian-american-political-scientist-193356757.html)
-- Feb 21 - [Grandma shoves her two young grandchildren into freezing river, New York cops say](https://news.yahoo.com/grandma-shoves-her-two-young-185632166.html)
+- Feb 21 - [Ex-member: Proud Boys were 'tip of the spear' after election](https://news.yahoo.com/ex-member-proud-boys-were-223319888.html)
+- Feb 21 - [What we know about McCarthy's decision to grant Tucker Carlson exclusive access to Jan. 6 security camera footage](https://news.yahoo.com/what-we-know-about-mccarthys-decision-to-grant-tucker-carlson-exclusive-access-to-jan-6-security-camera-footage-220544269.html)
+- Feb 21 - [‘This is my country’: Woman filmed yelling racist insults at Sydney cafe worker](https://news.yahoo.com/country-woman-filmed-yelling-racist-220505159.html)
+- Feb 21 - [Marjorie Taylor Greene calls again for ‘a national divorce’](https://news.yahoo.com/marjorie-taylor-greene-calls-again-211700930.html)
+- Feb 21 - [Kyle Rittenhouse hit with lawsuit from man he shot during 2020 Kenosha clash: 'Little bit of a shock'](https://news.yahoo.com/kyle-rittenhouse-hit-lawsuit-man-202829222.html)
 <!-- feed end -->
