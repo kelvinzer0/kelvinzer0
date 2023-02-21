@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 21 - [Red McCombs, namesake of University of Texas business school, dies at 95](https://news.yahoo.com/red-mccombs-namesake-university-texas-190018266.html)
 - Feb 21 - [What's in U.S. foods that Europe deems unfit for human consumption?](https://news.yahoo.com/whats-u-foods-europe-deems-001334449.html)
 - Feb 20 - [Alec Baldwin's manslaughter charge downgraded in "Rust" shooting](https://news.yahoo.com/alec-baldwins-manslaughter-charge-downgraded-234958442.html)
 - Feb 20 - [Arrest made in killing of Los Angeles bishop](https://news.yahoo.com/arrest-made-killing-los-angeles-233957370.html)
 - Feb 20 - [An Alabama college student disappeared in 1976. His remains were identified 47 years later.](https://news.yahoo.com/alabama-college-student-disappeared-1976-223846339.html)
-- Feb 20 - [Andy Cohen blesses the world with 52 seconds of pure joy — his daughter’s laughter](https://news.yahoo.com/andy-cohen-blesses-world-52-214838180.html)
 <!-- feed end -->
