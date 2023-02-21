@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 21 - [Seth Meyers on Chrissy Teigen’s tweet about Trump in congressional record](https://news.yahoo.com/seth-meyers-chrissy-teigen-tweet-135545753.html)
+- Feb 21 - [Biden welcomed to Poland by President Duda](https://news.yahoo.com/biden-welcomed-poland-president-duda-143755852.html)
+- Feb 21 - [Video captures moment Anchorage woman is kicked in the head by a moose while walking her dog](https://news.yahoo.com/video-captures-moment-anchorage-woman-133939777.html)
 - Feb 21 - [I'm A 55-Year-Old Single Mom. Here's How I Became One Of The Most Popular Models On OnlyFans.](https://news.yahoo.com/im-55-old-single-mom-133009636.html)
 - Feb 21 - [I live on a cruise ship for half of the year. Look inside my 336-square-foot cabin with wraparound balcony.](https://news.yahoo.com/live-cruise-ship-half-look-131000110.html)
-- Feb 21 - [Traders troubled after Taliban shut Afghan-Pakistan crossing](https://news.yahoo.com/traders-troubled-taliban-shut-afghan-122010446.html)
-- Feb 21 - [‘The Evidence is Clear’: Ohio Gov Pushes For Science of Reading As Only Approach](https://news.yahoo.com/evidence-clear-ohio-gov-pushes-121500107.html)
+- Feb 21 - ['Travel will be difficult to impossible,' NWS says as major winter storm looms](https://news.yahoo.com/travel-difficult-impossible-nws-says-010915250.html)
 <!-- feed end -->
