@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 21 - [Putin rails against West in his annual address](https://news.yahoo.com/putin-rails-against-west-annual-130342061.html)
+- Feb 21 - [‘The Evidence is Clear’: Ohio Gov Pushes For Science of Reading As Only Approach](https://news.yahoo.com/evidence-clear-ohio-gov-pushes-121500107.html)
 - Feb 21 - [Pope intervenes again to restrict celebration of Latin Mass](https://news.yahoo.com/pope-intervenes-again-restrict-celebration-115811057.html)
+- Feb 21 - [DeSantis downplays Russia as a global threat after Biden's visit to Kyiv: 'I think they've shown themselves to be a third-rate military power'](https://news.yahoo.com/desantis-downplays-russia-global-threat-114915882.html)
 - Feb 21 - [Madeline McCann’s Parents Agree to DNA Test Woman Who Claims to Be Their Missing Child](https://news.yahoo.com/madeline-mccann-parents-agree-dna-111413387.html)
-- Feb 21 - [Florida's climate exodus has already begun — and it's only going to get worse](https://news.yahoo.com/floridas-climate-exodus-already-begun-110000919.html)
-- Feb 21 - [Inside the Trump grand jury that probed election meddling](https://news.yahoo.com/inside-trump-grand-jury-probed-102635348.html)
-- Feb 21 - [By pandering to the woke for his Coronation, Charles begins his suicide note](https://news.yahoo.com/pandering-woke-coronation-charles-begins-100000339.html)
 <!-- feed end -->
