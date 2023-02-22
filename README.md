@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 22 - [Meet the 'anti-woke' Indian American millionaire planning to run for president in 2024](https://news.yahoo.com/meet-anti-woke-indian-american-011651757.html)
-- Feb 22 - [Kristin Cavallari says she’s been attracting ‘a lot of married men’ since divorce](https://news.yahoo.com/kristin-cavallari-says-she-attracting-003723172.html)
 - Feb 21 - [Diversity activist who claimed to be Latino, Arab, South Asian outed as white by her mother](https://news.yahoo.com/diversity-activist-claimed-latino-arab-235719015.html)
 - Feb 21 - [DeSantis About To Defuse $1.2 Billion Tax Bomb He Activated A Year Ago To Punish Disney](https://news.yahoo.com/desantis-defuse-1-2-billion-235257932.html)
 - Feb 21 - [Putin's 'invincible' missile has a very common problem](https://news.yahoo.com/putins-invincible-missile-very-common-224700287.html)
+- Feb 21 - [Ex-member: Proud Boys were 'tip of the spear' after election](https://news.yahoo.com/ex-member-proud-boys-were-223319888.html)
 <!-- feed end -->
