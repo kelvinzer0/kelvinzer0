@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 22 - [‘Putin’s Chef’ Leaks Grisly Corpse Photos in Public Betrayal of Kremlin](https://news.yahoo.com/putin-chef-leaks-grisly-corpse-175617652.html)
+- Feb 22 - [The internet is obsessed with a pizza delivery guy who served both pizza and relationship tea after a TikToker accidentally sent her order to her ex's house](https://news.yahoo.com/internet-obsessed-pizza-delivery-guy-171130014.html)
+- Feb 22 - [A missile system was spotted nearby as Putin spoke for just 4 minutes in Moscow, showing how the Russian city is becoming a war-time capital](https://news.yahoo.com/missile-system-spotted-nearby-putin-170145970.html)
+- Feb 22 - [Hyundai's low-cost, long-range sedan is shaping up to be a major pain for Elon Musk](https://news.yahoo.com/hyundais-low-cost-long-range-164946653.html)
 - Feb 22 - [She was pulled over for no seat belt in Florida. Then a cop looked in her leggings](https://news.yahoo.com/she-pulled-over-no-seat-162858083.html)
-- Feb 22 - [Mysterious ball appears on Japanese beach](https://news.yahoo.com/mysterious-ball-appears-japanese-beach-160953612.html)
-- Feb 22 - [Space telescope uncovers massive galaxies near cosmic dawn](https://news.yahoo.com/space-telescope-uncovers-massive-galaxies-160846738.html)
-- Feb 22 - [Supreme Court rules for Arizona inmate in death penalty case](https://news.yahoo.com/supreme-court-rules-arizona-inmate-153358775.html)
-- Feb 22 - [Don Lemon returns to CNN as network reportedly warns 'he's a strike away' from getting fired](https://news.yahoo.com/don-lemon-returns-cnn-network-152601157.html)
 <!-- feed end -->
