@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 22 - [Space telescope uncovers massive galaxies from cosmic dawn](https://news.yahoo.com/space-telescope-uncovers-massive-galaxies-213604321.html)
-- Feb 22 - [High schooler pummels unconscious aide for taking his Nintendo Switch, Florida cops say](https://news.yahoo.com/high-schooler-pummels-unconscious-aide-204241138.html)
-- Feb 22 - [Crips gang member sentenced to 60 years in prison in murder of Nipsey Hussle](https://news.yahoo.com/crips-gang-member-sentenced-60-200917922.html)
-- Feb 22 - [A Chick-fil-A in North Carolina is accused of writing a racial slur on an order slip. The chain called it a 'misspelling' of the customer's name.](https://news.yahoo.com/chick-fil-north-carolina-accused-190314166.html)
-- Feb 22 - [Robert Woods has 1-word response after being cut by Tennessee Titans](https://news.yahoo.com/robert-woods-1-word-response-183618876.html)
+- Feb 22 - [Days After That Nude Instagram Photo, Emily Ratajkowski Suggested Her Relationship With Eric André Is Over](https://news.yahoo.com/days-nude-instagram-photo-emily-230111812.html)
+- Feb 22 - [Jan. 6 rioter who threated Ocasio-Cortez online gets 3 years](https://news.yahoo.com/jan-6-rioter-threated-ocasio-225029869.html)
+- Feb 22 - [Behati Prinsloo Posted Her First Pic With Adam Levine Since His DM Scandal, And The Comments Are Not Positive](https://news.yahoo.com/behati-prinsloo-posted-her-first-224806955.html)
+- Feb 22 - [A Washington cold case involving a woman's foot found in a New Balance sneaker has been solved](https://news.yahoo.com/washington-cold-case-involving-womans-214749533.html)
+- Feb 22 - [Pentagon releases pilot's close-up photo of Chinese balloon](https://news.yahoo.com/pentagon-releases-pilots-close-photo-223153861.html)
 <!-- feed end -->
