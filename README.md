@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 22 - [Donald Trump Jr. Gets Scathing Reminder Of His Father's 'Mental Competency'](https://news.yahoo.com/donald-trump-jr-gets-scathing-063532206.html)
 - Feb 22 - [CNN Panel Cringes At Trump Grand Jury Foreperson’s ‘Painful’ Media Appearances](https://news.yahoo.com/cnn-panel-cringes-trump-grand-050305226.html)
 - Feb 22 - [Philippine police hunting killers of New Zealand tourist](https://news.yahoo.com/philippine-police-hunting-killers-zealand-045949442.html)
 - Feb 22 - [Putin wanted to boast about Russia launching a nuclear-capable ICBM — but the launch failed so he couldn't, report says](https://news.yahoo.com/putin-wanted-boast-russia-launching-042216875.html)
 - Feb 22 - [Meet the 'anti-woke' Indian American millionaire planning to run for president in 2024](https://news.yahoo.com/meet-anti-woke-indian-american-011651757.html)
-- Feb 21 - [Diversity activist who claimed to be Latino, Arab, South Asian outed as white by her mother](https://news.yahoo.com/diversity-activist-claimed-latino-arab-235719015.html)
 <!-- feed end -->
