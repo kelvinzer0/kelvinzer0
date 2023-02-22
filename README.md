@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 21 - [Diversity activist who claimed to be Latino, Arab, South Asian outed as white by her mother](https://news.yahoo.com/diversity-activist-claimed-latino-arab-235719015.html)
 - Feb 21 - [DeSantis About To Defuse $1.2 Billion Tax Bomb He Activated A Year Ago To Punish Disney](https://news.yahoo.com/desantis-defuse-1-2-billion-235257932.html)
-- Feb 21 - [Orlando Bloom says his relationship with Katy Perry can be 'really, really, really, challenging' because they run in different circles](https://news.yahoo.com/orlando-bloom-says-relationship-katy-230926902.html)
 - Feb 21 - [Ex-member: Proud Boys were 'tip of the spear' after election](https://news.yahoo.com/ex-member-proud-boys-were-223319888.html)
 - Feb 21 - [A California burger chain expands with another store opening in the Charlotte area](https://news.yahoo.com/california-burger-chain-expands-another-222910085.html)
+- Feb 21 - ['Wheel of Fortune' answer causes audience member to shout out: 'What?'](https://news.yahoo.com/wheel-fortune-answer-causes-audience-221904933.html)
 <!-- feed end -->
