@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 22 - [Ukraine-Russia war latest: Putin set to speak at nationalist rally - watch live](https://news.yahoo.com/ukraine-russia-war-latest-putin-081756785.html)
-- Feb 22 - [Parts of northern US shut down ahead of a winter storm](https://news.yahoo.com/parts-northern-us-shut-down-115141970.html)
+- Feb 22 - [Japan is mystified by a giant metal sphere that washed up on a beach, with some commentators suggesting it's Godzilla's egg](https://news.yahoo.com/japan-mystified-giant-metal-sphere-120251785.html)
+- Feb 22 - [The Pentagon has warned soldiers to stop eating poppy seed bagels and pastries or risk failing drug tests](https://news.yahoo.com/pentagon-warned-soldiers-stop-eating-112348183.html)
 - Feb 22 - [Mitt Romney Has A Blunt Message For Marjorie Taylor Greene](https://news.yahoo.com/mitt-romney-blunt-message-marjorie-095425149.html)
 - Feb 22 - [Stephen Colbert Exposes Ugliest ‘Truth About Tucker Carlson’ In Just 13 Seconds](https://news.yahoo.com/stephen-colbert-exposes-ugliest-truth-073408150.html)
-- Feb 22 - [Donald Trump Jr. Gets Scathing Reminder Of His Father's 'Mental Competency'](https://news.yahoo.com/donald-trump-jr-gets-scathing-063532206.html)
 <!-- feed end -->
