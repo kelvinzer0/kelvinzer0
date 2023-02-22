@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 22 - [Jamaican immigrant spent decades mixing chemicals before becoming top chef in upstate New York](https://news.yahoo.com/jamaican-immigrant-spent-decades-mixing-143728377.html)
 - Feb 22 - [‘Three soldiers took turns raping me in front of my children’](https://news.yahoo.com/three-soldiers-took-turns-raping-133821839.html)
-- Feb 22 - [Minneapolis in crosshairs of major storm of possibly historic proportions](https://news.yahoo.com/minneapolis-crosshairs-major-storm-possibly-132706035.html)
 - Feb 22 - [Angler ‘spying’ on sharks with camera notices one staring back off the Australia coast](https://news.yahoo.com/angler-spying-sharks-camera-notices-123109452.html)
 - Feb 22 - [Japan is mystified by a giant metal sphere that washed up on a beach, with some commentators suggesting it's Godzilla's egg](https://news.yahoo.com/japan-mystified-giant-metal-sphere-120251785.html)
 - Feb 22 - [Putin 'tried to launch Satan II missile' while Biden was in Kyiv](https://news.yahoo.com/putin-tried-launch-satan-ii-120113581.html)
