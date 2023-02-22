@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 22 - [Ukraine-Russia war latest: Putin set to speak at nationalist rally - watch live](https://news.yahoo.com/ukraine-russia-war-latest-putin-081756785.html)
+- Feb 22 - [‘Three soldiers took turns raping me in front of my children’](https://news.yahoo.com/three-soldiers-took-turns-raping-133821839.html)
+- Feb 22 - [Minneapolis in crosshairs of major storm of possibly historic proportions](https://news.yahoo.com/minneapolis-crosshairs-major-storm-possibly-132706035.html)
+- Feb 22 - [Angler ‘spying’ on sharks with camera notices one staring back off the Australia coast](https://news.yahoo.com/angler-spying-sharks-camera-notices-123109452.html)
 - Feb 22 - [Japan is mystified by a giant metal sphere that washed up on a beach, with some commentators suggesting it's Godzilla's egg](https://news.yahoo.com/japan-mystified-giant-metal-sphere-120251785.html)
-- Feb 22 - [The Pentagon has warned soldiers to stop eating poppy seed bagels and pastries or risk failing drug tests](https://news.yahoo.com/pentagon-warned-soldiers-stop-eating-112348183.html)
-- Feb 22 - [Mitt Romney Has A Blunt Message For Marjorie Taylor Greene](https://news.yahoo.com/mitt-romney-blunt-message-marjorie-095425149.html)
-- Feb 22 - [Stephen Colbert Exposes Ugliest ‘Truth About Tucker Carlson’ In Just 13 Seconds](https://news.yahoo.com/stephen-colbert-exposes-ugliest-truth-073408150.html)
+- Feb 22 - [Putin 'tried to launch Satan II missile' while Biden was in Kyiv](https://news.yahoo.com/putin-tried-launch-satan-ii-120113581.html)
 <!-- feed end -->
