@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 22 - [U.S. First Lady Jill Biden visits Namibia](https://news.yahoo.com/u-first-lady-jill-biden-194049038.html)
+- Feb 22 - [Bartender served 8 mixed drinks to man who soon crashed, killed Euless detective: warrant](https://news.yahoo.com/bartender-served-8-mixed-drinks-190934148.html)
+- Feb 22 - [A Chick-fil-A in North Carolina is accused of writing a racial slur on an order slip. The chain called it a 'misspelling' of the customer's name.](https://news.yahoo.com/chick-fil-north-carolina-accused-190314166.html)
+- Feb 22 - [Robert Woods has 1-word response after being cut by Tennessee Titans](https://news.yahoo.com/robert-woods-1-word-response-183618876.html)
 - Feb 22 - [Ex-Indianapolis Colts star accused of punching his son and choking son’s boyfriend](https://news.yahoo.com/ex-indianapolis-colts-star-accused-180554637.html)
-- Feb 22 - [‘Putin’s Chef’ Leaks Grisly Corpse Photos in Public Betrayal of Kremlin](https://news.yahoo.com/putin-chef-leaks-grisly-corpse-175617652.html)
-- Feb 22 - [The week I spent with our son Henry after he died](https://news.yahoo.com/week-spent-son-henry-died-173056723.html)
-- Feb 22 - [The internet is obsessed with a pizza delivery guy who served both pizza and relationship tea after a TikToker accidentally sent her order to her ex's house](https://news.yahoo.com/internet-obsessed-pizza-delivery-guy-171130014.html)
-- Feb 22 - [A missile system was spotted nearby as Putin spoke for just 4 minutes in Moscow, showing how the Russian city is becoming a wartime capital](https://news.yahoo.com/missile-system-spotted-nearby-putin-170145970.html)
 <!-- feed end -->
