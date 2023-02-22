@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 22 - [Meet the 'anti-woke' Indian American millionaire planning to run for president in 2024](https://news.yahoo.com/meet-anti-woke-indian-american-011651757.html)
+- Feb 22 - [Kristin Cavallari says she’s been attracting ‘a lot of married men’ since divorce](https://news.yahoo.com/kristin-cavallari-says-she-attracting-003723172.html)
 - Feb 21 - [Diversity activist who claimed to be Latino, Arab, South Asian outed as white by her mother](https://news.yahoo.com/diversity-activist-claimed-latino-arab-235719015.html)
 - Feb 21 - [DeSantis About To Defuse $1.2 Billion Tax Bomb He Activated A Year Ago To Punish Disney](https://news.yahoo.com/desantis-defuse-1-2-billion-235257932.html)
-- Feb 21 - [Ex-member: Proud Boys were 'tip of the spear' after election](https://news.yahoo.com/ex-member-proud-boys-were-223319888.html)
-- Feb 21 - [A California burger chain expands with another store opening in the Charlotte area](https://news.yahoo.com/california-burger-chain-expands-another-222910085.html)
-- Feb 21 - ['Wheel of Fortune' answer causes audience member to shout out: 'What?'](https://news.yahoo.com/wheel-fortune-answer-causes-audience-221904933.html)
+- Feb 21 - [Putin's 'invincible' missile has a very common problem](https://news.yahoo.com/putins-invincible-missile-very-common-224700287.html)
 <!-- feed end -->
