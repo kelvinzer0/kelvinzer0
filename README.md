@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 22 - [She was pulled over for no seat belt in Florida. Then a cop looked in her leggings](https://news.yahoo.com/she-pulled-over-no-seat-162858083.html)
+- Feb 22 - [Mysterious ball appears on Japanese beach](https://news.yahoo.com/mysterious-ball-appears-japanese-beach-160953612.html)
+- Feb 22 - [Space telescope uncovers massive galaxies near cosmic dawn](https://news.yahoo.com/space-telescope-uncovers-massive-galaxies-160846738.html)
 - Feb 22 - [Supreme Court rules for Arizona inmate in death penalty case](https://news.yahoo.com/supreme-court-rules-arizona-inmate-153358775.html)
-- Feb 22 - [‘Three soldiers took turns raping me in front of my children’](https://news.yahoo.com/three-soldiers-took-turns-raping-133821839.html)
-- Feb 22 - [Video shows off-duty Chicago cop in deadly shooting of assailant: 'I told you I'd shoot you'](https://news.yahoo.com/video-shows-off-duty-chicago-130005321.html)
-- Feb 22 - [Angler ‘spying’ on sharks with camera notices one staring back off the Australia coast](https://news.yahoo.com/angler-spying-sharks-camera-notices-123109452.html)
-- Feb 22 - [Japan is mystified by a giant metal sphere that washed up on a beach, with some commentators suggesting it's Godzilla's egg](https://news.yahoo.com/japan-mystified-giant-metal-sphere-120251785.html)
+- Feb 22 - [Don Lemon returns to CNN as network reportedly warns 'he's a strike away' from getting fired](https://news.yahoo.com/don-lemon-returns-cnn-network-152601157.html)
 <!-- feed end -->
