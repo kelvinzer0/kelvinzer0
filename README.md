@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 22 - [Mitt Romney Has A Blunt Message For Marjorie Taylor Greene](https://news.yahoo.com/mitt-romney-blunt-message-marjorie-095425149.html)
 - Feb 22 - [Ukraine-Russia war latest: Putin tried to launch Satan II missile while Biden was in Kyiv](https://news.yahoo.com/ukraine-russia-war-latest-putin-081756785.html)
 - Feb 22 - [Stephen Colbert Exposes Ugliest ‘Truth About Tucker Carlson’ In Just 13 Seconds](https://news.yahoo.com/stephen-colbert-exposes-ugliest-truth-073408150.html)
+- Feb 22 - [Meghan Markle’s newly resurfaced blog reveals close bond with now-estranged father amid new war with sister](https://news.yahoo.com/meghan-markle-newly-resurfaced-blog-070050817.html)
 - Feb 22 - [Donald Trump Jr. Gets Scathing Reminder Of His Father's 'Mental Competency'](https://news.yahoo.com/donald-trump-jr-gets-scathing-063532206.html)
-- Feb 22 - [CNN Panel Cringes At Trump Grand Jury Foreperson’s ‘Painful’ Media Appearances](https://news.yahoo.com/cnn-panel-cringes-trump-grand-050305226.html)
-- Feb 22 - [Philippine police hunting killers of New Zealand tourist](https://news.yahoo.com/philippine-police-hunting-killers-zealand-045949442.html)
 <!-- feed end -->
