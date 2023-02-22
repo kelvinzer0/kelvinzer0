@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 22 - [Man convicted of killing rapper Nipsey Hussle get 60 years to life in prison for murder](https://news.yahoo.com/man-accused-killing-rapper-nipsey-011101345.html)
+- Feb 22 - [Space telescope uncovers massive galaxies from cosmic dawn](https://news.yahoo.com/space-telescope-uncovers-massive-galaxies-213604321.html)
+- Feb 22 - [High schooler pummels unconscious aide for taking his Nintendo Switch, Florida cops say](https://news.yahoo.com/high-schooler-pummels-unconscious-aide-204241138.html)
+- Feb 22 - [Crips gang member sentenced to 60 years in prison in murder of Nipsey Hussle](https://news.yahoo.com/crips-gang-member-sentenced-60-200917922.html)
 - Feb 22 - [A Chick-fil-A in North Carolina is accused of writing a racial slur on an order slip. The chain called it a 'misspelling' of the customer's name.](https://news.yahoo.com/chick-fil-north-carolina-accused-190314166.html)
 - Feb 22 - [Robert Woods has 1-word response after being cut by Tennessee Titans](https://news.yahoo.com/robert-woods-1-word-response-183618876.html)
-- Feb 22 - [Ex-Indianapolis Colts star accused of punching his son and choking son’s boyfriend](https://news.yahoo.com/ex-indianapolis-colts-star-accused-180554637.html)
-- Feb 22 - [‘Putin’s Chef’ Leaks Grisly Corpse Photo in Public Betrayal of Kremlin](https://news.yahoo.com/putin-chef-leaks-grisly-corpse-175617652.html)
 <!-- feed end -->
