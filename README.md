@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 21 - [Diversity activist who claimed to be Latino, Arab, South Asian outed as white by her mother](https://news.yahoo.com/diversity-activist-claimed-latino-arab-235719015.html)
+- Feb 21 - [DeSantis About To Defuse $1.2 Billion Tax Bomb He Activated A Year Ago To Punish Disney](https://news.yahoo.com/desantis-defuse-1-2-billion-235257932.html)
+- Feb 21 - [Orlando Bloom says his relationship with Katy Perry can be 'really, really, really, challenging' because they run in different circles](https://news.yahoo.com/orlando-bloom-says-relationship-katy-230926902.html)
 - Feb 21 - [Ex-member: Proud Boys were 'tip of the spear' after election](https://news.yahoo.com/ex-member-proud-boys-were-223319888.html)
-- Feb 21 - [What we know about McCarthy's decision to grant Tucker Carlson exclusive access to Jan. 6 security camera footage](https://news.yahoo.com/what-we-know-about-mccarthys-decision-to-grant-tucker-carlson-exclusive-access-to-jan-6-security-camera-footage-220544269.html)
-- Feb 21 - [‘This is my country’: Woman filmed yelling racist insults at Sydney cafe worker](https://news.yahoo.com/country-woman-filmed-yelling-racist-220505159.html)
-- Feb 21 - [Marjorie Taylor Greene calls again for ‘a national divorce’](https://news.yahoo.com/marjorie-taylor-greene-calls-again-211700930.html)
-- Feb 21 - [Kyle Rittenhouse hit with lawsuit from man he shot during 2020 Kenosha clash: 'Little bit of a shock'](https://news.yahoo.com/kyle-rittenhouse-hit-lawsuit-man-202829222.html)
+- Feb 21 - [A California burger chain expands with another store opening in the Charlotte area](https://news.yahoo.com/california-burger-chain-expands-another-222910085.html)
 <!-- feed end -->
