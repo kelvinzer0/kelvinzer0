@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 23 - [Japan is mystified by a giant metal sphere that washed up on a beach, with some commentators suggesting it's Godzilla's egg](https://news.yahoo.com/japan-mystified-giant-metal-sphere-120251785.html)
+- Feb 23 - [Review: 'Cocaine Bear,' 100% pure, uncut junk with no high](https://news.yahoo.com/review-cocaine-bear-100-pure-210448182.html)
 - Feb 23 - [Traveler buried his gold and never returned — then volunteer found it 800 years later](https://news.yahoo.com/traveler-buried-gold-never-returned-202349687.html)
 - Feb 23 - [Tesla engineering HQ leaving Texas to return to California, Musk announces](https://news.yahoo.com/tesla-engineering-hq-leaving-texas-190700440.html)
-- Feb 23 - [Attorneys allege Kenosha shooter Rittenhouse evading them](https://news.yahoo.com/attorneys-allege-kenosha-shooter-rittenhouse-175734015.html)
-- Feb 23 - [8 of the best and 8 of the worst cocktails to order, according to drink experts](https://news.yahoo.com/8-best-8-worst-cocktails-141000796.html)
-- Feb 23 - ['Dukes of Hazzard' star John Schneider's wife Alicia Allain dead at 53](https://news.yahoo.com/dukes-hazzard-star-john-schneiders-165217625.html)
+- Feb 23 - [Madison Brooks death: Louisiana teen linked to LSU tragedy to be tried as adult on more severe rape charge](https://news.yahoo.com/madison-brooks-death-louisiana-teen-190659115.html)
 <!-- feed end -->
