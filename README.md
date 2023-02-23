@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 23 - [Alicia Allain Schneider, ‘Dukes of Hazzard’ star wife, dead](https://news.yahoo.com/alicia-allain-schneider-dukes-hazzard-224822843.html)
+- Feb 23 - [I tried an egg breakfast from Cracker Barrel, Waffle House, Denny's, and IHOP and the winner had the most bang for your buck](https://news.yahoo.com/tried-egg-breakfast-cracker-barrel-214743817.html)
+- Feb 23 - [Minnesota 6-year-old who loves helping out her parents decided to shovel 8 inches of snow herself — she gave up after less than a minute](https://news.yahoo.com/minnesota-6-old-loves-helping-213533514.html)
 - Feb 23 - [Japan is mystified by a giant metal sphere that washed up on a beach, with some commentators suggesting it's Godzilla's egg](https://news.yahoo.com/japan-mystified-giant-metal-sphere-120251785.html)
-- Feb 23 - [Review: 'Cocaine Bear,' 100% pure, uncut junk with no high](https://news.yahoo.com/review-cocaine-bear-100-pure-210448182.html)
-- Feb 23 - [Traveler buried his gold and never returned — then volunteer found it 800 years later](https://news.yahoo.com/traveler-buried-gold-never-returned-202349687.html)
-- Feb 23 - [Tesla engineering HQ leaving Texas to return to California, Musk announces](https://news.yahoo.com/tesla-engineering-hq-leaving-texas-190700440.html)
-- Feb 23 - [Madison Brooks death: Louisiana teen linked to LSU tragedy to be tried as adult on more severe rape charge](https://news.yahoo.com/madison-brooks-death-louisiana-teen-190659115.html)
+- Feb 23 - [Students raised more than $200,000 for their 80-year-old school janitor to retire after a rent hike sent him back into the workforce](https://news.yahoo.com/students-raised-more-200-000-211410352.html)
 <!-- feed end -->
