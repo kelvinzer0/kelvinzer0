@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 23 - [Former Arizona AG sat on records refuting election fraud](https://news.yahoo.com/former-arizona-ag-sat-records-000904481.html)
 - Feb 22 - [Winner of $1.35 billion Mega Millions jackpot comes forward: Here's how much they'll get after taxes](https://news.yahoo.com/winner-1-35-billion-mega-232614679.html)
-- Feb 22 - [Ukraine targets Russian fuel depots in Mariupol](https://news.yahoo.com/ukraine-targets-russian-fuel-depots-223000025.html)
 - Feb 22 - [Trump: Ohio train derail response 'a betrayal'](https://news.yahoo.com/trump-ohio-train-derail-response-221358702.html)
-- Feb 22 - [High schooler pummels unconscious aide for taking his Nintendo Switch, Florida cops say](https://news.yahoo.com/high-schooler-pummels-unconscious-aide-204241138.html)
+- Feb 22 - [Alex Murdaugh's Own Defense Witness Called Him A "Jackass" And A "Very Cunning" Liar From The Stand](https://news.yahoo.com/alex-murdaughs-own-defense-witness-210328837.html)
+- Feb 22 - [Azov Regiment fighter and Mariupol defender Oleh Mudrak dies](https://news.yahoo.com/azov-regiment-fighter-mariupol-defender-202226916.html)
 <!-- feed end -->
