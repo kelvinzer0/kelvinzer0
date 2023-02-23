@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 23 - [In Russia-Ukraine war, more disastrous path could lie ahead](https://news.yahoo.com/russia-ukraine-war-more-disastrous-072712038.html)
+- Feb 23 - [The Real Reason Your Food Order Is Cold, And 14 More Confessions From A Delivery Driver](https://news.yahoo.com/real-reason-food-order-cold-084852210.html)
+- Feb 23 - [Fox News Anchor Gives Co-Host A Blunt Fact-Check On Live TV](https://news.yahoo.com/fox-news-anchor-gives-co-064139674.html)
 - Feb 23 - [India is trying to get G20 countries to follow Putin's instruction not to refer to Russia's war in Ukraine as a 'war,' reports say](https://news.yahoo.com/india-trying-g20-countries-putins-052956682.html)
 - Feb 23 - [Dems consider break with tradition to get Biden more judges](https://news.yahoo.com/dems-consider-break-tradition-biden-050750024.html)
-- Feb 23 - [Donald Trump, who rolled back rail safety regulations and slashed environmental protections, donates Trump-branded water to East Palestine residents](https://news.yahoo.com/donald-trump-rolled-back-rail-020631337.html)
-- Feb 23 - [Former Arizona AG sat on records refuting election fraud](https://news.yahoo.com/former-arizona-ag-sat-records-000904481.html)
-- Feb 22 - [Winner of $1.35 billion Mega Millions jackpot comes forward: Here's how much they'll get after taxes](https://news.yahoo.com/winner-1-35-billion-mega-232614679.html)
 <!-- feed end -->
