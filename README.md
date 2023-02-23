@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 23 - [R. Kelly faces life in jail](https://news.yahoo.com/r-kelly-faces-life-jail-103737022.html)
+- Feb 23 - [New York City is poised to enact steep congestion pricing tolls for cars and trucks, unless critics can kill the plan first](https://news.yahoo.com/new-york-city-is-poised-to-enact-steep-congestion-pricing-tolls-for-cars-and-trucks-unless-critics-can-kill-the-plan-first-120052751.html)
+- Feb 23 - [9-year old and TV reporter among 3 dead in shootings near Orlando: CBS News Flash Feb. 23, 2023](https://news.yahoo.com/9-old-tv-reporter-among-115933940.html)
+- Feb 23 - [Melissa Joan Hart says she and Ryan Reynolds had a 'little thing' while shooting 'Sabrina' movie in the 1990s](https://news.yahoo.com/melissa-joan-hart-says-she-105858950.html)
+- Feb 23 - [First details about China’s position on war in Ukraine revealed by Ukrainian official](https://news.yahoo.com/first-details-china-position-war-100500403.html)
 - Feb 23 - [ISIS Women Accused of Turning Boys as Young as 13 Into a Human Stud Farm](https://news.yahoo.com/isis-women-accused-turning-teen-093206828.html)
-- Feb 23 - [In Russia-Ukraine war, more disastrous path could lie ahead](https://news.yahoo.com/russia-ukraine-war-more-disastrous-072712038.html)
-- Feb 23 - ['Overwhelmed' Meghan Markle fears palace 'is only fighting for Prince Harry' amid coronation preps: expert](https://news.yahoo.com/overwhelmed-meghan-markle-fears-palace-070030000.html)
-- Feb 23 - [Fox News Anchor Gives Co-Host A Blunt Fact-Check On Live TV](https://news.yahoo.com/fox-news-anchor-gives-co-064139674.html)
 <!-- feed end -->
