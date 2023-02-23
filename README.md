@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 23 - [Dems consider break with tradition to get Biden more judges](https://news.yahoo.com/dems-consider-break-tradition-biden-050750024.html)
 - Feb 23 - [Donald Trump, who rolled back rail safety regulations and slashed environmental protections, donates Trump-branded water to East Palestine residents](https://news.yahoo.com/donald-trump-rolled-back-rail-020631337.html)
 - Feb 23 - [Former Arizona AG sat on records refuting election fraud](https://news.yahoo.com/former-arizona-ag-sat-records-000904481.html)
 - Feb 22 - [Winner of $1.35 billion Mega Millions jackpot comes forward: Here's how much they'll get after taxes](https://news.yahoo.com/winner-1-35-billion-mega-232614679.html)
 - Feb 22 - [Trump: Ohio train derail response 'a betrayal'](https://news.yahoo.com/trump-ohio-train-derail-response-221358702.html)
-- Feb 22 - [Alex Murdaugh's Own Defense Witness Called Him A "Jackass" And A "Very Cunning" Liar From The Stand](https://news.yahoo.com/alex-murdaughs-own-defense-witness-210328837.html)
 <!-- feed end -->
