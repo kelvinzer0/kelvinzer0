@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 23 - [Attorneys allege Kenosha shooter Rittenhouse evading them](https://news.yahoo.com/attorneys-allege-kenosha-shooter-rittenhouse-175734015.html)
+- Feb 23 - [8 of the best and 8 of the worst cocktails to order, according to drink experts](https://news.yahoo.com/8-best-8-worst-cocktails-141000796.html)
+- Feb 23 - [John Schneider honors wife Alicia Allain after she dies at 53: 'Hug those you love'](https://news.yahoo.com/john-schneider-honors-wife-alicia-171237168.html)
+- Feb 23 - [Video shows moment crocodile grabs man’s leg in Australia river, then takes his dog](https://news.yahoo.com/video-shows-moment-crocodile-grabs-164558733.html)
 - Feb 23 - [Robert Woods has 1-word response after being cut by Tennessee Titans](https://news.yahoo.com/robert-woods-1-word-response-183618876.html)
-- Feb 23 - [I tried the biggest burgers at 5 fast-food chains and my favorite tasted fresh off the grill](https://news.yahoo.com/tried-biggest-burgers-5-fast-141217349.html)
-- Feb 23 - [Toxic wastewater from Ohio train derailment headed to Texas](https://news.yahoo.com/toxic-wastewater-ohio-train-derailment-144643636.html)
-- Feb 23 - ['I Wanna Marry Harry' winner says it's 'ironic' Prince Harry chose Meghan Markle because the show's critics thought he'd never date a 'nobody actress'](https://news.yahoo.com/wanna-marry-harry-winner-says-144031361.html)
-- Feb 23 - [The forewoman of the Georgia special grand jury investigating efforts to overturn the 2020 election is now causing a headache for prosecutors](https://news.yahoo.com/georgia-jury-forewoman-throws-trump-143002876.html)
 <!-- feed end -->
