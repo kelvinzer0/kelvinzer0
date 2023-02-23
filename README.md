@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 23 - [17 Times Actors Declined Or Got Rejected From Roles For Petty, Shady, And Ridiculous Reasons](https://news.yahoo.com/17-times-actors-declined-got-022945605.html)
+- Feb 23 - [Tesla engineering HQ leaving Texas to return to California, Musk announces](https://news.yahoo.com/tesla-engineering-hq-leaving-texas-190700440.html)
 - Feb 23 - [Attorneys allege Kenosha shooter Rittenhouse evading them](https://news.yahoo.com/attorneys-allege-kenosha-shooter-rittenhouse-175734015.html)
 - Feb 23 - [8 of the best and 8 of the worst cocktails to order, according to drink experts](https://news.yahoo.com/8-best-8-worst-cocktails-141000796.html)
-- Feb 23 - [John Schneider honors wife Alicia Allain after she dies at 53: 'Hug those you love'](https://news.yahoo.com/john-schneider-honors-wife-alicia-171237168.html)
+- Feb 23 - ['Dukes of Hazzard' star John Schneider's wife Alicia Allain dead at 53](https://news.yahoo.com/dukes-hazzard-star-john-schneiders-165217625.html)
 - Feb 23 - [Video shows moment crocodile grabs man’s leg in Australia river, then takes his dog](https://news.yahoo.com/video-shows-moment-crocodile-grabs-164558733.html)
 <!-- feed end -->
