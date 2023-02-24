@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 24 - [Former Bush aide says Marjorie Taylor Greene has become so powerful in the GOP that she can't be dismissed as a fringe figure anymore](https://news.yahoo.com/former-bush-aide-says-marjorie-095715000.html)
+- Feb 24 - [American POW freed from Russia said his captors were 'idiots' who had prisoners call an Alabama licensing office for help, report says](https://news.yahoo.com/american-pow-freed-russia-said-120337793.html)
 - Feb 24 - [Donald Trump Jr.’s Interview With Kyle Rittenhouse Goes South In A Hurry](https://news.yahoo.com/donald-trump-jr-interview-kyle-093436538.html)
+- Feb 24 - [We knew Russia would attack from Belarus, but we did not believe in assault from Crimea  Head of border guards](https://news.yahoo.com/knew-russia-attack-belarus-did-092252220.html)
 - Feb 24 - [Ben Stiller says he makes 'no apologies' for 'Tropic Thunder,' which featured Robert Downey Jr. in blackface: 'It's always been a controversial movie'](https://news.yahoo.com/ben-stiller-says-makes-no-090423288.html)
 - Feb 24 - [Ukraine: Drone video shows cost of intense fighting in east](https://news.yahoo.com/ukraine-drone-video-shows-cost-084347553.html)
-- Feb 24 - [What is China's peace proposal for Ukraine War?](https://news.yahoo.com/chinas-peace-proposal-ukraine-war-070622390.html)
 <!-- feed end -->
