@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 24 - ['I want him to pay': Husband to spend life in prison for killing man he found with his wife](https://news.yahoo.com/want-him-pay-husband-spend-185046702.html)
-- Feb 24 - [Map shows territorial shifts in Ukraine since war began one year ago](https://news.yahoo.com/map-shows-territorial-shifts-ukraine-200721878.html)
-- Feb 24 - [Russians hung out with US Army soldiers at a weapons expo and played with the missiles killing Putin's tanks in Ukraine](https://news.yahoo.com/russians-hung-us-army-soldiers-200235584.html)
-- Feb 24 - [I'm straight but flirted with another woman to get a discount on a couch. I consider myself an LGBTQ ally, but my friends called me out for my behavior.](https://news.yahoo.com/im-straight-flirted-another-woman-193917441.html)
-- Feb 24 - [Kids’ brutally honest lawn mowing business sign shows the true art of setting boundaries](https://news.yahoo.com/kids-brutally-honest-lawn-mowing-193601734.html)
+- Feb 24 - [If Jeff Bezos buys Washington Commanders, here are 10 ideas if he chooses to rename them](https://news.yahoo.com/jeff-bezos-buys-washington-commanders-201744671.html)
+- Feb 24 - [A 19-year-old Depop dealer is accused of being 'greedy' over her vintage haul, which also ignited a debate about the ethics of thrifting](https://news.yahoo.com/19-old-depop-dealer-accused-201601402.html)
+- Feb 24 - [An American Airlines passenger forced the flight to make an emergency landing after she charged the cockpit after she couldn't get a drink: reports](https://news.yahoo.com/american-airlines-passenger-forced-flight-200600024.html)
+- Feb 24 - [5 key moments that have defined Russia's invasion of Ukraine](https://news.yahoo.com/5-key-moments-that-have-defined-russias-invasion-of-ukraine-200357931.html)
 <!-- feed end -->
