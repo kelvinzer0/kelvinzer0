@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 24 - [Hong Kong model killed, body parts found in refrigerator](https://news.yahoo.com/hong-kong-model-killed-body-181221729.html)
+- Feb 24 - [Defiantly, Russian officials celebrate their military in Washington](https://news.yahoo.com/defiantly-russian-officials-celebrate-their-military-in-washington-183948871.html)
+- Feb 24 - [A Model Who Previously Sued Marilyn Manson For Sexual Assault Now Says Evan Rachel Wood Pressured Her To Make The Allegations](https://news.yahoo.com/model-previously-sued-marilyn-manson-005306045.html)
 - Feb 24 - [Zelensky open to China’s proposed peace plan](https://news.yahoo.com/zelensky-open-china-proposed-peace-180617873.html)
 - Feb 24 - [Former Marine finds missing Florida boy safe in woods](https://news.yahoo.com/former-marine-finds-missing-florida-180313643.html)
-- Feb 24 - [US Navy applies lessons from costly shipbuilding mistakes](https://news.yahoo.com/us-navy-applies-lessons-costly-163937216.html)
-- Feb 24 - [Inside the Leopard 2, the German beer-balancing tank - and why Ukraine desperately wants them](https://news.yahoo.com/inside-leopard-2-german-beer-155705870.html)
+- Feb 24 - [‘Lady in the fridge’ was a mystery for 27 years. Body now identified as California mom](https://news.yahoo.com/lady-fridge-mystery-27-years-172355587.html)
 <!-- feed end -->
