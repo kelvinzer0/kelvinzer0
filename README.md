@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 23 - [Alicia Allain Schneider, ‘Dukes of Hazzard’ star wife, dead](https://news.yahoo.com/alicia-allain-schneider-dukes-hazzard-224822843.html)
+- Feb 23 - [These 6 countries sided with Russia in UN vote on Ukraine war](https://news.yahoo.com/6-countries-sided-russia-un-224506755.html)
+- Feb 23 - [Southern California hammered with heavy snow](https://news.yahoo.com/southern-california-hammered-heavy-snow-222424789.html)
 - Feb 23 - [I tried an egg breakfast from Cracker Barrel, Waffle House, Denny's, and IHOP and the winner had the most bang for your buck](https://news.yahoo.com/tried-egg-breakfast-cracker-barrel-214743817.html)
 - Feb 23 - [Minnesota 6-year-old who loves helping out her parents decided to shovel 8 inches of snow herself — she gave up after less than a minute](https://news.yahoo.com/minnesota-6-old-loves-helping-213533514.html)
-- Feb 23 - [Japan is mystified by a giant metal sphere that washed up on a beach, with some commentators suggesting it's Godzilla's egg](https://news.yahoo.com/japan-mystified-giant-metal-sphere-120251785.html)
 - Feb 23 - [Students raised more than $200,000 for their 80-year-old school janitor to retire after a rent hike sent him back into the workforce](https://news.yahoo.com/students-raised-more-200-000-211410352.html)
 <!-- feed end -->
