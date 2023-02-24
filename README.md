@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 24 - [My Patient Was Smart And Kind. He Was Also A Conspiracy Theorist — And It May Have Killed Him.](https://news.yahoo.com/patient-smart-kind-conspiracy-theorist-133023946.html)
+- Feb 24 - [WATCH: Video shows student knock out, attack school worker in Flagler County, deputies say](https://news.yahoo.com/watch-video-shows-student-knock-131047026.html)
 - Feb 24 - [American POW freed from Russia said his captors were 'idiots' who had prisoners call an Alabama licensing office for help, report says](https://news.yahoo.com/american-pow-freed-russia-said-120337793.html)
+- Feb 24 - [A graphical comparison of Russian, Ukrainian forces a year into war](https://news.yahoo.com/graphical-comparison-russian-ukrainian-forces-120000368.html)
 - Feb 24 - [Donald Trump Jr.’s Interview With Kyle Rittenhouse Goes South In A Hurry](https://news.yahoo.com/donald-trump-jr-interview-kyle-093436538.html)
-- Feb 24 - [We knew Russia would attack from Belarus, but we did not believe in assault from Crimea  Head of border guards](https://news.yahoo.com/knew-russia-attack-belarus-did-092252220.html)
-- Feb 24 - [Ben Stiller says he makes 'no apologies' for 'Tropic Thunder,' which featured Robert Downey Jr. in blackface: 'It's always been a controversial movie'](https://news.yahoo.com/ben-stiller-says-makes-no-090423288.html)
-- Feb 24 - [Ukraine: Drone video shows cost of intense fighting in east](https://news.yahoo.com/ukraine-drone-video-shows-cost-084347553.html)
 <!-- feed end -->
