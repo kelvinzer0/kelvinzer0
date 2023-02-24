@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 24 - [Rep. George Santos thanked a lawmaker for 'stopping by' for a chat. The lawmaker said this was a lie, and that he went to protest and ask for his resignation.](https://news.yahoo.com/rep-george-santos-thanked-lawmaker-135107917.html)
+- Feb 24 - [Russia has changed its plan to take over Ukraine, with the goal now to exhaust the country rather than conquer new territory, UK intel says](https://news.yahoo.com/russia-changed-plan-over-ukraine-134606320.html)
 - Feb 24 - [My Patient Was Smart And Kind. He Was Also A Conspiracy Theorist — And It May Have Killed Him.](https://news.yahoo.com/patient-smart-kind-conspiracy-theorist-133023946.html)
 - Feb 24 - [WATCH: Video shows student knock out, attack school worker in Flagler County, deputies say](https://news.yahoo.com/watch-video-shows-student-knock-131047026.html)
-- Feb 24 - [American POW freed from Russia said his captors were 'idiots' who had prisoners call an Alabama licensing office for help, report says](https://news.yahoo.com/american-pow-freed-russia-said-120337793.html)
-- Feb 24 - [A graphical comparison of Russian, Ukrainian forces a year into war](https://news.yahoo.com/graphical-comparison-russian-ukrainian-forces-120000368.html)
-- Feb 24 - [Donald Trump Jr.’s Interview With Kyle Rittenhouse Goes South In A Hurry](https://news.yahoo.com/donald-trump-jr-interview-kyle-093436538.html)
+- Feb 24 - [Alex Jones claims authorities want to take his expensive cat because he's bankrupt. He's leaving out the fact he gave his wife and parents $1.3 million last year.](https://news.yahoo.com/alex-jones-claims-authorities-want-123917420.html)
 <!-- feed end -->
