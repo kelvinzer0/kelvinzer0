@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 24 - [China calls for Russia-Ukraine cease-fire, peace talks](https://news.yahoo.com/china-calls-russia-ukraine-cease-014840192.html)
 - Feb 23 - [Kate Hudson says it was 'right thing' to end relationships with sons' fathers: 'I don’t feel the failure'](https://news.yahoo.com/kate-hudson-says-thing-end-235916018.html)
-- Feb 23 - [Hawaiian teen brings 'American Idol' judges to tears with emotional 'Monsters' rendition](https://news.yahoo.com/hawaiian-teen-brings-american-idol-224547283.html)
 - Feb 23 - [These 6 countries sided with Russia in UN vote on Ukraine war](https://news.yahoo.com/6-countries-sided-russia-un-224506755.html)
 - Feb 23 - [Southern California hammered with heavy snow](https://news.yahoo.com/southern-california-hammered-heavy-snow-222424789.html)
+- Feb 23 - [I tried an egg breakfast from Cracker Barrel, Waffle House, Denny's, and IHOP and the winner had the most bang for your buck](https://news.yahoo.com/tried-egg-breakfast-cracker-barrel-214743817.html)
 <!-- feed end -->
