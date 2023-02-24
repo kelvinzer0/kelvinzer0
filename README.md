@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 24 - [San Francisco Bay Area sees rare snowfall](https://news.yahoo.com/san-francisco-bay-area-sees-195021673.html)
+- Feb 24 - ['I want him to pay': Husband to spend life in prison for killing man he found with his wife](https://news.yahoo.com/want-him-pay-husband-spend-185046702.html)
+- Feb 24 - [Biden to draw health care contrast with GOP in Virginia](https://news.yahoo.com/biden-draw-health-care-contrast-184556581.html)
 - Feb 24 - [Defiantly, Russian officials celebrate their military in Washington](https://news.yahoo.com/defiantly-russian-officials-celebrate-their-military-in-washington-183948871.html)
-- Feb 24 - [A Model Who Previously Sued Marilyn Manson For Sexual Assault Now Says Evan Rachel Wood Pressured Her To Make The Allegations](https://news.yahoo.com/model-previously-sued-marilyn-manson-005306045.html)
-- Feb 24 - [Zelensky open to China’s proposed peace plan](https://news.yahoo.com/zelensky-open-china-proposed-peace-180617873.html)
-- Feb 24 - [Former Marine finds missing Florida boy safe in woods](https://news.yahoo.com/former-marine-finds-missing-florida-180313643.html)
-- Feb 24 - [‘Lady in the fridge’ was a mystery for 27 years. Body now identified as California mom](https://news.yahoo.com/lady-fridge-mystery-27-years-172355587.html)
+- Feb 24 - [DeSantis’s office says he will boycott NBC, MSNBC over Andrea Mitchell question on Black history](https://news.yahoo.com/desantis-office-says-boycott-nbc-183300271.html)
 <!-- feed end -->
