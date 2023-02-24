@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 24 - [Southern California faces first blizzard warning in over 30 years amid winter storm](https://news.yahoo.com/southern-california-faces-first-blizzard-154115886.html)
+- Feb 24 - [Ukrainian soldiers with life-changing war injuries posed for portraits saying they are 'living monuments' of a brutal war](https://news.yahoo.com/ukrainian-soldiers-life-changing-war-151239162.html)
+- Feb 24 - [Some Starlink customers say they're nervous that SpaceX will continue hiking prices after their subscription cost jumped to $120 a month](https://news.yahoo.com/starlink-customers-theyre-nervous-spacex-142805840.html)
 - Feb 24 - [Rep. George Santos thanked a lawmaker for 'stopping by' for a chat. The lawmaker said this was a lie, and that he went to protest and ask for his resignation.](https://news.yahoo.com/rep-george-santos-thanked-lawmaker-135107917.html)
 - Feb 24 - [Russia has changed its plan to take over Ukraine, with the goal now to exhaust the country rather than conquer new territory, UK intel says](https://news.yahoo.com/russia-changed-plan-over-ukraine-134606320.html)
-- Feb 24 - [My Patient Was Smart And Kind. He Was Also A Conspiracy Theorist — And It May Have Killed Him.](https://news.yahoo.com/patient-smart-kind-conspiracy-theorist-133023946.html)
-- Feb 24 - [WATCH: Video shows student knock out, attack school worker in Flagler County, deputies say](https://news.yahoo.com/watch-video-shows-student-knock-131047026.html)
-- Feb 24 - [Alex Jones claims authorities want to take his expensive cat because he's bankrupt. He's leaving out the fact he gave his wife and parents $1.3 million last year.](https://news.yahoo.com/alex-jones-claims-authorities-want-123917420.html)
 <!-- feed end -->
