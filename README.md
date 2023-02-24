@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 24 - [Hong Kong model killed, body parts found in refrigerator](https://news.yahoo.com/hong-kong-model-killed-body-181221729.html)
+- Feb 24 - [Zelensky open to China’s proposed peace plan](https://news.yahoo.com/zelensky-open-china-proposed-peace-180617873.html)
+- Feb 24 - [Former Marine finds missing Florida boy safe in woods](https://news.yahoo.com/former-marine-finds-missing-florida-180313643.html)
 - Feb 24 - [US Navy applies lessons from costly shipbuilding mistakes](https://news.yahoo.com/us-navy-applies-lessons-costly-163937216.html)
-- Feb 24 - [Ukrainian soldiers with life-changing war injuries posed for portraits saying they are 'living monuments' of a brutal war](https://news.yahoo.com/ukrainian-soldiers-life-changing-war-151239162.html)
-- Feb 24 - [Some Starlink customers say they're nervous that SpaceX will continue hiking prices after their subscription cost jumped to $120 a month](https://news.yahoo.com/starlink-customers-theyre-nervous-spacex-142805840.html)
-- Feb 24 - [Rep. George Santos thanked a lawmaker for 'stopping by' for a chat. The lawmaker said this was a lie, and that he went to protest and ask for his resignation.](https://news.yahoo.com/rep-george-santos-thanked-lawmaker-135107917.html)
-- Feb 24 - [Russia has changed its plan to take over Ukraine, with the goal now to exhaust the country rather than conquer new territory, UK intel says](https://news.yahoo.com/russia-changed-plan-over-ukraine-134606320.html)
+- Feb 24 - [Inside the Leopard 2, the German beer-balancing tank - and why Ukraine desperately wants them](https://news.yahoo.com/inside-leopard-2-german-beer-155705870.html)
 <!-- feed end -->
