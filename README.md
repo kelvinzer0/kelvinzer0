@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 24 - [Ukraine: Drone video shows cost of intense fighting in east](https://news.yahoo.com/ukraine-drone-video-shows-cost-084347553.html)
+- Feb 24 - [A 3,500-year-old bear that was perfectly preserved in permafrost is being dissected by Russian researchers now](https://news.yahoo.com/3-500-old-bear-perfectly-072959440.html)
+- Feb 24 - [What is China's peace proposal for Ukraine War?](https://news.yahoo.com/chinas-peace-proposal-ukraine-war-070622390.html)
 - Feb 24 - [Hannity Audience Laughs As GOP Candidate Awkwardly Ducks Trump Question](https://news.yahoo.com/hannity-audience-laughs-gop-candidate-054809598.html)
 - Feb 24 - [China calls for Russia-Ukraine cease-fire, peace talks](https://news.yahoo.com/china-calls-russia-ukraine-cease-014840192.html)
-- Feb 24 - [A Model Who Previously Sued Marilyn Manson For Sexual Assault Now Says Evan Rachel Wood Pressured Her To Make The Allegations](https://news.yahoo.com/model-previously-sued-marilyn-manson-005306045.html)
-- Feb 23 - [International student killed by boyfriend, Utah university says. Family awarded millions](https://news.yahoo.com/international-student-killed-boyfriend-utah-235315288.html)
-- Feb 23 - [These 6 countries sided with Russia in UN vote on Ukraine war](https://news.yahoo.com/6-countries-sided-russia-un-224506755.html)
 <!-- feed end -->
