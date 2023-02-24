@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 24 - [San Francisco Bay Area sees rare snowfall](https://news.yahoo.com/san-francisco-bay-area-sees-195021673.html)
 - Feb 24 - ['I want him to pay': Husband to spend life in prison for killing man he found with his wife](https://news.yahoo.com/want-him-pay-husband-spend-185046702.html)
-- Feb 24 - [Biden to draw health care contrast with GOP in Virginia](https://news.yahoo.com/biden-draw-health-care-contrast-184556581.html)
-- Feb 24 - [Defiantly, Russian officials celebrate their military in Washington](https://news.yahoo.com/defiantly-russian-officials-celebrate-their-military-in-washington-183948871.html)
-- Feb 24 - [DeSantis’s office says he will boycott NBC, MSNBC over Andrea Mitchell question on Black history](https://news.yahoo.com/desantis-office-says-boycott-nbc-183300271.html)
+- Feb 24 - [Map shows territorial shifts in Ukraine since war began one year ago](https://news.yahoo.com/map-shows-territorial-shifts-ukraine-200721878.html)
+- Feb 24 - [Russians hung out with US Army soldiers at a weapons expo and played with the missiles killing Putin's tanks in Ukraine](https://news.yahoo.com/russians-hung-us-army-soldiers-200235584.html)
+- Feb 24 - [I'm straight but flirted with another woman to get a discount on a couch. I consider myself an LGBTQ ally, but my friends called me out for my behavior.](https://news.yahoo.com/im-straight-flirted-another-woman-193917441.html)
+- Feb 24 - [Kids’ brutally honest lawn mowing business sign shows the true art of setting boundaries](https://news.yahoo.com/kids-brutally-honest-lawn-mowing-193601734.html)
 <!-- feed end -->
