@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 24 - [Hannity Audience Laughs As GOP Candidate Awkwardly Ducks Trump Question](https://news.yahoo.com/hannity-audience-laughs-gop-candidate-054809598.html)
 - Feb 24 - [China calls for Russia-Ukraine cease-fire, peace talks](https://news.yahoo.com/china-calls-russia-ukraine-cease-014840192.html)
 - Feb 24 - [A Model Who Previously Sued Marilyn Manson For Sexual Assault Now Says Evan Rachel Wood Pressured Her To Make The Allegations](https://news.yahoo.com/model-previously-sued-marilyn-manson-005306045.html)
-- Feb 23 - [Kate Hudson says it was 'right thing' to end relationships with sons' fathers: 'I don’t feel the failure'](https://news.yahoo.com/kate-hudson-says-thing-end-235916018.html)
+- Feb 23 - [International student killed by boyfriend, Utah university says. Family awarded millions](https://news.yahoo.com/international-student-killed-boyfriend-utah-235315288.html)
 - Feb 23 - [These 6 countries sided with Russia in UN vote on Ukraine war](https://news.yahoo.com/6-countries-sided-russia-un-224506755.html)
-- Feb 23 - [Southern California hammered with heavy snow](https://news.yahoo.com/southern-california-hammered-heavy-snow-222424789.html)
 <!-- feed end -->
