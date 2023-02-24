@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 24 - [Southern California faces first blizzard warning in over 30 years amid winter storm](https://news.yahoo.com/southern-california-faces-first-blizzard-154115886.html)
+- Feb 24 - [US Navy applies lessons from costly shipbuilding mistakes](https://news.yahoo.com/us-navy-applies-lessons-costly-163937216.html)
 - Feb 24 - [Ukrainian soldiers with life-changing war injuries posed for portraits saying they are 'living monuments' of a brutal war](https://news.yahoo.com/ukrainian-soldiers-life-changing-war-151239162.html)
 - Feb 24 - [Some Starlink customers say they're nervous that SpaceX will continue hiking prices after their subscription cost jumped to $120 a month](https://news.yahoo.com/starlink-customers-theyre-nervous-spacex-142805840.html)
 - Feb 24 - [Rep. George Santos thanked a lawmaker for 'stopping by' for a chat. The lawmaker said this was a lie, and that he went to protest and ask for his resignation.](https://news.yahoo.com/rep-george-santos-thanked-lawmaker-135107917.html)
