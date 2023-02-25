@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 24 - ['I want him to pay': Husband to spend life in prison for killing man he found with his wife](https://news.yahoo.com/want-him-pay-husband-spend-185046702.html)
-- Feb 24 - [Tennessee suspends coach Tony Vitello over NCAA violation](https://news.yahoo.com/tennessee-suspends-coach-tony-vitello-222951987.html)
-- Feb 24 - [Biden did not trip down plane stairs arriving in Poland](https://news.yahoo.com/biden-did-not-trip-down-215549964.html)
+- Feb 24 - [If Jeff Bezos buys Washington Commanders, here are 10 ideas if he chooses to rename them](https://news.yahoo.com/jeff-bezos-buys-washington-commanders-201744671.html)
 - Feb 24 - [A 19-year-old Depop dealer is accused of being 'greedy' over her vintage haul, which also ignited a debate about the ethics of thrifting](https://news.yahoo.com/19-old-depop-dealer-accused-201601402.html)
 - Feb 24 - [Madison Brooks death: Leaked video of LSU student triggers family outrage](https://news.yahoo.com/madison-brooks-death-leaked-video-200616998.html)
+- Feb 24 - [An American Airlines passenger forced the flight to make an emergency landing after she charged the cockpit after she couldn't get a drink: reports](https://news.yahoo.com/american-airlines-passenger-forced-flight-200600024.html)
 <!-- feed end -->
