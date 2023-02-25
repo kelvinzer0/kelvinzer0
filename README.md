@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 25 - [Justice Thomas wrote of 'crushing weight' of student loans](https://news.yahoo.com/justice-thomas-wrote-crushing-weight-124749263.html)
 - Feb 25 - [Conservative Legal Icon Gives Mike Pence A Stinging Reality Check On Subpoena Fight](https://news.yahoo.com/conservative-legal-icon-gives-mike-103311910.html)
 - Feb 25 - [My husband was diagnosed with frontotemporal dementia and died at 39. I was relieved that it explained his personality changes, until I realized he was dying.](https://news.yahoo.com/husband-diagnosed-frontotemporal-dementia-died-101000883.html)
 - Feb 25 - [Jimmy Kimmel Hits 4 Republicans Behind 'National Gun' Idea With A Scathing Nickname](https://news.yahoo.com/jimmy-kimmel-hits-4-republicans-070419524.html)
 - Feb 25 - [Chicago mayor's race dominated by concerns about crime](https://news.yahoo.com/chicago-mayors-race-dominated-concerns-052259099.html)
-- Feb 25 - ['I want him to pay': Husband to spend life in prison for killing man he found with his wife](https://news.yahoo.com/want-him-pay-husband-spend-185046702.html)
 <!-- feed end -->
