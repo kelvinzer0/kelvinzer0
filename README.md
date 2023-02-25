@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 25 - [Tense moment as Russia's UN ambassador interrupted a minute of silence for victims of Ukraine war at Security Council](https://news.yahoo.com/tense-moment-russias-un-ambassador-134223757.html)
 - Feb 25 - [Justice Thomas wrote of 'crushing weight' of student loans](https://news.yahoo.com/justice-thomas-wrote-crushing-weight-124749263.html)
+- Feb 25 - [I spent $375 for a hotel stay at the Denver airport to be steps away from my terminal. It was worth every cent, and exceeded my expectations.](https://news.yahoo.com/spent-375-hotel-stay-denver-110000816.html)
 - Feb 25 - [Conservative Legal Icon Gives Mike Pence A Stinging Reality Check On Subpoena Fight](https://news.yahoo.com/conservative-legal-icon-gives-mike-103311910.html)
-- Feb 25 - ['Ukraine strikes out-of-reach Mariupol'](https://news.yahoo.com/russia-ukraine-war-moscow-run-101529541.html)
-- Feb 25 - [My husband was diagnosed with frontotemporal dementia and died at 39. I was relieved that it explained his personality changes, until I realized he was dying.](https://news.yahoo.com/husband-diagnosed-frontotemporal-dementia-died-101000883.html)
-- Feb 25 - [Jimmy Kimmel Hits 4 Republicans Behind 'National Gun' Idea With A Scathing Nickname](https://news.yahoo.com/jimmy-kimmel-hits-4-republicans-070419524.html)
+- Feb 25 - [Putin will eventually be killed by inner circle, says Zelensky](https://news.yahoo.com/russia-ukraine-war-moscow-run-101529541.html)
 <!-- feed end -->
