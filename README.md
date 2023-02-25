@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 25 - [Chinese military orders US plane away from its airspace, flies fighter jet 500 feet from wing](https://news.yahoo.com/chinese-military-orders-us-plane-201439328.html)
 - Feb 25 - ['Dilbert' Finally Gets Fired After Creator Goes On Racist Tirade](https://news.yahoo.com/dilbert-finally-gets-fired-creator-201315690.html)
-- Feb 25 - [Dwyane Wade's daughter Zaya Wade granted legal-name change, gender change in court](https://news.yahoo.com/dwyane-wades-daughter-zaya-wade-200840963.html)
+- Feb 25 - [Ukraine ‘strikes Russian ammunition depot in Mariupol’](https://news.yahoo.com/ukraine-strikes-russian-ammunition-depot-201027017.html)
+- Feb 25 - [Clarence Thomas was still making student loan payments when he joined the Supreme Court — and a fellow Yale law student suggested he declare bankruptcy to avoid the 'crushing weight' of payments: book](https://news.yahoo.com/clarence-thomas-still-making-student-184232929.html)
 - Feb 25 - ['Top Gun: Maverick' star Tom Cruise admits he 'cried' over 'emotional' reunion with co-star Val Kilmer](https://news.yahoo.com/top-gun-maverick-star-tom-180306716.html)
-- Feb 25 - [No 1 Swiatek upset by Krejcikova in Dubai final](https://news.yahoo.com/no-1-swiatek-upset-krejcikova-174947696.html)
-- Feb 25 - [Man in wheelchair on bus refuses to move for mother and young daughter](https://news.yahoo.com/man-wheelchair-bus-refuses-move-170817044.html)
 <!-- feed end -->
