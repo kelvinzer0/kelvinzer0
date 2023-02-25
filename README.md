@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 25 - [Megan Fox Addressed Cheating Rumors In Her Relationship With Machine Gun Kelly In A New Instagram Statement](https://news.yahoo.com/megan-fox-addressed-cheating-rumors-232041459.html)
+- Feb 25 - [USS Nimitz in ready position as China tensions rise](https://news.yahoo.com/uss-nimitz-ready-position-china-012933482.html)
 - Feb 25 - [A bald eagle refused to move and got buried under snow — with only its head poking out — to protect its eggs during a storm, video shows](https://news.yahoo.com/bald-eagle-refused-move-got-012705971.html)
 - Feb 24 - [Paris Hilton says she had her baby via surrogate because of teenage abuse, other 'trauma': 'I want a family'](https://news.yahoo.com/paris-hilton-says-she-had-234710663.html)
 - Feb 24 - ['I want him to pay': Husband to spend life in prison for killing man he found with his wife](https://news.yahoo.com/want-him-pay-husband-spend-185046702.html)
-- Feb 24 - [U.S. Man's Death Suggests Deadly Tick Virus Is Spreading to New Regions](https://news.yahoo.com/u-mans-death-suggests-deadly-205500119.html)
+- Feb 24 - [Padres slugger Machado draws first pitch clock violation](https://news.yahoo.com/padres-slugger-machado-draws-first-223728647.html)
 <!-- feed end -->
