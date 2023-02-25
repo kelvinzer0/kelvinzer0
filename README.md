@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 25 - [Tense moment as Russia's UN ambassador interrupted a minute of silence for victims of Ukraine war at Security Council](https://news.yahoo.com/tense-moment-russias-un-ambassador-134223757.html)
 - Feb 25 - [Justice Thomas wrote of 'crushing weight' of student loans](https://news.yahoo.com/justice-thomas-wrote-crushing-weight-124749263.html)
-- Feb 25 - [I spent $375 for a hotel stay at the Denver airport to be steps away from my terminal. It was worth every cent, and exceeded my expectations.](https://news.yahoo.com/spent-375-hotel-stay-denver-110000816.html)
+- Feb 25 - [Sheltering miles from a nuclear blast may not be enough to survive unless you know where to hide, new calculations show](https://news.yahoo.com/sheltering-miles-nuclear-blast-may-115500093.html)
 - Feb 25 - [Conservative Legal Icon Gives Mike Pence A Stinging Reality Check On Subpoena Fight](https://news.yahoo.com/conservative-legal-icon-gives-mike-103311910.html)
 - Feb 25 - [Putin will eventually be killed by inner circle, says Zelensky](https://news.yahoo.com/russia-ukraine-war-moscow-run-101529541.html)
 <!-- feed end -->
