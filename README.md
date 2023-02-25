@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 25 - ["I Wore Them Probably 95% Of The Time": This Woman Lived In Sports Bras Until She Had An Eye-Opening Health Scare](https://news.yahoo.com/wore-them-probably-95-time-012429597.html)
+- Feb 25 - [No 1 Swiatek upset by Krejcikova in Dubai final](https://news.yahoo.com/no-1-swiatek-upset-krejcikova-174947696.html)
+- Feb 25 - [Man in wheelchair on bus refuses to move for mother and young daughter](https://news.yahoo.com/man-wheelchair-bus-refuses-move-170817044.html)
 - Feb 25 - [Sidney Powell avoids disbarment in Texas over election lies after judge throws out the state bar's case because the exhibits were misnumbered](https://news.yahoo.com/sidney-powell-avoids-disbarment-texas-165803001.html)
 - Feb 25 - [A man died of a stroke days after a realtor found him lying on the floor but did not call for help, says report](https://news.yahoo.com/man-died-stroke-days-realtor-162126247.html)
 - Feb 25 - [Tense moment as Russia's UN ambassador interrupted a minute of silence for victims of Ukraine war at Security Council](https://news.yahoo.com/tense-moment-russias-un-ambassador-134223757.html)
-- Feb 25 - [Justice Thomas wrote of 'crushing weight' of student loans](https://news.yahoo.com/justice-thomas-wrote-crushing-weight-124749263.html)
 <!-- feed end -->
