@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 26 - [Ukraine-Russia war latest: Satellite pictures show elite Russian unit 'destroyed'](https://news.yahoo.com/ukraine-russia-war-latest-satellite-092418473.html)
+- Feb 26 - [Colin Jost Trashes Trump In 'Weekend Update' Roast Of His East Palestine Visit](https://news.yahoo.com/colin-jost-trashes-trump-weekend-071218736.html)
 - Feb 26 - [One arrested in Texas dog attack that left an 81-year-old man dead](https://news.yahoo.com/dogs-kill-elderly-man-critically-031910153.html)
 - Feb 26 - [SNL Cold Open: Trump Visits East Palestine](https://news.yahoo.com/snl-cold-open-trump-visits-045423324.html)
 - Feb 26 - [A woman invited her family to her wedding in Mexico. They kidnapped her to arrange a forced marriage to another man for $500,000 instead.](https://news.yahoo.com/woman-invited-her-family-her-024920019.html)
-- Feb 26 - [Cardinals' Marmol says umpire C.B. Bucknor 'has zero class'](https://news.yahoo.com/cardinals-marmol-says-umpire-c-004734415.html)
-- Feb 26 - [Mexican president posts photo of what he claims is an elf](https://news.yahoo.com/mexican-president-posts-photo-claims-002035036.html)
 <!-- feed end -->
