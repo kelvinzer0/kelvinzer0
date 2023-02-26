@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 26 - [Jack Daniels barrel houses are causing an out-of-control black 'whiskey fungus' in a Tennessee community, enraged residents say](https://news.yahoo.com/jack-daniels-barrel-houses-causing-182654352.html)
+- Feb 26 - [White Lotus star Aubrey Plaza ate peanut butter for lunch and got fired a lot in her early acting days: 'It's not a good feeling — it sucks.'](https://news.yahoo.com/white-lotus-star-aubrey-plaza-095400039.html)
+- Feb 26 - [Jack Daniel's barrel houses are causing an out-of-control black 'whiskey fungus' in a Tennessee community, enraged residents say](https://news.yahoo.com/jack-daniels-barrel-houses-causing-182654352.html)
 - Feb 26 - [Supreme Court Justice Clarence Thomas was still making student loan payments when he joined the bench — and one classmate suggested declaring bankruptcy to avoid the 'crushing weight' of payments: book](https://news.yahoo.com/clarence-thomas-still-making-student-184232929.html)
-- Feb 26 - ['SNL' spoofs Donald Trump's visit to East Palestine; Woody Harrelson jabs at COVID mandate](https://news.yahoo.com/snl-spoofs-donald-trumps-visit-175821883.html)
 - Feb 26 - [CIA chief: China has some doubt on ability to invade Taiwan](https://news.yahoo.com/cia-chief-china-doubt-ability-174115011.html)
 - Feb 26 - ['Most hated': White student sues historically Black college for $2 million over racial discrimination](https://news.yahoo.com/most-hated-white-student-sues-173016085.html)
 <!-- feed end -->
