@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 26 - [Arrest warrant issued for rapper Kodak Black in Florida](https://news.yahoo.com/arrest-warrant-issued-rapper-kodak-214755444.html)
+- Feb 26 - [Gordon Pinsent, award-winning Canadian actor, dies at 92](https://news.yahoo.com/gordon-pinsent-award-winning-canadian-212934401.html)
 - Feb 26 - [White Lotus star Aubrey Plaza ate peanut butter for lunch and got fired a lot in her early acting days: 'It's not a good feeling — it sucks.'](https://news.yahoo.com/white-lotus-star-aubrey-plaza-095400039.html)
+- Feb 26 - [Belarusian partisans sabotaged in Machulishchy](https://news.yahoo.com/belarusian-partisans-sabotaged-machulishchy-194148130.html)
 - Feb 26 - [Jack Daniel's barrel houses are causing an out-of-control black 'whiskey fungus' in a Tennessee community, enraged residents say](https://news.yahoo.com/jack-daniels-barrel-houses-causing-182654352.html)
-- Feb 26 - [Supreme Court Justice Clarence Thomas was still making student loan payments when he joined the bench — and one classmate suggested declaring bankruptcy to avoid the 'crushing weight' of payments: book](https://news.yahoo.com/clarence-thomas-still-making-student-184232929.html)
-- Feb 26 - [CIA chief: China has some doubt on ability to invade Taiwan](https://news.yahoo.com/cia-chief-china-doubt-ability-174115011.html)
-- Feb 26 - ['Most hated': White student sues historically Black college for $2 million over racial discrimination](https://news.yahoo.com/most-hated-white-student-sues-173016085.html)
 <!-- feed end -->
