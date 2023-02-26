@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 26 - [CIA chief: China has some doubt on ability to invade Taiwan](https://news.yahoo.com/cia-chief-china-doubt-ability-174115011.html)
+- Feb 26 - ['Most hated': White student sues historically Black college for $2 million over racial discrimination](https://news.yahoo.com/most-hated-white-student-sues-173016085.html)
 - Feb 26 - [Ukraine-Russia war: Putin says Russian people 'may not survive'](https://news.yahoo.com/ukraine-russia-war-latest-satellite-092418473.html)
-- Feb 26 - [Covid-19 Likely Originated with Lab Leak, U.S. Energy Department Finds in New Report](https://news.yahoo.com/covid-19-likely-originated-lab-153104757.html)
-- Feb 26 - [Head of Paris Fashion Week model found in soup pot](https://news.yahoo.com/decapitated-head-paris-fashion-week-132948477.html)
-- Feb 26 - [Putin unexpectedly mentions the risk of Russia’s collapse](https://news.yahoo.com/putin-unexpectedly-mentions-risk-russia-151000506.html)
-- Feb 26 - [Man yells at girlfriend to 'stop f---ing eating,' she then charges him with 'fat-shaming'](https://news.yahoo.com/man-yells-girlfriend-stop-f-140250416.html)
+- Feb 26 - [A woman who found a cockroach in her husband's food at a Slim Chickens in Florida says she had to battle with the manager to get a refund](https://news.yahoo.com/woman-found-cockroach-her-husbands-164500260.html)
+- Feb 26 - [GOP Chair Makes Delusional Promises on Behalf of Donald Trump](https://news.yahoo.com/gop-chair-makes-delusional-promises-162422162.html)
 <!-- feed end -->
