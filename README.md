@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 25 - [Chinese military orders US plane away from its airspace, flies fighter jet 500 feet from wing](https://news.yahoo.com/chinese-military-orders-us-plane-201439328.html)
-- Feb 25 - ['Dilbert' Finally Gets Fired After Creator Goes On Racist Tirade](https://news.yahoo.com/dilbert-finally-gets-fired-creator-201315690.html)
-- Feb 25 - [Ukraine ‘strikes Russian ammunition depot in Mariupol’](https://news.yahoo.com/ukraine-strikes-russian-ammunition-depot-201027017.html)
-- Feb 25 - [Clarence Thomas was still making student loan payments when he joined the Supreme Court — and a fellow Yale law student suggested he declare bankruptcy to avoid the 'crushing weight' of payments: book](https://news.yahoo.com/clarence-thomas-still-making-student-184232929.html)
-- Feb 25 - ['Top Gun: Maverick' star Tom Cruise admits he 'cried' over 'emotional' reunion with co-star Val Kilmer](https://news.yahoo.com/top-gun-maverick-star-tom-180306716.html)
+- Feb 26 - [Cardinals' Marmol says umpire C.B. Bucknor 'has zero class'](https://news.yahoo.com/cardinals-marmol-says-umpire-c-004734415.html)
+- Feb 26 - [Mexican president posts photo of what he claims is an elf](https://news.yahoo.com/mexican-president-posts-photo-claims-002035036.html)
+- Feb 25 - [2 killed, 11 hurt after pickup strikes bicyclists in Arizona](https://news.yahoo.com/2-killed-11-hurt-pickup-230849003.html)
+- Feb 25 - [Ron DeSantis admits getting married to Casey DeSantis at Disney World ended up being 'kind of ironic'](https://news.yahoo.com/ron-desantis-admits-getting-married-230125073.html)
+- Feb 25 - [Man, 15-year-old arrested in shooting of 9 children at Ga. gas station](https://news.yahoo.com/man-15-old-arrested-shooting-211845797.html)
 <!-- feed end -->
