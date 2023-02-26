@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 26 - [Madonna's older brother has died at age 66, family says](https://news.yahoo.com/madonnas-older-brother-died-age-220702972.html)
 - Feb 26 - [Arrest warrant issued for rapper Kodak Black in Florida](https://news.yahoo.com/arrest-warrant-issued-rapper-kodak-214755444.html)
-- Feb 26 - [Gordon Pinsent, award-winning Canadian actor, dies at 92](https://news.yahoo.com/gordon-pinsent-award-winning-canadian-212934401.html)
 - Feb 26 - [White Lotus star Aubrey Plaza ate peanut butter for lunch and got fired a lot in her early acting days: 'It's not a good feeling — it sucks.'](https://news.yahoo.com/white-lotus-star-aubrey-plaza-095400039.html)
 - Feb 26 - [Belarusian partisans sabotaged in Machulishchy](https://news.yahoo.com/belarusian-partisans-sabotaged-machulishchy-194148130.html)
 - Feb 26 - [Jack Daniel's barrel houses are causing an out-of-control black 'whiskey fungus' in a Tennessee community, enraged residents say](https://news.yahoo.com/jack-daniels-barrel-houses-causing-182654352.html)
