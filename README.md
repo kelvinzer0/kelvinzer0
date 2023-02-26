@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 26 - [Paris Hilton Explained Why She Used A Surrogate For Her Son, Phoenix](https://news.yahoo.com/paris-hilton-explained-why-she-011445727.html)
 - Feb 26 - [Cardinals' Marmol says umpire C.B. Bucknor 'has zero class'](https://news.yahoo.com/cardinals-marmol-says-umpire-c-004734415.html)
 - Feb 26 - [Mexican president posts photo of what he claims is an elf](https://news.yahoo.com/mexican-president-posts-photo-claims-002035036.html)
 - Feb 25 - [2 killed, 11 hurt after pickup strikes bicyclists in Arizona](https://news.yahoo.com/2-killed-11-hurt-pickup-230849003.html)
 - Feb 25 - [Ron DeSantis admits getting married to Casey DeSantis at Disney World ended up being 'kind of ironic'](https://news.yahoo.com/ron-desantis-admits-getting-married-230125073.html)
-- Feb 25 - [Man, 15-year-old arrested in shooting of 9 children at Ga. gas station](https://news.yahoo.com/man-15-old-arrested-shooting-211845797.html)
 <!-- feed end -->
