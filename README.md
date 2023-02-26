@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 26 - [Ukraine-Russia war: Putin says Russian people 'may not survive'](https://news.yahoo.com/ukraine-russia-war-latest-satellite-092418473.html)
 - Feb 26 - [Covid-19 Likely Originated with Lab Leak, U.S. Energy Department Finds in New Report](https://news.yahoo.com/covid-19-likely-originated-lab-153104757.html)
 - Feb 26 - [Head of Paris Fashion Week model found in soup pot](https://news.yahoo.com/decapitated-head-paris-fashion-week-132948477.html)
 - Feb 26 - [Putin unexpectedly mentions the risk of Russia’s collapse](https://news.yahoo.com/putin-unexpectedly-mentions-risk-russia-151000506.html)
-- Feb 26 - [Key Putin ally claims Russia is dismantling seized western weapons to turn 'the enemy's experience to our advantage' in Ukraine](https://news.yahoo.com/key-putin-ally-claims-russia-140000300.html)
-- Feb 26 - [Failing at polls, election deniers focus on state GOP posts](https://news.yahoo.com/failing-polls-election-deniers-focus-130500613.html)
+- Feb 26 - [Man yells at girlfriend to 'stop f---ing eating,' she then charges him with 'fat-shaming'](https://news.yahoo.com/man-yells-girlfriend-stop-f-140250416.html)
 <!-- feed end -->
