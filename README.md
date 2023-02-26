@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 26 - [Decapitated head of Paris Fashion Week model found in soup pot](https://news.yahoo.com/decapitated-head-paris-fashion-week-132948477.html)
+- Feb 26 - [Failing at polls, election deniers focus on state GOP posts](https://news.yahoo.com/failing-polls-election-deniers-focus-130500613.html)
 - Feb 26 - [Disappointing photos show what it's like to go skiing in Colorado](https://news.yahoo.com/disappointing-photos-show-skiing-colorado-110000741.html)
-- Feb 26 - [Ukraine-Russia war latest: Satellite pictures show elite Russian unit 'destroyed'](https://news.yahoo.com/ukraine-russia-war-latest-satellite-092418473.html)
+- Feb 26 - [Ukraine-Russia war latest: Putin says Russian people 'may not survive'](https://news.yahoo.com/ukraine-russia-war-latest-satellite-092418473.html)
 - Feb 26 - [A 47-year-old OnlyFans model makes $16,000 a month and fans tell her she looks like Princess Diana all the time](https://news.yahoo.com/47-old-onlyfans-model-makes-090000182.html)
-- Feb 26 - [Woody Harrelson’s ‘Saturday Night Live’ monologue about COVID sparks debate, Elon Musk says he was spot on](https://news.yahoo.com/woody-harrelson-saturday-night-live-085527939.html)
-- Feb 26 - [Colin Jost Trashes Trump In 'Weekend Update' Roast Of His East Palestine Visit](https://news.yahoo.com/colin-jost-trashes-trump-weekend-071218736.html)
 <!-- feed end -->
