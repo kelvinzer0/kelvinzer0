@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 27 - [Slovenia band Laibach concert in Ukraine canceled amid rift](https://news.yahoo.com/slovenia-band-laibach-concert-ukraine-132545024.html)
+- Feb 27 - [I stayed at Disney World's most expensive hotel that costs $900 a night. Here's what it was like and why it was worth every penny.](https://news.yahoo.com/stayed-disney-worlds-most-expensive-130800672.html)
 - Feb 27 - [Elon University's women's lacrosse pushes through mud to free their bus](https://news.yahoo.com/elon-universitys-womens-lacrosse-pushes-130021794.html)
-- Feb 27 - [Ukraine says it shot down a Su-25 jet and captured its pilot in revenge for a weekend of shelling: reports](https://news.yahoo.com/ukraine-says-shot-down-su-122032346.html)
-- Feb 27 - [Trans people face 'horrifying' rhetoric at statehouses](https://news.yahoo.com/trans-people-face-horrifying-rhetoric-120803695.html)
-- Feb 27 - [I met my husband on Facebook. He proposed online, he gave me $2,000 to buy a ring — and we married me a week later.](https://news.yahoo.com/met-husband-facebook-proposed-online-120000058.html)
-- Feb 27 - [UN chief points to ' massive' rights violations in Ukraine](https://news.yahoo.com/un-chief-points-massive-rights-115929471.html)
+- Feb 27 - [Martin Short swapped plane seats with a 7-year-old girl so she could sit with her father. The dad turned out to be Chance the Rapper.](https://news.yahoo.com/martin-short-swapped-plane-seats-125706093.html)
+- Feb 27 - [Aubrey Plaza Looked Visibly Angry Onstage At The SAG Awards After Her “White Lotus” Costars Appeared To Very Nearly Elbow Her In The Face](https://news.yahoo.com/aubrey-plaza-looked-visibly-angry-125504160.html)
 <!-- feed end -->
