@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [Immigrants to Italy defy forced marriage](https://news.yahoo.com/immigrants-italy-defy-forced-marriage-030650286.html)
+- Feb 27 - [Bleak photos show the reality of the cobalt mining industry responsible for the batteries in your phone, computer, and car](https://news.yahoo.com/bleak-photos-show-reality-cobalt-033300215.html)
 - Feb 27 - [‘Nepo Baby’ Jamie Lee Curtis Brings Down the House at SAG Awards](https://news.yahoo.com/nepo-baby-jamie-lee-curtis-023802184.html)
 - Feb 27 - [Zelensky sacks commander of Ukraine’s joint forces](https://news.yahoo.com/zelensky-sacks-commander-ukraine-joint-020954902.html)
 - Feb 27 - [Inside the Unholy Sex Scandal Rocking Trump’s Ex-Adviser](https://news.yahoo.com/inside-unholy-sex-scandal-rocking-013425688.html)
-- Feb 26 - [Davis leads rally from 27 down as Lakers beat Mavs 111-108](https://news.yahoo.com/davis-leads-rally-27-down-233044540.html)
+- Feb 26 - [Mississippi GOP governor now backs longer Medicaid for moms](https://news.yahoo.com/mississippi-gop-governor-now-backs-233706124.html)
 <!-- feed end -->
