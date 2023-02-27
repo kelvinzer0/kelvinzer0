@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [Pakistani police arrest prominent Imran Khan supporter](https://news.yahoo.com/pakistani-police-arrest-prominent-imran-080241137.html)
-- Feb 27 - [Last-minute problem keeps SpaceX rocket, astronauts grounded](https://news.yahoo.com/last-minute-problem-keeps-spacex-072525592.html)
+- Feb 27 - [Andrew Tate to appeal third arrest extension in Romania](https://news.yahoo.com/andrew-tate-appeal-third-arrest-084946875.html)
 - Feb 27 - ['Love doesn't exist': Immigrants defy forced marriage abroad](https://news.yahoo.com/love-doesnt-exist-immigrants-defy-072103564.html)
 - Feb 27 - [Huawei dominates MWC mobile tech fair despite US sanctions](https://news.yahoo.com/huawei-dominates-mwc-mobile-tech-070942619.html)
 - Feb 27 - [Trump Reportedly Ordered White House To Attempt Crack Down On Jimmy Kimmel](https://news.yahoo.com/trump-reportedly-ordered-white-house-063931349.html)
+- Feb 27 - [Slain Hong Kong model’s in-laws, ex-husband appear in court](https://news.yahoo.com/slain-hong-kong-model-laws-063003963.html)
 <!-- feed end -->
