@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [What was in the seafood boxes? Keys fish house fined $250,000 for mislabeling lobsters](https://news.yahoo.com/seafood-boxes-keys-fish-house-195107626.html)
-- Feb 27 - [42 students from England stranded in US after passports destroyed during New Hampshire ski trip](https://news.yahoo.com/42-students-england-stranded-us-194029180.html)
-- Feb 27 - [Moldova expels 2 foreigners caught in 'destabilization' plot](https://news.yahoo.com/moldova-expels-2-foreigners-caught-185513972.html)
-- Feb 27 - [B.J. Novak says he and Mindy Kaling were 'in love' during 'The Office' and that their 'tumultuous' and 'toxic' relationship inspired their on-screen romance](https://news.yahoo.com/b-j-novak-says-mindy-183015903.html)
-- Feb 27 - [DeSantis Repeals $1.2 Billion Tax Hike He Imposed During Last Year’s Disney Fight](https://news.yahoo.com/desantis-repeals-1-2-billion-180156867.html)
+- Feb 27 - [Shakira Seemingly Took Aim At Ex Gerard Piqué And His Girlfriend In A New Song With Karol G](https://news.yahoo.com/shakira-seemingly-took-aim-ex-013229021.html)
+- Feb 27 - ["The Casting Was Perfect": 15 Book Adaptations That Readers Actually Love](https://news.yahoo.com/casting-perfect-15-book-adaptations-214910799.html)
+- Feb 27 - [Climate change is causing droughts everywhere](https://news.yahoo.com/climate-change-is-causing-droughts-everywhere-214742533.html)
+- Feb 27 - [Customer goes on racist rant at Amy's Pizzeria, verbally attacking employees in now viral video](https://news.yahoo.com/customer-goes-racist-rant-amys-192500028.html)
+- Feb 27 - [Russia shoots down China's peace plan for the Ukraine war as Beijing becomes more entangled in the conflict a year into the fighting](https://news.yahoo.com/russia-shoots-down-chinas-peace-202733540.html)
 <!-- feed end -->
