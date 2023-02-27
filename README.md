@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [Legacy of Wounded Knee occupation lives on 50 years later](https://news.yahoo.com/legacy-wounded-knee-occupation-lives-163924655.html)
+- Feb 27 - [Jeff Probst a constant for 'Survivor' as it nears 44th game](https://news.yahoo.com/jeff-probst-constant-survivor-nears-174757389.html)
+- Feb 27 - [Top GOP campaign group invites 2024 prospects to donor retreat – except Trump](https://news.yahoo.com/top-gop-campaign-group-invites-2024-prospects-to-donor-retreat--except-trump-173427186.html)
+- Feb 27 - [The Brighton ax murder of 1982](https://news.yahoo.com/brighton-ax-murder-1982-172906170.html)
+- Feb 27 - [Officers, command staff resign after south Georgia police chief arrested by GBI](https://news.yahoo.com/officers-command-staff-resign-south-165309958.html)
 - Feb 27 - [Video shows teen attack school employee for taking teen's Nintendo Switch in class](https://news.yahoo.com/video-shows-teen-attack-school-161754821.html)
-- Feb 27 - [Student knocks teacher unconscious after she took away his Nintendo Switch](https://news.yahoo.com/student-knocks-teacher-unconscious-she-161543676.html)
-- Feb 27 - [Russian invaders refusing to go on offensive in Vuhledar area en masse](https://news.yahoo.com/russian-invaders-refusing-offensive-vuhledar-161000495.html)
-- Feb 27 - [AP Interview: Stenmark says Shiffrin 'better than I was'](https://news.yahoo.com/ap-interview-stenmark-says-shiffrin-154108657.html)
 <!-- feed end -->
