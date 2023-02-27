@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [Jamie Lee Curtis Kicked Off The 2023 SAG Awards With A "Nepo Baby" Joke That Was Pretty Well-Timed](https://news.yahoo.com/jamie-lee-curtis-made-pretty-072937570.html)
+- Feb 27 - [SAG Awards 2023: Here's What Everyone Wore On The Red Carpet](https://news.yahoo.com/heres-everyone-wore-2023-sag-082503926.html)
+- Feb 27 - [Trans people face 'horrifying' rhetoric at statehouses](https://news.yahoo.com/trans-people-face-horrifying-rhetoric-120803695.html)
+- Feb 27 - [UN chief points to ' massive' rights violations in Ukraine](https://news.yahoo.com/un-chief-points-massive-rights-115929471.html)
 - Feb 27 - [Cartel flooded coastal Oregon town with drugs, left grisly warning for those who might talk](https://news.yahoo.com/cartel-flooded-coastal-oregon-town-100126286.html)
-- Feb 27 - [Andrew Tate to appeal third arrest extension in Romania](https://news.yahoo.com/andrew-tate-appeal-third-arrest-084946875.html)
-- Feb 27 - ['Love doesn't exist': Immigrants defy forced marriage abroad](https://news.yahoo.com/love-doesnt-exist-immigrants-defy-072103564.html)
-- Feb 27 - [Huawei dominates MWC mobile tech fair despite US sanctions](https://news.yahoo.com/huawei-dominates-mwc-mobile-tech-070942619.html)
+- Feb 27 - [Mehdi Hasan Reveals Why 'Kook' Marjorie Taylor Greene Is So Very Dangerous](https://news.yahoo.com/mehdi-hasan-reveals-why-kook-094300921.html)
 <!-- feed end -->
