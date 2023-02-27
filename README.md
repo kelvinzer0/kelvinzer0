@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [DeSantis takes over Disney district, punishing company](https://news.yahoo.com/desantis-takes-over-disney-district-154325121.html)
+- Feb 27 - [Legacy of Wounded Knee occupation lives on 50 years later](https://news.yahoo.com/legacy-wounded-knee-occupation-lives-163924655.html)
+- Feb 27 - [Video shows teen attack school employee for taking teen's Nintendo Switch in class](https://news.yahoo.com/video-shows-teen-attack-school-161754821.html)
+- Feb 27 - [Student knocks teacher unconscious after she took away his Nintendo Switch](https://news.yahoo.com/student-knocks-teacher-unconscious-she-161543676.html)
+- Feb 27 - [Russian invaders refusing to go on offensive in Vuhledar area en masse](https://news.yahoo.com/russian-invaders-refusing-offensive-vuhledar-161000495.html)
 - Feb 27 - [AP Interview: Stenmark says Shiffrin 'better than I was'](https://news.yahoo.com/ap-interview-stenmark-says-shiffrin-154108657.html)
-- Feb 27 - [Boat crashes into Florida bridge, leaving 10 people struggling in river, rescuers say](https://news.yahoo.com/boat-crashes-florida-bridge-leaving-153854612.html)
-- Feb 27 - [Jamie Lee Curtis Gets Emotional in SAG Awards Acceptance Speech](https://news.yahoo.com/jamie-lee-curtis-gets-emotional-151534975.html)
-- Feb 27 - [Austin Butler Is Being Called A “True Gentleman” After A Heartwarming Clip Of Him Helping 76-Year-Old Sally Field Walk On Stage At The SAG Awards Left Fans Emotional](https://news.yahoo.com/austin-butler-being-called-true-151257932.html)
 <!-- feed end -->
