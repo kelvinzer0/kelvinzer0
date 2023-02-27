@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 27 - [Millennials And Gen Z'ers Are Getting Very Honest About Things They Wish Their Parents And Grandparents Understood In 2023](https://news.yahoo.com/face-very-different-challenges-now-034902926.html)
+- Feb 27 - [Williamson becomes Democratic primary's 1st Biden challenger](https://news.yahoo.com/williamson-becomes-democratic-primarys-1st-141520137.html)
+- Feb 27 - [Lebanese state media archives looted in heart of Beirut](https://news.yahoo.com/lebanese-state-media-archives-looted-141104462.html)
 - Feb 27 - [Slovenia band Laibach concert in Ukraine canceled amid rift](https://news.yahoo.com/slovenia-band-laibach-concert-ukraine-132545024.html)
 - Feb 27 - [I stayed at Disney World's most expensive hotel that costs $900 a night. Here's what it was like and why it was worth every penny.](https://news.yahoo.com/stayed-disney-worlds-most-expensive-130800672.html)
-- Feb 27 - [Elon University's women's lacrosse pushes through mud to free their bus](https://news.yahoo.com/elon-universitys-womens-lacrosse-pushes-130021794.html)
-- Feb 27 - [Martin Short swapped plane seats with a 7-year-old girl so she could sit with her father. The dad turned out to be Chance the Rapper.](https://news.yahoo.com/martin-short-swapped-plane-seats-125706093.html)
-- Feb 27 - [Aubrey Plaza Looked Visibly Angry Onstage At The SAG Awards After Her “White Lotus” Costars Appeared To Very Nearly Elbow Her In The Face](https://news.yahoo.com/aubrey-plaza-looked-visibly-angry-125504160.html)
 <!-- feed end -->
