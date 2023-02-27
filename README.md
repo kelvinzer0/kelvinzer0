@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [Christina Applegate Walked The SAG Awards Red Carpet With Her Daughter, After Saying This Is Likely Her "Last Awards Show As An Actor"](https://news.yahoo.com/christina-applegate-walked-sag-awards-063017166.html)
+- Feb 27 - [What was in the seafood boxes? Keys fish house fined $250,000 for mislabeling lobsters](https://news.yahoo.com/seafood-boxes-keys-fish-house-195107626.html)
+- Feb 27 - [42 students from England stranded in US after passports destroyed during New Hampshire ski trip](https://news.yahoo.com/42-students-england-stranded-us-194029180.html)
+- Feb 27 - [Moldova expels 2 foreigners caught in 'destabilization' plot](https://news.yahoo.com/moldova-expels-2-foreigners-caught-185513972.html)
 - Feb 27 - [B.J. Novak says he and Mindy Kaling were 'in love' during 'The Office' and that their 'tumultuous' and 'toxic' relationship inspired their on-screen romance](https://news.yahoo.com/b-j-novak-says-mindy-183015903.html)
 - Feb 27 - [DeSantis Repeals $1.2 Billion Tax Hike He Imposed During Last Year’s Disney Fight](https://news.yahoo.com/desantis-repeals-1-2-billion-180156867.html)
-- Feb 27 - [Duo wanted for assaulting, yelling racial slurs at Asian woman in Massachusetts](https://news.yahoo.com/duo-wanted-assaulting-yelling-racial-175739422.html)
-- Feb 27 - [2 hospitalized in crash involving General Lee car from ‘Dukes of Hazzard,’ officials say](https://news.yahoo.com/2-hospitalized-crash-involving-general-175736227.html)
 <!-- feed end -->
