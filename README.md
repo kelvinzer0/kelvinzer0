@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 27 - [Pakistani police arrest prominent Imran Khan supporter](https://news.yahoo.com/pakistani-police-arrest-prominent-imran-080241137.html)
+- Feb 27 - [Last-minute problem keeps SpaceX rocket, astronauts grounded](https://news.yahoo.com/last-minute-problem-keeps-spacex-072525592.html)
+- Feb 27 - ['Love doesn't exist': Immigrants defy forced marriage abroad](https://news.yahoo.com/love-doesnt-exist-immigrants-defy-072103564.html)
+- Feb 27 - [Huawei dominates MWC mobile tech fair despite US sanctions](https://news.yahoo.com/huawei-dominates-mwc-mobile-tech-070942619.html)
 - Feb 27 - [Trump Reportedly Ordered White House To Attempt Crack Down On Jimmy Kimmel](https://news.yahoo.com/trump-reportedly-ordered-white-house-063931349.html)
-- Feb 27 - [Slain Hong Kong model’s in-laws, ex-husband appear in court](https://news.yahoo.com/slain-hong-kong-model-laws-063003963.html)
-- Feb 27 - [Iraqi president says country now peaceful, life is returning](https://news.yahoo.com/iraqi-president-says-country-now-062417086.html)
-- Feb 27 - [Legacy of Wounded Knee occupation lives on 50 years later](https://news.yahoo.com/legacy-wounded-knee-occupation-lives-060540968.html)
-- Feb 27 - [‘A time bomb’: India’s sinking holy town faces grim future](https://news.yahoo.com/time-bomb-india-sinking-holy-053152416.html)
 <!-- feed end -->
