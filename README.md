@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [Shakira Seemingly Took Aim At Ex Gerard Piqué And His Girlfriend In A New Song With Karol G](https://news.yahoo.com/shakira-seemingly-took-aim-ex-013229021.html)
-- Feb 27 - ["The Casting Was Perfect": 15 Book Adaptations That Readers Actually Love](https://news.yahoo.com/casting-perfect-15-book-adaptations-214910799.html)
-- Feb 27 - [Climate change is causing droughts everywhere](https://news.yahoo.com/climate-change-is-causing-droughts-everywhere-214742533.html)
+- Feb 27 - [Fox's Kurtz says he's disallowed from covering Dominion case](https://news.yahoo.com/foxs-kurtz-says-hes-disallowed-224734597.html)
+- Feb 27 - [Purple Heart given to deputy in fatal shooting at middle school draws outrage](https://news.yahoo.com/purple-heart-given-deputy-fatal-223259286.html)
+- Feb 27 - [Mystery of COVID-19's origins deepens with new report: What we know](https://news.yahoo.com/mystery-of-covid-19s-origins-deepens-with-new-report-what-we-know-223155405.html)
+- Feb 27 - [Man falsely accused of being sexual predator while visiting daughter in Cobb County, video shows](https://news.yahoo.com/man-falsely-accused-being-sexual-215607422.html)
 - Feb 27 - [Customer goes on racist rant at Amy's Pizzeria, verbally attacking employees in now viral video](https://news.yahoo.com/customer-goes-racist-rant-amys-192500028.html)
-- Feb 27 - [Russia shoots down China's peace plan for the Ukraine war as Beijing becomes more entangled in the conflict a year into the fighting](https://news.yahoo.com/russia-shoots-down-chinas-peace-202733540.html)
 <!-- feed end -->
