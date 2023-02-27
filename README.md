@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [Jeff Probst a constant for 'Survivor' as it nears 44th game](https://news.yahoo.com/jeff-probst-constant-survivor-nears-174757389.html)
+- Feb 27 - [Shipwreck detective rates 11 wreck scenes in movies and television](https://news.yahoo.com/shipwreck-detective-rates-11-wreck-183739629.html)
+- Feb 27 - [DeSantis Repeals $1.2 Billion Tax Hike He Imposed During Last Year’s Disney Fight](https://news.yahoo.com/desantis-repeals-1-2-billion-180156867.html)
+- Feb 27 - [2 hospitalized in crash involving General Lee car from ‘Dukes of Hazzard,’ officials say](https://news.yahoo.com/2-hospitalized-crash-involving-general-175736227.html)
 - Feb 27 - [Top GOP campaign group invites 2024 prospects to donor retreat – except Trump](https://news.yahoo.com/top-gop-campaign-group-invites-2024-prospects-to-donor-retreat--except-trump-173427186.html)
-- Feb 27 - [The Brighton ax murder of 1982](https://news.yahoo.com/brighton-ax-murder-1982-172906170.html)
 - Feb 27 - [Officers, command staff resign after south Georgia police chief arrested by GBI](https://news.yahoo.com/officers-command-staff-resign-south-165309958.html)
-- Feb 27 - [Video shows teen attack school employee for taking teen's Nintendo Switch in class](https://news.yahoo.com/video-shows-teen-attack-school-161754821.html)
 <!-- feed end -->
