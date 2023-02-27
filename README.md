@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 27 - [Trump Reportedly Ordered White House To Attempt Crack Down On Jimmy Kimmel](https://news.yahoo.com/trump-reportedly-ordered-white-house-063931349.html)
+- Feb 27 - [Slain Hong Kong model’s in-laws, ex-husband appear in court](https://news.yahoo.com/slain-hong-kong-model-laws-063003963.html)
+- Feb 27 - [Iraqi president says country now peaceful, life is returning](https://news.yahoo.com/iraqi-president-says-country-now-062417086.html)
+- Feb 27 - [Legacy of Wounded Knee occupation lives on 50 years later](https://news.yahoo.com/legacy-wounded-knee-occupation-lives-060540968.html)
 - Feb 27 - [‘A time bomb’: India’s sinking holy town faces grim future](https://news.yahoo.com/time-bomb-india-sinking-holy-053152416.html)
-- Feb 27 - [DeSantis moves toward GOP presidential bid on his own terms](https://news.yahoo.com/desantis-moves-toward-gop-presidential-050121204.html)
-- Feb 27 - [Lillard has 71 pts and 13 3s; Blazers beat Rockets 131-114](https://news.yahoo.com/lillard-71-pts-13-3s-044645075.html)
-- Feb 27 - [Bleak photos show the reality of the cobalt mining industry responsible for the batteries in your phone, computer, and car](https://news.yahoo.com/bleak-photos-show-reality-cobalt-033300215.html)
-- Feb 27 - [Idaho student murders suspect Bryan Kohberger could face death by firing squad under proposed law if convicted](https://news.yahoo.com/idaho-student-murders-suspect-bryan-024234421.html)
 <!-- feed end -->
