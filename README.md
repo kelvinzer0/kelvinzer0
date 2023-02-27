@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [SAG Awards 2023: Here's What Everyone Wore On The Red Carpet](https://news.yahoo.com/heres-everyone-wore-2023-sag-082503926.html)
+- Feb 27 - [Elon University's women's lacrosse pushes through mud to free their bus](https://news.yahoo.com/elon-universitys-womens-lacrosse-pushes-130021794.html)
+- Feb 27 - [Ukraine says it shot down a Su-25 jet and captured its pilot in revenge for a weekend of shelling: reports](https://news.yahoo.com/ukraine-says-shot-down-su-122032346.html)
 - Feb 27 - [Trans people face 'horrifying' rhetoric at statehouses](https://news.yahoo.com/trans-people-face-horrifying-rhetoric-120803695.html)
+- Feb 27 - [I met my husband on Facebook. He proposed online, he gave me $2,000 to buy a ring — and we married me a week later.](https://news.yahoo.com/met-husband-facebook-proposed-online-120000058.html)
 - Feb 27 - [UN chief points to ' massive' rights violations in Ukraine](https://news.yahoo.com/un-chief-points-massive-rights-115929471.html)
-- Feb 27 - [Cartel flooded coastal Oregon town with drugs, left grisly warning for those who might talk](https://news.yahoo.com/cartel-flooded-coastal-oregon-town-100126286.html)
-- Feb 27 - [Mehdi Hasan Reveals Why 'Kook' Marjorie Taylor Greene Is So Very Dangerous](https://news.yahoo.com/mehdi-hasan-reveals-why-kook-094300921.html)
 <!-- feed end -->
