@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 27 - [Zelensky sacks commander of Ukraine’s joint forces](https://news.yahoo.com/zelensky-sacks-commander-ukraine-joint-020954902.html)
 - Feb 27 - [Inside the Unholy Sex Scandal Rocking Trump’s Ex-Adviser](https://news.yahoo.com/inside-unholy-sex-scandal-rocking-013425688.html)
 - Feb 26 - [Mississippi GOP governor now backs longer Medicaid for moms](https://news.yahoo.com/mississippi-gop-governor-now-backs-233706124.html)
 - Feb 26 - [Davis leads rally from 27 down as Lakers beat Mavs 111-108](https://news.yahoo.com/davis-leads-rally-27-down-233044540.html)
 - Feb 26 - [Cardi B: Court-ordered service 'the best thing' to happen](https://news.yahoo.com/cardi-b-court-ordered-best-230420391.html)
-- Feb 26 - [Republicans erupt after Energy Dept reportedly says COVID-19 likely came from Chinese lab: 'We need answers'](https://news.yahoo.com/republicans-erupt-energy-dept-reportedly-220303841.html)
 <!-- feed end -->
