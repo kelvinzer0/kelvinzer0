@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 28 - [St. Louis prosecutor faces mounting criticism over crash](https://news.yahoo.com/st-louis-prosecutor-faces-mounting-003713023.html)
-- Feb 27 - [Uncovered Mayan sculpture may show female ruler with captive](https://news.yahoo.com/uncovered-mayan-sculpture-may-show-232820236.html)
-- Feb 27 - [Ex-Proud Boys member says group did not plan violence on Jan. 6 — but the riot didn't surprise him](https://news.yahoo.com/ex-proud-boys-member-says-group-did-not-plan-violence-on-jan-6--but-the-riot-didnt-surprise-him-232457909.html)
-- Feb 27 - [California governor vows to change law blocking new housing](https://news.yahoo.com/california-governor-vows-change-law-232008868.html)
-- Feb 27 - [Kamala Harris on Black History Month and the future of America: 'We pass the baton'](https://news.yahoo.com/kamala-harris-black-history-month-230804361.html)
+- Feb 28 - [SAG Awards 2023: Here's What Everyone Wore On The Red Carpet](https://news.yahoo.com/heres-everyone-wore-2023-sag-082503926.html)
+- Feb 28 - ["My Friend Shared This Trick From Culinary School, And Now I Use It All The Time": People Are Sharing The Underrated Ingredient Hacks They Swear By In The Kitchen](https://news.yahoo.com/friend-shared-trick-culinary-school-222825388.html)
+- Feb 28 - [Before-and-after photos from space show storms' effect on California reservoirs](https://news.yahoo.com/photos-space-show-storms-effect-011528503.html)
+- Feb 28 - [Arizona Republicans disavow wide-ranging bribery allegation](https://news.yahoo.com/arizona-republicans-disavow-wide-ranging-005013622.html)
+- Feb 28 - [Los Angeles ringleader of $18M COVID fraud scheme extradited](https://news.yahoo.com/los-angeles-ringleader-18m-covid-004036084.html)
 <!-- feed end -->
