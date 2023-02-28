@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 28 - [Millennials And Gen Z'ers Are Getting Very Honest About Things They Wish Their Parents And Grandparents Understood In 2023](https://news.yahoo.com/face-very-different-challenges-now-034902926.html)
 - Feb 28 - [Ukraine's northeastern front could decide new battle lines](https://news.yahoo.com/ukraines-northeastern-front-could-decide-073242264.html)
-- Feb 28 - [The woke war against JK Rowling has utterly failed... and here’s the proof](https://news.yahoo.com/woke-war-against-jk-rowling-070000904.html)
+- Feb 28 - [Stephen Colbert Spots Trump's Most Unsettling New Mar-A-Lago Habit](https://news.yahoo.com/stephen-colbert-spots-trumps-most-071117913.html)
 - Feb 28 - [China purging 'Western erroneous views' from legal education](https://news.yahoo.com/china-purging-western-erroneous-views-064615239.html)
 - Feb 28 - [Jimmy Kimmel Fires Back At Trump In Absolutely Blistering New Monologue](https://news.yahoo.com/jimmy-kimmel-fires-back-trump-061042260.html)
-- Feb 28 - [Philippine leader urges military to focus on South China Sea](https://news.yahoo.com/philippine-leader-urges-military-focus-054859567.html)
 <!-- feed end -->
