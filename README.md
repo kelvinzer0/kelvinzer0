@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 28 - [Putin issues alert after drone strikes 60 miles from Moscow; Russian death toll surpasses all wars since WWII: Ukraine live updates](https://news.yahoo.com/putin-issues-alert-drone-strikes-155235732.html)
-- Feb 28 - [Blinken warns China over Russia support](https://news.yahoo.com/blinken-warns-china-over-russia-174158611.html)
+- Feb 28 - [Ohio bus driver's split-second reaction saves student from potentially being hit by a car](https://news.yahoo.com/ohio-bus-drivers-split-second-184058889.html)
+- Feb 28 - [White supremacist serving life, fined for prison misconduct](https://news.yahoo.com/white-supremacist-serving-life-fined-181531417.html)
+- Feb 28 - [Amy Coney Barrett joins liberal Supreme Court justices in scrutinizing a student-loan company's involvement in one of the lawsuits blocking Biden's debt relief](https://news.yahoo.com/amy-coney-barrett-joins-liberal-174907869.html)
 - Feb 28 - [Tennessee GOP congressman was 'mistaken' on college degree](https://news.yahoo.com/tennessee-gop-congressman-mistaken-college-172236888.html)
-- Feb 28 - [DeSantis' new memoir skips juicy details about his life that could emerge in a presidential bid. Here's what he left out.](https://news.yahoo.com/desantis-memoir-skips-juicy-details-164608197.html)
-- Feb 28 - [Baltimore ex-prosecutor's perjury trial delayed again](https://news.yahoo.com/baltimore-ex-prosecutors-perjury-trial-162913919.html)
 <!-- feed end -->
