@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Feb 28 - [Ukraine's northeastern front could decide new battle lines](https://news.yahoo.com/ukraines-northeastern-front-could-decide-073242264.html)
 - Feb 28 - [Stephen Colbert Spots Trump's Most Unsettling New Mar-A-Lago Habit](https://news.yahoo.com/stephen-colbert-spots-trumps-most-071117913.html)
 - Feb 28 - [China purging 'Western erroneous views' from legal education](https://news.yahoo.com/china-purging-western-erroneous-views-064615239.html)
-- Feb 28 - [Jimmy Kimmel Fires Back At Trump In Absolutely Blistering New Monologue](https://news.yahoo.com/jimmy-kimmel-fires-back-trump-061042260.html)
+- Feb 28 - [Explosions heard in Krasnodar Krai in Russia, oil refinery on fire](https://news.yahoo.com/explosions-heard-krasnodar-krai-russia-062403399.html)
 <!-- feed end -->
