@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 28 - [Elizabeth Holmes has 2nd child as she tries to avoid prison](https://news.yahoo.com/elizabeth-holmes-2nd-child-she-212948258.html)
 - Feb 28 - [Putin issues alert after drone strikes 60 miles from Moscow; Russian death toll surpasses all wars since WWII: Ukraine live updates](https://news.yahoo.com/putin-issues-alert-drone-strikes-155235732.html)
 - Feb 28 - [Now That Tucker Carlson Has Jan. 6 Footage, Majorie Taylor Greene Is Changing Her Tune](https://news.yahoo.com/now-tucker-carlson-jan-6-202611241.html)
 - Feb 28 - [Cycling teacher, 44, felt 'a disruption' in her body. 3 days later, she had a 'widow maker' heart attack](https://news.yahoo.com/cycling-teacher-44-felt-disruption-195615974.html)
 - Feb 28 - [Drone attacks on Russia underline its vulnerability](https://news.yahoo.com/drone-attacks-russia-underline-vulnerability-193242759.html)
-- Feb 28 - [A total Russian collapse is surprisingly close](https://news.yahoo.com/total-russian-collapse-surprisingly-close-190000011.html)
 <!-- feed end -->
