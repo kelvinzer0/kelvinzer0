@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 28 - [Russia has just one tank factory churning out 20 tanks a month, with demand outstripping production by a factor of ten, says report](https://news.yahoo.com/russia-just-one-tank-factory-122420611.html)
 - Feb 28 - [NFL Scouting Combine: These quarterbacks will put on a show in Indianapolis](https://news.yahoo.com/nfl-scouting-combine-quarterbacks-put-120336227.html)
+- Feb 28 - [The US Air Force is finally getting rid of its A-10s, and its focus may be straying from the Warthog's unique mission](https://news.yahoo.com/us-air-force-finally-getting-121700207.html)
 - Feb 28 - [German ‘babysitter’ convicted in major child sex abuse case](https://news.yahoo.com/german-babysitter-convicted-major-child-111811291.html)
-- Feb 28 - [Drake once wore prosthetics to look like an 80-year-old man so he wouldn't get recognized at a friend's court hearing, but it didn't go as planned](https://news.yahoo.com/drake-once-wore-prosthetics-look-102558881.html)
-- Feb 28 - [Airspace over St Petersburg closed and fighter jets take off as unidentified object spotted in the sky](https://news.yahoo.com/airspace-over-st-petersburg-closed-093424999.html)
-- Feb 28 - [I apologize to 'Dilbert' comic creator Scott Adams for forcing him to be racist](https://news.yahoo.com/apologize-dilbert-comic-creator-scott-093008292.html)
+- Feb 28 - [Narcissists all follow the same patterns — here are some of the most common phrases they use to manipulate you](https://news.yahoo.com/narcissists-same-patterns-most-common-110651192.html)
 <!-- feed end -->
