@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 28 - [Russia has just one tank factory churning out 20 tanks a month, with demand outstripping production by a factor of ten, says report](https://news.yahoo.com/russia-just-one-tank-factory-122420611.html)
-- Feb 28 - [NFL Scouting Combine: These quarterbacks will put on a show in Indianapolis](https://news.yahoo.com/nfl-scouting-combine-quarterbacks-put-120336227.html)
-- Feb 28 - [The US Air Force is finally getting rid of its A-10s, and its focus may be straying from the Warthog's unique mission](https://news.yahoo.com/us-air-force-finally-getting-121700207.html)
-- Feb 28 - [German ‘babysitter’ convicted in major child sex abuse case](https://news.yahoo.com/german-babysitter-convicted-major-child-111811291.html)
-- Feb 28 - [Narcissists all follow the same patterns — here are some of the most common phrases they use to manipulate you](https://news.yahoo.com/narcissists-same-patterns-most-common-110651192.html)
+- Feb 28 - [Suspect in Florida TV crew attack faces more murder charges](https://news.yahoo.com/suspect-florida-tv-crew-attack-133139954.html)
+- Feb 28 - [Former NFL star, CBS anchor Irv Cross had brain disease CTE](https://news.yahoo.com/former-nfl-star-cbs-anchor-130531847.html)
+- Feb 28 - [Legal analysis on Fox News defamation case](https://news.yahoo.com/legal-analysis-fox-news-defamation-130524693.html)
+- Feb 28 - [Defense rests case after 14 witnesses in Murdaugh double murder trial](https://news.yahoo.com/defense-rests-case-14-witnesses-130416851.html)
+- Feb 28 - [Flurry of drone strikes hits Russia as TV, radio are hacked](https://news.yahoo.com/flurry-drone-strikes-hits-russia-130302888.html)
 <!-- feed end -->
