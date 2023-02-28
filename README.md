@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 28 - [Elizabeth Holmes has 2nd child as she tries to avoid prison](https://news.yahoo.com/elizabeth-holmes-2nd-child-she-212948258.html)
-- Feb 28 - [Putin issues alert after drone strikes 60 miles from Moscow; Russian death toll surpasses all wars since WWII: Ukraine live updates](https://news.yahoo.com/putin-issues-alert-drone-strikes-155235732.html)
-- Feb 28 - [Now That Tucker Carlson Has Jan. 6 Footage, Majorie Taylor Greene Is Changing Her Tune](https://news.yahoo.com/now-tucker-carlson-jan-6-202611241.html)
-- Feb 28 - [Cycling teacher, 44, felt 'a disruption' in her body. 3 days later, she had a 'widow maker' heart attack](https://news.yahoo.com/cycling-teacher-44-felt-disruption-195615974.html)
-- Feb 28 - [Drone attacks on Russia underline its vulnerability](https://news.yahoo.com/drone-attacks-russia-underline-vulnerability-193242759.html)
+- Feb 28 - [New College conservative board votes to abolish DEI office](https://news.yahoo.com/college-conservative-board-votes-abolish-223356256.html)
+- Feb 28 - [Cuba Gooding Jr.'s lawyers say witnesses heard alleged rape victim bragging about having sex with him that night](https://news.yahoo.com/cuba-gooding-jr-lawyers-witnesses-202718517.html)
+- Feb 28 - [Singer Ben Kweller announces his son has died at 16: 'Kindest, gentle soul'](https://news.yahoo.com/singer-ben-kweller-announces-son-215442707.html)
+- Feb 28 - [Ron DeSantis Cleans Up His Disney Debacle](https://news.yahoo.com/ron-desantis-cleans-disney-debacle-211532610.html)
+- Feb 28 - [After Bruce Willis' dementia diagnosis, wife Emma shares update on caring for him](https://news.yahoo.com/bruce-willis-dementia-diagnosis-wife-211208431.html)
 <!-- feed end -->
