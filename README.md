@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 28 - [Millennials And Gen Z'ers Are Getting Very Honest About Things They Wish Their Parents And Grandparents Understood In 2023](https://news.yahoo.com/face-very-different-challenges-now-034902926.html)
-- Feb 28 - [Ukraine's northeastern front could decide new battle lines](https://news.yahoo.com/ukraines-northeastern-front-could-decide-073242264.html)
-- Feb 28 - [Stephen Colbert Spots Trump's Most Unsettling New Mar-A-Lago Habit](https://news.yahoo.com/stephen-colbert-spots-trumps-most-071117913.html)
-- Feb 28 - [China purging 'Western erroneous views' from legal education](https://news.yahoo.com/china-purging-western-erroneous-views-064615239.html)
-- Feb 28 - [Explosions heard in Krasnodar Krai in Russia, oil refinery on fire](https://news.yahoo.com/explosions-heard-krasnodar-krai-russia-062403399.html)
+- Feb 28 - [NFL Scouting Combine: These quarterbacks will put on a show in Indianapolis](https://news.yahoo.com/nfl-scouting-combine-quarterbacks-put-120336227.html)
+- Feb 28 - [German ‘babysitter’ convicted in major child sex abuse case](https://news.yahoo.com/german-babysitter-convicted-major-child-111811291.html)
+- Feb 28 - [Drake once wore prosthetics to look like an 80-year-old man so he wouldn't get recognized at a friend's court hearing, but it didn't go as planned](https://news.yahoo.com/drake-once-wore-prosthetics-look-102558881.html)
+- Feb 28 - [Airspace over St Petersburg closed and fighter jets take off as unidentified object spotted in the sky](https://news.yahoo.com/airspace-over-st-petersburg-closed-093424999.html)
+- Feb 28 - [I apologize to 'Dilbert' comic creator Scott Adams for forcing him to be racist](https://news.yahoo.com/apologize-dilbert-comic-creator-scott-093008292.html)
 <!-- feed end -->
