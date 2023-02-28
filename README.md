@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 28 - [Philippine leader urges military to focus on South China Sea](https://news.yahoo.com/philippine-leader-urges-military-focus-054859567.html)
-- Feb 28 - [Jimmy Fallon impersonates Neil Young Singing Angela Bassett DId the Thing](https://news.yahoo.com/jimmy-fallon-impersonates-neil-young-053926815.html)
 - Feb 28 - [This Marjorie Taylor Greene Comment Was So Wild It Left Seth Meyers Speechless](https://news.yahoo.com/marjorie-taylor-greene-wild-left-052102803.html)
-- Feb 28 - [Defense Department tells military personnel to stop jumping from planes with U.S. flags in tow](https://news.yahoo.com/defense-department-tells-military-personnel-025313676.html)
-- Feb 28 - [Russia’s new Donbas offensive is failing, NYT reports](https://news.yahoo.com/russia-donbas-offensive-failing-nyt-021900223.html)
+- Feb 28 - [Before-and-after photos from space show storms' effect on California reservoirs](https://news.yahoo.com/photos-space-show-storms-effect-011528503.html)
+- Feb 28 - [Arizona Republicans disavow wide-ranging bribery allegation](https://news.yahoo.com/arizona-republicans-disavow-wide-ranging-005013622.html)
+- Feb 28 - [Los Angeles ringleader of $18M COVID fraud scheme extradited](https://news.yahoo.com/los-angeles-ringleader-18m-covid-004036084.html)
 <!-- feed end -->
