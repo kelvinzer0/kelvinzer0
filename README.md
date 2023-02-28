@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 28 - [Putin issues alert after drone strikes 60 miles from Moscow; Russian death toll surpasses all wars since WWII: Ukraine live updates](https://news.yahoo.com/putin-issues-alert-drone-strikes-155235732.html)
+- Feb 28 - [San Francisco Reparations Committee Chairman Admits No ‘Math Formula’ behind $5 Million Payout Plan](https://news.yahoo.com/san-francisco-reparations-committee-chairman-154059382.html)
+- Feb 28 - [Moldova: Anti-government protest stirs fears of more unrest](https://news.yahoo.com/moldova-anti-government-protest-stirs-152906783.html)
 - Feb 28 - [Video shows teen attack school employee for taking teen's Nintendo Switch in class](https://news.yahoo.com/video-shows-teen-attack-school-161754821.html)
-- Feb 28 - [A Nebraska high school cheerleader competed on her own after the rest of her squad quit. She said the support she got from other teams was 'overwhelming.'](https://news.yahoo.com/nebraska-high-school-cheerleader-competed-141237876.html)
-- Feb 28 - [Michael B. Jordan Throws Insult Back In Face Of Old Schoolmate Interviewing Him](https://news.yahoo.com/michael-b-jordan-throws-insult-135533112.html)
-- Feb 28 - [Suspect in Florida TV crew attack faces more murder charges](https://news.yahoo.com/suspect-florida-tv-crew-attack-133139954.html)
-- Feb 28 - [An 89-year-old man has been flooded with support after he filmed himself getting ready for his first date in 30 years](https://news.yahoo.com/89-old-man-flooded-support-132846872.html)
+- Feb 28 - [How officials cracked case of eyedrops that blinded people](https://news.yahoo.com/officials-cracked-case-eyedrops-blinded-150813826.html)
 <!-- feed end -->
