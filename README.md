@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 28 - [Video shows teen attack school employee for taking teen's Nintendo Switch in class](https://news.yahoo.com/video-shows-teen-attack-school-161754821.html)
+- Feb 28 - [A Nebraska high school cheerleader competed on her own after the rest of her squad quit. She said the support she got from other teams was 'overwhelming.'](https://news.yahoo.com/nebraska-high-school-cheerleader-competed-141237876.html)
+- Feb 28 - [Michael B. Jordan Throws Insult Back In Face Of Old Schoolmate Interviewing Him](https://news.yahoo.com/michael-b-jordan-throws-insult-135533112.html)
 - Feb 28 - [Suspect in Florida TV crew attack faces more murder charges](https://news.yahoo.com/suspect-florida-tv-crew-attack-133139954.html)
-- Feb 28 - [Former NFL star, CBS anchor Irv Cross had brain disease CTE](https://news.yahoo.com/former-nfl-star-cbs-anchor-130531847.html)
-- Feb 28 - [Legal analysis on Fox News defamation case](https://news.yahoo.com/legal-analysis-fox-news-defamation-130524693.html)
-- Feb 28 - [Defense rests case after 14 witnesses in Murdaugh double murder trial](https://news.yahoo.com/defense-rests-case-14-witnesses-130416851.html)
-- Feb 28 - [Flurry of drone strikes hits Russia as TV, radio are hacked](https://news.yahoo.com/flurry-drone-strikes-hits-russia-130302888.html)
+- Feb 28 - [An 89-year-old man has been flooded with support after he filmed himself getting ready for his first date in 30 years](https://news.yahoo.com/89-old-man-flooded-support-132846872.html)
 <!-- feed end -->
