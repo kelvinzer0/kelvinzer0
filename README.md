@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 28 - [Once Again, Everyone's Sobbing Over "The Last Of Us," So Here Are 33 Of The Best Tweets About Episode 7](https://news.yahoo.com/once-again-everyones-sobbing-over-030240931.html)
-- Feb 28 - ["[He] Was The Most Unprofessional Dude In The World" And 17 Other Comments Celebs Made Bashing Their Costars](https://news.yahoo.com/most-unprofessional-dude-world-17-024105451.html)
+- Feb 28 - [Russia’s new Donbas offensive is failing, NYT reports](https://news.yahoo.com/russia-donbas-offensive-failing-nyt-021900223.html)
+- Feb 28 - [Military mom in a bind with baby is accused of 'abusing' her power over younger sister](https://news.yahoo.com/military-mom-bind-baby-accused-014616273.html)
 - Feb 28 - [Before-and-after photos from space show storms' effect on California reservoirs](https://news.yahoo.com/photos-space-show-storms-effect-011528503.html)
 - Feb 28 - [Arizona Republicans disavow wide-ranging bribery allegation](https://news.yahoo.com/arizona-republicans-disavow-wide-ranging-005013622.html)
 - Feb 28 - [Los Angeles ringleader of $18M COVID fraud scheme extradited](https://news.yahoo.com/los-angeles-ringleader-18m-covid-004036084.html)
