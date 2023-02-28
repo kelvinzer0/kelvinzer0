@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Feb 28 - [Ukraine's northeastern front could decide new battle lines](https://news.yahoo.com/ukraines-northeastern-front-could-decide-073242264.html)
+- Feb 28 - [The woke war against JK Rowling has utterly failed... and here’s the proof](https://news.yahoo.com/woke-war-against-jk-rowling-070000904.html)
+- Feb 28 - [China purging 'Western erroneous views' from legal education](https://news.yahoo.com/china-purging-western-erroneous-views-064615239.html)
+- Feb 28 - [Jimmy Kimmel Fires Back At Trump In Absolutely Blistering New Monologue](https://news.yahoo.com/jimmy-kimmel-fires-back-trump-061042260.html)
 - Feb 28 - [Philippine leader urges military to focus on South China Sea](https://news.yahoo.com/philippine-leader-urges-military-focus-054859567.html)
-- Feb 28 - [This Marjorie Taylor Greene Comment Was So Wild It Left Seth Meyers Speechless](https://news.yahoo.com/marjorie-taylor-greene-wild-left-052102803.html)
-- Feb 28 - [Before-and-after photos from space show storms' effect on California reservoirs](https://news.yahoo.com/photos-space-show-storms-effect-011528503.html)
-- Feb 28 - [Arizona Republicans disavow wide-ranging bribery allegation](https://news.yahoo.com/arizona-republicans-disavow-wide-ranging-005013622.html)
-- Feb 28 - [Los Angeles ringleader of $18M COVID fraud scheme extradited](https://news.yahoo.com/los-angeles-ringleader-18m-covid-004036084.html)
 <!-- feed end -->
