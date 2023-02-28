@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 27 - [Fox's Kurtz says he's disallowed from covering Dominion case](https://news.yahoo.com/foxs-kurtz-says-hes-disallowed-224734597.html)
-- Feb 27 - [Purple Heart given to deputy in fatal shooting at middle school draws outrage](https://news.yahoo.com/purple-heart-given-deputy-fatal-223259286.html)
-- Feb 27 - [Mystery of COVID-19's origins deepens with new report: What we know](https://news.yahoo.com/mystery-of-covid-19s-origins-deepens-with-new-report-what-we-know-223155405.html)
-- Feb 27 - [Man falsely accused of being sexual predator while visiting daughter in Cobb County, video shows](https://news.yahoo.com/man-falsely-accused-being-sexual-215607422.html)
-- Feb 27 - [Customer goes on racist rant at Amy's Pizzeria, verbally attacking employees in now viral video](https://news.yahoo.com/customer-goes-racist-rant-amys-192500028.html)
+- Feb 28 - [St. Louis prosecutor faces mounting criticism over crash](https://news.yahoo.com/st-louis-prosecutor-faces-mounting-003713023.html)
+- Feb 27 - [Uncovered Mayan sculpture may show female ruler with captive](https://news.yahoo.com/uncovered-mayan-sculpture-may-show-232820236.html)
+- Feb 27 - [Ex-Proud Boys member says group did not plan violence on Jan. 6 — but the riot didn't surprise him](https://news.yahoo.com/ex-proud-boys-member-says-group-did-not-plan-violence-on-jan-6--but-the-riot-didnt-surprise-him-232457909.html)
+- Feb 27 - [California governor vows to change law blocking new housing](https://news.yahoo.com/california-governor-vows-change-law-232008868.html)
+- Feb 27 - [Kamala Harris on Black History Month and the future of America: 'We pass the baton'](https://news.yahoo.com/kamala-harris-black-history-month-230804361.html)
 <!-- feed end -->
