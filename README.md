@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 28 - [SAG Awards 2023: Here's What Everyone Wore On The Red Carpet](https://news.yahoo.com/heres-everyone-wore-2023-sag-082503926.html)
-- Feb 28 - ["My Friend Shared This Trick From Culinary School, And Now I Use It All The Time": People Are Sharing The Underrated Ingredient Hacks They Swear By In The Kitchen](https://news.yahoo.com/friend-shared-trick-culinary-school-222825388.html)
+- Feb 28 - [Once Again, Everyone's Sobbing Over "The Last Of Us," So Here Are 33 Of The Best Tweets About Episode 7](https://news.yahoo.com/once-again-everyones-sobbing-over-030240931.html)
+- Feb 28 - ["[He] Was The Most Unprofessional Dude In The World" And 17 Other Comments Celebs Made Bashing Their Costars](https://news.yahoo.com/most-unprofessional-dude-world-17-024105451.html)
 - Feb 28 - [Before-and-after photos from space show storms' effect on California reservoirs](https://news.yahoo.com/photos-space-show-storms-effect-011528503.html)
 - Feb 28 - [Arizona Republicans disavow wide-ranging bribery allegation](https://news.yahoo.com/arizona-republicans-disavow-wide-ranging-005013622.html)
 - Feb 28 - [Los Angeles ringleader of $18M COVID fraud scheme extradited](https://news.yahoo.com/los-angeles-ringleader-18m-covid-004036084.html)
