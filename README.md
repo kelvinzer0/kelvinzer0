@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 28 - [Putin issues alert after drone strikes 60 miles from Moscow; Russian death toll surpasses all wars since WWII: Ukraine live updates](https://news.yahoo.com/putin-issues-alert-drone-strikes-155235732.html)
-- Feb 28 - [San Francisco Reparations Committee Chairman Admits No ‘Math Formula’ behind $5 Million Payout Plan](https://news.yahoo.com/san-francisco-reparations-committee-chairman-154059382.html)
-- Feb 28 - [Moldova: Anti-government protest stirs fears of more unrest](https://news.yahoo.com/moldova-anti-government-protest-stirs-152906783.html)
-- Feb 28 - [Video shows teen attack school employee for taking teen's Nintendo Switch in class](https://news.yahoo.com/video-shows-teen-attack-school-161754821.html)
-- Feb 28 - [How officials cracked case of eyedrops that blinded people](https://news.yahoo.com/officials-cracked-case-eyedrops-blinded-150813826.html)
+- Feb 28 - [Ukraine forces claim to have 'repelled' Russia's attacks on Bakhmut region](https://news.yahoo.com/ukraine-forces-claim-repelled-russias-163540021.html)
+- Feb 28 - [Baltimore ex-prosecutor's perjury trial delayed again](https://news.yahoo.com/baltimore-ex-prosecutors-perjury-trial-162913919.html)
+- Feb 28 - [‘Bullying’ of referees leads to entire student section being thrown out of Iowa game](https://news.yahoo.com/bullying-referees-leads-entire-student-161936835.html)
+- Feb 28 - [Todd Chrisley splashed out on a classic convertible that can cost over $250,000 on 'Chrisley Knows Best,' before his bank fraud and tax evasion sentencing](https://news.yahoo.com/todd-chrisley-splashed-classic-convertible-161859820.html)
 <!-- feed end -->
