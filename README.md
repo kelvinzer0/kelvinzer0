@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Feb 28 - [New College conservative board votes to abolish DEI office](https://news.yahoo.com/college-conservative-board-votes-abolish-223356256.html)
-- Feb 28 - [Cuba Gooding Jr.'s lawyers say witnesses heard alleged rape victim bragging about having sex with him that night](https://news.yahoo.com/cuba-gooding-jr-lawyers-witnesses-202718517.html)
-- Feb 28 - [Singer Ben Kweller announces his son has died at 16: 'Kindest, gentle soul'](https://news.yahoo.com/singer-ben-kweller-announces-son-215442707.html)
-- Feb 28 - [Ron DeSantis Cleans Up His Disney Debacle](https://news.yahoo.com/ron-desantis-cleans-disney-debacle-211532610.html)
-- Feb 28 - [After Bruce Willis' dementia diagnosis, wife Emma shares update on caring for him](https://news.yahoo.com/bruce-willis-dementia-diagnosis-wife-211208431.html)
+- Mar 01 - [Putin issues alert after drone strikes 60 miles from Moscow; Russian death toll surpasses all wars since WWII: Ukraine live updates](https://news.yahoo.com/putin-issues-alert-drone-strikes-155235732.html)
+- Feb 28 - [What the FBI found at the family home of the University of Idaho murder suspect](https://news.yahoo.com/fbi-found-family-home-university-235318501.html)
+- Feb 28 - [Body parts found in soup pots believed to belong to Hong Kong model Abby Choi](https://news.yahoo.com/body-parts-found-soup-pots-235236802.html)
+- Feb 28 - [Popular sweetener linked to heart attacks, study finds](https://news.yahoo.com/popular-sweetener-linked-heart-attacks-234931769.html)
+- Feb 28 - [McCarthy, GOP pump brakes on release of Jan. 6 footage to Tucker Carlson](https://news.yahoo.com/mccarthy-gop-pump-brakes-release-234015651.html)
 <!-- feed end -->
