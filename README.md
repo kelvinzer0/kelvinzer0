@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 01 - [Poll: 68% of voters say Biden is 'too old for another term' — and more Democrats agree than disagree](https://news.yahoo.com/poll-68-of-voters-say-biden-is-too-old-for-another-term--and-more-democrats-agree-than-disagree-162751496.html)
+- Mar 01 - [Russians place flowers at burnt out tanks in Baltic cities](https://news.yahoo.com/russians-place-flowers-burnt-tanks-161920926.html)
+- Mar 01 - [Ukrainian soldiers say they caught a Russian medic forced to operate a tank, highlighting the dysfunction in Putin's army](https://news.yahoo.com/ukrainian-soldiers-caught-russian-medic-153550138.html)
 - Mar 01 - [‘I’m a Black Woman in America’: Chicago Mayor Lori Lightfoot Blames Election Loss on Racism, Sexism](https://news.yahoo.com/m-black-woman-america-chicago-151848786.html)
 - Mar 01 - [The US military set off its largest nuclear explosion in testing 69 years ago, but scientists had no idea the blast would be that big](https://news.yahoo.com/us-military-set-off-largest-143138549.html)
-- Mar 01 - [GOP Rep Schooled With Receipts](https://news.yahoo.com/gop-rep-schooled-receipts-141128146.html)
-- Mar 01 - [A Ukrainian drone operator being followed by a film crew feared his life could end at 'any moment.' He was killed the day before the documentary aired.](https://news.yahoo.com/ukrainian-drone-operator-being-followed-134755626.html)
-- Mar 01 - [Bedraggled Troops Declare ‘Glory to Russia’ in Saddest Video Ever](https://news.yahoo.com/bedraggled-troops-declare-glory-russia-132037320.html)
 <!-- feed end -->
