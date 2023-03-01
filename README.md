@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 01 - [Good News: Watch these two cultures come together to celebrate a wedding](https://news.yahoo.com/good-news-watch-two-cultures-203357774.html)
+- Mar 01 - [There are whispers on Capitol Hill of a rare bipartisan effort to overhaul Social Security as the program is set to go broke in less than 10 years](https://news.yahoo.com/whispers-capitol-hill-rare-bipartisan-204548981.html)
+- Mar 01 - [Lori Lightfoot's Resounding Loss in Chicago Holds Lessons for Democrats Everywhere](https://news.yahoo.com/lori-lightfoots-resounding-loss-chicago-203930993.html)
+- Mar 01 - [Anna Netrebko concert canceled by Taiwan national orchestra](https://news.yahoo.com/anna-netrebko-concert-canceled-taiwan-202249101.html)
+- Mar 01 - [Dozens of sharks swarm fishing boat in feeding frenzy off Louisiana coast, video shows](https://news.yahoo.com/dozens-sharks-swarm-fishing-boat-194354042.html)
 - Mar 01 - [What we know: Teacher's aide disputes account of Matanzas High School attack](https://news.yahoo.com/know-teachers-aide-disputes-account-170534903.html)
-- Mar 01 - [Ted Cruz shouts over Merrick Garland about the DOJ's response to protests outside Supreme Court justices' homes](https://news.yahoo.com/ted-cruz-shouts-over-merrick-191640600.html)
-- Mar 01 - [They were pulled over for tinted windows in Florida. Then came the ‘body cavity’ search](https://news.yahoo.com/pulled-over-tinted-windows-florida-183723332.html)
-- Mar 01 - [‘Massive’ Arctic creature spotted for first time in 25 years along coast of Scotland](https://news.yahoo.com/massive-arctic-creature-spotted-first-183010544.html)
 <!-- feed end -->
