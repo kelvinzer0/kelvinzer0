@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 01 - [Chicago mayor's race goes to runoff, Lightfoot loses](https://news.yahoo.com/chicago-mayors-race-goes-runoff-124028017.html)
+- Mar 01 - [Janet Jackson's nephew criticizes her 'overly sexualized' live shows, saying they degrade and objectify women](https://news.yahoo.com/janet-jacksons-nephew-criticizes-her-121122390.html)
 - Mar 01 - [Long-lost ship found in Lake Huron, confirming tragic story](https://news.yahoo.com/long-lost-ship-found-lake-110422699.html)
 - Mar 01 - [King asks Duke and Duchess of Sussex to move out of Frogmore so Prince Andrew can move in](https://news.yahoo.com/king-asks-duke-duchess-sussex-090601972.html)
 - Mar 01 - [Biden Mocks Marjorie Taylor Greene With 1 Simple Hand Gesture](https://news.yahoo.com/biden-mocks-marjorie-taylor-greene-085342900.html)
-- Mar 01 - [Slovakia basks under NATO umbrella, sends Ukraine old arms](https://news.yahoo.com/slovakia-basks-under-nato-umbrella-085256444.html)
-- Mar 01 - [Putin issues alert after drone strikes 60 miles from Moscow; Russian death toll surpasses all wars since WWII: Ukraine updates](https://news.yahoo.com/putin-issues-alert-drone-strikes-155235732.html)
 <!-- feed end -->
