@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 01 - [Chicago Mayor Lori Lightfoot fails to win reelection](https://news.yahoo.com/chicago-mayor-lori-lightfoot-fails-132920961.html)
+- Mar 01 - [GOP Rep Schooled With Receipts](https://news.yahoo.com/gop-rep-schooled-receipts-141128146.html)
+- Mar 01 - [A Ukrainian drone operator being followed by a film crew feared his life could end at 'any moment.' He was killed the day before the documentary aired.](https://news.yahoo.com/ukrainian-drone-operator-being-followed-134755626.html)
 - Mar 01 - [Bedraggled Troops Declare ‘Glory to Russia’ in Saddest Video Ever](https://news.yahoo.com/bedraggled-troops-declare-glory-russia-132037320.html)
 - Mar 01 - [A Ukrainian soldier took out 5 Russian tanks in a single day using US-supplied Javelin missiles, Ukraine says](https://news.yahoo.com/ukrainian-soldier-took-5-russian-131053961.html)
-- Mar 01 - [Long-lost ship found in Lake Huron, confirming tragic story](https://news.yahoo.com/long-lost-ship-found-lake-110422699.html)
-- Mar 01 - [King asks Duke and Duchess of Sussex to move out of Frogmore so Prince Andrew can move in](https://news.yahoo.com/king-asks-duke-duchess-sussex-090601972.html)
+- Mar 01 - [Jamie Lee Curtis says Tom Cruise 'isn't the only one who saved' cinema as her movies have 'made $2.5 billion' at the box office](https://news.yahoo.com/jamie-lee-curtis-says-tom-125718018.html)
 <!-- feed end -->
