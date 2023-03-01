@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 01 - [Kobe Bryant family settles photo lawsuit for $28.5 million](https://news.yahoo.com/kobe-bryant-family-settles-photo-060432848.html)
+- Mar 01 - [RFK assassin Sirhan Sirhan returns to 16th parole hearing](https://news.yahoo.com/rfk-assassin-sirhan-sirhan-returns-053234497.html)
 - Mar 01 - ['Daily Show' Guest Hasan Minhaj Has Filthiest Explanation For Tucker Carlson](https://news.yahoo.com/daily-show-guest-hasan-minhaj-042154228.html)
 - Mar 01 - [Rep. Lauren Boebert Gets Absolutely Schooled By Jamie Raskin Using Trump's Own Words](https://news.yahoo.com/rep-lauren-boebert-gets-absolutely-013701216.html)
 - Mar 01 - [Putin issues alert after drone strikes 60 miles from Moscow; Russian death toll surpasses all wars since WWII: Ukraine live updates](https://news.yahoo.com/putin-issues-alert-drone-strikes-155235732.html)
-- Feb 28 - [What the FBI found at the family home of the University of Idaho murder suspect](https://news.yahoo.com/fbi-found-family-home-university-235318501.html)
-- Feb 28 - [Popular sweetener linked to heart attacks, study finds](https://news.yahoo.com/popular-sweetener-linked-heart-attacks-234931769.html)
 <!-- feed end -->
