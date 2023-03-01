@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 01 - [There are whispers on Capitol Hill of a rare bipartisan effort to overhaul Social Security as the program is set to go broke in less than 10 years](https://news.yahoo.com/whispers-capitol-hill-rare-bipartisan-204548981.html)
-- Mar 01 - [Lori Lightfoot's Resounding Loss in Chicago Holds Lessons for Democrats Everywhere](https://news.yahoo.com/lori-lightfoots-resounding-loss-chicago-203930993.html)
-- Mar 01 - [Anna Netrebko concert canceled by Taiwan national orchestra](https://news.yahoo.com/anna-netrebko-concert-canceled-taiwan-202249101.html)
-- Mar 01 - [Dozens of sharks swarm fishing boat in feeding frenzy off Louisiana coast, video shows](https://news.yahoo.com/dozens-sharks-swarm-fishing-boat-194354042.html)
-- Mar 01 - [What we know: Teacher's aide disputes account of Matanzas High School attack](https://news.yahoo.com/know-teachers-aide-disputes-account-170534903.html)
+- Mar 01 - [Chicago police chief, U.S. attorney resign after Mayor Lori Lightfoot loses reelection](https://news.yahoo.com/chicago-police-chief-david-brown-214051273.html)
+- Mar 01 - [Justin Bieber cancels remaining dates for Justice World Tour amid health concerns](https://news.yahoo.com/justin-bieber-cancels-remaining-dates-222405353.html)
+- Mar 01 - [McCarthy, GOP introduce measure to protect 'parents' rights'](https://news.yahoo.com/mccarthy-gop-introduce-measure-protect-221906913.html)
+- Mar 01 - [Ukraine won largest tank battle of the war in Vuhledar, NYT reports](https://news.yahoo.com/ukraine-won-largest-tank-battle-221100247.html)
+- Mar 01 - [A newlywed said they lost thousands of dollars on a wedding after more than half of their RSVP'd guests didn't show up](https://news.yahoo.com/newlywed-said-more-half-rsvpd-211052356.html)
 <!-- feed end -->
