@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 01 - [US Attorney General Merrick Garland testifies before Senate Judiciary Committee](https://news.yahoo.com/us-attorney-general-merrick-garland-174553643.html)
+- Mar 01 - [‘Massive’ Arctic creature spotted for first time in 25 years along coast of Scotland](https://news.yahoo.com/massive-arctic-creature-spotted-first-183010544.html)
+- Mar 01 - [Bald eagle’s egg breaks in nest, Minnesota photo shows. ‘We have never seen this’](https://news.yahoo.com/bald-eagle-egg-breaks-nest-181531516.html)
 - Mar 01 - [What we know: Teacher's aide disputes account of Matanzas High School attack](https://news.yahoo.com/know-teachers-aide-disputes-account-170534903.html)
 - Mar 01 - [Hikers stumble upon ‘rare’ 2,500-year-old item — and thought it was ‘elaborate prank’](https://news.yahoo.com/hikers-stumble-upon-rare-2-170342289.html)
 - Mar 01 - [Wisconsin court candidate won't hear Democrats' lawsuits](https://news.yahoo.com/wisconsin-court-candidate-wont-hear-165950542.html)
-- Mar 01 - [Jennifer Aniston opens up to Sandra Bullock about her 'unsafe' childhood](https://news.yahoo.com/jennifer-aniston-51-opens-sandra-195831580.html)
 <!-- feed end -->
