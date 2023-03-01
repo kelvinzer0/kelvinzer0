@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Mar 01 - [Kobe Bryant family settles photo lawsuit for $28.5 million](https://news.yahoo.com/kobe-bryant-family-settles-photo-060432848.html)
 - Mar 01 - [RFK assassin Sirhan Sirhan returns to 16th parole hearing](https://news.yahoo.com/rfk-assassin-sirhan-sirhan-returns-053234497.html)
 - Mar 01 - ['Daily Show' Guest Hasan Minhaj Has Filthiest Explanation For Tucker Carlson](https://news.yahoo.com/daily-show-guest-hasan-minhaj-042154228.html)
-- Mar 01 - [Rep. Lauren Boebert Gets Absolutely Schooled By Jamie Raskin Using Trump's Own Words](https://news.yahoo.com/rep-lauren-boebert-gets-absolutely-013701216.html)
+- Mar 01 - [St. Louis suspect seen calmly loading gun, shooting homeless man execution style in broad daylight: police](https://news.yahoo.com/st-louis-suspect-seen-calmly-034758265.html)
 <!-- feed end -->
