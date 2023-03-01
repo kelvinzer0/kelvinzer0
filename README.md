@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 01 - [Chicago Mayor Lori Lightfoot Falls Short In Bid For Second Term](https://news.yahoo.com/chicago-mayor-lori-lightfoot-falls-025139624.html)
 - Mar 01 - [Rep. Lauren Boebert Gets Absolutely Schooled By Jamie Raskin Using Trump's Own Words](https://news.yahoo.com/rep-lauren-boebert-gets-absolutely-013701216.html)
 - Mar 01 - [Putin issues alert after drone strikes 60 miles from Moscow; Russian death toll surpasses all wars since WWII: Ukraine live updates](https://news.yahoo.com/putin-issues-alert-drone-strikes-155235732.html)
 - Feb 28 - [What the FBI found at the family home of the University of Idaho murder suspect](https://news.yahoo.com/fbi-found-family-home-university-235318501.html)
 - Feb 28 - [Popular sweetener linked to heart attacks, study finds](https://news.yahoo.com/popular-sweetener-linked-heart-attacks-234931769.html)
-- Feb 28 - [Pregnant and married at 13, former ‘child bride’ fights the practice still legal in 43 states](https://news.yahoo.com/pregnant-married-13-former-child-231546215.html)
 <!-- feed end -->
