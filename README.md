@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 02 - [What does 15 feet of snow look like? Yosemite National Park shows us rare winter scene](https://news.yahoo.com/does-15-feet-snow-look-023317745.html)
+- Mar 02 - [Maui hate crime case spotlights Hawaii's racial complexity](https://news.yahoo.com/maui-hate-crime-case-spotlights-060746320.html)
+- Mar 02 - [Lauren Boebert Flunks U.S. Geography As Map Meme Backfires Badly](https://news.yahoo.com/lauren-boebert-flunks-u-geography-050321461.html)
+- Mar 02 - [48 hours after he was crowned the world's richest person, Elon Musk loses top spot — again](https://news.yahoo.com/48-hours-crowned-worlds-richest-034447597.html)
 - Mar 02 - [‘Not Going to Read That’: White House Press Secretary Brushes Off DeSantis Op-Ed](https://news.yahoo.com/not-going-read-white-house-021430318.html)
 - Mar 02 - [A woman threw a house party with 65 men she matched with on Tinder and Hinge and connected with the man she's been dating for a year](https://news.yahoo.com/woman-threw-house-party-65-010000214.html)
-- Mar 02 - [Tesla says it will cut costs of next generation cars in half](https://news.yahoo.com/tesla-says-production-innovation-cut-000115642.html)
-- Mar 01 - [Sacrificing a ‘slower’ friend isn’t the way to escape bears, NPS says. Here’s what is](https://news.yahoo.com/sacrificing-slower-friend-isn-t-224954967.html)
 <!-- feed end -->
