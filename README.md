@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 02 - [Egypt reveals 9-meter long chamber inside Great Pyramid](https://news.yahoo.com/egypt-reveals-9-meter-long-120505953.html)
+- Mar 02 - [Gene Simmons Reveals The Kiss Classic He Absolutely Hates Singing](https://news.yahoo.com/gene-simmons-reveals-kiss-classic-110942946.html)
+- Mar 02 - [The Google engineer who was fired after claiming the company's chatbot is sentient says AI is the 'most powerful' tech invented 'since the atomic bomb'](https://news.yahoo.com/google-engineer-fired-claiming-companys-095135010.html)
 - Mar 02 - [New Nickname Idea For Ron DeSantis Is Too Dumb Even For Donald Trump](https://news.yahoo.com/nickname-idea-ron-desantis-too-082031289.html)
 - Mar 02 - [Meghan Markle, Prince Harry suffered Hollywood 'miscalculation' with explosive tell-alls: experts](https://news.yahoo.com/meghan-markle-prince-harry-suffered-070006094.html)
-- Mar 02 - [Maui hate crime case spotlights Hawaii's racial complexity](https://news.yahoo.com/maui-hate-crime-case-spotlights-060746320.html)
-- Mar 02 - [Strike the heart of Russia and watch its resolve crumble](https://news.yahoo.com/strike-heart-russia-watch-resolve-060000306.html)
-- Mar 02 - [Lauren Boebert Flunks U.S. Geography As Map Meme Backfires Badly](https://news.yahoo.com/lauren-boebert-flunks-u-geography-050321461.html)
 <!-- feed end -->
