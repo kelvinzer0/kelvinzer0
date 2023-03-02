@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 01 - [Chicago police chief, U.S. attorney resign after Mayor Lori Lightfoot loses reelection](https://news.yahoo.com/chicago-police-chief-david-brown-214051273.html)
-- Mar 01 - [Justin Bieber cancels remaining dates for Justice World Tour amid health concerns](https://news.yahoo.com/justin-bieber-cancels-remaining-dates-222405353.html)
-- Mar 01 - [McCarthy, GOP introduce measure to protect 'parents' rights'](https://news.yahoo.com/mccarthy-gop-introduce-measure-protect-221906913.html)
+- Mar 02 - [Chicago police chief, U.S. attorney resign after Mayor Lori Lightfoot loses reelection](https://news.yahoo.com/chicago-police-chief-david-brown-214051273.html)
+- Mar 01 - [Chicago police superintendent to step down in 2 weeks](https://news.yahoo.com/chicago-police-superintendent-step-down-230652949.html)
+- Mar 01 - [Sacrificing a ‘slower’ friend isn’t the way to escape bears, NPS says. Here’s what is](https://news.yahoo.com/sacrificing-slower-friend-isn-t-224954967.html)
 - Mar 01 - [Ukraine won largest tank battle of the war in Vuhledar, NYT reports](https://news.yahoo.com/ukraine-won-largest-tank-battle-221100247.html)
-- Mar 01 - [A newlywed said they lost thousands of dollars on a wedding after more than half of their RSVP'd guests didn't show up](https://news.yahoo.com/newlywed-said-more-half-rsvpd-211052356.html)
+- Mar 01 - [Explosive found in bag at Pennsylvania airport, man arrested](https://news.yahoo.com/explosive-found-bag-pennsylvania-airport-215857834.html)
 <!-- feed end -->
