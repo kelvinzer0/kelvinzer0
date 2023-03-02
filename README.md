@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Mar 02 - [Strike the heart of Russia and watch its resolve crumble](https://news.yahoo.com/strike-heart-russia-watch-resolve-060000306.html)
 - Mar 02 - [Lauren Boebert Flunks U.S. Geography As Map Meme Backfires Badly](https://news.yahoo.com/lauren-boebert-flunks-u-geography-050321461.html)
 - Mar 02 - [‘Not Going to Read That’: White House Press Secretary Brushes Off DeSantis Op-Ed](https://news.yahoo.com/not-going-read-white-house-021430318.html)
-- Mar 02 - [Tesla says it will cut costs of next generation cars in half](https://news.yahoo.com/tesla-says-production-innovation-cut-000115642.html)
+- Mar 02 - [Chicago police chief, U.S. attorney resign after Mayor Lori Lightfoot loses reelection](https://news.yahoo.com/chicago-police-chief-david-brown-214051273.html)
 <!-- feed end -->
