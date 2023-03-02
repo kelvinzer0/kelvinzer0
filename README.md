@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 02 - [Chicago police chief, U.S. attorney resign after Mayor Lori Lightfoot loses reelection](https://news.yahoo.com/chicago-police-chief-david-brown-214051273.html)
+- Mar 02 - [Bodycam video: Officer pleaded with UGA player to stop speeding months before deadly crash](https://news.yahoo.com/bodycam-video-officer-pleaded-uga-141952551.html)
+- Mar 02 - [The celebrities that are still defending Putin — and those that have turned their backs on him](https://news.yahoo.com/celebrities-still-defending-putin-those-141527621.html)
+- Mar 02 - [Tesla plans to offer a $30 monthly subscription for unlimited overnight home charging. It will launch in Texas because the windy nights help generate power.](https://news.yahoo.com/tesla-plans-offer-30-monthly-125834748.html)
 - Mar 02 - [Egypt reveals 9-meter long chamber inside Great Pyramid](https://news.yahoo.com/egypt-reveals-9-meter-long-120505953.html)
-- Mar 02 - [Gene Simmons Reveals The Kiss Classic He Absolutely Hates Singing](https://news.yahoo.com/gene-simmons-reveals-kiss-classic-110942946.html)
-- Mar 02 - [The Google engineer who was fired after claiming the company's chatbot is sentient says AI is the 'most powerful' tech invented 'since the atomic bomb'](https://news.yahoo.com/google-engineer-fired-claiming-companys-095135010.html)
-- Mar 02 - [New Nickname Idea For Ron DeSantis Is Too Dumb Even For Donald Trump](https://news.yahoo.com/nickname-idea-ron-desantis-too-082031289.html)
-- Mar 02 - [Maui hate crime case spotlights Hawaii's racial complexity](https://news.yahoo.com/maui-hate-crime-case-spotlights-060746320.html)
 <!-- feed end -->
