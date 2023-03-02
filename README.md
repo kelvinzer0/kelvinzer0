@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Mar 02 - [Gene Simmons Reveals The Kiss Classic He Absolutely Hates Singing](https://news.yahoo.com/gene-simmons-reveals-kiss-classic-110942946.html)
 - Mar 02 - [The Google engineer who was fired after claiming the company's chatbot is sentient says AI is the 'most powerful' tech invented 'since the atomic bomb'](https://news.yahoo.com/google-engineer-fired-claiming-companys-095135010.html)
 - Mar 02 - [New Nickname Idea For Ron DeSantis Is Too Dumb Even For Donald Trump](https://news.yahoo.com/nickname-idea-ron-desantis-too-082031289.html)
-- Mar 02 - [Meghan Markle, Prince Harry suffered Hollywood 'miscalculation' with explosive tell-alls: experts](https://news.yahoo.com/meghan-markle-prince-harry-suffered-070006094.html)
+- Mar 02 - [Maui hate crime case spotlights Hawaii's racial complexity](https://news.yahoo.com/maui-hate-crime-case-spotlights-060746320.html)
 <!-- feed end -->
