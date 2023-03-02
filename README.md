@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 02 - [AOC only paid for her Met Gala outfit and other possible 'impermissible gifts' after investigators asked about it, ethics agency finds](https://news.yahoo.com/aoc-only-paid-her-met-194832514.html)
+- Mar 02 - [Former Sweetie Pie's star sentenced for nephew's killing](https://news.yahoo.com/former-sweetie-pies-star-sentenced-203000554.html)
+- Mar 02 - [A dog was on the Lufthansa flight that hit turbulence so severe it sent 7 passengers to the hospital, and it took hours for the owner to learn if the pup was OK](https://news.yahoo.com/dog-lufthansa-flight-hit-turbulence-175306148.html)
+- Mar 02 - [Warm atmospheric rivers in California forecast could spell trouble for massive snowpack](https://news.yahoo.com/warm-atmospheric-rivers-in-california-forecast-could-spell-trouble-for-massive-snowpack-201037892.html)
 - Mar 02 - [Watch: Belarusian resistance releases video of drone landing on damaged Russian spy plane](https://news.yahoo.com/watch-belarusian-resistance-releases-video-190049863.html)
-- Mar 02 - [A dog was on the Lufthansa flight that hit turbulence so severe it sent 7 passengers to the hospital, and his owner doesn't know if the pup is OK](https://news.yahoo.com/dog-lufthansa-flight-hit-turbulence-175306148.html)
-- Mar 02 - [11 sharks wash up on South African beach, researchers say. Their livers were missing](https://news.yahoo.com/11-sharks-wash-south-african-174254486.html)
-- Mar 02 - [Aaron Carter’s Mother Shares Graphic Photos From the Scene of His Death](https://news.yahoo.com/aaron-carter-mother-shares-graphic-173845675.html)
-- Mar 02 - [All the Creepy Items Seized From Idaho Suspect Bryan Kohberger’s Family Home](https://news.yahoo.com/creepy-items-seized-idaho-suspect-163908822.html)
 <!-- feed end -->
