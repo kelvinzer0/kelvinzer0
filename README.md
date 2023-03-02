@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 02 - [Maui hate crime case spotlights Hawaii's racial complexity](https://news.yahoo.com/maui-hate-crime-case-spotlights-060746320.html)
+- Mar 02 - [Strike the heart of Russia and watch its resolve crumble](https://news.yahoo.com/strike-heart-russia-watch-resolve-060000306.html)
 - Mar 02 - [Lauren Boebert Flunks U.S. Geography As Map Meme Backfires Badly](https://news.yahoo.com/lauren-boebert-flunks-u-geography-050321461.html)
 - Mar 02 - [48 hours after he was crowned the world's richest person, Elon Musk loses top spot — again](https://news.yahoo.com/48-hours-crowned-worlds-richest-034447597.html)
 - Mar 02 - [‘Not Going to Read That’: White House Press Secretary Brushes Off DeSantis Op-Ed](https://news.yahoo.com/not-going-read-white-house-021430318.html)
-- Mar 02 - [A woman threw a house party with 65 men she matched with on Tinder and Hinge and connected with the man she's been dating for a year](https://news.yahoo.com/woman-threw-house-party-65-010000214.html)
 <!-- feed end -->
