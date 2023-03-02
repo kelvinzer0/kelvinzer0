@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 02 - [‘Not Going to Read That’: White House Press Secretary Brushes Off DeSantis Op-Ed](https://news.yahoo.com/not-going-read-white-house-021430318.html)
 - Mar 02 - [A woman threw a house party with 65 men she matched with on Tinder and Hinge and connected with the man she's been dating for a year](https://news.yahoo.com/woman-threw-house-party-65-010000214.html)
+- Mar 02 - [Tesla says it will cut costs of next generation cars in half](https://news.yahoo.com/tesla-says-production-innovation-cut-000115642.html)
 - Mar 01 - [Sacrificing a ‘slower’ friend isn’t the way to escape bears, NPS says. Here’s what is](https://news.yahoo.com/sacrificing-slower-friend-isn-t-224954967.html)
 - Mar 01 - [Ukraine won largest tank battle of the war in Vuhledar, NYT reports](https://news.yahoo.com/ukraine-won-largest-tank-battle-221100247.html)
-- Mar 01 - [Explosive found in bag at Pennsylvania airport, man arrested](https://news.yahoo.com/explosive-found-bag-pennsylvania-airport-215857834.html)
 <!-- feed end -->
