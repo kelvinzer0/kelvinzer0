@@ -55,10 +55,10 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 02 - [Gunmen leave Argentine soccer star Messi a menacing message](https://news.yahoo.com/gunmen-leave-argentine-soccer-star-160846029.html)
+- Mar 02 - [Aaron Carter’s Mother Shares Graphic Photos From the Scene of His Death](https://news.yahoo.com/aaron-carter-mother-shares-graphic-173845675.html)
+- Mar 02 - ['Love Is Blind' star Danielle Ruhl says she gained 20 pounds while filming and was 'super depressed' because producers brought up her weight 'over and over'](https://news.yahoo.com/love-blind-star-danielle-ruhl-162252138.html)
+- Mar 02 - [Gunmen threaten Messi, shoot up family-owned supermarket](https://news.yahoo.com/gunmen-leave-argentine-soccer-star-160846029.html)
 - Mar 02 - [Russian resistance group says it crossed into Russia, calls on Russians
 to take up arms against Putin regime](https://news.yahoo.com/russian-resistance-group-says-crossed-155100974.html)
 - Mar 02 - [I've been to Las Vegas over 50 times. Here are the 8 restaurants I always recommend to first-time visitors.](https://news.yahoo.com/ive-las-vegas-over-50-141200076.html)
-- Mar 02 - [Bodycam video: Officer pleaded with UGA player to stop speeding months before deadly crash](https://news.yahoo.com/bodycam-video-officer-pleaded-uga-141952551.html)
-- Mar 02 - [The celebrities that are still defending Putin — and those that have turned their backs on him](https://news.yahoo.com/celebrities-still-defending-putin-those-141527621.html)
 <!-- feed end -->
