@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 02 - [New Nickname Idea For Ron DeSantis Is Too Dumb Even For Donald Trump](https://news.yahoo.com/nickname-idea-ron-desantis-too-082031289.html)
+- Mar 02 - [Meghan Markle, Prince Harry suffered Hollywood 'miscalculation' with explosive tell-alls: experts](https://news.yahoo.com/meghan-markle-prince-harry-suffered-070006094.html)
 - Mar 02 - [Maui hate crime case spotlights Hawaii's racial complexity](https://news.yahoo.com/maui-hate-crime-case-spotlights-060746320.html)
 - Mar 02 - [Strike the heart of Russia and watch its resolve crumble](https://news.yahoo.com/strike-heart-russia-watch-resolve-060000306.html)
 - Mar 02 - [Lauren Boebert Flunks U.S. Geography As Map Meme Backfires Badly](https://news.yahoo.com/lauren-boebert-flunks-u-geography-050321461.html)
-- Mar 02 - [‘Not Going to Read That’: White House Press Secretary Brushes Off DeSantis Op-Ed](https://news.yahoo.com/not-going-read-white-house-021430318.html)
-- Mar 02 - [Chicago police chief, U.S. attorney resign after Mayor Lori Lightfoot loses reelection](https://news.yahoo.com/chicago-police-chief-david-brown-214051273.html)
 <!-- feed end -->
