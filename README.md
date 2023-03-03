@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 03 - [Businessman Perry Johnson announces 2024 presidential bid](https://news.yahoo.com/businessman-perry-johnson-announces-2024-161000239.html)
+- Mar 03 - [Smart says new 1st-down rule good start to shortening games](https://news.yahoo.com/smart-says-1st-down-rule-182719339.html)
+- Mar 03 - [Crowd erupts in laughter at Russia's top diplomat after he claimed the Ukraine war 'was launched against us'](https://news.yahoo.com/crowd-erupts-laughter-russias-top-180331064.html)
 - Mar 03 - [Alex Murdaugh and Judge Clifton Newman have a tense exchange before sentencing for murders](https://news.yahoo.com/alex-murdaugh-judge-clifton-newman-160324681.html)
 - Mar 03 - [Judge who sentenced Alex Murdaugh to life tells disgraced lawyer his murdered wife and son 'will visit you at night'](https://news.yahoo.com/judge-sentenced-alex-murdaugh-life-154525474.html)
 - Mar 03 - [Laura Ingraham Makes Head-Spinning Claims About Donald Trump's Work Ethic](https://news.yahoo.com/laura-ingraham-makes-head-spinning-154414381.html)
-- Mar 03 - [Putin has a secret brood of children being raised in luxury comparable to Russian tsars, report claims](https://news.yahoo.com/putin-secret-brood-children-being-150134354.html)
 <!-- feed end -->
