@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 03 - [Mexico wanted 1st degree murder charges for Arizona rancher](https://news.yahoo.com/mexico-wanted-1st-degree-murder-205856605.html)
 - Mar 03 - [Doctor: Lesion removed from Biden's chest was cancerous](https://news.yahoo.com/doctor-lesion-removed-bidens-chest-202723972.html)
 - Mar 03 - [Couple sues Hawaii snorkeling company for $5 million, alleging it abandoned them in the ocean on their honeymoon](https://news.yahoo.com/couple-sues-hawaiian-snorkeling-company-114334257.html)
 - Mar 03 - [I'm a urologist, and yes, there's a wrong way to pee. Avoid these 7 mistakes](https://news.yahoo.com/im-urologist-yes-theres-wrong-200457197.html)
 - Mar 03 - [Chelsea Handler Shades Tucker Carlson With Birthday Bikini Pic](https://news.yahoo.com/chelsea-handler-shades-tucker-carlson-194902109.html)
-- Mar 03 - [Ex-NBA Player Carlos Boozer Says Prince Wired Him $500K To ‘Ease’ His Mind After Nearly Suing The Late Legend](https://news.yahoo.com/ex-nba-player-carlos-boozer-194019252.html)
 <!-- feed end -->
