@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 03 - [Smart says new 1st-down rule good start to shortening games](https://news.yahoo.com/smart-says-1st-down-rule-182719339.html)
-- Mar 03 - [Crowd erupts in laughter at Russia's top diplomat after he claimed the Ukraine war 'was launched against us'](https://news.yahoo.com/crowd-erupts-laughter-russias-top-180331064.html)
-- Mar 03 - [Alex Murdaugh and Judge Clifton Newman have a tense exchange before sentencing for murders](https://news.yahoo.com/alex-murdaugh-judge-clifton-newman-160324681.html)
-- Mar 03 - [Judge who sentenced Alex Murdaugh to life tells disgraced lawyer his murdered wife and son 'will visit you at night'](https://news.yahoo.com/judge-sentenced-alex-murdaugh-life-154525474.html)
-- Mar 03 - [Laura Ingraham Makes Head-Spinning Claims About Donald Trump's Work Ethic](https://news.yahoo.com/laura-ingraham-makes-head-spinning-154414381.html)
+- Mar 03 - [Chelsea Handler Shades Tucker Carlson With Birthday Bikini Pic](https://news.yahoo.com/chelsea-handler-shades-tucker-carlson-194902109.html)
+- Mar 03 - [Can the dogs of Chernobyl teach us new tricks on survival?](https://news.yahoo.com/surviving-brutal-places-lessons-dogs-190527343.html)
+- Mar 03 - [Earliest cowboys identified by ‘horsemanship syndrome’ in skeletons](https://news.yahoo.com/earliest-cowboys-identified-horsemanship-syndrome-190000975.html)
+- Mar 03 - [Chechen warlord Kadyrov reportedly having health problems](https://news.yahoo.com/chechen-warlord-kadyrov-reportedly-having-185300586.html)
+- Mar 03 - [US sending bridge-launchers to Ukraine for spring fight](https://news.yahoo.com/us-sending-bridge-launchers-ukraine-184128999.html)
 <!-- feed end -->
