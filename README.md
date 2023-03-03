@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 03 - [Doctor: Lesion removed from Biden's chest was cancerous](https://news.yahoo.com/doctor-lesion-removed-bidens-chest-202723972.html)
+- Mar 03 - [Couple sues Hawaii snorkeling company for $5 million, alleging it abandoned them in the ocean on their honeymoon](https://news.yahoo.com/couple-sues-hawaiian-snorkeling-company-114334257.html)
+- Mar 03 - [I'm a urologist, and yes, there's a wrong way to pee. Avoid these 7 mistakes](https://news.yahoo.com/im-urologist-yes-theres-wrong-200457197.html)
 - Mar 03 - [Chelsea Handler Shades Tucker Carlson With Birthday Bikini Pic](https://news.yahoo.com/chelsea-handler-shades-tucker-carlson-194902109.html)
-- Mar 03 - [Can the dogs of Chernobyl teach us new tricks on survival?](https://news.yahoo.com/surviving-brutal-places-lessons-dogs-190527343.html)
-- Mar 03 - [Earliest cowboys identified by ‘horsemanship syndrome’ in skeletons](https://news.yahoo.com/earliest-cowboys-identified-horsemanship-syndrome-190000975.html)
-- Mar 03 - [Chechen warlord Kadyrov reportedly having health problems](https://news.yahoo.com/chechen-warlord-kadyrov-reportedly-having-185300586.html)
-- Mar 03 - [US sending bridge-launchers to Ukraine for spring fight](https://news.yahoo.com/us-sending-bridge-launchers-ukraine-184128999.html)
+- Mar 03 - [Ex-NBA Player Carlos Boozer Says Prince Wired Him $500K To ‘Ease’ His Mind After Nearly Suing The Late Legend](https://news.yahoo.com/ex-nba-player-carlos-boozer-194019252.html)
 <!-- feed end -->
