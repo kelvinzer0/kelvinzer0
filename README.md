@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Mar 03 - [A manhole cover launched into space with a nuclear test is the fastest human-made object. A scientist on Operation Plumbbob told us the unbelievable story.](https://news.yahoo.com/manhole-cover-launched-space-nuclear-010358106.html)
 - Mar 03 - [A dog was on the Lufthansa flight that hit turbulence so severe it sent 7 passengers to the hospital, and it took hours for the owner to learn if the pup was OK](https://news.yahoo.com/dog-lufthansa-flight-hit-turbulence-175306148.html)
 - Mar 03 - [Ohio law enforcement links Erin Brockovich to potential for 'special interest terrorism' threat in East Palestine](https://news.yahoo.com/ohio-law-enforcement-links-erin-brockovich-to-potential-for-special-interest-terrorism-threat-in-east-palestine-000636477.html)
-- Mar 02 - [Honeymooning couple ‘abandoned’ at sea by snorkel tour boat, Hawaii lawsuit says](https://news.yahoo.com/honeymooning-couple-abandoned-sea-snorkel-232526423.html)
+- Mar 02 - [Wife Of Missing Radio Host Jeffrey Vandergrift Shares Painful Update](https://news.yahoo.com/wife-missing-radio-host-jeffrey-235328341.html)
 <!-- feed end -->
