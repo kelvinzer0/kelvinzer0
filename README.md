@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 03 - [Businessman Perry Johnson announces 2024 presidential bid](https://news.yahoo.com/businessman-perry-johnson-announces-2024-161000239.html)
 - Mar 03 - [Alex Murdaugh and Judge Clifton Newman have a tense exchange before sentencing for murders](https://news.yahoo.com/alex-murdaugh-judge-clifton-newman-160324681.html)
+- Mar 03 - [Judge who sentenced Alex Murdaugh to life tells disgraced lawyer his murdered wife and son 'will visit you at night'](https://news.yahoo.com/judge-sentenced-alex-murdaugh-life-154525474.html)
 - Mar 03 - [Laura Ingraham Makes Head-Spinning Claims About Donald Trump's Work Ethic](https://news.yahoo.com/laura-ingraham-makes-head-spinning-154414381.html)
 - Mar 03 - [Putin has a secret brood of children being raised in luxury comparable to Russian tsars, report claims](https://news.yahoo.com/putin-secret-brood-children-being-150134354.html)
-- Mar 03 - [Judge Gives ‘Monster’ Murdaugh Life Sentence—but Wishes It Was Death](https://news.yahoo.com/alex-murdaugh-maintains-innocence-murder-145419776.html)
-- Mar 03 - [A couple did IVF to avoid passing a cancer gene to their child. They say the clinic transferred the wrong embryo, and now the baby may eventually need stomach-removal surgery and may develop cancer.](https://news.yahoo.com/couple-did-ivf-avoid-passing-142902592.html)
 <!-- feed end -->
