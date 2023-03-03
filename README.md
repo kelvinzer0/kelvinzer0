@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 02 - [Iranian warships in Rio de Janeiro stirring concern abroad](https://news.yahoo.com/iranian-warships-rio-janeiro-stirring-212454786.html)
-- Mar 02 - [Teacher placed on leave after parents criticise size-Z prosthetic breasts](https://news.yahoo.com/teacher-placed-leave-parents-criticise-205513077.html)
-- Mar 02 - [What we know: Teacher's aide disputes account of Matanzas High School attack](https://news.yahoo.com/know-teachers-aide-disputes-account-170534903.html)
-- Mar 02 - [AOC only paid for her Met Gala outfit and other possible 'impermissible gifts' after investigators asked about it, ethics agency finds](https://news.yahoo.com/aoc-only-paid-her-met-194832514.html)
-- Mar 02 - [Former `Sweetie Pie's' star sentenced in nephew's killing](https://news.yahoo.com/former-sweetie-pies-star-sentenced-203000554.html)
+- Mar 03 - [OJ Simpson said he believed Alex Murdaugh 'more than likely' killed his wife and son: 'Once the guy's a liar, you can't believe anything he says'](https://news.yahoo.com/oj-simpson-says-believes-alex-232810188.html)
+- Mar 03 - [A manhole cover launched into space with a nuclear test is the fastest human-made object. A scientist on Operation Plumbbob told us the unbelievable story.](https://news.yahoo.com/manhole-cover-launched-space-nuclear-010358106.html)
+- Mar 03 - [A dog was on the Lufthansa flight that hit turbulence so severe it sent 7 passengers to the hospital, and it took hours for the owner to learn if the pup was OK](https://news.yahoo.com/dog-lufthansa-flight-hit-turbulence-175306148.html)
+- Mar 03 - [Ohio law enforcement links Erin Brockovich to potential for 'special interest terrorism' threat in East Palestine](https://news.yahoo.com/ohio-law-enforcement-links-erin-brockovich-to-potential-for-special-interest-terrorism-threat-in-east-palestine-000636477.html)
+- Mar 02 - [Major Russian Victory Feared as Soldier Delivers Grim Message](https://news.yahoo.com/major-russian-victory-feared-soldier-230536166.html)
 <!-- feed end -->
