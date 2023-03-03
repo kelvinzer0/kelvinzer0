@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 03 - [Laura Ingraham Makes Head-Spinning Claims About Donald Trump's Work Ethic](https://news.yahoo.com/laura-ingraham-makes-head-spinning-154414381.html)
+- Mar 03 - [Putin has a secret brood of children being raised in luxury comparable to Russian tsars, report claims](https://news.yahoo.com/putin-secret-brood-children-being-150134354.html)
+- Mar 03 - [A couple did IVF to avoid passing a cancer gene to their child. They say the clinic transferred the wrong embryo, and now the baby may eventually need stomach-removal surgery and may develop cancer.](https://news.yahoo.com/couple-did-ivf-avoid-passing-142902592.html)
 - Mar 03 - [Kim Kardashian flew home from Las Vegas with $250,000 in a trash bag after a card game with a disgraced billionaire, says report](https://news.yahoo.com/kim-kardashian-flew-home-las-131414516.html)
 - Mar 03 - [Mysterious ‘ball’ seen beside road was 14-foot invasive snake, New York officials say](https://news.yahoo.com/mysterious-ball-seen-beside-road-122419396.html)
-- Mar 03 - [Russians panic on social media after overnight explosion near Moscow](https://news.yahoo.com/russians-panic-social-media-overnight-121900305.html)
-- Mar 03 - [Opinion: End of Texas' open beaches might be near](https://news.yahoo.com/opinion-end-texas-open-beaches-120147728.html)
-- Mar 03 - [Couple sues Hawaiian snorkeling company for $5 million, alleging it abandoned them in the ocean on their honeymoon](https://news.yahoo.com/couple-sues-hawaiian-snorkeling-company-114334257.html)
 <!-- feed end -->
