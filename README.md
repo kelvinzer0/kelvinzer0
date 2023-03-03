@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 03 - [Alex Murdaugh trial: Son of US lawyer 'solved his own murder' with Snapchat video](https://news.yahoo.com/alex-murdaugh-found-guilty-murdering-003657638.html)
+- Mar 03 - [Germany seeks to buy mothballed Swiss Leopard 2 tanks](https://news.yahoo.com/germany-seeks-buy-mothballed-swiss-105627262.html)
 - Mar 03 - [A Florida man found a massive clam on the beach and was going to turn it into chowder. It turned out to be more than 200 years old.](https://news.yahoo.com/florida-man-found-massive-clam-085440401.html)
 - Mar 03 - [Ex-RNC Chair Michael Steele Has Brutally Blunt Advice For Marjorie Taylor Greene](https://news.yahoo.com/ex-rnc-chair-michael-steele-084550606.html)
 - Mar 03 - [A new bill in Florida would require bloggers writing about Ron DeSantis to register with the state or be fined](https://news.yahoo.com/bill-florida-require-bloggers-writing-054212445.html)
-- Mar 03 - [China has a 'stunning lead' over the US in the research of 37 out of 44 critical and emerging technologies, new study finds](https://news.yahoo.com/china-stunning-lead-over-us-052630482.html)
-- Mar 03 - [Donald Trump Jr. Mocked For Most Head-Spinningly False Claim About His Dad Yet](https://news.yahoo.com/donald-trump-jr-mocked-most-051850288.html)
 <!-- feed end -->
