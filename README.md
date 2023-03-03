@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 03 - [China has a 'stunning lead' over the US in the research of 37 out of 44 critical and emerging technologies, new study finds](https://news.yahoo.com/china-stunning-lead-over-us-052630482.html)
 - Mar 03 - [Donald Trump Jr. Mocked For Most Head-Spinningly False Claim About His Dad Yet](https://news.yahoo.com/donald-trump-jr-mocked-most-051850288.html)
 - Mar 03 - [OJ Simpson said he believed Alex Murdaugh 'more than likely' killed his wife and son: 'Once the guy's a liar, you can't believe anything he says'](https://news.yahoo.com/oj-simpson-says-believes-alex-232810188.html)
 - Mar 03 - [A manhole cover launched into space with a nuclear test is the fastest human-made object. A scientist on Operation Plumbbob told us the unbelievable story.](https://news.yahoo.com/manhole-cover-launched-space-nuclear-010358106.html)
 - Mar 03 - [A dog was on the Lufthansa flight that hit turbulence so severe it sent 7 passengers to the hospital, and it took hours for the owner to learn if the pup was OK](https://news.yahoo.com/dog-lufthansa-flight-hit-turbulence-175306148.html)
-- Mar 03 - [Ohio law enforcement links Erin Brockovich to potential for 'special interest terrorism' threat in East Palestine](https://news.yahoo.com/ohio-law-enforcement-links-erin-brockovich-to-potential-for-special-interest-terrorism-threat-in-east-palestine-000636477.html)
 <!-- feed end -->
