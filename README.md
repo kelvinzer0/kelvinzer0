@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 03 - [Kim Kardashian flew home from Las Vegas with $250,000 in a trash bag after a card game with a disgraced billionaire, says report](https://news.yahoo.com/kim-kardashian-flew-home-las-131414516.html)
 - Mar 03 - [Mysterious ‘ball’ seen beside road was 14-foot invasive snake, New York officials say](https://news.yahoo.com/mysterious-ball-seen-beside-road-122419396.html)
 - Mar 03 - [Russians panic on social media after overnight explosion near Moscow](https://news.yahoo.com/russians-panic-social-media-overnight-121900305.html)
 - Mar 03 - [Couple sues Hawaiian snorkeling company for $5 million, alleging it abandoned them in the ocean on their honeymoon](https://news.yahoo.com/couple-sues-hawaiian-snorkeling-company-114334257.html)
 - Mar 03 - [Ron DeSantis loses his cool with a reporter after failing to answer a question on how his Ukraine policy would differ from Biden's](https://news.yahoo.com/ron-desantis-loses-cool-reporter-113028906.html)
-- Mar 03 - [Alex Murdaugh trial: Son of US lawyer 'solved his own murder' with Snapchat video](https://news.yahoo.com/alex-murdaugh-found-guilty-murdering-003657638.html)
 <!-- feed end -->
