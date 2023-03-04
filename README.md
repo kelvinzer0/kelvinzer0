@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Mar 04 - [Trump gets rapturous reception at major US Republican conference](https://news.yahoo.com/trump-gets-rapturous-reception-major-205038305.html)
 - Mar 04 - [White teachers often talk about Black students in racially coded ways](https://news.yahoo.com/white-teachers-often-talk-black-133302970.html)
 - Mar 04 - [Alex Murdaugh's son Buster seen for the first time since dad's murder conviction](https://news.yahoo.com/alex-murdaughs-son-buster-seen-191459488.html)
-- Mar 04 - [Ja Morant says he'll get 'help'; video shows apparent gun](https://news.yahoo.com/nba-opens-investigation-ja-morants-175741392.html)
+- Mar 04 - [Ja Morant says he'll get help after video shows apparent gun](https://news.yahoo.com/nba-opens-investigation-ja-morants-175741392.html)
 <!-- feed end -->
