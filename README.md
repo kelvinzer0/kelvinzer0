@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 04 - [Walmart Set to Close All Stores in Portland amid Record-Breaking Retail Theft](https://news.yahoo.com/walmart-set-close-stores-portland-154823875.html)
+- Mar 04 - [Republicans Use Arcane Political Tactic to Thwart Democrats](https://news.yahoo.com/republicans-arcane-political-tactic-thwart-152427110.html)
 - Mar 04 - [Pot vote has Oklahoma hungry to rake in green from Texas](https://news.yahoo.com/pot-vote-oklahoma-hungry-rake-140401088.html)
 - Mar 04 - [My Husband Of 26 Years Died. I Shocked Myself By Falling In Love Again Just Months Later.](https://news.yahoo.com/husband-26-years-died-shocked-133004065.html)
-- Mar 04 - [This Was The Most Ridiculous Part Of The Supreme Court Debate On Student Loan Relief](https://news.yahoo.com/most-ridiculous-part-supreme-court-130003841.html)
-- Mar 04 - [A National Geographic photographer gave me 4 tips for taking better pictures with my phone. I tried them and the results blew me away.](https://news.yahoo.com/national-geographic-photographer-gave-4-110100828.html)
-- Mar 04 - [Footage shows how Russian tanks and armored vehicles keep driving to their death at an infamous mine-filled crossroads](https://news.yahoo.com/footage-shows-russian-tanks-armored-100516114.html)
+- Mar 04 - [UK says Falklands are British as Argentina seeks new talks](https://news.yahoo.com/uk-says-falklands-british-argentina-132720477.html)
 <!-- feed end -->
