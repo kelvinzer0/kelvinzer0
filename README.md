@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 04 - [NBA opens investigation after Ja Morant's social media post](https://news.yahoo.com/nba-opens-investigation-ja-morants-175741392.html)
 - Mar 04 - [Kellyanne Conway is divorcing her anti-Trump husband George Conway after 22 years of marriage, report says. Trump congratulated her, saying 'Free at last'](https://news.yahoo.com/kellyanne-conway-divorcing-her-anti-155649640.html)
 - Mar 04 - [Walmart Set to Close All Stores in Portland amid Record-Breaking Retail Theft](https://news.yahoo.com/walmart-set-close-stores-portland-154823875.html)
 - Mar 04 - [Republicans Use Arcane Political Tactic to Thwart Democrats](https://news.yahoo.com/republicans-arcane-political-tactic-thwart-152427110.html)
 - Mar 04 - [A reality TV star who posted an explicit video of him and his ex-girlfriend on OnlyFans without her permission was jailed for almost 2 years](https://news.yahoo.com/reality-tv-star-posted-explicit-151502590.html)
-- Mar 04 - [Pot vote has Oklahoma hungry to rake in green from Texas](https://news.yahoo.com/pot-vote-oklahoma-hungry-rake-140401088.html)
 <!-- feed end -->
