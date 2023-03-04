@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 04 - [Kellyanne Conway, George Conway To Divorce After Decades-Long Marriage: Report](https://news.yahoo.com/kellyanne-conway-george-conway-divorce-071059849.html)
 - Mar 04 - [Jackson Mahomes accused of assault by Overland Park restaurant owner and waiter](https://news.yahoo.com/jackson-mahomes-accused-assault-overland-003553078.html)
+- Mar 04 - [Thailand's 'most beautiful transgender woman' and husband wear $580K in attire at extravagant wedding](https://news.yahoo.com/thailands-most-beautiful-transgender-woman-002554998.html)
 - Mar 03 - [What to know about Buster Murdaugh, Alex Murdaugh's only surviving son](https://news.yahoo.com/know-buster-murdaugh-alex-murdaughs-233925241.html)
 - Mar 03 - [‘Little dragon’ found on uninhabited Australian island is a new species. Take a look](https://news.yahoo.com/little-dragon-found-uninhabited-australian-220443840.html)
-- Mar 03 - [Racist Karen Is Charged After Viral Pizza Shop Melt Down](https://news.yahoo.com/racist-karen-charged-viral-pizza-215101667.html)
 <!-- feed end -->
