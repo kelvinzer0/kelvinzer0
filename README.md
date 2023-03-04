@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 04 - [Alex Murdaugh's murder case led a historian to uncover another suspicious Murdaugh family death from the 1940s that resulted in a huge payout](https://news.yahoo.com/alex-murdaughs-murder-case-led-191147639.html)
-- Mar 04 - [Colorado woman faces no jail time for statutory rape, pregnancy by 13-year-old boy: report](https://news.yahoo.com/colorado-woman-faces-no-jail-181401244.html)
-- Mar 04 - [Kellyanne Conway is divorcing her anti-Trump husband George Conway after 22 years of marriage, report says. Trump congratulated her, saying 'Free at last'](https://news.yahoo.com/kellyanne-conway-divorcing-her-anti-155649640.html)
-- Mar 04 - [Walmart Set to Close All Stores in Portland amid Record-Breaking Retail Theft](https://news.yahoo.com/walmart-set-close-stores-portland-154823875.html)
-- Mar 04 - [Republicans Use Arcane Political Tactic to Thwart Democrats](https://news.yahoo.com/republicans-arcane-political-tactic-thwart-152427110.html)
+- Mar 04 - [Russell Brand’s Rant About MSNBC, Rachel Maddow Goes Viral](https://news.yahoo.com/russell-brand-rant-msnbc-rachel-205525837.html)
+- Mar 04 - [Trump gets rapturous reception at major US Republican conference](https://news.yahoo.com/trump-gets-rapturous-reception-major-205038305.html)
+- Mar 04 - [White teachers often talk about Black students in racially coded ways](https://news.yahoo.com/white-teachers-often-talk-black-133302970.html)
+- Mar 04 - [Alex Murdaugh's son Buster seen for the first time since dad's murder conviction](https://news.yahoo.com/alex-murdaughs-son-buster-seen-191459488.html)
+- Mar 04 - [Ja Morant says he'll get 'help'; video shows apparent gun](https://news.yahoo.com/nba-opens-investigation-ja-morants-175741392.html)
 <!-- feed end -->
