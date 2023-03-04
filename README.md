@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Mar 04 - [Footage shows how Russian tanks and armored vehicles keep driving to their death at an infamous mine-filled crossroads](https://news.yahoo.com/footage-shows-russian-tanks-armored-100516114.html)
 - Mar 04 - [Donald Trump Jr. Sinks To Another Sickening New Low At CPAC](https://news.yahoo.com/donald-trump-jr-sinks-another-083500037.html)
 - Mar 04 - [Paris Hilton describes being abducted from her bed, forced snuggling, and patients drugged with 'booty juice' at the abusive residential treatment centers where she spent her teen years](https://news.yahoo.com/paris-hilton-describes-being-abducted-075532632.html)
-- Mar 04 - [Kellyanne Conway, George Conway To Divorce After Decades-Long Marriage: Report](https://news.yahoo.com/kellyanne-conway-george-conway-divorce-071059849.html)
+- Mar 04 - [Texas congressman's breaks with GOP could lead to censure](https://news.yahoo.com/texas-congressmans-breaks-gop-could-054056064.html)
 - Mar 04 - [School punished teen girl for working out in sports bra in 100-degree Texas heat, ACLU says](https://news.yahoo.com/school-punished-teen-girl-working-043907944.html)
 <!-- feed end -->
