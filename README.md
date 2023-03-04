@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 04 - [This Was The Most Ridiculous Part Of The Supreme Court Debate On Student Loan Relief](https://news.yahoo.com/most-ridiculous-part-supreme-court-130003841.html)
+- Mar 04 - [A National Geographic photographer gave me 4 tips for taking better pictures with my phone. I tried them and the results blew me away.](https://news.yahoo.com/national-geographic-photographer-gave-4-110100828.html)
 - Mar 04 - [Footage shows how Russian tanks and armored vehicles keep driving to their death at an infamous mine-filled crossroads](https://news.yahoo.com/footage-shows-russian-tanks-armored-100516114.html)
 - Mar 04 - [Donald Trump Jr. Sinks To Another Sickening New Low At CPAC](https://news.yahoo.com/donald-trump-jr-sinks-another-083500037.html)
 - Mar 04 - [Paris Hilton describes being abducted from her bed, forced snuggling, and patients drugged with 'booty juice' at the abusive residential treatment centers where she spent her teen years](https://news.yahoo.com/paris-hilton-describes-being-abducted-075532632.html)
-- Mar 04 - [Texas congressman's breaks with GOP could lead to censure](https://news.yahoo.com/texas-congressmans-breaks-gop-could-054056064.html)
-- Mar 04 - [GOP Strategist Tears Donald Trump Jr., CPAC To Shreds In Scathing Takedown](https://news.yahoo.com/gop-strategist-tears-donald-trump-053428146.html)
 <!-- feed end -->
