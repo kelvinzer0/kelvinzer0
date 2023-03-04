@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 04 - [Jackson Mahomes accused of assault by Overland Park restaurant owner and waiter](https://news.yahoo.com/jackson-mahomes-accused-assault-overland-003553078.html)
+- Mar 03 - [Convicted killer Alex Murdaugh's new mugshot revealed after double life sentence](https://news.yahoo.com/convicted-killer-alex-murdaughs-mugshot-223517361.html)
 - Mar 03 - [‘Little dragon’ found on uninhabited Australian island is a new species. Take a look](https://news.yahoo.com/little-dragon-found-uninhabited-australian-220443840.html)
 - Mar 03 - [Racist Karen Is Charged After Viral Pizza Shop Melt Down](https://news.yahoo.com/racist-karen-charged-viral-pizza-215101667.html)
-- Mar 03 - [I bought a $140,000 mobile home in a million-dollar LA neighborhood and love it. Here's a look inside.](https://news.yahoo.com/bought-140-000-mobile-home-212030485.html)
-- Mar 03 - [Mexico wanted 1st degree murder charges for Arizona rancher](https://news.yahoo.com/mexico-wanted-1st-degree-murder-205856605.html)
-- Mar 03 - [Doctor: Lesion removed from Biden's chest was cancerous](https://news.yahoo.com/doctor-lesion-removed-bidens-chest-202723972.html)
+- Mar 03 - [Victoria's Secret is resurrecting its famous fashion show in 2023 after a 4-year hiatus and a total brand revamp](https://news.yahoo.com/victorias-secret-resurrecting-famous-fashion-213120002.html)
 <!-- feed end -->
