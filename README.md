@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 05 - ['Creature from the Black Lagoon' actor Ricou Browning dies](https://news.yahoo.com/creature-black-lagoon-actor-ricou-211250125.html)
+- Mar 05 - [Durant tiebreaker lifts Suns over Mavs in showcase of stars](https://news.yahoo.com/durant-tiebreaker-lifts-suns-over-210539495.html)
+- Mar 05 - [NYT's Maggie Haberman says Trump's age and campaign finances are preventing him from holding more rallies and he might 'incorporate an indictment' into his 2024 message](https://news.yahoo.com/nyts-maggie-haberman-says-trumps-210328208.html)
 - Mar 05 - [Prince Harry contacted about coronation; attendance unclear](https://news.yahoo.com/prince-harry-contacted-coronation-attendance-203147172.html)
-- Mar 05 - [Kraken special unit announces destruction of observation tower in Russia](https://news.yahoo.com/kraken-special-unit-announces-destruction-184902280.html)
-- Mar 05 - [Christie jabs at lack of crowd for Trump at CPAC: ‘That room was half-full’](https://news.yahoo.com/christie-jabs-lack-crowd-trump-181123798.html)
-- Mar 05 - [Woman gets 12 to 24 years in crash that killed firefighter](https://news.yahoo.com/woman-gets-12-24-years-172112163.html)
-- Mar 05 - [Macklemore says his 7-year-old daughter attends Alcoholics Anonymous meetings with him because he wants to be transparent about his sobriety](https://news.yahoo.com/macklemore-says-7-old-daughter-164626910.html)
+- Mar 05 - [Chris Rock unleashes on Jada and WIll Smith](https://news.yahoo.com/chris-rock-unleashes-jada-smith-191148339.html)
 <!-- feed end -->
