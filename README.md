@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 05 - [Chris Rock says he tried to call Will Smith to offer his 'condolences' after Jada Pinkett Smith publicly discussed her affair](https://news.yahoo.com/chris-rock-says-tried-call-115000336.html)
+- Mar 05 - [A passenger died after a jet experienced 'severe turbulence' while flying over New England](https://news.yahoo.com/passenger-died-jet-experienced-severe-102746225.html)
 - Mar 05 - [Riley Keough says filming sex scene with her real-life husband was 'really uncomfortable': 'It was so weird'](https://news.yahoo.com/riley-keough-says-filming-sex-095417068.html)
-- Mar 05 - [Archaeologists in Israel left red-faced after it transpired that a unique 'ancient' inscription was carved last summer](https://news.yahoo.com/archaeologists-israel-left-red-faced-093705040.html)
 - Mar 05 - [I was fired from my teaching job for being an OnlyFans creator. I then made more than my annual salary in 6 months.](https://news.yahoo.com/fired-teaching-job-being-onlyfans-090033910.html)
 - Mar 05 - [Donald Trump says he could settle Ukraine war in 'one day'](https://news.yahoo.com/trump-gets-rapturous-reception-major-205038305.html)
-- Mar 05 - [Fleeing Florida motorcyclist flips off police before getting hit by truck](https://news.yahoo.com/fleeing-florida-motorcyclist-flips-off-035016557.html)
 <!-- feed end -->
