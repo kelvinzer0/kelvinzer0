@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 05 - [Donald Trump says only he can prevent a Third World War](https://news.yahoo.com/trump-gets-rapturous-reception-major-205038305.html)
+- Mar 05 - [Fleeing Florida motorcyclist flips off police before getting hit by truck](https://news.yahoo.com/fleeing-florida-motorcyclist-flips-off-035016557.html)
 - Mar 04 - [Wagner Boss Appears to Issue Veiled Threat to Kremlin in Ominous Video](https://news.yahoo.com/wagner-boss-appears-issue-veiled-232627769.html)
 - Mar 04 - ['Bamboozled' carjackers end up empty handed after trying to take Houston man's car at gunpoint](https://news.yahoo.com/bamboozled-carjackers-end-empty-handed-231552796.html)
 - Mar 04 - [Russians use new 1.5 ton gliding bombs against Ukraine](https://news.yahoo.com/russians-1-5-ton-gliding-205627213.html)
-- Mar 04 - [White teachers often talk about Black students in racially coded ways](https://news.yahoo.com/white-teachers-often-talk-black-133302970.html)
 <!-- feed end -->
