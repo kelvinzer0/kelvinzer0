@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 05 - [Macklemore says his 7-year-old daughter attends Alcoholics Anonymous meetings with him because he wants to be transparent about his sobriety](https://news.yahoo.com/macklemore-says-7-old-daughter-164626910.html)
+- Mar 05 - ['I got you': A stranger stepped up to pay for a man's groceries after his card declined and now the 2 are 'friends for life'](https://news.yahoo.com/got-stranger-stepped-pay-mans-164005669.html)
+- Mar 05 - [Chris Rock criticizes Meghan Markle for telling Oprah Winfrey the royals had 'concerns' about her son's skin color: 'That's not racism'](https://news.yahoo.com/chris-rock-criticizes-meghan-markle-163336453.html)
 - Mar 05 - [A captured Russian prison inmate-turned-soldier said the Wagner Group's paramilitary trained him for 3 weeks and didn't expect him to survive the Ukrainian assault](https://news.yahoo.com/captured-russian-prison-inmate-turned-162250396.html)
 - Mar 05 - [Russian mobilized soldiers storm Ukrainian positions with spades, UK intel reports](https://news.yahoo.com/russian-mobilized-soldiers-storm-ukrainian-155500069.html)
-- Mar 05 - [I was born and raised in Montana. Here are 4 of the best things about living there — and 4 reasons I wouldn't move back.](https://news.yahoo.com/born-raised-montana-4-best-115500343.html)
-- Mar 05 - [Chris Rock says he tried to call Will Smith to offer his 'condolences' after Jada Pinkett Smith publicly discussed her affair](https://news.yahoo.com/chris-rock-says-tried-call-115000336.html)
-- Mar 05 - [A dramatic video shows the moment a skier gets caught in an avalanche and plummets down a mountain](https://news.yahoo.com/dramatic-video-shows-moment-skier-114631368.html)
 <!-- feed end -->
