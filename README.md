@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 05 - [A captured Russian prison inmate-turned-soldier said the Wagner Group's paramilitary trained him for 3 weeks and didn't expect him to survive the Ukrainian assault](https://news.yahoo.com/captured-russian-prison-inmate-turned-162250396.html)
+- Mar 05 - [Russian mobilized soldiers storm Ukrainian positions with spades, UK intel reports](https://news.yahoo.com/russian-mobilized-soldiers-storm-ukrainian-155500069.html)
 - Mar 05 - [I was born and raised in Montana. Here are 4 of the best things about living there — and 4 reasons I wouldn't move back.](https://news.yahoo.com/born-raised-montana-4-best-115500343.html)
 - Mar 05 - [Chris Rock says he tried to call Will Smith to offer his 'condolences' after Jada Pinkett Smith publicly discussed her affair](https://news.yahoo.com/chris-rock-says-tried-call-115000336.html)
-- Mar 05 - [A passenger died after a jet experienced 'severe turbulence' while flying over New England](https://news.yahoo.com/passenger-died-jet-experienced-severe-102746225.html)
-- Mar 05 - [Riley Keough says filming sex scene with her real-life husband was 'really uncomfortable': 'It was so weird'](https://news.yahoo.com/riley-keough-says-filming-sex-095417068.html)
-- Mar 05 - [I was fired from my teaching job for being an OnlyFans creator. I then made more than my annual salary in 6 months.](https://news.yahoo.com/fired-teaching-job-being-onlyfans-090033910.html)
+- Mar 05 - [A dramatic video shows the moment a skier gets caught in an avalanche and plummets down a mountain](https://news.yahoo.com/dramatic-video-shows-moment-skier-114631368.html)
 <!-- feed end -->
