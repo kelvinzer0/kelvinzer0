@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 05 - [I was fired from my teaching job for being an OnlyFans creator. I then made more than my annual salary in 6 months.](https://news.yahoo.com/fired-teaching-job-being-onlyfans-090033910.html)
 - Mar 05 - [Donald Trump says he could settle Ukraine war in 'one day'](https://news.yahoo.com/trump-gets-rapturous-reception-major-205038305.html)
 - Mar 05 - [Fleeing Florida motorcyclist flips off police before getting hit by truck](https://news.yahoo.com/fleeing-florida-motorcyclist-flips-off-035016557.html)
 - Mar 04 - [Wagner Boss Appears to Issue Veiled Threat to Kremlin in Ominous Video](https://news.yahoo.com/wagner-boss-appears-issue-veiled-232627769.html)
 - Mar 04 - ['Bamboozled' carjackers end up empty handed after trying to take Houston man's car at gunpoint](https://news.yahoo.com/bamboozled-carjackers-end-empty-handed-231552796.html)
-- Mar 04 - [Russians use new 1.5 ton gliding bombs against Ukraine](https://news.yahoo.com/russians-1-5-ton-gliding-205627213.html)
 <!-- feed end -->
