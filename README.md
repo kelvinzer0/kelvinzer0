@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 05 - [23 Devastating, Difficult, And Complicated Reasons People Had To Walk Away From Their Marriages](https://news.yahoo.com/23-devastating-difficult-complicated-reasons-105156875.html)
 - Mar 05 - [Trump gets rapturous reception at major US Republican conference](https://news.yahoo.com/trump-gets-rapturous-reception-major-205038305.html)
 - Mar 05 - [Trump pitches a sequel, but shies away from attacking rivals](https://news.yahoo.com/trump-says-indictment-not-end-001215303.html)
 - Mar 04 - ['Bamboozled' carjackers end up empty handed after trying to take Houston man's car at gunpoint](https://news.yahoo.com/bamboozled-carjackers-end-empty-handed-231552796.html)
 - Mar 04 - [Russians use new 1.5 ton gliding bombs against Ukraine](https://news.yahoo.com/russians-1-5-ton-gliding-205627213.html)
+- Mar 04 - [White teachers often talk about Black students in racially coded ways](https://news.yahoo.com/white-teachers-often-talk-black-133302970.html)
 <!-- feed end -->
