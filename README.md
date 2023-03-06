@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 06 - [Kari Lake Campaign Says She Wouldn't Be Trump's VP For The Most Absurd Reason](https://news.yahoo.com/kari-lake-campaign-says-she-121636641.html)
+- Mar 06 - ['It’s been a pretty common thing': More arrested for running prostitution ring in Louisiana massage parlors](https://news.yahoo.com/pretty-common-thing-more-arrested-115732881.html)
+- Mar 06 - [Philippine leader orders crackdown after governor's killing](https://news.yahoo.com/philippine-leader-orders-crackdown-governors-114439381.html)
+- Mar 06 - [Newt Gingrich Calls On Florida Republican To Back Away From 'Insane' Bill](https://news.yahoo.com/newt-gingrich-calls-florida-republican-103134318.html)
 - Mar 06 - [Chris Rock says he got his daughter kicked out of school so she could 'learn her lesson' after being caught sneaking out and drinking](https://news.yahoo.com/chris-rock-says-got-daughter-101834859.html)
-- Mar 06 - [Putin’s gymnast 'lover' boasted of being with her 'ideal man' in unearthed interview](https://news.yahoo.com/putin-gymnast-lover-boasted-ideal-155222633.html)
-- Mar 06 - [US-sanctioned Russian ship loaded with military cargo enters Black Sea – media reports](https://news.yahoo.com/us-sanctioned-russian-ship-loaded-094900405.html)
-- Mar 06 - [This beachfront Florida town was just voted one of the best small towns in the U.S.](https://news.yahoo.com/beachfront-florida-town-just-voted-093000142.html)
-- Mar 06 - [Prigozhin warns 'entire front will fall to Russia borders, and maybe further'](https://news.yahoo.com/prigozhin-warns-entire-front-fall-091000620.html)
 <!-- feed end -->
