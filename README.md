@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 06 - ['Dilbert,' Scott Adams draw ire from fellow cartoonists](https://news.yahoo.com/dilbert-scott-adams-draw-ire-175352897.html)
 - Mar 06 - [Cardiff car crash victims lay undiscovered for 46 hours after police told family to ‘stop ringing’](https://news.yahoo.com/cardiff-car-crash-victims-lay-152007090.html)
-- Mar 06 - [Virginia DOC says execution audio tapes should remain secret](https://news.yahoo.com/virginia-doc-says-execution-audio-145406712.html)
-- Mar 06 - [Archaeologists in Egypt unearth Sphinx-like Roman-era statue](https://news.yahoo.com/archaeologists-egypt-unearth-sphinx-roman-142040165.html)
-- Mar 06 - [Dozens Arrested for Attacking Cops with Molotov Cocktails, Bricks at Atlanta Training Facility](https://news.yahoo.com/dozens-arrested-attacking-cops-molotov-134532498.html)
-- Mar 06 - [Trump’s Threat of a Third-Party Run Is Undercut by ‘Sore Loser’ Laws](https://news.yahoo.com/trump-threat-third-party-run-130000407.html)
+- Mar 06 - [Rupert Murdoch said Fox News continued airing Mike Lindell's ads even after his voter fraud rants because of how much 'green' Lindell provided for the network: court filing](https://news.yahoo.com/rupert-murdoch-said-fox-news-030604279.html)
+- Mar 06 - [Dentist warns against 1 habit that leaves 'the baddest, toughest' germs in your mouth](https://news.yahoo.com/dentist-warns-against-1-habit-123125365.html)
+- Mar 06 - [Spain asks U.S. to begin cleanup of nuclear accident site](https://news.yahoo.com/spain-asks-u-begin-cleanup-162454201.html)
 <!-- feed end -->
