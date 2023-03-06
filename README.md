@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 06 - ['Dilbert,' Scott Adams draw ire from fellow cartoonists](https://news.yahoo.com/dilbert-scott-adams-draw-ire-175352897.html)
 - Mar 06 - [Cardiff car crash victims lay undiscovered for 46 hours after police told family to ‘stop ringing’](https://news.yahoo.com/cardiff-car-crash-victims-lay-152007090.html)
+- Mar 06 - [2 Native Hawaiians sentenced to prison for hate-crime beating of white homeowner](https://news.yahoo.com/2-native-hawaiians-sentenced-prison-182136874.html)
+- Mar 06 - ['Dilbert,' Scott Adams draw ire from fellow cartoonists](https://news.yahoo.com/dilbert-scott-adams-draw-ire-175352897.html)
+- Mar 06 - [23 charged with domestic terrorism after violent night at Atlanta public safety training center site](https://news.yahoo.com/23-charged-domestic-terrorism-violent-171109871.html)
 - Mar 06 - [Rupert Murdoch said Fox News continued airing Mike Lindell's ads even after his voter fraud rants because of how much 'green' Lindell provided for the network: court filing](https://news.yahoo.com/rupert-murdoch-said-fox-news-030604279.html)
-- Mar 06 - [Dentist warns against 1 habit that leaves 'the baddest, toughest' germs in your mouth](https://news.yahoo.com/dentist-warns-against-1-habit-123125365.html)
-- Mar 06 - [Spain asks U.S. to begin cleanup of nuclear accident site](https://news.yahoo.com/spain-asks-u-begin-cleanup-162454201.html)
 <!-- feed end -->
