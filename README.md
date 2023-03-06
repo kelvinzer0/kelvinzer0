@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 06 - [Cardiff car crash victims lay undiscovered for 46 hours after police told family to ‘stop ringing’](https://news.yahoo.com/cardiff-car-crash-victims-lay-152007090.html)
+- Mar 06 - [Virginia DOC says execution audio tapes should remain secret](https://news.yahoo.com/virginia-doc-says-execution-audio-145406712.html)
 - Mar 06 - [Archaeologists in Egypt unearth Sphinx-like Roman-era statue](https://news.yahoo.com/archaeologists-egypt-unearth-sphinx-roman-142040165.html)
-- Mar 06 - [1 dead, 9 hurt in stampede at GloRilla concert in New York](https://news.yahoo.com/1-dead-8-injured-upstate-122339939.html)
-- Mar 06 - [Kari Lake Campaign Says She Wouldn't Be Trump's VP For The Most Absurd Reason](https://news.yahoo.com/kari-lake-campaign-says-she-121636641.html)
-- Mar 06 - ['It’s been a pretty common thing': More arrested for running prostitution ring in Louisiana massage parlors](https://news.yahoo.com/pretty-common-thing-more-arrested-115732881.html)
-- Mar 06 - [Philippine leader orders crackdown after governor's killing](https://news.yahoo.com/philippine-leader-orders-crackdown-governors-114439381.html)
+- Mar 06 - [Dozens Arrested for Attacking Cops with Molotov Cocktails, Bricks at Atlanta Training Facility](https://news.yahoo.com/dozens-arrested-attacking-cops-molotov-134532498.html)
+- Mar 06 - [Trump’s Threat of a Third-Party Run Is Undercut by ‘Sore Loser’ Laws](https://news.yahoo.com/trump-threat-third-party-run-130000407.html)
 <!-- feed end -->
