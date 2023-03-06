@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 06 - [I grew up overweight and stressed out by my body — these 4 Japanese principles helped me find my health again](https://news.yahoo.com/grew-overweight-stressed-body-4-040205186.html)
 - Mar 06 - [GOP Strategist Spots 'Horrible' Sign For Trump In CPAC Straw Poll](https://news.yahoo.com/gop-strategist-spots-horrible-sign-030342589.html)
+- Mar 06 - [Arizona police arrest 17 men in Phoenix suburb during multi-week sex crime operation](https://news.yahoo.com/arizona-police-arrest-17-men-015851749.html)
 - Mar 06 - [China Premier Li Keqiang bows out as Xi loyalists take reins](https://news.yahoo.com/china-premier-li-keqiang-bows-011015163.html)
 - Mar 06 - [A property flipper bought a historic Black cemetery after the city of Tampa unexpectedly lost control of the property in a blind auction. The city's mayor 'may as well have spit on those graves,' preservationist says.](https://news.yahoo.com/property-flipper-bought-historic-black-002053906.html)
-- Mar 05 - [Virginia airport TSA checkpoint X-ray machine accidentally scans traveler's pet: 'cat-astrophic mistake'](https://news.yahoo.com/virginia-airport-tsa-checkpoint-x-210907071.html)
-- Mar 05 - [Durant tiebreaker lifts Suns over Mavs in showcase of stars](https://news.yahoo.com/durant-tiebreaker-lifts-suns-over-210539495.html)
 <!-- feed end -->
