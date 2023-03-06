@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 06 - [23 charged with domestic terrorism after violent night at Atlanta public safety training center site](https://news.yahoo.com/23-charged-domestic-terrorism-violent-171109871.html)
+- Mar 06 - [Finchem sanctioned over 'baseless' Arizona election suit](https://news.yahoo.com/finchem-sanctioned-over-baseless-arizona-225309870.html)
+- Mar 06 - [Prisoner of war hailed a hero for declaring ‘glory to Ukraine’ moments before execution](https://news.yahoo.com/prisoner-war-hailed-hero-declaring-215539208.html)
+- Mar 06 - [Hayden Panettiere says she got a breast reduction because her body still didn't feel like it 'belonged' to her after she got sober](https://news.yahoo.com/hayden-panettiere-says-she-got-215048477.html)
 - Mar 06 - [Tribes bury Southern California's famed mountain lion, P-22](https://news.yahoo.com/tribes-bury-southern-californias-famed-214956623.html)
-- Mar 06 - [2 Capitol riot defendants sought by FBI after disappearing](https://news.yahoo.com/2-capitol-riot-defendants-sought-212547682.html)
-- Mar 06 - [Father of Nashville Waffle House shooter gets 18 months](https://news.yahoo.com/father-nashville-waffle-house-shooter-210854003.html)
-- Mar 06 - [Mark Wahlberg ran into a Dallas teacher and filmed a message for her students](https://news.yahoo.com/mark-wahlberg-ran-dallas-teacher-205228908.html)
-- Mar 06 - [Couple goes viral for filming daughter's reaction to hearing them having sex](https://news.yahoo.com/couple-goes-viral-filming-daughters-202805661.html)
 <!-- feed end -->
