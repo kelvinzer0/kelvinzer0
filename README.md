@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 06 - [Chris Rock says he got his daughter kicked out of school so she could 'learn her lesson' after being caught sneaking out and drinking](https://news.yahoo.com/chris-rock-says-got-daughter-101834859.html)
 - Mar 06 - [Putin’s gymnast 'lover' boasted of being with her 'ideal man' in unearthed interview](https://news.yahoo.com/putin-gymnast-lover-boasted-ideal-155222633.html)
 - Mar 06 - [US-sanctioned Russian ship loaded with military cargo enters Black Sea – media reports](https://news.yahoo.com/us-sanctioned-russian-ship-loaded-094900405.html)
 - Mar 06 - [This beachfront Florida town was just voted one of the best small towns in the U.S.](https://news.yahoo.com/beachfront-florida-town-just-voted-093000142.html)
-- Mar 06 - [OUCH! Chris Christie Hits Trump Right In His Sorest Of All Sore Spots](https://news.yahoo.com/ouch-chris-christie-hits-trump-075414338.html)
-- Mar 06 - [Cancun taxi drivers throw wrench in spring break plans as Americans flock to Mexican destination](https://news.yahoo.com/cancun-taxi-drivers-throw-wrench-070019198.html)
+- Mar 06 - [Prigozhin warns 'entire front will fall to Russia borders, and maybe further'](https://news.yahoo.com/prigozhin-warns-entire-front-fall-091000620.html)
 <!-- feed end -->
