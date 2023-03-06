@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 06 - [Ex-Raider Ruggs' felony DUI case stalled by fight over judge](https://news.yahoo.com/ex-raider-ruggs-felony-dui-193435895.html)
+- Mar 06 - [Investigation launched after man in China allegedly forced to eat feces after torturing cats to death](https://news.yahoo.com/investigation-launched-man-china-allegedly-192240482.html)
 - Mar 06 - [Cardiff car crash victims lay undiscovered for 46 hours after police told family to ‘stop ringing’](https://news.yahoo.com/cardiff-car-crash-victims-lay-152007090.html)
+- Mar 06 - [Trump Org trial: NY fraud case has so much evidence that defense complains they don't have time to review it](https://news.yahoo.com/trump-lawyers-complain-theres-much-183728169.html)
 - Mar 06 - [2 Native Hawaiians sentenced to prison for hate-crime beating of white homeowner](https://news.yahoo.com/2-native-hawaiians-sentenced-prison-182136874.html)
-- Mar 06 - ['Dilbert,' Scott Adams draw ire from fellow cartoonists](https://news.yahoo.com/dilbert-scott-adams-draw-ire-175352897.html)
-- Mar 06 - [23 charged with domestic terrorism after violent night at Atlanta public safety training center site](https://news.yahoo.com/23-charged-domestic-terrorism-violent-171109871.html)
-- Mar 06 - [Rupert Murdoch said Fox News continued airing Mike Lindell's ads even after his voter fraud rants because of how much 'green' Lindell provided for the network: court filing](https://news.yahoo.com/rupert-murdoch-said-fox-news-030604279.html)
 <!-- feed end -->
