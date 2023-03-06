@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 06 - [Activists are facing domestic terrorism charges after fiery clashes with Atlanta police](https://news.yahoo.com/atlanta-police-arrest-dozens-cars-135253390.html)
-- Mar 06 - [Feds: Woman funded lavish lifestyle with stolen COVID funds](https://news.yahoo.com/feds-woman-funded-lavish-lifestyle-203111503.html)
+- Mar 06 - [Tribes bury Southern California's famed mountain lion, P-22](https://news.yahoo.com/tribes-bury-southern-californias-famed-214956623.html)
+- Mar 06 - [2 Capitol riot defendants sought by FBI after disappearing](https://news.yahoo.com/2-capitol-riot-defendants-sought-212547682.html)
+- Mar 06 - [Father of Nashville Waffle House shooter gets 18 months](https://news.yahoo.com/father-nashville-waffle-house-shooter-210854003.html)
+- Mar 06 - [Mark Wahlberg ran into a Dallas teacher and filmed a message for her students](https://news.yahoo.com/mark-wahlberg-ran-dallas-teacher-205228908.html)
 - Mar 06 - [Couple goes viral for filming daughter's reaction to hearing them having sex](https://news.yahoo.com/couple-goes-viral-filming-daughters-202805661.html)
-- Mar 06 - [Several GOP states pull out of effort to thwart voter fraud](https://news.yahoo.com/several-gop-states-pull-effort-201249484.html)
-- Mar 06 - [A TikToker sparked debate with a 'poor man's first class' flight hack to buy an entire row of seats and then refunding it before the trip](https://news.yahoo.com/tiktoker-sparked-debate-poor-mans-193859871.html)
 <!-- feed end -->
