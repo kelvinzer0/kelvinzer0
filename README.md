@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 06 - [First Gen Z Congressman Shreds Ron DeSantis With 1 Damning Word](https://news.yahoo.com/first-gen-z-congressman-shreds-063730922.html)
 - Mar 06 - [Toblerone chocolate could lose its iconic Swiss mountain logo because it won't be able to meet the country's standard of 'Swissness'](https://news.yahoo.com/toblerone-chocolate-could-lose-iconic-051425301.html)
 - Mar 06 - [Drivers stage strike over plan vs aging Philippine jeepneys](https://news.yahoo.com/drivers-stage-strike-over-plan-044528038.html)
 - Mar 06 - [I grew up overweight and stressed out by my body — these 4 Japanese principles helped me find my health again](https://news.yahoo.com/grew-overweight-stressed-body-4-040205186.html)
 - Mar 06 - [GOP Strategist Spots 'Horrible' Sign For Trump In CPAC Straw Poll](https://news.yahoo.com/gop-strategist-spots-horrible-sign-030342589.html)
-- Mar 06 - [Arizona police arrest 17 men in Phoenix suburb during multi-week sex crime operation](https://news.yahoo.com/arizona-police-arrest-17-men-015851749.html)
 <!-- feed end -->
