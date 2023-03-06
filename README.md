@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 06 - [1 dead, 8 hurt in stampede at GloRilla concert in New York](https://news.yahoo.com/1-dead-8-injured-upstate-122339939.html)
+- Mar 06 - [Archaeologists in Egypt unearth Sphinx-like Roman-era statue](https://news.yahoo.com/archaeologists-egypt-unearth-sphinx-roman-142040165.html)
+- Mar 06 - [1 dead, 9 hurt in stampede at GloRilla concert in New York](https://news.yahoo.com/1-dead-8-injured-upstate-122339939.html)
 - Mar 06 - [Kari Lake Campaign Says She Wouldn't Be Trump's VP For The Most Absurd Reason](https://news.yahoo.com/kari-lake-campaign-says-she-121636641.html)
 - Mar 06 - ['It’s been a pretty common thing': More arrested for running prostitution ring in Louisiana massage parlors](https://news.yahoo.com/pretty-common-thing-more-arrested-115732881.html)
 - Mar 06 - [Philippine leader orders crackdown after governor's killing](https://news.yahoo.com/philippine-leader-orders-crackdown-governors-114439381.html)
-- Mar 06 - [‘Horrifying’ flight diverted as some passengers vomit in 9-hour ordeal, travelers say](https://news.yahoo.com/horrifying-flight-diverted-passengers-vomit-112140010.html)
 <!-- feed end -->
