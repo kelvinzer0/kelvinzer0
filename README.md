@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 06 - [Ex-Raider Ruggs' felony DUI case stalled by fight over judge](https://news.yahoo.com/ex-raider-ruggs-felony-dui-193435895.html)
-- Mar 06 - [Investigation launched after man in China allegedly forced to eat feces after torturing cats to death](https://news.yahoo.com/investigation-launched-man-china-allegedly-192240482.html)
-- Mar 06 - [Cardiff car crash victims lay undiscovered for 46 hours after police told family to ‘stop ringing’](https://news.yahoo.com/cardiff-car-crash-victims-lay-152007090.html)
-- Mar 06 - [Trump Org trial: NY fraud case has so much evidence that defense complains they don't have time to review it](https://news.yahoo.com/trump-lawyers-complain-theres-much-183728169.html)
-- Mar 06 - [2 Native Hawaiians sentenced to prison for hate-crime beating of white homeowner](https://news.yahoo.com/2-native-hawaiians-sentenced-prison-182136874.html)
+- Mar 06 - [Activists are facing domestic terrorism charges after fiery clashes with Atlanta police](https://news.yahoo.com/atlanta-police-arrest-dozens-cars-135253390.html)
+- Mar 06 - [Feds: Woman funded lavish lifestyle with stolen COVID funds](https://news.yahoo.com/feds-woman-funded-lavish-lifestyle-203111503.html)
+- Mar 06 - [Couple goes viral for filming daughter's reaction to hearing them having sex](https://news.yahoo.com/couple-goes-viral-filming-daughters-202805661.html)
+- Mar 06 - [Several GOP states pull out of effort to thwart voter fraud](https://news.yahoo.com/several-gop-states-pull-effort-201249484.html)
+- Mar 06 - [A TikToker sparked debate with a 'poor man's first class' flight hack to buy an entire row of seats and then refunding it before the trip](https://news.yahoo.com/tiktoker-sparked-debate-poor-mans-193859871.html)
 <!-- feed end -->
