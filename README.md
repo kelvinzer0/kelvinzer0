@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 07 - [FDA: Two more eyedrops brands recalled due to risks](https://news.yahoo.com/fda-two-more-eyedrops-brands-161744779.html)
+- Mar 07 - [Military veteran convicted of obstruction in Capitol riot](https://news.yahoo.com/military-veteran-convicted-obstruction-capitol-161547603.html)
+- Mar 07 - [Neil Gorsuch cast doubt on a group of atheists' lawsuit over a Florida city's prayer vigil, writing that everything done by the government 'probably offends somebody'](https://news.yahoo.com/neil-gorsuch-cast-doubt-group-154235048.html)
 - Mar 07 - [2 kidnapped Americans found dead in Mexico, 2 others alive](https://news.yahoo.com/official-2-americans-dead-being-151323450.html)
-- Mar 07 - [Teens drive alleged stolen Kia off a Minneapolis overpass in an attempt to evade police](https://news.yahoo.com/teens-drive-alleged-stolen-kia-143444647.html)
-- Mar 07 - [Japan's New H3 Rocket Forced to Self-Destruct During Inaugural Launch](https://news.yahoo.com/japans-h3-rocket-forced-self-023500491.html)
-- Mar 07 - [20 years later, we look back at a cringeworthy Oscars for the ages](https://news.yahoo.com/20-years-later-look-back-140005895.html)
-- Mar 07 - [Marjorie Taylor Greene Wishes Jews A Happy Purim. Oy Vey, Says Twitter.](https://news.yahoo.com/marjorie-taylor-greene-wishes-jews-132914069.html)
+- Mar 07 - [New York mayor says retailers must force shoppers to remove masks when entering stores to prevent crime. 'It's not about being fearful of a pandemic.'](https://news.yahoo.com/york-mayor-says-retailers-must-151236377.html)
 <!-- feed end -->
