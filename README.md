@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 07 - [I Stood Outside The Most Expensive Grocery Store In Los Angeles, Then Asked People What They Bought And How Much Money They Make](https://news.yahoo.com/stood-outside-most-expensive-grocery-013727529.html)
+- Mar 07 - [Georgia nuclear plant begins splitting atoms for first time](https://news.yahoo.com/georgia-nuclear-plant-begins-splitting-020042885.html)
+- Mar 07 - [Family sues Airbnb after 19-month-old dies of fentanyl toxicity during Florida vacation](https://news.yahoo.com/family-sues-airbnb-19-month-011515118.html)
 - Mar 06 - [Kim's sister warns N. Korea ready to act against US, South](https://news.yahoo.com/kims-sister-warns-overwhelming-step-235732716.html)
-- Mar 06 - [Hope Hicks meets with NY prosecutors investigating Trump](https://news.yahoo.com/hope-hicks-meets-ny-prosecutors-233901300.html)
 - Mar 06 - [Republicans issue subpoenas to former school board officials](https://news.yahoo.com/republicans-issue-subpoenas-former-school-233853279.html)
 - Mar 06 - [23 charged with domestic terrorism after violent night at Atlanta public safety training center site](https://news.yahoo.com/23-charged-domestic-terrorism-violent-171109871.html)
 <!-- feed end -->
