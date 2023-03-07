@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 07 - [A couple booked a 14-course meal as cover to steal $1.7 million worth of wine from a Michelin-star restaurant](https://news.yahoo.com/couple-booked-14-course-meal-100508056.html)
+- Mar 07 - [If you want to balance the budget without raising taxes or cutting defense, Social Security, and Medicare, you'd probably have to fire nearly every park ranger and cut 70% of anti-poverty spending](https://news.yahoo.com/want-balance-budget-without-raising-100000676.html)
 - Mar 07 - [Prigozhin’s Wagner approaching collapse, lost almost all of its mercenaries – Cherevaty](https://news.yahoo.com/prigozhin-wagner-approaching-collapse-lost-094500692.html)
 - Mar 07 - [Michelle Obama said she sobbed uncontrollably for 30 minutes straight after leaving the White House on Trump's inauguration day](https://news.yahoo.com/michelle-obama-said-she-sobbed-084939636.html)
 - Mar 07 - ['We will find the killers': Outrage over video showing Ukrainian soldier's apparent execution; military wants to defend Bakhmut: Updates](https://news.yahoo.com/russian-mercenary-chief-accuses-military-140850965.html)
-- Mar 07 - [Ukraine-Russia war: Early spring mud prevents Ukraine from supplying defensive lines](https://news.yahoo.com/ukraine-russia-war-russian-officers-072227072.html)
-- Mar 07 - [Tucker’s Jan. 6 Bombshell? Josh Hawley Wasn’t the Only Senator Running](https://news.yahoo.com/tucker-jan-6-bombshell-josh-034643901.html)
 <!-- feed end -->
