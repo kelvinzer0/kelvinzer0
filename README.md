@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 07 - [2 kidnapped Americans found dead in Mexico, 2 others alive](https://news.yahoo.com/official-2-americans-dead-being-151323450.html)
 - Mar 07 - [Teens drive alleged stolen Kia off a Minneapolis overpass in an attempt to evade police](https://news.yahoo.com/teens-drive-alleged-stolen-kia-143444647.html)
+- Mar 07 - [Japan's New H3 Rocket Forced to Self-Destruct During Inaugural Launch](https://news.yahoo.com/japans-h3-rocket-forced-self-023500491.html)
 - Mar 07 - [20 years later, we look back at a cringeworthy Oscars for the ages](https://news.yahoo.com/20-years-later-look-back-140005895.html)
 - Mar 07 - [Marjorie Taylor Greene Wishes Jews A Happy Purim. Oy Vey, Says Twitter.](https://news.yahoo.com/marjorie-taylor-greene-wishes-jews-132914069.html)
-- Mar 07 - ['Jeopardy!' tournament: Everyone's stumped by final clue, including SW FL's Sattler](https://news.yahoo.com/jeopardy-tournament-everyones-stumped-final-132617255.html)
-- Mar 07 - [A TikToker who went hugely viral saying she married her stepdad has baffled viewers by sharing the 'real story' about her husband](https://news.yahoo.com/tiktoker-went-hugely-viral-saying-131907421.html)
 <!-- feed end -->
