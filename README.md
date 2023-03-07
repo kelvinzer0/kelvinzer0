@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 07 - [This Resurfaced Clip Of Hailey And Justin Bieber Making Fun Of Taylor Swift Is Going Viral And It's Not Ok](https://news.yahoo.com/resurfaced-clip-hailey-justin-bieber-214710163.html)
-- Mar 07 - [2 kidnapped Americans found dead in Mexico, 2 survivors have returned to the US: Live updates](https://news.yahoo.com/search-continues-4-americans-kidnapped-131845889.html)
-- Mar 07 - [Fox News Edits Out Trump Saying He Might’ve Let Russia ‘Take Over’ Parts of Ukraine](https://news.yahoo.com/fox-news-edits-trump-saying-210420818.html)
-- Mar 07 - [I hid that I was autistic during my first few weeks at UCLA. I was forced to go home because I wore myself out socially.](https://news.yahoo.com/hid-autistic-during-first-few-201610389.html)
+- Mar 07 - [FBI: We need help finding this missing Michigan woman. She may have been killed.](https://news.yahoo.com/fbi-help-finding-missing-michigan-222753385.html)
+- Mar 07 - [Is Mexico travel safe? What to know about visiting Cabo, Cancun, Playa del Carmen and more](https://news.yahoo.com/mexico-travel-safe-know-visiting-212219780.html)
 - Mar 07 - [NC’s Tillis has one word to describe Tucker Carlson’s latest Jan. 6 coverage on Fox News](https://news.yahoo.com/nc-tillis-one-word-describe-200414115.html)
+- Mar 07 - [‘You’ve Been Screwed’: Russian Inmates Rebel and Flee From Commanders](https://news.yahoo.com/ve-screwed-russian-inmates-rebel-193912827.html)
+- Mar 07 - [Ukraine’s secret weapon should terrify Putin](https://news.yahoo.com/ukraine-secret-weapon-terrify-putin-190000184.html)
 <!-- feed end -->
