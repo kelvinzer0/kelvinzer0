@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 07 - [Michelle Obama said she sobbed uncontrollably for 30 minutes straight after leaving the White House on Trump's inauguration day](https://news.yahoo.com/michelle-obama-said-she-sobbed-084939636.html)
 - Mar 07 - ['We will find the killers': Outrage over video showing Ukrainian soldier's apparent execution; military wants to defend Bakhmut: Updates](https://news.yahoo.com/russian-mercenary-chief-accuses-military-140850965.html)
 - Mar 07 - [Ukraine-Russia war: Russian officers mutiny after devastating tank battle](https://news.yahoo.com/ukraine-russia-war-russian-officers-072227072.html)
-- Mar 07 - [Former RNC Spokesperson Calls Out Kari Lake's Election Lies To Her Face](https://news.yahoo.com/former-rnc-spokesperson-calls-kari-052000839.html)
 - Mar 07 - [Tucker’s Jan. 6 Bombshell? Josh Hawley Wasn’t the Only Senator Running](https://news.yahoo.com/tucker-jan-6-bombshell-josh-034643901.html)
 - Mar 07 - [Georgia nuclear plant begins splitting atoms for first time](https://news.yahoo.com/georgia-nuclear-plant-begins-splitting-020042885.html)
 <!-- feed end -->
