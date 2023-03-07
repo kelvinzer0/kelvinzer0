@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 07 - [This Guy Morphed 36 Celebrity Faces Together, And They Range From Scary, To Hot, To "Holy Crap"](https://news.yahoo.com/guy-morphed-36-celebrity-faces-090858576.html)
 - Mar 07 - [Tucker’s Jan. 6 Bombshell? Josh Hawley Wasn’t the Only Senator Running](https://news.yahoo.com/tucker-jan-6-bombshell-josh-034643901.html)
 - Mar 07 - [Georgia nuclear plant begins splitting atoms for first time](https://news.yahoo.com/georgia-nuclear-plant-begins-splitting-020042885.html)
 - Mar 07 - [Family sues Airbnb after 19-month-old dies of fentanyl toxicity during Florida vacation](https://news.yahoo.com/family-sues-airbnb-19-month-011515118.html)
-- Mar 06 - [Kim's sister warns N. Korea ready to act against US, South](https://news.yahoo.com/kims-sister-warns-overwhelming-step-235732716.html)
-- Mar 06 - [Biden trips going up Air Force One steps again, second time in two weeks](https://news.yahoo.com/biden-trips-going-air-force-234928170.html)
+- Mar 07 - ['We will find the killers': Outrage over video showing Ukrainian soldier's apparent execution; military wants to defend Bakhmut: Updates](https://news.yahoo.com/russian-mercenary-chief-accuses-military-140850965.html)
 <!-- feed end -->
