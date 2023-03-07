@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 07 - [DeSantis praises wife’s fight against cancer at State of the State address](https://news.yahoo.com/desantis-praises-wife-fight-against-175403694.html)
-- Mar 07 - [Federal Reserve Chair Jerome Powell says interest rates may rise higher than anticipated](https://news.yahoo.com/federal-chair-jerome-powell-says-173837580.html)
-- Mar 07 - [Don’t look inside this Texas house for sale if you ‘want to sleep tonight.’ Seriously](https://news.yahoo.com/don-t-look-inside-texas-171933180.html)
-- Mar 07 - [Ukraine military identifies soldier seen in grisly war video](https://news.yahoo.com/ukraine-military-identifies-soldier-seen-162345467.html)
-- Mar 07 - [FDA: Two more eyedrop brands recalled due to risks](https://news.yahoo.com/fda-two-more-eyedrops-brands-161744779.html)
+- Mar 07 - [Two Americans dead after Mexico kidnapping, State Department urges Americans not to visit](https://news.yahoo.com/americans-assaulted-kidnapped-mexico-state-135721268.html)
+- Mar 07 - [2 kidnapped Americans found dead in Mexico, 2 survivors have returned to the US: Live updates](https://news.yahoo.com/search-continues-4-americans-kidnapped-131845889.html)
+- Mar 07 - ['An egregious violation of journalism ethics': Experts slam Fox News’ conduct in Dominion case](https://news.yahoo.com/an-egregious-violation-of-journalism-ethics-experts-slam-fox-news-conduct-in-dominion-case-184832045.html)
+- Mar 07 - [Court considers if parents of school shooter can be charged](https://news.yahoo.com/michigan-court-hears-case-parents-183115235.html)
+- Mar 07 - [Elizabeth Warren asks Fed Chair Powell to 'speak directly' to the people he's 'planning to get fired over the next year' by continuing to hike interest rates](https://news.yahoo.com/elizabeth-warren-asks-fed-chair-173904383.html)
 <!-- feed end -->
