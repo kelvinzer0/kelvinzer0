@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 07 - [Marjorie Taylor Greene Wishes Jews A Happy Purim. Oy Vey, Says Twitter.](https://news.yahoo.com/marjorie-taylor-greene-wishes-jews-132914069.html)
+- Mar 07 - [A TikToker who went hugely viral saying she married her stepdad has baffled viewers by sharing the 'real story' about her husband](https://news.yahoo.com/tiktoker-went-hugely-viral-saying-131907421.html)
+- Mar 07 - [Breaking Silence, Murdaugh Brother Says 'Not Knowing Is the Worst Thing'](https://news.yahoo.com/breaking-silence-murdaugh-brother-says-130933073.html)
 - Mar 07 - ['Wednesday' star Jenna Ortega says she was 'unprofessional' and changed lines while filming, and also vetoed a flash mob during her viral dance scene](https://news.yahoo.com/wednesday-star-jenna-ortega-says-114910486.html)
-- Mar 07 - [If you want to balance the budget without raising taxes or cutting defense, Social Security, and Medicare, you'd probably have to fire nearly every park ranger and cut 70% of anti-poverty spending](https://news.yahoo.com/want-balance-budget-without-raising-100000676.html)
-- Mar 07 - [Prigozhin’s Wagner approaching collapse, lost almost all of its mercenaries – Cherevaty](https://news.yahoo.com/prigozhin-wagner-approaching-collapse-lost-094500692.html)
-- Mar 07 - ['We will find the killers': Outrage over video showing Ukrainian soldier's apparent execution; military wants to defend Bakhmut: Updates](https://news.yahoo.com/russian-mercenary-chief-accuses-military-140850965.html)
-- Mar 07 - [Michelle Obama Bluntly Fact-Checks One Of Trump's Most Infamous Lies](https://news.yahoo.com/michelle-obama-bluntly-fact-checks-080114277.html)
+- Mar 07 - [Zelensky says Ukraine is reinforcing Bakhmut positions, not withdrawing. Here's why that may pay off.](https://news.yahoo.com/zelensky-says-ukraine-reinforcing-bakhmut-102425074.html)
 <!-- feed end -->
