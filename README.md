@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 07 - [Teens drive alleged stolen Kia off a Minneapolis overpass in an attempt to evade police](https://news.yahoo.com/teens-drive-alleged-stolen-kia-143444647.html)
+- Mar 07 - [20 years later, we look back at a cringeworthy Oscars for the ages](https://news.yahoo.com/20-years-later-look-back-140005895.html)
 - Mar 07 - [Marjorie Taylor Greene Wishes Jews A Happy Purim. Oy Vey, Says Twitter.](https://news.yahoo.com/marjorie-taylor-greene-wishes-jews-132914069.html)
+- Mar 07 - ['Jeopardy!' tournament: Everyone's stumped by final clue, including SW FL's Sattler](https://news.yahoo.com/jeopardy-tournament-everyones-stumped-final-132617255.html)
 - Mar 07 - [A TikToker who went hugely viral saying she married her stepdad has baffled viewers by sharing the 'real story' about her husband](https://news.yahoo.com/tiktoker-went-hugely-viral-saying-131907421.html)
-- Mar 07 - [Breaking Silence, Murdaugh Brother Says 'Not Knowing Is the Worst Thing'](https://news.yahoo.com/breaking-silence-murdaugh-brother-says-130933073.html)
-- Mar 07 - ['Wednesday' star Jenna Ortega says she was 'unprofessional' and changed lines while filming, and also vetoed a flash mob during her viral dance scene](https://news.yahoo.com/wednesday-star-jenna-ortega-says-114910486.html)
-- Mar 07 - [Zelensky says Ukraine is reinforcing Bakhmut positions, not withdrawing. Here's why that may pay off.](https://news.yahoo.com/zelensky-says-ukraine-reinforcing-bakhmut-102425074.html)
 <!-- feed end -->
