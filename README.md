@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 07 - [This Guy Morphed 36 Celebrity Faces Together, And They Range From Scary, To Hot, To "Holy Crap"](https://news.yahoo.com/guy-morphed-36-celebrity-faces-090858576.html)
+- Mar 07 - [Former RNC Spokesperson Calls Out Kari Lake's Election Lies To Her Face](https://news.yahoo.com/former-rnc-spokesperson-calls-kari-052000839.html)
 - Mar 07 - [Tucker’s Jan. 6 Bombshell? Josh Hawley Wasn’t the Only Senator Running](https://news.yahoo.com/tucker-jan-6-bombshell-josh-034643901.html)
 - Mar 07 - [Georgia nuclear plant begins splitting atoms for first time](https://news.yahoo.com/georgia-nuclear-plant-begins-splitting-020042885.html)
 - Mar 07 - [Family sues Airbnb after 19-month-old dies of fentanyl toxicity during Florida vacation](https://news.yahoo.com/family-sues-airbnb-19-month-011515118.html)
