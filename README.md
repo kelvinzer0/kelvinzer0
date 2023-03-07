@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 07 - [Chuck Schumer condemns Tucker Carlson and Fox News](https://news.yahoo.com/chuck-schumer-condemns-tucker-carlson-192654364.html)
+- Mar 07 - [GOP Senators on Tucker Carlson's Jan. 6 distortion](https://news.yahoo.com/gop-senators-tucker-carlsons-jan-205021746.html)
+- Mar 07 - [Texas, feds settle probe over $9B Houston highway project](https://news.yahoo.com/texas-feds-settle-probe-over-201857606.html)
+- Mar 07 - [NC’s Tillis has one word to describe Tucker Carlson’s latest Jan. 6 coverage on Fox News](https://news.yahoo.com/nc-tillis-one-word-describe-200414115.html)
 - Mar 07 - [2 kidnapped Americans found dead in Mexico, 2 survivors have returned to the US: Live updates](https://news.yahoo.com/search-continues-4-americans-kidnapped-131845889.html)
-- Mar 07 - [Tucker Carlson amplifies Jan. 6 lies with GOP-provided video](https://news.yahoo.com/tucker-carlson-amplifies-jan-6-190749037.html)
 - Mar 07 - [Ukraine’s secret weapon should terrify Putin](https://news.yahoo.com/ukraine-secret-weapon-terrify-putin-190000184.html)
-- Mar 07 - [Video shows United passenger threaten to 'kill every man on this plane'](https://news.yahoo.com/video-shows-united-passenger-threaten-185510261.html)
 <!-- feed end -->
