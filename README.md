@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 07 - [Two Americans dead after Mexico kidnapping, State Department urges Americans not to visit](https://news.yahoo.com/americans-assaulted-kidnapped-mexico-state-135721268.html)
+- Mar 07 - [Chuck Schumer condemns Tucker Carlson and Fox News](https://news.yahoo.com/chuck-schumer-condemns-tucker-carlson-192654364.html)
 - Mar 07 - [2 kidnapped Americans found dead in Mexico, 2 survivors have returned to the US: Live updates](https://news.yahoo.com/search-continues-4-americans-kidnapped-131845889.html)
-- Mar 07 - ['An egregious violation of journalism ethics': Experts slam Fox News’ conduct in Dominion case](https://news.yahoo.com/an-egregious-violation-of-journalism-ethics-experts-slam-fox-news-conduct-in-dominion-case-184832045.html)
-- Mar 07 - [Court considers if parents of school shooter can be charged](https://news.yahoo.com/michigan-court-hears-case-parents-183115235.html)
-- Mar 07 - [Elizabeth Warren asks Fed Chair Powell to 'speak directly' to the people he's 'planning to get fired over the next year' by continuing to hike interest rates](https://news.yahoo.com/elizabeth-warren-asks-fed-chair-173904383.html)
+- Mar 07 - [Tucker Carlson amplifies Jan. 6 lies with GOP-provided video](https://news.yahoo.com/tucker-carlson-amplifies-jan-6-190749037.html)
+- Mar 07 - [Ukraine’s secret weapon should terrify Putin](https://news.yahoo.com/ukraine-secret-weapon-terrify-putin-190000184.html)
+- Mar 07 - [Video shows United passenger threaten to 'kill every man on this plane'](https://news.yahoo.com/video-shows-united-passenger-threaten-185510261.html)
 <!-- feed end -->
