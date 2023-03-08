@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 08 - [NATO chief warns Bakhmut may fall 'in coming days'](https://news.yahoo.com/nato-chief-warns-bakhmut-may-145325972.html)
+- Mar 08 - [Is Mexico travel safe? What to know about visiting Cabo, Cancun, Playa del Carmen and more](https://news.yahoo.com/mexico-travel-safe-know-visiting-212219780.html)
+- Mar 08 - [Homeless man gets 10 years in prison for stealing clothes for warmth](https://news.yahoo.com/homeless-man-gets-10-years-100907965.html)
+- Mar 08 - [Slap fighting: The next big thing, or unsporting stupidity?](https://news.yahoo.com/slap-fighting-next-big-thing-143947942.html)
 - Mar 08 - [14-year-old sucker-punched Florida deputy in head and got smacked back, report says](https://news.yahoo.com/14-old-sucker-punched-florida-122537376.html)
-- Mar 08 - [Homeless man gets up to 10 years in prison for stealing clothes for warmth](https://news.yahoo.com/homeless-man-gets-10-years-100907965.html)
 - Mar 08 - [Bruce Willis' wife hits back at criticism she's getting her '5 minutes' after telling paparazzi to stop yelling at the actor: 'I'm always going to advocate for my husband'](https://news.yahoo.com/bruce-willis-wife-hits-back-111910413.html)
-- Mar 08 - [Philippines launches strategy of publicizing Chinese actions](https://news.yahoo.com/philippines-launches-strategy-publicizing-chinese-105616920.html)
 <!-- feed end -->
