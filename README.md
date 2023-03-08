@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 08 - [First Lady Jill Biden honors women from around the world at a White House ceremony](https://news.yahoo.com/first-lady-jill-biden-honors-215608360.html)
 - Mar 08 - [Alex Jones would get $520,000 salary under bankruptcy plan](https://news.yahoo.com/alex-jones-520-000-salary-212828423.html)
+- Mar 08 - [Swimmers cry for help at Arizona lake, cops say. Then rescuers find their shoes](https://news.yahoo.com/swimmers-cry-help-arizona-lake-212245971.html)
 - Mar 08 - [A cartel's mistake could explain the Mexico kidnappings](https://news.yahoo.com/single-mistake-could-explain-mexico-200033579.html)
 - Mar 08 - [Punches thrown, chaos erupts aboard Southwest Airlines plane in Dallas](https://news.yahoo.com/punches-thrown-chaos-erupts-aboard-211109133.html)
 - Mar 08 - [Famous ‘tequila worm’ found at bottom of bottle isn’t really a worm. So what is it?](https://news.yahoo.com/famous-tequila-worm-found-bottom-205519546.html)
