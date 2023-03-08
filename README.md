@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 08 - [A cartel's mistake could explain the Mexico kidnappings](https://news.yahoo.com/single-mistake-could-explain-mexico-200033579.html)
+- Mar 08 - [Michael B. Jordan And Jonathan Majors Were Caught In 4K Checking Out A Reporter As She Walked Away, And The Reporter Responded](https://news.yahoo.com/michael-b-jordan-jonathan-majors-214134129.html)
 - Mar 08 - [Exotic reptile ‘with very big teeth’ discovered in Pennsylvania park, photos show](https://news.yahoo.com/exotic-reptile-very-big-teeth-193517718.html)
-- Mar 08 - [Mob of masked teens trash Chinese restaurant in Queens, cause $20,000 in damages](https://news.yahoo.com/mob-masked-teens-trash-chinese-192345087.html)
+- Mar 08 - [Mob of masked teens trash Chinese restaurant in Queens, causes $20,000 in damages](https://news.yahoo.com/mob-masked-teens-trash-chinese-192345087.html)
 - Mar 08 - [Gymnast Dunne's AI spot raises questions about NIL ethics](https://news.yahoo.com/gymnast-dunnes-ai-spot-raises-191703695.html)
-- Mar 08 - [A thrifting TikToker thinks she paid $13 for a vintage 1992 Versace dress that could be worth $10,000, achieving her one of her 'ultimate thrift goals'](https://news.yahoo.com/thrifting-tiktoker-thinks-she-paid-184810526.html)
-- Mar 08 - [A Florida stripper saw her ex at the club, cops say. Then she grabbed a ‘wad’ of cash](https://news.yahoo.com/florida-stripper-saw-her-ex-184238710.html)
 <!-- feed end -->
