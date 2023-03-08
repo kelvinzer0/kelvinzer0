@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 08 - [Man accused of trying to open jet’s door](https://news.yahoo.com/man-accused-trying-open-jet-034549097.html)
+- Mar 08 - [Tucker Carlson Tells Viewers to Make a List of Republicans Who Criticize Him](https://news.yahoo.com/tucker-carlson-tells-viewers-list-043521561.html)
 - Mar 08 - [Tucker Carlson said he hates Trump ‘passionately’: legal filings](https://news.yahoo.com/tucker-carlson-said-hates-trump-024609461.html)
 - Mar 08 - [Judge says San Francisco mayor's brother can be resentenced](https://news.yahoo.com/judge-says-san-francisco-mayors-012652820.html)
+- Mar 08 - [What we know about the 4 Carolinians kidnapped in Mexico](https://news.yahoo.com/know-4-carolinians-kidnapped-mexico-214044255.html)
 - Mar 08 - [Execution delayed for death row inmate who cut out his eyes](https://news.yahoo.com/execution-delayed-death-row-inmate-004833428.html)
-- Mar 08 - [Winner of $2-billion Powerball jackpot drops $25.5 million on Hollywood Hills mansion](https://news.yahoo.com/winner-2-billion-powerball-jackpot-003126550.html)
 <!-- feed end -->
