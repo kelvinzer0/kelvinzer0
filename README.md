@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 08 - [Exotic reptile ‘with very big teeth’ discovered in Pennsylvania park, photos show](https://news.yahoo.com/exotic-reptile-very-big-teeth-193517718.html)
+- Mar 08 - [Mob of masked teens trash Chinese restaurant in Queens, cause $20,000 in damages](https://news.yahoo.com/mob-masked-teens-trash-chinese-192345087.html)
+- Mar 08 - [Gymnast Dunne's AI spot raises questions about NIL ethics](https://news.yahoo.com/gymnast-dunnes-ai-spot-raises-191703695.html)
+- Mar 08 - [A thrifting TikToker thinks she paid $13 for a vintage 1992 Versace dress that could be worth $10,000, achieving her one of her 'ultimate thrift goals'](https://news.yahoo.com/thrifting-tiktoker-thinks-she-paid-184810526.html)
 - Mar 08 - [A Florida stripper saw her ex at the club, cops say. Then she grabbed a ‘wad’ of cash](https://news.yahoo.com/florida-stripper-saw-her-ex-184238710.html)
-- Mar 08 - [Putin’s Troops Filmed Threatening to Turn Weapons on Bosses](https://news.yahoo.com/putin-troops-filmed-threatening-turn-171136957.html)
-- Mar 08 - [Man politely robs Utah bank for $1, sits down and waits to be arrested, police say](https://news.yahoo.com/man-politely-robs-utah-bank-154500554.html)
-- Mar 08 - [Arizona resident comes home to bobcat in dog's bed](https://news.yahoo.com/arizona-resident-comes-home-bobcat-153900851.html)
-- Mar 08 - [Wife of American man kidnapped in Mexico says she didn't know he was crossing the border. He just said he needed to help out a couple of friends.](https://news.yahoo.com/wife-american-man-kidnapped-mexico-153457712.html)
 <!-- feed end -->
