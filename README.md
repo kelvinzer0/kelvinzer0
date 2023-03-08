@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 08 - [Judge says San Francisco mayor's brother can be resentenced](https://news.yahoo.com/judge-says-san-francisco-mayors-012652820.html)
 - Mar 08 - [What we know about the 4 Carolinians kidnapped in Mexico](https://news.yahoo.com/know-4-carolinians-kidnapped-mexico-214044255.html)
 - Mar 08 - [Execution delayed for death row inmate who cut out his eyes](https://news.yahoo.com/execution-delayed-death-row-inmate-004833428.html)
 - Mar 08 - [Winner of $2-billion Powerball jackpot drops $25.5 million on Hollywood Hills mansion](https://news.yahoo.com/winner-2-billion-powerball-jackpot-003126550.html)
-- Mar 08 - [Dominion releases new evidence in defamation lawsuit against Fox News](https://news.yahoo.com/dominion-releases-evidence-defamation-lawsuit-000413997.html)
-- Mar 07 - [Would raising the retirement age to 70 save Social Security?](https://news.yahoo.com/would-raising-the-retirement-age-to-70-save-social-security-235715068.html)
+- Mar 08 - [Lawyer: Black Iowa football players at risk under Ferentz](https://news.yahoo.com/lawyer-black-iowa-football-players-000243451.html)
 <!-- feed end -->
