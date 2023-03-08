@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 08 - [14-year-old sucker-punched Florida deputy in head and got smacked back, report says](https://news.yahoo.com/14-old-sucker-punched-florida-122537376.html)
+- Mar 08 - [Homeless man gets up to 10 years in prison for stealing clothes for warmth](https://news.yahoo.com/homeless-man-gets-10-years-100907965.html)
+- Mar 08 - [Bruce Willis' wife hits back at criticism she's getting her '5 minutes' after telling paparazzi to stop yelling at the actor: 'I'm always going to advocate for my husband'](https://news.yahoo.com/bruce-willis-wife-hits-back-111910413.html)
+- Mar 08 - [Philippines launches strategy of publicizing Chinese actions](https://news.yahoo.com/philippines-launches-strategy-publicizing-chinese-105616920.html)
 - Mar 08 - [An extremely alarming call for Putin. The ghost of 1917 appeared in Russia](https://news.yahoo.com/extremely-alarming-call-putin-ghost-105400650.html)
-- Mar 08 - [Donald Trump Jr.'s Question About Fox News 'Truth' Gets Brutally Honest Answers](https://news.yahoo.com/donald-trump-jr-fox-news-092825460.html)
-- Mar 08 - [Clashes in Georgia over contentious 'foreign agents' law](https://news.yahoo.com/clashes-georgia-over-contentious-foreign-051523897.html)
-- Mar 08 - [FBI tested by attacks, politically explosive investigations](https://news.yahoo.com/fbi-tested-attacks-politically-explosive-050831623.html)
-- Mar 08 - [Judge says San Francisco mayor's brother can be resentenced](https://news.yahoo.com/judge-says-san-francisco-mayors-012652820.html)
 <!-- feed end -->
