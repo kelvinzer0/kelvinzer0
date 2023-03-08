@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 08 - [16 Very, Very, Very Dark Things That Actually Happened While Filming Reality Shows](https://news.yahoo.com/16-very-very-very-dark-010313912.html)
+- Mar 08 - [A Florida stripper saw her ex at the club, cops say. Then she grabbed a ‘wad’ of cash](https://news.yahoo.com/florida-stripper-saw-her-ex-184238710.html)
 - Mar 08 - [Putin’s Troops Filmed Threatening to Turn Weapons on Bosses](https://news.yahoo.com/putin-troops-filmed-threatening-turn-171136957.html)
-- Mar 08 - [An 81-year-old man trapped in a major California snowstorm for a week says he survived by eating snow and croissants he had in his car](https://news.yahoo.com/81-old-man-trapped-major-155820407.html)
 - Mar 08 - [Man politely robs Utah bank for $1, sits down and waits to be arrested, police say](https://news.yahoo.com/man-politely-robs-utah-bank-154500554.html)
 - Mar 08 - [Arizona resident comes home to bobcat in dog's bed](https://news.yahoo.com/arizona-resident-comes-home-bobcat-153900851.html)
+- Mar 08 - [Wife of American man kidnapped in Mexico says she didn't know he was crossing the border. He just said he needed to help out a couple of friends.](https://news.yahoo.com/wife-american-man-kidnapped-mexico-153457712.html)
 <!-- feed end -->
