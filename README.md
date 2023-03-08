@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 07 - [FBI: We need help finding this missing Michigan woman. She may have been killed.](https://news.yahoo.com/fbi-help-finding-missing-michigan-222753385.html)
-- Mar 07 - [Is Mexico travel safe? What to know about visiting Cabo, Cancun, Playa del Carmen and more](https://news.yahoo.com/mexico-travel-safe-know-visiting-212219780.html)
-- Mar 07 - [NC’s Tillis has one word to describe Tucker Carlson’s latest Jan. 6 coverage on Fox News](https://news.yahoo.com/nc-tillis-one-word-describe-200414115.html)
-- Mar 07 - [‘You’ve Been Screwed’: Russian Inmates Rebel and Flee From Commanders](https://news.yahoo.com/ve-screwed-russian-inmates-rebel-193912827.html)
-- Mar 07 - [Ukraine’s secret weapon should terrify Putin](https://news.yahoo.com/ukraine-secret-weapon-terrify-putin-190000184.html)
+- Mar 08 - [Transportation Sec. Pete Buttigieg pushes airlines to upgrade 'customer service' standards](https://news.yahoo.com/transportation-sec-pete-buttigieg-pushes-011849921.html)
+- Mar 08 - [Video captures dramatic moment SUV slams into Houston cafe](https://news.yahoo.com/video-captures-dramatic-moment-suv-010119604.html)
+- Mar 08 - [What we know about the 4 Carolinians kidnapped in Mexico](https://news.yahoo.com/know-4-carolinians-kidnapped-mexico-214044255.html)
+- Mar 08 - [Execution delayed for death row inmate who cut out his eyes](https://news.yahoo.com/execution-delayed-death-row-inmate-004833428.html)
+- Mar 07 - [Jenna Ortega's mom laughed her off when she said she wanted to be an actor because she also wanted to be president — and only due to a crush on Barack Obama](https://news.yahoo.com/jenna-ortegas-mom-laughed-her-235500083.html)
 <!-- feed end -->
