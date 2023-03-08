@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 08 - [Is Mexico travel safe? What to know about visiting Cabo, Cancun, Playa del Carmen and more](https://news.yahoo.com/mexico-travel-safe-know-visiting-212219780.html)
+- Mar 08 - [An 81-year-old man trapped in a major California snowstorm for a week says he survived by eating snow and croissants he had in his car](https://news.yahoo.com/81-old-man-trapped-major-155820407.html)
+- Mar 08 - [Man politely robs Utah bank for $1, sits down and waits to be arrested, police say](https://news.yahoo.com/man-politely-robs-utah-bank-154500554.html)
+- Mar 08 - [Arizona resident comes home to bobcat in dog's bed](https://news.yahoo.com/arizona-resident-comes-home-bobcat-153900851.html)
+- Mar 08 - [Wife of American man kidnapped in Mexico didn't know he was crossing the border. He just said he needed to help out a couple of friends.](https://news.yahoo.com/wife-american-man-kidnapped-mexico-153457712.html)
 - Mar 08 - [Homeless man gets 10 years in prison for stealing clothes for warmth](https://news.yahoo.com/homeless-man-gets-10-years-100907965.html)
-- Mar 08 - [Slap fighting: The next big thing, or unsporting stupidity?](https://news.yahoo.com/slap-fighting-next-big-thing-143947942.html)
-- Mar 08 - [14-year-old sucker-punched Florida deputy in head and got smacked back, report says](https://news.yahoo.com/14-old-sucker-punched-florida-122537376.html)
-- Mar 08 - [Bruce Willis' wife hits back at criticism she's getting her '5 minutes' after telling paparazzi to stop yelling at the actor: 'I'm always going to advocate for my husband'](https://news.yahoo.com/bruce-willis-wife-hits-back-111910413.html)
 <!-- feed end -->
