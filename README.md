@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 08 - [Alex Jones would get $520,000 salary under bankruptcy plan](https://news.yahoo.com/alex-jones-520-000-salary-212828423.html)
-- Mar 08 - [Swimmers cry for help at Arizona lake, cops say. Then rescuers find their shoes](https://news.yahoo.com/swimmers-cry-help-arizona-lake-212245971.html)
-- Mar 08 - [A cartel's mistake could explain the Mexico kidnappings](https://news.yahoo.com/single-mistake-could-explain-mexico-200033579.html)
-- Mar 08 - [Punches thrown, chaos erupts aboard Southwest Airlines plane in Dallas](https://news.yahoo.com/punches-thrown-chaos-erupts-aboard-211109133.html)
-- Mar 08 - [Famous ‘tequila worm’ found at bottom of bottle isn’t really a worm. So what is it?](https://news.yahoo.com/famous-tequila-worm-found-bottom-205519546.html)
+- Mar 08 - [A senator who ran a multimillion-dollar plumbing business claimed he only took a $50,000 salary. His financial statements show otherwise.](https://news.yahoo.com/senator-ran-multimillion-dollar-plumbing-234851668.html)
+- Mar 08 - [I'm an ER pediatrician. Here are 7 things I never let my kid do](https://news.yahoo.com/im-er-pediatrician-7-things-230155221.html)
+- Mar 08 - [A Louisville police officer let his dog attack a 14-year-old Black child who was not resisting. As the dog 'gnawed' on the child's arm, the officer said 'stop fighting my dog,' DOJ said in bombshell report](https://news.yahoo.com/louisville-police-officer-let-dog-223843107.html)
+- Mar 08 - [Swarm of quakes at Alaska volcano could mean eruption coming](https://news.yahoo.com/swarm-earthquakes-remote-alaska-volcano-223128070.html)
+- Mar 08 - [Sharon Stone says she lost custody of her son because of her 'Basic Instinct' nude scene and developed health issues: 'It broke my heart'](https://news.yahoo.com/sharon-stone-says-she-lost-222147620.html)
 <!-- feed end -->
