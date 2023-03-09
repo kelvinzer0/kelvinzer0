@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 09 - ['Jeopardy!' Commits Massive On-Air Blunder Before Game Even Starts](https://news.yahoo.com/jeopardy-commits-massive-air-blunder-115454899.html)
+- Mar 09 - [Russians launch six Kinzhal hypersonic missiles at once for first time on Ukraine](https://news.yahoo.com/russians-launch-six-kinzhal-hypersonic-084847529.html)
 - Mar 09 - [Kevin McCarthy Hands Marjorie Taylor Greene The Gavel And Critics Shudder](https://news.yahoo.com/kevin-mccarthy-hands-marjorie-taylor-080825776.html)
 - Mar 09 - [Stephen Colbert Delivers Brutally Accurate Summary Of Fox News In Just 12 Words](https://news.yahoo.com/stephen-colbert-delivers-brutally-accurate-065038340.html)
-- Mar 09 - [Iran is gearing up to attack Britain and the West](https://news.yahoo.com/iran-gearing-attack-britain-west-060000568.html)
 - Mar 09 - ['Incredibly Angry': Fox News Staff Reportedly Fuming About Dominion Filings](https://news.yahoo.com/incredibly-angry-fox-news-staff-054057375.html)
-- Mar 09 - [China's Xi calls for 'more quickly elevating' armed forces](https://news.yahoo.com/chinas-xi-calls-more-quickly-053431054.html)
 <!-- feed end -->
