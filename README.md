@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 09 - [Snow cleanup continues in Southern California mountains as new storm approaches](https://news.yahoo.com/snow-cleanup-continues-southern-california-193840876.html)
+- Mar 09 - [Los Angeles police ID gunman in shooting of 3 officers](https://news.yahoo.com/los-angeles-police-id-gunman-204526741.html)
 - Mar 09 - ['This is inhumane': Poland, Slovakia ready to send fighter jets to Kyiv; Russian missiles engulf Ukraine: Live updates](https://news.yahoo.com/difficult-night-ukraine-least-6-115929833.html)
-- Mar 09 - [Mexican president to US: Fentanyl is your problem](https://news.yahoo.com/mexican-president-us-fentanyl-problem-184727272.html)
-- Mar 09 - [Girl who went missing from a mall in 2018 found in Mexico](https://news.yahoo.com/girl-went-missing-mall-2018-181556360.html)
-- Mar 09 - [I'm an NYU student who studied abroad in Florence. I hated every aspect of my semester abroad.](https://news.yahoo.com/im-nyu-student-studied-abroad-174958709.html)
+- Mar 09 - [Senator Markwayne Mullin ran a multimillion-dollar plumbing business and claimed he only took a $50,000 salary. His financial statements show otherwise.](https://news.yahoo.com/senator-ran-multimillion-dollar-plumbing-234851668.html)
+- Mar 09 - [Donald Trump: I’d have let Putin annex Ukraine to end the war](https://news.yahoo.com/donald-trump-d-let-putin-194231988.html)
+- Mar 09 - [Scientists revived a 'zombie' virus frozen for 48,500 years in ice. They learned it could still infect other cells.](https://news.yahoo.com/scientists-revived-zombie-virus-frozen-190900438.html)
 <!-- feed end -->
