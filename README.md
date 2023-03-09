@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 09 - [Suns forward Kevin Durant could miss the rest of the regular season with ankle sprain](https://news.yahoo.com/suns-forward-kevin-durant-could-062509661.html)
+- Mar 09 - [Kevin McCarthy Hands Marjorie Taylor Greene The Gavel And Critics Shudder](https://news.yahoo.com/kevin-mccarthy-hands-marjorie-taylor-080825776.html)
 - Mar 09 - [Stephen Colbert Delivers Brutally Accurate Summary Of Fox News In Just 12 Words](https://news.yahoo.com/stephen-colbert-delivers-brutally-accurate-065038340.html)
 - Mar 09 - [Iran is gearing up to attack Britain and the West](https://news.yahoo.com/iran-gearing-attack-britain-west-060000568.html)
 - Mar 09 - ['Incredibly Angry': Fox News Staff Reportedly Fuming About Dominion Filings](https://news.yahoo.com/incredibly-angry-fox-news-staff-054057375.html)
