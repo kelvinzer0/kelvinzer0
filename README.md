@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 09 - [Los Angeles police ID gunman in shooting of 3 officers](https://news.yahoo.com/los-angeles-police-id-gunman-204526741.html)
+- Mar 09 - [Former politician found guilty in $60M scheme](https://news.yahoo.com/former-politician-found-guilty-60m-214856671.html)
+- Mar 09 - [Senators on Biden's budget plan, McConnell's health](https://news.yahoo.com/senators-bidens-budget-plan-mcconnells-213346005.html)
 - Mar 09 - ['This is inhumane': Poland, Slovakia ready to send fighter jets to Kyiv; Russian missiles engulf Ukraine: Live updates](https://news.yahoo.com/difficult-night-ukraine-least-6-115929833.html)
 - Mar 09 - [Senator Markwayne Mullin ran a multimillion-dollar plumbing business and claimed he only took a $50,000 salary. His financial statements show otherwise.](https://news.yahoo.com/senator-ran-multimillion-dollar-plumbing-234851668.html)
-- Mar 09 - [Donald Trump: I’d have let Putin annex Ukraine to end the war](https://news.yahoo.com/donald-trump-d-let-putin-194231988.html)
-- Mar 09 - [Scientists revived a 'zombie' virus frozen for 48,500 years in ice. They learned it could still infect other cells.](https://news.yahoo.com/scientists-revived-zombie-virus-frozen-190900438.html)
+- Mar 09 - [Mexican president to US: Fentanyl is your problem](https://news.yahoo.com/mexican-president-us-fentanyl-problem-184727272.html)
 <!-- feed end -->
