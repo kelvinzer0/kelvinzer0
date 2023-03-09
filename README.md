@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 09 - [Mexican gang said to apologize over deaths of Americans](https://news.yahoo.com/mexican-gang-said-apologize-over-163418119.html)
-- Mar 09 - [Ukraine's battle to hold Bakhmut grinds on](https://news.yahoo.com/ukraines-battle-hold-bakhmut-grinds-163143794.html)
+- Mar 09 - [WATCH: Massive protests prompt Georgia to withdraw Russian-style 'foreign agents' law](https://news.yahoo.com/watch-massive-protests-prompt-georgia-174618181.html)
+- Mar 09 - [Cole Sprouse Opened Up About Being Forced Into Child Acting For A Life Of “Financial Stability” And Admitted He “Definitely” Has Some Resentment Towards His Parents](https://news.yahoo.com/cole-sprouse-opened-being-forced-171627225.html)
+- Mar 09 - [Apology letter found after US citizens killed in Mexico](https://news.yahoo.com/mexican-gang-said-apologize-over-163418119.html)
+- Mar 09 - [I went from squatting 350 pounds to completely paralyzed at 26 in a matter of weeks. Doctors told me it was a herniated disk, but it was Guillain-Barré.](https://news.yahoo.com/went-squatting-350-pounds-completely-163000825.html)
 - Mar 09 - [Berlin to let everyone go topless at public swimming pools](https://news.yahoo.com/berlin-let-everyone-topless-public-161649092.html)
-- Mar 09 - [Seth Rogen Was Asked If He’d Be “Happier” If He Had Kids And His Brutally Honest Response Made People Realize How Rarely Men Are Questioned About Not Having Children](https://news.yahoo.com/seth-rogen-asked-d-happier-154859432.html)
-- Mar 09 - [GM offers buyouts to most US salaried workers to trim costs](https://news.yahoo.com/gm-offers-buyouts-most-us-153757000.html)
 <!-- feed end -->
