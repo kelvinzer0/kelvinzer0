@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 09 - [Former politician found guilty in $60M scheme](https://news.yahoo.com/former-politician-found-guilty-60m-214856671.html)
-- Mar 09 - [Senators on Biden's budget plan, McConnell's health](https://news.yahoo.com/senators-bidens-budget-plan-mcconnells-213346005.html)
+- Mar 09 - [Rep. Eric Swalwell Expertly Calls Out Rep. Jim Jordan’s Jan. 6 Hypocrisy](https://news.yahoo.com/rep-eric-swalwell-expertly-calls-224228046.html)
 - Mar 09 - ['This is inhumane': Poland, Slovakia ready to send fighter jets to Kyiv; Russian missiles engulf Ukraine: Live updates](https://news.yahoo.com/difficult-night-ukraine-least-6-115929833.html)
 - Mar 09 - [Senator Markwayne Mullin ran a multimillion-dollar plumbing business and claimed he only took a $50,000 salary. His financial statements show otherwise.](https://news.yahoo.com/senator-ran-multimillion-dollar-plumbing-234851668.html)
 - Mar 09 - [Mexican president to US: Fentanyl is your problem](https://news.yahoo.com/mexican-president-us-fentanyl-problem-184727272.html)
+- Mar 09 - [Girl who went missing from a mall in 2018 found in Mexico](https://news.yahoo.com/girl-went-missing-mall-2018-181556360.html)
 <!-- feed end -->
