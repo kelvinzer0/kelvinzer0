@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 09 - [Cole Sprouse Explained How He And Lili Reinhart Did "Quite A Bit Of Damage" To Each Other When They Had To Work Together On "Riverdale" After Splitting](https://news.yahoo.com/cole-sprouse-explained-lili-reinhart-024202787.html)
-- Mar 09 - [Teen found naked man in bed: Her dad was jailed for shooting at him, Florida cops say](https://news.yahoo.com/teen-found-naked-man-bed-123159058.html)
-- Mar 09 - [Arnold Schwarzenegger speaks out about his 'loser' Nazi father being 'broken' by guilt in video warning against rising antisemitism](https://news.yahoo.com/arnold-schwarzenegger-speaks-loser-nazi-120439246.html)
-- Mar 09 - ['Jeopardy!' Commits Massive On-Air Blunder Before Game Even Starts](https://news.yahoo.com/jeopardy-commits-massive-air-blunder-115454899.html)
-- Mar 09 - [Kevin McCarthy Hands Marjorie Taylor Greene The Gavel And Critics Shudder](https://news.yahoo.com/kevin-mccarthy-hands-marjorie-taylor-080825776.html)
+- Mar 09 - [Mexican gang said to apologize over deaths of Americans](https://news.yahoo.com/mexican-gang-said-apologize-over-163418119.html)
+- Mar 09 - [Ukraine's battle to hold Bakhmut grinds on](https://news.yahoo.com/ukraines-battle-hold-bakhmut-grinds-163143794.html)
+- Mar 09 - [Berlin to let everyone go topless at public swimming pools](https://news.yahoo.com/berlin-let-everyone-topless-public-161649092.html)
+- Mar 09 - [Seth Rogen Was Asked If He’d Be “Happier” If He Had Kids And His Brutally Honest Response Made People Realize How Rarely Men Are Questioned About Not Having Children](https://news.yahoo.com/seth-rogen-asked-d-happier-154859432.html)
+- Mar 09 - [GM offers buyouts to most US salaried workers to trim costs](https://news.yahoo.com/gm-offers-buyouts-most-us-153757000.html)
 <!-- feed end -->
