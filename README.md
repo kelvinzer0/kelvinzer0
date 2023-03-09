@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 09 - [Russian missiles target cities across Ukraine, officials say](https://news.yahoo.com/russian-missiles-target-cities-across-035609558.html)
-- Mar 09 - [A North Carolina couple bought a rundown 107-year-old house for $320,000, and spent a year and a half restoring it on their own. It strengthened their marriage and preserved history — see how they did it.](https://news.yahoo.com/north-carolina-couple-bought-rundown-013154157.html)
-- Mar 09 - [The FBI is warning that House lawmakers and hundreds of their staff had their personal information stolen due to a data breach at an online health insurance marketplace](https://news.yahoo.com/fbi-warning-house-lawmakers-hundreds-004248989.html)
-- Mar 08 - [A senator who ran a multimillion-dollar plumbing business claimed he only took a $50,000 salary. His financial statements show otherwise.](https://news.yahoo.com/senator-ran-multimillion-dollar-plumbing-234851668.html)
-- Mar 08 - [I'm an ER pediatrician. Here are 7 things I never let my kid do](https://news.yahoo.com/im-er-pediatrician-7-things-230155221.html)
+- Mar 09 - ['Incredibly Angry': Fox News Staff Reportedly Fuming About Dominion Filings](https://news.yahoo.com/incredibly-angry-fox-news-staff-054057375.html)
+- Mar 09 - [Senate GOP leader Mitch McConnell hospitalized after fall](https://news.yahoo.com/spokesman-gop-leader-mcconnell-hospitalized-051011780.html)
+- Mar 09 - [Trump 2020 lawyer admits misrepresenting stolen election claims](https://news.yahoo.com/trump-2020-lawyer-admits-misrepresenting-045941456.html)
+- Mar 09 - [Utah police footage shows barrage of gunfire that killed 25-year-old](https://news.yahoo.com/utah-police-footage-shows-barrage-043610336.html)
+- Mar 09 - [Russian missile barrage target Ukraine energy infrastructure](https://news.yahoo.com/russian-missiles-target-cities-across-035609558.html)
 <!-- feed end -->
