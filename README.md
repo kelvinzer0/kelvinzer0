@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 10 - [New York prosecutor signals possible criminal indictment against Trump](https://news.yahoo.com/york-prosecutor-signals-possible-criminal-124653749.html)
+- Mar 10 - [United Airlines addresses pilot shortage with training program](https://news.yahoo.com/united-airlines-addresses-pilot-shortage-132450384.html)
+- Mar 10 - [A mom went mega-viral with a video showing her daughter crying after she heard her 'screaming' in bed, as some viewers accuse her of traumatizing her child](https://news.yahoo.com/mom-went-mega-viral-video-131231818.html)
 - Mar 10 - [Man checks yard to see alligator biting dog’s head. He pulled out gun, Florida cops say](https://news.yahoo.com/man-checks-yard-see-alligator-123214414.html)
-- Mar 10 - [Blac Chyna says Tyga 'packed' up her stuff and kicked her out of his house to be with Kylie Jenner](https://news.yahoo.com/blac-chyna-says-tyga-packed-120327631.html)
-- Mar 10 - [Firing an anti-ship missile at ground targets is a chaotic strategy Russia may regret, expert says](https://news.yahoo.com/firing-anti-ship-missile-regular-161258098.html)
+- Mar 10 - [Firing anti-ship missiles at ground targets is a chaotic strategy Russia may regret, expert says](https://news.yahoo.com/firing-anti-ship-missile-regular-161258098.html)
 - Mar 10 - [Harry and Meghan Called Charles’ Bluff Over Princess Lilibet—and Won](https://news.yahoo.com/harry-meghan-called-charles-bluff-093806564.html)
 <!-- feed end -->
