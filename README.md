@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 10 - [Marjorie Taylor Greene Lashes Out At Jane Fonda Over Her Dark Quip On ‘The View’](https://news.yahoo.com/marjorie-taylor-greene-lashes-jane-212845808.html)
+- Mar 10 - [Monkey business! Hundreds of monkeys cross a road, halt traffic in China](https://news.yahoo.com/monkey-business-hundreds-monkeys-cross-224329894.html)
+- Mar 10 - [What we know about the latest lawsuit against Tiger Woods by ex-girlfriend](https://news.yahoo.com/know-latest-lawsuit-against-tiger-224317320.html)
+- Mar 10 - [Mexico kidnapping: A twisted moral code explains cartel's apology](https://news.yahoo.com/mexico-kidnapping-twisted-moral-code-220935841.html)
 - Mar 10 - [Police: 5 dead in apparent murder-suicide in South Florida](https://news.yahoo.com/police-5-dead-apparent-murder-211952061.html)
-- Mar 10 - [Attorneys for family of Shanquella Robinson accuse FBI of 'not doing all that they could do' in death case](https://news.yahoo.com/shanquella-robinson-missing-mexico-fbi-silence-inaction-205622193.html)
-- Mar 10 - [Lufthansa flight attendant told passengers to delete all videos and photos after severe turbulence forced an emergency landing](https://news.yahoo.com/lufthansa-flight-attendant-told-passengers-200832393.html)
-- Mar 10 - [As California gets drenched, officials opening Oroville Dam spillway for first time in 4 years](https://news.yahoo.com/california-gets-drenched-officials-opening-185939900.html)
+- Mar 10 - [Tiger Woods says he put Erica Herman up in a luxury hotel and gave her money for new place to live after they broke up: court documents](https://news.yahoo.com/tiger-woods-says-put-erica-211526400.html)
 <!-- feed end -->
