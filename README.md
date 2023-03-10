@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 10 - [Anti-Russia guerrillas in Belarus take on 'two-headed enemy'](https://news.yahoo.com/anti-russia-guerrillas-belarus-two-073519897.html)
+- Mar 10 - [Jim Jordan, Stacey Plaskett Get Into A Fiery War Of Words At Committee Hearing](https://news.yahoo.com/jim-jordan-stacey-plaskett-fiery-070921175.html)
 - Mar 10 - ['This is inhumane': Poland, Slovakia ready to send fighter jets to Kyiv; Russian missiles engulf Ukraine: Updates](https://news.yahoo.com/difficult-night-ukraine-least-6-115929833.html)
 - Mar 10 - [People are getting crushed to death during alleged catalytic converter thefts, a crime on the rise that's now taking a toll on more than just cars](https://news.yahoo.com/people-getting-crushed-death-during-025856664.html)
 - Mar 10 - [Colorado Rep. Lauren Boebert, 36, is about to be a grandma](https://news.yahoo.com/colorado-rep-lauren-boebert-36-011800351.html)
-- Mar 10 - [Mexican cartel apologizes for kidnapping, killing Americans, turns over 5 it says responsible](https://news.yahoo.com/cartel-apologizes-kidnapping-americans-turns-192935354.html)
-- Mar 10 - [Railroad group warns that car flaw could cause derailments](https://news.yahoo.com/railroad-group-warns-car-flaw-004641063.html)
 <!-- feed end -->
