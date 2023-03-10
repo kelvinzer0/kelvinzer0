@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 10 - [China's Xi awarded third term as president, extending rule](https://news.yahoo.com/chinas-xi-awarded-third-term-093656624.html)
+- Mar 10 - [Dark Brandon Strikes Again: Biden Dismisses Trump With Just 3 Mocking Words](https://news.yahoo.com/dark-brandon-strikes-again-biden-083700840.html)
+- Mar 10 - [GOP Virginia Governor Stumbles As Trans Student Confronts Him On Live TV](https://news.yahoo.com/gop-virginia-governor-stumbles-trans-081359210.html)
 - Mar 10 - [Anti-Russia guerrillas in Belarus take on 'two-headed enemy'](https://news.yahoo.com/anti-russia-guerrillas-belarus-two-073519897.html)
 - Mar 10 - [Ex-Trump Lawyer Posts Cruel Video Mocking Mitch McConnell’s Hospitalization](https://news.yahoo.com/ex-trump-lawyer-posts-cruel-071930497.html)
-- Mar 10 - [Jim Jordan, Stacey Plaskett Get Into A Fiery War Of Words At Committee Hearing](https://news.yahoo.com/jim-jordan-stacey-plaskett-fiery-070921175.html)
-- Mar 10 - ['This is inhumane': Poland, Slovakia ready to send fighter jets to Kyiv; Russian missiles engulf Ukraine: Updates](https://news.yahoo.com/difficult-night-ukraine-least-6-115929833.html)
-- Mar 10 - [People are getting crushed to death during alleged catalytic converter thefts, a crime on the rise that's now taking a toll on more than just cars](https://news.yahoo.com/people-getting-crushed-death-during-025856664.html)
 <!-- feed end -->
