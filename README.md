@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 10 - [Vikings cut WR Thielen after 10 years with home-state team](https://news.yahoo.com/vikings-cut-wr-thielen-10-154545354.html)
-- Mar 10 - [Pandemic 3 years later: Has the COVID-19 virus won?](https://news.yahoo.com/pandemic-3-years-later-covid-151126565.html)
-- Mar 10 - [Ukrainian army destroys most of Wagner PMC near Bakhmut, military spokesperson says](https://news.yahoo.com/ukrainian-army-destroys-most-wagner-141500293.html)
-- Mar 10 - [Massive Lion Spots A Young Hyena Wandering Alone On The Road. Gulp.](https://news.yahoo.com/massive-lion-spots-young-hyena-141406445.html)
-- Mar 10 - [I'm never taking my family to Disney World for spring break again. Here's why we're totally over it.](https://news.yahoo.com/im-never-taking-family-disney-132200858.html)
+- Mar 10 - [Joe Biden compares 'wacko liberal guy' Ronald Reagan's tax rate to his budget proposal](https://news.yahoo.com/joe-biden-compares-wacko-liberal-174212546.html)
+- Mar 10 - [Colin Kaepernick Says His White Adoptive Parents Perpetuated Racism](https://news.yahoo.com/colin-kaepernick-says-white-adoptive-172046029.html)
+- Mar 10 - [NOT REAL NEWS: A look at what didn't happen this week](https://news.yahoo.com/not-real-news-look-didnt-170523607.html)
+- Mar 10 - [A 36-year-old man felt dizzy before bed. As he slept, his Apple Watch warned him of an unknown heart problem.](https://news.yahoo.com/36-old-man-felt-dizzy-164611100.html)
+- Mar 10 - [People found living in tunnel under Colorado highway flyover](https://news.yahoo.com/people-found-living-tunnel-under-161833858.html)
 <!-- feed end -->
