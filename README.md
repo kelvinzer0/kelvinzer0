@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 10 - [Lufthansa flight attendant told passengers to delete all videos and photos after severe turbulence forced an emergency landing](https://news.yahoo.com/lufthansa-flight-attendant-told-passengers-200832393.html)
 - Mar 10 - [As California gets drenched, officials opening Oroville Dam spillway for first time in 4 years](https://news.yahoo.com/california-gets-drenched-officials-opening-185939900.html)
-- Mar 10 - [Man who stole $24 from gas station in China avoided cops by living in a cave for 14 years](https://news.yahoo.com/man-stole-24-gas-station-175540143.html)
+- Mar 10 - [A California 'Teacher of the Year' accused of sexually abusing a former 13-year-old student once said it was important to be a 'champion' for the kids](https://news.yahoo.com/california-teacher-accused-sexually-abusing-184304219.html)
+- Mar 10 - [The US Navy's newest supercarrier is underway with all its available airpower for the first time](https://news.yahoo.com/us-navys-newest-supercarrier-underway-174503363.html)
 - Mar 10 - [Joe Biden compares 'wacko liberal guy' Ronald Reagan's tax rate to his budget proposal](https://news.yahoo.com/joe-biden-compares-wacko-liberal-174212546.html)
-- Mar 10 - [Colin Kaepernick Says His White Adoptive Parents Perpetuated Racism](https://news.yahoo.com/colin-kaepernick-says-white-adoptive-172046029.html)
-- Mar 10 - [Oklahoma cheerleader coach who had sex with student 300 times was 'manipulative and controlling': cops](https://news.yahoo.com/oklahoma-cheerleader-coach-had-sex-171249338.html)
 <!-- feed end -->
