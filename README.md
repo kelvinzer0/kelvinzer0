@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 10 - [Why would Russia use hypersonic missile to strike Ukraine?](https://news.yahoo.com/why-russia-hypersonic-missile-strike-183217576.html)
+- Mar 10 - [As California gets drenched, officials opening Oroville Dam spillway for first time in 4 years](https://news.yahoo.com/california-gets-drenched-officials-opening-185939900.html)
 - Mar 10 - [Man who stole $24 from gas station in China avoided cops by living in a cave for 14 years](https://news.yahoo.com/man-stole-24-gas-station-175540143.html)
-- Mar 10 - [Jon Rahm out of Players Championship with stomach illness](https://news.yahoo.com/jon-rahm-players-championship-stomach-174916082.html)
+- Mar 10 - [Joe Biden compares 'wacko liberal guy' Ronald Reagan's tax rate to his budget proposal](https://news.yahoo.com/joe-biden-compares-wacko-liberal-174212546.html)
 - Mar 10 - [Colin Kaepernick Says His White Adoptive Parents Perpetuated Racism](https://news.yahoo.com/colin-kaepernick-says-white-adoptive-172046029.html)
-- Mar 10 - [NOT REAL NEWS: A look at what didn't happen this week](https://news.yahoo.com/not-real-news-look-didnt-170523607.html)
+- Mar 10 - [Oklahoma cheerleader coach who had sex with student 300 times was 'manipulative and controlling': cops](https://news.yahoo.com/oklahoma-cheerleader-coach-had-sex-171249338.html)
 <!-- feed end -->
