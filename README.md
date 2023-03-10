@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 10 - [Robert Blake, actor acquitted in wife's killing, dies at 89](https://news.yahoo.com/robert-blake-actor-acquitted-wifes-002148039.html)
+- Mar 09 - [Mississippi man gets 42 years in prison for cross burning](https://news.yahoo.com/mississippi-man-gets-42-years-235915698.html)
+- Mar 09 - [FDA unveils new rules for mammograms](https://news.yahoo.com/fda-unveils-rules-mammograms-234907828.html)
+- Mar 09 - [Report: Manhattan prosecutors signal criminal charges likely for Trump](https://news.yahoo.com/report-manhattan-prosecutors-signal-criminal-234547167.html)
 - Mar 09 - [Rep. Eric Swalwell Expertly Calls Out Rep. Jim Jordan’s Jan. 6 Hypocrisy](https://news.yahoo.com/rep-eric-swalwell-expertly-calls-224228046.html)
-- Mar 09 - ['This is inhumane': Poland, Slovakia ready to send fighter jets to Kyiv; Russian missiles engulf Ukraine: Live updates](https://news.yahoo.com/difficult-night-ukraine-least-6-115929833.html)
-- Mar 09 - [Senator Markwayne Mullin ran a multimillion-dollar plumbing business and claimed he only took a $50,000 salary. His financial statements show otherwise.](https://news.yahoo.com/senator-ran-multimillion-dollar-plumbing-234851668.html)
-- Mar 09 - [Mexican president to US: Fentanyl is your problem](https://news.yahoo.com/mexican-president-us-fentanyl-problem-184727272.html)
-- Mar 09 - [Girl who went missing from a mall in 2018 found in Mexico](https://news.yahoo.com/girl-went-missing-mall-2018-181556360.html)
 <!-- feed end -->
