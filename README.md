@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 10 - [Divorced People Are Revealing The Red Flags On Their Wedding Day That Made Them Realize They Were Marrying The Wrong Person](https://news.yahoo.com/divorced-people-revealing-red-flags-040346318.html)
+- Mar 10 - [People are getting crushed to death during alleged catalytic converter thefts, a crime on the rise that's now taking a toll on more than just cars](https://news.yahoo.com/people-getting-crushed-death-during-025856664.html)
 - Mar 10 - [Colorado Rep. Lauren Boebert, 36, is about to be a grandma](https://news.yahoo.com/colorado-rep-lauren-boebert-36-011800351.html)
 - Mar 10 - [Mexican cartel apologizes for kidnapping, killing Americans, turns over 5 it says responsible](https://news.yahoo.com/cartel-apologizes-kidnapping-americans-turns-192935354.html)
 - Mar 10 - [Railroad group warns that car flaw could cause derailments](https://news.yahoo.com/railroad-group-warns-car-flaw-004641063.html)
