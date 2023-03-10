@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 10 - [Vikings cut WR Thielen after 10 years with home-state team](https://news.yahoo.com/vikings-cut-wr-thielen-10-154545354.html)
 - Mar 10 - [Massive Lion Spots A Young Hyena Wandering Alone On The Road. Gulp.](https://news.yahoo.com/massive-lion-spots-young-hyena-141406445.html)
-- Mar 10 - [United Airlines addresses pilot shortage with training program](https://news.yahoo.com/united-airlines-addresses-pilot-shortage-132450384.html)
+- Mar 10 - [China condemns Japanese plan to release Fukushima water](https://news.yahoo.com/china-condemns-japanese-plan-release-135501881.html)
 - Mar 10 - [A mom went mega-viral with a video showing her daughter crying after she heard her 'screaming' in bed, as some viewers accuse her of traumatizing her child](https://news.yahoo.com/mom-went-mega-viral-video-131231818.html)
 - Mar 10 - [Man checks yard to see alligator biting dog’s head. He pulled out gun, Florida cops say](https://news.yahoo.com/man-checks-yard-see-alligator-123214414.html)
-- Mar 10 - [UK TikTokers reveal Paul Murdaugh in 2017 Bahamas video, stunned to discover his deadly demise](https://news.yahoo.com/uk-tiktokers-reveal-paul-murdaugh-120904399.html)
 <!-- feed end -->
