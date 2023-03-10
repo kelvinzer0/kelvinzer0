@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 10 - [Eight dead after Jehovah's Witness shooting in Germany](https://news.yahoo.com/eight-dead-jehovahs-witness-shooting-104504580.html)
+- Mar 10 - [Firing an anti-ship missile at ground targets is a chaotic strategy Russia may regret, expert says](https://news.yahoo.com/firing-anti-ship-missile-regular-161258098.html)
+- Mar 10 - [Harry and Meghan Called Charles’ Bluff Over Princess Lilibet—and Won](https://news.yahoo.com/harry-meghan-called-charles-bluff-093806564.html)
 - Mar 10 - [Dark Brandon Strikes Again: Biden Dismisses Trump With Just 3 Mocking Words](https://news.yahoo.com/dark-brandon-strikes-again-biden-083700840.html)
 - Mar 10 - [GOP Virginia Governor Stumbles As Trans Student Confronts Him On Live TV](https://news.yahoo.com/gop-virginia-governor-stumbles-trans-081359210.html)
-- Mar 10 - [Anti-Russia guerrillas in Belarus take on 'two-headed enemy'](https://news.yahoo.com/anti-russia-guerrillas-belarus-two-073519897.html)
-- Mar 10 - [Ex-Trump Lawyer Posts Cruel Video Mocking Mitch McConnell’s Hospitalization](https://news.yahoo.com/ex-trump-lawyer-posts-cruel-071930497.html)
+- Mar 10 - [Ukraine-Russia war latest: Russia's best units 'pinned down' in Bakhmut battle](https://news.yahoo.com/ukraine-russia-war-latest-elite-075439378.html)
 <!-- feed end -->
