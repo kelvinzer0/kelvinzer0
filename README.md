@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 10 - [China's Xi awarded third term as president, extending rule](https://news.yahoo.com/chinas-xi-awarded-third-term-093656624.html)
+- Mar 10 - [Eight dead after Jehovah's Witness shooting in Germany](https://news.yahoo.com/eight-dead-jehovahs-witness-shooting-104504580.html)
 - Mar 10 - [Dark Brandon Strikes Again: Biden Dismisses Trump With Just 3 Mocking Words](https://news.yahoo.com/dark-brandon-strikes-again-biden-083700840.html)
 - Mar 10 - [GOP Virginia Governor Stumbles As Trans Student Confronts Him On Live TV](https://news.yahoo.com/gop-virginia-governor-stumbles-trans-081359210.html)
 - Mar 10 - [Anti-Russia guerrillas in Belarus take on 'two-headed enemy'](https://news.yahoo.com/anti-russia-guerrillas-belarus-two-073519897.html)
