@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 10 - [Harry Styles Seemingly Explained Why He Deleted That Selfie In A One Direction T-Shirt](https://news.yahoo.com/harry-styles-seemingly-explained-why-044130662.html)
+- Mar 10 - [Colorado Rep. Lauren Boebert, 36, is about to be a grandma](https://news.yahoo.com/colorado-rep-lauren-boebert-36-011800351.html)
+- Mar 10 - [Mexican cartel apologizes for kidnapping, killing Americans, turns over 5 it says responsible](https://news.yahoo.com/cartel-apologizes-kidnapping-americans-turns-192935354.html)
+- Mar 10 - [Railroad group warns that car flaw could cause derailments](https://news.yahoo.com/railroad-group-warns-car-flaw-004641063.html)
 - Mar 10 - [Robert Blake, actor acquitted in wife's killing, dies at 89](https://news.yahoo.com/robert-blake-actor-acquitted-wifes-002148039.html)
-- Mar 09 - [Mississippi man gets 42 years in prison for cross burning](https://news.yahoo.com/mississippi-man-gets-42-years-235915698.html)
-- Mar 09 - [FDA unveils new rules for mammograms](https://news.yahoo.com/fda-unveils-rules-mammograms-234907828.html)
-- Mar 09 - [Report: Manhattan prosecutors signal criminal charges likely for Trump](https://news.yahoo.com/report-manhattan-prosecutors-signal-criminal-234547167.html)
-- Mar 09 - [Rep. Eric Swalwell Expertly Calls Out Rep. Jim Jordan’s Jan. 6 Hypocrisy](https://news.yahoo.com/rep-eric-swalwell-expertly-calls-224228046.html)
 <!-- feed end -->
