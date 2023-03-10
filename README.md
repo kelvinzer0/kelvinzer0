@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 10 - [Marjorie Taylor Greene Lashes Out At Jane Fonda Over Her Dark Quip On ‘The View’](https://news.yahoo.com/marjorie-taylor-greene-lashes-jane-212845808.html)
+- Mar 10 - [Police: 5 dead in apparent murder-suicide in South Florida](https://news.yahoo.com/police-5-dead-apparent-murder-211952061.html)
+- Mar 10 - [Attorneys for family of Shanquella Robinson accuse FBI of 'not doing all that they could do' in death case](https://news.yahoo.com/shanquella-robinson-missing-mexico-fbi-silence-inaction-205622193.html)
 - Mar 10 - [Lufthansa flight attendant told passengers to delete all videos and photos after severe turbulence forced an emergency landing](https://news.yahoo.com/lufthansa-flight-attendant-told-passengers-200832393.html)
 - Mar 10 - [As California gets drenched, officials opening Oroville Dam spillway for first time in 4 years](https://news.yahoo.com/california-gets-drenched-officials-opening-185939900.html)
-- Mar 10 - [A California 'Teacher of the Year' accused of sexually abusing a former 13-year-old student once said it was important to be a 'champion' for the kids](https://news.yahoo.com/california-teacher-accused-sexually-abusing-184304219.html)
-- Mar 10 - [The US Navy's newest supercarrier is underway with all its available airpower for the first time](https://news.yahoo.com/us-navys-newest-supercarrier-underway-174503363.html)
-- Mar 10 - [Joe Biden compares 'wacko liberal guy' Ronald Reagan's tax rate to his budget proposal](https://news.yahoo.com/joe-biden-compares-wacko-liberal-174212546.html)
 <!-- feed end -->
