@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 11 - [Derek Carr signs with the New Orleans Saints and sends a message to the Raiders](https://news.yahoo.com/derek-carr-signs-orleans-saints-195251082.html)
+- Mar 11 - [Relentless winter brings pros, cons for Tahoe ski resorts](https://news.yahoo.com/relentless-winter-brings-pros-cons-171350336.html)
+- Mar 11 - [Storm breaches California river's levee, thousands evacuate](https://news.yahoo.com/storm-breaches-california-rivers-levee-170200348.html)
 - Mar 11 - [US agencies debunk Florida surgeon general's vaccine claims](https://news.yahoo.com/us-agencies-debunk-florida-surgeon-164345808.html)
 - Mar 11 - [Mexico kidnapping: A twisted moral code explains cartel's apology](https://news.yahoo.com/mexico-kidnapping-twisted-moral-code-220935841.html)
-- Mar 11 - [Women can swim topless in public pools, says Berlin](https://news.yahoo.com/berlin-grants-women-swim-topless-153801723.html)
-- Mar 11 - [Denise Russo, 'The X-Life' star, dead at 44](https://news.yahoo.com/denise-russo-x-life-star-151310539.html)
-- Mar 11 - [Rupert Murdoch appears to confirm that Kimberly Guilfoyle left Fox News due to 'inappropriate' behavior, after reports claimed she faced a sexual harassment accusation](https://news.yahoo.com/rupert-murdoch-appears-confirm-kimberly-150728881.html)
 <!-- feed end -->
