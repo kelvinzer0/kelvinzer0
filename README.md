@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 11 - [Former Strippers Are Exposing Their Juiciest Secrets And Stories From The Job, And It's Fascinating](https://news.yahoo.com/former-strippers-exposing-juiciest-secrets-014231039.html)
+- Mar 11 - [Russell scores 28 points in return, Lakers beat Raptors](https://news.yahoo.com/russell-scores-28-points-return-055552961.html)
 - Mar 11 - [Trump Gets Caught Trying to Play Judges to Manufacture Trial Delays](https://news.yahoo.com/trump-gets-caught-trying-play-035436769.html)
 - Mar 11 - [A North Carolina pastor narrowly escaped death after his wife stopped doctors from prematurely harvesting his organs](https://news.yahoo.com/north-carolina-pastor-narrowly-escaped-014248736.html)
+- Mar 11 - [Evacuations ordered as storm pummels California](https://news.yahoo.com/evacuations-ordered-storm-pummels-california-011826762.html)
 - Mar 11 - [3 women missing in Mexico after crossing from Texas on trip](https://news.yahoo.com/3-women-missing-mexico-crossing-004752709.html)
-- Mar 11 - [New Air Force One will stay blue and white, Biden decides](https://news.yahoo.com/air-force-one-stay-blue-001431563.html)
 <!-- feed end -->
