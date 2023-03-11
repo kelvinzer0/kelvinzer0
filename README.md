@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 11 - [US agencies debunk Florida surgeon general's vaccine claims](https://news.yahoo.com/us-agencies-debunk-florida-surgeon-164345808.html)
 - Mar 11 - [Mexico kidnapping: A twisted moral code explains cartel's apology](https://news.yahoo.com/mexico-kidnapping-twisted-moral-code-220935841.html)
+- Mar 11 - [Women can swim topless in public pools, says Berlin](https://news.yahoo.com/berlin-grants-women-swim-topless-153801723.html)
+- Mar 11 - [Denise Russo, 'The X-Life' star, dead at 44](https://news.yahoo.com/denise-russo-x-life-star-151310539.html)
 - Mar 11 - [Rupert Murdoch appears to confirm that Kimberly Guilfoyle left Fox News due to 'inappropriate' behavior, after reports claimed she faced a sexual harassment accusation](https://news.yahoo.com/rupert-murdoch-appears-confirm-kimberly-150728881.html)
-- Mar 11 - [A comprehensive list of everyone who's been banned from attending the Oscars](https://news.yahoo.com/comprehensive-list-everyone-whos-banned-140000288.html)
-- Mar 11 - [Delaware man loses $125,000 property to squatter neighbor after trying to remove goat pen she built on it](https://news.yahoo.com/delaware-man-loses-125-000-130002861.html)
 <!-- feed end -->
