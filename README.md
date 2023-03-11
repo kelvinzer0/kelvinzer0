@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 11 - [Jeffrey Epstein said he stopped hanging out with Trump 'when he realized Trump was a crook,' according to his brother](https://news.yahoo.com/jeffrey-epstein-said-stopped-hanging-131500083.html)
+- Mar 11 - [French protesters back on streets against Macron's pension plan](https://news.yahoo.com/french-protesters-back-streets-against-125922733.html)
+- Mar 11 - [Ukrainian gunships rain rockets on Russian targets near Bakhmut](https://news.yahoo.com/ukrainian-gunships-rain-rockets-russian-124248753.html)
 - Mar 11 - [UK: Russian advance in Bakhmut could come with heavy losses](https://news.yahoo.com/uk-russian-advance-bakhmut-could-115856523.html)
-- Mar 11 - [A dramatic helmet-cam video shows Ukrainian troops storming a Russian trench and capturing 2 prisoners of war](https://news.yahoo.com/dramatic-helmet-cam-video-shows-095437399.html)
-- Mar 11 - [‘I grew up in the aftermath of Chernobyl - then became one of the world's most successful athletes’](https://news.yahoo.com/grew-aftermath-chernobyl-then-became-080000650.html)
-- Mar 11 - [Trump Gets Caught Trying to Play Judges to Manufacture Trial Delays](https://news.yahoo.com/trump-gets-caught-trying-play-035436769.html)
-- Mar 11 - [A North Carolina pastor narrowly escaped death after his wife stopped doctors from prematurely harvesting his organs](https://news.yahoo.com/north-carolina-pastor-narrowly-escaped-014248736.html)
+- Mar 11 - [Mikaela Shiffrin sets World Cup skiing record with 87th win](https://news.yahoo.com/shiffrin-leads-slalom-closes-record-101607151.html)
 <!-- feed end -->
