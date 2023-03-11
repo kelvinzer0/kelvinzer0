@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 11 - [UK: Russian advance in Bakhmut could come with heavy losses](https://news.yahoo.com/uk-russian-advance-bakhmut-could-115856523.html)
 - Mar 11 - [A dramatic helmet-cam video shows Ukrainian troops storming a Russian trench and capturing 2 prisoners of war](https://news.yahoo.com/dramatic-helmet-cam-video-shows-095437399.html)
 - Mar 11 - [‘I grew up in the aftermath of Chernobyl - then became one of the world's most successful athletes’](https://news.yahoo.com/grew-aftermath-chernobyl-then-became-080000650.html)
 - Mar 11 - [Harry and Meghan are learning that Hollywood only respects real royalty](https://news.yahoo.com/harry-meghan-learning-hollywood-only-080000874.html)
 - Mar 11 - [Trump Gets Caught Trying to Play Judges to Manufacture Trial Delays](https://news.yahoo.com/trump-gets-caught-trying-play-035436769.html)
-- Mar 11 - [Texas man charged with kidnapping woman, keeping her captive in trailer for 4 years](https://news.yahoo.com/texas-man-charged-kidnapping-woman-025827117.html)
 <!-- feed end -->
