@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 11 - [Mexico kidnapping: A twisted moral code explains cartel's apology](https://news.yahoo.com/mexico-kidnapping-twisted-moral-code-220935841.html)
+- Mar 11 - [Rupert Murdoch appears to confirm that Kimberly Guilfoyle left Fox News due to 'inappropriate' behavior, after reports claimed she faced a sexual harassment accusation](https://news.yahoo.com/rupert-murdoch-appears-confirm-kimberly-150728881.html)
 - Mar 11 - [A comprehensive list of everyone who's been banned from attending the Oscars](https://news.yahoo.com/comprehensive-list-everyone-whos-banned-140000288.html)
 - Mar 11 - [Jeffrey Epstein said he stopped hanging out with Trump 'when he realized Trump was a crook,' according to his brother](https://news.yahoo.com/jeffrey-epstein-said-stopped-hanging-131500083.html)
 - Mar 11 - [Ukrainian gunships rain rockets on Russian targets near Bakhmut](https://news.yahoo.com/ukrainian-gunships-rain-rockets-russian-124248753.html)
-- Mar 11 - [UK: Russian advance in Bakhmut could come with heavy losses](https://news.yahoo.com/uk-russian-advance-bakhmut-could-115856523.html)
-- Mar 11 - [Mikaela Shiffrin sets World Cup skiing record with 87th win](https://news.yahoo.com/shiffrin-leads-slalom-closes-record-101607151.html)
 <!-- feed end -->
