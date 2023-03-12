@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 12 - [Three stabbed after neighbor flirts with man’s wife at family gathering, Texas cops say](https://news.yahoo.com/three-stabbed-neighbor-flirts-man-201807011.html)
-- Mar 12 - [Lamborghini caught speeding 152 mph on California highway, CHP says. Driver to fight charges](https://news.yahoo.com/lamborghini-caught-speeding-152-mph-201516370.html)
-- Mar 12 - [Sen. Warren has called twice to apologize to VP Harris for comments she made, report says. Harris has yet to call her back.](https://news.yahoo.com/sen-warren-called-twice-apologize-195712377.html)
-- Mar 12 - [Russia reacts angrily to its possible renaming by Ukraine to Muscovy](https://news.yahoo.com/russia-reacts-angrily-possible-renaming-193800590.html)
-- Mar 12 - [Usually fatal encounter turns ‘very rare pairing’ into ‘best friends’ off UK coast](https://news.yahoo.com/usually-fatal-encounter-turns-very-183103691.html)
+- Mar 12 - [Former student at Wisconsin college charged in threats case](https://news.yahoo.com/former-student-wisconsin-college-charged-222803997.html)
+- Mar 12 - [Illness sidelines Springsteen tour as 3 concerts postponed](https://news.yahoo.com/illness-sidelines-springsteen-tour-3-222403202.html)
+- Mar 12 - [March Madness: Alabama, Houston, Kansas, Purdue the 1 seeds](https://news.yahoo.com/alabama-earns-top-billing-march-220826577.html)
+- Mar 12 - [Oscars 2023 carpet: Sofia Carson, Fan Bingbing bring regal](https://news.yahoo.com/oscars-2023-carpet-sofia-carson-220638205.html)
+- Mar 12 - [Russians warned of nuclear attack after hackers break in to country's TV service](https://news.yahoo.com/russians-warned-nuclear-attack-hackers-203332617.html)
 <!-- feed end -->
