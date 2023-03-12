@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 11 - [Son of Murdaugh family housekeeper who died in a reported trip and fall says he wants his mother's body exhumed to rule out foul play](https://news.yahoo.com/son-murdaugh-family-housekeeper-died-220605707.html)
+- Mar 11 - [Leonard scores 38, leads Clippers to 106-95 win over Knicks](https://news.yahoo.com/leonard-scores-38-leads-clippers-234104777.html)
+- Mar 11 - [Kraken Defence Intelligence unit says 2 observation towers in Russia destroyed](https://news.yahoo.com/kraken-defence-intelligence-unit-says-212720020.html)
+- Mar 11 - [Wisconsin woman claims she saw 'dark, shadowy figure' when she stabbed ex-boyfriend 19 times](https://news.yahoo.com/wisconsin-woman-claims-she-saw-210541877.html)
 - Mar 11 - [Dad discovers his daughter's a stripper, refuses to make her car payments any longer: 'It's my money'](https://news.yahoo.com/dad-discovers-daughters-stripper-refuses-193330348.html)
 - Mar 11 - [Outskirts of Bakhmut littered with corpses of Russians, and collaborators are fleeing to Russia – Ukrainian official](https://news.yahoo.com/outskirts-bakhmut-littered-corpses-russians-192946166.html)
-- Mar 11 - [Stephanie Mills Claims Michael Jackson’s Wanting To Date A Certain ‘Type’ Of Woman Possibly Led To Their Break Up](https://news.yahoo.com/stephanie-mills-claims-michael-jackson-185831331.html)
-- Mar 11 - [Relentless winter brings pros, cons for Tahoe ski resorts](https://news.yahoo.com/relentless-winter-brings-pros-cons-171350336.html)
 <!-- feed end -->
