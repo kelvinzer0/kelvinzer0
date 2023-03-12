@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 12 - [4 astronauts depart International Space Station](https://news.yahoo.com/4-astronauts-depart-international-space-023706026.html)
+- Mar 12 - [Pence says Trump 'endangered my family' on Jan. 6](https://news.yahoo.com/pence-says-trump-endangered-family-032241007.html)
+- Mar 12 - [Florida teacher's aide attacked for allegedly taking student's Nintendo Switch granted protection order](https://news.yahoo.com/florida-teachers-aide-attacked-allegedly-013005917.html)
 - Mar 11 - [Marriott Reveals Lewd Details of Claim Against Michael Irvin](https://news.yahoo.com/marriott-reveals-lewd-details-claim-224956156.html)
+- Mar 11 - [Earthquakes signal Hawaii's Kilauea about to resume erupting](https://news.yahoo.com/earthquakes-signal-hawaiis-kilauea-resume-224159105.html)
 - Mar 11 - [Wisconsin woman claims she saw 'dark, shadowy figure' when she stabbed ex-boyfriend 19 times](https://news.yahoo.com/wisconsin-woman-claims-she-saw-210541877.html)
-- Mar 11 - [Dad discovers his daughter's a stripper, refuses to make her car payments any longer: 'It's my money'](https://news.yahoo.com/dad-discovers-daughters-stripper-refuses-193330348.html)
-- Mar 11 - [Outskirts of Bakhmut littered with corpses of Russians, and collaborators are fleeing to Russia – Ukrainian official](https://news.yahoo.com/outskirts-bakhmut-littered-corpses-russians-192946166.html)
 <!-- feed end -->
