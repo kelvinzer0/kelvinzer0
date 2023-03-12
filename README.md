@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 12 - [See ya later alligator! Fleeing gator wiggles through metal fence at Florida golf club.](https://news.yahoo.com/see-ya-later-alligator-fleeing-193529973.html)
+- Mar 12 - [Russia reacts angrily to its possible renaming by Ukraine to Muscovy](https://news.yahoo.com/russia-reacts-angrily-possible-renaming-193800590.html)
 - Mar 12 - [Usually fatal encounter turns ‘very rare pairing’ into ‘best friends’ off UK coast](https://news.yahoo.com/usually-fatal-encounter-turns-very-183103691.html)
-- Mar 12 - [Prince Andrew 'bewildered' he has yet to receive inheritance from late Queen](https://news.yahoo.com/prince-andrew-bewildered-yet-receive-182509578.html)
 - Mar 12 - [A  Washington woman claims she is 'permanently disfigured' after getting a 'mommy makeover' in Mexico, report says](https://news.yahoo.com/washington-woman-claims-she-permanently-173401279.html)
 - Mar 12 - [Israel to weigh action after Silicon Valley Bank collapse](https://news.yahoo.com/israel-weigh-action-silicon-valley-171717861.html)
+- Mar 12 - [After losing more than 30,000 soldiers, the brutal Wagner Group is now recruiting in Russian schools](https://news.yahoo.com/losing-more-30-000-soldiers-164630387.html)
 <!-- feed end -->
