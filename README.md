@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 12 - ['SNL' heads to red carpet for Oscars preview; 'Wednesday' star Jenna Ortega hosts](https://news.yahoo.com/snl-heads-red-carpet-oscars-174933564.html)
+- Mar 12 - [After losing more than 30,000 soldiers, the brutal Wagner Group is now recruiting in Russian schools](https://news.yahoo.com/losing-more-30-000-soldiers-164630387.html)
+- Mar 12 - [Hotel security guard in Germany assaults Ukrainian soldier for wearing his uniform](https://news.yahoo.com/hotel-security-guard-germany-assaults-163400010.html)
+- Mar 12 - [Man sues Buffalo Wild Wings because he says their 'boneless wings' are actually chicken nuggets](https://news.yahoo.com/man-sues-buffalo-wild-wings-160713447.html)
 - Mar 12 - [Yellen: No federal bailout for collapsed Silicon Valley Bank](https://news.yahoo.com/yellen-says-no-federal-bailout-131152206.html)
-- Mar 12 - [I'm an architect and designer. Here are 5 things you should never waste money on in your kitchen.](https://news.yahoo.com/im-architect-designer-5-things-130400697.html)
-- Mar 12 - [My son transitioned into my daughter. I love her, but I'm still mourning the loss of my son.](https://news.yahoo.com/son-transitioned-daughter-love-her-121600416.html)
-- Mar 12 - [Elderly Philadelphia man running errands turns tables on would-be robbers, emptying his gun](https://news.yahoo.com/elderly-philadelphia-man-running-errands-120049637.html)
-- Mar 12 - [Carlson comes up short on Jan. 6 bombshells](https://news.yahoo.com/carlson-comes-short-jan-6-120000335.html)
 <!-- feed end -->
