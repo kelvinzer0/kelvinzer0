@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 12 - [Jenna Ortega Said She Had To Put Her Foot Down Almost To An "Unprofessional" Extent On The "Wednesday" Set](https://news.yahoo.com/jenna-ortega-said-she-had-213915934.html)
+- Mar 12 - [Saudi Arabia's golf case threatens to spill kingdom secrets](https://news.yahoo.com/saudi-arabias-golf-case-threatens-114736208.html)
+- Mar 12 - [What is the healthiest fruit? This one is high in antioxidants and has cognitive and cardiovascular benefits.](https://news.yahoo.com/healthiest-fruit-one-high-antioxidants-110011977.html)
 - Mar 12 - [This high-school teacher mocks rich people who pay hundreds of dollars for designer dog collars and now has 1.5 million TikTok followers](https://news.yahoo.com/high-school-teacher-mocks-rich-091500042.html)
-- Mar 12 - [Leonardo DiCaprio and Gigi Hadid reportedly spent 'nearly the entire night' together at pre-Oscars party](https://news.yahoo.com/leonardo-dicaprio-gigi-hadid-reportedly-035445724.html)
-- Mar 12 - [Pence says Trump 'endangered my family' on Jan. 6](https://news.yahoo.com/pence-says-trump-endangered-family-032241007.html)
-- Mar 12 - [Florida teacher's aide attacked for allegedly taking student's Nintendo Switch granted protection order](https://news.yahoo.com/florida-teachers-aide-attacked-allegedly-013005917.html)
-- Mar 11 - [Marriott Reveals Lewd Details of Claim Against Michael Irvin](https://news.yahoo.com/marriott-reveals-lewd-details-claim-224956156.html)
+- Mar 12 - [Belarusian border guards complain that Ukrainian counterparts intimidate them](https://news.yahoo.com/belarusian-border-guards-complain-ukrainian-085327284.html)
 <!-- feed end -->
