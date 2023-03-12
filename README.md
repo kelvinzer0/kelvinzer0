@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 12 - ['SNL' heads to red carpet for Oscars preview; 'Wednesday' star Jenna Ortega hosts](https://news.yahoo.com/snl-heads-red-carpet-oscars-174933564.html)
+- Mar 12 - [Prince Andrew 'bewildered' he has yet to receive inheritance from late Queen](https://news.yahoo.com/prince-andrew-bewildered-yet-receive-182509578.html)
+- Mar 12 - [A  Washington woman claims she is 'permanently disfigured' after getting a 'mommy makeover' in Mexico, report says](https://news.yahoo.com/washington-woman-claims-she-permanently-173401279.html)
 - Mar 12 - [After losing more than 30,000 soldiers, the brutal Wagner Group is now recruiting in Russian schools](https://news.yahoo.com/losing-more-30-000-soldiers-164630387.html)
 - Mar 12 - [Hotel security guard in Germany assaults Ukrainian soldier for wearing his uniform](https://news.yahoo.com/hotel-security-guard-germany-assaults-163400010.html)
 - Mar 12 - [Man sues Buffalo Wild Wings because he says their 'boneless wings' are actually chicken nuggets](https://news.yahoo.com/man-sues-buffalo-wild-wings-160713447.html)
-- Mar 12 - [Yellen: No federal bailout for collapsed Silicon Valley Bank](https://news.yahoo.com/yellen-says-no-federal-bailout-131152206.html)
 <!-- feed end -->
