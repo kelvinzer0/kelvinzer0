@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 12 - [4 astronauts depart International Space Station](https://news.yahoo.com/4-astronauts-depart-international-space-023706026.html)
 - Mar 11 - [Marriott Reveals Lewd Details of Claim Against Michael Irvin](https://news.yahoo.com/marriott-reveals-lewd-details-claim-224956156.html)
 - Mar 11 - [Wisconsin woman claims she saw 'dark, shadowy figure' when she stabbed ex-boyfriend 19 times](https://news.yahoo.com/wisconsin-woman-claims-she-saw-210541877.html)
 - Mar 11 - [Dad discovers his daughter's a stripper, refuses to make her car payments any longer: 'It's my money'](https://news.yahoo.com/dad-discovers-daughters-stripper-refuses-193330348.html)
 - Mar 11 - [Outskirts of Bakhmut littered with corpses of Russians, and collaborators are fleeing to Russia – Ukrainian official](https://news.yahoo.com/outskirts-bakhmut-littered-corpses-russians-192946166.html)
-- Mar 11 - [Indonesia's Merapi volcano erupts, covers villages in ash](https://news.yahoo.com/indonesias-merapi-volcano-erupts-covers-173511897.html)
 <!-- feed end -->
