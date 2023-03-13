@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 13 - [2023 Oscars: MUST-SEE Moments](https://news.yahoo.com/2023-oscars-must-see-moments-052800854.html)
-- Mar 13 - [Best Actor Brendan Fraser Talks Backstage at the 95th Academy Awards](https://news.yahoo.com/best-actor-brendan-fraser-talks-045619836.html)
+- Mar 13 - [Oscars highlights include 'Everything Everywhere All at Once,' Jimmy Kimmel's monologue](https://news.yahoo.com/oscars-highlights-everything-everywhere-once-061857470.html)
+- Mar 13 - [Las Vegas water agency seeks power to limit residential use](https://news.yahoo.com/las-vegas-water-agency-seeks-060836282.html)
 - Mar 13 - [Jimmy Kimmel Smacks Tucker Carlson During Oscars Without Even Using His Name](https://news.yahoo.com/jimmy-kimmel-smacks-tucker-carlson-051914753.html)
-- Mar 13 - [Bernie Sanders says Silicon Valley Bank's failure is the 'direct result' of a Trump-era bank regulation policy](https://news.yahoo.com/bernie-sanders-says-silicon-valley-045130094.html)
-- Mar 13 - ['Everything Everywhere All at Once' Star Stephanie Hsu Gets Emotional on Oscars Carpet](https://news.yahoo.com/everything-everywhere-once-star-stephanie-044156870.html)
+- Mar 13 - [A teary John Travolta couldn't distract from Oscars In Memoriam's missing big names](https://news.yahoo.com/teary-john-travolta-couldnt-distract-051227361.html)
+- Mar 13 - [Man steals half-million dollars of crab pretending to be Safeway representative in the North Sound](https://news.yahoo.com/man-steals-half-million-dollars-045400963.html)
 <!-- feed end -->
