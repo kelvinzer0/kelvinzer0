@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 13 - [Chris Rock Screwed Up During His "Selective Outrage" Special Before Netflix Edited Out The Mistake](https://news.yahoo.com/chris-rock-screwed-during-selective-204438616.html)
+- Mar 13 - [TikTok s Viral Potato Dumplings Are the Perfect Winter Snack  Here s a Recipe](https://news.yahoo.com/tiktok-viral-potato-dumplings-perfect-203301088.html)
+- Mar 13 - [Wife of man killed by Oregon police gets apology, settlement](https://news.yahoo.com/wife-man-killed-oregon-police-195741400.html)
 - Mar 13 - [Jamie Lee Curtis's Oscar Win Has Sparked Backlash, And People Are Not Holding Back](https://news.yahoo.com/jamie-lee-curtiss-oscar-win-075947441.html)
-- Mar 13 - [Illinois enacts mandatory paid leave 'for any reason'](https://news.yahoo.com/illinois-enacts-mandatory-paid-leave-191410614.html)
-- Mar 13 - [This Woman Is Going Viral On Twitter For Reapplying For Her Own Job After She Saw It Posted With A Higher Salary](https://news.yahoo.com/woman-going-viral-twitter-reapplying-190959269.html)
-- Mar 13 - [Woman reapplies for her own job after higher salary offered for the job in new listing](https://news.yahoo.com/woman-reapplies-her-own-job-185210821.html)
-- Mar 13 - [Three men attempted suicide after woman’s false accusations of rape and grooming, court hears](https://news.yahoo.com/three-men-attempted-suicide-woman-185130235.html)
+- Mar 13 - [Gary Glitter back in prison after a month because of ‘Dark Web footage’](https://news.yahoo.com/gary-glitter-back-prison-month-192802415.html)
 <!-- feed end -->
