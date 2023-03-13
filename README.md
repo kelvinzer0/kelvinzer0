@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 13 - [Chris Rock Screwed Up During His "Selective Outrage" Special Before Netflix Edited Out The Mistake](https://news.yahoo.com/chris-rock-screwed-during-selective-204438616.html)
-- Mar 13 - [TikTok s Viral Potato Dumplings Are the Perfect Winter Snack  Here s a Recipe](https://news.yahoo.com/tiktok-viral-potato-dumplings-perfect-203301088.html)
-- Mar 13 - [Wife of man killed by Oregon police gets apology, settlement](https://news.yahoo.com/wife-man-killed-oregon-police-195741400.html)
-- Mar 13 - [Jamie Lee Curtis's Oscar Win Has Sparked Backlash, And People Are Not Holding Back](https://news.yahoo.com/jamie-lee-curtiss-oscar-win-075947441.html)
-- Mar 13 - [Gary Glitter back in prison after a month because of ‘Dark Web footage’](https://news.yahoo.com/gary-glitter-back-prison-month-192802415.html)
+- Mar 13 - [Japanese woman groped in viral Holi video breaks silence: ‘I love everything about India’](https://news.yahoo.com/japanese-woman-groped-viral-holi-214725473.html)
+- Mar 13 - [McConnell released from hospital, headed to inpatient rehab](https://news.yahoo.com/mcconnell-released-hospital-headed-inpatient-212610118.html)
+- Mar 13 - [TikTok Just Taught Me That You Can Sometimes Feel When Your Body Releases An Egg During Ovulation, And I Am Once Again Asking Schools To Start Teaching This Kind Of Stuff In Health Class](https://news.yahoo.com/tiktok-just-taught-sometimes-feel-190803944.html)
+- Mar 13 - [A Voter For The 2023 Oscars Said That "Viola Davis And The Lady Director" Need To "Shut Up" After "Woman King" Was Snubbed, And It Shows How Messed Up This Whole Process Is](https://news.yahoo.com/voter-2023-oscars-said-viola-201930223.html)
+- Mar 13 - [Chasten Buttigieg responds to Pence’s paternity leave joke: ‘Where would you be?’](https://news.yahoo.com/chasten-buttigieg-responds-pence-paternity-193536864.html)
 <!-- feed end -->
