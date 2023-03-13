@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 13 - [Jimmy Kimmel’s Opening Monologue At The 2023 Oscars Got Some Gasps From The Crowd: Here Are His Spiciest Jokes](https://news.yahoo.com/jimmy-kimmels-opening-oscars-monologue-065747732.html)
+- Mar 13 - [Ron DeSantis posed with a handmade snowflake. It had the word 'fascist' written all over it.](https://news.yahoo.com/ron-desantis-posed-handmade-snowflake-100041493.html)
 - Mar 13 - [Las Vegas water agency seeks power to limit residential use](https://news.yahoo.com/las-vegas-water-agency-seeks-060836282.html)
-- Mar 13 - [Prince William, Kate Middleton’s marriage seems perfect ‘but it’s not all sweetness,' author claims](https://news.yahoo.com/prince-william-kate-middleton-marriage-060013009.html)
-- Mar 13 - [Best Actor Brendan Fraser Talks Backstage at the 95th Academy Awards](https://news.yahoo.com/best-actor-brendan-fraser-talks-045619836.html)
 - Mar 13 - [Jimmy Kimmel Smacks Tucker Carlson During Oscars Without Even Using His Name](https://news.yahoo.com/jimmy-kimmel-smacks-tucker-carlson-051914753.html)
 - Mar 13 - [Man steals half-million dollars of crab pretending to be Safeway representative in the North Sound](https://news.yahoo.com/man-steals-half-million-dollars-045400963.html)
 <!-- feed end -->
