@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 12 - [Former student at Wisconsin college charged in threats case](https://news.yahoo.com/former-student-wisconsin-college-charged-222803997.html)
-- Mar 12 - [Illness sidelines Springsteen tour as 3 concerts postponed](https://news.yahoo.com/illness-sidelines-springsteen-tour-3-222403202.html)
-- Mar 12 - [March Madness: Alabama, Houston, Kansas, Purdue the 1 seeds](https://news.yahoo.com/alabama-earns-top-billing-march-220826577.html)
-- Mar 12 - [Oscars 2023 carpet: Sofia Carson, Fan Bingbing bring regal](https://news.yahoo.com/oscars-2023-carpet-sofia-carson-220638205.html)
-- Mar 12 - [Russians warned of nuclear attack after hackers break in to country's TV service](https://news.yahoo.com/russians-warned-nuclear-attack-hackers-203332617.html)
+- Mar 13 - [Jimmy Kimmel Jabs at Academy During Oscars Monologue](https://news.yahoo.com/jimmy-kimmel-jabs-academy-during-004432226.html)
+- Mar 13 - [Jamie Lee Curtis wins Oscar for best supporting actress](https://news.yahoo.com/jamie-lee-curtis-wins-oscar-004249826.html)
+- Mar 13 - [Ke Huy Quan wins Oscar in an inspiring Hollywood comeback](https://news.yahoo.com/ke-huy-quan-wins-oscar-003256873.html)
+- Mar 13 - [France is already sending one armored 'oddity' to Ukraine. Now it might send a slightly odder one.](https://news.yahoo.com/france-already-sending-one-armored-001700011.html)
+- Mar 12 - [Melissa McCarthy's Oscars gown was ruined when Christian Siriano's studio flooded — so he made a new one in days](https://news.yahoo.com/melissa-mccarthys-oscars-gown-ruined-235648371.html)
 <!-- feed end -->
