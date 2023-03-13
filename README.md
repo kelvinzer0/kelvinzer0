@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 13 - [Soldier who hijacked school bus found not guilty by insanity](https://news.yahoo.com/soldier-hijacked-school-bus-found-175953721.html)
-- Mar 13 - [Free-agent receivers reportedly ‘blowing up’ Patrick Mahomes’ phone, want to join Chiefs](https://news.yahoo.com/free-agent-receivers-reportedly-blowing-175343382.html)
-- Mar 13 - [Michael Cohen testifies before grand jury in Trump hush money probe](https://news.yahoo.com/michael-cohen-testifies-grand-jury-174821197.html)
-- Mar 13 - [School pulls test question equating ideology to race, gender](https://news.yahoo.com/school-pulls-test-equating-ideology-171550294.html)
-- Mar 13 - [California cancels salmon fishing season: "It's devastating"](https://news.yahoo.com/california-cancels-salmon-fishing-season-171539191.html)
+- Mar 13 - [Pence: American people want ‘problem solvers, not payback’](https://news.yahoo.com/pence-american-people-want-problem-184718324.html)
+- Mar 13 - [Mexican president says his country safer than United States](https://news.yahoo.com/mexican-president-says-country-safer-184513586.html)
+- Mar 13 - [Defense budget speeds toward $1 trillion, with China in mind](https://news.yahoo.com/defense-budget-speeds-toward-1-182646188.html)
+- Mar 13 - [From Colombia or Haiti, migrants' long road ends in Canada](https://news.yahoo.com/colombia-haiti-migrants-long-road-182640903.html)
+- Mar 13 - [Review: U2 reworks past in thrilling 'Songs of Surrender'](https://news.yahoo.com/review-u2-reworks-past-thrilling-182437609.html)
 <!-- feed end -->
