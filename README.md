@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 13 - [Caterpillar workers ratify new 6-year contract with company](https://news.yahoo.com/caterpillar-workers-ratify-6-contract-150400426.html)
-- Mar 13 - [Biden insists American 'banking system is safe'](https://news.yahoo.com/biden-insists-american-banking-system-142518111.html)
-- Mar 13 - [Mindy Kaling sparks jokes she's on buzzy drug Ozempic at the Oscars. Here's what she's said about her weight loss.](https://news.yahoo.com/mindy-kaling-sparks-jokes-shes-132101047.html)
-- Mar 13 - [Yeoh, Fraser feel the love at Vanity Fair post-Oscars party](https://news.yahoo.com/yeoh-fraser-feel-love-vanity-131347017.html)
-- Mar 13 - [I Was Drinking A Liter Of Vodka A Day. Then A Single Word From My Son Caused Me To Seek Help.](https://news.yahoo.com/drinking-liter-vodka-day-then-130002250.html)
+- Mar 13 - [A Florida mother and daughter bought a house, 2 cars with a dementia patient’s $542,000](https://news.yahoo.com/florida-mother-daughter-bought-house-153843273.html)
+- Mar 13 - [Fact check: False claim about Jacob Chansley, the QAnon shaman, amid Jan. 6 tapes reveal](https://news.yahoo.com/fact-check-false-claim-jacob-150646104.html)
+- Mar 13 - [Angela Bassett Has Gone Viral After Refusing To Hide Her Disappointment When She Lost The Best Supporting Actress Oscar To Jamie Lee Curtis](https://news.yahoo.com/angela-bassett-gone-viral-refusing-144037489.html)
+- Mar 13 - [Elizabeth Warren criticizes 'overnight' bailout of SVB customers while leaving 'millions of student loan borrowers in limbo'](https://news.yahoo.com/elizabeth-warren-criticizes-overnight-bailout-143317825.html)
+- Mar 13 - [Atmospheric river continues to drench California, causing levees to breach, evacuations](https://news.yahoo.com/atmospheric-river-continues-drench-california-142800044.html)
 <!-- feed end -->
