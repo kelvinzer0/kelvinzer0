@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 13 - [Michelle Yeoh's family erupts after she becomes first Asian to win best actress Oscar](https://news.yahoo.com/michelle-yeohs-family-erupts-she-115551620.html)
+- Mar 13 - [Jamie Lee Curtis's Oscar Win Has Sparked Backlash And People Are Not Holding Back](https://news.yahoo.com/jamie-lee-curtiss-oscar-win-075947441.html)
+- Mar 13 - [Pence delivers rebuke of Trump's role in Jan. 6 riot](https://news.yahoo.com/pence-delivers-rebuke-trumps-role-122427208.html)
+- Mar 13 - [Fauci hits back at critics like Elon Musk, who have called for his prosecution, saying 'I wish I could figure out what the heck they're talking about'](https://news.yahoo.com/fauci-hits-back-critics-elon-114220757.html)
 - Mar 13 - [Lady Gaga Responds To Oscar Champagne-Carpet Mishap Like A Mother Monster Should](https://news.yahoo.com/lady-gaga-responds-oscar-champagne-113141764.html)
 - Mar 13 - [‘Unforgiving’: Wild stallion dies after brutal fight on North Carolina’s Outer Banks](https://news.yahoo.com/unforgiving-wild-stallion-dies-brutal-105436177.html)
-- Mar 13 - [Ron DeSantis posed with a handmade snowflake. It had the word 'fascist' written all over it.](https://news.yahoo.com/ron-desantis-posed-handmade-snowflake-100041493.html)
-- Mar 13 - [Berlin's government has declared that women, like men, are allowed to swim topless at pools if they want to](https://news.yahoo.com/berlins-government-declared-women-men-061932049.html)
 <!-- feed end -->
