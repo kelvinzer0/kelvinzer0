@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 13 - [2023 Oscars: MUST-SEE Moments](https://news.yahoo.com/2023-oscars-must-see-moments-052800854.html)
 - Mar 13 - [Best Actor Brendan Fraser Talks Backstage at the 95th Academy Awards](https://news.yahoo.com/best-actor-brendan-fraser-talks-045619836.html)
+- Mar 13 - [Jimmy Kimmel Smacks Tucker Carlson During Oscars Without Even Using His Name](https://news.yahoo.com/jimmy-kimmel-smacks-tucker-carlson-051914753.html)
+- Mar 13 - [Bernie Sanders says Silicon Valley Bank's failure is the 'direct result' of a Trump-era bank regulation policy](https://news.yahoo.com/bernie-sanders-says-silicon-valley-045130094.html)
 - Mar 13 - ['Everything Everywhere All at Once' Star Stephanie Hsu Gets Emotional on Oscars Carpet](https://news.yahoo.com/everything-everywhere-once-star-stephanie-044156870.html)
-- Mar 13 - [US turns to new ways to punish Russian oligarchs for the war](https://news.yahoo.com/us-turns-ways-punish-russian-040932361.html)
-- Mar 13 - [Watch Malala Yousafzai Deftly Shut Down Jimmy Kimmel’s Oscar Bit](https://news.yahoo.com/watch-malala-yousafzai-deftly-shut-034451783.html)
-- Mar 13 - [Michelle Yeoh wins best actress award, making Oscar history](https://news.yahoo.com/michelle-yeoh-wins-best-actress-033003889.html)
 <!-- feed end -->
