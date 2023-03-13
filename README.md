@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 13 - [Best Actor Brendan Fraser Talks Backstage at the 95th Academy Awards](https://news.yahoo.com/best-actor-brendan-fraser-talks-045619836.html)
+- Mar 13 - ['Everything Everywhere All at Once' Star Stephanie Hsu Gets Emotional on Oscars Carpet](https://news.yahoo.com/everything-everywhere-once-star-stephanie-044156870.html)
+- Mar 13 - [US turns to new ways to punish Russian oligarchs for the war](https://news.yahoo.com/us-turns-ways-punish-russian-040932361.html)
+- Mar 13 - [Watch Malala Yousafzai Deftly Shut Down Jimmy Kimmel’s Oscar Bit](https://news.yahoo.com/watch-malala-yousafzai-deftly-shut-034451783.html)
 - Mar 13 - [Michelle Yeoh wins best actress award, making Oscar history](https://news.yahoo.com/michelle-yeoh-wins-best-actress-033003889.html)
-- Mar 13 - [Brendan Fraser wins best-actor Oscar in career comeback](https://news.yahoo.com/brendan-fraser-wins-best-actor-032514770.html)
-- Mar 13 - [This Viral TikTok Breaks Down How Messy Avril Lavigne And Tyga's New Relationship Is](https://news.yahoo.com/viral-tiktok-breaks-down-messy-031605327.html)
-- Mar 13 - [Angela Bassett’s Face When She Lost The Oscar To Jamie Lee Curtis Is Breaking Hearts](https://news.yahoo.com/angela-bassett-face-she-lost-025148321.html)
-- Mar 13 - [Ke Huy Quan wins Oscar in an inspiring Hollywood comeback](https://news.yahoo.com/ke-huy-quan-wins-oscar-003256873.html)
 <!-- feed end -->
