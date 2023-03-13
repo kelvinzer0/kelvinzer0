@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 13 - [Indicted aide to former Maryland governor misses court date](https://news.yahoo.com/indicted-aide-former-maryland-governor-160758836.html)
-- Mar 13 - ['Fierce' battles rage in central Bakhmut as Russia claims progress](https://news.yahoo.com/fierce-battles-rage-central-bakhmut-155803583.html)
-- Mar 13 - [A Florida mother and daughter bought a house, 2 cars with a dementia patient’s $542,000](https://news.yahoo.com/florida-mother-daughter-bought-house-153843273.html)
-- Mar 13 - [Fact check: False claim about Jacob Chansley, the QAnon shaman, amid Jan. 6 tapes reveal](https://news.yahoo.com/fact-check-false-claim-jacob-150646104.html)
-- Mar 13 - [Angela Bassett Has Gone Viral After Refusing To Hide Her Disappointment When She Lost The Best Supporting Actress Oscar To Jamie Lee Curtis](https://news.yahoo.com/angela-bassett-gone-viral-refusing-144037489.html)
+- Mar 13 - [Soldier who hijacked school bus found not guilty by insanity](https://news.yahoo.com/soldier-hijacked-school-bus-found-175953721.html)
+- Mar 13 - [Free-agent receivers reportedly ‘blowing up’ Patrick Mahomes’ phone, want to join Chiefs](https://news.yahoo.com/free-agent-receivers-reportedly-blowing-175343382.html)
+- Mar 13 - [Michael Cohen testifies before grand jury in Trump hush money probe](https://news.yahoo.com/michael-cohen-testifies-grand-jury-174821197.html)
+- Mar 13 - [School pulls test question equating ideology to race, gender](https://news.yahoo.com/school-pulls-test-equating-ideology-171550294.html)
+- Mar 13 - [California cancels salmon fishing season: "It's devastating"](https://news.yahoo.com/california-cancels-salmon-fishing-season-171539191.html)
 <!-- feed end -->
