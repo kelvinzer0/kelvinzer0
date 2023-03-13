@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 13 - [Las Vegas water agency seeks power to limit residential use](https://news.yahoo.com/las-vegas-water-agency-seeks-060836282.html)
+- Mar 13 - [Prince William, Kate Middleton’s marriage seems perfect ‘but it’s not all sweetness,' author claims](https://news.yahoo.com/prince-william-kate-middleton-marriage-060013009.html)
 - Mar 13 - [Best Actor Brendan Fraser Talks Backstage at the 95th Academy Awards](https://news.yahoo.com/best-actor-brendan-fraser-talks-045619836.html)
 - Mar 13 - [Jimmy Kimmel Smacks Tucker Carlson During Oscars Without Even Using His Name](https://news.yahoo.com/jimmy-kimmel-smacks-tucker-carlson-051914753.html)
-- Mar 13 - [A teary John Travolta couldn't distract from Oscars In Memoriam's missing big names](https://news.yahoo.com/teary-john-travolta-couldnt-distract-051227361.html)
 - Mar 13 - [Man steals half-million dollars of crab pretending to be Safeway representative in the North Sound](https://news.yahoo.com/man-steals-half-million-dollars-045400963.html)
 <!-- feed end -->
