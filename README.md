@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 13 - [Oscars highlights include 'Everything Everywhere All at Once,' Jimmy Kimmel's monologue](https://news.yahoo.com/oscars-highlights-everything-everywhere-once-061857470.html)
+- Mar 13 - [14 Nepo Babies Who Tagged Along To The 2023 Oscars With Their Famous Parent Or Sibling](https://news.yahoo.com/14-celebs-brought-family-2023-050232782.html)
 - Mar 13 - [Las Vegas water agency seeks power to limit residential use](https://news.yahoo.com/las-vegas-water-agency-seeks-060836282.html)
 - Mar 13 - [Jimmy Kimmel Smacks Tucker Carlson During Oscars Without Even Using His Name](https://news.yahoo.com/jimmy-kimmel-smacks-tucker-carlson-051914753.html)
 - Mar 13 - [A teary John Travolta couldn't distract from Oscars In Memoriam's missing big names](https://news.yahoo.com/teary-john-travolta-couldnt-distract-051227361.html)
