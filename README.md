@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 13 - [Jamie Lee Curtis Beat Angela Bassett at the Oscars and the Internet Isn’t Pleased](https://news.yahoo.com/jamie-lee-curtis-beat-angela-014159562.html)
-- Mar 13 - [Jimmy Kimmel Jabs at Academy During Oscars Monologue](https://news.yahoo.com/jimmy-kimmel-jabs-academy-during-004432226.html)
-- Mar 13 - [Jamie Lee Curtis wins Oscar for best supporting actress](https://news.yahoo.com/jamie-lee-curtis-wins-oscar-004249826.html)
-- Mar 13 - [Ke Huy Quan wins Oscar in an inspiring Hollywood comeback](https://news.yahoo.com/ke-huy-quan-wins-oscar-003256873.html)
+- Mar 13 - [Welp, Kendall Jenner And Bad Bunny Officially Seem To Be A Thing, And People Had A LOT To Say About It](https://news.yahoo.com/welp-kendall-jenner-bad-bunny-025840809.html)
+- Mar 13 - [Angela Bassett’s Face When She Lost The Oscar To Jamie Lee Curtis Is Breaking Hearts](https://news.yahoo.com/angela-bassett-face-she-lost-025148321.html)
 - Mar 13 - [France is already sending one armored 'oddity' to Ukraine. Now it might send a slightly odder one.](https://news.yahoo.com/france-already-sending-one-armored-001700011.html)
+- Mar 13 - [Ed Begley Jr. And His Daughter Hayden Continue Adorable Tradition At Oscars](https://news.yahoo.com/ed-begley-jr-daughter-hayden-001225842.html)
+- Mar 12 - [Melissa McCarthy's Oscars gown was ruined when Christian Siriano's studio flooded — so he made a new one in days](https://news.yahoo.com/melissa-mccarthys-oscars-gown-ruined-235648371.html)
 <!-- feed end -->
