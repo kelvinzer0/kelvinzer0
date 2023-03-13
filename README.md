@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 13 - [Jimmy Kimmel’s Opening Monologue At The 2023 Oscars Got Some Gasps From The Crowd: Here Are His Spiciest Jokes](https://news.yahoo.com/jimmy-kimmels-opening-oscars-monologue-065747732.html)
+- Mar 13 - [Michelle Yeoh's family erupts after she becomes first Asian to win best actress Oscar](https://news.yahoo.com/michelle-yeohs-family-erupts-she-115551620.html)
+- Mar 13 - [Lady Gaga Responds To Oscar Champagne-Carpet Mishap Like A Mother Monster Should](https://news.yahoo.com/lady-gaga-responds-oscar-champagne-113141764.html)
+- Mar 13 - [‘Unforgiving’: Wild stallion dies after brutal fight on North Carolina’s Outer Banks](https://news.yahoo.com/unforgiving-wild-stallion-dies-brutal-105436177.html)
 - Mar 13 - [Ron DeSantis posed with a handmade snowflake. It had the word 'fascist' written all over it.](https://news.yahoo.com/ron-desantis-posed-handmade-snowflake-100041493.html)
-- Mar 13 - [Las Vegas water agency seeks power to limit residential use](https://news.yahoo.com/las-vegas-water-agency-seeks-060836282.html)
-- Mar 13 - [Jimmy Kimmel Smacks Tucker Carlson During Oscars Without Even Using His Name](https://news.yahoo.com/jimmy-kimmel-smacks-tucker-carlson-051914753.html)
-- Mar 13 - [Man steals half-million dollars of crab pretending to be Safeway representative in the North Sound](https://news.yahoo.com/man-steals-half-million-dollars-045400963.html)
+- Mar 13 - [Berlin's government has declared that women, like men, are allowed to swim topless at pools if they want to](https://news.yahoo.com/berlins-government-declared-women-men-061932049.html)
 <!-- feed end -->
