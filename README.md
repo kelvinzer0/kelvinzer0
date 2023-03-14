@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [Mike Pence reacts to criticism over 'flamboyantly pure' promise to his wife](https://news.yahoo.com/mike-pence-reacts-criticism-over-161124667.html)
-- Mar 14 - [Tyson to close poultry facilities in Virginia, Arkansas](https://news.yahoo.com/tyson-close-poultry-facilities-virginia-153823455.html)
+- Mar 14 - [Case dropped against couple after gun pulled on Black family](https://news.yahoo.com/case-dropped-against-couple-gun-165657181.html)
 - Mar 14 - [Will Shasta Dam open spillway gates as more rain, snowmelt raise Lake Shasta water level?](https://news.yahoo.com/shasta-dam-open-spillway-gates-130031665.html)
-- Mar 14 - [How one Jefferson Township family's Mexico vacation turned into a nightmare](https://news.yahoo.com/one-jefferson-township-familys-mexico-100207286.html)
-- Mar 14 - [Juno Awards 2023: Avril Lavigne confronts topless protester onstage while The Weeknd wins big](https://news.yahoo.com/juno-awards-avril-lavigne-confronts-103223761.html)
+- Mar 14 - [Mike Pence reacts to criticism over 'flamboyantly pure' promise to his wife](https://news.yahoo.com/mike-pence-reacts-criticism-over-161124667.html)
+- Mar 14 - [Viewers are rushing to support yet another TikToker who said she refused to give up a window seat on a flight for a fellow passenger and has no regrets](https://news.yahoo.com/viewers-rushing-support-yet-another-161104262.html)
+- Mar 14 - [The View Slams Pence for Sexist Joke About Pete Buttigieg](https://news.yahoo.com/view-slams-pence-sexist-joke-160925904.html)
 <!-- feed end -->
