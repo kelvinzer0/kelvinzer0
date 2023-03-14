@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [Austin Butler Explained Why His Girlfriend Kaia Gerber Wasn't By His Side At The Oscars](https://news.yahoo.com/austin-butler-explained-why-girlfriend-234340489.html)
-- Mar 14 - [Australia to buy US nuclear subs in ambitious new pact](https://news.yahoo.com/australia-buy-us-nuclear-subs-030649561.html)
-- Mar 14 - [All 500 original members of a Ukrainian battalion were killed or wounded in fighting with Russia, commander says](https://news.yahoo.com/500-original-members-ukrainian-battalion-005556756.html)
-- Mar 13 - [Joe Pepitone, flamboyant Yankees All-Star, dead at 82](https://news.yahoo.com/joe-pepitone-flamboyant-yankees-star-232924019.html)
-- Mar 13 - [Trump Blames Mike Pence For Jan. 6 Violence For Not Going Along With His Coup Attempt](https://news.yahoo.com/trump-blames-mike-pence-jan-221444807.html)
+- Mar 14 - [Pedro Pascal's Intense Starbucks Order Is Going Viral, And I'm Pretty Sure It Would Put Me In An Anxiety-Induced Caffeine Haze](https://news.yahoo.com/pedro-pascals-intense-starbucks-order-200637646.html)
+- Mar 14 - [After Ron Desantis got testy over a reporter’s question about Ukraine, he told Tucker Carlson the war should not be a US priority, moving closer to Trump’s position](https://news.yahoo.com/ron-desantis-got-testy-over-032545640.html)
+- Mar 14 - [Former Rep. Pat Schroeder, pioneer for women's rights, dies](https://news.yahoo.com/former-rep-pat-schroeder-pioneer-031910700.html)
+- Mar 14 - [Trucker records creepy ghost-like figure on Arizona highway while driving alone: Dashcam video](https://news.yahoo.com/trucker-records-creepy-ghost-figure-011934980.html)
+- Mar 13 - [Watch: Bald eagle parents protect their egg during snowstorm in northern California](https://news.yahoo.com/watch-bald-eagle-parents-protect-234139090.html)
 <!-- feed end -->
