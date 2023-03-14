@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [Jamie Lee Curtis's Oscar Win Has Sparked Backlash, And People Are Not Holding Back](https://news.yahoo.com/jamie-lee-curtiss-oscar-win-075947441.html)
-- Mar 14 - [17 Things That Used To Be Totally Normal In Everyday Life And Are Now Known To Be Super Dangerous](https://news.yahoo.com/17-things-used-totally-normal-200416186.html)
 - Mar 14 - [Russian fighter jet collides with US Air Force drone over Black Sea](https://news.yahoo.com/russian-fighter-jet-collides-us-172003084.html)
 - Mar 14 - [Will Shasta Dam open spillway gates as more rain, snowmelt raise Lake Shasta water level?](https://news.yahoo.com/shasta-dam-open-spillway-gates-130031665.html)
-- Mar 14 - [Paris Hilton's Biggest Revelations From Memoir](https://news.yahoo.com/paris-hiltons-biggest-revelations-memoir-165700889.html)
+- Mar 14 - [People Are Thirsting Over "Everything Everywhere All At Once" Editor Paul Rogers, And It's Hilarious](https://news.yahoo.com/people-thirsting-over-everything-everywhere-184511026.html)
+- Mar 14 - [Anglers thought they hooked a tiger shark. It was something much bigger, video shows](https://news.yahoo.com/anglers-thought-hooked-tiger-shark-183902375.html)
+- Mar 14 - [What's next in Ohio corruption probe after guilty verdicts?](https://news.yahoo.com/whats-next-ohio-corruption-probe-175844508.html)
 <!-- feed end -->
