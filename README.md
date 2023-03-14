@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 14 - [14-year sentence for ex-cop who molested teen rape victim](https://news.yahoo.com/14-sentence-ex-cop-molested-195904181.html)
+- Mar 14 - [Eleanor Williams jailed for eight and a half years for lying about being raped and groomed](https://news.yahoo.com/eleanor-williams-jailed-eight-half-124025462.html)
+- Mar 14 - [Chevron hasn't complied with new California gas pricing law](https://news.yahoo.com/chevron-hasnt-complied-california-gas-192320868.html)
+- Mar 14 - [Wisconsin man charged in Gov. Whitmer plot to change plea](https://news.yahoo.com/wisconsin-man-charged-gov-whitmer-191416069.html)
 - Mar 14 - [Russian fighter jet collides with US Air Force drone over Black Sea](https://news.yahoo.com/russian-fighter-jet-collides-us-172003084.html)
-- Mar 14 - [Will Shasta Dam open spillway gates as more rain, snowmelt raise Lake Shasta water level?](https://news.yahoo.com/shasta-dam-open-spillway-gates-130031665.html)
-- Mar 14 - [People Are Thirsting Over "Everything Everywhere All At Once" Editor Paul Rogers, And It's Hilarious](https://news.yahoo.com/people-thirsting-over-everything-everywhere-184511026.html)
-- Mar 14 - [Anglers thought they hooked a tiger shark. It was something much bigger, video shows](https://news.yahoo.com/anglers-thought-hooked-tiger-shark-183902375.html)
-- Mar 14 - [What's next in Ohio corruption probe after guilty verdicts?](https://news.yahoo.com/whats-next-ohio-corruption-probe-175844508.html)
 <!-- feed end -->
