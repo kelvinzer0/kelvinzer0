@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 14 - [Federal Reserve Chair Jerome Powell says interest rates may rise higher than anticipated](https://news.yahoo.com/federal-chair-jerome-powell-says-173837580.html)
+- Mar 14 - [Pauly Shore Reacts To 'Encino Man' Co-Stars Winning Oscars And Jimmy Kimmel's Mocking](https://news.yahoo.com/pauly-shore-reacts-encino-man-123749486.html)
+- Mar 14 - [My Famous Father Was A Hometown Hero. Then I Told My Truth About Him.](https://news.yahoo.com/famous-father-hometown-hero-then-123001956.html)
+- Mar 14 - [Donald Trump looks set to shock the world again](https://news.yahoo.com/donald-trump-looks-set-shock-122509791.html)
 - Mar 14 - [Michael Cohen reacts after Manhattan grand jury testimony over alleged Daniels payments](https://news.yahoo.com/michael-cohen-reacts-manhattan-grand-121457961.html)
-- Mar 14 - [Ghostly growth in Florida ignites social media. ‘The Grim Reaper crossing the road’](https://news.yahoo.com/ghostly-growth-florida-ignites-social-112204398.html)
-- Mar 14 - [Ukraine says it caught a Russian soldier who had been hiding in abandoned buildings for 6 months after being separated from his unit](https://news.yahoo.com/ukraine-says-caught-russian-soldier-112137400.html)
-- Mar 14 - [Juno Awards 2023: Avril Lavigne confronts topless protester onstage while The Weeknd wins big](https://news.yahoo.com/juno-awards-avril-lavigne-confronts-103223761.html)
-- Mar 14 - [How one Jefferson Township family's Mexico vacation turned into a nightmare](https://news.yahoo.com/one-jefferson-township-familys-mexico-100207286.html)
 <!-- feed end -->
