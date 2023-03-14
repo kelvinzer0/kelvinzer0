@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [NASA releases new Webb Telescope image](https://news.yahoo.com/nasa-releases-webb-telescope-image-201944129.html)
-- Mar 14 - [Russia’s next civil war has already begun](https://news.yahoo.com/russia-next-civil-war-already-201728988.html)
-- Mar 14 - [14-year sentence for ex-cop who molested teen rape victim](https://news.yahoo.com/14-sentence-ex-cop-molested-195904181.html)
-- Mar 14 - [Chevron hasn't complied with new California gas pricing law](https://news.yahoo.com/chevron-hasnt-complied-california-gas-192320868.html)
-- Mar 14 - [Wisconsin man charged in Gov. Whitmer plot to change plea](https://news.yahoo.com/wisconsin-man-charged-gov-whitmer-191416069.html)
+- Mar 14 - [6 Common Food Storage Mistakes to Avoid, According to Food Scientists](https://news.yahoo.com/6-common-food-storage-mistakes-214245223.html)
+- Mar 14 - ['I hate Asians': YouTuber Charleston White draws backlash over violent, vulgar anti-Asian rant](https://news.yahoo.com/hate-asians-youtuber-charleston-white-213511768.html)
+- Mar 14 - [Biden speaks in Monterey Park, Calif.; announces executive order intended to reduce gun violence](https://news.yahoo.com/biden-speaks-monterey-park-calif-213352993.html)
+- Mar 14 - [What can the U.S. do to thwart Mexican drug cartels?](https://news.yahoo.com/what-can-the-us-do-to-thwart-mexican-drug-cartels-213139084.html)
+- Mar 14 - [California ‘Teacher of the Year’ faces 15 charges for alleged relationship with 13-year-old student](https://news.yahoo.com/california-teacher-faces-15-charges-205343549.html)
 <!-- feed end -->
