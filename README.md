@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 13 - [“Must Be In Her Nature”: People Are Praising Lady Gaga For Racing To Help A Photographer Who Fell On The Oscars Red Carpet](https://news.yahoo.com/lady-gaga-being-praised-racing-090605684.html)
-- Mar 13 - [Literally Everyone Is Team Ariana Right Now After Tom Sandoval Cheated On Her With Raquel Leviss](https://news.yahoo.com/literally-everyone-team-ariana-now-191820725.html)
-- Mar 13 - [Last Night's "Vanderpump Rules" Episode Was Wild In Light Of The Tom Sandoval And Raquel Leviss Cheating Scandal](https://news.yahoo.com/last-nights-vanderpump-rules-episode-185734566.html)
+- Mar 14 - [Jamie Lee Curtis's Oscar Win Has Sparked Backlash, And People Are Not Holding Back](https://news.yahoo.com/jamie-lee-curtiss-oscar-win-075947441.html)
+- Mar 13 - [Joe Pepitone, flamboyant Yankees All-Star, dead at 82](https://news.yahoo.com/joe-pepitone-flamboyant-yankees-star-232924019.html)
 - Mar 13 - [Trump Blames Mike Pence For Jan. 6 Violence For Not Going Along With His Coup Attempt](https://news.yahoo.com/trump-blames-mike-pence-jan-221444807.html)
 - Mar 13 - [A new Pentagon map shows how China is beefing up what a top US general calls its 'dangerous position' in the South China Sea](https://news.yahoo.com/pentagon-map-shows-china-beefing-221100619.html)
+- Mar 13 - [Academy issues statement amid backlash over actors left out of in memoriam segment](https://news.yahoo.com/academy-issues-statement-amid-backlash-215828873.html)
 <!-- feed end -->
