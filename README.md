@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [Dutch court convicts man of removing condom without consent](https://news.yahoo.com/dutch-court-convicts-man-removing-145121741.html)
-- Mar 14 - [Biden says Jimmy Carter has asked him to deliver his eulogy](https://news.yahoo.com/biden-deliver-former-president-jimmy-143749026.html)
+- Mar 14 - [Mike Pence reacts to criticism over 'flamboyantly pure' promise to his wife](https://news.yahoo.com/mike-pence-reacts-criticism-over-161124667.html)
+- Mar 14 - [Tyson to close poultry facilities in Virginia, Arkansas](https://news.yahoo.com/tyson-close-poultry-facilities-virginia-153823455.html)
+- Mar 14 - [Will Shasta Dam open spillway gates as more rain, snowmelt raise Lake Shasta water level?](https://news.yahoo.com/shasta-dam-open-spillway-gates-130031665.html)
 - Mar 14 - [How one Jefferson Township family's Mexico vacation turned into a nightmare](https://news.yahoo.com/one-jefferson-township-familys-mexico-100207286.html)
 - Mar 14 - [Juno Awards 2023: Avril Lavigne confronts topless protester onstage while The Weeknd wins big](https://news.yahoo.com/juno-awards-avril-lavigne-confronts-103223761.html)
-- Mar 14 - [Lauren Boebert, 36, and her husband are about to become grandparents. Here's a timeline of their 20-year relationship.](https://news.yahoo.com/lauren-boebert-36-her-husband-133422994.html)
 <!-- feed end -->
