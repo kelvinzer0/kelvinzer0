@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [Federal Reserve Chair Jerome Powell says interest rates may rise higher than anticipated](https://news.yahoo.com/federal-chair-jerome-powell-says-173837580.html)
+- Mar 14 - [Juno Awards 2023: Avril Lavigne confronts topless protester onstage while The Weeknd wins big](https://news.yahoo.com/juno-awards-avril-lavigne-confronts-103223761.html)
+- Mar 14 - [San Francisco to air Black reparations plan, $5M per person](https://news.yahoo.com/san-francisco-air-black-reparations-133030821.html)
+- Mar 14 - [Oprah talks 100th book club pick with "Hello Beautiful" author Ann Napolitano](https://news.yahoo.com/oprah-talks-100th-book-club-131239053.html)
+- Mar 14 - [The Hill’s Headlines - Mar. 14, 2023](https://news.yahoo.com/hill-headlines-mar-14-2023-130300659.html)
 - Mar 14 - [Pauly Shore Reacts To 'Encino Man' Co-Stars Winning Oscars And Jimmy Kimmel's Mocking](https://news.yahoo.com/pauly-shore-reacts-encino-man-123749486.html)
-- Mar 14 - [My Famous Father Was A Hometown Hero. Then I Told My Truth About Him.](https://news.yahoo.com/famous-father-hometown-hero-then-123001956.html)
-- Mar 14 - [Donald Trump looks set to shock the world again](https://news.yahoo.com/donald-trump-looks-set-shock-122509791.html)
-- Mar 14 - [Michael Cohen reacts after Manhattan grand jury testimony over alleged Daniels payments](https://news.yahoo.com/michael-cohen-reacts-manhattan-grand-121457961.html)
 <!-- feed end -->
