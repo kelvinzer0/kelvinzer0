@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [Case dropped against couple after gun pulled on Black family](https://news.yahoo.com/case-dropped-against-couple-gun-165657181.html)
+- Mar 14 - [Jamie Lee Curtis's Oscar Win Has Sparked Backlash, And People Are Not Holding Back](https://news.yahoo.com/jamie-lee-curtiss-oscar-win-075947441.html)
+- Mar 14 - [17 Things That Used To Be Totally Normal In Everyday Life And Are Now Known To Be Super Dangerous](https://news.yahoo.com/17-things-used-totally-normal-200416186.html)
+- Mar 14 - [Russian fighter jet collides with US Air Force drone over Black Sea](https://news.yahoo.com/russian-fighter-jet-collides-us-172003084.html)
 - Mar 14 - [Will Shasta Dam open spillway gates as more rain, snowmelt raise Lake Shasta water level?](https://news.yahoo.com/shasta-dam-open-spillway-gates-130031665.html)
-- Mar 14 - [Mike Pence reacts to criticism over 'flamboyantly pure' promise to his wife](https://news.yahoo.com/mike-pence-reacts-criticism-over-161124667.html)
-- Mar 14 - [Viewers are rushing to support yet another TikToker who said she refused to give up a window seat on a flight for a fellow passenger and has no regrets](https://news.yahoo.com/viewers-rushing-support-yet-another-161104262.html)
-- Mar 14 - [The View Slams Pence for Sexist Joke About Pete Buttigieg](https://news.yahoo.com/view-slams-pence-sexist-joke-160925904.html)
+- Mar 14 - [Paris Hilton's Biggest Revelations From Memoir](https://news.yahoo.com/paris-hiltons-biggest-revelations-memoir-165700889.html)
 <!-- feed end -->
