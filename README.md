@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 14 - [Donald Trump Asks Rally Crowd If They Don't Like Their Kids And People Have Answers](https://news.yahoo.com/donald-trump-asks-rally-crowd-073214961.html)
+- Mar 14 - [Guillermo del Toro on Jimmy Kimmel - hobby shopping with Spielberg and JJ Abrahms](https://news.yahoo.com/guillermo-del-toro-jimmy-kimmel-072105672.html)
 - Mar 14 - [Pedro Pascal's Intense Starbucks Order Is Going Viral, And I'm Pretty Sure It Would Put Me In An Anxiety-Induced Caffeine Haze](https://news.yahoo.com/pedro-pascals-intense-starbucks-order-200637646.html)
 - Mar 14 - [After Ron Desantis got testy over a reporter’s question about Ukraine, he told Tucker Carlson the war should not be a US priority, moving closer to Trump’s position](https://news.yahoo.com/ron-desantis-got-testy-over-032545640.html)
 - Mar 14 - [Former Rep. Pat Schroeder, pioneer for women's rights, dies](https://news.yahoo.com/former-rep-pat-schroeder-pioneer-031910700.html)
-- Mar 14 - [Trucker records creepy ghost-like figure on Arizona highway while driving alone: Dashcam video](https://news.yahoo.com/trucker-records-creepy-ghost-figure-011934980.html)
-- Mar 14 - [All 500 original members of a Ukrainian battalion were killed or wounded in fighting with Russia, commander says](https://news.yahoo.com/500-original-members-ukrainian-battalion-005556756.html)
 <!-- feed end -->
