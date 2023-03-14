@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Mar 14 - [After Ron Desantis got testy over a reporter’s question about Ukraine, he told Tucker Carlson the war should not be a US priority, moving closer to Trump’s position](https://news.yahoo.com/ron-desantis-got-testy-over-032545640.html)
 - Mar 14 - [Former Rep. Pat Schroeder, pioneer for women's rights, dies](https://news.yahoo.com/former-rep-pat-schroeder-pioneer-031910700.html)
 - Mar 14 - [Trucker records creepy ghost-like figure on Arizona highway while driving alone: Dashcam video](https://news.yahoo.com/trucker-records-creepy-ghost-figure-011934980.html)
-- Mar 13 - [Watch: Bald eagle parents protect their egg during snowstorm in northern California](https://news.yahoo.com/watch-bald-eagle-parents-protect-234139090.html)
+- Mar 14 - [All 500 original members of a Ukrainian battalion were killed or wounded in fighting with Russia, commander says](https://news.yahoo.com/500-original-members-ukrainian-battalion-005556756.html)
 <!-- feed end -->
