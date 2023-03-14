@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [14 Nepo Babies Who Tagged Along To The 2023 Oscars With Their Famous Parent Or Sibling](https://news.yahoo.com/14-celebs-brought-family-2023-050232782.html)
-- Mar 14 - [Trump, Who Bragged About Gutting Dodd-Frank, Claims ‘Wokeness’ Caused SVB Collapse](https://news.yahoo.com/trump-bragged-gutting-dodd-frank-005804658.html)
+- Mar 14 - [Austin Butler Explained Why His Girlfriend Kaia Gerber Wasn't By His Side At The Oscars](https://news.yahoo.com/austin-butler-explained-why-girlfriend-234340489.html)
+- Mar 14 - [Australia to buy US nuclear subs in ambitious new pact](https://news.yahoo.com/australia-buy-us-nuclear-subs-030649561.html)
 - Mar 14 - [All 500 original members of a Ukrainian battalion were killed or wounded in fighting with Russia, commander says](https://news.yahoo.com/500-original-members-ukrainian-battalion-005556756.html)
-- Mar 14 - [Jamie Lee Curtis's Oscar Win Has Sparked Backlash, And People Are Not Holding Back](https://news.yahoo.com/jamie-lee-curtiss-oscar-win-075947441.html)
 - Mar 13 - [Joe Pepitone, flamboyant Yankees All-Star, dead at 82](https://news.yahoo.com/joe-pepitone-flamboyant-yankees-star-232924019.html)
+- Mar 13 - [Trump Blames Mike Pence For Jan. 6 Violence For Not Going Along With His Coup Attempt](https://news.yahoo.com/trump-blames-mike-pence-jan-221444807.html)
 <!-- feed end -->
