@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [6 Common Food Storage Mistakes to Avoid, According to Food Scientists](https://news.yahoo.com/6-common-food-storage-mistakes-214245223.html)
+- Mar 14 - [Biden approves controversial Alaska oil project](https://news.yahoo.com/biden-approves-controversial-alaska-oil-223514163.html)
 - Mar 14 - ['I hate Asians': YouTuber Charleston White draws backlash over violent, vulgar anti-Asian rant](https://news.yahoo.com/hate-asians-youtuber-charleston-white-213511768.html)
-- Mar 14 - [Biden speaks in Monterey Park, Calif.; announces executive order intended to reduce gun violence](https://news.yahoo.com/biden-speaks-monterey-park-calif-213352993.html)
-- Mar 14 - [What can the U.S. do to thwart Mexican drug cartels?](https://news.yahoo.com/what-can-the-us-do-to-thwart-mexican-drug-cartels-213139084.html)
 - Mar 14 - [California ‘Teacher of the Year’ faces 15 charges for alleged relationship with 13-year-old student](https://news.yahoo.com/california-teacher-faces-15-charges-205343549.html)
+- Mar 14 - [Florida man serving 400-year prison sentence freed after being exonerated](https://news.yahoo.com/florida-man-serving-400-prison-204700549.html)
+- Mar 14 - [Rainn Wilson called out 'The Last of Us' for perpetuating an 'anti-Christian' bias in media, then slammed Fox News for writing about his comments](https://news.yahoo.com/rainn-wilson-called-last-us-202007923.html)
 <!-- feed end -->
