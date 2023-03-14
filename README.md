@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 14 - [NASA releases new Webb Telescope image](https://news.yahoo.com/nasa-releases-webb-telescope-image-201944129.html)
+- Mar 14 - [Russia’s next civil war has already begun](https://news.yahoo.com/russia-next-civil-war-already-201728988.html)
 - Mar 14 - [14-year sentence for ex-cop who molested teen rape victim](https://news.yahoo.com/14-sentence-ex-cop-molested-195904181.html)
-- Mar 14 - [Eleanor Williams jailed for eight and a half years for lying about being raped and groomed](https://news.yahoo.com/eleanor-williams-jailed-eight-half-124025462.html)
 - Mar 14 - [Chevron hasn't complied with new California gas pricing law](https://news.yahoo.com/chevron-hasnt-complied-california-gas-192320868.html)
 - Mar 14 - [Wisconsin man charged in Gov. Whitmer plot to change plea](https://news.yahoo.com/wisconsin-man-charged-gov-whitmer-191416069.html)
-- Mar 14 - [Russian fighter jet collides with US Air Force drone over Black Sea](https://news.yahoo.com/russian-fighter-jet-collides-us-172003084.html)
 <!-- feed end -->
