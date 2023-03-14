@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 14 - [Dutch court convicts man of removing condom without consent](https://news.yahoo.com/dutch-court-convicts-man-removing-145121741.html)
+- Mar 14 - [Biden says Jimmy Carter has asked him to deliver his eulogy](https://news.yahoo.com/biden-deliver-former-president-jimmy-143749026.html)
+- Mar 14 - [How one Jefferson Township family's Mexico vacation turned into a nightmare](https://news.yahoo.com/one-jefferson-township-familys-mexico-100207286.html)
 - Mar 14 - [Juno Awards 2023: Avril Lavigne confronts topless protester onstage while The Weeknd wins big](https://news.yahoo.com/juno-awards-avril-lavigne-confronts-103223761.html)
-- Mar 14 - [San Francisco to air Black reparations plan, $5M per person](https://news.yahoo.com/san-francisco-air-black-reparations-133030821.html)
-- Mar 14 - [Oprah talks 100th book club pick with "Hello Beautiful" author Ann Napolitano](https://news.yahoo.com/oprah-talks-100th-book-club-131239053.html)
-- Mar 14 - [The Hill’s Headlines - Mar. 14, 2023](https://news.yahoo.com/hill-headlines-mar-14-2023-130300659.html)
-- Mar 14 - [Pauly Shore Reacts To 'Encino Man' Co-Stars Winning Oscars And Jimmy Kimmel's Mocking](https://news.yahoo.com/pauly-shore-reacts-encino-man-123749486.html)
+- Mar 14 - [Lauren Boebert, 36, and her husband are about to become grandparents. Here's a timeline of their 20-year relationship.](https://news.yahoo.com/lauren-boebert-36-her-husband-133422994.html)
 <!-- feed end -->
