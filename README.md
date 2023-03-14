@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [Jamie Lee Curtis's Oscar Win Has Sparked Backlash, And People Are Not Holding Back](https://news.yahoo.com/jamie-lee-curtiss-oscar-win-075947441.html)
-- Mar 13 - [Joe Pepitone, flamboyant Yankees All-Star, dead at 82](https://news.yahoo.com/joe-pepitone-flamboyant-yankees-star-232924019.html)
-- Mar 13 - [Trump Blames Mike Pence For Jan. 6 Violence For Not Going Along With His Coup Attempt](https://news.yahoo.com/trump-blames-mike-pence-jan-221444807.html)
-- Mar 13 - [A new Pentagon map shows how China is beefing up what a top US general calls its 'dangerous position' in the South China Sea](https://news.yahoo.com/pentagon-map-shows-china-beefing-221100619.html)
-- Mar 13 - [Academy issues statement amid backlash over actors left out of in memoriam segment](https://news.yahoo.com/academy-issues-statement-amid-backlash-215828873.html)
+- Mar 14 - [14 Nepo Babies Who Tagged Along To The 2023 Oscars With Their Famous Parent Or Sibling](https://news.yahoo.com/14-celebs-brought-family-2023-050232782.html)
+- Mar 14 - [Andrew Garfield Visibly Cringed When The Oscars Audience Briefly Forgot He Played Spider-Man, And Now It's A Meme](https://news.yahoo.com/andrew-garfield-visibly-cringed-oscars-225041992.html)
+- Mar 14 - [Haley wants entitlement program changes for younger people](https://news.yahoo.com/haley-wants-entitlement-program-changes-011658283.html)
+- Mar 14 - [Trump, Who Bragged About Gutting Dodd-Frank, Claims ‘Wokeness’ Caused SVB Collapse](https://news.yahoo.com/trump-bragged-gutting-dodd-frank-005804658.html)
+- Mar 14 - [All 500 original members of a Ukrainian battalion were killed or wounded in fighting with Russia, commander says](https://news.yahoo.com/500-original-members-ukrainian-battalion-005556756.html)
 <!-- feed end -->
