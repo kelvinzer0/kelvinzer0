@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [Biden expected to sign new executive order on gun control](https://news.yahoo.com/biden-expected-sign-executive-order-093804144.html)
-- Mar 14 - [People on Twitter are mocking George Santos for weighing in on the Silicon Valley Bank implosion: 'Tell them how you once ran Switzerland's largest bank, George'](https://news.yahoo.com/people-twitter-mocking-george-santos-073428688.html)
-- Mar 14 - [Donald Trump Asks Rally Crowd If They Don't Like Their Kids And People Have Answers](https://news.yahoo.com/donald-trump-asks-rally-crowd-073214961.html)
-- Mar 14 - [Lauren Boebert's New Tweet Slamming Joe Biden Is Pure Projection, Say Critics](https://news.yahoo.com/lauren-boeberts-tweet-slamming-joe-061323788.html)
-- Mar 14 - [After Ron Desantis got testy over a reporter’s question about Ukraine, he told Tucker Carlson the war should not be a US priority, moving closer to Trump’s position](https://news.yahoo.com/ron-desantis-got-testy-over-032545640.html)
+- Mar 14 - [Michael Cohen reacts after Manhattan grand jury testimony over alleged Daniels payments](https://news.yahoo.com/michael-cohen-reacts-manhattan-grand-121457961.html)
+- Mar 14 - [Ghostly growth in Florida ignites social media. ‘The Grim Reaper crossing the road’](https://news.yahoo.com/ghostly-growth-florida-ignites-social-112204398.html)
+- Mar 14 - [Ukraine says it caught a Russian soldier who had been hiding in abandoned buildings for 6 months after being separated from his unit](https://news.yahoo.com/ukraine-says-caught-russian-soldier-112137400.html)
+- Mar 14 - [Juno Awards 2023: Avril Lavigne confronts topless protester onstage while The Weeknd wins big](https://news.yahoo.com/juno-awards-avril-lavigne-confronts-103223761.html)
+- Mar 14 - [How one Jefferson Township family's Mexico vacation turned into a nightmare](https://news.yahoo.com/one-jefferson-township-familys-mexico-100207286.html)
 <!-- feed end -->
