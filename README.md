@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 15 - [Roll over Labrador, French bulldog now top US dog](https://news.yahoo.com/roll-over-labrador-french-bulldog-123747940.html)
+- Mar 15 - [Ezekiel Elliott era done in Dallas? Cowboys set to part ways from 2-time rushing champ](https://news.yahoo.com/ezekiel-elliott-era-done-dallas-130820334.html)
+- Mar 15 - [Tucker Carlson Packages 2 Of His Biggest Lies In 1 Stupefying Statement](https://news.yahoo.com/tucker-carlson-packages-2-biggest-125955212.html)
 - Mar 15 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
 - Mar 15 - [Sold: Yacht With a Waterfall. Price: $19 Million. Broker: George Santos.](https://news.yahoo.com/sold-yacht-waterfall-price-19-121406270.html)
-- Mar 15 - [A Russian trainspotter who became obsessed with taking photographs of Putin's 'ghost train' now lives in exile: report](https://news.yahoo.com/russian-trainspotter-became-obsessed-taking-110807018.html)
-- Mar 15 - [Russian plane that took out US drone was 'out of control' and flying like it's 'amateur hour,' US official tells PBS](https://news.yahoo.com/russian-plane-took-us-drone-104434670.html)
+- Mar 15 - [Honda recalling 500,000 vehicles to fix seat belt problem](https://news.yahoo.com/honda-recalling-500-000-vehicles-115057734.html)
 <!-- feed end -->
