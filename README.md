@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 15 - [Austin Butler Explained Why His Girlfriend Kaia Gerber Wasn't By His Side At The Oscars](https://news.yahoo.com/austin-butler-explained-why-girlfriend-234340489.html)
+- Mar 15 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
+- Mar 15 - [17 Things That Used To Be Totally Normal In Everyday Life And Are Now Known To Be Super Dangerous](https://news.yahoo.com/17-things-used-totally-normal-200416186.html)
 - Mar 15 - [Bill restricting electric car stores now law in Mississippi](https://news.yahoo.com/bill-restricting-electric-car-stores-001514077.html)
 - Mar 14 - [Exclusive: Russia’s secret document for destabilizing Moldova](https://news.yahoo.com/exclusive-russias-secret-document-for-destabilizing-moldova-230008434.html)
-- Mar 14 - [Japan is ditching its attack helicopters in another sign that one of the most important modern military weapons is losing its luster](https://news.yahoo.com/japan-ditching-attack-helicopters-another-222300231.html)
 - Mar 14 - [Kentucky middle school principal arrested first day on the job](https://news.yahoo.com/kentucky-middle-school-principal-arrested-215342450.html)
 <!-- feed end -->
