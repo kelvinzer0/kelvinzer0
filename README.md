@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Mar 15 - [Electric car stores will be restricted in Mississippi](https://news.yahoo.com/bill-restricting-electric-car-stores-001514077.html)
 - Mar 14 - [Exclusive: Russia’s secret document for destabilizing Moldova](https://news.yahoo.com/exclusive-russias-secret-document-for-destabilizing-moldova-230008434.html)
 - Mar 14 - [Kentucky middle school principal arrested first day on the job](https://news.yahoo.com/kentucky-middle-school-principal-arrested-215342450.html)
-- Mar 14 - [DeSantis releases graphic video showing trans surgeries after Biden calls governor’s policies ‘cruel’](https://news.yahoo.com/desantis-releases-graphic-video-showing-212808946.html)
+- Mar 14 - ['I hate Asians': YouTuber Charleston White draws backlash over violent, vulgar anti-Asian rant](https://news.yahoo.com/hate-asians-youtuber-charleston-white-213511768.html)
 <!-- feed end -->
