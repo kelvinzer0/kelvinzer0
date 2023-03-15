@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 15 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
-- Mar 15 - [17 Things That Used To Be Totally Normal In Everyday Life And Are Now Known To Be Super Dangerous](https://news.yahoo.com/17-things-used-totally-normal-200416186.html)
-- Mar 15 - [Bill restricting electric car stores now law in Mississippi](https://news.yahoo.com/bill-restricting-electric-car-stores-001514077.html)
+- Mar 15 - [Electric car stores will be restricted in Mississippi](https://news.yahoo.com/bill-restricting-electric-car-stores-001514077.html)
 - Mar 14 - [Exclusive: Russia’s secret document for destabilizing Moldova](https://news.yahoo.com/exclusive-russias-secret-document-for-destabilizing-moldova-230008434.html)
 - Mar 14 - [Kentucky middle school principal arrested first day on the job](https://news.yahoo.com/kentucky-middle-school-principal-arrested-215342450.html)
+- Mar 14 - [DeSantis releases graphic video showing trans surgeries after Biden calls governor’s policies ‘cruel’](https://news.yahoo.com/desantis-releases-graphic-video-showing-212808946.html)
 <!-- feed end -->
