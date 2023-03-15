@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 15 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
+- Mar 15 - [High winds in the San Francisco Bay Area topple a truck, damage building](https://news.yahoo.com/high-winds-san-francisco-bay-121613954.html)
+- Mar 15 - [A Russian trainspotter who became obsessed with taking photographs of Putin's 'ghost train' now lives in exile: report](https://news.yahoo.com/russian-trainspotter-became-obsessed-taking-110807018.html)
+- Mar 15 - [Russian plane that took out US drone was 'out of control' and flying like it's 'amateur hour,' US official tells PBS](https://news.yahoo.com/russian-plane-took-us-drone-104434670.html)
 - Mar 15 - [Indonesia arrests 4 foreigners for alleged drug smuggling](https://news.yahoo.com/indonesia-arrests-4-foreigners-alleged-085506302.html)
-- Mar 15 - [Stephen Colbert's Withering Impression Of Eric Trump Takes A Very Dark Turn](https://news.yahoo.com/stephen-colberts-withering-impression-eric-081341478.html)
-- Mar 15 - [Trump biographer says Donald Trump likely wanted to pay off Stormy Daniels because he was 'more afraid' of Melania Trump than of the electorate](https://news.yahoo.com/trump-biographer-says-donald-trump-075326367.html)
-- Mar 15 - [Jimmy Kimmel Can’t Get His Head Around Donald Trump’s Latest Wild Claim](https://news.yahoo.com/jimmy-kimmel-t-head-around-071815680.html)
-- Mar 15 - [Trump Lawyer Tries To Grab Document From MSNBC's Ari Melber In Heated Interview](https://news.yahoo.com/trump-lawyer-tries-grab-document-061713350.html)
 <!-- feed end -->
