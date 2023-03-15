@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 15 - [Rodgers plans to play for Jets in 2023, awaits Packers' move](https://news.yahoo.com/rodgers-says-intends-play-jets-173528227.html)
-- Mar 15 - [St. Louis prosecutor: Ouster effort is politically motivated](https://news.yahoo.com/st-louis-prosecutor-ouster-effort-163524290.html)
+- Mar 15 - [NATO, Russia in high risk aerial cat-and-mouse game](https://news.yahoo.com/nato-russia-high-risk-aerial-174158137.html)
+- Mar 15 - [Phoenix Suns vent over Giannis Antetokounmpo getting 24 FTAs to their 16 as a team in loss](https://news.yahoo.com/phoenix-suns-vent-over-giannis-183152249.html)
 - Mar 15 - [Woman diagnosed with colon cancer at 24 thought her symptoms were IBS](https://news.yahoo.com/woman-diagnosed-colon-cancer-24-162503920.html)
+- Mar 15 - [Missing man was lured into bathroom for sex, ended up in shallow backyard grave: police](https://news.yahoo.com/missing-man-lured-bathroom-sex-154941729.html)
 - Mar 15 - [Ukraine says it shot down a Russian supersonic bomber over the war's bloodiest battlefield: video](https://news.yahoo.com/ukraine-says-shot-down-russian-153021392.html)
-- Mar 15 - [I Was My Mom’s Caregiver When She Was Terminal. I Was Shocked By What I Didn’t Know About Dying.](https://news.yahoo.com/mom-caregiver-she-terminal-shocked-130000797.html)
 <!-- feed end -->
