@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 15 - [Sen. Warren rips into Fed Chair Powell over bank failures](https://news.yahoo.com/sen-warren-rips-fed-chair-162915398.html)
+- Mar 15 - [Rodgers plans to play for Jets in 2023, awaits Packers' move](https://news.yahoo.com/rodgers-says-intends-play-jets-173528227.html)
+- Mar 15 - [St. Louis prosecutor: Ouster effort is politically motivated](https://news.yahoo.com/st-louis-prosecutor-ouster-effort-163524290.html)
 - Mar 15 - [Woman diagnosed with colon cancer at 24 thought her symptoms were IBS](https://news.yahoo.com/woman-diagnosed-colon-cancer-24-162503920.html)
 - Mar 15 - [Ukraine says it shot down a Russian supersonic bomber over the war's bloodiest battlefield: video](https://news.yahoo.com/ukraine-says-shot-down-russian-153021392.html)
-- Mar 15 - [Ezekiel Elliott era done in Dallas? Cowboys set to part ways from 2-time rushing champ](https://news.yahoo.com/ezekiel-elliott-era-done-dallas-130820334.html)
-- Mar 15 - [Tucker Carlson Packages 2 Of His Biggest Lies In 1 Stupefying Statement](https://news.yahoo.com/tucker-carlson-packages-2-biggest-125955212.html)
+- Mar 15 - [I Was My Mom’s Caregiver When She Was Terminal. I Was Shocked By What I Didn’t Know About Dying.](https://news.yahoo.com/mom-caregiver-she-terminal-shocked-130000797.html)
 <!-- feed end -->
