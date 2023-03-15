@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 14 - [Biden approves controversial Alaska oil project](https://news.yahoo.com/biden-approves-controversial-alaska-oil-223514163.html)
-- Mar 14 - ['I hate Asians': YouTuber Charleston White draws backlash over violent, vulgar anti-Asian rant](https://news.yahoo.com/hate-asians-youtuber-charleston-white-213511768.html)
-- Mar 14 - [California ‘Teacher of the Year’ faces 15 charges for alleged relationship with 13-year-old student](https://news.yahoo.com/california-teacher-faces-15-charges-205343549.html)
-- Mar 14 - [Florida man serving 400-year prison sentence freed after being exonerated](https://news.yahoo.com/florida-man-serving-400-prison-204700549.html)
-- Mar 14 - [Rainn Wilson called out 'The Last of Us' for perpetuating an 'anti-Christian' bias in media, then slammed Fox News for writing about his comments](https://news.yahoo.com/rainn-wilson-called-last-us-202007923.html)
+- Mar 15 - [Austin Butler Explained Why His Girlfriend Kaia Gerber Wasn't By His Side At The Oscars](https://news.yahoo.com/austin-butler-explained-why-girlfriend-234340489.html)
+- Mar 15 - [Bill restricting electric car stores now law in Mississippi](https://news.yahoo.com/bill-restricting-electric-car-stores-001514077.html)
+- Mar 14 - [Exclusive: Russia’s secret document for destabilizing Moldova](https://news.yahoo.com/exclusive-russias-secret-document-for-destabilizing-moldova-230008434.html)
+- Mar 14 - [Japan is ditching its attack helicopters in another sign that one of the most important modern military weapons is losing its luster](https://news.yahoo.com/japan-ditching-attack-helicopters-another-222300231.html)
+- Mar 14 - [Kentucky middle school principal arrested first day on the job](https://news.yahoo.com/kentucky-middle-school-principal-arrested-215342450.html)
 <!-- feed end -->
