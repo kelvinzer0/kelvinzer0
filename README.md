@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 15 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
+- Mar 15 - [Stephen Colbert's Withering Impression Of Eric Trump Takes A Very Dark Turn](https://news.yahoo.com/stephen-colberts-withering-impression-eric-081341478.html)
+- Mar 15 - [Trump biographer says Donald Trump likely wanted to pay off Stormy Daniels because he was 'more afraid' of Melania Trump than of the electorate](https://news.yahoo.com/trump-biographer-says-donald-trump-075326367.html)
+- Mar 15 - [Jimmy Kimmel Can’t Get His Head Around Donald Trump’s Latest Wild Claim](https://news.yahoo.com/jimmy-kimmel-t-head-around-071815680.html)
 - Mar 15 - [Electric car stores will be restricted in Mississippi](https://news.yahoo.com/bill-restricting-electric-car-stores-001514077.html)
-- Mar 14 - [Australia toddler chasing deadly snake leads to nest discovery with 110 eggs](https://news.yahoo.com/australia-toddler-chasing-deadly-snake-223736869.html)
-- Mar 14 - [Kentucky middle school principal arrested first day on the job](https://news.yahoo.com/kentucky-middle-school-principal-arrested-215342450.html)
-- Mar 14 - ['I hate Asians': YouTuber Charleston White draws backlash over violent, vulgar anti-Asian rant](https://news.yahoo.com/hate-asians-youtuber-charleston-white-213511768.html)
-- Mar 14 - [DeSantis releases graphic video showing trans surgeries after Biden calls governor’s policies ‘cruel’](https://news.yahoo.com/desantis-releases-graphic-video-showing-212808946.html)
 <!-- feed end -->
