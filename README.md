@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 15 - [Sen. Warren rips into Fed Chair Powell over bank failures](https://news.yahoo.com/sen-warren-rips-fed-chair-162915398.html)
+- Mar 15 - [Woman diagnosed with colon cancer at 24 thought her symptoms were IBS](https://news.yahoo.com/woman-diagnosed-colon-cancer-24-162503920.html)
 - Mar 15 - [Ukraine says it shot down a Russian supersonic bomber over the war's bloodiest battlefield: video](https://news.yahoo.com/ukraine-says-shot-down-russian-153021392.html)
 - Mar 15 - [Ezekiel Elliott era done in Dallas? Cowboys set to part ways from 2-time rushing champ](https://news.yahoo.com/ezekiel-elliott-era-done-dallas-130820334.html)
 - Mar 15 - [Tucker Carlson Packages 2 Of His Biggest Lies In 1 Stupefying Statement](https://news.yahoo.com/tucker-carlson-packages-2-biggest-125955212.html)
-- Mar 15 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
-- Mar 15 - [UK, Germany scramble fighters to block Russian jets hours after US drone crash](https://news.yahoo.com/uk-germany-scramble-fighters-block-122128119.html)
 <!-- feed end -->
