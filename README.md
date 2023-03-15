@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 15 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
+- Mar 15 - [Russia is so cut off from the international financial system that the Kremlin thinks Western sanctions have 'insured' the country against the banking crisis](https://news.yahoo.com/russia-cut-off-international-financial-083530273.html)
 - Mar 15 - [Stephen Colbert's Withering Impression Of Eric Trump Takes A Very Dark Turn](https://news.yahoo.com/stephen-colberts-withering-impression-eric-081341478.html)
 - Mar 15 - [Trump biographer says Donald Trump likely wanted to pay off Stormy Daniels because he was 'more afraid' of Melania Trump than of the electorate](https://news.yahoo.com/trump-biographer-says-donald-trump-075326367.html)
 - Mar 15 - [Jimmy Kimmel Can’t Get His Head Around Donald Trump’s Latest Wild Claim](https://news.yahoo.com/jimmy-kimmel-t-head-around-071815680.html)
-- Mar 15 - [Electric car stores will be restricted in Mississippi](https://news.yahoo.com/bill-restricting-electric-car-stores-001514077.html)
+- Mar 15 - [Trump Lawyer Tries To Grab Document From MSNBC's Ari Melber In Heated Interview](https://news.yahoo.com/trump-lawyer-tries-grab-document-061713350.html)
 <!-- feed end -->
