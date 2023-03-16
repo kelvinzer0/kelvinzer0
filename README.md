@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 16 - [Russia reaches site of downed US drone in Black Sea](https://news.yahoo.com/ukraine-blog-flying-drones-near-073545788.html)
+- Mar 16 - [Moment Russian plane strikes US drone captured in video](https://news.yahoo.com/ukraine-blog-flying-drones-near-073545788.html)
 - Mar 16 - [Lindsey Graham Testified Donald Trump Would’ve Believed Out-Of-This-World 2020 Claim](https://news.yahoo.com/lindsey-graham-testified-donald-trump-083620484.html)
 - Mar 16 - [Strange activity and number of Russian ships in Black Sea](https://news.yahoo.com/strange-activity-number-russian-ships-065251387.html)
 - Mar 16 - [Scientists: Largest US reservoirs moving in right direction](https://news.yahoo.com/scientists-largest-us-reservoirs-moving-060041921.html)
