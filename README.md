@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 16 - [Australian woman filmed yelling at Bali police over traffic infraction draws Indonesians' ire](https://news.yahoo.com/australian-woman-filmed-yelling-bali-195338071.html)
+- Mar 16 - [Double Amputee Speaks Out After NHL Exec’s Kid Pushed Her Wheelchair Down Stairs](https://news.yahoo.com/double-amputee-speaks-nhl-exec-194155740.html)
 - Mar 16 - [Punjabi actor Aman Dhaliwal attacked by axe-wielding man in California gym](https://news.yahoo.com/punjabi-actor-aman-dhaliwal-attacked-184850967.html)
 - Mar 16 - [Ben Shapiro mocked after he trashes ‘Everything Everywhere All at Once' on Twitter](https://news.yahoo.com/ben-shapiro-mocked-trashes-everything-181038110.html)
 - Mar 16 - [Ex-Theranos exec set to begin prison sentence in SoCal](https://news.yahoo.com/ex-theranos-exec-set-begin-173713847.html)
-- Mar 16 - [‘Gangster’ bird sent 8-foot alligator scrambling back to pond, Florida video shows](https://news.yahoo.com/gangster-bird-sent-8-foot-173054563.html)
 <!-- feed end -->
