@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 16 - [Reversal: Darius Slay staying with Eagles after he was nearly released; Fletcher Cox back](https://news.yahoo.com/eagles-releasing-top-corner-darius-152425460.html)
+- Mar 16 - [Why Vietnam doesn't want to claim Ke Huy Quan](https://news.yahoo.com/why-vietnam-doesnt-want-claim-233429120.html)
 - Mar 16 - [Georgia grand jury heard another Trump call recording](https://news.yahoo.com/georgia-grand-jury-heard-another-010916546.html)
 - Mar 16 - [Border Patrol Says The Object Marjorie Taylor Greene Called ‘Explosive’ Was Ball Of Sand](https://news.yahoo.com/border-patrol-says-object-marjorie-004410648.html)
 - Mar 16 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
-- Mar 15 - [Topless Protester Who Interrupted Avril Lavigne Has An Iconic Response After Her Arrest](https://news.yahoo.com/topless-protester-interrupted-avril-lavigne-231249569.html)
-- Mar 15 - [A 17-year-old transformed a thrifted wedding dress into a princess prom look — and millions of TikTok likes](https://news.yahoo.com/17-old-transformed-thrifted-wedding-225130274.html)
 <!-- feed end -->
