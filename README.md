@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 16 - [Video appears to show Russian Wagner troops shooting their own comrade, shoving each other into enemy fire in chaotic trench battle](https://news.yahoo.com/video-appears-show-russian-wagner-150856276.html)
+- Mar 16 - [I loved my husband and was happy with the life we built. But I had to end our marriage when I realized I'm a lesbian.](https://news.yahoo.com/loved-husband-happy-life-built-141824602.html)
 - Mar 16 - [Deadly explosion rips through spy agency building in Russia](https://news.yahoo.com/ukraine-blog-flying-drones-near-073545788.html)
 - Mar 16 - [Battalion commander of 46th brigade demoted after interview to Washington Post, hands in resignation](https://news.yahoo.com/battalion-commander-46th-brigade-demoted-130742211.html)
 - Mar 16 - [Weird creature seen wallowing on Florida doorbell camera. ‘Scared the heck out of me’](https://news.yahoo.com/weird-creature-seen-wallowing-florida-122848655.html)
-- Mar 16 - [Pentagon video shows Russian jet dumping fuel on US drone](https://news.yahoo.com/pentagon-shows-footage-aircraft-dumping-102143044.html)
-- Mar 16 - [You Can’t Leave Ciara And Russell Wilson Alone, And It’s A Problem](https://news.yahoo.com/t-leave-ciara-russell-wilson-094502833.html)
 <!-- feed end -->
