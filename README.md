@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 16 - [Ben Shapiro mocked after he trashes ‘Everything Everywhere All at Once' on Twitter](https://news.yahoo.com/ben-shapiro-mocked-trashes-everything-181038110.html)
 - Mar 16 - [‘Gangster’ bird sent 8-foot alligator scrambling back to pond, Florida video shows](https://news.yahoo.com/gangster-bird-sent-8-foot-173054563.html)
 - Mar 16 - [Couple return home to find 80 tyres dumped on their driveway by fly-tippers](https://news.yahoo.com/couple-come-home-80-tyres-171954572.html)
 - Mar 16 - [Husband of Microsoft Exec’s Ex Charged With His Brazen Murder](https://news.yahoo.com/husband-microsoft-exec-ex-charged-170703416.html)
 - Mar 16 - [Fighter jets are 'worthless' over Ukraine, and it's a sign of what US pilots and troops may face in future battles](https://news.yahoo.com/fighter-jets-worthless-over-ukraine-165414381.html)
-- Mar 16 - [Hungary pressures EU by delaying Finland, Sweden NATO vote](https://news.yahoo.com/hungary-pressures-eu-delaying-finland-163456188.html)
 <!-- feed end -->
