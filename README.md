@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 16 - [Moment Russian plane strikes US drone captured in video](https://news.yahoo.com/ukraine-blog-flying-drones-near-073545788.html)
+- Mar 16 - [Deadly explosion rips through spy agency building in Russia](https://news.yahoo.com/ukraine-blog-flying-drones-near-073545788.html)
+- Mar 16 - [Rhode Island woman wore a uniform with a Purple Heart and sought help as a veteran with cancer. She'd never served in the military.](https://news.yahoo.com/rhode-island-woman-wore-uniform-090000259.html)
 - Mar 16 - [Lindsey Graham Testified Donald Trump Would’ve Believed Out-Of-This-World 2020 Claim](https://news.yahoo.com/lindsey-graham-testified-donald-trump-083620484.html)
+- Mar 16 - [Jimmy Kimmel Spots The Weirdest Thing In Donald Trump Jr.’s Latest Video](https://news.yahoo.com/jimmy-kimmel-spots-weirdest-thing-065303435.html)
 - Mar 16 - [Strange activity and number of Russian ships in Black Sea](https://news.yahoo.com/strange-activity-number-russian-ships-065251387.html)
-- Mar 16 - [Scientists: Largest US reservoirs moving in right direction](https://news.yahoo.com/scientists-largest-us-reservoirs-moving-060041921.html)
-- Mar 16 - [‘We’re on our own’: the rural US town where police refuse calls](https://news.yahoo.com/own-rural-us-town-where-050118529.html)
 <!-- feed end -->
