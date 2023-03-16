@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 16 - [China Foreign Minister in rare call with Ukraine counterpart](https://news.yahoo.com/china-foreign-minister-rare-call-160944013.html)
-- Mar 16 - [David Letterman Shades 'Mr. Big Shot' Tom Cruise On 'Jimmy Kimmel Live'](https://news.yahoo.com/david-letterman-shades-mr-big-160045563.html)
-- Mar 16 - [Video appears to show Russian Wagner troops shooting their own comrade, shoving each other into enemy fire in chaotic trench battle](https://news.yahoo.com/video-appears-show-russian-wagner-150856276.html)
-- Mar 16 - [I loved my husband and was happy with the life we built. But I had to end our marriage when I realized I'm a lesbian.](https://news.yahoo.com/loved-husband-happy-life-built-141824602.html)
-- Mar 16 - [Deadly explosion rips through spy agency building in Russia](https://news.yahoo.com/ukraine-blog-flying-drones-near-073545788.html)
+- Mar 16 - [‘Gangster’ bird sent 8-foot alligator scrambling back to pond, Florida video shows](https://news.yahoo.com/gangster-bird-sent-8-foot-173054563.html)
+- Mar 16 - [Couple return home to find 80 tyres dumped on their driveway by fly-tippers](https://news.yahoo.com/couple-come-home-80-tyres-171954572.html)
+- Mar 16 - [Husband of Microsoft Exec’s Ex Charged With His Brazen Murder](https://news.yahoo.com/husband-microsoft-exec-ex-charged-170703416.html)
+- Mar 16 - [Fighter jets are 'worthless' over Ukraine, and it's a sign of what US pilots and troops may face in future battles](https://news.yahoo.com/fighter-jets-worthless-over-ukraine-165414381.html)
+- Mar 16 - [Hungary pressures EU by delaying Finland, Sweden NATO vote](https://news.yahoo.com/hungary-pressures-eu-delaying-finland-163456188.html)
 <!-- feed end -->
