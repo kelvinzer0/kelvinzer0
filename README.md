@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 16 - [Deadly explosion rips through spy agency building in Russia](https://news.yahoo.com/ukraine-blog-flying-drones-near-073545788.html)
+- Mar 16 - [Battalion commander of 46th brigade demoted after interview to Washington Post, hands in resignation](https://news.yahoo.com/battalion-commander-46th-brigade-demoted-130742211.html)
 - Mar 16 - [Weird creature seen wallowing on Florida doorbell camera. ‘Scared the heck out of me’](https://news.yahoo.com/weird-creature-seen-wallowing-florida-122848655.html)
-- Mar 16 - [US releases video of Russian jet dumping fuel on its drone](https://news.yahoo.com/pentagon-shows-footage-aircraft-dumping-102143044.html)
-- Mar 16 - [Rhode Island woman wore a uniform with a Purple Heart and sought help as a veteran with cancer. She'd never served in the military.](https://news.yahoo.com/rhode-island-woman-wore-uniform-090000259.html)
-- Mar 16 - [Jimmy Kimmel Spots The Weirdest Thing In Donald Trump Jr.’s Latest Video](https://news.yahoo.com/jimmy-kimmel-spots-weirdest-thing-065303435.html)
+- Mar 16 - [Pentagon video shows Russian jet dumping fuel on US drone](https://news.yahoo.com/pentagon-shows-footage-aircraft-dumping-102143044.html)
+- Mar 16 - [You Can’t Leave Ciara And Russell Wilson Alone, And It’s A Problem](https://news.yahoo.com/t-leave-ciara-russell-wilson-094502833.html)
 <!-- feed end -->
