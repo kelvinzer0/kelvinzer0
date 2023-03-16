@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 16 - [NYC Koreatown restaurant shut down after couple reports they found dead rat in soup](https://news.yahoo.com/nyc-koreatown-restaurant-shut-down-220619294.html)
+- Mar 16 - [Biden Family Members Received $1 Million in Chinese Funds through Hunter Biden Associate](https://news.yahoo.com/biden-family-members-received-1-213529206.html)
 - Mar 16 - [A gay man's mass email to his family demanding they stop voting for Republicans went viral. His dad said it helped change his mind.](https://news.yahoo.com/gay-mans-mass-email-family-205004939.html)
 - Mar 16 - [Feds spend $2.4 million on cloud seeding for Colorado River](https://news.yahoo.com/feds-spend-2-4-million-202418535.html)
-- Mar 16 - [Australian woman filmed yelling at Bali police over traffic infraction draws Indonesians' ire](https://news.yahoo.com/australian-woman-filmed-yelling-bali-195338071.html)
-- Mar 16 - [Double Amputee Speaks Out After NHL Exec’s Kid Pushed Her Wheelchair Down Stairs](https://news.yahoo.com/double-amputee-speaks-nhl-exec-194155740.html)
-- Mar 16 - [Meet Stormy Daniels, the porn star Michael Cohen says Trump told him to pay $130,000 to cover up an alleged sexual affair](https://news.yahoo.com/meet-stormy-daniels-porn-star-193415388.html)
+- Mar 16 - [This Arizona city was just named 1 of Time's World's Greatest Places. Why it was chosen](https://news.yahoo.com/arizona-city-just-named-1-195749691.html)
 <!-- feed end -->
