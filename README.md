@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 17 - [Dr. Anthony Fauci discusses COVID-19 origins and lessons learned 3 years later](https://news.yahoo.com/dr-anthony-fauci-discusses-covid-005940066.html)
+- Mar 17 - [Alabama, Miller face renewed questions about fatal shooting](https://news.yahoo.com/alabama-miller-face-renewed-questions-003038685.html)
+- Mar 16 - [Woman said she was tied up and raped. Then Florida cops discovered something ‘disheartening’](https://news.yahoo.com/woman-said-she-tied-raped-221821093.html)
 - Mar 16 - [NYC Koreatown restaurant shut down after couple reports they found dead rat in soup](https://news.yahoo.com/nyc-koreatown-restaurant-shut-down-220619294.html)
-- Mar 16 - [Biden Family Members Received $1 Million in Chinese Funds through Hunter Biden Associate](https://news.yahoo.com/biden-family-members-received-1-213529206.html)
 - Mar 16 - [A gay man's mass email to his family demanding they stop voting for Republicans went viral. His dad said it helped change his mind.](https://news.yahoo.com/gay-mans-mass-email-family-205004939.html)
-- Mar 16 - [Feds spend $2.4 million on cloud seeding for Colorado River](https://news.yahoo.com/feds-spend-2-4-million-202418535.html)
-- Mar 16 - [This Arizona city was just named 1 of Time's World's Greatest Places. Why it was chosen](https://news.yahoo.com/arizona-city-just-named-1-195749691.html)
 <!-- feed end -->
