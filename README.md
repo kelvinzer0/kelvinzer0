@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 17 - [Russell Wilson, Ciara visit maximum security prison to pray, sing with inmates](https://news.yahoo.com/russell-wilson-ciara-visit-maximum-184644618.html)
-- Mar 17 - [Lost dog reunited with her owner after video of it waiting outside every day goes viral](https://news.yahoo.com/lost-dog-reunited-her-owner-184626947.html)
+- Mar 17 - [How a warrant for Putin puts new spin on Xi visit to Russia](https://news.yahoo.com/warrant-putin-puts-spin-xi-195150643.html)
 - Mar 17 - [Adam Sandler makes rare red carpet appearance with teen daughters](https://news.yahoo.com/adam-sandler-makes-rare-red-183124886.html)
 - Mar 17 - [NBA fines Grizzlies' Brooks $35K for shoving camera person](https://news.yahoo.com/nba-fines-grizzlies-brooks-35k-181051685.html)
 - Mar 17 - [Former Air Force officer gets prison term for Capitol attack](https://news.yahoo.com/former-air-force-officer-gets-180604252.html)
+- Mar 17 - [Viral video shows girl in China begging on her knees before woman finally returns her dropped money](https://news.yahoo.com/viral-video-shows-girl-china-180049083.html)
 <!-- feed end -->
