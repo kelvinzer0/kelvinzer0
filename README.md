@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 17 - [As crucial legal test for Antifa ideology heads to trial, right-wing media also scrutinized](https://news.yahoo.com/crucial-legal-test-antifa-ideology-090110165.html)
-- Mar 17 - [North Korea's intercontinental ballistic missiles could hit central US in just 33 minutes, says Chinese study](https://news.yahoo.com/north-koreas-intercontinental-ballistic-missiles-125931768.html)
-- Mar 17 - [Before and after: See Santa Margarita Lake fill up — and compare it to the drought of 2021](https://news.yahoo.com/see-santa-margarita-lake-fill-123000477.html)
-- Mar 17 - [Putin’s war is headed for a terrifying escalation](https://news.yahoo.com/putin-war-headed-terrifying-escalation-122005991.html)
-- Mar 17 - [Kellyanne Conway's Daughter Dunks On GOP With Funny Twitter Polls](https://news.yahoo.com/kellyanne-conways-daughter-dunks-gop-114054316.html)
+- Mar 17 - [Irvo Otieno's family reacts after watching 'traumatic' video of police custody death](https://news.yahoo.com/irvo-otienos-family-reacts-watching-153935917.html)
+- Mar 17 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
+- Mar 17 - [ICC issues arrest warrant for Putin over Ukraine war crimes](https://news.yahoo.com/icc-issues-arrest-warrant-putin-151806368.html)
+- Mar 17 - [Officer who killed George Floyd pleads guilty in tax case](https://news.yahoo.com/officer-killed-george-floyd-pleads-150938633.html)
+- Mar 17 - [Saddam Hussein's yachts were once signs of luxury. Now, one is a wrecked picnic spot for fishermen and the other was almost turned into a hotel.](https://news.yahoo.com/saddam-husseins-yachts-were-once-145053667.html)
 <!-- feed end -->
