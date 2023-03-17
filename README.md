@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 17 - [North Korea fires ICBM test aimed to 'strike fear'](https://news.yahoo.com/north-korea-fires-icbm-test-084109588.html)
+- Mar 17 - [Tucker Carlson Swiftly Fact-Checks Himself Following Fox News Fumble](https://news.yahoo.com/tucker-carlson-swiftly-fact-checks-042825616.html)
 - Mar 17 - [Santos refuses to quit, brazenly says 'truth still matters'](https://news.yahoo.com/santos-refuses-quit-brazenly-says-041153984.html)
 - Mar 17 - [‘Extremely sweet young man.’ What we know about Ohio man who attacked Def Leppard drummer](https://news.yahoo.com/extremely-sweet-young-man-know-024916125.html)
 - Mar 17 - [Alabama, Miller face renewed questions about fatal shooting](https://news.yahoo.com/alabama-miller-face-renewed-questions-003038685.html)
