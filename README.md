@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 17 - [Dr. Anthony Fauci discusses COVID-19 origins and lessons learned 3 years later](https://news.yahoo.com/dr-anthony-fauci-discusses-covid-005940066.html)
 - Mar 17 - [Alabama, Miller face renewed questions about fatal shooting](https://news.yahoo.com/alabama-miller-face-renewed-questions-003038685.html)
-- Mar 16 - [Woman said she was tied up and raped. Then Florida cops discovered something ‘disheartening’](https://news.yahoo.com/woman-said-she-tied-raped-221821093.html)
+- Mar 17 - [Pence defends joke about Buttigieg 'maternity leave'](https://news.yahoo.com/pence-defends-joke-buttigieg-maternity-002743493.html)
+- Mar 17 - [Drone photos show dramatic rise in California reservoir levels over three months](https://news.yahoo.com/drone-photos-show-dramatic-rise-000003796.html)
 - Mar 16 - [NYC Koreatown restaurant shut down after couple reports they found dead rat in soup](https://news.yahoo.com/nyc-koreatown-restaurant-shut-down-220619294.html)
 - Mar 16 - [A gay man's mass email to his family demanding they stop voting for Republicans went viral. His dad said it helped change his mind.](https://news.yahoo.com/gay-mans-mass-email-family-205004939.html)
 <!-- feed end -->
