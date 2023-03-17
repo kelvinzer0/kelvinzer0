@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 17 - [Russia is so cut off from the international financial system that the Kremlin thinks Western sanctions have 'insured' the country against the banking crisis](https://news.yahoo.com/russia-cut-off-international-financial-083530273.html)
+- Mar 17 - [Russia loses 15 of its so-called ‘invincible’ T-90M tanks in Ukraine, GS reports](https://news.yahoo.com/russia-loses-15-called-invincible-093200972.html)
 - Mar 17 - [Tucker Carlson Swiftly Fact-Checks Himself Following Fox News Fumble](https://news.yahoo.com/tucker-carlson-swiftly-fact-checks-042825616.html)
 - Mar 17 - [Santos refuses to quit, brazenly says 'truth still matters'](https://news.yahoo.com/santos-refuses-quit-brazenly-says-041153984.html)
 - Mar 17 - [‘Extremely sweet young man.’ What we know about Ohio man who attacked Def Leppard drummer](https://news.yahoo.com/extremely-sweet-young-man-know-024916125.html)
-- Mar 17 - [Alabama, Miller face renewed questions about fatal shooting](https://news.yahoo.com/alabama-miller-face-renewed-questions-003038685.html)
-- Mar 17 - [Pence defends joke about Buttigieg 'maternity leave'](https://news.yahoo.com/pence-defends-joke-buttigieg-maternity-002743493.html)
 <!-- feed end -->
