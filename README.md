@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Mar 17 - [Alabama, Miller face renewed questions about fatal shooting](https://news.yahoo.com/alabama-miller-face-renewed-questions-003038685.html)
 - Mar 17 - [Pence defends joke about Buttigieg 'maternity leave'](https://news.yahoo.com/pence-defends-joke-buttigieg-maternity-002743493.html)
 - Mar 17 - [Drone photos show dramatic rise in California reservoir levels over three months](https://news.yahoo.com/drone-photos-show-dramatic-rise-000003796.html)
-- Mar 16 - [NYC Koreatown restaurant shut down after couple reports they found dead rat in soup](https://news.yahoo.com/nyc-koreatown-restaurant-shut-down-220619294.html)
 - Mar 16 - [A gay man's mass email to his family demanding they stop voting for Republicans went viral. His dad said it helped change his mind.](https://news.yahoo.com/gay-mans-mass-email-family-205004939.html)
+- Mar 16 - [This Arizona city was just named 1 of Time's World's Greatest Places. Why it was chosen](https://news.yahoo.com/arizona-city-just-named-1-195749691.html)
 <!-- feed end -->
