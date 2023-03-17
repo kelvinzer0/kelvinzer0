@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 17 - [Officials discussing security in case of Trump indictment](https://news.yahoo.com/officials-discussing-security-case-trump-200242363.html)
+- Mar 17 - ['The Wire,' 'John Wick' actor Lance Reddick dies at 60](https://news.yahoo.com/wire-john-wick-actor-lance-214530130.html)
 - Mar 17 - [State says Louisiana family must give up beloved pet nutria](https://news.yahoo.com/state-says-louisiana-family-must-183425217.html)
 - Mar 17 - [Adam Sandler makes rare red carpet appearance with teen daughters](https://news.yahoo.com/adam-sandler-makes-rare-red-183124886.html)
 - Mar 17 - [NBA fines Grizzlies' Brooks $35K for shoving camera person](https://news.yahoo.com/nba-fines-grizzlies-brooks-35k-181051685.html)
