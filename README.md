@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 17 - [Irvo Otieno's family reacts after watching 'traumatic' video of police custody death](https://news.yahoo.com/irvo-otienos-family-reacts-watching-153935917.html)
+- Mar 17 - [Ben Affleck Addressed Fans Speculating That He’s Drinking Again After Viral Clips Appeared To Show Him And Jennifer Lopez Arguing At The Grammys](https://news.yahoo.com/ben-affleck-addressed-fans-speculating-154402884.html)
+- Mar 17 - [An Oklahoma City police captain accused of drunk driving told another officer to turn his body camera off so they could 'talk' before he was arrested, video shows](https://news.yahoo.com/oklahoma-city-police-captain-accused-154200991.html)
 - Mar 17 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
-- Mar 17 - [ICC issues arrest warrant for Putin over Ukraine war crimes](https://news.yahoo.com/icc-issues-arrest-warrant-putin-151806368.html)
-- Mar 17 - [Officer who killed George Floyd pleads guilty in tax case](https://news.yahoo.com/officer-killed-george-floyd-pleads-150938633.html)
-- Mar 17 - [Saddam Hussein's yachts were once signs of luxury. Now, one is a wrecked picnic spot for fishermen and the other was almost turned into a hotel.](https://news.yahoo.com/saddam-husseins-yachts-were-once-145053667.html)
+- Mar 17 - [International court issues war crimes warrant for Putin](https://news.yahoo.com/icc-issues-arrest-warrant-putin-151806368.html)
+- Mar 17 - [What it costs to open 12 of the biggest fast-food chains in the US, including Chick-fil-A, McDonald's, and Taco Bell](https://news.yahoo.com/costs-open-12-biggest-fast-151004065.html)
 <!-- feed end -->
