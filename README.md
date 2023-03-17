@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 17 - [Ben Affleck Addressed Fans Speculating That He’s Drinking Again After Viral Clips Appeared To Show Him And Jennifer Lopez Arguing At The Grammys](https://news.yahoo.com/ben-affleck-addressed-fans-speculating-154402884.html)
-- Mar 17 - [An Oklahoma City police captain accused of drunk driving told another officer to turn his body camera off so they could 'talk' before he was arrested, video shows](https://news.yahoo.com/oklahoma-city-police-captain-accused-154200991.html)
-- Mar 17 - [14 Questions Men Say They're "Too Afraid" To Ask Women IRL — Answered In Detail By Women On The Internet](https://news.yahoo.com/14-questions-men-theyre-too-214227068.html)
-- Mar 17 - [International court issues war crimes warrant for Putin](https://news.yahoo.com/icc-issues-arrest-warrant-putin-151806368.html)
-- Mar 17 - [What it costs to open 12 of the biggest fast-food chains in the US, including Chick-fil-A, McDonald's, and Taco Bell](https://news.yahoo.com/costs-open-12-biggest-fast-151004065.html)
+- Mar 17 - [Former Air Force officer gets prison term for Capitol attack](https://news.yahoo.com/former-air-force-officer-gets-180604252.html)
+- Mar 17 - [Sydney man accused of drugging, filming his sexual assaults of Korean women](https://news.yahoo.com/sydney-man-accused-drugging-filming-173230862.html)
+- Mar 17 - [Wisconsin Democratic Secretary of State La Follette resigns](https://news.yahoo.com/wisconsin-democratic-secretary-state-la-172238628.html)
+- Mar 17 - [Ukrainian commander reveals true scale of losses – and pays the price](https://news.yahoo.com/ukrainian-commander-revealed-true-scale-171152957.html)
+- Mar 17 - [New judge to oversee Trump grand jury investigations](https://news.yahoo.com/judge-oversee-trump-grand-jury-163548801.html)
 <!-- feed end -->
