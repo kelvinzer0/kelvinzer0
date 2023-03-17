@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 17 - ['The Wire,' 'John Wick' actor Lance Reddick dies at 60](https://news.yahoo.com/wire-john-wick-actor-lance-214530130.html)
+- Mar 17 - [Trump Breaks Facebook Silence With Incredibly Lame Post](https://news.yahoo.com/trump-breaks-facebook-silence-incredibly-214000922.html)
+- Mar 17 - [Trump attorney says ‘there won’t be a standoff at Mar-a-Lago’ if he’s indicted in NY](https://news.yahoo.com/trump-attorney-says-won-t-213257344.html)
+- Mar 17 - [Another California reservoir is about to spill — for the first time in 24 years](https://news.yahoo.com/another-california-reservoir-spill-first-211300985.html)
+- Mar 17 - [Detroit armed robber shot in chest by concealed carry permit holder after threatening to kill friend: police](https://news.yahoo.com/detroit-armed-robber-shot-chest-193810468.html)
 - Mar 17 - [State says Louisiana family must give up beloved pet nutria](https://news.yahoo.com/state-says-louisiana-family-must-183425217.html)
-- Mar 17 - [Adam Sandler makes rare red carpet appearance with teen daughters](https://news.yahoo.com/adam-sandler-makes-rare-red-183124886.html)
-- Mar 17 - [NBA fines Grizzlies' Brooks $35K for shoving camera person](https://news.yahoo.com/nba-fines-grizzlies-brooks-35k-181051685.html)
-- Mar 17 - [Former Air Force officer gets prison term for Capitol attack](https://news.yahoo.com/former-air-force-officer-gets-180604252.html)
 <!-- feed end -->
