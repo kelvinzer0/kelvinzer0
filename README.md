@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 17 - [North Korea's intercontinental ballistic missiles could hit central US in just 33 minutes, says Chinese study](https://news.yahoo.com/north-koreas-intercontinental-ballistic-missiles-125931768.html)
 - Mar 17 - [Putin’s war is headed for a terrifying escalation](https://news.yahoo.com/putin-war-headed-terrifying-escalation-122005991.html)
 - Mar 17 - [Kellyanne Conway's Daughter Dunks On GOP With Funny Twitter Polls](https://news.yahoo.com/kellyanne-conways-daughter-dunks-gop-114054316.html)
-- Mar 17 - [2 married couples divorced so they could become a polyamorous foursome](https://news.yahoo.com/2-married-couples-divorced-could-094500422.html)
-- Mar 17 - [Russia loses 15 of its so-called ‘invincible’ T-90M tanks in Ukraine, GS reports](https://news.yahoo.com/russia-loses-15-called-invincible-093200972.html)
-- Mar 17 - [Tucker Carlson Swiftly Fact-Checks Himself Following Fox News Fumble](https://news.yahoo.com/tucker-carlson-swiftly-fact-checks-042825616.html)
+- Mar 17 - [Americans launch second drone towards Black Sea](https://news.yahoo.com/americans-launch-second-drone-towards-104904695.html)
+- Mar 17 - [Mike Pence Doubles Down On Homophobic Joke About Pete Buttigieg](https://news.yahoo.com/mike-pence-doubles-down-homophobic-095622098.html)
 <!-- feed end -->
