@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 17 - [Santos refuses to quit, brazenly says 'truth still matters'](https://news.yahoo.com/santos-refuses-quit-brazenly-says-041153984.html)
 - Mar 17 - [‘Extremely sweet young man.’ What we know about Ohio man who attacked Def Leppard drummer](https://news.yahoo.com/extremely-sweet-young-man-know-024916125.html)
 - Mar 17 - [Alabama, Miller face renewed questions about fatal shooting](https://news.yahoo.com/alabama-miller-face-renewed-questions-003038685.html)
 - Mar 17 - [Pence defends joke about Buttigieg 'maternity leave'](https://news.yahoo.com/pence-defends-joke-buttigieg-maternity-002743493.html)
 - Mar 17 - [Drone photos show dramatic rise in California reservoir levels over three months](https://news.yahoo.com/drone-photos-show-dramatic-rise-000003796.html)
-- Mar 16 - [Woman said she was tied up and raped. Then Florida cops discovered something ‘disheartening’](https://news.yahoo.com/woman-said-she-tied-raped-221821093.html)
 <!-- feed end -->
