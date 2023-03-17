@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 17 - [As crucial legal test for Antifa ideology heads to trial, right-wing media also scrutinized](https://news.yahoo.com/crucial-legal-test-antifa-ideology-090110165.html)
 - Mar 17 - [North Korea's intercontinental ballistic missiles could hit central US in just 33 minutes, says Chinese study](https://news.yahoo.com/north-koreas-intercontinental-ballistic-missiles-125931768.html)
+- Mar 17 - [Before and after: See Santa Margarita Lake fill up — and compare it to the drought of 2021](https://news.yahoo.com/see-santa-margarita-lake-fill-123000477.html)
 - Mar 17 - [Putin’s war is headed for a terrifying escalation](https://news.yahoo.com/putin-war-headed-terrifying-escalation-122005991.html)
 - Mar 17 - [Kellyanne Conway's Daughter Dunks On GOP With Funny Twitter Polls](https://news.yahoo.com/kellyanne-conways-daughter-dunks-gop-114054316.html)
-- Mar 17 - [Americans launch second drone towards Black Sea](https://news.yahoo.com/americans-launch-second-drone-towards-104904695.html)
-- Mar 17 - [Mike Pence Doubles Down On Homophobic Joke About Pete Buttigieg](https://news.yahoo.com/mike-pence-doubles-down-homophobic-095622098.html)
 <!-- feed end -->
