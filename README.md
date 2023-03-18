@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 18 - [I've been on 110 cruises. Here are 7 myths I want to debunk for hesitant first-time cruisers](https://news.yahoo.com/ive-110-cruises-7-myths-125500479.html)
+- Mar 18 - [How the rat population in New York City grew by 800% and infested the city in less than 65 years](https://news.yahoo.com/rat-population-york-city-grew-143000754.html)
 - Mar 18 - [I Moved To Alabama To Fight Trump. I Thought It'd Be Temporary — Here's Why I Decided To Stay.](https://news.yahoo.com/moved-alabama-fight-trump-thought-123007498.html)
 - Mar 18 - [Donald Trump Names Day He’ll Be Arrested In New Truth Social Screed](https://news.yahoo.com/donald-trump-names-day-ll-121341890.html)
-- Mar 18 - [HUR on ICC decision: Kremlin is already looking for successor to Putin](https://news.yahoo.com/hur-icc-decision-kremlin-already-114350621.html)
+- Mar 18 - [Ukrainian Intelligence on ICC decision says that Kremlin already looking for successor to Putin](https://news.yahoo.com/hur-icc-decision-kremlin-already-114350621.html)
 - Mar 18 - [Celebrity chef Robert Irvine shares the biggest red flag he looks for when dining out in any restaurant](https://news.yahoo.com/celebrity-chef-robert-irvine-shares-104000125.html)
 <!-- feed end -->
