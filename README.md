@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 18 - [California college basketball player punches cop outside South Florida bar, police say](https://news.yahoo.com/california-college-basketball-player-punches-022358773.html)
 - Mar 17 - [NCAA officials on reffing 7-4 Purdue star: ‘Zach Edey gets the living crap beat out of him’](https://news.yahoo.com/ncaa-officials-reffing-7-4-233401681.html)
 - Mar 17 - [Senator Wyden Refuses to Return Bankman-Fried Donations after Accepting Money from Family for Over a Decade](https://news.yahoo.com/senator-wyden-refuses-return-bankman-230538127.html)
 - Mar 17 - [Mormon Church gives water to boost imperiled Great Salt Lake](https://news.yahoo.com/mormon-church-gives-water-boost-224129215.html)
 - Mar 17 - [Florida drag queen says DeSantis-backed anti-LGBTQ laws are 'exactly what we were taught about in schools about how the Nazis rose to power'](https://news.yahoo.com/florida-drag-queen-says-desantis-223818003.html)
-- Mar 17 - [Trump Breaks Facebook Silence With Incredibly Lame Post](https://news.yahoo.com/trump-breaks-facebook-silence-incredibly-214000922.html)
 <!-- feed end -->
