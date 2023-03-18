@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 18 - [Delicate negotiations underway over potential Trump arrest next week](https://news.yahoo.com/trump-indictment-arrest-new-york-district-attorney-investigation-162455434.html)
+- Mar 18 - [A Georgia senior citizen was forced to leave her rental home after finding snakes in her furniture](https://news.yahoo.com/georgia-senior-citizen-forced-leave-163717428.html)
+- Mar 18 - [Boston's skinniest home, which was built out of spite, sold for $1.25 million. Take a look inside.](https://news.yahoo.com/bostons-skinniest-home-built-spite-224051599.html)
 - Mar 18 - [Gwyneth Paltrow defends her diet after facing criticism online: 'I eat far more than bone broth and vegetables'](https://news.yahoo.com/gwyneth-paltrow-defends-her-diet-151013732.html)
-- Mar 18 - [How the rat population in New York City grew by 800% and infested the city in less than 65 years](https://news.yahoo.com/rat-population-york-city-grew-143000754.html)
 - Mar 18 - [Biden denies $1M in payments to family from Hunter associate, despite bank records: 'Not true'](https://news.yahoo.com/biden-denies-1m-payments-family-141548955.html)
-- Mar 18 - [I Moved To Alabama To Fight Trump. I Thought It'd Be Temporary — Here's Why I Decided To Stay.](https://news.yahoo.com/moved-alabama-fight-trump-thought-123007498.html)
+- Mar 18 - [Ukrainian Intelligence on ICC decision says that Kremlin already looking for successor to Putin](https://news.yahoo.com/hur-icc-decision-kremlin-already-114350621.html)
 <!-- feed end -->
