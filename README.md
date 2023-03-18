@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 18 - [California college basketball player punches cop outside South Florida bar, police say](https://news.yahoo.com/california-college-basketball-player-punches-022358773.html)
-- Mar 18 - [Idaho hospital to stop delivering babies. One reason? ‘Bills that criminalize physicians’](https://news.yahoo.com/idaho-hospital-stop-delivering-babies-013517082.html)
 - Mar 18 - [Michigan woman who fled to Thailand after college student's hit-and-run death hit with $1 million bond](https://news.yahoo.com/michigan-woman-fled-thailand-college-001834215.html)
 - Mar 17 - [NCAA officials on reffing 7-4 Purdue star: ‘Zach Edey gets the living crap beat out of him’](https://news.yahoo.com/ncaa-officials-reffing-7-4-233401681.html)
 - Mar 17 - [Mormon Church gives water to boost imperiled Great Salt Lake](https://news.yahoo.com/mormon-church-gives-water-boost-224129215.html)
+- Mar 17 - [Florida drag queen says DeSantis-backed anti-LGBTQ laws are 'exactly what we were taught about in schools about how the Nazis rose to power'](https://news.yahoo.com/florida-drag-queen-says-desantis-223818003.html)
 <!-- feed end -->
