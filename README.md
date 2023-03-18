@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 18 - [A US veteran joined Ukraine's International Legion, then made a shock defection to Russia. Ex-comrades say he was incompetent and left behind a trail of chaos.](https://news.yahoo.com/us-veteran-joined-ukraines-international-125326530.html)
+- Mar 18 - [I Moved To Alabama To Fight Trump. I Thought It'd Be Temporary — Here's Why I Decided To Stay.](https://news.yahoo.com/moved-alabama-fight-trump-thought-123007498.html)
 - Mar 18 - [Donald Trump Names Day He’ll Be Arrested In New Truth Social Screed](https://news.yahoo.com/donald-trump-names-day-ll-121341890.html)
 - Mar 18 - [Celebrity chef Robert Irvine shares the biggest red flag he looks for when dining out in any restaurant](https://news.yahoo.com/celebrity-chef-robert-irvine-shares-104000125.html)
 - Mar 18 - [A man woke up unable to walk. It turned out vitamin B12 was inactivated in his body after he took laughing gas.](https://news.yahoo.com/man-woke-unable-walk-turned-090000462.html)
-- Mar 18 - [Lauren Boebert Q&A At Colorado High School Is Condemned By Newspaper](https://news.yahoo.com/lauren-boebert-q-colorado-high-083223367.html)
-- Mar 18 - [Michael Cohen Hits Possible Trump Lawyers With 1 Word Of Advice](https://news.yahoo.com/michael-cohen-hits-possible-trump-072908888.html)
 <!-- feed end -->
