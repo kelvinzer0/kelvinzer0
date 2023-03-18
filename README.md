@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 18 - [A decorated former US F-16 pilot says he would fly fighter jets for Ukraine: 'You can count on me,' he told a VoA interview.](https://news.yahoo.com/decorated-former-us-f-16-175614777.html)
+- Mar 18 - [Trump supporters in China are up in arms and raging about a possible indictment: 'Trump, America needs you'](https://news.yahoo.com/trump-supporters-china-arms-raging-171503590.html)
 - Mar 18 - [A Georgia senior citizen was forced to leave her rental home after finding snakes in her furniture](https://news.yahoo.com/georgia-senior-citizen-forced-leave-163717428.html)
 - Mar 18 - [Boston's skinniest home, which was built out of spite, sold for $1.25 million. Take a look inside.](https://news.yahoo.com/bostons-skinniest-home-built-spite-224051599.html)
 - Mar 18 - [Gwyneth Paltrow defends her diet after facing criticism online: 'I eat far more than bone broth and vegetables'](https://news.yahoo.com/gwyneth-paltrow-defends-her-diet-151013732.html)
-- Mar 18 - [Biden denies $1M in payments to family from Hunter associate, despite bank records: 'Not true'](https://news.yahoo.com/biden-denies-1m-payments-family-141548955.html)
-- Mar 18 - [Ukrainian Intelligence on ICC decision says that Kremlin already looking for successor to Putin](https://news.yahoo.com/hur-icc-decision-kremlin-already-114350621.html)
 <!-- feed end -->
