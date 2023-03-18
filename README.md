@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 18 - [CBS-Kcal News Meteorologist Alissa Carlson Schwartz Faints On Live TV](https://news.yahoo.com/cbs-kcal-news-meteorologist-alissa-212433630.html)
+- Mar 18 - [Sharks goalie James Reimer declines to wear Pride jersey](https://news.yahoo.com/sharks-goalie-james-reimer-declines-205307315.html)
+- Mar 18 - [Viral Picture of Young Thug Shows His Appearance Has Changed Since He’s Been In Jail The Past 10 Months](https://news.yahoo.com/viral-picture-young-thug-shows-202600582.html)
+- Mar 18 - [Pelosi, Dems calls Trump's arrest warning 'reckless,' accuse him of fomenting 'unrest'](https://news.yahoo.com/pelosi-dems-calls-trumps-arrest-195458976.html)
 - Mar 18 - [Mysterious streaks of light seen in the sky over California](https://news.yahoo.com/mysterious-streaks-light-seen-sky-195255602.html)
-- Mar 18 - [A Georgia senior citizen was forced to leave her rental home after finding snakes in her furniture](https://news.yahoo.com/georgia-senior-citizen-forced-leave-163717428.html)
-- Mar 18 - [Cobb 12-year-old mouths ‘help me’ to stepfather after he finds naked burglar in her bed, DA says](https://news.yahoo.com/cobb-12-old-mouths-help-163228857.html)
-- Mar 18 - [Delicate negotiations underway over potential Trump arrest next week](https://news.yahoo.com/trump-indictment-arrest-new-york-district-attorney-investigation-162455434.html)
-- Mar 18 - [Boston's skinniest home, which was built out of spite, sold for $1.25 million. Take a look inside.](https://news.yahoo.com/bostons-skinniest-home-built-spite-224051599.html)
 <!-- feed end -->
