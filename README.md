@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 17 - [Senator Wyden Refuses to Return Bankman-Fried Donations after Accepting Money from Family for Over a Decade](https://news.yahoo.com/senator-wyden-refuses-return-bankman-230538127.html)
+- Mar 17 - [Mormon Church gives water to boost imperiled Great Salt Lake](https://news.yahoo.com/mormon-church-gives-water-boost-224129215.html)
+- Mar 17 - [Florida drag queen says DeSantis-backed anti-LGBTQ laws are 'exactly what we were taught about in schools about how the Nazis rose to power'](https://news.yahoo.com/florida-drag-queen-says-desantis-223818003.html)
 - Mar 17 - [Trump Breaks Facebook Silence With Incredibly Lame Post](https://news.yahoo.com/trump-breaks-facebook-silence-incredibly-214000922.html)
-- Mar 17 - [Trump attorney says ‘there won’t be a standoff at Mar-a-Lago’ if he’s indicted in NY](https://news.yahoo.com/trump-attorney-says-won-t-213257344.html)
-- Mar 17 - [Another California reservoir is about to spill — for the first time in 24 years](https://news.yahoo.com/another-california-reservoir-spill-first-211300985.html)
-- Mar 17 - [Detroit armed robber shot in chest by concealed carry permit holder after threatening to kill friend: police](https://news.yahoo.com/detroit-armed-robber-shot-chest-193810468.html)
-- Mar 17 - [State says Louisiana family must give up beloved pet nutria](https://news.yahoo.com/state-says-louisiana-family-must-183425217.html)
+- Mar 17 - [Mother cries out in court after youngest NC defendant in Jan. 6 riot gets 3 1/2 years](https://news.yahoo.com/mother-cries-court-youngest-n-213313885.html)
 <!-- feed end -->
