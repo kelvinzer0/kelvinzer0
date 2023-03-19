@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 19 - [Princess of Wales climbs tree in new family photo celebrating Mother's Day](https://news.yahoo.com/princess-wales-climbs-tree-family-132216718.html)
 - Mar 19 - [700+ Russian invaders, 21 tanks, and 8 artillery pieces wiped out in a single day in Ukraine](https://news.yahoo.com/700-russian-invaders-21-tanks-103600712.html)
 - Mar 19 - [Blac Chyna reveals results of removing her facial fillers following her breast and butt reduction: 'It was making my face look like a box'](https://news.yahoo.com/blac-chyna-reveals-results-removing-103000134.html)
 - Mar 19 - [Marjorie Taylor Greene says Republicans don't need to protest potential Trump arrest](https://news.yahoo.com/marjorie-taylor-greene-says-republicans-085435029.html)
-- Mar 19 - [Former presidential candidate John Edwards was accused of funneling nearly $1 million in donor contributions to support his pregnant mistress and criminally charged with a campaign finance violation. Here's how the case played out.](https://news.yahoo.com/former-presidential-candidate-john-edwards-053138652.html)
-- Mar 19 - [NATO considering deployment of up to 300,000 troops on border with Russia](https://news.yahoo.com/nato-considering-deployment-300-000-024600132.html)
+- Mar 19 - [Did one call change course of Alabama basketball NCAA win? Maryland coach believes so](https://news.yahoo.com/did-one-call-change-course-065558891.html)
 <!-- feed end -->
