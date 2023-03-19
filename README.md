@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 19 - [Baghdad on the 20th anniversary of "shock and awe"](https://news.yahoo.com/baghdad-20th-anniversary-shock-awe-183335169.html)
+- Mar 19 - [Kelly Clarkson Paused Her Interview With Twice When She Noticed Their Translator Pronouncing Their Names Differently, And Fans Are So Grateful](https://news.yahoo.com/kelly-clarkson-paused-her-interview-211921062.html)
+- Mar 19 - [A teen involved in the brutal attack on a Texas football player will serve 120 days in jail after victim's family showed 'mercy,' family attorney says](https://news.yahoo.com/teen-involved-brutal-attack-texas-173808165.html)
+- Mar 19 - [Russia reacts to German minister's statement about Berlin’s readiness to arrest Putin](https://news.yahoo.com/russia-reacts-german-ministers-statement-171000086.html)
 - Mar 19 - [Astros' Jose Altuve has broken right thumb, needs surgery](https://news.yahoo.com/altuve-may-while-due-hand-162418927.html)
-- Mar 19 - [Sen. Mark Kelly flew with Russian pilots in the Navy and with NASA, and he said the Russian fighter jet running into a US drone shows 'how incompetent they are'](https://news.yahoo.com/sen-mark-kelly-flew-russian-155055751.html)
-- Mar 19 - [Chris Christie: ‘The circus continues’ on Trump calling for protests over potential arrest](https://news.yahoo.com/chris-christie-circus-continues-trump-153143864.html)
-- Mar 19 - ['Wild Things' would've included a sex scene between Matt Dillon and Kevin Bacon if one of them didn't refuse to film it, the director says](https://news.yahoo.com/wild-things-wouldve-included-sex-150743725.html)
-- Mar 19 - [Chicago family fights 'pro squatter' who took over dead mom's home, left bullet hole in window](https://news.yahoo.com/chicago-family-fights-pro-squatter-142148015.html)
 <!-- feed end -->
