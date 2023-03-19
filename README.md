@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 19 - [Macron calls for calm amid French pension fury before crucial votes](https://news.yahoo.com/macron-calls-calm-amid-french-224004875.html)
 - Mar 19 - [A Ukrainian soldier wondered if the Russians advancing on Bakhmut are on drugs: 'Otherwise, how can they go to certain death?'](https://news.yahoo.com/ukrainian-soldier-wondered-russians-advancing-204032070.html)
 - Mar 19 - [Polish Ambassador to France: Poland will be forced to enter war if Ukraine fails to defend itself](https://news.yahoo.com/polish-ambassador-france-poland-forced-201021342.html)
 - Mar 19 - [NYT reporter Maggie Haberman says Trump is 'very anxious' about a possible indictment because he doesn't 'want to face getting arrested'](https://news.yahoo.com/nyt-reporter-maggie-haberman-says-200811856.html)
 - Mar 19 - [A Georgia employee requested their county include gender-affirming care as part of their health coverage. Instead, the county spent $1.2 million fighting the effort: report.](https://news.yahoo.com/georgia-employee-requested-county-gender-200518332.html)
-- Mar 19 - [Marjorie Taylor Greene Warns Against Donald Trump’s Protest Demands](https://news.yahoo.com/marjorie-taylor-greene-warns-against-195019622.html)
 <!-- feed end -->
