@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Mar 19 - [Former presidential candidate John Edwards was accused of funneling nearly $1 million in donor contributions to support his pregnant mistress and criminally charged with a campaign finance violation. Here's how the case played out.](https://news.yahoo.com/former-presidential-candidate-john-edwards-053138652.html)
 - Mar 19 - [Warriors' Steph Curry, Klay Thompson have had enough of Grizzlies' Dillon Brooks](https://news.yahoo.com/warriors-steph-curry-klay-thompson-044321410.html)
 - Mar 19 - [Alex Jones transferring assets to family and friends, evading payments to Sandy Hook families: NYT](https://news.yahoo.com/alex-jones-transferring-assets-family-031551407.html)
+- Mar 19 - [NATO considering deployment of up to 300,000 troops on border with Russia](https://news.yahoo.com/nato-considering-deployment-300-000-024600132.html)
 - Mar 19 - [Not so fast. A New York grand jury will hear a final surprise witness on Monday and won't vote on Trump indictment until it's over.](https://news.yahoo.com/not-fast-york-grand-jury-010249782.html)
-- Mar 19 - [See what the South Beach spring break scene looked like one night after a deadly shooting](https://news.yahoo.com/see-south-beach-spring-break-040000221.html)
 <!-- feed end -->
