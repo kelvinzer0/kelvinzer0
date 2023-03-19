@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 19 - [Bettor wins $495,000 wagering on Fairleigh Dickinson to beat Purdue in NCAA Tournament](https://news.yahoo.com/bettor-wins-495-000-wagering-222111628.html)
+- Mar 19 - [See what the South Beach spring break scene looked like one night after a deadly shooting](https://news.yahoo.com/see-south-beach-spring-break-040000221.html)
+- Mar 18 - [Hill wins Xfinity race in Atlanta to continue dominant start](https://news.yahoo.com/williams-parks-xfinity-car-start-230135860.html)
+- Mar 18 - [Pence on Trump calls for protests against indictment: ‘Violence will not be tolerated’](https://news.yahoo.com/pence-trump-calls-protests-against-220939288.html)
 - Mar 18 - [CBS-Kcal News Meteorologist Alissa Carlson Schwartz Faints On Live TV](https://news.yahoo.com/cbs-kcal-news-meteorologist-alissa-212433630.html)
-- Mar 18 - [Sharks goalie James Reimer declines to wear Pride jersey](https://news.yahoo.com/sharks-goalie-james-reimer-declines-205307315.html)
-- Mar 18 - [Viral Picture of Young Thug Shows His Appearance Has Changed Since He’s Been In Jail The Past 10 Months](https://news.yahoo.com/viral-picture-young-thug-shows-202600582.html)
-- Mar 18 - [Pelosi, Dems calls Trump's arrest warning 'reckless,' accuse him of fomenting 'unrest'](https://news.yahoo.com/pelosi-dems-calls-trumps-arrest-195458976.html)
-- Mar 18 - [Mysterious streaks of light seen in the sky over California](https://news.yahoo.com/mysterious-streaks-light-seen-sky-195255602.html)
 <!-- feed end -->
