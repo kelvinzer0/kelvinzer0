@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 19 - [Sununu on possible Trump arrest: ‘Democrats have misplayed this’](https://news.yahoo.com/sununu-possible-trump-arrest-democrats-135556403.html)
+- Mar 19 - [Sen. Mark Kelly flew with Russian pilots in the Navy and with NASA, and he said the Russian fighter jet running into a US drone shows 'how incompetent they are'](https://news.yahoo.com/sen-mark-kelly-flew-russian-155055751.html)
+- Mar 19 - [Chris Christie: ‘The circus continues’ on Trump calling for protests over potential arrest](https://news.yahoo.com/chris-christie-circus-continues-trump-153143864.html)
 - Mar 19 - [Princess of Wales climbs tree in new family photo celebrating Mother’s Day](https://news.yahoo.com/princess-wales-climbs-tree-family-132216718.html)
+- Mar 19 - [Warriors' Steph Curry, Klay Thompson have had enough of Grizzlies' Dillon Brooks](https://news.yahoo.com/warriors-steph-curry-klay-thompson-044321410.html)
 - Mar 19 - [Russians attack Bakhmut by inertia, suffering heavy losses](https://news.yahoo.com/russians-attack-bakhmut-inertia-suffering-121106323.html)
-- Mar 19 - [Higher cancer rates found in military pilots, ground crews](https://news.yahoo.com/higher-cancer-rates-found-military-120345932.html)
-- Mar 19 - [Netanyahu urges military chief to contain reservist protest](https://news.yahoo.com/netanyahu-urges-military-chief-contain-105418987.html)
 <!-- feed end -->
