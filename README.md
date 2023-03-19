@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 19 - [Pope Benedict XVI's aide acknowledges criticism over memoir](https://news.yahoo.com/pope-benedict-xvis-aide-acknowledges-190131430.html)
 - Mar 19 - [Baghdad on the 20th anniversary of "shock and awe"](https://news.yahoo.com/baghdad-20th-anniversary-shock-awe-183335169.html)
-- Mar 19 - [Kelly Clarkson Paused Her Interview With Twice When She Noticed Their Translator Pronouncing Their Names Differently, And Fans Are So Grateful](https://news.yahoo.com/kelly-clarkson-paused-her-interview-211921062.html)
+- Mar 19 - [Search on for Florida boaters missing in lake near Legoland](https://news.yahoo.com/search-florida-boaters-missing-lake-181411705.html)
 - Mar 19 - [A teen involved in the brutal attack on a Texas football player will serve 120 days in jail after victim's family showed 'mercy,' family attorney says](https://news.yahoo.com/teen-involved-brutal-attack-texas-173808165.html)
 - Mar 19 - [Russia reacts to German minister's statement about Berlin’s readiness to arrest Putin](https://news.yahoo.com/russia-reacts-german-ministers-statement-171000086.html)
-- Mar 19 - [Astros' Jose Altuve has broken right thumb, needs surgery](https://news.yahoo.com/altuve-may-while-due-hand-162418927.html)
 <!-- feed end -->
