@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 20 - [Elk herd relocation shuts down an interstate in Salt Lake City, Utah](https://news.yahoo.com/elk-herd-relocation-shuts-down-163726816.html)
+- Mar 20 - [Jury convicts 3 of murder in death of rapper XXXTentacion](https://news.yahoo.com/jury-convicts-3-murder-death-162851875.html)
+- Mar 20 - [Judge raps Jan. 6 defendant for travel to CPAC on ‘false pretenses’](https://news.yahoo.com/judge-raps-jan-6-defendant-160251594.html)
 - Mar 20 - [He was pulled over for an expired tag in Central Florida. Then cops looked in the car](https://news.yahoo.com/pulled-over-expired-tag-central-151954868.html)
 - Mar 20 - [Trump moves to quash Georgia election probe](https://news.yahoo.com/trump-moves-quash-georgia-election-150952942.html)
-- Mar 20 - [Amazon is laying off another 9,000 employees — read the email CEO Andy Jassy sent to staff](https://news.yahoo.com/amazon-laying-off-another-9-145457522.html)
-- Mar 20 - [Demi Moore shares 1st video of Bruce Willis since dementia diagnosis for his birthday](https://news.yahoo.com/demi-moore-shares-1st-video-143609608.html)
-- Mar 20 - [Russia's former president suggested firing a hypersonic missile at The Hague after Putin's ICC arrest warrant: 'Look carefully into the sky'](https://news.yahoo.com/russias-former-president-suggested-firing-141720435.html)
 <!-- feed end -->
