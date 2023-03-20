@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 20 - [Devin Booker Reacted After Bad Bunny Seemingly Referenced Him And Kendall Jenner In A New Song](https://news.yahoo.com/devin-booker-reacted-bad-bunny-195844787.html)
-- Mar 20 - ['Ted Lasso' cast visits White House to meet Bidens, promote mental health awareness](https://news.yahoo.com/ted-lasso-cast-visits-white-194341866.html)
-- Mar 20 - [Biden pays tribute to Iranian women at Nowruz celebration](https://news.yahoo.com/biden-pays-tribute-iranian-women-190918770.html)
-- Mar 20 - [Trump hits back at DeSantis following 'porn star' comments, warns the governor could find himself facing 'false accusations' in the future from 'underage' classmates or 'a man'](https://news.yahoo.com/trump-hits-back-desantis-following-185854743.html)
-- Mar 20 - [Florida cops on night patrol saw an unlit car parked in a cul-de-sac. It was occupied](https://news.yahoo.com/florida-cops-night-patrol-saw-185551839.html)
+- Mar 20 - [China's Xi Jinping praises Vladimir Putin during visit to Russia](https://news.yahoo.com/chinas-xi-jinping-praises-vladimir-205122154.html)
+- Mar 20 - [Photos: Iraq war’s 20th anniversary — the advance from Kuwait to the occupation of Baghdad](https://news.yahoo.com/photos-iraq-wars-20th-anniversary--the-advance-from-kuwait-to-the-occupation-of-baghdad-201732527.html)
+- Mar 20 - [Gadfly Reporter Throws White House Presser Into Chaos With Over-the-Top Tantrum](https://news.yahoo.com/gadfly-reporter-throws-white-house-201427546.html)
+- Mar 20 - [Bad Bunny's ex-girlfriend files lawsuit seeking $40M](https://news.yahoo.com/bad-bunnys-ex-girlfriend-files-201244635.html)
+- Mar 20 - [A TikToker said she walked out on a date who was too cheap to spend $3 on cheese for his burger. That wasn't the whole story.](https://news.yahoo.com/tiktoker-said-she-walked-date-191229640.html)
 <!-- feed end -->
