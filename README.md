@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 20 - [NYC Mayor Adams says city is 'monitoring' social media and NYPD is preparing ahead of possible Trump indictment](https://news.yahoo.com/nyc-mayor-adams-says-city-183043845.html)
-- Mar 20 - [Protesters bloodied and arrested at NYC Drag Story Hour](https://news.yahoo.com/protesters-bloodied-arrested-nyc-drag-182443278.html)
-- Mar 20 - [Hockey player, 35, shares subtle warning signs he ignored before cardiac arrest](https://news.yahoo.com/hockey-player-35-shares-subtle-181432509.html)
-- Mar 20 - [Obama wants companies to strip degree requirements from more six-figure jobs to address the labor shortage](https://news.yahoo.com/obama-wants-companies-strip-degree-180233882.html)
-- Mar 20 - [Controversy after TWICE's Chaeyoung spotted wearing QAnon T-shirt during performance](https://news.yahoo.com/controversy-twices-chaeyoung-spotted-wearing-173207710.html)
+- Mar 20 - [Devin Booker Reacted After Bad Bunny Seemingly Referenced Him And Kendall Jenner In A New Song](https://news.yahoo.com/devin-booker-reacted-bad-bunny-195844787.html)
+- Mar 20 - ['Ted Lasso' cast visits White House to meet Bidens, promote mental health awareness](https://news.yahoo.com/ted-lasso-cast-visits-white-194341866.html)
+- Mar 20 - [Biden pays tribute to Iranian women at Nowruz celebration](https://news.yahoo.com/biden-pays-tribute-iranian-women-190918770.html)
+- Mar 20 - [Trump hits back at DeSantis following 'porn star' comments, warns the governor could find himself facing 'false accusations' in the future from 'underage' classmates or 'a man'](https://news.yahoo.com/trump-hits-back-desantis-following-185854743.html)
+- Mar 20 - [Florida cops on night patrol saw an unlit car parked in a cul-de-sac. It was occupied](https://news.yahoo.com/florida-cops-night-patrol-saw-185551839.html)
 <!-- feed end -->
