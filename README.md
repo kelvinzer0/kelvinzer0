@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 20 - [Dashcam shows moment of impact as semi-truck crashes into three NJ State Police vehicles](https://news.yahoo.com/dashcam-shows-moment-impact-semi-213640245.html)
-- Mar 20 - [Antoine Davis ends chase for Maravich's NCAA scoring record](https://news.yahoo.com/antoine-davis-ends-chase-maravichs-211745938.html)
-- Mar 20 - [Last wild Atlantic salmon can survive Maine dams, feds say](https://news.yahoo.com/last-wild-atlantic-salmon-survive-211704699.html)
-- Mar 20 - [Police: Arrest made in theft of funeral van containing body](https://news.yahoo.com/police-arrest-made-theft-funeral-204910406.html)
-- Mar 20 - [Gadfly Reporter Throws White House Presser Into Chaos With Over-the-Top Tantrum](https://news.yahoo.com/gadfly-reporter-throws-white-house-201427546.html)
+- Mar 20 - [Student arrested in fatal shooting at Texas school](https://news.yahoo.com/student-arrested-fatal-shooting-texas-224743237.html)
+- Mar 20 - [US says China and Russia blocking UN action on North Korea](https://news.yahoo.com/us-says-china-russia-blocking-224245681.html)
+- Mar 20 - [2nd officer in inmate's fatal beating gets same 20-year term](https://news.yahoo.com/2nd-officer-inmates-fatal-beating-223614807.html)
+- Mar 20 - [Creature of island mythology is real — and a new species, researchers in France say](https://news.yahoo.com/creature-island-mythology-real-species-222414088.html)
+- Mar 20 - [Why Ukraine is finally getting new fighter jets from NATO](https://news.yahoo.com/why-ukraine-is-finally-getting-new-fighter-jets-from-nato-220009774.html)
 <!-- feed end -->
