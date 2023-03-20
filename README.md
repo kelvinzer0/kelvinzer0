@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 20 - [Georgia county said it was too costly to spend $10,000 a year on health cover for trans employees. It spent $1.2 million fighting it, lost, and has to pay anyway.](https://news.yahoo.com/georgia-county-said-too-costly-122510512.html)
+- Mar 20 - [Nick Cannon says he had pictures of his future wife Mariah Carey on his wall when he was 12 years old](https://news.yahoo.com/nick-cannon-says-had-pictures-113220717.html)
 - Mar 20 - [Mariupol residents in Putin video identified, unknown heckler caught in audio](https://news.yahoo.com/mariupol-residents-putin-video-identified-111900878.html)
 - Mar 20 - [Families lose homes after Florida cities turbocharge code enforcement foreclosures](https://news.yahoo.com/families-lose-homes-florida-cities-110000395.html)
 - Mar 20 - [Watch: Putin heckled during Mariupol visit](https://news.yahoo.com/watch-putin-heckled-during-mariupol-094759748.html)
-- Mar 20 - [John Oliver Spots ‘Deeply Wrong’ Sign Trump Really Hates His Own Kids](https://news.yahoo.com/john-oliver-spots-deeply-wrong-085935427.html)
-- Mar 20 - [Demi Moore Shares Moving Video Of Bruce Willis Loving His Birthday Party](https://news.yahoo.com/demi-moore-shares-moving-video-080058487.html)
 <!-- feed end -->
