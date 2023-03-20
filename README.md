@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 20 - [Amazon to lay off 9,000 employees on top of 18,000 in Jan.](https://news.yahoo.com/amazon-lay-off-9-000-145408171.html)
-- Mar 20 - [Officials: US to send ammunition, tanker trucks to Ukraine](https://news.yahoo.com/officials-us-send-ammunition-tanker-144047202.html)
-- Mar 20 - [CBS-KCAL News Meteorologist Alissa Carlson Schwartz Faints On Live TV](https://news.yahoo.com/cbs-kcal-news-meteorologist-alissa-212433630.html)
-- Mar 20 - [Prosecutors rest in sedition case against Proud Boys leaders](https://news.yahoo.com/prosecutors-rest-sedition-case-against-140708341.html)
-- Mar 20 - [‘This has gone on far too long.’ Buster Murdaugh speaks out on Stephen Smith’s death](https://news.yahoo.com/gone-far-too-long-buster-133948657.html)
+- Mar 20 - [He was pulled over for an expired tag in Central Florida. Then cops looked in the car](https://news.yahoo.com/pulled-over-expired-tag-central-151954868.html)
+- Mar 20 - [Trump moves to quash Georgia election probe](https://news.yahoo.com/trump-moves-quash-georgia-election-150952942.html)
+- Mar 20 - [Amazon is laying off another 9,000 employees — read the email CEO Andy Jassy sent to staff](https://news.yahoo.com/amazon-laying-off-another-9-145457522.html)
+- Mar 20 - [Demi Moore shares 1st video of Bruce Willis since dementia diagnosis for his birthday](https://news.yahoo.com/demi-moore-shares-1st-video-143609608.html)
+- Mar 20 - [Russia's former president suggested firing a hypersonic missile at The Hague after Putin's ICC arrest warrant: 'Look carefully into the sky'](https://news.yahoo.com/russias-former-president-suggested-firing-141720435.html)
 <!-- feed end -->
