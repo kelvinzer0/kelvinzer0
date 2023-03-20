@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 20 - [Rick Ross' neighbor fears his escaped buffalo will harm her children. Ross responded by calling the massive creatures 'gentle' and suggested giving them snacks: 'when you see my buffalo, give it a carrot.'](https://news.yahoo.com/rick-ross-neighbor-fears-escaped-000853242.html)
-- Mar 19 - [San Francisco supervisor Hillary Ronen begs for more police in her district after voting to defund in 2020](https://news.yahoo.com/san-francisco-supervisor-hillary-ronen-211803798.html)
-- Mar 19 - [A Ukrainian soldier wondered if the Russians advancing on Bakhmut are on drugs: 'Otherwise, how can they go to certain death?'](https://news.yahoo.com/ukrainian-soldier-wondered-russians-advancing-204032070.html)
-- Mar 19 - [Polish Ambassador to France: Poland will be forced to enter war if Ukraine fails to defend itself](https://news.yahoo.com/polish-ambassador-france-poland-forced-201021342.html)
-- Mar 19 - [NYT reporter Maggie Haberman says Trump is 'very anxious' about a possible indictment because he doesn't 'want to face getting arrested'](https://news.yahoo.com/nyt-reporter-maggie-haberman-says-200811856.html)
+- Mar 20 - [15 Wildly Baffling Screenshots From Mom Facebook Groups That My Brain Refuses To Comprehend](https://news.yahoo.com/15-wildly-baffling-screenshots-mom-232504470.html)
+- Mar 20 - [Kelly Clarkson Paused Her Interview With Twice When She Noticed Their Translator Pronouncing Their Names Differently, And Fans Are So Grateful](https://news.yahoo.com/kelly-clarkson-paused-her-interview-211921062.html)
+- Mar 20 - [Hey, wondering what a lively spring break looked like? See these visuals for yourself](https://news.yahoo.com/hey-wondering-lively-spring-break-015601261.html)
+- Mar 20 - [It’s time for Miami Beach to drive a stake through Spring Break’s heart. But how? | Opinion](https://news.yahoo.com/time-miami-beach-drive-stake-014107812.html)
+- Mar 20 - [Safety pin: A tiny tool Indian women use to fight sexual harassment](https://news.yahoo.com/safety-pin-tiny-tool-indian-012314399.html)
 <!-- feed end -->
