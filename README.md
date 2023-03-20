@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 20 - [Stormy Daniels is tweeting up a storm with zinger after zinger about Donald Trump ahead of a possible indictment in New York](https://news.yahoo.com/stormy-daniels-tweeting-storm-zinger-051402162.html)
 - Mar 20 - [Trump's call for protests get muted reaction from supporters](https://news.yahoo.com/trumps-call-protests-muted-reaction-041013870.html)
 - Mar 20 - [Is Putin using a body double? Listen here: Skeptics say spotting a decoy is all in the ears.](https://news.yahoo.com/putin-using-body-double-listen-035201648.html)
 - Mar 20 - [American company outraged after Mexican military, police seized Caribbean facility: 'This is insane'](https://news.yahoo.com/american-company-outraged-mexican-military-015903255.html)
 - Mar 20 - [Hey, wondering what a lively spring break looked like? See these visuals for yourself](https://news.yahoo.com/hey-wondering-lively-spring-break-015601261.html)
-- Mar 20 - [It’s time for Miami Beach to drive a stake through Spring Break’s heart. But how? | Opinion](https://news.yahoo.com/time-miami-beach-drive-stake-014107812.html)
 <!-- feed end -->
