@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 20 - [Biden issues first veto, knocks Marjorie Taylor Greene](https://news.yahoo.com/biden-issues-first-veto-knocks-172042578.html)
-- Mar 20 - [Taco Bell is bringing back ’90s fan favorites — for a limited time. Here’s what to know](https://news.yahoo.com/taco-bell-bringing-back-90s-164303892.html)
-- Mar 20 - [Jury convicts 3 of murder in death of rapper XXXTentacion](https://news.yahoo.com/jury-convicts-3-murder-death-162851875.html)
-- Mar 20 - [I'm a couples therapist. This is the 1 thing I never do in my relationship](https://news.yahoo.com/couples-therapist-shares-1-thing-202114808.html)
-- Mar 20 - [DeSantis breaks his silence on the 'manufactured circus' around expected Trump indictment: 'I don't know what goes into paying hush money to a porn star'](https://news.yahoo.com/desantis-breaks-silence-manufactured-circus-160741052.html)
+- Mar 20 - [NYC Mayor Adams says city is 'monitoring' social media and NYPD is preparing ahead of possible Trump indictment](https://news.yahoo.com/nyc-mayor-adams-says-city-183043845.html)
+- Mar 20 - [Protesters bloodied and arrested at NYC Drag Story Hour](https://news.yahoo.com/protesters-bloodied-arrested-nyc-drag-182443278.html)
+- Mar 20 - [Hockey player, 35, shares subtle warning signs he ignored before cardiac arrest](https://news.yahoo.com/hockey-player-35-shares-subtle-181432509.html)
+- Mar 20 - [Obama wants companies to strip degree requirements from more six-figure jobs to address the labor shortage](https://news.yahoo.com/obama-wants-companies-strip-degree-180233882.html)
+- Mar 20 - [Controversy after TWICE's Chaeyoung spotted wearing QAnon T-shirt during performance](https://news.yahoo.com/controversy-twices-chaeyoung-spotted-wearing-173207710.html)
 <!-- feed end -->
