@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 19 - [Macron calls for calm amid French pension fury before crucial votes](https://news.yahoo.com/macron-calls-calm-amid-french-224004875.html)
+- Mar 20 - [Rick Ross' neighbor fears his escaped buffalo will harm her children. Ross responded by calling the massive creatures 'gentle' and suggested giving them snacks: 'when you see my buffalo, give it a carrot.'](https://news.yahoo.com/rick-ross-neighbor-fears-escaped-000853242.html)
+- Mar 19 - [San Francisco supervisor Hillary Ronen begs for more police in her district after voting to defund in 2020](https://news.yahoo.com/san-francisco-supervisor-hillary-ronen-211803798.html)
 - Mar 19 - [A Ukrainian soldier wondered if the Russians advancing on Bakhmut are on drugs: 'Otherwise, how can they go to certain death?'](https://news.yahoo.com/ukrainian-soldier-wondered-russians-advancing-204032070.html)
 - Mar 19 - [Polish Ambassador to France: Poland will be forced to enter war if Ukraine fails to defend itself](https://news.yahoo.com/polish-ambassador-france-poland-forced-201021342.html)
 - Mar 19 - [NYT reporter Maggie Haberman says Trump is 'very anxious' about a possible indictment because he doesn't 'want to face getting arrested'](https://news.yahoo.com/nyt-reporter-maggie-haberman-says-200811856.html)
-- Mar 19 - [A Georgia employee requested their county include gender-affirming care as part of their health coverage. Instead, the county spent $1.2 million fighting the effort: report.](https://news.yahoo.com/georgia-employee-requested-county-gender-200518332.html)
 <!-- feed end -->
