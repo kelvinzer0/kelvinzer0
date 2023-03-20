@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 20 - [Trump's call for protests get muted reaction from supporters](https://news.yahoo.com/trumps-call-protests-muted-reaction-041013870.html)
+- Mar 20 - [Is Putin using a body double? Listen here: Skeptics say spotting a decoy is all in the ears.](https://news.yahoo.com/putin-using-body-double-listen-035201648.html)
+- Mar 20 - [American company outraged after Mexican military, police seized Caribbean facility: 'This is insane'](https://news.yahoo.com/american-company-outraged-mexican-military-015903255.html)
 - Mar 20 - [Hey, wondering what a lively spring break looked like? See these visuals for yourself](https://news.yahoo.com/hey-wondering-lively-spring-break-015601261.html)
 - Mar 20 - [It’s time for Miami Beach to drive a stake through Spring Break’s heart. But how? | Opinion](https://news.yahoo.com/time-miami-beach-drive-stake-014107812.html)
-- Mar 20 - [Safety pin: A tiny tool Indian women use to fight sexual harassment](https://news.yahoo.com/safety-pin-tiny-tool-indian-012314399.html)
-- Mar 20 - [Meteorologist who collapsed live on air says she’s recovering from a 'head injury'](https://news.yahoo.com/meteorologist-collapsed-live-air-says-010930542.html)
-- Mar 20 - [North Korea’s Kim Jong Un calls for nuclear attack preparedness on US, South Korea](https://news.yahoo.com/north-korea-kim-jong-un-005027998.html)
 <!-- feed end -->
