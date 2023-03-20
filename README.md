@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 20 - [Their world was the oyster: Oldest pearl town found in UAE](https://news.yahoo.com/world-oyster-oldest-pearl-town-070439314.html)
+- Mar 20 - [Spring breakers gather near Mexico border seemingly oblivious to crime threat, US warnings](https://news.yahoo.com/spring-breakers-gather-near-mexico-060048521.html)
 - Mar 20 - ['Despicable' Pandering: Ron DeSantis Roasted For Odd Claim About His Upbringing](https://news.yahoo.com/despicable-pandering-ron-desantis-roasted-060023159.html)
 - Mar 20 - [Stormy Daniels is tweeting up a storm with zinger after zinger about Donald Trump ahead of a possible indictment in New York](https://news.yahoo.com/stormy-daniels-tweeting-storm-zinger-051402162.html)
 - Mar 20 - [Trump's call for protests get muted reaction from supporters](https://news.yahoo.com/trumps-call-protests-muted-reaction-041013870.html)
-- Mar 20 - [Is Putin using a body double? Listen here: Skeptics say spotting a decoy is all in the ears.](https://news.yahoo.com/putin-using-body-double-listen-035201648.html)
-- Mar 20 - [American company outraged after Mexican military, police seized Caribbean facility: 'This is insane'](https://news.yahoo.com/american-company-outraged-mexican-military-015903255.html)
 <!-- feed end -->
