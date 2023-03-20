@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 20 - [Georgia county said it was too costly to spend $10,000 a year on health cover for trans employees. It spent $1.2 million fighting it, lost, and has to pay anyway.](https://news.yahoo.com/georgia-county-said-too-costly-122510512.html)
-- Mar 20 - [House Republicans to Demand Testimony from Manhattan DA Staff as Trump Indictment Looms](https://news.yahoo.com/house-republicans-demand-testimony-manhattan-122219583.html)
-- Mar 20 - [Mariupol residents in Putin video identified, unknown heckler caught in audio](https://news.yahoo.com/mariupol-residents-putin-video-identified-111900878.html)
-- Mar 20 - ['Jugging' among new crime trends posing danger on America's streets: What to know](https://news.yahoo.com/jugging-among-crime-trends-posing-110031404.html)
-- Mar 20 - [Families lose homes after Florida cities turbocharge code enforcement foreclosures](https://news.yahoo.com/families-lose-homes-florida-cities-110000395.html)
+- Mar 20 - [Amazon to lay off 9,000 employees on top of 18,000 in Jan.](https://news.yahoo.com/amazon-lay-off-9-000-145408171.html)
+- Mar 20 - [Officials: US to send ammunition, tanker trucks to Ukraine](https://news.yahoo.com/officials-us-send-ammunition-tanker-144047202.html)
+- Mar 20 - [CBS-KCAL News Meteorologist Alissa Carlson Schwartz Faints On Live TV](https://news.yahoo.com/cbs-kcal-news-meteorologist-alissa-212433630.html)
+- Mar 20 - [Prosecutors rest in sedition case against Proud Boys leaders](https://news.yahoo.com/prosecutors-rest-sedition-case-against-140708341.html)
+- Mar 20 - [‘This has gone on far too long.’ Buster Murdaugh speaks out on Stephen Smith’s death](https://news.yahoo.com/gone-far-too-long-buster-133948657.html)
 <!-- feed end -->
