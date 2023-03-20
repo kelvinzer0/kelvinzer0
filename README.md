@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 20 - [Georgia county said it was too costly to spend $10,000 a year on health cover for trans employees. It spent $1.2 million fighting it, lost, and has to pay anyway.](https://news.yahoo.com/georgia-county-said-too-costly-122510512.html)
-- Mar 20 - [Nick Cannon says he had pictures of his future wife Mariah Carey on his wall when he was 12 years old](https://news.yahoo.com/nick-cannon-says-had-pictures-113220717.html)
+- Mar 20 - [House Republicans to Demand Testimony from Manhattan DA Staff as Trump Indictment Looms](https://news.yahoo.com/house-republicans-demand-testimony-manhattan-122219583.html)
 - Mar 20 - [Mariupol residents in Putin video identified, unknown heckler caught in audio](https://news.yahoo.com/mariupol-residents-putin-video-identified-111900878.html)
+- Mar 20 - ['Jugging' among new crime trends posing danger on America's streets: What to know](https://news.yahoo.com/jugging-among-crime-trends-posing-110031404.html)
 - Mar 20 - [Families lose homes after Florida cities turbocharge code enforcement foreclosures](https://news.yahoo.com/families-lose-homes-florida-cities-110000395.html)
-- Mar 20 - [Watch: Putin heckled during Mariupol visit](https://news.yahoo.com/watch-putin-heckled-during-mariupol-094759748.html)
 <!-- feed end -->
