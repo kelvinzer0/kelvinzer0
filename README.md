@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 21 - [Former NFL MVP Cam Newton to throw at Auburn's Pro Day](https://news.yahoo.com/former-nfl-mvp-cam-newton-005206398.html)
+- Mar 21 - [Dismal Crowd At NYC Trump Rally Despite Ex-Prez’s Call For Action As Arrest Looms](https://news.yahoo.com/dismal-crowd-nyc-trump-rally-015152754.html)
+- Mar 21 - [Bragg wrestling with whether to allow Trump to avoid 'perp walk'](https://news.yahoo.com/bragg-wrestling-with-whether-to-allow-trump-to-avoid-perp-walk-012938669.html)
+- Mar 21 - [Last call: Dodge unveils last super-fast gasoline muscle car](https://news.yahoo.com/last-call-dodge-unveils-last-010809019.html)
 - Mar 21 - [Dashcam shows moment of impact as semi-truck crashes into New Jersey State Police vehicles](https://news.yahoo.com/dashcam-shows-moment-impact-semi-213640245.html)
-- Mar 21 - [Russia to hold UN meeting on Ukraine kids taken to Russia](https://news.yahoo.com/russia-hold-un-meeting-ukraine-004437123.html)
-- Mar 20 - [Trump loses last bid to keep key evidence out of rape trial](https://news.yahoo.com/trump-loses-last-bid-keep-234627186.html)
-- Mar 20 - [2nd officer in inmate's fatal beating gets same 20-year term](https://news.yahoo.com/2nd-officer-inmates-fatal-beating-223614807.html)
+- Mar 21 - [Explosions destroy Russian cruise missile shipment in Crimea](https://news.yahoo.com/explosions-destroy-russian-cruise-missile-000300292.html)
 <!-- feed end -->
