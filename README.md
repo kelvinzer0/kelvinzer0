@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 21 - [Top US general says it will be really hard and cost a lot of 'blood and treasure' for Ukraine to 'kick out every single Russian' invader](https://news.yahoo.com/top-us-general-says-really-175219789.html)
-- Mar 21 - [Gwyneth Paltrow's 16-year-old son Moses will testify at his mother's Utah ski crash trial](https://news.yahoo.com/gwyneth-paltrows-16-old-son-175107721.html)
+- Mar 21 - [Trump's legal troubles extend far beyond Stormy Daniels case](https://news.yahoo.com/trumps-legal-troubles-extend-far-beyond-stormy-daniels-case-193228648.html)
+- Mar 21 - [New species of ‘giant’ spider discovered hiding underground in Australia, experts say](https://news.yahoo.com/species-giant-spider-discovered-hiding-192525332.html)
+- Mar 21 - [The retired optometrist suing Gwyneth Paltrow over a ski crash told his daughter 'I'm famous' hours after she allegedly shattered 4 of his ribs](https://news.yahoo.com/gwyneth-paltrows-ski-collision-trial-100000116.html)
+- Mar 21 - [Disney World fan pleads for park to change Mulan's appearance in six-page open letter](https://news.yahoo.com/disney-world-fan-pleads-park-173841262.html)
 - Mar 21 - [Putin is under the influence of strong drugs, Russian political scientist says](https://news.yahoo.com/putin-under-influence-strong-drugs-171000618.html)
-- Mar 21 - [Florida professor sues his university for firing him after he compared Asian Americans to African Americans](https://news.yahoo.com/florida-professor-sues-university-firing-170202701.html)
-- Mar 21 - [A retired couple spent 5 years and $180k converting a dilapidated semitrailer into a 'monster' mobile home with a library, spiral staircase, and hot tub. Take a look inside.](https://news.yahoo.com/retired-couple-spent-5-years-164850886.html)
 <!-- feed end -->
