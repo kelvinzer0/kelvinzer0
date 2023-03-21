@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Mar 21 - [Bragg wrestling with whether to allow Trump to avoid 'perp walk'](https://news.yahoo.com/bragg-wrestling-with-whether-to-allow-trump-to-avoid-perp-walk-012938669.html)
 - Mar 21 - [Last call: Dodge unveils last super-fast gasoline muscle car](https://news.yahoo.com/last-call-dodge-unveils-last-010809019.html)
 - Mar 21 - [Dashcam shows moment of impact as semi-truck crashes into New Jersey State Police vehicles](https://news.yahoo.com/dashcam-shows-moment-impact-semi-213640245.html)
-- Mar 21 - [Explosions destroy Russian cruise missile shipment in Crimea](https://news.yahoo.com/explosions-destroy-russian-cruise-missile-000300292.html)
+- Mar 21 - [Ozzy Osbourne reveals who was the best person to party with](https://news.yahoo.com/ozzy-osbourne-reveals-best-person-000907332.html)
 <!-- feed end -->
