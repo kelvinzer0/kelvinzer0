@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 21 - [Donald Trump wants his '74 million' supporters to sign a petition railing against his potential arrest. Those who sign it are asked to donate $3,300 and more.](https://news.yahoo.com/donald-trump-wants-74-million-070622441.html)
 - Mar 21 - [Ignoring experts, China's sudden zero-COVID exit cost lives](https://news.yahoo.com/ignoring-experts-chinas-sudden-zero-054730832.html)
 - Mar 21 - [Fox News producer was forced to spy on Maria Bartiromo, who execs called 'crazy,' menopausal,' and 'hysterical,' new lawsuit says](https://news.yahoo.com/fox-news-producer-forced-spy-053533200.html)
 - Mar 21 - [Crafty Prankster Sneaks Unfiltered Truth About Trump Onto Right-Wing Newscast](https://news.yahoo.com/crafty-prankster-sneaks-unfiltered-truth-050044868.html)
 - Mar 21 - [Chris Rock says arresting Donald Trump is like arresting Tupac Shakur: 'He's just going to sell more records. Are you stupid?'](https://news.yahoo.com/chris-rock-says-arresting-donald-044944953.html)
-- Mar 21 - [Tucker Carlson Laughed Out Of The Room With Eyebrow-Raising New Trump Defense](https://news.yahoo.com/tucker-carlson-laughed-room-eyebrow-033901262.html)
 <!-- feed end -->
