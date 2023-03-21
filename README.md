@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 21 - [Quinta Brunson's Response To An Education CEO Who Tried To Call Her Out For An "Abbott Elementary" Storyline Has Me Cackling Laughing](https://news.yahoo.com/quinta-brunsons-response-education-ceo-015222428.html)
 - Mar 21 - [Donald Trump wants his '74 million' supporters to sign a petition railing against his potential arrest. Those who sign it are asked to donate $3,300 and more.](https://news.yahoo.com/donald-trump-wants-74-million-070622441.html)
+- Mar 21 - [Russian invaders declare state of emergency in Dzhankoi, Crimea due to "drone attack"](https://news.yahoo.com/russian-invaders-declare-state-emergency-065516059.html)
 - Mar 21 - [Ignoring experts, China's sudden zero-COVID exit cost lives](https://news.yahoo.com/ignoring-experts-chinas-sudden-zero-054730832.html)
 - Mar 21 - [Fox News producer was forced to spy on Maria Bartiromo, who execs called 'crazy,' menopausal,' and 'hysterical,' new lawsuit says](https://news.yahoo.com/fox-news-producer-forced-spy-053533200.html)
-- Mar 21 - [Crafty Prankster Sneaks Unfiltered Truth About Trump Onto Right-Wing Newscast](https://news.yahoo.com/crafty-prankster-sneaks-unfiltered-truth-050044868.html)
-- Mar 21 - [Tucker Carlson Laughed Out Of The Room With Eyebrow-Raising New Trump Defense](https://news.yahoo.com/tucker-carlson-laughed-room-eyebrow-033901262.html)
 <!-- feed end -->
