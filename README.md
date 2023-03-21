@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 21 - [Trump's legal troubles extend far beyond Stormy Daniels case](https://news.yahoo.com/trumps-legal-troubles-extend-far-beyond-stormy-daniels-case-193228648.html)
+- Mar 21 - [Judge says no death penalty for mom in triple murder case](https://news.yahoo.com/judge-says-no-death-penalty-204826490.html)
+- Mar 21 - [Trump supporters rally amid legal woes](https://news.yahoo.com/trump-supporters-rally-amid-legal-203041024.html)
+- Mar 21 - ['Mocked like animals': Teens in England filmed spewing racial slurs at Nepalese British sisters](https://news.yahoo.com/mocked-animals-teens-england-filmed-194446882.html)
 - Mar 21 - [New species of ‘giant’ spider discovered hiding underground in Australia, experts say](https://news.yahoo.com/species-giant-spider-discovered-hiding-192525332.html)
-- Mar 21 - [The retired optometrist suing Gwyneth Paltrow over a ski crash told his daughter 'I'm famous' hours after she allegedly shattered 4 of his ribs](https://news.yahoo.com/gwyneth-paltrows-ski-collision-trial-100000116.html)
-- Mar 21 - [Disney World fan pleads for park to change Mulan's appearance in six-page open letter](https://news.yahoo.com/disney-world-fan-pleads-park-173841262.html)
-- Mar 21 - [Putin is under the influence of strong drugs, Russian political scientist says](https://news.yahoo.com/putin-under-influence-strong-drugs-171000618.html)
+- Mar 21 - [Van Jones says Bragg may ‘step back from the brink’ on charging Trump](https://news.yahoo.com/van-jones-says-bragg-may-185836343.html)
 <!-- feed end -->
