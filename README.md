@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 20 - [Student arrested in fatal shooting at Texas school](https://news.yahoo.com/student-arrested-fatal-shooting-texas-224743237.html)
-- Mar 20 - [US says China and Russia blocking UN action on North Korea](https://news.yahoo.com/us-says-china-russia-blocking-224245681.html)
+- Mar 21 - [Former NFL MVP Cam Newton to throw at Auburn's Pro Day](https://news.yahoo.com/former-nfl-mvp-cam-newton-005206398.html)
+- Mar 21 - [Dashcam shows moment of impact as semi-truck crashes into New Jersey State Police vehicles](https://news.yahoo.com/dashcam-shows-moment-impact-semi-213640245.html)
+- Mar 21 - [Russia to hold UN meeting on Ukraine kids taken to Russia](https://news.yahoo.com/russia-hold-un-meeting-ukraine-004437123.html)
+- Mar 20 - [Trump loses last bid to keep key evidence out of rape trial](https://news.yahoo.com/trump-loses-last-bid-keep-234627186.html)
 - Mar 20 - [2nd officer in inmate's fatal beating gets same 20-year term](https://news.yahoo.com/2nd-officer-inmates-fatal-beating-223614807.html)
-- Mar 20 - [Creature of island mythology is real — and a new species, researchers in France say](https://news.yahoo.com/creature-island-mythology-real-species-222414088.html)
-- Mar 20 - [Why Ukraine is finally getting new fighter jets from NATO](https://news.yahoo.com/why-ukraine-is-finally-getting-new-fighter-jets-from-nato-220009774.html)
 <!-- feed end -->
