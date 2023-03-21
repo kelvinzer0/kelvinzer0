@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 21 - [Australian cardboard drones already performing battlefield missions in Ukraine](https://news.yahoo.com/australian-cardboard-drones-already-performing-135500704.html)
-- Mar 21 - [US speeds up Abrams tank delivery to Ukraine war zone](https://news.yahoo.com/us-speeds-abrams-tank-delivery-130425451.html)
-- Mar 21 - [CNN Reporter Puts Trump Attorney On Hot Seat About Phone Call To Increase Votes](https://news.yahoo.com/cnn-reporter-puts-trump-attorney-124047895.html)
-- Mar 21 - [New surveillance video in case of Irvo Otieno, who died in police custody](https://news.yahoo.com/surveillance-video-case-irvo-otieno-123126372.html)
-- Mar 21 - [When My Dad Got Cancer, I Kept Asking, 'Why Him?' His 3-Word Response Floored Me.](https://news.yahoo.com/dad-got-cancer-kept-asking-123009636.html)
+- Mar 21 - [NATO to hold Ukraine meeting despite Hungary's objections](https://news.yahoo.com/nato-hold-ukraine-meeting-despite-155144965.html)
+- Mar 21 - [GOP leader passes confidence vote after social media uproar](https://news.yahoo.com/gop-leader-passes-confidence-vote-153511791.html)
+- Mar 21 - [Fox News producer alleges Tucker Carlson's team plastered photos around the office of Nancy Pelosi in a bathing suit 'revealing her cleavage'](https://news.yahoo.com/fox-news-producer-alleges-tucker-150128035.html)
+- Mar 21 - [Teacher recalls being shot by 6-year-old student: 'I remember the look on his face'](https://news.yahoo.com/teacher-shot-6-old-opens-003002603.html)
+- Mar 21 - [Video shows mass order of KFC arriving to Xi's hotel during Putin visit, even though it's supposed to have rebranded in Russia](https://news.yahoo.com/video-shows-mass-order-kfc-142411155.html)
 <!-- feed end -->
