@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 21 - ['Daily Show' Guest Host Al Franken Has Picture-Perfect Trump Arrest Plan](https://news.yahoo.com/daily-show-guest-host-al-042400205.html)
+- Mar 21 - [Crafty Prankster Sneaks Unfiltered Truth About Trump Onto Right-Wing Newscast](https://news.yahoo.com/crafty-prankster-sneaks-unfiltered-truth-050044868.html)
+- Mar 21 - [Chris Rock says arresting Donald Trump is like arresting Tupac Shakur: 'He's just going to sell more records. Are you stupid?'](https://news.yahoo.com/chris-rock-says-arresting-donald-044944953.html)
 - Mar 21 - [Tucker Carlson Laughed Out Of The Room With Eyebrow-Raising New Trump Defense](https://news.yahoo.com/tucker-carlson-laughed-room-eyebrow-033901262.html)
-- Mar 21 - [UConn beats Baylor 77-58 for 29th straight trip to Sweet 16](https://news.yahoo.com/uconn-beats-baylor-77-58-031743585.html)
 - Mar 21 - [Dismal Crowd At NYC Trump Rally Despite Ex-Prez’s Call For Action As Arrest Looms](https://news.yahoo.com/dismal-crowd-nyc-trump-rally-015152754.html)
 - Mar 21 - [Last call: Dodge unveils last super-fast gasoline muscle car](https://news.yahoo.com/last-call-dodge-unveils-last-010809019.html)
 <!-- feed end -->
