@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 21 - [LAUSD schools closed as workers go on strike](https://news.yahoo.com/lausd-schools-closed-workers-strike-223800263.html)
+- Mar 21 - [Last Match Play, last chance for Kuchar at Tiger's record](https://news.yahoo.com/last-match-play-last-chance-213945413.html)
+- Mar 21 - [Mom called out for pic of baby on balcony ledge. Her response is raising eyebrows](https://news.yahoo.com/mom-called-pic-baby-balcony-213811426.html)
+- Mar 21 - [LSU gymnast Olivia Dunne makes more than $1 million and has millions of TikTok followers. She says she chooses to ignore 'irrelevant hate' from sorority girls and 'frat boys that think they're funny.'](https://news.yahoo.com/lsu-gymnast-olivia-dunne-makes-211931554.html)
 - Mar 21 - [29-year-old scientist who posed as teen to attend high school sought ‘place of safety,’ says lawyer](https://news.yahoo.com/29-old-scientist-posed-teen-203320414.html)
-- Mar 21 - [Republican Congressman Proudly Admits He Doesn't Know the Difference Between Abortion & Plan B](https://news.yahoo.com/republican-congressman-proudly-admits-doesnt-201000372.html)
-- Mar 21 - [Robin DiAngelo Advises People of Color to ‘Get Away from White People’](https://news.yahoo.com/robin-diangelo-advises-people-color-195511417.html)
-- Mar 21 - [New species of ‘giant’ spider discovered hiding underground in Australia, experts say](https://news.yahoo.com/species-giant-spider-discovered-hiding-192525332.html)
-- Mar 21 - [Roaming mobs of teens clash in San Francisco mall brawls as bystanders caught in crosshairs: 'I'm very scared'](https://news.yahoo.com/roaming-mobs-teens-clash-san-190720423.html)
 <!-- feed end -->
