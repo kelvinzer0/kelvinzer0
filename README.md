@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 21 - [US speeds up Abrams tank delivery to Ukraine war zone](https://news.yahoo.com/us-speeds-abrams-tank-delivery-130425451.html)
 - Mar 21 - [CNN Reporter Puts Trump Attorney On Hot Seat About Phone Call To Increase Votes](https://news.yahoo.com/cnn-reporter-puts-trump-attorney-124047895.html)
 - Mar 21 - [New surveillance video in case of Irvo Otieno, who died in police custody](https://news.yahoo.com/surveillance-video-case-irvo-otieno-123126372.html)
 - Mar 21 - [When My Dad Got Cancer, I Kept Asking, 'Why Him?' His 3-Word Response Floored Me.](https://news.yahoo.com/dad-got-cancer-kept-asking-123009636.html)
 - Mar 21 - [The Kremlin Stealth Edits Embarrassing Putin Video](https://news.yahoo.com/kremlin-stealth-edits-embarrassing-putin-103414831.html)
-- Mar 21 - [Israel repeals 2005 act on West Bank settlement pullout](https://news.yahoo.com/israel-repeals-2005-act-west-090856329.html)
 <!-- feed end -->
