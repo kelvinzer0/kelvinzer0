@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 21 - [Ignoring experts, China's sudden zero-COVID exit cost lives](https://news.yahoo.com/ignoring-experts-chinas-sudden-zero-054730832.html)
+- Mar 21 - [Fox News producer was forced to spy on Maria Bartiromo, who execs called 'crazy,' menopausal,' and 'hysterical,' new lawsuit says](https://news.yahoo.com/fox-news-producer-forced-spy-053533200.html)
 - Mar 21 - [Crafty Prankster Sneaks Unfiltered Truth About Trump Onto Right-Wing Newscast](https://news.yahoo.com/crafty-prankster-sneaks-unfiltered-truth-050044868.html)
 - Mar 21 - [Chris Rock says arresting Donald Trump is like arresting Tupac Shakur: 'He's just going to sell more records. Are you stupid?'](https://news.yahoo.com/chris-rock-says-arresting-donald-044944953.html)
 - Mar 21 - [Tucker Carlson Laughed Out Of The Room With Eyebrow-Raising New Trump Defense](https://news.yahoo.com/tucker-carlson-laughed-room-eyebrow-033901262.html)
-- Mar 21 - [Dismal Crowd At NYC Trump Rally Despite Ex-Prez’s Call For Action As Arrest Looms](https://news.yahoo.com/dismal-crowd-nyc-trump-rally-015152754.html)
-- Mar 21 - [Last call: Dodge unveils last super-fast gasoline muscle car](https://news.yahoo.com/last-call-dodge-unveils-last-010809019.html)
 <!-- feed end -->
