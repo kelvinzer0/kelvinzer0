@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 21 - [Judge says no death penalty for mom in triple murder case](https://news.yahoo.com/judge-says-no-death-penalty-204826490.html)
-- Mar 21 - [Trump supporters rally amid legal woes](https://news.yahoo.com/trump-supporters-rally-amid-legal-203041024.html)
-- Mar 21 - ['Mocked like animals': Teens in England filmed spewing racial slurs at Nepalese British sisters](https://news.yahoo.com/mocked-animals-teens-england-filmed-194446882.html)
+- Mar 21 - [29-year-old scientist who posed as teen to attend high school sought ‘place of safety,’ says lawyer](https://news.yahoo.com/29-old-scientist-posed-teen-203320414.html)
+- Mar 21 - [Republican Congressman Proudly Admits He Doesn't Know the Difference Between Abortion & Plan B](https://news.yahoo.com/republican-congressman-proudly-admits-doesnt-201000372.html)
+- Mar 21 - [Robin DiAngelo Advises People of Color to ‘Get Away from White People’](https://news.yahoo.com/robin-diangelo-advises-people-color-195511417.html)
 - Mar 21 - [New species of ‘giant’ spider discovered hiding underground in Australia, experts say](https://news.yahoo.com/species-giant-spider-discovered-hiding-192525332.html)
-- Mar 21 - [Van Jones says Bragg may ‘step back from the brink’ on charging Trump](https://news.yahoo.com/van-jones-says-bragg-may-185836343.html)
+- Mar 21 - [Roaming mobs of teens clash in San Francisco mall brawls as bystanders caught in crosshairs: 'I'm very scared'](https://news.yahoo.com/roaming-mobs-teens-clash-san-190720423.html)
 <!-- feed end -->
