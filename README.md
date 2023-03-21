@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 21 - [Disney World fan pleads for park to change Mulan's appearance in six-page open letter](https://news.yahoo.com/disney-world-fan-pleads-park-173841262.html)
+- Mar 21 - [Florida professor sues his university for firing him after he compared Asian Americans to African Americans](https://news.yahoo.com/florida-professor-sues-university-firing-170202701.html)
+- Mar 21 - [A retired couple spent 5 years and $180k converting a dilapidated semitrailer into a 'monster' mobile home with a library, spiral staircase, and hot tub. Take a look inside.](https://news.yahoo.com/retired-couple-spent-5-years-164850886.html)
 - Mar 21 - [Nuclear contamination testing planned at St. Louis-area park](https://news.yahoo.com/nuclear-contamination-testing-planned-st-163752042.html)
-- Mar 21 - [Putin's health may be disintegrating and it should terrify us all](https://news.yahoo.com/putins-health-may-disintegrating-terrify-160912702.html)
-- Mar 21 - [Meet Mallory Edens, Aaron Rodgers' reported girlfriend and the daughter of billionaire Milwaukee Bucks owner Wes Edens](https://news.yahoo.com/meet-mallory-edens-aaron-rodgers-153859571.html)
-- Mar 21 - [GOP leader passes confidence vote after social media uproar](https://news.yahoo.com/gop-leader-passes-confidence-vote-153511791.html)
-- Mar 21 - [Trump lawyer: If he’s indicted ‘this is an all-out war’](https://news.yahoo.com/trump-lawyer-indicted-war-151909092.html)
+- Mar 21 - [Family of paramedic who died after bullying by KCFD supervisor wins lawsuit at trial](https://news.yahoo.com/family-paramedic-died-bullying-kcfd-162636315.html)
 <!-- feed end -->
