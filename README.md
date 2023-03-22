@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 21 - [LAUSD schools closed as workers go on strike](https://news.yahoo.com/lausd-schools-closed-workers-strike-223800263.html)
-- Mar 21 - [Last Match Play, last chance for Kuchar at Tiger's record](https://news.yahoo.com/last-match-play-last-chance-213945413.html)
-- Mar 21 - [Mom called out for pic of baby on balcony ledge. Her response is raising eyebrows](https://news.yahoo.com/mom-called-pic-baby-balcony-213811426.html)
-- Mar 21 - [LSU gymnast Olivia Dunne makes more than $1 million and has millions of TikTok followers. She says she chooses to ignore 'irrelevant hate' from sorority girls and 'frat boys that think they're funny.'](https://news.yahoo.com/lsu-gymnast-olivia-dunne-makes-211931554.html)
-- Mar 21 - [29-year-old scientist who posed as teen to attend high school sought ‘place of safety,’ says lawyer](https://news.yahoo.com/29-old-scientist-posed-teen-203320414.html)
+- Mar 21 - [Lucy Liu took nude photos of Drew Barrymore on set of 'Charlie's Angels' and says she 'of course' still has them](https://news.yahoo.com/lucy-liu-took-nude-photos-232958324.html)
+- Mar 21 - [Man diagnosed with stage 4 colon cancer at 29 shares symptoms: 'It hit me pretty hard'](https://news.yahoo.com/man-diagnosed-stage-4-colon-231851391.html)
+- Mar 21 - [MLB plans to announce rules tweaks, week before opening day](https://news.yahoo.com/mlb-plans-announce-rules-tweaks-231226617.html)
+- Mar 21 - [Xi and Putin release joint statement on Ukraine](https://news.yahoo.com/xi-putin-release-joint-statement-230502254.html)
+- Mar 21 - ['Don't Say Gay' lawmaker pleads guilty to COVID relief fraud](https://news.yahoo.com/dont-gay-lawmaker-pleads-guilty-224838358.html)
 <!-- feed end -->
