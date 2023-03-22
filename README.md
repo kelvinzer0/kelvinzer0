@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 22 - [Trump Lawyer Torn To Shreds As He Flubs His Way Through Ari Melber Interview](https://news.yahoo.com/trump-lawyer-torn-shreds-flubs-060850521.html)
-- Mar 22 - [Trump seems disconnected from reality and is still rolling around Mar-a-Lago in a golf cart even as a potential indictment in New York looms: report](https://news.yahoo.com/trump-seems-disconnected-reality-still-044848017.html)
-- Mar 22 - [Moment of Truth in Trump Case After ‘Extraordinary’ Late Night Legal Battle](https://news.yahoo.com/court-makes-extraordinary-night-demands-040839431.html)
-- Mar 22 - [The Las Vegas mansion where Siegfried and Roy lived with their lions and tigers is under contract. The new owners say they want to turn it into a shrine.](https://news.yahoo.com/las-vegas-mansion-where-siegfried-033440016.html)
-- Mar 22 - [Arkansas restricts school bathroom use by transgender people](https://news.yahoo.com/arkansas-governor-signs-school-bathroom-022500098.html)
+- Mar 22 - [Florida couple ‘terrorized’ and shot by ‘mob’ blocking road for illegal race, cops say](https://news.yahoo.com/florida-couple-terrorized-shot-mob-113255348.html)
+- Mar 22 - [Ryan Reynolds' trainer says most people shouldn't do back squats. Try these exercises for a strong body instead.](https://news.yahoo.com/ryan-reynolds-trainer-says-most-111856392.html)
+- Mar 22 - [Jennifer Aniston says she took care of Adam Sandler on the set of 'Murder Mystery 2' by giving him smoothies and Chinese herbs when he was exhausted: 'I'm like the mobile pharmacy'](https://news.yahoo.com/jennifer-aniston-says-she-took-105907931.html)
+- Mar 22 - [Ukraine-Russia war latest: Drones attack Russian fleet in Crimea port](https://news.yahoo.com/ukraine-russia-war-latest-drones-073214713.html)
+- Mar 22 - [Rep. Jim Jordan’s Judiciary Tweet Backing Donald Trump Gets A Brutal Rewrite](https://news.yahoo.com/rep-jim-jordan-judiciary-tweet-061735469.html)
 <!-- feed end -->
