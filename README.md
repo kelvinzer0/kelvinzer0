@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 22 - [Frozen Fruit Recalled From Trader Joe's, Costco, and Aldi's Due to Hepatitis Outbreak](https://news.yahoo.com/frozen-fruit-recalled-trader-joes-174505429.html)
-- Mar 22 - [GM to stop making the Camaro but a successor may be in works](https://news.yahoo.com/gm-stop-making-camaro-successor-174452199.html)
-- Mar 22 - [2 years ago I was hit by a driver the police say was drunk. I needed 22 screws in my body and covered mirrors in my house so I couldn't see my scars.](https://news.yahoo.com/2-years-ago-hit-driver-165621540.html)
-- Mar 22 - [War on gangs forges new El Salvador. But the price is steep.](https://news.yahoo.com/war-gangs-forges-el-salvador-165416164.html)
 - Mar 22 - [Dozens injured after ship topples over in Scotland](https://news.yahoo.com/ship-topples-leith-dry-dock-115137037.html)
+- Mar 22 - [DeSantis to expand 'Don't Say Gay' law to high schools](https://news.yahoo.com/desantis-expand-law-critics-call-181937177.html)
+- Mar 22 - [GM to stop making the Camaro but a successor may be in works](https://news.yahoo.com/gm-stop-making-camaro-successor-174452199.html)
+- Mar 22 - [War on gangs forges new El Salvador. But the price is steep.](https://news.yahoo.com/war-gangs-forges-el-salvador-165416164.html)
+- Mar 22 - [Finland is offering free vacations for people to come and learn how to be happy after being named the happiest country in the world](https://news.yahoo.com/finland-offering-free-vacations-people-164337711.html)
 <!-- feed end -->
