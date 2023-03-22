@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 22 - [Kansas could soon approve 'born alive' abortion bill](https://news.yahoo.com/kansas-could-soon-approve-born-050610590.html)
 - Mar 22 - [The Las Vegas mansion where Siegfried and Roy lived with their lions and tigers is under contract. The new owners say they want to turn it into a shrine.](https://news.yahoo.com/las-vegas-mansion-where-siegfried-033440016.html)
 - Mar 22 - [Rough waters in San Francisco during atmospheric river](https://news.yahoo.com/rough-waters-san-francisco-during-021351411.html)
 - Mar 22 - [Gwyneth Paltrow ski collision trial: Witness said the movie star crashed into the man suing her 'very hard' and 'directly in the back'](https://news.yahoo.com/gwyneth-paltrow-ski-collision-trial-015556747.html)
 - Mar 21 - [Tucker Carlson Says A 'Wounded' Trump Called Him About Those Brutal Private Texts](https://news.yahoo.com/tucker-carlson-says-trump-called-235800324.html)
-- Mar 21 - [Lucy Liu took nude photos of Drew Barrymore on set of 'Charlie's Angels' and says she 'of course' still has them](https://news.yahoo.com/lucy-liu-took-nude-photos-232958324.html)
 <!-- feed end -->
