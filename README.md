@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 22 - [These Parents Spent Their Daughter's College Fund On Their Son's Wedding — Now She's Suing Them, And It's All Very Messy](https://news.yahoo.com/parents-spent-daughters-college-fund-042701518.html)
+- Mar 22 - [What to know about new research on coffee and heart risks](https://news.yahoo.com/know-research-coffee-heart-risks-210839438.html)
+- Mar 22 - [White House says Russian pilot who ran into a US drone and broke it was, at best, 'an idiot'](https://news.yahoo.com/white-house-says-russian-pilot-202027650.html)
+- Mar 22 - [Thirty-five injured after high winds topple ship over in dry dock](https://news.yahoo.com/ship-topples-leith-dry-dock-115137037.html)
 - Mar 22 - [Blac Chyna Dissolved All Of Her Facial Fillers, And The Results Are Dramatic](https://news.yahoo.com/blac-chyna-dissolved-her-facial-191518794.html)
-- Mar 22 - [Stanford Law Dean Stands by Apology to Judge, Suspends Colleague Who Disrupted Lecture](https://news.yahoo.com/stanford-law-dean-stands-apology-191017679.html)
-- Mar 22 - [DeSantis to expand 'Don't Say Gay' law to all grades](https://news.yahoo.com/desantis-expand-law-critics-call-181937177.html)
-- Mar 22 - [GM to stop making the Camaro but a successor may be in works](https://news.yahoo.com/gm-stop-making-camaro-successor-174452199.html)
-- Mar 22 - [Americans who survived Matamoros cartel kidnapping break silence on 'nightmare' in Mexico](https://news.yahoo.com/americans-survived-matamoros-cartel-kidnapping-173321523.html)
 <!-- feed end -->
