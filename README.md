@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 22 - [The Las Vegas mansion where Siegfried and Roy lived with their lions and tigers is under contract. The new owners say they want to turn it into a shrine.](https://news.yahoo.com/las-vegas-mansion-where-siegfried-033440016.html)
 - Mar 22 - [Gwyneth Paltrow ski collision trial: Witness said the movie star crashed into the man suing her 'very hard' and 'directly in the back'](https://news.yahoo.com/gwyneth-paltrow-ski-collision-trial-015556747.html)
-- Mar 22 - [Selena Gomez spotted in wedding dress enjoying 'a regular day at work' after sharing relationship status](https://news.yahoo.com/selena-gomez-spotted-wedding-dress-001051656.html)
+- Mar 22 - ['Baywatch' alum Donna D'Errico fires back after her bikini post on social media was labeled 'raunchy'](https://news.yahoo.com/baywatch-alum-donna-derrico-fires-014731436.html)
 - Mar 21 - [Tucker Carlson Says A 'Wounded' Trump Called Him About Those Brutal Private Texts](https://news.yahoo.com/tucker-carlson-says-trump-called-235800324.html)
 - Mar 21 - [Lucy Liu took nude photos of Drew Barrymore on set of 'Charlie's Angels' and says she 'of course' still has them](https://news.yahoo.com/lucy-liu-took-nude-photos-232958324.html)
-- Mar 21 - [Man diagnosed with stage 4 colon cancer at 29 shares symptoms: 'It hit me pretty hard'](https://news.yahoo.com/man-diagnosed-stage-4-colon-231851391.html)
 <!-- feed end -->
