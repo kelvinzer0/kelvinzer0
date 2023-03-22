@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 22 - [Arizona State's Bobby Hurley included in Providence coach speculation: 'Serious candidate'](https://news.yahoo.com/arizona-states-bobby-hurley-included-153633855.html)
+- Mar 22 - [Gwyneth Paltrow ski collision trial: Witness said the movie star crashed into the man suing her 'very hard' and 'directly in the back'](https://news.yahoo.com/gwyneth-paltrow-ski-collision-trial-015556747.html)
 - Mar 22 - [Selena Gomez spotted in wedding dress enjoying 'a regular day at work' after sharing relationship status](https://news.yahoo.com/selena-gomez-spotted-wedding-dress-001051656.html)
 - Mar 21 - [Tucker Carlson Says A 'Wounded' Trump Called Him About Those Brutal Private Texts](https://news.yahoo.com/tucker-carlson-says-trump-called-235800324.html)
 - Mar 21 - [Lucy Liu took nude photos of Drew Barrymore on set of 'Charlie's Angels' and says she 'of course' still has them](https://news.yahoo.com/lucy-liu-took-nude-photos-232958324.html)
