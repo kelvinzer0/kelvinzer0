@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 22 - [Katy Perry Has Been Called Out By An “American Idol” Contestant For “Mom Shaming” Her During Her Audition After Viewers Slammed The “Offensive” Joke](https://news.yahoo.com/katy-perry-called-american-idol-124512255.html)
+- Mar 22 - [Bruce Willis' wife marks their 14th wedding anniversary amid the actor's dementia diagnosis with a sweet video of their vow renewal: 'Seize every opportunity'](https://news.yahoo.com/bruce-willis-wife-marks-14th-120549619.html)
 - Mar 22 - [Florida couple ‘terrorized’ and shot by ‘mob’ blocking road for illegal race, cops say](https://news.yahoo.com/florida-couple-terrorized-shot-mob-113255348.html)
 - Mar 22 - [Ryan Reynolds' trainer says most people shouldn't do back squats. Try these exercises for a strong body instead.](https://news.yahoo.com/ryan-reynolds-trainer-says-most-111856392.html)
-- Mar 22 - [Jennifer Aniston says she took care of Adam Sandler on the set of 'Murder Mystery 2' by giving him smoothies and Chinese herbs when he was exhausted: 'I'm like the mobile pharmacy'](https://news.yahoo.com/jennifer-aniston-says-she-took-105907931.html)
-- Mar 22 - [Ukraine-Russia war latest: Drones attack Russian fleet in Crimea port](https://news.yahoo.com/ukraine-russia-war-latest-drones-073214713.html)
-- Mar 22 - [Rep. Jim Jordan’s Judiciary Tweet Backing Donald Trump Gets A Brutal Rewrite](https://news.yahoo.com/rep-jim-jordan-judiciary-tweet-061735469.html)
+- Mar 22 - [Slovakia offered US helicopters for giving jets to Ukraine](https://news.yahoo.com/slovakia-offered-us-helicopters-giving-110443298.html)
 <!-- feed end -->
