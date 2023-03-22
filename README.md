@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 22 - [Blac Chyna Dissolved All Of Her Facial Fillers, And The Results Are Dramatic](https://news.yahoo.com/blac-chyna-dissolved-her-facial-191518794.html)
+- Mar 22 - [Stanford Law Dean Stands by Apology to Judge, Suspends Colleague Who Disrupted Lecture](https://news.yahoo.com/stanford-law-dean-stands-apology-191017679.html)
 - Mar 22 - [DeSantis to expand 'Don't Say Gay' law to all grades](https://news.yahoo.com/desantis-expand-law-critics-call-181937177.html)
 - Mar 22 - [GM to stop making the Camaro but a successor may be in works](https://news.yahoo.com/gm-stop-making-camaro-successor-174452199.html)
 - Mar 22 - [Americans who survived Matamoros cartel kidnapping break silence on 'nightmare' in Mexico](https://news.yahoo.com/americans-survived-matamoros-cartel-kidnapping-173321523.html)
-- Mar 22 - [War on gangs forges new El Salvador. But the price is steep.](https://news.yahoo.com/war-gangs-forges-el-salvador-165416164.html)
-- Mar 22 - [Finland is offering free vacations for people to come and learn how to be happy after being named the happiest country in the world](https://news.yahoo.com/finland-offering-free-vacations-people-164337711.html)
 <!-- feed end -->
