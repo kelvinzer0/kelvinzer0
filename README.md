@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 22 - [War on gangs forges new El Salvador. But the price is steep.](https://news.yahoo.com/war-gangs-forges-el-salvador-165416164.html)
 - Mar 22 - [Dozens injured after ship topples over in Scotland](https://news.yahoo.com/ship-topples-leith-dry-dock-115137037.html)
+- Mar 22 - [Gwyneth Paltrow in Utah court: Here's why she's being sued](https://news.yahoo.com/gwyneth-paltrow-utah-court-heres-164849215.html)
 - Mar 22 - [Startlingly round formation with steep, smooth sides found on seafloor off California](https://news.yahoo.com/startlingly-round-formation-steep-smooth-141125280.html)
 - Mar 22 - [Everyone is shocked, from Washington to Moscow. Two main consequences of the arrest warrant for Putin](https://news.yahoo.com/everyone-shocked-washington-moscow-two-135400687.html)
-- Mar 22 - [Transgender youth: 'Forced outing' bills make schools unsafe](https://news.yahoo.com/transgender-youth-forced-outing-bills-133956890.html)
-- Mar 22 - [SLED declares Stephen Smith's 2015 death a homicide. Mother Sandy Smith 'in shock, elated'](https://news.yahoo.com/sled-declares-stephen-smiths-2015-104231677.html)
 <!-- feed end -->
