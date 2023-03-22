@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 22 - [Katy Perry Has Been Called Out By An “American Idol” Contestant For “Mom Shaming” Her During Her Audition After Viewers Slammed The “Offensive” Joke](https://news.yahoo.com/katy-perry-called-american-idol-124512255.html)
-- Mar 22 - [Bruce Willis' wife marks their 14th wedding anniversary amid the actor's dementia diagnosis with a sweet video of their vow renewal: 'Seize every opportunity'](https://news.yahoo.com/bruce-willis-wife-marks-14th-120549619.html)
-- Mar 22 - [Florida couple ‘terrorized’ and shot by ‘mob’ blocking road for illegal race, cops say](https://news.yahoo.com/florida-couple-terrorized-shot-mob-113255348.html)
-- Mar 22 - [Ryan Reynolds' trainer says most people shouldn't do back squats. Try these exercises for a strong body instead.](https://news.yahoo.com/ryan-reynolds-trainer-says-most-111856392.html)
-- Mar 22 - [Slovakia offered US helicopters for giving jets to Ukraine](https://news.yahoo.com/slovakia-offered-us-helicopters-giving-110443298.html)
+- Mar 22 - [Dozens injured after ship topples over in Scotland](https://news.yahoo.com/ship-topples-leith-dry-dock-115137037.html)
+- Mar 22 - [SLED declares Stephen Smith's 2015 death a homicide. Mother Sandy Smith 'in shock, elated'](https://news.yahoo.com/sled-declares-stephen-smiths-2015-104231677.html)
+- Mar 22 - [Joe Scarborough Sums Up Donald Trump's State Of Mind With 4 Blunt Words](https://news.yahoo.com/joe-scarborough-sums-donald-trumps-130437590.html)
+- Mar 22 - [Trump’s Last-Ditch Effort to Derail Stormy Daniels Case Misfires](https://news.yahoo.com/trump-last-ditch-effort-derail-124715223.html)
+- Mar 22 - [Transfer of post WW2-era T-54 tanks spotted in Russia](https://news.yahoo.com/transfer-post-ww2-era-t-124700154.html)
 <!-- feed end -->
