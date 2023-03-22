@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 22 - [Trump Lawyer Torn To Shreds As He Flubs His Way Through Ari Melber Interview](https://news.yahoo.com/trump-lawyer-torn-shreds-flubs-060850521.html)
 - Mar 22 - [Marcos defends US military presence, which China opposes](https://news.yahoo.com/marcos-defends-us-military-presence-060639326.html)
 - Mar 22 - [Court Makes ‘Extraordinary’ Late Night Demands in Trump Mar-a-Lago Case](https://news.yahoo.com/court-makes-extraordinary-night-demands-040839431.html)
 - Mar 22 - [The Las Vegas mansion where Siegfried and Roy lived with their lions and tigers is under contract. The new owners say they want to turn it into a shrine.](https://news.yahoo.com/las-vegas-mansion-where-siegfried-033440016.html)
-- Mar 22 - [Rough waters in San Francisco during atmospheric river](https://news.yahoo.com/rough-waters-san-francisco-during-021351411.html)
-- Mar 22 - [Gwyneth Paltrow ski collision trial: Witness said the movie star crashed into the man suing her 'very hard' and 'directly in the back'](https://news.yahoo.com/gwyneth-paltrow-ski-collision-trial-015556747.html)
+- Mar 22 - [Arkansas restricts school bathroom use by transgender people](https://news.yahoo.com/arkansas-governor-signs-school-bathroom-022500098.html)
 <!-- feed end -->
