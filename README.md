@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 22 - [These Parents Spent Their Daughter's College Fund On Their Son's Wedding — Now She's Suing Them, And It's All Very Messy](https://news.yahoo.com/parents-spent-daughters-college-fund-042701518.html)
+- Mar 22 - [NTSB: Pilot error in crash killing diet guru Gwen Shamblin](https://news.yahoo.com/ntsb-pilot-error-crash-killing-224248406.html)
+- Mar 22 - [How to safely use iPhone Face ID without putting your security at risk](https://news.yahoo.com/safely-iphone-face-id-without-222440071.html)
+- Mar 22 - [Poll: Signature DeSantis policies unpopular with Americans ahead of likely presidential run](https://news.yahoo.com/poll-signature-desantis-policies-unpopular-with-americans-ahead-of-likely-presidential-run-220406760.html)
 - Mar 22 - [What to know about new research on coffee and heart risks](https://news.yahoo.com/know-research-coffee-heart-risks-210839438.html)
-- Mar 22 - [White House says Russian pilot who ran into a US drone and broke it was, at best, 'an idiot'](https://news.yahoo.com/white-house-says-russian-pilot-202027650.html)
-- Mar 22 - [Thirty-five injured after high winds topple ship over in dry dock](https://news.yahoo.com/ship-topples-leith-dry-dock-115137037.html)
-- Mar 22 - [Blac Chyna Dissolved All Of Her Facial Fillers, And The Results Are Dramatic](https://news.yahoo.com/blac-chyna-dissolved-her-facial-191518794.html)
+- Mar 22 - [Michigan College Set to Host Graduation Services Segregated by Race, Ethnicity, and Sexual Identity](https://news.yahoo.com/michigan-college-set-host-graduation-205504391.html)
 <!-- feed end -->
