@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 22 - [Prosecutors reveal planned Proud Boys witness was informant](https://news.yahoo.com/prosecutors-reveal-planned-proud-boys-232410959.html)
+- Mar 22 - [Israeli leader halts bill against Christian proselytizing](https://news.yahoo.com/israeli-leader-halts-bill-against-231917135.html)
+- Mar 22 - ['Never seen that happen at Yankee stadium': What happened after a Japanese fan caught Shohei Ohtani’s homerun ball](https://news.yahoo.com/never-seen-happen-yankee-stadium-224517898.html)
 - Mar 22 - [NTSB: Pilot error in crash killing diet guru Gwen Shamblin](https://news.yahoo.com/ntsb-pilot-error-crash-killing-224248406.html)
-- Mar 22 - [How to safely use iPhone Face ID without putting your security at risk](https://news.yahoo.com/safely-iphone-face-id-without-222440071.html)
 - Mar 22 - [Poll: Signature DeSantis policies unpopular with Americans ahead of likely presidential run](https://news.yahoo.com/poll-signature-desantis-policies-unpopular-with-americans-ahead-of-likely-presidential-run-220406760.html)
-- Mar 22 - [What to know about new research on coffee and heart risks](https://news.yahoo.com/know-research-coffee-heart-risks-210839438.html)
-- Mar 22 - [Michigan College Set to Host Graduation Services Segregated by Race, Ethnicity, and Sexual Identity](https://news.yahoo.com/michigan-college-set-host-graduation-205504391.html)
 <!-- feed end -->
