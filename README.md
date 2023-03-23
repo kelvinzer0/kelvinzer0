@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Mar 23 - [After calling the Russia-Ukraine war a 'territorial dispute,' DeSantis says Putin is a 'war criminal' and 'basically a gas station with a bunch of nuclear weapons'](https://news.yahoo.com/calling-russia-ukraine-war-territorial-004054365.html)
 - Mar 22 - [Prosecutors reveal planned Proud Boys witness was informant](https://news.yahoo.com/prosecutors-reveal-planned-proud-boys-232410959.html)
 - Mar 22 - [Israeli leader halts bill against Christian proselytizing](https://news.yahoo.com/israeli-leader-halts-bill-against-231917135.html)
-- Mar 22 - ['Never seen that happen at Yankee stadium': What happened after a Japanese fan caught Shohei Ohtani’s homerun ball](https://news.yahoo.com/never-seen-happen-yankee-stadium-224517898.html)
+- Mar 22 - [Brian Dutcher's Aztecs meeting March Madness expectations](https://news.yahoo.com/brian-dutchers-aztecs-meeting-march-224816087.html)
 <!-- feed end -->
