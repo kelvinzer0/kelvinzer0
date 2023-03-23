@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 23 - [Video shows moment teacher sucked out of classroom during rare California tornado](https://news.yahoo.com/video-shows-moment-teacher-sucked-160411213.html)
-- Mar 23 - [Another California reservoir just spilled for the first time in decades](https://news.yahoo.com/another-california-reservoir-just-spilled-154606788.html)
-- Mar 23 - [‘Such a sweet boy.’ SC rescue dog holds new mom’s hand on way home from shelter in viral video](https://news.yahoo.com/sweet-boy-sc-rescue-dog-150114018.html)
-- Mar 23 - [Trump mocks calls for his supporters to stay 'peaceful' and falsely claims that 'this is the Gestapo' in all-caps rant](https://news.yahoo.com/trump-mocks-calls-supporters-stay-150047785.html)
-- Mar 23 - [South Carolina comptroller to resign after $3.5B error](https://news.yahoo.com/south-carolina-comptroller-resign-3-144920415.html)
+- Mar 23 - [Trump calls for removal of every top official investigating him](https://news.yahoo.com/trump-calls-removal-every-top-170044983.html)
+- Mar 23 - [SpaceX's Upgraded Starlink Satellites Aren't Doing So Well](https://news.yahoo.com/spacexs-upgraded-starlink-satellites-arent-165500015.html)
+- Mar 23 - [Reggie Jackson Reveals Greatest Regret About Sleeping Around In His Heyday](https://news.yahoo.com/reggie-jackson-reveals-greatest-regret-164554754.html)
+- Mar 23 - [DeSantis opens up for the first time about 'shattering' death of his sister, Christina, at age 30](https://news.yahoo.com/desantis-opens-first-time-shattering-164134632.html)
+- Mar 23 - [A TikToker said she ran into Amanda Bynes days before she was hospitalized. The clip has blown up, leading to a wave of support for the actor.](https://news.yahoo.com/tiktoker-said-she-ran-amanda-163409069.html)
 <!-- feed end -->
