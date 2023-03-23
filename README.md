@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 23 - [Manhattan DA rejects GOP demand for info on Trump case](https://news.yahoo.com/manhattan-da-rejects-gop-demand-153947547.html)
+- Mar 23 - [‘Such a sweet boy.’ SC rescue dog holds new mom’s hand on way home from shelter in viral video](https://news.yahoo.com/sweet-boy-sc-rescue-dog-150114018.html)
+- Mar 23 - [Trump mocks calls for his supporters to stay 'peaceful' and falsely claims that 'this is the Gestapo' in all-caps rant](https://news.yahoo.com/trump-mocks-calls-supporters-stay-150047785.html)
 - Mar 23 - [South Carolina comptroller to resign after $3.5B error](https://news.yahoo.com/south-carolina-comptroller-resign-3-144920415.html)
-- Mar 23 - [Adam Sandler crashed Jennifer Aniston's interview on 'Live with Kelly and Ryan' after sneaking into the audience](https://news.yahoo.com/adam-sandler-crashed-jennifer-anistons-131852926.html)
-- Mar 23 - [In Memphis, Car Seizures Are a Lucrative and Punishing Police Tactic](https://news.yahoo.com/memphis-car-seizures-lucrative-punishing-123717380.html)
-- Mar 23 - [Xi snubbed Putin after their summit, calling a meeting of Central Asian countries as part of an audacious power play](https://news.yahoo.com/xi-snubbed-putin-summit-calling-123050319.html)
-- Mar 23 - [Los Angeles date night goes sideways when armed man sneaks up behind couple with gun drawn: 'We're all fed up'](https://news.yahoo.com/los-angeles-date-night-goes-120549285.html)
+- Mar 23 - [Matt Damon says he and Ben Affleck survived as struggling actors by using a shared bank account they opened in high school](https://news.yahoo.com/matt-damon-says-ben-affleck-142255825.html)
 <!-- feed end -->
