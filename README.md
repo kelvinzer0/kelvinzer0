@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 23 - [South Carolina comptroller to resign after $3.5B error](https://news.yahoo.com/south-carolina-comptroller-resign-3-144920415.html)
+- Mar 23 - [Adam Sandler crashed Jennifer Aniston's interview on 'Live with Kelly and Ryan' after sneaking into the audience](https://news.yahoo.com/adam-sandler-crashed-jennifer-anistons-131852926.html)
+- Mar 23 - [In Memphis, Car Seizures Are a Lucrative and Punishing Police Tactic](https://news.yahoo.com/memphis-car-seizures-lucrative-punishing-123717380.html)
 - Mar 23 - [Xi snubbed Putin after their summit, calling a meeting of Central Asian countries as part of an audacious power play](https://news.yahoo.com/xi-snubbed-putin-summit-calling-123050319.html)
-- Mar 23 - [A nuclear physicist describes 7 things you probably didn't know about radioactive fallout from a nuclear bomb](https://news.yahoo.com/nuclear-physicist-describes-7-things-120000429.html)
-- Mar 23 - [Ben Affleck says he's 'kind of disturbed' by how much Jennifer Lopez loves 'Yellowstone' toxic romance between Beth and Rip](https://news.yahoo.com/ben-affleck-says-hes-kind-114803883.html)
-- Mar 23 - [Coldplay's Chris Martin only eats one meal a day so he can look like Bruce Springsteen: 'Bruce looks even more in shape than me'](https://news.yahoo.com/coldplays-chris-martin-only-eats-110708636.html)
-- Mar 23 - [Half-naked woman attacks Ga. deputies, urinates in patrol car, officials say](https://news.yahoo.com/half-naked-woman-attacks-ga-094034666.html)
+- Mar 23 - [Los Angeles date night goes sideways when armed man sneaks up behind couple with gun drawn: 'We're all fed up'](https://news.yahoo.com/los-angeles-date-night-goes-120549285.html)
 <!-- feed end -->
