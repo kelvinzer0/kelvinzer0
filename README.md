@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 23 - [‘I failed’: WEEI producer suspended after using ethnic slur to describe ESPN journalist](https://news.yahoo.com/failed-weei-producer-suspended-using-121431750.html)
-- Mar 23 - [Rahul Gandhi: India's Congress leader sentenced to jail for Modi 'thieves' remark](https://news.yahoo.com/rahul-gandhi-two-jail-indias-062255888.html)
-- Mar 23 - [Gastro Doctors Share The 1 Food They Never (Or Rarely) Eat](https://news.yahoo.com/gastro-doctors-share-1-food-094502442.html)
+- Mar 23 - [A nuclear physicist describes 7 things you probably didn't know about radioactive fallout from a nuclear bomb](https://news.yahoo.com/nuclear-physicist-describes-7-things-120000429.html)
+- Mar 23 - [Ben Affleck says he's 'kind of disturbed' by how much Jennifer Lopez loves 'Yellowstone' toxic romance between Beth and Rip](https://news.yahoo.com/ben-affleck-says-hes-kind-114803883.html)
+- Mar 23 - [Coldplay's Chris Martin only eats one meal a day so he can look like Bruce Springsteen: 'Bruce looks even more in shape than me'](https://news.yahoo.com/coldplays-chris-martin-only-eats-110708636.html)
 - Mar 23 - [Half-naked woman attacks Ga. deputies, urinates in patrol car, officials say](https://news.yahoo.com/half-naked-woman-attacks-ga-094034666.html)
 - Mar 23 - [Witnesses Unravel the Chinese Mass Murder Mystery That Could Ruin Putin](https://news.yahoo.com/witnesses-unravel-chinese-mass-murder-085649436.html)
 <!-- feed end -->
