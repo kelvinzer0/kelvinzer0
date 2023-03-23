@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 23 - [Blac Chyna Dissolved All Of Her Facial Fillers, And The Results Are Dramatic](https://news.yahoo.com/blac-chyna-dissolved-her-facial-191518794.html)
+- Mar 23 - [TikTok CEO pressed in House hearing over whether the Chinese parent ByteDance can access user data](https://news.yahoo.com/tiktok-ceo-pressed-house-hearing-182329433.html)
+- Mar 23 - [Boater stops to use restroom in Florida yard — and thousands have seen the video, cops say](https://news.yahoo.com/boater-stops-restroom-florida-yard-175559762.html)
 - Mar 23 - [Trump calls for removal of every top official investigating him](https://news.yahoo.com/trump-calls-removal-every-top-170044983.html)
-- Mar 23 - [SpaceX's Upgraded Starlink Satellites Aren't Doing So Well](https://news.yahoo.com/spacexs-upgraded-starlink-satellites-arent-165500015.html)
 - Mar 23 - [Reggie Jackson Reveals Greatest Regret About Sleeping Around In His Heyday](https://news.yahoo.com/reggie-jackson-reveals-greatest-regret-164554754.html)
-- Mar 23 - [DeSantis opens up for the first time about 'shattering' death of his sister, Christina, at age 30](https://news.yahoo.com/desantis-opens-first-time-shattering-164134632.html)
-- Mar 23 - [A TikToker said she ran into Amanda Bynes days before she was hospitalized. The clip has blown up, leading to a wave of support for the actor.](https://news.yahoo.com/tiktoker-said-she-ran-amanda-163409069.html)
 <!-- feed end -->
