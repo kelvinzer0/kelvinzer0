@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 23 - [Gen Z'ers Only Have An 8% Chance Of Knowing All 12 Of These Millennial Celebrities](https://news.yahoo.com/gen-zers-only-8-chance-204905134.html)
+- Mar 23 - [Rap artist Afroman sued by officers who raided his home](https://news.yahoo.com/rap-artist-afroman-sued-officers-204926774.html)
 - Mar 23 - [Missing radio host Jeffrey Vandergrift found dead in San Francisco](https://news.yahoo.com/missing-radio-host-jeffrey-vandergrift-195704619.html)
+- Mar 23 - [Names, photos of Los Angeles undercover police posted online](https://news.yahoo.com/names-photos-los-angeles-undercover-193314862.html)
 - Mar 23 - [Rioter charged in Pelosi laptop theft sentenced to prison](https://news.yahoo.com/rioter-charged-pelosi-laptop-theft-191525424.html)
 - Mar 23 - [A surrogate has given birth to 7 babies, including 4 for other families. She has no plans to stop.](https://news.yahoo.com/surrogate-given-birth-7-babies-190224265.html)
-- Mar 23 - [Putin’s shattered army will never recover](https://news.yahoo.com/putin-shattered-army-never-recover-190000389.html)
 <!-- feed end -->
