@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 23 - [Oversight panel distances from Gaetz, Greene push to bring Tara Reade for interview](https://news.yahoo.com/oversight-panel-distances-gaetz-greene-012600638.html)
+- Mar 23 - [After calling the Russia-Ukraine war a 'territorial dispute,' DeSantis says Putin is a 'war criminal' and 'basically a gas station with a bunch of nuclear weapons'](https://news.yahoo.com/calling-russia-ukraine-war-territorial-004054365.html)
 - Mar 22 - [Prosecutors reveal planned Proud Boys witness was informant](https://news.yahoo.com/prosecutors-reveal-planned-proud-boys-232410959.html)
 - Mar 22 - [Israeli leader halts bill against Christian proselytizing](https://news.yahoo.com/israeli-leader-halts-bill-against-231917135.html)
 - Mar 22 - ['Never seen that happen at Yankee stadium': What happened after a Japanese fan caught Shohei Ohtani’s homerun ball](https://news.yahoo.com/never-seen-happen-yankee-stadium-224517898.html)
-- Mar 22 - [NTSB: Pilot error in crash killing diet guru Gwen Shamblin](https://news.yahoo.com/ntsb-pilot-error-crash-killing-224248406.html)
-- Mar 22 - [Poll: Signature DeSantis policies unpopular with Americans ahead of likely presidential run](https://news.yahoo.com/poll-signature-desantis-policies-unpopular-with-americans-ahead-of-likely-presidential-run-220406760.html)
 <!-- feed end -->
