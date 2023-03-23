@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 23 - [Gen Z'ers Only Have An 8% Chance Of Knowing All 12 Of These Millennial Celebrities](https://news.yahoo.com/gen-zers-only-8-chance-204905134.html)
+- Mar 23 - [Missing radio host Jeffrey Vandergrift found dead in San Francisco](https://news.yahoo.com/missing-radio-host-jeffrey-vandergrift-195704619.html)
 - Mar 23 - [Rioter charged in Pelosi laptop theft sentenced to prison](https://news.yahoo.com/rioter-charged-pelosi-laptop-theft-191525424.html)
 - Mar 23 - [A surrogate has given birth to 7 babies, including 4 for other families. She has no plans to stop.](https://news.yahoo.com/surrogate-given-birth-7-babies-190224265.html)
 - Mar 23 - [Putin’s shattered army will never recover](https://news.yahoo.com/putin-shattered-army-never-recover-190000389.html)
-- Mar 23 - [Blac Chyna Dissolved All Of Her Facial Fillers, And The Results Are Dramatic](https://news.yahoo.com/blac-chyna-dissolved-her-facial-191518794.html)
-- Mar 23 - [Report Signals Humiliating End for Russia’s Shadow Army in Ukraine](https://news.yahoo.com/report-signals-humiliating-end-russia-182031681.html)
 <!-- feed end -->
