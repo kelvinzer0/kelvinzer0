@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 23 - [Manhattan DA rejects GOP demand for info on Trump case](https://news.yahoo.com/manhattan-da-rejects-gop-demand-153947547.html)
+- Mar 23 - [Video shows moment teacher sucked out of classroom during rare California tornado](https://news.yahoo.com/video-shows-moment-teacher-sucked-160411213.html)
+- Mar 23 - [Another California reservoir just spilled for the first time in decades](https://news.yahoo.com/another-california-reservoir-just-spilled-154606788.html)
 - Mar 23 - [‘Such a sweet boy.’ SC rescue dog holds new mom’s hand on way home from shelter in viral video](https://news.yahoo.com/sweet-boy-sc-rescue-dog-150114018.html)
 - Mar 23 - [Trump mocks calls for his supporters to stay 'peaceful' and falsely claims that 'this is the Gestapo' in all-caps rant](https://news.yahoo.com/trump-mocks-calls-supporters-stay-150047785.html)
 - Mar 23 - [South Carolina comptroller to resign after $3.5B error](https://news.yahoo.com/south-carolina-comptroller-resign-3-144920415.html)
-- Mar 23 - [Matt Damon says he and Ben Affleck survived as struggling actors by using a shared bank account they opened in high school](https://news.yahoo.com/matt-damon-says-ben-affleck-142255825.html)
 <!-- feed end -->
