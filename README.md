@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 23 - [‘I failed’: WEEI producer suspended after using ethnic slur to describe ESPN journalist](https://news.yahoo.com/failed-weei-producer-suspended-using-121431750.html)
+- Mar 23 - [Rahul Gandhi: India's Congress leader sentenced to jail for Modi 'thieves' remark](https://news.yahoo.com/rahul-gandhi-two-jail-indias-062255888.html)
+- Mar 23 - [Gastro Doctors Share The 1 Food They Never (Or Rarely) Eat](https://news.yahoo.com/gastro-doctors-share-1-food-094502442.html)
+- Mar 23 - [Half-naked woman attacks Ga. deputies, urinates in patrol car, officials say](https://news.yahoo.com/half-naked-woman-attacks-ga-094034666.html)
 - Mar 23 - [Witnesses Unravel the Chinese Mass Murder Mystery That Could Ruin Putin](https://news.yahoo.com/witnesses-unravel-chinese-mass-murder-085649436.html)
-- Mar 23 - [Tucker Carlson Mocked After Delivering Most Epic Self-Own Of All Time](https://news.yahoo.com/tucker-carlson-mocked-delivering-most-081946406.html)
-- Mar 23 - [Jordan Klepper Has A Truly Weird Experience At World's Saddest Pro-Trump Rally](https://news.yahoo.com/jordan-klepper-truly-weird-experience-045512444.html)
-- Mar 23 - [Laura Ingraham Offers Trump Some Campaign Advice That He Definitely Won't Like](https://news.yahoo.com/laura-ingraham-offers-trump-campaign-045208788.html)
-- Mar 23 - [A look at the uranium-based ammo the UK will send to Ukraine](https://news.yahoo.com/look-uranium-based-ammo-uk-040550202.html)
 <!-- feed end -->
