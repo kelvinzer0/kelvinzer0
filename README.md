@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 23 - [US denies Chinese claim it drove away American destroyer](https://news.yahoo.com/us-denies-chinese-claim-drove-083433036.html)
+- Mar 23 - [Jordan Klepper Has A Truly Weird Experience At World's Saddest Pro-Trump Rally](https://news.yahoo.com/jordan-klepper-truly-weird-experience-045512444.html)
 - Mar 23 - [Donald Trump's fans sent him $1.5 million in 3 days after he falsely claimed that he'd get arrested on Tuesday](https://news.yahoo.com/donald-trumps-fans-sent-him-041538634.html)
 - Mar 23 - [A look at the uranium-based ammo the UK will send to Ukraine](https://news.yahoo.com/look-uranium-based-ammo-uk-040550202.html)
 - Mar 23 - [Houston teen accused of paralyzing woman in 'jugging' robbery has $200,000 bond cut in half](https://news.yahoo.com/houston-teen-accused-paralyzing-woman-023526156.html)
-- Mar 23 - [Oversight panel distances from Gaetz, Greene push to bring Tara Reade for interview](https://news.yahoo.com/oversight-panel-distances-gaetz-greene-012600638.html)
-- Mar 23 - [Florida teacher accused of sexual relationship with student had received multiple warnings before](https://news.yahoo.com/florida-teacher-accused-sexual-relationship-012544566.html)
 <!-- feed end -->
