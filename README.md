@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 23 - [Donald Trump's fans sent him $1.5 million in 3 days after he falsely claimed that he'd get arrested on Tuesday](https://news.yahoo.com/donald-trumps-fans-sent-him-041538634.html)
 - Mar 23 - [A look at the uranium-based ammo the UK will send to Ukraine](https://news.yahoo.com/look-uranium-based-ammo-uk-040550202.html)
+- Mar 23 - [Houston teen accused of paralyzing woman in 'jugging' robbery has $200,000 bond cut in half](https://news.yahoo.com/houston-teen-accused-paralyzing-woman-023526156.html)
 - Mar 23 - [Oversight panel distances from Gaetz, Greene push to bring Tara Reade for interview](https://news.yahoo.com/oversight-panel-distances-gaetz-greene-012600638.html)
 - Mar 23 - [Florida teacher accused of sexual relationship with student had received multiple warnings before](https://news.yahoo.com/florida-teacher-accused-sexual-relationship-012544566.html)
-- Mar 23 - [After calling the Russia-Ukraine war a 'territorial dispute,' DeSantis says Putin is a 'war criminal' and 'basically a gas station with a bunch of nuclear weapons'](https://news.yahoo.com/calling-russia-ukraine-war-territorial-004054365.html)
-- Mar 22 - [Prosecutors reveal planned Proud Boys witness was informant](https://news.yahoo.com/prosecutors-reveal-planned-proud-boys-232410959.html)
 <!-- feed end -->
