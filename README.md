@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - [Elderly Ukrainian helicopters pummel Russians from afar](https://news.yahoo.com/elderly-ukrainian-helicopters-pummel-russians-072158302.html)
 - Mar 24 - [China threatens consequences over US warship's actions](https://news.yahoo.com/china-threatens-consequences-over-us-063847358.html)
 - Mar 24 - [Sex trafficking plea deal unending 'nightmare' for Texas mom](https://news.yahoo.com/sex-trafficking-plea-deal-unending-052748647.html)
 - Mar 24 - ['Daily Show' Guest Host Al Franken Gives Susan Collins A Blunt Reminder Of Her Failure](https://news.yahoo.com/daily-show-guest-host-al-033152667.html)
-- Mar 24 - [Drone strike kills US contractor in Syria; US retaliates](https://news.yahoo.com/drone-strike-kills-us-contractor-030027923.html)
-- Mar 24 - [Louisiana women wanted for prostitution now sought in connection to death of Georgia man found wrapped in rug](https://news.yahoo.com/louisiana-women-wanted-prostitution-now-015028029.html)
+- Mar 24 - [Suspected Iran drone kills US worker in Syria; US retaliates](https://news.yahoo.com/drone-strike-kills-us-contractor-030027923.html)
 <!-- feed end -->
