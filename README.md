@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - [Russians starting to evacuate from occupied Crimea, says Ukrainian intelligence](https://news.yahoo.com/russians-starting-evacuate-occupied-crimea-151500970.html)
+- Mar 24 - [Alvin Bragg may have been asked to delay Trump charges: John Dean](https://news.yahoo.com/alvin-bragg-may-asked-delay-145828869.html)
+- Mar 24 - [Kentucky governor vetoes sweeping GOP transgender measure](https://news.yahoo.com/kentucky-governor-vetoes-sweeping-gop-145352766.html)
+- Mar 24 - [Gwyneth Paltrow barred from bringing ‘treats’ into court](https://news.yahoo.com/gwyneth-paltrow-barred-bringing-treats-144330730.html)
 - Mar 24 - [Colorado wife whose husband allegedly poisoned her protein shakes is remembered for 'heroic struggle'](https://news.yahoo.com/colorado-wife-whose-husband-allegedly-132949190.html)
-- Mar 24 - [Reaction to bronze sculpture of Coretta and Martin Luther King Jr. in Boston hasn't been good – and that's not bad for art that shatters conventions](https://news.yahoo.com/reaction-bronze-sculpture-coretta-martin-123705824.html)
-- Mar 24 - [I Had One Of The Biggest Hits Of 1992. Then I Came Out As Omnisexual.](https://news.yahoo.com/had-one-biggest-hits-1992-123008968.html)
-- Mar 24 - [South Africa must arrest Vladimir Putin](https://news.yahoo.com/south-africa-must-arrest-vladimir-122916042.html)
-- Mar 24 - [Police involved after Memphis women's basketball player hits Bowling Green foe in handshake line](https://news.yahoo.com/memphis-womens-basketball-wnit-loss-053730166.html)
 <!-- feed end -->
