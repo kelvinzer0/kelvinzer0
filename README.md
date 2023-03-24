@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Mar 24 - [Elderly Ukrainian helicopters pummel Russians from afar](https://news.yahoo.com/elderly-ukrainian-helicopters-pummel-russians-072158302.html)
 - Mar 24 - [China threatens consequences over US warship's actions](https://news.yahoo.com/china-threatens-consequences-over-us-063847358.html)
 - Mar 24 - [Jimmy Kimmel Spots The Surest Sign Trump Is In Full-Blown Panic Mode](https://news.yahoo.com/jimmy-kimmel-spots-surest-sign-060857439.html)
+- Mar 24 - [Florida spring break partiers see Miami mayhem while Fort Lauderdale avoids chaos](https://news.yahoo.com/florida-spring-break-partiers-see-060052661.html)
 - Mar 24 - [Sex trafficking plea deal unending 'nightmare' for Texas mom](https://news.yahoo.com/sex-trafficking-plea-deal-unending-052748647.html)
-- Mar 24 - ['Daily Show' Guest Host Al Franken Gives Susan Collins A Blunt Reminder Of Her Failure](https://news.yahoo.com/daily-show-guest-host-al-033152667.html)
 <!-- feed end -->
