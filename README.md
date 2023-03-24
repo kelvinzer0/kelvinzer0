@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - [Ron DeSantis Is Asked If He'd Be Donald Trump's Vice President. His Answer Is Telling.](https://news.yahoo.com/ron-desantis-asked-hed-donald-114540169.html)
+- Mar 24 - [Florida Republican Will Robinson Jr. Tricked Into Reading Fake Dirty Names At Committee Meeting](https://news.yahoo.com/florida-republican-robinson-jr-tricked-105735834.html)
+- Mar 24 - [Jane Fonda says Jennifer Lopez 'never apologized' after accidentally cutting her eyebrow while filming 'Monster-in-Law' slap](https://news.yahoo.com/jane-fonda-says-jennifer-lopez-105125484.html)
 - Mar 24 - [Elderly Ukrainian helicopters pummel Russians from afar](https://news.yahoo.com/elderly-ukrainian-helicopters-pummel-russians-072158302.html)
-- Mar 24 - [Trump says there could be 'death & destruction' if he's indicted in New York](https://news.yahoo.com/trump-says-could-death-destruction-065302386.html)
-- Mar 24 - [China threatens consequences over US warship's actions](https://news.yahoo.com/china-threatens-consequences-over-us-063847358.html)
-- Mar 24 - [Jimmy Kimmel Spots The Surest Sign Trump Is In Full-Blown Panic Mode](https://news.yahoo.com/jimmy-kimmel-spots-surest-sign-060857439.html)
-- Mar 24 - [Florida spring break partiers see Miami mayhem while Fort Lauderdale avoids chaos](https://news.yahoo.com/florida-spring-break-partiers-see-060052661.html)
+- Mar 24 - [Texas Newspaper Shreds Donald Trump’s Plan For Rally In Waco](https://news.yahoo.com/texas-newspaper-shreds-donald-trump-071523441.html)
 <!-- feed end -->
