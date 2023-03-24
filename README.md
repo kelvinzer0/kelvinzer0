@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - [Sex trafficking plea deal unending 'nightmare' for Texas mom](https://news.yahoo.com/sex-trafficking-plea-deal-unending-052748647.html)
 - Mar 24 - ['Daily Show' Guest Host Al Franken Gives Susan Collins A Blunt Reminder Of Her Failure](https://news.yahoo.com/daily-show-guest-host-al-033152667.html)
 - Mar 24 - [Drone strike kills US contractor in Syria; US retaliates](https://news.yahoo.com/drone-strike-kills-us-contractor-030027923.html)
+- Mar 24 - [Louisiana women wanted for prostitution now sought in connection to death of Georgia man found wrapped in rug](https://news.yahoo.com/louisiana-women-wanted-prostitution-now-015028029.html)
 - Mar 24 - [Unearthed footage from 2018 shows Trump's current lawyer saying the Stormy Daniels hush-money payment could be a 'real problem' for Trump](https://news.yahoo.com/unearthed-footage-2018-shows-trumps-011630877.html)
-- Mar 23 - [Senate Ethics admonishes Graham for campaign solicitations](https://news.yahoo.com/senate-ethics-admonishes-graham-campaign-231018496.html)
-- Mar 23 - [Illinois father arrested and facing charges for allegedly sexually abusing, battering his own child](https://news.yahoo.com/illinois-father-arrested-facing-charges-224728885.html)
 <!-- feed end -->
