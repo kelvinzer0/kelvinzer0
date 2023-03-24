@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - [Memphis basketball's Jamirah Shutes charged with assault after punch in WNIT handshake line](https://news.yahoo.com/memphis-basketballs-jamirah-shutes-charged-173539109.html)
+- Mar 24 - [‘Everybody’s dropping like flies’: Federal ‘tranq’ warning follows escalating concerns in Mass.](https://news.yahoo.com/everybody-dropping-flies-federal-tranq-024953548.html)
+- Mar 24 - [Kim Jong-un’s daughter spotted in $2,800 Dior jacket as N. Korea suffers extreme poverty, starvation](https://news.yahoo.com/kim-jong-un-daughter-spotted-182707318.html)
+- Mar 24 - [I’m a doctor. Here’s how I lost 100 pounds in my 50s — and kept it off](https://news.yahoo.com/doctor-lost-100-pounds-her-221807736.html)
 - Mar 24 - [GOP Rep. Jim Jordan says he can't comment on Trump's post threatening violence because he's unable to read it without his glasses](https://news.yahoo.com/gop-rep-jim-jordan-says-173202624.html)
-- Mar 24 - [Michigan 1st state in decades to repeal 'right-to-work' law](https://news.yahoo.com/michigan-1st-state-decades-repeal-171647306.html)
-- Mar 24 - [Report: No turbulence during fatal business jet flight](https://news.yahoo.com/report-no-turbulence-during-fatal-170933325.html)
-- Mar 24 - [Police involved after Memphis women's basketball's Jamirah Shutes hits Bowling Green foe in handshake line](https://news.yahoo.com/memphis-womens-basketball-wnit-loss-053730166.html)
-- Mar 24 - [Deion Sanders Humiliates His Son In Bench Press And Makes The Coolest Exit](https://news.yahoo.com/deion-sanders-humiliates-son-bench-165717868.html)
 <!-- feed end -->
