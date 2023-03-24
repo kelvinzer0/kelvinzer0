@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 24 - [Memphis basketball's Jamirah Shutes charged with assault after punch in WNIT handshake line](https://news.yahoo.com/memphis-basketballs-jamirah-shutes-charged-173539109.html)
+- Mar 24 - [Gwyneth Paltrow trial: Mystery surrounds 'I'm famous' message sent by accuser after ski crash](https://news.yahoo.com/gwyneth-paltrow-barred-bringing-treats-144330730.html)
+- Mar 24 - [Tom Sandoval Defends Raquel And Fights With Ariana In The Latest Episode Of "Vanderpump Rules"](https://news.yahoo.com/tom-sandoval-defends-raquel-fights-203421773.html)
 - Mar 24 - [‘Everybody’s dropping like flies’: Federal ‘tranq’ warning follows escalating concerns in Mass.](https://news.yahoo.com/everybody-dropping-flies-federal-tranq-024953548.html)
 - Mar 24 - [Kim Jong-un’s daughter spotted in $2,800 Dior jacket as N. Korea suffers extreme poverty, starvation](https://news.yahoo.com/kim-jong-un-daughter-spotted-182707318.html)
-- Mar 24 - [I’m a doctor. Here’s how I lost 100 pounds in my 50s — and kept it off](https://news.yahoo.com/doctor-lost-100-pounds-her-221807736.html)
-- Mar 24 - [GOP Rep. Jim Jordan says he can't comment on Trump's post threatening violence because he's unable to read it without his glasses](https://news.yahoo.com/gop-rep-jim-jordan-says-173202624.html)
+- Mar 24 - [Woman Who Drove 150 Miles to Torch Abortion Clinic Says It Was Giving Her 'Nightmares'](https://news.yahoo.com/woman-drove-150-miles-torch-182500178.html)
 <!-- feed end -->
