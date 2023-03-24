@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - [South Africa must arrest Vladimir Putin](https://news.yahoo.com/south-africa-must-arrest-vladimir-122916042.html)
+- Mar 24 - [Police involved after Memphis women's basketball player hits Bowling Green foe in handshake line](https://news.yahoo.com/memphis-womens-basketball-wnit-loss-053730166.html)
 - Mar 24 - [Ron DeSantis Is Asked If He'd Be Donald Trump's Vice President. His Answer Is Telling.](https://news.yahoo.com/ron-desantis-asked-hed-donald-114540169.html)
 - Mar 24 - [Florida Republican Will Robinson Jr. Tricked Into Reading Fake Dirty Names At Committee Meeting](https://news.yahoo.com/florida-republican-robinson-jr-tricked-105735834.html)
 - Mar 24 - [Jane Fonda says Jennifer Lopez 'never apologized' after accidentally cutting her eyebrow while filming 'Monster-in-Law' slap](https://news.yahoo.com/jane-fonda-says-jennifer-lopez-105125484.html)
-- Mar 24 - [Elderly Ukrainian helicopters pummel Russians from afar](https://news.yahoo.com/elderly-ukrainian-helicopters-pummel-russians-072158302.html)
-- Mar 24 - [Texas Newspaper Shreds Donald Trump’s Plan For Rally In Waco](https://news.yahoo.com/texas-newspaper-shreds-donald-trump-071523441.html)
 <!-- feed end -->
