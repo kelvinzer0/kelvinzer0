@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 23 - [Baton Rouge police now searching for 2 suspected prostitutes in connection to Nathan Millard’s death](https://news.yahoo.com/baton-rouge-police-now-searching-220622480.html)
+- Mar 23 - [Family spots ‘massive’ octopus struggling in muddy shoreline of WA bay, video shows](https://news.yahoo.com/family-spots-massive-octopus-struggling-233351853.html)
+- Mar 23 - [Senate Ethics admonishes Graham for campaign solicitations](https://news.yahoo.com/senate-ethics-admonishes-graham-campaign-231018496.html)
 - Mar 23 - [Rap artist Afroman sued by officers who raided his home](https://news.yahoo.com/rap-artist-afroman-sued-officers-204926774.html)
-- Mar 23 - [Missing radio host Jeffrey Vandergrift found dead in San Francisco](https://news.yahoo.com/missing-radio-host-jeffrey-vandergrift-195704619.html)
 - Mar 23 - [Names, photos of Los Angeles undercover police posted online](https://news.yahoo.com/names-photos-los-angeles-undercover-193314862.html)
 - Mar 23 - [Rioter charged in Pelosi laptop theft sentenced to prison](https://news.yahoo.com/rioter-charged-pelosi-laptop-theft-191525424.html)
 <!-- feed end -->
