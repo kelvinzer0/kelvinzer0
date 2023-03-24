@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - [GOP Rep. Jim Jordan says he can't comment on Trump's post threatening violence because he's unable to read it without his glasses](https://news.yahoo.com/gop-rep-jim-jordan-says-173202624.html)
+- Mar 24 - [Michigan 1st state in decades to repeal 'right-to-work' law](https://news.yahoo.com/michigan-1st-state-decades-repeal-171647306.html)
 - Mar 24 - [Report: No turbulence during fatal business jet flight](https://news.yahoo.com/report-no-turbulence-during-fatal-170933325.html)
-- Mar 24 - [Joe Biden angry with Kamala Harris for ‘not taking enough off his plate’](https://news.yahoo.com/joe-biden-angry-kamala-harris-170026816.html)
 - Mar 24 - [Police involved after Memphis women's basketball's Jamirah Shutes hits Bowling Green foe in handshake line](https://news.yahoo.com/memphis-womens-basketball-wnit-loss-053730166.html)
 - Mar 24 - [Deion Sanders Humiliates His Son In Bench Press And Makes The Coolest Exit](https://news.yahoo.com/deion-sanders-humiliates-son-bench-165717868.html)
-- Mar 24 - [Japanese woman claims her husband played sex tape of her and ex-husband at stepdaughter’s wedding](https://news.yahoo.com/japanese-woman-claims-her-husband-161844178.html)
 <!-- feed end -->
