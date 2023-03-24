@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - ['Daily Show' Guest Host Al Franken Gives Susan Collins A Blunt Reminder Of Her Failure](https://news.yahoo.com/daily-show-guest-host-al-033152667.html)
+- Mar 24 - [Drone strike kills US contractor in Syria; US retaliates](https://news.yahoo.com/drone-strike-kills-us-contractor-030027923.html)
+- Mar 24 - [Unearthed footage from 2018 shows Trump's defense lawyer saying the Stormy Daniels hush-money payment could be a 'real problem' for Trump](https://news.yahoo.com/unearthed-footage-2018-shows-trumps-011630877.html)
 - Mar 23 - [Senate Ethics admonishes Graham for campaign solicitations](https://news.yahoo.com/senate-ethics-admonishes-graham-campaign-231018496.html)
-- Mar 23 - [Gwyneth Paltrow's ex Chris Martin admits he skips dinner after she came under fire for 'starvation diet'](https://news.yahoo.com/gwyneth-paltrows-ex-chris-martin-214811585.html)
-- Mar 23 - [Child actor singing ‘Happy Birthday’ in Filipino on 'Barney' 3 decades ago has left an indelible impression](https://news.yahoo.com/child-actor-singing-happy-birthday-210859294.html)
-- Mar 23 - [Rap artist Afroman sued by officers who raided his home](https://news.yahoo.com/rap-artist-afroman-sued-officers-204926774.html)
-- Mar 23 - [Missing radio host Jeffrey Vandergrift found dead in San Francisco](https://news.yahoo.com/missing-radio-host-jeffrey-vandergrift-195704619.html)
+- Mar 23 - [Illinois father arrested and facing charges for allegedly sexually abusing, battering his own child](https://news.yahoo.com/illinois-father-arrested-facing-charges-224728885.html)
 <!-- feed end -->
