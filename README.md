@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - [Japanese woman claims her husband played sex tape of her and ex-husband at stepdaughter’s wedding](https://news.yahoo.com/japanese-woman-claims-her-husband-161844178.html)
+- Mar 24 - [A man accidentally dug up an ancient water well buried 17 feet underneath his kitchen. Then he shocked TikTok by making it a part of his home.](https://news.yahoo.com/man-accidentally-dug-ancient-water-154732384.html)
+- Mar 24 - [A twin who survived Auschwitz shares how a doctor experimented on her and her identical sister — and tried to get them pregnant with other twins](https://news.yahoo.com/twin-survived-auschwitz-shares-doctor-154708961.html)
+- Mar 24 - [San Francisco grapples with racism and reparations: 'The world is watching,' Black residents say](https://news.yahoo.com/san-francisco-grapples-with-racism-and-reparations-the-world-is-watching-black-residents-say-153645769.html)
 - Mar 24 - [Russians starting to evacuate from occupied Crimea, says Ukrainian intelligence](https://news.yahoo.com/russians-starting-evacuate-occupied-crimea-151500970.html)
-- Mar 24 - [Alvin Bragg may have been asked to delay Trump charges: John Dean](https://news.yahoo.com/alvin-bragg-may-asked-delay-145828869.html)
-- Mar 24 - [Kentucky governor vetoes sweeping GOP transgender measure](https://news.yahoo.com/kentucky-governor-vetoes-sweeping-gop-145352766.html)
-- Mar 24 - [Gwyneth Paltrow barred from bringing ‘treats’ into court](https://news.yahoo.com/gwyneth-paltrow-barred-bringing-treats-144330730.html)
-- Mar 24 - [Colorado wife whose husband allegedly poisoned her protein shakes is remembered for 'heroic struggle'](https://news.yahoo.com/colorado-wife-whose-husband-allegedly-132949190.html)
 <!-- feed end -->
