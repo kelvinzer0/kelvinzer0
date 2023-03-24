@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - [Report: No turbulence during fatal business jet flight](https://news.yahoo.com/report-no-turbulence-during-fatal-170933325.html)
+- Mar 24 - [Joe Biden angry with Kamala Harris for ‘not taking enough off his plate’](https://news.yahoo.com/joe-biden-angry-kamala-harris-170026816.html)
+- Mar 24 - [Police involved after Memphis women's basketball's Jamirah Shutes hits Bowling Green foe in handshake line](https://news.yahoo.com/memphis-womens-basketball-wnit-loss-053730166.html)
+- Mar 24 - [Deion Sanders Humiliates His Son In Bench Press And Makes The Coolest Exit](https://news.yahoo.com/deion-sanders-humiliates-son-bench-165717868.html)
 - Mar 24 - [Japanese woman claims her husband played sex tape of her and ex-husband at stepdaughter’s wedding](https://news.yahoo.com/japanese-woman-claims-her-husband-161844178.html)
-- Mar 24 - [A man accidentally dug up an ancient water well buried 17 feet underneath his kitchen. Then he shocked TikTok by making it a part of his home.](https://news.yahoo.com/man-accidentally-dug-ancient-water-154732384.html)
-- Mar 24 - [A twin who survived Auschwitz shares how a doctor experimented on her and her identical sister — and tried to get them pregnant with other twins](https://news.yahoo.com/twin-survived-auschwitz-shares-doctor-154708961.html)
-- Mar 24 - [San Francisco grapples with racism and reparations: 'The world is watching,' Black residents say](https://news.yahoo.com/san-francisco-grapples-with-racism-and-reparations-the-world-is-watching-black-residents-say-153645769.html)
-- Mar 24 - [Russians starting to evacuate from occupied Crimea, says Ukrainian intelligence](https://news.yahoo.com/russians-starting-evacuate-occupied-crimea-151500970.html)
 <!-- feed end -->
