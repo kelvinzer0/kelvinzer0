@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 25 - [A man detained multiple times said North Korean prisons have improved over the years because the last time he was jailed he no longer had to walk on all fours](https://news.yahoo.com/man-detained-multiple-times-said-044457567.html)
 - Mar 25 - [Scottie Dean Morris: Eaton 14-year-old found safe, police say](https://news.yahoo.com/scottie-dean-morris-timeline-search-151412691.html)
 - Mar 25 - [Gwyneth Paltrow's jaw dropped after being accused of lying in court and claims man suing her 'categorically' caused crash](https://news.yahoo.com/gwyneth-paltrows-jaw-dropped-being-020233641.html)
 - Mar 25 - [Marjorie Taylor Greene Calls Cops on Heckler With Whistle](https://news.yahoo.com/marjorie-taylor-greene-calls-cops-010123071.html)
-- Mar 24 - [An 8-foot-tall portrait of Trump was among the foreign gifts that went missing when he left office. A reporter found it in a Trump hotel, collecting dust, next to a pile of yoga mats.](https://news.yahoo.com/8-foot-tall-portrait-trump-230211613.html)
 - Mar 24 - [Before and after: Dramatic photos show how California lake filled in just 3 months’ time](https://news.yahoo.com/dramatic-photos-show-california-lake-211746539.html)
 <!-- feed end -->
