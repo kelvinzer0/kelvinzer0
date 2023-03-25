@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 25 - [Trump campaign says that anyone who works for DeSantis will be blacklisted from ever getting a job with him, report says](https://news.yahoo.com/trump-campaign-says-anyone-works-141424476.html)
 - Mar 25 - [An accused Russian spy boasted that infiltrating the US was easy. He's now in prison after getting caught with files that blew his cover.](https://news.yahoo.com/accused-russian-spy-boasted-infiltrating-135108244.html)
-- Mar 25 - [Carvana customer says he bought his wife a luxury car for $68K — but it turned out to be stolen](https://news.yahoo.com/carvana-customer-says-bought-wife-133332155.html)
 - Mar 25 - [Alex Murdaugh's sister-in-law snags family belongings ahead of auction](https://news.yahoo.com/alex-murdaughs-sister-law-snags-120051473.html)
 - Mar 25 - [A Rivian buyer got his dream car after a 3-year wait. Days later, the car was dead and he faced a $2,100 bill.](https://news.yahoo.com/rivian-buyer-got-dream-car-111500636.html)
+- Mar 25 - [Handyman turns the tables on squatters who took over his mother's house](https://news.yahoo.com/handyman-turns-tables-squatters-took-110018649.html)
 <!-- feed end -->
