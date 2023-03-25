@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 25 - [Trump campaign says that anyone who works for DeSantis will be blacklisted from ever getting a job with him, report says](https://news.yahoo.com/trump-campaign-says-anyone-works-141424476.html)
-- Mar 25 - [An accused Russian spy boasted that infiltrating the US was easy. He's now in prison after getting caught with files that blew his cover.](https://news.yahoo.com/accused-russian-spy-boasted-infiltrating-135108244.html)
-- Mar 25 - [Alex Murdaugh's sister-in-law snags family belongings ahead of auction](https://news.yahoo.com/alex-murdaughs-sister-law-snags-120051473.html)
-- Mar 25 - [A Rivian buyer got his dream car after a 3-year wait. Days later, the car was dead and he faced a $2,100 bill.](https://news.yahoo.com/rivian-buyer-got-dream-car-111500636.html)
-- Mar 25 - [Handyman turns the tables on squatters who took over his mother's house](https://news.yahoo.com/handyman-turns-tables-squatters-took-110018649.html)
+- Mar 25 - [Kanye West renounced his antisemitism, saying he realized he was wrong after watching Jonah Hill in '21 Jump Street'](https://news.yahoo.com/kanye-west-renounced-antisemitism-saying-161231233.html)
+- Mar 25 - [Hungary says it will block Ukraine joining EU and NATO because of Ukraine’s education law](https://news.yahoo.com/hungary-says-block-ukraine-joining-160700821.html)
+- Mar 25 - [2 high schoolers say they've found proof for the Pythagorean theorem, which mathematicians thought was impossible](https://news.yahoo.com/2-high-schoolers-theyve-found-145534941.html)
+- Mar 25 - [Teacher rips into Korean mom of 5-year-old for packing him 'disgusting and inappropriate' school lunches](https://news.yahoo.com/teacher-rips-korean-mom-5-145503862.html)
+- Mar 25 - [Stolen Valor: The U.S. Volunteers in Ukraine Who Lie, Waste and Bicker](https://news.yahoo.com/stolen-valor-u-volunteers-ukraine-141444903.html)
 <!-- feed end -->
