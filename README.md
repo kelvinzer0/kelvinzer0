@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 25 - [Gwyneth Paltrow's jaw dropped after being accused of lying in court and claims man suing her 'categorically' caused crash](https://news.yahoo.com/gwyneth-paltrows-jaw-dropped-being-020233641.html)
 - Mar 25 - [Marjorie Taylor Greene Calls Cops on Heckler With Whistle](https://news.yahoo.com/marjorie-taylor-greene-calls-cops-010123071.html)
+- Mar 25 - [Canadian lawmakers laugh after Biden accidentally applauds China: 'You can tell what I'm thinking'](https://news.yahoo.com/canadian-lawmakers-laugh-biden-accidentally-002124114.html)
 - Mar 24 - [An 8-foot-tall portrait of Trump was among the foreign gifts that went missing when he left office. A reporter found it in a Trump hotel, collecting dust, next to a pile of yoga mats.](https://news.yahoo.com/8-foot-tall-portrait-trump-230211613.html)
 - Mar 24 - [Before and after: Dramatic photos show how California lake filled in just 3 months’ time](https://news.yahoo.com/dramatic-photos-show-california-lake-211746539.html)
-- Mar 24 - [Gwyneth Paltrow trial: Actress says 'strange' ski collision felt like 'someone doing something perverted'](https://news.yahoo.com/gwyneth-paltrow-barred-bringing-treats-144330730.html)
-- Mar 24 - [Five uncomfortable moments from Gwyneth Paltrow’s testimony](https://news.yahoo.com/five-uncomfortable-moments-gwyneth-paltrow-192441698.html)
 <!-- feed end -->
