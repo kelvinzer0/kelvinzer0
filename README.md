@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 24 - [An 8-foot-tall portrait of Trump was among the foreign gifts that went missing when he left office. A reporter found it in a Trump hotel, collecting dust, next to a pile of yoga mats.](https://news.yahoo.com/8-foot-tall-portrait-trump-230211613.html)
 - Mar 24 - [Before and after: Dramatic photos show how California lake filled in just 3 months’ time](https://news.yahoo.com/dramatic-photos-show-california-lake-211746539.html)
-- Mar 24 - [Reese Witherspoon, Jim Toth announce plans to divorce](https://news.yahoo.com/reese-witherspoon-jim-toth-announce-205758264.html)
 - Mar 24 - [Gwyneth Paltrow trial: Actress says 'strange' ski collision felt like 'someone doing something perverted'](https://news.yahoo.com/gwyneth-paltrow-barred-bringing-treats-144330730.html)
-- Mar 24 - [Memphis basketball's Jamirah Shutes charged with assault after punch in WNIT handshake line](https://news.yahoo.com/memphis-basketballs-jamirah-shutes-charged-173539109.html)
-- Mar 24 - [Colorado fishermen ordered to pay over $1K each after catching 463 pounds of Michigan fish](https://news.yahoo.com/colorado-fishermen-ordered-pay-over-194330764.html)
+- Mar 24 - [Woman nabs rare goose, stuffs it in onion bag and drives off, Hawaii park officials say](https://news.yahoo.com/woman-nabs-rare-goose-stuffs-185738968.html)
+- Mar 24 - [‘Everybody’s dropping like flies’: Federal ‘tranq’ warning follows escalating concerns in Mass.](https://news.yahoo.com/everybody-dropping-flies-federal-tranq-024953548.html)
 <!-- feed end -->
