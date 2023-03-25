@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 25 - ['God, guns and Trump': Thousands turn out for Texas rally](https://news.yahoo.com/god-guns-trump-thousands-turn-214425362.html)
 - Mar 25 - [Protests erupt in NYC — not for Trump but for 'The Joker'](https://news.yahoo.com/protests-erupt-nyc-not-trump-201631210.html)
 - Mar 25 - [Sheriff: Man calls for taxi, rapes metro Atlanta driver at gunpoint, captured hours later](https://news.yahoo.com/sheriff-man-calls-taxi-rapes-194537460.html)
 - Mar 25 - [A home-improvement contractor from Connecticut who went to fight in Ukraine posted a video of his location online, revealing his unit's location, and then admitted he falsified his military record](https://news.yahoo.com/us-volunteers-ukraine-become-embroiled-193235858.html)
-- Mar 25 - [Staring down a possible indictment, Trump holds a rally in Waco. A Texas newspaper said the choice isn't a dog whistle but an 'air horn' to far-right groups.](https://news.yahoo.com/staring-down-possible-indictment-trump-183432539.html)
-- Mar 25 - [HGTV stars Tarek and Heather Rae El Moussa's home design ripped by fans: 'Tacky'](https://news.yahoo.com/hgtv-stars-tarek-heather-rae-180832924.html)
+- Mar 25 - [Zelenskyy: This week, Ukraine has become more robust, and the enemy has become even more hopeless](https://news.yahoo.com/zelenskyy-week-ukraine-become-more-192432762.html)
 <!-- feed end -->
