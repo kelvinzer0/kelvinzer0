@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 25 - [GOP Rep. Andy Biggs Receives Embarrassing Jan. 6 Fact-Check Live On Air](https://news.yahoo.com/gop-rep-andy-biggs-receives-112244634.html)
+- Mar 25 - [An accused Russian spy boasted that infiltrating the US was easy. He's now in prison after getting caught with files that blew his cover.](https://news.yahoo.com/accused-russian-spy-boasted-infiltrating-135108244.html)
+- Mar 25 - [Carvana customer says he bought his wife a luxury car for $68K — but it turned out to be stolen](https://news.yahoo.com/carvana-customer-says-bought-wife-133332155.html)
+- Mar 25 - [Alex Murdaugh's sister-in-law snags family belongings ahead of auction](https://news.yahoo.com/alex-murdaughs-sister-law-snags-120051473.html)
 - Mar 25 - [A Rivian buyer got his dream car after a 3-year wait. Days later, the car was dead and he faced a $2,100 bill.](https://news.yahoo.com/rivian-buyer-got-dream-car-111500636.html)
 - Mar 25 - [Norway, Sweden, Finland, and Denmark struck a deal to run their 200+ advanced fighter jets as a single fleet, creating a new headache for Russia](https://news.yahoo.com/norway-sweden-finland-denmark-struck-104242982.html)
-- Mar 25 - [I've been on 11 Carnival cruises and always see first-timers make these 10 mistakes, from buying drink packages to booking beach excursions](https://news.yahoo.com/ive-11-carnival-cruises-always-100100815.html)
-- Mar 25 - [‘Unhinged’: Trump Ripped In Withering Editorial From Rupert Murdoch’s New York Post](https://news.yahoo.com/unhinged-trump-ripped-withering-editorial-063020890.html)
 <!-- feed end -->
