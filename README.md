@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 25 - [Final No. 1 seed falls as Houston gets blown out by Miami](https://news.yahoo.com/final-no-1-seed-falls-014526467.html)
+- Mar 25 - [Marjorie Taylor Greene Calls Cops on Heckler With Whistle](https://news.yahoo.com/marjorie-taylor-greene-calls-cops-010123071.html)
+- Mar 24 - [‘Help find this driver!’; Investigators say road rage behind accident in Tampa](https://news.yahoo.com/help-driver-investigators-road-rage-230232747.html)
 - Mar 24 - [An 8-foot-tall portrait of Trump was among the foreign gifts that went missing when he left office. A reporter found it in a Trump hotel, collecting dust, next to a pile of yoga mats.](https://news.yahoo.com/8-foot-tall-portrait-trump-230211613.html)
-- Mar 24 - [Before and after: Dramatic photos show how California lake filled in just 3 months’ time](https://news.yahoo.com/dramatic-photos-show-california-lake-211746539.html)
-- Mar 24 - [Gwyneth Paltrow trial: Actress says 'strange' ski collision felt like 'someone doing something perverted'](https://news.yahoo.com/gwyneth-paltrow-barred-bringing-treats-144330730.html)
-- Mar 24 - [Woman nabs rare goose, stuffs it in onion bag and drives off, Hawaii park officials say](https://news.yahoo.com/woman-nabs-rare-goose-stuffs-185738968.html)
-- Mar 24 - [‘Everybody’s dropping like flies’: Federal ‘tranq’ warning follows escalating concerns in Mass.](https://news.yahoo.com/everybody-dropping-flies-federal-tranq-024953548.html)
+- Mar 24 - [Kim Mulkey's sideline fit goes pink ostrich fringe as LSU women's basketball plays in Sweet 16](https://news.yahoo.com/kim-mulkeys-sideline-fit-goes-222703292.html)
 <!-- feed end -->
