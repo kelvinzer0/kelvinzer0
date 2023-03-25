@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Mar 25 - [Scottie Dean Morris: Eaton 14-year-old found safe, police say](https://news.yahoo.com/scottie-dean-morris-timeline-search-151412691.html)
 - Mar 25 - [Gwyneth Paltrow's jaw dropped after being accused of lying in court and claims man suing her 'categorically' caused crash](https://news.yahoo.com/gwyneth-paltrows-jaw-dropped-being-020233641.html)
 - Mar 25 - [Marjorie Taylor Greene Calls Cops on Heckler With Whistle](https://news.yahoo.com/marjorie-taylor-greene-calls-cops-010123071.html)
+- Mar 24 - [An 8-foot-tall portrait of Trump was among the foreign gifts that went missing when he left office. A reporter found it in a Trump hotel, collecting dust, next to a pile of yoga mats.](https://news.yahoo.com/8-foot-tall-portrait-trump-230211613.html)
 - Mar 24 - [Before and after: Dramatic photos show how California lake filled in just 3 months’ time](https://news.yahoo.com/dramatic-photos-show-california-lake-211746539.html)
-- Mar 24 - [Trump rally falls during anniversary of Waco's dark past](https://news.yahoo.com/trump-rally-falls-during-anniversary-211541704.html)
 <!-- feed end -->
