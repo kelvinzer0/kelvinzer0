@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 25 - [Kanye West renounced his antisemitism, saying he realized he was wrong after watching Jonah Hill in '21 Jump Street'](https://news.yahoo.com/kanye-west-renounced-antisemitism-saying-161231233.html)
-- Mar 25 - [Hungary says it will block Ukraine joining EU and NATO because of Ukraine’s education law](https://news.yahoo.com/hungary-says-block-ukraine-joining-160700821.html)
-- Mar 25 - [2 high schoolers say they've found proof for the Pythagorean theorem, which mathematicians thought was impossible](https://news.yahoo.com/2-high-schoolers-theyve-found-145534941.html)
-- Mar 25 - [Teacher rips into Korean mom of 5-year-old for packing him 'disgusting and inappropriate' school lunches](https://news.yahoo.com/teacher-rips-korean-mom-5-145503862.html)
-- Mar 25 - [Stolen Valor: The U.S. Volunteers in Ukraine Who Lie, Waste and Bicker](https://news.yahoo.com/stolen-valor-u-volunteers-ukraine-141444903.html)
+- Mar 25 - [Protests erupt in NYC — not for Trump but for 'The Joker'](https://news.yahoo.com/protests-erupt-nyc-not-trump-201631210.html)
+- Mar 25 - [Sheriff: Man calls for taxi, rapes metro Atlanta driver at gunpoint, captured hours later](https://news.yahoo.com/sheriff-man-calls-taxi-rapes-194537460.html)
+- Mar 25 - [A home-improvement contractor from Connecticut who went to fight in Ukraine posted a video of his location online, revealing his unit's location, and then admitted he falsified his military record](https://news.yahoo.com/us-volunteers-ukraine-become-embroiled-193235858.html)
+- Mar 25 - [Staring down a possible indictment, Trump holds a rally in Waco. A Texas newspaper said the choice isn't a dog whistle but an 'air horn' to far-right groups.](https://news.yahoo.com/staring-down-possible-indictment-trump-183432539.html)
+- Mar 25 - [HGTV stars Tarek and Heather Rae El Moussa's home design ripped by fans: 'Tacky'](https://news.yahoo.com/hgtv-stars-tarek-heather-rae-180832924.html)
 <!-- feed end -->
