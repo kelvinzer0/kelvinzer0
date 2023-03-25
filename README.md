@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 25 - [‘Unhinged’: Trump Ripped In Withering Editorial From Rupert Murdoch’s New York Post](https://news.yahoo.com/unhinged-trump-ripped-withering-editorial-063020890.html)
 - Mar 25 - [Scottie Dean Morris: Eaton 14-year-old found safe, police say](https://news.yahoo.com/scottie-dean-morris-timeline-search-151412691.html)
 - Mar 25 - [Gwyneth Paltrow's jaw dropped after being accused of lying in court and claims man suing her 'categorically' caused crash](https://news.yahoo.com/gwyneth-paltrows-jaw-dropped-being-020233641.html)
 - Mar 25 - [Florida Parents Oust Principal after Sixth-Graders Were Shown Michelangelo’s David](https://news.yahoo.com/florida-parents-oust-principal-sixth-011737566.html)
 - Mar 25 - [Marjorie Taylor Greene Calls Cops on Heckler With Whistle](https://news.yahoo.com/marjorie-taylor-greene-calls-cops-010123071.html)
-- Mar 24 - [Before and after: Dramatic photos show how California lake filled in just 3 months’ time](https://news.yahoo.com/dramatic-photos-show-california-lake-211746539.html)
 <!-- feed end -->
