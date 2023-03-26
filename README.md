@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 26 - [These "What Am I Looking At" Wedding Photos Will Make Just About Anyone Swear Off Marriage](https://news.yahoo.com/am-looking-wedding-photos-just-031050682.html)
+- Mar 26 - [Diane Keaton Hasn't Dated Anyone In 35 Years, And Her Reason Why Is Going Viral](https://news.yahoo.com/diane-keaton-hasnt-dated-anyone-033349024.html)
+- Mar 26 - [Family of missing 6-year-old left Texas on international flight before Amber Alert issued](https://news.yahoo.com/family-missing-6-old-left-191304722.html)
+- Mar 26 - [San Francisco is forcing couple to remove sidewalk 'obstruction' — or pay $1,400. It's a little free library.](https://news.yahoo.com/san-francisco-forcing-couple-remove-183929261.html)
 - Mar 26 - [UP becomes second railroad to drop push for one-person crews](https://news.yahoo.com/becomes-second-railroad-drop-push-182340271.html)
-- Mar 26 - [Florida school uproar leads Italy to invite viewing 'David'](https://news.yahoo.com/florida-school-uproar-leads-italy-181745300.html)
-- Mar 26 - [Mark Wahlberg and Jim Carrey among stars rushing to sell homes to beat new ‘mansion’ tax](https://news.yahoo.com/mark-wahlberg-jim-carrey-among-170000019.html)
-- Mar 26 - [Courteney Cox says her 18-year-old daughter calls her 'cheugy' for what she thinks are 'silly' Instagram posts](https://news.yahoo.com/courteney-cox-says-her-18-161626196.html)
+- Mar 26 - [Is 'David' porn? See for yourself, Italians ask Fla. parents](https://news.yahoo.com/florida-school-uproar-leads-italy-181745300.html)
 <!-- feed end -->
