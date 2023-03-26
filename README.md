@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 26 - [2023 NCAA Tournament: Breaking down Sunday's men's Elite Eight games](https://news.yahoo.com/2023-ncaa-mens-tournament-elite-195620347.html)
+- Mar 26 - [Going to war? Good news! The United States is 13 years behind in ammunition production, NYT reports](https://news.yahoo.com/going-war-good-news-united-045349955.html)
 - Mar 26 - [Erdoğan calls for ‘immediate’ end to war in Ukraine during call with Putin](https://news.yahoo.com/erdo-calls-immediate-end-war-030048678.html)
 - Mar 26 - ['God, guns and Trump': Thousands turn out for Texas rally](https://news.yahoo.com/god-guns-trump-thousands-turn-214425362.html)
 - Mar 25 - [Spring break crowds remain diminished, subdued in Miami Beach. Take a look](https://news.yahoo.com/spring-break-crowds-remain-diminished-234500627.html)
