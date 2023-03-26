@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 26 - [David Benavidez is announced winner of his fight vs. Caleb Plant Saturday in Las Vegas](https://news.yahoo.com/david-benavidez-announced-winner-fight-203319376.html)
 - Mar 26 - ["If You Did That In The US, People Would Assume You Have A Problem": Americans Are Sharing Things They Find Strange About European Culture](https://news.yahoo.com/did-us-people-assume-problem-204443975.html)
-- Mar 26 - [Chuck Todd grills Trump lawyer about threats to Manhattan DA](https://news.yahoo.com/chuck-todd-grills-trump-lawyer-200257005.html)
+- Mar 26 - [Texas without star Dylan Disu for regional final vs. Miami](https://news.yahoo.com/texas-without-star-dylan-disu-201755032.html)
+- Mar 26 - [Diane Keaton Hasn't Dated Anyone In 35 Years, And Her Reason Why Is Going Viral](https://news.yahoo.com/diane-keaton-hasnt-dated-anyone-033349024.html)
 - Mar 26 - [LeBron James returns but doesn't start after month's absence](https://news.yahoo.com/lebron-james-returns-doesnt-start-191606425.html)
 - Mar 26 - [Family of missing 6-year-old left Texas on international flight before Amber Alert issued](https://news.yahoo.com/family-missing-6-old-left-191304722.html)
 <!-- feed end -->
