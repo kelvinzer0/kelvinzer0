@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 26 - [Biden's Justice Dept. keeps hard line in death row cases](https://news.yahoo.com/bidens-justice-dept-keeps-hard-142421704.html)
-- Mar 26 - [Owen Wilson on the Bob Ross-inspired "Paint"](https://news.yahoo.com/owen-wilson-bob-ross-inspired-140400787.html)
+- Mar 26 - [Recovery underway in tornado-hit Mississippi, 25 dead](https://news.yahoo.com/recovery-underway-tornado-hit-mississippi-160425724.html)
+- Mar 26 - [Donald Trump’s Lawyer Won’t Defend ‘Ill-Advised’ Truth Social Post](https://news.yahoo.com/donald-trump-lawyer-t-defend-153131928.html)
+- Mar 26 - [MLB Network Insider says this AL East team is a dark horse in 2023](https://news.yahoo.com/mlb-network-insider-says-al-194931157.html)
+- Mar 26 - ['God, guns and Trump': Thousands turn out for Texas rally](https://news.yahoo.com/god-guns-trump-thousands-turn-214425362.html)
 - Mar 26 - [Florida Atlantic center Vlad Goldin surprised by pregame handshake snub from K-State](https://news.yahoo.com/florida-atlantic-center-vlad-goldin-120000156.html)
-- Mar 26 - [Ukrainian aviation inflicts significant losses on Russians](https://news.yahoo.com/ukrainian-aviation-inflicts-significant-losses-114800003.html)
-- Mar 26 - [2,000 mummified ram heads left in honor of Egypt's most powerful pharaoh are found inside an ancient temple](https://news.yahoo.com/2-000-mummified-ram-heads-114635986.html)
 <!-- feed end -->
