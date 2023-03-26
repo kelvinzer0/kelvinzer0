@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 26 - [A lawyer who quit to become an OnlyFans performer says she now makes more money and is happier](https://news.yahoo.com/lawyer-quit-become-onlyfans-performer-113000879.html)
+- Mar 26 - ["I Always Swore It Was Something I Would Never Do": People Are Getting Very Honest About Things They Never Thought They Would Do As Adults, But Ended Up Doing Anyway](https://news.yahoo.com/always-swore-something-never-people-033913352.html)
+- Mar 26 - [I'm an underground miner making as much as $160,000 a year without a college degree. The job saved my life.](https://news.yahoo.com/im-underground-miner-making-much-100800859.html)
 - Mar 26 - ['God, guns and Trump': Thousands turn out for Texas rally](https://news.yahoo.com/god-guns-trump-thousands-turn-214425362.html)
-- Mar 26 - ["It's The Thing I Will Really Miss When I Move Back To The US": Americans Are Sharing Everyday Aspects Of Life In Europe That Feel Like Luxuries If You Didn't Grow With Up Them](https://news.yahoo.com/thing-really-miss-move-back-051945493.html)
 - Mar 26 - [Grimes says she's changed her and Elon Musk's daughter's name from Exa Dark Sideræl to a symbol](https://news.yahoo.com/grimes-says-shes-changed-her-091024032.html)
-- Mar 26 - [Going to war? Good news! The United States is 13 years behind in ammunition production, NYT reports](https://news.yahoo.com/going-war-good-news-united-045349955.html)
-- Mar 26 - [Erdoğan calls for ‘immediate’ end to war in Ukraine during call with Putin](https://news.yahoo.com/erdo-calls-immediate-end-war-030048678.html)
 <!-- feed end -->
