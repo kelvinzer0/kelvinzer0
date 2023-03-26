@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 26 - [At least four dead, several missing after an explosion at Pennsylvania chocolate factory](https://news.yahoo.com/least-2-dead-several-missing-183643193.html)
+- Mar 26 - [These "What Am I Looking At" Wedding Photos Will Make Just About Anyone Swear Off Marriage](https://news.yahoo.com/am-looking-wedding-photos-just-031050682.html)
+- Mar 26 - [UP becomes second railroad to drop push for one-person crews](https://news.yahoo.com/becomes-second-railroad-drop-push-182340271.html)
+- Mar 26 - [Florida school uproar leads Italy to invite viewing 'David'](https://news.yahoo.com/florida-school-uproar-leads-italy-181745300.html)
 - Mar 26 - [Mark Wahlberg and Jim Carrey among stars rushing to sell homes to beat new ‘mansion’ tax](https://news.yahoo.com/mark-wahlberg-jim-carrey-among-170000019.html)
 - Mar 26 - [Courteney Cox says her 18-year-old daughter calls her 'cheugy' for what she thinks are 'silly' Instagram posts](https://news.yahoo.com/courteney-cox-says-her-18-161626196.html)
-- Mar 26 - [Trump's own attorney says the former president's TruthSocial posts attacking Manhattan prosecutor ahead of possible indictment were 'ill-advised'](https://news.yahoo.com/trumps-own-attorney-says-former-160911715.html)
-- Mar 26 - [Sam Neill says the 'Jurassic Park" cast 'came very close' to dying when a Category 4 hurricane struck](https://news.yahoo.com/sam-neill-says-jurassic-park-154757341.html)
 <!-- feed end -->
