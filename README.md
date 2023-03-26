@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 26 - [Ukrainian aviation inflicts significant losses on Russians](https://news.yahoo.com/ukrainian-aviation-inflicts-significant-losses-114800003.html)
+- Mar 26 - [2,000 mummified ram heads left in honor of Egypt's most powerful pharaoh are found inside an ancient temple](https://news.yahoo.com/2-000-mummified-ram-heads-114635986.html)
+- Mar 26 - [A mystery object found by the Nord Stream pipeline could help provide clues about who was behind sabotage attack](https://news.yahoo.com/mystery-object-found-nord-stream-113353820.html)
 - Mar 26 - [A lawyer who quit to become an OnlyFans performer says she now makes more money and is happier](https://news.yahoo.com/lawyer-quit-become-onlyfans-performer-113000879.html)
-- Mar 26 - ["I Always Swore It Was Something I Would Never Do": People Are Getting Very Honest About Things They Never Thought They Would Do As Adults, But Ended Up Doing Anyway](https://news.yahoo.com/always-swore-something-never-people-033913352.html)
 - Mar 26 - [I'm an underground miner making as much as $160,000 a year without a college degree. The job saved my life.](https://news.yahoo.com/im-underground-miner-making-much-100800859.html)
-- Mar 26 - ['God, guns and Trump': Thousands turn out for Texas rally](https://news.yahoo.com/god-guns-trump-thousands-turn-214425362.html)
-- Mar 26 - [Grimes says she's changed her and Elon Musk's daughter's name from Exa Dark Sideræl to a symbol](https://news.yahoo.com/grimes-says-shes-changed-her-091024032.html)
 <!-- feed end -->
