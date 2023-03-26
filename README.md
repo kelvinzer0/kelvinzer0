@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 26 - [Ukrainian aviation inflicts significant losses on Russians](https://news.yahoo.com/ukrainian-aviation-inflicts-significant-losses-114800003.html)
+- Mar 26 - ["If You Did That In The US, People Would Assume You Have A Problem": Americans Are Sharing Things They Find Strange About European Culture](https://news.yahoo.com/did-us-people-assume-problem-204443975.html)
+- Mar 26 - [Florida Atlantic center Vlad Goldin surprised by pregame handshake snub from K-State](https://news.yahoo.com/florida-atlantic-center-vlad-goldin-120000156.html)
 - Mar 26 - [2,000 mummified ram heads left in honor of Egypt's most powerful pharaoh are found inside an ancient temple](https://news.yahoo.com/2-000-mummified-ram-heads-114635986.html)
-- Mar 26 - [A mystery object found by the Nord Stream pipeline could help provide clues about who was behind sabotage attack](https://news.yahoo.com/mystery-object-found-nord-stream-113353820.html)
 - Mar 26 - [A lawyer who quit to become an OnlyFans performer says she now makes more money and is happier](https://news.yahoo.com/lawyer-quit-become-onlyfans-performer-113000879.html)
 - Mar 26 - [I'm an underground miner making as much as $160,000 a year without a college degree. The job saved my life.](https://news.yahoo.com/im-underground-miner-making-much-100800859.html)
 <!-- feed end -->
