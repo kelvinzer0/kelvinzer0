@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 26 - [I Tried Starbucks' New "Olive Oil–Infused" Coffee Drinks, And They Weren't At All What I Was Expecting](https://news.yahoo.com/tried-starbucks-olive-oil-infused-050046227.html)
+- Mar 26 - [2023 NCAA Tournament: Breaking down Sunday's men's Elite Eight games](https://news.yahoo.com/2023-ncaa-mens-tournament-elite-195620347.html)
+- Mar 26 - [Erdoğan calls for ‘immediate’ end to war in Ukraine during call with Putin](https://news.yahoo.com/erdo-calls-immediate-end-war-030048678.html)
 - Mar 26 - ['God, guns and Trump': Thousands turn out for Texas rally](https://news.yahoo.com/god-guns-trump-thousands-turn-214425362.html)
 - Mar 25 - [Spring break crowds remain diminished, subdued in Miami Beach. Take a look](https://news.yahoo.com/spring-break-crowds-remain-diminished-234500627.html)
 - Mar 25 - [Hawks star Young ejected after hard ball toss to referee](https://news.yahoo.com/hawks-star-young-ejected-hard-224805344.html)
-- Mar 25 - [Dawn Staley timeout for UCLA player injury heralded as moment of sportsmanship](https://news.yahoo.com/dawn-staley-timeout-ucla-player-220138793.html)
 <!-- feed end -->
