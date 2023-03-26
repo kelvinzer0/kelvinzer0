@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 26 - [Recovery underway in tornado-hit Mississippi, 25 dead](https://news.yahoo.com/recovery-underway-tornado-hit-mississippi-160425724.html)
-- Mar 26 - [Donald Trump’s Lawyer Won’t Defend ‘Ill-Advised’ Truth Social Post](https://news.yahoo.com/donald-trump-lawyer-t-defend-153131928.html)
-- Mar 26 - ['God, guns and Trump': Thousands turn out for Texas rally](https://news.yahoo.com/god-guns-trump-thousands-turn-214425362.html)
-- Mar 26 - [Florida Atlantic center Vlad Goldin surprised by pregame handshake snub from K-State](https://news.yahoo.com/florida-atlantic-center-vlad-goldin-120000156.html)
-- Mar 26 - [Ukrainian aviation inflicts significant losses on Russians](https://news.yahoo.com/ukrainian-aviation-inflicts-significant-losses-114800003.html)
+- Mar 26 - [At least four dead, several missing after an explosion at Pennsylvania chocolate factory](https://news.yahoo.com/least-2-dead-several-missing-183643193.html)
+- Mar 26 - [Mark Wahlberg and Jim Carrey among stars rushing to sell homes to beat new ‘mansion’ tax](https://news.yahoo.com/mark-wahlberg-jim-carrey-among-170000019.html)
+- Mar 26 - [Courteney Cox says her 18-year-old daughter calls her 'cheugy' for what she thinks are 'silly' Instagram posts](https://news.yahoo.com/courteney-cox-says-her-18-161626196.html)
+- Mar 26 - [Trump's own attorney says the former president's TruthSocial posts attacking Manhattan prosecutor ahead of possible indictment were 'ill-advised'](https://news.yahoo.com/trumps-own-attorney-says-former-160911715.html)
+- Mar 26 - [Sam Neill says the 'Jurassic Park" cast 'came very close' to dying when a Category 4 hurricane struck](https://news.yahoo.com/sam-neill-says-jurassic-park-154757341.html)
 <!-- feed end -->
