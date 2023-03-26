@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 26 - ['God, guns and Trump': Thousands turn out for Texas rally](https://news.yahoo.com/god-guns-trump-thousands-turn-214425362.html)
 - Mar 26 - ["It's The Thing I Will Really Miss When I Move Back To The US": Americans Are Sharing Everyday Aspects Of Life In Europe That Feel Like Luxuries If You Didn't Grow With Up Them](https://news.yahoo.com/thing-really-miss-move-back-051945493.html)
+- Mar 26 - [Grimes says she's changed her and Elon Musk's daughter's name from Exa Dark Sideræl to a symbol](https://news.yahoo.com/grimes-says-shes-changed-her-091024032.html)
 - Mar 26 - [Going to war? Good news! The United States is 13 years behind in ammunition production, NYT reports](https://news.yahoo.com/going-war-good-news-united-045349955.html)
 - Mar 26 - [Erdoğan calls for ‘immediate’ end to war in Ukraine during call with Putin](https://news.yahoo.com/erdo-calls-immediate-end-war-030048678.html)
-- Mar 25 - [Spring break crowds remain diminished, subdued in Miami Beach. Take a look](https://news.yahoo.com/spring-break-crowds-remain-diminished-234500627.html)
 <!-- feed end -->
