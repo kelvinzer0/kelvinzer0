@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 27 - [Israeli president urges immediate stop to judicial reforms as protests flare](https://news.yahoo.com/israeli-president-urges-immediate-stop-064333729.html)
 - Mar 27 - [Tokyo demands China free Japan national detained in Beijing](https://news.yahoo.com/tokyo-demands-china-free-japan-055018615.html)
-- Mar 27 - [17 Actors Who Admitted To Only Taking A Role For The Money](https://news.yahoo.com/17-actors-admitted-only-taking-202507067.html)
 - Mar 27 - [Twenty years on, reflection and regret on 2002 Iraq war vote](https://news.yahoo.com/twenty-years-reflection-regret-2002-041335510.html)
 - Mar 27 - [Russian town shocked by case of child's Ukraine drawing](https://news.yahoo.com/russian-town-shocked-case-childs-030232324.html)
 - Mar 27 - [Meet the couple who opened their 11-year marriage to a divorced father so they could grow emotionally and sexually](https://news.yahoo.com/meet-couple-opened-11-marriage-030000417.html)
