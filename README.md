@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - [Malaysia, Cambodia sign pacts on Cambodian workers](https://news.yahoo.com/malaysia-cambodia-sign-pacts-cambodian-085458784.html)
+- Mar 27 - [Prince Harry in court for privacy suit against tabloid](https://news.yahoo.com/prince-harry-court-privacy-suit-092752959.html)
 - Mar 27 - [Miley Cyrus, Sarah Paulson, Ava DuVernay, And 14 Other Famous Women Who Shared The Reasons Why They're Proudly Childfree](https://news.yahoo.com/miley-cyrus-sarah-paulson-ava-031045724.html)
-- Mar 27 - [Amid strained U.S. ties, China finds unlikely friend in Utah](https://news.yahoo.com/amid-strained-u-ties-china-070849311.html)
+- Mar 27 - [Amid strained US ties, China finds unlikely friend in Utah](https://news.yahoo.com/amid-strained-u-ties-china-070849311.html)
 - Mar 27 - [Deputies accused of shoving guns in mouths of 2 Black men](https://news.yahoo.com/deputies-accused-shoving-guns-mouths-070037155.html)
 - Mar 27 - [Myanmar army leader calls for decisive action to crush foes](https://news.yahoo.com/myanmar-army-leader-calls-decisive-064217748.html)
 <!-- feed end -->
