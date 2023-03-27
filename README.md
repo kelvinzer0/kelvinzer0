@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - [Humza Yousaf wins Scottish leadership race](https://news.yahoo.com/humza-yousaf-wins-scottish-leadership-153733121.html)
-- Mar 27 - [Fox’s Kilmeade: ‘Insane’ for Trump to feature Jan. 6 footage at rally](https://news.yahoo.com/fox-kilmeade-insane-trump-feature-152330588.html)
-- Mar 27 - [No atmosphere found at faraway Earth-sized world, study says](https://news.yahoo.com/no-atmosphere-found-faraway-earth-152125542.html)
-- Mar 27 - [In Trump probe, Manhattan grand jury is back at work](https://news.yahoo.com/trump-probe-manhattan-grand-jury-150243626.html)
-- Mar 27 - [Fact check: Statement from Stormy Daniels denying an affair with Trump is from 2018](https://news.yahoo.com/fact-check-statement-stormy-daniels-145859036.html)
+- Mar 27 - [Remains ID'd of U.S. airman shot down in Germany during WWII](https://news.yahoo.com/remains-idd-u-airman-shot-164335072.html)
+- Mar 27 - [Massive protests in Israel erupt overnight against Netanyahu's judiciary reform continue](https://news.yahoo.com/massive-protests-israel-erupt-overnight-135918519.html)
+- Mar 27 - [Hungarian parliament approves Finland’s bid to join NATO](https://news.yahoo.com/hungarian-parliament-approves-finland-bid-163447222.html)
+- Mar 27 - [Georgia judge orders prosecutors to reply to Trump challenge](https://news.yahoo.com/georgia-judge-orders-prosecutors-reply-161657251.html)
+- Mar 27 - [What is the healthiest fruit? This one is high in antioxidants and has cognitive and cardiovascular benefits.](https://news.yahoo.com/healthiest-fruit-one-high-antioxidants-110011977.html)
 <!-- feed end -->
