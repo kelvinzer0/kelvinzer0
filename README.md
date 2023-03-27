@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - ["It's The Thing I Will Really Miss When I Move Back To The US": Americans Are Sharing Everyday Aspects Of Life In Europe That Feel Like Luxuries If You Didn't Grow With Up Them](https://news.yahoo.com/thing-really-miss-move-back-051945493.html)
-- Mar 27 - [17 Actors Who Admitted To Only Taking A Role For The Money](https://news.yahoo.com/17-actors-admitted-only-taking-202507067.html)
-- Mar 27 - [Meet Patch, the dog who walked himself home after his owner suffered a fatal accident](https://news.yahoo.com/meet-patch-dog-walked-himself-100558585.html)
-- Mar 27 - [Inside a slum that's become the Bermuda Triangle of Japan, where people go to disappear](https://news.yahoo.com/inside-slum-thats-become-bermuda-095036433.html)
-- Mar 27 - [Prince Harry in court for privacy suit against tabloid](https://news.yahoo.com/prince-harry-court-privacy-suit-092752959.html)
+- Mar 27 - [Louvre staff block entrances as part of pension protest](https://news.yahoo.com/louvre-staff-block-entrances-part-125626939.html)
+- Mar 27 - [Drone footage shows Bakhmut in ruins after months of some of the bloodiest fighting of the Ukraine war](https://news.yahoo.com/drone-footage-shows-bakhmut-ruins-124212181.html)
+- Mar 27 - [“The Last Of Us” Star Bella Ramsey Recalled Being Turned Away From Acting Jobs As A Child Because They Didn’t Have The “Hollywood Look,” And It’s Heartbreaking](https://news.yahoo.com/last-us-star-bella-ramsey-123531917.html)
+- Mar 27 - [Prince Harry arrives at London court for suit against British tabloid](https://news.yahoo.com/prince-harry-arrives-london-court-123154805.html)
+- Mar 27 - [Serial sperm donor who fathered 550 children sued for increasing incest risk](https://news.yahoo.com/serial-sperm-donor-fathered-550-121446115.html)
 <!-- feed end -->
