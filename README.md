@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - ["It's The Thing I Will Really Miss When I Move Back To The US": Americans Are Sharing Everyday Aspects Of Life In Europe That Feel Like Luxuries If You Didn't Grow With Up Them](https://news.yahoo.com/thing-really-miss-move-back-051945493.html)
+- Mar 27 - [Twenty years on, reflection and regret on 2002 Iraq war vote](https://news.yahoo.com/twenty-years-reflection-regret-2002-041335510.html)
+- Mar 27 - [DeSantis team welcomes contrast with Trump 'chaos' candidacy](https://news.yahoo.com/desantis-team-welcomes-contrast-trump-041230585.html)
 - Mar 27 - [Russian town shocked by case of child's Ukraine drawing](https://news.yahoo.com/russian-town-shocked-case-childs-030232324.html)
 - Mar 27 - [Meet the couple who opened their 11-year marriage to a divorced father so they could grow emotionally and sexually](https://news.yahoo.com/meet-couple-opened-11-marriage-030000417.html)
-- Mar 27 - [Terry emotional as Texas' run ends; his job status uncertain](https://news.yahoo.com/terry-emotional-texas-run-ends-011116720.html)
-- Mar 27 - [Jon Stewart sarcastically says 'what's happened to our country' after being asked about a potential Trump indictment: 'It's as though you can't even commit financial fraud anymore'](https://news.yahoo.com/jon-stewart-sarcastically-says-whats-005639144.html)
+- Mar 27 - [Satellite images show breadth of massive seaweed belt stretching across the Atlantic Ocean](https://news.yahoo.com/satellite-images-show-breadth-massive-014537089.html)
 <!-- feed end -->
