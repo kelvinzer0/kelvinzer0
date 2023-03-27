@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - [Louvre staff block entrances as part of pension protest](https://news.yahoo.com/louvre-staff-block-entrances-part-125626939.html)
-- Mar 27 - [Drone footage shows Bakhmut in ruins after months of some of the bloodiest fighting of the Ukraine war](https://news.yahoo.com/drone-footage-shows-bakhmut-ruins-124212181.html)
-- Mar 27 - [“The Last Of Us” Star Bella Ramsey Recalled Being Turned Away From Acting Jobs As A Child Because They Didn’t Have The “Hollywood Look,” And It’s Heartbreaking](https://news.yahoo.com/last-us-star-bella-ramsey-123531917.html)
-- Mar 27 - [Prince Harry arrives at London court for suit against British tabloid](https://news.yahoo.com/prince-harry-arrives-london-court-123154805.html)
-- Mar 27 - [Serial sperm donor who fathered 550 children sued for increasing incest risk](https://news.yahoo.com/serial-sperm-donor-fathered-550-121446115.html)
+- Mar 27 - [Man who went missing in 2021 now found safe hundreds of miles away in Texas, cops say](https://news.yahoo.com/man-went-missing-2021-now-134539952.html)
+- Mar 27 - [Report: Queen Elizabeth II asked Germany for pricey horses](https://news.yahoo.com/report-queen-elizabeth-ii-asked-134138976.html)
+- Mar 27 - [Macron holds crisis meeting as more France protests loom](https://news.yahoo.com/macron-holds-crisis-meeting-more-133125014.html)
+- Mar 27 - [Weapons firm says it can't meet soaring demand for artillery shells because a TikTok data center is eating all the electricity](https://news.yahoo.com/weapons-firm-says-cant-meet-125739767.html)
+- Mar 27 - [Key takeaways from AP’s report on China's influence in Utah](https://news.yahoo.com/key-takeaways-ap-report-chinas-123735761.html)
 <!-- feed end -->
