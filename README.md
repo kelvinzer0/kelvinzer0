@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 27 - ["It's The Thing I Will Really Miss When I Move Back To The US": Americans Are Sharing Everyday Aspects Of Life In Europe That Feel Like Luxuries If You Didn't Grow With Up Them](https://news.yahoo.com/thing-really-miss-move-back-051945493.html)
+- Mar 27 - [Russian town shocked by case of child's Ukraine drawing](https://news.yahoo.com/russian-town-shocked-case-childs-030232324.html)
+- Mar 27 - [Meet the couple who opened their 11-year marriage to a divorced father so they could grow emotionally and sexually](https://news.yahoo.com/meet-couple-opened-11-marriage-030000417.html)
 - Mar 27 - [Terry emotional as Texas' run ends; his job status uncertain](https://news.yahoo.com/terry-emotional-texas-run-ends-011116720.html)
 - Mar 27 - [Jon Stewart sarcastically says 'what's happened to our country' after being asked about a potential Trump indictment: 'It's as though you can't even commit financial fraud anymore'](https://news.yahoo.com/jon-stewart-sarcastically-says-whats-005639144.html)
-- Mar 27 - [Creighton takes blame after late foul leads to tourney exit](https://news.yahoo.com/creighton-takes-blame-foul-leads-001526281.html)
-- Mar 26 - [Miller, Wong rally Miami past Texas 88-81 for 1st Final Four](https://news.yahoo.com/miller-wong-rally-miami-past-233619652.html)
-- Mar 26 - [Charles Barkley opens up about end of friendship with Michael Jordan](https://news.yahoo.com/charles-barkley-opens-end-friendship-233442780.html)
 <!-- feed end -->
