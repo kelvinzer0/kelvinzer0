@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 27 - [Who is the female Nashville school shooter who killed six at private Christian school?](https://news.yahoo.com/female-nashville-school-shooter-killed-195734711.html)
-- Mar 27 - ['It's sick': Biden again calls for assault weapons ban after school shooting in Nashville](https://news.yahoo.com/sick-biden-again-calls-assault-193456037.html)
+- Mar 27 - [2 fishermen caught cheating at Ohio tournament plead guilty](https://news.yahoo.com/2-fishermen-caught-cheating-ohio-201650507.html)
+- Mar 27 - [7 dead, including female shooter and 3 children, at Nashville Christian school: Here's everything we know](https://news.yahoo.com/female-shooter-nashville-covenant-school-mass-shooting-200014093.html)
 - Mar 27 - [DeSantis 'parental rights' push leads to pulled civil rights film, ousted principal](https://news.yahoo.com/ron-desantis-florida-education-policy-ruby-bridges-film-books-michelangelo-192408712.html)
 - Mar 27 - [Congressman who represents the Nashville district involved in deadly school shooting posted a gun-toting family photo for Christmas in 2021](https://news.yahoo.com/congressman-represents-nashville-district-involved-190153207.html)
-- Mar 27 - [Xi Jinping’s plan to annex Russian territory is there for all to see](https://news.yahoo.com/xi-jinping-plan-annex-russian-190000385.html)
 <!-- feed end -->
