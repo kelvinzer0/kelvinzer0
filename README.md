@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 27 - [College athlete influencers confront security concerns](https://news.yahoo.com/college-athlete-influencers-confront-security-144610498.html)
+- Mar 27 - [Supreme Court rejects case of Oklahoma teen killed by police](https://news.yahoo.com/supreme-court-rejects-case-oklahoma-143347559.html)
+- Mar 27 - [My college boyfriend and I made a marriage pact at Georgetown, but he cheated on me. Our breakup was a blessing.](https://news.yahoo.com/college-boyfriend-made-marriage-pact-140343363.html)
+- Mar 27 - [Sheriff: Man who fled traffic stop shoots officer in Florida](https://news.yahoo.com/sheriff-man-fled-traffic-shot-135338077.html)
 - Mar 27 - [Man who went missing in 2021 now found safe hundreds of miles away in Texas, cops say](https://news.yahoo.com/man-went-missing-2021-now-134539952.html)
-- Mar 27 - [Report: Queen Elizabeth II asked Germany for pricey horses](https://news.yahoo.com/report-queen-elizabeth-ii-asked-134138976.html)
-- Mar 27 - [Macron holds crisis meeting as more France protests loom](https://news.yahoo.com/macron-holds-crisis-meeting-more-133125014.html)
-- Mar 27 - [Weapons firm says it can't meet soaring demand for artillery shells because a TikTok data center is eating all the electricity](https://news.yahoo.com/weapons-firm-says-cant-meet-125739767.html)
-- Mar 27 - [Key takeaways from AP’s report on China's influence in Utah](https://news.yahoo.com/key-takeaways-ap-report-chinas-123735761.html)
 <!-- feed end -->
