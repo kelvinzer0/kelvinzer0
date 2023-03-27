@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 27 - [Everyone Is Supporting Blac Chyna After She Announced She Wants To Reclaim Her Birth Name](https://news.yahoo.com/everyone-supporting-blac-chyna-she-064427017.html)
+- Mar 27 - [Covenant School shooting updates: 3 children, 3 adults dead after woman opens fire in Nashville](https://news.yahoo.com/covenant-school-shooting-updates-suspected-161851420.html)
+- Mar 27 - [Mom Hijacks Fox News Airwaves to Call for Gun Safety: ‘Aren’t You Guys Tired of Covering This?’](https://news.yahoo.com/mom-hijacks-fox-news-airwaves-183322695.html)
+- Mar 27 - [A TikToker captured the moment a flower seed 'popped out' of her cheek after being lodged there for three weeks, as followers breathed a sigh of relief](https://news.yahoo.com/tiktoker-captured-moment-flower-seed-180432104.html)
 - Mar 27 - ['You chose the wrong person': video shows more details of Oklahoma Rep. Dean Davis arrest](https://news.yahoo.com/chose-wrong-person-video-shows-224805733.html)
-- Mar 27 - [Gwyneth Paltrow's accuser describes moment of impact during ski crash](https://news.yahoo.com/gwyneth-paltrow-ski-trial-accuser-165157978.html)
-- Mar 27 - ['John Wick 4' star Rina Sawayama says that Keanu Reeves 'looked after me a lot' after she threw out her back on set](https://news.yahoo.com/john-wick-4-star-rina-164658505.html)
-- Mar 27 - [Anti-Obamacare Law Comes Back to Bite Republicans on Abortion](https://news.yahoo.com/anti-obamacare-law-comes-back-164500668.html)
-- Mar 27 - [Patriots owner Robert Kraft launches antisemitism campaign](https://news.yahoo.com/patriots-owner-robert-kraft-launches-164429712.html)
 <!-- feed end -->
