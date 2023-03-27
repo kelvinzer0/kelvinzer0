@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 27 - [Creighton takes blame after late foul leads to tourney exit](https://news.yahoo.com/creighton-takes-blame-foul-leads-001526281.html)
+- Mar 26 - [Charles Barkley opens up about end of friendship with Michael Jordan](https://news.yahoo.com/charles-barkley-opens-end-friendship-233442780.html)
+- Mar 26 - ['You chose the wrong person': video shows more details of Oklahoma Rep. Dean Davis arrest](https://news.yahoo.com/chose-wrong-person-video-shows-224805733.html)
+- Mar 26 - [Final Four newcomers: Grab your name tag at the door](https://news.yahoo.com/final-four-newcomers-grab-name-212823204.html)
 - Mar 26 - ["If You Did That In The US, People Would Assume You Have A Problem": Americans Are Sharing Things They Find Strange About European Culture](https://news.yahoo.com/did-us-people-assume-problem-204443975.html)
-- Mar 26 - [Texas without star Dylan Disu for regional final vs. Miami](https://news.yahoo.com/texas-without-star-dylan-disu-201755032.html)
-- Mar 26 - [Diane Keaton Hasn't Dated Anyone In 35 Years, And Her Reason Why Is Going Viral](https://news.yahoo.com/diane-keaton-hasnt-dated-anyone-033349024.html)
-- Mar 26 - [LeBron James returns but doesn't start after month's absence](https://news.yahoo.com/lebron-james-returns-doesnt-start-191606425.html)
-- Mar 26 - [Family of missing 6-year-old left Texas on international flight before Amber Alert issued](https://news.yahoo.com/family-missing-6-old-left-191304722.html)
 <!-- feed end -->
