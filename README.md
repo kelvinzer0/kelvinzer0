@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 27 - [Tokyo demands China free Japan national detained in Beijing](https://news.yahoo.com/tokyo-demands-china-free-japan-055018615.html)
+- Mar 27 - [17 Actors Who Admitted To Only Taking A Role For The Money](https://news.yahoo.com/17-actors-admitted-only-taking-202507067.html)
 - Mar 27 - [Twenty years on, reflection and regret on 2002 Iraq war vote](https://news.yahoo.com/twenty-years-reflection-regret-2002-041335510.html)
-- Mar 27 - [DeSantis team welcomes contrast with Trump 'chaos' candidacy](https://news.yahoo.com/desantis-team-welcomes-contrast-trump-041230585.html)
 - Mar 27 - [Russian town shocked by case of child's Ukraine drawing](https://news.yahoo.com/russian-town-shocked-case-childs-030232324.html)
 - Mar 27 - [Meet the couple who opened their 11-year marriage to a divorced father so they could grow emotionally and sexually](https://news.yahoo.com/meet-couple-opened-11-marriage-030000417.html)
-- Mar 27 - [Satellite images show breadth of massive seaweed belt stretching across the Atlantic Ocean](https://news.yahoo.com/satellite-images-show-breadth-massive-014537089.html)
 <!-- feed end -->
