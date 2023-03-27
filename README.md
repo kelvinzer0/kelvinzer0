@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - [Everyone Is Supporting Blac Chyna After She Announced She Wants To Reclaim Her Birth Name](https://news.yahoo.com/everyone-supporting-blac-chyna-she-064427017.html)
-- Mar 27 - [Covenant School shooting updates: 3 children, 3 adults dead after woman opens fire in Nashville](https://news.yahoo.com/covenant-school-shooting-updates-suspected-161851420.html)
-- Mar 27 - [Mom Hijacks Fox News Airwaves to Call for Gun Safety: ‘Aren’t You Guys Tired of Covering This?’](https://news.yahoo.com/mom-hijacks-fox-news-airwaves-183322695.html)
-- Mar 27 - [A TikToker captured the moment a flower seed 'popped out' of her cheek after being lodged there for three weeks, as followers breathed a sigh of relief](https://news.yahoo.com/tiktoker-captured-moment-flower-seed-180432104.html)
-- Mar 27 - ['You chose the wrong person': video shows more details of Oklahoma Rep. Dean Davis arrest](https://news.yahoo.com/chose-wrong-person-video-shows-224805733.html)
+- Mar 27 - [Who is the female Nashville school shooter who killed six at private Christian school?](https://news.yahoo.com/female-nashville-school-shooter-killed-195734711.html)
+- Mar 27 - ['It's sick': Biden again calls for assault weapons ban after school shooting in Nashville](https://news.yahoo.com/sick-biden-again-calls-assault-193456037.html)
+- Mar 27 - [DeSantis 'parental rights' push leads to pulled civil rights film, ousted principal](https://news.yahoo.com/ron-desantis-florida-education-policy-ruby-bridges-film-books-michelangelo-192408712.html)
+- Mar 27 - [Congressman who represents the Nashville district involved in deadly school shooting posted a gun-toting family photo for Christmas in 2021](https://news.yahoo.com/congressman-represents-nashville-district-involved-190153207.html)
+- Mar 27 - [Xi Jinping’s plan to annex Russian territory is there for all to see](https://news.yahoo.com/xi-jinping-plan-annex-russian-190000385.html)
 <!-- feed end -->
