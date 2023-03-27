@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - [2,000-year-old artifacts unearthed by archaeologists in Pompeii. See what they found](https://news.yahoo.com/2-000-old-artifacts-unearthed-214451501.html)
-- Mar 27 - [San Diego State shutting down foes with disruptive defense](https://news.yahoo.com/san-diego-state-shutting-down-214215563.html)
-- Mar 27 - [New source of water found in moon samples from China mission](https://news.yahoo.com/source-water-found-moon-samples-210037862.html)
-- Mar 27 - [Jerry Jones says Dallas Cowboys gave released RB Ezekiel Elliott ‘everything we had’](https://news.yahoo.com/jerry-jones-says-dallas-cowboys-204507050.html)
+- Mar 27 - [Who is the Nashville school shooter who killed six at private Christian school?](https://news.yahoo.com/female-nashville-school-shooter-killed-195734711.html)
+- Mar 27 - [Police found Nashville Christian school shooter's manifesto and maps](https://news.yahoo.com/police-found-nashville-christian-school-223903131.html)
 - Mar 27 - [Hayden Panettiere says she almost 'pooped, puked,' and 'fainted' while recording music for 'Nashville' because she wasn't properly trained](https://news.yahoo.com/hayden-panettiere-says-she-almost-202640677.html)
+- Mar 27 - [Trump rape case: After years of back and forth over Trump's DNA, jurors won't even hear about it](https://news.yahoo.com/trump-rape-case-years-back-202620636.html)
+- Mar 27 - [2 fishermen caught cheating at Ohio tournament plead guilty](https://news.yahoo.com/2-fishermen-caught-cheating-ohio-201650507.html)
 <!-- feed end -->
