@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 27 - [Reese, LSU women push past Miami 54-42 to reach Final Four](https://news.yahoo.com/reese-lsu-women-push-past-014017870.html)
+- Mar 27 - [UK report: Black kids 6 times likelier to be strip-searched](https://news.yahoo.com/uk-report-black-kids-6-013043282.html)
+- Mar 27 - [Terry emotional as Texas' run ends; his job status uncertain](https://news.yahoo.com/terry-emotional-texas-run-ends-011116720.html)
+- Mar 27 - [Jon Stewart sarcastically says 'what's happened to our country' after being asked about a potential Trump indictment: 'It's as though you can't even commit financial fraud anymore'](https://news.yahoo.com/jon-stewart-sarcastically-says-whats-005639144.html)
 - Mar 27 - [Creighton takes blame after late foul leads to tourney exit](https://news.yahoo.com/creighton-takes-blame-foul-leads-001526281.html)
-- Mar 26 - [Charles Barkley opens up about end of friendship with Michael Jordan](https://news.yahoo.com/charles-barkley-opens-end-friendship-233442780.html)
-- Mar 26 - ['You chose the wrong person': video shows more details of Oklahoma Rep. Dean Davis arrest](https://news.yahoo.com/chose-wrong-person-video-shows-224805733.html)
-- Mar 26 - [Final Four newcomers: Grab your name tag at the door](https://news.yahoo.com/final-four-newcomers-grab-name-212823204.html)
-- Mar 26 - ["If You Did That In The US, People Would Assume You Have A Problem": Americans Are Sharing Things They Find Strange About European Culture](https://news.yahoo.com/did-us-people-assume-problem-204443975.html)
 <!-- feed end -->
