@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - [Who is the female Nashville school shooter who killed six at private Christian school?](https://news.yahoo.com/female-nashville-school-shooter-killed-195734711.html)
-- Mar 27 - [2 fishermen caught cheating at Ohio tournament plead guilty](https://news.yahoo.com/2-fishermen-caught-cheating-ohio-201650507.html)
-- Mar 27 - [7 dead, including female shooter and 3 children, at Nashville Christian school: Here's everything we know](https://news.yahoo.com/female-shooter-nashville-covenant-school-mass-shooting-200014093.html)
-- Mar 27 - [DeSantis 'parental rights' push leads to pulled civil rights film, ousted principal](https://news.yahoo.com/ron-desantis-florida-education-policy-ruby-bridges-film-books-michelangelo-192408712.html)
-- Mar 27 - [Congressman who represents the Nashville district involved in deadly school shooting posted a gun-toting family photo for Christmas in 2021](https://news.yahoo.com/congressman-represents-nashville-district-involved-190153207.html)
+- Mar 27 - [2,000-year-old artifacts unearthed by archaeologists in Pompeii. See what they found](https://news.yahoo.com/2-000-old-artifacts-unearthed-214451501.html)
+- Mar 27 - [San Diego State shutting down foes with disruptive defense](https://news.yahoo.com/san-diego-state-shutting-down-214215563.html)
+- Mar 27 - [New source of water found in moon samples from China mission](https://news.yahoo.com/source-water-found-moon-samples-210037862.html)
+- Mar 27 - [Jerry Jones says Dallas Cowboys gave released RB Ezekiel Elliott ‘everything we had’](https://news.yahoo.com/jerry-jones-says-dallas-cowboys-204507050.html)
+- Mar 27 - [Hayden Panettiere says she almost 'pooped, puked,' and 'fainted' while recording music for 'Nashville' because she wasn't properly trained](https://news.yahoo.com/hayden-panettiere-says-she-almost-202640677.html)
 <!-- feed end -->
