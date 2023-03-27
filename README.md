@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - [Remains ID'd of U.S. airman shot down in Germany during WWII](https://news.yahoo.com/remains-idd-u-airman-shot-164335072.html)
-- Mar 27 - [Massive protests in Israel erupt overnight against Netanyahu's judiciary reform continue](https://news.yahoo.com/massive-protests-israel-erupt-overnight-135918519.html)
-- Mar 27 - [Hungarian parliament approves Finland’s bid to join NATO](https://news.yahoo.com/hungarian-parliament-approves-finland-bid-163447222.html)
-- Mar 27 - [Georgia judge orders prosecutors to reply to Trump challenge](https://news.yahoo.com/georgia-judge-orders-prosecutors-reply-161657251.html)
-- Mar 27 - [What is the healthiest fruit? This one is high in antioxidants and has cognitive and cardiovascular benefits.](https://news.yahoo.com/healthiest-fruit-one-high-antioxidants-110011977.html)
+- Mar 27 - ['You chose the wrong person': video shows more details of Oklahoma Rep. Dean Davis arrest](https://news.yahoo.com/chose-wrong-person-video-shows-224805733.html)
+- Mar 27 - [Gwyneth Paltrow's accuser describes moment of impact during ski crash](https://news.yahoo.com/gwyneth-paltrow-ski-trial-accuser-165157978.html)
+- Mar 27 - ['John Wick 4' star Rina Sawayama says that Keanu Reeves 'looked after me a lot' after she threw out her back on set](https://news.yahoo.com/john-wick-4-star-rina-164658505.html)
+- Mar 27 - [Anti-Obamacare Law Comes Back to Bite Republicans on Abortion](https://news.yahoo.com/anti-obamacare-law-comes-back-164500668.html)
+- Mar 27 - [Patriots owner Robert Kraft launches antisemitism campaign](https://news.yahoo.com/patriots-owner-robert-kraft-launches-164429712.html)
 <!-- feed end -->
