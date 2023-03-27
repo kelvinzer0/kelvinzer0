@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - [College athlete influencers confront security concerns](https://news.yahoo.com/college-athlete-influencers-confront-security-144610498.html)
-- Mar 27 - [Supreme Court rejects case of Oklahoma teen killed by police](https://news.yahoo.com/supreme-court-rejects-case-oklahoma-143347559.html)
-- Mar 27 - [My college boyfriend and I made a marriage pact at Georgetown, but he cheated on me. Our breakup was a blessing.](https://news.yahoo.com/college-boyfriend-made-marriage-pact-140343363.html)
-- Mar 27 - [Sheriff: Man who fled traffic stop shoots officer in Florida](https://news.yahoo.com/sheriff-man-fled-traffic-shot-135338077.html)
-- Mar 27 - [Man who went missing in 2021 now found safe hundreds of miles away in Texas, cops say](https://news.yahoo.com/man-went-missing-2021-now-134539952.html)
+- Mar 27 - [Humza Yousaf wins Scottish leadership race](https://news.yahoo.com/humza-yousaf-wins-scottish-leadership-153733121.html)
+- Mar 27 - [Fox’s Kilmeade: ‘Insane’ for Trump to feature Jan. 6 footage at rally](https://news.yahoo.com/fox-kilmeade-insane-trump-feature-152330588.html)
+- Mar 27 - [No atmosphere found at faraway Earth-sized world, study says](https://news.yahoo.com/no-atmosphere-found-faraway-earth-152125542.html)
+- Mar 27 - [In Trump probe, Manhattan grand jury is back at work](https://news.yahoo.com/trump-probe-manhattan-grand-jury-150243626.html)
+- Mar 27 - [Fact check: Statement from Stormy Daniels denying an affair with Trump is from 2018](https://news.yahoo.com/fact-check-statement-stormy-daniels-145859036.html)
 <!-- feed end -->
