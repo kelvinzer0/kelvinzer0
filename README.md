@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 28 - [What we know about the Nashville Christian school shooting](https://news.yahoo.com/know-nashville-christian-school-shooting-124342054.html)
+- Mar 28 - [Russia convicts father of teen who drew antiwar pictures](https://news.yahoo.com/russia-convicts-father-teen-drew-134257735.html)
+- Mar 28 - [Nashville School Shooter Messaged Friend Minutes Before Massacre](https://news.yahoo.com/nashville-school-shooter-messaged-friend-122701752.html)
+- Mar 28 - [Hugh Grant says movie sets 'are so weird now' as actors no longer get drunk and fall 'in love with each other' because of mobile phones: 'It's so sad'](https://news.yahoo.com/hugh-grant-says-movie-sets-122429986.html)
 - Mar 28 - [California's  'phantom lake' returns with a vengeance, unearthing an ugly history of water](https://news.yahoo.com/californias-phantom-lake-returns-vengeance-120030115.html)
-- Mar 28 - [‘I’m worried about my wife’s relationship with her so-called best friend’](https://news.yahoo.com/m-worried-wife-relationship-her-115939929.html)
 - Mar 28 - [Emily Ratajkowski Is Apparently “Begging” Olivia Wilde For “Forgiveness” Amid Reports That Her Viral Kiss With Harry Styles Was A Major “Betrayal” Weeks After They Were Seen Hanging Out](https://news.yahoo.com/emily-ratajkowski-apparently-begging-olivia-115220098.html)
-- Mar 28 - [Elizabeth Warren's Slip Of The Tongue Sparks Strong Reactions On Twitter](https://news.yahoo.com/elizabeth-warrens-slip-tongue-sparks-112946871.html)
 <!-- feed end -->
