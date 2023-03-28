@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 28 - [Jimmy Kimmel Fact-Checks Trump's Crowd-Size Boast With A Damning Photo](https://news.yahoo.com/jimmy-kimmel-fact-checks-trumps-060209523.html)
 - Mar 28 - [Nashville shooter was ex-student with detailed plan to kill](https://news.yahoo.com/nashville-shooter-ex-student-detailed-050422766.html)
-- Mar 28 - [Gwyneth Paltrow's experts to testify in Utah ski crash case](https://news.yahoo.com/gwyneth-paltrows-experts-testify-utah-050305670.html)
 - Mar 28 - [Gwyneth Paltrow's family ski instructor testified that 'Ms. Paltrow doesn't go down the hill screaming' while defending the actress' skiing prowess during collision trial](https://news.yahoo.com/gwyneth-paltrows-family-ski-instructor-012042635.html)
+- Mar 28 - [Doctor decries gun violence after school shooting near miss](https://news.yahoo.com/doctor-decries-gun-violence-school-011253382.html)
 - Mar 28 - [El Salvador marks its first year under anti-gang crackdown](https://news.yahoo.com/el-salvador-marks-first-under-010905611.html)
 <!-- feed end -->
