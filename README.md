@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 28 - [AP sources: No more action from Trump grand jury this week](https://news.yahoo.com/ap-sources-no-more-action-202901520.html)
+- Mar 28 - [Trump supporter pulled knife on family with children outside Manhattan courthouse](https://news.yahoo.com/trump-supporter-pulled-knife-family-225311614.html)
+- Mar 28 - [Twitter restricts Greene’s congressional account over ‘vengeance’ post](https://news.yahoo.com/twitter-restricts-greene-congressional-account-220321528.html)
+- Mar 28 - [Tom Brady shares pics from a beach day with 3 kids and former NFL teammates](https://news.yahoo.com/tom-brady-shares-pics-beach-214355816.html)
+- Mar 28 - [Kieran Culkin says he felt bad for his older brother Macaulay amid his massive, post-'Home Alone' fame, even as a kid: 'That sucks for him'](https://news.yahoo.com/kieran-culkin-says-felt-bad-212949476.html)
 - Mar 28 - [Police: Aaron Hernandez's brother arrested in ESPN incident](https://news.yahoo.com/police-aaron-hernandezs-brother-arrested-192526895.html)
-- Mar 28 - [Nashville Shooter Amassed an Arsenal Despite Being Under Doctor’s Care](https://news.yahoo.com/nashville-shooter-amassed-arsenal-despite-185247133.html)
-- Mar 28 - [Fox contributor: Trump was ‘absolutely horrific’ during Hannity interview](https://news.yahoo.com/fox-contributor-trump-absolutely-horrific-184646828.html)
-- Mar 28 - [Judge Cracks Down Harshly on Misbehaving Sam Bankman-Fried](https://news.yahoo.com/judge-cracks-down-harshly-misbehaving-175751954.html)
 <!-- feed end -->
