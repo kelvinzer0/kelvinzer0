@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 28 - [15 Iconic TV Relationships That Only Happened Because A Guest Star Had INTENSE Onscreen Chemistry With A Star](https://news.yahoo.com/15-iconic-tv-relationships-only-232933762.html)
 - Mar 28 - [Man accused of stabbing Senate staffer after prison release](https://news.yahoo.com/man-accused-stabbing-senate-staffer-175651899.html)
-- Mar 28 - [New clashes erupt in France pension protests](https://news.yahoo.com/clashes-erupt-france-pension-protests-174847558.html)
-- Mar 28 - [AP Sources: Judge rules Pence must testify before grand jury](https://news.yahoo.com/ap-sources-judge-rules-pence-174426065.html)
-- Mar 28 - [Biden implores Congress to pass assault weapons ban](https://news.yahoo.com/biden-implores-congress-pass-assault-173605131.html)
 - Mar 28 - [Nashville police who took out a school shooter in minutes appeared to call out Uvalde's officers, saying 'we will never wait to make entry' to 'stop a threat'](https://news.yahoo.com/nashville-police-took-school-shooter-171951294.html)
+- Mar 28 - [John Leguizamo jokes that if white actors keep getting cast in Latino roles, he's going to cast himself as Gwyneth Paltrow in a movie about her ski accident trial](https://news.yahoo.com/john-leguizamo-jokes-white-actors-164853541.html)
+- Mar 28 - ['Jeopardy!' host Ken Jennings slammed for questionable ruling against contestant: 'Robbed of his points'](https://news.yahoo.com/jeopardy-host-ken-jennings-slammed-164306778.html)
 <!-- feed end -->
