@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 28 - [15 Iconic TV Relationships That Only Happened Because A Guest Star Had INTENSE Onscreen Chemistry With A Star](https://news.yahoo.com/15-iconic-tv-relationships-only-232933762.html)
-- Mar 28 - [Man accused of stabbing Senate staffer after prison release](https://news.yahoo.com/man-accused-stabbing-senate-staffer-175651899.html)
-- Mar 28 - [Nashville police who took out a school shooter in minutes appeared to call out Uvalde's officers, saying 'we will never wait to make entry' to 'stop a threat'](https://news.yahoo.com/nashville-police-took-school-shooter-171951294.html)
-- Mar 28 - [John Leguizamo jokes that if white actors keep getting cast in Latino roles, he's going to cast himself as Gwyneth Paltrow in a movie about her ski accident trial](https://news.yahoo.com/john-leguizamo-jokes-white-actors-164853541.html)
-- Mar 28 - ['Jeopardy!' host Ken Jennings slammed for questionable ruling against contestant: 'Robbed of his points'](https://news.yahoo.com/jeopardy-host-ken-jennings-slammed-164306778.html)
+- Mar 28 - [Police: Aaron Hernandez's brother arrested in ESPN incident](https://news.yahoo.com/police-aaron-hernandezs-brother-arrested-192526895.html)
+- Mar 28 - [Nashville Shooter Amassed an Arsenal Despite Being Under Doctor’s Care](https://news.yahoo.com/nashville-shooter-amassed-arsenal-despite-185247133.html)
+- Mar 28 - [Fox contributor: Trump was ‘absolutely horrific’ during Hannity interview](https://news.yahoo.com/fox-contributor-trump-absolutely-horrific-184646828.html)
+- Mar 28 - [North Korea's showing off an underwater nuclear attack drone it says can cause a 'radioactive tsunami,' but the threat is likely 'exaggerated'](https://news.yahoo.com/north-koreas-showing-off-underwater-181327628.html)
+- Mar 28 - [Judge Cracks Down Harshly on Misbehaving Sam Bankman-Fried](https://news.yahoo.com/judge-cracks-down-harshly-misbehaving-175751954.html)
 <!-- feed end -->
