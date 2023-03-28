@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 28 - [Interior Designer Fixes 5 People's Bedrooms](https://news.yahoo.com/interior-designer-fixes-5-peoples-160000382.html)
+- Mar 28 - [Police release bodycam footage of Nashville school shooter: Here's everything we know](https://news.yahoo.com/nashville-school-shooting-police-body-cam-surveillance-video-164353296.html)
+- Mar 28 - [Tennessee Republican responds to school shooting: ‘We’re not gonna fix it’](https://news.yahoo.com/tennessee-republican-responds-school-shooting-160312320.html)
 - Mar 28 - [Matt Damon's daughters make rare red carpet appearance with their parents](https://news.yahoo.com/matt-damons-daughters-rare-red-155647944.html)
 - Mar 28 - [Residents of historically Black town sue to stop land sale](https://news.yahoo.com/residents-historically-black-town-sue-153810631.html)
-- Mar 28 - [Brazil has a new biggest favela, and not in Rio de Janeiro](https://news.yahoo.com/brazil-biggest-favela-not-rio-152900593.html)
 - Mar 28 - [Intense Bodycam Footage Shows Cops Confronting Nashville School Shooter](https://news.yahoo.com/intense-bodycam-footage-shows-cops-150147050.html)
 <!-- feed end -->
