@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 28 - [Police release bodycam footage of Nashville school shooter: Here's everything we know](https://news.yahoo.com/nashville-school-shooting-police-body-cam-surveillance-video-164353296.html)
-- Mar 28 - [Tennessee Republican responds to school shooting: ‘We’re not gonna fix it’](https://news.yahoo.com/tennessee-republican-responds-school-shooting-160312320.html)
-- Mar 28 - [Matt Damon's daughters make rare red carpet appearance with their parents](https://news.yahoo.com/matt-damons-daughters-rare-red-155647944.html)
-- Mar 28 - [Residents of historically Black town sue to stop land sale](https://news.yahoo.com/residents-historically-black-town-sue-153810631.html)
-- Mar 28 - [Intense Bodycam Footage Shows Cops Confronting Nashville School Shooter](https://news.yahoo.com/intense-bodycam-footage-shows-cops-150147050.html)
+- Mar 28 - [Man accused of stabbing Senate staffer after prison release](https://news.yahoo.com/man-accused-stabbing-senate-staffer-175651899.html)
+- Mar 28 - [New clashes erupt in France pension protests](https://news.yahoo.com/clashes-erupt-france-pension-protests-174847558.html)
+- Mar 28 - [AP Sources: Judge rules Pence must testify before grand jury](https://news.yahoo.com/ap-sources-judge-rules-pence-174426065.html)
+- Mar 28 - [Biden implores Congress to pass assault weapons ban](https://news.yahoo.com/biden-implores-congress-pass-assault-173605131.html)
+- Mar 28 - [Nashville police who took out a school shooter in minutes appeared to call out Uvalde's officers, saying 'we will never wait to make entry' to 'stop a threat'](https://news.yahoo.com/nashville-police-took-school-shooter-171951294.html)
 <!-- feed end -->
