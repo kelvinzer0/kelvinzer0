@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 28 - [Doctor decries gun violence after school shooting near miss](https://news.yahoo.com/doctor-decries-gun-violence-school-011253382.html)
-- Mar 28 - [El Salvador marks its first year under anti-gang crackdown](https://news.yahoo.com/el-salvador-marks-first-under-010905611.html)
+- Mar 28 - [After Nashville school shooting, Nikki Haley tells voters she is against gun control legislation](https://news.yahoo.com/nashville-school-shooting-nikki-haley-012231626.html)
+- Mar 28 - [Gwyneth Paltrow's family ski instructor testified that 'Ms. Paltrow doesn't go down the hill screaming' while defending the actress' skiing prowess during collision trial](https://news.yahoo.com/gwyneth-paltrows-family-ski-instructor-012042635.html)
 - Mar 28 - [Christie: GOP needs someone who can quickly take down Trump](https://news.yahoo.com/christie-gop-needs-someone-quickly-003419937.html)
 - Mar 28 - ['A tragic situation': Missing California mom, 7-year-old boy found dead after toddler reports them missing](https://news.yahoo.com/tragic-situation-missing-california-mom-225541838.html)
-- Mar 28 - [Who is the Nashville school shooter who killed six at private Christian school?](https://news.yahoo.com/female-nashville-school-shooter-killed-195734711.html)
+- Mar 28 - [Jim Jordan Demands IRS Explain Unannounced Visit to Matt Taibbi’s Home](https://news.yahoo.com/jim-jordan-demands-irs-explain-000928790.html)
 <!-- feed end -->
