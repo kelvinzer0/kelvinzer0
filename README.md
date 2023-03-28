@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 28 - [California farmers flood fields to boost groundwater basin](https://news.yahoo.com/california-farmers-flood-fields-boost-092008514.html)
-- Mar 28 - [A North Korean defector says she and others like her are struggling to survive in the South: 'I want to go back and die there — South Korea is as suffocating as the North'](https://news.yahoo.com/north-korean-defector-says-she-091956548.html)
-- Mar 28 - [Man uses tracking device to locate his stolen luggage at Atlanta Hartsfield-Jackson](https://news.yahoo.com/shirt-insane-man-uses-tracking-040312054.html)
-- Mar 28 - [Chris Christie Warns: 'It's Not Gonna End Nicely' For Donald Trump](https://news.yahoo.com/chris-christie-warns-not-gonna-073433304.html)
-- Mar 28 - [Shattered: Catholic community confronts its founder's lies](https://news.yahoo.com/shattered-catholic-community-confronts-founders-070754261.html)
+- Mar 28 - [Elizabeth Warren's Slip Of The Tongue Sparks Strong Reactions On Twitter](https://news.yahoo.com/elizabeth-warrens-slip-tongue-sparks-112946871.html)
+- Mar 28 - [What the US and China agreed on and who will replace Putin](https://news.yahoo.com/us-china-agreed-replace-putin-104600250.html)
+- Mar 28 - [Billionaire's son admits student died in London after 'sex accident' but refuses to return to UK](https://news.yahoo.com/billionaires-son-admits-student-died-103906377.html)
+- Mar 28 - [Nashville school shooting: Trans killer's gender identity investigated as possible motive](https://news.yahoo.com/nashville-school-shooting-ex-student-043909254.html)
+- Mar 28 - [Hundreds of fencers protest against letting Russians compete](https://news.yahoo.com/hundreds-fencers-protest-against-letting-094336212.html)
 <!-- feed end -->
