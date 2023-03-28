@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 28 - [Nashville school shooting victims include pastor's daughter](https://news.yahoo.com/nashville-school-shooting-victims-pastors-144848040.html)
-- Mar 28 - [India's warm weather plans can't take the heat, report says](https://news.yahoo.com/indias-warm-weather-plans-cant-141700152.html)
-- Mar 28 - [Trump says he feels like Elvis after Jan. 6 choir song hits number one on the charts](https://news.yahoo.com/trump-says-feels-elvis-jan-131638559.html)
-- Mar 28 - [Nashville School Shooter Messaged Friend Minutes Before Massacre](https://news.yahoo.com/nashville-school-shooter-messaged-friend-122701752.html)
-- Mar 28 - [Hugh Grant says movie sets 'are so weird now' as actors no longer get drunk and fall 'in love with each other' because of mobile phones: 'It's so sad'](https://news.yahoo.com/hugh-grant-says-movie-sets-122429986.html)
+- Mar 28 - [Interior Designer Fixes 5 People's Bedrooms](https://news.yahoo.com/interior-designer-fixes-5-peoples-160000382.html)
+- Mar 28 - [Matt Damon's daughters make rare red carpet appearance with their parents](https://news.yahoo.com/matt-damons-daughters-rare-red-155647944.html)
+- Mar 28 - [Residents of historically Black town sue to stop land sale](https://news.yahoo.com/residents-historically-black-town-sue-153810631.html)
+- Mar 28 - [Brazil has a new biggest favela, and not in Rio de Janeiro](https://news.yahoo.com/brazil-biggest-favela-not-rio-152900593.html)
+- Mar 28 - [Intense Bodycam Footage Shows Cops Confronting Nashville School Shooter](https://news.yahoo.com/intense-bodycam-footage-shows-cops-150147050.html)
 <!-- feed end -->
