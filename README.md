@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 28 - [California farmers flood fields to boost groundwater basin](https://news.yahoo.com/california-farmers-flood-fields-boost-092008514.html)
+- Mar 28 - [A North Korean defector says she and others like her are struggling to survive in the South: 'I want to go back and die there — South Korea is as suffocating as the North'](https://news.yahoo.com/north-korean-defector-says-she-091956548.html)
+- Mar 28 - [Man uses tracking device to locate his stolen luggage at Atlanta Hartsfield-Jackson](https://news.yahoo.com/shirt-insane-man-uses-tracking-040312054.html)
 - Mar 28 - [Chris Christie Warns: 'It's Not Gonna End Nicely' For Donald Trump](https://news.yahoo.com/chris-christie-warns-not-gonna-073433304.html)
 - Mar 28 - [Shattered: Catholic community confronts its founder's lies](https://news.yahoo.com/shattered-catholic-community-confronts-founders-070754261.html)
-- Mar 28 - [Ron DeSantis is facing another ethics complaint — this time accusing him of accepting a $235,000, 3-day retreat to the Four Seasons Palm Beach](https://news.yahoo.com/ron-desantis-facing-another-ethics-062349523.html)
-- Mar 28 - [Jimmy Kimmel Fact-Checks Trump's Crowd-Size Boast With A Damning Photo](https://news.yahoo.com/jimmy-kimmel-fact-checks-trumps-060209523.html)
-- Mar 28 - [Nashville shooter was ex-student with detailed plan to kill](https://news.yahoo.com/nashville-shooter-ex-student-detailed-050422766.html)
 <!-- feed end -->
