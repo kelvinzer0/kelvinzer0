@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 28 - [What we know about the Nashville Christian school shooting](https://news.yahoo.com/know-nashville-christian-school-shooting-124342054.html)
+- Mar 28 - [California's  'phantom lake' returns with a vengeance, unearthing an ugly history of water](https://news.yahoo.com/californias-phantom-lake-returns-vengeance-120030115.html)
+- Mar 28 - [‘I’m worried about my wife’s relationship with her so-called best friend’](https://news.yahoo.com/m-worried-wife-relationship-her-115939929.html)
+- Mar 28 - [Emily Ratajkowski Is Apparently “Begging” Olivia Wilde For “Forgiveness” Amid Reports That Her Viral Kiss With Harry Styles Was A Major “Betrayal” Weeks After They Were Seen Hanging Out](https://news.yahoo.com/emily-ratajkowski-apparently-begging-olivia-115220098.html)
 - Mar 28 - [Elizabeth Warren's Slip Of The Tongue Sparks Strong Reactions On Twitter](https://news.yahoo.com/elizabeth-warrens-slip-tongue-sparks-112946871.html)
-- Mar 28 - [What the US and China agreed on and who will replace Putin](https://news.yahoo.com/us-china-agreed-replace-putin-104600250.html)
-- Mar 28 - [Billionaire's son admits student died in London after 'sex accident' but refuses to return to UK](https://news.yahoo.com/billionaires-son-admits-student-died-103906377.html)
-- Mar 28 - [Nashville school shooting: Trans killer's gender identity investigated as possible motive](https://news.yahoo.com/nashville-school-shooting-ex-student-043909254.html)
-- Mar 28 - [Hundreds of fencers protest against letting Russians compete](https://news.yahoo.com/hundreds-fencers-protest-against-letting-094336212.html)
 <!-- feed end -->
