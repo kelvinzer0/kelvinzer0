@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 27 - [Who is the Nashville school shooter who killed six at private Christian school?](https://news.yahoo.com/female-nashville-school-shooter-killed-195734711.html)
-- Mar 27 - [Police found Nashville Christian school shooter's manifesto and maps](https://news.yahoo.com/police-found-nashville-christian-school-223903131.html)
-- Mar 27 - [Hayden Panettiere says she almost 'pooped, puked,' and 'fainted' while recording music for 'Nashville' because she wasn't properly trained](https://news.yahoo.com/hayden-panettiere-says-she-almost-202640677.html)
-- Mar 27 - [Trump rape case: After years of back and forth over Trump's DNA, jurors won't even hear about it](https://news.yahoo.com/trump-rape-case-years-back-202620636.html)
-- Mar 27 - [2 fishermen caught cheating at Ohio tournament plead guilty](https://news.yahoo.com/2-fishermen-caught-cheating-ohio-201650507.html)
+- Mar 28 - [Doctor decries gun violence after school shooting near miss](https://news.yahoo.com/doctor-decries-gun-violence-school-011253382.html)
+- Mar 28 - [El Salvador marks its first year under anti-gang crackdown](https://news.yahoo.com/el-salvador-marks-first-under-010905611.html)
+- Mar 28 - [Christie: GOP needs someone who can quickly take down Trump](https://news.yahoo.com/christie-gop-needs-someone-quickly-003419937.html)
+- Mar 28 - ['A tragic situation': Missing California mom, 7-year-old boy found dead after toddler reports them missing](https://news.yahoo.com/tragic-situation-missing-california-mom-225541838.html)
+- Mar 28 - [Who is the Nashville school shooter who killed six at private Christian school?](https://news.yahoo.com/female-nashville-school-shooter-killed-195734711.html)
 <!-- feed end -->
