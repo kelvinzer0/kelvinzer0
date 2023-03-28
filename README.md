@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 28 - [Russia convicts father of teen who drew antiwar pictures](https://news.yahoo.com/russia-convicts-father-teen-drew-134257735.html)
+- Mar 28 - [Nashville school shooting victims include pastor's daughter](https://news.yahoo.com/nashville-school-shooting-victims-pastors-144848040.html)
+- Mar 28 - [India's warm weather plans can't take the heat, report says](https://news.yahoo.com/indias-warm-weather-plans-cant-141700152.html)
+- Mar 28 - [Trump says he feels like Elvis after Jan. 6 choir song hits number one on the charts](https://news.yahoo.com/trump-says-feels-elvis-jan-131638559.html)
 - Mar 28 - [Nashville School Shooter Messaged Friend Minutes Before Massacre](https://news.yahoo.com/nashville-school-shooter-messaged-friend-122701752.html)
 - Mar 28 - [Hugh Grant says movie sets 'are so weird now' as actors no longer get drunk and fall 'in love with each other' because of mobile phones: 'It's so sad'](https://news.yahoo.com/hugh-grant-says-movie-sets-122429986.html)
-- Mar 28 - [California's  'phantom lake' returns with a vengeance, unearthing an ugly history of water](https://news.yahoo.com/californias-phantom-lake-returns-vengeance-120030115.html)
-- Mar 28 - [Emily Ratajkowski Is Apparently “Begging” Olivia Wilde For “Forgiveness” Amid Reports That Her Viral Kiss With Harry Styles Was A Major “Betrayal” Weeks After They Were Seen Hanging Out](https://news.yahoo.com/emily-ratajkowski-apparently-begging-olivia-115220098.html)
 <!-- feed end -->
