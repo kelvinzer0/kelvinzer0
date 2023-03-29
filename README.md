@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 29 - [Arizona governor's aide resigns after controversial tweet](https://news.yahoo.com/arizona-governors-aide-resigns-controversial-181612113.html)
+- Mar 29 - [Power play: Disney handicapped new Reedy Creek board before handing over control](https://news.yahoo.com/power-play-disney-handicapped-reedy-181501620.html)
 - Mar 29 - [Arizona Governor’s Press Secretary Out after Tweet Encouraging Violence against ‘Transphobes’](https://news.yahoo.com/arizona-governor-press-secretary-tweet-171712851.html)
+- Mar 29 - ['Harry Potter' star Bonnie Wright got married in a 100-year-old wedding dress that was completely see-through when she first tried it on](https://news.yahoo.com/harry-potter-star-bonnie-wright-170547751.html)
 - Mar 29 - [I tried fried chicken from 3 different grocery stores, and there's only one I'll buy from now on](https://news.yahoo.com/tried-fried-chicken-3-different-133200430.html)
-- Mar 29 - [The jail where 18 female employees had relationships with prisoners](https://news.yahoo.com/jail-where-18-female-employees-165507390.html)
-- Mar 29 - [Southern California refills its largest water reservoir for the first time in three years](https://news.yahoo.com/southern-california-refills-largest-water-164734313.html)
-- Mar 29 - [Beach house for sale in Florida is freaking people out with just one glance. See why](https://news.yahoo.com/beach-house-sale-florida-freaking-164726543.html)
 <!-- feed end -->
