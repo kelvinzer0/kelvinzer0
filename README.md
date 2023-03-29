@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 29 - [Arizona Governor’s Press Secretary Out after Tweet Encouraging Violence against ‘Transphobes’](https://news.yahoo.com/arizona-governor-press-secretary-tweet-171712851.html)
+- Mar 29 - [I tried fried chicken from 3 different grocery stores, and there's only one I'll buy from now on](https://news.yahoo.com/tried-fried-chicken-3-different-133200430.html)
+- Mar 29 - [The jail where 18 female employees had relationships with prisoners](https://news.yahoo.com/jail-where-18-female-employees-165507390.html)
 - Mar 29 - [Southern California refills its largest water reservoir for the first time in three years](https://news.yahoo.com/southern-california-refills-largest-water-164734313.html)
-- Mar 29 - [Russian Ally Warns Putin: Don’t Visit—or You’ll Get Arrested](https://news.yahoo.com/russian-ally-warns-putin-don-161027975.html)
-- Mar 29 - [Manhattan Trump grand jury set to break for a month](https://news.yahoo.com/manhattan-trump-grand-jury-set-160829996.html)
-- Mar 29 - [Whispers of Russian Shadow Army Boss Replacing Putin Draw a Response](https://news.yahoo.com/whispers-russian-shadow-army-boss-154306389.html)
-- Mar 29 - [Woman diagnosed with colorectal cancer at 42 shares symptoms: 'I waited way too long'](https://news.yahoo.com/woman-diagnosed-colorectal-cancer-42-134854320.html)
+- Mar 29 - [Beach house for sale in Florida is freaking people out with just one glance. See why](https://news.yahoo.com/beach-house-sale-florida-freaking-164726543.html)
 <!-- feed end -->
