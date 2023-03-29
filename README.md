@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 29 - [Hawaii authorities say 33 swimmers were harassing dolphins](https://news.yahoo.com/hawaii-authorities-33-swimmers-were-042155926.html)
+- Mar 29 - [Basic training without yelling: Army recruits get 2nd chance](https://news.yahoo.com/basic-training-without-yelling-army-040733640.html)
+- Mar 29 - [Keanu Reeves says his last moment of bliss was in bed with girlfriend in rare comment](https://news.yahoo.com/keanu-reeves-says-last-moment-015515738.html)
 - Mar 29 - [Man kicked off flight for being 'fatphobic' and rude, yet he had nowhere to sit](https://news.yahoo.com/man-kicked-off-flight-being-004359583.html)
 - Mar 28 - [N.C. board removes election officials who refused to certify](https://news.yahoo.com/n-c-board-removes-election-223044022.html)
-- Mar 28 - [Twitter restricts Greene’s congressional account over ‘vengeance’ post](https://news.yahoo.com/twitter-restricts-greene-congressional-account-220321528.html)
-- Mar 28 - [Deadly chocolate factory blast highlights combustion risks](https://news.yahoo.com/deadly-chocolate-factory-blast-highlights-204246228.html)
-- Mar 28 - [Police: Aaron Hernandez's brother arrested in ESPN incident](https://news.yahoo.com/police-aaron-hernandezs-brother-arrested-192526895.html)
 <!-- feed end -->
