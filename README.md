@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 29 - [Black Japanese student segregated during his graduation ceremony for wearing cornrows](https://news.yahoo.com/black-japanese-student-segregated-during-222607904.html)
+- Mar 29 - ["It's His Wedding Day": A Bride's In-Laws Think She's Ruining The Wedding By Having Her Sister Walk Her Down The Aisle, And I Couldn't Disagree More](https://news.yahoo.com/wedding-day-brides-laws-think-224310315.html)
 - Mar 29 - [Teen accused of paralyzing woman in Houston robbery confesses in jailhouse phone calls](https://news.yahoo.com/teen-accused-paralyzing-woman-houston-211218487.html)
 - Mar 29 - [It's official. Mammoth Mountain's had its snowiest season ever — and by a lot](https://news.yahoo.com/official-mammoth-mountains-had-snowiest-210525525.html)
-- Mar 29 - [Senate votes to repeal Iraq War authorization](https://news.yahoo.com/senate-votes-repeal-iraq-war-203137376.html)
 - Mar 29 - [Power play: Disney handicapped new Reedy Creek board before handing over control](https://news.yahoo.com/power-play-disney-handicapped-reedy-181501620.html)
-- Mar 29 - [‘Trans day of vengeance’ protest to hit Washington in wake of Nashville shooting](https://news.yahoo.com/trans-day-vengeance-protest-hit-160252486.html)
 <!-- feed end -->
