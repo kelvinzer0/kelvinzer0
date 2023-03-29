@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 29 - [Teen accused of paralyzing woman in Houston robbery confesses in jailhouse phone calls](https://news.yahoo.com/teen-accused-paralyzing-woman-houston-211218487.html)
+- Mar 29 - [It's official. Mammoth Mountain's had its snowiest season ever — and by a lot](https://news.yahoo.com/official-mammoth-mountains-had-snowiest-210525525.html)
 - Mar 29 - [Senate votes to repeal Iraq War authorization](https://news.yahoo.com/senate-votes-repeal-iraq-war-203137376.html)
 - Mar 29 - [Power play: Disney handicapped new Reedy Creek board before handing over control](https://news.yahoo.com/power-play-disney-handicapped-reedy-181501620.html)
 - Mar 29 - [‘Trans day of vengeance’ protest to hit Washington in wake of Nashville shooting](https://news.yahoo.com/trans-day-vengeance-protest-hit-160252486.html)
-- Mar 29 - [Manhattan DA lawyers feared Stormy Daniels case against Trump was too weak to bring without other criminal charges, report says](https://news.yahoo.com/manhattan-da-lawyers-feared-stormy-192307385.html)
-- Mar 29 - [UAE leader designates his eldest son as crown prince](https://news.yahoo.com/uae-leader-designates-son-crown-185309991.html)
 <!-- feed end -->
