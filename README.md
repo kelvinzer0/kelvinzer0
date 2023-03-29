@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 29 - [Zelenskyy says Ukraine had to change faulty air-defense equipment from a European ally 'again and again' because it didn't work](https://news.yahoo.com/zelenskyy-says-ukraine-had-change-110552045.html)
+- Mar 29 - [No One Is Talking About What Ron DeSantis Has Actually Done to Florida](https://news.yahoo.com/no-one-talking-ron-desantis-110000499.html)
 - Mar 29 - [Gavin Newsom Tweets 1 Scathing Word About Kevin McCarthy's Mass Shooting Silence](https://news.yahoo.com/gavin-newsom-tweets-1-scathing-103845819.html)
 - Mar 29 - [Reparations for Black Californians could top $800 billion](https://news.yahoo.com/reparations-black-californians-could-top-100516479.html)
-- Mar 29 - [Jennifer Aniston roasted Adam Sandler for wearing a sweatshirt to the 'Murder Mystery 2' premiere: 'I'm not standing next to him'](https://news.yahoo.com/jennifer-aniston-roasted-adam-sandler-094632896.html)
-- Mar 29 - [Russia is forcing Western companies exiting its market to make a donation to the country — and it's making it harder for them to leave](https://news.yahoo.com/russia-forcing-western-companies-exiting-081431627.html)
-- Mar 29 - [Explosions rock locomotive depot in occupied Melitopol, city cut off grid](https://news.yahoo.com/explosions-rock-locomotive-depot-occupied-050829440.html)
+- Mar 29 - [Ukrainian military downs Russian bomber near Bakhmut](https://news.yahoo.com/ukrainian-military-downs-russian-bomber-094800403.html)
 <!-- feed end -->
