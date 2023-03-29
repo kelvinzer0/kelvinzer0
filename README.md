@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 29 - [Nashville shooting victim and school headmaster Katherine Koonce was a 'mighty oak tree of a woman' who advocated for students with disabilities, a longtime friend says](https://news.yahoo.com/nashville-shooting-victim-school-headmaster-005937468.html)
+- Mar 29 - [Man kicked off flight for being 'fatphobic' and rude, yet he had nowhere to sit](https://news.yahoo.com/man-kicked-off-flight-being-004359583.html)
 - Mar 28 - [N.C. board removes election officials who refused to certify](https://news.yahoo.com/n-c-board-removes-election-223044022.html)
 - Mar 28 - [Twitter restricts Greene’s congressional account over ‘vengeance’ post](https://news.yahoo.com/twitter-restricts-greene-congressional-account-220321528.html)
 - Mar 28 - [Deadly chocolate factory blast highlights combustion risks](https://news.yahoo.com/deadly-chocolate-factory-blast-highlights-204246228.html)
