@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 28 - [Trump supporter pulled knife on family with children outside Manhattan courthouse](https://news.yahoo.com/trump-supporter-pulled-knife-family-225311614.html)
+- Mar 29 - [17 Times Actors Called Out Hollywood For Either Forcing Them To Lose Weight Or Only Casting Them As The "Funny Fat Friend"](https://news.yahoo.com/17-times-actors-called-hollywood-200834650.html)
+- Mar 29 - [Senator asks Merrick Garland about opening hate crime investigation in Nashville shooting](https://news.yahoo.com/senator-asks-merrick-garland-opening-004436393.html)
+- Mar 28 - [Trump supporter charged with pulling knife on family with children outside Manhattan courthouse](https://news.yahoo.com/trump-supporter-pulled-knife-family-225311614.html)
+- Mar 28 - [N.C. board removes election officials who refused to certify](https://news.yahoo.com/n-c-board-removes-election-223044022.html)
 - Mar 28 - [Twitter restricts Greene’s congressional account over ‘vengeance’ post](https://news.yahoo.com/twitter-restricts-greene-congressional-account-220321528.html)
-- Mar 28 - [Tom Brady shares pics from a beach day with 3 kids and former NFL teammates](https://news.yahoo.com/tom-brady-shares-pics-beach-214355816.html)
-- Mar 28 - [Kieran Culkin says he felt bad for his older brother Macaulay amid his massive, post-'Home Alone' fame, even as a kid: 'That sucks for him'](https://news.yahoo.com/kieran-culkin-says-felt-bad-212949476.html)
-- Mar 28 - [Police: Aaron Hernandez's brother arrested in ESPN incident](https://news.yahoo.com/police-aaron-hernandezs-brother-arrested-192526895.html)
 <!-- feed end -->
