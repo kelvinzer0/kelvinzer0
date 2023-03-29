@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 29 - [Arizona governor's aide resigns after controversial tweet](https://news.yahoo.com/arizona-governors-aide-resigns-controversial-181612113.html)
+- Mar 29 - [‘Trans day of vengeance’ protest to hit Washington in wake of Nashville shooting](https://news.yahoo.com/trans-day-vengeance-protest-hit-160252486.html)
+- Mar 29 - [Over-the-counter Narcan approved by FDA: Here's what you need to know](https://news.yahoo.com/over-counter-narcan-approved-fda-192530074.html)
+- Mar 29 - [TikTokers are both mocking and applauding Gwyneth Paltrow's 'out of touch' comments as moments from her bewildering ski trial go viral](https://news.yahoo.com/tiktokers-both-mocking-applauding-gwyneth-181731191.html)
 - Mar 29 - [Power play: Disney handicapped new Reedy Creek board before handing over control](https://news.yahoo.com/power-play-disney-handicapped-reedy-181501620.html)
-- Mar 29 - [Arizona Governor’s Press Secretary Out after Tweet Encouraging Violence against ‘Transphobes’](https://news.yahoo.com/arizona-governor-press-secretary-tweet-171712851.html)
-- Mar 29 - ['Harry Potter' star Bonnie Wright got married in a 100-year-old wedding dress that was completely see-through when she first tried it on](https://news.yahoo.com/harry-potter-star-bonnie-wright-170547751.html)
-- Mar 29 - [I tried fried chicken from 3 different grocery stores, and there's only one I'll buy from now on](https://news.yahoo.com/tried-fried-chicken-3-different-133200430.html)
+- Mar 29 - [Tommy Tuberville Won't Promote Hundreds of Military Members Because He's Mad About Abortion](https://news.yahoo.com/tommy-tuberville-wont-promote-hundreds-175000375.html)
 <!-- feed end -->
