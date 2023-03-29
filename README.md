@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 29 - [Gavin Newsom Tweets 1 Scathing Word About Kevin McCarthy's Mass Shooting Silence](https://news.yahoo.com/gavin-newsom-tweets-1-scathing-103845819.html)
+- Mar 29 - [Reparations for Black Californians could top $800 billion](https://news.yahoo.com/reparations-black-californians-could-top-100516479.html)
+- Mar 29 - [Jennifer Aniston roasted Adam Sandler for wearing a sweatshirt to the 'Murder Mystery 2' premiere: 'I'm not standing next to him'](https://news.yahoo.com/jennifer-aniston-roasted-adam-sandler-094632896.html)
 - Mar 29 - [Russia is forcing Western companies exiting its market to make a donation to the country — and it's making it harder for them to leave](https://news.yahoo.com/russia-forcing-western-companies-exiting-081431627.html)
-- Mar 29 - [Hawaii authorities say 33 swimmers were harassing dolphins](https://news.yahoo.com/hawaii-authorities-33-swimmers-were-042155926.html)
-- Mar 29 - [Basic training without yelling: Army recruits get 2nd chance](https://news.yahoo.com/basic-training-without-yelling-army-040733640.html)
-- Mar 29 - [Keanu Reeves says his last moment of bliss was in bed with girlfriend in rare comment](https://news.yahoo.com/keanu-reeves-says-last-moment-015515738.html)
-- Mar 29 - [Man kicked off flight for being 'fatphobic' and rude, yet he had nowhere to sit](https://news.yahoo.com/man-kicked-off-flight-being-004359583.html)
+- Mar 29 - [Explosions rock locomotive depot in occupied Melitopol, city cut off grid](https://news.yahoo.com/explosions-rock-locomotive-depot-occupied-050829440.html)
 <!-- feed end -->
