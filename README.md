@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 30 - [CNN preaches patience as ratings tank during turnaround](https://news.yahoo.com/cnn-preaches-patience-ratings-tank-133359625.html)
-- Mar 30 - [Gwyneth Paltrow Ski Trial Makes 'Bailiff' Roy Wood Jr. Want To 'Re-Black' Himself](https://news.yahoo.com/gwyneth-paltrow-ski-trial-makes-120852586.html)
+- Mar 30 - [Rosie Perez says she fired her agent after they advised her to dye her hair blond and get a nose job to land more roles: 'I couldn't believe it'](https://news.yahoo.com/rosie-perez-says-she-fired-134339464.html)
+- Mar 30 - [Airplanes Face a Growing Risk of Being Hit by Uncontrolled Incoming Rockets](https://news.yahoo.com/airplanes-face-growing-risk-being-131500001.html)
+- Mar 30 - [The battle for Bakhmut has turned into a 'slaughter-fest' for Russia, says top US general](https://news.yahoo.com/battle-bakhmut-turned-slaughter-fest-115110173.html)
 - Mar 30 - [Elusive blood-sucking fish washes ashore in Netherlands. Take a look — if you dare](https://news.yahoo.com/elusive-blood-sucking-fish-washes-113327664.html)
 - Mar 30 - [A Texas woman says squatters refused to leave her property and changed the locks after falsely insisting that they had a lease](https://news.yahoo.com/texas-woman-says-squatters-refused-111217902.html)
-- Mar 30 - [‘Public Humiliation’: Lauren Boebert Makes A Splash With Weird Rant On Pee Laws](https://news.yahoo.com/public-humiliation-lauren-boebert-makes-085009089.html)
 <!-- feed end -->
