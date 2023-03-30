@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 30 - [Nashville school shooter ‘was hunting pastor who was counselling her’](https://news.yahoo.com/nashville-school-shooter-hunting-pastor-172723647.html)
+- Mar 30 - ['Republicans could be woke': A Black conservative from Chicago's South Side makes the case for ditching Democrats](https://news.yahoo.com/republicans-could-be-woke-a-black-conservative-from-chicagos-south-side-makes-the-case-for-ditching-democrats-190254370.html)
 - Mar 30 - [New FBI docs: Las Vegas mass shooter was angry at casinos](https://news.yahoo.com/fbi-docs-las-vegas-mass-183133617.html)
+- Mar 30 - [Horses came to American West by early 1600s, study finds](https://news.yahoo.com/horses-came-american-west-early-180247261.html)
 - Mar 30 - [Las Vegas lawyer indicted in $460M 'slip-and-fall' scheme](https://news.yahoo.com/las-vegas-lawyer-indicted-460m-180111635.html)
-- Mar 30 - [How a judge’s visit to Stanford has changed the debate over free speech on campus](https://news.yahoo.com/how-a-judges-visit-to-stanford-has-changed-the-debate-over-free-speech-on-campus-175538058.html)
-- Mar 30 - [Meet Tatiana Casiraghi, a billionaire beer heiress and royal who was once Monaco's richest citizen](https://news.yahoo.com/meet-tatiana-casiraghi-billionaire-beer-172840131.html)
+- Mar 30 - [How a judge's visit to Stanford has changed the debate over free speech on campus](https://news.yahoo.com/how-a-judges-visit-to-stanford-has-changed-the-debate-over-free-speech-on-campus-175538058.html)
 <!-- feed end -->
