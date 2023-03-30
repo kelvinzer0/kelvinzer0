@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 29 - [Black Japanese student segregated during his graduation ceremony for wearing cornrows](https://news.yahoo.com/black-japanese-student-segregated-during-222607904.html)
-- Mar 29 - ["It's His Wedding Day": A Bride's In-Laws Think She's Ruining The Wedding By Having Her Sister Walk Her Down The Aisle, And I Couldn't Disagree More](https://news.yahoo.com/wedding-day-brides-laws-think-224310315.html)
+- Mar 30 - [Blac Chyna Explained What Happened After She Got Her Butt Augmentation Reversed](https://news.yahoo.com/blac-chyna-explained-happened-she-011307429.html)
+- Mar 29 - [Ron Howard says it was a 'complete assault' on his 'psyche' to watch daughter Bryce Dallas Howard perform fully nude in a college play](https://news.yahoo.com/ron-howard-says-complete-assault-233628930.html)
+- Mar 29 - [Jennifer Aniston says Gen Z are going back to episodes of 'Friends' and finding the show 'offensive': 'I don't think there was a sensitivity like there is now'](https://news.yahoo.com/jennifer-aniston-says-gen-z-222413949.html)
+- Mar 29 - [City tears down man’s Atlanta house after sending warnings to wrong address, he says](https://news.yahoo.com/city-tears-down-man-atlanta-215228366.html)
 - Mar 29 - [Teen accused of paralyzing woman in Houston robbery confesses in jailhouse phone calls](https://news.yahoo.com/teen-accused-paralyzing-woman-houston-211218487.html)
-- Mar 29 - [It's official. Mammoth Mountain's had its snowiest season ever — and by a lot](https://news.yahoo.com/official-mammoth-mountains-had-snowiest-210525525.html)
-- Mar 29 - [Power play: Disney handicapped new Reedy Creek board before handing over control](https://news.yahoo.com/power-play-disney-handicapped-reedy-181501620.html)
 <!-- feed end -->
