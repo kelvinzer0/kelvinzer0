@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 30 - [Nashville school shooter ‘was hunting pastor who was counselling her’](https://news.yahoo.com/nashville-school-shooter-hunting-pastor-172723647.html)
+- Mar 30 - [College ends partnership with school over 'David' issue](https://news.yahoo.com/college-ends-partnership-school-over-172347634.html)
+- Mar 30 - [No sour grapes: Rizzo gifts wine to Yankees teammates](https://news.yahoo.com/no-sour-grapes-rizzo-gifts-164339340.html)
+- Mar 30 - [Capitol rioter known as "QAnon Shaman" released early from federal prison](https://news.yahoo.com/capitol-rioter-known-qanon-shaman-162431537.html)
 - Mar 30 - [Owner of stolen truck tracks it with AirTag and kills man inside, Texas police say](https://news.yahoo.com/owner-stolen-truck-tracks-airtag-160618160.html)
-- Mar 30 - [A family built tiny houses for each of their teenage children to live in. Experts say too much independence for teens may not be the best idea.](https://news.yahoo.com/family-built-tiny-houses-teenage-154908773.html)
-- Mar 30 - [My boyfriend was not ready for commitment and left me. 2 months later, he showed up with an engagement ring at my door.](https://news.yahoo.com/boyfriend-not-ready-commitment-left-154257843.html)
-- Mar 30 - [‘Unsanctioned’ giant spider under Canadian bridge is not what it seems, photos show](https://news.yahoo.com/unsanctioned-giant-spider-under-canadian-143518714.html)
-- Mar 30 - [Airplanes Face a Growing Risk of Being Hit by Uncontrolled Incoming Rockets](https://news.yahoo.com/airplanes-face-growing-risk-being-131500001.html)
 <!-- feed end -->
