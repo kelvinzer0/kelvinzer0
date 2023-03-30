@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 30 - ['Republicans could be woke': A Black conservative from Chicago's South Side makes the case for ditching Democrats](https://news.yahoo.com/republicans-could-be-woke-a-black-conservative-from-chicagos-south-side-makes-the-case-for-ditching-democrats-190254370.html)
-- Mar 30 - [New FBI docs: Las Vegas mass shooter was angry at casinos](https://news.yahoo.com/fbi-docs-las-vegas-mass-183133617.html)
-- Mar 30 - [Horses came to American West by early 1600s, study finds](https://news.yahoo.com/horses-came-american-west-early-180247261.html)
-- Mar 30 - [Las Vegas lawyer indicted in $460M 'slip-and-fall' scheme](https://news.yahoo.com/las-vegas-lawyer-indicted-460m-180111635.html)
-- Mar 30 - [How a judge's visit to Stanford has changed the debate over free speech on campus](https://news.yahoo.com/how-a-judges-visit-to-stanford-has-changed-the-debate-over-free-speech-on-campus-175538058.html)
+- Mar 30 - [Former Trump Organization exec Allen Weisselberg cuts ties with attorneys](https://news.yahoo.com/former-trump-organization-exec-allen-192814909.html)
+- Mar 30 - [Israeli protesters back government's judicial overhaul](https://news.yahoo.com/israeli-protesters-back-governments-judicial-203216869.html)
+- Mar 30 - [15 Iconic TV Relationships That Only Happened Because A Guest Star Had INTENSE Onscreen Chemistry With A Star](https://news.yahoo.com/15-iconic-tv-relationships-only-232933762.html)
+- Mar 30 - [An Arizona man said Rihanna paid $500,000 to rent out his luxury home for a week while she prepared for her Super Bowl performance](https://news.yahoo.com/arizona-man-said-rihanna-paid-193310931.html)
+- Mar 30 - [The Ukrainian hoax that revealed the Russian pilots who bombed Mariupol theatre](https://news.yahoo.com/ukrainian-hoax-revealed-russian-pilots-191640827.html)
 <!-- feed end -->
