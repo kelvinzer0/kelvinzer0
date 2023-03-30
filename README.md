@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 30 - [Gwyneth Paltrow Ski Trial Makes 'Bailiff' Roy Wood Jr. Want To 'Re-Black' Himself](https://news.yahoo.com/gwyneth-paltrow-ski-trial-makes-120852586.html)
 - Mar 30 - [Elusive blood-sucking fish washes ashore in Netherlands. Take a look — if you dare](https://news.yahoo.com/elusive-blood-sucking-fish-washes-113327664.html)
 - Mar 30 - [A Texas woman says squatters refused to leave her property and changed the locks after falsely insisting that they had a lease](https://news.yahoo.com/texas-woman-says-squatters-refused-111217902.html)
 - Mar 30 - [Conservative Legal Icon Delivers Chilling Prediction If Donald Trump Overturns 2024](https://news.yahoo.com/conservative-legal-icon-delivers-chilling-103829471.html)
-- Mar 30 - [Ukraine-Russia war latest: Russian troops facing 'slaughter-fest' in Bakhmut](https://news.yahoo.com/ukraine-russia-war-latest-russian-065851092.html)
 - Mar 30 - [Mark Wahlberg says leaving Hollywood for Las Vegas gave children 'chance to thrive'](https://news.yahoo.com/mark-wahlberg-says-leaving-hollywood-080013861.html)
 <!-- feed end -->
