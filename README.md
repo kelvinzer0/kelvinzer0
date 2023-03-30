@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 30 - [Rosie Perez says she fired her agent after they advised her to dye her hair blond and get a nose job to land more roles: 'I couldn't believe it'](https://news.yahoo.com/rosie-perez-says-she-fired-134339464.html)
+- Mar 30 - [VP Harris hails Tanzania leader, announces trade boost](https://news.yahoo.com/vp-harris-hails-tanzania-leader-155405086.html)
+- Mar 30 - [Prince Harry arrives at the High Court for the final day of arguments in the case brought against Associated Newspapers](https://news.yahoo.com/prince-harry-arrives-high-court-154334649.html)
+- Mar 30 - [‘Unsanctioned’ giant spider under Canadian bridge is not what it seems, photos show](https://news.yahoo.com/unsanctioned-giant-spider-under-canadian-143518714.html)
 - Mar 30 - [Airplanes Face a Growing Risk of Being Hit by Uncontrolled Incoming Rockets](https://news.yahoo.com/airplanes-face-growing-risk-being-131500001.html)
-- Mar 30 - [The battle for Bakhmut has turned into a 'slaughter-fest' for Russia, says top US general](https://news.yahoo.com/battle-bakhmut-turned-slaughter-fest-115110173.html)
-- Mar 30 - [Elusive blood-sucking fish washes ashore in Netherlands. Take a look — if you dare](https://news.yahoo.com/elusive-blood-sucking-fish-washes-113327664.html)
-- Mar 30 - [A Texas woman says squatters refused to leave her property and changed the locks after falsely insisting that they had a lease](https://news.yahoo.com/texas-woman-says-squatters-refused-111217902.html)
+- Mar 30 - [Striking satellite photos from space show California's transformation from dry to lush](https://news.yahoo.com/striking-satellite-photos-show-californias-120019611.html)
 <!-- feed end -->
