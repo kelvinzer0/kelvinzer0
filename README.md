@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 30 - [Ukraine-Russia war latest: Russian troops facing 'slaughter-fest' in Bakhmut](https://news.yahoo.com/ukraine-russia-war-latest-russian-065851092.html)
 - Mar 30 - [Trump's Ugly New Boast About Dictators Backfires Spectacularly](https://news.yahoo.com/trumps-ugly-boast-dictators-backfires-044904050.html)
+- Mar 30 - [Harris enters the fray over democracy with visit to Tanzania](https://news.yahoo.com/harris-enters-fray-over-democracy-040550096.html)
 - Mar 30 - ['This is like a movie': Ukraine's secret plan to convince 3 Russian pilots to defect with their planes](https://news.yahoo.com/this-is-like-a-movie-ukraines-secret-plan-to-convince-3-russian-pilots-to-defect-with-their-planes-030018349.html)
 - Mar 30 - [Ron DeSantis' plan to take control of Disney's land backfired spectacularly because of a loophole in the agreement that may reduce his appointees to powerless functionaries](https://news.yahoo.com/ron-desantis-plan-control-disneys-025925431.html)
-- Mar 30 - [Philippine ferry fire leaves 31 dead, at least 7 missing](https://news.yahoo.com/philippine-ferry-fire-leaves-12-021821043.html)
 <!-- feed end -->
