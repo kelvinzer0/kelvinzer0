@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 30 - [Elusive blood-sucking fish washes ashore in Netherlands. Take a look — if you dare](https://news.yahoo.com/elusive-blood-sucking-fish-washes-113327664.html)
+- Mar 30 - [A Texas woman says squatters refused to leave her property and changed the locks after falsely insisting that they had a lease](https://news.yahoo.com/texas-woman-says-squatters-refused-111217902.html)
 - Mar 30 - [Conservative Legal Icon Delivers Chilling Prediction If Donald Trump Overturns 2024](https://news.yahoo.com/conservative-legal-icon-delivers-chilling-103829471.html)
 - Mar 30 - [Ukraine-Russia war latest: Russian troops facing 'slaughter-fest' in Bakhmut](https://news.yahoo.com/ukraine-russia-war-latest-russian-065851092.html)
 - Mar 30 - [Mark Wahlberg says leaving Hollywood for Las Vegas gave children 'chance to thrive'](https://news.yahoo.com/mark-wahlberg-says-leaving-hollywood-080013861.html)
-- Mar 30 - [GOP Sen. Shocks CNN's Kaitlan Collins With ‘Pretty Stark’ Guns Admission](https://news.yahoo.com/gop-sen-shocks-cnns-kaitlan-070902598.html)
-- Mar 30 - [Trump's Ugly New Boast About Dictators Backfires Spectacularly](https://news.yahoo.com/trumps-ugly-boast-dictators-backfires-044904050.html)
 <!-- feed end -->
