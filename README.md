@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 30 - [BREAKING: Trump indicted by NY grand jury](https://news.yahoo.com/breaking-trump-indicted-ny-grand-213757998.html)
-- Mar 30 - [Former Trump Organization exec Allen Weisselberg cuts ties with attorneys](https://news.yahoo.com/former-trump-organization-exec-allen-192814909.html)
-- Mar 30 - [Russia arrests Wall Street Journal reporter](https://news.yahoo.com/russia-arrests-wall-street-journal-212454743.html)
-- Mar 30 - [State police want to know why trooper who went missing has a Blood Honor tattoo on his neck](https://news.yahoo.com/state-police-want-know-why-205450661.html)
-- Mar 30 - [I'm a gut doctor. Here are 4 signs your poop habits are unhealthy](https://news.yahoo.com/im-gut-doctor-4-signs-200758376.html)
+- Mar 30 - [Jury Clears Gwyneth Paltrow In Trial Over Skiing Collision](https://news.yahoo.com/jury-clears-gwyneth-paltrow-trial-224352949.html)
+- Mar 30 - [What we know about Trump's indictment, so far](https://news.yahoo.com/know-trumps-indictment-far-224244960.html)
+- Mar 30 - [Dueling semitruck drivers go head to head in road rage clash, Louisiana video shows](https://news.yahoo.com/dueling-semitruck-drivers-head-head-223907516.html)
+- Mar 30 - [Funerals set for 3 of the Nashville school shooting victims](https://news.yahoo.com/funerals-set-3-nashville-school-223816710.html)
+- Mar 30 - [Teen disqualified from Pokémon tournament for laughing upon being asked his pronouns](https://news.yahoo.com/teen-disqualified-pok-mon-tournament-222609535.html)
 <!-- feed end -->
