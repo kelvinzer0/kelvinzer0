@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 30 - [VP Harris hails Tanzania leader, announces trade boost](https://news.yahoo.com/vp-harris-hails-tanzania-leader-155405086.html)
-- Mar 30 - [Prince Harry arrives at the High Court for the final day of arguments in the case brought against Associated Newspapers](https://news.yahoo.com/prince-harry-arrives-high-court-154334649.html)
+- Mar 30 - [Owner of stolen truck tracks it with AirTag and kills man inside, Texas police say](https://news.yahoo.com/owner-stolen-truck-tracks-airtag-160618160.html)
+- Mar 30 - [A family built tiny houses for each of their teenage children to live in. Experts say too much independence for teens may not be the best idea.](https://news.yahoo.com/family-built-tiny-houses-teenage-154908773.html)
+- Mar 30 - [My boyfriend was not ready for commitment and left me. 2 months later, he showed up with an engagement ring at my door.](https://news.yahoo.com/boyfriend-not-ready-commitment-left-154257843.html)
 - Mar 30 - [‘Unsanctioned’ giant spider under Canadian bridge is not what it seems, photos show](https://news.yahoo.com/unsanctioned-giant-spider-under-canadian-143518714.html)
 - Mar 30 - [Airplanes Face a Growing Risk of Being Hit by Uncontrolled Incoming Rockets](https://news.yahoo.com/airplanes-face-growing-risk-being-131500001.html)
-- Mar 30 - [Striking satellite photos from space show California's transformation from dry to lush](https://news.yahoo.com/striking-satellite-photos-show-californias-120019611.html)
 <!-- feed end -->
