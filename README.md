@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 30 - [Trump's Ugly New Boast About Dictators Backfires Spectacularly](https://news.yahoo.com/trumps-ugly-boast-dictators-backfires-044904050.html)
 - Mar 30 - ['This is like a movie': Ukraine's secret plan to convince 3 Russian pilots to defect with their planes](https://news.yahoo.com/this-is-like-a-movie-ukraines-secret-plan-to-convince-3-russian-pilots-to-defect-with-their-planes-030018349.html)
+- Mar 30 - [Ron DeSantis' plan to take control of Disney's land backfired spectacularly because of a loophole in the agreement that may reduce his appointees to powerless functionaries](https://news.yahoo.com/ron-desantis-plan-control-disneys-025925431.html)
 - Mar 30 - [Philippine ferry fire leaves 12 dead, at least 7 missing](https://news.yahoo.com/philippine-ferry-fire-leaves-12-021821043.html)
 - Mar 30 - [Republican staffers are ditching Trump to help DeSantis win. But Trump, despite being famously obsessed with loyalty, is likely to forgive anyone who comes crawling back to him as long as they 'bend the knee.'](https://news.yahoo.com/republican-staffers-ditching-trump-help-020732929.html)
-- Mar 30 - [Ukraine's tank force shouldn't stand a chance against Russia's on paper, but dumb mistakes keep tipping the scales](https://news.yahoo.com/ukraines-tank-force-shouldnt-stand-015141765.html)
-- Mar 29 - [Jennifer Aniston says Gen Z are going back to episodes of 'Friends' and finding the show 'offensive': 'I don't think there was a sensitivity like there is now'](https://news.yahoo.com/jennifer-aniston-says-gen-z-222413949.html)
 <!-- feed end -->
