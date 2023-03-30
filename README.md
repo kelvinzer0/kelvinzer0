@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 30 - [Nashville school shooter ‘was hunting pastor who was counselling her’](https://news.yahoo.com/nashville-school-shooter-hunting-pastor-172723647.html)
-- Mar 30 - [College ends partnership with school over 'David' issue](https://news.yahoo.com/college-ends-partnership-school-over-172347634.html)
-- Mar 30 - [No sour grapes: Rizzo gifts wine to Yankees teammates](https://news.yahoo.com/no-sour-grapes-rizzo-gifts-164339340.html)
-- Mar 30 - [Capitol rioter known as "QAnon Shaman" released early from federal prison](https://news.yahoo.com/capitol-rioter-known-qanon-shaman-162431537.html)
-- Mar 30 - [Owner of stolen truck tracks it with AirTag and kills man inside, Texas police say](https://news.yahoo.com/owner-stolen-truck-tracks-airtag-160618160.html)
+- Mar 30 - [New FBI docs: Las Vegas mass shooter was angry at casinos](https://news.yahoo.com/fbi-docs-las-vegas-mass-183133617.html)
+- Mar 30 - [Las Vegas lawyer indicted in $460M 'slip-and-fall' scheme](https://news.yahoo.com/las-vegas-lawyer-indicted-460m-180111635.html)
+- Mar 30 - [How a judge’s visit to Stanford has changed the debate over free speech on campus](https://news.yahoo.com/how-a-judges-visit-to-stanford-has-changed-the-debate-over-free-speech-on-campus-175538058.html)
+- Mar 30 - [Meet Tatiana Casiraghi, a billionaire beer heiress and royal who was once Monaco's richest citizen](https://news.yahoo.com/meet-tatiana-casiraghi-billionaire-beer-172840131.html)
 <!-- feed end -->
