@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 30 - ['This is like a movie': Ukraine's secret plan to convince 3 Russian pilots to defect with their planes](https://news.yahoo.com/this-is-like-a-movie-ukraines-secret-plan-to-convince-3-russian-pilots-to-defect-with-their-planes-030018349.html)
+- Mar 30 - [Philippine ferry fire leaves 12 dead, at least 7 missing](https://news.yahoo.com/philippine-ferry-fire-leaves-12-021821043.html)
+- Mar 30 - [Republican staffers are ditching Trump to help DeSantis win. But Trump, despite being famously obsessed with loyalty, is likely to forgive anyone who comes crawling back to him as long as they 'bend the knee.'](https://news.yahoo.com/republican-staffers-ditching-trump-help-020732929.html)
+- Mar 30 - [Ukraine's tank force shouldn't stand a chance against Russia's on paper, but dumb mistakes keep tipping the scales](https://news.yahoo.com/ukraines-tank-force-shouldnt-stand-015141765.html)
 - Mar 30 - [Blac Chyna Explained What Happened After She Got Her Butt Augmentation Reversed](https://news.yahoo.com/blac-chyna-explained-happened-she-011307429.html)
-- Mar 29 - [Ron Howard says it was a 'complete assault' on his 'psyche' to watch daughter Bryce Dallas Howard perform fully nude in a college play](https://news.yahoo.com/ron-howard-says-complete-assault-233628930.html)
-- Mar 29 - [Jennifer Aniston says Gen Z are going back to episodes of 'Friends' and finding the show 'offensive': 'I don't think there was a sensitivity like there is now'](https://news.yahoo.com/jennifer-aniston-says-gen-z-222413949.html)
-- Mar 29 - [City tears down man’s Atlanta house after sending warnings to wrong address, he says](https://news.yahoo.com/city-tears-down-man-atlanta-215228366.html)
-- Mar 29 - [Teen accused of paralyzing woman in Houston robbery confesses in jailhouse phone calls](https://news.yahoo.com/teen-accused-paralyzing-woman-houston-211218487.html)
 <!-- feed end -->
