@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 30 - [BREAKING: Trump indicted by NY grand jury](https://news.yahoo.com/breaking-trump-indicted-ny-grand-213757998.html)
 - Mar 30 - [Former Trump Organization exec Allen Weisselberg cuts ties with attorneys](https://news.yahoo.com/former-trump-organization-exec-allen-192814909.html)
-- Mar 30 - [Israeli protesters back government's judicial overhaul](https://news.yahoo.com/israeli-protesters-back-governments-judicial-203216869.html)
-- Mar 30 - [15 Iconic TV Relationships That Only Happened Because A Guest Star Had INTENSE Onscreen Chemistry With A Star](https://news.yahoo.com/15-iconic-tv-relationships-only-232933762.html)
-- Mar 30 - [An Arizona man said Rihanna paid $500,000 to rent out his luxury home for a week while she prepared for her Super Bowl performance](https://news.yahoo.com/arizona-man-said-rihanna-paid-193310931.html)
-- Mar 30 - [The Ukrainian hoax that revealed the Russian pilots who bombed Mariupol theatre](https://news.yahoo.com/ukrainian-hoax-revealed-russian-pilots-191640827.html)
+- Mar 30 - [Russia arrests Wall Street Journal reporter](https://news.yahoo.com/russia-arrests-wall-street-journal-212454743.html)
+- Mar 30 - [State police want to know why trooper who went missing has a Blood Honor tattoo on his neck](https://news.yahoo.com/state-police-want-know-why-205450661.html)
+- Mar 30 - [I'm a gut doctor. Here are 4 signs your poop habits are unhealthy](https://news.yahoo.com/im-gut-doctor-4-signs-200758376.html)
 <!-- feed end -->
