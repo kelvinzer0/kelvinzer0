@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 31 - [People Are Stinkin' Mad At Kourtney Kardashian For Posting This Picture Of Food In The Bathroom, And Honestly, They Have A Point](https://news.yahoo.com/people-stinkin-mad-kourtney-kardashian-202545792.html)
-- Mar 31 - [Dear Mar-a-Lago Club members: My indictment is going to cost you](https://news.yahoo.com/dear-mar-lago-club-members-222016761.html)
+- Mar 31 - [Stormy Daniels Tweets 2-Word Response About Trump’s Indictment](https://news.yahoo.com/stormy-daniels-tweets-2-word-014435311.html)
+- Mar 31 - [DeSantis says Florida won't help extradite Trump even though it's required by US Constitution](https://news.yahoo.com/desantis-says-florida-wont-help-004555313.html)
 - Mar 31 - [Priyanka Chopra says she fell in love with Nick Jonas when she watched him conduct a gospel choir in a studio: 'My knees buckled'](https://news.yahoo.com/priyanka-chopra-says-she-fell-000500864.html)
 - Mar 30 - [Exonerated Central Park 5 Member Has 1-Word Statement On Trump's Indictment](https://news.yahoo.com/exonerated-central-park-5-member-235147370.html)
-- Mar 30 - [Enraged Fox News Host Warns After Trump Indictment: ‘People Better Be Careful’](https://news.yahoo.com/enraged-fox-news-host-warns-232229103.html)
+- Mar 30 - [Trump Rages at Hush-Money Indictment in Misspelled Truth Social Rant](https://news.yahoo.com/trump-rages-hush-money-indictment-225830404.html)
 <!-- feed end -->
