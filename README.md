@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 31 - [Pete Davidson Doesn't Get The Interest In His Love Life](https://news.yahoo.com/pete-davidson-doesnt-interest-love-192123336.html)
-- Mar 31 - [Romania: Andrew Tate's detention replaced with house arrest](https://news.yahoo.com/romania-andrew-tate-leave-jail-190745851.html)
-- Mar 31 - [Donnie Yen responds to petition calling for his Oscars removal: 'cancel culture has got to stop'](https://news.yahoo.com/donnie-yen-responds-petition-calling-182919392.html)
-- Mar 31 - [Lindsey Graham says Trump should 'smash some windows' and 'punch a cop' on his way to being booked](https://news.yahoo.com/lindsey-graham-says-trump-smash-173141823.html)
-- Mar 31 - [Nashville school shooter was ‘obsessive’ about former middle school basketball team](https://news.yahoo.com/nashville-school-shooter-obsessive-former-214632097.html)
+- Mar 31 - [‘Absolutely no way that Donald Trump will end up behind bars’: Reagan Foundation head on New York grand jury indictment](https://news.yahoo.com/absolutely-no-way-donald-trump-202647608.html)
+- Mar 31 - [Exonerated 'Central Park 5' member reacts to Trump indictment](https://news.yahoo.com/exonerated-central-park-5-member-202629038.html)
+- Mar 31 - [10 Movie Plot Twists That People Claim To Have Guessed From The Beginning, And 10 They Admit They Never Saw Coming](https://news.yahoo.com/10-movie-plot-twists-people-011307076.html)
+- Mar 31 - [Judge: Dominion defamation case against Fox will go to trial](https://news.yahoo.com/judge-dominion-defamation-case-against-201846761.html)
+- Mar 31 - [Wrestler known as She-Hulk — a mom of 3 — vanishes traveling for a UFC event in Texas](https://news.yahoo.com/wrestler-known-she-hulk-mom-200135429.html)
 <!-- feed end -->
