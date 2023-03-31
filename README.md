@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 31 - [Donnie Yen responds to petition calling for his Oscars removal: 'cancel culture has got to stop'](https://news.yahoo.com/donnie-yen-responds-petition-calling-182919392.html)
+- Mar 31 - [Lindsey Graham says Trump should 'smash some windows' and 'punch a cop' on his way to being booked](https://news.yahoo.com/lindsey-graham-says-trump-smash-173141823.html)
+- Mar 31 - [Nashville school shooter was ‘obsessive’ about former middle school basketball team](https://news.yahoo.com/nashville-school-shooter-obsessive-former-214632097.html)
 - Mar 31 - [Dear Mar-a-Lago Club members: My indictment is going to cost you](https://news.yahoo.com/dear-mar-lago-club-members-222016761.html)
 - Mar 31 - [Factory explosion survivor, on fire, fell into chocolate vat](https://news.yahoo.com/factory-explosion-survivor-fire-fell-171950325.html)
-- Mar 31 - [What we know about Trump's indictment and what it means for the 2024 presidential election](https://news.yahoo.com/know-trumps-indictment-means-2024-170201099.html)
-- Mar 31 - [Ivanka Trump offers up blandest statement possible about Donald Trump’s indictment](https://news.yahoo.com/ivanka-trump-offers-blandest-statement-161458357.html)
-- Mar 31 - [Nashville school shooter was ‘obsessive’ about former middle school basketball team](https://news.yahoo.com/nashville-school-shooter-obsessive-former-214632097.html)
 <!-- feed end -->
