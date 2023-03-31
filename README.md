@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 31 - [Nashville school shooter was ‘obsessive’ about former middle school basketball team](https://news.yahoo.com/nashville-school-shooter-obsessive-former-214632097.html)
-- Mar 31 - [Major General Matthew Holmes 'died by suicide after experiencing substantial stress'](https://news.yahoo.com/major-general-matthew-holmes-died-134555518.html)
+- Mar 31 - [151 years before Trump was indicted, Ulysses S. Grant was arrested for speeding on a horse-drawn carriage](https://news.yahoo.com/151-years-trump-indicted-ulysses-151715220.html)
+- Mar 31 - [Duke legend Christian Laettner on Scheyer, transfer portal and team expectations](https://news.yahoo.com/duke-legend-christian-laettner-scheyer-152714793.html)
+- Mar 31 - [One hurricane forecast to extend to seven days. More time for Florida to watch — and worry](https://news.yahoo.com/hurricane-forecasts-extend-seven-days-145917181.html)
+- Mar 31 - [The Family Of Michael Hill, A Custodian Who Was Killed In A Shooting At The Nashville School, Asked For "Compassion For One Another"](https://news.yahoo.com/family-big-mike-school-custodian-135946146.html)
 - Mar 31 - [I Wanted To Get Pregnant With My Gay Friend's Sperm. I Had No Idea Of The Fight We Were In For.](https://news.yahoo.com/wanted-pregnant-gay-friends-sperm-123006261.html)
-- Mar 31 - [Stephen Smith probe: Bombshell report names persons of interest in his killing](https://news.yahoo.com/stephen-smith-probe-bombshell-report-120005851.html)
-- Mar 31 - [Parents plead for their kids' return after children taken into custody during traffic stop](https://news.yahoo.com/parents-plead-for-their-kids-return-after-children-taken-into-custody-during-traffic-stop-090005992.html)
 <!-- feed end -->
