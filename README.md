@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 31 - [King Charles heads for symbolic visit to Hamburg](https://news.yahoo.com/king-charles-heads-symbolic-visit-114955378.html)
+- Mar 31 - [Todd Chrisley won't 'be able to handle' prison because 'he's very bougie,' says former 'Dance Moms' star Abby Lee Miller](https://news.yahoo.com/todd-chrisley-wont-able-handle-103315623.html)
+- Mar 31 - [How a man lost 137 pounds without cutting out his favorite foods like burgers, fries, and ice cream](https://news.yahoo.com/man-lost-137-pounds-without-093253957.html)
 - Mar 31 - [Parents plead for their kids' return after children taken into custody during traffic stop](https://news.yahoo.com/parents-plead-for-their-kids-return-after-children-taken-into-custody-during-traffic-stop-090005992.html)
 - Mar 31 - [Alan Ruck says his acting career got a 'second wind' when he got married to actor Mireille Enos](https://news.yahoo.com/alan-ruck-says-acting-career-081930335.html)
-- Mar 31 - [Lauren Boebert, whose teen son got his girlfriend pregnant, says she doesn't want to 'nitpick what the Bible says is right and wrong'](https://news.yahoo.com/lauren-boebert-whose-teen-son-080037314.html)
-- Mar 31 - [New York prosecutors wanted Trump to surrender on Friday, but Trump's lawyers said the Secret Service needs more time to prepare his escort: report](https://news.yahoo.com/york-prosecutors-wanted-trump-surrender-054049504.html)
-- Mar 31 - ['QAnon Shaman' Jacob Chansley was released early from prison, and a former prosecutor said it's totally normal to have sentences reduced](https://news.yahoo.com/qanon-shaman-jacob-chansley-released-041925266.html)
 <!-- feed end -->
