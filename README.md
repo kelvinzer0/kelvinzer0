@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 31 - [151 years before Trump was indicted, Ulysses S. Grant was arrested for speeding on a horse-drawn carriage](https://news.yahoo.com/151-years-trump-indicted-ulysses-151715220.html)
-- Mar 31 - [Duke legend Christian Laettner on Scheyer, transfer portal and team expectations](https://news.yahoo.com/duke-legend-christian-laettner-scheyer-152714793.html)
-- Mar 31 - [One hurricane forecast to extend to seven days. More time for Florida to watch — and worry](https://news.yahoo.com/hurricane-forecasts-extend-seven-days-145917181.html)
-- Mar 31 - [The Family Of Michael Hill, A Custodian Who Was Killed In A Shooting At The Nashville School, Asked For "Compassion For One Another"](https://news.yahoo.com/family-big-mike-school-custodian-135946146.html)
-- Mar 31 - [I Wanted To Get Pregnant With My Gay Friend's Sperm. I Had No Idea Of The Fight We Were In For.](https://news.yahoo.com/wanted-pregnant-gay-friends-sperm-123006261.html)
+- Mar 31 - [Dear Mar-a-Lago Club members: My indictment is going to cost you](https://news.yahoo.com/dear-mar-lago-club-members-222016761.html)
+- Mar 31 - [Factory explosion survivor, on fire, fell into chocolate vat](https://news.yahoo.com/factory-explosion-survivor-fire-fell-171950325.html)
+- Mar 31 - [What we know about Trump's indictment and what it means for the 2024 presidential election](https://news.yahoo.com/know-trumps-indictment-means-2024-170201099.html)
+- Mar 31 - [Ivanka Trump offers up blandest statement possible about Donald Trump’s indictment](https://news.yahoo.com/ivanka-trump-offers-blandest-statement-161458357.html)
+- Mar 31 - [Nashville school shooter was ‘obsessive’ about former middle school basketball team](https://news.yahoo.com/nashville-school-shooter-obsessive-former-214632097.html)
 <!-- feed end -->
