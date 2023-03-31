@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 31 - [Parents plead for their kids' return after children taken into custody during traffic stop](https://news.yahoo.com/parents-plead-for-their-kids-return-after-children-taken-into-custody-during-traffic-stop-090005992.html)
+- Mar 31 - [Jason Ritter Got Emotional While Talking About His Alcoholism And How He Believed He Didn't "Deserve" Melanie Lynskey](https://news.yahoo.com/jason-ritter-got-emotional-while-222504883.html)
+- Mar 31 - [Lauren Boebert, whose teen son got his girlfriend pregnant, says she doesn't want to 'nitpick what the Bible says is right and wrong'](https://news.yahoo.com/lauren-boebert-whose-teen-son-080037314.html)
 - Mar 31 - [New York prosecutors wanted Trump to surrender on Friday, but Trump's lawyers said the Secret Service needs more time to prepare his escort: report](https://news.yahoo.com/york-prosecutors-wanted-trump-surrender-054049504.html)
 - Mar 31 - [‘Absurdity to a new level’ as Russia takes charge of UN security council](https://news.yahoo.com/absurdity-level-russia-takes-charge-040012245.html)
-- Mar 31 - [Emotional Lindsey Graham Begs Fox Viewers to Give Money to Trump](https://news.yahoo.com/emotional-lindsey-graham-begs-fox-035759301.html)
-- Mar 31 - [Stormy Daniels Tweets 2-Word Response About Trump’s Indictment](https://news.yahoo.com/stormy-daniels-tweets-2-word-014435311.html)
-- Mar 30 - [Exonerated Central Park 5 Member Has 1-Word Statement On Trump's Indictment](https://news.yahoo.com/exonerated-central-park-5-member-235147370.html)
 <!-- feed end -->
