@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 31 - [Pete Davidson Doesn't Get The Interest In His Love Life](https://news.yahoo.com/pete-davidson-doesnt-interest-love-192123336.html)
+- Mar 31 - [Romania: Andrew Tate's detention replaced with house arrest](https://news.yahoo.com/romania-andrew-tate-leave-jail-190745851.html)
 - Mar 31 - [Donnie Yen responds to petition calling for his Oscars removal: 'cancel culture has got to stop'](https://news.yahoo.com/donnie-yen-responds-petition-calling-182919392.html)
 - Mar 31 - [Lindsey Graham says Trump should 'smash some windows' and 'punch a cop' on his way to being booked](https://news.yahoo.com/lindsey-graham-says-trump-smash-173141823.html)
 - Mar 31 - [Nashville school shooter was ‘obsessive’ about former middle school basketball team](https://news.yahoo.com/nashville-school-shooter-obsessive-former-214632097.html)
-- Mar 31 - [Dear Mar-a-Lago Club members: My indictment is going to cost you](https://news.yahoo.com/dear-mar-lago-club-members-222016761.html)
-- Mar 31 - [Factory explosion survivor, on fire, fell into chocolate vat](https://news.yahoo.com/factory-explosion-survivor-fire-fell-171950325.html)
 <!-- feed end -->
