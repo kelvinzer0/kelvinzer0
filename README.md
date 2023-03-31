@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Mar 31 - [Emotional Lindsey Graham Begs Fox Viewers to Give Money to Trump](https://news.yahoo.com/emotional-lindsey-graham-begs-fox-035759301.html)
 - Mar 31 - [Stormy Daniels Tweets 2-Word Response About Trump’s Indictment](https://news.yahoo.com/stormy-daniels-tweets-2-word-014435311.html)
-- Mar 31 - [DeSantis says Florida won't help extradite Trump even though it's required by US Constitution](https://news.yahoo.com/desantis-says-florida-wont-help-004555313.html)
 - Mar 30 - [Exonerated Central Park 5 Member Has 1-Word Statement On Trump's Indictment](https://news.yahoo.com/exonerated-central-park-5-member-235147370.html)
 - Mar 30 - [Trump Rages at Hush-Money Indictment in Misspelled Truth Social Rant](https://news.yahoo.com/trump-rages-hush-money-indictment-225830404.html)
 - Mar 30 - [Dueling semitruck drivers go head to head in road rage clash, Louisiana video shows](https://news.yahoo.com/dueling-semitruck-drivers-head-head-223907516.html)
