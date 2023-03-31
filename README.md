@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 31 - [Parents plead for their kids' return after children taken into custody during traffic stop](https://news.yahoo.com/parents-plead-for-their-kids-return-after-children-taken-into-custody-during-traffic-stop-090005992.html)
-- Mar 31 - [Jason Ritter Got Emotional While Talking About His Alcoholism And How He Believed He Didn't "Deserve" Melanie Lynskey](https://news.yahoo.com/jason-ritter-got-emotional-while-222504883.html)
 - Mar 31 - [Lauren Boebert, whose teen son got his girlfriend pregnant, says she doesn't want to 'nitpick what the Bible says is right and wrong'](https://news.yahoo.com/lauren-boebert-whose-teen-son-080037314.html)
 - Mar 31 - [New York prosecutors wanted Trump to surrender on Friday, but Trump's lawyers said the Secret Service needs more time to prepare his escort: report](https://news.yahoo.com/york-prosecutors-wanted-trump-surrender-054049504.html)
-- Mar 31 - [‘Absurdity to a new level’ as Russia takes charge of UN security council](https://news.yahoo.com/absurdity-level-russia-takes-charge-040012245.html)
+- Mar 31 - ['QAnon Shaman' Jacob Chansley was released early from prison, and a former prosecutor said it's totally normal to have sentences reduced](https://news.yahoo.com/qanon-shaman-jacob-chansley-released-041925266.html)
+- Mar 31 - [Renfroe makes no-look catch in right, delighting Ohtani](https://news.yahoo.com/renfroe-makes-no-look-catch-040335440.html)
 <!-- feed end -->
