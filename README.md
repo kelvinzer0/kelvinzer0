@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 31 - [A closer look at the implications of Trump's indictment](https://news.yahoo.com/closer-look-implications-trumps-indictment-124925581.html)
+- Mar 31 - [After pizza and prayer, Pope set to leave hospital Saturday](https://news.yahoo.com/pizza-prayer-pope-set-leave-133229935.html)
+- Mar 31 - [Trump indictment draws protesters and supporters around the country to share their voices](https://news.yahoo.com/trump-indictment-draws-protesters-supporters-132756152.html)
 - Mar 31 - [I Wanted To Get Pregnant With My Gay Friend's Sperm. I Had No Idea Of The Fight We Were In For.](https://news.yahoo.com/wanted-pregnant-gay-friends-sperm-123006261.html)
-- Mar 31 - [Trump's lawyer Joe Tacopina talks about indictment](https://news.yahoo.com/trumps-lawyer-joe-tacopina-talks-121906900.html)
-- Mar 31 - [Todd Chrisley won't 'be able to handle' prison because 'he's very bougie,' says former 'Dance Moms' star Abby Lee Miller](https://news.yahoo.com/todd-chrisley-wont-able-handle-103315623.html)
 - Mar 31 - [How a man lost 137 pounds without cutting out his favorite foods like burgers, fries, and ice cream](https://news.yahoo.com/man-lost-137-pounds-without-093253957.html)
+- Mar 31 - [Parents plead for their kids' return after children taken into custody during traffic stop](https://news.yahoo.com/parents-plead-for-their-kids-return-after-children-taken-into-custody-during-traffic-stop-090005992.html)
 <!-- feed end -->
