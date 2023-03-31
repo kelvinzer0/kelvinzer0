@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 30 - [Jury Clears Gwyneth Paltrow In Trial Over Skiing Collision](https://news.yahoo.com/jury-clears-gwyneth-paltrow-trial-224352949.html)
-- Mar 30 - [What we know about Trump's indictment, so far](https://news.yahoo.com/know-trumps-indictment-far-224244960.html)
-- Mar 30 - [Dueling semitruck drivers go head to head in road rage clash, Louisiana video shows](https://news.yahoo.com/dueling-semitruck-drivers-head-head-223907516.html)
-- Mar 30 - [Funerals set for 3 of the Nashville school shooting victims](https://news.yahoo.com/funerals-set-3-nashville-school-223816710.html)
-- Mar 30 - [Teen disqualified from Pokémon tournament for laughing upon being asked his pronouns](https://news.yahoo.com/teen-disqualified-pok-mon-tournament-222609535.html)
+- Mar 31 - [People Are Stinkin' Mad At Kourtney Kardashian For Posting This Picture Of Food In The Bathroom, And Honestly, They Have A Point](https://news.yahoo.com/people-stinkin-mad-kourtney-kardashian-202545792.html)
+- Mar 31 - [Dear Mar-a-Lago Club members: My indictment is going to cost you](https://news.yahoo.com/dear-mar-lago-club-members-222016761.html)
+- Mar 31 - [Priyanka Chopra says she fell in love with Nick Jonas when she watched him conduct a gospel choir in a studio: 'My knees buckled'](https://news.yahoo.com/priyanka-chopra-says-she-fell-000500864.html)
+- Mar 30 - [Exonerated Central Park 5 Member Has 1-Word Statement On Trump's Indictment](https://news.yahoo.com/exonerated-central-park-5-member-235147370.html)
+- Mar 30 - [Enraged Fox News Host Warns After Trump Indictment: ‘People Better Be Careful’](https://news.yahoo.com/enraged-fox-news-host-warns-232229103.html)
 <!-- feed end -->
