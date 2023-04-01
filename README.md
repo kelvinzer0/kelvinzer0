@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 01 - [Mike Pence gambled his career to become Trump's successor. Now he can't even find a lane to compete against his former boss.](https://news.yahoo.com/mike-pence-gambled-career-become-113000011.html)
+- Apr 01 - [Alaska Native honored 67 years after rescue](https://news.yahoo.com/alaska-native-honored-67-years-111553576.html)
 - Apr 01 - [Ashton Kutcher and Mila Kunis's plan to leave no money to their children is causing a stir on social media amid the 'nepo baby' debate](https://news.yahoo.com/ashton-kutcher-mila-kuniss-plan-093000493.html)
 - Apr 01 - [A video shows Ukrainian marines destroying a column of Russian tanks with US-made Javelin missiles](https://news.yahoo.com/video-shows-ukrainian-marines-destroying-090158421.html)
 - Apr 01 - [Maggie Haberman Reveals How Trump Org Employees Celebrated Trump Indictment](https://news.yahoo.com/maggie-haberman-reveals-trump-org-062822656.html)
-- Apr 01 - [Dawn Staley calls out national media, Lisa Bluder's 'bar fight' comments after Final Four loss](https://news.yahoo.com/dawn-staley-calls-national-media-053215820.html)
-- Apr 01 - [Crowds of passengers took shelter inside O'Hare Airport as hundreds of flights are delayed amid severe storms, tornado warnings: 'I have never seen anything like this'](https://news.yahoo.com/crowds-passengers-took-shelter-inside-052732436.html)
 <!-- feed end -->
