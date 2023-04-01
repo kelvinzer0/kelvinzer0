@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 01 - [Deadly tornadoes tear through Arkansas, several other states in South and Midwest](https://news.yahoo.com/powerful-tornado-slams-little-rock-223445123.html)
 - Apr 01 - [My Dying Mom Chose To End Her Life With Dignity. Then Her Choice Was Stolen From Her.](https://news.yahoo.com/dying-mom-chose-end-her-123003558.html)
-- Apr 01 - [At least 7 dead after tornadoes tear through South, Midwest](https://news.yahoo.com/least-7-dead-tornadoes-tear-121014555.html)
+- Apr 01 - [Alaska Native Scouts feted 67 years after rescuing Navy crew](https://news.yahoo.com/alaska-native-scouts-feted-67-121835153.html)
 - Apr 01 - [Mike Pence gambled his career to become Trump's successor. Now he can't even find a lane to compete against his former boss.](https://news.yahoo.com/mike-pence-gambled-career-become-113000011.html)
-- Apr 01 - [Ashton Kutcher and Mila Kunis's plan to leave no money to their children is causing a stir on social media amid the 'nepo baby' debate](https://news.yahoo.com/ashton-kutcher-mila-kuniss-plan-093000493.html)
 - Apr 01 - [A video shows Ukrainian marines destroying a column of Russian tanks with US-made Javelin missiles](https://news.yahoo.com/video-shows-ukrainian-marines-destroying-090158421.html)
 <!-- feed end -->
