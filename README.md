@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 01 - [Keke Palmer Performed A Dua Lipa Song For Jimmy Fallon, And People Are All Saying The Same Thing](https://news.yahoo.com/people-just-finding-keke-palmer-233940034.html)
+- Apr 01 - [Russia will never recover from this devastating collapse](https://news.yahoo.com/russia-never-recover-devastating-collapse-180000997.html)
+- Apr 01 - [Michael Cohen's lawyer says NY case against Trump is 'very solid' and likely jurors need only ask themselves if Trump had 'any political motivation' for the Stormy Daniels payment](https://news.yahoo.com/michael-cohens-lawyer-says-ny-165043599.html)
 - Apr 01 - [St. Petersburg police find body of missing Florida boy, 2, in mouth of an alligator](https://news.yahoo.com/st-petersburg-police-body-missing-160638154.html)
 - Apr 01 - [Drug trafficking blamed as homicides soar in Costa Rica](https://news.yahoo.com/drug-trafficking-blamed-homicides-soar-160515198.html)
-- Apr 01 - [Dawn Staley calls out national media, Lisa Bluder's 'bar fight' comments after Final Four loss](https://news.yahoo.com/dawn-staley-calls-national-media-053215820.html)
-- Apr 01 - [Shaq called! Michigan teen with size 23 feet surprised by NBA legend after sharing shoe story](https://news.yahoo.com/shaq-called-michigan-teen-size-150704930.html)
-- Apr 01 - [Mar-a-Lago events suspended as Trump huddles with ‘shaken’ advisers](https://news.yahoo.com/mar-lago-events-suspended-trump-143804501.html)
 <!-- feed end -->
