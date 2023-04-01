@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Mar 31 - [Tornado slams Little Rock, causes property damage](https://news.yahoo.com/tornado-slams-little-rock-causes-223727464.html)
-- Mar 31 - [Spencer Webb's Girlfriend Gives Birth After His Death](https://news.yahoo.com/spencer-webbs-girlfriend-gives-birth-220946234.html)
+- Apr 01 - [Tate brothers released from Romania jail](https://news.yahoo.com/tate-brothers-released-romania-jail-003132063.html)
+- Mar 31 - [Flo Rida not paying his son's medical bills, the boy's mother says, even after the child's accidental fall from 5-story apartment window](https://news.yahoo.com/flo-rida-not-paying-sons-235202213.html)
 - Mar 31 - [Former presidential candidate John Edwards was accused of funneling nearly $1 million in donor contributions to support his pregnant mistress and criminally charged with a campaign finance violation. Here's how the case played out.](https://news.yahoo.com/former-presidential-candidate-john-edwards-053138652.html)
 - Mar 31 - [Man chopped down trees so they’d fall on newly built homes, North Carolina cops say](https://news.yahoo.com/man-chopped-down-trees-d-212921692.html)
 - Mar 31 - [Rock crystal sat in museum for nearly 2 centuries — then they found it wasn’t a rock](https://news.yahoo.com/rock-crystal-sat-museum-nearly-211341442.html)
