@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 01 - [St. Petersburg police find body of missing Florida boy, 2, in mouth of an alligator](https://news.yahoo.com/st-petersburg-police-body-missing-160638154.html)
+- Apr 01 - [Drug trafficking blamed as homicides soar in Costa Rica](https://news.yahoo.com/drug-trafficking-blamed-homicides-soar-160515198.html)
 - Apr 01 - [Dawn Staley calls out national media, Lisa Bluder's 'bar fight' comments after Final Four loss](https://news.yahoo.com/dawn-staley-calls-national-media-053215820.html)
 - Apr 01 - [Shaq called! Michigan teen with size 23 feet surprised by NBA legend after sharing shoe story](https://news.yahoo.com/shaq-called-michigan-teen-size-150704930.html)
 - Apr 01 - [Mar-a-Lago events suspended as Trump huddles with ‘shaken’ advisers](https://news.yahoo.com/mar-lago-events-suspended-trump-143804501.html)
-- Apr 01 - [I was a nun for 2 decades before leaving the convent to be with a woman. I stood up to the church for our right to marry.](https://news.yahoo.com/nun-2-decades-leaving-convent-125500621.html)
-- Apr 01 - [My Dying Mom Chose To End Her Life With Dignity. Then Her Choice Was Stolen From Her.](https://news.yahoo.com/dying-mom-chose-end-her-123003558.html)
 <!-- feed end -->
