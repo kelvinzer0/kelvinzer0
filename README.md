@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 01 - [Tucker Carlson Says Grand Jury Leak Is a Bigger Crime Than Anything Trump Did](https://news.yahoo.com/tucker-carlson-says-grand-jury-031959167.html)
+- Apr 01 - [The story behind the iconic viral photo of a man begging his wife for forgiveness outside a Chicago divorce court in 1948](https://news.yahoo.com/story-behind-iconic-viral-photo-012046334.html)
 - Apr 01 - [An LSU cheerleader pulled off an impressive stunt to retrieve a basketball stuck above the hoop at the Final Four](https://news.yahoo.com/lsu-cheerleader-pulled-off-impressive-002453986.html)
 - Mar 31 - [Retired Oxnard firefighter who aided shooting victim sues Santa Paula over police treatment](https://news.yahoo.com/retired-oxnard-firefighter-aided-shooting-222934448.html)
-- Mar 31 - [Man chopped down trees so they’d fall on newly built homes, North Carolina cops say](https://news.yahoo.com/man-chopped-down-trees-d-212921692.html)
 - Mar 31 - [Rock crystal sat in museum for nearly 2 centuries — then they found it wasn’t a rock](https://news.yahoo.com/rock-crystal-sat-museum-nearly-211341442.html)
+- Mar 31 - [Anthony Rendon fan interaction video looked into by MLB](https://news.yahoo.com/anthony-rendon-fan-interaction-video-210555508.html)
 <!-- feed end -->
