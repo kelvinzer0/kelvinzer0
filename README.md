@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 01 - [A video shows Ukrainian marines destroying a column of Russian tanks with US-made Javelin missiles](https://news.yahoo.com/video-shows-ukrainian-marines-destroying-090158421.html)
+- Apr 01 - [Dawn Staley calls out national media, Lisa Bluder's 'bar fight' comments after Final Four loss](https://news.yahoo.com/dawn-staley-calls-national-media-053215820.html)
 - Apr 01 - [Crowds of passengers took shelter inside O'Hare Airport as hundreds of flights are delayed amid severe storms, tornado warnings: 'I have never seen anything like this'](https://news.yahoo.com/crowds-passengers-took-shelter-inside-052732436.html)
 - Apr 01 - [The story behind the iconic viral photo of a man begging his wife for forgiveness outside a Chicago divorce court in 1948](https://news.yahoo.com/story-behind-iconic-viral-photo-012046334.html)
-- Apr 01 - [An LSU cheerleader pulled off an impressive stunt to retrieve a basketball stuck above the hoop at the Final Four](https://news.yahoo.com/lsu-cheerleader-pulled-off-impressive-002453986.html)
-- Mar 31 - [Rock crystal sat in museum for nearly 2 centuries — then they found it wasn’t a rock](https://news.yahoo.com/rock-crystal-sat-museum-nearly-211341442.html)
-- Mar 31 - [Anthony Rendon fan interaction video looked into by MLB](https://news.yahoo.com/anthony-rendon-fan-interaction-video-210555508.html)
+- Mar 31 - [A Dodgers fan's surprise proposal goes viral after he was tackled in the outfield](https://news.yahoo.com/dodgers-fans-surprise-proposal-goes-230457391.html)
 <!-- feed end -->
