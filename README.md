@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 01 - [The story behind the iconic viral photo of a man begging his wife for forgiveness outside a Chicago divorce court in 1948](https://news.yahoo.com/story-behind-iconic-viral-photo-012046334.html)
 - Apr 01 - [An LSU cheerleader pulled off an impressive stunt to retrieve a basketball stuck above the hoop at the Final Four](https://news.yahoo.com/lsu-cheerleader-pulled-off-impressive-002453986.html)
-- Mar 31 - [Retired Oxnard firefighter who aided shooting victim sues Santa Paula over police treatment](https://news.yahoo.com/retired-oxnard-firefighter-aided-shooting-222934448.html)
 - Mar 31 - [Rock crystal sat in museum for nearly 2 centuries — then they found it wasn’t a rock](https://news.yahoo.com/rock-crystal-sat-museum-nearly-211341442.html)
 - Mar 31 - [Anthony Rendon fan interaction video looked into by MLB](https://news.yahoo.com/anthony-rendon-fan-interaction-video-210555508.html)
+- Mar 31 - [A judge just delivered a crushing blow to Fox News in Dominion's defamation lawsuit](https://news.yahoo.com/judge-just-delivered-crushing-blow-210223522.html)
 <!-- feed end -->
