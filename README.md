@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 01 - [Arizona governor must appear in court on pause of executions](https://news.yahoo.com/arizona-governor-must-appear-court-215513201.html)
+- Apr 01 - [Kaley Cuoco welcomes 1st child with Tom Pelphrey and reveals daughter's name](https://news.yahoo.com/kaley-cuoco-welcomes-1st-child-212954508.html)
 - Apr 01 - [St. Petersburg police find body of missing Florida boy, 2, in mouth of an alligator](https://news.yahoo.com/st-petersburg-police-body-missing-160638154.html)
+- Apr 01 - [Staley defends players again; Iowa coach says no ill intent](https://news.yahoo.com/staley-defends-players-again-iowa-193620790.html)
 - Apr 01 - [A wild iguana in Costa Rica bit a little girl as it tried to steal her piece of cake. Now, doctors say she has developed a rare bacterial infection.](https://news.yahoo.com/wild-iguana-costa-rica-bit-191604667.html)
-- Apr 01 - [Iowa coach Lisa Bluder brushes off Dawn Staley's frustration about 'bar fight' comment](https://news.yahoo.com/iowa-coach-lisa-bluder-brushes-184524219.html)
-- Apr 01 - [Russia will never recover from this devastating collapse](https://news.yahoo.com/russia-never-recover-devastating-collapse-180000997.html)
-- Apr 01 - [Biden admin moving forward with light bulb bans in coming weeks](https://news.yahoo.com/biden-admin-moving-forward-light-165445494.html)
 <!-- feed end -->
