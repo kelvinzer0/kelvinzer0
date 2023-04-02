@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 02 - [Demonstrators in Poland defend late pope John Paul II](https://news.yahoo.com/demonstrators-poland-defend-pope-john-164454611.html)
+- Apr 02 - [Twitter pulls check mark from main New York Times account](https://news.yahoo.com/twitter-pulls-check-mark-main-162923435.html)
+- Apr 02 - [Ben Affleck says working with Matt Damon, his Boston bestie of 42 years, means 'ya nevah work anothah day in ya life'](https://news.yahoo.com/ben-affleck-says-working-matt-151652510.html)
+- Apr 02 - [Israel advances national guard force for right-wing minister](https://news.yahoo.com/israeli-government-advances-ben-gvirs-150704368.html)
 - Apr 02 - [Saudis to cut oil production by 500,000 barrels per day](https://news.yahoo.com/saudis-cut-oil-production-500-145229069.html)
-- Apr 02 - [How fairy tales shape fighting spirit: Ukraine's children hear bedtime stories of underdog heroes, while Russian children hear tales of magical success](https://news.yahoo.com/fairy-tales-shape-fighting-spirit-185834580.html)
-- Apr 02 - [Chris Christie calls Trump camp’s ‘bravado’ over indictment ‘baloney’](https://news.yahoo.com/chris-christie-calls-trump-camp-141232226.html)
-- Apr 02 - [A long-dormant lake has reappeared in California, bringing havoc along with it](https://news.yahoo.com/long-dormant-lake-reappeared-california-140000365.html)
-- Apr 02 - [Russians setting traps for last remaining Ukrainian fighter jets](https://news.yahoo.com/russians-setting-traps-last-remaining-133953753.html)
 <!-- feed end -->
