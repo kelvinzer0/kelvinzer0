@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 02 - [Demonstrators in Poland defend late pope John Paul II](https://news.yahoo.com/demonstrators-poland-defend-pope-john-164454611.html)
-- Apr 02 - [Twitter pulls check mark from main New York Times account](https://news.yahoo.com/twitter-pulls-check-mark-main-162923435.html)
+- Apr 02 - [Trump indictment star of the show on 'SNL' cold open; Quinta Brunson hosts](https://news.yahoo.com/trump-indictment-star-show-snl-175143554.html)
+- Apr 02 - [Kamala Harris's staff revolt over quality of food on Air Force Two](https://news.yahoo.com/kamala-harriss-staff-revolt-over-171946111.html)
+- Apr 02 - [Chris Christie knocks DeSantis over potential Trump extradition: ‘Who the hell asked you?’](https://news.yahoo.com/chris-christie-knocks-desantis-over-171709344.html)
+- Apr 02 - [Gray whales fight off 30 killer whales in dramatic drone video off California coast](https://news.yahoo.com/gray-whales-fight-off-30-162310857.html)
 - Apr 02 - [Ben Affleck says working with Matt Damon, his Boston bestie of 42 years, means 'ya nevah work anothah day in ya life'](https://news.yahoo.com/ben-affleck-says-working-matt-151652510.html)
-- Apr 02 - [Israel advances national guard force for right-wing minister](https://news.yahoo.com/israeli-government-advances-ben-gvirs-150704368.html)
-- Apr 02 - [Saudis to cut oil production by 500,000 barrels per day](https://news.yahoo.com/saudis-cut-oil-production-500-145229069.html)
 <!-- feed end -->
