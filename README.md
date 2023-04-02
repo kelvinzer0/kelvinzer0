@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 02 - [New York, city of Trump's dreams, delivers his comeuppance](https://news.yahoo.com/york-city-trumps-dreams-delivers-111800973.html)
+- Apr 02 - [Ukrainian official offers plan for a Crimea without Russia](https://news.yahoo.com/ukrainian-official-offers-plan-crimea-105407495.html)
+- Apr 02 - [Kremlin mouthpiece suggests Russians take out Putin, Tsymbaliuk says](https://news.yahoo.com/kremlin-mouthpiece-suggests-russians-putin-103300944.html)
+- Apr 02 - [Russia's President Vladimir Putin could be a 'dead man walking,' a former CIA counterintelligence chief told an interviewer](https://news.yahoo.com/russias-president-vladimir-putin-could-101754515.html)
 - Apr 02 - [What no one tells you about the health risks of wild swimming](https://news.yahoo.com/no-one-tells-health-risks-060000973.html)
-- Apr 02 - [Colin Jost Pranked by Michael Che on SNL Weekend Update](https://news.yahoo.com/colin-jost-pranked-michael-che-044617510.html)
-- Apr 02 - [SNL’s Michael Che Pulls Brutal April Fools’ Prank on Colin Jost](https://news.yahoo.com/snl-michael-che-pulls-brutal-044543985.html)
-- Apr 02 - [New York City woman abducted, raped in handcuffs and leg shackles on bus for hours: police](https://news.yahoo.com/york-city-woman-abducted-raped-015402258.html)
-- Apr 02 - [Baseball phenom, 13, dies by suicide. He came home from school, left video: 'I hate my life'](https://news.yahoo.com/baseball-phenom-13-dies-suicide-091254899.html)
 <!-- feed end -->
