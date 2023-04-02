@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 02 - [Brandon Johnson could be a national progressive star. He just has to win Chicago’s mayoral race first.](https://news.yahoo.com/brandon-johnson-chicago-mayor-paul-vallas-213142198.html)
 - Apr 02 - [Russia to put nukes near Belarus' western border, envoy says](https://news.yahoo.com/russia-put-nukes-near-belarus-210436636.html)
-- Apr 02 - [Pro-Russian propagandist killed in blast in St. Petersburg.](https://news.yahoo.com/pro-russian-propagandist-killed-in-blast-in-st-petersburg-205919774.html)
-- Apr 02 - [A San Diego St-UConn title game brings Fab Five memories](https://news.yahoo.com/san-diego-st-uconn-title-204640512.html)
-- Apr 02 - ["It Was A Nightmare": Tourists Are Sharing The Cities They Refuse To Visit Ever Again](https://news.yahoo.com/nightmare-tourists-sharing-cities-refuse-194553875.html)
-- Apr 02 - [Sex abuse case against ex-Alaska attorney general thrown out](https://news.yahoo.com/sex-abuse-case-against-ex-201201699.html)
+- Apr 02 - [LSU's 59 1st-half points set NCAA women's title game record](https://news.yahoo.com/lsus-59-1st-half-points-205906055.html)
+- Apr 02 - [Caitlin Clark's 'very disrespectful' defense against South Carolina is motivating LSU in the national championship game](https://news.yahoo.com/caitlin-clarks-very-disrespectful-defense-205026911.html)
+- Apr 02 - [Concertgoers who were filmed grinding at Taylor Swift's Eras Tour sparked another online debate about concert etiquette](https://news.yahoo.com/concertgoers-were-filmed-grinding-taylor-203102532.html)
 <!-- feed end -->
