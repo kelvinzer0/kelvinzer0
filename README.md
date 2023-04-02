@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 02 - [Chris Christie calls Trump camp’s ‘bravado’ over indictment ‘baloney’](https://news.yahoo.com/chris-christie-calls-trump-camp-141232226.html)
+- Apr 02 - [A long-dormant lake has reappeared in California, bringing havoc along with it](https://news.yahoo.com/long-dormant-lake-reappeared-california-140000365.html)
 - Apr 02 - [Russians setting traps for last remaining Ukrainian fighter jets](https://news.yahoo.com/russians-setting-traps-last-remaining-133953753.html)
-- Apr 02 - [More Ecuadorians move to U.S., spared many others' hurdles](https://news.yahoo.com/more-ecuadorians-move-u-spared-133837125.html)
-- Apr 02 - [Ex-Arkansas GOP Gov. Asa Hutchinson is running for president](https://news.yahoo.com/ex-arkansas-gop-gov-asa-131822617.html)
-- Apr 02 - [Maggie Haberman Names The 1 Thing That Could Keep Trump's Case In Check](https://news.yahoo.com/maggie-haberman-names-1-thing-125340412.html)
-- Apr 02 - [Ukrainian official offers plan for a Crimea without Russia](https://news.yahoo.com/ukrainian-official-offers-plan-crimea-105407495.html)
+- Apr 02 - [Hutchinson launches GOP 2024 bid, calls on Trump to drop out](https://news.yahoo.com/ex-arkansas-gop-gov-asa-131822617.html)
+- Apr 02 - [Russian troops are dying in Ukraine due to heavy alcohol consumption, poor weapons handling, and hypothermia, UK intel says](https://news.yahoo.com/russian-troops-dying-ukraine-due-131153932.html)
 <!-- feed end -->
