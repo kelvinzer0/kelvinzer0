@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 02 - [Trump indictment star of the show on 'SNL' cold open; Quinta Brunson hosts](https://news.yahoo.com/trump-indictment-star-show-snl-175143554.html)
 - Apr 02 - [Kamala Harris's staff revolt over quality of food on Air Force Two](https://news.yahoo.com/kamala-harriss-staff-revolt-over-171946111.html)
 - Apr 02 - [Chris Christie knocks DeSantis over potential Trump extradition: ‘Who the hell asked you?’](https://news.yahoo.com/chris-christie-knocks-desantis-over-171709344.html)
+- Apr 02 - [Manchin makes plea to DA Bragg after Trump indictment: ‘Remove all doubt’](https://news.yahoo.com/manchin-makes-plea-da-bragg-170138552.html)
 - Apr 02 - [Bharara says "it's a little bit rich" of former AG Barr to call Bragg "political"](https://news.yahoo.com/bharara-says-little-bit-rich-163506310.html)
-- Apr 02 - [Gray whales fight off 30 killer whales in dramatic drone video off California coast](https://news.yahoo.com/gray-whales-fight-off-30-162310857.html)
-- Apr 02 - [Ben Affleck says working with Matt Damon, his Boston bestie of 42 years, means 'ya nevah work anothah day in ya life'](https://news.yahoo.com/ben-affleck-says-working-matt-151652510.html)
 <!-- feed end -->
