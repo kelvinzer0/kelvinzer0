@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 02 - [Russians setting traps for last remaining Ukrainian fighter jets](https://news.yahoo.com/russians-setting-traps-last-remaining-133953753.html)
+- Apr 02 - [More Ecuadorians move to U.S., spared many others' hurdles](https://news.yahoo.com/more-ecuadorians-move-u-spared-133837125.html)
+- Apr 02 - [Ex-Arkansas GOP Gov. Asa Hutchinson is running for president](https://news.yahoo.com/ex-arkansas-gop-gov-asa-131822617.html)
+- Apr 02 - [Maggie Haberman Names The 1 Thing That Could Keep Trump's Case In Check](https://news.yahoo.com/maggie-haberman-names-1-thing-125340412.html)
 - Apr 02 - [Ukrainian official offers plan for a Crimea without Russia](https://news.yahoo.com/ukrainian-official-offers-plan-crimea-105407495.html)
-- Apr 02 - [Kremlin mouthpiece suggests Russians take out Putin, Tsymbaliuk says](https://news.yahoo.com/kremlin-mouthpiece-suggests-russians-putin-103300944.html)
-- Apr 02 - [Russia's President Vladimir Putin could be a 'dead man walking,' a former CIA counterintelligence chief told an interviewer](https://news.yahoo.com/russias-president-vladimir-putin-could-101754515.html)
-- Apr 02 - [What no one tells you about the health risks of wild swimming](https://news.yahoo.com/no-one-tells-health-risks-060000973.html)
-- Apr 02 - [Colin Jost Pranked by Michael Che on SNL Weekend Update](https://news.yahoo.com/colin-jost-pranked-michael-che-044617510.html)
 <!-- feed end -->
