@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 02 - [Colin Jost Pranked by Michael Che on SNL Weekend Update](https://news.yahoo.com/colin-jost-pranked-michael-che-044617510.html)
+- Apr 02 - [SNL’s Michael Che Pulls Brutal April Fools’ Prank on Colin Jost](https://news.yahoo.com/snl-michael-che-pulls-brutal-044543985.html)
 - Apr 02 - [SNL Cold Open: Trump Launches Covers Album to Fund Legal Defense](https://news.yahoo.com/snl-cold-open-trump-launches-035742929.html)
 - Apr 02 - [New York City woman abducted, raped in handcuffs and leg shackles on bus for hours: police](https://news.yahoo.com/york-city-woman-abducted-raped-015402258.html)
 - Apr 02 - [Baseball phenom, 13, dies by suicide. He came home from school, left video: 'I hate my life'](https://news.yahoo.com/baseball-phenom-13-dies-suicide-091254899.html)
-- Apr 01 - [Arizona governor must appear in court on pause of executions](https://news.yahoo.com/arizona-governor-must-appear-court-215513201.html)
-- Apr 01 - [Scuffle at pro-Trump rally in Huntington Beach leaves 2 injured](https://news.yahoo.com/heels-criminal-indictment-former-president-213346234.html)
 <!-- feed end -->
