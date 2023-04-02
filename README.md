@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 02 - [Who Killed Peter Kovach and Ted Gould?](https://news.yahoo.com/killed-peter-kovach-ted-gould-030000098.html)
 - Apr 02 - [Baseball phenom, 13, dies by suicide. He came home from school, left video: 'I hate my life'](https://news.yahoo.com/baseball-phenom-13-dies-suicide-091254899.html)
-- Apr 01 - [Arizona governor must appear in court on pause of executions](https://news.yahoo.com/arizona-governor-must-appear-court-215513201.html)
 - Apr 01 - [Scuffle at pro-Trump rally in Huntington Beach leaves 2 injured](https://news.yahoo.com/heels-criminal-indictment-former-president-213346234.html)
 - Apr 01 - [Kaley Cuoco welcomes 1st child with Tom Pelphrey and reveals daughter's name](https://news.yahoo.com/kaley-cuoco-welcomes-1st-child-212954508.html)
+- Apr 01 - [Kvitova upends Rybakina for women's Miami Open title](https://news.yahoo.com/kvitova-upends-rybakina-womens-miami-210710882.html)
+- Apr 01 - [St. Petersburg police find body of missing Florida boy, 2, in mouth of an alligator](https://news.yahoo.com/st-petersburg-police-body-missing-160638154.html)
 <!-- feed end -->
