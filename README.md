@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 03 - ['We’ll kill you': Troops film boys' killings in Burkina Faso](https://news.yahoo.com/ll-kill-troops-film-boys-044652452.html)
+- Apr 03 - [Trump faces setbacks in other probes as NY case proceeds](https://news.yahoo.com/trump-faces-setbacks-other-probes-040756969.html)
+- Apr 03 - [Trump may have looked through Mar-a-Lago documents after subpoena was delivered, new evidence suggests, pointing to a big potential difference between his documents case and Biden's: report](https://news.yahoo.com/trump-may-looked-mar-lago-030546462.html)
 - Apr 03 - [Controversial calls and Kim Mulkey's antics overshadowed the women's national championship game](https://news.yahoo.com/controversial-calls-kim-mulkeys-antics-025905902.html)
 - Apr 03 - [LSU's Reese unapologetic over gestures to Iowa star Clark](https://news.yahoo.com/lsus-reese-unapologetic-over-gestures-013036314.html)
-- Apr 03 - [A Manhattan brownstone listed for $7.5 million spreads across 3 levels, has an open-air roof, and a working fireplace. Take a look inside.](https://news.yahoo.com/manhattan-brownstone-listed-7-5-003000343.html)
-- Apr 03 - [Teen Who Landed in ICU After Alleged Hazing Incident Breaks His Silence](https://news.yahoo.com/teen-landed-icu-alleged-hazing-001609269.html)
-- Apr 02 - [LSU wins 1st NCAA title, Mulkey's 4th, beating Clark, Iowa](https://news.yahoo.com/lsu-wins-first-ncaa-championship-215745914.html)
 <!-- feed end -->
