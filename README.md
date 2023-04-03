@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - [Cops Reveal Chilling New Details About Nashville Shooter Audrey Hale](https://news.yahoo.com/cops-reveal-chilling-details-nashville-192940499.html)
-- Apr 03 - [Three dogs attack 31-year-old woman in her dad’s backyard, Ohio police say](https://news.yahoo.com/three-dogs-attack-31-old-192009324.html)
-- Apr 03 - [Florida NAACP urges Black people not to visit its state. Critics worry the plan will backfire.](https://news.yahoo.com/florida-naacp-black-people-critics-african-american-desantis-the-plan-backfire-185133748.html)
-- Apr 03 - [LSU coach reacts to social media attacks on Angel Reese after viral hand gesture](https://news.yahoo.com/lsu-coach-reacts-social-media-182021464.html)
-- Apr 03 - [What Trump risks if he keeps talking about the judge in his N.Y. criminal case](https://news.yahoo.com/trump-risks-keeps-talking-judge-181916561.html)
+- Apr 03 - [Ricochet, San Diego’s surfing therapy dog, dies at 15](https://news.yahoo.com/ricochet-san-diego-surfing-therapy-203855326.html)
+- Apr 03 - [Extinct bison emerges from melting permafrost up to 9,000 years later. Can it be cloned?](https://news.yahoo.com/extinct-bison-emerges-melting-permafrost-203242664.html)
+- Apr 03 - ["It Was A Nightmare": Tourists Are Sharing The Cities They Refuse To Visit Ever Again](https://news.yahoo.com/nightmare-tourists-sharing-cities-refuse-194553875.html)
+- Apr 03 - [A popular Russian influencer is unfazed after fans accused him of animal abuse in a now-deleted video where he's seen yanking and hitting his cat](https://news.yahoo.com/popular-russian-influencer-unfazed-fans-201903460.html)
+- Apr 03 - [Union Pacific sued after firing rail worker on medical leave](https://news.yahoo.com/union-pacific-sued-firing-rail-201100468.html)
 <!-- feed end -->
