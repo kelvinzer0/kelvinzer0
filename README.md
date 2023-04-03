@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 02 - [Caitlin Clark's dazzling season ends short of title for Iowa](https://news.yahoo.com/caitlin-clarks-dazzling-season-ends-225302707.html)
-- Apr 02 - [Stormy Daniels in 2018: "I was concerned for my family"](https://news.yahoo.com/stormy-daniels-2018-concerned-family-225000569.html)
-- Apr 02 - [LSU wins 1st NCAA championship, beating Clark and Iowa](https://news.yahoo.com/lsu-wins-first-ncaa-championship-215745914.html)
-- Apr 02 - [Winker drives in 3 as Brewers beat Taillon, Cubs 9-5](https://news.yahoo.com/winker-drives-3-brewers-beat-212126230.html)
+- Apr 03 - [Clark tech, foul count put focus on officials in title game](https://news.yahoo.com/clark-tech-foul-count-put-003735280.html)
+- Apr 03 - [Teen Who Landed in ICU After Alleged Hazing Incident Breaks His Silence](https://news.yahoo.com/teen-landed-icu-alleged-hazing-001609269.html)
+- Apr 02 - [O'Hoppe hits first HR, Trout, Ohtani connect in Angels win](https://news.yahoo.com/ohoppe-hits-first-hr-trout-224938810.html)
 - Apr 02 - [LSU's 59 1st-half points set NCAA women's title game record](https://news.yahoo.com/lsus-59-1st-half-points-205906055.html)
+- Apr 02 - [Caitlin Clark's 'very disrespectful' defense against South Carolina is motivating LSU in the national championship game](https://news.yahoo.com/caitlin-clarks-very-disrespectful-defense-205026911.html)
 <!-- feed end -->
