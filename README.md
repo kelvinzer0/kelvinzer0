@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - [Nashville police: School shooter planned attack for months](https://news.yahoo.com/nashville-police-school-shooter-planned-185413454.html)
+- Apr 03 - [Cops Reveal Chilling New Details About Nashville Shooter Audrey Hale](https://news.yahoo.com/cops-reveal-chilling-details-nashville-192940499.html)
+- Apr 03 - [Three dogs attack 31-year-old woman in her dad’s backyard, Ohio police say](https://news.yahoo.com/three-dogs-attack-31-old-192009324.html)
 - Apr 03 - [Florida NAACP urges Black people not to visit its state. Critics worry the plan will backfire.](https://news.yahoo.com/florida-naacp-black-people-critics-african-american-desantis-the-plan-backfire-185133748.html)
-- Apr 03 - [Maine ice disk on frozen lake measures 541 meters across](https://news.yahoo.com/maine-ice-disk-frozen-lake-184846818.html)
-- Apr 03 - [Hard cleanup: Montana train derailment spills beer and clay](https://news.yahoo.com/hard-cleanup-montana-train-derailment-184423702.html)
-- Apr 03 - [DiCaprio testifies in money-laundering case of Fugees rapper](https://news.yahoo.com/dicaprio-testifies-money-laundering-case-183719841.html)
+- Apr 03 - [LSU coach reacts to social media attacks on Angel Reese after viral hand gesture](https://news.yahoo.com/lsu-coach-reacts-social-media-182021464.html)
+- Apr 03 - [What Trump risks if he keeps talking about the judge in his N.Y. criminal case](https://news.yahoo.com/trump-risks-keeps-talking-judge-181916561.html)
 <!-- feed end -->
