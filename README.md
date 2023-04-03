@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - [LSU scores first women's championship title, Iowa's Caitlin Clark breaks NCAA records](https://news.yahoo.com/lsu-scores-first-womens-championship-134827268.html)
-- Apr 03 - [Trump set to travel to New York; face booking, arraignment](https://news.yahoo.com/trump-set-travel-york-face-132005459.html)
-- Apr 03 - [The workout 'cheat codes' a 43-year-old personal trainer says he wishes he knew at 23](https://news.yahoo.com/workout-cheat-codes-43-old-130326034.html)
-- Apr 03 - ['Euphoria' star Barbie Ferreira says she left the show because she didn't want to play 'the fat best friend,' and doesn't think creator Sam Levinson 'relates to Kat'](https://news.yahoo.com/euphoria-star-barbie-ferreira-says-130016850.html)
-- Apr 03 - [Woman confesses delivering bomb to slain Russian blogger Vladlen Tatarsky](https://news.yahoo.com/woman-arrested-russian-blogger-vladlen-095421751.html)
+- Apr 03 - [15 Best Single Malt Scotch Whiskies for Less Than $100](https://news.yahoo.com/15-best-single-malt-scotch-143059219.html)
+- Apr 03 - [Lesley Stahl's Reply To Marjorie Taylor Greene's 'Pedophile' Claim Angers Viewers](https://news.yahoo.com/lesley-stahls-reply-marjorie-taylor-141945957.html)
+- Apr 03 - [Spiraling housing prices spark worry about Hawaii's future](https://news.yahoo.com/spiraling-housing-prices-spark-worry-141909544.html)
+- Apr 03 - [8 involved in Amsterdam heist sentenced to up to 15 years](https://news.yahoo.com/8-involved-amsterdam-heist-sentenced-135910574.html)
+- Apr 03 - [A drug recall for a possible contamination that can cause ‘life threatening infections’](https://news.yahoo.com/drug-recall-possible-contamination-cause-133443625.html)
 <!-- feed end -->
