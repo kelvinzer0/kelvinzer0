@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - [Woman 'who delivered bomb' to slain Russian blogger Vladlen Tatarsky arrested](https://news.yahoo.com/woman-arrested-russian-blogger-vladlen-095421751.html)
-- Apr 03 - [A 17-year-old from Los Angeles says he spent 17 months cycling 20,000 miles from Alaska to Argentina. He got robbed in Mexico, spent a month in hospital in Colombia, but wants to get back on the road again.](https://news.yahoo.com/17-old-los-angeles-says-085854534.html)
-- Apr 03 - [Ex-principal of Jewish school found guilty of sexual abuse](https://news.yahoo.com/jewish-school-principal-australia-guilty-073308957.html)
-- Apr 03 - [‘My family sailing jaunt turned into a 10-year nightmare at sea’](https://news.yahoo.com/family-sailing-jaunt-turned-10-070000254.html)
-- Apr 03 - [Analysis: Saudi prince pivots to peace after years of war](https://news.yahoo.com/analysis-saudi-prince-pivots-peace-064038147.html)
+- Apr 03 - [Community colleges are reeling. 'The reckoning is here.’](https://news.yahoo.com/community-colleges-reeling-reckoning-121109544.html)
+- Apr 03 - [Philippines names 4 new bases for US forces amid China fury](https://news.yahoo.com/philippines-names-4-bases-us-114239931.html)
+- Apr 03 - ['We Fact-Checked': Marjorie Taylor Greene Caught Lying in '60 Minutes' Interview](https://news.yahoo.com/fact-checked-marjorie-taylor-greene-112858863.html)
+- Apr 03 - [Trump campaign says it's raised more than $5M since indictment](https://news.yahoo.com/trump-campaign-says-raised-more-112632483.html)
+- Apr 03 - [A Georgia teenager who was put on a ventilator after being tortured at a house party said it will take months for him to heal](https://news.yahoo.com/georgia-teenager-put-ventilator-being-111702770.html)
 <!-- feed end -->
