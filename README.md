@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - [Trump leaves Florida home to surrender to charges in New York](https://news.yahoo.com/trump-leaves-florida-home-surrender-162806497.html)
-- Apr 03 - [This ‘world famous’ fried chicken restaurant in KCK is being sued for racial discrimination](https://news.yahoo.com/world-famous-fried-chicken-restaurant-161518610.html)
+- Apr 03 - [Unlike in Trump case, Secret Service kept this one secret](https://news.yahoo.com/unlike-trump-case-secret-kept-180218380.html)
+- Apr 03 - [Texas Wants to Make Last Night’s CMT Music Awards Illegal](https://news.yahoo.com/texas-wants-last-night-cmt-174004451.html)
+- Apr 03 - [Brave bobcat stalking alligator across road has second thoughts, Florida video shows](https://news.yahoo.com/brave-bobcat-stalking-alligator-across-170150759.html)
 - Apr 03 - [A woman lived in a 180-foot tree for over 2 years to protect a beloved forest. Meet Julia 'Butterfly' Hill.](https://news.yahoo.com/woman-lived-180-foot-tree-160506803.html)
 - Apr 03 - [Ron DeSantis orders Florida's inspector general to see if Disney execs were personally involved with making the loophole to thwart him](https://news.yahoo.com/ron-desantis-orders-floridas-inspector-160440402.html)
-- Apr 03 - [Mathematician Breaks Down the Best Ways to Win the Lottery](https://news.yahoo.com/mathematician-breaks-down-best-ways-160000581.html)
 <!-- feed end -->
