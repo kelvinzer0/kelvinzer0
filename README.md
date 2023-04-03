@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Apr 03 - [Clark tech, foul count put focus on officials in title game](https://news.yahoo.com/clark-tech-foul-count-put-003735280.html)
 - Apr 03 - [A Manhattan brownstone listed for $7.5 million spreads across 3 levels, has an open-air roof, and a working fireplace. Take a look inside.](https://news.yahoo.com/manhattan-brownstone-listed-7-5-003000343.html)
 - Apr 03 - [Teen Who Landed in ICU After Alleged Hazing Incident Breaks His Silence](https://news.yahoo.com/teen-landed-icu-alleged-hazing-001609269.html)
-- Apr 02 - [O'Hoppe hits first HR, Trout, Ohtani connect in Angels win](https://news.yahoo.com/ohoppe-hits-first-hr-trout-224938810.html)
+- Apr 02 - [LSU's 59 1st-half points set NCAA women's title game record](https://news.yahoo.com/lsus-59-1st-half-points-205906055.html)
 <!-- feed end -->
