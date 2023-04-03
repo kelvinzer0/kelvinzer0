@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 03 - [Jewish school principal in Australia guilty of sexual abuse](https://news.yahoo.com/jewish-school-principal-australia-guilty-073308957.html)
+- Apr 03 - [‘My family sailing jaunt turned into a 10-year nightmare at sea’](https://news.yahoo.com/family-sailing-jaunt-turned-10-070000254.html)
 - Apr 03 - [Analysis: Saudi prince pivots to peace after years of war](https://news.yahoo.com/analysis-saudi-prince-pivots-peace-064038147.html)
 - Apr 03 - [Trump says his fans didn't just give him $5 million in 48 hours — more than 16,000 people also signed up to become campaign volunteers within 2 days of his indictment](https://news.yahoo.com/trump-says-fans-didnt-just-051826054.html)
 - Apr 03 - ['We’ll kill you': Troops film boys' killings in Burkina Faso](https://news.yahoo.com/ll-kill-troops-film-boys-044652452.html)
-- Apr 03 - [Trump faces setbacks in other probes as NY case proceeds](https://news.yahoo.com/trump-faces-setbacks-other-probes-040756969.html)
-- Apr 03 - [Trump may have looked through Mar-a-Lago documents after subpoena was delivered, new evidence suggests, pointing to a big potential difference between his documents case and Biden's: report](https://news.yahoo.com/trump-may-looked-mar-lago-030546462.html)
 <!-- feed end -->
