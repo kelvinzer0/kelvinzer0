@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - [Ricochet, San Diego’s surfing therapy dog, dies at 15](https://news.yahoo.com/ricochet-san-diego-surfing-therapy-203855326.html)
-- Apr 03 - [Extinct bison emerges from melting permafrost up to 9,000 years later. Can it be cloned?](https://news.yahoo.com/extinct-bison-emerges-melting-permafrost-203242664.html)
-- Apr 03 - ["It Was A Nightmare": Tourists Are Sharing The Cities They Refuse To Visit Ever Again](https://news.yahoo.com/nightmare-tourists-sharing-cities-refuse-194553875.html)
-- Apr 03 - [A popular Russian influencer is unfazed after fans accused him of animal abuse in a now-deleted video where he's seen yanking and hitting his cat](https://news.yahoo.com/popular-russian-influencer-unfazed-fans-201903460.html)
-- Apr 03 - [Union Pacific sued after firing rail worker on medical leave](https://news.yahoo.com/union-pacific-sued-firing-rail-201100468.html)
+- Apr 03 - [Jill Biden wants champions LSU — and Iowa — at White House](https://news.yahoo.com/jill-biden-wants-champions-lsu-213524781.html)
+- Apr 03 - [‘Perfect’ home listed in California leaves Zillow Gone Wild stunned. ‘Sharp looking’](https://news.yahoo.com/perfect-home-listed-california-leaves-213457475.html)
+- Apr 03 - [Navy sailor charged in Capitol riot was stationed on carrier](https://news.yahoo.com/navy-sailor-charged-capitol-riot-212033262.html)
+- Apr 03 - [Sex abuse trial delayed for 'Dances With Wolves' actor](https://news.yahoo.com/sex-abuse-trial-delayed-dances-210913210.html)
+- Apr 03 - [Trump makes last-ditch change to legal team to sideline 'loudmouth' lawyer ahead of arraignment](https://news.yahoo.com/trump-makes-last-ditch-change-210000645.html)
 <!-- feed end -->
