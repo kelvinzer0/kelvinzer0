@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - [Ali Wong, Steven Yeun serve up epic feud in Netflix's 'Beef'](https://news.yahoo.com/ali-wong-steven-yeun-serve-155003041.html)
-- Apr 03 - [Abortion bills gain no ground in Kentucky with ban in place](https://news.yahoo.com/abortion-bills-gain-no-ground-153419873.html)
-- Apr 03 - [After March Madness, women's pro basketball options are slim](https://news.yahoo.com/march-madness-womens-pro-basketball-150524198.html)
-- Apr 03 - [‘Shoot them.’ Chipotle order turns chaotic after duo demands more cheese, Ohio cops say](https://news.yahoo.com/shoot-them-chipotle-order-turns-145556217.html)
-- Apr 03 - [Lesley Stahl's Reply To Marjorie Taylor Greene's 'Pedophile' Claim Angers Viewers](https://news.yahoo.com/lesley-stahls-reply-marjorie-taylor-141945957.html)
+- Apr 03 - [Trump leaves Florida home to surrender to charges in New York](https://news.yahoo.com/trump-leaves-florida-home-surrender-162806497.html)
+- Apr 03 - [This ‘world famous’ fried chicken restaurant in KCK is being sued for racial discrimination](https://news.yahoo.com/world-famous-fried-chicken-restaurant-161518610.html)
+- Apr 03 - [A woman lived in a 180-foot tree for over 2 years to protect a beloved forest. Meet Julia 'Butterfly' Hill.](https://news.yahoo.com/woman-lived-180-foot-tree-160506803.html)
+- Apr 03 - [Ron DeSantis orders Florida's inspector general to see if Disney execs were personally involved with making the loophole to thwart him](https://news.yahoo.com/ron-desantis-orders-floridas-inspector-160440402.html)
+- Apr 03 - [Mathematician Breaks Down the Best Ways to Win the Lottery](https://news.yahoo.com/mathematician-breaks-down-best-ways-160000581.html)
 <!-- feed end -->
