@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - [Jill Biden wants champions LSU — and Iowa — at White House](https://news.yahoo.com/jill-biden-wants-champions-lsu-213524781.html)
+- Apr 03 - [California AG: 54 ghost guns seized in unique state program](https://news.yahoo.com/california-ag-54-ghost-guns-224252904.html)
+- Apr 03 - [Svitolina loses at Charleston Open in 1st match as a mom](https://news.yahoo.com/svitolina-loses-charleston-open-1st-223541361.html)
+- Apr 03 - ['Guardians of the Galaxy 3' director says Taika Waititi 'took a bullet' for him by figuring out how to get Thor away from the group of heroes](https://news.yahoo.com/guardians-galaxy-3-director-says-214805592.html)
+- Apr 03 - [Russia rejects US claims its UN council presidency is a joke](https://news.yahoo.com/russia-rejects-us-claims-un-213802439.html)
 - Apr 03 - [‘Perfect’ home listed in California leaves Zillow Gone Wild stunned. ‘Sharp looking’](https://news.yahoo.com/perfect-home-listed-california-leaves-213457475.html)
-- Apr 03 - [Navy sailor charged in Capitol riot was stationed on carrier](https://news.yahoo.com/navy-sailor-charged-capitol-riot-212033262.html)
-- Apr 03 - [Sex abuse trial delayed for 'Dances With Wolves' actor](https://news.yahoo.com/sex-abuse-trial-delayed-dances-210913210.html)
-- Apr 03 - [Trump makes last-ditch change to legal team to sideline 'loudmouth' lawyer ahead of arraignment](https://news.yahoo.com/trump-makes-last-ditch-change-210000645.html)
 <!-- feed end -->
