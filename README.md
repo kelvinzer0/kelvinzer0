@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - ["Little Annoyances Become Bigger Problems": 22 People Shared The Harsh Realities Of Marriage That No One Talks About](https://news.yahoo.com/little-annoyances-become-bigger-problems-015316478.html)
+- Apr 03 - [A 17-year-old from Los Angeles says he spent 17 months cycling 20,000 miles from Alaska to Argentina. He got robbed in Mexico, spent a month in hospital in Colombia, but wants to get back on the road again.](https://news.yahoo.com/17-old-los-angeles-says-085854534.html)
 - Apr 03 - [Jewish school principal in Australia guilty of sexual abuse](https://news.yahoo.com/jewish-school-principal-australia-guilty-073308957.html)
-- Apr 03 - [Suspect in Russian military blogger's killing arrested](https://news.yahoo.com/suspect-russian-military-bloggers-killing-073043030.html)
+- Apr 03 - [Russia blames Ukraine for bomb that killed military blogger](https://news.yahoo.com/suspect-russian-military-bloggers-killing-073043030.html)
 - Apr 03 - [‘My family sailing jaunt turned into a 10-year nightmare at sea’](https://news.yahoo.com/family-sailing-jaunt-turned-10-070000254.html)
 - Apr 03 - [Analysis: Saudi prince pivots to peace after years of war](https://news.yahoo.com/analysis-saudi-prince-pivots-peace-064038147.html)
 <!-- feed end -->
