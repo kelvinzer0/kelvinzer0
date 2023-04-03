@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - [Shaq called! Michigan teen with size 23 feet surprised by NBA legend after sharing shoe story](https://news.yahoo.com/shaq-called-michigan-teen-size-150704930.html)
-- Apr 03 - [Community Colleges Facing Enrollment 'Crisis'](https://news.yahoo.com/community-colleges-facing-enrollment-crisis-130041481.html)
+- Apr 03 - [LSU scores first women's championship title, Iowa's Caitlin Clark breaks NCAA records](https://news.yahoo.com/lsu-scores-first-womens-championship-134827268.html)
+- Apr 03 - [Trump set to travel to New York; face booking, arraignment](https://news.yahoo.com/trump-set-travel-york-face-132005459.html)
+- Apr 03 - [The workout 'cheat codes' a 43-year-old personal trainer says he wishes he knew at 23](https://news.yahoo.com/workout-cheat-codes-43-old-130326034.html)
+- Apr 03 - ['Euphoria' star Barbie Ferreira says she left the show because she didn't want to play 'the fat best friend,' and doesn't think creator Sam Levinson 'relates to Kat'](https://news.yahoo.com/euphoria-star-barbie-ferreira-says-130016850.html)
 - Apr 03 - [Woman confesses delivering bomb to slain Russian blogger Vladlen Tatarsky](https://news.yahoo.com/woman-arrested-russian-blogger-vladlen-095421751.html)
-- Apr 03 - [Community colleges are reeling. 'The reckoning is here.’](https://news.yahoo.com/community-colleges-reeling-reckoning-121109544.html)
-- Apr 03 - [Philippines names 4 new camps for US forces amid China fury](https://news.yahoo.com/philippines-names-4-bases-us-114239931.html)
 <!-- feed end -->
