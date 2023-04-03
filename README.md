@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 03 - [15 Best Single Malt Scotch Whiskies for Less Than $100](https://news.yahoo.com/15-best-single-malt-scotch-143059219.html)
+- Apr 03 - [Ali Wong, Steven Yeun serve up epic feud in Netflix's 'Beef'](https://news.yahoo.com/ali-wong-steven-yeun-serve-155003041.html)
+- Apr 03 - [Abortion bills gain no ground in Kentucky with ban in place](https://news.yahoo.com/abortion-bills-gain-no-ground-153419873.html)
+- Apr 03 - [After March Madness, women's pro basketball options are slim](https://news.yahoo.com/march-madness-womens-pro-basketball-150524198.html)
+- Apr 03 - [‘Shoot them.’ Chipotle order turns chaotic after duo demands more cheese, Ohio cops say](https://news.yahoo.com/shoot-them-chipotle-order-turns-145556217.html)
 - Apr 03 - [Lesley Stahl's Reply To Marjorie Taylor Greene's 'Pedophile' Claim Angers Viewers](https://news.yahoo.com/lesley-stahls-reply-marjorie-taylor-141945957.html)
-- Apr 03 - [Spiraling housing prices spark worry about Hawaii's future](https://news.yahoo.com/spiraling-housing-prices-spark-worry-141909544.html)
-- Apr 03 - [8 involved in Amsterdam heist sentenced to up to 15 years](https://news.yahoo.com/8-involved-amsterdam-heist-sentenced-135910574.html)
-- Apr 03 - [A drug recall for a possible contamination that can cause ‘life threatening infections’](https://news.yahoo.com/drug-recall-possible-contamination-cause-133443625.html)
 <!-- feed end -->
