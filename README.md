@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 03 - [Shaq called! Michigan teen with size 23 feet surprised by NBA legend after sharing shoe story](https://news.yahoo.com/shaq-called-michigan-teen-size-150704930.html)
+- Apr 03 - [Community Colleges Facing Enrollment 'Crisis'](https://news.yahoo.com/community-colleges-facing-enrollment-crisis-130041481.html)
+- Apr 03 - [Woman confesses delivering bomb to slain Russian blogger Vladlen Tatarsky](https://news.yahoo.com/woman-arrested-russian-blogger-vladlen-095421751.html)
 - Apr 03 - [Community colleges are reeling. 'The reckoning is here.’](https://news.yahoo.com/community-colleges-reeling-reckoning-121109544.html)
-- Apr 03 - [Philippines names 4 new bases for US forces amid China fury](https://news.yahoo.com/philippines-names-4-bases-us-114239931.html)
-- Apr 03 - ['We Fact-Checked': Marjorie Taylor Greene Caught Lying in '60 Minutes' Interview](https://news.yahoo.com/fact-checked-marjorie-taylor-greene-112858863.html)
-- Apr 03 - [Trump campaign says it's raised more than $5M since indictment](https://news.yahoo.com/trump-campaign-says-raised-more-112632483.html)
-- Apr 03 - [A Georgia teenager who was put on a ventilator after being tortured at a house party said it will take months for him to heal](https://news.yahoo.com/georgia-teenager-put-ventilator-being-111702770.html)
+- Apr 03 - [Philippines names 4 new camps for US forces amid China fury](https://news.yahoo.com/philippines-names-4-bases-us-114239931.html)
 <!-- feed end -->
