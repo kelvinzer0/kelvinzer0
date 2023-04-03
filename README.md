@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 03 - [Woman 'who delivered bomb' to slain Russian blogger Vladlen Tatarsky arrested](https://news.yahoo.com/woman-arrested-russian-blogger-vladlen-095421751.html)
 - Apr 03 - [A 17-year-old from Los Angeles says he spent 17 months cycling 20,000 miles from Alaska to Argentina. He got robbed in Mexico, spent a month in hospital in Colombia, but wants to get back on the road again.](https://news.yahoo.com/17-old-los-angeles-says-085854534.html)
-- Apr 03 - [Jewish school principal in Australia guilty of sexual abuse](https://news.yahoo.com/jewish-school-principal-australia-guilty-073308957.html)
-- Apr 03 - [Russia blames Ukraine for bomb that killed military blogger](https://news.yahoo.com/suspect-russian-military-bloggers-killing-073043030.html)
+- Apr 03 - [Ex-principal of Jewish school found guilty of sexual abuse](https://news.yahoo.com/jewish-school-principal-australia-guilty-073308957.html)
 - Apr 03 - [‘My family sailing jaunt turned into a 10-year nightmare at sea’](https://news.yahoo.com/family-sailing-jaunt-turned-10-070000254.html)
 - Apr 03 - [Analysis: Saudi prince pivots to peace after years of war](https://news.yahoo.com/analysis-saudi-prince-pivots-peace-064038147.html)
 <!-- feed end -->
