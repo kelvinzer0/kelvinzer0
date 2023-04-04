@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 04 - [The View: Alyssa Farah Griffin Says Trump is Spiraling Over Indictment](https://news.yahoo.com/view-alyssa-farah-griffin-says-161604924.html)
+- Apr 04 - [Bills finalize agreement on new stadium with state, county](https://news.yahoo.com/bills-finalize-agreement-stadium-state-221628759.html)
 - Apr 04 - [Trump loyalists such as Marjorie Taylor Greene and George Santos quickly flee chaotic protests](https://news.yahoo.com/trump-loyalists-marjorie-taylor-greene-210435313.html)
-- Apr 04 - [Queen Camilla: Charles’ wife gets title on coronation invite](https://news.yahoo.com/queen-camilla-charles-wife-gets-210136530.html)
+- Apr 04 - [Lawyer says Trump didn't intend to threaten prosecutor with social media post: 'That is a picture of him showing off an American-made bat'](https://news.yahoo.com/lawyer-says-trump-didnt-intend-205912151.html)
 - Apr 04 - [Padres' Machado ejected after being called out on violation](https://news.yahoo.com/padres-machado-ejected-being-called-205436720.html)
-- Apr 04 - [Undercover Los Angeles cops file claims in photo backlash](https://news.yahoo.com/undercover-los-angeles-cops-file-204435218.html)
-- Apr 04 - [PHOTOS: Protesters clash as Trump pleads not guilty](https://news.yahoo.com/photos-protesters-clash-trump-pleads-201118362.html)
 <!-- feed end -->
