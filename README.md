@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 04 - [I Was 15 When I Started Partying With Rock Stars. I Told No One What They Did To Me — Until Now.](https://news.yahoo.com/15-started-partying-rock-stars-123004670.html)
+- Apr 04 - [Celebrations, destruction on campus follow UConn victory](https://news.yahoo.com/celebrations-destruction-campus-uconn-victory-121025623.html)
+- Apr 04 - [Mass Yellowstone Bison Hunt Kills More Than 1,000](https://news.yahoo.com/mass-yellowstone-bison-hunt-kills-115757373.html)
+- Apr 04 - [Trump's Secret Service agents would accompany him if he went to jail, says retired US judge](https://news.yahoo.com/trumps-secret-agents-accompany-him-115154595.html)
 - Apr 04 - [Stephen Colbert's White-Power Zinger Of Donald Trump In Prison Is A Keeper](https://news.yahoo.com/stephen-colberts-white-power-zinger-114813661.html)
-- Apr 04 - [Three Marines jump into action to stop knife attack at Chick-fil-A, Virginia cops say](https://news.yahoo.com/three-marines-jump-action-stop-111400298.html)
-- Apr 04 - [A YouTuber was making a prank video in a Virginia mall. He said the prankee took it badly and shot him.](https://news.yahoo.com/youtuber-making-prank-video-virginia-104657336.html)
-- Apr 04 - [I told my wife I'd slept with 72 women. It didn't land well...](https://news.yahoo.com/told-wife-id-slept-72-100019820.html)
-- Apr 04 - [Putin’s meatgrinder tactics are destroying a generation of Russian men](https://news.yahoo.com/putin-meatgrinder-tactics-destroying-generation-094459398.html)
 <!-- feed end -->
