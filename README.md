@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 04 - [China seethes as US chip controls threaten tech ambitions](https://news.yahoo.com/china-seethes-us-chip-controls-054524360.html)
+- Apr 04 - [Trump lawyer Joe Tacopina warns that we might be on the 'eve of destruction' the night before Trump's arraignment](https://news.yahoo.com/trump-lawyer-joe-tacopina-warns-034102907.html)
+- Apr 04 - [A cross between domestic pigs and wild boars was intentionally bred in Canada. The resulting 'super pigs' escaped captivity and could be invading the US.](https://news.yahoo.com/cross-between-domestic-pigs-wild-015807523.html)
 - Apr 04 - [Lawyers: Ex-Maryland political aide dead after manhunt](https://news.yahoo.com/lawyer-ex-maryland-political-aide-013511918.html)
 - Apr 04 - [Stunning before-and-after images: California reservoir went from almost empty to 100% full](https://news.yahoo.com/stunning-images-california-reservoir-went-012122261.html)
-- Apr 04 - [Regé-Jean Page says he regrets making the same mistake as Robert Downey Jr. in 'Iron Man' by agreeing to wear armor for 'Dungeons & Dragons': 'You're hot all day'](https://news.yahoo.com/reg-jean-page-says-regrets-004522179.html)
-- Apr 04 - [Exclusive: Trump to be charged Tuesday with 34 felony counts, but spared handcuffs and mug shot](https://news.yahoo.com/exclusive-trump-to-be-charged-tuesday-with-34-felony-counts-but-spared-handcuffs-and-mug-shot-001241750.html)
-- Apr 03 - ['Psychotic crack' led woman to kill stepson, defense says](https://news.yahoo.com/psychotic-crack-led-woman-kill-233527448.html)
 <!-- feed end -->
