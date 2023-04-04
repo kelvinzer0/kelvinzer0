@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 04 - [Trump to surrender for arraignment on criminal charges in Manhattan: Live updates](https://news.yahoo.com/trump-arraignment-manhattan-court-ny-surrender-arrest-mug-shot-live-updates-110057599.html)
+- Apr 04 - [A widow is accusing an AI chatbot of being the reason why her husband killed himself](https://news.yahoo.com/widow-accusing-ai-chatbot-being-125308205.html)
 - Apr 04 - [I Was 15 When I Started Partying With Rock Stars. I Told No One What They Did To Me — Until Now.](https://news.yahoo.com/15-started-partying-rock-stars-123004670.html)
+- Apr 04 - [New images from inside Fukushima reactor spark safety worry](https://news.yahoo.com/images-inside-fukushima-reactor-spark-122810670.html)
 - Apr 04 - [Celebrations, destruction on campus follow UConn victory](https://news.yahoo.com/celebrations-destruction-campus-uconn-victory-121025623.html)
-- Apr 04 - [Mass Yellowstone Bison Hunt Kills More Than 1,000](https://news.yahoo.com/mass-yellowstone-bison-hunt-kills-115757373.html)
-- Apr 04 - [Trump's Secret Service agents would accompany him if he went to jail, says retired US judge](https://news.yahoo.com/trumps-secret-agents-accompany-him-115154595.html)
-- Apr 04 - [Stephen Colbert's White-Power Zinger Of Donald Trump In Prison Is A Keeper](https://news.yahoo.com/stephen-colberts-white-power-zinger-114813661.html)
 <!-- feed end -->
