@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 04 - [Read the indictment: Trump charged in the New York hush money case](https://news.yahoo.com/trump-full-indictment-34-felony-charges-hush-money-case-194144230.html)
+- Apr 04 - [Here are the key players in the Trump hush money case](https://news.yahoo.com/here-are-the-key-players-in-the-trump-hush-money-case-180341062.html)
+- Apr 04 - [Trump defiant in New York court after historic arrest](https://news.yahoo.com/trump-defiant-york-court-historic-191319530.html)
 - Apr 04 - [Huge sinkhole is growing, putting Texas residents on edge. ‘We have packed our bags’](https://news.yahoo.com/huge-sinkhole-growing-putting-texas-183639283.html)
 - Apr 04 - [‘It’s inconvenient;’ What drivers said after being stopped for Ohio’s new distracted driving law](https://news.yahoo.com/inconvenient-drivers-said-being-stopped-182806288.html)
-- Apr 04 - ['Wow they are going to arrest me': Donald Trump's final message before court](https://news.yahoo.com/wow-going-arrest-donald-trumps-181348998.html)
-- Apr 04 - [Alexandria Ocasio-Cortez celebrates Marjorie Taylor Greene getting heckled in New York City at a pro-Trump rally](https://news.yahoo.com/alexandria-ocasio-cortez-celebrates-marjorie-180010574.html)
-- Apr 04 - [Ex-military couple faces 4th sentencing in child abuse case](https://news.yahoo.com/ex-military-couple-faces-4th-175233243.html)
 <!-- feed end -->
