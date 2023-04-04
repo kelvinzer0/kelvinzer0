@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 04 - [Kentucky bourbon-makers toast bill phasing out barrel tax](https://news.yahoo.com/kentucky-bourbon-makers-toast-bill-174751123.html)
-- Apr 04 - [Mexico complains to China about US pressure over fentanyl](https://news.yahoo.com/mexico-complains-china-us-pressure-173710432.html)
-- Apr 04 - [Rupert Murdoch calls off engagement to Ann Lesley Smith](https://news.yahoo.com/rupert-murdoch-calls-off-engagement-171047072.html)
-- Apr 04 - [New York on a knife-edge as clashes break out ahead of Donald Trump arrest](https://news.yahoo.com/clashes-courthouse-steps-manhattan-braces-150507061.html)
-- Apr 04 - [Katy Perry Loses It After Second-Chance Singer Gets Brutal News On ‘American Idol’](https://news.yahoo.com/katy-perry-loses-second-chance-160539599.html)
+- Apr 04 - [Huge sinkhole is growing, putting Texas residents on edge. ‘We have packed our bags’](https://news.yahoo.com/huge-sinkhole-growing-putting-texas-183639283.html)
+- Apr 04 - [‘It’s inconvenient;’ What drivers said after being stopped for Ohio’s new distracted driving law](https://news.yahoo.com/inconvenient-drivers-said-being-stopped-182806288.html)
+- Apr 04 - ['Wow they are going to arrest me': Donald Trump's final message before court](https://news.yahoo.com/wow-going-arrest-donald-trumps-181348998.html)
+- Apr 04 - [Alexandria Ocasio-Cortez celebrates Marjorie Taylor Greene getting heckled in New York City at a pro-Trump rally](https://news.yahoo.com/alexandria-ocasio-cortez-celebrates-marjorie-180010574.html)
+- Apr 04 - [Ex-military couple faces 4th sentencing in child abuse case](https://news.yahoo.com/ex-military-couple-faces-4th-175233243.html)
 <!-- feed end -->
