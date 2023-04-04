@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 04 - [Texas Lt. Gov. Dan Patrick says Trump is 'guilty' as arraignment looms](https://news.yahoo.com/texas-lt-gov-dan-patrick-145042256.html)
+- Apr 04 - [Taco Bell Wants You to Pick Which Discontinued Menu Item to Bring Back Next](https://news.yahoo.com/taco-bell-wants-pick-discontinued-164412402.html)
+- Apr 04 - [New York on a knife-edge as clashes break out ahead of Donald Trump arrest](https://news.yahoo.com/clashes-courthouse-steps-manhattan-braces-150507061.html)
+- Apr 04 - [Katy Perry Loses It After Second-Chance Singer Gets Brutal News On ‘American Idol’](https://news.yahoo.com/katy-perry-loses-second-chance-160539599.html)
+- Apr 04 - [Lake Mead water level rises, defies projections](https://news.yahoo.com/lake-mead-water-level-rises-160206794.html)
 - Apr 04 - [TikTokers are rushing to support a man who insisted a fellow train passenger move when she was sitting in his allocated seat: 'Sorry, I pay for my place'](https://news.yahoo.com/tiktokers-rushing-support-man-insisted-151817363.html)
-- Apr 04 - [Putin said Finland joining NATO didn't pose a threat, but now that it's a done deal, Russia is warning it will have to take action](https://news.yahoo.com/putin-said-finland-joining-nato-151023826.html)
-- Apr 04 - [Woman who killed pro-war blogger ‘thought she was auditioning for journalism job’](https://news.yahoo.com/woman-killed-pro-war-blogger-144552379.html)
-- Apr 04 - [Madeleine McCann: Woman claiming to be missing British toddler gets DNA test results](https://news.yahoo.com/madeleine-mccann-woman-claiming-missing-135124203.html)
 <!-- feed end -->
