@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 04 - [Taco Bell Wants You to Pick Which Discontinued Menu Item to Bring Back Next](https://news.yahoo.com/taco-bell-wants-pick-discontinued-164412402.html)
+- Apr 04 - [Kentucky bourbon-makers toast bill phasing out barrel tax](https://news.yahoo.com/kentucky-bourbon-makers-toast-bill-174751123.html)
+- Apr 04 - [Mexico complains to China about US pressure over fentanyl](https://news.yahoo.com/mexico-complains-china-us-pressure-173710432.html)
+- Apr 04 - [Rupert Murdoch calls off engagement to Ann Lesley Smith](https://news.yahoo.com/rupert-murdoch-calls-off-engagement-171047072.html)
 - Apr 04 - [New York on a knife-edge as clashes break out ahead of Donald Trump arrest](https://news.yahoo.com/clashes-courthouse-steps-manhattan-braces-150507061.html)
 - Apr 04 - [Katy Perry Loses It After Second-Chance Singer Gets Brutal News On ‘American Idol’](https://news.yahoo.com/katy-perry-loses-second-chance-160539599.html)
-- Apr 04 - [Lake Mead water level rises, defies projections](https://news.yahoo.com/lake-mead-water-level-rises-160206794.html)
-- Apr 04 - [TikTokers are rushing to support a man who insisted a fellow train passenger move when she was sitting in his allocated seat: 'Sorry, I pay for my place'](https://news.yahoo.com/tiktokers-rushing-support-man-insisted-151817363.html)
 <!-- feed end -->
