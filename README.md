@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 04 - [Stunning before-and-after images: California reservoir went from almost empty to 100% full](https://news.yahoo.com/stunning-images-california-reservoir-went-012122261.html)
+- Apr 04 - [A bald eagle who went viral for refusing to leave its nest during a snowstorm lost its only chick after the nest fell to the ground](https://news.yahoo.com/bald-eagle-went-viral-refusing-010125847.html)
+- Apr 04 - [Regé-Jean Page says he regrets making the same mistake as Robert Downey Jr. in 'Iron Man' by agreeing to wear armor for 'Dungeons & Dragons': 'You're hot all day'](https://news.yahoo.com/reg-jean-page-says-regrets-004522179.html)
+- Apr 04 - [First-lady Jill Biden wants Iowa to join LSU WBB at White House; Angel Reese responds](https://news.yahoo.com/first-lady-jill-biden-wants-003346240.html)
 - Apr 04 - [Exclusive: Trump to be charged Tuesday with 34 felony counts, but spared handcuffs and mug shot](https://news.yahoo.com/exclusive-trump-to-be-charged-tuesday-with-34-felony-counts-but-spared-handcuffs-and-mug-shot-001241750.html)
-- Apr 04 - [A passenger died after falling from a cruise ship balcony and landing on a lower deck, where they also struck another person](https://news.yahoo.com/passenger-died-falling-cruise-ship-000658012.html)
-- Apr 03 - ['Psychotic crack' led woman to kill stepson, defense says](https://news.yahoo.com/psychotic-crack-led-woman-kill-233527448.html)
-- Apr 03 - [‘Perfect’ home listed in California leaves Zillow Gone Wild stunned. ‘Sharp looking’](https://news.yahoo.com/perfect-home-listed-california-leaves-213457475.html)
-- Apr 03 - [Trump makes last-ditch change to legal team to sideline 'loudmouth' lawyer ahead of arraignment](https://news.yahoo.com/trump-makes-last-ditch-change-210000645.html)
 <!-- feed end -->
