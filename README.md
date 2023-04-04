@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 04 - [Putin lives in an 'information vacuum' and never uses a cellphone or the internet, a Russian intelligence officer who defected says](https://news.yahoo.com/putin-lives-information-vacuum-never-141004889.html)
-- Apr 04 - [Tatarsky was killed by Putin when he invaded Ukraine – Intelligence](https://news.yahoo.com/tatarsky-killed-putin-invaded-ukraine-132153646.html)
-- Apr 04 - [I Was 15 When I Started Partying With Rock Stars. I Told No One What They Did To Me — Until Now.](https://news.yahoo.com/15-started-partying-rock-stars-123004670.html)
-- Apr 04 - [New images from inside Fukushima reactor spark safety worry](https://news.yahoo.com/images-inside-fukushima-reactor-spark-122810670.html)
-- Apr 04 - [Celebrations, destruction on campus follow UConn victory](https://news.yahoo.com/celebrations-destruction-campus-uconn-victory-121025623.html)
+- Apr 04 - [Texas Lt. Gov. Dan Patrick says Trump is 'guilty' as arraignment looms](https://news.yahoo.com/texas-lt-gov-dan-patrick-145042256.html)
+- Apr 04 - [TikTokers are rushing to support a man who insisted a fellow train passenger move when she was sitting in his allocated seat: 'Sorry, I pay for my place'](https://news.yahoo.com/tiktokers-rushing-support-man-insisted-151817363.html)
+- Apr 04 - [Putin said Finland joining NATO didn't pose a threat, but now that it's a done deal, Russia is warning it will have to take action](https://news.yahoo.com/putin-said-finland-joining-nato-151023826.html)
+- Apr 04 - [Woman who killed pro-war blogger ‘thought she was auditioning for journalism job’](https://news.yahoo.com/woman-killed-pro-war-blogger-144552379.html)
+- Apr 04 - [Madeleine McCann: Woman claiming to be missing British toddler gets DNA test results](https://news.yahoo.com/madeleine-mccann-woman-claiming-missing-135124203.html)
 <!-- feed end -->
