@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 04 - [Read the indictment: Trump charged in the New York hush money case](https://news.yahoo.com/trump-full-indictment-34-felony-charges-hush-money-case-194144230.html)
-- Apr 04 - [Here are the key players in the Trump hush money case](https://news.yahoo.com/here-are-the-key-players-in-the-trump-hush-money-case-180341062.html)
+- Apr 04 - [Undercover Los Angeles cops file claims in photo backlash](https://news.yahoo.com/undercover-los-angeles-cops-file-204435218.html)
+- Apr 04 - [PHOTOS: Protesters clash as Trump pleads not guilty](https://news.yahoo.com/photos-protesters-clash-trump-pleads-201118362.html)
+- Apr 04 - [NC Rep. Tricia Cotham reportedly planning to switch parties, giving GOP supermajority](https://news.yahoo.com/nc-rep-tricia-cotham-reportedly-193109489.html)
+- Apr 04 - [Video shows no one held the door for Donald Trump before he was arraigned in court](https://news.yahoo.com/video-shows-no-one-held-192122673.html)
 - Apr 04 - [Trump defiant in New York court after historic arrest](https://news.yahoo.com/trump-defiant-york-court-historic-191319530.html)
-- Apr 04 - [Huge sinkhole is growing, putting Texas residents on edge. ‘We have packed our bags’](https://news.yahoo.com/huge-sinkhole-growing-putting-texas-183639283.html)
-- Apr 04 - [‘It’s inconvenient;’ What drivers said after being stopped for Ohio’s new distracted driving law](https://news.yahoo.com/inconvenient-drivers-said-being-stopped-182806288.html)
 <!-- feed end -->
