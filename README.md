@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 04 - [Trump loyalists such as Marjorie Taylor Greene and George Santos quickly flee chaotic protests](https://news.yahoo.com/trump-loyalists-marjorie-taylor-greene-210435313.html)
+- Apr 04 - [Queen Camilla: Charles’ wife gets title on coronation invite](https://news.yahoo.com/queen-camilla-charles-wife-gets-210136530.html)
+- Apr 04 - [Padres' Machado ejected after being called out on violation](https://news.yahoo.com/padres-machado-ejected-being-called-205436720.html)
 - Apr 04 - [Undercover Los Angeles cops file claims in photo backlash](https://news.yahoo.com/undercover-los-angeles-cops-file-204435218.html)
 - Apr 04 - [PHOTOS: Protesters clash as Trump pleads not guilty](https://news.yahoo.com/photos-protesters-clash-trump-pleads-201118362.html)
-- Apr 04 - [NC Rep. Tricia Cotham reportedly planning to switch parties, giving GOP supermajority](https://news.yahoo.com/nc-rep-tricia-cotham-reportedly-193109489.html)
-- Apr 04 - [Video shows no one held the door for Donald Trump before he was arraigned in court](https://news.yahoo.com/video-shows-no-one-held-192122673.html)
-- Apr 04 - [Trump defiant in New York court after historic arrest](https://news.yahoo.com/trump-defiant-york-court-historic-191319530.html)
 <!-- feed end -->
