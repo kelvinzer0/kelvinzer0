@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 04 - [Donald Trump to surrender to history-making criminal charges](https://news.yahoo.com/donald-trump-surrender-history-making-040730248.html)
+- Apr 04 - [Scarlett Johansson jokes that dealing with her daughter when she was 3 years old was like 'being in an emotionally abusive relationship'](https://news.yahoo.com/scarlett-johansson-jokes-dealing-her-024608033.html)
+- Apr 04 - [Lawyers: Ex-Maryland political aide dead after manhunt](https://news.yahoo.com/lawyer-ex-maryland-political-aide-013511918.html)
 - Apr 04 - [Stunning before-and-after images: California reservoir went from almost empty to 100% full](https://news.yahoo.com/stunning-images-california-reservoir-went-012122261.html)
 - Apr 04 - [Regé-Jean Page says he regrets making the same mistake as Robert Downey Jr. in 'Iron Man' by agreeing to wear armor for 'Dungeons & Dragons': 'You're hot all day'](https://news.yahoo.com/reg-jean-page-says-regrets-004522179.html)
-- Apr 04 - [Exclusive: Trump to be charged Tuesday with 34 felony counts, but spared handcuffs and mug shot](https://news.yahoo.com/exclusive-trump-to-be-charged-tuesday-with-34-felony-counts-but-spared-handcuffs-and-mug-shot-001241750.html)
-- Apr 03 - ['Psychotic crack' led woman to kill stepson, defense says](https://news.yahoo.com/psychotic-crack-led-woman-kill-233527448.html)
-- Apr 03 - [‘Perfect’ home listed in California leaves Zillow Gone Wild stunned. ‘Sharp looking’](https://news.yahoo.com/perfect-home-listed-california-leaves-213457475.html)
 <!-- feed end -->
