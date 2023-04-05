@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 05 - [Veteran Spanish actress says surrogate baby is granddaughter](https://news.yahoo.com/veteran-spanish-actress-says-surrogate-115700985.html)
 - Apr 05 - [A Texas man bragged about stealing $50,000 from a Mexican drug cartel. He was kidnapped less than 2 hours later and is still missing.](https://news.yahoo.com/texas-man-bragged-stealing-50-111602816.html)
+- Apr 05 - [Trump praised his family in his post-arraignment speech, but didn't mention Melania, who was nowhere to be seen](https://news.yahoo.com/trump-praised-family-post-arraignment-110949199.html)
 - Apr 05 - [Mountain lion pack caught on Ring video in Colorado neighborhood at night](https://news.yahoo.com/mountain-lion-pack-caught-ring-105841301.html)
 - Apr 05 - [Cops Are Mad at Ron DeSantis Because He Forces Crappy Made-in-USA Drones on Them](https://news.yahoo.com/cops-mad-ron-desantis-because-100000169.html)
-- Apr 05 - [Jennifer Aniston says she spent her first 'Friends' paycheck on a $13,000 vintage Mercedes-Benz car that immediately broke down](https://news.yahoo.com/jennifer-aniston-says-she-spent-095819153.html)
 <!-- feed end -->
