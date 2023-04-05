@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 05 - [Donald Trump isn't the first Trump to get arrested. His father Fred was arrested twice, reports say — once at a Ku Klux Klan riot, and another time over building code violations.](https://news.yahoo.com/donald-trump-isnt-first-trump-060358828.html)
-- Apr 05 - [A judge warned Trump about comments that could 'jeopardize the safety or well-being' of others. 6 hours later, he attacked the judge, the judge's wife, and the judge's daughter.](https://news.yahoo.com/judge-warned-trump-comments-could-031851982.html)
-- Apr 05 - [Cardinals manager questions O'Neill's effort in key play](https://news.yahoo.com/cardinals-manager-questions-oneills-effort-031631054.html)
+- Apr 05 - [Donald Trump a victim of 'non-stop bullying', say allies - follow live](https://news.yahoo.com/donald-trump-indictment-live-former-235146086.html)
+- Apr 05 - [Jennifer Aniston says she spent her first 'Friends' paycheck on a $13,000 vintage Mercedes-Benz car that immediately broke down](https://news.yahoo.com/jennifer-aniston-says-she-spent-095819153.html)
 - Apr 05 - [Trump arraignment viewers notice blonde officer while waiting for events to unfold](https://news.yahoo.com/trump-arraignment-viewers-notice-blonde-024109540.html)
 - Apr 05 - [We moved from California to Utah for the financial freedom to start our own business, but it wasn't as affordable as we thought. After 3 years, we're ready to move back home.](https://news.yahoo.com/moved-california-utah-financial-freedom-014259447.html)
+- Apr 04 - [Angered with the U.S., Mexico’s President Asks China for Help on Fentanyl](https://news.yahoo.com/angered-u-mexico-president-asks-235608894.html)
 <!-- feed end -->
