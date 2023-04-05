@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 04 - [The View: Alyssa Farah Griffin Says Trump is Spiraling Over Indictment](https://news.yahoo.com/view-alyssa-farah-griffin-says-161604924.html)
-- Apr 04 - [Bills finalize agreement on new stadium with state, county](https://news.yahoo.com/bills-finalize-agreement-stadium-state-221628759.html)
-- Apr 04 - [Trump loyalists such as Marjorie Taylor Greene and George Santos quickly flee chaotic protests](https://news.yahoo.com/trump-loyalists-marjorie-taylor-greene-210435313.html)
 - Apr 04 - [Lawyer says Trump didn't intend to threaten prosecutor with social media post: 'That is a picture of him showing off an American-made bat'](https://news.yahoo.com/lawyer-says-trump-didnt-intend-205912151.html)
-- Apr 04 - [Padres' Machado ejected after being called out on violation](https://news.yahoo.com/padres-machado-ejected-being-called-205436720.html)
+- Apr 04 - [Undercover Los Angeles police file claims in photo backlash](https://news.yahoo.com/undercover-los-angeles-cops-file-204435218.html)
+- Apr 04 - [Charges against Trump are 'a very serious matter,' lawyer says](https://news.yahoo.com/charges-against-trump-are-a-very-serious-matter-lawyer-says-195816278.html)
+- Apr 04 - [Donald Trump’s indicted. But in Kansas, we’ve got a bigger Trump problem. | Opinion](https://news.yahoo.com/donald-trump-indicted-kansas-ve-195500756.html)
+- Apr 04 - [Stormy Daniels gloats over Trump arraignment with X-rated tweet](https://news.yahoo.com/stormy-daniels-gloats-over-trump-195116338.html)
 <!-- feed end -->
