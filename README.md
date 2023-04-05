@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 05 - [A judge warned Trump about comments that could 'jeopardize the safety or well-being' of others. 6 hours later, he attacked the judge, the judge's wife, and the judge's daughter.](https://news.yahoo.com/judge-warned-trump-comments-could-031851982.html)
 - Apr 05 - [We moved from California to Utah for the financial freedom to start our own business, but it wasn't as affordable as we thought. After 3 years, we're ready to move back home.](https://news.yahoo.com/moved-california-utah-financial-freedom-014259447.html)
+- Apr 05 - [Andrew Wiggins rejoins Warriors, getting back into condition](https://news.yahoo.com/andrew-wiggins-rejoins-warriors-getting-003635752.html)
 - Apr 04 - [Angered with the U.S., Mexico’s President Asks China for Help on Fentanyl](https://news.yahoo.com/angered-u-mexico-president-asks-235608894.html)
 - Apr 04 - [Lawyer says Trump didn't intend to threaten prosecutor with social media post: 'That is a picture of him showing off an American-made bat'](https://news.yahoo.com/lawyer-says-trump-didnt-intend-205912151.html)
-- Apr 04 - [Undercover Los Angeles police file claims in photo backlash](https://news.yahoo.com/undercover-los-angeles-cops-file-204435218.html)
 <!-- feed end -->
