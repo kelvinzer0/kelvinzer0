@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 05 - [‘Donald Trump glared at me as he entered the court’: Inside the former president’s hearing](https://news.yahoo.com/donald-trump-glared-entered-court-183102270.html)
-- Apr 05 - [A TikToker said she yelled at a man who approached her in a parking lot. She was flooded with mockery as viewers labeled her unreasonable.](https://news.yahoo.com/tiktoker-said-she-yelled-man-173809566.html)
-- Apr 05 - [Republicans seek to change Montana primary to thwart Tester](https://news.yahoo.com/republicans-seek-change-montana-primary-170405680.html)
-- Apr 05 - [Unusual cargo found along Florida beach, cops say. Then two more reports came in](https://news.yahoo.com/unusual-cargo-found-along-florida-161946342.html)
-- Apr 05 - [Man dies saving wife after accused gunman ambushes them at mailbox, Arizona cops say](https://news.yahoo.com/man-dies-saving-wife-accused-161305566.html)
+- Apr 05 - [McCarthy, Taiwanese president speak after meeting in California](https://news.yahoo.com/mccarthy-taiwanese-president-speak-meeting-194353377.html)
+- Apr 05 - [Trump's next April court date in N.Y. is on rape charges](https://news.yahoo.com/trumps-next-april-court-date-in-ny-is-on-rape-charges-193009294.html)
+- Apr 05 - [Hospital: Treatment, discharge of woman who died appropriate](https://news.yahoo.com/hospital-treatment-discharge-woman-died-185524467.html)
+- Apr 05 - [Social media prank left California mom of two hospitalized: 'Instantly it was dark'](https://news.yahoo.com/social-media-prank-left-california-184610126.html)
+- Apr 05 - [Kansas City Chiefs have new cheerleaders. Here’s what they endured to make the team](https://news.yahoo.com/kansas-city-chiefs-cheerleaders-endured-184234792.html)
 <!-- feed end -->
