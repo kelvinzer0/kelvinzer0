@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 05 - [Here are the key players in the Trump hush money case](https://news.yahoo.com/here-are-the-key-players-in-the-trump-hush-money-case-180341062.html)
-- Apr 05 - [The View Hosts Clash on Indictment Consequences](https://news.yahoo.com/view-hosts-clash-indictment-consequences-163313854.html)
+- Apr 05 - [Republicans seek to change Montana primary to thwart Tester](https://news.yahoo.com/republicans-seek-change-montana-primary-170405680.html)
 - Apr 05 - [Unusual cargo found along Florida beach, cops say. Then two more reports came in](https://news.yahoo.com/unusual-cargo-found-along-florida-161946342.html)
+- Apr 05 - [Man dies saving wife after accused gunman ambushes them at mailbox, Arizona cops say](https://news.yahoo.com/man-dies-saving-wife-accused-161305566.html)
 - Apr 05 - [Exonerated Central Park 5 member Yusef Salaam responds to Trump charges with full-page ad](https://news.yahoo.com/exonerated-central-park-5-member-yusef-salaam-responds-to-trump-charges-with-full-page-ad-160052423.html)
-- Apr 05 - [An airline passenger said she was barred from boarding her flight after a baggage dispute, and documented the saga in a 25-video TikTok series that divided viewers](https://news.yahoo.com/airline-passenger-said-she-barred-153049214.html)
+- Apr 05 - [The father of a YouTuber who was shot while making a prank video in a Virginia mall said he got hate mail from people telling him his son deserved it](https://news.yahoo.com/father-youtuber-shot-while-making-151824314.html)
 <!-- feed end -->
