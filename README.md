@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 05 - [Trump addresses supporters after historic court date](https://news.yahoo.com/trump-addresses-supporters-historic-court-005324395.html)
-- Apr 05 - [Donald Trump launches personal attack on judge despite warning in court - follow live](https://news.yahoo.com/donald-trump-indictment-live-former-235146086.html)
+- Apr 05 - [Trump defiant, after indictments, in Florida speech](https://news.yahoo.com/trump-defiant-indictments-florida-speech-022543416.html)
+- Apr 05 - [We moved from California to Utah for the financial freedom to start our own business, but it wasn't as affordable as we thought. After 3 years, we're ready to move back home.](https://news.yahoo.com/moved-california-utah-financial-freedom-014259447.html)
 - Apr 05 - [Andrew Wiggins rejoins Warriors, getting back into condition](https://news.yahoo.com/andrew-wiggins-rejoins-warriors-getting-003635752.html)
 - Apr 04 - [Trump awarded more than $121,000 in legal fees from Stormy Daniels just hours after arraignment](https://news.yahoo.com/trump-awarded-more-121-000-225827727.html)
 - Apr 04 - [Lawyer says Trump didn't intend to threaten prosecutor with social media post: 'That is a picture of him showing off an American-made bat'](https://news.yahoo.com/lawyer-says-trump-didnt-intend-205912151.html)
