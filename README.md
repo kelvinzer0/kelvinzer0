@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 05 - [Racist and sexist depictions of human evolution still permeate science, education and popular culture today](https://news.yahoo.com/racist-sexist-depictions-human-evolution-122451653.html)
-- Apr 05 - [If we face threat of encirclement and bigger losses, there will be corresponding decision – Zelenskyy on situation in Bakhmut](https://news.yahoo.com/face-threat-encirclement-bigger-losses-122409299.html)
-- Apr 05 - [Veteran Spanish actress says surrogate baby is granddaughter](https://news.yahoo.com/veteran-spanish-actress-says-surrogate-115700985.html)
-- Apr 05 - [A woman who says doctors dismissed her because of her weight developed an 104-pound ovarian tumor](https://news.yahoo.com/woman-says-doctors-dismissed-her-115647540.html)
-- Apr 05 - [A Texas man bragged about stealing $50,000 from a Mexican drug cartel. He was kidnapped less than 2 hours later and is still missing.](https://news.yahoo.com/texas-man-bragged-stealing-50-111602816.html)
+- Apr 05 - [Brandon Johnson elected as the new mayor of Chicago on anniversary of MLK assassination](https://news.yahoo.com/brandon-johnson-elected-mayor-chicago-144126239.html)
+- Apr 05 - [Here are the key players in the Trump hush money case](https://news.yahoo.com/here-are-the-key-players-in-the-trump-hush-money-case-180341062.html)
+- Apr 05 - [Ohio Republican lawmaker falsely claims to be MIT graduate](https://news.yahoo.com/ohio-republican-lawmaker-falsely-claims-135029002.html)
+- Apr 05 - [FSB tries to scam Russian army out of RUB 3 million for drone soldiers downed by mistake](https://news.yahoo.com/fsb-tries-scam-russian-army-134200854.html)
+- Apr 05 - [Why Camilla's Title On The Invitations For King Charles' Coronation Is Raising Eyebrows](https://news.yahoo.com/why-camillas-title-invitations-king-123814272.html)
 <!-- feed end -->
