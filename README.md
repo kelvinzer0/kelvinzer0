@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 05 - [Here are the key players in the Trump hush money case](https://news.yahoo.com/here-are-the-key-players-in-the-trump-hush-money-case-180341062.html)
+- Apr 05 - [The View Hosts Clash on Indictment Consequences](https://news.yahoo.com/view-hosts-clash-indictment-consequences-163313854.html)
+- Apr 05 - [Unusual cargo found along Florida beach, cops say. Then two more reports came in](https://news.yahoo.com/unusual-cargo-found-along-florida-161946342.html)
 - Apr 05 - [Exonerated Central Park 5 member Yusef Salaam responds to Trump charges with full-page ad](https://news.yahoo.com/exonerated-central-park-5-member-yusef-salaam-responds-to-trump-charges-with-full-page-ad-160052423.html)
 - Apr 05 - [An airline passenger said she was barred from boarding her flight after a baggage dispute, and documented the saga in a 25-video TikTok series that divided viewers](https://news.yahoo.com/airline-passenger-said-she-barred-153049214.html)
-- Apr 05 - [Brooke Shields says John F. Kennedy Jr. showed his 'true colors' and was 'less than chivalrous' after she refused to sleep with him on their first date](https://news.yahoo.com/brooke-shields-says-john-f-145900284.html)
-- Apr 05 - [The Twitter Menswear Guy Spotted Orange Makeup Stain on Trump’s Suit](https://news.yahoo.com/twitter-menswear-guy-spotted-orange-145700037.html)
-- Apr 05 - [Deputies: 4 charged after 15-year-old girl danced at strip club in Orange County](https://news.yahoo.com/deputies-4-charged-15-old-140031553.html)
 <!-- feed end -->
