@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 05 - [Trump addresses supporters after historic court date](https://news.yahoo.com/trump-addresses-supporters-historic-court-005324395.html)
+- Apr 05 - [Donald Trump launches personal attack on judge despite warning in court - follow live](https://news.yahoo.com/donald-trump-indictment-live-former-235146086.html)
+- Apr 05 - [Andrew Wiggins rejoins Warriors, getting back into condition](https://news.yahoo.com/andrew-wiggins-rejoins-warriors-getting-003635752.html)
+- Apr 04 - [Trump awarded more than $121,000 in legal fees from Stormy Daniels just hours after arraignment](https://news.yahoo.com/trump-awarded-more-121-000-225827727.html)
 - Apr 04 - [Lawyer says Trump didn't intend to threaten prosecutor with social media post: 'That is a picture of him showing off an American-made bat'](https://news.yahoo.com/lawyer-says-trump-didnt-intend-205912151.html)
-- Apr 04 - [Undercover Los Angeles police file claims in photo backlash](https://news.yahoo.com/undercover-los-angeles-cops-file-204435218.html)
-- Apr 04 - [Charges against Trump are 'a very serious matter,' lawyer says](https://news.yahoo.com/charges-against-trump-are-a-very-serious-matter-lawyer-says-195816278.html)
-- Apr 04 - [Donald Trump’s indicted. But in Kansas, we’ve got a bigger Trump problem. | Opinion](https://news.yahoo.com/donald-trump-indicted-kansas-ve-195500756.html)
-- Apr 04 - [Stormy Daniels gloats over Trump arraignment with X-rated tweet](https://news.yahoo.com/stormy-daniels-gloats-over-trump-195116338.html)
 <!-- feed end -->
