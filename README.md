@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 05 - [Racist and sexist depictions of human evolution still permeate science, education and popular culture today](https://news.yahoo.com/racist-sexist-depictions-human-evolution-122451653.html)
+- Apr 05 - [If we face threat of encirclement and bigger losses, there will be corresponding decision – Zelenskyy on situation in Bakhmut](https://news.yahoo.com/face-threat-encirclement-bigger-losses-122409299.html)
 - Apr 05 - [Veteran Spanish actress says surrogate baby is granddaughter](https://news.yahoo.com/veteran-spanish-actress-says-surrogate-115700985.html)
+- Apr 05 - [A woman who says doctors dismissed her because of her weight developed an 104-pound ovarian tumor](https://news.yahoo.com/woman-says-doctors-dismissed-her-115647540.html)
 - Apr 05 - [A Texas man bragged about stealing $50,000 from a Mexican drug cartel. He was kidnapped less than 2 hours later and is still missing.](https://news.yahoo.com/texas-man-bragged-stealing-50-111602816.html)
-- Apr 05 - [Trump praised his family in his post-arraignment speech, but didn't mention Melania, who was nowhere to be seen](https://news.yahoo.com/trump-praised-family-post-arraignment-110949199.html)
-- Apr 05 - [Mountain lion pack caught on Ring video in Colorado neighborhood at night](https://news.yahoo.com/mountain-lion-pack-caught-ring-105841301.html)
-- Apr 05 - [Cops Are Mad at Ron DeSantis Because He Forces Crappy Made-in-USA Drones on Them](https://news.yahoo.com/cops-mad-ron-desantis-because-100000169.html)
 <!-- feed end -->
