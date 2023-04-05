@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 05 - [Fans Have Finally Figured Out How Taylor Swift Does That Eras Tour Stage Dive Without Dying](https://news.yahoo.com/fans-finally-figured-taylor-swift-205742714.html)
+- Apr 05 - [Defense Department detains hotel guest in training mix-up](https://news.yahoo.com/defense-department-detains-hotel-guest-221836208.html)
 - Apr 05 - [Publisher drops children's illustrator for anti-trans notes](https://news.yahoo.com/publisher-drops-childrens-illustrator-anti-213828946.html)
-- Apr 05 - [Mom of missing Everman boy told relative she sold him at Fiesta Mart, warrant says](https://news.yahoo.com/mom-missing-everman-texas-boy-213649281.html)
-- Apr 05 - [Anti-vaccine activist RFK Jr. challenging Biden in 2024](https://news.yahoo.com/anti-vaccine-activist-rfk-jr-211213096.html)
+- Apr 05 - [Tokyo ramen restaurant bans customers from watching videos on their phones](https://news.yahoo.com/tokyo-ramen-restaurant-bans-customers-212706343.html)
 - Apr 05 - [Signs of life in mummy exhibit in Mexico have experts worried for those who get close](https://news.yahoo.com/signs-life-mummy-exhibit-mexico-205334475.html)
-- Apr 05 - [Federal agents busted into the wrong hotel room during a training exercise and held a Delta pilot handcuffed for nearly an hour](https://news.yahoo.com/federal-agents-busted-wrong-hotel-204425744.html)
 <!-- feed end -->
