@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 05 - [‘Donald Trump glared at me as he entered the court’: Inside the former president’s hearing](https://news.yahoo.com/donald-trump-glared-entered-court-183102270.html)
+- Apr 05 - [A TikToker said she yelled at a man who approached her in a parking lot. She was flooded with mockery as viewers labeled her unreasonable.](https://news.yahoo.com/tiktoker-said-she-yelled-man-173809566.html)
 - Apr 05 - [Republicans seek to change Montana primary to thwart Tester](https://news.yahoo.com/republicans-seek-change-montana-primary-170405680.html)
 - Apr 05 - [Unusual cargo found along Florida beach, cops say. Then two more reports came in](https://news.yahoo.com/unusual-cargo-found-along-florida-161946342.html)
 - Apr 05 - [Man dies saving wife after accused gunman ambushes them at mailbox, Arizona cops say](https://news.yahoo.com/man-dies-saving-wife-accused-161305566.html)
-- Apr 05 - [Exonerated Central Park 5 member Yusef Salaam responds to Trump charges with full-page ad](https://news.yahoo.com/exonerated-central-park-5-member-yusef-salaam-responds-to-trump-charges-with-full-page-ad-160052423.html)
-- Apr 05 - [The father of a YouTuber who was shot while making a prank video in a Virginia mall said he got hate mail from people telling him his son deserved it](https://news.yahoo.com/father-youtuber-shot-while-making-151824314.html)
 <!-- feed end -->
