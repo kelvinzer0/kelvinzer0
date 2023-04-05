@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 05 - [McCarthy, Taiwanese president speak after meeting in California](https://news.yahoo.com/mccarthy-taiwanese-president-speak-meeting-194353377.html)
-- Apr 05 - [Trump's next April court date in N.Y. is on rape charges](https://news.yahoo.com/trumps-next-april-court-date-in-ny-is-on-rape-charges-193009294.html)
+- Apr 05 - [2 diners in Japan arrested for dipping their chopsticks into restaurant's communal container](https://news.yahoo.com/2-diners-japan-arrested-dipping-203949366.html)
+- Apr 05 - [‘Smokeshow’: Lisa Hochstein stuns in a bathing suit in Miami amid new man reveal](https://news.yahoo.com/smokeshow-lisa-hochstein-stuns-bathing-200243792.html)
 - Apr 05 - [Hospital: Treatment, discharge of woman who died appropriate](https://news.yahoo.com/hospital-treatment-discharge-woman-died-185524467.html)
 - Apr 05 - [Social media prank left California mom of two hospitalized: 'Instantly it was dark'](https://news.yahoo.com/social-media-prank-left-california-184610126.html)
 - Apr 05 - [Kansas City Chiefs have new cheerleaders. Here’s what they endured to make the team](https://news.yahoo.com/kansas-city-chiefs-cheerleaders-endured-184234792.html)
