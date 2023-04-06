@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 06 - [Toxic cesspools, bribery at center of Hawaii lawmaker's case](https://news.yahoo.com/toxic-cesspools-bribery-center-hawaii-051207947.html)
 - Apr 06 - [A Florida woman recorded an alligator body-slamming and devouring a python in the Everglades. The two beasts are warring more than ever, a Florida geoscientist says.](https://news.yahoo.com/florida-woman-recorded-alligator-body-014349713.html)
 - Apr 06 - [Philippines tries to bring back small fish key to rural diet](https://news.yahoo.com/philippines-tries-bring-back-small-011744572.html)
-- Apr 06 - [What Trump's Body Language At His Arraignment Hearing Said](https://news.yahoo.com/trumps-body-language-arraignment-hearing-001013494.html)
 - Apr 05 - [Model Who Starred In Robin Thicke's 'Blurred Lines' Video Recalls On-Set 'Scramble'](https://news.yahoo.com/model-starred-robin-thickes-blurred-230535320.html)
 - Apr 05 - [There’s an animal hiding in this video — and it serves as a reminder. Can you spot it?](https://news.yahoo.com/animal-hiding-video-serves-reminder-225059350.html)
 <!-- feed end -->
