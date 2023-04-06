@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 06 - [25 "The Hunger Games" Book Plotlines And Details People Are Sad We Lost In The Movie Adaptations](https://news.yahoo.com/25-hunger-games-book-plotlines-224124059.html)
-- Apr 06 - [Version of 'Anne Frank' removed from Vero Beach High School library after complaint](https://news.yahoo.com/version-anne-frank-removed-vero-132245926.html)
+- Apr 06 - [Rocket salvo from Lebanon targets Israel after al-Aqsa clashes](https://news.yahoo.com/rocket-salvo-lebanon-targets-israel-143853187.html)
+- Apr 06 - [Wagner Group founder: Ukrainian forces not retreating from Bakhmut, Russian offensive 'out of question'](https://news.yahoo.com/wagner-group-founder-ukrainian-forces-142909421.html)
+- Apr 06 - [Brooke Shields says it was 'really unconscionable' that Barbara Walters asked about her body measurements on television when she was just 15](https://news.yahoo.com/brooke-shields-says-really-unconscionable-133714500.html)
 - Apr 06 - [Clarence Thomas secretly went on lavish vacations in luxury jets and superyachts paid for by a GOP megadonor, report reveals](https://news.yahoo.com/clarence-thomas-secretly-went-lavish-132031072.html)
-- Apr 06 - [New exhibit explores significance of Mexica's lunar goddess](https://news.yahoo.com/exhibit-explores-significance-mexicas-lunar-123512755.html)
-- Apr 06 - [Fans Have Finally Figured Out How Taylor Swift Does That Eras Tour Stage Dive Without Dying](https://news.yahoo.com/fans-finally-figured-taylor-swift-205742714.html)
+- Apr 06 - [Why the Founding Fathers passed the Third Amendment to the Constitution | Opinion](https://news.yahoo.com/why-founding-fathers-passed-third-120048095.html)
 <!-- feed end -->
