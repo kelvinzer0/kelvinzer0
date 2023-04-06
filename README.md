@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 06 - [35 Celebrities Who Married Or Are Dating Normie Non-Famous People, And What Those Normies Do For Work](https://news.yahoo.com/35-celebrities-married-dating-normie-221237295.html)
 - Apr 06 - [Former Trump aide Anthony Scaramucci says Donald Trump is a 'family guy' who's just like Logan Roy — the ruthless patriarch in 'Succession'](https://news.yahoo.com/former-trump-aide-anthony-scaramucci-074903875.html)
+- Apr 06 - [Putin is so paranoid about being tracked, he travels in a secret grey train that stealthily blends in with other Russian locomotives, says a former elite Russian security officer](https://news.yahoo.com/putin-paranoid-being-tracked-travels-072631829.html)
 - Apr 06 - [Why are the French so angry over retiring 2 years later?](https://news.yahoo.com/why-french-angry-over-retiring-062737224.html)
 - Apr 06 - [Toxic cesspools, bribery at center of Hawaii lawmaker's case](https://news.yahoo.com/toxic-cesspools-bribery-center-hawaii-051207947.html)
 - Apr 06 - [Macron has humiliated himself – and the EU](https://news.yahoo.com/macron-humiliated-himself-eu-050000636.html)
