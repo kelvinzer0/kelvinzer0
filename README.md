@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 06 - ["It Was Seriously Disturbing": People Who Attended Their High School Reunions Are Sharing The Most Shocking Twists They Discovered Since Graduation](https://news.yahoo.com/seriously-disturbing-people-attended-high-221635109.html)
-- Apr 06 - [Supreme Court sides with 12-year-old transgender girl fighting West Virginia's sports ban](https://news.yahoo.com/supreme-court-sides-12-old-183849321.html)
-- Apr 06 - [Court rules documents in Sanford case must be unsealed](https://news.yahoo.com/court-rules-documents-sanford-case-175126319.html)
-- Apr 06 - [Biden review of chaotic Afghan withdrawal blames Trump](https://news.yahoo.com/biden-review-chaotic-afghan-withdrawal-174226257.html)
-- Apr 06 - [Tesla workers shared footage of naked customers taken from vehicles’ cameras](https://news.yahoo.com/tesla-workers-shared-footage-naked-171710253.html)
+- Apr 06 - [‘I’m Dutch now’: Boxer Jake Paul goes Instagram official with new galpal in Miami](https://news.yahoo.com/m-dutch-now-boxer-jake-203113928.html)
+- Apr 06 - [Kim Kardashian Left A Comment On Katy Perry's "Ugly-Cry Face" Post, And Yep, She's Right About That One](https://news.yahoo.com/kim-kardashian-left-katy-perrys-202505299.html)
+- Apr 06 - [Garcia chastises Masters media to stop talking about LIV-PGA](https://news.yahoo.com/garcia-chastises-masters-media-stop-195806038.html)
+- Apr 06 - [This video of women in men’s bathroom at Taylor Swift’s show at AT&T Stadium has gone viral](https://news.yahoo.com/video-women-men-bathroom-taylor-193824551.html)
+- Apr 06 - [The judge in Trump's criminal hush-money case who the ex-president has slammed as 'highly partisan' has been deluged with death threats](https://news.yahoo.com/judge-trumps-criminal-hush-money-191044414.html)
 <!-- feed end -->
