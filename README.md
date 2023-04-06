@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 06 - [Fans Have Finally Figured Out How Taylor Swift Does That Eras Tour Stage Dive Without Dying](https://news.yahoo.com/fans-finally-figured-taylor-swift-205742714.html)
-- Apr 06 - [Fresh pension protests hit France before key court ruling](https://news.yahoo.com/fresh-pension-protests-hit-france-115447395.html)
 - Apr 06 - [Dramatic photos show how storms filled California reservoirs](https://news.yahoo.com/dramatic-photos-show-storms-filled-110330336.html)
+- Apr 06 - [Conservatives called for a boycott of Bud Light after it partnered with trans influencer Dylan Mulvaney. The company stood by its choice.](https://news.yahoo.com/conservatives-called-boycott-bud-light-102020126.html)
 - Apr 06 - [After alleged rape by Michigan athlete, a woman’s death and a mom’s search for answers](https://news.yahoo.com/alleged-rape-michigan-athlete-woman-090006984.html)
 - Apr 06 - [Former Trump aide Anthony Scaramucci says Donald Trump is a 'family guy' who's just like Logan Roy — the ruthless patriarch in 'Succession'](https://news.yahoo.com/former-trump-aide-anthony-scaramucci-074903875.html)
 <!-- feed end -->
