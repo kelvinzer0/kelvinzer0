@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 06 - [Tiger Woods' painful Masters walk results in opening 74](https://news.yahoo.com/tiger-woods-painful-masters-walk-215440077.html)
+- Apr 06 - [Champion LSU women accepting Biden invitation to White House](https://news.yahoo.com/champion-lsu-women-accepting-biden-215135448.html)
+- Apr 06 - [Hovland overcomes Tiger anxiety, tied for 1st at the Masters](https://news.yahoo.com/hovland-overcomes-tiger-anxiety-tied-213926652.html)
 - Apr 06 - [‘I’m Dutch now’: Boxer Jake Paul goes Instagram official with new galpal in Miami](https://news.yahoo.com/m-dutch-now-boxer-jake-203113928.html)
-- Apr 06 - [Kim Kardashian Left A Comment On Katy Perry's "Ugly-Cry Face" Post, And Yep, She's Right About That One](https://news.yahoo.com/kim-kardashian-left-katy-perrys-202505299.html)
-- Apr 06 - [Garcia chastises Masters media to stop talking about LIV-PGA](https://news.yahoo.com/garcia-chastises-masters-media-stop-195806038.html)
-- Apr 06 - [This video of women in men’s bathroom at Taylor Swift’s show at AT&T Stadium has gone viral](https://news.yahoo.com/video-women-men-bathroom-taylor-193824551.html)
-- Apr 06 - [The judge in Trump's criminal hush-money case who the ex-president has slammed as 'highly partisan' has been deluged with death threats](https://news.yahoo.com/judge-trumps-criminal-hush-money-191044414.html)
+- Apr 06 - [Rebekah Jones' son arrested in Florida after allegedly threating to shoot up school, stab students](https://news.yahoo.com/rebekah-jones-13-old-son-155714689.html)
 <!-- feed end -->
