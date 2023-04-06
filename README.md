@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 06 - [Tom Schwartz Says Tom Sandoval Is Obsessed With Raquel Leviss](https://news.yahoo.com/tom-schwartz-says-tom-sandoval-023400326.html)
+- Apr 06 - [People Are Calling Out The Rudest Things They've Seen Wedding Guests Do, And I'm Shocked At The Audacity](https://news.yahoo.com/people-calling-rudest-things-theyve-210318832.html)
 - Apr 06 - [A Florida woman recorded an alligator body-slamming and devouring a python in the Everglades. The two beasts are warring more than ever, a Florida geoscientist says.](https://news.yahoo.com/florida-woman-recorded-alligator-body-014349713.html)
 - Apr 06 - [Philippines tries to bring back small fish key to rural diet](https://news.yahoo.com/philippines-tries-bring-back-small-011744572.html)
 - Apr 06 - [What Trump's Body Language At His Arraignment Hearing Said](https://news.yahoo.com/trumps-body-language-arraignment-hearing-001013494.html)
