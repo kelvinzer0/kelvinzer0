@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 06 - ['He was a loving brother:’ Tyre Nichols’s sister reflects on Nichols' death by Memphis police](https://news.yahoo.com/loving-brother-tyre-nichols-sister-183118864.html)
+- Apr 06 - ["It Was Seriously Disturbing": People Who Attended Their High School Reunions Are Sharing The Most Shocking Twists They Discovered Since Graduation](https://news.yahoo.com/seriously-disturbing-people-attended-high-221635109.html)
+- Apr 06 - [Supreme Court sides with 12-year-old transgender girl fighting West Virginia's sports ban](https://news.yahoo.com/supreme-court-sides-12-old-183849321.html)
+- Apr 06 - [Court rules documents in Sanford case must be unsealed](https://news.yahoo.com/court-rules-documents-sanford-case-175126319.html)
 - Apr 06 - [Biden review of chaotic Afghan withdrawal blames Trump](https://news.yahoo.com/biden-review-chaotic-afghan-withdrawal-174226257.html)
 - Apr 06 - [Tesla workers shared footage of naked customers taken from vehicles’ cameras](https://news.yahoo.com/tesla-workers-shared-footage-naked-171710253.html)
-- Apr 06 - [A plus-size TikToker faced a wave of abuse after her travel tips for larger people went viral. But the hate only pushed her to keep speaking up.](https://news.yahoo.com/plus-size-tiktoker-faced-wave-171145299.html)
-- Apr 06 - [Alligator captured in Florida pool, but deputy’s reaction is what has people talking](https://news.yahoo.com/alligator-captured-florida-pool-deputy-155640662.html)
 <!-- feed end -->
