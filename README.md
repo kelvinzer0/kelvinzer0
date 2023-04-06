@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 06 - [Chinese woman rides a Bentley to and from her job ... as a dishwasher](https://news.yahoo.com/chinese-woman-rides-bentley-her-223727404.html)
+- Apr 06 - [Fans Have Finally Figured Out How Taylor Swift Does That Eras Tour Stage Dive Without Dying](https://news.yahoo.com/fans-finally-figured-taylor-swift-205742714.html)
+- Apr 06 - [Oklahoma AG to drop charges against GOP Rep. and his wife](https://news.yahoo.com/oklahoma-ag-drop-charges-against-221923786.html)
 - Apr 06 - [Tiger Woods' painful Masters walk results in opening 74](https://news.yahoo.com/tiger-woods-painful-masters-walk-215440077.html)
 - Apr 06 - [Champion LSU women accepting Biden invitation to White House](https://news.yahoo.com/champion-lsu-women-accepting-biden-215135448.html)
-- Apr 06 - [Hovland overcomes Tiger anxiety, tied for 1st at the Masters](https://news.yahoo.com/hovland-overcomes-tiger-anxiety-tied-213926652.html)
-- Apr 06 - [‘I’m Dutch now’: Boxer Jake Paul goes Instagram official with new galpal in Miami](https://news.yahoo.com/m-dutch-now-boxer-jake-203113928.html)
-- Apr 06 - [Rebekah Jones' son arrested in Florida after allegedly threating to shoot up school, stab students](https://news.yahoo.com/rebekah-jones-13-old-son-155714689.html)
 <!-- feed end -->
