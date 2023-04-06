@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 06 - [Rocket salvo from Lebanon targets Israel after al-Aqsa clashes](https://news.yahoo.com/rocket-salvo-lebanon-targets-israel-143853187.html)
+- Apr 06 - [Bob Iger Outsmarting Ron DeSantis Is a Master Class in Taking on Bullies](https://news.yahoo.com/bob-iger-outsmarting-ron-desantis-151842168.html)
+- Apr 06 - [Clarence Thomas accepted lavish vacations on a private jet and a superyacht from a GOP megadonor for years, report reveals](https://news.yahoo.com/clarence-thomas-secretly-went-lavish-132031072.html)
+- Apr 06 - [Video captures the moment a Ukrainian exploding drone destroyed one of Russia's prized Tor-M2 missile systems designed to shoot down drones](https://news.yahoo.com/video-captures-moment-ukrainian-exploding-125734751.html)
 - Apr 06 - [Wagner Group founder: Ukrainian forces not retreating from Bakhmut, Russian offensive 'out of question'](https://news.yahoo.com/wagner-group-founder-ukrainian-forces-142909421.html)
 - Apr 06 - [Brooke Shields says it was 'really unconscionable' that Barbara Walters asked about her body measurements on television when she was just 15](https://news.yahoo.com/brooke-shields-says-really-unconscionable-133714500.html)
-- Apr 06 - [Clarence Thomas secretly went on lavish vacations in luxury jets and superyachts paid for by a GOP megadonor, report reveals](https://news.yahoo.com/clarence-thomas-secretly-went-lavish-132031072.html)
-- Apr 06 - [Why the Founding Fathers passed the Third Amendment to the Constitution | Opinion](https://news.yahoo.com/why-founding-fathers-passed-third-120048095.html)
 <!-- feed end -->
