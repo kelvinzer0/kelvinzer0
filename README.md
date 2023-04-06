@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 06 - [25 "The Hunger Games" Book Plotlines And Details People Are Sad We Lost In The Movie Adaptations](https://news.yahoo.com/25-hunger-games-book-plotlines-224124059.html)
+- Apr 06 - [Version of 'Anne Frank' removed from Vero Beach High School library after complaint](https://news.yahoo.com/version-anne-frank-removed-vero-132245926.html)
+- Apr 06 - [Clarence Thomas secretly went on lavish vacations in luxury jets and superyachts paid for by a GOP megadonor, report reveals](https://news.yahoo.com/clarence-thomas-secretly-went-lavish-132031072.html)
+- Apr 06 - [New exhibit explores significance of Mexica's lunar goddess](https://news.yahoo.com/exhibit-explores-significance-mexicas-lunar-123512755.html)
 - Apr 06 - [Fans Have Finally Figured Out How Taylor Swift Does That Eras Tour Stage Dive Without Dying](https://news.yahoo.com/fans-finally-figured-taylor-swift-205742714.html)
-- Apr 06 - [Dramatic photos show how storms filled California reservoirs](https://news.yahoo.com/dramatic-photos-show-storms-filled-110330336.html)
-- Apr 06 - [Conservatives called for a boycott of Bud Light after it partnered with trans influencer Dylan Mulvaney. The company stood by its choice.](https://news.yahoo.com/conservatives-called-boycott-bud-light-102020126.html)
-- Apr 06 - [After alleged rape by Michigan athlete, a woman’s death and a mom’s search for answers](https://news.yahoo.com/alleged-rape-michigan-athlete-woman-090006984.html)
-- Apr 06 - [Former Trump aide Anthony Scaramucci says Donald Trump is a 'family guy' who's just like Logan Roy — the ruthless patriarch in 'Succession'](https://news.yahoo.com/former-trump-aide-anthony-scaramucci-074903875.html)
 <!-- feed end -->
