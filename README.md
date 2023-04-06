@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 06 - [Philippines tries to bring back small fish key to rural diet](https://news.yahoo.com/philippines-tries-bring-back-small-011744572.html)
 - Apr 06 - [What Trump's Body Language At His Arraignment Hearing Said](https://news.yahoo.com/trumps-body-language-arraignment-hearing-001013494.html)
 - Apr 05 - [Model Who Starred In Robin Thicke's 'Blurred Lines' Video Recalls On-Set 'Scramble'](https://news.yahoo.com/model-starred-robin-thickes-blurred-230535320.html)
 - Apr 05 - [There’s an animal hiding in this video — and it serves as a reminder. Can you spot it?](https://news.yahoo.com/animal-hiding-video-serves-reminder-225059350.html)
-- Apr 05 - [Fans Have Finally Figured Out How Taylor Swift Does That Eras Tour Stage Dive Without Dying](https://news.yahoo.com/fans-finally-figured-taylor-swift-205742714.html)
-- Apr 05 - [Prince William's new move sends message to Prince Harry, experts say: 'The crown will win out over Tinseltown'](https://news.yahoo.com/prince-williams-move-sends-message-214626178.html)
+- Apr 05 - [Here's how long you have to walk each day to lose weight](https://news.yahoo.com/walking-lose-weight-does-205744845.html)
 <!-- feed end -->
