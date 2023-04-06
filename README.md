@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 06 - [What Trump's Body Language At His Arraignment Hearing Said](https://news.yahoo.com/trumps-body-language-arraignment-hearing-001013494.html)
+- Apr 05 - [Model Who Starred In Robin Thicke's 'Blurred Lines' Video Recalls On-Set 'Scramble'](https://news.yahoo.com/model-starred-robin-thickes-blurred-230535320.html)
+- Apr 05 - [There’s an animal hiding in this video — and it serves as a reminder. Can you spot it?](https://news.yahoo.com/animal-hiding-video-serves-reminder-225059350.html)
 - Apr 05 - [Fans Have Finally Figured Out How Taylor Swift Does That Eras Tour Stage Dive Without Dying](https://news.yahoo.com/fans-finally-figured-taylor-swift-205742714.html)
-- Apr 05 - [Defense Department detains hotel guest in training mix-up](https://news.yahoo.com/defense-department-detains-hotel-guest-221836208.html)
-- Apr 05 - [Publisher drops children's illustrator for anti-trans notes](https://news.yahoo.com/publisher-drops-childrens-illustrator-anti-213828946.html)
-- Apr 05 - [Tokyo ramen restaurant bans customers from watching videos on their phones](https://news.yahoo.com/tokyo-ramen-restaurant-bans-customers-212706343.html)
-- Apr 05 - [Signs of life in mummy exhibit in Mexico have experts worried for those who get close](https://news.yahoo.com/signs-life-mummy-exhibit-mexico-205334475.html)
+- Apr 05 - [Prince William's new move sends message to Prince Harry, experts say: 'The crown will win out over Tinseltown'](https://news.yahoo.com/prince-williams-move-sends-message-214626178.html)
 <!-- feed end -->
