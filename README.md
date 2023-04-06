@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 06 - [Alligator captured in Florida pool, but deputy’s reaction is what has people talking](https://news.yahoo.com/alligator-captured-florida-pool-deputy-155640662.html)
+- Apr 06 - [Clarence Thomas slammed from across political spectrum, as former House GOP member says he 'should not be allowed anywhere near a judicial decision'](https://news.yahoo.com/clarence-thomas-slammed-across-political-153624476.html)
 - Apr 06 - [Bob Iger Outsmarting Ron DeSantis Is a Master Class in Taking on Bullies](https://news.yahoo.com/bob-iger-outsmarting-ron-desantis-151842168.html)
-- Apr 06 - [Clarence Thomas accepted lavish vacations on a private jet and a superyacht from a GOP megadonor for years, report reveals](https://news.yahoo.com/clarence-thomas-secretly-went-lavish-132031072.html)
 - Apr 06 - [Video captures the moment a Ukrainian exploding drone destroyed one of Russia's prized Tor-M2 missile systems designed to shoot down drones](https://news.yahoo.com/video-captures-moment-ukrainian-exploding-125734751.html)
 - Apr 06 - [Wagner Group founder: Ukrainian forces not retreating from Bakhmut, Russian offensive 'out of question'](https://news.yahoo.com/wagner-group-founder-ukrainian-forces-142909421.html)
-- Apr 06 - [Brooke Shields says it was 'really unconscionable' that Barbara Walters asked about her body measurements on television when she was just 15](https://news.yahoo.com/brooke-shields-says-really-unconscionable-133714500.html)
 <!-- feed end -->
