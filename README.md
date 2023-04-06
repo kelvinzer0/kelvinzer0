@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 06 - [Justice Clarence Thomas accepted lavish gifts from GOP donor for two decades, reports say](https://news.yahoo.com/justice-clarence-thomas-accepted-lavish-175047480.html)
-- Apr 06 - [DeSantis touts wins over 'woke' left in Michigan](https://news.yahoo.com/desantis-touts-wins-over-woke-174750695.html)
+- Apr 06 - ['He was a loving brother:’ Tyre Nichols’s sister reflects on Nichols' death by Memphis police](https://news.yahoo.com/loving-brother-tyre-nichols-sister-183118864.html)
 - Apr 06 - [Biden review of chaotic Afghan withdrawal blames Trump](https://news.yahoo.com/biden-review-chaotic-afghan-withdrawal-174226257.html)
 - Apr 06 - [Tesla workers shared footage of naked customers taken from vehicles’ cameras](https://news.yahoo.com/tesla-workers-shared-footage-naked-171710253.html)
-- Apr 06 - [A Michigan man beat a grocery store worker with a frozen fish because he was furious the counter closed early for Ramadan, prosecutors allege](https://news.yahoo.com/michigan-man-beat-grocery-store-165322256.html)
+- Apr 06 - [A plus-size TikToker faced a wave of abuse after her travel tips for larger people went viral. But the hate only pushed her to keep speaking up.](https://news.yahoo.com/plus-size-tiktoker-faced-wave-171145299.html)
+- Apr 06 - [Alligator captured in Florida pool, but deputy’s reaction is what has people talking](https://news.yahoo.com/alligator-captured-florida-pool-deputy-155640662.html)
 <!-- feed end -->
