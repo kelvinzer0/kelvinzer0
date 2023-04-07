@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 07 - ['How does that equate to a death sentence?' Dalaneo Martin fatally shot during U.S. Park Police response to an alleged stolen vehicle](https://news.yahoo.com/dalaneo-martin-shooting-us-park-police-washington-dc-teen-195339160.html)
+- Apr 07 - [Why is Kid Rock shooting Bud Light cans? Explaining the latest anti-trans boycott.](https://news.yahoo.com/kid-rock-shoots-bud-light-cans-video-boycott-dylan-mulvaney-trans-travis-tritt-201217000.html)
+- Apr 07 - [Dalaneo Martin was fatally shot after U.S. Park Police responded to an alleged stolen vehicle. His family is demanding answers.](https://news.yahoo.com/dalaneo-martin-shooting-us-park-police-washington-dc-teen-195339160.html)
 - Apr 07 - [A majority of Detroit wants reparations for Black residents. What happens next?](https://news.yahoo.com/a-majority-of-detroit-wants-reparations-for-black-residents-what-happens-next-193602341.html)
-- Apr 07 - [Princess of Wales: Windsor walk with Sussexes ‘one of the hardest things ever’](https://news.yahoo.com/princess-wales-windsor-walk-sussexes-184116824.html)
 - Apr 07 - [Officers kill homeowner after responding to wrong address](https://news.yahoo.com/officers-kill-homeowner-responding-wrong-181340008.html)
 - Apr 07 - [TikTokers said getting their hair wet in Iceland's Blue Lagoon left it damaged for weeks, but the photos were worth it](https://news.yahoo.com/tiktokers-said-getting-hair-wet-180639082.html)
 <!-- feed end -->
