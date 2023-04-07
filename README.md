@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 07 - ["It Was Seriously Disturbing": People Who Attended Their High School Reunions Are Sharing The Most Shocking Twists They Discovered Since Graduation](https://news.yahoo.com/seriously-disturbing-people-attended-high-221635109.html)
+- Apr 07 - ['Buckle up': DeSantis escalates Disney dispute, eyes hotel taxes and road tolls](https://news.yahoo.com/buckle-desantis-escalates-disney-dispute-023218309.html)
+- Apr 07 - ["I Didn't Find Out Until 17 Years Into The Marriage": People Are Spilling The Secrets They Learned About Their Partner After Marriage, And It's Pretty Unsettling](https://news.yahoo.com/didnt-until-17-years-marriage-022228673.html)
 - Apr 06 - [Here's how all 18 of the LIV golfers performed during 2023 Masters opening round](https://news.yahoo.com/heres-18-liv-golfers-performed-224332992.html)
 - Apr 06 - [Record number of Russian soldiers used Ukraine’s ‘surrender hotline’ in March](https://news.yahoo.com/record-number-russian-soldiers-used-224000934.html)
 - Apr 06 - [Chinese woman rides a Bentley to and from her job ... as a dishwasher](https://news.yahoo.com/chinese-woman-rides-bentley-her-223727404.html)
-- Apr 06 - [Oklahoma AG to drop charges against GOP Rep. and his wife](https://news.yahoo.com/oklahoma-ag-drop-charges-against-221923786.html)
 <!-- feed end -->
