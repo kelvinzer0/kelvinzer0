@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 07 - [Ex-convict's letters to shooter foretold Las Vegas massacre](https://news.yahoo.com/ex-convicts-letters-shooter-foretold-213933827.html)
-- Apr 07 - [Massive supercell storm causes tornado in western Illinois](https://news.yahoo.com/massive-supercell-storm-causes-tornado-212829755.html)
-- Apr 07 - [6 men sentenced for abuse, trafficking of chained mother of 8](https://news.yahoo.com/6-men-sentenced-abuse-trafficking-210244239.html)
-- Apr 07 - [Scott Walker blames young voters for GOP’s losses in Wisconsin, but offers few solutions for winning them back](https://news.yahoo.com/republicans-young-voter-struggles-scott-walker-wisconsin-supreme-court-protasiewicz-203505242.html)
-- Apr 07 - [Brooks Koepka-Gary Woodland Masters rules violation through other caddies' eyes: 'They're both guilty'](https://news.yahoo.com/brooks-koepka-gary-woodland-masters-201900979.html)
+- Apr 07 - [Russia loses election to three UN bodies over Ukraine](https://news.yahoo.com/russia-loses-election-three-un-223950849.html)
+- Apr 07 - [Army sergeant guilty in fatal Texas shooting of protester](https://news.yahoo.com/army-sergeant-guilty-fatal-texas-215604300.html)
+- Apr 07 - [John Legend says his manager 'negotiated a deal' with a porn producer in order to use his stage name](https://news.yahoo.com/john-legend-says-manager-negotiated-213202577.html)
+- Apr 07 - [Expelled Tennessee House Dem Could Be Reinstated Almost Immediately](https://news.yahoo.com/expelled-tennessee-house-dem-could-211939581.html)
+- Apr 07 - [Scott Walker blames young voters for GOP's losses in Wisconsin, but offers few solutions for winning them back](https://news.yahoo.com/republicans-young-voter-struggles-scott-walker-wisconsin-supreme-court-protasiewicz-203505242.html)
 <!-- feed end -->
