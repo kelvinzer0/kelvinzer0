@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 07 - [Why is Kid Rock shooting Bud Light cans? Explaining the latest anti-trans boycott.](https://news.yahoo.com/kid-rock-shoots-bud-light-cans-video-boycott-dylan-mulvaney-trans-travis-tritt-201217000.html)
-- Apr 07 - [Dalaneo Martin was fatally shot after U.S. Park Police responded to an alleged stolen vehicle. His family is demanding answers.](https://news.yahoo.com/dalaneo-martin-shooting-us-park-police-washington-dc-teen-195339160.html)
-- Apr 07 - [A majority of Detroit wants reparations for Black residents. What happens next?](https://news.yahoo.com/a-majority-of-detroit-wants-reparations-for-black-residents-what-happens-next-193602341.html)
-- Apr 07 - [Officers kill homeowner after responding to wrong address](https://news.yahoo.com/officers-kill-homeowner-responding-wrong-181340008.html)
-- Apr 07 - [TikTokers said getting their hair wet in Iceland's Blue Lagoon left it damaged for weeks, but the photos were worth it](https://news.yahoo.com/tiktokers-said-getting-hair-wet-180639082.html)
+- Apr 07 - [Ex-convict's letters to shooter foretold Las Vegas massacre](https://news.yahoo.com/ex-convicts-letters-shooter-foretold-213933827.html)
+- Apr 07 - [Massive supercell storm causes tornado in western Illinois](https://news.yahoo.com/massive-supercell-storm-causes-tornado-212829755.html)
+- Apr 07 - [6 men sentenced for abuse, trafficking of chained mother of 8](https://news.yahoo.com/6-men-sentenced-abuse-trafficking-210244239.html)
+- Apr 07 - [Scott Walker blames young voters for GOP’s losses in Wisconsin, but offers few solutions for winning them back](https://news.yahoo.com/republicans-young-voter-struggles-scott-walker-wisconsin-supreme-court-protasiewicz-203505242.html)
+- Apr 07 - [Brooks Koepka-Gary Woodland Masters rules violation through other caddies' eyes: 'They're both guilty'](https://news.yahoo.com/brooks-koepka-gary-woodland-masters-201900979.html)
 <!-- feed end -->
