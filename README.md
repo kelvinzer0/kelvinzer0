@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 07 - [White House sends a message of support to transgender youth](https://news.yahoo.com/white-house-sends-message-support-133148107.html)
 - Apr 07 - [Black Couple Says Texas Authorities Seized Their Newborn Because They Chose a Midwife Over a Hospital](https://news.yahoo.com/black-couple-says-texas-authorities-213000239.html)
+- Apr 07 - [1st ocean fish farm proposed for East Coast off New England](https://news.yahoo.com/1st-ocean-fish-farm-proposed-120302208.html)
 - Apr 07 - [Here's how all 18 of the LIV golfers performed during 2023 Masters opening round](https://news.yahoo.com/heres-18-liv-golfers-performed-224332992.html)
 - Apr 07 - [Tennessee Republican Abruptly Leaves Interview As CNN Grills Him On Expulsions](https://news.yahoo.com/tennessee-republican-abruptly-leaves-interview-105849355.html)
 - Apr 07 - [If you want to talk about the AR-15 rifle, here are five things you should know](https://news.yahoo.com/want-talk-ar-15-rifle-100000493.html)
