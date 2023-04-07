@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 07 - [NOT REAL NEWS: A look at what didn't happen this week](https://news.yahoo.com/not-real-news-look-didnt-160407503.html)
-- Apr 07 - [Astonishing re-creation shows how Jeremy Renner was crushed by snow plough](https://news.yahoo.com/astonishing-recreation-shows-jeremy-renner-154024939.html)
-- Apr 07 - [The owners of a 1,900 square foot house next to the Masters golf course keep turning down millions of dollars to sell](https://news.yahoo.com/owners-1-900-square-foot-151854421.html)
-- Apr 07 - [A 19-Year-Old Was Left At A Hospital Barely Breathing After Spending Time At A Friend’s House, And The Community Is Calling For Justice](https://news.yahoo.com/19-old-left-hospital-barely-150028963.html)
-- Apr 07 - [DeSantis: I’ll kill Reedy Creek deal, consider hotel tax, tolls at Disney World](https://news.yahoo.com/desantis-ll-void-disney-deal-145600544.html)
+- Apr 07 - [Tribe warns US government against moving ahead with mine](https://news.yahoo.com/tribe-warns-us-government-against-180422561.html)
+- Apr 07 - [Ex-Theranos executive headed to prison after losing appeal](https://news.yahoo.com/ex-theranos-executive-headed-prison-175431184.html)
+- Apr 07 - [Man in China spends 21 hours begging on his knees for ex-lover to take him back](https://news.yahoo.com/man-china-spends-21-hours-172529754.html)
+- Apr 07 - [The judge overseeing Trump's case donated $15 to Biden. Legal experts say it likely won't get him thrown off the case, but it'll 'feed the Trump PR beast.'](https://news.yahoo.com/judge-overseeing-trumps-case-donated-171847124.html)
+- Apr 07 - [Court sides with Justice Dept. on Jan. 6 obstruction charge](https://news.yahoo.com/court-sides-justice-dept-jan-171803437.html)
 <!-- feed end -->
