@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 07 - [James Corden Is Once Again Being Called Out By A Director For Being Rude, "Obnoxious, And Difficult" On Set](https://news.yahoo.com/james-corden-once-again-being-205439579.html)
+- Apr 07 - [Here's how all 18 of the LIV golfers performed during 2023 Masters opening round](https://news.yahoo.com/heres-18-liv-golfers-performed-224332992.html)
+- Apr 07 - [Tennessee Republican Abruptly Leaves Interview As CNN Grills Him On Expulsions](https://news.yahoo.com/tennessee-republican-abruptly-leaves-interview-105849355.html)
+- Apr 07 - ['What do we stand for?': Reagan Library director reflects on Trump, the state of the GOP](https://news.yahoo.com/what-do-we-stand-for-reagan-library-director-reflects-on-trump-the-state-of-the-gop-090028457.html)
 - Apr 07 - [Stormy Daniels says Trump shouldn't go to prison over a hush money payment: 'I don't think that his crimes against me are worthy of incarceration'](https://news.yahoo.com/stormy-daniels-says-trump-shouldnt-065515793.html)
-- Apr 07 - [Equipment Russia transferred to Melitopol over 4 days explodes](https://news.yahoo.com/equipment-russia-transferred-melitopol-over-054625443.html)
-- Apr 07 - [Filipinos nailed to crosses despite church objection](https://news.yahoo.com/filipinos-nailed-crosses-despite-church-043235908.html)
-- Apr 07 - ['Buckle up': DeSantis escalates Disney dispute, eyes hotel taxes and road tolls](https://news.yahoo.com/buckle-desantis-escalates-disney-dispute-023218309.html)
-- Apr 07 - ["I Didn't Find Out Until 17 Years Into The Marriage": People Are Spilling The Secrets They Learned About Their Partner After Marriage, And It's Pretty Unsettling](https://news.yahoo.com/didnt-until-17-years-marriage-022228673.html)
 <!-- feed end -->
