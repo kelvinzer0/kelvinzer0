@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 07 - ['How does that equate to a death sentence?' Dalaneo Martin fatally shot during U.S. Park Police response to an alleged stolen vehicle](https://news.yahoo.com/dalaneo-martin-shooting-us-park-police-washington-dc-teen-195339160.html)
+- Apr 07 - [A majority of Detroit wants reparations for Black residents. What happens next?](https://news.yahoo.com/a-majority-of-detroit-wants-reparations-for-black-residents-what-happens-next-193602341.html)
 - Apr 07 - [Princess of Wales: Windsor walk with Sussexes ‘one of the hardest things ever’](https://news.yahoo.com/princess-wales-windsor-walk-sussexes-184116824.html)
-- Apr 07 - [The "Barbie" Movie Tagline "She's Everything. He's Just Ken." Has Created A Great New Twitter Meme, So Here Are 35 Of The Best](https://news.yahoo.com/barbie-movie-tagline-shes-everything-202744145.html)
 - Apr 07 - [Officers kill homeowner after responding to wrong address](https://news.yahoo.com/officers-kill-homeowner-responding-wrong-181340008.html)
-- Apr 07 - [Tribe warns US government against moving ahead with mine](https://news.yahoo.com/tribe-warns-us-government-against-180422561.html)
-- Apr 07 - [Ex-Theranos executive headed to prison after losing appeal](https://news.yahoo.com/ex-theranos-executive-headed-prison-175431184.html)
+- Apr 07 - [TikTokers said getting their hair wet in Iceland's Blue Lagoon left it damaged for weeks, but the photos were worth it](https://news.yahoo.com/tiktokers-said-getting-hair-wet-180639082.html)
 <!-- feed end -->
