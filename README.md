@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 07 - [James Corden Is Once Again Being Called Out By A Director For Being Rude, "Obnoxious, And Difficult" On Set](https://news.yahoo.com/james-corden-once-again-being-205439579.html)
 - Apr 07 - [Here's how all 18 of the LIV golfers performed during 2023 Masters opening round](https://news.yahoo.com/heres-18-liv-golfers-performed-224332992.html)
 - Apr 07 - [Tennessee Republican Abruptly Leaves Interview As CNN Grills Him On Expulsions](https://news.yahoo.com/tennessee-republican-abruptly-leaves-interview-105849355.html)
+- Apr 07 - [If you want to talk about the AR-15 rifle, here are five things you should know](https://news.yahoo.com/want-talk-ar-15-rifle-100000493.html)
 - Apr 07 - ['What do we stand for?': Reagan Library director reflects on Trump, the state of the GOP](https://news.yahoo.com/what-do-we-stand-for-reagan-library-director-reflects-on-trump-the-state-of-the-gop-090028457.html)
 - Apr 07 - [Stormy Daniels says Trump shouldn't go to prison over a hush money payment: 'I don't think that his crimes against me are worthy of incarceration'](https://news.yahoo.com/stormy-daniels-says-trump-shouldnt-065515793.html)
 <!-- feed end -->
