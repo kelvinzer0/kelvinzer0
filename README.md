@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 07 - [Princess of Wales: Windsor walk with Sussexes ‘one of the hardest things ever’](https://news.yahoo.com/princess-wales-windsor-walk-sussexes-184116824.html)
+- Apr 07 - [The "Barbie" Movie Tagline "She's Everything. He's Just Ken." Has Created A Great New Twitter Meme, So Here Are 35 Of The Best](https://news.yahoo.com/barbie-movie-tagline-shes-everything-202744145.html)
+- Apr 07 - [Officers kill homeowner after responding to wrong address](https://news.yahoo.com/officers-kill-homeowner-responding-wrong-181340008.html)
 - Apr 07 - [Tribe warns US government against moving ahead with mine](https://news.yahoo.com/tribe-warns-us-government-against-180422561.html)
 - Apr 07 - [Ex-Theranos executive headed to prison after losing appeal](https://news.yahoo.com/ex-theranos-executive-headed-prison-175431184.html)
-- Apr 07 - [Man in China spends 21 hours begging on his knees for ex-lover to take him back](https://news.yahoo.com/man-china-spends-21-hours-172529754.html)
-- Apr 07 - [The judge overseeing Trump's case donated $15 to Biden. Legal experts say it likely won't get him thrown off the case, but it'll 'feed the Trump PR beast.'](https://news.yahoo.com/judge-overseeing-trumps-case-donated-171847124.html)
-- Apr 07 - [Court sides with Justice Dept. on Jan. 6 obstruction charge](https://news.yahoo.com/court-sides-justice-dept-jan-171803437.html)
 <!-- feed end -->
