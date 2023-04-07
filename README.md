@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 07 - ["It Was Seriously Disturbing": People Who Attended Their High School Reunions Are Sharing The Most Shocking Twists They Discovered Since Graduation](https://news.yahoo.com/seriously-disturbing-people-attended-high-221635109.html)
 - Apr 06 - [Here's how all 18 of the LIV golfers performed during 2023 Masters opening round](https://news.yahoo.com/heres-18-liv-golfers-performed-224332992.html)
 - Apr 06 - [Record number of Russian soldiers used Ukraine’s ‘surrender hotline’ in March](https://news.yahoo.com/record-number-russian-soldiers-used-224000934.html)
 - Apr 06 - [Chinese woman rides a Bentley to and from her job ... as a dishwasher](https://news.yahoo.com/chinese-woman-rides-bentley-her-223727404.html)
-- Apr 06 - [Fans Have Finally Figured Out How Taylor Swift Does That Eras Tour Stage Dive Without Dying](https://news.yahoo.com/fans-finally-figured-taylor-swift-205742714.html)
 - Apr 06 - [Oklahoma AG to drop charges against GOP Rep. and his wife](https://news.yahoo.com/oklahoma-ag-drop-charges-against-221923786.html)
 <!-- feed end -->
