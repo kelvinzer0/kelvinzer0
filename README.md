@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 07 - [Black Couple Says Texas Authorities Seized Their Newborn Because They Chose a Midwife Over a Hospital](https://news.yahoo.com/black-couple-says-texas-authorities-213000239.html)
-- Apr 07 - [1st ocean fish farm proposed for East Coast off New England](https://news.yahoo.com/1st-ocean-fish-farm-proposed-120302208.html)
-- Apr 07 - [Here's how all 18 of the LIV golfers performed during 2023 Masters opening round](https://news.yahoo.com/heres-18-liv-golfers-performed-224332992.html)
-- Apr 07 - [Tennessee Republican Abruptly Leaves Interview As CNN Grills Him On Expulsions](https://news.yahoo.com/tennessee-republican-abruptly-leaves-interview-105849355.html)
-- Apr 07 - [If you want to talk about the AR-15 rifle, here are five things you should know](https://news.yahoo.com/want-talk-ar-15-rifle-100000493.html)
+- Apr 07 - [NOT REAL NEWS: A look at what didn't happen this week](https://news.yahoo.com/not-real-news-look-didnt-160407503.html)
+- Apr 07 - [Astonishing recreation shows how Jeremy Renner was crushed by snow plough](https://news.yahoo.com/astonishing-recreation-shows-jeremy-renner-154024939.html)
+- Apr 07 - [The owners of a 1,900 square foot house next to the Masters golf course keep turning down millions of dollars to sell](https://news.yahoo.com/owners-1-900-square-foot-151854421.html)
+- Apr 07 - [AOC says 'a lot' of House Dems would cast 'disingenuous' yes votes for Medicare for All if it came to floor because they 'know that it's going to a graveyard' in the Senate](https://news.yahoo.com/aoc-says-lot-house-dems-150031505.html)
+- Apr 07 - [A 19-Year-Old Was Left At A Hospital Barely Breathing After Spending Time At A Friend’s House, And The Community Is Calling For Justice](https://news.yahoo.com/19-old-left-hospital-barely-150028963.html)
 <!-- feed end -->
