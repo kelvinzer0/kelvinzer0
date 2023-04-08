@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 08 - ["I Didn't Find Out Until 17 Years Into The Marriage": People Are Spilling The Secrets They Learned About Their Partner After Marriage, And It's Pretty Unsettling](https://news.yahoo.com/didnt-until-17-years-marriage-022228673.html)
+- Apr 08 - [Israel starts calling up reservists after deadly attacks](https://news.yahoo.com/israel-starts-calling-reservists-deadly-103419045.html)
+- Apr 08 - [I got laser teeth whitening in Mexico to save money. I liked the results but hated the experience.](https://news.yahoo.com/got-laser-teeth-whitening-mexico-093000192.html)
 - Apr 08 - [US has real UFO problem and it’s not Chinese spy balloons, says former Navy fighter pilot](https://news.yahoo.com/us-real-ufo-problem-not-060000523.html)
 - Apr 08 - [Gwyneth Paltrow’s new guide to sex is a toe-curling turn-off](https://news.yahoo.com/gwyneth-paltrow-guide-sex-toe-060000823.html)
 - Apr 08 - [City to pay $500K to settle bikini barista dress code suit](https://news.yahoo.com/city-pay-500k-settle-bikini-020717492.html)
-- Apr 08 - [California family shows up on bike thief's door step with help from Apple AirTag: 'The look on his face'](https://news.yahoo.com/california-family-shows-bike-thiefs-003702330.html)
 <!-- feed end -->
