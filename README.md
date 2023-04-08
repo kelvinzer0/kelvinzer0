@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 08 - [At least 6 people wounded in a shooting during 'senior skip day' on South Carolina beach](https://news.yahoo.com/least-6-people-wounded-shooting-192931685.html)
 - Apr 08 - [US hit by ‘worst leak of secret documents since Edward Snowden’](https://news.yahoo.com/us-hit-biggest-leak-secret-133851066.html)
 - Apr 08 - [A Virginian man might have finally figured out how to get a city to fix a pothole — go viral on TikTok](https://news.yahoo.com/virginian-man-might-finally-figured-160331311.html)
 - Apr 08 - [Video shows Ukrainian tank blasting Russians in a trench, supported by troops in a fighting vehicle during a skirmish near Bakhmut](https://news.yahoo.com/video-shows-ukrainian-tank-blasting-160203180.html)
 - Apr 08 - [Here are the top 19 countries that the US State Department says aren't safe for American citizens to travel to](https://news.yahoo.com/top-19-countries-arent-safe-192418944.html)
-- Apr 08 - [Report: Florida officials cut key data from vaccine study](https://news.yahoo.com/report-florida-officials-cut-key-150016558.html)
 <!-- feed end -->
