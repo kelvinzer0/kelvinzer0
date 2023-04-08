@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 08 - [JoJo Siwa Dropped Hints About Her New Love Interest In A TikTok Video](https://news.yahoo.com/jojo-siwa-dropped-hints-her-024751467.html)
+- Apr 08 - [US has real UFO problem and it’s not Chinese spy balloons, says former Navy fighter pilot](https://news.yahoo.com/us-real-ufo-problem-not-060000523.html)
 - Apr 08 - [City to pay $500K to settle bikini barista dress code suit](https://news.yahoo.com/city-pay-500k-settle-bikini-020717492.html)
 - Apr 08 - [California family shows up on bike thief's door step with help from Apple AirTag: 'The look on his face'](https://news.yahoo.com/california-family-shows-bike-thiefs-003702330.html)
 - Apr 07 - [Russia loses election to three UN bodies over Ukraine](https://news.yahoo.com/russia-loses-election-three-un-223950849.html)
-- Apr 07 - [Army sergeant guilty in fatal Texas shooting of protester](https://news.yahoo.com/army-sergeant-guilty-fatal-texas-215604300.html)
-- Apr 07 - [How to survive nuclear war after a bomb is dropped: what to do, how to prepare](https://news.yahoo.com/minutes-hours-nuclear-bomb-critical-181019914.html)
 <!-- feed end -->
