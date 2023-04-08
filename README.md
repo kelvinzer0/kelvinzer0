@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 08 - [Fans Have Finally Figured Out How Taylor Swift Does That Eras Tour Stage Dive Without Dying](https://news.yahoo.com/fans-finally-figured-taylor-swift-205742714.html)
 - Apr 08 - [A mom took out over $77,000 in student loans to send her son with autism to college. He got his debt wiped out — but she's still paying hers off with no end in sight.](https://news.yahoo.com/mom-took-over-77-000-103000160.html)
-- Apr 08 - [Letters to the Editor: Take it from Justice Clarence Thomas: His billionaire friend wasn't buying anything](https://news.yahoo.com/letters-editor-justice-clarence-thomas-100012038.html)
 - Apr 08 - [I got laser teeth whitening in Mexico to save money. I liked the results but hated the experience.](https://news.yahoo.com/got-laser-teeth-whitening-mexico-093000192.html)
+- Apr 08 - [Russian Defence Ministry announces preparation of chemical attack](https://news.yahoo.com/russian-defence-ministry-announces-preparation-092817151.html)
 - Apr 08 - [US deploys guided-missile submarine amid tensions with Iran](https://news.yahoo.com/us-deploys-guided-missile-submarine-092207440.html)
 <!-- feed end -->
