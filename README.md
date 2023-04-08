@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 07 - [Russia loses election to three UN bodies over Ukraine](https://news.yahoo.com/russia-loses-election-three-un-223950849.html)
 - Apr 07 - [Army sergeant guilty in fatal Texas shooting of protester](https://news.yahoo.com/army-sergeant-guilty-fatal-texas-215604300.html)
-- Apr 07 - [John Legend says his manager 'negotiated a deal' with a porn producer in order to use his stage name](https://news.yahoo.com/john-legend-says-manager-negotiated-213202577.html)
+- Apr 07 - [Ex-convict's letters to shooter foretold Las Vegas massacre](https://news.yahoo.com/ex-convicts-letters-shooter-foretold-213933827.html)
+- Apr 07 - [Philippines holds bloody crucifixions on Good Friday despite Catholic church objection](https://news.yahoo.com/philippines-holds-bloody-crucifixions-good-213524915.html)
 - Apr 07 - [Expelled Tennessee House Dem Could Be Reinstated Almost Immediately](https://news.yahoo.com/expelled-tennessee-house-dem-could-211939581.html)
-- Apr 07 - [Scott Walker blames young voters for GOP's losses in Wisconsin, but offers few solutions for winning them back](https://news.yahoo.com/republicans-young-voter-struggles-scott-walker-wisconsin-supreme-court-protasiewicz-203505242.html)
 <!-- feed end -->
