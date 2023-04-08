@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 08 - [Small towns reclaim abandoned ski areas as nonprofits](https://news.yahoo.com/small-towns-reclaim-abandoned-ski-121908498.html)
-- Apr 08 - [A mom took out over $77,000 in student loans to send her son with autism to college. He got his debt wiped out — but she's still paying hers off with no end in sight.](https://news.yahoo.com/mom-took-over-77-000-103000160.html)
-- Apr 08 - [Russian Defence Ministry announces preparation of chemical attack](https://news.yahoo.com/russian-defence-ministry-announces-preparation-092817151.html)
-- Apr 08 - [US deploys guided-missile submarine amid tensions with Iran](https://news.yahoo.com/us-deploys-guided-missile-submarine-092207440.html)
-- Apr 08 - [Gwyneth Paltrow’s new guide to sex is a toe-curling turn-off](https://news.yahoo.com/gwyneth-paltrow-guide-sex-toe-060000823.html)
+- Apr 08 - [Prince Harry ‘Infuriated’ Over Charles’ Meghan Money ‘Bombshell’](https://news.yahoo.com/prince-harry-infuriated-over-charles-143943288.html)
+- Apr 08 - ["I Didn't Find Out Until 17 Years Into The Marriage": People Are Spilling The Secrets They Learned About Their Partner After Marriage, And It's Pretty Unsettling](https://news.yahoo.com/didnt-until-17-years-marriage-022228673.html)
+- Apr 08 - [A United passenger says she was 'humiliated' by a supervisor who wouldn't alert other travelers to her son's 'life-threatening' peanut allergy](https://news.yahoo.com/united-passenger-says-she-humiliated-135000986.html)
+- Apr 08 - [Here is what Augusta National did to the area at No. 17 where three trees fell during Masters](https://news.yahoo.com/augusta-national-did-area-no-134426911.html)
+- Apr 08 - [US hit by ‘biggest leak of secret documents since Edward Snowden’](https://news.yahoo.com/us-hit-biggest-leak-secret-133851066.html)
 <!-- feed end -->
