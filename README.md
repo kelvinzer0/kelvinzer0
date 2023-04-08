@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 08 - [City to pay $500K to settle bikini barista dress code suit](https://news.yahoo.com/city-pay-500k-settle-bikini-020717492.html)
+- Apr 08 - [Trump-Appointed Judge Bans the Abortion Pill Nationwide, Starting in 7 Days](https://news.yahoo.com/trump-appointed-judge-bans-abortion-231000043.html)
+- Apr 08 - [California family shows up on bike thief's door step with help from Apple AirTag: 'The look on his face'](https://news.yahoo.com/california-family-shows-bike-thiefs-003702330.html)
+- Apr 08 - [Chasing Horse sex abuse charges upheld, drug crime dropped](https://news.yahoo.com/chasing-horse-sex-abuse-charges-002609260.html)
 - Apr 07 - [Russia loses election to three UN bodies over Ukraine](https://news.yahoo.com/russia-loses-election-three-un-223950849.html)
-- Apr 07 - [Army sergeant guilty in fatal Texas shooting of protester](https://news.yahoo.com/army-sergeant-guilty-fatal-texas-215604300.html)
-- Apr 07 - [How to survive nuclear war after a bomb is dropped: what to do, how to prepare](https://news.yahoo.com/minutes-hours-nuclear-bomb-critical-181019914.html)
-- Apr 07 - [Ex-convict's letters to shooter foretold Las Vegas massacre](https://news.yahoo.com/ex-convicts-letters-shooter-foretold-213933827.html)
-- Apr 07 - [Philippines holds bloody crucifixions on Good Friday despite Catholic church objection](https://news.yahoo.com/philippines-holds-bloody-crucifixions-good-213524915.html)
 <!-- feed end -->
