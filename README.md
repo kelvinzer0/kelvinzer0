@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 08 - [Gov. Greg Abbott announces he will push to pardon Daniel Perry who was convicted of murder](https://news.yahoo.com/gov-greg-abbott-announces-pardon-202056843.html)
 - Apr 08 - [People Who Live In Communities With HOAs Are Sharing How Obscene The Rules And Regulations Can Be](https://news.yahoo.com/people-live-communities-hoas-sharing-223238226.html)
-- Apr 08 - [Gov. Greg Abbott announces he will pardon Daniel Perry who was convicted of murder](https://news.yahoo.com/gov-greg-abbott-announces-pardon-202056843.html)
 - Apr 08 - [A mother used her life savings to pay for her daughter's breast cancer treatment. The day after her child 'rang the bell,' she won $2 million on a scratch-off.](https://news.yahoo.com/mother-used-her-life-savings-195512289.html)
+- Apr 08 - [Cyclist Ethan Boyes dies after being struck in San Francisco](https://news.yahoo.com/cyclist-ethan-boyes-dies-being-194646586.html)
 - Apr 08 - [US hit by ‘worst leak of secret documents since Edward Snowden’](https://news.yahoo.com/us-hit-biggest-leak-secret-133851066.html)
-- Apr 08 - [A Virginian man might have finally figured out how to get a city to fix a pothole — go viral on TikTok](https://news.yahoo.com/virginian-man-might-finally-figured-160331311.html)
 <!-- feed end -->
