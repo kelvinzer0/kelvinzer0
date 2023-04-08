@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 08 - [Israel starts calling up reservists after deadly attacks](https://news.yahoo.com/israel-starts-calling-reservists-deadly-103419045.html)
+- Apr 08 - [Fans Have Finally Figured Out How Taylor Swift Does That Eras Tour Stage Dive Without Dying](https://news.yahoo.com/fans-finally-figured-taylor-swift-205742714.html)
+- Apr 08 - [A mom took out over $77,000 in student loans to send her son with autism to college. He got his debt wiped out — but she's still paying hers off with no end in sight.](https://news.yahoo.com/mom-took-over-77-000-103000160.html)
+- Apr 08 - [Letters to the Editor: Take it from Justice Clarence Thomas: His billionaire friend wasn't buying anything](https://news.yahoo.com/letters-editor-justice-clarence-thomas-100012038.html)
 - Apr 08 - [I got laser teeth whitening in Mexico to save money. I liked the results but hated the experience.](https://news.yahoo.com/got-laser-teeth-whitening-mexico-093000192.html)
-- Apr 08 - [US has real UFO problem and it’s not Chinese spy balloons, says former Navy fighter pilot](https://news.yahoo.com/us-real-ufo-problem-not-060000523.html)
-- Apr 08 - [Gwyneth Paltrow’s new guide to sex is a toe-curling turn-off](https://news.yahoo.com/gwyneth-paltrow-guide-sex-toe-060000823.html)
-- Apr 08 - [City to pay $500K to settle bikini barista dress code suit](https://news.yahoo.com/city-pay-500k-settle-bikini-020717492.html)
+- Apr 08 - [US deploys guided-missile submarine amid tensions with Iran](https://news.yahoo.com/us-deploys-guided-missile-submarine-092207440.html)
 <!-- feed end -->
