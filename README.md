@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 09 - [Video shows moment 'entitled' women were thrown out of a theater for raucous singing during 'The Bodyguard's' iconic number](https://news.yahoo.com/video-shows-moment-entitled-women-131033362.html)
+- Apr 09 - [I'm an American who went shopping at a mall in Japan. Here are 13 things that surprised me.](https://news.yahoo.com/im-american-went-shopping-mall-130800896.html)
 - Apr 09 - [Ilhan Omar embarks on new path no longer defined by 'firsts'](https://news.yahoo.com/ilhan-omar-embarks-path-no-121223872.html)
 - Apr 09 - [Trump greeted with prolonged applause when he made a surprise appearance at UFC 287 with Mike Tyson and Kid Rock](https://news.yahoo.com/trump-greeted-prolonged-applause-made-110405981.html)
-- Apr 09 - ['Saturday Night Live' parodies LSU women's basketball star Angel Reese on Weekend Update segment](https://news.yahoo.com/saturday-night-live-parodies-lsu-055002998.html)
-- Apr 09 - [Gov. Greg Abbott announces he will push to pardon Daniel Perry who was convicted of murder](https://news.yahoo.com/gov-greg-abbott-announces-pardon-202056843.html)
+- Apr 09 - [Ukraine war latest: Russia 'destroys Ukrainian ammo warehouses'](https://news.yahoo.com/ukraine-war-latest-father-daughter-084521396.html)
 <!-- feed end -->
