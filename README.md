@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 09 - [Pirates SS Oneil Cruz injured in home-plate collision](https://news.yahoo.com/pirates-ss-oneil-cruz-injured-191908418.html)
+- Apr 09 - [Prince Charles went to the woods to forage for mushrooms while Queen Elizabeth's life 'ebbed away,' book says](https://news.yahoo.com/prince-charles-went-woods-forage-190952200.html)
+- Apr 09 - [Driver stops to check ‘trash’ thrown out window in Georgia. It was anything but garbage](https://news.yahoo.com/driver-stops-check-trash-thrown-190045722.html)
 - Apr 09 - [Russia 'destroys Ukrainian ammo warehouses'](https://news.yahoo.com/ukraine-war-latest-father-daughter-084521396.html)
 - Apr 09 - [Donald Trump crashes Jesus's last supper during Easter-themed 'SNL' cold open](https://news.yahoo.com/donald-trump-crashes-jesuss-last-170837445.html)
-- Apr 09 - [Riley Gaines Condemns San Francisco State University for Statement Thanking Students after Attack](https://news.yahoo.com/riley-gaines-condemns-san-francisco-165211127.html)
-- Apr 09 - [JoJo Siwa claps back at Candace Owens for suggesting she's lying about being a lesbian](https://news.yahoo.com/jojo-siwa-claps-back-candace-151404005.html)
-- Apr 09 - [‘Stunned’ House Republicans Blast McCarthy following NYT Leak](https://news.yahoo.com/stunned-house-republicans-blast-mccarthy-151335031.html)
 <!-- feed end -->
