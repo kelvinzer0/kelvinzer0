@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 09 - [Soldiers Make Secret Pact to ‘Destroy’ Putin’s Empire From Within](https://news.yahoo.com/soldiers-secret-pact-destroy-putin-005511279.html)
+- Apr 08 - [Maryland day care worker arrested after allegedly filming video of herself abusing children, police say](https://news.yahoo.com/maryland-day-care-worker-arrested-230828481.html)
 - Apr 08 - [Gov. Greg Abbott announces he will push to pardon Daniel Perry who was convicted of murder](https://news.yahoo.com/gov-greg-abbott-announces-pardon-202056843.html)
 - Apr 08 - [People Who Live In Communities With HOAs Are Sharing How Obscene The Rules And Regulations Can Be](https://news.yahoo.com/people-live-communities-hoas-sharing-223238226.html)
 - Apr 08 - [A mother used her life savings to pay for her daughter's breast cancer treatment. The day after her child 'rang the bell,' she won $2 million on a scratch-off.](https://news.yahoo.com/mother-used-her-life-savings-195512289.html)
-- Apr 08 - [Cyclist Ethan Boyes dies after being struck in San Francisco](https://news.yahoo.com/cyclist-ethan-boyes-dies-being-194646586.html)
-- Apr 08 - [US hit by ‘worst leak of secret documents since Edward Snowden’](https://news.yahoo.com/us-hit-biggest-leak-secret-133851066.html)
 <!-- feed end -->
