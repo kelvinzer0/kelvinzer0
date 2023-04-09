@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 09 - [King's coronation: 3 crowns, 2 carriages and a shorter route](https://news.yahoo.com/kings-coronation-3-crowns-2-213213272.html)
-- Apr 09 - [T-wolves tussle as Gobert hits Anderson, out rest of game](https://news.yahoo.com/t-wolves-tussle-gobert-hits-210925269.html)
+- Apr 09 - [The field is set: Warriors, Clippers are in the playoffs](https://news.yahoo.com/field-set-warriors-clippers-playoffs-223731462.html)
+- Apr 09 - [Settlement reached in defamation lawsuit against Lou Dobbs, Fox News](https://news.yahoo.com/settlement-reached-defamation-lawsuit-against-223018319.html)
 - Apr 09 - [Why Easter is called Easter, and other little-known facts about the holiday](https://news.yahoo.com/why-easter-called-easter-other-145752774.html)
 - Apr 09 - [Prince Charles went to the woods to forage for mushrooms while Queen Elizabeth's life 'ebbed away,' book says](https://news.yahoo.com/prince-charles-went-woods-forage-190952200.html)
-- Apr 09 - [Russian political scientist comments on what Russian security forces think of Putin](https://news.yahoo.com/russian-political-scientist-comments-russian-190300346.html)
+- Apr 09 - [Driver stops to check ‘trash’ thrown out window in Georgia. It was anything but garbage](https://news.yahoo.com/driver-stops-check-trash-thrown-190045722.html)
 <!-- feed end -->
