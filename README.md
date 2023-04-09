@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 09 - [King and Royal family attend first Easter Sunday service of his reign](https://news.yahoo.com/king-royal-family-attend-first-104916019.html)
 - Apr 09 - ['Saturday Night Live' parodies LSU women's basketball star Angel Reese on Weekend Update segment](https://news.yahoo.com/saturday-night-live-parodies-lsu-055002998.html)
 - Apr 09 - [Gov. Greg Abbott announces he will push to pardon Daniel Perry who was convicted of murder](https://news.yahoo.com/gov-greg-abbott-announces-pardon-202056843.html)
 - Apr 09 - [Soldiers Make Secret Pact to ‘Destroy’ Putin’s Empire From Within](https://news.yahoo.com/soldiers-secret-pact-destroy-putin-005511279.html)
 - Apr 09 - [Senate passes ban on assault weapons. Here’s what would be banned under the law](https://news.yahoo.com/senate-passes-ban-assault-weapons-000954619.html)
-- Apr 08 - [People Who Live In Communities With HOAs Are Sharing How Obscene The Rules And Regulations Can Be](https://news.yahoo.com/people-live-communities-hoas-sharing-223238226.html)
 <!-- feed end -->
