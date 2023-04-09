@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 09 - [Donald Trump crashes Jesus's last supper during Easter-themed 'SNL' cold open](https://news.yahoo.com/donald-trump-crashes-jesuss-last-170837445.html)
 - Apr 09 - [JoJo Siwa claps back at Candace Owens for suggesting she's lying about being a lesbian](https://news.yahoo.com/jojo-siwa-claps-back-candace-151404005.html)
 - Apr 09 - [‘Stunned’ House Republicans Blast McCarthy following NYT Leak](https://news.yahoo.com/stunned-house-republicans-blast-mccarthy-151335031.html)
 - Apr 09 - [`I wouldn’t vote for a Democrat if he came down from heaven on a cloud’ | Opinion](https://news.yahoo.com/wouldn-t-vote-democrat-came-150000702.html)
 - Apr 09 - [Texas Gov. Greg Abbott says he will pardon an Army sergeant who was convicted for shooting a Black Lives Matter protester ‘as soon as it hits my desk’](https://news.yahoo.com/texas-gov-greg-abbott-says-145530019.html)
-- Apr 09 - [Fed Up With Mayhem, Miami Beach Wants to Tame Spring Break for Good](https://news.yahoo.com/fed-mayhem-miami-beach-wants-144212238.html)
 <!-- feed end -->
