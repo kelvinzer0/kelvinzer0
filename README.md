@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 09 - [JoJo Siwa claps back at Candace Owens for suggesting she's lying about being a lesbian](https://news.yahoo.com/jojo-siwa-claps-back-candace-151404005.html)
 - Apr 09 - [‘Stunned’ House Republicans Blast McCarthy following NYT Leak](https://news.yahoo.com/stunned-house-republicans-blast-mccarthy-151335031.html)
 - Apr 09 - [`I wouldn’t vote for a Democrat if he came down from heaven on a cloud’ | Opinion](https://news.yahoo.com/wouldn-t-vote-democrat-came-150000702.html)
+- Apr 09 - [Texas Gov. Greg Abbott says he will pardon an Army sergeant who was convicted for shooting a Black Lives Matter protester ‘as soon as it hits my desk’](https://news.yahoo.com/texas-gov-greg-abbott-says-145530019.html)
 - Apr 09 - [Fed Up With Mayhem, Miami Beach Wants to Tame Spring Break for Good](https://news.yahoo.com/fed-mayhem-miami-beach-wants-144212238.html)
-- Apr 09 - [Video shows moment 'entitled' women were thrown out of a theater for raucous singing during 'The Bodyguard's' iconic number](https://news.yahoo.com/video-shows-moment-entitled-women-131033362.html)
-- Apr 09 - [I'm an American who went shopping at a mall in Japan. Here are 13 things that surprised me.](https://news.yahoo.com/im-american-went-shopping-mall-130800896.html)
 <!-- feed end -->
