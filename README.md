@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 09 - [‘Stunned’ House Republicans Blast McCarthy following NYT Leak](https://news.yahoo.com/stunned-house-republicans-blast-mccarthy-151335031.html)
+- Apr 09 - [`I wouldn’t vote for a Democrat if he came down from heaven on a cloud’ | Opinion](https://news.yahoo.com/wouldn-t-vote-democrat-came-150000702.html)
+- Apr 09 - [Fed Up With Mayhem, Miami Beach Wants to Tame Spring Break for Good](https://news.yahoo.com/fed-mayhem-miami-beach-wants-144212238.html)
 - Apr 09 - [Video shows moment 'entitled' women were thrown out of a theater for raucous singing during 'The Bodyguard's' iconic number](https://news.yahoo.com/video-shows-moment-entitled-women-131033362.html)
 - Apr 09 - [I'm an American who went shopping at a mall in Japan. Here are 13 things that surprised me.](https://news.yahoo.com/im-american-went-shopping-mall-130800896.html)
-- Apr 09 - [Ilhan Omar embarks on new path no longer defined by 'firsts'](https://news.yahoo.com/ilhan-omar-embarks-path-no-121223872.html)
-- Apr 09 - [Trump greeted with prolonged applause when he made a surprise appearance at UFC 287 with Mike Tyson and Kid Rock](https://news.yahoo.com/trump-greeted-prolonged-applause-made-110405981.html)
-- Apr 09 - [Ukraine war latest: Russia 'destroys Ukrainian ammo warehouses'](https://news.yahoo.com/ukraine-war-latest-father-daughter-084521396.html)
 <!-- feed end -->
