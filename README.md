@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [People Are Calling Out The Rudest Things They've Seen Wedding Guests Do, And I'm Shocked At The Audacity](https://news.yahoo.com/people-calling-rudest-things-theyve-210318832.html)
 - Apr 10 - [Bodies of Lotus drummer Chuck Morris and son recovered](https://news.yahoo.com/bodies-lotus-drummer-chuck-morris-012752000.html)
 - Apr 10 - [Putin may be preparing to bring Russia's prized bomber jets to the war on Ukraine after leaked military intelligence found Ukrainian air power will 'be completely reduced' by June, report says](https://news.yahoo.com/putin-may-preparing-bring-russias-011407389.html)
 - Apr 10 - [Column: Mickelson begins road to redemption at the Masters](https://news.yahoo.com/column-mickelson-begins-road-redemption-011014590.html)
-- Apr 10 - [Spieth's impressive 21 birdies at Masters not enough to win](https://news.yahoo.com/spieths-impressive-21-birdies-masters-010024605.html)
+- Apr 09 - [Man, 58, attacked by shark while surfing off Honolulu](https://news.yahoo.com/man-58-attacked-shark-while-233848415.html)
+- Apr 09 - [The field is set: Warriors, Clippers are in the playoffs](https://news.yahoo.com/field-set-warriors-clippers-playoffs-223731462.html)
 <!-- feed end -->
