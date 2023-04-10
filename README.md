@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [Driver tries to swerve but kills 7-year-old girl crossing highway, California cops say](https://news.yahoo.com/driver-tries-swerve-kills-7-180140958.html)
-- Apr 10 - [Who is the Louisville shooter who killed four people at bank? What we know about suspect, motive.](https://news.yahoo.com/louisville-shooter-killed-four-people-162024995.html)
-- Apr 10 - [Zillow Just Revealed the Home Features That Are Most—and Least—Attractive to Buyers Right Now](https://news.yahoo.com/zillow-just-revealed-home-features-174121975.html)
-- Apr 10 - [See the first photo of Hilary Swank holding her newborn twins in 'pure Heaven'](https://news.yahoo.com/see-first-photo-hilary-swank-174033116.html)
-- Apr 10 - [Hollywood stars see Wrexham dream move one step closer](https://news.yahoo.com/ryan-reynolds-rob-mcelhenney-move-171518780.html)
+- Apr 10 - [George Santos claims without evidence that Democrats are ‘trying to ban toilet paper’](https://news.yahoo.com/george-santos-claims-without-evidence-that-democrats-are-trying-to-ban-toilet-paper-190037226.html)
+- Apr 10 - [Kal Penn's First Manager Once Accidentally Set Him Up With A Pimp Shortly After He Came Out As Gay](https://news.yahoo.com/kal-penns-first-manager-once-184539114.html)
+- Apr 10 - [Man’s Anti-Woke Temper Tantrum Against Jack Daniel’s Goes Viral](https://news.yahoo.com/man-anti-woke-temper-tantrum-182708498.html)
+- Apr 10 - [Someone Please Tell These 23 Entitled Jokers That They're No Better Than The Rest Of Us](https://news.yahoo.com/24-snarky-greedy-entitled-people-231444847.html)
+- Apr 10 - [42-year-old woman who was told she 'failed at life' because she has no children goes viral](https://news.yahoo.com/42-old-woman-told-she-181952926.html)
 <!-- feed end -->
