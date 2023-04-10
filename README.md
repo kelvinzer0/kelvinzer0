@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [Thousands attend the White House’s “Eggucation” themed Easter Egg Roll](https://news.yahoo.com/thousands-attend-white-house-eggucation-164716056.html)
-- Apr 10 - [5 dead, including gunman, in shooting at Louisville bank: Here’s everything we know](https://news.yahoo.com/louisville-mass-shooting-bank-police-kentucky-governor-victims-what-we-know-164520760.html)
+- Apr 10 - [Driver tries to swerve but kills 7-year-old girl crossing highway, California cops say](https://news.yahoo.com/driver-tries-swerve-kills-7-180140958.html)
 - Apr 10 - [Who is the Louisville shooter who killed four people at bank? What we know about suspect, motive.](https://news.yahoo.com/louisville-shooter-killed-four-people-162024995.html)
-- Apr 10 - [A teenager tried to sneak into Michael Jordan's 56,000-square-foot home, which is on the market and has a basketball court, infinity pool, tennis court, and cigar room](https://news.yahoo.com/teenager-tried-sneak-michael-jordans-153813503.html)
-- Apr 10 - [Don Lemon Seems to Diss Jon Stewart on Hot Mic and Then Backpedals](https://news.yahoo.com/don-lemon-disses-jon-stewart-151550022.html)
+- Apr 10 - [Zillow Just Revealed the Home Features That Are Most—and Least—Attractive to Buyers Right Now](https://news.yahoo.com/zillow-just-revealed-home-features-174121975.html)
+- Apr 10 - [See the first photo of Hilary Swank holding her newborn twins in 'pure Heaven'](https://news.yahoo.com/see-first-photo-hilary-swank-174033116.html)
+- Apr 10 - [Hollywood stars see Wrexham dream move one step closer](https://news.yahoo.com/ryan-reynolds-rob-mcelhenney-move-171518780.html)
 <!-- feed end -->
