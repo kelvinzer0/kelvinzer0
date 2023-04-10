@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [Police: Bank employee killed 4 in Louisville shooting](https://news.yahoo.com/police-bank-employee-killed-4-204416007.html)
-- Apr 10 - [5 dead, including gunman, in shooting at Louisville bank: Here's everything we know](https://news.yahoo.com/louisville-mass-shooting-bank-police-kentucky-governor-victims-what-we-know-164520760.html)
-- Apr 10 - [3rd grader fights off 16-year-old trying to kidnap her at school, Utah officials say](https://news.yahoo.com/3rd-grader-fights-off-16-200350446.html)
-- Apr 10 - [Sentencing trial begins for ex-coach in wife's 1999 death](https://news.yahoo.com/sentencing-trial-begins-ex-coach-195529577.html)
-- Apr 10 - [A TikToker's viral reaction to her Air Force assignment has ignited support and commiseration about a widely-dreaded base in North Dakota](https://news.yahoo.com/tiktokers-viral-reaction-her-air-193709297.html)
+- Apr 10 - [Sea levels rising rapidly in southern U.S., study finds](https://news.yahoo.com/sea-levels-rising-rapidly-in-southern-us-study-finds-214056176.html)
+- Apr 10 - [China shows how it would attack Taiwan as tensions rise](https://news.yahoo.com/china-shows-attack-taiwan-tensions-213617839.html)
+- Apr 10 - [Dalai Lama apologizes after video shows him kissing boy, asking him to ‘suck my tongue’](https://news.yahoo.com/dalai-lama-apologizes-video-shows-213423433.html)
+- Apr 10 - [Family: QB Haskins was drugged before he was fatally struck](https://news.yahoo.com/family-qb-haskins-drugged-fatally-212810081.html)
+- Apr 10 - [Lake Tahoe’s clarity is the best it’s been in 40 years. This animal is helping, UC Davis says](https://news.yahoo.com/lake-tahoe-clarity-best-40-211306945.html)
 <!-- feed end -->
