@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 10 - [People Are Saying Ryan Gosling Is Too Old To Play Ken In "Barbie," And It Reeks Of Ageism](https://news.yahoo.com/people-saying-ryan-gosling-too-222405128.html)
+- Apr 10 - [Romanian prosecutors search devices in Andrew Tate case](https://news.yahoo.com/romanian-prosecutors-search-devices-andrew-102543984.html)
 - Apr 10 - [Why I decided to shoot all my Bud Light: A letter to my 'woke' liberal neighbors](https://news.yahoo.com/why-decided-shoot-bud-light-090008770.html)
 - Apr 10 - [Urine-Drinking Anti-Vaxxer Is Denied His Dinner With Donald Trump Jr. and Dad at Mar-a-Lago](https://news.yahoo.com/urine-drinking-anti-vaxxer-denied-084038335.html)
-- Apr 10 - [Chuck Todd Presses Trump Lawyer In Heated On-Air Exchange: 'It's A Set Of Facts'](https://news.yahoo.com/chuck-todd-presses-trump-lawyer-064827262.html)
-- Apr 10 - [Elon Musk painted over the 'w' on Twitter's sign at its San Francisco headquarters, changing it to 'Titter'](https://news.yahoo.com/elon-musk-painted-over-w-051530156.html)
-- Apr 10 - [Guilty or not? Jury to hear claims in Idaho slain kids' case](https://news.yahoo.com/guilty-not-jury-hear-claims-042127501.html)
+- Apr 10 - [Ex-Prosecutor Argues Jim Jordan 'Should Be Locked Up' For Trump Probe Interference](https://news.yahoo.com/ex-prosecutor-argues-jim-jordan-083531926.html)
 <!-- feed end -->
