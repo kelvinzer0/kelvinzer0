@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [N.Ireland marks 25 years of peace, but police come under attack](https://news.yahoo.com/n-ireland-marks-25-years-155309917.html)
-- Apr 10 - [Kentucky gov. on Louisville shooting: 'I have a very close friend that didn't make it today'](https://news.yahoo.com/kentucky-gov-louisville-shooting-very-153630621.html)
+- Apr 10 - [Thousands attend the White House’s “Eggucation” themed Easter Egg Roll](https://news.yahoo.com/thousands-attend-white-house-eggucation-164716056.html)
+- Apr 10 - [5 dead, including gunman, in shooting at Louisville bank: Here’s everything we know](https://news.yahoo.com/louisville-mass-shooting-bank-police-kentucky-governor-victims-what-we-know-164520760.html)
+- Apr 10 - [Who is the Louisville shooter who killed four people at bank? What we know about suspect, motive.](https://news.yahoo.com/louisville-shooter-killed-four-people-162024995.html)
+- Apr 10 - [A teenager tried to sneak into Michael Jordan's 56,000-square-foot home, which is on the market and has a basketball court, infinity pool, tennis court, and cigar room](https://news.yahoo.com/teenager-tried-sneak-michael-jordans-153813503.html)
 - Apr 10 - [Don Lemon Seems to Diss Jon Stewart on Hot Mic and Then Backpedals](https://news.yahoo.com/don-lemon-disses-jon-stewart-151550022.html)
-- Apr 10 - [I learned creases in sneakers are a big no-no with teens today. I had to buy my son crease guards, which are as silly as they sound.](https://news.yahoo.com/learned-creases-sneakers-big-no-145204936.html)
-- Apr 10 - [Police: 4 killed in shooting at downtown Louisville building](https://news.yahoo.com/casualties-reported-police-presence-downtown-134524317.html)
 <!-- feed end -->
