@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [Here's Everything We Know About Taylor Swift And Joe Alwyn's Reported Breakup](https://news.yahoo.com/heres-everything-know-taylor-swift-010845846.html)
+- Apr 10 - [Elon Musk painted over the 'w' on Twitter's sign at its San Francisco headquarters, changing it to 'Titter'](https://news.yahoo.com/elon-musk-painted-over-w-051530156.html)
 - Apr 10 - [Guilty or not? Jury to hear claims in Idaho slain kids' case](https://news.yahoo.com/guilty-not-jury-hear-claims-042127501.html)
 - Apr 10 - [As India’s population soars above all, fewer women have jobs](https://news.yahoo.com/india-population-soars-above-fewer-042021160.html)
 - Apr 10 - [Trump's response to criminal charges revives election lies](https://news.yahoo.com/trumps-response-criminal-charges-revives-040417107.html)
