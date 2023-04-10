@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [George Santos claims without evidence that Democrats are ‘trying to ban toilet paper’](https://news.yahoo.com/george-santos-claims-without-evidence-that-democrats-are-trying-to-ban-toilet-paper-190037226.html)
-- Apr 10 - [Kal Penn's First Manager Once Accidentally Set Him Up With A Pimp Shortly After He Came Out As Gay](https://news.yahoo.com/kal-penns-first-manager-once-184539114.html)
-- Apr 10 - [Man’s Anti-Woke Temper Tantrum Against Jack Daniel’s Goes Viral](https://news.yahoo.com/man-anti-woke-temper-tantrum-182708498.html)
-- Apr 10 - [Someone Please Tell These 23 Entitled Jokers That They're No Better Than The Rest Of Us](https://news.yahoo.com/24-snarky-greedy-entitled-people-231444847.html)
-- Apr 10 - [42-year-old woman who was told she 'failed at life' because she has no children goes viral](https://news.yahoo.com/42-old-woman-told-she-181952926.html)
+- Apr 10 - [Brazil's Lula struggling to move forward after 100 days](https://news.yahoo.com/brazils-lula-struggling-move-forward-195101337.html)
+- Apr 10 - [Louisville Bank Massacre Suspect ID’d as Varsity Hoop Star-Turned-Banker](https://news.yahoo.com/louisville-bank-massacre-suspect-id-193304824.html)
+- Apr 10 - [People Are Calling Out The Rudest Things They've Seen Wedding Guests Do, And I'm Shocked At The Audacity](https://news.yahoo.com/people-calling-rudest-things-theyve-210318832.html)
+- Apr 10 - [Will Trump attend his rape trial? Judge wants to know](https://news.yahoo.com/judge-seeks-learn-whether-trump-191410225.html)
+- Apr 10 - [Firefighters get creative when illegally parked car blocks hydrant at blaze, photo shows](https://news.yahoo.com/firefighters-creative-illegally-parked-car-190612246.html)
 <!-- feed end -->
