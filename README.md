@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [Brooks Koepka collapses as Jon Rahm rolls to Masters win](https://news.yahoo.com/brooks-koepka-collapses-jon-rahm-000313830.html)
-- Apr 09 - [The field is set: Warriors, Clippers are in the playoffs](https://news.yahoo.com/field-set-warriors-clippers-playoffs-223731462.html)
-- Apr 09 - [Settlement reached in defamation lawsuit against Lou Dobbs, Fox News](https://news.yahoo.com/settlement-reached-defamation-lawsuit-against-223018319.html)
-- Apr 09 - [Colorado Home Depot customer attacked by dog, owner flees store](https://news.yahoo.com/colorado-home-depot-customer-gets-210000376.html)
-- Apr 09 - [Why Easter is called Easter, and other little-known facts about the holiday](https://news.yahoo.com/why-easter-called-easter-other-145752774.html)
+- Apr 10 - [People Are Calling Out The Rudest Things They've Seen Wedding Guests Do, And I'm Shocked At The Audacity](https://news.yahoo.com/people-calling-rudest-things-theyve-210318832.html)
+- Apr 10 - [Bodies of Lotus drummer Chuck Morris and son recovered](https://news.yahoo.com/bodies-lotus-drummer-chuck-morris-012752000.html)
+- Apr 10 - [Putin may be preparing to bring Russia's prized bomber jets to the war on Ukraine after leaked military intelligence found Ukrainian air power will 'be completely reduced' by June, report says](https://news.yahoo.com/putin-may-preparing-bring-russias-011407389.html)
+- Apr 10 - [Column: Mickelson begins road to redemption at the Masters](https://news.yahoo.com/column-mickelson-begins-road-redemption-011014590.html)
+- Apr 10 - [Spieth's impressive 21 birdies at Masters not enough to win](https://news.yahoo.com/spieths-impressive-21-birdies-masters-010024605.html)
 <!-- feed end -->
