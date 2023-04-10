@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [Live updates: 5 dead, 6 hospitalized after shooting in downtown Louisville. Suspect killed](https://news.yahoo.com/multiple-casualties-confirmed-downtown-louisville-134136633.html)
-- Apr 10 - [Putin runs out of time – Ukraine's National Security Council Secretary](https://news.yahoo.com/putin-runs-time-ukraines-national-123100060.html)
-- Apr 10 - [She became an anti-vaccine icon, and vanished. She’s finally ready to talk about it.](https://news.yahoo.com/conspiracy-theorists-made-tiffany-dover-120042403.html)
-- Apr 10 - [A man who spent $14,000 on fake ab surgery to get a chiseled six-pack describes what it was like](https://news.yahoo.com/man-spent-14-000-fake-120000874.html)
-- Apr 10 - [Taliban ban restaurant gardens for families, women in Herat](https://news.yahoo.com/taliban-ban-restaurant-gardens-families-114313569.html)
+- Apr 10 - [N.Ireland marks 25 years of peace, but police come under attack](https://news.yahoo.com/n-ireland-marks-25-years-155309917.html)
+- Apr 10 - [Kentucky gov. on Louisville shooting: 'I have a very close friend that didn't make it today'](https://news.yahoo.com/kentucky-gov-louisville-shooting-very-153630621.html)
+- Apr 10 - [Don Lemon Seems to Diss Jon Stewart on Hot Mic and Then Backpedals](https://news.yahoo.com/don-lemon-disses-jon-stewart-151550022.html)
+- Apr 10 - [I learned creases in sneakers are a big no-no with teens today. I had to buy my son crease guards, which are as silly as they sound.](https://news.yahoo.com/learned-creases-sneakers-big-no-145204936.html)
+- Apr 10 - [Police: 4 killed in shooting at downtown Louisville building](https://news.yahoo.com/casualties-reported-police-presence-downtown-134524317.html)
 <!-- feed end -->
