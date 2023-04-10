@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 10 - [People Who Live In Communities With HOAs Are Sharing How Obscene The Rules And Regulations Can Be](https://news.yahoo.com/people-live-communities-hoas-sharing-223238226.html)
+- Apr 10 - [Brooke Shields says Andre Agassi refused to change details about their relationship in his memoir because he remembered things differently](https://news.yahoo.com/brooke-shields-says-andre-agassi-220856197.html)
+- Apr 10 - ['Walk to the light': Woman's final words to dying husband goes viral](https://news.yahoo.com/walk-light-womans-final-words-215838062.html)
 - Apr 10 - [Sea levels rising rapidly in southern U.S., study finds](https://news.yahoo.com/sea-levels-rising-rapidly-in-southern-us-study-finds-214056176.html)
-- Apr 10 - [China shows how it would attack Taiwan as tensions rise](https://news.yahoo.com/china-shows-attack-taiwan-tensions-213617839.html)
 - Apr 10 - [Dalai Lama apologizes after video shows him kissing boy, asking him to ‘suck my tongue’](https://news.yahoo.com/dalai-lama-apologizes-video-shows-213423433.html)
-- Apr 10 - [Family: QB Haskins was drugged before he was fatally struck](https://news.yahoo.com/family-qb-haskins-drugged-fatally-212810081.html)
-- Apr 10 - [Lake Tahoe’s clarity is the best it’s been in 40 years. This animal is helping, UC Davis says](https://news.yahoo.com/lake-tahoe-clarity-best-40-211306945.html)
 <!-- feed end -->
