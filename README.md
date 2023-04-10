@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 10 - [California Rep. Katie Porter in tight race to replace Sen. Dianne Feinstein](https://news.yahoo.com/california-rep-katie-porter-tight-133006081.html)
+- Apr 10 - [When exactly will India surpass China as most populous?](https://news.yahoo.com/exactly-india-surpass-china-most-132924932.html)
+- Apr 10 - [She became an anti-vaccine icon, and vanished. She’s finally ready to talk about it.](https://news.yahoo.com/conspiracy-theorists-made-tiffany-dover-120042403.html)
 - Apr 10 - [A man who spent $14,000 on fake ab surgery to get a chiseled six-pack describes what it was like](https://news.yahoo.com/man-spent-14-000-fake-120000874.html)
 - Apr 10 - [Taliban ban restaurant gardens for families, women in Herat](https://news.yahoo.com/taliban-ban-restaurant-gardens-families-114313569.html)
-- Apr 10 - [Fire damages Massachusetts church after Easter services](https://news.yahoo.com/fire-damages-massachusetts-church-easter-110035606.html)
-- Apr 10 - [Romanian prosecutors search devices in Andrew Tate case](https://news.yahoo.com/romanian-prosecutors-search-devices-andrew-102543984.html)
-- Apr 10 - [Letters: New Ohio bill that would prohibit 'discomfort' should make you VERY uncomfortable](https://news.yahoo.com/letters-ohio-bill-prohibit-discomfort-094021111.html)
 <!-- feed end -->
