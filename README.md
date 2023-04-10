@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [People Are Saying Ryan Gosling Is Too Old To Play Ken In "Barbie," And It Reeks Of Ageism](https://news.yahoo.com/people-saying-ryan-gosling-too-222405128.html)
+- Apr 10 - [Taliban ban restaurant gardens for families, women in Herat](https://news.yahoo.com/taliban-ban-restaurant-gardens-families-114313569.html)
+- Apr 10 - [Fire damages Massachusetts church after Easter services](https://news.yahoo.com/fire-damages-massachusetts-church-easter-110035606.html)
 - Apr 10 - [Romanian prosecutors search devices in Andrew Tate case](https://news.yahoo.com/romanian-prosecutors-search-devices-andrew-102543984.html)
-- Apr 10 - [Why I decided to shoot all my Bud Light: A letter to my 'woke' liberal neighbors](https://news.yahoo.com/why-decided-shoot-bud-light-090008770.html)
-- Apr 10 - [Urine-Drinking Anti-Vaxxer Is Denied His Dinner With Donald Trump Jr. and Dad at Mar-a-Lago](https://news.yahoo.com/urine-drinking-anti-vaxxer-denied-084038335.html)
-- Apr 10 - [Ex-Prosecutor Argues Jim Jordan 'Should Be Locked Up' For Trump Probe Interference](https://news.yahoo.com/ex-prosecutor-argues-jim-jordan-083531926.html)
+- Apr 10 - [Letters: New Ohio bill that would prohibit 'discomfort' should make you VERY uncomfortable](https://news.yahoo.com/letters-ohio-bill-prohibit-discomfort-094021111.html)
+- Apr 10 - [In mass rally, Israeli settlers march to West Bank outpost](https://news.yahoo.com/defiant-jewish-settlers-march-evacuated-092819287.html)
 <!-- feed end -->
