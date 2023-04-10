@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 10 - [Here's Everything We Know About Taylor Swift And Joe Alwyn's Reported Breakup](https://news.yahoo.com/heres-everything-know-taylor-swift-010845846.html)
 - Apr 10 - [Guilty or not? Jury to hear claims in Idaho slain kids' case](https://news.yahoo.com/guilty-not-jury-hear-claims-042127501.html)
 - Apr 10 - [As India’s population soars above all, fewer women have jobs](https://news.yahoo.com/india-population-soars-above-fewer-042021160.html)
 - Apr 10 - [Trump's response to criminal charges revives election lies](https://news.yahoo.com/trumps-response-criminal-charges-revives-040417107.html)
 - Apr 10 - [Proud Boys leaders' Jan. 6 sedition trial inches to a close](https://news.yahoo.com/proud-boys-leaders-jan-6-040331960.html)
-- Apr 10 - [An indicted Trump once again posted a bizarre Truth Social holiday greeting, this time wishing a happy Easter to 'MARXISTS, & COMMUNISTS WHO ARE KILLING OUR NATION'](https://news.yahoo.com/indicted-trump-once-again-posted-025733869.html)
 <!-- feed end -->
