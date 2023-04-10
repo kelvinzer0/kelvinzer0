@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [Brazil's Lula struggling to move forward after 100 days](https://news.yahoo.com/brazils-lula-struggling-move-forward-195101337.html)
-- Apr 10 - [Louisville Bank Massacre Suspect ID’d as Varsity Hoop Star-Turned-Banker](https://news.yahoo.com/louisville-bank-massacre-suspect-id-193304824.html)
-- Apr 10 - [People Are Calling Out The Rudest Things They've Seen Wedding Guests Do, And I'm Shocked At The Audacity](https://news.yahoo.com/people-calling-rudest-things-theyve-210318832.html)
-- Apr 10 - [Will Trump attend his rape trial? Judge wants to know](https://news.yahoo.com/judge-seeks-learn-whether-trump-191410225.html)
-- Apr 10 - [Firefighters get creative when illegally parked car blocks hydrant at blaze, photo shows](https://news.yahoo.com/firefighters-creative-illegally-parked-car-190612246.html)
+- Apr 10 - [Police: Bank employee killed 4 in Louisville shooting](https://news.yahoo.com/police-bank-employee-killed-4-204416007.html)
+- Apr 10 - [5 dead, including gunman, in shooting at Louisville bank: Here's everything we know](https://news.yahoo.com/louisville-mass-shooting-bank-police-kentucky-governor-victims-what-we-know-164520760.html)
+- Apr 10 - [3rd grader fights off 16-year-old trying to kidnap her at school, Utah officials say](https://news.yahoo.com/3rd-grader-fights-off-16-200350446.html)
+- Apr 10 - [Sentencing trial begins for ex-coach in wife's 1999 death](https://news.yahoo.com/sentencing-trial-begins-ex-coach-195529577.html)
+- Apr 10 - [A TikToker's viral reaction to her Air Force assignment has ignited support and commiseration about a widely-dreaded base in North Dakota](https://news.yahoo.com/tiktokers-viral-reaction-her-air-193709297.html)
 <!-- feed end -->
