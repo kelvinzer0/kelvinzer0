@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 11 - [6 dead, including gunman, in shooting at Louisville bank: Here's everything we know](https://news.yahoo.com/louisville-mass-shooting-bank-police-kentucky-governor-victims-what-we-know-164520760.html)
+- Apr 11 - [A New Zealand man spent $137,000 building a 330-square-foot tiny house from shipping containers. Take a look inside.](https://news.yahoo.com/zealand-man-spent-137-000-013033060.html)
 - Apr 11 - [Leaked intelligence document shows that Egypt, a longtime US ally, secretly planned to provide Russia with 40,000 rockets and gunpowder: report](https://news.yahoo.com/leaked-intelligence-document-shows-egypt-012519337.html)
 - Apr 11 - [Biden ends COVID national emergency after Congress acts](https://news.yahoo.com/biden-ends-covid-national-emergency-012324101.html)
-- Apr 11 - [US, Philippines hold largest war drills near disputed waters](https://news.yahoo.com/us-philippines-hold-largest-war-005914082.html)
 - Apr 11 - [Minnesota college student charged after cache found in dorm](https://news.yahoo.com/minnesota-college-student-charged-cache-002054885.html)
 <!-- feed end -->
