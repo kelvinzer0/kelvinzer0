@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 11 - [Macron faces China row as Dutch state visit starts](https://news.yahoo.com/macron-faces-china-row-dutch-123325479.html)
-- Apr 11 - [Australian police destroy tobacco farm](https://news.yahoo.com/australian-police-destroy-tobacco-farm-123232516.html)
-- Apr 11 - [Whole Foods in Downtown San Francisco Closes Due to Spiraling Crime](https://news.yahoo.com/whole-foods-downtown-san-francisco-122832031.html)
-- Apr 11 - [Russian paratroopers are getting thermobaric tank-mounted 'flamethrowers' to make them more deadly after a string of failures, UK intel says](https://news.yahoo.com/russian-paratroopers-being-armed-thermobaric-114215509.html)
-- Apr 11 - [13-year-old girl who vanished in Texas found living with man in Mississippi, cops say](https://news.yahoo.com/13-old-girl-vanished-texas-112246962.html)
+- Apr 11 - [Millie Bobby Brown and Jake Bongiovi are engaged! See their adorable photos](https://news.yahoo.com/millie-bobby-brown-jake-bongiovi-133258784.html)
+- Apr 11 - [Key lawmakers win access to mishandled classified docs](https://news.yahoo.com/key-lawmakers-win-access-mishandled-131944076.html)
+- Apr 11 - [The rap community is defending Michael B. Jordan and Jonathan Majors' intimate photo shoot after rapper Cam'ron suggested he didn't watch 'Creed III' because of it](https://news.yahoo.com/rap-community-defending-michael-b-130547259.html)
+- Apr 11 - [A cat with litter-box issues was taken to the vet to be put down. They found a simple solution to keep her alive.](https://news.yahoo.com/cat-litter-box-issues-taken-121744401.html)
+- Apr 11 - [Trump Ignores Deadline for Personal Financial Disclosure to FEC](https://news.yahoo.com/trump-ignores-deadline-personal-financial-115441063.html)
 <!-- feed end -->
