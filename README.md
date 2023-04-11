@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 11 - [DC Police: Funeral home shooting a 'targeted' attack](https://news.yahoo.com/dc-police-funeral-home-shooting-193836007.html)
+- Apr 11 - [Michael Che Just Solved Gun Violence With One Instagram Post](https://news.yahoo.com/michael-che-just-solved-gun-204502580.html)
 - Apr 11 - [Manhattan DA sues Rep. Jordan over Trump indictment inquiry](https://news.yahoo.com/manhattan-da-sues-rep-jordan-185135535.html)
 - Apr 11 - [Kellyanne Conway Asks Why GOP Is Unpopular With Young Voters, Twitter Answers](https://news.yahoo.com/kellyanne-conway-asks-why-gop-183011874.html)
-- Apr 11 - [The AR-15 the Louisville bank shooter used to kill 5 people will one day be auctioned off thanks to a Kentucky law. The city's mayor wants the law changed.](https://news.yahoo.com/ar-15-louisville-bank-shooter-182458973.html)
 - Apr 11 - [Photo catches Taiwan pilot with a patch of Winnie the Pooh getting punched in the face — a jab at China's Xi as Beijing ups the pressure](https://news.yahoo.com/photo-catches-taiwan-pilot-patch-182404786.html)
+- Apr 11 - [A Florida divorce lawyer engaged in sex with a client. The ex-husband-to-be found out](https://news.yahoo.com/florida-divorce-lawyer-engaged-sex-182012603.html)
 <!-- feed end -->
