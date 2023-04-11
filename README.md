@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 11 - [A 78-year-old woman charged with robbing a Missouri bank apologized to the teller with a note that read 'sorry I didn't mean to scare you,' prosecutors say](https://news.yahoo.com/78-old-woman-charged-robbing-072330847.html)
+- Apr 11 - [Jeremy Renner Shares Hilariously Brutal Message From Paul Rudd After Accident](https://news.yahoo.com/jeremy-renner-shares-hilariously-brutal-071721755.html)
 - Apr 11 - [30 Reasons Why People Decided To Leave Organized Religion For Good — I'm Honestly In A State Of Complete Shock](https://news.yahoo.com/people-sharing-shocking-reasons-why-185610250.html)
 - Apr 11 - [Trump's camp is trying to force Ron DeSantis to resign and formally declare a 2024 run, accusing the governor of 'taxpayer-funded globetrotting'](https://news.yahoo.com/trumps-camp-trying-force-ron-032221131.html)
 - Apr 11 - [A New Zealand man spent $137,000 building a 330-square-foot tiny house from shipping containers. Take a look inside.](https://news.yahoo.com/zealand-man-spent-137-000-013033060.html)
-- Apr 11 - [Leaked intelligence document shows that Egypt, a longtime US ally, secretly planned to provide Russia with 40,000 rockets and gunpowder: report](https://news.yahoo.com/leaked-intelligence-document-shows-egypt-012519337.html)
-- Apr 11 - [US, Philippines hold largest war drills near disputed waters](https://news.yahoo.com/us-philippines-hold-largest-war-005914082.html)
 <!-- feed end -->
