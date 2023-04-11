@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 11 - [Cavinder twins say they're leaving Miami after 1 season](https://news.yahoo.com/cavinder-twins-theyre-leaving-miami-163407808.html)
+- Apr 11 - [Police rescuing ‘dog’ struggling in river discover it was something else entirely](https://news.yahoo.com/police-rescuing-dog-struggling-river-172748613.html)
+- Apr 11 - [19 Jacksonville gang members arrested on charges that include murder, manslaughter, gun possession](https://news.yahoo.com/19-jacksonville-gang-members-arrested-172006796.html)
+- Apr 11 - [A 78-year-old woman charged with robbing a Missouri bank apologized to the teller with a note that read 'sorry I didn't mean to scare you,' prosecutors say](https://news.yahoo.com/78-old-woman-charged-robbing-072330847.html)
+- Apr 11 - [Strange-looking bird didn’t move for three days. Then PA rescuers got a surprise](https://news.yahoo.com/strange-looking-bird-didn-t-161321845.html)
 - Apr 11 - [Texas Lawmaker Allegedly Invited Underage Intern Over to Drink, Gave Her 'Loyalty Test'](https://news.yahoo.com/texas-lawmaker-allegedly-invited-underage-160000206.html)
-- Apr 11 - [A man spent $24,000 to buy an old Boeing 737 and flip it into a quirky Airbnb rental with a cockpit flight simulator and hot tub. Take a look inside.](https://news.yahoo.com/man-spent-24-000-buy-151432447.html)
-- Apr 11 - [A truck carrying 40,000 pounds of toxic soil removed from the site of the East Palestine train derailment crashed, spilling its contaminated cargo](https://news.yahoo.com/truck-carrying-40-000-pounds-150554295.html)
-- Apr 11 - [Milwaukee police said they're so afraid of their department-issued handguns randomly firing, they won't bring them home near their family](https://news.yahoo.com/milwaukee-police-said-theyre-afraid-150313388.html)
 <!-- feed end -->
