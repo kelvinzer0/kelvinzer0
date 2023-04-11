@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 10 - [People Who Live In Communities With HOAs Are Sharing How Obscene The Rules And Regulations Can Be](https://news.yahoo.com/people-live-communities-hoas-sharing-223238226.html)
-- Apr 10 - [Brooke Shields says Andre Agassi refused to change details about their relationship in his memoir because he remembered things differently](https://news.yahoo.com/brooke-shields-says-andre-agassi-220856197.html)
-- Apr 10 - ['Walk to the light': Woman's final words to dying husband goes viral](https://news.yahoo.com/walk-light-womans-final-words-215838062.html)
-- Apr 10 - [Sea levels rising rapidly in southern U.S., study finds](https://news.yahoo.com/sea-levels-rising-rapidly-in-southern-us-study-finds-214056176.html)
-- Apr 10 - [Dalai Lama apologizes after video shows him kissing boy, asking him to ‘suck my tongue’](https://news.yahoo.com/dalai-lama-apologizes-video-shows-213423433.html)
+- Apr 11 - [Minnesota college student charged after cache found in dorm](https://news.yahoo.com/minnesota-college-student-charged-cache-002054885.html)
+- Apr 10 - [Judges block Tennessee move to cut Nashville council in half](https://news.yahoo.com/judges-block-tennessee-move-cut-234910701.html)
+- Apr 10 - [Leaked documents may have origin in chatroom for gamers](https://news.yahoo.com/leaked-documents-may-origin-chatroom-232220518.html)
+- Apr 10 - [Leaked US intel: Russia operatives claimed new ties with UAE](https://news.yahoo.com/leaked-us-intel-russia-operatives-225617579.html)
+- Apr 10 - [Can schools switch to a 4-day week without leaving students behind?](https://news.yahoo.com/can-schools-switch-to-a-4-day-week-without-leaving-students-behind-224946979.html)
 <!-- feed end -->
