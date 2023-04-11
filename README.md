@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Apr 11 - [Trump's camp is trying to force Ron DeSantis to resign and formally declare a 2024 run, accusing the governor of 'taxpayer-funded globetrotting'](https://news.yahoo.com/trumps-camp-trying-force-ron-032221131.html)
 - Apr 11 - [A New Zealand man spent $137,000 building a 330-square-foot tiny house from shipping containers. Take a look inside.](https://news.yahoo.com/zealand-man-spent-137-000-013033060.html)
 - Apr 11 - [Leaked intelligence document shows that Egypt, a longtime US ally, secretly planned to provide Russia with 40,000 rockets and gunpowder: report](https://news.yahoo.com/leaked-intelligence-document-shows-egypt-012519337.html)
-- Apr 11 - [Biden ends COVID national emergency after Congress acts](https://news.yahoo.com/biden-ends-covid-national-emergency-012324101.html)
+- Apr 11 - [US, Philippines hold largest war drills near disputed waters](https://news.yahoo.com/us-philippines-hold-largest-war-005914082.html)
 <!-- feed end -->
