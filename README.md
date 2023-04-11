@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 11 - [DC Police: Funeral home shooting a 'targeted' attack](https://news.yahoo.com/dc-police-funeral-home-shooting-193836007.html)
 - Apr 11 - [Manhattan DA sues Rep. Jordan over Trump indictment inquiry](https://news.yahoo.com/manhattan-da-sues-rep-jordan-185135535.html)
-- Apr 11 - [Ex-firefighter gets prison for Jan. 6 extinguisher attack](https://news.yahoo.com/ex-firefighter-gets-prison-jan-183806761.html)
 - Apr 11 - [Kellyanne Conway Asks Why GOP Is Unpopular With Young Voters, Twitter Answers](https://news.yahoo.com/kellyanne-conway-asks-why-gop-183011874.html)
-- Apr 11 - [A Leak at the Bottom of the Sea May Be a Harbinger of Doom](https://news.yahoo.com/leak-bottom-sea-may-harbinger-180932935.html)
-- Apr 11 - [Joel Koskan, who ran for SD Senate, pleads guilty to 2 counts of felony incest](https://news.yahoo.com/joel-koskan-ran-sd-senate-180125752.html)
+- Apr 11 - [The AR-15 the Louisville bank shooter used to kill 5 people will one day be auctioned off thanks to a Kentucky law. The city's mayor wants the law changed.](https://news.yahoo.com/ar-15-louisville-bank-shooter-182458973.html)
+- Apr 11 - [Photo catches Taiwan pilot with a patch of Winnie the Pooh getting punched in the face — a jab at China's Xi as Beijing ups the pressure](https://news.yahoo.com/photo-catches-taiwan-pilot-patch-182404786.html)
 <!-- feed end -->
