@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 11 - [Police rescuing ‘dog’ struggling in river discover it was something else entirely](https://news.yahoo.com/police-rescuing-dog-struggling-river-172748613.html)
-- Apr 11 - [19 Jacksonville gang members arrested on charges that include murder, manslaughter, gun possession](https://news.yahoo.com/19-jacksonville-gang-members-arrested-172006796.html)
-- Apr 11 - [A 78-year-old woman charged with robbing a Missouri bank apologized to the teller with a note that read 'sorry I didn't mean to scare you,' prosecutors say](https://news.yahoo.com/78-old-woman-charged-robbing-072330847.html)
-- Apr 11 - [Strange-looking bird didn’t move for three days. Then PA rescuers got a surprise](https://news.yahoo.com/strange-looking-bird-didn-t-161321845.html)
-- Apr 11 - [Texas Lawmaker Allegedly Invited Underage Intern Over to Drink, Gave Her 'Loyalty Test'](https://news.yahoo.com/texas-lawmaker-allegedly-invited-underage-160000206.html)
+- Apr 11 - [Manhattan DA sues Rep. Jordan over Trump indictment inquiry](https://news.yahoo.com/manhattan-da-sues-rep-jordan-185135535.html)
+- Apr 11 - [Ex-firefighter gets prison for Jan. 6 extinguisher attack](https://news.yahoo.com/ex-firefighter-gets-prison-jan-183806761.html)
+- Apr 11 - [Kellyanne Conway Asks Why GOP Is Unpopular With Young Voters, Twitter Answers](https://news.yahoo.com/kellyanne-conway-asks-why-gop-183011874.html)
+- Apr 11 - [A Leak at the Bottom of the Sea May Be a Harbinger of Doom](https://news.yahoo.com/leak-bottom-sea-may-harbinger-180932935.html)
+- Apr 11 - [Joel Koskan, who ran for SD Senate, pleads guilty to 2 counts of felony incest](https://news.yahoo.com/joel-koskan-ran-sd-senate-180125752.html)
 <!-- feed end -->
