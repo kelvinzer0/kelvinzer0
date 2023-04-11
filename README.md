@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 11 - [16 Times Celebs Thought They Were Being Relatable But Actually Came Off As Pretty Darn Out-Of-Touch](https://news.yahoo.com/16-times-celebs-thought-were-203927875.html)
+- Apr 11 - [People Revealed The Shocking Ways Their Partners Cheated On Them, And Their Stories Are Disturbing As Heck](https://news.yahoo.com/people-revealed-shocking-ways-partners-220621911.html)
 - Apr 11 - [Michael Che Just Solved Gun Violence With One Instagram Post](https://news.yahoo.com/michael-che-just-solved-gun-204502580.html)
-- Apr 11 - [Manhattan DA sues Rep. Jordan over Trump indictment inquiry](https://news.yahoo.com/manhattan-da-sues-rep-jordan-185135535.html)
-- Apr 11 - [Kellyanne Conway Asks Why GOP Is Unpopular With Young Voters, Twitter Answers](https://news.yahoo.com/kellyanne-conway-asks-why-gop-183011874.html)
-- Apr 11 - [Photo catches Taiwan pilot with a patch of Winnie the Pooh getting punched in the face — a jab at China's Xi as Beijing ups the pressure](https://news.yahoo.com/photo-catches-taiwan-pilot-patch-182404786.html)
-- Apr 11 - [A Florida divorce lawyer engaged in sex with a client. The ex-husband-to-be found out](https://news.yahoo.com/florida-divorce-lawyer-engaged-sex-182012603.html)
+- Apr 11 - [Texas Man Who Sued Over His Ex-Wife's Abortion Appears to Be a Lying Creep](https://news.yahoo.com/texas-man-sued-over-ex-204500435.html)
+- Apr 11 - [A man picked up a chair from Facebook Marketplace for $50 — now Sotheby's says it could be worth $50,000](https://news.yahoo.com/man-picked-chair-facebook-marketplace-204011665.html)
 <!-- feed end -->
