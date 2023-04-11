@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 11 - [16 Times Celebs Thought They Were Being Relatable But Actually Came Off As Pretty Darn Out-Of-Touch](https://news.yahoo.com/16-times-celebs-thought-were-203927875.html)
-- Apr 11 - [People Revealed The Shocking Ways Their Partners Cheated On Them, And Their Stories Are Disturbing As Heck](https://news.yahoo.com/people-revealed-shocking-ways-partners-220621911.html)
-- Apr 11 - [Michael Che Just Solved Gun Violence With One Instagram Post](https://news.yahoo.com/michael-che-just-solved-gun-204502580.html)
-- Apr 11 - [Texas Man Who Sued Over His Ex-Wife's Abortion Appears to Be a Lying Creep](https://news.yahoo.com/texas-man-sued-over-ex-204500435.html)
-- Apr 11 - [A man picked up a chair from Facebook Marketplace for $50 — now Sotheby's says it could be worth $50,000](https://news.yahoo.com/man-picked-chair-facebook-marketplace-204011665.html)
+- Apr 11 - [Ukraine war: Leak shows Western special forces on the ground](https://news.yahoo.com/ukraine-war-leak-shows-western-220048366.html)
+- Apr 11 - [Arkansas Gov. Huckabee Sanders signs parole changes into law](https://news.yahoo.com/arkansas-gov-huckabee-sanders-signs-223230855.html)
+- Apr 11 - [With NATO entry blocked, Sweden turns hopeful eye toward Turkey's presidential elections](https://news.yahoo.com/with-nato-entry-blocked-sweden-turns-hopeful-eye-toward-turkeys-presidential-elections-222022018.html)
+- Apr 11 - [McIlroy WD from Hilton Head could mean $3M bonus deduction](https://news.yahoo.com/mcilroy-wd-hilton-head-could-215931914.html)
+- Apr 11 - [Brooke Shields says her mom was 'in love' with her and it caused them both to be 'cut off' from their sexuality](https://news.yahoo.com/brooke-shields-says-her-mom-212813087.html)
 <!-- feed end -->
