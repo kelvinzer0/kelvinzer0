@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 11 - [Millie Bobby Brown and Jake Bongiovi are engaged! See their adorable photos](https://news.yahoo.com/millie-bobby-brown-jake-bongiovi-133258784.html)
+- Apr 11 - [A look at the notorious cottonmouth and the lore that follows this common snake](https://news.yahoo.com/look-notorious-cottonmouth-lore-follows-090107183.html)
+- Apr 11 - [Members of the rap community are defending Michael B. Jordan and Jonathan Majors' intimate photo shoot after rapper Cam'ron suggested he didn't watch 'Creed III' because of it](https://news.yahoo.com/rap-community-defending-michael-b-130547259.html)
+- Apr 11 - [Florida fight over 'baby boxes' part of bigger culture war](https://news.yahoo.com/florida-fight-over-baby-boxes-140541667.html)
+- Apr 11 - [Man fishing after work at Missouri ditch shoots fish. Its size breaks a world record](https://news.yahoo.com/man-fishing-missouri-ditch-shoots-134951081.html)
 - Apr 11 - [Key lawmakers win access to mishandled classified docs](https://news.yahoo.com/key-lawmakers-win-access-mishandled-131944076.html)
-- Apr 11 - [The rap community is defending Michael B. Jordan and Jonathan Majors' intimate photo shoot after rapper Cam'ron suggested he didn't watch 'Creed III' because of it](https://news.yahoo.com/rap-community-defending-michael-b-130547259.html)
-- Apr 11 - [A cat with litter-box issues was taken to the vet to be put down. They found a simple solution to keep her alive.](https://news.yahoo.com/cat-litter-box-issues-taken-121744401.html)
-- Apr 11 - [Trump Ignores Deadline for Personal Financial Disclosure to FEC](https://news.yahoo.com/trump-ignores-deadline-personal-financial-115441063.html)
 <!-- feed end -->
