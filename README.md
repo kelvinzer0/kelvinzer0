@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 11 - [6 dead, including gunman, in shooting at Louisville bank: Here's everything we know](https://news.yahoo.com/louisville-mass-shooting-bank-police-kentucky-governor-victims-what-we-know-164520760.html)
 - Apr 11 - [Leaked intelligence document shows that Egypt, a longtime US ally, secretly planned to provide Russia with 40,000 rockets and gunpowder: report](https://news.yahoo.com/leaked-intelligence-document-shows-egypt-012519337.html)
 - Apr 11 - [Biden ends COVID national emergency after Congress acts](https://news.yahoo.com/biden-ends-covid-national-emergency-012324101.html)
+- Apr 11 - [US, Philippines hold largest war drills near disputed waters](https://news.yahoo.com/us-philippines-hold-largest-war-005914082.html)
 - Apr 11 - [Minnesota college student charged after cache found in dorm](https://news.yahoo.com/minnesota-college-student-charged-cache-002054885.html)
-- Apr 10 - [Judges block Tennessee move to cut Nashville council in half](https://news.yahoo.com/judges-block-tennessee-move-cut-234910701.html)
-- Apr 10 - [Pete Buttigieg's husband asks Bud Light boycotters if they plan to protest water after trans controversy](https://news.yahoo.com/pete-buttigiegs-husband-asks-bud-231518215.html)
 <!-- feed end -->
