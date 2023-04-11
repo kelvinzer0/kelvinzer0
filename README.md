@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 11 - [Woman charged after flight diverted to Kansas City](https://news.yahoo.com/woman-charged-flight-diverted-kansas-154208237.html)
+- Apr 11 - [A man spent $24,000 to buy an old Boeing 737 and flip it into a quirky Airbnb rental with a cockpit flight simulator and hot tub. Take a look inside.](https://news.yahoo.com/man-spent-24-000-buy-151432447.html)
+- Apr 11 - [Milwaukee police said they're so afraid of their department-issued handguns randomly firing, they won't bring them home near their family](https://news.yahoo.com/milwaukee-police-said-theyre-afraid-150313388.html)
 - Apr 11 - [A look at the notorious cottonmouth and the lore that follows this common snake](https://news.yahoo.com/look-notorious-cottonmouth-lore-follows-090107183.html)
-- Apr 11 - [Members of the rap community are defending Michael B. Jordan and Jonathan Majors' intimate photo shoot after rapper Cam'ron suggested he didn't watch 'Creed III' because of it](https://news.yahoo.com/rap-community-defending-michael-b-130547259.html)
 - Apr 11 - [Florida fight over 'baby boxes' part of bigger culture war](https://news.yahoo.com/florida-fight-over-baby-boxes-140541667.html)
-- Apr 11 - [Man fishing after work at Missouri ditch shoots fish. Its size breaks a world record](https://news.yahoo.com/man-fishing-missouri-ditch-shoots-134951081.html)
-- Apr 11 - [Key lawmakers win access to mishandled classified docs](https://news.yahoo.com/key-lawmakers-win-access-mishandled-131944076.html)
 <!-- feed end -->
