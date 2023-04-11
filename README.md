@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 11 - [Woman charged after flight diverted to Kansas City](https://news.yahoo.com/woman-charged-flight-diverted-kansas-154208237.html)
+- Apr 11 - [Cavinder twins say they're leaving Miami after 1 season](https://news.yahoo.com/cavinder-twins-theyre-leaving-miami-163407808.html)
+- Apr 11 - [Texas Lawmaker Allegedly Invited Underage Intern Over to Drink, Gave Her 'Loyalty Test'](https://news.yahoo.com/texas-lawmaker-allegedly-invited-underage-160000206.html)
 - Apr 11 - [A man spent $24,000 to buy an old Boeing 737 and flip it into a quirky Airbnb rental with a cockpit flight simulator and hot tub. Take a look inside.](https://news.yahoo.com/man-spent-24-000-buy-151432447.html)
+- Apr 11 - [A truck carrying 40,000 pounds of toxic soil removed from the site of the East Palestine train derailment crashed, spilling its contaminated cargo](https://news.yahoo.com/truck-carrying-40-000-pounds-150554295.html)
 - Apr 11 - [Milwaukee police said they're so afraid of their department-issued handguns randomly firing, they won't bring them home near their family](https://news.yahoo.com/milwaukee-police-said-theyre-afraid-150313388.html)
-- Apr 11 - [A look at the notorious cottonmouth and the lore that follows this common snake](https://news.yahoo.com/look-notorious-cottonmouth-lore-follows-090107183.html)
-- Apr 11 - [Florida fight over 'baby boxes' part of bigger culture war](https://news.yahoo.com/florida-fight-over-baby-boxes-140541667.html)
 <!-- feed end -->
