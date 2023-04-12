@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Apr 12 - [Ted Cruz Tweet Ages As Badly As Possible After Louisville Shooting](https://news.yahoo.com/ted-cruz-tweet-ages-badly-011346081.html)
 - Apr 12 - [Fed up by LA pothole, Arnold Schwarzenegger fills it himself](https://news.yahoo.com/fed-la-pothole-arnold-schwarzenegger-005357215.html)
 - Apr 11 - [A fisherman stumbled upon a Jeep submerged in a lake. When police arrived 18 minutes later, a woman was found inside — and was still alive.](https://news.yahoo.com/fisherman-stumbled-upon-jeep-submerged-230002539.html)
-- Apr 11 - [China accused of spying to create passenger jet](https://news.yahoo.com/china-accused-spying-create-passenger-224100190.html)
+- Apr 11 - [Arizona court upholds clergy privilege in child abuse case](https://news.yahoo.com/arizona-court-upholds-clergy-privilege-224142760.html)
 <!-- feed end -->
