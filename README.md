@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 12 - [Nick Cannon Said He's Open To Having Baby Number 13 With Taylor Swift, And The Reactions Are Obviously Priceless](https://news.yahoo.com/nick-cannon-said-hes-open-215039969.html)
+- Apr 12 - [‘Complete Humiliation’: Tucker Carlson Mocked For Bending The Knee To Trump](https://news.yahoo.com/complete-humiliation-tucker-carlson-mocked-073527726.html)
+- Apr 12 - [Kentucky bank gunman's family speak out as footage reveals police response](https://news.yahoo.com/family-kentucky-bank-gunman-speak-050920351.html)
 - Apr 12 - [In Kerala, an aging trend bucks India's booming population](https://news.yahoo.com/kerala-aging-trend-bucks-indias-043115791.html)
 - Apr 12 - [U.S. airman is killed by MMA fighter in brawl outside Florida bar, officials say](https://news.yahoo.com/u-airman-killed-mma-fighter-023404093.html)
-- Apr 12 - [Ted Cruz Tweet Ages As Badly As Possible After Louisville Shooting](https://news.yahoo.com/ted-cruz-tweet-ages-badly-011346081.html)
-- Apr 12 - [Fed up by LA pothole, Arnold Schwarzenegger fills it himself](https://news.yahoo.com/fed-la-pothole-arnold-schwarzenegger-005357215.html)
-- Apr 11 - [A fisherman stumbled upon a Jeep submerged in a lake. When police arrived 18 minutes later, a woman was found inside — and was still alive.](https://news.yahoo.com/fisherman-stumbled-upon-jeep-submerged-230002539.html)
 <!-- feed end -->
