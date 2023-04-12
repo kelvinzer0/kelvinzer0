@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 12 - [Zelensky blasts Russian 'beasts' over beheading video](https://news.yahoo.com/zelensky-blasts-russian-beasts-over-131411888.html)
 - Apr 12 - [China to impose no-fly zone near Taiwan](https://news.yahoo.com/china-impose-no-fly-zone-101630836.html)
+- Apr 12 - [A 21-year-old influencer who announced she just bought a house tearfully addressed backlash about not having a 'real job': 'I do actually work'](https://news.yahoo.com/21-old-influencer-announced-she-124700459.html)
 - Apr 12 - [Video shows a Russian YouTuber striking himself in the face with a Western anti-tank weapon after holding it the wrong way](https://news.yahoo.com/video-shows-russian-youtuber-striking-122205037.html)
-- Apr 12 - [Bodycam footage shows Louisville police response to Old National Bank shooting](https://news.yahoo.com/bodycam-footage-shows-louisville-police-120527505.html)
 - Apr 12 - [Elon Musk claims the only thing stopping him from turning part of Twitter's San Francisco HQ into a homeless shelter is the building's owner](https://news.yahoo.com/elon-musk-claims-only-thing-120015003.html)
-- Apr 12 - [John Mayer Just Admitted That His 2013 Song “Paper Doll” — Which Is Heavily Rumored To Be About His Ex Taylor Swift — Sounds Pretty Spiteful In Hindsight](https://news.yahoo.com/john-mayer-just-admitted-2013-115118705.html)
 <!-- feed end -->
