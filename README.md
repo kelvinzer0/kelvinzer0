@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 12 - [US will not prosecute suspect in US tourist death in Mexico](https://news.yahoo.com/us-not-prosecute-suspect-us-194535276.html)
-- Apr 12 - [Judge blocks rules intended to protect nation's waterways](https://news.yahoo.com/judge-blocks-rules-intended-protect-192854653.html)
+- Apr 12 - [Ohio Republican Majewski launches 2nd bid to take on Kaptur](https://news.yahoo.com/ohio-republican-majewski-launches-2nd-203744058.html)
+- Apr 12 - [Rep. Jamaal Bowman calls on Biden to take unilateral action on guns: 'If it goes to the courts for a fight, so be it'](https://news.yahoo.com/rep-jamaal-bowman-calls-on-biden-to-take-unilateral-action-on-guns-if-it-goes-to-the-courts-for-a-fight-so-be-it-203415687.html)
+- Apr 12 - [Family of girl found dead files suit against Alameda County claiming child services failed to probe abuse](https://news.yahoo.com/family-of-girl-found-dead-files-suit-against-alameda-county-claiming-child-services-failed-to-probe-abuse-203256559.html)
+- Apr 12 - [‘I’m Shaking’: Louisville Killer’s Mom Called 911 in a Panic Mid-Massacre](https://news.yahoo.com/m-shaking-louisville-killer-mom-193447520.html)
 - Apr 12 - [Costco took this man’s cake order way too literally and the result is hilarious](https://news.yahoo.com/costco-took-man-cake-order-185348017.html)
-- Apr 12 - [Twins' Farmer hit in face by 92 mph fastball from Giolito](https://news.yahoo.com/twins-farmer-hit-face-92-185040020.html)
-- Apr 12 - [Georgia Football Coach Jokes About Lynching in Horrific Racist Videos](https://news.yahoo.com/georgia-football-coach-jokes-lynching-183321927.html)
 <!-- feed end -->
