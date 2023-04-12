@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 12 - [KS cops ‘chased’ elderly man for driving 3 mph over limit then tased him, lawsuit says](https://news.yahoo.com/ks-cops-chased-elderly-man-113000403.html)
+- Apr 12 - [‘It Hurts, Stop’: Russian Warmongers Celebrate Beheading Video of a Still-Alive POW](https://news.yahoo.com/hurts-stop-russian-warmongers-celebrate-112444651.html)
+- Apr 12 - [Brooke Shields says her adult 'Pretty Baby' costar, who she shared her first kiss with at 11, assured her it didn't 'count' and was 'protective and caring' on set](https://news.yahoo.com/brooke-shields-says-her-adult-111451516.html)
+- Apr 12 - [China to impose no-fly zone near Taiwan](https://news.yahoo.com/china-impose-no-fly-zone-101630836.html)
 - Apr 12 - [Ted Cruz said school shootings can be prevented if they have armed guards, like in banks. That aged poorly after the deadly Louisville bank shooting.](https://news.yahoo.com/ted-cruz-said-school-shootings-093410087.html)
-- Apr 12 - [‘Complete Humiliation’: Tucker Carlson Mocked For Bending The Knee To Trump](https://news.yahoo.com/complete-humiliation-tucker-carlson-mocked-073527726.html)
-- Apr 12 - [Kentucky bank gunman's family speak out as footage reveals police response](https://news.yahoo.com/family-kentucky-bank-gunman-speak-050920351.html)
-- Apr 12 - [In Kerala, an aging trend bucks India's booming population](https://news.yahoo.com/kerala-aging-trend-bucks-indias-043115791.html)
-- Apr 12 - [U.S. airman is killed by MMA fighter in brawl outside Florida bar, officials say](https://news.yahoo.com/u-airman-killed-mma-fighter-023404093.html)
 <!-- feed end -->
