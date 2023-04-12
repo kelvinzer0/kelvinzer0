@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 12 - [Fed up by LA pothole, Arnold Schwarzenegger fills it himself](https://news.yahoo.com/fed-la-pothole-arnold-schwarzenegger-005357215.html)
+- Apr 11 - [A fisherman stumbled upon a Jeep submerged in a lake. When police arrived 18 minutes later, a woman was found inside — and was still alive.](https://news.yahoo.com/fisherman-stumbled-upon-jeep-submerged-230002539.html)
+- Apr 11 - [China accused of spying to create passenger jet](https://news.yahoo.com/china-accused-spying-create-passenger-224100190.html)
 - Apr 11 - [Ukraine war: Leak shows Western special forces on the ground](https://news.yahoo.com/ukraine-war-leak-shows-western-220048366.html)
 - Apr 11 - [Arkansas Gov. Huckabee Sanders signs parole changes into law](https://news.yahoo.com/arkansas-gov-huckabee-sanders-signs-223230855.html)
-- Apr 11 - [With NATO entry blocked, Sweden turns hopeful eye toward Turkey's presidential elections](https://news.yahoo.com/with-nato-entry-blocked-sweden-turns-hopeful-eye-toward-turkeys-presidential-elections-222022018.html)
-- Apr 11 - [McIlroy WD from Hilton Head could mean $3M bonus deduction](https://news.yahoo.com/mcilroy-wd-hilton-head-could-215931914.html)
-- Apr 11 - [Brooke Shields says her mom was 'in love' with her and it caused them both to be 'cut off' from their sexuality](https://news.yahoo.com/brooke-shields-says-her-mom-212813087.html)
 <!-- feed end -->
