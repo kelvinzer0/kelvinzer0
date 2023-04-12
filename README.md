@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 12 - [Winning Mega Millions numbers for Tuesday, April 11, 2023. No winner, jackpot grows to $476M](https://news.yahoo.com/winning-mega-millions-numbers-tuesday-030212640.html)
 - Apr 12 - [Nick Cannon Said He's Open To Having Baby Number 13 With Taylor Swift, And The Reactions Are Obviously Priceless](https://news.yahoo.com/nick-cannon-said-hes-open-215039969.html)
 - Apr 12 - [‘Complete Humiliation’: Tucker Carlson Mocked For Bending The Knee To Trump](https://news.yahoo.com/complete-humiliation-tucker-carlson-mocked-073527726.html)
 - Apr 12 - [Kentucky bank gunman's family speak out as footage reveals police response](https://news.yahoo.com/family-kentucky-bank-gunman-speak-050920351.html)
 - Apr 12 - [In Kerala, an aging trend bucks India's booming population](https://news.yahoo.com/kerala-aging-trend-bucks-indias-043115791.html)
-- Apr 12 - [U.S. airman is killed by MMA fighter in brawl outside Florida bar, officials say](https://news.yahoo.com/u-airman-killed-mma-fighter-023404093.html)
 <!-- feed end -->
