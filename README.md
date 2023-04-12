@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 12 - [Prince Harry to attend father's coronation in England without Duchess Meghan](https://news.yahoo.com/prince-harry-attend-fathers-coronation-182753861.html)
-- Apr 12 - [The American survivors of the deadly kidnapping by a Mexican cartel say their captors put guns to their heads and tried to force them to have sex](https://news.yahoo.com/american-survivors-deadly-kidnapping-mexican-171817309.html)
-- Apr 12 - [Harvard to rename school after top Republican donor following $300m gift](https://news.yahoo.com/harvard-rename-school-top-republican-215333701.html)
-- Apr 12 - [Wild creature — considered extinct in Wales for 400 years — found destroying a garden](https://news.yahoo.com/wild-creature-considered-extinct-wales-170636241.html)
-- Apr 12 - [Chris Tucker once had a private jet turn around and fly back to New York after landing in LA because Michael Jackson wanted to meet up with him](https://news.yahoo.com/chris-tucker-once-had-private-164931519.html)
+- Apr 12 - [US will not prosecute suspect in US tourist death in Mexico](https://news.yahoo.com/us-not-prosecute-suspect-us-194535276.html)
+- Apr 12 - [Judge blocks rules intended to protect nation's waterways](https://news.yahoo.com/judge-blocks-rules-intended-protect-192854653.html)
+- Apr 12 - [Costco took this man’s cake order way too literally and the result is hilarious](https://news.yahoo.com/costco-took-man-cake-order-185348017.html)
+- Apr 12 - [Twins' Farmer hit in face by 92 mph fastball from Giolito](https://news.yahoo.com/twins-farmer-hit-face-92-185040020.html)
+- Apr 12 - [Georgia Football Coach Jokes About Lynching in Horrific Racist Videos](https://news.yahoo.com/georgia-football-coach-jokes-lynching-183321927.html)
 <!-- feed end -->
