@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 12 - [Zelensky blasts Russian 'beasts' over beheading video](https://news.yahoo.com/zelensky-blasts-russian-beasts-over-131411888.html)
-- Apr 12 - [China to impose no-fly zone near Taiwan](https://news.yahoo.com/china-impose-no-fly-zone-101630836.html)
-- Apr 12 - [A 21-year-old influencer who announced she just bought a house tearfully addressed backlash about not having a 'real job': 'I do actually work'](https://news.yahoo.com/21-old-influencer-announced-she-124700459.html)
-- Apr 12 - [Video shows a Russian YouTuber striking himself in the face with a Western anti-tank weapon after holding it the wrong way](https://news.yahoo.com/video-shows-russian-youtuber-striking-122205037.html)
-- Apr 12 - [Elon Musk claims the only thing stopping him from turning part of Twitter's San Francisco HQ into a homeless shelter is the building's owner](https://news.yahoo.com/elon-musk-claims-only-thing-120015003.html)
+- Apr 12 - [Trump’s tale of crying Manhattan court employees was ‘absolute BS,’ law enforcement source says](https://news.yahoo.com/trumps-tale-of-crying-manhattan-court-employees-was-absolute-bs-law-enforcement-source-says-160349195.html)
+- Apr 12 - [China in U-turn over no-fly zone near Taiwan](https://news.yahoo.com/china-impose-no-fly-zone-101630836.html)
+- Apr 12 - [7-foot alligator ends up in American River — and no one knows how it got there](https://news.yahoo.com/7-foot-alligator-ends-american-150955282.html)
+- Apr 12 - [Video shows woman stomping windshield in road rage incident at Florida traffic light](https://news.yahoo.com/video-shows-woman-stomping-windshield-145449689.html)
+- Apr 12 - [Russians really afraid that Russian Volunteer Corps may advance to Moscow, says military expert](https://news.yahoo.com/russians-really-afraid-russian-volunteer-144600498.html)
 <!-- feed end -->
