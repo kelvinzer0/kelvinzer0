@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 12 - [The American survivors of the deadly kidnapping by a Mexican cartel say their captors put guns to their heads and tried to force them to have sex](https://news.yahoo.com/american-survivors-deadly-kidnapping-mexican-171817309.html)
 - Apr 12 - [Harvard to rename school after top Republican donor following $300m gift](https://news.yahoo.com/harvard-rename-school-top-republican-215333701.html)
-- Apr 12 - [Thieves in New York City take $242,000 worth of Hèrmes handbags from an auction house](https://news.yahoo.com/thieves-york-city-242-000-163949723.html)
-- Apr 12 - [Trump's tale of crying Manhattan court employees was 'absolute BS,' law enforcement source says](https://news.yahoo.com/trumps-tale-of-crying-manhattan-court-employees-was-absolute-bs-law-enforcement-source-says-160349195.html)
-- Apr 12 - [China in U-turn over no-fly zone near Taiwan](https://news.yahoo.com/china-impose-no-fly-zone-101630836.html)
-- Apr 12 - [7-foot alligator ends up in American River — and no one knows how it got there](https://news.yahoo.com/7-foot-alligator-ends-american-150955282.html)
+- Apr 12 - [Wild creature — considered extinct in Wales for 400 years — found destroying a garden](https://news.yahoo.com/wild-creature-considered-extinct-wales-170636241.html)
+- Apr 12 - [Chris Tucker once had a private jet turn around and fly back to New York after landing in LA because Michael Jackson wanted to meet up with him](https://news.yahoo.com/chris-tucker-once-had-private-164931519.html)
+- Apr 12 - [GOP Seeks To Shield Trump From All Future State Prosecutions](https://news.yahoo.com/gop-seeks-shield-trump-future-163354079.html)
 <!-- feed end -->
