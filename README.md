@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 12 - [Trump’s tale of crying Manhattan court employees was ‘absolute BS,’ law enforcement source says](https://news.yahoo.com/trumps-tale-of-crying-manhattan-court-employees-was-absolute-bs-law-enforcement-source-says-160349195.html)
+- Apr 12 - [Harvard to rename school after top Republican donor following $300m gift](https://news.yahoo.com/harvard-rename-school-top-republican-215333701.html)
+- Apr 12 - [Thieves in New York City take $242,000 worth of Hèrmes handbags from an auction house](https://news.yahoo.com/thieves-york-city-242-000-163949723.html)
+- Apr 12 - [Trump's tale of crying Manhattan court employees was 'absolute BS,' law enforcement source says](https://news.yahoo.com/trumps-tale-of-crying-manhattan-court-employees-was-absolute-bs-law-enforcement-source-says-160349195.html)
 - Apr 12 - [China in U-turn over no-fly zone near Taiwan](https://news.yahoo.com/china-impose-no-fly-zone-101630836.html)
 - Apr 12 - [7-foot alligator ends up in American River — and no one knows how it got there](https://news.yahoo.com/7-foot-alligator-ends-american-150955282.html)
-- Apr 12 - [Video shows woman stomping windshield in road rage incident at Florida traffic light](https://news.yahoo.com/video-shows-woman-stomping-windshield-145449689.html)
-- Apr 12 - [Russians really afraid that Russian Volunteer Corps may advance to Moscow, says military expert](https://news.yahoo.com/russians-really-afraid-russian-volunteer-144600498.html)
 <!-- feed end -->
