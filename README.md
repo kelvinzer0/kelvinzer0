@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 12 - [Scientists challenge US wildlife director's qualifications](https://news.yahoo.com/scientists-challenge-us-wildlife-directors-214425175.html)
+- Apr 12 - [The US Navy's Super Hornets are having trouble keeping up with the rest of the military's fighter jets](https://news.yahoo.com/us-navys-super-hornets-having-220900532.html)
 - Apr 12 - [Dad says university failed to treat NFL veteran who shot 6](https://news.yahoo.com/dad-says-university-failed-treat-211103336.html)
 - Apr 12 - [Elon Musk's 2-Word Response To NPR Leaving Twitter Is ... Really Something](https://news.yahoo.com/elon-musks-2-word-response-210945285.html)
-- Apr 12 - [Why Clarence Thomas' lavish vacations with a GOP donor are in the spotlight](https://news.yahoo.com/why-clarence-thomas-lavish-vacations-210312469.html)
 - Apr 12 - [A woman who grows and donates food to those in need said someone dumped salt on her garden, destroying her harvest. TikTokers rushed to offer money and support.](https://news.yahoo.com/woman-grows-donates-food-those-205627472.html)
+- Apr 12 - [Family of girl found dead files suit against Alameda County claiming child services failed to probe abuse](https://news.yahoo.com/family-of-girl-found-dead-files-suit-against-alameda-county-claiming-child-services-failed-to-probe-abuse-203256559.html)
 <!-- feed end -->
