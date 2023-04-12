@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 12 - [KS cops ‘chased’ elderly man for driving 3 mph over limit then tased him, lawsuit says](https://news.yahoo.com/ks-cops-chased-elderly-man-113000403.html)
-- Apr 12 - [‘It Hurts, Stop’: Russian Warmongers Celebrate Beheading Video of a Still-Alive POW](https://news.yahoo.com/hurts-stop-russian-warmongers-celebrate-112444651.html)
-- Apr 12 - [Brooke Shields says her adult 'Pretty Baby' costar, who she shared her first kiss with at 11, assured her it didn't 'count' and was 'protective and caring' on set](https://news.yahoo.com/brooke-shields-says-her-adult-111451516.html)
 - Apr 12 - [China to impose no-fly zone near Taiwan](https://news.yahoo.com/china-impose-no-fly-zone-101630836.html)
-- Apr 12 - [Ted Cruz said school shootings can be prevented if they have armed guards, like in banks. That aged poorly after the deadly Louisville bank shooting.](https://news.yahoo.com/ted-cruz-said-school-shootings-093410087.html)
+- Apr 12 - [Video shows a Russian YouTuber striking himself in the face with a Western anti-tank weapon after holding it the wrong way](https://news.yahoo.com/video-shows-russian-youtuber-striking-122205037.html)
+- Apr 12 - [Bodycam footage shows Louisville police response to Old National Bank shooting](https://news.yahoo.com/bodycam-footage-shows-louisville-police-120527505.html)
+- Apr 12 - [Elon Musk claims the only thing stopping him from turning part of Twitter's San Francisco HQ into a homeless shelter is the building's owner](https://news.yahoo.com/elon-musk-claims-only-thing-120015003.html)
+- Apr 12 - [John Mayer Just Admitted That His 2013 Song “Paper Doll” — Which Is Heavily Rumored To Be About His Ex Taylor Swift — Sounds Pretty Spiteful In Hindsight](https://news.yahoo.com/john-mayer-just-admitted-2013-115118705.html)
 <!-- feed end -->
