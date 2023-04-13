@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 13 - [I live in a remote northern community of 90 people and drive 10 hours to get groceries and run errands](https://news.yahoo.com/live-remote-northern-community-90-123200617.html)
+- Apr 13 - [Florida cleans up after deluge strands cars, closes airport](https://news.yahoo.com/florida-cleans-deluge-strands-cars-123113755.html)
 - Apr 13 - [‘This Woman Is Really Miserable’: Fans Race to Lizzo’s Defense After Candace Owens Calls Women ‘Bats—t Insane’ for Telling the Singer She Looks Beautiful](https://news.yahoo.com/woman-really-miserable-fans-race-113000353.html)
 - Apr 13 - [Taliban share rare audio message from supreme leader](https://news.yahoo.com/taliban-share-rare-audio-message-104902523.html)
 - Apr 13 - [People are shocked by the story of a couple who racked up $760,000 in debt and asked Dave Ramsey for help](https://news.yahoo.com/people-shocked-story-couple-racked-104646946.html)
-- Apr 13 - [Eva Mendes says she won't join Ryan Gosling at 'Barbie' red carpet events: 'We don't do those things together'](https://news.yahoo.com/eva-mendes-says-she-wont-102941488.html)
-- Apr 13 - [Biden to expand some migrants' health care access: officials](https://news.yahoo.com/us-officials-biden-expand-migrant-100124502.html)
 <!-- feed end -->
