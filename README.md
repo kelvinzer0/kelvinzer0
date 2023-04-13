@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 13 - [Teens charged in fatal school shooting get separate trials](https://news.yahoo.com/teens-charged-fatal-school-shooting-154609270.html)
-- Apr 13 - [Biden 'not concerned' about classified document leak, DOJ investigation 'getting close'](https://news.yahoo.com/biden-not-concerned-classified-document-153444817.html)
 - Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
+- Apr 13 - [Teens charged in fatal school shooting get separate trials](https://news.yahoo.com/teens-charged-fatal-school-shooting-154609270.html)
+- Apr 13 - [San Francisco Police Make Arrest In Killing Of Cash App Founder](https://news.yahoo.com/san-francisco-police-arrest-killing-153707292.html)
+- Apr 13 - [I lost 30 pounds in 4 months on Ozempic. The drug ended years of binge-eating and weight cycling.](https://news.yahoo.com/lost-30-pounds-4-months-152000714.html)
 - Apr 13 - [British Politician Under Investigation By His Own Party After Recording Surfaces of Him Reportedly Saying ‘All White Men Should Have a Black Slave’](https://news.yahoo.com/british-politician-under-investigation-own-134835438.html)
-- Apr 13 - [I live in a remote northern community of 90 people and drive 10 hours to get groceries and run errands](https://news.yahoo.com/live-remote-northern-community-90-123200617.html)
 <!-- feed end -->
