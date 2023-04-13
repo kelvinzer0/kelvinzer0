@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
+- Apr 13 - [Russian jet almost shot down a British surveillance plane flying near Ukraine, and only failed because the missile malfunctioned: report](https://news.yahoo.com/russian-jet-almost-shot-down-135537698.html)
 - Apr 13 - [I live in a remote northern community of 90 people and drive 10 hours to get groceries and run errands](https://news.yahoo.com/live-remote-northern-community-90-123200617.html)
-- Apr 13 - [Florida cleans up after deluge strands cars, closes airport](https://news.yahoo.com/florida-cleans-deluge-strands-cars-123113755.html)
-- Apr 13 - [‘This Woman Is Really Miserable’: Fans Race to Lizzo’s Defense After Candace Owens Calls Women ‘Bats—t Insane’ for Telling the Singer She Looks Beautiful](https://news.yahoo.com/woman-really-miserable-fans-race-113000353.html)
-- Apr 13 - [Taliban share rare audio message from supreme leader](https://news.yahoo.com/taliban-share-rare-audio-message-104902523.html)
-- Apr 13 - [People are shocked by the story of a couple who racked up $760,000 in debt and asked Dave Ramsey for help](https://news.yahoo.com/people-shocked-story-couple-racked-104646946.html)
+- Apr 13 - [Florida mops up after floods close Fort Lauderdale airport](https://news.yahoo.com/florida-cleans-deluge-strands-cars-123113755.html)
+- Apr 13 - [Taylor Swift Was So Paranoid During Her Relationship With Joe Alwyn That She Sang About “Sucker Punching Walls” And “Daring” Him To Leave Her](https://news.yahoo.com/taylor-swift-paranoid-during-her-122851138.html)
 <!-- feed end -->
