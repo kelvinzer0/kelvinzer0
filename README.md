@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 13 - [Women Are Sharing The Exact Moment Their Partner Did Something That Made Them Realize, “Oh, THIS Is Why Your Last Relationship Ended"](https://news.yahoo.com/women-sharing-exact-moment-partner-002716129.html)
+- Apr 13 - ['Such An Idiot': Nicolle Wallace Bursts Out Laughing Over Trump Comment On Fox News](https://news.yahoo.com/idiot-nicolle-wallace-bursts-laughing-014655057.html)
+- Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
 - Apr 12 - [Powerful Atlantic storm whips up colossal waves along coast of United Kingdom](https://news.yahoo.com/powerful-atlantic-storm-whips-colossal-225805213.html)
-- Apr 12 - [Dad says university failed to treat NFL veteran who shot 6](https://news.yahoo.com/dad-says-university-failed-treat-211103336.html)
-- Apr 12 - [Elon Musk's 2-Word Response To NPR Leaving Twitter Is ... Really Something](https://news.yahoo.com/elon-musks-2-word-response-210945285.html)
-- Apr 12 - [A woman who grows and donates food to those in need said someone dumped salt on her garden, destroying her harvest. TikTokers rushed to offer money and support.](https://news.yahoo.com/woman-grows-donates-food-those-205627472.html)
-- Apr 12 - [Family of girl found dead files suit against Alameda County claiming child services failed to probe abuse](https://news.yahoo.com/family-of-girl-found-dead-files-suit-against-alameda-county-claiming-child-services-failed-to-probe-abuse-203256559.html)
+- Apr 12 - [Scientists challenge US wildlife director's qualifications](https://news.yahoo.com/scientists-challenge-us-wildlife-directors-214425175.html)
 <!-- feed end -->
