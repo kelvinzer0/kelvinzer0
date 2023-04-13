@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 13 - [Trump's fingers were so dry during his arraignment he needed lotion before he could be fingerprinted, according to a new report from Yahoo News](https://news.yahoo.com/trumps-fingers-were-dry-during-021814272.html)
+- Apr 13 - [Tucker Carlson Might Have Just Delivered His Most Racist Fox News Rant Yet](https://news.yahoo.com/tucker-carlson-might-just-delivered-040531292.html)
 - Apr 13 - ['Such An Idiot': Nicolle Wallace Bursts Out Laughing Over Trump Comment On Fox News](https://news.yahoo.com/idiot-nicolle-wallace-bursts-laughing-014655057.html)
 - Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
 - Apr 12 - [Powerful Atlantic storm whips up colossal waves along coast of United Kingdom](https://news.yahoo.com/powerful-atlantic-storm-whips-colossal-225805213.html)
