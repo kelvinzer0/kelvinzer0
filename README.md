@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 13 - [Vladimir Putin may at last be glimpsing victory](https://news.yahoo.com/vladimir-putin-may-last-glimpsing-060000039.html)
+- Apr 13 - [The man who may have leaked top-secret Pentagon documents was a fit and armed military guy who controlled a group of young gamers united by their worship of guns and God: WaPo](https://news.yahoo.com/man-may-leaked-top-secret-052256508.html)
 - Apr 13 - [Tucker Carlson Might Have Just Delivered His Most Racist Fox News Rant Yet](https://news.yahoo.com/tucker-carlson-might-just-delivered-040531292.html)
 - Apr 13 - ['Such An Idiot': Nicolle Wallace Bursts Out Laughing Over Trump Comment On Fox News](https://news.yahoo.com/idiot-nicolle-wallace-bursts-laughing-014655057.html)
 - Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
-- Apr 12 - [Powerful Atlantic storm whips up colossal waves along coast of United Kingdom](https://news.yahoo.com/powerful-atlantic-storm-whips-colossal-225805213.html)
-- Apr 12 - [California doctor accused of poisoning husband with Drano was trying to kill ants, not her spouse, lawyers claim](https://news.yahoo.com/california-doctor-accused-poisoning-husband-223513696.html)
 <!-- feed end -->
