@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 13 - [Teens charged in fatal school shooting get separate trials](https://news.yahoo.com/teens-charged-fatal-school-shooting-154609270.html)
+- Apr 13 - [Biden 'not concerned' about classified document leak, DOJ investigation 'getting close'](https://news.yahoo.com/biden-not-concerned-classified-document-153444817.html)
 - Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
-- Apr 13 - [Russian jet almost shot down a British surveillance plane flying near Ukraine, and only failed because the missile malfunctioned: report](https://news.yahoo.com/russian-jet-almost-shot-down-135537698.html)
+- Apr 13 - [British Politician Under Investigation By His Own Party After Recording Surfaces of Him Reportedly Saying ‘All White Men Should Have a Black Slave’](https://news.yahoo.com/british-politician-under-investigation-own-134835438.html)
 - Apr 13 - [I live in a remote northern community of 90 people and drive 10 hours to get groceries and run errands](https://news.yahoo.com/live-remote-northern-community-90-123200617.html)
-- Apr 13 - [Florida mops up after floods close Fort Lauderdale airport](https://news.yahoo.com/florida-cleans-deluge-strands-cars-123113755.html)
-- Apr 13 - [Taylor Swift Was So Paranoid During Her Relationship With Joe Alwyn That She Sang About “Sucker Punching Walls” And “Daring” Him To Leave Her](https://news.yahoo.com/taylor-swift-paranoid-during-her-122851138.html)
 <!-- feed end -->
