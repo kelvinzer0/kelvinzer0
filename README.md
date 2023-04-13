@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 13 - [Truck carrying $750,000 in dimes robbed in Walmart parking lot, Pennsylvania cops say](https://news.yahoo.com/truck-carrying-750-000-dimes-181942041.html)
 - Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
 - Apr 13 - [Pentagon leaks: US air national guardsman, 21, identified as suspect](https://news.yahoo.com/pentagon-leak-suspect-close-being-155104562.html)
+- Apr 13 - [Michigan man searches for answers after dolls take over his mailbox: 'We've decided to live here'](https://news.yahoo.com/michigan-man-searches-answers-dolls-165820874.html)
 - Apr 13 - [Denver area school closes after 3 teachers die - one from suspected bacterial meningitis](https://news.yahoo.com/denver-area-school-closes-3-161814801.html)
-- Apr 13 - [Teens charged in fatal school shooting get separate trials](https://news.yahoo.com/teens-charged-fatal-school-shooting-154609270.html)
-- Apr 13 - [I lost 30 pounds in 4 months on Ozempic. The drug ended years of binge-eating and weight cycling.](https://news.yahoo.com/lost-30-pounds-4-months-152000714.html)
 <!-- feed end -->
