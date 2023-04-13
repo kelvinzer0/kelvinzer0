@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 13 - [Trump's fingers were so dry during his arraignment he needed lotion before he could be fingerprinted, according to a new report from Yahoo News](https://news.yahoo.com/trumps-fingers-were-dry-during-021814272.html)
 - Apr 13 - ['Such An Idiot': Nicolle Wallace Bursts Out Laughing Over Trump Comment On Fox News](https://news.yahoo.com/idiot-nicolle-wallace-bursts-laughing-014655057.html)
 - Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
 - Apr 12 - [Powerful Atlantic storm whips up colossal waves along coast of United Kingdom](https://news.yahoo.com/powerful-atlantic-storm-whips-colossal-225805213.html)
 - Apr 12 - [California doctor accused of poisoning husband with Drano was trying to kill ants, not her spouse, lawyers claim](https://news.yahoo.com/california-doctor-accused-poisoning-husband-223513696.html)
-- Apr 12 - [Dad says university failed to treat NFL veteran who shot 6](https://news.yahoo.com/dad-says-university-failed-treat-211103336.html)
 <!-- feed end -->
