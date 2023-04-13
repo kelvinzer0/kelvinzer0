@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 13 - [‘This Woman Is Really Miserable’: Fans Race to Lizzo’s Defense After Candace Owens Calls Women ‘Bats—t Insane’ for Telling the Singer She Looks Beautiful](https://news.yahoo.com/woman-really-miserable-fans-race-113000353.html)
+- Apr 13 - [People are shocked by the story of a couple who racked up $760,000 in debt and asked Dave Ramsey for help](https://news.yahoo.com/people-shocked-story-couple-racked-104646946.html)
 - Apr 13 - [Biden to expand some migrants' health care access: officials](https://news.yahoo.com/us-officials-biden-expand-migrant-100124502.html)
 - Apr 13 - [Jimmy Kimmel Comes Right Out And Says It About Trump](https://news.yahoo.com/jimmy-kimmel-comes-says-trump-072700698.html)
-- Apr 13 - [Travis Barker jumped off the roof of a yacht into the ocean to ease his nerves an hour before his wedding to Kourtney Kardashian](https://news.yahoo.com/travis-barker-jumped-off-roof-071500152.html)
 - Apr 13 - [Vladimir Putin may at last be glimpsing victory](https://news.yahoo.com/vladimir-putin-may-last-glimpsing-060000039.html)
-- Apr 13 - [The man who may have leaked top-secret Pentagon documents was a fit and armed military guy who controlled a group of young gamers united by their worship of guns and God: WaPo](https://news.yahoo.com/man-may-leaked-top-secret-052256508.html)
 <!-- feed end -->
