@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
+- Apr 13 - [Pentagon leaks: US air national guardsman, 21, identified as suspect](https://news.yahoo.com/pentagon-leak-suspect-close-being-155104562.html)
+- Apr 13 - [Denver area school closes after 3 teachers die - one from suspected bacterial meningitis](https://news.yahoo.com/denver-area-school-closes-3-161814801.html)
 - Apr 13 - [Teens charged in fatal school shooting get separate trials](https://news.yahoo.com/teens-charged-fatal-school-shooting-154609270.html)
-- Apr 13 - [San Francisco Police Make Arrest In Killing Of Cash App Founder](https://news.yahoo.com/san-francisco-police-arrest-killing-153707292.html)
 - Apr 13 - [I lost 30 pounds in 4 months on Ozempic. The drug ended years of binge-eating and weight cycling.](https://news.yahoo.com/lost-30-pounds-4-months-152000714.html)
-- Apr 13 - [British Politician Under Investigation By His Own Party After Recording Surfaces of Him Reportedly Saying ‘All White Men Should Have a Black Slave’](https://news.yahoo.com/british-politician-under-investigation-own-134835438.html)
 <!-- feed end -->
