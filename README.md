@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 13 - [Snowmelt leads to heavy flooding from Southwest to Rockies](https://news.yahoo.com/snowmelt-leads-heavy-flooding-southwest-210832329.html)
 - Apr 13 - [The Supreme Court just ruled that $6 billion in student-loan forgiveness for 200,000 borrowers can move forward](https://news.yahoo.com/supreme-court-just-ruled-6-205702059.html)
+- Apr 13 - [‘It Was Elegant Up Until I Seen…’: Saweetie’s Latest Revealing Dress Has Fans Zooming In on Her Assets](https://news.yahoo.com/elegant-until-seen-saweetie-latest-205633810.html)
+- Apr 13 - [Who is Nima Momeni? Suspect in Bob Lee stabbing in San Francisco](https://news.yahoo.com/nima-momeni-suspect-bob-lee-201251573.html)
 - Apr 13 - [Budweiser Clydesdale Events Canceled as Bud Light Boycott Grows](https://news.yahoo.com/budweiser-clydesdale-events-cancelled-bud-194054529.html)
-- Apr 13 - [‘Someone Has Decided Jeffries Has to Go’: Minority Leader Hakeem Jeffries Faces Backlash for Resurfaced 1992 Op-Ed Backing Uncle Who Said Rich Jews Contributed to Slavery, Plotted Against Black Actors](https://news.yahoo.com/someone-decided-jeffries-minority-leader-193930879.html)
-- Apr 13 - [‘The First Slide Ate the Girls Up Alone’: Lori Harvey’s Photo Dump with Damson Idris Has Fans Mesmerized By Her Snatched Figure](https://news.yahoo.com/first-slide-ate-girls-alone-191841459.html)
 <!-- feed end -->
