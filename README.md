@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 13 - [Jimmy Kimmel Comes Right Out And Says It About Trump](https://news.yahoo.com/jimmy-kimmel-comes-says-trump-072700698.html)
+- Apr 13 - [Travis Barker jumped off the roof of a yacht into the ocean to ease his nerves an hour before his wedding to Kourtney Kardashian](https://news.yahoo.com/travis-barker-jumped-off-roof-071500152.html)
 - Apr 13 - [Vladimir Putin may at last be glimpsing victory](https://news.yahoo.com/vladimir-putin-may-last-glimpsing-060000039.html)
 - Apr 13 - [The man who may have leaked top-secret Pentagon documents was a fit and armed military guy who controlled a group of young gamers united by their worship of guns and God: WaPo](https://news.yahoo.com/man-may-leaked-top-secret-052256508.html)
 - Apr 13 - [Tucker Carlson Might Have Just Delivered His Most Racist Fox News Rant Yet](https://news.yahoo.com/tucker-carlson-might-just-delivered-040531292.html)
-- Apr 13 - ['Such An Idiot': Nicolle Wallace Bursts Out Laughing Over Trump Comment On Fox News](https://news.yahoo.com/idiot-nicolle-wallace-bursts-laughing-014655057.html)
-- Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
 <!-- feed end -->
