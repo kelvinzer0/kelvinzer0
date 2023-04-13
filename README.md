@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 13 - [Here's Why Pedro Pascal Changed His Stage Name When He Was 24](https://news.yahoo.com/heres-why-pedro-pascal-changed-024620950.html)
-- Apr 13 - [Budweiser Clydesdale Events Cancelled as Bud Light Boycott Grows](https://news.yahoo.com/budweiser-clydesdale-events-cancelled-bud-194054529.html)
+- Apr 13 - [Budweiser Clydesdale Events Canceled as Bud Light Boycott Grows](https://news.yahoo.com/budweiser-clydesdale-events-cancelled-bud-194054529.html)
+- Apr 13 - [‘Someone Has Decided Jeffries Has to Go’: Minority Leader Hakeem Jeffries Faces Backlash for Resurfaced 1992 Op-Ed Backing Uncle Who Said Rich Jews Contributed to Slavery, Plotted Against Black Actors](https://news.yahoo.com/someone-decided-jeffries-minority-leader-193930879.html)
 - Apr 13 - [‘The First Slide Ate the Girls Up Alone’: Lori Harvey’s Photo Dump with Damson Idris Has Fans Mesmerized By Her Snatched Figure](https://news.yahoo.com/first-slide-ate-girls-alone-191841459.html)
 - Apr 13 - [Former 'SNL' star Victoria Jackson adds her rant to anti-LGBTQ sentiment in Tennessee](https://news.yahoo.com/former-snl-star-victoria-jackson-190143954.html)
 - Apr 13 - [Billionaire Harlan Crow Bought Property From Clarence Thomas. The Justice Didn’t Disclose the Deal.](https://news.yahoo.com/billionaire-harlan-crow-bought-property-185616251.html)
