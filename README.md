@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 12 - [The US Navy's Super Hornets are having trouble keeping up with the rest of the military's fighter jets](https://news.yahoo.com/us-navys-super-hornets-having-220900532.html)
+- Apr 12 - [Powerful Atlantic storm whips up colossal waves along coast of United Kingdom](https://news.yahoo.com/powerful-atlantic-storm-whips-colossal-225805213.html)
 - Apr 12 - [Dad says university failed to treat NFL veteran who shot 6](https://news.yahoo.com/dad-says-university-failed-treat-211103336.html)
 - Apr 12 - [Elon Musk's 2-Word Response To NPR Leaving Twitter Is ... Really Something](https://news.yahoo.com/elon-musks-2-word-response-210945285.html)
 - Apr 12 - [A woman who grows and donates food to those in need said someone dumped salt on her garden, destroying her harvest. TikTokers rushed to offer money and support.](https://news.yahoo.com/woman-grows-donates-food-those-205627472.html)
