@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 13 - [Truck carrying $750,000 in dimes robbed in Walmart parking lot, Pennsylvania cops say](https://news.yahoo.com/truck-carrying-750-000-dimes-181942041.html)
-- Apr 13 - [18,000 cows killed in explosion, fire at Texas dairy farm may be largest cattle killing ever](https://news.yahoo.com/18-000-cows-killed-explosion-013001077.html)
-- Apr 13 - [Pentagon leaks: US air national guardsman, 21, identified as suspect](https://news.yahoo.com/pentagon-leak-suspect-close-being-155104562.html)
-- Apr 13 - [Michigan man searches for answers after dolls take over his mailbox: 'We've decided to live here'](https://news.yahoo.com/michigan-man-searches-answers-dolls-165820874.html)
-- Apr 13 - [Denver area school closes after 3 teachers die - one from suspected bacterial meningitis](https://news.yahoo.com/denver-area-school-closes-3-161814801.html)
+- Apr 13 - [Here's Why Pedro Pascal Changed His Stage Name When He Was 24](https://news.yahoo.com/heres-why-pedro-pascal-changed-024620950.html)
+- Apr 13 - [Budweiser Clydesdale Events Cancelled as Bud Light Boycott Grows](https://news.yahoo.com/budweiser-clydesdale-events-cancelled-bud-194054529.html)
+- Apr 13 - [‘The First Slide Ate the Girls Up Alone’: Lori Harvey’s Photo Dump with Damson Idris Has Fans Mesmerized By Her Snatched Figure](https://news.yahoo.com/first-slide-ate-girls-alone-191841459.html)
+- Apr 13 - [Former 'SNL' star Victoria Jackson adds her rant to anti-LGBTQ sentiment in Tennessee](https://news.yahoo.com/former-snl-star-victoria-jackson-190143954.html)
+- Apr 13 - [Billionaire Harlan Crow Bought Property From Clarence Thomas. The Justice Didn’t Disclose the Deal.](https://news.yahoo.com/billionaire-harlan-crow-bought-property-185616251.html)
 <!-- feed end -->
