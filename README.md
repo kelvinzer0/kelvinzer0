@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 14 - ['After his appearance at the Coronation, there will be no need for Prince Harry to return to the UK'](https://news.yahoo.com/appearance-coronation-no-prince-harry-060000784.html)
+- Apr 14 - [South Korea is paying young people who refuse to leave the house $500 a month to attend school, go to work, and 'restore their daily lives'](https://news.yahoo.com/south-korea-paying-young-people-053948040.html)
 - Apr 14 - ['Quiet luxury': No flash, no logos, but big-time style](https://news.yahoo.com/quiet-luxury-no-flash-no-040328041.html)
 - Apr 14 - [‘It’s all gone.’ Families destroyed after losing homes as a Broward neighborhood submerges](https://news.yahoo.com/gone-families-destroyed-losing-homes-033636098.html)
 - Apr 14 - [‘You hung us out to dry’: Leaked audio shows hot tempers inside GOP caucus after expulsion vote](https://news.yahoo.com/hung-us-dry-leaked-audio-014513713.html)
-- Apr 14 - [Pentagon leak suspect Jack Teixeira was reading a book on a porch when the feds showed up to arrest him](https://news.yahoo.com/pentagon-leak-suspect-jack-teixeira-011624521.html)
 <!-- feed end -->
