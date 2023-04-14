@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 14 - ['Quiet luxury': No flash, no logos, but big-time style](https://news.yahoo.com/quiet-luxury-no-flash-no-040328041.html)
+- Apr 14 - [‘It’s all gone.’ Families destroyed after losing homes as a Broward neighborhood submerges](https://news.yahoo.com/gone-families-destroyed-losing-homes-033636098.html)
 - Apr 14 - [‘You hung us out to dry’: Leaked audio shows hot tempers inside GOP caucus after expulsion vote](https://news.yahoo.com/hung-us-dry-leaked-audio-014513713.html)
 - Apr 14 - [Pentagon leak suspect Jack Teixeira was reading a book on a porch when the feds showed up to arrest him](https://news.yahoo.com/pentagon-leak-suspect-jack-teixeira-011624521.html)
 - Apr 14 - [Catholic leader accuses Ron DeSantis — who has positioned himself as a defender of the Christian faith — and Florida Republicans of seeking to criminalize 'empathy' with new anti-immigrant crackdown](https://news.yahoo.com/catholic-leader-accuses-ron-desantis-005244220.html)
-- Apr 13 - [‘No Place In a Classroom with Our Students’: Substitute Teacher Fired After Students Report Pic Of Him Teaching with the N-word Written on Whiteboard](https://news.yahoo.com/no-place-classroom-students-substitute-230000339.html)
 <!-- feed end -->
