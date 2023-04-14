@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 14 - [Bob Iger says that if Ron DeSantis wants to end his feud with Disney, they could just sit down and 'discuss all of this'](https://news.yahoo.com/bob-iger-says-ron-desantis-083135263.html)
 - Apr 14 - [Viktor Bout, the 'Merchant of Death' arms dealer exchanged for Brittney Griner, says he fears for Trump's life and urged him to flee to Russia](https://news.yahoo.com/viktor-bout-merchant-death-arms-072633526.html)
 - Apr 14 - ['After his appearance at the Coronation, there will be no need for Prince Harry to return to the UK'](https://news.yahoo.com/appearance-coronation-no-prince-harry-060000784.html)
 - Apr 14 - ['Quiet luxury': No flash, no logos, but big-time style](https://news.yahoo.com/quiet-luxury-no-flash-no-040328041.html)
 - Apr 14 - [‘It’s all gone.’ How families are coping in a Broward community that went underwater](https://news.yahoo.com/gone-families-destroyed-losing-homes-033636098.html)
-- Apr 14 - [‘You hung us out to dry’: Leaked audio shows hot tempers inside GOP caucus after expulsion vote](https://news.yahoo.com/hung-us-dry-leaked-audio-014513713.html)
 <!-- feed end -->
