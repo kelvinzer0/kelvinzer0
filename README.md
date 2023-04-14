@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 14 - [Everyone Is Obsessed With Netflix's "Beef" Starring Steven Yeun And Ali Wong, And Here's Why](https://news.yahoo.com/everyone-obsessed-netflixs-beef-starring-220516655.html)
-- Apr 14 - [Here's What Kim Kardashian Learned From Her Wedding To Kanye West That She Told Kourtney Before She Walked Down The Aisle](https://news.yahoo.com/heres-kim-kardashian-learned-her-015533250.html)
+- Apr 14 - ["Could You Tell Him To Keep His ****ing Leg In His Own ****ing Seat?" — This Man Got Absolutely Eviscerated For Manspreading On A Cramped Flight, And Women Everywhere Feel Vindicated](https://news.yahoo.com/could-tell-him-keep-ing-023606567.html)
+- Apr 14 - [Montana GOP seeks to bar 3rd parties from key US Senate race](https://news.yahoo.com/montana-gop-seeks-bar-3rd-184945231.html)
 - Apr 14 - [Cash App founder, murder suspect were out with friends, clashed before killing, source says](https://news.yahoo.com/cash-app-founder-murder-suspect-180955188.html)
+- Apr 14 - [Colorado governor to sign abortion, transgender care bills](https://news.yahoo.com/colorado-governor-sign-abortion-transgender-172934187.html)
 - Apr 14 - [Capitol rioter who crushed officer with shield gets 7 years](https://news.yahoo.com/capitol-rioter-crushed-officer-shield-172055394.html)
-- Apr 14 - [‘You hung us out to dry’: Leaked audio shows hot tempers inside GOP caucus after expulsion vote](https://news.yahoo.com/hung-us-dry-leaked-audio-014513713.html)
 <!-- feed end -->
