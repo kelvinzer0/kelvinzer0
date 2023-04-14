@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 14 - [‘You hung us out to dry’: Leaked audio shows hot tempers inside GOP caucus after expulsion vote](https://news.yahoo.com/hung-us-dry-leaked-audio-014513713.html)
+- Apr 14 - [Mavericks fined $750,000 by NBA for sitting players](https://news.yahoo.com/mavericks-fined-750-000-nba-170533625.html)
 - Apr 14 - [A man threw stacks of $100 bills from his car window in a wild show of generosity. His family says he drained their bank accounts, leaving them broke.](https://news.yahoo.com/man-threw-stacks-100-bills-103715649.html)
-- Apr 14 - [Prince Harry looks like a man desperate for an escape route – we should give him one](https://news.yahoo.com/prince-harry-looks-man-desperate-161108034.html)
-- Apr 14 - [Who is Jack Teixeira, the Massachusetts Air National Guard member charged in Pentagon leak case?](https://news.yahoo.com/who-is-jack-teixeira-the-massachusetts-air-national-guard-member-charged-in-pentagon-leak-case-200012856.html)
-- Apr 14 - [Lawyer for Nurse Charged After Father Caught Her Slamming His Newborn Face First Into NICU Crib Says She Shouldn’t be In Trouble Because the Baby Was ‘Not Injured’](https://news.yahoo.com/lawyer-nurse-charged-father-caught-151129225.html)
-- Apr 14 - [Bear kills jogger; same animal reportedly attacked 2 others in 2020](https://news.yahoo.com/bear-kills-jogger-same-animal-141304706.html)
+- Apr 14 - [A woman who gained 170 pounds after weight loss surgery lost much of it on Ozempic — and no longer lives to eat](https://news.yahoo.com/woman-gained-170-pounds-weight-161927143.html)
+- Apr 14 - [Cuba expects to resume US deportation flights this month](https://news.yahoo.com/cuba-expects-resume-us-deportation-161516165.html)
 <!-- feed end -->
