@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 14 - [Everyone Is Obsessed With Netflix's "Beef" Starring Steven Yeun And Ali Wong, And Here's Why](https://news.yahoo.com/everyone-obsessed-netflixs-beef-starring-220516655.html)
+- Apr 14 - [Here's What Kim Kardashian Learned From Her Wedding To Kanye West That She Told Kourtney Before She Walked Down The Aisle](https://news.yahoo.com/heres-kim-kardashian-learned-her-015533250.html)
+- Apr 14 - [Cash App founder, murder suspect were out with friends, clashed before killing, source says](https://news.yahoo.com/cash-app-founder-murder-suspect-180955188.html)
+- Apr 14 - [Capitol rioter who crushed officer with shield gets 7 years](https://news.yahoo.com/capitol-rioter-crushed-officer-shield-172055394.html)
 - Apr 14 - [‘You hung us out to dry’: Leaked audio shows hot tempers inside GOP caucus after expulsion vote](https://news.yahoo.com/hung-us-dry-leaked-audio-014513713.html)
-- Apr 14 - [Mavericks fined $750,000 by NBA for sitting players](https://news.yahoo.com/mavericks-fined-750-000-nba-170533625.html)
-- Apr 14 - [A man threw stacks of $100 bills from his car window in a wild show of generosity. His family says he drained their bank accounts, leaving them broke.](https://news.yahoo.com/man-threw-stacks-100-bills-103715649.html)
-- Apr 14 - [A woman who gained 170 pounds after weight loss surgery lost much of it on Ozempic — and no longer lives to eat](https://news.yahoo.com/woman-gained-170-pounds-weight-161927143.html)
-- Apr 14 - [Cuba expects to resume US deportation flights this month](https://news.yahoo.com/cuba-expects-resume-us-deportation-161516165.html)
 <!-- feed end -->
