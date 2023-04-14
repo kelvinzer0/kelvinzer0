@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 14 - [Joe Biden breaks down during chance meeting](https://news.yahoo.com/joe-biden-breaks-down-meets-165936026.html)
+- Apr 14 - [Cash App Founder Stabbed After Dispute Over Suspect’s Sister, Court Docs Say](https://news.yahoo.com/cash-app-founder-stabbed-dispute-203146748.html)
 - Apr 14 - [George Santos Called Biden A Liar, And Guess How Twitter Users Responded](https://news.yahoo.com/george-santos-called-biden-liar-195833013.html)
 - Apr 14 - ["Could You Tell Him To Keep His ****ing Leg In His Own ****ing Seat?" — This Man Got Absolutely Eviscerated For Manspreading On A Cramped Flight, And Women Everywhere Feel Vindicated](https://news.yahoo.com/could-tell-him-keep-ing-023606567.html)
-- Apr 14 - [Montana GOP seeks to bar 3rd parties from key US Senate race](https://news.yahoo.com/montana-gop-seeks-bar-3rd-184945231.html)
-- Apr 14 - [Elusive creature last spotted in Oregon mountains in 1969 seen scurrying across highway](https://news.yahoo.com/elusive-creature-last-spotted-oregon-183717217.html)
+- Apr 14 - [Wagner Group Leader calls on Putin to declare end of war](https://news.yahoo.com/wagner-group-leader-calls-putin-190000516.html)
 <!-- feed end -->
