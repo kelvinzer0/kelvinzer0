@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 14 - [This Couple Is $1,000,000 In Debt. They Called Into A Finance Show For Help And People Are Floored](https://news.yahoo.com/couple-1-000-000-debt-020016449.html)
+- Apr 14 - [Who is Jack Teixeira, the Massachusetts Air National Guard member charged in Pentagon leak case?](https://news.yahoo.com/who-is-jack-teixeira-the-massachusetts-air-national-guard-member-charged-in-pentagon-leak-case-200012856.html)
+- Apr 14 - [Bear kills jogger; same animal reportedly attacked 2 others in 2020](https://news.yahoo.com/bear-kills-jogger-same-animal-141304706.html)
 - Apr 14 - [Top Tibetan leader says Dalai Lama's 'suck my tongue' comment to a boy was 'innocent' because the holy leader is 'beyond sensorial pleasures'](https://news.yahoo.com/top-tibetan-leader-says-dalai-140846479.html)
-- Apr 14 - [Russian tank captured by Ukrainian forces turns up at Louisiana truck stop](https://news.yahoo.com/russian-tank-captured-ukrainian-forces-133652038.html)
-- Apr 14 - [‘There Is No Excuse’: Furious Parents Say Principal ‘Stomped’ on 9-Year-Old Autistic Boy’s Leg, Left It Broken; They Want Him Fired](https://news.yahoo.com/no-excuse-furious-parents-principal-125749746.html)
-- Apr 14 - [‘You hung us out to dry’: Leaked audio shows hot tempers inside GOP caucus after expulsion vote](https://news.yahoo.com/hung-us-dry-leaked-audio-014513713.html)
-- Apr 14 - [A man threw stacks of $100 bills from his car window in a wild show of generosity. His family says he drained their bank accounts, leaving them broke.](https://news.yahoo.com/man-threw-stacks-100-bills-103715649.html)
+- Apr 14 - [Details emerge about Nima Momeni, suspect in tech executive's murder](https://news.yahoo.com/details-emerge-nima-momeni-suspect-135548080.html)
 <!-- feed end -->
