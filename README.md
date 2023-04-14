@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 14 - [China will not export weapons in Ukraine conflict](https://news.yahoo.com/china-not-export-weapons-ukraine-102752966.html)
-- Apr 14 - [I'm work at a car dealership and sell 20 cars a month. Here's what buyers need to know to get the best deal.](https://news.yahoo.com/im-car-dealership-sell-20-090000111.html)
+- Apr 14 - [‘You hung us out to dry’: Leaked audio shows hot tempers inside GOP caucus after expulsion vote](https://news.yahoo.com/hung-us-dry-leaked-audio-014513713.html)
+- Apr 14 - [A man threw stacks of $100 bills from his car window in a wild show of generosity. His family says he drained their bank accounts, leaving them broke.](https://news.yahoo.com/man-threw-stacks-100-bills-103715649.html)
+- Apr 14 - [I work at a car dealership and sell 20 cars a month. Here's what buyers need to know to get the best deal.](https://news.yahoo.com/im-car-dealership-sell-20-090000111.html)
 - Apr 14 - [Bob Iger says that if Ron DeSantis wants to end his feud with Disney, they could just sit down and 'discuss all of this'](https://news.yahoo.com/bob-iger-says-ron-desantis-083135263.html)
 - Apr 14 - [Viktor Bout, the 'Merchant of Death' arms dealer exchanged for Brittney Griner, says he fears for Trump's life and urged him to flee to Russia](https://news.yahoo.com/viktor-bout-merchant-death-arms-072633526.html)
-- Apr 14 - ['Quiet luxury': No flash, no logos, but big-time style](https://news.yahoo.com/quiet-luxury-no-flash-no-040328041.html)
 <!-- feed end -->
