@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 14 - [‘You hung us out to dry’: Leaked audio shows hot tempers inside GOP caucus after expulsion vote](https://news.yahoo.com/hung-us-dry-leaked-audio-014513713.html)
+- Apr 14 - [16 Times Celebs Tried To Be Funny, Relatable, Or Wise, But Actually Came Across As Extremely Out-Of-Touch](https://news.yahoo.com/16-times-celebs-tried-funny-011255063.html)
+- Apr 14 - [Trump could admit to having an affair — if only so he can use Melania as a defense if his case ever makes it to trial, legal experts say](https://news.yahoo.com/trump-could-admit-having-affair-011138901.html)
+- Apr 14 - [Catholic leader accuses Ron DeSantis — who has positioned himself as a defender of the Christian faith — and Florida Republicans of seeking to criminalize 'empathy' with new anti-immigrant crackdown](https://news.yahoo.com/catholic-leader-accuses-ron-desantis-005244220.html)
 - Apr 13 - [Swalwell on Greene over leak remark: ‘This wouldn’t be the first time she sided with traitors’](https://news.yahoo.com/swalwell-greene-over-leak-remark-234738200.html)
-- Apr 13 - [Snowmelt leads to heavy flooding from Southwest to Rockies](https://news.yahoo.com/snowmelt-leads-heavy-flooding-southwest-210832329.html)
-- Apr 13 - [The Supreme Court just ruled that $6 billion in student-loan forgiveness for 200,000 borrowers can move forward](https://news.yahoo.com/supreme-court-just-ruled-6-205702059.html)
-- Apr 13 - [‘It Was Elegant Up Until I Seen…’: Saweetie’s Latest Revealing Dress Has Fans Zooming In on Her Assets](https://news.yahoo.com/elegant-until-seen-saweetie-latest-205633810.html)
-- Apr 13 - [Who is Nima Momeni? Suspect in Bob Lee stabbing in San Francisco](https://news.yahoo.com/nima-momeni-suspect-bob-lee-201251573.html)
 <!-- feed end -->
