@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 14 - [America's first heroes: Revolutionary War soldiers reburied](https://news.yahoo.com/americas-first-heroes-revolutionary-war-134719599.html)
+- Apr 14 - [Top Tibetan leader says Dalai Lama's 'suck my tongue' comment to a boy was 'innocent' because the holy leader is 'beyond sensorial pleasures'](https://news.yahoo.com/top-tibetan-leader-says-dalai-140846479.html)
 - Apr 14 - [Russian tank captured by Ukrainian forces turns up at Louisiana truck stop](https://news.yahoo.com/russian-tank-captured-ukrainian-forces-133652038.html)
+- Apr 14 - [‘There Is No Excuse’: Furious Parents Say Principal ‘Stomped’ on 9-Year-Old Autistic Boy’s Leg, Left It Broken; They Want Him Fired](https://news.yahoo.com/no-excuse-furious-parents-principal-125749746.html)
 - Apr 14 - [‘You hung us out to dry’: Leaked audio shows hot tempers inside GOP caucus after expulsion vote](https://news.yahoo.com/hung-us-dry-leaked-audio-014513713.html)
-- Apr 14 - [A paper mill in Alabama told authorities a worker died from a heart attack. He actually died after being electrocuted by machinery, the labor department says.](https://news.yahoo.com/paper-mill-alabama-told-authorities-113152446.html)
 - Apr 14 - [A man threw stacks of $100 bills from his car window in a wild show of generosity. His family says he drained their bank accounts, leaving them broke.](https://news.yahoo.com/man-threw-stacks-100-bills-103715649.html)
 <!-- feed end -->
