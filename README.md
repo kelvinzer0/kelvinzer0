@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 15 - [Inside Ukraine's innovative weapons industry](https://news.yahoo.com/inside-ukraines-innovative-weapons-industry-123323239.html)
-- Apr 15 - [A woman who lost 62 pounds on Ozempic says the cravings and 'food noise' in her head disappeared](https://news.yahoo.com/woman-lost-62-pounds-ozempic-090000129.html)
+- Apr 15 - [Sorry everyone, but Clarence Thomas can take undisclosed money from whomever he wants and there is little to be done about it](https://news.yahoo.com/sorry-everyone-clarence-thomas-undisclosed-123000789.html)
+- Apr 15 - [An Air Canada passenger says he was left furious after being served in business class by a flight attendant who didn't speak French](https://news.yahoo.com/air-canada-passenger-says-left-111500142.html)
 - Apr 15 - [Chinese basketball investigates suspicious game result](https://news.yahoo.com/chinese-basketball-investigates-suspicious-game-060843992.html)
 - Apr 15 - [Protesters stormed the stage and yelled 'Jews against DeSantis' while the Florida governor spoke at a GOP fundraising event](https://news.yahoo.com/protesters-stormed-stage-yelled-jews-055258998.html)
 - Apr 15 - [Trump Puts Refrigerator Theft On Blast In Bizarre NRA Forum Remarks](https://news.yahoo.com/trump-puts-refrigerator-theft-blast-041958928.html)
