@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 15 - [Trump Puts Refrigerator Theft On Blast In Bizarre NRA Forum Remarks](https://news.yahoo.com/trump-puts-refrigerator-theft-blast-041958928.html)
 - Apr 15 - ["She Doesn't Care Who Has To Die, So She Can Go To The Gym Unrestricted": People Are Sharing The Breaking Point For Their Most Infuriating Friendships](https://news.yahoo.com/people-sharing-reached-breaking-point-015915288.html)
 - Apr 15 - [20-pound rodents with big orange teeth, rat-like tails, and no necks are wreaking havoc in the US and landing on 'most unwanted' lists](https://news.yahoo.com/20-pound-rodents-big-orange-013557461.html)
 - Apr 15 - [DeSantis 'is not a good guy,' says former Guantánamo detainee](https://news.yahoo.com/desantis-is-not-a-good-guy-says-former-guantanamo-detainee-005257317.html)
 - Apr 15 - [42-year-old former news anchor dies suddenly while on vacation with her family](https://news.yahoo.com/42-old-former-news-anchor-003720135.html)
-- Apr 14 - [Former NBA star Shawn Kemp charged in parking lot shooting](https://news.yahoo.com/former-nba-star-shawn-kemp-231201399.html)
 <!-- feed end -->
