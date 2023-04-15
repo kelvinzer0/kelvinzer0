@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 15 - [California man wore armor in hostage killing, report says](https://news.yahoo.com/california-man-wore-armor-hostage-204513625.html)
 - Apr 15 - [Archeologists in Italy unearth ancient dolphin statuette](https://news.yahoo.com/archeologists-italy-unearth-ancient-dolphin-192136778.html)
 - Apr 15 - [Trump lawyer recuses himself from classified documents case: report](https://news.yahoo.com/trump-lawyer-recuses-himself-classified-184539988.html)
 - Apr 15 - [Baldelli ejected, German stays in game after ump check](https://news.yahoo.com/baldelli-ejected-german-stays-game-181526162.html)
 - Apr 15 - [‘Now I’m Crying’: Celebs and Jamie Foxx Fans Share Emotional Memories with Singer as He Continues to Recover from Medical Scare](https://news.yahoo.com/now-m-crying-celebs-fans-173000155.html)
-- Apr 15 - [Haaland ties record for most goals in 38-game EPL season](https://news.yahoo.com/haaland-ties-record-most-goals-171222412.html)
 <!-- feed end -->
