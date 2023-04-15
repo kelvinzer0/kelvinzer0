@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 15 - [I spent years attending Coachella before I figured out that the nearby parties are better — and cheaper — than the festival itself](https://news.yahoo.com/spent-years-attending-coachella-figured-154500637.html)
+- Apr 15 - [‘I’ll Bury That N—-r In My Fields’: Police Probe Exposes ‘Very Disturbing’ Texts Sent In Personal Chat Among Dozens of Officers In Bay Area; City’s Black Mayor Not Exempt from Threats](https://news.yahoo.com/ll-bury-n-r-fields-153731785.html)
 - Apr 15 - [Biden strolled on stage to Irish punk band Dropkick Murphys as he greeted fans in Ireland. The band's frontman famously called Trump "the greatest swindler" in history.](https://news.yahoo.com/biden-strolled-stage-irish-punk-145238372.html)
 - Apr 15 - [‘Denzel Don’t Remember Nobody’: Denzel Washington Reveals He Once Encouraged a Young Toronto Kid, Years Later He Learned It Was Drake](https://news.yahoo.com/denzel-don-t-remember-nobody-140000152.html)
 - Apr 15 - [A former teacher at Kanye West's private school claims that when she complained about kids left hungry from sushi-only lunch, she was told 'this is what Ye wants'](https://news.yahoo.com/former-teacher-kanye-wests-private-133000092.html)
-- Apr 15 - [Sorry everyone, but Clarence Thomas can take undisclosed money from whomever he wants and there is little to be done about it](https://news.yahoo.com/sorry-everyone-clarence-thomas-undisclosed-123000789.html)
-- Apr 15 - [An Air Canada passenger says he was left furious after being served in business class by a flight attendant who didn't speak French](https://news.yahoo.com/air-canada-passenger-says-left-111500142.html)
 <!-- feed end -->
