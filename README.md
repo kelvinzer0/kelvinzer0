@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 15 - [DeSantis 'is not a good guy,' says former Guantánamo detainee](https://news.yahoo.com/desantis-is-not-a-good-guy-says-former-guantanamo-detainee-005257317.html)
 - Apr 14 - [Former NBA star Shawn Kemp charged in parking lot shooting](https://news.yahoo.com/former-nba-star-shawn-kemp-231201399.html)
 - Apr 14 - [Gov. vetoes Kansas bill on live deliveries during abortion](https://news.yahoo.com/gov-vetoes-kansas-bill-live-224738921.html)
 - Apr 14 - [Man 'eaten alive' by bed bugs in Atlanta jail - family](https://news.yahoo.com/man-eaten-alive-bed-bugs-222505919.html)
 - Apr 14 - [Aaron Judge, union win dispute over 'All Rise' trademark](https://news.yahoo.com/aaron-judge-union-win-dispute-215949887.html)
+- Apr 14 - [Joe Biden breaks down during chance meeting](https://news.yahoo.com/joe-biden-breaks-down-meets-165936026.html)
 <!-- feed end -->
