@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 15 - [‘Denzel Don’t Remember Nobody’: Denzel Washington Reveals He Once Encouraged a Young Toronto Kid, Years Later He Learned It Was Drake](https://news.yahoo.com/denzel-don-t-remember-nobody-140000152.html)
+- Apr 15 - [A former teacher at Kanye West's private school claims that when she complained about kids left hungry from sushi-only lunch, she was told 'this is what Ye wants'](https://news.yahoo.com/former-teacher-kanye-wests-private-133000092.html)
 - Apr 15 - [Sorry everyone, but Clarence Thomas can take undisclosed money from whomever he wants and there is little to be done about it](https://news.yahoo.com/sorry-everyone-clarence-thomas-undisclosed-123000789.html)
 - Apr 15 - [An Air Canada passenger says he was left furious after being served in business class by a flight attendant who didn't speak French](https://news.yahoo.com/air-canada-passenger-says-left-111500142.html)
 - Apr 15 - [Chinese basketball investigates suspicious game result](https://news.yahoo.com/chinese-basketball-investigates-suspicious-game-060843992.html)
-- Apr 15 - [Protesters stormed the stage and yelled 'Jews against DeSantis' while the Florida governor spoke at a GOP fundraising event](https://news.yahoo.com/protesters-stormed-stage-yelled-jews-055258998.html)
-- Apr 15 - [Trump Puts Refrigerator Theft On Blast In Bizarre NRA Forum Remarks](https://news.yahoo.com/trump-puts-refrigerator-theft-blast-041958928.html)
 <!-- feed end -->
