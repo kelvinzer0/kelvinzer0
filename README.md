@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 14 - [Joe Biden breaks down during chance meeting](https://news.yahoo.com/joe-biden-breaks-down-meets-165936026.html)
-- Apr 14 - [Cash App Founder Stabbed After Dispute Over Suspect’s Sister, Court Docs Say](https://news.yahoo.com/cash-app-founder-stabbed-dispute-203146748.html)
-- Apr 14 - [George Santos Called Biden A Liar, And Guess How Twitter Users Responded](https://news.yahoo.com/george-santos-called-biden-liar-195833013.html)
-- Apr 14 - ["Could You Tell Him To Keep His ****ing Leg In His Own ****ing Seat?" — This Man Got Absolutely Eviscerated For Manspreading On A Cramped Flight, And Women Everywhere Feel Vindicated](https://news.yahoo.com/could-tell-him-keep-ing-023606567.html)
-- Apr 14 - [Wagner Group Leader calls on Putin to declare end of war](https://news.yahoo.com/wagner-group-leader-calls-putin-190000516.html)
+- Apr 15 - [DeSantis 'is not a good guy,' says former Guantánamo detainee](https://news.yahoo.com/desantis-is-not-a-good-guy-says-former-guantanamo-detainee-005257317.html)
+- Apr 14 - [Former NBA star Shawn Kemp charged in parking lot shooting](https://news.yahoo.com/former-nba-star-shawn-kemp-231201399.html)
+- Apr 14 - [Gov. vetoes Kansas bill on live deliveries during abortion](https://news.yahoo.com/gov-vetoes-kansas-bill-live-224738921.html)
+- Apr 14 - [Man 'eaten alive' by bed bugs in Atlanta jail - family](https://news.yahoo.com/man-eaten-alive-bed-bugs-222505919.html)
+- Apr 14 - [Aaron Judge, union win dispute over 'All Rise' trademark](https://news.yahoo.com/aaron-judge-union-win-dispute-215949887.html)
 <!-- feed end -->
