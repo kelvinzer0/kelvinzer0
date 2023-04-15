@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Apr 15 - [Archeologists in Italy unearth ancient dolphin statuette](https://news.yahoo.com/archeologists-italy-unearth-ancient-dolphin-192136778.html)
 - Apr 15 - [Trump lawyer recuses himself from classified documents case: report](https://news.yahoo.com/trump-lawyer-recuses-himself-classified-184539988.html)
 - Apr 15 - [Baldelli ejected, German stays in game after ump check](https://news.yahoo.com/baldelli-ejected-german-stays-game-181526162.html)
-- Apr 15 - [A Christian group has amassed more than 12,000 signatures to oust the Tennessee Republican leader who expelled two Black lawmakers](https://news.yahoo.com/christian-group-amassed-more-12-175554446.html)
-- Apr 15 - [‘Now I’m Crying’: Celebs and Fans Are Emotional After Sharing Their Favorite Memories with Jamie Foxx as He Recovers from Medical Scare](https://news.yahoo.com/now-m-crying-celebs-fans-173000155.html)
+- Apr 15 - [‘Now I’m Crying’: Celebs and Jamie Foxx Fans Share Emotional Memories with Singer as He Continues to Recover from Medical Scare](https://news.yahoo.com/now-m-crying-celebs-fans-173000155.html)
+- Apr 15 - [Haaland ties record for most goals in 38-game EPL season](https://news.yahoo.com/haaland-ties-record-most-goals-171222412.html)
 <!-- feed end -->
