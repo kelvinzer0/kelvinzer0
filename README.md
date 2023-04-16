@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 16 - [A man who modeled for the cover of a military romance novel in which a woman lusts for her 'manwhore' Navy SEAL stepbrother was sentenced to 3 years in prison for assaulting a Capitol police officer on Jan. 6](https://news.yahoo.com/man-modeled-cover-military-romance-064440948.html)
 - Apr 16 - [Leaked Pentagon docs show the shot-down Chinese spy balloon may have had a feature known as 'synthetic aperture radar' that can see through certain materials, WaPo reports](https://news.yahoo.com/leaked-pentagon-docs-show-shot-054446313.html)
 - Apr 16 - [S. Korea repels N. Korean patrol boat after sea intrusion](https://news.yahoo.com/korea-repels-n-korean-patrol-034108863.html)
 - Apr 16 - [Gunmen shoot up resort in central Mexico, killing 7 people](https://news.yahoo.com/gunmen-shoot-resort-central-mexico-023142839.html)
 - Apr 16 - [Ferry runs aground near Seattle; no injuries reported](https://news.yahoo.com/ferry-runs-aground-near-seattle-013514590.html)
-- Apr 15 - [Brewers reliever Varland hit on jaw by Machado line drive](https://news.yahoo.com/brewers-reliever-varland-hit-jaw-230828285.html)
 <!-- feed end -->
