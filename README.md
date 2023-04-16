@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 16 - [Ana de Armas says her father was 'hysterical' after Robert De Niro paid him a surprise visit in Cuba](https://news.yahoo.com/ana-armas-says-her-father-151044050.html)
+- Apr 16 - [Guess which PGA Tour golfer spoke at sunrise church service ahead of RBC Heritage Sunday?](https://news.yahoo.com/guess-pga-tour-golfer-spoke-144216128.html)
+- Apr 16 - [Lindsey Graham slams Marjorie Taylor Greene for defending leak of classified documents](https://news.yahoo.com/lindsey-graham-slams-marjorie-taylor-141135585.html)
 - Apr 16 - [I paid $50 for a day pass to a 5-star resort in Hawaii, and I would've gone back if the price hadn't increased](https://news.yahoo.com/paid-50-day-pass-5-140200554.html)
 - Apr 16 - [Fishermen at Japan PM attack acted fast to swarm suspect](https://news.yahoo.com/fishermen-japan-pm-attack-acted-121157985.html)
-- Apr 16 - [Arizona voters made a huge mistake when we legalized recreational marijuana](https://news.yahoo.com/arizona-voters-made-huge-mistake-120049336.html)
-- Apr 16 - [Inmate stuck on US death row despite vacated death sentence](https://news.yahoo.com/inmate-stuck-us-death-row-115638538.html)
-- Apr 16 - [Pope slams 'insinuations' against John Paul II as baseless](https://news.yahoo.com/pope-slams-insinuations-against-john-114833299.html)
 <!-- feed end -->
