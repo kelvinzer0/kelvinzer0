@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 16 - [‘It was never a big deal’, Roman Polanski’s 13-year-old rape victim tells director’s wife](https://news.yahoo.com/never-big-deal-roman-polanski-201617952.html)
+- Apr 16 - [SNL's first non-binary cast member slams Republicans for anti-trans rhetoric and being 'hung up on my genitals' in Weekend Update bit](https://news.yahoo.com/snls-first-non-binary-cast-194120594.html)
 - Apr 16 - [2 dads exchanged gunfire in Florida road rage fight, injuring kids, but only one got charged](https://news.yahoo.com/2-dads-exchanged-gunfire-florida-090510812.html)
-- Apr 16 - [Sen. Lindsey Graham, who once called Saudi Arabia's crown prince 'toxic' and refused to set foot in the country, is now heaping praise on the country after a recent visit](https://news.yahoo.com/sen-lindsey-graham-once-called-184122679.html)
 - Apr 16 - [A Canadian woman has one month to get rid of more than 130,000 vintage chocolate bars — but is struggling to give them away before the expiration date](https://news.yahoo.com/canadian-woman-one-month-rid-183851935.html)
-- Apr 16 - [Amy Klobuchar, who sits on the Senate judiciary committee, says Clarence Thomas' undisclosed lavish gifts from billionaire GOP donor is 'serious' and callsfor stronger ethics rules](https://news.yahoo.com/amy-klobuchar-sits-senate-judiciary-180147614.html)
-- Apr 16 - [‘Teen Takeover’ terrorizes Chicago as hundreds of teenagers destroy property, attack tourists](https://news.yahoo.com/teen-takeover-terrorizes-chicago-hundreds-173107909.html)
+- Apr 16 - [Iran: Jail terms for those behind downing of Ukraine flight](https://news.yahoo.com/iran-jail-terms-those-behind-182409909.html)
 <!-- feed end -->
