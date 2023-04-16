@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 15 - [Brewers reliever Varland hit on jaw by Machado line drive](https://news.yahoo.com/brewers-reliever-varland-hit-jaw-230828285.html)
 - Apr 15 - [California man wore armor in hostage killing, report says](https://news.yahoo.com/california-man-wore-armor-hostage-204513625.html)
 - Apr 15 - [‘Come Throughhhhh’: Ayesha Curry Shows Off Weight Loss In All Red Ensemble for a Date Night with Husband Steph Curry](https://news.yahoo.com/come-throughhhhh-ayesha-curry-stuns-194045173.html)
 - Apr 15 - [Archeologists in Italy unearth ancient dolphin statuette](https://news.yahoo.com/archeologists-italy-unearth-ancient-dolphin-192136778.html)
 - Apr 15 - [Trump lawyer recuses himself from classified documents case: report](https://news.yahoo.com/trump-lawyer-recuses-himself-classified-184539988.html)
-- Apr 15 - [Baldelli ejected, German stays in game after ump check](https://news.yahoo.com/baldelli-ejected-german-stays-game-181526162.html)
 <!-- feed end -->
