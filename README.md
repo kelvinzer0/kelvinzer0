@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 16 - [Inmate stuck on US death row despite vacated death sentence](https://news.yahoo.com/inmate-stuck-us-death-row-115638538.html)
+- Apr 16 - [Pope slams 'insinuations' against John Paul II as baseless](https://news.yahoo.com/pope-slams-insinuations-against-john-114833299.html)
+- Apr 16 - [Trevor Bauer, shunned by MLB, makes Japanese baseball debut](https://news.yahoo.com/trevor-bauer-shunned-mlb-makes-113304375.html)
+- Apr 16 - [A former Air Force pilot who now flies private jets shares what her job is like — it's not as glamorous as people may think](https://news.yahoo.com/former-air-force-pilot-now-100000067.html)
 - Apr 16 - [2 dads exchanged gunfire in Florida road rage fight, injuring kids, but only one got charged](https://news.yahoo.com/2-dads-exchanged-gunfire-florida-090510812.html)
-- Apr 16 - [‘I survived the world’s most infamous plane hijack – years later, the terrorist told me why’](https://news.yahoo.com/survived-world-most-infamous-plane-090000920.html)
-- Apr 16 - [Leaked Pentagon docs show the shot-down Chinese spy balloon may have had a feature known as 'synthetic aperture radar' that can see through certain materials, WaPo reports](https://news.yahoo.com/leaked-pentagon-docs-show-shot-054446313.html)
-- Apr 16 - [S. Korea repels N. Korean patrol boat after sea intrusion](https://news.yahoo.com/korea-repels-n-korean-patrol-034108863.html)
-- Apr 16 - [Gunmen shoot up resort in central Mexico, killing 7 people](https://news.yahoo.com/gunmen-shoot-resort-central-mexico-023142839.html)
 <!-- feed end -->
