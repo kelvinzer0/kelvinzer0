@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 16 - [2 dads exchanged gunfire in Florida road rage fight, injuring kids, but only one got charged](https://news.yahoo.com/2-dads-exchanged-gunfire-florida-090510812.html)
+- Apr 16 - [Dozens break into Compton gas station in chaotic melee after street takeover nearby](https://news.yahoo.com/dozens-break-compton-gas-station-180359829.html)
+- Apr 16 - [Amy Klobuchar, who sits on the Senate judiciary committee, says Clarence Thomas' undisclosed lavish gifts from billionaire GOP donor is 'serious' and callsfor stronger ethics rules](https://news.yahoo.com/amy-klobuchar-sits-senate-judiciary-180147614.html)
 - Apr 16 - [Donald Trump Jr. calls for an end to the conservative-led boycott of Bud Light and 'iconic' Anheuser-Busch over a partnership with trans influencer Dylan Mulvaney](https://news.yahoo.com/donald-trump-jr-calls-end-164638900.html)
 - Apr 16 - [Son ordered 3 failed hits on his mafia-linked father. He eventually had him gunned down as he waited for McDonald's coffee.](https://news.yahoo.com/son-ordered-3-failed-hits-160811984.html)
-- Apr 16 - [‘What nightmares are made of.’ Creepy, toothy thing seen on Texas beach is identified](https://news.yahoo.com/nightmares-made-creepy-toothy-thing-152123879.html)
-- Apr 16 - [Ana de Armas says her father was 'hysterical' after Robert De Niro paid him a surprise visit in Cuba](https://news.yahoo.com/ana-armas-says-her-father-151044050.html)
-- Apr 16 - [Lindsey Graham slams Marjorie Taylor Greene for defending leak of classified documents](https://news.yahoo.com/lindsey-graham-slams-marjorie-taylor-141135585.html)
 <!-- feed end -->
