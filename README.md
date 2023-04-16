@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 16 - [2 dads exchanged gunfire in Florida road rage fight, injuring kids, but only one got charged](https://news.yahoo.com/2-dads-exchanged-gunfire-florida-090510812.html)
+- Apr 16 - [Sen. Lindsey Graham, who once called Saudi Arabia's crown prince 'toxic' and refused to set foot in the country, is now heaping praise on the country after a recent visit](https://news.yahoo.com/sen-lindsey-graham-once-called-184122679.html)
+- Apr 16 - [A Canadian woman has one month to get rid of more than 130,000 vintage chocolate bars — but is struggling to give them away before the expiration date](https://news.yahoo.com/canadian-woman-one-month-rid-183851935.html)
 - Apr 16 - [Dozens break into Compton gas station in chaotic melee after street takeover nearby](https://news.yahoo.com/dozens-break-compton-gas-station-180359829.html)
 - Apr 16 - [Amy Klobuchar, who sits on the Senate judiciary committee, says Clarence Thomas' undisclosed lavish gifts from billionaire GOP donor is 'serious' and callsfor stronger ethics rules](https://news.yahoo.com/amy-klobuchar-sits-senate-judiciary-180147614.html)
-- Apr 16 - [Donald Trump Jr. calls for an end to the conservative-led boycott of Bud Light and 'iconic' Anheuser-Busch over a partnership with trans influencer Dylan Mulvaney](https://news.yahoo.com/donald-trump-jr-calls-end-164638900.html)
-- Apr 16 - [Son ordered 3 failed hits on his mafia-linked father. He eventually had him gunned down as he waited for McDonald's coffee.](https://news.yahoo.com/son-ordered-3-failed-hits-160811984.html)
 <!-- feed end -->
