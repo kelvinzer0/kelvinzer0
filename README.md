@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 16 - [Kelly Clarkson Seemed To Call Out Ex-Husband Brandon Blackstock’s “Secrets” And “Lies” In Her New Music](https://news.yahoo.com/kelly-clarkson-seemed-call-ex-234444036.html)
 - Apr 16 - [S. Korea repels N. Korean patrol boat after sea intrusion](https://news.yahoo.com/korea-repels-n-korean-patrol-034108863.html)
 - Apr 16 - [Gunmen shoot up resort in central Mexico, killing 7 people](https://news.yahoo.com/gunmen-shoot-resort-central-mexico-023142839.html)
+- Apr 16 - [Ferry runs aground near Seattle; no injuries reported](https://news.yahoo.com/ferry-runs-aground-near-seattle-013514590.html)
 - Apr 15 - [Brewers reliever Varland hit on jaw by Machado line drive](https://news.yahoo.com/brewers-reliever-varland-hit-jaw-230828285.html)
-- Apr 15 - [California man wore armor in hostage killing, report says](https://news.yahoo.com/california-man-wore-armor-hostage-204513625.html)
-- Apr 15 - [‘Come Throughhhhh’: Ayesha Curry Shows Off Weight Loss In All Red Ensemble for a Date Night with Husband Steph Curry](https://news.yahoo.com/come-throughhhhh-ayesha-curry-stuns-194045173.html)
 <!-- feed end -->
