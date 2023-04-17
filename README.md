@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 16 - [A fighter plane designed for the US Navy during World War II was still taking down jet fighters over Vietnam 20 years later](https://news.yahoo.com/fighter-plane-designed-us-navy-213700704.html)
-- Apr 16 - [‘It was never a big deal’, Roman Polanski’s 13-year-old rape victim tells director’s wife](https://news.yahoo.com/never-big-deal-roman-polanski-201617952.html)
-- Apr 16 - [SNL's first non-binary cast member slams Republicans for anti-trans rhetoric and being 'hung up on my genitals' in Weekend Update bit](https://news.yahoo.com/snls-first-non-binary-cast-194120594.html)
-- Apr 16 - [Kings probe 'racial bias' claims after rapper E-40 ejected](https://news.yahoo.com/kings-probe-racial-bias-claims-192251516.html)
-- Apr 16 - [2 dads exchanged gunfire in Florida road rage fight, injuring kids, but only one got charged](https://news.yahoo.com/2-dads-exchanged-gunfire-florida-090510812.html)
+- Apr 17 - [Marjorie Taylor Greene fires back at Lindsey Graham by posting Photoshopped pic of senator hoisting a Bud Light with trans influencer’s image](https://news.yahoo.com/marjorie-taylor-greene-fires-back-001220330.html)
+- Apr 16 - [Teacher who said 'good afternoon girls' forced to apologise in gender clash with pupils](https://news.yahoo.com/teacher-said-good-afternoon-girls-233852694.html)
+- Apr 16 - [Heat's Tyler Herro breaks right hand in playoff opener](https://news.yahoo.com/heats-tyler-herro-breaks-hand-231848184.html)
+- Apr 16 - [Justice Clarence Thomas received between $270,000 to $750,000 within the past 17 years from a real estate company that no longer exists, Washington Post reports](https://news.yahoo.com/justice-clarence-thomas-received-between-231410607.html)
+- Apr 16 - [Florida woman who stole $2.8 million from Holocaust survivor in romance scam pleads guilty](https://news.yahoo.com/florida-woman-stole-2-8-223202416.html)
 <!-- feed end -->
