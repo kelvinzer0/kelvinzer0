@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 17 - ["I Never, Ever Want To Buy A House": People Are Sharing Why They Prefer To Rent Vs. Buy, And The Reasons Go Far Beyond Cost](https://news.yahoo.com/never-ever-want-buy-house-200140582.html)
+- Apr 17 - [DA’s Secret Weapon May Be Lawyer Who’s Dogged Trump for Years](https://news.yahoo.com/da-secret-weapon-may-lawyer-083951198.html)
 - Apr 17 - [Pro-Russia propagandist unmasked as New Jersey tropical fish seller](https://news.yahoo.com/pro-russia-propagandist-donbas-devushka-072525718.html)
-- Apr 17 - [Trump’s House GOP allies take fight to Manhattan DA's turf](https://news.yahoo.com/trump-house-gop-allies-fight-053054798.html)
-- Apr 17 - [Fox News pushes Dominion to settle mammoth defamation lawsuit as judge delays trial, multiple sources report](https://news.yahoo.com/fox-news-pushes-dominion-settle-051744496.html)
-- Apr 17 - [Teacher who said 'good afternoon, girls' forced to apologise in gender clash with pupils](https://news.yahoo.com/teacher-said-good-afternoon-girls-233852694.html)
-- Apr 17 - [2 dads exchanged gunfire in Florida road rage fight, injuring kids, but only one got charged](https://news.yahoo.com/2-dads-exchanged-gunfire-florida-090510812.html)
+- Apr 17 - [A bear lumbered into a man's backyard in North Carolina, and a camera caught the exact moment they noticed each other](https://news.yahoo.com/bear-lumbered-mans-backyard-north-071052457.html)
+- Apr 17 - [Ex-Fox Host Gretchen Carlson Has Urgent Plea For Dominion Amid Settlement Rumors](https://news.yahoo.com/ex-fox-host-gretchen-carlson-070000340.html)
 <!-- feed end -->
