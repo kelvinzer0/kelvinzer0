@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 17 - [Ali Wong Vented About Her "Beef" With Getting Asian Food With Non-Asian People On "The Kelly Clarkson Show," And She's Not Wrong](https://news.yahoo.com/ali-wong-vented-her-beef-232104667.html)
+- Apr 17 - [Ex-Cardinal McCarrick charged in Wisconsin with sex abuse](https://news.yahoo.com/ex-cardinal-mccarrick-charged-wisconsin-163523127.html)
+- Apr 17 - [How 'Modern Warfare 2' became the most realistic 'Call of Duty' game](https://news.yahoo.com/modern-warfare-2-became-most-163030319.html)
+- Apr 17 - [GOP megadonor Harlan Crow isn't charging Clarence Thomas' mother rent. Zillow estimates suggest that would have saved her $155,000 since 2014.](https://news.yahoo.com/gop-megadonor-harlan-crow-isnt-160615037.html)
 - Apr 17 - [Judge: If news taints rape-trial jurors, Trump shares blame](https://news.yahoo.com/judge-news-taints-rape-trial-160127312.html)
-- Apr 17 - [Chauvin murder conviction upheld in George Floyd killing](https://news.yahoo.com/chauvin-murder-conviction-upheld-george-151000622.html)
-- Apr 17 - [SpaceX scrubs test flight of Starship, world's biggest rocket](https://news.yahoo.com/spacex-scrubs-test-flight-starship-150803374.html)
-- Apr 17 - [Budweiser releases new ad, statement from CEO after Mulvaney criticism](https://news.yahoo.com/budweiser-releases-ad-statement-ceo-150425934.html)
-- Apr 17 - [Kate Middleton ‘Resents’ Meghan Markle After Squabble Over Queen’s Deathbed](https://news.yahoo.com/kate-middleton-resents-meghan-markle-145951319.html)
 <!-- feed end -->
