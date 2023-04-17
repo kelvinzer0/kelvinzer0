@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 17 - [29 Side-By-Sides Of AI-Generated Images Of Older Celebs Vs. What They Actually Look Like](https://news.yahoo.com/29-side-sides-ai-generated-191155022.html)
 - Apr 17 - [Report: Judge That Ruled Against FDA-Approved Abortion Pill Hid Controversial Article From Senate](https://news.yahoo.com/report-judge-ruled-against-fda-014246897.html)
 - Apr 17 - [Jon Rahm doesn't own the green jacket for winning the Masters — and he doesn't get to keep it](https://news.yahoo.com/jon-rahm-doesnt-own-green-011944355.html)
-- Apr 17 - [‘I Just Wasn’t Happy’: Blac Chyna Reveals The Inspiration Behind Ditching Her Public Persona and Reclaiming Her Given Name Angela White](https://news.yahoo.com/just-wasn-t-happy-blac-010000711.html)
 - Apr 17 - [Marjorie Taylor Greene fires back at Lindsey Graham by posting Photoshopped pic of senator hoisting a Bud Light with trans influencer’s image](https://news.yahoo.com/marjorie-taylor-greene-fires-back-001220330.html)
 - Apr 16 - [Teacher who said 'good afternoon girls' forced to apologise in gender clash with pupils](https://news.yahoo.com/teacher-said-good-afternoon-girls-233852694.html)
 <!-- feed end -->
