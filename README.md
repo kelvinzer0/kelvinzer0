@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 17 - [Judge says Alec Baldwin settlement in fatal shooting sealed](https://news.yahoo.com/judge-says-alec-baldwin-settlement-224227111.html)
+- Apr 17 - [US approves F-16 upgrade after Turkey eases stand on NATO](https://news.yahoo.com/us-approves-f-16-upgrade-220823299.html)
 - Apr 17 - [DeSantis threatens to build a state prison next to Disney World, in latest round of retribution over power grab](https://news.yahoo.com/desantis-threatens-build-state-prison-181048703.html)
-- Apr 17 - [Keanu Reeves, Who Keeps His Love Life Fairly Private, Was Photographed Kissing His Girlfriend Alexandra Grant](https://news.yahoo.com/keanu-reeves-keeps-love-life-212721409.html)
 - Apr 17 - [Federal judge halts Colorado ban on 'abortion pill reversal'](https://news.yahoo.com/federal-judge-halts-colorado-ban-210435402.html)
 - Apr 17 - [Mexico president slams US 'spying' after traffickers charged](https://news.yahoo.com/mexico-president-slams-us-spying-201508703.html)
-- Apr 17 - [Kaley Cuoco's newborn daughter's expression is priceless after first bath](https://news.yahoo.com/kaley-cuocos-newborn-daughters-expression-200515183.html)
 <!-- feed end -->
