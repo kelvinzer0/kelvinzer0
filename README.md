@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 17 - [Italian police scoop up 2 tons of cocaine bobbing in sea](https://news.yahoo.com/italian-police-scoop-2-tons-122335627.html)
 - Apr 17 - [Jordan Klepper Names MAGA Belief That ‘Really Scares Me’](https://news.yahoo.com/jordan-klepper-names-maga-belief-112756135.html)
-- Apr 17 - [29 Side-By-Sides Of AI-Generated Images Of Older Celebs Vs. What They Actually Look Like](https://news.yahoo.com/29-side-sides-ai-generated-191155022.html)
 - Apr 17 - [SpaceX sets launch time for Starship spacecraft, world’s biggest rocket](https://news.yahoo.com/spacex-sets-launch-time-starship-093440829.html)
 - Apr 17 - [Del. Stacey Plaskett Exposes Rep. Jim Jordan's Glaring Hypocrisy](https://news.yahoo.com/stacey-plaskett-exposes-jim-jordans-102251163.html)
-- Apr 17 - [Meet the ‘elite’ couples breeding to save mankind](https://news.yahoo.com/meet-elite-couples-breeding-save-100000548.html)
+- Apr 17 - [Six dead in attack on kidnapped pilot rescue mission](https://news.yahoo.com/six-dead-attack-kidnapped-pilot-101014102.html)
 <!-- feed end -->
