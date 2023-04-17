@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 17 - [Italian police scoop up 2 tons of cocaine bobbing in sea](https://news.yahoo.com/italian-police-scoop-2-tons-122335627.html)
-- Apr 17 - [Jordan Klepper Names MAGA Belief That ‘Really Scares Me’](https://news.yahoo.com/jordan-klepper-names-maga-belief-112756135.html)
-- Apr 17 - [SpaceX sets launch time for Starship spacecraft, world’s biggest rocket](https://news.yahoo.com/spacex-sets-launch-time-starship-093440829.html)
-- Apr 17 - [Del. Stacey Plaskett Exposes Rep. Jim Jordan's Glaring Hypocrisy](https://news.yahoo.com/stacey-plaskett-exposes-jim-jordans-102251163.html)
+- Apr 17 - [SpaceX scrubs launch of Starship rocket](https://news.yahoo.com/spacex-sets-launch-time-starship-093440829.html)
 - Apr 17 - [Six dead in attack on kidnapped pilot rescue mission](https://news.yahoo.com/six-dead-attack-kidnapped-pilot-101014102.html)
+- Apr 17 - [A Black teenager who was shot after mistakenly going to the wrong house begged neighbors for help — but was ignored, family says](https://news.yahoo.com/black-teenager-shot-mistakenly-going-123806815.html)
+- Apr 17 - [‘Not Constructive to Demonize’: Incoming Chicago Mayor Defends Teens after Weekend Violence](https://news.yahoo.com/not-constructive-demonize-incoming-chicago-123610044.html)
+- Apr 17 - [Italian police scoop up 2 tons of cocaine bobbing in sea](https://news.yahoo.com/italian-police-scoop-2-tons-122335627.html)
 <!-- feed end -->
