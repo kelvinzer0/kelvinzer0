@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 17 - [Pro-Russia propagandist unmasked as New Jersey tropical fish seller](https://news.yahoo.com/pro-russia-propagandist-donbas-devushka-072525718.html)
 - Apr 17 - [Trump’s House GOP allies take fight to Manhattan DA's turf](https://news.yahoo.com/trump-house-gop-allies-fight-053054798.html)
 - Apr 17 - [Fox News pushes Dominion to settle mammoth defamation lawsuit as judge delays trial, multiple sources report](https://news.yahoo.com/fox-news-pushes-dominion-settle-051744496.html)
+- Apr 17 - [Teacher who said 'good afternoon, girls' forced to apologise in gender clash with pupils](https://news.yahoo.com/teacher-said-good-afternoon-girls-233852694.html)
 - Apr 17 - [2 dads exchanged gunfire in Florida road rage fight, injuring kids, but only one got charged](https://news.yahoo.com/2-dads-exchanged-gunfire-florida-090510812.html)
-- Apr 17 - [US sails warship through Taiwan Strait after China's drills](https://news.yahoo.com/u-warship-sails-taiwan-strait-033606941.html)
-- Apr 17 - [Report: Judge That Ruled Against FDA-Approved Abortion Pill Hid Controversial Article From Senate](https://news.yahoo.com/report-judge-ruled-against-fda-014246897.html)
 <!-- feed end -->
