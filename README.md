@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 17 - [People Who Earn Six-Figure Salaries Are Revealing What They Do And How They Found Their Jobs, And It's Like A Virtual Career Fair](https://news.yahoo.com/people-earn-six-figure-salaries-032507807.html)
+- Apr 17 - [If Anyone Can Guess All These Disney Movies From The Last Line, Then They're A Certified Movie Expert](https://news.yahoo.com/anyone-guess-disney-movies-last-013039793.html)
+- Apr 17 - [Report: Judge That Ruled Against FDA-Approved Abortion Pill Hid Controversial Article From Senate](https://news.yahoo.com/report-judge-ruled-against-fda-014246897.html)
+- Apr 17 - [Jon Rahm doesn't own the green jacket for winning the Masters — and he doesn't get to keep it](https://news.yahoo.com/jon-rahm-doesnt-own-green-011944355.html)
 - Apr 17 - [Marjorie Taylor Greene fires back at Lindsey Graham by posting Photoshopped pic of senator hoisting a Bud Light with trans influencer’s image](https://news.yahoo.com/marjorie-taylor-greene-fires-back-001220330.html)
-- Apr 16 - [Teacher who said 'good afternoon girls' forced to apologise in gender clash with pupils](https://news.yahoo.com/teacher-said-good-afternoon-girls-233852694.html)
-- Apr 16 - [Heat's Tyler Herro breaks right hand in playoff opener](https://news.yahoo.com/heats-tyler-herro-breaks-hand-231848184.html)
-- Apr 16 - [Justice Clarence Thomas received between $270,000 to $750,000 within the past 17 years from a real estate company that no longer exists, Washington Post reports](https://news.yahoo.com/justice-clarence-thomas-received-between-231410607.html)
-- Apr 16 - [Florida woman who stole $2.8 million from Holocaust survivor in romance scam pleads guilty](https://news.yahoo.com/florida-woman-stole-2-8-223202416.html)
 <!-- feed end -->
