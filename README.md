@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 17 - ["I Never, Ever Want To Buy A House": People Are Sharing Why They Prefer To Rent Vs. Buy, And The Reasons Go Far Beyond Cost](https://news.yahoo.com/never-ever-want-buy-house-200140582.html)
-- Apr 17 - [DA’s Secret Weapon May Be Lawyer Who’s Dogged Trump for Years](https://news.yahoo.com/da-secret-weapon-may-lawyer-083951198.html)
-- Apr 17 - [Pro-Russia propagandist unmasked as New Jersey tropical fish seller](https://news.yahoo.com/pro-russia-propagandist-donbas-devushka-072525718.html)
-- Apr 17 - [A bear lumbered into a man's backyard in North Carolina, and a camera caught the exact moment they noticed each other](https://news.yahoo.com/bear-lumbered-mans-backyard-north-071052457.html)
-- Apr 17 - [Ex-Fox Host Gretchen Carlson Has Urgent Plea For Dominion Amid Settlement Rumors](https://news.yahoo.com/ex-fox-host-gretchen-carlson-070000340.html)
+- Apr 17 - [Pilgrims in Chile celebrate Cuasimodo festival](https://news.yahoo.com/pilgrims-chile-celebrate-cuasimodo-festival-103143444.html)
+- Apr 17 - [People Who Earn Six-Figure Salaries Are Revealing What They Do And How They Found Their Jobs, And It's Like A Virtual Career Fair](https://news.yahoo.com/people-earn-six-figure-salaries-032507807.html)
+- Apr 17 - [Del. Stacey Plaskett Exposes Rep. Jim Jordan's Glaring Hypocrisy](https://news.yahoo.com/stacey-plaskett-exposes-jim-jordans-102251163.html)
+- Apr 17 - [Meet the ‘elite’ couples breeding to save mankind](https://news.yahoo.com/meet-elite-couples-breeding-save-100000548.html)
+- Apr 17 - [Slovakia gives Ukraine remaining 9 of 13 promised warplanes](https://news.yahoo.com/slovakia-gives-ukraine-remaining-9-094208607.html)
 <!-- feed end -->
