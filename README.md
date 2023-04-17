@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 17 - [29 Side-By-Sides Of AI-Generated Images Of Older Celebs Vs. What They Actually Look Like](https://news.yahoo.com/29-side-sides-ai-generated-191155022.html)
+- Apr 17 - [Trump’s House GOP allies take fight to Manhattan DA's turf](https://news.yahoo.com/trump-house-gop-allies-fight-053054798.html)
+- Apr 17 - [Teacher who said 'good afternoon girls' forced to apologise in gender clash with pupils](https://news.yahoo.com/teacher-said-good-afternoon-girls-233852694.html)
+- Apr 17 - [2 dads exchanged gunfire in Florida road rage fight, injuring kids, but only one got charged](https://news.yahoo.com/2-dads-exchanged-gunfire-florida-090510812.html)
 - Apr 17 - [Report: Judge That Ruled Against FDA-Approved Abortion Pill Hid Controversial Article From Senate](https://news.yahoo.com/report-judge-ruled-against-fda-014246897.html)
 - Apr 17 - [Jon Rahm doesn't own the green jacket for winning the Masters — and he doesn't get to keep it](https://news.yahoo.com/jon-rahm-doesnt-own-green-011944355.html)
-- Apr 17 - [Marjorie Taylor Greene fires back at Lindsey Graham by posting Photoshopped pic of senator hoisting a Bud Light with trans influencer’s image](https://news.yahoo.com/marjorie-taylor-greene-fires-back-001220330.html)
-- Apr 16 - [Teacher who said 'good afternoon girls' forced to apologise in gender clash with pupils](https://news.yahoo.com/teacher-said-good-afternoon-girls-233852694.html)
 <!-- feed end -->
