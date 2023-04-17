@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 17 - [Ali Wong Vented About Her "Beef" With Getting Asian Food With Non-Asian People On "The Kelly Clarkson Show," And She's Not Wrong](https://news.yahoo.com/ali-wong-vented-her-beef-232104667.html)
-- Apr 17 - [Ex-Cardinal McCarrick charged in Wisconsin with sex abuse](https://news.yahoo.com/ex-cardinal-mccarrick-charged-wisconsin-163523127.html)
-- Apr 17 - [How 'Modern Warfare 2' became the most realistic 'Call of Duty' game](https://news.yahoo.com/modern-warfare-2-became-most-163030319.html)
-- Apr 17 - [GOP megadonor Harlan Crow isn't charging Clarence Thomas' mother rent. Zillow estimates suggest that would have saved her $155,000 since 2014.](https://news.yahoo.com/gop-megadonor-harlan-crow-isnt-160615037.html)
-- Apr 17 - [Judge: If news taints rape-trial jurors, Trump shares blame](https://news.yahoo.com/judge-news-taints-rape-trial-160127312.html)
+- Apr 17 - [Louisiana woman's 5-foot afro is world's largest, Guinness says, giving her title for 3rd time](https://news.yahoo.com/louisiana-womans-5-foot-afro-142643358.html)
+- Apr 17 - [Alabama shooting live updates: Victims identified as police still search for shooter, motive](https://news.yahoo.com/alabama-shooting-live-updates-ran-135353962.html)
+- Apr 17 - [Half the men I know are using Ozempic to lose weight – they look like deflated balloons](https://news.yahoo.com/half-men-know-using-ozempic-173550847.html)
+- Apr 17 - ["I Never, Ever Want To Buy A House": People Are Sharing Why They Prefer To Rent Vs. Buy, And The Reasons Go Far Beyond Cost](https://news.yahoo.com/never-ever-want-buy-house-200140582.html)
+- Apr 17 - [Couple reportedly beheaded themselves in sacrifice with homemade guillotine](https://news.yahoo.com/couple-reportedly-beheaded-themselves-sacrifice-172252326.html)
 <!-- feed end -->
