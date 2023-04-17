@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 17 - [Protests as House panel holds NYC hearing on Bragg](https://news.yahoo.com/protests-house-panel-holds-nyc-183318072.html)
+- Apr 17 - [Ukraine official: We will launch counteroffensive when ready](https://news.yahoo.com/ukraine-official-launch-counteroffensive-ready-182458059.html)
+- Apr 17 - [Student with 2 published books, 4.2 GPA and 1560 SAT score rejected by Harvard, MIT, Yale and Princeton](https://news.yahoo.com/student-2-published-books-4-182005756.html)
+- Apr 17 - [DeSantis threatens to build a state prison next to Disney World, in latest round of retribution over power grab](https://news.yahoo.com/desantis-threatens-build-state-prison-181048703.html)
 - Apr 17 - [Louisiana woman's 5-foot afro is world's largest, Guinness says, giving her title for 3rd time](https://news.yahoo.com/louisiana-womans-5-foot-afro-142643358.html)
-- Apr 17 - [Alabama shooting live updates: Victims identified as police still search for shooter, motive](https://news.yahoo.com/alabama-shooting-live-updates-ran-135353962.html)
-- Apr 17 - [Half the men I know are using Ozempic to lose weight – they look like deflated balloons](https://news.yahoo.com/half-men-know-using-ozempic-173550847.html)
-- Apr 17 - ["I Never, Ever Want To Buy A House": People Are Sharing Why They Prefer To Rent Vs. Buy, And The Reasons Go Far Beyond Cost](https://news.yahoo.com/never-ever-want-buy-house-200140582.html)
-- Apr 17 - [Couple reportedly beheaded themselves in sacrifice with homemade guillotine](https://news.yahoo.com/couple-reportedly-beheaded-themselves-sacrifice-172252326.html)
 <!-- feed end -->
