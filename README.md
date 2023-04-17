@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 17 - [Louisiana woman's 5-foot afro is world's largest, Guinness says, giving her title for 3rd time](https://news.yahoo.com/louisiana-womans-5-foot-afro-142643358.html)
-- Apr 17 - [Kim Kardashian Was Accused Of An "Absurd" Photoshop Fail On Instagram](https://news.yahoo.com/kim-kardashian-accused-absurd-photoshop-031711550.html)
-- Apr 17 - [Dutch intel agency paints grim picture of multiple threats](https://news.yahoo.com/dutch-intel-agency-paints-grim-141633240.html)
-- Apr 17 - [‘Police Are Supposed to be Peace Officers’: Houston Teen Stuck In Parking Lot Without Gas Dragged Out of Car and Violently Arrested Along with Friend He’d Called for Help](https://news.yahoo.com/police-supposed-peace-officers-houston-134807116.html)
-- Apr 17 - [SpaceX scrubs launch of Starship rocket](https://news.yahoo.com/spacex-sets-launch-time-starship-093440829.html)
+- Apr 17 - [Judge: If news taints rape-trial jurors, Trump shares blame](https://news.yahoo.com/judge-news-taints-rape-trial-160127312.html)
+- Apr 17 - [Chauvin murder conviction upheld in George Floyd killing](https://news.yahoo.com/chauvin-murder-conviction-upheld-george-151000622.html)
+- Apr 17 - [SpaceX scrubs test flight of Starship, world's biggest rocket](https://news.yahoo.com/spacex-scrubs-test-flight-starship-150803374.html)
+- Apr 17 - [Budweiser releases new ad, statement from CEO after Mulvaney criticism](https://news.yahoo.com/budweiser-releases-ad-statement-ceo-150425934.html)
+- Apr 17 - [Kate Middleton ‘Resents’ Meghan Markle After Squabble Over Queen’s Deathbed](https://news.yahoo.com/kate-middleton-resents-meghan-markle-145951319.html)
 <!-- feed end -->
