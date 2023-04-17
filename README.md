@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 17 - [Pilgrims in Chile celebrate Cuasimodo festival](https://news.yahoo.com/pilgrims-chile-celebrate-cuasimodo-festival-103143444.html)
-- Apr 17 - [People Who Earn Six-Figure Salaries Are Revealing What They Do And How They Found Their Jobs, And It's Like A Virtual Career Fair](https://news.yahoo.com/people-earn-six-figure-salaries-032507807.html)
+- Apr 17 - [Jordan Klepper Names MAGA Belief That ‘Really Scares Me’](https://news.yahoo.com/jordan-klepper-names-maga-belief-112756135.html)
+- Apr 17 - [29 Side-By-Sides Of AI-Generated Images Of Older Celebs Vs. What They Actually Look Like](https://news.yahoo.com/29-side-sides-ai-generated-191155022.html)
+- Apr 17 - [SpaceX sets launch time for Starship spacecraft, world’s biggest rocket](https://news.yahoo.com/spacex-sets-launch-time-starship-093440829.html)
 - Apr 17 - [Del. Stacey Plaskett Exposes Rep. Jim Jordan's Glaring Hypocrisy](https://news.yahoo.com/stacey-plaskett-exposes-jim-jordans-102251163.html)
 - Apr 17 - [Meet the ‘elite’ couples breeding to save mankind](https://news.yahoo.com/meet-elite-couples-breeding-save-100000548.html)
-- Apr 17 - [Slovakia gives Ukraine remaining 9 of 13 promised warplanes](https://news.yahoo.com/slovakia-gives-ukraine-remaining-9-094208607.html)
 <!-- feed end -->
