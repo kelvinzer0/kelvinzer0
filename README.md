@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [Homeowner charged with shooting teen who went to wrong house in Missouri](https://news.yahoo.com/kansas-city-police-status-shooting-121800113.html)
-- Apr 18 - [China 'began developing two Covid vaccines' before official outbreak](https://news.yahoo.com/covid-pandemic-sparked-accidental-leak-232348250.html)
-- Apr 18 - [Ex-RNC Spokesperson Hits Rep. Jim Jordan With Some Harsh Truths About NYC Stunt](https://news.yahoo.com/ex-rnc-spokesperson-hits-rep-065218057.html)
-- Apr 18 - ['He's So Dumb': Jimmy Kimmel Exposes Trump's Most 'Dangerous' Idea Yet](https://news.yahoo.com/hes-dumb-jimmy-kimmel-exposes-053649454.html)
-- Apr 18 - [An Airbnb host who was left with a $640 utility bill suspects guests left the gas and water taps running after he did not meet their cancellation request](https://news.yahoo.com/airbnb-host-left-640-utility-050808547.html)
+- Apr 18 - [China calls US accusations of police stations 'groundless'](https://news.yahoo.com/china-calls-us-accusations-police-103828611.html)
+- Apr 18 - [Another Russian ‘goodwill gesture’ — Signs Russia is preparing to retreat from Kherson Oblast](https://news.yahoo.com/another-russian-goodwill-gesture-signs-101000662.html)
+- Apr 18 - [A single order from Elon Musk's Tesla has boosted a family's fortune to over $800 million](https://news.yahoo.com/single-order-elon-musks-tesla-093751696.html)
+- Apr 18 - [I went to Coachella as a 29-year-old and realized I'm too old for it](https://news.yahoo.com/went-coachella-29-old-realized-090900921.html)
+- Apr 18 - [Florida insurance crisis has some homeowners eyeing an exit: ‘I almost had a heart attack’](https://news.yahoo.com/florida-insurance-crisis-homeowners-eyeing-090022074.html)
 <!-- feed end -->
