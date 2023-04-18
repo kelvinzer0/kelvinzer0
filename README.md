@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 18 - [New Jersey wins Supreme Court dispute against New York](https://news.yahoo.com/jersey-wins-supreme-court-dispute-144157471.html)
+- Apr 18 - [Disney to Host ‘Pride Nite’ after DeSantis Announces Bill Stripping Entertainment Giant of Self-Granted Protections](https://news.yahoo.com/disney-host-pride-nite-desantis-140207722.html)
+- Apr 18 - [I Was Supposed to Follow My Mother to Auschwitz. This Is How I Survived.](https://news.yahoo.com/supposed-mother-auschwitz-survived-132354142.html)
 - Apr 18 - [Ukrainian Air Force destroys enemy BMP during rescue attempt – video](https://news.yahoo.com/ukrainian-air-force-destroys-enemy-131600259.html)
 - Apr 18 - [A malfunctioning missile stopped a Russian jet from shooting down a UK spy plane. Here's what could have happened if it had succeeded.](https://news.yahoo.com/malfunctioning-missile-stopped-russian-jet-131238316.html)
-- Apr 18 - [Poland building electronic barrier on border with Russia](https://news.yahoo.com/poland-building-electronic-barrier-border-131235874.html)
-- Apr 18 - [The first electrified Corvette just sold for more than $1 million. Here's who bought it.](https://news.yahoo.com/first-electrified-corvette-just-sold-100607821.html)
-- Apr 18 - [A man is suing Netflix for more than $1 million after it used his photo in an unrelated true-crime documentary while asking: 'Is this a guardian angel or a stone-cold killer?'](https://news.yahoo.com/man-suing-netflix-more-1-120250550.html)
 <!-- feed end -->
