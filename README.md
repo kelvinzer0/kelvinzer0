@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [Littlest intruder: Toddler crawls through White House fence](https://news.yahoo.com/littlest-intruder-toddler-crawls-white-154151334.html)
-- Apr 18 - [Oklahoma sheriff says recording of killing talk was illegal](https://news.yahoo.com/oklahoma-sheriff-says-recording-killing-152547196.html)
-- Apr 18 - [Southwest passengers face delays after nationwide grounding](https://news.yahoo.com/southwest-grounds-flights-nationwide-due-150824249.html)
-- Apr 18 - [My mom retired to Spain for a better quality of life. I didn't know it would include me moving with her.](https://news.yahoo.com/mom-retired-spain-better-quality-142100932.html)
-- Apr 18 - [Disney to Host ‘Pride Nite’ after DeSantis Announces Bill Stripping Entertainment Giant of Self-Granted Protections](https://news.yahoo.com/disney-host-pride-nite-desantis-140207722.html)
+- Apr 18 - [Live updates: Dominion v. Fox News defamation trial begins](https://news.yahoo.com/live-updates-dominion-v-fox-news-defamation-trial-begins-090017576.html)
+- Apr 18 - [A verbal slip by Russia's Vladimir Putin on a rare visit to occupied Ukraine suggested the trip happened days earlier and was kept secret](https://news.yahoo.com/verbal-slip-russias-vladimir-putin-161420674.html)
+- Apr 18 - [Sheriff: Arrest warrant moot for kidnapping of Emmett Till](https://news.yahoo.com/sheriff-arrest-warrant-moot-kidnapping-161305974.html)
+- Apr 18 - [Late-season storm brings more snow to the Sierra Nevada](https://news.yahoo.com/season-storm-brings-more-snow-160632542.html)
+- Apr 18 - [Chris Christie on Florida-Disney Feud: ‘I Don’t Think Ron DeSantis Is a Conservative’](https://news.yahoo.com/chris-christie-florida-disney-feud-160129074.html)
 <!-- feed end -->
