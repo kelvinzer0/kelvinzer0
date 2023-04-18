@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 18 - [Covid pandemic most likely caused by Wuhan lab leak, US report concludes](https://news.yahoo.com/covid-pandemic-sparked-accidental-leak-232348250.html)
 - Apr 18 - ['He's So Dumb': Jimmy Kimmel Exposes Trump's Most 'Dangerous' Idea Yet](https://news.yahoo.com/hes-dumb-jimmy-kimmel-exposes-053649454.html)
+- Apr 18 - [An Airbnb host who was left with a $640 utility bill suspects guests left the gas and water taps running after he did not meet their cancellation request](https://news.yahoo.com/airbnb-host-left-640-utility-050808547.html)
 - Apr 18 - [LA mayor wants $1.3B for homeless crisis, hotels for housing](https://news.yahoo.com/la-mayor-wants-1-3b-020459716.html)
-- Apr 18 - [Court throws out Berkeley, California's ban on natural gas](https://news.yahoo.com/court-throws-berkeley-californias-ban-012120363.html)
 - Apr 18 - [Georgia teen 'was not tortured' during the house party that left him on a ventilator, DA says, adding that the teen 'voluntarily' drank until he blacked out](https://news.yahoo.com/georgia-teen-not-tortured-during-001812056.html)
-- Apr 18 - [Simon Cowell tears up, presses golden buzzer over teen's ‘heavenly’ performance on ‘Britain’s Got Talent’](https://news.yahoo.com/simon-cowell-tears-presses-golden-000551989.html)
 <!-- feed end -->
