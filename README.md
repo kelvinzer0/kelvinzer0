@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [China calls US accusations of police stations 'groundless'](https://news.yahoo.com/china-calls-us-accusations-police-103828611.html)
+- Apr 18 - [The first electrified Corvette just sold for more than $1 million; here's who bought it.](https://news.yahoo.com/first-electrified-corvette-just-sold-100607821.html)
+- Apr 18 - [White man claims he shot a Black teen who mistakenly rang his doorbell because he was 'scared': report](https://news.yahoo.com/white-man-claims-shot-black-103052444.html)
 - Apr 18 - [Another Russian ‘goodwill gesture’ — Signs Russia is preparing to retreat from Kherson Oblast](https://news.yahoo.com/another-russian-goodwill-gesture-signs-101000662.html)
 - Apr 18 - [A single order from Elon Musk's Tesla has boosted a family's fortune to over $800 million](https://news.yahoo.com/single-order-elon-musks-tesla-093751696.html)
 - Apr 18 - [I went to Coachella as a 29-year-old and realized I'm too old for it](https://news.yahoo.com/went-coachella-29-old-realized-090900921.html)
-- Apr 18 - [Florida insurance crisis has some homeowners eyeing an exit: ‘I almost had a heart attack’](https://news.yahoo.com/florida-insurance-crisis-homeowners-eyeing-090022074.html)
 <!-- feed end -->
