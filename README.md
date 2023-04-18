@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [Live updates: Dominion v. Fox News defamation trial begins](https://news.yahoo.com/live-updates-dominion-v-fox-news-defamation-trial-begins-090017576.html)
+- Apr 18 - [Lori Vallow mouthed 'oh my baby' at Colby Ryan before her only surviving child took the stand in her murder trial](https://news.yahoo.com/lori-vallow-mouthed-oh-baby-165633390.html)
 - Apr 18 - [A verbal slip by Russia's Vladimir Putin on a rare visit to occupied Ukraine suggested the trip happened days earlier and was kept secret](https://news.yahoo.com/verbal-slip-russias-vladimir-putin-161420674.html)
 - Apr 18 - [Sheriff: Arrest warrant moot for kidnapping of Emmett Till](https://news.yahoo.com/sheriff-arrest-warrant-moot-kidnapping-161305974.html)
 - Apr 18 - [Late-season storm brings more snow to the Sierra Nevada](https://news.yahoo.com/season-storm-brings-more-snow-160632542.html)
