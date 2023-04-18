@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [Stephen Colbert Roasts Clarence Thomas\' Relationship to Billionaire GOP Donor](https://news.yahoo.com/stephen-colbert-roasts-clarence-thomas-043254130.html)
+- Apr 18 - ['He's So Dumb': Jimmy Kimmel Exposes Trump's Most 'Dangerous' Idea Yet](https://news.yahoo.com/hes-dumb-jimmy-kimmel-exposes-053649454.html)
 - Apr 18 - [Ralph Yarl: Man charged with shooting boy who knocked wrong door](https://news.yahoo.com/ralph-yarl-man-charged-shooting-231408439.html)
 - Apr 18 - [LA mayor wants $1.3B for homeless crisis, hotels for housing](https://news.yahoo.com/la-mayor-wants-1-3b-020459716.html)
 - Apr 18 - [Court throws out Berkeley, California's ban on natural gas](https://news.yahoo.com/court-throws-berkeley-californias-ban-012120363.html)
