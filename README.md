@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [Lori Vallow mouthed 'oh my baby' at Colby Ryan before her only surviving child took the stand in her murder trial](https://news.yahoo.com/lori-vallow-mouthed-oh-baby-165633390.html)
-- Apr 18 - [A verbal slip by Russia's Vladimir Putin on a rare visit to occupied Ukraine suggested the trip happened days earlier and was kept secret](https://news.yahoo.com/verbal-slip-russias-vladimir-putin-161420674.html)
-- Apr 18 - [Sheriff: Arrest warrant moot for kidnapping of Emmett Till](https://news.yahoo.com/sheriff-arrest-warrant-moot-kidnapping-161305974.html)
-- Apr 18 - [Late-season storm brings more snow to the Sierra Nevada](https://news.yahoo.com/season-storm-brings-more-snow-160632542.html)
-- Apr 18 - [Chris Christie on Florida-Disney Feud: ‘I Don’t Think Ron DeSantis Is a Conservative’](https://news.yahoo.com/chris-christie-florida-disney-feud-160129074.html)
+- Apr 18 - [Poll: Trump's big post-indictment bounce is fading fast](https://news.yahoo.com/poll-trumps-big-post-indictment-bounce-is-fading-fast-183753992.html)
+- Apr 18 - [No charges in police killing of pallbearer at dad's funeral](https://news.yahoo.com/no-charges-police-killing-pallbearer-181225814.html)
+- Apr 18 - [Trump’s Fake Georgia Electors Are Now Ratting on Each Other](https://news.yahoo.com/trump-fake-georgia-electors-now-180246745.html)
+- Apr 18 - [Ex-Member of Menudo Says He Was Raped by Father of the Menendez Brothers](https://news.yahoo.com/ex-member-menudo-says-raped-175033878.html)
+- Apr 18 - [Lori Vallow mouthed 'oh my baby' at her only surviving son Colby Ryan before he took the stand in her murder trial](https://news.yahoo.com/lori-vallow-mouthed-oh-baby-165633390.html)
 <!-- feed end -->
