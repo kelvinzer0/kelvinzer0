@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 18 - [Browns' QB Watson: 'Night and day' different from year ago](https://news.yahoo.com/browns-qb-watson-night-day-204144741.html)
+- Apr 18 - [Fox Cries Uncle, Will Pay $787 MILLION to End Dominion Trial](https://news.yahoo.com/fox-news-settles-dominion-just-200322277.html)
 - Apr 18 - [3 Black girls were found dead last year in a Texas pond. Police have made no arrests.](https://news.yahoo.com/3-black-girls-were-found-dead-last-year-in-a-texas-pond-police-have-made-no-arrests-192512195.html)
+- Apr 18 - [Joshua Jackson says he and Jodie Turner-Smith would have had a 'torrid affair' if they'd met '5 years earlier'](https://news.yahoo.com/joshua-jackson-says-jodie-turner-185027132.html)
 - Apr 18 - [Poll: Trump's big post-indictment bounce is fading fast](https://news.yahoo.com/poll-trumps-big-post-indictment-bounce-is-fading-fast-183753992.html)
-- Apr 18 - [No charges in police killing of pallbearer at dad's funeral](https://news.yahoo.com/no-charges-police-killing-pallbearer-181225814.html)
-- Apr 18 - [Trump’s Fake Georgia Electors Are Now Ratting on Each Other](https://news.yahoo.com/trump-fake-georgia-electors-now-180246745.html)
-- Apr 18 - [Ex-Member of Menudo Says He Was Raped by Father of the Menendez Brothers](https://news.yahoo.com/ex-member-menudo-says-raped-175033878.html)
 <!-- feed end -->
