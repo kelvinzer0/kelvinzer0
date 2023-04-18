@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [Homeowner charged with shooting teen who went to wrong house in Missouri](https://news.yahoo.com/kansas-city-police-status-shooting-121800113.html)
-- Apr 18 - [Florida Governor Ron DeSantis teases option of building prison near Disney World](https://news.yahoo.com/florida-governor-ron-desantis-teases-123643458.html)
+- Apr 18 - [Ukrainian Air Force destroys enemy BMP during rescue attempt – video](https://news.yahoo.com/ukrainian-air-force-destroys-enemy-131600259.html)
+- Apr 18 - [A malfunctioning missile stopped a Russian jet from shooting down a UK spy plane. Here's what could have happened if it had succeeded.](https://news.yahoo.com/malfunctioning-missile-stopped-russian-jet-131238316.html)
+- Apr 18 - [Poland building electronic barrier on border with Russia](https://news.yahoo.com/poland-building-electronic-barrier-border-131235874.html)
 - Apr 18 - [The first electrified Corvette just sold for more than $1 million. Here's who bought it.](https://news.yahoo.com/first-electrified-corvette-just-sold-100607821.html)
 - Apr 18 - [A man is suing Netflix for more than $1 million after it used his photo in an unrelated true-crime documentary while asking: 'Is this a guardian angel or a stone-cold killer?'](https://news.yahoo.com/man-suing-netflix-more-1-120250550.html)
-- Apr 18 - [No one believed the Covid Wuhan lab leak theory – then the world changed its tune](https://news.yahoo.com/no-one-believed-covid-wuhan-204950096.html)
 <!-- feed end -->
