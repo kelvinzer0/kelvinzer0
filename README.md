@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [Covid pandemic most likely caused by Wuhan lab leak, US report concludes](https://news.yahoo.com/covid-pandemic-sparked-accidental-leak-232348250.html)
+- Apr 18 - [China 'began developing two Covid vaccines' months before official outbreak](https://news.yahoo.com/covid-pandemic-sparked-accidental-leak-232348250.html)
+- Apr 18 - [Ex-RNC Spokesperson Hits Rep. Jim Jordan With Some Harsh Truths About NYC Stunt](https://news.yahoo.com/ex-rnc-spokesperson-hits-rep-065218057.html)
 - Apr 18 - ['He's So Dumb': Jimmy Kimmel Exposes Trump's Most 'Dangerous' Idea Yet](https://news.yahoo.com/hes-dumb-jimmy-kimmel-exposes-053649454.html)
 - Apr 18 - [An Airbnb host who was left with a $640 utility bill suspects guests left the gas and water taps running after he did not meet their cancellation request](https://news.yahoo.com/airbnb-host-left-640-utility-050808547.html)
 - Apr 18 - [LA mayor wants $1.3B for homeless crisis, hotels for housing](https://news.yahoo.com/la-mayor-wants-1-3b-020459716.html)
-- Apr 18 - [Georgia teen 'was not tortured' during the house party that left him on a ventilator, DA says, adding that the teen 'voluntarily' drank until he blacked out](https://news.yahoo.com/georgia-teen-not-tortured-during-001812056.html)
 <!-- feed end -->
