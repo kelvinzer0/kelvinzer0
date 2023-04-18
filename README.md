@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 17 - [Judge says Alec Baldwin settlement in fatal shooting sealed](https://news.yahoo.com/judge-says-alec-baldwin-settlement-224227111.html)
-- Apr 17 - [US approves F-16 upgrade after Turkey eases stand on NATO](https://news.yahoo.com/us-approves-f-16-upgrade-220823299.html)
-- Apr 17 - [DeSantis threatens to build a state prison next to Disney World, in latest round of retribution over power grab](https://news.yahoo.com/desantis-threatens-build-state-prison-181048703.html)
-- Apr 17 - [Federal judge halts Colorado ban on 'abortion pill reversal'](https://news.yahoo.com/federal-judge-halts-colorado-ban-210435402.html)
-- Apr 17 - [Mexico president slams US 'spying' after traffickers charged](https://news.yahoo.com/mexico-president-slams-us-spying-201508703.html)
+- Apr 18 - [Simon Cowell tears up, presses golden buzzer over teen's ‘heavenly’ performance on ‘Britain’s Got Talent’](https://news.yahoo.com/simon-cowell-tears-presses-golden-000551989.html)
+- Apr 17 - [Rep. Nancy Mace Destroys Far-Right Host Who Attacked Her Looks During Abortion Debate](https://news.yahoo.com/rep-nancy-mace-destroys-far-233906728.html)
+- Apr 17 - [5 takeaways from Jim Jordan’s NYC hearing into Alvin Bragg and crime](https://news.yahoo.com/5-takeaways-jim-jordan-nyc-233256666.html)
+- Apr 17 - [Covid pandemic sparked by accidental leak from Wuhan lab, US investigation concludes](https://news.yahoo.com/covid-pandemic-sparked-accidental-leak-232348250.html)
+- Apr 17 - [A Delaware man admitted he drunkenly snapped the thumb off of a $4.5 million ancient Chinese statue and swiped it](https://news.yahoo.com/delaware-man-admitted-drunkenly-snapped-224941318.html)
 <!-- feed end -->
