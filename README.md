@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [Simon Cowell tears up, presses golden buzzer over teen's ‘heavenly’ performance on ‘Britain’s Got Talent’](https://news.yahoo.com/simon-cowell-tears-presses-golden-000551989.html)
+- Apr 18 - [Georgia teen 'was not tortured' during the house party that left him on a ventilator, DA says, adding that the teen 'voluntarily' drank until he blacked out](https://news.yahoo.com/georgia-teen-not-tortured-during-001812056.html)
 - Apr 17 - [Rep. Nancy Mace Destroys Far-Right Host Who Attacked Her Looks During Abortion Debate](https://news.yahoo.com/rep-nancy-mace-destroys-far-233906728.html)
 - Apr 17 - [5 takeaways from Jim Jordan’s NYC hearing into Alvin Bragg and crime](https://news.yahoo.com/5-takeaways-jim-jordan-nyc-233256666.html)
 - Apr 17 - [Covid pandemic sparked by accidental leak from Wuhan lab, US investigation concludes](https://news.yahoo.com/covid-pandemic-sparked-accidental-leak-232348250.html)
-- Apr 17 - [A Delaware man admitted he drunkenly snapped the thumb off of a $4.5 million ancient Chinese statue and swiped it](https://news.yahoo.com/delaware-man-admitted-drunkenly-snapped-224941318.html)
+- Apr 17 - [DeSantis’ third strike against Disney shows what a powerful man with thin skin can do | Opinion](https://news.yahoo.com/desantis-third-strike-against-disney-222316889.html)
 <!-- feed end -->
