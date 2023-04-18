@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [Browns' QB Watson: 'Night and day' different from year ago](https://news.yahoo.com/browns-qb-watson-night-day-204144741.html)
-- Apr 18 - [Fox Cries Uncle, Will Pay $787 MILLION to End Dominion Trial](https://news.yahoo.com/fox-news-settles-dominion-just-200322277.html)
-- Apr 18 - [3 Black girls were found dead last year in a Texas pond. Police have made no arrests.](https://news.yahoo.com/3-black-girls-were-found-dead-last-year-in-a-texas-pond-police-have-made-no-arrests-192512195.html)
-- Apr 18 - [Joshua Jackson says he and Jodie Turner-Smith would have had a 'torrid affair' if they'd met '5 years earlier'](https://news.yahoo.com/joshua-jackson-says-jodie-turner-185027132.html)
-- Apr 18 - [Poll: Trump's big post-indictment bounce is fading fast](https://news.yahoo.com/poll-trumps-big-post-indictment-bounce-is-fading-fast-183753992.html)
+- Apr 18 - [Chinese couple runs up $1,500 in utilities and expenses at Airbnb rental as revenge](https://news.yahoo.com/chinese-couple-runs-1-500-213721535.html)
+- Apr 18 - [Biden signs executive order with 50 directives addressing child care, caregiving costs](https://news.yahoo.com/biden-signs-executive-order-50-212712106.html)
+- Apr 18 - [Monster fish reeled in by angler may be biggest ever caught in Tennessee. Take a look](https://news.yahoo.com/monster-fish-reeled-angler-may-212229420.html)
+- Apr 18 - [California loves this restaurant so much, Yelp says it’s the state’s most loved brand](https://news.yahoo.com/california-loves-restaurant-much-yelp-201010577.html)
+- Apr 18 - [Mom, son who took zip ties into Senate convicted in 1/6 riot](https://news.yahoo.com/mom-son-took-zip-ties-195750751.html)
 <!-- feed end -->
