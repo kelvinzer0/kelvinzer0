@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [The first electrified Corvette just sold for more than $1 million; here's who bought it.](https://news.yahoo.com/first-electrified-corvette-just-sold-100607821.html)
-- Apr 18 - [White man claims he shot a Black teen who mistakenly rang his doorbell because he was 'scared': report](https://news.yahoo.com/white-man-claims-shot-black-103052444.html)
-- Apr 18 - [Another Russian ‘goodwill gesture’ — Signs Russia is preparing to retreat from Kherson Oblast](https://news.yahoo.com/another-russian-goodwill-gesture-signs-101000662.html)
-- Apr 18 - [A single order from Elon Musk's Tesla has boosted a family's fortune to over $800 million](https://news.yahoo.com/single-order-elon-musks-tesla-093751696.html)
-- Apr 18 - [I went to Coachella as a 29-year-old and realized I'm too old for it](https://news.yahoo.com/went-coachella-29-old-realized-090900921.html)
+- Apr 18 - [Homeowner charged with shooting teen who went to wrong house in Missouri](https://news.yahoo.com/kansas-city-police-status-shooting-121800113.html)
+- Apr 18 - [Florida Governor Ron DeSantis teases option of building prison near Disney World](https://news.yahoo.com/florida-governor-ron-desantis-teases-123643458.html)
+- Apr 18 - [The first electrified Corvette just sold for more than $1 million. Here's who bought it.](https://news.yahoo.com/first-electrified-corvette-just-sold-100607821.html)
+- Apr 18 - [A man is suing Netflix for more than $1 million after it used his photo in an unrelated true-crime documentary while asking: 'Is this a guardian angel or a stone-cold killer?'](https://news.yahoo.com/man-suing-netflix-more-1-120250550.html)
+- Apr 18 - [No one believed the Covid Wuhan lab leak theory – then the world changed its tune](https://news.yahoo.com/no-one-believed-covid-wuhan-204950096.html)
 <!-- feed end -->
