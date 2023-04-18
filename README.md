@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 18 - [3 Black girls were found dead last year in a Texas pond. Police have made no arrests.](https://news.yahoo.com/3-black-girls-were-found-dead-last-year-in-a-texas-pond-police-have-made-no-arrests-192512195.html)
 - Apr 18 - [Poll: Trump's big post-indictment bounce is fading fast](https://news.yahoo.com/poll-trumps-big-post-indictment-bounce-is-fading-fast-183753992.html)
 - Apr 18 - [No charges in police killing of pallbearer at dad's funeral](https://news.yahoo.com/no-charges-police-killing-pallbearer-181225814.html)
 - Apr 18 - [Trump’s Fake Georgia Electors Are Now Ratting on Each Other](https://news.yahoo.com/trump-fake-georgia-electors-now-180246745.html)
 - Apr 18 - [Ex-Member of Menudo Says He Was Raped by Father of the Menendez Brothers](https://news.yahoo.com/ex-member-menudo-says-raped-175033878.html)
-- Apr 18 - [Lori Vallow mouthed 'oh my baby' at her only surviving son Colby Ryan before he took the stand in her murder trial](https://news.yahoo.com/lori-vallow-mouthed-oh-baby-165633390.html)
 <!-- feed end -->
