@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 18 - [New Jersey wins Supreme Court dispute against New York](https://news.yahoo.com/jersey-wins-supreme-court-dispute-144157471.html)
+- Apr 18 - [Littlest intruder: Toddler crawls through White House fence](https://news.yahoo.com/littlest-intruder-toddler-crawls-white-154151334.html)
+- Apr 18 - [Oklahoma sheriff says recording of killing talk was illegal](https://news.yahoo.com/oklahoma-sheriff-says-recording-killing-152547196.html)
+- Apr 18 - [Southwest passengers face delays after nationwide grounding](https://news.yahoo.com/southwest-grounds-flights-nationwide-due-150824249.html)
+- Apr 18 - [My mom retired to Spain for a better quality of life. I didn't know it would include me moving with her.](https://news.yahoo.com/mom-retired-spain-better-quality-142100932.html)
 - Apr 18 - [Disney to Host ‘Pride Nite’ after DeSantis Announces Bill Stripping Entertainment Giant of Self-Granted Protections](https://news.yahoo.com/disney-host-pride-nite-desantis-140207722.html)
-- Apr 18 - [I Was Supposed to Follow My Mother to Auschwitz. This Is How I Survived.](https://news.yahoo.com/supposed-mother-auschwitz-survived-132354142.html)
-- Apr 18 - [Ukrainian Air Force destroys enemy BMP during rescue attempt – video](https://news.yahoo.com/ukrainian-air-force-destroys-enemy-131600259.html)
-- Apr 18 - [A malfunctioning missile stopped a Russian jet from shooting down a UK spy plane. Here's what could have happened if it had succeeded.](https://news.yahoo.com/malfunctioning-missile-stopped-russian-jet-131238316.html)
 <!-- feed end -->
