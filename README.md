@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 18 - [Neighbor: Man in wrong-turn shooting disliked trespassers](https://news.yahoo.com/neighbor-man-wrong-turn-shooting-223614521.html)
+- Apr 18 - [Homeowner’s Grandson Says Ralph Yarl Shooting ‘Never Should Have Happened’](https://news.yahoo.com/homeowner-grandson-says-ralph-yarl-222159167.html)
+- Apr 18 - [Jake Tapper Loses It Over Fox News’ Spin After Dominion Settlement](https://news.yahoo.com/jake-tapper-loses-over-fox-221351877.html)
+- Apr 18 - [Lawyers for missing woman's husband want DA to be punished](https://news.yahoo.com/lawyers-missing-womans-husband-want-220059203.html)
 - Apr 18 - [Chinese couple runs up $1,500 in utilities and expenses at Airbnb rental as revenge](https://news.yahoo.com/chinese-couple-runs-1-500-213721535.html)
-- Apr 18 - [Biden signs executive order with 50 directives addressing child care, caregiving costs](https://news.yahoo.com/biden-signs-executive-order-50-212712106.html)
-- Apr 18 - [Monster fish reeled in by angler may be biggest ever caught in Tennessee. Take a look](https://news.yahoo.com/monster-fish-reeled-angler-may-212229420.html)
-- Apr 18 - [California loves this restaurant so much, Yelp says it’s the state’s most loved brand](https://news.yahoo.com/california-loves-restaurant-much-yelp-201010577.html)
-- Apr 18 - [Mom, son who took zip ties into Senate convicted in 1/6 riot](https://news.yahoo.com/mom-son-took-zip-ties-195750751.html)
 <!-- feed end -->
