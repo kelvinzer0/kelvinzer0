@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 19 - [DeSantis appointees begin reshaping Disney World's district](https://news.yahoo.com/desantis-appointees-begin-reshaping-disney-120350091.html)
 - Apr 19 - [Woody Harrelson wants Matthew McConaughey to take a DNA test to find out if they're brothers: 'You're gaining a father and a brother'](https://news.yahoo.com/woody-harrelson-wants-matthew-mcconaughey-101432625.html)
+- Apr 19 - [Florida prep school principal allegedly sexually abused student who viewed her as 'mother figure': report](https://news.yahoo.com/florida-prep-school-principal-allegedly-100040789.html)
 - Apr 19 - [A Ukrainian drone commander said Russian troops would sit around and get shot at the start of the war, but have learned from their mistakes](https://news.yahoo.com/ukrainian-drone-commander-said-russian-084843014.html)
-- Apr 19 - [DeSantis is in a rut. His trek to D.C. didn’t help.](https://news.yahoo.com/desantis-went-washington-did-not-083000270.html)
 - Apr 19 - [Donald Trump Throws Hissy Fit Over Elon Musk Revelation](https://news.yahoo.com/donald-trump-throws-hissy-fit-082813034.html)
+- Apr 19 - [A Southwest Airlines pilot bought an airplane catering truck for $3,300. He spent 7 months turning it into a mobile tiny home — see how he did it.](https://news.yahoo.com/southwest-airlines-pilot-bought-airplane-075825673.html)
 <!-- feed end -->
