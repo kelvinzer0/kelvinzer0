@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 19 - [I work for a nude cruise. It's liberating — but there are rules. Passengers can't get too excited, and clothes must be worn to dinner.](https://news.yahoo.com/nude-cruise-liberating-mdash-rules-134339910.html)
+- Apr 19 - [Records: Maine shooting suspect couldn't legally own guns](https://news.yahoo.com/police-maine-man-fired-randomly-123518389.html)
 - Apr 19 - [A dispute over an $84, sprinkled-covered rainbow birthday cake spiraled into a viral frenzy on TikTok](https://news.yahoo.com/dispute-over-84-sprinkled-covered-122923599.html)
 - Apr 19 - [‘Magyar Birds’ shock Russian occupiers by flying explosive drone directly into their dugout](https://news.yahoo.com/magyar-birds-shock-russian-occupiers-122600304.html)
 - Apr 19 - [An elite runner was disqualified from an ultramarathon after she was caught using a car for part of the race](https://news.yahoo.com/elite-runner-disqualified-ultramarathon-she-115124071.html)
-- Apr 19 - [Woody Harrelson wants Matthew McConaughey to take a DNA test to find out if they're brothers: 'You're gaining a father and a brother'](https://news.yahoo.com/woody-harrelson-wants-matthew-mcconaughey-101432625.html)
-- Apr 19 - [Florida prep school principal allegedly sexually abused student who viewed her as 'mother figure': report](https://news.yahoo.com/florida-prep-school-principal-allegedly-100040789.html)
 <!-- feed end -->
