@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 19 - [If Anyone Can Guess All These Disney Movies From The Last Line, Then They're A Certified Movie Expert](https://news.yahoo.com/anyone-guess-disney-movies-last-013039793.html)
-- Apr 19 - [When I got cancer, everyone brought food. I finally told them what I really wanted](https://news.yahoo.com/got-cancer-everyone-brought-food-161125806.html)
-- Apr 19 - [Switzerland has a stunningly high rate of gun ownership — here's why it doesn't have mass shootings](https://news.yahoo.com/switzerland-stunningly-high-rate-gun-221301791.html)
-- Apr 19 - [A bear in Canada broke into a truck and guzzled a 'massive' amount of soda. It wouldn't drink the diet soda.](https://news.yahoo.com/bear-canada-broke-truck-guzzled-155428794.html)
-- Apr 19 - ['Race to the Bottom' West Coast Legal Pot Is Struggling](https://news.yahoo.com/race-bottom-west-coast-legal-140313279.html)
+- Apr 19 - [Stephen Colbert Roasts Clarence Thomas' Relationship to Billionaire GOP Donor](https://news.yahoo.com/stephen-colbert-roasts-clarence-thomas-043254130.html)
+- Apr 19 - [Stephen Colbert Wishes Dominion Did Not Settle With Fox News: 'This Does Nothing for Our Democracy'](https://news.yahoo.com/stephen-colbert-wishes-dominion-did-054221253.html)
+- Apr 19 - [Marjorie Taylor Greene silenced in committee after accusing Mayorkas of lying](https://news.yahoo.com/marjorie-taylor-greene-silenced-committee-173752239.html)
+- Apr 19 - [French tourist in Japan arrested for punching woman in the face](https://news.yahoo.com/french-tourist-japan-arrested-punching-173102571.html)
+- Apr 19 - [Connecticut man sentenced to 55 years in manhunt killing](https://news.yahoo.com/manfredonia-sentenced-55-years-manhunt-165644583.html)
 <!-- feed end -->
