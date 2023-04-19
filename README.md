@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 19 - [A Ukrainian drone commander said Russian troops would sit around and get shot at the start of the war, but have learned from their mistakes](https://news.yahoo.com/ukrainian-drone-commander-said-russian-084843014.html)
 - Apr 19 - [DeSantis went to Washington, and it did not go well](https://news.yahoo.com/desantis-went-washington-did-not-083000270.html)
+- Apr 19 - [Donald Trump Throws Hissy Fit Over Elon Musk Revelation](https://news.yahoo.com/donald-trump-throws-hissy-fit-082813034.html)
 - Apr 19 - [A Southwest Airlines pilot bought an airplane catering truck for $3,300. He spent 7 months turning it into a mobile tiny home — see how he did it.](https://news.yahoo.com/southwest-airlines-pilot-bought-airplane-075825673.html)
 - Apr 19 - [A NICU nurse adopted her patient, a 14-year-old teen mom with triplets, to stop them from getting separated in foster care](https://news.yahoo.com/nicu-nurse-adopted-her-patient-075628870.html)
-- Apr 19 - [Stanley Tucci reveals the role he would never play again: ‘I tried to get out’](https://news.yahoo.com/stanley-tucci-reveals-role-never-055438057.html)
 <!-- feed end -->
