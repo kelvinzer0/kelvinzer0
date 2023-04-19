@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 19 - [A dispute over an $84, sprinkled-covered rainbow birthday cake spiraled into a viral frenzy on TikTok](https://news.yahoo.com/dispute-over-84-sprinkled-covered-122923599.html)
+- Apr 19 - [‘Magyar Birds’ shock Russian occupiers by flying explosive drone directly into their dugout](https://news.yahoo.com/magyar-birds-shock-russian-occupiers-122600304.html)
+- Apr 19 - [An elite runner was disqualified from an ultramarathon after she was caught using a car for part of the race](https://news.yahoo.com/elite-runner-disqualified-ultramarathon-she-115124071.html)
 - Apr 19 - [Woody Harrelson wants Matthew McConaughey to take a DNA test to find out if they're brothers: 'You're gaining a father and a brother'](https://news.yahoo.com/woody-harrelson-wants-matthew-mcconaughey-101432625.html)
 - Apr 19 - [Florida prep school principal allegedly sexually abused student who viewed her as 'mother figure': report](https://news.yahoo.com/florida-prep-school-principal-allegedly-100040789.html)
-- Apr 19 - [A Ukrainian drone commander said Russian troops would sit around and get shot at the start of the war, but have learned from their mistakes](https://news.yahoo.com/ukrainian-drone-commander-said-russian-084843014.html)
-- Apr 19 - [Donald Trump Throws Hissy Fit Over Elon Musk Revelation](https://news.yahoo.com/donald-trump-throws-hissy-fit-082813034.html)
-- Apr 19 - [A Southwest Airlines pilot bought an airplane catering truck for $3,300. He spent 7 months turning it into a mobile tiny home — see how he did it.](https://news.yahoo.com/southwest-airlines-pilot-bought-airplane-075825673.html)
 <!-- feed end -->
