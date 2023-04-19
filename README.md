@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 19 - [Kelly Clarkson tears up after Henry Winkler, who has dyslexia, shares advice for her daughter](https://news.yahoo.com/kelly-clarkson-tears-henry-winkler-140845140.html)
-- Apr 19 - [I work for a nude cruise. It's liberating — but there are rules. Passengers can't get too excited, and clothes must be worn to dinner.](https://news.yahoo.com/nude-cruise-liberating-mdash-rules-134339910.html)
-- Apr 19 - [Maine shooting suspect was recently released from prison](https://news.yahoo.com/police-maine-man-fired-randomly-123518389.html)
-- Apr 19 - [‘Magyar Birds’ shock Russian occupiers by flying explosive drone directly into their dugout](https://news.yahoo.com/magyar-birds-shock-russian-occupiers-122600304.html)
-- Apr 19 - [An elite runner was disqualified from an ultramarathon after she was caught using a car for part of the race](https://news.yahoo.com/elite-runner-disqualified-ultramarathon-she-115124071.html)
+- Apr 19 - [If Anyone Can Guess All These Disney Movies From The Last Line, Then They're A Certified Movie Expert](https://news.yahoo.com/anyone-guess-disney-movies-last-013039793.html)
+- Apr 19 - [When I got cancer, everyone brought food. I finally told them what I really wanted](https://news.yahoo.com/got-cancer-everyone-brought-food-161125806.html)
+- Apr 19 - [Switzerland has a stunningly high rate of gun ownership — here's why it doesn't have mass shootings](https://news.yahoo.com/switzerland-stunningly-high-rate-gun-221301791.html)
+- Apr 19 - [A bear in Canada broke into a truck and guzzled a 'massive' amount of soda. It wouldn't drink the diet soda.](https://news.yahoo.com/bear-canada-broke-truck-guzzled-155428794.html)
+- Apr 19 - ['Race to the Bottom' West Coast Legal Pot Is Struggling](https://news.yahoo.com/race-bottom-west-coast-legal-140313279.html)
 <!-- feed end -->
