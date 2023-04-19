@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 19 - [2 Cheerleaders Shot After One Accidentally Steps Into Wrong Car: Report](https://news.yahoo.com/2-cheerleaders-shot-one-accidentally-040849861.html)
 - Apr 19 - [‘Daily Show’ Guest Host Jordan Klepper Gives Jim Jordan Brutal Reminder Of His Past](https://news.yahoo.com/daily-show-guest-host-jordan-040117134.html)
 - Apr 19 - [Warriors' Green suspended for stepping on Kings' Sabonis](https://news.yahoo.com/warriors-green-suspended-stepping-kings-035422809.html)
 - Apr 19 - [Here are the winners and losers of Fox News's $787.5 million settlement with Dominion](https://news.yahoo.com/winners-losers-fox-newss-787-021909894.html)
 - Apr 18 - [‘I truly apologize’: 2 Proud Boys charged with seditious conspiracy testify in their own defense](https://news.yahoo.com/i-truly-apologize-2-proud-boys-charged-with-seditious-conspiracy-testify-in-their-own-defense-233606650.html)
-- Apr 18 - [Neighbor: Man in wrong-turn shooting disliked trespassers](https://news.yahoo.com/neighbor-man-wrong-turn-shooting-223614521.html)
 <!-- feed end -->
