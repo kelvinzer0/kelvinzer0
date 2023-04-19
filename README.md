@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 19 - [Andrew Lester pleads not guilty in shooting of Ralph Yarl, who went to the wrong house](https://news.yahoo.com/andrew-lester-pleads-not-guilty-210048494.html)
+- Apr 19 - [Suspect in wrong driveway shooting described as 'hot-tempered' during court hearing](https://news.yahoo.com/suspect-wrong-driveway-shooting-described-222407257.html)
+- Apr 19 - [Judge rules against Manhattan D.A., orders former prosecutor to testify](https://news.yahoo.com/judge-rules-against-manhattan-d-215908922.html)
+- Apr 19 - [Clarence Thomas inspires pizza chain promo deal that made 'every pie on sale, just like' the Supreme Court Justice following report he accepted vacations from GOP donor](https://news.yahoo.com/clarence-thomas-inspires-pizza-chain-211550933.html)
+- Apr 19 - [Judge: House GOP can question ex-prosecutor about Trump case](https://news.yahoo.com/judge-rule-us-rep-jim-205431749.html)
 - Apr 19 - [Man, 109, who still drives his car every day has simple tips for long life](https://news.yahoo.com/man-109-still-drives-car-203838450.html)
-- Apr 19 - [GOP-led committee strikes Marjorie Taylor Greene's 'liar' comment to Mayorkas from record](https://news.yahoo.com/gop-led-committee-strikes-marjorie-203618385.html)
-- Apr 19 - [Anti-Abortion Activist on 10-Year-Old Rape Victim: ‘A Woman’s Body Is Designed to Carry Life’](https://news.yahoo.com/anti-abortion-activist-10-old-201500389.html)
-- Apr 19 - [Shelter was worried about this gluttonous cat’s future – but it just got great news](https://news.yahoo.com/shelter-worried-gluttonous-cat-future-195255153.html)
 <!-- feed end -->
