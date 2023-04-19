@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 19 - [Crump explains why Tyre Nichols’s family filed $550M lawsuit against Memphis police](https://news.yahoo.com/crump-explains-why-tyre-nichols-193533840.html)
 - Apr 19 - [Mystery solved: Scientists ID Caribbean sea urchin killer](https://news.yahoo.com/mystery-solved-scientists-id-caribbean-181951400.html)
-- Apr 19 - [Meet the ‘elite’ couples breeding to save mankind](https://news.yahoo.com/meet-elite-couples-breeding-save-100000548.html)
 - Apr 19 - [Texas-born princess facing imminent eviction from Rome villa](https://news.yahoo.com/texas-born-princess-facing-imminent-181026870.html)
-- Apr 19 - [I started my Turo business with one car and grew my fleet to 69 cars. Now I can afford a luxury apartment and multiple vacations every year.](https://news.yahoo.com/started-turo-business-one-car-174705828.html)
 - Apr 19 - [‘Extremely rare’ creature spotted by Canadian photographer. ‘Once in a lifetime’](https://news.yahoo.com/extremely-rare-creature-spotted-canadian-174403465.html)
+- Apr 19 - [Marjorie Taylor Greene silenced in committee after accusing Mayorkas of lying](https://news.yahoo.com/marjorie-taylor-greene-silenced-committee-173752239.html)
 <!-- feed end -->
