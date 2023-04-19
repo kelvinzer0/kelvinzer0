@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 19 - [Rupert Wins Again](https://news.yahoo.com/rupert-wins-again-004602211.html)
 - Apr 18 - [‘I truly apologize’: 2 Proud Boys charged with seditious conspiracy testify in their own defense](https://news.yahoo.com/i-truly-apologize-2-proud-boys-charged-with-seditious-conspiracy-testify-in-their-own-defense-233606650.html)
+- Apr 18 - [Bill O’Reilly criticizes Fox News following settlement: ‘The nightmare will continue’](https://news.yahoo.com/bill-o-reilly-criticizes-fox-231139393.html)
 - Apr 18 - [Neighbor: Man in wrong-turn shooting disliked trespassers](https://news.yahoo.com/neighbor-man-wrong-turn-shooting-223614521.html)
-- Apr 18 - [Homeowner’s Grandson Says Ralph Yarl Shooting ‘Never Should Have Happened’](https://news.yahoo.com/homeowner-grandson-says-ralph-yarl-222159167.html)
-- Apr 18 - [Jake Tapper Loses It Over Fox News’ Spin After Dominion Settlement](https://news.yahoo.com/jake-tapper-loses-over-fox-221351877.html)
-- Apr 18 - [Lawyers for missing woman's husband want DA to be punished](https://news.yahoo.com/lawyers-missing-womans-husband-want-220059203.html)
+- Apr 18 - [Gunman’s Grandson Says Ralph Yarl Shooting ‘Never Should Have Happened’](https://news.yahoo.com/homeowner-grandson-says-ralph-yarl-222159167.html)
 <!-- feed end -->
