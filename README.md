@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 20 - [Biden 2024 campaign announcement coming as soon as next week](https://news.yahoo.com/biden-2024-campaign-announcement-coming-213248281.html)
+- Apr 20 - [Fugees rapper's case that crossed Hollywood, DC goes to jury](https://news.yahoo.com/fugees-rappers-case-crossed-hollywood-210914467.html)
+- Apr 20 - [Kansas governor vetoes bills on trans youth care, bathrooms](https://news.yahoo.com/kansas-governor-vetoes-bills-trans-210513892.html)
 - Apr 20 - [Teen brothers among five charged in Alabama party killings](https://news.yahoo.com/teenagers-charged-murder-over-alabama-154842913.html)
-- Apr 20 - [How damaging was the Dominion suit for Fox News?](https://news.yahoo.com/how-damaging-was-the-dominion-suit-for-fox-news-203714431.html)
-- Apr 20 - [California could protect sex assault victims facing lawsuits](https://news.yahoo.com/california-could-protect-sex-assault-203639325.html)
-- Apr 20 - [Court for Maine man accused of killing four people](https://news.yahoo.com/court-maine-man-accused-killing-202855226.html)
-- Apr 20 - [Gay pride parade canceled after anti-drag show law passes](https://news.yahoo.com/gay-pride-parade-canceled-anti-200949512.html)
+- Apr 20 - [Lawmaker Who Voted to Eject ‘Tennessee 3’ Resigns After Sexually Harassing Intern](https://news.yahoo.com/lawmaker-voted-eject-tennessee-3-201100806.html)
 <!-- feed end -->
