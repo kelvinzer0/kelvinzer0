@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 20 - [SpaceX rocket crashes into ocean after first Starship launched from Texas](https://news.yahoo.com/spacex-launch-live-stream-watch-113730456.html)
-- Apr 20 - [Trump's NY case: Federal appeals court temporarily blocks congressional testimomy of former prosecutor](https://news.yahoo.com/trumps-ny-case-federal-appeals-131036102.html)
+- Apr 20 - [SpaceX Starship successfully launches from Texas, then it explodes over Gulf of Mexico](https://news.yahoo.com/spacex-launch-live-stream-watch-113730456.html)
+- Apr 20 - [SpaceX rocket explodes minutes after test launch](https://news.yahoo.com/spacex-rocket-explodes-minutes-test-140829650.html)
+- Apr 20 - [‘Deeply Concerning’: Republicans Demand Answers from Biden Administration after IRS Whistleblower Claims Hunter Is Being Protected](https://news.yahoo.com/deeply-concerning-republicans-demand-answers-124642058.html)
 - Apr 20 - ["El Chapo" sons fed rivals to tigers, used corkscrews and chiles for torture, DOJ says](https://news.yahoo.com/el-chapo-sons-fed-rivals-122603952.html)
 - Apr 20 - [Disney struck a second secret agreement to mess up DeSantis’ power grab on the company, official says](https://news.yahoo.com/disney-struck-second-secret-agreement-120218135.html)
-- Apr 20 - [Marco Rubio Roasted For Complaining About Unfixed Issue In State He’s A Senator Of](https://news.yahoo.com/marco-rubio-roasted-complaining-unfixed-115024278.html)
 <!-- feed end -->
