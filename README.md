@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 20 - [Vladimir Putin is preparing to attack the UK](https://news.yahoo.com/vladimir-putin-preparing-attack-uk-174610355.html)
+- Apr 20 - [SpaceX Starship launches from Texas, then explodes over Gulf of Mexico](https://news.yahoo.com/spacex-launch-live-stream-watch-113730456.html)
+- Apr 20 - [Take a tour of Michael Jordan's Chicago mansion that's been on the market for 10 years and see why he can't sell it](https://news.yahoo.com/tour-michael-jordans-chicago-mansion-133500540.html)
 - Apr 20 - [Trapped animal goes ballistic after rescuers free it from car’s grille, WI video shows](https://news.yahoo.com/trapped-animal-goes-ballistic-rescuers-152143228.html)
-- Apr 20 - [SpaceX Starship successfully launches from Texas, then it explodes over Gulf of Mexico](https://news.yahoo.com/spacex-launch-live-stream-watch-113730456.html)
 - Apr 20 - [Mom of 2 dies from fall while working at Costco, Missouri family says. ‘I feel lost’](https://news.yahoo.com/mom-2-dies-fall-while-150041145.html)
-- Apr 20 - [SpaceX rocket explodes minutes after test launch](https://news.yahoo.com/spacex-rocket-explodes-minutes-test-140829650.html)
-- Apr 20 - [Texan princess evicted from Rome villa, Caravaggio stays](https://news.yahoo.com/texan-princess-evicted-rome-villa-131000564.html)
 <!-- feed end -->
