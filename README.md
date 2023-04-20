@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 20 - [Michelle Obama’s Jab At Donald Trump Has Jimmy Fallon In Stitches](https://news.yahoo.com/michelle-obama-jab-donald-trump-085822331.html)
+- Apr 20 - [Ron DeSantis Mocked After ‘Buzzword Diarrhea Of The Mouth’ Rant Against ‘Woke’](https://news.yahoo.com/ron-desantis-mocked-buzzword-diarrhea-083928815.html)
 - Apr 20 - [Lawrence O’Donnell: 'Too Stupid' Fox News Could've Saved $787 Million With Just 3 Words](https://news.yahoo.com/lawrence-o-donnell-too-stupid-065856354.html)
 - Apr 20 - [Little Girl, Parents Shot After Basketball Rolls Into Neighbor’s Yard: Report](https://news.yahoo.com/little-girl-parents-shot-basketball-025535069.html)
 - Apr 20 - [There are 'concerning indicators' that UFO encounters could be US adversaries, Senate panel told](https://news.yahoo.com/concerning-indicators-ufo-encounters-could-231405865.html)
-- Apr 20 - [Warriors facing new injury concerns and Draymond Green’s suspension in Game 3 vs. Kings](https://news.yahoo.com/warriors-facing-injury-concerns-draymond-012155042.html)
 <!-- feed end -->
