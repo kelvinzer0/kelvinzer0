@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 20 - [Lawrence O’Donnell: 'Too Stupid' Fox News Could've Saved $787 Million With Just 3 Words](https://news.yahoo.com/lawrence-o-donnell-too-stupid-065856354.html)
 - Apr 20 - [Little Girl, Parents Shot After Basketball Rolls Into Neighbor’s Yard: Report](https://news.yahoo.com/little-girl-parents-shot-basketball-025535069.html)
 - Apr 20 - [There are 'concerning indicators' that UFO encounters could be US adversaries, Senate panel told](https://news.yahoo.com/concerning-indicators-ufo-encounters-could-231405865.html)
 - Apr 19 - [Last minute brinkmanship and overseas assist end Fox case](https://news.yahoo.com/last-minute-brinkmanship-overseas-assist-234515479.html)
 - Apr 19 - [Irate passenger goes on angry mid-air rant over crying infant, screamed he was in a 'tin can' with a baby](https://news.yahoo.com/irate-passenger-goes-angry-mid-233809664.html)
-- Apr 19 - [Teen admits guilt to felonies in Vegas school teacher attack](https://news.yahoo.com/teen-admits-guilt-felonies-vegas-231146767.html)
 <!-- feed end -->
