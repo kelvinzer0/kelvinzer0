@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 20 - [15 Strange, Strict Demands That Studios Put In Actors' Contracts, From Forbidding Them To Cut Their Hair To Forcing Them To Get Married](https://news.yahoo.com/15-strange-strict-demands-studios-001823865.html)
+- Apr 20 - [Marco Rubio Roasted For Complaining About Unfixed Issue In State He’s A Senator Of](https://news.yahoo.com/marco-rubio-roasted-complaining-unfixed-115024278.html)
 - Apr 20 - [Michelle Obama’s Jab At Donald Trump Has Jimmy Fallon In Stitches](https://news.yahoo.com/michelle-obama-jab-donald-trump-085822331.html)
 - Apr 20 - [Ron DeSantis Mocked After ‘Buzzword Diarrhea Of The Mouth’ Rant Against ‘Woke’](https://news.yahoo.com/ron-desantis-mocked-buzzword-diarrhea-083928815.html)
 - Apr 20 - [Lawrence O’Donnell: 'Too Stupid' Fox News Could've Saved $787 Million With Just 3 Words](https://news.yahoo.com/lawrence-o-donnell-too-stupid-065856354.html)
-- Apr 20 - [Little Girl, Parents Shot After Basketball Rolls Into Neighbor’s Yard: Report](https://news.yahoo.com/little-girl-parents-shot-basketball-025535069.html)
-- Apr 20 - [There are 'concerning indicators' that UFO encounters could be US adversaries, Senate panel told](https://news.yahoo.com/concerning-indicators-ufo-encounters-could-231405865.html)
 <!-- feed end -->
