@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 20 - [Biden 2024 campaign announcement coming as soon as next week](https://news.yahoo.com/biden-2024-campaign-announcement-coming-213248281.html)
-- Apr 20 - [Fugees rapper's case that crossed Hollywood, DC goes to jury](https://news.yahoo.com/fugees-rappers-case-crossed-hollywood-210914467.html)
+- Apr 20 - [Arizona GOP loses bid to undo $18K in fees over 2020 lawsuit](https://news.yahoo.com/arizona-gop-loses-bid-undo-223342043.html)
+- Apr 20 - [Hate crime charges dropped against man who attacked Filipino family in Hollywood](https://news.yahoo.com/hate-crime-charges-dropped-against-220510398.html)
 - Apr 20 - [Kansas governor vetoes bills on trans youth care, bathrooms](https://news.yahoo.com/kansas-governor-vetoes-bills-trans-210513892.html)
-- Apr 20 - [Teen brothers among five charged in Alabama party killings](https://news.yahoo.com/teenagers-charged-murder-over-alabama-154842913.html)
+- Apr 20 - [Sword attack killer gets another 55-year prison sentence](https://news.yahoo.com/sword-attack-killer-gets-another-201226288.html)
 - Apr 20 - [Lawmaker Who Voted to Eject ‘Tennessee 3’ Resigns After Sexually Harassing Intern](https://news.yahoo.com/lawmaker-voted-eject-tennessee-3-201100806.html)
 <!-- feed end -->
