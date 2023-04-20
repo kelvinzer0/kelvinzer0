@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 20 - [Teen brothers among four charged in Alabama party killings](https://news.yahoo.com/teenagers-charged-murder-over-alabama-154842913.html)
+- Apr 20 - [Lion Takes Down A Buffalo But What He Does Next Is Truly Impressive](https://news.yahoo.com/lion-takes-down-buffalo-does-180629292.html)
 - Apr 20 - [Vladimir Putin is preparing to attack the UK](https://news.yahoo.com/vladimir-putin-preparing-attack-uk-174610355.html)
-- Apr 20 - [SpaceX Starship launches from Texas, then explodes over Gulf of Mexico](https://news.yahoo.com/spacex-launch-live-stream-watch-113730456.html)
-- Apr 20 - [Take a tour of Michael Jordan's Chicago mansion that's been on the market for 10 years and see why he can't sell it](https://news.yahoo.com/tour-michael-jordans-chicago-mansion-133500540.html)
-- Apr 20 - [Trapped animal goes ballistic after rescuers free it from car’s grille, WI video shows](https://news.yahoo.com/trapped-animal-goes-ballistic-rescuers-152143228.html)
-- Apr 20 - [Mom of 2 dies from fall while working at Costco, Missouri family says. ‘I feel lost’](https://news.yahoo.com/mom-2-dies-fall-while-150041145.html)
+- Apr 20 - [Powerful Blast from SpaceX’s Starship Damages Launch Pad and Wrecks Nearby Minivan](https://news.yahoo.com/powerful-blast-spacex-starship-damages-170800340.html)
+- Apr 20 - [Widow sues Oklahoma sheriff who discussed killing reporters](https://news.yahoo.com/widow-sues-oklahoma-sheriff-discussed-170509648.html)
 <!-- feed end -->
