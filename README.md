@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 20 - [Probe finds California police sent racist texts](https://news.yahoo.com/probe-finds-california-police-sent-003715912.html)
+- Apr 19 - [There are 'concerning indicators' that UFO encounters could be US adversaries, Senate panel told](https://news.yahoo.com/concerning-indicators-ufo-encounters-could-231405865.html)
+- Apr 19 - [Teen admits guilt to felonies in Vegas school teacher attack](https://news.yahoo.com/teen-admits-guilt-felonies-vegas-231146767.html)
+- Apr 19 - [Inmate on North Carolina’s death row has died, but not the way he wanted to](https://news.yahoo.com/inmate-north-carolina-death-row-225349816.html)
 - Apr 19 - [Suspect in wrong driveway shooting described as 'hot-tempered' during court hearing](https://news.yahoo.com/suspect-wrong-driveway-shooting-described-222407257.html)
-- Apr 19 - [Judge rules against Manhattan D.A., orders former prosecutor to testify](https://news.yahoo.com/judge-rules-against-manhattan-d-215908922.html)
-- Apr 19 - [Clarence Thomas inspires pizza chain promo deal that made 'every pie on sale, just like' the Supreme Court Justice following report he accepted vacations from GOP donor](https://news.yahoo.com/clarence-thomas-inspires-pizza-chain-211550933.html)
-- Apr 19 - [Judge: House GOP can question ex-prosecutor about Trump case](https://news.yahoo.com/judge-rule-us-rep-jim-205431749.html)
-- Apr 19 - [Man, 109, who still drives his car every day has simple tips for long life](https://news.yahoo.com/man-109-still-drives-car-203838450.html)
 <!-- feed end -->
