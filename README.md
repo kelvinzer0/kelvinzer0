@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 20 - [Probe finds California police sent racist texts](https://news.yahoo.com/probe-finds-california-police-sent-003715912.html)
-- Apr 19 - [There are 'concerning indicators' that UFO encounters could be US adversaries, Senate panel told](https://news.yahoo.com/concerning-indicators-ufo-encounters-could-231405865.html)
+- Apr 20 - [There are 'concerning indicators' that UFO encounters could be US adversaries, Senate panel told](https://news.yahoo.com/concerning-indicators-ufo-encounters-could-231405865.html)
+- Apr 20 - [Pelosi checks SCOTUS on abortion](https://news.yahoo.com/pelosi-checks-scotus-abortion-014747588.html)
+- Apr 19 - [Last minute brinkmanship and overseas assist end Fox case](https://news.yahoo.com/last-minute-brinkmanship-overseas-assist-234515479.html)
 - Apr 19 - [Teen admits guilt to felonies in Vegas school teacher attack](https://news.yahoo.com/teen-admits-guilt-felonies-vegas-231146767.html)
 - Apr 19 - [Inmate on North Carolina’s death row has died, but not the way he wanted to](https://news.yahoo.com/inmate-north-carolina-death-row-225349816.html)
-- Apr 19 - [Suspect in wrong driveway shooting described as 'hot-tempered' during court hearing](https://news.yahoo.com/suspect-wrong-driveway-shooting-described-222407257.html)
 <!-- feed end -->
