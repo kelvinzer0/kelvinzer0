@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 20 - [Charge to be dropped in Alec Baldwin movie set shooting](https://news.yahoo.com/charge-dropped-alec-baldwin-movie-194959873.html)
-- Apr 20 - [White House: Florida's 'Don't Say Gay' bill expansion 'devastating' for public education](https://news.yahoo.com/white-house-floridas-dont-gay-193852591.html)
-- Apr 20 - [Female Volleyball Player Testifies to Physical, Mental Trauma since Injury by Trans Athlete](https://news.yahoo.com/female-volleyball-player-testifies-physical-185218911.html)
-- Apr 20 - [Teen brothers among four charged in Alabama party killings](https://news.yahoo.com/teenagers-charged-murder-over-alabama-154842913.html)
-- Apr 20 - [Lion Takes Down A Buffalo But What He Does Next Is Truly Impressive](https://news.yahoo.com/lion-takes-down-buffalo-does-180629292.html)
+- Apr 20 - [Teen brothers among five charged in Alabama party killings](https://news.yahoo.com/teenagers-charged-murder-over-alabama-154842913.html)
+- Apr 20 - [How damaging was the Dominion suit for Fox News?](https://news.yahoo.com/how-damaging-was-the-dominion-suit-for-fox-news-203714431.html)
+- Apr 20 - [California could protect sex assault victims facing lawsuits](https://news.yahoo.com/california-could-protect-sex-assault-203639325.html)
+- Apr 20 - [Court for Maine man accused of killing four people](https://news.yahoo.com/court-maine-man-accused-killing-202855226.html)
+- Apr 20 - [Gay pride parade canceled after anti-drag show law passes](https://news.yahoo.com/gay-pride-parade-canceled-anti-200949512.html)
 <!-- feed end -->
