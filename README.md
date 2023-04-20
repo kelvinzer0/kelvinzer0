@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 20 - [There are 'concerning indicators' that UFO encounters could be US adversaries, Senate panel told](https://news.yahoo.com/concerning-indicators-ufo-encounters-could-231405865.html)
-- Apr 20 - [Pelosi checks SCOTUS on abortion](https://news.yahoo.com/pelosi-checks-scotus-abortion-014747588.html)
 - Apr 19 - [Last minute brinkmanship and overseas assist end Fox case](https://news.yahoo.com/last-minute-brinkmanship-overseas-assist-234515479.html)
+- Apr 19 - [Irate passenger goes on angry mid-air rant over crying infant, screamed he was in a 'tin can' with a baby](https://news.yahoo.com/irate-passenger-goes-angry-mid-233809664.html)
 - Apr 19 - [Teen admits guilt to felonies in Vegas school teacher attack](https://news.yahoo.com/teen-admits-guilt-felonies-vegas-231146767.html)
 - Apr 19 - [Inmate on North Carolina’s death row has died, but not the way he wanted to](https://news.yahoo.com/inmate-north-carolina-death-row-225349816.html)
 <!-- feed end -->
