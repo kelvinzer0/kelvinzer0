@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 20 - [Charge to be dropped in Alec Baldwin movie set shooting](https://news.yahoo.com/charge-dropped-alec-baldwin-movie-194959873.html)
+- Apr 20 - [White House: Florida's 'Don't Say Gay' bill expansion 'devastating' for public education](https://news.yahoo.com/white-house-floridas-dont-gay-193852591.html)
+- Apr 20 - [Female Volleyball Player Testifies to Physical, Mental Trauma since Injury by Trans Athlete](https://news.yahoo.com/female-volleyball-player-testifies-physical-185218911.html)
 - Apr 20 - [Teen brothers among four charged in Alabama party killings](https://news.yahoo.com/teenagers-charged-murder-over-alabama-154842913.html)
 - Apr 20 - [Lion Takes Down A Buffalo But What He Does Next Is Truly Impressive](https://news.yahoo.com/lion-takes-down-buffalo-does-180629292.html)
-- Apr 20 - [Vladimir Putin is preparing to attack the UK](https://news.yahoo.com/vladimir-putin-preparing-attack-uk-174610355.html)
-- Apr 20 - [Powerful Blast from SpaceX’s Starship Damages Launch Pad and Wrecks Nearby Minivan](https://news.yahoo.com/powerful-blast-spacex-starship-damages-170800340.html)
-- Apr 20 - [Widow sues Oklahoma sheriff who discussed killing reporters](https://news.yahoo.com/widow-sues-oklahoma-sheriff-discussed-170509648.html)
 <!-- feed end -->
