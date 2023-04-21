@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 21 - [17 Times Celebs Got Caught Being Rude To The Crew And Staff](https://news.yahoo.com/17-times-celebs-got-caught-035052347.html)
+- Apr 21 - [Report: Authorities Have Weighed Charges, Including 2 Possible Felonies, Against Hunter Biden](https://news.yahoo.com/report-authorities-weighed-charges-including-005505746.html)
 - Apr 20 - [Transgender lawmaker silenced by Montana House speaker](https://news.yahoo.com/transgender-lawmaker-silenced-montana-house-225544896.html)
 - Apr 20 - [Arizona GOP loses bid to undo $18K in fees over 2020 lawsuit](https://news.yahoo.com/arizona-gop-loses-bid-undo-223342043.html)
 - Apr 20 - [The F-35 is becoming the most popular fighter jet among NATO militaries — with one 'baffling' exception](https://news.yahoo.com/f-35-becoming-most-popular-220900609.html)
-- Apr 20 - [Hate crime charges dropped against man who attacked Filipino family in Hollywood](https://news.yahoo.com/hate-crime-charges-dropped-against-220510398.html)
-- Apr 20 - [Lake Mead could get a lot more Colorado River water. What changed so quickly?](https://news.yahoo.com/lake-mead-could-lot-more-213126024.html)
 <!-- feed end -->
