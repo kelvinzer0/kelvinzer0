@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 21 - [Rare turkey shot on opening day of the Tennessee season. See the ‘bird of a lifetime’](https://news.yahoo.com/rare-turkey-shot-opening-day-203735139.html)
+- Apr 21 - ['This is the last straw': Jackson advocates plan to fight new Miss. law creating unelected court system](https://news.yahoo.com/this-is-the-last-straw-jackson-advocates-plan-to-fight-new-miss-law-creating-unelected-court-system-200012519.html)
+- Apr 21 - [Montana Republicans Vote to Stop Their First Trans Colleague from Speaking, Ever](https://news.yahoo.com/montana-republicans-vote-stop-first-195000163.html)
 - Apr 21 - [Minnesota officer who fatally shot Daunte Wright to be freed](https://news.yahoo.com/minnesota-officer-fatally-shot-daunte-190647689.html)
 - Apr 21 - [She checked into the ER and was discharged. Then she got in her car, Florida cops say](https://news.yahoo.com/she-checked-er-discharged-then-184710923.html)
-- Apr 21 - [Creature as massive as it is rare seen splashing off UK coast in ‘mesmerizing’ video](https://news.yahoo.com/creature-massive-rare-seen-splashing-180205165.html)
-- Apr 21 - [Fatal crash sparks fire on major Connecticut highway bridge](https://news.yahoo.com/fatal-crash-sparks-fire-major-180045616.html)
-- Apr 21 - [Indian government calls same-sex marriage an 'urban elitist view' — and other world news you may have missed](https://news.yahoo.com/indian-government-gay-marriage-world-news-you-missed-142703691.html)
 <!-- feed end -->
