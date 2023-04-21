@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 20 - [Transgender lawmaker silenced by Montana House speaker](https://news.yahoo.com/transgender-lawmaker-silenced-montana-house-225544896.html)
 - Apr 20 - [Arizona GOP loses bid to undo $18K in fees over 2020 lawsuit](https://news.yahoo.com/arizona-gop-loses-bid-undo-223342043.html)
+- Apr 20 - [The F-35 is becoming the most popular fighter jet among NATO militaries — with one 'baffling' exception](https://news.yahoo.com/f-35-becoming-most-popular-220900609.html)
 - Apr 20 - [Hate crime charges dropped against man who attacked Filipino family in Hollywood](https://news.yahoo.com/hate-crime-charges-dropped-against-220510398.html)
-- Apr 20 - [Kansas governor vetoes bills on trans youth care, bathrooms](https://news.yahoo.com/kansas-governor-vetoes-bills-trans-210513892.html)
-- Apr 20 - [Sword attack killer gets another 55-year prison sentence](https://news.yahoo.com/sword-attack-killer-gets-another-201226288.html)
-- Apr 20 - [Lawmaker Who Voted to Eject ‘Tennessee 3’ Resigns After Sexually Harassing Intern](https://news.yahoo.com/lawmaker-voted-eject-tennessee-3-201100806.html)
+- Apr 20 - [Lake Mead could get a lot more Colorado River water. What changed so quickly?](https://news.yahoo.com/lake-mead-could-lot-more-213126024.html)
 <!-- feed end -->
