@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 21 - [Teen brothers among five charged in Alabama party killings](https://news.yahoo.com/teenagers-charged-murder-over-alabama-154842913.html)
+- Apr 21 - [A man bought $250,000 of plane tickets for $17,000 after a Japanese airline made a mistake with currency conversions, report says](https://news.yahoo.com/man-bought-250-000-plane-124241145.html)
+- Apr 21 - [Calling beer Champagne leaves French producers frothing](https://news.yahoo.com/calling-beer-champagne-leaves-french-114313008.html)
 - Apr 21 - [Hakeem Jeffries Tears Into 'Totally Out Of Control' Marjorie Taylor Greene](https://news.yahoo.com/hakeem-jeffries-tears-totally-control-104428009.html)
 - Apr 21 - [1,000-year-old Viking coins unearthed by young girl with metal detector](https://news.yahoo.com/1-000-old-viking-coins-104000120.html)
 - Apr 21 - [Fox News alert: Andrew Lester didn’t act alone, even if only he shot Ralph Yarl | Opinion](https://news.yahoo.com/fox-news-alert-andrew-lester-100000182.html)
-- Apr 21 - [Russia's air force accidentally bombs own city of Belgorod](https://news.yahoo.com/russias-air-force-accidentally-bombs-094641103.html)
 <!-- feed end -->
