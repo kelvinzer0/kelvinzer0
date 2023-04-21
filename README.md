@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 21 - [A DoorDash driver confronted a woman for falsely claiming her order never arrived — but the viral TikTok saga got him kicked off the platform](https://news.yahoo.com/doordash-driver-confronted-woman-falsely-160351635.html)
+- Apr 21 - [Indian government calls same-sex marriage an 'urban elitist view' — and other world news you may have missed](https://news.yahoo.com/indian-government-gay-marriage-world-news-you-missed-142703691.html)
+- Apr 21 - [Student thrown from car roof in ‘stunt’ at Florida school, video shows. ‘Reckless’](https://news.yahoo.com/student-thrown-car-roof-stunt-141153033.html)
 - Apr 21 - [Indiana woman charged with federal hate crime in bus attack](https://news.yahoo.com/indiana-woman-charged-federal-hate-134750820.html)
 - Apr 21 - [L.A. Councilwoman Blames Toyota for Catalytic-Converter Theft, Opposes Motion Targeting Thieves](https://news.yahoo.com/l-councilwoman-blames-toyota-catalytic-133800854.html)
-- Apr 21 - [A man bought $250,000 of plane tickets for $17,000 after a Japanese airline made a mistake with currency conversions, report says](https://news.yahoo.com/man-bought-250-000-plane-124241145.html)
-- Apr 21 - [Hakeem Jeffries Tears Into 'Totally Out Of Control' Marjorie Taylor Greene](https://news.yahoo.com/hakeem-jeffries-tears-totally-control-104428009.html)
-- Apr 21 - [1,000-year-old Viking coins unearthed by young girl with metal detector](https://news.yahoo.com/1-000-old-viking-coins-104000120.html)
 <!-- feed end -->
