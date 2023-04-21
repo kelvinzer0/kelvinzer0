@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Apr 21 - [Rare turkey shot on opening day of the Tennessee season. See the ‘bird of a lifetime’](https://news.yahoo.com/rare-turkey-shot-opening-day-203735139.html)
 - Apr 21 - ['This is the last straw': Jackson advocates plan to fight new Miss. law creating unelected court system](https://news.yahoo.com/this-is-the-last-straw-jackson-advocates-plan-to-fight-new-miss-law-creating-unelected-court-system-200012519.html)
 - Apr 21 - [Montana Republicans Vote to Stop Their First Trans Colleague from Speaking, Ever](https://news.yahoo.com/montana-republicans-vote-stop-first-195000163.html)
+- Apr 21 - [Poll: How do Americans feel about a Trump-Biden rematch? ‘Exhaustion’ tops the list.](https://news.yahoo.com/poll-how-do-americans-feel-about-a-trump-biden-rematch-exhaustion-tops-the-list-194012965.html)
 - Apr 21 - [Minnesota officer who fatally shot Daunte Wright to be freed](https://news.yahoo.com/minnesota-officer-fatally-shot-daunte-190647689.html)
-- Apr 21 - [She checked into the ER and was discharged. Then she got in her car, Florida cops say](https://news.yahoo.com/she-checked-er-discharged-then-184710923.html)
 <!-- feed end -->
