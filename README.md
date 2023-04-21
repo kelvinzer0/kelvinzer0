@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 21 - [Minnesota officer who fatally shot Daunte Wright to be freed](https://news.yahoo.com/minnesota-officer-fatally-shot-daunte-190647689.html)
+- Apr 21 - [She checked into the ER and was discharged. Then she got in her car, Florida cops say](https://news.yahoo.com/she-checked-er-discharged-then-184710923.html)
+- Apr 21 - [Creature as massive as it is rare seen splashing off UK coast in ‘mesmerizing’ video](https://news.yahoo.com/creature-massive-rare-seen-splashing-180205165.html)
+- Apr 21 - [Fatal crash sparks fire on major Connecticut highway bridge](https://news.yahoo.com/fatal-crash-sparks-fire-major-180045616.html)
 - Apr 21 - [Indian government calls same-sex marriage an 'urban elitist view' — and other world news you may have missed](https://news.yahoo.com/indian-government-gay-marriage-world-news-you-missed-142703691.html)
-- Apr 21 - [I’m a plumber — here’s 1 thing I’d never flush that clogs my clients’ toilets](https://news.yahoo.com/m-plumber-1-thing-d-141505146.html)
-- Apr 21 - [Student thrown from car roof in ‘stunt’ at Florida school, video shows. ‘Reckless’](https://news.yahoo.com/student-thrown-car-roof-stunt-141153033.html)
-- Apr 21 - [Indiana woman charged with federal hate crime in bus attack](https://news.yahoo.com/indiana-woman-charged-federal-hate-134750820.html)
-- Apr 21 - [L.A. Councilwoman Blames Toyota for Catalytic-Converter Theft, Opposes Motion Targeting Thieves](https://news.yahoo.com/l-councilwoman-blames-toyota-catalytic-133800854.html)
 <!-- feed end -->
