@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 21 - [17 Times Celebs Got Caught Being Rude To The Crew And Staff](https://news.yahoo.com/17-times-celebs-got-caught-035052347.html)
+- Apr 21 - [Mexico finally sells unwanted presidential jet to Tajikistan](https://news.yahoo.com/mexico-finally-sells-unwanted-presidential-014406354.html)
 - Apr 21 - [Report: Authorities Have Weighed Charges, Including 2 Possible Felonies, Against Hunter Biden](https://news.yahoo.com/report-authorities-weighed-charges-including-005505746.html)
 - Apr 20 - [Transgender lawmaker silenced by Montana House speaker](https://news.yahoo.com/transgender-lawmaker-silenced-montana-house-225544896.html)
 - Apr 20 - [Arizona GOP loses bid to undo $18K in fees over 2020 lawsuit](https://news.yahoo.com/arizona-gop-loses-bid-undo-223342043.html)
