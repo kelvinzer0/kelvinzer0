@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 21 - [‘Unnerving’: Kings fans react online after big road loss to Warriors in Game 3](https://news.yahoo.com/unnerving-kings-fans-react-online-050243399.html)
 - Apr 21 - [Sen. Ted Cruz's Telling Call With Fox Business Host Caught On Newly Released Tape](https://news.yahoo.com/sen-ted-cruzs-telling-call-031531751.html)
 - Apr 21 - [Mexico finally sells unwanted presidential jet to Tajikistan](https://news.yahoo.com/mexico-finally-sells-unwanted-presidential-014406354.html)
 - Apr 20 - [Transgender lawmaker silenced by Montana House speaker](https://news.yahoo.com/transgender-lawmaker-silenced-montana-house-225544896.html)
 - Apr 20 - [The F-35 is becoming the most popular fighter jet among NATO militaries — with one 'baffling' exception](https://news.yahoo.com/f-35-becoming-most-popular-220900609.html)
-- Apr 20 - [Hate crime charges dropped against man who attacked Filipino family in Hollywood](https://news.yahoo.com/hate-crime-charges-dropped-against-220510398.html)
 <!-- feed end -->
