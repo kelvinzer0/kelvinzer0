@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 22 - [Shannen Doherty files for divorce after 11-year marriage](https://news.yahoo.com/shannen-doherty-files-divorce-11-164221043.html)
+- Apr 22 - [What happens when we find aliens? The Pentagon has a plan — and more space stories you may have missed](https://news.yahoo.com/pentagon-aliens-outer-space-news-153045766.html)
 - Apr 22 - [A former Meta recruiter paid about $200,000 a year says her team 'did nothing' as there 'really wasn't enough work:' report](https://news.yahoo.com/former-meta-recruiter-paid-200-144500635.html)
 - Apr 22 - [Oklahoma county worried about fallout from racist recording](https://news.yahoo.com/oklahoma-county-worried-fallout-racist-143002459.html)
 - Apr 22 - [Anheuser-Busch Announces Staffing Shake-Up after Dylan Mulvaney Controversy](https://news.yahoo.com/anheuser-busch-announces-staffing-shake-141553583.html)
-- Apr 22 - [Explorers find WWII ship sunk with over 1,000 Allied POWs](https://news.yahoo.com/explorers-wwii-ship-sunk-over-113007002.html)
+- Apr 22 - [Meghan Wrote to Charles Identifying the ‘Royal Racist’](https://news.yahoo.com/meghan-wrote-charles-identifying-royal-140835695.html)
 <!-- feed end -->
