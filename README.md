@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 22 - [22-year-old NBA player retires, saying anxiety from playing basketball led to 'the darkest times' of his life](https://news.yahoo.com/22-old-nba-player-retires-163343728.html)
+- Apr 22 - [Jury awards $96 million to mom whose son and husband died on I-75 while driving to funeral](https://news.yahoo.com/jury-awards-96-million-mom-100216872.html)
+- Apr 22 - [A California journalist documents the far-right takeover of her town: ‘We’re a test case’](https://news.yahoo.com/california-journalist-documents-far-takeover-050002081.html)
 - Apr 22 - [What happens when we find aliens? The Pentagon has a plan — and more space stories you may have missed](https://news.yahoo.com/pentagon-aliens-outer-space-news-153045766.html)
 - Apr 22 - [Oklahoma county worried about fallout from racist recording](https://news.yahoo.com/oklahoma-county-worried-fallout-racist-143002459.html)
 - Apr 22 - [Anheuser-Busch Announces Staffing Shake-Up after Dylan Mulvaney Controversy](https://news.yahoo.com/anheuser-busch-announces-staffing-shake-141553583.html)
-- Apr 22 - [Meghan Wrote to Charles Identifying the ‘Royal Racist’](https://news.yahoo.com/meghan-wrote-charles-identifying-royal-140835695.html)
 <!-- feed end -->
