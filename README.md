@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 22 - [Prince Louis pushed in wheelbarrow by Kate in photography for fith birthday](https://news.yahoo.com/prince-louis-pushed-wheelbarrow-kate-213000874.html)
 - Apr 22 - [Greene silencing leads to new pledges of civility](https://news.yahoo.com/greene-silencing-leads-pledges-civility-210000284.html)
+- Apr 22 - [This Iowa Dairy Queen is a 'good place for u kno what' according to America's longest-serving senator. But when I gave it a try, I came away disappointed.](https://news.yahoo.com/iowa-dairy-queen-good-place-204330501.html)
+- Apr 22 - [New Rule The Cojones Awards Real Time with Bill Maher (HBO)](https://news.yahoo.com/rule-cojones-awards-real-time-203634842.html)
 - Apr 22 - [Jury awards $96 million to mom whose son and husband died on I-75 while driving to funeral](https://news.yahoo.com/jury-awards-96-million-mom-100216872.html)
-- Apr 22 - [Man Who Shot 6-Year-Old Girl Over Stray Basketball Had Previously Kidnapped, Beat His Girlfriend](https://news.yahoo.com/man-shot-6-old-girl-200500840.html)
-- Apr 22 - [Cruise line let passenger's body decompose, lawsuit says](https://news.yahoo.com/cruise-line-let-passengers-body-195621983.html)
 <!-- feed end -->
