@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 21 - [Ben Affleck says he and Matt Damon blew through the $110,000 they'd each made selling 'Good Will Hunting' and went 'broke in 6 months'](https://news.yahoo.com/ben-affleck-says-matt-damon-234500915.html)
+- Apr 21 - [Alabama education director ousted over 'woke' training book](https://news.yahoo.com/alabama-education-director-ousted-over-234450832.html)
 - Apr 21 - [Former NBA star convicted of killing Atlanta mother of 4 to be released from prison](https://news.yahoo.com/former-nba-star-convicted-killing-211706496.html)
 - Apr 21 - [Jury awards $96M in crash that killed baseball star and dad](https://news.yahoo.com/jury-awards-96m-crash-killed-204527689.html)
-- Apr 21 - [Colin Kaepernick to pay for autopsy of inmate family says was "eaten alive" by bugs](https://news.yahoo.com/colin-kaepernick-pay-autopsy-inmate-204311802.html)
 - Apr 21 - [Rare turkey shot on opening day of the Tennessee season. See the ‘bird of a lifetime’](https://news.yahoo.com/rare-turkey-shot-opening-day-203735139.html)
-- Apr 21 - ['This is the last straw': Jackson advocates plan to fight new Miss. law creating unelected court system](https://news.yahoo.com/this-is-the-last-straw-jackson-advocates-plan-to-fight-new-miss-law-creating-unelected-court-system-200012519.html)
 <!-- feed end -->
