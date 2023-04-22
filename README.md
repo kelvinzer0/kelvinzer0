@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 22 - [Police: 8 people, including girl, wounded in 2 DC shootings](https://news.yahoo.com/police-8-people-including-girl-071116875.html)
-- Apr 22 - [Mexico migrant camp tents torched across border from Texas](https://news.yahoo.com/mexico-migrant-camp-tents-torched-051225722.html)
 - Apr 22 - [Trump Hands Pizza To Floridians, And Twitter Users Don't Dig His Delivery Style](https://news.yahoo.com/trump-hands-pizza-floridians-twitter-041209670.html)
 - Apr 22 - [Samuel Alito used his dissent in the abortion pill ruling to call out 3 justices in an act of judiciary 'theater,' SCOTUS expert says](https://news.yahoo.com/samuel-alito-used-dissent-abortion-020941934.html)
+- Apr 22 - [House Republicans, Manhattan DA end fight over Trump inquiry](https://news.yahoo.com/house-republicans-manhattan-da-end-005335284.html)
 - Apr 22 - [U.S. Marine gets 12 years for cross-border drug smuggling](https://news.yahoo.com/u-marine-gets-12-years-003626942.html)
 <!-- feed end -->
