@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 22 - [Accused Pentagon leaker Jack Teixeira posted sensitive US intelligence less than 48 hours after the Ukraine war began, a report says](https://news.yahoo.com/accused-pentagon-leaker-jack-teixeira-121641006.html)
 - Apr 22 - [Explorers find WWII ship sunk with over 1,000 Allied POWs](https://news.yahoo.com/explorers-wwii-ship-sunk-over-113007002.html)
 - Apr 22 - [This could be why your hair turns gray — and other health stories you may have missed](https://news.yahoo.com/hair-turning-gray-health-stories-you-missed-110009967.html)
 - Apr 22 - [A woman dumped her boyfriend as he wouldn't let her post pictures of him. When she suspected he cheated, she turned to TikTok to find out the truth.](https://news.yahoo.com/woman-dumped-her-boyfriend-wouldnt-110000814.html)
-- Apr 22 - [Mexico migrant camp tents torched across border from Texas](https://news.yahoo.com/mexico-migrant-camp-tents-torched-051225722.html)
-- Apr 22 - [Trump Hands Pizza To Floridians, And Twitter Users Don't Dig His Delivery Style](https://news.yahoo.com/trump-hands-pizza-floridians-twitter-041209670.html)
+- Apr 22 - [Japan gets ready to shoot down N. Korea spy satellite debris](https://news.yahoo.com/japan-gets-ready-shoot-down-093317233.html)
 <!-- feed end -->
