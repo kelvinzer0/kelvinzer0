@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 22 - [Trump Hands Pizza To Floridians, And Twitter Users Don't Dig His Delivery Style](https://news.yahoo.com/trump-hands-pizza-floridians-twitter-041209670.html)
 - Apr 22 - [Samuel Alito used his dissent in the abortion pill ruling to call out 3 justices in an act of judiciary 'theater,' SCOTUS expert says](https://news.yahoo.com/samuel-alito-used-dissent-abortion-020941934.html)
+- Apr 22 - [Michigan jail guards’ sentences of community service for inmate’s death not enough, family says](https://news.yahoo.com/michigan-jail-guards-sentences-community-005625902.html)
 - Apr 22 - [House Republicans, Manhattan DA end fight over Trump inquiry](https://news.yahoo.com/house-republicans-manhattan-da-end-005335284.html)
-- Apr 22 - [Agents busted a counterfeit money operation in Ohio after getting a tip about a suspect who 'sucks his thumb' and 'lives with his grandmother'](https://news.yahoo.com/agents-busted-counterfeit-money-operation-001651549.html)
-- Apr 21 - [Ben Affleck says he and Matt Damon blew through the $110,000 they'd each made selling 'Good Will Hunting' and went 'broke in 6 months'](https://news.yahoo.com/ben-affleck-says-matt-damon-234500915.html)
-- Apr 21 - [Alabama education director ousted over 'woke' training book](https://news.yahoo.com/alabama-education-director-ousted-over-234450832.html)
+- Apr 22 - [U.S. Marine gets 12 years for cross-border drug smuggling](https://news.yahoo.com/u-marine-gets-12-years-003626942.html)
 <!-- feed end -->
