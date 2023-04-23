@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 23 - [21 bodies dug up in cult probe of Kenya pastor](https://news.yahoo.com/21-bodies-dug-cult-probe-174657215.html)
+- Apr 23 - [18 northern US states will be able to see the northern lights tonight. Here's where.](https://news.yahoo.com/18-northern-us-states-able-165804133.html)
 - Apr 23 - [Lindsey Graham Erupts at CNN’s Dana Bash in Tense Exchange Over Abortion Access](https://news.yahoo.com/lindsey-graham-erupts-cnn-dana-150206213.html)
 - Apr 23 - [Eureka! After California’s Heavy Rains, Gold Seekers Are Giddy.](https://news.yahoo.com/eureka-california-heavy-rains-gold-144231590.html)
-- Apr 23 - [I upgraded my Amtrak seat to a 23-square-foot roomette for just $110. Here's what my 15-hour train ride was like.](https://news.yahoo.com/upgraded-amtrak-seat-23-square-142200289.html)
-- Apr 23 - [A 2000-year-old Roman bust that was sold for $35 at a Goodwill in Texas is heading back to its 'rightful' home in Germany](https://news.yahoo.com/2000-old-roman-bust-sold-135338678.html)
-- Apr 23 - [I went on a 22-day cruise around South America and Antarctica for $114 a day. Here are 10 things that surprised me.](https://news.yahoo.com/went-22-day-cruise-around-132500748.html)
+- Apr 23 - [Inside India's 15,000 extravagant, abandoned mansions, built by spice and gem tycoons and left to decay](https://news.yahoo.com/inside-indias-15-000-extravagant-143400654.html)
 <!-- feed end -->
