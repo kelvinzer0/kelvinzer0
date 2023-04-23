@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 23 - [Former Vice President Mike Pence on President Biden in 2024](https://news.yahoo.com/former-vice-president-mike-pence-143000422.html)
+- Apr 23 - [A 2000-year-old Roman bust that was sold for $35 at a Goodwill in Texas is heading back to its 'rightful' home in Germany](https://news.yahoo.com/2000-old-roman-bust-sold-135338678.html)
 - Apr 23 - [Fox's settlement with Dominion unlikely to cost it $787.5M](https://news.yahoo.com/foxs-settlement-dominion-unlikely-cost-120054131.html)
 - Apr 23 - [Ukrainian soldiers eliminate Wagner mercenary in close combat – video](https://news.yahoo.com/ukrainian-soldiers-eliminate-wagner-mercenary-110700661.html)
 - Apr 23 - [Road to Ga. beach party turns violent with at least 8 injured in crashes, shooting, lawmakers say](https://news.yahoo.com/road-ga-beach-party-turns-105821355.html)
-- Apr 23 - [Man died in Clay County jail, unable to afford bond. His crime? Not paying child support](https://news.yahoo.com/man-died-clay-county-jail-100000809.html)
-- Apr 23 - [I'm a car dealer. Here are the things customers get dead wrong about our business.](https://news.yahoo.com/im-car-dealer-things-customers-094500604.html)
 <!-- feed end -->
