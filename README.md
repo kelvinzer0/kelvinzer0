@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 23 - [15 Times Celebs Were Financially Responsible With Their Wealth And Lived Below Their Means](https://news.yahoo.com/15-times-celebs-were-financially-031755842.html)
 - Apr 23 - [Man died in Clay County jail, unable to afford bond. His crime? Not paying child support](https://news.yahoo.com/man-died-clay-county-jail-100000809.html)
+- Apr 23 - [The worst bird flu outbreak in US history is 'wiping out everything in numbers we've never seen before.' Here's what you need to know.](https://news.yahoo.com/worst-bird-flu-outbreak-us-094153829.html)
 - Apr 23 - [Ukraine latest: Hundreds of dead Russian soldiers found on battlefields](https://news.yahoo.com/ukraine-latest-hundreds-dead-russian-085136225.html)
 - Apr 23 - [The Saudi crown prince wants to build a trillion-dollar utopia in the desert. His deals with China reveal a darker vision.](https://news.yahoo.com/saudi-crown-prince-wants-build-081700837.html)
 - Apr 23 - [Trump Pans DeSantis At GOP Dinner And His Florida Audience Barely Makes A Peep](https://news.yahoo.com/trump-pans-desantis-gop-dinner-052049849.html)
