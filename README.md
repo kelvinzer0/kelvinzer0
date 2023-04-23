@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 23 - [15 Times Celebs Were Financially Responsible With Their Wealth And Lived Below Their Means](https://news.yahoo.com/15-times-celebs-were-financially-031755842.html)
+- Apr 23 - [Man died in Clay County jail, unable to afford bond. His crime? Not paying child support](https://news.yahoo.com/man-died-clay-county-jail-100000809.html)
+- Apr 23 - [Ukraine latest: Hundreds of dead Russian soldiers found on battlefields](https://news.yahoo.com/ukraine-latest-hundreds-dead-russian-085136225.html)
 - Apr 23 - [The Saudi crown prince wants to build a trillion-dollar utopia in the desert. His deals with China reveal a darker vision.](https://news.yahoo.com/saudi-crown-prince-wants-build-081700837.html)
 - Apr 23 - [Trump Pans DeSantis At GOP Dinner And His Florida Audience Barely Makes A Peep](https://news.yahoo.com/trump-pans-desantis-gop-dinner-052049849.html)
-- Apr 23 - [Unprepared for long war, US Army under gun to make more ammo](https://news.yahoo.com/unprepared-long-war-us-army-050355159.html)
-- Apr 23 - [Grizzlies' Dillon Brooks tossed for blow to LeBron in Game 3](https://news.yahoo.com/grizzlies-dillon-brooks-tossed-blow-034505230.html)
-- Apr 22 - [At Grizzlies-Lakers Game 2, a fight in FedExForum crowd went viral. Here's what happened](https://news.yahoo.com/grizzlies-lakers-game-2-fight-233355943.html)
 <!-- feed end -->
