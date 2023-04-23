@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Apr 23 - [Eureka! After California’s Heavy Rains, Gold Seekers Are Giddy.](https://news.yahoo.com/eureka-california-heavy-rains-gold-144231590.html)
 - Apr 23 - [I upgraded my Amtrak seat to a 23-square-foot roomette for just $110. Here's what my 15-hour train ride was like.](https://news.yahoo.com/upgraded-amtrak-seat-23-square-142200289.html)
 - Apr 23 - [A 2000-year-old Roman bust that was sold for $35 at a Goodwill in Texas is heading back to its 'rightful' home in Germany](https://news.yahoo.com/2000-old-roman-bust-sold-135338678.html)
-- Apr 23 - [Ukrainian troops have established a bridgehead on the east bank of the Dnipro river, implying Russia's defensive positions are weakening, report says](https://news.yahoo.com/ukrainian-troops-established-bridgehead-east-131645210.html)
+- Apr 23 - [I went on a 22-day cruise around South America and Antarctica for $114 a day. Here are 10 things that surprised me.](https://news.yahoo.com/went-22-day-cruise-around-132500748.html)
 <!-- feed end -->
