@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 23 - [Grizzlies' Dillon Brooks tossed for blow to LeBron in Game 3](https://news.yahoo.com/grizzlies-dillon-brooks-tossed-blow-034505230.html)
+- Apr 22 - [At Grizzlies-Lakers Game 2, a fight in FedExForum crowd went viral. Here's what happened](https://news.yahoo.com/grizzlies-lakers-game-2-fight-233355943.html)
 - Apr 22 - [Coach Prime, Buffs stage quite the show in snowy spring game](https://news.yahoo.com/coach-prime-buffs-stage-quite-232229272.html)
 - Apr 22 - [Prince Louis pushed in wheelbarrow by Kate in photography for fith birthday](https://news.yahoo.com/prince-louis-pushed-wheelbarrow-kate-213000874.html)
 - Apr 22 - [Ken Potts, one of last 2 USS Arizona survivors, dies at 102](https://news.yahoo.com/ken-potts-one-last-2-210819490.html)
-- Apr 22 - [Greene silencing leads to new pledges of civility](https://news.yahoo.com/greene-silencing-leads-pledges-civility-210000284.html)
-- Apr 22 - [Jury awards $96 million to mom whose son and husband died on I-75 while driving to funeral](https://news.yahoo.com/jury-awards-96-million-mom-100216872.html)
 <!-- feed end -->
