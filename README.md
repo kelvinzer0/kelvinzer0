@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 23 - [90 Twitter Jokes From This Year So Far That, No Offense, Are Funnier Than Any Joke You've Probably Ever Told](https://news.yahoo.com/90-twitter-jokes-far-no-035004846.html)
+- Apr 23 - [Trump to publish letter from the King 'without his permission'](https://news.yahoo.com/trump-publish-letter-king-without-204121630.html)
 - Apr 23 - [Russian warns G-7 'idiots'; Russian mercenaries to stop taking POWs, 'kill everyone on battlefield': Live updates](https://news.yahoo.com/russian-issues-warning-g7-idiots-142302871.html)
 - Apr 23 - [30 northern US states will be able to see the northern lights tonight. Here's where.](https://news.yahoo.com/18-northern-us-states-able-165804133.html)
-- Apr 23 - [Kourtney Kardashian Responds to CRITICISM Over Her Birthday Flowers](https://news.yahoo.com/kourtney-kardashian-responds-criticism-over-195230605.html)
-- Apr 23 - [Gunfire took their son at 20. Now it takes his daughter, 12](https://news.yahoo.com/gunfire-took-son-20-now-174405215.html)
-- Apr 23 - [17 Absolutely Wild Wedding Day Stories From Wedding Professionals That Made My Jaw Drop](https://news.yahoo.com/17-absolutely-wild-wedding-day-210557654.html)
+- Apr 23 - ['This was supposed to be our forever home': 2 Utah houses slide down a cliff months after residents were forced to evacuate](https://news.yahoo.com/supposed-forever-home-2-utah-193332558.html)
 <!-- feed end -->
