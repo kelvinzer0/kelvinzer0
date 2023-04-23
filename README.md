@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 23 - [Former Vice President Mike Pence on President Biden in 2024](https://news.yahoo.com/former-vice-president-mike-pence-143000422.html)
+- Apr 23 - [Lindsey Graham Erupts at CNN’s Dana Bash in Tense Exchange Over Abortion Access](https://news.yahoo.com/lindsey-graham-erupts-cnn-dana-150206213.html)
+- Apr 23 - [Eureka! After California’s Heavy Rains, Gold Seekers Are Giddy.](https://news.yahoo.com/eureka-california-heavy-rains-gold-144231590.html)
+- Apr 23 - [I upgraded my Amtrak seat to a 23-square-foot roomette for just $110. Here's what my 15-hour train ride was like.](https://news.yahoo.com/upgraded-amtrak-seat-23-square-142200289.html)
 - Apr 23 - [A 2000-year-old Roman bust that was sold for $35 at a Goodwill in Texas is heading back to its 'rightful' home in Germany](https://news.yahoo.com/2000-old-roman-bust-sold-135338678.html)
-- Apr 23 - [Fox's settlement with Dominion unlikely to cost it $787.5M](https://news.yahoo.com/foxs-settlement-dominion-unlikely-cost-120054131.html)
-- Apr 23 - [Ukrainian soldiers eliminate Wagner mercenary in close combat – video](https://news.yahoo.com/ukrainian-soldiers-eliminate-wagner-mercenary-110700661.html)
-- Apr 23 - [Road to Ga. beach party turns violent with at least 8 injured in crashes, shooting, lawmakers say](https://news.yahoo.com/road-ga-beach-party-turns-105821355.html)
+- Apr 23 - [Ukrainian troops have established a bridgehead on the east bank of the Dnipro river, implying Russia's defensive positions are weakening, report says](https://news.yahoo.com/ukrainian-troops-established-bridgehead-east-131645210.html)
 <!-- feed end -->
