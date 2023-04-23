@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 23 - [Fox's settlement with Dominion unlikely to cost it $787.5M](https://news.yahoo.com/foxs-settlement-dominion-unlikely-cost-120054131.html)
 - Apr 23 - [Ukrainian soldiers eliminate Wagner mercenary in close combat – video](https://news.yahoo.com/ukrainian-soldiers-eliminate-wagner-mercenary-110700661.html)
+- Apr 23 - [Road to Ga. beach party turns violent with at least 8 injured in crashes, shooting, lawmakers say](https://news.yahoo.com/road-ga-beach-party-turns-105821355.html)
 - Apr 23 - [Man died in Clay County jail, unable to afford bond. His crime? Not paying child support](https://news.yahoo.com/man-died-clay-county-jail-100000809.html)
-- Apr 23 - [The worst bird flu outbreak in US history is 'wiping out everything in numbers we've never seen before.' Here's what you need to know.](https://news.yahoo.com/worst-bird-flu-outbreak-us-094153829.html)
-- Apr 23 - [I left a high-rise apartment to live in a van. It's not that much cheaper, but I've saved $70,000 over 3 years and won't ever go back to a traditional home.](https://news.yahoo.com/left-high-rise-apartment-live-091500985.html)
+- Apr 23 - [I'm a car dealer. Here are the things customers get dead wrong about our business.](https://news.yahoo.com/im-car-dealer-things-customers-094500604.html)
 <!-- feed end -->
