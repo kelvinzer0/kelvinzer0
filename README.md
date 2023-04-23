@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 22 - [Coach Prime, Buffs stage quite the show in snowy spring game](https://news.yahoo.com/coach-prime-buffs-stage-quite-232229272.html)
 - Apr 22 - [Prince Louis pushed in wheelbarrow by Kate in photography for fith birthday](https://news.yahoo.com/prince-louis-pushed-wheelbarrow-kate-213000874.html)
+- Apr 22 - [Ken Potts, one of last 2 USS Arizona survivors, dies at 102](https://news.yahoo.com/ken-potts-one-last-2-210819490.html)
 - Apr 22 - [Greene silencing leads to new pledges of civility](https://news.yahoo.com/greene-silencing-leads-pledges-civility-210000284.html)
 - Apr 22 - [Jury awards $96 million to mom whose son and husband died on I-75 while driving to funeral](https://news.yahoo.com/jury-awards-96-million-mom-100216872.html)
-- Apr 22 - [Man Who Shot 6-Year-Old Girl Over Stray Basketball Had Previously Kidnapped, Beat His Girlfriend](https://news.yahoo.com/man-shot-6-old-girl-200500840.html)
 <!-- feed end -->
