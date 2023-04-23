@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 23 - [Okay, I Honestly Feel Sorry For These 18 People Who Definitely Regret Every Decision They Made Last Week](https://news.yahoo.com/okay-honestly-feel-sorry-18-060051488.html)
 - Apr 23 - [Trump Pans DeSantis At GOP Dinner And His Florida Audience Barely Makes A Peep](https://news.yahoo.com/trump-pans-desantis-gop-dinner-052049849.html)
+- Apr 23 - [Unprepared for long war, US Army under gun to make more ammo](https://news.yahoo.com/unprepared-long-war-us-army-050355159.html)
 - Apr 23 - [Grizzlies' Dillon Brooks tossed for blow to LeBron in Game 3](https://news.yahoo.com/grizzlies-dillon-brooks-tossed-blow-034505230.html)
 - Apr 22 - [At Grizzlies-Lakers Game 2, a fight in FedExForum crowd went viral. Here's what happened](https://news.yahoo.com/grizzlies-lakers-game-2-fight-233355943.html)
 - Apr 22 - [Coach Prime, Buffs stage quite the show in snowy spring game](https://news.yahoo.com/coach-prime-buffs-stage-quite-232229272.html)
