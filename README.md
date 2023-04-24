@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [Don Lemon Fired—and Complains CNN Didn’t Even Tell Him](https://news.yahoo.com/cnn-fires-don-lemon-162339257.html)
-- Apr 24 - [The View Hosts Celebrate Tucker Carlson Exit From Fox News](https://news.yahoo.com/view-hosts-celebrate-tucker-carlson-161123056.html)
-- Apr 24 - [Russell Crowe says the studio behind 'L.A. Confidential' stopped paying for his hotel and rental car to get him to quit: 'They wanted Sean Penn or Robert De Niro'](https://news.yahoo.com/russell-crowe-says-studio-behind-160000060.html)
-- Apr 24 - [Former 'Jackass' star Bam Margera got into a fight near his million-dollar castle and then vanished into the woods, police say](https://news.yahoo.com/former-jackass-star-bam-margera-155916972.html)
-- Apr 24 - [Teen’s ear piercing gets his dad arrested at their Arkansas home, video shows](https://news.yahoo.com/teen-ear-piercing-gets-dad-155857691.html)
+- Apr 24 - ['Jackass' star Bam Margera charged with punching brother](https://news.yahoo.com/jackass-star-bam-margera-charged-174621259.html)
+- Apr 24 - [Ryan Reynolds celebrates Wrexham's promotion, crashes interview asking for jersey](https://news.yahoo.com/ryan-reynolds-celebrates-wrexhams-promotion-173303982.html)
+- Apr 24 - [Woman videoed angrily smashing robot in Chinese hospital garners sympathy online](https://news.yahoo.com/woman-videoed-angrily-smashing-robot-172552456.html)
+- Apr 24 - [Mob in Haiti capital burns to death 13 suspected gangsters](https://news.yahoo.com/mob-haiti-capital-burns-death-171650801.html)
+- Apr 24 - [Manfred: 'Sorry' for Oakland fans; A's can compete in Vegas](https://news.yahoo.com/manfred-sorry-oakland-fans-compete-170305820.html)
 <!-- feed end -->
