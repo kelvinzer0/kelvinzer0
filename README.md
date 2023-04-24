@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 24 - [Rep. Marjorie Taylor Greene Receives The Easiest Fact Check Of Her Life](https://news.yahoo.com/rep-marjorie-taylor-greene-receives-065630187.html)
 - Apr 24 - [Kourtney Kardashian Finally Responded After She Was Called Out For The "Obscene Display Of Wealth" On Her 44th Birthday](https://news.yahoo.com/kourtney-kardashian-finally-responded-she-003758412.html)
 - Apr 24 - [Rod Stewart admits no one has accepted his offer to pay for hospital scans](https://news.yahoo.com/rod-stewart-admits-no-one-050000331.html)
 - Apr 24 - [Russian warns G-7 'idiots'; Russian mercenaries to stop taking POWs, 'kill everyone on battlefield': Updates](https://news.yahoo.com/russian-issues-warning-g7-idiots-142302871.html)
 - Apr 24 - [90 Twitter Jokes From This Year So Far That, No Offense, Are Funnier Than Any Joke You've Probably Ever Told](https://news.yahoo.com/90-twitter-jokes-far-no-035004846.html)
-- Apr 24 - [Couple delivered groceries to the wrong Broward home. What happened next stunned them](https://news.yahoo.com/couple-delivered-groceries-wrong-broward-015443388.html)
 <!-- feed end -->
