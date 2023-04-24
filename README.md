@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [Longtime Fox News host Tucker Carlson has agreed to part ways with Fox News](https://news.yahoo.com/longtime-fox-news-host-tucker-182705979.html)
+- Apr 24 - [Don Lemon, CNN exchange statements via Twitter after network parts ways with TV anchor](https://news.yahoo.com/don-lemon-cnn-exchange-statements-195311015.html)
+- Apr 24 - [Clarence Thomas’s Billionaire Friend Did Have Business Before the Supreme Court](https://news.yahoo.com/clarence-thomas-billionaire-friend-did-185438494.html)
+- Apr 24 - [Bystander saved a little girl in a Florida Keys resort pool. Mom was partying, cops say](https://news.yahoo.com/bystander-saved-little-girl-florida-184334654.html)
 - Apr 24 - [2 women are facing a wave of hate after they were labeled 'mean girls' in a video of them appearing to mock an influencer for taking a selfie](https://news.yahoo.com/2-women-facing-wave-hate-182050786.html)
 - Apr 24 - [Flames shoot out of American Airlines plane after apparent bird strike](https://news.yahoo.com/flames-shoot-american-airlines-plane-180939843.html)
-- Apr 24 - ['Jackass' star Bam Margera charged with punching brother](https://news.yahoo.com/jackass-star-bam-margera-charged-174621259.html)
-- Apr 24 - [SpaceX's Starship rocket blew a huge crater into the concrete launchpad during liftoff](https://news.yahoo.com/spacexs-starship-rocket-blew-huge-174345298.html)
 <!-- feed end -->
