@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [Missouri man who killed Wisconsin brothers over cattle deal gets 32 more years for fraud](https://news.yahoo.com/missouri-man-killed-wisconsin-brothers-204555030.html)
-- Apr 24 - [Chris Godwin on what he learned from playing with Tom Brady](https://news.yahoo.com/chris-godwin-learned-playing-tom-204404597.html)
-- Apr 24 - [Climate change activists claim responsibility for deflating the tires to ‘over 11,000 SUVs’](https://news.yahoo.com/climate-change-activists-claim-responsibility-for-deflating-the-tires-to-over-11000-suvs-204300324.html)
-- Apr 24 - [High-flow experiment at the Grand Canyon aims to help Colorado River](https://news.yahoo.com/high-flow-experiment-grand-canyon-203013199.html)
-- Apr 24 - [Actor Danny Masterson drugged, raped women, prosecutor says](https://news.yahoo.com/actor-danny-masterson-drugged-raped-201243315.html)
+- Apr 24 - [First Lady previews state dinner for South Korea](https://news.yahoo.com/first-lady-previews-state-dinner-224339999.html)
+- Apr 24 - [Surviving roommate in Idaho student slayings asks not to appear at suspect's hearing](https://news.yahoo.com/surviving-roommate-idaho-student-slayings-223549762.html)
+- Apr 24 - [Ginnie Newhart, wife of comedy legend Bob Newhart, dies](https://news.yahoo.com/ginnie-newhart-wife-comedy-legend-220717459.html)
+- Apr 24 - [We are 22-year-old conjoined twin sisters: 7 things we want you to know](https://news.yahoo.com/22-old-conjoined-twin-sisters-213712048.html)
+- Apr 24 - [What Tucker Carlson's exit from Fox News means for the Republican Party](https://news.yahoo.com/tucker-carlsons-exit-fox-news-212612495.html)
 <!-- feed end -->
