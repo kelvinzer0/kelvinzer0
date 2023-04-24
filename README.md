@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 24 - [Kourtney Kardashian Finally Responded After She Was Called Out For The "Obscene Display Of Wealth" On Her 44th Birthday](https://news.yahoo.com/kourtney-kardashian-finally-responded-she-003758412.html)
+- Apr 24 - [Here's What's Going On With That Viral Video Of Jessica Chastain Refusing To Sign A Book](https://news.yahoo.com/heres-whats-going-viral-video-193041426.html)
+- Apr 24 - [Russian warns G-7 'idiots'; Russian mercenaries to stop taking POWs, 'kill everyone on battlefield': Live updates](https://news.yahoo.com/russian-issues-warning-g7-idiots-142302871.html)
 - Apr 23 - [30 northern US states will be able to see the northern lights tonight. Here's where.](https://news.yahoo.com/18-northern-us-states-able-165804133.html)
-- Apr 23 - [Russian warns G-7 'idiots'; Russian mercenaries to stop taking POWs, 'kill everyone on battlefield': Live updates](https://news.yahoo.com/russian-issues-warning-g7-idiots-142302871.html)
-- Apr 23 - [90 Twitter Jokes From This Year So Far That, No Offense, Are Funnier Than Any Joke You've Probably Ever Told](https://news.yahoo.com/90-twitter-jokes-far-no-035004846.html)
-- Apr 23 - [Trump to publish letter from the King 'without his permission'](https://news.yahoo.com/trump-publish-letter-king-without-204121630.html)
-- Apr 23 - ['This was supposed to be our forever home': 2 Utah houses slide down a cliff months after residents were forced to evacuate](https://news.yahoo.com/supposed-forever-home-2-utah-193332558.html)
+- Apr 23 - [‘Young and the Restless’ star Eric Braeden shares the symptoms that led to cancer diagnosis](https://news.yahoo.com/young-restless-star-eric-braeden-231942092.html)
 <!-- feed end -->
