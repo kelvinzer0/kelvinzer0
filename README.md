@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 24 - [Ex-officer who fatally shot Breonna Taylor hired as a deputy](https://news.yahoo.com/ex-officer-fatally-shot-breonna-081255096.html)
+- Apr 24 - [Shots fired at Florida couple's car after wrong turn](https://news.yahoo.com/shots-fired-florida-couples-car-080421212.html)
+- Apr 24 - [Sarah Huckabee Sanders' Attempt To Own Bud Light Goes Exactly How You'd Expect](https://news.yahoo.com/sarah-huckabee-sanders-attempt-own-075344158.html)
+- Apr 24 - [The man in a hurry: King Charles III rushes to make a mark](https://news.yahoo.com/man-hurry-king-charles-iii-070934906.html)
 - Apr 24 - [Rep. Marjorie Taylor Greene Receives The Easiest Fact Check Of Her Life](https://news.yahoo.com/rep-marjorie-taylor-greene-receives-065630187.html)
-- Apr 24 - [Kourtney Kardashian Finally Responded After She Was Called Out For The "Obscene Display Of Wealth" On Her 44th Birthday](https://news.yahoo.com/kourtney-kardashian-finally-responded-she-003758412.html)
-- Apr 24 - [Rod Stewart admits no one has accepted his offer to pay for hospital scans](https://news.yahoo.com/rod-stewart-admits-no-one-050000331.html)
-- Apr 24 - [Russian warns G-7 'idiots'; Russian mercenaries to stop taking POWs, 'kill everyone on battlefield': Updates](https://news.yahoo.com/russian-issues-warning-g7-idiots-142302871.html)
-- Apr 24 - [90 Twitter Jokes From This Year So Far That, No Offense, Are Funnier Than Any Joke You've Probably Ever Told](https://news.yahoo.com/90-twitter-jokes-far-no-035004846.html)
 <!-- feed end -->
