@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 24 - [Tucker Carlson, Fox News' most popular host, out at network](https://news.yahoo.com/tucker-carlson-fox-news-network-154322307.html)
+- Apr 24 - [Asked why he's getting crushed in the polls during his trip to Japan, DeSantis suggests his backsliding against Trump could change 'if and when' he makes his presidential run official](https://news.yahoo.com/asked-why-hes-getting-crushed-145741870.html)
+- Apr 24 - [Taiwanese woman suffers severe burns after being doused with hot soup over $652 debt](https://news.yahoo.com/taiwanese-woman-suffers-severe-burns-145614138.html)
 - Apr 24 - [30 northern US states forecast to see the northern lights Sunday night. Here's where.](https://news.yahoo.com/18-northern-us-states-able-165804133.html)
-- Apr 24 - [Ron DeSantis' Goofy Expression When Asked About Trailing Trump In Polls Is Everything](https://news.yahoo.com/ron-desantis-goofy-expression-asked-142742835.html)
-- Apr 24 - [Okay, I Honestly Feel Sorry For These 18 People Who Definitely Regret Every Decision They Made Last Week](https://news.yahoo.com/okay-honestly-feel-sorry-18-060051488.html)
-- Apr 24 - [United plane turns back 3 hours into flight after a 'disruptive' passenger sat in a crew seat and got in a shouting match with a flight attendant, report says](https://news.yahoo.com/united-plane-turns-back-3-134724798.html)
-- Apr 24 - [Shannen Doherty Files For Divorce, Publicist Says She 'Was Left With No Other Option'](https://news.yahoo.com/shannen-doherty-files-divorce-publicist-134330102.html)
+- Apr 24 - [Hunter Biden's attorneys set to meet with Department of Justice officials](https://news.yahoo.com/hunter-bidens-attorneys-set-meet-143208154.html)
 <!-- feed end -->
