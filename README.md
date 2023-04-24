@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 24 - [21 Of The Most Overrated Movies In The History Of Cinema](https://news.yahoo.com/21-most-overrated-movies-history-041517467.html)
 - Apr 24 - [Kourtney Kardashian Finally Responded After She Was Called Out For The "Obscene Display Of Wealth" On Her 44th Birthday](https://news.yahoo.com/kourtney-kardashian-finally-responded-she-003758412.html)
-- Apr 24 - [Here's What's Going On With That Viral Video Of Jessica Chastain Refusing To Sign A Book](https://news.yahoo.com/heres-whats-going-viral-video-193041426.html)
 - Apr 24 - [Russian warns G-7 'idiots'; Russian mercenaries to stop taking POWs, 'kill everyone on battlefield': Live updates](https://news.yahoo.com/russian-issues-warning-g7-idiots-142302871.html)
 - Apr 23 - [30 northern US states will be able to see the northern lights tonight. Here's where.](https://news.yahoo.com/18-northern-us-states-able-165804133.html)
-- Apr 23 - [‘Young and the Restless’ star Eric Braeden shares the symptoms that led to cancer diagnosis](https://news.yahoo.com/young-restless-star-eric-braeden-231942092.html)
+- Apr 23 - [Pleading to Evangelicals, Trump Makes Insane Anti-Abortion Comments](https://news.yahoo.com/pleading-evangelicals-trump-makes-insane-234351409.html)
 <!-- feed end -->
