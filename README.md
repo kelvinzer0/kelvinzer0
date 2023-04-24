@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Apr 24 - [Russian warns G-7 'idiots'; Russian mercenaries to stop taking POWs, 'kill everyone on battlefield': Updates](https://news.yahoo.com/russian-issues-warning-g7-idiots-142302871.html)
 - Apr 24 - [Scarlett Johansson Finally Addressed The Feud Rumors Between Her And Gwyneth Paltrow On "Iron Man 2"](https://news.yahoo.com/scarlett-johansson-finally-addressed-feud-041740084.html)
 - Apr 24 - [90 Twitter Jokes From This Year So Far That, No Offense, Are Funnier Than Any Joke You've Probably Ever Told](https://news.yahoo.com/90-twitter-jokes-far-no-035004846.html)
-- Apr 24 - [Couple delivered groceries to the wrong Broward home. What happened next stunned them](https://news.yahoo.com/couple-delivered-groceries-wrong-broward-015443388.html)
+- Apr 24 - [Lack of snow condemns Italy's Po to a desperately dry summer](https://news.yahoo.com/lack-snow-condemns-italys-po-020137676.html)
 - Apr 24 - [Conservative college grad who walked out of Merrick Garland's commencement speech 'would do it again'](https://news.yahoo.com/conservative-college-grad-walked-merrick-013159647.html)
 <!-- feed end -->
