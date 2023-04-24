@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 24 - [Longtime Fox News host Tucker Carlson has agreed to part ways with Fox News](https://news.yahoo.com/longtime-fox-news-host-tucker-182705979.html)
+- Apr 24 - [2 women are facing a wave of hate after they were labeled 'mean girls' in a video of them appearing to mock an influencer for taking a selfie](https://news.yahoo.com/2-women-facing-wave-hate-182050786.html)
+- Apr 24 - [Flames shoot out of American Airlines plane after apparent bird strike](https://news.yahoo.com/flames-shoot-american-airlines-plane-180939843.html)
 - Apr 24 - ['Jackass' star Bam Margera charged with punching brother](https://news.yahoo.com/jackass-star-bam-margera-charged-174621259.html)
-- Apr 24 - [Ryan Reynolds celebrates Wrexham's promotion, crashes interview asking for jersey](https://news.yahoo.com/ryan-reynolds-celebrates-wrexhams-promotion-173303982.html)
-- Apr 24 - [Woman videoed angrily smashing robot in Chinese hospital garners sympathy online](https://news.yahoo.com/woman-videoed-angrily-smashing-robot-172552456.html)
-- Apr 24 - [Mob in Haiti capital burns to death 13 suspected gangsters](https://news.yahoo.com/mob-haiti-capital-burns-death-171650801.html)
-- Apr 24 - [Manfred: 'Sorry' for Oakland fans; A's can compete in Vegas](https://news.yahoo.com/manfred-sorry-oakland-fans-compete-170305820.html)
+- Apr 24 - [SpaceX's Starship rocket blew a huge crater into the concrete launchpad during liftoff](https://news.yahoo.com/spacexs-starship-rocket-blew-huge-174345298.html)
 <!-- feed end -->
