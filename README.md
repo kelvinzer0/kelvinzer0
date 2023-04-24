@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [Chris Evans And Ana De Armas Have Starred In Three Movies Together, So They Put Their Friendship To The Test](https://news.yahoo.com/chris-evans-ana-armas-starred-024850911.html)
+- Apr 24 - [Missouri man who killed Wisconsin brothers over cattle deal gets 32 more years for fraud](https://news.yahoo.com/missouri-man-killed-wisconsin-brothers-204555030.html)
 - Apr 24 - [Chris Godwin on what he learned from playing with Tom Brady](https://news.yahoo.com/chris-godwin-learned-playing-tom-204404597.html)
-- Apr 24 - ['Tennessee 3' meet with Biden, Harris in Oval Office](https://news.yahoo.com/tennessee-3-meet-biden-harris-202935893.html)
+- Apr 24 - [Climate change activists claim responsibility for deflating the tires to ‘over 11,000 SUVs’](https://news.yahoo.com/climate-change-activists-claim-responsibility-for-deflating-the-tires-to-over-11000-suvs-204300324.html)
+- Apr 24 - [High-flow experiment at the Grand Canyon aims to help Colorado River](https://news.yahoo.com/high-flow-experiment-grand-canyon-203013199.html)
 - Apr 24 - [Actor Danny Masterson drugged, raped women, prosecutor says](https://news.yahoo.com/actor-danny-masterson-drugged-raped-201243315.html)
-- Apr 24 - [Josh Brolin shares pic wearing nothing but a hat and necklace: ‘Prepping for a scene’](https://news.yahoo.com/josh-brolin-shares-pic-wearing-191225949.html)
 <!-- feed end -->
