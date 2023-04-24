@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [21 Of The Most Overrated Movies In The History Of Cinema](https://news.yahoo.com/21-most-overrated-movies-history-041517467.html)
-- Apr 24 - [Kourtney Kardashian Finally Responded After She Was Called Out For The "Obscene Display Of Wealth" On Her 44th Birthday](https://news.yahoo.com/kourtney-kardashian-finally-responded-she-003758412.html)
-- Apr 24 - [Russian warns G-7 'idiots'; Russian mercenaries to stop taking POWs, 'kill everyone on battlefield': Live updates](https://news.yahoo.com/russian-issues-warning-g7-idiots-142302871.html)
-- Apr 23 - [30 northern US states will be able to see the northern lights tonight. Here's where.](https://news.yahoo.com/18-northern-us-states-able-165804133.html)
-- Apr 23 - [Pleading to Evangelicals, Trump Makes Insane Anti-Abortion Comments](https://news.yahoo.com/pleading-evangelicals-trump-makes-insane-234351409.html)
+- Apr 24 - [Russian warns G-7 'idiots'; Russian mercenaries to stop taking POWs, 'kill everyone on battlefield': Updates](https://news.yahoo.com/russian-issues-warning-g7-idiots-142302871.html)
+- Apr 24 - [Scarlett Johansson Finally Addressed The Feud Rumors Between Her And Gwyneth Paltrow On "Iron Man 2"](https://news.yahoo.com/scarlett-johansson-finally-addressed-feud-041740084.html)
+- Apr 24 - [Okay, I Honestly Feel Sorry For These 18 People Who Definitely Regret Every Decision They Made Last Week](https://news.yahoo.com/okay-honestly-feel-sorry-18-060051488.html)
+- Apr 24 - [90 Twitter Jokes From This Year So Far That, No Offense, Are Funnier Than Any Joke You've Probably Ever Told](https://news.yahoo.com/90-twitter-jokes-far-no-035004846.html)
+- Apr 24 - [Lack of snow condemns Italy's Po to a desperately dry summer](https://news.yahoo.com/lack-snow-condemns-italys-po-020137676.html)
 <!-- feed end -->
