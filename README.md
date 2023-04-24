@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [Tucker Carlson, Fox News' most popular host, out at network](https://news.yahoo.com/tucker-carlson-fox-news-network-154322307.html)
-- Apr 24 - [Asked why he's getting crushed in the polls during his trip to Japan, DeSantis suggests his backsliding against Trump could change 'if and when' he makes his presidential run official](https://news.yahoo.com/asked-why-hes-getting-crushed-145741870.html)
-- Apr 24 - [Taiwanese woman suffers severe burns after being doused with hot soup over $652 debt](https://news.yahoo.com/taiwanese-woman-suffers-severe-burns-145614138.html)
-- Apr 24 - [30 northern US states forecast to see the northern lights Sunday night. Here's where.](https://news.yahoo.com/18-northern-us-states-able-165804133.html)
-- Apr 24 - [Hunter Biden's attorneys set to meet with Department of Justice officials](https://news.yahoo.com/hunter-bidens-attorneys-set-meet-143208154.html)
+- Apr 24 - [Don Lemon Fired—and Complains CNN Didn’t Even Tell Him](https://news.yahoo.com/cnn-fires-don-lemon-162339257.html)
+- Apr 24 - [The View Hosts Celebrate Tucker Carlson Exit From Fox News](https://news.yahoo.com/view-hosts-celebrate-tucker-carlson-161123056.html)
+- Apr 24 - [Russell Crowe says the studio behind 'L.A. Confidential' stopped paying for his hotel and rental car to get him to quit: 'They wanted Sean Penn or Robert De Niro'](https://news.yahoo.com/russell-crowe-says-studio-behind-160000060.html)
+- Apr 24 - [Former 'Jackass' star Bam Margera got into a fight near his million-dollar castle and then vanished into the woods, police say](https://news.yahoo.com/former-jackass-star-bam-margera-155916972.html)
+- Apr 24 - [Teen’s ear piercing gets his dad arrested at their Arkansas home, video shows](https://news.yahoo.com/teen-ear-piercing-gets-dad-155857691.html)
 <!-- feed end -->
