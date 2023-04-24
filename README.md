@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [A TikToker was confused and ended up in tears when strangers refused her offer to pay for their groceries](https://news.yahoo.com/tiktoker-confused-ended-tears-strangers-103525649.html)
-- Apr 24 - [Scarlett Johansson Made A Rare Comment About Her Marriage To Ryan Reynolds](https://news.yahoo.com/scarlett-johansson-made-rare-her-204514024.html)
-- Apr 24 - [Venomous copperheads are slithering around SC. Here are 5 ways to keep them out of your yard](https://news.yahoo.com/venomous-copperheads-slithering-around-sc-100000396.html)
-- Apr 24 - [China affirms ex-Soviet nations' sovereignty after uproar](https://news.yahoo.com/china-affirms-ex-soviet-nations-091539068.html)
-- Apr 24 - [Jordan Klepper Recalls His Favorite MAGA Comment And It's A Doozy](https://news.yahoo.com/jordan-klepper-recalls-favorite-maga-091202440.html)
+- Apr 24 - [Hollywood-backed Wrexhamn Soccer Club promoted to higher level football league](https://news.yahoo.com/hollywood-backed-wrexhamn-soccer-club-120930136.html)
+- Apr 24 - [Biden expected to tap Julie Chavez Rodriguez to run 2024 presidential campaign](https://news.yahoo.com/biden-expected-tap-julie-chavez-120719634.html)
+- Apr 24 - [Video evidence points to successful Ukrainian sea drone attack on target in Sevastopol](https://news.yahoo.com/video-evidence-points-successful-ukrainian-114500604.html)
+- Apr 24 - [What Scalia’s Defense of a Free Jet Trip Says About Thomas’ Travels](https://news.yahoo.com/scalia-defense-free-jet-trip-114314951.html)
+- Apr 24 - [I'm a former college teacher and watched as students burned themselves out. Here's what students can do to prevent and deal with burnout.](https://news.yahoo.com/im-former-college-teacher-watched-113200379.html)
 <!-- feed end -->
