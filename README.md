@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [Here Are 38 Of The Most Memorable (And Sometimes Embarrassing) Coachella Celeb Looks, And I'm Curious If You Like Them Or Not](https://news.yahoo.com/38-most-memorable-sometimes-embarrassing-193131700.html)
-- Apr 24 - [Review: Laura Dern, mom Diane Ladd exchange intimate stories](https://news.yahoo.com/review-laura-dern-mom-diane-131102673.html)
-- Apr 24 - [Taylor Swift fan leaving concert with sister is killed by drunk driver, Texas cops say](https://news.yahoo.com/taylor-swift-fan-leaving-concert-130043974.html)
-- Apr 24 - [6-year-old basketball star Qeshaun Todd shows off his skills while playing against his dad](https://news.yahoo.com/6-old-basketball-star-qeshaun-125925799.html)
-- Apr 24 - [Biden expected to tap Julie Chavez Rodriguez to run 2024 presidential campaign](https://news.yahoo.com/biden-expected-tap-julie-chavez-120719634.html)
+- Apr 24 - [30 northern US states forecast to see the northern lights Sunday night. Here's where.](https://news.yahoo.com/18-northern-us-states-able-165804133.html)
+- Apr 24 - [Ron DeSantis' Goofy Expression When Asked About Trailing Trump In Polls Is Everything](https://news.yahoo.com/ron-desantis-goofy-expression-asked-142742835.html)
+- Apr 24 - [Okay, I Honestly Feel Sorry For These 18 People Who Definitely Regret Every Decision They Made Last Week](https://news.yahoo.com/okay-honestly-feel-sorry-18-060051488.html)
+- Apr 24 - [United plane turns back 3 hours into flight after a 'disruptive' passenger sat in a crew seat and got in a shouting match with a flight attendant, report says](https://news.yahoo.com/united-plane-turns-back-3-134724798.html)
+- Apr 24 - [Shannen Doherty Files For Divorce, Publicist Says She 'Was Left With No Other Option'](https://news.yahoo.com/shannen-doherty-files-divorce-publicist-134330102.html)
 <!-- feed end -->
