@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [Don Lemon, CNN exchange statements via Twitter after network parts ways with TV anchor](https://news.yahoo.com/don-lemon-cnn-exchange-statements-195311015.html)
-- Apr 24 - [Clarence Thomas’s Billionaire Friend Did Have Business Before the Supreme Court](https://news.yahoo.com/clarence-thomas-billionaire-friend-did-185438494.html)
-- Apr 24 - [Bystander saved a little girl in a Florida Keys resort pool. Mom was partying, cops say](https://news.yahoo.com/bystander-saved-little-girl-florida-184334654.html)
-- Apr 24 - [2 women are facing a wave of hate after they were labeled 'mean girls' in a video of them appearing to mock an influencer for taking a selfie](https://news.yahoo.com/2-women-facing-wave-hate-182050786.html)
-- Apr 24 - [Flames shoot out of American Airlines plane after apparent bird strike](https://news.yahoo.com/flames-shoot-american-airlines-plane-180939843.html)
+- Apr 24 - [Chris Evans And Ana De Armas Have Starred In Three Movies Together, So They Put Their Friendship To The Test](https://news.yahoo.com/chris-evans-ana-armas-starred-024850911.html)
+- Apr 24 - [Chris Godwin on what he learned from playing with Tom Brady](https://news.yahoo.com/chris-godwin-learned-playing-tom-204404597.html)
+- Apr 24 - ['Tennessee 3' meet with Biden, Harris in Oval Office](https://news.yahoo.com/tennessee-3-meet-biden-harris-202935893.html)
+- Apr 24 - [Actor Danny Masterson drugged, raped women, prosecutor says](https://news.yahoo.com/actor-danny-masterson-drugged-raped-201243315.html)
+- Apr 24 - [Josh Brolin shares pic wearing nothing but a hat and necklace: ‘Prepping for a scene’](https://news.yahoo.com/josh-brolin-shares-pic-wearing-191225949.html)
 <!-- feed end -->
