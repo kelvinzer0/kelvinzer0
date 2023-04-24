@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [Lack of snow heralds a dry summer in Italy](https://news.yahoo.com/lack-snow-heralds-dry-summer-093701592.html)
+- Apr 24 - [Between 40,00-50,000 people: Orange Crush returned to Tybee Island with unprecedented force](https://news.yahoo.com/between-40-00-50-000-093557051.html)
+- Apr 24 - [People Are Sharing How They Paid Down Their Debt Over Time, And We Should Normalize Talking About This Openly And Often](https://news.yahoo.com/people-sharing-paid-down-debt-012508890.html)
+- Apr 24 - [Scarlett Johansson Made A Rare Comment About Her Marriage To Ryan Reynolds](https://news.yahoo.com/scarlett-johansson-made-rare-her-204514024.html)
+- Apr 24 - [Melanie Lynskey Opened Up About No Longer Being Friends With Kate Winslet](https://news.yahoo.com/melanie-lynskey-opened-no-longer-032422038.html)
 - Apr 24 - [China affirms ex-Soviet nations' sovereignty after uproar](https://news.yahoo.com/china-affirms-ex-soviet-nations-091539068.html)
-- Apr 24 - [Jordan Klepper Recalls His Favorite MAGA Comment And It's A Doozy](https://news.yahoo.com/jordan-klepper-recalls-favorite-maga-091202440.html)
-- Apr 24 - [AP Top Stories April 24 2023](https://news.yahoo.com/ap-top-stories-april-24-090754448.html)
-- Apr 24 - [‘Stunning’ Wolf Discovery Caught On Wildlife Camera In Minnesota](https://news.yahoo.com/stunning-wolf-discovery-caught-wildlife-085446754.html)
 <!-- feed end -->
