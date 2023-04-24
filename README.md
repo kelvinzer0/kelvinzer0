@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [Ex-officer who fatally shot Breonna Taylor hired as a deputy](https://news.yahoo.com/ex-officer-fatally-shot-breonna-081255096.html)
-- Apr 24 - [Shots fired at Florida couple's car after wrong turn](https://news.yahoo.com/shots-fired-florida-couples-car-080421212.html)
-- Apr 24 - [Sarah Huckabee Sanders' Attempt To Own Bud Light Goes Exactly How You'd Expect](https://news.yahoo.com/sarah-huckabee-sanders-attempt-own-075344158.html)
-- Apr 24 - [The man in a hurry: King Charles III rushes to make a mark](https://news.yahoo.com/man-hurry-king-charles-iii-070934906.html)
-- Apr 24 - [Rep. Marjorie Taylor Greene Receives The Easiest Fact Check Of Her Life](https://news.yahoo.com/rep-marjorie-taylor-greene-receives-065630187.html)
+- Apr 24 - [Lack of snow heralds a dry summer in Italy](https://news.yahoo.com/lack-snow-heralds-dry-summer-093701592.html)
+- Apr 24 - [China affirms ex-Soviet nations' sovereignty after uproar](https://news.yahoo.com/china-affirms-ex-soviet-nations-091539068.html)
+- Apr 24 - [Jordan Klepper Recalls His Favorite MAGA Comment And It's A Doozy](https://news.yahoo.com/jordan-klepper-recalls-favorite-maga-091202440.html)
+- Apr 24 - [AP Top Stories April 24 2023](https://news.yahoo.com/ap-top-stories-april-24-090754448.html)
+- Apr 24 - [‘Stunning’ Wolf Discovery Caught On Wildlife Camera In Minnesota](https://news.yahoo.com/stunning-wolf-discovery-caught-wildlife-085446754.html)
 <!-- feed end -->
