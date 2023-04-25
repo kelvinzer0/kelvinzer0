@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 25 - [Haley attacks Democrats, abortion-rights supporters in abortion speech](https://news.yahoo.com/haley-attacks-democrats-abortion-rights-173632076.html)
+- Apr 25 - [Russian spy intrigue fizzles as Hawaii stolen ID trial nears](https://news.yahoo.com/russian-spy-intrigue-fizzles-hawaii-173512089.html)
 - Apr 25 - [‘Vampire’ straw found hidden in traveler’s backpack at Boston airport, cops say](https://news.yahoo.com/vampire-straw-found-hidden-traveler-165257909.html)
+- Apr 25 - [Montana transgender lawmaker silenced again](https://news.yahoo.com/montana-transgender-lawmaker-silenced-again-161059049.html)
 - Apr 25 - [Exclusive: House lawmakers to introduce resolution for bold Ukraine victory terms](https://news.yahoo.com/exclusive-house-lawmakers-to-introduce-resolution-for-bold-ukraine-victory-terms-160006684.html)
-- Apr 25 - [Macron’s European army is an insult to Nato and the Americans who pay for it](https://news.yahoo.com/macron-european-army-insult-nato-144526113.html)
-- Apr 25 - [Jordan subpoenas FBI human resources official](https://news.yahoo.com/jordan-subpoenas-fbi-human-resources-144038957.html)
-- Apr 25 - [I made a baked potato in 3 different appliances, and I'll never use my oven again](https://news.yahoo.com/made-classic-baked-potato-3-151200122.html)
 <!-- feed end -->
