@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 25 - [Washington bans sale of assault weapons](https://news.yahoo.com/washington-bans-sale-assault-weapons-214812753.html)
+- Apr 25 - [Taliban kill mastermind of suicide bombing at Kabul airport](https://news.yahoo.com/taliban-kill-mastermind-suicide-bombing-213145410.html)
+- Apr 25 - [Positive marijuana test costs US long jumper national title](https://news.yahoo.com/positive-marijuana-test-costs-us-210339448.html)
 - Apr 25 - [Florida's killer clown case finally ends with plea deal](https://news.yahoo.com/floridas-killer-clown-case-finally-195825201.html)
-- Apr 25 - [Family turns in 13-year-old boy accused of murdering 20-year-old man](https://news.yahoo.com/police-searching-13-old-wanted-173615777.html)
-- Apr 25 - [Trans Marathoner Defeats 14,000 Women in Race after Competing as Man Months Earlier](https://news.yahoo.com/trans-marathoner-defeats-14-000-193311948.html)
-- Apr 25 - [Judge makes thinly-veiled attempt to silence Trump during rape trial, advising parties against statements that could 'incite violence'](https://news.yahoo.com/judge-makes-thinly-veiled-attempt-190700209.html)
-- Apr 25 - [President Kamala Harris should terrify us all](https://news.yahoo.com/president-kamala-harris-terrify-us-184246118.html)
+- Apr 25 - [Sex in Space Is Inevitable—and Scientists Say We Need to Be Ready](https://news.yahoo.com/sex-space-inevitable-scientists-ready-195000394.html)
 <!-- feed end -->
