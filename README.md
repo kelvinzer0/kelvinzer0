@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 25 - [Florida's killer clown case finally ends with plea deal](https://news.yahoo.com/floridas-killer-clown-case-finally-195825201.html)
+- Apr 25 - [Family turns in 13-year-old boy accused of murdering 20-year-old man](https://news.yahoo.com/police-searching-13-old-wanted-173615777.html)
+- Apr 25 - [Trans Marathoner Defeats 14,000 Women in Race after Competing as Man Months Earlier](https://news.yahoo.com/trans-marathoner-defeats-14-000-193311948.html)
 - Apr 25 - [Judge makes thinly-veiled attempt to silence Trump during rape trial, advising parties against statements that could 'incite violence'](https://news.yahoo.com/judge-makes-thinly-veiled-attempt-190700209.html)
 - Apr 25 - [President Kamala Harris should terrify us all](https://news.yahoo.com/president-kamala-harris-terrify-us-184246118.html)
-- Apr 25 - [Watch as ‘super rare’ sea creature gives diver the ‘shock of a lifetime’ in Malaysia](https://news.yahoo.com/watch-super-rare-sea-creature-180646569.html)
-- Apr 25 - [Russian spy intrigue fizzles as Hawaii stolen ID trial nears](https://news.yahoo.com/russian-spy-intrigue-fizzles-hawaii-173512089.html)
-- Apr 25 - [Trump questions why he should participate in GOP primary debates](https://news.yahoo.com/trump-questions-why-participate-gop-172734646.html)
 <!-- feed end -->
