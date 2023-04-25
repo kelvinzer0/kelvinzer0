@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 25 - [Here's What's Going On With That Viral Video Of Jessica Chastain Refusing To Sign A Book](https://news.yahoo.com/heres-whats-going-viral-video-193041426.html)
+- Apr 25 - [A YouTuber sparked outrage with a video where he appeared to offer food to a homeless man, then ate it in front of him](https://news.yahoo.com/youtuber-sparked-outrage-video-where-121433996.html)
+- Apr 25 - [She’s at risk of losing her Florida home over a violation she didn’t know existed](https://news.yahoo.com/she-risk-losing-her-florida-120000617.html)
+- Apr 25 - [John Stamos says he got the 11-month-old Olsen twins fired from 'Full House' because he 'couldn't deal' with their constant crying](https://news.yahoo.com/john-stamos-says-got-11-113658204.html)
 - Apr 25 - [Talk grows of mega predator off Australia, but the grim reality may be more sobering](https://news.yahoo.com/talk-grows-mega-predator-off-112637056.html)
 - Apr 25 - [How Putin spent 20 years rebuilding Russia's military 'and then just simply destroyed it' in Ukraine, according to an expert who watched it happen](https://news.yahoo.com/putin-spent-20-years-rebuilding-112300685.html)
-- Apr 25 - [Don Lemon’s CNN co-anchors address his firing](https://news.yahoo.com/don-lemon-cnn-co-anchors-105516728.html)
-- Apr 25 - [Brian Kilmeade Delivers Frosty Sendoff To Tucker Carlson In His Time Slot](https://news.yahoo.com/brian-kilmeade-delivers-frosty-sendoff-105354933.html)
 <!-- feed end -->
