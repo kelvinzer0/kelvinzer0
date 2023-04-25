@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 25 - [Tucker who? Fox News hosts avoid Carlson's name after ouster](https://news.yahoo.com/tucker-fox-news-hosts-avoid-151401742.html)
+- Apr 25 - [‘Vampire’ straw found hidden in traveler’s backpack at Boston airport, cops say](https://news.yahoo.com/vampire-straw-found-hidden-traveler-165257909.html)
+- Apr 25 - [Exclusive: House lawmakers to introduce resolution for bold Ukraine victory terms](https://news.yahoo.com/exclusive-house-lawmakers-to-introduce-resolution-for-bold-ukraine-victory-terms-160006684.html)
 - Apr 25 - [Macron’s European army is an insult to Nato and the Americans who pay for it](https://news.yahoo.com/macron-european-army-insult-nato-144526113.html)
+- Apr 25 - [Jordan subpoenas FBI human resources official](https://news.yahoo.com/jordan-subpoenas-fbi-human-resources-144038957.html)
 - Apr 25 - [I made a baked potato in 3 different appliances, and I'll never use my oven again](https://news.yahoo.com/made-classic-baked-potato-3-151200122.html)
-- Apr 25 - [16-year-old diagnosed with leukemia dies the same day, PA family says. ‘A nightmare’](https://news.yahoo.com/16-old-diagnosed-leukemia-dies-143957864.html)
-- Apr 25 - [Proud Boys leader: Trump caused Jan. 6 attack](https://news.yahoo.com/proud-boys-leader-trump-caused-143148142.html)
 <!-- feed end -->
