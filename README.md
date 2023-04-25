@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 25 - [Family: Chinese journalist faces espionage charges](https://news.yahoo.com/family-chinese-journalist-faces-espionage-105606006.html)
-- Apr 25 - ["Broke 'Til Payday": People Are Sharing The Budget Meals That Get Them Through When They're Low On Funds](https://news.yahoo.com/broke-til-payday-people-sharing-204637322.html)
-- Apr 25 - [Watch: Awkward moment Meghan turns away from Prince Harry on 'kiss cam'](https://news.yahoo.com/watch-awkward-moment-meghan-turns-085210888.html)
-- Apr 25 - [Trump Is Losing the E. Jean Carroll Rape Case Even Before It Starts](https://news.yahoo.com/trump-losing-e-jean-carroll-083300333.html)
-- Apr 25 - [This May Have Been Tucker Carlson’s Biggest Mistake](https://news.yahoo.com/may-tucker-carlson-biggest-mistake-083129810.html)
+- Apr 25 - [Here's What's Going On With That Viral Video Of Jessica Chastain Refusing To Sign A Book](https://news.yahoo.com/heres-whats-going-viral-video-193041426.html)
+- Apr 25 - [Talk grows of mega predator off Australia, but the grim reality may be more sobering](https://news.yahoo.com/talk-grows-mega-predator-off-112637056.html)
+- Apr 25 - [How Putin spent 20 years rebuilding Russia's military 'and then just simply destroyed it' in Ukraine, according to an expert who watched it happen](https://news.yahoo.com/putin-spent-20-years-rebuilding-112300685.html)
+- Apr 25 - [Don Lemon’s CNN co-anchors address his firing](https://news.yahoo.com/don-lemon-cnn-co-anchors-105516728.html)
+- Apr 25 - [Brian Kilmeade Delivers Frosty Sendoff To Tucker Carlson In His Time Slot](https://news.yahoo.com/brian-kilmeade-delivers-frosty-sendoff-105354933.html)
 <!-- feed end -->
