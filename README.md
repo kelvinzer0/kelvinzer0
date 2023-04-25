@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 25 - [Washington bans sale of assault weapons](https://news.yahoo.com/washington-bans-sale-assault-weapons-214812753.html)
-- Apr 25 - [Taliban kill mastermind of suicide bombing at Kabul airport](https://news.yahoo.com/taliban-kill-mastermind-suicide-bombing-213145410.html)
-- Apr 25 - [Positive marijuana test costs US long jumper national title](https://news.yahoo.com/positive-marijuana-test-costs-us-210339448.html)
-- Apr 25 - [Florida's killer clown case finally ends with plea deal](https://news.yahoo.com/floridas-killer-clown-case-finally-195825201.html)
-- Apr 25 - [Sex in Space Is Inevitable—and Scientists Say We Need to Be Ready](https://news.yahoo.com/sex-space-inevitable-scientists-ready-195000394.html)
+- Apr 25 - [Danny Masterson's ex says rape came years into relationship](https://news.yahoo.com/danny-mastersons-ex-says-rape-223640688.html)
+- Apr 25 - [Is Disney moving to Georgia? DeSantis v. Disney feud sparks online rumors](https://news.yahoo.com/disney-moving-georgia-desantis-v-215632501.html)
+- Apr 25 - [How Russia could spot Ukrainian F-16s before they even got off the ground, according to an air-warfare expert](https://news.yahoo.com/russia-could-spot-ukrainian-f-220700814.html)
+- Apr 25 - [Woman with Cancerous Pregnancy Was Told to Wait in Parking Lot Until She Was 'Crashing'](https://news.yahoo.com/woman-cancerous-pregnancy-told-wait-215500885.html)
+- Apr 25 - [Family of UGA student diagnosed with brain tumor after spring break trip stopping treatment](https://news.yahoo.com/family-uga-student-diagnosed-brain-214942568.html)
 <!-- feed end -->
