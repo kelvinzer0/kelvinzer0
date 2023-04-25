@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 25 - [John Stamos says he got the 11-month-old Olsen twins fired from 'Full House' because he 'couldn't deal' with their constant crying](https://news.yahoo.com/john-stamos-says-got-11-113658204.html)
-- Apr 25 - [Mom had kitchen knife ‘protruding from her head’ after son stabs her, Indiana cops say](https://news.yahoo.com/mom-had-kitchen-knife-protruding-124213655.html)
 - Apr 25 - [White power movements in US history have often relied on veterans -- and not on lone wolves](https://news.yahoo.com/white-power-movements-us-history-122716720.html)
 - Apr 25 - [A YouTuber sparked outrage with a video where he appeared to offer food to a homeless man, then ate it in front of him](https://news.yahoo.com/youtuber-sparked-outrage-video-where-121433996.html)
 - Apr 25 - [She’s at risk of losing her Florida home over a violation she didn’t know existed](https://news.yahoo.com/she-risk-losing-her-florida-120000617.html)
+- Apr 25 - [Nicolas Cage says he took 'crummy' movie roles to pay off $6 million debt after he 'over-invested in real estate' and bought several castles and an island](https://news.yahoo.com/nicolas-cage-says-took-crummy-115205106.html)
 <!-- feed end -->
