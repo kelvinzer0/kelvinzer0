@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 25 - [Montana transgender lawmaker silenced again](https://news.yahoo.com/montana-transgender-lawmaker-silenced-again-003949605.html)
 - Apr 24 - [Simone Biles responds to criticism over her wedding hair](https://news.yahoo.com/simone-biles-responds-criticism-over-235803999.html)
 - Apr 24 - [Lincoln Project Gives Tucker Carlson The Tribute He Deserves](https://news.yahoo.com/lincoln-project-gives-tucker-carlson-232353843.html)
+- Apr 24 - [Abby De La Rosa, who has 3 kids with Nick Cannon, says seeing him with his other children's mothers turns her on 'a little bit'](https://news.yahoo.com/abby-la-rosa-3-kids-230807237.html)
 - Apr 24 - [Ed Sheeran could be on the hook for millions as the family of Marvin Gaye's songwriting partner accuse him of stealing from 'Let's Get It On'](https://news.yahoo.com/ed-sheeran-could-hook-millions-210714092.html)
-- Apr 24 - [Ginnie Newhart, wife of comedy legend Bob Newhart, dies](https://news.yahoo.com/ginnie-newhart-wife-comedy-legend-220717459.html)
-- Apr 24 - [We are 22-year-old conjoined twin sisters: 7 things we want you to know](https://news.yahoo.com/22-old-conjoined-twin-sisters-213712048.html)
 <!-- feed end -->
