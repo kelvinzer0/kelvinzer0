@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 24 - [First Lady previews state dinner for South Korea](https://news.yahoo.com/first-lady-previews-state-dinner-224339999.html)
-- Apr 24 - [Surviving roommate in Idaho student slayings asks not to appear at suspect's hearing](https://news.yahoo.com/surviving-roommate-idaho-student-slayings-223549762.html)
+- Apr 24 - [Simone Biles responds to criticism over her wedding hair](https://news.yahoo.com/simone-biles-responds-criticism-over-235803999.html)
+- Apr 24 - [Lincoln Project Gives Tucker Carlson The Tribute He Deserves](https://news.yahoo.com/lincoln-project-gives-tucker-carlson-232353843.html)
+- Apr 24 - [Ed Sheeran could be on the hook for millions as the family of Marvin Gaye's songwriting partner accuse him of stealing from 'Let's Get It On'](https://news.yahoo.com/ed-sheeran-could-hook-millions-210714092.html)
 - Apr 24 - [Ginnie Newhart, wife of comedy legend Bob Newhart, dies](https://news.yahoo.com/ginnie-newhart-wife-comedy-legend-220717459.html)
 - Apr 24 - [We are 22-year-old conjoined twin sisters: 7 things we want you to know](https://news.yahoo.com/22-old-conjoined-twin-sisters-213712048.html)
-- Apr 24 - [What Tucker Carlson's exit from Fox News means for the Republican Party](https://news.yahoo.com/tucker-carlsons-exit-fox-news-212612495.html)
 <!-- feed end -->
