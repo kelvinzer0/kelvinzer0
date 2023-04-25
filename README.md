@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 25 - [Driver in fatal Uber autonomous crash set for June trial](https://news.yahoo.com/driver-fatal-uber-autonomous-crash-184454765.html)
+- Apr 25 - [Judge makes thinly-veiled attempt to silence Trump during rape trial, advising parties against statements that could 'incite violence'](https://news.yahoo.com/judge-makes-thinly-veiled-attempt-190700209.html)
+- Apr 25 - [President Kamala Harris should terrify us all](https://news.yahoo.com/president-kamala-harris-terrify-us-184246118.html)
 - Apr 25 - [Watch as ‘super rare’ sea creature gives diver the ‘shock of a lifetime’ in Malaysia](https://news.yahoo.com/watch-super-rare-sea-creature-180646569.html)
-- Apr 25 - [iSpace: First private moon landing likely to have failed](https://news.yahoo.com/ispace-first-private-moon-landing-173226448.html)
 - Apr 25 - [Russian spy intrigue fizzles as Hawaii stolen ID trial nears](https://news.yahoo.com/russian-spy-intrigue-fizzles-hawaii-173512089.html)
-- Apr 25 - [Video: Don Lemon's heated exchange with Vivek Ramaswamy that reportedly got him fired from CNN](https://news.yahoo.com/video-don-lemons-heated-exchange-172341455.html)
+- Apr 25 - [Trump questions why he should participate in GOP primary debates](https://news.yahoo.com/trump-questions-why-participate-gop-172734646.html)
 <!-- feed end -->
