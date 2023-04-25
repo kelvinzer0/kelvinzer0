@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 25 - [John Stamos says he got the 11-month-old Olsen twins fired from 'Full House' because he 'couldn't deal' with their constant crying](https://news.yahoo.com/john-stamos-says-got-11-113658204.html)
-- Apr 25 - [White power movements in US history have often relied on veterans -- and not on lone wolves](https://news.yahoo.com/white-power-movements-us-history-122716720.html)
-- Apr 25 - [A YouTuber sparked outrage with a video where he appeared to offer food to a homeless man, then ate it in front of him](https://news.yahoo.com/youtuber-sparked-outrage-video-where-121433996.html)
-- Apr 25 - [She’s at risk of losing her Florida home over a violation she didn’t know existed](https://news.yahoo.com/she-risk-losing-her-florida-120000617.html)
-- Apr 25 - [Nicolas Cage says he took 'crummy' movie roles to pay off $6 million debt after he 'over-invested in real estate' and bought several castles and an island](https://news.yahoo.com/nicolas-cage-says-took-crummy-115205106.html)
+- Apr 25 - [Tucker who? Fox News hosts avoid Carlson's name after ouster](https://news.yahoo.com/tucker-fox-news-hosts-avoid-151401742.html)
+- Apr 25 - [Macron’s European army is an insult to Nato and the Americans who pay for it](https://news.yahoo.com/macron-european-army-insult-nato-144526113.html)
+- Apr 25 - [I made a baked potato in 3 different appliances, and I'll never use my oven again](https://news.yahoo.com/made-classic-baked-potato-3-151200122.html)
+- Apr 25 - [16-year-old diagnosed with leukemia dies the same day, PA family says. ‘A nightmare’](https://news.yahoo.com/16-old-diagnosed-leukemia-dies-143957864.html)
+- Apr 25 - [Proud Boys leader: Trump caused Jan. 6 attack](https://news.yahoo.com/proud-boys-leader-trump-caused-143148142.html)
 <!-- feed end -->
