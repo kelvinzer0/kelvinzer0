@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 25 - [Watch: Awkward moment Meghan turns away from Prince Harry on 'kiss cam'](https://news.yahoo.com/watch-awkward-moment-meghan-turns-085210888.html)
 - Apr 25 - [Trump Is Losing the E. Jean Carroll Rape Case Even Before It Starts](https://news.yahoo.com/trump-losing-e-jean-carroll-083300333.html)
+- Apr 25 - [This May Have Been Tucker Carlson’s Biggest Mistake](https://news.yahoo.com/may-tucker-carlson-biggest-mistake-083129810.html)
 - Apr 25 - [Meghan’s hypocrisy is now beyond parody](https://news.yahoo.com/meghan-hypocrisy-now-beyond-parody-060000160.html)
 - Apr 25 - [‘Daily Show’ Host Desi Lydic Can’t Believe Fox News ‘Cut Off Its Own Dick’](https://news.yahoo.com/daily-show-host-desi-lydic-035929627.html)
-- Apr 25 - [Montana transgender lawmaker silenced again](https://news.yahoo.com/montana-transgender-lawmaker-silenced-again-003949605.html)
-- Apr 24 - [Simone Biles responds to criticism over her wedding hair](https://news.yahoo.com/simone-biles-responds-criticism-over-235803999.html)
 <!-- feed end -->
