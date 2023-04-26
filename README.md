@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 26 - [This Is the Best Pizza Place in North America, According to Yelp](https://news.yahoo.com/best-pizza-place-north-america-203603336.html)
+- Apr 26 - [DeSantis-backed New College board scraps 5 professors tenure](https://news.yahoo.com/desantis-backed-college-board-scraps-212548877.html)
+- Apr 26 - [Kourtney Kardashian Finally Responded After She Was Called Out For The "Obscene Display Of Wealth" On Her 44th Birthday](https://news.yahoo.com/kourtney-kardashian-finally-responded-she-003758412.html)
+- Apr 26 - [Colorado road rage shooter convicted of 1st-degree murder](https://news.yahoo.com/road-rage-shooter-convicted-1st-203838030.html)
 - Apr 26 - [Bald eagle spotted awkwardly swimming in Canada — then comes another surprise](https://news.yahoo.com/bald-eagle-spotted-awkwardly-swimming-203557989.html)
-- Apr 26 - [Montana transgender lawmaker speaks before being censured by GOP](https://news.yahoo.com/montana-transgender-lawmaker-speaks-being-203417994.html)
 - Apr 26 - [Viral video of Italian students mocking Asian family on Milan train prompts university statements](https://news.yahoo.com/viral-video-italian-students-mocking-202812153.html)
-- Apr 26 - [Someone buried treasure 2,000 years ago and never returned. A hiker just found it](https://news.yahoo.com/someone-buried-treasure-2-000-200354892.html)
 <!-- feed end -->
