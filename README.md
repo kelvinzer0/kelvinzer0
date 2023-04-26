@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 26 - [In a growing India, some struggle to prove they are Indians](https://news.yahoo.com/growing-india-struggle-prove-indians-040648911.html)
+- Apr 26 - [She got $0 from condo sale. Supreme Court weighs fairness](https://news.yahoo.com/she-got-0-condo-sale-043646683.html)
 - Apr 26 - [Singapore executes man for coordinating cannabis delivery](https://news.yahoo.com/singapore-executes-man-abetting-trafficking-023736619.html)
 - Apr 26 - [Russia's best tanks are in Ukraine, Russian state media says, but they're not assaulting Kyiv's forces, just shooting at them from a distance](https://news.yahoo.com/russias-best-tanks-ukraine-russian-021753132.html)
 - Apr 26 - [Authorities find 8 bodies in Mexican resort of Cancun](https://news.yahoo.com/authorities-8-bodies-mexican-resort-010606072.html)
