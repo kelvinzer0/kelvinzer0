@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 26 - [Elizabeth Holmes delays going to prison with another appeal](https://news.yahoo.com/elizabeth-holmes-delays-going-prison-165222291.html)
-- Apr 26 - [SpaceX scrubs latest Starlink satellite launch](https://news.yahoo.com/spacex-scrubs-latest-starlink-satellite-163717672.html)
-- Apr 26 - [Three men, all 18, arrested in fatal rock-throwing incident just outside Denver](https://news.yahoo.com/three-men-18-arrested-fatal-160033723.html)
-- Apr 26 - [Another wedding etiquette debate is blowing up after a TikToker said the woman in a white bridal-looking dress was actually a guest](https://news.yahoo.com/another-wedding-etiquette-debate-blowing-154603075.html)
-- Apr 26 - [Judge says Trump's Truth Social post blasting E. Jean Carroll during rape trial may be 'tampering' with jury](https://news.yahoo.com/judge-says-trumps-truth-social-153407685.html)
+- Apr 26 - [Glen River Dam experiment hopes to improve drought conditions on the Colorado River](https://news.yahoo.com/glen-river-dam-experiment-hopes-174104991.html)
+- Apr 26 - [Meet the record-breaking high school senior with more than $9M in scholarship offers](https://news.yahoo.com/meet-record-breaking-high-school-174211611.html)
+- Apr 26 - [3 men arrested in Colorado rock-throwing spree that killed 20-year-old driver: What we know](https://news.yahoo.com/colorado-rock-throwing-cars-3-arrested-first-degree-murder-alexa-bartell-killed-174203446.html)
+- Apr 26 - [We Build The Wall founder sentenced to 4 years in prison](https://news.yahoo.com/build-wall-founder-sentenced-4-174130226.html)
+- Apr 26 - [Russian troops digging trenches in Ukraine reportedly infected with anthrax](https://news.yahoo.com/russian-troops-digging-trenches-ukraine-172318014.html)
 <!-- feed end -->
