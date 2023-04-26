@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 26 - [Judge raps Trump for 'inappropriate' post on rape suit trial](https://news.yahoo.com/judge-raps-trump-inappropriate-post-145549849.html)
+- Apr 26 - [Writer tells jury in lawsuit trial: 'Donald Trump raped me'](https://news.yahoo.com/judge-raps-trump-inappropriate-post-145549849.html)
+- Apr 26 - ['Yellowstone' star Jen Landon says she brings her own portable shower to set because she gets 'covered in cow poo poo' all day while filming](https://news.yahoo.com/yellowstone-star-jen-landon-says-143103795.html)
+- Apr 26 - [I bought a $775,000 Palm Springs house to rent on Airbnb when I was 25. It's not as profitable as I thought it would be.](https://news.yahoo.com/bought-775-000-palm-springs-143026947.html)
+- Apr 26 - [Brothers get prison for trying to traffic $100 million of cocaine on "low-profile" boats](https://news.yahoo.com/brothers-prison-trying-traffic-100-140413268.html)
 - Apr 26 - [I adopted my daughter and her best friend. Then my daughter reunited with her identical twin — separated at birth and raised 9,000 miles apart.](https://news.yahoo.com/adopted-daughter-her-best-friend-133532288.html)
-- Apr 26 - [Kari Lake Makes Wild Claim About Fox News After Tucker Carlson Firing](https://news.yahoo.com/kari-lake-makes-wild-claim-130256038.html)
-- Apr 26 - [Residents told to lock doors amid search for jail escapees](https://news.yahoo.com/residents-told-lock-doors-amid-121528236.html)
-- Apr 26 - [Footage shows Ukrainian UAV spotting and destroying Russian invader](https://news.yahoo.com/footage-shows-ukrainian-uav-spotting-113300634.html)
 <!-- feed end -->
