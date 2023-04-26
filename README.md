@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 26 - [Three high school seniors arrested after fatal rock-throwing incident just outside Denver](https://news.yahoo.com/three-men-18-arrested-fatal-160033723.html)
+- Apr 26 - [Texas woman who nearly died after being denied an abortion slams GOP senators at hearing](https://news.yahoo.com/texas-woman-nearly-died-being-222451158.html)
+- Apr 26 - [Family of Marine killed in Afghanistan stuck with $3,200 bill for his highway memorial sign](https://news.yahoo.com/family-marine-killed-afghanistan-stuck-213132793.html)
 - Apr 26 - [DeSantis-backed New College board scraps 5 professors tenure](https://news.yahoo.com/desantis-backed-college-board-scraps-212548877.html)
-- Apr 26 - [Kourtney Kardashian Finally Responded After She Was Called Out For The "Obscene Display Of Wealth" On Her 44th Birthday](https://news.yahoo.com/kourtney-kardashian-finally-responded-she-003758412.html)
-- Apr 26 - [Colorado road rage shooter convicted of 1st-degree murder](https://news.yahoo.com/road-rage-shooter-convicted-1st-203838030.html)
-- Apr 26 - [Bald eagle spotted awkwardly swimming in Canada — then comes another surprise](https://news.yahoo.com/bald-eagle-spotted-awkwardly-swimming-203557989.html)
-- Apr 26 - [Viral video of Italian students mocking Asian family on Milan train prompts university statements](https://news.yahoo.com/viral-video-italian-students-mocking-202812153.html)
+- Apr 26 - [Kim Kardashian Lookalike & OnlyFans Model Dead at 34](https://news.yahoo.com/kim-kardashian-lookalike-onlyfans-model-204600606.html)
 <!-- feed end -->
