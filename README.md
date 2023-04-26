@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 26 - [Glen River Dam experiment hopes to improve drought conditions on the Colorado River](https://news.yahoo.com/glen-river-dam-experiment-hopes-174104991.html)
-- Apr 26 - [Meet the record-breaking high school senior with more than $9M in scholarship offers](https://news.yahoo.com/meet-record-breaking-high-school-174211611.html)
-- Apr 26 - [3 men arrested in Colorado rock-throwing spree that killed 20-year-old driver: What we know](https://news.yahoo.com/colorado-rock-throwing-cars-3-arrested-first-degree-murder-alexa-bartell-killed-174203446.html)
+- Apr 26 - [23 Rubber Band "Hacks" That I'm Kicking Myself For Not Knowing Earlier](https://news.yahoo.com/23-rubber-band-hacks-im-002507073.html)
+- Apr 26 - [Montana House to consider disciplinary action against transgender lawmaker Zooey Zephyr](https://news.yahoo.com/zooey-zephyr-montana-transgender-legislator-republican-discipline-175818079.html)
+- Apr 26 - [Uh Oh! Ronna McDaniel Didn't Expect Brian Kilmeade To Fact Check Her On Trump Debate](https://news.yahoo.com/uh-oh-ronna-mcdaniel-didnt-175116876.html)
 - Apr 26 - [We Build The Wall founder sentenced to 4 years in prison](https://news.yahoo.com/build-wall-founder-sentenced-4-174130226.html)
-- Apr 26 - [Russian troops digging trenches in Ukraine reportedly infected with anthrax](https://news.yahoo.com/russian-troops-digging-trenches-ukraine-172318014.html)
+- Apr 26 - [Michelle Obama says she and Barack Obama have different love languages: 'Stop kissing me. Just do the laundry.'](https://news.yahoo.com/michelle-obama-says-she-barack-173449007.html)
 <!-- feed end -->
