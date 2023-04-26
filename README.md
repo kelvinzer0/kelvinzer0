@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 26 - [Singapore executes man for coordinating cannabis delivery](https://news.yahoo.com/singapore-executes-man-abetting-trafficking-023736619.html)
+- Apr 26 - [Russia's best tanks are in Ukraine, Russian state media says, but they're not assaulting Kyiv's forces, just shooting at them from a distance](https://news.yahoo.com/russias-best-tanks-ukraine-russian-021753132.html)
 - Apr 26 - [Authorities find 8 bodies in Mexican resort of Cancun](https://news.yahoo.com/authorities-8-bodies-mexican-resort-010606072.html)
 - Apr 26 - [Report Suggests Tucker Carlson Was Fired Over Prayer Talk: 'Freaks Rupert Out'](https://news.yahoo.com/report-suggests-tucker-carlson-fired-005251961.html)
 - Apr 26 - [Trump might use trial docs to scorch witnesses, DA says](https://news.yahoo.com/trump-might-trial-docs-scorch-004731065.html)
-- Apr 26 - [New Audio Shows Ted Cruz Scheming to Steal 2020 Election](https://news.yahoo.com/bombshell-audio-shows-ted-cruz-001854911.html)
 <!-- feed end -->
