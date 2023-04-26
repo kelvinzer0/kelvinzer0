@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 26 - [Fox to hand over documents for 2nd voting machine lawsuit](https://news.yahoo.com/fox-hand-over-documents-2nd-193802183.html)
-- Apr 26 - [Mushroom hunter finds body of woman in town without a murder since 1996, MO cops say](https://news.yahoo.com/mushroom-hunter-finds-body-woman-185520261.html)
-- Apr 26 - [Before Fox News, Tucker Carlson worked at CNN. The show he co-hosted was canceled after a tense on-air exchange where Jon Stewart called him a 'dick.'](https://news.yahoo.com/fox-news-tucker-carlson-worked-181242748.html)
-- Apr 26 - [Bowman out at least 3 NASCAR races with fractured vertebra](https://news.yahoo.com/bowman-least-3-nascar-races-180405962.html)
-- Apr 26 - [Montana House to consider disciplinary action against transgender lawmaker Zooey Zephyr](https://news.yahoo.com/zooey-zephyr-montana-transgender-legislator-republican-discipline-175818079.html)
+- Apr 26 - [This Is the Best Pizza Place in North America, According to Yelp](https://news.yahoo.com/best-pizza-place-north-america-203603336.html)
+- Apr 26 - [Bald eagle spotted awkwardly swimming in Canada — then comes another surprise](https://news.yahoo.com/bald-eagle-spotted-awkwardly-swimming-203557989.html)
+- Apr 26 - [Montana transgender lawmaker speaks before being censured by GOP](https://news.yahoo.com/montana-transgender-lawmaker-speaks-being-203417994.html)
+- Apr 26 - [Viral video of Italian students mocking Asian family on Milan train prompts university statements](https://news.yahoo.com/viral-video-italian-students-mocking-202812153.html)
+- Apr 26 - [Someone buried treasure 2,000 years ago and never returned. A hiker just found it](https://news.yahoo.com/someone-buried-treasure-2-000-200354892.html)
 <!-- feed end -->
