@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 26 - [Footage shows Ukrainian UAV spotting and destroying Russian invader](https://news.yahoo.com/footage-shows-ukrainian-uav-spotting-113300634.html)
-- Apr 26 - [Reynolds, McElhenney make audacious Wrexham offer to Bale](https://news.yahoo.com/reynolds-mcelhenney-audacious-wrexham-offer-091319387.html)
+- Apr 26 - [Marjorie Taylor Greene says that 'everyone I've talked to' is boycotting Fox and deleting its app after Tucker Carlson's ousting](https://news.yahoo.com/marjorie-taylor-greene-says-everyone-105958287.html)
+- Apr 26 - [Bale to Wrexham? Hollywood owners make pitch to retired star](https://news.yahoo.com/reynolds-mcelhenney-audacious-wrexham-offer-091319387.html)
 - Apr 26 - [Judge tosses Devin Nunes' libel suit, ruling it 'objectively true' his family farm used undocumented migrants](https://news.yahoo.com/judge-tosses-devin-nunes-libel-090858995.html)
 - Apr 26 - [Elizabeth Holmes’ Daughter’s Name May Be Narcissism at Its Finest](https://news.yahoo.com/elizabeth-holmes-daughter-name-may-083247253.html)
-- Apr 26 - [MAGA-Obsessed GOP Rep. Ronny Jackson Mocked After Wild New Boast About Trump](https://news.yahoo.com/maga-obsessed-gop-rep-ronny-081715509.html)
 <!-- feed end -->
