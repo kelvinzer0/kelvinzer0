@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 26 - [23 Rubber Band "Hacks" That I'm Kicking Myself For Not Knowing Earlier](https://news.yahoo.com/23-rubber-band-hacks-im-002507073.html)
+- Apr 26 - [Fox to hand over documents for 2nd voting machine lawsuit](https://news.yahoo.com/fox-hand-over-documents-2nd-193802183.html)
+- Apr 26 - [Mushroom hunter finds body of woman in town without a murder since 1996, MO cops say](https://news.yahoo.com/mushroom-hunter-finds-body-woman-185520261.html)
+- Apr 26 - [Before Fox News, Tucker Carlson worked at CNN. The show he co-hosted was canceled after a tense on-air exchange where Jon Stewart called him a 'dick.'](https://news.yahoo.com/fox-news-tucker-carlson-worked-181242748.html)
+- Apr 26 - [Bowman out at least 3 NASCAR races with fractured vertebra](https://news.yahoo.com/bowman-least-3-nascar-races-180405962.html)
 - Apr 26 - [Montana House to consider disciplinary action against transgender lawmaker Zooey Zephyr](https://news.yahoo.com/zooey-zephyr-montana-transgender-legislator-republican-discipline-175818079.html)
-- Apr 26 - [Uh Oh! Ronna McDaniel Didn't Expect Brian Kilmeade To Fact Check Her On Trump Debate](https://news.yahoo.com/uh-oh-ronna-mcdaniel-didnt-175116876.html)
-- Apr 26 - [We Build The Wall founder sentenced to 4 years in prison](https://news.yahoo.com/build-wall-founder-sentenced-4-174130226.html)
-- Apr 26 - [Michelle Obama says she and Barack Obama have different love languages: 'Stop kissing me. Just do the laundry.'](https://news.yahoo.com/michelle-obama-says-she-barack-173449007.html)
 <!-- feed end -->
