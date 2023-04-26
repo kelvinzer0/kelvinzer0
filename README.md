@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 26 - [Writer tells jury in lawsuit trial: 'Donald Trump raped me'](https://news.yahoo.com/judge-raps-trump-inappropriate-post-145549849.html)
-- Apr 26 - ['Yellowstone' star Jen Landon says she brings her own portable shower to set because she gets 'covered in cow poo poo' all day while filming](https://news.yahoo.com/yellowstone-star-jen-landon-says-143103795.html)
-- Apr 26 - [I bought a $775,000 Palm Springs house to rent on Airbnb when I was 25. It's not as profitable as I thought it would be.](https://news.yahoo.com/bought-775-000-palm-springs-143026947.html)
-- Apr 26 - [Brothers get prison for trying to traffic $100 million of cocaine on "low-profile" boats](https://news.yahoo.com/brothers-prison-trying-traffic-100-140413268.html)
-- Apr 26 - [I adopted my daughter and her best friend. Then my daughter reunited with her identical twin — separated at birth and raised 9,000 miles apart.](https://news.yahoo.com/adopted-daughter-her-best-friend-133532288.html)
+- Apr 26 - [Elizabeth Holmes delays going to prison with another appeal](https://news.yahoo.com/elizabeth-holmes-delays-going-prison-165222291.html)
+- Apr 26 - [SpaceX scrubs latest Starlink satellite launch](https://news.yahoo.com/spacex-scrubs-latest-starlink-satellite-163717672.html)
+- Apr 26 - [Three men, all 18, arrested in fatal rock-throwing incident just outside Denver](https://news.yahoo.com/three-men-18-arrested-fatal-160033723.html)
+- Apr 26 - [Another wedding etiquette debate is blowing up after a TikToker said the woman in a white bridal-looking dress was actually a guest](https://news.yahoo.com/another-wedding-etiquette-debate-blowing-154603075.html)
+- Apr 26 - [Judge says Trump's Truth Social post blasting E. Jean Carroll during rape trial may be 'tampering' with jury](https://news.yahoo.com/judge-says-trumps-truth-social-153407685.html)
 <!-- feed end -->
