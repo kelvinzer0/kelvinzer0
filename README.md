@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 26 - [Reynolds, McElhenney make audacious Wrexham offer to Bale](https://news.yahoo.com/reynolds-mcelhenney-audacious-wrexham-offer-091319387.html)
 - Apr 26 - [Elizabeth Holmes’ Daughter’s Name May Be Narcissism at Its Finest](https://news.yahoo.com/elizabeth-holmes-daughter-name-may-083247253.html)
 - Apr 26 - [MAGA-Obsessed GOP Rep. Ronny Jackson Mocked After Wild New Boast About Trump](https://news.yahoo.com/maga-obsessed-gop-rep-ronny-081715509.html)
 - Apr 26 - [Belarusians wary of being drawn into war with Ukraine](https://news.yahoo.com/belarusians-wary-being-drawn-war-061959127.html)
 - Apr 26 - [She got $0 from condo sale. Supreme Court weighs fairness](https://news.yahoo.com/she-got-0-condo-sale-043646683.html)
-- Apr 26 - [Russia's Lavrov warns EU becoming militarized now, like NATO](https://news.yahoo.com/russias-lavrov-warns-eu-becoming-033503825.html)
 <!-- feed end -->
