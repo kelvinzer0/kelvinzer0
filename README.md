@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Car and school bus collide north of NYC](https://news.yahoo.com/car-school-bus-collide-north-143504252.html)
-- Apr 27 - [A clip of 2 women blasting music out loud on a plane as passengers cover their ears has blown up, sparking a heated discussion about flight etiquette](https://news.yahoo.com/clip-2-women-blasting-music-131354821.html)
-- Apr 27 - [Patrick Stewart says his agent thought 'Star Trek: The Next Generation' would only last 6 months: 'You cannot revive an iconic show'](https://news.yahoo.com/patrick-stewart-says-agent-thought-120042202.html)
-- Apr 27 - [Angry at DeSantis, Fla. Students Take to the Streets — and Take a Banned Lesson](https://news.yahoo.com/angry-desantis-fla-students-streets-101500838.html)
-- Apr 27 - [Tense face-off: Philippines confronts China over sea claims](https://news.yahoo.com/chinese-ship-blocks-philippine-vessel-095933794.html)
+- Apr 27 - [Jerry Springer, controversial talk show host and former mayor of Cincinnati, dies at 79](https://news.yahoo.com/jerry-springer-controversial-talk-show-153233234.html)
+- Apr 27 - [Jerry Springer dies at 79](https://news.yahoo.com/jerry-springer-dies-79-153603553.html)
+- Apr 27 - [James Corden reveals the one ‘Carpool Karaoke’ guest he could never get](https://news.yahoo.com/james-corden-reveals-one-carpool-151506933.html)
+- Apr 27 - [Watch bear family bounce and play on woman’s backyard trampoline. ‘We are very similar’](https://news.yahoo.com/watch-bear-family-bounce-play-151337879.html)
+- Apr 27 - [Woman neglected in jail went blind, begged for water before dying in Texas, lawsuit says](https://news.yahoo.com/woman-neglected-jail-went-blind-144611795.html)
 <!-- feed end -->
