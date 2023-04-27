@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Jerry Springer, controversial talk show host and former mayor of Cincinnati, dies at 79](https://news.yahoo.com/jerry-springer-controversial-talk-show-153233234.html)
-- Apr 27 - [Jerry Springer dies at 79](https://news.yahoo.com/jerry-springer-dies-79-153603553.html)
+- Apr 27 - [Carolyn Bryant Donham, at center of Emmett Till death, dies](https://news.yahoo.com/carolyn-bryant-donham-center-emmett-163317808.html)
+- Apr 27 - ['Jackass' star Bam Margera in court, denies hitting brother](https://news.yahoo.com/jackass-star-bam-margera-court-160400869.html)
 - Apr 27 - [James Corden reveals the one ‘Carpool Karaoke’ guest he could never get](https://news.yahoo.com/james-corden-reveals-one-carpool-151506933.html)
 - Apr 27 - [Watch bear family bounce and play on woman’s backyard trampoline. ‘We are very similar’](https://news.yahoo.com/watch-bear-family-bounce-play-151337879.html)
 - Apr 27 - [Woman neglected in jail went blind, begged for water before dying in Texas, lawsuit says](https://news.yahoo.com/woman-neglected-jail-went-blind-144611795.html)
