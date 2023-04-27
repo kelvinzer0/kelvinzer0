@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Transgender lawmaker fights for space in hall](https://news.yahoo.com/transgender-lawmaker-fights-space-hall-184153441.html)
-- Apr 27 - [An Airbnb host said a guest inexplicably swapped out a wall picture for a completely different painting. TikTok is gripped, watching as the saga unfolds.](https://news.yahoo.com/airbnb-host-said-guest-inexplicably-173221203.html)
-- Apr 27 - [Rock-Throwing Suspects Took Memento From Fatal Crash, Cops Say](https://news.yahoo.com/rock-throwing-suspects-took-memento-165830990.html)
-- Apr 27 - [Carolyn Bryant Donham, at center of Emmett Till death, dies](https://news.yahoo.com/carolyn-bryant-donham-center-emmett-163317808.html)
-- Apr 27 - ['Jackass' star Bam Margera in court, denies hitting brother](https://news.yahoo.com/jackass-star-bam-margera-court-160400869.html)
+- Apr 27 - [Biden answers questions for kids during Take Your Child to Work Day event at White House](https://news.yahoo.com/biden-answers-questions-kids-during-193239219.html)
+- Apr 27 - [Bhad Bhabie says her mom, who she plans on putting in a nursing home, doesn't care about her wealth coming from OnlyFans: 'That lady love money'](https://news.yahoo.com/bhad-bhabie-says-her-mom-190636724.html)
+- Apr 27 - [Police say man continued date after fatal shooting over $40](https://news.yahoo.com/police-man-continued-date-fatal-183455018.html)
+- Apr 27 - [The woman who accused Ed Sheeran of ripping off Marvin Gaye's 'Let's Get It On' and collapsed outside the courtroom is feeling better and 'hoping to come back to court,' sources told Insider](https://news.yahoo.com/woman-accused-ed-sheeran-ripping-174931180.html)
+- Apr 27 - [Russia's Defense Ministry braces for major defeat in Ukraine, expert says](https://news.yahoo.com/russias-defense-ministry-braces-major-174000922.html)
 <!-- feed end -->
