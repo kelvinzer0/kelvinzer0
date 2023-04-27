@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Washington County hairstylist facing charges for allegedly running prostitution business in salon](https://news.yahoo.com/washington-county-hairstylist-facing-charges-214613443.html)
+- Apr 27 - [Lindsay Lohan Shared Her First "Baby Bump" Pic, And She's Absolutely Glowing](https://news.yahoo.com/lindsay-lohan-shared-her-first-034337026.html)
+- Apr 27 - [After 13 years in the minors, Pirates' Maggi makes MLB debut](https://news.yahoo.com/13-years-minors-pirates-maggi-030242717.html)
 - Apr 27 - [Appeals court rejects Trump effort to block Pence testimony](https://news.yahoo.com/appeals-court-rejects-trump-effort-014531944.html)
 - Apr 27 - [Jury Has Likely Decided Trump’s Fate in Rape Case Already](https://news.yahoo.com/jury-probably-decided-trump-fate-013257966.html)
 - Apr 27 - [Marjorie Taylor Greene Hints To Teachers Union Leader That Stepmoms Aren't Legit](https://news.yahoo.com/marjorie-taylor-greene-hints-teachers-001858862.html)
-- Apr 27 - [Rapper MoneySign Suede dies in California prison stabbing](https://news.yahoo.com/rapper-moneysign-suede-dies-california-000809255.html)
 <!-- feed end -->
