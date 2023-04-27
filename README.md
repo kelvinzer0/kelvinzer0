@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Chinese giant panda Ya Ya back in China after 20 years at Memphis Zoo in Tennessee](https://news.yahoo.com/chinese-giant-panda-ya-ya-202816383.html)
 - Apr 27 - [What it's like for Singapore's death row inmates in the days leading up to their execution](https://news.yahoo.com/singapores-death-row-inmates-days-201728505.html)
-- Apr 27 - [Griner breaks down talking about Russian detainment](https://news.yahoo.com/griner-breaks-down-talking-russian-195948618.html)
 - Apr 27 - [Man pauses date to kill parking lot scammer, then returns to restaurant, Texas cops say](https://news.yahoo.com/man-pauses-date-kill-parking-193142598.html)
+- Apr 27 - [Ga. man accused of stopping school bus full of kids because a child ‘flipped off’ his family](https://news.yahoo.com/ga-man-accused-blocking-school-191102329.html)
 - Apr 27 - [Bhad Bhabie says her mom, who she plans on putting in a nursing home, doesn't care about her wealth coming from OnlyFans: 'That lady love money'](https://news.yahoo.com/bhad-bhabie-says-her-mom-190636724.html)
+- Apr 27 - [Arrest made in LA caught-on-camera kidnapping of woman who was pistol-whipped, forced into vehicle](https://news.yahoo.com/arrest-made-la-caught-camera-182237599.html)
 <!-- feed end -->
