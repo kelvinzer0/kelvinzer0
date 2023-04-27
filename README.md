@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 27 - [Montana State Rep. Zooey Zephyr continues to being silenced over trans bill comments](https://news.yahoo.com/montana-state-rep-zooey-zephyr-202922428.html)
+- Apr 27 - [Angry at DeSantis, Fla. Students Take to the Streets — and Take a Banned Lesson](https://news.yahoo.com/angry-desantis-fla-students-streets-101500838.html)
+- Apr 27 - [Tense face-off: Philippines confronts China over sea claims](https://news.yahoo.com/chinese-ship-blocks-philippine-vessel-095933794.html)
 - Apr 27 - [Fox News’ Geraldo Rivera Breaks Ranks To Slam Tucker Carlson](https://news.yahoo.com/fox-news-geraldo-rivera-breaks-080453457.html)
-- Apr 27 - [After 13 years in the minors, Pirates' Maggi makes MLB debut](https://news.yahoo.com/13-years-minors-pirates-maggi-030242717.html)
-- Apr 27 - [Jury Has Likely Decided Trump’s Fate in Rape Case Already](https://news.yahoo.com/jury-probably-decided-trump-fate-013257966.html)
-- Apr 27 - [Marjorie Taylor Greene Hints To Teachers Union Leader That Stepmoms Aren't Legit](https://news.yahoo.com/marjorie-taylor-greene-hints-teachers-001858862.html)
-- Apr 27 - [Rapper MoneySign Suede dies in California prison stabbing](https://news.yahoo.com/rapper-moneysign-suede-dies-california-000809255.html)
+- Apr 27 - [The 'end' of Kim Jong Un? What the 'Washington Declaration' means](https://news.yahoo.com/end-kim-jong-un-washington-072905853.html)
 <!-- feed end -->
