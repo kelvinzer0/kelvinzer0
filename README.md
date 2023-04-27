@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [WNBA player Brittney Griner gets emotional as she speaks out after detention in Russia](https://news.yahoo.com/wnba-player-brittney-griner-gets-173356893.html)
+- Apr 27 - [Transgender lawmaker fights for space in hall](https://news.yahoo.com/transgender-lawmaker-fights-space-hall-184153441.html)
+- Apr 27 - [An Airbnb host said a guest inexplicably swapped out a wall picture for a completely different painting. TikTok is gripped, watching as the saga unfolds.](https://news.yahoo.com/airbnb-host-said-guest-inexplicably-173221203.html)
 - Apr 27 - [Rock-Throwing Suspects Took Memento From Fatal Crash, Cops Say](https://news.yahoo.com/rock-throwing-suspects-took-memento-165830990.html)
 - Apr 27 - [Carolyn Bryant Donham, at center of Emmett Till death, dies](https://news.yahoo.com/carolyn-bryant-donham-center-emmett-163317808.html)
 - Apr 27 - ['Jackass' star Bam Margera in court, denies hitting brother](https://news.yahoo.com/jackass-star-bam-margera-court-160400869.html)
-- Apr 27 - [James Corden reveals the one ‘Carpool Karaoke’ guest he could never get](https://news.yahoo.com/james-corden-reveals-one-carpool-151506933.html)
 <!-- feed end -->
