@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [South Korean President Yoon Suk Yeol sings his 'favorite song' at White House state dinner](https://news.yahoo.com/south-korean-president-yoon-suk-123621316.html)
+- Apr 27 - [Ron DeSantis says Disney lawsuit is political](https://news.yahoo.com/ron-desantis-says-disney-lawsuit-134621727.html)
 - Apr 27 - [Patrick Stewart says his agent thought 'Star Trek: The Next Generation' would only last 6 months: 'You cannot revive an iconic show'](https://news.yahoo.com/patrick-stewart-says-agent-thought-120042202.html)
 - Apr 27 - [Is Russia Covering Up an Assassination Attempt on Putin?](https://news.yahoo.com/russia-covering-assassination-attempt-putin-113619814.html)
 - Apr 27 - [Angry at DeSantis, Fla. Students Take to the Streets — and Take a Banned Lesson](https://news.yahoo.com/angry-desantis-fla-students-streets-101500838.html)
