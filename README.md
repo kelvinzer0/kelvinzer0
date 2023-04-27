@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Biden answers questions for kids during Take Your Child to Work Day event at White House](https://news.yahoo.com/biden-answers-questions-kids-during-193239219.html)
+- Apr 27 - [Chinese giant panda Ya Ya back in China after 20 years at Memphis Zoo in Tennessee](https://news.yahoo.com/chinese-giant-panda-ya-ya-202816383.html)
+- Apr 27 - [What it's like for Singapore's death row inmates in the days leading up to their execution](https://news.yahoo.com/singapores-death-row-inmates-days-201728505.html)
+- Apr 27 - [Griner breaks down talking about Russian detainment](https://news.yahoo.com/griner-breaks-down-talking-russian-195948618.html)
+- Apr 27 - [Man pauses date to kill parking lot scammer, then returns to restaurant, Texas cops say](https://news.yahoo.com/man-pauses-date-kill-parking-193142598.html)
 - Apr 27 - [Bhad Bhabie says her mom, who she plans on putting in a nursing home, doesn't care about her wealth coming from OnlyFans: 'That lady love money'](https://news.yahoo.com/bhad-bhabie-says-her-mom-190636724.html)
-- Apr 27 - [Police say man continued date after fatal shooting over $40](https://news.yahoo.com/police-man-continued-date-fatal-183455018.html)
-- Apr 27 - [The woman who accused Ed Sheeran of ripping off Marvin Gaye's 'Let's Get It On' and collapsed outside the courtroom is feeling better and 'hoping to come back to court,' sources told Insider](https://news.yahoo.com/woman-accused-ed-sheeran-ripping-174931180.html)
-- Apr 27 - [Russia's Defense Ministry braces for major defeat in Ukraine, expert says](https://news.yahoo.com/russias-defense-ministry-braces-major-174000922.html)
 <!-- feed end -->
