@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Beam Team on the brink: Kings fans react after tough home loss to Warriors in Game 5](https://news.yahoo.com/beam-team-brink-kings-fans-051758970.html)
+- Apr 27 - [After 13 years in the minors, Pirates' Maggi makes MLB debut](https://news.yahoo.com/13-years-minors-pirates-maggi-030242717.html)
 - Apr 27 - [Dwyane Wade says he left Florida because he feels his family "would not be accepted" there](https://news.yahoo.com/dwyane-wade-says-left-florida-021128636.html)
 - Apr 27 - [Jury Has Likely Decided Trump’s Fate in Rape Case Already](https://news.yahoo.com/jury-probably-decided-trump-fate-013257966.html)
 - Apr 27 - [Marjorie Taylor Greene Hints To Teachers Union Leader That Stepmoms Aren't Legit](https://news.yahoo.com/marjorie-taylor-greene-hints-teachers-001858862.html)
