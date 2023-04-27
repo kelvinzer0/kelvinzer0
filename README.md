@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 27 - [Lamar Jackson agrees to five-year deal with Ravens, making QB the highest-paid player in NFL history](https://news.yahoo.com/lamar-jackson-agrees-five-deal-222533316.html)
+- Apr 27 - [Nebraska Republican: ‘No One’s Forcing Anyone to Be Pregnant'](https://news.yahoo.com/nebraska-republican-no-one-forcing-214000883.html)
+- Apr 27 - [E. Jean Carroll attacks Trump lawyer for questioning why she didn't scream during alleged rape](https://news.yahoo.com/e-jean-carroll-attacks-trump-211454420.html)
+- Apr 27 - [Video shows 16-year-old girl violently attacked by classmates at metro Atlanta high school](https://news.yahoo.com/video-shows-16-old-girl-210540539.html)
 - Apr 27 - [What it's like for Singapore's death row inmates in the days leading up to their execution](https://news.yahoo.com/singapores-death-row-inmates-days-201728505.html)
-- Apr 27 - [Man pauses date to kill parking lot scammer, then returns to restaurant, Texas cops say](https://news.yahoo.com/man-pauses-date-kill-parking-193142598.html)
-- Apr 27 - [Ga. man accused of stopping school bus full of kids because a child ‘flipped off’ his family](https://news.yahoo.com/ga-man-accused-blocking-school-191102329.html)
-- Apr 27 - [Bhad Bhabie says her mom, who she plans on putting in a nursing home, doesn't care about her wealth coming from OnlyFans: 'That lady love money'](https://news.yahoo.com/bhad-bhabie-says-her-mom-190636724.html)
-- Apr 27 - [Arrest made in LA caught-on-camera kidnapping of woman who was pistol-whipped, forced into vehicle](https://news.yahoo.com/arrest-made-la-caught-camera-182237599.html)
 <!-- feed end -->
