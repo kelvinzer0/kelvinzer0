@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Montana State Rep. Zooey Zephyr continues to being silenced over trans bill comments](https://news.yahoo.com/montana-state-rep-zooey-zephyr-202922428.html)
 - Apr 27 - [Angry at DeSantis, Fla. Students Take to the Streets — and Take a Banned Lesson](https://news.yahoo.com/angry-desantis-fla-students-streets-101500838.html)
 - Apr 27 - [Tense face-off: Philippines confronts China over sea claims](https://news.yahoo.com/chinese-ship-blocks-philippine-vessel-095933794.html)
-- Apr 27 - [Fox News’ Geraldo Rivera Breaks Ranks To Slam Tucker Carlson](https://news.yahoo.com/fox-news-geraldo-rivera-breaks-080453457.html)
 - Apr 27 - [The 'end' of Kim Jong Un? What the 'Washington Declaration' means](https://news.yahoo.com/end-kim-jong-un-washington-072905853.html)
+- Apr 27 - [Gov. Gavin Newsom Flames Sen. Ron Johnson’s Climate Crisis Spin With Just 8 Words](https://news.yahoo.com/gov-gavin-newsom-flames-sen-072226809.html)
+- Apr 27 - [Washington County hairstylist facing charges for allegedly running prostitution business in salon](https://news.yahoo.com/washington-county-hairstylist-facing-charges-214613443.html)
 <!-- feed end -->
