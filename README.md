@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Ron DeSantis says Disney lawsuit is political](https://news.yahoo.com/ron-desantis-says-disney-lawsuit-134621727.html)
+- Apr 27 - [Car and school bus collide north of NYC](https://news.yahoo.com/car-school-bus-collide-north-143504252.html)
+- Apr 27 - [A clip of 2 women blasting music out loud on a plane as passengers cover their ears has blown up, sparking a heated discussion about flight etiquette](https://news.yahoo.com/clip-2-women-blasting-music-131354821.html)
 - Apr 27 - [Patrick Stewart says his agent thought 'Star Trek: The Next Generation' would only last 6 months: 'You cannot revive an iconic show'](https://news.yahoo.com/patrick-stewart-says-agent-thought-120042202.html)
-- Apr 27 - [Is Russia Covering Up an Assassination Attempt on Putin?](https://news.yahoo.com/russia-covering-assassination-attempt-putin-113619814.html)
 - Apr 27 - [Angry at DeSantis, Fla. Students Take to the Streets — and Take a Banned Lesson](https://news.yahoo.com/angry-desantis-fla-students-streets-101500838.html)
 - Apr 27 - [Tense face-off: Philippines confronts China over sea claims](https://news.yahoo.com/chinese-ship-blocks-philippine-vessel-095933794.html)
 <!-- feed end -->
