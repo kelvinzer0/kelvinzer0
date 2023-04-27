@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 27 - [Marjorie Taylor Greene Hints To Teachers Union Leader That Stepmoms Aren't Legit](https://news.yahoo.com/marjorie-taylor-greene-hints-teachers-001858862.html)
+- Apr 27 - [Rapper MoneySign Suede dies in California prison stabbing](https://news.yahoo.com/rapper-moneysign-suede-dies-california-000809255.html)
 - Apr 26 - [Three high school seniors arrested after fatal rock-throwing incident just outside Denver](https://news.yahoo.com/three-men-18-arrested-fatal-160033723.html)
-- Apr 26 - [Texas woman who nearly died after being denied an abortion slams GOP senators at hearing](https://news.yahoo.com/texas-woman-nearly-died-being-222451158.html)
-- Apr 26 - [Family of Marine killed in Afghanistan stuck with $3,200 bill for his highway memorial sign](https://news.yahoo.com/family-marine-killed-afghanistan-stuck-213132793.html)
-- Apr 26 - [DeSantis-backed New College board scraps 5 professors tenure](https://news.yahoo.com/desantis-backed-college-board-scraps-212548877.html)
-- Apr 26 - [Kim Kardashian Lookalike & OnlyFans Model Dead at 34](https://news.yahoo.com/kim-kardashian-lookalike-onlyfans-model-204600606.html)
+- Apr 26 - [Nikki Haley Predicts Joe Biden Will Die Within Five Years](https://news.yahoo.com/nikki-haley-predicts-joe-biden-224806283.html)
+- Apr 26 - [Viral video shows mother, daughter beaten by mob on Ga. beach during massive spring break party](https://news.yahoo.com/viral-video-shows-mother-daughter-211156751.html)
 <!-- feed end -->
