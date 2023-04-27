@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 27 - [South Korean President Yoon Suk Yeol sings his 'favorite song' at White House state dinner](https://news.yahoo.com/south-korean-president-yoon-suk-123621316.html)
+- Apr 27 - [Patrick Stewart says his agent thought 'Star Trek: The Next Generation' would only last 6 months: 'You cannot revive an iconic show'](https://news.yahoo.com/patrick-stewart-says-agent-thought-120042202.html)
+- Apr 27 - [Is Russia Covering Up an Assassination Attempt on Putin?](https://news.yahoo.com/russia-covering-assassination-attempt-putin-113619814.html)
 - Apr 27 - [Angry at DeSantis, Fla. Students Take to the Streets — and Take a Banned Lesson](https://news.yahoo.com/angry-desantis-fla-students-streets-101500838.html)
 - Apr 27 - [Tense face-off: Philippines confronts China over sea claims](https://news.yahoo.com/chinese-ship-blocks-philippine-vessel-095933794.html)
-- Apr 27 - [The 'end' of Kim Jong Un? What the 'Washington Declaration' means](https://news.yahoo.com/end-kim-jong-un-washington-072905853.html)
-- Apr 27 - [Gov. Gavin Newsom Flames Sen. Ron Johnson’s Climate Crisis Spin With Just 8 Words](https://news.yahoo.com/gov-gavin-newsom-flames-sen-072226809.html)
-- Apr 27 - [Washington County hairstylist facing charges for allegedly running prostitution business in salon](https://news.yahoo.com/washington-county-hairstylist-facing-charges-214613443.html)
 <!-- feed end -->
