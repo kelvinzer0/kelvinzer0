@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 27 - [Appeals court rejects Trump effort to block Pence testimony](https://news.yahoo.com/appeals-court-rejects-trump-effort-014531944.html)
+- Apr 27 - [Jury Has Likely Decided Trump’s Fate in Rape Case Already](https://news.yahoo.com/jury-probably-decided-trump-fate-013257966.html)
 - Apr 27 - [Marjorie Taylor Greene Hints To Teachers Union Leader That Stepmoms Aren't Legit](https://news.yahoo.com/marjorie-taylor-greene-hints-teachers-001858862.html)
 - Apr 27 - [Rapper MoneySign Suede dies in California prison stabbing](https://news.yahoo.com/rapper-moneysign-suede-dies-california-000809255.html)
 - Apr 26 - [Three high school seniors arrested after fatal rock-throwing incident just outside Denver](https://news.yahoo.com/three-men-18-arrested-fatal-160033723.html)
-- Apr 26 - [Nikki Haley Predicts Joe Biden Will Die Within Five Years](https://news.yahoo.com/nikki-haley-predicts-joe-biden-224806283.html)
-- Apr 26 - [Viral video shows mother, daughter beaten by mob on Ga. beach during massive spring break party](https://news.yahoo.com/viral-video-shows-mother-daughter-211156751.html)
 <!-- feed end -->
