@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Lindsay Lohan Shared Her First "Baby Bump" Pic, And She's Absolutely Glowing](https://news.yahoo.com/lindsay-lohan-shared-her-first-034337026.html)
 - Apr 27 - [After 13 years in the minors, Pirates' Maggi makes MLB debut](https://news.yahoo.com/13-years-minors-pirates-maggi-030242717.html)
+- Apr 27 - [Dwyane Wade says he left Florida because he feels his family "would not be accepted" there](https://news.yahoo.com/dwyane-wade-says-left-florida-021128636.html)
 - Apr 27 - [Appeals court rejects Trump effort to block Pence testimony](https://news.yahoo.com/appeals-court-rejects-trump-effort-014531944.html)
+- Apr 27 - [Texas brothers, 3rd suspect arrested in killing of auto mechanic over repair bill](https://news.yahoo.com/texas-brothers-3rd-suspect-arrested-013703767.html)
 - Apr 27 - [Jury Has Likely Decided Trump’s Fate in Rape Case Already](https://news.yahoo.com/jury-probably-decided-trump-fate-013257966.html)
-- Apr 27 - [Marjorie Taylor Greene Hints To Teachers Union Leader That Stepmoms Aren't Legit](https://news.yahoo.com/marjorie-taylor-greene-hints-teachers-001858862.html)
 <!-- feed end -->
