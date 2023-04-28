@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 28 - [A key inflation gauge tracked by the Federal Reserve remained high in March](https://news.yahoo.com/key-inflation-gauge-tracked-federal-165123307.html)
-- Apr 28 - [Putin’s personal reactions to bad news might cause him to order missile strikes on Ukraine, says political scientist](https://news.yahoo.com/putin-personal-reactions-bad-news-161500845.html)
-- Apr 28 - [Marjorie Taylor Greene Makes Baffling Point About Taxes During The Ice Age, Insults AOC](https://news.yahoo.com/marjorie-taylor-greene-makes-baffling-155958583.html)
-- Apr 28 - [Southwest flight delayed as attendant loses it over ‘some kind of Asian fried rice’](https://news.yahoo.com/southwest-flight-delayed-attendant-loses-153355280.html)
-- Apr 28 - [A London Marathon runner who finished the race in under 3 hours died 'out of the blue' on his way home](https://news.yahoo.com/london-marathon-runner-finished-race-145414085.html)
+- Apr 28 - [With Mike Pence's testimony, Jack Smith's Jan. 6 investigation of Donald Trump nears its conclusion](https://news.yahoo.com/trump-jack-smith-special-counsel-investigation-mike-pence-testimony-180003920.html)
+- Apr 28 - [Preview: Michael J. Fox on Parkinson's: "Every day it gets tougher"](https://news.yahoo.com/preview-michael-j-fox-parkinsons-172000541.html)
+- Apr 28 - [Dance gets world's first heavy metal ballet](https://news.yahoo.com/dance-gets-worlds-first-heavy-171400831.html)
+- Apr 28 - [N. Carolina justices hand GOP big win with election rulings](https://news.yahoo.com/n-carolina-justices-sweep-away-164016562.html)
+- Apr 28 - [Marjorie Taylor Greene Makes Bizarre Quip About Taxes During The Ice Age, Insults AOC](https://news.yahoo.com/marjorie-taylor-greene-makes-baffling-155958583.html)
 <!-- feed end -->
