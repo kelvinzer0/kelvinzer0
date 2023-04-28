@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 28 - [Keanu Reeves answers questions from young energized superfan](https://news.yahoo.com/keanu-reeves-answers-questions-young-143959169.html)
+- Apr 28 - [People Are Completely Obsessed With Sofia Richie's Wedding Looks, And I'm Obviously One Of Them](https://news.yahoo.com/people-completely-obsessed-sofia-richies-022505634.html)
 - Apr 28 - [Patrick Swayze's widow reveals his first pancreatic cancer symptoms: 'Life turns on a dime'](https://news.yahoo.com/patrick-swayzes-widow-reveals-first-140841450.html)
 - Apr 28 - [After disappointing draft night, Will Levis gets classy tweet from New York Jets star](https://news.yahoo.com/disappointing-draft-night-levis-gets-133320053.html)
 - Apr 28 - [Iran TV airs footage of commandos seizing US-bound tanker](https://news.yahoo.com/iran-tv-airs-footage-commandos-131323630.html)
-- Apr 28 - [How Patrick Swayze’s widow Lisa Niemi is honoring her late husband](https://news.yahoo.com/patrick-swayze-widow-lisa-niemi-125727387.html)
+- Apr 28 - [‘Not a chance’: Fox News viewers reject Tucker Carlson’s replacement](https://news.yahoo.com/not-chance-fox-viewers-reject-130323580.html)
 <!-- feed end -->
