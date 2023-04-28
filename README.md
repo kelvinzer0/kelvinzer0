@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 28 - [Keanu Reeves answers questions from young energized superfan](https://news.yahoo.com/keanu-reeves-answers-questions-young-143959169.html)
+- Apr 28 - [Patrick Swayze's widow reveals his first pancreatic cancer symptoms: 'Life turns on a dime'](https://news.yahoo.com/patrick-swayzes-widow-reveals-first-140841450.html)
 - Apr 28 - [After disappointing draft night, Will Levis gets classy tweet from New York Jets star](https://news.yahoo.com/disappointing-draft-night-levis-gets-133320053.html)
-- Apr 28 - [Heroic teen grabs wheel, stops Michigan school bus after driver passes out mid-route](https://news.yahoo.com/heroic-teen-grabs-wheel-stops-133133972.html)
 - Apr 28 - [Iran TV airs footage of commandos seizing US-bound tanker](https://news.yahoo.com/iran-tv-airs-footage-commandos-131323630.html)
-- Apr 28 - [Trump, who was notably silent on recent Bud Light boycott, owns up to $5 million in Anheuser-Busch stock, records show](https://news.yahoo.com/trump-notably-silent-recent-bud-115033560.html)
-- Apr 28 - [DeSantis loses his cool with a reporter after being challenged over claims he witnessed torture while working at Guantanamo Bay](https://news.yahoo.com/desantis-loses-cool-reporter-being-114332256.html)
+- Apr 28 - [How Patrick Swayze’s widow Lisa Niemi is honoring her late husband](https://news.yahoo.com/patrick-swayze-widow-lisa-niemi-125727387.html)
 <!-- feed end -->
