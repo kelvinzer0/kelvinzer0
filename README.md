@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 28 - [Greene rebuked for saying AFT president is 'not a mother'](https://news.yahoo.com/greene-rebuked-saying-aft-president-213719549.html)
+- Apr 28 - [Armed with tanks and heavy armor from NATO, Ukraine says it's about to hit Russian forces with an 'iron fist'](https://news.yahoo.com/armed-tanks-heavy-armor-nato-213545034.html)
 - Apr 28 - [Takeaways from E. Jean Carroll's rape lawsuit trial against Donald Trump](https://news.yahoo.com/takeaways-e-jean-carrolls-rape-210651634.html)
 - Apr 28 - [Shanquella Robinson's mom knows why her daughter is dead, but says U.S. officials won't act](https://news.yahoo.com/shanquella-robinson-mom-mexico-daughter-is-dead-officials-charlotte-203911464.html)
-- Apr 28 - [A woman captured the moment she was laid off by Amazon in a Wes Anderson-style clip — as a part of the burgeoning TikTok trend](https://news.yahoo.com/woman-captured-moment-she-laid-195216546.html)
 - Apr 28 - [Dog walker 'beaten to death' after 'altercation' with schoolchildren](https://news.yahoo.com/dog-walker-beaten-death-altercation-184045407.html)
 <!-- feed end -->
