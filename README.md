@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 28 - [Renowned China investor Ray Dalio says the US and China are on the brink of war, and that both sides are 'beyond the ability to talk'](https://news.yahoo.com/renowned-china-investor-ray-dalio-042849765.html)
 - Apr 28 - [Trump Lawyer’s Shameful Cross-Examination of E. Jean Carroll](https://news.yahoo.com/trump-lawyer-shameful-cross-examination-021020461.html)
 - Apr 27 - [AP Explains: Trump rape accuser cross-examined](https://news.yahoo.com/ap-explains-trump-rape-accuser-234231571.html)
 - Apr 27 - [Rare sea creature — a 12-foot ‘devil’ — spotted off US East Coast for the first time](https://news.yahoo.com/rare-sea-creature-12-foot-231045530.html)
 - Apr 27 - [A Michigan 7th grader pulled off the heroic act of stopping a school bus carrying around 66 students after his bus driver lost consciousness at the wheel](https://news.yahoo.com/michigan-7th-grader-pulled-off-230515795.html)
-- Apr 27 - [Army aviators, ready to leave the military, are told they owe 3 more years instead](https://news.yahoo.com/army-aviators-ready-leave-military-230303146.html)
 <!-- feed end -->
