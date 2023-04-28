@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 27 - [Lamar Jackson agrees to five-year deal with Ravens, making QB the highest-paid player in NFL history](https://news.yahoo.com/lamar-jackson-agrees-five-deal-222533316.html)
-- Apr 27 - [Nebraska Republican: ‘No One’s Forcing Anyone to Be Pregnant'](https://news.yahoo.com/nebraska-republican-no-one-forcing-214000883.html)
-- Apr 27 - [E. Jean Carroll attacks Trump lawyer for questioning why she didn't scream during alleged rape](https://news.yahoo.com/e-jean-carroll-attacks-trump-211454420.html)
-- Apr 27 - [Video shows 16-year-old girl violently attacked by classmates at metro Atlanta high school](https://news.yahoo.com/video-shows-16-old-girl-210540539.html)
-- Apr 27 - [What it's like for Singapore's death row inmates in the days leading up to their execution](https://news.yahoo.com/singapores-death-row-inmates-days-201728505.html)
+- Apr 28 - [Colts pick Anthony Richardson at No. 4 and here is what they're getting](https://news.yahoo.com/colts-pick-anthony-richardson-no-004052628.html)
+- Apr 27 - [CNN’s Dana Bash Calls Out LA Times For Focusing On Ex-Hubby Over Her Qualifications](https://news.yahoo.com/cnn-dana-bash-calls-la-232438804.html)
+- Apr 27 - [Rare sea creature — a 12-foot ‘devil’ — spotted off US East Coast for the first time](https://news.yahoo.com/rare-sea-creature-12-foot-231045530.html)
+- Apr 27 - [A Michigan 7th grader pulled off the heroic act of stopping a school bus carrying around 66 students after his bus driver lost consciousness at the wheel](https://news.yahoo.com/michigan-7th-grader-pulled-off-230515795.html)
+- Apr 27 - [Army aviators, ready to leave the military, are told they owe 3 more years instead](https://news.yahoo.com/army-aviators-ready-leave-military-230303146.html)
 <!-- feed end -->
