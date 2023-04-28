@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 28 - [Indian police to probe sexual abuse charge against official](https://news.yahoo.com/indian-police-probe-sexual-abuse-105607887.html)
+- Apr 28 - [Russian strikes kill 16, Kyiv says offensive almost ready](https://news.yahoo.com/russian-strikes-kill-16-kyiv-103909059.html)
+- Apr 28 - [Rep. Lauren Boebert Lists What Patriots Should Be Willing To Do And... It’s Something](https://news.yahoo.com/rep-lauren-boebert-lists-patriots-083002902.html)
 - Apr 28 - [Revealed: Senate investigation into Brett Kavanaugh assault claims contained serious omissions](https://news.yahoo.com/revealed-senate-investigation-brett-kavanaugh-070016459.html)
 - Apr 28 - [Death sentence upheld for ex-school principal who killed 3](https://news.yahoo.com/death-sentence-upheld-thai-gold-055623927.html)
-- Apr 28 - [Renowned China investor Ray Dalio says the US and China are on the brink of war, and that both sides are 'beyond the ability to talk'](https://news.yahoo.com/renowned-china-investor-ray-dalio-042849765.html)
-- Apr 28 - [Trump Lawyer’s Shameful Cross-Examination of E. Jean Carroll](https://news.yahoo.com/trump-lawyer-shameful-cross-examination-021020461.html)
-- Apr 27 - [Rare sea creature — a 12-foot ‘devil’ — spotted off US East Coast for the first time](https://news.yahoo.com/rare-sea-creature-12-foot-231045530.html)
 <!-- feed end -->
