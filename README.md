@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 28 - [Indian police to probe sexual abuse charge against official](https://news.yahoo.com/indian-police-probe-sexual-abuse-105607887.html)
-- Apr 28 - [Russian strikes kill 16, Kyiv says offensive almost ready](https://news.yahoo.com/russian-strikes-kill-16-kyiv-103909059.html)
+- Apr 28 - [An angry and intolerant younger generation is destroying American democracy](https://news.yahoo.com/angry-intolerant-younger-generation-destroying-110000546.html)
+- Apr 28 - [Mike Lindell Makes Bats**t Claim About Fox News' Role In 2020 Election](https://news.yahoo.com/mike-lindell-makes-bats-t-105944962.html)
+- Apr 28 - [Inside the wild, bizarre case of a 'Canadian actor' who died trying to look like BTS' Jimin](https://news.yahoo.com/inside-wild-bizarre-case-canadian-100918561.html)
 - Apr 28 - [Rep. Lauren Boebert Lists What Patriots Should Be Willing To Do And... It’s Something](https://news.yahoo.com/rep-lauren-boebert-lists-patriots-083002902.html)
 - Apr 28 - [Revealed: Senate investigation into Brett Kavanaugh assault claims contained serious omissions](https://news.yahoo.com/revealed-senate-investigation-brett-kavanaugh-070016459.html)
-- Apr 28 - [Death sentence upheld for ex-school principal who killed 3](https://news.yahoo.com/death-sentence-upheld-thai-gold-055623927.html)
 <!-- feed end -->
