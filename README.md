@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 28 - [People Are Completely Obsessed With Sofia Richie's Wedding Looks, And I'm Obviously One Of Them](https://news.yahoo.com/people-completely-obsessed-sofia-richies-022505634.html)
-- Apr 28 - [Patrick Swayze's widow reveals his first pancreatic cancer symptoms: 'Life turns on a dime'](https://news.yahoo.com/patrick-swayzes-widow-reveals-first-140841450.html)
-- Apr 28 - [After disappointing draft night, Will Levis gets classy tweet from New York Jets star](https://news.yahoo.com/disappointing-draft-night-levis-gets-133320053.html)
-- Apr 28 - [Iran TV airs footage of commandos seizing US-bound tanker](https://news.yahoo.com/iran-tv-airs-footage-commandos-131323630.html)
-- Apr 28 - [‘Not a chance’: Fox News viewers reject Tucker Carlson’s replacement](https://news.yahoo.com/not-chance-fox-viewers-reject-130323580.html)
+- Apr 28 - [A key inflation gauge tracked by the Federal Reserve remained high in March](https://news.yahoo.com/key-inflation-gauge-tracked-federal-165123307.html)
+- Apr 28 - [Putin’s personal reactions to bad news might cause him to order missile strikes on Ukraine, says political scientist](https://news.yahoo.com/putin-personal-reactions-bad-news-161500845.html)
+- Apr 28 - [Marjorie Taylor Greene Makes Baffling Point About Taxes During The Ice Age, Insults AOC](https://news.yahoo.com/marjorie-taylor-greene-makes-baffling-155958583.html)
+- Apr 28 - [Southwest flight delayed as attendant loses it over ‘some kind of Asian fried rice’](https://news.yahoo.com/southwest-flight-delayed-attendant-loses-153355280.html)
+- Apr 28 - [A London Marathon runner who finished the race in under 3 hours died 'out of the blue' on his way home](https://news.yahoo.com/london-marathon-runner-finished-race-145414085.html)
 <!-- feed end -->
