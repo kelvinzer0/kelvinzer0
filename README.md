@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 28 - [Trump, who was notably silent on recent Bud Light boycott, owns up to $5 million in Anheuser-Busch stock, records show](https://news.yahoo.com/trump-notably-silent-recent-bud-115033560.html)
+- Apr 28 - [DeSantis loses his cool with a reporter after being challenged over claims he witnessed torture while working at Guantanamo Bay](https://news.yahoo.com/desantis-loses-cool-reporter-being-114332256.html)
 - Apr 28 - [An angry and intolerant younger generation is destroying American democracy](https://news.yahoo.com/angry-intolerant-younger-generation-destroying-110000546.html)
 - Apr 28 - [Mike Lindell Makes Bats**t Claim About Fox News' Role In 2020 Election](https://news.yahoo.com/mike-lindell-makes-bats-t-105944962.html)
-- Apr 28 - [Inside the wild, bizarre case of a 'Canadian actor' who died trying to look like BTS' Jimin](https://news.yahoo.com/inside-wild-bizarre-case-canadian-100918561.html)
 - Apr 28 - [Rep. Lauren Boebert Lists What Patriots Should Be Willing To Do And... It’s Something](https://news.yahoo.com/rep-lauren-boebert-lists-patriots-083002902.html)
-- Apr 28 - [Revealed: Senate investigation into Brett Kavanaugh assault claims contained serious omissions](https://news.yahoo.com/revealed-senate-investigation-brett-kavanaugh-070016459.html)
 <!-- feed end -->
