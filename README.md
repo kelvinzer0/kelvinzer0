@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Apr 29 - [A Barcelona seafood restaurant got a mysterious booking. Then Obama, Spielberg, and Springsteen came to dinner.](https://news.yahoo.com/barcelona-seafood-restaurant-got-mysterious-095439045.html)
 - Apr 29 - [Russians call for "neutralisation of Odesa" after fire in Sevastopol](https://news.yahoo.com/russians-call-neutralisation-odesa-fire-075647360.html)
 - Apr 29 - [Chargers pick up Herbert's 5th-year option, decline Murray's](https://news.yahoo.com/chargers-pick-herberts-5th-option-043035329.html)
-- Apr 29 - [49ers trade up for Penn State safety Ji'Ayir Brown](https://news.yahoo.com/49ers-trade-penn-state-safety-025813655.html)
+- Apr 29 - [Minnesota Republican's Wild '3 Joints' Claim Gets Twitter Users High Off Laughter](https://news.yahoo.com/minnesota-republicans-wild-3-joints-040705792.html)
 <!-- feed end -->
