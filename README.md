@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 29 - [Will Smith promised fans he and Chris Rock would 'be friends again' after the Oscars slap. A psychologist cautioned against making 'seasonal people a lifetime commitment.'](https://news.yahoo.com/smith-promised-fans-chris-rock-110000463.html)
+- Apr 29 - [A Barcelona seafood restaurant got a mysterious booking. Then Obama, Spielberg, and Springsteen came to dinner.](https://news.yahoo.com/barcelona-seafood-restaurant-got-mysterious-095439045.html)
 - Apr 29 - [Russians call for "neutralisation of Odesa" after fire in Sevastopol](https://news.yahoo.com/russians-call-neutralisation-odesa-fire-075647360.html)
 - Apr 29 - [Chargers pick up Herbert's 5th-year option, decline Murray's](https://news.yahoo.com/chargers-pick-herberts-5th-option-043035329.html)
-- Apr 29 - [Jack Nicholson returns to courtside for Lakers' playoff game](https://news.yahoo.com/jack-nicholson-returns-courtside-lakers-025834791.html)
 - Apr 29 - [49ers trade up for Penn State safety Ji'Ayir Brown](https://news.yahoo.com/49ers-trade-penn-state-safety-025813655.html)
-- Apr 29 - [Giants manager gets lost in Mexico City before practice](https://news.yahoo.com/giants-manager-gets-lost-mexico-023109161.html)
 <!-- feed end -->
