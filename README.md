@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 29 - [One of Putin’s Biggest Mistakes Is Finally Catching Up With Him](https://news.yahoo.com/one-putin-biggest-mistakes-finally-002749829.html)
+- Apr 28 - [California approves rule phasing out big diesel trucks](https://news.yahoo.com/california-approves-rule-phasing-big-224311243.html)
 - Apr 28 - [Greene rebuked for saying AFT president is 'not a mother'](https://news.yahoo.com/greene-rebuked-saying-aft-president-213719549.html)
-- Apr 28 - [Armed with tanks and heavy armor from NATO, Ukraine says it's about to hit Russian forces with an 'iron fist'](https://news.yahoo.com/armed-tanks-heavy-armor-nato-213545034.html)
-- Apr 28 - [Takeaways from E. Jean Carroll's rape lawsuit trial against Donald Trump](https://news.yahoo.com/takeaways-e-jean-carrolls-rape-210651634.html)
+- Apr 28 - [NC couple takes down armed burglary suspect wanted in several counties](https://news.yahoo.com/nc-couple-takes-down-armed-211831847.html)
 - Apr 28 - [Shanquella Robinson's mom knows why her daughter is dead, but says U.S. officials won't act](https://news.yahoo.com/shanquella-robinson-mom-mexico-daughter-is-dead-officials-charlotte-203911464.html)
-- Apr 28 - [Dog walker 'beaten to death' after 'altercation' with schoolchildren](https://news.yahoo.com/dog-walker-beaten-death-altercation-184045407.html)
 <!-- feed end -->
