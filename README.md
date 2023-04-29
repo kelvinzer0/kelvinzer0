@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Apr 29 - [Chargers pick up Herbert's 5th-year option, decline Murray's](https://news.yahoo.com/chargers-pick-herberts-5th-option-043035329.html)
 - Apr 29 - [Jack Nicholson returns to courtside for Lakers' playoff game](https://news.yahoo.com/jack-nicholson-returns-courtside-lakers-025834791.html)
 - Apr 29 - [49ers trade up for Penn State safety Ji'Ayir Brown](https://news.yahoo.com/49ers-trade-penn-state-safety-025813655.html)
-- Apr 28 - [California approves rule phasing out big diesel trucks](https://news.yahoo.com/california-approves-rule-phasing-big-224311243.html)
+- Apr 29 - [Giants manager gets lost in Mexico City before practice](https://news.yahoo.com/giants-manager-gets-lost-mexico-023109161.html)
 <!-- feed end -->
