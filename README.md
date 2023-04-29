@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 29 - [Russian official: Drone causes fire at Crimea oil reservoir](https://news.yahoo.com/russian-official-drone-causes-fire-064558547.html)
+- Apr 29 - [Russians call for "neutralisation of Odesa" after fire in Sevastopol](https://news.yahoo.com/russians-call-neutralisation-odesa-fire-075647360.html)
 - Apr 29 - [Chargers pick up Herbert's 5th-year option, decline Murray's](https://news.yahoo.com/chargers-pick-herberts-5th-option-043035329.html)
 - Apr 29 - [Jack Nicholson returns to courtside for Lakers' playoff game](https://news.yahoo.com/jack-nicholson-returns-courtside-lakers-025834791.html)
 - Apr 29 - [49ers trade up for Penn State safety Ji'Ayir Brown](https://news.yahoo.com/49ers-trade-penn-state-safety-025813655.html)
