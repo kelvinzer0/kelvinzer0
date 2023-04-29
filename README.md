@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 29 - [One of Putin’s Biggest Mistakes Is Finally Catching Up With Him](https://news.yahoo.com/one-putin-biggest-mistakes-finally-002749829.html)
+- Apr 29 - [Karen Gillan at the \"Guardians of the Galaxy Vol. 3\" red carpet](https://news.yahoo.com/karen-gillan-guardians-galaxy-vol-001522390.html)
+- Apr 29 - [Levis doesn't wait long to get picked on Day 2 of NFL draft](https://news.yahoo.com/levis-doesnt-wait-long-picked-000227919.html)
 - Apr 28 - [California approves rule phasing out big diesel trucks](https://news.yahoo.com/california-approves-rule-phasing-big-224311243.html)
 - Apr 28 - [Greene rebuked for saying AFT president is 'not a mother'](https://news.yahoo.com/greene-rebuked-saying-aft-president-213719549.html)
 - Apr 28 - [NC couple takes down armed burglary suspect wanted in several counties](https://news.yahoo.com/nc-couple-takes-down-armed-211831847.html)
-- Apr 28 - [Shanquella Robinson's mom knows why her daughter is dead, but says U.S. officials won't act](https://news.yahoo.com/shanquella-robinson-mom-mexico-daughter-is-dead-officials-charlotte-203911464.html)
 <!-- feed end -->
