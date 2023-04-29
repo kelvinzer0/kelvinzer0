@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 29 - [Rescued black bear cub enjoys playtime with carers at a wildlife center in Virginia](https://news.yahoo.com/rescued-black-bear-cub-enjoys-183443078.html)
+- Apr 29 - [Larson: Aftermath of violent Talladega wreck 'unsettling'](https://news.yahoo.com/larson-aftermath-violent-talladega-wreck-183941996.html)
+- Apr 29 - [Michelle Obama steals the show at Bruce Springsteen concert in Barcelona](https://news.yahoo.com/michelle-obama-steals-show-bruce-175351412.html)
 - Apr 29 - [Vladimir Putin’s once feared and almighty navy is sinking into a sorry state](https://news.yahoo.com/vladimir-putin-once-feared-almighty-170000347.html)
+- Apr 29 - [Hendrick may consider changes after Elliott, Bowman injuries](https://news.yahoo.com/hendrick-may-consider-changes-elliott-165604907.html)
 - Apr 29 - [Michael J. Fox says his Parkinson's disease is 'getting tougher' and doesn't think he'll live to be 80](https://news.yahoo.com/michael-j-fox-says-parkinsons-162129329.html)
-- Apr 29 - [Videos appear to show the aftermath of a precision strike by US-supplied HIMARS missiles on officers' quarters at a Russian base in Ukraine](https://news.yahoo.com/videos-appear-show-aftermath-precision-152046843.html)
-- Apr 29 - [After a Texas family asked a neighbor to stop shooting a gun in his yard because their baby was trying to sleep, he came over and killed 5 people with an AR-15 style rifle, police say.](https://news.yahoo.com/texas-family-asked-neighbor-stop-144437808.html)
 <!-- feed end -->
