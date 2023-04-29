@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 29 - [Jack Nicholson returns to courtside for Lakers' playoff game](https://news.yahoo.com/jack-nicholson-returns-courtside-lakers-025834791.html)
 - Apr 29 - [49ers trade up for Penn State safety Ji'Ayir Brown](https://news.yahoo.com/49ers-trade-penn-state-safety-025813655.html)
 - Apr 29 - [Karen Gillan at the "Guardians of the Galaxy Vol. 3" red carpet](https://news.yahoo.com/karen-gillan-guardians-galaxy-vol-001522390.html)
-- Apr 29 - [Panthers score 7, force a Game 7 against the Bruins](https://news.yahoo.com/panthers-score-7-force-game-022815456.html)
 - Apr 28 - [California approves rule phasing out big diesel trucks](https://news.yahoo.com/california-approves-rule-phasing-big-224311243.html)
 - Apr 28 - [Greene rebuked for saying AFT president is 'not a mother'](https://news.yahoo.com/greene-rebuked-saying-aft-president-213719549.html)
 <!-- feed end -->
