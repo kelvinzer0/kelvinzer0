@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 29 - [Life-size sculpture of euthanized walrus unveiled in Norway](https://news.yahoo.com/life-size-sculpture-euthanized-walrus-163029708.html)
+- Apr 29 - [Michelle Obama steals the show at Bruce Springsteen concert in Barcelona](https://news.yahoo.com/michelle-obama-steals-show-bruce-175351412.html)
+- Apr 29 - [Be tough in seizing Iran oil, bipartisan senators urge Biden](https://news.yahoo.com/tough-seizing-iran-oil-bipartisan-173157779.html)
+- Apr 29 - [Vladimir Putin’s once feared and almighty navy is sinking into a sorry state](https://news.yahoo.com/vladimir-putin-once-feared-almighty-170000347.html)
+- Apr 29 - [Michael J. Fox says his Parkinson's disease is 'getting tougher' and doesn't think he'll live to be 80](https://news.yahoo.com/michael-j-fox-says-parkinsons-162129329.html)
 - Apr 29 - [Videos appear to show the aftermath of a precision strike by US-supplied HIMARS missiles on officers' quarters at a Russian base in Ukraine](https://news.yahoo.com/videos-appear-show-aftermath-precision-152046843.html)
-- Apr 29 - [After a Texas family asked a neighbor to stop shooting a gun in his yard because their baby was trying to sleep, he came over and killed 5 people with an AR-15 style rifle, police say.](https://news.yahoo.com/texas-family-asked-neighbor-stop-144437808.html)
-- Apr 29 - [I Told My OB-GYN I Want To Have A Baby. Her Response Utterly Shamed Me.](https://news.yahoo.com/told-ob-gyn-want-baby-123003460.html)
-- Apr 29 - [Will Smith promised fans he and Chris Rock would 'be friends again' after the Oscars slap. A psychologist cautioned against making 'seasonal people a lifetime commitment.'](https://news.yahoo.com/smith-promised-fans-chris-rock-110000463.html)
 <!-- feed end -->
