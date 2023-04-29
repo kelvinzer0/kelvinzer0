@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 29 - [After a Texas family asked a neighbor to stop shooting a gun in his yard because their baby was trying to sleep, he came over and killed 5 people with an AR-15 style rifle, police say.](https://news.yahoo.com/texas-family-asked-neighbor-stop-144437808.html)
 - Apr 29 - [I Told My OB-GYN I Want To Have A Baby. Her Response Utterly Shamed Me.](https://news.yahoo.com/told-ob-gyn-want-baby-123003460.html)
 - Apr 29 - [I sat in the back row of the plane and it turned out to be one of the worst flights of my life. Now, I'll always pay for a seat in advance.](https://news.yahoo.com/sat-back-row-plane-turned-123000277.html)
 - Apr 29 - [Will Smith promised fans he and Chris Rock would 'be friends again' after the Oscars slap. A psychologist cautioned against making 'seasonal people a lifetime commitment.'](https://news.yahoo.com/smith-promised-fans-chris-rock-110000463.html)
 - Apr 29 - [A Barcelona seafood restaurant got a mysterious booking. Then Obama, Spielberg, and Springsteen came to dinner.](https://news.yahoo.com/barcelona-seafood-restaurant-got-mysterious-095439045.html)
-- Apr 29 - [Russians call for "neutralisation of Odesa" after fire in Sevastopol](https://news.yahoo.com/russians-call-neutralisation-odesa-fire-075647360.html)
 <!-- feed end -->
