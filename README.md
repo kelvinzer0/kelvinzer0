@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 30 - [Cardinals broadcaster, World Series champ Mike Shannon dies](https://news.yahoo.com/cardinals-broadcaster-world-series-champ-182929874.html)
 - Apr 30 - [A powerhouse US doctor slain in Sudan, 'killed for nothing'](https://news.yahoo.com/powerhouse-us-doctor-slain-sudan-170911319.html)
 - Apr 30 - [Michael J. Fox says it's 'very possible' he 'did some damage' in the '80s as he speculates about what contributed to his Parkinson's disease](https://news.yahoo.com/michael-j-fox-says-very-165341853.html)
 - Apr 30 - [Woman clinging to log in Zion National Park river had no pulse when rescued, rangers say](https://news.yahoo.com/woman-clinging-log-zion-national-163023955.html)
 - Apr 30 - [Renowned academic Noam Chomsky told The Wall Street Journal that his meetings with Jeffrey Epstein are "none of your business"](https://news.yahoo.com/renowned-academic-noam-chomsky-told-154837585.html)
-- Apr 30 - [Maine man arrested after workers discovered $3 million worth of fentanyl he had shipped to a local restaurant, police say](https://news.yahoo.com/maine-man-arrested-workers-discovered-154118867.html)
 <!-- feed end -->
