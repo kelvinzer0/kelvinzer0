@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- Apr 30 - [Bad weather postpones NASCAR Cup Series race at Dover. A new start time has been set](https://news.yahoo.com/bad-weather-postpones-nascar-cup-143726322.html)
+- Apr 30 - [Maine man arrested after workers discovered $3 million worth of fentanyl he had shipped to a local restaurant, police say](https://news.yahoo.com/maine-man-arrested-workers-discovered-154118867.html)
+- Apr 30 - [‘Robin Hood’ hacker steals rich Russian crypto funds, gives to poor Ukraine](https://news.yahoo.com/robin-hood-hacker-steals-rich-145300274.html)
+- Apr 30 - [Arizona hiker hears woman crying for help, finds her trapped between boulders on 50-foot cliff](https://news.yahoo.com/arizona-hiker-hears-woman-crying-131832688.html)
 - Apr 30 - [Mexican national wanted in deadly Texas shooting of 5 neighbors 'could be anywhere,' sheriff says](https://news.yahoo.com/mexican-national-wanted-deadly-texas-125421614.html)
 - Apr 30 - [Arrest made after 6 Mississippi Coast teenagers shot at Bay St. Louis house party](https://news.yahoo.com/arrest-made-6-mississippi-coast-125321675.html)
-- Apr 30 - [A drug dealer gave a one-star review to an Uber Eats rider who took a suspicious package to police. It turned out to be meth in a toothpaste tube.](https://news.yahoo.com/drug-dealer-gave-one-star-124500880.html)
-- Apr 30 - [I'm A Doctor Who Almost Died Because My Own Doctors Refused To Do This 1 Basic Thing](https://news.yahoo.com/im-doctor-almost-died-because-123012778.html)
 <!-- feed end -->
