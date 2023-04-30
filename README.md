@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 30 - [Bad weather postpones NASCAR Cup Series race at Dover. A new start time has been set](https://news.yahoo.com/bad-weather-postpones-nascar-cup-143726322.html)
+- Apr 30 - [Mexican national wanted in deadly Texas shooting of 5 neighbors 'could be anywhere,' sheriff says](https://news.yahoo.com/mexican-national-wanted-deadly-texas-125421614.html)
 - Apr 30 - [Arrest made after 6 Mississippi Coast teenagers shot at Bay St. Louis house party](https://news.yahoo.com/arrest-made-6-mississippi-coast-125321675.html)
 - Apr 30 - [A drug dealer gave a one-star review to an Uber Eats rider who took a suspicious package to police. It turned out to be meth in a toothpaste tube.](https://news.yahoo.com/drug-dealer-gave-one-star-124500880.html)
 - Apr 30 - [I'm A Doctor Who Almost Died Because My Own Doctors Refused To Do This 1 Basic Thing](https://news.yahoo.com/im-doctor-almost-died-because-123012778.html)
-- Apr 30 - [SLO County teacher was arrested over a paper cut? No wonder educators are fed up | Opinion](https://news.yahoo.com/slo-county-teacher-arrested-over-123000057.html)
-- Apr 30 - [I divorced the man I love after coming out as a lesbian. 2 years later, I still wonder whether I made the right decision.](https://news.yahoo.com/divorced-man-love-coming-lesbian-114800283.html)
 <!-- feed end -->
