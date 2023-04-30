@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 30 - [A drug dealer gave a one-star review to an Uber Eats rider who took a suspicious package to police. It turned out to be meth in a toothpaste tube.](https://news.yahoo.com/drug-dealer-gave-one-star-124500880.html)
+- Apr 30 - [Russian commanders are brutally punishing their own soldiers by putting them in 'holes in the ground,' UK intel says](https://news.yahoo.com/russian-commanders-brutally-punishing-own-123143864.html)
 - Apr 30 - [I'm A Doctor Who Almost Died Because My Own Doctors Refused To Do This 1 Basic Thing](https://news.yahoo.com/im-doctor-almost-died-because-123012778.html)
+- Apr 30 - [SLO County teacher was arrested over a paper cut? No wonder educators are fed up | Opinion](https://news.yahoo.com/slo-county-teacher-arrested-over-123000057.html)
 - Apr 30 - [I divorced the man I love after coming out as a lesbian. 2 years later, I still wonder whether I made the right decision.](https://news.yahoo.com/divorced-man-love-coming-lesbian-114800283.html)
-- Apr 30 - [Roman Emperor Caligula's massive party ships were not burned by the Nazis during World War II, researchers say. A US artillery unit was to blame.](https://news.yahoo.com/roman-emperor-caligulas-massive-party-110911175.html)
-- Apr 30 - [Willie Nelson inhales the love at 90th birthday concert](https://news.yahoo.com/willie-nelson-inhales-love-90th-110615282.html)
-- Apr 30 - [President Biden jokes to dinner guests if you're disoriented or confused, you're either 'drunk or Marjorie Taylor Greene'](https://news.yahoo.com/president-biden-jokes-dinner-guests-094443196.html)
 <!-- feed end -->
