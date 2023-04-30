@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 30 - [I'm A Doctor Who Almost Died Because My Own Doctors Refused To Do This 1 Basic Thing](https://news.yahoo.com/im-doctor-almost-died-because-123012778.html)
+- Apr 30 - [I divorced the man I love after coming out as a lesbian. 2 years later, I still wonder whether I made the right decision.](https://news.yahoo.com/divorced-man-love-coming-lesbian-114800283.html)
+- Apr 30 - [Roman Emperor Caligula's massive party ships were not burned by the Nazis during World War II, researchers say. A US artillery unit was to blame.](https://news.yahoo.com/roman-emperor-caligulas-massive-party-110911175.html)
+- Apr 30 - [Willie Nelson inhales the love at 90th birthday concert](https://news.yahoo.com/willie-nelson-inhales-love-90th-110615282.html)
 - Apr 30 - [President Biden jokes to dinner guests if you're disoriented or confused, you're either 'drunk or Marjorie Taylor Greene'](https://news.yahoo.com/president-biden-jokes-dinner-guests-094443196.html)
-- Apr 30 - [Gooch claims back-to-back LIV Golf titles with Singapore win](https://news.yahoo.com/gooch-claims-back-back-liv-071701863.html)
-- Apr 30 - [CBS could no longer afford to produce 'The Late Late Show with James Corden' as it raked in less than $45M but cost up to $65M to make, LA Magazine reports](https://news.yahoo.com/cbs-could-no-longer-afford-070011053.html)
-- Apr 30 - [Roy Wood Jr. Takes Down Clarence Thomas At White House Correspondents' Dinner](https://news.yahoo.com/roy-wood-jr-takes-down-065249260.html)
-- Apr 30 - [150 years later, Dixon bridge tragedy among nation's worst](https://news.yahoo.com/150-years-later-dixon-bridge-041016809.html)
 <!-- feed end -->
