@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- Apr 30 - [Gooch claims back-to-back LIV Golf titles with Singapore win](https://news.yahoo.com/gooch-claims-back-back-liv-071701863.html)
 - Apr 30 - [CBS could no longer afford to produce 'The Late Late Show with James Corden' as it raked in less than $45M but cost up to $65M to make, LA Magazine reports](https://news.yahoo.com/cbs-could-no-longer-afford-070011053.html)
 - Apr 30 - [Roy Wood Jr. Takes Down Clarence Thomas At White House Correspondents' Dinner](https://news.yahoo.com/roy-wood-jr-takes-down-065249260.html)
 - Apr 30 - [150 years later, Dixon bridge tragedy among nation's worst](https://news.yahoo.com/150-years-later-dixon-bridge-041016809.html)
 - Apr 30 - [Biden Torches Fox News, Tucker Carlson At White House Correspondents' Dinner](https://news.yahoo.com/biden-torches-fox-news-tucker-040025109.html)
-- Apr 30 - [Oklahoma man to spend life in prison after trying to marry, flee country with girl he 'groomed': Authorities](https://news.yahoo.com/oklahoma-man-spend-life-prison-013810009.html)
 <!-- feed end -->
