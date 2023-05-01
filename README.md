@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 01 - [This Supreme Court Case Slipped Under The Radar — And The Stakes Are Huge](https://news.yahoo.com/supreme-court-case-slipped-under-182125914.html)
 - May 01 - [A former school resource officer at Hopkinton High has been charged with raping a student](https://news.yahoo.com/former-school-officer-hopkinton-high-162220041.html)
-- May 01 - [People Put Nearly $1 Billion Into Apple Savings Accounts in First 4 Days](https://news.yahoo.com/people-put-nearly-1-billion-172000620.html)
-- May 01 - [Gwyneth Paltrow won't recoup attorney fees in ski crash suit](https://news.yahoo.com/gwyneth-paltrow-denied-attorneys-fees-171206116.html)
-- May 01 - [Why is Phoenix homelessness among the nation's worst? Look at what got us here](https://news.yahoo.com/why-phoenix-homelessness-among-nations-130215013.html)
+- May 01 - [Firm that hired kids to clean meat plants keeps losing work](https://news.yahoo.com/firm-hired-kids-clean-meat-190848136.html)
+- May 01 - [Arcturus: New COVID-19 variant spreading in the U.S with new symptom](https://news.yahoo.com/arcturus-covid-19-variant-spreading-184833692.html)
+- May 01 - [Nurse diagnosed with melanoma shares 1 symptom that uncovered skin cancer](https://news.yahoo.com/nurse-diagnosed-melanoma-shares-1-183508059.html)
+- May 01 - [Trump’s Lawyers Go After E. Jean Carroll’s ‘Fabulous’ Life](https://news.yahoo.com/trumps-lawyers-e-jean-carroll-182803540.html)
 <!-- feed end -->
