@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 01 - [Disney discourages these things inside their parks and resorts](https://news.yahoo.com/disney-discourages-things-inside-parks-123848274.html)
+- May 01 - [Last time Trump lawyer Joe Tacopina called a rape accuser greedy and crazy he won. It's a different world now.](https://news.yahoo.com/last-time-trump-lawyer-joe-120100355.html)
 - May 01 - [Ex-GOP Rep Points Out Something About Donald Trump That Many Ignore](https://news.yahoo.com/ex-gop-rep-points-something-115106950.html)
 - May 01 - [Shipwreck found off Florida beach is much larger than originally suspected, team says](https://news.yahoo.com/shipwreck-found-off-florida-beach-114532147.html)
-- May 01 - [Aerosmith announces farewell tour starting in September](https://news.yahoo.com/aerosmith-announces-farewell-tour-starting-110107680.html)
-- May 01 - [Jack Ma, the billionaire co-founder of Alibaba who disappeared from public life in 2020, has taken up a teaching role in Japan](https://news.yahoo.com/jack-ma-billionaire-co-founder-070223072.html)
-- May 01 - [Marine Vet Rep. Ruben Gallego Issues ‘Poser Alert’ Over Nikki Haley Gun Photo](https://news.yahoo.com/marine-vet-rep-ruben-gallego-063601157.html)
+- May 01 - [25-mile-long wave of trash washing up on Outer Banks is linked to US Navy, park says](https://news.yahoo.com/25-mile-long-wave-trash-111013504.html)
 <!-- feed end -->
