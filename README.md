@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 01 - [Jack Ma, the billionaire co-founder of Alibaba who disappeared from public life in 2020, has taken up a teaching role in Japan](https://news.yahoo.com/jack-ma-billionaire-co-founder-070223072.html)
+- May 01 - [Alibaba's Jack Ma turns up in Japan as college professor](https://news.yahoo.com/alibabas-jack-ma-turns-japan-063352175.html)
 - May 01 - [Mehdi Hasan Reveals How Fox News Reacted To Joe Biden's Jokes About Them](https://news.yahoo.com/mehdi-hasan-reveals-fox-news-054351263.html)
 - May 01 - [New Zealand leader says he favors nation becoming a republic](https://news.yahoo.com/zealand-leader-says-favors-nation-052219804.html)
 - May 01 - [DeSantis gave a 'low-wattage' and 'horrendous' speech in London as presidential polling slides: 'Nobody in the room was left thinking, 'this man's going places.''](https://news.yahoo.com/desantis-gave-low-wattage-horrendous-045327058.html)
-- May 01 - ['Waste of time': Community college transfers derail students](https://news.yahoo.com/waste-time-community-college-transfers-043010995.html)
-- May 01 - [Man who lost wife, son in Texas mass shooting tells story](https://news.yahoo.com/man-lost-wife-son-texas-041204290.html)
 <!-- feed end -->
