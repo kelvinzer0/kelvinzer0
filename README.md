@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 01 - [Ed Sheeran: Other artists are cheering on copyright fight](https://news.yahoo.com/ed-sheeran-other-artists-cheering-210407865.html)
+- May 01 - [7 bodies found during search for missing Oklahoma teens](https://news.yahoo.com/7-bodies-found-during-search-222020363.html)
+- May 01 - [Massive Shockwave From Russian Strike May Have Been A Rocket Storage Facility Detonating](https://news.yahoo.com/massive-shockwave-russian-strike-may-210904381.html)
 - May 01 - [Another Mysterious Balloon Is Being Tracked by U.S. Officials](https://news.yahoo.com/another-mysterious-balloon-being-tracked-205009187.html)
 - May 01 - [‘I felt violated’: Trial opens against KS Highway Patrol leader over traffic stop tactic](https://news.yahoo.com/felt-violated-trial-opens-against-201004202.html)
 - May 01 - [US intelligence believes 'slaughter-fest' fighting in Ukraine has cost Russia 100,000 dead and wounded in only a matter of months, White House reveals](https://news.yahoo.com/us-intelligence-believes-slaughter-fest-195621698.html)
-- May 01 - [At least 6 people dead in Illinois highway windstorm](https://news.yahoo.com/multiple-fatalities-illinois-highway-following-195528475.html)
 <!-- feed end -->
