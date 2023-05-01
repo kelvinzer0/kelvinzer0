@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 01 - [Karen Gillan at the "Guardians of the Galaxy Vol. 3" Red Carpet](https://news.yahoo.com/karen-gillan-guardians-galaxy-vol-001522390.html)
-- May 01 - [Clashes erupt at French May Day protests against Macron](https://news.yahoo.com/clashes-erupt-french-may-day-155544490.html)
+- May 01 - [Iconic TV sets and artifacts up for auction](https://news.yahoo.com/iconic-tv-sets-artifacts-auction-163529591.html)
+- May 01 - [Feds Accuse Creepy Passenger of Groping Flight Attendant’s Crotch](https://news.yahoo.com/feds-accuse-creepy-passenger-groping-162210957.html)
+- May 01 - [Review: Actor Minka Kelly bares all in stunning new memoir](https://news.yahoo.com/review-actor-minka-kelly-bares-161349130.html)
 - May 01 - [Lori Vallow’s Hair Found on Tape Used to Wrap Dead Son’s Body, Expert Says](https://news.yahoo.com/lori-vallow-hair-found-tape-154742389.html)
-- May 01 - ['Very homophobic': Teachers' union leader Randi Weingarten says House hearing crossed the line](https://news.yahoo.com/very-homophobic-teachers-union-leader-randi-weingarten-says-house-hearing-crossed-the-line-145203434.html)
-- May 01 - [Supreme Court to decide important case on government power](https://news.yahoo.com/supreme-court-decide-important-case-143331034.html)
+- May 01 - [Russian journalist seen in propaganda video breaking the rules by loading a rocket launcher says he figures it is ok since Ukrainians are Nazis](https://news.yahoo.com/russian-journalist-seen-propaganda-video-154535554.html)
 <!-- feed end -->
