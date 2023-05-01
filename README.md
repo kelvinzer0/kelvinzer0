@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 01 - [Karen Gillan at the "Guardians of the Galaxy Vol. 3" Red Carpet](https://news.yahoo.com/karen-gillan-guardians-galaxy-vol-001522390.html)
+- May 01 - [Clashes erupt at French May Day protests against Macron](https://news.yahoo.com/clashes-erupt-french-may-day-155544490.html)
+- May 01 - [Lori Vallow’s Hair Found on Tape Used to Wrap Dead Son’s Body, Expert Says](https://news.yahoo.com/lori-vallow-hair-found-tape-154742389.html)
+- May 01 - ['Very homophobic': Teachers' union leader Randi Weingarten says House hearing crossed the line](https://news.yahoo.com/very-homophobic-teachers-union-leader-randi-weingarten-says-house-hearing-crossed-the-line-145203434.html)
 - May 01 - [Supreme Court to decide important case on government power](https://news.yahoo.com/supreme-court-decide-important-case-143331034.html)
-- May 01 - [DeSantis board approves suing Disney in response to lawsuit](https://news.yahoo.com/desantis-board-approves-suing-disney-143000446.html)
-- May 01 - [In emergency meeting, DeSantis-appointed board votes to counter-sue Disney](https://news.yahoo.com/emergency-meeting-desantis-appointed-board-140322240.html)
-- May 01 - [Why is Phoenix homelessness among the nation's worst? Look at what got us here](https://news.yahoo.com/why-phoenix-homelessness-among-nations-130215013.html)
-- May 01 - [Feds: Hospitals that denied emergency abortion broke the law](https://news.yahoo.com/feds-hospitals-denied-emergency-abortion-130129216.html)
 <!-- feed end -->
