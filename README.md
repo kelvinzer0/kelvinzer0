@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 01 - [Video captures man being lifted 100 feet into the air by massive kite at festival in China](https://news.yahoo.com/video-captures-man-being-lifted-202555952.html)
+- May 01 - [‘I felt violated’: Trial opens against KS Highway Patrol leader over traffic stop tactic](https://news.yahoo.com/felt-violated-trial-opens-against-201004202.html)
+- May 01 - [US intelligence believes 'slaughter-fest' fighting in Ukraine has cost Russia 100,000 dead and wounded in only a matter of months, White House reveals](https://news.yahoo.com/us-intelligence-believes-slaughter-fest-195621698.html)
+- May 01 - [Former 'Grey's Anatomy' star Isaiah Washington said he grew up with members of the KKK: 'I showed them love and respect'](https://news.yahoo.com/former-greys-anatomy-star-isaiah-195037702.html)
 - May 01 - [A former school resource officer at Hopkinton High has been charged with raping a student](https://news.yahoo.com/former-school-officer-hopkinton-high-162220041.html)
-- May 01 - [Firm that hired kids to clean meat plants keeps losing work](https://news.yahoo.com/firm-hired-kids-clean-meat-190848136.html)
-- May 01 - [Arcturus: New COVID-19 variant spreading in the U.S with new symptom](https://news.yahoo.com/arcturus-covid-19-variant-spreading-184833692.html)
-- May 01 - [Nurse diagnosed with melanoma shares 1 symptom that uncovered skin cancer](https://news.yahoo.com/nurse-diagnosed-melanoma-shares-1-183508059.html)
-- May 01 - [Trump’s Lawyers Go After E. Jean Carroll’s ‘Fabulous’ Life](https://news.yahoo.com/trumps-lawyers-e-jean-carroll-182803540.html)
 <!-- feed end -->
