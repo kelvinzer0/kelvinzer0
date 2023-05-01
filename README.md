@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 01 - [Iconic TV sets and artifacts up for auction](https://news.yahoo.com/iconic-tv-sets-artifacts-auction-163529591.html)
-- May 01 - [Feds Accuse Creepy Passenger of Groping Flight Attendant’s Crotch](https://news.yahoo.com/feds-accuse-creepy-passenger-groping-162210957.html)
-- May 01 - [Review: Actor Minka Kelly bares all in stunning new memoir](https://news.yahoo.com/review-actor-minka-kelly-bares-161349130.html)
-- May 01 - [Lori Vallow’s Hair Found on Tape Used to Wrap Dead Son’s Body, Expert Says](https://news.yahoo.com/lori-vallow-hair-found-tape-154742389.html)
-- May 01 - [Russian journalist seen in propaganda video breaking the rules by loading a rocket launcher says he figures it is ok since Ukrainians are Nazis](https://news.yahoo.com/russian-journalist-seen-propaganda-video-154535554.html)
+- May 01 - [Aerosmith announces Peace Out farewell tour, without Joey Kramer, after 50 years together](https://news.yahoo.com/aerosmith-announces-peace-farewell-tour-173712461.html)
+- May 01 - [Gwyneth Paltrow denied attorneys' fees in ski crash lawsuit](https://news.yahoo.com/gwyneth-paltrow-denied-attorneys-fees-171206116.html)
+- May 01 - [Whole Foods workers at shuttered San Francisco store witnessed knife attacks, a deadly fentanyl overdose, customers trying to defecate on the floor, and other chaos, report says](https://news.yahoo.com/whole-foods-workers-shuttered-san-165738305.html)
+- May 01 - [Why is Phoenix homelessness among the nation's worst? Look at what got us here](https://news.yahoo.com/why-phoenix-homelessness-among-nations-130215013.html)
+- May 01 - [Prosecutors: Officer accused of killing 16-year-old used badge to steal nude photos from women](https://news.yahoo.com/prosecutors-officer-accused-killing-16-163236321.html)
 <!-- feed end -->
