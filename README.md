@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 01 - [Santiago Pena wins Paraguay vote, keeps rightwing party in power](https://news.yahoo.com/santiago-pena-wins-paraguay-vote-010127895.html)
+- May 01 - [Chrissy Teigen Revealed That She Got "Full-body Sick" After Going On A Disney Cruise](https://news.yahoo.com/chrissy-teigen-revealed-she-got-005753033.html)
+- May 01 - [Gov. Greg Abbott prompts swift rebukes after calling Texas mass shooting victims 'illegal immigrants' in a statement offering condolences to their loved ones](https://news.yahoo.com/gov-greg-abbott-prompts-swift-003153273.html)
 - Apr 30 - [Ohtani hits 162-foot high home run, Angels beat Brewers 3-0](https://news.yahoo.com/ohtani-hits-162-foot-high-210847677.html)
 - Apr 30 - [Man arrested after $3M worth of drugs shipped to restaurant](https://news.yahoo.com/man-arrested-3m-worth-drugs-195813488.html)
-- Apr 30 - [Widening manhunt for Texas gunman slowed by 'zero leads'](https://news.yahoo.com/police-manhunt-continues-suspect-texas-191938486.html)
-- Apr 30 - [Thomas Markle: I refuse to be buried by Meghan while still alive](https://news.yahoo.com/thomas-markle-refuse-buried-meghan-191630793.html)
-- Apr 30 - [Presidential candidate Vivek Ramaswamy says he wants to 'shut down the FBI' and replace it with something that sounds a lot like the FBI](https://news.yahoo.com/presidential-candidate-vivek-ramaswamy-says-191106821.html)
 <!-- feed end -->
