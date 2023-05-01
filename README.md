@@ -56,7 +56,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 01 - [Mehdi Hasan Reveals How Fox News Reacted To Joe Biden's Jokes About Them](https://news.yahoo.com/mehdi-hasan-reveals-fox-news-054351263.html)
-- May 01 - [Kids Revealed Shocking Secrets Their Parents Admitted To Them As Adults, And Oh Boy, They Are Juicy](https://news.yahoo.com/kids-revealed-shocking-secrets-parents-235022212.html)
+- May 01 - [New Zealand leader says he favors nation becoming a republic](https://news.yahoo.com/zealand-leader-says-favors-nation-052219804.html)
 - May 01 - [DeSantis gave a 'low-wattage' and 'horrendous' speech in London as presidential polling slides: 'Nobody in the room was left thinking, 'this man's going places.''](https://news.yahoo.com/desantis-gave-low-wattage-horrendous-045327058.html)
 - May 01 - ['Waste of time': Community college transfers derail students](https://news.yahoo.com/waste-time-community-college-transfers-043010995.html)
 - May 01 - [Man who lost wife, son in Texas mass shooting tells story](https://news.yahoo.com/man-lost-wife-son-texas-041204290.html)
