@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 01 - [People Are Sharing The Most Unbelievable, Ludicrous, And Straight-Up Hilarious Lies Their Parents Ever Told Them, And These Are Killing Me](https://news.yahoo.com/people-sharing-most-unbelievable-ludicrous-235653568.html)
+- May 01 - [Ex-GOP Rep Points Out Something About Donald Trump That Many Ignore](https://news.yahoo.com/ex-gop-rep-points-something-115106950.html)
+- May 01 - [Shipwreck found off Florida beach is much larger than originally suspected, team says](https://news.yahoo.com/shipwreck-found-off-florida-beach-114532147.html)
+- May 01 - [Aerosmith announces farewell tour starting in September](https://news.yahoo.com/aerosmith-announces-farewell-tour-starting-110107680.html)
 - May 01 - [Jack Ma, the billionaire co-founder of Alibaba who disappeared from public life in 2020, has taken up a teaching role in Japan](https://news.yahoo.com/jack-ma-billionaire-co-founder-070223072.html)
 - May 01 - [Marine Vet Rep. Ruben Gallego Issues ‘Poser Alert’ Over Nikki Haley Gun Photo](https://news.yahoo.com/marine-vet-rep-ruben-gallego-063601157.html)
-- May 01 - [Alibaba's Jack Ma turns up in Japan as college professor](https://news.yahoo.com/alibabas-jack-ma-turns-japan-063352175.html)
-- May 01 - [Mehdi Hasan Reveals How Fox News Reacted To Joe Biden's Jokes About Them](https://news.yahoo.com/mehdi-hasan-reveals-fox-news-054351263.html)
 <!-- feed end -->
