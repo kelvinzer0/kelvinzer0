@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 01 - ['Waste of time': Community college transfers derail students](https://news.yahoo.com/waste-time-community-college-transfers-043010995.html)
+- May 01 - [Man who lost wife, son in Texas mass shooting tells story](https://news.yahoo.com/man-lost-wife-son-texas-041204290.html)
 - May 01 - [Case details Sinaloa cartel's fentanyl-fueled evolution](https://news.yahoo.com/case-details-sinaloa-cartels-fentanyl-040754497.html)
+- May 01 - [A commuter train excavation near Notre Dame Cathedral has uncovered a 2,000-year-old necropolis containing bodies buried with coins in their mouths and an entire pig skeleton](https://news.yahoo.com/commuter-train-excavation-near-notre-020847563.html)
 - May 01 - [Gov. Greg Abbott prompts swift rebukes after calling Texas mass shooting victims 'illegal immigrants' in a statement offering condolences to their loved ones](https://news.yahoo.com/gov-greg-abbott-prompts-swift-003153273.html)
-- May 01 - [Texas fugitive accused of killing 5 was illegally in US; deported 5 times](https://news.yahoo.com/texas-fugitive-accused-killing-5-000610681.html)
-- Apr 30 - [Ohtani hits 162-foot high home run, Angels beat Brewers 3-0](https://news.yahoo.com/ohtani-hits-162-foot-high-210847677.html)
-- Apr 30 - [Man arrested after $3M worth of drugs shipped to restaurant](https://news.yahoo.com/man-arrested-3m-worth-drugs-195813488.html)
 <!-- feed end -->
