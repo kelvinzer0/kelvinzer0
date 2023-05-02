@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 02 - [Kenyan pastor to face terrorism charges over cult massacre](https://news.yahoo.com/kenyan-pastor-face-terrorism-charges-183531062.html)
+- May 02 - [Massive fish caught off North Carolina coast could set world record. See for yourself](https://news.yahoo.com/massive-fish-caught-off-north-195218587.html)
+- May 02 - [Army drill sergeant rates 11 boot-camp scenes in movies and TV shows](https://news.yahoo.com/army-drill-sergeant-rates-11-194225912.html)
+- May 02 - [Tou Thou, officer who contained crowd during George Floyd's murder, is convicted](https://news.yahoo.com/tou-thou-officer-contained-crowd-191946607.html)
+- May 02 - [Underwater cemetery found off Dry Tortugas National Park](https://news.yahoo.com/underwater-cemetery-found-off-dry-191229000.html)
 - May 02 - [Kim Kardashian's Met Gala look is a shapewear-ified reference to the 'you're doing amazing sweetie' meme](https://news.yahoo.com/kim-kardashians-met-gala-look-181858160.html)
-- May 02 - [‘It’s literally cost me everything.’ Missouri man gets jail time in Capitol riot case](https://news.yahoo.com/literally-cost-everything-missouri-man-174055646.html)
-- May 02 - [Indus valley civilization disappeared 3,600 years ago — we finally know why, study says](https://news.yahoo.com/indus-valley-civilization-disappeared-3-173551724.html)
-- May 02 - [Putin Grooms Russians for Defeat in Leaked Crisis Manual](https://news.yahoo.com/putin-grooms-russians-defeat-leaked-170943643.html)
 <!-- feed end -->
