@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 02 - [Chance the Rapper on Acid Rap's 10-Year Anniversary and Wanting to Collab with Peppa Pig](https://news.yahoo.com/chance-rapper-acid-raps-10-083500763.html)
+- May 02 - [Chance the Rapper on His Inspiring Phone Call from Common and Meeting Barack Obama](https://news.yahoo.com/chance-rapper-inspiring-phone-call-083500572.html)
 - May 02 - [Donald Trump Breaks Ground With Dumbest Dig At Journalists](https://news.yahoo.com/donald-trump-breaks-ground-dumbest-082208096.html)
 - May 02 - [Gordon Lightfoot's Death Leaves Fans, Celebs And Critics Wrecked On Twitter](https://news.yahoo.com/gordon-lightfoots-death-leaves-fans-043219503.html)
 - May 02 - [Trump Lawyer Joe Tacopina’s Terrible Cross-Examination Gets Even Worse](https://news.yahoo.com/trump-lawyer-joe-tacopina-terrible-032359743.html)
