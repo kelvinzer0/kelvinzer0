@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 02 - [Wildlife and environmental groups sue FAA over debris from SpaceX Starship explosion](https://news.yahoo.com/wildlife-environmental-groups-sue-faa-175630029.html)
+- May 02 - [Kenyan pastor to face terrorism charges over cult massacre](https://news.yahoo.com/kenyan-pastor-face-terrorism-charges-183531062.html)
+- May 02 - [Kim Kardashian's Met Gala look is a shapewear-ified reference to the 'you're doing amazing sweetie' meme](https://news.yahoo.com/kim-kardashians-met-gala-look-181858160.html)
+- May 02 - [‘It’s literally cost me everything.’ Missouri man gets jail time in Capitol riot case](https://news.yahoo.com/literally-cost-everything-missouri-man-174055646.html)
+- May 02 - [Indus valley civilization disappeared 3,600 years ago — we finally know why, study says](https://news.yahoo.com/indus-valley-civilization-disappeared-3-173551724.html)
 - May 02 - [Putin Grooms Russians for Defeat in Leaked Crisis Manual](https://news.yahoo.com/putin-grooms-russians-defeat-leaked-170943643.html)
-- May 02 - [Americans could be on track for a stream of job losses, big cuts to retirement savings, and a surge in student-loan payments in less than a month. It's completely preventable.](https://news.yahoo.com/americans-could-track-stream-job-153939848.html)
-- May 02 - [Second accuser takes stand at Trump’s NYC civil rape trial, describes sexual assault on plane: ‘Like he had fifty zillion hands’](https://news.yahoo.com/e-jean-carroll-friend-takes-152500304.html)
-- May 02 - [Principal bolts after he opens dumpster behind school — and a creature emerges](https://news.yahoo.com/principal-bolts-opens-dumpster-behind-151954092.html)
 <!-- feed end -->
