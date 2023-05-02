@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 02 - [These Are the Most Expensive Neighborhoods in the U.S., According to Zillow Data](https://news.yahoo.com/most-expensive-neighborhoods-u-according-153533965.html)
+- May 02 - [Principal bolts after he opens dumpster behind school — and a creature emerges](https://news.yahoo.com/principal-bolts-opens-dumpster-behind-151954092.html)
+- May 02 - [Georgia football player caught spewing racist slur at Asian boy during NFL Draft livestream](https://news.yahoo.com/georgia-football-player-caught-spewing-145356352.html)
 - May 02 - [Lottery player tries to work after jackpot win in Iowa. He ‘lasted about five minutes’](https://news.yahoo.com/lottery-player-tries-jackpot-win-144755872.html)
 - May 02 - [Trans extremists are wrong about biology in sport](https://news.yahoo.com/trans-extremists-wrong-biology-sport-134948769.html)
-- May 02 - [Massive alligator caught on video slowly crossing SC neighborhood street. Take a look](https://news.yahoo.com/massive-alligator-caught-video-slowly-132257832.html)
-- May 02 - [Ex-officer Thao convicted of aiding George Floyd’s killing](https://news.yahoo.com/ex-officer-thao-convicted-aiding-132120281.html)
-- May 02 - [A Brutal Sex Trade Built for American Soldiers](https://news.yahoo.com/brutal-sex-trade-built-american-123843407.html)
 <!-- feed end -->
