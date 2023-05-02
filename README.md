@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 02 - [Kelly Clarkson Covers 'New York Minute' By Don Henley | Kellyoke](https://news.yahoo.com/kelly-clarkson-covers-york-minute-130000466.html)
-- May 02 - [Scottish Newspaper Has Strong Views About Donald Trump's Visit](https://news.yahoo.com/scottish-newspaper-strong-views-donald-124445761.html)
+- May 02 - [A Brutal Sex Trade Built for American Soldiers](https://news.yahoo.com/brutal-sex-trade-built-american-123843407.html)
+- May 02 - [My husband accidentally left our baby in a hot car, and he died. I forgave him — but our love is different now.](https://news.yahoo.com/husband-accidentally-left-baby-hot-120300935.html)
 - May 02 - [The celebrities that are still defending Putin — and those that have turned their backs on him](https://news.yahoo.com/celebrities-still-defending-putin-those-141527621.html)
 - May 02 - [Long-unfinished blue Strip tower sets date for grand opening](https://news.yahoo.com/long-unfinished-blue-strip-tower-113156293.html)
-- May 02 - [A$AP Rocky shocked onlookers as he hopped over a barricade to get into a hotel before the Met Gala, video appears to show](https://news.yahoo.com/ap-rocky-shocked-onlookers-hopped-023441040.html)
+- May 02 - [A father and son on vacation were caught in a Florida rip current. Watch what happened](https://news.yahoo.com/father-son-vacation-were-caught-112100872.html)
 <!-- feed end -->
