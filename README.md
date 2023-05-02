@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 02 - [Chance the Rapper on His Inspiring Phone Call from Common and Meeting Barack Obama](https://news.yahoo.com/chance-rapper-inspiring-phone-call-083500572.html)
 - May 02 - [Donald Trump Breaks Ground With Dumbest Dig At Journalists](https://news.yahoo.com/donald-trump-breaks-ground-dumbest-082208096.html)
+- May 02 - [Rihanna: ‘Thank God you guys waited’ after she arrives an hour and a half late to Met Gala](https://news.yahoo.com/rihanna-thank-god-guys-waited-060154091.html)
 - May 02 - [Gordon Lightfoot's Death Leaves Fans, Celebs And Critics Wrecked On Twitter](https://news.yahoo.com/gordon-lightfoots-death-leaves-fans-043219503.html)
 - May 02 - [Trump Lawyer Joe Tacopina’s Terrible Cross-Examination Gets Even Worse](https://news.yahoo.com/trump-lawyer-joe-tacopina-terrible-032359743.html)
-- May 02 - [Muslim mayor blocked from White House Eid celebration](https://news.yahoo.com/muslim-mayor-blocked-white-house-001650830.html)
 <!-- feed end -->
