@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 02 - ['Trump can't win' column stirs debate about 2024 race](https://news.yahoo.com/trump-cant-win-column-stirs-debate-about-2024-race-202107068.html)
+- May 02 - [Second Russian train hit by explosive near Ukraine border](https://news.yahoo.com/second-russian-train-hit-explosive-201230106.html)
+- May 02 - [I was catcalled while walking when I was 8 months pregnant. When the man saw my belly, he screamed an apology and drove off.](https://news.yahoo.com/catcalled-while-walking-8-months-200130260.html)
 - May 02 - [Massive fish caught off North Carolina coast could set world record. See for yourself](https://news.yahoo.com/massive-fish-caught-off-north-195218587.html)
 - May 02 - [Army drill sergeant rates 11 boot-camp scenes in movies and TV shows](https://news.yahoo.com/army-drill-sergeant-rates-11-194225912.html)
-- May 02 - [Tou Thou, officer who contained crowd during George Floyd's murder, is convicted](https://news.yahoo.com/tou-thou-officer-contained-crowd-191946607.html)
-- May 02 - [Underwater cemetery found off Dry Tortugas National Park](https://news.yahoo.com/underwater-cemetery-found-off-dry-191229000.html)
-- May 02 - [Kim Kardashian's Met Gala look is a shapewear-ified reference to the 'you're doing amazing sweetie' meme](https://news.yahoo.com/kim-kardashians-met-gala-look-181858160.html)
 <!-- feed end -->
