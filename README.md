@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 02 - ['Trump can't win' column stirs debate about 2024 race](https://news.yahoo.com/trump-cant-win-column-stirs-debate-about-2024-race-202107068.html)
-- May 02 - [Second Russian train hit by explosive near Ukraine border](https://news.yahoo.com/second-russian-train-hit-explosive-201230106.html)
-- May 02 - [I was catcalled while walking when I was 8 months pregnant. When the man saw my belly, he screamed an apology and drove off.](https://news.yahoo.com/catcalled-while-walking-8-months-200130260.html)
-- May 02 - [Massive fish caught off North Carolina coast could set world record. See for yourself](https://news.yahoo.com/massive-fish-caught-off-north-195218587.html)
-- May 02 - [Army drill sergeant rates 11 boot-camp scenes in movies and TV shows](https://news.yahoo.com/army-drill-sergeant-rates-11-194225912.html)
+- May 02 - [Another woman threw a drink at US Rep. Matt Gaetz in Florida](https://news.yahoo.com/another-woman-threw-drink-us-214339681.html)
+- May 02 - [A photo of women snickering at trans lawmaker Zooey Zephyr in Montana looks a lot like the photos of white people snickering at Black people in the 1950s](https://news.yahoo.com/photo-women-snickering-trans-lawmaker-210535930.html)
+- May 02 - [A United passenger is banned from future flights after witnesses say he punched a crew member and tried to jump out of the plane](https://news.yahoo.com/united-passenger-banned-future-flights-205346769.html)
+- May 02 - [‘There’s No Game Plan’: Bud Light Sales Collapse amid Backlash to Dylan Mulvaney Campaign](https://news.yahoo.com/no-game-plan-bud-light-203336578.html)
+- May 02 - [I've worked at Costco for over 17 years. Here are my 7 best tips for shopping there.](https://news.yahoo.com/ive-worked-costco-over-17-202234268.html)
 <!-- feed end -->
