@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 02 - [Muslim mayor blocked from White House Eid celebration](https://news.yahoo.com/muslim-mayor-blocked-white-house-001650830.html)
+- May 01 - [Roman Polanski and the woman he pleaded guilty to raping pose together 45 years later](https://news.yahoo.com/roman-polanski-woman-pleaded-guilty-231258638.html)
+- May 01 - [Met Gala 2023 looks: See photos of the show-stopping red carpet arrivals](https://news.yahoo.com/met-gala-2023-looks-see-223605621.html)
+- May 01 - [For only the second time in its history, the US Navy is beginning the slow, tricky process of taking apart a nuclear-powered aircraft carrier](https://news.yahoo.com/only-second-time-history-us-223100137.html)
 - May 01 - [7 bodies found during search for missing Oklahoma teens](https://news.yahoo.com/7-bodies-found-during-search-222020363.html)
-- May 01 - [Massive Shockwave From Russian Strike May Have Been A Rocket Storage Facility Detonating](https://news.yahoo.com/massive-shockwave-russian-strike-may-210904381.html)
-- May 01 - [Another Mysterious Balloon Is Being Tracked by U.S. Officials](https://news.yahoo.com/another-mysterious-balloon-being-tracked-205009187.html)
-- May 01 - [‘I felt violated’: Trial opens against KS Highway Patrol leader over traffic stop tactic](https://news.yahoo.com/felt-violated-trial-opens-against-201004202.html)
-- May 01 - [US intelligence believes 'slaughter-fest' fighting in Ukraine has cost Russia 100,000 dead and wounded in only a matter of months, White House reveals](https://news.yahoo.com/us-intelligence-believes-slaughter-fest-195621698.html)
 <!-- feed end -->
