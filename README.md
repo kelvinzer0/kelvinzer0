@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 02 - [Royal memorabilia a hit as UK coronation nears](https://news.yahoo.com/royal-memorabilia-hit-uk-coronation-043950806.html)
+- May 02 - [Trump Lawyer Joe Tacopina’s Terrible Cross-Examination Gets Even Worse](https://news.yahoo.com/trump-lawyer-joe-tacopina-terrible-032359743.html)
 - May 02 - [Canadian folk singer Gordon Lightfoot dies at 84](https://news.yahoo.com/canadian-folk-singer-gordon-lightfoot-015246708.html)
 - May 02 - [Patrick and Brittany Mahomes walk the Met Gala red carpet on fashion’s biggest night](https://news.yahoo.com/patrick-brittany-mahomes-walk-met-004118571.html)
 - May 02 - [Muslim mayor blocked from White House Eid celebration](https://news.yahoo.com/muslim-mayor-blocked-white-house-001650830.html)
-- May 01 - [Roman Polanski and the woman he pleaded guilty to raping pose together 45 years later](https://news.yahoo.com/roman-polanski-woman-pleaded-guilty-231258638.html)
-- May 01 - [Met Gala 2023 looks: See photos of the show-stopping red carpet arrivals](https://news.yahoo.com/met-gala-2023-looks-see-223605621.html)
 <!-- feed end -->
