@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 02 - [Lottery player tries to work after jackpot win in Iowa. He ‘lasted about five minutes’](https://news.yahoo.com/lottery-player-tries-jackpot-win-144755872.html)
+- May 02 - [Trans extremists are wrong about biology in sport](https://news.yahoo.com/trans-extremists-wrong-biology-sport-134948769.html)
+- May 02 - [Massive alligator caught on video slowly crossing SC neighborhood street. Take a look](https://news.yahoo.com/massive-alligator-caught-video-slowly-132257832.html)
+- May 02 - [Ex-officer Thao convicted of aiding George Floyd’s killing](https://news.yahoo.com/ex-officer-thao-convicted-aiding-132120281.html)
 - May 02 - [A Brutal Sex Trade Built for American Soldiers](https://news.yahoo.com/brutal-sex-trade-built-american-123843407.html)
-- May 02 - [My husband accidentally left our baby in a hot car, and he died. I forgave him — but our love is different now.](https://news.yahoo.com/husband-accidentally-left-baby-hot-120300935.html)
-- May 02 - [The celebrities that are still defending Putin — and those that have turned their backs on him](https://news.yahoo.com/celebrities-still-defending-putin-those-141527621.html)
-- May 02 - [Long-unfinished blue Strip tower sets date for grand opening](https://news.yahoo.com/long-unfinished-blue-strip-tower-113156293.html)
-- May 02 - [A father and son on vacation were caught in a Florida rip current. Watch what happened](https://news.yahoo.com/father-son-vacation-were-caught-112100872.html)
 <!-- feed end -->
