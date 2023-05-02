@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 02 - [Second woman accuses Trump of assault at trial](https://news.yahoo.com/second-woman-accuses-trump-assault-225322448.html)
+- May 02 - [Family of dead bride urges drivers not to drive drunk](https://news.yahoo.com/family-dead-bride-urges-drivers-220144956.html)
 - May 02 - [Another woman threw a drink at US Rep. Matt Gaetz in Florida](https://news.yahoo.com/another-woman-threw-drink-us-214339681.html)
+- May 02 - [Emma Watson says she's been drinking wine since she was a kid but didn't realize other teens used it 'for getting wasted'](https://news.yahoo.com/emma-watson-says-shes-drinking-212020782.html)
 - May 02 - [A photo of women snickering at trans lawmaker Zooey Zephyr in Montana looks a lot like the photos of white people snickering at Black people in the 1950s](https://news.yahoo.com/photo-women-snickering-trans-lawmaker-210535930.html)
-- May 02 - [A United passenger is banned from future flights after witnesses say he punched a crew member and tried to jump out of the plane](https://news.yahoo.com/united-passenger-banned-future-flights-205346769.html)
-- May 02 - [‘There’s No Game Plan’: Bud Light Sales Collapse amid Backlash to Dylan Mulvaney Campaign](https://news.yahoo.com/no-game-plan-bud-light-203336578.html)
-- May 02 - [I've worked at Costco for over 17 years. Here are my 7 best tips for shopping there.](https://news.yahoo.com/ive-worked-costco-over-17-202234268.html)
 <!-- feed end -->
