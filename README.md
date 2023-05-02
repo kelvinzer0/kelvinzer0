@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - May 02 - [Canadian folk singer Gordon Lightfoot dies at 84](https://news.yahoo.com/canadian-folk-singer-gordon-lightfoot-015246708.html)
 - May 02 - [Patrick and Brittany Mahomes walk the Met Gala red carpet on fashion’s biggest night](https://news.yahoo.com/patrick-brittany-mahomes-walk-met-004118571.html)
 - May 02 - [Muslim mayor blocked from White House Eid celebration](https://news.yahoo.com/muslim-mayor-blocked-white-house-001650830.html)
-- May 01 - [Roman Polanski and the woman he pleaded guilty to raping pose together 45 years later](https://news.yahoo.com/roman-polanski-woman-pleaded-guilty-231258638.html)
 - May 01 - [Met Gala 2023 looks: See photos of the show-stopping red carpet arrivals](https://news.yahoo.com/met-gala-2023-looks-see-223605621.html)
+- May 01 - [For only the second time in its history, the US Navy is beginning the slow, tricky process of taking apart a nuclear-powered aircraft carrier](https://news.yahoo.com/only-second-time-history-us-223100137.html)
 <!-- feed end -->
