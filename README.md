@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 02 - [Filipino crew on front line of sea feud with China](https://news.yahoo.com/filipino-crew-front-line-sea-163914780.html)
+- May 02 - [Wildlife and environmental groups sue FAA over debris from SpaceX Starship explosion](https://news.yahoo.com/wildlife-environmental-groups-sue-faa-175630029.html)
+- May 02 - [Putin Grooms Russians for Defeat in Leaked Crisis Manual](https://news.yahoo.com/putin-grooms-russians-defeat-leaked-170943643.html)
 - May 02 - [Americans could be on track for a stream of job losses, big cuts to retirement savings, and a surge in student-loan payments in less than a month. It's completely preventable.](https://news.yahoo.com/americans-could-track-stream-job-153939848.html)
+- May 02 - [Second accuser takes stand at Trump’s NYC civil rape trial, describes sexual assault on plane: ‘Like he had fifty zillion hands’](https://news.yahoo.com/e-jean-carroll-friend-takes-152500304.html)
 - May 02 - [Principal bolts after he opens dumpster behind school — and a creature emerges](https://news.yahoo.com/principal-bolts-opens-dumpster-behind-151954092.html)
-- May 02 - [Georgia football player caught spewing racist slur at Asian boy during NFL Draft livestream](https://news.yahoo.com/georgia-football-player-caught-spewing-145356352.html)
-- May 02 - [Lottery player tries to work after jackpot win in Iowa. He ‘lasted about five minutes’](https://news.yahoo.com/lottery-player-tries-jackpot-win-144755872.html)
 <!-- feed end -->
