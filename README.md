@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 03 - [Judge Tosses Trump’s Lawsuit Against NY Times, Orders Him to Pay All Legal Fees](https://news.yahoo.com/judge-tosses-trump-lawsuit-against-211556328.html)
 - May 03 - [Former F-16 pilot says he would not want to fly missions over Ukraine right now, arguing 'there is no fighting chance'](https://news.yahoo.com/former-f-16-pilot-says-204921263.html)
+- May 03 - [Judge Tosses Trump’s Lawsuit Against NY Times, Orders Him to Pay All Legal Fees](https://news.yahoo.com/judge-tosses-trump-lawsuit-against-211556328.html)
+- May 03 - [Soldier who Texas governor wants to pardon denied retrial](https://news.yahoo.com/soldier-texas-governor-wants-pardon-205151280.html)
+- May 03 - [Here’s why Kevin Costner is done with Taylor Sheridan’s ‘Yellowstone’ after this season](https://news.yahoo.com/why-kevin-costner-done-taylor-200757584.html)
 - May 03 - [Oregon Republicans stay home ahead of abortion, guns votes](https://news.yahoo.com/oregon-republicans-stay-home-ahead-200503413.html)
-- May 03 - [Bud Light is hoping free cases of beer will smooth over any tensions with its sellers after Dylan Mulvaney backlash](https://news.yahoo.com/bud-light-hoping-free-cases-195402011.html)
-- May 03 - [Trump’s Only Witness in Trial Over Rape Lawsuit Won’t Testify](https://news.yahoo.com/trump-only-witness-trial-over-194155141.html)
 <!-- feed end -->
