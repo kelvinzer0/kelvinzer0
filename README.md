@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 03 - [Oregon Republicans stay home ahead of abortion, guns votes](https://news.yahoo.com/oregon-republicans-stay-home-ahead-200503413.html)
+- May 03 - [Bud Light is hoping free cases of beer will smooth over any tensions with its sellers after Dylan Mulvaney backlash](https://news.yahoo.com/bud-light-hoping-free-cases-195402011.html)
 - May 03 - [Alex Murdaugh 'Invented' Story About Housekeeper’s Fatal Fall, His Attorneys Say](https://news.yahoo.com/alex-murdaugh-invented-story-housekeeper-192755219.html)
-- May 03 - [California state senator arrested for drunken driving](https://news.yahoo.com/california-state-senator-arrested-drunken-191249877.html)
+- May 03 - [Congressional candidate arrested for drunken driving](https://news.yahoo.com/california-state-senator-arrested-drunken-191249877.html)
 - May 03 - [Texas Senate Approves Bill To Allow Gov. Greg Abbott To Overturn Elections](https://news.yahoo.com/texas-senate-approves-bill-allow-183154752.html)
-- May 03 - [New Mexico St player: 'First it hurts, then it changes you'](https://news.yahoo.com/mexico-st-player-first-hurts-182452637.html)
-- May 03 - [Russian trail of blood: 21 killed and 48 wounded in Kherson Oblast – Zelenskyy](https://news.yahoo.com/russian-trail-blood-21-killed-181406975.html)
 <!-- feed end -->
