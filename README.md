@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 03 - [Curfew, sabotage as Ukraine gears up for offensive](https://news.yahoo.com/curfew-sabotage-ukraine-gears-offensive-102901189.html)
+- May 03 - [Gwyneth Paltrow says Ben Affleck was 'technically excellent' in bed, and that she was 'totally heartbroken' over Brad Pitt breakup](https://news.yahoo.com/gwyneth-paltrow-says-ben-affleck-101813261.html)
+- May 03 - [Lake Norman homeowners fed up with blinding lights beaming off water, into their windows](https://news.yahoo.com/lake-norman-homeowners-fed-blinding-100000065.html)
 - May 03 - [Iran's Revolutionary Guard seizes tanker in Strait of Hormuz](https://news.yahoo.com/us-navy-iran-seizes-oil-085825983.html)
 - May 03 - [US fears Ukrainian counteroffensive will become carnage – WP](https://news.yahoo.com/us-fears-ukrainian-counteroffensive-become-062901238.html)
-- May 03 - [A McDonald's made a pair of 10-year-olds work without pay and sometimes until 2 a.m., federal authorities say](https://news.yahoo.com/mcdonalds-made-pair-10-olds-034645015.html)
-- May 03 - [Text shows Tucker Carlson describing how a 'group of Trump guys' jumped an 'Antifa kid,' saying, 'It's not how white men fight'](https://news.yahoo.com/text-shows-tucker-carlson-describing-021956014.html)
-- May 03 - [Texas Massacre Suspect Found Hiding Under Pile of Laundry: Cops](https://news.yahoo.com/gunman-nabbed-texas-days-run-010045464.html)
 <!-- feed end -->
