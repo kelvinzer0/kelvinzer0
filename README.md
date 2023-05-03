@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 03 - [Alex Murdaugh 'Invented' Story About Housekeeper’s Fatal Fall, His Attorneys Say](https://news.yahoo.com/alex-murdaugh-invented-story-housekeeper-192755219.html)
+- May 03 - [California state senator arrested for drunken driving](https://news.yahoo.com/california-state-senator-arrested-drunken-191249877.html)
 - May 03 - [Texas Senate Approves Bill To Allow Gov. Greg Abbott To Overturn Elections](https://news.yahoo.com/texas-senate-approves-bill-allow-183154752.html)
-- May 03 - [Cops Bust ‘Sextortion’ Ring That Led Michigan Teen to Kill Himself](https://news.yahoo.com/cops-bust-sextortion-ring-led-175558978.html)
-- May 03 - [Man dies after being placed in headlock on NYC subway](https://news.yahoo.com/man-dies-being-placed-headlock-174850280.html)
-- May 03 - [Man dies on NYC subway after being placed in chokehold by fellow passenger](https://news.yahoo.com/nyc-subway-chokehold-death-marine-investigation-video-164827141.html)
-- May 03 - [Patrick Mahomes' brother Jackson charged with sexual battery](https://news.yahoo.com/patrick-mahomes-brother-charged-sexual-164011239.html)
+- May 03 - [New Mexico St player: 'First it hurts, then it changes you'](https://news.yahoo.com/mexico-st-player-first-hurts-182452637.html)
+- May 03 - [Russian trail of blood: 21 killed and 48 wounded in Kherson Oblast – Zelenskyy](https://news.yahoo.com/russian-trail-blood-21-killed-181406975.html)
 <!-- feed end -->
