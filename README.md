@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 03 - [Patrick Mahomes' brother Jackson charged with sexual battery](https://news.yahoo.com/patrick-mahomes-brother-charged-sexual-164011239.html)
 - May 03 - [Woman accused of hiding suspected gunman who killed 5 in Texas arrested, sheriff says](https://news.yahoo.com/woman-accused-hiding-suspected-gunman-145042024.html)
-- May 03 - [A woman had to move out of her tiny home after 1 day because the city threatened to fine her $1,000 a day](https://news.yahoo.com/woman-had-move-her-tiny-141946741.html)
-- May 03 - [Voters oust Michigan clerk who doubts election results](https://news.yahoo.com/voters-oust-michigan-clerk-doubts-145512612.html)
-- May 03 - [US sprinter, Olympic medalist Tori Bowie dies at 32](https://news.yahoo.com/us-sprinter-olympic-medalist-tori-135859473.html)
+- May 03 - [Man dies after being placed in headlock on NYC subway](https://news.yahoo.com/man-dies-being-placed-headlock-174850280.html)
+- May 03 - [Expert: Trump accuser shows signs of trauma, resilience](https://news.yahoo.com/expert-trump-accuser-shows-signs-172655751.html)
+- May 03 - [Patrick Mahomes' brother Jackson charged with sexual battery](https://news.yahoo.com/patrick-mahomes-brother-charged-sexual-164011239.html)
+- May 03 - [A woman hired a private investigator after waiting months for a tiny home she'd paid $46,000 for but never received](https://news.yahoo.com/woman-hired-private-investigator-waiting-104311444.html)
 <!-- feed end -->
