@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 03 - [Police officer narrowly escapes being hit by car skidding across Virginia highway](https://news.yahoo.com/police-officer-narrowly-escapes-being-004407075.html)
+- May 03 - [Suspect in Texas Massacre That Killed 5 Nabbed After Days on the Run](https://news.yahoo.com/gunman-nabbed-texas-days-run-010045464.html)
+- May 03 - [Democrats have been plotting since January to deploy an obscure legal strategy that could bypass Kevin McCarthy and force a debt ceiling vote if Republicans send the country to the edge of default](https://news.yahoo.com/democrats-plotting-since-january-deploy-010018561.html)
+- May 03 - [Alabama church shooter gets life for killing 3 at potluck](https://news.yahoo.com/alabama-church-shooter-gets-life-005722841.html)
+- May 03 - [Kevin Costner and wife of nearly 19 years begin divorce](https://news.yahoo.com/kevin-costner-wife-nearly-19-002443560.html)
 - May 03 - [Trump Makes at Least One Good Decision at His Rape Trial](https://news.yahoo.com/trump-makes-least-one-good-001523270.html)
-- May 02 - [Nordstrom to Close Both San Francisco Stores amid Rampant Crime](https://news.yahoo.com/nordstrom-close-both-san-francisco-235623318.html)
-- May 02 - [Rare reptile of mythical lore — the last female of her species — dies in Vietnam](https://news.yahoo.com/rare-reptile-mythical-lore-last-231003830.html)
-- May 02 - [‘Grinning’ creature lurking at wastewater plant discovered when worker spots its tail](https://news.yahoo.com/grinning-creature-lurking-wastewater-plant-221557560.html)
 <!-- feed end -->
