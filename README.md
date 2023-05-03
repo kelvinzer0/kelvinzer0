@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 02 - [Second woman accuses Trump of assault at trial](https://news.yahoo.com/second-woman-accuses-trump-assault-225322448.html)
-- May 02 - [Family of dead bride urges drivers not to drive drunk](https://news.yahoo.com/family-dead-bride-urges-drivers-220144956.html)
-- May 02 - [Another woman threw a drink at US Rep. Matt Gaetz in Florida](https://news.yahoo.com/another-woman-threw-drink-us-214339681.html)
-- May 02 - [Emma Watson says she's been drinking wine since she was a kid but didn't realize other teens used it 'for getting wasted'](https://news.yahoo.com/emma-watson-says-shes-drinking-212020782.html)
-- May 02 - [A photo of women snickering at trans lawmaker Zooey Zephyr in Montana looks a lot like the photos of white people snickering at Black people in the 1950s](https://news.yahoo.com/photo-women-snickering-trans-lawmaker-210535930.html)
+- May 03 - [Police officer narrowly escapes being hit by car skidding across Virginia highway](https://news.yahoo.com/police-officer-narrowly-escapes-being-004407075.html)
+- May 03 - [Trump Makes at Least One Good Decision at His Rape Trial](https://news.yahoo.com/trump-makes-least-one-good-001523270.html)
+- May 02 - [Nordstrom to Close Both San Francisco Stores amid Rampant Crime](https://news.yahoo.com/nordstrom-close-both-san-francisco-235623318.html)
+- May 02 - [Rare reptile of mythical lore — the last female of her species — dies in Vietnam](https://news.yahoo.com/rare-reptile-mythical-lore-last-231003830.html)
+- May 02 - [‘Grinning’ creature lurking at wastewater plant discovered when worker spots its tail](https://news.yahoo.com/grinning-creature-lurking-wastewater-plant-221557560.html)
 <!-- feed end -->
