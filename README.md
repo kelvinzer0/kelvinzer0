@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 03 - [A McDonald's made a pair of 10-year-olds work without pay and sometimes until 2 a.m., federal authorities say](https://news.yahoo.com/mcdonalds-made-pair-10-olds-034645015.html)
 - May 03 - [Text shows Tucker Carlson describing how a 'group of Trump guys' jumped an 'Antifa kid,' saying 'It's not how white men fight'](https://news.yahoo.com/text-shows-tucker-carlson-describing-021956014.html)
 - May 03 - [Texas Massacre Suspect Found Hiding Under Pile of Laundry: Cops](https://news.yahoo.com/gunman-nabbed-texas-days-run-010045464.html)
 - May 03 - [Democrats have been plotting since January to deploy an obscure legal strategy that could bypass Kevin McCarthy and force a debt ceiling vote if Republicans send the country to the edge of default](https://news.yahoo.com/democrats-plotting-since-january-deploy-010018561.html)
 - May 03 - [Alabama church shooter gets life for killing 3 at potluck](https://news.yahoo.com/alabama-church-shooter-gets-life-005722841.html)
-- May 03 - [Kevin Costner and wife of nearly 19 years begin divorce](https://news.yahoo.com/kevin-costner-wife-nearly-19-002443560.html)
 <!-- feed end -->
