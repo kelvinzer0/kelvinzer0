@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 03 - [Russia blames Ukraine for foiled drone attack aimed at Putin](https://news.yahoo.com/russia-blames-ukraine-foiled-drone-143319717.html)
+- May 03 - [Woman accused of hiding suspected gunman who killed 5 in Texas arrested, sheriff says](https://news.yahoo.com/woman-accused-hiding-suspected-gunman-145042024.html)
+- May 03 - [Voters oust Michigan clerk who doubts election results](https://news.yahoo.com/voters-oust-michigan-clerk-doubts-145512612.html)
 - May 03 - [US sprinter, Olympic medalist Tori Bowie dies at 32](https://news.yahoo.com/us-sprinter-olympic-medalist-tori-135859473.html)
 - May 03 - [What Happens When King Charles Dies?](https://news.yahoo.com/happens-king-charles-dies-135726310.html)
 - May 03 - [Judge blocks Montana state Rep. Zooey Zephyr from returning to House floor](https://news.yahoo.com/judge-blocks-montana-state-rep-132750253.html)
-- May 03 - [Jackson Mahomes arrested, booked into Johnson County jail on sexual battery warrant](https://news.yahoo.com/jackson-mahomes-arrested-booked-johnson-132737892.html)
 <!-- feed end -->
