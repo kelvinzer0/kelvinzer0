@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - May 03 - [Kremlin Says Putin Survived Overnight Assassination Attempt](https://news.yahoo.com/kremlin-says-putin-survived-overnight-114602738.html)
 - May 03 - [The US Air Force has retreated from Taiwan without a shot fired](https://news.yahoo.com/us-air-force-retreated-taiwan-112743593.html)
 - May 03 - [Large portion of Florida under red flag warning. What's that mean?](https://news.yahoo.com/large-portion-florida-under-red-105929191.html)
-- May 03 - [My husband died of a rare cancer at 27. 10 months later, I was diagnosed with a brain tumor.](https://news.yahoo.com/husband-died-rare-cancer-27-111851135.html)
+- May 03 - [Rapper Da Brat says she and her wife chose a white sperm donor because the only Black donor presented to them 'looked like Jiminy Cricket'](https://news.yahoo.com/rapper-da-brat-says-she-104618522.html)
 - May 03 - [Gwyneth Paltrow says Ben Affleck was 'technically excellent' in bed, and that she was 'totally heartbroken' over Brad Pitt breakup](https://news.yahoo.com/gwyneth-paltrow-says-ben-affleck-101813261.html)
 <!-- feed end -->
