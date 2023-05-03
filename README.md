@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 03 - [Judge blocks Montana state Rep. Zooey Zephyr from returning to House floor](https://news.yahoo.com/judge-blocks-montana-state-rep-132750253.html)
+- May 03 - [Jackson Mahomes arrested, booked into Johnson County jail on sexual battery warrant](https://news.yahoo.com/jackson-mahomes-arrested-booked-johnson-132737892.html)
+- May 03 - [Rep. Ilhan Omar Crowns Tucker Carlson With Stinging New Moniker](https://news.yahoo.com/rep-ilhan-omar-crowns-tucker-122255053.html)
+- May 03 - [‘Not Going to Fly Here’: DeSantis Signs Far-Reaching Anti-ESG Bill into Law](https://news.yahoo.com/not-going-fly-desantis-signs-121648679.html)
 - May 03 - [Kremlin Says Putin Survived Overnight Assassination Attempt](https://news.yahoo.com/kremlin-says-putin-survived-overnight-114602738.html)
-- May 03 - [The US Air Force has retreated from Taiwan without a shot fired](https://news.yahoo.com/us-air-force-retreated-taiwan-112743593.html)
-- May 03 - [Large portion of Florida under red flag warning. What's that mean?](https://news.yahoo.com/large-portion-florida-under-red-105929191.html)
-- May 03 - [Rapper Da Brat says she and her wife chose a white sperm donor because the only Black donor presented to them 'looked like Jiminy Cricket'](https://news.yahoo.com/rapper-da-brat-says-she-104618522.html)
-- May 03 - [Gwyneth Paltrow says Ben Affleck was 'technically excellent' in bed, and that she was 'totally heartbroken' over Brad Pitt breakup](https://news.yahoo.com/gwyneth-paltrow-says-ben-affleck-101813261.html)
 <!-- feed end -->
