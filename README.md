@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 03 - [Judge Tosses Trump’s Lawsuit Against NY Times, Orders Him to Pay All Legal Fees](https://news.yahoo.com/judge-tosses-trump-lawsuit-against-211556328.html)
+- May 03 - [Former F-16 pilot says he would not want to fly missions over Ukraine right now, arguing 'there is no fighting chance'](https://news.yahoo.com/former-f-16-pilot-says-204921263.html)
 - May 03 - [Oregon Republicans stay home ahead of abortion, guns votes](https://news.yahoo.com/oregon-republicans-stay-home-ahead-200503413.html)
 - May 03 - [Bud Light is hoping free cases of beer will smooth over any tensions with its sellers after Dylan Mulvaney backlash](https://news.yahoo.com/bud-light-hoping-free-cases-195402011.html)
-- May 03 - [Alex Murdaugh 'Invented' Story About Housekeeper’s Fatal Fall, His Attorneys Say](https://news.yahoo.com/alex-murdaugh-invented-story-housekeeper-192755219.html)
-- May 03 - [Congressional candidate arrested for drunken driving](https://news.yahoo.com/california-state-senator-arrested-drunken-191249877.html)
-- May 03 - [Texas Senate Approves Bill To Allow Gov. Greg Abbott To Overturn Elections](https://news.yahoo.com/texas-senate-approves-bill-allow-183154752.html)
+- May 03 - [Trump’s Only Witness in Trial Over Rape Lawsuit Won’t Testify](https://news.yahoo.com/trump-only-witness-trial-over-194155141.html)
 <!-- feed end -->
