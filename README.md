@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 04 - [Embattled 1st Black St. Louis prosecutor Kim Gardner resigns](https://news.yahoo.com/embattled-st-louis-prosecutor-resigns-210750702.html)
 - May 04 - [Soldier won't get new trial to sue police over violent stop](https://news.yahoo.com/soldier-wont-trial-sue-police-204955317.html)
 - May 04 - ['Like a horror movie': Photos of Lashawn Thompson's body and Fulton County Jail cell spark outrage](https://news.yahoo.com/like-a-horror-movie-photos-of-lashawn-thompsons-body-and-fulton-county-jail-cell-spark-outrage-204927654.html)
-- May 04 - [TikTok embroiled in racism debate over UK slang for Chinese takeout](https://news.yahoo.com/tiktok-embroiled-racism-debate-over-200241274.html)
-- May 04 - [CNN’s John King mocks Republicans over ‘stunning’ Biden tip](https://news.yahoo.com/cnn-john-king-mocks-republicans-191000811.html)
-- May 04 - [Prosecutors: Metro man held roommate hostage after being found in bed with her 9-year-old daughter](https://news.yahoo.com/prosecutors-metro-man-held-roommate-184048430.html)
+- May 04 - [MLB player Manny Machado sees a viral video of a young fan. Watch what he does next.](https://news.yahoo.com/mlb-player-manny-machado-sees-204417392.html)
+- May 04 - [Florida traffic stop of 2 California women ends in huge marijuana bust](https://news.yahoo.com/florida-traffic-stop-2-california-204137609.html)
 <!-- feed end -->
