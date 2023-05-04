@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 04 - [In deposition played for jury, Trump told E. Jean Carroll lawyers he had the ‘right to be insulting’](https://news.yahoo.com/in-deposition-played-for-jury-trump-told-e-jean-carroll-lawyers-he-had-the-right-to-be-insulting-164131004.html)
+- May 04 - [Donald Trump’s hostile deposition played for jurors as E. Jean Carroll NYC rape case wraps up](https://news.yahoo.com/donald-trump-hostile-deposition-played-160000756.html)
+- May 04 - [Thomas biographer calls report on megadonor’s tuition payments ‘despicable’](https://news.yahoo.com/thomas-biographer-calls-report-megadonor-153022595.html)
 - May 04 - [Ancient stone monument in Spain hid a 5,000-year-old secret — until now. Check it out](https://news.yahoo.com/ancient-stone-monument-spain-hid-152221762.html)
 - May 04 - [The same year Clarence Thomas sent a child to a private boarding school on Harlan Crow's dime, a parent testified that the academy used children for free labor](https://news.yahoo.com/same-clarence-thomas-sent-child-151320792.html)
-- May 04 - [A 9-year-old boy didn't realize he found a mammoth fossil in his grandma's backyard until Facebook commenters said it looked like a tooth](https://news.yahoo.com/9-old-boy-didnt-realize-150128919.html)
-- May 04 - [Trump says he will ‘probably attend’ E. Jean Carroll trial to ‘confront this’](https://news.yahoo.com/trump-says-probably-attend-e-145939961.html)
-- May 04 - [Woman can’t stop stroller rolling into traffic — so man rushes in, California video shows](https://news.yahoo.com/woman-t-stop-stroller-rolling-135047681.html)
 <!-- feed end -->
