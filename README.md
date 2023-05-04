@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 04 - [Jamie Foxx speaks out, says he's 'feeling blessed' following medical complication](https://news.yahoo.com/jamie-foxx-speaks-says-hes-184440083.html)
-- May 04 - [Jury finds Ed Sheeran didn't copy Marvin Gaye classic](https://news.yahoo.com/jury-finds-ed-sheeran-didnt-170822791.html)
-- May 04 - [In deposition played for jury, Trump told E. Jean Carroll lawyers he had the ‘right to be insulting’](https://news.yahoo.com/in-deposition-played-for-jury-trump-told-e-jean-carroll-lawyers-he-had-the-right-to-be-insulting-164131004.html)
-- May 04 - [Thomas biographer calls report on megadonor’s tuition payments ‘despicable’](https://news.yahoo.com/thomas-biographer-calls-report-megadonor-153022595.html)
-- May 04 - [Ancient stone monument in Spain hid a 5,000-year-old secret — until now. Check it out](https://news.yahoo.com/ancient-stone-monument-spain-hid-152221762.html)
+- May 04 - [Fox’s Geraldo Rivera Claims He Was ‘Canceled’ From ‘The Five’ This Week](https://news.yahoo.com/fox-geraldo-rivera-claims-canceled-194800898.html)
+- May 04 - ['Very happy' Ed Sheeran wins US copyright trial](https://news.yahoo.com/very-happy-ed-sheeran-wins-193623376.html)
+- May 04 - [CNN’s John King mocks Republicans over ‘stunning’ Biden tip](https://news.yahoo.com/cnn-john-king-mocks-republicans-191000811.html)
+- May 04 - [Prosecutors: Metro man held roommate hostage after being found in bed with her 9-year-old daughter](https://news.yahoo.com/prosecutors-metro-man-held-roommate-184048430.html)
+- May 04 - [A woman matched with her former landlord on Hinge — and agreed to a date if he'd pay for it with the security deposit she didn't get back](https://news.yahoo.com/woman-matched-her-former-landlord-183404927.html)
 <!-- feed end -->
