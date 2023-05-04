@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 04 - [8-year-old picks up rock at schoolyard — and finds 3,700-year-old artifact in Norway](https://news.yahoo.com/8-old-picks-rock-schoolyard-171139377.html)
+- May 04 - [Jury finds Ed Sheeran didn't copy Marvin Gaye classic](https://news.yahoo.com/jury-finds-ed-sheeran-didnt-170822791.html)
 - May 04 - [In deposition played for jury, Trump told E. Jean Carroll lawyers he had the ‘right to be insulting’](https://news.yahoo.com/in-deposition-played-for-jury-trump-told-e-jean-carroll-lawyers-he-had-the-right-to-be-insulting-164131004.html)
-- May 04 - [Donald Trump’s hostile deposition played for jurors as E. Jean Carroll NYC rape case wraps up](https://news.yahoo.com/donald-trump-hostile-deposition-played-160000756.html)
-- May 04 - [Thomas biographer calls report on megadonor’s tuition payments ‘despicable’](https://news.yahoo.com/thomas-biographer-calls-report-megadonor-153022595.html)
-- May 04 - [Ancient stone monument in Spain hid a 5,000-year-old secret — until now. Check it out](https://news.yahoo.com/ancient-stone-monument-spain-hid-152221762.html)
-- May 04 - [The same year Clarence Thomas sent a child to a private boarding school on Harlan Crow's dime, a parent testified that the academy used children for free labor](https://news.yahoo.com/same-clarence-thomas-sent-child-151320792.html)
+- May 04 - [Dad punches, knocks out umpire during high school baseball game, Florida sheriff says](https://news.yahoo.com/dad-punches-knocks-umpire-during-162609332.html)
+- May 04 - [Feud between parents ends with mom shooting woman outside school, Michigan officials say](https://news.yahoo.com/feud-between-parents-ends-mom-153805857.html)
 <!-- feed end -->
