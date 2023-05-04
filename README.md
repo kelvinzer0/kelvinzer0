@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 04 - [GOP donor Harlan Crow paid private tuition for relative of Justice Clarence Thomas](https://news.yahoo.com/gop-donor-harlan-crow-paid-120617212.html)
+- May 04 - [Florida Gov. DeSantis embraces controversial bills, foreign trip](https://news.yahoo.com/florida-gov-desantis-embraces-controversial-123622242.html)
+- May 04 - [Stephen King Has 1 Simple Demand For Lauren Boebert, Marjorie Taylor Greene](https://news.yahoo.com/stephen-king-1-simple-demand-082712711.html)
 - May 04 - [You're not too young for colon cancer. New research identifies the 4 earliest symptoms](https://news.yahoo.com/youre-not-too-young-colon-060100544.html)
-- May 04 - [Prince William has prepared to be king his entire life but his outdated training won't serve him — or the monarchy — when he takes the throne](https://news.yahoo.com/prince-william-prepared-king-entire-060000612.html)
 - May 04 - ['He’s Afraid': Chris Christie Taunts 'Child' Trump By Revealing His Big Fear](https://news.yahoo.com/afraid-chris-christie-taunts-child-055757022.html)
 - May 04 - [Mother reveals why suspected Atlanta mass shooter was upset before gunfire](https://news.yahoo.com/mother-reveals-why-suspected-atlanta-023016575.html)
 <!-- feed end -->
