@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 04 - [Protests erupt in New York City following chokehold death of Jordan Neely on the subway](https://news.yahoo.com/protests-erupt-york-city-following-144455517.html)
+- May 04 - [Saudi Arabia is planning to execute three local tribe members who opposed its futuristic NEOM megacity project, UN experts warn](https://news.yahoo.com/saudi-arabia-planning-execute-three-140819690.html)
+- May 04 - [Ivanka Trump Is Focus Of New York Attorney General Lawsuit Claim](https://news.yahoo.com/ivanka-trump-focus-york-attorney-134521529.html)
+- May 04 - [Woman accused of attacking gate manager for not letting her board plane at Atlanta airport](https://news.yahoo.com/woman-accused-attacking-gate-manager-132804521.html)
 - May 04 - [There's big problems with the way the Kremlin drone incident went down, and war experts say Russia 'likely staged' it](https://news.yahoo.com/theres-big-problems-way-kremlin-123554554.html)
-- May 04 - [Stephen King Has 1 Simple Demand For Lauren Boebert, Marjorie Taylor Greene](https://news.yahoo.com/stephen-king-1-simple-demand-082712711.html)
-- May 04 - [You're not too young for colon cancer. New research identifies the 4 earliest symptoms](https://news.yahoo.com/youre-not-too-young-colon-060100544.html)
-- May 04 - ['He’s Afraid': Chris Christie Taunts 'Child' Trump By Revealing His Big Fear](https://news.yahoo.com/afraid-chris-christie-taunts-child-055757022.html)
-- May 04 - [Mother reveals why suspected Atlanta mass shooter was upset before gunfire](https://news.yahoo.com/mother-reveals-why-suspected-atlanta-023016575.html)
 <!-- feed end -->
