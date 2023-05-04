@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 04 - [Stephen King Has 1 Simple Demand For Lauren Boebert, Marjorie Taylor Greene](https://news.yahoo.com/stephen-king-1-simple-demand-082712711.html)
 - May 04 - [Prince William has prepared to be king his entire life but his outdated training won't serve him — or the monarchy — when he takes the throne](https://news.yahoo.com/prince-william-prepared-king-entire-060000612.html)
 - May 04 - ['He’s Afraid': Chris Christie Taunts 'Child' Trump By Revealing His Big Fear](https://news.yahoo.com/afraid-chris-christie-taunts-child-055757022.html)
 - May 04 - [Mother reveals why suspected Atlanta mass shooter was upset before gunfire](https://news.yahoo.com/mother-reveals-why-suspected-atlanta-023016575.html)
 - May 04 - [A billionaire donor gave $535,200 to Herschel Walker for his senate campaign, but it went to his personal company instead: report](https://news.yahoo.com/billionaire-donor-gave-535-200-032545872.html)
-- May 04 - [Irish reporters ask Trump why he’s golfing in Ireland instead of attending NYC civil rape trial](https://news.yahoo.com/irish-reporters-ask-trump-why-010100293.html)
 <!-- feed end -->
