@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 04 - [Police confirm DNA of Melissa Highsmith, abducted 51 years ago and found in Fort Worth](https://news.yahoo.com/police-confirm-dna-melissa-highsmith-214411626.html)
+- May 04 - [Feinstein says Senate ‘swiftly’ confirming court nominees in her absence](https://news.yahoo.com/feinstein-says-senate-swiftly-confirming-212206679.html)
 - May 04 - [Embattled 1st Black St. Louis prosecutor Kim Gardner resigns](https://news.yahoo.com/embattled-st-louis-prosecutor-resigns-210750702.html)
 - May 04 - [Soldier won't get new trial to sue police over violent stop](https://news.yahoo.com/soldier-wont-trial-sue-police-204955317.html)
 - May 04 - ['Like a horror movie': Photos of Lashawn Thompson's body and Fulton County Jail cell spark outrage](https://news.yahoo.com/like-a-horror-movie-photos-of-lashawn-thompsons-body-and-fulton-county-jail-cell-spark-outrage-204927654.html)
-- May 04 - [MLB player Manny Machado sees a viral video of a young fan. Watch what he does next.](https://news.yahoo.com/mlb-player-manny-machado-sees-204417392.html)
-- May 04 - [Florida traffic stop of 2 California women ends in huge marijuana bust](https://news.yahoo.com/florida-traffic-stop-2-california-204137609.html)
 <!-- feed end -->
