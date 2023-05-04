@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 04 - [Prince William has prepared to be king his entire life but his outdated training won't serve him — or the monarchy — when he takes the throne](https://news.yahoo.com/prince-william-prepared-king-entire-060000612.html)
 - May 04 - [Mother reveals why suspected Atlanta mass shooter was upset before gunfire](https://news.yahoo.com/mother-reveals-why-suspected-atlanta-023016575.html)
 - May 04 - [A billionaire donor gave $535,200 to Herschel Walker for his senate campaign, but it went to his personal company instead: report](https://news.yahoo.com/billionaire-donor-gave-535-200-032545872.html)
 - May 04 - [Irish reporters ask Trump why he’s golfing in Ireland instead of attending NYC civil rape trial](https://news.yahoo.com/irish-reporters-ask-trump-why-010100293.html)
 - May 04 - [Protesters demand justice in NY subway death](https://news.yahoo.com/protesters-demand-justice-ny-subway-000732107.html)
-- May 03 - [After a 3rd woman testifies Trump sexually assaulted her, his lawyers announce they won't call any witnesses](https://news.yahoo.com/after-a-3rd-woman-testifies-trump-sexually-assaulted-her-his-lawyers-announce-they-wont-call-any-witnesses-233841499.html)
 <!-- feed end -->
