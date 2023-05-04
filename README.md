@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 04 - [Protests erupt in New York City following chokehold death of Jordan Neely on the subway](https://news.yahoo.com/protests-erupt-york-city-following-144455517.html)
-- May 04 - [Saudi Arabia is planning to execute three local tribe members who opposed its futuristic NEOM megacity project, UN experts warn](https://news.yahoo.com/saudi-arabia-planning-execute-three-140819690.html)
-- May 04 - [Ivanka Trump Is Focus Of New York Attorney General Lawsuit Claim](https://news.yahoo.com/ivanka-trump-focus-york-attorney-134521529.html)
-- May 04 - [Woman accused of attacking gate manager for not letting her board plane at Atlanta airport](https://news.yahoo.com/woman-accused-attacking-gate-manager-132804521.html)
-- May 04 - [There's big problems with the way the Kremlin drone incident went down, and war experts say Russia 'likely staged' it](https://news.yahoo.com/theres-big-problems-way-kremlin-123554554.html)
+- May 04 - [Ancient stone monument in Spain hid a 5,000-year-old secret — until now. Check it out](https://news.yahoo.com/ancient-stone-monument-spain-hid-152221762.html)
+- May 04 - [The same year Clarence Thomas sent a child to a private boarding school on Harlan Crow's dime, a parent testified that the academy used children for free labor](https://news.yahoo.com/same-clarence-thomas-sent-child-151320792.html)
+- May 04 - [A 9-year-old boy didn't realize he found a mammoth fossil in his grandma's backyard until Facebook commenters said it looked like a tooth](https://news.yahoo.com/9-old-boy-didnt-realize-150128919.html)
+- May 04 - [Trump says he will ‘probably attend’ E. Jean Carroll trial to ‘confront this’](https://news.yahoo.com/trump-says-probably-attend-e-145939961.html)
+- May 04 - [Woman can’t stop stroller rolling into traffic — so man rushes in, California video shows](https://news.yahoo.com/woman-t-stop-stroller-rolling-135047681.html)
 <!-- feed end -->
