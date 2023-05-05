@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 05 - [Someone needs to tell MTG that Biden can't be both a criminal mastermind and completely senile](https://news.yahoo.com/someone-needs-tell-mtg-biden-111307459.html)
+- May 05 - [Chris Pratt had a very NSFW reaction to 'Guardians of the Galaxy' director James Gunn admitting he has a life-size prosthetic body double of the actor in his office](https://news.yahoo.com/chris-pratt-had-very-nsfw-120025065.html)
 - May 05 - [Putin has given up on ambitions to conquer Ukraine after military losses that could take a decade to repair, says US intel](https://news.yahoo.com/putin-given-ambitions-conquer-ukraine-105851387.html)
+- May 05 - [Wagner Boss Makes Major Battlefield Exit After Grisly Video](https://news.yahoo.com/wagner-boss-makes-major-battlefield-092535761.html)
 - May 05 - [Audience Member Shouts As Sean Hannity Talks About NYC Subway Chokehold Killing](https://news.yahoo.com/audience-member-shouts-sean-hannity-075132371.html)
-- May 05 - [Wagner boss Yevgeny Prigozhin launched a screaming, expletive-filled tirade at Putin's war chiefs as he stood next to dozens of his mens' corpses in Ukraine](https://news.yahoo.com/wagner-boss-yevgeny-prigozhin-launched-050459514.html)
 - May 05 - [I flew to Vietnam in search of its legendary parties. I found an empty nightclub, people getting high on balloons, and the saddest dance floor I've ever seen.](https://news.yahoo.com/spent-night-partying-vietnam-found-043958865.html)
 <!-- feed end -->
