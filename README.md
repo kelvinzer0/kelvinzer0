@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 05 - [Jennifer Lopez counters Gwyneth Paltrow's pillow talk about Ben Affleck with praise](https://news.yahoo.com/jennifer-lopez-counters-gwyneth-paltrows-190223466.html)
+- May 05 - [Woman charged with faking her own abduction to hide fact that she dropped out of college, state police say](https://news.yahoo.com/woman-charged-faking-her-own-185112379.html)
 - May 05 - [Supreme Court blocks Richard Glossip’s execution in Oklahoma](https://news.yahoo.com/supreme-court-blocks-richard-glossip-183028270.html)
 - May 05 - [‘Bring it, b----!’ Watch golfers get into a huge brawl on course in Central Florida](https://news.yahoo.com/bring-b-watch-video-two-180327978.html)
-- May 05 - [Trump's E. Jean Carroll deposition video released](https://news.yahoo.com/trumps-e-jean-carroll-deposition-175247957.html)
-- May 05 - [Former WWE star Sara Lee, 30, died by suicide, Texas medical examiner rules](https://news.yahoo.com/former-wwe-star-sara-lee-173140464.html)
-- May 05 - [A Post Malone fan traded custom sneakers she'd hand-painted for his post-concert shoes — though he warned her they his 'stink'](https://news.yahoo.com/post-malone-fan-traded-custom-172246021.html)
+- May 05 - [See Meg Ryan Make a RARE Appearance at NYC Film Screening](https://news.yahoo.com/see-meg-ryan-rare-appearance-175630884.html)
 <!-- feed end -->
