@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 05 - [Barr: Trump will deliver ‘chaos’ and ‘horror show’](https://news.yahoo.com/barr-trump-deliver-chaos-horror-202822742.html)
 - May 05 - [Jennifer Lopez counters Gwyneth Paltrow's pillow talk about Ben Affleck with praise](https://news.yahoo.com/jennifer-lopez-counters-gwyneth-paltrows-190223466.html)
 - May 05 - [Woman charged with faking her own abduction to hide fact that she dropped out of college, state police say](https://news.yahoo.com/woman-charged-faking-her-own-185112379.html)
-- May 05 - [Supreme Court blocks Richard Glossip’s execution in Oklahoma](https://news.yahoo.com/supreme-court-blocks-richard-glossip-183028270.html)
-- May 05 - [‘Bring it, b----!’ Watch golfers get into a huge brawl on course in Central Florida](https://news.yahoo.com/bring-b-watch-video-two-180327978.html)
-- May 05 - [See Meg Ryan Make a RARE Appearance at NYC Film Screening](https://news.yahoo.com/see-meg-ryan-rare-appearance-175630884.html)
+- May 05 - [Kellyanne Conway defends reported concealed Ginni Thomas payments](https://news.yahoo.com/kellyanne-conway-defends-reported-concealed-184748159.html)
+- May 05 - [Denali National Park worker dies after triggering avalanche](https://news.yahoo.com/denali-national-park-worker-dies-183118816.html)
 <!-- feed end -->
