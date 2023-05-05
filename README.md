@@ -56,7 +56,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 05 - [Wagner boss Yevgeny Prigozhin launched a screaming, expletive-filled tirade at Putin's war chiefs as he stood next to dozens of his mens' corpses in Ukraine](https://news.yahoo.com/wagner-boss-yevgeny-prigozhin-launched-050459514.html)
-- May 05 - [I spent a night partying in Vietnam and found an empty dance floor with a few people getting high off balloons. Next time, I'd choose a different day of the week.](https://news.yahoo.com/spent-night-partying-vietnam-found-043958865.html)
+- May 05 - [I flew to Vietnam in search of its legendary parties. I found an empty nightclub, people getting high on balloons, and the saddest dance floor I've ever seen.](https://news.yahoo.com/spent-night-partying-vietnam-found-043958865.html)
 - May 05 - [Fox News' Biggest Jan. 6 Talking Point Falls Apart In Blistering CNN Video](https://news.yahoo.com/fox-news-biggest-jan-6-042118635.html)
 - May 05 - [Clarence Thomas — who let a GOP megadonor foot bills for him for years — said being a Supreme Court justice 'is not worth doing for what they pay'](https://news.yahoo.com/clarence-thomas-mdash-let-gop-015617682.html)
 - May 05 - [Russian and Ukrainian officials got into a fistfight at a conference in Turkey and had to be physically restrained](https://news.yahoo.com/russian-ukrainian-officials-got-fistfight-014738357.html)
