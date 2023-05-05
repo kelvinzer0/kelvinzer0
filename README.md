@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 05 - [At least 8 fake electors have immunity in Ga. election probe](https://news.yahoo.com/least-8-fake-electors-immunity-215405357.html)
+- May 05 - [Video shows group of teens taunt 13-year-old, make him say embarrassing words at Gwinnett park](https://news.yahoo.com/video-shows-group-teens-taunt-213320560.html)
+- May 05 - [Man gets 14 years in 1/6 case, longest sentence imposed yet](https://news.yahoo.com/man-gets-14-years-1-211941096.html)
+- May 05 - [Suspect wanted for questioning in Molino 2 Wildfire](https://news.yahoo.com/suspect-wanted-questioning-molino-2-210010467.html)
 - May 05 - [Barr: Trump will deliver ‘chaos’ and ‘horror show’](https://news.yahoo.com/barr-trump-deliver-chaos-horror-202822742.html)
-- May 05 - [Jennifer Lopez counters Gwyneth Paltrow's pillow talk about Ben Affleck with praise](https://news.yahoo.com/jennifer-lopez-counters-gwyneth-paltrows-190223466.html)
-- May 05 - [Woman charged with faking her own abduction to hide fact that she dropped out of college, state police say](https://news.yahoo.com/woman-charged-faking-her-own-185112379.html)
-- May 05 - [Kellyanne Conway defends reported concealed Ginni Thomas payments](https://news.yahoo.com/kellyanne-conway-defends-reported-concealed-184748159.html)
-- May 05 - [Denali National Park worker dies after triggering avalanche](https://news.yahoo.com/denali-national-park-worker-dies-183118816.html)
 <!-- feed end -->
