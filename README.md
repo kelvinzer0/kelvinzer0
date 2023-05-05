@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 05 - [Audience Member Shouts As Sean Hannity Talks About Subway Killing Of Jordan Neely](https://news.yahoo.com/audience-member-shouts-sean-hannity-075132371.html)
+- May 05 - [Someone needs to tell MTG that Biden can't be both a criminal mastermind and completely senile](https://news.yahoo.com/someone-needs-tell-mtg-biden-111307459.html)
+- May 05 - [Putin has given up on ambitions to conquer Ukraine after military losses that could take a decade to repair, says US intel](https://news.yahoo.com/putin-given-ambitions-conquer-ukraine-105851387.html)
+- May 05 - [Audience Member Shouts As Sean Hannity Talks About NYC Subway Chokehold Killing](https://news.yahoo.com/audience-member-shouts-sean-hannity-075132371.html)
 - May 05 - [Wagner boss Yevgeny Prigozhin launched a screaming, expletive-filled tirade at Putin's war chiefs as he stood next to dozens of his mens' corpses in Ukraine](https://news.yahoo.com/wagner-boss-yevgeny-prigozhin-launched-050459514.html)
 - May 05 - [I flew to Vietnam in search of its legendary parties. I found an empty nightclub, people getting high on balloons, and the saddest dance floor I've ever seen.](https://news.yahoo.com/spent-night-partying-vietnam-found-043958865.html)
-- May 05 - [Fox News' Biggest Jan. 6 Talking Point Falls Apart In Blistering CNN Video](https://news.yahoo.com/fox-news-biggest-jan-6-042118635.html)
-- May 05 - [Clarence Thomas — who let a GOP megadonor foot bills for him for years — said being a Supreme Court justice 'is not worth doing for what they pay'](https://news.yahoo.com/clarence-thomas-mdash-let-gop-015617682.html)
 <!-- feed end -->
