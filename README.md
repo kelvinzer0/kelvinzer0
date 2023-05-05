@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 05 - [Woman accused of beating mother and daughter on Georgia beach during ‘Orange Crush’ arrested at work](https://news.yahoo.com/woman-accused-beating-mother-daughter-162435618.html)
-- May 05 - [What happens to Beth Dutton and Rip Wheeler now that ‘Yellowstone’ is calling it quits?](https://news.yahoo.com/happens-beth-dutton-rip-wheeler-155716511.html)
-- May 05 - [Fox sends cease-and-desist letter to Media Matters over leaked Tucker Carlson footage](https://news.yahoo.com/fox-sends-cease-desist-letter-144910485.html)
-- May 05 - [‘Ukraine shoots down Russian hypersonic missile using US Patriot system’](https://news.yahoo.com/ukraine-shoots-down-russian-hypersonic-134011576.html)
-- May 05 - [83 Indiana women say their OB-GYN sexually abused them during 'lingering and sensual' exams, including by taking secret photos: lawsuit](https://news.yahoo.com/83-indiana-women-ob-gyn-131218552.html)
+- May 05 - [Supreme Court blocks Richard Glossip’s execution in Oklahoma](https://news.yahoo.com/supreme-court-blocks-richard-glossip-183028270.html)
+- May 05 - [‘Bring it, b----!’ Watch golfers get into a huge brawl on course in Central Florida](https://news.yahoo.com/bring-b-watch-video-two-180327978.html)
+- May 05 - [Trump's E. Jean Carroll deposition video released](https://news.yahoo.com/trumps-e-jean-carroll-deposition-175247957.html)
+- May 05 - [Former WWE star Sara Lee, 30, died by suicide, Texas medical examiner rules](https://news.yahoo.com/former-wwe-star-sara-lee-173140464.html)
+- May 05 - [A Post Malone fan traded custom sneakers she'd hand-painted for his post-concert shoes — though he warned her they his 'stink'](https://news.yahoo.com/post-malone-fan-traded-custom-172246021.html)
 <!-- feed end -->
