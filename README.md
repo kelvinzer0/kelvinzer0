@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 05 - [Wagner threatens Bakhmut pullout in attack on Russian army brass](https://news.yahoo.com/wagner-threatens-bakhmut-pullout-attack-144457940.html)
+- May 05 - [Fox sends cease-and-desist letter to Media Matters over leaked Tucker Carlson footage](https://news.yahoo.com/fox-sends-cease-desist-letter-144910485.html)
 - May 05 - [‘Ukraine shoots down Russian hypersonic missile using US Patriot system’](https://news.yahoo.com/ukraine-shoots-down-russian-hypersonic-134011576.html)
-- May 05 - [83 Indiana women say their OB-GYN sexually abused them during 'lingering and sensual' exams, including by taking secret photos: lawsuit](https://news.yahoo.com/83-indiana-women-ob-gyn-131218552.html)
+- May 05 - [Kidnapped Nigerian girls freed, return to Chibok with babies](https://news.yahoo.com/kidnapped-nigerian-girls-freed-return-122638832.html)
 - May 05 - [Chris Pratt had a very NSFW reaction to 'Guardians of the Galaxy' director James Gunn admitting he has a life-size prosthetic body double of the actor in his office](https://news.yahoo.com/chris-pratt-had-very-nsfw-120025065.html)
 - May 05 - [Study: China's squid fleet avoids Peru to dodge new port law](https://news.yahoo.com/study-chinas-squid-fleet-avoids-114933226.html)
 <!-- feed end -->
