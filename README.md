@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 05 - [Move over Corgis: Jack Russell becomes new royal top dog](https://news.yahoo.com/move-over-corgis-jack-russell-163031657.html)
 - May 05 - [Woman accused of beating mother and daughter on Georgia beach during ‘Orange Crush’ arrested at work](https://news.yahoo.com/woman-accused-beating-mother-daughter-162435618.html)
+- May 05 - [What happens to Beth Dutton and Rip Wheeler now that ‘Yellowstone’ is calling it quits?](https://news.yahoo.com/happens-beth-dutton-rip-wheeler-155716511.html)
 - May 05 - [Fox sends cease-and-desist letter to Media Matters over leaked Tucker Carlson footage](https://news.yahoo.com/fox-sends-cease-desist-letter-144910485.html)
 - May 05 - [‘Ukraine shoots down Russian hypersonic missile using US Patriot system’](https://news.yahoo.com/ukraine-shoots-down-russian-hypersonic-134011576.html)
-- May 05 - [Kidnapped Nigerian girls freed, return to Chibok with babies](https://news.yahoo.com/kidnapped-nigerian-girls-freed-return-122638832.html)
+- May 05 - [83 Indiana women say their OB-GYN sexually abused them during 'lingering and sensual' exams, including by taking secret photos: lawsuit](https://news.yahoo.com/83-indiana-women-ob-gyn-131218552.html)
 <!-- feed end -->
