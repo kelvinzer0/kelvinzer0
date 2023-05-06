@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 06 - [Princess Charlotte is Kate’s ‘mini-me’ in matching outfit](https://news.yahoo.com/princess-charlotte-kate-mini-matching-102129949.html)
+- May 06 - [Video appears to show Ukraine striking a Russian warehouse in Bakhmut with devastating effects using US-made smart bombs](https://news.yahoo.com/video-appears-show-ukraine-striking-095503630.html)
+- May 06 - [A man took his Tesla on a road trip for the first time and tells EV owners to beware of the 'charging curve'](https://news.yahoo.com/man-took-tesla-road-trip-073000234.html)
 - May 06 - [Former WWE star Sara Lee, 30, died by suicide, Texas medical examiner rules](https://news.yahoo.com/former-wwe-star-sara-lee-173140464.html)
 - May 06 - [Fox News host set to take Tucker Carlson's time slot blasted over racially offensive joke about protesters](https://news.yahoo.com/fox-news-host-set-tucker-023221493.html)
-- May 06 - ['This is all on you,' rapist wrote woman who was ready to testify against him before 7 found dead in Oklahoma](https://news.yahoo.com/rapist-wrote-woman-ready-testify-022841584.html)
-- May 06 - [Strange, 7-foot-long cannibalistic fish with fangs that live in the deep sea are washing up on the West Coast and scientists don't know why](https://news.yahoo.com/strange-7-foot-long-cannibalistic-015332567.html)
-- May 06 - [Ukraine Situation Report: Russia Rains Incendiaries On Bakhmut](https://news.yahoo.com/ukraine-situation-report-russia-rains-005420134.html)
 <!-- feed end -->
