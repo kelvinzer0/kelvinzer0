@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 05 - [Berkeley professor apologizes for false Indigenous identity](https://news.yahoo.com/berkeley-professor-apologizes-false-indigenous-215918870.html)
-- May 05 - [At least 8 fake electors have immunity in Ga. election probe](https://news.yahoo.com/least-8-fake-electors-immunity-215405357.html)
-- May 05 - [Video shows group of teens taunt 13-year-old, make him say embarrassing words at Gwinnett park](https://news.yahoo.com/video-shows-group-teens-taunt-213320560.html)
-- May 05 - [Man gets 14 years in 1/6 case, longest sentence imposed yet](https://news.yahoo.com/man-gets-14-years-1-211941096.html)
-- May 05 - [Suspect wanted for questioning in Molino 2 Wildfire](https://news.yahoo.com/suspect-wanted-questioning-molino-2-210010467.html)
+- May 05 - [Eight alleged fake Trump electors in Georgia accept immunity deals in grand jury probe](https://news.yahoo.com/eight-alleged-fake-trump-electors-223845475.html)
+- May 05 - ['We will keep killing Russians,' Ukraine's military intelligence chief vows](https://news.yahoo.com/we-will-keep-killing-russians-ukraines-military-intelligence-chief-vows-232156674.html)
+- May 05 - [Princes Harry, Andrew out in the cold at coronation](https://news.yahoo.com/princes-harry-andrew-cold-coronation-230155168.html)
+- May 05 - [Former Cowboys defensive end selling Spectrum packages at Walmart in Garland](https://news.yahoo.com/former-cowboys-defensive-end-selling-225701819.html)
+- May 05 - [A man on a 1st date and 'in the prime of his life' was killed after a Texas woman drunkenly crashed her Porsche onto a city sidewalk at 100 mph, prosecutors say](https://news.yahoo.com/man-1st-date-prime-life-221800089.html)
 <!-- feed end -->
