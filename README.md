@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 06 - [Scientists Might Have Found the Best Way to Catcall a Cat](https://news.yahoo.com/scientists-might-found-best-way-134300643.html)
+- May 06 - [‘They Make Me Vomit’: Jaws Star Richard Dreyfuss Blasts New Oscars Diversity Rules](https://news.yahoo.com/vomit-jaws-star-richard-dreyfuss-160417954.html)
 - May 06 - [Prince Harry Heads to Airport After Being Royally Frozen Out of Coronation](https://news.yahoo.com/prince-harry-heads-airport-being-133958502.html)
+- May 06 - [Putin sides with Shoigu in conflict with Wagner Group founder](https://news.yahoo.com/putin-sides-shoigu-conflict-wagner-132654184.html)
 - May 06 - [Haunting Figure Spotted In The Background At King Charles' Coronation](https://news.yahoo.com/haunting-figure-spotted-background-king-132343042.html)
 - May 06 - [Kentucky Derby favorite scratched on morning of race. Who’s No. 1 now in a shortened field?](https://news.yahoo.com/kentucky-derby-favorite-scratches-morning-130858604.html)
-- May 06 - [Katy Perry looking for her seat has become the coronation’s 1st meme](https://news.yahoo.com/katy-perry-looking-her-seat-122336107.html)
 <!-- feed end -->
