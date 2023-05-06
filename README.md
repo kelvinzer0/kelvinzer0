@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 06 - [Russian Tank Debuts ‘Cope Cage’ Covered In Explosive Reactive Armor](https://news.yahoo.com/russian-tank-debuts-cope-cage-220425594.html)
 - May 06 - [Rangers, coach Gerard Gallant part ways after 1st-round exit](https://news.yahoo.com/rangers-coach-gerard-gallant-part-212523712.html)
+- May 06 - [Bystander intervention experts respond to Daniel Penny using chokehold on Jordan Neely: 'When force is required, it should be the minimum necessary amount'](https://news.yahoo.com/bystander-intervention-experts-respond-daniel-210703610.html)
 - May 06 - [Eight so-called fake electors took immunity deals in Ga. probe. What does that mean for Trump?](https://news.yahoo.com/8-called-fake-electors-took-190925024.html)
-- May 06 - [A Florida judge revoked bail for a 65-year-old man accused of shooting a teen in the stomach for driving an ATV past his house](https://news.yahoo.com/florida-judge-revoked-bail-65-200900003.html)
-- May 06 - [Another two horses die after Churchill Downs races, this time on Kentucky Derby Day](https://news.yahoo.com/another-horse-dies-churchill-downs-191702694.html)
-- May 06 - [Texas House Moves to Expel Republican Who Drank & Had Sexual Contact With 19-Year-Old Intern](https://news.yahoo.com/texas-house-moves-expel-republican-184000365.html)
+- May 06 - [Melitopol mayor: "Evacuation" of occupiers is going too fast, they may be preparing provocations](https://news.yahoo.com/melitopol-mayor-evacuation-occupiers-going-191941052.html)
 <!-- feed end -->
