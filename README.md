@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 06 - [Haunting Figure Spotted In The Background At King Charles' Coronation](https://news.yahoo.com/haunting-figure-spotted-background-king-132343042.html)
+- May 06 - [Kentucky Derby favorite scratched on morning of race. Who’s No. 1 now in a shortened field?](https://news.yahoo.com/kentucky-derby-favorite-scratches-morning-130858604.html)
 - May 06 - [Photos show the moment Charles was officially crowned king, making history as the oldest British monarch](https://news.yahoo.com/photos-show-moment-charles-officially-112724583.html)
-- May 06 - [Prince Louis Steals The Show At King Charles’ Coronation](https://news.yahoo.com/prince-louis-steals-show-king-104855604.html)
 - May 06 - [Princess Charlotte seen in ceremonial dress for the first time](https://news.yahoo.com/princess-charlotte-kate-mini-matching-102129949.html)
 - May 06 - [Video appears to show Ukraine striking a Russian warehouse in Bakhmut with devastating effects using US-made smart bombs](https://news.yahoo.com/video-appears-show-ukraine-striking-095503630.html)
-- May 06 - [A man took his Tesla on a road trip for the first time and tells EV owners to beware of the 'charging curve'](https://news.yahoo.com/man-took-tesla-road-trip-073000234.html)
 <!-- feed end -->
