@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 06 - [Prince Harry Heads to Airport After Being Royally Frozen Out of Coronation](https://news.yahoo.com/prince-harry-heads-airport-being-133958502.html)
 - May 06 - [Haunting Figure Spotted In The Background At King Charles' Coronation](https://news.yahoo.com/haunting-figure-spotted-background-king-132343042.html)
 - May 06 - [Kentucky Derby favorite scratched on morning of race. Who’s No. 1 now in a shortened field?](https://news.yahoo.com/kentucky-derby-favorite-scratches-morning-130858604.html)
-- May 06 - [Photos show the moment Charles was officially crowned king, making history as the oldest British monarch](https://news.yahoo.com/photos-show-moment-charles-officially-112724583.html)
-- May 06 - [Princess Charlotte seen in ceremonial dress for the first time](https://news.yahoo.com/princess-charlotte-kate-mini-matching-102129949.html)
-- May 06 - [Video appears to show Ukraine striking a Russian warehouse in Bakhmut with devastating effects using US-made smart bombs](https://news.yahoo.com/video-appears-show-ukraine-striking-095503630.html)
+- May 06 - [I'm a trans woman in an all-male Georgia prison. Here's what a day in my life is like, from working as a law clerk to cooking with friends.](https://news.yahoo.com/im-trans-woman-male-georgia-120800853.html)
+- May 06 - [Trump's rape trial defense? His accuser and her friends have Trump Derangement Syndrome](https://news.yahoo.com/trumps-rape-trial-defense-accuser-110000042.html)
 <!-- feed end -->
