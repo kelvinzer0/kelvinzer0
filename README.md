@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - May 05 - ['We will keep killing Russians,' Ukraine's military intelligence chief vows](https://news.yahoo.com/we-will-keep-killing-russians-ukraines-military-intelligence-chief-vows-232156674.html)
 - May 05 - [Princes Harry, Andrew out in the cold at coronation](https://news.yahoo.com/princes-harry-andrew-cold-coronation-230155168.html)
 - May 05 - [Former Cowboys defensive end selling Spectrum packages at Walmart in Garland](https://news.yahoo.com/former-cowboys-defensive-end-selling-225701819.html)
-- May 05 - [A man on a 1st date and 'in the prime of his life' was killed after a Texas woman drunkenly crashed her Porsche onto a city sidewalk at 100 mph, prosecutors say](https://news.yahoo.com/man-1st-date-prime-life-221800089.html)
+- May 05 - [Veteran jurist picked to weigh moving Trump’s criminal trial](https://news.yahoo.com/veteran-jurist-picked-weigh-moving-220354883.html)
 <!-- feed end -->
