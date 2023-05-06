@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 06 - [8 so-called fake electors took immunity deals in Georgia probe. What does that mean for Trump?](https://news.yahoo.com/8-called-fake-electors-took-190925024.html)
+- May 06 - [Eight so-called fake electors took immunity deals in Ga. probe. What does that mean for Trump?](https://news.yahoo.com/8-called-fake-electors-took-190925024.html)
+- May 06 - [Texas House Moves to Expel Republican Who Drank & Had Sexual Contact With 19-Year-Old Intern](https://news.yahoo.com/texas-house-moves-expel-republican-184000365.html)
 - May 06 - [Inside Archie’s fourth birthday party – and why Prince Harry is rushing home](https://news.yahoo.com/inside-archie-fourth-birthday-party-162509281.html)
 - May 06 - [‘They Make Me Vomit’: Jaws Star Richard Dreyfuss Blasts New Oscars Diversity Rules](https://news.yahoo.com/vomit-jaws-star-richard-dreyfuss-160417954.html)
-- May 06 - [Princess Anne Wins the Coronation With Swagger—and a Hat Block](https://news.yahoo.com/princess-anne-wins-coronation-swagger-153714000.html)
 - May 06 - [Prince Harry Jets Off After Being Royally Frozen Out of Coronation](https://news.yahoo.com/prince-harry-heads-airport-being-133958502.html)
 <!-- feed end -->
