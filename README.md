@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 06 - [Princess Charlotte is Kate’s ‘mini-me’ in matching outfit](https://news.yahoo.com/princess-charlotte-kate-mini-matching-102129949.html)
+- May 06 - [Prince Louis Steals The Show At King Charles’ Coronation](https://news.yahoo.com/prince-louis-steals-show-king-104855604.html)
+- May 06 - [Prince Harry's view obscured by Princess Anne's feather - as he's relegated to third row](https://news.yahoo.com/prince-harry-relegated-third-row-095045320.html)
+- May 06 - [Princess Charlotte seen in ceremonial dress for the first time](https://news.yahoo.com/princess-charlotte-kate-mini-matching-102129949.html)
 - May 06 - [Video appears to show Ukraine striking a Russian warehouse in Bakhmut with devastating effects using US-made smart bombs](https://news.yahoo.com/video-appears-show-ukraine-striking-095503630.html)
 - May 06 - [A man took his Tesla on a road trip for the first time and tells EV owners to beware of the 'charging curve'](https://news.yahoo.com/man-took-tesla-road-trip-073000234.html)
-- May 06 - [Former WWE star Sara Lee, 30, died by suicide, Texas medical examiner rules](https://news.yahoo.com/former-wwe-star-sara-lee-173140464.html)
-- May 06 - [Fox News host set to take Tucker Carlson's time slot blasted over racially offensive joke about protesters](https://news.yahoo.com/fox-news-host-set-tucker-023221493.html)
 <!-- feed end -->
