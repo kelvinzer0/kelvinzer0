@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 07 - [What was that thing on Derby winner Mage’s nose? And why one company was happy he wore it](https://news.yahoo.com/thing-derby-winner-mage-nose-014613644.html)
 - May 07 - [Kentucky Derby 2023 complete order of finish and payoffs at Churchill Downs](https://news.yahoo.com/kentucky-derby-2023-complete-order-001525258.html)
 - May 06 - [Russian Tank With ‘Cope Cage’ Covered In Explosive Reactive Armor Emerges](https://news.yahoo.com/russian-tank-debuts-cope-cage-220425594.html)
 - May 06 - [Rangers, coach Gerard Gallant part ways after 1st-round exit](https://news.yahoo.com/rangers-coach-gerard-gallant-part-212523712.html)
 - May 06 - [Activists demand higher payments from California reparations task force: '$200 million' per person](https://news.yahoo.com/activists-demand-higher-payments-california-212200760.html)
-- May 06 - [Bystander intervention experts respond to Daniel Penny using chokehold on Jordan Neely: 'When force is required, it should be the minimum necessary amount'](https://news.yahoo.com/bystander-intervention-experts-respond-daniel-210703610.html)
 <!-- feed end -->
