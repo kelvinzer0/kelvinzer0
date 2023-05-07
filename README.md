@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 07 - [A clothing designer was at the checkout line of a Joann fabric store when he learned his ex-girlfriend was wanted by the FBI. They called it quits after he learned she was reading 'Mein Kampf.'](https://news.yahoo.com/clothing-designer-checkout-line-joann-061624421.html)
 - May 07 - [For far-right activist, lawsuit becomes one-sided standoff](https://news.yahoo.com/far-activist-lawsuit-becomes-one-045813402.html)
 - May 07 - [Texas congressman says people who think 'prayers aren't cutting it' as a solution to gun violence 'don't believe in an almighty god who is absolutely in control of our lives.' 9 people died in a mass shooting in his district today.](https://news.yahoo.com/congressman-represents-allen-texas-says-030928078.html)
 - May 07 - [What was that thing on Derby winner Mage’s nose? And why one company was happy he wore it](https://news.yahoo.com/thing-derby-winner-mage-nose-014613644.html)
 - May 07 - [Kentucky Derby 2023 complete order of finish and payoffs at Churchill Downs](https://news.yahoo.com/kentucky-derby-2023-complete-order-001525258.html)
-- May 06 - [Russian Tank With ‘Cope Cage’ Covered In Explosive Reactive Armor Emerges](https://news.yahoo.com/russian-tank-debuts-cope-cage-220425594.html)
 <!-- feed end -->
