@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 07 - [Seven dead in Texas after car drives into crowd outside migrant center](https://news.yahoo.com/seven-dead-texas-car-drives-180350604.html)
 - May 07 - [Engineers frustrated with rails even as others get sick time](https://news.yahoo.com/engineers-frustrated-rails-even-others-163246031.html)
 - May 07 - [Eight alleged fake electors took immunity deals in Ga. probe. What does that mean for Trump?](https://news.yahoo.com/8-called-fake-electors-took-190925024.html)
 - May 07 - [Vida Blue, led Oakland to 3 World Series titles, dies at 73](https://news.yahoo.com/vida-blue-led-oakland-3-160212861.html)
 - May 07 - [Former Army officer and witness to Texas mall shooting who calls himself a 'gun lover' says mental health isn't the problem: 'We need more gun control'](https://news.yahoo.com/former-army-officer-witness-texas-155720157.html)
-- May 07 - [Nick Gilbert, son of Cavaliers owner, dies at 26](https://news.yahoo.com/nick-gilbert-son-cavaliers-owner-154701249.html)
 <!-- feed end -->
