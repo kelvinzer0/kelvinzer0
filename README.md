@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 07 - [Vendetta off the rails? Gov. DeSantis protects Floridians from Disney monorail](https://news.yahoo.com/vendetta-off-rails-gov-desantis-090748664.html)
-- May 07 - [Belarusian battalion recaptures trenches from Russians on Donbas 'road of life'](https://news.yahoo.com/belarusian-battalion-recaptures-trenches-russians-110900757.html)
-- May 07 - [Climate change is bad for everyone. But this is where it's expected to be worst in the US.](https://news.yahoo.com/climate-change-bad-everyone-where-090325256.html)
-- May 07 - [James Clyburn’s betrayal leaves all of us more cynical | Opinion](https://news.yahoo.com/james-clyburn-betrayal-leaves-us-090000415.html)
-- May 07 - [Rep. Marjorie Taylor Greene said 'mental illness, drugs, and evil forces' are to blame for Texas mall shooting](https://news.yahoo.com/rep-marjorie-taylor-greene-said-085936162.html)
+- May 07 - [How Russia's newest weapon is changing the course of Ukraine war](https://news.yahoo.com/russias-newest-weapon-changing-course-142513039.html)
+- May 07 - [Fashion industry disruptor Aurora James](https://news.yahoo.com/fashion-industry-disruptor-aurora-james-142200353.html)
+- May 07 - [Queen’s robe folding did not ‘go to plan’, reveals friend](https://news.yahoo.com/queen-robe-folding-did-not-141124147.html)
+- May 07 - [Liz Holmes Wants You to Forget About Elizabeth](https://news.yahoo.com/liz-holmes-wants-forget-elizabeth-140939820.html)
+- May 07 - [Coyote comes face-to-face with cat inside home, California video shows. ‘Terrified’](https://news.yahoo.com/coyote-comes-face-face-cat-140804979.html)
 <!-- feed end -->
