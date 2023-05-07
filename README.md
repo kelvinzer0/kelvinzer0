@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 07 - [Polish jet loses control after 'aggressive' Russian fighter plane crosses five metres in front](https://news.yahoo.com/polish-jet-loses-control-aggressive-160739695.html)
 - May 07 - [Eight alleged fake electors took immunity deals in Ga. probe. What does that mean for Trump?](https://news.yahoo.com/8-called-fake-electors-took-190925024.html)
+- May 07 - [Former Army officer and witness to Texas mall shooting who calls himself a 'gun lover' says mental health isn't the problem: 'We need more gun control'](https://news.yahoo.com/former-army-officer-witness-texas-155720157.html)
 - May 07 - [Nick Gilbert, son of Cavaliers owner, dies at 26](https://news.yahoo.com/nick-gilbert-son-cavaliers-owner-154701249.html)
 - May 07 - ['I'm going to be a first responder': Nurse shocked as tourists try to touch bison](https://news.yahoo.com/im-going-first-responder-nurse-153025362.html)
-- May 07 - [How Russia's newest weapon is changing the course of Ukraine war](https://news.yahoo.com/russias-newest-weapon-changing-course-142513039.html)
-- May 07 - [Queen’s robe folding did not ‘go to plan’, reveals friend](https://news.yahoo.com/queen-robe-folding-did-not-141124147.html)
 <!-- feed end -->
