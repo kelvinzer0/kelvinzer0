@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 07 - [Vendetta off the rails? Gov. DeSantis protects Floridians from Disney monorail](https://news.yahoo.com/vendetta-off-rails-gov-desantis-090748664.html)
+- May 07 - [Belarusian battalion recaptures trenches from Russians on Donbas 'road of life'](https://news.yahoo.com/belarusian-battalion-recaptures-trenches-russians-110900757.html)
 - May 07 - [James Clyburn’s betrayal leaves all of us more cynical | Opinion](https://news.yahoo.com/james-clyburn-betrayal-leaves-us-090000415.html)
 - May 07 - [Rep. Marjorie Taylor Greene said 'mental illness, drugs, and evil forces' are to blame for Texas mall shooting](https://news.yahoo.com/rep-marjorie-taylor-greene-said-085936162.html)
 - May 07 - [From Harry’s Uber to Louis’ sarcastic clap: The Coronation moments you (probably) missed](https://news.yahoo.com/harry-uber-louis-sarcastic-clap-084833185.html)
-- May 07 - [A man who arrived at the scene of the Allen, Texas, mass shooting said he found a girl with 'no face' and a mother who died protecting her son from bullets: 'It's just unfathomable to see the carnage.'](https://news.yahoo.com/man-arrived-scene-allen-texas-070516116.html)
 <!-- feed end -->
