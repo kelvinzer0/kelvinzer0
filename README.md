@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 06 - [Russian Tank Debuts ‘Cope Cage’ Covered In Explosive Reactive Armor](https://news.yahoo.com/russian-tank-debuts-cope-cage-220425594.html)
+- May 07 - [Kentucky Derby 2023 complete order of finish and payoffs at Churchill Downs](https://news.yahoo.com/kentucky-derby-2023-complete-order-001525258.html)
+- May 06 - [Russian Tank With ‘Cope Cage’ Covered In Explosive Reactive Armor Emerges](https://news.yahoo.com/russian-tank-debuts-cope-cage-220425594.html)
 - May 06 - [Rangers, coach Gerard Gallant part ways after 1st-round exit](https://news.yahoo.com/rangers-coach-gerard-gallant-part-212523712.html)
+- May 06 - [Activists demand higher payments from California reparations task force: '$200 million' per person](https://news.yahoo.com/activists-demand-higher-payments-california-212200760.html)
 - May 06 - [Bystander intervention experts respond to Daniel Penny using chokehold on Jordan Neely: 'When force is required, it should be the minimum necessary amount'](https://news.yahoo.com/bystander-intervention-experts-respond-daniel-210703610.html)
-- May 06 - [Eight so-called fake electors took immunity deals in Ga. probe. What does that mean for Trump?](https://news.yahoo.com/8-called-fake-electors-took-190925024.html)
-- May 06 - [Melitopol mayor: "Evacuation" of occupiers is going too fast, they may be preparing provocations](https://news.yahoo.com/melitopol-mayor-evacuation-occupiers-going-191941052.html)
 <!-- feed end -->
