@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 07 - [Eight alleged fake electors took immunity deals in Ga. probe. What does that mean for Trump?](https://news.yahoo.com/8-called-fake-electors-took-190925024.html)
+- May 07 - [Nick Gilbert, son of Cavaliers owner, dies at 26](https://news.yahoo.com/nick-gilbert-son-cavaliers-owner-154701249.html)
+- May 07 - ['I'm going to be a first responder': Nurse shocked as tourists try to touch bison](https://news.yahoo.com/im-going-first-responder-nurse-153025362.html)
 - May 07 - [How Russia's newest weapon is changing the course of Ukraine war](https://news.yahoo.com/russias-newest-weapon-changing-course-142513039.html)
-- May 07 - [Fashion industry disruptor Aurora James](https://news.yahoo.com/fashion-industry-disruptor-aurora-james-142200353.html)
 - May 07 - [Queen’s robe folding did not ‘go to plan’, reveals friend](https://news.yahoo.com/queen-robe-folding-did-not-141124147.html)
-- May 07 - [Liz Holmes Wants You to Forget About Elizabeth](https://news.yahoo.com/liz-holmes-wants-forget-elizabeth-140939820.html)
-- May 07 - [Coyote comes face-to-face with cat inside home, California video shows. ‘Terrified’](https://news.yahoo.com/coyote-comes-face-face-cat-140804979.html)
 <!-- feed end -->
