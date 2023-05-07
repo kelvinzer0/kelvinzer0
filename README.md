@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 07 - [TikToker Bobby Moudy dies by suicide at age 46](https://news.yahoo.com/tiktoker-bobby-moudy-dies-suicide-193227304.html)
-- May 07 - [Gunman, 1 Victim Identified in Mall Massacre in Allen, Texas](https://news.yahoo.com/gunman-identified-mall-massacre-allen-183835147.html)
-- May 07 - [Seven dead in Texas after car drives into crowd outside migrant center](https://news.yahoo.com/seven-dead-texas-car-drives-180350604.html)
-- May 07 - [Chris Pratt Posted His “Met Gala Look,” And Everyone Is Begging Him To Delete It](https://news.yahoo.com/chris-pratt-posted-met-gala-231523274.html)
-- May 07 - [Engineers frustrated with rails even as others get sick time](https://news.yahoo.com/engineers-frustrated-rails-even-others-163246031.html)
+- May 07 - [Twitter Memed Katy Perry Being Super Lost At The Coronation — And Some Are NSFW](https://news.yahoo.com/twitter-memed-katy-perry-being-223836559.html)
+- May 07 - [Trump rejects last chance to testify at New York civil trial](https://news.yahoo.com/trump-rejects-last-chance-testify-215433940.html)
+- May 07 - [After a 35-year break, the US Navy is building frigates again, and it has a lot of catching up to do](https://news.yahoo.com/35-break-us-navy-building-213700718.html)
+- May 07 - [Woman lost in wilderness survived on lollipops and a bottle of wine before rescue, authorities say](https://news.yahoo.com/woman-lost-wilderness-survived-lollipops-211535142.html)
+- May 07 - [Padma Lakshmi, Sports Illustrated Swimsuit's newest model at 52, reveals her ‘three-week boot camp’ routine](https://news.yahoo.com/padma-lakshmi-sports-illustrated-swimsuits-205433735.html)
 <!-- feed end -->
