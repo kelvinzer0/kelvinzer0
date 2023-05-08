@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 08 - [Deputies in civil rights probe accused of sexual assault](https://news.yahoo.com/deputies-civil-rights-probe-accused-174028806.html)
-- May 08 - [Helicopter crew makes a daring rescue of driver trapped by rising water levels in Kenya](https://news.yahoo.com/helicopter-crew-makes-daring-rescue-172905862.html)
-- May 08 - [Florida may study use of radioactive waste in building roads](https://news.yahoo.com/florida-may-study-radioactive-waste-172630699.html)
-- May 08 - [Indiana judge deals blow to state's lawsuit against TikTok](https://news.yahoo.com/indiana-judge-deals-blow-states-172418746.html)
-- May 08 - [An unusual Kansas DUI traffic stop: ‘Sometimes you see things you can’t believe!’](https://news.yahoo.com/unusual-kansas-dui-traffic-stop-171353077.html)
+- May 08 - [As Trump probes intensify, foes of ex-president see opening](https://news.yahoo.com/trump-probes-intensify-foes-ex-185824310.html)
+- May 08 - [Mac DeMarco on fame and why he indulged on a 199-song album](https://news.yahoo.com/mac-demarco-fame-why-indulged-185754833.html)
+- May 08 - [North Dakota governor OKs law to ignore transgender pronouns](https://news.yahoo.com/north-dakota-governor-oks-law-183112967.html)
+- May 08 - [Mall shooting, SUV crash kill 16 in deadly Texas weekend. Here's everything we know.](https://news.yahoo.com/texas-mall-shooting-suv-crash-brownsville-what-we-know-182835204.html)
+- May 08 - [Jen Psaki: Actually It's Republicans Like Abbott and Cruz who are Politicizing Gun Violence](https://news.yahoo.com/jen-psaki-actually-republicans-abbott-132400342.html)
 <!-- feed end -->
