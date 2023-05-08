@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 08 - [Trump is ‘nonstop’ liar who destroyed E Jean Carroll’s reputation, jury hears](https://news.yahoo.com/trump-nonstop-liar-destroyed-e-185503912.html)
+- May 08 - [2 set for trial in shooting at FedEx driver in Mississippi](https://news.yahoo.com/2-set-trial-shooting-fedex-222251144.html)
+- May 08 - [Neighbor shoots 14-year-old as kids play hide and seek outside, Louisiana cops say](https://news.yahoo.com/neighbor-shoots-14-old-kids-214729055.html)
 - May 08 - [Dad arrested for punching umpire, a disabled veteran, at son's baseball game](https://news.yahoo.com/dad-arrested-punching-umpire-disabled-212109955.html)
 - May 08 - [Martin County court: New twist in Tiger Woods case with ex-girlfriend; hearing Tuesday](https://news.yahoo.com/martin-county-court-twist-tiger-211911226.html)
 - May 08 - [Disabled, veteran umpire punched by athlete's father during high school baseball game](https://news.yahoo.com/disabled-veteran-umpire-punched-athletes-211619555.html)
-- May 08 - [The Texas mall shooting left a 6-year-old as the sole survivor of his family. A GoFundMe has raised more than $450,000 to support him.](https://news.yahoo.com/texas-mall-shooting-left-6-210823267.html)
 <!-- feed end -->
