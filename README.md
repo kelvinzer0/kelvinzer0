@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 08 - [Jokic gets technical, tries to take ball from Suns owner](https://news.yahoo.com/jokic-gets-technical-tries-ball-011649982.html)
 - May 08 - [Test shows explosive power of a lithium-ion battery thermal runaway](https://news.yahoo.com/test-shows-explosive-power-lithium-010000597.html)
-- May 08 - [Pro-Biden groups spend $20M+ to promote record ahead of '24](https://news.yahoo.com/pro-biden-groups-spend-20m-000130013.html)
+- May 08 - [Thailand wins International Crown LPGA match play event](https://news.yahoo.com/thailand-wins-international-crown-lpga-002716216.html)
 - May 07 - [‘RWDS’: What the Patch Found on the Texas Gunman’s Chest Stands For](https://news.yahoo.com/rwds-patch-found-texas-gunman-234741129.html)
-- May 07 - [White House national security adviser meets Saudi prince](https://news.yahoo.com/white-house-national-security-adviser-234244657.html)
 - May 07 - [Hamlin bumps Larson for lead on final lap to win at Kansas](https://news.yahoo.com/hamlin-bumps-larson-lead-final-231140218.html)
 <!-- feed end -->
