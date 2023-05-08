@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 08 - [Oath Keepers' Rhodes seeks leniency in Jan. 6 sentence](https://news.yahoo.com/oath-keepers-rhodes-seeks-leniency-205204774.html)
-- May 08 - [Three children among victims of Allen mall shooting in Texas](https://news.yahoo.com/three-children-among-victims-allen-191157965.html)
-- May 08 - [Chris Pratt Posted His “Met Gala Look,” And Everyone Is Begging Him To Delete It](https://news.yahoo.com/chris-pratt-posted-met-gala-231523274.html)
-- May 08 - [Accused 'ghost candidate' faces campaign finance charges](https://news.yahoo.com/accused-ghost-candidate-faces-campaign-200801442.html)
-- May 08 - [Disturbing Posts Show Neo-Nazi Shooter Planned to Target Texas Mall](https://news.yahoo.com/disturbing-posts-show-neo-nazi-194817549.html)
+- May 08 - [Trump is ‘nonstop’ liar who destroyed E Jean Carroll’s reputation, jury hears](https://news.yahoo.com/trump-nonstop-liar-destroyed-e-185503912.html)
+- May 08 - [Dad arrested for punching umpire, a disabled veteran, at son's baseball game](https://news.yahoo.com/dad-arrested-punching-umpire-disabled-212109955.html)
+- May 08 - [Martin County court: New twist in Tiger Woods case with ex-girlfriend; hearing Tuesday](https://news.yahoo.com/martin-county-court-twist-tiger-211911226.html)
+- May 08 - [Disabled, veteran umpire punched by athlete's father during high school baseball game](https://news.yahoo.com/disabled-veteran-umpire-punched-athletes-211619555.html)
+- May 08 - [The Texas mall shooting left a 6-year-old as the sole survivor of his family. A GoFundMe has raised more than $450,000 to support him.](https://news.yahoo.com/texas-mall-shooting-left-6-210823267.html)
 <!-- feed end -->
