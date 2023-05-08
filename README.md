@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 08 - [Jen Psaki: Actually it's Republicans like Abbott and Cruz who are politicizing gun violence](https://news.yahoo.com/jen-psaki-actually-republicans-abbott-132400342.html)
-- May 08 - [Elegant but easy: French braised chicken will impress Mom](https://news.yahoo.com/elegant-easy-french-braised-chicken-122616420.html)
-- May 08 - [A ‘boatercycle?’ Man driving jet ski on highway gets pulled over by Alabama cops](https://news.yahoo.com/boatercycle-man-driving-jet-ski-115045410.html)
-- May 08 - [Climate change is bad for everyone. But this is where it's expected to be worst in the US.](https://news.yahoo.com/climate-change-bad-everyone-where-090325256.html)
-- May 08 - [George Stephanopoulos' Unfiltered Reaction To New Trump-Biden Poll Says It All](https://news.yahoo.com/george-stephanopoulos-unfiltered-reaction-trump-110058719.html)
+- May 08 - [Closing arguments start for columnist's claims against Trump](https://news.yahoo.com/closing-arguments-start-columnists-claims-143957650.html)
+- May 08 - [AP source: Biden would veto House GOP bill on immigration](https://news.yahoo.com/ap-source-biden-veto-house-142611664.html)
+- May 08 - [EU cancels Tel Aviv event in protest over radical minister](https://news.yahoo.com/eu-cancels-tel-aviv-event-133752359.html)
+- May 08 - [16 slang terms Gen Zers are using in 2023 and what they really mean](https://news.yahoo.com/15-slang-terms-gen-zers-135017735.html)
+- May 08 - [Oakland A's Announcer Glen Kuiper Says Racial Slur On Air And Punishment Comes Down](https://news.yahoo.com/oakland-announcer-glen-kuiper-says-131732852.html)
 <!-- feed end -->
