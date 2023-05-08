@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 08 - [Texas town in 'shock and grieving together' after shooting at mall leaves eight dead](https://news.yahoo.com/texas-town-shock-grieving-together-120820149.html)
 - May 08 - [A ‘boatercycle?’ Man driving jet ski on highway gets pulled over by Alabama cops](https://news.yahoo.com/boatercycle-man-driving-jet-ski-115045410.html)
 - May 08 - [Climate change is bad for everyone. But this is where it's expected to be worst in the US.](https://news.yahoo.com/climate-change-bad-everyone-where-090325256.html)
 - May 08 - [George Stephanopoulos' Unfiltered Reaction To New Trump-Biden Poll Says It All](https://news.yahoo.com/george-stephanopoulos-unfiltered-reaction-trump-110058719.html)
-- May 08 - [Facebook has 3 billion users. Many of them are old.](https://news.yahoo.com/facebook-3-billion-users-many-102818440.html)
+- May 08 - [China tells US to 'reflect deeply' over downturn in ties](https://news.yahoo.com/china-tells-us-reflect-deeply-101115313.html)
+- May 08 - [Tanked Biden pick highlights escalation of dark-money forces](https://news.yahoo.com/tanked-biden-pick-highlights-escalation-100457290.html)
 <!-- feed end -->
