@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 08 - [Closing arguments start for columnist's claims against Trump](https://news.yahoo.com/closing-arguments-start-columnists-claims-143957650.html)
-- May 08 - [AP source: Biden would veto House GOP bill on immigration](https://news.yahoo.com/ap-source-biden-veto-house-142611664.html)
-- May 08 - [EU cancels Tel Aviv event in protest over radical minister](https://news.yahoo.com/eu-cancels-tel-aviv-event-133752359.html)
-- May 08 - [16 slang terms Gen Zers are using in 2023 and what they really mean](https://news.yahoo.com/15-slang-terms-gen-zers-135017735.html)
-- May 08 - [Oakland A's Announcer Glen Kuiper Says Racial Slur On Air And Punishment Comes Down](https://news.yahoo.com/oakland-announcer-glen-kuiper-says-131732852.html)
+- May 08 - [Ex-girlfriend: Tiger Woods used lawyer to break up with me](https://news.yahoo.com/ex-girlfriend-tiger-woods-used-162045192.html)
+- May 08 - [Judge: Wisconsin fake electors complaint must be reheard](https://news.yahoo.com/judge-wisconsin-fake-electors-complaint-152530266.html)
+- May 08 - [Lawsuit: Yellen should ignore 'unconstitutional' debt limit](https://news.yahoo.com/lawsuit-yellen-ignore-unconstitutional-debt-150906715.html)
+- May 08 - [Former President Donald Trump's deposition from E. Jean Carroll case shown to jurors](https://news.yahoo.com/former-president-donald-trumps-deposition-150444927.html)
+- May 08 - [Disney parks at the forefront after Iger's return](https://news.yahoo.com/disney-parks-forefront-igers-return-150236696.html)
 <!-- feed end -->
