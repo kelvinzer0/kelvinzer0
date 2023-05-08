@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 08 - [China tells US to 'reflect deeply' over downturn in ties](https://news.yahoo.com/china-tells-us-reflect-deeply-101115313.html)
+- May 08 - [Tanked Biden pick highlights escalation of dark-money forces](https://news.yahoo.com/tanked-biden-pick-highlights-escalation-100457290.html)
 - May 08 - [A Colorado mom spent her life savings to buy her first house. Days after she moved in, she found 10 snakes living in the home's walls.](https://news.yahoo.com/colorado-mom-spent-her-life-090351626.html)
-- May 08 - [Airstrikes kill well-known Syrian drug kingpin](https://news.yahoo.com/airstrikes-kill-well-known-syrian-085745165.html)
 - May 08 - [Climate change is bad for everyone. But this is where it's expected to be worst in the US.](https://news.yahoo.com/climate-change-bad-everyone-where-090325256.html)
 - May 08 - [Watch an exasperated Matt Gaetz in a Nirvana shirt coach Ron DeSantis on how to debate people properly in a video from 2018](https://news.yahoo.com/watch-exasperated-matt-gaetz-nirvana-071720291.html)
-- May 08 - [Iran hangs 2 in rare blasphemy case as executions surge](https://news.yahoo.com/iran-hangs-2-rare-blasphemy-063405348.html)
 <!-- feed end -->
