@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 08 - [Ex-girlfriend: Tiger Woods used lawyer to break up with me](https://news.yahoo.com/ex-girlfriend-tiger-woods-used-162045192.html)
-- May 08 - [Judge: Wisconsin fake electors complaint must be reheard](https://news.yahoo.com/judge-wisconsin-fake-electors-complaint-152530266.html)
-- May 08 - [Lawsuit: Yellen should ignore 'unconstitutional' debt limit](https://news.yahoo.com/lawsuit-yellen-ignore-unconstitutional-debt-150906715.html)
-- May 08 - [Former President Donald Trump's deposition from E. Jean Carroll case shown to jurors](https://news.yahoo.com/former-president-donald-trumps-deposition-150444927.html)
-- May 08 - [Disney parks at the forefront after Iger's return](https://news.yahoo.com/disney-parks-forefront-igers-return-150236696.html)
+- May 08 - [Allen Texas mall shooting: Aishwarya Thatikonda, an Indian engineer, among victims](https://news.yahoo.com/security-guard-indian-engineer-among-112548067.html)
+- May 08 - ['Outraged' letter carriers demand action to stop robberies](https://news.yahoo.com/outraged-letter-carriers-demand-action-163031266.html)
+- May 08 - [Sleeping hotel guest wakes up to manager sucking on his feet, Tennessee lawsuit says](https://news.yahoo.com/sleeping-hotel-guest-wakes-manager-162352508.html)
+- May 08 - [Dad, Daddy or Pa? What your name for your father reveals about your class](https://news.yahoo.com/dad-daddy-pa-name-father-161413882.html)
+- May 08 - [Driver hits Texas bus stop near border; 8 dead](https://news.yahoo.com/driver-hits-texas-bus-stop-160718736.html)
 <!-- feed end -->
