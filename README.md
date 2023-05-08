@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 08 - [Jen Psaki: Actually it's Republicans like Abbott and Cruz who are politicizing gun violence](https://news.yahoo.com/jen-psaki-actually-republicans-abbott-132400342.html)
+- May 08 - [Elegant but easy: French braised chicken will impress Mom](https://news.yahoo.com/elegant-easy-french-braised-chicken-122616420.html)
 - May 08 - [A ‘boatercycle?’ Man driving jet ski on highway gets pulled over by Alabama cops](https://news.yahoo.com/boatercycle-man-driving-jet-ski-115045410.html)
 - May 08 - [Climate change is bad for everyone. But this is where it's expected to be worst in the US.](https://news.yahoo.com/climate-change-bad-everyone-where-090325256.html)
 - May 08 - [George Stephanopoulos' Unfiltered Reaction To New Trump-Biden Poll Says It All](https://news.yahoo.com/george-stephanopoulos-unfiltered-reaction-trump-110058719.html)
-- May 08 - [China tells US to 'reflect deeply' over downturn in ties](https://news.yahoo.com/china-tells-us-reflect-deeply-101115313.html)
-- May 08 - [Tanked Biden pick highlights escalation of dark-money forces](https://news.yahoo.com/tanked-biden-pick-highlights-escalation-100457290.html)
 <!-- feed end -->
