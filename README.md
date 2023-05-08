@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 08 - [UN urges Afghanistan's Taliban to end floggings, executions](https://news.yahoo.com/un-urges-afghanistans-taliban-end-054354444.html)
+- May 08 - [Why so many mass killings? Families, experts seek answers](https://news.yahoo.com/why-many-mass-killings-families-050923570.html)
 - May 08 - [Source: Investigators examine ideology of Texas gunman](https://news.yahoo.com/started-running-8-killed-texas-080237962.html)
 - May 08 - [Trump told reporters he would 'confront' the 'false' rape accusation made against him by E. Jean Carroll. He has officially missed the final deadline to testify.](https://news.yahoo.com/trump-told-reporters-confront-false-035757378.html)
-- May 08 - [Jokic gets technical, tries to take ball from Suns owner](https://news.yahoo.com/jokic-gets-technical-tries-ball-011649982.html)
-- May 08 - [Test shows explosive power of a lithium-ion battery thermal runaway](https://news.yahoo.com/test-shows-explosive-power-lithium-010000597.html)
-- May 08 - [Thailand wins International Crown LPGA match play event](https://news.yahoo.com/thailand-wins-international-crown-lpga-002716216.html)
+- May 08 - [Iraqi Kurdish bodybuilder breaks down gender barriers](https://news.yahoo.com/iraqi-kurdish-bodybuilder-breaks-down-034413102.html)
 <!-- feed end -->
