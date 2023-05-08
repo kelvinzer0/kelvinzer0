@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 08 - [Official portraits for King Charles and Queen Camilla's Coronation released](https://news.yahoo.com/official-portraits-king-charles-queen-170007996.html)
+- May 08 - [Veteran 'enamored' with Hitler gets 4 years for Capitol riot](https://news.yahoo.com/veteran-enamored-hitler-gets-4-194103442.html)
+- May 08 - [Three children among victims of Allen mall shooting in Texas](https://news.yahoo.com/three-children-among-victims-allen-191157965.html)
 - May 08 - [As Trump probes intensify, foes of ex-president see opening](https://news.yahoo.com/trump-probes-intensify-foes-ex-185824310.html)
-- May 08 - [Mac DeMarco on fame and why he indulged on a 199-song album](https://news.yahoo.com/mac-demarco-fame-why-indulged-185754833.html)
 - May 08 - [North Dakota governor OKs law to ignore transgender pronouns](https://news.yahoo.com/north-dakota-governor-oks-law-183112967.html)
-- May 08 - [Mall shooting, SUV crash kill 16 in deadly Texas weekend. Here's everything we know.](https://news.yahoo.com/texas-mall-shooting-suv-crash-brownsville-what-we-know-182835204.html)
-- May 08 - [Jen Psaki: Actually It's Republicans Like Abbott and Cruz who are Politicizing Gun Violence](https://news.yahoo.com/jen-psaki-actually-republicans-abbott-132400342.html)
 <!-- feed end -->
