@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 08 - [Climate change is bad for everyone. But this is where it's expected to be worst in the US.](https://news.yahoo.com/climate-change-bad-everyone-where-090325256.html)
 - May 08 - [Iran hangs 2 in rare blasphemy case as executions surge](https://news.yahoo.com/iran-hangs-2-rare-blasphemy-063405348.html)
-- May 08 - [War shadows Victory Day, Russia's integral holiday](https://news.yahoo.com/war-shadows-victory-day-russias-062126070.html)
 - May 08 - [A TikToker traveling in Vietnam shared a video of herself crying over a local who rowed their boat and added the 'poverty' hashtag. She's getting blasted for 'slum tourism.'](https://news.yahoo.com/tiktoker-traveling-vietnam-shared-video-054635597.html)
 - May 08 - [Why so many mass killings? Families, experts seek answers](https://news.yahoo.com/why-many-mass-killings-families-050923570.html)
 - May 08 - [Trump told reporters he would 'confront' the 'false' rape accusation made against him by E. Jean Carroll. He has officially missed the final deadline to testify.](https://news.yahoo.com/trump-told-reporters-confront-false-035757378.html)
