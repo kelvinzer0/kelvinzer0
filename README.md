@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 08 - [Official portraits for King Charles and Queen Camilla's Coronation released](https://news.yahoo.com/official-portraits-king-charles-queen-170007996.html)
-- May 08 - [Veteran 'enamored' with Hitler gets 4 years for Capitol riot](https://news.yahoo.com/veteran-enamored-hitler-gets-4-194103442.html)
+- May 08 - [Oath Keepers' Rhodes seeks leniency in Jan. 6 sentence](https://news.yahoo.com/oath-keepers-rhodes-seeks-leniency-205204774.html)
 - May 08 - [Three children among victims of Allen mall shooting in Texas](https://news.yahoo.com/three-children-among-victims-allen-191157965.html)
-- May 08 - [As Trump probes intensify, foes of ex-president see opening](https://news.yahoo.com/trump-probes-intensify-foes-ex-185824310.html)
-- May 08 - [North Dakota governor OKs law to ignore transgender pronouns](https://news.yahoo.com/north-dakota-governor-oks-law-183112967.html)
+- May 08 - [Chris Pratt Posted His “Met Gala Look,” And Everyone Is Begging Him To Delete It](https://news.yahoo.com/chris-pratt-posted-met-gala-231523274.html)
+- May 08 - [Accused 'ghost candidate' faces campaign finance charges](https://news.yahoo.com/accused-ghost-candidate-faces-campaign-200801442.html)
+- May 08 - [Disturbing Posts Show Neo-Nazi Shooter Planned to Target Texas Mall](https://news.yahoo.com/disturbing-posts-show-neo-nazi-194817549.html)
 <!-- feed end -->
