@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 08 - [Allen Texas mall shooting: Aishwarya Thatikonda, an Indian engineer, among victims](https://news.yahoo.com/security-guard-indian-engineer-among-112548067.html)
-- May 08 - ['Outraged' letter carriers demand action to stop robberies](https://news.yahoo.com/outraged-letter-carriers-demand-action-163031266.html)
-- May 08 - [Sleeping hotel guest wakes up to manager sucking on his feet, Tennessee lawsuit says](https://news.yahoo.com/sleeping-hotel-guest-wakes-manager-162352508.html)
-- May 08 - [Dad, Daddy or Pa? What your name for your father reveals about your class](https://news.yahoo.com/dad-daddy-pa-name-father-161413882.html)
-- May 08 - [Driver hits Texas bus stop near border; 8 dead](https://news.yahoo.com/driver-hits-texas-bus-stop-160718736.html)
+- May 08 - [Deputies in civil rights probe accused of sexual assault](https://news.yahoo.com/deputies-civil-rights-probe-accused-174028806.html)
+- May 08 - [Helicopter crew makes a daring rescue of driver trapped by rising water levels in Kenya](https://news.yahoo.com/helicopter-crew-makes-daring-rescue-172905862.html)
+- May 08 - [Florida may study use of radioactive waste in building roads](https://news.yahoo.com/florida-may-study-radioactive-waste-172630699.html)
+- May 08 - [Indiana judge deals blow to state's lawsuit against TikTok](https://news.yahoo.com/indiana-judge-deals-blow-states-172418746.html)
+- May 08 - [An unusual Kansas DUI traffic stop: ‘Sometimes you see things you can’t believe!’](https://news.yahoo.com/unusual-kansas-dui-traffic-stop-171353077.html)
 <!-- feed end -->
