@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 09 - [Putin, at Red Square military parade, calls for victory in Ukraine](https://news.yahoo.com/putin-red-square-military-parade-095017810.html)
-- May 09 - ['We Could Screw This Up': Mitch McConnell Gives Republicans 2024 Warning](https://news.yahoo.com/could-screw-mitch-mcconnell-gives-080908803.html)
-- May 09 - [Putin tells WWII event West is waging a 'real war' on Russia](https://news.yahoo.com/russia-set-wwii-tributes-rains-065815430.html)
-- May 09 - [Eric Adams Says ‘Agitators That Came From Outside Our City’ Planted Molotov Cocktail at Jordan Neely Protest](https://news.yahoo.com/eric-adams-says-agitators-came-055406463.html)
-- May 09 - [Wall Street Journal Hits Republicans With The Harsh Truth About Donald Trump](https://news.yahoo.com/wall-street-journal-hits-republicans-055134704.html)
+- May 09 - [Imran Khan Arrested in Islamabad](https://finance.yahoo.com/video/imran-khan-arrested-islamabad-122033579.html)
+- May 09 - [Here's what would happen to the royal family if Britain abolished the monarchy](https://news.yahoo.com/heres-happen-royal-family-britain-164803681.html)
+- May 09 - [A woman in Texas worked 4 jobs — but still couldn't keep up with her $250K in student debt. Here is the advice she got from a famous finance YouTuber](https://finance.yahoo.com/news/woman-texas-worked-4-jobs-120000784.html)
+- May 09 - [Russian guerrillas destroy Su-24 aircraft at aviation plant in Novosibirsk — video report](https://news.yahoo.com/russian-guerrillas-destroy-su-24-114400555.html)
+- May 09 - [That Access Hollywood tape is grabbing Trump by the credibility as the E. Jean Carroll rape trial nears its end](https://news.yahoo.com/access-hollywood-tape-grabbing-trump-110000749.html)
 <!-- feed end -->
