@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 09 - [Closing arguments heard in Trump rape trial](https://news.yahoo.com/closing-arguments-heard-trump-rape-031729937.html)
+- May 09 - [16 Wholesome Teachers Who Were Mistreated By Their Students' Parents, I'm Deeply Sorry To Report](https://news.yahoo.com/16-wholesome-teachers-were-mistreated-220852866.html)
+- May 09 - [Head of Russia's Wagner group says still no sign of promised ammunition](https://news.yahoo.com/head-russias-wagner-group-says-023314172.html)
+- May 09 - [Russia launches new attack on Ukraine's capital, officials say](https://news.yahoo.com/ukraines-air-defence-systems-repelling-022016182.html)
 - May 09 - [A cruise ship passenger found a hidden camera that had filmed over 150 people changing or using the bathroom. A man was arrested after the FBI said video showed him setting it up.](https://news.yahoo.com/cruise-ship-passenger-found-hidden-013645434.html)
 - May 09 - [Indicted FTX founder Bankman-Fried urges court to toss charges](https://finance.yahoo.com/news/indicted-ftx-founder-sam-bankman-012707410.html)
-- May 09 - [Bob Huggins can't stay at West Virginia after gleefully using a homophobic slur](https://news.yahoo.com/bob-huggins-cant-stay-west-010913326.html)
-- May 09 - [Utah author of book on grieving death charged with murder](https://news.yahoo.com/utah-author-book-grieving-death-003214404.html)
 <!-- feed end -->
