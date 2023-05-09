@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 09 - [Teacher Says Teaching Critical Race Theory Is ‘Hyper-Raced Focused,' Dividing America](https://www.yahoo.com/entertainment/teacher-says-teaching-critical-race-081156529.html)
 - May 09 - [Wall Street Journal Hits Republicans With The Harsh Truth About Donald Trump](https://news.yahoo.com/wall-street-journal-hits-republicans-055134704.html)
 - May 09 - [Man convicted of killing corrections director fully freed](https://news.yahoo.com/man-convicted-killing-corrections-director-033740367.html)
 - May 09 - [Head of Russia's Wagner group says still no sign of promised ammunition](https://news.yahoo.com/head-russias-wagner-group-says-023314172.html)
 - May 09 - [Russia launches new attack on Ukraine's capital, officials say](https://news.yahoo.com/ukraines-air-defence-systems-repelling-022016182.html)
-- May 09 - [A cruise ship passenger found a hidden camera that had filmed over 150 people changing or using the bathroom. A man was arrested after the FBI said video showed him setting it up.](https://news.yahoo.com/cruise-ship-passenger-found-hidden-013645434.html)
 <!-- feed end -->
