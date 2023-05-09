@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 09 - [Head of Russia's Wagner group says still no sign of promised ammunition](https://news.yahoo.com/head-russias-wagner-group-says-023314172.html)
 - May 09 - [A cruise ship passenger found a hidden camera that had filmed over 150 people changing or using the bathroom. A man was arrested after the FBI said video showed him setting it up.](https://news.yahoo.com/cruise-ship-passenger-found-hidden-013645434.html)
 - May 09 - [Indicted FTX founder Sam Bankman-Fried urges court to toss charges](https://finance.yahoo.com/news/indicted-ftx-founder-sam-bankman-012707410.html)
 - May 09 - [Bob Huggins can't stay at West Virginia after gleefully using a homophobic slur](https://news.yahoo.com/bob-huggins-cant-stay-west-010913326.html)
-- May 08 - [Final arguments in Trump-Carroll lawsuit](https://news.yahoo.com/final-arguments-trump-carroll-lawsuit-233429893.html)
-- May 08 - [Elderly man gives police officer dance lesson during traffic stop in South Carolina](https://news.yahoo.com/elderly-man-gives-police-officer-230658429.html)
+- May 09 - [Utah author of book on grieving death charged with murder](https://news.yahoo.com/utah-author-book-grieving-death-003214404.html)
 <!-- feed end -->
