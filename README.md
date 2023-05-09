@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 09 - [Jury Reaches Verdict On E. Jean Carroll's Rape Accusation Against Trump](https://news.yahoo.com/jury-reaches-verdict-e-jean-185020059.html)
-- May 09 - [Israel strikes kill Islamic Jihad chiefs, civilians](https://news.yahoo.com/israel-strikes-kill-islamic-jihad-182919362.html)
-- May 09 - [Bud Light Controversy Takes a Twist That Offends a Whole New Crowd](https://www.thestreet.com/retailers/bud-light-controversy-takes-a-twist-that-offends-a-whole-new-crowd?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 09 - [A Scientist Says He's Solved the Bermuda Triangle, Just Like That](https://news.yahoo.com/scientist-says-hes-solved-bermuda-175500114.html)
-- May 09 - ['You might as well end it now': Terrorized by sextortion plot, a 17-year-old takes his life](https://news.yahoo.com/might-well-end-now-terrorized-092032016.html)
+- May 09 - [Jury finds Donald Trump liable for sexual abuse, defamation in civil suit with E. Jean Carroll](https://finance.yahoo.com/video/jury-finds-donald-trump-liable-195836134.html)
+- May 09 - [Protests Erupt Following Arrest of Pakistan Ex-Prime Minister Imran Khan](https://finance.yahoo.com/video/watch-pakistan-ex-prime-minister-151500225.html)
+- May 09 - [Jury finds Trump sexually abused and defamed E. Jean Carroll: 5 key moments from the trial](https://news.yahoo.com/jury-finds-trump-sexually-abused-and-defamed-e-jean-carroll-5-key-moments-from-the-trial-192842003.html)
+- May 09 - [Dianne Feinstein returning to U.S. Senate after health-related absence](https://news.yahoo.com/democratic-u-senator-feinstein-returning-192056652.html)
+- May 09 - [Jury Sides With E. Jean Carroll In Civil Rape Trial Against Donald Trump](https://news.yahoo.com/jury-reaches-verdict-e-jean-185020059.html)
 <!-- feed end -->
