@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 09 - [Russia scales down WW2 parades amid shortages](https://news.yahoo.com/russia-scales-down-ww2-parades-143851827.html)
-- May 09 - [Germany, China clash over Ukraine](https://news.yahoo.com/germany-china-clash-over-ukraine-143617804.html)
+- May 09 - [Wagner boss says he's been told to stay in Bakmut](https://news.yahoo.com/wagner-boss-says-hes-told-154443521.html)
+- May 09 - [Bud light exec says 'one social media post' crashed sales amid trans row](https://news.yahoo.com/bud-light-chief-blames-trans-151106528.html)
+- May 09 - [Protests stop Russia envoy at Soviet Poland cemetery](https://news.yahoo.com/protests-stop-russia-envoy-soviet-152504190.html)
 - May 09 - [Trump Lies That He Wasn’t Able to Defend Himself in Rape Trial](https://news.yahoo.com/trump-lies-wasn-t-able-143426849.html)
-- May 09 - [Rachel Maddow Chokes Up as She Breaks Down Connections Between ‘Bleeding, Ragged Right-Wing’ Politics and Mass Violence (Video)](https://news.yahoo.com/rachel-maddow-chokes-she-breaks-140259479.html)
-- May 09 - [Bob Huggins can't stay at West Virginia after gleefully using a homophobic slur](https://news.yahoo.com/bob-huggins-cant-stay-west-010913326.html)
+- May 09 - [MrBeast has been buying up an entire neighborhood in North Carolina for his family, friends and employees, report says](https://news.yahoo.com/mrbeast-buying-entire-neighborhood-north-143105220.html)
 <!-- feed end -->
