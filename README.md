@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 09 - [A cruise ship passenger found a hidden camera that had filmed over 150 people changing or using the bathroom. A man was arrested after the FBI said video showed him setting it up.](https://news.yahoo.com/cruise-ship-passenger-found-hidden-013645434.html)
+- May 09 - [Indicted FTX founder Sam Bankman-Fried urges court to toss charges](https://finance.yahoo.com/news/indicted-ftx-founder-sam-bankman-012707410.html)
+- May 09 - [Bob Huggins can't stay at West Virginia after gleefully using a homophobic slur](https://news.yahoo.com/bob-huggins-cant-stay-west-010913326.html)
 - May 08 - [Final arguments in Trump-Carroll lawsuit](https://news.yahoo.com/final-arguments-trump-carroll-lawsuit-233429893.html)
-- May 08 - [SF Dems reportedly block ex-Obama staffer from forming club over the word 'family'](https://news.yahoo.com/sf-dems-reportedly-block-ex-232720719.html)
 - May 08 - [Elderly man gives police officer dance lesson during traffic stop in South Carolina](https://news.yahoo.com/elderly-man-gives-police-officer-230658429.html)
-- May 08 - [Prosecutors: Former Bills punter Matt Araiza wasn't present during alleged gang rape](https://news.yahoo.com/prosecutors-former-bills-punter-matt-araiza-wasnt-present-during-alleged-gang-rape-225211550.html)
-- May 08 - [A 7,000-year-old road is found on the seafloor off Croatian coast, researchers say](https://news.yahoo.com/7-000-old-road-found-224849420.html)
 <!-- feed end -->
