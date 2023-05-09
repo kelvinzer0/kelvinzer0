@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 09 - [Former Fox News host Tucker Carlson will relaunch his show on Twitter](https://news.yahoo.com/former-fox-news-host-tucker-210943448.html)
+- May 09 - [Why some people are spreading false rumours about the Texas gunman](https://news.yahoo.com/why-people-spreading-false-rumours-200601714.html)
+- May 09 - [Right-Wingers Are Getting Desperate After Another Shooting By A Far-Right Extremist](https://news.yahoo.com/wingers-getting-desperate-another-shooting-222134862.html)
+- May 09 - [Schumer Says McCarthy Refused to Take Default Off the Table](https://finance.yahoo.com/video/schumer-says-mccarthy-refused-default-221547370.html)
+- May 09 - [Feds File Criminal Charges Against George Santos: Report](https://news.yahoo.com/feds-file-criminal-charges-against-213938931.html)
 - May 09 - [Trump attorney reacts to trial verdict](https://news.yahoo.com/trump-attorney-reacts-trial-verdict-210319526.html)
-- May 09 - [Biden Meets With Speaker McCarthy in Oval Office](https://finance.yahoo.com/video/biden-meets-speaker-mccarthy-oval-205635968.html)
-- May 09 - [Russian security agents have been using a secret network of corrupted computers to spy on NATO for decades, but the US just busted it open, feds say](https://news.yahoo.com/russian-security-agents-using-secret-200227558.html)
-- May 09 - [S.C. police shooting survivor says deputies opened fire on him and his mother 'immediately'](https://news.yahoo.com/c-police-shooting-survivor-says-205217511.html)
 <!-- feed end -->
