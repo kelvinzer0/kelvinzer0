@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 09 - [Trump found liable for sexually abusing writer](https://news.yahoo.com/trump-found-liable-sexually-abusing-202233366.html)
+- May 09 - [Why some people are spreading false rumours about the Texas gunman](https://news.yahoo.com/why-people-spreading-false-rumours-200601714.html)
+- May 09 - [A mom spent 2 years taking care of her sick daughter. She thought she was just stressed but then discovered she had stage 4 colon cancer and died.](https://news.yahoo.com/mom-spent-2-years-taking-200040396.html)
 - May 09 - [Jury finds Donald Trump liable for sexual abuse, defamation in civil suit with E. Jean Carroll](https://finance.yahoo.com/video/jury-finds-donald-trump-liable-195836134.html)
-- May 09 - [Protests Erupt Following Arrest of Pakistan Ex-Prime Minister Imran Khan](https://finance.yahoo.com/video/watch-pakistan-ex-prime-minister-151500225.html)
-- May 09 - [Jury finds Trump sexually abused and defamed E. Jean Carroll: 5 key moments from the trial](https://news.yahoo.com/jury-finds-trump-sexually-abused-and-defamed-e-jean-carroll-5-key-moments-from-the-trial-192842003.html)
-- May 09 - [Dianne Feinstein returning to U.S. Senate after health-related absence](https://news.yahoo.com/democratic-u-senator-feinstein-returning-192056652.html)
-- May 09 - [Jury Sides With E. Jean Carroll In Civil Rape Trial Against Donald Trump](https://news.yahoo.com/jury-reaches-verdict-e-jean-185020059.html)
+- May 09 - [Jury finds Trump liable for sexual abuse](https://news.yahoo.com/jury-finds-trump-liable-sexual-195734487.html)
 <!-- feed end -->
