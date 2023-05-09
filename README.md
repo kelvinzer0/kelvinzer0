@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 09 - [Liz Cheney Digs Into Trump Again](https://news.yahoo.com/liz-cheney-digs-trump-again-134207570.html)
+- May 09 - [Russia scales down WW2 parades amid shortages](https://news.yahoo.com/russia-scales-down-ww2-parades-143851827.html)
+- May 09 - [Germany, China clash over Ukraine](https://news.yahoo.com/germany-china-clash-over-ukraine-143617804.html)
+- May 09 - [Trump Lies That He Wasn’t Able to Defend Himself in Rape Trial](https://news.yahoo.com/trump-lies-wasn-t-able-143426849.html)
+- May 09 - [Rachel Maddow Chokes Up as She Breaks Down Connections Between ‘Bleeding, Ragged Right-Wing’ Politics and Mass Violence (Video)](https://news.yahoo.com/rachel-maddow-chokes-she-breaks-140259479.html)
 - May 09 - [Bob Huggins can't stay at West Virginia after gleefully using a homophobic slur](https://news.yahoo.com/bob-huggins-cant-stay-west-010913326.html)
-- May 09 - [Former Rep. Liz Cheney Baits Donald Trump And The MAGA Mob In New Attack Ad](https://news.yahoo.com/former-rep-liz-cheney-baits-131927071.html)
-- May 09 - [This Beverly Hills steakhouse server says she made $2,500 in just one week — working part time. 3 simple ways to boost your income without having to change careers or beg for a raise](https://finance.yahoo.com/news/beverly-hills-steakhouse-server-says-130000138.html)
-- May 09 - [Here's what would happen to the royal family if Britain abolished the monarchy](https://news.yahoo.com/heres-happen-royal-family-britain-164803681.html)
 <!-- feed end -->
