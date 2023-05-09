@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 09 - [Jury Reaches Verdict On E. Jean Carroll's Rape Accusation Against Trump](https://news.yahoo.com/jury-reaches-verdict-e-jean-185020059.html)
+- May 09 - [Israel strikes kill Islamic Jihad chiefs, civilians](https://news.yahoo.com/israel-strikes-kill-islamic-jihad-182919362.html)
+- May 09 - [Bud Light Controversy Takes a Twist That Offends a Whole New Crowd](https://www.thestreet.com/retailers/bud-light-controversy-takes-a-twist-that-offends-a-whole-new-crowd?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 09 - [A Scientist Says He's Solved the Bermuda Triangle, Just Like That](https://news.yahoo.com/scientist-says-hes-solved-bermuda-175500114.html)
 - May 09 - ['You might as well end it now': Terrorized by sextortion plot, a 17-year-old takes his life](https://news.yahoo.com/might-well-end-now-terrorized-092032016.html)
-- May 09 - [Russia’s losses are worse than anyone thinks](https://news.yahoo.com/russia-losses-worse-anyone-thinks-170000710.html)
-- May 09 - [‘The View': Joy Behar Met With Awkward Silence After Saying Jordan Neely Would’ve Been Allowed a Gun in Texas](https://news.yahoo.com/view-joy-behar-met-awkward-164216836.html)
-- May 09 - [Lukashenko unable to walk 300 meters, skips breakfast with Putin in Moscow](https://news.yahoo.com/lukashenko-unable-walk-300-meters-162900394.html)
-- May 09 - [Elon Musk look-alike at NYC event angers Chinese attendees who expected the real one](https://news.yahoo.com/elon-musk-look-alike-nyc-162838110.html)
 <!-- feed end -->
