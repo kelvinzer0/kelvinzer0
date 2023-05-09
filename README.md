@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 09 - [Wagner boss says he's been told to stay in Bakmut](https://news.yahoo.com/wagner-boss-says-hes-told-154443521.html)
+- May 09 - [‘The View': Joy Behar Met With Awkward Silence After Saying Jordan Neely Would’ve Been Allowed a Gun in Texas](https://news.yahoo.com/view-joy-behar-met-awkward-164216836.html)
+- May 09 - [Elon Musk look-alike at NYC event angers Chinese attendees who expected the real one](https://news.yahoo.com/elon-musk-look-alike-nyc-162838110.html)
+- May 09 - [Louisiana Homeowner Accused of Shooting 14-Year-Old Girl Playing Hide-and-Seek in His Backyard](https://www.yahoo.com/entertainment/louisiana-homeowner-accused-shooting-14-162517660.html)
+- May 09 - [Body of missing CEO found over a year after he texted "911" and vanished](https://news.yahoo.com/body-missing-ceo-found-over-155700570.html)
 - May 09 - [Bud light exec says 'one social media post' crashed sales amid trans row](https://news.yahoo.com/bud-light-chief-blames-trans-151106528.html)
-- May 09 - [Protests stop Russia envoy at Soviet Poland cemetery](https://news.yahoo.com/protests-stop-russia-envoy-soviet-152504190.html)
-- May 09 - [Trump Lies That He Wasn’t Able to Defend Himself in Rape Trial](https://news.yahoo.com/trump-lies-wasn-t-able-143426849.html)
-- May 09 - [MrBeast has been buying up an entire neighborhood in North Carolina for his family, friends and employees, report says](https://news.yahoo.com/mrbeast-buying-entire-neighborhood-north-143105220.html)
 <!-- feed end -->
