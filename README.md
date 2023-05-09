@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 09 - ['You might as well end it now': Terrorized by sextortion plot, a 17-year-old takes his life](https://news.yahoo.com/might-well-end-now-terrorized-092032016.html)
+- May 09 - [Russia’s losses are worse than anyone thinks](https://news.yahoo.com/russia-losses-worse-anyone-thinks-170000710.html)
 - May 09 - [‘The View': Joy Behar Met With Awkward Silence After Saying Jordan Neely Would’ve Been Allowed a Gun in Texas](https://news.yahoo.com/view-joy-behar-met-awkward-164216836.html)
+- May 09 - [Lukashenko unable to walk 300 meters, skips breakfast with Putin in Moscow](https://news.yahoo.com/lukashenko-unable-walk-300-meters-162900394.html)
 - May 09 - [Elon Musk look-alike at NYC event angers Chinese attendees who expected the real one](https://news.yahoo.com/elon-musk-look-alike-nyc-162838110.html)
-- May 09 - [Louisiana Homeowner Accused of Shooting 14-Year-Old Girl Playing Hide-and-Seek in His Backyard](https://www.yahoo.com/entertainment/louisiana-homeowner-accused-shooting-14-162517660.html)
-- May 09 - [Body of missing CEO found over a year after he texted "911" and vanished](https://news.yahoo.com/body-missing-ceo-found-over-155700570.html)
-- May 09 - [Bud light exec says 'one social media post' crashed sales amid trans row](https://news.yahoo.com/bud-light-chief-blames-trans-151106528.html)
 <!-- feed end -->
