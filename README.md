@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 10 - [Trump blames 'Clinton-appointed judge' for 'negative' outcome in E. Jean Carroll case](https://news.yahoo.com/trump-blames-clinton-appointed-judge-124710573.html)
+- May 10 - [Inflation: Consumer prices in April rise at slowest annual rate in 2 years](https://finance.yahoo.com/news/april-cpi-inflation-data-may-10-2023-123320030.html)
+- May 10 - ['I ran the 80-pound jackhammer': Former governor Jesse Ventura slams US billionaires, says no one works hard enough to make $1B — 3 ways make your money do the heavy lifting](https://finance.yahoo.com/news/ran-80-pound-jackhammer-former-122500379.html)
 - May 10 - [Disney board axed X-rated, liquor stores; forgot about jails](https://finance.yahoo.com/news/disney-board-axed-x-rated-113514580.html)
 - May 10 - [Protester throws cake at VW Chairman during AGM](https://news.yahoo.com/protester-throws-cake-vw-chairman-112628709.html)
-- May 10 - [Kremlin calls Polish decision to rename Kaliningrad 'hostile act'](https://news.yahoo.com/kremlin-calls-polish-decision-rename-111836438.html)
-- May 10 - [US airlines thrown a curveball as consumer habits change post-pandemic](https://finance.yahoo.com/news/us-airlines-thrown-curveball-consumer-101515385.html)
-- May 10 - [Trump says CNN town hall appearance could turn into 'disaster for all'](https://news.yahoo.com/trump-says-cnn-town-hall-090854848.html)
 <!-- feed end -->
