@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 10 - [Trump blames 'Clinton-appointed judge' for 'negative' outcome in E. Jean Carroll case](https://news.yahoo.com/trump-blames-clinton-appointed-judge-124710573.html)
-- May 10 - [Inflation: Consumer prices in April rise at slowest annual rate in 2 years](https://finance.yahoo.com/news/april-cpi-inflation-data-may-10-2023-123320030.html)
-- May 10 - ['I ran the 80-pound jackhammer': Former governor Jesse Ventura slams US billionaires, says no one works hard enough to make $1B — 3 ways make your money do the heavy lifting](https://finance.yahoo.com/news/ran-80-pound-jackhammer-former-122500379.html)
-- May 10 - [Disney board axed X-rated, liquor stores; forgot about jails](https://finance.yahoo.com/news/disney-board-axed-x-rated-113514580.html)
-- May 10 - [Protester throws cake at VW Chairman during AGM](https://news.yahoo.com/protester-throws-cake-vw-chairman-112628709.html)
+- May 10 - [2024 Ford Ranger revealed](https://www.autoblog.com/2024-ford-ranger-revealed-134800438.html)
+- May 10 - [Cluster of Chinese vessels spotted near Russian rig off Vietnam - ship monitors](https://news.yahoo.com/cluster-chinese-vessels-spotted-near-134041252.html)
+- May 10 - [George Santos’ Lies Finally Catch Up With Him in Stunning Indictment](https://news.yahoo.com/george-santos-custody-132106534.html)
+- May 10 - [Ford Introduces a New Gas-Powered Truck Aimed at Global Dominance](https://www.barrons.com/articles/ford-new-gas-powered-truck-stock-6885a215?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
