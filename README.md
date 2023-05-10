@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 10 - [China Warns of 'Strong' Reaction If EU Sanctions Its Companies](https://finance.yahoo.com/video/china-warns-strong-reaction-eu-043734064.html)
 - May 10 - [Gunman shot every customer in Detroit gas station after warning clerk, victim says](https://news.yahoo.com/gunman-shot-every-customer-detroit-002403606.html)
-- May 10 - [Republicans defiant after Biden debt limit meeting](https://news.yahoo.com/republicans-defiant-biden-debt-limit-032802207.html)
 - May 10 - [CA Gov. Newsom declines to back reparations checks, says slavery's legacy about 'more than cash payments'](https://news.yahoo.com/ca-gov-newsom-declines-back-014738312.html)
 - May 10 - [An 8-year-old boy who was lost and alone in the woods for 2 days survived by eating snow and covering himself in branches to stay warm](https://news.yahoo.com/8-old-boy-lost-alone-014201178.html)
 - May 09 - [GOP’s 2024 Candidates Dare Not Cross Trump After Sexual Assault Verdict](https://news.yahoo.com/gop-2024-candidates-dare-not-234154706.html)
