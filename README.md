@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 10 - [Trump blames 'Clinton-appointed judge' for 'negative' outcome in E. Jean Carroll case](https://news.yahoo.com/trump-blames-clinton-appointed-judge-124710573.html)
-- May 10 - [2024 Ford Ranger revealed](https://www.autoblog.com/2024-ford-ranger-revealed-134800438.html)
-- May 10 - [Cluster of Chinese vessels spotted near Russian rig off Vietnam - ship monitors](https://news.yahoo.com/cluster-chinese-vessels-spotted-near-134041252.html)
-- May 10 - [George Santos’ Lies Finally Catch Up With Him in Stunning Indictment](https://news.yahoo.com/george-santos-custody-132106534.html)
 - May 10 - [Ford Introduces a New Gas-Powered Truck Aimed at Global Dominance](https://www.barrons.com/articles/ford-new-gas-powered-truck-stock-6885a215?siteid=yhoof2&yptr=yahoo)
+- May 10 - [Watch: Cigarette boat takes on huge surf and it doesn’t end well](https://sports.yahoo.com/watch-cigarette-boat-takes-huge-153020280.html)
+- May 10 - [Czech president: Ukraine could have our L-159 jets](https://news.yahoo.com/czech-president-ukraine-could-l-151141737.html)
+- May 10 - [Trump Lawyer Alina Habba Goes Ballistic When Dana Bash Asks About Other Sex Assault Claims](https://news.yahoo.com/trump-lawyer-alina-habba-goes-150003763.html)
+- May 10 - [Democratic US Senator Manchin says he will oppose all EPA nominees](https://news.yahoo.com/democratic-u-senator-manchin-oppose-144248668.html)
 <!-- feed end -->
