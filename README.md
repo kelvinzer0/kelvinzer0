@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 10 - [Ukrainian forces eliminate two enemy companies and liberate part of Bakhmut](https://news.yahoo.com/ukrainian-forces-eliminate-two-enemy-073800916.html)
 - May 10 - [How Sudan's paramilitary forces took parts of Khartoum, stormed army chief's quarters](https://news.yahoo.com/sudans-paramilitary-forces-took-parts-061551621.html)
 - May 10 - ['It Was Really Bad': Ex-Trump White House Press Secretary Details Harassment](https://news.yahoo.com/really-bad-ex-trump-white-055540065.html)
 - May 10 - [As more women forgo the hijab, Iran's government pushes back](https://news.yahoo.com/more-women-forgo-hijab-irans-054307762.html)
 - May 10 - [Matt Gaetz slams 2 Fox News hosts for over-sexualizing AOC and joking that he might divorce his wife and marry her instead](https://news.yahoo.com/matt-gaetz-slams-2-fox-040904448.html)
-- May 10 - [Gunman shot every customer in Detroit gas station after warning clerk, victim says](https://news.yahoo.com/gunman-shot-every-customer-detroit-002403606.html)
 <!-- feed end -->
