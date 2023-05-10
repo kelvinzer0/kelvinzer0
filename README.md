@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 10 - [Unemployment payments are 'rising five-times faster in higher income households': Economist](https://finance.yahoo.com/video/unemployment-payments-rising-five-times-194356039.html)
+- May 10 - [GOP Senator Defends White Nationalists: ‘I Call Them Americans’](https://news.yahoo.com/gop-senator-defends-white-nationalists-193609865.html)
+- May 10 - [U.S. attorney general OKs transfer of forfeited funds from Russia oligarch for use in Ukraine](https://news.yahoo.com/u-attorney-general-oks-transfer-190639495.html)
 - May 10 - [Louisiana Republicans Kill Rape, Incest Exceptions to Abortion Ban After Unhinged Hearing](https://news.yahoo.com/louisiana-republicans-kill-rape-incest-180000016.html)
 - May 10 - [Disney's governing board picked a DeSantis ally as new administrator. He'll make a $400,000 salary to oversee the governor's agenda for the district](https://news.yahoo.com/disneys-governing-board-picked-desantis-173756306.html)
-- May 10 - [Christie slams Trump’s ‘ridiculous’ response to E. Jean Carroll verdict](https://news.yahoo.com/christie-slams-trump-ridiculous-response-172844566.html)
-- May 10 - [I Just Learned About "Superfund Sites," Which Is Basically The Thing Of Nightmares And Should Probably Concern Every Single One Of You](https://news.yahoo.com/just-learned-terrifying-thing-called-171602411.html)
-- May 10 - [Autopsy: Detroit neurosurgeon shot twice in head, dragged face down into home's crawlspace](https://news.yahoo.com/autopsy-detroit-neurosurgeon-shot-twice-165757334.html)
 <!-- feed end -->
