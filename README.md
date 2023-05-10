@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 10 - [Gunman shot every customer in Detroit gas station after warning clerk, victim says](https://news.yahoo.com/gunman-shot-every-customer-detroit-002403606.html)
+- May 09 - [Migrants stranded for days on US-Mexico border seek assistance](https://news.yahoo.com/migrants-stranded-days-us-mexico-225439694.html)
 - May 09 - [Why some people are spreading false rumours about the Texas gunman](https://news.yahoo.com/why-people-spreading-false-rumours-200601714.html)
-- May 09 - [Right-Wingers Are Getting Desperate After Another Shooting By A Far-Right Extremist](https://news.yahoo.com/wingers-getting-desperate-another-shooting-222134862.html)
-- May 09 - [Schumer Says McCarthy Refused to Take Default Off the Table](https://finance.yahoo.com/video/schumer-says-mccarthy-refused-default-221547370.html)
+- May 09 - [Execution set for Florida man convicted of rapes and murders](https://news.yahoo.com/execution-set-florida-man-convicted-221935337.html)
 - May 09 - [Feds File Criminal Charges Against George Santos: Report](https://news.yahoo.com/feds-file-criminal-charges-against-213938931.html)
-- May 09 - [Trump attorney reacts to trial verdict](https://news.yahoo.com/trump-attorney-reacts-trial-verdict-210319526.html)
 <!-- feed end -->
