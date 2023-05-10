@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 10 - [To Counter China, the U.S. Is Expanding Its Footprint in the Pacific](https://finance.yahoo.com/video/counter-china-u-expanding-footprint-093000115.html)
-- May 10 - [China's aircraft carrier Shandong returns to home port after show of might](https://news.yahoo.com/chinas-aircraft-carrier-shandong-returns-085157331.html)
-- May 10 - [Ukrainian forces eliminate two enemy companies and liberate part of Bakhmut](https://news.yahoo.com/ukrainian-forces-eliminate-two-enemy-073800916.html)
+- May 10 - [Trump says CNN town hall appearance could turn into 'disaster for all'](https://news.yahoo.com/trump-says-cnn-town-hall-090854848.html)
 - May 10 - [How Sudan's paramilitary forces took parts of Khartoum, stormed army chief's quarters](https://news.yahoo.com/sudans-paramilitary-forces-took-parts-061551621.html)
 - May 10 - ['It Was Really Bad': Ex-Trump White House Press Secretary Details Harassment](https://news.yahoo.com/really-bad-ex-trump-white-055540065.html)
+- May 10 - [As more women forgo the hijab, Iran's government pushes back](https://news.yahoo.com/more-women-forgo-hijab-irans-054307762.html)
+- May 10 - [Matt Gaetz slams 2 Fox News hosts for over-sexualizing AOC and joking that he might divorce his wife and marry her instead](https://news.yahoo.com/matt-gaetz-slams-2-fox-040904448.html)
 <!-- feed end -->
