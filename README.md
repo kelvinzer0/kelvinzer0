@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 10 - [Northern lights expected Wednesday night in US. Here's where and when to see the aurora.](https://news.yahoo.com/northern-lights-expected-wednesday-night-164707383.html)
+- May 10 - [Bob Iger Chides Ron DeSantis:  Do You Want Our Biz, Taxes Or Not?; Slams Florida Governor’s “False Narrative” & Retaliation Over Don’t Say Gay Response](https://news.yahoo.com/bob-iger-chides-ron-desantis-211900540.html)
 - May 10 - [Judge who presided over Parkland school shooting trial announces resignation](https://news.yahoo.com/judge-presided-over-parkland-school-211031575.html)
 - May 10 - [COVID-19 emergency isn’t over, and the most ‘painless’ way to prevent it is being ignored, doctors warn](https://news.yahoo.com/covid-19-emergency-over-who-statement-reaction-doctors-205917048.html)
 - May 10 - [Autopsy: Detroit neurosurgeon shot twice in head, dragged face down into home's crawlspace](https://news.yahoo.com/autopsy-detroit-neurosurgeon-shot-twice-165757334.html)
-- May 10 - [Met officer suspended over OnlyFans page accused of failing to properly investigate Wayne Couzens](https://news.yahoo.com/met-officer-suspended-over-onlyfans-201914061.html)
 <!-- feed end -->
