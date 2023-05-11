@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 11 - [Russian woman who left note on grave of Putin's parents convicted amid dissent crackdown](https://news.yahoo.com/russian-woman-left-note-grave-173622428.html)
+- May 11 - [Adidas Finally Decides What To Do With 'Millions' Of Kanye West's Shoes After Cutting Ties With Rapper](https://www.thestreet.com/investing/stocks/adidas-finally-decides-millions-of-kanye-wests-shoes-after-cutting-ties-rapper?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 11 - [A conservative group just asked a federal court to end the student-loan payment pause immediately — partly because 'some junior associates at major law firms saw their six-figure salaries increase' during the pandemic](https://news.yahoo.com/conservative-group-just-asked-federal-165245679.html)
 - May 11 - [Northern lights expected Thursday night in US. Here's where and when to see the aurora.](https://news.yahoo.com/northern-lights-expected-wednesday-night-164707383.html)
 - May 11 - [Body of missing pregnant woman found; police make arrest in her murder and kidnapping](https://news.yahoo.com/body-missing-jackson-county-pregnant-214534440.html)
-- May 11 - [Eagles' Jalen Carter named in $40M lawsuit by father of Georgia teammate who died in fatal January crash](https://sports.yahoo.com/eagles-jalen-carter-named-in-40m-lawsuit-by-father-of-georgia-teammate-who-died-in-fatal-january-crash-155246833.html)
-- May 11 - [Dramatic video shows a Russian soldier being shot at by his own side as he tries to surrender to a drone, Ukrainian official says](https://news.yahoo.com/dramatic-video-shows-russian-soldier-154139298.html)
-- May 11 - [CNN Boss Doubles Down on Disastrous Trump Town Hall](https://news.yahoo.com/cnn-boss-doubles-down-disastrous-143024797.html)
 <!-- feed end -->
