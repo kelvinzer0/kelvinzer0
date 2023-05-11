@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 11 - [‘It took 20 years to build Bud Light’s reputation, now it’s destroyed’](https://news.yahoo.com/took-20-years-build-bud-102631971.html)
 - May 11 - [How spies took down Putin’s most insidious weapon against the West](https://finance.yahoo.com/news/spies-took-down-putin-most-083200678.html)
 - May 11 - [Constituent Asks Rep. Lauren Boebert If Her Gun Idea Is A ‘Cruel Joke’](https://news.yahoo.com/constituent-asks-rep-lauren-boebert-081207205.html)
 - May 11 - [Tucker Carlson Sends Startlingly Self-Aware Text Message To Journalist](https://news.yahoo.com/tucker-carlson-sends-startlingly-self-073031608.html)
-- May 11 - [Nato has an enemy within, and he’s heading for a fall](https://news.yahoo.com/nato-enemy-within-heading-fall-050000653.html)
-- May 11 - [Toe-curlingly bad television: Trump’s torturous town hall backfires on CNN](https://news.yahoo.com/toe-curlingly-bad-television-trump-044854178.html)
+- May 11 - [New York Daily News Hits Rep. George Santos With Damning Cover](https://news.yahoo.com/york-daily-news-hits-rep-065525112.html)
 <!-- feed end -->
