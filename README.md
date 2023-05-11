@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 11 - [CNN town hall audience laughs at sexual assault as Trump reminds us how awful he is](https://news.yahoo.com/cnn-town-hall-audience-laughs-020717796.html)
+- May 11 - [Dutch suspect in Natalee Holloway disappearance will be sent from Peru to US to face fraud charges](https://news.yahoo.com/peru-suspect-2005-disappearance-natalee-011650374.html)
+- May 11 - [Police release body cam footage showing fatal shooting of woman in Hyde Park, New York](https://news.yahoo.com/police-release-body-cam-footage-011626988.html)
 - May 11 - [Northern lights expected Wednesday night in US. Here's where and when to see the aurora.](https://news.yahoo.com/northern-lights-expected-wednesday-night-164707383.html)
 - May 11 - [Donald Trump Doubles Down on Election Lies in CNN Town Hall: ‘Unless You’re a Stupid Person, You Saw What Happened’](https://news.yahoo.com/cnn-donald-trump-town-hall-002329438.html)
-- May 10 - [Toronto man talks about how ‘California Asians are built differently’ than other North American Asians: ‘You guys set the tone for the rest of us’](https://news.yahoo.com/toronto-man-talks-california-asians-234649248.html)
-- May 10 - [Disney CEO Fires Back at Florida's DeSantis, Makes Clear Threat](https://www.thestreet.com/travel/disney-ceo-fires-back-at-floridas-desantis-makes-clear-threat?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 10 - [Surprise drone attacks hint at how Ukraine is going after Russia's missile 'chokepoints'](https://news.yahoo.com/surprise-drone-attacks-hint-ukraine-220700169.html)
 <!-- feed end -->
