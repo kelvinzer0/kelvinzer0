@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 11 - [Northern lights expected Thursday night in US. Here's where and when to see the aurora.](https://news.yahoo.com/northern-lights-expected-wednesday-night-164707383.html)
+- May 11 - [Body of missing pregnant woman found; police make arrest in her murder and kidnapping](https://news.yahoo.com/body-missing-jackson-county-pregnant-214534440.html)
+- May 11 - [Eagles' Jalen Carter named in $40M lawsuit by father of Georgia teammate who died in fatal January crash](https://sports.yahoo.com/eagles-jalen-carter-named-in-40m-lawsuit-by-father-of-georgia-teammate-who-died-in-fatal-january-crash-155246833.html)
+- May 11 - [Dramatic video shows a Russian soldier being shot at by his own side as he tries to surrender to a drone, Ukrainian official says](https://news.yahoo.com/dramatic-video-shows-russian-soldier-154139298.html)
 - May 11 - [CNN Boss Doubles Down on Disastrous Trump Town Hall](https://news.yahoo.com/cnn-boss-doubles-down-disastrous-143024797.html)
-- May 11 - [Ukrainian counter-offensive 'in full swing'](https://news.yahoo.com/ukraine-russia-war-latest-kremlin-065456920.html)
-- May 11 - [‘Rare’ creature with ‘secretive lifestyle’ discovered as new species in Middle East](https://news.yahoo.com/rare-creature-secretive-lifestyle-discovered-133701431.html)
-- May 11 - [All-wheel-drive Volkswagen ID.7 GTX previewed ahead of Munich debut](https://www.autoblog.com/2023/05/11/vw-id7-gtx-awd-preview/)
 <!-- feed end -->
