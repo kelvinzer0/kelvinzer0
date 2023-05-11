@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 11 - [Fox News Host Trashes House GOP Probe Of Biden](https://news.yahoo.com/fox-news-host-trashes-house-180135095.html)
+- May 11 - [Clarence Thomas, who accepted lavish gifts from a billionaire, argued that a law prohibiting taking bribes is too vague to be fairly enforced](https://news.yahoo.com/clarence-thomas-accepted-lavish-gifts-180010796.html)
+- May 11 - [Supreme Court throws out convictions in sweeping New York corruption probe](https://news.yahoo.com/supreme-court-throws-convictions-sweeping-174700836.html)
 - May 11 - [Russian woman who left note on grave of Putin's parents convicted amid dissent crackdown](https://news.yahoo.com/russian-woman-left-note-grave-173622428.html)
-- May 11 - [Adidas Finally Decides What To Do With 'Millions' Of Kanye West's Shoes After Cutting Ties With Rapper](https://www.thestreet.com/investing/stocks/adidas-finally-decides-millions-of-kanye-wests-shoes-after-cutting-ties-rapper?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 11 - [A conservative group just asked a federal court to end the student-loan payment pause immediately — partly because 'some junior associates at major law firms saw their six-figure salaries increase' during the pandemic](https://news.yahoo.com/conservative-group-just-asked-federal-165245679.html)
-- May 11 - [Northern lights expected Thursday night in US. Here's where and when to see the aurora.](https://news.yahoo.com/northern-lights-expected-wednesday-night-164707383.html)
-- May 11 - [Body of missing pregnant woman found; police make arrest in her murder and kidnapping](https://news.yahoo.com/body-missing-jackson-county-pregnant-214534440.html)
+- May 11 - [Ukraine's Storm Shadow Missiles Are A Big Problem For Russia](https://news.yahoo.com/ukraines-storm-shadow-missiles-big-171346915.html)
 <!-- feed end -->
