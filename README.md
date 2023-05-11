@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 11 - [Justice Dept. seeks to put Trump deposition on hold in case of FBI agent fired over text messages](https://news.yahoo.com/justice-dept-seeks-put-trump-215624025.html)
+- May 11 - [They built a new life near Charlotte after Jan. 6. Now, husband, wife are going to prison.](https://news.yahoo.com/built-life-near-charlotte-jan-215251386.html)
 - May 11 - [Trump's comments on Mar-a-Lago documents 'like red meat to a prosecutor'](https://news.yahoo.com/trumps-comments-mar-lago-documents-205929399.html)
+- May 11 - [Woman's death by stray bullet authorities say Texas neighbor fired called 'senseless crime'](https://news.yahoo.com/womans-death-stray-bullet-authorities-204509399.html)
 - May 11 - [Elliot Page, in shirtless photo, celebrates the 'joy' he feels in his trans body, and the end of 'dysphoria.' Here's what it all means.](https://news.yahoo.com/elliot-page-shirtless-photo-celebrates-204413773.html)
-- May 11 - [A woman who smoked up to a pack of cigarettes a day found them 'disgusting' when she started taking Ozempic. Now she hasn't smoked in 6 months.](https://news.yahoo.com/woman-smoked-pack-cigarettes-day-195559239.html)
-- May 11 - [E. Jean Carroll’s attorney says she may sue Trump again over CNN town hall comments](https://news.yahoo.com/e-jean-carroll-attorney-says-195316843.html)
-- May 11 - [Colombian migrants deported from U.S. tell of disappointment](https://news.yahoo.com/colombian-migrants-deported-u-tell-193547285.html)
 <!-- feed end -->
