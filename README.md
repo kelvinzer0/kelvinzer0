@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 11 - [Twitter: Elon Musk announces hiring of a new full-time CEO](https://finance.yahoo.com/video/twitter-elon-musk-announces-hiring-203944311.html)
+- May 11 - [A woman who smoked up to a pack of cigarettes a day found them 'disgusting' when she started taking Ozempic. Now she hasn't smoked in 6 months.](https://news.yahoo.com/woman-smoked-pack-cigarettes-day-195559239.html)
+- May 11 - [E. Jean Carroll’s attorney says she may sue Trump again over CNN town hall comments](https://news.yahoo.com/e-jean-carroll-attorney-says-195316843.html)
 - May 11 - [44 hours with my baby: I carried a nonviable pregnancy to term after Roe v. Wade was overturned](https://news.yahoo.com/44-hours-baby-carried-nonviable-185353354.html)
 - May 11 - [Charlie Munger pockets $70,000 a year from a $1,000 investment he made in 1962 - and has likely raked in over $1 million in total](https://finance.yahoo.com/news/charlie-munger-pockets-70-000-185148690.html)
-- May 11 - [Mr.Beast responds to backlash over reports he's been buying up an entire neighborhood for family, friends, and employees: 'I was just helping some people'](https://news.yahoo.com/mr-beast-responds-backlash-over-185050562.html)
-- May 11 - [Fox News Host Trashes House GOP Probe Of Biden](https://news.yahoo.com/fox-news-host-trashes-house-180135095.html)
-- May 11 - [Clarence Thomas, who accepted lavish gifts from a billionaire, argued that a law prohibiting taking bribes is too vague to be fairly enforced](https://news.yahoo.com/clarence-thomas-accepted-lavish-gifts-180010796.html)
 <!-- feed end -->
