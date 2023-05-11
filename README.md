@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 11 - [Twitter: Elon Musk announces hiring of a new full-time CEO](https://finance.yahoo.com/video/twitter-elon-musk-announces-hiring-203944311.html)
+- May 11 - [Trump's comments on Mar-a-Lago documents 'like red meat to a prosecutor'](https://news.yahoo.com/trumps-comments-mar-lago-documents-205929399.html)
+- May 11 - [Elliot Page, in shirtless photo, celebrates the 'joy' he feels in his trans body, and the end of 'dysphoria.' Here's what it all means.](https://news.yahoo.com/elliot-page-shirtless-photo-celebrates-204413773.html)
 - May 11 - [A woman who smoked up to a pack of cigarettes a day found them 'disgusting' when she started taking Ozempic. Now she hasn't smoked in 6 months.](https://news.yahoo.com/woman-smoked-pack-cigarettes-day-195559239.html)
 - May 11 - [E. Jean Carroll’s attorney says she may sue Trump again over CNN town hall comments](https://news.yahoo.com/e-jean-carroll-attorney-says-195316843.html)
-- May 11 - [44 hours with my baby: I carried a nonviable pregnancy to term after Roe v. Wade was overturned](https://news.yahoo.com/44-hours-baby-carried-nonviable-185353354.html)
-- May 11 - [Charlie Munger pockets $70,000 a year from a $1,000 investment he made in 1962 - and has likely raked in over $1 million in total](https://finance.yahoo.com/news/charlie-munger-pockets-70-000-185148690.html)
+- May 11 - [Colombian migrants deported from U.S. tell of disappointment](https://news.yahoo.com/colombian-migrants-deported-u-tell-193547285.html)
 <!-- feed end -->
