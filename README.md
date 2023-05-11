@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 11 - [Northern lights expected Thursday night in US. Here's where and when to see the aurora.](https://news.yahoo.com/northern-lights-expected-wednesday-night-164707383.html)
+- May 11 - [CNN Boss Doubles Down on Disastrous Trump Town Hall](https://news.yahoo.com/cnn-boss-doubles-down-disastrous-143024797.html)
+- May 11 - [Ukrainian counter-offensive 'in full swing'](https://news.yahoo.com/ukraine-russia-war-latest-kremlin-065456920.html)
 - May 11 - [‘Rare’ creature with ‘secretive lifestyle’ discovered as new species in Middle East](https://news.yahoo.com/rare-creature-secretive-lifestyle-discovered-133701431.html)
-- May 11 - [Warren Buffett gets gloomy: America's 'incredible period' is coming to an end. Here's what nervous investors can do right now](https://finance.yahoo.com/news/warren-buffett-gets-gloomy-americas-115500188.html)
-- May 11 - ['It took me 20 years to build this brand... they dismantled it in a week', says man behind Bud's iconic ads](https://news.yahoo.com/took-20-years-build-bud-102631971.html)
-- May 11 - [Justice Elena Kagan was worried about the ethics of accepting bagels from friends, while Clarence Thomas was enjoying expensive vacations paid for by a GOP megadonor: report](https://news.yahoo.com/justice-elena-kagan-worried-ethics-104559533.html)
-- May 11 - [The curious case of the Mexican white supremacist mass shooter - and what it says about America](https://news.yahoo.com/curious-case-mexican-white-supremacist-092406984.html)
+- May 11 - [All-wheel-drive Volkswagen ID.7 GTX previewed ahead of Munich debut](https://www.autoblog.com/2023/05/11/vw-id7-gtx-awd-preview/)
 <!-- feed end -->
