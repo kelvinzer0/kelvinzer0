@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 11 - [Joe Scarborough Scorches 'Most Shocking' Part Of Donald Trump's CNN Town Hall](https://news.yahoo.com/joe-scarborough-scorches-most-shocking-115909175.html)
+- May 11 - [‘Rare’ creature with ‘secretive lifestyle’ discovered as new species in Middle East](https://news.yahoo.com/rare-creature-secretive-lifestyle-discovered-133701431.html)
 - May 11 - [Warren Buffett gets gloomy: America's 'incredible period' is coming to an end. Here's what nervous investors can do right now](https://finance.yahoo.com/news/warren-buffett-gets-gloomy-americas-115500188.html)
 - May 11 - ['It took me 20 years to build this brand... they dismantled it in a week', says man behind Bud's iconic ads](https://news.yahoo.com/took-20-years-build-bud-102631971.html)
 - May 11 - [Justice Elena Kagan was worried about the ethics of accepting bagels from friends, while Clarence Thomas was enjoying expensive vacations paid for by a GOP megadonor: report](https://news.yahoo.com/justice-elena-kagan-worried-ethics-104559533.html)
-- May 11 - [Russia's Kinzhal was never an unstoppable hypersonic missile, but the Patriot shot that killed one is still 'impressive,' expert says](https://news.yahoo.com/russias-kinzhal-never-unstoppable-hypersonic-101700257.html)
+- May 11 - [The curious case of the Mexican white supremacist mass shooter - and what it says about America](https://news.yahoo.com/curious-case-mexican-white-supremacist-092406984.html)
 <!-- feed end -->
