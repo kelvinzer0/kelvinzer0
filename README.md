@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 11 - [Nato has an enemy within, and he’s heading for a fall](https://news.yahoo.com/nato-enemy-within-heading-fall-050000653.html)
-- May 11 - [Someone in Russia broke into a military airfield to set fire to a bomber jet, and Russian cops only found out it was happening on social media: report](https://news.yahoo.com/someone-russia-broke-military-airfield-041653414.html)
 - May 11 - [Suspect in Natalee Holloway disappearance faces extradition on fraud charges](https://news.yahoo.com/peru-suspect-2005-disappearance-natalee-011650374.html)
 - May 11 - [Police release body cam footage showing fatal shooting of woman in Hyde Park, New York](https://news.yahoo.com/police-release-body-cam-footage-011626988.html)
 - May 11 - [Northern lights expected Wednesday night in US. Here's where and when to see the aurora.](https://news.yahoo.com/northern-lights-expected-wednesday-night-164707383.html)
+- May 10 - [Toronto man talks about how ‘California Asians are built differently’ than other North American Asians: ‘You guys set the tone for the rest of us’](https://news.yahoo.com/toronto-man-talks-california-asians-234649248.html)
 <!-- feed end -->
