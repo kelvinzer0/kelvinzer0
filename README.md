@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 10 - [Northern lights expected Wednesday night in US. Here's where and when to see the aurora.](https://news.yahoo.com/northern-lights-expected-wednesday-night-164707383.html)
-- May 10 - [Bob Iger Chides Ron DeSantis:  Do You Want Our Biz, Taxes Or Not?; Slams Florida Governor’s “False Narrative” & Retaliation Over Don’t Say Gay Response](https://news.yahoo.com/bob-iger-chides-ron-desantis-211900540.html)
-- May 10 - [Judge who presided over Parkland school shooting trial announces resignation](https://news.yahoo.com/judge-presided-over-parkland-school-211031575.html)
-- May 10 - [COVID-19 emergency isn’t over, and the most ‘painless’ way to prevent it is being ignored, doctors warn](https://news.yahoo.com/covid-19-emergency-over-who-statement-reaction-doctors-205917048.html)
-- May 10 - [Autopsy: Detroit neurosurgeon shot twice in head, dragged face down into home's crawlspace](https://news.yahoo.com/autopsy-detroit-neurosurgeon-shot-twice-165757334.html)
+- May 11 - [Northern lights expected Wednesday night in US. Here's where and when to see the aurora.](https://news.yahoo.com/northern-lights-expected-wednesday-night-164707383.html)
+- May 11 - [Donald Trump Doubles Down on Election Lies in CNN Town Hall: ‘Unless You’re a Stupid Person, You Saw What Happened’](https://news.yahoo.com/cnn-donald-trump-town-hall-002329438.html)
+- May 10 - [Toronto man talks about how ‘California Asians are built differently’ than other North American Asians: ‘You guys set the tone for the rest of us’](https://news.yahoo.com/toronto-man-talks-california-asians-234649248.html)
+- May 10 - [Disney CEO Fires Back at Florida's DeSantis, Makes Clear Threat](https://www.thestreet.com/travel/disney-ceo-fires-back-at-floridas-desantis-makes-clear-threat?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 10 - [Surprise drone attacks hint at how Ukraine is going after Russia's missile 'chokepoints'](https://news.yahoo.com/surprise-drone-attacks-hint-ukraine-220700169.html)
 <!-- feed end -->
