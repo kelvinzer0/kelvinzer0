@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 12 - [Russia acknowledges retreat north of Bakhmut](https://news.yahoo.com/russia-acknowledges-retreat-north-bakhmut-174702013.html)
-- May 12 - [Russian Attempt to Cover Up Bakhmut Retreat Majorly Backfires](https://news.yahoo.com/russian-attempt-cover-bakhmut-retreat-165520875.html)
-- May 12 - [Oil market will 'flip to being undersupplied' in coming months, says strategist](https://finance.yahoo.com/news/oil-market-will-flip-to-being-undersupplied-in-coming-months-says-strategist-154701067.html)
-- May 12 - [Ex-correctional officer charged with sexually abusing 3 inmates in California federal prison cells](https://news.yahoo.com/ex-correctional-officer-charged-sexually-154638712.html)
-- May 12 - [GOP lawmaker: Former Trump prosecutor declines to provide details on hush-money investigation](https://news.yahoo.com/gop-lawmaker-former-trump-prosecutor-154454295.html)
+- May 12 - [Tesla owners sue, say software updates cut range by 20%, break batteries](https://www.autoblog.com/2023/05/12/tesla-owners-sue-say-software-updates-cut-range-by-20-break-batteries/)
+- May 12 - [A cop responded to a 911 call at a Florida home. The photos she took got her arrested](https://news.yahoo.com/cop-responded-911-call-florida-175457050.html)
+- May 12 - [Walt Disney Adds DeSantis and Florida to a Shameful List](https://www.thestreet.com/travel/walt-disney-adds-desantis-florida-to-a-shameful-list?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 12 - [‘Morning Joe’ Says CNN’s Town Hall Will ‘Probably’ Result in Another Lawsuit for Trump: ‘Hope That Was Worth It’ (Video)](https://news.yahoo.com/morning-joe-says-cnn-town-173916057.html)
+- May 12 - [Dead bodies litter Mount Everest because it's so dangerous and expensive to get them down — and 2023 could be the most deadly season yet](https://news.yahoo.com/dead-bodies-litter-mount-everest-165258678.html)
 <!-- feed end -->
