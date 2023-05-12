@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 12 - [GOP lawmaker: Former Trump prosecutor declined to provide details on hush-money investigation](https://news.yahoo.com/gop-lawmaker-former-trump-prosecutor-154454295.html)
-- May 12 - [Lawyers for Daniel Penny, the man who placed Jordan Neely in a fatal chokehold, have raised more than $300,000 for the former Marine on a Christian fundraising website](https://news.yahoo.com/lawyers-daniel-penny-man-placed-153535033.html)
-- May 12 - [JD Vance defends Trump's comments that Republicans should let the US default, saying the former president was giving 'political advice' and doing 'fundamentally the right thing'](https://news.yahoo.com/jd-vance-defends-trumps-comments-142719814.html)
-- May 12 - [Chinese teacher quits job after earning 10 years’ worth of salary from 1 livestream](https://news.yahoo.com/chinese-teacher-quits-job-earning-142633344.html)
-- May 12 - [Bear Grylls says he's 'embarrassed' that he used to promote being vegan and now doesn't 'go near' vegetables](https://news.yahoo.com/bear-grylls-says-hes-embarrassed-135459130.html)
+- May 12 - [Russia acknowledges retreat north of Bakhmut](https://news.yahoo.com/russia-acknowledges-retreat-north-bakhmut-174702013.html)
+- May 12 - [Russian Attempt to Cover Up Bakhmut Retreat Majorly Backfires](https://news.yahoo.com/russian-attempt-cover-bakhmut-retreat-165520875.html)
+- May 12 - [Oil market will 'flip to being undersupplied' in coming months, says strategist](https://finance.yahoo.com/news/oil-market-will-flip-to-being-undersupplied-in-coming-months-says-strategist-154701067.html)
+- May 12 - [Ex-correctional officer charged with sexually abusing 3 inmates in California federal prison cells](https://news.yahoo.com/ex-correctional-officer-charged-sexually-154638712.html)
+- May 12 - [GOP lawmaker: Former Trump prosecutor declines to provide details on hush-money investigation](https://news.yahoo.com/gop-lawmaker-former-trump-prosecutor-154454295.html)
 <!-- feed end -->
