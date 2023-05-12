@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 12 - [Russia is floating a plan to build a village for conservative Americans who want to move to a 'Christian country' and are tired of liberal ideology in the US](https://news.yahoo.com/russia-floating-plan-build-village-071609704.html)
 - May 12 - [Rep. Marjorie Taylor Greene’s Fawning Take On Donald Trump CNN Town Hall Backfires](https://news.yahoo.com/rep-marjorie-taylor-greene-fawning-065904908.html)
+- May 12 - [A Chicago woman was arrested in a series of baseball bat attacks, police say](https://news.yahoo.com/chicago-woman-arrested-series-baseball-054221811.html)
 - May 12 - [Memphis 'snake factory' transplants slither into their new home in Louisiana](https://news.yahoo.com/memphis-snake-factory-transplants-slither-051231647.html)
-- May 12 - [A YouTube influencer admitted he crashed his plane on purpose so he could boost his channel's views and clinch a sponsorship deal, DOJ says](https://news.yahoo.com/youtube-influencer-admitted-crashed-plane-032649092.html)
 - May 12 - [Report: Ryan Reynolds' bid for the NHL's Senators won't move forward](https://news.yahoo.com/nhl-ryan-reynolds-senators-bid-wont-move-forward-024654838.html)
 <!-- feed end -->
