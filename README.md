@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 11 - [A Mississippi man used a 3D printer to make machine guns. Now he's going to prison for 14 years.](https://news.yahoo.com/mississippi-man-used-3d-printer-231852122.html)
-- May 11 - [Trump to get schooled on rules after district attorney worries he'll use evidence to slam witnesses](https://news.yahoo.com/trump-schooled-rules-district-attorney-224918132.html)
+- May 12 - [Dashcam video shows motor home rolling over on I-84](https://news.yahoo.com/dashcam-video-shows-motor-home-014809605.html)
+- May 12 - [New Hampshire voters react after Trump's town hall](https://news.yahoo.com/hampshire-voters-react-trumps-town-005837348.html)
 - May 11 - [Justice Dept. seeks to put Trump deposition on hold in case of FBI agent fired over text messages](https://news.yahoo.com/justice-dept-seeks-put-trump-215624025.html)
 - May 11 - [They built a new life near Charlotte after Jan. 6. Now, husband, wife are going to prison.](https://news.yahoo.com/built-life-near-charlotte-jan-215251386.html)
-- May 11 - [Trump's comments on Mar-a-Lago documents 'like red meat to a prosecutor'](https://news.yahoo.com/trumps-comments-mar-lago-documents-205929399.html)
+- May 11 - [Woman's death by stray bullet authorities say Texas neighbor fired called 'senseless crime'](https://news.yahoo.com/womans-death-stray-bullet-authorities-204509399.html)
 <!-- feed end -->
