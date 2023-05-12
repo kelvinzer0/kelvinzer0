@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 12 - [Law school graduates turn their backs on Adams during commencement address](https://news.yahoo.com/law-school-graduates-turn-backs-212036069.html)
 - May 12 - [Details emerge of Army Special Forces’ battle with Russian mercenaries](https://news.yahoo.com/details-emerge-army-special-forces-210322011.html)
+- May 12 - [How female Ukrainian POWs are treated by Russians – eyewitness account](https://news.yahoo.com/female-ukrainian-pows-treated-russians-205800214.html)
 - May 12 - [Fatal wedding crash suspect says she 'did nothing wrong,' records show](https://news.yahoo.com/fatal-wedding-crash-suspect-says-205524206.html)
 - May 12 - [IT worker on sick leave for 15 years sues over no pay rise](https://news.yahoo.com/worker-sick-leave-15-years-205443500.html)
-- May 12 - [This California lawyer warns that you should 'never leave anything' to your kids when you die — saying it'll lead to serious financial woes. Here's why and what you should do instead](https://finance.yahoo.com/news/california-lawyer-warns-never-leave-105000300.html)
-- May 12 - [Man with a machete was acting ‘irrationally’ at a Florida store. In walked the sheriff](https://news.yahoo.com/man-machete-acting-irrationally-florida-195351555.html)
 <!-- feed end -->
