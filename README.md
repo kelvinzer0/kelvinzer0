@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 12 - [Macro guru: The US government may 'restrict your right' to pull money out of banks as panic escalates — here's what he likes for protection. Plus 2 other shockproof assets](https://finance.yahoo.com/news/macro-guru-us-government-may-113500447.html)
+- May 12 - [Ukrainian suicide drone operator outsmarts Russian soldier - video](https://news.yahoo.com/ukrainian-suicide-drone-operator-outsmarts-112700287.html)
 - May 12 - [Russia is floating a plan to build a village for conservative Americans who want to move to a 'Christian country' and are tired of liberal ideology in the US](https://news.yahoo.com/russia-floating-plan-build-village-071609704.html)
 - May 12 - [Rep. Marjorie Taylor Greene’s Fawning Take On Donald Trump CNN Town Hall Backfires](https://news.yahoo.com/rep-marjorie-taylor-greene-fawning-065904908.html)
 - May 12 - [A Chicago woman was arrested in a series of baseball bat attacks, police say](https://news.yahoo.com/chicago-woman-arrested-series-baseball-054221811.html)
-- May 12 - [Memphis 'snake factory' transplants slither into their new home in Louisiana](https://news.yahoo.com/memphis-snake-factory-transplants-slither-051231647.html)
-- May 12 - [Report: Ryan Reynolds' bid for the NHL's Senators won't move forward](https://news.yahoo.com/nhl-ryan-reynolds-senators-bid-wont-move-forward-024654838.html)
 <!-- feed end -->
