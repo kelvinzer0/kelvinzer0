@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 12 - [A YouTube influencer admitted he crashed his plane on purpose so he could boost his channel's views and clinch a sponsorship deal, DOJ says](https://news.yahoo.com/youtube-influencer-admitted-crashed-plane-032649092.html)
-- May 12 - [Tesla raises US prices for all its vehicles except Model 3](https://finance.yahoo.com/news/tesla-raises-prices-vehicles-except-030106049.html)
 - May 12 - [Report: Ryan Reynolds' bid for the NHL's Senators won't move forward](https://news.yahoo.com/nhl-ryan-reynolds-senators-bid-wont-move-forward-024654838.html)
 - May 12 - [Kaitlyn Collins Speaks Out About Her Trump Town Hall, Calling It “Major Inflection Point” In Race For President; Critics Call It Something Else Entirely](https://news.yahoo.com/kaitlyn-collins-addresses-cnn-trump-022127249.html)
 - May 12 - [Dashcam video shows motor home rolling over on I-84](https://news.yahoo.com/dashcam-video-shows-motor-home-014809605.html)
+- May 12 - [New Hampshire voters react after Trump's town hall](https://news.yahoo.com/hampshire-voters-react-trumps-town-005837348.html)
 <!-- feed end -->
