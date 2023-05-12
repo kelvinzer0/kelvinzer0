@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 12 - [Bear Grylls says he's 'embarrassed' that he used to promote being vegan and now doesn't 'go near' vegetables](https://news.yahoo.com/bear-grylls-says-hes-embarrassed-135459130.html)
 - May 12 - [Kari Lake Gives Dumbfounding Take On Donald Trump's Behavior Toward Kaitlan Collins](https://news.yahoo.com/kari-lake-gives-dumbfounding-donald-132028656.html)
 - May 12 - [‘A slow-moving car crash’: The US Education Department will send student loan bills for the first time in 3 years — but also made cuts because it's strapped for cash. What could go wrong?](https://finance.yahoo.com/news/slow-moving-car-crash-us-125000789.html)
-- May 12 - [McDonald's found liable for hot Chicken McNugget that fell from Happy Meal and burned girl](https://news.yahoo.com/mcdonalds-found-liable-hot-chicken-124622318.html)
+- May 12 - [McDonald's found liable for hot Chicken McNugget that burned girl](https://news.yahoo.com/mcdonalds-found-liable-hot-chicken-124622318.html)
 - May 12 - [Ukrainian suicide drone operator outsmarts Russian soldier - video](https://news.yahoo.com/ukrainian-suicide-drone-operator-outsmarts-112700287.html)
-- May 12 - [Rep. Marjorie Taylor Greene’s Fawning Take On Donald Trump CNN Town Hall Backfires](https://news.yahoo.com/rep-marjorie-taylor-greene-fawning-065904908.html)
 <!-- feed end -->
