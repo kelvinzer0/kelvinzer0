@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 12 - [Melania Trump's Reported Strategy for Donald Trump's Sexual Abuse Verdict Really Isn't Surprising](https://news.yahoo.com/melania-trumps-reported-strategy-donald-184837437.html)
-- May 12 - [Tesla owners sue, say software updates cut range by 20%, break batteries](https://www.autoblog.com/2023/05/12/tesla-owners-sue-say-software-updates-cut-range-by-20-break-batteries/)
-- May 12 - [When Jamie Dimon speaks, Wall Street listens - and he just warned of catastrophe](https://finance.yahoo.com/news/jamie-dimon-speaks-wall-street-181000047.html)
-- May 12 - [A cop responded to a 911 call at a Florida home. The photos she took got her arrested](https://news.yahoo.com/cop-responded-911-call-florida-175457050.html)
-- May 12 - [Walt Disney Adds DeSantis and Florida to a Shameful List](https://www.thestreet.com/travel/walt-disney-adds-desantis-florida-to-a-shameful-list?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 12 - [Hundreds of police among mourners for slain Wisconsin deputy sheriff](https://news.yahoo.com/hundreds-police-among-mourners-slain-202231795.html)
+- May 12 - [Man with a machete was acting ‘irrationally’ at a Florida store. In walked the sheriff](https://news.yahoo.com/man-machete-acting-irrationally-florida-195351555.html)
+- May 12 - [Florida Governor Ron DeSantis Bans CBDCs in the State](https://finance.yahoo.com/news/florida-governor-ron-desantis-bans-193615323.html)
+- May 12 - [Cops hoping to spot lurking mountain lion set up camera. Something menacing appeared](https://news.yahoo.com/cops-hoping-spot-lurking-mountain-192123450.html)
+- May 12 - [Biggest-ever Colombian narco sub intercepted](https://news.yahoo.com/biggest-ever-colombian-narco-sub-191553216.html)
 <!-- feed end -->
