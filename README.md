@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 12 - [Melania Trump's Reported Strategy for Donald Trump's Sexual Abuse Verdict Really Isn't Surprising](https://news.yahoo.com/melania-trumps-reported-strategy-donald-184837437.html)
 - May 12 - [Tesla owners sue, say software updates cut range by 20%, break batteries](https://www.autoblog.com/2023/05/12/tesla-owners-sue-say-software-updates-cut-range-by-20-break-batteries/)
+- May 12 - [When Jamie Dimon speaks, Wall Street listens - and he just warned of catastrophe](https://finance.yahoo.com/news/jamie-dimon-speaks-wall-street-181000047.html)
 - May 12 - [A cop responded to a 911 call at a Florida home. The photos she took got her arrested](https://news.yahoo.com/cop-responded-911-call-florida-175457050.html)
 - May 12 - [Walt Disney Adds DeSantis and Florida to a Shameful List](https://www.thestreet.com/travel/walt-disney-adds-desantis-florida-to-a-shameful-list?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 12 - [‘Morning Joe’ Says CNN’s Town Hall Will ‘Probably’ Result in Another Lawsuit for Trump: ‘Hope That Was Worth It’ (Video)](https://news.yahoo.com/morning-joe-says-cnn-town-173916057.html)
-- May 12 - [Dead bodies litter Mount Everest because it's so dangerous and expensive to get them down — and 2023 could be the most deadly season yet](https://news.yahoo.com/dead-bodies-litter-mount-everest-165258678.html)
 <!-- feed end -->
