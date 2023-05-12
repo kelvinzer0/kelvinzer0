@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 12 - [Dashcam video shows motor home rolling over on I-84](https://news.yahoo.com/dashcam-video-shows-motor-home-014809605.html)
+- May 12 - [Anderson Cooper Blasted for ‘Gaslighting’ Viewers in Defense of CNN Trump Town Hall](https://news.yahoo.com/anderson-cooper-blasted-gaslighting-viewers-014629933.html)
 - May 12 - [New Hampshire voters react after Trump's town hall](https://news.yahoo.com/hampshire-voters-react-trumps-town-005837348.html)
 - May 11 - [Justice Dept. seeks to put Trump deposition on hold in case of FBI agent fired over text messages](https://news.yahoo.com/justice-dept-seeks-put-trump-215624025.html)
-- May 11 - [They built a new life near Charlotte after Jan. 6. Now, husband, wife are going to prison.](https://news.yahoo.com/built-life-near-charlotte-jan-215251386.html)
 - May 11 - [Woman's death by stray bullet authorities say Texas neighbor fired called 'senseless crime'](https://news.yahoo.com/womans-death-stray-bullet-authorities-204509399.html)
+- May 11 - [Elliot Page, in shirtless photo, celebrates the 'joy' he feels in his trans body, and the end of 'dysphoria.' Here's what it all means.](https://news.yahoo.com/elliot-page-shirtless-photo-celebrates-204413773.html)
 <!-- feed end -->
