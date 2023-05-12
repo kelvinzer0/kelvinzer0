@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 12 - [Southwest pilots vote to authorize strike ahead of summer travel season](https://finance.yahoo.com/video/southwest-pilots-vote-authorize-strike-154315577.html)
+- May 12 - [GOP lawmaker: Former Trump prosecutor declined to provide details on hush-money investigation](https://news.yahoo.com/gop-lawmaker-former-trump-prosecutor-154454295.html)
+- May 12 - [Lawyers for Daniel Penny, the man who placed Jordan Neely in a fatal chokehold, have raised more than $300,000 for the former Marine on a Christian fundraising website](https://news.yahoo.com/lawyers-daniel-penny-man-placed-153535033.html)
 - May 12 - [JD Vance defends Trump's comments that Republicans should let the US default, saying the former president was giving 'political advice' and doing 'fundamentally the right thing'](https://news.yahoo.com/jd-vance-defends-trumps-comments-142719814.html)
 - May 12 - [Chinese teacher quits job after earning 10 years’ worth of salary from 1 livestream](https://news.yahoo.com/chinese-teacher-quits-job-earning-142633344.html)
 - May 12 - [Bear Grylls says he's 'embarrassed' that he used to promote being vegan and now doesn't 'go near' vegetables](https://news.yahoo.com/bear-grylls-says-hes-embarrassed-135459130.html)
-- May 12 - [Kari Lake Gives Dumbfounding Take On Donald Trump's Behavior Toward Kaitlan Collins](https://news.yahoo.com/kari-lake-gives-dumbfounding-donald-132028656.html)
 <!-- feed end -->
