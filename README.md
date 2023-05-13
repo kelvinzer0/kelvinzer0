@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 13 - [People Who Work In Customer Service — Tell Us The Dumbest Thing A Customer Has Ever Asked You For](https://news.yahoo.com/tell-us-dumbest-most-mind-001602635.html)
 - May 13 - [How Putin Walked Right Into an Election Sex Tape Scandal](https://news.yahoo.com/putin-walked-election-sex-tape-001103820.html)
 - May 12 - [Florida mom whose teen son stabbed cheerleader 114 times sentenced for evidence tampering after washing blood from his jeans](https://news.yahoo.com/florida-mom-whose-teen-son-233230448.html)
+- May 12 - [Army officer says squatter moved into her DeKalb home while she was on duty, now she can’t evict him](https://news.yahoo.com/army-officer-says-squatter-moved-232411687.html)
 - May 12 - [Woman Arrested in Connection to Kim Kardashian Look-Alike Christina Ashten Gourkani's Death](https://news.yahoo.com/woman-arrested-connection-kim-kardashian-225400473.html)
-- May 12 - [Law school graduates turn their backs on Adams during commencement address](https://news.yahoo.com/law-school-graduates-turn-backs-212036069.html)
-- May 12 - [Details emerge of Army Special Forces’ battle with Russian mercenaries](https://news.yahoo.com/details-emerge-army-special-forces-210322011.html)
 <!-- feed end -->
