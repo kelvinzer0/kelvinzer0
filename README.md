@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 13 - [Russia’s Air Force Has a Very Fiery Day at the Border as It Tries to Bomb Ukraine](https://news.yahoo.com/russia-air-force-very-fiery-154153925.html)
+- May 13 - [DA: Clerk at Massachusetts liquor store tried to cash $3M lottery ticket left behind by customer](https://news.yahoo.com/da-clerk-massachusetts-liquor-store-142103223.html)
+- May 13 - [Hmm! Jonathan Majors is Dating a Beloved Black Celeb...Did We Say, "Allegedly."](https://news.yahoo.com/jonathan-majors-makes-virtual-court-191400656.html)
+- May 13 - [Storm Shadow missiles in devastating strikes far behind Russian lines](https://news.yahoo.com/storm-shadow-missiles-devastating-strikes-140412697.html)
 - May 13 - [Ukraine soldiers have wondered if Russians advancing into 'certain death' in Bakhmut were on drugs. Here are 5 surprising times troops have used performance-enhancing drugs during war](https://news.yahoo.com/ukraine-soldiers-wondered-russians-advancing-124500420.html)
-- May 13 - [Rep. George Santos, who claimed he was a Jew to get elected, appeared to mock and imitate Jewish people, new audio shows](https://news.yahoo.com/rep-george-santos-claimed-jew-123129650.html)
-- May 13 - ['Boomers can't conceptualize': This college student on TikTok says older generations don't know about inflation, never had to fight for jobs — and the comments are in full support](https://finance.yahoo.com/news/boomers-cant-conceptualize-college-student-120000468.html)
-- May 13 - [Angry Ex-Staffers Speak Out on 'Pro-Choice' Democrat's Stunning Abortion Betrayal](https://news.yahoo.com/angry-ex-staffers-speak-pro-120000340.html)
-- May 13 - [Steve Bannon 'swatted' again. The right-wing commentator was live-broadcasting his 'War Room' podcast when the police raided his home.](https://news.yahoo.com/steve-bannon-swatted-again-wing-093719842.html)
 <!-- feed end -->
