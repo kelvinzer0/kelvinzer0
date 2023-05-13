@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 13 - [No increase in migrants at the border after Title 42 expiration, Biden administration says](https://news.yahoo.com/no-increase-migrants-border-title-122247727.html)
+- May 13 - [Ukraine soldiers have wondered if Russians advancing into 'certain death' in Bakhmut were on drugs. Here are 5 surprising times troops have used performance-enhancing drugs during war](https://news.yahoo.com/ukraine-soldiers-wondered-russians-advancing-124500420.html)
+- May 13 - [Rep. George Santos, who claimed he was a Jew to get elected, appeared to mock and imitate Jewish people, new audio shows](https://news.yahoo.com/rep-george-santos-claimed-jew-123129650.html)
 - May 13 - [Russia says Ukraine used Storm Shadow missiles from Britain to attack Luhansk](https://news.yahoo.com/russia-says-ukraine-used-storm-121554517.html)
-- May 13 - [Funeral of top Islamic Jihad commanders in Gaza](https://news.yahoo.com/funeral-top-islamic-jihad-commanders-120853824.html)
 - May 13 - ['Boomers can't conceptualize': This college student on TikTok says older generations don't know about inflation, never had to fight for jobs — and the comments are in full support](https://finance.yahoo.com/news/boomers-cant-conceptualize-college-student-120000468.html)
-- May 13 - [Wagner boss Prigozhin is going off the rails in Ukraine, and Putin may not have much choice but to let him, war expert says](https://news.yahoo.com/wagner-boss-prigozhin-going-off-103000757.html)
+- May 13 - [Angry Ex-Staffers Speak Out on 'Pro-Choice' Democrat's Stunning Abortion Betrayal](https://news.yahoo.com/angry-ex-staffers-speak-pro-120000340.html)
 <!-- feed end -->
