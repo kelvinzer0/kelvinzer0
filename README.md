@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 13 - [Steve Bannon 'swatted' again. The right-wing commentator was live-broadcasting his 'War Room' podcast when the police raided his home.](https://news.yahoo.com/steve-bannon-swatted-again-wing-093719842.html)
 - May 13 - [This Manager Called A Fake Meeting As A "Loyalty Test" For Employees, And People Are Absolutely Ripping Them To Shreds Online](https://news.yahoo.com/manager-called-fake-meeting-loyalty-031602611.html)
 - May 13 - [Erdogan's opponent Kilicdaroglu holds final rally](https://news.yahoo.com/erdogans-opponent-kilicdaroglu-holds-final-025358809.html)
 - May 13 - [People Who Work In Customer Service — Tell Us The Dumbest Thing A Customer Has Ever Asked You For](https://news.yahoo.com/tell-us-dumbest-most-mind-001602635.html)
 - May 12 - [Florida mom whose teen son stabbed cheerleader 114 times sentenced for evidence tampering after washing blood from his jeans](https://news.yahoo.com/florida-mom-whose-teen-son-233230448.html)
-- May 12 - [Army officer says squatter moved into her DeKalb home while she was on duty, now she can’t evict him](https://news.yahoo.com/army-officer-says-squatter-moved-232411687.html)
 <!-- feed end -->
