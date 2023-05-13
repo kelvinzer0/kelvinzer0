@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 13 - [How Putin Walked Right Into an Election Sex Tape Scandal](https://news.yahoo.com/putin-walked-election-sex-tape-001103820.html)
+- May 12 - [Florida mom whose teen son stabbed cheerleader 114 times sentenced for evidence tampering after washing blood from his jeans](https://news.yahoo.com/florida-mom-whose-teen-son-233230448.html)
+- May 12 - [Woman Arrested in Connection to Kim Kardashian Look-Alike Christina Ashten Gourkani's Death](https://news.yahoo.com/woman-arrested-connection-kim-kardashian-225400473.html)
 - May 12 - [Law school graduates turn their backs on Adams during commencement address](https://news.yahoo.com/law-school-graduates-turn-backs-212036069.html)
 - May 12 - [Details emerge of Army Special Forces’ battle with Russian mercenaries](https://news.yahoo.com/details-emerge-army-special-forces-210322011.html)
-- May 12 - [How female Ukrainian POWs are treated by Russians – eyewitness account](https://news.yahoo.com/female-ukrainian-pows-treated-russians-205800214.html)
-- May 12 - [Fatal wedding crash suspect says she 'did nothing wrong,' records show](https://news.yahoo.com/fatal-wedding-crash-suspect-says-205524206.html)
-- May 12 - [IT worker on sick leave for 15 years sues over no pay rise](https://news.yahoo.com/worker-sick-leave-15-years-205443500.html)
 <!-- feed end -->
