@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 13 - [Ukraine Situation Report: Kinzhal Missile Targeted Patriot Battery, Report Claims](https://news.yahoo.com/ukraine-situation-report-kinzhal-missile-002820356.html)
+- May 13 - [Erdogan's opponent Kilicdaroglu holds final rally](https://news.yahoo.com/erdogans-opponent-kilicdaroglu-holds-final-025358809.html)
 - May 13 - [People Who Work In Customer Service — Tell Us The Dumbest Thing A Customer Has Ever Asked You For](https://news.yahoo.com/tell-us-dumbest-most-mind-001602635.html)
 - May 13 - [How Putin Walked Right Into an Election Sex Tape Scandal](https://news.yahoo.com/putin-walked-election-sex-tape-001103820.html)
 - May 12 - [Florida mom whose teen son stabbed cheerleader 114 times sentenced for evidence tampering after washing blood from his jeans](https://news.yahoo.com/florida-mom-whose-teen-son-233230448.html)
