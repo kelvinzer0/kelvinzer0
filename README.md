@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 13 - [Ukraine says its troops are advancing in two directions in Bakhmut suburbs](https://news.yahoo.com/ukraine-says-troops-advancing-two-171700981.html)
 - May 13 - [Russia’s Air Force Has a Very Fiery Day at the Border as It Tries to Bomb Ukraine](https://news.yahoo.com/russia-air-force-very-fiery-154153925.html)
-- May 13 - [Head of Russia's crime agency suggests nationalising key parts of economy](https://news.yahoo.com/head-russias-crime-agency-suggests-153238532.html)
+- May 13 - [A 'special roll' at a sushi restaurant is blamed for killing 2 and poisoning 30 people](https://news.yahoo.com/special-roll-sushi-restaurant-blamed-152041468.html)
+- May 13 - [Delta Follows American, JetBlue Airlines In Making Unpopular Move](https://www.thestreet.com/travel/delta-follows-american-jetblue-airlines-in-cutting-flights?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - May 13 - [DA: Clerk at Massachusetts liquor store tried to cash $3M lottery ticket left behind by customer](https://news.yahoo.com/da-clerk-massachusetts-liquor-store-142103223.html)
-- May 13 - [Storm Shadow missiles in devastating strikes far behind Russian lines](https://news.yahoo.com/storm-shadow-missiles-devastating-strikes-140412697.html)
-- May 13 - [Ukraine soldiers have wondered if Russians advancing into 'certain death' in Bakhmut were on drugs. Here are 5 surprising times troops have used performance-enhancing drugs during war](https://news.yahoo.com/ukraine-soldiers-wondered-russians-advancing-124500420.html)
 <!-- feed end -->
