@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 13 - ['Boomers can't conceptualize': This college student on TikTok says older generations don't know about inflation, never had to fight for jobs — and the comments are in full support](https://finance.yahoo.com/news/boomers-cant-conceptualize-college-student-120000468.html)
+- May 13 - [Wagner boss Prigozhin is going off the rails in Ukraine, and Putin may not have much choice but to let him, war expert says](https://news.yahoo.com/wagner-boss-prigozhin-going-off-103000757.html)
 - May 13 - [Steve Bannon 'swatted' again. The right-wing commentator was live-broadcasting his 'War Room' podcast when the police raided his home.](https://news.yahoo.com/steve-bannon-swatted-again-wing-093719842.html)
-- May 13 - [This Manager Called A Fake Meeting As A "Loyalty Test" For Employees, And People Are Absolutely Ripping Them To Shreds Online](https://news.yahoo.com/manager-called-fake-meeting-loyalty-031602611.html)
-- May 13 - [Erdogan's opponent Kilicdaroglu holds final rally](https://news.yahoo.com/erdogans-opponent-kilicdaroglu-holds-final-025358809.html)
-- May 13 - [People Who Work In Customer Service — Tell Us The Dumbest Thing A Customer Has Ever Asked You For](https://news.yahoo.com/tell-us-dumbest-most-mind-001602635.html)
-- May 12 - [Florida mom whose teen son stabbed cheerleader 114 times sentenced for evidence tampering after washing blood from his jeans](https://news.yahoo.com/florida-mom-whose-teen-son-233230448.html)
+- May 13 - [4 Social Security Changes Joe Biden Wants to Make, and the 1 Insurmountable Problem He'll Encounter](https://www.fool.com/retirement/2023/05/13/4-social-security-changes-joe-biden-wants-to-make/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- May 13 - [Trump Town Hall Audience Called ‘Embarrassing’ by Their Own GOP Governor](https://news.yahoo.com/trump-town-hall-audience-called-044659726.html)
 <!-- feed end -->
