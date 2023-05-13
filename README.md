@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 13 - [Erdogan accuses opposition of working with Biden](https://news.yahoo.com/erdogan-accuses-opposition-working-biden-200856345.html)
+- May 13 - [Gigantic Fireball Explosion Rocks Town In Western Ukraine](https://news.yahoo.com/gigantic-fireball-explosion-rocks-town-200459329.html)
 - May 13 - [Biden to graduates of historically Black Howard University: US history hasn't been a 'fairy tale'](https://news.yahoo.com/biden-graduates-historically-black-howard-191244446.html)
-- May 13 - [Ukraine says its troops are advancing in two directions in Bakhmut suburbs](https://news.yahoo.com/ukraine-says-troops-advancing-two-171700981.html)
-- May 13 - [Russia’s Air Force Has a Very Fiery Day at the Border as It Tries to Bomb Ukraine](https://news.yahoo.com/russia-air-force-very-fiery-154153925.html)
-- May 13 - [A 'special roll' at a sushi restaurant is blamed for killing 2 and poisoning 30 people](https://news.yahoo.com/special-roll-sushi-restaurant-blamed-152041468.html)
-- May 13 - [A 14-year-old boy used his slingshot to fight off someone trying to kidnap his 8-year-old sister, police say](https://news.yahoo.com/14-old-boy-used-slingshot-150210474.html)
+- May 13 - [Zelensky meets Pope as Germany unveils more arms for Ukraine](https://news.yahoo.com/zelensky-meets-pope-germany-unveils-182244003.html)
+- May 13 - [American arrested in Philippines after police find his girlfriend inside water drum: report](https://news.yahoo.com/american-arrested-philippines-police-girlfriend-175404978.html)
 <!-- feed end -->
