@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 13 - [Erdogan accuses opposition of working with Biden](https://news.yahoo.com/erdogan-accuses-opposition-working-biden-200856345.html)
-- May 13 - [Gigantic Fireball Explosion Rocks Town In Western Ukraine](https://news.yahoo.com/gigantic-fireball-explosion-rocks-town-200459329.html)
-- May 13 - [Biden to graduates of historically Black Howard University: US history hasn't been a 'fairy tale'](https://news.yahoo.com/biden-graduates-historically-black-howard-191244446.html)
+- May 13 - [Massive Explosion Rocks Town In Western Ukraine](https://news.yahoo.com/gigantic-fireball-explosion-rocks-town-200459329.html)
+- May 13 - [Russian air force suffers worst losses since start of war](https://news.yahoo.com/russian-air-force-suffers-worst-195038254.html)
 - May 13 - [Zelensky meets Pope as Germany unveils more arms for Ukraine](https://news.yahoo.com/zelensky-meets-pope-germany-unveils-182244003.html)
 - May 13 - [American arrested in Philippines after police find his girlfriend inside water drum: report](https://news.yahoo.com/american-arrested-philippines-police-girlfriend-175404978.html)
+- May 13 - [Zelenskyy recalled that during his presidency, Trump did not stop the war by the Russian Federation against Ukraine](https://news.yahoo.com/zelenskyy-recalled-during-presidency-trump-172905434.html)
 <!-- feed end -->
