@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 13 - [Ukraine soldiers have wondered if Russians advancing into 'certain death' in Bakhmut were on drugs. Here are 5 surprising times troops have used performance-enhancing drugs during war](https://news.yahoo.com/ukraine-soldiers-wondered-russians-advancing-124500420.html)
 - May 13 - [Rep. George Santos, who claimed he was a Jew to get elected, appeared to mock and imitate Jewish people, new audio shows](https://news.yahoo.com/rep-george-santos-claimed-jew-123129650.html)
-- May 13 - [Russia says Ukraine used Storm Shadow missiles from Britain to attack Luhansk](https://news.yahoo.com/russia-says-ukraine-used-storm-121554517.html)
 - May 13 - ['Boomers can't conceptualize': This college student on TikTok says older generations don't know about inflation, never had to fight for jobs — and the comments are in full support](https://finance.yahoo.com/news/boomers-cant-conceptualize-college-student-120000468.html)
 - May 13 - [Angry Ex-Staffers Speak Out on 'Pro-Choice' Democrat's Stunning Abortion Betrayal](https://news.yahoo.com/angry-ex-staffers-speak-pro-120000340.html)
+- May 13 - [Steve Bannon 'swatted' again. The right-wing commentator was live-broadcasting his 'War Room' podcast when the police raided his home.](https://news.yahoo.com/steve-bannon-swatted-again-wing-093719842.html)
 <!-- feed end -->
