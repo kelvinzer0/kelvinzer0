@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 13 - [Khan's supporters welcome him home with rose petals](https://news.yahoo.com/khans-supporters-welcome-him-home-041911608.html)
 - May 13 - [This Manager Called A Fake Meeting As A "Loyalty Test" For Employees, And People Are Absolutely Ripping Them To Shreds Online](https://news.yahoo.com/manager-called-fake-meeting-loyalty-031602611.html)
-- May 13 - [People Who Work In Customer Service — Tell Us The Dumbest Thing A Customer Has Ever Asked You For](https://news.yahoo.com/tell-us-dumbest-most-mind-001602635.html)
 - May 13 - [How Putin Walked Right Into an Election Sex Tape Scandal](https://news.yahoo.com/putin-walked-election-sex-tape-001103820.html)
 - May 12 - [Florida mom whose teen son stabbed cheerleader 114 times sentenced for evidence tampering after washing blood from his jeans](https://news.yahoo.com/florida-mom-whose-teen-son-233230448.html)
+- May 12 - [Army officer says squatter moved into her DeKalb home while she was on duty, now she can’t evict him](https://news.yahoo.com/army-officer-says-squatter-moved-232411687.html)
+- May 12 - [Woman Arrested in Connection to Kim Kardashian Look-Alike Christina Ashten Gourkani's Death](https://news.yahoo.com/woman-arrested-connection-kim-kardashian-225400473.html)
 <!-- feed end -->
