@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 14 - [Drone footage shows destruction in Gaza](https://news.yahoo.com/drone-footage-shows-destruction-gaza-113305448.html)
+- May 14 - [Grant Cardone Asks How Politicians That Make $100k Suddenly Become Multimillionaires — Here’s the Harsh Reality](https://finance.yahoo.com/news/grant-cardone-asks-politicians-100k-144919056.html)
+- May 14 - [Turkey decides Erdogan's future in knife-edge vote](https://news.yahoo.com/turkey-decides-erdogans-future-knife-123732692.html)
+- May 14 - [Abbott knocks Dominion over Tucker Carlson’s departure from Fox News](https://news.yahoo.com/abbott-knocks-dominion-over-tucker-120026902.html)
 - May 14 - [Erdogan and Kilicdaroglu cast votes in Turkey](https://news.yahoo.com/erdogan-kilicdaroglu-cast-votes-turkey-112815576.html)
-- May 14 - [DNA evidence reveals family man in Australia was teenage killer who escaped Nebraska jail](https://news.yahoo.com/dna-evidence-reveals-family-man-100052589.html)
-- May 14 - [A man asked Dave Ramsey if $1,000 is enough for an emergency fund in 2023 — his response drew lots of laughter and applause. Here's why](https://finance.yahoo.com/news/man-asked-dave-ramsey-1-100000947.html)
-- May 14 - [A father traveling with his 13-year-old daughter says he was wrongly suspected of human trafficking by flight attendants](https://news.yahoo.com/father-traveling-13-old-daughter-100000403.html)
+- May 14 - [Serbia: 13,500 weapons collected in amnesty, including rocket launchers](https://news.yahoo.com/serbia-13-500-weapons-collected-111411903.html)
 <!-- feed end -->
