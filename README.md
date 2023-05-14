@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 14 - [Drone footage shows destruction in Gaza](https://news.yahoo.com/drone-footage-shows-destruction-gaza-113305448.html)
+- May 14 - [Erdogan and Kilicdaroglu cast votes in Turkey](https://news.yahoo.com/erdogan-kilicdaroglu-cast-votes-turkey-112815576.html)
+- May 14 - [DNA evidence reveals family man in Australia was teenage killer who escaped Nebraska jail](https://news.yahoo.com/dna-evidence-reveals-family-man-100052589.html)
 - May 14 - [A man asked Dave Ramsey if $1,000 is enough for an emergency fund in 2023 — his response drew lots of laughter and applause. Here's why](https://finance.yahoo.com/news/man-asked-dave-ramsey-1-100000947.html)
-- May 14 - [Fire rips through factory in southern Russia](https://news.yahoo.com/fire-rips-factory-southern-russia-094844879.html)
-- May 14 - [Four Russian aircraft downed near Ukraine - reports](https://news.yahoo.com/four-russian-aircraft-downed-near-074136547.html)
-- May 14 - [Philippines places buoys in parts of S.China Sea to assert sovereignty](https://news.yahoo.com/philippines-places-buoys-parts-china-060912640.html)
-- May 14 - [Dianne Feinstein's staff makes sure the senator never walks around the Capitol by herself out of concern for what she might say to reporters amid her declining health and old age, report says](https://news.yahoo.com/dianne-feinsteins-staff-makes-sure-030329356.html)
+- May 14 - [A father traveling with his 13-year-old daughter says he was wrongly suspected of human trafficking by flight attendants](https://news.yahoo.com/father-traveling-13-old-daughter-100000403.html)
 <!-- feed end -->
