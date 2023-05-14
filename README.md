@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 13 - [Israel, Palestinian Islamic Jihad agree to truce](https://news.yahoo.com/israel-palestinian-islamic-jihad-agree-220026610.html)
 - May 13 - [Erdogan accuses opposition of working with Biden](https://news.yahoo.com/erdogan-accuses-opposition-working-biden-200856345.html)
 - May 13 - [Massive Explosion Rocks Town In Western Ukraine](https://news.yahoo.com/gigantic-fireball-explosion-rocks-town-200459329.html)
 - May 13 - [Russian air force suffers worst losses since start of war](https://news.yahoo.com/russian-air-force-suffers-worst-195038254.html)
-- May 13 - [American arrested in Philippines after police find his girlfriend inside water drum: report](https://news.yahoo.com/american-arrested-philippines-police-girlfriend-175404978.html)
+- May 13 - [Zelenskyy recalls that during his presidency, Trump did not stop war in Ukraine](https://news.yahoo.com/zelenskyy-recalled-during-presidency-trump-172905434.html)
+- May 13 - [Ukraine says its troops are advancing in two directions in Bakhmut suburbs](https://news.yahoo.com/ukraine-says-troops-advancing-two-171700981.html)
 <!-- feed end -->
