@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 14 - [Trump Rips Enemies, Ignores Melania in Mother’s Day Post](https://news.yahoo.com/trump-rips-enemies-ignores-melania-161328403.html)
+- May 14 - [Netanyahu praises Israel's conduct in Gaza](https://news.yahoo.com/netanyahu-praises-israels-conduct-gaza-145634611.html)
+- May 14 - [Florida teacher investigated by state agency for showing Disney movie in class](https://news.yahoo.com/florida-teacher-investigated-state-agency-145210616.html)
+- May 14 - [Russian air defenses shot down Russian aircraft over Bryansk Oblast, Ukraine’s Air Force says](https://news.yahoo.com/russian-air-defenses-shot-down-142900056.html)
 - May 14 - [US homeland security chief says border crossings are down 50% since Title 42 expiration](https://news.yahoo.com/us-homeland-security-chief-says-133534515.html)
-- May 14 - [Trump Changed GOP Rules to Make Winning the Nomination Even Easier — for Trump](https://news.yahoo.com/trump-changed-gop-rules-winning-131419178.html)
-- May 14 - [Grant Cardone Asks How Politicians That Make $100k Suddenly Become Multimillionaires — Here’s the Harsh Reality](https://finance.yahoo.com/news/grant-cardone-asks-politicians-100k-144919056.html)
-- May 14 - [A monthly fee for heated seats? Car subscriptions are coming — whether Americans like them or not](https://finance.yahoo.com/news/car-subscriptions-coming-whether-americans-like-them-or-not-124614655.html)
-- May 14 - [Turkey decides Erdogan's future in knife-edge vote](https://news.yahoo.com/turkey-decides-erdogans-future-knife-123732692.html)
 <!-- feed end -->
