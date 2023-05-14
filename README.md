@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 14 - [Chris Christie Says Trump Town Hall Audience Had ‘Same Faces’ From 2016 Primary: CNN ‘Went in the Tank’ to Get Former President (Video)](https://news.yahoo.com/chris-christie-says-trump-town-183334922.html)
+- May 14 - [A couple's wedding plans were upended after their hotel room block was canceled to accommodate asylum seekers rerouted from New York City](https://news.yahoo.com/couples-wedding-plans-were-upended-173602322.html)
 - May 14 - [He likes to be, under the sea: Florida man sets record for living underwater](https://news.yahoo.com/likes-under-sea-florida-man-170019951.html)
 - May 14 - [El Salvador claims zero murders committed for a year after gang crackdown](https://news.yahoo.com/el-salvador-claims-zero-murders-163005541.html)
 - May 14 - [Trump Rips Enemies, Ignores Melania in Mother’s Day Post](https://news.yahoo.com/trump-rips-enemies-ignores-melania-161328403.html)
-- May 14 - [Angler’s 118-pound catch breaks Oklahoma record — and officials are thanking him](https://news.yahoo.com/angler-118-pound-catch-breaks-155949373.html)
-- May 14 - [Netanyahu praises Israel's conduct in Gaza](https://news.yahoo.com/netanyahu-praises-israels-conduct-gaza-145634611.html)
 <!-- feed end -->
