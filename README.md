@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 14 - [He likes to be, under the sea: Florida man sets record for living underwater](https://news.yahoo.com/likes-under-sea-florida-man-170019951.html)
+- May 14 - [El Salvador claims zero murders committed for a year after gang crackdown](https://news.yahoo.com/el-salvador-claims-zero-murders-163005541.html)
 - May 14 - [Trump Rips Enemies, Ignores Melania in Mother’s Day Post](https://news.yahoo.com/trump-rips-enemies-ignores-melania-161328403.html)
+- May 14 - [Angler’s 118-pound catch breaks Oklahoma record — and officials are thanking him](https://news.yahoo.com/angler-118-pound-catch-breaks-155949373.html)
 - May 14 - [Netanyahu praises Israel's conduct in Gaza](https://news.yahoo.com/netanyahu-praises-israels-conduct-gaza-145634611.html)
-- May 14 - [Florida teacher investigated by state agency for showing Disney movie in class](https://news.yahoo.com/florida-teacher-investigated-state-agency-145210616.html)
-- May 14 - [Russian air defenses shot down Russian aircraft over Bryansk Oblast, Ukraine’s Air Force says](https://news.yahoo.com/russian-air-defenses-shot-down-142900056.html)
-- May 14 - [US homeland security chief says border crossings are down 50% since Title 42 expiration](https://news.yahoo.com/us-homeland-security-chief-says-133534515.html)
 <!-- feed end -->
