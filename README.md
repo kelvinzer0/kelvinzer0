@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 14 - [Moldova minister says Russia's Gazprom only interested in separatist region](https://news.yahoo.com/moldova-minister-says-russias-gazprom-205939327.html)
+- May 14 - [Russian State Duma confirms information on Lukashenko's illness](https://news.yahoo.com/russian-state-duma-confirms-information-200415110.html)
 - May 14 - [Cash App founder Bob Lee was having an affair with the sister of his alleged killer, friends say](https://news.yahoo.com/cash-app-founder-bob-lee-195253685.html)
 - May 14 - [Gaza Residences Flattened by Israeli Airstrikes](https://news.yahoo.com/gaza-residences-flattened-israeli-airstrikes-193553130.html)
 - May 14 - [Nikki Haley on Trump’s Sexual Battery Verdict:  ‘I Was Not on the Jury’](https://news.yahoo.com/nikki-haley-trump-sexual-battery-185640235.html)
-- May 14 - [Chris Christie Says Trump Town Hall Audience Had ‘Same Faces’ From 2016 Primary: CNN ‘Went in the Tank’ to Get Former President (Video)](https://news.yahoo.com/chris-christie-says-trump-town-183334922.html)
-- May 14 - [A couple's wedding plans were upended after their hotel room block was canceled to accommodate asylum seekers rerouted from New York City](https://news.yahoo.com/couples-wedding-plans-were-upended-173602322.html)
 <!-- feed end -->
