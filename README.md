@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 14 - [US homeland security chief says border crossings are down 50% since Title 42 expiration](https://news.yahoo.com/us-homeland-security-chief-says-133534515.html)
+- May 14 - [Trump Changed GOP Rules to Make Winning the Nomination Even Easier — for Trump](https://news.yahoo.com/trump-changed-gop-rules-winning-131419178.html)
 - May 14 - [Grant Cardone Asks How Politicians That Make $100k Suddenly Become Multimillionaires — Here’s the Harsh Reality](https://finance.yahoo.com/news/grant-cardone-asks-politicians-100k-144919056.html)
+- May 14 - [A monthly fee for heated seats? Car subscriptions are coming — whether Americans like them or not](https://finance.yahoo.com/news/car-subscriptions-coming-whether-americans-like-them-or-not-124614655.html)
 - May 14 - [Turkey decides Erdogan's future in knife-edge vote](https://news.yahoo.com/turkey-decides-erdogans-future-knife-123732692.html)
-- May 14 - [Abbott knocks Dominion over Tucker Carlson’s departure from Fox News](https://news.yahoo.com/abbott-knocks-dominion-over-tucker-120026902.html)
-- May 14 - [Erdogan and Kilicdaroglu cast votes in Turkey](https://news.yahoo.com/erdogan-kilicdaroglu-cast-votes-turkey-112815576.html)
-- May 14 - [Serbia: 13,500 weapons collected in amnesty, including rocket launchers](https://news.yahoo.com/serbia-13-500-weapons-collected-111411903.html)
 <!-- feed end -->
