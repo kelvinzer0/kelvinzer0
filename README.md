@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 14 - [Man with blood alcohol level nearly 5x legal limit didn’t know what county he was in, police say](https://news.yahoo.com/man-blood-alcohol-level-nearly-075923038.html)
+- May 14 - [A man asked Dave Ramsey if $1,000 is enough for an emergency fund in 2023 — his response drew lots of laughter and applause. Here's why](https://finance.yahoo.com/news/man-asked-dave-ramsey-1-100000947.html)
+- May 14 - [Fire rips through factory in southern Russia](https://news.yahoo.com/fire-rips-factory-southern-russia-094844879.html)
 - May 14 - [Four Russian aircraft downed near Ukraine - reports](https://news.yahoo.com/four-russian-aircraft-downed-near-074136547.html)
 - May 14 - [Philippines places buoys in parts of S.China Sea to assert sovereignty](https://news.yahoo.com/philippines-places-buoys-parts-china-060912640.html)
 - May 14 - [Dianne Feinstein's staff makes sure the senator never walks around the Capitol by herself out of concern for what she might say to reporters amid her declining health and old age, report says](https://news.yahoo.com/dianne-feinsteins-staff-makes-sure-030329356.html)
-- May 14 - [Natalee Holloway case: Aruban guide hired by Beth Holloway says island took economic hit after disappearance](https://finance.yahoo.com/news/natalee-holloway-case-aruban-guide-002528498.html)
 <!-- feed end -->
