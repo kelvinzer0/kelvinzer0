@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 15 - [In hunting for an exit from Ukraine, Putin might just pretend Russia won](https://news.yahoo.com/hunting-exit-ukraine-putin-might-091410741.html)
+- May 15 - [Donald Trump Insults CNN's Kaitlan Collins With A Nod To The Past](https://news.yahoo.com/donald-trump-insults-cnns-kaitlan-105021254.html)
+- May 15 - [In Turkey vote, Erdogan defies forecasts of demise](https://news.yahoo.com/turkey-vote-erdogan-defies-forecasts-104420248.html)
+- May 15 - [North Korean hackers stole $721 million in cryptocurrency from Japan - Nikkei](https://news.yahoo.com/north-korean-hackers-stole-721-101853019.html)
+- May 15 - [Analysis-Tesla’s new car-making process stokes debate among industry experts](https://finance.yahoo.com/news/analysis-tesla-car-making-process-100438352.html)
 - May 15 - [Erdogan ascendant as Turkey heads for historic runoff](https://news.yahoo.com/erdogan-ascendant-turkey-heads-historic-085931026.html)
-- May 15 - [Christianity Today Editor Quotes Jesus To Explain Why He'd 'Never' Vote Trump](https://news.yahoo.com/christianity-today-editor-quotes-jesus-084237980.html)
-- May 15 - [Chile's 'firefighting goats' protect forests](https://news.yahoo.com/chiles-firefighting-goats-protect-forests-075352845.html)
-- May 15 - [Belarusian dictator Lukashenko very ill, confirms Russian official](https://news.yahoo.com/belarusian-dictator-lukashenko-very-ill-075000422.html)
 <!-- feed end -->
