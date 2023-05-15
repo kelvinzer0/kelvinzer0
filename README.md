@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 15 - [Jenny Craig closes after 40 years: Nutritionists are 'not surprised,' but some customers say they're 'heartbroken and sad'](https://news.yahoo.com/jenny-craig-closing-202808530.html)
+- May 15 - [Baghdad repairs kindle guarded optimism](https://news.yahoo.com/baghdad-repairs-kindle-guarded-optimism-202625001.html)
+- May 15 - [Trump tells former adviser Michael Flynn: 'We’re going to bring you back'](https://news.yahoo.com/trump-tells-michael-flynn-going-201504840.html)
 - May 15 - [Chicago’s Empty Office Towers Threaten Its Future as a Major Financial Hub](https://finance.yahoo.com/news/chicago-empty-towers-threaten-future-130115508.html)
 - May 15 - [Prosecutor ends probe of FBI's Trump-Russia investigation with harsh criticism, but no new charges](https://news.yahoo.com/prosecutor-ends-probe-fbis-trump-193913644.html)
-- May 15 - [Musk tells Tesla staff he must approve all hiring - the Information](https://finance.yahoo.com/news/musk-tells-tesla-staff-must-190920290.html)
-- May 15 - [A California-based woman bought 3 abandoned houses in a Sicilian village for $3.30, cashing in on Italy's desperation to repopulate its fast-emptying ghost towns](https://news.yahoo.com/california-based-woman-bought-3-185126202.html)
-- May 15 - [Connecticut high court nominee regrets signing 2017 letter supporting Amy Coney Barrett](https://news.yahoo.com/connecticut-high-court-nominee-regrets-184557142.html)
 <!-- feed end -->
