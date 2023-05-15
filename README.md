@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 15 - [MSNBC's Mehdi Hasan Hits Ron DeSantis With Absolutely Biblical Fact-Check](https://news.yahoo.com/msnbcs-mehdi-hasan-hits-ron-061852083.html)
+- May 15 - [Thai opposition claims victory as voters reject army-backed parties](https://news.yahoo.com/thai-opposition-claims-victory-voters-055821319.html)
 - May 15 - [Turkey faces runoff election with Erdogan leading](https://news.yahoo.com/turkey-faces-runoff-election-erdogan-054521825.html)
 - May 15 - [Pieces that may be from wetsuit, surfboard found after surfer attacked by shark off South Australia](https://news.yahoo.com/pieces-may-wetsuit-surfboard-found-050552394.html)
 - May 15 - [China sentences 78-year-old US citizen to life in prison on spying charges](https://news.yahoo.com/china-sentences-78-old-us-032028897.html)
-- May 15 - [China launches projects to build 'new-era' marriage, childbearing culture](https://news.yahoo.com/china-launches-projects-build-era-022018394.html)
-- May 15 - [GOP Oversight Chair Says He’s Lost Track of His Biden Corruption Informant](https://news.yahoo.com/gop-oversight-chair-says-lost-011839790.html)
 <!-- feed end -->
