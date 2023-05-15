@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 15 - [Kidnapped man’s family pays ransom, then his body is found zip-tied in alley, feds say](https://news.yahoo.com/kidnapped-man-family-pays-ransom-152947756.html)
-- May 15 - [Activision Blizzard, Microsoft $75 Billion Deal Approved by EU Regulators](https://finance.yahoo.com/video/activision-blizzard-microsoft-75-billion-164300098.html)
-- May 15 - [World's tallest woman votes in Turkey election](https://news.yahoo.com/worlds-tallest-woman-votes-turkey-150325600.html)
-- May 15 - [What the election rout means for Thai military elite](https://news.yahoo.com/election-rout-means-thai-military-145751355.html)
-- May 15 - [2023 Dodge Challenger Hellcat tune turns into a $36,000 repair bill](https://www.autoblog.com/2023/05/15/2023-dodge-challenger-hellcat-tune-turns-into-a-36000-repair-bill/)
+- May 15 - [‘I had to sleep in the car’: unshaven Elon Musk jets in to meet Macron after a night of clubbing](https://finance.yahoo.com/news/had-sleep-car-unshaven-elon-162905137.html)
+- May 15 - [After Title 42, countries beefing up border enforcement -U.S. official](https://news.yahoo.com/title-42-countries-beefing-border-161731520.html)
+- May 15 - [Diver spots something in ocean — it was a shipwreck of rare cargo from 1,800 years ago](https://news.yahoo.com/diver-spots-something-ocean-shipwreck-161209887.html)
+- May 15 - [After school shooting, Tennessee governor signs bill to shield gun firms further against lawsuits](https://news.yahoo.com/school-shooting-tennessee-governor-signs-160601488.html)
+- May 15 - [DA: Clerk at Massachusetts liquor store tried to cash $3M lottery ticket left behind by customer](https://news.yahoo.com/da-clerk-massachusetts-liquor-store-142103223.html)
 <!-- feed end -->
