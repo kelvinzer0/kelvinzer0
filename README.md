@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 15 - [Platypus returns to Australia’s oldest national park](https://news.yahoo.com/platypus-returns-australia-oldest-national-072340816.html)
+- May 15 - [Migrant crossings at border dip as U.S. ends Title 42](https://news.yahoo.com/migrant-crossings-border-dip-u-081353243.html)
 - May 15 - [MSNBC's Mehdi Hasan Hits Ron DeSantis With Absolutely Biblical Fact-Check](https://news.yahoo.com/msnbcs-mehdi-hasan-hits-ron-061852083.html)
 - May 15 - [Turkey faces runoff election with Erdogan leading](https://news.yahoo.com/turkey-faces-runoff-election-erdogan-054521825.html)
 - May 15 - [Pieces that may be from wetsuit, surfboard found after surfer attacked by shark off South Australia](https://news.yahoo.com/pieces-may-wetsuit-surfboard-found-050552394.html)
