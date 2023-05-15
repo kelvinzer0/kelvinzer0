@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 15 - [I thought I was a liberal mother, then my daughter came out as trans](https://news.yahoo.com/thought-liberal-mother-then-daughter-170000717.html)
-- May 15 - [Missouri School Goes After Student Who Filmed Teacher’s N-Word Rant](https://news.yahoo.com/missouri-school-goes-student-filmed-164817457.html)
-- May 15 - [How Turkey's election went wrong for Erdogan's rival](https://news.yahoo.com/turkeys-election-went-wrong-erdogans-163758590.html)
-- May 15 - [I’m not greedy for wanting pay rise, insists IT worker off sick for 15 years](https://news.yahoo.com/m-not-greedy-wanting-pay-163315227.html)
-- May 15 - [‘I had to sleep in the car’: unshaven Elon Musk jets in to meet Macron after a night of clubbing](https://finance.yahoo.com/news/had-sleep-car-unshaven-elon-162905137.html)
+- May 15 - [Connecticut high court nominee regrets signing 2017 letter supporting Amy Coney Barrett](https://news.yahoo.com/connecticut-high-court-nominee-regrets-184557142.html)
+- May 15 - [Bud Light Outrage Spreads to Miller Lite's New Ad Campaign](https://www.thestreet.com/retailers/miller-lites-new-ad-campaign-generates-outrage?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 15 - [Wisconsin judge allows for lawsuit against fake Trump electors to proceed](https://news.yahoo.com/wisconsin-judge-allows-lawsuit-against-184016867.html)
+- May 15 - [Two staffers in U.S. House Democrat's Virginia office attacked with baseball bat](https://news.yahoo.com/two-staffers-u-house-democrats-183428357.html)
+- May 15 - [South African army general in Moscow days after country accused of sending weapons to Russia](https://news.yahoo.com/south-african-army-general-moscow-183342450.html)
 <!-- feed end -->
