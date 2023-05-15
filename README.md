@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 15 - [Kidnapped man’s family pays ransom, then his body is found zip-tied in alley, feds say](https://news.yahoo.com/kidnapped-man-family-pays-ransom-152947756.html)
+- May 15 - [Activision Blizzard, Microsoft $75 Billion Deal Approved by EU Regulators](https://finance.yahoo.com/video/activision-blizzard-microsoft-75-billion-164300098.html)
+- May 15 - [World's tallest woman votes in Turkey election](https://news.yahoo.com/worlds-tallest-woman-votes-turkey-150325600.html)
+- May 15 - [What the election rout means for Thai military elite](https://news.yahoo.com/election-rout-means-thai-military-145751355.html)
 - May 15 - [2023 Dodge Challenger Hellcat tune turns into a $36,000 repair bill](https://www.autoblog.com/2023/05/15/2023-dodge-challenger-hellcat-tune-turns-into-a-36000-repair-bill/)
-- May 15 - [Dramatic footage shows part of Chicago-bound plane's landing gear snap off during touchdown](https://news.yahoo.com/dramatic-footage-shows-part-chicago-142419207.html)
-- May 15 - [Intuit, H&R Block stocks fall as IRS considers creating its own tax prep service](https://finance.yahoo.com/video/intuit-h-r-block-stocks-141540939.html)
-- May 15 - [The IRS Might Owe You $900: But Time Is Running Out To Claim Your Money](https://finance.yahoo.com/news/irs-might-owe-900-time-135843990.html)
-- May 15 - [Putin is on the ropes. Britain can prepare Ukraine for the final blow](https://news.yahoo.com/putin-ropes-britain-prepare-ukraine-135809264.html)
 <!-- feed end -->
