@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 15 - [Groom attends celebration of life for bride killed in wedding night crash in SC](https://news.yahoo.com/groom-attends-celebration-life-bride-102954809.html)
-- May 15 - [Cult deaths should have been prevented: Kenya's Ruto](https://news.yahoo.com/cult-deaths-prevented-kenyas-ruto-124248047.html)
-- May 15 - [Large alligator on Florida beach was suspiciously still. It wasn’t what it seemed](https://news.yahoo.com/large-alligator-florida-beach-suspiciously-121614498.html)
-- May 15 - [Turkey faces election runoff with Erdogan in the lead](https://news.yahoo.com/turkey-faces-election-runoff-erdogan-120719314.html)
-- May 15 - [Twitter's new CEO Linda Yaccarino is so influential at work that some loyal staffers mimicked her fashion sense and mannerisms, new report says](https://news.yahoo.com/twitters-ceo-linda-yaccarino-influential-111015775.html)
+- May 15 - [Folly Beach community joins groom for celebration of life for bride killed in wedding night crash](https://news.yahoo.com/groom-attends-celebration-life-bride-102954809.html)
+- May 15 - [Tourist on a boat that capsized in Egypt knew something was wrong when he woke up to fish swimming outside his window, report says](https://news.yahoo.com/tourist-boat-capsized-egypt-knew-124435005.html)
+- May 15 - [Co-workers could bear costs of accommodating religious employees in the workplace if Supreme Court tosses out 46-year-old precedent](https://news.yahoo.com/co-workers-could-bear-costs-123301577.html)
+- May 15 - [Donald Trump Insults CNN's Kaitlan Collins With A Nod To The Past](https://news.yahoo.com/donald-trump-insults-cnns-kaitlan-105021254.html)
+- May 15 - [The manager of a Popeyes franchise 'screamed' obscenities at federal investigators and slammed the kitchen door so hard it shook the building, the Labor Department said](https://news.yahoo.com/manager-popeyes-franchise-screamed-obscenities-104819744.html)
 <!-- feed end -->
