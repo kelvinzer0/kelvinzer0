@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 15 - [Folly Beach community joins groom for celebration of life for bride killed in wedding night crash](https://news.yahoo.com/groom-attends-celebration-life-bride-102954809.html)
-- May 15 - [Tourist on a boat that capsized in Egypt knew something was wrong when he woke up to fish swimming outside his window, report says](https://news.yahoo.com/tourist-boat-capsized-egypt-knew-124435005.html)
-- May 15 - [Co-workers could bear costs of accommodating religious employees in the workplace if Supreme Court tosses out 46-year-old precedent](https://news.yahoo.com/co-workers-could-bear-costs-123301577.html)
-- May 15 - [Donald Trump Insults CNN's Kaitlan Collins With A Nod To The Past](https://news.yahoo.com/donald-trump-insults-cnns-kaitlan-105021254.html)
-- May 15 - [The manager of a Popeyes franchise 'screamed' obscenities at federal investigators and slammed the kitchen door so hard it shook the building, the Labor Department said](https://news.yahoo.com/manager-popeyes-franchise-screamed-obscenities-104819744.html)
+- May 15 - [2023 Dodge Challenger Hellcat tune turns into a $36,000 repair bill](https://www.autoblog.com/2023/05/15/2023-dodge-challenger-hellcat-tune-turns-into-a-36000-repair-bill/)
+- May 15 - [Dramatic footage shows part of Chicago-bound plane's landing gear snap off during touchdown](https://news.yahoo.com/dramatic-footage-shows-part-chicago-142419207.html)
+- May 15 - [Intuit, H&R Block stocks fall as IRS considers creating its own tax prep service](https://finance.yahoo.com/video/intuit-h-r-block-stocks-141540939.html)
+- May 15 - [The IRS Might Owe You $900: But Time Is Running Out To Claim Your Money](https://finance.yahoo.com/news/irs-might-owe-900-time-135843990.html)
+- May 15 - [Putin is on the ropes. Britain can prepare Ukraine for the final blow](https://news.yahoo.com/putin-ropes-britain-prepare-ukraine-135809264.html)
 <!-- feed end -->
