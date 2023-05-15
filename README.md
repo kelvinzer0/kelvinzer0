@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 15 - [Wagner Boss Offered to Sell Out Russian Troops to Ukraine, Report Says](https://news.yahoo.com/wagner-boss-offered-sell-russian-005541240.html)
+- May 15 - [France promises Zelensky weapons after EU honours Ukraine fight 'for Europe'](https://news.yahoo.com/france-promises-zelensky-weapons-eu-013635733.html)
+- May 15 - [GOP Oversight Chair Says He’s Lost Track of His Biden Corruption Informant](https://news.yahoo.com/gop-oversight-chair-says-lost-011839790.html)
+- May 15 - [Amid feud with Putin, Wagner mercenary leader offered Ukrainians the locations of invading troops in exchange for sparing his for-hire army, leaked documents reveal](https://news.yahoo.com/amid-feud-putin-wagner-mercenary-005855176.html)
+- May 15 - [MyPillow CEO Mike Lindell asked supporters to buy stock in his online channel because his campaign to overturn the 2020 presidential election cost him $40M](https://news.yahoo.com/mypillow-ceo-mike-lindell-asked-004507104.html)
 - May 14 - [Thai opposition crush military parties in election](https://news.yahoo.com/thai-opposition-crush-military-parties-235241317.html)
-- May 14 - [Russia says European armed forces treaty contrary to its security interests](https://news.yahoo.com/russia-says-european-armed-forces-231413826.html)
-- May 14 - [Fraternity brothers rushed to help UGA student crushed by tree, mother says](https://news.yahoo.com/fraternity-brothers-rushed-help-uga-230027315.html)
-- May 14 - [Turkey faces runoff election for president](https://news.yahoo.com/turkey-faces-runoff-election-president-224931958.html)
 <!-- feed end -->
