@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 15 - [Platypus returns to Australia’s oldest national park](https://news.yahoo.com/platypus-returns-australia-oldest-national-072340816.html)
 - May 15 - [MSNBC's Mehdi Hasan Hits Ron DeSantis With Absolutely Biblical Fact-Check](https://news.yahoo.com/msnbcs-mehdi-hasan-hits-ron-061852083.html)
-- May 15 - [Thai opposition claims victory as voters reject army-backed parties](https://news.yahoo.com/thai-opposition-claims-victory-voters-055821319.html)
 - May 15 - [Turkey faces runoff election with Erdogan leading](https://news.yahoo.com/turkey-faces-runoff-election-erdogan-054521825.html)
 - May 15 - [Pieces that may be from wetsuit, surfboard found after surfer attacked by shark off South Australia](https://news.yahoo.com/pieces-may-wetsuit-surfboard-found-050552394.html)
-- May 15 - [China sentences 78-year-old US citizen to life in prison on spying charges](https://news.yahoo.com/china-sentences-78-old-us-032028897.html)
+- May 15 - [Jen Psaki Tears Apart Several Republicans Over Takes On Trump Verdict](https://news.yahoo.com/jen-psaki-tears-apart-several-050049694.html)
 <!-- feed end -->
