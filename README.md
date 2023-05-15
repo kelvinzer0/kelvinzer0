@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 15 - [I thought I was a liberal mother, then my daughter came out as trans](https://news.yahoo.com/thought-liberal-mother-then-daughter-170000717.html)
+- May 15 - [Missouri School Goes After Student Who Filmed Teacher’s N-Word Rant](https://news.yahoo.com/missouri-school-goes-student-filmed-164817457.html)
+- May 15 - [How Turkey's election went wrong for Erdogan's rival](https://news.yahoo.com/turkeys-election-went-wrong-erdogans-163758590.html)
+- May 15 - [I’m not greedy for wanting pay rise, insists IT worker off sick for 15 years](https://news.yahoo.com/m-not-greedy-wanting-pay-163315227.html)
 - May 15 - [‘I had to sleep in the car’: unshaven Elon Musk jets in to meet Macron after a night of clubbing](https://finance.yahoo.com/news/had-sleep-car-unshaven-elon-162905137.html)
-- May 15 - [After Title 42, countries beefing up border enforcement -U.S. official](https://news.yahoo.com/title-42-countries-beefing-border-161731520.html)
-- May 15 - [Diver spots something in ocean — it was a shipwreck of rare cargo from 1,800 years ago](https://news.yahoo.com/diver-spots-something-ocean-shipwreck-161209887.html)
-- May 15 - [After school shooting, Tennessee governor signs bill to shield gun firms further against lawsuits](https://news.yahoo.com/school-shooting-tennessee-governor-signs-160601488.html)
-- May 15 - [DA: Clerk at Massachusetts liquor store tried to cash $3M lottery ticket left behind by customer](https://news.yahoo.com/da-clerk-massachusetts-liquor-store-142103223.html)
 <!-- feed end -->
