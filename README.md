@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 15 - [Jenny Craig closes after 40 years: Nutritionists are 'not surprised,' but some customers say they're 'heartbroken and sad'](https://news.yahoo.com/jenny-craig-closing-202808530.html)
-- May 15 - [Baghdad repairs kindle guarded optimism](https://news.yahoo.com/baghdad-repairs-kindle-guarded-optimism-202625001.html)
+- May 15 - [Berkshire Hathaway portfolio, Beam Global, Tesla: Stocks moving in after hours](https://finance.yahoo.com/video/berkshire-hathaway-portfolio-beam-global-211233359.html)
+- May 15 - [People used to fight over getting a COVID-19 vaccine. Now millions of doses are getting tossed in the trash because no one's using them.](https://news.yahoo.com/people-used-fight-over-getting-210214927.html)
+- May 15 - [Stray bullet hits bass player in head as he performs on stage, Louisiana cops say](https://news.yahoo.com/stray-bullet-hits-bass-player-203805883.html)
 - May 15 - [Trump tells former adviser Michael Flynn: 'We’re going to bring you back'](https://news.yahoo.com/trump-tells-michael-flynn-going-201504840.html)
-- May 15 - [Chicago’s Empty Office Towers Threaten Its Future as a Major Financial Hub](https://finance.yahoo.com/news/chicago-empty-towers-threaten-future-130115508.html)
-- May 15 - [Prosecutor ends probe of FBI's Trump-Russia investigation with harsh criticism, but no new charges](https://news.yahoo.com/prosecutor-ends-probe-fbis-trump-193913644.html)
+- May 15 - [Harassment Suit Against Rudy Giuliani Full of Graphic Allegations](https://news.yahoo.com/harassment-suit-against-rudy-giuliani-201012199.html)
 <!-- feed end -->
