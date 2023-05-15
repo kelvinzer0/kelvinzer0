@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 15 - [Donald Trump Insults CNN's Kaitlan Collins With A Nod To The Past](https://news.yahoo.com/donald-trump-insults-cnns-kaitlan-105021254.html)
-- May 15 - [In Turkey vote, Erdogan defies forecasts of demise](https://news.yahoo.com/turkey-vote-erdogan-defies-forecasts-104420248.html)
-- May 15 - [North Korean hackers stole $721 million in cryptocurrency from Japan - Nikkei](https://news.yahoo.com/north-korean-hackers-stole-721-101853019.html)
-- May 15 - [Analysis-Tesla’s new car-making process stokes debate among industry experts](https://finance.yahoo.com/news/analysis-tesla-car-making-process-100438352.html)
-- May 15 - [Erdogan ascendant as Turkey heads for historic runoff](https://news.yahoo.com/erdogan-ascendant-turkey-heads-historic-085931026.html)
+- May 15 - [The manager of a Popeyes franchise 'screamed' obscenities at federal investigators and slammed the kitchen door so hard it shook the building, the Labor Department said](https://news.yahoo.com/manager-popeyes-franchise-screamed-obscenities-104819744.html)
+- May 15 - [Putin’s Reportedly Had to Ban His Top Officials from Quitting as Ukraine War Falters](https://news.yahoo.com/putin-reportedly-had-ban-top-103441552.html)
+- May 15 - [Groom attends celebration of life for bride killed in wedding night crash in SC](https://news.yahoo.com/groom-attends-celebration-life-bride-102954809.html)
+- May 15 - [A 7th grader who saved his school bus after the driver passed out was the only one not distracted by his phone, report says](https://news.yahoo.com/7th-grader-saved-school-bus-100921284.html)
 <!-- feed end -->
