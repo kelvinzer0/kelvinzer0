@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [Rep. Connolly says he feels "guilty" over attack on his staffers](https://news.yahoo.com/rep-connolly-says-feels-guilty-120817197.html)
+- May 16 - [Special counsel John Durham found FBI lacked evidence to investigate Trump's 2016 campaign](https://news.yahoo.com/special-counsel-john-durham-found-120633272.html)
+- May 16 - [Russian troops taking over from Wagner in Bakhmut are abandoning their positions, Ukrainian officer claims: 'As soon as they are afraid, they just run'](https://news.yahoo.com/russian-troops-taking-over-wagner-113717110.html)
 - May 16 - [Six years trapped at sea: ‘I was beaten with barbed stingray tails and scalded by boiling water’](https://news.yahoo.com/six-years-trapped-sea-beaten-112655775.html)
-- May 16 - [A 20-year-old business class passenger is suing Emirates for $3,300, saying the plane he flew on was 'disgusting' and his seat didn't recline](https://news.yahoo.com/20-old-business-class-passenger-112124930.html)
 - May 16 - [A Tricky Game for the Kremlin? Now it is Clear what Putin is Doing — opinion](https://news.yahoo.com/tricky-game-kremlin-now-clear-112000651.html)
-- May 16 - [Humiliation for Putin’s ‘Unstoppable’ Superweapons Blasted Out of Sky by U.S. Defense System](https://news.yahoo.com/humiliation-putin-unstoppable-superweapons-blasted-102325626.html)
-- May 16 - [Cyclist Taunts Marching White Supremacists With Outstandingly Timed Heckles](https://news.yahoo.com/cyclist-taunts-marching-white-supremacists-095559007.html)
 <!-- feed end -->
