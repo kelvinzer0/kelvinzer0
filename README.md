@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [Elon Musk Names the Evil That Is Destroying San Francisco](https://www.thestreet.com/technology/elon-musk-names-the-evil-that-is-destroying-san-francisco?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 16 - [George Santos Faces Expedited House Probe Pushed by McCarthy](https://news.yahoo.com/george-santos-faces-house-expulsion-194155334.html)
 - May 16 - [Yes, Russia Is Using Ancient Tanks in Combat in Ukraine. But Not as Tanks.](https://news.yahoo.com/yes-russia-using-ancient-tanks-210600816.html)
 - May 16 - [McCarthy credits Biden with changing ‘scope’ of debt ceiling talks](https://news.yahoo.com/mccarthy-credits-biden-changing-scope-203108344.html)
 - May 16 - [Woman 'duped girlfriend into believing she was having sex with man'](https://news.yahoo.com/woman-duped-girlfriend-believing-she-202935870.html)
-- May 16 - [AP Sources: Unknown man slipped undetected inside the home of White House official](https://news.yahoo.com/unknown-man-slipped-undetected-inside-201038043.html)
-- May 16 - [George Santos Faces House Expulsion Vote That Will Force Republicans to Take a Stand](https://news.yahoo.com/george-santos-faces-house-expulsion-194155334.html)
 <!-- feed end -->
