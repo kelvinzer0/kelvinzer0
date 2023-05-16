@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [Abducted Illinois girl found after Asheville store owner recognized her from Netflix show](https://news.yahoo.com/abducted-illinois-girl-found-asheville-005402183.html)
+- May 16 - [Rudy Giuliani said he had 'a certain sexual attraction' to his 20-year-old employee and that he had kissed her on the lips, lawsuit claims](https://news.yahoo.com/rudy-giuliani-said-had-certain-024044482.html)
+- May 16 - [China's Domestic Demand Is a Major Bottleneck: JPM's Zhu](https://finance.yahoo.com/video/chinas-domestic-demand-major-bottleneck-023837407.html)
 - May 16 - [Olympic gold-medal figure skater Sarah Hughes is running for U.S. Congress](https://sports.yahoo.com/olympic-gold-medal-figure-skater-sarah-hughes-is-running-for-us-congress-022032323.html)
 - May 16 - [Belarus president and Putin ally Alexander Lukashenko appears to confirm that 4 Russian military aircraft were shot down. The Kremlin has not yet acknowledged the downed aircraft.](https://news.yahoo.com/belarus-president-putin-ally-alexander-020028172.html)
-- May 16 - [Donald Trump and Rudy Giuliani plotted to sell presidential pardons for $2 million a piece, former staffer says in lawsuit](https://news.yahoo.com/donald-trump-rudy-giuliani-plotted-014413715.html)
-- May 16 - [Ukraine has exploited Russia's monthslong 'Bakhmut fixation' as it reclaims territory and sends Russian soldiers running from the 'meat grinder,' military expert says](https://news.yahoo.com/ukraine-exploited-russias-monthslong-bakhmut-013220430.html)
-- May 16 - ['My truck won't move:' Are truckers boycotting Florida over DeSantis' new immigration law?](https://news.yahoo.com/truck-wont-move-truckers-boycotting-010156882.html)
 <!-- feed end -->
