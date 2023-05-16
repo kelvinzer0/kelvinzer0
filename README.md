@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [Dr. Phil Addresses Crowd At Rally For Death Row Inmate Richard Glossip](https://news.yahoo.com/dr-phil-addresses-crowd-rally-080256086.html)
+- May 16 - [This Hiroshima bomb survivor with a warning for G7](https://news.yahoo.com/hiroshima-bomb-survivor-warning-g7-075849583.html)
 - May 16 - [Lara Trump’s Bonkers Claim About Donald Trump Falls Apart In Just Minutes](https://news.yahoo.com/lara-trump-bonkers-claim-donald-074002823.html)
-- May 16 - [NZ hostel fire was not deliberate, police say](https://news.yahoo.com/nz-hostel-fire-not-deliberate-070535894.html)
-- May 16 - [Elon Musk issued with legal order in Epstein case](https://news.yahoo.com/elon-musk-issued-legal-order-061628917.html)
 - May 16 - [Ukraine-Russia war latest: Ukraine shoots down six 'unstoppable' hypersonic missiles](https://news.yahoo.com/ukraine-russia-war-latest-russia-061507736.html)
 - May 16 - [With eye on Ukraine, top Chinese general calls for unconventional warfare capabilities](https://news.yahoo.com/eye-ukraine-top-chinese-general-044054223.html)
 <!-- feed end -->
