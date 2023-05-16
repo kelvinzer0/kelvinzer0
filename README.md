@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [McCarthy sees little progress on U.S. debt limit talks](https://news.yahoo.com/mccarthy-sees-little-progress-u-010208315.html)
+- May 15 - [US special counsel criticizes 2016 Trump-Russia probe](https://news.yahoo.com/us-special-counsel-criticizes-2016-235540391.html)
+- May 15 - [Rudy Giuliani told an employee not to talk to the FBI and then asked for her help googling obstruction of justice, lawsuit says](https://news.yahoo.com/rudy-giuliani-told-employee-not-231942927.html)
+- May 15 - [Biden dives into debt ceiling talks, causing mini panics among his base](https://news.yahoo.com/dems-getting-2011-vibes-biden-231125999.html)
 - May 15 - [Disturbing Footage Shows Alleged Shoplifter Was Retreating When Walgreens Guard Killed Him](https://news.yahoo.com/disturbing-footage-shows-alleged-shoplifter-224114266.html)
-- May 15 - [My Minuscule Little Pea Brain Is Totally Blown After Seeing These 22 Absolutely Incredible Pictures For The Very First Time Last Week](https://news.yahoo.com/spent-literally-entire-week-looking-220229026.html)
-- May 15 - [At Least 3 People Killed, 2 Officers Injured in ‘Active Shooter’ Incident in New Mexico](https://news.yahoo.com/least-3-people-killed-2-220152258.html)
-- May 15 - [Trump reacts to Durham FBI report: ‘Scammed’](https://news.yahoo.com/trump-reacts-durham-fbi-report-213254795.html)
-- May 15 - [Georgia prosecutor fights back against Trump attempt to remove her from election probe](https://news.yahoo.com/georgia-prosecutor-fights-back-against-210644514.html)
 <!-- feed end -->
