@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 16 - [Massachusetts US Attorney Rachael Rollins to resign after Justice Department watchdog probe](https://news.yahoo.com/massachusetts-us-attorney-rachael-rollins-193149162.html)
-- May 16 - [Creeks Gush in Sierra Nevada as Melting of Historic Snowpack Intensifies](https://news.yahoo.com/creeks-gush-sierra-nevada-melting-191039002.html)
-- May 16 - [Marjorie Taylor Greene says she will move to impeach US attorney for DC](https://news.yahoo.com/marjorie-taylor-greene-says-she-181447156.html)
-- May 16 - [Former U.S. Special Forces Soldier Is Killed in Ukraine](https://news.yahoo.com/former-u-special-forces-soldier-181418991.html)
-- May 16 - [Tank assault didn’t work for Putin. Zelensky’s armoured fist will hit much harder](https://news.yahoo.com/tank-assault-didn-t-putin-173201232.html)
+- May 16 - [Yes, Russia Is Using Ancient Tanks in Combat in Ukraine. But Not as Tanks.](https://news.yahoo.com/yes-russia-using-ancient-tanks-210600816.html)
+- May 16 - [McCarthy credits Biden with changing ‘scope’ of debt ceiling talks](https://news.yahoo.com/mccarthy-credits-biden-changing-scope-203108344.html)
+- May 16 - [Woman 'duped girlfriend into believing she was having sex with man'](https://news.yahoo.com/woman-duped-girlfriend-believing-she-202935870.html)
+- May 16 - [AP Sources: Unknown man slipped undetected inside the home of White House official](https://news.yahoo.com/unknown-man-slipped-undetected-inside-201038043.html)
+- May 16 - [George Santos Faces House Expulsion Vote That Will Force Republicans to Take a Stand](https://news.yahoo.com/george-santos-faces-house-expulsion-194155334.html)
 <!-- feed end -->
