@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [Ukraine has exploited Russia's monthslong 'Bakhmut fixation' as it reclaims territory and sends Russian soldiers running from the 'meat grinder,' military expert says](https://news.yahoo.com/ukraine-exploited-russias-monthslong-bakhmut-013220430.html)
 - May 16 - [McCarthy sees little progress on U.S. debt limit talks](https://news.yahoo.com/mccarthy-sees-little-progress-u-010208315.html)
+- May 16 - ['My truck won't move:' Are truckers boycotting Florida over DeSantis' new immigration law?](https://news.yahoo.com/truck-wont-move-truckers-boycotting-010156882.html)
+- May 16 - [Abducted Illinois girl found after Asheville store owner recognized her from Netflix show](https://news.yahoo.com/abducted-illinois-girl-found-asheville-005402183.html)
 - May 15 - [US special counsel criticizes 2016 Trump-Russia probe](https://news.yahoo.com/us-special-counsel-criticizes-2016-235540391.html)
-- May 15 - [Rudy Giuliani told an employee not to talk to the FBI and then asked for her help googling obstruction of justice, lawsuit says](https://news.yahoo.com/rudy-giuliani-told-employee-not-231942927.html)
-- May 15 - [Biden dives into debt ceiling talks, causing mini panics among his base](https://news.yahoo.com/dems-getting-2011-vibes-biden-231125999.html)
-- May 15 - [Disturbing Footage Shows Alleged Shoplifter Was Retreating When Walgreens Guard Killed Him](https://news.yahoo.com/disturbing-footage-shows-alleged-shoplifter-224114266.html)
 <!-- feed end -->
