@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [Russia launches intense air raid on Kyiv](https://news.yahoo.com/russia-launches-intense-air-raid-044513642.html)
 - May 16 - [Abducted Illinois girl found after Asheville store owner recognized her from Netflix show](https://news.yahoo.com/abducted-illinois-girl-found-asheville-005402183.html)
 - May 16 - [Rudy Giuliani said he had 'a certain sexual attraction' to his 20-year-old employee and that he had kissed her on the lips, lawsuit claims](https://news.yahoo.com/rudy-giuliani-said-had-certain-024044482.html)
-- May 16 - [China's Domestic Demand Is a Major Bottleneck: JPM's Zhu](https://finance.yahoo.com/video/chinas-domestic-demand-major-bottleneck-023837407.html)
 - May 16 - [Olympic gold-medal figure skater Sarah Hughes is running for U.S. Congress](https://sports.yahoo.com/olympic-gold-medal-figure-skater-sarah-hughes-is-running-for-us-congress-022032323.html)
 - May 16 - [Belarus president and Putin ally Alexander Lukashenko appears to confirm that 4 Russian military aircraft were shot down. The Kremlin has not yet acknowledged the downed aircraft.](https://news.yahoo.com/belarus-president-putin-ally-alexander-020028172.html)
 <!-- feed end -->
