@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [Lara Trump’s Bonkers Claim About Donald Trump Falls Apart In Just Minutes](https://news.yahoo.com/lara-trump-bonkers-claim-donald-074002823.html)
+- May 16 - [NZ hostel fire was not deliberate, police say](https://news.yahoo.com/nz-hostel-fire-not-deliberate-070535894.html)
 - May 16 - [Elon Musk issued with legal order in Epstein case](https://news.yahoo.com/elon-musk-issued-legal-order-061628917.html)
-- May 16 - [Russia launches 'exceptional' air attack in Kyiv with drones, missiles](https://news.yahoo.com/russia-launches-exceptional-air-attack-060527456.html)
-- May 16 - [Russia launches intense air raid on Kyiv](https://news.yahoo.com/russia-launches-intense-air-raid-044513642.html)
-- May 16 - [Abducted Illinois girl found after Asheville store owner recognized her from Netflix show](https://news.yahoo.com/abducted-illinois-girl-found-asheville-005402183.html)
-- May 16 - [Rudy Giuliani said he had 'a certain sexual attraction' to his 20-year-old employee and that he had kissed her on the lips, lawsuit claims](https://news.yahoo.com/rudy-giuliani-said-had-certain-024044482.html)
+- May 16 - [Ukraine-Russia war latest: Ukraine shoots down six 'unstoppable' hypersonic missiles](https://news.yahoo.com/ukraine-russia-war-latest-russia-061507736.html)
+- May 16 - [With eye on Ukraine, top Chinese general calls for unconventional warfare capabilities](https://news.yahoo.com/eye-ukraine-top-chinese-general-044054223.html)
 <!-- feed end -->
