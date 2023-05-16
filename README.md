@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [Former U.S. Special Forces Soldier Is Killed in Ukraine](https://news.yahoo.com/former-u-special-forces-soldier-181418991.html)
 - May 16 - [Tank assault didn’t work for Putin. Zelensky’s armoured fist will hit much harder](https://news.yahoo.com/tank-assault-didn-t-putin-173201232.html)
-- May 16 - [Favre asks Mississippi Supreme Court to remove him from welfare lawsuit](https://news.yahoo.com/favre-asks-mississippi-supreme-court-170735296.html)
-- May 16 - [Housing expert: Sellers are ‘just bowing out’ this spring](https://finance.yahoo.com/news/housing-expert-sellers-are-just-bowing-out-this-spring-163735234.html)
-- May 16 - [I Can't Stop Thinking About Kyrsten Sinema Using Campaign Money to Fund Her Marathons](https://news.yahoo.com/cant-stop-thinking-kyrsten-sinema-163000456.html)
-- May 16 - [Man and 12-year-old boy arrested after fatal shooting at Sonic restaurant in Texas](https://news.yahoo.com/12-old-texas-boy-arrested-161418066.html)
+- May 16 - [Say goodbye to the US car market as we know it: Cheap Chinese EVs are coming](https://news.yahoo.com/goodbye-us-car-market-know-172452290.html)
+- May 16 - ['You put all your eggs in one basket,' Senator tells failed bank ex-CEO](https://news.yahoo.com/put-eggs-one-basket-senator-164715681.html)
+- May 16 - [Dad finds accused pedophile hiding in 13-year-old daughter’s closet, Illinois cops say](https://news.yahoo.com/dad-finds-accused-pedophile-hiding-164553010.html)
 <!-- feed end -->
