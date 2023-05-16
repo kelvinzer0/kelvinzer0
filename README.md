@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 16 - ['You put all your eggs in one basket,' Senator tells failed bank ex-CEO](https://news.yahoo.com/put-eggs-one-basket-senator-164715681.html)
-- May 16 - [12-year-old Texas boy arrested after fatal shooting at Sonic restaurant](https://news.yahoo.com/12-old-texas-boy-arrested-161418066.html)
-- May 16 - [Former National Security Advisor John Bolton says world leaders saw Trump as a 'laughing fool' and disputes that the ex-president could have stopped Russia's invasion of Ukraine](https://news.yahoo.com/former-national-security-advisor-john-155042519.html)
-- May 16 - [New creature - with large teeth, thick shell and scars - found in Thai riverbed](https://news.yahoo.com/creature-large-teeth-thick-shell-155025388.html)
-- May 16 - [Joe Biden is definitely going to prison! As soon as the GOP finds its missing informant.](https://news.yahoo.com/joe-biden-definitely-going-prison-154524407.html)
+- May 16 - [Tank assault didn’t work for Putin. Zelensky’s armoured fist will hit much harder](https://news.yahoo.com/tank-assault-didn-t-putin-173201232.html)
+- May 16 - [Favre asks Mississippi Supreme Court to remove him from welfare lawsuit](https://news.yahoo.com/favre-asks-mississippi-supreme-court-170735296.html)
+- May 16 - [Housing expert: Sellers are ‘just bowing out’ this spring](https://finance.yahoo.com/news/housing-expert-sellers-are-just-bowing-out-this-spring-163735234.html)
+- May 16 - [I Can't Stop Thinking About Kyrsten Sinema Using Campaign Money to Fund Her Marathons](https://news.yahoo.com/cant-stop-thinking-kyrsten-sinema-163000456.html)
+- May 16 - [Man and 12-year-old boy arrested after fatal shooting at Sonic restaurant in Texas](https://news.yahoo.com/12-old-texas-boy-arrested-161418066.html)
 <!-- feed end -->
