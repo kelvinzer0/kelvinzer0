@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [Massachusetts US Attorney Rachael Rollins to resign after Justice Department watchdog probe](https://news.yahoo.com/massachusetts-us-attorney-rachael-rollins-193149162.html)
+- May 16 - [Creeks Gush in Sierra Nevada as Melting of Historic Snowpack Intensifies](https://news.yahoo.com/creeks-gush-sierra-nevada-melting-191039002.html)
+- May 16 - [Marjorie Taylor Greene says she will move to impeach US attorney for DC](https://news.yahoo.com/marjorie-taylor-greene-says-she-181447156.html)
 - May 16 - [Former U.S. Special Forces Soldier Is Killed in Ukraine](https://news.yahoo.com/former-u-special-forces-soldier-181418991.html)
 - May 16 - [Tank assault didn’t work for Putin. Zelensky’s armoured fist will hit much harder](https://news.yahoo.com/tank-assault-didn-t-putin-173201232.html)
-- May 16 - [Say goodbye to the US car market as we know it: Cheap Chinese EVs are coming](https://news.yahoo.com/goodbye-us-car-market-know-172452290.html)
-- May 16 - ['You put all your eggs in one basket,' Senator tells failed bank ex-CEO](https://news.yahoo.com/put-eggs-one-basket-senator-164715681.html)
-- May 16 - [Dad finds accused pedophile hiding in 13-year-old daughter’s closet, Illinois cops say](https://news.yahoo.com/dad-finds-accused-pedophile-hiding-164553010.html)
 <!-- feed end -->
