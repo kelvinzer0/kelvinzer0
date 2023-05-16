@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - [Six years trapped at sea: ‘I was beaten with barbed stingray tails and scalded by boiling water’](https://news.yahoo.com/six-years-trapped-sea-beaten-112655775.html)
+- May 16 - [A 20-year-old business class passenger is suing Emirates for $3,300, saying the plane he flew on was 'disgusting' and his seat didn't recline](https://news.yahoo.com/20-old-business-class-passenger-112124930.html)
+- May 16 - [A Tricky Game for the Kremlin? Now it is Clear what Putin is Doing — opinion](https://news.yahoo.com/tricky-game-kremlin-now-clear-112000651.html)
 - May 16 - [Humiliation for Putin’s ‘Unstoppable’ Superweapons Blasted Out of Sky by U.S. Defense System](https://news.yahoo.com/humiliation-putin-unstoppable-superweapons-blasted-102325626.html)
 - May 16 - [Cyclist Taunts Marching White Supremacists With Outstandingly Timed Heckles](https://news.yahoo.com/cyclist-taunts-marching-white-supremacists-095559007.html)
-- May 16 - [Ukraine's Armed Forces advancing near Bakhmut for 3 days, Russians in stupor – Ground Forces Commander](https://news.yahoo.com/ukraines-armed-forces-advancing-near-081129515.html)
-- May 16 - [Dr. Phil Addresses Crowd At Rally For Death Row Inmate Richard Glossip](https://news.yahoo.com/dr-phil-addresses-crowd-rally-080256086.html)
-- May 16 - [Lara Trump’s Bonkers Claim About Donald Trump Falls Apart In Just Minutes](https://news.yahoo.com/lara-trump-bonkers-claim-donald-074002823.html)
 <!-- feed end -->
