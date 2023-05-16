@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 16 - [Prince Harry should not be allowed to pay for police protection, court told](https://news.yahoo.com/prince-harry-not-allowed-pay-134132825.html)
-- May 16 - [Berkshire Hathaway invests $954 million in Capital One as bank executives testify before Congress](https://finance.yahoo.com/video/berkshire-hathaway-invests-954-million-133816067.html)
-- May 16 - [Sorority sues US university over admitting trans woman who got ‘aroused in their company’](https://news.yahoo.com/sorority-sues-us-university-over-131754357.html)
-- May 16 - [Special counsel John Durham found FBI lacked evidence to investigate Trump's 2016 campaign](https://news.yahoo.com/special-counsel-john-durham-found-120633272.html)
-- May 16 - ["Cloud of hundreds of bees" swarms L.A. neighborhood](https://news.yahoo.com/cloud-hundreds-bees-swarms-l-115230606.html)
+- May 16 - [Italian police dog with fine nose for cocaine sniffs out drugs hidden in banana shipment](https://news.yahoo.com/italian-police-dog-fine-nose-141805727.html)
+- May 16 - [EU’s MiCA Inches Toward Law With Finance Ministers’ Sign-Off](https://finance.yahoo.com/video/eu-mica-inches-toward-law-141645922.html)
+- May 16 - [Nigeria is the world's biggest cassava producer. So why doesn't it make money off exports?](https://news.yahoo.com/nigeria-worlds-biggest-cassava-producer-141315569.html)
+- May 16 - [The CIA launched a Telegram channel to get Russians to spy for them, with one former spook saying now is 'probably the best period of recruiting Russians that we've had'](https://news.yahoo.com/cia-launched-telegram-channel-russians-140213317.html)
+- May 16 - [Watch rare sighting of ‘impressive beast’ swimming near Scottish coastline](https://news.yahoo.com/watch-rare-sighting-impressive-beast-135436442.html)
 <!-- feed end -->
