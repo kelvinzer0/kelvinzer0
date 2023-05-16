@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 16 - [Italian police dog with fine nose for cocaine sniffs out drugs hidden in banana shipment](https://news.yahoo.com/italian-police-dog-fine-nose-141805727.html)
-- May 16 - [EU’s MiCA Inches Toward Law With Finance Ministers’ Sign-Off](https://finance.yahoo.com/video/eu-mica-inches-toward-law-141645922.html)
-- May 16 - [Nigeria is the world's biggest cassava producer. So why doesn't it make money off exports?](https://news.yahoo.com/nigeria-worlds-biggest-cassava-producer-141315569.html)
-- May 16 - [The CIA launched a Telegram channel to get Russians to spy for them, with one former spook saying now is 'probably the best period of recruiting Russians that we've had'](https://news.yahoo.com/cia-launched-telegram-channel-russians-140213317.html)
-- May 16 - [Watch rare sighting of ‘impressive beast’ swimming near Scottish coastline](https://news.yahoo.com/watch-rare-sighting-impressive-beast-135436442.html)
+- May 16 - [Joe Biden is definitely going to prison! As soon as the GOP finds its missing informant.](https://news.yahoo.com/joe-biden-definitely-going-prison-154524407.html)
+- May 16 - [Couple uses artificial intelligence to redesign backyard: ‘AI is truly gonna take over so many jobs’](https://news.yahoo.com/couple-uses-artificial-intelligence-redesign-153850100.html)
+- May 16 - [15 Subtle But Often Missed Workplace Red Flags That Everyone Should Keep An Eye Out For](https://news.yahoo.com/wish-nothing-bad-things-employers-151602906.html)
+- May 16 - [Ukraine 'downs six hypersonic missiles': why it matters](https://news.yahoo.com/ukraine-downs-six-hypersonic-missiles-151002644.html)
+- May 16 - [Former Missouri police officer accused of handcuffing man, allowing officer's brother to beat him](https://news.yahoo.com/former-missouri-police-officer-accused-150142434.html)
 <!-- feed end -->
