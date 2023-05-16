@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 16 - ['You put all your eggs in one basket,' Senator tells failed bank ex-CEO](https://news.yahoo.com/put-eggs-one-basket-senator-164715681.html)
+- May 16 - [12-year-old Texas boy arrested after fatal shooting at Sonic restaurant](https://news.yahoo.com/12-old-texas-boy-arrested-161418066.html)
+- May 16 - [Former National Security Advisor John Bolton says world leaders saw Trump as a 'laughing fool' and disputes that the ex-president could have stopped Russia's invasion of Ukraine](https://news.yahoo.com/former-national-security-advisor-john-155042519.html)
+- May 16 - [New creature - with large teeth, thick shell and scars - found in Thai riverbed](https://news.yahoo.com/creature-large-teeth-thick-shell-155025388.html)
 - May 16 - [Joe Biden is definitely going to prison! As soon as the GOP finds its missing informant.](https://news.yahoo.com/joe-biden-definitely-going-prison-154524407.html)
-- May 16 - [Couple uses artificial intelligence to redesign backyard: ‘AI is truly gonna take over so many jobs’](https://news.yahoo.com/couple-uses-artificial-intelligence-redesign-153850100.html)
-- May 16 - [15 Subtle But Often Missed Workplace Red Flags That Everyone Should Keep An Eye Out For](https://news.yahoo.com/wish-nothing-bad-things-employers-151602906.html)
-- May 16 - [Ukraine 'downs six hypersonic missiles': why it matters](https://news.yahoo.com/ukraine-downs-six-hypersonic-missiles-151002644.html)
-- May 16 - [Former Missouri police officer accused of handcuffing man, allowing officer's brother to beat him](https://news.yahoo.com/former-missouri-police-officer-accused-150142434.html)
 <!-- feed end -->
