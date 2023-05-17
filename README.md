@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 17 - [Court rejects Elizabeth Holmes' latest effort to stay out of prison while on appeal](https://news.yahoo.com/court-rejects-elizabeth-holmes-motion-003945367.html)
+- May 17 - [JPMorgan employees describe growing 'paranoia' as the company tracks their office attendance, calls, calendars, and more — with one worker even installing a 'mouse jiggler' to evade 'Big Brother'](https://finance.yahoo.com/news/jpmorgan-employees-describe-growing-paranoia-190755788.html)
+- May 17 - [Frigid US city becomes haven in climate change era](https://news.yahoo.com/frigid-us-city-becomes-haven-015153216.html)
+- May 17 - [Elizabeth Holmes loses latest bid to avoid prison and gets hit with $452 million restitution bill](https://news.yahoo.com/court-rejects-elizabeth-holmes-motion-003945367.html)
+- May 16 - [Pompeii archaeologists found the remains of a man raising an arm to protect himself from caving walls during the Vesuvius eruption, showing 'the inferno' victims suffered](https://news.yahoo.com/pompeii-archaeologists-found-remains-man-235232209.html)
 - May 16 - [John Fetterman suggests failed Silicon Valley Bank executives should have the same work requirements 'Republicans want' for families receiving food stamps](https://news.yahoo.com/john-fetterman-suggests-failed-silicon-233022412.html)
-- May 16 - [McCarthy Moves To Block Vote On Kicking George Santos Out Of Congress](https://news.yahoo.com/mccarthy-moves-block-vote-kicking-231952040.html)
-- May 16 - [No one knew a US aircraft carrier water tank had jet fuel in it until the unaware crew hooked it up to the drinking water system, Navy report says](https://news.yahoo.com/no-one-knew-us-aircraft-231946874.html)
-- May 16 - [Patriot missile defense system in Ukraine likely damaged -US sources](https://news.yahoo.com/patriot-missile-defense-system-ukraine-225123314.html)
 <!-- feed end -->
