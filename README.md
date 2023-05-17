@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 17 - [President of Ecuador dissolves National Assembly](https://news.yahoo.com/president-ecuador-dissolves-national-assembly-191251904.html)
+- May 17 - [Elon Musk was asked what he'd tell his kids about choosing a career in the era of AI. His answer revealed he sometimes struggles with self-doubt and motivation.](https://news.yahoo.com/elon-musk-asked-hed-tell-174745633.html)
+- May 17 - [Woman pleads guilty, sentenced to 52 years for Texas boy’s death](https://news.yahoo.com/woman-pleads-guilty-sentenced-52-184646077.html)
 - May 17 - [El Salvador forces surround town in north after police killing](https://news.yahoo.com/el-salvador-forces-surround-town-183643667.html)
 - May 17 - [Bud Light Hopes to Win Back Disgruntled Fans With New Branding Move](https://www.thestreet.com/retailers/bud-light-hopes-to-win-back-disgruntled-fans-with-new-branding-move?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 17 - [Elon Musk was asked what he'd tell his kids about choosing a career in the era of AI. His answer revealed he sometimes struggles with self-doubt and motivation.](https://news.yahoo.com/elon-musk-asked-hed-tell-174745633.html)
-- May 17 - [A woman went viral when she discovered black mold in her reusable straw and thought it made her sick. A doctor explains why there's no need to panic.](https://news.yahoo.com/woman-went-viral-she-discovered-171801913.html)
-- May 17 - [El Salvador sends troops to surround town after police officer killed](https://news.yahoo.com/el-salvador-sends-troops-surround-170108009.html)
 <!-- feed end -->
