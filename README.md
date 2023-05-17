@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 17 - [President of Ecuador dissolves National Assembly](https://news.yahoo.com/president-ecuador-dissolves-national-assembly-191251904.html)
-- May 17 - [Elon Musk was asked what he'd tell his kids about choosing a career in the era of AI. His answer revealed he sometimes struggles with self-doubt and motivation.](https://news.yahoo.com/elon-musk-asked-hed-tell-174745633.html)
-- May 17 - [Woman pleads guilty, sentenced to 52 years for Texas boy’s death](https://news.yahoo.com/woman-pleads-guilty-sentenced-52-184646077.html)
-- May 17 - [El Salvador forces surround town in north after police killing](https://news.yahoo.com/el-salvador-forces-surround-town-183643667.html)
-- May 17 - [Bud Light Hopes to Win Back Disgruntled Fans With New Branding Move](https://www.thestreet.com/retailers/bud-light-hopes-to-win-back-disgruntled-fans-with-new-branding-move?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 17 - [Top-notch Zosi home security systems are up to 45% off — but only until midnight](https://news.yahoo.com/zosi-security-system-sale-125415230.html)
+- May 17 - [I tried this genius gadget to hear airplane movies with my AirPods — here's what I thought](https://news.yahoo.com/airfly-pro-review-222709278.html)
+- May 17 - [DUI suspect accused of killing bride on wedding day sued along with 'bar hopping' businesses](https://news.yahoo.com/dui-suspect-accused-killing-bride-195700818.html)
+- May 17 - [Senate Democrats are asking Biden to stop negotiating with Republicans on a debt ceiling solution and take a route that would get rid of the problem forever](https://news.yahoo.com/senate-democrats-asking-biden-stop-193457123.html)
+- May 17 - [Limo service manager convicted of manslaughter in New York crash that killed 20](https://news.yahoo.com/limo-manager-convicted-manslaughter-rural-192240198.html)
 <!-- feed end -->
