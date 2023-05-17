@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 16 - [Elon Musk Names the Evil That Is Destroying San Francisco](https://www.thestreet.com/technology/elon-musk-names-the-evil-that-is-destroying-san-francisco?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 16 - [George Santos Faces Expedited House Probe Pushed by McCarthy](https://news.yahoo.com/george-santos-faces-house-expulsion-194155334.html)
-- May 16 - [Yes, Russia Is Using Ancient Tanks in Combat in Ukraine. But Not as Tanks.](https://news.yahoo.com/yes-russia-using-ancient-tanks-210600816.html)
-- May 16 - [McCarthy credits Biden with changing ‘scope’ of debt ceiling talks](https://news.yahoo.com/mccarthy-credits-biden-changing-scope-203108344.html)
-- May 16 - [Woman 'duped girlfriend into believing she was having sex with man'](https://news.yahoo.com/woman-duped-girlfriend-believing-she-202935870.html)
+- May 17 - [Court rejects Elizabeth Holmes' latest effort to stay out of prison while on appeal](https://news.yahoo.com/court-rejects-elizabeth-holmes-motion-003945367.html)
+- May 16 - [John Fetterman suggests failed Silicon Valley Bank executives should have the same work requirements 'Republicans want' for families receiving food stamps](https://news.yahoo.com/john-fetterman-suggests-failed-silicon-233022412.html)
+- May 16 - [McCarthy Moves To Block Vote On Kicking George Santos Out Of Congress](https://news.yahoo.com/mccarthy-moves-block-vote-kicking-231952040.html)
+- May 16 - [No one knew a US aircraft carrier water tank had jet fuel in it until the unaware crew hooked it up to the drinking water system, Navy report says](https://news.yahoo.com/no-one-knew-us-aircraft-231946874.html)
+- May 16 - [Patriot missile defense system in Ukraine likely damaged -US sources](https://news.yahoo.com/patriot-missile-defense-system-ukraine-225123314.html)
 <!-- feed end -->
