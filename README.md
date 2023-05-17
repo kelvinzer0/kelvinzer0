@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 17 - [Women drinking beer clothed: why are rightwingers melting down over Miller Lite?](https://news.yahoo.com/women-drinking-beer-clothed-why-100027655.html)
+- May 17 - [Freshman Democrat Hits Republicans With 2 Painful Truths In House Hearing On Crime](https://news.yahoo.com/freshman-democrat-hits-republicans-2-094239043.html)
+- May 17 - [Meet Pita Limjaroenrat, the 42-year-old Harvard grad who was once married to a TV actress — and now vows to become Thailand's next prime minister](https://news.yahoo.com/meet-pita-limjaroenrat-42-old-093200846.html)
 - May 17 - [Marjorie Taylor Greene Gets Called Out To Her Face During Congressional Hearing](https://news.yahoo.com/marjorie-taylor-greene-gets-called-084944244.html)
 - May 17 - [Trump was right: 'Russian collusion' was a hoax. Good luck regaining public's trust.](https://news.yahoo.com/trump-russian-collusion-hoax-good-080201121.html)
-- May 17 - [Black Californians hope state reparations don't become another broken promise](https://news.yahoo.com/black-californians-hope-state-reparations-050138232.html)
-- May 17 - [Russia's economic war with the West is entering a dangerous new stage, scholar says](https://finance.yahoo.com/news/russias-economic-war-against-west-034443938.html)
-- May 17 - [She killed the man raping her. Now Mexican woman faces 6 years in prison](https://news.yahoo.com/she-killed-man-raping-her-032451923.html)
 <!-- feed end -->
