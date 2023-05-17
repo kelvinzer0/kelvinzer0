@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 17 - [A 15-year-old is asking her school to apologize after she was suspended for recording her teacher saying the N-word in class](https://news.yahoo.com/15-old-asking-her-school-205343834.html)
-- May 17 - [French court upholds Sarkozy's jail term in wiretap graft case](https://news.yahoo.com/french-court-upholds-sarkozys-jail-132547585.html)
+- May 17 - [UPDATE 2-Prince Harry, wife Meghan in 'near catastrophic car chase' with paparazzi - Harry's spokesperson](https://finance.yahoo.com/news/1-prince-harry-wife-meghan-141407151.html)
+- May 17 - [The Hill's Headlines – May 17, 2023](https://news.yahoo.com/hills-headlines-may-17-2023-140200806.html)
+- May 17 - [Key Trump attorney says he's departing legal team as Mar-a-Lago probe intensifies](https://news.yahoo.com/key-trump-attorney-says-hes-134641547.html)
+- May 17 - [IT worker sued boss who marked problems with ‘XX’ as she thought they were kisses](https://news.yahoo.com/worker-sued-boss-marked-problems-132956927.html)
 - May 17 - [American Patriots nailed Putin’s hypersonic Kinzhal missile. The world has changed](https://news.yahoo.com/american-patriots-nailed-putin-hypersonic-131555757.html)
-- May 17 - [Kentucky GOP Winner Daniel Cameron Makes Head-Spinning Remark About Trump](https://news.yahoo.com/kentucky-gop-winner-daniel-cameron-123954688.html)
-- May 17 - [Farmington, New Mexico, shooting victims identified](https://news.yahoo.com/farmington-mexico-shooting-victims-identified-122125915.html)
 <!-- feed end -->
