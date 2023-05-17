@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 17 - [Sorority sues over admission of trans woman who got ‘aroused in their company’](https://news.yahoo.com/sorority-sues-us-university-over-131754357.html)
+- May 17 - [Harry, Meghan in 'near catastrophic' paparazzi chase](https://news.yahoo.com/harry-meghan-near-catastrophic-paparazzi-172825014.html)
 - May 17 - [A Russian warlord posed over the body of a US Army vet killed in Ukraine — then bizarrely said he'd send him back to America draped in a flag as a sign of respect](https://news.yahoo.com/russian-warlord-posed-over-body-160202213.html)
 - May 17 - [Rare creature — as adorable as it is dangerous — spotted on farm in Taiwan, photos show](https://news.yahoo.com/rare-creature-adorable-dangerous-spotted-155205749.html)
-- May 17 - [Two men got into an argument at a Broward ATM. One pulled out a semi-automatic gun](https://news.yahoo.com/two-men-got-argument-broward-153745622.html)
-- May 17 - [UPDATE 2-Prince Harry, wife Meghan in 'near catastrophic car chase' with paparazzi - Harry's spokesperson](https://finance.yahoo.com/news/1-prince-harry-wife-meghan-141407151.html)
-- May 17 - [Key Trump attorney says he's departing legal team as Mar-a-Lago probe intensifies](https://news.yahoo.com/key-trump-attorney-says-hes-134641547.html)
+- May 17 - [Grumet: Many Texans must work for food stamps. But no work required for $92,000 payout.](https://news.yahoo.com/grumet-many-texans-must-food-154709951.html)
 <!-- feed end -->
