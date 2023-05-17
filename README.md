@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 17 - [Top-notch Zosi home security systems are up to 45% off — but only until midnight](https://news.yahoo.com/zosi-security-system-sale-125415230.html)
-- May 17 - [I tried this genius gadget to hear airplane movies with my AirPods — here's what I thought](https://news.yahoo.com/airfly-pro-review-222709278.html)
+- May 17 - [Witnesses Speak Out After Meghan Markle and Prince Harry's 'Near Catastrophic' Car Chase: 'Crazy Hyperbole'](https://news.yahoo.com/witnesses-speak-meghan-markle-prince-205058861.html)
+- May 17 - [Two hours in and Kari Lake's trial is already over (or it should be)](https://news.yahoo.com/two-hours-kari-lakes-trial-203455797.html)
+- May 17 - [Grocery store employee sues Rudy Giuliani for $2 million, saying the ex-mayor lied to cops to put him in jail](https://news.yahoo.com/grocery-store-employee-sues-rudy-200931921.html)
 - May 17 - [DUI suspect accused of killing bride on wedding day sued along with 'bar hopping' businesses](https://news.yahoo.com/dui-suspect-accused-killing-bride-195700818.html)
 - May 17 - [Senate Democrats are asking Biden to stop negotiating with Republicans on a debt ceiling solution and take a route that would get rid of the problem forever](https://news.yahoo.com/senate-democrats-asking-biden-stop-193457123.html)
-- May 17 - [Limo service manager convicted of manslaughter in New York crash that killed 20](https://news.yahoo.com/limo-manager-convicted-manslaughter-rural-192240198.html)
 <!-- feed end -->
