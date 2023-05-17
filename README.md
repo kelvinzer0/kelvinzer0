@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 17 - [A Russian warlord posed over the body of a US Army vet killed in Ukraine — then bizarrely said he'd send him back to America draped in a flag as a sign of respect](https://news.yahoo.com/russian-warlord-posed-over-body-160202213.html)
+- May 17 - [Rare creature — as adorable as it is dangerous — spotted on farm in Taiwan, photos show](https://news.yahoo.com/rare-creature-adorable-dangerous-spotted-155205749.html)
+- May 17 - [Two men got into an argument at a Broward ATM. One pulled out a semi-automatic gun](https://news.yahoo.com/two-men-got-argument-broward-153745622.html)
 - May 17 - [UPDATE 2-Prince Harry, wife Meghan in 'near catastrophic car chase' with paparazzi - Harry's spokesperson](https://finance.yahoo.com/news/1-prince-harry-wife-meghan-141407151.html)
 - May 17 - [Key Trump attorney says he's departing legal team as Mar-a-Lago probe intensifies](https://news.yahoo.com/key-trump-attorney-says-hes-134641547.html)
-- May 17 - [IT worker sued boss who marked problems with ‘XX’ as she thought they were kisses](https://news.yahoo.com/worker-sued-boss-marked-problems-132956927.html)
-- May 17 - [American Patriots nailed Putin’s hypersonic Kinzhal missile. The world has changed](https://news.yahoo.com/american-patriots-nailed-putin-hypersonic-131555757.html)
-- May 17 - [Kentucky GOP Winner Daniel Cameron Makes Head-Spinning Remark About Trump](https://news.yahoo.com/kentucky-gop-winner-daniel-cameron-123954688.html)
 <!-- feed end -->
