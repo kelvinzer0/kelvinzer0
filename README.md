@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 17 - [Five dead, Grand Prix postponed after flooding in northern Italy](https://news.yahoo.com/five-dead-grand-prix-postponed-114145992.html)
+- May 17 - [Target CEO: We're seeing 'violent' incidents in our stores, and it's costing us millions](https://finance.yahoo.com/news/target-ceo-were-seeing-violent-incidents-in-our-stores-and-its-costing-us-millions-103002930.html)
+- May 17 - [Ukraine's Patriots aren't hard to find, and Russia's gunning for them with one of its best weapons — Putin's prized Kinzhals](https://news.yahoo.com/ukraines-patriots-arent-hard-russias-103000384.html)
+- May 17 - [Russia says hypersonic missile scientists face 'very serious' treason accusations](https://news.yahoo.com/kremlin-says-three-scientists-face-100444826.html)
 - May 17 - [Women drinking beer clothed: why are rightwingers melting down over Miller Lite?](https://news.yahoo.com/women-drinking-beer-clothed-why-100027655.html)
-- May 17 - [Freshman Democrat Hits Republicans With 2 Painful Truths In House Hearing On Crime](https://news.yahoo.com/freshman-democrat-hits-republicans-2-094239043.html)
-- May 17 - [Meet Pita Limjaroenrat, the 42-year-old Harvard grad who was once married to a TV actress — and now vows to become Thailand's next prime minister](https://news.yahoo.com/meet-pita-limjaroenrat-42-old-093200846.html)
-- May 17 - [Marjorie Taylor Greene Gets Called Out To Her Face During Congressional Hearing](https://news.yahoo.com/marjorie-taylor-greene-gets-called-084944244.html)
-- May 17 - [Trump was right: 'Russian collusion' was a hoax. Good luck regaining public's trust.](https://news.yahoo.com/trump-russian-collusion-hoax-good-080201121.html)
 <!-- feed end -->
