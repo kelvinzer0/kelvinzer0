@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 17 - [Woman dies while surfing day after graduating from nursing school, CA family says](https://news.yahoo.com/woman-dies-while-surfing-day-221622033.html)
+- May 17 - [Ukraine reports new advances near eastern city of Bakhmut](https://news.yahoo.com/ukraine-reports-advances-near-eastern-215938170.html)
+- May 17 - [New Views Of Northrop Grumman's Totally Notional Long-Range Stealth Fighter](https://news.yahoo.com/views-northrop-grummans-totally-notional-211454547.html)
+- May 17 - [Theranos founder Elizabeth Holmes to report to prison in two weeks](https://news.yahoo.com/theranos-founder-elizabeth-holmes-report-205647534.html)
 - May 17 - [Witnesses Speak Out After Meghan Markle and Prince Harry's 'Near Catastrophic' Car Chase: 'Crazy Hyperbole'](https://news.yahoo.com/witnesses-speak-meghan-markle-prince-205058861.html)
-- May 17 - [Two hours in and Kari Lake's trial is already over (or it should be)](https://news.yahoo.com/two-hours-kari-lakes-trial-203455797.html)
-- May 17 - [Grocery store employee sues Rudy Giuliani for $2 million, saying the ex-mayor lied to cops to put him in jail](https://news.yahoo.com/grocery-store-employee-sues-rudy-200931921.html)
-- May 17 - [DUI suspect accused of killing bride on wedding day sued along with 'bar hopping' businesses](https://news.yahoo.com/dui-suspect-accused-killing-bride-195700818.html)
-- May 17 - [Senate Democrats are asking Biden to stop negotiating with Republicans on a debt ceiling solution and take a route that would get rid of the problem forever](https://news.yahoo.com/senate-democrats-asking-biden-stop-193457123.html)
 <!-- feed end -->
