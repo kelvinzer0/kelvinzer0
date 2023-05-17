@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 17 - [A 15-year-old is asking her school to apologize after she was suspended for recording her teacher saying the N-word in class](https://news.yahoo.com/15-old-asking-her-school-205343834.html)
+- May 17 - [French court upholds Sarkozy's jail term in wiretap graft case](https://news.yahoo.com/french-court-upholds-sarkozys-jail-132547585.html)
+- May 17 - [American Patriots nailed Putin’s hypersonic Kinzhal missile. The world has changed](https://news.yahoo.com/american-patriots-nailed-putin-hypersonic-131555757.html)
 - May 17 - [Kentucky GOP Winner Daniel Cameron Makes Head-Spinning Remark About Trump](https://news.yahoo.com/kentucky-gop-winner-daniel-cameron-123954688.html)
 - May 17 - [Farmington, New Mexico, shooting victims identified](https://news.yahoo.com/farmington-mexico-shooting-victims-identified-122125915.html)
-- May 17 - [Florida passes bill to prevent billionaires like Elon Musk and Jeff Bezos being sued if their mega-rockets kill or injure people](https://news.yahoo.com/florida-passes-bill-prevent-billionaires-112548131.html)
-- May 17 - [Target CEO: We're seeing 'violent' incidents in our stores, and it's costing us millions](https://finance.yahoo.com/news/target-ceo-were-seeing-violent-incidents-in-our-stores-and-its-costing-us-millions-103002930.html)
-- May 17 - [Russia says hypersonic missile scientists face 'very serious' treason accusations](https://news.yahoo.com/kremlin-says-three-scientists-face-100444826.html)
 <!-- feed end -->
