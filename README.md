@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 17 - [Five dead, Grand Prix postponed after flooding in northern Italy](https://news.yahoo.com/five-dead-grand-prix-postponed-114145992.html)
+- May 17 - [Kentucky GOP Winner Daniel Cameron Makes Head-Spinning Remark About Trump](https://news.yahoo.com/kentucky-gop-winner-daniel-cameron-123954688.html)
+- May 17 - [Farmington, New Mexico, shooting victims identified](https://news.yahoo.com/farmington-mexico-shooting-victims-identified-122125915.html)
+- May 17 - [Florida passes bill to prevent billionaires like Elon Musk and Jeff Bezos being sued if their mega-rockets kill or injure people](https://news.yahoo.com/florida-passes-bill-prevent-billionaires-112548131.html)
 - May 17 - [Target CEO: We're seeing 'violent' incidents in our stores, and it's costing us millions](https://finance.yahoo.com/news/target-ceo-were-seeing-violent-incidents-in-our-stores-and-its-costing-us-millions-103002930.html)
-- May 17 - [Ukraine's Patriots aren't hard to find, and Russia's gunning for them with one of its best weapons — Putin's prized Kinzhals](https://news.yahoo.com/ukraines-patriots-arent-hard-russias-103000384.html)
 - May 17 - [Russia says hypersonic missile scientists face 'very serious' treason accusations](https://news.yahoo.com/kremlin-says-three-scientists-face-100444826.html)
-- May 17 - [Women drinking beer clothed: why are rightwingers melting down over Miller Lite?](https://news.yahoo.com/women-drinking-beer-clothed-why-100027655.html)
 <!-- feed end -->
