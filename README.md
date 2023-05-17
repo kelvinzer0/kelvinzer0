@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 17 - [Black Californians hope state reparations don't become another broken promise](https://news.yahoo.com/black-californians-hope-state-reparations-050138232.html)
 - May 17 - [Russia's economic war with the West is entering a dangerous new stage, scholar says](https://finance.yahoo.com/news/russias-economic-war-against-west-034443938.html)
 - May 17 - [She killed the man raping her. Now Mexican woman faces 6 years in prison](https://news.yahoo.com/she-killed-man-raping-her-032451923.html)
 - May 17 - [A woman who threatened to bomb staffers at a Democratic campaign office for 'being on the wrong team' vomited when FBI agents approached her](https://news.yahoo.com/woman-threatened-bomb-staffers-democratic-025036223.html)
-- May 17 - [JPMorgan employees describe growing 'paranoia' as the company tracks their office attendance, calls, calendars, and more — with one worker even installing a 'mouse jiggler' to evade 'Big Brother'](https://finance.yahoo.com/news/jpmorgan-employees-describe-growing-paranoia-190755788.html)
-- May 17 - [Frigid US city becomes haven in climate change era](https://news.yahoo.com/frigid-us-city-becomes-haven-015153216.html)
+- May 17 - [Elizabeth Holmes loses latest bid to avoid prison and gets hit with $452 million restitution bill](https://news.yahoo.com/court-rejects-elizabeth-holmes-motion-003945367.html)
 <!-- feed end -->
