@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - May 18 - [Elon Musk wanted to build a bathroom next to his office at Twitter so he didn't have to wake up his bodyguards when he needed to pee in the night, lawsuit says](https://news.yahoo.com/elon-musk-wanted-build-bathroom-095039564.html)
 - May 18 - [Columnist: Kari Lake’s ‘Star Witness’ Backfires Spectacularly In Courtroom](https://news.yahoo.com/columnist-kari-lake-star-witness-083748313.html)
 - May 18 - [Lawrence O’Donnell Left Stunned By Revealing Response To Trump Pardon Allegation](https://news.yahoo.com/lawrence-o-donnell-left-stunned-073958386.html)
-- May 18 - [An American tourist fell into an uncovered manhole in the 'sin city' of Thailand. He was rescued 4 hours later, but he said it felt like days.](https://news.yahoo.com/american-tourist-fell-uncovered-manhole-073143590.html)
 - May 18 - [The failure of Russia’s Wunderwaffe is game over for Putin](https://news.yahoo.com/failure-russia-wunderwaffe-game-over-060000113.html)
+- May 18 - [Four children found alive weeks after plane crash](https://news.yahoo.com/four-children-found-alive-weeks-052013237.html)
 <!-- feed end -->
