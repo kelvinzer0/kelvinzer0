@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 18 - [Security Guard, Taxi Driver, and Photographer Speak Out on the Sussexes' Car Chase](https://news.yahoo.com/security-guard-taxi-driver-photographer-134500165.html)
-- May 18 - [A Detroit traffic cop was brought to tears when a TikToker gave her $500. Days later, viewers gave her another $50,000 to change her life.](https://news.yahoo.com/detroit-traffic-warden-brought-tears-120356238.html)
-- May 18 - [Debt ceiling: The best option for a fix is Wall Street's least favorite](https://finance.yahoo.com/news/debt-ceiling-the-best-option-for-a-fix-is-wall-streets-least-favorite-120054123.html)
-- May 18 - [Schiff ‘not backing down’ in face of Republican bid to expel him from Congress](https://news.yahoo.com/schiff-not-backing-down-face-115639207.html)
-- May 18 - [Ditch the treadmill. Jake Gyllenhaal's trainer says a vertical climber will take your fitness to the next level.](https://news.yahoo.com/ditch-treadmill-jake-gyllenhaals-trainer-100320396.html)
+- May 18 - [Moment shell lands near Ukrainian anti-air unit](https://news.yahoo.com/moment-shell-lands-near-ukrainian-153545405.html)
+- May 18 - [Ukraine: The Latest - 'Putin's nuclear arsenal is null and void'](https://news.yahoo.com/ukraine-latest-putins-nuclear-arsenal-151610198.html)
+- May 18 - [Jim Cramer just predicted that an ‘economic wave’ will soon hit the US — and it will be 'fantastic for investors.' But is that a good sign or a bad sign for the stock market?](https://finance.yahoo.com/news/jim-cramer-just-predicted-economic-150000859.html)
+- May 18 - [Walt Disney Makes a Move Likely to Enrage DeSantis](https://www.thestreet.com/travel/walt-disney-makes-a-move-likely-to-enrage-desantis?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 18 - [First full-size 3D scan of Titanic shows shipwreck in new light](https://news.yahoo.com/first-full-size-3d-scan-135630295.html)
 <!-- feed end -->
