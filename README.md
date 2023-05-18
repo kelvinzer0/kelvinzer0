@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 18 - [DeSantis Officially Enters the ‘Find Out’ Phase of His War With Disney](https://news.yahoo.com/desantis-officially-enters-phase-war-193236317.html)
 - May 18 - [Jim Jordan Freaks Out When Dem Confronts Him With House Rules](https://news.yahoo.com/jim-jordan-freaks-dem-confronts-190012510.html)
-- May 18 - [Disney Cancels $1 Billion Florida Expansion](https://news.yahoo.com/disney-cancels-1-billion-florida-185105108.html)
 - May 18 - [US senator Feinstein suffered more complications from illness than publicly disclosed- NYT](https://news.yahoo.com/us-senator-feinstein-suffered-more-182129146.html)
 - May 18 - [YouTube Is About to Make a Big Change Viewers Are Going to Absolutely Despise](https://www.thestreet.com/media/youtube-is-about-to-make-a-big-change-viewers-are-going-to-absolutely-despise?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - May 18 - [Receipts show the white hospital worker accused in viral video of trying to steal a Black man's rental bike paid for it herself, lawyer says](https://news.yahoo.com/receipts-show-hospital-worker-accused-170920174.html)
