@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 18 - [Schiff ‘not backing down’ in face of Republican bid to expel him from Congress](https://news.yahoo.com/schiff-not-backing-down-face-115639207.html)
+- May 18 - [Ditch the treadmill. Jake Gyllenhaal's trainer says a vertical climber will take your fitness to the next level.](https://news.yahoo.com/ditch-treadmill-jake-gyllenhaals-trainer-100320396.html)
+- May 18 - [Kevin O’Leary: Tesla's Cybertruck has 'a really ugly look,' but ‘the demand is huge’](https://finance.yahoo.com/news/kevin-oleary-teslas-cybertruck-has-a-really-ugly-look-but-the-demand-is-huge-100022692.html)
 - May 18 - [Elon Musk wanted to build a bathroom next to his office at Twitter so he didn't have to wake up his bodyguards when he needed to pee in the night, lawsuit says](https://news.yahoo.com/elon-musk-wanted-build-bathroom-095039564.html)
 - May 18 - [Columnist: Kari Lake’s ‘Star Witness’ Backfires Spectacularly In Courtroom](https://news.yahoo.com/columnist-kari-lake-star-witness-083748313.html)
-- May 18 - [Lawrence O’Donnell Left Stunned By Revealing Response To Trump Pardon Allegation](https://news.yahoo.com/lawrence-o-donnell-left-stunned-073958386.html)
-- May 18 - [The failure of Russia’s Wunderwaffe is game over for Putin](https://news.yahoo.com/failure-russia-wunderwaffe-game-over-060000113.html)
-- May 18 - [Four children found alive weeks after plane crash](https://news.yahoo.com/four-children-found-alive-weeks-052013237.html)
 <!-- feed end -->
