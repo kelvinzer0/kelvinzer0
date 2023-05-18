@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 17 - [Woman dies while surfing day after graduating from nursing school, CA family says](https://news.yahoo.com/woman-dies-while-surfing-day-221622033.html)
-- May 17 - [Ukraine reports new advances near eastern city of Bakhmut](https://news.yahoo.com/ukraine-reports-advances-near-eastern-215938170.html)
-- May 17 - [New Views Of Northrop Grumman's Totally Notional Long-Range Stealth Fighter](https://news.yahoo.com/views-northrop-grummans-totally-notional-211454547.html)
-- May 17 - [Theranos founder Elizabeth Holmes to report to prison in two weeks](https://news.yahoo.com/theranos-founder-elizabeth-holmes-report-205647534.html)
-- May 17 - [Witnesses Speak Out After Meghan Markle and Prince Harry's 'Near Catastrophic' Car Chase: 'Crazy Hyperbole'](https://news.yahoo.com/witnesses-speak-meghan-markle-prince-205058861.html)
+- May 17 - [Ex-Wagner commander who sought asylum in Norway wants to return to Russia](https://news.yahoo.com/ex-wagner-commander-sought-asylum-234206789.html)
+- May 17 - [Grand jury indicts Bryan Kohberger in stabbing deaths of 4 Idaho students](https://news.yahoo.com/grand-jury-indicts-bryan-kohberger-233653999.html)
+- May 17 - [Watch Dem Lawmaker Heckle George Santos After Expulsion Vote](https://news.yahoo.com/watch-dem-lawmaker-heckle-george-231802288.html)
+- May 17 - [Look: Now Bud Light Can Be Found Free of Charge](https://www.thestreet.com/stocks/look-now-bud-light-can-be-found-free-of-charge?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 17 - [Court record: Wife says California doctor purposely drove family off cliff](https://news.yahoo.com/court-record-wife-says-california-224518636.html)
 <!-- feed end -->
