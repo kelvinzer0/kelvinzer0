@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 18 - [How the U.S. Wants to Counter China in the Pacific](https://finance.yahoo.com/video/u-wants-counter-china-pacific-093000129.html)
+- May 18 - [Columnist: Kari Lake’s ‘Star Witness’ Backfires Spectacularly In Courtroom](https://news.yahoo.com/columnist-kari-lake-star-witness-083748313.html)
 - May 18 - [Lawrence O’Donnell Left Stunned By Revealing Response To Trump Pardon Allegation](https://news.yahoo.com/lawrence-o-donnell-left-stunned-073958386.html)
 - May 18 - [The failure of Russia’s Wunderwaffe is game over for Putin](https://news.yahoo.com/failure-russia-wunderwaffe-game-over-060000113.html)
-- May 18 - [Four children found alive weeks after plane crash](https://news.yahoo.com/four-children-found-alive-weeks-052013237.html)
-- May 18 - ['Clock has hit midnight': China loans pushing world’s poorest countries to brink of collapse](https://news.yahoo.com/clock-hit-midnight-china-loans-050244876.html)
-- May 17 - [Ex-Wagner commander who sought asylum in Norway wants to return to Russia](https://news.yahoo.com/ex-wagner-commander-sought-asylum-234206789.html)
+- May 18 - [Trump Attorney Touts Client's Nonexistent 'Powers' In Bonkers CNN Interview](https://news.yahoo.com/trump-attorney-touts-clients-nonexistent-052130174.html)
 <!-- feed end -->
