@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 18 - [Moment shell lands near Ukrainian anti-air unit](https://news.yahoo.com/moment-shell-lands-near-ukrainian-153545405.html)
+- May 18 - [Greene says she feels ‘threatened’ by Bowman after Capitol steps encounter](https://news.yahoo.com/greene-says-she-feels-threatened-161048990.html)
+- May 18 - [Pelosi's daughter is Dianne Feinstein's primary caregiver at the Capitol, but the former speaker denies using the relationship to help her protégé replace the aging senator](https://news.yahoo.com/pelosis-daughter-dianne-feinsteins-primary-153408495.html)
+- May 18 - ['This is barely even real food': A TikToker compared Subway's old $5 footlong promo to what a combo costs today — a shocking $22. Here are 3 food stocks to fight the cost-of-living crisis](https://finance.yahoo.com/news/barely-even-real-food-tiktoker-153000627.html)
 - May 18 - [Ukraine: The Latest - 'Putin's nuclear arsenal is null and void'](https://news.yahoo.com/ukraine-latest-putins-nuclear-arsenal-151610198.html)
 - May 18 - [Jim Cramer just predicted that an ‘economic wave’ will soon hit the US — and it will be 'fantastic for investors.' But is that a good sign or a bad sign for the stock market?](https://finance.yahoo.com/news/jim-cramer-just-predicted-economic-150000859.html)
-- May 18 - [Walt Disney Makes a Move Likely to Enrage DeSantis](https://www.thestreet.com/travel/walt-disney-makes-a-move-likely-to-enrage-desantis?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 18 - [First full-size 3D scan of Titanic shows shipwreck in new light](https://news.yahoo.com/first-full-size-3d-scan-135630295.html)
 <!-- feed end -->
