@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 18 - [Disney cancels plans to relocate 2,000 jobs to Florida -company email](https://news.yahoo.com/disney-cancels-plans-relocate-2-181951313.html)
+- May 18 - [YouTube Is About to Make a Big Change Viewers Are Going to Absolutely Despise](https://www.thestreet.com/media/youtube-is-about-to-make-a-big-change-viewers-are-going-to-absolutely-despise?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - May 18 - [Receipts show the white hospital worker accused in viral video of trying to steal a Black man's rental bike paid for it herself, lawyer says](https://news.yahoo.com/receipts-show-hospital-worker-accused-170920174.html)
-- May 18 - [See: Ford Jumps Headfirst into Bud Light Backlash in New Ad](https://www.thestreet.com/automotive/see-ford-jumps-headfirst-into-bud-light-backlash-in-new-ad?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - May 18 - [Greene says she feels ‘threatened’ by Bowman after Capitol steps encounter](https://news.yahoo.com/greene-says-she-feels-threatened-161048990.html)
 - May 18 - [Pelosi's daughter is Dianne Feinstein's primary caregiver at the Capitol, but the former speaker denies using the relationship to help her protégé replace the aging senator](https://news.yahoo.com/pelosis-daughter-dianne-feinsteins-primary-153408495.html)
-- May 18 - ['This is barely even real food': A TikToker compared Subway's old $5 footlong promo to what a combo costs today — a shocking $22. Here are 3 food stocks to fight the cost-of-living crisis](https://finance.yahoo.com/news/barely-even-real-food-tiktoker-153000627.html)
 <!-- feed end -->
