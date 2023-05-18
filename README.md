@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 18 - [Jeffrey Epstein moved more than $250,000 between accounts for Noam Chomsky, who said the money was for a 'pure technicality'](https://news.yahoo.com/jeffrey-epstein-moved-more-250-013807080.html)
-- May 18 - [Man who witnessed George Floyd murder by police suing Minneapolis over officers' actions](https://news.yahoo.com/man-witnessed-george-floyd-murder-012514583.html)
+- May 18 - ['Clock has hit midnight': China loans pushing world’s poorest countries to brink of collapse](https://news.yahoo.com/clock-hit-midnight-china-loans-050244876.html)
+- May 18 - [Russia targets Kyiv, Odesa with missiles, Ukraine says most were shot down](https://news.yahoo.com/loud-explosions-heard-kyiv-debris-035110018.html)
 - May 17 - [Ex-Wagner commander who sought asylum in Norway wants to return to Russia](https://news.yahoo.com/ex-wagner-commander-sought-asylum-234206789.html)
 - May 17 - [Watch Dem Lawmaker Heckle George Santos After Expulsion Vote](https://news.yahoo.com/watch-dem-lawmaker-heckle-george-231802288.html)
-- May 17 - [Court record: Wife says California doctor purposely drove family off cliff](https://news.yahoo.com/court-record-wife-says-california-224518636.html)
+- May 17 - [Look: Now Bud Light Can Be Found Free of Charge](https://www.thestreet.com/stocks/look-now-bud-light-can-be-found-free-of-charge?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
