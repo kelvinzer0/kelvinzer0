@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 18 - [A Detroit traffic cop was brought to tears when a TikToker gave her $500. Days later, viewers gave her another $50,000 to change her life.](https://news.yahoo.com/detroit-traffic-warden-brought-tears-120356238.html)
+- May 18 - [Debt ceiling: The best option for a fix is Wall Street's least favorite](https://finance.yahoo.com/news/debt-ceiling-the-best-option-for-a-fix-is-wall-streets-least-favorite-120054123.html)
 - May 18 - [Schiff ‘not backing down’ in face of Republican bid to expel him from Congress](https://news.yahoo.com/schiff-not-backing-down-face-115639207.html)
 - May 18 - [Ditch the treadmill. Jake Gyllenhaal's trainer says a vertical climber will take your fitness to the next level.](https://news.yahoo.com/ditch-treadmill-jake-gyllenhaals-trainer-100320396.html)
 - May 18 - [Kevin O’Leary: Tesla's Cybertruck has 'a really ugly look,' but ‘the demand is huge’](https://finance.yahoo.com/news/kevin-oleary-teslas-cybertruck-has-a-really-ugly-look-but-the-demand-is-huge-100022692.html)
-- May 18 - [Elon Musk wanted to build a bathroom next to his office at Twitter so he didn't have to wake up his bodyguards when he needed to pee in the night, lawsuit says](https://news.yahoo.com/elon-musk-wanted-build-bathroom-095039564.html)
-- May 18 - [Columnist: Kari Lake’s ‘Star Witness’ Backfires Spectacularly In Courtroom](https://news.yahoo.com/columnist-kari-lake-star-witness-083748313.html)
 <!-- feed end -->
