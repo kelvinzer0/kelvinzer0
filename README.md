@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 19 - [Turkey's electoral board confirms 1st round election results; Erdogan meets 3rd party candidate](https://news.yahoo.com/turkeys-electoral-board-confirms-1st-174334605.html)
+- May 19 - [Mom arrested after infant found in plastic bag had ‘history of concealed pregnancies,’ deputies say](https://news.yahoo.com/mom-arrested-infant-found-plastic-185007047.html)
+- May 19 - [Price tag on reparations for Black descendants of slaves sparks debate as Democrat proposes $14 trillion](https://news.yahoo.com/price-tag-on-reparations-for-black-descendants-of-slaves-sparks-debate-as-democrat-proposes-14-trillion-184342584.html)
+- May 19 - [Utah mom accused of poisoning husband with fentanyl in cocktail took out $2 million in life insurance policies on him](https://news.yahoo.com/utah-mom-accused-poisoning-husband-183926104.html)
+- May 19 - [Did Jeff Bezos put a sculpture of his girlfriend on the bow of his new $500 million megayacht? You be the judge.](https://news.yahoo.com/did-jeff-bezos-put-sculpture-180058164.html)
 - May 19 - [See the dramatic moment a falcon snatched a puffin out of the sky. ‘Absolutely nuts’](https://news.yahoo.com/see-dramatic-moment-falcon-snatched-172857197.html)
-- May 19 - [Reporter Slammed For 'Both Sides' Tweet On Man Who Carries AR-15 At School Bus Stop](https://news.yahoo.com/reporter-slammed-both-sides-tweet-165756588.html)
-- May 19 - [College waterski champ Micky Gellar dies at 18](https://news.yahoo.com/college-waterski-champ-micky-gellar-160829018.html)
-- May 19 - [Watch: Tesla’s Humanoid Robots Are Walking Like People Now](https://news.yahoo.com/watch-tesla-humanoid-robots-just-160000231.html)
 <!-- feed end -->
