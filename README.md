@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 19 - [Kari Lake Fawns Over Donald Trump With One Of Her Most Brazen Claims Yet](https://news.yahoo.com/kari-lake-fawns-over-donald-123213404.html)
 - May 19 - [A woman with 3 degrees who owes $250,000 in student loans at age 59 asked Dave Ramsey for help and was told her situation is 'disturbing'](https://news.yahoo.com/woman-3-degrees-owes-250-093839015.html)
 - May 19 - [Russian bomber shot down by Patriot system](https://news.yahoo.com/russian-bomber-shot-down-patriot-060811727.html)
 - May 19 - [Putin has one deadly weapon left, and I saw first hand the threat it poses](https://news.yahoo.com/putin-one-deadly-weapon-left-060000371.html)
 - May 19 - [Young Sheldon Finale Twist(er) Is No Laughing Matter! Big Bang Punchline Nixed in Favor of Dramatic Cliffhanger](https://news.yahoo.com/young-sheldon-finale-twist-er-005900860.html)
-- May 18 - [With a fuller Lake Shasta, more water is seeping from the front of Shasta Dam](https://news.yahoo.com/fuller-lake-shasta-more-water-230004222.html)
 <!-- feed end -->
