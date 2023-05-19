@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 19 - [Turkey's electoral board confirms 1st round election results; Erdogan meets 3rd party candidate](https://news.yahoo.com/turkeys-electoral-board-confirms-1st-174334605.html)
+- May 19 - [See the dramatic moment a falcon snatched a puffin out of the sky. ‘Absolutely nuts’](https://news.yahoo.com/see-dramatic-moment-falcon-snatched-172857197.html)
 - May 19 - [Reporter Slammed For 'Both Sides' Tweet On Man Who Carries AR-15 At School Bus Stop](https://news.yahoo.com/reporter-slammed-both-sides-tweet-165756588.html)
 - May 19 - [College waterski champ Micky Gellar dies at 18](https://news.yahoo.com/college-waterski-champ-micky-gellar-160829018.html)
-- May 19 - [A maid was asked to clean up a ‘real mess,’ Florida cops say. Then she saw the tarp](https://news.yahoo.com/maid-asked-clean-real-mess-152558582.html)
-- May 19 - [2023.5 Ford Mustang Mach-E BlueCruise subscription renewal gets huge price increase](https://www.autoblog.com/2023/05/19/2023-5-ford-mustang-mach-e-bluecruise-subscription-renewal-gets-huge-price-increase/)
-- May 19 - [Woman accused of drugging date in Miami, stealing $600,000 in jewelry](https://news.yahoo.com/woman-accused-drugging-date-miami-142200013.html)
+- May 19 - [Watch: Tesla’s Humanoid Robots Are Walking Like People Now](https://news.yahoo.com/watch-tesla-humanoid-robots-just-160000231.html)
 <!-- feed end -->
