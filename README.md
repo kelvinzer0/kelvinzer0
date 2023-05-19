@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 19 - [A woman with 3 degrees who owes $250,000 in student loans at age 59 asked Dave Ramsey for help and was told her situation is 'disturbing'](https://news.yahoo.com/woman-3-degrees-owes-250-093839015.html)
 - May 19 - [Russian bomber shot down by Patriot system](https://news.yahoo.com/russian-bomber-shot-down-patriot-060811727.html)
 - May 19 - [Putin has one deadly weapon left, and I saw first hand the threat it poses](https://news.yahoo.com/putin-one-deadly-weapon-left-060000371.html)
-- May 19 - [A man who broke into an OnlyFans creator's attic, secretly recorded her naked, and stole her underwear said that she 'wanted to be stalked'](https://news.yahoo.com/man-broke-onlyfans-creators-attic-013414551.html)
+- May 19 - [Rep. Jim Jordan Gets Brutal Reminder Of His Past After Tweet About Whistleblowers](https://news.yahoo.com/rep-jim-jordan-gets-brutal-050500731.html)
 - May 19 - [Young Sheldon Finale Twist(er) Is No Laughing Matter! Big Bang Punchline Nixed in Favor of Dramatic Cliffhanger](https://news.yahoo.com/young-sheldon-finale-twist-er-005900860.html)
-- May 18 - [With a fuller Lake Shasta, more water is seeping from the front of Shasta Dam](https://news.yahoo.com/fuller-lake-shasta-more-water-230004222.html)
 <!-- feed end -->
