@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 19 - [Massive 1,189-pound great white shark spotted along SC coast. See for yourself](https://news.yahoo.com/massive-1-189-pound-great-131830411.html)
+- May 19 - [‘You need to die in penitentiary:’ Ga. man sentenced for kidnapping son, murdering 3 family members](https://news.yahoo.com/die-penitentiary-ga-man-sentenced-130952334.html)
 - May 19 - [Kari Lake Fawns Over Donald Trump With One Of Her Most Brazen Claims Yet](https://news.yahoo.com/kari-lake-fawns-over-donald-123213404.html)
+- May 19 - [Why top Trump allies like Roger Stone are using apocalyptic religious rhetoric](https://news.yahoo.com/why-top-trump-allies-like-roger-stone-are-using-apocalyptic-religious-rhetoric-100039179.html)
 - May 19 - [A woman with 3 degrees who owes $250,000 in student loans at age 59 asked Dave Ramsey for help and was told her situation is 'disturbing'](https://news.yahoo.com/woman-3-degrees-owes-250-093839015.html)
-- May 19 - [Russian bomber shot down by Patriot system](https://news.yahoo.com/russian-bomber-shot-down-patriot-060811727.html)
-- May 19 - [Putin has one deadly weapon left, and I saw first hand the threat it poses](https://news.yahoo.com/putin-one-deadly-weapon-left-060000371.html)
-- May 19 - [Young Sheldon Finale Twist(er) Is No Laughing Matter! Big Bang Punchline Nixed in Favor of Dramatic Cliffhanger](https://news.yahoo.com/young-sheldon-finale-twist-er-005900860.html)
 <!-- feed end -->
