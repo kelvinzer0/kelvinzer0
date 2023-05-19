@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 19 - [Mom arrested after infant found in plastic bag had ‘history of concealed pregnancies,’ deputies say](https://news.yahoo.com/mom-arrested-infant-found-plastic-185007047.html)
-- May 19 - [Price tag on reparations for Black descendants of slaves sparks debate as Democrat proposes $14 trillion](https://news.yahoo.com/price-tag-on-reparations-for-black-descendants-of-slaves-sparks-debate-as-democrat-proposes-14-trillion-184342584.html)
-- May 19 - [Utah mom accused of poisoning husband with fentanyl in cocktail took out $2 million in life insurance policies on him](https://news.yahoo.com/utah-mom-accused-poisoning-husband-183926104.html)
+- May 19 - [Cop issued him a trespass warning outside Florida smoke shop. Then the lunch meat flew](https://news.yahoo.com/cop-issued-him-trespass-warning-202647202.html)
+- May 19 - [Sandy Hook families preparing to sue Alex Jones' wife, family](https://news.yahoo.com/sandy-hook-families-preparing-sue-201223464.html)
 - May 19 - [Did Jeff Bezos put a sculpture of his girlfriend on the bow of his new $500 million megayacht? You be the judge.](https://news.yahoo.com/did-jeff-bezos-put-sculpture-180058164.html)
-- May 19 - [See the dramatic moment a falcon snatched a puffin out of the sky. ‘Absolutely nuts’](https://news.yahoo.com/see-dramatic-moment-falcon-snatched-172857197.html)
+- May 19 - [Orcas sank a third boat. Scientists think these 'brutal' attacks may be trauma-driven.](https://news.yahoo.com/orcas-sink-sailboat-ram-another-112127775.html)
+- May 19 - [Student debt: 615,000 borrowers receive public service loan forgiveness](https://finance.yahoo.com/news/student-debt-615000-borrowers-receive-public-service-loan-forgiveness-185547896.html)
 <!-- feed end -->
