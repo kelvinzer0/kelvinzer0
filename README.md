@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 19 - [Cop issued him a trespass warning outside Florida smoke shop. Then the lunch meat flew](https://news.yahoo.com/cop-issued-him-trespass-warning-202647202.html)
+- May 19 - [Filipino American woman from Texas says she wants to move to L.A. and be among ‘LA Filipinos’: ‘I just wish we had that here in Houston’](https://news.yahoo.com/filipino-american-woman-texas-says-204833288.html)
+- May 19 - [$200,000 bail set for Detroit clerk who locked door before customers were shot](https://news.yahoo.com/200-000-bail-set-detroit-202645477.html)
 - May 19 - [Sandy Hook families preparing to sue Alex Jones' wife, family](https://news.yahoo.com/sandy-hook-families-preparing-sue-201223464.html)
+- May 19 - [Jackie Kennedy's pink suit is locked in a vault and will be hidden from public view until 2103. Here are surprising facts about the famous outfit.](https://news.yahoo.com/jackie-kennedys-pink-suit-locked-200142281.html)
 - May 19 - [Did Jeff Bezos put a sculpture of his girlfriend on the bow of his new $500 million megayacht? You be the judge.](https://news.yahoo.com/did-jeff-bezos-put-sculpture-180058164.html)
-- May 19 - [Orcas sank a third boat. Scientists think these 'brutal' attacks may be trauma-driven.](https://news.yahoo.com/orcas-sink-sailboat-ram-another-112127775.html)
-- May 19 - [Student debt: 615,000 borrowers receive public service loan forgiveness](https://finance.yahoo.com/news/student-debt-615000-borrowers-receive-public-service-loan-forgiveness-185547896.html)
 <!-- feed end -->
