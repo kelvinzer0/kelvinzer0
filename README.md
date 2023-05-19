@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 19 - [India to withdraw 2,000-rupee notes from circulation](https://news.yahoo.com/india-withdraw-2-000-rupee-134106115.html)
 - May 19 - [Massive 1,189-pound great white shark spotted along SC coast. See for yourself](https://news.yahoo.com/massive-1-189-pound-great-131830411.html)
-- May 19 - [‘You need to die in penitentiary:’ Ga. man sentenced for kidnapping son, murdering 3 family members](https://news.yahoo.com/die-penitentiary-ga-man-sentenced-130952334.html)
 - May 19 - [Kari Lake Fawns Over Donald Trump With One Of Her Most Brazen Claims Yet](https://news.yahoo.com/kari-lake-fawns-over-donald-123213404.html)
-- May 19 - [Why top Trump allies like Roger Stone are using apocalyptic religious rhetoric](https://news.yahoo.com/why-top-trump-allies-like-roger-stone-are-using-apocalyptic-religious-rhetoric-100039179.html)
-- May 19 - [A woman with 3 degrees who owes $250,000 in student loans at age 59 asked Dave Ramsey for help and was told her situation is 'disturbing'](https://news.yahoo.com/woman-3-degrees-owes-250-093839015.html)
+- May 19 - [US Presidents Raised the Debt Ceiling 42 Times in Recent History — Here’s Who Raised It the Most](https://finance.yahoo.com/news/us-presidents-raised-debt-ceiling-110017986.html)
+- May 19 - [‘You can’t tell me this doesn’t work’: Shark Tank’s Kevin O’Leary has ripped apart Elon Musk’s claim that working from home is ‘immoral’](https://finance.yahoo.com/news/t-tell-doesn-t-shark-103131625.html)
 <!-- feed end -->
