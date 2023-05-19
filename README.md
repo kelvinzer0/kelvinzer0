@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 18 - [With a fuller Lake Shasta, more water is seeping from the front of Shasta Dam](https://news.yahoo.com/fuller-lake-shasta-more-water-230004222.html)
+- May 18 - [Clarence Thomas's first public scandal came in 1980, when he was a no-name aide to a GOP senator and complained to a journalist that his sister just waited by the mailbox for her welfare check](https://news.yahoo.com/clarence-thomass-first-public-scandal-223845791.html)
+- May 18 - [Disney to close Star Wars hotel that opened in Florida last year](https://news.yahoo.com/disney-close-star-wars-hotel-220216008.html)
 - May 18 - [Elizabeth Holmes: Inside the routine at the Federal Prison Camp in Bryan, Texas](https://news.yahoo.com/elizabeth-holmes-inside-routine-federal-203017418.html)
 - May 18 - [DeSantis Officially Enters the ‘Find Out’ Phase of His War With Disney](https://news.yahoo.com/desantis-officially-enters-phase-war-193236317.html)
-- May 18 - [Jim Jordan Freaks Out When Dem Confronts Him With House Rules](https://news.yahoo.com/jim-jordan-freaks-dem-confronts-190012510.html)
-- May 18 - [YouTube Is About to Make a Big Change Viewers Are Going to Absolutely Despise](https://www.thestreet.com/media/youtube-is-about-to-make-a-big-change-viewers-are-going-to-absolutely-despise?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 18 - [U.S. Air Force to award sixth-generation fighter contract in 2024](https://news.yahoo.com/u-air-force-award-sixth-175626408.html)
 <!-- feed end -->
