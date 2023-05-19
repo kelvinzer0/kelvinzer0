@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 19 - [Kyiv is demanding F-16s and 2 Ukrainian pilots just proved they can master the jet 4 times faster than the Pentagon thought possible: report](https://news.yahoo.com/kyiv-demanding-f-16s-2-011054545.html)
+- May 19 - [A man who broke into an OnlyFans creator's attic, secretly recorded her naked, and stole her underwear said that she 'wanted to be stalked'](https://news.yahoo.com/man-broke-onlyfans-creators-attic-013414551.html)
 - May 19 - [Young Sheldon Finale Twist(er) Is No Laughing Matter! Big Bang Punchline Nixed in Favor of Dramatic Cliffhanger](https://news.yahoo.com/young-sheldon-finale-twist-er-005900860.html)
 - May 18 - [With a fuller Lake Shasta, more water is seeping from the front of Shasta Dam](https://news.yahoo.com/fuller-lake-shasta-more-water-230004222.html)
 - May 18 - [Clarence Thomas's first public scandal came in 1980, when he was a no-name aide to a GOP senator and complained to a journalist that his sister just waited by the mailbox for her welfare check](https://news.yahoo.com/clarence-thomass-first-public-scandal-223845791.html)
-- May 18 - [Disney to close Star Wars hotel that opened in Florida last year](https://news.yahoo.com/disney-close-star-wars-hotel-220216008.html)
-- May 18 - [Elizabeth Holmes: Inside the routine at the Federal Prison Camp in Bryan, Texas](https://news.yahoo.com/elizabeth-holmes-inside-routine-federal-203017418.html)
 <!-- feed end -->
