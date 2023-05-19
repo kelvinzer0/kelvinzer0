@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 19 - [Winner of 'Prove Mike Wrong' contest takes Mike Lindell to court for $5 million after successfully proving him wrong](https://news.yahoo.com/winner-prove-mike-wrong-contest-222132680.html)
+- May 19 - [North Texas man who knocked out officer during Jan 6. Capitol riot learns his sentence](https://news.yahoo.com/north-texas-man-knocked-officer-214740934.html)
+- May 19 - [House speaker has not called for US congressman's prosecution](https://news.yahoo.com/house-speaker-not-called-us-210045464.html)
 - May 19 - [Filipino American woman from Texas says she wants to move to L.A. and be among ‘LA Filipinos’: ‘I just wish we had that here in Houston’](https://news.yahoo.com/filipino-american-woman-texas-says-204833288.html)
-- May 19 - [$200,000 bail set for Detroit clerk who locked door before customers were shot](https://news.yahoo.com/200-000-bail-set-detroit-202645477.html)
-- May 19 - [Sandy Hook families preparing to sue Alex Jones' wife, family](https://news.yahoo.com/sandy-hook-families-preparing-sue-201223464.html)
-- May 19 - [Jackie Kennedy's pink suit is locked in a vault and will be hidden from public view until 2103. Here are surprising facts about the famous outfit.](https://news.yahoo.com/jackie-kennedys-pink-suit-locked-200142281.html)
-- May 19 - [Did Jeff Bezos put a sculpture of his girlfriend on the bow of his new $500 million megayacht? You be the judge.](https://news.yahoo.com/did-jeff-bezos-put-sculpture-180058164.html)
+- May 19 - [Shockwaves Bend Light Around Transonic F-35C In Spectacular Images](https://news.yahoo.com/shockwaves-bend-light-around-transonic-203320151.html)
 <!-- feed end -->
