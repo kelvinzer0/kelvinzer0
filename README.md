@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 19 - [Reporter Slammed For 'Both Sides' Tweet On Man Who Carries AR-15 At School Bus Stop](https://news.yahoo.com/reporter-slammed-both-sides-tweet-165756588.html)
+- May 19 - [College waterski champ Micky Gellar dies at 18](https://news.yahoo.com/college-waterski-champ-micky-gellar-160829018.html)
 - May 19 - [A maid was asked to clean up a ‘real mess,’ Florida cops say. Then she saw the tarp](https://news.yahoo.com/maid-asked-clean-real-mess-152558582.html)
-- May 19 - [NASA picks Blue Origin to build the Artemis V Moon landing system](https://news.yahoo.com/nasa-picks-blue-origin-to-build-the-artemis-v-moon-landing-system-145503244.html)
+- May 19 - [2023.5 Ford Mustang Mach-E BlueCruise subscription renewal gets huge price increase](https://www.autoblog.com/2023/05/19/2023-5-ford-mustang-mach-e-bluecruise-subscription-renewal-gets-huge-price-increase/)
 - May 19 - [Woman accused of drugging date in Miami, stealing $600,000 in jewelry](https://news.yahoo.com/woman-accused-drugging-date-miami-142200013.html)
-- May 19 - [Ask an Advisor: Can a Nursing Home ‘Take Our IRA?' My Wife and I Are Elderly. We Have a $100K IRA and a Trust to Protect Our Assets.](https://finance.yahoo.com/news/ask-advisor-nursing-home-ira-140442815.html)
-- May 19 - [Massive 1,189-pound great white shark spotted along SC coast. See for yourself](https://news.yahoo.com/massive-1-189-pound-great-131830411.html)
 <!-- feed end -->
