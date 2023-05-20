@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 20 - [Laura Ingraham Has ‘No Clue’ Why Vets Group Made Up Story Fox Ran Wild With](https://news.yahoo.com/laura-ingraham-no-clue-why-152355395.html)
+- May 20 - [Russia's Wagner claims Bakhmut; Kyiv says situation critical](https://uk.news.yahoo.com/russias-wagner-claims-bakhmut-kyiv-144917948.html)
 - May 20 - [Walt Disney Makes Its Boldest Anti-DeSantis Threats Yet](https://www.thestreet.com/travel/walt-disney-makes-its-boldest-anti-desantis-threats-yet?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 20 - [19 Stupidly Entitled Neighbors That Would Have Me Moving Out Of My Place Soooo Fast](https://news.yahoo.com/19-stupidly-entitled-neighbors-moving-131602391.html)
-- May 20 - [David Axelrod: After Barack Obama, America will never be the same](https://news.yahoo.com/david-axelrod-barack-obama-america-130900247.html)
-- May 20 - [UPDATE 3-Russia's Prigozhin claims capture of Bakhmut, Ukraine says fighting goes on](https://finance.yahoo.com/news/1-russias-prigozhin-claims-full-130231093.html)
-- May 20 - [My Doctor Said I Had 16 Months To Live. I'd Be Dead Right Now If I Had Listened.](https://news.yahoo.com/doctor-said-had-16-months-123000858.html)
+- May 20 - [Elon Musk Says He Went Too Far Against Billionaire George Soros](https://www.thestreet.com/technology/elon-musk-says-he-went-too-far-against-billionaire-george-soros?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 20 - [Supreme Court Justice Neil Gorsuch calls COVID-19 response "the greatest intrusion on civil liberties in peacetime history"](https://news.yahoo.com/supreme-court-justice-neil-gorsuch-141657699.html)
 <!-- feed end -->
