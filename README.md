@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 20 - [19 Stupidly Entitled Neighbors That Would Have Me Moving Out Of My Place Soooo Fast](https://news.yahoo.com/19-stupidly-entitled-neighbors-moving-131602391.html)
+- May 20 - [UPDATE 3-Russia's Prigozhin claims capture of Bakhmut, Ukraine says fighting goes on](https://finance.yahoo.com/news/1-russias-prigozhin-claims-full-130231093.html)
 - May 20 - [My Doctor Said I Had 16 Months To Live. I'd Be Dead Right Now If I Had Listened.](https://news.yahoo.com/doctor-said-had-16-months-123000858.html)
 - May 20 - [A 40-year-old woman had heart palpitations and thought it was because she worked out too hard. She was diagnosed with stage 4 pancreatic cancer.](https://news.yahoo.com/40-old-woman-had-heart-102400938.html)
 - May 20 - [NC lawmaker’s words to a Black colleague make clear what the GOP has become | Opinion](https://news.yahoo.com/nc-lawmaker-words-black-colleague-100000098.html)
-- May 20 - [How a 35-year-old weed smoker behind 10 million scam calls made his fortune](https://news.yahoo.com/35-old-weed-smoker-behind-060000441.html)
-- May 20 - [Democrat Can't Hide Shock Over CNN Anchor's George Santos Question: 'Come On Now!'](https://news.yahoo.com/democrat-cant-hide-shock-over-045052412.html)
 <!-- feed end -->
