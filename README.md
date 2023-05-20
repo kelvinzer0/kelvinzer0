@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 20 - [How a 35-year-old weed smoker behind 10 million scam calls made his fortune](https://news.yahoo.com/35-old-weed-smoker-behind-060000441.html)
 - May 20 - [Democrat Can't Hide Shock Over CNN Anchor's George Santos Question: 'Come On Now!'](https://news.yahoo.com/democrat-cant-hide-shock-over-045052412.html)
+- May 20 - [Yucaipa High 'teacher of the year' accused of sex crime involving student](https://news.yahoo.com/yucaipa-high-teacher-accused-having-042424228.html)
 - May 20 - [The US military thought it killed a senior Al Qaeda leader in a drone strike, but some officials are now saying they may have made a mistake: report](https://news.yahoo.com/us-military-thought-killed-senior-032901878.html)
 - May 19 - [Winner of 'Prove Mike Wrong' contest takes Mike Lindell to court for $5 million after successfully proving him wrong](https://news.yahoo.com/winner-prove-mike-wrong-contest-222132680.html)
-- May 19 - [The doctor who drove his Tesla off a cliff with his family inside says he was pulling over to check his tire pressure, but his wife says he was trying 'to kill everyone:' report](https://news.yahoo.com/doctor-drove-tesla-off-cliff-222106331.html)
 <!-- feed end -->
