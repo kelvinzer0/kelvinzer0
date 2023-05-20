@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 19 - [Winner of 'Prove Mike Wrong' contest takes Mike Lindell to court for $5 million after successfully proving him wrong](https://news.yahoo.com/winner-prove-mike-wrong-contest-222132680.html)
+- May 19 - [The doctor who drove his Tesla off a cliff with his family inside says he was pulling over to check his tire pressure, but his wife says he was trying 'to kill everyone:' report](https://news.yahoo.com/doctor-drove-tesla-off-cliff-222106331.html)
+- May 19 - [Squatter evicted from home of active duty Army officer, arrested after Channel 2 investigation](https://news.yahoo.com/squatter-evicted-home-active-duty-220908591.html)
 - May 19 - [North Texas man who knocked out officer during Jan 6. Capitol riot learns his sentence](https://news.yahoo.com/north-texas-man-knocked-officer-214740934.html)
 - May 19 - [House speaker has not called for US congressman's prosecution](https://news.yahoo.com/house-speaker-not-called-us-210045464.html)
-- May 19 - [Filipino American woman from Texas says she wants to move to L.A. and be among ‘LA Filipinos’: ‘I just wish we had that here in Houston’](https://news.yahoo.com/filipino-american-woman-texas-says-204833288.html)
-- May 19 - [Shockwaves Bend Light Around Transonic F-35C In Spectacular Images](https://news.yahoo.com/shockwaves-bend-light-around-transonic-203320151.html)
 <!-- feed end -->
