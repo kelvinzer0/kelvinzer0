@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 20 - [Popeyes shut down a store after teenage workers said they were asked to skip school and do late weeknight shifts](https://news.yahoo.com/popeyes-shut-down-store-teenage-161500000.html)
 - May 20 - [Texas is facing a housing crisis, a migrant crisis, a multi-year drought, and an epidemic of mass shootings. Ted Cruz, meanwhile, has opened an investigation into Bud Light.](https://news.yahoo.com/texas-facing-housing-crisis-migrant-155234149.html)
 - May 20 - [Laura Ingraham Has ‘No Clue’ Why Vets Group Made Up Story Fox Ran Wild With](https://news.yahoo.com/laura-ingraham-no-clue-why-152355395.html)
+- May 20 - [Jeddah, sleep, and a French plane, how Zelenskiy reached Japan's G7](https://news.yahoo.com/jeddah-sleep-french-plane-zelenskiy-150751706.html)
 - May 20 - [Russia's Wagner claims Bakhmut; Kyiv says situation critical](https://uk.news.yahoo.com/russias-wagner-claims-bakhmut-kyiv-144917948.html)
-- May 20 - [Walt Disney Makes Its Boldest Anti-DeSantis Threats Yet](https://www.thestreet.com/travel/walt-disney-makes-its-boldest-anti-desantis-threats-yet?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 20 - [Elon Musk Says He Went Too Far Against Billionaire George Soros](https://www.thestreet.com/technology/elon-musk-says-he-went-too-far-against-billionaire-george-soros?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
