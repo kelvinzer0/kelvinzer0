@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 20 - [A 40-year-old woman had heart palpitations and thought it was because she worked out too hard. She was diagnosed with stage 4 pancreatic cancer.](https://news.yahoo.com/40-old-woman-had-heart-102400938.html)
+- May 20 - [NC lawmaker’s words to a Black colleague make clear what the GOP has become | Opinion](https://news.yahoo.com/nc-lawmaker-words-black-colleague-100000098.html)
 - May 20 - [How a 35-year-old weed smoker behind 10 million scam calls made his fortune](https://news.yahoo.com/35-old-weed-smoker-behind-060000441.html)
 - May 20 - [Democrat Can't Hide Shock Over CNN Anchor's George Santos Question: 'Come On Now!'](https://news.yahoo.com/democrat-cant-hide-shock-over-045052412.html)
-- May 20 - [Yucaipa High 'teacher of the year' accused of sex crime involving student](https://news.yahoo.com/yucaipa-high-teacher-accused-having-042424228.html)
 - May 20 - [The US military thought it killed a senior Al Qaeda leader in a drone strike, but some officials are now saying they may have made a mistake: report](https://news.yahoo.com/us-military-thought-killed-senior-032901878.html)
-- May 19 - [Winner of 'Prove Mike Wrong' contest takes Mike Lindell to court for $5 million after successfully proving him wrong](https://news.yahoo.com/winner-prove-mike-wrong-contest-222132680.html)
 <!-- feed end -->
