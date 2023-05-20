@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 20 - [See the massive boulders blocking California's main route to Yosemite National Park](https://news.yahoo.com/see-massive-boulders-blocking-californias-004657570.html)
 - May 19 - [Winner of 'Prove Mike Wrong' contest takes Mike Lindell to court for $5 million after successfully proving him wrong](https://news.yahoo.com/winner-prove-mike-wrong-contest-222132680.html)
 - May 19 - [The doctor who drove his Tesla off a cliff with his family inside says he was pulling over to check his tire pressure, but his wife says he was trying 'to kill everyone:' report](https://news.yahoo.com/doctor-drove-tesla-off-cliff-222106331.html)
 - May 19 - [Squatter evicted from home of active duty Army officer, arrested after Channel 2 investigation](https://news.yahoo.com/squatter-evicted-home-active-duty-220908591.html)
 - May 19 - [North Texas man who knocked out officer during Jan 6. Capitol riot learns his sentence](https://news.yahoo.com/north-texas-man-knocked-officer-214740934.html)
-- May 19 - [House speaker has not called for US congressman's prosecution](https://news.yahoo.com/house-speaker-not-called-us-210045464.html)
 <!-- feed end -->
