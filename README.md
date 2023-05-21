@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 20 - [Ex-Trump attorney explains why he left Trump’s legal team](https://news.yahoo.com/ex-trump-attorney-explains-why-223628879.html)
 - May 20 - [Texas is facing a housing crisis, a migrant crisis, a multi-year drought, and an epidemic of mass shootings. Ted Cruz, meanwhile, has opened an investigation into Bud Light.](https://news.yahoo.com/texas-facing-housing-crisis-migrant-155234149.html)
 - May 20 - [A 40-year-old woman had heart palpitations and thought it was because she worked out too hard. She was diagnosed with stage 4 pancreatic cancer.](https://news.yahoo.com/40-old-woman-had-heart-102400938.html)
 - May 20 - [Ukraine Situation Report: Russia Gains In Bakhmut, Talk Of Imminent Fall Swirls](https://news.yahoo.com/ukraine-situation-report-russia-gains-205153873.html)
 - May 20 - [Laura Ingraham Has ‘No Clue’ Why Vets Group Made Up Story Fox Ran Wild With](https://news.yahoo.com/laura-ingraham-no-clue-why-152355395.html)
-- May 20 - [Jeddah, sleep, and a French plane, how Zelenskiy reached Japan's G7](https://news.yahoo.com/jeddah-sleep-french-plane-zelenskiy-150751706.html)
 <!-- feed end -->
