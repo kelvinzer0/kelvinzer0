@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 21 - [Greece's ruling Conservatives win parliamentary vote](https://news.yahoo.com/greeces-ruling-conservatives-win-parliamentary-222106560.html)
 - May 21 - [Firefighters battle giant blaze in Alberta](https://news.yahoo.com/firefighters-battle-giant-blaze-alberta-200402076.html)
 - May 21 - [Epstein 'threatened to reveal' Bill Gates's alleged affair with Russian bridge player](https://news.yahoo.com/epstein-threatened-reveal-bill-gatess-200345029.html)
 - May 21 - [California Gov. Gavin Newsom demands records from textbook companies to see which are caving to Florida's 'extremist' demands](https://news.yahoo.com/california-gov-gavin-newsom-demands-194314140.html)
 - May 21 - [Big quake on Northern California coast follows cluster of smaller tremors farther south](https://news.yahoo.com/5-5-magnitude-quake-strikes-193202282.html)
-- May 21 - ["People Don't Freaking Believe You": 25 Of The Most Upsetting Aspects Of Womanhood In 2023, According To The Women Who Experience Them Daily](https://news.yahoo.com/women-speaking-25-worst-parts-184602926.html)
 <!-- feed end -->
