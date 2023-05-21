@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 21 - ["People Don't Freaking Believe You": 25 Of The Most Upsetting Aspects Of Womanhood In 2023, According To The Women Who Experience Them Daily](https://news.yahoo.com/women-speaking-25-worst-parts-184602926.html)
+- May 21 - [Chuck Todd Blasts Republican Congressman for Defending Trump’s Debt Flip-Flop: ‘Do You Realize How Absurd That Sounds?’](https://news.yahoo.com/chuck-todd-blasts-republican-congressman-180220436.html)
+- May 21 - [Drone footage shows scale of Italy's flooded towns](https://news.yahoo.com/drone-footage-shows-scale-italys-163958112.html)
 - May 21 - ['It's going to be ugly': This CEO has issued a dire warning about US real estate, saying areas will be 'destroyed' — but he still likes this 1 niche. What it is and how to invest in it](https://finance.yahoo.com/news/going-ugly-ceo-just-issued-103500109.html)
 - May 21 - [A transgender girl misses her high school graduation after Mississippi judge denies emergency plea to permit her to go in a dress and heels](https://news.yahoo.com/transgender-girl-not-attend-her-010932641.html)
-- May 21 - [China tells tech manufacturers to stop using Micron chips, stepping up feud with United States](https://news.yahoo.com/china-tells-tech-manufacturers-stop-154021850.html)
-- May 21 - [GOP Sen: Trump can’t win 2024 general election](https://news.yahoo.com/gop-sen-trump-t-win-150527924.html)
-- May 21 - [GOP Sen: Not tackling Social Security is ‘disqualifying’ in 2024](https://news.yahoo.com/gop-sen-not-tackling-social-145400357.html)
 <!-- feed end -->
