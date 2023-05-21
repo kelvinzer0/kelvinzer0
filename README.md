@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 21 - [A transgender girl misses her high school graduation after Mississippi judge denies emergency plea to permit her to go in a dress and heels](https://news.yahoo.com/transgender-girl-not-attend-her-010932641.html)
 - May 21 - [China tells tech manufacturers to stop using Micron chips, stepping up feud with United States](https://news.yahoo.com/china-tells-tech-manufacturers-stop-154021850.html)
-- May 21 - [GOP Sen: Trump can’t win 2024 general election](https://news.yahoo.com/gop-sen-trump-t-win-150527924.html)
+- May 21 - [GOP Sen: Not tackling Social Security is ‘disqualifying’ in 2024](https://news.yahoo.com/gop-sen-not-tackling-social-145400357.html)
 - May 21 - [Daniel Penny, who choked a homeless man to death on the subway, says 'it's a little bit comical' because 'I love all people'](https://news.yahoo.com/daniel-penny-choked-homeless-man-143658954.html)
 - May 21 - [The ‘Beverly Hills Insurrectionist’ and the Big Myth About Jan. 6](https://news.yahoo.com/beverly-hills-insurrectionist-big-myth-134737675.html)
-- May 21 - [A transgender girl misses her high school graduation after Mississippi judge denies emergency plea to permit her to go in a dress and heels](https://news.yahoo.com/transgender-girl-not-attend-her-010932641.html)
 <!-- feed end -->
