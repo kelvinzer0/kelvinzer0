@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 21 - [In Sumner County, Tennessee, conservatives take aim at elections](https://news.yahoo.com/sumner-county-tennessee-conservatives-aim-131248768.html)
+- May 21 - [Is this really what perfect looks like?](https://news.yahoo.com/really-perfect-looks-130000971.html)
+- May 21 - [Tensions in heavily GOP Tenn. county after conservative takeover reflect wider battle over elections](https://news.yahoo.com/tensions-heavily-gop-tenn-county-120546525.html)
 - May 21 - [Ron DeSantis Is About To Run For President. Andrew Warren Has A Warning.](https://news.yahoo.com/ron-desantis-run-president-andrew-120003554.html)
 - May 21 - [Back in hoodies and gym shorts, Fetterman tackles Senate life after depression treatment](https://news.yahoo.com/back-hoodies-gym-shorts-fetterman-110611031.html)
-- May 21 - [A top Ukrainian commander fighting around Bakhmut says military experts who portray Russian soldiers as only 'stupid and miserable' are wrong](https://news.yahoo.com/top-ukrainian-commander-fighting-around-105408871.html)
-- May 21 - [UPDATE 1-Kyiv: Ukrainian troops have partly encircled Bakhmut, still control part of city](https://finance.yahoo.com/news/1-kyiv-ukrainian-troops-partly-093953739.html)
-- May 21 - [These 3 investors bought an abandoned high school for $100,000 and turned it into 31 luxury apartments. Take a look around.](https://news.yahoo.com/3-investors-bought-abandoned-high-074500622.html)
 <!-- feed end -->
