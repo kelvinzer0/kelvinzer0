@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 21 - [As the West surges toward electric cars, here’s where the unwanted gas guzzlers go](https://news.yahoo.com/west-surges-toward-electric-cars-044952760.html)
 - May 21 - [A Trump lawyer tried to block other members of the former president's legal team from conducting additional searches following the FBI raid of Mar-a-Lago, Trump's former lawyer claimed](https://news.yahoo.com/trump-lawyer-tried-block-other-035258839.html)
 - May 21 - [Mexico prosecutors withdraw case against woman sentenced to prison for killing man raping her](https://news.yahoo.com/mexico-withdraws-prison-sentence-against-034430724.html)
 - May 21 - [A transgender girl will not attend her high school graduation after Mississippi judge denies emergency plea to permit her to go dressed as a girl](https://news.yahoo.com/transgender-girl-not-attend-her-010932641.html)
 - May 21 - [Lawyer who quit Trump legal team cites disagreements with Trump adviser as basis for departure](https://news.yahoo.com/lawyer-quit-trump-legal-team-000358619.html)
-- May 20 - [Texas is facing a housing crisis, a migrant crisis, a multi-year drought, and an epidemic of mass shootings. Ted Cruz, meanwhile, has opened an investigation into Bud Light.](https://news.yahoo.com/texas-facing-housing-crisis-migrant-155234149.html)
 <!-- feed end -->
