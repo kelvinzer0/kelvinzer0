@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 21 - [UPDATE 1-Kyiv: Ukrainian troops have partly encircled Bakhmut, still control part of city](https://finance.yahoo.com/news/1-kyiv-ukrainian-troops-partly-093953739.html)
+- May 21 - [These 3 investors bought an abandoned high school for $100,000 and turned it into 31 luxury apartments. Take a look around.](https://news.yahoo.com/3-investors-bought-abandoned-high-074500622.html)
+- May 21 - [Zelenskyy appeared to confirm Ukraine is no longer in control of Bakhmut: 'For today, Bakhmut is only in our hearts.'](https://news.yahoo.com/zelenskyy-appeared-confirm-ukraine-no-071903836.html)
 - May 21 - [A missing Texas woman has been found dead and a man is in custody on suspicion of murder, police say](https://news.yahoo.com/missing-texas-woman-found-dead-045701030.html)
-- May 21 - [As the West surges toward electric cars, here’s where the unwanted gas guzzlers go](https://news.yahoo.com/west-surges-toward-electric-cars-044952760.html)
-- May 21 - [A Trump lawyer tried to block other members of the former president's legal team from conducting additional searches following the FBI raid of Mar-a-Lago, Trump's former lawyer claimed](https://news.yahoo.com/trump-lawyer-tried-block-other-035258839.html)
-- May 21 - [Mexico prosecutors withdraw case against woman sentenced to prison for killing man raping her](https://news.yahoo.com/mexico-withdraws-prison-sentence-against-034430724.html)
-- May 21 - [A transgender girl will not attend her high school graduation after Mississippi judge denies emergency plea to permit her to go dressed as a girl](https://news.yahoo.com/transgender-girl-not-attend-her-010932641.html)
+- May 21 - [In pointed dissent, Justice Kagan accuses fellow liberal Justice Sotomayor of hypocrisy in Warhol decision, says the court is 'trying too hard' and anti-artist ruling will 'stifle creativity' and 'make our world poorer'](https://news.yahoo.com/pointed-dissent-justice-kagan-accuses-045650426.html)
 <!-- feed end -->
