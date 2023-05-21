@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 21 - [In Sumner County, Tennessee, conservatives take aim at elections](https://news.yahoo.com/sumner-county-tennessee-conservatives-aim-131248768.html)
-- May 21 - [Is this really what perfect looks like?](https://news.yahoo.com/really-perfect-looks-130000971.html)
-- May 21 - [Tensions in heavily GOP Tenn. county after conservative takeover reflect wider battle over elections](https://news.yahoo.com/tensions-heavily-gop-tenn-county-120546525.html)
-- May 21 - [Ron DeSantis Is About To Run For President. Andrew Warren Has A Warning.](https://news.yahoo.com/ron-desantis-run-president-andrew-120003554.html)
-- May 21 - [Back in hoodies and gym shorts, Fetterman tackles Senate life after depression treatment](https://news.yahoo.com/back-hoodies-gym-shorts-fetterman-110611031.html)
+- May 21 - [Russia's war on Ukraine latest: Ukraine says closer to encircling Bakhmut](https://news.yahoo.com/russias-war-ukraine-latest-ukraine-142725766.html)
+- May 21 - [The ‘Beverly Hills Insurrectionist’ and the Big Myth About Jan. 6](https://news.yahoo.com/beverly-hills-insurrectionist-big-myth-134737675.html)
+- May 21 - [A transgender girl misses her high school graduation after Mississippi judge denies emergency plea to permit her to go in a dress and heels](https://news.yahoo.com/transgender-girl-not-attend-her-010932641.html)
+- May 21 - [A 30-year-old university dropout and former Pizza Hut delivery driver is now worth $1.1 billion — 3 times more than Ed Sheeran](https://news.yahoo.com/30-old-university-dropout-former-134500286.html)
+- May 21 - [Climate activists turn Rome's Trevi Fountain black](https://news.yahoo.com/climate-activists-turn-romes-trevi-133446959.html)
 <!-- feed end -->
