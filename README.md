@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 21 - [Firefighters battle giant blaze in Alberta](https://news.yahoo.com/firefighters-battle-giant-blaze-alberta-200402076.html)
 - May 21 - [Epstein 'threatened to reveal' Bill Gates's alleged affair with Russian bridge player](https://news.yahoo.com/epstein-threatened-reveal-bill-gatess-200345029.html)
+- May 21 - [California Gov. Gavin Newsom demands records from textbook companies to see which are caving to Florida's 'extremist' demands](https://news.yahoo.com/california-gov-gavin-newsom-demands-194314140.html)
 - May 21 - [Big quake on Northern California coast follows cluster of smaller tremors farther south](https://news.yahoo.com/5-5-magnitude-quake-strikes-193202282.html)
 - May 21 - ["People Don't Freaking Believe You": 25 Of The Most Upsetting Aspects Of Womanhood In 2023, According To The Women Who Experience Them Daily](https://news.yahoo.com/women-speaking-25-worst-parts-184602926.html)
-- May 21 - [Chuck Todd Blasts Republican Congressman for Defending Trump’s Debt Flip-Flop: ‘Do You Realize How Absurd That Sounds?’](https://news.yahoo.com/chuck-todd-blasts-republican-congressman-180220436.html)
 <!-- feed end -->
