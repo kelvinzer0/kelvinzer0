@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 21 - [A missing Texas woman has been found dead and a man is in custody on suspicion of murder, police say](https://news.yahoo.com/missing-texas-woman-found-dead-045701030.html)
-- May 21 - [In pointed dissent, Justice Kagan accuses fellow liberal Justice Sotomayor of hypocrisy in Warhol decision, says the court is 'trying too hard' and anti-artist ruling will 'stifle creativity' and 'make our world poorer'](https://news.yahoo.com/pointed-dissent-justice-kagan-accuses-045650426.html)
 - May 21 - [As the West surges toward electric cars, here’s where the unwanted gas guzzlers go](https://news.yahoo.com/west-surges-toward-electric-cars-044952760.html)
 - May 21 - [A Trump lawyer tried to block other members of the former president's legal team from conducting additional searches following the FBI raid of Mar-a-Lago, Trump's former lawyer claimed](https://news.yahoo.com/trump-lawyer-tried-block-other-035258839.html)
 - May 21 - [Mexico prosecutors withdraw case against woman sentenced to prison for killing man raping her](https://news.yahoo.com/mexico-withdraws-prison-sentence-against-034430724.html)
+- May 21 - [A transgender girl will not attend her high school graduation after Mississippi judge denies emergency plea to permit her to go dressed as a girl](https://news.yahoo.com/transgender-girl-not-attend-her-010932641.html)
 <!-- feed end -->
