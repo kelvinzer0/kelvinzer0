@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 22 - [Def Leppard drummer Rick Allen says he was attacked outside Florida hotel in March](https://news.yahoo.com/def-leppard-drummer-rick-allen-144406016.html)
+- May 22 - [Melania Trump Allegedly ‘Took Advantage’ of Donald Trump’s Court Case to Renegotiate This Part of Their Marriage](https://news.yahoo.com/melania-trump-allegedly-took-advantage-150800685.html)
+- May 22 - [Video shows woman keying more than 400 cars at dealerships in Vancouver area](https://news.yahoo.com/video-shows-woman-keying-more-150043600.html)
+- May 22 - [Deputy collapses and dies after disarming 18-year-old suspect, Florida sheriff says](https://news.yahoo.com/deputy-collapses-dies-disarming-18-144356025.html)
 - May 22 - ['Are you from America?': Viral video shows woman attacking group of Asians following LA car collision](https://news.yahoo.com/america-viral-video-shows-woman-141739387.html)
 - May 22 - [Kari Lake confronts AZ GOP chair and disaster ensues (for Republicans)](https://news.yahoo.com/kari-lake-confronts-az-gop-140029532.html)
-- May 22 - ['Tragic and terrible': Oconee County deputy dies in lawn mower accident](https://news.yahoo.com/tragic-terrible-oconee-county-deputy-135313611.html)
-- May 22 - [Russian Deputy Minister Dies Suddenly After Slamming ‘Fascist Invasion’ of Ukraine](https://news.yahoo.com/russian-deputy-minister-dies-suddenly-131412559.html)
 <!-- feed end -->
