@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 22 - [Exclusive-Texts tie DeSantis closely to Trump insider Lev Parnas in 2018 race](https://news.yahoo.com/exclusive-texts-tie-desantis-closely-114844566.html)
-- May 22 - [TikToker shares best money-saving tips to save 30% of salary](https://news.yahoo.com/tiktoker-shares-best-money-saving-111504835.html)
+- May 22 - [Idaho murders suspect to be arraigned](https://news.yahoo.com/idaho-murders-suspect-arraigned-121518249.html)
+- May 22 - [If the U.S. breaches the debt ceiling, these states would feel it most](https://finance.yahoo.com/news/states-suffer-most-u-smashes-090019888.html)
+- May 22 - [Ukraine says it advances on Bakhmut's flanks to entrap Russians](https://news.yahoo.com/ukraine-says-advances-bakhmuts-flanks-111303233.html)
+- May 22 - [More Bang for Your Buck: These 20 Cars Will Last You Twice as Long as the Average Vehicle](https://finance.yahoo.com/news/more-bang-buck-20-cars-110026804.html)
 - May 22 - [Former "teacher of the year" arrested for alleged sex with 16-year-old](https://news.yahoo.com/former-teacher-arrested-alleged-sex-102000178.html)
-- May 22 - [US bomb designed to hit targets like Iran underground nuclear sites briefly reappears amid tensions](https://news.yahoo.com/us-bomb-designed-hit-targets-101519892.html)
-- May 22 - [Electric truck sales take off at Volvo](https://news.yahoo.com/electric-truck-sales-off-volvo-100517086.html)
 <!-- feed end -->
