@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 22 - [Jeffrey Epstein reportedly threatened Bill Gates with knowledge of the Microsoft billionaire's affair with a Russian bridge player](https://finance.yahoo.com/news/jeffrey-epstein-reportedly-threatened-bill-182809850.html)
 - May 22 - [Russia says F-16 transfer to Ukraine would raise questions of NATO's involvement](https://news.yahoo.com/russia-says-f-16-transfer-002233343.html)
 - May 22 - [China summons Japanese ambassador over actions at G7](https://news.yahoo.com/china-summons-japanese-ambassador-over-001013412.html)
-- May 21 - [Public drunkenness, disorderly conduct leads to 230 arrests at annual Texas Jeep weekend event](https://news.yahoo.com/public-drunkenness-disorderly-conduct-leads-232854187.html)
+- May 21 - [Nearly 75% of home purchases in a Bay Area city were made by LLCs or trusts. It's a trend among the wealthy.](https://finance.yahoo.com/news/nearly-75-home-purchases-bay-235603292.html)
 - May 21 - [Archaeologists discover a lost world of 417 ancient Mayans cities buried in remote jungle, connected by miles of 'superhighways,' WaPo reports](https://news.yahoo.com/archaeologists-discover-lost-world-417-112600870.html)
-- May 21 - [Luxury Retail Employees Are Revealing What It's Like To Deal With The "Ultra Rich," And Oh My, It Gets Wild](https://news.yahoo.com/luxury-retail-employees-revealing-job-231602050.html)
 <!-- feed end -->
