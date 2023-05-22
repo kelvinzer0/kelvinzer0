@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 22 - [UPDATE 1-E. Jean Carroll seeks new damages from Trump over post-verdict statements](https://finance.yahoo.com/news/1-e-jean-carroll-seeks-214919313.html)
-- May 22 - [E. Jean Carroll seeks new damages from Trump over post-verdict statements](https://news.yahoo.com/e-jean-carroll-seeks-damages-213918004.html)
-- May 22 - [9th Circuit reverses judge's ruling striking down deportation law as racist](https://news.yahoo.com/9th-circuit-reverses-judges-ruling-213525146.html)
-- May 22 - [Justified: Fire In The Hole](https://news.yahoo.com/justified-fire-hole-010500100.html)
-- May 22 - [Ted Cruz said Martin Luther King Jr. would be 'ashamed' of the NAACP's Florida travel warning. MLK's daughter, Bernice King, disagreed.](https://news.yahoo.com/ted-cruz-said-martin-luther-202026830.html)
+- May 22 - [School shooter asks for mercy from life sentence; teacher, principal want him to stay in prison](https://news.yahoo.com/school-shooter-asks-mercy-life-224449277.html)
+- May 22 - [Target's new Pride collection features 'Live Laugh Lesbian' shirt, tucking inclusive bikini bottoms: 'I almost cried'](https://news.yahoo.com/targets-new-pride-collection-features-live-laugh-lesbian-shirt-tucking-inclusive-bikini-bottoms-i-almost-cried-221507181.html)
+- May 22 - [This multi-millionaire entrepreneur infused himself with blood from his 17-year-old son in a quest to stay young forever](https://news.yahoo.com/multi-millionaire-entrepreneur-infused-himself-221156649.html)
+- May 22 - [My Microscopic Little Pea Brain Is Totally Blown After Seeing These 19 Absolutely Incredible Pictures For The Very First Time Last Week](https://news.yahoo.com/19-incredible-pictures-blew-tiny-220222038.html)
+- May 22 - [E. Jean Carroll seeks $10 million in damages from Trump over post-verdict statements](https://news.yahoo.com/e-jean-carroll-seeks-damages-213918004.html)
 <!-- feed end -->
