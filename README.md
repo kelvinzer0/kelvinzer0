@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 22 - [Philippines blaze destroys historic post office](https://news.yahoo.com/philippines-blaze-destroys-historic-post-080755464.html)
-- May 22 - [‘This Confession Was Coerced,’ Claims Attorney For Brendan Dassey](https://news.yahoo.com/confession-coerced-claims-attorney-brendan-080154622.html)
 - May 22 - [Dignity denied as more than 3,000 schools in South Africa still use pit toilets](https://news.yahoo.com/dignity-denied-more-3-000-075030688.html)
 - May 22 - [Former Florida GOP Rep. Considers Drastic Move Because Of Gov. Ron DeSantis](https://news.yahoo.com/former-florida-gop-rep-considers-061852973.html)
 - May 22 - [One of Putin's closest friends built him a $3.2 million fishing villa in Finland, then had to scrap it when the Russian leader showed up and wasn't keen on fishing in the country: report](https://news.yahoo.com/one-putins-closest-friends-built-052646192.html)
+- May 22 - [Russia-occupied nuclear plant in Ukraine cut off from power grid](https://news.yahoo.com/zaporizhzhia-nuclear-plant-switched-standby-052627184.html)
+- May 22 - [A DEI exec at Uber was placed on leave after hosting an event about white women who don't like being called a 'Karen'](https://news.yahoo.com/dei-exec-uber-placed-leave-034641289.html)
 <!-- feed end -->
