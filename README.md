@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 22 - [Authorities begin demolition of vast Mayotte shantytown: AFP](https://news.yahoo.com/authorities-begin-demolition-vast-mayotte-063710283.html)
 - May 22 - [One of Putin's closest friends built him a $3.2 million fishing villa in Finland, then had to scrap it when the Russian leader showed up and wasn't keen on fishing in the country: report](https://news.yahoo.com/one-putins-closest-friends-built-052646192.html)
 - May 22 - [A DEI exec at Uber was placed on leave after hosting an event about white women who don't like being called a 'Karen'](https://news.yahoo.com/dei-exec-uber-placed-leave-034641289.html)
 - May 22 - [An Indiana man was killed after a grenade his family found in their grandpa's belongings blew up in his home, police say](https://news.yahoo.com/indiana-man-killed-grenade-family-031150886.html)
 - May 22 - [Video shows Warner Bros. CEO David Zaslav struggled to speak at Boston University after protestors booed and told him to 'pay your writers'](https://news.yahoo.com/video-shows-warner-bros-ceo-023040728.html)
-- May 22 - [Jeffrey Epstein reportedly threatened Bill Gates with knowledge of the Microsoft billionaire's affair with a Russian bridge player](https://finance.yahoo.com/news/jeffrey-epstein-reportedly-threatened-bill-182809850.html)
 <!-- feed end -->
