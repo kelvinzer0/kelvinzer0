@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 22 - [Exclusive-Texts tie DeSantis closely to Trump insider Lev Parnas in 2018 race](https://news.yahoo.com/exclusive-texts-tie-desantis-closely-114844566.html)
+- May 22 - [TikToker shares best money-saving tips to save 30% of salary](https://news.yahoo.com/tiktoker-shares-best-money-saving-111504835.html)
+- May 22 - [Former "teacher of the year" arrested for alleged sex with 16-year-old](https://news.yahoo.com/former-teacher-arrested-alleged-sex-102000178.html)
 - May 22 - [US bomb designed to hit targets like Iran underground nuclear sites briefly reappears amid tensions](https://news.yahoo.com/us-bomb-designed-hit-targets-101519892.html)
 - May 22 - [Electric truck sales take off at Volvo](https://news.yahoo.com/electric-truck-sales-off-volvo-100517086.html)
-- May 22 - [Russians looking for options to leave occupied Crimea, says Ukrainian military](https://news.yahoo.com/russians-looking-options-leave-occupied-095600247.html)
-- May 22 - [Authorities begin demolition of vast Mayotte shantytown](https://news.yahoo.com/authorities-begin-demolition-vast-mayotte-095336690.html)
-- May 22 - [Over 700 invaders eliminated in a day, enemy aircraft destroyed – General Staff](https://news.yahoo.com/over-700-invaders-eliminated-day-081500797.html)
 <!-- feed end -->
