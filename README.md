@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 22 - [JPMorgan to see $3 bln from First Republic deal](https://news.yahoo.com/jpmorgan-see-3-bln-first-174026414.html)
-- May 22 - [Former wrestling ‘star’ killed in jet ski accident, Alabama cops say. ‘Fine young man’](https://news.yahoo.com/former-wrestling-star-killed-jet-173907832.html)
+- May 22 - [Prehistoric cave paintings went undetected for thousands of years. Then drones flew by](https://news.yahoo.com/prehistoric-cave-paintings-went-undetected-182524979.html)
+- May 22 - [Deputy accused of neglect in Fla. shooting speaks](https://news.yahoo.com/deputy-accused-neglect-fla-shooting-181604967.html)
+- May 22 - [One of Putin's closest friends built him a $3.2 million fishing villa in Finland, then had to scrap it when the Russian leader showed up and wasn't keen on fishing in the country: report](https://news.yahoo.com/one-putins-closest-friends-built-052646192.html)
 - May 22 - [Tucker Carlson was fired before he could give a conspiracy theory-laden monologue alleging a Jan. 6 protester was actually an FBI informant, biographer says](https://news.yahoo.com/tucker-carlson-fired-could-conspiracy-171932795.html)
-- May 22 - [‘Lots of young men die on that bed... often they are on the phone to their mothers’](https://news.yahoo.com/lots-young-men-die-bed-171415231.html)
-- May 22 - [Massive Nigeria refinery aims to end fuel shortages](https://news.yahoo.com/massive-nigeria-refinery-aims-end-171216687.html)
+- May 22 - [Judge enters not-guilty pleas for man accused of murdering 4 Idaho college students](https://news.yahoo.com/judge-enters-not-guilty-pleas-180742280.html)
 <!-- feed end -->
