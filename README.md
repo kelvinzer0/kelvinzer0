@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 22 - [Idaho murders suspect to be arraigned](https://news.yahoo.com/idaho-murders-suspect-arraigned-121518249.html)
+- May 22 - [Russian Deputy Minister Dies Suddenly After Slamming ‘Fascist Invasion’ of Ukraine](https://news.yahoo.com/russian-deputy-minister-dies-suddenly-131412559.html)
+- May 22 - [Marissa Smith, 17, convicted of murder, to be sentenced today](https://news.yahoo.com/marissa-smith-17-convicted-murder-125302006.html)
+- May 22 - [A 30-ton shipment of explosive chemicals traveling from Wyoming to California by rail disappeared en route, officials say](https://news.yahoo.com/30-ton-shipment-explosive-chemicals-122047925.html)
 - May 22 - [If the U.S. breaches the debt ceiling, these states would feel it most](https://finance.yahoo.com/news/states-suffer-most-u-smashes-090019888.html)
-- May 22 - [Ukraine says it advances on Bakhmut's flanks to entrap Russians](https://news.yahoo.com/ukraine-says-advances-bakhmuts-flanks-111303233.html)
-- May 22 - [More Bang for Your Buck: These 20 Cars Will Last You Twice as Long as the Average Vehicle](https://finance.yahoo.com/news/more-bang-buck-20-cars-110026804.html)
-- May 22 - [Former "teacher of the year" arrested for alleged sex with 16-year-old](https://news.yahoo.com/former-teacher-arrested-alleged-sex-102000178.html)
+- May 22 - [Armenia will accept Karabakh as part of Azerbaijan subject to rights guarantee - Armenian PM cited](https://news.yahoo.com/armenia-accept-karabakh-part-azerbaijan-110719343.html)
 <!-- feed end -->
