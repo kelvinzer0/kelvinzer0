@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 22 - [Prehistoric cave paintings went undetected for thousands of years. Then drones flew by](https://news.yahoo.com/prehistoric-cave-paintings-went-undetected-182524979.html)
-- May 22 - [Deputy accused of neglect in Fla. shooting speaks](https://news.yahoo.com/deputy-accused-neglect-fla-shooting-181604967.html)
-- May 22 - [One of Putin's closest friends built him a $3.2 million fishing villa in Finland, then had to scrap it when the Russian leader showed up and wasn't keen on fishing in the country: report](https://news.yahoo.com/one-putins-closest-friends-built-052646192.html)
-- May 22 - [Tucker Carlson was fired before he could give a conspiracy theory-laden monologue alleging a Jan. 6 protester was actually an FBI informant, biographer says](https://news.yahoo.com/tucker-carlson-fired-could-conspiracy-171932795.html)
-- May 22 - [Judge enters not-guilty pleas for man accused of murdering 4 Idaho college students](https://news.yahoo.com/judge-enters-not-guilty-pleas-180742280.html)
+- May 22 - [Idaho Murder Suspect Bryan Kohberger Stands Silent in Court — Judge Enters Not Guilty Plea for Him: Reports](https://news.yahoo.com/idaho-murder-suspect-bryan-kohberger-192208168.html)
+- May 22 - [GM Enters Electric Pickup Battle With $40,000 Silverado](https://finance.yahoo.com/video/gm-enters-electric-pickup-battle-191601783.html)
+- May 22 - [Scientists say they found a chapter of the Bible hidden under other text for more than a thousand years](https://news.yahoo.com/scientists-found-chapter-bible-hidden-190820330.html)
+- May 22 - [Prosecutors say Fetty Wap made $5 million with his music and he didn't need to traffic drugs to supplement it](https://news.yahoo.com/prosecutors-fetty-wap-made-5-190216246.html)
+- May 22 - [2 progressive prosecutors resign after ethical scandals](https://news.yahoo.com/2-progressive-prosecutors-resign-after-ethical-scandals-185536636.html)
 <!-- feed end -->
