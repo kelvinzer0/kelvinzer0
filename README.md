@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 22 - [Melania Trump Allegedly ‘Took Advantage’ of Donald Trump’s Court Case to Renegotiate This Part of Their Marriage](https://news.yahoo.com/melania-trump-allegedly-took-advantage-150800685.html)
-- May 22 - [Video shows woman keying more than 400 cars at dealerships in Vancouver area](https://news.yahoo.com/video-shows-woman-keying-more-150043600.html)
-- May 22 - [Deputy collapses and dies after disarming 18-year-old suspect, Florida sheriff says](https://news.yahoo.com/deputy-collapses-dies-disarming-18-144356025.html)
-- May 22 - ['Are you from America?': Viral video shows woman attacking group of Asians following LA car collision](https://news.yahoo.com/america-viral-video-shows-woman-141739387.html)
-- May 22 - [Kari Lake confronts AZ GOP chair and disaster ensues (for Republicans)](https://news.yahoo.com/kari-lake-confronts-az-gop-140029532.html)
+- May 22 - [Family of Christina Yuna Lee sues NYPD over alleged inaction](https://news.yahoo.com/family-christina-yuna-lee-sues-164453453.html)
+- May 22 - [Judge enters not guilty pleas for suspect in stabbing deaths of 4 University of Idaho students](https://news.yahoo.com/judge-enters-not-guilty-plea-162720608.html)
+- May 22 - [Russia says Ukraine sabotage group crosses border](https://news.yahoo.com/russia-says-ukraine-sabotage-group-162451251.html)
+- May 22 - [Russia's aging, obsolete tanks are actually doing some serious damage in Ukraine, report says](https://news.yahoo.com/russias-aging-obsolete-tanks-actually-160800370.html)
+- May 22 - [Ukraine troops seek to 'trap Russians in Bakhmut'](https://news.yahoo.com/ukraine-troops-seek-trap-russians-160308861.html)
 <!-- feed end -->
