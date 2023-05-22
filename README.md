@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 22 - [UPDATE 1-E. Jean Carroll seeks new damages from Trump over post-verdict statements](https://finance.yahoo.com/news/1-e-jean-carroll-seeks-214919313.html)
+- May 22 - [E. Jean Carroll seeks new damages from Trump over post-verdict statements](https://news.yahoo.com/e-jean-carroll-seeks-damages-213918004.html)
+- May 22 - [9th Circuit reverses judge's ruling striking down deportation law as racist](https://news.yahoo.com/9th-circuit-reverses-judges-ruling-213525146.html)
 - May 22 - [Justified: Fire In The Hole](https://news.yahoo.com/justified-fire-hole-010500100.html)
-- May 22 - [Newly released video shows police officer clinging onto fleeing car during 2021 incident](https://news.yahoo.com/newly-released-video-shows-police-200108050.html)
-- May 22 - [California man who set boba customers on fire gets no jailtime](https://news.yahoo.com/california-man-set-boba-customers-195445104.html)
-- May 22 - [GM Enters Electric Pickup Battle With $40,000 Silverado](https://finance.yahoo.com/video/gm-enters-electric-pickup-battle-191601783.html)
-- May 22 - [Navy relieves commanding officer of destroyer John Finn in Japan](https://news.yahoo.com/navy-relieves-commanding-officer-destroyer-191202600.html)
+- May 22 - [Ted Cruz said Martin Luther King Jr. would be 'ashamed' of the NAACP's Florida travel warning. MLK's daughter, Bernice King, disagreed.](https://news.yahoo.com/ted-cruz-said-martin-luther-202026830.html)
 <!-- feed end -->
