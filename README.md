@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 22 - [An Indiana man was killed after a grenade his family found in their grandpa's belongings blew up in his home, police say](https://news.yahoo.com/indiana-man-killed-grenade-family-031150886.html)
+- May 22 - [Video shows Warner Bros. CEO David Zaslav struggled to speak at Boston University after protestors booed and told him to 'pay your writers'](https://news.yahoo.com/video-shows-warner-bros-ceo-023040728.html)
 - May 22 - [Jeffrey Epstein reportedly threatened Bill Gates with knowledge of the Microsoft billionaire's affair with a Russian bridge player](https://finance.yahoo.com/news/jeffrey-epstein-reportedly-threatened-bill-182809850.html)
 - May 22 - [Russia says F-16 transfer to Ukraine would raise questions of NATO's involvement](https://news.yahoo.com/russia-says-f-16-transfer-002233343.html)
 - May 22 - [China summons Japanese ambassador over actions at G7](https://news.yahoo.com/china-summons-japanese-ambassador-over-001013412.html)
-- May 21 - [Nearly 75% of home purchases in a Bay Area city were made by LLCs or trusts. It's a trend among the wealthy.](https://finance.yahoo.com/news/nearly-75-home-purchases-bay-235603292.html)
-- May 21 - [World summits' 'family photos' show Putin's isolation](https://news.yahoo.com/world-summits-family-photos-show-234224937.html)
 <!-- feed end -->
