@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 22 - [Idaho Murder Suspect Bryan Kohberger Stands Silent in Court — Judge Enters Not Guilty Plea for Him: Reports](https://news.yahoo.com/idaho-murder-suspect-bryan-kohberger-192208168.html)
+- May 22 - [Justified: Fire In The Hole](https://news.yahoo.com/justified-fire-hole-010500100.html)
+- May 22 - [Newly released video shows police officer clinging onto fleeing car during 2021 incident](https://news.yahoo.com/newly-released-video-shows-police-200108050.html)
+- May 22 - [California man who set boba customers on fire gets no jailtime](https://news.yahoo.com/california-man-set-boba-customers-195445104.html)
 - May 22 - [GM Enters Electric Pickup Battle With $40,000 Silverado](https://finance.yahoo.com/video/gm-enters-electric-pickup-battle-191601783.html)
-- May 22 - [Scientists say they found a chapter of the Bible hidden under other text for more than a thousand years](https://news.yahoo.com/scientists-found-chapter-bible-hidden-190820330.html)
-- May 22 - [Prosecutors say Fetty Wap made $5 million with his music and he didn't need to traffic drugs to supplement it](https://news.yahoo.com/prosecutors-fetty-wap-made-5-190216246.html)
-- May 22 - [2 progressive prosecutors resign after ethical scandals](https://news.yahoo.com/2-progressive-prosecutors-resign-after-ethical-scandals-185536636.html)
+- May 22 - [Navy relieves commanding officer of destroyer John Finn in Japan](https://news.yahoo.com/navy-relieves-commanding-officer-destroyer-191202600.html)
 <!-- feed end -->
