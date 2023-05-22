@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - May 22 - [Russia says F-16 transfer to Ukraine would raise questions of NATO's involvement](https://news.yahoo.com/russia-says-f-16-transfer-002233343.html)
 - May 22 - [China summons Japanese ambassador over actions at G7](https://news.yahoo.com/china-summons-japanese-ambassador-over-001013412.html)
 - May 21 - [Nearly 75% of home purchases in a Bay Area city were made by LLCs or trusts. It's a trend among the wealthy.](https://finance.yahoo.com/news/nearly-75-home-purchases-bay-235603292.html)
-- May 21 - [Archaeologists discover a lost world of 417 ancient Mayans cities buried in remote jungle, connected by miles of 'superhighways,' WaPo reports](https://news.yahoo.com/archaeologists-discover-lost-world-417-112600870.html)
+- May 21 - [World summits' 'family photos' show Putin's isolation](https://news.yahoo.com/world-summits-family-photos-show-234224937.html)
 <!-- feed end -->
