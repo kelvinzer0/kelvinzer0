@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 22 - [Dignity denied as more than 3,000 schools in South Africa still use pit toilets](https://news.yahoo.com/dignity-denied-more-3-000-075030688.html)
-- May 22 - [Former Florida GOP Rep. Considers Drastic Move Because Of Gov. Ron DeSantis](https://news.yahoo.com/former-florida-gop-rep-considers-061852973.html)
-- May 22 - [One of Putin's closest friends built him a $3.2 million fishing villa in Finland, then had to scrap it when the Russian leader showed up and wasn't keen on fishing in the country: report](https://news.yahoo.com/one-putins-closest-friends-built-052646192.html)
-- May 22 - [Russia-occupied nuclear plant in Ukraine cut off from power grid](https://news.yahoo.com/zaporizhzhia-nuclear-plant-switched-standby-052627184.html)
-- May 22 - [A DEI exec at Uber was placed on leave after hosting an event about white women who don't like being called a 'Karen'](https://news.yahoo.com/dei-exec-uber-placed-leave-034641289.html)
+- May 22 - [US bomb designed to hit targets like Iran underground nuclear sites briefly reappears amid tensions](https://news.yahoo.com/us-bomb-designed-hit-targets-101519892.html)
+- May 22 - [Electric truck sales take off at Volvo](https://news.yahoo.com/electric-truck-sales-off-volvo-100517086.html)
+- May 22 - [Russians looking for options to leave occupied Crimea, says Ukrainian military](https://news.yahoo.com/russians-looking-options-leave-occupied-095600247.html)
+- May 22 - [Authorities begin demolition of vast Mayotte shantytown](https://news.yahoo.com/authorities-begin-demolition-vast-mayotte-095336690.html)
+- May 22 - [Over 700 invaders eliminated in a day, enemy aircraft destroyed – General Staff](https://news.yahoo.com/over-700-invaders-eliminated-day-081500797.html)
 <!-- feed end -->
