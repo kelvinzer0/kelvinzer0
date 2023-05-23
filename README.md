@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 23 - [Appeals court ruling deals legal setback to Biden administration in gun stabilizing brace case](https://news.yahoo.com/appeals-court-ruling-deals-legal-184702223.html)
+- May 23 - [‘My dignity was stripped away’: Woman attacked by 2 separate suspects in California train](https://news.yahoo.com/dignity-stripped-away-woman-attacked-192515857.html)
+- May 23 - [Taipei restaurant introduces ramen dish topped with giant isopod](https://news.yahoo.com/taipei-restaurant-introduces-ramen-dish-185024409.html)
 - May 23 - [Bud Light sales continue to go flat](https://finance.yahoo.com/news/bud-light-sales-continue-to-go-flat-184618646.html)
+- May 23 - [Rep. Lauren Boebert says she decided it was 'cheaper to have a kid' after seeing the price of one month of birth control: 'Now I have my third son'](https://news.yahoo.com/rep-lauren-boebert-says-she-182640302.html)
 - May 23 - [Rick Scott issues travel advisory for ‘socialists,’ warning Florida is ‘openly hostile’ to them](https://news.yahoo.com/rick-scott-issues-travel-advisory-174354667.html)
-- May 23 - [Step-daughter of bestselling author and her three dogs killed by high and drunk Audi driver](https://news.yahoo.com/step-daughter-bestselling-author-three-171613878.html)
-- May 23 - ['Citi Bike Karen's' GoFundMe Explodes With Cash](https://news.yahoo.com/citi-bike-karens-gofundme-explodes-165300550.html)
 <!-- feed end -->
