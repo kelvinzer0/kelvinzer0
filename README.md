@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 23 - [Some worshippers switching congregations amid United Methodist split over LGBTQ issues](https://news.yahoo.com/worshippers-switching-congregations-amid-united-120710607.html)
 - May 23 - [McCarthy end game on debt ceiling begins to come into focus](https://news.yahoo.com/mccarthy-end-game-debt-ceiling-100000812.html)
-- May 23 - [Fox News Pundit Receives Easiest Fact Check Live On Air](https://news.yahoo.com/fox-news-pundit-receives-easiest-092325231.html)
+- May 23 - [Driver accused of killing Charlotte bride on wedding night expresses remorse, frustration from jail](https://news.yahoo.com/driver-accused-killing-charlotte-bride-094837881.html)
+- May 23 - [This Stock Market Indicator Is 14 for 14 Since 1985, and It Has a Very Clear Message for Where Stocks Are Headed](https://www.fool.com/investing/2023/05/23/this-stock-market-indicator-14-for-14-since-1985/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - May 23 - [A California man who got out of his car to help a family of ducks safely cross the road was killed by a teenage driver](https://news.yahoo.com/california-man-got-car-help-080254558.html)
-- May 23 - [This 15-mile, $6.7B bridge is a symbol of China’s ambitions, and its problems](https://news.yahoo.com/15-mile-6-7b-bridge-015957905.html)
-- May 23 - [There's now a GoFundMe for the woman in the viral Citi Bike dispute that aims to help her fight being branded a 'Karen,' and it's raised over $110,000](https://news.yahoo.com/theres-now-gofundme-woman-viral-052127870.html)
 <!-- feed end -->
