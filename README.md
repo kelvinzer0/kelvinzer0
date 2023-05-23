@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 23 - [This 15-mile, $6.7B bridge is a symbol of China’s ambitions, and its problems](https://news.yahoo.com/15-mile-6-7b-bridge-015957905.html)
 - May 23 - [There's now a GoFundMe for the woman in the viral Citi Bike dispute that aims to help her fight being branded a 'Karen,' and it's raised over $110,000](https://news.yahoo.com/theres-now-gofundme-woman-viral-052127870.html)
 - May 23 - [Donald Trump to appear by video as judge reinforces ban on attacking witnesses](https://news.yahoo.com/donald-trump-appear-video-judge-041447257.html)
 - May 23 - [Trump asked his lawyer if he could fight the DOJ subpoena for classified docs. It's not proof that he obstructed justice, but it could lend itself to the larger investigation, experts say.](https://news.yahoo.com/trump-asked-lawyer-could-fight-035657571.html)
 - May 23 - [Here's why the US doesn't have to pay off its $31 trillion mountain of debt, according to Paul Krugman](https://finance.yahoo.com/news/heres-why-us-doesnt-pay-035612736.html)
-- May 23 - [US customs found a swarm of 630 live insect larvae crawling in a shipment of artificial flowers at New York's JFK airport](https://news.yahoo.com/us-customs-found-swarm-630-035112244.html)
 <!-- feed end -->
