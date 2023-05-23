@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 23 - [Meet New York grocery billionaire John Catsimatidis, the outspoken Trump supporter who sleeps with James Bond's gun under his pillow](https://news.yahoo.com/meet-york-grocery-billionaire-john-121813650.html)
-- May 23 - [Some worshippers switching congregations amid United Methodist split over LGBTQ issues](https://news.yahoo.com/worshippers-switching-congregations-amid-united-120710607.html)
-- May 23 - [‘Are you going to let us die?’ Boaters try to bail water, then capsize off Hollywood](https://news.yahoo.com/going-let-us-die-boaters-114743337.html)
-- May 23 - [Nearly 60,000 contract workers lost jobs in India's IT sector - recruitment body](https://news.yahoo.com/nearly-60-000-contract-workers-110224022.html)
-- May 23 - [Video captures moment young boy dropped from barrier wall](https://news.yahoo.com/video-captures-moment-young-boy-110224826.html)
+- May 23 - [Millionaire’s elaborate jail escape plan foiled, Florida sheriff says](https://news.yahoo.com/millionaire-elaborate-jail-escape-plan-141013947.html)
+- May 23 - [Kevin McCarthy's proposed spending cuts would cost his home state 68,500 preschool slots and nearly 7 million Californians would have to wait longer for Social Security and Medicare help, White House says](https://news.yahoo.com/kevin-mccarthys-proposed-spending-cuts-140016679.html)
+- May 23 - [AI continues to drive S&P 500, tech growth trends](https://finance.yahoo.com/video/ai-continues-drive-p-500-133653403.html)
+- May 23 - [Top Israeli general says 'action' is on horizon over Iran nuclear work](https://news.yahoo.com/top-israeli-general-says-action-133117713.html)
+- May 23 - [Hong Kong airline terminates flight attendants accused of mocking passengers' English and saying they could lie on the floor if they couldn't ask for a blanket](https://news.yahoo.com/hong-kong-airline-apologizes-flight-125430681.html)
 <!-- feed end -->
