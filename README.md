@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 23 - [Timelapse Shows Smoke Gushing From Popocatepetl Volcano](https://news.yahoo.com/timelapse-shows-smoke-gushing-popocatepetl-021324970.html)
+- May 23 - [The White House has warned stocks will plunge 45% and a deep recession will strike in the 3rd quarter if the US defaults](https://finance.yahoo.com/news/white-house-warned-stocks-plunge-033424865.html)
+- May 23 - [Judge dismisses Kari Lake's final claim in election loss for Arizona governor](https://news.yahoo.com/judge-dismisses-kari-lakes-final-031844793.html)
+- May 23 - [This 15-mile, $6.7B bridge is a symbol of China’s ambitions, and its problems](https://news.yahoo.com/15-mile-6-7b-bridge-015957905.html)
 - May 23 - ['Mother Nature has no mercy': Man gets stuck waist-deep in Alaska mud flats, drowns as tide comes in](https://news.yahoo.com/mother-nature-no-mercy-man-013131587.html)
 - May 23 - [Let's Revisit How Unhinged Tim Scott Is Now That He's Running for President](https://news.yahoo.com/lets-revisit-unhinged-tim-scott-000000141.html)
-- May 22 - [Monster 776-pound fish caught off Alabama shatters tournament record. See the catch](https://news.yahoo.com/monster-776-pound-fish-caught-232248400.html)
-- May 22 - [Hear Trump’s response to Sen. Tim Scott’s presidential bid](https://news.yahoo.com/hear-trump-response-sen-tim-230925491.html)
 <!-- feed end -->
