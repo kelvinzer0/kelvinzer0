@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 23 - [Millionaire’s elaborate jail escape plan foiled, Florida sheriff says](https://news.yahoo.com/millionaire-elaborate-jail-escape-plan-141013947.html)
-- May 23 - [Kevin McCarthy's proposed spending cuts would cost his home state 68,500 preschool slots and nearly 7 million Californians would have to wait longer for Social Security and Medicare help, White House says](https://news.yahoo.com/kevin-mccarthys-proposed-spending-cuts-140016679.html)
-- May 23 - [AI continues to drive S&P 500, tech growth trends](https://finance.yahoo.com/video/ai-continues-drive-p-500-133653403.html)
-- May 23 - [Top Israeli general says 'action' is on horizon over Iran nuclear work](https://news.yahoo.com/top-israeli-general-says-action-133117713.html)
-- May 23 - [Hong Kong airline terminates flight attendants accused of mocking passengers' English and saying they could lie on the floor if they couldn't ask for a blanket](https://news.yahoo.com/hong-kong-airline-apologizes-flight-125430681.html)
+- May 23 - [Apple-Broadcom deal, Palantir's 52-week high: Top stocks](https://finance.yahoo.com/video/apple-broadcom-deal-palantirs-52-154845306.html)
+- May 23 - [Conditions created for offensive as Ukraine engage in large-scale operation in three identified directions](https://news.yahoo.com/conditions-created-offensive-ukraine-engage-154400694.html)
+- May 23 - [Trump Can’t STFU About E. Jean Carroll](https://news.yahoo.com/trump-t-stfu-e-jean-153258592.html)
+- May 23 - [Michael Jordan Is Now the Proud Owner of an 1,817 HP Hennessey Venom F5 Roadster](https://news.yahoo.com/michael-jordan-now-proud-owner-151500083.html)
+- May 23 - [Woman in pink dress steals $120,000 tractor, Florida cops say. And then it got weird](https://news.yahoo.com/woman-pink-dress-steals-120-151258382.html)
 <!-- feed end -->
