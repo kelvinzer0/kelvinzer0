@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 23 - [Russia says used air force, artillery to wipe out border attackers](https://news.yahoo.com/russia-says-used-air-force-124615304.html)
+- May 23 - [Meet New York grocery billionaire John Catsimatidis, the outspoken Trump supporter who sleeps with James Bond's gun under his pillow](https://news.yahoo.com/meet-york-grocery-billionaire-john-121813650.html)
 - May 23 - [Some worshippers switching congregations amid United Methodist split over LGBTQ issues](https://news.yahoo.com/worshippers-switching-congregations-amid-united-120710607.html)
 - May 23 - [‘Are you going to let us die?’ Boaters try to bail water, then capsize off Hollywood](https://news.yahoo.com/going-let-us-die-boaters-114743337.html)
 - May 23 - [Nearly 60,000 contract workers lost jobs in India's IT sector - recruitment body](https://news.yahoo.com/nearly-60-000-contract-workers-110224022.html)
-- May 23 - [McCarthy end game on debt ceiling begins to come into focus](https://news.yahoo.com/mccarthy-end-game-debt-ceiling-100000812.html)
+- May 23 - [Video captures moment young boy dropped from barrier wall](https://news.yahoo.com/video-captures-moment-young-boy-110224826.html)
 <!-- feed end -->
