@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 23 - [AP Explains: Trump appears virtually for court](https://news.yahoo.com/ap-explains-trump-appears-virtually-221612882.html)
+- May 23 - [Ukrainian air defense uses Patriot systems in ways that surprised the US – expert interview](https://news.yahoo.com/ukrainian-air-defense-uses-patriot-214900567.html)
+- May 23 - [Texas man near deadly police shooting during Capitol riot gets nearly 7 years in prison](https://news.yahoo.com/texas-man-near-deadly-police-214203205.html)
 - May 23 - [Texas AG Calls for Resignation of ‘Obviously’ Drunk GOP House Speaker](https://news.yahoo.com/texas-ag-calls-resignation-obviously-205922067.html)
-- May 23 - [Andrew Tate said he moved to Romania because he thought it was lawless. His Romanian lawyer said that he's since changed his mind on that 'stupid' claim.](https://news.yahoo.com/andrew-tate-said-moved-romania-204220108.html)
-- May 23 - [Microsoft integrates ChatGPT into Bing, unveils AI assistance](https://finance.yahoo.com/video/microsoft-integrates-chatgpt-bing-unveils-203109017.html)
-- May 23 - [Popocatépetl volcano erupts over central Mexico: What we know](https://news.yahoo.com/mexico-popocatepetl-volcano-erupts-smoke-ash-evacuations-200659206.html)
-- May 23 - [Woman charged in drunk driving killing of bride in South Carolina seeks bond](https://news.yahoo.com/alleged-drunken-driver-charged-killing-200018410.html)
+- May 23 - [Elon Musk signals Twitter's headquarters may not stay in San Francisco](https://news.yahoo.com/elon-musk-signals-twitters-headquarters-204714816.html)
 <!-- feed end -->
