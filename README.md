@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 23 - [Russia says used air force, artillery to wipe out border attackers](https://news.yahoo.com/russia-says-used-air-force-124615304.html)
 - May 23 - [Some worshippers switching congregations amid United Methodist split over LGBTQ issues](https://news.yahoo.com/worshippers-switching-congregations-amid-united-120710607.html)
+- May 23 - [‘Are you going to let us die?’ Boaters try to bail water, then capsize off Hollywood](https://news.yahoo.com/going-let-us-die-boaters-114743337.html)
+- May 23 - [Nearly 60,000 contract workers lost jobs in India's IT sector - recruitment body](https://news.yahoo.com/nearly-60-000-contract-workers-110224022.html)
 - May 23 - [McCarthy end game on debt ceiling begins to come into focus](https://news.yahoo.com/mccarthy-end-game-debt-ceiling-100000812.html)
-- May 23 - [Driver accused of killing Charlotte bride on wedding night expresses remorse, frustration from jail](https://news.yahoo.com/driver-accused-killing-charlotte-bride-094837881.html)
-- May 23 - [This Stock Market Indicator Is 14 for 14 Since 1985, and It Has a Very Clear Message for Where Stocks Are Headed](https://www.fool.com/investing/2023/05/23/this-stock-market-indicator-14-for-14-since-1985/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- May 23 - [A California man who got out of his car to help a family of ducks safely cross the road was killed by a teenage driver](https://news.yahoo.com/california-man-got-car-help-080254558.html)
 <!-- feed end -->
