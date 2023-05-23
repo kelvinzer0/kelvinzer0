@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 23 - [Driver crashes into security barriers near White House](https://news.yahoo.com/driver-crashes-security-barriers-near-162935074.html)
+- May 23 - [Step-daughter of bestselling author and her three dogs killed by high and drunk Audi driver](https://news.yahoo.com/step-daughter-bestselling-author-three-171613878.html)
+- May 23 - [Court sets legal showdown on debt limit 14th Amendment argument](https://news.yahoo.com/court-sets-legal-showdown-debt-162054515.html)
 - May 23 - [Marjorie Taylor Greene Spends $100K on Chapstick Worn by Speaker Kevin McCarthy](https://news.yahoo.com/marjorie-taylor-greene-spends-100k-153459294.html)
 - May 23 - [Trump Can’t STFU About E. Jean Carroll](https://news.yahoo.com/trump-t-stfu-e-jean-153258592.html)
 - May 23 - [Climate activists smear themselves with mud to evoke flooding in Italy](https://finance.yahoo.com/news/climate-activists-smear-themselves-mud-152659819.html)
-- May 23 - [Michael Jordan Is Now the Proud Owner of an 1,817 HP Hennessey Venom F5 Roadster](https://news.yahoo.com/michael-jordan-now-proud-owner-151500083.html)
 <!-- feed end -->
