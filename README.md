@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 23 - [WH says it has pledged more than $560 million to help cities with migrants](https://news.yahoo.com/wh-says-pledged-more-560-205226666.html)
-- May 23 - [Elon Musk signals Twitter's headquarters may not stay in San Francisco](https://news.yahoo.com/elon-musk-signals-twitters-headquarters-204714816.html)
-- May 23 - [Portuguese authorities restart search for Madeleine McCann who went missing 16 years ago](https://news.yahoo.com/portuguese-authorities-restart-search-madeleine-202422688.html)
+- May 23 - [Texas AG Calls for Resignation of ‘Obviously’ Drunk GOP House Speaker](https://news.yahoo.com/texas-ag-calls-resignation-obviously-205922067.html)
+- May 23 - [Andrew Tate said he moved to Romania because he thought it was lawless. His Romanian lawyer said that he's since changed his mind on that 'stupid' claim.](https://news.yahoo.com/andrew-tate-said-moved-romania-204220108.html)
+- May 23 - [Microsoft integrates ChatGPT into Bing, unveils AI assistance](https://finance.yahoo.com/video/microsoft-integrates-chatgpt-bing-unveils-203109017.html)
 - May 23 - [Popocatépetl volcano erupts over central Mexico: What we know](https://news.yahoo.com/mexico-popocatepetl-volcano-erupts-smoke-ash-evacuations-200659206.html)
-- May 23 - [Bitter, virtual Trump promises a Manhattan judge he won't harass or attack hush-money witnesses](https://news.yahoo.com/bitter-virtual-trump-promises-manhattan-192210151.html)
+- May 23 - [Woman charged in drunk driving killing of bride in South Carolina seeks bond](https://news.yahoo.com/alleged-drunken-driver-charged-killing-200018410.html)
 <!-- feed end -->
