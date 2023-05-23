@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 23 - [Timelapse Shows Smoke Gushing From Popocatepetl Volcano](https://news.yahoo.com/timelapse-shows-smoke-gushing-popocatepetl-021324970.html)
+- May 23 - ['Mother Nature has no mercy': Man gets stuck waist-deep in Alaska mud flats, drowns as tide comes in](https://news.yahoo.com/mother-nature-no-mercy-man-013131587.html)
 - May 23 - [Let's Revisit How Unhinged Tim Scott Is Now That He's Running for President](https://news.yahoo.com/lets-revisit-unhinged-tim-scott-000000141.html)
 - May 22 - [Monster 776-pound fish caught off Alabama shatters tournament record. See the catch](https://news.yahoo.com/monster-776-pound-fish-caught-232248400.html)
 - May 22 - [Hear Trump’s response to Sen. Tim Scott’s presidential bid](https://news.yahoo.com/hear-trump-response-sen-tim-230925491.html)
-- May 22 - [School shooter asks for mercy from life sentence; teacher, principal want him to stay in prison](https://news.yahoo.com/school-shooter-asks-mercy-life-224449277.html)
-- May 22 - [American woman’s ‘tone deaf’ video about returning her Filipino nanny back home after 30 years raises questions about treatment of overseas Filipino workers](https://news.yahoo.com/american-woman-tone-deaf-video-223919156.html)
 <!-- feed end -->
