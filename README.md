@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 24 - [United Airlines Separates Couple Flying First Class For a Ridiculous Reason](https://www.thestreet.com/lifestyle/travel/united-airlines-separates-couple-flying-first-class-for-a-ridiculous-reason?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 24 - [Greene says ‘no one is concerned’ about debt default in Republican conference](https://news.yahoo.com/greene-says-no-one-concerned-190835519.html)
+- May 24 - [A Texas bishop accused a sick nun on a feeding tube of breaking her chastity vow. Now she and her Sisters are fighting back.](https://news.yahoo.com/texas-bishop-accused-sick-nun-180215147.html)
 - May 24 - [Disney Just Amended Its Lawsuit To Troll Florida Governor Ron DeSantis](https://news.yahoo.com/disney-just-amended-lawsuit-troll-180000686.html)
-- May 24 - [Trump rants on social media about DeSantis hours ahead of the governor's expected 2024 announcement: 'He desperately needs a personality transplant'](https://news.yahoo.com/trump-rants-social-media-desantis-162844599.html)
-- May 24 - [Georgia GOP Chair Goes Full Flat-Earth, Says Globes Are Part of a Conspiracy](https://news.yahoo.com/georgia-gop-chair-goes-full-170734553.html)
-- May 24 - [What really happened to the man from a ‘parallel universe’ who bewildered Japan](https://news.yahoo.com/really-happened-man-parallel-universe-170032502.html)
-- May 24 - [Treasury Secretary Janet Yellen Just Announced Some Extremely Distressing News](https://www.thestreet.com/economy/treasury-secretary-janet-yellen-just-announced-some-extremely-distressing-news?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 24 - [iOS 17 will reportedly turn your locked iPhone into a smart display](https://news.yahoo.com/ios-17-will-reportedly-turn-your-locked-iphone-into-a-smart-display-171937503.html)
 <!-- feed end -->
