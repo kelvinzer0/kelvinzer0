@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 24 - [UPDATE 1-Russia: warship guarding Black Sea pipelines attacked by unmanned Ukraine craft](https://finance.yahoo.com/news/1-russia-warship-guarding-black-144254135.html)
+- May 24 - [Meghan Markle Skipped the Gracie Awards and Is 'Shocked' and Hurt by Public Reaction to Car Chase](https://news.yahoo.com/meghan-markle-skipped-gracie-awards-140600704.html)
+- May 24 - [The cowboy who wrangled a runaway cow on a Michigan freeway says he jumped into action after seeing the mayhem on social media](https://news.yahoo.com/cowboy-wrangled-runaway-cow-michigan-140227622.html)
 - May 24 - [Plan to return decommissioned Leopard 2 tanks to Germany wins backing of Swiss executive branch](https://news.yahoo.com/plan-return-decommissioned-leopard-2-125320449.html)
-- May 24 - [Fearing indictment is imminent in classified docs probe, Trump team requests meeting with DOJ](https://news.yahoo.com/fearing-indictment-imminent-classified-docs-013300969.html)
-- May 24 - [Identity of suspect accused of ramming White House security barrier revealed](https://news.yahoo.com/troubling-profile-alleged-u-haul-000205985.html)
-- May 24 - [A teen girl who had her phone confiscated set her school dormitory on fire, police say. 19 children died.](https://news.yahoo.com/teen-girl-had-her-phone-112829026.html)
-- May 24 - [‘I found paradise, drew a map, and within 15 years it was ruined’](https://news.yahoo.com/found-paradise-drew-map-within-110813004.html)
+- May 24 - [Man accused of intentionally dumping thousands of construction screws along busy Mass. road](https://news.yahoo.com/man-accused-intentionally-dumping-thousands-125110452.html)
 <!-- feed end -->
