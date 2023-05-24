@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 24 - [World's biggest aircraft carrier sails into Oslo for NATO exercises](https://news.yahoo.com/worlds-biggest-aircraft-carrier-sails-085106954.html)
-- May 24 - [Mercenary Prigozhin warns Russia could face revolution unless elite gets serious about war](https://news.yahoo.com/mercenary-prigozhin-warns-russia-could-064537449.html)
+- May 24 - [A woman has died after being hit by a royal motorcade that was escorting King Charles' sister-in-law](https://news.yahoo.com/woman-died-being-hit-royal-100319871.html)
+- May 24 - [A woman who lost 176 pounds taking Ozempic competitor Mounjaro is petrified of putting the weight back on when she can't afford to pay $1000 a month](https://news.yahoo.com/woman-lost-176-pounds-taking-090700654.html)
+- May 24 - [Massive US aircraft carrier sails into Oslo for NATO exercises](https://news.yahoo.com/worlds-biggest-aircraft-carrier-sails-085106954.html)
+- May 24 - [White House believes massive Dem bailout may be needed to pass debt ceiling compromise](https://news.yahoo.com/white-house-believes-100-dem-083000782.html)
 - May 24 - [My Little, Naive, Innocent Brain Is On Fire After Learning About These Horrifying, Shocking, And Upsetting Things](https://news.yahoo.com/little-naive-innocent-brain-fire-051602495.html)
-- May 24 - [Chinese hackers attacked Kenyan government as debt strains grew](https://finance.yahoo.com/news/exclusive-chinese-hackers-attacked-kenyan-050641247.html)
-- May 24 - [Seeking asylum and work, migrants bused out of NYC find hostility](https://news.yahoo.com/seeking-asylum-migrants-bused-nyc-050256466.html)
 <!-- feed end -->
