@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 24 - [My Little, Naive, Innocent Brain Is On Fire After Learning About These Horrifying, Shocking, And Upsetting Things](https://news.yahoo.com/little-naive-innocent-brain-fire-051602495.html)
 - May 24 - [Seeking asylum and work, migrants bused out of NYC find hostility](https://news.yahoo.com/seeking-asylum-migrants-bused-nyc-050256466.html)
 - May 24 - [Chief Justice John Roberts complained about judges being heckled at law schools and said the court doesn't need Congress to patrol its ethics](https://news.yahoo.com/chief-justice-john-roberts-complained-041128362.html)
 - May 24 - [Fearing indictment is imminent in classified docs probe, Trump team requests meeting with DOJ](https://news.yahoo.com/fearing-indictment-imminent-classified-docs-013300969.html)
 - May 24 - [23-year-old man thought he’d pee by a pond — then he was attacked by an alligator](https://news.yahoo.com/23-old-man-thought-d-014630658.html)
-- May 24 - [Greg Gutfeld Lauds ‘Heroic’ Teacher Who Slept With 16-Year-Old Student](https://news.yahoo.com/greg-gutfeld-lauds-heroic-teacher-004332576.html)
 <!-- feed end -->
