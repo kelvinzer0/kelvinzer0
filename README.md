@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 24 - [White House: China's Micron ban isn't 'based in fact'](https://news.yahoo.com/white-house-chinas-micron-ban-022948367.html)
 - May 24 - [Fearing indictment is imminent in classified docs probe, Trump team requests meeting with DOJ](https://news.yahoo.com/fearing-indictment-imminent-classified-docs-013300969.html)
-- May 24 - [Texas governor sent bill abolishing position of Harris County elections chief](https://news.yahoo.com/texas-governor-sent-bill-abolishing-011138033.html)
+- May 24 - [23-year-old man thought he’d pee by a pond — then he was attacked by an alligator](https://news.yahoo.com/23-old-man-thought-d-014630658.html)
 - May 24 - [Greg Gutfeld Lauds ‘Heroic’ Teacher Who Slept With 16-Year-Old Student](https://news.yahoo.com/greg-gutfeld-lauds-heroic-teacher-004332576.html)
 - May 24 - [Protesters cut short questioning of San Francisco mayor over drug crisis](https://news.yahoo.com/protesters-cut-short-questioning-san-001141369.html)
+- May 23 - [Las Vegas Strip Icon Comes to a Sad End](https://www.thestreet.com/travel/las-vegas-strip-icon-comes-to-a-sad-end?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
