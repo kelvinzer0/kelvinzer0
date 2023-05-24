@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 24 - [Fearing indictment is imminent in classified docs probe, Trump team requests meeting with DOJ](https://news.yahoo.com/fearing-indictment-imminent-classified-docs-013300969.html)
-- May 24 - [As a white man, I’ve struggled with how to feel about reparations for Black Californians | Opinion](https://news.yahoo.com/white-man-ve-struggled-feel-120000437.html)
+- May 24 - [A teen girl who had her phone confiscated set her school dormitory on fire, police say. 19 children died.](https://news.yahoo.com/teen-girl-had-her-phone-112829026.html)
+- May 24 - [‘I found paradise, drew a map, and within 15 years it was ruined’](https://news.yahoo.com/found-paradise-drew-map-within-110813004.html)
 - May 24 - [AOC mocked Lauren Boebert for saying birth control was more expensive than having a kid, noting she voted against expanding access](https://news.yahoo.com/aoc-mocked-lauren-boebert-saying-105216038.html)
 - May 24 - [Exclusive-Russian hypersonic scientist accused of betraying secrets to China - sources](https://news.yahoo.com/exclusive-russian-hypersonic-scientist-accused-102000357.html)
-- May 24 - [Australian police officer faces charges after shocking 95-year-old woman with stun gun](https://news.yahoo.com/australian-police-officer-faces-charges-101025958.html)
 <!-- feed end -->
