@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 24 - [Plan to return decommissioned Leopard 2 tanks to Germany wins backing of Swiss executive branch](https://news.yahoo.com/plan-return-decommissioned-leopard-2-125320449.html)
 - May 24 - [Fearing indictment is imminent in classified docs probe, Trump team requests meeting with DOJ](https://news.yahoo.com/fearing-indictment-imminent-classified-docs-013300969.html)
+- May 24 - [Identity of suspect accused of ramming White House security barrier revealed](https://news.yahoo.com/troubling-profile-alleged-u-haul-000205985.html)
 - May 24 - [A teen girl who had her phone confiscated set her school dormitory on fire, police say. 19 children died.](https://news.yahoo.com/teen-girl-had-her-phone-112829026.html)
 - May 24 - [‘I found paradise, drew a map, and within 15 years it was ruined’](https://news.yahoo.com/found-paradise-drew-map-within-110813004.html)
-- May 24 - [AOC mocked Lauren Boebert for saying birth control was more expensive than having a kid, noting she voted against expanding access](https://news.yahoo.com/aoc-mocked-lauren-boebert-saying-105216038.html)
-- May 24 - [Exclusive-Russian hypersonic scientist accused of betraying secrets to China - sources](https://news.yahoo.com/exclusive-russian-hypersonic-scientist-accused-102000357.html)
 <!-- feed end -->
