@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 24 - [ANALYSIS-Saudi embrace of Assad sends strong signal to US](https://news.yahoo.com/analysis-saudi-embrace-assad-sends-041450937.html)
+- May 24 - [Seeking asylum and work, migrants bused out of NYC find hostility](https://news.yahoo.com/seeking-asylum-migrants-bused-nyc-050256466.html)
 - May 24 - [Chief Justice John Roberts complained about judges being heckled at law schools and said the court doesn't need Congress to patrol its ethics](https://news.yahoo.com/chief-justice-john-roberts-complained-041128362.html)
 - May 24 - [Fearing indictment is imminent in classified docs probe, Trump team requests meeting with DOJ](https://news.yahoo.com/fearing-indictment-imminent-classified-docs-013300969.html)
 - May 24 - [23-year-old man thought he’d pee by a pond — then he was attacked by an alligator](https://news.yahoo.com/23-old-man-thought-d-014630658.html)
