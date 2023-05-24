@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 24 - [Capitol rioter who propped feet on Pelosi's desk in photo sentenced to over 4 years](https://news.yahoo.com/capitol-rioter-propped-feet-pelosis-221900259.html)
+- May 24 - [Biden picks history-making Air Force fighter pilot to serve as next Joint Chiefs chairman](https://news.yahoo.com/biden-picks-history-making-air-220833104.html)
 - May 24 - [Microsoft says China installed malware in US systems in Guam](https://news.yahoo.com/microsoft-says-china-installed-malware-in-us-systems-in-guam-195805235.html)
 - May 24 - [Jeffrey Epstein used US Virgin Islands First Lady to remain 'unchecked' in sex-trafficking scheme, JP Morgan claims in court filing](https://news.yahoo.com/jeffrey-epstein-used-us-virgin-195035166.html)
 - May 24 - [AOC mocked Lauren Boebert for saying birth control was more expensive than having a kid, noting she voted against expanding access](https://news.yahoo.com/aoc-mocked-lauren-boebert-saying-105216038.html)
-- May 24 - [United Airlines Separates Couple Flying First Class For a Ridiculous Reason](https://www.thestreet.com/lifestyle/travel/united-airlines-separates-couple-flying-first-class-for-a-ridiculous-reason?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 24 - [Greene says ‘no one is concerned’ about debt default in Republican conference](https://news.yahoo.com/greene-says-no-one-concerned-190835519.html)
 <!-- feed end -->
