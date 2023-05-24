@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 24 - [A woman has died after being hit by a royal motorcade that was escorting King Charles' sister-in-law](https://news.yahoo.com/woman-died-being-hit-royal-100319871.html)
-- May 24 - [A woman who lost 176 pounds taking Ozempic competitor Mounjaro is petrified of putting the weight back on when she can't afford to pay $1000 a month](https://news.yahoo.com/woman-lost-176-pounds-taking-090700654.html)
-- May 24 - [Massive US aircraft carrier sails into Oslo for NATO exercises](https://news.yahoo.com/worlds-biggest-aircraft-carrier-sails-085106954.html)
-- May 24 - [White House believes massive Dem bailout may be needed to pass debt ceiling compromise](https://news.yahoo.com/white-house-believes-100-dem-083000782.html)
-- May 24 - [My Little, Naive, Innocent Brain Is On Fire After Learning About These Horrifying, Shocking, And Upsetting Things](https://news.yahoo.com/little-naive-innocent-brain-fire-051602495.html)
+- May 24 - [Fearing indictment is imminent in classified docs probe, Trump team requests meeting with DOJ](https://news.yahoo.com/fearing-indictment-imminent-classified-docs-013300969.html)
+- May 24 - [As a white man, I’ve struggled with how to feel about reparations for Black Californians | Opinion](https://news.yahoo.com/white-man-ve-struggled-feel-120000437.html)
+- May 24 - [AOC mocked Lauren Boebert for saying birth control was more expensive than having a kid, noting she voted against expanding access](https://news.yahoo.com/aoc-mocked-lauren-boebert-saying-105216038.html)
+- May 24 - [Exclusive-Russian hypersonic scientist accused of betraying secrets to China - sources](https://news.yahoo.com/exclusive-russian-hypersonic-scientist-accused-102000357.html)
+- May 24 - [Australian police officer faces charges after shocking 95-year-old woman with stun gun](https://news.yahoo.com/australian-police-officer-faces-charges-101025958.html)
 <!-- feed end -->
