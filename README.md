@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 24 - [Russia vows 'extremely' harsh response to incursions from Ukraine](https://news.yahoo.com/russia-vows-extremely-harsh-response-162759881.html)
+- May 24 - [Georgia GOP Chair Goes Full Flat-Earth, Says Globes Are Part of a Conspiracy](https://news.yahoo.com/georgia-gop-chair-goes-full-170734553.html)
+- May 24 - [What really happened to the man from a ‘parallel universe’ who bewildered Japan](https://news.yahoo.com/really-happened-man-parallel-universe-170032502.html)
+- May 24 - [Treasury Secretary Janet Yellen Just Announced Some Extremely Distressing News](https://www.thestreet.com/economy/treasury-secretary-janet-yellen-just-announced-some-extremely-distressing-news?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 24 - [‘I screamed in non-stop pain for 45 minutes’](https://news.yahoo.com/screamed-non-stop-pain-45-162347807.html)
 - May 24 - [Man, woman arrested after dumping up to 500 gallons of oil on 33 miles of Alabama roads](https://news.yahoo.com/man-woman-arrested-dumping-500-161226374.html)
-- May 24 - [Wagner boss Prigozhin says Putin's plan to 'demilitarize' Ukraine has been a bust as Ukraine now has one of the 'strongest' armies](https://news.yahoo.com/wagner-boss-prigozhin-says-putins-150151878.html)
-- May 24 - [Putin claimed a 400-year-old map proved Ukraine isn't a real country, not noticing it has 'Ukraine' written on it](https://news.yahoo.com/putin-claimed-400-old-map-145800137.html)
-- May 24 - [UPDATE 2-Russia: Warship guarding Black Sea pipelines attacked by uncrewed Ukraine craft](https://finance.yahoo.com/news/1-russia-warship-guarding-black-144254135.html)
 <!-- feed end -->
