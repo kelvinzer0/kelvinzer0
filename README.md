@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 24 - [Disney Just Amended Its Lawsuit To Troll Florida Governor Ron DeSantis](https://news.yahoo.com/disney-just-amended-lawsuit-troll-180000686.html)
+- May 24 - [Trump rants on social media about DeSantis hours ahead of the governor's expected 2024 announcement: 'He desperately needs a personality transplant'](https://news.yahoo.com/trump-rants-social-media-desantis-162844599.html)
 - May 24 - [Georgia GOP Chair Goes Full Flat-Earth, Says Globes Are Part of a Conspiracy](https://news.yahoo.com/georgia-gop-chair-goes-full-170734553.html)
 - May 24 - [What really happened to the man from a ‘parallel universe’ who bewildered Japan](https://news.yahoo.com/really-happened-man-parallel-universe-170032502.html)
 - May 24 - [Treasury Secretary Janet Yellen Just Announced Some Extremely Distressing News](https://www.thestreet.com/economy/treasury-secretary-janet-yellen-just-announced-some-extremely-distressing-news?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 24 - [‘I screamed in non-stop pain for 45 minutes’](https://news.yahoo.com/screamed-non-stop-pain-45-162347807.html)
-- May 24 - [Man, woman arrested after dumping up to 500 gallons of oil on 33 miles of Alabama roads](https://news.yahoo.com/man-woman-arrested-dumping-500-161226374.html)
 <!-- feed end -->
