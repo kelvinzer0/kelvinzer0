@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 24 - [UPDATE 1-Russia: warship guarding Black Sea pipelines attacked by unmanned Ukraine craft](https://finance.yahoo.com/news/1-russia-warship-guarding-black-144254135.html)
+- May 24 - [Yellowstone kills baby bison after park guest 'disturbs' the animal](https://news.yahoo.com/yellowstone-kills-baby-bison-park-153655106.html)
+- May 24 - [Wagner boss Prigozhin says Putin's plan to 'demilitarize' Ukraine has been a bust as Ukraine now has one of the 'strongest' armies](https://news.yahoo.com/wagner-boss-prigozhin-says-putins-150151878.html)
+- May 24 - [Putin claimed a 400-year-old map proved Ukraine isn't a real country, not noticing it has 'Ukraine' written on it](https://news.yahoo.com/putin-claimed-400-old-map-145800137.html)
 - May 24 - [Meghan Markle Skipped the Gracie Awards and Is 'Shocked' and Hurt by Public Reaction to Car Chase](https://news.yahoo.com/meghan-markle-skipped-gracie-awards-140600704.html)
 - May 24 - [The cowboy who wrangled a runaway cow on a Michigan freeway says he jumped into action after seeing the mayhem on social media](https://news.yahoo.com/cowboy-wrangled-runaway-cow-michigan-140227622.html)
-- May 24 - [Plan to return decommissioned Leopard 2 tanks to Germany wins backing of Swiss executive branch](https://news.yahoo.com/plan-return-decommissioned-leopard-2-125320449.html)
-- May 24 - [Man accused of intentionally dumping thousands of construction screws along busy Mass. road](https://news.yahoo.com/man-accused-intentionally-dumping-thousands-125110452.html)
 <!-- feed end -->
