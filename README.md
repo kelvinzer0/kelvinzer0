@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 24 - [World's biggest aircraft carrier sails into Oslo for NATO exercises](https://news.yahoo.com/worlds-biggest-aircraft-carrier-sails-085106954.html)
 - May 24 - [Mercenary Prigozhin warns Russia could face revolution unless elite gets serious about war](https://news.yahoo.com/mercenary-prigozhin-warns-russia-could-064537449.html)
 - May 24 - [My Little, Naive, Innocent Brain Is On Fire After Learning About These Horrifying, Shocking, And Upsetting Things](https://news.yahoo.com/little-naive-innocent-brain-fire-051602495.html)
+- May 24 - [Chinese hackers attacked Kenyan government as debt strains grew](https://finance.yahoo.com/news/exclusive-chinese-hackers-attacked-kenyan-050641247.html)
 - May 24 - [Seeking asylum and work, migrants bused out of NYC find hostility](https://news.yahoo.com/seeking-asylum-migrants-bused-nyc-050256466.html)
-- May 24 - [Chief Justice John Roberts complained about judges being heckled at law schools and said the court doesn't need Congress to patrol its ethics](https://news.yahoo.com/chief-justice-john-roberts-complained-041128362.html)
-- May 24 - [Fearing indictment is imminent in classified docs probe, Trump team requests meeting with DOJ](https://news.yahoo.com/fearing-indictment-imminent-classified-docs-013300969.html)
 <!-- feed end -->
