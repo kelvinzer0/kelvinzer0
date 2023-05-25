@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 25 - [Mark Levin Tweets Ron DeSantis' Campaign Donation Page, Stoking MAGA Rage](https://news.yahoo.com/mark-levin-tweets-ron-desantis-151853925.html)
+- May 25 - [Woman arrested after making salad worth $500 in closed Ga. restaurant, police say](https://news.yahoo.com/woman-arrested-making-salad-worth-145207539.html)
+- May 25 - [Texas woman calls 911 after killing husband with hammer over divorce papers](https://news.yahoo.com/texas-woman-calls-911-killing-142813250.html)
 - May 25 - [The hypersonic missiles sending chills down the spines of military strategists](https://news.yahoo.com/hypersonic-missiles-sending-chills-down-142252672.html)
 - May 25 - [Supreme Court sides with grandmother who lost home, equity because of back taxes](https://news.yahoo.com/supreme-court-sides-grandmother-lost-141425347.html)
-- May 25 - [7-year-old set massive fire as parents slept, West Virginia cops say. Child charged](https://news.yahoo.com/7-old-set-massive-fire-130602743.html)
-- May 25 - [Fishing guide reels in ‘once in a lifetime catch.’ Check out the ‘unicorn’ creature](https://news.yahoo.com/fishing-guide-reels-once-lifetime-122127040.html)
-- May 25 - [Vietnam demands Chinese ship leave its exclusive economic zone](https://news.yahoo.com/vietnam-demands-chinese-ship-leave-114449334.html)
 <!-- feed end -->
