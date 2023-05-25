@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 25 - [Fishing guide reels in ‘once in a lifetime catch.’ Check out the ‘unicorn’ creature](https://news.yahoo.com/fishing-guide-reels-once-lifetime-122127040.html)
+- May 25 - [Vietnam demands Chinese ship leave its exclusive economic zone](https://news.yahoo.com/vietnam-demands-chinese-ship-leave-114449334.html)
 - May 25 - [Newt Gingrich's Unintentional Burn Of Donald Trump Is Priceless](https://news.yahoo.com/newt-gingrichs-unintentional-burn-donald-111133282.html)
 - May 25 - [Thailand air force says U.S. has denied request to buy F-35 jets](https://news.yahoo.com/thailand-air-force-says-u-090310633.html)
-- May 25 - [Artist instantly paralyzed after being shoved into moving subway train, New York prosecutor says](https://news.yahoo.com/artist-instantly-paralyzed-being-shoved-070407855.html)
-- May 25 - [Trump Goes Scorched Earth On DeSantis With Freaky Hitler/Satan Post](https://news.yahoo.com/trump-goes-scorched-earth-desantis-035429919.html)
-- May 25 - [Gabby Petito’s parents get ‘burn after reading’ letter from Brian Laundrie’s parents in civil lawsuit](https://news.yahoo.com/gabby-petito-parents-burn-reading-011033194.html)
+- May 25 - [Gavin Newsom Uses Marjorie Taylor Greene's Theories Against Her In Wicked Burn](https://news.yahoo.com/gavin-newsom-uses-marjorie-taylor-083206040.html)
 <!-- feed end -->
