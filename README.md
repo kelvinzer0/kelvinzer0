@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 25 - [The coming Russian revolution will unleash horrifying new demons](https://news.yahoo.com/coming-russian-revolution-unleash-horrifying-161618212.html)
-- May 25 - [Video shows Russia’s Ivan Khurs ship attacked by drone](https://news.yahoo.com/video-shows-russia-ivan-khurs-155300701.html)
-- May 25 - [Women are encouraging each other to wear 'subway shirts' on public transport to shield their summer looks from the eyes of 'strange men'](https://news.yahoo.com/women-encouraging-other-wear-subway-152622407.html)
-- May 25 - [Woman arrested after making salad worth $500 in closed Ga. restaurant, police say](https://news.yahoo.com/woman-arrested-making-salad-worth-145207539.html)
-- May 25 - [Texas woman calls 911 after killing husband with hammer over divorce papers](https://news.yahoo.com/texas-woman-calls-911-killing-142813250.html)
+- May 25 - [Gabby Petito's family release 'burn after reading' letter](https://news.yahoo.com/gabby-petitos-family-release-burn-170304419.html)
+- May 25 - [Oath Keepers Boss Goes on Unhinged Rant as He Awaits His Fate](https://news.yahoo.com/oath-keepers-boss-goes-unhinged-165922998.html)
+- May 25 - [Lauren Boebert's son called 911 in tears to report his father was 'throwing' him around the house. Then she took the phone.](https://news.yahoo.com/lauren-boeberts-son-called-911-163600128.html)
+- May 25 - [Russian student is stunned by how Americans treat her in her cap and gown on graduation day](https://news.yahoo.com/russian-student-stunned-americans-treat-163513845.html)
+- May 25 - [Exclusive-Slimmed-down U.S. debt ceiling deal takes shape -sources](https://news.yahoo.com/exclusive-slimmed-down-u-debt-155518672.html)
 <!-- feed end -->
