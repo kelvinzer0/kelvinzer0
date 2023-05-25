@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 25 - [Gabby Petito's family release 'burn after reading' letter](https://news.yahoo.com/gabby-petitos-family-release-burn-170304419.html)
-- May 25 - [DeSantis says he’ll consider pardoning Jan. 6 defendants, including Trump](https://news.yahoo.com/desantis-says-ll-consider-pardoning-175556611.html)
-- May 25 - [Oath Keepers Boss Goes on Unhinged Rant as He Awaits His Fate](https://news.yahoo.com/oath-keepers-boss-goes-unhinged-165922998.html)
-- May 25 - [Lauren Boebert's son called 911 in tears to report his father was 'throwing' him around the house. Then she took the phone.](https://news.yahoo.com/lauren-boeberts-son-called-911-163600128.html)
-- May 25 - [Russian student is stunned by how Americans treat her in her cap and gown on graduation day](https://news.yahoo.com/russian-student-stunned-americans-treat-163513845.html)
+- May 25 - [Trump attorney says he is ‘right to be angry’ after judge issues protective order](https://news.yahoo.com/hear-why-trump-attorney-says-134159394.html)
+- May 25 - [A Missouri nun's body seems intact 4 years after she was buried. Pilgrims are flocking to her remains and calling it a 'miracle.'](https://news.yahoo.com/missouri-nuns-body-seems-intact-182507482.html)
+- May 25 - [My grandmother chose euthanasia after getting a cancer diagnosis. She shared why with me on TikTok.](https://news.yahoo.com/grandmother-chose-euthanasia-getting-cancer-181259889.html)
+- May 25 - [Man wanted for ‘quick change’ thefts at Kroger stores around metro Atlanta area](https://news.yahoo.com/man-wanted-quick-change-thefts-180057236.html)
 <!-- feed end -->
