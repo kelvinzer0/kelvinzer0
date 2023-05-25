@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 25 - [The hypersonic missiles sending chills down the spines of military strategists](https://news.yahoo.com/hypersonic-missiles-sending-chills-down-142252672.html)
+- May 25 - [Supreme Court sides with grandmother who lost home, equity because of back taxes](https://news.yahoo.com/supreme-court-sides-grandmother-lost-141425347.html)
 - May 25 - [7-year-old set massive fire as parents slept, West Virginia cops say. Child charged](https://news.yahoo.com/7-old-set-massive-fire-130602743.html)
 - May 25 - [Fishing guide reels in ‘once in a lifetime catch.’ Check out the ‘unicorn’ creature](https://news.yahoo.com/fishing-guide-reels-once-lifetime-122127040.html)
 - May 25 - [Vietnam demands Chinese ship leave its exclusive economic zone](https://news.yahoo.com/vietnam-demands-chinese-ship-leave-114449334.html)
-- May 25 - [Newt Gingrich's Unintentional Burn Of Donald Trump Is Priceless](https://news.yahoo.com/newt-gingrichs-unintentional-burn-donald-111133282.html)
-- May 25 - [Thailand air force says U.S. has denied request to buy F-35 jets](https://news.yahoo.com/thailand-air-force-says-u-090310633.html)
 <!-- feed end -->
