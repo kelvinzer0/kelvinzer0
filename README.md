@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 25 - [Mark Levin Tweets Ron DeSantis' Campaign Donation Page, Stoking MAGA Rage](https://news.yahoo.com/mark-levin-tweets-ron-desantis-151853925.html)
+- May 25 - [The coming Russian revolution will unleash horrifying new demons](https://news.yahoo.com/coming-russian-revolution-unleash-horrifying-161618212.html)
+- May 25 - [Video shows Russia’s Ivan Khurs ship attacked by drone](https://news.yahoo.com/video-shows-russia-ivan-khurs-155300701.html)
+- May 25 - [Women are encouraging each other to wear 'subway shirts' on public transport to shield their summer looks from the eyes of 'strange men'](https://news.yahoo.com/women-encouraging-other-wear-subway-152622407.html)
 - May 25 - [Woman arrested after making salad worth $500 in closed Ga. restaurant, police say](https://news.yahoo.com/woman-arrested-making-salad-worth-145207539.html)
 - May 25 - [Texas woman calls 911 after killing husband with hammer over divorce papers](https://news.yahoo.com/texas-woman-calls-911-killing-142813250.html)
-- May 25 - [The hypersonic missiles sending chills down the spines of military strategists](https://news.yahoo.com/hypersonic-missiles-sending-chills-down-142252672.html)
-- May 25 - [Supreme Court sides with grandmother who lost home, equity because of back taxes](https://news.yahoo.com/supreme-court-sides-grandmother-lost-141425347.html)
 <!-- feed end -->
