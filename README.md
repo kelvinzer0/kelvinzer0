@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 25 - [Navy SEALs training plagued by pervasive problems, according to investigation after death of sailor](https://news.yahoo.com/navy-seals-training-plagued-massive-204753081.html)
 - May 25 - [US economy beats back 'dubious' recession fears after GDP, jobs data top expectations](https://finance.yahoo.com/news/us-economy-beats-back-dubious-recession-fears-after-gdp-jobs-data-top-expectations-202247838.html)
 - May 25 - [Rapper Flo Rida agrees to support package for his disabled son that could total nearly $500,000 a year, then left court holding a folder over his face](https://news.yahoo.com/rapper-flo-rida-agrees-support-195706804.html)
 - May 25 - [DeSantis Attacks Trump: He ‘Destroyed Millions of Lives’](https://news.yahoo.com/desantis-attacks-trump-destroyed-millions-195647723.html)
 - May 25 - [Gabby Petito's family release 'burn after reading' letter](https://news.yahoo.com/gabby-petitos-family-release-burn-170304419.html)
+- May 25 - [Unarmed Russian general storms empty street in Belgorod Oblast – video](https://news.yahoo.com/unarmed-russian-general-storms-empty-194200832.html)
 <!-- feed end -->
