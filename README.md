@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 25 - [Putin’s Russia is now practically defenceless](https://news.yahoo.com/putin-russia-now-practically-defenceless-050000625.html)
 - May 25 - [Trump Goes Scorched Earth On DeSantis With Freaky Hitler/Satan Post](https://news.yahoo.com/trump-goes-scorched-earth-desantis-035429919.html)
 - May 25 - [Gabby Petito’s parents get ‘burn after reading’ letter from Brian Laundrie’s parents in civil lawsuit](https://news.yahoo.com/gabby-petito-parents-burn-reading-011033194.html)
 - May 25 - [After Typhoon Mawar battered Guam, 'what used to be a jungle looks like toothpicks'](https://news.yahoo.com/day-guam-assesses-damage-typhoon-002408896.html)
 - May 25 - [Motorist saw CHP officer pinned by man at 5 Freeway entrance. He rushed to save him](https://news.yahoo.com/motorist-saw-chp-officer-pinned-002036384.html)
-- May 24 - [Democrats erupt in laughter after Greene calls for decorum in House](https://news.yahoo.com/democrats-erupt-laughter-greene-calls-231705638.html)
 <!-- feed end -->
