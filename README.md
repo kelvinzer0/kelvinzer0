@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 25 - [Thailand air force says U.S. has denied request to buy F-35 jets](https://news.yahoo.com/thailand-air-force-says-u-090310633.html)
 - May 25 - [Artist instantly paralyzed after being shoved into moving subway train, New York prosecutor says](https://news.yahoo.com/artist-instantly-paralyzed-being-shoved-070407855.html)
-- May 25 - [Putin’s Russia is now practically defenceless](https://news.yahoo.com/putin-russia-now-practically-defenceless-050000625.html)
+- May 25 - [Ex-DOJ Official Predicts When Donald Trump’s ‘Worst Nightmare’ Will Happen](https://news.yahoo.com/ex-doj-official-predicts-donald-062940594.html)
+- May 25 - [Why are you suddenly being asked to tip more? It could be because workers are getting more expensive.](https://finance.yahoo.com/news/why-suddenly-being-asked-tip-042610571.html)
 - May 25 - [Trump Goes Scorched Earth On DeSantis With Freaky Hitler/Satan Post](https://news.yahoo.com/trump-goes-scorched-earth-desantis-035429919.html)
-- May 25 - [Gabby Petito’s parents get ‘burn after reading’ letter from Brian Laundrie’s parents in civil lawsuit](https://news.yahoo.com/gabby-petito-parents-burn-reading-011033194.html)
 <!-- feed end -->
