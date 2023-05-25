@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 25 - [US economy beats back 'dubious' recession fears after GDP, jobs data top expectations](https://finance.yahoo.com/news/us-economy-beats-back-dubious-recession-fears-after-gdp-jobs-data-top-expectations-202247838.html)
-- May 25 - [Rapper Flo Rida agrees to support package for his disabled son that could total nearly $500,000 a year, then left court holding a folder over his face](https://news.yahoo.com/rapper-flo-rida-agrees-support-195706804.html)
-- May 25 - [DeSantis Attacks Trump: He ‘Destroyed Millions of Lives’](https://news.yahoo.com/desantis-attacks-trump-destroyed-millions-195647723.html)
 - May 25 - [Gabby Petito's family release 'burn after reading' letter](https://news.yahoo.com/gabby-petitos-family-release-burn-170304419.html)
-- May 25 - [Unarmed Russian general storms empty street in Belgorod Oblast – video](https://news.yahoo.com/unarmed-russian-general-storms-empty-194200832.html)
+- May 25 - [Newly Freed ‘QAnon Shaman’ Just Can’t Keep His Mouth Shut](https://news.yahoo.com/newly-freed-qanon-shaman-just-221945449.html)
+- May 25 - [Man booted truckers as they slept, then demanded hundreds of dollars to remove them, police say](https://news.yahoo.com/man-booted-truckers-slept-then-213725016.html)
+- May 25 - [CNN Announces Mike Pence Town Hall And Gets Brutally Mocked](https://news.yahoo.com/cnn-announces-mike-pence-town-213610298.html)
+- May 25 - [A ramen shop wants you to know it's offering noodles served with its 'dream ingredient' — a giant 14-legged deep-sea creature related to woodlice](https://news.yahoo.com/ramen-shop-wants-know-offering-205041854.html)
 <!-- feed end -->
