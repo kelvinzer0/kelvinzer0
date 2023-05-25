@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 25 - [Day after Typhoon Mawar hit Guam, 'what used to be a jungle looks like toothpicks'](https://news.yahoo.com/day-guam-assesses-damage-typhoon-002408896.html)
+- May 25 - [A judge reportedly held a secret hearing with the 3 anonymous people sponsoring George Santos's $500,000 bail](https://news.yahoo.com/judge-reportedly-held-secret-hearing-002041971.html)
+- May 25 - [Motorist saw CHP officer pinned by man at 5 Freeway entrance. He rushed to save him](https://news.yahoo.com/motorist-saw-chp-officer-pinned-002036384.html)
 - May 24 - [Democrats erupt in laughter after Greene calls for decorum in House](https://news.yahoo.com/democrats-erupt-laughter-greene-calls-231705638.html)
 - May 24 - [Capitol rioter photographed propping feet on desk in Pelosi's office sentenced to over 4 years](https://news.yahoo.com/capitol-rioter-propped-feet-pelosis-221900259.html)
-- May 24 - [Biden picks history-making Air Force fighter pilot to serve as next Joint Chiefs chairman](https://news.yahoo.com/biden-picks-history-making-air-220833104.html)
-- May 24 - [Microsoft says China installed malware in US systems in Guam](https://news.yahoo.com/microsoft-says-china-installed-malware-in-us-systems-in-guam-195805235.html)
-- May 24 - [Jeffrey Epstein used US Virgin Islands First Lady to remain 'unchecked' in sex-trafficking scheme, JP Morgan claims in court filing](https://news.yahoo.com/jeffrey-epstein-used-us-virgin-195035166.html)
 <!-- feed end -->
