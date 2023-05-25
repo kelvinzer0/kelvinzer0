@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 25 - [Gabby Petito's family release 'burn after reading' letter](https://news.yahoo.com/gabby-petitos-family-release-burn-170304419.html)
+- May 25 - [DeSantis says he’ll consider pardoning Jan. 6 defendants, including Trump](https://news.yahoo.com/desantis-says-ll-consider-pardoning-175556611.html)
 - May 25 - [Oath Keepers Boss Goes on Unhinged Rant as He Awaits His Fate](https://news.yahoo.com/oath-keepers-boss-goes-unhinged-165922998.html)
 - May 25 - [Lauren Boebert's son called 911 in tears to report his father was 'throwing' him around the house. Then she took the phone.](https://news.yahoo.com/lauren-boeberts-son-called-911-163600128.html)
 - May 25 - [Russian student is stunned by how Americans treat her in her cap and gown on graduation day](https://news.yahoo.com/russian-student-stunned-americans-treat-163513845.html)
-- May 25 - [Exclusive-Slimmed-down U.S. debt ceiling deal takes shape -sources](https://news.yahoo.com/exclusive-slimmed-down-u-debt-155518672.html)
 <!-- feed end -->
