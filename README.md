@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 25 - [Gabby Petito’s parents get ‘burn after reading’ letter from Brian Laundrie’s parents in civil lawsuit](https://news.yahoo.com/gabby-petito-parents-burn-reading-011033194.html)
-- May 25 - [Day after Typhoon Mawar hit Guam, 'what used to be a jungle looks like toothpicks'](https://news.yahoo.com/day-guam-assesses-damage-typhoon-002408896.html)
+- May 25 - [After Typhoon Mawar battered Guam, 'what used to be a jungle looks like toothpicks'](https://news.yahoo.com/day-guam-assesses-damage-typhoon-002408896.html)
 - May 25 - [Motorist saw CHP officer pinned by man at 5 Freeway entrance. He rushed to save him](https://news.yahoo.com/motorist-saw-chp-officer-pinned-002036384.html)
+- May 25 - [Ron DeSantis could have just gone down a golden escalator instead of crashing and burning on Twitter Spaces](https://news.yahoo.com/ron-desantis-could-just-gone-001634579.html)
 - May 24 - [Democrats erupt in laughter after Greene calls for decorum in House](https://news.yahoo.com/democrats-erupt-laughter-greene-calls-231705638.html)
-- May 24 - [Capitol rioter photographed propping feet on desk in Pelosi's office sentenced to over 4 years](https://news.yahoo.com/capitol-rioter-propped-feet-pelosis-221900259.html)
 <!-- feed end -->
