@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 25 - [Navy SEALs training plagued by pervasive problems, according to investigation after death of sailor](https://news.yahoo.com/navy-seals-training-plagued-massive-204753081.html)
+- May 25 - [US economy beats back 'dubious' recession fears after GDP, jobs data top expectations](https://finance.yahoo.com/news/us-economy-beats-back-dubious-recession-fears-after-gdp-jobs-data-top-expectations-202247838.html)
+- May 25 - [Rapper Flo Rida agrees to support package for his disabled son that could total nearly $500,000 a year, then left court holding a folder over his face](https://news.yahoo.com/rapper-flo-rida-agrees-support-195706804.html)
+- May 25 - [DeSantis Attacks Trump: He ‘Destroyed Millions of Lives’](https://news.yahoo.com/desantis-attacks-trump-destroyed-millions-195647723.html)
 - May 25 - [Gabby Petito's family release 'burn after reading' letter](https://news.yahoo.com/gabby-petitos-family-release-burn-170304419.html)
-- May 25 - [Trump attorney says he is ‘right to be angry’ after judge issues protective order](https://news.yahoo.com/hear-why-trump-attorney-says-134159394.html)
-- May 25 - [A Missouri nun's body seems intact 4 years after she was buried. Pilgrims are flocking to her remains and calling it a 'miracle.'](https://news.yahoo.com/missouri-nuns-body-seems-intact-182507482.html)
-- May 25 - [My grandmother chose euthanasia after getting a cancer diagnosis. She shared why with me on TikTok.](https://news.yahoo.com/grandmother-chose-euthanasia-getting-cancer-181259889.html)
-- May 25 - [Man wanted for ‘quick change’ thefts at Kroger stores around metro Atlanta area](https://news.yahoo.com/man-wanted-quick-change-thefts-180057236.html)
 <!-- feed end -->
