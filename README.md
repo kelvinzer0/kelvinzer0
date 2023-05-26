@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 26 - [Driver swept away by floodwaters in Spain](https://news.yahoo.com/driver-swept-away-floodwaters-spain-185737439.html)
+- May 26 - [Economic data, tech earnings, Elizabeth Holmes sentencing: What to watch for](https://finance.yahoo.com/video/economic-data-tech-earnings-elizabeth-203811330.html)
 - May 26 - [An 11-year-old boy shot in the chest by police after calling 911 kept asking: 'What did I do wrong?'](https://news.yahoo.com/11-old-boy-shot-chest-105117257.html)
 - May 26 - [Texas Attorney General Ken Paxton’s mistress at heart of allegations in impeachment papers](https://news.yahoo.com/texas-attorney-general-ken-paxton-181112368.html)
 - May 26 - [India official empties dam to retrieve lost phone](https://news.yahoo.com/india-official-empties-dam-retrieve-173019647.html)
