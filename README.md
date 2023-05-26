@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 26 - [Cocaine labeled with swastika seized in Peru](https://news.yahoo.com/cocaine-labeled-swastika-seized-peru-094550854.html)
+- May 26 - [GOP scores an early debt ceiling win: Biden vowed not to negotiate. And then he did.](https://news.yahoo.com/gop-scores-early-debt-ceiling-080121741.html)
+- May 26 - [Lawrence O'Donnell Spots New 'Extremely Damning Evidence' Against Trump](https://news.yahoo.com/lawrence-odonnell-spots-extremely-damning-075100381.html)
 - May 26 - [Donald Trump Jr. Accidentally Insults His Dad In Botched Attempt To Dis DeSantis](https://news.yahoo.com/donald-trump-jr-accidentally-insults-045320860.html)
 - May 26 - [A California teenager fell to his death trying to film a social media stunt on Los Angeles' new $500 million bridge: police](https://news.yahoo.com/california-teenager-fell-death-trying-032918869.html)
-- May 26 - [China Eastern set to operate C919's first commercial flight on Sunday](https://finance.yahoo.com/news/china-eastern-set-operate-c919s-025408636.html)
-- May 26 - [Brett Kavanaugh broke from his fellow conservative Supreme Court justices and warned their ruling on the EPA could jeopardize water quality and flood control](https://news.yahoo.com/brett-kavanaugh-broke-fellow-conservative-002400129.html)
-- May 26 - [Octopus lashes out when he wakes up, perhaps from a nightmare. See the ‘intense’ video](https://news.yahoo.com/octopus-lashes-wakes-perhaps-nightmare-002112073.html)
 <!-- feed end -->
