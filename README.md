@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 25 - [Gabby Petito's family release 'burn after reading' letter](https://news.yahoo.com/gabby-petitos-family-release-burn-170304419.html)
+- May 26 - [Octopus lashes out when he wakes up, perhaps from a nightmare. See the ‘intense’ video](https://news.yahoo.com/octopus-lashes-wakes-perhaps-nightmare-002112073.html)
+- May 25 - [Legal expert reacts to new report about Trump’s Mar-a-Lago documents](https://news.yahoo.com/legal-expert-reacts-report-trump-232136128.html)
+- May 25 - [A Vietnamese noodle vendor who imitated 'Salt Bae' after a government official ate a gold-encrusted steak at the chef's London restaurant is now facing a harsh jail sentence](https://news.yahoo.com/vietnamese-noodle-vendor-imitated-salt-232125524.html)
+- May 25 - [Body-cam footage shows indicted ex-police officers laughing at man who died in their custody](https://news.yahoo.com/body-cam-footage-shows-indicted-231304696.html)
 - May 25 - [Newly Freed ‘QAnon Shaman’ Just Can’t Keep His Mouth Shut](https://news.yahoo.com/newly-freed-qanon-shaman-just-221945449.html)
-- May 25 - [Man booted truckers as they slept, then demanded hundreds of dollars to remove them, police say](https://news.yahoo.com/man-booted-truckers-slept-then-213725016.html)
-- May 25 - [CNN Announces Mike Pence Town Hall And Gets Brutally Mocked](https://news.yahoo.com/cnn-announces-mike-pence-town-213610298.html)
-- May 25 - [A ramen shop wants you to know it's offering noodles served with its 'dream ingredient' — a giant 14-legged deep-sea creature related to woodlice](https://news.yahoo.com/ramen-shop-wants-know-offering-205041854.html)
 <!-- feed end -->
