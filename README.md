@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 26 - [Musk's Neuralink says the FDA approved human trials](https://news.yahoo.com/musks-neuralink-says-fda-approved-063830198.html)
+- May 26 - [After 4 die in Japan attack, lawmaker's son arrested](https://news.yahoo.com/4-die-japan-attack-lawmakers-075001454.html)
 - May 26 - [Donald Trump Jr. Accidentally Insults His Dad In Botched Attempt To Dis DeSantis](https://news.yahoo.com/donald-trump-jr-accidentally-insults-045320860.html)
 - May 26 - [A California teenager fell to his death trying to film a social media stunt on Los Angeles' new $500 million bridge: police](https://news.yahoo.com/california-teenager-fell-death-trying-032918869.html)
 - May 26 - [China Eastern set to operate C919's first commercial flight on Sunday](https://finance.yahoo.com/news/china-eastern-set-operate-c919s-025408636.html)
