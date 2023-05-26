@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - May 26 - [Prosecutors say they have a recording of Trump and a witness](https://news.yahoo.com/prosecutors-recording-trump-witness-211552499.html)
 - May 26 - [The 11-year-old Mississippi boy who was shot by police after calling 911 has been telling his mom 'it's the cop's fault — it's not your fault,' lawyer says](https://news.yahoo.com/11-old-mississippi-boy-shot-210704888.html)
 - May 26 - [Judge who sentenced Oath Keeper for her role in the Capitol riot said she could have used her identity as a trans woman to be a role model, rather than a riot leader](https://news.yahoo.com/judge-sentenced-oath-keeper-her-205403302.html)
-- May 26 - [Drone Boat Attack On Russian Ship In Black Sea Story Keeps Getting Weirder](https://news.yahoo.com/drone-boat-attack-russian-ship-202823292.html)
+- May 26 - [DeSantis addresses Amanda Gorman poem book at Orlando convention](https://news.yahoo.com/desantis-addresses-amanda-gorman-poem-203514182.html)
 <!-- feed end -->
