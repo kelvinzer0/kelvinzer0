@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 26 - [Texas Attorney General Ken Paxton Furious After House Panel Recommends Impeachment](https://news.yahoo.com/texas-attorney-general-ken-paxton-024258816.html)
 - May 26 - [Brett Kavanaugh broke from his fellow conservative Supreme Court justices and warned their ruling on the EPA could jeopardize water quality and flood control](https://news.yahoo.com/brett-kavanaugh-broke-fellow-conservative-002400129.html)
 - May 26 - [Octopus lashes out when he wakes up, perhaps from a nightmare. See the ‘intense’ video](https://news.yahoo.com/octopus-lashes-wakes-perhaps-nightmare-002112073.html)
 - May 25 - [Legal expert reacts to new report about Trump’s Mar-a-Lago documents](https://news.yahoo.com/legal-expert-reacts-report-trump-232136128.html)
 - May 25 - [Ancient toilets unearthed in Jerusalem reveal a debilitating and sometimes fatal disease](https://news.yahoo.com/ancient-toilets-unearthed-jerusalem-reveal-230118892.html)
-- May 25 - [Newly Freed ‘QAnon Shaman’ Just Can’t Keep His Mouth Shut](https://news.yahoo.com/newly-freed-qanon-shaman-just-221945449.html)
 <!-- feed end -->
