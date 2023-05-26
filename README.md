@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 26 - [This iconic Apple MacBook Air is down to its Black Friday price — save $200 for Memorial Day](https://news.yahoo.com/apple-macbook-air-memorial-day-sale-181944101.html)
+- May 26 - [Family stands to lose nearly $6,000 in airfare and hotel costs after they were bumped from an overbooked cruise ship](https://news.yahoo.com/family-stands-lose-nearly-6-161623068.html)
 - May 26 - [Ancient toilets unearthed in Jerusalem reveal a debilitating and sometimes fatal disease](https://news.yahoo.com/ancient-toilets-unearthed-jerusalem-reveal-230118892.html)
+- May 26 - [Meta's layoffs leave some ex-employees feeling 'better about being done'](https://finance.yahoo.com/news/metas-layoffs-leave-some-ex-employees-feeling-better-about-being-done-152848451.html)
 - May 26 - [Petition to remove Hernando Co. school board member for Disney movie complaint hits 18K names](https://news.yahoo.com/petition-remove-hernando-co-school-152737879.html)
-- May 26 - [Brazil's Lula says spoke to Putin on war, declined economic forum invitation](https://news.yahoo.com/brazils-lula-said-spoke-putin-145246051.html)
-- May 26 - [Zelenskyy's office responds to Chinese envoy's call for occupied territories to be given to Russia](https://news.yahoo.com/zelenskyys-office-responds-chinese-envoys-142206487.html)
+- May 26 - [Watch Ukraine's 'Kamikaze Drones' Slam Into Trucks, Tanks, Other Drones](https://news.yahoo.com/watch-ukraines-kamikaze-drones-slam-144000516.html)
 <!-- feed end -->
