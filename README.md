@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 26 - [Ukraine video claims attacks on Russian ship](https://news.yahoo.com/ukraine-video-claims-attacks-russian-143112505.html)
 - May 26 - [Kuwait suspends new visas for Philippines workers in rights row](https://news.yahoo.com/kuwait-suspends-visas-philippines-workers-124953399.html)
 - May 26 - [Funeral procession to be held today for Ga. deputy who drowned while doing yard work](https://news.yahoo.com/funeral-procession-held-today-oconee-121917197.html)
-- May 26 - [The Russian groups launching top secret anti-Putin operations](https://news.yahoo.com/russian-groups-launching-top-secret-120935654.html)
 - May 26 - [Watch: Passengers terrified as man opens plane door in mid-air](https://news.yahoo.com/watch-passengers-terrified-man-opens-120836037.html)
 - May 26 - [An 11-year-old boy shot in the chest by police after calling 911 kept asking: 'What did I do wrong?'](https://news.yahoo.com/11-old-boy-shot-chest-105117257.html)
 <!-- feed end -->
