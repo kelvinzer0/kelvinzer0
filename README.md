@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 26 - [Economic data, tech earnings, Elizabeth Holmes sentencing: What to watch for](https://finance.yahoo.com/video/economic-data-tech-earnings-elizabeth-203811330.html)
-- May 26 - [An 11-year-old boy shot in the chest by police after calling 911 kept asking: 'What did I do wrong?'](https://news.yahoo.com/11-old-boy-shot-chest-105117257.html)
-- May 26 - [Texas Attorney General Ken Paxton’s mistress at heart of allegations in impeachment papers](https://news.yahoo.com/texas-attorney-general-ken-paxton-181112368.html)
-- May 26 - [India official empties dam to retrieve lost phone](https://news.yahoo.com/india-official-empties-dam-retrieve-173019647.html)
-- May 26 - [A salary under this amount is a dating red flag for many Americans — how you can avoid being part of the 64% who say they're ‘financially incompatible’ with their partner](https://finance.yahoo.com/news/survey-shows-1-3-americans-161500220.html)
+- May 26 - [Woman called police after thieves hit a metro Lululemon store, she was then fired](https://news.yahoo.com/woman-says-she-fired-calling-193314578.html)
+- May 26 - [Prosecutors say they have a recording of Trump and a witness](https://news.yahoo.com/prosecutors-recording-trump-witness-211552499.html)
+- May 26 - [The 11-year-old Mississippi boy who was shot by police after calling 911 has been telling his mom 'it's the cop's fault — it's not your fault,' lawyer says](https://news.yahoo.com/11-old-mississippi-boy-shot-210704888.html)
+- May 26 - [Judge who sentenced Oath Keeper for her role in the Capitol riot said she could have used her identity as a trans woman to be a role model, rather than a riot leader](https://news.yahoo.com/judge-sentenced-oath-keeper-her-205403302.html)
+- May 26 - [Drone Boat Attack On Russian Ship In Black Sea Story Keeps Getting Weirder](https://news.yahoo.com/drone-boat-attack-russian-ship-202823292.html)
 <!-- feed end -->
