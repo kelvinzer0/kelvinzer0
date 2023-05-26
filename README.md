@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 26 - [Brett Kavanaugh broke from his fellow conservative Supreme Court justices and warned their ruling on the EPA could jeopardize water quality and flood control](https://news.yahoo.com/brett-kavanaugh-broke-fellow-conservative-002400129.html)
 - May 26 - [Octopus lashes out when he wakes up, perhaps from a nightmare. See the ‘intense’ video](https://news.yahoo.com/octopus-lashes-wakes-perhaps-nightmare-002112073.html)
 - May 25 - [Legal expert reacts to new report about Trump’s Mar-a-Lago documents](https://news.yahoo.com/legal-expert-reacts-report-trump-232136128.html)
-- May 25 - [A Vietnamese noodle vendor who imitated 'Salt Bae' after a government official ate a gold-encrusted steak at the chef's London restaurant is now facing a harsh jail sentence](https://news.yahoo.com/vietnamese-noodle-vendor-imitated-salt-232125524.html)
-- May 25 - [Body-cam footage shows indicted ex-police officers laughing at man who died in their custody](https://news.yahoo.com/body-cam-footage-shows-indicted-231304696.html)
+- May 25 - [Ancient toilets unearthed in Jerusalem reveal a debilitating and sometimes fatal disease](https://news.yahoo.com/ancient-toilets-unearthed-jerusalem-reveal-230118892.html)
 - May 25 - [Newly Freed ‘QAnon Shaman’ Just Can’t Keep His Mouth Shut](https://news.yahoo.com/newly-freed-qanon-shaman-just-221945449.html)
 <!-- feed end -->
