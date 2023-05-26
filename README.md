@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 26 - [An 11-year-old boy shot in the chest by police after calling 911 kept asking: 'What did I do wrong?'](https://news.yahoo.com/11-old-boy-shot-chest-105117257.html)
+- May 26 - [India official empties dam to retrieve lost phone](https://news.yahoo.com/india-official-empties-dam-retrieve-173019647.html)
+- May 26 - [Maine woman takes raccoon into Petco for nail trim, possibly exposing people to rabies](https://news.yahoo.com/maine-woman-takes-raccoon-petco-172938196.html)
 - May 26 - [Family stands to lose nearly $6,000 in airfare and hotel costs after they were bumped from an overbooked cruise ship](https://news.yahoo.com/family-stands-lose-nearly-6-161623068.html)
-- May 26 - [Ancient toilets unearthed in Jerusalem reveal a debilitating and sometimes fatal disease](https://news.yahoo.com/ancient-toilets-unearthed-jerusalem-reveal-230118892.html)
-- May 26 - [Meta's layoffs leave some ex-employees feeling 'better about being done'](https://finance.yahoo.com/news/metas-layoffs-leave-some-ex-employees-feeling-better-about-being-done-152848451.html)
-- May 26 - [Petition to remove Hernando Co. school board member for Disney movie complaint hits 18K names](https://news.yahoo.com/petition-remove-hernando-co-school-152737879.html)
-- May 26 - [Watch Ukraine's 'Kamikaze Drones' Slam Into Trucks, Tanks, Other Drones](https://news.yahoo.com/watch-ukraines-kamikaze-drones-slam-144000516.html)
+- May 26 - [Why Japan’s Private Lunar Lander Crashed on Moon](https://news.yahoo.com/why-japan-private-lunar-lander-160000696.html)
 <!-- feed end -->
