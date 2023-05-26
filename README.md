@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 26 - [Texas Attorney General Ken Paxton Furious After House Panel Recommends Impeachment](https://news.yahoo.com/texas-attorney-general-ken-paxton-024258816.html)
+- May 26 - [A California teenager fell to his death trying to film a social media stunt on Los Angeles' new $500 million bridge: police](https://news.yahoo.com/california-teenager-fell-death-trying-032918869.html)
 - May 26 - [Brett Kavanaugh broke from his fellow conservative Supreme Court justices and warned their ruling on the EPA could jeopardize water quality and flood control](https://news.yahoo.com/brett-kavanaugh-broke-fellow-conservative-002400129.html)
 - May 26 - [Octopus lashes out when he wakes up, perhaps from a nightmare. See the ‘intense’ video](https://news.yahoo.com/octopus-lashes-wakes-perhaps-nightmare-002112073.html)
 - May 25 - [Legal expert reacts to new report about Trump’s Mar-a-Lago documents](https://news.yahoo.com/legal-expert-reacts-report-trump-232136128.html)
