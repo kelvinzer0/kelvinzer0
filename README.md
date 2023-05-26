@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 26 - [Cocaine labeled with swastika seized in Peru](https://news.yahoo.com/cocaine-labeled-swastika-seized-peru-094550854.html)
+- May 26 - [An 11-year-old boy shot in the chest by police after calling 911 kept asking: 'What did I do wrong?'](https://news.yahoo.com/11-old-boy-shot-chest-105117257.html)
+- May 26 - [Ambani's Reliance targets Indian fashion e-commerce with low-cost model](https://news.yahoo.com/ambanis-reliance-targets-indian-fashion-092711614.html)
 - May 26 - [Flyers are 'skiplagging' to try and save money on flight tickets. Airlines hate it.](https://news.yahoo.com/flyers-skiplagging-try-save-money-090000581.html)
-- May 26 - [Parole denied for woman convicted of 1982 murder, kidnapping of 13-year-old Georgia girl](https://news.yahoo.com/parole-denied-woman-convicted-1982-075834729.html)
-- May 26 - [Washington Post Explains The Real Danger To Ron DeSantis’ Pardon Talk](https://news.yahoo.com/washington-post-explains-real-danger-075805559.html)
-- May 26 - [Lawrence O'Donnell Spots New 'Extremely Damning Evidence' Against Trump](https://news.yahoo.com/lawrence-odonnell-spots-extremely-damning-075100381.html)
+- May 26 - [A Southwest pilot crawled in through the plane's window after being locked out of the cockpit before takeoff](https://news.yahoo.com/southwest-pilot-crawled-planes-window-084436728.html)
+- May 26 - [GOP scores an early debt ceiling win: Biden vowed not to negotiate. And then he did.](https://news.yahoo.com/gop-scores-early-debt-ceiling-080121741.html)
 <!-- feed end -->
