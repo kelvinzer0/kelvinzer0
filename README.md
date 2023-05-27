@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 27 - [Ron DeSantis Wants To Take His 'War On Woke' National. There’s One Big Problem: The Constitution.](https://news.yahoo.com/ron-desantis-wants-war-woke-120029828.html)
 - May 27 - [Influencer dies after live-streaming himself drinking bottles of Chinese spirit Baijiu](https://news.yahoo.com/influencer-dies-live-streaming-himself-070306274.html)
 - May 27 - [India official drains entire dam to retrieve phone](https://news.yahoo.com/india-official-empties-dam-retrieve-173019647.html)
 - May 27 - [AOC heckled, booed as NYC town hall descends into chaos](https://news.yahoo.com/aoc-heckled-booed-nyc-town-021347664.html)
 - May 27 - [DeSantis campaign tells nervous donors in leaked audio that voters will care more about a recession and Biden's age than the governor's anti-abortion record](https://news.yahoo.com/desantis-campaign-tells-nervous-donors-021248743.html)
-- May 27 - [The winner of the record-breaking $2 billion Powerball jackpot is being sued by a man who alleges the ticket was stolen from him by a guy named 'Reggie'](https://news.yahoo.com/winner-record-breaking-2-billion-010544918.html)
 <!-- feed end -->
