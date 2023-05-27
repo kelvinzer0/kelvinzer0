@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 27 - [This iconic Apple MacBook Air is down to its Black Friday price — save $200 for Memorial Day](https://news.yahoo.com/apple-macbook-air-memorial-day-sale-181944101.html)
+- May 27 - [Lost home equity: San Francisco homes are selling for $220,000 less than a year ago](https://finance.yahoo.com/news/lost-home-equity-san-francisco-homes-are-selling-for-220000-less-than-a-year-ago-153041282.html)
+- May 27 - [Disney, DeSantis Battle Takes Another Ugly Turn](https://www.thestreet.com/travel/disney-desantis-battle-takes-another-ugly-turn?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 27 - [‘Gifts from the sky’ – Ukraine’s special forces show off how they eliminate Russian invaders](https://news.yahoo.com/gifts-sky-ukraine-special-forces-145400282.html)
+- May 27 - [Ukraine has squeezed out of the US-Patriot missile system a capability that the Pentagon did not think possible, military analyst says](https://news.yahoo.com/ukraine-squeezed-us-patriot-missile-141738691.html)
 - May 27 - [Sailors have a new way to stop killer whale attacks](https://news.yahoo.com/tourists-sailing-off-southern-spain-132620812.html)
-- May 27 - [Ron DeSantis Wants To Take His 'War On Woke' National. There’s One Big Problem: The Constitution.](https://news.yahoo.com/ron-desantis-wants-war-woke-120029828.html)
-- May 27 - [Florida couple arrested in ‘bone chilling’ child abuse case, special needs 3-year-old 'rotting in bed': Police](https://news.yahoo.com/florida-couple-arrested-bone-chilling-095935333.html)
-- May 27 - [AOC heckled, booed as NYC town hall descends into chaos](https://news.yahoo.com/aoc-heckled-booed-nyc-town-021347664.html)
 <!-- feed end -->
