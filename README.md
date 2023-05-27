@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - May 27 - [Warren Buffett slammed the last debt-ceiling crisis as a stupid waste of time - and called for the government's borrowing limit to be removed](https://finance.yahoo.com/news/warren-buffett-slammed-last-debt-181500259.html)
 - May 27 - [Arby’s Sued After Manager Found Dead in Freezer](https://news.yahoo.com/arby-sued-manager-found-dead-153050567.html)
 - May 27 - [Lost home equity: San Francisco homes are selling for $220,000 less than a year ago](https://finance.yahoo.com/news/lost-home-equity-san-francisco-homes-are-selling-for-220000-less-than-a-year-ago-153041282.html)
-- May 27 - [Judge rules Colorado student cannot wear a sash with Mexican and American flags during graduation](https://news.yahoo.com/judge-rules-colorado-student-cannot-151850971.html)
+- May 27 - [Disney, DeSantis Battle Takes Another Ugly Turn](https://www.thestreet.com/travel/disney-desantis-battle-takes-another-ugly-turn?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
