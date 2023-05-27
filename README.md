@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 26 - [A woman sold her apartment and furniture to join a much-hyped 3-year cruise. Now, she and others have demanded refunds with the ship's future in flux.](https://news.yahoo.com/woman-sold-her-apartment-furniture-230619508.html)
+- May 26 - [Steelers QB Kenny Pickett’s car stolen during radio interview, event at dealership](https://sports.yahoo.com/steelers-qb-kenny-picketts-car-stolen-during-radio-interview-event-at-dealership-222833135.html)
 - May 26 - [Woman called police after thieves hit a metro Lululemon store, she was then fired](https://news.yahoo.com/woman-says-she-fired-calling-193314578.html)
 - May 26 - [Prosecutors say they have a recording of Trump and a witness](https://news.yahoo.com/prosecutors-recording-trump-witness-211552499.html)
 - May 26 - [The 11-year-old Mississippi boy who was shot by police after calling 911 has been telling his mom 'it's the cop's fault — it's not your fault,' lawyer says](https://news.yahoo.com/11-old-mississippi-boy-shot-210704888.html)
-- May 26 - [Judge who sentenced Oath Keeper for her role in the Capitol riot said she could have used her identity as a trans woman to be a role model, rather than a riot leader](https://news.yahoo.com/judge-sentenced-oath-keeper-her-205403302.html)
-- May 26 - [DeSantis addresses Amanda Gorman poem book at Orlando convention](https://news.yahoo.com/desantis-addresses-amanda-gorman-poem-203514182.html)
 <!-- feed end -->
