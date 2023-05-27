@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 27 - [Arby’s Sued After Manager Found Dead in Freezer](https://news.yahoo.com/arby-sued-manager-found-dead-153050567.html)
 - May 27 - [Lost home equity: San Francisco homes are selling for $220,000 less than a year ago](https://finance.yahoo.com/news/lost-home-equity-san-francisco-homes-are-selling-for-220000-less-than-a-year-ago-153041282.html)
+- May 27 - [Judge rules Colorado student cannot wear a sash with Mexican and American flags during graduation](https://news.yahoo.com/judge-rules-colorado-student-cannot-151850971.html)
 - May 27 - [Disney, DeSantis Battle Takes Another Ugly Turn](https://www.thestreet.com/travel/disney-desantis-battle-takes-another-ugly-turn?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - May 27 - [‘Gifts from the sky’ – Ukraine’s special forces show off how they eliminate Russian invaders](https://news.yahoo.com/gifts-sky-ukraine-special-forces-145400282.html)
-- May 27 - [Ukraine has squeezed out of the US-Patriot missile system a capability that the Pentagon did not think possible, military analyst says](https://news.yahoo.com/ukraine-squeezed-us-patriot-missile-141738691.html)
 <!-- feed end -->
