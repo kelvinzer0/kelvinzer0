@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 27 - [This iconic Apple MacBook Air is down to its Black Friday price — save $200 for Memorial Day](https://news.yahoo.com/apple-macbook-air-memorial-day-sale-181944101.html)
 - May 27 - [Sailors have a new way to stop killer whale attacks](https://news.yahoo.com/tourists-sailing-off-southern-spain-132620812.html)
 - May 27 - [Ron DeSantis Wants To Take His 'War On Woke' National. There’s One Big Problem: The Constitution.](https://news.yahoo.com/ron-desantis-wants-war-woke-120029828.html)
-- May 27 - [Influencer dies after live-streaming himself drinking bottles of Chinese spirit Baijiu](https://news.yahoo.com/influencer-dies-live-streaming-himself-070306274.html)
-- May 27 - [India official drains entire dam to retrieve phone](https://news.yahoo.com/india-official-empties-dam-retrieve-173019647.html)
+- May 27 - [Florida couple arrested in ‘bone chilling’ child abuse case, special needs 3-year-old 'rotting in bed': Police](https://news.yahoo.com/florida-couple-arrested-bone-chilling-095935333.html)
 - May 27 - [AOC heckled, booed as NYC town hall descends into chaos](https://news.yahoo.com/aoc-heckled-booed-nyc-town-021347664.html)
 <!-- feed end -->
