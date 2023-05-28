@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 28 - [Haiti's deadly vigilante movement sees decline in gang violence - report](https://news.yahoo.com/haitis-deadly-vigilante-movement-sees-214420878.html)
+- May 28 - [Escaped Ohio prison inmate Bradley Gillespie found dead in Ohio River](https://news.yahoo.com/escaped-ohio-prison-inmate-bradley-213300788.html)
 - May 28 - [Liz Cheney calls out Donald Trump, Republican colleagues in speech: 'Wanted me to lie'](https://news.yahoo.com/liz-cheney-calls-donald-trump-203103036.html)
-- May 28 - [Trust is breaking down in Britain. It is a danger we can no longer ignore](https://news.yahoo.com/trust-breaking-down-britain-danger-203000554.html)
+- May 28 - [Europe breathes sigh of relief as Erdogan remains in power in Turkey](https://news.yahoo.com/europe-breathes-sigh-relief-erdogan-200828504.html)
 - May 28 - [New Hampshire GOP Gov. Chris Sununu says any Republican in the presidential race who isn't 'hitting Donald Trump hard right now' is 'doing the entire party a disservice'](https://news.yahoo.com/hampshire-gop-gov-chris-sununu-194544657.html)
-- May 28 - [A Trump spokeswoman mocked Pete Buttigieg's military service in a Memorial Day weekend spat with Ron DeSantis](https://news.yahoo.com/trump-spokeswoman-mocked-pete-buttigiegs-172122304.html)
-- May 28 - [Dismissing Russian criticism, U.S. Senator Graham praises Ukrainian resistance](https://news.yahoo.com/russia-condemns-u-senator-grahams-165554835.html)
 <!-- feed end -->
