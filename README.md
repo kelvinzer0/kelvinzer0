@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 28 - [Turkey voters divided in Erdogan's Istanbul birthplace](https://news.yahoo.com/turkey-voters-divided-erdogans-istanbul-124815539.html)
+- May 28 - [Military bases removing names of Confederates](https://news.yahoo.com/military-bases-removing-names-confederates-131600726.html)
 - May 28 - [Jan. 6 rioters are raking in thousands in donations. Now the US is coming after their haul](https://news.yahoo.com/government-tries-claw-back-money-124138681.html)
 - May 28 - [Author discovers 'most important financial skill' for achieving financial freedom](https://finance.yahoo.com/news/author-discovers-most-important-financial-skill-for-achieving-financial-freedom-115918521.html)
 - May 28 - [Russia's being more cautious with its tanks and trying to hide them after heavy losses in battle, but it's shooting itself in the foot](https://news.yahoo.com/russias-being-more-cautious-tanks-113000925.html)
