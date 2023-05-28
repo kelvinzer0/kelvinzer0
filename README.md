@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 28 - [Turkey polls close with Erdogan favourite to extend 20-year rule](https://news.yahoo.com/turkey-polls-close-erdogan-favourite-141512556.html)
+- May 28 - [Ukrainian soldiers in Bakhmut say fighting regular Russian troops will be 'not as hard' as fighting Wagner troops because they're inexperienced](https://news.yahoo.com/ukrainian-soldiers-bakhmut-fighting-regular-151636993.html)
+- May 28 - [A ‘1 in 10 million’ bison is born at Wyoming state park. See photo of the rare calf](https://news.yahoo.com/1-10-million-bison-born-144455741.html)
 - May 28 - [Experts Claim Ivanka Trump May Have Distanced Herself From the Family Too ‘Late’ to Make This Anticipated Move](https://news.yahoo.com/experts-claim-ivanka-trump-may-140400720.html)
+- May 28 - [Prigozhin to be sent to Sudan: What fate awaits Wagner leader?](https://news.yahoo.com/prigozhin-sent-sudan-fate-awaits-140000665.html)
 - May 28 - [Jan. 6 rioters are raking in thousands in donations. Now the US is coming after their haul](https://news.yahoo.com/government-tries-claw-back-money-124138681.html)
-- May 28 - [Author discovers 'most important financial skill' for achieving financial freedom](https://finance.yahoo.com/news/author-discovers-most-important-financial-skill-for-achieving-financial-freedom-115918521.html)
-- May 28 - [Russia's being more cautious with its tanks and trying to hide them after heavy losses in battle, but it's shooting itself in the foot](https://news.yahoo.com/russias-being-more-cautious-tanks-113000925.html)
 <!-- feed end -->
