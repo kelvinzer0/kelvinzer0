@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 28 - [Erdogan hands cash to supporters at polling station](https://news.yahoo.com/erdogan-hands-cash-supporters-polling-114904327.html)
+- May 28 - [Turkey voters divided in Erdogan's Istanbul birthplace](https://news.yahoo.com/turkey-voters-divided-erdogans-istanbul-124815539.html)
+- May 28 - [Jan. 6 rioters are raking in thousands in donations. Now the US is coming after their haul](https://news.yahoo.com/government-tries-claw-back-money-124138681.html)
+- May 28 - [Author discovers 'most important financial skill' for achieving financial freedom](https://finance.yahoo.com/news/author-discovers-most-important-financial-skill-for-achieving-financial-freedom-115918521.html)
+- May 28 - [Russia's being more cautious with its tanks and trying to hide them after heavy losses in battle, but it's shooting itself in the foot](https://news.yahoo.com/russias-being-more-cautious-tanks-113000925.html)
 - May 28 - [Mercenary Prigozhin says Kremlin blanking him on state media will provoke backlash](https://news.yahoo.com/mercenary-prigozhin-says-kremlin-blanking-093615739.html)
-- May 28 - [An elusive cat 'terrorizing' a Florida neighborhood has sent 2 injured people to the emergency room](https://news.yahoo.com/elusive-cat-terrorizing-florida-neighborhood-093549428.html)
-- May 28 - [A family thought they were adopting a 6-year-old girl. Now they claim she's an adult con artist.](https://news.yahoo.com/family-thought-were-adopting-6-091000128.html)
-- May 28 - [Putin Poisoning? Belarus dictator Luakashenko in critical condition in Moscow hospital, says opposition figure](https://news.yahoo.com/putin-poisoning-belarus-dictator-luakashenko-083900039.html)
 <!-- feed end -->
