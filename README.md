@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 28 - [‘It’s ridiculous’: Fmr GOP Rep rips DeSantis for threatening criminal reform law](https://news.yahoo.com/ridiculous-fmr-gop-rep-rips-160305140.html)
+- May 28 - [Hakeem Jeffries says he has 'no idea' what Kevin McCarthy's talking about](https://news.yahoo.com/hakeem-jeffries-says-no-idea-154302052.html)
+- May 28 - [Kevin McCarthy Brags About Making Struggling Americans Work for Food](https://news.yahoo.com/kevin-mccarthy-brags-making-struggling-151841648.html)
 - May 28 - [Ukrainian soldiers in Bakhmut say fighting regular Russian troops will be 'not as hard' as fighting Wagner troops because they're inexperienced](https://news.yahoo.com/ukrainian-soldiers-bakhmut-fighting-regular-151636993.html)
 - May 28 - [A ‘1 in 10 million’ bison is born at Wyoming state park. See photo of the rare calf](https://news.yahoo.com/1-10-million-bison-born-144455741.html)
-- May 28 - [Experts Claim Ivanka Trump May Have Distanced Herself From the Family Too ‘Late’ to Make This Anticipated Move](https://news.yahoo.com/experts-claim-ivanka-trump-may-140400720.html)
-- May 28 - [Prigozhin to be sent to Sudan: What fate awaits Wagner leader?](https://news.yahoo.com/prigozhin-sent-sudan-fate-awaits-140000665.html)
-- May 28 - [Jan. 6 rioters are raking in thousands in donations. Now the US is coming after their haul](https://news.yahoo.com/government-tries-claw-back-money-124138681.html)
 <!-- feed end -->
