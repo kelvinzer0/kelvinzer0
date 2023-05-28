@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 28 - [Investors react to tentative US debt ceiling deal](https://news.yahoo.com/investors-react-tentative-us-debt-031630047.html)
 - May 28 - [New video shows South Carolina newlyweds driving before an alleged drunk driver crashed into them, police say](https://news.yahoo.com/video-shows-south-carolina-newlyweds-013015088.html)
 - May 28 - [Texas AG Ken Paxton’s Impeachment Riles Trump and His Minions](https://news.yahoo.com/texas-ag-ken-paxton-impeachment-235338611.html)
 - May 27 - [President of Belarus hospitalised after meeting with Putin](https://news.yahoo.com/president-belarus-hospitalised-meeting-putin-204642610.html)
 - May 27 - [Aliens 'have been on Earth a long time': Stanford Professor](https://news.yahoo.com/aliens-earth-long-time-stanford-193514809.html)
-- May 27 - [A TikToker says she confronted a man on a plane after she saw him call her a 'big Black woman' and complain about having to sit next to her in texts to friends](https://news.yahoo.com/tiktoker-says-she-confronted-man-184623321.html)
 <!-- feed end -->
