@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [An Atlanta man offered to give a couple a ride. They then robbed him at gunpoint](https://news.yahoo.com/atlanta-man-offered-couple-ride-201954537.html)
+- May 29 - [China rejects US request for a meeting between defense chiefs -WSJ](https://news.yahoo.com/china-rebuffs-us-request-meeting-203243783.html)
+- May 29 - [An Atlanta man offered to give a couple a ride. They then robbed him at gunpoint, police say](https://news.yahoo.com/atlanta-man-offered-couple-ride-201954537.html)
+- May 29 - [One of these Vietnam War POWs spent 10 months in a ‘tiger cage.’ What happened to the other was even worse](https://news.yahoo.com/one-vietnam-war-pows-spent-200632656.html)
 - May 29 - [Colorado teen flouts school policy, wears Mexican and US flag sash to graduation](https://news.yahoo.com/student-flouts-colorado-school-wears-190225394.html)
 - May 29 - [Sign using homophobic slur in front of Tallahassee business draws criticism](https://news.yahoo.com/sign-using-homophobic-slur-front-183532302.html)
-- May 29 - [Terrifying video shows a storm flooding decks and hallways of a Carnival Sunshine cruise ship leaving passengers seasick](https://news.yahoo.com/terrifying-video-shows-storm-flooding-181307767.html)
-- May 29 - [Natalee Holloway suspect beaten in Peruvian prison: Lawyer](https://news.yahoo.com/natalee-holloway-suspect-beaten-peruvian-175900919.html)
 <!-- feed end -->
