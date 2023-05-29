@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Ukraine aide proposes post-war demilitarised zone in Russia](https://news.yahoo.com/ukraine-aide-proposes-post-war-144158318.html)
-- May 29 - [What to do if you see an alligator and how to survive an attack, according to a wildlife expert who keeps pet gators](https://news.yahoo.com/see-alligator-survive-attack-according-134500572.html)
+- May 29 - [Former Canadian soldier extradited to Thailand over gang killing](https://news.yahoo.com/former-canadian-soldier-extradited-thailand-160032845.html)
+- May 29 - [Donald Trump Marks Memorial Day With Unhinged, All-Caps Rant](https://news.yahoo.com/donald-trump-marks-memorial-day-152303187.html)
+- May 29 - [Vatican chastises bishops who stoke division on social media](https://news.yahoo.com/vatican-chastises-bishops-stoke-division-150237360.html)
+- May 29 - [Hollywood’s top trainer on why any man can have A-list abs](https://news.yahoo.com/hollywood-top-trainer-why-man-130100341.html)
 - May 29 - [A Small Town’s Tragedy, Distorted by Trump’s Megaphone](https://news.yahoo.com/small-town-tragedy-distorted-trump-122314932.html)
-- May 29 - [Fox News Host's Wild Michelle Obama Claim Gets Immediately Shut Down](https://news.yahoo.com/fox-news-hosts-wild-michelle-120846589.html)
-- May 29 - [How a tech mogul’s murder exposed Silicon Valley’s underbelly of sex and drugs](https://finance.yahoo.com/news/tech-mogul-murder-exposed-silicon-110000367.html)
 <!-- feed end -->
