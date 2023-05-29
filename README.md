@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - May 29 - [China rejects US request for a meeting between defense chiefs -WSJ](https://news.yahoo.com/china-rebuffs-us-request-meeting-203243783.html)
 - May 29 - [An Atlanta man offered to give a couple a ride. They then robbed him at gunpoint, police say](https://news.yahoo.com/atlanta-man-offered-couple-ride-201954537.html)
 - May 29 - [One of these Vietnam War POWs spent 10 months in a ‘tiger cage.’ What happened to the other was even worse](https://news.yahoo.com/one-vietnam-war-pows-spent-200632656.html)
+- May 29 - [Libya court sentences 23 to death for Islamic State campaign](https://news.yahoo.com/libya-court-sentences-23-death-194616670.html)
 - May 29 - [Colorado teen flouts school policy, wears Mexican and US flag sash to graduation](https://news.yahoo.com/student-flouts-colorado-school-wears-190225394.html)
-- May 29 - [Sign using homophobic slur in front of Tallahassee business draws criticism](https://news.yahoo.com/sign-using-homophobic-slur-front-183532302.html)
 <!-- feed end -->
