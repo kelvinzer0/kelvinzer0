@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Nigeria's Tinubu sworn in as president](https://news.yahoo.com/nigerias-tinubu-sworn-president-134043408.html)
+- May 29 - [Ukraine aide proposes post-war demilitarised zone in Russia](https://news.yahoo.com/ukraine-aide-proposes-post-war-144158318.html)
+- May 29 - [What to do if you see an alligator and how to survive an attack, according to a wildlife expert who keeps pet gators](https://news.yahoo.com/see-alligator-survive-attack-according-134500572.html)
 - May 29 - [A Small Town’s Tragedy, Distorted by Trump’s Megaphone](https://news.yahoo.com/small-town-tragedy-distorted-trump-122314932.html)
 - May 29 - [Fox News Host's Wild Michelle Obama Claim Gets Immediately Shut Down](https://news.yahoo.com/fox-news-hosts-wild-michelle-120846589.html)
-- May 29 - [Russia attacks Khmelnytskyi Oblast and disables five aircraft](https://news.yahoo.com/russia-attacks-khmelnytskyi-oblast-disables-103600068.html)
-- May 29 - [Ex-RNC Chair Hits Republicans With A Harsh Truth About 2024](https://news.yahoo.com/ex-rnc-chair-hits-republicans-102843031.html)
+- May 29 - [How a tech mogul’s murder exposed Silicon Valley’s underbelly of sex and drugs](https://finance.yahoo.com/news/tech-mogul-murder-exposed-silicon-110000367.html)
 <!-- feed end -->
