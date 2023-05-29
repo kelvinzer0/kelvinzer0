@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Former Canadian soldier extradited to Thailand over gang killing](https://news.yahoo.com/former-canadian-soldier-extradited-thailand-160032845.html)
+- May 29 - [Uganda enacts harsh anti-gay law with death penalty](https://news.yahoo.com/uganda-enacts-harsh-anti-gay-163339330.html)
+- May 29 - [Rare creature – the only one of its kind – spotted wrestling in China, photos show](https://news.yahoo.com/rare-creature-only-one-kind-161611628.html)
 - May 29 - [Donald Trump Marks Memorial Day With Unhinged, All-Caps Rant](https://news.yahoo.com/donald-trump-marks-memorial-day-152303187.html)
+- May 29 - [Reliance's JioCinema breaks world record with free cricket streaming](https://news.yahoo.com/reliances-jiocinema-breaks-world-record-151402409.html)
 - May 29 - [Vatican chastises bishops who stoke division on social media](https://news.yahoo.com/vatican-chastises-bishops-stoke-division-150237360.html)
-- May 29 - [Hollywood’s top trainer on why any man can have A-list abs](https://news.yahoo.com/hollywood-top-trainer-why-man-130100341.html)
-- May 29 - [A Small Town’s Tragedy, Distorted by Trump’s Megaphone](https://news.yahoo.com/small-town-tragedy-distorted-trump-122314932.html)
 <!-- feed end -->
