@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 29 - [Zelenskiy says Kyiv drone attack largest since war began](https://news.yahoo.com/zelenskiy-says-kyiv-drone-attack-033052284.html)
+- May 29 - [China plans to land astronauts on moon before 2030, another step in what looks like a new space race](https://news.yahoo.com/china-plans-land-astronauts-moon-040459492.html)
 - May 29 - [Ancient toilets unearthed in Jerusalem reveal a debilitating and sometimes fatal disease](https://news.yahoo.com/ancient-toilets-unearthed-jerusalem-reveal-230118892.html)
 - May 29 - [North Korea notifies neighboring Japan it plans to launch satellite in coming days](https://news.yahoo.com/north-korea-tells-neighboring-japan-005019270.html)
 - May 29 - [Poor GenXers without dependents targeted by US debt ceiling work requirements](https://news.yahoo.com/poor-genxers-without-dependents-targeted-004329670.html)
