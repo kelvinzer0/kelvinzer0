@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Uganda enacts harsh anti-gay law with death penalty](https://news.yahoo.com/uganda-enacts-harsh-anti-gay-163339330.html)
+- May 29 - [Jeff Bezos, The Wealthiest Groom Ever, Prepares For A Massive Prenup To Protect His $138 Billion In His Second Marriage](https://finance.yahoo.com/news/jeff-bezos-wealthiest-groom-ever-173038140.html)
+- May 29 - [Ex-El Salvador President Mauricio Funes sentenced to 14 years for negotiating with gangs](https://news.yahoo.com/ex-el-salvador-president-mauricio-171841824.html)
+- May 29 - [Nun whose body shows little decay since 2019 death draws hundreds to rural Missouri](https://news.yahoo.com/nun-whose-body-shows-little-171758027.html)
+- May 29 - [Mount Everest record-breaker sees 'no future' in Nepal](https://news.yahoo.com/mount-everest-record-breaker-sees-171634549.html)
 - May 29 - [Rare creature – the only one of its kind – spotted wrestling in China, photos show](https://news.yahoo.com/rare-creature-only-one-kind-161611628.html)
-- May 29 - [Donald Trump Marks Memorial Day With Unhinged, All-Caps Rant](https://news.yahoo.com/donald-trump-marks-memorial-day-152303187.html)
-- May 29 - [Reliance's JioCinema breaks world record with free cricket streaming](https://news.yahoo.com/reliances-jiocinema-breaks-world-record-151402409.html)
-- May 29 - [Vatican chastises bishops who stoke division on social media](https://news.yahoo.com/vatican-chastises-bishops-stoke-division-150237360.html)
 <!-- feed end -->
