@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
-- May 29 - [S. Korea aims to become world's largest arms dealer](https://news.yahoo.com/korea-aims-become-worlds-largest-085231065.html)
+- May 29 - [Donald Trump Jr. And Kimberly Guilfoyle Launch Gross New Attacks On Ron DeSantis](https://news.yahoo.com/donald-trump-jr-kimberly-guilfoyle-093430128.html)
+- May 29 - [Explosions rock Kyiv as Russia launches new attack - Air Force](https://news.yahoo.com/explosions-rock-kyiv-air-raid-085050332.html)
 - May 29 - [This frequent flyer who's been 'skiplagging' for a decade says she has 'no remorse and no angst'](https://news.yahoo.com/frequent-flyer-whos-skiplagging-decade-083000703.html)
+- May 29 - [China Might Have 65 Million COVID Cases a Week by June. How Worried Should the World Be?](https://news.yahoo.com/china-might-65-million-covid-071836521.html)
 - May 29 - [Historic acquittal in Louisiana fuels fight to review 'Jim Crow' verdicts](https://news.yahoo.com/historic-acquittal-louisiana-fuels-fight-064526666.html)
-- May 29 - [Davenport, Iowa apartment building partially collapses](https://news.yahoo.com/davenport-iowa-apartment-building-partially-051003892.html)
-- May 29 - [China plans to land astronauts on moon before 2030, another step in what looks like a new space race](https://news.yahoo.com/china-plans-land-astronauts-moon-040459492.html)
 <!-- feed end -->
