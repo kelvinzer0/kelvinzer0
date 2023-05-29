@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 29 - [A Small Town’s Tragedy, Distorted by Trump’s Megaphone](https://news.yahoo.com/small-town-tragedy-distorted-trump-122314932.html)
 - May 29 - [Fox News Host's Wild Michelle Obama Claim Gets Immediately Shut Down](https://news.yahoo.com/fox-news-hosts-wild-michelle-120846589.html)
+- May 29 - [Reporter: Owners were under city orders to make updates to building before collapse](https://news.yahoo.com/reporter-owners-were-under-city-104422397.html)
 - May 29 - [Russia attacks Khmelnytskyi Oblast and disables five aircraft](https://news.yahoo.com/russia-attacks-khmelnytskyi-oblast-disables-103600068.html)
 - May 29 - [Ex-RNC Chair Hits Republicans With A Harsh Truth About 2024](https://news.yahoo.com/ex-rnc-chair-hits-republicans-102843031.html)
-- May 29 - [Russia issues arrest warrant for Lindsey Graham over Ukraine comments](https://news.yahoo.com/russia-issues-arrest-warrant-lindsey-101413974.html)
-- May 29 - [The Saudi crown prince revealed his latest vision for Neom, the $1 trillion 'utopian' megacity that critics fear will become a dystopian nightmare](https://news.yahoo.com/saudi-crown-prince-revealed-latest-094300495.html)
 <!-- feed end -->
