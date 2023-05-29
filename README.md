@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's Finance News:
 
 <!-- feed start -->
+- May 29 - [Nova Scotia wildfires trigger state of emergency](https://news.yahoo.com/nova-scotia-wildfires-trigger-state-082857572.html)
+- May 29 - [Malaysia detains Chinese barge on suspicion of looting WWII British warship wrecks](https://news.yahoo.com/malaysia-detains-chinese-barge-suspicion-081451717.html)
 - May 29 - [Historic acquittal in Louisiana fuels fight to review 'Jim Crow' verdicts](https://news.yahoo.com/historic-acquittal-louisiana-fuels-fight-064526666.html)
 - May 29 - [Davenport, Iowa apartment building partially collapses](https://news.yahoo.com/davenport-iowa-apartment-building-partially-051003892.html)
-- May 29 - [China plans to land astronauts on moon before 2030, another step in what looks like a new space race](https://news.yahoo.com/china-plans-land-astronauts-moon-040459492.html)
 - May 29 - [Influencer dies after live-streaming himself drinking bottles of Chinese spirit Baijiu](https://news.yahoo.com/influencer-dies-live-streaming-himself-070306274.html)
-- May 29 - [North Korea notifies neighboring Japan it plans to launch satellite in coming days](https://news.yahoo.com/north-korea-tells-neighboring-japan-005019270.html)
 <!-- feed end -->
