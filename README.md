@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 30 - [An Iranian model wore a black dress with a neckline that looks like a noose on the Cannes red carpet in protest against executions in her home country](https://news.yahoo.com/iranian-model-wore-black-dress-085240700.html)
 - May 30 - [Ex-Trump Official Makes Stark Prediction About Trump 2024](https://news.yahoo.com/ex-trump-official-makes-stark-070810801.html)
 - May 30 - [A 24-year-old stock trader who made over $8 million in 2 years shares the 4 indicators he uses as his guides to buy and sell](https://finance.yahoo.com/news/24-old-stock-trader-made-063529644.html)
 - May 30 - [Rep. Marjorie Taylor Greene's Memorial Day Message Has A Massive Mistake](https://news.yahoo.com/rep-marjorie-taylor-greenes-memorial-051755739.html)
 - May 30 - [A Maine state trooper shot at a truck approaching the US-Canada border with a sign indicating there was an explosive on board, police say](https://news.yahoo.com/maine-state-trooper-shot-truck-000942465.html)
-- May 30 - [UPDATE 4-Ukraine launches biggest drone attack on Moscow, Russia says](https://finance.yahoo.com/news/1-drones-hit-buildings-moscow-050504920.html)
 <!-- feed end -->
