@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 30 - [Beyond 'Quiet Quitting': Another Workplace Trend Is Making Employers Even Angrier](https://www.thestreet.com/employment/how-many-people-work-side-hustles?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - May 30 - [Turkey wants action from NATO hopeful Sweden over flag incident](https://news.yahoo.com/turkey-wants-action-nato-hopeful-123009040.html)
 - May 30 - [Deputy accused of being in 'Executioners' gang reveals tattoo in court, names names](https://news.yahoo.com/deputy-accused-being-executioners-gang-120050654.html)
+- May 30 - [Venice authorities discover why canal turned fluorescent green](https://news.yahoo.com/venice-authorities-discover-why-canal-113426304.html)
 - May 30 - [No kidding: California overtime law threatens use of grazing goats to prevent wildfires](https://news.yahoo.com/no-kidding-california-overtime-law-101012428.html)
-- May 30 - [Your Roth 401(k) Is About to Become a Much Better Retirement Plan](https://www.fool.com/retirement/2023/05/30/roth-401k-become-a-much-better-retirement-plan/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- May 30 - [An Iranian model wore a black dress with a neckline that looks like a noose on the Cannes red carpet in protest against executions in her home country](https://news.yahoo.com/iranian-model-wore-black-dress-085240700.html)
 <!-- feed end -->
