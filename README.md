@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [China rejects US request for a meeting between defense chiefs -WSJ](https://news.yahoo.com/china-rebuffs-us-request-meeting-203243783.html)
-- May 29 - [An Atlanta man offered to give a couple a ride. They then robbed him at gunpoint, police say](https://news.yahoo.com/atlanta-man-offered-couple-ride-201954537.html)
-- May 29 - [One of these Vietnam War POWs spent 10 months in a ‘tiger cage.’ What happened to the other was even worse](https://news.yahoo.com/one-vietnam-war-pows-spent-200632656.html)
-- May 29 - [Libya court sentences 23 to death for Islamic State campaign](https://news.yahoo.com/libya-court-sentences-23-death-194616670.html)
-- May 29 - [Colorado teen flouts school policy, wears Mexican and US flag sash to graduation](https://news.yahoo.com/student-flouts-colorado-school-wears-190225394.html)
+- May 30 - [1 dead, 4 missing after luxury fishing charter boat sinks off the coast of Alaska: Coast Guard](https://news.yahoo.com/1-dead-4-missing-luxury-235239603.html)
+- May 30 - [North Carolina road named scariest drive in America](https://news.yahoo.com/north-carolina-road-named-scariest-001753099.html)
+- May 29 - [Trump escalates attacks on judges amid increasing legal scrutiny](https://news.yahoo.com/trump-escalates-attacks-judges-amid-235151425.html)
+- May 29 - [Biden laughed when asked about Ron DeSantis claiming he may pardon Trump if elected president](https://news.yahoo.com/biden-laughed-asked-ron-desantis-234753851.html)
+- May 29 - [The harness-wearing beluga whale believed to be a Russian spy has popped up in Sweden, puzzling scientists who noted he's traveling 'very quickly away from his natural environment'](https://news.yahoo.com/harness-wearing-beluga-whale-believed-224234200.html)
 <!-- feed end -->
