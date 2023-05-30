@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Furious man smashes beauty pageant winner's crown after his wife comes second](https://news.yahoo.com/furious-man-smashes-beauty-pageant-161528979.html)
-- May 30 - [Can you spot the other Yellowstone critter in this photo?](https://sports.yahoo.com/spot-other-yellowstone-critter-photo-154604041.html)
-- May 30 - [Woman refusing to get off phone on plane spits on passenger, slides down exit, feds say](https://news.yahoo.com/woman-refusing-off-phone-plane-153331042.html)
-- May 30 - [Alligator snapping turtles found in an unexpected part of Florida, baffling experts](https://news.yahoo.com/alligator-snapping-turtles-found-unexpected-145646291.html)
-- May 30 - [Rivian R1T Owner's $42,000 Repair Bill — The Shocking Cost Of A Minor Fender Bender On A $73,000 Electric Truck](https://finance.yahoo.com/news/rivian-r1t-owners-42-000-143950242.html)
+- May 30 - [What prison life will look like for Theranos founder Elizabeth Holmes](https://finance.yahoo.com/news/what-prison-life-will-look-like-for-theranos-founder-elizabeth-holmes-124516798.html)
+- May 30 - [Elizabeth Holmes Starts 11-Year Prison Sentence For Fraud](https://news.yahoo.com/elizabeth-holmes-starts-11-prison-174147304.html)
+- May 30 - [At 34, Jon has incurable bowel cancer – all because the NHS turned into a Covid-only service](https://news.yahoo.com/34-jon-incurable-bowel-cancer-173257061.html)
+- May 30 - [Woman who threatened Nancy Pelosi with hanging during Capitol riot gets over 2 years in prison](https://news.yahoo.com/woman-threatened-nancy-pelosi-hanging-171753081.html)
+- May 30 - [Trump pledges to end birthright citizenship on first day in office](https://news.yahoo.com/trump-pledges-end-birthright-citizenship-171415712.html)
 <!-- feed end -->
