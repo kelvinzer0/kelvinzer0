@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Putin slams Ukraine as attack drones hit Moscow high-rises](https://news.yahoo.com/putin-slams-ukraine-attack-drones-143825799.html)
-- May 30 - [2 Italian agents, 1 ex-Israeli agent among 4 dead in boat that capsized in storm on Italian lake](https://news.yahoo.com/2-italian-agents-1-ex-142957136.html)
-- May 30 - [They can be the size of great white sharks and they swim in Puget Sound. Don’t catch them](https://news.yahoo.com/size-great-white-sharks-swim-140000665.html)
-- May 30 - [Lurking alligator traps swimmers on platform in middle of Texas lake, videos show](https://news.yahoo.com/lurking-alligator-traps-swimmers-platform-134435130.html)
-- May 30 - [Beyond 'Quiet Quitting': Another Workplace Trend Is Making Employers Even Angrier](https://www.thestreet.com/employment/how-many-people-work-side-hustles?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 30 - [One justice explained absence from case. Another didn't. Ethics questions vexing Supreme Court](https://news.yahoo.com/one-justice-explained-absence-case-155226155.html)
+- May 30 - [Woman refusing to get off phone on plane spits on passenger, slides down exit, feds say](https://news.yahoo.com/woman-refusing-off-phone-plane-153331042.html)
+- May 30 - [Woman accused of pointing gun inside Cracker Barrel, firing it inside Waffle House off I-20](https://news.yahoo.com/woman-accused-pointing-gun-inside-151956294.html)
+- May 30 - [Alligator snapping turtles found in an unexpected part of Florida, baffling experts](https://news.yahoo.com/alligator-snapping-turtles-found-unexpected-145646291.html)
+- May 30 - [ESPN Anchor and Vaccine Skeptic Sage Steele’s Free Speech Battle With Disney Heats Up](https://news.yahoo.com/espn-anchor-vaccine-skeptic-sage-144618892.html)
 <!-- feed end -->
