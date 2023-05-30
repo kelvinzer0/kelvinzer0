@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [China Intercepts US Aircraft Over South China Sea](https://finance.yahoo.com/video/china-intercepts-us-aircraft-over-204610169.html)
-- May 30 - [Kari Lake moves on ... to the 2020 election](https://news.yahoo.com/kari-lake-moves-2020-election-202424037.html)
+- May 30 - [Bear is swept into raging rapids ‘no human could have survived,’ California video shows](https://news.yahoo.com/bear-swept-raging-rapids-no-205839118.html)
+- May 30 - [Video shows cockpit of US reconnaissance plane rattling as Chinese fighter jet cuts in front of it](https://news.yahoo.com/video-shows-cockpit-us-reconnaissance-205100382.html)
 - May 30 - [Manson follower Leslie Van Houten should be paroled, California appeals court rules](https://news.yahoo.com/manson-follower-leslie-van-houten-201409343.html)
 - May 30 - [Chinese jet carried out 'aggressive' maneuver near US military plane, Pentagon says](https://news.yahoo.com/chinese-jet-carried-aggressive-maneuver-193642902.html)
 - May 30 - [Trump Promises to Violate 14th Amendment ‘On Day One’](https://news.yahoo.com/trump-promises-violate-14th-amendment-193116065.html)
