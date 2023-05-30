@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Elizabeth Holmes begins 11-year prison sentence](https://news.yahoo.com/elizabeth-holmes-begins-11-prison-183441600.html)
+- May 30 - [Nvidia crosses $1 trillion market cap: Can gains last?](https://finance.yahoo.com/video/nvidia-crosses-1-trillion-market-193710045.html)
+- May 30 - [Chick-fil-A Is Latest Target of the Bud Light Boycott Movement](https://www.thestreet.com/restaurants/chick-fil-a-latest-target-of-bud-light-boycott?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 30 - [DeSantis Puts Walt Disney In An Impossible Situation](https://www.thestreet.com/travel/desantis-battle-hurts-walt-disney-in-a-key-area?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 30 - [Utah Republican Chris Stewart plans to resign from House](https://news.yahoo.com/utah-republican-chris-stewart-plans-184245964.html)
 - May 30 - [Marines and group of teens brawl on California pier over Memorial Day weekend, officials say](https://news.yahoo.com/marines-group-teens-brawl-california-182920624.html)
-- May 30 - [At 34, Jon has incurable bowel cancer – all because the NHS turned into a Covid-only service](https://news.yahoo.com/34-jon-incurable-bowel-cancer-173257061.html)
-- May 30 - [Woman who threatened Nancy Pelosi with hanging during Capitol riot gets over 2 years in prison](https://news.yahoo.com/woman-threatened-nancy-pelosi-hanging-171753081.html)
-- May 30 - [Trump pledges to end birthright citizenship on first day in office](https://news.yahoo.com/trump-pledges-end-birthright-citizenship-171415712.html)
 <!-- feed end -->
