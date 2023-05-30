@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 30 - [A 24-year-old stock trader who made over $8 million in 2 years shares the 4 indicators he uses as his guides to buy and sell](https://finance.yahoo.com/news/24-old-stock-trader-made-063529644.html)
 - May 30 - [Rep. Marjorie Taylor Greene's Memorial Day Message Has A Massive Mistake](https://news.yahoo.com/rep-marjorie-taylor-greenes-memorial-051755739.html)
+- May 30 - [A Maine state trooper shot at a truck approaching the US-Canada border with a sign indicating there was an explosive on board, police say](https://news.yahoo.com/maine-state-trooper-shot-truck-000942465.html)
 - May 30 - [UPDATE 1-Drones hit buildings in Moscow, several downed on approach to capital - officials](https://finance.yahoo.com/news/1-drones-hit-buildings-moscow-050504920.html)
-- May 30 - [Drones hit buildings in Moscow, several downed on approach to capital - officials](https://news.yahoo.com/drones-hit-several-buildings-moscow-045228317.html)
 - May 30 - [NBA star Giannis Antetokounmpo spread his money across half a dozen bank accounts as a rookie because of the FDIC's $250,000 limit. Billionaire team owner Marc Lasry told him to invest instead.](https://finance.yahoo.com/news/nba-star-giannis-antetokounmpo-kept-190704594.html)
-- May 30 - [Benedict Cumberbatch and his family were threatened by an angry chef wielding a fish knife, who tried to attack their home and rampaged around their garden: report](https://news.yahoo.com/benedict-cumberbatch-family-were-threatened-041623440.html)
 <!-- feed end -->
