@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 31 - [Brevard families leaving Florida: Why they say Sunshine State no longer feels like home](https://news.yahoo.com/brevard-families-leaving-florida-why-090255742.html)
 - May 31 - [GOP Rep Whines About 99-Page Bill, Gets Schooled With Simple Math](https://news.yahoo.com/gop-rep-whines-99-page-084151354.html)
-- May 31 - [Leaked Audio From a Ron DeSantis Donor Event Is Really Bad News for His Campaign](https://news.yahoo.com/leaked-audio-ron-desantis-donor-081806509.html)
 - May 31 - [Everest hiker sheds light on trash left at camps](https://news.yahoo.com/everest-hiker-sheds-light-trash-071721959.html)
+- May 31 - [Nicolle Wallace Literally Laughs Out Loud At Ron DeSantis' Bizarre Promise](https://news.yahoo.com/nicolle-wallace-literally-laughs-loud-050039577.html)
 - May 31 - [China Is Drilling a 10,000-Meter-Deep Hole Into Earth’s Crust](https://news.yahoo.com/china-drilling-10-000-meter-033413032.html)
 <!-- feed end -->
