@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [ISMC's India chip plan stalls after Tower-Intel deal in setback to Modi](https://finance.yahoo.com/news/exclusive-india-chip-plan-stalls-183312155.html)
+- May 31 - [Biden: 'God Willing,' House Passes Debt Bill Wednesday](https://finance.yahoo.com/video/biden-god-willing-house-passes-182022223.html)
+- May 31 - [Bud Light Announces New Initiative With LGBTQ+ Business Owners Despite Boycott, Loss of Sales](https://www.thestreet.com/retailers/bud-light-announces-new-initiative-with-lgbtq-business-owners-despite-boycott-loss-of-sales?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - May 31 - [Dashcam captures Russian missile section falling in traffic on Kyiv road](https://www.autoblog.com/2023/05/31/dashcam-captures-russian-missile-section-falling-in-traffic-on-kyiv-road/)
 - May 31 - [Costco Gives Members a Surprise Gift](https://www.thestreet.com/retailers/costco-gives-members-a-surprise-gift-membership-fees?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 31 - [16-year-old died ‘car surfing’ in Colorado — and now cops warn about ‘deadly trend’](https://news.yahoo.com/16-old-died-car-surfing-151003762.html)
-- May 31 - [After Calling Joe Biden Senile, Republicans Complain He Outsmarted Them](https://news.yahoo.com/calling-joe-biden-senile-republicans-145600231.html)
-- May 31 - [Female middle school monitor had sex with teen who hit her up for vapes, cash: police](https://news.yahoo.com/female-middle-school-monitor-had-143624447.html)
 <!-- feed end -->
