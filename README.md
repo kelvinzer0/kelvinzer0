@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 30 - [Video shows cockpit of US reconnaissance plane rattling as Chinese fighter jet cuts in front of it](https://news.yahoo.com/video-shows-cockpit-us-reconnaissance-205100382.html)
-- May 30 - [Gaetz: Passing debt deal without Republican majority would ‘likely trigger an immediate motion’ to oust McCarthy](https://news.yahoo.com/gaetz-passing-debt-deal-without-215707529.html)
+- May 30 - [Ex-Russian prime minister breaks down how Putin is demonstrating nervousness](https://news.yahoo.com/ex-putin-ally-breaks-down-005542016.html)
+- May 30 - [Raccoon politely orders a doughnut from a Dunkin’ drive-thru ‘like a regular’](https://news.yahoo.com/raccoon-politely-orders-doughnut-dunkin-232537187.html)
+- May 30 - [Chinese tech entrepreneurs keen to 'de-China' as tensions with US soar](https://uk.news.yahoo.com/chinese-tech-entrepreneurs-keen-china-230322640.html)
 - May 30 - [3 Marines attacked by 30 teens, young adults in San Clemente over Memorial Day weekend](https://news.yahoo.com/3-marines-attacked-30-teens-214900641.html)
-- May 30 - [Hospitals across the U.S. have closed their maternity wards. Here’s why experts say this is 'a threat to both mom and baby'](https://news.yahoo.com/hospital-maternity-wards-closing-pregnant-213009270.html)
-- May 30 - [Woman driving cross country with boyfriend hasn’t been heard from in weeks, TN cops say](https://news.yahoo.com/woman-driving-cross-country-boyfriend-212459545.html)
+- May 30 - [The true scale of Russian combat losses](https://news.yahoo.com/true-scale-russian-combat-losses-213300101.html)
 <!-- feed end -->
