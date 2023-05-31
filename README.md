@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [Police officer who arrested man for sitting on Hastings bench naked reported to his own force](https://news.yahoo.com/police-officer-arrested-man-sitting-163824718.html)
+- May 31 - [Costco Gives Members a Surprise Gift](https://www.thestreet.com/retailers/costco-gives-members-a-surprise-gift-membership-fees?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 31 - [The DOJ Has Questions About Trump Firing an Election Security Expert Days After the Election](https://news.yahoo.com/doj-questions-trump-firing-election-150302928.html)
 - May 31 - [Boomers 'never had to fight for jobs': This college student on TikTok says older generations 'can't conceptualize' inflation struggles — and the comments are in full support](https://finance.yahoo.com/news/boomers-cant-conceptualize-college-student-120000468.html)
-- May 31 - [Nepali sherpa saves Malaysian climber in rare Everest 'death zone' rescue](https://news.yahoo.com/nepali-sherpa-saves-malaysian-climber-124247278.html)
-- May 31 - [Russia may be devoured by its neighbours](https://news.yahoo.com/russia-may-devoured-neighbours-122811595.html)
-- May 31 - [China responds to US complaint over plane intercept with demand for end to surveillance flights](https://news.yahoo.com/china-responds-us-complaint-over-111424917.html)
-- May 31 - [Russia builds gigantic facilities for sorting occupiers' corpses – Ukraine's Defence Intelligence](https://news.yahoo.com/russia-builds-gigantic-facilities-sorting-102900309.html)
+- May 31 - [America’s national beer could soon be Mexican as Memorial Day weekend sales drop plunges Bud Light further into crisis](https://finance.yahoo.com/news/america-national-beer-could-soon-124430485.html)
 <!-- feed end -->
