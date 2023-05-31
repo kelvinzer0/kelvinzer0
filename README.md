@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [Nicolle Wallace Literally Laughs Out Loud At Ron DeSantis' Bizarre Promise](https://news.yahoo.com/nicolle-wallace-literally-laughs-loud-050039577.html)
 - May 31 - [China Is Drilling a 10,000-Meter Deep Hole Into Earth’s Crust](https://news.yahoo.com/china-drilling-10-000-meter-033413032.html)
 - May 31 - [Trump slams his former press secretary Kayleigh McEnany](https://news.yahoo.com/trump-slams-former-press-secretary-023824500.html)
 - May 31 - [Donald Trump’s legal team and Manhattan prosecutors spar over where he will stand trial](https://news.yahoo.com/manhattan-prosecutors-fight-keep-donald-003037664.html)
 - May 31 - [Senior US lawmaker wants change from Turkey before F-16 sale approval](https://news.yahoo.com/senior-us-lawmaker-wants-change-002639854.html)
-- May 31 - [Tennessee woman found in California after violent cross-country road trip caught on cam](https://news.yahoo.com/tennessee-woman-found-california-violent-000425541.html)
 <!-- feed end -->
