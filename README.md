@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Police officer who arrested man for sitting on Hastings bench naked reported to his own force](https://news.yahoo.com/police-officer-arrested-man-sitting-163824718.html)
+- May 31 - [Dashcam captures Russian missile section falling in traffic on Kyiv road](https://www.autoblog.com/2023/05/31/dashcam-captures-russian-missile-section-falling-in-traffic-on-kyiv-road/)
 - May 31 - [Costco Gives Members a Surprise Gift](https://www.thestreet.com/retailers/costco-gives-members-a-surprise-gift-membership-fees?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- May 31 - [The DOJ Has Questions About Trump Firing an Election Security Expert Days After the Election](https://news.yahoo.com/doj-questions-trump-firing-election-150302928.html)
-- May 31 - [Boomers 'never had to fight for jobs': This college student on TikTok says older generations 'can't conceptualize' inflation struggles — and the comments are in full support](https://finance.yahoo.com/news/boomers-cant-conceptualize-college-student-120000468.html)
-- May 31 - [America’s national beer could soon be Mexican as Memorial Day weekend sales drop plunges Bud Light further into crisis](https://finance.yahoo.com/news/america-national-beer-could-soon-124430485.html)
+- May 31 - [16-year-old died ‘car surfing’ in Colorado — and now cops warn about ‘deadly trend’](https://news.yahoo.com/16-old-died-car-surfing-151003762.html)
+- May 31 - [After Calling Joe Biden Senile, Republicans Complain He Outsmarted Them](https://news.yahoo.com/calling-joe-biden-senile-republicans-145600231.html)
+- May 31 - [Female middle school monitor had sex with teen who hit her up for vapes, cash: police](https://news.yahoo.com/female-middle-school-monitor-had-143624447.html)
 <!-- feed end -->
