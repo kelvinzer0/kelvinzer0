@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Actor Danny Masterson Found Guilty Of Raping 2 Women](https://news.yahoo.com/actor-danny-masterson-found-guilty-205915722.html)
-- May 31 - [Trump captured on tape acknowledging he kept a classified document on Iran -CNN](https://news.yahoo.com/trump-captured-tape-acknowledging-kept-203042383.html)
-- May 31 - [Bernie Sanders vows to vote against Biden and McCarthy's 'totally unnecessary' debt-ceiling deal, saying that the best thing about the bill is 'it could have been much worse'](https://news.yahoo.com/bernie-sanders-vows-vote-against-194918134.html)
-- May 31 - [Nepali sherpa hauls climber from Everest 'death zone'](https://news.yahoo.com/nepali-sherpa-hauls-climber-everest-200917956.html)
-- May 31 - [Fairy tale castle in Scotland can be yours for $37,000. But there’s a pricey catch](https://news.yahoo.com/fairy-tale-castle-scotland-yours-195750352.html)
+- May 31 - [Wall St falls as labor data spurs rate hike jitters](https://news.yahoo.com/wall-st-falls-labor-data-223104869.html)
+- May 31 - [James Comer Rejects FBI’s Offer To Show Him Documents He's Requesting In Biden Probe](https://news.yahoo.com/james-comer-rejects-fbi-offer-221719251.html)
+- May 31 - [Democratic Sen. Joe Manchin says he will vote with Republicans to overturn Biden's student-debt relief plans, saying it 'forces hard-working taxpayers who already paid off their loans' to 'shoulder the cost'](https://news.yahoo.com/democratic-sen-joe-manchin-says-220247640.html)
+- May 31 - [What to do if a rattlesnake bites you and you don’t have cell service on a California hike](https://news.yahoo.com/rattlesnake-bites-don-t-cell-214400010.html)
+- May 31 - [Daymond John seeks temporary restraining order against former 'Shark Tank' contestants](https://news.yahoo.com/daymond-john-seeks-temporary-restraining-213242110.html)
 <!-- feed end -->
