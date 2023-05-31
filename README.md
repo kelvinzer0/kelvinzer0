@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 31 - [Nepali sherpa saves Malaysian climber in rare Everest 'death zone' rescue](https://news.yahoo.com/nepali-sherpa-saves-malaysian-climber-124247278.html)
 - May 31 - [Russia may be devoured by its neighbours](https://news.yahoo.com/russia-may-devoured-neighbours-122811595.html)
 - May 31 - [Jim Cramer predicted that an ‘economic wave’ will soon hit the US — and it will be 'fantastic for investors.' But is that a good sign or a bad sign for the stock market?](https://finance.yahoo.com/news/jim-cramer-just-predicted-economic-150000859.html)
 - May 31 - [China responds to US complaint over plane intercept with demand for end to surveillance flights](https://news.yahoo.com/china-responds-us-complaint-over-111424917.html)
-- May 31 - [Russia says it destroys Ukraine's 'last warship'](https://news.yahoo.com/russia-says-destroys-ukraines-last-110045500.html)
 - May 31 - [Female California probation officer has oral sex with teen inmate; county jail rocked by scandal: DA](https://news.yahoo.com/female-california-probation-officer-oral-100002075.html)
 <!-- feed end -->
