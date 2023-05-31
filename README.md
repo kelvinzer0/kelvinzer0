@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Brevard families leaving Florida: Why they say Sunshine State no longer feels like home](https://news.yahoo.com/brevard-families-leaving-florida-why-090255742.html)
-- May 31 - [GOP Rep Whines About 99-Page Bill, Gets Schooled With Simple Math](https://news.yahoo.com/gop-rep-whines-99-page-084151354.html)
-- May 31 - [Everest hiker sheds light on trash left at camps](https://news.yahoo.com/everest-hiker-sheds-light-trash-071721959.html)
-- May 31 - [Nicolle Wallace Literally Laughs Out Loud At Ron DeSantis' Bizarre Promise](https://news.yahoo.com/nicolle-wallace-literally-laughs-loud-050039577.html)
-- May 31 - [China Is Drilling a 10,000-Meter-Deep Hole Into Earth’s Crust](https://news.yahoo.com/china-drilling-10-000-meter-033413032.html)
+- May 31 - [Russia may be devoured by its neighbours](https://news.yahoo.com/russia-may-devoured-neighbours-122811595.html)
+- May 31 - [Jim Cramer predicted that an ‘economic wave’ will soon hit the US — and it will be 'fantastic for investors.' But is that a good sign or a bad sign for the stock market?](https://finance.yahoo.com/news/jim-cramer-just-predicted-economic-150000859.html)
+- May 31 - [China responds to US complaint over plane intercept with demand for end to surveillance flights](https://news.yahoo.com/china-responds-us-complaint-over-111424917.html)
+- May 31 - [Russia says it destroys Ukraine's 'last warship'](https://news.yahoo.com/russia-says-destroys-ukraines-last-110045500.html)
+- May 31 - [Female California probation officer has oral sex with teen inmate; county jail rocked by scandal: DA](https://news.yahoo.com/female-california-probation-officer-oral-100002075.html)
 <!-- feed end -->
