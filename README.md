@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [ISMC's India chip plan stalls after Tower-Intel deal in setback to Modi](https://finance.yahoo.com/news/exclusive-india-chip-plan-stalls-183312155.html)
-- May 31 - [Biden: 'God Willing,' House Passes Debt Bill Wednesday](https://finance.yahoo.com/video/biden-god-willing-house-passes-182022223.html)
+- May 31 - [Runner didn’t know he nabbed ‘invaluable’ find on CA beach — until turning on the news](https://news.yahoo.com/runner-didn-t-know-nabbed-192854916.html)
+- May 31 - [The Black teen in a viral bike feud with a white woman said she 'did something wrong' but got 'rewarded' with over $130,000 in donations](https://news.yahoo.com/black-teen-viral-bike-feud-183643683.html)
 - May 31 - [Bud Light Announces New Initiative With LGBTQ+ Business Owners Despite Boycott, Loss of Sales](https://www.thestreet.com/retailers/bud-light-announces-new-initiative-with-lgbtq-business-owners-despite-boycott-loss-of-sales?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - May 31 - [Dashcam captures Russian missile section falling in traffic on Kyiv road](https://www.autoblog.com/2023/05/31/dashcam-captures-russian-missile-section-falling-in-traffic-on-kyiv-road/)
-- May 31 - [Costco Gives Members a Surprise Gift](https://www.thestreet.com/retailers/costco-gives-members-a-surprise-gift-membership-fees?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- May 31 - [I Lost $400k of My Retirement Savings in a Roth 401k — and If You’re Not Careful, You Could Too](https://finance.yahoo.com/news/lost-400k-retirement-savings-roth-174006044.html)
 <!-- feed end -->
