@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [Man who vanished on snowy mountain after sending friend a clue found dead, sheriff says](https://news.yahoo.com/man-vanished-snowy-mountain-sending-213756712.html)
+- Jun 01 - [Trump reacts to Biden's Air Force Academy tumble](https://news.yahoo.com/trump-reacts-bidens-air-force-213619010.html)
+- Jun 01 - [Russian ultranationalists think Putin's response to the Moscow drone attacks and border raids shows he's 'out of touch with reality'](https://news.yahoo.com/russian-ultranationalists-think-putins-response-204911995.html)
 - Jun 01 - [Florida Man Pointed Gun At Woman's Head After Her Friend Backed Into His Driveway: Sheriff](https://news.yahoo.com/florida-man-pointed-gun-womans-200431723.html)
-- Jun 01 - [There's More Bad News for Disgruntled Bud Light Consumers](https://www.thestreet.com/retailers/theres-more-bad-news-for-disgruntled-bud-light-consumers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jun 01 - [Walking this number of steps a day only a few days a week has major health benefits](https://news.yahoo.com/hit-step-goal-every-day-231144568.html)
-- Jun 01 - [President Biden trips and falls while handing out diplomas at Air Force Academy graduation](https://news.yahoo.com/president-biden-trips-falls-while-191354625.html)
-- Jun 01 - [Kari Lake's Choice Of Rally Music Has People Howling](https://news.yahoo.com/kari-lakes-choice-rally-music-191301989.html)
+- Jun 01 - [Here’s who’s getting kicked off of food stamps with the US debt ceiling deal](https://news.yahoo.com/getting-kicked-off-food-stamps-194500105.html)
 <!-- feed end -->
