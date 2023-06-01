@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 31 - [Wall St falls as labor data spurs rate hike jitters](https://news.yahoo.com/wall-st-falls-labor-data-223104869.html)
-- May 31 - [James Comer Rejects FBI’s Offer To Show Him Documents He's Requesting In Biden Probe](https://news.yahoo.com/james-comer-rejects-fbi-offer-221719251.html)
+- Jun 01 - [Tesla doubles discounts on Model 3 cars in US inventory](https://finance.yahoo.com/news/tesla-doubles-discounts-model-3-002409554.html)
+- May 31 - [Rand Paul to force Senate vote on potential cuts to Social Security, Medicare](https://news.yahoo.com/rand-paul-force-senate-vote-234331067.html)
+- May 31 - [Car launches into air after hitting tow truck ramp](https://news.yahoo.com/car-launches-air-hitting-tow-233630833.html)
 - May 31 - [Democratic Sen. Joe Manchin says he will vote with Republicans to overturn Biden's student-debt relief plans, saying it 'forces hard-working taxpayers who already paid off their loans' to 'shoulder the cost'](https://news.yahoo.com/democratic-sen-joe-manchin-says-220247640.html)
-- May 31 - [What to do if a rattlesnake bites you and you don’t have cell service on a California hike](https://news.yahoo.com/rattlesnake-bites-don-t-cell-214400010.html)
 - May 31 - [Daymond John seeks temporary restraining order against former 'Shark Tank' contestants](https://news.yahoo.com/daymond-john-seeks-temporary-restraining-213242110.html)
 <!-- feed end -->
