@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [President Biden trips and falls while handing out diplomas at Air Force Academy graduation](https://news.yahoo.com/president-biden-trips-falls-while-191354625.html)
+- Jun 01 - [Kari Lake's Choice Of Rally Music Has People Howling](https://news.yahoo.com/kari-lakes-choice-rally-music-191301989.html)
+- Jun 01 - [Biden trips and falls during graduation ceremony, recovers quickly](https://news.yahoo.com/biden-trips-falls-during-graduation-190259750.html)
 - Jun 01 - [Charges dropped against man who served 21 years in prison for deaths of 2 Michigan hunters](https://news.yahoo.com/charges-dropped-against-man-served-183025951.html)
-- Jun 01 - [Top Chinese scientist concedes that coronavirus may have leaked from Wuhan lab](https://news.yahoo.com/top-chinese-scientist-concedes-that-coronavirus-may-have-leaked-from-wuhan-lab-181714446.html)
-- Jun 01 - [Ford Motor Co sues Blue Cross Blue Shield in antitrust case over ‘astronomical’ profit](https://news.yahoo.com/ford-motor-co-sues-blue-180747033.html)
-- Jun 01 - [‘I’m going to drown!’ Cops watch as man drowns in Arizona lake, family says in lawsuit](https://news.yahoo.com/m-going-drown-cops-watch-180500058.html)
-- Jun 01 - [Trump pushes back on DeSantis argument about serving eight years in White House](https://news.yahoo.com/trump-pushes-back-desantis-argument-173851471.html)
+- Jun 01 - [Deputy sent them into horrific California murder scene. 12 years later, couple settles suit](https://news.yahoo.com/deputy-sent-them-horrific-california-182809302.html)
 <!-- feed end -->
