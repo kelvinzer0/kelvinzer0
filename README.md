@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [‘Astonishing’ creature burrows under canals and lagoons. It’s a new species, study says](https://news.yahoo.com/astonishing-creature-burrows-under-canals-221627428.html)
 - Jun 01 - [Man who vanished on snowy mountain after sending friend a clue found dead, sheriff says](https://news.yahoo.com/man-vanished-snowy-mountain-sending-213756712.html)
 - Jun 01 - [Trump reacts to Biden's Air Force Academy tumble](https://news.yahoo.com/trump-reacts-bidens-air-force-213619010.html)
+- Jun 01 - [An Asian American woman made a Hinge account, and here’s how it went: ‘It’s 2023. Filter out the colonizers girl’](https://news.yahoo.com/asian-american-woman-made-hinge-212307109.html)
 - Jun 01 - [Russian ultranationalists think Putin's response to the Moscow drone attacks and border raids shows he's 'out of touch with reality'](https://news.yahoo.com/russian-ultranationalists-think-putins-response-204911995.html)
-- Jun 01 - [Florida Man Pointed Gun At Woman's Head After Her Friend Backed Into His Driveway: Sheriff](https://news.yahoo.com/florida-man-pointed-gun-womans-200431723.html)
-- Jun 01 - [Here’s who’s getting kicked off of food stamps with the US debt ceiling deal](https://news.yahoo.com/getting-kicked-off-food-stamps-194500105.html)
 <!-- feed end -->
