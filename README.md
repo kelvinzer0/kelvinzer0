@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [Florida Man Pointed Gun At Woman's Head After Her Friend Backed Into His Driveway: Sheriff](https://news.yahoo.com/florida-man-pointed-gun-womans-200431723.html)
+- Jun 01 - [There's More Bad News for Disgruntled Bud Light Consumers](https://www.thestreet.com/retailers/theres-more-bad-news-for-disgruntled-bud-light-consumers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jun 01 - [Walking this number of steps a day only a few days a week has major health benefits](https://news.yahoo.com/hit-step-goal-every-day-231144568.html)
 - Jun 01 - [President Biden trips and falls while handing out diplomas at Air Force Academy graduation](https://news.yahoo.com/president-biden-trips-falls-while-191354625.html)
 - Jun 01 - [Kari Lake's Choice Of Rally Music Has People Howling](https://news.yahoo.com/kari-lakes-choice-rally-music-191301989.html)
-- Jun 01 - [Biden trips and falls during graduation ceremony, recovers quickly](https://news.yahoo.com/biden-trips-falls-during-graduation-190259750.html)
-- Jun 01 - [Charges dropped against man who served 21 years in prison for deaths of 2 Michigan hunters](https://news.yahoo.com/charges-dropped-against-man-served-183025951.html)
-- Jun 01 - [Deputy sent them into horrific California murder scene. 12 years later, couple settles suit](https://news.yahoo.com/deputy-sent-them-horrific-california-182809302.html)
 <!-- feed end -->
