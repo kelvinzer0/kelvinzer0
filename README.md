@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [Reports of bombshell Trump recording suggests prosecutors may have grounds to charge him under the Espionage Act](https://news.yahoo.com/reports-bombshell-trump-recording-suggests-023955614.html)
 - Jun 01 - [Aide fired by George Santos says he got his job after sending money to Republican's deputy](https://news.yahoo.com/aide-fired-george-santos-says-021749772.html)
 - Jun 01 - [Tesla doubles discounts on Model 3 cars in US inventory](https://finance.yahoo.com/news/tesla-doubles-discounts-model-3-002409554.html)
 - May 31 - [Rand Paul to force Senate vote on potential cuts to Social Security, Medicare](https://news.yahoo.com/rand-paul-force-senate-vote-234331067.html)
 - May 31 - [Car launches into air after hitting tow truck ramp](https://news.yahoo.com/car-launches-air-hitting-tow-233630833.html)
-- May 31 - [Democratic Sen. Joe Manchin says he will vote with Republicans to overturn Biden's student-debt relief plans, saying it 'forces hard-working taxpayers who already paid off their loans' to 'shoulder the cost'](https://news.yahoo.com/democratic-sen-joe-manchin-says-220247640.html)
 <!-- feed end -->
