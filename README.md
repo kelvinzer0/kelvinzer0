@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [Vera Putina, Georgian woman who claimed to be Vladimir Putin’s biological mother – obituary](https://news.yahoo.com/vera-putina-georgian-woman-claimed-134353809.html)
+- Jun 01 - [After 22 years in a coma, Israeli woman critically wounded in 2001 Jerusalem suicide bombing dies](https://news.yahoo.com/22-years-coma-israeli-woman-124330744.html)
+- Jun 01 - [Putin is terrified of being assassinated and is refusing to travel abroad after a drone attack near his luxury residence: reports](https://news.yahoo.com/putin-terrified-being-assassinated-refusing-123800360.html)
 - Jun 01 - [Rep. Lauren Boebert Reveals How She Really Feels When ‘Positive’ Voters Call Her Office](https://news.yahoo.com/rep-lauren-boebert-reveals-she-110626104.html)
 - Jun 01 - [Here's the annual income you need to fall in America's lower, middle, and upper class — plus 3 simple tips to pull yourself up the ladder](https://finance.yahoo.com/news/heres-net-worth-fall-americas-130000535.html)
-- Jun 01 - [After a year of fighting in Ukraine, the brutal logic behind Russia's 'human wave' attacks is becoming clear](https://news.yahoo.com/fighting-ukraine-brutal-logic-behind-105300254.html)
-- Jun 01 - [Dashcam footage shows the terrifying moment part of a missile narrowly misses a moving car in Kyiv](https://news.yahoo.com/dashcam-footage-shows-terrifying-moment-100522687.html)
-- Jun 01 - [Nearly 10K photos from Hunter Biden's laptop hit the web: 'Truth and transparency'](https://news.yahoo.com/nearly-10k-photos-hunter-bidens-085044028.html)
 <!-- feed end -->
