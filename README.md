@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Musk wraps up very quick, oddly quiet China visit](https://news.yahoo.com/musk-wraps-very-quick-oddly-094312893.html)
+- Jun 01 - [Rep. Lauren Boebert Reveals How She Really Feels When ‘Positive’ Voters Call Her Office](https://news.yahoo.com/rep-lauren-boebert-reveals-she-110626104.html)
+- Jun 01 - [After a year of fighting in Ukraine, the brutal logic behind Russia's 'human wave' attacks is becoming clear](https://news.yahoo.com/fighting-ukraine-brutal-logic-behind-105300254.html)
+- Jun 01 - [Dashcam footage shows the terrifying moment part of a missile narrowly misses a moving car in Kyiv](https://news.yahoo.com/dashcam-footage-shows-terrifying-moment-100522687.html)
+- Jun 01 - [Nearly 10K photos from Hunter Biden's laptop hit the web: 'Truth and transparency'](https://news.yahoo.com/nearly-10k-photos-hunter-bidens-085044028.html)
 - Jun 01 - [Republican Senator Makes Baffling Claim About Reality During Bizarre Rant](https://news.yahoo.com/republican-senator-makes-baffling-claim-063946490.html)
-- Jun 01 - [Fox News' Juan Williams Bursts Out Laughing Over Donald Trump Boast](https://news.yahoo.com/fox-news-juan-williams-bursts-061759195.html)
-- Jun 01 - [Jordan's royal wedding day gets underway with surprise arrival of Britain's William and Kate](https://news.yahoo.com/jordans-future-king-saudi-bride-052959431.html)
-- Jun 01 - [Reports of bombshell Trump recording suggests prosecutors may have grounds to charge him under the Espionage Act](https://news.yahoo.com/reports-bombshell-trump-recording-suggests-023955614.html)
 <!-- feed end -->
