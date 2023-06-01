@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [Musk wraps up very quick, oddly quiet China visit](https://news.yahoo.com/musk-wraps-very-quick-oddly-094312893.html)
 - Jun 01 - [Republican Senator Makes Baffling Claim About Reality During Bizarre Rant](https://news.yahoo.com/republican-senator-makes-baffling-claim-063946490.html)
 - Jun 01 - [Fox News' Juan Williams Bursts Out Laughing Over Donald Trump Boast](https://news.yahoo.com/fox-news-juan-williams-bursts-061759195.html)
-- Jun 01 - [Actor Danny Masterson found guilty of rape](https://news.yahoo.com/actor-danny-masterson-found-guilty-061439441.html)
 - Jun 01 - [Jordan's royal wedding day gets underway with surprise arrival of Britain's William and Kate](https://news.yahoo.com/jordans-future-king-saudi-bride-052959431.html)
 - Jun 01 - [Reports of bombshell Trump recording suggests prosecutors may have grounds to charge him under the Espionage Act](https://news.yahoo.com/reports-bombshell-trump-recording-suggests-023955614.html)
 <!-- feed end -->
