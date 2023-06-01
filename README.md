@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [JPMorgan Turned a Little More Cautious on China Near Term: Liu](https://finance.yahoo.com/video/jpmorgan-turned-little-more-cautious-054508937.html)
+- Jun 01 - [Actor Danny Masterson found guilty of rape](https://news.yahoo.com/actor-danny-masterson-found-guilty-061439441.html)
 - Jun 01 - [The Kremlin wants everyone to chill out after firebrand nationalists and military honchos called for martial law in response to drone attacks on Moscow](https://news.yahoo.com/kremlin-wants-everyone-chill-firebrand-043515416.html)
 - Jun 01 - [Reports of bombshell Trump recording suggests prosecutors may have grounds to charge him under the Espionage Act](https://news.yahoo.com/reports-bombshell-trump-recording-suggests-023955614.html)
 - Jun 01 - [Aide fired by George Santos says he got his job after sending money to Republican's deputy](https://news.yahoo.com/aide-fired-george-santos-says-021749772.html)
