@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Dashcam catches missile barely missing traffic in Kyiv](https://news.yahoo.com/dashcam-catches-missile-barely-missing-074416187.html)
+- Jun 01 - [Republican Senator Makes Baffling Claim About Reality During Bizarre Rant](https://news.yahoo.com/republican-senator-makes-baffling-claim-063946490.html)
 - Jun 01 - [Fox News' Juan Williams Bursts Out Laughing Over Donald Trump Boast](https://news.yahoo.com/fox-news-juan-williams-bursts-061759195.html)
+- Jun 01 - [Actor Danny Masterson found guilty of rape](https://news.yahoo.com/actor-danny-masterson-found-guilty-061439441.html)
 - Jun 01 - [Jordan's royal wedding day gets underway with surprise arrival of Britain's William and Kate](https://news.yahoo.com/jordans-future-king-saudi-bride-052959431.html)
 - Jun 01 - [Reports of bombshell Trump recording suggests prosecutors may have grounds to charge him under the Espionage Act](https://news.yahoo.com/reports-bombshell-trump-recording-suggests-023955614.html)
-- Jun 01 - [Aide fired by George Santos says he got his job after sending money to Republican's deputy](https://news.yahoo.com/aide-fired-george-santos-says-021749772.html)
 <!-- feed end -->
