@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 01 - [Oath Keeper who guarded Roger Stone before Jan. 6 attack gets more than 4 years in prison](https://news.yahoo.com/oath-keeper-guarded-roger-stone-165747172.html)
+- Jun 01 - [‘Family Feud’ Contestant Who Joked About Regretting Marriage on Game Show Found Guilty of Murdering Wife](https://news.yahoo.com/family-feud-contestant-joked-regretting-163638727.html)
 - Jun 01 - [Putin no longer has the money or the kit to sustain a high-tech modern war](https://news.yahoo.com/putin-no-longer-money-kit-163603093.html)
+- Jun 01 - [$10,000 Quarter: This 1999 Georgia Coin Is Worth Big Money Because of an Error](https://finance.yahoo.com/news/10-000-quarter-1999-georgia-162144912.html)
 - Jun 01 - [DeSantis snaps at reporter: ‘Are you blind?’](https://news.yahoo.com/desantis-snaps-reporter-blind-153349169.html)
-- Jun 01 - [6-Year-Old Girl Hospitalized After Strap She Was Playing with While Riding in Truck 'Severed Her Feet'](https://news.yahoo.com/6-old-girl-hospitalized-strap-151458861.html)
-- Jun 01 - [Congress Will Reportedly Block Space Command Funding If Its Headquarters Isn't Moved to Alabama](https://news.yahoo.com/congress-reportedly-block-space-command-142000036.html)
-- Jun 01 - [US Supreme Court hands defeat to organized labor in truckers strike case](https://news.yahoo.com/us-supreme-court-rules-against-141351864.html)
 <!-- feed end -->
