@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [Man Who Ate Only McDonald's for 100 Days Completes Challenge — and Drops 58½ Lbs.: 'I Feel Amazing'](https://news.yahoo.com/man-ate-only-mcdonalds-100-141803196.html)
+- Jun 01 - [Putin no longer has the money or the kit to sustain a high-tech modern war](https://news.yahoo.com/putin-no-longer-money-kit-163603093.html)
+- Jun 01 - [DeSantis snaps at reporter: ‘Are you blind?’](https://news.yahoo.com/desantis-snaps-reporter-blind-153349169.html)
+- Jun 01 - [6-Year-Old Girl Hospitalized After Strap She Was Playing with While Riding in Truck 'Severed Her Feet'](https://news.yahoo.com/6-old-girl-hospitalized-strap-151458861.html)
+- Jun 01 - [Congress Will Reportedly Block Space Command Funding If Its Headquarters Isn't Moved to Alabama](https://news.yahoo.com/congress-reportedly-block-space-command-142000036.html)
 - Jun 01 - [US Supreme Court hands defeat to organized labor in truckers strike case](https://news.yahoo.com/us-supreme-court-rules-against-141351864.html)
-- Jun 01 - [Crimean bridge is falling down – cracks appear on its pillars, photos](https://news.yahoo.com/crimean-bridge-falling-down-cracks-135000186.html)
-- Jun 01 - [Vera Putina, Georgian woman who claimed to be Vladimir Putin’s biological mother – obituary](https://news.yahoo.com/vera-putina-georgian-woman-claimed-134353809.html)
-- Jun 01 - [Here's the annual income you need to fall in America's lower, middle, and upper class — plus 3 simple tips to pull yourself up the ladder](https://finance.yahoo.com/news/heres-net-worth-fall-americas-130000535.html)
 <!-- feed end -->
