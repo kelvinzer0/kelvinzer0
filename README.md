@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [Jen Psaki Gives Eyebrow-Raising Take On Why Joe Biden Is 'Comfortable' To Many In GOP](https://news.yahoo.com/jen-psaki-gives-eyebrow-raising-104909837.html)
+- Jun 02 - [A man rented a home and then impersonated the owner, applied for a mortgage, and stole the money, police say](https://news.yahoo.com/man-rented-home-then-impersonated-100810277.html)
+- Jun 02 - [Who voted against the debt ceiling bill in the Senate? These 35 lawmakers opposed it](https://news.yahoo.com/voted-against-debt-ceiling-bill-090404217.html)
 - Jun 02 - [Kayleigh McEnany Responds To Donald Trump Attack With 1 Of His Favorite Routines](https://news.yahoo.com/kayleigh-mcenany-responds-donald-trump-080149729.html)
 - Jun 02 - [Roger Stone Caught On Camera Revealing How He’s Manipulated Trump For Decades](https://news.yahoo.com/roger-stone-caught-camera-revealing-070520279.html)
-- Jun 02 - [Mexico police find 45 bags containing body parts ‘matching characteristics’ of missing call center staff](https://news.yahoo.com/mexico-police-45-bags-containing-064820937.html)
-- Jun 02 - [‘I’d do it again:’ Putnam County Sheriff stops scammers by shooting at truck tire](https://news.yahoo.com/d-again-putnam-county-sheriff-062935779.html)
-- Jun 02 - [Right-Wing Comic Cracks 'Overtly' Racist Joke As Newsmax Bit Goes Off The Rails](https://news.yahoo.com/wing-comic-cracks-overtly-racist-060405173.html)
 <!-- feed end -->
