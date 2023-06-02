@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [I worked side by side with Elizabeth Holmes. She seemed like a visionary, but we were all duped — and it's a comfort to see justice served.](https://news.yahoo.com/worked-side-side-elizabeth-holmes-085640647.html)
 - Jun 02 - [Kayleigh McEnany Responds To Donald Trump Attack With 1 Of His Favorite Routines](https://news.yahoo.com/kayleigh-mcenany-responds-donald-trump-080149729.html)
 - Jun 02 - [Roger Stone Caught On Camera Revealing How He’s Manipulated Trump For Decades](https://news.yahoo.com/roger-stone-caught-camera-revealing-070520279.html)
+- Jun 02 - [Mexico police find 45 bags containing body parts ‘matching characteristics’ of missing call center staff](https://news.yahoo.com/mexico-police-45-bags-containing-064820937.html)
 - Jun 02 - [3 dead, 2 missing after family fishing trip in Alaska becomes a nightmare](https://news.yahoo.com/3-dead-2-missing-family-053521708.html)
-- Jun 02 - [Gervonta Davis reportedly taken into custody after less than 1 month of 3-month house arrest](https://sports.yahoo.com/gervonta-davis-reportedly-taken-into-custody-after-less-than-1-month-of-3-month-house-arrest-010505867.html)
-- Jun 02 - [The judge assigned to hear Disney's lawsuit against Ron DeSantis just disqualified himself from the case because a 'third-degree' relative owns stock in the company. A Trump appointee will replace him.](https://news.yahoo.com/judge-assigned-hear-disneys-lawsuit-000944366.html)
 <!-- feed end -->
