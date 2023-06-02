@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [India's Tata Group signs $1.6 billion EV battery plant deal](https://finance.yahoo.com/news/indias-tata-group-signs-1-144814427.html)
 - Jun 02 - [Donald Trump Makes One Of His Most Inflated Claims Yet Involving The Mona Lisa](https://news.yahoo.com/donald-trump-makes-one-most-133456134.html)
+- Jun 02 - [People Are Sharing "The Incident" That Happened At Their High School, And Some Of These Are Shocking](https://news.yahoo.com/people-sharing-incident-happened-high-131602369.html)
 - Jun 02 - [Hayley Williams Has Stark Warning For Fans Who Support This Republican Presidential Candidate](https://news.yahoo.com/hayley-williams-stark-warning-fans-115921253.html)
-- Jun 02 - [‘All hell is going to break loose’: Property titan and Shark Tank star Barbara Corcoran says Elon Musk is right about commercial office space](https://finance.yahoo.com/news/hell-going-break-loose-property-110906584.html)
-- Jun 02 - [Who voted against the debt ceiling bill in the Senate? These 35 lawmakers opposed it](https://news.yahoo.com/voted-against-debt-ceiling-bill-090404217.html)
-- Jun 02 - [Kayleigh McEnany Responds To Donald Trump Attack With 1 Of His Favorite Routines](https://news.yahoo.com/kayleigh-mcenany-responds-donald-trump-080149729.html)
+- Jun 02 - [BRICS meet with 'friends' seeking closer ties amid push to expand bloc](https://news.yahoo.com/brics-meet-friends-seeking-closer-115740107.html)
 <!-- feed end -->
