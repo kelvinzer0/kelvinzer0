@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [Donald Trump Makes One Of His Most Inflated Claims Yet Involving The Mona Lisa](https://news.yahoo.com/donald-trump-makes-one-most-133456134.html)
 - Jun 02 - [Hayley Williams Has Stark Warning For Fans Who Support This Republican Presidential Candidate](https://news.yahoo.com/hayley-williams-stark-warning-fans-115921253.html)
-- Jun 02 - [A man rented a home and then impersonated the owner, applied for a mortgage, and stole the money, police say](https://news.yahoo.com/man-rented-home-then-impersonated-100810277.html)
+- Jun 02 - [‘All hell is going to break loose’: Property titan and Shark Tank star Barbara Corcoran says Elon Musk is right about commercial office space](https://finance.yahoo.com/news/hell-going-break-loose-property-110906584.html)
+- Jun 02 - [Who voted against the debt ceiling bill in the Senate? These 35 lawmakers opposed it](https://news.yahoo.com/voted-against-debt-ceiling-bill-090404217.html)
 - Jun 02 - [Kayleigh McEnany Responds To Donald Trump Attack With 1 Of His Favorite Routines](https://news.yahoo.com/kayleigh-mcenany-responds-donald-trump-080149729.html)
-- Jun 02 - [Roger Stone Caught On Camera Revealing How He’s Manipulated Trump For Decades](https://news.yahoo.com/roger-stone-caught-camera-revealing-070520279.html)
-- Jun 02 - [Mexico police find 45 bags containing body parts ‘matching characteristics’ of missing call center staff](https://news.yahoo.com/mexico-police-45-bags-containing-064820937.html)
 <!-- feed end -->
