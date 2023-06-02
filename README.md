@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - ["Gooch Grease" Is Trending, And Everyone Is Absolutely, Positively, And Completely Mortified](https://news.yahoo.com/gooch-grease-trending-because-men-215249500.html)
+- Jun 02 - [Florida Governor DeSantis signs heavily debated renter fee bill](https://news.yahoo.com/florida-governor-desantis-signs-heavily-211434900.html)
 - Jun 02 - [Uhhh, Trump’s Team Can’t Find the Classified Doc He Talked About on Tape](https://news.yahoo.com/uhhh-trump-team-t-classified-205047097.html)
 - Jun 02 - [Utah district bans Bible in elementary and middle schools 'due to vulgarity or violence'](https://news.yahoo.com/utah-district-bans-bible-elementary-204443967.html)
 - Jun 02 - [Unfinished projects sat in glassmaker’s workshop for over 1,700 years — until now](https://news.yahoo.com/unfinished-projects-sat-glassmaker-workshop-201234070.html)
-- Jun 02 - [DeSantis shouts down heckler at South Carolina rally](https://news.yahoo.com/desantis-shouts-down-heckler-south-200726968.html)
-- Jun 02 - [China's snub of U.S. military leader highlights escalation risk](https://news.yahoo.com/chinas-snub-u-military-leader-183914246.html)
 <!-- feed end -->
