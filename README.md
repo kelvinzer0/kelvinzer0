@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 02 - [Armie Hammer Posted An Instagram About Not Facing Criminal Charges, And His Mom Commented](https://news.yahoo.com/armie-hammer-posted-instagram-not-194211402.html)
+- Jun 02 - [DeSantis shouts down heckler at South Carolina rally](https://news.yahoo.com/desantis-shouts-down-heckler-south-200726968.html)
 - Jun 02 - [China's snub of U.S. military leader highlights escalation risk](https://news.yahoo.com/chinas-snub-u-military-leader-183914246.html)
 - Jun 02 - [Logan Brown, a pregnant transgender man, is on the cover of 'Glamour' magazine. 'I do exist,' he says — and so do others.](https://news.yahoo.com/logan-brown-pregnant-transgender-man-182112724.html)
 - Jun 02 - [A nurse and her boyfriend got high fives from other Southwest Airlines passengers after they saved a man's life on a flight to Baltimore, reports say](https://news.yahoo.com/nurse-her-boyfriend-got-high-170303565.html)
-- Jun 02 - [May jobs report shocks economists: 'The strangest employment report for some time'](https://finance.yahoo.com/news/may-jobs-report-shocks-economists-the-strangest-employment-report-for-some-time-173324175.html)
-- Jun 02 - [Seattle police release body cam footage of hotel incident involving Valeri Nichushkin](https://news.yahoo.com/nhl-seattle-police-release-body-cam-footage-of-hotel-incident-involving-valeri-nichushkin-165122583.html)
 <!-- feed end -->
