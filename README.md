@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 02 - [Gervonta Davis reportedly taken into custody after less than 1 month of 3-month house arrest](https://sports.yahoo.com/gervonta-davis-reportedly-taken-into-custody-after-less-than-1-month-of-3-month-house-arrest-010505867.html)
 - Jun 02 - [The judge assigned to hear Disney's lawsuit against Ron DeSantis just disqualified himself from the case because a 'third-degree' relative owns stock in the company. A Trump appointee will replace him.](https://news.yahoo.com/judge-assigned-hear-disneys-lawsuit-000944366.html)
-- Jun 01 - [Schumer announces agreement to pass debt ceiling bill late Thursday](https://news.yahoo.com/schumer-announces-agreement-pass-debt-234211978.html)
 - Jun 01 - [Trump pushes back on his inability to serve 8 more years in White House: 'You need 6 months'](https://news.yahoo.com/trump-pushes-back-inability-serve-233234090.html)
-- Jun 01 - [Donald Trump's attack on Kayleigh McEnany costs him a backer in New Hampshire](https://news.yahoo.com/donald-trumps-attack-kayleigh-mcenany-230709383.html)
+- Jun 01 - [New details of Jeffrey Epstein's death and the frantic aftermath revealed in records obtained by AP](https://news.yahoo.com/ap-obtains-records-shedding-light-224959367.html)
+- Jun 01 - [‘Astonishing’ creature burrows under canals and lagoons. It’s a new species, study says](https://news.yahoo.com/astonishing-creature-burrows-under-canals-221627428.html)
 <!-- feed end -->
