@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Milken Conference 2023: What's next for markets?](https://finance.yahoo.com/video/milken-conference-2023-whats-next-175600461.html)
+- Jun 02 - [Russian forces tried to blow up my men, says mercenary boss Prigozhin](https://news.yahoo.com/russian-forces-tried-blow-men-184450638.html)
+- Jun 02 - [Logan Brown, a pregnant transgender man, is on the cover of 'Glamour' magazine. 'I do exist,' he says — and so do others.](https://news.yahoo.com/logan-brown-pregnant-transgender-man-182112724.html)
+- Jun 02 - [A nurse and her boyfriend got high-fives from other Southwest Airlines passengers after they saved a man's life on a flight to Baltimore, say reports](https://news.yahoo.com/nurse-her-boyfriend-got-high-170303565.html)
 - Jun 02 - [May jobs report shocks economists: 'The strangest employment report for some time'](https://finance.yahoo.com/news/may-jobs-report-shocks-economists-the-strangest-employment-report-for-some-time-173324175.html)
 - Jun 02 - [Seattle police release body cam footage of hotel incident involving Valeri Nichushkin](https://news.yahoo.com/nhl-seattle-police-release-body-cam-footage-of-hotel-incident-involving-valeri-nichushkin-165122583.html)
-- Jun 02 - [The Pentagon And NASA Have No Earthly Idea What These Flying Metallic Orbs Really Are](https://news.yahoo.com/pentagon-nasa-no-earthly-idea-164000079.html)
-- Jun 02 - [At least 50 dead, 350 injured in train crash in eastern India - reports](https://news.yahoo.com/least-30-dead-179-injured-161614595.html)
 <!-- feed end -->
