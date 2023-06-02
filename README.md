@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Armie Hammer Posted An Instagram About Not Facing Criminal Charges, And His Mom Commented](https://news.yahoo.com/armie-hammer-posted-instagram-not-194211402.html)
+- Jun 02 - [Uhhh, Trump’s Team Can’t Find the Classified Doc He Talked About on Tape](https://news.yahoo.com/uhhh-trump-team-t-classified-205047097.html)
+- Jun 02 - [Utah district bans Bible in elementary and middle schools 'due to vulgarity or violence'](https://news.yahoo.com/utah-district-bans-bible-elementary-204443967.html)
+- Jun 02 - [Unfinished projects sat in glassmaker’s workshop for over 1,700 years — until now](https://news.yahoo.com/unfinished-projects-sat-glassmaker-workshop-201234070.html)
 - Jun 02 - [DeSantis shouts down heckler at South Carolina rally](https://news.yahoo.com/desantis-shouts-down-heckler-south-200726968.html)
 - Jun 02 - [China's snub of U.S. military leader highlights escalation risk](https://news.yahoo.com/chinas-snub-u-military-leader-183914246.html)
-- Jun 02 - [Logan Brown, a pregnant transgender man, is on the cover of 'Glamour' magazine. 'I do exist,' he says — and so do others.](https://news.yahoo.com/logan-brown-pregnant-transgender-man-182112724.html)
-- Jun 02 - [A nurse and her boyfriend got high fives from other Southwest Airlines passengers after they saved a man's life on a flight to Baltimore, reports say](https://news.yahoo.com/nurse-her-boyfriend-got-high-170303565.html)
 <!-- feed end -->
