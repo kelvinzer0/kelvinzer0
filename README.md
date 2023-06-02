@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 02 - [Lauren Boebert missed voting against the debt ceiling bill she hated and can't explain why](https://news.yahoo.com/lauren-boebert-missed-voting-against-151305673.html)
-- Jun 02 - [US Secretary of State Blinken said Russia claimed it had the 2nd-best military in the world, but now 'many see Russia's military as the 2nd-strongest in Ukraine'](https://news.yahoo.com/us-secretary-state-blinken-said-150900803.html)
-- Jun 02 - [Your Amazon Prime plan might soon cut your cell phone bill down to around $10 — or even make it free](https://news.yahoo.com/amazon-prime-plan-might-soon-143444439.html)
-- Jun 02 - [Donald Trump Makes One Of His Most Inflated Claims Yet Involving The Mona Lisa](https://news.yahoo.com/donald-trump-makes-one-most-133456134.html)
-- Jun 02 - [People Are Sharing "The Incident" That Happened At Their High School, And Some Of These Are Shocking](https://news.yahoo.com/people-sharing-incident-happened-high-131602369.html)
+- Jun 02 - [Milken Conference 2023: What's next for markets?](https://finance.yahoo.com/video/milken-conference-2023-whats-next-175600461.html)
+- Jun 02 - [May jobs report shocks economists: 'The strangest employment report for some time'](https://finance.yahoo.com/news/may-jobs-report-shocks-economists-the-strangest-employment-report-for-some-time-173324175.html)
+- Jun 02 - [Seattle police release body cam footage of hotel incident involving Valeri Nichushkin](https://news.yahoo.com/nhl-seattle-police-release-body-cam-footage-of-hotel-incident-involving-valeri-nichushkin-165122583.html)
+- Jun 02 - [The Pentagon And NASA Have No Earthly Idea What These Flying Metallic Orbs Really Are](https://news.yahoo.com/pentagon-nasa-no-earthly-idea-164000079.html)
+- Jun 02 - [At least 50 dead, 350 injured in train crash in eastern India - reports](https://news.yahoo.com/least-30-dead-179-injured-161614595.html)
 <!-- feed end -->
