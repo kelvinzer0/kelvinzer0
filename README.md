@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 01 - [‘Astonishing’ creature burrows under canals and lagoons. It’s a new species, study says](https://news.yahoo.com/astonishing-creature-burrows-under-canals-221627428.html)
-- Jun 01 - [Man who vanished on snowy mountain after sending friend a clue found dead, sheriff says](https://news.yahoo.com/man-vanished-snowy-mountain-sending-213756712.html)
-- Jun 01 - [Trump reacts to Biden's Air Force Academy tumble](https://news.yahoo.com/trump-reacts-bidens-air-force-213619010.html)
-- Jun 01 - [An Asian American woman made a Hinge account, and here’s how it went: ‘It’s 2023. Filter out the colonizers girl’](https://news.yahoo.com/asian-american-woman-made-hinge-212307109.html)
-- Jun 01 - [Russian ultranationalists think Putin's response to the Moscow drone attacks and border raids shows he's 'out of touch with reality'](https://news.yahoo.com/russian-ultranationalists-think-putins-response-204911995.html)
+- Jun 02 - [Gervonta Davis reportedly taken into custody after less than 1 month of 3-month house arrest](https://sports.yahoo.com/gervonta-davis-reportedly-taken-into-custody-after-less-than-1-month-of-3-month-house-arrest-010505867.html)
+- Jun 02 - [Sarah Palin Annoyed By Ron DeSantis’ Run, Says It ‘Doesn’t Make Sense’](https://news.yahoo.com/sarah-palin-annoyed-ron-desantis-010002763.html)
+- Jun 02 - [The judge assigned to hear Disney's lawsuit against Ron DeSantis just disqualified himself from the case because a 'third-degree' relative owns stock in the company. A Trump appointee will replace him.](https://news.yahoo.com/judge-assigned-hear-disneys-lawsuit-000944366.html)
+- Jun 01 - [Schumer announces agreement to pass debt ceiling bill late Thursday](https://news.yahoo.com/schumer-announces-agreement-pass-debt-234211978.html)
+- Jun 01 - [Trump pushes back on his inability to serve 8 more years in White House: 'You need 6 months'](https://news.yahoo.com/trump-pushes-back-inability-serve-233234090.html)
 <!-- feed end -->
