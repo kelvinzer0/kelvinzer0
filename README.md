@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [Couple charged in 'torture' abuse case that left 5-year-old boy with 46 visible injuries](https://news.yahoo.com/couple-charged-torture-abuse-case-200936291.html)
+- Jun 03 - [Son of Red Sox Hall of Famer found dead in apparent murder-suicide 4 years after child's mother went missing](https://news.yahoo.com/son-red-sox-hall-famer-193443488.html)
 - Jun 03 - [Christian radio host Dave Ramsey faces $150 million lawsuit from listeners who say they were defrauded by a timeshare exit company he promoted](https://finance.yahoo.com/news/christian-radio-host-dave-ramsey-110007566.html)
 - Jun 03 - [These may be the world’s best warships. And they’re not American](https://news.yahoo.com/may-world-best-warships-not-005636495.html)
-- Jun 03 - [ChatGPT may be coming for our jobs. Here are the 10 roles that AI is most likely to replace.](https://news.yahoo.com/chatgpt-may-coming-jobs-10-162507822.html)
-- Jun 03 - [Elizabeth Holmes ordered dinners for Theranos staff but made sure they weren't delivered until after 8 p.m. so they worked late: book](https://news.yahoo.com/elizabeth-holmes-ordered-dinners-theranos-080000677.html)
-- Jun 03 - [Influencer Jackie Miller James is in a coma following a ruptured aneurysm. What to know about the condition.](https://news.yahoo.com/influencer-jackie-miller-james-coma-160900297.html)
+- Jun 03 - ['It's like watching a snuff film': Media elites shocked by The Atlantic's surgical dismantling of CNN boss Chris Licht](https://news.yahoo.com/watching-snuff-film-media-elites-170349078.html)
 <!-- feed end -->
