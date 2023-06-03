@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [Secret Service agents didn't see an intruder get into a Biden official's home because they were distracted on their cellphones](https://news.yahoo.com/secret-agents-didnt-see-intruder-154742624.html)
+- Jun 03 - [Yellowstone guide saves motorist from momma grizzly bear’s wrath](https://sports.yahoo.com/yellowstone-guide-saves-motorist-momma-154648132.html)
 - Jun 03 - [These may be the world’s best warships. And they’re not American](https://news.yahoo.com/may-world-best-warships-not-005636495.html)
 - Jun 03 - [Ukrainian drone operator dodges Russian TOR-2M missile, then catches up to it — incredible video](https://news.yahoo.com/ukrainian-drone-operator-dodges-russian-141500507.html)
-- Jun 03 - [Nancy Mace disrespects her voters with distasteful Biden smear | Opinion](https://news.yahoo.com/nancy-mace-disrespects-her-voters-132947807.html)
-- Jun 03 - [Buff billionaires are latest sign that bulk is now beautiful for male body image](https://news.yahoo.com/buff-billionaires-latest-sign-bulk-130031656.html)
-- Jun 03 - ['Ozempic Butt' Is Increasingly Impacting Those Using Weight Loss Medication](https://news.yahoo.com/ozempic-butt-increasingly-impacting-those-120000251.html)
+- Jun 03 - [Putin's press secretary says Russian leader wants to achieve his goals by means other than war](https://news.yahoo.com/putins-press-secretary-says-russian-141054340.html)
 <!-- feed end -->
