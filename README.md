@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [Reactions to Biden’s Oval Office Speech Not Quite as Divided as America: ‘Old Dude Is Doing Alright’](https://news.yahoo.com/reactions-biden-oval-office-speech-030812641.html)
 - Jun 03 - [These may be the world’s best warships. And they’re not American](https://news.yahoo.com/may-world-best-warships-not-005636495.html)
 - Jun 03 - [Capitol Police stop a youth performance of the ‘Star-Spangled Banner’](https://news.yahoo.com/capitol-police-stop-youth-performance-001743453.html)
 - Jun 02 - ["Gooch Grease" Is Trending, And Everyone Is Absolutely, Positively, And Completely Mortified](https://news.yahoo.com/gooch-grease-trending-because-men-215249500.html)
 - Jun 02 - [What to know about the case of the missing Missouri ER doctor found dead in Arkansas](https://news.yahoo.com/things-know-case-missouri-doctor-214901277.html)
-- Jun 02 - [Video shows suspect dumping a 2-year-old found in a stolen car](https://news.yahoo.com/video-shows-suspect-dumping-2-214252271.html)
 <!-- feed end -->
