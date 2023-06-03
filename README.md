@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 03 - [Worst India train disaster in decades kills hundreds](https://news.yahoo.com/worst-india-train-disaster-decades-120000098.html)
+- Jun 03 - ['Ozempic Butt' Is Increasingly Impacting Those Using Weight Loss Medication](https://news.yahoo.com/ozempic-butt-increasingly-impacting-those-120000251.html)
+- Jun 03 - [Even the cheapest Tesla Model 3 now qualifies for the full $7,500 tax credit](https://news.yahoo.com/even-the-cheapest-tesla-model-3-now-qualifies-for-the-full-7500-tax-credit-112145637.html)
 - Jun 03 - [Steve Bannon hit out at Rep. Marjorie Taylor Greene, saying she should be challenged by 'Real MAGA'](https://news.yahoo.com/steve-bannon-hit-rep-marjorie-111244990.html)
 - Jun 03 - [Elizabeth Holmes ordered dinners for Theranos staff but made sure they weren't delivered until after 8 p.m. so they worked late: book](https://news.yahoo.com/elizabeth-holmes-ordered-dinners-theranos-080000677.html)
 - Jun 03 - [Reactions to Biden’s Oval Office Speech Not Quite as Divided as America: ‘Old Dude Is Doing Alright’](https://news.yahoo.com/reactions-biden-oval-office-speech-030812641.html)
-- Jun 03 - [‘I’m just tired of covering it up’: Guilt drives man to confess to murder 15 years after killing, police say](https://news.yahoo.com/m-just-tired-covering-guilt-010759998.html)
 <!-- feed end -->
