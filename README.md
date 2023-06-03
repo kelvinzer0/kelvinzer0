@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [Capitol Police stop a youth performance of the ‘Star-Spangled Banner’](https://news.yahoo.com/capitol-police-stop-youth-performance-001743453.html)
+- Jun 02 - [CNN apparently removed the words 'sexual abuse' from a chyron ahead of Trump town hall, The Atlantic reports in bombshell profile of network head Chris Licht](https://news.yahoo.com/cnn-apparently-removed-words-sexual-234656554.html)
 - Jun 02 - ["Gooch Grease" Is Trending, And Everyone Is Absolutely, Positively, And Completely Mortified](https://news.yahoo.com/gooch-grease-trending-because-men-215249500.html)
-- Jun 02 - [Florida Governor DeSantis signs heavily debated renter fee bill](https://news.yahoo.com/florida-governor-desantis-signs-heavily-211434900.html)
-- Jun 02 - [Uhhh, Trump’s Team Can’t Find the Classified Doc He Talked About on Tape](https://news.yahoo.com/uhhh-trump-team-t-classified-205047097.html)
-- Jun 02 - [Utah district bans Bible in elementary and middle schools 'due to vulgarity or violence'](https://news.yahoo.com/utah-district-bans-bible-elementary-204443967.html)
-- Jun 02 - [Unfinished projects sat in glassmaker’s workshop for over 1,700 years — until now](https://news.yahoo.com/unfinished-projects-sat-glassmaker-workshop-201234070.html)
+- Jun 02 - [What to know about the case of the missing Missouri ER doctor found dead in Arkansas](https://news.yahoo.com/things-know-case-missouri-doctor-214901277.html)
+- Jun 02 - [Video shows suspect dumping a 2-year-old found in a stolen car](https://news.yahoo.com/video-shows-suspect-dumping-2-214252271.html)
 <!-- feed end -->
