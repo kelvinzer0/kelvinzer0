@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [A giant seaweed mass heading for Florida's beaches is full of potentially dangerous bacteria that threatens a 'pathogen storm,' a study found](https://news.yahoo.com/giant-seaweed-mass-heading-floridas-164704931.html)
+- Jun 03 - [Elizabeth Holmes ordered dinners for Theranos staff but made sure they weren't delivered until after 8 p.m. so they worked late: book](https://news.yahoo.com/elizabeth-holmes-ordered-dinners-theranos-080000677.html)
+- Jun 03 - [Influencer Jackie Miller James is in a coma following a ruptured aneurysm. What to know about the condition.](https://news.yahoo.com/jackie-miller-james-aneurysm-coma-160900321.html)
 - Jun 03 - [Secret Service agents didn't see an intruder get into a Biden official's home because they were distracted on their cellphones](https://news.yahoo.com/secret-agents-didnt-see-intruder-154742624.html)
 - Jun 03 - [Yellowstone guide saves motorist from momma grizzly bear’s wrath](https://sports.yahoo.com/yellowstone-guide-saves-motorist-momma-154648132.html)
-- Jun 03 - [These may be the world’s best warships. And they’re not American](https://news.yahoo.com/may-world-best-warships-not-005636495.html)
-- Jun 03 - [Ukrainian drone operator dodges Russian TOR-2M missile, then catches up to it — incredible video](https://news.yahoo.com/ukrainian-drone-operator-dodges-russian-141500507.html)
-- Jun 03 - [Putin's press secretary says Russian leader wants to achieve his goals by means other than war](https://news.yahoo.com/putins-press-secretary-says-russian-141054340.html)
 <!-- feed end -->
