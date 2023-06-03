@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [Nancy Mace disrespects her voters with distasteful Biden smear | Opinion](https://news.yahoo.com/nancy-mace-disrespects-her-voters-132947807.html)
+- Jun 03 - [Buff billionaires are latest sign that bulk is now beautiful for male body image](https://news.yahoo.com/buff-billionaires-latest-sign-bulk-130031656.html)
 - Jun 03 - ['Ozempic Butt' Is Increasingly Impacting Those Using Weight Loss Medication](https://news.yahoo.com/ozempic-butt-increasingly-impacting-those-120000251.html)
 - Jun 03 - [Even the cheapest Tesla Model 3 now qualifies for the full $7,500 tax credit](https://news.yahoo.com/even-the-cheapest-tesla-model-3-now-qualifies-for-the-full-7500-tax-credit-112145637.html)
-- Jun 03 - [Elizabeth Holmes ordered dinners for Theranos staff but made sure they weren't delivered until after 8 p.m. so they worked late: book](https://news.yahoo.com/elizabeth-holmes-ordered-dinners-theranos-080000677.html)
-- Jun 03 - [Reactions to Biden’s Oval Office Speech Not Quite as Divided as America: ‘Old Dude Is Doing Alright’](https://news.yahoo.com/reactions-biden-oval-office-speech-030812641.html)
-- Jun 03 - [These may be the world’s best warships. And they’re not American](https://news.yahoo.com/may-world-best-warships-not-005636495.html)
+- Jun 03 - [3 Israeli soldiers, Egyptian officer killed in gunbattle at the border](https://news.yahoo.com/israeli-army-says-exchange-fire-094550612.html)
 <!-- feed end -->
