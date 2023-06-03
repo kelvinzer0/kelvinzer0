@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [Worst India train disaster in decades kills hundreds](https://news.yahoo.com/worst-india-train-disaster-decades-120000098.html)
+- Jun 03 - [Steve Bannon hit out at Rep. Marjorie Taylor Greene, saying she should be challenged by 'Real MAGA'](https://news.yahoo.com/steve-bannon-hit-rep-marjorie-111244990.html)
 - Jun 03 - [Elizabeth Holmes ordered dinners for Theranos staff but made sure they weren't delivered until after 8 p.m. so they worked late: book](https://news.yahoo.com/elizabeth-holmes-ordered-dinners-theranos-080000677.html)
 - Jun 03 - [Reactions to Biden’s Oval Office Speech Not Quite as Divided as America: ‘Old Dude Is Doing Alright’](https://news.yahoo.com/reactions-biden-oval-office-speech-030812641.html)
 - Jun 03 - [‘I’m just tired of covering it up’: Guilt drives man to confess to murder 15 years after killing, police say](https://news.yahoo.com/m-just-tired-covering-guilt-010759998.html)
-- Jun 03 - [These may be the world’s best warships. And they’re not American](https://news.yahoo.com/may-world-best-warships-not-005636495.html)
-- Jun 03 - [Capitol Police stop a youth performance of the ‘Star-Spangled Banner’](https://news.yahoo.com/capitol-police-stop-youth-performance-001743453.html)
 <!-- feed end -->
