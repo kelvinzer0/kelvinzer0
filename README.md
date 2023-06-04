@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Jet fighters chase small plane in Washington D.C. area before it crashes](https://uk.news.yahoo.com/u-officials-no-security-threat-194538733.html)
+- Jun 04 - [Russia says its forces thwarted major Ukrainian offensive](https://news.yahoo.com/russia-says-forces-thwarted-major-225531361.html)
+- Jun 04 - [Sonic boom heard across Washington, DC, after fighter jets scrambled](https://news.yahoo.com/sonic-boom-heard-across-washington-222024688.html)
 - Jun 04 - [Lauren Boebert now says her failure to vote on the debt limit was 'a protest.' But video from that night shows her frantically running up the Capitol steps trying to make it inside in time.](https://news.yahoo.com/lauren-boebert-now-says-her-194013995.html)
+- Jun 04 - [Jet fighters chase small plane in Washington area before it crashes in Virginia](https://news.yahoo.com/u-officials-no-security-threat-194538733.html)
 - Jun 04 - [Andy Cohen says his daughter was 'one of the first surrogate babies' born in New York. Here's why.](https://news.yahoo.com/andy-cohen-gestational-surrogate-new-york-185236873.html)
-- Jun 04 - [16-year-old ambushed ex-girlfriend and new boyfriend at Tri-Cities park, police say](https://news.yahoo.com/16-old-ambushed-ex-girlfriend-175539330.html)
-- Jun 04 - [Conservatives, If You Want To Ban "Woke" Materials In Schools Shouldn't You At Least Read Them First?](https://news.yahoo.com/conservatives-want-ban-woke-materials-172000272.html)
 <!-- feed end -->
