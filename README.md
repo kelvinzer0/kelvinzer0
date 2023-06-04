@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [16-year-old ambushed ex-girlfriend and new boyfriend at Tri-Cities park, police say](https://news.yahoo.com/16-old-ambushed-ex-girlfriend-175539330.html)
 - Jun 04 - [What Happened When a Brooklyn Neighborhood Policed Itself for Five Days](https://news.yahoo.com/happened-brooklyn-neighborhood-policed-itself-153058705.html)
 - Jun 04 - [Transgender adults in Florida `blindsided' that new law also limits their access to health care](https://news.yahoo.com/transgender-adults-florida-blindsided-law-152327540.html)
-- Jun 04 - [Donald Trump says he has told Fox News' Sean Hannity not to joke about President Biden's cognitive ability](https://news.yahoo.com/donald-trump-says-told-fox-144427331.html)
 - Jun 04 - [Ukrainian army destroys Russia’s mainland route to Crimea with blasts in Berdyansk and Melitopol](https://news.yahoo.com/ukrainian-army-destroys-russia-mainland-143500660.html)
 - Jun 04 - [Donald Trump's GOP rivals pounce after he congratulated Kim Jong Un: 'Not something to play with'](https://news.yahoo.com/donald-trumps-gop-rivals-pounce-142601669.html)
 <!-- feed end -->
