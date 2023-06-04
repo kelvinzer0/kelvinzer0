@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Ukraine's military urges 'silence' ahead of expected counteroffensive](https://news.yahoo.com/ukraines-military-urges-silence-ahead-131249229.html)
-- Jun 04 - [Scientists saw a surge in brain activity in dying patients that could finally help explain mysterious near-death experiences](https://news.yahoo.com/scientists-saw-surge-brain-activity-122100146.html)
-- Jun 04 - [As Ron DeSantis Barnstorms New Hampshire, Thousands Of Floridians Lose Health Insurance](https://news.yahoo.com/ron-desantis-barnstorms-hampshire-thousands-120027925.html)
-- Jun 04 - [Russian Volunteer Corps and Freedom of Russia Legion report capture of Russian regular army soldiers in Belgorod Oblast, call governor for meeting](https://news.yahoo.com/russian-volunteer-corps-freedom-russia-115212909.html)
-- Jun 04 - [The People I Was Selling My Home to Had Nonsense Reasons for Asking for Money Off. Here's How I Handled It](https://www.fool.com/the-ascent/mortgages/articles/the-people-i-was-selling-my-home-to-had-nonsense-reasons-for-asking-for-money-off-heres-how-i-handled-it/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Jun 04 - [Donald Trump's GOP rivals pounce after he congratulated Kim Jong Un: 'Not something to play with'](https://news.yahoo.com/donald-trumps-gop-rivals-pounce-142601669.html)
+- Jun 04 - [Vigilantes in Haiti strike back at gangsters with brutal street justice](https://news.yahoo.com/vigilantes-haiti-strike-back-gangsters-141708039.html)
+- Jun 04 - [‘Everything Changed’: The War Arrives on Russians’ Doorstep](https://news.yahoo.com/everything-changed-war-arrives-russians-141153997.html)
+- Jun 04 - [ChatGPT may be coming for our jobs. Here are the 10 roles that AI is most likely to replace.](https://news.yahoo.com/chatgpt-may-coming-jobs-10-162507822.html)
+- Jun 04 - [Chuck Todd leaving NBC political panel show 'Meet the Press' and being replaced by Kristen Welker](https://news.yahoo.com/chuck-todd-leaving-nbc-political-140117663.html)
 <!-- feed end -->
