@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [The People I Was Selling My Home to Had Nonsense Reasons for Asking for Money Off. Here's How I Handled It](https://www.fool.com/the-ascent/mortgages/articles/the-people-i-was-selling-my-home-to-had-nonsense-reasons-for-asking-for-money-off-heres-how-i-handled-it/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Jun 04 - [Debt ceiling deal reveals the impotence of Donald Trump's MAGA movement](https://news.yahoo.com/debt-ceiling-deal-reveals-impotence-080137758.html)
+- Jun 04 - [Ukraine shelling continues in Russia's Belgorod as thousands relocated - governor](https://news.yahoo.com/ukraine-shelling-continues-russias-belgorod-072335506.html)
 - Jun 04 - [Ukraine keeps up pressure following Russian declaration of victory in Bakhmut](https://news.yahoo.com/ukraine-keeps-pressure-following-russian-065358548.html)
 - Jun 04 - [Christian radio host Dave Ramsey faces $150 million lawsuit from listeners who say they were defrauded by a timeshare exit company he promoted](https://finance.yahoo.com/news/christian-radio-host-dave-ramsey-110007566.html)
-- Jun 04 - [China defends buzzing American warship in Taiwan Strait, accuses US of provoking Beijing](https://news.yahoo.com/china-defends-buzzing-american-warship-024619171.html)
-- Jun 04 - [China seeks dialogue, says clash with US would be 'unbearable disaster'](https://news.yahoo.com/china-seeks-dialogue-over-confrontation-010857530.html)
 <!-- feed end -->
