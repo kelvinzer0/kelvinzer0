@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Armie Hammer Posted An Instagram About Not Facing Criminal Charges, And His Mom Commented](https://news.yahoo.com/armie-hammer-posted-instagram-not-194211402.html)
+- Jun 04 - [China defends buzzing American warship in Taiwan Strait, accuses US of provoking Beijing](https://news.yahoo.com/china-defends-buzzing-american-warship-024619171.html)
 - Jun 04 - [Chinese warship comes within 150 yards of U.S. missile destroyer](https://news.yahoo.com/chinese-warship-comes-within-150-014523019.html)
 - Jun 04 - [China seeks dialogue, says clash with U.S. would be 'unbearable disaster'](https://news.yahoo.com/china-seeks-dialogue-over-confrontation-010857530.html)
 - Jun 03 - [What led Capitol Police to stop a youth performance of the ‘Star-Spangled Banner’](https://news.yahoo.com/led-capitol-police-stop-youth-231932968.html)
