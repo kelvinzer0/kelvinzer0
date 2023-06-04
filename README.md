@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [Debt ceiling deal reveals the impotence of Donald Trump's MAGA movement](https://news.yahoo.com/debt-ceiling-deal-reveals-impotence-080137758.html)
 - Jun 04 - [Ukraine keeps up pressure following Russian declaration of victory in Bakhmut](https://news.yahoo.com/ukraine-keeps-pressure-following-russian-065358548.html)
 - Jun 04 - [Christian radio host Dave Ramsey faces $150 million lawsuit from listeners who say they were defrauded by a timeshare exit company he promoted](https://finance.yahoo.com/news/christian-radio-host-dave-ramsey-110007566.html)
 - Jun 04 - [China defends buzzing American warship in Taiwan Strait, accuses US of provoking Beijing](https://news.yahoo.com/china-defends-buzzing-american-warship-024619171.html)
 - Jun 04 - [China seeks dialogue, says clash with US would be 'unbearable disaster'](https://news.yahoo.com/china-seeks-dialogue-over-confrontation-010857530.html)
-- Jun 03 - [What led Capitol Police to stop a youth performance of the ‘Star-Spangled Banner’](https://news.yahoo.com/led-capitol-police-stop-youth-231932968.html)
 <!-- feed end -->
