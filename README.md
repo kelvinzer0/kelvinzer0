@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 04 - [Christian radio host Dave Ramsey faces $150 million lawsuit from listeners who say they were defrauded by a timeshare exit company he promoted](https://finance.yahoo.com/news/christian-radio-host-dave-ramsey-110007566.html)
 - Jun 04 - [China defends buzzing American warship in Taiwan Strait, accuses US of provoking Beijing](https://news.yahoo.com/china-defends-buzzing-american-warship-024619171.html)
-- Jun 04 - [Chinese warship comes within 150 yards of U.S. missile destroyer](https://news.yahoo.com/chinese-warship-comes-within-150-014523019.html)
-- Jun 04 - [China seeks dialogue, says clash with U.S. would be 'unbearable disaster'](https://news.yahoo.com/china-seeks-dialogue-over-confrontation-010857530.html)
+- Jun 04 - [China seeks dialogue, says clash with US would be 'unbearable disaster'](https://news.yahoo.com/china-seeks-dialogue-over-confrontation-010857530.html)
+- Jun 04 - [Russia's air attack repelled on approach to Kyiv, Ukraine says](https://news.yahoo.com/air-defence-systems-engaged-repelling-001323175.html)
 - Jun 03 - [What led Capitol Police to stop a youth performance of the ‘Star-Spangled Banner’](https://news.yahoo.com/led-capitol-police-stop-youth-231932968.html)
 <!-- feed end -->
