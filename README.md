@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 03 - [What led Capitol Police to stop a youth performance of the ‘Star-Spangled Banner’](https://news.yahoo.com/led-capitol-police-stop-youth-231932968.html)
 - Jun 03 - [Wingman Films Burning Russian MiG-31 Foxhound's Final Moments](https://news.yahoo.com/wingman-films-burning-russian-mig-221751189.html)
 - Jun 03 - [Ukraine Situation Report: Su-24 Spotted Carrying Two Storm Shadows](https://news.yahoo.com/ukraine-situation-report-su-24-220245657.html)
 - Jun 03 - [Couple charged in 'torture' abuse case that left 5-year-old boy with 46 visible injuries](https://news.yahoo.com/couple-charged-torture-abuse-case-200936291.html)
 - Jun 03 - [Son of Red Sox Hall of Famer found dead in apparent murder-suicide 4 years after child's mother went missing](https://news.yahoo.com/son-red-sox-hall-famer-193443488.html)
-- Jun 03 - [Ford, Tesla ‘blindside’ industry with charging deal. Here's what it means for automakers and customers](https://finance.yahoo.com/news/ford-tesla-blindside-industry-with-charging-deal-heres-what-it-means-for-automakers-and-customers-180010414.html)
 <!-- feed end -->
