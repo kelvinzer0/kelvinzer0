@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [What Happened When a Brooklyn Neighborhood Policed Itself for Five Days](https://news.yahoo.com/happened-brooklyn-neighborhood-policed-itself-153058705.html)
+- Jun 04 - [Donald Trump says he has told Fox News' Sean Hannity not to joke about President Biden's cognitive ability](https://news.yahoo.com/donald-trump-says-told-fox-144427331.html)
+- Jun 04 - [Ukrainian army destroys Russia’s mainland route to Crimea with blasts in Berdyansk and Melitopol](https://news.yahoo.com/ukrainian-army-destroys-russia-mainland-143500660.html)
 - Jun 04 - [Donald Trump's GOP rivals pounce after he congratulated Kim Jong Un: 'Not something to play with'](https://news.yahoo.com/donald-trumps-gop-rivals-pounce-142601669.html)
 - Jun 04 - [Vigilantes in Haiti strike back at gangsters with brutal street justice](https://news.yahoo.com/vigilantes-haiti-strike-back-gangsters-141708039.html)
-- Jun 04 - [‘Everything Changed’: The War Arrives on Russians’ Doorstep](https://news.yahoo.com/everything-changed-war-arrives-russians-141153997.html)
-- Jun 04 - [ChatGPT may be coming for our jobs. Here are the 10 roles that AI is most likely to replace.](https://news.yahoo.com/chatgpt-may-coming-jobs-10-162507822.html)
-- Jun 04 - [Chuck Todd leaving NBC political panel show 'Meet the Press' and being replaced by Kristen Welker](https://news.yahoo.com/chuck-todd-leaving-nbc-political-140117663.html)
 <!-- feed end -->
