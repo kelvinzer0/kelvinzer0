@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 04 - [Ukraine's military urges 'silence' ahead of expected counteroffensive](https://news.yahoo.com/ukraines-military-urges-silence-ahead-131249229.html)
+- Jun 04 - [Scientists saw a surge in brain activity in dying patients that could finally help explain mysterious near-death experiences](https://news.yahoo.com/scientists-saw-surge-brain-activity-122100146.html)
 - Jun 04 - [As Ron DeSantis Barnstorms New Hampshire, Thousands Of Floridians Lose Health Insurance](https://news.yahoo.com/ron-desantis-barnstorms-hampshire-thousands-120027925.html)
-- Jun 04 - [4 people died after a boat sank on a picturesque lake. All of the passengers had connections to Israeli and Italian intelligence.](https://news.yahoo.com/4-people-died-boat-sank-110821452.html)
+- Jun 04 - [Russian Volunteer Corps and Freedom of Russia Legion report capture of Russian regular army soldiers in Belgorod Oblast, call governor for meeting](https://news.yahoo.com/russian-volunteer-corps-freedom-russia-115212909.html)
 - Jun 04 - [The People I Was Selling My Home to Had Nonsense Reasons for Asking for Money Off. Here's How I Handled It](https://www.fool.com/the-ascent/mortgages/articles/the-people-i-was-selling-my-home-to-had-nonsense-reasons-for-asking-for-money-off-heres-how-i-handled-it/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Jun 04 - [‘I’ve worked my whole life and paid my taxes — now they want more’](https://news.yahoo.com/ve-worked-whole-life-paid-090000356.html)
-- Jun 04 - [Debt ceiling deal reveals the impotence of Donald Trump's MAGA movement](https://news.yahoo.com/debt-ceiling-deal-reveals-impotence-080137758.html)
 <!-- feed end -->
