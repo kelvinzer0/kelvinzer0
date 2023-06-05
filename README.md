@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 04 - [Russia says its forces thwarted major Ukrainian offensive](https://news.yahoo.com/russia-says-forces-thwarted-major-225531361.html)
-- Jun 04 - [Sonic boom heard across Washington, DC, after fighter jets scrambled](https://news.yahoo.com/sonic-boom-heard-across-washington-222024688.html)
-- Jun 04 - [Lauren Boebert now says her failure to vote on the debt limit was 'a protest.' But video from that night shows her frantically running up the Capitol steps trying to make it inside in time.](https://news.yahoo.com/lauren-boebert-now-says-her-194013995.html)
-- Jun 04 - [Jet fighters chase small plane in Washington area before it crashes in Virginia](https://news.yahoo.com/u-officials-no-security-threat-194538733.html)
-- Jun 04 - [Andy Cohen says his daughter was 'one of the first surrogate babies' born in New York. Here's why.](https://news.yahoo.com/andy-cohen-gestational-surrogate-new-york-185236873.html)
+- Jun 05 - [25 "Cheating Death" Stories That Were So Intense, People Really, Really, Reaaaallly Wanted To Share Them](https://news.yahoo.com/people-sharing-cheating-death-experiences-011603274.html)
+- Jun 05 - [Far-Right Turns on Marjorie Taylor Greene—And MTG Hits Back in Text to Matt Gaetz](https://news.yahoo.com/far-turns-marjorie-taylor-greene-003705018.html)
+- Jun 05 - [US, UK navies say they responded to distress call as Iran's Revolutionary Guard 'harassed' ship](https://news.yahoo.com/us-uk-navies-respond-distress-003645803.html)
+- Jun 04 - [Ex-Trump adviser says Trump did ‘enormous damage’ to country and GOP](https://news.yahoo.com/why-ex-trump-adviser-says-220050610.html)
+- Jun 04 - [Russia says it thwarted major Ukrainian offensive, killed hundreds](https://news.yahoo.com/russia-says-forces-thwarted-major-225531361.html)
 <!-- feed end -->
