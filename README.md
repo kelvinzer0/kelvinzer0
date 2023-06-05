@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [25 "Cheating Death" Stories That Were So Intense, People Really, Really, Reaaaallly Wanted To Share Them](https://news.yahoo.com/people-sharing-cheating-death-experiences-011603274.html)
+- Jun 05 - [Florida Businessman Says ‘Entire Family’ Was on Crashed Plane Behind D.C. Chaos](https://news.yahoo.com/crashed-plane-behind-d-c-015251405.html)
 - Jun 05 - [Far-Right Turns on Marjorie Taylor Greene—And MTG Hits Back in Text to Matt Gaetz](https://news.yahoo.com/far-turns-marjorie-taylor-greene-003705018.html)
+- Jun 05 - [A New York couple who saw their cupcake empire soar to a $66 million business before going bust say there's never been a moment of regret selling the business  — and wouldn't write off doing it again](https://news.yahoo.com/york-couple-saw-cupcake-empire-010502560.html)
 - Jun 05 - [US, UK navies say they responded to distress call as Iran's Revolutionary Guard 'harassed' ship](https://news.yahoo.com/us-uk-navies-respond-distress-003645803.html)
 - Jun 04 - [Ex-Trump adviser says Trump did ‘enormous damage’ to country and GOP](https://news.yahoo.com/why-ex-trump-adviser-says-220050610.html)
-- Jun 04 - [Russia says it thwarted major Ukrainian offensive, killed hundreds](https://news.yahoo.com/russia-says-forces-thwarted-major-225531361.html)
 <!-- feed end -->
