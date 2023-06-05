@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Lexus LBX is a city-friendly, Toyota-based crossover for Europe](https://www.autoblog.com/2023/06/05/lexus-lbx-is-a-city-friendly-toyota-based-crossover-for-europe/)
-- Jun 05 - [‘I'm a healthy GP – but I was shocked by the effect three slices of pizza could have’](https://news.yahoo.com/damage-three-slices-pizza-really-125558924.html)
-- Jun 05 - [Migrants demanding plush hotels are taking the taxpayer for fools](https://news.yahoo.com/migrants-demanding-plush-hotels-taking-123439279.html)
-- Jun 05 - [Chaos engulfs Florida town when massive pop-up party blocks multiple roads, cops say](https://news.yahoo.com/chaos-engulfs-florida-town-massive-120337184.html)
-- Jun 05 - [Ukraine war latest: Leopard tanks ‘seen in battle for first time’](https://news.yahoo.com/ukraine-war-latest-ukraine-launches-065455646.html)
+- Jun 05 - [Supreme Court rejects case of woman on Alabama death row](https://news.yahoo.com/supreme-court-rejects-case-woman-144714766.html)
+- Jun 05 - [Shopping for a DIY dad? Save up to 52% on name-brand tools on Amazon for Father's Day](https://news.yahoo.com/amazon-canada-tools-sale-fathers-day-143035645.html)
+- Jun 05 - [Russia bragged that it easily defeated a Ukrainian tank attack, but even pro-Russia bloggers say the battle didn't go well](https://news.yahoo.com/russia-bragged-easily-defeated-ukrainian-142450239.html)
+- Jun 05 - [India suspension bridge collapses for a second time](https://news.yahoo.com/india-suspension-bridge-collapses-second-131858210.html)
+- Jun 05 - [Groom wins case against stable boss who refused to dismount from horse during meeting](https://news.yahoo.com/groom-wins-case-against-stable-125647974.html)
 <!-- feed end -->
