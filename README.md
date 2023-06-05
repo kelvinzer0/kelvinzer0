@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [Lexus LBX is a city-friendly, Toyota-based crossover for Europe](https://www.autoblog.com/2023/06/05/lexus-lbx-is-a-city-friendly-toyota-based-crossover-for-europe/)
+- Jun 05 - [‘I'm a healthy GP – but I was shocked by the effect three slices of pizza could have’](https://news.yahoo.com/damage-three-slices-pizza-really-125558924.html)
 - Jun 05 - [Migrants demanding plush hotels are taking the taxpayer for fools](https://news.yahoo.com/migrants-demanding-plush-hotels-taking-123439279.html)
 - Jun 05 - [Chaos engulfs Florida town when massive pop-up party blocks multiple roads, cops say](https://news.yahoo.com/chaos-engulfs-florida-town-massive-120337184.html)
-- Jun 05 - [Here’s why Haley thinks DeSantis is going after Disney](https://news.yahoo.com/being-hypocritical-haley-criticizes-desantis-014941400.html)
-- Jun 05 - [Nazi Symbols on Ukraine’s Front Lines Highlight Thorny Issues of History](https://news.yahoo.com/nazi-symbols-ukraine-front-lines-114825778.html)
-- Jun 05 - ['You can make $60-80k': This TikToker encourages women to find 'lazy girl jobs' — which she defines as something you can 'quiet' quit. And the insight has viewers excited](https://finance.yahoo.com/news/60-80k-tiktoker-encourages-women-110000811.html)
+- Jun 05 - [Ukraine war latest: Leopard tanks ‘seen in battle for first time’](https://news.yahoo.com/ukraine-war-latest-ukraine-launches-065455646.html)
 <!-- feed end -->
