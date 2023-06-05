@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [The ex-wrestler thought to be Lauren Boebert's dad said his image has been 'tarnished considerably' from being linked to her](https://news.yahoo.com/ex-wrestler-thought-lauren-boeberts-030331739.html)
-- Jun 05 - [‘He’s being hypocritical’: Haley criticizes DeSantis’ handling of Disney](https://news.yahoo.com/being-hypocritical-haley-criticizes-desantis-014941400.html)
+- Jun 05 - ['I Think He's Toast': Watergate Prosecutor Says Trump Case Is Now 'So Strong'](https://news.yahoo.com/think-hes-toast-watergate-prosecutor-055129624.html)
+- Jun 05 - [Thousands rally against ruling party in Poland](https://news.yahoo.com/thousands-rally-against-ruling-party-050301490.html)
+- Jun 05 - [The ex-wrestler once thought to be Lauren Boebert's dad said his image has been 'tarnished considerably' from being linked to her](https://news.yahoo.com/ex-wrestler-thought-lauren-boeberts-030331739.html)
 - Jun 05 - [Florida Businessman Says ‘Entire Family’ Was on Crashed Plane Behind D.C. Chaos](https://news.yahoo.com/crashed-plane-behind-d-c-015251405.html)
 - Jun 05 - [Far-Right Turns on Marjorie Taylor Greene—And MTG Hits Back in Text to Matt Gaetz](https://news.yahoo.com/far-turns-marjorie-taylor-greene-003705018.html)
-- Jun 05 - [A New York couple who saw their cupcake empire soar to a $66 million business before going bust say there's never been a moment of regret selling the business  — and wouldn't write off doing it again](https://news.yahoo.com/york-couple-saw-cupcake-empire-010502560.html)
 <!-- feed end -->
