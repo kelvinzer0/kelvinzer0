@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [American J-pop group takes social media break after cultural appropriation accusations](https://news.yahoo.com/american-j-pop-group-takes-211541103.html)
+- Jun 05 - [California law enforcement intercepted a second plane in Sacramento carrying relocated migrants, as DeSantis remains mum about his involvement](https://news.yahoo.com/california-law-enforcement-intercepted-second-205620522.html)
+- Jun 05 - [Oklahoma school board approves what would be the 1st taxpayer-funded religious school in US](https://news.yahoo.com/oklahoma-school-board-approves-1st-205041303.html)
 - Jun 05 - [Trump Loses It as Lawyers Push DOJ Not to Charge Him](https://news.yahoo.com/trump-loses-lawyers-beg-doj-204833199.html)
-- Jun 05 - [ChargePoint's stock swung wildly after releasing earnings, the company's CEO gives his take](https://finance.yahoo.com/video/chargepoints-stock-swung-wildly-releasing-204712539.html)
-- Jun 05 - [15 Things That Have Actually Somehow Gotten Cheaper Over Time (Even With Inflation)](https://news.yahoo.com/15-things-actually-somehow-gotten-204603017.html)
-- Jun 05 - [DeSantis or Trump? Hear what Republican voters in Iowa are saying](https://news.yahoo.com/why-republican-voters-looking-alternative-182238713.html)
-- Jun 05 - [Corporate girlie aesthetic dominating TikTok is proof that Gen Z isn’t just about ‘quiet quitting’](https://news.yahoo.com/corporate-girlie-aesthetic-dominating-tiktok-202503473.html)
+- Jun 05 - [College graduate caught working during commencement sparks conversation about Gen Z's fixation with corporate life: 'Gotta save that limited PTO'](https://news.yahoo.com/college-graduate-caught-working-during-commencement-sparks-conversation-about-gen-zs-fixation-with-corporate-life-gotta-save-that-limited-pto-202503858.html)
 <!-- feed end -->
