@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Trump goes on rant about possible DOJ charges after his lawyers meet federal prosecutors over Mar-a-Lago documents](https://news.yahoo.com/trump-goes-rant-possible-doj-194100811.html)
-- Jun 05 - [Billionaire investor Jeff Greene made $800 million betting against the last housing bubble. He just rang the alarm on US real estate.](https://finance.yahoo.com/news/billionaire-investor-jeff-greene-made-193339342.html)
-- Jun 05 - [How Apple's stock reacted to Vision Pro announcement](https://finance.yahoo.com/video/apples-stock-reacted-vision-pro-192217722.html)
-- Jun 05 - [U.S. House panel to pursue contempt of Congress proceedings against FBI](https://news.yahoo.com/fbi-director-wray-face-contempt-190751532.html)
-- Jun 05 - [House Oversight leaders clash after viewing FBI document on Biden allegations](https://news.yahoo.com/house-oversight-leaders-clash-viewing-185832270.html)
+- Jun 05 - [Trump Loses It as Lawyers Push DOJ Not to Charge Him](https://news.yahoo.com/trump-loses-lawyers-beg-doj-204833199.html)
+- Jun 05 - [ChargePoint's stock swung wildly after releasing earnings, the company's CEO gives his take](https://finance.yahoo.com/video/chargepoints-stock-swung-wildly-releasing-204712539.html)
+- Jun 05 - [15 Things That Have Actually Somehow Gotten Cheaper Over Time (Even With Inflation)](https://news.yahoo.com/15-things-actually-somehow-gotten-204603017.html)
+- Jun 05 - [DeSantis or Trump? Hear what Republican voters in Iowa are saying](https://news.yahoo.com/why-republican-voters-looking-alternative-182238713.html)
+- Jun 05 - [Corporate girlie aesthetic dominating TikTok is proof that Gen Z isn’t just about ‘quiet quitting’](https://news.yahoo.com/corporate-girlie-aesthetic-dominating-tiktok-202503473.html)
 <!-- feed end -->
