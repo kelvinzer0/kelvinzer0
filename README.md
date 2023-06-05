@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - ['You can make $60-80k': This TikToker encourages women to find 'lazy girl jobs' — which she defines as something you can 'quiet' quit. And the insight has viewers excited](https://finance.yahoo.com/news/60-80k-tiktoker-encourages-women-110000811.html)
 - Jun 05 - [Jack Dorsey's Wild Endorsement For President Has People Saying, WTF?](https://news.yahoo.com/jack-dorseys-wild-endorsement-president-092047261.html)
+- Jun 05 - [How you can humanely kill a Burmese python and other big snake tips and pointers](https://news.yahoo.com/humanely-kill-burmese-python-other-090144926.html)
 - Jun 05 - [Prigozhin alleges Wagner mercenaries captured Russian lieutenant colonel](https://news.yahoo.com/prigozhin-alleges-wagner-mercenaries-captured-082400319.html)
 - Jun 05 - [Days after he was criticized for copying Trump's speech, Ron DeSantis rolled up to an Iowa campaign event with a speech uncannily similar to the one Winston Churchill gave during World War II](https://news.yahoo.com/days-criticized-copying-trumps-speech-080430250.html)
-- Jun 05 - [Mary Trump Shows GOP Wannabes How To Give 'Loser' Trump A Lesson In 'Humiliation'](https://news.yahoo.com/mary-trump-shows-gop-wannabes-075628097.html)
-- Jun 05 - [Jen Psaki Spots ‘Awkward’ Thing About Fox News' Phony LGBTQ Outrage](https://news.yahoo.com/jen-psaki-spots-awkward-thing-072244125.html)
 <!-- feed end -->
