@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [Migrants demanding plush hotels are taking the taxpayer for fools](https://news.yahoo.com/migrants-demanding-plush-hotels-taking-123439279.html)
+- Jun 05 - [Chaos engulfs Florida town when massive pop-up party blocks multiple roads, cops say](https://news.yahoo.com/chaos-engulfs-florida-town-massive-120337184.html)
+- Jun 05 - [Here’s why Haley thinks DeSantis is going after Disney](https://news.yahoo.com/being-hypocritical-haley-criticizes-desantis-014941400.html)
+- Jun 05 - [Nazi Symbols on Ukraine’s Front Lines Highlight Thorny Issues of History](https://news.yahoo.com/nazi-symbols-ukraine-front-lines-114825778.html)
 - Jun 05 - ['You can make $60-80k': This TikToker encourages women to find 'lazy girl jobs' — which she defines as something you can 'quiet' quit. And the insight has viewers excited](https://finance.yahoo.com/news/60-80k-tiktoker-encourages-women-110000811.html)
-- Jun 05 - [Jack Dorsey's Wild Endorsement For President Has People Saying, WTF?](https://news.yahoo.com/jack-dorseys-wild-endorsement-president-092047261.html)
-- Jun 05 - [How you can humanely kill a Burmese python and other big snake tips and pointers](https://news.yahoo.com/humanely-kill-burmese-python-other-090144926.html)
-- Jun 05 - [Prigozhin alleges Wagner mercenaries captured Russian lieutenant colonel](https://news.yahoo.com/prigozhin-alleges-wagner-mercenaries-captured-082400319.html)
-- Jun 05 - [Days after he was criticized for copying Trump's speech, Ron DeSantis rolled up to an Iowa campaign event with a speech uncannily similar to the one Winston Churchill gave during World War II](https://news.yahoo.com/days-criticized-copying-trumps-speech-080430250.html)
 <!-- feed end -->
