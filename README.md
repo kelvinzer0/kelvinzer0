@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [Taiwan Strait: Chinese ship 'cuts off U.S. destroyer'](https://news.yahoo.com/taiwan-strait-chinese-ship-cuts-092555563.html)
 - Jun 05 - [Jack Dorsey's Wild Endorsement For President Has People Saying, WTF?](https://news.yahoo.com/jack-dorseys-wild-endorsement-president-092047261.html)
 - Jun 05 - [Prigozhin alleges Wagner mercenaries captured Russian lieutenant colonel](https://news.yahoo.com/prigozhin-alleges-wagner-mercenaries-captured-082400319.html)
 - Jun 05 - [Days after he was criticized for copying Trump's speech, Ron DeSantis rolled up to an Iowa campaign event with a speech uncannily similar to the one Winston Churchill gave during World War II](https://news.yahoo.com/days-criticized-copying-trumps-speech-080430250.html)
 - Jun 05 - [Mary Trump Shows GOP Wannabes How To Give 'Loser' Trump A Lesson In 'Humiliation'](https://news.yahoo.com/mary-trump-shows-gop-wannabes-075628097.html)
+- Jun 05 - [Jen Psaki Spots ‘Awkward’ Thing About Fox News' Phony LGBTQ Outrage](https://news.yahoo.com/jen-psaki-spots-awkward-thing-072244125.html)
 <!-- feed end -->
