@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [Splendid isolation and shifting sands: France's Mont Saint-Michel](https://news.yahoo.com/splendid-isolation-shifting-sands-frances-173310338.html)
+- Jun 05 - [UC student says she failed assignment for using term 'biological women'](https://news.yahoo.com/uc-student-says-she-failed-171330328.html)
+- Jun 05 - [California investigators suspect Florida Gov. Ron DeSantis planned the flight carrying 16 migrants who were 'dumped' outside Sacramento church](https://news.yahoo.com/california-investigators-suspect-florida-gov-163658086.html)
 - Jun 05 - [Controversial livestreamer slapped in the face while walking busy Japanese street](https://news.yahoo.com/controversial-livestreamer-slapped-face-while-162250674.html)
 - Jun 05 - ['More alarming every hour': Russians admit Ukraine gains. Is counteroffensive underway? Live updates](https://news.yahoo.com/more-alarming-every-hour-russians-161023172.html)
-- Jun 05 - [Missouri man set for execution on 'emotional roller coaster,' attorney says](https://news.yahoo.com/missouri-man-set-execution-emotional-161020633.html)
-- Jun 05 - [Driver dies after Dodge Challenger loses control on I-85, hits a tree and splits in half](https://news.yahoo.com/driver-dies-dodge-challenger-loses-153241425.html)
-- Jun 05 - [16 years ago, people spent days in lines around the block to buy iPhones. Apple is announcing a new gadget today and no one seems to care.](https://news.yahoo.com/16-years-ago-people-spent-153115723.html)
 <!-- feed end -->
