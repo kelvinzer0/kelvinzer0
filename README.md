@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Jun 05 - [‘He’s being hypocritical’: Haley criticizes DeSantis’ handling of Disney](https://news.yahoo.com/being-hypocritical-haley-criticizes-desantis-014941400.html)
 - Jun 05 - [Florida Businessman Says ‘Entire Family’ Was on Crashed Plane Behind D.C. Chaos](https://news.yahoo.com/crashed-plane-behind-d-c-015251405.html)
 - Jun 05 - [Far-Right Turns on Marjorie Taylor Greene—And MTG Hits Back in Text to Matt Gaetz](https://news.yahoo.com/far-turns-marjorie-taylor-greene-003705018.html)
-- Jun 05 - [25 "Cheating Death" Stories That Were So Intense, People Really, Really, Reaaaallly Wanted To Share Them](https://news.yahoo.com/people-sharing-cheating-death-experiences-011603274.html)
+- Jun 05 - [A New York couple who saw their cupcake empire soar to a $66 million business before going bust say there's never been a moment of regret selling the business  — and wouldn't write off doing it again](https://news.yahoo.com/york-couple-saw-cupcake-empire-010502560.html)
 <!-- feed end -->
