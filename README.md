@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 05 - [Trump attorneys arrive at Justice Department](https://news.yahoo.com/trump-attorneys-arrive-justice-department-154925836.html)
+- Jun 05 - [Casey DeSantis Steals a Fashion Idea From Melania Trump That Didn't Go Over Well the First Time](https://news.yahoo.com/casey-desantis-steals-fashion-idea-145253162.html)
 - Jun 05 - [Supreme Court rejects case of woman on Alabama death row](https://news.yahoo.com/supreme-court-rejects-case-woman-144714766.html)
-- Jun 05 - [Shopping for a DIY dad? Save up to 52% on name-brand tools on Amazon for Father's Day](https://news.yahoo.com/amazon-canada-tools-sale-fathers-day-143035645.html)
-- Jun 05 - [Russia bragged that it easily defeated a Ukrainian tank attack, but even pro-Russia bloggers say the battle didn't go well](https://news.yahoo.com/russia-bragged-easily-defeated-ukrainian-142450239.html)
-- Jun 05 - [India suspension bridge collapses for a second time](https://news.yahoo.com/india-suspension-bridge-collapses-second-131858210.html)
-- Jun 05 - [Groom wins case against stable boss who refused to dismount from horse during meeting](https://news.yahoo.com/groom-wins-case-against-stable-125647974.html)
+- Jun 05 - [Footage of a YouTuber saying she canceled an adoption because she wouldn't be able to film the child has resurfaced, shocking viewers](https://news.yahoo.com/footage-youtuber-saying-she-canceled-143912820.html)
+- Jun 05 - [Woman shoplifted, fought manager, and urinated in gas station trash can, police say](https://news.yahoo.com/woman-shoplifted-fought-manager-urinated-143631948.html)
 <!-- feed end -->
