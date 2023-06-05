@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [‘Cryptic’ mountain creature — with 9 babies on its back — discovered as new species](https://news.yahoo.com/cryptic-mountain-creature-9-babies-175608289.html)
-- Jun 05 - [Marjorie Taylor Greene slams Steve Bannon after he calls for primary challenge, saying she's 'done' with him in fiery texts to Matt Gaetz](https://news.yahoo.com/marjorie-taylor-greene-slams-steve-174945984.html)
-- Jun 05 - [Driver dies after Dodge Challenger loses control on I-85, hits a tree and splits in half](https://news.yahoo.com/driver-dies-dodge-challenger-loses-153241425.html)
-- Jun 05 - [GOP governor says he isn’t running for president. Here’s what that means for the race](https://news.yahoo.com/gop-governor-says-isn-t-172715491.html)
-- Jun 05 - [Tim Scott Goes on ‘The View,’ Rails Against Hosts’ ‘Offensive’ Comments About Him](https://news.yahoo.com/tim-scott-goes-view-rails-172516749.html)
+- Jun 05 - [Trump goes on rant about possible DOJ charges after his lawyers meet federal prosecutors over Mar-a-Lago documents](https://news.yahoo.com/trump-goes-rant-possible-doj-194100811.html)
+- Jun 05 - [Billionaire investor Jeff Greene made $800 million betting against the last housing bubble. He just rang the alarm on US real estate.](https://finance.yahoo.com/news/billionaire-investor-jeff-greene-made-193339342.html)
+- Jun 05 - [How Apple's stock reacted to Vision Pro announcement](https://finance.yahoo.com/video/apples-stock-reacted-vision-pro-192217722.html)
+- Jun 05 - [U.S. House panel to pursue contempt of Congress proceedings against FBI](https://news.yahoo.com/fbi-director-wray-face-contempt-190751532.html)
+- Jun 05 - [House Oversight leaders clash after viewing FBI document on Biden allegations](https://news.yahoo.com/house-oversight-leaders-clash-viewing-185832270.html)
 <!-- feed end -->
