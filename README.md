@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 05 - [US releases video of Chinese ship's 'unsafe maneuver'](https://news.yahoo.com/us-releases-video-chinese-warships-071108549.html)
+- Jun 05 - [Prigozhin alleges Wagner mercenaries captured Russian lieutenant colonel](https://news.yahoo.com/prigozhin-alleges-wagner-mercenaries-captured-082400319.html)
+- Jun 05 - [Mary Trump Shows GOP Wannabes How To Give 'Loser' Trump A Lesson In 'Humiliation'](https://news.yahoo.com/mary-trump-shows-gop-wannabes-075628097.html)
 - Jun 05 - ['I Think He's Toast': Watergate Prosecutor Says Trump Case Is Now 'So Strong'](https://news.yahoo.com/think-hes-toast-watergate-prosecutor-055129624.html)
 - Jun 05 - [A Carnival cruise passenger was arrested by the FBI for sexually abusing his 9-year-old daughter](https://news.yahoo.com/carnival-cruise-passenger-arrested-fbi-054441739.html)
-- Jun 05 - [US Navy shows Chinese warship's 'unsafe interaction' near Taiwan](https://uk.news.yahoo.com/us-navy-releases-video-chinese-031758248.html)
 - Jun 05 - [The ex-wrestler once thought to be Lauren Boebert's dad said his image has been 'tarnished considerably' from being linked to her](https://news.yahoo.com/ex-wrestler-thought-lauren-boeberts-030331739.html)
 <!-- feed end -->
