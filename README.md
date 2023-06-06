@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Strangers move in, make 79-year-old ‘a prisoner in his own home,’ Texas officials say](https://news.yahoo.com/strangers-move-79-old-prisoner-201911026.html)
+- Jun 06 - [Donald Trump faces skeptical court in New York fraud appeal](https://news.yahoo.com/donald-trump-faces-skeptical-court-200313163.html)
+- Jun 06 - [A 4-year-old was bitten by a copperhead snake. Even 10 vials of antivenom didn’t stop the reaction](https://news.yahoo.com/4-old-bitten-copperhead-snake-190745004.html)
+- Jun 06 - [Massachusetts mom dies by suicide days after giving birth to twins](https://news.yahoo.com/massachusetts-mom-dies-suicide-days-190429796.html)
 - Jun 06 - [Conservatives revolt against GOP leaders on House floor](https://news.yahoo.com/conservatives-revolt-against-gop-leaders-190337374.html)
-- Jun 06 - [‘They were growing’: Woman claims her extreme digestive issues were caused by raw chia seeds in viral PSA](https://news.yahoo.com/were-growing-woman-claims-her-184711089.html)
-- Jun 06 - [Barr pushes back on Trump: This is not a ‘witch hunt’](https://news.yahoo.com/barr-pushes-back-trump-not-184702634.html)
-- Jun 06 - [Ron DeSantis loses big in court as judge issues scathing ruling on his anti-trans healthcare law: 'Gender identity is real'](https://news.yahoo.com/ron-desantis-loses-big-court-184134165.html)
-- Jun 06 - [Road Rage Incident Kills Utah Porsche Club Members](https://news.yahoo.com/road-rage-incident-kills-utah-180000827.html)
 <!-- feed end -->
