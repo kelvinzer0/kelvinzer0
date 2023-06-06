@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - ['Ask for help': Easton cop's wife takes own life 9 days after giving birth to twins](https://news.yahoo.com/ask-help-easton-cops-wife-120918420.html)
+- Jun 06 - [Supreme Court opened the door to states' voting restrictions. Now a new ruling could widen them.](https://news.yahoo.com/supreme-court-opened-door-states-115553940.html)
 - Jun 06 - [Orcas threw a yacht around 'like a rag doll' and ripped off both rudders, the latest example of a killer-whale attack](https://news.yahoo.com/orcas-threw-yacht-around-rag-105525147.html)
 - Jun 06 - [A woman who was denied boarding by Spirit Airlines for being 'too intoxicated' slapped a gate agent, local media reports](https://news.yahoo.com/woman-denied-boarding-spirit-airlines-102632792.html)
-- Jun 06 - [Germany's Scholz: Kakhovka dam breach in line with Putin's aggression](https://news.yahoo.com/germanys-scholz-kakhovka-dam-breach-100924734.html)
-- Jun 06 - [Ford recalls 125,000 vehicles over engine failures that can cause fires](https://finance.yahoo.com/news/ford-recalls-more-125-000-083752042.html)
-- Jun 06 - [Conservative Pundit Says 4 Things Show It’s ‘Gotten Very, Very Real’ For Donald Trump](https://news.yahoo.com/conservative-pundit-says-4-things-083717140.html)
+- Jun 06 - [Russian unit that blew up Kakhovka Hydroelectric Power Plant is named](https://news.yahoo.com/presidents-office-names-people-possibly-091816762.html)
 <!-- feed end -->
