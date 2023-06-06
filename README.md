@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Conservatives revolt against GOP leaders on House floor](https://news.yahoo.com/conservatives-revolt-against-gop-leaders-190337374.html)
+- Jun 06 - [‘They were growing’: Woman claims her extreme digestive issues were caused by raw chia seeds in viral PSA](https://news.yahoo.com/were-growing-woman-claims-her-184711089.html)
+- Jun 06 - [Barr pushes back on Trump: This is not a ‘witch hunt’](https://news.yahoo.com/barr-pushes-back-trump-not-184702634.html)
+- Jun 06 - [Ron DeSantis loses big in court as judge issues scathing ruling on his anti-trans healthcare law: 'Gender identity is real'](https://news.yahoo.com/ron-desantis-loses-big-court-184134165.html)
 - Jun 06 - [Road Rage Incident Kills Utah Porsche Club Members](https://news.yahoo.com/road-rage-incident-kills-utah-180000827.html)
-- Jun 06 - [People who were whisked away in golf carts to try out Apple's $3,500 headset are calling it 'magic' that is 'still searching for a purpose'](https://news.yahoo.com/people-were-whisked-away-golf-174521131.html)
-- Jun 06 - [A federal judge says she'll reveal who is backing George Santos' bond, but she's giving the GOP lawmaker one last chance to appeal](https://news.yahoo.com/federal-judge-says-shell-reveal-173918391.html)
-- Jun 06 - [US cannot ban people convicted of non-violent crimes from owning guns-appeals court](https://news.yahoo.com/us-cannot-disarm-people-convicted-170659116.html)
-- Jun 06 - [US calls Roger Waters performance in Berlin 'deeply offensive to Jewish people'](https://news.yahoo.com/us-calls-roger-waters-performance-170005118.html)
 <!-- feed end -->
