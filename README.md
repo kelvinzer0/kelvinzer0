@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [China's economy is in trouble: What does that mean for the U.S.?](https://news.yahoo.com/chinas-economy-is-in-trouble-what-does-that-mean-for-the-us-141234713.html)
+- Jun 06 - [Oregon breakaway effort is down to just 8 votes, deepening urban-rural divide](https://news.yahoo.com/oregon-breakaway-effort-down-just-140041034.html)
+- Jun 06 - [A 32-year-old DJ got his tinnitus checked out and discovered he had a rare cancer](https://news.yahoo.com/32-old-dj-got-tinnitus-135032933.html)
+- Jun 06 - [Plane that crashed in Virginia lost contact with air traffic controllers during ascent, feds say](https://news.yahoo.com/plane-crashed-virginia-lost-contact-132750841.html)
 - Jun 06 - [Man charged in the sexual assaults of 4 women over a decade ago after his DNA was pulled from a drinking glass at an event, prosecutors say](https://news.yahoo.com/man-charged-sexual-assaults-4-112213100.html)
-- Jun 06 - [Elon Musk says he's happy to share Tesla's driverless technology with other carmakers after General Motors' CEO says electric cars won't be profitable for years](https://news.yahoo.com/elon-musk-says-hes-happy-121812646.html)
-- Jun 06 - ['Ask for help': Easton cop's wife takes own life 9 days after giving birth to twins](https://news.yahoo.com/ask-help-easton-cops-wife-120918420.html)
-- Jun 06 - [Engineers modeled the disastrous flood that would follow a key dam in Ukraine being destroyed. The reality is even worse, they say.](https://news.yahoo.com/engineers-modeled-disastrous-flood-key-120046081.html)
-- Jun 06 - [Supreme Court tossed out heart of Voting Rights Act a decade ago, prompting wave of new voting rules](https://news.yahoo.com/supreme-court-opened-door-states-115553940.html)
 <!-- feed end -->
