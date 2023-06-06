@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Gaza Zoo fights to survive](https://news.yahoo.com/gaza-zoo-fights-survive-163434602.html)
+- Jun 06 - [17-year-old Florida girl stabbed 15 times before attacker cuts his own throat. What we know](https://news.yahoo.com/17-old-florida-girl-stabbed-155816059.html)
+- Jun 06 - [Russia's Shoigu: Ukraine's counter-offensive has been thwarted](https://news.yahoo.com/russias-shoigu-ukraines-counter-offensive-155226283.html)
+- Jun 06 - [Mines are being swept away in the floodwaters and exploding after a key dam in Ukraine was destroyed](https://news.yahoo.com/mines-being-swept-away-floodwaters-152343609.html)
 - Jun 06 - [China's economy is in trouble: What does that mean for the U.S.?](https://news.yahoo.com/chinas-economy-is-in-trouble-what-does-that-mean-for-the-us-141234713.html)
-- Jun 06 - [Oregon breakaway effort is down to just 8 votes, deepening urban-rural divide](https://news.yahoo.com/oregon-breakaway-effort-down-just-140041034.html)
-- Jun 06 - [A 32-year-old DJ got his tinnitus checked out and discovered he had a rare cancer](https://news.yahoo.com/32-old-dj-got-tinnitus-135032933.html)
-- Jun 06 - [Plane that crashed in Virginia lost contact with air traffic controllers during ascent, feds say](https://news.yahoo.com/plane-crashed-virginia-lost-contact-132750841.html)
-- Jun 06 - [Elon Musk says he's happy to share Tesla's driverless technology with other carmakers after General Motors' CEO says electric cars won't be profitable for years](https://news.yahoo.com/elon-musk-says-hes-happy-121812646.html)
 <!-- feed end -->
