@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [I'm An Incredibly Dumb Man So My Brain Was Completely Blown After Seeing These 22 Absolutely Incredible Pictures For The Very First Time Last Week](https://news.yahoo.com/literal-sub-atomic-sized-brain-224658836.html)
+- Jun 06 - [Democrats: Lives could be lost due to Republican walkout in Oregon Legislature](https://news.yahoo.com/democrats-lives-could-lost-due-220949355.html)
+- Jun 06 - [Western Idaho Fair cancels grandstand concert after rape lawsuit against country singer](https://news.yahoo.com/western-idaho-fair-cancels-grandstand-214140510.html)
 - Jun 06 - [Strangers move in, make 79-year-old ‘a prisoner in his own home,’ Texas officials say](https://news.yahoo.com/strangers-move-79-old-prisoner-201911026.html)
 - Jun 06 - [Donald Trump faces skeptical court in New York fraud appeal](https://news.yahoo.com/donald-trump-faces-skeptical-court-200313163.html)
-- Jun 06 - [Tesla Model 3 now costs as little as $23K in California thanks to tax credits](https://finance.yahoo.com/news/tesla-model-3-now-costs-as-little-as-23k-in-california-thanks-to-tax-credits-195807162.html)
-- Jun 06 - [A 4-year-old was bitten by a copperhead snake. Even 10 vials of antivenom didn’t stop the reaction](https://news.yahoo.com/4-old-bitten-copperhead-snake-190745004.html)
-- Jun 06 - [Massachusetts mom dies by suicide days after giving birth to twins](https://news.yahoo.com/massachusetts-mom-dies-suicide-days-190429796.html)
 <!-- feed end -->
