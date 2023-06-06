@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Man charged in the sexual assaults of 4 women over a decade ago after his DNA was pulled from a drinking glass at an event, prosecutors say](https://news.yahoo.com/man-charged-sexual-assaults-4-112213100.html)
+- Jun 06 - [Elon Musk says he's happy to share Tesla's driverless technology with other carmakers after General Motors' CEO says electric cars won't be profitable for years](https://news.yahoo.com/elon-musk-says-hes-happy-121812646.html)
 - Jun 06 - ['Ask for help': Easton cop's wife takes own life 9 days after giving birth to twins](https://news.yahoo.com/ask-help-easton-cops-wife-120918420.html)
-- Jun 06 - [Supreme Court opened the door to states' voting restrictions. Now a new ruling could widen them.](https://news.yahoo.com/supreme-court-opened-door-states-115553940.html)
-- Jun 06 - [Orcas threw a yacht around 'like a rag doll' and ripped off both rudders, the latest example of a killer-whale attack](https://news.yahoo.com/orcas-threw-yacht-around-rag-105525147.html)
-- Jun 06 - [A woman who was denied boarding by Spirit Airlines for being 'too intoxicated' slapped a gate agent, local media reports](https://news.yahoo.com/woman-denied-boarding-spirit-airlines-102632792.html)
-- Jun 06 - [Russian unit that blew up Kakhovka Hydroelectric Power Plant is named](https://news.yahoo.com/presidents-office-names-people-possibly-091816762.html)
+- Jun 06 - [Engineers modeled the disastrous flood that would follow a key dam in Ukraine being destroyed. The reality is even worse, they say.](https://news.yahoo.com/engineers-modeled-disastrous-flood-key-120046081.html)
+- Jun 06 - [Supreme Court tossed out heart of Voting Rights Act a decade ago, prompting wave of new voting rules](https://news.yahoo.com/supreme-court-opened-door-states-115553940.html)
 <!-- feed end -->
