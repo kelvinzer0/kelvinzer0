@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 06 - [Trump's lawyers say defamation claim by NY writer must fail because jury agreed he never raped her](https://news.yahoo.com/trumps-lawyers-defamation-claim-ny-034601734.html)
+- Jun 06 - [Russia says U.S.-built F-16s could 'accommodate' nuclear weapons if sent to Ukraine](https://news.yahoo.com/russia-says-u-built-f-030404651.html)
+- Jun 06 - [‘I am not safe with you’: Home video shows pattern of control and manipulation hours before Enoch murder-suicide](https://news.yahoo.com/am-not-safe-home-video-022354991.html)
 - Jun 06 - [This Teacher Taught Her Students About Their Constitutional Rights. Less Than Two Months Later, Her Role Was Terminated.](https://news.yahoo.com/teacher-reprimanded-admin-said-were-012341713.html)
 - Jun 06 - [Americans Are Sharing Things That They Immediately Identify As European, And Maybe You Agree With A Few Of These](https://news.yahoo.com/americans-sharing-most-european-things-011602138.html)
-- Jun 06 - [Rep. George Santos says he'd rather forfeit his $500,000 bond and go to jail than out the people who guaranteed the money: court docs](https://news.yahoo.com/rep-george-santos-says-hed-001019868.html)
-- Jun 05 - [Two Australians facing death penalty in Vietnam granted clemency](https://news.yahoo.com/two-australians-facing-death-penalty-232915783.html)
-- Jun 05 - [Tennessee woman accused of hiring hitman on dark web to kill her hiking buddy's wife](https://news.yahoo.com/tennessee-woman-accused-hiring-hitman-232524583.html)
 <!-- feed end -->
