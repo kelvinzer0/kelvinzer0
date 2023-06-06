@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Ukraine war latest: Zelensky condemns Russian 'terrorists' after dam attack](https://news.yahoo.com/ukraine-war-zone-flooding-amid-043436106.html)
+- Jun 06 - [Orcas threw a yacht around 'like a rag doll' and ripped off both rudders, the latest example of a killer-whale attack](https://news.yahoo.com/orcas-threw-yacht-around-rag-105525147.html)
+- Jun 06 - [A woman who was denied boarding by Spirit Airlines for being 'too intoxicated' slapped a gate agent, local media reports](https://news.yahoo.com/woman-denied-boarding-spirit-airlines-102632792.html)
+- Jun 06 - [Germany's Scholz: Kakhovka dam breach in line with Putin's aggression](https://news.yahoo.com/germanys-scholz-kakhovka-dam-breach-100924734.html)
+- Jun 06 - [Ford recalls 125,000 vehicles over engine failures that can cause fires](https://finance.yahoo.com/news/ford-recalls-more-125-000-083752042.html)
 - Jun 06 - [Conservative Pundit Says 4 Things Show It’s ‘Gotten Very, Very Real’ For Donald Trump](https://news.yahoo.com/conservative-pundit-says-4-things-083717140.html)
-- Jun 06 - [Iran unveils what it calls a hypersonic missile able to beat air defenses amid tensions with US](https://news.yahoo.com/iran-unveils-calls-hypersonic-missile-071923826.html)
-- Jun 06 - [Emirates looks at placing new order for long-haul jets](https://finance.yahoo.com/news/emirates-looks-placing-order-long-065129246.html)
-- Jun 06 - [Wagner boss Yevgeny Prigozhin, who spent months on the ground in Bakhmut, said the Kremlin's claims about inflicting heavy losses on Ukraine are 'wild and absurd science fiction'](https://news.yahoo.com/wagner-boss-yevgeny-prigozhin-spent-055808046.html)
 <!-- feed end -->
