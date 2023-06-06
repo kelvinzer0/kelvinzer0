@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [US cannot disarm people convicted of non-violent crimes -appeals court](https://news.yahoo.com/us-cannot-disarm-people-convicted-170659116.html)
-- Jun 06 - [Russia's military falsely claimed to have shredded a Leopard tank. It looks more like abandoned farm equipment.](https://news.yahoo.com/russias-military-falsely-claimed-shredded-164531401.html)
-- Jun 06 - [Judge grants request for George Santos’s bond sponsors to be unsealed](https://news.yahoo.com/judge-grants-request-george-santos-164133527.html)
-- Jun 06 - [A celebrity tattoo artist who charges a minimum of $600 per hour says her clients on TikTok defend her against anyone who says her designs are too expensive](https://news.yahoo.com/celebrity-tattoo-artist-charges-minimum-162431015.html)
-- Jun 06 - [17-year-old Florida girl stabbed 15 times before attacker cuts his own throat. What we know](https://news.yahoo.com/17-old-florida-girl-stabbed-155816059.html)
+- Jun 06 - [Road Rage Incident Kills Utah Porsche Club Members](https://news.yahoo.com/road-rage-incident-kills-utah-180000827.html)
+- Jun 06 - [People who were whisked away in golf carts to try out Apple's $3,500 headset are calling it 'magic' that is 'still searching for a purpose'](https://news.yahoo.com/people-were-whisked-away-golf-174521131.html)
+- Jun 06 - [A federal judge says she'll reveal who is backing George Santos' bond, but she's giving the GOP lawmaker one last chance to appeal](https://news.yahoo.com/federal-judge-says-shell-reveal-173918391.html)
+- Jun 06 - [US cannot ban people convicted of non-violent crimes from owning guns-appeals court](https://news.yahoo.com/us-cannot-disarm-people-convicted-170659116.html)
+- Jun 06 - [US calls Roger Waters performance in Berlin 'deeply offensive to Jewish people'](https://news.yahoo.com/us-calls-roger-waters-performance-170005118.html)
 <!-- feed end -->
