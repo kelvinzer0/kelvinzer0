@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Trump's lawyers say defamation claim by NY writer must fail because jury agreed he never raped her](https://news.yahoo.com/trumps-lawyers-defamation-claim-ny-034601734.html)
+- Jun 06 - [UPDATE 2-Kakhovka dam in southern Ukraine is blown, unleashing flood of water](https://finance.yahoo.com/news/1-ukraine-says-russia-blows-034356038.html)
 - Jun 06 - [Russia says U.S.-built F-16s could 'accommodate' nuclear weapons if sent to Ukraine](https://news.yahoo.com/russia-says-u-built-f-030404651.html)
 - Jun 06 - [‘I am not safe with you’: Home video shows pattern of control and manipulation hours before Enoch murder-suicide](https://news.yahoo.com/am-not-safe-home-video-022354991.html)
 - Jun 06 - [This Teacher Taught Her Students About Their Constitutional Rights. Less Than Two Months Later, Her Role Was Terminated.](https://news.yahoo.com/teacher-reprimanded-admin-said-were-012341713.html)
