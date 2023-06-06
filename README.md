@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 06 - [Ukraine war latest: Ukrainian dam destroyed in blow to counter-offensive](https://news.yahoo.com/ukraine-war-zone-flooding-amid-043436106.html)
+- Jun 06 - [Wagner boss Yevgeny Prigozhin, who spent months on the ground in Bakhmut, said the Kremlin's claims about inflicting heavy losses on Ukraine are 'wild and absurd science fiction'](https://news.yahoo.com/wagner-boss-yevgeny-prigozhin-spent-055808046.html)
 - Jun 06 - [Trump's lawyers say defamation claim by NY writer must fail because jury agreed he never raped her](https://news.yahoo.com/trumps-lawyers-defamation-claim-ny-034601734.html)
-- Jun 06 - [Russia says U.S.-built F-16s could 'accommodate' nuclear weapons if sent to Ukraine](https://news.yahoo.com/russia-says-u-built-f-030404651.html)
 - Jun 06 - [‘I am not safe with you’: Home video shows pattern of control and manipulation hours before Enoch murder-suicide](https://news.yahoo.com/am-not-safe-home-video-022354991.html)
 - Jun 06 - [This Teacher Taught Her Students About Their Constitutional Rights. Less Than Two Months Later, Her Role Was Terminated.](https://news.yahoo.com/teacher-reprimanded-admin-said-were-012341713.html)
 <!-- feed end -->
