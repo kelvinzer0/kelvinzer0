@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 06 - [Gaza Zoo fights to survive](https://news.yahoo.com/gaza-zoo-fights-survive-163434602.html)
+- Jun 06 - [US cannot disarm people convicted of non-violent crimes -appeals court](https://news.yahoo.com/us-cannot-disarm-people-convicted-170659116.html)
+- Jun 06 - [Russia's military falsely claimed to have shredded a Leopard tank. It looks more like abandoned farm equipment.](https://news.yahoo.com/russias-military-falsely-claimed-shredded-164531401.html)
+- Jun 06 - [Judge grants request for George Santos’s bond sponsors to be unsealed](https://news.yahoo.com/judge-grants-request-george-santos-164133527.html)
+- Jun 06 - [A celebrity tattoo artist who charges a minimum of $600 per hour says her clients on TikTok defend her against anyone who says her designs are too expensive](https://news.yahoo.com/celebrity-tattoo-artist-charges-minimum-162431015.html)
 - Jun 06 - [17-year-old Florida girl stabbed 15 times before attacker cuts his own throat. What we know](https://news.yahoo.com/17-old-florida-girl-stabbed-155816059.html)
-- Jun 06 - [Russia's Shoigu: Ukraine's counter-offensive has been thwarted](https://news.yahoo.com/russias-shoigu-ukraines-counter-offensive-155226283.html)
-- Jun 06 - [Mines are being swept away in the floodwaters and exploding after a key dam in Ukraine was destroyed](https://news.yahoo.com/mines-being-swept-away-floodwaters-152343609.html)
-- Jun 06 - [China's economy is in trouble: What does that mean for the U.S.?](https://news.yahoo.com/chinas-economy-is-in-trouble-what-does-that-mean-for-the-us-141234713.html)
 <!-- feed end -->
