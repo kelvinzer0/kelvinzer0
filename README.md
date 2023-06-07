@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Apple’s Coming iPhone 15 Puts Company in a ‘Massive Position of Strength’](https://www.barrons.com/articles/apple-iphone-15-upgrades-stock-a187c9e6?siteid=yhoof2&yptr=yahoo)
+- Jun 07 - [I Took My Trans Daughter To Florida On Vacation. Now I'm Not Sure If We'll Ever Go Back.](https://news.yahoo.com/took-trans-daughter-florida-vacation-123417890.html)
 - Jun 07 - [Ukraine troops 'storm Russia posts near Bakhmut'](https://news.yahoo.com/ukraine-troops-storm-russia-posts-122927116.html)
-- Jun 07 - [Rwanda war crimes suspect unfit for trial: UN court](https://news.yahoo.com/rwanda-war-crimes-suspect-unfit-120803451.html)
+- Jun 07 - [Russian troops flee first line of defense near Kherson... all wet](https://news.yahoo.com/russian-troops-flee-first-line-113700784.html)
 - Jun 07 - [What the US should do with its A-10 Thunderbolt](https://news.yahoo.com/us-10-thunderbolt-110000396.html)
-- Jun 07 - [‘Older generations are so confused': This young woman on TikTok says Gen Z, Millennials don't share the same work ethic as Boomers — 3 reasons why she might be onto something](https://finance.yahoo.com/news/older-generations-confused-young-woman-113000294.html)
-- Jun 07 - [Politics has reached the point where Trump wants to know if Chris Christie has a problem with 'SIZE'](https://news.yahoo.com/politics-reached-point-where-trump-085805555.html)
 <!-- feed end -->
