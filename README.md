@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Tucker Carlson Debuts Twitter Show To Big Numbers; Threatens To Leave Elon Musk-Owned Platform If Anyone Calls Him Out](https://news.yahoo.com/tucker-carlson-debuts-twitter-show-030136393.html)
 - Jun 07 - [Fox News Host Harris Faulkner Caught Telling Whopper About 1918 Pandemic](https://news.yahoo.com/fox-news-host-harris-faulkner-021251714.html)
 - Jun 07 - [High-profile CNN anchors Anderson Cooper, Jake Tapper, and Erin Burnett voiced their concerns about CNN boss Chris Licht: Wall Street Journal](https://news.yahoo.com/high-profile-cnn-anchors-anderson-020349697.html)
 - Jun 07 - [Watch: Chris Christie Slams Trump During Presidential Bid Announcement](https://finance.yahoo.com/video/watch-chris-christie-slams-trump-010100369.html)
 - Jun 06 - [Russian troops flood own positions by destroying dam, risk detonating landmines — Malyar](https://news.yahoo.com/russian-troops-flood-own-positions-231500605.html)
-- Jun 06 - [Filipino Americans defend college graduate who is attacked by Filipino creator for wearing the country’s flag on graduation](https://news.yahoo.com/filipino-americans-defend-college-graduate-222145105.html)
 <!-- feed end -->
