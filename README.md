@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [London Zoo tiger cubs go swimming for first time](https://news.yahoo.com/london-zoo-tiger-cubs-swimming-151729913.html)
+- Jun 07 - [Wild bear rescued after breaking into truck for food](https://news.yahoo.com/wild-bear-rescued-breaking-truck-161023008.html)
+- Jun 07 - [Man wanted in triple homicide is captured in Philadelphia; victims include 2 children](https://news.yahoo.com/man-wanted-triple-homicide-captured-160907463.html)
 - Jun 07 - [Trump Responds to Chris Christie Attacks With … Fat Jokes](https://news.yahoo.com/trump-responds-chris-christie-attacks-150436146.html)
 - Jun 07 - [We are now dangerously close to nuclear war](https://news.yahoo.com/now-dangerously-close-nuclear-war-142925723.html)
 - Jun 07 - [Ukraine-Russia war: Russian troops 'swept away by floodwaters'](https://news.yahoo.com/ukraine-war-latest-nova-kakhovka-065450904.html)
-- Jun 07 - [Tesla stock surges as all Model 3 sedans now qualify for full EV tax credit](https://finance.yahoo.com/news/tesla-stock-surges-as-all-model-3-sedans-now-qualify-for-full-ev-tax-credit-141823296.html)
 <!-- feed end -->
