@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Apple’s Coming iPhone 15 Puts Company in a ‘Massive Position of Strength’](https://www.barrons.com/articles/apple-iphone-15-upgrades-stock-a187c9e6?siteid=yhoof2&yptr=yahoo)
+- Jun 07 - [We are now dangerously close to nuclear war](https://news.yahoo.com/now-dangerously-close-nuclear-war-142925723.html)
+- Jun 07 - [Tesla stock surges as all Model 3 sedans now qualify for full EV tax credit](https://finance.yahoo.com/news/tesla-stock-surges-as-all-model-3-sedans-now-qualify-for-full-ev-tax-credit-141823296.html)
 - Jun 07 - [I Took My Trans Daughter To Florida On Vacation. Now I'm Not Sure If We'll Ever Go Back.](https://news.yahoo.com/took-trans-daughter-florida-vacation-123417890.html)
 - Jun 07 - [Ukraine troops 'storm Russia posts near Bakhmut'](https://news.yahoo.com/ukraine-troops-storm-russia-posts-122927116.html)
-- Jun 07 - [Russian troops flee first line of defense near Kherson... all wet](https://news.yahoo.com/russian-troops-flee-first-line-113700784.html)
-- Jun 07 - [What the US should do with its A-10 Thunderbolt](https://news.yahoo.com/us-10-thunderbolt-110000396.html)
+- Jun 07 - [A man on a Delta flight was accused of groping the woman beside him. He blamed bad eyesight saying he was aiming for her thigh.](https://news.yahoo.com/man-delta-flight-accused-groping-121657190.html)
 <!-- feed end -->
