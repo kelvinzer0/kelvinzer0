@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [White Woman Arrested and Charged in Fatal Shooting of Black Neighbor in Florida](https://news.yahoo.com/white-woman-arrested-charged-fatal-164316730.html)
-- Jun 07 - [Ship officer distracted by cellphone doesn’t see huge vessel until too late, feds say](https://news.yahoo.com/ship-officer-distracted-cellphone-doesn-161921674.html)
-- Jun 07 - [Man wanted in triple homicide is captured in Philadelphia; victims include 2 children](https://news.yahoo.com/man-wanted-triple-homicide-captured-160907463.html)
-- Jun 07 - [Mike Pence, Who Won’t Interact Alone with Women Other Than His Wife, Launches Presidential Bid](https://news.yahoo.com/mike-pence-won-t-interact-154500253.html)
-- Jun 07 - [Trump Responds to Chris Christie Attacks With … Fat Jokes](https://news.yahoo.com/trump-responds-chris-christie-attacks-150436146.html)
+- Jun 07 - [8 Anti-Inflammatory Foods to Add to Your Diet](https://news.yahoo.com/8-anti-inflammatory-foods-add-184155678.html)
+- Jun 07 - [Pope awake and joking after hernia operation](https://news.yahoo.com/pope-awake-joking-hernia-operation-182920026.html)
+- Jun 07 - [Judge threatens to jail Hunter Biden for up to 6 months if he doesn't appear for questioning about his finances in his child support suit](https://news.yahoo.com/judge-threatens-jail-hunter-biden-180743222.html)
+- Jun 07 - [Dude, Gen X is totally unprepared for retirement, survey finds](https://finance.yahoo.com/news/dude-gen-x-is-totally-unprepared-for-retirement-survey-finds-180511077.html)
+- Jun 07 - [Pence argues Jan. 6 is disqualifying for Trump as he launches campaign](https://news.yahoo.com/pence-argues-jan-6-disqualifying-174748938.html)
 <!-- feed end -->
