@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Jun 07 - [Protesters brawl as Southern California school district decides whether to recognize Pride Month](https://news.yahoo.com/protesters-brawl-southern-california-school-044926492.html)
 - Jun 07 - [Clips show aftermath of deadly Virginia school shooting](https://news.yahoo.com/clips-show-aftermath-deadly-virginia-042212638.html)
 - Jun 07 - [Tucker Carlson Debuts Twitter Show To Big Numbers; Threatens To Leave Elon Musk-Owned Platform If Anyone Calls Him Out](https://news.yahoo.com/tucker-carlson-debuts-twitter-show-030136393.html)
+- Jun 07 - [Ukraine Situation Report: Offensive Going Better Than Expected, U.S. Says](https://news.yahoo.com/ukraine-situation-report-offensive-going-024836625.html)
 - Jun 07 - [High-profile CNN anchors Anderson Cooper, Jake Tapper, and Erin Burnett voiced their concerns about CNN boss Chris Licht: Wall Street Journal](https://news.yahoo.com/high-profile-cnn-anchors-anderson-020349697.html)
-- Jun 07 - [You may be running out of time to ‘Shoot the Hooch,’ owner says he doesn’t ‘feel safe’ opening](https://news.yahoo.com/may-running-time-shoot-hooch-014250025.html)
 <!-- feed end -->
