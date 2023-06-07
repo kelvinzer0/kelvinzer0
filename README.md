@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Wild bear rescued after breaking into truck for food](https://news.yahoo.com/wild-bear-rescued-breaking-truck-161023008.html)
+- Jun 07 - [White Woman Arrested and Charged in Fatal Shooting of Black Neighbor in Florida](https://news.yahoo.com/white-woman-arrested-charged-fatal-164316730.html)
+- Jun 07 - [Ship officer distracted by cellphone doesn’t see huge vessel until too late, feds say](https://news.yahoo.com/ship-officer-distracted-cellphone-doesn-161921674.html)
 - Jun 07 - [Man wanted in triple homicide is captured in Philadelphia; victims include 2 children](https://news.yahoo.com/man-wanted-triple-homicide-captured-160907463.html)
+- Jun 07 - [Mike Pence, Who Won’t Interact Alone with Women Other Than His Wife, Launches Presidential Bid](https://news.yahoo.com/mike-pence-won-t-interact-154500253.html)
 - Jun 07 - [Trump Responds to Chris Christie Attacks With … Fat Jokes](https://news.yahoo.com/trump-responds-chris-christie-attacks-150436146.html)
-- Jun 07 - [We are now dangerously close to nuclear war](https://news.yahoo.com/now-dangerously-close-nuclear-war-142925723.html)
-- Jun 07 - [Ukraine-Russia war: Russian troops 'swept away by floodwaters'](https://news.yahoo.com/ukraine-war-latest-nova-kakhovka-065450904.html)
 <!-- feed end -->
