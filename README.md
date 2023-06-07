@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 07 - [Fox News Host Harris Faulkner Caught Telling Whopper About 1918 Pandemic](https://news.yahoo.com/fox-news-host-harris-faulkner-021251714.html)
+- Jun 07 - [High-profile CNN anchors Anderson Cooper, Jake Tapper, and Erin Burnett voiced their concerns about CNN boss Chris Licht: Wall Street Journal](https://news.yahoo.com/high-profile-cnn-anchors-anderson-020349697.html)
 - Jun 07 - [Watch: Chris Christie Slams Trump During Presidential Bid Announcement](https://finance.yahoo.com/video/watch-chris-christie-slams-trump-010100369.html)
 - Jun 06 - [Russian troops flood own positions by destroying dam, risk detonating landmines — Malyar](https://news.yahoo.com/russian-troops-flood-own-positions-231500605.html)
-- Jun 06 - [I'm An Incredibly Dumb Man So My Brain Was Completely Blown After Seeing These 22 Absolutely Incredible Pictures For The Very First Time Last Week](https://news.yahoo.com/literal-sub-atomic-sized-brain-224658836.html)
 - Jun 06 - [Filipino Americans defend college graduate who is attacked by Filipino creator for wearing the country’s flag on graduation](https://news.yahoo.com/filipino-americans-defend-college-graduate-222145105.html)
 <!-- feed end -->
