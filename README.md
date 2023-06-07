@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [A Terrifying Secret in Putin’s War Is Now Impossible to Hide](https://news.yahoo.com/terrifying-secret-putin-war-now-083212064.html)
+- Jun 07 - [Watergate Lawyer John Dean Says He’s ‘Curious’ About 1 Thing In Trump Investigation](https://news.yahoo.com/watergate-lawyer-john-dean-says-074728425.html)
+- Jun 07 - [Two dead at Virginia high school graduation shooting](https://news.yahoo.com/two-dead-virginia-high-school-065530152.html)
 - Jun 07 - [Protesters brawl as Southern California school district decides whether to recognize Pride Month](https://news.yahoo.com/protesters-brawl-southern-california-school-044926492.html)
-- Jun 07 - [Clips show aftermath of deadly Virginia school shooting](https://news.yahoo.com/clips-show-aftermath-deadly-virginia-042212638.html)
 - Jun 07 - [Tucker Carlson Debuts Twitter Show To Big Numbers; Threatens To Leave Elon Musk-Owned Platform If Anyone Calls Him Out](https://news.yahoo.com/tucker-carlson-debuts-twitter-show-030136393.html)
-- Jun 07 - [Ukraine Situation Report: Offensive Going Better Than Expected, U.S. Says](https://news.yahoo.com/ukraine-situation-report-offensive-going-024836625.html)
-- Jun 07 - [High-profile CNN anchors Anderson Cooper, Jake Tapper, and Erin Burnett voiced their concerns about CNN boss Chris Licht: Wall Street Journal](https://news.yahoo.com/high-profile-cnn-anchors-anderson-020349697.html)
 <!-- feed end -->
