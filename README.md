@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [8 Anti-Inflammatory Foods to Add to Your Diet](https://news.yahoo.com/8-anti-inflammatory-foods-add-184155678.html)
-- Jun 07 - [Pope awake and joking after hernia operation](https://news.yahoo.com/pope-awake-joking-hernia-operation-182920026.html)
+- Jun 07 - [Pence launches White House bid with rebuke of Trump](https://news.yahoo.com/pence-launches-white-house-bid-195057496.html)
 - Jun 07 - [Judge threatens to jail Hunter Biden for up to 6 months if he doesn't appear for questioning about his finances in his child support suit](https://news.yahoo.com/judge-threatens-jail-hunter-biden-180743222.html)
 - Jun 07 - [Dude, Gen X is totally unprepared for retirement, survey finds](https://finance.yahoo.com/news/dude-gen-x-is-totally-unprepared-for-retirement-survey-finds-180511077.html)
 - Jun 07 - [Pence argues Jan. 6 is disqualifying for Trump as he launches campaign](https://news.yahoo.com/pence-argues-jan-6-disqualifying-174748938.html)
+- Jun 07 - ['It's just a bad photo!' – Mrs Russia organisers forced to defend pageant winner’s looks](https://news.yahoo.com/pictured-mrs-russia-organisers-forced-174304307.html)
 <!-- feed end -->
