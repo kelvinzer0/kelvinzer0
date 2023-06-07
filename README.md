@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Ukraine troops 'storm Russia posts near Bakhmut'](https://news.yahoo.com/ukraine-troops-storm-russia-posts-122927116.html)
 - Jun 07 - [Rwanda war crimes suspect unfit for trial: UN court](https://news.yahoo.com/rwanda-war-crimes-suspect-unfit-120803451.html)
 - Jun 07 - [What the US should do with its A-10 Thunderbolt](https://news.yahoo.com/us-10-thunderbolt-110000396.html)
+- Jun 07 - [‘Older generations are so confused': This young woman on TikTok says Gen Z, Millennials don't share the same work ethic as Boomers — 3 reasons why she might be onto something](https://finance.yahoo.com/news/older-generations-confused-young-woman-113000294.html)
 - Jun 07 - [Politics has reached the point where Trump wants to know if Chris Christie has a problem with 'SIZE'](https://news.yahoo.com/politics-reached-point-where-trump-085805555.html)
-- Jun 07 - [A teenage girl found her mom's debit card and spent $64,000 on mobile games, wiping out her family's life savings](https://news.yahoo.com/teenage-girl-found-her-moms-084029610.html)
-- Jun 07 - [A Terrifying Secret in Putin’s War Is Now Impossible to Hide](https://news.yahoo.com/terrifying-secret-putin-war-now-083212064.html)
 <!-- feed end -->
