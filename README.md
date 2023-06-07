@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Marjorie Taylor Greene, who previously said climate change is a 'scam,' is now using it as an argument to deter migrants coming into the US](https://news.yahoo.com/marjorie-taylor-greene-previously-said-093234980.html)
+- Jun 07 - [Rwanda war crimes suspect unfit for trial: UN court](https://news.yahoo.com/rwanda-war-crimes-suspect-unfit-120803451.html)
+- Jun 07 - [What the US should do with its A-10 Thunderbolt](https://news.yahoo.com/us-10-thunderbolt-110000396.html)
 - Jun 07 - [Politics has reached the point where Trump wants to know if Chris Christie has a problem with 'SIZE'](https://news.yahoo.com/politics-reached-point-where-trump-085805555.html)
 - Jun 07 - [A teenage girl found her mom's debit card and spent $64,000 on mobile games, wiping out her family's life savings](https://news.yahoo.com/teenage-girl-found-her-moms-084029610.html)
 - Jun 07 - [A Terrifying Secret in Putin’s War Is Now Impossible to Hide](https://news.yahoo.com/terrifying-secret-putin-war-now-083212064.html)
-- Jun 07 - [Watergate Lawyer John Dean Says He’s ‘Curious’ About 1 Thing In Trump Investigation](https://news.yahoo.com/watergate-lawyer-john-dean-says-074728425.html)
 <!-- feed end -->
