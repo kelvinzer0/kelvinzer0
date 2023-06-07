@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 07 - [Okay Okay Okay, I Seriously Can't Stop Laughing At All These Ignorant Americans Who Got Absolutely Roasted Into Oblivion So Far This Year](https://news.yahoo.com/okay-seriously-cant-stop-laughing-223141135.html)
+- Jun 07 - [‘No one has told me I’m being indicted,’ Donald Trump says](https://news.yahoo.com/no-one-told-m-being-222012746.html)
+- Jun 07 - [Trump posts video mocking Christie on social media. Hear his response](https://news.yahoo.com/trump-posts-video-mocking-christie-221251796.html)
 - Jun 07 - [Utah district's Bible ban spurs protest by parents, Republicans](https://news.yahoo.com/utah-republicans-defend-book-removal-210701697.html)
 - Jun 07 - [Judge weighs Missouri GOP dispute over estimated cost of allowing abortions](https://news.yahoo.com/judge-weighs-missouri-gop-dispute-210425435.html)
-- Jun 07 - [‘The damage this can cause is unreal’: Woman secretly records strangers for fake TikTok ‘tea,’ and people are enraged](https://news.yahoo.com/damage-cause-unreal-woman-secretly-201033307.html)
-- Jun 07 - [Pence launches White House bid with rebuke of Trump](https://news.yahoo.com/pence-launches-white-house-bid-195057496.html)
-- Jun 07 - [Judge threatens to jail Hunter Biden for up to 6 months if he doesn't appear for questioning about his finances in his child support suit](https://news.yahoo.com/judge-threatens-jail-hunter-biden-180743222.html)
 <!-- feed end -->
