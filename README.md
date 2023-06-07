@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 07 - [Pence says Trump ‘demanded that I choose between him and the Constitution’ on Jan. 6](https://news.yahoo.com/pence-says-trump-demanded-choose-203814330.html)
-- Jun 07 - [How 'golf's ultimate power broker' helped facilitate PGA Tour-LIV Golf merger](https://sports.yahoo.com/golfs-ultimate-power-broker-helped-202358894.html)
+- Jun 07 - [Utah district's Bible ban spurs protest by parents, Republicans](https://news.yahoo.com/utah-republicans-defend-book-removal-210701697.html)
+- Jun 07 - [Judge weighs Missouri GOP dispute over estimated cost of allowing abortions](https://news.yahoo.com/judge-weighs-missouri-gop-dispute-210425435.html)
 - Jun 07 - [‘The damage this can cause is unreal’: Woman secretly records strangers for fake TikTok ‘tea,’ and people are enraged](https://news.yahoo.com/damage-cause-unreal-woman-secretly-201033307.html)
+- Jun 07 - [Pence launches White House bid with rebuke of Trump](https://news.yahoo.com/pence-launches-white-house-bid-195057496.html)
 - Jun 07 - [Judge threatens to jail Hunter Biden for up to 6 months if he doesn't appear for questioning about his finances in his child support suit](https://news.yahoo.com/judge-threatens-jail-hunter-biden-180743222.html)
-- Jun 07 - [Dude, Gen X is totally unprepared for retirement, survey finds](https://finance.yahoo.com/news/dude-gen-x-is-totally-unprepared-for-retirement-survey-finds-180511077.html)
 <!-- feed end -->
