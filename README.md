@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Children Wounded in Knife Attack at Park in French Alps](https://finance.yahoo.com/video/children-wounded-knife-attack-park-120000171.html)
-- Jun 08 - [There's peak drama on Mount Everest](https://news.yahoo.com/theres-peak-drama-mount-everest-143548097.html)
+- Jun 08 - [Justice Kavanaugh switches sides to throw out racially gerrymandered map in Alabama, just a year after he allowed the maps to stand for the 2022 elections](https://news.yahoo.com/justice-kavanaugh-switches-sides-throw-150156347.html)
+- Jun 08 - [Tourists Watch Russian Man Get Devoured by Shark on Egypt Beach](https://news.yahoo.com/tourists-watch-russian-man-devoured-145949582.html)
 - Jun 08 - [‘Quit saving your money’: Financial guru Grant Cardone says there’s only 1 thing that will bring you true wealth — it's not your job or being cheap. Here's what it is and ways to do it](https://finance.yahoo.com/news/quit-saving-money-financial-guru-143000488.html)
+- Jun 08 - [New Police Officer Gets Booted from Department. The Reason Why Will Make You SMH](https://news.yahoo.com/police-officer-gets-booted-department-141759641.html)
 - Jun 08 - [Lawyer wraps up Prince Harry's phone hacking case by grilling ex-tabloid reporter](https://news.yahoo.com/lawyer-wraps-prince-harrys-phone-140400751.html)
-- Jun 08 - [Here comes El Nino: It's early, likely to be big, sloppy and add even more heat to a warming world](https://news.yahoo.com/comes-el-nino-early-likely-130006969.html)
 <!-- feed end -->
