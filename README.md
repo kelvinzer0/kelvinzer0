@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Thousands march in Tel Aviv’s annual Pride parade](https://news.yahoo.com/thousands-march-tel-aviv-annual-202703617.html)
+- Jun 08 - [Gov. Greg Abbott Announces Texas Will Secure Its Border With Buoys](https://news.yahoo.com/gov-greg-abbott-announces-texas-213831390.html)
+- Jun 08 - [Scientists are trying to find a mystery person in Ohio who has a new kind of COVID, and is shedding it into the sewage](https://news.yahoo.com/scientists-trying-mystery-person-ohio-205750532.html)
+- Jun 08 - [US Senate panel approves measure to strip China of 'developing' status](https://news.yahoo.com/us-senate-panel-approves-measure-205557850.html)
+- Jun 08 - [Retail Theft is a Big Problem. But Who's Stealing May Shock You](https://www.thestreet.com/retailers/retail-theft-is-a-big-problem-but-whos-stealing-may-shock-you?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jun 08 - [Putin’s Army Bombarded as First Dead Bodies Emerge in Floods](https://news.yahoo.com/putin-army-bombarded-first-dead-202435358.html)
-- Jun 08 - [Maryland funeral home owner kills pallbearer at funeral for 10-year-old, police say](https://news.yahoo.com/maryland-funeral-home-owner-kills-200000451.html)
-- Jun 08 - [Second lawsuit filed in death of Illinois mom during Florida parasailing trip](https://news.yahoo.com/second-lawsuit-filed-death-illinois-184333274.html)
-- Jun 08 - [‘Why the hell are we doing this?’ McCarthy's fractured leadership team faces new abortion tension](https://news.yahoo.com/why-hell-doing-mccarthys-fractured-181850649.html)
 <!-- feed end -->
