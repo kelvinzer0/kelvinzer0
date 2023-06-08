@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Biden Says He's Staying Out of Trump Investigation](https://finance.yahoo.com/video/biden-says-hes-staying-trump-192703936.html)
+- Jun 08 - [Thousands march in Tel Aviv’s annual Pride parade](https://news.yahoo.com/thousands-march-tel-aviv-annual-202703617.html)
+- Jun 08 - [Putin’s Army Bombarded as First Dead Bodies Emerge in Floods](https://news.yahoo.com/putin-army-bombarded-first-dead-202435358.html)
+- Jun 08 - [Maryland funeral home owner kills pallbearer at funeral for 10-year-old, police say](https://news.yahoo.com/maryland-funeral-home-owner-kills-200000451.html)
+- Jun 08 - [Second lawsuit filed in death of Illinois mom during Florida parasailing trip](https://news.yahoo.com/second-lawsuit-filed-death-illinois-184333274.html)
 - Jun 08 - [‘Why the hell are we doing this?’ McCarthy's fractured leadership team faces new abortion tension](https://news.yahoo.com/why-hell-doing-mccarthys-fractured-181850649.html)
-- Jun 08 - [Rep. Marjorie Taylor Greene's Tweet About NYC Smoke Is A Real Doozy](https://news.yahoo.com/rep-marjorie-taylor-greenes-tweet-175736707.html)
-- Jun 08 - [Clarence Thomas wrote a scathing, nearly 50-page dissent about why the Supreme Court should have gutted voting rights](https://news.yahoo.com/clarence-thomas-wrote-scathing-nearly-174813305.html)
-- Jun 08 - [23 freight cars, new vehicles heavily damaged in train derailment in northern Arizona](https://news.yahoo.com/23-freight-cars-vehicles-heavily-170607066.html)
 <!-- feed end -->
