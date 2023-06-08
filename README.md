@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - ['Let's Talk About Who's Cheating': Freshman Democrat Gives GOP A Ruthless Fact-Check](https://news.yahoo.com/lets-talk-whos-cheating-freshman-045805654.html)
 - Jun 08 - [Taiwan activates air defence as China aircraft enter zone](https://news.yahoo.com/dozens-chinese-military-aircraft-enter-025511109.html)
 - Jun 08 - [Pence Kicks Off Campaign by Defending Trump’s Right to Do Crimes](https://news.yahoo.com/pence-kicks-off-campaign-defending-025507750.html)
 - Jun 08 - [House Republicans cancel vote to hold FBI director in contempt](https://news.yahoo.com/house-republicans-cancel-vote-hold-022312412.html)
-- Jun 08 - [Details in Mueller Report Draw Interest of Special Counsel in Trump Classified Documents Case](https://news.yahoo.com/details-mueller-report-draw-interest-014444593.html)
 - Jun 08 - [What's causing Canada's raging wildfires? It's not as simple as blaming climate change, expert says](https://news.yahoo.com/wildfires-canada-cause-explanation-climate-change-005844098.html)
 <!-- feed end -->
