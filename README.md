@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [House Republicans cancel vote to hold FBI director in contempt](https://news.yahoo.com/house-republicans-cancel-vote-hold-022312412.html)
+- Jun 08 - [What's causing Canada's raging wildfires? It's not as simple as blaming climate change, expert says](https://news.yahoo.com/wildfires-canada-cause-explanation-climate-change-005844098.html)
+- Jun 08 - [2 Connecticut officers fired over treatment of man paralyzed in police van after 2022 arrest](https://news.yahoo.com/2-connecticut-officers-fired-over-002810417.html)
+- Jun 08 - [Legal expert explains what it means to get a target letter from DOJ](https://news.yahoo.com/legal-expert-explains-means-target-002809662.html)
 - Jun 08 - [Ukraine's Prized IRIS-T Air Defense System Attacked By Russian Drone In Video](https://news.yahoo.com/ukraines-prized-iris-t-air-001630355.html)
-- Jun 07 - [Fox News Tells Tucker Carlson His New Twitter Show Violates Contract: Reports](https://news.yahoo.com/fox-news-tells-tucker-carlson-230641466.html)
-- Jun 07 - [Okay Okay Okay, I Seriously Can't Stop Laughing At All These Ignorant Americans Who Got Absolutely Roasted Into Oblivion So Far This Year](https://news.yahoo.com/okay-seriously-cant-stop-laughing-223141135.html)
-- Jun 07 - [Trump posts video mocking Christie on social media. Hear his response](https://news.yahoo.com/trump-posts-video-mocking-christie-221251796.html)
-- Jun 07 - [Sheriff says he was ‘glad’ to arrest woman accused of killing AJ Owens, video was the final straw](https://news.yahoo.com/sheriff-says-glad-arrest-woman-220128864.html)
 <!-- feed end -->
