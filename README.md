@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [Rep. Marjorie Taylor Greene's Tweet About NYC Smoke Is A Real Doozy](https://news.yahoo.com/rep-marjorie-taylor-greenes-tweet-175736707.html)
 - Jun 08 - [Top general tells Putin how Russia repelled major Ukrainian attack - defence ministry](https://news.yahoo.com/top-general-tells-putin-russia-163745347.html)
+- Jun 08 - [American Airlines Adds New Fee, Gives Preposterous Reason](https://www.thestreet.com/travel/american-airlines-adds-new-fee-gives-preposterous-reason?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jun 08 - [Man walks up to mother, daughter shopping at SC Walmart, shoots 13-year-old girl, officers say](https://news.yahoo.com/man-walks-mother-daughter-shopping-154026196.html)
-- Jun 08 - [Woman who called police on Black bird-watcher in Central Park loses employment appeal](https://news.yahoo.com/woman-called-police-black-bird-153307248.html)
-- Jun 08 - [‘Women will give birth to new ones’ — Russian Army on ordering Grad strike on Russian soldiers — video](https://news.yahoo.com/women-birth-ones-russian-army-153000476.html)
-- Jun 08 - [Orcas observed devouring the tongue of a blue whale just before it dies in first documented hunt of the largest animal on the planet](https://news.yahoo.com/orcas-observed-devouring-tongue-blue-092922554.html)
+- Jun 08 - [Donald Trump Hit Below the Belt After Chris Christie Attacked Ivanka Trump & Jared Kushner](https://news.yahoo.com/donald-trump-hit-below-belt-153808093.html)
 <!-- feed end -->
