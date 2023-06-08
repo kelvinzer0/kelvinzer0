@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [‘Why the hell are we doing this?’ McCarthy's fractured leadership team faces new abortion tension](https://news.yahoo.com/why-hell-doing-mccarthys-fractured-181850649.html)
 - Jun 08 - [Rep. Marjorie Taylor Greene's Tweet About NYC Smoke Is A Real Doozy](https://news.yahoo.com/rep-marjorie-taylor-greenes-tweet-175736707.html)
-- Jun 08 - [Top general tells Putin how Russia repelled major Ukrainian attack - defence ministry](https://news.yahoo.com/top-general-tells-putin-russia-163745347.html)
-- Jun 08 - [American Airlines Adds New Fee, Gives Preposterous Reason](https://www.thestreet.com/travel/american-airlines-adds-new-fee-gives-preposterous-reason?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jun 08 - [Man walks up to mother, daughter shopping at SC Walmart, shoots 13-year-old girl, officers say](https://news.yahoo.com/man-walks-mother-daughter-shopping-154026196.html)
-- Jun 08 - [Donald Trump Hit Below the Belt After Chris Christie Attacked Ivanka Trump & Jared Kushner](https://news.yahoo.com/donald-trump-hit-below-belt-153808093.html)
+- Jun 08 - [Clarence Thomas wrote a scathing, nearly 50-page dissent about why the Supreme Court should have gutted voting rights](https://news.yahoo.com/clarence-thomas-wrote-scathing-nearly-174813305.html)
+- Jun 08 - [Before-and-after satellite images show profound toll of Ukraine dam collapse](https://news.yahoo.com/satellite-images-show-profound-toll-172351757.html)
+- Jun 08 - [Trump asks for new trial in E. Jean Carroll sex abuse case](https://news.yahoo.com/trump-asks-trial-e-jean-164835286.html)
 <!-- feed end -->
