@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [Rep. Lauren Boebert’s Pride Flag Rant Receives Different Kind Of Salute](https://news.yahoo.com/rep-lauren-boebert-pride-flag-073608584.html)
 - Jun 08 - [In Russia, the talk is of 'war' - even from Putin](https://uk.news.yahoo.com/russia-talk-war-even-putin-060343634.html)
 - Jun 08 - [‘I’d rather stay in Communist China than return to inheritance tax Britain’](https://news.yahoo.com/d-rather-stay-communist-china-050000943.html)
 - Jun 08 - ['Let's Talk About Who's Cheating': Freshman Democrat Gives GOP A Ruthless Fact-Check](https://news.yahoo.com/lets-talk-whos-cheating-freshman-045805654.html)
 - Jun 08 - [Taiwan activates air defence as China aircraft enter zone](https://news.yahoo.com/dozens-chinese-military-aircraft-enter-025511109.html)
-- Jun 08 - [Pence Kicks Off Campaign by Defending Trump’s Right to Do Crimes](https://news.yahoo.com/pence-kicks-off-campaign-defending-025507750.html)
 <!-- feed end -->
