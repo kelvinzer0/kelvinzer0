@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [Many in Russia's elite no longer believe Putin can win the Ukraine war, report says: 'The best they hope for is that Russia will lose without humiliation'](https://news.yahoo.com/many-russias-elite-no-longer-121550767.html)
 - Jun 08 - [India rebukes Canada over parade float showing assassination of Indira Gandhi](https://uk.news.yahoo.com/india-rebukes-canada-over-parade-113953408.html)
 - Jun 08 - [‘Terf’ is the ultimate slur against women](https://news.yahoo.com/terf-ultimate-slur-against-women-110136014.html)
 - Jun 08 - [Karine Jean-Pierre Will Not Discuss Golf With Fox News Reporter And That's That](https://news.yahoo.com/karine-jean-pierre-not-discuss-105813675.html)
 - Jun 08 - [Fox News Hosts Have Most Predictable Response To New York Wildfire Smoke](https://news.yahoo.com/fox-news-hosts-most-predictable-094651893.html)
-- Jun 08 - [Rep. Lauren Boebert’s Pride Flag Rant Receives Different Kind Of Salute](https://news.yahoo.com/rep-lauren-boebert-pride-flag-073608584.html)
 <!-- feed end -->
