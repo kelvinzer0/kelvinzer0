@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [India rebukes Canada over parade float showing assassination of Indira Gandhi](https://uk.news.yahoo.com/india-rebukes-canada-over-parade-113953408.html)
+- Jun 08 - [‘Terf’ is the ultimate slur against women](https://news.yahoo.com/terf-ultimate-slur-against-women-110136014.html)
+- Jun 08 - [Karine Jean-Pierre Will Not Discuss Golf With Fox News Reporter And That's That](https://news.yahoo.com/karine-jean-pierre-not-discuss-105813675.html)
+- Jun 08 - [Fox News Hosts Have Most Predictable Response To New York Wildfire Smoke](https://news.yahoo.com/fox-news-hosts-most-predictable-094651893.html)
 - Jun 08 - [Rep. Lauren Boebert’s Pride Flag Rant Receives Different Kind Of Salute](https://news.yahoo.com/rep-lauren-boebert-pride-flag-073608584.html)
-- Jun 08 - [In Russia, the talk is of 'war' - even from Putin](https://uk.news.yahoo.com/russia-talk-war-even-putin-060343634.html)
-- Jun 08 - ['Let's Talk About Who's Cheating': Freshman Democrat Gives GOP A Ruthless Fact-Check](https://news.yahoo.com/lets-talk-whos-cheating-freshman-045805654.html)
-- Jun 08 - [Chris Christie Says Trump's Insults About His Weight Prove Only 1 Thing](https://news.yahoo.com/chris-christie-says-trumps-insults-040813106.html)
-- Jun 08 - [Taiwan activates air defence as China aircraft enter zone](https://news.yahoo.com/dozens-chinese-military-aircraft-enter-025511109.html)
 <!-- feed end -->
