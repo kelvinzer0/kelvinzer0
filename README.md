@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Justice Kavanaugh switches sides to throw out racially gerrymandered map in Alabama, just a year after he allowed the maps to stand for the 2022 elections](https://news.yahoo.com/justice-kavanaugh-switches-sides-throw-150156347.html)
-- Jun 08 - [Tourists Watch Russian Man Get Devoured by Shark on Egypt Beach](https://news.yahoo.com/tourists-watch-russian-man-devoured-145949582.html)
-- Jun 08 - [‘Quit saving your money’: Financial guru Grant Cardone says there’s only 1 thing that will bring you true wealth — it's not your job or being cheap. Here's what it is and ways to do it](https://finance.yahoo.com/news/quit-saving-money-financial-guru-143000488.html)
-- Jun 08 - [New Police Officer Gets Booted from Department. The Reason Why Will Make You SMH](https://news.yahoo.com/police-officer-gets-booted-department-141759641.html)
-- Jun 08 - [Lawyer wraps up Prince Harry's phone hacking case by grilling ex-tabloid reporter](https://news.yahoo.com/lawyer-wraps-prince-harrys-phone-140400751.html)
+- Jun 08 - [Top general tells Putin how Russia repelled major Ukrainian attack - defence ministry](https://news.yahoo.com/top-general-tells-putin-russia-163745347.html)
+- Jun 08 - [Man walks up to mother, daughter shopping at SC Walmart, shoots 13-year-old girl, officers say](https://news.yahoo.com/man-walks-mother-daughter-shopping-154026196.html)
+- Jun 08 - [Woman who called police on Black bird-watcher in Central Park loses employment appeal](https://news.yahoo.com/woman-called-police-black-bird-153307248.html)
+- Jun 08 - [‘Women will give birth to new ones’ — Russian Army on ordering Grad strike on Russian soldiers — video](https://news.yahoo.com/women-birth-ones-russian-army-153000476.html)
+- Jun 08 - [Orcas observed devouring the tongue of a blue whale just before it dies in first documented hunt of the largest animal on the planet](https://news.yahoo.com/orcas-observed-devouring-tongue-blue-092922554.html)
 <!-- feed end -->
