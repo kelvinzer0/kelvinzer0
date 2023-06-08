@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 08 - [Ukraine's Prized IRIS-T Air Defense System Attacked By Russian Drone In Video](https://news.yahoo.com/ukraines-prized-iris-t-air-001630355.html)
+- Jun 07 - [Fox News Tells Tucker Carlson His New Twitter Show Violates Contract: Reports](https://news.yahoo.com/fox-news-tells-tucker-carlson-230641466.html)
 - Jun 07 - [Okay Okay Okay, I Seriously Can't Stop Laughing At All These Ignorant Americans Who Got Absolutely Roasted Into Oblivion So Far This Year](https://news.yahoo.com/okay-seriously-cant-stop-laughing-223141135.html)
-- Jun 07 - [‘No one has told me I’m being indicted,’ Donald Trump says](https://news.yahoo.com/no-one-told-m-being-222012746.html)
 - Jun 07 - [Trump posts video mocking Christie on social media. Hear his response](https://news.yahoo.com/trump-posts-video-mocking-christie-221251796.html)
-- Jun 07 - [Utah district's Bible ban spurs protest by parents, Republicans](https://news.yahoo.com/utah-republicans-defend-book-removal-210701697.html)
-- Jun 07 - [Judge weighs Missouri GOP dispute over estimated cost of allowing abortions](https://news.yahoo.com/judge-weighs-missouri-gop-dispute-210425435.html)
+- Jun 07 - [Sheriff says he was ‘glad’ to arrest woman accused of killing AJ Owens, video was the final straw](https://news.yahoo.com/sheriff-says-glad-arrest-woman-220128864.html)
 <!-- feed end -->
