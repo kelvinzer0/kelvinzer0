@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 08 - [House Republicans cancel vote to hold FBI director in contempt](https://news.yahoo.com/house-republicans-cancel-vote-hold-022312412.html)
+- Jun 08 - [Details in Mueller Report Draw Interest of Special Counsel in Trump Classified Documents Case](https://news.yahoo.com/details-mueller-report-draw-interest-014444593.html)
 - Jun 08 - [What's causing Canada's raging wildfires? It's not as simple as blaming climate change, expert says](https://news.yahoo.com/wildfires-canada-cause-explanation-climate-change-005844098.html)
 - Jun 08 - [Legal expert explains what it means to get a target letter from DOJ](https://news.yahoo.com/legal-expert-explains-means-target-002809662.html)
 - Jun 08 - [Ukraine's Prized IRIS-T Air Defense System Attacked By Russian Drone In Video](https://news.yahoo.com/ukraines-prized-iris-t-air-001630355.html)
-- Jun 07 - [Fox News Tells Tucker Carlson His New Twitter Show Violates Contract: Reports](https://news.yahoo.com/fox-news-tells-tucker-carlson-230641466.html)
 <!-- feed end -->
