@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Trump Indicted on 37 Counts in Documents Case](https://finance.yahoo.com/video/trump-indicted-37-counts-documents-182711165.html)
+- Jun 09 - [Special counsel Jack Smith discusses the indictment against Trump](https://news.yahoo.com/special-counsel-jack-smith-discusses-195259606.html)
+- Jun 09 - [Putin Cops to ‘Significant Losses,’ Inferior Weapons in Stunning War Admission](https://news.yahoo.com/putin-cops-significant-losses-inferior-192412178.html)
+- Jun 09 - [Activist sues Rep. Lauren Boebert for defamation, alleging she slandered him on Fox News when he revealed her alleged drug use, abortions, and escort work](https://news.yahoo.com/activist-sues-rep-lauren-boebert-190902930.html)
 - Jun 09 - [Russia Has Destroyed Its First Ukrainian Bradley Fighting Vehicles](https://news.yahoo.com/russia-destroyed-first-ukrainian-bradley-173849849.html)
-- Jun 09 - [Kevin McCarthy’s tweet on Trump indictment is either a bluff or really dangerous | Opinion](https://news.yahoo.com/kevin-mccarthy-tweet-trump-indictment-164221287.html)
-- Jun 09 - [Trump Attorneys Step Down Shortly After One Was Roasted by George Stephanopoulos on 'GMA'](https://www.yahoo.com/entertainment/trump-attorneys-step-down-shortly-163238870.html)
-- Jun 09 - [White House welcomes Tesla to take advantage of federal dollars](https://finance.yahoo.com/news/white-house-says-tesla-chargers-161426111.html)
+- Jun 09 - ['They're 100% not human': Las Vegas police investigate reports of extraterrestrial sightings](https://news.yahoo.com/theyre-100-not-human-las-171604635.html)
 <!-- feed end -->
