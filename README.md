@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [President Joe Biden adamant he played no role in Donald Trump's indictment](https://news.yahoo.com/president-joe-biden-adamant-played-122953611.html)
+- Jun 09 - [S.Korea salt demand grows before Fukushima wastewater release](https://news.yahoo.com/korea-salt-demand-grows-fukushima-133515337.html)
+- Jun 09 - [Russia claims it blew up advanced Ukrainian tank, but video shows its helicopter attacked a tractor](https://news.yahoo.com/russia-claims-blew-advanced-ukrainian-131710541.html)
+- Jun 09 - [Family discovers roughly 1 million copper pennies while cleaning out Los Angeles home](https://news.yahoo.com/family-discovers-roughly-1-million-122525349.html)
 - Jun 09 - [Gavin Newsom Brings Out Receipts For Kevin McCarthy In Nasty Twitter Takedown](https://news.yahoo.com/gavin-newsom-brings-receipts-kevin-121247192.html)
 - Jun 09 - [Soldier’s Phone Call Leak Allegedly Proves Who Blew Up the Dam](https://news.yahoo.com/soldier-phone-call-leak-allegedly-120908765.html)
-- Jun 09 - [Inside Trump’s Club When the Call Came: You’re Indicted](https://news.yahoo.com/inside-trump-club-call-came-113039417.html)
-- Jun 09 - [Woman sees stranger lounging on her patio. Then things got weird, Florida cops say](https://news.yahoo.com/woman-sees-stranger-lounging-her-112914857.html)
 <!-- feed end -->
