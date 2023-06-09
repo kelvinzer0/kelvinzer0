@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Trump-appointed Judge Cannon to initially oversee Trump indictment case](https://news.yahoo.com/trump-appointed-judge-cannon-initially-162517593.html)
+- Jun 09 - [Ukraine counteroffensive underway, but failing: Putin](https://news.yahoo.com/ukraine-counteroffensive-underway-failing-putin-173145443.html)
+- Jun 09 - [Kevin McCarthy’s tweet on Trump indictment is either a bluff or really dangerous | Opinion](https://news.yahoo.com/kevin-mccarthy-tweet-trump-indictment-164221287.html)
+- Jun 09 - [White House says Tesla chargers available for federal dollars as long as they include CCS](https://finance.yahoo.com/news/white-house-says-tesla-chargers-161426111.html)
 - Jun 09 - [Trump loses two lawyers just hours after being indicted](https://news.yahoo.com/trump-loses-two-lawyers-just-160730843.html)
-- Jun 09 - [Saudi's crown prince promised pain for the US if it retaliated against oil cuts, report says. His threat seems to have paid off.](https://news.yahoo.com/saudis-crown-prince-promised-pain-155312352.html)
-- Jun 09 - [Mark Zuckerberg reportedly bashes Apple's Vision Pro: 'Every demo that they showed was a person sitting on a couch by themself'](https://news.yahoo.com/mark-zuckerberg-reportedly-bashes-apples-152441379.html)
-- Jun 09 - [George Santos says the people backing up his bond are family members who will bail on him if their names are publicly released](https://news.yahoo.com/george-santos-says-people-backing-151351072.html)
+- Jun 09 - [“Mama!” Ga. 15-year-old accused of murdering woman screams during court hearing](https://news.yahoo.com/mama-ga-15-old-accused-155444249.html)
 <!-- feed end -->
