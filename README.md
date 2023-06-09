@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [Elon Musk Makes a Stunning Offer to Don Lemon And Rachel Maddow](https://www.thestreet.com/technology/elon-musk-makes-a-stunning-offer-to-don-lemon-and-rachel-maddow?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jun 09 - [20-year-old aspiring influencer arrested after 'illegally' jumping in alligator exhibit for a video: 'That was stupid'](https://news.yahoo.com/20-year-old-aspiring-influencer-arrested-after-illegally-jumping-in-alligator-exhibit-for-a-video-that-was-stupid-000343934.html)
 - Jun 09 - [All-new 2024 Lexus TX revealed: The Lexus as big as Texas](https://www.autoblog.com/2023/06/08/2024-lexus-tx-revealed/)
 - Jun 08 - [Donald Trump Says He Has Been Indicted In Classified Documents Case](https://news.yahoo.com/donald-trump-says-indicted-classified-233752774.html)
 - Jun 08 - [FBI arrests Texas businessman linked to impeachment of state Attorney General Ken Paxton](https://news.yahoo.com/bank-records-raise-questions-home-220650701.html)
-- Jun 08 - [Russian forces battling Ukraine's assault are discovering a nasty danger behind them, courtesy of the US](https://news.yahoo.com/russian-forces-battling-ukraines-assault-220345087.html)
-- Jun 08 - [Scientists are trying to find a mystery person in Ohio who has a new kind of COVID, and is shedding it into the sewage](https://news.yahoo.com/scientists-trying-mystery-person-ohio-205750532.html)
 <!-- feed end -->
