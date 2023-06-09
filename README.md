@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [New York Daily News Sums Up Donald Trump's Latest Legal Woe With 2 Words And A Comma](https://news.yahoo.com/york-daily-news-sums-donald-112044768.html)
-- Jun 09 - [Tucker Carlson's New Definition Of White Supremacy Is A Knee-Slapper](https://news.yahoo.com/tucker-carlsons-definition-white-supremacy-111225550.html)
-- Jun 09 - [Kim Jong Un orders North Koreans to stop killing themselves after number of suicides skyrocketed](https://news.yahoo.com/kim-jong-un-orders-north-100143196.html)
-- Jun 09 - [Right-Wingers Mocked For Full-Blown Freakout Over 'Woke' Cracker Barrel](https://news.yahoo.com/wingers-mocked-full-blown-freakout-085716086.html)
-- Jun 09 - [Trump Attorney Says She’s ‘Ashamed To Be A Lawyer’ And You Know What Happened](https://news.yahoo.com/trump-attorney-says-she-ashamed-084106220.html)
+- Jun 09 - [President Joe Biden adamant he played no role in Donald Trump's indictment](https://news.yahoo.com/president-joe-biden-adamant-played-122953611.html)
+- Jun 09 - [Gavin Newsom Brings Out Receipts For Kevin McCarthy In Nasty Twitter Takedown](https://news.yahoo.com/gavin-newsom-brings-receipts-kevin-121247192.html)
+- Jun 09 - [Soldier’s Phone Call Leak Allegedly Proves Who Blew Up the Dam](https://news.yahoo.com/soldier-phone-call-leak-allegedly-120908765.html)
+- Jun 09 - [Inside Trump’s Club When the Call Came: You’re Indicted](https://news.yahoo.com/inside-trump-club-call-came-113039417.html)
+- Jun 09 - [Woman sees stranger lounging on her patio. Then things got weird, Florida cops say](https://news.yahoo.com/woman-sees-stranger-lounging-her-112914857.html)
 <!-- feed end -->
