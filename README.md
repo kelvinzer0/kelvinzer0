@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [Kim Jong Un orders North Koreans to stop killing themselves after number of suicides skyrocketed](https://news.yahoo.com/kim-jong-un-orders-north-100143196.html)
+- Jun 09 - [Right-Wingers Mocked For Full-Blown Freakout Over 'Woke' Cracker Barrel](https://news.yahoo.com/wingers-mocked-full-blown-freakout-085716086.html)
 - Jun 09 - [Trump Attorney Says She’s ‘Ashamed To Be A Lawyer’ And You Know What Happened](https://news.yahoo.com/trump-attorney-says-she-ashamed-084106220.html)
-- Jun 09 - [Trump was DJ-ing on the patio at Bedminster and playing Elvis, Pavarotti, and James Brown tracks from an iPad after he found out about his second indictment](https://news.yahoo.com/trump-dj-ing-patio-bedminster-074939247.html)
 - Jun 09 - [A little white pill, Captagon, gives Syria's Assad a strong tool in winning over Arab states](https://news.yahoo.com/little-white-pill-captagon-gives-061057245.html)
 - Jun 09 - [People Sure Think Marjorie Taylor Greene Just Admitted To A Crime On Live TV](https://news.yahoo.com/people-sure-think-marjorie-taylor-053253337.html)
-- Jun 09 - [A soldier’s hidden identity shines a light on troubled history of Crimea’s Tatars](https://news.yahoo.com/soldier-hidden-identity-shines-light-040542083.html)
 <!-- feed end -->
