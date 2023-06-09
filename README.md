@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Tesla's deals with GM, Ford is going to upset Tesla owners, says analyst](https://finance.yahoo.com/video/teslas-deals-gm-ford-going-153400467.html)
+- Jun 09 - [Trump-appointed Judge Cannon to initially oversee Trump indictment case](https://news.yahoo.com/trump-appointed-judge-cannon-initially-162517593.html)
+- Jun 09 - [Trump loses two lawyers just hours after being indicted](https://news.yahoo.com/trump-loses-two-lawyers-just-160730843.html)
+- Jun 09 - [Saudi's crown prince promised pain for the US if it retaliated against oil cuts, report says. His threat seems to have paid off.](https://news.yahoo.com/saudis-crown-prince-promised-pain-155312352.html)
+- Jun 09 - [Mark Zuckerberg reportedly bashes Apple's Vision Pro: 'Every demo that they showed was a person sitting on a couch by themself'](https://news.yahoo.com/mark-zuckerberg-reportedly-bashes-apples-152441379.html)
 - Jun 09 - [George Santos says the people backing up his bond are family members who will bail on him if their names are publicly released](https://news.yahoo.com/george-santos-says-people-backing-151351072.html)
-- Jun 09 - [Leaked document shows significant early issues with Tesla Cybertruck](https://www.autoblog.com/2023/06/09/leaked-document-shows-significant-early-issues-with-tesla-cybertruck/)
-- Jun 09 - [Guess Which Judge Has Been Assigned to Trump’s Docs Case](https://news.yahoo.com/guess-judge-assigned-trump-docs-140256969.html)
-- Jun 09 - [Nixon Historian Says New Donald Trump Indictment Boils Down To 1 Thing](https://news.yahoo.com/nixon-historian-says-donald-trump-131930066.html)
 <!-- feed end -->
