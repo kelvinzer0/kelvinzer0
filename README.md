@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 08 - [Shocked residents lay white roses at Annecy playground](https://news.yahoo.com/shocked-residents-lay-white-roses-223047086.html)
-- Jun 08 - [Bank records raise questions about home remodel in Texas Attorney General Paxton's impeachment](https://news.yahoo.com/bank-records-raise-questions-home-220650701.html)
+- Jun 09 - [All-new 2024 Lexus TX revealed: The Lexus as big as Texas](https://www.autoblog.com/2023/06/08/2024-lexus-tx-revealed/)
+- Jun 08 - [Donald Trump Says He Has Been Indicted In Classified Documents Case](https://news.yahoo.com/donald-trump-says-indicted-classified-233752774.html)
+- Jun 08 - [FBI arrests Texas businessman linked to impeachment of state Attorney General Ken Paxton](https://news.yahoo.com/bank-records-raise-questions-home-220650701.html)
 - Jun 08 - [Russian forces battling Ukraine's assault are discovering a nasty danger behind them, courtesy of the US](https://news.yahoo.com/russian-forces-battling-ukraines-assault-220345087.html)
-- Jun 08 - [Gov. Greg Abbott Announces Texas Will Secure Its Border With Buoys](https://news.yahoo.com/gov-greg-abbott-announces-texas-213831390.html)
 - Jun 08 - [Scientists are trying to find a mystery person in Ohio who has a new kind of COVID, and is shedding it into the sewage](https://news.yahoo.com/scientists-trying-mystery-person-ohio-205750532.html)
 <!-- feed end -->
