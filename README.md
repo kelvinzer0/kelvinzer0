@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 09 - [People Sure Think Marjorie Taylor Greene Just Admitted To A Crime On Live TV](https://news.yahoo.com/people-sure-think-marjorie-taylor-053253337.html)
+- Jun 09 - [Prince Harry stayed at Frogmore Cottage instead of seeing family](https://news.yahoo.com/prince-harry-dashes-back-home-040000957.html)
 - Jun 09 - [Reactions to the indictment of Donald Trump](https://news.yahoo.com/reactions-indictment-donald-trump-031856240.html)
 - Jun 09 - [Pence drops from Fox News Sean Hannity lineup after breaking news of Trump's indictment overtakes the airwaves](https://news.yahoo.com/pence-drops-fox-news-sean-024532282.html)
 - Jun 09 - [What happens to charges if Trump gets elected? Hear what legal expert thinks](https://news.yahoo.com/happens-charges-trump-gets-elected-014206912.html)
-- Jun 09 - [Elon Musk Makes a Stunning Offer to Don Lemon And Rachel Maddow](https://www.thestreet.com/technology/elon-musk-makes-a-stunning-offer-to-don-lemon-and-rachel-maddow?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
