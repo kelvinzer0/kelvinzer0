@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 09 - [Trump Attorney Says She’s ‘Ashamed To Be A Lawyer’ And You Know What Happened](https://news.yahoo.com/trump-attorney-says-she-ashamed-084106220.html)
+- Jun 09 - [Trump was DJ-ing on the patio at Bedminster and playing Elvis, Pavarotti, and James Brown tracks from an iPad after he found out about his second indictment](https://news.yahoo.com/trump-dj-ing-patio-bedminster-074939247.html)
 - Jun 09 - [A little white pill, Captagon, gives Syria's Assad a strong tool in winning over Arab states](https://news.yahoo.com/little-white-pill-captagon-gives-061057245.html)
 - Jun 09 - [People Sure Think Marjorie Taylor Greene Just Admitted To A Crime On Live TV](https://news.yahoo.com/people-sure-think-marjorie-taylor-053253337.html)
-- Jun 09 - [Prince Harry stayed at Frogmore Cottage instead of seeing family](https://news.yahoo.com/prince-harry-dashes-back-home-040000957.html)
-- Jun 09 - [Reactions to the indictment of Donald Trump](https://news.yahoo.com/reactions-indictment-donald-trump-031856240.html)
+- Jun 09 - [A soldier’s hidden identity shines a light on troubled history of Crimea’s Tatars](https://news.yahoo.com/soldier-hidden-identity-shines-light-040542083.html)
 <!-- feed end -->
