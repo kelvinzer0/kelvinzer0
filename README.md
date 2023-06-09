@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 09 - [New York Daily News Sums Up Donald Trump's Latest Legal Woe With 2 Words And A Comma](https://news.yahoo.com/york-daily-news-sums-donald-112044768.html)
+- Jun 09 - [Tucker Carlson's New Definition Of White Supremacy Is A Knee-Slapper](https://news.yahoo.com/tucker-carlsons-definition-white-supremacy-111225550.html)
 - Jun 09 - [Kim Jong Un orders North Koreans to stop killing themselves after number of suicides skyrocketed](https://news.yahoo.com/kim-jong-un-orders-north-100143196.html)
 - Jun 09 - [Right-Wingers Mocked For Full-Blown Freakout Over 'Woke' Cracker Barrel](https://news.yahoo.com/wingers-mocked-full-blown-freakout-085716086.html)
 - Jun 09 - [Trump Attorney Says She’s ‘Ashamed To Be A Lawyer’ And You Know What Happened](https://news.yahoo.com/trump-attorney-says-she-ashamed-084106220.html)
-- Jun 09 - [A little white pill, Captagon, gives Syria's Assad a strong tool in winning over Arab states](https://news.yahoo.com/little-white-pill-captagon-gives-061057245.html)
-- Jun 09 - [People Sure Think Marjorie Taylor Greene Just Admitted To A Crime On Live TV](https://news.yahoo.com/people-sure-think-marjorie-taylor-053253337.html)
 <!-- feed end -->
