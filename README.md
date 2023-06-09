@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [S.Korea salt demand grows before Fukushima wastewater release](https://news.yahoo.com/korea-salt-demand-grows-fukushima-133515337.html)
+- Jun 09 - [Russia considering retreating deep inside Crimea, leaving frontline occupiers to die — Malyar](https://news.yahoo.com/russia-considering-retreating-deep-inside-143000926.html)
+- Jun 09 - [Leaked document shows significant early issues with Tesla Cybertruck](https://www.autoblog.com/2023/06/09/leaked-document-shows-significant-early-issues-with-tesla-cybertruck/)
+- Jun 09 - [Nixon Historian Says New Donald Trump Indictment Boils Down To 1 Thing](https://news.yahoo.com/nixon-historian-says-donald-trump-131930066.html)
 - Jun 09 - [Russia claims it blew up advanced Ukrainian tank, but video shows its helicopter attacked a tractor](https://news.yahoo.com/russia-claims-blew-advanced-ukrainian-131710541.html)
-- Jun 09 - [Family discovers roughly 1 million copper pennies while cleaning out Los Angeles home](https://news.yahoo.com/family-discovers-roughly-1-million-122525349.html)
-- Jun 09 - [Gavin Newsom Brings Out Receipts For Kevin McCarthy In Nasty Twitter Takedown](https://news.yahoo.com/gavin-newsom-brings-receipts-kevin-121247192.html)
-- Jun 09 - [Soldier’s Phone Call Leak Allegedly Proves Who Blew Up the Dam](https://news.yahoo.com/soldier-phone-call-leak-allegedly-120908765.html)
+- Jun 09 - [Investigators looking into condition that manifests in seconds as possible cause of Virginia jet crash](https://news.yahoo.com/investigators-eye-condition-manifests-seconds-195149816.html)
 <!-- feed end -->
