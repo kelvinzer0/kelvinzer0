@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Ukraine counteroffensive underway, but failing: Putin](https://news.yahoo.com/ukraine-counteroffensive-underway-failing-putin-173145443.html)
+- Jun 09 - [Trump Indicted on 37 Counts in Documents Case](https://finance.yahoo.com/video/trump-indicted-37-counts-documents-182711165.html)
+- Jun 09 - [Russia Has Destroyed Its First Ukrainian Bradley Fighting Vehicles](https://news.yahoo.com/russia-destroyed-first-ukrainian-bradley-173849849.html)
 - Jun 09 - [Kevin McCarthy’s tweet on Trump indictment is either a bluff or really dangerous | Opinion](https://news.yahoo.com/kevin-mccarthy-tweet-trump-indictment-164221287.html)
-- Jun 09 - [White House says Tesla chargers available for federal dollars as long as they include CCS](https://finance.yahoo.com/news/white-house-says-tesla-chargers-161426111.html)
-- Jun 09 - [Trump loses two lawyers just hours after being indicted](https://news.yahoo.com/trump-loses-two-lawyers-just-160730843.html)
-- Jun 09 - [“Mama!” Ga. 15-year-old accused of murdering woman screams during court hearing](https://news.yahoo.com/mama-ga-15-old-accused-155444249.html)
+- Jun 09 - [Trump Attorneys Step Down Shortly After One Was Roasted by George Stephanopoulos on 'GMA'](https://www.yahoo.com/entertainment/trump-attorneys-step-down-shortly-163238870.html)
+- Jun 09 - [White House welcomes Tesla to take advantage of federal dollars](https://finance.yahoo.com/news/white-house-says-tesla-chargers-161426111.html)
 <!-- feed end -->
