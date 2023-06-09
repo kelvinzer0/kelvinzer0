@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Russia considering retreating deep inside Crimea, leaving frontline occupiers to die — Malyar](https://news.yahoo.com/russia-considering-retreating-deep-inside-143000926.html)
+- Jun 09 - [Tesla's deals with GM, Ford is going to upset Tesla owners, says analyst](https://finance.yahoo.com/video/teslas-deals-gm-ford-going-153400467.html)
+- Jun 09 - [George Santos says the people backing up his bond are family members who will bail on him if their names are publicly released](https://news.yahoo.com/george-santos-says-people-backing-151351072.html)
 - Jun 09 - [Leaked document shows significant early issues with Tesla Cybertruck](https://www.autoblog.com/2023/06/09/leaked-document-shows-significant-early-issues-with-tesla-cybertruck/)
+- Jun 09 - [Guess Which Judge Has Been Assigned to Trump’s Docs Case](https://news.yahoo.com/guess-judge-assigned-trump-docs-140256969.html)
 - Jun 09 - [Nixon Historian Says New Donald Trump Indictment Boils Down To 1 Thing](https://news.yahoo.com/nixon-historian-says-donald-trump-131930066.html)
-- Jun 09 - [Russia claims it blew up advanced Ukrainian tank, but video shows its helicopter attacked a tractor](https://news.yahoo.com/russia-claims-blew-advanced-ukrainian-131710541.html)
-- Jun 09 - [Investigators looking into condition that manifests in seconds as possible cause of Virginia jet crash](https://news.yahoo.com/investigators-eye-condition-manifests-seconds-195149816.html)
 <!-- feed end -->
