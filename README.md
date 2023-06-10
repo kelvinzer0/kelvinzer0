@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Drone-wielding 'Santa' saves Ukraine family from flood](https://news.yahoo.com/drone-wielding-santa-saves-ukraine-160733524.html)
-- Jun 10 - [Americans Who Moved Between The East And West Coasts Are Revealing What Gave Them Culture Shock And It Confirms US Regions Are Basically Different Countries](https://news.yahoo.com/americans-moved-between-east-west-154603604.html)
-- Jun 10 - [Ivanka Trump has 'disappeared' from Miami and will stay 'far away from daddy' as he faces indictment, report says](https://news.yahoo.com/ivanka-trump-disappeared-miami-stay-131615000.html)
-- Jun 10 - [13 common bug bites and how to spot them](https://news.yahoo.com/13-common-bug-bites-spot-124758501.html)
-- Jun 10 - [Hunter Biden's explicit laptop images released by former Donald Trump employee](https://news.yahoo.com/hunter-bidens-explicit-laptop-images-115148881.html)
+- Jun 10 - [After Pence bails, Kari Lake fires up Georgia crowd by saying Republicans have guns – and Trump's back](https://news.yahoo.com/pence-bails-kari-lake-fires-170616888.html)
+- Jun 10 - [Ted Kaczynski, known as the Unabomber, has died in federal prison at 81](https://news.yahoo.com/theodore-ted-kaczynski-known-unabomber-165836331.html)
+- Jun 10 - [‘Totally wrong’: Former Kansas officer says he’s ‘humiliated’ for incident with teen girl](https://news.yahoo.com/totally-wrong-former-kansas-officer-164728244.html)
+- Jun 10 - [Russians are cheering defeats of Western-made tanks. Their optimism may prove premature.](https://news.yahoo.com/russians-cheering-defeats-western-made-164036511.html)
+- Jun 10 - [People Are Sharing The Culture Shock They Experienced Moving From The East To The West Coast (Or Vice Versa)](https://news.yahoo.com/americans-moved-between-east-west-154603604.html)
 <!-- feed end -->
