@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [Texas will use eminent domain to seize Fairfield Lake State Park from private developer](https://news.yahoo.com/texas-eminent-domain-seize-fairfield-175937116.html)
 - Jun 10 - [After Pence bails, Kari Lake fires up Georgia crowd by saying Republicans have guns – and Trump's back](https://news.yahoo.com/pence-bails-kari-lake-fires-170616888.html)
 - Jun 10 - [Ted Kaczynski, known as the Unabomber for years of attacks that killed 3, dies in prison at 81](https://news.yahoo.com/theodore-ted-kaczynski-known-unabomber-165836331.html)
 - Jun 10 - [‘Totally wrong’: Former Kansas officer says he’s ‘humiliated’ for incident with teen girl](https://news.yahoo.com/totally-wrong-former-kansas-officer-164728244.html)
 - Jun 10 - [France warns Iran on drone deliveries to Russia](https://news.yahoo.com/france-warns-iran-drone-deliveries-164546894.html)
-- Jun 10 - [Russians are cheering defeats of Western-made tanks. Their optimism may prove premature.](https://news.yahoo.com/russians-cheering-defeats-western-made-164036511.html)
 <!-- feed end -->
