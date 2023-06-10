@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Former Ga. college athlete accused of staging house party armed robbery back in jail on drug charges](https://news.yahoo.com/former-ga-college-athlete-accused-212534462.html)
+- Jun 10 - [Four Colombian children found alive in jungle weeks after plane crash](https://news.yahoo.com/four-missing-colombian-children-found-001030275.html)
+- Jun 09 - [Officer who raced to Parkland massacre scene testifies against deputy who stayed outside](https://news.yahoo.com/officer-raced-parkland-massacre-scene-230237622.html)
+- Jun 09 - [Factbox-How secret were the documents found at Mar-a-Lago?](https://news.yahoo.com/factbox-secret-were-documents-found-215054208.html)
 - Jun 09 - [Trump Extremists Demand Civil War, Mass Murder After New Indictment](https://news.yahoo.com/trump-extremists-demand-civil-war-202112664.html)
 - Jun 09 - [Special Counsel Jack Smith on Donald Trump Indictment](https://finance.yahoo.com/video/special-counsel-jack-smith-donald-193742559.html)
-- Jun 09 - [O.J. Simpson Tells Donald Trump to Shut Up About His Indictment: 'That Cannot Help Him'](https://news.yahoo.com/o-j-simpson-tells-donald-183000238.html)
-- Jun 09 - [Activist sues Rep. Lauren Boebert for defamation, alleging she slandered him on Fox News when he revealed her alleged drug use, abortions, and escort work](https://news.yahoo.com/activist-sues-rep-lauren-boebert-190902930.html)
 <!-- feed end -->
