@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Mormon Crickets Swarm Idaho Road as Millions Descend on Neighboring Nevada](https://news.yahoo.com/mormon-crickets-swarm-idaho-road-153804966.html)
+- Jun 10 - [Drone-wielding 'Santa' saves Ukraine family from flood](https://news.yahoo.com/drone-wielding-santa-saves-ukraine-160733524.html)
+- Jun 10 - [Americans Who Moved Between The East And West Coasts Are Revealing What Gave Them Culture Shock And It Confirms US Regions Are Basically Different Countries](https://news.yahoo.com/americans-moved-between-east-west-154603604.html)
 - Jun 10 - [Ivanka Trump has 'disappeared' from Miami and will stay 'far away from daddy' as he faces indictment, report says](https://news.yahoo.com/ivanka-trump-disappeared-miami-stay-131615000.html)
+- Jun 10 - [13 common bug bites and how to spot them](https://news.yahoo.com/13-common-bug-bites-spot-124758501.html)
 - Jun 10 - [Hunter Biden's explicit laptop images released by former Donald Trump employee](https://news.yahoo.com/hunter-bidens-explicit-laptop-images-115148881.html)
-- Jun 10 - [2 blind passengers say being ordered to leave a cruise ship before it set sail was 'humiliating': report](https://news.yahoo.com/2-blind-passengers-being-ordered-094500802.html)
-- Jun 09 - [The valet who brought Donald Trump his Diet Coke is also charged](https://news.yahoo.com/valet-brought-donald-trump-diet-235454927.html)
 <!-- feed end -->
