@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Ukraine war: Kyiv breaks through Russia's first defensive lines](https://news.yahoo.com/ukraine-war-ukraine-breaks-russias-084142947.html)
+- Jun 10 - [Hunter Biden's explicit laptop images released by former Donald Trump employee](https://news.yahoo.com/hunter-bidens-explicit-laptop-images-115148881.html)
+- Jun 10 - [Ukraine's army reports new gains against Russian forces near Bakhmut](https://news.yahoo.com/ukraines-army-reports-gains-against-105255872.html)
+- Jun 10 - [2 blind passengers say being ordered to leave a cruise ship before it set sail was 'humiliating': report](https://news.yahoo.com/2-blind-passengers-being-ordered-094500802.html)
 - Jun 10 - [A top executive was fired after being caught having an affair on China's version of TikTok. Now, the $85 dress his mistress wore in the video is selling out.](https://news.yahoo.com/top-executive-fired-being-caught-065412087.html)
-- Jun 09 - [The valet who brought Donald Trump his Diet Coke is also charged](https://news.yahoo.com/valet-brought-donald-trump-diet-235454927.html)
-- Jun 09 - [Officer who raced to Parkland massacre scene testifies against deputy who stayed outside](https://news.yahoo.com/officer-raced-parkland-massacre-scene-230237622.html)
-- Jun 09 - [Factbox-How secret were the documents found at Mar-a-Lago?](https://news.yahoo.com/factbox-secret-were-documents-found-215054208.html)
+- Jun 10 - [Four Colombian children found alive in jungle weeks after plane crash](https://news.yahoo.com/four-missing-colombian-children-found-001030275.html)
 <!-- feed end -->
