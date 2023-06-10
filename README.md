@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 10 - [Russia's central bank sounds alarms on the economy as the falling ruble and record labor shortage add inflationary pressures](https://finance.yahoo.com/news/russias-central-bank-sounds-alarms-203000216.html)
 - Jun 10 - [NCGOP votes to censure Republican U.S. Sen. Thom Tillis](https://news.yahoo.com/ncgop-votes-censure-republican-u-191154031.html)
+- Jun 10 - [Texas will use eminent domain to seize Fairfield Lake State Park from private developer](https://news.yahoo.com/texas-eminent-domain-seize-fairfield-175937116.html)
 - Jun 10 - ['Crashed Las Vegas UFO' witness 'terrified' by 8-foot creatures in his backyard: '100% not human'](https://news.yahoo.com/crashed-las-vegas-ufo-witness-174735392.html)
 - Jun 10 - [Ted Kaczynski, known as the Unabomber for years of attacks that killed 3, dies in prison at 81](https://news.yahoo.com/theodore-ted-kaczynski-known-unabomber-165836331.html)
-- Jun 10 - [‘Totally wrong’: Former Kansas officer says he’s ‘humiliated’ for incident with teen girl](https://news.yahoo.com/totally-wrong-former-kansas-officer-164728244.html)
 <!-- feed end -->
