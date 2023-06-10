@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [So you think they've got Trump right where they want him, eh? Wait till you hear what this former federal prosecutor turned high-end defense attorney has to say](https://news.yahoo.com/think-theyve-got-trump-where-221112415.html)
 - Jun 10 - [Russia's central bank sounds alarms on the economy as the falling ruble and record labor shortage add inflationary pressures](https://finance.yahoo.com/news/russias-central-bank-sounds-alarms-203000216.html)
 - Jun 10 - [NCGOP votes to censure Republican U.S. Sen. Thom Tillis](https://news.yahoo.com/ncgop-votes-censure-republican-u-191154031.html)
 - Jun 10 - [Texas will use eminent domain to seize Fairfield Lake State Park from private developer](https://news.yahoo.com/texas-eminent-domain-seize-fairfield-175937116.html)
-- Jun 10 - ['Crashed Las Vegas UFO' witness 'terrified' by 8-foot creatures in his backyard: '100% not human'](https://news.yahoo.com/crashed-las-vegas-ufo-witness-174735392.html)
-- Jun 10 - [Ted Kaczynski, known as the Unabomber for years of attacks that killed 3, dies in prison at 81](https://news.yahoo.com/theodore-ted-kaczynski-known-unabomber-165836331.html)
+- Jun 10 - [Ron DeSantis: ‘I would’ve been court-martialed for taking classified documents’](https://news.yahoo.com/ron-desantis-ve-court-martialed-175036688.html)
 <!-- feed end -->
