@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [How the U.S. let EV battery tech born here wind up in the hands of China](https://www.autoblog.com/2023/06/11/how-the-u-s-let-ev-battery-tech-born-here-wind-up-in-the-hands-of-china/)
-- Jun 11 - [Ford's electric Mustang Mach-E no longer comes with a power cord](https://www.autoblog.com/2023/06/11/ford-mustang-mach-e-mobile-charging-cable-power-cord/)
+- Jun 11 - [‘A slow-moving car crash’: The US Education Department is set to send student loan bills for the first time in 3 years — but also made cuts because it's low on cash. What could go wrong?](https://finance.yahoo.com/news/slow-moving-car-crash-us-125000789.html)
+- Jun 11 - [Ukraine retakes village in 'first results' of counterattack - military](https://news.yahoo.com/ukraine-retakes-village-first-results-142617940.html)
+- Jun 11 - [Chief Justice John Roberts listed two vacation homes on two different continents in his real estate income disclosures while Elena Kagan listed a parking spot in DC](https://news.yahoo.com/chief-justice-john-roberts-listed-140625943.html)
 - Jun 11 - [Protesters carrying Nazi flags and DeSantis imagery gathered outside Disney World in Orlando, Florida](https://news.yahoo.com/protesters-carrying-nazi-flags-desantis-122405674.html)
-- Jun 11 - [Hacker drains Russian special services wallets, transfers funds to Ukraine](https://news.yahoo.com/hacker-drains-russian-special-services-121400918.html)
-- Jun 11 - [People Are Sharing The “Warning Signs” That A Place Is About To Get Really, Really Expensive, And They’re Right On The Money](https://news.yahoo.com/people-sharing-warning-signs-place-111602824.html)
+- Jun 11 - [A Twin Peaks worker says she made more than $600 in one shift — but was still barely able to pay her rent. Here are 3 'cash-only' savings hacks to always stay on top of your bills](https://finance.yahoo.com/news/twin-peaks-bartender-claims-she-113500232.html)
 <!-- feed end -->
