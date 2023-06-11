@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [UBS to impose restrictions on Credit Suisse bankers after takeover complete, FT says](https://finance.yahoo.com/news/ubs-impose-restrictions-credit-suisse-203356300.html)
+- Jun 11 - [Mississippi civil rights lawyer arrested filming traffic stop, attorney says](https://news.yahoo.com/mississippi-civil-rights-lawyer-arrested-212807021.html)
+- Jun 11 - [Shoigu orders all PMCs to be placed under Russian Defense Ministry control, Prigozhin immediately refuses](https://news.yahoo.com/shoigu-orders-pmcs-placed-under-210300941.html)
+- Jun 11 - [Ukraine Situation Report: Advances Made In Grueling Fight](https://news.yahoo.com/ukraine-situation-report-advances-made-200223420.html)
 - Jun 11 - [Vehicle fire leads to partial I-95 collapse in Philadelphia](https://news.yahoo.com/vehicle-fire-leads-partial-95-195701422.html)
-- Jun 11 - [Trump Calls For Protests Over Latest Indictment in Interview With Roger Stone](https://news.yahoo.com/trump-calls-protests-over-latest-195123973.html)
-- Jun 11 - [Wounded 60-year-old returns fire at accused car burglars, killing one, Texas cops say](https://news.yahoo.com/wounded-60-old-returns-fire-192229080.html)
-- Jun 11 - [Dead fish are washing up along beaches on the Texas Gulf Coast, officials say. Here’s why](https://news.yahoo.com/dead-fish-washing-along-beaches-000058696.html)
+- Jun 11 - [Thailand legalized marijuana for the economic benefit. But now Thai growers say they are being undercut by illegal US imports.](https://news.yahoo.com/thailand-legalized-marijuana-economic-benefit-194219847.html)
 <!-- feed end -->
