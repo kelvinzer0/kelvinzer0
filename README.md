@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [This Bull Market Indicator Hasn't Been Wrong in 67 Years, and It Has a Clear Message for Where Stocks Head Next](https://www.fool.com/investing/2023/06/11/bull-market-indicator-not-wrong-in-67-years-stocks/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Jun 11 - [I don't want to live in a country where Trump could be held accountable](https://news.yahoo.com/dont-want-live-country-where-080013662.html)
+- Jun 11 - [US citizen detained on drug charges in Moscow identified as rock band manager Travis Leake](https://news.yahoo.com/us-citizen-detained-russia-appearing-021732041.html)
 - Jun 11 - [Dead fish are washing up along beaches on the Texas Gulf Coast, officials say. Here’s why](https://news.yahoo.com/dead-fish-washing-along-beaches-000058696.html)
 - Jun 10 - [Russians are cheering defeats of Western-made tanks. Their optimism may prove premature.](https://news.yahoo.com/russians-cheering-defeats-western-made-164036511.html)
-- Jun 10 - [So you think they've got Trump right where they want him, eh? Wait till you hear what this former federal prosecutor turned high-end defense attorney has to say](https://news.yahoo.com/think-theyve-got-trump-where-221112415.html)
-- Jun 10 - [Bidens offer 'joy' at White House Pride event as LGBTQ attacks mount](https://finance.yahoo.com/news/bidens-offer-joy-white-house-201034480.html)
 <!-- feed end -->
