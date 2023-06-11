@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Dead fish are washing up along beaches on the Texas Gulf Coast, officials say. Here’s why](https://news.yahoo.com/dead-fish-washing-along-beaches-000058696.html)
 - Jun 11 - [Lindsey Graham Yells Back at George Stephanopoulos for Cutting Off Hillary Clinton Tirade: ‘Let Me Finish!’](https://news.yahoo.com/lindsey-graham-yells-back-george-182228004.html)
+- Jun 11 - [Mother of rescued Colombia children survived 4 days after jungle crash](https://news.yahoo.com/mother-rescued-colombia-children-survived-180343228.html)
 - Jun 11 - [The end of Putin’s empire could be sudden](https://news.yahoo.com/end-putin-empire-could-sudden-180000649.html)
-- Jun 11 - [Billionaire Soros hands control of empire to son -WSJ](https://news.yahoo.com/billionaire-soros-hands-control-empire-170232590.html)
 - Jun 11 - [Children found after 40 days in Amazon survived by eating ‘cassava flour’](https://news.yahoo.com/children-found-40-days-amazon-051512569.html)
-- Jun 11 - [Russia bans use of large quantities of ammunition due to self-detonation – General Staff](https://news.yahoo.com/russia-bans-large-quantities-ammunition-163042802.html)
 <!-- feed end -->
