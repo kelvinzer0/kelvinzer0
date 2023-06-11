@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [A woman is renting herself out to lonely strangers for just 14 cents on China's version of Instagram to help them 'feel alive' — but it's not what you think](https://news.yahoo.com/woman-renting-herself-lonely-strangers-060035167.html)
 - Jun 11 - [Dead fish are washing up along beaches on the Texas Gulf Coast, officials say. Here’s why](https://news.yahoo.com/dead-fish-washing-along-beaches-000058696.html)
 - Jun 10 - [Russians are cheering defeats of Western-made tanks. Their optimism may prove premature.](https://news.yahoo.com/russians-cheering-defeats-western-made-164036511.html)
 - Jun 10 - [So you think they've got Trump right where they want him, eh? Wait till you hear what this former federal prosecutor turned high-end defense attorney has to say](https://news.yahoo.com/think-theyve-got-trump-where-221112415.html)
-- Jun 10 - [PGA Tour commissioner reportedly tells employees the reason for LIV Golf merger: 'We cannot compete with a foreign government with unlimited money'](https://news.yahoo.com/pga-tour-commissioner-reportedly-tells-192931829.html)
-- Jun 10 - [NCGOP votes to censure Republican U.S. Sen. Thom Tillis](https://news.yahoo.com/ncgop-votes-censure-republican-u-191154031.html)
+- Jun 10 - [Bidens offer 'joy' at White House Pride event as LGBTQ attacks mount](https://finance.yahoo.com/news/bidens-offer-joy-white-house-201034480.html)
 <!-- feed end -->
