@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Dave Ramsey Has a Big Warning On What Just Changed For Car Buyers](https://www.thestreet.com/stocks/dave-ramsey-has-a-big-warning-on-what-just-changed-for-car-buyers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jun 11 - [New Zealand's national broadcaster probes 'inappropriate' editing of Ukraine war stories](https://news.yahoo.com/zealands-national-broadcaster-probes-inappropriate-215521467.html)
 - Jun 11 - [Mississippi civil rights lawyer arrested filming traffic stop, attorney says](https://news.yahoo.com/mississippi-civil-rights-lawyer-arrested-212807021.html)
+- Jun 11 - [Jim Jordan’s CNN Interview Over Trump Indictment Goes Off the Rails: ‘What You’re Saying Doesn’t Make Sense!’ (Video)](https://news.yahoo.com/jim-jordan-cnn-interview-over-211306150.html)
 - Jun 11 - [Shoigu orders all PMCs to be placed under Russian Defense Ministry control, Prigozhin immediately refuses](https://news.yahoo.com/shoigu-orders-pmcs-placed-under-210300941.html)
-- Jun 11 - [Ukraine Situation Report: Advances Made In Grueling Fight](https://news.yahoo.com/ukraine-situation-report-advances-made-200223420.html)
-- Jun 11 - [Vehicle fire leads to partial I-95 collapse in Philadelphia](https://news.yahoo.com/vehicle-fire-leads-partial-95-195701422.html)
-- Jun 11 - [Thailand legalized marijuana for the economic benefit. But now Thai growers say they are being undercut by illegal US imports.](https://news.yahoo.com/thailand-legalized-marijuana-economic-benefit-194219847.html)
 <!-- feed end -->
