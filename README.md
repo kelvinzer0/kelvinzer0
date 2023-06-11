@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Bill Barr speaks about the Donald Trump indictment](https://news.yahoo.com/bill-barr-speaks-donald-trump-163344879.html)
 - Jun 11 - [Trump is 'toast' if classified records case is proven, ex-attorney general says](https://news.yahoo.com/trump-toast-classified-records-case-151521121.html)
 - Jun 11 - [‘A slow-moving car crash’: The US Education Department is set to send student loan bills for the first time in 3 years — but also made cuts because it's low on cash. What could go wrong?](https://finance.yahoo.com/news/slow-moving-car-crash-us-125000789.html)
 - Jun 11 - [Ukraine retakes village in 'first results' of counterattack - military](https://news.yahoo.com/ukraine-retakes-village-first-results-142617940.html)
-- Jun 11 - [Dana Bash spars with Jim Jordan over Trump indictment](https://news.yahoo.com/dana-bash-spars-jim-jordan-141946634.html)
 - Jun 11 - [Chief Justice John Roberts listed two vacation homes on two different continents in his real estate income disclosures while Elena Kagan listed a parking spot in DC](https://news.yahoo.com/chief-justice-john-roberts-listed-140625943.html)
 <!-- feed end -->
