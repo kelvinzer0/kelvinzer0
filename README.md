@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Bill Barr speaks about the Donald Trump indictment](https://news.yahoo.com/bill-barr-speaks-donald-trump-163344879.html)
-- Jun 11 - [Trump is 'toast' if classified records case is proven, ex-attorney general says](https://news.yahoo.com/trump-toast-classified-records-case-151521121.html)
-- Jun 11 - [‘A slow-moving car crash’: The US Education Department is set to send student loan bills for the first time in 3 years — but also made cuts because it's low on cash. What could go wrong?](https://finance.yahoo.com/news/slow-moving-car-crash-us-125000789.html)
-- Jun 11 - [Ukraine retakes village in 'first results' of counterattack - military](https://news.yahoo.com/ukraine-retakes-village-first-results-142617940.html)
-- Jun 11 - [Chief Justice John Roberts listed two vacation homes on two different continents in his real estate income disclosures while Elena Kagan listed a parking spot in DC](https://news.yahoo.com/chief-justice-john-roberts-listed-140625943.html)
+- Jun 11 - [Billionaire Soros hands control of empire to son -WSJ](https://news.yahoo.com/billionaire-soros-hands-control-empire-170232590.html)
+- Jun 11 - [Children found after 40 days in Amazon survived by eating ‘cassava flour’](https://news.yahoo.com/children-found-40-days-amazon-051512569.html)
+- Jun 11 - [Russia bans use of large quantities of ammunition due to self-detonation – General Staff](https://news.yahoo.com/russia-bans-large-quantities-ammunition-163042802.html)
+- Jun 11 - [Watch: Man gets out of car to chase bear in Yellowstone; gets vilified](https://sports.yahoo.com/watch-man-gets-car-chase-163041331.html)
+- Jun 11 - [IRS gets major power to request private tax info after Supreme Court decision](https://finance.yahoo.com/news/irs-gets-major-power-to-request-private-tax-info-after-supreme-court-decision-161906032.html)
 <!-- feed end -->
