@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [This Bull Market Indicator Hasn't Been Wrong in 67 Years, and It Has a Clear Message for Where Stocks Head Next](https://www.fool.com/investing/2023/06/11/bull-market-indicator-not-wrong-in-67-years-stocks/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Jun 11 - [I don't want to live in a country where Trump could be held accountable](https://news.yahoo.com/dont-want-live-country-where-080013662.html)
-- Jun 11 - [US citizen detained on drug charges in Moscow identified as rock band manager Travis Leake](https://news.yahoo.com/us-citizen-detained-russia-appearing-021732041.html)
-- Jun 11 - [Dead fish are washing up along beaches on the Texas Gulf Coast, officials say. Here’s why](https://news.yahoo.com/dead-fish-washing-along-beaches-000058696.html)
-- Jun 10 - [Russians are cheering defeats of Western-made tanks. Their optimism may prove premature.](https://news.yahoo.com/russians-cheering-defeats-western-made-164036511.html)
+- Jun 11 - [People Are Sharing The “Warning Signs” That A Place Is About To Get Really, Really Expensive, And They’re Right On The Money](https://news.yahoo.com/people-sharing-warning-signs-place-111602824.html)
+- Jun 11 - [Prigozhin says Wagner will not sign any contract with Russian defence minister](https://news.yahoo.com/prigozhin-says-wagner-not-sign-110819530.html)
+- Jun 11 - [UPDATE 2-Prigozhin says Wagner will not sign any contract with Russian defence minister](https://finance.yahoo.com/news/1-prigozhin-says-wagner-not-110435052.html)
+- Jun 11 - ['You should never be at home': This 58-year-old NYU professor went viral for telling young folks that they need to be out of the house for success — but his advice got blasted](https://finance.yahoo.com/news/never-home-58-old-nyu-110000040.html)
+- Jun 11 - [Senate GOP leaders break with House on Trump indictment](https://news.yahoo.com/senate-gop-leaders-break-house-100000555.html)
 <!-- feed end -->
