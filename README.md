@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Trump is 'toast' if classified records case is proven, ex-attorney general says](https://news.yahoo.com/trump-toast-classified-records-case-151521121.html)
 - Jun 11 - [‘A slow-moving car crash’: The US Education Department is set to send student loan bills for the first time in 3 years — but also made cuts because it's low on cash. What could go wrong?](https://finance.yahoo.com/news/slow-moving-car-crash-us-125000789.html)
 - Jun 11 - [Ukraine retakes village in 'first results' of counterattack - military](https://news.yahoo.com/ukraine-retakes-village-first-results-142617940.html)
+- Jun 11 - [Dana Bash spars with Jim Jordan over Trump indictment](https://news.yahoo.com/dana-bash-spars-jim-jordan-141946634.html)
 - Jun 11 - [Chief Justice John Roberts listed two vacation homes on two different continents in his real estate income disclosures while Elena Kagan listed a parking spot in DC](https://news.yahoo.com/chief-justice-john-roberts-listed-140625943.html)
-- Jun 11 - [Protesters carrying Nazi flags and DeSantis imagery gathered outside Disney World in Orlando, Florida](https://news.yahoo.com/protesters-carrying-nazi-flags-desantis-122405674.html)
-- Jun 11 - [A Twin Peaks worker says she made more than $600 in one shift — but was still barely able to pay her rent. Here are 3 'cash-only' savings hacks to always stay on top of your bills](https://finance.yahoo.com/news/twin-peaks-bartender-claims-she-113500232.html)
 <!-- feed end -->
