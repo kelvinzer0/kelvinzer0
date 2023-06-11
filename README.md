@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Lindsey Graham Yells Back at George Stephanopoulos for Cutting Off Hillary Clinton Tirade: ‘Let Me Finish!’](https://news.yahoo.com/lindsey-graham-yells-back-george-182228004.html)
+- Jun 11 - [The end of Putin’s empire could be sudden](https://news.yahoo.com/end-putin-empire-could-sudden-180000649.html)
 - Jun 11 - [Billionaire Soros hands control of empire to son -WSJ](https://news.yahoo.com/billionaire-soros-hands-control-empire-170232590.html)
 - Jun 11 - [Children found after 40 days in Amazon survived by eating ‘cassava flour’](https://news.yahoo.com/children-found-40-days-amazon-051512569.html)
 - Jun 11 - [Russia bans use of large quantities of ammunition due to self-detonation – General Staff](https://news.yahoo.com/russia-bans-large-quantities-ammunition-163042802.html)
-- Jun 11 - [Watch: Man gets out of car to chase bear in Yellowstone; gets vilified](https://sports.yahoo.com/watch-man-gets-car-chase-163041331.html)
-- Jun 11 - [IRS gets major power to request private tax info after Supreme Court decision](https://finance.yahoo.com/news/irs-gets-major-power-to-request-private-tax-info-after-supreme-court-decision-161906032.html)
 <!-- feed end -->
