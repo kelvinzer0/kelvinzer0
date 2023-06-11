@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [How the U.S. let EV battery tech born here wind up in the hands of China](https://www.autoblog.com/2023/06/11/how-the-u-s-let-ev-battery-tech-born-here-wind-up-in-the-hands-of-china/)
+- Jun 11 - [Ford's electric Mustang Mach-E no longer comes with a power cord](https://www.autoblog.com/2023/06/11/ford-mustang-mach-e-mobile-charging-cable-power-cord/)
+- Jun 11 - [Protesters carrying Nazi flags and DeSantis imagery gathered outside Disney World in Orlando, Florida](https://news.yahoo.com/protesters-carrying-nazi-flags-desantis-122405674.html)
 - Jun 11 - [Hacker drains Russian special services wallets, transfers funds to Ukraine](https://news.yahoo.com/hacker-drains-russian-special-services-121400918.html)
 - Jun 11 - [People Are Sharing The “Warning Signs” That A Place Is About To Get Really, Really Expensive, And They’re Right On The Money](https://news.yahoo.com/people-sharing-warning-signs-place-111602824.html)
-- Jun 11 - [Prigozhin says Wagner will not sign any contract with Russian defence minister](https://news.yahoo.com/prigozhin-says-wagner-not-sign-110819530.html)
-- Jun 11 - ['You should never be at home': This 58-year-old NYU professor went viral for telling young folks that they need to be out of the house for success — but his advice got blasted](https://finance.yahoo.com/news/never-home-58-old-nyu-110000040.html)
-- Jun 11 - [Senate GOP leaders break with House on Trump indictment](https://news.yahoo.com/senate-gop-leaders-break-house-100000555.html)
 <!-- feed end -->
