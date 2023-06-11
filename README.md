@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Dead fish are washing up along beaches on the Texas Gulf Coast, officials say. Here’s why](https://news.yahoo.com/dead-fish-washing-along-beaches-000058696.html)
+- Jun 10 - [Russians are cheering defeats of Western-made tanks. Their optimism may prove premature.](https://news.yahoo.com/russians-cheering-defeats-western-made-164036511.html)
+- Jun 10 - [Little Sister Takes Charge as Kim Jong Un Morphs Into Vegas-Era Elvis Presley](https://news.yahoo.com/little-sister-takes-charge-kim-230105855.html)
 - Jun 10 - [So you think they've got Trump right where they want him, eh? Wait till you hear what this former federal prosecutor turned high-end defense attorney has to say](https://news.yahoo.com/think-theyve-got-trump-where-221112415.html)
 - Jun 10 - [Russia's central bank sounds alarms on the economy as the falling ruble and record labor shortage add inflationary pressures](https://finance.yahoo.com/news/russias-central-bank-sounds-alarms-203000216.html)
-- Jun 10 - [NCGOP votes to censure Republican U.S. Sen. Thom Tillis](https://news.yahoo.com/ncgop-votes-censure-republican-u-191154031.html)
-- Jun 10 - [Texas will use eminent domain to seize Fairfield Lake State Park from private developer](https://news.yahoo.com/texas-eminent-domain-seize-fairfield-175937116.html)
-- Jun 10 - [Ron DeSantis: ‘I would’ve been court-martialed for taking classified documents’](https://news.yahoo.com/ron-desantis-ve-court-martialed-175036688.html)
 <!-- feed end -->
