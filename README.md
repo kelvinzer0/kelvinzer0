@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [A McDonald's ad in India showing a man flirting with a female cashier has sparked outrage online: 'This is outrageous and disgusting beyond words'](https://news.yahoo.com/mcdonalds-ad-india-showing-man-055709746.html)
 - Jun 12 - [Ukraine says heavy battles going on after first counteroffensive gains](https://finance.yahoo.com/news/ukraine-says-heavy-battles-going-051529795.html)
 - Jun 12 - [Bodycam recording catches cops investigating potential UFO crash: 'Hey, if those 9-foot beings come back, don't call us alright?'](https://news.yahoo.com/bodycam-recording-catches-cops-investigating-030438948.html)
 - Jun 12 - [A San Diego man got sick of living in a regular country so he founded a nation of his own called Slowjamastan and crowned himself its sultan](https://news.yahoo.com/san-diego-man-got-sick-025136921.html)
 - Jun 12 - [China's Nio cuts prices, ends free battery swapping as sales slide](https://finance.yahoo.com/news/chinas-nio-cuts-prices-models-021912445.html)
-- Jun 12 - [Police: 3 dead, 3 wounded in shooting at Maryland home stemming from dispute](https://news.yahoo.com/police-1-dead-several-wounded-015832976.html)
 <!-- feed end -->
