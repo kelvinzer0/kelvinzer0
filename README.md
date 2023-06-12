@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [Man attempts ropeless climb of Seoul skyscraper](https://news.yahoo.com/man-attempts-ropeless-climb-seoul-072848158.html)
+- Jun 12 - [From GPS-guided bombs to electronic warfare, Russia improves its weaponry in Ukraine](https://news.yahoo.com/gps-guided-bombs-electronic-warfare-064957392.html)
+- Jun 12 - [A ship captain who's been attacked by orcas twice says they're learning how to attack boats faster: 'It didn't take them that long to destroy both rudders'](https://news.yahoo.com/ship-captain-whos-attacked-orcas-062737501.html)
 - Jun 12 - [A McDonald's ad in India showing a man flirting with a female cashier has sparked outrage online: 'This is outrageous and disgusting beyond words'](https://news.yahoo.com/mcdonalds-ad-india-showing-man-055709746.html)
-- Jun 12 - [Ukraine says heavy battles going on after first counteroffensive gains](https://finance.yahoo.com/news/ukraine-says-heavy-battles-going-051529795.html)
 - Jun 12 - [Bodycam recording catches cops investigating potential UFO crash: 'Hey, if those 9-foot beings come back, don't call us alright?'](https://news.yahoo.com/bodycam-recording-catches-cops-investigating-030438948.html)
-- Jun 12 - [A San Diego man got sick of living in a regular country so he founded a nation of his own called Slowjamastan and crowned himself its sultan](https://news.yahoo.com/san-diego-man-got-sick-025136921.html)
-- Jun 12 - [China's Nio cuts prices, ends free battery swapping as sales slide](https://finance.yahoo.com/news/chinas-nio-cuts-prices-models-021912445.html)
 <!-- feed end -->
