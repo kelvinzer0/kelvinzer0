@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Proposal to end Senate standoff over military promotions and abortion policy goes nowhere](https://news.yahoo.com/proposal-end-senate-standoff-over-202801970.html)
+- Jun 12 - [Sean Hannity Grills Gavin Newsom on Homeless Crisis, California Governor ‘Owns’ It: ‘I’m Not Here Defending This’](https://news.yahoo.com/sean-hannity-grills-gavin-newsom-213256788.html)
+- Jun 12 - [Kevin McCarthy's argument that secret documents are safer in a bathroom than a garage because 'a bathroom door locks' has one fatal flaw](https://news.yahoo.com/kevin-mccarthys-argument-secret-documents-202708696.html)
+- Jun 12 - [Draining reservoir from Ukraine's destroyed dam is revealing World War II weapons](https://news.yahoo.com/draining-reservoir-ukraines-destroyed-dam-202224093.html)
 - Jun 12 - [Mexico City mayor to step down to pursue historic bid for presidency](https://news.yahoo.com/mexico-city-mayor-step-down-201829351.html)
-- Jun 12 - [Kevin McCarthy Offers Crappy Defense Of Trump Toilet Pic](https://news.yahoo.com/kevin-mccarthy-offers-crappy-defense-201143594.html)
-- Jun 12 - [Ukraine is playing a deadly 'game' as the big counteroffensive gets underway, and its main attack is likely still to come](https://news.yahoo.com/ukraine-playing-deadly-game-big-201103574.html)
-- Jun 12 - [Driver needs rescue after ‘strange creature’ she saved loses temper, TX officials say](https://news.yahoo.com/driver-needs-rescue-strange-creature-195401759.html)
+- Jun 12 - [Ukraine appears to be playing a deadly 'game' as the big counteroffensive gets underway, and its main attack is likely still to come](https://news.yahoo.com/ukraine-playing-deadly-game-big-201103574.html)
 <!-- feed end -->
