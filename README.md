@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [Ted Kaczynski, known as the ‘Unabomber,’ is believed to have died by suicide, source says](https://news.yahoo.com/ted-kaczynski-known-unabomber-dies-184534487.html)
 - Jun 12 - [Man attempts ropeless climb of Seoul skyscraper](https://news.yahoo.com/man-attempts-ropeless-climb-seoul-072848158.html)
 - Jun 12 - [From GPS-guided bombs to electronic warfare, Russia improves its weaponry in Ukraine](https://news.yahoo.com/gps-guided-bombs-electronic-warfare-064957392.html)
 - Jun 12 - [A ship captain who's been attacked by orcas twice says they're learning how to attack boats faster: 'It didn't take them that long to destroy both rudders'](https://news.yahoo.com/ship-captain-whos-attacked-orcas-062737501.html)
 - Jun 12 - [A McDonald's ad in India showing a man flirting with a female cashier has sparked outrage online: 'This is outrageous and disgusting beyond words'](https://news.yahoo.com/mcdonalds-ad-india-showing-man-055709746.html)
-- Jun 12 - [Bodycam recording catches cops investigating potential UFO crash: 'Hey, if those 9-foot beings come back, don't call us alright?'](https://news.yahoo.com/bodycam-recording-catches-cops-investigating-030438948.html)
 <!-- feed end -->
