@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [Nurses Are Sharing Final "Deathbed Confessions" Of Patients, And They Range From Haunting To Sweet](https://news.yahoo.com/nurses-sharing-final-deathbed-confessions-154602036.html)
+- Jun 12 - [Prime Day 2023: Best home and garden deals, plus what to know before the big day(s)](https://news.yahoo.com/prime-day-2023-best-home-and-garden-deals-153623031.html)
+- Jun 12 - [Homeless, delusional defendant sent to prison for life shown mercy by Miami judge](https://news.yahoo.com/homeless-delusional-defendant-sent-prison-152901247.html)
+- Jun 12 - [Man threatening driver with gun was caught on video, then he was arrested, SC sheriff says](https://news.yahoo.com/man-threatening-driver-gun-caught-145607684.html)
 - Jun 12 - [‘Morning Joe’ Calls Out New York Post for ‘What About the Bidens?’ Headline: ‘You Don’t Have to Play to the Dumbest Readers’ (Video)](https://news.yahoo.com/morning-joe-calls-york-post-144926532.html)
-- Jun 12 - [Republican official appears to have moved $1.3m from nonprofit to own law firm](https://news.yahoo.com/republican-official-appears-moved-1-140022624.html)
-- Jun 12 - [Woman hit with ‘baseball-sized rock,’ punched by another woman on Lake Lanier dock, deputies say](https://news.yahoo.com/woman-hit-baseball-sized-rock-135242522.html)
-- Jun 12 - [‘We’re paying twice for the same experience’: Plus-size travelers hit out at ‘discriminatory’ airline seat policies](https://news.yahoo.com/paying-twice-same-experience-plus-133640590.html)
-- Jun 12 - [I swapped alcohol for 'Psychedelic Water' popular among sober-curious people online. I found it's the perfect drink to avoid social anxiety without a hangover.](https://news.yahoo.com/substituted-alcohol-psychedelic-water-kava-133000917.html)
 <!-- feed end -->
