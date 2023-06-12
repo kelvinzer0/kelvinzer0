@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Jun 12 - [A San Diego man got sick of living in a regular country so he founded a nation of his own called Slowjamastan and crowned himself its sultan](https://news.yahoo.com/san-diego-man-got-sick-025136921.html)
 - Jun 12 - [China's Nio cuts prices, ends free battery swapping as sales slide](https://finance.yahoo.com/news/chinas-nio-cuts-prices-models-021912445.html)
 - Jun 12 - [Police: 3 dead, 3 wounded in shooting at Maryland home stemming from dispute](https://news.yahoo.com/police-1-dead-several-wounded-015832976.html)
-- Jun 12 - [Children found after 40 days in Amazon survived by eating ‘cassava flour’](https://news.yahoo.com/children-found-40-days-amazon-051512569.html)
+- Jun 11 - [Mother of the 4 siblings who survived the Colombian plane crash lived for four days before telling her children to 'go away'](https://news.yahoo.com/mother-4-siblings-survived-colombian-232120727.html)
 <!-- feed end -->
