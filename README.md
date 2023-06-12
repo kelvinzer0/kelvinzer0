@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [Asian American student with 1590 SAT score blames affirmative action for rejections from 6 colleges](https://news.yahoo.com/asian-american-student-1590-sat-171857237.html)
+- Jun 12 - [Donald Trump's Newest Campaign Video Could Land Him in Legal Trouble With These A-Listers](https://news.yahoo.com/donald-trumps-newest-campaign-video-164000714.html)
+- Jun 12 - [‘We’re paying twice for the same experience’: Plus-size travelers hit out at ‘discriminatory’ airline seat policies](https://news.yahoo.com/paying-twice-same-experience-plus-133640590.html)
 - Jun 12 - [Video shows Ukrainian artillery raking a Russian tank convoy near the front lines, destroying one of the T-72s](https://news.yahoo.com/video-shows-ukrainian-artillery-raking-160733938.html)
 - Jun 12 - [16 Wild "Deathbed Confessions" That Patients Actually Admitted Out Loud Right Before Dying](https://news.yahoo.com/nurses-sharing-final-deathbed-confessions-154602036.html)
-- Jun 12 - [Homeless, delusional defendant sent to prison for life shown mercy by Miami judge](https://news.yahoo.com/homeless-delusional-defendant-sent-prison-152901247.html)
-- Jun 12 - [Fox News’s Turley: Trump could face ‘terminal sentence’ if DOJ proves even one count](https://news.yahoo.com/fox-news-turley-trump-could-152634191.html)
-- Jun 12 - [Man threatening driver with gun was caught on video, then he was arrested, SC sheriff says](https://news.yahoo.com/man-threatening-driver-gun-caught-145607684.html)
 <!-- feed end -->
