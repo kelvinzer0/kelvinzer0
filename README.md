@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Sean Hannity Grills Gavin Newsom on Homeless Crisis, California Governor ‘Owns’ It: ‘I’m Not Here Defending This’](https://news.yahoo.com/sean-hannity-grills-gavin-newsom-213256788.html)
-- Jun 12 - [Kevin McCarthy's argument that secret documents are safer in a bathroom than a garage because 'a bathroom door locks' has one fatal flaw](https://news.yahoo.com/kevin-mccarthys-argument-secret-documents-202708696.html)
-- Jun 12 - [Draining reservoir from Ukraine's destroyed dam is revealing World War II weapons](https://news.yahoo.com/draining-reservoir-ukraines-destroyed-dam-202224093.html)
-- Jun 12 - [Mexico City mayor to step down to pursue historic bid for presidency](https://news.yahoo.com/mexico-city-mayor-step-down-201829351.html)
-- Jun 12 - [Ukraine appears to be playing a deadly 'game' as the big counteroffensive gets underway, and its main attack is likely still to come](https://news.yahoo.com/ukraine-playing-deadly-game-big-201103574.html)
+- Jun 12 - [New York City police commissioner, first woman to lead department, resigns after 18 months](https://news.yahoo.com/york-city-police-commissioner-first-213930802.html)
+- Jun 12 - [Judge in Trump criminal hush-money case can stay, NY ethics panel signals](https://news.yahoo.com/judge-trump-criminal-hush-money-211136030.html)
+- Jun 12 - [McCarthy attacks CNN in response to Trump question](https://news.yahoo.com/mccarthy-attacks-cnn-response-trump-210759737.html)
+- Jun 12 - [US Olympian Tori Bowie died from complications of childbirth, autopsy finds](https://sports.yahoo.com/us-olympian-tori-bowie-dies-210437044.html)
+- Jun 12 - [Beloved New Orleans barbecue chef found alive after he was reported dead, family says](https://news.yahoo.com/beloved-orleans-barbecue-chef-found-205543667.html)
 <!-- feed end -->
