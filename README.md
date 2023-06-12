@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [North Korea's Kim vows to 'hold hands' with Putin for strategic cooperation](https://news.yahoo.com/north-koreas-kim-vows-hold-235310669.html)
+- Jun 11 - [Mother of the 4 siblings who survived the Colombian plane crash lived for four days before telling her children to 'go away'](https://news.yahoo.com/mother-4-siblings-survived-colombian-232120727.html)
 - Jun 11 - [Dave Ramsey Has a Big Warning On What Just Changed For Car Buyers](https://www.thestreet.com/stocks/dave-ramsey-has-a-big-warning-on-what-just-changed-for-car-buyers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jun 11 - [New Zealand's national broadcaster probes 'inappropriate' editing of Ukraine war stories](https://news.yahoo.com/zealands-national-broadcaster-probes-inappropriate-215521467.html)
 - Jun 11 - [Mississippi civil rights lawyer arrested filming traffic stop, attorney says](https://news.yahoo.com/mississippi-civil-rights-lawyer-arrested-212807021.html)
-- Jun 11 - [Jim Jordan’s CNN Interview Over Trump Indictment Goes Off the Rails: ‘What You’re Saying Doesn’t Make Sense!’ (Video)](https://news.yahoo.com/jim-jordan-cnn-interview-over-211306150.html)
-- Jun 11 - [Shoigu orders all PMCs to be placed under Russian Defense Ministry control, Prigozhin immediately refuses](https://news.yahoo.com/shoigu-orders-pmcs-placed-under-210300941.html)
 <!-- feed end -->
