@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Calls grow for Judge Aileen Cannon to recuse herself in Trump documents case](https://news.yahoo.com/calls-grow-for-judge-aileen-cannon-to-recuse-herself-in-trump-documents-case-195348307.html)
-- Jun 12 - [Off-duty cop shoots his wife in the face with a rifle, Texas police chief says](https://news.yahoo.com/off-duty-cop-shoots-wife-194753271.html)
-- Jun 12 - ['He's toast': Growing number of Republicans criticize Trump over documents indictment](https://news.yahoo.com/hes-toast-growing-number-of-republicans-criticize-trump-over-documents-indictment-194238857.html)
-- Jun 12 - [Indian zoo reveals three newborn white tiger cubs](https://news.yahoo.com/indian-zoo-reveals-three-newborn-192212171.html)
-- Jun 12 - ["The Most Philadelphia Man Ever" Has Been Found After Going Viral In A Local News Interview About The I-95 Collapse](https://news.yahoo.com/most-philadelphia-man-ever-found-190853679.html)
+- Jun 12 - [Proposal to end Senate standoff over military promotions and abortion policy goes nowhere](https://news.yahoo.com/proposal-end-senate-standoff-over-202801970.html)
+- Jun 12 - [Mexico City mayor to step down to pursue historic bid for presidency](https://news.yahoo.com/mexico-city-mayor-step-down-201829351.html)
+- Jun 12 - [Kevin McCarthy Offers Crappy Defense Of Trump Toilet Pic](https://news.yahoo.com/kevin-mccarthy-offers-crappy-defense-201143594.html)
+- Jun 12 - [Ukraine is playing a deadly 'game' as the big counteroffensive gets underway, and its main attack is likely still to come](https://news.yahoo.com/ukraine-playing-deadly-game-big-201103574.html)
+- Jun 12 - [Driver needs rescue after ‘strange creature’ she saved loses temper, TX officials say](https://news.yahoo.com/driver-needs-rescue-strange-creature-195401759.html)
 <!-- feed end -->
