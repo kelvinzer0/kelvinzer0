@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [GOP Sen. Ron Johnson Tells A Whopper About Donald Trump And Hillary Clinton](https://news.yahoo.com/gop-sen-ron-johnson-tells-121415489.html)
+- Jun 12 - [‘House of cards waiting to collapse’: This major hotel company just wrote off San Francisco, stops payments on 4-star properties due to 'major challenges' — will others follow suit?](https://finance.yahoo.com/news/house-cards-waiting-collapse-major-130000758.html)
+- Jun 12 - [A man drowned snorkelling in Hawaii on his honeymoon. While rescuers scrambled to help, thieves stole the couple's cell phones, wallets, and rental car.](https://news.yahoo.com/man-drowned-snorkelling-hawaii-honeymoon-125520935.html)
+- Jun 12 - [No more 'fire-breathing dragons'? President Biden agreed to slash IRS funding by $21B as part of the debt limit deal — here's how the tax agency plans to cope](https://finance.yahoo.com/news/no-more-fire-breathing-dragons-170000618.html)
 - Jun 12 - ['If you want to die in jail, keep talking' – two national security law experts discuss the special treatment for Trump and offer him some advice](https://news.yahoo.com/want-die-jail-keep-talking-114948115.html)
 - Jun 12 - [Long commutes start after part of I-95 collapses in Philadelphia following tanker truck fire](https://news.yahoo.com/long-commutes-start-part-95-103618880.html)
-- Jun 12 - [New York City has lost 5.3% of its population — nearly 475,000 people — since the start of COVID. And most of them are hunkering down in the South. Here's why](https://finance.yahoo.com/news/york-city-lost-5-3-100000482.html)
-- Jun 12 - [Here's How Much Your Social Security Benefits Will Increase in 2024 As Things Stand Right Now](https://www.fool.com/retirement/2023/06/12/heres-how-much-your-social-security-benefits-will/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 <!-- feed end -->
