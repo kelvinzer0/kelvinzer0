@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [‘House of cards waiting to collapse’: This major hotel company just wrote off San Francisco, stops payments on 4-star properties due to 'major challenges' — will others follow suit?](https://finance.yahoo.com/news/house-cards-waiting-collapse-major-130000758.html)
-- Jun 12 - [A man drowned snorkelling in Hawaii on his honeymoon. While rescuers scrambled to help, thieves stole the couple's cell phones, wallets, and rental car.](https://news.yahoo.com/man-drowned-snorkelling-hawaii-honeymoon-125520935.html)
-- Jun 12 - [No more 'fire-breathing dragons'? President Biden agreed to slash IRS funding by $21B as part of the debt limit deal — here's how the tax agency plans to cope](https://finance.yahoo.com/news/no-more-fire-breathing-dragons-170000618.html)
-- Jun 12 - ['If you want to die in jail, keep talking' – two national security law experts discuss the special treatment for Trump and offer him some advice](https://news.yahoo.com/want-die-jail-keep-talking-114948115.html)
-- Jun 12 - [Long commutes start after part of I-95 collapses in Philadelphia following tanker truck fire](https://news.yahoo.com/long-commutes-start-part-95-103618880.html)
+- Jun 12 - [‘Morning Joe’ Calls Out New York Post for ‘What About the Bidens?’ Headline: ‘You Don’t Have to Play to the Dumbest Readers’ (Video)](https://news.yahoo.com/morning-joe-calls-york-post-144926532.html)
+- Jun 12 - [Republican official appears to have moved $1.3m from nonprofit to own law firm](https://news.yahoo.com/republican-official-appears-moved-1-140022624.html)
+- Jun 12 - [Woman hit with ‘baseball-sized rock,’ punched by another woman on Lake Lanier dock, deputies say](https://news.yahoo.com/woman-hit-baseball-sized-rock-135242522.html)
+- Jun 12 - [‘We’re paying twice for the same experience’: Plus-size travelers hit out at ‘discriminatory’ airline seat policies](https://news.yahoo.com/paying-twice-same-experience-plus-133640590.html)
+- Jun 12 - [I swapped alcohol for 'Psychedelic Water' popular among sober-curious people online. I found it's the perfect drink to avoid social anxiety without a hangover.](https://news.yahoo.com/substituted-alcohol-psychedelic-water-kava-133000917.html)
 <!-- feed end -->
