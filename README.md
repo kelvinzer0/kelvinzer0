@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Nurses Are Sharing Final "Deathbed Confessions" Of Patients, And They Range From Haunting To Sweet](https://news.yahoo.com/nurses-sharing-final-deathbed-confessions-154602036.html)
-- Jun 12 - [Prime Day 2023: Best home and garden deals, plus what to know before the big day(s)](https://news.yahoo.com/prime-day-2023-best-home-and-garden-deals-153623031.html)
+- Jun 12 - [Video shows Ukrainian artillery raking a Russian tank convoy near the front lines, destroying one of the T-72s](https://news.yahoo.com/video-shows-ukrainian-artillery-raking-160733938.html)
+- Jun 12 - [16 Wild "Deathbed Confessions" That Patients Actually Admitted Out Loud Right Before Dying](https://news.yahoo.com/nurses-sharing-final-deathbed-confessions-154602036.html)
 - Jun 12 - [Homeless, delusional defendant sent to prison for life shown mercy by Miami judge](https://news.yahoo.com/homeless-delusional-defendant-sent-prison-152901247.html)
+- Jun 12 - [Fox News’s Turley: Trump could face ‘terminal sentence’ if DOJ proves even one count](https://news.yahoo.com/fox-news-turley-trump-could-152634191.html)
 - Jun 12 - [Man threatening driver with gun was caught on video, then he was arrested, SC sheriff says](https://news.yahoo.com/man-threatening-driver-gun-caught-145607684.html)
-- Jun 12 - [‘Morning Joe’ Calls Out New York Post for ‘What About the Bidens?’ Headline: ‘You Don’t Have to Play to the Dumbest Readers’ (Video)](https://news.yahoo.com/morning-joe-calls-york-post-144926532.html)
 <!-- feed end -->
