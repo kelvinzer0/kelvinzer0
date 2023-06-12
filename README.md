@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [Bodycam recording catches cops investigating potential UFO crash: 'Hey, if those 9-foot beings come back, don't call us alright?'](https://news.yahoo.com/bodycam-recording-catches-cops-investigating-030438948.html)
+- Jun 12 - [A San Diego man got sick of living in a regular country so he founded a nation of his own called Slowjamastan and crowned himself its sultan](https://news.yahoo.com/san-diego-man-got-sick-025136921.html)
+- Jun 12 - [China's Nio cuts prices, ends free battery swapping as sales slide](https://finance.yahoo.com/news/chinas-nio-cuts-prices-models-021912445.html)
+- Jun 12 - [Police: 3 dead, 3 wounded in shooting at Maryland home stemming from dispute](https://news.yahoo.com/police-1-dead-several-wounded-015832976.html)
 - Jun 12 - [Children found after 40 days in Amazon survived by eating ‘cassava flour’](https://news.yahoo.com/children-found-40-days-amazon-051512569.html)
-- Jun 11 - [North Korea's Kim vows to 'hold hands' with Putin for strategic cooperation](https://news.yahoo.com/north-koreas-kim-vows-hold-235310669.html)
-- Jun 11 - [Report: Billionaire investor, philanthropist George Soros cedes control of empire to a younger son](https://news.yahoo.com/report-billionaire-investor-philanthropist-george-233310866.html)
-- Jun 11 - [Mother of the 4 siblings who survived the Colombian plane crash lived for four days before telling her children to 'go away'](https://news.yahoo.com/mother-4-siblings-survived-colombian-232120727.html)
-- Jun 11 - [Dave Ramsey Has a Big Warning On What Just Changed For Car Buyers](https://www.thestreet.com/stocks/dave-ramsey-has-a-big-warning-on-what-just-changed-for-car-buyers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
