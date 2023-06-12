@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Ted Kaczynski, known as the ‘Unabomber,’ is believed to have died by suicide, source says](https://news.yahoo.com/ted-kaczynski-known-unabomber-dies-184534487.html)
+- Jun 12 - [Rep. Marjorie Taylor Greene's Rainbow Flag Rant Gets Flipped Back On Her](https://news.yahoo.com/rep-marjorie-taylor-greenes-rainbow-093117694.html)
+- Jun 12 - [Lindsey Graham’s ABC News Interview About Donald Trump Goes South In Just Seconds](https://news.yahoo.com/lindsey-graham-abc-news-interview-080345970.html)
+- Jun 12 - [Jim Jordan Backs Himself Into Corner As He Struggles To Defend Alleged Trump Clip](https://news.yahoo.com/jim-jordan-backs-himself-corner-074658547.html)
 - Jun 12 - [Man attempts ropeless climb of Seoul skyscraper](https://news.yahoo.com/man-attempts-ropeless-climb-seoul-072848158.html)
 - Jun 12 - [From GPS-guided bombs to electronic warfare, Russia improves its weaponry in Ukraine](https://news.yahoo.com/gps-guided-bombs-electronic-warfare-064957392.html)
-- Jun 12 - [A ship captain who's been attacked by orcas twice says they're learning how to attack boats faster: 'It didn't take them that long to destroy both rudders'](https://news.yahoo.com/ship-captain-whos-attacked-orcas-062737501.html)
-- Jun 12 - [A McDonald's ad in India showing a man flirting with a female cashier has sparked outrage online: 'This is outrageous and disgusting beyond words'](https://news.yahoo.com/mcdonalds-ad-india-showing-man-055709746.html)
 <!-- feed end -->
