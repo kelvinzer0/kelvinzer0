@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [GOP Sen. Ron Johnson Tells A Whopper About Donald Trump And Hillary Clinton](https://news.yahoo.com/gop-sen-ron-johnson-tells-121415489.html)
+- Jun 12 - ['If you want to die in jail, keep talking' – two national security law experts discuss the special treatment for Trump and offer him some advice](https://news.yahoo.com/want-die-jail-keep-talking-114948115.html)
 - Jun 12 - [Long commutes start after part of I-95 collapses in Philadelphia following tanker truck fire](https://news.yahoo.com/long-commutes-start-part-95-103618880.html)
 - Jun 12 - [New York City has lost 5.3% of its population — nearly 475,000 people — since the start of COVID. And most of them are hunkering down in the South. Here's why](https://finance.yahoo.com/news/york-city-lost-5-3-100000482.html)
 - Jun 12 - [Here's How Much Your Social Security Benefits Will Increase in 2024 As Things Stand Right Now](https://www.fool.com/retirement/2023/06/12/heres-how-much-your-social-security-benefits-will/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Jun 12 - [Rep. Marjorie Taylor Greene's Rainbow Flag Rant Gets Flipped Back On Her](https://news.yahoo.com/rep-marjorie-taylor-greenes-rainbow-093117694.html)
-- Jun 12 - [New details emerge about the alleged search history of the Utah mom charged with her husband’s murder](https://news.yahoo.com/details-emerge-alleged-search-history-084445258.html)
 <!-- feed end -->
