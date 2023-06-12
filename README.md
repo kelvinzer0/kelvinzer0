@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [New York City has lost 5.3% of its population — nearly 475,000 people — since the start of COVID. And most of them are hunkering down in the South. Here's why](https://finance.yahoo.com/news/york-city-lost-5-3-100000482.html)
 - Jun 12 - [Rep. Marjorie Taylor Greene's Rainbow Flag Rant Gets Flipped Back On Her](https://news.yahoo.com/rep-marjorie-taylor-greenes-rainbow-093117694.html)
 - Jun 12 - [Lindsey Graham’s ABC News Interview About Donald Trump Goes South In Just Seconds](https://news.yahoo.com/lindsey-graham-abc-news-interview-080345970.html)
 - Jun 12 - [Jim Jordan Backs Himself Into Corner As He Struggles To Defend Alleged Trump Clip](https://news.yahoo.com/jim-jordan-backs-himself-corner-074658547.html)
 - Jun 12 - [Man attempts ropeless climb of Seoul skyscraper](https://news.yahoo.com/man-attempts-ropeless-climb-seoul-072848158.html)
-- Jun 12 - [From GPS-guided bombs to electronic warfare, Russia improves its weaponry in Ukraine](https://news.yahoo.com/gps-guided-bombs-electronic-warfare-064957392.html)
 <!-- feed end -->
