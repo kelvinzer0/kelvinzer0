@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 13 - [US, German armored vehicles 'captured in Ukraine'](https://news.yahoo.com/us-german-armored-vehicles-captured-120836530.html)
+- Jun 13 - [Transgender Activist Rose Montoya Goes Topless And Holds Her Breasts At White House](https://news.yahoo.com/transgender-activist-rose-montoya-goes-110233222.html)
 - Jun 13 - [Ukraine war latest: Top Russian general killed in missile strike](https://news.yahoo.com/ukraine-russia-war-latest-top-064221606.html)
 - Jun 13 - [Ukraine reports gains, says Russians 'doing everything' to hold positions](https://news.yahoo.com/ukraine-reports-gains-says-russians-101319613.html)
-- Jun 13 - [The Potentially Deadly Mistake People Make When Returning From Vacation](https://news.yahoo.com/potentially-deadly-mistake-people-returning-094500180.html)
-- Jun 13 - [Former GOP Lawmaker Reveals What Republicans Are Saying Behind Trump's Back](https://news.yahoo.com/former-gop-lawmaker-reveals-republicans-084933365.html)
-- Jun 13 - [South Korean leader criticises China envoy over 'inappropriate' remarks](https://news.yahoo.com/south-koreas-yoon-questions-whether-055534666.html)
+- Jun 13 - [Analysis-GM could reap billions by building combustion trucks and SUVs through 2035](https://news.yahoo.com/analysis-gm-could-reap-billions-100602312.html)
 <!-- feed end -->
