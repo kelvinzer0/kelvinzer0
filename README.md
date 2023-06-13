@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [US, German armored vehicles 'captured in Ukraine'](https://news.yahoo.com/us-german-armored-vehicles-captured-120836530.html)
+- Jun 13 - [CPI Report: Getting to a point where Fed risks doing too much to lower inflation, says economist](https://finance.yahoo.com/video/cpi-report-getting-point-where-124940145.html)
+- Jun 13 - [Scientists were 'shocked' to discover that juvenile white sharks regularly venture near swimmers and surfers but don't attack](https://news.yahoo.com/scientists-were-shocked-discover-juvenile-114000220.html)
 - Jun 13 - [Transgender Activist Rose Montoya Goes Topless And Holds Her Breasts At White House](https://news.yahoo.com/transgender-activist-rose-montoya-goes-110233222.html)
 - Jun 13 - [Ukraine war latest: Top Russian general killed in missile strike](https://news.yahoo.com/ukraine-russia-war-latest-top-064221606.html)
 - Jun 13 - [Ukraine reports gains, says Russians 'doing everything' to hold positions](https://news.yahoo.com/ukraine-reports-gains-says-russians-101319613.html)
-- Jun 13 - [Analysis-GM could reap billions by building combustion trucks and SUVs through 2035](https://news.yahoo.com/analysis-gm-could-reap-billions-100602312.html)
 <!-- feed end -->
