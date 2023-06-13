@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [China says US eagerness to engage is an 'illusion'](https://news.yahoo.com/china-says-us-eagerness-engage-045315954.html)
+- Jun 13 - [Ukraine war latest: Top Russian general killed in missile strike](https://news.yahoo.com/ukraine-russia-war-latest-top-064221606.html)
+- Jun 13 - [South Korean leader criticises China envoy over "inappropriate" remarks](https://news.yahoo.com/south-koreas-yoon-questions-whether-055534666.html)
 - Jun 13 - [Gavin Newsom Gives Sean Hannity Blunt Fact-Checks In Fiery Fox News Clash](https://news.yahoo.com/gavin-newsom-gives-sean-hannity-044009277.html)
 - Jun 13 - [A Chinese climber saved from Mount Everest has been caught in a social media firestorm after being accused of refusing to pay a promised $10,000 fee to the Sherpas who rescued her](https://news.yahoo.com/chinese-climber-saved-mount-everest-041721777.html)
 - Jun 13 - [Ivanka Trump buried a photo of her dad at his granddaughter's Bat Mitzvah so deeply in her Instagram Stories you wouldn't have known he was there unless you looked really hard](https://news.yahoo.com/ivanka-trump-buried-photo-her-025537108.html)
-- Jun 13 - [Elizabeth Holmes says she can't pay $250 a month in restitution after she's released from prison: report](https://news.yahoo.com/elizabeth-holmes-says-she-cant-022030853.html)
 <!-- feed end -->
