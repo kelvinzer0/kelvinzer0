@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [UPDATE 1-Russia releases video of captured German tanks, U.S. fighting vehicles in Ukraine](https://finance.yahoo.com/news/1-russia-releases-video-captured-085913815.html)
-- Jun 13 - [Former GOP Lawmaker Reveals What Republicans Are Saying Behind Trump's Back](https://news.yahoo.com/former-gop-lawmaker-reveals-republicans-084933365.html)
 - Jun 13 - [Ukraine war latest: Top Russian general killed in missile strike](https://news.yahoo.com/ukraine-russia-war-latest-top-064221606.html)
+- Jun 13 - [Ukraine reports gains, says Russians 'doing everything' to hold positions](https://news.yahoo.com/ukraine-reports-gains-says-russians-101319613.html)
+- Jun 13 - [The Potentially Deadly Mistake People Make When Returning From Vacation](https://news.yahoo.com/potentially-deadly-mistake-people-returning-094500180.html)
+- Jun 13 - [Former GOP Lawmaker Reveals What Republicans Are Saying Behind Trump's Back](https://news.yahoo.com/former-gop-lawmaker-reveals-republicans-084933365.html)
 - Jun 13 - [South Korean leader criticises China envoy over 'inappropriate' remarks](https://news.yahoo.com/south-koreas-yoon-questions-whether-055534666.html)
-- Jun 13 - [China says US eagerness to engage is an 'illusion'](https://uk.news.yahoo.com/china-says-us-eagerness-engage-045315954.html)
 <!-- feed end -->
