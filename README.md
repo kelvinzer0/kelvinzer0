@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [AI's 'commercial application' setting it apart from the dot com bubble: Strategist](https://finance.yahoo.com/video/ais-commercial-application-setting-apart-134718646.html)
+- Jun 13 - [Exclusive-Flag flies over newly liberated village, confirming Ukraine advancing](https://news.yahoo.com/exclusive-flag-flies-over-newly-144311917.html)
+- Jun 13 - [Donald Trump fails to find lawyer for Miami court hearing](https://news.yahoo.com/donald-trump-tries-lawyer-miami-125447430.html)
+- Jun 13 - [Scaramucci says Trump ‘stressed’ about indictment, predicts he will eventually drop out of race](https://news.yahoo.com/scaramucci-says-trump-stressed-indictment-134946835.html)
+- Jun 13 - [It's official: the Toyota Land Cruiser is coming back to the U.S.](https://www.autoblog.com/2023/06/13/toyota-land-cruiser-coming-back-to-us/)
 - Jun 13 - [Jesse Watters Calls Out His Own Mother on Fox News After Political Argument at Sunday Dinner (Video)](https://news.yahoo.com/jesse-waters-calls-own-mother-133739622.html)
-- Jun 13 - [‘The worst investment you’ll ever make’: Financial guru Grant Cardone says too many Americans are chasing after the dream of homeownership. Here’s what he thinks you should do instead](https://finance.yahoo.com/news/worst-investment-ll-ever-financial-130000294.html)
-- Jun 13 - [Ukrainian soldier says he tricked Russia into wasting an exploding drone on what it thought was a tank — but was just a decoy made of wood](https://news.yahoo.com/ukrainian-soldier-says-tricked-russia-125131108.html)
-- Jun 13 - [Transgender Activist Rose Montoya Goes Topless And Holds Her Breasts At White House](https://news.yahoo.com/transgender-activist-rose-montoya-goes-110233222.html)
 <!-- feed end -->
