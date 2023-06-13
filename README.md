@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Exclusive-Flag flies over newly liberated village, confirming Ukraine advancing](https://news.yahoo.com/exclusive-flag-flies-over-newly-144311917.html)
-- Jun 13 - [Donald Trump fails to find lawyer for Miami court hearing](https://news.yahoo.com/donald-trump-tries-lawyer-miami-125447430.html)
+- Jun 13 - [Trans activist sparks outrage by going topless at the White House after meeting Joe Biden](https://news.yahoo.com/trans-activist-sparks-outrage-going-152222274.html)
+- Jun 13 - [Putin says no need for new mobilisation for now, quips about trying again to take Kyiv](https://news.yahoo.com/putin-says-ukraines-losses-vast-142139796.html)
+- Jun 13 - [Mother of 6-Year-Old Shooter Enters Plea Deal, and It's Not Looking Good](https://news.yahoo.com/uh-oh-mother-6-old-151819307.html)
+- Jun 13 - [Donald Trump struggles to find lawyer for Miami court hearing](https://news.yahoo.com/donald-trump-tries-lawyer-miami-125447430.html)
 - Jun 13 - [Scaramucci says Trump ‘stressed’ about indictment, predicts he will eventually drop out of race](https://news.yahoo.com/scaramucci-says-trump-stressed-indictment-134946835.html)
-- Jun 13 - [It's official: the Toyota Land Cruiser is coming back to the U.S.](https://www.autoblog.com/2023/06/13/toyota-land-cruiser-coming-back-to-us/)
-- Jun 13 - [Jesse Watters Calls Out His Own Mother on Fox News After Political Argument at Sunday Dinner (Video)](https://news.yahoo.com/jesse-waters-calls-own-mother-133739622.html)
 <!-- feed end -->
