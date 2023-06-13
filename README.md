@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [New York City police commissioner, first woman to lead department, resigns after 18 months](https://news.yahoo.com/york-city-police-commissioner-first-213930802.html)
-- Jun 12 - [Judge in Trump criminal hush-money case can stay, NY ethics panel signals](https://news.yahoo.com/judge-trump-criminal-hush-money-211136030.html)
-- Jun 12 - [McCarthy attacks CNN in response to Trump question](https://news.yahoo.com/mccarthy-attacks-cnn-response-trump-210759737.html)
-- Jun 12 - [US Olympian Tori Bowie died from complications of childbirth, autopsy finds](https://sports.yahoo.com/us-olympian-tori-bowie-dies-210437044.html)
-- Jun 12 - [Beloved New Orleans barbecue chef found alive after he was reported dead, family says](https://news.yahoo.com/beloved-orleans-barbecue-chef-found-205543667.html)
+- Jun 13 - [Kari Lake Gets Math Lesson After Claiming 90% Of Americans Support Trump](https://news.yahoo.com/kari-lake-gets-math-lesson-004112190.html)
+- Jun 13 - [Hundreds of tribal members, mostly Navajo, living on Phoenix streets amid fake sober home crackdown](https://news.yahoo.com/hundreds-tribal-members-mostly-navajo-002750523.html)
+- Jun 13 - [Trump Advisers Quietly Worry Courthouse Protest Could Be a ‘Disaster’](https://news.yahoo.com/trump-advisers-quietly-worry-courthouse-000953735.html)
+- Jun 13 - [Inside the Implosion of Trump’s Mar-a-Lago Legal Team](https://news.yahoo.com/inside-implosion-trump-mar-lago-000007350.html)
+- Jun 12 - [San Francisco's downtown just entered a new phase of its crisis as the city's most prominent shopping mall goes bust](https://news.yahoo.com/san-franciscos-downtown-just-entered-233448815.html)
 <!-- feed end -->
