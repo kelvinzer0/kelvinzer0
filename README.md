@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 13 - [Fox News thought this was Melania at Trump's court appearance. It's actually his 27-year-old spokeswoman.](https://news.yahoo.com/fox-news-thought-melania-trumps-200845570.html)
 - Jun 13 - [I'm a hospice nurse. Don't say these phrases to a dying person or their family](https://news.yahoo.com/im-hospice-nurse-dont-phrases-185339878.html)
-- Jun 13 - [Trump Wanted Courthouse Protests But Instead Got MAGA Misfits](https://news.yahoo.com/trump-wanted-courthouse-protests-instead-185002841.html)
-- Jun 13 - [Buck: ‘I won’t support a convicted felon for the White House’](https://news.yahoo.com/buck-won-t-support-convicted-184650143.html)
+- Jun 13 - [Trump Wanted Courthouse Protests but Instead Got MAGA Misfits](https://news.yahoo.com/trump-wanted-courthouse-protests-instead-185002841.html)
 - Jun 13 - [Trump attorney Alina Habba addresses reporters in front of courthouse at arraignment](https://news.yahoo.com/trump-attorney-alina-habba-addresses-181600329.html)
-- Jun 13 - [I Know It's Wrong But I Can't Stop Laughing At These Extremely Dumb Things People Actually Posted On The Internet So Far In 2023](https://news.yahoo.com/know-wrong-cant-stop-laughing-180133008.html)
+- Jun 13 - [Israel disciplines soldiers over blunders that led to fatal Egyptian border attack](https://news.yahoo.com/israel-disciplines-soldiers-over-blunders-175858268.html)
 <!-- feed end -->
