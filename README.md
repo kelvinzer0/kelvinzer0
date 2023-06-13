@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Donald Trump arraignment brings spectacle of protesters and supporters to Miami courthouse](https://news.yahoo.com/donald-trump-arraignment-brings-spectacle-174325728.html)
-- Jun 13 - [South Carolina prisoner faces 2nd life sentence for using a cellphone to arrange killing](https://news.yahoo.com/south-carolina-prisoner-faces-2nd-164825691.html)
+- Jun 13 - [Trump Wanted Courthouse Protests But Instead Got MAGA Misfits](https://news.yahoo.com/trump-wanted-courthouse-protests-instead-185002841.html)
+- Jun 13 - [I Know It's Wrong But I Can't Stop Laughing At These Extremely Dumb Things People Actually Posted On The Internet So Far In 2023](https://news.yahoo.com/know-wrong-cant-stop-laughing-180133008.html)
+- Jun 13 - [Israel disciplines soldiers over blunders that led to fatal Egyptian border attack](https://news.yahoo.com/israel-disciplines-soldiers-over-blunders-175858268.html)
+- Jun 13 - [Watch: Elephant shows tiger ‘who’s boss’ at watering hole](https://sports.yahoo.com/watch-elephant-shows-tiger-boss-170043405.html)
 - Jun 13 - [There are still solid new car choices for under $25,000: Consumer Reports recommends these 6 models](https://www.autoblog.com/2023/06/13/there-are-still-a-few-solid-new-car-choices-for-less-than-25000/)
-- Jun 13 - [Trump supporters begin gathering at Miami courthouse](https://news.yahoo.com/trump-supporters-begin-descending-miami-162449249.html)
-- Jun 13 - [Don't send checks through the mail, the post office is warning. Criminals are stealing more than ever.](https://news.yahoo.com/dont-send-checks-mail-post-235827016.html)
 <!-- feed end -->
