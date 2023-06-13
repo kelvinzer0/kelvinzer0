@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [CPI Report: Getting to a point where Fed risks doing too much to lower inflation, says economist](https://finance.yahoo.com/video/cpi-report-getting-point-where-124940145.html)
-- Jun 13 - [Scientists were 'shocked' to discover that juvenile white sharks regularly venture near swimmers and surfers but don't attack](https://news.yahoo.com/scientists-were-shocked-discover-juvenile-114000220.html)
+- Jun 13 - [AI's 'commercial application' setting it apart from the dot com bubble: Strategist](https://finance.yahoo.com/video/ais-commercial-application-setting-apart-134718646.html)
+- Jun 13 - [Jesse Watters Calls Out His Own Mother on Fox News After Political Argument at Sunday Dinner (Video)](https://news.yahoo.com/jesse-waters-calls-own-mother-133739622.html)
+- Jun 13 - [‘The worst investment you’ll ever make’: Financial guru Grant Cardone says too many Americans are chasing after the dream of homeownership. Here’s what he thinks you should do instead](https://finance.yahoo.com/news/worst-investment-ll-ever-financial-130000294.html)
+- Jun 13 - [Ukrainian soldier says he tricked Russia into wasting an exploding drone on what it thought was a tank — but was just a decoy made of wood](https://news.yahoo.com/ukrainian-soldier-says-tricked-russia-125131108.html)
 - Jun 13 - [Transgender Activist Rose Montoya Goes Topless And Holds Her Breasts At White House](https://news.yahoo.com/transgender-activist-rose-montoya-goes-110233222.html)
-- Jun 13 - [Ukraine war latest: Top Russian general killed in missile strike](https://news.yahoo.com/ukraine-russia-war-latest-top-064221606.html)
-- Jun 13 - [Ukraine reports gains, says Russians 'doing everything' to hold positions](https://news.yahoo.com/ukraine-reports-gains-says-russians-101319613.html)
 <!-- feed end -->
