@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Jun 13 - [Kari Lake Gets Math Lesson After Claiming 90% Of Americans Support Trump](https://news.yahoo.com/kari-lake-gets-math-lesson-004112190.html)
 - Jun 13 - [Hundreds of tribal members, mostly Navajo, living on Phoenix streets amid fake sober home crackdown](https://news.yahoo.com/hundreds-tribal-members-mostly-navajo-002750523.html)
 - Jun 13 - [Trump Advisers Quietly Worry Courthouse Protest Could Be a ‘Disaster’](https://news.yahoo.com/trump-advisers-quietly-worry-courthouse-000953735.html)
-- Jun 13 - [Inside the Implosion of Trump’s Mar-a-Lago Legal Team](https://news.yahoo.com/inside-implosion-trump-mar-lago-000007350.html)
 - Jun 12 - [San Francisco's downtown just entered a new phase of its crisis as the city's most prominent shopping mall goes bust](https://news.yahoo.com/san-franciscos-downtown-just-entered-233448815.html)
+- Jun 12 - [2 active-duty Marines plead guilty to Capitol riot charges](https://news.yahoo.com/2-active-duty-marines-plead-230232524.html)
 <!-- feed end -->
