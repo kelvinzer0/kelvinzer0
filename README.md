@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 13 - [Gavin Newsom Gives Sean Hannity Blunt Fact-Checks In Fiery Fox News Clash](https://news.yahoo.com/gavin-newsom-gives-sean-hannity-044009277.html)
 - Jun 13 - [Ivanka Trump buried a photo of her dad at his granddaughter's Bat Mitzvah so deeply in her Instagram Stories you wouldn't have known he was there unless you looked really hard](https://news.yahoo.com/ivanka-trump-buried-photo-her-025537108.html)
 - Jun 13 - [Elizabeth Holmes says she can't pay $250 a month in restitution after she's released from prison: report](https://news.yahoo.com/elizabeth-holmes-says-she-cant-022030853.html)
 - Jun 13 - [Toyota unveils plans for new battery tech, EV innovation](https://news.yahoo.com/toyota-market-next-gen-battery-011519144.html)
 - Jun 13 - [Kari Lake Gets Math Lesson After Claiming 90% Of Americans Support Trump](https://news.yahoo.com/kari-lake-gets-math-lesson-004112190.html)
-- Jun 13 - [Hundreds of tribal members, mostly Navajo, living on Phoenix streets amid fake sober home crackdown](https://news.yahoo.com/hundreds-tribal-members-mostly-navajo-002750523.html)
 <!-- feed end -->
