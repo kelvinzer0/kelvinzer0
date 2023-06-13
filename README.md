@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [J.D. Vance Lays Out Plan to Sabotage Federal Law Enforcement Because Trump Was Arrested](https://news.yahoo.com/j-d-vance-lays-plan-203141347.html)
+- Jun 13 - [Putin mixes threats of new offensive in Ukraine with offers of peace talks](https://news.yahoo.com/putin-mixes-threats-offensive-ukraine-222632868.html)
+- Jun 13 - ['Never-again Trumper' Paul Ryan says it's getting easier to convince die-hard supporters that Trump is 'not electable'](https://news.yahoo.com/never-again-trumper-paul-ryan-220420001.html)
+- Jun 13 - [The scientist whose work made Ozempic possible says the drug could make life 'so miserably boring' that people won't stay on it for more than 1-2 years](https://news.yahoo.com/scientist-whose-made-ozempic-possible-212759871.html)
+- Jun 13 - [Anti-Trump protester arrested outside courthouse](https://news.yahoo.com/anti-trump-protester-arrested-outside-212238197.html)
 - Jun 13 - [Fox News thought this was Melania at Trump's court appearance. It's actually his 27-year-old spokeswoman.](https://news.yahoo.com/fox-news-thought-melania-trumps-200845570.html)
-- Jun 13 - [E. Jean Carroll can pursue $10 million lawsuit against Donald Trump -judge](https://news.yahoo.com/e-jean-carroll-pursue-10-195947525.html)
-- Jun 13 - [There's a Surprising Twist in the Story of a Cop Who Shot an 11-Year-Old Boy](https://news.yahoo.com/theres-surprising-twist-story-cop-194000074.html)
-- Jun 13 - [Stephanie Grisham on Trump indictment: ‘He’s absolutely dejected’](https://news.yahoo.com/stephanie-grisham-trump-indictment-absolutely-193739307.html)
 <!-- feed end -->
