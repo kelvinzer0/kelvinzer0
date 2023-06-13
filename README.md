@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 13 - [I'm a hospice nurse. Don't say these phrases to a dying person or their family](https://news.yahoo.com/im-hospice-nurse-dont-phrases-185339878.html)
 - Jun 13 - [Trump Wanted Courthouse Protests But Instead Got MAGA Misfits](https://news.yahoo.com/trump-wanted-courthouse-protests-instead-185002841.html)
+- Jun 13 - [Buck: ‘I won’t support a convicted felon for the White House’](https://news.yahoo.com/buck-won-t-support-convicted-184650143.html)
+- Jun 13 - [Trump attorney Alina Habba addresses reporters in front of courthouse at arraignment](https://news.yahoo.com/trump-attorney-alina-habba-addresses-181600329.html)
 - Jun 13 - [I Know It's Wrong But I Can't Stop Laughing At These Extremely Dumb Things People Actually Posted On The Internet So Far In 2023](https://news.yahoo.com/know-wrong-cant-stop-laughing-180133008.html)
-- Jun 13 - [Israel disciplines soldiers over blunders that led to fatal Egyptian border attack](https://news.yahoo.com/israel-disciplines-soldiers-over-blunders-175858268.html)
-- Jun 13 - [Watch: Elephant shows tiger ‘who’s boss’ at watering hole](https://sports.yahoo.com/watch-elephant-shows-tiger-boss-170043405.html)
-- Jun 13 - [There are still solid new car choices for under $25,000: Consumer Reports recommends these 6 models](https://www.autoblog.com/2023/06/13/there-are-still-a-few-solid-new-car-choices-for-less-than-25000/)
 <!-- feed end -->
