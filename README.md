@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 13 - [South Carolina prisoner faces 2nd life sentence for using a cellphone to arrange killing](https://news.yahoo.com/south-carolina-prisoner-faces-2nd-164825691.html)
+- Jun 13 - [Mayor of Mexico's Tijuana moves into barracks for safety after threats](https://news.yahoo.com/mayor-mexicos-tijuana-moves-barracks-160903824.html)
+- Jun 13 - [MAGA Lawmaker Comes Up With Silliest Defense Yet of Trump’s Classified Docs](https://news.yahoo.com/maga-lawmaker-comes-silliest-defense-152741852.html)
 - Jun 13 - [Trans activist sparks outrage by going topless at the White House after meeting Joe Biden](https://news.yahoo.com/trans-activist-sparks-outrage-going-152222274.html)
-- Jun 13 - [Putin says no need for new mobilisation for now, quips about trying again to take Kyiv](https://news.yahoo.com/putin-says-ukraines-losses-vast-142139796.html)
 - Jun 13 - [Mother of 6-Year-Old Shooter Enters Plea Deal, and It's Not Looking Good](https://news.yahoo.com/uh-oh-mother-6-old-151819307.html)
-- Jun 13 - [Donald Trump struggles to find lawyer for Miami court hearing](https://news.yahoo.com/donald-trump-tries-lawyer-miami-125447430.html)
-- Jun 13 - [Scaramucci says Trump ‘stressed’ about indictment, predicts he will eventually drop out of race](https://news.yahoo.com/scaramucci-says-trump-stressed-indictment-134946835.html)
 <!-- feed end -->
