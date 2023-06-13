@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 13 - [J.D. Vance Lays Out Plan to Sabotage Federal Law Enforcement Because Trump Was Arrested](https://news.yahoo.com/j-d-vance-lays-plan-203141347.html)
 - Jun 13 - [Fox News thought this was Melania at Trump's court appearance. It's actually his 27-year-old spokeswoman.](https://news.yahoo.com/fox-news-thought-melania-trumps-200845570.html)
-- Jun 13 - [I'm a hospice nurse. Don't say these phrases to a dying person or their family](https://news.yahoo.com/im-hospice-nurse-dont-phrases-185339878.html)
-- Jun 13 - [Trump Wanted Courthouse Protests but Instead Got MAGA Misfits](https://news.yahoo.com/trump-wanted-courthouse-protests-instead-185002841.html)
-- Jun 13 - [Trump attorney Alina Habba addresses reporters in front of courthouse at arraignment](https://news.yahoo.com/trump-attorney-alina-habba-addresses-181600329.html)
-- Jun 13 - [Israel disciplines soldiers over blunders that led to fatal Egyptian border attack](https://news.yahoo.com/israel-disciplines-soldiers-over-blunders-175858268.html)
+- Jun 13 - [E. Jean Carroll can pursue $10 million lawsuit against Donald Trump -judge](https://news.yahoo.com/e-jean-carroll-pursue-10-195947525.html)
+- Jun 13 - [There's a Surprising Twist in the Story of a Cop Who Shot an 11-Year-Old Boy](https://news.yahoo.com/theres-surprising-twist-story-cop-194000074.html)
+- Jun 13 - [Stephanie Grisham on Trump indictment: ‘He’s absolutely dejected’](https://news.yahoo.com/stephanie-grisham-trump-indictment-absolutely-193739307.html)
 <!-- feed end -->
