@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [Ex-Trump Adviser Has 2 Blunt Questions For Whatabouting Republicans](https://news.yahoo.com/ex-trump-adviser-2-blunt-113429963.html)
+- Jun 14 - [Let it go: Here are 3 crucial things you must say goodbye to in retirement. Most folks can't do it — but can you?](https://finance.yahoo.com/news/let-3-crucial-things-must-140000077.html)
+- Jun 14 - ['I Don't Want My Staff Educated,' Marjorie Taylor Greene Tells CDC Boss In Exasperating Exchange](https://news.yahoo.com/dont-want-staff-educated-marjorie-111457454.html)
+- Jun 14 - [Did Ukraine Just Kill the Chechen Leader’s Righthand Man?](https://news.yahoo.com/chechen-leader-hand-man-wounded-085950482.html)
 - Jun 14 - [Rachel Maddow Spots Trump's Most 'Personally Embarrassing' Part Of Indictment](https://news.yahoo.com/rachel-maddow-spots-trumps-most-085007825.html)
-- Jun 14 - [A college student is getting eviscerated on social media for accusing a Chinese migrant worker of taking upskirt photos of her, even though she knew he was just minding his own business](https://news.yahoo.com/college-student-getting-eviscerated-social-075022500.html)
-- Jun 14 - [Russia's Medvedev says Moscow now has free hand to destroy enemies' undersea communications cables](https://news.yahoo.com/russias-medvedev-says-moscow-now-062512287.html)
-- Jun 14 - [Michigan family sounds alarm on son's 'sextortion' suicide after arrests of 3 Nigerian men](https://news.yahoo.com/michigan-family-sounds-alarm-sons-060050167.html)
-- Jun 14 - [Russia has lost so much money due to the Ukraine war that it's now trying to raise $4 billion by slapping a windfall tax on its oligarchs](https://news.yahoo.com/russia-lost-much-money-due-054957171.html)
 <!-- feed end -->
