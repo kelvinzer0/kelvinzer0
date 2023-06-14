@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [Former FBI And CIA Agents Are Sharing “What They Can Reveal Without Killing Us,” And OMG](https://news.yahoo.com/former-fbi-cia-agents-sharing-164216159.html)
+- Jun 14 - [Donald Trump Is About to Have His Wile E. Coyote Moment](https://news.yahoo.com/donald-trump-wile-e-coyote-161701276.html)
+- Jun 14 - [Wall Street Journal Tweaks 'Own The Libs' In Stark Warning About Donald Trump](https://news.yahoo.com/wall-street-journal-tweaks-own-161637461.html)
 - Jun 14 - [34 Things Non-Americans Think Are "Myths" About Americans, But I'm Sorry, They're All True](https://news.yahoo.com/34-things-non-americans-think-161259658.html)
 - Jun 14 - [11-Year-Old Bitten by Rattlesnake After Falling Off Bike on Colorado Trail: 'He's a Tough Boy'](https://www.yahoo.com/entertainment/11-old-bitten-rattlesnake-falling-160151084.html)
-- Jun 14 - [A man knocked down a wall in his basement. He found an abandoned underground city that was once home to 20,000 people.](https://news.yahoo.com/man-knocked-down-wall-basement-153804397.html)
-- Jun 14 - [Jack Dorsey's '$300 Million Bar Tab' To Rub Shoulders With Jay-Z Results In Lawsuit](https://finance.yahoo.com/news/jack-dorseys-300-million-bar-145048096.html)
-- Jun 14 - [Tucker Carlson Pinpoints the ‘Precise Moment’ Donald Trump ‘Doomed Himself’ to Arrest: ‘He Sealed His Fate’](https://news.yahoo.com/tucker-carlson-pinpoints-precise-moment-142914318.html)
 <!-- feed end -->
