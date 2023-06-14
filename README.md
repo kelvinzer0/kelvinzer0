@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [EU says Google abused dominant positions in online ads](https://news.yahoo.com/eu-says-google-abused-dominant-151951699.html)
+- Jun 14 - [Jack Dorsey's '$300 Million Bar Tab' To Rub Shoulders With Jay-Z Results In Lawsuit](https://finance.yahoo.com/news/jack-dorseys-300-million-bar-145048096.html)
 - Jun 14 - [Tucker Carlson Pinpoints the ‘Precise Moment’ Donald Trump ‘Doomed Himself’ to Arrest: ‘He Sealed His Fate’](https://news.yahoo.com/tucker-carlson-pinpoints-precise-moment-142914318.html)
-- Jun 14 - [Google faces EU break-up order](https://news.yahoo.com/google-faces-eu-break-order-141626786.html)
 - Jun 14 - [U.S. senator blocks arms sales to Hungary over blocking Sweden's NATO bid](https://news.yahoo.com/u-senator-blocks-arms-sales-133209453.html)
 - Jun 14 - [Worker Deletes Thousands Of Files He Created After Finding Out That The Company That Fired Him For Being ‘Incompetent’ Is Still Using His Work](https://news.yahoo.com/worker-deletes-thousands-files-created-121500843.html)
-- Jun 14 - [A 9-year-old girl at a school track and field event was left 'shaking and sobbing' after a man accused her of being trans and demanded her disqualification, mom says](https://news.yahoo.com/9-old-girl-school-track-120957078.html)
 <!-- feed end -->
