@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 14 - [Trump Swears He Planned to Go Through Those Boxes in Fiery Post-Arrest Speech](https://news.yahoo.com/trump-swears-planned-those-boxes-011422244.html)
+- Jun 14 - [I was one of the reporters covering Trump's federal arraignment. We left our computers and cell phones behind during the unprecedented news event.](https://news.yahoo.com/one-reporters-covering-trumps-federal-004812048.html)
 - Jun 13 - [After shooting a waitress, Biloxi man asks Waffle House guests what they have to say, authorities say](https://news.yahoo.com/shooting-waitress-biloxi-man-asks-234528560.html)
 - Jun 13 - [‘Luckiest man alive’ – Abandoned Russian soldier watches comrades that ditched him go up in flames](https://news.yahoo.com/luckiest-man-alive-abandoned-russian-232400405.html)
 - Jun 13 - [Transgender activist no longer welcome at White House after going topless at Biden event](https://news.yahoo.com/transgender-activist-no-longer-welcome-220608354.html)
-- Jun 13 - ['Never-again Trumper' Paul Ryan says it's getting easier to convince die-hard supporters that Trump is 'not electable'](https://news.yahoo.com/never-again-trumper-paul-ryan-220420887.html)
 <!-- feed end -->
