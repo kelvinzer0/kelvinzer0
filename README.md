@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [EU says Google abused dominant positions in online ads](https://news.yahoo.com/eu-says-google-abused-dominant-151951699.html)
+- Jun 14 - [34 Things Non-Americans Think Are "Myths" About Americans, But I'm Sorry, They're All True](https://news.yahoo.com/34-things-non-americans-think-161259658.html)
+- Jun 14 - [11-Year-Old Bitten by Rattlesnake After Falling Off Bike on Colorado Trail: 'He's a Tough Boy'](https://www.yahoo.com/entertainment/11-old-bitten-rattlesnake-falling-160151084.html)
+- Jun 14 - [A man knocked down a wall in his basement. He found an abandoned underground city that was once home to 20,000 people.](https://news.yahoo.com/man-knocked-down-wall-basement-153804397.html)
 - Jun 14 - [Jack Dorsey's '$300 Million Bar Tab' To Rub Shoulders With Jay-Z Results In Lawsuit](https://finance.yahoo.com/news/jack-dorseys-300-million-bar-145048096.html)
 - Jun 14 - [Tucker Carlson Pinpoints the ‘Precise Moment’ Donald Trump ‘Doomed Himself’ to Arrest: ‘He Sealed His Fate’](https://news.yahoo.com/tucker-carlson-pinpoints-precise-moment-142914318.html)
-- Jun 14 - [U.S. senator blocks arms sales to Hungary over blocking Sweden's NATO bid](https://news.yahoo.com/u-senator-blocks-arms-sales-133209453.html)
-- Jun 14 - [Worker Deletes Thousands Of Files He Created After Finding Out That The Company That Fired Him For Being ‘Incompetent’ Is Still Using His Work](https://news.yahoo.com/worker-deletes-thousands-files-created-121500843.html)
 <!-- feed end -->
