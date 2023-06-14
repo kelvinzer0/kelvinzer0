@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [Fed pauses interest rate hikes, signals more increases ahead](https://finance.yahoo.com/video/fed-pauses-interest-rate-hikes-184131026.html)
+- Jun 14 - [Fox News issues statement on chyron calling Biden ‘wannabe dictator’](https://news.yahoo.com/fox-news-issues-statement-chyron-172335216.html)
+- Jun 14 - [Mike Pence offers tougher stance after reading Trump indictment](https://news.yahoo.com/pence-cannot-defend-actions-alleged-164512451.html)
 - Jun 14 - [Former FBI And CIA Agents Are Sharing “What They Can Reveal Without Killing Us,” And OMG](https://news.yahoo.com/former-fbi-cia-agents-sharing-164216159.html)
-- Jun 14 - [Donald Trump Is About to Have His Wile E. Coyote Moment](https://news.yahoo.com/donald-trump-wile-e-coyote-161701276.html)
 - Jun 14 - [Wall Street Journal Tweaks 'Own The Libs' In Stark Warning About Donald Trump](https://news.yahoo.com/wall-street-journal-tweaks-own-161637461.html)
-- Jun 14 - [34 Things Non-Americans Think Are "Myths" About Americans, But I'm Sorry, They're All True](https://news.yahoo.com/34-things-non-americans-think-161259658.html)
-- Jun 14 - [11-Year-Old Bitten by Rattlesnake After Falling Off Bike on Colorado Trail: 'He's a Tough Boy'](https://www.yahoo.com/entertainment/11-old-bitten-rattlesnake-falling-160151084.html)
 <!-- feed end -->
