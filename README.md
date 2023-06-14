@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [Russia's Medvedev says Moscow now has free hand to destroy enemies' undersea communications cables](https://news.yahoo.com/russias-medvedev-says-moscow-now-062512287.html)
 - Jun 14 - [Russia has lost so much money due to the Ukraine war that it's now trying to raise $4 billion by slapping a windfall tax on its oligarchs](https://news.yahoo.com/russia-lost-much-money-due-054957171.html)
 - Jun 14 - [China rebukes US in phone call ahead of Blinken's planned Beijing trip](https://news.yahoo.com/china-foreign-minister-tells-blinken-044542670.html)
 - Jun 14 - [Trump Plots Revenge Against Biden in Unhinged Post-Arrest Speech](https://news.yahoo.com/trump-plots-revenge-against-biden-015058380.html)
-- Jun 14 - [I was one of the reporters covering Trump's federal arraignment. We left our computers and cell phones behind during the unprecedented news event.](https://news.yahoo.com/one-reporters-covering-trumps-federal-004812048.html)
 - Jun 13 - [After shooting a waitress, Biloxi man asks Waffle House guests what they have to say, authorities say](https://news.yahoo.com/shooting-waitress-biloxi-man-asks-234528560.html)
 <!-- feed end -->
