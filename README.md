@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Putin mixes threats of new offensive in Ukraine with offers of peace talks](https://news.yahoo.com/putin-mixes-threats-offensive-ukraine-222632868.html)
-- Jun 13 - ['Never-again Trumper' Paul Ryan says it's getting easier to convince die-hard supporters that Trump is 'not electable'](https://news.yahoo.com/never-again-trumper-paul-ryan-220420001.html)
-- Jun 13 - [The scientist whose work made Ozempic possible says the drug could make life 'so miserably boring' that people won't stay on it for more than 1-2 years](https://news.yahoo.com/scientist-whose-made-ozempic-possible-212759871.html)
-- Jun 13 - [Anti-Trump protester arrested outside courthouse](https://news.yahoo.com/anti-trump-protester-arrested-outside-212238197.html)
-- Jun 13 - [Fox News thought this was Melania at Trump's court appearance. It's actually his 27-year-old spokeswoman.](https://news.yahoo.com/fox-news-thought-melania-trumps-200845570.html)
+- Jun 14 - [Trump Swears He Planned to Go Through Those Boxes in Fiery Post-Arrest Speech](https://news.yahoo.com/trump-swears-planned-those-boxes-011422244.html)
+- Jun 13 - [After shooting a waitress, Biloxi man asks Waffle House guests what they have to say, authorities say](https://news.yahoo.com/shooting-waitress-biloxi-man-asks-234528560.html)
+- Jun 13 - [‘Luckiest man alive’ – Abandoned Russian soldier watches comrades that ditched him go up in flames](https://news.yahoo.com/luckiest-man-alive-abandoned-russian-232400405.html)
+- Jun 13 - [Transgender activist no longer welcome at White House after going topless at Biden event](https://news.yahoo.com/transgender-activist-no-longer-welcome-220608354.html)
+- Jun 13 - ['Never-again Trumper' Paul Ryan says it's getting easier to convince die-hard supporters that Trump is 'not electable'](https://news.yahoo.com/never-again-trumper-paul-ryan-220420887.html)
 <!-- feed end -->
