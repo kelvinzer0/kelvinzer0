@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [NASA releases new panoramic photos of Mars](https://news.yahoo.com/nasa-releases-panoramic-photos-mars-224435660.html)
+- Jun 14 - [Sarah Palin Defines What A Cult Is And Twitter Users Point Out The Obvious](https://news.yahoo.com/sarah-palin-defines-cult-twitter-223122267.html)
+- Jun 14 - [Elon Musk Makes an Offer to Toyota](https://www.thestreet.com/technology/elon-musk-makes-an-offer-to-toyota?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jun 14 - [Bud Light Is No Longer America’s Top-Selling Beer. This Is the New #1.](https://www.barrons.com/articles/bud-light-beer-modelo-top-seller-2a826f8f?siteid=yhoof2&yptr=yahoo)
-- Jun 14 - [Barbara Corcoran: Right now is the best time to buy a home](https://finance.yahoo.com/video/barbara-corcoran-now-best-time-213324838.html)
 - Jun 14 - [Remains found stuffed in garment bag 45 years ago in rural Nevada ID'd as Ohio woman](https://news.yahoo.com/remains-found-stuffed-garment-bag-211144732.html)
-- Jun 14 - [Penn State professor accused of committing sexual acts with an animal in PA state forest](https://news.yahoo.com/penn-state-professor-accused-committing-200323271.html)
-- Jun 14 - ['Is Taiwan Not China?’: Lionel Messi encounters passport mix-up at Beijing airport](https://news.yahoo.com/taiwan-not-china-lionel-messi-200044574.html)
 <!-- feed end -->
