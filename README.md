@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [John Kelly: Trump is ‘scared s—less’](https://news.yahoo.com/john-kelly-trump-scared-less-115606149.html)
+- Jun 14 - [Ukrainian snipers showcased eliminating Russian invaders near Bakhmut – stunning video](https://news.yahoo.com/ukrainian-snipers-showcased-eliminating-russian-113700250.html)
 - Jun 14 - [Ex-Trump Adviser Has 2 Blunt Questions For Whatabouting Republicans](https://news.yahoo.com/ex-trump-adviser-2-blunt-113429963.html)
+- Jun 14 - [17-year-old high school student was actually a 28-year-old woman, Louisiana cops say](https://news.yahoo.com/17-old-high-school-student-112910091.html)
 - Jun 14 - [Let it go: Here are 3 crucial things you must say goodbye to in retirement. Most folks can't do it — but can you?](https://finance.yahoo.com/news/let-3-crucial-things-must-140000077.html)
-- Jun 14 - ['I Don't Want My Staff Educated,' Marjorie Taylor Greene Tells CDC Boss In Exasperating Exchange](https://news.yahoo.com/dont-want-staff-educated-marjorie-111457454.html)
-- Jun 14 - [Did Ukraine Just Kill the Chechen Leader’s Righthand Man?](https://news.yahoo.com/chechen-leader-hand-man-wounded-085950482.html)
-- Jun 14 - [Rachel Maddow Spots Trump's Most 'Personally Embarrassing' Part Of Indictment](https://news.yahoo.com/rachel-maddow-spots-trumps-most-085007825.html)
 <!-- feed end -->
