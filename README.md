@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 15 - [Photos from Ukraine's offensive show how US Bradley IFVs are kicking butt even when they get blasted by Russia](https://news.yahoo.com/photos-ukraines-offensive-show-us-130941075.html)
+- Jun 15 - [A family who found 800,000 pennies in their basement tried to find a million-dollar coin, but gave up and now want to sell the lot for $25,000](https://news.yahoo.com/family-found-800-000-pennies-130453931.html)
 - Jun 15 - [GOP Rep. James Comer Aims Biden Dig At Alexandria Ocasio-Cortez And It Backfires Spectacularly](https://news.yahoo.com/gop-rep-james-comer-aims-114119072.html)
 - Jun 15 - [A man accidentally shot himself in his sleep while dreaming about a home invasion. He's now been charged with 2 felonies.](https://news.yahoo.com/man-accidentally-shot-himself-sleep-113820561.html)
-- Jun 15 - [Ukraine reports advances in early stages of counterattack](https://news.yahoo.com/ukraine-says-retaken-100-square-113304984.html)
-- Jun 15 - [Pope Francis orders ex-aide of Pope Benedict to leave Vatican](https://news.yahoo.com/pope-francis-orders-pope-benedict-103531647.html)
+- Jun 15 - [The navy has two aircraft carriers – and may soon have no way to refuel them](https://news.yahoo.com/navy-two-aircraft-carriers-may-113458374.html)
 <!-- feed end -->
