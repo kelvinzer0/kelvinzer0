@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [YNW Melly Blows Kiss During Murder Trial, Victim’s Mother Reacts](https://www.yahoo.com/entertainment/ynw-melly-blows-kiss-during-134858954.html)
-- Jun 15 - [Photos from Ukraine's offensive show how US Bradley IFVs are kicking butt even when they get blasted by Russia](https://news.yahoo.com/photos-ukraines-offensive-show-us-130941075.html)
-- Jun 15 - [A family who found 800,000 pennies in their basement tried to find a million-dollar coin, but gave up and now want to sell the lot for $25,000](https://news.yahoo.com/family-found-800-000-pennies-130453931.html)
-- Jun 15 - [GOP Strategist Shreds Whatabouting Republicans With Her Own ‘What About?’ Questions](https://news.yahoo.com/gop-strategist-shreds-whatabouting-republicans-125153490.html)
-- Jun 15 - [Telo's tiny electric truck offers super-competitive range and power output](https://www.autoblog.com/2023/06/15/telos-tiny-electric-truck-offers-super-competitive-range-and-power-output/)
+- Jun 15 - [Tourist Dies, American Man Arrested After Attack at Germany's Neuschwanstein Castle](https://news.yahoo.com/american-suspect-custody-deadly-attack-163138934.html)
+- Jun 15 - [How much prison time could Trump face? Past cases brought steep punishment for document hoarders](https://news.yahoo.com/much-prison-time-could-trump-161418717.html)
+- Jun 15 - [Arnold Schwarzenegger Says He Would Run for President Now if He Could: 'Put Me In'](https://www.yahoo.com/entertainment/arnold-schwarzenegger-says-run-president-161119273.html)
+- Jun 15 - [Vermont Trust-Fund Kid Accused of Killing Mom at Sea Dies Awaiting Trial](https://news.yahoo.com/vermont-trust-fund-kid-accused-160009477.html)
+- Jun 15 - [Songwriter, music industry entrepreneur sentenced to life in prison in girlfriend's death](https://news.yahoo.com/songwriter-music-industry-entrepreneur-sentenced-151157007.html)
 <!-- feed end -->
