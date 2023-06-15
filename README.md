@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Jun 15 - [Rep. Katie Porter Shuts Down Fox News Reporter’s Attack On Biden Without Breaking Stride](https://news.yahoo.com/rep-katie-porter-shuts-down-090651137.html)
 - Jun 15 - [Ex-Trump Attorney Michael Cohen Has Burning Message For His New Lawyers](https://news.yahoo.com/ex-trump-attorney-michael-cohen-084220577.html)
 - Jun 15 - [Eric Trump Flips Out Over Dad's Indictment With 'Rape And Pillage' Rant](https://news.yahoo.com/eric-trump-flips-over-dads-080053423.html)
+- Jun 15 - [Xi Jinping’s new world order is collapsing before our eyes](https://news.yahoo.com/look-closely-china-masterplan-economic-070000542.html)
 - Jun 15 - [Trump Names A Baffling New Enemy In Latest Unhinged All-Caps Rant](https://news.yahoo.com/trump-names-baffling-enemy-latest-060256283.html)
-- Jun 15 - [A 28-year-old woman was arrested and accused of spending an entire year posing as a 17-year-old Louisiana high-schooler](https://news.yahoo.com/28-old-woman-arrested-accused-050828124.html)
 <!-- feed end -->
