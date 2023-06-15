@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [Fox News Hits Panic Button As White House Criticizes Network On Live TV](https://news.yahoo.com/fox-news-hits-panic-button-043229413.html)
+- Jun 15 - [Florida set to execute man convicted of 1984 murders, rapes while children slept nearby](https://news.yahoo.com/florida-set-execute-man-convicted-040511063.html)
 - Jun 15 - [Russian military bloggers are losing their minds over reports that a Russian unit was blasted by artillery while waiting 2 hours for their commander to give a motivational speech](https://news.yahoo.com/russian-military-bloggers-losing-minds-025811937.html)
+- Jun 15 - [Trump Is ‘Scared Sh*tless,’ Ex-Chief Of Staff John Kelly Says](https://news.yahoo.com/trump-scared-sh-tless-ex-024846284.html)
 - Jun 15 - [Forget Disney; Ron DeSantis Has a Surprising New Target](https://www.thestreet.com/stocks/forget-disney-ron-desantis-has-a-surprising-new-target?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jun 14 - [This 31-Year-Old Woman Shared The Subtle Signs That She Had Colon Cancer, And It's So Important](https://www.yahoo.com/lifestyle/31-old-woman-shared-subtle-233922134.html)
-- Jun 14 - [Mountain lion P-22 necropsy shows why he couldn’t survive California urban life any longer](https://news.yahoo.com/mountain-lion-p-22-necropsy-225818788.html)
-- Jun 14 - [Elon Musk Makes an Offer to Toyota](https://www.thestreet.com/technology/elon-musk-makes-an-offer-to-toyota?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
