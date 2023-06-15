@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [Guatemala sentences journalist to years in jail](https://news.yahoo.com/guatemala-sentences-journalist-years-jail-053711068.html)
 - Jun 15 - [Fox News Hits Panic Button As White House Criticizes Network On Live TV](https://news.yahoo.com/fox-news-hits-panic-button-043229413.html)
+- Jun 15 - [Executive Fired After Street Photographer Captures Him Holding Hands With Mistress](https://www.yahoo.com/entertainment/executive-fired-street-photographer-captures-043019801.html)
 - Jun 15 - [Florida set to execute man convicted of 1984 murders, rapes while children slept nearby](https://news.yahoo.com/florida-set-execute-man-convicted-040511063.html)
 - Jun 15 - [Russian military bloggers are losing their minds over reports that a Russian unit was blasted by artillery while waiting 2 hours for their commander to give a motivational speech](https://news.yahoo.com/russian-military-bloggers-losing-minds-025811937.html)
-- Jun 15 - [Trump Is ‘Scared Sh*tless,’ Ex-Chief Of Staff John Kelly Says](https://news.yahoo.com/trump-scared-sh-tless-ex-024846284.html)
-- Jun 15 - [Forget Disney; Ron DeSantis Has a Surprising New Target](https://www.thestreet.com/stocks/forget-disney-ron-desantis-has-a-surprising-new-target?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
