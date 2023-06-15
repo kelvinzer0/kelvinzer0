@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [Rep. Katie Porter Shuts Down Fox News Reporter’s Attack On Biden Without Breaking Stride](https://news.yahoo.com/rep-katie-porter-shuts-down-090651137.html)
+- Jun 15 - [Ex-Trump Attorney Michael Cohen Has Burning Message For His New Lawyers](https://news.yahoo.com/ex-trump-attorney-michael-cohen-084220577.html)
+- Jun 15 - [Eric Trump Flips Out Over Dad's Indictment With 'Rape And Pillage' Rant](https://news.yahoo.com/eric-trump-flips-over-dads-080053423.html)
 - Jun 15 - [Trump Names A Baffling New Enemy In Latest Unhinged All-Caps Rant](https://news.yahoo.com/trump-names-baffling-enemy-latest-060256283.html)
 - Jun 15 - [A 28-year-old woman was arrested and accused of spending an entire year posing as a 17-year-old Louisiana high-schooler](https://news.yahoo.com/28-old-woman-arrested-accused-050828124.html)
-- Jun 15 - [Fox News Hits Panic Button As White House Criticizes Network On Live TV](https://news.yahoo.com/fox-news-hits-panic-button-043229413.html)
-- Jun 15 - [Executive Fired After Street Photographer Captures Him Holding Hands With Mistress](https://www.yahoo.com/entertainment/executive-fired-street-photographer-captures-043019801.html)
-- Jun 15 - [Florida set to execute man convicted of 1984 murders, rapes while children slept nearby](https://news.yahoo.com/florida-set-execute-man-convicted-040511063.html)
 <!-- feed end -->
