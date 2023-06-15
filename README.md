@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Ukraine's Armor Appears To Have A Russian Attack Helicopter Problem](https://news.yahoo.com/ukraines-armor-appears-russian-attack-210709035.html)
+- Jun 15 - [Man dined and dashed at The Juicy Crab. Now, he’s facing murder charges.](https://news.yahoo.com/man-dined-dashed-juicy-crab-203029697.html)
+- Jun 15 - [Judge Cannon jumpstarts oversight of Trump classified documents case with order on security clearances](https://news.yahoo.com/judge-cannon-jumpstarts-oversight-trump-193523986.html)
 - Jun 15 - [Ron DeSantis signed a bill that banned direct-to-consumer car sales in Florida — but left an exception for Tesla](https://news.yahoo.com/ron-desantis-signed-bill-banned-203859286.html)
 - Jun 15 - [Women on TikTok who've lost weight are sharing their 'disgust' with newfound skinny privilege: 'When I speak, people tend to listen more'](https://news.yahoo.com/women-on-tiktok-whove-lost-weight-are-sharing-their-disgust-with-newfound-skinny-privilege-when-i-speak-people-tend-to-listen-more-203708928.html)
 - Jun 15 - [George Santos called on the House to censure Adam Schiff. But when his vote was needed to support the measure, he instead voted 'present'](https://news.yahoo.com/george-santos-called-house-censure-202352240.html)
-- Jun 15 - [The case of a Newport Beach doctor and his girlfriend accused of drugging and sexually assaulting women may finally go to trial](https://www.yahoo.com/entertainment/case-newport-beach-doctor-girlfriend-194517711.html)
 <!-- feed end -->
