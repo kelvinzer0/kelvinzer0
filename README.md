@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Tourist Dies, American Man Arrested After Attack at Germany's Neuschwanstein Castle](https://news.yahoo.com/american-suspect-custody-deadly-attack-163138934.html)
-- Jun 15 - [How much prison time could Trump face? Past cases brought steep punishment for document hoarders](https://news.yahoo.com/much-prison-time-could-trump-161418717.html)
-- Jun 15 - [Arnold Schwarzenegger Says He Would Run for President Now if He Could: 'Put Me In'](https://www.yahoo.com/entertainment/arnold-schwarzenegger-says-run-president-161119273.html)
-- Jun 15 - [Vermont Trust-Fund Kid Accused of Killing Mom at Sea Dies Awaiting Trial](https://news.yahoo.com/vermont-trust-fund-kid-accused-160009477.html)
-- Jun 15 - [Songwriter, music industry entrepreneur sentenced to life in prison in girlfriend's death](https://news.yahoo.com/songwriter-music-industry-entrepreneur-sentenced-151157007.html)
+- Jun 15 - [Trump Promised ‘Food For Everybody’ At Miami Restaurant And Then Reportedly Skipped](https://news.yahoo.com/trump-promised-food-everybody-miami-175212403.html)
+- Jun 15 - [Report: Conor McGregor accused of sexual assault at Game 4 of 2023 NBA Finals](https://sports.yahoo.com/report-conor-mcgregor-accused-of-sexual-assault-at-game-4-of-2023-nba-finals-175105217.html)
+- Jun 15 - [A Missouri doctor's death is steeped in mystery and speculation. Authorities aren't talking](https://news.yahoo.com/missouri-doctors-death-steeped-mystery-171350000.html)
+- Jun 15 - [Tesla offering free Supercharging to entice Model 3 buyers](https://finance.yahoo.com/news/tesla-offering-free-supercharging-to-entice-model-3-buyers-164844011.html)
+- Jun 15 - [If you liked Bill Barr's words on Trump indictment, you'll love what he says about Jan. 6](https://news.yahoo.com/liked-bill-barrs-words-trump-162851864.html)
 <!-- feed end -->
