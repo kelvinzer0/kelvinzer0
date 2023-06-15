@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [Barbara Corcoran on commercial real estate: Problems looming](https://finance.yahoo.com/video/barbara-corcoran-commercial-real-estate-183044916.html)
+- Jun 15 - [10-Year-Old’s Stand on Racism Stuns Oregon City Council Meeting](https://news.yahoo.com/10-old-stand-racism-stuns-180749932.html)
 - Jun 15 - [Trump Promised ‘Food For Everybody’ At Miami Restaurant And Then Reportedly Skipped](https://news.yahoo.com/trump-promised-food-everybody-miami-175212403.html)
-- Jun 15 - [Report: Conor McGregor accused of sexual assault at Game 4 of 2023 NBA Finals](https://sports.yahoo.com/report-conor-mcgregor-accused-of-sexual-assault-at-game-4-of-2023-nba-finals-175105217.html)
 - Jun 15 - [A Missouri doctor's death is steeped in mystery and speculation. Authorities aren't talking](https://news.yahoo.com/missouri-doctors-death-steeped-mystery-171350000.html)
-- Jun 15 - [Tesla offering free Supercharging to entice Model 3 buyers](https://finance.yahoo.com/news/tesla-offering-free-supercharging-to-entice-model-3-buyers-164844011.html)
-- Jun 15 - [If you liked Bill Barr's words on Trump indictment, you'll love what he says about Jan. 6](https://news.yahoo.com/liked-bill-barrs-words-trump-162851864.html)
+- Jun 15 - [Twenty-year-old TikTok scammer who got caught faking cancer diagnosis pleads guilty to felony charge, faces up to 10 years in prison](https://news.yahoo.com/twenty-year-old-tiktok-scammer-who-got-caught-faking-cancer-diagnosis-pleads-guilty-to-felony-charge-faces-up-to-10-years-in-prison-165017578.html)
 <!-- feed end -->
