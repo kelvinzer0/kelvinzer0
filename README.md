@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [The case of a Newport Beach doctor and his girlfriend accused of drugging and sexually assaulting women may finally go to trial](https://www.yahoo.com/entertainment/case-newport-beach-doctor-girlfriend-194517711.html)
+- Jun 15 - [Judge Cannon jumpstarts oversight of Trump classified documents case with order on security clearances](https://news.yahoo.com/judge-cannon-jumpstarts-oversight-trump-193523986.html)
+- Jun 15 - [Biden knocks reporter for ‘dumb question’ about corruption allegation](https://news.yahoo.com/biden-knocks-reporter-dumb-corruption-190614164.html)
 - Jun 15 - [Pool deck at collapsed Florida condo building failed to comply with codes, standards, officials say](https://news.yahoo.com/pool-deck-collapsed-florida-condo-190339019.html)
-- Jun 15 - [Judge orders Trump lawyers to seek security clearances](https://news.yahoo.com/judge-orders-trump-lawyers-seek-190319923.html)
 - Jun 15 - [William Barr Eviscerates Mark Levin's Defense Of Donald Trump Following Indictment](https://news.yahoo.com/william-barr-eviscerates-mark-levins-185911646.html)
-- Jun 15 - [Russian foreign ministry summons Canadian envoy over plane confiscation](https://news.yahoo.com/russian-foreign-ministry-summons-canadian-183900302.html)
-- Jun 15 - [10-Year-Old’s Stand on Racism Stuns Oregon City Council Meeting](https://news.yahoo.com/10-old-stand-racism-stuns-180749932.html)
 <!-- feed end -->
