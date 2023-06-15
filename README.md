@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Lightning Strike Startles Georgia Man Covering Grill](https://news.yahoo.com/lightning-strike-startles-georgia-man-021756396.html)
 - Jun 15 - [Forget Disney. Ron DeSantis Has a Surprising New Target](https://www.thestreet.com/stocks/forget-disney-ron-desantis-has-a-surprising-new-target?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jun 14 - [This 31-Year-Old Woman Shared The Subtle Signs That She Had Colon Cancer, And It's So Important](https://www.yahoo.com/lifestyle/31-old-woman-shared-subtle-233922134.html)
 - Jun 14 - [Mountain lion P-22 necropsy shows why he couldn’t survive California urban life any longer](https://news.yahoo.com/mountain-lion-p-22-necropsy-225818788.html)
 - Jun 14 - [Elon Musk Makes an Offer to Toyota](https://www.thestreet.com/technology/elon-musk-makes-an-offer-to-toyota?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jun 14 - [Bud Light Is No Longer America’s Top-Selling Beer. This Is the New #1.](https://www.barrons.com/articles/bud-light-beer-modelo-top-seller-2a826f8f?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
