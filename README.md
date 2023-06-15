@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Daniel Penny indicted by grand jury in subway chokehold death of Jordan Neely](https://news.yahoo.com/daniel-penny-indicted-grand-jury-123516295.html)
+- Jun 15 - [Photos from Ukraine's offensive show how US Bradley IFVs are kicking butt even when they get blasted by Russia](https://news.yahoo.com/photos-ukraines-offensive-show-us-130941075.html)
 - Jun 15 - [GOP Rep. James Comer Aims Biden Dig At Alexandria Ocasio-Cortez And It Backfires Spectacularly](https://news.yahoo.com/gop-rep-james-comer-aims-114119072.html)
 - Jun 15 - [A man accidentally shot himself in his sleep while dreaming about a home invasion. He's now been charged with 2 felonies.](https://news.yahoo.com/man-accidentally-shot-himself-sleep-113820561.html)
-- Jun 15 - [Ukraine says it has retaken 100 square kilometres of land in counteroffensive](https://news.yahoo.com/ukraine-says-retaken-100-square-113304984.html)
+- Jun 15 - [Ukraine reports advances in early stages of counterattack](https://news.yahoo.com/ukraine-says-retaken-100-square-113304984.html)
 - Jun 15 - [Pope Francis orders ex-aide of Pope Benedict to leave Vatican](https://news.yahoo.com/pope-francis-orders-pope-benedict-103531647.html)
 <!-- feed end -->
