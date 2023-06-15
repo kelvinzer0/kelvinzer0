@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [Daniel Penny indicted by grand jury in subway chokehold death of Jordan Neely](https://news.yahoo.com/daniel-penny-indicted-grand-jury-123516295.html)
 - Jun 15 - [GOP Rep. James Comer Aims Biden Dig At Alexandria Ocasio-Cortez And It Backfires Spectacularly](https://news.yahoo.com/gop-rep-james-comer-aims-114119072.html)
-- Jun 15 - [Rep. Katie Porter Shuts Down Fox News Reporter’s Attack On Biden Without Breaking Stride](https://news.yahoo.com/rep-katie-porter-shuts-down-090651137.html)
-- Jun 15 - [Ex-Trump Attorney Michael Cohen Has Burning Message For His New Lawyers](https://news.yahoo.com/ex-trump-attorney-michael-cohen-084220577.html)
-- Jun 15 - [Xi Jinping’s new world order is collapsing before our eyes](https://news.yahoo.com/look-closely-china-masterplan-economic-070000542.html)
-- Jun 15 - [Trump Names A Baffling New Enemy In Latest Unhinged All-Caps Rant](https://news.yahoo.com/trump-names-baffling-enemy-latest-060256283.html)
+- Jun 15 - [A man accidentally shot himself in his sleep while dreaming about a home invasion. He's now been charged with 2 felonies.](https://news.yahoo.com/man-accidentally-shot-himself-sleep-113820561.html)
+- Jun 15 - [Ukraine says it has retaken 100 square kilometres of land in counteroffensive](https://news.yahoo.com/ukraine-says-retaken-100-square-113304984.html)
+- Jun 15 - [Pope Francis orders ex-aide of Pope Benedict to leave Vatican](https://news.yahoo.com/pope-francis-orders-pope-benedict-103531647.html)
 <!-- feed end -->
