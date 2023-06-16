@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [TikTok mortician believes she may have saved a woman’s life after recently sharing tips about safe driving](https://news.yahoo.com/tiktok-mortician-believes-she-may-194831464.html)
+- Jun 16 - [DOJ seeks protective order to prevent Trump from releasing classified materials amid ongoing investigation](https://news.yahoo.com/doj-seeks-protective-order-prevent-202034709.html)
+- Jun 16 - [Pilots' confusion over which engine was failing caused 2021 cargo plane crash off Hawaii, NTSB says](https://news.yahoo.com/pilots-confusion-over-engine-failing-200531180.html)
 - Jun 16 - [Trump fires back at Kelly after ‘scared s—less’ remarks](https://news.yahoo.com/trump-fires-back-kelly-scared-192427491.html)
 - Jun 16 - [Donald Trump Just Got Dumped by His Lawyer Again](https://news.yahoo.com/donald-trump-just-got-dumped-182218880.html)
 - Jun 16 - [Mom drives daughter to bank and passes desperate note to teller, cops say. ‘Help me’](https://news.yahoo.com/mom-drives-daughter-bank-passes-174002314.html)
-- Jun 16 - [She was at Dollar General in just a towel — and then it came off, Florida police say](https://news.yahoo.com/she-dollar-general-just-towel-173722718.html)
 <!-- feed end -->
