@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [Jon Stewart Gives Trump-Defending GOP Governor A Blistering Legal Fact-Check](https://news.yahoo.com/jon-stewart-gives-trump-defending-043959024.html)
 - Jun 16 - [Boston community says graphic video of public sex act illustrates routine occurrence](https://news.yahoo.com/boston-community-says-graphic-video-014609124.html)
 - Jun 16 - [Kellyanne Conway: There is no vaccine for Trump Derangement Syndrome](https://news.yahoo.com/kellyanne-conway-no-vaccine-trump-010441030.html)
 - Jun 16 - [Judge Cannon jumpstarts oversight of Trump classified documents case with order on security clearances](https://news.yahoo.com/judge-cannon-jumpstarts-oversight-trump-193523986.html)
 - Jun 16 - [Cheap 'like cabbage' apartments in some Chinese cities draw buyers, and caution](https://finance.yahoo.com/news/cheap-cabbage-apartments-chinese-cities-000239157.html)
-- Jun 15 - [Arizona death row inmate released after 29 years behind bars](https://news.yahoo.com/arizona-death-row-inmate-released-234256898.html)
 <!-- feed end -->
