@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [A homeowner slept in his closet with a gun in order to confront the man who had been squatting in his house for months](https://news.yahoo.com/homeowner-slept-closet-gun-order-111833748.html)
+- Jun 16 - [Anti-feminist YouTuber Pearl says she thinks divorce should be illegal and women shouldn't have the right to vote](https://www.yahoo.com/entertainment/anti-feminist-youtuber-pearl-says-122832683.html)
+- Jun 16 - [A homeowner slept in his closet with a gun to confront the man who had been squatting in his house for months, reports say](https://news.yahoo.com/homeowner-slept-closet-gun-order-111833748.html)
 - Jun 16 - ['You guys have lost your minds': This man asked Dave Ramsey if he and his wife should borrow money — they make $180K/year but spend $80K on the kids. This was the guru's scathing reply](https://finance.yahoo.com/news/guys-lost-minds-man-asked-150000012.html)
 - Jun 16 - [GOP Rep. James Comer Says Another Biden Source Is Missing, Braces For MSNBC Mockery](https://www.yahoo.com/entertainment/gop-rep-james-comer-says-105039449.html)
 - Jun 16 - [‘More extreme, more violent’: experts’ warning over khaki-clad Patriot Front](https://news.yahoo.com/more-extreme-more-violent-experts-100043512.html)
-- Jun 16 - [Judge Cannon jumpstarts oversight of Trump classified documents case with order on security clearances](https://news.yahoo.com/judge-cannon-jumpstarts-oversight-trump-193523986.html)
 <!-- feed end -->
