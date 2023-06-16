@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [Massive grizzly bear dwarfs storage shed; questions are raised](https://sports.yahoo.com/massive-grizzly-bear-dwarfs-storage-150033321.html)
+- Jun 16 - [A man accused of pushing 2 American women off a cliff in Germany had 'deep red marks all over' as though he was 'fought back at,' witness says](https://news.yahoo.com/man-accused-pushing-2-american-144108770.html)
 - Jun 16 - [Video shows Conor McGregor lead alleged sexual assault victim into bathroom at NBA Finals game](https://sports.yahoo.com/video-shows-conor-mcgregor-lead-141548526.html)
+- Jun 16 - [Ant-eating creature lurking below airport turns out to be ‘ultra-slender’ new species](https://news.yahoo.com/ant-eating-creature-lurking-below-135421939.html)
 - Jun 16 - [Is Schwarzenegger worried Trump will win reelection? Hear his response](https://news.yahoo.com/schwarzenegger-asked-worried-trump-could-185854207.html)
-- Jun 16 - [NATO meeting fails to approve first defence plans since Cold War](https://news.yahoo.com/nato-meeting-fails-approve-first-124333783.html)
-- Jun 16 - [Anti-feminist YouTuber Pearl says she thinks divorce should be illegal and women shouldn't have the right to vote](https://www.yahoo.com/entertainment/anti-feminist-youtuber-pearl-says-122832683.html)
-- Jun 16 - [Ford’s new SUV is being compared to a ‘personal bullet train’ — and it could give Elon Musk a run for his money](https://news.yahoo.com/ford-suv-being-compared-personal-113000485.html)
 <!-- feed end -->
