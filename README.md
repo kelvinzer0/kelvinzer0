@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [Mom drives daughter to bank and passes desperate note to teller, cops say. ‘Help me’](https://news.yahoo.com/mom-drives-daughter-bank-passes-174002314.html)
+- Jun 16 - [She was at Dollar General in just a towel — and then it came off, Florida police say](https://news.yahoo.com/she-dollar-general-just-towel-173722718.html)
 - Jun 16 - [A Michigan school cut a 7-year-old biracial girl's hair, but she won in the end](https://news.yahoo.com/michigan-crown-act-racial-hair-discrimination-bias-law-170015717.html)
 - Jun 16 - [US nuclear-powered submarine that ran into an underwater mountain in the South China Sea is going to be stuck in repairs for years](https://news.yahoo.com/us-nuclear-powered-submarine-ran-164344952.html)
 - Jun 16 - [Chicago police sergeant fired for role in botched raid where Black woman was handcuffed nude](https://news.yahoo.com/chicago-police-sergeant-fired-role-161950399.html)
-- Jun 16 - [Major cuts to Social Security are back on the table-- what's being proposed now?](https://finance.yahoo.com/news/major-cuts-social-security-back-154637458.html)
-- Jun 16 - [Trump Says His Hand-Picked Chief of Staff Was ‘Born With a Very Small Brain’](https://news.yahoo.com/trump-says-hand-picked-chief-152606166.html)
 <!-- feed end -->
