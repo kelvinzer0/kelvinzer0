@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Major Cuts to Social Security Are Back on the Table — What’s Being Proposed Now?](https://finance.yahoo.com/news/major-cuts-social-security-back-154637458.html)
+- Jun 16 - [A Michigan school cut a 7-year-old biracial girl's hair, but she won in the end](https://news.yahoo.com/michigan-crown-act-racial-hair-discrimination-bias-law-170015717.html)
+- Jun 16 - [US nuclear-powered submarine that ran into an underwater mountain in the South China Sea is going to be stuck in repairs for years](https://news.yahoo.com/us-nuclear-powered-submarine-ran-164344952.html)
+- Jun 16 - [Chicago police sergeant fired for role in botched raid where Black woman was handcuffed nude](https://news.yahoo.com/chicago-police-sergeant-fired-role-161950399.html)
+- Jun 16 - [Major cuts to Social Security are back on the table-- what's being proposed now?](https://finance.yahoo.com/news/major-cuts-social-security-back-154637458.html)
 - Jun 16 - [Trump Says His Hand-Picked Chief of Staff Was ‘Born With a Very Small Brain’](https://news.yahoo.com/trump-says-hand-picked-chief-152606166.html)
-- Jun 16 - [Massive grizzly bear dwarfs storage shed; questions are raised](https://sports.yahoo.com/massive-grizzly-bear-dwarfs-storage-150033321.html)
-- Jun 16 - [Putin: I can destroy any building in Kyiv city centre, but I won't. Why? I will not say](https://news.yahoo.com/putin-destroy-building-kyiv-city-145900083.html)
-- Jun 16 - [A man accused of pushing 2 American women off a cliff in Germany had 'deep red marks all over' as though he was 'fought back at,' witness says](https://news.yahoo.com/man-accused-pushing-2-american-144108770.html)
 <!-- feed end -->
