@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [Police officer ran over by Denver Nuggets parade truck](https://news.yahoo.com/police-officer-ran-over-denver-035348730.html)
+- Jun 16 - [Boston community says graphic video of public sex act illustrates routine occurrence](https://news.yahoo.com/boston-community-says-graphic-video-014609124.html)
 - Jun 16 - [Judge Cannon jumpstarts oversight of Trump classified documents case with order on security clearances](https://news.yahoo.com/judge-cannon-jumpstarts-oversight-trump-193523986.html)
 - Jun 16 - [Cheap 'like cabbage' apartments in some Chinese cities draw buyers, and caution](https://finance.yahoo.com/news/cheap-cabbage-apartments-chinese-cities-000239157.html)
 - Jun 15 - [Arizona death row inmate released after 29 years behind bars](https://news.yahoo.com/arizona-death-row-inmate-released-234256898.html)
-- Jun 15 - [Trump Demands GOP Rivals Pledge to Pardon Him … or Else](https://news.yahoo.com/trump-demands-gop-rivals-pledge-222001118.html)
-- Jun 15 - [Ron DeSantis signed a bill that banned direct-to-consumer car sales in Florida — but left an exception for Tesla](https://news.yahoo.com/ron-desantis-signed-bill-banned-203859286.html)
 <!-- feed end -->
