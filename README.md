@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [GOP Rep. James Comer Says Another Biden Source Is Missing, Braces For MSNBC Mockery](https://www.yahoo.com/entertainment/gop-rep-james-comer-says-105039449.html)
+- Jun 16 - [Judge Cannon jumpstarts oversight of Trump classified documents case with order on security clearances](https://news.yahoo.com/judge-cannon-jumpstarts-oversight-trump-193523986.html)
 - Jun 16 - [Russia mounts 'desperate resistance' near Bakhmut, Ukraine says](https://news.yahoo.com/russia-mounts-desperate-resistance-near-083003977.html)
-- Jun 16 - [Ex-GOP Lawmaker Nails Why Ron DeSantis Is 'A Uniquely Unlikeable Person'](https://news.yahoo.com/ex-gop-lawmaker-nails-why-073408400.html)
 - Jun 16 - [Jeffrey Epstein paid college tuition for the kids of the former first lady of the Virgin Islands, and she asked him for his input on the wording of a sex offender law: JPMorgan](https://news.yahoo.com/jeffrey-epstein-paid-college-tuition-062735384.html)
 - Jun 16 - [Jon Stewart Gives Trump-Defending GOP Governor A Blistering Legal Fact-Check](https://news.yahoo.com/jon-stewart-gives-trump-defending-043959024.html)
-- Jun 16 - [Boston community says graphic video of public sex act illustrates routine occurrence](https://news.yahoo.com/boston-community-says-graphic-video-014609124.html)
 <!-- feed end -->
