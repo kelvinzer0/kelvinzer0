@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [Video shows Conor McGregor lead alleged sexual assault victim into bathroom at NBA Finals game](https://sports.yahoo.com/video-shows-conor-mcgregor-lead-141548526.html)
+- Jun 16 - [Is Schwarzenegger worried Trump will win reelection? Hear his response](https://news.yahoo.com/schwarzenegger-asked-worried-trump-could-185854207.html)
+- Jun 16 - [NATO meeting fails to approve first defence plans since Cold War](https://news.yahoo.com/nato-meeting-fails-approve-first-124333783.html)
 - Jun 16 - [Anti-feminist YouTuber Pearl says she thinks divorce should be illegal and women shouldn't have the right to vote](https://www.yahoo.com/entertainment/anti-feminist-youtuber-pearl-says-122832683.html)
-- Jun 16 - [A homeowner slept in his closet with a gun to confront the man who had been squatting in his house for months, reports say](https://news.yahoo.com/homeowner-slept-closet-gun-order-111833748.html)
-- Jun 16 - ['You guys have lost your minds': This man asked Dave Ramsey if he and his wife should borrow money — they make $180K/year but spend $80K on the kids. This was the guru's scathing reply](https://finance.yahoo.com/news/guys-lost-minds-man-asked-150000012.html)
-- Jun 16 - [GOP Rep. James Comer Says Another Biden Source Is Missing, Braces For MSNBC Mockery](https://www.yahoo.com/entertainment/gop-rep-james-comer-says-105039449.html)
-- Jun 16 - [‘More extreme, more violent’: experts’ warning over khaki-clad Patriot Front](https://news.yahoo.com/more-extreme-more-violent-experts-100043512.html)
+- Jun 16 - [Ford’s new SUV is being compared to a ‘personal bullet train’ — and it could give Elon Musk a run for his money](https://news.yahoo.com/ford-suv-being-compared-personal-113000485.html)
 <!-- feed end -->
