@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - ['You guys have lost your minds': This man asked Dave Ramsey if he and his wife should borrow money — they make $180K/year but spend $80K on the kids. This was the guru's scathing reply](https://finance.yahoo.com/news/guys-lost-minds-man-asked-150000012.html)
 - Jun 16 - [GOP Rep. James Comer Says Another Biden Source Is Missing, Braces For MSNBC Mockery](https://www.yahoo.com/entertainment/gop-rep-james-comer-says-105039449.html)
+- Jun 16 - [Afghanistan's Taliban needs money so badly they are selling tickets to monuments their own fighters smashed to pieces: report](https://news.yahoo.com/afghanistans-taliban-needs-money-badly-104000500.html)
 - Jun 16 - [Judge Cannon jumpstarts oversight of Trump classified documents case with order on security clearances](https://news.yahoo.com/judge-cannon-jumpstarts-oversight-trump-193523986.html)
-- Jun 16 - [Russia mounts 'desperate resistance' near Bakhmut, Ukraine says](https://news.yahoo.com/russia-mounts-desperate-resistance-near-083003977.html)
-- Jun 16 - [Jeffrey Epstein paid college tuition for the kids of the former first lady of the Virgin Islands, and she asked him for his input on the wording of a sex offender law: JPMorgan](https://news.yahoo.com/jeffrey-epstein-paid-college-tuition-062735384.html)
-- Jun 16 - [Jon Stewart Gives Trump-Defending GOP Governor A Blistering Legal Fact-Check](https://news.yahoo.com/jon-stewart-gives-trump-defending-043959024.html)
+- Jun 16 - [DoorDasher Cancels Customer's Order After McDonald's Breakfast Ends — 'This Is What Happens When You're Rude & Don't Tip'](https://news.yahoo.com/doordasher-cancels-customers-order-mcdonalds-091500007.html)
 <!-- feed end -->
