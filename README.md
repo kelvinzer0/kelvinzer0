@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [Major Cuts to Social Security Are Back on the Table — What’s Being Proposed Now?](https://finance.yahoo.com/news/major-cuts-social-security-back-154637458.html)
+- Jun 16 - [Trump Says His Hand-Picked Chief of Staff Was ‘Born With a Very Small Brain’](https://news.yahoo.com/trump-says-hand-picked-chief-152606166.html)
 - Jun 16 - [Massive grizzly bear dwarfs storage shed; questions are raised](https://sports.yahoo.com/massive-grizzly-bear-dwarfs-storage-150033321.html)
+- Jun 16 - [Putin: I can destroy any building in Kyiv city centre, but I won't. Why? I will not say](https://news.yahoo.com/putin-destroy-building-kyiv-city-145900083.html)
 - Jun 16 - [A man accused of pushing 2 American women off a cliff in Germany had 'deep red marks all over' as though he was 'fought back at,' witness says](https://news.yahoo.com/man-accused-pushing-2-american-144108770.html)
-- Jun 16 - [Video shows Conor McGregor lead alleged sexual assault victim into bathroom at NBA Finals game](https://sports.yahoo.com/video-shows-conor-mcgregor-lead-141548526.html)
-- Jun 16 - [Ant-eating creature lurking below airport turns out to be ‘ultra-slender’ new species](https://news.yahoo.com/ant-eating-creature-lurking-below-135421939.html)
-- Jun 16 - [Is Schwarzenegger worried Trump will win reelection? Hear his response](https://news.yahoo.com/schwarzenegger-asked-worried-trump-could-185854207.html)
 <!-- feed end -->
