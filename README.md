@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [He was prosecuted by Jack Smith, hear what he knows about the special counsel](https://news.yahoo.com/prosecuted-jack-smith-hear-knows-143803254.html)
 - Jun 17 - [Disney Gets a Big Win In Battle With DeSantis](https://www.thestreet.com/travel/disney-gets-a-big-win-in-battle-with-desantis?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jun 17 - [West Virginia coach Bob Huggins reportedly arrested for DUI in Pittsburgh](https://sports.yahoo.com/west-virginia-coach-bob-huggins-reportedly-arrested-for-dui-in-pittsburgh-140556974.html)
-- Jun 17 - [Pence on Trump: I don’t know why other GOP 2024 candidates ‘presume the president will be found guilty’](https://news.yahoo.com/pence-trump-don-t-know-124938317.html)
 - Jun 17 - [Scientists discover lithium replacement that may revolutionize EV batteries: ‘99.7% efficient after over 400 hours of use’](https://news.yahoo.com/scientists-discover-lithium-replacement-may-111500394.html)
 - Jun 17 - [Flying the F-35 stealth fighter can leave pilots looking 'like they are 100 years old,' says test pilot](https://news.yahoo.com/flying-f-35-stealth-fighter-102954129.html)
 <!-- feed end -->
