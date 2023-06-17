@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 17 - [Most Americans support Trump pardon if he’s convicted, sentenced to jail in docs case: poll](https://news.yahoo.com/most-americans-support-trump-pardon-183105273.html)
-- Jun 17 - [United Airlines employees accused of years-long scheme selling weed stolen out of customers' checked baggage](https://news.yahoo.com/united-airlines-employees-accused-years-172017292.html)
+- Jun 17 - [Images show how a Swiss Alps village narrowly escaped being wiped out by a massive rockslide that missed 'by a hair'](https://news.yahoo.com/images-show-swiss-alps-village-153352744.html)
 - Jun 17 - [He was prosecuted by Jack Smith, hear what he knows about the special counsel](https://news.yahoo.com/prosecuted-jack-smith-hear-knows-143803254.html)
 - Jun 17 - [Disney Gets a Big Win In Battle With DeSantis](https://www.thestreet.com/travel/disney-gets-a-big-win-in-battle-with-desantis?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jun 17 - [Colombian Children Rescued in Jungle Had Been Fleeing for Their Lives](https://news.yahoo.com/colombian-children-rescued-jungle-had-141049501.html)
+- Jun 17 - [Plane crash kills 'Flying Wild Alaska' pilot Jim Tweto and Idaho hunting guide](https://news.yahoo.com/plane-crash-kills-flying-wild-141601667.html)
 <!-- feed end -->
