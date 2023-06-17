@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [Most Americans support Trump pardon if he’s convicted, sentenced to jail in docs case: poll](https://news.yahoo.com/most-americans-support-trump-pardon-183105273.html)
+- Jun 17 - [United Airlines employees accused of years-long scheme selling weed stolen out of customers' checked baggage](https://news.yahoo.com/united-airlines-employees-accused-years-172017292.html)
 - Jun 17 - [He was prosecuted by Jack Smith, hear what he knows about the special counsel](https://news.yahoo.com/prosecuted-jack-smith-hear-knows-143803254.html)
 - Jun 17 - [Disney Gets a Big Win In Battle With DeSantis](https://www.thestreet.com/travel/disney-gets-a-big-win-in-battle-with-desantis?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jun 17 - [West Virginia coach Bob Huggins arrested on DUI charge in Pittsburgh](https://sports.yahoo.com/west-virginia-coach-bob-huggins-arrested-on-dui-charge-in-pittsburgh-140556642.html)
-- Jun 17 - [City of Milton paying out $35 million after college student died crashing into stone planter](https://news.yahoo.com/city-milton-paying-35-million-031409534.html)
-- Jun 17 - [Scientists discover lithium replacement that may revolutionize EV batteries: ‘99.7% efficient after over 400 hours of use’](https://news.yahoo.com/scientists-discover-lithium-replacement-may-111500394.html)
+- Jun 17 - [Colombian Children Rescued in Jungle Had Been Fleeing for Their Lives](https://news.yahoo.com/colombian-children-rescued-jungle-had-141049501.html)
 <!-- feed end -->
