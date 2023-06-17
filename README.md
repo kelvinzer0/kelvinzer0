@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Trump’s remarks on transgender people reveal flip-flop](https://news.yahoo.com/trump-remarks-transgender-people-reveal-012635498.html)
 - Jun 16 - [Jack Smith Moves to Muzzle Trump](https://news.yahoo.com/jack-smith-seeks-bar-trump-225537663.html)
-- Jun 16 - [In a warning to the West, Putin says Russian tactical nukes are being put in Belarus to stop a 'strategic defeat'](https://news.yahoo.com/warning-west-putin-says-russian-221222960.html)
 - Jun 16 - [Man caught on CCTV snatching woman’s purse, driving away in his Mercedes in Las Vegas Chinatown](https://news.yahoo.com/man-caught-cctv-snatching-woman-213959456.html)
 - Jun 16 - [Canada police say bus carrying seniors did not have the right of way in crash that killed 15](https://news.yahoo.com/6-seniors-critically-injured-canada-213140315.html)
+- Jun 16 - [TikTok mortician believes she may have saved a woman’s life after recently sharing tips about safe driving](https://news.yahoo.com/tiktok-mortician-believes-she-may-194831464.html)
+- Jun 16 - [Trump fires back at Kelly after ‘scared s—less’ remarks](https://news.yahoo.com/trump-fires-back-kelly-scared-192427491.html)
 <!-- feed end -->
