@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 17 - [Greg Abbott Axes Water For Texas Construction Workers Amid 3-Digit Temperatures](https://news.yahoo.com/greg-abbott-axes-water-texas-213018800.html)
+- Jun 17 - [Kremlin decides that goal to "demilitarise" Ukraine has largely been achieved](https://news.yahoo.com/kremlin-decides-goal-demilitarise-ukraine-194912196.html)
 - Jun 17 - [A Delta flight to New York was canceled shortly before takeoff after a crew member was arrested](https://news.yahoo.com/delta-flight-york-canceled-shortly-193209882.html)
-- Jun 17 - [Most Americans support Trump pardon if he’s convicted, sentenced to jail in docs case: poll](https://news.yahoo.com/most-americans-support-trump-pardon-183105273.html)
 - Jun 17 - [He was prosecuted by Jack Smith, hear what he knows about the special counsel](https://news.yahoo.com/prosecuted-jack-smith-hear-knows-143803254.html)
 - Jun 17 - [Disney Gets a Big Win In Battle With DeSantis](https://www.thestreet.com/travel/disney-gets-a-big-win-in-battle-with-desantis?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
