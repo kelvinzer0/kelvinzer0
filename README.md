@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 17 - [TikTok Star Carl Eiswerth Killed In Car Crash At Age 35](https://www.yahoo.com/entertainment/tiktok-star-carl-eiswerth-killed-021253140.html)
 - Jun 17 - [The man convicted of the biggest CIA leak in history says he doesn't have enough typewriter ribbon to craft his own defense for a separate child pornography trial](https://news.yahoo.com/man-convicted-biggest-cia-leak-021131043.html)
+- Jun 17 - [Putin says he’s delivered nukes to Ukraine’s neighbor. Hear what ex-CIA operative thinks](https://news.yahoo.com/putin-says-delivered-nukes-ukraine-014440348.html)
 - Jun 16 - [Jack Smith Moves to Muzzle Trump](https://news.yahoo.com/jack-smith-seeks-bar-trump-225537663.html)
-- Jun 16 - [Man caught on CCTV snatching woman’s purse, driving away in his Mercedes in Las Vegas Chinatown](https://news.yahoo.com/man-caught-cctv-snatching-woman-213959456.html)
-- Jun 16 - [Canada police say bus carrying seniors did not have the right of way in crash that killed 15](https://news.yahoo.com/6-seniors-critically-injured-canada-213140315.html)
+- Jun 16 - [Man caught on CCTV snatching woman’s purse, driving away in a Mercedes in Las Vegas Chinatown](https://news.yahoo.com/man-caught-cctv-snatching-woman-213959456.html)
 <!-- feed end -->
