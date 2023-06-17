@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [Pence on Trump: I don’t know why other GOP 2024 candidates ‘presume the president will be found guilty’](https://news.yahoo.com/pence-trump-don-t-know-124938317.html)
 - Jun 17 - [Flying the F-35 stealth fighter can leave pilots looking 'like they are 100 years old,' says test pilot](https://news.yahoo.com/flying-f-35-stealth-fighter-102954129.html)
 - Jun 17 - [The Devil’s Punchbowl: Debunking the social media myth of a Civil War massacre](https://news.yahoo.com/the-devils-punchbowl-debunking-the-social-media-myth-of-a-civil-war-massacre-090017590.html)
 - Jun 17 - [The Latest Estimate Is In: Here's How Much Social Security Benefits Are Expected to Rise In 2024](https://www.fool.com/retirement/2023/06/17/how-much-social-security-benefits-rise-in-2024/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Jun 17 - [Gavin Newsom Brutally Schools Hannity On The Economy In Explosive Interview](https://news.yahoo.com/gavin-newsom-brutally-schools-hannity-064239318.html)
-- Jun 17 - [DOJ responds to Jordan’s demands for more information on Trump docs probe](https://news.yahoo.com/doj-responds-jordan-demands-more-021411307.html)
+- Jun 17 - [Gavin Newsom Brutally Schools Sean Hannity On The Economy In Explosive Interview](https://news.yahoo.com/gavin-newsom-brutally-schools-hannity-064239318.html)
 <!-- feed end -->
