@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [Flying the F-35 stealth fighter can leave pilots looking 'like they are 100 years old,' says test pilot](https://news.yahoo.com/flying-f-35-stealth-fighter-102954129.html)
 - Jun 17 - [Gavin Newsom Brutally Schools Hannity On The Economy In Explosive Interview](https://news.yahoo.com/gavin-newsom-brutally-schools-hannity-064239318.html)
+- Jun 17 - [DOJ responds to Jordan’s demands for more information on Trump docs probe](https://news.yahoo.com/doj-responds-jordan-demands-more-021411307.html)
 - Jun 17 - [TikTok Star Carl Eiswerth Killed In Car Crash At Age 35](https://www.yahoo.com/entertainment/tiktok-star-carl-eiswerth-killed-021253140.html)
 - Jun 17 - [Putin says he’s delivered nukes to Ukraine’s neighbor. Hear what ex-CIA operative thinks](https://news.yahoo.com/putin-says-delivered-nukes-ukraine-014440348.html)
-- Jun 16 - [Jack Smith Moves to Muzzle Trump](https://news.yahoo.com/jack-smith-seeks-bar-trump-225537663.html)
-- Jun 16 - [Canada police say bus carrying seniors did not have the right of way in crash that killed 15](https://news.yahoo.com/6-seniors-critically-injured-canada-213140315.html)
 <!-- feed end -->
