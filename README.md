@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Explosions rip through Russian ammo dump in Kherson Oblast, detonations captured on video](https://news.yahoo.com/explosions-rip-russian-ammo-dump-085400374.html)
+- Jun 18 - [These tiny Japanese pick-up trucks that cost about $5,000 are winning fans in America](https://news.yahoo.com/tiny-japanese-pick-trucks-cost-083000908.html)
+- Jun 18 - [The Grim Reality of Joe Biden's 4-Point Plan to Change Social Security](https://www.fool.com/retirement/2023/06/18/grim-reality-joe-biden-plan-change-social-security/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Jun 18 - [Ukraine says destroys ammunition depot in Russian-occupied Kherson](https://finance.yahoo.com/news/ukraine-says-destroys-ammunition-depot-051936821.html)
 - Jun 18 - [Woman Confused After Recruiter Asked To See Her College Scores As Part Of Job Application — 'I Took The SAT 10 Years Ago'](https://news.yahoo.com/woman-confused-recruiter-asked-see-051500691.html)
-- Jun 18 - [Stalled contract jeopardizes relations between new Disney governing body, firefighters](https://news.yahoo.com/stalled-contract-jeopardizes-relations-between-042726137.html)
-- Jun 18 - [Chicago Man Found Dead After Attending King Gizzard and the Lizard Wizard Concert](https://www.yahoo.com/entertainment/chicago-man-found-dead-attending-022625920.html)
-- Jun 18 - [Woman Is Stunned When Her Job Fires Her After Giving Them Her Two-Weeks' Notice — 'What About My Unfinished Work?'](https://news.yahoo.com/woman-stunned-her-job-fires-021500471.html)
 <!-- feed end -->
