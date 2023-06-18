@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Attorney General Garland keeps poker face as firestorm erupts after Trump charges](https://news.yahoo.com/attorney-general-garland-keeps-poker-135559272.html)
+- Jun 18 - [A 16-year-old pocketed $50,000 for her award-winning discovery in the brains of people who died by suicide](https://news.yahoo.com/16-old-pocketed-50-000-135300578.html)
 - Jun 18 - [As the nation celebrates Juneteenth, it’s time to get rid of these three myths about slavery](https://news.yahoo.com/nation-celebrates-juneteenth-time-rid-080424453.html)
 - Jun 18 - [Toyota's first electric sports car aimed to be indistinguishable from a gasoline one](https://www.autoblog.com/2023/06/18/future-electric-toyota-ev-sports-car/)
 - Jun 18 - [Researchers are discovering ‘zombie forests’ in new places across the western U.S. — here’s what makes that so concerning](https://news.yahoo.com/researchers-discovering-zombie-forests-places-113000061.html)
-- Jun 18 - [Gardener issues critical warning about an unexpected danger hiding in your garden: ‘If you see [these], get rid of them’](https://news.yahoo.com/gardener-issues-critical-warning-unexpected-110000837.html)
-- Jun 18 - [A psychologist says she broke down in tears when she learned the horrors that 2 castrated Ukrainian soldiers endured, says report](https://news.yahoo.com/psychologist-says-she-broke-down-102645129.html)
 <!-- feed end -->
