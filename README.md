@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Ukrainian troops devastate 4 Russian infantry companies on southern front, officer says](https://news.yahoo.com/ukrainian-troops-devastate-4-russian-142000523.html)
+- Jun 18 - [Bill Barr: Trump is a ‘consummate narcissist’](https://news.yahoo.com/bill-barr-trump-consummate-narcissist-151241741.html)
 - Jun 18 - [Attorney General Garland keeps poker face as firestorm erupts after Trump charges](https://news.yahoo.com/attorney-general-garland-keeps-poker-135559272.html)
 - Jun 18 - [One of Donald Trump's Kids Is Reportedly 'Angling' to 'Be a Major Player' If He's Re-Elected in 2024](https://www.yahoo.com/entertainment/one-donald-trumps-kids-reportedly-135400728.html)
 - Jun 18 - [A 16-year-old pocketed $50,000 for her award-winning discovery in the brains of people who died by suicide](https://news.yahoo.com/16-old-pocketed-50-000-135300578.html)
-- Jun 18 - [I used AI to double my income in one year. It wasn't hard to do and didn't cost me anything.](https://news.yahoo.com/used-ai-double-income-one-130000031.html)
+- Jun 18 - [As the nation celebrates Juneteenth, it’s time to get rid of these three myths about slavery](https://news.yahoo.com/nation-celebrates-juneteenth-time-rid-080424453.html)
 <!-- feed end -->
