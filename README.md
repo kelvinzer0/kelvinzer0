@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Woman Confused After Recruiter Asked To See Her College Scores As Part Of Job Application — 'I Took The SAT 10 Years Ago'](https://news.yahoo.com/woman-confused-recruiter-asked-see-051500691.html)
 - Jun 18 - [Stalled contract jeopardizes relations between new Disney governing body, firefighters](https://news.yahoo.com/stalled-contract-jeopardizes-relations-between-042726137.html)
+- Jun 18 - [Can We Admit Mainstreaming Juneteenth Has Been a Disaster?](https://news.yahoo.com/admit-mainstreaming-juneteenth-disaster-023208154.html)
 - Jun 18 - [Woman Is Stunned When Her Job Fires Her After Giving Them Her Two-Weeks' Notice — 'What About My Unfinished Work?'](https://news.yahoo.com/woman-stunned-her-job-fires-021500471.html)
 - Jun 18 - [Joe Rogan Offers $100,000 to Leading Vaccine Researcher to Debate RFK Jr. Over  ‘Nonsense’ Anti-Vaxxer Claims](https://www.yahoo.com/entertainment/joe-rogan-offers-100-000-004455616.html)
-- Jun 18 - [Conway makes a prediction on whether Trump will go to jail](https://news.yahoo.com/conway-makes-prediction-whether-trump-003037365.html)
-- Jun 17 - [Harvard Morgue Manager And Associates Charged With Trafficking Human Remains, Sold Parts Via Facebook And PayPal](https://www.yahoo.com/entertainment/harvard-morgue-manager-associates-charged-221250882.html)
 <!-- feed end -->
