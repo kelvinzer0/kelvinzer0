@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [A psychologist says she broke down in tears when she learned the horrors that 2 castrated Ukrainian soldiers endured, says report](https://news.yahoo.com/psychologist-says-she-broke-down-102645129.html)
+- Jun 18 - [Trump lacked power to declassify secret nuclear arms document, experts say](https://news.yahoo.com/trump-lacked-power-declassify-secret-100929256.html)
 - Jun 18 - [Still want to support Ukraine? Don’t buy from companies that refuse to leave Russia | Opinion](https://news.yahoo.com/still-want-support-ukraine-don-100000200.html)
+- Jun 18 - [Ukrainian forces take control of Piatykhatky village on Zaporizhzhia front - Russian-installed official](https://news.yahoo.com/ukrainian-forces-control-piatykhatky-village-094644608.html)
 - Jun 18 - [Explosions rip through Russian ammo dump in Kherson Oblast, detonations captured on video](https://news.yahoo.com/explosions-rip-russian-ammo-dump-085400374.html)
-- Jun 18 - [These tiny Japanese pick-up trucks that cost about $5,000 are winning fans in America](https://news.yahoo.com/tiny-japanese-pick-trucks-cost-083000908.html)
-- Jun 18 - [The Grim Reality of Joe Biden's 4-Point Plan to Change Social Security](https://www.fool.com/retirement/2023/06/18/grim-reality-joe-biden-plan-change-social-security/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Jun 18 - [Ukraine says destroys ammunition depot in Russian-occupied Kherson](https://finance.yahoo.com/news/ukraine-says-destroys-ammunition-depot-051936821.html)
 <!-- feed end -->
