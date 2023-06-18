@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Woman Is Stunned When Her Job Fires Her After Giving Them Her Two-Weeks' Notice — 'What About My Unfinished Work?'](https://news.yahoo.com/woman-stunned-her-job-fires-021500471.html)
 - Jun 18 - [Joe Rogan Offers $100,000 to Leading Vaccine Researcher to Debate RFK Jr. Over  ‘Nonsense’ Anti-Vaxxer Claims](https://www.yahoo.com/entertainment/joe-rogan-offers-100-000-004455616.html)
 - Jun 18 - [Conway makes a prediction on whether Trump will go to jail](https://news.yahoo.com/conway-makes-prediction-whether-trump-003037365.html)
 - Jun 17 - [Harvard Morgue Manager And Associates Charged With Trafficking Human Remains, Sold Parts Via Facebook And PayPal](https://www.yahoo.com/entertainment/harvard-morgue-manager-associates-charged-221250882.html)
 - Jun 17 - [Big-name toilet paper brands are getting blasted for a major problem with their products — here’s who got called out](https://news.yahoo.com/big-name-toilet-paper-brands-220000734.html)
-- Jun 17 - [Greg Abbott Axes Water For Texas Construction Workers Amid 3-Digit Temperatures](https://news.yahoo.com/greg-abbott-axes-water-texas-213018800.html)
 <!-- feed end -->
