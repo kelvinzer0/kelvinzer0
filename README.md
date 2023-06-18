@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [A majority of Republicans now say same-sex relations are immoral after a year of 'groomer' attacks on the LGBTQ community](https://news.yahoo.com/majority-republicans-now-same-sex-163920223.html)
 - Jun 18 - [Bill Barr: Trump is a ‘consummate narcissist’](https://news.yahoo.com/bill-barr-trump-consummate-narcissist-151241741.html)
+- Jun 18 - [Deputy and driver get swept into pipe, travel 100 feet under Florida road, video shows](https://news.yahoo.com/deputy-driver-swept-pipe-travel-144229326.html)
 - Jun 18 - [Attorney General Garland keeps poker face as firestorm erupts after Trump charges](https://news.yahoo.com/attorney-general-garland-keeps-poker-135559272.html)
 - Jun 18 - [One of Donald Trump's Kids Is Reportedly 'Angling' to 'Be a Major Player' If He's Re-Elected in 2024](https://www.yahoo.com/entertainment/one-donald-trumps-kids-reportedly-135400728.html)
-- Jun 18 - [A 16-year-old pocketed $50,000 for her award-winning discovery in the brains of people who died by suicide](https://news.yahoo.com/16-old-pocketed-50-000-135300578.html)
-- Jun 18 - [As the nation celebrates Juneteenth, it’s time to get rid of these three myths about slavery](https://news.yahoo.com/nation-celebrates-juneteenth-time-rid-080424453.html)
 <!-- feed end -->
