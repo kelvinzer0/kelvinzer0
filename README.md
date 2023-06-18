@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Mark Cuban Blasts Joe Rogan and Elon Musk Over Vaccination, Big Pharma Debate: ‘Bulls–t and You Know It’](https://www.yahoo.com/entertainment/mark-cuban-blasts-joe-rogan-193818517.html)
+- Jun 18 - [Luxury homebuyers have 'upper hand' after California enacts mansion tax](https://finance.yahoo.com/news/luxury-homebuyers-have-upper-hand-after-california-enacts-mansion-tax-193049362.html)
+- Jun 18 - [Man chased intruders away, but they returned, Ohio cops say. He was armed and ready](https://news.yahoo.com/man-chased-intruders-away-returned-192120988.html)
 - Jun 18 - [Cannibalistic creatures cover roads and homes, Nevada videos show. ‘Absolutely foul’](https://news.yahoo.com/cannibalistic-creatures-cover-roads-homes-172534097.html)
-- Jun 18 - [A majority of Republicans now say same-sex relations are immoral after a year of 'groomer' attacks on the LGBTQ community](https://news.yahoo.com/majority-republicans-now-same-sex-163920223.html)
-- Jun 18 - [Former Trump Defense secretary brands him a security threat](https://news.yahoo.com/former-trump-defense-secretary-brands-163754624.html)
-- Jun 18 - [Bill Barr: Trump is a ‘consummate narcissist’](https://news.yahoo.com/bill-barr-trump-consummate-narcissist-151241741.html)
-- Jun 18 - [Deputy and driver get swept into pipe, travel 100 feet under Florida road, video shows](https://news.yahoo.com/deputy-driver-swept-pipe-travel-144229326.html)
+- Jun 18 - [Judge overseeing Trump's federal case has been acting like 'Trump advocate in a robe': Whitehouse](https://news.yahoo.com/judge-overseeing-trumps-federal-case-171200258.html)
 <!-- feed end -->
