@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Jun 18 - [Mark Cuban Blasts Joe Rogan and Elon Musk Over Vaccination, Big Pharma Debate: ‘Bulls–t and You Know It’](https://www.yahoo.com/entertainment/mark-cuban-blasts-joe-rogan-193818517.html)
 - Jun 18 - [Luxury homebuyers have 'upper hand' after California enacts mansion tax](https://finance.yahoo.com/news/luxury-homebuyers-have-upper-hand-after-california-enacts-mansion-tax-193049362.html)
 - Jun 18 - [Man chased intruders away, but they returned, Ohio cops say. He was armed and ready](https://news.yahoo.com/man-chased-intruders-away-returned-192120988.html)
+- Jun 18 - [Barr says Trump is a 'troubled man' who lied to the Justice Department and deserves to be prosecuted](https://news.yahoo.com/barr-says-trump-troubled-man-183540684.html)
 - Jun 18 - [Cannibalistic creatures cover roads and homes, Nevada videos show. ‘Absolutely foul’](https://news.yahoo.com/cannibalistic-creatures-cover-roads-homes-172534097.html)
-- Jun 18 - [Judge overseeing Trump's federal case has been acting like 'Trump advocate in a robe': Whitehouse](https://news.yahoo.com/judge-overseeing-trumps-federal-case-171200258.html)
 <!-- feed end -->
