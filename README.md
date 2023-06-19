@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 19 - [Man sentenced to 26 years for 2020 sexual assault, murder of Milwaukee woman in public park](https://news.yahoo.com/man-sentenced-26-years-2020-213915109.html)
 - Jun 19 - [Titanic tourist submersible goes missing with search under way](https://news.yahoo.com/titanic-tourist-sub-goes-missing-141944635.html)
+- Jun 19 - [Cairo construction threatens historic cemeteries](https://news.yahoo.com/cairo-construction-threatens-historic-cemeteries-205952330.html)
+- Jun 19 - [Tropical Storm Bret forms in Atlantic, is expected to intensify into a hurricane](https://news.yahoo.com/tropical-depression-three-forms-atlantic-151148919.html)
 - Jun 19 - [Bear Breaks Into Colorado Home, Eats Pork Chops, and Leaves](https://news.yahoo.com/bear-breaks-colorado-home-eats-205810498.html)
-- Jun 19 - [Badly Damaged Russian Ka-52 Attack Helicopter Flies Without Its Tail Over Ukraine](https://news.yahoo.com/badly-damaged-russian-ka-52-203946664.html)
-- Jun 19 - [Nearly 15,000 sign petition to ban Donald Trump Jr. from going to Australia](https://news.yahoo.com/nearly-15-000-sign-petition-195533458.html)
-- Jun 19 - [Horrors Of Trench Warfare Captured In Viral Ukrainian Special Ops Footage](https://news.yahoo.com/horrors-trench-warfare-captured-viral-194154517.html)
 <!-- feed end -->
