@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 19 - [Titanic tourist submersible goes missing with search under way](https://news.yahoo.com/titanic-tourist-sub-goes-missing-141944635.html)
+- Jun 19 - [Trump faces questions about whether he'll drag down the Republican Party after his indictments](https://news.yahoo.com/trump-faces-questions-whether-hell-162907425.html)
+- Jun 19 - [Tropical Depression Three forms in Atlantic, is expected to intensify into a hurricane](https://news.yahoo.com/tropical-depression-three-forms-atlantic-151148919.html)
 - Jun 19 - [Mexico president to sign agreement with tortilla makers promoting non-GMO white corn](https://news.yahoo.com/mexico-president-sign-agreement-tortilla-153942501.html)
-- Jun 19 - [Watch: Blinken Meets Xi on Final Day of High-Stakes China Visit](https://finance.yahoo.com/video/watch-blinken-meets-xi-final-115800770.html)
-- Jun 19 - [5 dead in house fire in rural North Carolina](https://news.yahoo.com/5-dead-house-fire-rural-152653948.html)
 - Jun 19 - [Trump's court sketches make him look too young and attractive, Twitter users say. But the artist says he just draws what he sees.](https://news.yahoo.com/trumps-court-sketches-him-look-152008406.html)
 <!-- feed end -->
