@@ -56,7 +56,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 19 - [Their parents made China the world's factory. Can the kids save the family business?](https://finance.yahoo.com/news/parents-made-china-worlds-factory-020942336.html)
-- Jun 19 - [North Korea calls failed spy satellite launch 'the most serious' shortcoming, vows 2nd launch](https://news.yahoo.com/north-korea-calls-failed-spy-000557099.html)
+- Jun 18 - [Mexican authorities destroy 14 homemade armored cars used by drug cartels](https://news.yahoo.com/mexican-authorities-destroy-14-homemade-214309275.html)
 - Jun 18 - [John Bolton Says Trump Always Had a ‘Disturbing’ Pattern of Collecting Classified Material: ‘There’s Utterly No Excuse’ (Video)](https://www.yahoo.com/entertainment/john-bolton-says-trump-always-203246547.html)
 - Jun 18 - [DeSantis claimed Dodgers stadium was 'virtually empty' after Pride backlash, but the game actually had higher attendance than normal](https://news.yahoo.com/desantis-claimed-dodgers-stadium-virtually-202557563.html)
 - Jun 18 - [Uruguay abandons plan to melt, recast Nazi bronze](https://news.yahoo.com/uruguay-abandons-plan-melt-recast-201547158.html)
