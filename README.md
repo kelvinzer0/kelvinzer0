@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [North Korea calls botched launch the 'gravest failure'](https://news.yahoo.com/north-korea-calls-botched-launch-064143120.html)
+- Jun 19 - [Emotional Mom Shares Her Son's Last Words And People Blame Her — 'He Was Weak'](https://news.yahoo.com/emotional-mom-shares-her-sons-061500848.html)
 - Jun 19 - [Pranksters Expose The ‘Too Stupid’ Argument Now Used By Trump Supporters](https://news.yahoo.com/pranksters-expose-too-stupid-argument-055231322.html)
+- Jun 19 - [A 6-year-old boy in Texas has died from a lightning strike weeks after his father was killed in the same incident](https://news.yahoo.com/6-old-boy-texas-died-052424299.html)
 - Jun 19 - [Their parents made China the world's factory. Can the kids save the family business?](https://finance.yahoo.com/news/parents-made-china-worlds-factory-020942336.html)
 - Jun 19 - [Server Reveals She Was Fired After Receiving $100 Tip From Customer](https://news.yahoo.com/server-reveals-she-fired-receiving-011500946.html)
-- Jun 18 - [John Bolton Says Trump Always Had a ‘Disturbing’ Pattern of Collecting Classified Material: ‘There’s Utterly No Excuse’ (Video)](https://www.yahoo.com/entertainment/john-bolton-says-trump-always-203246547.html)
 <!-- feed end -->
