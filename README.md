@@ -55,10 +55,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Russia claims to have remotely detonated tank laden with explosives, in apparent new tactic](https://news.yahoo.com/russia-claims-remotely-detonated-tank-103817507.html)
+- Jun 19 - [Russian spy chief flags 'suspicious' Ukrainian nuclear activity](https://news.yahoo.com/russian-spy-chief-flags-suspicious-104639455.html)
 - Jun 19 - [John Durham to testify on Capitol Hill after scathing report](https://news.yahoo.com/john-durham-testify-capitol-hill-100000434.html)
 - Jun 19 - [Deputy commander and entire battalion of Russian troops 
 from South Ossetia killed in south Ukraine](https://news.yahoo.com/deputy-commander-entire-battalion-russian-095500918.html)
 - Jun 19 - [‘A very attractive hazard’: Melatonin, THC, CBD gummies are far from harmless](https://news.yahoo.com/very-attractive-hazard-melatonin-thc-092200379.html)
-- Jun 19 - [Emotional Mom Shares Her Son's Last Words And People Blame Her — 'He Was Weak'](https://news.yahoo.com/emotional-mom-shares-her-sons-061500848.html)
+- Jun 19 - [Paris air show returns with jets and missiles in demand](https://finance.yahoo.com/news/paris-air-show-returns-jets-091229751.html)
 <!-- feed end -->
