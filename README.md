@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Kremlin critic Navalny defends himself in court](https://news.yahoo.com/kremlin-critic-navalny-defends-himself-141919777.html)
-- Jun 19 - [A 16-year-old pocketed $50,000 for her award-winning discovery in the brains of people who died by suicide](https://news.yahoo.com/16-old-pocketed-50-000-135300578.html)
-- Jun 19 - [US judge orders Trump lawyers not to release evidence in documents probe](https://news.yahoo.com/us-judge-orders-trump-lawyers-130016567.html)
-- Jun 19 - [Doctor kills himself after taking antibiotic with ‘rare link’ to suicide](https://news.yahoo.com/ciprofloxacin-warning-doctor-no-history-120103844.html)
-- Jun 19 - [5 young women preparing for friend's wedding killed in car crash](https://news.yahoo.com/5-young-women-preparing-friends-114952057.html)
+- Jun 19 - [Titanic tourist submersible goes missing with search under way](https://news.yahoo.com/titanic-tourist-sub-goes-missing-141944635.html)
+- Jun 19 - [Mexico president to sign agreement with tortilla makers promoting non-GMO white corn](https://news.yahoo.com/mexico-president-sign-agreement-tortilla-153942501.html)
+- Jun 19 - [Watch: Blinken Meets Xi on Final Day of High-Stakes China Visit](https://finance.yahoo.com/video/watch-blinken-meets-xi-final-115800770.html)
+- Jun 19 - [5 dead in house fire in rural North Carolina](https://news.yahoo.com/5-dead-house-fire-rural-152653948.html)
+- Jun 19 - [Trump's court sketches make him look too young and attractive, Twitter users say. But the artist says he just draws what he sees.](https://news.yahoo.com/trumps-court-sketches-him-look-152008406.html)
 <!-- feed end -->
