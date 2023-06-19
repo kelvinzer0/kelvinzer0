@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Blinken to wrap up rare visit to China, may meet Xi Jinping](https://uk.news.yahoo.com/blinken-wrap-rare-visit-china-220232044.html)
+- Jun 18 - [Mexican authorities destroy 14 homemade armored cars used by drug cartels](https://news.yahoo.com/mexican-authorities-destroy-14-homemade-214309275.html)
+- Jun 18 - [John Bolton Says Trump Always Had a ‘Disturbing’ Pattern of Collecting Classified Material: ‘There’s Utterly No Excuse’ (Video)](https://www.yahoo.com/entertainment/john-bolton-says-trump-always-203246547.html)
 - Jun 18 - [DeSantis claimed Dodgers stadium was 'virtually empty' after Pride backlash, but the game actually had higher attendance than normal](https://news.yahoo.com/desantis-claimed-dodgers-stadium-virtually-202557563.html)
-- Jun 18 - [There is so much gun violence in one Mississippi neighborhood that a military base piled up shipping containers to defend itself from stray bullets](https://news.yahoo.com/much-gun-violence-one-mississippi-195829294.html)
-- Jun 18 - [Mark Cuban Blasts Joe Rogan and Elon Musk Over Vaccination, Big Pharma Debate: ‘Bulls–t and You Know It’](https://www.yahoo.com/entertainment/mark-cuban-blasts-joe-rogan-193818517.html)
-- Jun 18 - [Luxury homebuyers have 'upper hand' after California enacts mansion tax](https://finance.yahoo.com/news/luxury-homebuyers-have-upper-hand-after-california-enacts-mansion-tax-193049362.html)
-- Jun 18 - [Man chased intruders away, but they returned, Ohio cops say. He was armed and ready](https://news.yahoo.com/man-chased-intruders-away-returned-192120988.html)
+- Jun 18 - [Uruguay abandons plan to melt, recast Nazi bronze](https://news.yahoo.com/uruguay-abandons-plan-melt-recast-201547158.html)
 <!-- feed end -->
