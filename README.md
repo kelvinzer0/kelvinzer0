@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 19 - [Titanic tourist submersible goes missing with search under way](https://news.yahoo.com/titanic-tourist-sub-goes-missing-141944635.html)
-- Jun 19 - [US Attorney General Garland makes surprise ICC visit](https://news.yahoo.com/us-attorney-general-garland-makes-194930868.html)
-- Jun 19 - [California housing gets hit by 'major, major blow' after wildfire insurer exits](https://finance.yahoo.com/news/california-housing-gets-hit-by-major-major-blow-after-wildfire-insurer-exits-192055149.html)
-- Jun 19 - [Worker was paid with 91,500 oily pennies, feds say. Now company owes him much more](https://news.yahoo.com/worker-paid-91-500-oily-185652913.html)
-- Jun 19 - [Ancient Russian T-54 Tank Turned Into Rolling Bomb Explodes In Massive Shockwave](https://news.yahoo.com/ancient-russian-t-54-tank-185509175.html)
+- Jun 19 - [Bear Breaks Into Colorado Home, Eats Pork Chops, and Leaves](https://news.yahoo.com/bear-breaks-colorado-home-eats-205810498.html)
+- Jun 19 - [Badly Damaged Russian Ka-52 Attack Helicopter Flies Without Its Tail Over Ukraine](https://news.yahoo.com/badly-damaged-russian-ka-52-203946664.html)
+- Jun 19 - [Nearly 15,000 sign petition to ban Donald Trump Jr. from going to Australia](https://news.yahoo.com/nearly-15-000-sign-petition-195533458.html)
+- Jun 19 - [Horrors Of Trench Warfare Captured In Viral Ukrainian Special Ops Footage](https://news.yahoo.com/horrors-trench-warfare-captured-viral-194154517.html)
 <!-- feed end -->
