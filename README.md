@@ -55,10 +55,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 19 - [Russia claims to have remotely detonated tank laden with explosives, in apparent new tactic](https://news.yahoo.com/russia-claims-remotely-detonated-tank-103817507.html)
+- Jun 19 - [John Durham to testify on Capitol Hill after scathing report](https://news.yahoo.com/john-durham-testify-capitol-hill-100000434.html)
 - Jun 19 - [Deputy commander and entire battalion of Russian troops 
 from South Ossetia killed in south Ukraine](https://news.yahoo.com/deputy-commander-entire-battalion-russian-095500918.html)
+- Jun 19 - [‘A very attractive hazard’: Melatonin, THC, CBD gummies are far from harmless](https://news.yahoo.com/very-attractive-hazard-melatonin-thc-092200379.html)
 - Jun 19 - [Emotional Mom Shares Her Son's Last Words And People Blame Her — 'He Was Weak'](https://news.yahoo.com/emotional-mom-shares-her-sons-061500848.html)
-- Jun 19 - [Pranksters Expose The ‘Too Stupid’ Argument Now Used By Trump Supporters](https://news.yahoo.com/pranksters-expose-too-stupid-argument-055231322.html)
-- Jun 19 - [A 6-year-old boy in Texas has died from a lightning strike weeks after his father was killed in the same incident](https://news.yahoo.com/6-old-boy-texas-died-052424299.html)
-- Jun 19 - [More than 1 million dropped from Medicaid as states start post-pandemic purge of rolls](https://news.yahoo.com/more-1-million-dropped-medicaid-040239446.html)
 <!-- feed end -->
