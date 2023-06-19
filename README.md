@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Man sentenced to 26 years for 2020 sexual assault, murder of Milwaukee woman in public park](https://news.yahoo.com/man-sentenced-26-years-2020-213915109.html)
 - Jun 19 - [Titanic tourist submersible goes missing with search under way](https://news.yahoo.com/titanic-tourist-sub-goes-missing-141944635.html)
-- Jun 19 - [Cairo construction threatens historic cemeteries](https://news.yahoo.com/cairo-construction-threatens-historic-cemeteries-205952330.html)
+- Jun 19 - [UPDATE 1-Ukraine says 'biggest blow' in offensive is yet to come](https://finance.yahoo.com/news/1-ukraine-says-biggest-blow-221011229.html)
 - Jun 19 - [Tropical Storm Bret forms in Atlantic, is expected to intensify into a hurricane](https://news.yahoo.com/tropical-depression-three-forms-atlantic-151148919.html)
-- Jun 19 - [Bear Breaks Into Colorado Home, Eats Pork Chops, and Leaves](https://news.yahoo.com/bear-breaks-colorado-home-eats-205810498.html)
+- Jun 19 - [Man sentenced to 26 years for 2020 sexual assault, murder of Milwaukee woman in public park](https://news.yahoo.com/man-sentenced-26-years-2020-213915109.html)
+- Jun 19 - [Donald Trump Talks Ballot-Stuffing With Fox News’ Bret Baier, Who Then Says, “You Lost The 2020 Election”](https://www.yahoo.com/entertainment/donald-trump-tells-fox-news-212844731.html)
 <!-- feed end -->
