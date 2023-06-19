@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 19 - [Kremlin critic Navalny defends himself in court](https://news.yahoo.com/kremlin-critic-navalny-defends-himself-141919777.html)
+- Jun 19 - [A 16-year-old pocketed $50,000 for her award-winning discovery in the brains of people who died by suicide](https://news.yahoo.com/16-old-pocketed-50-000-135300578.html)
 - Jun 19 - [US judge orders Trump lawyers not to release evidence in documents probe](https://news.yahoo.com/us-judge-orders-trump-lawyers-130016567.html)
-- Jun 19 - [The US Air Force is finally retiring the aging A-10. Now it plans to get rid of some the specially trained airmen who guide the Warthog to its targets.](https://news.yahoo.com/us-air-force-finally-retiring-121700734.html)
 - Jun 19 - [Doctor kills himself after taking antibiotic with ‘rare link’ to suicide](https://news.yahoo.com/ciprofloxacin-warning-doctor-no-history-120103844.html)
-- Jun 19 - [Over 13,000 hotels are adding an incredible new feature for their guests: ‘[We] can’t wait for what’s next’](https://news.yahoo.com/over-13-000-hotels-adding-113000341.html)
-- Jun 19 - [Russian spy chief flags 'suspicious' Ukrainian nuclear activity](https://news.yahoo.com/russian-spy-chief-flags-suspicious-104639455.html)
+- Jun 19 - [5 young women preparing for friend's wedding killed in car crash](https://news.yahoo.com/5-young-women-preparing-friends-114952057.html)
 <!-- feed end -->
