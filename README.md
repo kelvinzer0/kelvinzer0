@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Conservatives compare Hunter Biden plea deal to Wesley Snipes jail time for tax evasion. Here's why](https://news.yahoo.com/conservatives-compare-hunter-biden-plea-194213344.html)
+- Jun 20 - [Man with hit-and-run history jailed after high-speed crash kills five young women in Minneapolis](https://news.yahoo.com/man-hit-run-history-jailed-190654492.html)
+- Jun 20 - [Team Trump Suspects His Former Chief of Staff Is a ‘Rat’](https://news.yahoo.com/team-trump-suspects-former-chief-183753667.html)
+- Jun 20 - [A woman said she bought a stylish set of chairs for $100 from a Facebook Marketplace seller but discovered they were likely stolen from McDonald's](https://www.yahoo.com/entertainment/woman-said-she-bought-stylish-182230752.html)
 - Jun 20 - [Did Hunter Biden Get a Better Deal Than the Average Person Would Get?](https://news.yahoo.com/did-hunter-biden-better-deal-181832563.html)
-- Jun 20 - [Florida official who criticized DeSantis reaches settlement with education department](https://news.yahoo.com/florida-official-criticized-desantis-reaches-174008675.html)
-- Jun 20 - [Blinken declares US 'does not support Taiwan independence' during China trip](https://news.yahoo.com/blinken-declares-us-does-not-173627449.html)
-- Jun 20 - [A man poured soda on a traveler who he said kept sticking her 'smelly feet' under his airplane seat](https://www.yahoo.com/entertainment/man-poured-soda-traveler-said-171730542.html)
-- Jun 20 - [Bash calls reaction from Hunter Biden legal team ‘striking’](https://news.yahoo.com/bash-calls-reaction-hunter-biden-171730812.html)
 <!-- feed end -->
