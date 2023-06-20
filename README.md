@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Fox News Analyst Has Damning Description For Trump's Disastrous Interview](https://news.yahoo.com/fox-news-analyst-damning-description-052630022.html)
 - Jun 20 - [Disciplinary hearing against Trump attorney John Eastman begins in California](https://news.yahoo.com/disciplinary-hearing-against-trump-attorney-040952066.html)
 - Jun 20 - [Tropical Storm Bret forms in Atlantic, is expected to intensify into a hurricane](https://news.yahoo.com/tropical-depression-three-forms-atlantic-151148919.html)
 - Jun 20 - [Teacher Was Fired From Private School After Questioning Her Salary — Her Boss Said That God Told Him She Was Not Passionate About Her Job](https://news.yahoo.com/teacher-fired-private-school-questioning-031500134.html)
 - Jun 20 - [Lawrence: Trump incriminated himself on Fox tonight](https://news.yahoo.com/lawrence-trump-incriminated-himself-fox-031242955.html)
-- Jun 20 - [Texas Sen. Angela Paxton says she will 'carry out my duties' in husband's impeachment trial](https://news.yahoo.com/texas-sen-angela-paxton-says-031228479.html)
 <!-- feed end -->
