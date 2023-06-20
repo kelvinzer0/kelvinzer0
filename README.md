@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Titanic tourist submersible goes missing with search under way](https://news.yahoo.com/titanic-tourist-sub-goes-missing-141944635.html)
-- Jun 20 - [Tornado touches down in the Florida panhandle: media](https://news.yahoo.com/tornado-touches-down-florida-panhandle-013148024.html)
+- Jun 20 - [Titanic Diver Says Friends on Missing Sub May Be Doomed](https://www.yahoo.com/entertainment/titanic-diver-says-friends-missing-024335194.html)
+- Jun 20 - [Biden says threat of Putin using tactical nuclear weapons is 'real'](https://finance.yahoo.com/news/biden-says-threat-putin-using-021402809.html)
 - Jun 20 - [Donald Trump, who claimed to only hire the best people, was thoroughly asked why so many key players of his administration do not want him to be president again.](https://news.yahoo.com/donald-trump-claimed-only-hire-010302959.html)
 - Jun 20 - [Meet the typical Japanese millennial: Victims of the country's 'Lost Decade,' they are trapped in dead-end jobs and are adamant about never having kids](https://news.yahoo.com/meet-typical-japanese-millennial-victims-004500365.html)
 - Jun 20 - [Ukraine troops seen killing Russian soldiers in trenches during counteroffensive](https://news.yahoo.com/ukraine-troops-seen-killing-russian-004110368.html)
