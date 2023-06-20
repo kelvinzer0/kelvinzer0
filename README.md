@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Chinese student says she was sexually assaulted by butler at Ritz-Carlton hotel in Maldives, forced to leave without apology](https://news.yahoo.com/chinese-student-says-she-sexually-212807986.html)
 - Jun 20 - [I'm An Incredibly Dumb Man So My Brain Was Completely Blown After Seeing These 22 Absolutely Fascinating Pictures For The Very First Time Last Week](https://www.yahoo.com/lifestyle/im-incredibly-dumb-man-brain-203145675.html)
-- Jun 20 - [Modi arrives in New York for four-day state visit](https://news.yahoo.com/modi-arrives-york-four-day-202506684.html)
-- Jun 20 - [Conservatives compare Hunter Biden plea deal to Wesley Snipes jail time for tax evasion. Here's why](https://news.yahoo.com/conservatives-compare-hunter-biden-plea-194213344.html)
-- Jun 20 - [Man with hit-and-run history jailed after high-speed crash kills five young women in Minneapolis](https://news.yahoo.com/man-hit-run-history-jailed-190654492.html)
+- Jun 20 - [Trump's penchant for talking could pose problems as Mar-a-Lago criminal case moves ahead](https://news.yahoo.com/trumps-penchant-talking-could-pose-195927573.html)
+- Jun 20 - [Man with hit-and-run history jailed after crash kills 5 young women in Minneapolis](https://news.yahoo.com/man-hit-run-history-jailed-190654492.html)
 - Jun 20 - [Video shows man open fire after he was escorted out of a Gwinnett restaurant for groping woman](https://news.yahoo.com/video-shows-man-open-fire-190637470.html)
 <!-- feed end -->
