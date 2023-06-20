@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Flying taxis star at Paris Air Show, next stop: the Olympics](https://news.yahoo.com/flying-taxis-star-paris-air-154649628.html)
-- Jun 20 - [Guest Arrested At Disneyland Causing Popular Ride To Shut Down](https://www.yahoo.com/entertainment/guest-arrested-disneyland-causing-popular-152527248.html)
-- Jun 20 - [Donald Trump Is Now Claiming He's the One Who Axed Professional Relationship With Ivanka & Jared Kushner](https://www.yahoo.com/entertainment/donald-trump-now-claiming-hes-144000191.html)
-- Jun 20 - ['Just Confessed': Viewers React To Donald Trump's 'Incoherent' Fox News Interview](https://news.yahoo.com/just-confessed-viewers-react-donald-143213637.html)
-- Jun 20 - [Video: Man causes scene, demands refund from Chinese restaurant after seeing Buddha statue](https://news.yahoo.com/video-man-causes-scene-demands-142835369.html)
+- Jun 20 - [Warren police officer charged with assaulting arrested suspect](https://news.yahoo.com/warren-police-officer-charged-assaulting-163120220.html)
+- Jun 20 - [Alligator ‘smiles and waves’ for the camera in ‘shot of a lifetime.’ See the photo](https://news.yahoo.com/alligator-smiles-waves-camera-shot-161936095.html)
+- Jun 20 - [A restaurant must pay workers $140,000 after allegedly hiring a fake priest to extract confessions of workers’ ‘sins’](https://finance.yahoo.com/news/restaurant-must-pay-workers-140-155511249.html)
+- Jun 20 - [India clears $2.7 billion Micron chip testing plant ahead of Modi U.S. visit -source](https://finance.yahoo.com/news/india-clears-2-7-billion-153737932.html)
+- Jun 20 - [3 scenarios probably cover what happened to the Titanic submersible, experts say. Only 1 has much chance of survival.](https://news.yahoo.com/3-scenarios-probably-cover-happened-152707232.html)
 <!-- feed end -->
