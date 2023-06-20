@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Michigan officer charged after video shows him punching man](https://news.yahoo.com/michigan-officer-charged-video-shows-220934166.html)
+- Jun 20 - [Hospital turns over transgender patient records to Tennessee attorney general in investigation](https://news.yahoo.com/hospital-turns-over-transgender-patient-220632250.html)
+- Jun 20 - [Tornadoes clobber Mississippi. Hours later, its governor attends Republican fundraiser in Alabama](https://news.yahoo.com/tornadoes-clobber-mississippi-hours-later-215843575.html)
+- Jun 20 - [Tiny critter — close to extinction — spotted for first time in decades, CA officials say](https://news.yahoo.com/tiny-critter-close-extinction-spotted-215350216.html)
 - Jun 20 - [Chinese student says she was sexually assaulted by butler at Ritz-Carlton hotel in Maldives, forced to leave without apology](https://news.yahoo.com/chinese-student-says-she-sexually-212807986.html)
-- Jun 20 - [I'm An Incredibly Dumb Man So My Brain Was Completely Blown After Seeing These 22 Absolutely Fascinating Pictures For The Very First Time Last Week](https://www.yahoo.com/lifestyle/im-incredibly-dumb-man-brain-203145675.html)
-- Jun 20 - [Trump's penchant for talking could pose problems as Mar-a-Lago criminal case moves ahead](https://news.yahoo.com/trumps-penchant-talking-could-pose-195927573.html)
-- Jun 20 - [Man with hit-and-run history jailed after crash kills 5 young women in Minneapolis](https://news.yahoo.com/man-hit-run-history-jailed-190654492.html)
-- Jun 20 - [Video shows man open fire after he was escorted out of a Gwinnett restaurant for groping woman](https://news.yahoo.com/video-shows-man-open-fire-190637470.html)
 <!-- feed end -->
