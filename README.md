@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Biden's son Hunter Biden agrees to plead guilty on three federal charges -document](https://news.yahoo.com/bidens-son-hunter-biden-agrees-133307003.html)
+- Jun 20 - [Hunter Biden charged with failing to pay federal income tax and illegally having a weapon](https://news.yahoo.com/hunter-biden-charged-failing-pay-133201200.html)
+- Jun 20 - [Aaron Rodgers, despite having many millions in the bank, will pass the hat to fund online sports venture](https://sports.yahoo.com/aaron-rodgers-despite-having-many-130049439.html)
+- Jun 20 - [U.S. judge sets Aug. 14 trial date for Trump in Florida documents case](https://news.yahoo.com/u-judge-sets-aug-14-125040446.html)
 - Jun 20 - [Judge Cannon Just Set an Incredible Trump Trial Date](https://news.yahoo.com/judge-cannon-just-set-incredible-124741081.html)
-- Jun 20 - [Ukrainian troops fight near Bakhmut: military video](https://news.yahoo.com/ukrainian-troops-fight-near-bakhmut-122139575.html)
-- Jun 20 - [Fidelity legend Peter Lynch: 'I never said to invest in the stock market'](https://finance.yahoo.com/news/fidelity-legend-peter-lynch-i-never-said-to-invest-in-the-stock-market-120755736.html)
-- Jun 20 - [Suspect Allegedly Said He Threw Phone At Bebe Rexha For Troubling Reason](https://news.yahoo.com/suspect-allegedly-said-threw-phone-113010543.html)
-- Jun 20 - [UPDATE 1-Russia warns Ukraine against striking Crimea with U.S., British missiles](https://finance.yahoo.com/news/1-russia-warns-ukraine-against-110204257.html)
 <!-- feed end -->
