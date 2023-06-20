@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 20 - [Titanic tourist submersible goes missing with search under way](https://news.yahoo.com/titanic-tourist-sub-goes-missing-141944635.html)
-- Jun 19 - [Ukrainian artillerymen praise US howitzers outside Russian-held town](https://news.yahoo.com/ukrainian-artillerymen-praise-us-howitzers-234542442.html)
-- Jun 19 - [Tropical Storm Bret forms in Atlantic, is expected to intensify into a hurricane](https://news.yahoo.com/tropical-depression-three-forms-atlantic-151148919.html)
-- Jun 19 - [Man sentenced to 26 years for 2020 sexual assault, murder of Milwaukee woman in public park](https://news.yahoo.com/man-sentenced-26-years-2020-213915109.html)
-- Jun 19 - [Donald Trump Talks Ballot-Stuffing With Fox News’ Bret Baier, Who Then Says, “You Lost The 2020 Election”](https://www.yahoo.com/entertainment/donald-trump-tells-fox-news-212844731.html)
+- Jun 20 - [Tornado touches down in the Florida panhandle: media](https://news.yahoo.com/tornado-touches-down-florida-panhandle-013148024.html)
+- Jun 20 - [Donald Trump, who claimed to only hire the best people, was thoroughly asked why so many key players of his administration do not want him to be president again.](https://news.yahoo.com/donald-trump-claimed-only-hire-010302959.html)
+- Jun 20 - [Meet the typical Japanese millennial: Victims of the country's 'Lost Decade,' they are trapped in dead-end jobs and are adamant about never having kids](https://news.yahoo.com/meet-typical-japanese-millennial-victims-004500365.html)
+- Jun 20 - [Ukraine troops seen killing Russian soldiers in trenches during counteroffensive](https://news.yahoo.com/ukraine-troops-seen-killing-russian-004110368.html)
 <!-- feed end -->
