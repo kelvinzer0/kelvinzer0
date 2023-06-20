@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Warren police officer charged with assaulting arrested suspect](https://news.yahoo.com/warren-police-officer-charged-assaulting-163120220.html)
-- Jun 20 - [Alligator ‘smiles and waves’ for the camera in ‘shot of a lifetime.’ See the photo](https://news.yahoo.com/alligator-smiles-waves-camera-shot-161936095.html)
-- Jun 20 - [A restaurant must pay workers $140,000 after allegedly hiring a fake priest to extract confessions of workers’ ‘sins’](https://finance.yahoo.com/news/restaurant-must-pay-workers-140-155511249.html)
-- Jun 20 - [India clears $2.7 billion Micron chip testing plant ahead of Modi U.S. visit -source](https://finance.yahoo.com/news/india-clears-2-7-billion-153737932.html)
-- Jun 20 - [3 scenarios probably cover what happened to the Titanic submersible, experts say. Only 1 has much chance of survival.](https://news.yahoo.com/3-scenarios-probably-cover-happened-152707232.html)
+- Jun 20 - [Florida official who criticized DeSantis reaches settlement with education department](https://news.yahoo.com/florida-official-criticized-desantis-reaches-174008675.html)
+- Jun 20 - [Mexico asks Israel for second time to extradite ex-official accused of torture](https://news.yahoo.com/mexico-asks-israel-second-time-173437600.html)
+- Jun 20 - [A man offered a 13-year-old girl a ride, then trafficked her for 3 months at a metro Atlanta home](https://news.yahoo.com/man-offered-13-old-girl-171635131.html)
+- Jun 20 - [MAGA Melts Down Over Hunter’s Plea Deal: We’re ‘Controlled by COMMUNISTS!’](https://www.yahoo.com/entertainment/maga-melts-down-over-hunter-171621460.html)
+- Jun 20 - [2-year-old strapped to booster seat for 15 hours dies, Florida cops say. Mom charged](https://news.yahoo.com/2-old-strapped-booster-seat-171405998.html)
 <!-- feed end -->
