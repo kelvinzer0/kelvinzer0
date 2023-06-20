@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Judge Cannon Just Set an Incredible Trump Trial Date](https://news.yahoo.com/judge-cannon-just-set-incredible-124741081.html)
+- Jun 20 - [Ukrainian troops fight near Bakhmut: military video](https://news.yahoo.com/ukrainian-troops-fight-near-bakhmut-122139575.html)
+- Jun 20 - [Fidelity legend Peter Lynch: 'I never said to invest in the stock market'](https://finance.yahoo.com/news/fidelity-legend-peter-lynch-i-never-said-to-invest-in-the-stock-market-120755736.html)
 - Jun 20 - [Suspect Allegedly Said He Threw Phone At Bebe Rexha For Troubling Reason](https://news.yahoo.com/suspect-allegedly-said-threw-phone-113010543.html)
 - Jun 20 - [UPDATE 1-Russia warns Ukraine against striking Crimea with U.S., British missiles](https://finance.yahoo.com/news/1-russia-warns-ukraine-against-110204257.html)
-- Jun 20 - ['Boomers can't conceptualize': This college student on TikTok says older generations don't know about inflation, never had to fight for jobs — and the comments are in full support](https://finance.yahoo.com/news/boomers-cant-conceptualize-college-student-120000468.html)
-- Jun 20 - [Democrats fed up with Tuberville want to change Senate rules](https://news.yahoo.com/democrats-fed-tuberville-want-change-100000878.html)
-- Jun 20 - [Retired Boise officer repeatedly raped his wife. He was one of 38 decertified last year](https://news.yahoo.com/retired-boise-officer-repeatedly-raped-100000454.html)
 <!-- feed end -->
