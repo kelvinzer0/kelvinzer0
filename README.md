@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Did Hunter Biden Get a Better Deal Than the Average Person Would Get?](https://news.yahoo.com/did-hunter-biden-better-deal-181832563.html)
 - Jun 20 - [Florida official who criticized DeSantis reaches settlement with education department](https://news.yahoo.com/florida-official-criticized-desantis-reaches-174008675.html)
-- Jun 20 - [Mexico asks Israel for second time to extradite ex-official accused of torture](https://news.yahoo.com/mexico-asks-israel-second-time-173437600.html)
-- Jun 20 - [A man offered a 13-year-old girl a ride, then trafficked her for 3 months at a metro Atlanta home](https://news.yahoo.com/man-offered-13-old-girl-171635131.html)
-- Jun 20 - [MAGA Melts Down Over Hunter’s Plea Deal: We’re ‘Controlled by COMMUNISTS!’](https://www.yahoo.com/entertainment/maga-melts-down-over-hunter-171621460.html)
-- Jun 20 - [2-year-old strapped to booster seat for 15 hours dies, Florida cops say. Mom charged](https://news.yahoo.com/2-old-strapped-booster-seat-171405998.html)
+- Jun 20 - [Blinken declares US 'does not support Taiwan independence' during China trip](https://news.yahoo.com/blinken-declares-us-does-not-173627449.html)
+- Jun 20 - [A man poured soda on a traveler who he said kept sticking her 'smelly feet' under his airplane seat](https://www.yahoo.com/entertainment/man-poured-soda-traveler-said-171730542.html)
+- Jun 20 - [Bash calls reaction from Hunter Biden legal team ‘striking’](https://news.yahoo.com/bash-calls-reaction-hunter-biden-171730812.html)
 <!-- feed end -->
