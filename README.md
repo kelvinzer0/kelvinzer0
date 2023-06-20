@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Titanic tourist submersible goes missing with search under way](https://news.yahoo.com/titanic-tourist-sub-goes-missing-141944635.html)
-- Jun 19 - [UPDATE 1-Ukraine says 'biggest blow' in offensive is yet to come](https://finance.yahoo.com/news/1-ukraine-says-biggest-blow-221011229.html)
+- Jun 20 - [Titanic tourist submersible goes missing with search under way](https://news.yahoo.com/titanic-tourist-sub-goes-missing-141944635.html)
+- Jun 19 - [Ukrainian artillerymen praise US howitzers outside Russian-held town](https://news.yahoo.com/ukrainian-artillerymen-praise-us-howitzers-234542442.html)
 - Jun 19 - [Tropical Storm Bret forms in Atlantic, is expected to intensify into a hurricane](https://news.yahoo.com/tropical-depression-three-forms-atlantic-151148919.html)
 - Jun 19 - [Man sentenced to 26 years for 2020 sexual assault, murder of Milwaukee woman in public park](https://news.yahoo.com/man-sentenced-26-years-2020-213915109.html)
 - Jun 19 - [Donald Trump Talks Ballot-Stuffing With Fox News’ Bret Baier, Who Then Says, “You Lost The 2020 Election”](https://www.yahoo.com/entertainment/donald-trump-tells-fox-news-212844731.html)
