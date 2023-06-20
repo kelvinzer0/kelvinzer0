@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Inside cramped Titan submersible missing during voyage to Titanic shipwreck](https://news.yahoo.com/inside-cramped-titan-submersible-missing-titanic-shipwreck-103255144.html)
+- Jun 20 - ['Boomers can't conceptualize': This college student on TikTok says older generations don't know about inflation, never had to fight for jobs — and the comments are in full support](https://finance.yahoo.com/news/boomers-cant-conceptualize-college-student-120000468.html)
+- Jun 20 - [Dear fellow conservatives: Please stop complaining about Hillary Clinton](https://news.yahoo.com/dear-fellow-conservatives-please-stop-090847480.html)
 - Jun 20 - [British rescue mission for Titan ‘blocked by US officials’](https://news.yahoo.com/british-rescue-mission-blocked-us-085743977.html)
-- Jun 20 - [The people lost in the missing Titan submersible are dead-bolted in with at least 17 bolts and have no way out unless they're found](https://news.yahoo.com/people-lost-missing-titan-submersible-081031782.html)
-- Jun 20 - [Fox News Analyst Has Damning Description For Trump's Disastrous Interview](https://news.yahoo.com/fox-news-analyst-damning-description-052630022.html)
-- Jun 20 - [Disciplinary hearing against Trump attorney John Eastman begins in California](https://news.yahoo.com/disciplinary-hearing-against-trump-attorney-040952066.html)
-- Jun 20 - [Tropical Storm Bret forms in Atlantic, is expected to intensify into a hurricane](https://news.yahoo.com/tropical-depression-three-forms-atlantic-151148919.html)
+- Jun 20 - [Ukrainians Under Siege Are Turning to OnlyFans](https://news.yahoo.com/ukrainians-under-siege-turning-onlyfans-083141772.html)
 <!-- feed end -->
