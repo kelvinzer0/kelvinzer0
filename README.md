@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [PayPal-KKR deal, Alibaba shares fall, Eli Lilly-Dice Therapeutics deal: Trending tickers](https://finance.yahoo.com/video/paypal-kkr-deal-alibaba-shares-150411977.html)
-- Jun 20 - [15 Screenshots Of Absurd Job Applications That Have So Many Red Flags, I Lost Count](https://www.yahoo.com/lifestyle/15-screenshots-absurd-job-applications-144602935.html)
+- Jun 20 - [Flying taxis star at Paris Air Show, next stop: the Olympics](https://news.yahoo.com/flying-taxis-star-paris-air-154649628.html)
+- Jun 20 - [Guest Arrested At Disneyland Causing Popular Ride To Shut Down](https://www.yahoo.com/entertainment/guest-arrested-disneyland-causing-popular-152527248.html)
 - Jun 20 - [Donald Trump Is Now Claiming He's the One Who Axed Professional Relationship With Ivanka & Jared Kushner](https://www.yahoo.com/entertainment/donald-trump-now-claiming-hes-144000191.html)
 - Jun 20 - ['Just Confessed': Viewers React To Donald Trump's 'Incoherent' Fox News Interview](https://news.yahoo.com/just-confessed-viewers-react-donald-143213637.html)
-- Jun 20 - [Ukrainian military destroys Russian infantry group in Kreminna – video](https://news.yahoo.com/ukrainian-military-destroys-russian-infantry-135400310.html)
+- Jun 20 - [Video: Man causes scene, demands refund from Chinese restaurant after seeing Buddha statue](https://news.yahoo.com/video-man-causes-scene-demands-142835369.html)
 <!-- feed end -->
