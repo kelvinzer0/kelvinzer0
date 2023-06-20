@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Texas Sen. Angela Paxton says she will 'carry out my duties' in husband's impeachment trial](https://news.yahoo.com/texas-sen-angela-paxton-says-031228479.html)
+- Jun 20 - [Josh Hawley Gets Holy Hell After Juneteenth Claim About Christianity And Slavery](https://news.yahoo.com/josh-hawley-gets-holy-hell-030629238.html)
 - Jun 20 - [Titanic Diver Says Friends on Missing Sub May Be Doomed](https://www.yahoo.com/entertainment/titanic-diver-says-friends-missing-024335194.html)
 - Jun 20 - [Biden says threat of Putin using tactical nuclear weapons is 'real'](https://finance.yahoo.com/news/biden-says-threat-putin-using-021402809.html)
-- Jun 20 - [Donald Trump, who claimed to only hire the best people, was thoroughly asked why so many key players of his administration do not want him to be president again.](https://news.yahoo.com/donald-trump-claimed-only-hire-010302959.html)
 - Jun 20 - [Meet the typical Japanese millennial: Victims of the country's 'Lost Decade,' they are trapped in dead-end jobs and are adamant about never having kids](https://news.yahoo.com/meet-typical-japanese-millennial-victims-004500365.html)
-- Jun 20 - [Ukraine troops seen killing Russian soldiers in trenches during counteroffensive](https://news.yahoo.com/ukraine-troops-seen-killing-russian-004110368.html)
 <!-- feed end -->
