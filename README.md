@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Disciplinary hearing against Trump attorney John Eastman begins in California](https://news.yahoo.com/disciplinary-hearing-against-trump-attorney-040952066.html)
+- Jun 20 - [Tropical Storm Bret forms in Atlantic, is expected to intensify into a hurricane](https://news.yahoo.com/tropical-depression-three-forms-atlantic-151148919.html)
+- Jun 20 - [Teacher Was Fired From Private School After Questioning Her Salary — Her Boss Said That God Told Him She Was Not Passionate About Her Job](https://news.yahoo.com/teacher-fired-private-school-questioning-031500134.html)
+- Jun 20 - [Lawrence: Trump incriminated himself on Fox tonight](https://news.yahoo.com/lawrence-trump-incriminated-himself-fox-031242955.html)
 - Jun 20 - [Texas Sen. Angela Paxton says she will 'carry out my duties' in husband's impeachment trial](https://news.yahoo.com/texas-sen-angela-paxton-says-031228479.html)
-- Jun 20 - [Josh Hawley Gets Holy Hell After Juneteenth Claim About Christianity And Slavery](https://news.yahoo.com/josh-hawley-gets-holy-hell-030629238.html)
-- Jun 20 - [Titanic Diver Says Friends on Missing Sub May Be Doomed](https://www.yahoo.com/entertainment/titanic-diver-says-friends-missing-024335194.html)
-- Jun 20 - [Biden says threat of Putin using tactical nuclear weapons is 'real'](https://finance.yahoo.com/news/biden-says-threat-putin-using-021402809.html)
-- Jun 20 - [Meet the typical Japanese millennial: Victims of the country's 'Lost Decade,' they are trapped in dead-end jobs and are adamant about never having kids](https://news.yahoo.com/meet-typical-japanese-millennial-victims-004500365.html)
 <!-- feed end -->
