@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Biden's son Hunter Biden agrees to plead guilty on three federal charges -document](https://news.yahoo.com/bidens-son-hunter-biden-agrees-133307003.html)
-- Jun 20 - [Hunter Biden charged with failing to pay federal income tax and illegally having a weapon](https://news.yahoo.com/hunter-biden-charged-failing-pay-133201200.html)
-- Jun 20 - [Aaron Rodgers, despite having many millions in the bank, will pass the hat to fund online sports venture](https://sports.yahoo.com/aaron-rodgers-despite-having-many-130049439.html)
-- Jun 20 - [U.S. judge sets Aug. 14 trial date for Trump in Florida documents case](https://news.yahoo.com/u-judge-sets-aug-14-125040446.html)
-- Jun 20 - [Judge Cannon Just Set an Incredible Trump Trial Date](https://news.yahoo.com/judge-cannon-just-set-incredible-124741081.html)
+- Jun 20 - [PayPal-KKR deal, Alibaba shares fall, Eli Lilly-Dice Therapeutics deal: Trending tickers](https://finance.yahoo.com/video/paypal-kkr-deal-alibaba-shares-150411977.html)
+- Jun 20 - [15 Screenshots Of Absurd Job Applications That Have So Many Red Flags, I Lost Count](https://www.yahoo.com/lifestyle/15-screenshots-absurd-job-applications-144602935.html)
+- Jun 20 - [Donald Trump Is Now Claiming He's the One Who Axed Professional Relationship With Ivanka & Jared Kushner](https://www.yahoo.com/entertainment/donald-trump-now-claiming-hes-144000191.html)
+- Jun 20 - ['Just Confessed': Viewers React To Donald Trump's 'Incoherent' Fox News Interview](https://news.yahoo.com/just-confessed-viewers-react-donald-143213637.html)
+- Jun 20 - [Ukrainian military destroys Russian infantry group in Kreminna – video](https://news.yahoo.com/ukrainian-military-destroys-russian-infantry-135400310.html)
 <!-- feed end -->
