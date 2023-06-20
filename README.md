@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Jun 20 - [Fox News Analyst Has Damning Description For Trump's Disastrous Interview](https://news.yahoo.com/fox-news-analyst-damning-description-052630022.html)
 - Jun 20 - [Disciplinary hearing against Trump attorney John Eastman begins in California](https://news.yahoo.com/disciplinary-hearing-against-trump-attorney-040952066.html)
 - Jun 20 - [Tropical Storm Bret forms in Atlantic, is expected to intensify into a hurricane](https://news.yahoo.com/tropical-depression-three-forms-atlantic-151148919.html)
+- Jun 20 - [Modi says criticism of India's stance on Russia not widespread in US - WSJ](https://finance.yahoo.com/news/indias-modi-says-unprecedented-trust-033052769.html)
 - Jun 20 - [Russia attacks Ukrainian cities in overnight air strikes](https://news.yahoo.com/russia-launches-overnight-air-attack-032905677.html)
-- Jun 20 - [Teacher Was Fired From Private School After Questioning Her Salary — Her Boss Said That God Told Him She Was Not Passionate About Her Job](https://news.yahoo.com/teacher-fired-private-school-questioning-031500134.html)
 <!-- feed end -->
