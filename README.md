@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Titanic sub missing - LIVE: OceanGate boss ‘was warned of potential catastrophe’ six years ago](https://news.yahoo.com/titanic-sub-missing-live-update-oceangate-hamish-harding-latest-111959800.html)
+- Jun 21 - [Campus assault suspect eludes arrest for 2 years, after "So I raped you" Facebook message](https://news.yahoo.com/campus-assault-suspect-eludes-arrest-131225985.html)
+- Jun 21 - [Woman Says She Was Saved After A Car Crash By A Person Who Wasn't Really There, And She's Not The Only One](https://news.yahoo.com/woman-says-she-saved-car-121500046.html)
+- Jun 21 - [Donald Trump's Ex-Lawyer On Documents Case Has Pithy Advice For Trump](https://www.yahoo.com/entertainment/donald-trumps-ex-lawyer-documents-115834923.html)
+- Jun 21 - [Amazon to collect expiring 2,000-rupee notes from Indian customers](https://news.yahoo.com/amazon-lets-india-customers-deposit-111110144.html)
 - Jun 21 - [3 scenarios probably cover what happened to the Titanic submersible, experts say. Only one carries much chance of survival.](https://news.yahoo.com/3-scenarios-probably-cover-happened-152707232.html)
-- Jun 21 - [Jack Hanna's long goodbye: How Alzheimer's is stripping away the man the world once knew](https://news.yahoo.com/jack-hannas-long-goodbye-alzheimers-100110678.html)
-- Jun 21 - [India Is Not a U.S. Ally—and Has Never Wanted to Be](https://news.yahoo.com/india-not-u-ally-never-100003366.html)
-- Jun 21 - [Trump, Barr feud reaches fever pitch](https://news.yahoo.com/trump-barr-feud-reaches-fever-100000438.html)
 <!-- feed end -->
