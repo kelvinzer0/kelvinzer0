@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [3 scenarios probably cover what happened to the Titanic submersible, experts say. Only one carries much chance of survival.](https://news.yahoo.com/3-scenarios-probably-cover-happened-152707232.html)
+- Jun 21 - [Jack Hanna's long goodbye: How Alzheimer's is stripping away the man the world once knew](https://news.yahoo.com/jack-hannas-long-goodbye-alzheimers-100110678.html)
+- Jun 21 - [Job Recruiter Sparks Debate After Revealing That Candidates Who Send 'Thank You Emails' After Interview Make A Big Difference](https://news.yahoo.com/job-recruiter-sparks-debate-revealing-091500452.html)
+- Jun 21 - [Republican Group Taunts Trump With His Own Damning Words In Fox News Ad](https://news.yahoo.com/republican-group-taunts-trump-own-090444050.html)
 - Jun 21 - [Nicolle Wallace Sums Up Trump's Latest Excuse In 2 Scathing Words](https://news.yahoo.com/nicolle-wallace-sums-trumps-latest-080634351.html)
-- Jun 21 - ['Uhhhh': Trump Gets Flustered When Confronted On His Death Penalty Proposal](https://news.yahoo.com/uhhhh-trump-gets-flustered-confronted-050105554.html)
-- Jun 21 - [Gang behind slaughter of 41 women at Honduran prison, officials say](https://news.yahoo.com/gang-behind-slaughter-41-women-045906397.html)
-- Jun 21 - [Once starved by war, millions of Ethiopians go hungry again as US, UN pause aid after massive theft](https://news.yahoo.com/once-starved-war-millions-ethiopians-040847348.html)
-- Jun 21 - [Trump called out Alyssa Farah Griffin on Fox. Hear how she responded](https://news.yahoo.com/trump-called-alyssa-farah-griffin-013937704.html)
 <!-- feed end -->
