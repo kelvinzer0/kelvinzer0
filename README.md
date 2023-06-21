@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Trump Thinks He Did a Great Job in ‘Disaster’ News Fox Interview](https://news.yahoo.com/trump-thinks-did-great-job-233952029.html)
+- Jun 21 - [Watch F-35 'Headbutt' Private Plane During Low-Level Intercept Over Marin](https://news.yahoo.com/watch-f-35-headbutt-private-011833953.html)
+- Jun 20 - [Haberman shares two reasons why Trump has trouble keeping lawyers](https://news.yahoo.com/haberman-shares-two-reasons-why-235052634.html)
+- Jun 20 - [Trump calls for death penalty for drug dealers; Fox’s Baier notes it would apply to woman he championed](https://news.yahoo.com/trump-calls-death-penalty-drug-230609575.html)
+- Jun 20 - [Ukrainian MiG-29 Fighter Appears With Mystery Weapon Pylons](https://news.yahoo.com/ukrainian-mig-29-fighter-appears-230357033.html)
 - Jun 20 - [Hospital turns over transgender patient records to Tennessee attorney general in investigation](https://news.yahoo.com/hospital-turns-over-transgender-patient-220632250.html)
-- Jun 20 - [Tornadoes clobber Mississippi. Hours later, its governor attends Republican fundraiser in Alabama](https://news.yahoo.com/tornadoes-clobber-mississippi-hours-later-215843575.html)
-- Jun 20 - [Tiny critter — close to extinction — spotted for first time in decades, CA officials say](https://news.yahoo.com/tiny-critter-close-extinction-spotted-215350216.html)
-- Jun 20 - [Ex-CNN producer sentenced to more than 19 years for luring 9-year-old into sex acts](https://www.yahoo.com/entertainment/ex-cnn-producer-sentenced-more-214328761.html)
 <!-- feed end -->
