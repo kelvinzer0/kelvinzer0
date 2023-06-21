@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Titanic sub missing - LIVE: US Coast Guard to give update on search for OceanGate submersible](https://news.yahoo.com/titanic-sub-missing-live-update-oceangate-coastguard-press-conference-latest-163931255.html)
+- Jun 21 - [Titanic sub missing - LIVE: US Coast Guard ‘hopeful’ after more noises detected](https://news.yahoo.com/titanic-sub-missing-live-us-coast-guard-hopeful-after-more-noises-detected-174152666.html)
+- Jun 21 - [A Florida mom went to take a shower — and she left her baby with an animal, cops say](https://news.yahoo.com/florida-mom-went-shower-she-172831761.html)
+- Jun 21 - [Man defies warning not to swim in Gulf of Mexico and gets arrested, Florida cops say](https://news.yahoo.com/man-defies-warning-not-swim-165509192.html)
 - Jun 21 - [Prosecutors Reveal Bombshell DNA Match in Kohberger Case](https://news.yahoo.com/prosecutors-reveal-bombshell-dna-match-161930757.html)
 - Jun 21 - [Scientists believe they've discovered a cure for baldness. It's hiding in your hairy moles — and can be injected like Botox.](https://www.yahoo.com/lifestyle/scientists-believe-theyve-discovered-cure-155000933.html)
-- Jun 21 - [Dem Rep. Jerry Nadler Tries to Embarrass John Durham](https://news.yahoo.com/dem-rep-jerry-nadler-tries-154615333.html)
-- Jun 21 - [People Are Revealing The Specific Mistakes That Ended Up Ruining Their Careers, And They're Wilder Than You'd Think](https://www.yahoo.com/lifestyle/people-revealing-specific-mistakes-ended-154602725.html)
 <!-- feed end -->
