@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Titanic sub missing - LIVE: Underwater noises heard in search in 'likely signs of life'](https://news.yahoo.com/titanic-sub-missing-live-update-hamish-harding-latest-055809760.html)
-- Jun 21 - [Missing Titanic sub latest: 'Banging' and 'underwater noises' detected in search area](https://news.yahoo.com/missing-titanic-sub-latest-just-231654173.html)
+- Jun 21 - [Missing Titan timeline: The key events in the disappearance of Titanic submersible](https://news.yahoo.com/missing-titan-timeline-titanic-submersible-150836219.html)
 - Jun 21 - ['Uhhhh': Trump Gets Flustered When Confronted On His Death Penalty Proposal](https://news.yahoo.com/uhhhh-trump-gets-flustered-confronted-050105554.html)
+- Jun 21 - [Gang behind slaughter of 41 women at Honduran prison, officials say](https://news.yahoo.com/gang-behind-slaughter-41-women-045906397.html)
 - Jun 21 - [Once starved by war, millions of Ethiopians go hungry again as US, UN pause aid after massive theft](https://news.yahoo.com/once-starved-war-millions-ethiopians-040847348.html)
 - Jun 21 - [Trump called out Alyssa Farah Griffin on Fox. Hear how she responded](https://news.yahoo.com/trump-called-alyssa-farah-griffin-013937704.html)
 <!-- feed end -->
