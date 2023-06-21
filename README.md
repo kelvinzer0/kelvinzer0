@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 21 - [3 scenarios probably cover what happened to the Titanic submersible, experts say. Only one carries much chance of survival.](https://news.yahoo.com/3-scenarios-probably-cover-happened-152707232.html)
 - Jun 21 - [Jack Hanna's long goodbye: How Alzheimer's is stripping away the man the world once knew](https://news.yahoo.com/jack-hannas-long-goodbye-alzheimers-100110678.html)
-- Jun 21 - [Job Recruiter Sparks Debate After Revealing That Candidates Who Send 'Thank You Emails' After Interview Make A Big Difference](https://news.yahoo.com/job-recruiter-sparks-debate-revealing-091500452.html)
+- Jun 21 - [India Is Not a U.S. Ally—and Has Never Wanted to Be](https://news.yahoo.com/india-not-u-ally-never-100003366.html)
+- Jun 21 - [Trump, Barr feud reaches fever pitch](https://news.yahoo.com/trump-barr-feud-reaches-fever-100000438.html)
 - Jun 21 - [Republican Group Taunts Trump With His Own Damning Words In Fox News Ad](https://news.yahoo.com/republican-group-taunts-trump-own-090444050.html)
-- Jun 21 - [Nicolle Wallace Sums Up Trump's Latest Excuse In 2 Scathing Words](https://news.yahoo.com/nicolle-wallace-sums-trumps-latest-080634351.html)
 <!-- feed end -->
