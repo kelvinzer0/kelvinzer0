@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Campus assault suspect eludes arrest for 2 years, after "So I raped you" Facebook message](https://news.yahoo.com/campus-assault-suspect-eludes-arrest-131225985.html)
-- Jun 21 - [Woman Says She Was Saved After A Car Crash By A Person Who Wasn't Really There, And She's Not The Only One](https://news.yahoo.com/woman-says-she-saved-car-121500046.html)
-- Jun 21 - [Donald Trump's Ex-Lawyer On Documents Case Has Pithy Advice For Trump](https://www.yahoo.com/entertainment/donald-trumps-ex-lawyer-documents-115834923.html)
-- Jun 21 - [Amazon to collect expiring 2,000-rupee notes from Indian customers](https://news.yahoo.com/amazon-lets-india-customers-deposit-111110144.html)
-- Jun 21 - [3 scenarios probably cover what happened to the Titanic submersible, experts say. Only one carries much chance of survival.](https://news.yahoo.com/3-scenarios-probably-cover-happened-152707232.html)
+- Jun 21 - [DeSantis's 'Woke' War With Disney Claims New Victim](https://www.thestreet.com/travel/desantis-woke-war-with-disney-claims-new-victim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jun 21 - [‘Morning Joe’ Runs Down List of Shady Actions by Trump Kids After Hunter Biden Charges: ‘Do We Even Want to Talk About Kids?’ (Video)](https://www.yahoo.com/entertainment/morning-joe-runs-down-list-142711049.html)
+- Jun 21 - [Retiree had to move out of home after ‘miscreants’ took over house, Florida cops say](https://news.yahoo.com/retiree-had-move-home-miscreants-140036900.html)
+- Jun 21 - [Stonehenge-like 4,000-year-old sanctuary discovered in Netherlands](https://news.yahoo.com/stonehenge-4-000-old-sanctuary-131758127.html)
+- Jun 21 - [Campus assault suspect eludes arrest for 2 years, after 'So I raped you' Facebook message](https://news.yahoo.com/campus-assault-suspect-eludes-arrest-131225985.html)
 <!-- feed end -->
