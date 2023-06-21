@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [Dem Rep. Jerry Nadler Tries to Embarrass John Durham](https://news.yahoo.com/dem-rep-jerry-nadler-tries-154615333.html)
+- Jun 21 - [People Are Revealing The Specific Mistakes That Ended Up Ruining Their Careers, And They're Wilder Than You'd Think](https://www.yahoo.com/lifestyle/people-revealing-specific-mistakes-ended-154602725.html)
+- Jun 21 - ['Going back into the pot': The Pentagon just made a stunning $6.2 billion accounting error — and it provides extra aid for Ukraine. Here's exactly what happened](https://finance.yahoo.com/news/going-back-pot-pentagon-just-154400833.html)
+- Jun 21 - [Titanic sub missing - LIVE: OceanGate boss ‘warned of potential catastrophe’ six years ago](https://news.yahoo.com/titanic-sub-missing-live-update-oceangate-hamish-harding-latest-111959800.html)
 - Jun 21 - [DeSantis's 'Woke' War With Disney Claims New Victim](https://www.thestreet.com/travel/desantis-woke-war-with-disney-claims-new-victim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jun 21 - [‘Morning Joe’ Runs Down List of Shady Actions by Trump Kids After Hunter Biden Charges: ‘Do We Even Want to Talk About Kids?’ (Video)](https://www.yahoo.com/entertainment/morning-joe-runs-down-list-142711049.html)
-- Jun 21 - [Retiree had to move out of home after ‘miscreants’ took over house, Florida cops say](https://news.yahoo.com/retiree-had-move-home-miscreants-140036900.html)
-- Jun 21 - [Stonehenge-like 4,000-year-old sanctuary discovered in Netherlands](https://news.yahoo.com/stonehenge-4-000-old-sanctuary-131758127.html)
-- Jun 21 - [Campus assault suspect eludes arrest for 2 years, after 'So I raped you' Facebook message](https://news.yahoo.com/campus-assault-suspect-eludes-arrest-131225985.html)
 <!-- feed end -->
