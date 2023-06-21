@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [Witnesses capture aftermath of Paris explosion, dozens hurt](https://news.yahoo.com/witnesses-capture-aftermath-paris-explosion-215748051.html)
+- Jun 21 - ['You Look Miserable': Nancy Pelosi Takes The House Mic To Mock Republicans](https://news.yahoo.com/look-miserable-nancy-pelosi-takes-211817608.html)
+- Jun 21 - [Cops say he stole a ‘pink vibrating device’ from a Florida Target. Then they ran his tags](https://news.yahoo.com/cops-stole-pink-vibrating-device-210842724.html)
+- Jun 21 - [Ukrainian special ops forces who stormed a Russian trench in an intense video did 'everything right' and took their enemy by surprise, US infantry veteran says](https://news.yahoo.com/ukrainian-special-ops-forces-stormed-210500291.html)
 - Jun 21 - [Marjorie Taylor Greene Furious Her Own Impeachment Resolution Hasn't Moved](https://news.yahoo.com/marjorie-taylor-greene-furious-her-205940101.html)
-- Jun 21 - [Adam Schiff Gets John Durham to Admit Russia Helped Trump](https://news.yahoo.com/adam-schiff-gets-john-durham-204247109.html)
-- Jun 21 - [Jan. 6 rioter who electroshocked Michael Fanone shouts 'Trump won' after receiving a 12.5 year sentence](https://news.yahoo.com/jan-6-rioter-electroshocked-michael-203940458.html)
-- Jun 21 - [Senate confirms Biden judicial nominee after Harris breaks deadlock](https://news.yahoo.com/senate-confirms-biden-judicial-nominee-203521595.html)
-- Jun 21 - [A Colorado man won a $3.8 million lottery and the first thing he wants to buy is a new vacuum](https://news.yahoo.com/colorado-man-won-3-8-195320960.html)
 <!-- feed end -->
