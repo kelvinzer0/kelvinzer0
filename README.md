@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Mystery of huge bear that killed Arizona man deepens with new lab report](https://news.yahoo.com/mystery-huge-bear-killed-arizona-190244110.html)
-- Jun 21 - [Chipmaker Intel restructures manufacturing business](https://finance.yahoo.com/news/chipmaker-intel-restructures-manufacturing-business-184655848.html)
-- Jun 21 - [Ron DeSantis blasts Biden for being 'out of touch' amid reports that DeSantis and his wife flew on a donor-funded private jet at least 12 times](https://news.yahoo.com/ron-desantis-blasts-biden-being-182035896.html)
-- Jun 21 - [Homicide detective weeps in trial of deputy who failed to confront Parkland high school shooter](https://news.yahoo.com/homicide-detective-weeps-trial-deputy-181844607.html)
-- Jun 21 - [Stepson of Billionaire on Titanic Submarine Slams Cardi B, Responds to OnlyFans Thirst Trap While Search Is Ongoing](https://www.yahoo.com/entertainment/stepson-billionaire-titanic-submarine-slams-180811908.html)
+- Jun 21 - [Surrounded: He'll Stand Guard](https://www.yahoo.com/entertainment/surrounded-hell-stand-guard-210221127.html)
+- Jun 21 - [Adam Schiff Gets John Durham to Admit Russia Helped Trump](https://news.yahoo.com/adam-schiff-gets-john-durham-204247109.html)
+- Jun 21 - [Condoleezza Rice on China: 'We have to recognize that this is a significant rivalry'](https://finance.yahoo.com/video/condoleezza-rice-china-recognize-significant-204043813.html)
+- Jun 21 - [Senate confirms Biden judicial nominee after Harris breaks deadlock](https://news.yahoo.com/senate-confirms-biden-judicial-nominee-203521595.html)
+- Jun 21 - [Rules allow transgender woman at Wyoming chapter, and a court can't interfere, sorority says](https://news.yahoo.com/sorority-says-rules-allow-transgender-191201906.html)
 <!-- feed end -->
