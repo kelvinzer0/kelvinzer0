@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Granny flats could 'make a dent' in the housing market’s inventory crisis](https://finance.yahoo.com/news/granny-flats-could-make-a-dent-in-the-housing-markets-inventory-crisis-183957094.html)
-- Jun 21 - [Belgian PM, foreign minister quizzed in parliament in Iran visa scandal](https://uk.news.yahoo.com/belgian-pm-foreign-minister-quizzed-183444142.html)
-- Jun 21 - [U.S. oil stocks at Cushing delivery hub hit 2-year peak](https://finance.yahoo.com/news/u-oil-stocks-cushing-delivery-182605516.html)
+- Jun 21 - [Mystery of huge bear that killed Arizona man deepens with new lab report](https://news.yahoo.com/mystery-huge-bear-killed-arizona-190244110.html)
+- Jun 21 - [Chipmaker Intel restructures manufacturing business](https://finance.yahoo.com/news/chipmaker-intel-restructures-manufacturing-business-184655848.html)
+- Jun 21 - [Ron DeSantis blasts Biden for being 'out of touch' amid reports that DeSantis and his wife flew on a donor-funded private jet at least 12 times](https://news.yahoo.com/ron-desantis-blasts-biden-being-182035896.html)
 - Jun 21 - [Homicide detective weeps in trial of deputy who failed to confront Parkland high school shooter](https://news.yahoo.com/homicide-detective-weeps-trial-deputy-181844607.html)
-- Jun 21 - [Waterspout Spotted in Southwest Florida](https://news.yahoo.com/waterspout-spotted-southwest-florida-181357280.html)
+- Jun 21 - [Stepson of Billionaire on Titanic Submarine Slams Cardi B, Responds to OnlyFans Thirst Trap While Search Is Ongoing](https://www.yahoo.com/entertainment/stepson-billionaire-titanic-submarine-slams-180811908.html)
 <!-- feed end -->
