@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [Titanic sub missing - LIVE: US Coast Guard to give update on search for OceanGate submersible](https://news.yahoo.com/titanic-sub-missing-live-update-oceangate-coastguard-press-conference-latest-163931255.html)
+- Jun 21 - [Prosecutors Reveal Bombshell DNA Match in Kohberger Case](https://news.yahoo.com/prosecutors-reveal-bombshell-dna-match-161930757.html)
+- Jun 21 - [Scientists believe they've discovered a cure for baldness. It's hiding in your hairy moles — and can be injected like Botox.](https://www.yahoo.com/lifestyle/scientists-believe-theyve-discovered-cure-155000933.html)
 - Jun 21 - [Dem Rep. Jerry Nadler Tries to Embarrass John Durham](https://news.yahoo.com/dem-rep-jerry-nadler-tries-154615333.html)
 - Jun 21 - [People Are Revealing The Specific Mistakes That Ended Up Ruining Their Careers, And They're Wilder Than You'd Think](https://www.yahoo.com/lifestyle/people-revealing-specific-mistakes-ended-154602725.html)
-- Jun 21 - ['Going back into the pot': The Pentagon just made a stunning $6.2 billion accounting error — and it provides extra aid for Ukraine. Here's exactly what happened](https://finance.yahoo.com/news/going-back-pot-pentagon-just-154400833.html)
-- Jun 21 - [Titanic sub missing - LIVE: OceanGate boss ‘warned of potential catastrophe’ six years ago](https://news.yahoo.com/titanic-sub-missing-live-update-oceangate-hamish-harding-latest-111959800.html)
-- Jun 21 - [DeSantis's 'Woke' War With Disney Claims New Victim](https://www.thestreet.com/travel/desantis-woke-war-with-disney-claims-new-victim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
