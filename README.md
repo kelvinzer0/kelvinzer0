@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 21 - [Trump called out Alyssa Farah Griffin on Fox. Hear how she responded](https://news.yahoo.com/trump-called-alyssa-farah-griffin-013937704.html)
 - Jun 21 - [Watch F-35 'Headbutt' Private Plane During Low-Level Intercept Over Marin](https://news.yahoo.com/watch-f-35-headbutt-private-011833953.html)
+- Jun 21 - [Boebert moves to force vote on impeaching Biden over handling of border](https://news.yahoo.com/boebert-moves-force-vote-impeaching-005109890.html)
 - Jun 20 - [Haberman shares two reasons why Trump has trouble keeping lawyers](https://news.yahoo.com/haberman-shares-two-reasons-why-235052634.html)
 - Jun 20 - [Judge Shuts Down Trump ‘Coup Memo’ Scribe John Eastman’s ‘Expert’ Witness](https://news.yahoo.com/judge-shuts-down-trump-coup-233041006.html)
-- Jun 20 - [Trump calls for death penalty for drug dealers; Fox’s Baier notes it would apply to woman he championed](https://news.yahoo.com/trump-calls-death-penalty-drug-230609575.html)
 <!-- feed end -->
