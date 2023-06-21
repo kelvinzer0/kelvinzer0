@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [Titanic sub missing - LIVE: OceanGate boss ‘was warned of potential catastrophe’ six years ago](https://news.yahoo.com/titanic-sub-missing-live-update-oceangate-hamish-harding-latest-111959800.html)
 - Jun 21 - [3 scenarios probably cover what happened to the Titanic submersible, experts say. Only one carries much chance of survival.](https://news.yahoo.com/3-scenarios-probably-cover-happened-152707232.html)
 - Jun 21 - [Jack Hanna's long goodbye: How Alzheimer's is stripping away the man the world once knew](https://news.yahoo.com/jack-hannas-long-goodbye-alzheimers-100110678.html)
 - Jun 21 - [India Is Not a U.S. Ally—and Has Never Wanted to Be](https://news.yahoo.com/india-not-u-ally-never-100003366.html)
 - Jun 21 - [Trump, Barr feud reaches fever pitch](https://news.yahoo.com/trump-barr-feud-reaches-fever-100000438.html)
-- Jun 21 - [Republican Group Taunts Trump With His Own Damning Words In Fox News Ad](https://news.yahoo.com/republican-group-taunts-trump-own-090444050.html)
 <!-- feed end -->
