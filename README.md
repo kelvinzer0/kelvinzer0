@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Titanic sub missing - LIVE: US Coast Guard ‘hopeful’ after more noises detected](https://news.yahoo.com/titanic-sub-missing-live-us-coast-guard-hopeful-after-more-noises-detected-174152666.html)
-- Jun 21 - [A Florida mom went to take a shower — and she left her baby with an animal, cops say](https://news.yahoo.com/florida-mom-went-shower-she-172831761.html)
-- Jun 21 - [Man defies warning not to swim in Gulf of Mexico and gets arrested, Florida cops say](https://news.yahoo.com/man-defies-warning-not-swim-165509192.html)
-- Jun 21 - [Prosecutors Reveal Bombshell DNA Match in Kohberger Case](https://news.yahoo.com/prosecutors-reveal-bombshell-dna-match-161930757.html)
-- Jun 21 - [Scientists believe they've discovered a cure for baldness. It's hiding in your hairy moles — and can be injected like Botox.](https://www.yahoo.com/lifestyle/scientists-believe-theyve-discovered-cure-155000933.html)
+- Jun 21 - [Granny flats could 'make a dent' in the housing market’s inventory crisis](https://finance.yahoo.com/news/granny-flats-could-make-a-dent-in-the-housing-markets-inventory-crisis-183957094.html)
+- Jun 21 - [Belgian PM, foreign minister quizzed in parliament in Iran visa scandal](https://uk.news.yahoo.com/belgian-pm-foreign-minister-quizzed-183444142.html)
+- Jun 21 - [U.S. oil stocks at Cushing delivery hub hit 2-year peak](https://finance.yahoo.com/news/u-oil-stocks-cushing-delivery-182605516.html)
+- Jun 21 - [Homicide detective weeps in trial of deputy who failed to confront Parkland high school shooter](https://news.yahoo.com/homicide-detective-weeps-trial-deputy-181844607.html)
+- Jun 21 - [Waterspout Spotted in Southwest Florida](https://news.yahoo.com/waterspout-spotted-southwest-florida-181357280.html)
 <!-- feed end -->
