@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Surrounded: He'll Stand Guard](https://www.yahoo.com/entertainment/surrounded-hell-stand-guard-210221127.html)
+- Jun 21 - [Marjorie Taylor Greene Furious Her Own Impeachment Resolution Hasn't Moved](https://news.yahoo.com/marjorie-taylor-greene-furious-her-205940101.html)
 - Jun 21 - [Adam Schiff Gets John Durham to Admit Russia Helped Trump](https://news.yahoo.com/adam-schiff-gets-john-durham-204247109.html)
-- Jun 21 - [Condoleezza Rice on China: 'We have to recognize that this is a significant rivalry'](https://finance.yahoo.com/video/condoleezza-rice-china-recognize-significant-204043813.html)
+- Jun 21 - [Jan. 6 rioter who electroshocked Michael Fanone shouts 'Trump won' after receiving a 12.5 year sentence](https://news.yahoo.com/jan-6-rioter-electroshocked-michael-203940458.html)
 - Jun 21 - [Senate confirms Biden judicial nominee after Harris breaks deadlock](https://news.yahoo.com/senate-confirms-biden-judicial-nominee-203521595.html)
-- Jun 21 - [Rules allow transgender woman at Wyoming chapter, and a court can't interfere, sorority says](https://news.yahoo.com/sorority-says-rules-allow-transgender-191201906.html)
+- Jun 21 - [A Colorado man won a $3.8 million lottery and the first thing he wants to buy is a new vacuum](https://news.yahoo.com/colorado-man-won-3-8-195320960.html)
 <!-- feed end -->
