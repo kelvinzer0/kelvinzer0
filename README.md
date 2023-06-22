@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [In a scathing dissent, Neil Gorsuch compared the Navajo Nation's plight to the experience of 'any American who has spent time at the Department of Motor Vehicles'](https://news.yahoo.com/scathing-dissent-neil-gorsuch-compared-174928925.html)
 - Jun 22 - [CNN’s Amanpour asks Obama about ‘spectacle’ of Trump. Hear his answer](https://news.yahoo.com/cnn-amanpour-asks-obama-spectacle-165752071.html)
 - Jun 22 - [House Republicans move to strip security clearances from any official that said in 2020 that the release of Hunter Biden's emails had 'classic earmarks of a Russian information operation'](https://news.yahoo.com/house-republicans-move-strip-security-165602598.html)
-- Jun 22 - [Missing Submarine Search Finds “Debris Field” Near Titanic, Coast Guard Says](https://www.yahoo.com/entertainment/titanic-tourist-submarine-goes-missing-180331885.html)
-- Jun 22 - [16-year-old son transforms mom’s ‘depression garden’ into stunning backyard oasis](https://news.yahoo.com/16-old-son-transforms-mom-160553933.html)
-- Jun 22 - [Revealed: The Mystery Benefactors Who Paid George Santos’ Bail](https://news.yahoo.com/revealed-mystery-benefactors-paid-george-160540007.html)
+- Jun 22 - [Bud Light is 'at the end of the tunnel' of controversy, analyst says](https://finance.yahoo.com/news/bud-light-is-at-the-end-of-the-tunnel-of-controversy-analyst-says-165007361.html)
+- Jun 22 - [Chilling interview emerges showing man on board the Titan previously describing what it would be like to be trapped in a sub at the bottom of the ocean](https://news.yahoo.com/chilling-interview-emerges-showing-man-164931202.html)
 <!-- feed end -->
