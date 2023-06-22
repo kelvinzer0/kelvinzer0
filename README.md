@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [All five passengers on missing Titanic submersible dead after catastrophic implosion](https://news.yahoo.com/five-passengers-missing-titanic-submersible-191549189.html)
+- Jun 22 - [Writer's lawyers say Trump is wrong about $5 million sex abuse-defamation jury award](https://news.yahoo.com/writers-lawyers-trump-wrong-5-182010820.html)
 - Jun 22 - [In a scathing dissent, Neil Gorsuch compared the Navajo Nation's plight to the experience of 'any American who has spent time at the Department of Motor Vehicles'](https://news.yahoo.com/scathing-dissent-neil-gorsuch-compared-174928925.html)
+- Jun 22 - [Commentary: As those aboard the Titan submersible suffer, social media laughs](https://www.yahoo.com/entertainment/commentary-those-aboard-titan-submersible-165828877.html)
 - Jun 22 - [CNN’s Amanpour asks Obama about ‘spectacle’ of Trump. Hear his answer](https://news.yahoo.com/cnn-amanpour-asks-obama-spectacle-165752071.html)
-- Jun 22 - [House Republicans move to strip security clearances from any official that said in 2020 that the release of Hunter Biden's emails had 'classic earmarks of a Russian information operation'](https://news.yahoo.com/house-republicans-move-strip-security-165602598.html)
-- Jun 22 - [Bud Light is 'at the end of the tunnel' of controversy, analyst says](https://finance.yahoo.com/news/bud-light-is-at-the-end-of-the-tunnel-of-controversy-analyst-says-165007361.html)
-- Jun 22 - [Chilling interview emerges showing man on board the Titan previously describing what it would be like to be trapped in a sub at the bottom of the ocean](https://news.yahoo.com/chilling-interview-emerges-showing-man-164931202.html)
 <!-- feed end -->
