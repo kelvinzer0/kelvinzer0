@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Missing Submarine Search: “Debris Field” Found Near Titanic – Updated](https://www.yahoo.com/entertainment/titanic-tourist-submarine-goes-missing-180331885.html)
+- Jun 22 - [CNN’s Amanpour asks Obama about ‘spectacle’ of Trump. Hear his answer](https://news.yahoo.com/cnn-amanpour-asks-obama-spectacle-165752071.html)
+- Jun 22 - [House Republicans move to strip security clearances from any official that said in 2020 that the release of Hunter Biden's emails had 'classic earmarks of a Russian information operation'](https://news.yahoo.com/house-republicans-move-strip-security-165602598.html)
+- Jun 22 - [Missing Submarine Search Finds “Debris Field” Near Titanic, Coast Guard Says](https://www.yahoo.com/entertainment/titanic-tourist-submarine-goes-missing-180331885.html)
 - Jun 22 - [16-year-old son transforms mom’s ‘depression garden’ into stunning backyard oasis](https://news.yahoo.com/16-old-son-transforms-mom-160553933.html)
 - Jun 22 - [Revealed: The Mystery Benefactors Who Paid George Santos’ Bail](https://news.yahoo.com/revealed-mystery-benefactors-paid-george-160540007.html)
-- Jun 22 - [Supreme Court rules against a man who was given 27 years in prison for having a gun](https://news.yahoo.com/supreme-court-rules-against-man-155342719.html)
-- Jun 22 - [Hiker stumbles upon 7,000-year-old fish traps in shrinking Norway lake. Take a look](https://news.yahoo.com/hiker-stumbles-upon-7-000-155339251.html)
 <!-- feed end -->
