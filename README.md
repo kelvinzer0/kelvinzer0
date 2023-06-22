@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Watch: Republican-Controlled House Censures Trump Foe Adam Schiff](https://finance.yahoo.com/video/watch-republican-controlled-house-censures-005900228.html)
 - Jun 21 - [Prosecutors urge 3-year prison sentence for former US congressman from Indiana](https://news.yahoo.com/prosecutors-urge-3-prison-sentence-233037342.html)
 - Jun 21 - [Witnesses capture aftermath of Paris explosion, dozens hurt](https://news.yahoo.com/witnesses-capture-aftermath-paris-explosion-215748051.html)
 - Jun 21 - [Twitter Users Mock Don Jr.'s Attempt To Turn Titan Sub Crisis Into Conspiracy Theory](https://news.yahoo.com/twitter-users-mock-don-jr-215018791.html)
 - Jun 21 - [West Virginia governor can't use Senate bid as excuse to not disclose finances, judge says](https://news.yahoo.com/west-virginia-governor-cant-senate-214842037.html)
+- Jun 21 - [‘Expedition: Unknown’ Host Josh Gates Says He Dove In Titanic Sub, But Decided Against Going Down Again To Film Because Craft “Did Not Perform Well”](https://www.yahoo.com/entertainment/expedition-unknown-host-josh-gates-214228064.html)
 <!-- feed end -->
