@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Bud Light launches new ad to woo back customers](https://finance.yahoo.com/video/bud-light-launches-ad-woo-205228259.html)
-- Jun 22 - [Russian navy attempts to ‘disguise’ one of its frigates – report](https://news.yahoo.com/russian-navy-attempts-disguise-one-193800315.html)
-- Jun 22 - [All five passengers on missing Titanic submersible dead after catastrophic implosion](https://news.yahoo.com/five-passengers-missing-titanic-submersible-191549189.html)
-- Jun 22 - ["Politically dumb": House Republicans fume after Lauren Boebert goes "rogue" on Biden impeachment](https://news.yahoo.com/politically-dumb-house-republicans-fume-191157974.html)
-- Jun 22 - [Jeff Bezos Told His Employees, 'I Predict One Day Amazon Will Fail. Amazon Will Go Bankrupt.' But His Goal is to Delay The Inevitable](https://finance.yahoo.com/news/jeff-bezos-told-employees-predict-190915894.html)
+- Jun 22 - [GOP releases whistleblower testimonies from ex-IRS agents in Hunter Biden case](https://news.yahoo.com/gop-releases-whistleblower-testimonies-ex-214242767.html)
+- Jun 22 - [Homeowner spots ‘big, nasty’ visitor gulping from swimming pool, Arizona video shows](https://news.yahoo.com/homeowner-spots-big-nasty-visitor-211423431.html)
+- Jun 22 - [Man caught cheating shoots pregnant wife as she begged for her life, Alabama court says](https://news.yahoo.com/man-caught-cheating-shoots-pregnant-204908837.html)
+- Jun 22 - [Missing Titanic sub imploded, Coast Guard says — Here's what went wrong](https://news.yahoo.com/missing-titanic-sub-imploded-coast-204101298.html)
+- Jun 22 - [Coyote pup wandered for days with head stuck in container. Freeing it ‘took a village’](https://news.yahoo.com/coyote-pup-wandered-days-head-195956988.html)
 <!-- feed end -->
