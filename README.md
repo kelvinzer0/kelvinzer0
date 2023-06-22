@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Ukraine-Russia war live: Storm Shadow missile strike damages Crimea bridge](https://news.yahoo.com/russia-says-ukraine-hit-bridge-052518936.html)
-- Jun 22 - [Titanic sub missing - LIVE: Latest updates as expert says 'catastrophic implosion unlikely'](https://news.yahoo.com/titanic-sub-missing-live-latest-updates-expert-implosion-094445905.html)
-- Jun 22 - [Germany's Scholz: I warned China on using force against Taiwan](https://news.yahoo.com/germanys-scholz-warned-china-using-072656482.html)
+- Jun 22 - [IDF Destroys Nablus Home of Shooting Suspect](https://news.yahoo.com/idf-destroys-nablus-home-shooting-102954453.html)
+- Jun 22 - [Russian invaders start panicking after strike on bridge to Crimea, says official](https://news.yahoo.com/russian-invaders-start-panicking-strike-095100908.html)
 - Jun 22 - [In Europe's empty churches, prayer and confessions make way for drinking and dancing](https://news.yahoo.com/europes-empty-churches-prayer-confessions-062012473.html)
+- Jun 22 - [Sailors make disturbing discovery while racing in one of the ocean’s most remote regions: ‘It’s really concerning’](https://news.yahoo.com/sailors-disturbing-discovery-while-racing-050000357.html)
 - Jun 22 - [New Zealand PM disagrees with Biden, says Xi Jinping not a 'dictator'](https://news.yahoo.com/zealand-pm-disagrees-biden-says-033613965.html)
 <!-- feed end -->
