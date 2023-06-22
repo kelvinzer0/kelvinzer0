@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [Dem Senator Says New Filing In Trump Documents Case May Spell 'Real Trouble'](https://news.yahoo.com/dem-senator-says-filing-trump-132254420.html)
 - Jun 22 - [Robert F. Kennedy Jr. Says Russia Acted In 'Good Faith' In Ukraine Invasion](https://news.yahoo.com/robert-f-kennedy-jr-says-124441558.html)
 - Jun 22 - ['Flying taxi' to carry passengers at 2024 Olympics](https://news.yahoo.com/flying-taxi-carry-passengers-2024-123951913.html)
-- Jun 22 - [The 'doom loop' hammering Middle America](https://news.yahoo.com/doom-loop-hammering-middle-america-095800650.html)
-- Jun 22 - [Russian invaders start panicking after strike on bridge to Crimea, says official](https://news.yahoo.com/russian-invaders-start-panicking-strike-095100908.html)
-- Jun 22 - [In Europe's empty churches, prayer and confessions make way for drinking and dancing](https://news.yahoo.com/europes-empty-churches-prayer-confessions-062012473.html)
+- Jun 22 - [Titanic Sub Search Vessel Reaches Sea Floor as Time Grows Short](https://finance.yahoo.com/news/titanic-sub-search-vessel-reaches-120838491.html)
+- Jun 22 - [There are 3 theories for the banging sounds heard in the search for the Titanic sub. None has experts truly convinced.](https://news.yahoo.com/3-theories-banging-sounds-heard-103910421.html)
 <!-- feed end -->
