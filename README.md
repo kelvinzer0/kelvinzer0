@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [Ukraine-Russia war live: Missiles 'struck key Crimea bridge'](https://news.yahoo.com/russia-says-ukraine-hit-bridge-052518936.html)
+- Jun 22 - [Titanic sub missing - LIVE: Latest updates as hopes fade in final hours](https://news.yahoo.com/titanic-sub-missing-live-latest-updates-what-time-055606426.html)
 - Jun 22 - [New Zealand PM disagrees with Biden, says Xi Jinping not a 'dictator'](https://news.yahoo.com/zealand-pm-disagrees-biden-says-033613965.html)
 - Jun 22 - [The Boebert vs. Greene fight isn't just happening in a ladies' bathroom anymore — it's out on the House floor and uglier than before](https://news.yahoo.com/boebert-vs-greene-fight-isnt-030929045.html)
 - Jun 22 - [New York rabbis who caused deadly fire avoid jail time with a plea deal](https://news.yahoo.com/york-rabbis-caused-deadly-fire-025935811.html)
-- Jun 22 - [Texas Sen. Angela Paxton barred from voting in husband's impeachment trial](https://news.yahoo.com/texas-sen-angela-paxton-barred-021127973.html)
-- Jun 22 - [US Coast Guard ship transited Taiwan Strait after Blinken's China visit -US Navy](https://news.yahoo.com/us-coast-guard-ship-transited-010302366.html)
 <!-- feed end -->
