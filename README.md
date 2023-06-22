@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [Supreme Court rules against a man who was given 27 years in prison for having a gun](https://news.yahoo.com/supreme-court-rules-against-man-155342719.html)
 - Jun 22 - [DeSantis Strikes a Harsh Blow Against Disney in 'Woke' War](https://www.thestreet.com/travel/desantis-strikes-a-harsh-blow-against-disney-in-woke-war?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jun 22 - [Supreme Court rules against Navajo Nation in Colorado River water rights case](https://news.yahoo.com/supreme-court-rules-against-navajo-141537738.html)
 - Jun 22 - [Curious creature checks out Coast Guard boat off Louisiana, video shows. What was it?](https://news.yahoo.com/curious-creature-checks-coast-guard-140510297.html)
-- Jun 22 - [Trump Melts Down as DOJ Turns Over Evidence It Plans to Use Against Him](https://news.yahoo.com/trump-melts-down-doj-turns-133854634.html)
-- Jun 22 - [Dem Senator Says New Filing In Trump Documents Case May Spell 'Real Trouble'](https://news.yahoo.com/dem-senator-says-filing-trump-132254420.html)
+- Jun 22 - [Russian mercenary boss accuses top brass of Ukraine battlefield cover-up](https://finance.yahoo.com/news/russian-mercenary-boss-accuses-top-133921873.html)
 <!-- feed end -->
