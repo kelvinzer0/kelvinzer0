@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [Watch: Republican-Controlled House Censures Trump Foe Adam Schiff](https://finance.yahoo.com/video/watch-republican-controlled-house-censures-005900228.html)
+- Jun 21 - [Prosecutors urge 3-year prison sentence for former US congressman from Indiana](https://news.yahoo.com/prosecutors-urge-3-prison-sentence-233037342.html)
 - Jun 21 - [Witnesses capture aftermath of Paris explosion, dozens hurt](https://news.yahoo.com/witnesses-capture-aftermath-paris-explosion-215748051.html)
-- Jun 21 - ['You Look Miserable': Nancy Pelosi Takes The House Mic To Mock Republicans](https://news.yahoo.com/look-miserable-nancy-pelosi-takes-211817608.html)
-- Jun 21 - [Cops say he stole a ‘pink vibrating device’ from a Florida Target. Then they ran his tags](https://news.yahoo.com/cops-stole-pink-vibrating-device-210842724.html)
-- Jun 21 - [Ukrainian special ops forces who stormed a Russian trench in an intense video did 'everything right' and took their enemy by surprise, US infantry veteran says](https://news.yahoo.com/ukrainian-special-ops-forces-stormed-210500291.html)
-- Jun 21 - [Marjorie Taylor Greene Furious Her Own Impeachment Resolution Hasn't Moved](https://news.yahoo.com/marjorie-taylor-greene-furious-her-205940101.html)
+- Jun 21 - [Twitter Users Mock Don Jr.'s Attempt To Turn Titan Sub Crisis Into Conspiracy Theory](https://news.yahoo.com/twitter-users-mock-don-jr-215018791.html)
+- Jun 21 - [West Virginia governor can't use Senate bid as excuse to not disclose finances, judge says](https://news.yahoo.com/west-virginia-governor-cant-senate-214842037.html)
 <!-- feed end -->
