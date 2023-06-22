@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 22 - [New Zealand PM disagrees with Biden, says Xi Jinping not a 'dictator'](https://news.yahoo.com/zealand-pm-disagrees-biden-says-033613965.html)
+- Jun 22 - [The Boebert vs. Greene fight isn't just happening in a ladies' bathroom anymore — it's out on the House floor and uglier than before](https://news.yahoo.com/boebert-vs-greene-fight-isnt-030929045.html)
+- Jun 22 - [New York rabbis who caused deadly fire avoid jail time with a plea deal](https://news.yahoo.com/york-rabbis-caused-deadly-fire-025935811.html)
 - Jun 22 - [Texas Sen. Angela Paxton barred from voting in husband's impeachment trial](https://news.yahoo.com/texas-sen-angela-paxton-barred-021127973.html)
-- Jun 22 - [Ukrainian T-72 Tank That Ran Over MRAP Seen In New Ground-Level Video](https://news.yahoo.com/ukrainian-t-72-tank-ran-004641218.html)
-- Jun 21 - [Prosecutors urge 3-year prison sentence for former US congressman from Indiana](https://news.yahoo.com/prosecutors-urge-3-prison-sentence-233037342.html)
-- Jun 21 - [Witnesses capture aftermath of Paris explosion, dozens hurt](https://news.yahoo.com/witnesses-capture-aftermath-paris-explosion-215748051.html)
+- Jun 22 - [US Coast Guard ship transited Taiwan Strait after Blinken's China visit -US Navy](https://news.yahoo.com/us-coast-guard-ship-transited-010302366.html)
 <!-- feed end -->
