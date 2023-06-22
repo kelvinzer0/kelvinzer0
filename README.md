@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [Texas Sen. Angela Paxton barred from voting in husband's impeachment trial](https://news.yahoo.com/texas-sen-angela-paxton-barred-021127973.html)
+- Jun 22 - [US Coast Guard ship transited Taiwan Strait after Blinken's China visit -US Navy](https://news.yahoo.com/us-coast-guard-ship-transited-010302366.html)
+- Jun 22 - [Ukrainian T-72 Tank That Ran Over MRAP Seen In New Ground-Level Video](https://news.yahoo.com/ukrainian-t-72-tank-ran-004641218.html)
 - Jun 21 - [Prosecutors urge 3-year prison sentence for former US congressman from Indiana](https://news.yahoo.com/prosecutors-urge-3-prison-sentence-233037342.html)
 - Jun 21 - [Witnesses capture aftermath of Paris explosion, dozens hurt](https://news.yahoo.com/witnesses-capture-aftermath-paris-explosion-215748051.html)
-- Jun 21 - [Twitter Users Mock Don Jr.'s Attempt To Turn Titan Sub Crisis Into Conspiracy Theory](https://news.yahoo.com/twitter-users-mock-don-jr-215018791.html)
-- Jun 21 - [West Virginia governor can't use Senate bid as excuse to not disclose finances, judge says](https://news.yahoo.com/west-virginia-governor-cant-senate-214842037.html)
-- Jun 21 - [‘Expedition: Unknown’ Host Josh Gates Says He Dove In Titanic Sub, But Decided Against Going Down Again To Film Because Craft “Did Not Perform Well”](https://www.yahoo.com/entertainment/expedition-unknown-host-josh-gates-214228064.html)
 <!-- feed end -->
