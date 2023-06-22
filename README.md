@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [Bud Light launches new ad to woo back customers](https://finance.yahoo.com/video/bud-light-launches-ad-woo-205228259.html)
+- Jun 22 - [Russian navy attempts to ‘disguise’ one of its frigates – report](https://news.yahoo.com/russian-navy-attempts-disguise-one-193800315.html)
 - Jun 22 - [All five passengers on missing Titanic submersible dead after catastrophic implosion](https://news.yahoo.com/five-passengers-missing-titanic-submersible-191549189.html)
-- Jun 22 - [Writer's lawyers say Trump is wrong about $5 million sex abuse-defamation jury award](https://news.yahoo.com/writers-lawyers-trump-wrong-5-182010820.html)
-- Jun 22 - [In a scathing dissent, Neil Gorsuch compared the Navajo Nation's plight to the experience of 'any American who has spent time at the Department of Motor Vehicles'](https://news.yahoo.com/scathing-dissent-neil-gorsuch-compared-174928925.html)
-- Jun 22 - [Commentary: As those aboard the Titan submersible suffer, social media laughs](https://www.yahoo.com/entertainment/commentary-those-aboard-titan-submersible-165828877.html)
-- Jun 22 - [CNN’s Amanpour asks Obama about ‘spectacle’ of Trump. Hear his answer](https://news.yahoo.com/cnn-amanpour-asks-obama-spectacle-165752071.html)
+- Jun 22 - ["Politically dumb": House Republicans fume after Lauren Boebert goes "rogue" on Biden impeachment](https://news.yahoo.com/politically-dumb-house-republicans-fume-191157974.html)
+- Jun 22 - [Jeff Bezos Told His Employees, 'I Predict One Day Amazon Will Fail. Amazon Will Go Bankrupt.' But His Goal is to Delay The Inevitable](https://finance.yahoo.com/news/jeff-bezos-told-employees-predict-190915894.html)
 <!-- feed end -->
