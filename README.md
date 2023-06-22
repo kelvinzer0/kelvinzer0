@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [IDF Destroys Nablus Home of Shooting Suspect](https://news.yahoo.com/idf-destroys-nablus-home-shooting-102954453.html)
+- Jun 22 - [Ukraine hits bridge linking Crimea to mainland in blow to Russian supply route](https://news.yahoo.com/ukraine-hits-bridge-linking-crimea-102757535.html)
 - Jun 22 - [Russian invaders start panicking after strike on bridge to Crimea, says official](https://news.yahoo.com/russian-invaders-start-panicking-strike-095100908.html)
 - Jun 22 - [In Europe's empty churches, prayer and confessions make way for drinking and dancing](https://news.yahoo.com/europes-empty-churches-prayer-confessions-062012473.html)
 - Jun 22 - [Sailors make disturbing discovery while racing in one of the ocean’s most remote regions: ‘It’s really concerning’](https://news.yahoo.com/sailors-disturbing-discovery-while-racing-050000357.html)
