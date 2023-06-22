@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [DeSantis Strikes a Harsh Blow Against Disney in 'Woke' War](https://www.thestreet.com/travel/desantis-strikes-a-harsh-blow-against-disney-in-woke-war?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jun 22 - [Supreme Court rules against Navajo Nation in Colorado River water rights case](https://news.yahoo.com/supreme-court-rules-against-navajo-141537738.html)
+- Jun 22 - [Curious creature checks out Coast Guard boat off Louisiana, video shows. What was it?](https://news.yahoo.com/curious-creature-checks-coast-guard-140510297.html)
+- Jun 22 - [Trump Melts Down as DOJ Turns Over Evidence It Plans to Use Against Him](https://news.yahoo.com/trump-melts-down-doj-turns-133854634.html)
 - Jun 22 - [Dem Senator Says New Filing In Trump Documents Case May Spell 'Real Trouble'](https://news.yahoo.com/dem-senator-says-filing-trump-132254420.html)
-- Jun 22 - [Robert F. Kennedy Jr. Says Russia Acted In 'Good Faith' In Ukraine Invasion](https://news.yahoo.com/robert-f-kennedy-jr-says-124441558.html)
-- Jun 22 - ['Flying taxi' to carry passengers at 2024 Olympics](https://news.yahoo.com/flying-taxi-carry-passengers-2024-123951913.html)
-- Jun 22 - [Titanic Sub Search Vessel Reaches Sea Floor as Time Grows Short](https://finance.yahoo.com/news/titanic-sub-search-vessel-reaches-120838491.html)
-- Jun 22 - [There are 3 theories for the banging sounds heard in the search for the Titanic sub. None has experts truly convinced.](https://news.yahoo.com/3-theories-banging-sounds-heard-103910421.html)
 <!-- feed end -->
