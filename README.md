@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [A man checked into a 5-star hotel in India for one night. The hotel says he stayed for 603 days — and didn't pay his $70,000 bill.](https://news.yahoo.com/man-checked-5-star-hotel-055603687.html)
-- Jun 23 - [Whoops! Jim Jordan Accidentally Nails The Truth About Trump Allegations](https://news.yahoo.com/whoops-jim-jordan-accidentally-nails-045256856.html)
-- Jun 23 - [US combat ship to make rare port call in Vietnam amid South China Sea tensions](https://news.yahoo.com/us-combat-ship-rare-port-041246561.html)
+- Jun 23 - [Titanic sub - Live: OceanGate CEO boasted about ‘breaking the rules’ for good of society](https://news.yahoo.com/titanic-sub-live-oceangate-ceo-break-rules-093054981.html)
+- Jun 23 - [These twins did the same workout for 3 months — but 1 exercised for half as long each time. By the end, they saw almost exactly the same results.](https://www.yahoo.com/lifestyle/twins-did-same-workout-3-090821991.html)
 - Jun 23 - [Tropical Storm Cindy develops in the Atlantic](https://news.yahoo.com/tropical-storm-cindy-develops-atlantic-030815696.html)
-- Jun 23 - ['Soulmates' Killed At Music Fest Were Allegedly The Victims of A Man High On Mushrooms](https://news.yahoo.com/couple-described-soulmates-allegedly-killed-005125559.html)
+- Jun 23 - [Ex-Marine Reveals Crushing Sneak Attack on Putin’s Men](https://news.yahoo.com/ex-marine-reveals-crushing-sneak-084141847.html)
+- Jun 23 - [A man checked into a 5-star hotel in India for one night. The hotel says he stayed for 603 days — and didn't pay his $70,000 bill.](https://news.yahoo.com/man-checked-5-star-hotel-055603687.html)
 <!-- feed end -->
