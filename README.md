@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Hundreds still missing in migrant boat accident as sub accident captures more attention](https://news.yahoo.com/hundreds-still-missing-migrant-boat-025230929.html)
-- Jun 23 - [James Cameron says Titan submersible passengers likely had warning just before implosion](https://www.yahoo.com/entertainment/james-cameron-says-titan-submersible-013639423.html)
-- Jun 23 - [The Navy first detected the Titan sub's implosion soon after it went missing: WSJ](https://news.yahoo.com/navy-first-detected-titan-subs-221226319.html)
+- Jun 23 - [Whoops! Jim Jordan Accidentally Nails The Truth About Trump Allegations](https://news.yahoo.com/whoops-jim-jordan-accidentally-nails-045256856.html)
+- Jun 23 - [US combat ship to make rare port call in Vietnam amid South China Sea tensions](https://news.yahoo.com/us-combat-ship-rare-port-041246561.html)
 - Jun 23 - ['Soulmates' Killed At Music Fest Were Allegedly The Victims of A Man High On Mushrooms](https://news.yahoo.com/couple-described-soulmates-allegedly-killed-005125559.html)
-- Jun 23 - [IRS agent tells House committee there was meddling with Hunter Biden case](https://news.yahoo.com/irs-agent-tells-house-committee-003349369.html)
+- Jun 23 - [Arizona Republican election official sues Kari Lake for defamation](https://news.yahoo.com/arizona-republican-election-official-sues-003131425.html)
+- Jun 22 - [This is the ‘single most important’ piece of evidence in Trump indictment, according to CNN legal analyst](https://news.yahoo.com/single-most-important-piece-evidence-233343085.html)
 <!-- feed end -->
