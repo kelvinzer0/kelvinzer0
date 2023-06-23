@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [Russia probes 'mutiny' calls after Wagner threatens top brass](https://news.yahoo.com/wagner-chief-vows-stop-russia-195459412.html)
+- Jun 23 - [Judge rejects transgender plaintiffs' bid to change their birth certificates in Tennessee](https://news.yahoo.com/judge-rejects-transgender-plaintiffs-bid-210113440.html)
 - Jun 23 - [The Titan sub was likely trying to surface and the passengers probably knew the hull was 'starting to crack' before it imploded, James Cameron says](https://news.yahoo.com/titan-sub-likely-trying-surface-201025055.html)
-- Jun 23 - [Newly released body camera footage shows Border Patrol agents shooting a tribal member in Arizona](https://news.yahoo.com/newly-released-body-camera-footage-195613941.html)
-- Jun 23 - [Wagner chief vows to 'stop' Russia after alleged attack on forces](https://news.yahoo.com/wagner-chief-vows-stop-russia-195459412.html)
 - Jun 23 - [Body of missing 18-year-old on trip found in ‘remote’ bonfire pile, Arizona cops say](https://news.yahoo.com/body-missing-18-old-trip-192004751.html)
-- Jun 23 - [Watch a freak storm rip through cruise ship in Florida. ‘Like a scene from  Twister’](https://news.yahoo.com/watch-freak-storm-rip-cruise-184543023.html)
+- Jun 23 - [San Francisco mayor proposes tearing down Westfield Mall and other shuttered downtown retailers](https://finance.yahoo.com/news/san-francisco-mayor-proposes-tearing-191455078.html)
 <!-- feed end -->
