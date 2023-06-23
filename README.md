@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [Supreme Court backs Biden on immigration enforcement](https://news.yahoo.com/supreme-court-backs-biden-immigration-162825617.html)
+- Jun 23 - [Georgia Man Paid $80K for Painful Limb Lengthening Surgery After Crush Rejected Him: 'Feel Like a New Man'](https://www.yahoo.com/entertainment/georgia-man-paid-80k-painful-160950167.html)
 - Jun 23 - ["This is so stupid": MTG mocked over resolution to pretend Trump's impeachments never happened](https://news.yahoo.com/stupid-mtg-mocked-over-resolution-160157143.html)
-- Jun 23 - [Titanic sub: James Cameron turned down offer of trip on OceanGate sub](https://news.yahoo.com/titanic-sub-live-james-cameron-oceangate-151010933.html)
-- Jun 23 - ["Shady and corrupt": Watchdog group sounds the alarm over Amy Coney Barrett real estate deal](https://news.yahoo.com/shady-corrupt-watchdog-group-sounds-150004632.html)
-- Jun 23 - [An airline worker texted a passenger as she waited to board her flight after looking up her number in the company system, then told her to 'block me' if she didn't like it](https://news.yahoo.com/airline-worker-texted-passenger-she-143122763.html)
-- Jun 23 - [Supreme Court upholds federal law used to prosecute people who encourage illegal immigration](https://news.yahoo.com/supreme-court-upholds-federal-law-141447179.html)
+- Jun 23 - [Did a tsunami hit Florida? Sort of. Here’s what experts are saying about the phenomena.](https://news.yahoo.com/did-tsunami-hit-florida-sort-155513827.html)
+- Jun 23 - [Man said he slipped and fell at Kroger – but there was security video, GA officials say](https://news.yahoo.com/man-said-slipped-fell-kroger-154439011.html)
 <!-- feed end -->
