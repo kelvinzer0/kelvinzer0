@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Ukraine war based on lies: Wagner mercenary chief](https://news.yahoo.com/ukraine-war-based-lies-wagner-183213913.html)
+- Jun 23 - [Body of missing 18-year-old on trip found in ‘remote’ bonfire pile, Arizona cops say](https://news.yahoo.com/body-missing-18-old-trip-192004751.html)
+- Jun 23 - [Watch a freak storm rip through cruise ship in Florida. ‘Like a scene from  Twister’](https://news.yahoo.com/watch-freak-storm-rip-cruise-184543023.html)
+- Jun 23 - [Experts say Smith's evidence filing is a "display of strength": “Terrifying day” for Trump lawyers](https://news.yahoo.com/experts-smiths-evidence-filing-display-184455376.html)
 - Jun 23 - [Man gets life sentence for killing mail carrier who refused to deliver marijuana package](https://news.yahoo.com/man-gets-life-sentence-killing-182033683.html)
-- Jun 23 - [Garland responds to IRS whistleblower allegations in Hunter Biden case](https://news.yahoo.com/garland-responds-irs-whistleblower-allegations-175700579.html)
-- Jun 23 - [An Army Armor Officer's analysis of the Bradley in Ukraine](https://news.yahoo.com/army-armor-officers-analysis-bradley-173309284.html)
-- Jun 23 - [Clarence Thomas Uses Immigration Case to Attack the Right to Birth Control](https://news.yahoo.com/clarence-thomas-uses-immigration-case-173000293.html)
+- Jun 23 - [Gorgeous Toyota GR GT3 race concept will spawn a sports car for the road](https://www.autoblog.com/2023/06/23/gorgeous-toyota-gr-gt3-race-concept-will-spawn-production-sports-car/)
 <!-- feed end -->
