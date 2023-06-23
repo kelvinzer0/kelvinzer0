@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [“More conservative jury pool”: Judge signals she'll hold Mar-a-Lago trial in “solid Trump country”](https://news.yahoo.com/more-conservative-jury-pool-judge-124757041.html)
 - Jun 23 - [Titanic sub - Live: Families could sue OceanGate despite death waivers, says expert](https://news.yahoo.com/titanic-sub-live-family-sue-oceangate-death-waivers-120926632.html)
+- Jun 23 - ['A slow-moving car crash': The US Education Department is set to send out student loan bills for the first time in 3 years — but it had to cut back due to a cash crunch. What could go wrong?](https://finance.yahoo.com/news/slow-moving-car-crash-us-125000789.html)
 - Jun 23 - [Ukraine’s missile battle has transformed the image of America’s Patriot interceptor](https://news.yahoo.com/ukraine-missile-battle-transformed-image-113144303.html)
 - Jun 23 - ['You wussed out': Dave Ramsey reveals the real reason Americans are going broke — and it's not because of hot inflation. 3 simple steps to secure your financial foundation](https://finance.yahoo.com/news/wussed-dave-ramsey-reveals-real-100000006.html)
-- Jun 23 - [These twins did the same workout for 3 months — but 1 exercised for half as long each time. By the end, they saw almost exactly the same results.](https://www.yahoo.com/lifestyle/twins-did-same-workout-3-090821991.html)
-- Jun 23 - [Tropical Storm Cindy develops in the Atlantic](https://news.yahoo.com/tropical-storm-cindy-develops-atlantic-030815696.html)
 <!-- feed end -->
