@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Supreme Court backs Biden on immigration enforcement](https://news.yahoo.com/supreme-court-backs-biden-immigration-162825617.html)
+- Jun 23 - [Ukrainian officers graduate from military school](https://news.yahoo.com/ukrainian-officers-graduate-military-school-174132479.html)
+- Jun 23 - [Chris Christie Shouts Down Trump Supporters at Evangelical Conference: ‘You Can Boo All You Want’ (Video)](https://www.yahoo.com/entertainment/chris-christie-shouts-down-trump-172713912.html)
+- Jun 23 - [Money Expert Jaspreet Singh Says You Can Use ChatGPT To Become a Millionaire — Here’s How](https://finance.yahoo.com/news/money-expert-jaspreet-singh-says-170006771.html)
+- Jun 23 - [Robert Ballard, who discovered Titanic wreck, said authorities 'immediately knew' where to look when they heard the Titan's implosion, but it took days for an ROV to get there](https://news.yahoo.com/robert-ballard-discovered-titanic-wreck-163319516.html)
 - Jun 23 - [Georgia Man Paid $80K for Painful Limb Lengthening Surgery After Crush Rejected Him: 'Feel Like a New Man'](https://www.yahoo.com/entertainment/georgia-man-paid-80k-painful-160950167.html)
-- Jun 23 - ["This is so stupid": MTG mocked over resolution to pretend Trump's impeachments never happened](https://news.yahoo.com/stupid-mtg-mocked-over-resolution-160157143.html)
-- Jun 23 - [Did a tsunami hit Florida? Sort of. Here’s what experts are saying about the phenomena.](https://news.yahoo.com/did-tsunami-hit-florida-sort-155513827.html)
-- Jun 23 - [Man said he slipped and fell at Kroger – but there was security video, GA officials say](https://news.yahoo.com/man-said-slipped-fell-kroger-154439011.html)
 <!-- feed end -->
