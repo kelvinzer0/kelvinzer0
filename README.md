@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 23 - [Titanic sub - Live: James Cameron regrets not raising alarm over OceanGate safety fears](https://news.yahoo.com/titanic-sub-live-james-cameron-oceangate-safety-fears-055917783.html)
-- Jun 23 - [Car with baby inside riddled with bullets as 2 women open fire on I-285, police say](https://news.yahoo.com/car-baby-inside-riddled-bullets-210030367.html)
 - Jun 23 - [Whoops! Jim Jordan Accidentally Nails The Truth About Trump Allegations](https://news.yahoo.com/whoops-jim-jordan-accidentally-nails-045256856.html)
 - Jun 23 - [US combat ship to make rare port call in Vietnam amid South China Sea tensions](https://news.yahoo.com/us-combat-ship-rare-port-041246561.html)
 - Jun 23 - ['Soulmates' Killed At Music Fest Were Allegedly The Victims of A Man High On Mushrooms](https://news.yahoo.com/couple-described-soulmates-allegedly-killed-005125559.html)
+- Jun 23 - [IRS agent tells House committee there was meddling with Hunter Biden case](https://news.yahoo.com/irs-agent-tells-house-committee-003349369.html)
 <!-- feed end -->
