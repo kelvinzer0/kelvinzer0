@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Ukrainian officers graduate from military school](https://news.yahoo.com/ukrainian-officers-graduate-military-school-174132479.html)
-- Jun 23 - [Chris Christie Shouts Down Trump Supporters at Evangelical Conference: ‘You Can Boo All You Want’ (Video)](https://www.yahoo.com/entertainment/chris-christie-shouts-down-trump-172713912.html)
-- Jun 23 - [Money Expert Jaspreet Singh Says You Can Use ChatGPT To Become a Millionaire — Here’s How](https://finance.yahoo.com/news/money-expert-jaspreet-singh-says-170006771.html)
-- Jun 23 - [Robert Ballard, who discovered Titanic wreck, said authorities 'immediately knew' where to look when they heard the Titan's implosion, but it took days for an ROV to get there](https://news.yahoo.com/robert-ballard-discovered-titanic-wreck-163319516.html)
-- Jun 23 - [Georgia Man Paid $80K for Painful Limb Lengthening Surgery After Crush Rejected Him: 'Feel Like a New Man'](https://www.yahoo.com/entertainment/georgia-man-paid-80k-painful-160950167.html)
+- Jun 23 - [Ukraine war based on lies: Wagner mercenary chief](https://news.yahoo.com/ukraine-war-based-lies-wagner-183213913.html)
+- Jun 23 - [Man gets life sentence for killing mail carrier who refused to deliver marijuana package](https://news.yahoo.com/man-gets-life-sentence-killing-182033683.html)
+- Jun 23 - [Garland responds to IRS whistleblower allegations in Hunter Biden case](https://news.yahoo.com/garland-responds-irs-whistleblower-allegations-175700579.html)
+- Jun 23 - [An Army Armor Officer's analysis of the Bradley in Ukraine](https://news.yahoo.com/army-armor-officers-analysis-bradley-173309284.html)
+- Jun 23 - [Clarence Thomas Uses Immigration Case to Attack the Right to Birth Control](https://news.yahoo.com/clarence-thomas-uses-immigration-case-173000293.html)
 <!-- feed end -->
