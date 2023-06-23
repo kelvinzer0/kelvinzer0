@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [Titanic sub - Live: Families could sue OceanGate despite death waivers, says expert](https://news.yahoo.com/titanic-sub-live-family-sue-oceangate-death-waivers-120926632.html)
+- Jun 23 - [Ukraine’s missile battle has transformed the image of America’s Patriot interceptor](https://news.yahoo.com/ukraine-missile-battle-transformed-image-113144303.html)
 - Jun 23 - ['You wussed out': Dave Ramsey reveals the real reason Americans are going broke — and it's not because of hot inflation. 3 simple steps to secure your financial foundation](https://finance.yahoo.com/news/wussed-dave-ramsey-reveals-real-100000006.html)
 - Jun 23 - [These twins did the same workout for 3 months — but 1 exercised for half as long each time. By the end, they saw almost exactly the same results.](https://www.yahoo.com/lifestyle/twins-did-same-workout-3-090821991.html)
 - Jun 23 - [Tropical Storm Cindy develops in the Atlantic](https://news.yahoo.com/tropical-storm-cindy-develops-atlantic-030815696.html)
-- Jun 23 - [Stephen King Taunts Ted Cruz With A Blast From His Recent Past](https://www.yahoo.com/entertainment/stephen-king-taunts-ted-cruz-085444481.html)
-- Jun 23 - [Ex-Marine Reveals Crushing Sneak Attack on Putin’s Men](https://news.yahoo.com/ex-marine-reveals-crushing-sneak-084141847.html)
 <!-- feed end -->
