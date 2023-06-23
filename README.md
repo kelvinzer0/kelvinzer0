@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [James Cameron says Titan submersible passengers likely had warning just before implosion](https://www.yahoo.com/entertainment/james-cameron-says-titan-submersible-013639423.html)
+- Jun 23 - [The Navy first detected the Titan sub's implosion soon after it went missing: WSJ](https://news.yahoo.com/navy-first-detected-titan-subs-221226319.html)
 - Jun 23 - [IRS agent tells House committee there was meddling with Hunter Biden case](https://news.yahoo.com/irs-agent-tells-house-committee-003349369.html)
+- Jun 23 - [Arizona Republican election official sues Kari Lake for defamation](https://news.yahoo.com/arizona-republican-election-official-sues-003131425.html)
 - Jun 22 - [This is the ‘single most important’ piece of evidence in Trump indictment, according to CNN legal analyst](https://news.yahoo.com/single-most-important-piece-evidence-233343085.html)
-- Jun 22 - [Watch an Alligator Thrash and Eat a Giant Invasive Python in the Everglades](https://www.yahoo.com/lifestyle/watch-alligator-thrash-eat-giant-220000659.html)
-- Jun 22 - [GOP releases testimony of whistleblowers claiming interference in Hunter Biden case](https://news.yahoo.com/gop-releases-whistleblower-testimonies-ex-214242767.html)
-- Jun 22 - [Alpharetta homeowner says he was beaten with belt, after telling couple to stop having sex outside](https://news.yahoo.com/alpharetta-homeowner-says-beaten-belt-213745666.html)
 <!-- feed end -->
