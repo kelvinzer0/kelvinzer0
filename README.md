@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Car with baby inside riddled with bullets as 2 women open fire on I-285, police say](https://news.yahoo.com/car-baby-inside-riddled-bullets-210030367.html)
+- Jun 23 - [A man checked into a 5-star hotel in India for one night. The hotel says he stayed for 603 days — and didn't pay his $70,000 bill.](https://news.yahoo.com/man-checked-5-star-hotel-055603687.html)
 - Jun 23 - [Whoops! Jim Jordan Accidentally Nails The Truth About Trump Allegations](https://news.yahoo.com/whoops-jim-jordan-accidentally-nails-045256856.html)
 - Jun 23 - [US combat ship to make rare port call in Vietnam amid South China Sea tensions](https://news.yahoo.com/us-combat-ship-rare-port-041246561.html)
+- Jun 23 - [Tropical Storm Cindy develops in the Atlantic](https://news.yahoo.com/tropical-storm-cindy-develops-atlantic-030815696.html)
 - Jun 23 - ['Soulmates' Killed At Music Fest Were Allegedly The Victims of A Man High On Mushrooms](https://news.yahoo.com/couple-described-soulmates-allegedly-killed-005125559.html)
-- Jun 23 - [Arizona Republican election official sues Kari Lake for defamation](https://news.yahoo.com/arizona-republican-election-official-sues-003131425.html)
 <!-- feed end -->
