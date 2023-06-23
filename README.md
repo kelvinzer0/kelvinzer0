@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [The Titan sub was likely trying to surface and the passengers probably knew the hull was 'starting to crack' before it imploded, James Cameron says](https://news.yahoo.com/titan-sub-likely-trying-surface-201025055.html)
+- Jun 23 - [Newly released body camera footage shows Border Patrol agents shooting a tribal member in Arizona](https://news.yahoo.com/newly-released-body-camera-footage-195613941.html)
+- Jun 23 - [Wagner chief vows to 'stop' Russia after alleged attack on forces](https://news.yahoo.com/wagner-chief-vows-stop-russia-195459412.html)
 - Jun 23 - [Body of missing 18-year-old on trip found in ‘remote’ bonfire pile, Arizona cops say](https://news.yahoo.com/body-missing-18-old-trip-192004751.html)
 - Jun 23 - [Watch a freak storm rip through cruise ship in Florida. ‘Like a scene from  Twister’](https://news.yahoo.com/watch-freak-storm-rip-cruise-184543023.html)
-- Jun 23 - [Experts say Smith's evidence filing is a "display of strength": “Terrifying day” for Trump lawyers](https://news.yahoo.com/experts-smiths-evidence-filing-display-184455376.html)
-- Jun 23 - [Man gets life sentence for killing mail carrier who refused to deliver marijuana package](https://news.yahoo.com/man-gets-life-sentence-killing-182033683.html)
-- Jun 23 - [Gorgeous Toyota GR GT3 race concept will spawn a sports car for the road](https://www.autoblog.com/2023/06/23/gorgeous-toyota-gr-gt3-race-concept-will-spawn-production-sports-car/)
 <!-- feed end -->
