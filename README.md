@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [Russian mercenary boss Prigozhin to move to Belarus under Wagner deal, Kremlin says](https://news.yahoo.com/russian-mercenary-boss-prigozhin-move-204510888.html)
 - Jun 24 - [Russia coup latest: Wagner boss will move to Belarus under deal to withdraw troops](https://news.yahoo.com/ukraine-russia-war-live-ukraine-231214837.html)
 - Jun 24 - [Neighbors thought they were paying their taxes. Deputies say the Spalding clerk was stealing them](https://news.yahoo.com/neighbors-thought-were-paying-taxes-181441908.html)
 - Jun 24 - [Emma Bunton says menopause ruined her libido. Here's what experts say can help.](https://www.yahoo.com/lifestyle/emma-bunton-menopause-mental-health-ruined-libido-171947092.html)
-- Jun 24 - [A bridge over Yellowstone River collapses, sending a freight train into the waters below](https://news.yahoo.com/bridge-over-yellowstone-river-collapses-163317766.html)
-- Jun 24 - [The 40-year battle over a tiny crag in the Atlantic Ocean](https://news.yahoo.com/40-battle-over-tiny-crag-160000325.html)
+- Jun 24 - [Freight train carrying hot asphalt, molten sulfur plunges into the Yellowstone River as bridge fails](https://news.yahoo.com/bridge-over-yellowstone-river-collapses-163317766.html)
 <!-- feed end -->
