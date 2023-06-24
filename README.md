@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 24 - [US says Wagner coup is ‘real’ and ‘serious’ as White House consults allies](https://news.yahoo.com/us-says-wagner-coup-real-020743174.html)
 - Jun 24 - [Trump wants the $5 million he owes E. Jean Carroll held as cash, not as a bond, in a weird move that saves him just $55,000](https://news.yahoo.com/trump-wants-5-million-owes-003342949.html)
-- Jun 24 - [Eleven injured in Hong Kong in Cathay Pacific flight incident](https://news.yahoo.com/eleven-injured-hong-kong-cathay-002604549.html)
+- Jun 24 - [Cathay Pacific flight incident injures 11 in Hong Kong](https://news.yahoo.com/eleven-injured-hong-kong-cathay-002604549.html)
 - Jun 23 - [What is an implosion, and what would it have been like for the Titanic sub-passengers?](https://news.yahoo.com/implosion-titanic-sub-passengers-211448572.html)
-- Jun 23 - [Homeowner furious after careless neighbor destroys their yard: ‘Get an attorney’](https://news.yahoo.com/homeowner-furious-careless-neighbor-destroys-200000438.html)
+- Jun 23 - [Giuliani Ordered to Pay Georgia Election Workers’ Attorney Fees](https://news.yahoo.com/giuliani-ordered-pay-georgia-election-205815524.html)
 <!-- feed end -->
