@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [A bridge over Yellowstone River collapses, sending a freight train into the waters below](https://news.yahoo.com/bridge-over-yellowstone-river-collapses-163317766.html)
 - Jun 24 - [Elon Musk Gives a Blunt Piece of Advice to Vladimir Putin](https://www.thestreet.com/technology/elon-musk-gives-a-blunt-piece-of-advice-to-vladimir-putin?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jun 24 - [Putin's plane reportedly departs from Moscow to Valdai, disappears from radars – media](https://news.yahoo.com/putins-plane-reportedly-departs-moscow-133300722.html)
 - Jun 24 - [Russia is on the verge of total disintegration, as local elites scramble for an escape](https://news.yahoo.com/russia-verge-total-disintegration-local-130513932.html)
-- Jun 24 - [Ex-high school math teacher in Fresno sentenced for having sex with former student](https://news.yahoo.com/ex-high-school-math-teacher-123000508.html)
-- Jun 24 - [‘Quite unprecedented territory’: CNN reporter details developments in Russia](https://news.yahoo.com/russian-president-vladimir-putin-issues-110030543.html)
+- Jun 24 - [Billions of roubles: Prigozhin claims Russian forces have found a van and 2 buses containing boxes of his money](https://news.yahoo.com/billions-roubles-prigozhin-claims-russian-124613179.html)
 <!-- feed end -->
