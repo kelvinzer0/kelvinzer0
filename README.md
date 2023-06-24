@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [Russia coup latest: Wagner boss turns back troops 'to avoid bloodshed'](https://news.yahoo.com/ukraine-russia-war-live-ukraine-231214837.html)
 - Jun 24 - [A bridge over Yellowstone River collapses, sending a freight train into the waters below](https://news.yahoo.com/bridge-over-yellowstone-river-collapses-163317766.html)
 - Jun 24 - [The 40-year battle over a tiny crag in the Atlantic Ocean](https://news.yahoo.com/40-battle-over-tiny-crag-160000325.html)
 - Jun 24 - [Russia battles Wagner rebels advancing on Moscow](https://news.yahoo.com/russia-battles-wagner-rebels-advancing-152617824.html)
-- Jun 24 - [Elon Musk Gives a Blunt Piece of Advice to Vladimir Putin](https://www.thestreet.com/technology/elon-musk-gives-a-blunt-piece-of-advice-to-vladimir-putin?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jun 24 - [Putin's plane reportedly departs from Moscow to Valdai, disappears from radars – media](https://news.yahoo.com/putins-plane-reportedly-departs-moscow-133300722.html)
+- Jun 24 - [Russia is on the verge of total disintegration, as local elites scramble for an escape](https://news.yahoo.com/russia-verge-total-disintegration-local-130513932.html)
 <!-- feed end -->
