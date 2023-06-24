@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [Putin is at risk of losing his iron grip on power. The next 24 hours are critical](https://news.yahoo.com/putin-risk-losing-iron-grip-095846126.html)
 - Jun 24 - [Putin’s aura of invincibility is shattered - and in Russia, weakness is terminal](https://news.yahoo.com/putin-aura-invincibility-shattered-russia-075607718.html)
 - Jun 24 - [Kinzinger: Wagner Leader's Russia Challenge A 'Massive Blow' To Tucker Carlson](https://news.yahoo.com/kinzinger-wagner-leaders-russia-challenge-050215166.html)
 - Jun 24 - [Analysis: Donald Trump's war on truth confronts another test with voters](https://news.yahoo.com/analysis-donald-trumps-war-truth-040601762.html)
 - Jun 24 - [Trump wants the $5 million he owes E. Jean Carroll held as cash, not as a bond, in a weird move that saves him just $55,000](https://news.yahoo.com/trump-wants-5-million-owes-003342949.html)
-- Jun 24 - [Cathay Pacific flight incident injures 11 in Hong Kong](https://news.yahoo.com/eleven-injured-hong-kong-cathay-002604549.html)
 <!-- feed end -->
