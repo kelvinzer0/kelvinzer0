@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 24 - [Trump wants the $5 million he owes E. Jean Carroll held as cash, not as a bond, in a weird move that saves him just $55,000](https://news.yahoo.com/trump-wants-5-million-owes-003342949.html)
 - Jun 23 - [What is an implosion, and what would it have been like for the Titanic sub-passengers?](https://news.yahoo.com/implosion-titanic-sub-passengers-211448572.html)
-- Jun 23 - [Giuliani Ordered to Pay Georgia Election Workers’ Attorney Fees](https://news.yahoo.com/giuliani-ordered-pay-georgia-election-205815524.html)
 - Jun 23 - [Homeowner furious after careless neighbor destroys their yard: ‘Get an attorney’](https://news.yahoo.com/homeowner-furious-careless-neighbor-destroys-200000438.html)
 - Jun 23 - [Body of missing 18-year-old on trip found in ‘remote’ bonfire pile, Arizona cops say](https://news.yahoo.com/body-missing-18-old-trip-192004751.html)
+- Jun 23 - [San Francisco mayor proposes tearing down Westfield Mall and other shuttered downtown retailers](https://finance.yahoo.com/news/san-francisco-mayor-proposes-tearing-191455078.html)
 <!-- feed end -->
