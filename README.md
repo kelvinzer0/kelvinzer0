@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [‘Freaked Out’ Russia Shocked by Military Coup Against Putin](https://news.yahoo.com/freaked-russia-shocked-military-coup-121945733.html)
+- Jun 24 - [Packages from China are surging into the United States. Some say $800 duty-free limit was a mistake](https://news.yahoo.com/packages-china-surging-u-lawmakers-121900078.html)
+- Jun 24 - [An NFL quarterback who killed a black bear as part of his 'bucket list' is being called 'barbaric' on social media](https://www.yahoo.com/entertainment/nfl-quarterback-killed-black-bear-115109129.html)
+- Jun 24 - [Justice Department Asks For Lengthy Postponement In Trial Of Donald Trump](https://news.yahoo.com/justice-department-asks-lengthy-postponement-105951692.html)
 - Jun 24 - [Putin is at risk of losing his iron grip on power. The next 24 hours are critical](https://news.yahoo.com/putin-risk-losing-iron-grip-095846126.html)
-- Jun 24 - [NATO hesitated when Ukraine begged for weapons. Now their counteroffensive against Russia is hitting snags, analysts say.](https://news.yahoo.com/nato-hesitated-ukraine-begged-weapons-104500771.html)
-- Jun 24 - [The US Marine Corps' deadliest sniper might never have become one if it weren't for a wild night of drinking and a fake toothache, new book reveals](https://news.yahoo.com/us-marine-corps-deadliest-sniper-100100519.html)
-- Jun 24 - [Kinzinger: Wagner Leader's Russia Challenge A 'Massive Blow' To Tucker Carlson](https://news.yahoo.com/kinzinger-wagner-leaders-russia-challenge-050215166.html)
-- Jun 24 - [Analysis: Donald Trump's war on truth confronts another test with voters](https://news.yahoo.com/analysis-donald-trumps-war-truth-040601762.html)
 <!-- feed end -->
