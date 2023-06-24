@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Moscow accuses Wagner of stoking 'civil conflict'](https://news.yahoo.com/wagner-chief-vows-stop-russia-195459412.html)
+- Jun 24 - [Trump wants the $5 million he owes E. Jean Carroll held as cash, not as a bond, in a weird move that saves him just $55,000](https://news.yahoo.com/trump-wants-5-million-owes-003342949.html)
 - Jun 23 - [What is an implosion, and what would it have been like for the Titanic sub-passengers?](https://news.yahoo.com/implosion-titanic-sub-passengers-211448572.html)
-- Jun 23 - [Judge rejects transgender plaintiffs' bid to change their birth certificates in Tennessee](https://news.yahoo.com/judge-rejects-transgender-plaintiffs-bid-210113440.html)
+- Jun 23 - [Giuliani Ordered to Pay Georgia Election Workers’ Attorney Fees](https://news.yahoo.com/giuliani-ordered-pay-georgia-election-205815524.html)
 - Jun 23 - [Homeowner furious after careless neighbor destroys their yard: ‘Get an attorney’](https://news.yahoo.com/homeowner-furious-careless-neighbor-destroys-200000438.html)
 - Jun 23 - [Body of missing 18-year-old on trip found in ‘remote’ bonfire pile, Arizona cops say](https://news.yahoo.com/body-missing-18-old-trip-192004751.html)
 <!-- feed end -->
