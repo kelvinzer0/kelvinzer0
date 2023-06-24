@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Army vehicles pass Kremlin as rebels approach Moscow](https://news.yahoo.com/army-vehicles-pass-kremlin-rebels-133338281.html)
+- Jun 24 - [Putin's plane reportedly departs from Moscow to Valdai, disappears from radars – media](https://news.yahoo.com/putins-plane-reportedly-departs-moscow-133300722.html)
 - Jun 24 - [Russia is on the verge of total disintegration, as local elites scramble for an escape](https://news.yahoo.com/russia-verge-total-disintegration-local-130513932.html)
+- Jun 24 - [Ex-high school math teacher in Fresno sentenced for having sex with former student](https://news.yahoo.com/ex-high-school-math-teacher-123000508.html)
 - Jun 24 - [‘Freaked Out’ Russia Shocked by Military Coup Against Putin](https://news.yahoo.com/freaked-russia-shocked-military-coup-121945733.html)
 - Jun 24 - [Packages from China are surging into the United States. Some say $800 duty-free limit was a mistake](https://news.yahoo.com/packages-china-surging-u-lawmakers-121900078.html)
-- Jun 24 - [An NFL quarterback who killed a black bear as part of his 'bucket list' is being called 'barbaric' on social media](https://www.yahoo.com/entertainment/nfl-quarterback-killed-black-bear-115109129.html)
 <!-- feed end -->
