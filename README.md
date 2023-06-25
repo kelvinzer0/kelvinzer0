@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 25 - [Man Tells Pregnant Woman He Has 'Bad Feet & Knees' After Refusing To Give Up His Seat So She Could Sit](https://news.yahoo.com/man-tells-pregnant-woman-bad-021500789.html)
+- Jun 25 - [Human remains found in California mountain area where actor Julian Sands disappeared 5 months ago](https://news.yahoo.com/human-remains-found-california-mountain-005732838.html)
 - Jun 24 - [Argentine dictatorship’s ‘death flight’ plane returned home for a historical reckoning](https://news.yahoo.com/argentine-dictatorship-death-flight-plane-223337609.html)
+- Jun 24 - [Ford Explorer recall prompts Transportation Department investigation](https://news.yahoo.com/ford-explorer-recall-prompts-transportation-213936679.html)
 - Jun 24 - [In 1990, Tom Stuker bought a lifetime pass from United Airlines for $290,000. He has since flown 23 million miles and calls the purchase the 'best investment' of his life.](https://news.yahoo.com/1990-tom-stuker-bought-lifetime-212506621.html)
-- Jun 24 - [Wagner boss will move to Belarus under deal to withdraw troops](https://news.yahoo.com/ukraine-russia-war-live-ukraine-231214837.html)
-- Jun 24 - [A YouTube star rode in the Titan sub days before it went missing. His footage shows OceanGate CEO Stockton Rush discussing control issues with the 'brains' of the sub.](https://news.yahoo.com/youtube-star-rode-titan-sub-201001484.html)
-- Jun 24 - [Neighbors thought they were paying their taxes. Deputies say the Spalding clerk was stealing them](https://news.yahoo.com/neighbors-thought-were-paying-taxes-181441908.html)
 <!-- feed end -->
