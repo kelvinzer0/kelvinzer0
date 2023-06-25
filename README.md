@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 25 - [British bombers pulled off a raid on the other side of the planet in the UK's first major conflict since World War II](https://news.yahoo.com/british-bombers-pulled-off-raid-123700127.html)
+- Jun 25 - [A Fortune 500 company faces backlash for supporting its transgender employees. Its CEO has a message: ‘Good luck using somebody else’s product’](https://finance.yahoo.com/news/fortune-500-company-faces-backlash-123000562.html)
 - Jun 25 - [When wealthy adventurers take huge risks, who should foot the bill for rescue attempts?](https://news.yahoo.com/wealthy-adventurers-huge-risks-foot-113658709.html)
 - Jun 25 - [Contractor Destroys The Bathroom He Just Built After Customer Refuses To Pay Him](https://news.yahoo.com/contractor-destroys-bathroom-just-built-111500194.html)
-- Jun 25 - [Taylor Swift turned down Meghan Markle's personal invite to appear on her canceled Spotify podcast, report says](https://www.yahoo.com/entertainment/taylor-swift-turned-down-meghan-102157232.html)
 - Jun 25 - [Trump’s vulnerability on crime may have been exposed in Fox interview](https://news.yahoo.com/trump-vulnerability-crime-may-exposed-100000763.html)
 <!-- feed end -->
