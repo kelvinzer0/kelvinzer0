@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 25 - [Experts Believe Donald Trump May Be Trying to Delay Legal Trials Until After This Significant Timeframe](https://www.yahoo.com/entertainment/experts-believe-donald-trump-may-190800959.html)
 - Jun 25 - [Kids scream for help on call with 911. Mom found holding toddler under water, cops say](https://news.yahoo.com/kids-scream-help-call-911-174929235.html)
+- Jun 25 - [A sunken boat closes PortMiami, leaving 16,000 cruise passengers at sea](https://news.yahoo.com/sunken-boat-closes-portmiami-leaving-174514955.html)
 - Jun 25 - [Conservative former judge calls Trump support 'colossal political miscalculation'](https://news.yahoo.com/conservative-former-judge-calls-trump-173254038.html)
-- Jun 25 - [2 Ukrainian teenagers who it's alleged were tortured by the Russians shot an 'occupier' and a 'collaborator' before they were gunned down, reports say](https://news.yahoo.com/2-ukrainian-teenagers-alleged-were-162121556.html)
-- Jun 25 - [Jet engine pulls in worker at Texas airport, killing him, officials say](https://news.yahoo.com/jet-engine-pulls-worker-texas-154957340.html)
-- Jun 25 - [US Navy: Hefty salvage system not required in probe of fatal Titan implosion](https://news.yahoo.com/us-navy-hefty-salvage-system-153112942.html)
+- Jun 25 - [Israel praises foiling of Iranian attack against Israeli targets in Cyprus](https://news.yahoo.com/israel-praises-foiling-iranian-attack-172855354.html)
 <!-- feed end -->
