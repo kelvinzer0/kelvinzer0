@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [Argentine dictatorship’s ‘death flight’ plane returned home for a historical reckoning](https://news.yahoo.com/argentine-dictatorship-death-flight-plane-223337609.html)
 - Jun 24 - [In 1990, Tom Stuker bought a lifetime pass from United Airlines for $290,000. He has since flown 23 million miles and calls the purchase the 'best investment' of his life.](https://news.yahoo.com/1990-tom-stuker-bought-lifetime-212506621.html)
-- Jun 24 - [Russia coup latest: Wagner boss will move to Belarus under deal to withdraw troops](https://news.yahoo.com/ukraine-russia-war-live-ukraine-231214837.html)
+- Jun 24 - [Wagner boss will move to Belarus under deal to withdraw troops](https://news.yahoo.com/ukraine-russia-war-live-ukraine-231214837.html)
 - Jun 24 - [A YouTube star rode in the Titan sub days before it went missing. His footage shows OceanGate CEO Stockton Rush discussing control issues with the 'brains' of the sub.](https://news.yahoo.com/youtube-star-rode-titan-sub-201001484.html)
 - Jun 24 - [Neighbors thought they were paying their taxes. Deputies say the Spalding clerk was stealing them](https://news.yahoo.com/neighbors-thought-were-paying-taxes-181441908.html)
-- Jun 24 - [Emma Bunton says menopause ruined her libido. Here's what experts say can help.](https://www.yahoo.com/lifestyle/emma-bunton-menopause-mental-health-ruined-libido-171947092.html)
 <!-- feed end -->
