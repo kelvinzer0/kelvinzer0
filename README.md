@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 25 - [US Navy: Hefty salvage system not required in probe of fatal Titan implosion](https://news.yahoo.com/us-navy-hefty-salvage-system-153112942.html)
+- Jun 25 - [Joint Forces Commander on possible attack of Wagner mercenaries from Belarus: It will be nothing but suicide](https://news.yahoo.com/joint-forces-commander-possible-attack-150824880.html)
 - Jun 25 - [Two people died and 12 were hurt in a shooting at a street party that was promoted on social media](https://news.yahoo.com/two-slain-dozen-wounded-during-140550640.html)
 - Jun 25 - [British bombers pulled off a raid on the other side of the planet in the UK's first major conflict since World War II](https://news.yahoo.com/british-bombers-pulled-off-raid-123700127.html)
 - Jun 25 - [A Fortune 500 company faces backlash for supporting its transgender employees. Its CEO has a message: ‘Good luck using somebody else’s product’](https://finance.yahoo.com/news/fortune-500-company-faces-backlash-123000562.html)
-- Jun 25 - [When wealthy adventurers take huge risks, who should foot the bill for rescue attempts?](https://news.yahoo.com/wealthy-adventurers-huge-risks-foot-113658709.html)
-- Jun 25 - [A European jet startup wants to fly people from New York to London in 90 minutes using a hypersonic jet. See what the plane could look like.](https://news.yahoo.com/european-jet-startup-wants-fly-112100392.html)
 <!-- feed end -->
