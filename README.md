@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 25 - [When wealthy adventurers take huge risks, who should foot the bill for rescue attempts?](https://news.yahoo.com/wealthy-adventurers-huge-risks-foot-113658709.html)
+- Jun 25 - [Taylor Swift turned down Meghan Markle's personal invite to appear on her canceled Spotify podcast, report says](https://www.yahoo.com/entertainment/taylor-swift-turned-down-meghan-102157232.html)
 - Jun 25 - [Kadyrov’s units suddenly withdraw from Maryinka, Ukrainian military says](https://news.yahoo.com/kadyrov-units-suddenly-withdraw-maryinka-083100921.html)
 - Jun 25 - [Taliban leader claims women are provided with a 'comfortable and prosperous life' in Afghanistan](https://news.yahoo.com/taliban-leader-claims-women-provided-080235373.html)
 - Jun 25 - [Karine Jean-Pierre Fires Back At CNN Reporter In Tense Exchange Over Hunter Biden](https://news.yahoo.com/karine-jean-pierre-fires-back-073945723.html)
-- Jun 25 - [Trump Crowns Presidents With An 'Absolute Right' To Docs: 'That's The Law'](https://news.yahoo.com/trump-crowns-presidents-absolute-docs-044612947.html)
-- Jun 25 - [As fuel taxes plummet, states weigh charging by the mile instead of the tank](https://news.yahoo.com/fuel-taxes-plummet-states-weigh-042526446.html)
 <!-- feed end -->
