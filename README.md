@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 25 - [Kadyrov’s units suddenly withdraw from Maryinka, Ukrainian military says](https://news.yahoo.com/kadyrov-units-suddenly-withdraw-maryinka-083100921.html)
-- Jun 25 - [Popular Fast Food Chains Have Changed Drastically — Here Are 17 "Former Norms" People Are Nostalgic For](https://www.yahoo.com/lifestyle/popular-fast-food-chains-changed-081603437.html)
+- Jun 25 - [Taliban leader claims women are provided with a 'comfortable and prosperous life' in Afghanistan](https://news.yahoo.com/taliban-leader-claims-women-provided-080235373.html)
+- Jun 25 - [Karine Jean-Pierre Fires Back At CNN Reporter In Tense Exchange Over Hunter Biden](https://news.yahoo.com/karine-jean-pierre-fires-back-073945723.html)
 - Jun 25 - [Trump Crowns Presidents With An 'Absolute Right' To Docs: 'That's The Law'](https://news.yahoo.com/trump-crowns-presidents-absolute-docs-044612947.html)
-- Jun 25 - [Sao Paulo's downtown takes a turn for the worse, with wandering drug addicts harassing residents](https://news.yahoo.com/sao-paulos-downtown-takes-turn-041631226.html)
-- Jun 25 - [Why Did Putin Let Prigozhin Walk Away?](https://news.yahoo.com/why-did-putin-let-prigozhin-022648853.html)
+- Jun 25 - [As fuel taxes plummet, states weigh charging by the mile instead of the tank](https://news.yahoo.com/fuel-taxes-plummet-states-weigh-042526446.html)
 <!-- feed end -->
