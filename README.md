@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 25 - [Kadyrov’s units suddenly withdraw from Maryinka, Ukrainian military says](https://news.yahoo.com/kadyrov-units-suddenly-withdraw-maryinka-083100921.html)
+- Jun 25 - [Popular Fast Food Chains Have Changed Drastically — Here Are 17 "Former Norms" People Are Nostalgic For](https://www.yahoo.com/lifestyle/popular-fast-food-chains-changed-081603437.html)
+- Jun 25 - [Trump Crowns Presidents With An 'Absolute Right' To Docs: 'That's The Law'](https://news.yahoo.com/trump-crowns-presidents-absolute-docs-044612947.html)
 - Jun 25 - [Sao Paulo's downtown takes a turn for the worse, with wandering drug addicts harassing residents](https://news.yahoo.com/sao-paulos-downtown-takes-turn-041631226.html)
 - Jun 25 - [Why Did Putin Let Prigozhin Walk Away?](https://news.yahoo.com/why-did-putin-let-prigozhin-022648853.html)
-- Jun 25 - [In country with world’s lowest fertility rate, doubts creep in about wisdom of ‘no-kids zones’](https://news.yahoo.com/country-world-lowest-fertility-rate-021537602.html)
-- Jun 25 - [Man Tells Pregnant Woman He Has 'Bad Feet & Knees' After Refusing To Give Up His Seat So She Could Sit](https://news.yahoo.com/man-tells-pregnant-woman-bad-021500789.html)
-- Jun 25 - [Human remains found in California mountain area where actor Julian Sands disappeared 5 months ago](https://news.yahoo.com/human-remains-found-california-mountain-005732838.html)
 <!-- feed end -->
