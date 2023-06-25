@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 25 - [Kids scream for help on call with 911. Mom found holding toddler under water, cops say](https://news.yahoo.com/kids-scream-help-call-911-174929235.html)
 - Jun 25 - [Conservative former judge calls Trump support 'colossal political miscalculation'](https://news.yahoo.com/conservative-former-judge-calls-trump-173254038.html)
-- Jun 25 - [I visited the Cu Chi Tunnels used to ambush US soldiers, a grisly but unforgettable reminder of the Vietnam War — take a look](https://news.yahoo.com/visited-cu-chi-tunnels-used-164144801.html)
 - Jun 25 - [2 Ukrainian teenagers who it's alleged were tortured by the Russians shot an 'occupier' and a 'collaborator' before they were gunned down, reports say](https://news.yahoo.com/2-ukrainian-teenagers-alleged-were-162121556.html)
 - Jun 25 - [Jet engine pulls in worker at Texas airport, killing him, officials say](https://news.yahoo.com/jet-engine-pulls-worker-texas-154957340.html)
 - Jun 25 - [US Navy: Hefty salvage system not required in probe of fatal Titan implosion](https://news.yahoo.com/us-navy-hefty-salvage-system-153112942.html)
