@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 25 - [Conservative former judge calls Trump support 'colossal political miscalculation'](https://news.yahoo.com/conservative-former-judge-calls-trump-173254038.html)
+- Jun 25 - [I visited the Cu Chi Tunnels used to ambush US soldiers, a grisly but unforgettable reminder of the Vietnam War — take a look](https://news.yahoo.com/visited-cu-chi-tunnels-used-164144801.html)
+- Jun 25 - [2 Ukrainian teenagers who it's alleged were tortured by the Russians shot an 'occupier' and a 'collaborator' before they were gunned down, reports say](https://news.yahoo.com/2-ukrainian-teenagers-alleged-were-162121556.html)
+- Jun 25 - [Jet engine pulls in worker at Texas airport, killing him, officials say](https://news.yahoo.com/jet-engine-pulls-worker-texas-154957340.html)
 - Jun 25 - [US Navy: Hefty salvage system not required in probe of fatal Titan implosion](https://news.yahoo.com/us-navy-hefty-salvage-system-153112942.html)
-- Jun 25 - [Joint Forces Commander on possible attack of Wagner mercenaries from Belarus: It will be nothing but suicide](https://news.yahoo.com/joint-forces-commander-possible-attack-150824880.html)
-- Jun 25 - [Two people died and 12 were hurt in a shooting at a street party that was promoted on social media](https://news.yahoo.com/two-slain-dozen-wounded-during-140550640.html)
-- Jun 25 - [British bombers pulled off a raid on the other side of the planet in the UK's first major conflict since World War II](https://news.yahoo.com/british-bombers-pulled-off-raid-123700127.html)
-- Jun 25 - [A Fortune 500 company faces backlash for supporting its transgender employees. Its CEO has a message: ‘Good luck using somebody else’s product’](https://finance.yahoo.com/news/fortune-500-company-faces-backlash-123000562.html)
 <!-- feed end -->
