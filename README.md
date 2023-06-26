@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Nestle ramps up Nigeria raw material sourcing](https://news.yahoo.com/nestle-ramps-nigeria-raw-material-110809129.html)
-- Jun 26 - [North Texas mom took kids to a holiday drag show. It turned into a viral ‘nightmare’](https://news.yahoo.com/north-texas-mom-took-kids-103000366.html)
-- Jun 26 - [Biden kicks off a summer effort to sell his economic record with ‘an unprecedented investment in broadband’](https://finance.yahoo.com/news/biden-kicks-off-a-summer-effort-to-sell-his-economic-record-with-an-unprecedented-investment-in-broadband-090031632.html)
-- Jun 26 - [Chinese people are watching their idea of a strong, unified Russia get dismantled by Wagner's mutiny, and now they're worrying that China might be next](https://news.yahoo.com/chinese-people-watching-idea-strong-083824999.html)
-- Jun 26 - [U.S. to test its Palestinian dual-nationals' Israeli access in July](https://news.yahoo.com/u-test-palestinian-dual-nationals-083213088.html)
+- Jun 26 - [Explainer-Turkey keeps Sweden waiting on NATO membership as key summit nears](https://news.yahoo.com/explainer-turkey-keeps-sweden-waiting-125749618.html)
+- Jun 26 - [Shark attack video in Florida Everglades shows man being bitten, pulled from boat](https://sports.yahoo.com/shark-attack-video-florida-everglades-125359707.html)
+- Jun 26 - [“That’s not the law”: Legal experts say Trump’s new defense shows he’s “in for a world of trouble”](https://news.yahoo.com/not-law-legal-experts-trump-124935185.html)
+- Jun 26 - [Moscow residents' mixed views on Wagner mutiny](https://news.yahoo.com/moscow-residents-mixed-views-wagner-122412804.html)
+- Jun 26 - [NBC News poll shows Trump expanding lead in GOP presidential primary](https://news.yahoo.com/nbc-news-poll-shows-trump-121812300.html)
 <!-- feed end -->
