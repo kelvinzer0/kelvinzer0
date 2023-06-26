@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [Prigozhin Has Already Started Work on Brand New ‘Threat’](https://news.yahoo.com/prigozhin-already-started-brand-threat-185126688.html)
+- Jun 26 - [Oregon ends its 72-year ban on pumping your own gasoline](https://www.autoblog.com/2023/06/26/oregon-ends-its-72-year-ban-on-self-service-gasoline/)
 - Jun 26 - [After a man's flight was delayed for 18 hours, he was rewarded by being the only person on the plane and documented himself partying with the crew](https://www.yahoo.com/entertainment/mans-flight-delayed-18-hours-181734710.html)
-- Jun 26 - [Gay nightclub shooting suspect pleads guilty](https://news.yahoo.com/gay-nightclub-shooting-suspect-pleads-174707853.html)
-- Jun 26 - [18 Screenshots Of A-Hole Bosses That Prove It's Time For A Working Class Revolution In The US](https://www.yahoo.com/lifestyle/18-screenshots-hole-bosses-prove-174602083.html)
+- Jun 26 - [18 Screenshots Of Bosses Who Have NO BUSINESS Being In Charge — Like, They Should Be Fired ASAP](https://www.yahoo.com/lifestyle/18-screenshots-hole-bosses-prove-174602083.html)
 - Jun 26 - [‘Every day, the Russians are slowly retreating – and the real counter-offensive is yet to come’](https://news.yahoo.com/could-almost-fun-watching-wagner-174327591.html)
-- Jun 26 - [Billionaire James Crown dies in crash at Colorado racetrack](https://news.yahoo.com/billionaire-james-crown-dies-apparent-164747874.html)
 <!-- feed end -->
