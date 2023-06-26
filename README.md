@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [US Supreme Court turns away case on charter school's mandatory skirts for girls](https://news.yahoo.com/us-supreme-court-turns-away-134910848.html)
-- Jun 26 - [Yes, ‘Ozempic Butt’ Is a Thing—Here’s How It Happens](https://www.yahoo.com/lifestyle/yes-ozempic-butt-thing-happens-133200979.html)
-- Jun 26 - [Russia: Wagner Group opposition to Putin raises concerns for oversea investors](https://finance.yahoo.com/video/russia-wagner-group-opposition-putin-132306979.html)
-- Jun 26 - [My Dad Was A Famous Alien Abductee. I Thought He Was A Joke — Now I'm Not So Sure.](https://news.yahoo.com/dad-famous-alien-abductee-thought-131814962.html)
-- Jun 26 - [Top US Republican threatens impeachment probe of attorney general over Hunter Biden](https://news.yahoo.com/top-us-republican-threatens-impeachment-131051792.html)
+- Jun 26 - [US Supreme Court dismisses clash over Trump hotel documents](https://news.yahoo.com/us-supreme-court-dismisses-clash-145756092.html)
+- Jun 26 - [Ivanka Trump’s Latest Outing With This A-Lister Amid Donald’s Legal Woes Is a New Level of Unbothered](https://www.yahoo.com/entertainment/ivanka-trump-latest-outing-lister-144000527.html)
+- Jun 26 - ["Illegal": Trump caught diverting campaign donations as legal bills pile up](https://news.yahoo.com/illegal-trump-caught-diverting-campaign-143028068.html)
+- Jun 26 - [Pfizer stock drops as it ends development of Ozempic rival](https://finance.yahoo.com/video/pfizer-stock-drops-ends-development-141026161.html)
+- Jun 26 - [NASA researchers to spend a year in Mars-like habitat](https://news.yahoo.com/nasa-researchers-spend-mars-habitat-140847407.html)
 <!-- feed end -->
