@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [Nestle ramps up Nigeria raw material sourcing](https://news.yahoo.com/nestle-ramps-nigeria-raw-material-110809129.html)
 - Jun 26 - [North Texas mom took kids to a holiday drag show. It turned into a viral ‘nightmare’](https://news.yahoo.com/north-texas-mom-took-kids-103000366.html)
-- Jun 26 - [Netherlands wins Miss International Queen 2023](https://news.yahoo.com/netherlands-wins-miss-international-queen-101146609.html)
+- Jun 26 - [Biden kicks off a summer effort to sell his economic record with ‘an unprecedented investment in broadband’](https://finance.yahoo.com/news/biden-kicks-off-a-summer-effort-to-sell-his-economic-record-with-an-unprecedented-investment-in-broadband-090031632.html)
 - Jun 26 - [Chinese people are watching their idea of a strong, unified Russia get dismantled by Wagner's mutiny, and now they're worrying that China might be next](https://news.yahoo.com/chinese-people-watching-idea-strong-083824999.html)
-- Jun 26 - [‘It’s just stupid’: DeSantis stumbles in New Hampshire](https://news.yahoo.com/just-stupid-desantis-stumbles-hampshire-083000411.html)
-- Jun 26 - [Texas Gov. Greg Abbott Busted After Falling For Totally Bogus Garth Brooks Story](https://www.yahoo.com/entertainment/texas-gov-greg-abbott-busted-074900242.html)
+- Jun 26 - [U.S. to test its Palestinian dual-nationals' Israeli access in July](https://news.yahoo.com/u-test-palestinian-dual-nationals-083213088.html)
 <!-- feed end -->
