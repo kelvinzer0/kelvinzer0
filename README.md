@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Judge Aileen Cannon denied the special counsel's request to hide the names of 84 potential witnesses in the Trump classified documents case](https://news.yahoo.com/judge-aileen-cannon-denied-special-203323788.html)
-- Jun 26 - [Yellen Plans China Trip as US Preps Investment Curbs](https://finance.yahoo.com/video/yellen-plans-china-trip-us-202432652.html)
-- Jun 26 - [Birthright citizenship is guaranteed in the US Constitution. Both Trump and DeSantis want it gone, and they'll need the court's help to do it.](https://news.yahoo.com/birthright-citizenship-guaranteed-us-constitution-201254295.html)
-- Jun 26 - [Video May Trigger: Was The Mom Wrong for Telling Her Son to Shoot Attacker? The Law Has Decided](https://news.yahoo.com/video-may-trigger-mom-wrong-195500626.html)
-- Jun 26 - [Airport worker ‘ingested’ into plane engine in Texas died by suicide, medical examiner’s office says](https://news.yahoo.com/airport-worker-dies-being-ingested-014341036.html)
+- Jun 26 - [Putin issues warning, Carnival stocks falls, Tesla downgrade: Top stories](https://finance.yahoo.com/video/putin-issues-warning-carnival-stocks-215528848.html)
+- Jun 26 - [Colombia honors searchers and sniffer dog that helped find 4 children who survived plane crash](https://news.yahoo.com/colombia-honors-searchers-sniffer-dog-213417725.html)
+- Jun 26 - [Bill Maher Yells Over RFK Jr. for Thinking He Won’t Need to Address Anti-Vax Stance in Campaign: ‘Are You Serious!?’ (Video)](https://www.yahoo.com/entertainment/bill-maher-yells-over-rfk-212501187.html)
+- Jun 26 - [Putin accuses West of wanting Russians 'to kill each other' in mutiny](https://news.yahoo.com/putin-accuses-west-wanting-russians-211653613.html)
+- Jun 26 - [Double murderer elbows attorney in face  — then is sentenced to death](https://news.yahoo.com/double-murderer-elbows-attorney-face-205557011.html)
 <!-- feed end -->
