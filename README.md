@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Chile's 'worst weather front' in a decade floods towns](https://news.yahoo.com/chiles-worst-weather-front-decade-080455772.html)
-- Jun 26 - [Russia's Prigozhin remains under investigation for mutiny - Kommersant newspaper](https://news.yahoo.com/russias-prigozhin-remains-under-investigation-075936129.html)
+- Jun 26 - [Why do so many Americans keep dying in traffic accidents?](https://news.yahoo.com/why-do-so-many-americans-keep-dying-in-traffic-accidents-090009184.html)
+- Jun 26 - [‘It’s just stupid’: DeSantis stumbles in New Hampshire](https://news.yahoo.com/just-stupid-desantis-stumbles-hampshire-083000411.html)
 - Jun 26 - [Texas Gov. Greg Abbott Busted After Falling For Totally Bogus Garth Brooks Story](https://www.yahoo.com/entertainment/texas-gov-greg-abbott-busted-074900242.html)
-- Jun 26 - [Indian minister scoffs at Obama comment on protecting Muslims](https://finance.yahoo.com/news/indian-minister-scoffs-obama-protecting-064452028.html)
-- Jun 26 - [UPDATE 3-Russian Defence Minister Shoigu appears in video for first time since Wagner mutiny](https://finance.yahoo.com/news/1-russian-defence-minister-visits-050901667.html)
+- Jun 26 - [A self-made millionaire in China who never went to college just took the country's grueling college entrance exams for the 27th time — and failed again](https://news.yahoo.com/self-made-millionaire-china-never-064551915.html)
+- Jun 26 - [Russian Defence Minister Shoigu appears in video for first time since Wagner mutiny](https://news.yahoo.com/russian-defence-minister-visits-troops-051420374.html)
 <!-- feed end -->
