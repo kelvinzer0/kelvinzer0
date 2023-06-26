@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Prigozhin Has Already Started Work on Brand New ‘Threat’](https://news.yahoo.com/prigozhin-already-started-brand-threat-185126688.html)
-- Jun 26 - [Oregon ends its 72-year ban on pumping your own gasoline](https://www.autoblog.com/2023/06/26/oregon-ends-its-72-year-ban-on-self-service-gasoline/)
-- Jun 26 - [After a man's flight was delayed for 18 hours, he was rewarded by being the only person on the plane and documented himself partying with the crew](https://www.yahoo.com/entertainment/mans-flight-delayed-18-hours-181734710.html)
-- Jun 26 - [18 Screenshots Of Bosses Who Have NO BUSINESS Being In Charge — Like, They Should Be Fired ASAP](https://www.yahoo.com/lifestyle/18-screenshots-hole-bosses-prove-174602083.html)
-- Jun 26 - [‘Every day, the Russians are slowly retreating – and the real counter-offensive is yet to come’](https://news.yahoo.com/could-almost-fun-watching-wagner-174327591.html)
+- Jun 26 - [Judge Aileen Cannon denied the special counsel's request to hide the names of 84 potential witnesses in the Trump classified documents case](https://news.yahoo.com/judge-aileen-cannon-denied-special-203323788.html)
+- Jun 26 - [Yellen Plans China Trip as US Preps Investment Curbs](https://finance.yahoo.com/video/yellen-plans-china-trip-us-202432652.html)
+- Jun 26 - [Birthright citizenship is guaranteed in the US Constitution. Both Trump and DeSantis want it gone, and they'll need the court's help to do it.](https://news.yahoo.com/birthright-citizenship-guaranteed-us-constitution-201254295.html)
+- Jun 26 - [Video May Trigger: Was The Mom Wrong for Telling Her Son to Shoot Attacker? The Law Has Decided](https://news.yahoo.com/video-may-trigger-mom-wrong-195500626.html)
+- Jun 26 - [Airport worker ‘ingested’ into plane engine in Texas died by suicide, medical examiner’s office says](https://news.yahoo.com/airport-worker-dies-being-ingested-014341036.html)
 <!-- feed end -->
