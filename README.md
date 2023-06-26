@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Chris Christie Fires Back at Trump Over Weight Criticism: ‘Like He’s Some Adonis?’ (Video)](https://www.yahoo.com/entertainment/chris-christie-fires-back-trump-204941052.html)
-- Jun 25 - [Kids scream for help on call with 911. Mom found holding toddler under water, cops say](https://news.yahoo.com/kids-scream-help-call-911-174929235.html)
-- Jun 25 - [A sunken boat closes PortMiami, leaving 16,000 cruise passengers at sea](https://news.yahoo.com/sunken-boat-closes-portmiami-leaving-174514955.html)
-- Jun 25 - [Conservative former judge calls Trump support 'colossal political miscalculation'](https://news.yahoo.com/conservative-former-judge-calls-trump-173254038.html)
-- Jun 25 - [Here’s how much Lake Mead could rise after an epic winter and new water cuts](https://news.yahoo.com/colorado-river-water-deal-historic-080259960.html)
+- Jun 26 - [Russian jets bomb Syrian rebel enclave, witnesses say](https://news.yahoo.com/russian-jets-bomb-syrian-rebel-022308042.html)
+- Jun 26 - [Occupiers drop a chemical projectile on Ukrainian positions, with wind in their faces](https://news.yahoo.com/occupiers-drop-chemical-projectile-ukrainian-015700261.html)
+- Jun 26 - [My Little Innocent Brain Is Officially Corrupted After Learning About These Horrifying, Shocking, And WTF Things](https://www.yahoo.com/lifestyle/little-innocent-brain-officially-corrupted-011603613.html)
+- Jun 26 - [Wife and mother of Titan sub disaster victims 'lost hope' after waiting 96 hours](https://news.yahoo.com/us-coast-guard-investigate-cause-221130524.html)
+- Jun 26 - [Bryan Kohberger attorney says there is ‘no connection’ between him and Idaho students who were killed](https://news.yahoo.com/bryan-kohberger-attorney-says-no-001612376.html)
 <!-- feed end -->
