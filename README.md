@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Explainer-Turkey keeps Sweden waiting on NATO membership as key summit nears](https://news.yahoo.com/explainer-turkey-keeps-sweden-waiting-125749618.html)
-- Jun 26 - [Shark attack video in Florida Everglades shows man being bitten, pulled from boat](https://sports.yahoo.com/shark-attack-video-florida-everglades-125359707.html)
-- Jun 26 - [“That’s not the law”: Legal experts say Trump’s new defense shows he’s “in for a world of trouble”](https://news.yahoo.com/not-law-legal-experts-trump-124935185.html)
-- Jun 26 - [Moscow residents' mixed views on Wagner mutiny](https://news.yahoo.com/moscow-residents-mixed-views-wagner-122412804.html)
-- Jun 26 - [NBC News poll shows Trump expanding lead in GOP presidential primary](https://news.yahoo.com/nbc-news-poll-shows-trump-121812300.html)
+- Jun 26 - [US Supreme Court turns away case on charter school's mandatory skirts for girls](https://news.yahoo.com/us-supreme-court-turns-away-134910848.html)
+- Jun 26 - [Yes, ‘Ozempic Butt’ Is a Thing—Here’s How It Happens](https://www.yahoo.com/lifestyle/yes-ozempic-butt-thing-happens-133200979.html)
+- Jun 26 - [Russia: Wagner Group opposition to Putin raises concerns for oversea investors](https://finance.yahoo.com/video/russia-wagner-group-opposition-putin-132306979.html)
+- Jun 26 - [My Dad Was A Famous Alien Abductee. I Thought He Was A Joke — Now I'm Not So Sure.](https://news.yahoo.com/dad-famous-alien-abductee-thought-131814962.html)
+- Jun 26 - [Top US Republican threatens impeachment probe of attorney general over Hunter Biden](https://news.yahoo.com/top-us-republican-threatens-impeachment-131051792.html)
 <!-- feed end -->
