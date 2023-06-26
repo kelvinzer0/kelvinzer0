@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [Chile's 'worst weather front' in a decade floods towns](https://news.yahoo.com/chiles-worst-weather-front-decade-080455772.html)
+- Jun 26 - [Russia's Prigozhin remains under investigation for mutiny - Kommersant newspaper](https://news.yahoo.com/russias-prigozhin-remains-under-investigation-075936129.html)
 - Jun 26 - [Texas Gov. Greg Abbott Busted After Falling For Totally Bogus Garth Brooks Story](https://www.yahoo.com/entertainment/texas-gov-greg-abbott-busted-074900242.html)
-- Jun 26 - [Prigozhin Will Challenge Putin Again, Says Belarus Opposition Leader](https://finance.yahoo.com/video/prigozhin-challenge-putin-again-says-073416118.html)
-- Jun 26 - [UPDATE 2-Russian defence minister appears for first time since Wagner mutiny](https://finance.yahoo.com/news/1-russian-defence-minister-visits-050901667.html)
-- Jun 26 - [Tornado damages homes in Indiana neighborhood](https://news.yahoo.com/tornado-damages-homes-indiana-neighborhood-050803085.html)
-- Jun 26 - [Chris Christie Fact-Checks Trump's 'Absurd' New Claim In Wicked Takedown](https://news.yahoo.com/chris-christie-fact-checks-trumps-045435594.html)
+- Jun 26 - [Indian minister scoffs at Obama comment on protecting Muslims](https://finance.yahoo.com/news/indian-minister-scoffs-obama-protecting-064452028.html)
+- Jun 26 - [UPDATE 3-Russian Defence Minister Shoigu appears in video for first time since Wagner mutiny](https://finance.yahoo.com/news/1-russian-defence-minister-visits-050901667.html)
 <!-- feed end -->
