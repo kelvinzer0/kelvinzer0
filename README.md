@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [Russian defence minister appears for first time since Wagner mutiny](https://news.yahoo.com/russian-defence-minister-visits-troops-051420374.html)
+- Jun 26 - [UPDATE 2-Russian defence minister appears for first time since Wagner mutiny](https://finance.yahoo.com/news/1-russian-defence-minister-visits-050901667.html)
+- Jun 26 - [Tornado damages homes in Indiana neighborhood](https://news.yahoo.com/tornado-damages-homes-indiana-neighborhood-050803085.html)
+- Jun 26 - [Chris Christie Fact-Checks Trump's 'Absurd' New Claim In Wicked Takedown](https://news.yahoo.com/chris-christie-fact-checks-trumps-045435594.html)
 - Jun 26 - [Vaccines May Be Next Big Advance In Cancer Treatment](https://news.yahoo.com/vaccines-may-next-big-advance-044404753.html)
-- Jun 26 - [Greek conservatives storm to victory in election](https://news.yahoo.com/greek-conservatives-storm-victory-election-042055171.html)
-- Jun 26 - [The mother of the 19-year-old who died on the imploded Titanic submersible says she was supposed to go on the dive, but gave her son her spot because he 'really wanted to go'](https://news.yahoo.com/mother-19-old-died-imploded-032126416.html)
-- Jun 26 - [Woman Faces Major Criticism After Saying The 'Trend' Of Grown Men Crying At Weddings Needs To Stop](https://news.yahoo.com/woman-faces-major-criticism-saying-021500629.html)
-- Jun 26 - [Occupiers drop a chemical projectile on Ukrainian positions, with wind in their faces](https://news.yahoo.com/occupiers-drop-chemical-projectile-ukrainian-015700261.html)
 <!-- feed end -->
