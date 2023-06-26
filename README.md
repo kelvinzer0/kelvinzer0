@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Mitsotakis's conservatives clinch landslide Greece election win](https://news.yahoo.com/mitsotakiss-conservatives-clinch-landslide-greece-222712996.html)
-- Jun 25 - [A woman who entered a home posing as a CPS worker said she wanted to 'scare' the parents because she felt they weren't supervising their child](https://news.yahoo.com/woman-entered-home-posing-cps-220952640.html)
 - Jun 25 - [Chris Christie Fires Back at Trump Over Weight Criticism: ‘Like He’s Some Adonis?’ (Video)](https://www.yahoo.com/entertainment/chris-christie-fires-back-trump-204941052.html)
-- Jun 25 - [Russian agents’ threat to family made Prigozhin call off Moscow advance](https://news.yahoo.com/russian-agents-threat-family-made-204246993.html)
-- Jun 25 - [Experts Believe Donald Trump May Be Trying to Delay Legal Trials Until After This Significant Timeframe](https://www.yahoo.com/entertainment/experts-believe-donald-trump-may-190800959.html)
+- Jun 25 - [Kids scream for help on call with 911. Mom found holding toddler under water, cops say](https://news.yahoo.com/kids-scream-help-call-911-174929235.html)
+- Jun 25 - [A sunken boat closes PortMiami, leaving 16,000 cruise passengers at sea](https://news.yahoo.com/sunken-boat-closes-portmiami-leaving-174514955.html)
+- Jun 25 - [Conservative former judge calls Trump support 'colossal political miscalculation'](https://news.yahoo.com/conservative-former-judge-calls-trump-173254038.html)
+- Jun 25 - [Here’s how much Lake Mead could rise after an epic winter and new water cuts](https://news.yahoo.com/colorado-river-water-deal-historic-080259960.html)
 <!-- feed end -->
