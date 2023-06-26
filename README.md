@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [George Santos is due back in court on Friday: How did we get here?](https://news.yahoo.com/george-santos-due-back-court-162606852.html)
-- Jun 26 - [Russia sends barefoot convicts to storm Ukrainian positions near Antonivskyi bridge](https://news.yahoo.com/russia-sends-barefoot-convicts-storm-161600396.html)
-- Jun 26 - [Creature with ‘triangular’ head found lurking on cliffs in Vietnam. It’s a new species](https://news.yahoo.com/creature-triangular-head-found-lurking-153602177.html)
-- Jun 26 - [Watch: Brown bear charges tourists in heart-pounding encounter](https://sports.yahoo.com/watch-brown-bear-charges-tourists-153034600.html)
-- Jun 26 - [Teenager Who Died On Titanic Submersible Wanted To Break Rubik's Cube World Record Underwater](https://www.yahoo.com/entertainment/teenager-died-titanic-submersible-wanted-152507542.html)
+- Jun 26 - [Gay nightclub shooting suspect pleads guilty](https://news.yahoo.com/gay-nightclub-shooting-suspect-pleads-174707853.html)
+- Jun 26 - [18 Screenshots Of A-Hole Bosses That Prove It's Time For A Working Class Revolution In The US](https://www.yahoo.com/lifestyle/18-screenshots-hole-bosses-prove-174602083.html)
+- Jun 26 - [Putin's former 'puppet master' urges an end to mercenary groups like Wagner](https://news.yahoo.com/putins-former-puppet-master-urges-174121927.html)
+- Jun 26 - [Woman Sues Anti-Abortion 'Pregnancy Center' After Her Ectopic Pregnancy Ruptured](https://news.yahoo.com/woman-sues-anti-abortion-pregnancy-165000232.html)
+- Jun 26 - [Billionaire James Crown dies in crash at Colorado racetrack](https://news.yahoo.com/billionaire-james-crown-dies-apparent-164747874.html)
 <!-- feed end -->
