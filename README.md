@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [US Supreme Court dismisses clash over Trump hotel documents](https://news.yahoo.com/us-supreme-court-dismisses-clash-145756092.html)
-- Jun 26 - [Ivanka Trump’s Latest Outing With This A-Lister Amid Donald’s Legal Woes Is a New Level of Unbothered](https://www.yahoo.com/entertainment/ivanka-trump-latest-outing-lister-144000527.html)
-- Jun 26 - ["Illegal": Trump caught diverting campaign donations as legal bills pile up](https://news.yahoo.com/illegal-trump-caught-diverting-campaign-143028068.html)
-- Jun 26 - [Pfizer stock drops as it ends development of Ozempic rival](https://finance.yahoo.com/video/pfizer-stock-drops-ends-development-141026161.html)
-- Jun 26 - [NASA researchers to spend a year in Mars-like habitat](https://news.yahoo.com/nasa-researchers-spend-mars-habitat-140847407.html)
+- Jun 26 - [CORRECTED-UPDATE 1-'We didn't want to overthrow government' - Prigozhin, in first comments since mutiny](https://finance.yahoo.com/news/1-didnt-want-overthrow-government-153738206.html)
+- Jun 26 - [Creature with ‘triangular’ head found lurking on cliffs in Vietnam. It’s a new species](https://news.yahoo.com/creature-triangular-head-found-lurking-153602177.html)
+- Jun 26 - [Watch: Brown bear charges tourists in heart-pounding encounter](https://sports.yahoo.com/watch-brown-bear-charges-tourists-153034600.html)
+- Jun 26 - [Pfizer steps up race for weight-loss drug](https://news.yahoo.com/pfizer-steps-race-weight-loss-151832753.html)
+- Jun 26 - [A woman told her teen son to shoot man at a hot dog stand, police say. Both are charged with murder.](https://news.yahoo.com/woman-told-her-teen-son-151453509.html)
 <!-- feed end -->
