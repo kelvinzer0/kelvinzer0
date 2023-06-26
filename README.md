@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [CORRECTED-UPDATE 1-'We didn't want to overthrow government' - Prigozhin, in first comments since mutiny](https://finance.yahoo.com/news/1-didnt-want-overthrow-government-153738206.html)
+- Jun 26 - [George Santos is due back in court on Friday: How did we get here?](https://news.yahoo.com/george-santos-due-back-court-162606852.html)
+- Jun 26 - [Russia sends barefoot convicts to storm Ukrainian positions near Antonivskyi bridge](https://news.yahoo.com/russia-sends-barefoot-convicts-storm-161600396.html)
 - Jun 26 - [Creature with ‘triangular’ head found lurking on cliffs in Vietnam. It’s a new species](https://news.yahoo.com/creature-triangular-head-found-lurking-153602177.html)
 - Jun 26 - [Watch: Brown bear charges tourists in heart-pounding encounter](https://sports.yahoo.com/watch-brown-bear-charges-tourists-153034600.html)
-- Jun 26 - [Pfizer steps up race for weight-loss drug](https://news.yahoo.com/pfizer-steps-race-weight-loss-151832753.html)
-- Jun 26 - [A woman told her teen son to shoot man at a hot dog stand, police say. Both are charged with murder.](https://news.yahoo.com/woman-told-her-teen-son-151453509.html)
+- Jun 26 - [Teenager Who Died On Titanic Submersible Wanted To Break Rubik's Cube World Record Underwater](https://www.yahoo.com/entertainment/teenager-died-titanic-submersible-wanted-152507542.html)
 <!-- feed end -->
