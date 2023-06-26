@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Russian jets bomb Syrian rebel enclave, witnesses say](https://news.yahoo.com/russian-jets-bomb-syrian-rebel-022308042.html)
+- Jun 26 - [The mother of the 19-year-old who died on the imploded Titanic submersible says she was supposed to go on the dive, but gave her son her spot because he 'really wanted to go'](https://news.yahoo.com/mother-19-old-died-imploded-032126416.html)
+- Jun 26 - [10-Year Treasuries Favored, UBS Global Wealth Management Says](https://finance.yahoo.com/video/10-treasuries-favored-ubs-global-031646237.html)
+- Jun 26 - [Woman Faces Major Criticism After Saying The 'Trend' Of Grown Men Crying At Weddings Needs To Stop](https://news.yahoo.com/woman-faces-major-criticism-saying-021500629.html)
 - Jun 26 - [Occupiers drop a chemical projectile on Ukrainian positions, with wind in their faces](https://news.yahoo.com/occupiers-drop-chemical-projectile-ukrainian-015700261.html)
-- Jun 26 - [My Little Innocent Brain Is Officially Corrupted After Learning About These Horrifying, Shocking, And WTF Things](https://www.yahoo.com/lifestyle/little-innocent-brain-officially-corrupted-011603613.html)
-- Jun 26 - [Wife and mother of Titan sub disaster victims 'lost hope' after waiting 96 hours](https://news.yahoo.com/us-coast-guard-investigate-cause-221130524.html)
 - Jun 26 - [Bryan Kohberger attorney says there is ‘no connection’ between him and Idaho students who were killed](https://news.yahoo.com/bryan-kohberger-attorney-says-no-001612376.html)
 <!-- feed end -->
