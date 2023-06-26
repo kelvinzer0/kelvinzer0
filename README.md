@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [Biden unveils $42 billion internet access plan](https://news.yahoo.com/biden-unveils-42-billion-internet-220009888.html)
 - Jun 26 - [Putin issues warning, Carnival stocks falls, Tesla downgrade: Top stories](https://finance.yahoo.com/video/putin-issues-warning-carnival-stocks-215528848.html)
-- Jun 26 - [Colombia honors searchers and sniffer dog that helped find 4 children who survived plane crash](https://news.yahoo.com/colombia-honors-searchers-sniffer-dog-213417725.html)
+- Jun 26 - [The wife of Supreme Court Justice Samuel Alito leased a plot of land to an oil and natural gas company while the judge was weakening the powers of the Environmental Protection Agency, report says](https://news.yahoo.com/wife-supreme-court-justice-samuel-214258549.html)
 - Jun 26 - [Bill Maher Yells Over RFK Jr. for Thinking He Won’t Need to Address Anti-Vax Stance in Campaign: ‘Are You Serious!?’ (Video)](https://www.yahoo.com/entertainment/bill-maher-yells-over-rfk-212501187.html)
-- Jun 26 - [Putin accuses West of wanting Russians 'to kill each other' in mutiny](https://news.yahoo.com/putin-accuses-west-wanting-russians-211653613.html)
 - Jun 26 - [Double murderer elbows attorney in face  — then is sentenced to death](https://news.yahoo.com/double-murderer-elbows-attorney-face-205557011.html)
 <!-- feed end -->
