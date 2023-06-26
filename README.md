@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [Texas Gov. Greg Abbott Busted After Falling For Totally Bogus Garth Brooks Story](https://www.yahoo.com/entertainment/texas-gov-greg-abbott-busted-074900242.html)
+- Jun 26 - [Prigozhin Will Challenge Putin Again, Says Belarus Opposition Leader](https://finance.yahoo.com/video/prigozhin-challenge-putin-again-says-073416118.html)
 - Jun 26 - [UPDATE 2-Russian defence minister appears for first time since Wagner mutiny](https://finance.yahoo.com/news/1-russian-defence-minister-visits-050901667.html)
 - Jun 26 - [Tornado damages homes in Indiana neighborhood](https://news.yahoo.com/tornado-damages-homes-indiana-neighborhood-050803085.html)
 - Jun 26 - [Chris Christie Fact-Checks Trump's 'Absurd' New Claim In Wicked Takedown](https://news.yahoo.com/chris-christie-fact-checks-trumps-045435594.html)
-- Jun 26 - [Vaccines May Be Next Big Advance In Cancer Treatment](https://news.yahoo.com/vaccines-may-next-big-advance-044404753.html)
-- Jun 26 - [The mother of the 19-year-old who died on the imploded Titanic submersible says she was supposed to go on the dive, but gave her son her spot because he 'really wanted to go'](https://news.yahoo.com/mother-19-old-died-imploded-032126416.html)
 <!-- feed end -->
