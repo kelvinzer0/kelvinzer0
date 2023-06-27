@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Putin Praises Russian Security Forces: 'You Stopped a Civil War'](https://finance.yahoo.com/video/watch-putin-meets-security-chiefs-042000763.html)
+- Jun 27 - [Podcast hosts reinvestigate the murders of a Virginia couple 40 years later](https://news.yahoo.com/podcast-hosts-reinvestigate-murders-virginia-131527508.html)
+- Jun 27 - [DeSantis argues for immunity from Disney lawsuit](https://finance.yahoo.com/news/desantis-argues-for-immunity-from-disney-lawsuit-124739990.html)
 - Jun 27 - [Watch shocking moment a pool technician is shot by a homeowner, no charges filed](https://news.yahoo.com/watch-shocking-moment-pool-technician-123748543.html)
+- Jun 27 - [Volusia County man arrested after performing lewd act on beach in front of children, deputies say](https://news.yahoo.com/volusia-county-man-arrested-performing-122819051.html)
 - Jun 27 - [UK says the Storm Shadow missiles it gave Ukraine have been wreaking havoc on Russian targets and are accurate 'almost without fault'](https://news.yahoo.com/uk-says-storm-shadow-missiles-122324822.html)
-- Jun 27 - [‘Older generations are so confused': A young woman on TikTok says Gen Z, Millennials don't share the same work ethic as Boomers — 3 reasons why she might be onto something](https://finance.yahoo.com/news/older-generations-confused-young-woman-113000294.html)
-- Jun 27 - [Prince Harry should get just 500 stg in phone-hacking case, London court told](https://news.yahoo.com/prince-harry-just-500-stg-114231488.html)
 <!-- feed end -->
