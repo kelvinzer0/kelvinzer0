@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [East Europe NATO allies say Wagner troops in Belarus spell trouble](https://news.yahoo.com/east-europe-nato-allies-wagner-202405688.html)
 - Jun 27 - [Trumpworld Rages at McCarthy: ‘Kevin’s in Trouble Now’](https://news.yahoo.com/trumpworld-rages-mccarthy-kevin-trouble-200144450.html)
-- Jun 27 - [Suspect pleads not guilty in killing of couple marking 50th wedding anniversary](https://news.yahoo.com/suspect-pleads-not-guilty-killing-195834185.html)
-- Jun 27 - [Man Mourns Wife and Daughter Who Died in Crash on Way to Doctor's Appointment: 'Didn’t Even Say Goodbye'](https://www.yahoo.com/entertainment/man-mourns-wife-daughter-died-193457208.html)
-- Jun 27 - [Legal scholar: Report suggests DOJ about to indict Trump’s “whole criminal gang” for conspiracy](https://news.yahoo.com/legal-scholar-report-suggests-doj-192952063.html)
-- Jun 27 - [Toyota Land Cruiser for the U.S. reportedly gets retro styling like the classic FJs of old](https://www.autoblog.com/2023/06/27/toyota-land-cruiser-for-the-u-s-reportedly-gets-retro-fj-styling/)
+- Jun 27 - [‘Massive’ creature found lurking in underwater tunnel and discovered as new species](https://news.yahoo.com/massive-creature-found-lurking-underwater-194542130.html)
+- Jun 27 - [Cheney on the problem with American politics: ‘We’re electing idiots’](https://news.yahoo.com/cheney-problem-american-politics-electing-194210526.html)
+- Jun 27 - [The man who sued Buffalo Wild Wings over its 'boneless' wings is now suing a home-goods company over a $20 blanket](https://news.yahoo.com/man-sued-buffalo-wild-wings-194023326.html)
 <!-- feed end -->
