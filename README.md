@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [The best Amazon Prime Day early access deals for 2023](https://news.yahoo.com/amazon-prime-day-early-access-deals-162232994.html)
+- Jun 27 - [Prince Harry should get just 500 stg in phone-hacking case, London court told](https://news.yahoo.com/prince-harry-just-500-stg-114231488.html)
+- Jun 27 - [Sean Hannity Roasted For 'Straw-Grasping' Spin On Trump Tape](https://news.yahoo.com/sean-hannity-roasted-straw-grasping-111409830.html)
+- Jun 27 - [Audi ex-boss sentenced over 2015 diesel scandal](https://news.yahoo.com/audi-ex-boss-sentenced-over-105924992.html)
 - Jun 27 - [Argentine ‘death flights’ plane returned home](https://news.yahoo.com/argentine-death-flights-plane-returned-104536831.html)
-- Jun 27 - [The prime minister of New Zealand flies in a 30-year-old plane and prepared a spare plane for his trip to China in case the old one breaks down](https://news.yahoo.com/prime-minister-zealand-flies-30-093730972.html)
-- Jun 27 - [New Trump Audio Features 1 Weird Shoutout That People Just Can't Get Over](https://news.yahoo.com/trump-audio-features-1-weird-062325076.html)
-- Jun 27 - [An ex-convict returned from war and a Russian village lived in fear. Then police say he killed again](https://news.yahoo.com/ex-convict-returned-war-russian-062212676.html)
-- Jun 27 - [Watch the shocking moment a man in the Florida Everglades gets yanked off a boat by a shark, in case you needed more reasons to be terrified of going out on the water this summer](https://news.yahoo.com/watch-shocking-moment-man-florida-062115124.html)
 <!-- feed end -->
