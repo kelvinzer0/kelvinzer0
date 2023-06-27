@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [‘Let’s Stamp on America’: North Korea Holds Massive Rally](https://finance.yahoo.com/video/let-stamp-america-north-korea-081700894.html)
+- Jun 27 - [New Trump Audio Features 1 Weird Shoutout That People Just Can't Get Over](https://news.yahoo.com/trump-audio-features-1-weird-062325076.html)
 - Jun 27 - [An ex-convict returned from war and a Russian village lived in fear. Then police say he killed again](https://news.yahoo.com/ex-convict-returned-war-russian-062212676.html)
-- Jun 27 - [Power couple Zooey Zephyr and Erin Reed are spreading hope to fellow transgender people](https://news.yahoo.com/power-couple-zooey-zephyr-erin-060656138.html)
+- Jun 27 - [Watch the shocking moment a man in the Florida Everglades gets yanked off a boat by a shark, in case you needed more reasons to be terrified of going out on the water this summer](https://news.yahoo.com/watch-shocking-moment-man-florida-062115124.html)
 - Jun 27 - [Airport worker ‘ingested’ into plane engine in Texas died by suicide, medical examiner’s office says](https://news.yahoo.com/airport-worker-dies-being-ingested-014341036.html)
 - Jun 27 - [New Zealand foreign minister confirms 'very robust' meeting with Beijing](https://news.yahoo.com/zealand-foreign-minister-confirms-very-032317719.html)
 <!-- feed end -->
