@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [Trumpworld Rages at McCarthy: ‘Kevin’s in Trouble Now’](https://news.yahoo.com/trumpworld-rages-mccarthy-kevin-trouble-200144450.html)
 - Jun 27 - [Suspect pleads not guilty in killing of couple marking 50th wedding anniversary](https://news.yahoo.com/suspect-pleads-not-guilty-killing-195834185.html)
 - Jun 27 - [Man Mourns Wife and Daughter Who Died in Crash on Way to Doctor's Appointment: 'Didn’t Even Say Goodbye'](https://www.yahoo.com/entertainment/man-mourns-wife-daughter-died-193457208.html)
+- Jun 27 - [Legal scholar: Report suggests DOJ about to indict Trump’s “whole criminal gang” for conspiracy](https://news.yahoo.com/legal-scholar-report-suggests-doj-192952063.html)
 - Jun 27 - [Toyota Land Cruiser for the U.S. reportedly gets retro styling like the classic FJs of old](https://www.autoblog.com/2023/06/27/toyota-land-cruiser-for-the-u-s-reportedly-gets-retro-fj-styling/)
-- Jun 27 - [Formerly Conjoined Twins, 6, Graduate Kindergarten: ‘The Sky Is the Limit for Them’ Says Mom](https://www.yahoo.com/entertainment/formerly-conjoined-twins-6-graduate-191951118.html)
-- Jun 27 - [Surprise Guatemalan presidential contender pitches closer China ties](https://news.yahoo.com/surprise-guatemalan-presidential-contender-pitches-191010334.html)
 <!-- feed end -->
