@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [Argentine ‘death flights’ plane returned home](https://news.yahoo.com/argentine-death-flights-plane-returned-104536831.html)
+- Jun 27 - [The prime minister of New Zealand flies in a 30-year-old plane and prepared a spare plane for his trip to China in case the old one breaks down](https://news.yahoo.com/prime-minister-zealand-flies-30-093730972.html)
 - Jun 27 - [New Trump Audio Features 1 Weird Shoutout That People Just Can't Get Over](https://news.yahoo.com/trump-audio-features-1-weird-062325076.html)
 - Jun 27 - [An ex-convict returned from war and a Russian village lived in fear. Then police say he killed again](https://news.yahoo.com/ex-convict-returned-war-russian-062212676.html)
 - Jun 27 - [Watch the shocking moment a man in the Florida Everglades gets yanked off a boat by a shark, in case you needed more reasons to be terrified of going out on the water this summer](https://news.yahoo.com/watch-shocking-moment-man-florida-062115124.html)
-- Jun 27 - [Airport worker ‘ingested’ into plane engine in Texas died by suicide, medical examiner’s office says](https://news.yahoo.com/airport-worker-dies-being-ingested-014341036.html)
-- Jun 27 - [New Zealand foreign minister confirms 'very robust' meeting with Beijing](https://news.yahoo.com/zealand-foreign-minister-confirms-very-032317719.html)
 <!-- feed end -->
