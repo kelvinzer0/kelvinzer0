@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [US Supreme Court sides with man who sent female musician barrage of unwanted messages](https://news.yahoo.com/us-supreme-court-sides-man-143840756.html)
-- Jun 27 - [Supreme Court rules state courts can play role in policing federal elections](https://news.yahoo.com/supreme-court-upholds-north-carolina-141714580.html)
-- Jun 27 - [California Rep. Maxine Waters introduces bills to spend hundreds of billions of dollars to fight homelessness and solve the affordable housing crisis](https://news.yahoo.com/california-rep-maxine-waters-introduces-133702665.html)
-- Jun 27 - [Couple dropped lawsuit against OceanGate's CEO for not refunding them for canceled trip on his sub, after he died on board](https://news.yahoo.com/couple-dropped-lawsuit-against-oceangates-133017643.html)
-- Jun 27 - [Tesla Rival Goes Bankrupt](https://www.thestreet.com/technology/tesla-rival-goes-bankrupt?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jun 27 - [Disney-DeSantis feud: Florida Gov. asks court to toss Disney's suit](https://finance.yahoo.com/video/disney-desantis-feud-florida-gov-154554428.html)
+- Jun 27 - [World's Largest Cruise Ship Sets Sail for the First Time in Initial Sea Trial — See Photos!](https://www.yahoo.com/entertainment/worlds-largest-cruise-ship-sets-153311732.html)
+- Jun 27 - [Ford to cut jobs amid EV push, Volkswagen reduces EV production on weak sales](https://finance.yahoo.com/video/ford-cut-jobs-amid-ev-152744405.html)
+- Jun 27 - [Ray Lewis' Son Ray Lewis III Is Laid to Rest in Emotional Ceremony: 'We Love You'](https://www.yahoo.com/entertainment/ray-lewis-son-ray-lewis-152416427.html)
+- Jun 27 - [“Makes no sense”: Judge Cannon rejects DOJ request to shield identity of dozens of witnesses](https://news.yahoo.com/makes-no-sense-judge-cannon-150702163.html)
 <!-- feed end -->
