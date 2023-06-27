@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [Rachel and Lawrence react to new audio evidence in Trump docs case](https://news.yahoo.com/rachel-lawrence-react-audio-evidence-031116499.html)
 - Jun 27 - [Leaked audio of Trump saying he has a 'secret' document that he knows he can't declassify is 'even more damning than it reads in the indictment,' one expert said](https://news.yahoo.com/leaked-audio-trump-saying-secret-011947278.html)
+- Jun 27 - [Woman Explains Why She Doesn't Believe In Giving Employers Two-Weeks' Notice When Quitting A Job — ‘I’ll Give You The Same Immediate Notice You Would Give Me’](https://news.yahoo.com/woman-explains-why-she-doesnt-011500283.html)
 - Jun 27 - [George Conway calls Trump ‘sociopathic criminal’ after release of classified docs tape](https://news.yahoo.com/george-conway-calls-trump-sociopathic-005208826.html)
-- Jun 27 - [Hear exclusive audio of Trump discussing classified documents in 2021](https://news.yahoo.com/hear-exclusive-audio-trump-discussing-001513593.html)
-- Jun 26 - [Nancy Pelosi's husband just snapped up $2.6 million of Apple and Microsoft stock, closing out an options bet that the shares would soar](https://finance.yahoo.com/news/nancy-pelosis-husband-exercises-2-235828529.html)
-- Jun 26 - [Putin confirms Russian pilots killed during aborted mutiny](https://news.yahoo.com/putin-confirms-russian-pilots-killed-234355317.html)
+- Jun 26 - [New York City drivers to pay extra tolls as part of first-in-the-nation effort to reduce congestion](https://news.yahoo.com/york-city-drivers-pay-extra-235855630.html)
 <!-- feed end -->
