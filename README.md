@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [In-laws of 7-time NASCAR champ Jimmie Johnson found dead in apparent murder-suicide](https://sports.yahoo.com/in-laws-of-7-time-nascar-champ-jimmie-johnson-found-dead-in-apparent-murder-suicide-181442785.html)
-- Jun 27 - [Outgoing CDC director says the US is not prepared for the next pandemic because parts of the public health system still use 'old fax machines'](https://news.yahoo.com/outgoing-cdc-director-says-us-173823756.html)
-- Jun 27 - [Wagner mutiny: Putin eyes mercenary boss's finances](https://news.yahoo.com/wagner-mutiny-putin-eyes-mercenary-170437963.html)
-- Jun 27 - [Donald Trump is the only living US president whose ancestors didn't own slaves, report says](https://news.yahoo.com/donald-trump-only-living-us-165348019.html)
-- Jun 27 - [I had plantar fasciitis for three years — this is what I did to feel better](https://news.yahoo.com/plantar-fasciitis-exercise-mental-health-experience-160113398.html)
+- Jun 27 - [Suspect pleads not guilty in killing of couple marking 50th wedding anniversary](https://news.yahoo.com/suspect-pleads-not-guilty-killing-195834185.html)
+- Jun 27 - [Man Mourns Wife and Daughter Who Died in Crash on Way to Doctor's Appointment: 'Didn’t Even Say Goodbye'](https://www.yahoo.com/entertainment/man-mourns-wife-daughter-died-193457208.html)
+- Jun 27 - [Toyota Land Cruiser for the U.S. reportedly gets retro styling like the classic FJs of old](https://www.autoblog.com/2023/06/27/toyota-land-cruiser-for-the-u-s-reportedly-gets-retro-fj-styling/)
+- Jun 27 - [Formerly Conjoined Twins, 6, Graduate Kindergarten: ‘The Sky Is the Limit for Them’ Says Mom](https://www.yahoo.com/entertainment/formerly-conjoined-twins-6-graduate-191951118.html)
+- Jun 27 - [Surprise Guatemalan presidential contender pitches closer China ties](https://news.yahoo.com/surprise-guatemalan-presidential-contender-pitches-191010334.html)
 <!-- feed end -->
