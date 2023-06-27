@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Disney-DeSantis feud: Florida Gov. asks court to toss Disney's suit](https://finance.yahoo.com/video/disney-desantis-feud-florida-gov-154554428.html)
-- Jun 27 - [World's Largest Cruise Ship Sets Sail for the First Time in Initial Sea Trial — See Photos!](https://www.yahoo.com/entertainment/worlds-largest-cruise-ship-sets-153311732.html)
-- Jun 27 - [Ford to cut jobs amid EV push, Volkswagen reduces EV production on weak sales](https://finance.yahoo.com/video/ford-cut-jobs-amid-ev-152744405.html)
-- Jun 27 - [Ray Lewis' Son Ray Lewis III Is Laid to Rest in Emotional Ceremony: 'We Love You'](https://www.yahoo.com/entertainment/ray-lewis-son-ray-lewis-152416427.html)
-- Jun 27 - [“Makes no sense”: Judge Cannon rejects DOJ request to shield identity of dozens of witnesses](https://news.yahoo.com/makes-no-sense-judge-cannon-150702163.html)
+- Jun 27 - [Chicago mother sues city after murder charges were dropped against her and her son](https://news.yahoo.com/chicago-mother-sues-city-murder-162923603.html)
+- Jun 27 - [Lukashenko Says Belarus Can Learn From the Wagner Army](https://finance.yahoo.com/video/lukashenko-says-belarus-learn-wagner-161032907.html)
+- Jun 27 - [I had plantar fasciitis for three years — this is what I did to feel better](https://news.yahoo.com/plantar-fasciitis-exercise-mental-health-experience-160113398.html)
+- Jun 27 - [Jail officials let Jeffrey Epstein make an unmonitored call on the night he died by suicide. He claimed it was to his mother, but she had been dead for years.](https://news.yahoo.com/jail-officials-let-jeffrey-epstein-160052354.html)
+- Jun 27 - [3 Planes that have never been shot down in air-to-air combat](https://news.yahoo.com/3-planes-never-shot-down-160039390.html)
 <!-- feed end -->
