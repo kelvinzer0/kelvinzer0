@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [In-laws of 7-time NASCAR champ Jimmie Johnson found dead in apparent murder-suicide](https://sports.yahoo.com/in-laws-of-7-time-nascar-champ-jimmie-johnson-found-dead-in-apparent-murder-suicide-181442785.html)
+- Jun 27 - [Outgoing CDC director says the US is not prepared for the next pandemic because parts of the public health system still use 'old fax machines'](https://news.yahoo.com/outgoing-cdc-director-says-us-173823756.html)
 - Jun 27 - [Wagner mutiny: Putin eyes mercenary boss's finances](https://news.yahoo.com/wagner-mutiny-putin-eyes-mercenary-170437963.html)
 - Jun 27 - [Donald Trump is the only living US president whose ancestors didn't own slaves, report says](https://news.yahoo.com/donald-trump-only-living-us-165348019.html)
-- Jun 27 - [Nun accused of sex with priest said she had fallen in love, Fort Worth diocese official says](https://news.yahoo.com/nun-accused-sex-priest-said-161930959.html)
 - Jun 27 - [I had plantar fasciitis for three years — this is what I did to feel better](https://news.yahoo.com/plantar-fasciitis-exercise-mental-health-experience-160113398.html)
-- Jun 27 - [Jail officials let Jeffrey Epstein make an unmonitored call on the night he died by suicide. He claimed it was to his mother, but she had been dead for years.](https://news.yahoo.com/jail-officials-let-jeffrey-epstein-160052354.html)
 <!-- feed end -->
