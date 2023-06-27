@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Chicago mother sues city after murder charges were dropped against her and her son](https://news.yahoo.com/chicago-mother-sues-city-murder-162923603.html)
-- Jun 27 - [Lukashenko Says Belarus Can Learn From the Wagner Army](https://finance.yahoo.com/video/lukashenko-says-belarus-learn-wagner-161032907.html)
+- Jun 27 - [Wagner mutiny: Putin eyes mercenary boss's finances](https://news.yahoo.com/wagner-mutiny-putin-eyes-mercenary-170437963.html)
+- Jun 27 - [Donald Trump is the only living US president whose ancestors didn't own slaves, report says](https://news.yahoo.com/donald-trump-only-living-us-165348019.html)
+- Jun 27 - [Nun accused of sex with priest said she had fallen in love, Fort Worth diocese official says](https://news.yahoo.com/nun-accused-sex-priest-said-161930959.html)
 - Jun 27 - [I had plantar fasciitis for three years — this is what I did to feel better](https://news.yahoo.com/plantar-fasciitis-exercise-mental-health-experience-160113398.html)
 - Jun 27 - [Jail officials let Jeffrey Epstein make an unmonitored call on the night he died by suicide. He claimed it was to his mother, but she had been dead for years.](https://news.yahoo.com/jail-officials-let-jeffrey-epstein-160052354.html)
-- Jun 27 - [3 Planes that have never been shot down in air-to-air combat](https://news.yahoo.com/3-planes-never-shot-down-160039390.html)
 <!-- feed end -->
