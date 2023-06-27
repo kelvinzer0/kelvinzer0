@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [‘This Is Still Secret’: CNN Obtains Audio Of Trump Discussing Sensitive Military Document](https://news.yahoo.com/still-secret-cnn-obtains-audio-002023695.html)
+- Jun 27 - [Leaked audio of Trump saying he has a 'secret' document that he knows he can't declassify is 'even more damning than it reads in the indictment,' one expert said](https://news.yahoo.com/leaked-audio-trump-saying-secret-011947278.html)
+- Jun 27 - [George Conway calls Trump ‘sociopathic criminal’ after release of classified docs tape](https://news.yahoo.com/george-conway-calls-trump-sociopathic-005208826.html)
 - Jun 27 - [Hear exclusive audio of Trump discussing classified documents in 2021](https://news.yahoo.com/hear-exclusive-audio-trump-discussing-001513593.html)
 - Jun 26 - [Nancy Pelosi's husband just snapped up $2.6 million of Apple and Microsoft stock, closing out an options bet that the shares would soar](https://finance.yahoo.com/news/nancy-pelosis-husband-exercises-2-235828529.html)
-- Jun 26 - [Kansas must undo gender changes for trans people in state records, attorney general says](https://news.yahoo.com/kansas-must-undo-gender-changes-230207876.html)
-- Jun 26 - [Biden unveils $42 billion internet access plan](https://news.yahoo.com/biden-unveils-42-billion-internet-220009888.html)
+- Jun 26 - [Putin confirms Russian pilots killed during aborted mutiny](https://news.yahoo.com/putin-confirms-russian-pilots-killed-234355317.html)
 <!-- feed end -->
