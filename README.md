@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Podcast hosts reinvestigate the murders of a Virginia couple 40 years later](https://news.yahoo.com/podcast-hosts-reinvestigate-murders-virginia-131527508.html)
-- Jun 27 - [DeSantis argues for immunity from Disney lawsuit](https://finance.yahoo.com/news/desantis-argues-for-immunity-from-disney-lawsuit-124739990.html)
-- Jun 27 - [Watch shocking moment a pool technician is shot by a homeowner, no charges filed](https://news.yahoo.com/watch-shocking-moment-pool-technician-123748543.html)
-- Jun 27 - [Volusia County man arrested after performing lewd act on beach in front of children, deputies say](https://news.yahoo.com/volusia-county-man-arrested-performing-122819051.html)
-- Jun 27 - [UK says the Storm Shadow missiles it gave Ukraine have been wreaking havoc on Russian targets and are accurate 'almost without fault'](https://news.yahoo.com/uk-says-storm-shadow-missiles-122324822.html)
+- Jun 27 - [US Supreme Court sides with man who sent female musician barrage of unwanted messages](https://news.yahoo.com/us-supreme-court-sides-man-143840756.html)
+- Jun 27 - [Supreme Court rules state courts can play role in policing federal elections](https://news.yahoo.com/supreme-court-upholds-north-carolina-141714580.html)
+- Jun 27 - [California Rep. Maxine Waters introduces bills to spend hundreds of billions of dollars to fight homelessness and solve the affordable housing crisis](https://news.yahoo.com/california-rep-maxine-waters-introduces-133702665.html)
+- Jun 27 - [Couple dropped lawsuit against OceanGate's CEO for not refunding them for canceled trip on his sub, after he died on board](https://news.yahoo.com/couple-dropped-lawsuit-against-oceangates-133017643.html)
+- Jun 27 - [Tesla Rival Goes Bankrupt](https://www.thestreet.com/technology/tesla-rival-goes-bankrupt?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
