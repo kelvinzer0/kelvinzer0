@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Trump hits the panic button: Antisemitic attacks on special counsel Jack Smith betray desperation](https://news.yahoo.com/trump-hits-panic-button-antisemitic-094502951.html)
-- Jun 28 - [Trump sues E. Jean Carroll for defamation](https://news.yahoo.com/trump-sues-e-jean-carroll-090551441.html)
-- Jun 28 - [Microsoft's ex-VP of HR says you should leave a company right away if you get put on a PIP: 'Surviving it is like a sign on your back'](https://news.yahoo.com/microsofts-ex-vp-hr-says-090000460.html)
-- Jun 28 - ['Cheapest SOB I’ve Ever Met': Chris Christie Rips Trump For Diverting Donations](https://news.yahoo.com/cheapest-sob-ve-ever-met-065655578.html)
-- Jun 28 - [A man who emerged from a bathroom foaming at the mouth on an Alaska Airlines flight had to be restrained before reaching the cockpit, affidavit says](https://news.yahoo.com/man-emerged-bathroom-foaming-mouth-040107397.html)
+- Jun 28 - [Russian missile strike on restaurant kills nine in Ukraine](https://news.yahoo.com/russian-missile-strike-restaurant-kills-120658995.html)
+- Jun 28 - [Medieval Spanish city swelters in hot spell](https://news.yahoo.com/medieval-spanish-city-swelters-hot-115740649.html)
+- Jun 28 - [House Democrat Flips The Script On Fox News Host Attacking Kamala Harris](https://news.yahoo.com/house-democrat-flips-script-fox-112331782.html)
+- Jun 28 - ['It's going to be ugly': This CEO has issued a dire warning about US real estate, saying areas will be 'destroyed' — but he still likes this 1 niche. What it is and how to invest in it](https://finance.yahoo.com/news/going-ugly-ceo-just-issued-103500109.html)
+- Jun 28 - [Homeowner vows to fight after HOA invents arbitrary rule to prevent them from saving money: ‘The new rule is discriminatory’](https://news.yahoo.com/homeowner-vows-fight-hoa-invents-104500993.html)
 <!-- feed end -->
