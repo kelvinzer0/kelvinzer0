@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [US reports first malaria cases in 20 years](https://news.yahoo.com/us-reports-first-malaria-cases-080119466.html)
+- Jun 28 - [Trump sues E. Jean Carroll for defamation](https://news.yahoo.com/trump-sues-e-jean-carroll-090551441.html)
 - Jun 28 - ['Cheapest SOB I’ve Ever Met': Chris Christie Rips Trump For Diverting Donations](https://news.yahoo.com/cheapest-sob-ve-ever-met-065655578.html)
 - Jun 28 - [Richard Branson's Virgin Galactic is under fire for offering $450,000 commercial space flights just a week after the Titan submersible tragedy](https://news.yahoo.com/richard-bransons-virgin-galactic-under-052723593.html)
 - Jun 28 - [A man who emerged from a bathroom foaming at the mouth on an Alaska Airlines flight had to be restrained before reaching the cockpit, affidavit says](https://news.yahoo.com/man-emerged-bathroom-foaming-mouth-040107397.html)
