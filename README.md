@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - [Jeanine Pirro's Insult Of Kamala Harris Is Beyond The Pale On Fox News](https://www.yahoo.com/entertainment/jeanine-pirros-insult-kamala-harris-124426310.html)
+- Jun 28 - [Putin wanted to 'wipe out' Prigozhin - Lukashenko](https://news.yahoo.com/putin-wanted-wipe-prigozhin-lukashenko-121810422.html)
 - Jun 28 - [Russian missile strike on restaurant kills nine in Ukraine](https://news.yahoo.com/russian-missile-strike-restaurant-kills-120658995.html)
-- Jun 28 - [Medieval Spanish city swelters in hot spell](https://news.yahoo.com/medieval-spanish-city-swelters-hot-115740649.html)
-- Jun 28 - [House Democrat Flips The Script On Fox News Host Attacking Kamala Harris](https://news.yahoo.com/house-democrat-flips-script-fox-112331782.html)
+- Jun 28 - [WATCH: Woman rescued after falling off cruise ship out of Port Canaveral](https://news.yahoo.com/watch-woman-rescued-falling-off-115429413.html)
 - Jun 28 - ['It's going to be ugly': This CEO has issued a dire warning about US real estate, saying areas will be 'destroyed' — but he still likes this 1 niche. What it is and how to invest in it](https://finance.yahoo.com/news/going-ugly-ceo-just-issued-103500109.html)
-- Jun 28 - [Homeowner vows to fight after HOA invents arbitrary rule to prevent them from saving money: ‘The new rule is discriminatory’](https://news.yahoo.com/homeowner-vows-fight-hoa-invents-104500993.html)
 <!-- feed end -->
