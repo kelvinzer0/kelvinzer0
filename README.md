@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - [Amtrak train derails after California collision](https://news.yahoo.com/amtrak-train-derails-california-collision-205613034.html)
+- Jun 28 - [A passenger fell overboard off the 10th deck of a Royal Caribbean cruise ship, but was miraculously saved after an hour-long rescue](https://news.yahoo.com/passenger-fell-overboard-off-10th-153534946.html)
 - Jun 28 - [The Federal Reserve thinks catastrophe is coming for US businesses](https://finance.yahoo.com/news/federal-thinks-catastrophe-coming-us-190000318.html)
 - Jun 28 - [Man seen on ‘America’s Most Wanted’ is in Florida jail after 39 years on run, cops say](https://news.yahoo.com/man-seen-america-most-wanted-181653276.html)
-- Jun 28 - [US announces charges in $2.5 billion healthcare fraud takedown](https://news.yahoo.com/us-announces-charges-2-5-170659854.html)
-- Jun 28 - [Trump Made Disturbing Comments About Having Sex With Ivanka, Ex-Staffer Claims](https://news.yahoo.com/trump-made-disturbing-comments-having-162329834.html)
-- Jun 28 - [Pictured: Mangled debris from the Titan submersible recovered](https://news.yahoo.com/pictured-first-fragments-destroyed-titan-151027948.html)
+- Jun 28 - ['Yellowjackets' Star Liv Hewson Feels 'More Alive' After Top Surgery: 'Never Been Happier'](https://www.yahoo.com/entertainment/yellowjackets-star-liv-hewson-feels-171829328.html)
 <!-- feed end -->
