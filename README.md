@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 28 - [A man who emerged from a bathroom foaming at the mouth on an Alaska Airlines flight had to be restrained before reaching the cockpit, affidavit says](https://news.yahoo.com/man-emerged-bathroom-foaming-mouth-040107397.html)
-- Jun 28 - [British actor Julian Sands confirmed dead](https://news.yahoo.com/british-actor-julian-sands-confirmed-035843388.html)
 - Jun 28 - [Trump's New 2-Word Description Of Himself Leaves Critics Flummoxed](https://news.yahoo.com/trumps-2-word-description-himself-034041104.html)
 - Jun 28 - ['Octomom' Nadya Suleman Shares Ripped Gym Picture While Revealing She Herniated 3 Discs During Pregnancy](https://www.yahoo.com/entertainment/octomom-nadya-suleman-shares-ripped-025604212.html)
 - Jun 28 - [Trump sues E. Jean Carroll for defamation after jury finds he sexually abused her](https://news.yahoo.com/trump-sues-e-jean-carroll-024525057.html)
+- Jun 27 - [Chimp spent 28 years looking through bars. Now watch her marvel at open sky in Florida](https://news.yahoo.com/chimp-spent-28-years-looking-232151140.html)
 <!-- feed end -->
