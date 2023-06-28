@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Police shooting sparks unrest in Paris suburb](https://news.yahoo.com/police-shooting-sparks-unrest-paris-032214718.html)
+- Jun 28 - [A man who emerged from a bathroom foaming at the mouth on an Alaska Airlines flight had to be restrained before reaching the cockpit, affidavit says](https://news.yahoo.com/man-emerged-bathroom-foaming-mouth-040107397.html)
+- Jun 28 - [British actor Julian Sands confirmed dead](https://news.yahoo.com/british-actor-julian-sands-confirmed-035843388.html)
+- Jun 28 - [Trump's New 2-Word Description Of Himself Leaves Critics Flummoxed](https://news.yahoo.com/trumps-2-word-description-himself-034041104.html)
 - Jun 28 - ['Octomom' Nadya Suleman Shares Ripped Gym Picture While Revealing She Herniated 3 Discs During Pregnancy](https://www.yahoo.com/entertainment/octomom-nadya-suleman-shares-ripped-025604212.html)
-- Jun 27 - [Chimp spent 28 years looking through bars. Now watch her marvel at open sky in Florida](https://news.yahoo.com/chimp-spent-28-years-looking-232151140.html)
-- Jun 27 - [Trump Expands His Attack On Special Counsel To Include His Family And Friends](https://news.yahoo.com/trump-expands-attack-special-counsel-232146862.html)
-- Jun 27 - [Disney beats investor lawsuit over feud with DeSantis](https://news.yahoo.com/disney-beats-investor-lawsuit-over-230158583.html)
+- Jun 28 - [Trump sues E. Jean Carroll for defamation after jury finds he sexually abused her](https://news.yahoo.com/trump-sues-e-jean-carroll-024525057.html)
 <!-- feed end -->
