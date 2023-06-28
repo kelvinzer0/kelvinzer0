@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 28 - [US announces charges in $2.5 billion healthcare fraud takedown](https://news.yahoo.com/us-announces-charges-2-5-170659854.html)
 - Jun 28 - [Trump Made Disturbing Comments About Having Sex With Ivanka, Ex-Staffer Claims](https://news.yahoo.com/trump-made-disturbing-comments-having-162329834.html)
-- Jun 28 - [Missing woman was kidnapped, pushed off cliff years ago, cops say. Now one is charged](https://news.yahoo.com/missing-woman-kidnapped-pushed-off-162249330.html)
 - Jun 28 - [Pictured: Mangled debris from the Titan submersible recovered](https://news.yahoo.com/pictured-first-fragments-destroyed-titan-151027948.html)
 - Jun 28 - [It’s official: Lady angler sets a world record for largemouth bass](https://sports.yahoo.com/official-lady-angler-sets-world-160144808.html)
+- Jun 28 - [‘Hell-bent on destruction:’ Senators fume over growing number of blocked nominations](https://news.yahoo.com/hell-bent-destruction-senators-fume-160012787.html)
 <!-- feed end -->
