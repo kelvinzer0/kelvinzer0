@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - ['Cheapest SOB I’ve Ever Met': Chris Christie Rips Trump For Diverting Donations](https://news.yahoo.com/cheapest-sob-ve-ever-met-065655578.html)
 - Jun 28 - [Richard Branson's Virgin Galactic is under fire for offering $450,000 commercial space flights just a week after the Titan submersible tragedy](https://news.yahoo.com/richard-bransons-virgin-galactic-under-052723593.html)
 - Jun 28 - [A man who emerged from a bathroom foaming at the mouth on an Alaska Airlines flight had to be restrained before reaching the cockpit, affidavit says](https://news.yahoo.com/man-emerged-bathroom-foaming-mouth-040107397.html)
 - Jun 28 - [Trump's New 2-Word Description Of Himself Leaves Critics Flummoxed](https://news.yahoo.com/trumps-2-word-description-himself-034041104.html)
 - Jun 28 - ['Octomom' Nadya Suleman Shares Ripped Gym Picture While Revealing She Herniated 3 Discs During Pregnancy](https://www.yahoo.com/entertainment/octomom-nadya-suleman-shares-ripped-025604212.html)
-- Jun 28 - [Trump sues E. Jean Carroll for defamation after jury finds he sexually abused her](https://news.yahoo.com/trump-sues-e-jean-carroll-024525057.html)
 <!-- feed end -->
