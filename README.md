@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [France braces for protests after 'unforgivable' police shooting](https://news.yahoo.com/france-braces-protests-unforgivable-police-144116869.html)
-- Jun 28 - [As Russia teetered, the elite trembled, and some private jets left](https://uk.news.yahoo.com/russia-teetered-elite-trembled-private-143731309.html)
-- Jun 28 - [Man sets fire to Koran pages outside Stockholm mosque](https://news.yahoo.com/man-sets-fire-koran-pages-143331917.html)
+- Jun 28 - [Pictured: Mangled debris from the Titan submersible recovered](https://news.yahoo.com/pictured-first-fragments-destroyed-titan-151027948.html)
+- Jun 28 - [Virgin Galactic stock rises ahead of first commercial space flight](https://finance.yahoo.com/video/virgin-galactic-stock-rises-ahead-154708879.html)
+- Jun 28 - ["So much winning": Trump's bid to dodge NY judge he hates shot down after surprise witness backfires](https://news.yahoo.com/much-winning-trumps-bid-dodge-150730521.html)
 - Jun 28 - ["Truly, epically stupid": Legal experts say Trump's defamation suit against Carroll could backfire](https://news.yahoo.com/truly-epically-stupid-legal-experts-142340050.html)
 - Jun 28 - [Tesla Just Announced Its Next Multi-Hundred-Billion-Dollar Business](https://www.fool.com/investing/2023/06/28/tesla-just-announced-its-next-multi-hundred-billio/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 <!-- feed end -->
