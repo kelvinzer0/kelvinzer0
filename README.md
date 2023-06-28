@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [Chimp spent 28 years looking through bars. Now watch her marvel at open sky in Florida](https://news.yahoo.com/chimp-spent-28-years-looking-232151140.html)
+- Jun 27 - [Trump Expands His Attack On Special Counsel To Include His Family And Friends](https://news.yahoo.com/trump-expands-attack-special-counsel-232146862.html)
+- Jun 27 - [White House picks fight with Greene over funding](https://news.yahoo.com/white-house-picks-fight-greene-230820146.html)
+- Jun 27 - [Disney beats investor lawsuit over feud with DeSantis](https://news.yahoo.com/disney-beats-investor-lawsuit-over-230158583.html)
 - Jun 27 - [East Europe NATO allies say Wagner troops in Belarus spell trouble](https://news.yahoo.com/east-europe-nato-allies-wagner-202405688.html)
-- Jun 27 - [Trumpworld Rages at McCarthy: ‘Kevin’s in Trouble Now’](https://news.yahoo.com/trumpworld-rages-mccarthy-kevin-trouble-200144450.html)
-- Jun 27 - [‘Massive’ creature found lurking in underwater tunnel and discovered as new species](https://news.yahoo.com/massive-creature-found-lurking-underwater-194542130.html)
-- Jun 27 - [Cheney on the problem with American politics: ‘We’re electing idiots’](https://news.yahoo.com/cheney-problem-american-politics-electing-194210526.html)
-- Jun 27 - [The man who sued Buffalo Wild Wings over its 'boneless' wings is now suing a home-goods company over a $20 blanket](https://news.yahoo.com/man-sued-buffalo-wild-wings-194023326.html)
 <!-- feed end -->
