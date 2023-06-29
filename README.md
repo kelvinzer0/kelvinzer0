@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Fury at the police as march for French teen turns violent](https://news.yahoo.com/fury-police-march-french-teen-163926816.html)
-- Jun 29 - ['It's personal': Elizabeth Warren says President Biden has the 'legal authority' to cancel student-loan debt — and she's calling for action right now. But will it actually happen?](https://finance.yahoo.com/news/personal-elizabeth-warren-says-president-160600966.html)
-- Jun 29 - [Kentaji Brown Jackson Skewers Clarence Thomas in SCOTUS' Affirmative Action Ruling](https://news.yahoo.com/kentaji-brown-jackson-skewers-clarence-155000481.html)
-- Jun 29 - ['Was He Alive That Day?': Chris Christie Slams Ron DeSantis Over 'Ridiculous' Jan. 6 Excuse](https://news.yahoo.com/alive-day-chris-christie-slams-152829007.html)
-- Jun 29 - [Read Supreme Court Justice Ketanji Brown Jackson’s Scathing Dissent to ‘Let-Them-Eat-Cake Obliviousness’ at End of Affirmative Action](https://www.yahoo.com/entertainment/read-supreme-court-justice-ketanji-150423547.html)
+- Jun 29 - [There is a 'generational opportunity' in the fixed income market right now: Strategist](https://finance.yahoo.com/video/generational-opportunity-fixed-income-market-173153574.html)
+- Jun 29 - ['Go woke, go broke': Billionaire Chamath Palihapitiya suggests that Northeast cities like NYC, Boston are bleeding income because of political ideology — all while the South keeps booming](https://finance.yahoo.com/news/woke-broke-billionaire-chamath-palihapitiya-173000793.html)
+- Jun 29 - [Turns Out the Supreme Court's Gay Wedding Website Case May Be Based on a Lie](https://news.yahoo.com/turns-supreme-courts-gay-wedding-163800952.html)
+- Jun 29 - [Mississippi prosecutor who excluded Black jurors is resigning after more than 30 years](https://news.yahoo.com/mississippi-prosecutor-excluded-black-jurors-160631451.html)
+- Jun 29 - ['It's personal': Elizabeth Warren says President Biden has the 'legal authority' to cancel student loan debt — and she's calling for action right now. But will it actually happen?](https://finance.yahoo.com/news/personal-elizabeth-warren-says-president-160600966.html)
 <!-- feed end -->
