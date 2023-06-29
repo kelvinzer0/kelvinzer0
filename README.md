@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [Costco customer says interrogation triggered by new ID policy offended her](https://news.yahoo.com/costco-customer-advice-retailer-working-021714712.html)
+- Jun 29 - [Ukrainian soldier says several Russian snipers failed to hit him even after he was wounded because 'they kind of sucked'](https://news.yahoo.com/ukrainian-soldier-says-several-russian-113530830.html)
+- Jun 29 - [Satellite images appear to show build-up at Wagner base in Belarus](https://news.yahoo.com/satellite-images-appear-show-build-112650864.html)
+- Jun 29 - [Here's How Bad a Nuclear War Would Actually Be](https://news.yahoo.com/heres-bad-nuclear-war-actually-100054356.html)
 - Jun 29 - [Chris Christie Has ‘Stupid’ Yet Believable Theory On Why Trump Kept Secret Docs](https://news.yahoo.com/chris-christie-stupid-yet-believable-092331766.html)
-- Jun 29 - [Lauren Boebert’s Most Glaring Hypocrisy Yet Called Out On Twitter](https://news.yahoo.com/lauren-boebert-most-glaring-hypocrisy-071312997.html)
-- Jun 29 - [Jesse Watters was invited to speak before a group of executives. His remarks led to an ‘epic meltdown’](https://finance.yahoo.com/news/jesse-watters-invited-speak-group-035503232.html)
-- Jun 29 - [CEO Lays Off Half The Workforce And Is Surprised When Everyone Else Quits & His Business Fails](https://news.yahoo.com/ceo-lays-off-half-workforce-061500986.html)
-- Jun 29 - [California Black reparations task force concludes historic 2-year work](https://news.yahoo.com/california-black-reparations-task-force-041516029.html)
 <!-- feed end -->
