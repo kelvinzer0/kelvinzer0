@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [Former U.S. VP Mike Pence meets Zelenskiy](https://news.yahoo.com/former-u-vp-mike-pence-193354606.html)
+- Jun 29 - [“She is a potential government witness”: Top Trump campaign official cited in indictment revealed](https://news.yahoo.com/she-potential-government-witness-top-184912242.html)
+- Jun 29 - [Israeli secret service says it captured plot leader in Iran, foiling attack](https://news.yahoo.com/israeli-secret-says-captured-plot-181943599.html)
+- Jun 29 - ['Coward': Asencio sentenced to life after declining to sit in courtroom for sentencing](https://news.yahoo.com/coward-asencio-sentenced-life-declining-181745420.html)
 - Jun 29 - [Man trying to break world record on remote island needs rescue. ‘Owe them all my life’](https://news.yahoo.com/man-trying-break-world-record-175218535.html)
-- Jun 29 - ['Go woke, go broke': Billionaire Chamath Palihapitiya suggests that Northeast cities like NYC, Boston are bleeding income because of political ideology — all while the South keeps booming](https://finance.yahoo.com/news/woke-broke-billionaire-chamath-palihapitiya-173000793.html)
-- Jun 29 - [Four swing states that will determine the 2024 presidential election](https://finance.yahoo.com/news/four-swing-states-that-will-determine-the-2024-presidential-election-172546631.html)
-- Jun 29 - [Madeleine McCann suspect said "she didn't even scream," witness claims](https://news.yahoo.com/madeleine-mccann-suspect-said-she-171000271.html)
-- Jun 29 - [Turns Out the Supreme Court's Gay Wedding Website Case May Be Based on a Lie](https://news.yahoo.com/turns-supreme-courts-gay-wedding-163800952.html)
 <!-- feed end -->
