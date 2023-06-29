@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [Fury at the police as march for French teen turns violent](https://news.yahoo.com/fury-police-march-french-teen-163926816.html)
+- Jun 29 - ['It's personal': Elizabeth Warren says President Biden has the 'legal authority' to cancel student-loan debt — and she's calling for action right now. But will it actually happen?](https://finance.yahoo.com/news/personal-elizabeth-warren-says-president-160600966.html)
+- Jun 29 - [Kentaji Brown Jackson Skewers Clarence Thomas in SCOTUS' Affirmative Action Ruling](https://news.yahoo.com/kentaji-brown-jackson-skewers-clarence-155000481.html)
+- Jun 29 - ['Was He Alive That Day?': Chris Christie Slams Ron DeSantis Over 'Ridiculous' Jan. 6 Excuse](https://news.yahoo.com/alive-day-chris-christie-slams-152829007.html)
 - Jun 29 - [Read Supreme Court Justice Ketanji Brown Jackson’s Scathing Dissent to ‘Let-Them-Eat-Cake Obliviousness’ at End of Affirmative Action](https://www.yahoo.com/entertainment/read-supreme-court-justice-ketanji-150423547.html)
-- Jun 29 - [WHO to label sweetener possible cancer risk: sources](https://news.yahoo.com/label-sweetener-possible-cancer-risk-143921259.html)
-- Jun 29 - [Supreme Court backs Christian who wanted Sundays off in ruling that may affect employers: Live updates](https://news.yahoo.com/supreme-court-backs-christian-wanted-141521466.html)
-- Jun 29 - [Women who applied to Bill Gates' firm were reportedly grilled about their porn habits, if they had nudes on their phone, and whether they had STDs](https://news.yahoo.com/women-applied-bill-gates-firm-140216286.html)
-- Jun 29 - [Bodycam video, new details released after ex-NFL QB's death at beach](https://news.yahoo.com/bodycam-video-details-released-ex-132500979.html)
 <!-- feed end -->
