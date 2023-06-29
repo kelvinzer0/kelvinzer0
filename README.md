@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [Bodycam video, new details released after ex-NFL QB's death at beach](https://news.yahoo.com/bodycam-video-details-released-ex-132500979.html)
+- Jun 29 - [“This won’t go well for Trump”: Experts say Giuliani “trying to avoid indictment” by cutting a deal](https://news.yahoo.com/won-t-well-trump-experts-130430710.html)
 - Jun 29 - [Costco customer says interrogation triggered by new ID policy offended her](https://news.yahoo.com/costco-customer-advice-retailer-working-021714712.html)
 - Jun 29 - [Satellite images appear to show build-up at Wagner base in Belarus](https://news.yahoo.com/satellite-images-appear-show-build-112650864.html)
 - Jun 29 - [Here's How Bad a Nuclear War Would Actually Be](https://news.yahoo.com/heres-bad-nuclear-war-actually-100054356.html)
-- Jun 29 - [Chris Christie Has ‘Stupid’ Yet Believable Theory On Why Trump Kept Secret Docs](https://news.yahoo.com/chris-christie-stupid-yet-believable-092331766.html)
-- Jun 29 - [Lauren Boebert's Most Glaring Hypocrisy Yet Called Out On Twitter](https://news.yahoo.com/lauren-boebert-most-glaring-hypocrisy-071312997.html)
 <!-- feed end -->
