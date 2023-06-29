@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [WHO to label sweetener possible cancer risk: sources](https://news.yahoo.com/label-sweetener-possible-cancer-risk-143921259.html)
+- Jun 29 - [Supreme Court backs Christian who wanted Sundays off in ruling that may affect employers](https://news.yahoo.com/supreme-court-backs-christian-wanted-141521466.html)
+- Jun 29 - [Women who applied to Bill Gates' firm were reportedly grilled about their porn habits, if they had nudes on their phone, and whether they had STDs](https://news.yahoo.com/women-applied-bill-gates-firm-140216286.html)
 - Jun 29 - [Bodycam video, new details released after ex-NFL QB's death at beach](https://news.yahoo.com/bodycam-video-details-released-ex-132500979.html)
-- Jun 29 - [“This won’t go well for Trump”: Experts say Giuliani “trying to avoid indictment” by cutting a deal](https://news.yahoo.com/won-t-well-trump-experts-130430710.html)
-- Jun 29 - [Costco customer says interrogation triggered by new ID policy offended her](https://news.yahoo.com/costco-customer-advice-retailer-working-021714712.html)
-- Jun 29 - [Satellite images appear to show build-up at Wagner base in Belarus](https://news.yahoo.com/satellite-images-appear-show-build-112650864.html)
-- Jun 29 - [Here's How Bad a Nuclear War Would Actually Be](https://news.yahoo.com/heres-bad-nuclear-war-actually-100054356.html)
+- Jun 29 - [Why one of the principal designers of the Stealth Bomber is in a supermax prison](https://news.yahoo.com/why-one-principal-designers-stealth-132130425.html)
 <!-- feed end -->
