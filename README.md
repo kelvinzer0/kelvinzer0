@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [Costco customer says interrogation triggered by new ID policy offended her](https://news.yahoo.com/costco-customer-advice-retailer-working-021714712.html)
+- Jun 29 - [Wisconsin Republicans try to force a vote on the reappointment of a nonpartisan election](https://news.yahoo.com/wisconsin-republicans-try-force-vote-031517159.html)
 - Jun 28 - [Arlington nun is accused of having sex with a priest. Here’s what we’ve learned about him](https://news.yahoo.com/arlington-nun-accused-having-sex-233947366.html)
 - Jun 28 - [Tourist dips fingers in deadly Yellowstone hot spring, video shows. ‘It’s very hot!’](https://news.yahoo.com/tourist-dips-fingers-deadly-yellowstone-232042910.html)
 - Jun 28 - [‘Presumed human remains’ recovered from wreckage of Titan sub](https://news.yahoo.com/pictured-first-fragments-destroyed-titan-151027948.html)
-- Jun 28 - ['Stuck waiting to die': North Koreans give first-hand accounts of starvation, crackdowns in rare interviews](https://news.yahoo.com/stuck-waiting-die-north-koreans-221732827.html)
-- Jun 28 - [Dramatic body camera video released as grand jury refuses to indict officer who killed mass shooter at Texas mall](https://news.yahoo.com/dramatic-body-camera-video-released-215100287.html)
 <!-- feed end -->
