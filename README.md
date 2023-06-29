@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [California Black reparations task force concludes historic 2-year work](https://news.yahoo.com/california-black-reparations-task-force-041516029.html)
+- Jun 29 - [Lauren Boebert’s Most Glaring Hypocrisy Yet Called Out On Twitter](https://news.yahoo.com/lauren-boebert-most-glaring-hypocrisy-071312997.html)
 - Jun 29 - [Jesse Watters was invited to speak before a group of executives. His remarks led to an ‘epic meltdown’](https://finance.yahoo.com/news/jesse-watters-invited-speak-group-035503232.html)
+- Jun 29 - [CEO Lays Off Half The Workforce And Is Surprised When Everyone Else Quits & His Business Fails](https://news.yahoo.com/ceo-lays-off-half-workforce-061500986.html)
+- Jun 29 - [California Black reparations task force concludes historic 2-year work](https://news.yahoo.com/california-black-reparations-task-force-041516029.html)
 - Jun 29 - [Costco customer says interrogation triggered by new ID policy offended her](https://news.yahoo.com/costco-customer-advice-retailer-working-021714712.html)
-- Jun 29 - [Wisconsin Republicans try to force a vote on the reappointment of a nonpartisan election](https://news.yahoo.com/wisconsin-republicans-try-force-vote-031517159.html)
-- Jun 28 - [Arlington nun is accused of having sex with a priest. Here’s what we’ve learned about him](https://news.yahoo.com/arlington-nun-accused-having-sex-233947366.html)
 <!-- feed end -->
