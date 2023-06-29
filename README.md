@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [There is a 'generational opportunity' in the fixed income market right now: Strategist](https://finance.yahoo.com/video/generational-opportunity-fixed-income-market-173153574.html)
+- Jun 29 - [Man trying to break world record on remote island needs rescue. ‘Owe them all my life’](https://news.yahoo.com/man-trying-break-world-record-175218535.html)
 - Jun 29 - ['Go woke, go broke': Billionaire Chamath Palihapitiya suggests that Northeast cities like NYC, Boston are bleeding income because of political ideology — all while the South keeps booming](https://finance.yahoo.com/news/woke-broke-billionaire-chamath-palihapitiya-173000793.html)
+- Jun 29 - [Four swing states that will determine the 2024 presidential election](https://finance.yahoo.com/news/four-swing-states-that-will-determine-the-2024-presidential-election-172546631.html)
+- Jun 29 - [Madeleine McCann suspect said "she didn't even scream," witness claims](https://news.yahoo.com/madeleine-mccann-suspect-said-she-171000271.html)
 - Jun 29 - [Turns Out the Supreme Court's Gay Wedding Website Case May Be Based on a Lie](https://news.yahoo.com/turns-supreme-courts-gay-wedding-163800952.html)
-- Jun 29 - [Mississippi prosecutor who excluded Black jurors is resigning after more than 30 years](https://news.yahoo.com/mississippi-prosecutor-excluded-black-jurors-160631451.html)
-- Jun 29 - ['It's personal': Elizabeth Warren says President Biden has the 'legal authority' to cancel student loan debt — and she's calling for action right now. But will it actually happen?](https://finance.yahoo.com/news/personal-elizabeth-warren-says-president-160600966.html)
 <!-- feed end -->
