@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Watch: Scot Peterson, Deputy at Parkland School Shooting, Is Acquitted](https://finance.yahoo.com/video/watch-scot-peterson-deputy-parkland-203000259.html)
+- Jun 29 - [Ex-Roman Catholic cardinal, now 92, is not competent to stand trial in sex abuse case, expert says](https://news.yahoo.com/ex-roman-catholic-cardinal-now-213608532.html)
+- Jun 29 - [Exclusive-US, Dutch set to hit China's chipmakers with one-two punch](https://finance.yahoo.com/news/exclusive-us-dutch-set-hit-210057951.html)
 - Jun 29 - [Uber driver who shot passenger won’t be charged. Florida’s ‘Stand Your Ground’ law invoked](https://news.yahoo.com/uber-driver-shot-passenger-won-194811606.html)
-- Jun 29 - [Hunter Biden settles child support case in Arkansas, will give daughter multiple paintings](https://news.yahoo.com/hunter-biden-settles-child-support-194139682.html)
 - Jun 29 - [Ketanji Brown Jackson accuses Clarence Thomas of having 'an obsession with race consciousness' and relying on 'many more straw men' than can be listed in his affirmative action opinion](https://news.yahoo.com/ketanji-brown-jackson-accuses-clarence-193539538.html)
 - Jun 29 - [“She is a potential government witness”: Top Trump campaign official cited in indictment revealed](https://news.yahoo.com/she-potential-government-witness-top-184912242.html)
 <!-- feed end -->
