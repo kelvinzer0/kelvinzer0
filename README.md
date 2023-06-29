@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Texas mall shooting police body cam video released](https://news.yahoo.com/texas-mall-shooting-police-body-080035376.html)
+- Jun 29 - [Chris Christie Has ‘Stupid’ Yet Believable Theory On Why Trump Kept Secret Docs](https://news.yahoo.com/chris-christie-stupid-yet-believable-092331766.html)
 - Jun 29 - [Lauren Boebert’s Most Glaring Hypocrisy Yet Called Out On Twitter](https://news.yahoo.com/lauren-boebert-most-glaring-hypocrisy-071312997.html)
 - Jun 29 - [Jesse Watters was invited to speak before a group of executives. His remarks led to an ‘epic meltdown’](https://finance.yahoo.com/news/jesse-watters-invited-speak-group-035503232.html)
 - Jun 29 - [CEO Lays Off Half The Workforce And Is Surprised When Everyone Else Quits & His Business Fails](https://news.yahoo.com/ceo-lays-off-half-workforce-061500986.html)
