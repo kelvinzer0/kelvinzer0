@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Jun 29 - [Jesse Watters was invited to speak before a group of executives. His remarks led to an ‘epic meltdown’](https://finance.yahoo.com/news/jesse-watters-invited-speak-group-035503232.html)
 - Jun 29 - [Costco customer says interrogation triggered by new ID policy offended her](https://news.yahoo.com/costco-customer-advice-retailer-working-021714712.html)
 - Jun 29 - [Wisconsin Republicans try to force a vote on the reappointment of a nonpartisan election](https://news.yahoo.com/wisconsin-republicans-try-force-vote-031517159.html)
-- Jun 29 - [New Mexico Teen Captured After Deadly Shooting Over Reserved Seats For Jennifer Lawrence Comedy ‘No Hard Feelings’](https://www.yahoo.com/entertainment/mexico-teen-captured-deadly-shooting-012958168.html)
+- Jun 28 - [Arlington nun is accused of having sex with a priest. Here’s what we’ve learned about him](https://news.yahoo.com/arlington-nun-accused-having-sex-233947366.html)
 <!-- feed end -->
