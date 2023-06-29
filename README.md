@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Former U.S. VP Mike Pence meets Zelenskiy](https://news.yahoo.com/former-u-vp-mike-pence-193354606.html)
+- Jun 29 - [Watch: Scot Peterson, Deputy at Parkland School Shooting, Is Acquitted](https://finance.yahoo.com/video/watch-scot-peterson-deputy-parkland-203000259.html)
+- Jun 29 - [Uber driver who shot passenger won’t be charged. Florida’s ‘Stand Your Ground’ law invoked](https://news.yahoo.com/uber-driver-shot-passenger-won-194811606.html)
+- Jun 29 - [Hunter Biden settles child support case in Arkansas, will give daughter multiple paintings](https://news.yahoo.com/hunter-biden-settles-child-support-194139682.html)
+- Jun 29 - [Ketanji Brown Jackson accuses Clarence Thomas of having 'an obsession with race consciousness' and relying on 'many more straw men' than can be listed in his affirmative action opinion](https://news.yahoo.com/ketanji-brown-jackson-accuses-clarence-193539538.html)
 - Jun 29 - [“She is a potential government witness”: Top Trump campaign official cited in indictment revealed](https://news.yahoo.com/she-potential-government-witness-top-184912242.html)
-- Jun 29 - [Israeli secret service says it captured plot leader in Iran, foiling attack](https://news.yahoo.com/israeli-secret-says-captured-plot-181943599.html)
-- Jun 29 - ['Coward': Asencio sentenced to life after declining to sit in courtroom for sentencing](https://news.yahoo.com/coward-asencio-sentenced-life-declining-181745420.html)
-- Jun 29 - [Man trying to break world record on remote island needs rescue. ‘Owe them all my life’](https://news.yahoo.com/man-trying-break-world-record-175218535.html)
 <!-- feed end -->
