@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Ex-Roman Catholic cardinal, now 92, is not competent to stand trial in sex abuse case, expert says](https://news.yahoo.com/ex-roman-catholic-cardinal-now-213608532.html)
-- Jun 29 - [Exclusive-US, Dutch set to hit China's chipmakers with one-two punch](https://finance.yahoo.com/news/exclusive-us-dutch-set-hit-210057951.html)
-- Jun 29 - [Uber driver who shot passenger won’t be charged. Florida’s ‘Stand Your Ground’ law invoked](https://news.yahoo.com/uber-driver-shot-passenger-won-194811606.html)
-- Jun 29 - [Ketanji Brown Jackson accuses Clarence Thomas of having 'an obsession with race consciousness' and relying on 'many more straw men' than can be listed in his affirmative action opinion](https://news.yahoo.com/ketanji-brown-jackson-accuses-clarence-193539538.html)
-- Jun 29 - [“She is a potential government witness”: Top Trump campaign official cited in indictment revealed](https://news.yahoo.com/she-potential-government-witness-top-184912242.html)
+- Jun 29 - [Man wanted on Jan. 6 charges arrested in former President Barack Obama's Washington neighborhood](https://news.yahoo.com/man-wanted-jan-6-charges-221159349.html)
+- Jun 29 - [US Marshals believe fugitive wanted for stabbing may be working as tattoo artist in Las Vegas](https://news.yahoo.com/us-marshals-believe-fugitive-wanted-220031760.html)
+- Jun 29 - [Photographer taking orca pictures captures something special near Canada. Take a look](https://news.yahoo.com/photographer-taking-orca-pictures-captures-215625633.html)
+- Jun 29 - [Federal court rules tribal citizen not subject to Tulsa traffic ticket](https://news.yahoo.com/federal-court-rules-tribal-citizen-213724261.html)
+- Jun 29 - [Russian flyers who disobeyed orders to attack Wagner forces may be caught up in Putin's dragnet](https://news.yahoo.com/russian-flyers-disobeyed-orders-attack-213026934.html)
 <!-- feed end -->
