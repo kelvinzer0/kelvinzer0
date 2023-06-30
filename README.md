@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [The Supreme Court just gave the 2024 Biden campaign a powerful pitch: I tried to forgive debts, an unelected court killed it, but I'll do it again if you give me the votes](https://news.yahoo.com/supreme-court-just-gave-2024-164026675.html)
+- Jun 30 - [Ivanka Trump's Separation From Donald Trump May Be Complete Now That She's Dismissed From This Family Event](https://www.yahoo.com/entertainment/ivanka-trumps-separation-donald-trump-163925041.html)
 - Jun 30 - [Straight white men ‘dangerous’ says San Francisco campaigner for slavery reparations](https://news.yahoo.com/straight-white-men-dangerous-says-163602580.html)
 - Jun 30 - [Caught on Camera: Flight Attendant Bans Couple From Boarding Plane in Uncomfortable Exchange](https://www.thestreet.com/lifestyle/travel/caught-on-camera-flight-attendant-bans-couple-from-boarding-plane-in-uncomfortable-exchange?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jun 30 - [Roberts takes aim at liberal justices in defending Supreme Court’s legitimacy](https://news.yahoo.com/roberts-takes-aim-liberal-justices-160428322.html)
-- Jun 30 - [Student loan ruling may be windfall for US deficit reduction](https://finance.yahoo.com/news/student-loan-ruling-may-windfall-145538558.html)
-- Jun 30 - [Biden's student loan defeat adds to headwinds for US economy](https://finance.yahoo.com/news/bidens-student-loan-defeat-adds-145004826.html)
 <!-- feed end -->
