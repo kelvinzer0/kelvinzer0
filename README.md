@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Russia did evacuate orphanages from Ukraine: Lavrov](https://news.yahoo.com/russia-did-evacuate-orphanages-ukraine-112412179.html)
+- Jun 30 - [Former school officer Scot Peterson acquitted after failing to confront Parkland shooter](https://news.yahoo.com/former-school-officer-scot-peterson-123616589.html)
+- Jun 30 - [Biden: "this is not a normal court" after Supreme Court strikes down affirmative action](https://news.yahoo.com/biden-not-normal-court-supreme-123218965.html)
 - Jun 30 - [Man Is Confronted By A Little Boy And His Dad For Hunting A Deer — ‘What Did That Deer Do To You?’](https://news.yahoo.com/man-confronted-little-boy-dad-101500263.html)
-- Jun 30 - [The US flies nuclear-capable bombers in a fresh show of force against North Korea](https://news.yahoo.com/us-flies-nuclear-capable-bombers-095719380.html)
 - Jun 30 - ["Far beyond simple narcissism": Why Donald Trump can't simply keep quiet — even when facing prison](https://news.yahoo.com/far-beyond-simple-narcissism-why-093001561.html)
 - Jun 30 - [Video shows Ukraine shooting down an Su-25 war plane from miles away with a shoulder-mounted missile, officials say](https://news.yahoo.com/video-shows-ukraine-shooting-down-091332843.html)
 <!-- feed end -->
