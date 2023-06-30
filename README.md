@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [Someone on a morning walk in Florida heard ‘cries.’ A cop checked an uncapped pipe](https://news.yahoo.com/someone-morning-walk-florida-heard-180434636.html)
+- Jun 30 - [US warns new Chinese counterespionage law puts companies at risk](https://news.yahoo.com/us-warns-chinese-counterespionage-law-165108824.html)
+- Jun 30 - [Hiding in plain sight: Police say this man created new ID, started family after running from the law](https://news.yahoo.com/hiding-plain-sight-police-man-164314026.html)
 - Jun 30 - [The Supreme Court just gave the 2024 Biden campaign a powerful pitch: I tried to forgive debts, an unelected court killed it, but I'll do it again if you give me the votes](https://news.yahoo.com/supreme-court-just-gave-2024-164026675.html)
 - Jun 30 - [Ivanka Trump's Separation From Donald Trump May Be Complete Now That She's Dismissed From This Family Event](https://www.yahoo.com/entertainment/ivanka-trumps-separation-donald-trump-163925041.html)
-- Jun 30 - [Straight white men ‘dangerous’ says San Francisco campaigner for slavery reparations](https://news.yahoo.com/straight-white-men-dangerous-says-163602580.html)
-- Jun 30 - [Caught on Camera: Flight Attendant Bans Couple From Boarding Plane in Uncomfortable Exchange](https://www.thestreet.com/lifestyle/travel/caught-on-camera-flight-attendant-bans-couple-from-boarding-plane-in-uncomfortable-exchange?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jun 30 - [Roberts takes aim at liberal justices in defending Supreme Court’s legitimacy](https://news.yahoo.com/roberts-takes-aim-liberal-justices-160428322.html)
 <!-- feed end -->
