@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Aspartame - is it a possible cause of cancer?](https://news.yahoo.com/aspartame-possible-cause-cancer-090320143.html)
+- Jun 30 - ["Far beyond simple narcissism": Why Donald Trump can't simply keep quite — even when facing prison](https://news.yahoo.com/far-beyond-simple-narcissism-why-093001561.html)
+- Jun 30 - [A radio presenter who lost weight and built muscle six months before turning 30 says he's made habits for life](https://www.yahoo.com/lifestyle/radio-presenter-lost-weight-built-090144422.html)
+- Jun 30 - [Black Lives Matter once unified America. Now, its chapters are divided on progress](https://news.yahoo.com/black-lives-matter-unity-america-blm-chapters-divided-progress-george-floyd-090022690.html)
 - Jun 30 - [Hundreds arrested in third night of France riots](https://news.yahoo.com/hundreds-arrested-third-night-france-072810786.html)
 - Jun 30 - [Marjorie Taylor Greene Ripped For 'Encouraging' Violence In 'Outrageous' Pic](https://news.yahoo.com/marjorie-taylor-greene-ripped-encouraging-071255690.html)
-- Jun 30 - [Russian forces begin to flee Zaporizhzhia Nuclear Power Plant – Ukrainian Defence Intelligence](https://news.yahoo.com/russian-forces-begin-flee-zaporizhzhia-063125438.html)
-- Jun 30 - [A visitor at Yellowstone National Park scrambled away in shock after she ignored warnings and put her hand into a steaming hot spring](https://news.yahoo.com/visitor-yellowstone-national-park-scrambled-051005711.html)
 <!-- feed end -->
