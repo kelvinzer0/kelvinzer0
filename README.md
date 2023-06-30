@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [Aspartame - is it a possible cause of cancer?](https://news.yahoo.com/aspartame-possible-cause-cancer-090320143.html)
 - Jun 30 - [Hundreds arrested in third night of France riots](https://news.yahoo.com/hundreds-arrested-third-night-france-072810786.html)
 - Jun 30 - [Marjorie Taylor Greene Ripped For 'Encouraging' Violence In 'Outrageous' Pic](https://news.yahoo.com/marjorie-taylor-greene-ripped-encouraging-071255690.html)
+- Jun 30 - [Russian forces begin to flee Zaporizhzhia Nuclear Power Plant – Ukrainian Defence Intelligence](https://news.yahoo.com/russian-forces-begin-flee-zaporizhzhia-063125438.html)
 - Jun 30 - [A visitor at Yellowstone National Park scrambled away in shock after she ignored warnings and put her hand into a steaming hot spring](https://news.yahoo.com/visitor-yellowstone-national-park-scrambled-051005711.html)
-- Jun 30 - [Rep. George Santos set to appear federal court on fraud and money laundering charges](https://news.yahoo.com/rep-george-santos-set-appear-042813720.html)
-- Jun 30 - [Ron DeSantis Says The Left Doesn’t ‘Want People to Be Happy,’ Then Awkwardly Eats Pizza (Video)](https://www.yahoo.com/entertainment/ron-desantis-says-left-doesn-041427185.html)
 <!-- feed end -->
