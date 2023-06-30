@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [A telescope sets off to shine light on dark matter](https://news.yahoo.com/telescope-sets-off-shine-light-190429786.html)
+- Jun 30 - [Protesters outside George Santos court appearance](https://news.yahoo.com/protesters-outside-george-santos-court-190001227.html)
+- Jun 30 - [Medical Professionals Are Sharing Their Most Shocking Patient Stories, And I'm Utterly Speechless](https://www.yahoo.com/lifestyle/medical-professionals-sharing-most-shocking-181602920.html)
 - Jun 30 - [Someone on a morning walk in Florida heard ‘cries.’ A cop checked an uncapped pipe](https://news.yahoo.com/someone-morning-walk-florida-heard-180434636.html)
 - Jun 30 - [US warns new Chinese counterespionage law puts companies at risk](https://news.yahoo.com/us-warns-chinese-counterespionage-law-165108824.html)
-- Jun 30 - [Hiding in plain sight: Police say this man created new ID, started family after running from the law](https://news.yahoo.com/hiding-plain-sight-police-man-164314026.html)
-- Jun 30 - [The Supreme Court just gave the 2024 Biden campaign a powerful pitch: I tried to forgive debts, an unelected court killed it, but I'll do it again if you give me the votes](https://news.yahoo.com/supreme-court-just-gave-2024-164026675.html)
-- Jun 30 - [Ivanka Trump's Separation From Donald Trump May Be Complete Now That She's Dismissed From This Family Event](https://www.yahoo.com/entertainment/ivanka-trumps-separation-donald-trump-163925041.html)
 <!-- feed end -->
