@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [A visitor at Yellowstone National Park scrambled away in shock after she ignored warnings and put her hand into a steaming hot spring](https://news.yahoo.com/visitor-yellowstone-national-park-scrambled-051005711.html)
+- Jun 30 - [Rep. George Santos set to appear federal court on fraud and money laundering charges](https://news.yahoo.com/rep-george-santos-set-appear-042813720.html)
 - Jun 30 - [Ron DeSantis Says The Left Doesn’t ‘Want People to Be Happy,’ Then Awkwardly Eats Pizza (Video)](https://www.yahoo.com/entertainment/ron-desantis-says-left-doesn-041427185.html)
-- Jun 30 - [In Ending Affirmative Action, Clarence Thomas Finally Gets What He Wanted](https://news.yahoo.com/ending-affirmative-action-clarence-thomas-003450663.html)
-- Jun 29 - [Kevin Costner's estranged wife claims the actor canceled a credit card and lowered the limit on another, leaving her with limited funds to move out](https://www.yahoo.com/entertainment/kevin-costners-estranged-wife-claims-231428717.html)
-- Jun 29 - [‘Great day for America’: Trump reacts to Supreme Court decision](https://news.yahoo.com/vice-president-harris-reacts-historic-210522358.html)
-- Jun 29 - [Twitter Users Notice Something Weird In Resurfaced Ron DeSantis Beach Pic](https://www.yahoo.com/entertainment/twitter-users-notice-something-weird-223741417.html)
+- Jun 30 - [A documentary cameraman who took a test dive in the Titan sub said OceanGate CEO Stockton Rush was 'flustered' with the submersible's comms going out, but tried to 'make light of it'](https://news.yahoo.com/documentary-cameraman-took-test-dive-041022145.html)
+- Jun 30 - [Human Rights Watch reports new evidence of Ukrainian use of banned landmines](https://news.yahoo.com/human-rights-watch-reports-evidence-040539036.html)
 <!-- feed end -->
