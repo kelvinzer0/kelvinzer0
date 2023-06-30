@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [A telescope sets off to shine light on dark matter](https://news.yahoo.com/telescope-sets-off-shine-light-190429786.html)
-- Jun 30 - [Protesters outside George Santos court appearance](https://news.yahoo.com/protesters-outside-george-santos-court-190001227.html)
-- Jun 30 - [Medical Professionals Are Sharing Their Most Shocking Patient Stories, And I'm Utterly Speechless](https://www.yahoo.com/lifestyle/medical-professionals-sharing-most-shocking-181602920.html)
+- Jun 30 - [Recovering Titan with the Odysseus underwater robot was complex, dangerous, emotional](https://news.yahoo.com/recovering-titan-odysseus-underwater-robot-201413925.html)
+- Jun 30 - [Angered by counteroffensive complaints, Ukraine's top general says the expected mission is 'not feasible at all' with just the weapons his army has now](https://news.yahoo.com/angered-counteroffensive-complaints-ukraines-top-195827247.html)
+- Jun 30 - ["He Shut His Own Oxygen Off And They Acted Like I Killed Him," And 15 Other Shocking Patient Stories Straight From Medical Professionals](https://www.yahoo.com/lifestyle/medical-professionals-sharing-most-shocking-181602920.html)
 - Jun 30 - [Someone on a morning walk in Florida heard ‘cries.’ A cop checked an uncapped pipe](https://news.yahoo.com/someone-morning-walk-florida-heard-180434636.html)
 - Jun 30 - [US warns new Chinese counterespionage law puts companies at risk](https://news.yahoo.com/us-warns-chinese-counterespionage-law-165108824.html)
 <!-- feed end -->
