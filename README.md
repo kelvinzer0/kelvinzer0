@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Man wanted on Jan. 6 charges arrested in former President Barack Obama's Washington neighborhood](https://news.yahoo.com/man-wanted-jan-6-charges-221159349.html)
+- Jun 29 - [Kevin Costner's estranged wife claims the actor canceled a credit card and lowered the limit on another, leaving her with limited funds to move out](https://www.yahoo.com/entertainment/kevin-costners-estranged-wife-claims-231428717.html)
+- Jun 29 - [Twitter Users Notice Something Weird In Resurfaced Ron DeSantis Beach Pic](https://www.yahoo.com/entertainment/twitter-users-notice-something-weird-223741417.html)
 - Jun 29 - [US Marshals believe fugitive wanted for stabbing may be working as tattoo artist in Las Vegas](https://news.yahoo.com/us-marshals-believe-fugitive-wanted-220031760.html)
 - Jun 29 - [Photographer taking orca pictures captures something special near Canada. Take a look](https://news.yahoo.com/photographer-taking-orca-pictures-captures-215625633.html)
 - Jun 29 - [Federal court rules tribal citizen not subject to Tulsa traffic ticket](https://news.yahoo.com/federal-court-rules-tribal-citizen-213724261.html)
-- Jun 29 - [Russian flyers who disobeyed orders to attack Wagner forces may be caught up in Putin's dragnet](https://news.yahoo.com/russian-flyers-disobeyed-orders-attack-213026934.html)
 <!-- feed end -->
