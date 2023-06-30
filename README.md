@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Recovering Titan with the Odysseus underwater robot was complex, dangerous, emotional](https://news.yahoo.com/recovering-titan-odysseus-underwater-robot-201413925.html)
-- Jun 30 - [Angered by counteroffensive complaints, Ukraine's top general says the expected mission is 'not feasible at all' with just the weapons his army has now](https://news.yahoo.com/angered-counteroffensive-complaints-ukraines-top-195827247.html)
-- Jun 30 - ["He Shut His Own Oxygen Off And They Acted Like I Killed Him," And 15 Other Shocking Patient Stories Straight From Medical Professionals](https://www.yahoo.com/lifestyle/medical-professionals-sharing-most-shocking-181602920.html)
-- Jun 30 - [Someone on a morning walk in Florida heard ‘cries.’ A cop checked an uncapped pipe](https://news.yahoo.com/someone-morning-walk-florida-heard-180434636.html)
-- Jun 30 - [US warns new Chinese counterespionage law puts companies at risk](https://news.yahoo.com/us-warns-chinese-counterespionage-law-165108824.html)
+- Jun 30 - [France deploys 45,000 police to quell 'unacceptable' riots](https://news.yahoo.com/france-deploys-45-000-police-214306392.html)
+- Jun 30 - [France braces for fourth night of riots](https://news.yahoo.com/france-braces-fourth-night-riots-205640781.html)
+- Jun 30 - [Battlefield videos capture a tank explosion so massive it's likely it was one of Russia's new rolling bombs](https://news.yahoo.com/battlefield-videos-capture-tank-explosion-204617396.html)
+- Jun 30 - [Israel no closer to attack on Iran nuclear sites, official says](https://news.yahoo.com/israel-no-closer-attack-iran-203510692.html)
+- Jun 30 - [Recovering the Titan 12,500 feet underwater was dangerous, complex, emotional](https://news.yahoo.com/recovering-titan-odysseus-underwater-robot-201413925.html)
 <!-- feed end -->
