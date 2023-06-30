@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [Student loan ruling may be windfall for US deficit reduction](https://finance.yahoo.com/news/student-loan-ruling-may-windfall-145538558.html)
 - Jun 30 - [Biden's student loan defeat adds to headwinds for US economy](https://finance.yahoo.com/news/bidens-student-loan-defeat-adds-145004826.html)
+- Jun 30 - [Photos of the Titan sub's wreckage support the theory that the carbon-fiber hull failed first, expert says](https://news.yahoo.com/photos-titan-subs-wreckage-support-144837933.html)
 - Jun 30 - [Supreme Court Overturns Joe Biden's Student Loan Debt Forgiveness Plan](https://news.yahoo.com/supreme-court-overturns-joe-biden-144100233.html)
-- Jun 30 - [UPDATE 2-US Supreme Court blocks Biden student loan forgiveness](https://finance.yahoo.com/news/1-us-supreme-court-blocks-144020318.html)
-- Jun 30 - [Why are French police using guns during traffic stops?](https://news.yahoo.com/why-french-police-using-guns-140600343.html)
 - Jun 30 - [People are shocked that a man calling Dave Ramsey's show had $451,000 debt on a $40,000 salary](https://news.yahoo.com/people-shocked-man-calling-dave-132858832.html)
 <!-- feed end -->
