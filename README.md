@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [France deploys 45,000 police to quell 'unacceptable' riots](https://news.yahoo.com/france-deploys-45-000-police-214306392.html)
+- Jun 30 - [Student Loan Fight ‘Not Over,’ Education Secretary Says](https://finance.yahoo.com/video/student-loan-fight-not-over-221000600.html)
+- Jun 30 - [Man shot 6 times stopping customer from groping woman is now recovering at home](https://news.yahoo.com/man-shot-6-times-stopping-215706426.html)
 - Jun 30 - [France braces for fourth night of riots](https://news.yahoo.com/france-braces-fourth-night-riots-205640781.html)
 - Jun 30 - [Battlefield videos capture a tank explosion so massive it's likely it was one of Russia's new rolling bombs](https://news.yahoo.com/battlefield-videos-capture-tank-explosion-204617396.html)
 - Jun 30 - [Israel no closer to attack on Iran nuclear sites, official says](https://news.yahoo.com/israel-no-closer-attack-iran-203510692.html)
-- Jun 30 - [Recovering the Titan 12,500 feet underwater was dangerous, complex, emotional](https://news.yahoo.com/recovering-titan-odysseus-underwater-robot-201413925.html)
 <!-- feed end -->
