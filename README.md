@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [Straight white men ‘dangerous’ says San Francisco campaigner for slavery reparations](https://news.yahoo.com/straight-white-men-dangerous-says-163602580.html)
+- Jun 30 - [Caught on Camera: Flight Attendant Bans Couple From Boarding Plane in Uncomfortable Exchange](https://www.thestreet.com/lifestyle/travel/caught-on-camera-flight-attendant-bans-couple-from-boarding-plane-in-uncomfortable-exchange?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jun 30 - [Roberts takes aim at liberal justices in defending Supreme Court’s legitimacy](https://news.yahoo.com/roberts-takes-aim-liberal-justices-160428322.html)
 - Jun 30 - [Student loan ruling may be windfall for US deficit reduction](https://finance.yahoo.com/news/student-loan-ruling-may-windfall-145538558.html)
 - Jun 30 - [Biden's student loan defeat adds to headwinds for US economy](https://finance.yahoo.com/news/bidens-student-loan-defeat-adds-145004826.html)
-- Jun 30 - [Photos of the Titan sub's wreckage support the theory that the carbon-fiber hull failed first, expert says](https://news.yahoo.com/photos-titan-subs-wreckage-support-144837933.html)
-- Jun 30 - [Supreme Court Overturns Joe Biden's Student Loan Debt Forgiveness Plan](https://news.yahoo.com/supreme-court-overturns-joe-biden-144100233.html)
-- Jun 30 - [People are shocked that a man calling Dave Ramsey's show had $451,000 debt on a $40,000 salary](https://news.yahoo.com/people-shocked-man-calling-dave-132858832.html)
 <!-- feed end -->
