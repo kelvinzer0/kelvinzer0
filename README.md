@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Amid protests in France, Macron calls cabinets crisis meeting](https://news.yahoo.com/amid-protests-france-macron-calls-131221493.html)
-- Jun 30 - [Man Is Confronted By A Little Boy And His Dad For Hunting A Deer — ‘What Did That Deer Do To You?’](https://news.yahoo.com/man-confronted-little-boy-dad-101500263.html)
-- Jun 30 - [The US flies nuclear-capable bombers in a fresh show of force against North Korea](https://news.yahoo.com/us-flies-nuclear-capable-bombers-095719380.html)
-- Jun 30 - ["Far beyond simple narcissism": Why Donald Trump can't simply keep quiet — even when facing prison](https://news.yahoo.com/far-beyond-simple-narcissism-why-093001561.html)
-- Jun 30 - [A radio presenter who lost weight and built muscle six months before turning 30 says he's made habits for life](https://www.yahoo.com/lifestyle/radio-presenter-lost-weight-built-090144422.html)
+- Jun 30 - [Biden's student loan defeat adds to headwinds for US economy](https://finance.yahoo.com/news/bidens-student-loan-defeat-adds-145004826.html)
+- Jun 30 - [Supreme Court Overturns Joe Biden's Student Loan Debt Forgiveness Plan](https://news.yahoo.com/supreme-court-overturns-joe-biden-144100233.html)
+- Jun 30 - [UPDATE 2-US Supreme Court blocks Biden student loan forgiveness](https://finance.yahoo.com/news/1-us-supreme-court-blocks-144020318.html)
+- Jun 30 - [Why are French police using guns during traffic stops?](https://news.yahoo.com/why-french-police-using-guns-140600343.html)
+- Jun 30 - [People are shocked that a man calling Dave Ramsey's show had $451,000 debt on a $40,000 salary](https://news.yahoo.com/people-shocked-man-calling-dave-132858832.html)
 <!-- feed end -->
