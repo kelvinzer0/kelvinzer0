@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [Ron DeSantis Says The Left Doesn’t ‘Want People to Be Happy,’ Then Awkwardly Eats Pizza (Video)](https://www.yahoo.com/entertainment/ron-desantis-says-left-doesn-041427185.html)
+- Jun 30 - [In Ending Affirmative Action, Clarence Thomas Finally Gets What He Wanted](https://news.yahoo.com/ending-affirmative-action-clarence-thomas-003450663.html)
 - Jun 29 - [Kevin Costner's estranged wife claims the actor canceled a credit card and lowered the limit on another, leaving her with limited funds to move out](https://www.yahoo.com/entertainment/kevin-costners-estranged-wife-claims-231428717.html)
+- Jun 29 - [‘Great day for America’: Trump reacts to Supreme Court decision](https://news.yahoo.com/vice-president-harris-reacts-historic-210522358.html)
 - Jun 29 - [Twitter Users Notice Something Weird In Resurfaced Ron DeSantis Beach Pic](https://www.yahoo.com/entertainment/twitter-users-notice-something-weird-223741417.html)
-- Jun 29 - [US Marshals believe fugitive wanted for stabbing may be working as tattoo artist in Las Vegas](https://news.yahoo.com/us-marshals-believe-fugitive-wanted-220031760.html)
-- Jun 29 - [Photographer taking orca pictures captures something special near Canada. Take a look](https://news.yahoo.com/photographer-taking-orca-pictures-captures-215625633.html)
-- Jun 29 - [Federal court rules tribal citizen not subject to Tulsa traffic ticket](https://news.yahoo.com/federal-court-rules-tribal-citizen-213724261.html)
 <!-- feed end -->
