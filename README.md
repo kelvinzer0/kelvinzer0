@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 01 - [The leader of the team which found the wreckage of the missing Titan submersible fights back tears describing the recovery](https://news.yahoo.com/leader-team-found-wreckage-missing-112925067.html)
 - Jul 01 - [Woman Calls CPS When She Finds Out The Parents Of A Little Girl  Are Sending Her On A Month-Long Trip Across The Country With Their Truck Driver Friend](https://news.yahoo.com/woman-calls-cps-she-finds-101500499.html)
 - Jul 01 - [How the Taliban launched the most ‘most successful counter-narcotics effort in human history’](https://news.yahoo.com/taliban-launched-most-most-successful-060000340.html)
 - Jul 01 - [Leaked Tesla documents reveal a major issue with one of the company’s most talked-about vehicles: ‘I am astounded’](https://news.yahoo.com/leaked-tesla-documents-reveal-major-050000723.html)
 - Jul 01 - [Americans Who Fought Putin Share ‘Horrifying’ War Surprises](https://news.yahoo.com/americans-fought-putin-share-horrifying-034452802.html)
-- Jul 01 - [Trump Threatens to Appoint ‘Maybe Even Nine’ Supreme Court Justices if Elected](https://news.yahoo.com/trump-threatens-appoint-maybe-even-020719634.html)
 <!-- feed end -->
