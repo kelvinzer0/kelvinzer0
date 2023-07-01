@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 01 - [See cracked support pillar sway as roller coaster goes by](https://news.yahoo.com/see-cracked-support-pillar-sway-192524486.html)
 - Jul 01 - [Trump supporters boo, call Lindsey Graham a ‘traitor’ at South Carolina rally](https://news.yahoo.com/trump-supporters-boo-call-lindsey-172806141.html)
-- Jul 01 - [Space telescope sets off to study ‘dark universe’](https://news.yahoo.com/space-telescope-sets-off-study-165041744.html)
 - Jul 01 - [CIA's Burns: U.S. needs to de-risk and diversify away from China](https://news.yahoo.com/cias-burns-u-needs-risk-164253474.html)
 - Jul 01 - [CIA's Burns: armed mutiny shows damage Putin has done to Russia](https://news.yahoo.com/cias-burns-armed-mutiny-shows-154432408.html)
 - Jul 01 - [Putin in a 'heightened emotional state' and 'bordering on euphoria' following failed Wagner mutiny, Russia analyst says](https://news.yahoo.com/putin-heightened-emotional-state-bordering-124334030.html)
