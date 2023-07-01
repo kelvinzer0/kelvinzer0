@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 01 - [Trump Threatens to Appoint ‘Maybe Even Nine’ Supreme Court Justices if Elected](https://news.yahoo.com/trump-threatens-appoint-maybe-even-020719634.html)
 - Jun 30 - [OceanGate CEO Stockton Rush told a friend in 2019 that he would 'shut down the company' before he would 'operate an unsafe sub'](https://news.yahoo.com/oceangate-ceo-stockton-rush-told-221648605.html)
 - Jun 30 - [North Korea: "No intention to examine" Hyundai chief's bid to visit](https://news.yahoo.com/north-korea-no-intention-examine-221134641.html)
 - Jun 30 - [Man shot 6 times stopping customer from groping woman is now recovering at home](https://news.yahoo.com/man-shot-6-times-stopping-215706426.html)
 - Jun 30 - [Florida to allow building roads with radioactive waste](https://news.yahoo.com/florida-allow-building-roads-radioactive-215432983.html)
-- Jun 30 - [NY Democrat complains about her student debt after SCOTUS ruling, gets slammed for million dollar home](https://news.yahoo.com/ny-democrat-complains-her-student-205825175.html)
 <!-- feed end -->
