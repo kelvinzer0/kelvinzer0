@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 01 - [Putin in a 'heightened emotional state' and 'bordering on euphoria' following failed Wagner mutiny, Russia analyst says](https://news.yahoo.com/putin-heightened-emotional-state-bordering-124334030.html)
 - Jul 01 - [Joe Biden Snaps At Fox News Reporter's Claim That He Gave Millions 'False Hope'](https://news.yahoo.com/joe-biden-snaps-fox-news-123943064.html)
+- Jul 01 - [New study reveals simple act could stave off 2 leading causes of death among adults: ‘Doesn’t need to be complicated’](https://news.yahoo.com/study-reveals-simple-act-could-123000592.html)
 - Jul 01 - [The leader of the team which found the wreckage of the missing Titan submersible fights back tears describing the recovery](https://news.yahoo.com/leader-team-found-wreckage-missing-112925067.html)
 - Jul 01 - [Tommy Tuberville is no longer just a football coach. Now, he's a danger to the country.](https://sports.yahoo.com/tommy-tuberville-no-longer-just-110837893.html)
-- Jul 01 - [Woman Calls CPS When She Finds Out The Parents Of A Little Girl  Are Sending Her On A Month-Long Trip Across The Country With Their Truck Driver Friend](https://news.yahoo.com/woman-calls-cps-she-finds-101500499.html)
 <!-- feed end -->
