@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Student Loan Fight ‘Not Over,’ Education Secretary Says](https://finance.yahoo.com/video/student-loan-fight-not-over-221000600.html)
+- Jun 30 - [OceanGate CEO Stockton Rush told a friend in 2019 that he would 'shut down the company' before he would 'operate an unsafe sub'](https://news.yahoo.com/oceangate-ceo-stockton-rush-told-221648605.html)
+- Jun 30 - [North Korea: "No intention to examine" Hyundai chief's bid to visit](https://news.yahoo.com/north-korea-no-intention-examine-221134641.html)
 - Jun 30 - [Man shot 6 times stopping customer from groping woman is now recovering at home](https://news.yahoo.com/man-shot-6-times-stopping-215706426.html)
-- Jun 30 - [France braces for fourth night of riots](https://news.yahoo.com/france-braces-fourth-night-riots-205640781.html)
-- Jun 30 - [Battlefield videos capture a tank explosion so massive it's likely it was one of Russia's new rolling bombs](https://news.yahoo.com/battlefield-videos-capture-tank-explosion-204617396.html)
-- Jun 30 - [Israel no closer to attack on Iran nuclear sites, official says](https://news.yahoo.com/israel-no-closer-attack-iran-203510692.html)
+- Jun 30 - [Florida to allow building roads with radioactive waste](https://news.yahoo.com/florida-allow-building-roads-radioactive-215432983.html)
+- Jun 30 - [NY Democrat complains about her student debt after SCOTUS ruling, gets slammed for million dollar home](https://news.yahoo.com/ny-democrat-complains-her-student-205825175.html)
 <!-- feed end -->
