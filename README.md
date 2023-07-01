@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 01 - [Americans Who Fought Putin Share ‘Horrifying’ War Surprises](https://news.yahoo.com/americans-fought-putin-share-horrifying-034452802.html)
 - Jul 01 - [Trump Threatens to Appoint ‘Maybe Even Nine’ Supreme Court Justices if Elected](https://news.yahoo.com/trump-threatens-appoint-maybe-even-020719634.html)
-- Jul 01 - [Putin, a germaphobe known for meeting with people at ridiculously long tables, took selfies kissing regular Russians this week](https://news.yahoo.com/putin-germaphobe-known-meeting-people-015120423.html)
 - Jun 30 - [North Korea: "No intention to examine" Hyundai chief's bid to visit](https://news.yahoo.com/north-korea-no-intention-examine-221134641.html)
 - Jun 30 - [Man shot 6 times stopping customer from groping woman is now recovering at home](https://news.yahoo.com/man-shot-6-times-stopping-215706426.html)
+- Jun 30 - [Florida to allow building roads with radioactive waste](https://news.yahoo.com/florida-allow-building-roads-radioactive-215432983.html)
 <!-- feed end -->
