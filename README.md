@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 01 - [Putin in a 'heightened emotional state' and 'bordering on euphoria' following failed Wagner mutiny, Russia analyst says](https://news.yahoo.com/putin-heightened-emotional-state-bordering-124334030.html)
+- Jul 01 - [Joe Biden Snaps At Fox News Reporter's Claim That He Gave Millions 'False Hope'](https://news.yahoo.com/joe-biden-snaps-fox-news-123943064.html)
 - Jul 01 - [The leader of the team which found the wreckage of the missing Titan submersible fights back tears describing the recovery](https://news.yahoo.com/leader-team-found-wreckage-missing-112925067.html)
 - Jul 01 - [Tommy Tuberville is no longer just a football coach. Now, he's a danger to the country.](https://sports.yahoo.com/tommy-tuberville-no-longer-just-110837893.html)
 - Jul 01 - [Woman Calls CPS When She Finds Out The Parents Of A Little Girl  Are Sending Her On A Month-Long Trip Across The Country With Their Truck Driver Friend](https://news.yahoo.com/woman-calls-cps-she-finds-101500499.html)
-- Jul 01 - [‘A natural way to diversify': Janet Yellen now says Americans should anticipate a decline in the USD as the world's reserve currency — what’s really going on and how can you prepare?](https://finance.yahoo.com/news/natural-way-diversify-janet-yellen-125500087.html)
-- Jul 01 - [The last survivor of Adolf Hitler's bunker, where the Nazi leader spent his final days, has died at 94](https://news.yahoo.com/last-survivor-adolf-hitlers-bunker-083612116.html)
 <!-- feed end -->
