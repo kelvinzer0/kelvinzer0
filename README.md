@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - ['Parental rights' group Moms for Liberty plans nationwide strategy for school board races in 2024](https://news.yahoo.com/parental-rights-group-moms-liberty-124658627.html)
+- Jul 02 - [Baltimore Block Party Shooting Kills Two, Injures 28](https://finance.yahoo.com/video/baltimore-block-party-shooting-kills-123900673.html)
 - Jul 02 - [Kansas shooting hospitalizes 9 victims including 7 people shot and 2 trampled, police say](https://news.yahoo.com/kansas-shooting-hospitalizes-9-victims-103426924.html)
 - Jul 02 - [U.S. Money Supply Is Doing Something Not Seen Since the Great Depression, and It May Signal a Big Move to Come for Stocks](https://www.fool.com/investing/2023/07/02/money-supply-since-great-depression-big-move-stock/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Jul 02 - [The leader of the team which found the wreckage of the missing Titan submersible fights back tears describing the recovery](https://news.yahoo.com/leader-team-found-wreckage-missing-112925067.html)
-- Jul 02 - [Israel to buy 25 more F-35 stealth jets in $3 billion deal](https://news.yahoo.com/israel-buy-25-more-f-083427848.html)
-- Jul 02 - [Israel's air force attacks Syria and Syrian air defense missile explodes over northern Israel](https://news.yahoo.com/israels-air-force-attacks-syria-044049289.html)
 <!-- feed end -->
