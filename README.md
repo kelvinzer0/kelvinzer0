@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [Prigozhin 'loses Russian troll factory' after mutiny](https://news.yahoo.com/prigozhin-loses-russian-troll-factory-174826736.html)
+- Jul 02 - [‘Not-so-welcome’ creature washes up on Texas beach. It may have sneaked over on ship](https://news.yahoo.com/not-welcome-creature-washes-texas-172656676.html)
+- Jul 02 - [Breakthrough quantum computer instantly makes calculations that take rivals 47 years](https://finance.yahoo.com/news/breakthrough-quantum-computer-instantly-makes-171316796.html)
+- Jul 02 - [Drunk Chevette Driver Leaves Road And Lands On Camaro Convertible](https://news.yahoo.com/drunk-chevette-driver-leaves-road-200000528.html)
 - Jul 02 - [Thieves On Scooters Attack $4.8 Million Bugatti In Traffic](https://news.yahoo.com/thieves-scooters-attack-4-8-201500566.html)
-- Jul 02 - [Gen Z are the most disgruntled workers and that's a problem for employers](https://finance.yahoo.com/news/gen-z-are-the-most-disgruntled-workers-and-thats-a-problem-for-employers-150517925.html)
-- Jul 02 - [Russian ex-arms dealer freed for Brittney Griner to run for far-right party in local vote](https://news.yahoo.com/russian-ex-arms-dealer-freed-143245682.html)
-- Jul 02 - [Moms for Liberty's focus on school races nationwide sets up political clash with teachers unions](https://news.yahoo.com/parental-rights-group-moms-liberty-124658627.html)
-- Jul 02 - ['I was in a trance': A tech executive was scammed out of $450K as part of a cruel romance grift called 'pig butchering' — here's how it works and what to watch out for](https://finance.yahoo.com/news/trance-tech-executive-got-scammed-183000490.html)
 <!-- feed end -->
