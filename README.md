@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [The leader of the team which found the wreckage of the missing Titan submersible fights back tears describing the recovery](https://news.yahoo.com/leader-team-found-wreckage-missing-112925067.html)
+- Jul 02 - [Moment rollercoaster support beam sways as crack found in structure](https://news.yahoo.com/moment-rollercoaster-support-beam-sways-075211487.html)
 - Jul 02 - [Baltimore police confirm officers are at mass shooting scene, report says there are multiple deaths](https://news.yahoo.com/baltimore-police-confirm-officers-scene-071411744.html)
-- Jul 02 - [Sporadic violence in France after teen's funeral](https://news.yahoo.com/sporadic-violence-france-teens-funeral-055725737.html)
 - Jul 02 - [Israel's air force attacks Syria and Syrian air defense missile explodes over northern Israel](https://news.yahoo.com/israels-air-force-attacks-syria-044049289.html)
 - Jul 02 - [21,000 Wagner mercenaries killed in Ukraine and ‘world wants to kill’ Putin, Zelensky says](https://news.yahoo.com/21-000-wagner-mercenaries-killed-024013579.html)
-- Jul 02 - [Airline Tells Parents They'll Be 'Put In Jail' & The Kids 'Put In Foster Care' If They Don't Take Their Toddler Out Of The Seat They Paid For](https://news.yahoo.com/airline-tells-parents-theyll-put-021500141.html)
 <!-- feed end -->
