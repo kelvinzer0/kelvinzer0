@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [Man dies after diving into shallow water from 40-foot embankment, Texas police say](https://news.yahoo.com/man-dies-diving-shallow-water-211410915.html)
 - Jul 02 - [Freed Russian ex-arms dealer to run for far-right party](https://news.yahoo.com/freed-russian-ex-arms-dealer-210245657.html)
+- Jul 02 - [Mike Pence, who supported the Supreme Court's affirmative action ruling, doesn't think there's racial inequality in education](https://news.yahoo.com/mike-pence-supported-supreme-courts-202350771.html)
 - Jul 02 - [New Photos of Donald Trump Show He May Not Be Heeding the Strict Legal Warnings](https://www.yahoo.com/entertainment/photos-donald-trump-show-may-195000724.html)
 - Jul 02 - [‘Just a hazing exercise’: Ex-Trump lawyer describes team’s reaction to investigation](https://news.yahoo.com/problematic-hear-ex-trump-attorney-010107229.html)
-- Jul 02 - [AOC Says Impeachment Must Be on the Table for Supreme Court Justices: Court ‘Has Not Been Receiving Adequate Oversight’ (Video)](https://www.yahoo.com/entertainment/aoc-says-impeachment-must-table-181729921.html)
-- Jul 02 - [Heavy rains flood Chicago roads and force NASCAR to cut short a downtown street race](https://news.yahoo.com/heavy-rains-flood-chicago-roads-181222775.html)
 <!-- feed end -->
