@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Man dies after diving into shallow water from 40-foot embankment, Texas police say](https://news.yahoo.com/man-dies-diving-shallow-water-211410915.html)
-- Jul 02 - [Freed Russian ex-arms dealer to run for far-right party](https://news.yahoo.com/freed-russian-ex-arms-dealer-210245657.html)
+- Jul 02 - [Baltimore Block Party Shooting Kills Two, Injures 28](https://finance.yahoo.com/video/baltimore-block-party-shooting-kills-123900673.html)
+- Jul 02 - [Chief Justice Roberts hasn't become less conservative. He's just more concerned with the Supreme Court's legacy than partisanship.](https://news.yahoo.com/chief-justice-roberts-hasnt-become-215532750.html)
 - Jul 02 - [Mike Pence, who supported the Supreme Court's affirmative action ruling, doesn't think there's racial inequality in education](https://news.yahoo.com/mike-pence-supported-supreme-courts-202350771.html)
 - Jul 02 - [New Photos of Donald Trump Show He May Not Be Heeding the Strict Legal Warnings](https://www.yahoo.com/entertainment/photos-donald-trump-show-may-195000724.html)
 - Jul 02 - [‘Just a hazing exercise’: Ex-Trump lawyer describes team’s reaction to investigation](https://news.yahoo.com/problematic-hear-ex-trump-attorney-010107229.html)
