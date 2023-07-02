@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - ['Parental rights' group Moms for Liberty plans nationwide strategy for school board races in 2024](https://news.yahoo.com/parental-rights-group-moms-liberty-124658627.html)
-- Jul 02 - [Baltimore Block Party Shooting Kills Two, Injures 28](https://finance.yahoo.com/video/baltimore-block-party-shooting-kills-123900673.html)
+- Jul 02 - ['I was in a trance': A tech executive was scammed out of $450K as part of a cruel romance grift called 'pig butchering' — here's how it works and what to watch out for](https://finance.yahoo.com/news/trance-tech-executive-got-scammed-183000490.html)
 - Jul 02 - [Kansas shooting hospitalizes 9 victims including 7 people shot and 2 trampled, police say](https://news.yahoo.com/kansas-shooting-hospitalizes-9-victims-103426924.html)
+- Jul 02 - [Fluent in English, Idaho student was put in an English Learner class. What happened?](https://news.yahoo.com/fluent-english-idaho-student-put-100000078.html)
 - Jul 02 - [U.S. Money Supply Is Doing Something Not Seen Since the Great Depression, and It May Signal a Big Move to Come for Stocks](https://www.fool.com/investing/2023/07/02/money-supply-since-great-depression-big-move-stock/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Jul 02 - [The leader of the team which found the wreckage of the missing Titan submersible fights back tears describing the recovery](https://news.yahoo.com/leader-team-found-wreckage-missing-112925067.html)
 <!-- feed end -->
