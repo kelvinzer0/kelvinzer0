@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Heavy rains flood Chicago roads and force NASCAR to cut short its downtown street race](https://sports.yahoo.com/heavy-rains-flood-chicago-roads-181222775.html)
+- Jul 02 - [Ukraine says Russian troops advancing in 'fierce fighting'](https://news.yahoo.com/ukraine-says-russian-troops-advancing-180434450.html)
+- Jul 02 - [AOC Says Impeachment Must Be on the Table for Supreme Court Justices: Court ‘Has Not Been Receiving Adequate Oversight’ (Video)](https://www.yahoo.com/entertainment/aoc-says-impeachment-must-table-181729921.html)
+- Jul 02 - [Heavy rains flood Chicago roads and force NASCAR to cut short a downtown street race](https://news.yahoo.com/heavy-rains-flood-chicago-roads-181222775.html)
 - Jul 02 - [‘Not-so-welcome’ creature washes up on Texas beach. It may have sneaked over on ship](https://news.yahoo.com/not-welcome-creature-washes-texas-172656676.html)
 - Jul 02 - [Breakthrough quantum computer instantly makes calculations that take rivals 47 years](https://finance.yahoo.com/news/breakthrough-quantum-computer-instantly-makes-171316796.html)
-- Jul 02 - [Biden slammed after report reveals number of grandchildren his aides instructed to say publicly: 'Monsters'](https://news.yahoo.com/biden-slammed-report-reveals-number-160717245.html)
-- Jul 02 - [Thieves On Scooters Attack $4.8 Million Bugatti In Traffic](https://news.yahoo.com/thieves-scooters-attack-4-8-201500566.html)
 <!-- feed end -->
