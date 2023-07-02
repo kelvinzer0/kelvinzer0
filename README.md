@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 02 - [Russian ex-arms dealer freed for Brittney Griner to run for far-right party in local vote](https://news.yahoo.com/russian-ex-arms-dealer-freed-143245682.html)
-- Jul 02 - [Moms for Liberty's focus on school races nationwide sets up political clash with teachers unions](https://news.yahoo.com/parental-rights-group-moms-liberty-124658627.html)
+- Jul 02 - [After student loan decision, AOC says the Supreme Court is on 'a dangerous creep towards authoritarianism'](https://news.yahoo.com/student-loan-decision-aoc-says-142459764.html)
 - Jul 02 - ['I was in a trance': A tech executive was scammed out of $450K as part of a cruel romance grift called 'pig butchering' — here's how it works and what to watch out for](https://finance.yahoo.com/news/trance-tech-executive-got-scammed-183000490.html)
+- Jul 02 - [Muslim grouping OIC says measures needed to prevent Koran desecration](https://news.yahoo.com/organisation-islamic-cooperation-calls-measures-111057059.html)
 - Jul 02 - ['Thin-armoured' French tanks impractical for attacks, says Ukraine commander](https://news.yahoo.com/thin-armoured-french-tanks-impractical-110407784.html)
-- Jul 02 - [Borderlands: Texas vertical farms designed to disrupt fresh produce supply chains](https://finance.yahoo.com/news/borderlands-texas-vertical-farms-designed-110000675.html)
 <!-- feed end -->
