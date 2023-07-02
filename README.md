@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Thousands of port workers in Canada's BC go on strike](https://news.yahoo.com/thousands-port-workers-canadas-bc-024015943.html)
 - Jul 02 - [Airline Tells Parents They'll Be 'Put In Jail' & The Kids 'Put In Foster Care' If They Don't Take Their Toddler Out Of The Seat They Paid For](https://news.yahoo.com/airline-tells-parents-theyll-put-021500141.html)
+- Jul 02 - [‘Problematic’: Hear how ex-Trump attorney reacted to audio tape](https://news.yahoo.com/problematic-hear-ex-trump-attorney-010107229.html)
 - Jul 02 - [A missing 16-year-old girl emerged from the Canadian wilderness unscathed after a 2 day search and rescue effort](https://news.yahoo.com/missing-16-old-girl-emerged-003143528.html)
 - Jul 01 - [See cracked support pillar sway as roller coaster car goes by](https://news.yahoo.com/see-cracked-support-pillar-sway-192524486.html)
 - Jul 01 - [Ukraine Situation Report: Russian SAMs Can't Stop This Storm Shadow](https://news.yahoo.com/ukraine-situation-report-russian-sams-225706155.html)
