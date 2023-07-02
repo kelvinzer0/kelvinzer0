@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [France braced for fifth night of riots](https://news.yahoo.com/france-braced-fifth-night-riots-222807485.html)
+- Jul 02 - [A missing 16-year-old girl emerged from the Canadian wilderness unscathed after a 2 day search and rescue effort](https://news.yahoo.com/missing-16-old-girl-emerged-003143528.html)
+- Jul 01 - [See cracked support pillar sway as roller coaster car goes by](https://news.yahoo.com/see-cracked-support-pillar-sway-192524486.html)
+- Jul 01 - [Ukraine Situation Report: Russian SAMs Can't Stop This Storm Shadow](https://news.yahoo.com/ukraine-situation-report-russian-sams-225706155.html)
+- Jul 01 - [Migrant workers said to be leaving Florida over restrictive new driver’s license law](https://news.yahoo.com/migrant-workers-leaving-florida-over-224512008.html)
 - Jul 01 - [Mexican anti-cartel vigilante leader buried and with him, an armed citizens' movement](https://news.yahoo.com/mexican-anti-cartel-vigilante-leader-215446350.html)
-- Jul 01 - [Trump rally packs small city in South Carolina show of force](https://news.yahoo.com/trump-rally-packs-small-city-210242624.html)
-- Jul 01 - [Australia is the first country to let patients with depression or PTSD be prescribed psychedelics](https://news.yahoo.com/australia-first-nation-let-patients-195137343.html)
-- Jul 01 - [North Carolina amusement park closes ride after discovering crack in support beam](https://news.yahoo.com/north-carolina-amusement-park-closes-183143154.html)
 <!-- feed end -->
