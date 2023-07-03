@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Uneasy calm in Paris amid calls for riots to end](https://news.yahoo.com/uneasy-calm-paris-amid-calls-063145081.html)
+- Jul 03 - [How the Taliban launched the ‘most successful counter-narcotics effort in human history’](https://news.yahoo.com/taliban-launched-most-most-successful-060000340.html)
 - Jul 03 - [Ukraine reports incremental gains in heavy fighting](https://news.yahoo.com/ukraine-reports-incremental-gains-heavy-061642000.html)
-- Jul 03 - [In NATO’s new north, fresh chances to contain Moscow](https://news.yahoo.com/nato-north-fresh-chances-contain-060557301.html)
+- Jul 03 - [What Sweden's submarines bring to NATO](https://news.yahoo.com/swedens-submarines-bring-nato-060748187.html)
 - Jul 03 - ['He's Scared': Chris Christie Names Trump's Big Fear Right Now](https://news.yahoo.com/hes-scared-chris-christie-names-051724637.html)
 - Jul 03 - [Argentina's currency crisis is so dire that it's allowing people to open bank accounts using the Chinese yuan](https://news.yahoo.com/argentinas-currency-crisis-dire-allowing-050225423.html)
 <!-- feed end -->
