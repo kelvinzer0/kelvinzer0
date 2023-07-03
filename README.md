@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Mark Zuckerberg reportedly wants to follow in Elon Musk and Tim Cook's footsteps, and sell products in China — but his past criticisms of China could haunt him](https://news.yahoo.com/mark-zuckerberg-reportedly-wants-elon-175811862.html)
+- Jul 03 - [Officer, man die in Indiana hospital confrontation](https://news.yahoo.com/officer-man-die-indiana-hospital-193056001.html)
+- Jul 03 - [Attorneys: Lawsuit alleging North Carolina House speaker ruined a marriage has been resolved](https://news.yahoo.com/attorneys-lawsuit-alleging-north-carolina-181930681.html)
+- Jul 03 - [Neighbor calls police on 92-year-old woman over noises coming from her pond: ‘It’s my entertainment’](https://news.yahoo.com/neighbor-calls-police-92-old-180000665.html)
 - Jul 03 - [Robert De Niro's teen grandson was found dead at an iconic lower Manhattan building that houses luxe apartments and an exclusive old-money inspired social club](https://www.yahoo.com/entertainment/robert-niros-teen-grandson-found-170828535.html)
-- Jul 03 - [Titan passenger who died aboard the submersible gave a presentation before the fatal dive. He talked about previously being stuck underwater for 3 days without communication.](https://news.yahoo.com/titan-passenger-died-aboard-submersible-170712288.html)
-- Jul 03 - [How New York Chinatown gangs actually work, according to a former member](https://news.yahoo.com/york-chinatown-gangs-actually-according-164600883.html)
 - Jul 03 - [Russia’s time has almost run out](https://news.yahoo.com/time-no-longer-vladimir-putin-163824299.html)
 <!-- feed end -->
