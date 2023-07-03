@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Why has Vietnam banned the Barbie movie?](https://news.yahoo.com/why-vietnam-banned-barbie-movie-154540854.html)
 - Jul 03 - [Video shows moment boy plummets 40 feet from zip line in Mexico](https://news.yahoo.com/video-shows-moment-boy-plummets-143400388.html)
 - Jul 03 - [Arizona Attorney General Kris Mayes tells U.S. Supreme Court to shove it](https://news.yahoo.com/arizona-attorney-general-kris-mayes-140030478.html)
 - Jul 03 - [DeSantis is trashing Disney all over America, accusing the company of trying to 'sexualize' children. Don't expect Disney to hit back in court, defamation experts say](https://news.yahoo.com/desantis-trashing-disney-over-america-140000255.html)
 - Jul 03 - [Bud Light's 4th of July Tweet Shows It Lost the War for America](https://www.thestreet.com/restaurants/bud-lights-4th-of-july-tweet-shows-it-lost-the-war-for-america?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jul 03 - [Russia has permanently lost the Arctic to Nato](https://news.yahoo.com/russia-permanently-lost-arctic-nato-135200465.html)
 <!-- feed end -->
