@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [‘Suspicious subject’ wandering neighborhood is taken down – by its tail, video shows](https://news.yahoo.com/suspicious-subject-wandering-neighborhood-taken-205818342.html)
 - Jul 03 - [‘Stop! Stop!’ Watch a massive brawl break out at Spirit’s ticket counter in Orlando](https://news.yahoo.com/stop-stop-watch-massive-brawl-203449167.html)
-- Jul 03 - [Why France is erupting in protests after police killed a teenager](https://news.yahoo.com/violent-protests-spread-french-police-201919118.html)
+- Jul 03 - [Man, 57, dismissed a growing lump on his neck. It was a sign of stage 4 cancer](https://news.yahoo.com/man-57-dismissed-growing-lump-203314345.html)
 - Jul 03 - [Why the Kennedys keep going back to their Hyannis Port compound after generations of tragedy](https://news.yahoo.com/why-kennedys-keep-going-back-201510934.html)
-- Jul 03 - [Photographer sees a splash in Australia — then is ‘shocked’ when he checks his footage](https://news.yahoo.com/photographer-sees-splash-australia-then-195653724.html)
-- Jul 03 - [Legal scholars: SCOTUS can't be forced to reconsider "made-up" case — but lawyers can be punished](https://news.yahoo.com/legal-scholars-scotus-cant-forced-194543349.html)
+- Jul 03 - [Hear what Trump said in 2016 about a president under indictment](https://news.yahoo.com/hear-trump-said-2016-president-200948644.html)
 <!-- feed end -->
