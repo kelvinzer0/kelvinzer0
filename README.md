@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Millions under severe weather threat ahead of Fourth of July holiday](https://news.yahoo.com/millions-under-severe-weather-threat-113705444.html)
+- Jul 03 - [Here’s everything young women need to know about early breast cancer prevention](https://www.yahoo.com/lifestyle/everything-young-women-know-early-131056865.html)
+- Jul 03 - [A former Titan sub passenger says they were told an implosion would be like a can of Coke being crushed with a sledgehammer](https://news.yahoo.com/former-titan-sub-passenger-says-115239737.html)
+- Jul 03 - [Ryan Mallett's Girlfriend Madison Carter Shares Moving Tribute: 'Sorry I Couldn't Save You'](https://www.yahoo.com/entertainment/ryan-malletts-girlfriend-madison-carter-113635635.html)
 - Jul 03 - [A 36-year-old whose heart kept racing thought she was entering menopause. She had anemia caused by bowel cancer.](https://www.yahoo.com/lifestyle/36-old-whose-heart-kept-111728374.html)
 - Jul 03 - [NATO readies military plans to defend against bruised but unbowed Russia](https://news.yahoo.com/nato-readies-military-plans-defend-103053950.html)
-- Jul 03 - [Ukrainian artillery forces invaders to flee in their underwear – video](https://news.yahoo.com/ukrainian-artillery-forces-invaders-flee-101600454.html)
-- Jul 03 - [Cruz 'accepts' Twitter user's proposal that would bar Democrat-passed bills from impacting GOP states](https://news.yahoo.com/cruz-accepts-twitter-users-proposal-092002907.html)
 <!-- feed end -->
