@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [How New York Chinatown gangs actually work, according to a former member](https://news.yahoo.com/york-chinatown-gangs-actually-according-164600883.html)
+- Jul 03 - [Robert De Niro's teen grandson was found dead at an iconic lower Manhattan building that houses luxe apartments and an exclusive old-money inspired social club](https://www.yahoo.com/entertainment/robert-niros-teen-grandson-found-170828535.html)
+- Jul 03 - [Protective rhinoceros mother keeps a close eye on her precious calf](https://news.yahoo.com/protective-rhinoceros-mother-keeps-close-170718872.html)
+- Jul 03 - [Titan passenger who died aboard the submersible gave a presentation before the fatal dive. He talked about previously being stuck underwater for 3 days without communication.](https://news.yahoo.com/titan-passenger-died-aboard-submersible-170712288.html)
+- Jul 03 - [Russia’s time has almost run out](https://news.yahoo.com/time-no-longer-vladimir-putin-163824299.html)
 - Jul 03 - [Russian court spurns emotional appeal from man whose daughter drew anti-war picture](https://news.yahoo.com/russian-court-spurns-emotional-appeal-161516242.html)
-- Jul 03 - [Watch Texas TV meteorologist get sucker punched in road rage incident](https://www.autoblog.com/2023/07/03/texas-meteorologist-gets-road-rage-sucker-punched-on-dash-cam/)
-- Jul 03 - [Ex-prosecutor: Walt Nauta can’t find a lawyer because Trump wants someone he “can control”](https://news.yahoo.com/ex-prosecutor-walt-nauta-t-160923906.html)
-- Jul 03 - [Wild turkey turns into feathery missile when drone gets too close, Minnesota video shows](https://news.yahoo.com/wild-turkey-turns-feathery-missile-151424538.html)
 <!-- feed end -->
