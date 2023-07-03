@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Uneasy calm in Paris amid calls for riots to end](https://news.yahoo.com/uneasy-calm-paris-amid-calls-063145081.html)
+- Jul 03 - [Ukraine reports incremental gains in heavy fighting](https://news.yahoo.com/ukraine-reports-incremental-gains-heavy-061642000.html)
+- Jul 03 - [In NATO’s new north, fresh chances to contain Moscow](https://news.yahoo.com/nato-north-fresh-chances-contain-060557301.html)
 - Jul 03 - ['He's Scared': Chris Christie Names Trump's Big Fear Right Now](https://news.yahoo.com/hes-scared-chris-christie-names-051724637.html)
-- Jul 03 - [Watergate Prosecutor Makes Ominous Prediction For Donald Trump In Classified Docs Case](https://news.yahoo.com/watergate-prosecutor-makes-ominous-prediction-050927204.html)
-- Jul 03 - [Texas teen missing for more than 8 years is found alive](https://news.yahoo.com/texas-teen-missing-more-8-044159693.html)
-- Jul 03 - [A former OceanGate advisor said the Titanic submersible tried to reach the surface before it imploded, indicating those on board knew something had gone wrong](https://news.yahoo.com/former-oceangate-advisor-said-titanic-035044127.html)
-- Jul 03 - [Argentinians demand justice for missing woman](https://news.yahoo.com/argentinians-demand-justice-missing-woman-033829072.html)
+- Jul 03 - [Argentina's currency crisis is so dire that it's allowing people to open bank accounts using the Chinese yuan](https://news.yahoo.com/argentinas-currency-crisis-dire-allowing-050225423.html)
 <!-- feed end -->
