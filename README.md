@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Officer, man die in Indiana hospital confrontation](https://news.yahoo.com/officer-man-die-indiana-hospital-193056001.html)
-- Jul 03 - [Attorneys: Lawsuit alleging North Carolina House speaker ruined a marriage has been resolved](https://news.yahoo.com/attorneys-lawsuit-alleging-north-carolina-181930681.html)
-- Jul 03 - [Neighbor calls police on 92-year-old woman over noises coming from her pond: ‘It’s my entertainment’](https://news.yahoo.com/neighbor-calls-police-92-old-180000665.html)
-- Jul 03 - [Robert De Niro's teen grandson was found dead at an iconic lower Manhattan building that houses luxe apartments and an exclusive old-money inspired social club](https://www.yahoo.com/entertainment/robert-niros-teen-grandson-found-170828535.html)
-- Jul 03 - [Russia’s time has almost run out](https://news.yahoo.com/time-no-longer-vladimir-putin-163824299.html)
+- Jul 03 - [‘Stop! Stop!’ Watch a massive brawl break out at Spirit’s ticket counter in Orlando](https://news.yahoo.com/stop-stop-watch-massive-brawl-203449167.html)
+- Jul 03 - [Why France is erupting in protests after police killed a teenager](https://news.yahoo.com/violent-protests-spread-french-police-201919118.html)
+- Jul 03 - [Why the Kennedys keep going back to their Hyannis Port compound after generations of tragedy](https://news.yahoo.com/why-kennedys-keep-going-back-201510934.html)
+- Jul 03 - [Photographer sees a splash in Australia — then is ‘shocked’ when he checks his footage](https://news.yahoo.com/photographer-sees-splash-australia-then-195653724.html)
+- Jul 03 - [Legal scholars: SCOTUS can't be forced to reconsider "made-up" case — but lawyers can be punished](https://news.yahoo.com/legal-scholars-scotus-cant-forced-194543349.html)
 <!-- feed end -->
