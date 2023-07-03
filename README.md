@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Why has Vietnam banned the Barbie movie?](https://news.yahoo.com/why-vietnam-banned-barbie-movie-154540854.html)
-- Jul 03 - [Video shows moment boy plummets 40 feet from zip line in Mexico](https://news.yahoo.com/video-shows-moment-boy-plummets-143400388.html)
-- Jul 03 - [Arizona Attorney General Kris Mayes tells U.S. Supreme Court to shove it](https://news.yahoo.com/arizona-attorney-general-kris-mayes-140030478.html)
-- Jul 03 - [DeSantis is trashing Disney all over America, accusing the company of trying to 'sexualize' children. Don't expect Disney to hit back in court, defamation experts say](https://news.yahoo.com/desantis-trashing-disney-over-america-140000255.html)
-- Jul 03 - [Bud Light's 4th of July Tweet Shows It Lost the War for America](https://www.thestreet.com/restaurants/bud-lights-4th-of-july-tweet-shows-it-lost-the-war-for-america?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jul 03 - [How New York Chinatown gangs actually work, according to a former member](https://news.yahoo.com/york-chinatown-gangs-actually-according-164600883.html)
+- Jul 03 - [Russian court spurns emotional appeal from man whose daughter drew anti-war picture](https://news.yahoo.com/russian-court-spurns-emotional-appeal-161516242.html)
+- Jul 03 - [Watch Texas TV meteorologist get sucker punched in road rage incident](https://www.autoblog.com/2023/07/03/texas-meteorologist-gets-road-rage-sucker-punched-on-dash-cam/)
+- Jul 03 - [Ex-prosecutor: Walt Nauta can’t find a lawyer because Trump wants someone he “can control”](https://news.yahoo.com/ex-prosecutor-walt-nauta-t-160923906.html)
+- Jul 03 - [Wild turkey turns into feathery missile when drone gets too close, Minnesota video shows](https://news.yahoo.com/wild-turkey-turns-feathery-missile-151424538.html)
 <!-- feed end -->
