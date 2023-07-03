@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Protesters close Israeli seaport, judicial crisis simmers](https://news.yahoo.com/protesters-close-israeli-seaport-judicial-100521354.html)
-- Jul 03 - [The global food crisis is getting so bad that the EU now wants to reconnect a sanctioned Russian bank to the global financial system to keep the grain supply moving](https://news.yahoo.com/global-food-crisis-getting-bad-093846153.html)
-- Jul 03 - [Russia's Medvedev says standoff with West to last decades, Ukraine conflict 'permanent'](https://news.yahoo.com/russias-medvedev-says-standoff-west-084904881.html)
-- Jul 03 - [Rep. Ted Lieu Gives Rep. Marjorie Taylor Greene's Donald Trump Call A Blunt Reality Check](https://news.yahoo.com/rep-ted-lieu-gives-rep-074936545.html)
-- Jul 03 - [Vietnam bans 'Barbie' movie over South China Sea map](https://news.yahoo.com/vietnam-bans-barbie-movie-over-074256241.html)
+- Jul 03 - [Millions under severe weather threat ahead of Fourth of July holiday](https://news.yahoo.com/millions-under-severe-weather-threat-113705444.html)
+- Jul 03 - [A 36-year-old whose heart kept racing thought she was entering menopause. She had anemia caused by bowel cancer.](https://www.yahoo.com/lifestyle/36-old-whose-heart-kept-111728374.html)
+- Jul 03 - [NATO readies military plans to defend against bruised but unbowed Russia](https://news.yahoo.com/nato-readies-military-plans-defend-103053950.html)
+- Jul 03 - [Ukrainian artillery forces invaders to flee in their underwear – video](https://news.yahoo.com/ukrainian-artillery-forces-invaders-flee-101600454.html)
+- Jul 03 - [Cruz 'accepts' Twitter user's proposal that would bar Democrat-passed bills from impacting GOP states](https://news.yahoo.com/cruz-accepts-twitter-users-proposal-092002907.html)
 <!-- feed end -->
