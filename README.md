@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Man held in deaths of 6 in South Carolina home](https://news.yahoo.com/man-held-deaths-6-south-223036156.html)
 - Jul 03 - [‘Suspicious subject’ wandering neighborhood is taken down – by its tail, video shows](https://news.yahoo.com/suspicious-subject-wandering-neighborhood-taken-205818342.html)
+- Jul 03 - [Pornhub blocks access in Mississippi, Virginia and Utah amid changing laws](https://news.yahoo.com/pornhub-blocks-access-mississippi-virginia-204640159.html)
 - Jul 03 - [‘Stop! Stop!’ Watch a massive brawl break out at Spirit’s ticket counter in Orlando](https://news.yahoo.com/stop-stop-watch-massive-brawl-203449167.html)
 - Jul 03 - [Man, 57, dismissed a growing lump on his neck. It was a sign of stage 4 cancer](https://news.yahoo.com/man-57-dismissed-growing-lump-203314345.html)
-- Jul 03 - [Why the Kennedys keep going back to their Hyannis Port compound after generations of tragedy](https://news.yahoo.com/why-kennedys-keep-going-back-201510934.html)
-- Jul 03 - [Hear what Trump said in 2016 about a president under indictment](https://news.yahoo.com/hear-trump-said-2016-president-200948644.html)
 <!-- feed end -->
