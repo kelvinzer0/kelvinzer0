@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Bud Light's 4th of July Tweet Shows It Lost the War for America](https://www.thestreet.com/restaurants/bud-lights-4th-of-july-tweet-shows-it-lost-the-war-for-america?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jul 03 - [Russia has permanently lost the Arctic to Nato](https://news.yahoo.com/russia-permanently-lost-arctic-nato-135200465.html)
+- Jul 03 - [8 years after he was reported missing as Houston teen, Texas man found alive, injured](https://news.yahoo.com/8-years-reported-missing-houston-133649892.html)
 - Jul 03 - [Here’s everything young women need to know about early breast cancer prevention](https://www.yahoo.com/lifestyle/everything-young-women-know-early-131056865.html)
-- Jul 03 - [A former Titan sub passenger says they were told an implosion would be like a can of Coke being crushed with a sledgehammer](https://news.yahoo.com/former-titan-sub-passenger-says-115239737.html)
-- Jul 03 - [Ryan Mallett's Girlfriend Madison Carter Shares Moving Tribute: 'Sorry I Couldn't Save You'](https://www.yahoo.com/entertainment/ryan-malletts-girlfriend-madison-carter-113635635.html)
-- Jul 03 - [A 36-year-old whose heart kept racing thought she was entering menopause. She had anemia caused by bowel cancer.](https://www.yahoo.com/lifestyle/36-old-whose-heart-kept-111728374.html)
-- Jul 03 - [NATO readies military plans to defend against bruised but unbowed Russia](https://news.yahoo.com/nato-readies-military-plans-defend-103053950.html)
+- Jul 03 - [“Ominous sign”: Legal experts say Jack Smith "closing in" after piercing Trump’s “inner circle”](https://news.yahoo.com/ominous-sign-legal-experts-jack-130207400.html)
 <!-- feed end -->
