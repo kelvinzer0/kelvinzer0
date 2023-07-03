@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Tornado wrecks homes in Canada's Alberta Province](https://news.yahoo.com/tornado-wrecks-homes-canadas-alberta-093331549.html)
-- Jul 03 - [How the Taliban launched the ‘most successful counter-narcotics effort in human history’](https://news.yahoo.com/taliban-launched-most-most-successful-060000340.html)
+- Jul 03 - [Protesters close Israeli seaport, judicial crisis simmers](https://news.yahoo.com/protesters-close-israeli-seaport-judicial-100521354.html)
+- Jul 03 - [The global food crisis is getting so bad that the EU now wants to reconnect a sanctioned Russian bank to the global financial system to keep the grain supply moving](https://news.yahoo.com/global-food-crisis-getting-bad-093846153.html)
+- Jul 03 - [Russia's Medvedev says standoff with West to last decades, Ukraine conflict 'permanent'](https://news.yahoo.com/russias-medvedev-says-standoff-west-084904881.html)
 - Jul 03 - [Rep. Ted Lieu Gives Rep. Marjorie Taylor Greene's Donald Trump Call A Blunt Reality Check](https://news.yahoo.com/rep-ted-lieu-gives-rep-074936545.html)
 - Jul 03 - [Vietnam bans 'Barbie' movie over South China Sea map](https://news.yahoo.com/vietnam-bans-barbie-movie-over-074256241.html)
-- Jul 03 - [What Sweden's submarines bring to NATO](https://news.yahoo.com/swedens-submarines-bring-nato-060748187.html)
 <!-- feed end -->
