@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Analysis-New Zealand, in recession and heading to polls, goes pragmatic on China trade](https://news.yahoo.com/analysis-zealand-recession-heading-polls-042040975.html)
-- Jul 03 - [Police hunt for suspects in Baltimore mass shooting](https://news.yahoo.com/police-hunt-suspects-baltimore-mass-041433374.html)
+- Jul 03 - ['He's Scared': Chris Christie Names Trump's Big Fear Right Now](https://news.yahoo.com/hes-scared-chris-christie-names-051724637.html)
+- Jul 03 - [Watergate Prosecutor Makes Ominous Prediction For Donald Trump In Classified Docs Case](https://news.yahoo.com/watergate-prosecutor-makes-ominous-prediction-050927204.html)
+- Jul 03 - [Texas teen missing for more than 8 years is found alive](https://news.yahoo.com/texas-teen-missing-more-8-044159693.html)
 - Jul 03 - [A former OceanGate advisor said the Titanic submersible tried to reach the surface before it imploded, indicating those on board knew something had gone wrong](https://news.yahoo.com/former-oceangate-advisor-said-titanic-035044127.html)
-- Jul 03 - [A shadowy club in California recently associated with Clarence Thomas is being sued for multiple labor violations. Here's what the secret retreat is known for.](https://news.yahoo.com/shadowy-club-california-recently-associated-023543694.html)
-- Jul 03 - [White House grounds evacuated after Secret Service discovers 'unknown item'](https://news.yahoo.com/white-house-grounds-evacuated-secret-014101900.html)
+- Jul 03 - [Argentinians demand justice for missing woman](https://news.yahoo.com/argentinians-demand-justice-missing-woman-033829072.html)
 <!-- feed end -->
