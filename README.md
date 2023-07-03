@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Argentinians demand justice for missing woman](https://news.yahoo.com/argentinians-demand-justice-missing-woman-033829072.html)
+- Jul 03 - [Ukraine says Russian troops advancing in 'fierce fighting'](https://news.yahoo.com/ukraine-says-russian-troops-advancing-180434450.html)
+- Jul 03 - [A shadowy club in California recently associated with Clarence Thomas is being sued for multiple labor violations. Here's what the secret retreat is known for.](https://news.yahoo.com/shadowy-club-california-recently-associated-023543694.html)
 - Jul 03 - [Stephen Miller Threatens Suit Against Schools Who Ignore SCOTUS Affirmative Action Decision](https://news.yahoo.com/stephen-miller-threatens-suit-against-005102149.html)
 - Jul 03 - [A NASCAR contractor nicknamed 'MacGyver' was electrocuted at the Chicago Street Race, autopsy finds](https://news.yahoo.com/nascar-contractor-nicknamed-macgyver-electrocuted-004929307.html)
-- Jul 03 - [What officials know about mass shooting in Baltimore](https://news.yahoo.com/baltimore-grieving-officials-know-mass-115207748.html)
-- Jul 02 - [Grant Cardone Asks How Politicians That Make $100k Suddenly Become Multimillionaires — Here’s the Harsh Reality](https://finance.yahoo.com/news/grant-cardone-asks-politicians-100k-144919056.html)
-- Jul 02 - [Chief Justice Roberts hasn't become less conservative. He's just more concerned with the Supreme Court's legacy than partisanship.](https://news.yahoo.com/chief-justice-roberts-hasnt-become-215532750.html)
 <!-- feed end -->
