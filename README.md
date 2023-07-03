@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Jul 03 - [Stephen Miller Threatens Suit Against Schools Who Ignore SCOTUS Affirmative Action Decision](https://news.yahoo.com/stephen-miller-threatens-suit-against-005102149.html)
 - Jul 03 - [A NASCAR contractor nicknamed 'MacGyver' was electrocuted at the Chicago Street Race, autopsy finds](https://news.yahoo.com/nascar-contractor-nicknamed-macgyver-electrocuted-004929307.html)
 - Jul 03 - [What officials know about mass shooting in Baltimore](https://news.yahoo.com/baltimore-grieving-officials-know-mass-115207748.html)
-- Jul 02 - [New Photos of Donald Trump Show He May Not Be Heeding the Strict Legal Warnings](https://www.yahoo.com/entertainment/photos-donald-trump-show-may-195000724.html)
-- Jul 02 - [‘Just a hazing exercise’: Ex-Trump lawyer describes team’s reaction to investigation](https://news.yahoo.com/problematic-hear-ex-trump-attorney-010107229.html)
+- Jul 02 - [Grant Cardone Asks How Politicians That Make $100k Suddenly Become Multimillionaires — Here’s the Harsh Reality](https://finance.yahoo.com/news/grant-cardone-asks-politicians-100k-144919056.html)
+- Jul 02 - [Chief Justice Roberts hasn't become less conservative. He's just more concerned with the Supreme Court's legacy than partisanship.](https://news.yahoo.com/chief-justice-roberts-hasnt-become-215532750.html)
 <!-- feed end -->
