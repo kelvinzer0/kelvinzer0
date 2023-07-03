@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Russia's Medvedev says standoff with West to last decades, Ukraine conflict 'permanent'](https://news.yahoo.com/russias-medvedev-says-standoff-west-084904881.html)
 - Jul 03 - [How the Taliban launched the ‘most successful counter-narcotics effort in human history’](https://news.yahoo.com/taliban-launched-most-most-successful-060000340.html)
-- Jul 03 - [Ukraine reports incremental gains in heavy fighting](https://news.yahoo.com/ukraine-reports-incremental-gains-heavy-061642000.html)
-- Jul 03 - [What Sweden's submarines bring to NATO](https://news.yahoo.com/swedens-submarines-bring-nato-060748187.html)
-- Jul 03 - ['He's Scared': Chris Christie Names Trump's Big Fear Right Now](https://news.yahoo.com/hes-scared-chris-christie-names-051724637.html)
-- Jul 03 - [Argentina's currency crisis is so dire that it's allowing people to open bank accounts using the Chinese yuan](https://news.yahoo.com/argentinas-currency-crisis-dire-allowing-050225423.html)
+- Jul 03 - [Rep. Ted Lieu Gives Rep. Marjorie Taylor Greene's Donald Trump Call A Blunt Reality Check](https://news.yahoo.com/rep-ted-lieu-gives-rep-074936545.html)
+- Jul 03 - [Vietnam bans 'Barbie' movie over South China Sea map](https://news.yahoo.com/vietnam-bans-barbie-movie-over-074256241.html)
+- Jul 03 - [What Sweden and Finland bring to NATO](https://news.yahoo.com/sweden-finland-bring-nato-061003593.html)
 <!-- feed end -->
