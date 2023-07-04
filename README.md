@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Putin says Russia is 'united as never before' at meeting of Russia-China led security group](https://news.yahoo.com/modi-uses-speech-russia-china-084556960.html)
-- Jul 04 - [Actor Michael Rapaport Gives Trump Blunt Prison Advice Straight Outta 'Goodfellas'](https://news.yahoo.com/actor-michael-rapaport-gives-trump-081921344.html)
+- Jul 04 - [China's youth unemployment is so dire that it's inspired recent college grads to post pictures of themselves sprawled on the ground in 'zombie-style' poses](https://news.yahoo.com/chinas-youth-unemployment-dire-inspired-092903434.html)
+- Jul 04 - [A former Navy SEAL says rucking workouts can build muscle and shred fat efficiently. Here's how to try them.](https://www.yahoo.com/lifestyle/former-navy-seal-says-rucking-091500524.html)
+- Jul 04 - [Putin says Russia is 'united as never before' at meeting of Russia- and China-led security group](https://news.yahoo.com/modi-uses-speech-russia-china-084556960.html)
 - Jul 04 - [Ex-Labor Secretary Robert Reich Busts A Massive Republican Myth](https://news.yahoo.com/ex-labor-secretary-robert-reich-071623329.html)
 - Jul 04 - [CNN Host Responds To Brazen Trump Campaign Claim With Disbelief](https://news.yahoo.com/cnn-host-responds-brazen-trump-062627901.html)
-- Jul 04 - [Russia says Ukraine attacked Moscow with at least five drones](https://news.yahoo.com/russia-says-ukraine-attacked-moscow-055700061.html)
 <!-- feed end -->
