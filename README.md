@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [CNN Host Responds To Brazen Trump Campaign Claim With Disbelief](https://news.yahoo.com/cnn-host-responds-brazen-trump-062627901.html)
 - Jul 04 - [What people are saying about China's chipmaking export controls](https://news.yahoo.com/people-saying-chinas-chipmaking-export-054919877.html)
-- Jul 04 - [China move to curb chipmaking material exports escalates supply worries](https://news.yahoo.com/us-firm-axt-applying-permits-030638381.html)
-- Jul 03 - [19 Photos Of Absurd Rules Jobs Enforced That Show The Very Real Horrors Of Working In 2023](https://www.yahoo.com/lifestyle/19-photos-rules-policies-toxic-231603343.html)
+- Jul 04 - [Beijing jabs in US-China tech fight with chip material export curbs](https://news.yahoo.com/us-firm-axt-applying-permits-030638381.html)
 - Jul 03 - [Texas Democrat on rare cancer diagnosis: ‘Wondered how much longer’ he’d have with his kids](https://news.yahoo.com/texas-democrat-rare-cancer-diagnosis-222531447.html)
 - Jul 03 - [‘Suspicious subject’ wandering neighborhood is taken down – by its tail, video shows](https://news.yahoo.com/suspicious-subject-wandering-neighborhood-taken-205818342.html)
 <!-- feed end -->
