@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [Suspicious powder found at the White House when Biden was gone was cocaine, AP sources say](https://news.yahoo.com/suspicious-powder-found-white-house-164141916.html)
+- Jul 04 - [Secret Service investigating suspicious substance found in the White House](https://news.yahoo.com/secret-investigating-suspicious-substance-found-155240532.html)
+- Jul 04 - [Russians pretend they destroyed Ukrainian Leopards but showcase own losses](https://news.yahoo.com/russians-pretend-destroyed-ukrainian-leopards-153500316.html)
 - Jul 04 - [Cocaine reportedly found in White House as Secret Service opens investigation](https://news.yahoo.com/cocaine-reportedly-found-white-house-152643213.html)
 - Jul 04 - [Mothers attacked by baseball-bat wielding children as San Francisco crime wave intensifies](https://news.yahoo.com/mothers-nannies-attacked-children-school-150501310.html)
-- Jul 04 - [Airbus trials new wing designs in technology race with Boeing](https://finance.yahoo.com/news/airbus-trials-wing-designs-technology-150215285.html)
-- Jul 04 - [Two teenagers die within hours of each other on ‘rite of passage’ Greek holiday](https://news.yahoo.com/two-teenagers-die-within-hours-145643730.html)
-- Jul 04 - ["Major sleazebag": Trump lashes out at Special Counsel Jack Smith in late-night Truth Social post](https://news.yahoo.com/major-sleazebag-trump-lashes-special-144502669.html)
 <!-- feed end -->
