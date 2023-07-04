@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [A guy tried using ChatGPT to turn $100 into a business making 'as much money as possible.' Here are the first 4 steps the AI chatbot gave him.](https://news.yahoo.com/guy-using-chatgpt-turn-100-083000695.html)
-- Jul 04 - [Video shows terrifying moment sea creature emerged in front of angler off Australia](https://news.yahoo.com/video-shows-terrifying-moment-sea-133657238.html)
-- Jul 04 - [Ukraine reports 'particularly fruitful' few days in counteroffensive](https://news.yahoo.com/ukraine-reports-particularly-fruitful-few-114518802.html)
-- Jul 04 - [California reparations task force calls to ban police from enforcing public urination laws](https://news.yahoo.com/california-reparations-task-force-calls-113657440.html)
-- Jul 04 - [New report reveals that China is reaching a ‘tipping point’ that could affect the entire world — here’s what’s happening](https://news.yahoo.com/report-reveals-china-reaching-tipping-113000028.html)
+- Jul 04 - [Cocaine reportedly found in White House as Secret Service opens investigation](https://news.yahoo.com/cocaine-reportedly-found-white-house-152643213.html)
+- Jul 04 - [Mothers attacked by baseball-bat wielding children as San Francisco crime wave intensifies](https://news.yahoo.com/mothers-nannies-attacked-children-school-150501310.html)
+- Jul 04 - [Airbus trials new wing designs in technology race with Boeing](https://finance.yahoo.com/news/airbus-trials-wing-designs-technology-150215285.html)
+- Jul 04 - [Two teenagers die within hours of each other on ‘rite of passage’ Greek holiday](https://news.yahoo.com/two-teenagers-die-within-hours-145643730.html)
+- Jul 04 - ["Major sleazebag": Trump lashes out at Special Counsel Jack Smith in late-night Truth Social post](https://news.yahoo.com/major-sleazebag-trump-lashes-special-144502669.html)
 <!-- feed end -->
