@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [Asians who celebrated SCOTUS decision on affirmative action get attacked on social media](https://news.yahoo.com/asians-celebrated-scotus-decision-affirmative-221958157.html)
+- Jul 04 - [Plan to demolish house where 4 University of Idaho students were slain prompts objections](https://news.yahoo.com/plan-demolish-house-where-4-212945307.html)
 - Jul 04 - [Some suburban women drawn to Ron DeSantis' presidential campaign over his support of reopening schools early in the pandemic jokingly call him 'Freedom Daddy'](https://news.yahoo.com/suburban-women-drawn-ron-desantis-204024093.html)
+- Jul 04 - [Biden likely violated First Amendment during COVID-19 pandemic, federal judge says](https://news.yahoo.com/biden-likely-violated-first-amendment-201130698.html)
 - Jul 04 - [‘Mr. Bean’ actor sparks controversy with confounding newspaper column: ‘It’s starting to become a pattern’](https://news.yahoo.com/mr-bean-actor-sparks-controversy-180000975.html)
-- Jul 04 - [US Secret Service investigating as cocaine reportedly found in White House](https://news.yahoo.com/cocaine-reportedly-found-white-house-152643213.html)
-- Jul 04 - [US Judge restricts Biden officials from contact with social media firms](https://finance.yahoo.com/news/judge-blocks-us-officials-communicating-173922409.html)
-- Jul 04 - [South Carolina woman dies after alligator attack near golf course lagoon](https://news.yahoo.com/south-carolina-woman-dies-alligator-172815254.html)
 <!-- feed end -->
