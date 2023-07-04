@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [Video shows man shoot at DPS trooper during traffic stop, police shoot at man](https://news.yahoo.com/video-shows-man-shoot-dps-014332000.html)
 - Jul 03 - [19 Photos Of Absurd Rules Jobs Enforced That Show The Very Real Horrors Of Working In 2023](https://www.yahoo.com/lifestyle/19-photos-rules-policies-toxic-231603343.html)
 - Jul 03 - [Texas Democrat on rare cancer diagnosis: ‘Wondered how much longer’ he’d have with his kids](https://news.yahoo.com/texas-democrat-rare-cancer-diagnosis-222531447.html)
 - Jul 03 - [‘Suspicious subject’ wandering neighborhood is taken down – by its tail, video shows](https://news.yahoo.com/suspicious-subject-wandering-neighborhood-taken-205818342.html)
-- Jul 03 - [Pornhub blocks access in Mississippi, Virginia and Utah amid changing laws](https://news.yahoo.com/pornhub-blocks-access-mississippi-virginia-204640159.html)
-- Jul 03 - [‘Stop! Stop!’ Watch a massive brawl break out at Spirit’s ticket counter in Orlando](https://news.yahoo.com/stop-stop-watch-massive-brawl-203449167.html)
+- Jul 03 - [‘Terrifying’: Inspectors arrive at Carowinds, examine break on Fury 325 support beam](https://news.yahoo.com/terrifying-inspectors-arrive-carowinds-examine-205500223.html)
 <!-- feed end -->
