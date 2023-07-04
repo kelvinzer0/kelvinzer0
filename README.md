@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [‘All I’d want is $1 per year': An NYC grocery billionaire just said he wants to buy CNN — offers to run the embattled network for pennies. Who is this mogul and why is he interested?](https://finance.yahoo.com/news/d-want-1-per-nyc-133000721.html)
-- Jul 04 - [UN warns world to prepare for El Nino impact](https://news.yahoo.com/un-warns-world-prepare-el-131943606.html)
+- Jul 04 - [A guy tried using ChatGPT to turn $100 into a business making 'as much money as possible.' Here are the first 4 steps the AI chatbot gave him.](https://news.yahoo.com/guy-using-chatgpt-turn-100-083000695.html)
+- Jul 04 - [Video shows terrifying moment sea creature emerged in front of angler off Australia](https://news.yahoo.com/video-shows-terrifying-moment-sea-133657238.html)
 - Jul 04 - [Ukraine reports 'particularly fruitful' few days in counteroffensive](https://news.yahoo.com/ukraine-reports-particularly-fruitful-few-114518802.html)
 - Jul 04 - [California reparations task force calls to ban police from enforcing public urination laws](https://news.yahoo.com/california-reparations-task-force-calls-113657440.html)
 - Jul 04 - [New report reveals that China is reaching a ‘tipping point’ that could affect the entire world — here’s what’s happening](https://news.yahoo.com/report-reveals-china-reaching-tipping-113000028.html)
