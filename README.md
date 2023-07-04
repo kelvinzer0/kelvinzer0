@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Former Army Ranger who fought in Ukraine says conflict there is far worse than fighting in Afghanistan and Iraq](https://news.yahoo.com/former-army-ranger-fought-ukraine-115946596.html)
+- Jul 04 - [‘All I’d want is $1 per year': An NYC grocery billionaire just said he wants to buy CNN — offers to run the embattled network for pennies. Who is this mogul and why is he interested?](https://finance.yahoo.com/news/d-want-1-per-nyc-133000721.html)
+- Jul 04 - [UN warns world to prepare for El Nino impact](https://news.yahoo.com/un-warns-world-prepare-el-131943606.html)
 - Jul 04 - [Ukraine reports 'particularly fruitful' few days in counteroffensive](https://news.yahoo.com/ukraine-reports-particularly-fruitful-few-114518802.html)
+- Jul 04 - [California reparations task force calls to ban police from enforcing public urination laws](https://news.yahoo.com/california-reparations-task-force-calls-113657440.html)
 - Jul 04 - [New report reveals that China is reaching a ‘tipping point’ that could affect the entire world — here’s what’s happening](https://news.yahoo.com/report-reveals-china-reaching-tipping-113000028.html)
-- Jul 04 - [Ex-GOP Rep Recalls Exact Moment He Knew Lindsey Graham Would Sacrifice His Dignity](https://news.yahoo.com/ex-gop-rep-recalls-exact-111542131.html)
-- Jul 04 - [New research shows that a devastating new virus is one of the worst outbreaks in history: ‘[This is] uncharted territory’](https://news.yahoo.com/research-shows-devastating-virus-one-110000717.html)
 <!-- feed end -->
