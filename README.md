@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Cubans suffer a water shortage as crisis ramps](https://news.yahoo.com/cubans-suffer-water-shortage-crisis-202808672.html)
+- Jul 04 - [Some suburban women drawn to Ron DeSantis' presidential campaign over his support of reopening schools early in the pandemic jokingly call him 'Freedom Daddy'](https://news.yahoo.com/suburban-women-drawn-ron-desantis-204024093.html)
 - Jul 04 - [‘Mr. Bean’ actor sparks controversy with confounding newspaper column: ‘It’s starting to become a pattern’](https://news.yahoo.com/mr-bean-actor-sparks-controversy-180000975.html)
 - Jul 04 - [US Secret Service investigating as cocaine reportedly found in White House](https://news.yahoo.com/cocaine-reportedly-found-white-house-152643213.html)
 - Jul 04 - [US Judge restricts Biden officials from contact with social media firms](https://finance.yahoo.com/news/judge-blocks-us-officials-communicating-173922409.html)
