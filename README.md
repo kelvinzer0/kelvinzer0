@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [Ex-Labor Secretary Robert Reich Busts A Massive Republican Myth](https://news.yahoo.com/ex-labor-secretary-robert-reich-071623329.html)
+- Jul 04 - [Zelenskiy summons Georgia ambassador over ex-president](https://news.yahoo.com/zelenskiy-summons-georgia-ambassador-over-071513915.html)
 - Jul 04 - [CNN Host Responds To Brazen Trump Campaign Claim With Disbelief](https://news.yahoo.com/cnn-host-responds-brazen-trump-062627901.html)
+- Jul 04 - [Russia says Ukraine attacked Moscow with at least five drones](https://news.yahoo.com/russia-says-ukraine-attacked-moscow-055700061.html)
 - Jul 04 - [What people are saying about China's chipmaking export controls](https://news.yahoo.com/people-saying-chinas-chipmaking-export-054919877.html)
-- Jul 04 - [Beijing jabs in US-China tech fight with chip material export curbs](https://news.yahoo.com/us-firm-axt-applying-permits-030638381.html)
-- Jul 03 - [Texas Democrat on rare cancer diagnosis: ‘Wondered how much longer’ he’d have with his kids](https://news.yahoo.com/texas-democrat-rare-cancer-diagnosis-222531447.html)
-- Jul 03 - [‘Suspicious subject’ wandering neighborhood is taken down – by its tail, video shows](https://news.yahoo.com/suspicious-subject-wandering-neighborhood-taken-205818342.html)
 <!-- feed end -->
