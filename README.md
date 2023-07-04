@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [Israel Says Weapons Cache Found Under Mosque in West Bank](https://news.yahoo.com/israel-says-weapons-cache-found-191342199.html)
 - Jul 04 - [US Secret Service investigating as cocaine reportedly found in White House](https://news.yahoo.com/cocaine-reportedly-found-white-house-152643213.html)
+- Jul 04 - [South Carolina woman dies after alligator attack near golf course lagoon](https://news.yahoo.com/south-carolina-woman-dies-alligator-172815254.html)
 - Jul 04 - [Workers clearing bushes stumble on 2,000-year-old family treasure in Italy, photos show](https://news.yahoo.com/workers-clearing-bushes-stumble-2-171927208.html)
 - Jul 04 - [Hikers hear screams and discover a woman who had been trapped in mud for 3 days](https://news.yahoo.com/hikers-hear-screams-discover-woman-171358454.html)
-- Jul 04 - [Suspicious powder found at the White House when Biden was gone was cocaine, AP sources say](https://news.yahoo.com/suspicious-powder-found-white-house-164141916.html)
-- Jul 04 - [Why you should never remove a tick with your fingers, according to a nurse](https://www.yahoo.com/lifestyle/why-never-remove-tick-fingers-160314115.html)
 <!-- feed end -->
