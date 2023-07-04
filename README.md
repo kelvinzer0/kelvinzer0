@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [US Secret Service investigating as cocaine reportedly found in White House](https://news.yahoo.com/cocaine-reportedly-found-white-house-152643213.html)
+- Jul 04 - [Hikers hear screams and discover a woman who had been trapped in mud for 3 days](https://news.yahoo.com/hikers-hear-screams-discover-woman-171358454.html)
 - Jul 04 - [Suspicious powder found at the White House when Biden was gone was cocaine, AP sources say](https://news.yahoo.com/suspicious-powder-found-white-house-164141916.html)
-- Jul 04 - [Secret Service investigating suspicious substance found in the White House](https://news.yahoo.com/secret-investigating-suspicious-substance-found-155240532.html)
-- Jul 04 - [Russians pretend they destroyed Ukrainian Leopards but showcase own losses](https://news.yahoo.com/russians-pretend-destroyed-ukrainian-leopards-153500316.html)
-- Jul 04 - [Cocaine reportedly found in White House as Secret Service opens investigation](https://news.yahoo.com/cocaine-reportedly-found-white-house-152643213.html)
-- Jul 04 - [Mothers attacked by baseball-bat wielding children as San Francisco crime wave intensifies](https://news.yahoo.com/mothers-nannies-attacked-children-school-150501310.html)
+- Jul 04 - [Why you should never remove a tick with your fingers, according to a nurse](https://www.yahoo.com/lifestyle/why-never-remove-tick-fingers-160314115.html)
+- Jul 04 - [World registers hottest day ever recorded on July 3](https://news.yahoo.com/world-registers-hottest-day-ever-155017716.html)
 <!-- feed end -->
