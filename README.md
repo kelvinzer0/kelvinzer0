@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [Former Army Ranger who fought in Ukraine says conflict there is far worse than fighting in Afghanistan and Iraq](https://news.yahoo.com/former-army-ranger-fought-ukraine-115946596.html)
+- Jul 04 - [Ukraine reports 'particularly fruitful' few days in counteroffensive](https://news.yahoo.com/ukraine-reports-particularly-fruitful-few-114518802.html)
+- Jul 04 - [New report reveals that China is reaching a ‘tipping point’ that could affect the entire world — here’s what’s happening](https://news.yahoo.com/report-reveals-china-reaching-tipping-113000028.html)
 - Jul 04 - [Ex-GOP Rep Recalls Exact Moment He Knew Lindsey Graham Would Sacrifice His Dignity](https://news.yahoo.com/ex-gop-rep-recalls-exact-111542131.html)
-- Jul 04 - [Trooper stops to help stranded driver — who pulls a gun and shoots him, NC cops say](https://news.yahoo.com/trooper-stops-help-stranded-driver-104136353.html)
-- Jul 04 - ['Embarrassing': Young Americans are wasting their money on silly things — like TikTok 'pink sauce' and Candy Crush. Here are 3 big lessons Gen Z should steal from baby boomers](https://finance.yahoo.com/news/embarrassing-young-americans-wasting-money-120000239.html)
-- Jul 04 - [A former Navy SEAL says rucking workouts can build muscle and shred fat efficiently. Here's how to try them.](https://www.yahoo.com/lifestyle/former-navy-seal-says-rucking-091500524.html)
-- Jul 04 - [Prominent female Russian journalist and lawyer brutally attacked in Chechnya](https://news.yahoo.com/prominent-russian-journalist-lawyer-attacked-072904284.html)
+- Jul 04 - [New research shows that a devastating new virus is one of the worst outbreaks in history: ‘[This is] uncharted territory’](https://news.yahoo.com/research-shows-devastating-virus-one-110000717.html)
 <!-- feed end -->
