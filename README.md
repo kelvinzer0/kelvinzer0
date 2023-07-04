@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [Putin says Russia is 'united as never before' at meeting of Russia-China led security group](https://news.yahoo.com/modi-uses-speech-russia-china-084556960.html)
+- Jul 04 - [Actor Michael Rapaport Gives Trump Blunt Prison Advice Straight Outta 'Goodfellas'](https://news.yahoo.com/actor-michael-rapaport-gives-trump-081921344.html)
 - Jul 04 - [Ex-Labor Secretary Robert Reich Busts A Massive Republican Myth](https://news.yahoo.com/ex-labor-secretary-robert-reich-071623329.html)
 - Jul 04 - [CNN Host Responds To Brazen Trump Campaign Claim With Disbelief](https://news.yahoo.com/cnn-host-responds-brazen-trump-062627901.html)
 - Jul 04 - [Russia says Ukraine attacked Moscow with at least five drones](https://news.yahoo.com/russia-says-ukraine-attacked-moscow-055700061.html)
-- Jul 04 - [What people are saying about China's chipmaking export controls](https://finance.yahoo.com/news/people-saying-chinas-chipmaking-export-054919877.html)
-- Jul 04 - [Beijing jabs in US-China tech fight with chip material export curbs](https://news.yahoo.com/us-firm-axt-applying-permits-030638381.html)
 <!-- feed end -->
