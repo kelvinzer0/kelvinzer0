@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [China's youth unemployment is so dire that it's inspired recent college grads to post pictures of themselves sprawled on the ground in 'zombie-style' poses](https://news.yahoo.com/chinas-youth-unemployment-dire-inspired-092903434.html)
+- Jul 04 - [Ex-GOP Rep Recalls Exact Moment He Knew Lindsey Graham Would Sacrifice His Dignity](https://news.yahoo.com/ex-gop-rep-recalls-exact-111542131.html)
+- Jul 04 - [Trooper stops to help stranded driver — who pulls a gun and shoots him, NC cops say](https://news.yahoo.com/trooper-stops-help-stranded-driver-104136353.html)
+- Jul 04 - ['Embarrassing': Young Americans are wasting their money on silly things — like TikTok 'pink sauce' and Candy Crush. Here are 3 big lessons Gen Z should steal from baby boomers](https://finance.yahoo.com/news/embarrassing-young-americans-wasting-money-120000239.html)
 - Jul 04 - [A former Navy SEAL says rucking workouts can build muscle and shred fat efficiently. Here's how to try them.](https://www.yahoo.com/lifestyle/former-navy-seal-says-rucking-091500524.html)
-- Jul 04 - [Putin says Russia is 'united as never before' at meeting of Russia- and China-led security group](https://news.yahoo.com/modi-uses-speech-russia-china-084556960.html)
-- Jul 04 - [Ex-Labor Secretary Robert Reich Busts A Massive Republican Myth](https://news.yahoo.com/ex-labor-secretary-robert-reich-071623329.html)
-- Jul 04 - [CNN Host Responds To Brazen Trump Campaign Claim With Disbelief](https://news.yahoo.com/cnn-host-responds-brazen-trump-062627901.html)
+- Jul 04 - [Prominent female Russian journalist and lawyer brutally attacked in Chechnya](https://news.yahoo.com/prominent-russian-journalist-lawyer-attacked-072904284.html)
 <!-- feed end -->
