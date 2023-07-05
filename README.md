@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Donald Trump's ALL-CAPS RANT Is The Fourth Of July Hangover That Will Pound Your Brain](https://news.yahoo.com/donald-trumps-caps-rant-fourth-163608200.html)
+- Jul 05 - [Mom held captive by her daughter secretly sneaks sign for help in window, TN cops say](https://news.yahoo.com/mom-held-captive-her-daughter-161043899.html)
 - Jul 05 - [Bud Light's troubles may extend into fall Oktoberfest season](https://finance.yahoo.com/news/bud-lights-troubles-may-extend-into-fall-oktoberfest-season-160336461.html)
 - Jul 05 - [Attorney who challenged Trump's 2020 loss gives up law license as states weigh disciplining him](https://news.yahoo.com/trump-attorney-gives-law-license-154656872.html)
-- Jul 05 - [A TikToker tried to shame a coffee-shop worker for his bare feet, but it backfired drastically and viewers flocked to support the business](https://news.yahoo.com/tiktoker-tried-shame-coffee-shop-151720887.html)
-- Jul 05 - [A man who had chest pains and ignored them 'like most men' was later diagnosed with pancreatic cancer](https://www.yahoo.com/lifestyle/man-had-chest-pains-ignored-144659950.html)
-- Jul 05 - [New Documents Show Kevin Costner Has Had Enough of Ex Christine Baumgartner Not Leaving His Property](https://www.yahoo.com/entertainment/documents-show-kevin-costner-had-144635918.html)
+- Jul 05 - [OceanGate CEO Stockton Rush once said the glue that held the Titanic sub together was 'pretty simple' and there was little room for error 'if we mess it up'](https://news.yahoo.com/oceangate-ceo-stockton-rush-once-153700359.html)
 <!-- feed end -->
