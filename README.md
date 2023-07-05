@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Accused Philly Mass Shooter Reportedly Offered a Baffling Motive](https://news.yahoo.com/accused-philly-mass-shooter-reportedly-201647186.html)
-- Jul 05 - [5 Dead After Small Aircraft Crashes in North Myrtle Beach](https://www.yahoo.com/entertainment/5-dead-small-aircraft-crashes-200337830.html)
-- Jul 05 - [Republicans sue over rejection of party nominee to election board in Georgia's most populous county](https://news.yahoo.com/republicans-sue-over-rejection-party-193121016.html)
-- Jul 05 - [‘Unacceptably high’: The Fed plans to keep hiking rates — but with the typical home selling for just $4K less than 2022's all-time high, don't expect a big housing correction to follow](https://finance.yahoo.com/news/unacceptably-high-fed-plans-keep-193000110.html)
-- Jul 05 - [Ex-Florida QB Jalen Kitna agrees to plea deal that drops 5 felony child porn charges](https://news.yahoo.com/ex-florida-qb-jalen-kitna-191318645.html)
+- Jul 05 - [Bank of America increases dividend by 9% after Fed stress test](https://finance.yahoo.com/news/bank-america-increases-dividend-9-213122230.html)
+- Jul 05 - [Judge orders Kevin Costner's estranged wife to move out by the end of the month despite her complaints about the Santa Barbara rental market](https://news.yahoo.com/judge-orders-kevin-costners-estranged-212502212.html)
+- Jul 05 - [Donald Trump Baselessly Suggests Joe Biden Uses Cocaine, Calls Prosecutor 'Crackhead'](https://news.yahoo.com/donald-trump-suggests-joe-biden-211554922.html)
+- Jul 05 - [After mass shootings over July 4 weekend, WH calls on Republicans in Congress to act](https://news.yahoo.com/mass-shootings-over-july-4-211128386.html)
+- Jul 05 - [Wisconsin Gov. Tony Evers thwarted Republicans with a creative veto that increases school funding for the next 400 years](https://news.yahoo.com/wisconsin-gov-tony-evers-thwarted-205133298.html)
 <!-- feed end -->
