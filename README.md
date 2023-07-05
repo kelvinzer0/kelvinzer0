@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Former Sen. Claire McCaskill Delivers The Brutal Truth To Lindsey Graham](https://news.yahoo.com/former-sen-claire-mccaskill-delivers-125341810.html)
+- Jul 05 - [Iran tried to seize 2 oil tankers near Strait of Hormuz and fired shots at one of them, US Navy says](https://news.yahoo.com/iran-tried-seize-2-oil-124805382.html)
 - Jul 05 - [‘Exiled’ Wagner Boss Returns to Russia and Gets His Weapons Back](https://news.yahoo.com/exiled-wagner-boss-returns-russia-114024764.html)
 - Jul 05 - [‘There’s no fight, you threw me down’: Video shows officer slamming woman to ground](https://news.yahoo.com/no-fight-threw-down-video-101014774.html)
 - Jul 05 - [Swing state Republicans bleed donors and cash over Trump's false election claims](https://news.yahoo.com/swing-state-republicans-bleed-donors-100223002.html)
-- Jul 05 - [Robert De Niro's daughter says her son, Leandro, who was found dead at an iconic lower Manhattan building, 'didn't deserve to die like this'](https://www.yahoo.com/entertainment/robert-niros-daughter-says-son-095151933.html)
-- Jul 05 - [IRS Quietly Changed the Rules on Your Children’s Inheritance](https://finance.yahoo.com/news/irs-quietly-changed-rules-children-094042166.html)
 <!-- feed end -->
