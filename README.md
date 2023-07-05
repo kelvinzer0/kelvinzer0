@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Bud Light's troubles may extend into fall Oktoberfest season](https://finance.yahoo.com/news/bud-lights-troubles-may-extend-into-fall-oktoberfest-season-160336461.html)
+- Jul 05 - [Attorney who challenged Trump's 2020 loss gives up law license as states weigh disciplining him](https://news.yahoo.com/trump-attorney-gives-law-license-154656872.html)
+- Jul 05 - [A TikToker tried to shame a coffee-shop worker for his bare feet, but it backfired drastically and viewers flocked to support the business](https://news.yahoo.com/tiktoker-tried-shame-coffee-shop-151720887.html)
+- Jul 05 - [A man who had chest pains and ignored them 'like most men' was later diagnosed with pancreatic cancer](https://www.yahoo.com/lifestyle/man-had-chest-pains-ignored-144659950.html)
 - Jul 05 - [New Documents Show Kevin Costner Has Had Enough of Ex Christine Baumgartner Not Leaving His Property](https://www.yahoo.com/entertainment/documents-show-kevin-costner-had-144635918.html)
-- Jul 05 - [China's economy, labor market 'the complete opposite' of the U.S.: Economist](https://finance.yahoo.com/video/chinas-economy-labor-market-complete-143938630.html)
-- Jul 05 - [Convicted Oathkeeper leader warns Trump: "You're going to be found guilty if you try to go to trial"](https://news.yahoo.com/convicted-oathkeeper-leader-warns-trump-142019970.html)
-- Jul 05 - ['You should never be at home': This NYU professor went viral for telling young folks that they need to be out of the house for success — but his advice was blasted](https://finance.yahoo.com/news/never-home-58-old-nyu-110000040.html)
-- Jul 05 - [Bill de Blasio wondered if marrying a self-identified lesbian meant there was a 'time bomb ticking' in his marriage](https://news.yahoo.com/bill-blasio-wondered-marrying-self-135917223.html)
 <!-- feed end -->
