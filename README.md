@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Bank of America increases dividend by 9% after Fed stress test](https://finance.yahoo.com/news/bank-america-increases-dividend-9-213122230.html)
+- Jul 05 - [Study says drinking water from nearly half of US faucets contains potentially harmful chemicals](https://news.yahoo.com/study-says-drinking-water-nearly-224051044.html)
+- Jul 05 - [El Paso shooter in court for sentencing](https://news.yahoo.com/el-paso-shooter-court-sentencing-223549699.html)
 - Jul 05 - [Judge orders Kevin Costner's estranged wife to move out by the end of the month despite her complaints about the Santa Barbara rental market](https://news.yahoo.com/judge-orders-kevin-costners-estranged-212502212.html)
-- Jul 05 - [Donald Trump Baselessly Suggests Joe Biden Uses Cocaine, Calls Prosecutor 'Crackhead'](https://news.yahoo.com/donald-trump-suggests-joe-biden-211554922.html)
 - Jul 05 - [After mass shootings over July 4 weekend, WH calls on Republicans in Congress to act](https://news.yahoo.com/mass-shootings-over-july-4-211128386.html)
-- Jul 05 - [Wisconsin Gov. Tony Evers thwarted Republicans with a creative veto that increases school funding for the next 400 years](https://news.yahoo.com/wisconsin-gov-tony-evers-thwarted-205133298.html)
+- Jul 05 - [WATCH: White House shuts down question about unacknowledged Biden granddaughter](https://news.yahoo.com/watch-white-house-shuts-down-204853432.html)
 <!-- feed end -->
