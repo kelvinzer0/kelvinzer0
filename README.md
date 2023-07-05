@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [“Abuse of power”: Experts rip Trump judge’s “deranged and dangerous” limits on anti-disinfo efforts](https://news.yahoo.com/abuse-power-experts-rip-trump-130307705.html)
-- Jul 05 - [Former Sen. Claire McCaskill Delivers The Brutal Truth To Lindsey Graham](https://news.yahoo.com/former-sen-claire-mccaskill-delivers-125341810.html)
-- Jul 05 - [Iran tried to seize 2 oil tankers near Strait of Hormuz and fired shots at one of them, US Navy says](https://news.yahoo.com/iran-tried-seize-2-oil-124805382.html)
-- Jul 05 - [Secret Service investigating suspected cocaine found in West Wing of White House](https://news.yahoo.com/secret-investigating-suspected-cocaine-found-121502060.html)
-- Jul 05 - [‘Exiled’ Wagner Boss Returns to Russia and Gets His Weapons Back](https://news.yahoo.com/exiled-wagner-boss-returns-russia-114024764.html)
+- Jul 05 - [New Documents Show Kevin Costner Has Had Enough of Ex Christine Baumgartner Not Leaving His Property](https://www.yahoo.com/entertainment/documents-show-kevin-costner-had-144635918.html)
+- Jul 05 - [China's economy, labor market 'the complete opposite' of the U.S.: Economist](https://finance.yahoo.com/video/chinas-economy-labor-market-complete-143938630.html)
+- Jul 05 - [Convicted Oathkeeper leader warns Trump: "You're going to be found guilty if you try to go to trial"](https://news.yahoo.com/convicted-oathkeeper-leader-warns-trump-142019970.html)
+- Jul 05 - ['You should never be at home': This NYU professor went viral for telling young folks that they need to be out of the house for success — but his advice was blasted](https://finance.yahoo.com/news/never-home-58-old-nyu-110000040.html)
+- Jul 05 - [Bill de Blasio wondered if marrying a self-identified lesbian meant there was a 'time bomb ticking' in his marriage](https://news.yahoo.com/bill-blasio-wondered-marrying-self-135917223.html)
 <!-- feed end -->
