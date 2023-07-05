@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [RNC Accidentally Celebrates Wrong Flag In Awkward Fourth Of July Message](https://news.yahoo.com/rnc-accidentally-celebrates-wrong-flag-045000615.html)
+- Jul 05 - [The Texas shooter in a racist Walmart attack is going to prison. Here's what to know about the case](https://news.yahoo.com/texas-shooter-racist-walmart-attack-040253031.html)
 - Jul 05 - [Conservatives go to red states, Democrats to blue as the country grows more polarized](https://news.yahoo.com/conservatives-red-states-democrats-blue-040129660.html)
-- Jul 05 - [How British Storm Shadow Missiles Help Ukraine’s Counteroffensive](https://finance.yahoo.com/video/british-storm-shadow-missiles-help-040100338.html)
 - Jul 05 - [A man who tried to warn a North Carolina amusement park about a huge crack in the ride's support beam said staff were 'nonchalant' and had 'no urgency' to fix it](https://news.yahoo.com/man-tried-warn-north-carolina-032309635.html)
 - Jul 05 - [‘Smallville’ actor released from prison for role in sex-trafficking case tied to cult-like group](https://news.yahoo.com/smallville-actor-released-prison-role-013509304.html)
-- Jul 05 - [Major explosion in Makiivka, near occupied Donetsk](https://news.yahoo.com/major-explosion-makiivka-near-occupied-002200433.html)
 <!-- feed end -->
