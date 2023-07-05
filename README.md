@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [“Abuse of power”: Experts rip Trump judge’s “deranged and dangerous” limits on anti-disinfo efforts](https://news.yahoo.com/abuse-power-experts-rip-trump-130307705.html)
 - Jul 05 - [Former Sen. Claire McCaskill Delivers The Brutal Truth To Lindsey Graham](https://news.yahoo.com/former-sen-claire-mccaskill-delivers-125341810.html)
 - Jul 05 - [Iran tried to seize 2 oil tankers near Strait of Hormuz and fired shots at one of them, US Navy says](https://news.yahoo.com/iran-tried-seize-2-oil-124805382.html)
+- Jul 05 - [Secret Service investigating suspected cocaine found in West Wing of White House](https://news.yahoo.com/secret-investigating-suspected-cocaine-found-121502060.html)
 - Jul 05 - [‘Exiled’ Wagner Boss Returns to Russia and Gets His Weapons Back](https://news.yahoo.com/exiled-wagner-boss-returns-russia-114024764.html)
-- Jul 05 - [‘There’s no fight, you threw me down’: Video shows officer slamming woman to ground](https://news.yahoo.com/no-fight-threw-down-video-101014774.html)
-- Jul 05 - [Swing state Republicans bleed donors and cash over Trump's false election claims](https://news.yahoo.com/swing-state-republicans-bleed-donors-100223002.html)
 <!-- feed end -->
