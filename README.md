@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [North Korea's failed rocket had 'no military utility'](https://news.yahoo.com/north-koreas-failed-rocket-had-083131945.html)
+- Jul 05 - [Cashier Reveals How He Got Revenge On Customer Who Continued Shopping 35 Minutes After The Store Closed](https://news.yahoo.com/cashier-reveals-got-revenge-customer-091500739.html)
+- Jul 05 - [A professor trying to solve the death of a beached sperm whale ended up discovering 21 pounds of whale-vomit worth half a million dollars](https://news.yahoo.com/professor-trying-solve-death-beached-083038563.html)
 - Jul 05 - [Gang warfare: Army confirms 9 veterans arrested as members of Georgia motorcycle club](https://news.yahoo.com/gang-warfare-army-confirms-9-080019115.html)
 - Jul 05 - [A troubled new power plant leaves Jordan in debt to China, raising concerns over Beijing's influence](https://news.yahoo.com/troubled-power-plant-leaves-jordan-054726927.html)
 - Jul 05 - [Armed mobs rampage through villages and push remote Indian region to the brink of civil war](https://news.yahoo.com/armed-mobs-rampage-villages-push-054555409.html)
-- Jul 05 - [RNC Accidentally Celebrates Wrong Flag In Awkward Fourth Of July Message](https://news.yahoo.com/rnc-accidentally-celebrates-wrong-flag-045000615.html)
 <!-- feed end -->
