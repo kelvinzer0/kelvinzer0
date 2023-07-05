@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [I'm a tech writer and these are the Prime Day gadget deals I really want](https://www.yahoo.com/lifestyle/im-a-tech-writer-and-these-are-the-prime-day-gadget-deals-i-really-want-184942966.html)
+- Jul 05 - [‘Unacceptably high’: The Fed plans to keep hiking rates — but with the typical home selling for just $4K less than 2022's all-time high, don't expect a big housing correction to follow](https://finance.yahoo.com/news/unacceptably-high-fed-plans-keep-193000110.html)
+- Jul 05 - [Ex-Florida QB Jalen Kitna agrees to plea deal that drops 5 felony child porn charges](https://news.yahoo.com/ex-florida-qb-jalen-kitna-191318645.html)
+- Jul 05 - [Ohio man sentenced to life in prison for rape of 10-year-old who sought abortion in Indiana](https://news.yahoo.com/ohio-man-sentenced-life-prison-191105296.html)
+- Jul 05 - [Ohio man guilty of raping a 9-year-old who traveled for legal abortion gets life sentence](https://news.yahoo.com/ohio-man-guilty-raping-9-190958704.html)
 - Jul 05 - [Trump posted what he said was Obama's address, prosecutors say. An armed man was soon arrested there](https://news.yahoo.com/trump-posted-said-obamas-address-184543131.html)
-- Jul 05 - [The tourist who defaced the nearly 2,000-year-old Colosseum in Rome says he wasn't aware of the monument's age](https://news.yahoo.com/tourist-defaced-nearly-2-000-181034254.html)
-- Jul 05 - [Legend claims there’s entrance to Underworld in Mexico — and experts think they found it](https://news.yahoo.com/legend-claims-entrance-underworld-mexico-174214198.html)
-- Jul 05 - [Moms for Liberty Speaker Says It's Time to Start Re-Reading Hitler, Stalin, & Mao](https://news.yahoo.com/moms-liberty-speaker-says-time-173353383.html)
 <!-- feed end -->
