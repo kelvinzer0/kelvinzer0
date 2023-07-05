@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Accused Philly Mass Shooter Reportedly Offered a Baffling Motive](https://news.yahoo.com/accused-philly-mass-shooter-reportedly-201647186.html)
+- Jul 05 - [5 Dead After Small Aircraft Crashes in North Myrtle Beach](https://www.yahoo.com/entertainment/5-dead-small-aircraft-crashes-200337830.html)
+- Jul 05 - [Republicans sue over rejection of party nominee to election board in Georgia's most populous county](https://news.yahoo.com/republicans-sue-over-rejection-party-193121016.html)
 - Jul 05 - [‘Unacceptably high’: The Fed plans to keep hiking rates — but with the typical home selling for just $4K less than 2022's all-time high, don't expect a big housing correction to follow](https://finance.yahoo.com/news/unacceptably-high-fed-plans-keep-193000110.html)
 - Jul 05 - [Ex-Florida QB Jalen Kitna agrees to plea deal that drops 5 felony child porn charges](https://news.yahoo.com/ex-florida-qb-jalen-kitna-191318645.html)
-- Jul 05 - [Ohio man sentenced to life in prison for rape of 10-year-old who sought abortion in Indiana](https://news.yahoo.com/ohio-man-sentenced-life-prison-191105296.html)
-- Jul 05 - [Ohio man guilty of raping a 9-year-old who traveled for legal abortion gets life sentence](https://news.yahoo.com/ohio-man-guilty-raping-9-190958704.html)
-- Jul 05 - [Trump posted what he said was Obama's address, prosecutors say. An armed man was soon arrested there](https://news.yahoo.com/trump-posted-said-obamas-address-184543131.html)
 <!-- feed end -->
