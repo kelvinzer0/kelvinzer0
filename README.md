@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Conservatives go to red states, Democrats to blue as the country grows more polarized](https://news.yahoo.com/conservatives-red-states-democrats-blue-040129660.html)
+- Jul 05 - [How British Storm Shadow Missiles Help Ukraine’s Counteroffensive](https://finance.yahoo.com/video/british-storm-shadow-missiles-help-040100338.html)
+- Jul 05 - [A man who tried to warn a North Carolina amusement park about a huge crack in the ride's support beam said staff were 'nonchalant' and had 'no urgency' to fix it](https://news.yahoo.com/man-tried-warn-north-carolina-032309635.html)
 - Jul 05 - [‘Smallville’ actor released from prison for role in sex-trafficking case tied to cult-like group](https://news.yahoo.com/smallville-actor-released-prison-role-013509304.html)
 - Jul 05 - [Major explosion in Makiivka, near occupied Donetsk](https://news.yahoo.com/major-explosion-makiivka-near-occupied-002200433.html)
-- Jul 04 - [Asians who celebrated SCOTUS decision on affirmative action get attacked on social media](https://news.yahoo.com/asians-celebrated-scotus-decision-affirmative-221958157.html)
-- Jul 04 - [Plan to demolish house where 4 University of Idaho students were slain prompts objections](https://news.yahoo.com/plan-demolish-house-where-4-212945307.html)
-- Jul 04 - [69-year-old woman dies following alligator attack during her dog walk](https://news.yahoo.com/69-old-woman-dies-following-210018250.html)
 <!-- feed end -->
