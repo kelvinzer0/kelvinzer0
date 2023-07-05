@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 05 - [A troubled new power plant leaves Jordan in debt to China, raising concerns over Beijing's influence](https://news.yahoo.com/troubled-power-plant-leaves-jordan-054726927.html)
+- Jul 05 - [Armed mobs rampage through villages and push remote Indian region to the brink of civil war](https://news.yahoo.com/armed-mobs-rampage-villages-push-054555409.html)
 - Jul 05 - [RNC Accidentally Celebrates Wrong Flag In Awkward Fourth Of July Message](https://news.yahoo.com/rnc-accidentally-celebrates-wrong-flag-045000615.html)
 - Jul 05 - [The Texas shooter in a racist Walmart attack is going to prison. Here's what to know about the case](https://news.yahoo.com/texas-shooter-racist-walmart-attack-040253031.html)
 - Jul 05 - [Conservatives go to red states, Democrats to blue as the country grows more polarized](https://news.yahoo.com/conservatives-red-states-democrats-blue-040129660.html)
-- Jul 05 - [A man who tried to warn a North Carolina amusement park about a huge crack in the ride's support beam said staff were 'nonchalant' and had 'no urgency' to fix it](https://news.yahoo.com/man-tried-warn-north-carolina-032309635.html)
 <!-- feed end -->
