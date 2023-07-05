@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [I'm a tech writer and these are the Prime Day gadget deals I really want](https://www.yahoo.com/lifestyle/im-a-tech-writer-and-these-are-the-prime-day-gadget-deals-i-really-want-184942966.html)
+- Jul 05 - [Trump posted what he said was Obama's address, prosecutors say. An armed man was soon arrested there](https://news.yahoo.com/trump-posted-said-obamas-address-184543131.html)
+- Jul 05 - [The tourist who defaced the nearly 2,000-year-old Colosseum in Rome says he wasn't aware of the monument's age](https://news.yahoo.com/tourist-defaced-nearly-2-000-181034254.html)
 - Jul 05 - [Legend claims there’s entrance to Underworld in Mexico — and experts think they found it](https://news.yahoo.com/legend-claims-entrance-underworld-mexico-174214198.html)
-- Jul 05 - [Donald Trump's ALL-CAPS RANT Is The Fourth Of July Hangover That Will Pound Your Brain](https://news.yahoo.com/donald-trumps-caps-rant-fourth-163608200.html)
-- Jul 05 - [Drones easily spotted Russian arms dump near a city where piles of ammo were lying in the open. Ukraine bombed it, causing massive explosions, video shows.](https://news.yahoo.com/drones-easily-spotted-russian-arms-163031069.html)
-- Jul 05 - [Here are some of the Apple products a former employee is de-influencing TikTokers from purchasing: ‘Don’t buy accessories from Apple’](https://news.yahoo.com/apple-products-former-employee-influencing-163005661.html)
-- Jul 05 - [The largest Powerball and Mega Millions jackpots in American lottery history](https://sports.yahoo.com/16-largest-powerball-mega-millions-183348762.html)
+- Jul 05 - [Moms for Liberty Speaker Says It's Time to Start Re-Reading Hitler, Stalin, & Mao](https://news.yahoo.com/moms-liberty-speaker-says-time-173353383.html)
 <!-- feed end -->
