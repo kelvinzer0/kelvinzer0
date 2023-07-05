@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Major explosion in Makiivka, near occupied Donetsk](https://news.yahoo.com/major-explosion-makiivka-near-occupied-002200433.html)
 - Jul 04 - [Asians who celebrated SCOTUS decision on affirmative action get attacked on social media](https://news.yahoo.com/asians-celebrated-scotus-decision-affirmative-221958157.html)
 - Jul 04 - [Plan to demolish house where 4 University of Idaho students were slain prompts objections](https://news.yahoo.com/plan-demolish-house-where-4-212945307.html)
+- Jul 04 - [69-year-old woman dies following alligator attack during her dog walk](https://news.yahoo.com/69-old-woman-dies-following-210018250.html)
 - Jul 04 - [Some suburban women drawn to Ron DeSantis' presidential campaign over his support of reopening schools early in the pandemic jokingly call him 'Freedom Daddy'](https://news.yahoo.com/suburban-women-drawn-ron-desantis-204024093.html)
-- Jul 04 - [Biden likely violated First Amendment during COVID-19 pandemic, federal judge says](https://news.yahoo.com/biden-likely-violated-first-amendment-201130698.html)
-- Jul 04 - [‘Mr. Bean’ actor sparks controversy with confounding newspaper column: ‘It’s starting to become a pattern’](https://news.yahoo.com/mr-bean-actor-sparks-controversy-180000975.html)
 <!-- feed end -->
