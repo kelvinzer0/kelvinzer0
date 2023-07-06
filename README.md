@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [Reaching 'drop dead' deadline, Trump aide Walt Nauta to be arraigned in classified docs case](https://news.yahoo.com/reaching-drop-dead-deadline-trump-090441636.html)
-- Jul 06 - [A New Poll on the Trump Indictments Has a Surprising Result](https://news.yahoo.com/one-thing-unites-people-trump-090000414.html)
-- Jul 06 - [Israeli Protesters Block Tel Aviv Highways After Police Chief Quits](https://finance.yahoo.com/video/israeli-protesters-block-tel-aviv-073000963.html)
-- Jul 06 - [Australian Official Calls BS On ‘Big Baby’ Donald Trump Jr. After Tour Delay](https://news.yahoo.com/australian-official-calls-bs-big-064039064.html)
-- Jul 06 - [Ben & Jerry's faces Bud Light-style boycott over controversial Forth of July tweet](https://news.yahoo.com/ben-jerrys-faces-bud-light-060000951.html)
+- Jul 06 - [One in five United Methodist congregations in the US have left the denomination over LGBTQ conflicts](https://news.yahoo.com/one-five-united-methodist-congregations-120143300.html)
+- Jul 06 - [‘I haven't been the same since’: This TikToker was shocked to find out that Buc-ee's pays janitors the same wage as her office job — why the demand for blue collar work is soaring](https://finance.yahoo.com/news/havent-same-since-tiktoker-shocked-120000186.html)
+- Jul 06 - [Philadelphia sues maker of 'ghost guns' after July 4 mass shooting](https://news.yahoo.com/philadelphia-sues-maker-ghost-guns-113637579.html)
+- Jul 06 - [One fishing line catches 28 angry-looking sea creatures in Gulf of Maine, photo shows](https://news.yahoo.com/one-fishing-line-catches-28-113456478.html)
+- Jul 06 - [Ukraine's attacks on Russian commanders have the US Army worried about its own 'fat and ponderous' command posts](https://news.yahoo.com/ukraines-attacks-russian-commanders-us-111100101.html)
 <!-- feed end -->
