@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [JetBlue ends alliance with American Airlines, pursues Spirit acquisition](https://finance.yahoo.com/video/jetblue-ends-alliance-american-airlines-151711064.html)
-- Jul 06 - [Donald Trump Reportedly Used This Disgusting Reason for Sending Ivanka Out on Business Deals](https://www.yahoo.com/entertainment/donald-trump-reportedly-used-disgusting-145633668.html)
-- Jul 06 - [McEnany breaks with Trump: ‘No way’ cocaine at White House is Hunter Biden’s](https://news.yahoo.com/mcenany-breaks-trump-no-way-145613196.html)
-- Jul 06 - [Belarusian dictator who negotiated the end of Prigozhin's mutiny says there's no way Putin is 'malicious and vindictive' enough to have him killed](https://news.yahoo.com/belarusian-dictator-negotiated-end-prigozhins-143248638.html)
-- Jul 06 - [Mysterious giant 300,000-year-old hand axes were found at an Ice Age site in England. Scientists can't work out why they are so big.](https://news.yahoo.com/mysterious-giant-300-000-old-140304686.html)
+- Jul 06 - ['They Just Stopped Buying': Bud Light Is Now Selling For Less Than Water In Some US Warehouses, But Is BUD Stock Too Cheap To Pass Up? 1 Reason To Pick It Up Now](https://finance.yahoo.com/news/just-stopped-buying-bud-light-162116088.html)
+- Jul 06 - [Two New Jersey Firefighters Killed Battling Fire on Car-Carrying Ship](https://finance.yahoo.com/video/two-jersey-firefighters-killed-battling-161800621.html)
+- Jul 06 - [Justice Department moves to block Trump deposition after ex-FBI agent Peter Strzok sues over firing](https://news.yahoo.com/justice-department-moves-block-trump-161200864.html)
+- Jul 06 - [Guns per Capita by Country Vs Crime Rate: Top 20 Countries](https://finance.yahoo.com/news/guns-per-capita-country-vs-155707303.html)
+- Jul 06 - [Greta Thunberg ‘could face six months in prison’](https://news.yahoo.com/greta-thunberg-could-face-six-153930505.html)
 <!-- feed end -->
