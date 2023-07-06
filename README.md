@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [Police: Story of teen missing 8 years was a hoax](https://news.yahoo.com/police-story-teen-missing-8-203943419.html)
+- Jul 06 - [Traveling to Florida? These out-of-state licenses may no longer be valid in the state](https://news.yahoo.com/traveling-florida-state-licenses-may-212623294.html)
+- Jul 06 - [Desperate parents rushed to find their children at tea party shattered by tragedy](https://news.yahoo.com/desperate-parents-rushed-children-tea-211657476.html)
+- Jul 06 - [Shake Shack founder, who once called tipping ‘one of the biggest hoaxes ever pulled,’ says there’s no obligation ‘whatsoever’ to do it for drive-thru anything](https://finance.yahoo.com/news/shake-shack-founder-once-called-191905134.html)
 - Jul 06 - [Cocaine found in the White House was in a different location than previously reported, sources say](https://news.yahoo.com/cocaine-found-white-house-different-190847028.html)
 - Jul 06 - [Rep. Marjorie Taylor Greene Booted From Right-Wing House Freedom Caucus](https://news.yahoo.com/rep-marjorie-taylor-greene-booted-183345371.html)
-- Jul 06 - [Couple gets stranded during fishing trip in Louisiana. Photo shows creative rescue](https://news.yahoo.com/couple-gets-stranded-during-fishing-180415961.html)
-- Jul 06 - [Troy Aikman: Many beer brands claim to be American, ‘but they’re not’](https://finance.yahoo.com/news/troy-aikman-many-beer-brands-claim-to-be-american-but-theyre-not-174445078.html)
 <!-- feed end -->
