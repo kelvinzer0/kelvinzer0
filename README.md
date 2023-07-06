@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Israeli Protesters Block Tel Aviv Highways After Police Chief Quits](https://finance.yahoo.com/video/israeli-protesters-block-tel-aviv-073000963.html)
+- Jul 06 - [Ben & Jerry's faces Bud Light-style boycott over controversial 4th of July tweet](https://news.yahoo.com/ben-jerrys-faces-bud-light-060000951.html)
 - Jul 06 - [Homeowner infuriated by HOA’s outrageous treatment of elderly neighbor: ‘He spent an hour in his truck … crying about it’](https://news.yahoo.com/homeowner-infuriated-hoa-outrageous-treatment-043000188.html)
-- Jul 06 - [Flying car receives US approval for test flights](https://news.yahoo.com/flying-car-receives-us-approval-041931161.html)
 - Jul 06 - [First of 2 Iowa teens scheduled to be sentenced in 2021 beating death of teacher](https://news.yahoo.com/first-2-iowa-teens-scheduled-041130428.html)
 - Jul 06 - [83,000 Hawaii homes dispose of sewage in cesspools. Rising sea levels will make them more of a mess](https://news.yahoo.com/83-000-hawaii-homes-dispose-040614736.html)
-- Jul 06 - [China's top-ranking diplomat told Japan and South Korea their people can dye their hair blonde and make their noses sharper but that they'll 'never become Westerners,' urging them to work with Beijing instead](https://news.yahoo.com/chinas-top-ranking-diplomat-told-033547792.html)
 <!-- feed end -->
