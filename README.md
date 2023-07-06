@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 06 - [JetBlue ends alliance with American Airlines, pursues Spirit acquisition](https://finance.yahoo.com/video/jetblue-ends-alliance-american-airlines-151711064.html)
-- Jul 06 - [A Las Vegas flight to Hawaii was diverted after a passenger AirDropped a photo suggesting there was a bomb on the plane to other passengers, police say](https://news.yahoo.com/las-vegas-flight-hawaii-diverted-135137200.html)
-- Jul 06 - [Belarus leader says: I'm not the last dictator in Europe](https://news.yahoo.com/belarus-leader-says-im-not-125747831.html)
-- Jul 06 - [Captured Russian soldier said commanders were high on painkillers and gave 'nonsensical orders' like sending them out under mortar fire](https://news.yahoo.com/captured-russian-soldier-said-commanders-125423538.html)
-- Jul 06 - [United Methodists lose one-fifth of US churches in schism driven by growing defiance of LGBTQ bans](https://news.yahoo.com/one-five-united-methodist-congregations-120143300.html)
+- Jul 06 - [Donald Trump Reportedly Used This Disgusting Reason for Sending Ivanka Out on Business Deals](https://www.yahoo.com/entertainment/donald-trump-reportedly-used-disgusting-145633668.html)
+- Jul 06 - [McEnany breaks with Trump: ‘No way’ cocaine at White House is Hunter Biden’s](https://news.yahoo.com/mcenany-breaks-trump-no-way-145613196.html)
+- Jul 06 - [Belarusian dictator who negotiated the end of Prigozhin's mutiny says there's no way Putin is 'malicious and vindictive' enough to have him killed](https://news.yahoo.com/belarusian-dictator-negotiated-end-prigozhins-143248638.html)
+- Jul 06 - [Mysterious giant 300,000-year-old hand axes were found at an Ice Age site in England. Scientists can't work out why they are so big.](https://news.yahoo.com/mysterious-giant-300-000-old-140304686.html)
 <!-- feed end -->
