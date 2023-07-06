@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Cocaine found in the White House was in a different location than previously reported, sources say](https://news.yahoo.com/cocaine-found-white-house-different-190847028.html)
 - Jul 06 - [Rep. Marjorie Taylor Greene Booted From Right-Wing House Freedom Caucus](https://news.yahoo.com/rep-marjorie-taylor-greene-booted-183345371.html)
+- Jul 06 - [Ex-prosecutor on "overwhelming" DOJ evidence: Nauta "will go to prison for years" if he doesn't flip](https://news.yahoo.com/ex-prosecutor-overwhelming-doj-evidence-180525264.html)
 - Jul 06 - [Couple gets stranded during fishing trip in Louisiana. Photo shows creative rescue](https://news.yahoo.com/couple-gets-stranded-during-fishing-180415961.html)
 - Jul 06 - [Troy Aikman: Many beer brands claim to be American, ‘but they’re not’](https://finance.yahoo.com/news/troy-aikman-many-beer-brands-claim-to-be-american-but-theyre-not-174445078.html)
-- Jul 06 - [Hulk Hogan Talks Giving Up Alcohol, Losing 40 Lbs. After His Body 'Shut Down On Me'](https://www.yahoo.com/entertainment/hulk-hogan-talks-giving-alcohol-165442634.html)
-- Jul 06 - [Texas teen reported missing by mom in 2015 was "not missing," police say](https://news.yahoo.com/texas-teen-reported-missing-mom-165247475.html)
 <!-- feed end -->
