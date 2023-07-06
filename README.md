@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Brit Hume Gives Fox News Viewers Damning Reality Check On 'Loser' Trump](https://news.yahoo.com/brit-hume-gives-fox-news-042339683.html)
+- Jul 06 - [Flying car receives US approval for test flights](https://news.yahoo.com/flying-car-receives-us-approval-041931161.html)
+- Jul 06 - [83,000 Hawaii homes dispose of sewage in cesspools. Rising sea levels will make them more of a mess](https://news.yahoo.com/83-000-hawaii-homes-dispose-040614736.html)
+- Jul 06 - [China's top-ranking diplomat told Japan and South Korea their people can dye their hair blonde and make their noses sharper but that they'll 'never become Westerners,' urging them to work with Beijing instead](https://news.yahoo.com/chinas-top-ranking-diplomat-told-033547792.html)
 - Jul 06 - [Former top Arizona GOP official describes what Trump team gave him as ‘proof’ of voter fraud](https://news.yahoo.com/former-top-arizona-gop-official-024253668.html)
-- Jul 06 - [A father preparing to walk his daughter down the aisle and a young man who ran out for a snack were among those killed in the Philadelphia mass shooting](https://news.yahoo.com/father-preparing-walk-daughter-down-222719922.html)
-- Jul 06 - [Haberman talks Trump being more ‘reckless’ on his social media site](https://news.yahoo.com/haberman-talks-trump-being-more-014420633.html)
-- Jul 05 - [Subway faces backlash over ‘distasteful’ sign referencing Titan implosion](https://www.yahoo.com/lifestyle/subway-faces-backlash-over-distasteful-233042158.html)
-- Jul 05 - [In Trump case, Justice Dept. unseals previously blacked-out portions from search warrant application](https://news.yahoo.com/trump-case-justice-dept-unseals-231057695.html)
 <!-- feed end -->
