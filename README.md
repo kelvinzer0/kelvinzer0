@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [JetBlue ends alliance with American Airlines, pursues Spirit acquisition](https://finance.yahoo.com/video/jetblue-ends-alliance-american-airlines-151711064.html)
+- Jul 06 - [A Las Vegas flight to Hawaii was diverted after a passenger AirDropped a photo suggesting there was a bomb on the plane to other passengers, police say](https://news.yahoo.com/las-vegas-flight-hawaii-diverted-135137200.html)
+- Jul 06 - [Belarus leader says: I'm not the last dictator in Europe](https://news.yahoo.com/belarus-leader-says-im-not-125747831.html)
 - Jul 06 - [Captured Russian soldier said commanders were high on painkillers and gave 'nonsensical orders' like sending them out under mortar fire](https://news.yahoo.com/captured-russian-soldier-said-commanders-125423538.html)
 - Jul 06 - [United Methodists lose one-fifth of US churches in schism driven by growing defiance of LGBTQ bans](https://news.yahoo.com/one-five-united-methodist-congregations-120143300.html)
-- Jul 06 - [‘I haven't been the same since’: This TikToker was shocked to find out that Buc-ee's pays janitors the same wage as her office job — why the demand for blue collar work is soaring](https://finance.yahoo.com/news/havent-same-since-tiktoker-shocked-120000186.html)
-- Jul 06 - [One fishing line catches 28 angry-looking sea creatures in Gulf of Maine, photo shows](https://news.yahoo.com/one-fishing-line-catches-28-113456478.html)
-- Jul 06 - [Trump's 'Lifetime Of Lies' Exposed In Author's Damning New Video](https://www.yahoo.com/entertainment/donald-trumps-lifetime-lies-exposed-110257028.html)
 <!-- feed end -->
