@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - ['They Just Stopped Buying': Bud Light Is Now Selling For Less Than Water In Some US Warehouses, But Is BUD Stock Too Cheap To Pass Up? 1 Reason To Pick It Up Now](https://finance.yahoo.com/news/just-stopped-buying-bud-light-162116088.html)
-- Jul 06 - [Two New Jersey Firefighters Killed Battling Fire on Car-Carrying Ship](https://finance.yahoo.com/video/two-jersey-firefighters-killed-battling-161800621.html)
-- Jul 06 - [Justice Department moves to block Trump deposition after ex-FBI agent Peter Strzok sues over firing](https://news.yahoo.com/justice-department-moves-block-trump-161200864.html)
-- Jul 06 - [Guns per Capita by Country Vs Crime Rate: Top 20 Countries](https://finance.yahoo.com/news/guns-per-capita-country-vs-155707303.html)
-- Jul 06 - [Greta Thunberg ‘could face six months in prison’](https://news.yahoo.com/greta-thunberg-could-face-six-153930505.html)
+- Jul 06 - [Hulk Hogan Talks Giving Up Alcohol, Losing 40 Lbs. After His Body 'Shut Down On Me'](https://www.yahoo.com/entertainment/hulk-hogan-talks-giving-alcohol-165442634.html)
+- Jul 06 - [Texas teen reported missing by mom in 2015 was "not missing," police say](https://news.yahoo.com/texas-teen-reported-missing-mom-165247475.html)
+- Jul 06 - [I never thought I'd leave San Francisco, but the city feels broken. I'm glad I moved out and have no regrets.](https://news.yahoo.com/never-thought-id-leave-san-165200863.html)
+- Jul 06 - [Iran's Revolutionary Guards seize commercial ship in Gulf - U.S. Navy](https://news.yahoo.com/irans-revolutionary-guards-seize-commercial-163206739.html)
+- Jul 06 - [A passenger on OceanGate's sub questioned what would happen if they got lost since they were bolted inside. CEO Stockton Rush replied, 'You're dead anyway.'](https://news.yahoo.com/passenger-oceangates-sub-questioned-happen-162955401.html)
 <!-- feed end -->
