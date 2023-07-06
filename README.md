@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [Brit Hume Gives Fox News Viewers Damning Reality Check On 'Loser' Trump](https://news.yahoo.com/brit-hume-gives-fox-news-042339683.html)
-- Jul 06 - [Flying car receives US approval for test flights](https://news.yahoo.com/flying-car-receives-us-approval-041931161.html)
+- Jul 06 - [Multiple Killed and Dozens of Homes Destroyed in Strike on Lviv](https://news.yahoo.com/multiple-killed-dozens-homes-destroyed-055416436.html)
+- Jul 06 - [First of 2 Iowa teens scheduled to be sentenced in 2021 beating death of teacher](https://news.yahoo.com/first-2-iowa-teens-scheduled-041130428.html)
 - Jul 06 - [83,000 Hawaii homes dispose of sewage in cesspools. Rising sea levels will make them more of a mess](https://news.yahoo.com/83-000-hawaii-homes-dispose-040614736.html)
 - Jul 06 - [China's top-ranking diplomat told Japan and South Korea their people can dye their hair blonde and make their noses sharper but that they'll 'never become Westerners,' urging them to work with Beijing instead](https://news.yahoo.com/chinas-top-ranking-diplomat-told-033547792.html)
 - Jul 06 - [Former top Arizona GOP official describes what Trump team gave him as ‘proof’ of voter fraud](https://news.yahoo.com/former-top-arizona-gop-official-024253668.html)
