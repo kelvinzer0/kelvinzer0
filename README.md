@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Former top Arizona GOP official describes what Trump team gave him as ‘proof’ of voter fraud](https://news.yahoo.com/former-top-arizona-gop-official-024253668.html)
+- Jul 06 - [A father preparing to walk his daughter down the aisle and a young man who ran out for a snack were among those killed in the Philadelphia mass shooting](https://news.yahoo.com/father-preparing-walk-daughter-down-222719922.html)
 - Jul 06 - [Haberman talks Trump being more ‘reckless’ on his social media site](https://news.yahoo.com/haberman-talks-trump-being-more-014420633.html)
-- Jul 06 - [The Russian ruble just blew through its 'comfort zone' as the currency weakens in the aftermath of failed mutiny](https://finance.yahoo.com/news/russian-ruble-just-blew-comfort-005105070.html)
 - Jul 05 - [Subway faces backlash over ‘distasteful’ sign referencing Titan implosion](https://www.yahoo.com/lifestyle/subway-faces-backlash-over-distasteful-233042158.html)
 - Jul 05 - [In Trump case, Justice Dept. unseals previously blacked-out portions from search warrant application](https://news.yahoo.com/trump-case-justice-dept-unseals-231057695.html)
-- Jul 05 - [What the hell really happened to Rudy Farias? Four private investigators who worked the missing persons case say his mom lied to them for years](https://news.yahoo.com/hell-really-happened-rudy-farias-225609718.html)
 <!-- feed end -->
