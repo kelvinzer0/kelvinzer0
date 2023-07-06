@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Rep. Marjorie Taylor Greene Booted From Right-Wing House Freedom Caucus](https://news.yahoo.com/rep-marjorie-taylor-greene-booted-183345371.html)
+- Jul 06 - [Couple gets stranded during fishing trip in Louisiana. Photo shows creative rescue](https://news.yahoo.com/couple-gets-stranded-during-fishing-180415961.html)
+- Jul 06 - [Troy Aikman: Many beer brands claim to be American, ‘but they’re not’](https://finance.yahoo.com/news/troy-aikman-many-beer-brands-claim-to-be-american-but-theyre-not-174445078.html)
 - Jul 06 - [Hulk Hogan Talks Giving Up Alcohol, Losing 40 Lbs. After His Body 'Shut Down On Me'](https://www.yahoo.com/entertainment/hulk-hogan-talks-giving-alcohol-165442634.html)
 - Jul 06 - [Texas teen reported missing by mom in 2015 was "not missing," police say](https://news.yahoo.com/texas-teen-reported-missing-mom-165247475.html)
-- Jul 06 - [I never thought I'd leave San Francisco, but the city feels broken. I'm glad I moved out and have no regrets.](https://news.yahoo.com/never-thought-id-leave-san-165200863.html)
-- Jul 06 - [Iran's Revolutionary Guards seize commercial ship in Gulf - U.S. Navy](https://news.yahoo.com/irans-revolutionary-guards-seize-commercial-163206739.html)
-- Jul 06 - [A passenger on OceanGate's sub questioned what would happen if they got lost since they were bolted inside. CEO Stockton Rush replied, 'You're dead anyway.'](https://news.yahoo.com/passenger-oceangates-sub-questioned-happen-162955401.html)
 <!-- feed end -->
