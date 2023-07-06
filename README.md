@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [Israeli Protesters Block Tel Aviv Highways After Police Chief Quits](https://finance.yahoo.com/video/israeli-protesters-block-tel-aviv-073000963.html)
+- Jul 06 - ['Leave us alone' UK Haredi Jews fear school intrusion](https://news.yahoo.com/leave-us-alone-uk-haredi-071627767.html)
+- Jul 06 - [Australian Official Calls BS On ‘Big Baby’ Donald Trump Jr. After Tour Delay](https://news.yahoo.com/australian-official-calls-bs-big-064039064.html)
 - Jul 06 - [Ben & Jerry's faces Bud Light-style boycott over controversial 4th of July tweet](https://news.yahoo.com/ben-jerrys-faces-bud-light-060000951.html)
 - Jul 06 - [Homeowner infuriated by HOA’s outrageous treatment of elderly neighbor: ‘He spent an hour in his truck … crying about it’](https://news.yahoo.com/homeowner-infuriated-hoa-outrageous-treatment-043000188.html)
 - Jul 06 - [First of 2 Iowa teens scheduled to be sentenced in 2021 beating death of teacher](https://news.yahoo.com/first-2-iowa-teens-scheduled-041130428.html)
-- Jul 06 - [83,000 Hawaii homes dispose of sewage in cesspools. Rising sea levels will make them more of a mess](https://news.yahoo.com/83-000-hawaii-homes-dispose-040614736.html)
 <!-- feed end -->
