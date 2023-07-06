@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Captured Russian soldier said commanders were high on painkillers and gave 'nonsensical orders' like sending them out under mortar fire](https://news.yahoo.com/captured-russian-soldier-said-commanders-125423538.html)
+- Jul 06 - [United Methodists lose one-fifth of US churches in schism driven by growing defiance of LGBTQ bans](https://news.yahoo.com/one-five-united-methodist-congregations-120143300.html)
 - Jul 06 - [‘I haven't been the same since’: This TikToker was shocked to find out that Buc-ee's pays janitors the same wage as her office job — why the demand for blue collar work is soaring](https://finance.yahoo.com/news/havent-same-since-tiktoker-shocked-120000186.html)
-- Jul 06 - [The National Guard says it's struggling to hire because workers are being lured in by Wendy's, Amazon, and FedEx instead](https://news.yahoo.com/national-guard-says-struggling-hire-115651066.html)
 - Jul 06 - [One fishing line catches 28 angry-looking sea creatures in Gulf of Maine, photo shows](https://news.yahoo.com/one-fishing-line-catches-28-113456478.html)
-- Jul 06 - [Ukraine's attacks on Russian commanders have the US Army worried about its own 'fat and ponderous' command posts](https://news.yahoo.com/ukraines-attacks-russian-commanders-us-111100101.html)
 - Jul 06 - [Trump's 'Lifetime Of Lies' Exposed In Author's Damning New Video](https://www.yahoo.com/entertainment/donald-trumps-lifetime-lies-exposed-110257028.html)
 <!-- feed end -->
