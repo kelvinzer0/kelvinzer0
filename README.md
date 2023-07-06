@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [Kyiv court explosion: man dies after detonating device](https://news.yahoo.com/kyiv-court-explosion-man-dies-005422239.html)
+- Jul 06 - [Haberman talks Trump being more ‘reckless’ on his social media site](https://news.yahoo.com/haberman-talks-trump-being-more-014420633.html)
+- Jul 06 - [The Russian ruble just blew through its 'comfort zone' as the currency weakens in the aftermath of failed mutiny](https://finance.yahoo.com/news/russian-ruble-just-blew-comfort-005105070.html)
 - Jul 05 - [Subway faces backlash over ‘distasteful’ sign referencing Titan implosion](https://www.yahoo.com/lifestyle/subway-faces-backlash-over-distasteful-233042158.html)
 - Jul 05 - [In Trump case, Justice Dept. unseals previously blacked-out portions from search warrant application](https://news.yahoo.com/trump-case-justice-dept-unseals-231057695.html)
 - Jul 05 - [What the hell really happened to Rudy Farias? Four private investigators who worked the missing persons case say his mom lied to them for years](https://news.yahoo.com/hell-really-happened-rudy-farias-225609718.html)
-- Jul 05 - [Ken Jennings says he wants to become Wisconsin's governor after seeing what Tony Evers did today with his veto pen](https://news.yahoo.com/ken-jennings-says-wants-become-224714820.html)
 <!-- feed end -->
