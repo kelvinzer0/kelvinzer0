@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [The best early Prime Day deals for 2023](https://news.yahoo.com/amazon-prime-day-2023-early-access-deals-142948973.html)
+- Jul 07 - [Watch: Asian American student defends his stance against affirmative action in interview](https://news.yahoo.com/watch-asian-american-student-defends-154741472.html)
+- Jul 07 - [A first-class passenger told crew he would detonate a bomb unless the plane was diverted, later claiming that he thought cartel enforcers were waiting for him, authorities say](https://news.yahoo.com/first-class-passenger-told-crew-143428379.html)
 - Jul 07 - [Florida judge to murder suspect on run for 40 years: "You knew you were running from something."](https://news.yahoo.com/florida-judge-murder-suspect-run-141131598.html)
 - Jul 07 - [Kevin Costner’s Wife Christine May Forfeit ‘All Rights’ to a Payout by Challenging Their Prenup](https://www.yahoo.com/entertainment/kevin-costner-wife-christine-may-135400450.html)
-- Jul 07 - ['Go get your money': This man on TikTok went viral after revealing how to find — and claim — lost funds that your state owes you. Here's the step-by-step to access 'literally billions'](https://finance.yahoo.com/news/money-man-tiktok-went-viral-133000765.html)
 - Jul 07 - [Video shows a grey whale seeking help from humans to have parasites picked off its head](https://news.yahoo.com/video-shows-grey-whale-seeking-125950571.html)
 <!-- feed end -->
