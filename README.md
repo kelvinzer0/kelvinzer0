@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 07 - [Watch: Asian American student defends his stance against affirmative action in interview](https://news.yahoo.com/watch-asian-american-student-defends-154741472.html)
+- Jul 07 - [Harvard professor believes he's found fragments of alien technology](https://news.yahoo.com/harvard-professor-believes-hes-found-151359721.html)
+- Jul 07 - [Traffic jam starts forming at exit from occupied Crimea](https://news.yahoo.com/traffic-jam-starts-forming-exit-150718867.html)
 - Jul 07 - [A first-class passenger told crew he would detonate a bomb unless the plane was diverted, later claiming that he thought cartel enforcers were waiting for him, authorities say](https://news.yahoo.com/first-class-passenger-told-crew-143428379.html)
-- Jul 07 - [Florida judge to murder suspect on run for 40 years: "You knew you were running from something."](https://news.yahoo.com/florida-judge-murder-suspect-run-141131598.html)
-- Jul 07 - [Kevin Costner’s Wife Christine May Forfeit ‘All Rights’ to a Payout by Challenging Their Prenup](https://www.yahoo.com/entertainment/kevin-costner-wife-christine-may-135400450.html)
-- Jul 07 - [Video shows a grey whale seeking help from humans to have parasites picked off its head](https://news.yahoo.com/video-shows-grey-whale-seeking-125950571.html)
+- Jul 07 - [Voter confronts Mike Pence blaming him for Biden being elected. See his response](https://news.yahoo.com/pence-planning-visit-99-counties-141332661.html)
 <!-- feed end -->
