@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - [The best early Prime Day deals for 2023](https://news.yahoo.com/amazon-prime-day-2023-early-access-deals-142948973.html)
+- Jul 07 - [Florida judge to murder suspect on run for 40 years: "You knew you were running from something."](https://news.yahoo.com/florida-judge-murder-suspect-run-141131598.html)
+- Jul 07 - [Kevin Costner’s Wife Christine May Forfeit ‘All Rights’ to a Payout by Challenging Their Prenup](https://www.yahoo.com/entertainment/kevin-costner-wife-christine-may-135400450.html)
 - Jul 07 - ['Go get your money': This man on TikTok went viral after revealing how to find — and claim — lost funds that your state owes you. Here's the step-by-step to access 'literally billions'](https://finance.yahoo.com/news/money-man-tiktok-went-viral-133000765.html)
 - Jul 07 - [Video shows a grey whale seeking help from humans to have parasites picked off its head](https://news.yahoo.com/video-shows-grey-whale-seeking-125950571.html)
-- Jul 07 - [New photos released of teens accused of setting off fireworks inside Georgia Walmart](https://news.yahoo.com/photos-released-teens-accused-setting-123325349.html)
-- Jul 07 - [Mother arrested after viral video shows Georgia girl being dragged by her hair, deputies say](https://news.yahoo.com/mother-arrested-viral-video-shows-122319517.html)
-- Jul 07 - [There's an enormous gravity hole in the middle of the Indian Ocean. Scientists say they've finally worked out what's causing it.](https://news.yahoo.com/theres-enormous-gravity-hole-middle-101020016.html)
 <!-- feed end -->
