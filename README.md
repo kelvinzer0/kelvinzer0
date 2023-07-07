@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - ['First floor full of smoke' in Milan fire](https://news.yahoo.com/first-floor-full-smoke-milan-112740162.html)
+- Jul 07 - [Ron DeSantis bragged about sending help to Iowa — 10 hours after being told it wasn't needed](https://news.yahoo.com/ron-desantis-bragged-sending-help-110000929.html)
+- Jul 07 - [Key gun control measure in the crosshairs at US Supreme Court](https://news.yahoo.com/key-gun-control-measure-crosshairs-100055333.html)
+- Jul 07 - [Bears in Lake Tahoe have been trying to dig under homes and rip away their foundations. Experts say rat poison is to blame.](https://news.yahoo.com/bears-lake-tahoe-trying-dig-094823481.html)
 - Jul 07 - [Joe Biden Gets Big Laughs With Marjorie Taylor Greene Name-Check](https://news.yahoo.com/joe-biden-gets-big-laughs-074103428.html)
-- Jul 07 - [Desperate parents rushed to find their children at tea party shattered by tragedy](https://news.yahoo.com/desperate-parents-rushed-children-tea-211657476.html)
-- Jul 07 - ['Hell, Yeah!': Ex-DOJ Official Makes Short Work Of Trump's Big Defense Claim](https://news.yahoo.com/hell-yeah-ex-doj-official-065422790.html)
-- Jul 07 - [Florida suffers consequences of DeSantis political games with public health](https://news.yahoo.com/florida-suffers-consequences-desantis-political-041853782.html)
-- Jul 07 - [People Are Searching For Woman Who Has Meltdown & Gets Off Plane After Claiming To See A Man Who Was Not Real](https://news.yahoo.com/people-searching-woman-meltdown-gets-041500238.html)
 <!-- feed end -->
