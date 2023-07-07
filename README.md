@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [The overboard deaths of a 7-year-old boy and his mother show the most likely scenario when people fall off cruise ships](https://news.yahoo.com/overboard-deaths-7-old-boy-231503602.html)
+- Jul 06 - [Why the US is willing to send Ukraine cluster munitions now](https://news.yahoo.com/why-us-willing-send-ukraine-231115376.html)
 - Jul 06 - [Traveling to Florida? These out-of-state licenses may no longer be valid in the state](https://news.yahoo.com/traveling-florida-state-licenses-may-212623294.html)
 - Jul 06 - [Desperate parents rushed to find their children at tea party shattered by tragedy](https://news.yahoo.com/desperate-parents-rushed-children-tea-211657476.html)
-- Jul 06 - [Shake Shack founder, who once called tipping ‘one of the biggest hoaxes ever pulled,’ says there’s no obligation ‘whatsoever’ to do it for drive-thru anything](https://finance.yahoo.com/news/shake-shack-founder-once-called-191905134.html)
-- Jul 06 - [Cocaine found in the White House was in a different location than previously reported, sources say](https://news.yahoo.com/cocaine-found-white-house-different-190847028.html)
-- Jul 06 - [Rep. Marjorie Taylor Greene Booted From Right-Wing House Freedom Caucus](https://news.yahoo.com/rep-marjorie-taylor-greene-booted-183345371.html)
+- Jul 06 - [X-59 Supersonic Test Jet Looks Positively Sci-Fi Head-On](https://news.yahoo.com/x-59-supersonic-test-jet-205240684.html)
 <!-- feed end -->
