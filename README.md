@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - ['First floor full of smoke' in Milan fire](https://news.yahoo.com/first-floor-full-smoke-milan-112740162.html)
+- Jul 07 - [Case of Texas man reported missing 8 years ago was a hoax, police say](https://news.yahoo.com/case-texas-man-reported-missing-124216108.html)
 - Jul 07 - [Ron DeSantis bragged about sending help to Iowa — 10 hours after being told it wasn't needed](https://news.yahoo.com/ron-desantis-bragged-sending-help-110000929.html)
+- Jul 07 - [There's an enormous gravity hole in the middle of the Indian Ocean. Scientists say they've finally worked out what's causing it.](https://news.yahoo.com/theres-enormous-gravity-hole-middle-101020016.html)
 - Jul 07 - [Key gun control measure in the crosshairs at US Supreme Court](https://news.yahoo.com/key-gun-control-measure-crosshairs-100055333.html)
-- Jul 07 - [Bears in Lake Tahoe have been trying to dig under homes and rip away their foundations. Experts say rat poison is to blame.](https://news.yahoo.com/bears-lake-tahoe-trying-dig-094823481.html)
 - Jul 07 - [Joe Biden Gets Big Laughs With Marjorie Taylor Greene Name-Check](https://news.yahoo.com/joe-biden-gets-big-laughs-074103428.html)
 <!-- feed end -->
