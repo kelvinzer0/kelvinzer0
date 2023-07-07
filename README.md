@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - [Charlie Munger Says Hardships Faced In His Day Were 'Unbelievable,' But People Today Are Miserable, Despite Having it Easy — He Blames Envy](https://finance.yahoo.com/news/charlie-munger-says-hardships-faced-172713978.html)
+- Jul 07 - [China is preparing for war](https://news.yahoo.com/china-preparing-war-165703680.html)
 - Jul 07 - [Watch: Asian American student defends his stance against affirmative action in interview](https://news.yahoo.com/watch-asian-american-student-defends-154741472.html)
 - Jul 07 - [Harvard professor believes he's found fragments of alien technology](https://news.yahoo.com/harvard-professor-believes-hes-found-151359721.html)
-- Jul 07 - [Traffic jam starts forming at exit from occupied Crimea](https://news.yahoo.com/traffic-jam-starts-forming-exit-150718867.html)
 - Jul 07 - [A first-class passenger told crew he would detonate a bomb unless the plane was diverted, later claiming that he thought cartel enforcers were waiting for him, authorities say](https://news.yahoo.com/first-class-passenger-told-crew-143428379.html)
-- Jul 07 - [Voter confronts Mike Pence blaming him for Biden being elected. See his response](https://news.yahoo.com/pence-planning-visit-99-counties-141332661.html)
 <!-- feed end -->
