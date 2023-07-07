@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Case of Texas man reported missing 8 years ago was a hoax, police say](https://news.yahoo.com/case-texas-man-reported-missing-124216108.html)
-- Jul 07 - [Ron DeSantis bragged about sending help to Iowa — 10 hours after being told it wasn't needed](https://news.yahoo.com/ron-desantis-bragged-sending-help-110000929.html)
+- Jul 07 - ['Go get your money': This man on TikTok went viral after revealing how to find — and claim — lost funds that your state owes you. Here's the step-by-step to access 'literally billions'](https://finance.yahoo.com/news/money-man-tiktok-went-viral-133000765.html)
+- Jul 07 - [Video shows a grey whale seeking help from humans to have parasites picked off its head](https://news.yahoo.com/video-shows-grey-whale-seeking-125950571.html)
+- Jul 07 - [New photos released of teens accused of setting off fireworks inside Georgia Walmart](https://news.yahoo.com/photos-released-teens-accused-setting-123325349.html)
+- Jul 07 - [Mother arrested after viral video shows Georgia girl being dragged by her hair, deputies say](https://news.yahoo.com/mother-arrested-viral-video-shows-122319517.html)
 - Jul 07 - [There's an enormous gravity hole in the middle of the Indian Ocean. Scientists say they've finally worked out what's causing it.](https://news.yahoo.com/theres-enormous-gravity-hole-middle-101020016.html)
-- Jul 07 - [Key gun control measure in the crosshairs at US Supreme Court](https://news.yahoo.com/key-gun-control-measure-crosshairs-100055333.html)
-- Jul 07 - [Joe Biden Gets Big Laughs With Marjorie Taylor Greene Name-Check](https://news.yahoo.com/joe-biden-gets-big-laughs-074103428.html)
 <!-- feed end -->
