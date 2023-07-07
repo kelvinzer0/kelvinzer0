@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - [5 charged in sexual abuse cases among Jehovah's Witnesses](https://news.yahoo.com/5-charged-sexual-abuse-cases-175412217.html)
+- Jul 07 - [A New Jersey woman bought a rustic private island in Maine not fit for 'man or beast' in winter, and Stephen King says it's worthy of a novel](https://news.yahoo.com/jersey-woman-bought-rustic-private-130323144.html)
+- Jul 07 - [Florida Snake Hunter Bags 16-Foot Burmese Python Loaded with 60 Eggs](https://www.yahoo.com/lifestyle/florida-snake-hunter-bags-16-174026928.html)
+- Jul 07 - [Trump claims he'll declassify all of the JFK-related assassination records if he's reelected. He said the same thing in 2016, but ended up siding with the CIA and FBI to keep the documents secret.](https://news.yahoo.com/trump-claims-hell-declassify-jfk-173616197.html)
 - Jul 07 - [Charlie Munger Says Hardships Faced In His Day Were 'Unbelievable,' But People Today Are Miserable, Despite Having it Easy — He Blames Envy](https://finance.yahoo.com/news/charlie-munger-says-hardships-faced-172713978.html)
-- Jul 07 - [China is preparing for war](https://news.yahoo.com/china-preparing-war-165703680.html)
-- Jul 07 - [Watch: Asian American student defends his stance against affirmative action in interview](https://news.yahoo.com/watch-asian-american-student-defends-154741472.html)
-- Jul 07 - [Harvard professor believes he's found fragments of alien technology](https://news.yahoo.com/harvard-professor-believes-hes-found-151359721.html)
-- Jul 07 - [A first-class passenger told crew he would detonate a bomb unless the plane was diverted, later claiming that he thought cartel enforcers were waiting for him, authorities say](https://news.yahoo.com/first-class-passenger-told-crew-143428379.html)
 <!-- feed end -->
