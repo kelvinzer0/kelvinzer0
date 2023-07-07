@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Disciplinary panel calls for Rudy Giuliani’s disbarment](https://news.yahoo.com/disciplinary-panel-calls-rudy-giuliani-181620562.html)
-- Jul 07 - [Watch Six AK-74s Strapped Together As A Ukrainian Anti-Drone Gun In Action](https://news.yahoo.com/watch-six-ak-74s-strapped-175734072.html)
-- Jul 07 - [A New Jersey woman bought a rustic private island in Maine not fit for 'man or beast' in winter, and Stephen King says it's worthy of a novel](https://news.yahoo.com/jersey-woman-bought-rustic-private-130323144.html)
-- Jul 07 - [Florida Snake Hunter Bags 16-Foot Burmese Python Loaded with 60 Eggs](https://www.yahoo.com/lifestyle/florida-snake-hunter-bags-16-174026928.html)
-- Jul 07 - [Trump claims he'll declassify all of the JFK-related assassination records if he's reelected. He said the same thing in 2016, but ended up siding with the CIA and FBI to keep the documents secret.](https://news.yahoo.com/trump-claims-hell-declassify-jfk-173616197.html)
+- Jul 07 - [Ninety life sentences for Texas Walmart shooter](https://news.yahoo.com/ninety-life-sentences-texas-walmart-213350280.html)
+- Jul 07 - [An Afghan man who spent years helping US forces in Afghanistan is shot and killed in Washington](https://news.yahoo.com/afghan-man-spent-years-helping-212245041.html)
+- Jul 07 - [They locked their 8-year-old boy in a dark room for months. Now a judge locks them up](https://news.yahoo.com/locked-8-old-boy-dark-210312349.html)
+- Jul 07 - [Marjorie Taylor Greene doubles down on feud with Lauren Boebert after ouster from Freedom Caucus](https://news.yahoo.com/marjorie-taylor-greene-doubles-down-203700328.html)
+- Jul 07 - [People have turned the infamous viral plane incident involving a woman accusing a passenger of being 'not real' into a meme](https://www.yahoo.com/entertainment/people-turned-infamous-viral-plane-194604122.html)
 <!-- feed end -->
