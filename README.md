@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Wendy Rogers retweeted X-rated video of Hunter Biden. Classy](https://news.yahoo.com/wendy-rogers-retweeted-x-rated-130123775.html)
-- Jul 08 - [Frustrated homeowner reaches breaking point over their neighbor’s neglected property: ‘Last summer we couldn’t go outside’](https://news.yahoo.com/frustrated-homeowner-reaches-breaking-point-123000195.html)
-- Jul 08 - [The One Thing That Should Scare Trump At A Debate: The Man He Nearly Killed With COVID](https://news.yahoo.com/one-thing-scare-trump-debate-120720045.html)
-- Jul 08 - [Smoking gun: Trump's big mouth keeps getting him in trouble](https://news.yahoo.com/smoking-gun-trumps-big-mouth-120002070.html)
-- Jul 08 - [NATO flexes muscle to protect Vilnius summit near Russia, Belarus](https://news.yahoo.com/nato-flexes-muscle-protect-vilnius-094241310.html)
+- Jul 08 - [China is preparing for war](https://news.yahoo.com/china-preparing-war-165703680.html)
+- Jul 08 - [Ukraine's Zelenskiy brings home Azovstal commanders released to Turkey](https://news.yahoo.com/ukraines-zelenskiy-brings-home-azovstal-153155892.html)
+- Jul 08 - [A Vermont police officer, aged 19, died in a crash with a burglary suspect she was chasing](https://news.yahoo.com/vermont-police-officer-aged-19-152812588.html)
+- Jul 08 - [Norway's new phosphate deposits are so massive they could guarantee solar power and electric cars keep running for the next 50 years](https://news.yahoo.com/norways-phosphate-deposits-massive-could-145532463.html)
+- Jul 08 - [Anti-LGBT protesters break up Pride festival in Georgia](https://uk.news.yahoo.com/anti-lgbt-protesters-break-pride-143556642.html)
 <!-- feed end -->
