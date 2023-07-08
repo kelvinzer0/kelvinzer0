@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 08 - [Jim Cramer predicts an ‘economic wave’ will soon hit the US — and it'll be 'fantastic for investors.' But is Cramer's call a good or bad sign for the stock market?](https://finance.yahoo.com/news/jim-cramer-just-predicted-economic-150000859.html)
 - Jul 08 - [UK intelligence describes critical situation of Russian Federation in Bakhmut](https://news.yahoo.com/uk-intelligence-describes-critical-situation-062730012.html)
 - Jul 08 - [Twitter Users Roast Trump's Awkward 'Markers' Mix-Up At Iowa Rally](https://news.yahoo.com/twitter-users-roast-trumps-awkward-062309493.html)
 - Jul 08 - [Apparent coup attempt Vladimir Putin faced may have never ended](https://news.yahoo.com/apparent-coup-attempt-vladimir-putin-032115667.html)
 - Jul 08 - [Fox News press pool report contradicts claim Biden family wasn't at White House ahead of cocaine discovery](https://news.yahoo.com/fox-news-press-pool-report-025309254.html)
-- Jul 08 - [Leslie Van Houten, follower of cult leader Charles Manson, is one big step closer to freedom](https://news.yahoo.com/leslie-van-houten-follower-cult-001520462.html)
 <!-- feed end -->
