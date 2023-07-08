@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 08 - [Apparent coup attempt Vladimir Putin faced may have never ended](https://news.yahoo.com/apparent-coup-attempt-vladimir-putin-032115667.html)
+- Jul 08 - [Fox News press pool report contradicts claim Biden family wasn't at White House ahead of cocaine discovery](https://news.yahoo.com/fox-news-press-pool-report-025309254.html)
 - Jul 08 - [Leslie Van Houten, follower of cult leader Charles Manson, is one big step closer to freedom](https://news.yahoo.com/leslie-van-houten-follower-cult-001520462.html)
 - Jul 07 - [Maryland Democratic Rep. Jamie Raskin says he's not running for open US Senate seat](https://news.yahoo.com/maryland-democratic-rep-jamie-raskin-234832317.html)
 - Jul 07 - [2 men arrested in Texas shooting that killed 3 and injured 8 at a gathering after a July 4 festival](https://news.yahoo.com/2-men-arrested-shooting-killed-220525629.html)
-- Jul 07 - [An Afghan man who spent years helping US forces in Afghanistan is shot and killed in Washington](https://news.yahoo.com/afghan-man-spent-years-helping-212245041.html)
-- Jul 07 - [They locked their 8-year-old boy in a dark room for months. Now a judge locks them up](https://news.yahoo.com/locked-8-old-boy-dark-210312349.html)
 <!-- feed end -->
