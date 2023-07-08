@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 08 - [Wendy Rogers retweeted X-rated video of Hunter Biden. Classy](https://news.yahoo.com/wendy-rogers-retweeted-x-rated-130123775.html)
 - Jul 08 - [The One Thing That Should Scare Trump At A Debate: The Man He Nearly Killed With COVID](https://news.yahoo.com/one-thing-scare-trump-debate-120720045.html)
 - Jul 08 - [Smoking gun: Trump's big mouth keeps getting him in trouble](https://news.yahoo.com/smoking-gun-trumps-big-mouth-120002070.html)
 - Jul 08 - [NATO flexes muscle to protect Vilnius summit near Russia, Belarus](https://news.yahoo.com/nato-flexes-muscle-protect-vilnius-094241310.html)
 - Jul 08 - [UK intelligence describes critical situation of Russian Federation in Bakhmut](https://news.yahoo.com/uk-intelligence-describes-critical-situation-062730012.html)
-- Jul 08 - [Twitter Users Roast Trump's Awkward 'Markers' Mix-Up At Iowa Rally](https://news.yahoo.com/twitter-users-roast-trumps-awkward-062309493.html)
 <!-- feed end -->
