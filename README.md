@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 08 - [Influencer who lost 20 pounds in 1 month says it’s dangerous to compliment people’s bodies. Experts agree.](https://www.yahoo.com/lifestyle/commenting-on-weight-loss-dangerous-why-brooke-schofield-204336467.html)
 - Jul 08 - [An AI robot gave a side-eye and dodged the question when asked whether it would rebel against its human creator](https://news.yahoo.com/ai-robot-gave-side-eye-200703987.html)
+- Jul 08 - [Special needs teacher fired after school district discovered OnlyFans account denies 'egregious' conduct](https://news.yahoo.com/special-needs-teacher-fired-school-195007317.html)
 - Jul 08 - [Putin Cheated by Erdogan RIGHT After Announcing Turkey Trip](https://news.yahoo.com/putin-cheated-erdogan-announcing-turkey-192928467.html)
 - Jul 08 - [Here’s what the turnout at this small town Trump rally says about the presidential race](https://news.yahoo.com/turnout-small-town-trump-rally-164005213.html)
-- Jul 08 - [Nurse fired for secret affair with patient who died during sex in hospital parking lot](https://news.yahoo.com/nurse-fired-secret-affair-patient-174424348.html)
-- Jul 08 - [Trump has been privately grumbling about Iowa Gov. Kim Reynolds, who has made appearances with Ron DeSantis while publicly remaining neutral in the GOP presidential primary, report says](https://news.yahoo.com/trump-privately-grumbling-iowa-gov-173535910.html)
 <!-- feed end -->
