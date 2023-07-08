@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 08 - [Leslie Van Houten, follower of cult leader Charles Manson, is one big step closer to freedom](https://news.yahoo.com/leslie-van-houten-follower-cult-001520462.html)
 - Jul 07 - [Maryland Democratic Rep. Jamie Raskin says he's not running for open US Senate seat](https://news.yahoo.com/maryland-democratic-rep-jamie-raskin-234832317.html)
-- Jul 07 - [Girl found in Camp Pendleton barracks was raped by Marine, family alleges](https://news.yahoo.com/girl-found-camp-pendleton-barracks-233533122.html)
 - Jul 07 - [2 men arrested in Texas shooting that killed 3 and injured 8 at a gathering after a July 4 festival](https://news.yahoo.com/2-men-arrested-shooting-killed-220525629.html)
-- Jul 07 - [Canadian Hiker Brings Shotgun to National Park, Shoots Black Bear Because He Was "Scared"](https://www.yahoo.com/lifestyle/canadian-hiker-brings-shotgun-national-220257160.html)
+- Jul 07 - [An Afghan man who spent years helping US forces in Afghanistan is shot and killed in Washington](https://news.yahoo.com/afghan-man-spent-years-helping-212245041.html)
+- Jul 07 - [They locked their 8-year-old boy in a dark room for months. Now a judge locks them up](https://news.yahoo.com/locked-8-old-boy-dark-210312349.html)
 <!-- feed end -->
