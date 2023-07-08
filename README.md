@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 08 - [Here’s what the turnout at this small town Trump rally says about the presidential race](https://news.yahoo.com/turnout-small-town-trump-rally-164005213.html)
 - Jul 08 - [China is preparing for war](https://news.yahoo.com/china-preparing-war-165703680.html)
+- Jul 08 - [Six people are dead after a plane crashes and catches fire in Southern California, officials say](https://news.yahoo.com/six-people-dead-plane-field-160028423.html)
 - Jul 08 - [They lied about Afghanistan. They lied about Iraq. Now they're lying about Ukraine](https://news.yahoo.com/lied-afghanistan-lied-iraq-now-160001611.html)
 - Jul 08 - [Ukraine's Zelenskiy brings home Azovstal commanders released to Turkey](https://news.yahoo.com/ukraines-zelenskiy-brings-home-azovstal-153155892.html)
-- Jul 08 - [A Vermont police officer, aged 19, died in a crash with a burglary suspect she was chasing](https://news.yahoo.com/vermont-police-officer-aged-19-152812588.html)
-- Jul 08 - [Anti-LGBT protesters break up Pride festival in Georgia](https://uk.news.yahoo.com/anti-lgbt-protesters-break-pride-143556642.html)
 <!-- feed end -->
