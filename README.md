@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [The best early Prime Day deals for 2023](https://news.yahoo.com/amazon-prime-day-2023-early-access-deals-142948973.html)
+- Jul 09 - ['Easiest way to replace your income': Finance YouTuber says this is how much you need to live off dividends — forever. He even shows his portfolio that generates $10K a month](https://finance.yahoo.com/news/easiest-way-replace-income-finance-130000912.html)
 - Jul 09 - ['It makes an enormous difference': Warren Buffett revealed the simple 'trick' to earning a fat retirement nest egg — here's what it is and how to pull it off](https://finance.yahoo.com/news/makes-enormous-difference-warren-buffett-120000311.html)
 - Jul 09 - [Pope Francis puts stamp on Church future with new cardinals](https://news.yahoo.com/pope-francis-announces-cardinals-103739349.html)
 - Jul 09 - [Trump would send his 'good-looking' daughter Ivanka to business deals because he thought 'all men want to sleep with her,' Michael Cohen claims](https://news.yahoo.com/trump-send-good-looking-daughter-102422555.html)
