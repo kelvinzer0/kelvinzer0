@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Bud Light Controversy Drags In a New Victim](https://www.thestreet.com/restaurants/bud-light-controversy-drags-in-a-new-victim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jul 09 - [Investigation Uncovers More of Clarence Thomas’ Undisclosed Freebies from Wealthy Pals](https://news.yahoo.com/investigation-uncovers-more-clarence-thomas-160506992.html)
+- Jul 09 - [DeSantis, Florida officials announce invalid driver’s licenses after immigration law](https://news.yahoo.com/desantis-florida-officials-announce-invalid-154101298.html)
+- Jul 09 - [Trump says he can end war in 24 hours; Zelenskyy says Biden could in 5 minutes: Ukraine live updates](https://news.yahoo.com/putins-overwhelming-objective-break-nato-152951615.html)
 - Jul 09 - [The FDA is being asked to look into Logan Paul's energy drink, which has the caffeine of 6 Coke cans](https://news.yahoo.com/fda-being-asked-look-logan-152658937.html)
-- Jul 09 - [Scientists discover ‘overlooked’ natural solution to some of the world’s biggest air pollution problems](https://news.yahoo.com/scientists-discover-overlooked-natural-solution-150000888.html)
-- Jul 09 - [Christie calls estimates of Trump rally crowd size ‘absurd’](https://news.yahoo.com/christie-calls-estimates-trump-rally-145807888.html)
-- Jul 09 - [Toyota’s newest breakthrough could be the ‘kiss of death’ for gas-powered cars — and could hit the market as early as 2027](https://news.yahoo.com/toyota-newest-breakthrough-could-kiss-130000193.html)
 <!-- feed end -->
