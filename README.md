@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [The best early Prime Day deals for 2023](https://news.yahoo.com/amazon-prime-day-2023-early-access-deals-142948973.html)
+- Jul 09 - ['It makes an enormous difference': Warren Buffett revealed the simple 'trick' to earning a fat retirement nest egg — here's what it is and how to pull it off](https://finance.yahoo.com/news/makes-enormous-difference-warren-buffett-120000311.html)
+- Jul 09 - [Pope Francis puts stamp on Church future with new cardinals](https://news.yahoo.com/pope-francis-announces-cardinals-103739349.html)
 - Jul 09 - [Trump would send his 'good-looking' daughter Ivanka to business deals because he thought 'all men want to sleep with her,' Michael Cohen claims](https://news.yahoo.com/trump-send-good-looking-daughter-102422555.html)
 - Jul 09 - [Trump Questions Whether Ocean Could 'Someday' Reach Las Vegas In Wild Clip](https://news.yahoo.com/trump-questions-whether-ocean-could-063036283.html)
-- Jul 09 - [Deputies accused a Texas sheriff of corruption and dysfunction. Then came the mass shooting](https://news.yahoo.com/deputies-accused-texas-sheriff-corruption-042633354.html)
-- Jul 09 - [We now know why the Mayor of South Fulton was arrested Saturday](https://news.yahoo.com/know-f-am-south-fulton-025936092.html)
-- Jul 09 - [Bob Huggins tries to walk back resignation from West Virginia, school denies demand for reinstatement](https://sports.yahoo.com/bob-huggins-tries-to-walk-back-resignation-from-west-virginia-school-denies-demand-for-reinstatement-025216776.html)
 <!-- feed end -->
