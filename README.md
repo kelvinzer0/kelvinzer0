@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Influencer who lost 20 pounds in 1 month says it’s dangerous to compliment people’s bodies. Experts agree.](https://www.yahoo.com/lifestyle/commenting-on-weight-loss-dangerous-why-brooke-schofield-204336467.html)
-- Jul 08 - [An AI robot gave a side-eye and dodged the question when asked whether it would rebel against its human creator](https://news.yahoo.com/ai-robot-gave-side-eye-200703987.html)
+- Jul 09 - [German Steamship Wreck May Hold Looted Treasures From Russian Palace](https://www.yahoo.com/lifestyle/german-steamship-wreck-may-hold-000000323.html)
+- Jul 08 - [Former mafia boss says he tried to do deals with former President Trump in the 1980's](https://news.yahoo.com/former-mafia-boss-says-tried-231038474.html)
+- Jul 08 - ['Do not go to law school': This fund manager warns the legal field is in 'big trouble' — as folks are using ChatGPT for complex contracts. Is it time to get into trades?](https://finance.yahoo.com/news/not-law-school-fund-manager-121500002.html)
 - Jul 08 - [Special needs teacher fired after school district discovered OnlyFans account denies 'egregious' conduct](https://news.yahoo.com/special-needs-teacher-fired-school-195007317.html)
 - Jul 08 - [Putin Cheated by Erdogan RIGHT After Announcing Turkey Trip](https://news.yahoo.com/putin-cheated-erdogan-announcing-turkey-192928467.html)
-- Jul 08 - [Here’s what the turnout at this small town Trump rally says about the presidential race](https://news.yahoo.com/turnout-small-town-trump-rally-164005213.html)
 <!-- feed end -->
