@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Couple pulls over for frantic mama duck and completes heartwarming rescue, TikTok shows](https://news.yahoo.com/couple-pulls-over-frantic-mama-212207337.html)
+- Jul 09 - [One of Donald Trump's Most Devoted Lawyers Just Traded In Her Role for ‘The Privilege of a Lifetime’](https://www.yahoo.com/entertainment/one-donald-trumps-most-devoted-205200181.html)
+- Jul 09 - [Ex-priest sentenced to 25 years for drugging and molesting men he met in New Orleans tourist area](https://news.yahoo.com/ex-priest-sentenced-25-years-194020888.html)
 - Jul 09 - [Infamous ‘cocaine hippos’ are running rampant and breeding like rabbits: ‘The state must act urgently’](https://news.yahoo.com/infamous-cocaine-hippos-running-rampant-190000518.html)
-- Jul 09 - [‘He Kicked Me in My Balls.’ Fight at Michigan GOP Meeting Turns Physical: Report](https://news.yahoo.com/kicked-balls-fight-michigan-gop-183553613.html)
-- Jul 09 - [Netanyahu: Israel to work to prevent collapse of Palestinian Authority](https://news.yahoo.com/netanyahu-israel-prevent-collapse-palestinian-172300308.html)
-- Jul 09 - [Bud Light Controversy Drags In a New Victim](https://www.thestreet.com/restaurants/bud-light-controversy-drags-in-a-new-victim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jul 09 - [Wagner Group leader and ex-convict Prigozhin has lost the respect of Russian prisoners who now think he's a 'traitor,' activist says](https://news.yahoo.com/wagner-group-leader-ex-convict-165136277.html)
+- Jul 09 - [Dem governor in deep blue state faces chorus of boos at concert as singer tries to hush them up](https://news.yahoo.com/dem-governor-deep-blue-state-185418744.html)
 <!-- feed end -->
