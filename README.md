@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Trump Questions Whether Ocean Could 'Someday' Reach Las Vegas In Wild Clip](https://news.yahoo.com/trump-questions-whether-ocean-could-063036283.html)
 - Jul 09 - [Deputies accused a Texas sheriff of corruption and dysfunction. Then came the mass shooting](https://news.yahoo.com/deputies-accused-texas-sheriff-corruption-042633354.html)
-- Jul 09 - [‘Do you know who the f*** I am?’ South Fulton mayor charged after trespassing at ‘dream home’](https://news.yahoo.com/know-f-am-south-fulton-025936092.html)
+- Jul 09 - [Mayor of South Fulton released from jail after trespassing at ‘dream home’](https://news.yahoo.com/know-f-am-south-fulton-025936092.html)
 - Jul 09 - [Bob Huggins tries to walk back resignation from West Virginia, school denies demand for reinstatement](https://sports.yahoo.com/bob-huggins-tries-to-walk-back-resignation-from-west-virginia-school-denies-demand-for-reinstatement-025216776.html)
 - Jul 09 - [Russia said it was blindsided by Turkey after Zelenskyy left the country with formerly imprisoned Azov battalion members](https://news.yahoo.com/russia-said-blindsided-turkey-zelenskyy-023016487.html)
-- Jul 09 - [A married woman searched YouTube to find a route into India to be with a lover she met on a popular video game: 'She was not impressed by his work, but by his PUBG skills,' police said](https://news.yahoo.com/married-woman-searched-youtube-route-020344430.html)
 <!-- feed end -->
