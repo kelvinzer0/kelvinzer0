@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Captured Ukrainian Commanders Return Home From Turkey, Angering Russia](https://finance.yahoo.com/video/captured-ukrainian-commanders-return-home-154000342.html)
+- Jul 09 - [The FDA is being asked to look into Logan Paul's energy drink, which has the caffeine of 6 Coke cans](https://news.yahoo.com/fda-being-asked-look-logan-152658937.html)
+- Jul 09 - [Christie calls estimates of Trump rally crowd size ‘absurd’](https://news.yahoo.com/christie-calls-estimates-trump-rally-145807888.html)
 - Jul 09 - [Toyota’s newest breakthrough could be the ‘kiss of death’ for gas-powered cars — and could hit the market as early as 2027](https://news.yahoo.com/toyota-newest-breakthrough-could-kiss-130000193.html)
 - Jul 09 - ['Easiest way to replace your income': Finance YouTuber says this is how much you need to live off dividends — forever. He even shows his portfolio that generates $10K a month](https://finance.yahoo.com/news/easiest-way-replace-income-finance-130000912.html)
-- Jul 09 - ['It makes an enormous difference': Warren Buffett revealed the simple 'trick' to earning a fat retirement nest egg — here's what it is and how to pull it off](https://finance.yahoo.com/news/makes-enormous-difference-warren-buffett-120000311.html)
-- Jul 09 - [Religious right gets blindsided by angry parents in a Southern California school district](https://news.yahoo.com/culture-clash-religious-makes-move-110000450.html)
-- Jul 09 - [Pope Francis puts stamp on Church future with new cardinals](https://news.yahoo.com/pope-francis-announces-cardinals-103739349.html)
 <!-- feed end -->
