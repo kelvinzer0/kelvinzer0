@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Toyota’s newest breakthrough could be the ‘kiss of death’ for gas-powered cars — and could hit the market as early as 2027](https://news.yahoo.com/toyota-newest-breakthrough-could-kiss-130000193.html)
 - Jul 09 - ['Easiest way to replace your income': Finance YouTuber says this is how much you need to live off dividends — forever. He even shows his portfolio that generates $10K a month](https://finance.yahoo.com/news/easiest-way-replace-income-finance-130000912.html)
 - Jul 09 - ['It makes an enormous difference': Warren Buffett revealed the simple 'trick' to earning a fat retirement nest egg — here's what it is and how to pull it off](https://finance.yahoo.com/news/makes-enormous-difference-warren-buffett-120000311.html)
+- Jul 09 - [Religious right gets blindsided by angry parents in a Southern California school district](https://news.yahoo.com/culture-clash-religious-makes-move-110000450.html)
 - Jul 09 - [Pope Francis puts stamp on Church future with new cardinals](https://news.yahoo.com/pope-francis-announces-cardinals-103739349.html)
-- Jul 09 - [Trump would send his 'good-looking' daughter Ivanka to business deals because he thought 'all men want to sleep with her,' Michael Cohen claims](https://news.yahoo.com/trump-send-good-looking-daughter-102422555.html)
-- Jul 09 - [Trump Questions Whether Ocean Could 'Someday' Reach Las Vegas In Wild Clip](https://news.yahoo.com/trump-questions-whether-ocean-could-063036283.html)
 <!-- feed end -->
