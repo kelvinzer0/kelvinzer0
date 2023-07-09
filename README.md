@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 09 - [Bob Huggins tries to walk back resignation from West Virginia, school denies demand for reinstatement](https://sports.yahoo.com/bob-huggins-tries-to-walk-back-resignation-from-west-virginia-school-denies-demand-for-reinstatement-025216776.html)
+- Jul 09 - [Russia said it was blindsided by Turkey after Zelenskyy left the country with formerly imprisoned Azov battalion members](https://news.yahoo.com/russia-said-blindsided-turkey-zelenskyy-023016487.html)
 - Jul 09 - [A married woman searched YouTube to find a route into India to be with a lover she met on a popular video game: 'She was not impressed by his work, but by his PUBG skills,' police said](https://news.yahoo.com/married-woman-searched-youtube-route-020344430.html)
 - Jul 09 - [German Steamship Wreck May Hold Looted Treasures From Russian Palace](https://www.yahoo.com/lifestyle/german-steamship-wreck-may-hold-000000323.html)
 - Jul 08 - [Former mafia boss says he tried to do deals with former President Trump in the 1980's](https://news.yahoo.com/former-mafia-boss-says-tried-231038474.html)
-- Jul 08 - [Putin Cheated by Erdogan RIGHT After Announcing Turkey Trip](https://news.yahoo.com/putin-cheated-erdogan-announcing-turkey-192928467.html)
 <!-- feed end -->
