@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Captured Ukrainian Commanders Return Home From Turkey, Angering Russia](https://finance.yahoo.com/video/captured-ukrainian-commanders-return-home-154000342.html)
+- Jul 09 - [Investigation Uncovers More of Clarence Thomas’ Undisclosed Freebies from Wealthy Pals](https://news.yahoo.com/investigation-uncovers-more-clarence-thomas-160506992.html)
 - Jul 09 - [The FDA is being asked to look into Logan Paul's energy drink, which has the caffeine of 6 Coke cans](https://news.yahoo.com/fda-being-asked-look-logan-152658937.html)
+- Jul 09 - [Scientists discover ‘overlooked’ natural solution to some of the world’s biggest air pollution problems](https://news.yahoo.com/scientists-discover-overlooked-natural-solution-150000888.html)
 - Jul 09 - [Christie calls estimates of Trump rally crowd size ‘absurd’](https://news.yahoo.com/christie-calls-estimates-trump-rally-145807888.html)
 - Jul 09 - [Toyota’s newest breakthrough could be the ‘kiss of death’ for gas-powered cars — and could hit the market as early as 2027](https://news.yahoo.com/toyota-newest-breakthrough-could-kiss-130000193.html)
-- Jul 09 - ['Easiest way to replace your income': Finance YouTuber says this is how much you need to live off dividends — forever. He even shows his portfolio that generates $10K a month](https://finance.yahoo.com/news/easiest-way-replace-income-finance-130000912.html)
 <!-- feed end -->
