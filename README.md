@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Infamous ‘cocaine hippos’ are running rampant and breeding like rabbits: ‘The state must act urgently’](https://news.yahoo.com/infamous-cocaine-hippos-running-rampant-190000518.html)
 - Jul 09 - [‘He Kicked Me in My Balls.’ Fight at Michigan GOP Meeting Turns Physical: Report](https://news.yahoo.com/kicked-balls-fight-michigan-gop-183553613.html)
 - Jul 09 - [Netanyahu: Israel to work to prevent collapse of Palestinian Authority](https://news.yahoo.com/netanyahu-israel-prevent-collapse-palestinian-172300308.html)
 - Jul 09 - [Bud Light Controversy Drags In a New Victim](https://www.thestreet.com/restaurants/bud-light-controversy-drags-in-a-new-victim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jul 09 - [Wagner Group leader and ex-convict Prigozhin has lost the respect of Russian prisoners who now think he's a 'traitor,' activist says](https://news.yahoo.com/wagner-group-leader-ex-convict-165136277.html)
-- Jul 09 - [Russian, Turkish ministers talk after Turkey sends Ukrainian commanders home](https://news.yahoo.com/russian-turkish-ministers-talk-turkey-161449870.html)
 <!-- feed end -->
