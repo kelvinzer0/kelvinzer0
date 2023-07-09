@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Couple pulls over for frantic mama duck and completes heartwarming rescue, TikTok shows](https://news.yahoo.com/couple-pulls-over-frantic-mama-212207337.html)
+- Jul 09 - [Marine taken into custody after missing 14-year-old girl is found in barracks of California base](https://news.yahoo.com/marine-taken-custody-missing-14-212042025.html)
 - Jul 09 - [One of Donald Trump's Most Devoted Lawyers Just Traded In Her Role for ‘The Privilege of a Lifetime’](https://www.yahoo.com/entertainment/one-donald-trumps-most-devoted-205200181.html)
+- Jul 09 - [Hard-living Kim Jong Un earns unflattering nickname over massive appetite for European booze, food: expert](https://news.yahoo.com/hard-living-kim-jong-un-202224775.html)
 - Jul 09 - [Ex-priest sentenced to 25 years for drugging and molesting men he met in New Orleans tourist area](https://news.yahoo.com/ex-priest-sentenced-25-years-194020888.html)
 - Jul 09 - [Infamous ‘cocaine hippos’ are running rampant and breeding like rabbits: ‘The state must act urgently’](https://news.yahoo.com/infamous-cocaine-hippos-running-rampant-190000518.html)
-- Jul 09 - [Dem governor in deep blue state faces chorus of boos at concert as singer tries to hush them up](https://news.yahoo.com/dem-governor-deep-blue-state-185418744.html)
 <!-- feed end -->
