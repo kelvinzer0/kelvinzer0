@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Videos of unconscious boys' rapes found on phone left at restaurant, police say](https://news.yahoo.com/videos-unconscious-boys-rapes-found-011937206.html)
 - Jul 10 - [Russia said it was blindsided by Turkey after Zelenskyy left the country with formerly imprisoned Azov battalion members](https://news.yahoo.com/russia-said-blindsided-turkey-zelenskyy-023016487.html)
 - Jul 10 - [MSNBC Panel Declares Casey DeSantis ‘America’s Karen’](https://www.yahoo.com/entertainment/msnbc-panel-declares-casey-desantis-001116908.html)
 - Jul 10 - [Stephenson resigns from PGA Tour board over 'serious concerns' about Saudi deal, according to report](https://news.yahoo.com/stephenson-resigns-pga-tour-board-000746439.html)
 - Jul 09 - [Roy Herron, longtime Tennessee Democratic lawmaker, dies after injuries from jet ski accident](https://news.yahoo.com/roy-herron-longtime-tennessee-democratic-235314651.html)
-- Jul 09 - [Biden lets American military info slip during live interview, sparking backlash](https://news.yahoo.com/biden-lets-american-military-slip-221819296.html)
 <!-- feed end -->
