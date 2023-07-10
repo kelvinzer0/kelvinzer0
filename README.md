@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Ferrari F8 Disintegrates After Smashing Into Wall Leaving Cars & Coffee](https://news.yahoo.com/ferrari-f8-disintegrates-smashing-wall-133100783.html)
 - Jul 10 - [Disgraced sports doctor Larry Nassar stabbed multiple times at Florida federal prison: AP sources](https://news.yahoo.com/disgraced-sports-doctor-larry-nassar-122317728.html)
 - Jul 10 - [‘Not living their life to impress others’: These are the top car brands that rich Americans earning more than $200K drive most — here's why you should steer toward them too](https://finance.yahoo.com/news/not-living-life-impress-others-140000227.html)
+- Jul 10 - [Scientists make shocking discovery that provides hope for one of the world’s most endangered species: ‘Encouraging news’](https://news.yahoo.com/scientists-shocking-discovery-provides-hope-113000690.html)
 - Jul 10 - [College students develop solar-powered car that literally ‘eats’ air pollution as it drives: ‘We pulled it off’](https://news.yahoo.com/college-students-develop-solar-powered-111500785.html)
-- Jul 10 - [Alligators in the garden and a community living in fear of the next fatal attack](https://news.yahoo.com/alligator-attack-victim-never-anything-110848501.html)
-- Jul 10 - [‘Quit saving your money’: Financial guru Grant Cardone says only 1 thing will bring you real wealth — and it's not your job or being cheap. Here's what it is and how to do it](https://finance.yahoo.com/news/quit-saving-money-financial-guru-143000488.html)
 <!-- feed end -->
