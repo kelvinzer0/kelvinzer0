@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Kremlin says mercenary chief Prigozhin met Putin after rebellion](https://finance.yahoo.com/news/kremlin-says-mercenary-chief-prigozhin-101502954.html)
-- Jul 10 - [Erdogan says Turkey could approve Sweden's NATO membership if Europeans 'open way' to Turkey EU bid](https://news.yahoo.com/swedish-foreign-minister-optimistic-turkey-094243300.html)
-- Jul 10 - [Chris Christie Spills The Reason For 'Absurd' Trump Crowd Size Claims](https://news.yahoo.com/chris-christie-spills-reason-absurd-090005795.html)
-- Jul 10 - [Shocking videos and photos show how flash floods turned some New York streets into murky waterways overnight](https://news.yahoo.com/shocking-videos-photos-show-flash-083449863.html)
-- Jul 10 - [Ex-GOP Lawmaker Torches 'America's Karen' Casey DeSantis Over 'Losing' Doctrine](https://news.yahoo.com/ex-gop-lawmaker-torches-americas-083414852.html)
+- Jul 10 - [Thousands Left Without Electricity in Oklahoma as Storm Downs Power Lines](https://news.yahoo.com/thousands-left-without-electricity-oklahoma-120501204.html)
+- Jul 10 - [Alligators in the garden and a community living in fear of the next fatal attack](https://news.yahoo.com/alligator-attack-victim-never-anything-110848501.html)
+- Jul 10 - [‘Quit saving your money’: Financial guru Grant Cardone says only 1 thing will bring you real wealth — and it's not your job or being cheap. Here's what it is and how to do it](https://finance.yahoo.com/news/quit-saving-money-financial-guru-143000488.html)
+- Jul 10 - [Russia is failing to look after its injured soldiers, with around half of deaths preventable and military hospitals likely being reserved for officers, UK intel says](https://news.yahoo.com/russia-failing-look-injured-soldiers-105149507.html)
+- Jul 10 - [A 56-year-old ice climber with 'superhuman' lungs was climbing the highest peaks in Europe. She was diagnosed with early-stage lung cancer during a routine screening.](https://www.yahoo.com/lifestyle/56-old-ice-climber-superhuman-104600901.html)
 <!-- feed end -->
