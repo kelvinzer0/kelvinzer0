@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Bud Light sales dropped 28% in June](https://finance.yahoo.com/video/bud-light-sales-dropped-28-213015885.html)
+- Jul 10 - [Bud Light Plummets To 14th Place Among Beers As Anheuser-Busch CEO Pleads For Consumers To Think Of The 65,000 Employees Impacted By Boycotts](https://finance.yahoo.com/news/bud-light-plummets-14th-place-210130892.html)
+- Jul 10 - [Texas governor names second interim attorney general ahead of Ken Paxton's impeachment trial](https://news.yahoo.com/texas-governor-names-second-interim-205535945.html)
 - Jul 10 - [Florida in hot water as ocean temperatures rise along with the humidity](https://news.yahoo.com/florida-hot-water-ocean-temperatures-203137888.html)
 - Jul 10 - [Jack White Slams ‘Disgusting’ Mark Wahlberg, Mel Gibson and More for Interacting With ‘Fascist, Racist, Piece of S—‘ Donald Trump](https://www.yahoo.com/entertainment/jack-white-slams-disgusting-mark-195125688.html)
-- Jul 10 - [‘Cocky Idiot’: Wagner’s Men Spill Messy Secrets of Russian Mutiny](https://news.yahoo.com/cocky-idiot-wagner-men-spill-194045410.html)
-- Jul 10 - [U.S. attorney contradicts GOP and IRS whistleblower claims in Hunter Biden case](https://news.yahoo.com/u-attorney-contradicts-gop-irs-184040033.html)
-- Jul 10 - [The world's most powerful militaries in 2023, ranked](https://news.yahoo.com/worlds-most-powerful-militaries-2023-110100781.html)
 <!-- feed end -->
