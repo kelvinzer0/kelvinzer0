@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Ex-Federal Prosecutor Flags 'Interesting' Discovery In Trump Search Warrant](https://news.yahoo.com/ex-federal-prosecutor-flags-interesting-143511422.html)
-- Jul 10 - [Multiple people have died after attempting 'boat jumping' challenge on TikTok](https://news.yahoo.com/multiple-people-died-attempting-boat-142247259.html)
-- Jul 10 - [Ferrari F8 Disintegrates After Smashing Into Wall Leaving Cars & Coffee](https://news.yahoo.com/ferrari-f8-disintegrates-smashing-wall-133100783.html)
-- Jul 10 - [Disgraced sports doctor Larry Nassar stabbed multiple times at Florida federal prison: AP sources](https://news.yahoo.com/disgraced-sports-doctor-larry-nassar-122317728.html)
-- Jul 10 - [Biden reportedly fumes and spews curses at staff in private: ‘No one is safe’](https://news.yahoo.com/biden-reportedly-fumes-spews-curses-115409567.html)
+- Jul 10 - [King Charles Loved President Biden’s Breach of Royal Protocol](https://news.yahoo.com/king-charles-loved-president-biden-153209301.html)
+- Jul 10 - [Ruling expected Tuesday in runner Caster Semenya's human rights appeal against sex eligibility rules](https://news.yahoo.com/ruling-expected-tuesday-runner-caster-152511697.html)
+- Jul 10 - [CNN’s Tapper: Trump has ‘knocked everybody in the news media off’](https://news.yahoo.com/cnn-tapper-trump-knocked-everybody-150745787.html)
+- Jul 10 - [A Navy reservist hired to evaluate OceanGate's sub said the risks outlined by company were 'sincere warnings,' but added he wouldn't be afraid to go down to the Titanic on the sub himself](https://news.yahoo.com/navy-reservist-hired-evaluate-oceangates-150539317.html)
+- Jul 10 - [North Korean leader's powerful sister says warplanes repelled US spy plane](https://news.yahoo.com/north-korean-leaders-powerful-sister-150101695.html)
 <!-- feed end -->
