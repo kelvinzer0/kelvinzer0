@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Scientists warn against the 'poor scientific practices' of assuming all ancient societies were male-led after an 'ivory man' is found to be an 'ivory woman'](https://news.yahoo.com/scientists-warn-against-poor-scientific-031549037.html)
+- Jul 10 - [Las Vegas police officer set to go on trial over $165k stolen in 3 casino heists](https://news.yahoo.com/las-vegas-police-officer-set-041246525.html)
 - Jul 10 - [Videos of unconscious boys' rapes found on phone left at restaurant, police say](https://news.yahoo.com/videos-unconscious-boys-rapes-found-011937206.html)
 - Jul 10 - [Russia said it was blindsided by Turkey after Zelenskyy left the country with formerly imprisoned Azov battalion members](https://news.yahoo.com/russia-said-blindsided-turkey-zelenskyy-023016487.html)
 - Jul 10 - [MSNBC Panel Declares Casey DeSantis ‘America’s Karen’](https://www.yahoo.com/entertainment/msnbc-panel-declares-casey-desantis-001116908.html)
