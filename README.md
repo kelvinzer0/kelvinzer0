@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [The best early Prime Day deals for 2023](https://news.yahoo.com/the-best-prime-day-2023-early-amazon-deals-130503691.html)
+- Jul 10 - [‘Cocky Idiot’: Wagner’s Men Spill Messy Secrets of Russian Mutiny](https://news.yahoo.com/cocky-idiot-wagner-men-spill-194045410.html)
+- Jul 10 - [The world's most powerful militaries in 2023, ranked](https://news.yahoo.com/worlds-most-powerful-militaries-2023-110100781.html)
 - Jul 10 - [If The Plan Is Not To Be President In 2024, Then Joe Biden Is Doing A Great Job](https://news.yahoo.com/plan-not-president-2024-then-174045914.html)
 - Jul 10 - [Donald Trump Might Not Like One of the Republican Party Debate Rules Because It Would Force Him to Play Nice With Others](https://www.yahoo.com/entertainment/donald-trump-might-not-one-171948364.html)
 - Jul 10 - [Alien planet with metallic clouds resembles 'a giant mirror in space'](https://news.yahoo.com/alien-planet-metallic-clouds-resembles-171519890.html)
-- Jul 10 - [Hunter Biden prosecutor says Justice Dept didn't interfere in probe](https://news.yahoo.com/hunter-biden-prosecutor-says-justice-163824280.html)
 <!-- feed end -->
