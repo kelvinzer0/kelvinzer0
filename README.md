@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Ex-Federal Prosecutor Flags 'Interesting' Discovery In Trump Search Warrant](https://news.yahoo.com/ex-federal-prosecutor-flags-interesting-143511422.html)
+- Jul 10 - [Multiple people have died after attempting 'boat jumping' challenge on TikTok](https://news.yahoo.com/multiple-people-died-attempting-boat-142247259.html)
 - Jul 10 - [Ferrari F8 Disintegrates After Smashing Into Wall Leaving Cars & Coffee](https://news.yahoo.com/ferrari-f8-disintegrates-smashing-wall-133100783.html)
 - Jul 10 - [Disgraced sports doctor Larry Nassar stabbed multiple times at Florida federal prison: AP sources](https://news.yahoo.com/disgraced-sports-doctor-larry-nassar-122317728.html)
-- Jul 10 - [‘Not living their life to impress others’: These are the top car brands that rich Americans earning more than $200K drive most — here's why you should steer toward them too](https://finance.yahoo.com/news/not-living-life-impress-others-140000227.html)
-- Jul 10 - [Scientists make shocking discovery that provides hope for one of the world’s most endangered species: ‘Encouraging news’](https://news.yahoo.com/scientists-shocking-discovery-provides-hope-113000690.html)
-- Jul 10 - [College students develop solar-powered car that literally ‘eats’ air pollution as it drives: ‘We pulled it off’](https://news.yahoo.com/college-students-develop-solar-powered-111500785.html)
+- Jul 10 - [Biden reportedly fumes and spews curses at staff in private: ‘No one is safe’](https://news.yahoo.com/biden-reportedly-fumes-spews-curses-115409567.html)
 <!-- feed end -->
