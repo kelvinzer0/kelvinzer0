@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Factbox-General Gerasimov, Russia's top soldier, appears for first time since Wagner mutiny](https://news.yahoo.com/factbox-general-gerasimov-russias-top-064938819.html)
 - Jul 10 - [Gavin Newsom Dismantles Republican Governors In Less Than 1 Minute](https://news.yahoo.com/gavin-newsom-dismantles-republican-governors-052725824.html)
 - Jul 10 - [Dad Praised For Telling 12-Year-Old Daughter To Change Out Of Crop Top Before She Leaves The House](https://news.yahoo.com/dad-praised-telling-12-old-051500418.html)
 - Jul 10 - [Las Vegas police officer set to go on trial over $165k stolen in 3 casino heists](https://news.yahoo.com/las-vegas-police-officer-set-041246525.html)
 - Jul 10 - [Videos of unconscious boys' rapes found on phone left at restaurant, police say](https://news.yahoo.com/videos-unconscious-boys-rapes-found-011937206.html)
-- Jul 10 - [Russia said it was blindsided by Turkey after Zelenskyy left the country with formerly imprisoned Azov battalion members](https://news.yahoo.com/russia-said-blindsided-turkey-zelenskyy-023016487.html)
 <!-- feed end -->
