@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Marine taken into custody after missing 14-year-old girl is found in barracks of California base](https://news.yahoo.com/marine-taken-custody-missing-14-212042025.html)
-- Jul 09 - [One of Donald Trump's Most Devoted Lawyers Just Traded In Her Role for ‘The Privilege of a Lifetime’](https://www.yahoo.com/entertainment/one-donald-trumps-most-devoted-205200181.html)
-- Jul 09 - [Hard-living Kim Jong Un earns unflattering nickname over massive appetite for European booze, food: expert](https://news.yahoo.com/hard-living-kim-jong-un-202224775.html)
-- Jul 09 - [Ex-priest sentenced to 25 years for drugging and molesting men he met in New Orleans tourist area](https://news.yahoo.com/ex-priest-sentenced-25-years-194020888.html)
-- Jul 09 - [Infamous ‘cocaine hippos’ are running rampant and breeding like rabbits: ‘The state must act urgently’](https://news.yahoo.com/infamous-cocaine-hippos-running-rampant-190000518.html)
+- Jul 10 - [Russia said it was blindsided by Turkey after Zelenskyy left the country with formerly imprisoned Azov battalion members](https://news.yahoo.com/russia-said-blindsided-turkey-zelenskyy-023016487.html)
+- Jul 10 - [MSNBC Panel Declares Casey DeSantis ‘America’s Karen’](https://www.yahoo.com/entertainment/msnbc-panel-declares-casey-desantis-001116908.html)
+- Jul 10 - [Stephenson resigns from PGA Tour board over 'serious concerns' about Saudi deal, according to report](https://news.yahoo.com/stephenson-resigns-pga-tour-board-000746439.html)
+- Jul 09 - [Roy Herron, longtime Tennessee Democratic lawmaker, dies after injuries from jet ski accident](https://news.yahoo.com/roy-herron-longtime-tennessee-democratic-235314651.html)
+- Jul 09 - [Biden lets American military info slip during live interview, sparking backlash](https://news.yahoo.com/biden-lets-american-military-slip-221819296.html)
 <!-- feed end -->
