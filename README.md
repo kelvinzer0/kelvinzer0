@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [This iconic Apple MacBook Air is down to its lowest price ever for Prime Day — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
+- Jul 10 - [The best early Prime Day deals for 2023](https://news.yahoo.com/the-best-prime-day-2023-early-amazon-deals-130503691.html)
 - Jul 10 - [If The Plan Is Not To Be President In 2024, Then Joe Biden Is Doing A Great Job](https://news.yahoo.com/plan-not-president-2024-then-174045914.html)
-- Jul 10 - [Bear Walks Toward Hikers at Montana's Glacier National Park](https://news.yahoo.com/bear-walks-toward-hikers-montanas-171624152.html)
-- Jul 10 - [Louisiana woman cited for shorts, crop top, sees resolution from city one year later](https://www.yahoo.com/lifestyle/louisiana-woman-cited-shorts-crop-160023745.html)
-- Jul 10 - [King Charles Loved President Biden’s Breach of Royal Protocol](https://news.yahoo.com/king-charles-loved-president-biden-153209301.html)
+- Jul 10 - [Donald Trump Might Not Like One of the Republican Party Debate Rules Because It Would Force Him to Play Nice With Others](https://www.yahoo.com/entertainment/donald-trump-might-not-one-171948364.html)
+- Jul 10 - [Alien planet with metallic clouds resembles 'a giant mirror in space'](https://news.yahoo.com/alien-planet-metallic-clouds-resembles-171519890.html)
+- Jul 10 - [Hunter Biden prosecutor says Justice Dept didn't interfere in probe](https://news.yahoo.com/hunter-biden-prosecutor-says-justice-163824280.html)
 <!-- feed end -->
