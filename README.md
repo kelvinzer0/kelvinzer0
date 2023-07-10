@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Powerball, Mega Millions jackpots: What to do if you win](https://finance.yahoo.com/video/powerball-mega-millions-jackpots-unclaimed-164140847.html)
+- Jul 10 - [Hunter Biden prosecutor says Justice Dept didn't interfere in probe](https://news.yahoo.com/hunter-biden-prosecutor-says-justice-163824280.html)
+- Jul 10 - [Louisiana woman cited for shorts, crop top, sees resolution from city one year later](https://www.yahoo.com/lifestyle/louisiana-woman-cited-shorts-crop-160023745.html)
 - Jul 10 - [King Charles Loved President Biden’s Breach of Royal Protocol](https://news.yahoo.com/king-charles-loved-president-biden-153209301.html)
-- Jul 10 - [Ruling expected Tuesday in runner Caster Semenya's human rights appeal against sex eligibility rules](https://news.yahoo.com/ruling-expected-tuesday-runner-caster-152511697.html)
-- Jul 10 - [CNN’s Tapper: Trump has ‘knocked everybody in the news media off’](https://news.yahoo.com/cnn-tapper-trump-knocked-everybody-150745787.html)
-- Jul 10 - [A Navy reservist hired to evaluate OceanGate's sub said the risks outlined by company were 'sincere warnings,' but added he wouldn't be afraid to go down to the Titanic on the sub himself](https://news.yahoo.com/navy-reservist-hired-evaluate-oceangates-150539317.html)
-- Jul 10 - [North Korean leader's powerful sister says warplanes repelled US spy plane](https://news.yahoo.com/north-korean-leaders-powerful-sister-150101695.html)
+- Jul 10 - [Social Security: You Get No SSI Check in July — Here’s Why](https://finance.yahoo.com/news/social-security-no-ssi-check-153155424.html)
 <!-- feed end -->
