@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Thousands Left Without Electricity in Oklahoma as Storm Downs Power Lines](https://news.yahoo.com/thousands-left-without-electricity-oklahoma-120501204.html)
+- Jul 10 - [Disgraced sports doctor Larry Nassar stabbed multiple times at Florida federal prison: AP sources](https://news.yahoo.com/disgraced-sports-doctor-larry-nassar-122317728.html)
+- Jul 10 - [‘Not living their life to impress others’: These are the top car brands that rich Americans earning more than $200K drive most — here's why you should steer toward them too](https://finance.yahoo.com/news/not-living-life-impress-others-140000227.html)
+- Jul 10 - [College students develop solar-powered car that literally ‘eats’ air pollution as it drives: ‘We pulled it off’](https://news.yahoo.com/college-students-develop-solar-powered-111500785.html)
 - Jul 10 - [Alligators in the garden and a community living in fear of the next fatal attack](https://news.yahoo.com/alligator-attack-victim-never-anything-110848501.html)
 - Jul 10 - [‘Quit saving your money’: Financial guru Grant Cardone says only 1 thing will bring you real wealth — and it's not your job or being cheap. Here's what it is and how to do it](https://finance.yahoo.com/news/quit-saving-money-financial-guru-143000488.html)
-- Jul 10 - [Russia is failing to look after its injured soldiers, with around half of deaths preventable and military hospitals likely being reserved for officers, UK intel says](https://news.yahoo.com/russia-failing-look-injured-soldiers-105149507.html)
-- Jul 10 - [A 56-year-old ice climber with 'superhuman' lungs was climbing the highest peaks in Europe. She was diagnosed with early-stage lung cancer during a routine screening.](https://www.yahoo.com/lifestyle/56-old-ice-climber-superhuman-104600901.html)
 <!-- feed end -->
