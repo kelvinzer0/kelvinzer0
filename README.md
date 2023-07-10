@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Factbox-General Gerasimov, Russia's top soldier, appears for first time since Wagner mutiny](https://news.yahoo.com/factbox-general-gerasimov-russias-top-064938819.html)
+- Jul 10 - [Chris Christie Spills The Reason For 'Absurd' Trump Crowd Size Claims](https://news.yahoo.com/chris-christie-spills-reason-absurd-090005795.html)
 - Jul 10 - [Gavin Newsom Dismantles Republican Governors In Less Than 1 Minute](https://news.yahoo.com/gavin-newsom-dismantles-republican-governors-052725824.html)
 - Jul 10 - [Dad Praised For Telling 12-Year-Old Daughter To Change Out Of Crop Top Before She Leaves The House](https://news.yahoo.com/dad-praised-telling-12-old-051500418.html)
 - Jul 10 - [Las Vegas police officer set to go on trial over $165k stolen in 3 casino heists](https://news.yahoo.com/las-vegas-police-officer-set-041246525.html)
