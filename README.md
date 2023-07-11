@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [Saudi Arabia sends Pakistan $2 billion in financial support](https://news.yahoo.com/saudi-arabia-deposits-2-billion-070516733.html)
+- Jul 11 - [Trump Just Trashed A Key 2024 Swing State As 'Disgraceful' In Wild New Rant](https://news.yahoo.com/trump-just-trashed-key-2024-070102453.html)
+- Jul 11 - [A popular Tennessee soccer coach left his phone at a restaurant. Police say they discovered videos on the device of him allegedly raping unconscious boys](https://news.yahoo.com/popular-tennessee-soccer-coach-left-210705857.html)
 - Jul 11 - [Fox News regular who accused Hunter Biden of having nefarious ties to China is now being charged with having nefarious ties to China](https://news.yahoo.com/fox-news-regular-accused-hunter-053250389.html)
-- Jul 11 - [China's foreign minister, not seen in weeks, to miss ASEAN](https://news.yahoo.com/wang-yi-represent-china-asean-043223472.html)
-- Jul 11 - [Tommy Tuberville Tells Kaitlan Collins It’s Just ‘Some People’s Opinion’ That White Nationalists Are Racist (Video)](https://www.yahoo.com/entertainment/tommy-tuberville-tells-kaitlan-collins-031309515.html)
-- Jul 11 - [A map showing the Titan debris field in relation to the Titanic shipwreck was partially created by one of the sub's victims, Paul-Henri Nargeolet](https://news.yahoo.com/map-showing-titan-debris-field-030943057.html)
-- Jul 11 - [‘It’s pretty clear’ they ‘know exactly’ whose cocaine it was: Monica Crowley](https://news.yahoo.com/pretty-clear-know-exactly-whose-013004416.html)
+- Jul 11 - [China's foreign minister to miss ASEAN meeting for health reason](https://news.yahoo.com/wang-yi-represent-china-asean-043223472.html)
 <!-- feed end -->
