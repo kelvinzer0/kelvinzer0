@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [A grand jury being seated Tuesday could decide whether Trump is charged over Georgia's 2020 election](https://news.yahoo.com/grand-jury-being-seated-tuesday-040506484.html)
+- Jul 11 - [China's foreign minister to miss ASEAN meet, deepening mystery over whereabouts](https://news.yahoo.com/wang-yi-represent-china-asean-043223472.html)
 - Jul 11 - [Tommy Tuberville Tells Kaitlan Collins It’s Just ‘Some People’s Opinion’ That White Nationalists Are Racist (Video)](https://www.yahoo.com/entertainment/tommy-tuberville-tells-kaitlan-collins-031309515.html)
 - Jul 11 - [A map showing the Titan debris field in relation to the Titanic shipwreck was partially created by one of the sub's victims, Paul-Henri Nargeolet](https://news.yahoo.com/map-showing-titan-debris-field-030943057.html)
 - Jul 11 - [Republican’s ‘Whistleblower’ Charged as Unregistered Foreign Agent](https://news.yahoo.com/republican-whistleblower-charged-unregistered-foreign-002909908.html)
