@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Israeli authorities evict Palestinian family from Jerusalem home after decades-long legal battle](https://news.yahoo.com/israeli-authorities-evict-palestinian-family-094123011.html)
-- Jul 11 - [Protests erupt hours after Israel reform clause voted through](https://news.yahoo.com/protests-erupt-hours-israel-reform-090758203.html)
+- Jul 11 - [The best Amazon Prime Day Apple Watch and smartwatch deals for 2023](https://news.yahoo.com/apple-watch-amazon-prime-day-deals-165228101.html)
+- Jul 11 - [Republican women learn the hard way: Complicity will not protect you](https://news.yahoo.com/republican-women-learn-hard-way-100512571.html)
+- Jul 11 - [Exclusive-Most patients using weight-loss drugs like Wegovy stop within a year, data show](https://news.yahoo.com/exclusive-most-patients-using-weight-100228827.html)
+- Jul 11 - [Debris from homes washes away in Vermont floods](https://news.yahoo.com/debris-homes-washes-away-vermont-100124069.html)
 - Jul 11 - [Mike Lindell Selling Off MyPillow Equipment: They ‘Did Cancel Culture On Us’](https://news.yahoo.com/mike-lindell-selling-off-mypillow-083653179.html)
-- Jul 11 - [A wildlife filmmaker who documents whales says orcas likely aren't attacking boats to eat people, since they can feast on swimmers if they want](https://news.yahoo.com/wildlife-filmmaker-documents-whales-says-083541978.html)
-- Jul 11 - [Rapper Lil Nas X reported to be among among scooter-riding tourists stopped in Oslo tunnel](https://news.yahoo.com/rapper-lil-nas-x-reported-080958295.html)
 <!-- feed end -->
