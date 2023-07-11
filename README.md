@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [The best Amazon Prime Day Apple Watch and smartwatch deals for 2023](https://news.yahoo.com/apple-watch-amazon-prime-day-deals-165228101.html)
-- Jul 11 - [Sweden’s giant-killer military is built for one thing: fighting Russia](https://news.yahoo.com/sweden-giant-killer-military-built-152110001.html)
-- Jul 11 - [Microsoft can move ahead with record $69 billion acquisition of Activision Blizzard, judge rules](https://news.yahoo.com/judge-declines-block-microsofts-record-151921522.html)
-- Jul 11 - [Bank of America to pay more than $100M for illegally charging junk fees, opening fake accounts](https://finance.yahoo.com/video/bank-america-pay-more-100m-151842905.html)
-- Jul 11 - [Judge overseeing Trump documents case agrees to push first pretrial conference](https://news.yahoo.com/judge-overseeing-trump-documents-case-150314655.html)
+- Jul 11 - [The best Amazon Prime Day deals for 2023](https://news.yahoo.com/the-best-amazon-prime-day-deals-for-2023-120012352.html)
+- Jul 11 - [The iconic Apple MacBook Air just hit a record low price for Prime Day — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
+- Jul 11 - [Big Country Star Calls For a New Bud-Light-Style Boycott](https://www.thestreet.com/restaurants/big-country-star-calls-for-a-new-bud-light-style-boycott?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jul 11 - [Sen. Tommy Tuberville, a former college football coach with no military experience himself, said 'There is nobody more military than me'](https://news.yahoo.com/sen-tommy-tuberville-former-college-155031916.html)
+- Jul 11 - [A popular Tennessee soccer coach left his phone at a restaurant. Police say they discovered videos on the device of him allegedly raping unconscious boys](https://news.yahoo.com/popular-tennessee-soccer-coach-left-210705857.html)
 <!-- feed end -->
