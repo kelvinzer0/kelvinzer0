@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [A grand jury being seated Tuesday could decide whether Trump is charged over Georgia's 2020 election](https://news.yahoo.com/grand-jury-being-seated-tuesday-040506484.html)
+- Jul 11 - [Tommy Tuberville Tells Kaitlan Collins It’s Just ‘Some People’s Opinion’ That White Nationalists Are Racist (Video)](https://www.yahoo.com/entertainment/tommy-tuberville-tells-kaitlan-collins-031309515.html)
+- Jul 11 - [A map showing the Titan debris field in relation to the Titanic shipwreck was partially created by one of the sub's victims, Paul-Henri Nargeolet](https://news.yahoo.com/map-showing-titan-debris-field-030943057.html)
 - Jul 11 - [Republican’s ‘Whistleblower’ Charged as Unregistered Foreign Agent](https://news.yahoo.com/republican-whistleblower-charged-unregistered-foreign-002909908.html)
 - Jul 11 - [Female soldiers in Ukraine are wearing 'huge' uniforms and suffering yeast infections due to a lack of women's resources on the frontlines: report](https://news.yahoo.com/female-soldiers-ukraine-wearing-huge-002436168.html)
-- Jul 11 - [This Boss Feels So Entitled To Employees' Time That She Thinks Going Out On A Saturday Night Is "Unprofessional"](https://www.yahoo.com/lifestyle/persons-boss-told-them-highly-000027235.html)
-- Jul 10 - [A woman accused of burning a Wyoming abortion clinic has reached a plea agreement with prosecutors](https://news.yahoo.com/woman-accused-burning-wyoming-abortion-231926674.html)
-- Jul 10 - [Special counsel Jack Smith says Trump aide is proposing an 'unnecessary' delay by trying to push a Friday hearing without any replacement date](https://news.yahoo.com/special-counsel-jack-smith-says-214914177.html)
 <!-- feed end -->
