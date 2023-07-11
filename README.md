@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 11 - [The best Amazon Prime Day Apple Watch and smartwatch deals for 2023](https://news.yahoo.com/apple-watch-amazon-prime-day-deals-165228101.html)
-- Jul 11 - [Ex-UConn football player Dennis Hernandez ordered re-arrested on brick-throwing charges at ESPN](https://news.yahoo.com/ex-uconn-football-player-dennis-140648304.html)
-- Jul 11 - [Here's how much you need to retire among the top 10% of Americans — are you tracking nicely?](https://finance.yahoo.com/news/heres-much-retire-among-top-133000058.html)
-- Jul 11 - [Unused corner of NYC building becomes $2,300/month apartment: ‘Glorified dungeon apartment’](https://news.yahoo.com/unused-corner-nyc-building-becomes-132858655.html)
-- Jul 11 - [Owner bans some LGBTQ customers from Michigan hair salon over pronouns. ‘Not welcome’](https://news.yahoo.com/owner-bans-lgbtq-customers-michigan-132749068.html)
+- Jul 11 - [Sweden’s giant-killer military is built for one thing: fighting Russia](https://news.yahoo.com/sweden-giant-killer-military-built-152110001.html)
+- Jul 11 - [Microsoft can move ahead with record $69 billion acquisition of Activision Blizzard, judge rules](https://news.yahoo.com/judge-declines-block-microsofts-record-151921522.html)
+- Jul 11 - [Bank of America to pay more than $100M for illegally charging junk fees, opening fake accounts](https://finance.yahoo.com/video/bank-america-pay-more-100m-151842905.html)
+- Jul 11 - [Judge overseeing Trump documents case agrees to push first pretrial conference](https://news.yahoo.com/judge-overseeing-trump-documents-case-150314655.html)
 <!-- feed end -->
