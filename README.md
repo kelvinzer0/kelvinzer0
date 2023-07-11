@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [MSNBC’s Joe Scarborough Mocks Marjorie Taylor Greene With Iconic Sitcom Moment](https://news.yahoo.com/msnbc-joe-scarborough-mocks-marjorie-083958616.html)
-- Jul 11 - [Watch: Overpass in Bangkok Collapses, Killing at Least Two People](https://finance.yahoo.com/video/watch-overpass-bangkok-collapses-killing-082400274.html)
-- Jul 11 - [Ukraine's Defence Intelligence confirms assassination of Russian commander involved in attacks on Ukraine: No witnesses to murder](https://news.yahoo.com/ukraines-defence-intelligence-confirms-assassination-071700151.html)
-- Jul 11 - [Pakistan receives $2 billion in Saudi financial support - Finance Minister](https://news.yahoo.com/saudi-arabia-deposits-2-billion-070516733.html)
-- Jul 11 - [Trump Just Trashed A Key 2024 Swing State As 'Disgraceful' In Wild New Rant](https://news.yahoo.com/trump-just-trashed-key-2024-070102453.html)
+- Jul 11 - [Israeli authorities evict Palestinian family from Jerusalem home after decades-long legal battle](https://news.yahoo.com/israeli-authorities-evict-palestinian-family-094123011.html)
+- Jul 11 - [Protests erupt hours after Israel reform clause voted through](https://news.yahoo.com/protests-erupt-hours-israel-reform-090758203.html)
+- Jul 11 - [Mike Lindell Selling Off MyPillow Equipment: They ‘Did Cancel Culture On Us’](https://news.yahoo.com/mike-lindell-selling-off-mypillow-083653179.html)
+- Jul 11 - [A wildlife filmmaker who documents whales says orcas likely aren't attacking boats to eat people, since they can feast on swimmers if they want](https://news.yahoo.com/wildlife-filmmaker-documents-whales-says-083541978.html)
+- Jul 11 - [Rapper Lil Nas X reported to be among among scooter-riding tourists stopped in Oslo tunnel](https://news.yahoo.com/rapper-lil-nas-x-reported-080958295.html)
 <!-- feed end -->
