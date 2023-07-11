@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [The best Amazon Prime Day Apple Watch and smartwatch deals for 2023](https://news.yahoo.com/apple-watch-amazon-prime-day-deals-165228101.html)
+- Jul 11 - [Suspect in Tylenol poisonings that killed 7 dies](https://news.yahoo.com/suspect-tylenol-poisonings-killed-7-181029900.html)
+- Jul 11 - [Photos that offer a glimpse of what life is like for workers in notoriously isolated North Korea](https://news.yahoo.com/photos-offer-glimpse-life-workers-154729562.html)
+- Jul 11 - [Texas Police Fined A Puerto Rican Man After Wrongly Claiming He Lacked A Valid Driver's License](https://news.yahoo.com/texas-police-fined-puerto-rican-171226731.html)
 - Jul 11 - [Billionaire Charlie Munger's Advice: 'It's A B***h, But You Gotta Do It. Find A Way To Get Your Hands On $100,000' – Why Earning Your First $100,000 Is Key If You Want To Be Rich](https://finance.yahoo.com/news/billionaire-charlie-mungers-advice-b-170634832.html)
 - Jul 11 - [California man paralyzed from run-in with police gets $20 million settlement](https://news.yahoo.com/california-man-paralyzed-run-police-170056248.html)
-- Jul 11 - [Rain causes ‘catastrophic and historic’ flooding in Vermont](https://news.yahoo.com/rain-causes-catastrophic-historic-flooding-165324752.html)
-- Jul 11 - [Big Country Star Calls For a New Bud-Light-Style Boycott](https://www.thestreet.com/restaurants/big-country-star-calls-for-a-new-bud-light-style-boycott?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
