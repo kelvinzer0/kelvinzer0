@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [This iconic Apple MacBook Air is down to its lowest price ever for Prime Day — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
+- Jul 11 - [The best Amazon Prime Day Apple Watch and smartwatch deals for 2023](https://news.yahoo.com/apple-watch-amazon-prime-day-deals-165228101.html)
+- Jul 11 - [Ex-UConn football player Dennis Hernandez ordered re-arrested on brick-throwing charges at ESPN](https://news.yahoo.com/ex-uconn-football-player-dennis-140648304.html)
 - Jul 11 - [Here's how much you need to retire among the top 10% of Americans — are you tracking nicely?](https://finance.yahoo.com/news/heres-much-retire-among-top-133000058.html)
-- Jul 11 - [Video Shows Nude Man Shocking Vegas Casino Patrons, Cops Say Suspect ‘Flaunted His Genitals’](https://www.yahoo.com/entertainment/video-shows-nude-man-shocking-123814584.html)
-- Jul 11 - [A woman with $192K in student debt asked Dave Ramsey how to afford being a stay-at-home mom on just her husband's $33K salary](https://news.yahoo.com/woman-192k-student-debt-asked-122124579.html)
-- Jul 11 - [Pregnant python found in Everglades with stunning number of eggs, grisly photo shows](https://news.yahoo.com/pregnant-python-found-everglades-stunning-115547304.html)
+- Jul 11 - [Unused corner of NYC building becomes $2,300/month apartment: ‘Glorified dungeon apartment’](https://news.yahoo.com/unused-corner-nyc-building-becomes-132858655.html)
+- Jul 11 - [Owner bans some LGBTQ customers from Michigan hair salon over pronouns. ‘Not welcome’](https://news.yahoo.com/owner-bans-lgbtq-customers-michigan-132749068.html)
 <!-- feed end -->
