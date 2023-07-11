@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Saudi Arabia sends Pakistan $2 billion in financial support](https://news.yahoo.com/saudi-arabia-deposits-2-billion-070516733.html)
+- Jul 11 - [MSNBC’s Joe Scarborough Mocks Marjorie Taylor Greene With Iconic Sitcom Moment](https://news.yahoo.com/msnbc-joe-scarborough-mocks-marjorie-083958616.html)
+- Jul 11 - [Watch: Overpass in Bangkok Collapses, Killing at Least Two People](https://finance.yahoo.com/video/watch-overpass-bangkok-collapses-killing-082400274.html)
+- Jul 11 - [Ukraine's Defence Intelligence confirms assassination of Russian commander involved in attacks on Ukraine: No witnesses to murder](https://news.yahoo.com/ukraines-defence-intelligence-confirms-assassination-071700151.html)
+- Jul 11 - [Pakistan receives $2 billion in Saudi financial support - Finance Minister](https://news.yahoo.com/saudi-arabia-deposits-2-billion-070516733.html)
 - Jul 11 - [Trump Just Trashed A Key 2024 Swing State As 'Disgraceful' In Wild New Rant](https://news.yahoo.com/trump-just-trashed-key-2024-070102453.html)
-- Jul 11 - [A popular Tennessee soccer coach left his phone at a restaurant. Police say they discovered videos on the device of him allegedly raping unconscious boys](https://news.yahoo.com/popular-tennessee-soccer-coach-left-210705857.html)
-- Jul 11 - [Fox News regular who accused Hunter Biden of having nefarious ties to China is now being charged with having nefarious ties to China](https://news.yahoo.com/fox-news-regular-accused-hunter-053250389.html)
-- Jul 11 - [China's foreign minister to miss ASEAN meeting for health reason](https://news.yahoo.com/wang-yi-represent-china-asean-043223472.html)
 <!-- feed end -->
