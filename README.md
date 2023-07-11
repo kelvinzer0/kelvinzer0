@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [China's economic downturn is more shocking than outsiders realize, says former Chinese property mogul](https://finance.yahoo.com/news/chinas-economic-downturn-more-shocking-224041332.html)
 - Jul 11 - [Donald Trump Must Face E. Jean Carroll Defamation Suit as DOJ Reverses Course](https://news.yahoo.com/donald-trump-must-face-e-202833738.html)
 - Jul 11 - [Archeologists search for child graves at former Native American boarding school](https://news.yahoo.com/archeologists-search-child-graves-former-215337916.html)
-- Jul 11 - [The best Amazon Prime Day Apple Watch and smartwatch deals for 2023](https://news.yahoo.com/apple-watch-amazon-prime-day-deals-165228101.html)
+- Jul 11 - [House GOP report claims FBI violated Americans' civil liberties](https://news.yahoo.com/house-gop-report-claims-fbi-violated-americans-civil-liberties-204509693.html)
 - Jul 11 - [I Asked AI What Europeans Think Americans From Every Single State Look Like And The Results Are Just Plain Mean](https://www.yahoo.com/lifestyle/asked-ai-europeans-think-americans-201700212.html)
-- Jul 11 - [Video: Man on the run for 30 years for murder gives emotional goodbye to wife during arrest](https://news.yahoo.com/video-man-run-30-years-200833470.html)
 <!-- feed end -->
