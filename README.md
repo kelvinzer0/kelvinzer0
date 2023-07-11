@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 11 - [The best Amazon Prime Day Apple Watch and smartwatch deals for 2023](https://news.yahoo.com/apple-watch-amazon-prime-day-deals-165228101.html)
-- Jul 11 - [Republican women learn the hard way: Complicity will not protect you](https://news.yahoo.com/republican-women-learn-hard-way-100512571.html)
-- Jul 11 - [Exclusive-Most patients using weight-loss drugs like Wegovy stop within a year, data show](https://news.yahoo.com/exclusive-most-patients-using-weight-100228827.html)
-- Jul 11 - [Debris from homes washes away in Vermont floods](https://news.yahoo.com/debris-homes-washes-away-vermont-100124069.html)
-- Jul 11 - [Mike Lindell Selling Off MyPillow Equipment: They ‘Did Cancel Culture On Us’](https://news.yahoo.com/mike-lindell-selling-off-mypillow-083653179.html)
+- Jul 11 - [This iconic Apple MacBook Air is down to its lowest price ever for Prime Day — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
+- Jul 11 - [Pregnant python found in Everglades with stunning number of eggs, grisly photo shows](https://news.yahoo.com/pregnant-python-found-everglades-stunning-115547304.html)
+- Jul 11 - [Dirty Socks and Rotting Bodies: What Russians Left Behind in the Trenches](https://news.yahoo.com/dirty-socks-rotting-bodies-russians-115528516.html)
+- Jul 11 - [Notorious Russian Sub Commander Assassinated on His Morning Jog](https://news.yahoo.com/notorious-russian-sub-commander-assassinated-113211049.html)
 <!-- feed end -->
