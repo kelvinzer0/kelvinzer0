@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [The best Amazon Prime Day deals for 2023](https://news.yahoo.com/the-best-amazon-prime-day-deals-for-2023-120012352.html)
-- Jul 11 - [The iconic Apple MacBook Air just hit a record low price for Prime Day — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
+- Jul 11 - [The best Amazon Prime Day Apple Watch and smartwatch deals for 2023](https://news.yahoo.com/apple-watch-amazon-prime-day-deals-165228101.html)
+- Jul 11 - [Billionaire Charlie Munger's Advice: 'It's A B***h, But You Gotta Do It. Find A Way To Get Your Hands On $100,000' – Why Earning Your First $100,000 Is Key If You Want To Be Rich](https://finance.yahoo.com/news/billionaire-charlie-mungers-advice-b-170634832.html)
+- Jul 11 - [California man paralyzed from run-in with police gets $20 million settlement](https://news.yahoo.com/california-man-paralyzed-run-police-170056248.html)
+- Jul 11 - [Rain causes ‘catastrophic and historic’ flooding in Vermont](https://news.yahoo.com/rain-causes-catastrophic-historic-flooding-165324752.html)
 - Jul 11 - [Big Country Star Calls For a New Bud-Light-Style Boycott](https://www.thestreet.com/restaurants/big-country-star-calls-for-a-new-bud-light-style-boycott?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jul 11 - [Sen. Tommy Tuberville, a former college football coach with no military experience himself, said 'There is nobody more military than me'](https://news.yahoo.com/sen-tommy-tuberville-former-college-155031916.html)
-- Jul 11 - [A popular Tennessee soccer coach left his phone at a restaurant. Police say they discovered videos on the device of him allegedly raping unconscious boys](https://news.yahoo.com/popular-tennessee-soccer-coach-left-210705857.html)
 <!-- feed end -->
