@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [China's foreign minister to miss ASEAN meet, deepening mystery over whereabouts](https://news.yahoo.com/wang-yi-represent-china-asean-043223472.html)
+- Jul 11 - [China's foreign minister, not seen in weeks, to miss ASEAN](https://news.yahoo.com/wang-yi-represent-china-asean-043223472.html)
 - Jul 11 - [Tommy Tuberville Tells Kaitlan Collins It’s Just ‘Some People’s Opinion’ That White Nationalists Are Racist (Video)](https://www.yahoo.com/entertainment/tommy-tuberville-tells-kaitlan-collins-031309515.html)
 - Jul 11 - [A map showing the Titan debris field in relation to the Titanic shipwreck was partially created by one of the sub's victims, Paul-Henri Nargeolet](https://news.yahoo.com/map-showing-titan-debris-field-030943057.html)
+- Jul 11 - [‘It’s pretty clear’ they ‘know exactly’ whose cocaine it was: Monica Crowley](https://news.yahoo.com/pretty-clear-know-exactly-whose-013004416.html)
 - Jul 11 - [Republican’s ‘Whistleblower’ Charged as Unregistered Foreign Agent](https://news.yahoo.com/republican-whistleblower-charged-unregistered-foreign-002909908.html)
-- Jul 11 - [Female soldiers in Ukraine are wearing 'huge' uniforms and suffering yeast infections due to a lack of women's resources on the frontlines: report](https://news.yahoo.com/female-soldiers-ukraine-wearing-huge-002436168.html)
 <!-- feed end -->
