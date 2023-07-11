@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [The iconic Apple MacBook Air drops to a record low price for Prime Day — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
-- Jul 11 - [Leslie Van Houten, follower of cult leader Charles Manson, released from California prison](https://news.yahoo.com/leslie-van-houten-follower-cult-195406899.html)
-- Jul 11 - [Tesla reportedly suspected Musk was using company funds to build a literal glass house](https://news.yahoo.com/tesla-reportedly-suspected-musk-was-using-company-funds-to-build-a-literal-glass-house-193314854.html)
-- Jul 11 - [Trump Blasts Prosecutor He Appointed for Not Giving Hunter Biden ‘Death Sentence’](https://news.yahoo.com/trump-blasts-prosecutor-appointed-not-191214006.html)
-- Jul 11 - [The US isn't too concerned about creating a lasting nightmare for Ukrainian civilians with mines and bomblets because Russia already did it](https://news.yahoo.com/us-isnt-too-concerned-creating-190919080.html)
+- Jul 11 - [House GOP report claims FBI violated Americans' civil liberties](https://news.yahoo.com/house-gop-report-claims-fbi-violated-americans-civil-liberties-204509693.html)
+- Jul 11 - [The best Amazon Prime Day Apple Watch and smartwatch deals for 2023](https://news.yahoo.com/apple-watch-amazon-prime-day-deals-165228101.html)
+- Jul 11 - [Video: Man on the run for 30 years for murder gives emotional goodbye to wife during arrest](https://news.yahoo.com/video-man-run-30-years-200833470.html)
+- Jul 11 - [Aretha Franklin's handwritten document found under couch cushion is valid will](https://news.yahoo.com/aretha-franklins-handwritten-document-found-200724742.html)
+- Jul 11 - [Where is everyone? Disney theme parks are shockingly empty this summer amid sky-high ticket prices, 'woke' backlash — but here's why the stock may be too cheap to pass up now](https://finance.yahoo.com/news/where-everyone-disney-theme-parks-200500589.html)
 <!-- feed end -->
