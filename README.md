@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [Landslide in Southern California destroys luxury homes](https://news.yahoo.com/landslide-southern-california-destroys-luxury-011400652.html)
+- Jul 11 - [Female soldiers in Ukraine are wearing 'huge' uniforms and suffering yeast infections due to a lack of women's resources on the frontlines: report](https://news.yahoo.com/female-soldiers-ukraine-wearing-huge-002436168.html)
+- Jul 11 - [This Person's Boss Told Them It Was "Highly Unprofessional" To Be Drinking On A Saturday Night, And This Is Why Nobody Wants To Work Anymore](https://www.yahoo.com/lifestyle/persons-boss-told-them-highly-000027235.html)
+- Jul 10 - [A woman accused of burning a Wyoming abortion clinic has reached a plea agreement with prosecutors](https://news.yahoo.com/woman-accused-burning-wyoming-abortion-231926674.html)
 - Jul 10 - [Special counsel Jack Smith says Trump aide is proposing an 'unnecessary' delay by trying to push a Friday hearing without any replacement date](https://news.yahoo.com/special-counsel-jack-smith-says-214914177.html)
-- Jul 10 - [Bud Light sales dropped 28% in June](https://finance.yahoo.com/video/bud-light-sales-dropped-28-213015885.html)
-- Jul 10 - [Despite Trump pardon, Steve Bannon finds himself in deeper trouble](https://news.yahoo.com/despite-trump-pardon-steve-bannon-212844559.html)
-- Jul 10 - [Bud Light Plummets To 14th Place Among Beers As Anheuser-Busch CEO Pleads For Consumers To Think Of The 65,000 Employees Impacted By Boycotts](https://finance.yahoo.com/news/bud-light-plummets-14th-place-210130892.html)
-- Jul 10 - [Texas governor names second interim attorney general ahead of Ken Paxton's impeachment trial](https://news.yahoo.com/texas-governor-names-second-interim-205535945.html)
 <!-- feed end -->
