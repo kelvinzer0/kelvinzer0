@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Landslide in Southern California destroys luxury homes](https://news.yahoo.com/landslide-southern-california-destroys-luxury-011400652.html)
+- Jul 11 - [Rudy Giuliani is negotiating possible resolution to lawsuit brought by 2 Georgia election workers](https://news.yahoo.com/rudy-giuliani-negotiating-possible-resolution-005339412.html)
+- Jul 11 - [Republican’s ‘Whistleblower’ Charged as Unregistered Foreign Agent](https://news.yahoo.com/republican-whistleblower-charged-unregistered-foreign-002909908.html)
 - Jul 11 - [Female soldiers in Ukraine are wearing 'huge' uniforms and suffering yeast infections due to a lack of women's resources on the frontlines: report](https://news.yahoo.com/female-soldiers-ukraine-wearing-huge-002436168.html)
-- Jul 11 - [This Person's Boss Told Them It Was "Highly Unprofessional" To Be Drinking On A Saturday Night, And This Is Why Nobody Wants To Work Anymore](https://www.yahoo.com/lifestyle/persons-boss-told-them-highly-000027235.html)
+- Jul 11 - [This Boss Feels So Entitled To Employees' Time That She Thinks Going Out On A Saturday Night Is "Unprofessional"](https://www.yahoo.com/lifestyle/persons-boss-told-them-highly-000027235.html)
 - Jul 10 - [A woman accused of burning a Wyoming abortion clinic has reached a plea agreement with prosecutors](https://news.yahoo.com/woman-accused-burning-wyoming-abortion-231926674.html)
-- Jul 10 - [Special counsel Jack Smith says Trump aide is proposing an 'unnecessary' delay by trying to push a Friday hearing without any replacement date](https://news.yahoo.com/special-counsel-jack-smith-says-214914177.html)
 <!-- feed end -->
