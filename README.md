@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [The best Amazon Prime Day Apple Watch and smartwatch deals for 2023](https://news.yahoo.com/apple-watch-amazon-prime-day-deals-165228101.html)
-- Jul 11 - [This iconic Apple MacBook Air is down to its lowest price ever for Prime Day — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
+- Jul 11 - [A woman with $192K in student debt asked Dave Ramsey how to afford being a stay-at-home mom on just her husband's $33K salary](https://news.yahoo.com/woman-192k-student-debt-asked-122124579.html)
 - Jul 11 - [Pregnant python found in Everglades with stunning number of eggs, grisly photo shows](https://news.yahoo.com/pregnant-python-found-everglades-stunning-115547304.html)
 - Jul 11 - [Dirty Socks and Rotting Bodies: What Russians Left Behind in the Trenches](https://news.yahoo.com/dirty-socks-rotting-bodies-russians-115528516.html)
 - Jul 11 - [Notorious Russian Sub Commander Assassinated on His Morning Jog](https://news.yahoo.com/notorious-russian-sub-commander-assassinated-113211049.html)
+- Jul 11 - [Republican women learn the hard way: Complicity will not protect you](https://news.yahoo.com/republican-women-learn-hard-way-100512571.html)
 <!-- feed end -->
