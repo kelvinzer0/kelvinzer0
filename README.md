@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Suspect in Tylenol poisonings that killed 7 dies](https://news.yahoo.com/suspect-tylenol-poisonings-killed-7-181029900.html)
-- Jul 11 - [Photos that offer a glimpse of what life is like for workers in notoriously isolated North Korea](https://news.yahoo.com/photos-offer-glimpse-life-workers-154729562.html)
-- Jul 11 - [Texas Police Fined A Puerto Rican Man After Wrongly Claiming He Lacked A Valid Driver's License](https://news.yahoo.com/texas-police-fined-puerto-rican-171226731.html)
-- Jul 11 - [Billionaire Charlie Munger's Advice: 'It's A B***h, But You Gotta Do It. Find A Way To Get Your Hands On $100,000' – Why Earning Your First $100,000 Is Key If You Want To Be Rich](https://finance.yahoo.com/news/billionaire-charlie-mungers-advice-b-170634832.html)
-- Jul 11 - [California man paralyzed from run-in with police gets $20 million settlement](https://news.yahoo.com/california-man-paralyzed-run-police-170056248.html)
+- Jul 11 - [The iconic Apple MacBook Air drops to a record low price for Prime Day — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
+- Jul 11 - [Leslie Van Houten, follower of cult leader Charles Manson, released from California prison](https://news.yahoo.com/leslie-van-houten-follower-cult-195406899.html)
+- Jul 11 - [Tesla reportedly suspected Musk was using company funds to build a literal glass house](https://news.yahoo.com/tesla-reportedly-suspected-musk-was-using-company-funds-to-build-a-literal-glass-house-193314854.html)
+- Jul 11 - [Trump Blasts Prosecutor He Appointed for Not Giving Hunter Biden ‘Death Sentence’](https://news.yahoo.com/trump-blasts-prosecutor-appointed-not-191214006.html)
+- Jul 11 - [The US isn't too concerned about creating a lasting nightmare for Ukrainian civilians with mines and bomblets because Russia already did it](https://news.yahoo.com/us-isnt-too-concerned-creating-190919080.html)
 <!-- feed end -->
