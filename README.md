@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Cops ID Suspect in Cold-Blooded Shooting of Beloved Tennessee Hand Surgeon](https://news.yahoo.com/cops-id-suspect-cold-blooded-164211779.html)
-- Jul 12 - [A driver stopped in the middle of a road — and then he attacked, Florida sheriff says](https://news.yahoo.com/driver-stopped-middle-road-then-161922160.html)
-- Jul 12 - [One Member of Donald Trump's Inner Circle Reportedly 'Ticks Off' Melania to No End](https://www.yahoo.com/entertainment/one-member-donald-trumps-inner-153013268.html)
-- Jul 12 - [NASA's Perseverance Rover Finds Preserved Organic Matter on Mars](https://news.yahoo.com/nasas-perseverance-rover-finds-preserved-150000015.html)
-- Jul 12 - [Usher’s Ex-Wife Tameka Foster Launches Petition To Drain Lake Lanier In Georgia Following Her Son’s Death](https://news.yahoo.com/usher-ex-wife-tameka-foster-144323980.html)
+- Jul 12 - [Gone in 60 seconds: At FBI director hearing, Republican conspiracies about Biden go 'POOF!'](https://news.yahoo.com/republican-conspiracies-biden-fbi-poof-183534324.html)
+- Jul 12 - [Suspect in Larry Nassar stabbing said ex-doctor made lewd remark watching Wimbledon, AP source says](https://news.yahoo.com/suspect-larry-nassar-stabbing-said-182824794.html)
+- Jul 12 - [Biden had to be an Erdogan whisperer. But then came Zelensky](https://news.yahoo.com/biden-had-erdogan-whisperer-then-182819442.html)
+- Jul 12 - [FBI director boasts that applications are 'up over 100%' in Florida after Matt Gaetz says people trusted the FBI 'more when J. Edgar Hoover was running the place'](https://news.yahoo.com/fbi-director-boasts-applications-over-174632848.html)
+- Jul 12 - [19 People Who Are Soooo Passive Aggressive, My Mouth Is Literally Agape](https://www.yahoo.com/lifestyle/19-people-soooo-passive-aggressive-174603454.html)
 <!-- feed end -->
