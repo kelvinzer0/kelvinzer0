@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [The iconic Apple MacBook Air is at a record low price for Prime Day Wednesday — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
+- Jul 12 - [Patient kills surgeon Benjamin Mauck in shooting at suburban Memphis clinic, police say](https://news.yahoo.com/patient-kills-surgeon-benjamin-mauck-153833023.html)
+- Jul 12 - [One Member of Donald Trump's Inner Circle Reportedly 'Ticks Off' Melania to No End](https://www.yahoo.com/entertainment/one-member-donald-trumps-inner-153013268.html)
+- Jul 12 - [San Francisco's retail hub is turning into a ghost town. The exodus isn't just about crime, experts say](https://news.yahoo.com/san-franciscos-retail-exodus-goes-144052999.html)
 - Jul 12 - [Trump melts down on Truth Social after DOJ says it will no longer shield him in E. Jean Carroll case](https://news.yahoo.com/trump-melts-down-truth-social-143746236.html)
 - Jul 12 - [MSNBC Expert Arrives At Darkly Hilarious Take On Tommy Tuberville](https://news.yahoo.com/msnbc-expert-arrives-darkly-hilarious-141348654.html)
-- Jul 12 - [A man lost 125 pounds by doing the opposite of everything he tried before, including eating carbs](https://www.yahoo.com/lifestyle/man-lost-125-pounds-doing-134036098.html)
-- Jul 12 - [Chicago Man Accused of Brutally Killing Cats and Replacing Them With Lookalikes](https://news.yahoo.com/chicago-man-accused-brutally-killing-132559707.html)
 <!-- feed end -->
