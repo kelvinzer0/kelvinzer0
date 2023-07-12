@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [China's economic downturn is more shocking than outsiders realize, says former Chinese property mogul](https://finance.yahoo.com/news/chinas-economic-downturn-more-shocking-224041332.html)
+- Jul 12 - [China lashes back at NATO criticism, warns it will protect its rights](https://news.yahoo.com/china-opposes-natos-move-asia-010155911.html)
 - Jul 11 - [Donald Trump Must Face E. Jean Carroll Defamation Suit as DOJ Reverses Course](https://news.yahoo.com/donald-trump-must-face-e-202833738.html)
-- Jul 11 - [Archeologists search for child graves at former Native American boarding school](https://news.yahoo.com/archeologists-search-child-graves-former-215337916.html)
-- Jul 11 - [House GOP report claims FBI violated Americans' civil liberties](https://news.yahoo.com/house-gop-report-claims-fbi-violated-americans-civil-liberties-204509693.html)
-- Jul 11 - [I Asked AI What Europeans Think Americans From Every Single State Look Like And The Results Are Just Plain Mean](https://www.yahoo.com/lifestyle/asked-ai-europeans-think-americans-201700212.html)
+- Jul 11 - [Teen and mom plead guilty to abortion charges based on Facebook data](https://news.yahoo.com/teen-mom-plead-guilty-abortion-230802922.html)
+- Jul 11 - [Russia's Medvedev: NATO's military aid to Ukraine brings World War Three closer](https://news.yahoo.com/russias-medvedev-natos-military-aid-224133112.html)
+- Jul 11 - [Super 'Gucci' Alien Pistol In Use With Zelensky Security Detail](https://news.yahoo.com/super-gucci-alien-pistol-zelensky-223739265.html)
 <!-- feed end -->
