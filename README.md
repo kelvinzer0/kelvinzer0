@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Private jets are descending on a small-town airport as the 'summer camp for billionaires' kicks off](https://finance.yahoo.com/news/private-jets-descending-small-town-195036144.html)
-- Jul 12 - [Russia's Lavrov: Ukraine conflict will not end until West drops plans to defeat Moscow](https://news.yahoo.com/russias-lavrov-ukraine-conflict-not-032100756.html)
+- Jul 12 - [I'm A 37-Year-Old Breast Cancer Survivor, And My Red Flag Symptom Wasn't A Lump](https://www.yahoo.com/lifestyle/im-37-old-breast-cancer-040602799.html)
+- Jul 12 - [Russia's Lavrov: Ukraine conflict will not end until West drops plans defeat Moscow](https://news.yahoo.com/russias-lavrov-ukraine-conflict-not-032100756.html)
+- Jul 12 - [Hear from nephew of man murdered by the Manson family on Charles Manson follower’s release from prison](https://news.yahoo.com/hear-nephew-man-murdered-manson-025242732.html)
+- Jul 12 - [Free-solo climber dies after falling hundreds of feet from ridge in Colorado’s Rocky Mountain National Park](https://news.yahoo.com/free-solo-climber-dies-falling-022042729.html)
 - Jul 12 - [China's Huawei poised to overcome US ban with return of 5G phones -research firms](https://finance.yahoo.com/news/chinas-huawei-poised-overcome-us-020602142.html)
-- Jul 12 - [China lashes back at NATO criticism, warns it will protect its rights](https://news.yahoo.com/china-opposes-natos-move-asia-010155911.html)
-- Jul 11 - [Super 'Gucci' Alien Pistol In Use With Zelensky Security Detail](https://news.yahoo.com/super-gucci-alien-pistol-zelensky-223739265.html)
 <!-- feed end -->
