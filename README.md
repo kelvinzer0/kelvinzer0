@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [The iconic Apple MacBook Air is at a record low price for Prime Day Wednesday — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
+- Jul 12 - [Trump melts down on Truth Social after DOJ says it will no longer shield him in E. Jean Carroll case](https://news.yahoo.com/trump-melts-down-truth-social-143746236.html)
+- Jul 12 - [MSNBC Expert Arrives At Darkly Hilarious Take On Tommy Tuberville](https://news.yahoo.com/msnbc-expert-arrives-darkly-hilarious-141348654.html)
 - Jul 12 - [A man lost 125 pounds by doing the opposite of everything he tried before, including eating carbs](https://www.yahoo.com/lifestyle/man-lost-125-pounds-doing-134036098.html)
-- Jul 12 - [People Are Sharing Innocent Crimes That People Commit All The Time, And You Might Be Guilty Of A Few Of These](https://www.yahoo.com/lifestyle/people-sharing-innocent-crimes-people-091603035.html)
-- Jul 12 - [Amazon Driver Praised After Telling Customer That Her House Was 'Unsafe' — 'If I See Something, I Say Something'](https://news.yahoo.com/amazon-driver-praised-telling-customer-091500242.html)
-- Jul 12 - [Ex-Prosecutor Nails What Trump's Latest Legal Move Really Means](https://news.yahoo.com/ex-prosecutor-nails-trumps-latest-082622361.html)
-- Jul 12 - [Traces of explosives were found in a yacht in the Nord Stream sabotage investigation, diplomats say](https://news.yahoo.com/traces-explosives-were-found-yacht-082423379.html)
+- Jul 12 - [Chicago Man Accused of Brutally Killing Cats and Replacing Them With Lookalikes](https://news.yahoo.com/chicago-man-accused-brutally-killing-132559707.html)
 <!-- feed end -->
