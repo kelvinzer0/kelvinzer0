@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [Amazon Prime Day 2023 Day 2: The best deals you can still get](https://news.yahoo.com/amazon-prime-day-2023-day-2-the-best-deals-you-can-still-get-111813236.html)
+- Jul 12 - [Bring the Arcade Experience Home On Prime Day With This Major Arcade1Up Sale](https://www.yahoo.com/lifestyle/bring-arcade-experience-home-prime-174400174.html)
 - Jul 12 - [People Are Sharing Innocent Crimes That People Commit All The Time, And You Might Be Guilty Of A Few Of These](https://www.yahoo.com/lifestyle/people-sharing-innocent-crimes-people-091603035.html)
 - Jul 12 - [Amazon Driver Praised After Telling Customer That Her House Was 'Unsafe' — 'If I See Something, I Say Something'](https://news.yahoo.com/amazon-driver-praised-telling-customer-091500242.html)
-- Jul 12 - ["Publicity on blood": 47th brigade reacts to resignation notice of its sergeant major](https://news.yahoo.com/publicity-blood-47th-brigade-reacts-083540692.html)
 - Jul 12 - [Ex-Prosecutor Nails What Trump's Latest Legal Move Really Means](https://news.yahoo.com/ex-prosecutor-nails-trumps-latest-082622361.html)
-- Jul 12 - [Traces of explosives were found in a yacht in the Nord Stream sabotage investigation, diplomats say](https://news.yahoo.com/traces-explosives-were-found-yacht-082423379.html)
 <!-- feed end -->
