@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 12 - [UPS Driver Who Asked Customer To Spray Her With Water Hose Sparks Debate About Their Working Conditions](https://news.yahoo.com/ups-driver-asked-customer-spray-051500601.html)
 - Jul 12 - [After half a century, Israel moves to evict squatter from his cave home on the beach](https://news.yahoo.com/half-century-israel-moves-evict-051311420.html)
-- Jul 12 - [Mike Pence Still Stumbles When Asked Why He Didn’t Speak Up or Concede Before Jan. 6 (Video)](https://www.yahoo.com/entertainment/mike-pence-still-stumbles-asked-051223127.html)
 - Jul 12 - [The Manson 'family': A look at key players and victims in the cult leader's killings](https://news.yahoo.com/manson-family-look-key-players-050702541.html)
 - Jul 12 - [Chris Christie Hits Piers Morgan With A Blunt Trump Reality Check On Live TV](https://news.yahoo.com/chris-christie-hits-piers-morgan-045033403.html)
+- Jul 12 - [Private jets are descending on a small-town airport as the 'summer camp for billionaires' kicks off](https://finance.yahoo.com/news/private-jets-descending-small-town-195036144.html)
 <!-- feed end -->
