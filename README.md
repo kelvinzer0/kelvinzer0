@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [NASA's Perseverance Rover Finds Preserved Organic Molecules on Mars](https://news.yahoo.com/nasas-perseverance-rover-finds-preserved-150000015.html)
+- Jul 12 - [21-year-old killed after Uber driver abandons him on California highway, lawsuit says](https://news.yahoo.com/21-old-killed-uber-driver-203915679.html)
+- Jul 12 - [Amazon Prime Day 2023 Day 2: The best deals you can still get](https://news.yahoo.com/amazon-prime-day-2023-day-2-the-best-deals-you-can-still-get-111813236.html)
+- Jul 12 - [White House warns reporter he may lose press pass over continued interruptions](https://news.yahoo.com/white-house-warns-reporter-may-195437111.html)
+- Jul 12 - [Giant snake caught on video: View record Burmese python from its head to its tail](https://news.yahoo.com/giant-snake-caught-video-view-193530809.html)
 - Jul 12 - [I'm Absolutely Crying Laughing At All These Idiot Scammers Trying To Rip People Off And Getting Completely And Totally Destroyed In The Process](https://www.yahoo.com/lifestyle/im-absolutely-crying-laughing-idiot-191802501.html)
-- Jul 12 - [Sea otter seen trying to steal board from surfer in ocean](https://news.yahoo.com/sea-otter-seen-trying-steal-191748129.html)
-- Jul 12 - ["This hearing has turned into absolute chaos": Dems call out Jim Jordan over "bananas" FBI hearing](https://news.yahoo.com/hearing-turned-absolute-chaos-dems-191648106.html)
-- Jul 12 - [Gone in 60 seconds: At FBI director hearing, Republican conspiracies about Biden go 'POOF!'](https://news.yahoo.com/republican-conspiracies-biden-fbi-poof-183534324.html)
 <!-- feed end -->
