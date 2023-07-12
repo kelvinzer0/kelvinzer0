@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [After NATO frustration, West offers Ukraine security commitments](https://news.yahoo.com/nato-frustration-west-offers-ukraine-024015962.html)
+- Jul 12 - [Private jets are descending on a small-town airport as the 'summer camp for billionaires' kicks off](https://finance.yahoo.com/news/private-jets-descending-small-town-195036144.html)
+- Jul 12 - [Russia's Lavrov: Ukraine conflict will not end until West drops plans to defeat Moscow](https://news.yahoo.com/russias-lavrov-ukraine-conflict-not-032100756.html)
 - Jul 12 - [China's Huawei poised to overcome US ban with return of 5G phones -research firms](https://finance.yahoo.com/news/chinas-huawei-poised-overcome-us-020602142.html)
 - Jul 12 - [China lashes back at NATO criticism, warns it will protect its rights](https://news.yahoo.com/china-opposes-natos-move-asia-010155911.html)
-- Jul 12 - [Kevin Costner demands estranged wife Christine Baumgartner pay $99K in legal fees — plus a $29 filing fee — accusing her of running up his bill](https://www.yahoo.com/entertainment/kevin-costner-demands-estranged-wife-002343245.html)
-- Jul 11 - [Teen and mom plead guilty to abortion charges based on Facebook data](https://news.yahoo.com/teen-mom-plead-guilty-abortion-230802922.html)
+- Jul 11 - [Super 'Gucci' Alien Pistol In Use With Zelensky Security Detail](https://news.yahoo.com/super-gucci-alien-pistol-zelensky-223739265.html)
 <!-- feed end -->
