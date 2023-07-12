@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [The iconic Apple MacBook Air is at a record low price for Prime Day Wednesday — save $249](https://www.yahoo.com/lifestyle/macbook-air-amazon-prime-day-2023-sale-174525979.html)
 - Jul 12 - [People Are Sharing Innocent Crimes That People Commit All The Time, And You Might Be Guilty Of A Few Of These](https://www.yahoo.com/lifestyle/people-sharing-innocent-crimes-people-091603035.html)
+- Jul 12 - [Amazon Driver Praised After Telling Customer That Her House Was 'Unsafe' — 'If I See Something, I Say Something'](https://news.yahoo.com/amazon-driver-praised-telling-customer-091500242.html)
+- Jul 12 - [Ford's electric Mustang Mach-E is piling up on dealer lots as the automaker confronts an EV inventory problem](https://news.yahoo.com/fords-electric-mustang-mach-e-090200501.html)
 - Jul 12 - [Ex-Prosecutor Nails What Trump's Latest Legal Move Really Means](https://news.yahoo.com/ex-prosecutor-nails-trumps-latest-082622361.html)
 - Jul 12 - [Nikki Haley Responds To Trump Question With Weird Confession About Husband](https://news.yahoo.com/nikki-haley-responds-trump-weird-080730262.html)
-- Jul 12 - [A British cruise ship operator apologized after passengers watched 78 dolphins get slaughtered, part of the centuries-old whaling tradition of the Faroe Islands](https://news.yahoo.com/british-cruise-ship-operator-apologized-072410975.html)
 <!-- feed end -->
