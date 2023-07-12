@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Patient kills surgeon Benjamin Mauck in shooting at suburban Memphis clinic, police say](https://news.yahoo.com/patient-kills-surgeon-benjamin-mauck-153833023.html)
+- Jul 12 - [Cops ID Suspect in Cold-Blooded Shooting of Beloved Tennessee Hand Surgeon](https://news.yahoo.com/cops-id-suspect-cold-blooded-164211779.html)
+- Jul 12 - [A driver stopped in the middle of a road — and then he attacked, Florida sheriff says](https://news.yahoo.com/driver-stopped-middle-road-then-161922160.html)
 - Jul 12 - [One Member of Donald Trump's Inner Circle Reportedly 'Ticks Off' Melania to No End](https://www.yahoo.com/entertainment/one-member-donald-trumps-inner-153013268.html)
-- Jul 12 - [San Francisco's retail hub is turning into a ghost town. The exodus isn't just about crime, experts say](https://news.yahoo.com/san-franciscos-retail-exodus-goes-144052999.html)
-- Jul 12 - [Trump melts down on Truth Social after DOJ says it will no longer shield him in E. Jean Carroll case](https://news.yahoo.com/trump-melts-down-truth-social-143746236.html)
-- Jul 12 - [MSNBC Expert Arrives At Darkly Hilarious Take On Tommy Tuberville](https://news.yahoo.com/msnbc-expert-arrives-darkly-hilarious-141348654.html)
+- Jul 12 - [NASA's Perseverance Rover Finds Preserved Organic Matter on Mars](https://news.yahoo.com/nasas-perseverance-rover-finds-preserved-150000015.html)
+- Jul 12 - [Usher’s Ex-Wife Tameka Foster Launches Petition To Drain Lake Lanier In Georgia Following Her Son’s Death](https://news.yahoo.com/usher-ex-wife-tameka-foster-144323980.html)
 <!-- feed end -->
