@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [Missing trail hiker’s body found in Yosemite National Park creek](https://news.yahoo.com/missing-trail-hiker-body-found-222100905.html)
+- Jul 12 - [Vice President Kamala Harris makes history with tiebreaking votes in Senate](https://news.yahoo.com/vice-president-kamala-harris-makes-221012162.html)
 - Jul 12 - [WATCH: Train Conductor Tears Passenger a New One for Spewing Racist Crap](https://news.yahoo.com/watch-train-conductor-tears-passenger-210506207.html)
 - Jul 12 - [California and Arizona brace for 'historic' heat wave with possible temperatures over 120°F](https://news.yahoo.com/california-and-arizona-brace-for-historic-heat-wave-with-possible-temperatures-over-120%C2%B0f-205753732.html)
 - Jul 12 - [21-year-old killed after Uber driver abandons him on California highway, lawsuit says](https://news.yahoo.com/21-old-killed-uber-driver-203915679.html)
-- Jul 12 - [White House warns reporter he may lose press pass over continued interruptions](https://news.yahoo.com/white-house-warns-reporter-may-195437111.html)
-- Jul 12 - [Former US Army general says Wagner boss Yevgeny Prigozhin likely isn't dead. If he were, Putin wouldn't be keeping it a secret.](https://news.yahoo.com/former-us-army-general-says-194042645.html)
 <!-- feed end -->
