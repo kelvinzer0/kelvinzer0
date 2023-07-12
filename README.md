@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [China's Huawei poised to overcome US ban with return of 5G phones -research firms](https://finance.yahoo.com/news/chinas-huawei-poised-overcome-us-020000930.html)
 - Jul 12 - [China lashes back at NATO criticism, warns it will protect its rights](https://news.yahoo.com/china-opposes-natos-move-asia-010155911.html)
-- Jul 11 - [Donald Trump Must Face E. Jean Carroll Defamation Suit as DOJ Reverses Course](https://news.yahoo.com/donald-trump-must-face-e-202833738.html)
-- Jul 11 - [Teen and mom plead guilty to abortion charges based on Facebook data](https://news.yahoo.com/teen-mom-plead-guilty-abortion-230802922.html)
-- Jul 11 - [Russia's Medvedev: NATO's military aid to Ukraine brings World War Three closer](https://news.yahoo.com/russias-medvedev-natos-military-aid-224133112.html)
+- Jul 12 - [Kevin Costner demands estranged wife Christine Baumgartner pay $99K in legal fees — plus a $29 filing fee — accusing her of running up his bill](https://www.yahoo.com/entertainment/kevin-costner-demands-estranged-wife-002343245.html)
 - Jul 11 - [Super 'Gucci' Alien Pistol In Use With Zelensky Security Detail](https://news.yahoo.com/super-gucci-alien-pistol-zelensky-223739265.html)
+- Jul 11 - [I Asked AI What Europeans Think Americans From Every Single State Look Like, And The Results Are Just Plain Mean](https://www.yahoo.com/lifestyle/asked-ai-europeans-think-americans-201700212.html)
 <!-- feed end -->
