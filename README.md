@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [NASA's Perseverance Rover Finds Preserved Organic Molecules on Mars](https://news.yahoo.com/nasas-perseverance-rover-finds-preserved-150000015.html)
+- Jul 12 - [I'm Absolutely Crying Laughing At All These Idiot Scammers Trying To Rip People Off And Getting Completely And Totally Destroyed In The Process](https://www.yahoo.com/lifestyle/im-absolutely-crying-laughing-idiot-191802501.html)
+- Jul 12 - [Sea otter seen trying to steal board from surfer in ocean](https://news.yahoo.com/sea-otter-seen-trying-steal-191748129.html)
+- Jul 12 - ["This hearing has turned into absolute chaos": Dems call out Jim Jordan over "bananas" FBI hearing](https://news.yahoo.com/hearing-turned-absolute-chaos-dems-191648106.html)
 - Jul 12 - [Gone in 60 seconds: At FBI director hearing, Republican conspiracies about Biden go 'POOF!'](https://news.yahoo.com/republican-conspiracies-biden-fbi-poof-183534324.html)
-- Jul 12 - [Suspect in Larry Nassar stabbing said ex-doctor made lewd remark watching Wimbledon, AP source says](https://news.yahoo.com/suspect-larry-nassar-stabbing-said-182824794.html)
-- Jul 12 - [Biden had to be an Erdogan whisperer. But then came Zelensky](https://news.yahoo.com/biden-had-erdogan-whisperer-then-182819442.html)
-- Jul 12 - [FBI director boasts that applications are 'up over 100%' in Florida after Matt Gaetz says people trusted the FBI 'more when J. Edgar Hoover was running the place'](https://news.yahoo.com/fbi-director-boasts-applications-over-174632848.html)
-- Jul 12 - [19 People Who Are Soooo Passive Aggressive, My Mouth Is Literally Agape](https://www.yahoo.com/lifestyle/19-people-soooo-passive-aggressive-174603454.html)
 <!-- feed end -->
