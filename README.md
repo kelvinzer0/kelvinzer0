@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Italy rail strike strands commuters and tourists in sweltering weather at height of tourism season](https://news.yahoo.com/italy-rail-strike-strands-commuters-115250167.html)
-- Jul 13 - [Henry County chief deputy caught going 96 mph in 35 mph. His citation wasn’t for super speeding](https://news.yahoo.com/henry-county-chief-deputy-caught-113515802.html)
+- Jul 13 - [This Fitness Instructor Started Kettlebell Training At 42 And Can Now Do 16 Pullups](https://www.yahoo.com/lifestyle/fitness-instructor-started-kettlebell-training-130000878.html)
 - Jul 13 - [Friction and confusion among Russian leadership since mutiny -U.S. general](https://news.yahoo.com/friction-confusion-among-russian-leadership-102452858.html)
 - Jul 13 - [An American tourist who said traveling to the Amalfi coast in Italy is 'literal manual labor' is getting roasted on TikTok for not doing her research](https://www.yahoo.com/entertainment/american-tourist-said-traveling-amalfi-095333694.html)
 - Jul 13 - [NATO delivers gut punch to Putin](https://news.yahoo.com/nato-delivers-gut-punch-putin-093000103.html)
+- Jul 13 - ['No-Quit' Notice In McDonald's Forbidding Employees From Quitting Sparks Angry Debate About 'At Will' Employment](https://news.yahoo.com/no-quit-notice-mcdonalds-forbidding-091500815.html)
 <!-- feed end -->
