@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [Mom Seeks Advice After Her Neighbor's Child Continues Showing Up At Her Doorstep Before School Every Morning To Be Dropped Off](https://news.yahoo.com/mom-seeks-advice-her-neighbors-011500298.html)
 - Jul 13 - [Russia is sending 'disposable' soldiers to fight Ukraine high on amphetamines to ensure they "still run at machine guns,' military expert says](https://news.yahoo.com/russia-sending-disposable-soldiers-fight-005658774.html)
 - Jul 13 - [McDonald's China owners Carlyle, Trustar plan $4 billion exit - Bloomberg News](https://news.yahoo.com/mcdonalds-china-owners-carlyle-trustar-005623036.html)
-- Jul 13 - [Tornado touches down near Chicago's O'Hare airport, disrupting hundreds of flights](https://news.yahoo.com/tornado-touches-down-near-chicagos-002336755.html)
+- Jul 13 - [Kevin Costner's estranged wife Christine Baumgartner spotted in court as judge upholds tentative ruling](https://www.yahoo.com/entertainment/kevin-costners-estranged-wife-christine-003545504.html)
 - Jul 12 - [Homeless woman dies after being run over by landscaping crew while sleeping in California park](https://news.yahoo.com/homeless-woman-dies-being-run-232838675.html)
-- Jul 12 - [Alex Murdaugh shares cold, tense phone call with son Buster from prison, audio recording shows](https://news.yahoo.com/alex-murdaugh-shares-cold-tense-225000093.html)
 <!-- feed end -->
