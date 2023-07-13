@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [St. Louis Fed President James Bullard steps down, will leave bank in August](https://finance.yahoo.com/video/st-louis-fed-president-james-193131492.html)
+- Jul 13 - [Oklahoma murder conviction reversed due to sexual relationship between judge, prosecutor](https://news.yahoo.com/oklahoma-murder-conviction-reversed-due-205048208.html)
+- Jul 13 - [Defense attorney in Hawaii love triangle murder trial says acupuncturist cheated with multiple women](https://news.yahoo.com/defense-attorney-hawaii-love-triangle-200815278.html)
+- Jul 13 - [Russian general’s outburst is an earthquake for Vladimir Putin](https://news.yahoo.com/russian-general-outburst-earthquake-vladimir-103604574.html)
 - Jul 13 - [Usher's ex-wife wants to drain Georgia's largest lake, where a boater fatally struck her son](https://news.yahoo.com/ushers-ex-wife-wants-drain-193108774.html)
 - Jul 13 - [Former police chief who defended himself at trial is convicted of conspiracy in Jan. 6 riot](https://news.yahoo.com/former-police-chief-defended-himself-191651050.html)
-- Jul 13 - [Las Vegas police officer's brother testified against him about 'desperate' casino heist](https://news.yahoo.com/las-vegas-police-officers-brother-185410452.html)
-- Jul 13 - [Turns out all we may need to stop climate change is 139 billion gallons of super-duper white paint](https://news.yahoo.com/turns-may-stop-climate-change-184617044.html)
 <!-- feed end -->
