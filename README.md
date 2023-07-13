@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [A mom took out over $77,000 in student loans to send her son with autism to college. He got his debt wiped out — but she's still paying hers off with no end in sight.](https://news.yahoo.com/mom-took-over-77-000-103000160.html)
+- Jul 13 - [Army colonel gets $975,000 in sex assault case against former Joint Chiefs vice chairman](https://news.yahoo.com/army-colonel-gets-975-000-164812849.html)
+- Jul 13 - [Body Cam Catches Glimpse Inside a Seattle Police Precinct and What You’ll See Will Disgust You](https://news.yahoo.com/body-cam-catches-glimpse-inside-155904435.html)
 - Jul 13 - [Geraldo Rivera Tells ‘The View’ He Had “Toxic Relationship” With ‘The Five’ Co-Host; Will “Never Forgive” Tucker Carlson For Jan. 6th Misinformation](https://www.yahoo.com/entertainment/geraldo-rivera-tells-view-had-154713070.html)
-- Jul 13 - [Boot camp tragedy: A recruit died. His drill instructor faces the blame](https://news.yahoo.com/boot-camp-tragedy-recruit-died-150528492.html)
-- Jul 13 - [A Texas soldier 'willfully' disappeared, Army says. Then his wife died — and he was found alive.](https://news.yahoo.com/texas-soldier-willfully-disappeared-army-150041158.html)
-- Jul 13 - [No fingerprints, DNA sample or leads from cocaine found at the White House, the Secret Service says](https://news.yahoo.com/no-fingerprints-dna-sample-leads-143820987.html)
-- Jul 13 - [A woman went viral on TikTok after getting ticketed for wearing a crop top. A year later, she says the 'indecent exposure' citation has finally been dropped.](https://news.yahoo.com/woman-went-viral-tiktok-getting-143454266.html)
+- Jul 13 - [TikTok-famous 'Dr. Roxy' loses medical license after livestreaming plastic surgery operations to her over 800,000 followers](https://news.yahoo.com/tiktok-famous-dr-roxy-loses-medical-license-after-livestreaming-plastic-surgery-operations-to-her-over-800000-followers-150103389.html)
 <!-- feed end -->
