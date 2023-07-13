@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [Russia is sending 'disposable' soldiers to fight Ukraine high on amphetamines to ensure they "still run at machine guns,' military expert says](https://news.yahoo.com/russia-sending-disposable-soldiers-fight-005658774.html)
+- Jul 13 - [McDonald's China owners Carlyle, Trustar plan $4 billion exit - Bloomberg News](https://news.yahoo.com/mcdonalds-china-owners-carlyle-trustar-005623036.html)
+- Jul 13 - [Tornado touches down near Chicago's O'Hare airport, disrupting hundreds of flights](https://news.yahoo.com/tornado-touches-down-near-chicagos-002336755.html)
 - Jul 12 - [Homeless woman dies after being run over by landscaping crew while sleeping in California park](https://news.yahoo.com/homeless-woman-dies-being-run-232838675.html)
-- Jul 12 - [Missing trail hiker’s body found in Yosemite National Park creek](https://news.yahoo.com/missing-trail-hiker-body-found-222100905.html)
-- Jul 12 - [Vice President Kamala Harris makes history with tiebreaking votes in Senate](https://news.yahoo.com/vice-president-kamala-harris-makes-221012162.html)
-- Jul 12 - [Hiker makes chilling discovery at remote, abandoned campsite, Colorado sheriff says](https://news.yahoo.com/hiker-makes-chilling-discovery-remote-215901048.html)
-- Jul 12 - [Unusual tropical creature draws crowds after it’s seen in Pennsylvania for first time](https://news.yahoo.com/unusual-tropical-creature-draws-crowds-214000242.html)
+- Jul 12 - [Alex Murdaugh shares cold, tense phone call with son Buster from prison, audio recording shows](https://news.yahoo.com/alex-murdaugh-shares-cold-tense-225000093.html)
 <!-- feed end -->
