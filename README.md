@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [Brawl erupts in Kosovo parliament](https://news.yahoo.com/brawl-erupts-kosovo-parliament-143906780.html)
+- Jul 13 - [No fingerprints, DNA sample or leads from cocaine found at the White House, the Secret Service says](https://news.yahoo.com/no-fingerprints-dna-sample-leads-143820987.html)
+- Jul 13 - [A 33-year-old who got light-headed at the gym tried to push through. He was having a stroke.](https://www.yahoo.com/lifestyle/33-old-got-light-headed-134948238.html)
+- Jul 13 - [Iowa football player helps teens who ran out of gas one year after changing woman’s tire](https://www.yahoo.com/entertainment/iowa-football-player-helps-teens-132228436.html)
 - Jul 13 - [Costco Sends a Quiet (but Powerful) Message on Bud Light](https://www.thestreet.com/retailers/costco-sends-a-quiet-but-powerful-message-on-bud-light?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jul 13 - [This Fitness Instructor Started Kettlebell Training At 42 And Can Now Do 16 Pullups](https://www.yahoo.com/lifestyle/fitness-instructor-started-kettlebell-training-130000878.html)
-- Jul 13 - [Friction and confusion among Russian leadership since mutiny -U.S. general](https://news.yahoo.com/friction-confusion-among-russian-leadership-102452858.html)
-- Jul 13 - [An American tourist who said traveling to the Amalfi coast in Italy is 'literal manual labor' is getting roasted on TikTok for not doing her research](https://www.yahoo.com/entertainment/american-tourist-said-traveling-amalfi-095333694.html)
-- Jul 13 - [NATO delivers gut punch to Putin](https://news.yahoo.com/nato-delivers-gut-punch-putin-093000103.html)
 <!-- feed end -->
