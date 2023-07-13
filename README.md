@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [St. Louis Fed President James Bullard steps down, will leave bank in August](https://finance.yahoo.com/video/st-louis-fed-president-james-193131492.html)
+- Jul 13 - [Usher's ex-wife wants to drain Georgia's largest lake, where a boater fatally struck her son](https://news.yahoo.com/ushers-ex-wife-wants-drain-193108774.html)
+- Jul 13 - [Former police chief who defended himself at trial is convicted of conspiracy in Jan. 6 riot](https://news.yahoo.com/former-police-chief-defended-himself-191651050.html)
+- Jul 13 - [Turns out all we may need to stop climate change is 139 billion gallons of super-duper white paint](https://news.yahoo.com/turns-may-stop-climate-change-184617044.html)
 - Jul 13 - [Judge Uses Supreme Court’s Gay Wedding Website Ruling for Her Own Anti-LGBTQ Lawsuit](https://news.yahoo.com/judge-uses-supreme-court-gay-173000254.html)
-- Jul 13 - [A mom took out over $77,000 in student loans to send her son with autism to college. He got his debt wiped out — but she's still paying hers off with no end in sight.](https://news.yahoo.com/mom-took-over-77-000-103000160.html)
-- Jul 13 - [Army colonel gets $975,000 in sex assault case against former Joint Chiefs vice chairman](https://news.yahoo.com/army-colonel-gets-975-000-164812849.html)
-- Jul 13 - [Body Cam Catches Glimpse Inside a Seattle Police Precinct and What You’ll See Will Disgust You](https://news.yahoo.com/body-cam-catches-glimpse-inside-155904435.html)
-- Jul 13 - [Geraldo Rivera Tells ‘The View’ He Had “Toxic Relationship” With ‘The Five’ Co-Host; Will “Never Forgive” Tucker Carlson For Jan. 6th Misinformation](https://www.yahoo.com/entertainment/geraldo-rivera-tells-view-had-154713070.html)
 <!-- feed end -->
