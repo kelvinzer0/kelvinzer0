@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Brawl erupts in Kosovo parliament](https://news.yahoo.com/brawl-erupts-kosovo-parliament-143906780.html)
+- Jul 13 - [A Texas soldier 'willfully' disappeared, Army says. Then his wife died — and he was found alive.](https://news.yahoo.com/texas-soldier-willfully-disappeared-army-150041158.html)
 - Jul 13 - [No fingerprints, DNA sample or leads from cocaine found at the White House, the Secret Service says](https://news.yahoo.com/no-fingerprints-dna-sample-leads-143820987.html)
+- Jul 13 - [A woman went viral on TikTok after getting ticketed for wearing a crop top. A year later, she says the 'indecent exposure' citation has finally been dropped.](https://news.yahoo.com/woman-went-viral-tiktok-getting-143454266.html)
 - Jul 13 - [A 33-year-old who got light-headed at the gym tried to push through. He was having a stroke.](https://www.yahoo.com/lifestyle/33-old-got-light-headed-134948238.html)
 - Jul 13 - [Iowa football player helps teens who ran out of gas one year after changing woman’s tire](https://www.yahoo.com/entertainment/iowa-football-player-helps-teens-132228436.html)
-- Jul 13 - [Costco Sends a Quiet (but Powerful) Message on Bud Light](https://www.thestreet.com/retailers/costco-sends-a-quiet-but-powerful-message-on-bud-light?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
