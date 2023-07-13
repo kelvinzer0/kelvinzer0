@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [Democratic Colleague Burns Rep. Marjorie Taylor Greene's Speech With 4-Word Request](https://news.yahoo.com/democratic-colleague-burns-rep-marjorie-222643720.html)
 - Jul 13 - [Oklahoma murder conviction reversed due to sexual relationship between judge, prosecutor](https://news.yahoo.com/oklahoma-murder-conviction-reversed-due-205048208.html)
+- Jul 13 - [US resists calls by Trump to postpone trial in classified documents case](https://news.yahoo.com/us-resists-calls-trump-postpone-204619762.html)
 - Jul 13 - [Defense attorney in Hawaii love triangle murder trial says acupuncturist cheated with multiple women](https://news.yahoo.com/defense-attorney-hawaii-love-triangle-200815278.html)
 - Jul 13 - [Russian general’s outburst is an earthquake for Vladimir Putin](https://news.yahoo.com/russian-general-outburst-earthquake-vladimir-103604574.html)
-- Jul 13 - [Usher's ex-wife wants to drain Georgia's largest lake, where a boater fatally struck her son](https://news.yahoo.com/ushers-ex-wife-wants-drain-193108774.html)
-- Jul 13 - [Former police chief who defended himself at trial is convicted of conspiracy in Jan. 6 riot](https://news.yahoo.com/former-police-chief-defended-himself-191651050.html)
 <!-- feed end -->
