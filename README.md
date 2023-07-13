@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [Judge Uses Supreme Court’s Gay Wedding Website Ruling for Her Own Anti-LGBTQ Lawsuit](https://news.yahoo.com/judge-uses-supreme-court-gay-173000254.html)
 - Jul 13 - [A mom took out over $77,000 in student loans to send her son with autism to college. He got his debt wiped out — but she's still paying hers off with no end in sight.](https://news.yahoo.com/mom-took-over-77-000-103000160.html)
 - Jul 13 - [Army colonel gets $975,000 in sex assault case against former Joint Chiefs vice chairman](https://news.yahoo.com/army-colonel-gets-975-000-164812849.html)
 - Jul 13 - [Body Cam Catches Glimpse Inside a Seattle Police Precinct and What You’ll See Will Disgust You](https://news.yahoo.com/body-cam-catches-glimpse-inside-155904435.html)
 - Jul 13 - [Geraldo Rivera Tells ‘The View’ He Had “Toxic Relationship” With ‘The Five’ Co-Host; Will “Never Forgive” Tucker Carlson For Jan. 6th Misinformation](https://www.yahoo.com/entertainment/geraldo-rivera-tells-view-had-154713070.html)
-- Jul 13 - [TikTok-famous 'Dr. Roxy' loses medical license after livestreaming plastic surgery operations to her over 800,000 followers](https://news.yahoo.com/tiktok-famous-dr-roxy-loses-medical-license-after-livestreaming-plastic-surgery-operations-to-her-over-800000-followers-150103389.html)
 <!-- feed end -->
