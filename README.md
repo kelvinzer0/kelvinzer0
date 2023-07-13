@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [Italy rail strike strands commuters and tourists in sweltering weather at height of tourism season](https://news.yahoo.com/italy-rail-strike-strands-commuters-115250167.html)
+- Jul 13 - [Henry County chief deputy caught going 96 mph in 35 mph. His citation wasn’t for super speeding](https://news.yahoo.com/henry-county-chief-deputy-caught-113515802.html)
 - Jul 13 - [Friction and confusion among Russian leadership since mutiny -U.S. general](https://news.yahoo.com/friction-confusion-among-russian-leadership-102452858.html)
 - Jul 13 - [An American tourist who said traveling to the Amalfi coast in Italy is 'literal manual labor' is getting roasted on TikTok for not doing her research](https://www.yahoo.com/entertainment/american-tourist-said-traveling-amalfi-095333694.html)
-- Jul 13 - [Jim Jordan Stammers And Babbles During Awkward Fox News Interview](https://news.yahoo.com/jim-jordan-stammers-babbles-during-070707837.html)
-- Jul 13 - [Rupert Murdoch Bails On DeSantis, Reportedly Has New Name To Fight Trump](https://news.yahoo.com/rupert-murdoch-bails-desantis-reportedly-062345469.html)
-- Jul 13 - [Pilot says he escaped serious injury by jumping into the ocean when a New Zealand volcano erupted](https://news.yahoo.com/pilot-says-escaped-serious-injury-053316220.html)
+- Jul 13 - [NATO delivers gut punch to Putin](https://news.yahoo.com/nato-delivers-gut-punch-putin-093000103.html)
 <!-- feed end -->
