@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [Friction and confusion among Russian leadership since mutiny -U.S. general](https://news.yahoo.com/friction-confusion-among-russian-leadership-102452858.html)
+- Jul 13 - [An American tourist who said traveling to the Amalfi coast in Italy is 'literal manual labor' is getting roasted on TikTok for not doing her research](https://www.yahoo.com/entertainment/american-tourist-said-traveling-amalfi-095333694.html)
 - Jul 13 - [Jim Jordan Stammers And Babbles During Awkward Fox News Interview](https://news.yahoo.com/jim-jordan-stammers-babbles-during-070707837.html)
-- Jul 13 - [Bodies of Russian soldiers taken out of destroyed hotel in Berdiansk all night](https://news.yahoo.com/bodies-russian-soldiers-taken-destroyed-064700843.html)
 - Jul 13 - [Rupert Murdoch Bails On DeSantis, Reportedly Has New Name To Fight Trump](https://news.yahoo.com/rupert-murdoch-bails-desantis-reportedly-062345469.html)
-- Jul 13 - [Mom Seeks Advice After Her Neighbor's Child Continues Showing Up At Her Doorstep Before School Every Morning To Be Dropped Off](https://news.yahoo.com/mom-seeks-advice-her-neighbors-011500298.html)
-- Jul 13 - [McDonald's China owners Carlyle, Trustar plan $4 billion exit - Bloomberg News](https://news.yahoo.com/mcdonalds-china-owners-carlyle-trustar-005623036.html)
+- Jul 13 - [Pilot says he escaped serious injury by jumping into the ocean when a New Zealand volcano erupted](https://news.yahoo.com/pilot-says-escaped-serious-injury-053316220.html)
 <!-- feed end -->
