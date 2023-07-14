@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [JPMorgan, Wells Fargo prepare for losses on office loans](https://finance.yahoo.com/news/jpmorgan-wells-fargo-prepare-losses-145634222.html)
-- Jul 14 - [Bank results reveal stark divide as industry recovers from turmoil](https://finance.yahoo.com/news/bank-results-reveal-stark-divide-as-industry-recovers-from-turmoil-144227380.html)
+- Jul 14 - [Ex-Secret Service agent ‘not surprised’ about White House cocaine incident](https://news.yahoo.com/ex-secret-agent-not-surprised-145753050.html)
+- Jul 14 - [16 Retail Workers Share Their Experiences With The Dreaded "Nightmare Customer"](https://www.yahoo.com/lifestyle/16-retail-workers-share-experiences-144602934.html)
 - Jul 14 - [JPMorgan, Wells Fargo, Citi: Key takeaways from big bank earnings](https://finance.yahoo.com/video/jpmorgan-wells-fargo-citi-key-140502253.html)
-- Jul 14 - [JPMorgan profits, Wells Fargo earnings, stock reactions: 3 Things](https://finance.yahoo.com/video/jpmorgan-profits-wells-fargo-earnings-133924324.html)
-- Jul 14 - [Costco just planted the 'death star' on Bud Light cases — a sign that it won't restock the beer amid controversy, plummeting sales. Wild speculation or 1 more devastating blow to the brand?](https://finance.yahoo.com/news/costco-just-planted-death-star-133000145.html)
+- Jul 14 - [Ford Mustang Mach-E Rally EV to capitalize on booming off-road trend](https://finance.yahoo.com/news/ford-mustang-mach-e-rally-ev-to-capitalize-on-booming-off-road-trend-134049112.html)
+- Jul 14 - [“Borders on frivolous”: Legal experts say special counsel filing “embarrasses” Trump’s lawyers](https://news.yahoo.com/borders-frivolous-legal-experts-special-131409569.html)
 <!-- feed end -->
