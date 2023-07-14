@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Putin shows off his Grey Hair to lead Wagner into post-Prigozhin era](https://news.yahoo.com/putin-shows-off-grey-hair-173439507.html)
+- Jul 14 - [Trump “very upset” that Jared Kushner is cooperating as Jack Smith pierces his inner circle: report](https://news.yahoo.com/trump-very-upset-jared-kushner-165248838.html)
+- Jul 14 - [Putin wants to attend an August summit. Host country South Africa doesn't want to have to arrest him](https://news.yahoo.com/putin-wants-attend-august-summit-165142582.html)
 - Jul 14 - [A dad drove 17 hours from New Jersey to Disney World when his family's flight was canceled — and he didn't even step inside the parks](https://news.yahoo.com/dad-drove-17-hours-jersey-155829417.html)
-- Jul 14 - [Ex-Secret Service agent ‘not surprised’ about White House cocaine incident](https://news.yahoo.com/ex-secret-agent-not-surprised-145753050.html)
-- Jul 14 - ["There's grifting and then there's Trump grifting": Trump super PAC paid Melania $155,000](https://news.yahoo.com/theres-grifting-then-theres-trump-144933779.html)
-- Jul 14 - [16 Retail Workers Share Their Experiences With The Dreaded "Nightmare Customer"](https://www.yahoo.com/lifestyle/16-retail-workers-share-experiences-144602934.html)
-- Jul 14 - [New 2024 Lotus Emira pricing announced, and it's finally ready for the U.S.](https://www.autoblog.com/2023/07/14/new-2024-lotus-emira-priced-at-just-under-six-figures/)
+- Jul 14 - [Biden nibbles on frightened young girl during trip to Finland, weirding out Twitter users](https://news.yahoo.com/biden-nibbles-frightened-young-girl-151957742.html)
 <!-- feed end -->
