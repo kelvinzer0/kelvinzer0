@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Robert De Niro’s Grandson's Death: Suspect ARRESTED](https://www.yahoo.com/entertainment/robert-niro-grandsons-death-suspect-182954483.html)
+- Jul 14 - [Kevin McCarthy Mocked After Saying, 'We Don't Want Disneyland To Train Our Military'](https://news.yahoo.com/kevin-mccarthy-mocked-saying-dont-192840982.html)
+- Jul 14 - [Looks Like Ukraine Is Going on the Offensive With Huge Soviet Air Defense Missiles](https://news.yahoo.com/looks-ukraine-going-offensive-huge-190000222.html)
+- Jul 14 - [A Rivian owner was in a fender bender. The repair bill was $42,000.](https://news.yahoo.com/rivian-owner-fender-bender-repair-183033648.html)
 - Jul 14 - [NTSB looking at risk parked semis posed to Greyhound bus in fatal Illinois accident](https://news.yahoo.com/ntsb-looking-risk-parked-semis-181934890.html)
-- Jul 14 - [Trump asks top Georgia court to disqualify election probe prosecutor and toss grand jury report](https://news.yahoo.com/trump-asks-top-georgia-court-180351598.html)
 - Jul 14 - [This Whale Died Decades Ago. Its Carcass Is Now the Ocean’s Hottest Housing Complex.](https://news.yahoo.com/whale-died-decades-ago-carcass-180000643.html)
-- Jul 14 - [Putin shows off his Grey Hair to lead Wagner into post-Prigozhin era](https://news.yahoo.com/putin-shows-off-grey-hair-173439507.html)
 <!-- feed end -->
