@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [GOP Lawmaker's Bafflingly 'Stupid’ Argument Against Humanitarian Aid Stuns Critics](https://news.yahoo.com/gop-lawmakers-bafflingly-stupid-argument-113113560.html)
+- Jul 14 - [Russia says West is sponsoring 'nuclear terrorism' after Ukrainian drone strike](https://news.yahoo.com/russia-says-west-sponsoring-nuclear-104735707.html)
+- Jul 14 - [Be very afraid: Trump's "Agenda 47" is no joke](https://news.yahoo.com/very-afraid-trumps-agenda-47-093001633.html)
 - Jul 14 - [India's Chandrayaan-3 blasts off to the moon](https://news.yahoo.com/indias-chandrayaan-3-blasts-off-090944389.html)
 - Jul 14 - [The Sneaky Master Plan Behind Erdogan’s Sudden Split From Putin](https://news.yahoo.com/sneaky-master-plan-behind-erdogan-083626983.html)
-- Jul 14 - [Jamie Dimon says employees can go work somewhere else if they don't like long commutes into the office](https://news.yahoo.com/jpmorgans-jamie-dimon-says-totally-080056319.html)
-- Jul 14 - [Democratic Lawmaker Tells Matt Gaetz Off To His Face On House Floor](https://news.yahoo.com/democratic-lawmaker-tells-matt-gaetz-053548219.html)
-- Jul 14 - [South Indian woman shares ‘controversial’ opinion about colorism within the Desi community](https://news.yahoo.com/south-indian-woman-shares-controversial-004649755.html)
 <!-- feed end -->
