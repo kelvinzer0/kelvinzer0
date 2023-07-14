@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [JPMorgan, Wells Fargo prepare for losses on office loans](https://finance.yahoo.com/news/jpmorgan-wells-fargo-prepare-losses-145634222.html)
+- Jul 14 - [Bank results reveal stark divide as industry recovers from turmoil](https://finance.yahoo.com/news/bank-results-reveal-stark-divide-as-industry-recovers-from-turmoil-144227380.html)
 - Jul 14 - [JPMorgan, Wells Fargo, Citi: Key takeaways from big bank earnings](https://finance.yahoo.com/video/jpmorgan-wells-fargo-citi-key-140502253.html)
+- Jul 14 - [JPMorgan profits, Wells Fargo earnings, stock reactions: 3 Things](https://finance.yahoo.com/video/jpmorgan-profits-wells-fargo-earnings-133924324.html)
 - Jul 14 - [Costco just planted the 'death star' on Bud Light cases — a sign that it won't restock the beer amid controversy, plummeting sales. Wild speculation or 1 more devastating blow to the brand?](https://finance.yahoo.com/news/costco-just-planted-death-star-133000145.html)
-- Jul 14 - [GOP Lawmaker's Bafflingly 'Stupid’ Argument Against Humanitarian Aid Stuns Critics](https://news.yahoo.com/gop-lawmakers-bafflingly-stupid-argument-113113560.html)
-- Jul 14 - [Russia says West is sponsoring 'nuclear terrorism' after Ukrainian drone strike](https://news.yahoo.com/russia-says-west-sponsoring-nuclear-104735707.html)
-- Jul 14 - [Be very afraid: Trump's "Agenda 47" is no joke](https://news.yahoo.com/very-afraid-trumps-agenda-47-093001633.html)
 <!-- feed end -->
