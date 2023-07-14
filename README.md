@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Ukraine may be close to surpassing Russia in active tank numbers, but Russia has a near endless supply of Soviet tanks in storage, military experts say](https://news.yahoo.com/ukraine-may-close-surpassing-russia-002451177.html)
-- Jul 14 - [Lisa Marie Presley died of a small bowel obstruction, coroner rules 6 months after her death](https://www.yahoo.com/entertainment/lisa-marie-presley-cause-of-death-small-bowel-obstruction-coroner-000938514.html)
+- Jul 14 - [South Indian woman shares ‘controversial’ opinion about colorism within the Desi community](https://news.yahoo.com/south-indian-woman-shares-controversial-004649755.html)
+- Jul 13 - [Texas Gov. Greg Abbott deploys additional state troopers to Austin after city suspends partnership](https://news.yahoo.com/texas-gov-greg-abbott-deploys-231615742.html)
 - Jul 13 - [The Potentially Deadly Mistake People Make When Returning From Vacation](https://www.yahoo.com/lifestyle/potentially-deadly-mistake-people-returning-221603787.html)
 - Jul 13 - [New York college student suffers spinal injury while lifeguarding in California](https://news.yahoo.com/york-college-student-suffers-spinal-220718560.html)
 - Jul 13 - [Republican Who's Holding Up Military Promotions Over Abortion Finally Calls Back Defense Secretary](https://news.yahoo.com/republican-whos-holding-military-promotions-214500802.html)
