@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Charles Barkley Delivers an Outspoken Take on the Bud Light Controversy](https://www.thestreet.com/sports/charles-barkley-delivers-an-outspoken-take-on-the-bud-light-controversy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jul 14 - [This is what happens when attorneys go along with Kari Lake's election delusions](https://news.yahoo.com/happens-attorneys-along-kari-lakes-193553046.html)
 - Jul 14 - [Kevin McCarthy Mocked After Saying, 'We Don't Want Disneyland To Train Our Military'](https://news.yahoo.com/kevin-mccarthy-mocked-saying-dont-192840982.html)
 - Jul 14 - [Looks Like Ukraine Is Going on the Offensive With Huge Soviet Air Defense Missiles](https://news.yahoo.com/looks-ukraine-going-offensive-huge-190000222.html)
 - Jul 14 - [A Rivian owner was in a fender bender. The repair bill was $42,000.](https://news.yahoo.com/rivian-owner-fender-bender-repair-183033648.html)
-- Jul 14 - [NTSB looking at risk parked semis posed to Greyhound bus in fatal Illinois accident](https://news.yahoo.com/ntsb-looking-risk-parked-semis-181934890.html)
-- Jul 14 - [This Whale Died Decades Ago. Its Carcass Is Now the Ocean’s Hottest Housing Complex.](https://news.yahoo.com/whale-died-decades-ago-carcass-180000643.html)
 <!-- feed end -->
