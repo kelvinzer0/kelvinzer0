@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [JPMorgan, Wells Fargo, Citi: Key takeaways from big bank earnings](https://finance.yahoo.com/video/jpmorgan-wells-fargo-citi-key-140502253.html)
+- Jul 14 - [Costco just planted the 'death star' on Bud Light cases — a sign that it won't restock the beer amid controversy, plummeting sales. Wild speculation or 1 more devastating blow to the brand?](https://finance.yahoo.com/news/costco-just-planted-death-star-133000145.html)
 - Jul 14 - [GOP Lawmaker's Bafflingly 'Stupid’ Argument Against Humanitarian Aid Stuns Critics](https://news.yahoo.com/gop-lawmakers-bafflingly-stupid-argument-113113560.html)
 - Jul 14 - [Russia says West is sponsoring 'nuclear terrorism' after Ukrainian drone strike](https://news.yahoo.com/russia-says-west-sponsoring-nuclear-104735707.html)
 - Jul 14 - [Be very afraid: Trump's "Agenda 47" is no joke](https://news.yahoo.com/very-afraid-trumps-agenda-47-093001633.html)
-- Jul 14 - [India's Chandrayaan-3 blasts off to the moon](https://news.yahoo.com/indias-chandrayaan-3-blasts-off-090944389.html)
-- Jul 14 - [The Sneaky Master Plan Behind Erdogan’s Sudden Split From Putin](https://news.yahoo.com/sneaky-master-plan-behind-erdogan-083626983.html)
 <!-- feed end -->
