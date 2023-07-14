@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Robert De Niro’s Grandson's Death: Suspect ARRESTED](https://www.yahoo.com/entertainment/robert-niro-grandsons-death-suspect-182954483.html)
+- Jul 14 - [NTSB looking at risk parked semis posed to Greyhound bus in fatal Illinois accident](https://news.yahoo.com/ntsb-looking-risk-parked-semis-181934890.html)
+- Jul 14 - [Trump asks top Georgia court to disqualify election probe prosecutor and toss grand jury report](https://news.yahoo.com/trump-asks-top-georgia-court-180351598.html)
+- Jul 14 - [This Whale Died Decades Ago. Its Carcass Is Now the Ocean’s Hottest Housing Complex.](https://news.yahoo.com/whale-died-decades-ago-carcass-180000643.html)
 - Jul 14 - [Putin shows off his Grey Hair to lead Wagner into post-Prigozhin era](https://news.yahoo.com/putin-shows-off-grey-hair-173439507.html)
-- Jul 14 - [Trump “very upset” that Jared Kushner is cooperating as Jack Smith pierces his inner circle: report](https://news.yahoo.com/trump-very-upset-jared-kushner-165248838.html)
-- Jul 14 - [Putin wants to attend an August summit. Host country South Africa doesn't want to have to arrest him](https://news.yahoo.com/putin-wants-attend-august-summit-165142582.html)
-- Jul 14 - [A dad drove 17 hours from New Jersey to Disney World when his family's flight was canceled — and he didn't even step inside the parks](https://news.yahoo.com/dad-drove-17-hours-jersey-155829417.html)
-- Jul 14 - [Biden nibbles on frightened young girl during trip to Finland, weirding out Twitter users](https://news.yahoo.com/biden-nibbles-frightened-young-girl-151957742.html)
 <!-- feed end -->
