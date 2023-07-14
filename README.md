@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [India's Chandrayaan-3 blasts off to the moon](https://news.yahoo.com/indias-chandrayaan-3-blasts-off-090944389.html)
 - Jul 14 - [The Sneaky Master Plan Behind Erdogan’s Sudden Split From Putin](https://news.yahoo.com/sneaky-master-plan-behind-erdogan-083626983.html)
+- Jul 14 - [Jamie Dimon says employees can go work somewhere else if they don't like long commutes into the office](https://news.yahoo.com/jpmorgans-jamie-dimon-says-totally-080056319.html)
 - Jul 14 - [Democratic Lawmaker Tells Matt Gaetz Off To His Face On House Floor](https://news.yahoo.com/democratic-lawmaker-tells-matt-gaetz-053548219.html)
 - Jul 14 - [South Indian woman shares ‘controversial’ opinion about colorism within the Desi community](https://news.yahoo.com/south-indian-woman-shares-controversial-004649755.html)
-- Jul 13 - [Texas Gov. Greg Abbott deploys additional state troopers to Austin after city suspends partnership](https://news.yahoo.com/texas-gov-greg-abbott-deploys-231615742.html)
-- Jul 13 - [A stray bullet hit a woman lying in bed. A federal judge dismissed her lawsuit against police](https://news.yahoo.com/stray-bullet-hits-woman-lying-230818192.html)
 <!-- feed end -->
