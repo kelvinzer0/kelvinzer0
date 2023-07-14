@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 14 - [WHO cancer arm deems aspartame 'possible carcinogen'](https://news.yahoo.com/cancer-arm-deems-aspartame-possible-055656094.html)
 - Jul 14 - [Democratic Lawmaker Tells Matt Gaetz Off To His Face On House Floor](https://news.yahoo.com/democratic-lawmaker-tells-matt-gaetz-053548219.html)
+- Jul 14 - [Pennsylvania man who allegedly tried to abduct teen girl at mall had 28-page rap sheet](https://news.yahoo.com/pennsylvania-man-allegedly-tried-abduct-015109693.html)
 - Jul 14 - [South Indian woman shares ‘controversial’ opinion about colorism within the Desi community](https://news.yahoo.com/south-indian-woman-shares-controversial-004649755.html)
 - Jul 13 - [Texas Gov. Greg Abbott deploys additional state troopers to Austin after city suspends partnership](https://news.yahoo.com/texas-gov-greg-abbott-deploys-231615742.html)
-- Jul 13 - [Here’s what Kushner’s testimony reveals about special counsel investigation](https://news.yahoo.com/kushner-testimony-reveals-special-counsel-222516122.html)
 <!-- feed end -->
