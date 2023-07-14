@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Mexico files border boundaries complaint over Texas' floating barrier plan on Rio Grande](https://news.yahoo.com/mexico-files-border-boundaries-complaint-224230069.html)
+- Jul 14 - [Authorities say escaped homicide suspect may be getting desperate living in wilderness](https://news.yahoo.com/authorities-escaped-homicide-suspect-may-215457896.html)
 - Jul 14 - [Charlie Kirk Says Michelle Obama Among Black Women Who 'Steal A White Person's Slot'](https://news.yahoo.com/charlie-kirk-says-michelle-obama-212205680.html)
 - Jul 14 - [Mexico says Texan buoys in Rio Grande breach water treaty](https://news.yahoo.com/mexico-says-texan-buoys-rio-210116722.html)
 - Jul 14 - [Accused drug dealer sold 50 fentanyl-laced pills to undercover cop after Robert De Niro's grandson died in overdose, indictment says](https://www.yahoo.com/entertainment/accused-drug-dealer-sold-50-204119198.html)
-- Jul 14 - [Charles Barkley Delivers an Outspoken Take on the Bud Light Controversy](https://www.thestreet.com/sports/charles-barkley-delivers-an-outspoken-take-on-the-bud-light-controversy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jul 14 - [Wisconsin Man Sentenced for Hiding 'Dukes of Hazzard' General Lee Replica](https://news.yahoo.com/wisconsin-man-sentenced-hiding-dukes-201522036.html)
 <!-- feed end -->
