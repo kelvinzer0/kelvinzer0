@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Democratic Colleague Burns Rep. Marjorie Taylor Greene's Speech With 4-Word Request](https://news.yahoo.com/democratic-colleague-burns-rep-marjorie-222643720.html)
-- Jul 13 - [Oklahoma murder conviction reversed due to sexual relationship between judge, prosecutor](https://news.yahoo.com/oklahoma-murder-conviction-reversed-due-205048208.html)
-- Jul 13 - [US resists calls by Trump to postpone trial in classified documents case](https://news.yahoo.com/us-resists-calls-trump-postpone-204619762.html)
-- Jul 13 - [Defense attorney in Hawaii love triangle murder trial says acupuncturist cheated with multiple women](https://news.yahoo.com/defense-attorney-hawaii-love-triangle-200815278.html)
-- Jul 13 - [Russian general’s outburst is an earthquake for Vladimir Putin](https://news.yahoo.com/russian-general-outburst-earthquake-vladimir-103604574.html)
+- Jul 14 - [Ukraine may be close to surpassing Russia in active tank numbers, but Russia has a near endless supply of Soviet tanks in storage, military experts say](https://news.yahoo.com/ukraine-may-close-surpassing-russia-002451177.html)
+- Jul 14 - [Lisa Marie Presley died of a small bowel obstruction, coroner rules 6 months after her death](https://www.yahoo.com/entertainment/lisa-marie-presley-cause-of-death-small-bowel-obstruction-coroner-000938514.html)
+- Jul 13 - [The Potentially Deadly Mistake People Make When Returning From Vacation](https://www.yahoo.com/lifestyle/potentially-deadly-mistake-people-returning-221603787.html)
+- Jul 13 - [New York college student suffers spinal injury while lifeguarding in California](https://news.yahoo.com/york-college-student-suffers-spinal-220718560.html)
+- Jul 13 - [Republican Who's Holding Up Military Promotions Over Abortion Finally Calls Back Defense Secretary](https://news.yahoo.com/republican-whos-holding-military-promotions-214500802.html)
 <!-- feed end -->
