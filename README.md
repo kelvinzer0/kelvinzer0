@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [WHO cancer arm deems aspartame 'possible carcinogen'](https://news.yahoo.com/cancer-arm-deems-aspartame-possible-055656094.html)
+- Jul 14 - [Democratic Lawmaker Tells Matt Gaetz Off To His Face On House Floor](https://news.yahoo.com/democratic-lawmaker-tells-matt-gaetz-053548219.html)
 - Jul 14 - [South Indian woman shares ‘controversial’ opinion about colorism within the Desi community](https://news.yahoo.com/south-indian-woman-shares-controversial-004649755.html)
 - Jul 13 - [Texas Gov. Greg Abbott deploys additional state troopers to Austin after city suspends partnership](https://news.yahoo.com/texas-gov-greg-abbott-deploys-231615742.html)
 - Jul 13 - [Here’s what Kushner’s testimony reveals about special counsel investigation](https://news.yahoo.com/kushner-testimony-reveals-special-counsel-222516122.html)
-- Jul 13 - [The Potentially Deadly Mistake People Make When Returning From Vacation](https://www.yahoo.com/lifestyle/potentially-deadly-mistake-people-returning-221603787.html)
-- Jul 13 - [New York college student suffers spinal injury while lifeguarding in California](https://news.yahoo.com/york-college-student-suffers-spinal-220718560.html)
 <!-- feed end -->
