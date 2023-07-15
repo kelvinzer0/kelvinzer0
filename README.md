@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [The submersible that first took humans to the Titanic wreck has made more than 5,000 dives. A researcher who has been on the Alvin 53 times says it's nothing like the Titan.](https://news.yahoo.com/submersible-first-took-humans-titanic-135400867.html)
+- Jul 15 - [An irate Tucker Carlson in heated clash with Mike Pence over US support Ukraine, former VP jabs back](https://news.yahoo.com/irate-tucker-carlson-heated-clash-131804194.html)
 - Jul 15 - [Russia’s State TV Hacked: Millions Told “The Hour Of Reckoning Has Come” – In Ukrainian](https://www.yahoo.com/entertainment/russia-state-tv-hacked-millions-113800186.html)
 - Jul 15 - ["Shrinkflation" Has Gone Too Far — Here Are 19 Items That Are No Longer A Bang For Your Buck](https://www.yahoo.com/lifestyle/shrinkflation-gone-too-far-19-101603851.html)
 - Jul 15 - [‘I want to be left alone’: 93-year-old Hilton Head Island woman is in a legal battle over her family’s land](https://news.yahoo.com/want-left-alone-93-old-080503565.html)
-- Jul 15 - [Server Arrested For Theft After Refusing To Pay A Table's $100 Restaurant Bill When They Dined & Dashed](https://news.yahoo.com/server-arrested-theft-refusing-pay-061500379.html)
-- Jul 15 - [Tesla’s new patent could completely revolutionize vehicle interiors — here’s what the company wants to change](https://news.yahoo.com/tesla-patent-could-completely-revolutionize-050000854.html)
 <!-- feed end -->
