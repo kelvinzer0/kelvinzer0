@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [In-N-Out Burger Adds Controversial New 'Customer Service' Policy](https://www.thestreet.com/restaurants/in-n-out-burger-adds-controversial-new-customer-service-policy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jul 15 - [She's 47, anorexic and wants help dying. Canada will soon allow it](https://news.yahoo.com/shes-47-anorexic-wants-help-153625530.html)
+- Jul 15 - [Tesla builds first Cybertruck after two years of delays](https://finance.yahoo.com/news/tesla-builds-first-cybertruck-two-151614502.html)
 - Jul 15 - [The submersible that first took humans to the Titanic wreck has made more than 5,000 dives. A researcher who has been on the Alvin 53 times says it's nothing like the Titan.](https://news.yahoo.com/submersible-first-took-humans-titanic-135400867.html)
 - Jul 15 - [An irate Tucker Carlson in heated clash with Mike Pence over US support Ukraine, former VP jabs back](https://news.yahoo.com/irate-tucker-carlson-heated-clash-131804194.html)
-- Jul 15 - [Russia’s State TV Hacked: Millions Told “The Hour Of Reckoning Has Come” – In Ukrainian](https://www.yahoo.com/entertainment/russia-state-tv-hacked-millions-113800186.html)
-- Jul 15 - ["Shrinkflation" Has Gone Too Far — Here Are 19 Items That Are No Longer A Bang For Your Buck](https://www.yahoo.com/lifestyle/shrinkflation-gone-too-far-19-101603851.html)
-- Jul 15 - [‘I want to be left alone’: 93-year-old Hilton Head Island woman is in a legal battle over her family’s land](https://news.yahoo.com/want-left-alone-93-old-080503565.html)
 <!-- feed end -->
