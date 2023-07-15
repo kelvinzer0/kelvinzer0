@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Jul 15 - [Successful drug dealers in San Francisco can make as much as $350K a year, per a new report — more than the average senior software engineer at Google](https://news.yahoo.com/successful-drug-dealers-san-francisco-032717344.html)
 - Jul 15 - [Warren Buffett's wife Astrid is overheard complaining about a $4 cup of coffee at 'summer camp for billionaires' in Sun Valley, report says](https://finance.yahoo.com/news/warren-buffetts-wife-astrid-overheard-172355739.html)
 - Jul 15 - [Kevin Costner to live at his $145 million Santa Barbara compound and his estranged wife will get a 6-figure child support payment for now. It's a perfect opportunity for the ex-couple to settle the messy divorce, legal experts say](https://www.yahoo.com/entertainment/kevin-costner-live-145-million-010213700.html)
-- Jul 14 - [Vegas could break heat record as tens of millions across US endure scorching temperatures](https://news.yahoo.com/heat-wave-could-break-vegas-231857658.html)
+- Jul 14 - [George Will: Trump and DeSantis will be GOP primary losers](https://news.yahoo.com/george-trump-desantis-gop-primary-231912124.html)
 <!-- feed end -->
