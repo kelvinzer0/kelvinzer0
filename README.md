@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [Warren Buffett's wife Astrid is overheard complaining about a $4 cup of coffee at 'summer camp for billionaires' in Sun Valley, report says](https://finance.yahoo.com/news/warren-buffetts-wife-astrid-overheard-172355739.html)
+- Jul 14 - [George Will: Trump and DeSantis will be GOP primary losers](https://news.yahoo.com/george-trump-desantis-gop-primary-231912124.html)
+- Jul 14 - [Vegas could break heat record as tens of millions across US endure scorching temperatures](https://news.yahoo.com/heat-wave-could-break-vegas-231857658.html)
+- Jul 14 - [President Biden authorizes call-up of 3,000 reserve troops in support of Operation Atlantic Resolve](https://news.yahoo.com/president-biden-authorizes-call-3-231652302.html)
 - Jul 14 - [Mexico files border boundaries complaint over Texas' floating barrier plan on Rio Grande](https://news.yahoo.com/mexico-files-border-boundaries-complaint-224230069.html)
-- Jul 14 - [Authorities say escaped homicide suspect may be getting desperate living in wilderness](https://news.yahoo.com/authorities-escaped-homicide-suspect-may-215457896.html)
-- Jul 14 - [Charlie Kirk Says Michelle Obama Among Black Women Who 'Steal A White Person's Slot'](https://news.yahoo.com/charlie-kirk-says-michelle-obama-212205680.html)
-- Jul 14 - [Mexico says Texan buoys in Rio Grande breach water treaty](https://news.yahoo.com/mexico-says-texan-buoys-rio-210116722.html)
-- Jul 14 - [Accused drug dealer sold 50 fentanyl-laced pills to undercover cop after Robert De Niro's grandson died in overdose, indictment says](https://www.yahoo.com/entertainment/accused-drug-dealer-sold-50-204119198.html)
 <!-- feed end -->
