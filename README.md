@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [Jack the Ripper's identity 'revealed' by newly discovered medical records](https://news.yahoo.com/jack-rippers-identity-revealed-newly-172321344.html)
+- Jul 15 - [An otter in California that keeps bullying people off of their surfboards has been too quick for wildlife officials to catch](https://news.yahoo.com/otter-california-keeps-bullying-people-162935034.html)
+- Jul 15 - [Tesla’s Texas factory has produced its first Cybertruck](https://news.yahoo.com/teslas-texas-factory-has-produced-its-first-cybertruck-161840934.html)
+- Jul 15 - [Man calmly videos cougar walking past him; ‘I had bear spray ready’](https://sports.yahoo.com/man-calmly-videos-cougar-walking-160135540.html)
 - Jul 15 - [In-N-Out Burger Adds Controversial New 'Customer Service' Policy](https://www.thestreet.com/restaurants/in-n-out-burger-adds-controversial-new-customer-service-policy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jul 15 - [She's 47, anorexic and wants help dying. Canada will soon allow it](https://news.yahoo.com/shes-47-anorexic-wants-help-153625530.html)
-- Jul 15 - [Tesla builds first Cybertruck after two years of delays](https://finance.yahoo.com/news/tesla-builds-first-cybertruck-two-151614502.html)
-- Jul 15 - [The submersible that first took humans to the Titanic wreck has made more than 5,000 dives. A researcher who has been on the Alvin 53 times says it's nothing like the Titan.](https://news.yahoo.com/submersible-first-took-humans-titanic-135400867.html)
-- Jul 15 - [An irate Tucker Carlson in heated clash with Mike Pence over US support Ukraine, former VP jabs back](https://news.yahoo.com/irate-tucker-carlson-heated-clash-131804194.html)
 <!-- feed end -->
