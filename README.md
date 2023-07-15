@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [Russia’s State TV Hacked: Millions Told “The Hour Of Reckoning Has Come” – In Ukrainian](https://www.yahoo.com/entertainment/russia-state-tv-hacked-millions-113800186.html)
+- Jul 15 - ["Shrinkflation" Has Gone Too Far — Here Are 19 Items That Are No Longer A Bang For Your Buck](https://www.yahoo.com/lifestyle/shrinkflation-gone-too-far-19-101603851.html)
+- Jul 15 - [‘I want to be left alone’: 93-year-old Hilton Head Island woman is in a legal battle over her family’s land](https://news.yahoo.com/want-left-alone-93-old-080503565.html)
 - Jul 15 - [Server Arrested For Theft After Refusing To Pay A Table's $100 Restaurant Bill When They Dined & Dashed](https://news.yahoo.com/server-arrested-theft-refusing-pay-061500379.html)
-- Jul 15 - [Warren Buffett's wife Astrid is overheard complaining about a $4 cup of coffee at 'summer camp for billionaires' in Sun Valley, report says](https://finance.yahoo.com/news/warren-buffetts-wife-astrid-overheard-172355739.html)
-- Jul 15 - [Kevin Costner to live at his $145 million Santa Barbara compound and his estranged wife will get a 6-figure child support payment for now. It's a perfect opportunity for the ex-couple to settle the messy divorce, legal experts say](https://www.yahoo.com/entertainment/kevin-costner-live-145-million-010213700.html)
-- Jul 14 - [George Will: Trump and DeSantis will be GOP primary losers](https://news.yahoo.com/george-trump-desantis-gop-primary-231912124.html)
-- Jul 14 - [President Biden authorizes call-up of 3,000 reserve troops in support of Operation Atlantic Resolve](https://news.yahoo.com/president-biden-authorizes-call-3-231652302.html)
+- Jul 15 - [Tesla’s new patent could completely revolutionize vehicle interiors — here’s what the company wants to change](https://news.yahoo.com/tesla-patent-could-completely-revolutionize-050000854.html)
 <!-- feed end -->
