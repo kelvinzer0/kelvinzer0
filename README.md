@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [‘It’s Not Fair’: Florida Vocal Coach Turned Capitol Rioter Gets 6 Years](https://news.yahoo.com/not-fair-florida-vocal-coach-211902579.html)
+- Jul 15 - [Trump says it was 'probably' a mistake to have nominated Christopher Wray to lead the FBI and blames Chris Christie for recommending him](https://news.yahoo.com/trump-says-probably-mistake-nominated-195222250.html)
 - Jul 15 - [Nearly a third of the Bradley armored vehicles the US provided Ukraine may have already been lost or damaged](https://news.yahoo.com/nearly-third-bradley-armored-vehicles-194853435.html)
 - Jul 15 - [Jack the Ripper's identity 'revealed' by newly discovered medical records](https://news.yahoo.com/jack-rippers-identity-revealed-newly-172321344.html)
-- Jul 15 - [An otter in California that keeps bullying people off of their surfboards has been too quick for wildlife officials to catch](https://news.yahoo.com/otter-california-keeps-bullying-people-162935034.html)
 - Jul 15 - [Tesla’s Texas factory has produced its first Cybertruck](https://news.yahoo.com/teslas-texas-factory-has-produced-its-first-cybertruck-161840934.html)
-- Jul 15 - [Man calmly videos cougar walking past him; ‘I had bear spray ready’](https://sports.yahoo.com/man-calmly-videos-cougar-walking-160135540.html)
 <!-- feed end -->
