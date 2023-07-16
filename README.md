@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [Alabama woman returns home following disappearance and search after reporting child on interstate](https://news.yahoo.com/alabama-woman-returns-home-following-063832072.html)
+- Jul 16 - [Chris Wallace Swiftly Pulls Brakes On RNC Chair's Biden Vacation Concerns](https://news.yahoo.com/chris-wallace-swiftly-pulls-brakes-062720002.html)
 - Jul 16 - [Alabama police locate missing woman who reported toddler walking on the highway](https://news.yahoo.com/alabama-woman-goes-missing-reporting-161213228.html)
 - Jul 16 - [The winning numbers have been drawn for the 3rd largest Powerball jackpot ever at $875 million](https://news.yahoo.com/winning-numbers-drawn-3rd-largest-031503376.html)
 - Jul 16 - [‘Ridiculous’: GOP strategist reacts to Trump’s claim in Fox News interview](https://news.yahoo.com/trump-calls-christie-sad-case-003257366.html)
-- Jul 16 - [Federal judge rules Oregon’s tough new gun law is constitutional](https://news.yahoo.com/federal-judge-rules-oregon-tough-011750148.html)
-- Jul 15 - [Prostitutes & Bears: Sting Op Snared Big-Game Hunting Scheme](https://news.yahoo.com/chinese-national-charged-bonkers-alaskan-233049735.html)
 <!-- feed end -->
