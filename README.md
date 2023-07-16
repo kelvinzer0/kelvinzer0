@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [Pa. couple who helped nab survivalist inmate said they knew him immediately when they spotted him 'camping' near property](https://news.yahoo.com/pa-couple-helped-nab-survivalist-195527161.html)
 - Jul 16 - [Marjorie Taylor Greene Warns Biden Wants to ‘Address’ Problems like ‘Medical Care’ and ‘Rural Poverty’ (Video)](https://www.yahoo.com/entertainment/marjorie-taylor-greene-warns-biden-192022940.html)
-- Jul 16 - [Couple checking out barking dog leads to encounter with escapee, his recapture](https://news.yahoo.com/couple-checking-barking-dog-leads-185638514.html)
-- Jul 16 - [A Greek priest was arrested for anointing the genitals of a tourist with holy oil and claims he did it because the man had a rash: report](https://news.yahoo.com/greek-priest-arrested-anointing-genitals-162949482.html)
+- Jul 16 - [Russia's economy has gone from bad to worse in a matter of months. Here's where the country is feeling pain the most.](https://finance.yahoo.com/news/russias-economy-gone-bad-worse-183000775.html)
 - Jul 16 - [A teenage tourist is under investigation after she was filmed defacing Rome's Colosseum by a tour guide who said her parents told him: 'She's just a little girl'](https://news.yahoo.com/teenage-tourist-under-investigation-she-160614526.html)
-- Jul 16 - ['Problems have escaped': Crime in this liberal city is now spreading to one of the richest neighborhoods in US](https://news.yahoo.com/problems-escaped-crime-liberal-city-160512924.html)
+- Jul 16 - [QAnon Shaman, who pleaded guilty and made a heartfelt apology in Jan. 6 case, has changed his mind and wants his plea reversed](https://news.yahoo.com/qanon-shaman-pleaded-guilty-made-160505117.html)
 <!-- feed end -->
