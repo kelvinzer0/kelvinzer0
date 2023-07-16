@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [Family reports body of missing Ohio State graduate found near quarry](https://news.yahoo.com/family-reports-body-missing-ohio-210342153.html)
+- Jul 16 - [Donald Trump’s Hints About A Potential 2024 Running Mate Proves He’s Willing to Settle for Allies](https://www.yahoo.com/entertainment/donald-trump-hints-potential-2024-204000353.html)
 - Jul 16 - [Pa. couple who helped nab survivalist inmate said they knew him immediately when they spotted him 'camping' near property](https://news.yahoo.com/pa-couple-helped-nab-survivalist-195527161.html)
-- Jul 16 - [Marjorie Taylor Greene Warns Biden Wants to ‘Address’ Problems like ‘Medical Care’ and ‘Rural Poverty’ (Video)](https://www.yahoo.com/entertainment/marjorie-taylor-greene-warns-biden-192022940.html)
+- Jul 16 - [A scuba diver found a woman's $9,500 wedding ring after she lost it in a 45-foot-deep California lake](https://news.yahoo.com/scuba-diver-found-womans-9-183330072.html)
 - Jul 16 - [Russia's economy has gone from bad to worse in a matter of months. Here's where the country is feeling pain the most.](https://finance.yahoo.com/news/russias-economy-gone-bad-worse-183000775.html)
-- Jul 16 - [A teenage tourist is under investigation after she was filmed defacing Rome's Colosseum by a tour guide who said her parents told him: 'She's just a little girl'](https://news.yahoo.com/teenage-tourist-under-investigation-she-160614526.html)
-- Jul 16 - [QAnon Shaman, who pleaded guilty and made a heartfelt apology in Jan. 6 case, has changed his mind and wants his plea reversed](https://news.yahoo.com/qanon-shaman-pleaded-guilty-made-160505117.html)
 <!-- feed end -->
