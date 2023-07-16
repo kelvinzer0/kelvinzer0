@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [Donald Trump's nightmare golf shank caught on camera, and it's embarrassing](https://news.yahoo.com/donald-trumps-nightmare-golf-shank-112738551.html)
+- Jul 16 - [Humans have pumped so much groundwater from the Earth that it's actually caused the planet's axis to shift, a new study found](https://news.yahoo.com/humans-pumped-much-groundwater-earth-090500259.html)
 - Jul 16 - [Diversify or die: San Francisco’s downtown is a wake-up call for other cities](https://news.yahoo.com/diversify-die-san-francisco-downtown-081502182.html)
-- Jul 16 - [Powerball prize jumps to an estimated $900 million after no jackpot winners Saturday](https://news.yahoo.com/winning-numbers-drawn-3rd-largest-031503376.html)
 - Jul 16 - [No more uncertainty in Russia's stance regarding Wagner Group after mutiny attempt – UK Intelligence](https://news.yahoo.com/no-more-uncertainty-russias-stance-065050371.html)
-- Jul 16 - [Chris Wallace Swiftly Pulls Brakes On RNC Chair's Biden Vacation Concerns](https://news.yahoo.com/chris-wallace-swiftly-pulls-brakes-062720002.html)
-- Jul 16 - [Alabama police locate missing woman who reported toddler walking on the highway](https://news.yahoo.com/alabama-woman-goes-missing-reporting-161213228.html)
+- Jul 16 - [2,000-year-old human skulls, oil lamps, and bronze daggers reveal possible necromancer's portal to the underworld in Jerusalem](https://news.yahoo.com/2-000-old-human-skulls-063737438.html)
 <!-- feed end -->
