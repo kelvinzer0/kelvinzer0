@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [London's new 'super sewer' to end Thames pollution blight](https://news.yahoo.com/londons-super-sewer-end-thames-154353702.html)
+- Jul 16 - [Apple’s first M3 Macs could arrive in October](https://news.yahoo.com/apples-first-m3-macs-could-arrive-in-october-163204526.html)
+- Jul 16 - [QAnon Shaman, who pleaded guilty and made a heartfelt apology in Jan. 6 case, has changed his mind and wants his plea reversed](https://news.yahoo.com/qanon-shaman-pleaded-guilty-made-160505117.html)
 - Jul 16 - [Pacific Ocean ‘castaway’ survives on raw fish and rainwater for two months](https://news.yahoo.com/pacific-ocean-castaway-survives-raw-150755744.html)
 - Jul 16 - [Trump praises judge overseeing his classified documents case, saying she ‘loves our country’](https://news.yahoo.com/trump-praises-judge-overseeing-classified-150618578.html)
 - Jul 16 - [Oil worker says he was fired for saving a moose calf from being eaten by a black bear, report says](https://news.yahoo.com/oil-worker-says-fired-saving-150038443.html)
-- Jul 16 - [Ukrainian units are leaving behind their Western tanks and advancing slowly on foot after coming up against dense Russian minefields, report says](https://news.yahoo.com/ukrainian-units-leaving-behind-western-142342010.html)
 <!-- feed end -->
