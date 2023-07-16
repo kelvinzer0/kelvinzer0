@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Alabama woman returns home following disappearance and search after reporting child on interstate](https://news.yahoo.com/alabama-woman-returns-home-following-063832072.html)
+- Jul 16 - [Diversify or die: San Francisco’s downtown is a wake-up call for other cities](https://news.yahoo.com/diversify-die-san-francisco-downtown-081502182.html)
+- Jul 16 - [Powerball prize jumps to an estimated $900 million after no jackpot winners Saturday](https://news.yahoo.com/winning-numbers-drawn-3rd-largest-031503376.html)
 - Jul 16 - [Chris Wallace Swiftly Pulls Brakes On RNC Chair's Biden Vacation Concerns](https://news.yahoo.com/chris-wallace-swiftly-pulls-brakes-062720002.html)
 - Jul 16 - [Alabama police locate missing woman who reported toddler walking on the highway](https://news.yahoo.com/alabama-woman-goes-missing-reporting-161213228.html)
-- Jul 16 - [The winning numbers have been drawn for the 3rd largest Powerball jackpot ever at $875 million](https://news.yahoo.com/winning-numbers-drawn-3rd-largest-031503376.html)
 - Jul 16 - [‘Ridiculous’: GOP strategist reacts to Trump’s claim in Fox News interview](https://news.yahoo.com/trump-calls-christie-sad-case-003257366.html)
 <!-- feed end -->
