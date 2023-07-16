@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Apple’s first M3 Macs could arrive in October](https://news.yahoo.com/apples-first-m3-macs-could-arrive-in-october-163204526.html)
+- Jul 16 - [A Greek priest was arrested for anointing the genitals of a tourist with holy oil and claims he did it because the man had a rash: report](https://news.yahoo.com/greek-priest-arrested-anointing-genitals-162949482.html)
+- Jul 16 - [A teenage tourist is under investigation after she was filmed defacing Rome's Colosseum by a tour guide who said her parents told him: 'She's just a little girl'](https://news.yahoo.com/teenage-tourist-under-investigation-she-160614526.html)
 - Jul 16 - [QAnon Shaman, who pleaded guilty and made a heartfelt apology in Jan. 6 case, has changed his mind and wants his plea reversed](https://news.yahoo.com/qanon-shaman-pleaded-guilty-made-160505117.html)
+- Jul 16 - [First hearing in Trump's classified documents case set for Tuesday in Florida](https://news.yahoo.com/first-hearing-trumps-classified-documents-154028854.html)
 - Jul 16 - [Pacific Ocean ‘castaway’ survives on raw fish and rainwater for two months](https://news.yahoo.com/pacific-ocean-castaway-survives-raw-150755744.html)
-- Jul 16 - [Trump praises judge overseeing his classified documents case, saying she ‘loves our country’](https://news.yahoo.com/trump-praises-judge-overseeing-classified-150618578.html)
-- Jul 16 - [Oil worker says he was fired for saving a moose calf from being eaten by a black bear, report says](https://news.yahoo.com/oil-worker-says-fired-saving-150038443.html)
 <!-- feed end -->
