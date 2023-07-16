@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [As U.S. crosses Putin’s red lines, NSA says, ‘We have learned … what is possible and what is not’](https://news.yahoo.com/u-crosses-putin-red-lines-131819841.html)
 - Jul 16 - [Can you sunbathe naked or skinny-dip in your own yard? Here’s what Texas state law says](https://news.yahoo.com/sunbathe-naked-skinny-dip-own-120000575.html)
+- Jul 16 - [Passenger takes controls of small airplane from ailing pilot and crash lands in Martha's Vineyard](https://news.yahoo.com/passenger-takes-controls-small-airplane-115451578.html)
+- Jul 16 - [Scientists concerned about ‘unheard of’ conditions off the coast of England: ‘We could see mass mortality’](https://news.yahoo.com/scientists-concerned-unheard-conditions-off-113000269.html)
 - Jul 16 - [Donald Trump's nightmare golf shank caught on camera, and it's embarrassing](https://news.yahoo.com/donald-trumps-nightmare-golf-shank-112738551.html)
-- Jul 16 - [Neighbor outraged after HOA decides to tear down 12-year-old home over new rule change: ‘How is that even legal?’](https://news.yahoo.com/neighbor-outraged-hoa-decides-tear-103000166.html)
-- Jul 16 - [An abandoned airport in Cyprus has been frozen in time for half a century. It's filled with rusting airplanes and peeling paint — take a look.](https://news.yahoo.com/abandoned-airport-cyprus-frozen-time-101300193.html)
-- Jul 16 - [Costly Deep Tunnel flooding project can’t handle Chicago area’s severe storms fueled by climate change](https://news.yahoo.com/costly-deep-tunnel-flooding-project-100000769.html)
 <!-- feed end -->
