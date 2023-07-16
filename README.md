@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Trump calls Christie ‘a sad case’ in Fox News interview](https://news.yahoo.com/trump-calls-christie-sad-case-003257366.html)
-- Jul 16 - [I'm Sooooooo Creeped Out By These Strange And Disturbing Notes People Found Or Received](https://www.yahoo.com/lifestyle/im-sooooooo-creeped-strange-disturbing-001603278.html)
-- Jul 15 - [The 'QAnon Shaman' and other Capitol rioters who regret pleading guilty](https://news.yahoo.com/qanon-shaman-other-capitol-rioters-234500656.html)
+- Jul 16 - [‘Ridiculous’: GOP strategist reacts to Trump’s claim in Fox News interview](https://news.yahoo.com/trump-calls-christie-sad-case-003257366.html)
+- Jul 16 - [Federal judge rules Oregon’s tough new gun law is constitutional](https://news.yahoo.com/federal-judge-rules-oregon-tough-011750148.html)
 - Jul 15 - [Homicide suspect accused of escaping prison in Pennsylvania taken into custody](https://news.yahoo.com/homicide-suspect-accused-escaping-prison-233855082.html)
 - Jul 15 - [Prostitutes & Bears: Sting Op Snared Big-Game Hunting Scheme](https://news.yahoo.com/chinese-national-charged-bonkers-alaskan-233049735.html)
+- Jul 15 - [‘I want to be left alone’: 93-year-old Hilton Head Island woman is in a legal battle over her family’s land](https://news.yahoo.com/want-left-alone-93-old-080503565.html)
 <!-- feed end -->
