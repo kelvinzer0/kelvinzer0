@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [Chelsea Clinton Revealed How She Feels About People Ignoring ‘So Much Evidence’ About Maternal Mortality Rates](https://www.yahoo.com/lifestyle/chelsea-clinton-revealed-she-feels-174000179.html)
 - Jul 16 - [A Greek priest was arrested for anointing the genitals of a tourist with holy oil and claims he did it because the man had a rash: report](https://news.yahoo.com/greek-priest-arrested-anointing-genitals-162949482.html)
 - Jul 16 - [A teenage tourist is under investigation after she was filmed defacing Rome's Colosseum by a tour guide who said her parents told him: 'She's just a little girl'](https://news.yahoo.com/teenage-tourist-under-investigation-she-160614526.html)
+- Jul 16 - ['Problems have escaped': Crime in this liberal city is now spreading to one of the richest neighborhoods in US](https://news.yahoo.com/problems-escaped-crime-liberal-city-160512924.html)
 - Jul 16 - [QAnon Shaman, who pleaded guilty and made a heartfelt apology in Jan. 6 case, has changed his mind and wants his plea reversed](https://news.yahoo.com/qanon-shaman-pleaded-guilty-made-160505117.html)
-- Jul 16 - [First hearing in Trump's classified documents case set for Tuesday in Florida](https://news.yahoo.com/first-hearing-trumps-classified-documents-154028854.html)
-- Jul 16 - [Pacific Ocean ‘castaway’ survives on raw fish and rainwater for two months](https://news.yahoo.com/pacific-ocean-castaway-survives-raw-150755744.html)
 <!-- feed end -->
