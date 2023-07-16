@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [As U.S. crosses Putin’s red lines, NSA says, ‘We have learned … what is possible and what is not’](https://news.yahoo.com/u-crosses-putin-red-lines-131819841.html)
+- Jul 16 - [Wagner fighters in Belarus, Ukraine and Poland say](https://news.yahoo.com/wagner-fighters-belarus-ukraine-poland-143155465.html)
+- Jul 16 - [Ukrainian units are leaving behind their Western tanks and advancing slowly on foot after coming up against dense Russian minefields, report says](https://news.yahoo.com/ukrainian-units-leaving-behind-western-142342010.html)
+- Jul 16 - [Donald Trump’s Former Lawyer Made a Major Allegation That These 2 Family Members Could've Been the ‘Inside Moles'](https://www.yahoo.com/entertainment/donald-trump-former-lawyer-made-140000767.html)
 - Jul 16 - [Can you sunbathe naked or skinny-dip in your own yard? Here’s what Texas state law says](https://news.yahoo.com/sunbathe-naked-skinny-dip-own-120000575.html)
 - Jul 16 - [Passenger takes controls of small airplane from ailing pilot and crash lands in Martha's Vineyard](https://news.yahoo.com/passenger-takes-controls-small-airplane-115451578.html)
-- Jul 16 - [Scientists concerned about ‘unheard of’ conditions off the coast of England: ‘We could see mass mortality’](https://news.yahoo.com/scientists-concerned-unheard-conditions-off-113000269.html)
-- Jul 16 - [Donald Trump's nightmare golf shank caught on camera, and it's embarrassing](https://news.yahoo.com/donald-trumps-nightmare-golf-shank-112738551.html)
 <!-- feed end -->
