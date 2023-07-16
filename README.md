@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [Can you sunbathe naked or skinny-dip in your own yard? Here’s what Texas state law says](https://news.yahoo.com/sunbathe-naked-skinny-dip-own-120000575.html)
 - Jul 16 - [Donald Trump's nightmare golf shank caught on camera, and it's embarrassing](https://news.yahoo.com/donald-trumps-nightmare-golf-shank-112738551.html)
-- Jul 16 - [Humans have pumped so much groundwater from the Earth that it's actually caused the planet's axis to shift, a new study found](https://news.yahoo.com/humans-pumped-much-groundwater-earth-090500259.html)
-- Jul 16 - [Diversify or die: San Francisco’s downtown is a wake-up call for other cities](https://news.yahoo.com/diversify-die-san-francisco-downtown-081502182.html)
-- Jul 16 - [No more uncertainty in Russia's stance regarding Wagner Group after mutiny attempt – UK Intelligence](https://news.yahoo.com/no-more-uncertainty-russias-stance-065050371.html)
-- Jul 16 - [2,000-year-old human skulls, oil lamps, and bronze daggers reveal possible necromancer's portal to the underworld in Jerusalem](https://news.yahoo.com/2-000-old-human-skulls-063737438.html)
+- Jul 16 - [Neighbor outraged after HOA decides to tear down 12-year-old home over new rule change: ‘How is that even legal?’](https://news.yahoo.com/neighbor-outraged-hoa-decides-tear-103000166.html)
+- Jul 16 - [An abandoned airport in Cyprus has been frozen in time for half a century. It's filled with rusting airplanes and peeling paint — take a look.](https://news.yahoo.com/abandoned-airport-cyprus-frozen-time-101300193.html)
+- Jul 16 - [Costly Deep Tunnel flooding project can’t handle Chicago area’s severe storms fueled by climate change](https://news.yahoo.com/costly-deep-tunnel-flooding-project-100000769.html)
 <!-- feed end -->
