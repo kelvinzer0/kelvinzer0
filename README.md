@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Russia says Ukrainian attack on Crimea Bridge kills two, orphaned daughter injured](https://news.yahoo.com/crimea-bridge-key-russian-supply-050455702.html)
+- Jul 17 - [Two Killed in What Russian Officials Say Was Attack on Crimea Bridge](https://news.yahoo.com/two-killed-russian-officials-attack-083355262.html)
+- Jul 17 - [Boat staff had to hose down a Walmart heiress' $300 million yacht after climate activists blasted red and white paint onto it with fire extinguishers](https://news.yahoo.com/boat-staff-had-hose-down-074259875.html)
+- Jul 17 - [In rare political drama, Singapore lawmakers quit over "inappropriate relationship"](https://news.yahoo.com/two-singapore-ruling-party-lawmakers-052344825.html)
 - Jul 17 - [Judge in Trump documents case under the spotlight as arguments near](https://news.yahoo.com/judge-trump-documents-case-under-040613651.html)
 - Jul 17 - [Fuzzy invasion of domestic rabbits has a Florida suburb hopping into a hunt for new owners](https://news.yahoo.com/fuzzy-invasion-domestic-rabbits-florida-040611266.html)
-- Jul 17 - [Traffic on key bridge from Crimea to Russia's mainland halted after attack that kills 2](https://news.yahoo.com/traffic-key-bridge-connecting-crimea-040142865.html)
-- Jul 17 - [A stranded Australian sailor and his dog survived 2 months adrift in the Pacific Ocean by eating raw fish and drinking rainwater after running into a storm on their 3,700-mile journey](https://news.yahoo.com/stranded-australian-sailor-dog-survived-033200281.html)
 <!-- feed end -->
