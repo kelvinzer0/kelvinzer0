@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Search Ongoing for Missing Children After Deadly Pennsylvania Flash Flooding](https://news.yahoo.com/search-ongoing-missing-children-deadly-145646086.html)
+- Jul 17 - [Florida faces highest inflation in U.S., DeSantis blames Biden administration](https://finance.yahoo.com/video/florida-faces-highest-inflation-u-155728686.html)
+- Jul 17 - [Video shows driver tackling fleeing suspect](https://news.yahoo.com/video-shows-driver-tackling-fleeing-154606533.html)
+- Jul 17 - [Boyfriend of Alabama woman Carlee Russell suggests she was kidnapped before her safe return](https://news.yahoo.com/alabama-woman-carlee-russell-kidnapped-safe-return-interstate-toddler-153217899.html)
+- Jul 17 - [Photos show what it was like to eat at McDonald's in the 1970s](https://news.yahoo.com/photos-show-eat-mcdonalds-1970s-143952672.html)
 - Jul 17 - [2024 Chevrolet Traverse gets rugged looks, new turbo engine, 'off-road' and sporty trims](https://www.autoblog.com/2023/07/17/2024-chevrolet-traverse-revealed/)
-- Jul 17 - [‘Morning Joe’ Roasts MTG for Backfired Attempt at Biden Diss: ‘I Would Take That Clip and Run it All Over the Country’ (Video)](https://www.yahoo.com/entertainment/morning-joe-roasts-mtg-backfired-140519172.html)
-- Jul 17 - [Australia baffled as unidentified mystery object washes up on beach](https://news.yahoo.com/australia-baffled-unidentified-mystery-object-094139900.html)
-- Jul 17 - [Toddler with eczema so bad liquid was 'pouring from his face' receives life-changing treatment](https://news.yahoo.com/toddler-eczema-treatment-abroad-130452873.html)
 <!-- feed end -->
