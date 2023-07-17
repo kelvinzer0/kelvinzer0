@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Florida faces highest inflation in U.S., DeSantis blames Biden administration](https://finance.yahoo.com/video/florida-faces-highest-inflation-u-155728686.html)
+- Jul 17 - [2024 Hyundai Santa Fe revealed, and it gets a radical, boxy new look](https://www.autoblog.com/2023/07/17/2-24-hyundai-santa-fe-revealed-with-a-radical-redesign/)
+- Jul 17 - [Russian tourists flee Crimea after attack on landmark bridge](https://finance.yahoo.com/news/russian-tourists-flee-crimea-attack-161539971.html)
+- Jul 17 - [A woman on TikTok says boomers are 'so confused' as to why Gen Z, millennials don't share the same work ethic — 3 reasons why young Americans' priorities have shifted](https://finance.yahoo.com/news/older-generations-confused-young-woman-113000294.html)
 - Jul 17 - [Video shows driver tackling fleeing suspect](https://news.yahoo.com/video-shows-driver-tackling-fleeing-154606533.html)
 - Jul 17 - [Boyfriend of Alabama woman Carlee Russell suggests she was kidnapped before her safe return](https://news.yahoo.com/alabama-woman-carlee-russell-kidnapped-safe-return-interstate-toddler-153217899.html)
-- Jul 17 - [Photos show what it was like to eat at McDonald's in the 1970s](https://news.yahoo.com/photos-show-eat-mcdonalds-1970s-143952672.html)
-- Jul 17 - [2024 Chevrolet Traverse gets rugged looks, new turbo engine, 'off-road' and sporty trims](https://www.autoblog.com/2023/07/17/2024-chevrolet-traverse-revealed/)
 <!-- feed end -->
