@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 17 - [Damage to Crimean Bridge Captured in Satellite Images](https://news.yahoo.com/damage-crimean-bridge-captured-satellite-182513124.html)
+- Jul 17 - [Woman Praised for Saying No to a Mom With Kids On a Plane](https://www.thestreet.com/travel/see-ceo-blows-up-internet-for-refusing-to-sacrifice-airplane-seat-to-pleading-mom?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jul 17 - [Store that sold Alex Murdaugh's son beer must pay $15 million to family of teen killed in boat crash](https://news.yahoo.com/store-sold-alex-murdaughs-son-170802617.html)
 - Jul 17 - [Ill. Carnival Shut Down After 10-Year-Old Is Thrown from Ride: 'Prayers Go Out to the Child'](https://www.yahoo.com/entertainment/ill-carnival-shut-down-10-170613588.html)
 - Jul 17 - [Dogs battle brown bear in ‘intense’ encounter caught on video](https://sports.yahoo.com/dogs-battle-brown-bear-intense-170117665.html)
-- Jul 17 - [‘Dad, stop, you’re killing her’: Newton man charged with murder in deadly attack on his wife](https://news.yahoo.com/dad-stop-killing-her-newton-165038853.html)
-- Jul 17 - [2024 Hyundai Santa Fe revealed, and it gets a radical, boxy new look](https://www.autoblog.com/2023/07/17/2-24-hyundai-santa-fe-revealed-with-a-radical-redesign/)
 <!-- feed end -->
