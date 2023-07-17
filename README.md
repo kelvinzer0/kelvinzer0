@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 17 - [Judge in Trump documents case under the spotlight as arguments near](https://news.yahoo.com/judge-trump-documents-case-under-040613651.html)
+- Jul 17 - [Fuzzy invasion of domestic rabbits has a Florida suburb hopping into a hunt for new owners](https://news.yahoo.com/fuzzy-invasion-domestic-rabbits-florida-040611266.html)
+- Jul 17 - [Traffic on key bridge from Crimea to Russia's mainland halted amid reports of explosions and deaths](https://news.yahoo.com/traffic-key-bridge-connecting-crimea-040142865.html)
+- Jul 17 - [A stranded Australian sailor and his dog survived 2 months adrift in the Pacific Ocean by eating raw fish and drinking rainwater after running into a storm on their 3,700-mile journey](https://news.yahoo.com/stranded-australian-sailor-dog-survived-033200281.html)
 - Jul 17 - [Factbox-Crimea Bridge: why is it important and what happened to it](https://news.yahoo.com/factbox-crimea-bridge-why-important-024402109.html)
-- Jul 17 - [UPDATE 2-Traffic stopped on Crimean Bridge, reports of blasts](https://finance.yahoo.com/news/1-traffic-stopped-crimean-bridge-020251151.html)
-- Jul 17 - [Traffic stopped on Crimean Bridge, reports of blasts](https://news.yahoo.com/traffic-stopped-crimean-bridge-due-014055429.html)
-- Jul 17 - [While the Russian invasion has shown the world the next generation of high-tech warfare, old-school tactics are decimating Ukrainian troops: land mines, booby traps, and tripwires](https://news.yahoo.com/while-russian-invasion-shown-world-013034535.html)
 <!-- feed end -->
