@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Man kidnaps 19-year-old from work, kills her after chase ends outside metro high school, police say](https://news.yahoo.com/man-kidnaps-ex-girlfriend-kills-091454914.html)
-- Jul 17 - [Did Killer Sea Drones Just Blow Up Putin’s Beloved Bridge?](https://news.yahoo.com/did-killer-sea-drones-just-085332201.html)
-- Jul 17 - [American Airlines barred a 17-year-old from flying with the airline for 3 years because he tried to use a 'skiplagging' ticket, the teen's father says](https://news.yahoo.com/american-airlines-banned-17-old-084341976.html)
-- Jul 17 - [Boat staff had to hose down a Walmart heiress' $300 million yacht after climate activists blasted red and white paint onto it with fire extinguishers](https://news.yahoo.com/boat-staff-had-hose-down-074259875.html)
-- Jul 17 - [In rare political drama, Singapore lawmakers quit over "inappropriate relationship"](https://news.yahoo.com/two-singapore-ruling-party-lawmakers-052344825.html)
+- Jul 17 - [George Will Makes Bold Prediction About Who Won't Be 2024 GOP Nominee](https://news.yahoo.com/george-makes-bold-prediction-wont-113835727.html)
+- Jul 17 - [Trump Roasted For Making Up A Law 'Out Of Thin Air' About Classified Documents](https://news.yahoo.com/trump-roasted-making-law-thin-111625382.html)
+- Jul 17 - [Scientists sound alarm over ‘unheard of’ conditions off the coast of England: ‘We could see mass mortality’](https://news.yahoo.com/scientists-concerned-unheard-conditions-off-113000269.html)
+- Jul 17 - [Power-drunk HOA tries to tear down pristine home over petty rule change: ‘How is that even legal?’](https://news.yahoo.com/neighbor-outraged-hoa-decides-tear-103000166.html)
+- Jul 17 - [Elton John gives evidence by videolink at Kevin Spacey's London trial](https://news.yahoo.com/elton-john-gives-evidence-videolink-105314884.html)
 <!-- feed end -->
