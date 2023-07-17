@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 17 - [Store that sold Alex Murdaugh's son beer must pay $15 million to family of teen killed in boat crash](https://news.yahoo.com/store-sold-alex-murdaughs-son-170802617.html)
+- Jul 17 - [Ill. Carnival Shut Down After 10-Year-Old Is Thrown from Ride: 'Prayers Go Out to the Child'](https://www.yahoo.com/entertainment/ill-carnival-shut-down-10-170613588.html)
+- Jul 17 - [Dogs battle brown bear in ‘intense’ encounter caught on video](https://sports.yahoo.com/dogs-battle-brown-bear-intense-170117665.html)
+- Jul 17 - [‘Dad, stop, you’re killing her’: Newton man charged with murder in deadly attack on his wife](https://news.yahoo.com/dad-stop-killing-her-newton-165038853.html)
 - Jul 17 - [2024 Hyundai Santa Fe revealed, and it gets a radical, boxy new look](https://www.autoblog.com/2023/07/17/2-24-hyundai-santa-fe-revealed-with-a-radical-redesign/)
-- Jul 17 - [Russian tourists flee Crimea after attack on landmark bridge](https://finance.yahoo.com/news/russian-tourists-flee-crimea-attack-161539971.html)
-- Jul 17 - [A woman on TikTok says boomers are 'so confused' as to why Gen Z, millennials don't share the same work ethic — 3 reasons why young Americans' priorities have shifted](https://finance.yahoo.com/news/older-generations-confused-young-woman-113000294.html)
-- Jul 17 - [Video shows driver tackling fleeing suspect](https://news.yahoo.com/video-shows-driver-tackling-fleeing-154606533.html)
-- Jul 17 - [Boyfriend of Alabama woman Carlee Russell suggests she was kidnapped before her safe return](https://news.yahoo.com/alabama-woman-carlee-russell-kidnapped-safe-return-interstate-toddler-153217899.html)
 <!-- feed end -->
