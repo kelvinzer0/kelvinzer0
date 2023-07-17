@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 17 - [Search Ongoing for Missing Children After Deadly Pennsylvania Flash Flooding](https://news.yahoo.com/search-ongoing-missing-children-deadly-145646086.html)
+- Jul 17 - [2024 Chevrolet Traverse gets rugged looks, new turbo engine, 'off-road' and sporty trims](https://www.autoblog.com/2023/07/17/2024-chevrolet-traverse-revealed/)
+- Jul 17 - [‘Morning Joe’ Roasts MTG for Backfired Attempt at Biden Diss: ‘I Would Take That Clip and Run it All Over the Country’ (Video)](https://www.yahoo.com/entertainment/morning-joe-roasts-mtg-backfired-140519172.html)
 - Jul 17 - [Australia baffled as unidentified mystery object washes up on beach](https://news.yahoo.com/australia-baffled-unidentified-mystery-object-094139900.html)
-- Jul 17 - [Iran's morality police resume hijab street patrols](https://news.yahoo.com/irans-morality-police-resume-hijab-133837555.html)
 - Jul 17 - [Toddler with eczema so bad liquid was 'pouring from his face' receives life-changing treatment](https://news.yahoo.com/toddler-eczema-treatment-abroad-130452873.html)
-- Jul 17 - [Legal expert: Trump may be “overplaying his hand” — and it may get Judge Cannon "taken off the case"](https://news.yahoo.com/legal-expert-trump-may-overplaying-125532450.html)
-- Jul 17 - [Xi tells ex-Philippine president Duterte to promote ties with China](https://news.yahoo.com/xi-tells-ex-philippine-president-124615874.html)
 <!-- feed end -->
