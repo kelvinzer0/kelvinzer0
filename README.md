@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Russia: Crimea bridge attack by Ukraine kills 2](https://news.yahoo.com/russia-crimea-bridge-attack-ukraine-091041590.html)
+- Jul 17 - [Man kidnaps 19-year-old from work, kills her after chase ends outside metro high school, police say](https://news.yahoo.com/man-kidnaps-ex-girlfriend-kills-091454914.html)
 - Jul 17 - [Did Killer Sea Drones Just Blow Up Putin’s Beloved Bridge?](https://news.yahoo.com/did-killer-sea-drones-just-085332201.html)
 - Jul 17 - [American Airlines barred a 17-year-old from flying with the airline for 3 years because he tried to use a 'skiplagging' ticket, the teen's father says](https://news.yahoo.com/american-airlines-banned-17-old-084341976.html)
 - Jul 17 - [Boat staff had to hose down a Walmart heiress' $300 million yacht after climate activists blasted red and white paint onto it with fire extinguishers](https://news.yahoo.com/boat-staff-had-hose-down-074259875.html)
-- Jul 17 - [Solomon Islands leader hits back at criticism of deepening security ties with China](https://news.yahoo.com/solomon-islands-leader-hits-back-072334501.html)
+- Jul 17 - [In rare political drama, Singapore lawmakers quit over "inappropriate relationship"](https://news.yahoo.com/two-singapore-ruling-party-lawmakers-052344825.html)
 <!-- feed end -->
