@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [UPDATE 1-Traffic stopped on Crimean Bridge due to 'emergency' - Russian-backed governor](https://finance.yahoo.com/news/1-traffic-stopped-crimean-bridge-020251151.html)
+- Jul 17 - [Judge in Trump documents case under the spotlight as arguments near](https://news.yahoo.com/judge-trump-documents-case-under-040613651.html)
+- Jul 17 - [Factbox-Crimea Bridge: why is it important and what happened to it](https://news.yahoo.com/factbox-crimea-bridge-why-important-024402109.html)
+- Jul 17 - [UPDATE 2-Traffic stopped on Crimean Bridge, reports of blasts](https://finance.yahoo.com/news/1-traffic-stopped-crimean-bridge-020251151.html)
+- Jul 17 - [Traffic stopped on Crimean Bridge, reports of blasts](https://news.yahoo.com/traffic-stopped-crimean-bridge-due-014055429.html)
 - Jul 17 - [While the Russian invasion has shown the world the next generation of high-tech warfare, old-school tactics are decimating Ukrainian troops: land mines, booby traps, and tripwires](https://news.yahoo.com/while-russian-invasion-shown-world-013034535.html)
-- Jul 17 - [Progressive US Democrat Jayapal apologizes for calling Israel 'racist'](https://news.yahoo.com/progressive-us-democrat-jayapal-apologizes-010809726.html)
-- Jul 17 - [Indian tourists flock to Southeast Asia as China's reopening falters](https://news.yahoo.com/indian-tourists-flock-southeast-asia-010203287.html)
-- Jul 16 - [Tesla announces first Cybertruck build ahead of Q2 earnings](https://news.yahoo.com/tesla-announces-first-cybertruck-build-233048402.html)
 <!-- feed end -->
