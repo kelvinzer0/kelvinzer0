@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 17 - [Australia baffled as unidentified mystery object washes up on beach](https://news.yahoo.com/australia-baffled-unidentified-mystery-object-094139900.html)
+- Jul 17 - [Iran's morality police resume hijab street patrols](https://news.yahoo.com/irans-morality-police-resume-hijab-133837555.html)
 - Jul 17 - [Toddler with eczema so bad liquid was 'pouring from his face' receives life-changing treatment](https://news.yahoo.com/toddler-eczema-treatment-abroad-130452873.html)
 - Jul 17 - [Legal expert: Trump may be “overplaying his hand” — and it may get Judge Cannon "taken off the case"](https://news.yahoo.com/legal-expert-trump-may-overplaying-125532450.html)
-- Jul 17 - [Missing Alabama woman returns home on foot after reporting toddler on highway](https://news.yahoo.com/missing-alabama-woman-returns-home-123451402.html)
-- Jul 17 - [A 26-year-old ended up bedbound and covered in scabs from a skin condition that some doctors don't believe exists](https://www.yahoo.com/lifestyle/26-old-ended-bedbound-covered-121317588.html)
-- Jul 17 - [Ukrainian helicopter crew say women flash them as they fly overhead to boost their morale fighting Russia](https://news.yahoo.com/ukrainian-helicopter-crew-women-flash-115747819.html)
+- Jul 17 - [Xi tells ex-Philippine president Duterte to promote ties with China](https://news.yahoo.com/xi-tells-ex-philippine-president-124615874.html)
 <!-- feed end -->
