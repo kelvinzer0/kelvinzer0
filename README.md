@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Exclusive-Head of engineering for Trump’s Truth Social app resigns](https://finance.yahoo.com/news/exclusive-head-engineering-trump-truth-203229280.html)
-- Jul 17 - [Sell Nvidia & Microsoft, Buy Toast: Wealth manger's stock picks](https://finance.yahoo.com/video/sell-nvidia-microsoft-buy-toast-203130789.html)
-- Jul 17 - [Citing Trump case, Pentagon leak suspect Teixeira urges judge to release him while he awaits trial](https://news.yahoo.com/citing-trump-case-pentagon-leak-201949359.html)
-- Jul 17 - [Russian Su-25 Frogfoot Filmed Crashing Into The Sea Of Azov](https://news.yahoo.com/russian-su-25-frogfoot-filmed-190034797.html)
-- Jul 17 - [A Piece of Fruit Cost a Man His Life. Now, His Family Wants Answers](https://news.yahoo.com/piece-fruit-cost-man-life-180820309.html)
+- Jul 17 - [Potential jurors share strong feelings about Trump ahead of trial over Michael Cohen's legal fees](https://news.yahoo.com/potential-jurors-share-strong-feelings-212853110.html)
+- Jul 17 - [A traveler's Delta flight was canceled, so he called the airline's number listed on Google. It led to a scammer — then he says he discovered more airlines with the same problem.](https://news.yahoo.com/travelers-delta-flight-canceled-called-210821464.html)
+- Jul 17 - [First Tesla Cybertruck to Roll Off the Line Looks Like It Has a Misaligned Door](https://news.yahoo.com/first-tesla-cybertruck-roll-off-210250695.html)
+- Jul 17 - [Bison gores Yellowstone tourist in the chest after she turns to walk away, rangers say](https://news.yahoo.com/bison-gores-yellowstone-tourist-chest-205540970.html)
+- Jul 17 - [Russians appalled at suggested routes out of Crimea](https://news.yahoo.com/russians-appalled-suggested-routes-crimea-204200765.html)
 <!-- feed end -->
