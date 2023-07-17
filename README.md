@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [George Will Makes Bold Prediction About Who Won't Be 2024 GOP Nominee](https://news.yahoo.com/george-makes-bold-prediction-wont-113835727.html)
-- Jul 17 - [Trump Roasted For Making Up A Law 'Out Of Thin Air' About Classified Documents](https://news.yahoo.com/trump-roasted-making-law-thin-111625382.html)
-- Jul 17 - [Scientists sound alarm over ‘unheard of’ conditions off the coast of England: ‘We could see mass mortality’](https://news.yahoo.com/scientists-concerned-unheard-conditions-off-113000269.html)
-- Jul 17 - [Power-drunk HOA tries to tear down pristine home over petty rule change: ‘How is that even legal?’](https://news.yahoo.com/neighbor-outraged-hoa-decides-tear-103000166.html)
-- Jul 17 - [Elton John gives evidence by videolink at Kevin Spacey's London trial](https://news.yahoo.com/elton-john-gives-evidence-videolink-105314884.html)
+- Jul 17 - [Toddler with eczema so bad liquid was 'pouring from his face' receives life-changing treatment](https://news.yahoo.com/toddler-eczema-treatment-abroad-130452873.html)
+- Jul 17 - [Legal expert: Trump may be “overplaying his hand” — and it may get Judge Cannon "taken off the case"](https://news.yahoo.com/legal-expert-trump-may-overplaying-125532450.html)
+- Jul 17 - [Missing Alabama woman returns home on foot after reporting toddler on highway](https://news.yahoo.com/missing-alabama-woman-returns-home-123451402.html)
+- Jul 17 - [A 26-year-old ended up bedbound and covered in scabs from a skin condition that some doctors don't believe exists](https://www.yahoo.com/lifestyle/26-old-ended-bedbound-covered-121317588.html)
+- Jul 17 - [Ukrainian helicopter crew say women flash them as they fly overhead to boost their morale fighting Russia](https://news.yahoo.com/ukrainian-helicopter-crew-women-flash-115747819.html)
 <!-- feed end -->
