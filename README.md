@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 17 - [UPDATE 1-Traffic stopped on Crimean Bridge due to 'emergency' - Russian-backed governor](https://finance.yahoo.com/news/1-traffic-stopped-crimean-bridge-020251151.html)
+- Jul 17 - [While the Russian invasion has shown the world the next generation of high-tech warfare, old-school tactics are decimating Ukrainian troops: land mines, booby traps, and tripwires](https://news.yahoo.com/while-russian-invasion-shown-world-013034535.html)
+- Jul 17 - [Progressive US Democrat Jayapal apologizes for calling Israel 'racist'](https://news.yahoo.com/progressive-us-democrat-jayapal-apologizes-010809726.html)
 - Jul 17 - [Indian tourists flock to Southeast Asia as China's reopening falters](https://news.yahoo.com/indian-tourists-flock-southeast-asia-010203287.html)
 - Jul 16 - [Tesla announces first Cybertruck build ahead of Q2 earnings](https://news.yahoo.com/tesla-announces-first-cybertruck-build-233048402.html)
-- Jul 16 - [An American woman was kidnapped in Mexico while walking her dog. 8 months later, her captors have released her and she'll soon be reunited with her canine companion.](https://news.yahoo.com/american-woman-kidnapped-mexico-while-222455439.html)
-- Jul 16 - [Teamsters president says he's asked the White House not to intervene if UPS workers go on strike](https://news.yahoo.com/teamsters-president-says-hes-asked-214315799.html)
-- Jul 16 - [Family reports body of missing Ohio State graduate found near quarry](https://news.yahoo.com/family-reports-body-missing-ohio-210342153.html)
 <!-- feed end -->
