@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 17 - [Indian tourists flock to Southeast Asia as China's reopening falters](https://news.yahoo.com/indian-tourists-flock-southeast-asia-010203287.html)
+- Jul 16 - [Tesla announces first Cybertruck build ahead of Q2 earnings](https://news.yahoo.com/tesla-announces-first-cybertruck-build-233048402.html)
+- Jul 16 - [An American woman was kidnapped in Mexico while walking her dog. 8 months later, her captors have released her and she'll soon be reunited with her canine companion.](https://news.yahoo.com/american-woman-kidnapped-mexico-while-222455439.html)
 - Jul 16 - [Teamsters president says he's asked the White House not to intervene if UPS workers go on strike](https://news.yahoo.com/teamsters-president-says-hes-asked-214315799.html)
 - Jul 16 - [Family reports body of missing Ohio State graduate found near quarry](https://news.yahoo.com/family-reports-body-missing-ohio-210342153.html)
-- Jul 16 - [Donald Trump’s Hints About A Potential 2024 Running Mate Proves He’s Willing to Settle for Allies](https://www.yahoo.com/entertainment/donald-trump-hints-potential-2024-204000353.html)
-- Jul 16 - [Pa. couple who helped nab survivalist inmate said they knew him immediately when they spotted him 'camping' near their property](https://news.yahoo.com/pa-couple-helped-nab-survivalist-195527161.html)
-- Jul 16 - [A scuba diver found a woman's $9,500 wedding ring after she lost it in a 45-foot-deep California lake](https://news.yahoo.com/scuba-diver-found-womans-9-183330072.html)
 <!-- feed end -->
