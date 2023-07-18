@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [A mega-viral argument over a $4,600 dinner bill has sparked heated debate over how you're supposed to split the check](https://news.yahoo.com/mega-viral-argument-over-4-140423102.html)
+- Jul 18 - [You could buy a nice BMW 3 Series for the cost of a new Toyota Corolla](https://www.autoblog.com/2023/07/18/used-luxury-sporty-car-toyota-corolla-money/)
+- Jul 18 - [Trump Loses It Over Letter Saying He’s a Target of Jack Smith’s Jan. 6 Probe](https://news.yahoo.com/trump-loses-over-letter-saying-135212829.html)
+- Jul 18 - [Trump says he has been notified he's a target of the US probe into efforts to overturn 2020 election](https://news.yahoo.com/trump-says-hes-advised-hes-133824055.html)
 - Jul 18 - [How a SC woman won huge in Mega Millions, then lost $80M of it to a thief](https://news.yahoo.com/sc-woman-won-huge-mega-131533441.html)
-- Jul 18 - [Dad Shares The Honest Moment When He Realized He Didn't Want To Raise His 4-Year-Old Daughter In America Anymore](https://news.yahoo.com/dad-shares-honest-moment-realized-131500516.html)
-- Jul 18 - [“Embarrassing”: “Very Republican” Georgia Supreme Court just swatted down Trump’s legal Hail Mary](https://news.yahoo.com/embarrassing-very-republican-georgia-supreme-130548356.html)
-- Jul 18 - [Bribes. Murder. Suicide. The death of South Carolina's Mexican combo-plate king](https://news.yahoo.com/bribes-murder-suicide-death-south-123017146.html)
-- Jul 18 - [How One Woman's SKIMS Bodysuit Saved Her Life](https://www.yahoo.com/lifestyle/one-womans-skims-bodysuit-saved-110242352.html)
 <!-- feed end -->
