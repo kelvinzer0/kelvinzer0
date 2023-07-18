@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Metro-east man sentenced for cutting off girlfriend’s leg with truck along highway](https://news.yahoo.com/metro-east-man-sentenced-cutting-163247086.html)
+- Jul 18 - [US soldier laughed as he ran across the DMZ in North Korea, witness says, and was reportedly in trouble with the military](https://news.yahoo.com/us-soldier-laughed-ran-across-163123716.html)
 - Jul 18 - [Ukrainians looking for missing troops are finding Nazi bullets, World War II-era trenches, and the bones of German soldiers on the battlefield](https://news.yahoo.com/ukrainians-looking-missing-troops-finding-160033962.html)
 - Jul 18 - [White House Whistleblower Says Donald Trump Frequently Made Gross Comments About This Female Staffer](https://www.yahoo.com/entertainment/white-house-whistleblower-says-donald-153238791.html)
 - Jul 18 - [Gigi Hadid Was Arrested for Marijuana Possession in the Cayman Islands](https://www.yahoo.com/lifestyle/gigi-hadid-arrested-marijuana-possession-153000128.html)
-- Jul 18 - [Dramatic fossil shows pugnacious mammal attacking a dinosaur](https://news.yahoo.com/dramatic-fossil-shows-pugnacious-mammal-150605092.html)
-- Jul 18 - [North Korea's tallest building is an abandoned hotel that has never hosted a single guest. Take a closer look at the 'Hotel of Doom.'](https://news.yahoo.com/north-koreas-tallest-building-abandoned-144641866.html)
 <!-- feed end -->
