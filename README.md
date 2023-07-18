@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Jesse Watters' Mom Phoned In To His Fox News 8 P.M. Debut With Some Very Blunt Advice](https://news.yahoo.com/jesse-watters-mom-phoned-fox-101807979.html)
+- Jul 18 - [How One Woman's SKIMS Bodysuit Saved Her Life](https://www.yahoo.com/lifestyle/one-womans-skims-bodysuit-saved-110242352.html)
+- Jul 18 - [Israel briefly lent the U.S. treasured antiquities in 2019. They're now reportedly at Trump's Mar-a-Lago.](https://news.yahoo.com/israel-briefly-lent-u-treasured-105923572.html)
 - Jul 18 - [United Airlines grapples with pilots avoiding the captain's chair](https://news.yahoo.com/united-airlines-grapples-pilots-avoiding-100411177.html)
+- Jul 18 - [GOP debates impeaching Merrick Garland after McCarthy surprise](https://news.yahoo.com/gop-debates-impeaching-merrick-garland-100000656.html)
 - Jul 18 - [New Book Details Trump Idea ‘So Incandescently Stupid’ That Official ‘Couldn't Laugh'](https://news.yahoo.com/book-details-trump-idea-incandescently-093523656.html)
-- Jul 18 - [Ex-Trump Aide Spots The Donald Trump Power Move Raising Most Alarm Bells](https://news.yahoo.com/ex-trump-aide-spots-donald-080225060.html)
-- Jul 18 - [White House Goes ‘Dark Brandon’ On Marjorie Taylor Greene, Flips Attack Back On Her](https://news.yahoo.com/white-house-goes-dark-brandon-061347864.html)
 <!-- feed end -->
