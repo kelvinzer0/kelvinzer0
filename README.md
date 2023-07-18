@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 17 - [Minnesota mayor faces pressure to resign or meet LGBTQ+ group's demands after his comments on Pride](https://news.yahoo.com/minnesota-mayor-faces-pressure-resign-234742375.html)
+- Jul 17 - [Jan 6. defendant unleashes courtroom rant at sentencing hearing, attacking everything from groceries and gas prices to the prosecutors trying her case](https://news.yahoo.com/jan-6-defendant-unleashes-courtroom-234230046.html)
+- Jul 17 - [Russian fighter jet flies dangerously close to US warplane over Syria](https://news.yahoo.com/russian-fighter-jets-fly-dangerously-232159698.html)
+- Jul 17 - [Gag order issued ahead of Texas AG Ken Paxton's impeachment trial after 'inflammatory' remarks](https://news.yahoo.com/gag-order-issued-ahead-texas-231104739.html)
 - Jul 17 - [Potential jurors share strong feelings about Trump ahead of trial over Michael Cohen's legal fees](https://news.yahoo.com/potential-jurors-share-strong-feelings-212853110.html)
-- Jul 17 - [A traveler's Delta flight was canceled, so he called the airline's number listed on Google. It led to a scammer — then he says he discovered more airlines with the same problem.](https://news.yahoo.com/travelers-delta-flight-canceled-called-210821464.html)
-- Jul 17 - [First Tesla Cybertruck to Roll Off the Line Looks Like It Has a Misaligned Door](https://news.yahoo.com/first-tesla-cybertruck-roll-off-210250695.html)
-- Jul 17 - [Bison gores Yellowstone tourist in the chest after she turns to walk away, rangers say](https://news.yahoo.com/bison-gores-yellowstone-tourist-chest-205540970.html)
-- Jul 17 - [Russians appalled at suggested routes out of Crimea](https://news.yahoo.com/russians-appalled-suggested-routes-crimea-204200765.html)
 <!-- feed end -->
