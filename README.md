@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - ['60 Minutes' Drops a Bomb About Titanic Submersible Tragedy in Devastating Interview](https://www.thestreet.com/technology/60-minutes-drops-a-bomb-about-titanic-submersible-tragedy-in-devastating-interview?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jul 18 - [Boy reels in freaky fish with human-like teeth in Oklahoma. It wasn’t where it should be](https://news.yahoo.com/boy-reels-freaky-fish-human-185825483.html)
 - Jul 18 - [Experts: Jack Smith’s latest move means Trump can’t use Judge Cannon to prevent pre-election trial](https://news.yahoo.com/experts-jack-smith-latest-move-181707108.html)
 - Jul 18 - [Hunter Biden video captured two days after cocaine found in White House | Fact check](https://news.yahoo.com/hunter-biden-video-captured-two-181253520.html)
-- Jul 18 - [Scientists shot tardigrades out of a gun at more than 2,000 mph to see if the critters could survive](https://news.yahoo.com/scientists-shot-tardigrades-gun-more-180723566.html)
-- Jul 18 - [Metro-east man sentenced for cutting off girlfriend’s leg with truck along highway](https://news.yahoo.com/metro-east-man-sentenced-cutting-163247086.html)
-- Jul 18 - [US soldier laughed as he ran across the DMZ in North Korea, witness says, and was reportedly in trouble with the military](https://news.yahoo.com/us-soldier-laughed-ran-across-163123716.html)
+- Jul 18 - [Disney Ending $1 Billion Move Amid DeSantis Lawsuit Could Be A Bigger Deal For Florida Than We Thought](https://www.yahoo.com/entertainment/disney-ending-1-billion-move-180000050.html)
 <!-- feed end -->
