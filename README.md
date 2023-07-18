@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [WH won't comment on House Dems who plan to boycott Israeli president's speech to Congress](https://news.yahoo.com/wh-wont-house-dems-plan-205332244.html)
+- Jul 18 - [Las Vegas police serve search warrant in Tupac Shakur killing investigation](https://news.yahoo.com/las-vegas-police-serve-search-195001328.html)
 - Jul 18 - ['60 Minutes' Drops a Bomb About Titanic Submersible Tragedy in Devastating Interview](https://www.thestreet.com/technology/60-minutes-drops-a-bomb-about-titanic-submersible-tragedy-in-devastating-interview?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jul 18 - [Boy reels in freaky fish with human-like teeth in Oklahoma. It wasn’t where it should be](https://news.yahoo.com/boy-reels-freaky-fish-human-185825483.html)
-- Jul 18 - [Experts: Jack Smith’s latest move means Trump can’t use Judge Cannon to prevent pre-election trial](https://news.yahoo.com/experts-jack-smith-latest-move-181707108.html)
-- Jul 18 - [Hunter Biden video captured two days after cocaine found in White House | Fact check](https://news.yahoo.com/hunter-biden-video-captured-two-181253520.html)
-- Jul 18 - [Disney Ending $1 Billion Move Amid DeSantis Lawsuit Could Be A Bigger Deal For Florida Than We Thought](https://www.yahoo.com/entertainment/disney-ending-1-billion-move-180000050.html)
+- Jul 18 - [Ukraine counter-offensive is far from failure -US general](https://news.yahoo.com/ukraine-counter-offensive-far-failure-183900712.html)
 <!-- feed end -->
