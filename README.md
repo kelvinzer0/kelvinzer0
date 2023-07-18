@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [How a SC woman won huge in Mega Millions, then lost $80M of it to a thief](https://news.yahoo.com/sc-woman-won-huge-mega-131533441.html)
+- Jul 18 - [Dad Shares The Honest Moment When He Realized He Didn't Want To Raise His 4-Year-Old Daughter In America Anymore](https://news.yahoo.com/dad-shares-honest-moment-realized-131500516.html)
+- Jul 18 - [“Embarrassing”: “Very Republican” Georgia Supreme Court just swatted down Trump’s legal Hail Mary](https://news.yahoo.com/embarrassing-very-republican-georgia-supreme-130548356.html)
+- Jul 18 - [Bribes. Murder. Suicide. The death of South Carolina's Mexican combo-plate king](https://news.yahoo.com/bribes-murder-suicide-death-south-123017146.html)
 - Jul 18 - [How One Woman's SKIMS Bodysuit Saved Her Life](https://www.yahoo.com/lifestyle/one-womans-skims-bodysuit-saved-110242352.html)
-- Jul 18 - [Israel briefly lent the U.S. treasured antiquities in 2019. They're now reportedly at Trump's Mar-a-Lago.](https://news.yahoo.com/israel-briefly-lent-u-treasured-105923572.html)
-- Jul 18 - [Texas tops list of worst places to live and work in America, study says](https://news.yahoo.com/texas-tops-list-worst-places-100524916.html)
-- Jul 18 - [United Airlines grapples with pilots avoiding the captain's chair](https://news.yahoo.com/united-airlines-grapples-pilots-avoiding-100411177.html)
-- Jul 18 - [GOP debates impeaching Merrick Garland after McCarthy surprise](https://news.yahoo.com/gop-debates-impeaching-merrick-garland-100000656.html)
 <!-- feed end -->
