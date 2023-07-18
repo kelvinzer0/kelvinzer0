@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Officials warn nude beachgoers to exercise caution after 3 great white sharks were spotted feasting on the carcass of a sea lion](https://news.yahoo.com/officials-warn-nude-beachgoers-exercise-032036276.html)
+- Jul 18 - [Winning Powerball numbers for Monday, July 17, 2023](https://news.yahoo.com/winning-powerball-numbers-monday-july-030103929.html)
 - Jul 18 - [Jordan threatens FBI’s Wray with contempt of Congress](https://news.yahoo.com/jordan-threatens-fbi-wray-contempt-011326569.html)
 - Jul 17 - [Minnesota mayor faces pressure to resign or meet LGBTQ+ group's demands after his comments on Pride](https://news.yahoo.com/minnesota-mayor-faces-pressure-resign-234742375.html)
-- Jul 17 - [Jan 6. defendant unleashes courtroom rant at sentencing hearing, attacking everything from groceries and gas prices to the prosecutors trying her case](https://news.yahoo.com/jan-6-defendant-unleashes-courtroom-234230046.html)
 - Jul 17 - [Russian fighter jet flies dangerously close to US warplane over Syria](https://news.yahoo.com/russian-fighter-jets-fly-dangerously-232159698.html)
-- Jul 17 - [Gag order issued ahead of Texas AG Ken Paxton's impeachment trial after 'inflammatory' remarks](https://news.yahoo.com/gag-order-issued-ahead-texas-231104739.html)
 <!-- feed end -->
