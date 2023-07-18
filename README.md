@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [WH won't comment on House Dems who plan to boycott Israeli president's speech to Congress](https://news.yahoo.com/wh-wont-house-dems-plan-205332244.html)
-- Jul 18 - [Las Vegas police serve search warrant in Tupac Shakur killing investigation](https://news.yahoo.com/las-vegas-police-serve-search-195001328.html)
-- Jul 18 - ['60 Minutes' Drops a Bomb About Titanic Submersible Tragedy in Devastating Interview](https://www.thestreet.com/technology/60-minutes-drops-a-bomb-about-titanic-submersible-tragedy-in-devastating-interview?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jul 18 - [Boy reels in freaky fish with human-like teeth in Oklahoma. It wasn’t where it should be](https://news.yahoo.com/boy-reels-freaky-fish-human-185825483.html)
-- Jul 18 - [Ukraine counter-offensive is far from failure -US general](https://news.yahoo.com/ukraine-counter-offensive-far-failure-183900712.html)
+- Jul 18 - [Trooper gets call for abandoned dog, officials say. Then ‘something special happened’](https://news.yahoo.com/trooper-gets-call-abandoned-dog-214007526.html)
+- Jul 18 - [Human waste leaking from truck causes crashes on Connecticut highway](https://news.yahoo.com/human-waste-leaking-truck-causes-211144591.html)
+- Jul 18 - [Wisconsin Cops Discover House of ‘Horror’ After Bloodied Children Escape](https://news.yahoo.com/wisconsin-cops-discover-house-horror-211002523.html)
+- Jul 18 - [The Tupac murder investigation just made a surprise jump forward as Vegas police have a search warrant in the rapper's death](https://news.yahoo.com/tupac-murder-investigation-just-made-203512464.html)
+- Jul 18 - [Kayaker vanishes at Alaska glacier. Recovered helmet cam holds final clue, troopers say](https://news.yahoo.com/missing-kayaker-own-camera-reveals-202500080.html)
 <!-- feed end -->
