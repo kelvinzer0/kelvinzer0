@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Experts: Jack Smith’s latest move means Trump can’t use Judge Cannon to prevent pre-election trial](https://news.yahoo.com/experts-jack-smith-latest-move-181707108.html)
+- Jul 18 - [Hunter Biden video captured two days after cocaine found in White House | Fact check](https://news.yahoo.com/hunter-biden-video-captured-two-181253520.html)
+- Jul 18 - [Scientists shot tardigrades out of a gun at more than 2,000 mph to see if the critters could survive](https://news.yahoo.com/scientists-shot-tardigrades-gun-more-180723566.html)
 - Jul 18 - [Metro-east man sentenced for cutting off girlfriend’s leg with truck along highway](https://news.yahoo.com/metro-east-man-sentenced-cutting-163247086.html)
 - Jul 18 - [US soldier laughed as he ran across the DMZ in North Korea, witness says, and was reportedly in trouble with the military](https://news.yahoo.com/us-soldier-laughed-ran-across-163123716.html)
-- Jul 18 - [Ukrainians looking for missing troops are finding Nazi bullets, World War II-era trenches, and the bones of German soldiers on the battlefield](https://news.yahoo.com/ukrainians-looking-missing-troops-finding-160033962.html)
-- Jul 18 - [White House Whistleblower Says Donald Trump Frequently Made Gross Comments About This Female Staffer](https://www.yahoo.com/entertainment/white-house-whistleblower-says-donald-153238791.html)
-- Jul 18 - [Gigi Hadid Was Arrested for Marijuana Possession in the Cayman Islands](https://www.yahoo.com/lifestyle/gigi-hadid-arrested-marijuana-possession-153000128.html)
 <!-- feed end -->
