@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [New Book Details Trump Idea ‘So Incandescently Stupid’ That Official ‘Couldn't Laugh'](https://news.yahoo.com/book-details-trump-idea-incandescently-093523656.html)
+- Jul 18 - [Heavy rain creates 'waterfall' in southeastern China](https://news.yahoo.com/heavy-rain-creates-waterfall-southeastern-091642014.html)
+- Jul 18 - [Russia strikes Ukraine grain port after pulling out of export deal](https://news.yahoo.com/russia-strikes-ukraine-grain-port-081936539.html)
 - Jul 18 - [Ex-Trump Aide Spots The Donald Trump Power Move Raising Most Alarm Bells](https://news.yahoo.com/ex-trump-aide-spots-donald-080225060.html)
 - Jul 18 - [White House Goes ‘Dark Brandon’ On Marjorie Taylor Greene, Flips Attack Back On Her](https://news.yahoo.com/white-house-goes-dark-brandon-061347864.html)
-- Jul 18 - [A mountain biker who stopped to help rescue 4 dehydrated hikers in the scorching San Diego desert died on his way back to his group](https://news.yahoo.com/mountain-biker-stopped-help-rescue-040052898.html)
-- Jul 18 - [Officials warn nude beachgoers to exercise caution after 3 great white sharks were spotted feasting on the carcass of a sea lion](https://news.yahoo.com/officials-warn-nude-beachgoers-exercise-032036276.html)
-- Jul 18 - [Winning Powerball numbers for Monday, July 17, 2023. No winner, jackpot grows to $1B](https://news.yahoo.com/winning-powerball-numbers-monday-july-030103929.html)
 <!-- feed end -->
