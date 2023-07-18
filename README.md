@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Ukrainians looking for missing troops are finding Nazi bullets, World War II-era trenches, and the bones of German soldiers on the battlefield](https://news.yahoo.com/ukrainians-looking-missing-troops-finding-160033962.html)
+- Jul 18 - [White House Whistleblower Says Donald Trump Frequently Made Gross Comments About This Female Staffer](https://www.yahoo.com/entertainment/white-house-whistleblower-says-donald-153238791.html)
 - Jul 18 - [Gigi Hadid Was Arrested for Marijuana Possession in the Cayman Islands](https://www.yahoo.com/lifestyle/gigi-hadid-arrested-marijuana-possession-153000128.html)
-- Jul 18 - [Petrol hits highest ever price in Nigeria](https://news.yahoo.com/petrol-hits-highest-ever-price-150757030.html)
 - Jul 18 - [Dramatic fossil shows pugnacious mammal attacking a dinosaur](https://news.yahoo.com/dramatic-fossil-shows-pugnacious-mammal-150605092.html)
 - Jul 18 - [North Korea's tallest building is an abandoned hotel that has never hosted a single guest. Take a closer look at the 'Hotel of Doom.'](https://news.yahoo.com/north-koreas-tallest-building-abandoned-144641866.html)
-- Jul 18 - [Russian soldiers sent their families a desperate video, saying they were being led by a 'drunk' commander and without the supplies to survive](https://news.yahoo.com/russian-soldiers-sent-families-desperate-143449825.html)
 <!-- feed end -->
