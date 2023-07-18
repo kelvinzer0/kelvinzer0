@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Ex-Trump Aide Spots The Donald Trump Power Move Raising Most Alarm Bells](https://news.yahoo.com/ex-trump-aide-spots-donald-080225060.html)
 - Jul 18 - [White House Goes ‘Dark Brandon’ On Marjorie Taylor Greene, Flips Attack Back On Her](https://news.yahoo.com/white-house-goes-dark-brandon-061347864.html)
-- Jul 18 - [Working Woman Cries & Asks Why We Fought For Women To Get Jobs In The First Place — 'I'm So Tired'](https://news.yahoo.com/working-woman-cries-asks-why-041500924.html)
 - Jul 18 - [A mountain biker who stopped to help rescue 4 dehydrated hikers in the scorching San Diego desert died on his way back to his group](https://news.yahoo.com/mountain-biker-stopped-help-rescue-040052898.html)
 - Jul 18 - [Officials warn nude beachgoers to exercise caution after 3 great white sharks were spotted feasting on the carcass of a sea lion](https://news.yahoo.com/officials-warn-nude-beachgoers-exercise-032036276.html)
-- Jul 18 - [Jordan threatens FBI’s Wray with contempt of Congress](https://news.yahoo.com/jordan-threatens-fbi-wray-contempt-011326569.html)
+- Jul 18 - [Winning Powerball numbers for Monday, July 17, 2023. No winner, jackpot grows to $1B](https://news.yahoo.com/winning-powerball-numbers-monday-july-030103929.html)
 <!-- feed end -->
