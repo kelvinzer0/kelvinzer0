@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [A mega-viral argument over a $4,600 dinner bill has sparked heated debate over how you're supposed to split the check](https://news.yahoo.com/mega-viral-argument-over-4-140423102.html)
-- Jul 18 - [You could buy a nice BMW 3 Series for the cost of a new Toyota Corolla](https://www.autoblog.com/2023/07/18/used-luxury-sporty-car-toyota-corolla-money/)
-- Jul 18 - [Trump Loses It Over Letter Saying He’s a Target of Jack Smith’s Jan. 6 Probe](https://news.yahoo.com/trump-loses-over-letter-saying-135212829.html)
-- Jul 18 - [Trump says he has been notified he's a target of the US probe into efforts to overturn 2020 election](https://news.yahoo.com/trump-says-hes-advised-hes-133824055.html)
-- Jul 18 - [How a SC woman won huge in Mega Millions, then lost $80M of it to a thief](https://news.yahoo.com/sc-woman-won-huge-mega-131533441.html)
+- Jul 18 - [Gigi Hadid Was Arrested for Marijuana Possession in the Cayman Islands](https://www.yahoo.com/lifestyle/gigi-hadid-arrested-marijuana-possession-153000128.html)
+- Jul 18 - [Petrol hits highest ever price in Nigeria](https://news.yahoo.com/petrol-hits-highest-ever-price-150757030.html)
+- Jul 18 - [Dramatic fossil shows pugnacious mammal attacking a dinosaur](https://news.yahoo.com/dramatic-fossil-shows-pugnacious-mammal-150605092.html)
+- Jul 18 - [North Korea's tallest building is an abandoned hotel that has never hosted a single guest. Take a closer look at the 'Hotel of Doom.'](https://news.yahoo.com/north-koreas-tallest-building-abandoned-144641866.html)
+- Jul 18 - [Russian soldiers sent their families a desperate video, saying they were being led by a 'drunk' commander and without the supplies to survive](https://news.yahoo.com/russian-soldiers-sent-families-desperate-143449825.html)
 <!-- feed end -->
