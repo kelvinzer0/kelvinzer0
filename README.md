@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Russia has been scrambling to find missiles to fire at Ukraine, but it's not going to run out of them](https://news.yahoo.com/russia-scrambling-missiles-fire-ukraine-220700478.html)
 - Jul 18 - [Trooper gets call for abandoned dog, officials say. Then ‘something special happened’](https://news.yahoo.com/trooper-gets-call-abandoned-dog-214007526.html)
+- Jul 18 - [Judge said prosecutors 'a bit rushed' on Trump trial, vows to set trial date soon](https://news.yahoo.com/judge-said-prosecutors-bit-rushed-212522465.html)
 - Jul 18 - [Human waste leaking from truck causes crashes on Connecticut highway](https://news.yahoo.com/human-waste-leaking-truck-causes-211144591.html)
 - Jul 18 - [Wisconsin Cops Discover House of ‘Horror’ After Bloodied Children Escape](https://news.yahoo.com/wisconsin-cops-discover-house-horror-211002523.html)
-- Jul 18 - [The Tupac murder investigation just made a surprise jump forward as Vegas police have a search warrant in the rapper's death](https://news.yahoo.com/tupac-murder-investigation-just-made-203512464.html)
-- Jul 18 - [Kayaker vanishes at Alaska glacier. Recovered helmet cam holds final clue, troopers say](https://news.yahoo.com/missing-kayaker-own-camera-reveals-202500080.html)
 <!-- feed end -->
