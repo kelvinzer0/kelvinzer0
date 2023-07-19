@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 19 - [Fire at military base in Crimea forces evacuation of more than 2,000 people](https://news.yahoo.com/fire-military-crimea-major-highway-040146055.html)
+- Jul 19 - [Chemicals for Mexican fentanyl not from China, embassy in Mexico says](https://news.yahoo.com/chemicals-mexican-fentanyl-not-china-024900873.html)
 - Jul 19 - [California motor home 'plows' into 19 vehicle on interstate: Police](https://news.yahoo.com/california-motor-home-plows-19-014411072.html)
 - Jul 19 - [Woman who dated Rex Heuermann says he wouldn't stop talking about the Gilgo Beach murders — and it freaked her out](https://news.yahoo.com/woman-dated-rex-heuermann-says-003522205.html)
-- Jul 18 - [US House rebuffs bid by Republican hardliners to end some sanctions](https://news.yahoo.com/us-house-rebuffs-bid-republican-233505449.html)
 - Jul 18 - [Grad student, 28, felt faint, couldn't walk. He recognized his symptoms—but couldn't speak](https://news.yahoo.com/grad-student-28-felt-faint-223301007.html)
-- Jul 18 - [Human waste leaking from truck causes crashes on Connecticut highway](https://news.yahoo.com/human-waste-leaking-truck-causes-211144591.html)
 <!-- feed end -->
