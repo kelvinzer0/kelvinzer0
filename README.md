@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Prigozhin resurfaces in Belarus, tells Wagner fighters they have the 'biggest job in the world coming up'](https://news.yahoo.com/prigozhin-resurfaces-belarus-tells-wagner-151440838.html)
-- Jul 19 - [Judge upholds the $5 million jury verdict against Trump in a writer's sex abuse and defamation case](https://news.yahoo.com/judge-upholds-5-million-jury-150520476.html)
-- Jul 19 - [I-85 chase with driver topping speeds of 120 mph ends with 2 children ejected from SUV](https://news.yahoo.com/85-chase-driver-topping-speeds-140416800.html)
-- Jul 19 - ['I was in a trance': A tech executive was scammed out of $450K as part of a new cruel romance grift called 'pig butchering' — here's how it works and what to watch out for](https://finance.yahoo.com/news/trance-tech-executive-got-scammed-183000490.html)
-- Jul 19 - [What does the ‘bed rotting’ trend mean on TikTok?](https://news.yahoo.com/does-bed-rotting-trend-mean-135731907.html)
+- Jul 19 - [Russia warns against any ships traveling to Ukraine from Thursday](https://news.yahoo.com/russia-warns-against-ships-traveling-172035363.html)
+- Jul 19 - [The awkward conversation that led to my colon cancer diagnosis at age 38](https://news.yahoo.com/awkward-conversation-led-colon-cancer-171946160.html)
+- Jul 19 - [People are calling out house flippers who took a $260,000 New York home and are now selling it for $1.2 million: 'HGTV absolutely ruined people's brains'](https://news.yahoo.com/people-calling-house-flippers-took-170542686.html)
+- Jul 19 - ["Very odd": Legal experts criticize Judge Cannon's order for "legitimizing" Trump's delay tactics](https://news.yahoo.com/very-odd-legal-experts-criticize-164810524.html)
+- Jul 19 - [George Santos wants to change his bail because it's too hard to dine out and go shopping](https://news.yahoo.com/george-santos-wants-change-bail-164532218.html)
 <!-- feed end -->
