@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 19 - [Tesla Cybertruck early design sketches show what else it could have looked like](https://www.autoblog.com/2023/07/19/design-sketches-show-what-the-tesla-cybertruck-could-have-looked-like/)
+- Jul 19 - [Witness recounts US soldier's dash to North Korea](https://news.yahoo.com/witness-recounts-us-soldiers-dash-143657982.html)
 - Jul 19 - [Thousands evacuated after Crimea ammunition depot bursts into flames](https://news.yahoo.com/thousands-evacuated-crimea-ammunition-depot-132033039.html)
 - Jul 19 - [Expert: Hearing shows Judge Cannon “learned from her prior blunder” — which could be bad for Trump](https://news.yahoo.com/expert-hearing-shows-judge-cannon-130747457.html)
-- Jul 19 - [US soldier runs into North Korea after assault case](https://news.yahoo.com/us-soldier-runs-north-korea-121027933.html)
-- Jul 19 - [This California lawyer warns you should 'never leave anything' to your kids when you die — saying it'll lead to serious financial distress. Here's why and what to do instead](https://finance.yahoo.com/news/california-lawyer-warns-never-leave-105000300.html)
-- Jul 19 - [She refused to pay a $500 fee to her landlord. Her Sacramento property manager called the cops](https://news.yahoo.com/she-refused-pay-500-fee-120000028.html)
+- Jul 19 - [Police share new details about the disappearance of Carlee Russell, the woman who went missing in Alabama after calling 911 about a child on an interstate](https://news.yahoo.com/police-share-details-disappearance-carlee-121534336.html)
 <!-- feed end -->
