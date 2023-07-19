@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 19 - [George Santos got to change his bail conditions so it's easier to dine out and go shopping](https://news.yahoo.com/george-santos-wants-change-bail-164532218.html)
 - Jul 19 - [Russia warns against any ships traveling to Ukraine from Thursday](https://news.yahoo.com/russia-warns-against-ships-traveling-172035363.html)
 - Jul 19 - [The awkward conversation that led to my colon cancer diagnosis at age 38](https://news.yahoo.com/awkward-conversation-led-colon-cancer-171946160.html)
 - Jul 19 - [People are calling out house flippers who took a $260,000 New York home and are now selling it for $1.2 million: 'HGTV absolutely ruined people's brains'](https://news.yahoo.com/people-calling-house-flippers-took-170542686.html)
 - Jul 19 - ["Very odd": Legal experts criticize Judge Cannon's order for "legitimizing" Trump's delay tactics](https://news.yahoo.com/very-odd-legal-experts-criticize-164810524.html)
-- Jul 19 - [George Santos wants to change his bail because it's too hard to dine out and go shopping](https://news.yahoo.com/george-santos-wants-change-bail-164532218.html)
 <!-- feed end -->
