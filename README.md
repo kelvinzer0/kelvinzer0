@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [A terminally-ill man won $18 million in a lawsuit after saying he got cancer from Johnson & Johnson's baby powder, but a bankruptcy court order means he likely won't live long enough to see the money](https://news.yahoo.com/terminally-ill-man-won-18-054103785.html)
-- Jul 19 - [Tesla driver shares disturbing video after being harassed by pickup trucks: ‘Should be a punishable federal crime’](https://news.yahoo.com/tesla-driver-shares-disturbing-video-040000017.html)
-- Jul 19 - [Chemicals for Mexican fentanyl not from China, embassy in Mexico says](https://news.yahoo.com/chemicals-mexican-fentanyl-not-china-024900873.html)
-- Jul 19 - [Woman who dated Rex Heuermann says he wouldn't stop talking about the Gilgo Beach murders — and it freaked her out](https://news.yahoo.com/woman-dated-rex-heuermann-says-003522205.html)
-- Jul 18 - [Grad student, 28, felt faint, couldn't walk. He recognized his symptoms—but couldn't speak](https://news.yahoo.com/grad-student-28-felt-faint-223301007.html)
+- Jul 19 - [Critics Pile On As Marjorie Taylor Greene Hurls Profane Insult At Trump Prosecutor](https://news.yahoo.com/critics-pile-marjorie-taylor-greene-105628606.html)
+- Jul 19 - [Elon Musk chimes in after Microsoft and Nvidia gain as much as $192 billion in market value in a day. His reaction could be a red flag to investors.](https://autos.yahoo.com/elon-musk-chimes-microsoft-nvidia-102426158.html)
+- Jul 19 - [The US soldier who crossed into North Korea had been 'breaking down' over the death of his 7-year-old cousin, his uncle said](https://news.yahoo.com/us-soldier-crossed-north-korea-101316316.html)
+- Jul 19 - [Why Is Disney Struggling? This Warren Buffett Quote Explains It Perfectly](https://www.fool.com/investing/2023/07/19/why-is-disney-struggling-this-warren-buffett-quote/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Jul 19 - [As Macron's criticism reverberates, US economist says she won't take top EU job](https://news.yahoo.com/macrons-criticism-reverberates-us-economist-075203760.html)
 <!-- feed end -->
