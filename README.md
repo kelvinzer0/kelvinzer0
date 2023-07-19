@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 19 - [A terminally-ill man won $18 million in a lawsuit after saying he got cancer from Johnson & Johnson's baby powder, but a bankruptcy court order means he likely won't live long enough to see the money](https://news.yahoo.com/terminally-ill-man-won-18-054103785.html)
 - Jul 19 - [Honduras wants to build West's only island prison colony and lock gangsters inside](https://news.yahoo.com/honduras-wants-build-wests-only-040206722.html)
+- Jul 19 - [Tesla driver shares disturbing video after being harassed by pickup trucks: ‘Should be a punishable federal crime’](https://news.yahoo.com/tesla-driver-shares-disturbing-video-040000017.html)
 - Jul 19 - [Chemicals for Mexican fentanyl not from China, embassy in Mexico says](https://news.yahoo.com/chemicals-mexican-fentanyl-not-china-024900873.html)
 - Jul 19 - [Woman who dated Rex Heuermann says he wouldn't stop talking about the Gilgo Beach murders — and it freaked her out](https://news.yahoo.com/woman-dated-rex-heuermann-says-003522205.html)
-- Jul 18 - [Grad student, 28, felt faint, couldn't walk. He recognized his symptoms—but couldn't speak](https://news.yahoo.com/grad-student-28-felt-faint-223301007.html)
-- Jul 18 - [Human waste leaking from truck causes crashes on Connecticut highway](https://news.yahoo.com/human-waste-leaking-truck-causes-211144591.html)
 <!-- feed end -->
