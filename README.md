@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Russia has been scrambling to find missiles to fire at Ukraine, but it's not going to run out of them](https://news.yahoo.com/russia-scrambling-missiles-fire-ukraine-220700478.html)
-- Jul 18 - [Trooper gets call for abandoned dog, officials say. Then ‘something special happened’](https://news.yahoo.com/trooper-gets-call-abandoned-dog-214007526.html)
-- Jul 18 - [Judge said prosecutors 'a bit rushed' on Trump trial, vows to set trial date soon](https://news.yahoo.com/judge-said-prosecutors-bit-rushed-212522465.html)
+- Jul 19 - [Woman who dated Rex Heuermann says he wouldn't stop talking about the Gilgo Beach murders — and it freaked her out](https://news.yahoo.com/woman-dated-rex-heuermann-says-003522205.html)
+- Jul 18 - [US House rebuffs bid by Republican hardliners to end some sanctions](https://news.yahoo.com/us-house-rebuffs-bid-republican-233505449.html)
+- Jul 18 - [Grad student, 28, felt faint, couldn't walk. He recognized his symptoms—but couldn't speak](https://news.yahoo.com/grad-student-28-felt-faint-223301007.html)
 - Jul 18 - [Human waste leaking from truck causes crashes on Connecticut highway](https://news.yahoo.com/human-waste-leaking-truck-causes-211144591.html)
 - Jul 18 - [Wisconsin Cops Discover House of ‘Horror’ After Bloodied Children Escape](https://news.yahoo.com/wisconsin-cops-discover-house-horror-211002523.html)
 <!-- feed end -->
