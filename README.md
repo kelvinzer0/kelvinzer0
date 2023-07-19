@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Mom, 50, thought her mystery headache was a sinus infection. The real diagnosis was a shock](https://news.yahoo.com/mom-50-thought-her-mystery-194445402.html)
+- Jul 19 - [Police cast doubt on Carlee Russell’s kidnapping account, say no crime has been committed](https://news.yahoo.com/police-cast-doubt-carlee-russell-215142894.html)
+- Jul 19 - [Marjorie Taylor Greene Inflicts Hunter Biden Nudes on Congress](https://news.yahoo.com/revenge-porn-mtg-inflicts-hunter-212230591.html)
+- Jul 19 - [Tesla just gave us our first look at the Cybertruck's giant windshield wiper in action — and it leaves much to be desired](https://finance.yahoo.com/news/tesla-just-gave-us-first-210032947.html)
+- Jul 19 - [Man who had jail sentence commuted by Trump arrested again](https://news.yahoo.com/man-had-jail-sentence-commuted-205009517.html)
 - Jul 19 - [Ex-officer Derek Chauvin to ask US Supreme Court to review his conviction in murder of George Floyd](https://news.yahoo.com/ex-officer-derek-chauvin-ask-184506528.html)
-- Jul 19 - [This is the moment just before a US soldier on a tour group made a mad, chaotic dash into North Korea](https://news.yahoo.com/moment-just-us-soldier-tour-180640695.html)
-- Jul 19 - ["Nobody has done more for her than I have": Trump reportedly mad Sarah Sanders won't endorse him](https://news.yahoo.com/nobody-done-more-her-trump-175931458.html)
-- Jul 19 - [Military veteran who stormed Capitol with loaded pistol is sentenced to 7 years in prison](https://news.yahoo.com/military-veteran-stormed-capitol-loaded-173159036.html)
 <!-- feed end -->
