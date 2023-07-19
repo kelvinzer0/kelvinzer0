@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 19 - [Mom, 50, thought her mystery headache was a sinus infection. The real diagnosis was a shock](https://news.yahoo.com/mom-50-thought-her-mystery-194445402.html)
+- Jul 19 - [Ex-officer Derek Chauvin to ask US Supreme Court to review his conviction in murder of George Floyd](https://news.yahoo.com/ex-officer-derek-chauvin-ask-184506528.html)
 - Jul 19 - [This is the moment just before a US soldier on a tour group made a mad, chaotic dash into North Korea](https://news.yahoo.com/moment-just-us-soldier-tour-180640695.html)
 - Jul 19 - ["Nobody has done more for her than I have": Trump reportedly mad Sarah Sanders won't endorse him](https://news.yahoo.com/nobody-done-more-her-trump-175931458.html)
 - Jul 19 - [Military veteran who stormed Capitol with loaded pistol is sentenced to 7 years in prison](https://news.yahoo.com/military-veteran-stormed-capitol-loaded-173159036.html)
-- Jul 19 - [Russia warns against any ships traveling to Ukraine from Thursday](https://news.yahoo.com/russia-warns-against-ships-traveling-172035363.html)
-- Jul 19 - [The awkward conversation that led to my colon cancer diagnosis at age 38](https://news.yahoo.com/awkward-conversation-led-colon-cancer-171946160.html)
 <!-- feed end -->
