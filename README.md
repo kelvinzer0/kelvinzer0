@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Tesla Cybertruck early design sketches show what else it could have looked like](https://www.autoblog.com/2023/07/19/design-sketches-show-what-the-tesla-cybertruck-could-have-looked-like/)
-- Jul 19 - [Witness recounts US soldier's dash to North Korea](https://news.yahoo.com/witness-recounts-us-soldiers-dash-143657982.html)
-- Jul 19 - [Thousands evacuated after Crimea ammunition depot bursts into flames](https://news.yahoo.com/thousands-evacuated-crimea-ammunition-depot-132033039.html)
-- Jul 19 - [Expert: Hearing shows Judge Cannon “learned from her prior blunder” — which could be bad for Trump](https://news.yahoo.com/expert-hearing-shows-judge-cannon-130747457.html)
-- Jul 19 - [Police share new details about the disappearance of Carlee Russell, the woman who went missing in Alabama after calling 911 about a child on an interstate](https://news.yahoo.com/police-share-details-disappearance-carlee-121534336.html)
+- Jul 19 - [Prigozhin resurfaces in Belarus, tells Wagner fighters they have the 'biggest job in the world coming up'](https://news.yahoo.com/prigozhin-resurfaces-belarus-tells-wagner-151440838.html)
+- Jul 19 - [Judge upholds the $5 million jury verdict against Trump in a writer's sex abuse and defamation case](https://news.yahoo.com/judge-upholds-5-million-jury-150520476.html)
+- Jul 19 - [I-85 chase with driver topping speeds of 120 mph ends with 2 children ejected from SUV](https://news.yahoo.com/85-chase-driver-topping-speeds-140416800.html)
+- Jul 19 - ['I was in a trance': A tech executive was scammed out of $450K as part of a new cruel romance grift called 'pig butchering' — here's how it works and what to watch out for](https://finance.yahoo.com/news/trance-tech-executive-got-scammed-183000490.html)
+- Jul 19 - [What does the ‘bed rotting’ trend mean on TikTok?](https://news.yahoo.com/does-bed-rotting-trend-mean-135731907.html)
 <!-- feed end -->
