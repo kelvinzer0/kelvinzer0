@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Critics Pile On As Marjorie Taylor Greene Hurls Profane Insult At Trump Prosecutor](https://news.yahoo.com/critics-pile-marjorie-taylor-greene-105628606.html)
-- Jul 19 - [Elon Musk chimes in after Microsoft and Nvidia gain as much as $192 billion in market value in a day. His reaction could be a red flag to investors.](https://autos.yahoo.com/elon-musk-chimes-microsoft-nvidia-102426158.html)
-- Jul 19 - [The US soldier who crossed into North Korea had been 'breaking down' over the death of his 7-year-old cousin, his uncle said](https://news.yahoo.com/us-soldier-crossed-north-korea-101316316.html)
-- Jul 19 - [Why Is Disney Struggling? This Warren Buffett Quote Explains It Perfectly](https://www.fool.com/investing/2023/07/19/why-is-disney-struggling-this-warren-buffett-quote/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Jul 19 - [As Macron's criticism reverberates, US economist says she won't take top EU job](https://news.yahoo.com/macrons-criticism-reverberates-us-economist-075203760.html)
+- Jul 19 - [Thousands evacuated after Crimea ammunition depot bursts into flames](https://news.yahoo.com/thousands-evacuated-crimea-ammunition-depot-132033039.html)
+- Jul 19 - [Expert: Hearing shows Judge Cannon “learned from her prior blunder” — which could be bad for Trump](https://news.yahoo.com/expert-hearing-shows-judge-cannon-130747457.html)
+- Jul 19 - [US soldier runs into North Korea after assault case](https://news.yahoo.com/us-soldier-runs-north-korea-121027933.html)
+- Jul 19 - [This California lawyer warns you should 'never leave anything' to your kids when you die — saying it'll lead to serious financial distress. Here's why and what to do instead](https://finance.yahoo.com/news/california-lawyer-warns-never-leave-105000300.html)
+- Jul 19 - [She refused to pay a $500 fee to her landlord. Her Sacramento property manager called the cops](https://news.yahoo.com/she-refused-pay-500-fee-120000028.html)
 <!-- feed end -->
