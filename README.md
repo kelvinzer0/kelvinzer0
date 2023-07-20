@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Travis King's mother: “I just want my son back”](https://news.yahoo.com/travis-kings-mother-just-want-114703926.html)
-- Jul 20 - [The Gilgo Beach killings suspect’s wife unknowingly helped in his arrest. She’s now filed for divorce](https://news.yahoo.com/gilgo-beach-killings-suspect-wife-042829916.html)
+- Jul 20 - [Florida Schools Will Teach How Slavery Brought ‘Personal Benefit’ to Black People](https://news.yahoo.com/florida-schools-teach-slavery-brought-123130834.html)
+- Jul 20 - [North Korea threatens nuclear retaliation over U.S. displays of military force](https://news.yahoo.com/north-korea-says-deployment-u-122508998.html)
+- Jul 20 - [A former Google recruiter says applicants have 'zero chance' of moving forward if their résumé is full of 'text bricks'](https://news.yahoo.com/former-google-recruiter-says-applicants-113906726.html)
 - Jul 20 - [This US couple bought a rundown farmhouse in Portugal. Here’s what happened next](https://www.yahoo.com/lifestyle/us-couple-bought-rundown-farmhouse-110002390.html)
-- Jul 20 - ['Holy, what did I do?': This NFL star retired at 28 to start selling Pokemon cards — and he's made over $11.5M in less than a year. Here are 2 more booming collectibles to pounce on](https://finance.yahoo.com/news/holy-did-nfl-star-retired-110000236.html)
-- Jul 20 - [Why So Many People Are Against The 'Sound Of Freedom' Movie — Despite The Very Real Issue It Covers](https://news.yahoo.com/why-many-people-against-sound-101500207.html)
+- Jul 20 - [New study reveals the home appliance that spews more benzene than secondhand smoke: ‘You’re at an elevated risk [of cancer]’](https://news.yahoo.com/study-reveals-home-appliance-spews-110000657.html)
 <!-- feed end -->
