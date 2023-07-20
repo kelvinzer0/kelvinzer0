@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [Police say they cannot verify most of the information Carlee Russell, who went missing in Alabama after 911 call about a child on an interstate, gave to detectives](https://news.yahoo.com/police-share-details-disappearance-carlee-121534336.html)
 - Jul 20 - [Made in Russia? Chinese cars drive a revival of Russia's auto factories](https://news.yahoo.com/made-russia-chinese-cars-drive-003430489.html)
 - Jul 20 - [Loan officer: I’m seeing middle class homebuyers take on $7,000 mortgages thinking they can ‘always refinance when rates come down in the future’](https://finance.yahoo.com/news/loan-officer-m-seeing-middle-000641114.html)
 - Jul 19 - [Swedish embassy in Baghdad stormed, set alight over Koran burning](https://news.yahoo.com/swedish-embassy-baghdad-stormed-set-235943381.html)
-- Jul 19 - [Over just a few months, ChatGPT went from correctly answering a simple math problem 98% of the time to just 2%, study finds](https://finance.yahoo.com/news/over-just-few-months-chatgpt-232905189.html)
-- Jul 19 - [Police share new details about the disappearance of Carlee Russell, the woman who went missing in Alabama after calling 911 about a child on an interstate](https://news.yahoo.com/police-share-details-disappearance-carlee-121534336.html)
+- Jul 19 - [People are consuming 20 Mule Team Borax in new TikTok trend that experts are calling ‘patently dangerous’](https://news.yahoo.com/people-consuming-20-mule-team-220119537.html)
 <!-- feed end -->
