@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Rep. Connolly criticizes RFK Jr. for appearance at House hearing](https://news.yahoo.com/rep-connolly-criticizes-rfk-jr-194903541.html)
+- Jul 20 - ["People Have No Shame": Travelers Are Sharing The Wildest Thing They've Ever Seen Or Heard On A Plane](https://www.yahoo.com/lifestyle/people-no-shame-travelers-sharing-201602856.html)
+- Jul 20 - [Missouri Supreme Court orders the GOP attorney general to stand down in fight over abortion costs](https://news.yahoo.com/missouri-supreme-court-orders-gop-194820284.html)
+- Jul 20 - [Judge scolds Jack Smith’s team for causing delay in unrelated Jan. 6 verdict](https://news.yahoo.com/witness-jack-smith-grand-jury-192957098.html)
+- Jul 20 - [Judge blasts 'QAnon Shaman' for recanting his apology and refuses to toss out his plea agreement](https://news.yahoo.com/judge-blasts-qanon-shaman-recanting-192951780.html)
 - Jul 20 - [Gen X'ers Are Sharing The Things They Were Told Growing Up That Turned Out To Be Disproved](https://www.yahoo.com/lifestyle/gen-xers-sharing-things-were-191603806.html)
-- Jul 20 - [Narendra Modi vows to punish mob after Christian women paraded naked through village](https://news.yahoo.com/video-christian-women-paraded-naked-155928987.html)
-- Jul 20 - [A New $2 Billion Theme Park is Opening in The U.S. — but It’s Not in Florida or California](https://www.yahoo.com/entertainment/2-billion-theme-park-opening-181931007.html)
-- Jul 20 - [Wife who repeatedly called husband then started harassing friends given community order](https://news.yahoo.com/wife-repeatedly-called-husband-then-181423353.html)
 <!-- feed end -->
