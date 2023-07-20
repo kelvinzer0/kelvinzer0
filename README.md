@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Chinese ghost town of mansions reclaimed by farmers](https://news.yahoo.com/chinese-ghost-town-mansions-reclaimed-044710409.html)
+- Jul 20 - [India's Modi breaks silence over Manipur ethnic violence after viral video shows mob molesting women](https://news.yahoo.com/indias-modi-breaks-silence-over-070329280.html)
+- Jul 20 - [Philippines closely monitors threat of invasion of Taiwan - defence chief](https://news.yahoo.com/philippines-closely-monitors-threat-invasion-061352214.html)
 - Jul 20 - [Police say they cannot verify most of the information Carlee Russell, who went missing in Alabama after 911 call about a child on an interstate, gave to detectives](https://news.yahoo.com/police-share-details-disappearance-carlee-121534336.html)
 - Jul 20 - [Made in Russia? Chinese cars drive a revival of Russia's auto factories](https://news.yahoo.com/made-russia-chinese-cars-drive-003430489.html)
 - Jul 20 - [Loan officer: I’m seeing middle class homebuyers take on $7,000 mortgages thinking they can ‘always refinance when rates come down in the future’](https://finance.yahoo.com/news/loan-officer-m-seeing-middle-000641114.html)
-- Jul 19 - [Swedish embassy in Baghdad stormed, set alight over Koran burning plans](https://news.yahoo.com/swedish-embassy-baghdad-stormed-set-235943381.html)
 <!-- feed end -->
