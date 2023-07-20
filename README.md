@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Republicans (apparently) agree Trump should be prosecuted and held accountable](https://news.yahoo.com/republicans-apparently-agree-trump-prosecuted-080311544.html)
-- Jul 20 - [India's Modi breaks silence over ethnic violence in Manipur after video shows mob molesting women](https://news.yahoo.com/indias-modi-breaks-silence-over-070329280.html)
-- Jul 20 - [Former RNC Chair Torches Donald Trump's Latest Claim With 1 Blunt Word](https://news.yahoo.com/former-rnc-chair-torches-donald-061835822.html)
-- Jul 20 - [What Men Find Most Attractive About A Woman's Face, According To Research](https://news.yahoo.com/men-most-attractive-womans-face-040000550.html)
-- Jul 20 - [Made in Russia? Chinese cars drive a revival of Russia's auto factories](https://news.yahoo.com/made-russia-chinese-cars-drive-003430489.html)
+- Jul 20 - [Travis King's mother: “I just want my son back”](https://news.yahoo.com/travis-kings-mother-just-want-114703926.html)
+- Jul 20 - [The Gilgo Beach killings suspect’s wife unknowingly helped in his arrest. She’s now filed for divorce](https://news.yahoo.com/gilgo-beach-killings-suspect-wife-042829916.html)
+- Jul 20 - [This US couple bought a rundown farmhouse in Portugal. Here’s what happened next](https://www.yahoo.com/lifestyle/us-couple-bought-rundown-farmhouse-110002390.html)
+- Jul 20 - ['Holy, what did I do?': This NFL star retired at 28 to start selling Pokemon cards — and he's made over $11.5M in less than a year. Here are 2 more booming collectibles to pounce on](https://finance.yahoo.com/news/holy-did-nfl-star-retired-110000236.html)
+- Jul 20 - [Why So Many People Are Against The 'Sound Of Freedom' Movie — Despite The Very Real Issue It Covers](https://news.yahoo.com/why-many-people-against-sound-101500207.html)
 <!-- feed end -->
