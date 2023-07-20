@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [This couple bought a rundown farmhouse in Portugal. Here’s what happened next](https://www.yahoo.com/lifestyle/us-couple-bought-rundown-farmhouse-110002390.html)
 - Jul 20 - [Florida Schools Will Teach How Slavery Brought ‘Personal Benefit’ to Black People](https://news.yahoo.com/florida-schools-teach-slavery-brought-123130834.html)
-- Jul 20 - [North Korea threatens nuclear retaliation over U.S. displays of military force](https://news.yahoo.com/north-korea-says-deployment-u-122508998.html)
 - Jul 20 - [A former Google recruiter says applicants have 'zero chance' of moving forward if their résumé is full of 'text bricks'](https://news.yahoo.com/former-google-recruiter-says-applicants-113906726.html)
-- Jul 20 - [This US couple bought a rundown farmhouse in Portugal. Here’s what happened next](https://www.yahoo.com/lifestyle/us-couple-bought-rundown-farmhouse-110002390.html)
-- Jul 20 - [New study reveals the home appliance that spews more benzene than secondhand smoke: ‘You’re at an elevated risk [of cancer]’](https://news.yahoo.com/study-reveals-home-appliance-spews-110000657.html)
+- Jul 20 - [Lawyers Are Revealing The Most Shocking Case They've Worked On, And My Jaw Is On The Floor](https://www.yahoo.com/lifestyle/lawyers-revealing-most-shocking-case-111602446.html)
+- Jul 20 - [The Gilgo Beach killings suspect’s wife unknowingly helped in his arrest. She’s now filed for divorce](https://news.yahoo.com/gilgo-beach-killings-suspect-wife-042829916.html)
 <!-- feed end -->
