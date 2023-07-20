@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [This couple bought a rundown farmhouse in Portugal. Here’s what happened next](https://www.yahoo.com/lifestyle/us-couple-bought-rundown-farmhouse-110002390.html)
-- Jul 20 - [Florida Schools Will Teach How Slavery Brought ‘Personal Benefit’ to Black People](https://news.yahoo.com/florida-schools-teach-slavery-brought-123130834.html)
-- Jul 20 - [A former Google recruiter says applicants have 'zero chance' of moving forward if their résumé is full of 'text bricks'](https://news.yahoo.com/former-google-recruiter-says-applicants-113906726.html)
-- Jul 20 - [Lawyers Are Revealing The Most Shocking Case They've Worked On, And My Jaw Is On The Floor](https://www.yahoo.com/lifestyle/lawyers-revealing-most-shocking-case-111602446.html)
+- Jul 20 - [US House Speaker McCarthy denies deal with Trump to expunge impeachments](https://news.yahoo.com/us-house-speaker-mccarthy-denies-144002448.html)
 - Jul 20 - [The Gilgo Beach killings suspect’s wife unknowingly helped in his arrest. She’s now filed for divorce](https://news.yahoo.com/gilgo-beach-killings-suspect-wife-042829916.html)
+- Jul 20 - [Fed launches new payments system that lets you send money in seconds](https://finance.yahoo.com/news/fed-launches-new-payments-system-that-lets-you-send-money-in-seconds-140305052.html)
+- Jul 20 - [Is Elon laughing? Reports say Mark Zuckerberg's 'Twitter-killer' just suffered a stunning 50% collapse in daily active users after white-hot start — but here's why Musk should still worry](https://finance.yahoo.com/news/elon-laughing-reports-mark-zuckerbergs-135700223.html)
+- Jul 20 - [This couple bought a rundown farmhouse in Portugal. Here’s what happened next](https://www.yahoo.com/lifestyle/us-couple-bought-rundown-farmhouse-110002390.html)
 <!-- feed end -->
