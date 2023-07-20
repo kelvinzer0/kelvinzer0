@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [Jim Caviezel Calls Donald Trump 'The New Moses' And We Can't Let This Pass Over](https://www.yahoo.com/entertainment/jim-caviezel-calls-donald-trump-173432565.html)
 - Jul 20 - [Solar panels on water canals seem like a no-brainer. So why aren't they widespread?](https://news.yahoo.com/solar-panels-water-canals-seem-162726243.html)
 - Jul 20 - [Video of Christian women paraded naked through village triggers outrage](https://news.yahoo.com/video-christian-women-paraded-naked-155928987.html)
 - Jul 20 - [Rep. Robert Garcia’s Take On Marjorie Taylor Greene’s Hunter Biden Nudes Stunt Is Crude Perfection](https://news.yahoo.com/rep-robert-garcia-marjorie-taylor-154416336.html)
 - Jul 20 - [Jordan says RFK Jr. post on Hank Aaron was ‘just pointing out facts’](https://news.yahoo.com/jordan-says-rfk-jr-post-153921759.html)
-- Jul 20 - [Home searched in Tupac Shakur's 1996 killing is tied to uncle of long-dead suspect](https://news.yahoo.com/home-searched-tupac-shakurs-1996-151400264.html)
 <!-- feed end -->
