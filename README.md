@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [CNN Anchor Calls Out GOP Lawmaker for Lying to Her Face on Hunter Biden Probe](https://www.yahoo.com/entertainment/cnn-anchor-calls-gop-lawmaker-220028379.html)
+- Jul 20 - [Someone hid a ‘small fortune’ 500 years ago and never returned. It was just discovered](https://news.yahoo.com/someone-hid-small-fortune-500-211756017.html)
 - Jul 20 - [Elon Musk Reportedly Used Millions of Dollars in Tesla Funds To Secretly Build Himself A Literal Glass House — After Famously Saying He 'Will Own No House'](https://finance.yahoo.com/news/elon-musk-reportedly-used-millions-210409442.html)
-- Jul 20 - ["People Have No Shame": Travelers Are Sharing The Wildest Thing They've Ever Seen Or Heard On A Plane](https://www.yahoo.com/lifestyle/people-no-shame-travelers-sharing-201602856.html)
+- Jul 20 - [People Are Sharing The Wildest Thing They've Ever Heard On A Plane, And Some Of These Made My Jaw Drop](https://www.yahoo.com/lifestyle/people-no-shame-travelers-sharing-201602856.html)
 - Jul 20 - [Russia Says Patients Infected With Deadly Bacteria Have Escaped](https://news.yahoo.com/russia-says-patients-infected-deadly-200949144.html)
-- Jul 20 - [Missouri Supreme Court orders the GOP attorney general to stand down in fight over abortion costs](https://news.yahoo.com/missouri-supreme-court-orders-gop-194820284.html)
-- Jul 20 - [Judge scolds Jack Smith’s team for causing delay in unrelated Jan. 6 verdict](https://news.yahoo.com/witness-jack-smith-grand-jury-192957098.html)
 <!-- feed end -->
