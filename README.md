@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Police share new details about the disappearance of Carlee Russell, the woman who went missing in Alabama after calling 911 about a child on an interstate](https://news.yahoo.com/police-share-details-disappearance-carlee-121534336.html)
+- Jul 20 - [Cops haven’t verified most of Carlee Russell’s story, but she says nude photos were taken while she was missing](https://news.yahoo.com/cops-haven-t-verified-most-002153389.html)
 - Jul 19 - [People are consuming 20 Mule Team Borax in new TikTok trend that experts are calling ‘patently dangerous’](https://news.yahoo.com/people-consuming-20-mule-team-220119537.html)
 - Jul 19 - [Marjorie Taylor Greene Inflicts Hunter Biden Nudes on Congress](https://news.yahoo.com/revenge-porn-mtg-inflicts-hunter-212230591.html)
+- Jul 19 - [US soldier to receive highest peacetime award for heroism after defending woman](https://news.yahoo.com/us-soldier-receive-highest-peacetime-210857541.html)
 - Jul 19 - [Tesla just gave us our first look at the Cybertruck's giant windshield wiper in action — and it leaves much to be desired](https://finance.yahoo.com/news/tesla-just-gave-us-first-210032947.html)
-- Jul 19 - [Man who had jail sentence commuted by Trump arrested again](https://news.yahoo.com/man-had-jail-sentence-commuted-205009517.html)
 <!-- feed end -->
