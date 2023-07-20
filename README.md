@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [Republicans (apparently) agree Trump should be prosecuted and held accountable](https://news.yahoo.com/republicans-apparently-agree-trump-prosecuted-080311544.html)
 - Jul 20 - [India's Modi breaks silence over Manipur ethnic violence after viral video shows mob molesting women](https://news.yahoo.com/indias-modi-breaks-silence-over-070329280.html)
+- Jul 20 - [Former RNC Chair Torches Donald Trump's Latest Claim With 1 Blunt Word](https://news.yahoo.com/former-rnc-chair-torches-donald-061835822.html)
 - Jul 20 - [Philippines closely monitors threat of invasion of Taiwan - defence chief](https://news.yahoo.com/philippines-closely-monitors-threat-invasion-061352214.html)
 - Jul 20 - [Police say they cannot verify most of the information Carlee Russell, who went missing in Alabama after 911 call about a child on an interstate, gave to detectives](https://news.yahoo.com/police-share-details-disappearance-carlee-121534336.html)
-- Jul 20 - [Made in Russia? Chinese cars drive a revival of Russia's auto factories](https://news.yahoo.com/made-russia-chinese-cars-drive-003430489.html)
-- Jul 20 - [Loan officer: I’m seeing middle class homebuyers take on $7,000 mortgages thinking they can ‘always refinance when rates come down in the future’](https://finance.yahoo.com/news/loan-officer-m-seeing-middle-000641114.html)
 <!-- feed end -->
