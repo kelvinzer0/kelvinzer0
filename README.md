@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [Rep. Connolly criticizes RFK Jr. for appearance at House hearing](https://news.yahoo.com/rep-connolly-criticizes-rfk-jr-194903541.html)
+- Jul 20 - [Gen X'ers Are Sharing The Things They Were Told Growing Up That Turned Out To Be Disproved](https://www.yahoo.com/lifestyle/gen-xers-sharing-things-were-191603806.html)
 - Jul 20 - [Narendra Modi vows to punish mob after Christian women paraded naked through village](https://news.yahoo.com/video-christian-women-paraded-naked-155928987.html)
+- Jul 20 - [A New $2 Billion Theme Park is Opening in The U.S. — but It’s Not in Florida or California](https://www.yahoo.com/entertainment/2-billion-theme-park-opening-181931007.html)
 - Jul 20 - [Wife who repeatedly called husband then started harassing friends given community order](https://news.yahoo.com/wife-repeatedly-called-husband-then-181423353.html)
-- Jul 20 - [Jim Caviezel Calls Donald Trump 'The New Moses' And We Can't Let This Pass Over](https://www.yahoo.com/entertainment/jim-caviezel-calls-donald-trump-173432565.html)
-- Jul 20 - ["Very strange quietness": Legal experts think "there's something up" with Mark Meadows](https://news.yahoo.com/very-strange-quietness-legal-experts-171416938.html)
-- Jul 20 - [Solar panels on water canals seem like a no-brainer. So why aren't they widespread?](https://news.yahoo.com/solar-panels-water-canals-seem-162726243.html)
 <!-- feed end -->
