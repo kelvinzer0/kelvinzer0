@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Amazon is reportedly making employees relocate for return-to-office](https://news.yahoo.com/amazon-is-reportedly-making-employees-relocate-for-return-to-office-200435517.html)
+- Jul 21 - [Bird mom flew over chicks as nest went up in flames. She stayed ‘until the end’](https://news.yahoo.com/bird-mom-flew-over-chicks-191616245.html)
+- Jul 21 - [Twitter Is Going Nuts Over Donald Trump's Awkward Kiss With a Republican Woman Who Is Not Named Melania](https://www.yahoo.com/entertainment/twitter-going-nuts-over-donald-190941153.html)
 - Jul 21 - [Hunter Biden lawyer files complaint after Marjorie Taylor Greene shows Congress nude photos](https://news.yahoo.com/hunter-biden-lawyer-files-complaint-183634215.html)
 - Jul 21 - [GA Lowe’s worker punched 3 times trying to stop thieves. She’s now been fired after 13 years on job](https://news.yahoo.com/ga-lowe-worker-punched-3-173451710.html)
-- Jul 21 - [Why is Kamala Harris so unpopular in the polls?](https://news.yahoo.com/why-is-kamala-harris-so-unpopular-in-the-polls-172043967.html)
-- Jul 21 - [It's Too Hot For EVs To Work Right](https://news.yahoo.com/too-hot-evs-172000376.html)
-- Jul 21 - [My dermatologist told me to stop ruining my hair by shampooing every day and to do this instead](https://news.yahoo.com/dermatologist-told-stop-ruining-hair-164147766.html)
 <!-- feed end -->
