@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Ex-Prosecutor Says 1 Thing Would Keep Him Up At Night If Prosecuting Donald Trump](https://news.yahoo.com/ex-prosecutor-says-1-thing-062014347.html)
+- Jul 21 - [After decades of struggle for a place in Israel, dozens of Black Hebrews face threat of deportation](https://news.yahoo.com/decades-struggle-place-israel-dozens-061144612.html)
 - Jul 21 - [An asteroid loaded with $10 quintillion worth of metals edges closer to US reach](https://finance.yahoo.com/news/asteroid-loaded-10-quintillion-worth-043143459.html)
 - Jul 21 - [Deep sea surprise: Taiwanese divers encounter rare giant oarfish](https://news.yahoo.com/deep-sea-surprise-taiwanese-divers-020731427.html)
 - Jul 21 - [Trump slammed his hand on his desk and questioned why he 'only got 25% of the Jewish vote' when presented with antique Israeli artifacts, Republican donor says](https://news.yahoo.com/trump-slammed-hand-desk-questioned-015149905.html)
-- Jul 21 - [AMC Movie Theater Patron Brutally Attacked In Dispute Over Reserved Seats](https://www.yahoo.com/entertainment/amc-movie-theater-patron-brutally-014511691.html)
-- Jul 21 - [Abandoned baby girl in Lebanon found in garbage bag being carried by stray dog: report](https://news.yahoo.com/abandoned-baby-girl-lebanon-found-013137821.html)
 <!-- feed end -->
