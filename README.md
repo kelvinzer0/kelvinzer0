@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [The Trump Organization and former fixer Michael Cohen settle his lawsuit over unpaid legal bills](https://finance.yahoo.com/news/michael-cohen-settles-lawsuit-against-163016916.html)
+- Jul 21 - [18 Jaw-Dropping True Crime Mysteries That Took Decades To Solve](https://news.yahoo.com/18-unsettling-true-crime-mysteries-011603335.html)
+- Jul 21 - [Experts: Judge Cannon just set the “worst possible” Trump trial date for the Republican Party](https://news.yahoo.com/experts-judge-cannon-just-set-154501588.html)
 - Jul 21 - [Fox Reporter Futilely Tries To Own Democrats Who Opposed RFK Jr's Congress Testimony](https://www.yahoo.com/entertainment/fox-reporter-futilely-tries-own-153307481.html)
 - Jul 21 - [Former Trump aide Cohen expected to settle lawsuit with Trump Org -source](https://news.yahoo.com/former-trump-aide-cohen-expected-153047303.html)
-- Jul 21 - [A TikToker went viral after she found 'hidden cameras' in electrical outlets in her Airbnb. After police investigated, they just found regular plug sockets.](https://finance.yahoo.com/news/tiktoker-went-viral-she-found-144554522.html)
-- Jul 21 - [Mark Cuban Thinks the Powerball Winner Should Spend Winnings on One Thing](https://www.thestreet.com/economy/mark-cuban-thoughts-on-powerball-winner?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jul 21 - [Putin claims that western Poland is gift from Stalin](https://news.yahoo.com/putin-claims-western-poland-gift-140500602.html)
 <!-- feed end -->
