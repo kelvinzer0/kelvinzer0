@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Putin tells Poland any aggression against Belarus is attack on Russia](https://news.yahoo.com/putin-tells-poland-aggression-against-114956715.html)
+- Jul 21 - [Disturbing sight washes up on West Coast beaches: ‘The flood gates opened and it just gets worse every day’](https://news.yahoo.com/disturbing-sight-washes-west-coast-113000973.html)
 - Jul 21 - [Poll: Trump voters say racism against white Americans is a bigger problem than racism against Black Americans](https://news.yahoo.com/poll-trump-voters-racism-white-americans-problem-black-reparations-politics-090038973.html)
-- Jul 21 - [Philippines will not cooperate with ICC in drugs war probe - Marcos](https://news.yahoo.com/philippines-not-cooperate-icc-drugs-080356156.html)
+- Jul 21 - [Leaked Google pay data reveals the highest salaries the tech giant pays in engineering, sales, and more](https://finance.yahoo.com/news/leaked-google-pay-data-reveals-090001710.html)
 - Jul 21 - [Ex-Prosecutor Says 1 Thing Would Keep Him Up At Night If Prosecuting Donald Trump](https://news.yahoo.com/ex-prosecutor-says-1-thing-062014347.html)
 - Jul 21 - [After decades of struggle in Israel, dozens of African Hebrew Israelites face deportation](https://news.yahoo.com/decades-struggle-place-israel-dozens-061144612.html)
 <!-- feed end -->
