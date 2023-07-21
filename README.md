@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [UPDATE 1-Trial in Trump classified documents case set for May 20 -court document](https://finance.yahoo.com/news/1-trial-trump-classified-documents-134559656.html)
-- Jul 21 - [Putin’s memory lapse raises rumors of dementia – video](https://news.yahoo.com/putin-memory-lapse-raises-rumors-121600604.html)
+- Jul 21 - [Judge sets a trial date for next May in Trump's classified documents case in Florida](https://news.yahoo.com/judge-sets-trial-date-next-134245429.html)
 - Jul 21 - [Disturbing sight washes up on West Coast beaches: ‘The flood gates opened and it just gets worse every day’](https://news.yahoo.com/disturbing-sight-washes-west-coast-113000973.html)
 - Jul 21 - [Poll: Trump voters say racism against white Americans is a bigger problem than racism against Black Americans](https://news.yahoo.com/poll-trump-voters-racism-white-americans-problem-black-reparations-politics-090038973.html)
 - Jul 21 - [Leaked Google pay data reveals the highest salaries the tech giant pays in engineering, sales, and more](https://finance.yahoo.com/news/leaked-google-pay-data-reveals-090001710.html)
+- Jul 21 - [Philippines will not cooperate with ICC in drugs war probe - Marcos](https://news.yahoo.com/philippines-not-cooperate-icc-drugs-080356156.html)
 <!-- feed end -->
