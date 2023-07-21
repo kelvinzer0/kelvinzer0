@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Daycare Worker Explains Why She Does Not 'Accept' Sleeping Children When Their Parents Drop Them Off](https://news.yahoo.com/daycare-worker-explains-why-she-091500981.html)
+- Jul 21 - [Poll: Trump voters say racism against white Americans is a bigger problem than racism against Black Americans](https://news.yahoo.com/poll-trump-voters-racism-white-americans-problem-black-reparations-politics-090038973.html)
 - Jul 21 - [Philippines will not cooperate with ICC in drugs war probe - Marcos](https://news.yahoo.com/philippines-not-cooperate-icc-drugs-080356156.html)
 - Jul 21 - [Ex-Prosecutor Says 1 Thing Would Keep Him Up At Night If Prosecuting Donald Trump](https://news.yahoo.com/ex-prosecutor-says-1-thing-062014347.html)
 - Jul 21 - [After decades of struggle in Israel, dozens of African Hebrew Israelites face deportation](https://news.yahoo.com/decades-struggle-place-israel-dozens-061144612.html)
-- Jul 21 - [Kidnapped Texas teen rescued by Good Samaritans in California after waving 'help me' sign](https://news.yahoo.com/kidnapped-texas-teen-rescued-good-043953435.html)
-- Jul 21 - [Deep sea surprise: Taiwanese divers encounter rare giant oarfish](https://news.yahoo.com/deep-sea-surprise-taiwanese-divers-020731427.html)
 <!-- feed end -->
