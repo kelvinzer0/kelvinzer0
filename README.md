@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Jul 21 - [Trump slammed his hand on his desk and questioned why he 'only got 25% of the Jewish vote' when presented with antique Israeli artifacts, Republican donor says](https://news.yahoo.com/trump-slammed-hand-desk-questioned-015149905.html)
 - Jul 21 - [AMC Movie Theater Patron Brutally Attacked In Dispute Over Reserved Seats](https://www.yahoo.com/entertainment/amc-movie-theater-patron-brutally-014511691.html)
 - Jul 21 - [Trump shares ominous video to Truth Social as Jan. 6 indictment hangs in the balance](https://news.yahoo.com/trump-shares-ominous-video-truth-010459119.html)
-- Jul 20 - [Watch an Alligator Death Roll a Snake in a Florida Backyard](https://www.yahoo.com/lifestyle/watch-alligator-death-roll-snake-220000425.html)
+- Jul 20 - [Ukraine's Zelenskiy calls for spending restraint, minister offers to resign](https://news.yahoo.com/ukraines-zelenskiy-calls-spending-restraint-235437126.html)
 <!-- feed end -->
