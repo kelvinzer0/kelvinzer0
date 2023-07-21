@@ -55,8 +55,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Trump slammed his hand on his desk and questioned why he 'only got 25% of the Jewish vote' when presented with antique Israeli artifacts, Republican donor says](https://news.yahoo.com/trump-slammed-hand-desk-questioned-015149905.html)
 - Jul 21 - [Trump shares ominous video to Truth Social as Jan. 6 indictment hangs in the balance](https://news.yahoo.com/trump-shares-ominous-video-truth-010459119.html)
-- Jul 20 - [Ukraine's Zelenskiy calls for spending restraint, minister offers to resign](https://news.yahoo.com/ukraines-zelenskiy-calls-spending-restraint-235437126.html)
 - Jul 20 - [Cops release security footage of moviegoer pummeling 63-year-old over theater seat](https://news.yahoo.com/cops-release-security-footage-moviegoer-232600056.html)
 - Jul 20 - [Former Special Forces engineer says Russian minefields are unlike anything he has ever seen and battling these hidden death traps is 'exhausting'](https://news.yahoo.com/former-special-forces-engineer-says-223001271.html)
 - Jul 20 - [CNN Anchor Calls Out GOP Lawmaker for Lying to Her Face on Hunter Biden Probe](https://www.yahoo.com/entertainment/cnn-anchor-calls-gop-lawmaker-220028379.html)
