@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Judge sets a trial date for next May in Trump's classified documents case in Florida](https://news.yahoo.com/judge-sets-trial-date-next-134245429.html)
-- Jul 21 - [Disturbing sight washes up on West Coast beaches: ‘The flood gates opened and it just gets worse every day’](https://news.yahoo.com/disturbing-sight-washes-west-coast-113000973.html)
-- Jul 21 - [Poll: Trump voters say racism against white Americans is a bigger problem than racism against Black Americans](https://news.yahoo.com/poll-trump-voters-racism-white-americans-problem-black-reparations-politics-090038973.html)
-- Jul 21 - [Leaked Google pay data reveals the highest salaries the tech giant pays in engineering, sales, and more](https://finance.yahoo.com/news/leaked-google-pay-data-reveals-090001710.html)
-- Jul 21 - [Philippines will not cooperate with ICC in drugs war probe - Marcos](https://news.yahoo.com/philippines-not-cooperate-icc-drugs-080356156.html)
+- Jul 21 - [Fox Reporter Futilely Tries To Own Democrats Who Opposed RFK Jr's Congress Testimony](https://www.yahoo.com/entertainment/fox-reporter-futilely-tries-own-153307481.html)
+- Jul 21 - [Former Trump aide Cohen expected to settle lawsuit with Trump Org -source](https://news.yahoo.com/former-trump-aide-cohen-expected-153047303.html)
+- Jul 21 - [A TikToker went viral after she found 'hidden cameras' in electrical outlets in her Airbnb. After police investigated, they just found regular plug sockets.](https://finance.yahoo.com/news/tiktoker-went-viral-she-found-144554522.html)
+- Jul 21 - [Mark Cuban Thinks the Powerball Winner Should Spend Winnings on One Thing](https://www.thestreet.com/economy/mark-cuban-thoughts-on-powerball-winner?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jul 21 - [Putin claims that western Poland is gift from Stalin](https://news.yahoo.com/putin-claims-western-poland-gift-140500602.html)
 <!-- feed end -->
