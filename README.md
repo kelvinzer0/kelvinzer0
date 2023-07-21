@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [Cops release security footage of moviegoer pummeling 63-year-old over theater seat](https://news.yahoo.com/cops-release-security-footage-moviegoer-232600056.html)
+- Jul 20 - [Former Special Forces engineer says Russian minefields are unlike anything he has ever seen and battling these hidden death traps is 'exhausting'](https://news.yahoo.com/former-special-forces-engineer-says-223001271.html)
 - Jul 20 - [CNN Anchor Calls Out GOP Lawmaker for Lying to Her Face on Hunter Biden Probe](https://www.yahoo.com/entertainment/cnn-anchor-calls-gop-lawmaker-220028379.html)
 - Jul 20 - [Someone hid a ‘small fortune’ 500 years ago and never returned. It was just discovered](https://news.yahoo.com/someone-hid-small-fortune-500-211756017.html)
 - Jul 20 - [Elon Musk Reportedly Used Millions of Dollars in Tesla Funds To Secretly Build Himself A Literal Glass House — After Famously Saying He 'Will Own No House'](https://finance.yahoo.com/news/elon-musk-reportedly-used-millions-210409442.html)
-- Jul 20 - [People Are Sharing The Wildest Thing They've Ever Heard On A Plane, And Some Of These Made My Jaw Drop](https://www.yahoo.com/lifestyle/people-no-shame-travelers-sharing-201602856.html)
-- Jul 20 - [Russia Says Patients Infected With Deadly Bacteria Have Escaped](https://news.yahoo.com/russia-says-patients-infected-deadly-200949144.html)
 <!-- feed end -->
