@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [18 Jaw-Dropping True Crime Mysteries That Took Decades To Solve](https://news.yahoo.com/18-unsettling-true-crime-mysteries-011603335.html)
+- Jul 21 - [GA Lowe’s worker punched 3 times trying to stop thieves. She’s now been fired after 13 years on job](https://news.yahoo.com/ga-lowe-worker-punched-3-173451710.html)
 - Jul 21 - [Why is Kamala Harris so unpopular in the polls?](https://news.yahoo.com/why-is-kamala-harris-so-unpopular-in-the-polls-172043967.html)
 - Jul 21 - [My dermatologist told me to stop ruining my hair by shampooing every day and to do this instead](https://news.yahoo.com/dermatologist-told-stop-ruining-hair-164147766.html)
 - Jul 21 - [The Trump Organization and former fixer Michael Cohen settle his lawsuit over unpaid legal bills](https://finance.yahoo.com/news/michael-cohen-settles-lawsuit-against-163016916.html)
-- Jul 21 - [Brother of ex-NFL star Aqib Talib’s pleads guilty to murder, prosecutors say](https://news.yahoo.com/brother-ex-nfl-star-aqib-160822224.html)
-- Jul 21 - [Experts: Judge Cannon just set the “worst possible” Trump trial date for the Republican Party](https://news.yahoo.com/experts-judge-cannon-just-set-154501588.html)
 <!-- feed end -->
