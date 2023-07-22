@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [North Korea is a land of stories that don't often get told. Here are some that did](https://news.yahoo.com/north-korea-land-stories-dont-212254267.html)
+- Jul 22 - [Orlando couple arrested for trafficking victims after bailing them out of jail, MBI says](https://news.yahoo.com/orlando-couple-arrested-trafficking-victims-001900139.html)
 - Jul 21 - [Ron DeSantis makes Biden's 4-year-old granddaughter the punchline of a tweet as he dodges blowback over Florida teaching students that some parts of slavery were a positive thing](https://news.yahoo.com/ron-desantis-makes-bidens-4-203825496.html)
 - Jul 21 - [Video shows Ukraine launching US-provided cluster munitions against Russian infantry as the new weapon wreaks havoc](https://news.yahoo.com/video-shows-ukraine-launching-us-202954287.html)
 - Jul 21 - [Bird mom flew over chicks as nest went up in flames. She stayed ‘until the end’](https://news.yahoo.com/bird-mom-flew-over-chicks-191616245.html)
