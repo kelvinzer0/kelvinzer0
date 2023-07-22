@@ -55,10 +55,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [Russian troops fought alongside the decomposing corpse of a comrade for weeks. Ukraine's soldiers 'genuinely shocked' at how enemy treats their dead, report says.](https://news.yahoo.com/russian-troops-fought-alongside-decomposing-113427344.html)
 - Jul 22 - [Retired Russian colonel proposes blowing up the North Pole 
 to send message to the West](https://news.yahoo.com/retired-russian-colonel-proposes-blowing-105200662.html)
 - Jul 22 - [Trump Makes 1 Big Swerve Away From Iowa Woman's Faith Question](https://news.yahoo.com/trump-makes-1-big-swerve-094335894.html)
+- Jul 22 - [Social Security's 2024 COLA Is Shaping Up to Be a Good News/Bad News Scenario](https://www.fool.com/retirement/2023/07/22/social-security-2024-cola-is-good-news-bad-news/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Jul 22 - [A Texas man lost his hands and feet earlier this month after a single flea bite](https://news.yahoo.com/texas-man-lost-hands-feet-024901017.html)
-- Jul 21 - [Trump makes not-so-veiled threat about being sent to prison](https://news.yahoo.com/trump-makes-not-veiled-threat-235247261.html)
-- Jul 21 - [North Korea is a land of stories that don't often get told. Here are some that did](https://news.yahoo.com/north-korea-land-stories-dont-212254267.html)
 <!-- feed end -->
