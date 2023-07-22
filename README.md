@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [Human remains discovered inside luggage found on property outside of San Antonio](https://news.yahoo.com/human-remains-discovered-inside-luggage-172832022.html)
 - Jul 22 - [One of the Kushners Just Donated Quite a Bit to Donald Trump’s Biggest Competitor](https://www.yahoo.com/entertainment/one-kushners-just-donated-quite-162000257.html)
 - Jul 22 - [$18 Big Mac meal nearly broke the internet. Bad news, Arizona's are almost as expensive](https://www.yahoo.com/entertainment/18-big-mac-meal-nearly-130124380.html)
 - Jul 22 - [A viral brawl between four women on the floor of a Las Vegas casino was over a married man, police say](https://news.yahoo.com/viral-brawl-between-four-women-122519553.html)
 - Jul 22 - [Scrubs to riches: A California nurse went viral revealing how she brought in $500K a year and paid off her student loans by 27 — here are 3 tips to build wealth even without a wild salary](https://finance.yahoo.com/news/scrubs-riches-california-nurse-just-233000658.html)
-- Jul 22 - [War reporter's death prompts Russian outrage over Ukraine's alleged use of cluster bombs](https://news.yahoo.com/russian-journalist-killed-three-wounded-115428422.html)
 <!-- feed end -->
