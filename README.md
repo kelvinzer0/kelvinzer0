@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Ford just got a loan bigger than anything seen ‘since the advent of the auto industry’ — here’s what the company is spending it on](https://news.yahoo.com/ford-just-got-loan-bigger-180000907.html)
-- Jul 22 - [17 Infuriatingly Ridiculous Work Emails Bosses Had The Audacity To Send Their Employees](https://www.yahoo.com/lifestyle/17-infuriatingly-ridiculous-emails-bosses-174502387.html)
+- Jul 22 - [Toyota is planning a new EV with a 900-mile range and 10-minute charging time: ‘The holy grail of battery vehicles’](https://news.yahoo.com/toyota-planning-ev-900-mile-200000356.html)
 - Jul 22 - [The Texas influencer detained in Dubai for 'screaming' may have been the victim of an elaborate scam](https://news.yahoo.com/texas-influencer-detained-dubai-screaming-164542956.html)
 - Jul 22 - [One of the Kushners Just Donated Quite a Bit to Donald Trump’s Biggest Competitor](https://www.yahoo.com/entertainment/one-kushners-just-donated-quite-162000257.html)
 - Jul 22 - [Declassified Richard Nixon letter to President Clinton proves prophetic on Russia](https://news.yahoo.com/declassified-richard-nixon-letter-president-155750275.html)
+- Jul 22 - [A viral brawl between four women on the floor of a Las Vegas casino was over a married man, police say](https://news.yahoo.com/viral-brawl-between-four-women-122519553.html)
 <!-- feed end -->
