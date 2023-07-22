@@ -55,7 +55,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Heavy losses and poor supplies: Russians in Luhansk Oblast do not want to fight](https://news.yahoo.com/heavy-losses-poor-supplies-russians-042527857.html)
+- Jul 22 - [Trump Makes 1 Big Swerve Away From Iowa Woman's Faith Question](https://news.yahoo.com/trump-makes-1-big-swerve-094335894.html)
 - Jul 22 - [A Texas man lost his hands and feet earlier this month after a single flea bite](https://news.yahoo.com/texas-man-lost-hands-feet-024901017.html)
 - Jul 21 - [Trump makes not-so-veiled threat about being sent to prison](https://news.yahoo.com/trump-makes-not-veiled-threat-235247261.html)
 - Jul 21 - [Ron DeSantis makes Biden's 4-year-old granddaughter the punchline of a tweet as he dodges blowback over Florida teaching students that some parts of slavery were a positive thing](https://news.yahoo.com/ron-desantis-makes-bidens-4-203825496.html)
