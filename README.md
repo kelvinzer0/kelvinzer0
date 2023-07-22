@@ -59,5 +59,5 @@ https://kelvinzer0.github.io
 - Jul 22 - [17 Infuriatingly Ridiculous Work Emails Bosses Had The Audacity To Send Their Employees](https://www.yahoo.com/lifestyle/17-infuriatingly-ridiculous-emails-bosses-174502387.html)
 - Jul 22 - [The Texas influencer detained in Dubai for 'screaming' may have been the victim of an elaborate scam](https://news.yahoo.com/texas-influencer-detained-dubai-screaming-164542956.html)
 - Jul 22 - [One of the Kushners Just Donated Quite a Bit to Donald Trump’s Biggest Competitor](https://www.yahoo.com/entertainment/one-kushners-just-donated-quite-162000257.html)
-- Jul 22 - [A viral brawl between four women on the floor of a Las Vegas casino was over a married man, police say](https://news.yahoo.com/viral-brawl-between-four-women-122519553.html)
+- Jul 22 - [Declassified Richard Nixon letter to President Clinton proves prophetic on Russia](https://news.yahoo.com/declassified-richard-nixon-letter-president-155750275.html)
 <!-- feed end -->
