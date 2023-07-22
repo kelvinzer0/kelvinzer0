@@ -55,9 +55,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [Retired Russian colonel proposes blowing up the North Pole 
+to send message to the West](https://news.yahoo.com/retired-russian-colonel-proposes-blowing-105200662.html)
 - Jul 22 - [Trump Makes 1 Big Swerve Away From Iowa Woman's Faith Question](https://news.yahoo.com/trump-makes-1-big-swerve-094335894.html)
 - Jul 22 - [A Texas man lost his hands and feet earlier this month after a single flea bite](https://news.yahoo.com/texas-man-lost-hands-feet-024901017.html)
 - Jul 21 - [Trump makes not-so-veiled threat about being sent to prison](https://news.yahoo.com/trump-makes-not-veiled-threat-235247261.html)
-- Jul 21 - [Ron DeSantis makes Biden's 4-year-old granddaughter the punchline of a tweet as he dodges blowback over Florida teaching students that some parts of slavery were a positive thing](https://news.yahoo.com/ron-desantis-makes-bidens-4-203825496.html)
-- Jul 21 - [Video shows Ukraine launching US-provided cluster munitions against Russian infantry as the new weapon wreaks havoc](https://news.yahoo.com/video-shows-ukraine-launching-us-202954287.html)
+- Jul 21 - [North Korea is a land of stories that don't often get told. Here are some that did](https://news.yahoo.com/north-korea-land-stories-dont-212254267.html)
 <!-- feed end -->
