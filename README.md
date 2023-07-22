@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Orlando couple arrested for trafficking victims after bailing them out of jail, MBI says](https://news.yahoo.com/orlando-couple-arrested-trafficking-victims-001900139.html)
 - Jul 21 - [Trump makes not-so-veiled threat about being sent to prison](https://news.yahoo.com/trump-makes-not-veiled-threat-235247261.html)
 - Jul 21 - [Ron DeSantis makes Biden's 4-year-old granddaughter the punchline of a tweet as he dodges blowback over Florida teaching students that some parts of slavery were a positive thing](https://news.yahoo.com/ron-desantis-makes-bidens-4-203825496.html)
 - Jul 21 - [Video shows Ukraine launching US-provided cluster munitions against Russian infantry as the new weapon wreaks havoc](https://news.yahoo.com/video-shows-ukraine-launching-us-202954287.html)
+- Jul 21 - [US plans water heater standards, says they will save consumers $11 billion](https://news.yahoo.com/us-plans-water-heater-standards-200336408.html)
 - Jul 21 - [U.S. Court: Forensic scientist Henry Lee liable for fabricating evidence that sent two teens to prison for murder](https://news.yahoo.com/u-court-forensic-scientist-henry-195800945.html)
 <!-- feed end -->
