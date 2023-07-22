@@ -57,8 +57,8 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 22 - [A viral brawl between four women on the floor of a Las Vegas casino was over a married man, police say](https://news.yahoo.com/viral-brawl-between-four-women-122519553.html)
 - Jul 22 - [Scrubs to riches: A California nurse went viral revealing how she brought in $500K a year and paid off her student loans by 27 — here are 3 tips to build wealth even without a wild salary](https://finance.yahoo.com/news/scrubs-riches-california-nurse-just-233000658.html)
+- Jul 22 - [Warsaw summons Russian ambassador after Putin threatens Poland](https://news.yahoo.com/warsaw-summons-russian-ambassador-putin-111234851.html)
 - Jul 22 - [Retired Russian colonel proposes blowing up the North Pole 
 to send message to the West](https://news.yahoo.com/retired-russian-colonel-proposes-blowing-105200662.html)
-- Jul 22 - [Trump Makes 1 Big Swerve Away From Iowa Woman's Faith Question](https://news.yahoo.com/trump-makes-1-big-swerve-094335894.html)
-- Jul 22 - [Social Security's 2024 COLA Is Shaping Up to Be a Good News/Bad News Scenario](https://www.fool.com/retirement/2023/07/22/social-security-2024-cola-is-good-news-bad-news/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Jul 22 - [Trump Makes 1 Big Swerve Away From Iowa Woman's Question About Faith](https://news.yahoo.com/trump-makes-1-big-swerve-094335894.html)
 <!-- feed end -->
