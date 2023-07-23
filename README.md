@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [School board in Missouri, now controlled by conservatives, revokes anti-racism resolution](https://news.yahoo.com/school-board-missouri-now-controlled-044458011.html)
 - Jul 23 - [A judge was caught scrolling through Facebook and looking at GIFs while she was overseeing her first trial involving a man accused of beating a 2-year-old to death](https://news.yahoo.com/judge-caught-scrolling-facebook-looking-015925235.html)
 - Jul 22 - [Toyota is planning a new EV with a 900-mile range and 10-minute charging time: ‘The holy grail of battery vehicles’](https://news.yahoo.com/toyota-planning-ev-900-mile-200000356.html)
 - Jul 22 - [Court strikes down limits on filming of police in Arizona](https://news.yahoo.com/court-strikes-down-limits-filming-172349788.html)
 - Jul 22 - [One of the Kushners Just Donated Quite a Bit to Donald Trump’s Biggest Competitor](https://www.yahoo.com/entertainment/one-kushners-just-donated-quite-162000257.html)
-- Jul 22 - [A viral brawl between four women on the floor of a Las Vegas casino was over a married man, police say](https://news.yahoo.com/viral-brawl-between-four-women-122519553.html)
 <!-- feed end -->
