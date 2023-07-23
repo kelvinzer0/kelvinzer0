@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [Russia and Iran's 'unprecedented' military ties worried the US, but it's starting to look like Russia can't hold up its end of the deal](https://news.yahoo.com/russia-irans-unprecedented-military-ties-213901384.html)
+- Jul 23 - [Strike at trucking firm Yellow averted after deal](https://finance.yahoo.com/news/strike-trucking-firm-yellow-averted-213327326.html)
+- Jul 23 - [A man killed 11 people by setting a bar on fire after getting kicked out for disrespecting woman, Mexican authorities say](https://news.yahoo.com/man-killed-11-people-setting-211646651.html)
 - Jul 23 - [Some Raise Doubt the $1Billion Powerball Winner in Cali Has Been ID'd](https://news.yahoo.com/californias-1-billion-powerball-winner-192700497.html)
 - Jul 23 - [A Black man elected mayor of an Alabama town says white residents conspired to hold a secret election to unseat him: lawsuit](https://news.yahoo.com/black-man-elected-mayor-alabama-201743038.html)
-- Jul 23 - [California man arrested in boat crash that injured 8 Saturday at Lake of the Ozarks](https://news.yahoo.com/california-man-arrested-boat-crash-195414066.html)
-- Jul 23 - [Ga. trooper pulls over car with windows that were too dark. What he found inside broke his heart](https://news.yahoo.com/ga-trooper-pulls-over-car-193152585.html)
-- Jul 23 - ['Do not release the dog with his hands up!':  Black man mauled by police canine following Ohio pursuit](https://news.yahoo.com/not-release-dog-hands-black-184559398.html)
 <!-- feed end -->
