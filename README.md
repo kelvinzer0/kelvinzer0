@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [Some Raise Doubt the $1Billion Powerball Winner in Cali Has Been ID'd](https://news.yahoo.com/californias-1-billion-powerball-winner-192700497.html)
+- Jul 23 - [California man arrested in boat crash that injured 8 Saturday at Lake of the Ozarks](https://news.yahoo.com/california-man-arrested-boat-crash-195414066.html)
+- Jul 23 - [Ga. trooper pulls over car with windows that were too dark. What he found inside broke his heart](https://news.yahoo.com/ga-trooper-pulls-over-car-193152585.html)
 - Jul 23 - ['Do not release the dog with his hands up!':  Black man mauled by police canine following Ohio pursuit](https://news.yahoo.com/not-release-dog-hands-black-184559398.html)
-- Jul 23 - [DeSantis says Black people benefited from slavery by learning skills like 'being a blacksmith'](https://news.yahoo.com/desantis-says-black-people-benefited-171225075.html)
-- Jul 23 - [Pence Stuns CNN Anchor With Nonchalance About ‘Dangerous’ MAGA Voters](https://news.yahoo.com/pence-stuns-cnn-anchor-nonchalance-162448906.html)
-- Jul 23 - [‘Shark Tank’ Reality Show Star Daymond John Gets Restraining Order Against Contestants](https://www.yahoo.com/entertainment/shark-tank-reality-show-star-161134387.html)
-- Jul 23 - [Man accused of killing bald eagle in Mount Pleasant Township is father of NFL safety, report says](https://news.yahoo.com/man-accused-killing-bald-eagle-161038244.html)
+- Jul 23 - [Hunter Biden's 'sugar brother' lawyer spotted smoking bong on home balcony during visit from president's son](https://news.yahoo.com/hunter-bidens-sugar-brother-lawyer-183330702.html)
 <!-- feed end -->
