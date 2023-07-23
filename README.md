@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [Pence Stuns CNN Anchor With Nonchalance About ‘Dangerous’ MAGA Voters](https://news.yahoo.com/pence-stuns-cnn-anchor-nonchalance-162448906.html)
+- Jul 23 - [‘Shark Tank’ Reality Show Star Daymond John Gets Restraining Order Against Contestants](https://www.yahoo.com/entertainment/shark-tank-reality-show-star-161134387.html)
+- Jul 23 - [Weekend shootings leave at least 6 dead, 20 others wounded in Chicago](https://news.yahoo.com/weekend-shootings-leave-least-6-155502382.html)
 - Jul 23 - [AMC Movie Theater Patron Brutally Attacked In Dispute Over Reserved Seats – Update](https://www.yahoo.com/entertainment/amc-movie-theater-patron-brutally-014511691.html)
-- Jul 23 - [Pence says he's not worried about Trump inciting violence. CNN reminds him that some of his supporters wanted to hang him.](https://news.yahoo.com/pence-says-hes-not-worried-150919793.html)
 - Jul 23 - ['It's going to be ugly': This CEO has issued a dire warning about US real estate, saying areas will be 'destroyed' — but he still likes this 1 niche. Here's what it is and how to invest in it](https://finance.yahoo.com/news/going-ugly-ceo-just-issued-103500109.html)
-- Jul 23 - [Here's the net worth you need to be considered poor, middle-class, and wealthy in America — at the age of retirement. How do you stack up right now?](https://finance.yahoo.com/news/heres-net-worth-considered-poor-143200526.html)
-- Jul 23 - [Alien spaceship ‘could have crash-landed on Mars’](https://news.yahoo.com/alien-spaceship-could-crash-landed-135618373.html)
 <!-- feed end -->
