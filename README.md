@@ -55,11 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [AMC Movie Theater Patron Brutally Attacked In Dispute Over Reserved Seats – Update](https://www.yahoo.com/entertainment/amc-movie-theater-patron-brutally-014511691.html)
+- Jul 23 - [Pence says he's not worried about Trump inciting violence. CNN reminds him that some of his supporters wanted to hang him.](https://news.yahoo.com/pence-says-hes-not-worried-150919793.html)
+- Jul 23 - ['It's going to be ugly': This CEO has issued a dire warning about US real estate, saying areas will be 'destroyed' — but he still likes this 1 niche. Here's what it is and how to invest in it](https://finance.yahoo.com/news/going-ugly-ceo-just-issued-103500109.html)
 - Jul 23 - [Here's the net worth you need to be considered poor, middle-class, and wealthy in America — at the age of retirement. How do you stack up right now?](https://finance.yahoo.com/news/heres-net-worth-considered-poor-143200526.html)
 - Jul 23 - [Alien spaceship ‘could have crash-landed on Mars’](https://news.yahoo.com/alien-spaceship-could-crash-landed-135618373.html)
-- Jul 23 - [Pence says Trump conduct around 2021 Capitol attack was reckless but not criminal](https://news.yahoo.com/pence-says-trump-conduct-around-135430545.html)
-- Jul 23 - [Rheinmetall to feed hungry Ukrainian 
-military with massive shipment of ammunition for Gepard 
-systems](https://news.yahoo.com/rheinmetall-feed-hungry-ukrainian-military-133100017.html)
-- Jul 23 - [Heroic couple shares remarkable before-and-after photos after planting 2 million new trees in the Amazon: ‘We need to replant the forest’](https://news.yahoo.com/heroic-couple-shares-remarkable-photos-120000182.html)
 <!-- feed end -->
