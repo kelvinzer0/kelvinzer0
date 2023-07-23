@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 23 - [Some Raise Doubt the $1Billion Powerball Winner in Cali Has Been ID'd](https://news.yahoo.com/californias-1-billion-powerball-winner-192700497.html)
+- Jul 23 - [A Black man elected mayor of an Alabama town says white residents conspired to hold a secret election to unseat him: lawsuit](https://news.yahoo.com/black-man-elected-mayor-alabama-201743038.html)
 - Jul 23 - [California man arrested in boat crash that injured 8 Saturday at Lake of the Ozarks](https://news.yahoo.com/california-man-arrested-boat-crash-195414066.html)
 - Jul 23 - [Ga. trooper pulls over car with windows that were too dark. What he found inside broke his heart](https://news.yahoo.com/ga-trooper-pulls-over-car-193152585.html)
 - Jul 23 - ['Do not release the dog with his hands up!':  Black man mauled by police canine following Ohio pursuit](https://news.yahoo.com/not-release-dog-hands-black-184559398.html)
-- Jul 23 - [Hunter Biden's 'sugar brother' lawyer spotted smoking bong on home balcony during visit from president's son](https://news.yahoo.com/hunter-bidens-sugar-brother-lawyer-183330702.html)
 <!-- feed end -->
