@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - ['Do not release the dog with his hands up!':  Black man mauled by police canine following Ohio pursuit](https://news.yahoo.com/not-release-dog-hands-black-184559398.html)
 - Jul 23 - [DeSantis says Black people benefited from slavery by learning skills like 'being a blacksmith'](https://news.yahoo.com/desantis-says-black-people-benefited-171225075.html)
 - Jul 23 - [Pence Stuns CNN Anchor With Nonchalance About ‘Dangerous’ MAGA Voters](https://news.yahoo.com/pence-stuns-cnn-anchor-nonchalance-162448906.html)
 - Jul 23 - [‘Shark Tank’ Reality Show Star Daymond John Gets Restraining Order Against Contestants](https://www.yahoo.com/entertainment/shark-tank-reality-show-star-161134387.html)
 - Jul 23 - [Man accused of killing bald eagle in Mount Pleasant Township is father of NFL safety, report says](https://news.yahoo.com/man-accused-killing-bald-eagle-161038244.html)
-- Jul 23 - [Weekend shootings leave at least 6 dead, 20 others wounded in Chicago](https://news.yahoo.com/weekend-shootings-leave-least-6-155502382.html)
 <!-- feed end -->
