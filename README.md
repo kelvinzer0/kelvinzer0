@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 22 - [Toyota is planning a new EV with a 900-mile range and 10-minute charging time: ‘The holy grail of battery vehicles’](https://news.yahoo.com/toyota-planning-ev-900-mile-200000356.html)
-- Jul 22 - [The Texas influencer detained in Dubai for 'screaming' may have been the victim of an elaborate scam](https://news.yahoo.com/texas-influencer-detained-dubai-screaming-164542956.html)
+- Jul 22 - [Court strikes down limits on filming of police in Arizona](https://news.yahoo.com/court-strikes-down-limits-filming-172349788.html)
 - Jul 22 - [One of the Kushners Just Donated Quite a Bit to Donald Trump’s Biggest Competitor](https://www.yahoo.com/entertainment/one-kushners-just-donated-quite-162000257.html)
-- Jul 22 - [Declassified Richard Nixon letter to President Clinton proves prophetic on Russia](https://news.yahoo.com/declassified-richard-nixon-letter-president-155750275.html)
 - Jul 22 - [A viral brawl between four women on the floor of a Las Vegas casino was over a married man, police say](https://news.yahoo.com/viral-brawl-between-four-women-122519553.html)
+- Jul 22 - [Warsaw summons Russian ambassador after Putin threatens Poland](https://news.yahoo.com/warsaw-summons-russian-ambassador-putin-111234851.html)
 <!-- feed end -->
