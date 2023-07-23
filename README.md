@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 23 - [Abcarian: The Menendez brothers have been behind bars for 33 years. Is that long enough?](https://news.yahoo.com/abcarian-menendez-brothers-behind-bars-100049113.html)
+- Jul 23 - [Staying fit as you age isn’t just about exercise. Experts say to prioritize these 4 habits](https://finance.yahoo.com/news/staying-fit-age-isn-t-090000893.html)
+- Jul 23 - [Lukashenko threatens Poland with Wagnerites: They want to go to West](https://news.yahoo.com/lukashenko-threatens-poland-wagnerites-want-085305723.html)
+- Jul 23 - [GOP Governor Points Out A 'Huge Opportunity' For Trump's Republican Rivals](https://news.yahoo.com/gop-governor-points-huge-opportunity-081332636.html)
 - Jul 23 - [Scientists explain strange ‘splooting’ behavior happening with squirrels across America: ‘Beyond the typical ability’](https://news.yahoo.com/scientists-explain-strange-splooting-behavior-050000670.html)
-- Jul 23 - [Elon Musk says Twitter to change logo, adieu to 'all the birds'](https://finance.yahoo.com/news/elon-musk-says-twitter-change-045402017.html)
-- Jul 23 - [School board in Missouri, now controlled by conservatives, revokes anti-racism resolution](https://news.yahoo.com/school-board-missouri-now-controlled-044458011.html)
-- Jul 23 - [A judge was caught scrolling through Facebook and looking at GIFs while she was overseeing her first trial involving a man accused of beating a 2-year-old to death](https://news.yahoo.com/judge-caught-scrolling-facebook-looking-015925235.html)
 <!-- feed end -->
