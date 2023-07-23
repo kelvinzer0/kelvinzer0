@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 23 - [Abcarian: The Menendez brothers have been behind bars for 33 years. Is that long enough?](https://news.yahoo.com/abcarian-menendez-brothers-behind-bars-100049113.html)
 - Jul 23 - ['I can't die like this': Video shows trans man beaten by deputy during stop](https://news.yahoo.com/cant-die-video-shows-trans-100029056.html)
+- Jul 23 - [Treaty that created modern Turkey still evokes pain for some, 100 years after signing](https://news.yahoo.com/treaty-created-modern-turkey-still-090515568.html)
 - Jul 23 - [Staying fit as you age isn’t just about exercise. Experts say to prioritize these 4 habits](https://finance.yahoo.com/news/staying-fit-age-isn-t-090000893.html)
 - Jul 23 - [Lukashenko threatens Poland with Wagnerites: They want to go to West](https://news.yahoo.com/lukashenko-threatens-poland-wagnerites-want-085305723.html)
-- Jul 23 - [GOP Governor Points Out A 'Huge Opportunity' For Trump's Republican Rivals](https://news.yahoo.com/gop-governor-points-huge-opportunity-081332636.html)
 <!-- feed end -->
