@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [A store owner says a woman who went viral after claiming she won the Powerball was lying. Here's how the winners actually get confirmed.](https://www.yahoo.com/entertainment/store-owner-says-woman-went-031019654.html)
 - Jul 24 - [US sends another submarine to South Korea, adding to show of force against North Korea](https://news.yahoo.com/us-sends-another-submarine-south-025855718.html)
 - Jul 24 - [Second US submarine arrives in South Korea amid North Korea tensions](https://news.yahoo.com/second-us-submarine-arrives-south-023218778.html)
+- Jul 24 - [Video of driver attempting to pass through redwood forest sparks outrage: ‘[The] disregard for nature is so sad’](https://news.yahoo.com/video-driver-attempting-pass-redwood-020000957.html)
 - Jul 24 - [2 women hikers found dead in Nevada state park amid triple-digit temperatures](https://news.yahoo.com/2-women-hikers-found-dead-002745660.html)
-- Jul 23 - [Black man attacked by Ohio police dog during traffic stop](https://news.yahoo.com/black-man-attacked-ohio-police-232027221.html)
-- Jul 23 - [Russia and Iran's 'unprecedented' military ties worried the US, but it's starting to look like Russia can't hold up its end of the deal](https://news.yahoo.com/russia-irans-unprecedented-military-ties-213901384.html)
 <!-- feed end -->
