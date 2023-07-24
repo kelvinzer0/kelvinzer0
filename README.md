@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [83-year-old Marietta man, former pastor arrested in cold case murder of 8-year-old girl](https://news.yahoo.com/83-old-marietta-man-former-202248715.html)
-- Jul 24 - [Man who beat officer with flagpole during Capitol riot is sentenced to over 4 years in prison](https://news.yahoo.com/man-beat-officer-flagpole-during-202209064.html)
-- Jul 24 - [Julian Sands's official cause of death announced](https://www.yahoo.com/entertainment/julian-sand-official-cause-of-death-201455202.html)
-- Jul 24 - [I'm Pretty Much The Dumbest Guy Alive, So My Mind Was Completely Blown After Seeing These 21 Absolutely Fascinating Pictures For The Very First Time Last Week](https://www.yahoo.com/lifestyle/im-pretty-much-dumbest-guy-193120168.html)
-- Jul 24 - [Here’s what scientists say about whistleblower claims that Pentagon has evidence of alien crashes](https://news.yahoo.com/scientists-whistleblower-claims-pentagon-evidence-192157630.html)
+- Jul 24 - [Alabama woman confesses to fabricating kidnapping](https://news.yahoo.com/alabama-woman-confesses-fabricating-kidnapping-213035771.html)
+- Jul 24 - [Carlee Russell apologizes, says there was no kidnapping](https://news.yahoo.com/carlee-russell-apologizes-says-no-212700519.html)
+- Jul 24 - [Trump faces more indictments, fines and possible jail time as legal troubles mount](https://news.yahoo.com/trump-faces-more-indictments-fines-and-possible-jail-time-as-legal-troubles-mount-212002064.html)
+- Jul 24 - [Ecuador declares state of emergency amid violent clashes](https://news.yahoo.com/ecuador-declares-state-emergency-amid-211943008.html)
+- Jul 24 - [Israeli Police, Protesters Scuffle as Judicial Overhaul Bill Passes](https://finance.yahoo.com/video/israeli-police-protesters-scuffle-judicial-133500559.html)
 <!-- feed end -->
