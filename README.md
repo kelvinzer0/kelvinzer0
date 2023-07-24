@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Trump rages over legal problems on Truth Social](https://news.yahoo.com/trump-rages-over-legal-problems-143730724.html)
+- Jul 24 - ['My son died for no reason': Indy mother questions bail system after 15-year-old son killed](https://news.yahoo.com/son-died-no-reason-indy-142933448.html)
 - Jul 24 - [Thieves dragging ATM from bank didn’t realize they left a big clue, Florida cops say](https://news.yahoo.com/thieves-dragging-atm-bank-didn-132243085.html)
 - Jul 24 - [Woman called police after thieves hit an Atlanta Lululemon store, she was then fired](https://news.yahoo.com/woman-called-police-thieves-hit-131844488.html)
 - Jul 24 - [Experts raise concerns about Cannon’s trial date — but "master chess player" Jack Smith has a plan](https://news.yahoo.com/experts-raise-concerns-cannon-trial-125226040.html)
-- Jul 24 - [Miami police director out of surgery after critical injury in Tampa as Florida police investigate](https://news.yahoo.com/miami-dade-police-director-critical-122345847.html)
-- Jul 24 - [These 8 habits could add up to 24 years to your life, study says](https://news.yahoo.com/8-habits-could-add-24-121517438.html)
 <!-- feed end -->
