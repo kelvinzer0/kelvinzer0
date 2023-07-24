@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Alabama woman confesses to fabricating kidnapping](https://news.yahoo.com/alabama-woman-confesses-fabricating-kidnapping-213035771.html)
+- Jul 24 - [Obamas' personal chef drowns near family's home on Martha’s Vineyard](https://news.yahoo.com/obamas-personal-chef-drowns-near-223305641.html)
+- Jul 24 - [Judge says he plans to sentence gynecologist who sexually abused patients to 20 years in prison](https://news.yahoo.com/judge-says-plans-sentence-gynecologist-221820202.html)
+- Jul 24 - [Ex-Trump official reveals when she noticed a shift in Trump’s attitude](https://news.yahoo.com/ex-trump-official-analyzes-trump-212325815.html)
+- Jul 24 - [Stepdad wins big Powerball prize — and gives his stepdaughter ‘good and bad news’](https://news.yahoo.com/stepdad-wins-big-powerball-prize-214914058.html)
 - Jul 24 - [Carlee Russell apologizes, says there was no kidnapping](https://news.yahoo.com/carlee-russell-apologizes-says-no-212700519.html)
-- Jul 24 - [Trump faces more indictments, fines and possible jail time as legal troubles mount](https://news.yahoo.com/trump-faces-more-indictments-fines-and-possible-jail-time-as-legal-troubles-mount-212002064.html)
-- Jul 24 - [Ecuador declares state of emergency amid violent clashes](https://news.yahoo.com/ecuador-declares-state-emergency-amid-211943008.html)
-- Jul 24 - [Israeli Police, Protesters Scuffle as Judicial Overhaul Bill Passes](https://finance.yahoo.com/video/israeli-police-protesters-scuffle-judicial-133500559.html)
 <!-- feed end -->
