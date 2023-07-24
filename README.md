@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Presidential Historian Sums Up Second Donald Trump Term With 2 Chilling Words](https://news.yahoo.com/presidential-historian-sums-second-donald-091313108.html)
+- Jul 24 - [8 police officers assigned to protect South Africa's deputy president arrested over highway attack](https://news.yahoo.com/8-police-officers-assigned-protect-084441286.html)
 - Jul 24 - [A United Airlines flight turned back to San Francisco after a passenger refused to stay in his economy class seat and kept walking to the business class cabin](https://news.yahoo.com/united-airlines-flight-turned-back-081623310.html)
 - Jul 24 - [Concerned Neighbors Successfully Rally To Find Mother Who Was Filmed Dragging Her 9-Year-Old Daughter By Her Hair](https://news.yahoo.com/concerned-neighbors-successfully-rally-mother-071500882.html)
 - Jul 24 - [Greta Thunberg is appearing in a Swedish court on a charge of disobeying police at a climate protest](https://news.yahoo.com/greta-thunberg-appearing-swedish-court-063433910.html)
-- Jul 24 - [Analysis-As Japan aligns with U.S. chip curbs on China, some in Tokyo feel uneasy](https://news.yahoo.com/analysis-japan-aligns-u-chip-055954350.html)
-- Jul 24 - [Ex-DOJ Official Delivers Yet Another Ominous Prediction For Donald Trump](https://news.yahoo.com/ex-doj-official-delivers-yet-054925842.html)
 <!-- feed end -->
