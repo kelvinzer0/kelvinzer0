@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Trump rages over legal problems on Truth Social](https://news.yahoo.com/trump-rages-over-legal-problems-143730724.html)
+- Jul 24 - ['Do not release the dog with his hands up!' Black man mauled by police canine after Ohio pursuit](https://news.yahoo.com/not-release-dog-hands-black-184559398.html)
+- Jul 24 - [Biden chooses a longtime Hill aide respected by Republicans as his new legislative affairs director](https://news.yahoo.com/biden-chooses-longtime-hill-aide-161022734.html)
+- Jul 24 - ["Scared" Trump forced to raise a lot of because his lawyers are "holding him up for money": analyst](https://news.yahoo.com/scared-trump-forced-raise-lot-155215911.html)
+- Jul 24 - [Maryland man charged with hate crimes in parking dispute killings](https://news.yahoo.com/maryland-man-charged-hate-crimes-154050255.html)
 - Jul 24 - ['My son died for no reason': Indy mother questions bail system after 15-year-old son killed](https://news.yahoo.com/son-died-no-reason-indy-142933448.html)
-- Jul 24 - [Thieves dragging ATM from bank didn’t realize they left a big clue, Florida cops say](https://news.yahoo.com/thieves-dragging-atm-bank-didn-132243085.html)
-- Jul 24 - [Woman called police after thieves hit an Atlanta Lululemon store, she was then fired](https://news.yahoo.com/woman-called-police-thieves-hit-131844488.html)
-- Jul 24 - [Experts raise concerns about Cannon’s trial date — but "master chess player" Jack Smith has a plan](https://news.yahoo.com/experts-raise-concerns-cannon-trial-125226040.html)
 <!-- feed end -->
