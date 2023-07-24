@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Bird has flown as Musk, Twitter CEO Yaccarino say 'X' logo is here](https://news.yahoo.com/bird-flown-musk-twitter-ceo-073634815.html)
-- Jul 24 - [Iran targets e-commerce giant over photos of female employees without headscarves in new crackdown](https://news.yahoo.com/iran-targets-e-commerce-giant-073604124.html)
+- Jul 24 - [A United Airlines flight turned back to San Francisco after a passenger refused to stay in his economy class seat and kept walking to the business class cabin](https://news.yahoo.com/united-airlines-flight-turned-back-081623310.html)
+- Jul 24 - [Concerned Neighbors Successfully Rally To Find Mother Who Was Filmed Dragging Her 9-Year-Old Daughter By Her Hair](https://news.yahoo.com/concerned-neighbors-successfully-rally-mother-071500882.html)
+- Jul 24 - [Greta Thunberg is appearing in a Swedish court on a charge of disobeying police at a climate protest](https://news.yahoo.com/greta-thunberg-appearing-swedish-court-063433910.html)
 - Jul 24 - [Analysis-As Japan aligns with U.S. chip curbs on China, some in Tokyo feel uneasy](https://news.yahoo.com/analysis-japan-aligns-u-chip-055954350.html)
 - Jul 24 - [Ex-DOJ Official Delivers Yet Another Ominous Prediction For Donald Trump](https://news.yahoo.com/ex-doj-official-delivers-yet-054925842.html)
-- Jul 24 - [Never Trumpers get ‘brutal wake-up call’ as Republican candidates flounder](https://news.yahoo.com/never-trumpers-brutal-wake-call-050004232.html)
 <!-- feed end -->
