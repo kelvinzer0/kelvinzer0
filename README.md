@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Ex-DOJ Official Delivers Yet Another Ominous Prediction For Donald Trump](https://news.yahoo.com/ex-doj-official-delivers-yet-054925842.html)
+- Jul 24 - [Australia to buy 20 Hercules military transport planes in $6.6 billion deal](https://news.yahoo.com/australia-buy-20-hercules-military-050645098.html)
+- Jul 24 - [‘It’s guns versus butter’: Russia on the brink as Putin’s war chest empties](https://finance.yahoo.com/news/guns-versus-butter-russia-brink-050000333.html)
 - Jul 24 - [An ex-Guantanamo Bay detainee says he still remembers Ron DeSantis smiling at him from behind a fence while he was being force-fed: 'You cannot forget that'](https://news.yahoo.com/ex-guantanamo-bay-detainee-says-033617046.html)
 - Jul 24 - [A store owner says a woman who went viral after claiming she won the Powerball was lying. Here's how the winners actually get confirmed.](https://www.yahoo.com/entertainment/store-owner-says-woman-went-031019654.html)
-- Jul 24 - [US sends another submarine to South Korea, adding to show of force against North Korea](https://news.yahoo.com/us-sends-another-submarine-south-025855718.html)
-- Jul 24 - [Jason Aldean Glorifies Attack on Anti-Segregationist Reporter in “Try That in a Small Town” Lyric Video](https://www.yahoo.com/entertainment/jason-aldean-glorifies-attack-anti-024406510.html)
-- Jul 24 - [Second US submarine arrives in South Korea amid North Korea tensions](https://news.yahoo.com/second-us-submarine-arrives-south-023218778.html)
 <!-- feed end -->
