@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Twitter (now X) CEO CEO Linda Yaccarino claims usage at 'all time high' in memo to staff](https://news.yahoo.com/twitter-now-x-ceo-ceo-171510497.html)
-- Jul 24 - [Dave Ramsey Explains Why One Golden Rule of Money Is Completely Wrong](https://www.thestreet.com/investing/dave-ramsey-explains-why-one-golden-rule-of-money-completely-wrong?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jul 24 - [Lauren Boebert Says She Threw Away Pin Honoring Uvalde Victim Because Of AirPods](https://news.yahoo.com/lauren-boebert-says-she-threw-184149379.html)
+- Jul 24 - [Greta Thunberg dragged from climate protest again](https://news.yahoo.com/greta-thunberg-dragged-climate-protest-182745465.html)
+- Jul 24 - [Accuser endures threats, business losses and harassment as Jackson Mahomes awaits trial](https://news.yahoo.com/accuser-endures-threats-business-losses-181014470.html)
+- Jul 24 - [A viral plane passenger said her boyfriend refused to spend $11 to sit next to her, reigniting outrage that airlines charge for assigned seats](https://news.yahoo.com/viral-plane-passenger-said-her-173807610.html)
 - Jul 24 - [Baby Trapped In Hot Car Saved After Crowd Smashes Windshield](https://news.yahoo.com/baby-trapped-hot-car-saved-170615317.html)
-- Jul 24 - ['Do not release the dog with his hands up!' Black man mauled by police canine after Ohio pursuit](https://news.yahoo.com/not-release-dog-hands-black-184559398.html)
-- Jul 24 - [Elon Musk's former Twitter lieutenant, who famously slept on the floor, hints that he's 'destroying' his own product by rebranding it 'X'](https://finance.yahoo.com/news/elon-musks-former-twitter-lieutenant-163424280.html)
 <!-- feed end -->
