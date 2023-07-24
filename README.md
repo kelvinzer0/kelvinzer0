@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Miami police director out of surgery after critical injury in Tampa as Florida police investigate](https://news.yahoo.com/miami-dade-police-director-critical-122345847.html)
-- Jul 24 - [Matt Damon Sarcastically Swipes At Trump Campaign's Use Of 'Air' Monologue](https://www.yahoo.com/entertainment/matt-damon-sarcastically-swipes-trump-115407022.html)
-- Jul 24 - [Two protesters burn Koran in front of Iraqi embassy in Denmark](https://news.yahoo.com/protesters-burn-koran-front-iraqi-110451071.html)
-- Jul 24 - [New study reveals troubling factor that can increase the risk of dementia: ‘The effect could actually be quite large’](https://news.yahoo.com/study-reveals-troubling-factor-increase-101500219.html)
-- Jul 24 - [Trump threats will only backfire on him — they prove Jack Smith's entire case](https://news.yahoo.com/trump-threats-only-backfire-him-100001749.html)
+- Jul 24 - [French national police chief says officers under investigation 'have no place in prison'](https://news.yahoo.com/french-national-police-chief-says-134608027.html)
+- Jul 24 - [Thieves dragging ATM from bank didn’t realize they left a big clue, Florida cops say](https://news.yahoo.com/thieves-dragging-atm-bank-didn-132243085.html)
+- Jul 24 - [Experts raise concerns about Cannon’s trial date — but "master chess player" Jack Smith has a plan](https://news.yahoo.com/experts-raise-concerns-cannon-trial-125226040.html)
+- Jul 24 - [Former President Donald Trump returning to Louisiana to collect millions in campaign cash](https://news.yahoo.com/former-president-donald-trump-returning-124650670.html)
+- Jul 24 - [These 8 habits could add up to 24 years to your life, study says](https://news.yahoo.com/8-habits-could-add-24-121517438.html)
 <!-- feed end -->
