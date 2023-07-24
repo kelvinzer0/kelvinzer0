@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [These 8 habits could add up to 24 years to your life, study says](https://news.yahoo.com/8-habits-could-add-24-121517438.html)
-- Jul 24 - [High tide? Jokes erupt on social media when Florida beach found covered in marijuana](https://news.yahoo.com/high-tide-jokes-erupt-social-190431005.html)
-- Jul 24 - [Lauren Boebert Says She Threw Away Pin Honoring Uvalde Victim Because Of AirPods](https://news.yahoo.com/lauren-boebert-says-she-threw-184149379.html)
-- Jul 24 - ["The evidence is so overwhelming": Legal expert warns Trump that his defense "is not going to work"](https://news.yahoo.com/evidence-overwhelming-legal-expert-warns-183442874.html)
-- Jul 24 - [Weissmann: If indicted, Trump lashing out at Jack Smith ‘would violate’ standing rules in DC court](https://news.yahoo.com/weissmann-indicted-trump-lashing-jack-181925727.html)
+- Jul 24 - [83-year-old Marietta man, former pastor arrested in cold case murder of 8-year-old girl](https://news.yahoo.com/83-old-marietta-man-former-202248715.html)
+- Jul 24 - [Man who beat officer with flagpole during Capitol riot is sentenced to over 4 years in prison](https://news.yahoo.com/man-beat-officer-flagpole-during-202209064.html)
+- Jul 24 - [Julian Sands's official cause of death announced](https://www.yahoo.com/entertainment/julian-sand-official-cause-of-death-201455202.html)
+- Jul 24 - [I'm Pretty Much The Dumbest Guy Alive, So My Mind Was Completely Blown After Seeing These 21 Absolutely Fascinating Pictures For The Very First Time Last Week](https://www.yahoo.com/lifestyle/im-pretty-much-dumbest-guy-193120168.html)
+- Jul 24 - [Here’s what scientists say about whistleblower claims that Pentagon has evidence of alien crashes](https://news.yahoo.com/scientists-whistleblower-claims-pentagon-evidence-192157630.html)
 <!-- feed end -->
