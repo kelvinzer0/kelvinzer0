@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Miami police director out of surgery after critical injury in Tampa as Florida police investigate](https://news.yahoo.com/miami-dade-police-director-critical-122345847.html)
 - Jul 24 - [Matt Damon Sarcastically Swipes At Trump Campaign's Use Of 'Air' Monologue](https://www.yahoo.com/entertainment/matt-damon-sarcastically-swipes-trump-115407022.html)
+- Jul 24 - [Two protesters burn Koran in front of Iraqi embassy in Denmark](https://news.yahoo.com/protesters-burn-koran-front-iraqi-110451071.html)
+- Jul 24 - [New study reveals troubling factor that can increase the risk of dementia: ‘The effect could actually be quite large’](https://news.yahoo.com/study-reveals-troubling-factor-increase-101500219.html)
 - Jul 24 - [Trump threats will only backfire on him — they prove Jack Smith's entire case](https://news.yahoo.com/trump-threats-only-backfire-him-100001749.html)
-- Jul 24 - [Hundreds of thousands of people fled Russia after it invaded Ukraine — and now the countries that took them in are seeing a boost in their economies](https://news.yahoo.com/hundreds-thousands-people-fled-russia-095327835.html)
-- Jul 24 - [Presidential Historian Sums Up Second Trump Term With 2 Chilling Words](https://news.yahoo.com/presidential-historian-sums-second-donald-091313108.html)
-- Jul 24 - [Tesla owners share some of the unexpected headaches of owning the EV](https://finance.yahoo.com/news/tesla-owners-share-unexpected-headaches-090500096.html)
 <!-- feed end -->
