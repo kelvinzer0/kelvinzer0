@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Missing toddler found by police helicopter in Ohio](https://news.yahoo.com/missing-toddler-found-police-helicopter-012242161.html)
 - Jul 24 - [2 women hikers found dead in Nevada state park amid triple-digit temperatures](https://news.yahoo.com/2-women-hikers-found-dead-002745660.html)
-- Jul 24 - [Justice Dept. will sue Gov. Abbott if Texas doesn't remove floating barrier in Rio Grande](https://news.yahoo.com/justice-dept-sue-gov-abbott-002021613.html)
 - Jul 23 - [Black man attacked by Ohio police dog during traffic stop](https://news.yahoo.com/black-man-attacked-ohio-police-232027221.html)
 - Jul 23 - [Russia and Iran's 'unprecedented' military ties worried the US, but it's starting to look like Russia can't hold up its end of the deal](https://news.yahoo.com/russia-irans-unprecedented-military-ties-213901384.html)
-- Jul 23 - [Some Raise Doubt the $1Billion Powerball Winner in Cali Has Been ID'd](https://news.yahoo.com/californias-1-billion-powerball-winner-192700497.html)
+- Jul 23 - [Strike at trucking firm Yellow averted after deal](https://finance.yahoo.com/news/strike-trucking-firm-yellow-averted-213327326.html)
 <!-- feed end -->
