@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Greta Thunberg is appearing in a Swedish court on a charge of disobeying police at a climate protest](https://news.yahoo.com/greta-thunberg-appearing-swedish-court-063433910.html)
+- Jul 24 - [Bird has flown as Musk, Twitter CEO Yaccarino say 'X' logo is here](https://news.yahoo.com/bird-flown-musk-twitter-ceo-073634815.html)
+- Jul 24 - [Iran targets e-commerce giant over photos of female employees without headscarves in new crackdown](https://news.yahoo.com/iran-targets-e-commerce-giant-073604124.html)
 - Jul 24 - [Analysis-As Japan aligns with U.S. chip curbs on China, some in Tokyo feel uneasy](https://news.yahoo.com/analysis-japan-aligns-u-chip-055954350.html)
 - Jul 24 - [Ex-DOJ Official Delivers Yet Another Ominous Prediction For Donald Trump](https://news.yahoo.com/ex-doj-official-delivers-yet-054925842.html)
 - Jul 24 - [Never Trumpers get ‘brutal wake-up call’ as Republican candidates flounder](https://news.yahoo.com/never-trumpers-brutal-wake-call-050004232.html)
-- Jul 24 - [‘It’s guns versus butter’: Russia on the brink as Putin’s war chest empties](https://finance.yahoo.com/news/guns-versus-butter-russia-brink-050000333.html)
 <!-- feed end -->
