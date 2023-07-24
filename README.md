@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Greta Thunberg fined for disobeying police order - TT](https://news.yahoo.com/greta-thunberg-fined-disobeying-police-103130806.html)
+- Jul 24 - [Trump threats will only backfire on him — they prove Jack Smith's entire case](https://news.yahoo.com/trump-threats-only-backfire-him-100001749.html)
+- Jul 24 - [Hundreds of thousands of people fled Russia after it invaded Ukraine — and now the countries that took them in are seeing a boost in their economies](https://news.yahoo.com/hundreds-thousands-people-fled-russia-095327835.html)
 - Jul 24 - [Presidential Historian Sums Up Second Donald Trump Term With 2 Chilling Words](https://news.yahoo.com/presidential-historian-sums-second-donald-091313108.html)
-- Jul 24 - [8 police officers assigned to protect South Africa's deputy president arrested over highway attack](https://news.yahoo.com/8-police-officers-assigned-protect-084441286.html)
-- Jul 24 - [A United Airlines flight turned back to San Francisco after a passenger refused to stay in his economy class seat and kept walking to the business class cabin](https://news.yahoo.com/united-airlines-flight-turned-back-081623310.html)
-- Jul 24 - [Concerned Neighbors Successfully Rally To Find Mother Who Was Filmed Dragging Her 9-Year-Old Daughter By Her Hair](https://news.yahoo.com/concerned-neighbors-successfully-rally-mother-071500882.html)
-- Jul 24 - [Greta Thunberg is appearing in a Swedish court on a charge of disobeying police at a climate protest](https://news.yahoo.com/greta-thunberg-appearing-swedish-court-063433910.html)
+- Jul 24 - [Tesla owners share some of the unexpected headaches of owning the EV](https://finance.yahoo.com/news/tesla-owners-share-unexpected-headaches-090500096.html)
 <!-- feed end -->
