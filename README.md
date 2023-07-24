@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Twitter (now X) CEO CEO Linda Yaccarino claims usage at 'all time high' in memo to staff](https://news.yahoo.com/twitter-now-x-ceo-ceo-171510497.html)
+- Jul 24 - [Dave Ramsey Explains Why One Golden Rule of Money Is Completely Wrong](https://www.thestreet.com/investing/dave-ramsey-explains-why-one-golden-rule-of-money-completely-wrong?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Jul 24 - [Baby Trapped In Hot Car Saved After Crowd Smashes Windshield](https://news.yahoo.com/baby-trapped-hot-car-saved-170615317.html)
 - Jul 24 - ['Do not release the dog with his hands up!' Black man mauled by police canine after Ohio pursuit](https://news.yahoo.com/not-release-dog-hands-black-184559398.html)
-- Jul 24 - [Biden chooses a longtime Hill aide respected by Republicans as his new legislative affairs director](https://news.yahoo.com/biden-chooses-longtime-hill-aide-161022734.html)
-- Jul 24 - ["Scared" Trump forced to raise a lot of because his lawyers are "holding him up for money": analyst](https://news.yahoo.com/scared-trump-forced-raise-lot-155215911.html)
-- Jul 24 - [Maryland man charged with hate crimes in parking dispute killings](https://news.yahoo.com/maryland-man-charged-hate-crimes-154050255.html)
-- Jul 24 - ['My son died for no reason': Indy mother questions bail system after 15-year-old son killed](https://news.yahoo.com/son-died-no-reason-indy-142933448.html)
+- Jul 24 - [Elon Musk's former Twitter lieutenant, who famously slept on the floor, hints that he's 'destroying' his own product by rebranding it 'X'](https://finance.yahoo.com/news/elon-musks-former-twitter-lieutenant-163424280.html)
 <!-- feed end -->
