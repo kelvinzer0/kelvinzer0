@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [These 8 habits could add up to 24 years to your life, study says](https://news.yahoo.com/8-habits-could-add-24-121517438.html)
+- Jul 24 - [High tide? Jokes erupt on social media when Florida beach found covered in marijuana](https://news.yahoo.com/high-tide-jokes-erupt-social-190431005.html)
 - Jul 24 - [Lauren Boebert Says She Threw Away Pin Honoring Uvalde Victim Because Of AirPods](https://news.yahoo.com/lauren-boebert-says-she-threw-184149379.html)
-- Jul 24 - [Greta Thunberg dragged from climate protest again](https://news.yahoo.com/greta-thunberg-dragged-climate-protest-182745465.html)
-- Jul 24 - [Accuser endures threats, business losses and harassment as Jackson Mahomes awaits trial](https://news.yahoo.com/accuser-endures-threats-business-losses-181014470.html)
-- Jul 24 - [A viral plane passenger said her boyfriend refused to spend $11 to sit next to her, reigniting outrage that airlines charge for assigned seats](https://news.yahoo.com/viral-plane-passenger-said-her-173807610.html)
-- Jul 24 - [Baby Trapped In Hot Car Saved After Crowd Smashes Windshield](https://news.yahoo.com/baby-trapped-hot-car-saved-170615317.html)
+- Jul 24 - ["The evidence is so overwhelming": Legal expert warns Trump that his defense "is not going to work"](https://news.yahoo.com/evidence-overwhelming-legal-expert-warns-183442874.html)
+- Jul 24 - [Weissmann: If indicted, Trump lashing out at Jack Smith ‘would violate’ standing rules in DC court](https://news.yahoo.com/weissmann-indicted-trump-lashing-jack-181925727.html)
 <!-- feed end -->
