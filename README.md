@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Bannon co-defendant Shea sentenced to 5-1/4 years over 'We Build the Wall' fraud](https://news.yahoo.com/bannon-co-defendant-shea-sentenced-213711742.html)
-- Jul 25 - [Marjorie Taylor Greene reportedly found out she was booted from the House Freedom Caucus after seeing her own name trending on Twitter](https://news.yahoo.com/marjorie-taylor-greene-reportedly-found-204412464.html)
-- Jul 25 - [Attorneys For Idaho Stabbings Suspect Argue He’s Not Guilty Due To 1 Key Detail](https://news.yahoo.com/attorneys-idaho-stabbings-suspect-argue-202424140.html)
-- Jul 25 - [Walk-In Vault Found in Rex Heuermann's Basement During Search of Property: Police](https://www.yahoo.com/entertainment/walk-vault-found-rex-heuermanns-202335631.html)
-- Jul 25 - [Bronny James, LeBron James's 18-year-old son, suffered cardiac arrest. Here's what you need to know about the condition.](https://www.yahoo.com/lifestyle/bronny-james-cardiac-arrest-heart-attack-what-to-know-202025438.html)
+- Jul 25 - ['Nudity is not pornography': Fall River police officer asks court to toss child porn case](https://news.yahoo.com/nudity-not-pornography-fall-river-214349283.html)
+- Jul 25 - [Another Major City Has Just Banned Cruise Ships: Here's Why](https://www.yahoo.com/entertainment/another-major-city-just-banned-212852541.html)
+- Jul 25 - [Transgender patients sue the hospital that provided their records to Tennessee's attorney general](https://news.yahoo.com/transgender-patients-sue-hospital-provided-204732416.html)
+- Jul 25 - [Marjorie Taylor Greene reportedly found out she was booted from the House Freedom Caucus after seeing her own name trending on Twitter](https://news.yahoo.com/marjorie-taylor-greene-reportedly-found-204412855.html)
+- Jul 25 - [House Republicans plan to hold Meta's Mark Zuckerberg in contempt of Congress](https://news.yahoo.com/house-republicans-plan-hold-metas-204235993.html)
 <!-- feed end -->
