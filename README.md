@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Officer who put woman in a police car hit by a train didn't know it was on the tracks, defense says](https://news.yahoo.com/officer-put-woman-police-car-011445375.html)
+- Jul 25 - [Idaho jury hits Bundy, defendants with tens of millions in damages in St. Luke’s lawsuit](https://news.yahoo.com/idaho-jury-hits-bundy-defendants-010639408.html)
+- Jul 25 - [Smoke billowing from fire after reactor ‘catastrophically failed’ on Brunot Island, officials say](https://news.yahoo.com/smoke-billowing-fire-reactor-catastrophically-010439430.html)
 - Jul 25 - [Florida Supreme Court reprimands judge for conduct during Parkland school shooting trial](https://news.yahoo.com/florida-supreme-court-reprimands-judge-002306689.html)
 - Jul 25 - [Body of Obamas' personal chef recovered from Martha's Vineyard lake](https://news.yahoo.com/body-obamas-personal-chef-recovered-000426620.html)
-- Jul 24 - [Justice Department to make prosecutor in Hunter Biden case available to testify before Congress](https://news.yahoo.com/justice-department-prosecutor-hunter-biden-233659997.html)
-- Jul 24 - [Officer who put woman in police car hit by train didn't know it was on the tracks, defense says](https://news.yahoo.com/officer-put-woman-police-car-233643581.html)
-- Jul 24 - [Former US prison employee to admit to accepting payments from Rajaratnam -source](https://news.yahoo.com/former-us-prison-employee-admit-233110055.html)
 <!-- feed end -->
