@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Trevor Reed, Marine veteran freed from Russia in 2022, is injured while fighting in Ukraine, US says](https://news.yahoo.com/marine-veteran-freed-russia-2022-173641529.html)
-- Jul 25 - [Aaron Hernandez brother faces new charges amid concerns over threats, visits to UConn, Brown](https://news.yahoo.com/aaron-hernandez-brother-faces-charges-173033206.html)
-- Jul 25 - [Leaked Texts Appear to Show Andrew Tate’s Alleged Trafficking Tactics](https://www.yahoo.com/entertainment/leaked-texts-appear-show-andrew-163223742.html)
+- Jul 25 - ["He Said That Blisters Won’t Heal Unless You Pop Them": 16 Times People Rightfully Second-Guessed Their Doctors](https://www.yahoo.com/lifestyle/said-blisters-won-t-heal-174602203.html)
+- Jul 25 - [A man is selling a wall in Washington, DC, for $50,000 out of spite for his neighbor](https://news.yahoo.com/man-selling-wall-washington-dc-173439837.html)
+- Jul 25 - [Leaked Texts Show Andrew Tate’s Alleged Trafficking Tactics](https://www.yahoo.com/entertainment/leaked-texts-appear-show-andrew-163223742.html)
 - Jul 25 - [Itaewon victims' families devastated after court ruling](https://news.yahoo.com/itaewon-victims-families-devastated-court-161044722.html)
-- Jul 25 - [UPS reaches tentative contract with 340,000 unionized workers potentially dodging calamitous strike](https://news.yahoo.com/ups-reaches-contract-340-000-155548466.html)
+- Jul 25 - [People Are Sharing Their Favorite "Forgotten" Movies, And It's A Real Roller Coaster Of Nostalgia](https://www.yahoo.com/entertainment/people-sharing-favorite-forgotten-movies-154602100.html)
 <!-- feed end -->
