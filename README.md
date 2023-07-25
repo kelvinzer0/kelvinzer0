@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Netflix lists $900,000 AI job as actors and writers continue to strike](https://news.yahoo.com/netflix-lists-900000-ai-job-as-actors-and-writers-continue-to-strike-190037630.html)
-- Jul 25 - [Accused Killer Smirks at Horrific Details of Meth-Fueled Sex Slaying](https://news.yahoo.com/accused-killer-smirks-horrific-details-185611588.html)
-- Jul 25 - [‘Will I kill? Absolutely’: Aaron Hernandez’s brother accused of planning shootings at 2 universities](https://news.yahoo.com/brother-aaron-hernandez-accused-planning-183456903.html)
-- Jul 25 - [ChatGPT creator says AI advocates are fooling themselves if they think the technology is only going to be good for workers: 'Jobs are definitely going to go away'](https://finance.yahoo.com/news/chatgpt-creator-says-ai-advocates-183137811.html)
-- Jul 25 - ["He Said That Blisters Won’t Heal Unless You Pop Them": 16 Times People Rightfully Second-Guessed Their Doctors](https://www.yahoo.com/lifestyle/said-blisters-won-t-heal-174602203.html)
+- Jul 25 - [Attorneys For Idaho Stabbings Suspect Argue He’s Not Guilty Due To 1 Key Detail](https://news.yahoo.com/attorneys-idaho-stabbings-suspect-argue-202424140.html)
+- Jul 25 - [Walk-In Vault Found in Rex Heuermann's Basement During Search of Property: Police](https://www.yahoo.com/entertainment/walk-vault-found-rex-heuermanns-202335631.html)
+- Jul 25 - [Bronny James, LeBron James's 18-year-old son, suffered cardiac arrest. Here's what you need to know about the condition.](https://www.yahoo.com/lifestyle/bronny-james-cardiac-arrest-heart-attack-what-to-know-202025438.html)
+- Jul 25 - [Ex-CIA Officer Accused of Disturbing ‘Sex Training’ Has Gone MIA](https://news.yahoo.com/ex-cia-officer-accused-disturbing-195850132.html)
+- Jul 25 - [Aaron Hernandez's brother Dennis arrested for allegedly planning shootings at UConn, Brown](https://sports.yahoo.com/aaron-hernandezs-brother-dennis-arrested-for-allegedly-planning-shootings-at-uconn-brown-194231721.html)
 <!-- feed end -->
