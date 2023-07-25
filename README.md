@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [DeSantis is in a car accident on his way to Tennessee presidential campaign events but isn't injured](https://news.yahoo.com/desantis-car-accident-way-tennessee-132629398.html)
-- Jul 25 - [A Russian fighter jet fired flares at a US drone over Syria and damaged it, the US military says](https://news.yahoo.com/russian-fighter-jet-fired-flares-122528124.html)
-- Jul 25 - [Mississippi man got out of jail early for child porn. Then cops found a forbidden laptop.](https://news.yahoo.com/mississippi-man-got-jail-early-122000806.html)
-- Jul 25 - [Dave Ramsey: Stop Making Everyone Else Rich — 3 Expenses To Cut](https://finance.yahoo.com/news/dave-ramsey-stop-making-everyone-120036732.html)
-- Jul 25 - [China replaces foreign minister Qin after brief stint and weeks of speculation](https://news.yahoo.com/china-appoints-wang-yi-foreign-112414161.html)
+- Jul 25 - [Report: USC's Bronny James stable, out of ICU after cardiac arrest during workout](https://sports.yahoo.com/report-uscs-bronny-james-stable-out-of-icu-after-cardiac-arrest-during-workout-143536860.html)
+- Jul 25 - ['Silver fox' Wang Yi returns to lead China's foreign ministry](https://news.yahoo.com/silver-fox-wang-yi-returns-134704835.html)
+- Jul 25 - [UN says Ukrainian POWs in Donetsk not killed by rocket, as Russia claimed](https://news.yahoo.com/un-says-ukrainian-pows-donetsk-134627519.html)
+- Jul 25 - [DeSantis is unhurt in a car accident in Tennessee while traveling to presidential campaign events](https://news.yahoo.com/desantis-car-accident-way-tennessee-132629398.html)
+- Jul 25 - [How an Arizona lawmaker's 18-mile move put taxpayers on the hook for a massive payout](https://news.yahoo.com/arizona-lawmakers-18-mile-move-130118373.html)
 <!-- feed end -->
