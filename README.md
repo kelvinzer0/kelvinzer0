@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Trump's downfall is coming: Now the Democrats must use his crimes to finish him](https://news.yahoo.com/trumps-downfall-coming-now-democrats-094502420.html)
-- Jul 25 - [Russia's not just seeing an exodus of people — it saw a record $239 billion worth of assets being pulled out last year](https://news.yahoo.com/russias-not-just-seeing-exodus-093233670.html)
-- Jul 25 - [India now has AI news anchors. I tuned in and within the first 5 minutes, it's clear that news presenters are in serious trouble.](https://finance.yahoo.com/news/india-now-ai-news-anchors-092456857.html)
-- Jul 25 - [Forget college admissions — some parents are shelling out up to $4,000 just to get their daughters into sororities: WSJ](https://www.yahoo.com/entertainment/forget-college-admissions-mdash-parents-091700302.html)
-- Jul 25 - [Former RNC Chair Puts 2024 Candidate Nikki Haley On Notice Over Donald Trump](https://news.yahoo.com/former-rnc-chair-puts-2024-082614811.html)
+- Jul 25 - [China replaces foreign minister Qin after brief stint and weeks of speculation](https://news.yahoo.com/china-appoints-wang-yi-foreign-112414161.html)
+- Jul 25 - [800-year-old sword was found in Mediterranean Sea. Now experts know how it got there](https://news.yahoo.com/800-old-sword-found-mediterranean-110000175.html)
+- Jul 25 - [National Hurricane Center tracking system east of Florida. Residents urged to be prepared](https://news.yahoo.com/national-hurricane-center-tracking-system-102406877.html)
+- Jul 25 - [Homeowner outraged after facing $2,500 HOA fine over simple laundry debate: ‘I never realized this was a possibility’](https://news.yahoo.com/homeowner-outraged-facing-2-500-100000362.html)
+- Jul 25 - [Grocery shopper slams Walmart over concerning new product change: ‘We are heading in the wrong direction’](https://news.yahoo.com/grocery-shopper-slams-walmart-over-100000978.html)
 <!-- feed end -->
