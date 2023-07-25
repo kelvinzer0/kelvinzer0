@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Trevor Reed, Marine veteran freed from Russia in 2022, is injured while fighting in Ukraine, US says](https://news.yahoo.com/marine-veteran-freed-russia-2022-173641529.html)
+- Jul 25 - [Aaron Hernandez brother faces new charges amid concerns over threats, visits to UConn, Brown](https://news.yahoo.com/aaron-hernandez-brother-faces-charges-173033206.html)
 - Jul 25 - [Leaked Texts Appear to Show Andrew Tate’s Alleged Trafficking Tactics](https://www.yahoo.com/entertainment/leaked-texts-appear-show-andrew-163223742.html)
 - Jul 25 - [Itaewon victims' families devastated after court ruling](https://news.yahoo.com/itaewon-victims-families-devastated-court-161044722.html)
-- Jul 25 - [UPS reaches tentative contract with 340,000 unionized workers, potentially dodging calamitous strike](https://news.yahoo.com/ups-reaches-contract-340-000-155548466.html)
-- Jul 25 - [Why is Israel's new judicial law so controversial?](https://news.yahoo.com/why-israels-judicial-law-controversial-155515239.html)
-- Jul 25 - [Here's why the pilot of Enola Gay had no regrets about dropping the first atom bomb designed by Oppenheimer](https://news.yahoo.com/heres-why-pilot-enola-gay-154919468.html)
+- Jul 25 - [UPS reaches tentative contract with 340,000 unionized workers potentially dodging calamitous strike](https://news.yahoo.com/ups-reaches-contract-340-000-155548466.html)
 <!-- feed end -->
