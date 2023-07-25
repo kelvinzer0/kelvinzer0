@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Former RNC Chair Puts 2024 Candidate Nikki Haley On Notice Over Donald Trump](https://news.yahoo.com/former-rnc-chair-puts-2024-082614811.html)
 - Jul 25 - [Japan police arrest woman, parents in beheading of man at hotel in Hokkaido entertainment district](https://news.yahoo.com/japan-police-arrest-woman-parents-043000814.html)
 - Jul 25 - [Victims in deadly collapse of China middle school gym roof largely members of girl's volleyball team](https://news.yahoo.com/victims-deadly-collapse-china-middle-035811760.html)
 - Jul 25 - [President Biden won’t acknowledge his youngest granddaughter. It turns off even some supporters.](https://news.yahoo.com/president-biden-won-t-acknowledge-020119976.html)
 - Jul 25 - [I'm Shocked, Disturbed, And Horrified By These Facts About Oppenheimer And The Atomic Bomb](https://www.yahoo.com/lifestyle/25-deeply-upsetting-facts-oppenheimer-020104890.html)
-- Jul 25 - [Dwayne 'The Rock' Johnson Donates Unprecedented 7 Figures To Striking Actors](https://www.yahoo.com/entertainment/dwayne-rock-johnson-donates-unprecedented-012743231.html)
 <!-- feed end -->
