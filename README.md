@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Ecuador's Lasso declares state of emergency across prison system](https://news.yahoo.com/ecuadors-lasso-declares-state-emergency-154414020.html)
 - Jul 25 - [Report: USC's Bronny James stable, out of ICU after cardiac arrest during workout](https://sports.yahoo.com/report-uscs-bronny-james-stable-out-of-icu-after-cardiac-arrest-during-workout-143536860.html)
-- Jul 25 - ['Silver fox' Wang Yi returns to lead China's foreign ministry](https://news.yahoo.com/silver-fox-wang-yi-returns-134704835.html)
-- Jul 25 - [UN says Ukrainian POWs in Donetsk not killed by rocket, as Russia claimed](https://news.yahoo.com/un-says-ukrainian-pows-donetsk-134627519.html)
-- Jul 25 - [DeSantis is unhurt in a car accident in Tennessee while traveling to presidential campaign events](https://news.yahoo.com/desantis-car-accident-way-tennessee-132629398.html)
-- Jul 25 - [How an Arizona lawmaker's 18-mile move put taxpayers on the hook for a massive payout](https://news.yahoo.com/arizona-lawmakers-18-mile-move-130118373.html)
+- Jul 25 - [Biden's dog Commander has bitten Secret Service officers 10 times in four months, records show](https://news.yahoo.com/bidens-dog-commander-bitten-secret-150853348.html)
+- Jul 25 - [Atlantic Ocean current could collapse soon. How you may endure dramatic weather changes.](https://news.yahoo.com/atlantic-ocean-current-could-collapse-150009050.html)
+- Jul 25 - [Former Ford CEO Has a Blunt Warning for the EV Industry](https://www.thestreet.com/electric-vehicles/former-ford-ceo-has-blunt-warning-for-electric-vehicle-industry?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
