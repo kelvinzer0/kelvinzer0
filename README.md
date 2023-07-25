@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Trump's downfall is coming: Now the Democrats must use his crimes to finish him](https://news.yahoo.com/trumps-downfall-coming-now-democrats-094502420.html)
+- Jul 25 - [Russia's not just seeing an exodus of people — it saw a record $239 billion worth of assets being pulled out last year](https://news.yahoo.com/russias-not-just-seeing-exodus-093233670.html)
+- Jul 25 - [India now has AI news anchors. I tuned in and within the first 5 minutes, it's clear that news presenters are in serious trouble.](https://finance.yahoo.com/news/india-now-ai-news-anchors-092456857.html)
+- Jul 25 - [Forget college admissions — some parents are shelling out up to $4,000 just to get their daughters into sororities: WSJ](https://www.yahoo.com/entertainment/forget-college-admissions-mdash-parents-091700302.html)
 - Jul 25 - [Former RNC Chair Puts 2024 Candidate Nikki Haley On Notice Over Donald Trump](https://news.yahoo.com/former-rnc-chair-puts-2024-082614811.html)
-- Jul 25 - [Thirty explosions rock occupied Kakhovka, Russians suffer significant losses — mayor's adviser](https://news.yahoo.com/thirty-explosions-rock-occupied-kakhovka-082000066.html)
-- Jul 25 - [Carlee Russell’s ex-boyfriend speaks out, condemns kidnapping hoax](https://news.yahoo.com/carlee-russell-ex-boyfriend-speaks-070654729.html)
-- Jul 25 - [Japan police arrest woman, parents in beheading of man at hotel in Hokkaido entertainment district](https://news.yahoo.com/japan-police-arrest-woman-parents-043000814.html)
-- Jul 25 - [President Biden won’t acknowledge his youngest granddaughter. It turns off even some supporters.](https://news.yahoo.com/president-biden-won-t-acknowledge-020119976.html)
 <!-- feed end -->
