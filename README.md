@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Obamas' personal chef drowns near family's home on Martha’s Vineyard](https://news.yahoo.com/obamas-personal-chef-drowns-near-223305641.html)
-- Jul 24 - [Judge says he plans to sentence gynecologist who sexually abused patients to 20 years in prison](https://news.yahoo.com/judge-says-plans-sentence-gynecologist-221820202.html)
-- Jul 24 - [Ex-Trump official reveals when she noticed a shift in Trump’s attitude](https://news.yahoo.com/ex-trump-official-analyzes-trump-212325815.html)
-- Jul 24 - [Stepdad wins big Powerball prize — and gives his stepdaughter ‘good and bad news’](https://news.yahoo.com/stepdad-wins-big-powerball-prize-214914058.html)
-- Jul 24 - [Carlee Russell apologizes, says there was no kidnapping](https://news.yahoo.com/carlee-russell-apologizes-says-no-212700519.html)
+- Jul 25 - [Florida Supreme Court reprimands judge for conduct during Parkland school shooting trial](https://news.yahoo.com/florida-supreme-court-reprimands-judge-002306689.html)
+- Jul 25 - [Body of Obamas' personal chef recovered from Martha's Vineyard lake](https://news.yahoo.com/body-obamas-personal-chef-recovered-000426620.html)
+- Jul 24 - [Justice Department to make prosecutor in Hunter Biden case available to testify before Congress](https://news.yahoo.com/justice-department-prosecutor-hunter-biden-233659997.html)
+- Jul 24 - [Officer who put woman in police car hit by train didn't know it was on the tracks, defense says](https://news.yahoo.com/officer-put-woman-police-car-233643581.html)
+- Jul 24 - [Former US prison employee to admit to accepting payments from Rajaratnam -source](https://news.yahoo.com/former-us-prison-employee-admit-233110055.html)
 <!-- feed end -->
