@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Netflix lists $900,000 AI job as actors and writers continue to strike](https://news.yahoo.com/netflix-lists-900000-ai-job-as-actors-and-writers-continue-to-strike-190037630.html)
+- Jul 25 - [Accused Killer Smirks at Horrific Details of Meth-Fueled Sex Slaying](https://news.yahoo.com/accused-killer-smirks-horrific-details-185611588.html)
+- Jul 25 - [‘Will I kill? Absolutely’: Aaron Hernandez’s brother accused of planning shootings at 2 universities](https://news.yahoo.com/brother-aaron-hernandez-accused-planning-183456903.html)
+- Jul 25 - [ChatGPT creator says AI advocates are fooling themselves if they think the technology is only going to be good for workers: 'Jobs are definitely going to go away'](https://finance.yahoo.com/news/chatgpt-creator-says-ai-advocates-183137811.html)
 - Jul 25 - ["He Said That Blisters Won’t Heal Unless You Pop Them": 16 Times People Rightfully Second-Guessed Their Doctors](https://www.yahoo.com/lifestyle/said-blisters-won-t-heal-174602203.html)
-- Jul 25 - [A man is selling a wall in Washington, DC, for $50,000 out of spite for his neighbor](https://news.yahoo.com/man-selling-wall-washington-dc-173439837.html)
-- Jul 25 - [Leaked Texts Show Andrew Tate’s Alleged Trafficking Tactics](https://www.yahoo.com/entertainment/leaked-texts-appear-show-andrew-163223742.html)
-- Jul 25 - [Itaewon victims' families devastated after court ruling](https://news.yahoo.com/itaewon-victims-families-devastated-court-161044722.html)
-- Jul 25 - [People Are Sharing Their Favorite "Forgotten" Movies, And It's A Real Roller Coaster Of Nostalgia](https://www.yahoo.com/entertainment/people-sharing-favorite-forgotten-movies-154602100.html)
 <!-- feed end -->
