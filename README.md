@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [President Biden won’t acknowledge his youngest granddaughter. It turns off even some supporters.](https://news.yahoo.com/president-biden-won-t-acknowledge-020119976.html)
+- Jul 25 - [Dwayne 'The Rock' Johnson Donates Unprecedented 7 Figures To Striking Actors](https://www.yahoo.com/entertainment/dwayne-rock-johnson-donates-unprecedented-012743231.html)
 - Jul 25 - [Officer who put woman in a police car hit by a train didn't know it was on the tracks, defense says](https://news.yahoo.com/officer-put-woman-police-car-011445375.html)
 - Jul 25 - [Idaho jury hits Bundy, defendants with tens of millions in damages in St. Luke’s lawsuit](https://news.yahoo.com/idaho-jury-hits-bundy-defendants-010639408.html)
 - Jul 25 - [Smoke billowing from fire after reactor ‘catastrophically failed’ on Brunot Island, officials say](https://news.yahoo.com/smoke-billowing-fire-reactor-catastrophically-010439430.html)
-- Jul 25 - [Florida Supreme Court reprimands judge for conduct during Parkland school shooting trial](https://news.yahoo.com/florida-supreme-court-reprimands-judge-002306689.html)
-- Jul 25 - [Body of Obamas' personal chef recovered from Martha's Vineyard lake](https://news.yahoo.com/body-obamas-personal-chef-recovered-000426620.html)
 <!-- feed end -->
