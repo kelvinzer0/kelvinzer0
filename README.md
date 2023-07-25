@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [A Russian fighter jet fired flares at a US drone over Syria and damaged it, the US military says](https://news.yahoo.com/russian-fighter-jet-fired-flares-122528124.html)
 - Jul 25 - [China replaces foreign minister Qin after brief stint and weeks of speculation](https://news.yahoo.com/china-appoints-wang-yi-foreign-112414161.html)
 - Jul 25 - [800-year-old sword was found in Mediterranean Sea. Now experts know how it got there](https://news.yahoo.com/800-old-sword-found-mediterranean-110000175.html)
+- Jul 25 - [New photos released of men accused of breaking into more than 100 cars at apartment complex](https://news.yahoo.com/police-search-2-men-accused-094904257.html)
 - Jul 25 - [National Hurricane Center tracking system east of Florida. Residents urged to be prepared](https://news.yahoo.com/national-hurricane-center-tracking-system-102406877.html)
-- Jul 25 - [Homeowner outraged after facing $2,500 HOA fine over simple laundry debate: ‘I never realized this was a possibility’](https://news.yahoo.com/homeowner-outraged-facing-2-500-100000362.html)
-- Jul 25 - [Grocery shopper slams Walmart over concerning new product change: ‘We are heading in the wrong direction’](https://news.yahoo.com/grocery-shopper-slams-walmart-over-100000978.html)
 <!-- feed end -->
