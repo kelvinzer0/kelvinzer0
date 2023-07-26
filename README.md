@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Sen. McConnell Freezes During Press Conference](https://finance.yahoo.com/video/sen-mcconnell-freezes-during-press-192831283.html)
-- Jul 26 - [McConnell stops speaking mid-sentence at press conference](https://news.yahoo.com/mcconnell-stops-speaking-mid-sentence-190516112.html)
+- Jul 26 - [Russian fighter jet strikes another American drone over Syria in the sixth incident this month](https://news.yahoo.com/russian-fighter-jet-strikes-another-201642245.html)
+- Jul 26 - [Fed staff drop US recession forecast, Powell says](https://news.yahoo.com/fed-staff-no-longer-forecasting-192044903.html)
+- Jul 26 - [Riquna Williams barred from WNBA's Aces after felony domestic violence arrest in Las Vegas](https://news.yahoo.com/wnbas-riquna-williams-arrested-felony-185738689.html)
 - Jul 26 - [Senate GOP leader McConnell briefly leaves news conference after freezing up mid-sentence](https://news.yahoo.com/senate-gop-leader-mcconnell-briefly-185251765.html)
-- Jul 26 - [McConnell freezes in press conference and is unable to finish statement](https://news.yahoo.com/mcconnell-freezes-press-conference-unable-184211669.html)
-- Jul 26 - [UFO hearing: Whistleblower testifies government 'absolutely' has possession of 'nonhuman' craft](https://news.yahoo.com/ufo-whistleblower-hearing-house-oversight-non-human-craft-uap-navy-pilots-171759861.html)
+- Jul 26 - [Three Marines found in vehicle in North Carolina, including 19-year-old Madison man, died of carbon monoxide poisoning](https://news.yahoo.com/three-marines-found-vehicle-north-184309074.html)
 <!-- feed end -->
