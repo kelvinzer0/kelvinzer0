@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - ["Incandescently stupid": Former DHS official says he had to "dumb" down classified memos for Trump](https://news.yahoo.com/incandescently-stupid-former-dhs-official-145845005.html)
-- Jul 26 - [Trump Says He’ll Revive Stolen-Vote Claim If He’s Charged Over Jan. 6](https://news.yahoo.com/trump-says-ll-revive-stolen-143721191.html)
-- Jul 26 - [Video shows a Ukrainian tank chasing Russian soldiers into artillery fire after they refused to surrender](https://news.yahoo.com/video-shows-ukrainian-tank-chasing-142350131.html)
-- Jul 26 - ['So Unprecedented': Kevin O'Leary Says Bud Light Is The Gift That Keeps On Giving, Plans To Teach Its 25% Market Share Collapse To College Students](https://finance.yahoo.com/news/unprecedented-kevin-oleary-says-bud-142108101.html)
-- Jul 26 - [Melania “livid” over Trump lawyers’ handling of sexual abuse case: report](https://news.yahoo.com/melania-livid-over-trump-lawyers-141856228.html)
+- Jul 26 - [Hunter Biden plea deal falls through, at least for now, after judge expresses concern over agreement](https://news.yahoo.com/hunter-biden-plea-deal-falls-161504292.html)
+- Jul 26 - [Former Navy Pilot Testifies to Congress About Chilling UFO Encounter Off Virginia Coast](https://news.yahoo.com/former-navy-pilot-testifies-congress-160533737.html)
+- Jul 26 - [Whistleblower tells Congress the US is concealing 'multi-decade' program that captures UFOs](https://news.yahoo.com/whistleblower-tells-congress-us-concealing-160311543.html)
+- Jul 26 - ['Going back into the pot': The Pentagon admits to a stunning $6.2 billion accounting error — which means it can now provide even more aid to Ukraine. Here's exactly what happened](https://finance.yahoo.com/news/going-back-pot-pentagon-just-154400833.html)
+- Jul 26 - [Hunter Biden Plea Deal Falls Apart in Court](https://finance.yahoo.com/video/hunter-biden-plea-deal-falls-155523470.html)
 <!-- feed end -->
