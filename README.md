@@ -57,7 +57,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 26 - [Former RNC Chair Names The Chilling Lesson Donald Trump Has Learned For 2024](https://news.yahoo.com/former-rnc-chair-names-chilling-062100482.html)
 - Jul 26 - [Jeffrey Epstein withdrew up to $80,000 in cash 'several times a month' while he paid girls for 'massages,' court filings say](https://finance.yahoo.com/news/jeffrey-epstein-withdrew-80-000-210314722.html)
+- Jul 26 - [Government urges public to kill uncontrollable, invasive ‘Frankenfish’ before it runs wild: ‘It will just be a matter of time’](https://news.yahoo.com/government-urges-public-kill-uncontrollable-050000114.html)
+- Jul 26 - [14 Embarrassing Screenshots Of People Who Were Caught In A Lie And Then Were Called Out For It](https://www.yahoo.com/lifestyle/14-embarrassing-screenshots-people-were-011602007.html)
 - Jul 26 - [Japan's population falls while foreign residents rise to record](https://news.yahoo.com/japans-population-falls-while-foreign-010735237.html)
-- Jul 26 - [China is showing up big for Russia but a Cold War historian says Putin is making a 'potentially grave error' and shouldn't expect the lifeline to last](https://news.yahoo.com/china-showing-big-russia-cold-002150750.html)
-- Jul 26 - [Biden says over 100 people died during the pandemic in speech on expanding mental health care](https://news.yahoo.com/biden-says-over-100-people-002118910.html)
 <!-- feed end -->
