@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 26 - [China is showing up big for Russia but a Cold War historian says Putin is making a 'potentially grave error' and shouldn't expect the lifeline to last](https://news.yahoo.com/china-showing-big-russia-cold-002150750.html)
+- Jul 26 - [These Filipino creators don’t have a nose bridge and are embracing it with this TikTok trend](https://news.yahoo.com/filipino-creators-don-t-nose-000409090.html)
 - Jul 25 - [Saguaro cacti collapsing in Arizona extreme heat, scientist says](https://news.yahoo.com/saguaro-cacti-collapsing-arizona-extreme-235908879.html)
 - Jul 25 - [Two-thirds of African leaders refuse to attend Putin’s summit](https://news.yahoo.com/two-thirds-african-leaders-refuse-232100114.html)
-- Jul 25 - [Lawyers Are Confessing The Cases They Regret Winning, And These Are Sooo Messed Up](https://www.yahoo.com/lifestyle/lawyers-confessing-cases-regret-winning-231602919.html)
-- Jul 25 - [Nampa man shot driver for giving him the middle finger. What the judge decided](https://news.yahoo.com/nampa-man-shot-driver-giving-230110072.html)
+- Jul 25 - ["This Is Going To Haunt Me Until I Die." Lawyers Are Revealing The Cases They Regret Winning, And It's Heartbreaking](https://www.yahoo.com/lifestyle/lawyers-confessing-cases-regret-winning-231602919.html)
 <!-- feed end -->
