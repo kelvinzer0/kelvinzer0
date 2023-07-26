@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 26 - [What happens if climate change causes the Atlantic Ocean current to collapse?](https://news.yahoo.com/what-happens-if-climate-change-causes-the-atlantic-ocean-current-to-collapse-221433345.html)
+- Jul 26 - [One family pocketed $7.6 million by taking cans and bottles from Arizona and recycling them in California. That's fraud, prosecutors say.](https://news.yahoo.com/one-family-pocketed-7-6-221318711.html)
 - Jul 26 - [JFK's Reported Mistress Revealed Which One of His Team Members Allegedly Set Up His Affairs](https://www.yahoo.com/entertainment/jfks-reported-mistress-revealed-one-212000166.html)
 - Jul 26 - [Disney Rejects Ron DeSantis’ Desire To Kill Retaliation Suit; “The Governor Seeks To Evade Responsibility For His Actions,” Mouse House Says](https://www.yahoo.com/entertainment/disney-rejects-ron-desantis-desire-211850765.html)
 - Jul 26 - ['Put the American public first': Senators propose law that bans members of Congress and executive officials — including the president — from trading stocks](https://finance.yahoo.com/news/put-american-public-first-senators-211500437.html)
-- Jul 26 - [Russian fighter jet strikes another American drone over Syria in the sixth incident this month](https://news.yahoo.com/russian-fighter-jet-strikes-another-201642245.html)
-- Jul 26 - [Fed staff drop US recession forecast, Powell says](https://news.yahoo.com/fed-staff-no-longer-forecasting-192044903.html)
 <!-- feed end -->
