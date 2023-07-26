@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 26 - [Video shows a Ukrainian tank chasing Russian soldiers into artillery fire after they refused to surrender](https://news.yahoo.com/video-shows-ukrainian-tank-chasing-142350131.html)
+- Jul 26 - [Ruins of ancient Nero's Theater discovered under garden of future Four Seasons near Vatican](https://news.yahoo.com/ruins-ancient-neros-theater-discovered-141607368.html)
 - Jul 26 - [Legal experts: Giuliani just made a “desperate, last-second” concession — but it won’t save him](https://news.yahoo.com/legal-experts-giuliani-just-made-130108113.html)
 - Jul 26 - [Todd and Julie Chrisley are in 'nightmare' prison conditions, including 'black mold, asbestos,' and snakes 'slithering on the floor,' say their children Savannah and Chase](https://www.yahoo.com/entertainment/todd-julie-chrisley-nightmare-prison-120628960.html)
-- Jul 26 - [Naked woman gets out of car at major Bay Area bridge, starts firing gun](https://news.yahoo.com/naked-woman-gets-car-major-113400636.html)
-- Jul 26 - [Singapore hangs a man for drug trafficking. It will hang a woman on Friday — the first in 19 years](https://news.yahoo.com/singapore-hangs-man-drug-trafficking-112543701.html)
-- Jul 26 - [Homeowner shocked by HOA’s ‘outdated’ vehicle rules: ‘[They’re] going to discourage people from buying in our community’](https://news.yahoo.com/homeowner-shocked-hoa-outdated-vehicle-101500548.html)
+- Jul 26 - [Gen Z intern shocks recruiter with list of demands including working no more than 5 hours, a start-up culture and an above average salary](https://finance.yahoo.com/news/gen-z-intern-shocks-recruiter-113447157.html)
 <!-- feed end -->
