@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 26 - [Helping DeSantis ease white-student discomfort: Top-10 advantages of slavery to slaves](https://news.yahoo.com/helping-desantis-ease-white-student-120710589.html)
+- Jul 26 - [Todd and Julie Chrisley are in 'nightmare' prison conditions, including 'black mold, asbestos,' and snakes 'slithering on the floor,' say their children Savannah and Chase](https://www.yahoo.com/entertainment/todd-julie-chrisley-nightmare-prison-120628960.html)
 - Jul 26 - [Rudy Giuliani concedes he made false statements about two Georgia election workers](https://news.yahoo.com/rudy-giuliani-concedes-made-false-115101861.html)
 - Jul 26 - [Naked woman gets out of car at major Bay Area bridge, starts firing gun](https://news.yahoo.com/naked-woman-gets-car-major-113400636.html)
 - Jul 26 - [Singapore hangs a man for drug trafficking. It will hang a woman on Friday — the first in 19 years](https://news.yahoo.com/singapore-hangs-man-drug-trafficking-112543701.html)
-- Jul 26 - [Russia briefly deployed its super-advanced T-14 tanks to Ukraine, then withdrew them again, state media says](https://news.yahoo.com/russia-briefly-deployed-super-advanced-102648500.html)
-- Jul 26 - [Homeowner shocked by HOA’s ‘outdated’ vehicle rules: ‘[They’re] going to discourage people from buying in our community’](https://news.yahoo.com/homeowner-shocked-hoa-outdated-vehicle-101500548.html)
 <!-- feed end -->
