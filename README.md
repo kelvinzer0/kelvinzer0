@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Hunter Biden plea deal falls through, at least for now, after judge expresses concern over agreement](https://news.yahoo.com/hunter-biden-plea-deal-falls-161504292.html)
-- Jul 26 - [Former Navy Pilot Testifies to Congress About Chilling UFO Encounter Off Virginia Coast](https://news.yahoo.com/former-navy-pilot-testifies-congress-160533737.html)
-- Jul 26 - [Whistleblower tells Congress the US is concealing 'multi-decade' program that captures UFOs](https://news.yahoo.com/whistleblower-tells-congress-us-concealing-160311543.html)
-- Jul 26 - ['Going back into the pot': The Pentagon admits to a stunning $6.2 billion accounting error — which means it can now provide even more aid to Ukraine. Here's exactly what happened](https://finance.yahoo.com/news/going-back-pot-pentagon-just-154400833.html)
-- Jul 26 - [Hunter Biden Plea Deal Falls Apart in Court](https://finance.yahoo.com/video/hunter-biden-plea-deal-falls-155523470.html)
+- Jul 26 - [UFO hearing: Whistleblower testifies government 'absolutely' has possession of 'nonhuman' craft](https://news.yahoo.com/ufo-whistleblower-hearing-house-oversight-non-human-craft-uap-navy-pilots-171759861.html)
+- Jul 26 - [High school student who sat in Pence’s chair during Capitol riot is sentenced to 1 year in prison](https://news.yahoo.com/high-school-student-sat-pence-170729916.html)
+- Jul 26 - [‘Monster’ fish pulled from Arkansas lake dwarfs record — but it won’t be recognized](https://news.yahoo.com/monster-fish-pulled-arkansas-lake-164741543.html)
+- Jul 26 - [Melania Trump started a scholarship program called 'Fostering the Future,' but no charity with that name is registered in New York or Florida](https://news.yahoo.com/melania-trump-started-scholarship-program-164640425.html)
+- Jul 26 - [Watch Moment Amazon Driver Dives Fully Clothed Into Customer’s Swimming Pool to Cool Off](https://www.yahoo.com/entertainment/watch-moment-amazon-driver-dives-164321433.html)
 <!-- feed end -->
