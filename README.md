@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - ['Nudity is not pornography': Fall River police officer asks court to toss child porn case](https://news.yahoo.com/nudity-not-pornography-fall-river-214349283.html)
-- Jul 25 - [Another Major City Has Just Banned Cruise Ships: Here's Why](https://www.yahoo.com/entertainment/another-major-city-just-banned-212852541.html)
-- Jul 25 - [Transgender patients sue the hospital that provided their records to Tennessee's attorney general](https://news.yahoo.com/transgender-patients-sue-hospital-provided-204732416.html)
-- Jul 25 - [Marjorie Taylor Greene reportedly found out she was booted from the House Freedom Caucus after seeing her own name trending on Twitter](https://news.yahoo.com/marjorie-taylor-greene-reportedly-found-204412855.html)
-- Jul 25 - [House Republicans plan to hold Meta's Mark Zuckerberg in contempt of Congress](https://news.yahoo.com/house-republicans-plan-hold-metas-204235993.html)
+- Jul 26 - [China is showing up big for Russia but a Cold War historian says Putin is making a 'potentially grave error' and shouldn't expect the lifeline to last](https://news.yahoo.com/china-showing-big-russia-cold-002150750.html)
+- Jul 25 - [Saguaro cacti collapsing in Arizona extreme heat, scientist says](https://news.yahoo.com/saguaro-cacti-collapsing-arizona-extreme-235908879.html)
+- Jul 25 - [Two-thirds of African leaders refuse to attend Putin’s summit](https://news.yahoo.com/two-thirds-african-leaders-refuse-232100114.html)
+- Jul 25 - [Lawyers Are Confessing The Cases They Regret Winning, And These Are Sooo Messed Up](https://www.yahoo.com/lifestyle/lawyers-confessing-cases-regret-winning-231602919.html)
+- Jul 25 - [Nampa man shot driver for giving him the middle finger. What the judge decided](https://news.yahoo.com/nampa-man-shot-driver-giving-230110072.html)
 <!-- feed end -->
