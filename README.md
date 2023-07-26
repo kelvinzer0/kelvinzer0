@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 26 - ["Incandescently stupid": Former DHS official says he had to "dumb" down classified memos for Trump](https://news.yahoo.com/incandescently-stupid-former-dhs-official-145845005.html)
+- Jul 26 - [Trump Says He’ll Revive Stolen-Vote Claim If He’s Charged Over Jan. 6](https://news.yahoo.com/trump-says-ll-revive-stolen-143721191.html)
 - Jul 26 - [Video shows a Ukrainian tank chasing Russian soldiers into artillery fire after they refused to surrender](https://news.yahoo.com/video-shows-ukrainian-tank-chasing-142350131.html)
-- Jul 26 - [Ruins of ancient Nero's Theater discovered under garden of future Four Seasons near Vatican](https://news.yahoo.com/ruins-ancient-neros-theater-discovered-141607368.html)
-- Jul 26 - [Legal experts: Giuliani just made a “desperate, last-second” concession — but it won’t save him](https://news.yahoo.com/legal-experts-giuliani-just-made-130108113.html)
-- Jul 26 - [Todd and Julie Chrisley are in 'nightmare' prison conditions, including 'black mold, asbestos,' and snakes 'slithering on the floor,' say their children Savannah and Chase](https://www.yahoo.com/entertainment/todd-julie-chrisley-nightmare-prison-120628960.html)
-- Jul 26 - [Gen Z intern shocks recruiter with list of demands including working no more than 5 hours, a start-up culture and an above average salary](https://finance.yahoo.com/news/gen-z-intern-shocks-recruiter-113447157.html)
+- Jul 26 - ['So Unprecedented': Kevin O'Leary Says Bud Light Is The Gift That Keeps On Giving, Plans To Teach Its 25% Market Share Collapse To College Students](https://finance.yahoo.com/news/unprecedented-kevin-oleary-says-bud-142108101.html)
+- Jul 26 - [Melania “livid” over Trump lawyers’ handling of sexual abuse case: report](https://news.yahoo.com/melania-livid-over-trump-lawyers-141856228.html)
 <!-- feed end -->
