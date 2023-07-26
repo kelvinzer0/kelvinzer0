@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 26 - [Senate GOP leader McConnell briefly leaves news conference after freezing up mid-sentence](https://news.yahoo.com/senate-gop-leader-mcconnell-briefly-185251765.html)
 - Jul 26 - [UFO hearing: Whistleblower testifies government 'absolutely' has possession of 'nonhuman' craft](https://news.yahoo.com/ufo-whistleblower-hearing-house-oversight-non-human-craft-uap-navy-pilots-171759861.html)
 - Jul 26 - [High school student who sat in Pence’s chair during Capitol riot is sentenced to 1 year in prison](https://news.yahoo.com/high-school-student-sat-pence-170729916.html)
 - Jul 26 - [‘Monster’ fish pulled from Arkansas lake dwarfs record — but it won’t be recognized](https://news.yahoo.com/monster-fish-pulled-arkansas-lake-164741543.html)
 - Jul 26 - [Melania Trump started a scholarship program called 'Fostering the Future,' but no charity with that name is registered in New York or Florida](https://news.yahoo.com/melania-trump-started-scholarship-program-164640425.html)
-- Jul 26 - [Watch Moment Amazon Driver Dives Fully Clothed Into Customer’s Swimming Pool to Cool Off](https://www.yahoo.com/entertainment/watch-moment-amazon-driver-dives-164321433.html)
 <!-- feed end -->
