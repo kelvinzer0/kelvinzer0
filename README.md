@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Former RNC Chair Names The Chilling Lesson Donald Trump Has Learned For 2024](https://news.yahoo.com/former-rnc-chair-names-chilling-062100482.html)
-- Jul 26 - [Jeffrey Epstein withdrew up to $80,000 in cash 'several times a month' while he paid girls for 'massages,' court filings say](https://finance.yahoo.com/news/jeffrey-epstein-withdrew-80-000-210314722.html)
-- Jul 26 - [Government urges public to kill uncontrollable, invasive ‘Frankenfish’ before it runs wild: ‘It will just be a matter of time’](https://news.yahoo.com/government-urges-public-kill-uncontrollable-050000114.html)
-- Jul 26 - [Japan's population falls while foreign residents rise to record](https://news.yahoo.com/japans-population-falls-while-foreign-010735237.html)
-- Jul 26 - [China is showing up big for Russia but a Cold War historian says Putin is making a 'potentially grave error' and shouldn't expect the lifeline to last](https://news.yahoo.com/china-showing-big-russia-cold-002150750.html)
+- Jul 26 - [Rudy Giuliani concedes he made false statements about two Georgia election workers](https://news.yahoo.com/rudy-giuliani-concedes-made-false-115101861.html)
+- Jul 26 - [Naked woman gets out of car at major Bay Area bridge, starts firing gun](https://news.yahoo.com/naked-woman-gets-car-major-113400636.html)
+- Jul 26 - [Singapore hangs a man for drug trafficking. It will hang a woman on Friday — the first in 19 years](https://news.yahoo.com/singapore-hangs-man-drug-trafficking-112543701.html)
+- Jul 26 - [Russia briefly deployed its super-advanced T-14 tanks to Ukraine, then withdrew them again, state media says](https://news.yahoo.com/russia-briefly-deployed-super-advanced-102648500.html)
+- Jul 26 - [Homeowner shocked by HOA’s ‘outdated’ vehicle rules: ‘[They’re] going to discourage people from buying in our community’](https://news.yahoo.com/homeowner-shocked-hoa-outdated-vehicle-101500548.html)
 <!-- feed end -->
