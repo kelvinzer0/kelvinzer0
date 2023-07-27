@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Ga. Cop Surprises Boy with PlayStation After Police Were Called on Him for Offering to Do Yardwork](https://www.yahoo.com/entertainment/ga-cop-surprises-boy-playstation-172549590.html)
-- Jul 27 - [A confused Dianne Feinstein tried to give a speech in the middle of a Senate hearing vote and was told to 'just say aye' instead](https://news.yahoo.com/confused-dianne-feinstein-tried-speech-170120836.html)
-- Jul 27 - [12 teens beat man in ‘animalistic’ attack outside gas station, Ohio officials say](https://news.yahoo.com/12-teens-beat-man-animalistic-165011293.html)
-- Jul 27 - [No More Mr. Nice Guy: Bob Iger May Just Want to Sell Disney and Be Done](https://www.yahoo.com/entertainment/no-more-mr-nice-guy-164412671.html)
-- Jul 27 - [Georgia Republican Tells Voters 'They Lied To You' After Giuliani Bombshell](https://news.yahoo.com/georgia-republican-tells-voters-lied-163217992.html)
+- Jul 27 - [Ukraine recaptures Staromaiorske village in southeast - video posted by Zelenskiy](https://news.yahoo.com/ukraine-recaptures-staromaiorske-village-southeast-184830327.html)
+- Jul 27 - [Joe Biden changes narrative on links to son’s dodgy business dealings as scandal grows](https://news.yahoo.com/joe-biden-changes-narrative-links-182508403.html)
+- Jul 27 - [Awkward moment when Feinstein is asked to vote on bill](https://news.yahoo.com/awkward-moment-feinstein-asked-vote-180814854.html)
+- Jul 27 - [Couple checks potential new car for oil leaks — and finds creature lurking underneath](https://news.yahoo.com/couple-checks-potential-car-oil-175330118.html)
+- Jul 27 - [A woman said she wasn't allowed to board a Frontier Airlines flight even though she arrived on time — and was then rebooked for a flight two days later](https://www.yahoo.com/entertainment/woman-urging-tiktokers-not-fly-174025646.html)
 <!-- feed end -->
