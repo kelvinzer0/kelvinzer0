@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Family Who Died Trying to Live 'Off the Grid' Told Loved Ones About Their Plan: 'We Tried to Stop Them'](https://www.yahoo.com/entertainment/family-died-trying-live-off-212304060.html)
+- Jul 27 - [‘Jackasses,’ ‘little s‑‑‑‑’: GOP congressman curses out teenage Senate pages](https://news.yahoo.com/jackasses-little-gop-congressman-curses-202553102.html)
+- Jul 27 - [Oli London says he’s now ‘living as Ken’ after detransitioning from ‘Barbie’ look](https://news.yahoo.com/oli-london-says-now-living-202253946.html)
+- Jul 27 - [‘Your bills are racist!’: Democrat yells at GOP lawmakers on House floor](https://news.yahoo.com/bills-racist-democrat-yells-gop-200819814.html)
 - Jul 27 - [Conservatives Are Furious That Nancy Mace Has Premarital Sex](https://news.yahoo.com/conservatives-furious-nancy-mace-premarital-194051805.html)
-- Jul 27 - [A teacher said she was fired from a Texas school after 20 years and 'treated like a criminal' for attending a drag show](https://news.yahoo.com/teacher-said-she-fired-texas-192756184.html)
-- Jul 27 - [Dismembered Remains of Missing Crypto Influencer Millionaire Found in Suitcase](https://www.yahoo.com/entertainment/dismembered-remains-missing-crypto-influencer-191449806.html)
-- Jul 27 - [A confused Dianne Feinstein tried to give a speech in the middle of a Senate hearing vote and was told to 'just say aye' instead](https://news.yahoo.com/confused-dianne-feinstein-tried-speech-170120836.html)
-- Jul 27 - [Ukraine recaptures Staromaiorske village in southeast - Zelenskiy](https://news.yahoo.com/ukraine-recaptures-staromaiorske-village-southeast-184830327.html)
 <!-- feed end -->
