@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 27 - [Ex-Prosecutor Spells Out Huge Trump Legal Problem That’s Entirely ‘Of His Own Making’](https://news.yahoo.com/ex-prosecutor-spells-huge-trump-090401187.html)
-- Jul 27 - [Russian invaders will not let civilians to Arabat Spit because of "threat to Crimea"](https://news.yahoo.com/russian-invaders-not-let-civilians-074700828.html)
+- Jul 27 - [Kyiv launches a major push against Russian forces, officials and analysts say](https://news.yahoo.com/kyiv-said-launched-major-push-085040767.html)
+- Jul 27 - [‘We carry on’: How Russia’s youth see their lives and their future](https://news.yahoo.com/carry-russia-youth-see-lives-070439687.html)
 - Jul 27 - [Colorado family members die trying to live 'off the grid'](https://news.yahoo.com/colorado-family-members-die-trying-021320552.html)
 - Jul 27 - [North Korea's Kim shows off banned missiles to Russian minister](https://news.yahoo.com/north-koreas-kim-jong-un-000233456.html)
-- Jul 26 - [McConnell jokes to Biden he got ‘sandbagged’ after freeze episode](https://news.yahoo.com/mcconnell-jokes-biden-got-sandbagged-234603422.html)
 <!-- feed end -->
