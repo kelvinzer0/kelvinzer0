@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Ga. Cop Surprises Boy with PlayStation After Police Were Called on Him for Offering to Do Yardwork](https://www.yahoo.com/entertainment/ga-cop-surprises-boy-playstation-172549590.html)
+- Jul 27 - [A confused Dianne Feinstein tried to give a speech in the middle of a Senate hearing vote and was told to 'just say aye' instead](https://news.yahoo.com/confused-dianne-feinstein-tried-speech-170120836.html)
+- Jul 27 - [12 teens beat man in ‘animalistic’ attack outside gas station, Ohio officials say](https://news.yahoo.com/12-teens-beat-man-animalistic-165011293.html)
+- Jul 27 - [No More Mr. Nice Guy: Bob Iger May Just Want to Sell Disney and Be Done](https://www.yahoo.com/entertainment/no-more-mr-nice-guy-164412671.html)
 - Jul 27 - [Georgia Republican Tells Voters 'They Lied To You' After Giuliani Bombshell](https://news.yahoo.com/georgia-republican-tells-voters-lied-163217992.html)
-- Jul 27 - [If Mitch McConnell steps down, Kentucky Republicans made sure years ago it won't be a Democrat who replaces him](https://news.yahoo.com/mitch-mcconnell-steps-down-kentucky-154714333.html)
-- Jul 27 - ['China Has 10 Years Left, At Most' — 100 Million Population Drop Could Lead To Economic Disaster, According To Famed Analyst](https://finance.yahoo.com/news/china-10-years-left-most-153312835.html)
-- Jul 27 - [Millions of Americans could soon have their power shut off — here’s who’s to blame](https://news.yahoo.com/millions-americans-could-soon-power-150000018.html)
-- Jul 27 - [Nearly 27 Later, New Footage Emerges of Tupac Shakur Moments Before His Death](https://www.yahoo.com/entertainment/nearly-27-later-footage-emerges-143700873.html)
 <!-- feed end -->
