@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Conservatives Are Furious That Nancy Mace Has Premarital Sex](https://news.yahoo.com/conservatives-furious-nancy-mace-premarital-194051805.html)
+- Jul 27 - [A teacher said she was fired from a Texas school after 20 years and 'treated like a criminal' for attending a drag show](https://news.yahoo.com/teacher-said-she-fired-texas-192756184.html)
 - Jul 27 - [Dismembered Remains of Missing Crypto Influencer Millionaire Found in Suitcase](https://www.yahoo.com/entertainment/dismembered-remains-missing-crypto-influencer-191449806.html)
 - Jul 27 - [A confused Dianne Feinstein tried to give a speech in the middle of a Senate hearing vote and was told to 'just say aye' instead](https://news.yahoo.com/confused-dianne-feinstein-tried-speech-170120836.html)
 - Jul 27 - [Ukraine recaptures Staromaiorske village in southeast - Zelenskiy](https://news.yahoo.com/ukraine-recaptures-staromaiorske-village-southeast-184830327.html)
-- Jul 27 - [Man wrongly jailed for rape may have to pay prison accommodation and food costs](https://news.yahoo.com/innocent-man-pay-prison-bed-121601386.html)
-- Jul 27 - [Trump's Truth Social rant about "productive meeting" with Jack Smith's team quickly falls apart](https://news.yahoo.com/trumps-truth-social-rant-productive-183156846.html)
 <!-- feed end -->
