@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [How Russia's youth see their lives and future](https://news.yahoo.com/russias-youth-see-lives-future-154531157.html)
+- Jul 27 - [Georgia Republican Tells Voters 'They Lied To You' After Giuliani Bombshell](https://news.yahoo.com/georgia-republican-tells-voters-lied-163217992.html)
+- Jul 27 - [If Mitch McConnell steps down, Kentucky Republicans made sure years ago it won't be a Democrat who replaces him](https://news.yahoo.com/mitch-mcconnell-steps-down-kentucky-154714333.html)
 - Jul 27 - ['China Has 10 Years Left, At Most' — 100 Million Population Drop Could Lead To Economic Disaster, According To Famed Analyst](https://finance.yahoo.com/news/china-10-years-left-most-153312835.html)
-- Jul 27 - [Vivek Ramaswamy, a 37-year-old presidential contender who thinks young people shouldn't vote, tried to rap on Fox News. It didn't go well.](https://news.yahoo.com/vivek-ramaswamy-37-old-presidential-144550924.html)
+- Jul 27 - [Millions of Americans could soon have their power shut off — here’s who’s to blame](https://news.yahoo.com/millions-americans-could-soon-power-150000018.html)
 - Jul 27 - [Nearly 27 Later, New Footage Emerges of Tupac Shakur Moments Before His Death](https://www.yahoo.com/entertainment/nearly-27-later-footage-emerges-143700873.html)
-- Jul 27 - [UPDATE 2-Trump lawyers told to expect indictment -NBC News](https://finance.yahoo.com/news/1-trump-lawyers-arrive-office-142219874.html)
 <!-- feed end -->
