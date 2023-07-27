@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Doctor's receptionist who stole more than $44,000 from unsuspecting patients arrested: Police](https://news.yahoo.com/doctors-receptionist-stole-more-44-061759524.html)
 - Jul 27 - [Colorado family members die trying to live 'off the grid'](https://news.yahoo.com/colorado-family-members-die-trying-021320552.html)
 - Jul 27 - [Australia awards South Korea's Hanwha $4.7 billion defence contract](https://news.yahoo.com/australia-awards-south-koreas-hanwha-015902812.html)
 - Jul 27 - [North Korea's Kim shows off banned missiles to Russian minister](https://news.yahoo.com/north-koreas-kim-jong-un-000233456.html)
 - Jul 26 - [McConnell jokes to Biden he got ‘sandbagged’ after freeze episode](https://news.yahoo.com/mcconnell-jokes-biden-got-sandbagged-234603422.html)
-- Jul 26 - [UN official says latest Russian attacks on Ukraine ‘signal a calamitous turn’](https://news.yahoo.com/un-official-says-latest-russian-233118394.html)
 <!-- feed end -->
