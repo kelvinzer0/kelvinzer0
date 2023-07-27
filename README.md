@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Trump accused of asking staffer to delete camera footage in Florida classified documents case](https://news.yahoo.com/3rd-defendant-added-alongside-trump-220040334.html)
+- Jul 27 - [Japan’s Nara deer take shelter from rain in adorable viral video](https://news.yahoo.com/japan-nara-deer-shelter-rain-214736175.html)
+- Jul 27 - [Video captures an anti-tank ditch swallowing a vehicle, showing one of the dangers complicating Ukraine's assault](https://news.yahoo.com/video-captures-anti-tank-ditch-214221739.html)
+- Jul 27 - [Man detained for sending video of himself slapping his infant son 30 times to estranged girlfriend](https://news.yahoo.com/man-detained-sending-video-himself-212845610.html)
 - Jul 27 - [Family Who Died Trying to Live 'Off the Grid' Told Loved Ones About Their Plan: 'We Tried to Stop Them'](https://www.yahoo.com/entertainment/family-died-trying-live-off-212304060.html)
-- Jul 27 - [‘Jackasses,’ ‘little s‑‑‑‑’: GOP congressman curses out teenage Senate pages](https://news.yahoo.com/jackasses-little-gop-congressman-curses-202553102.html)
-- Jul 27 - [Oli London says he’s now ‘living as Ken’ after detransitioning from ‘Barbie’ look](https://news.yahoo.com/oli-london-says-now-living-202253946.html)
-- Jul 27 - [‘Your bills are racist!’: Democrat yells at GOP lawmakers on House floor](https://news.yahoo.com/bills-racist-democrat-yells-gop-200819814.html)
-- Jul 27 - [Conservatives Are Furious That Nancy Mace Has Premarital Sex](https://news.yahoo.com/conservatives-furious-nancy-mace-premarital-194051805.html)
 <!-- feed end -->
