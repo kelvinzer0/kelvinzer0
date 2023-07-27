@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Ex-Prosecutor Spells Out Huge Trump Legal Problem That’s Entirely ‘Of His Own Making’](https://news.yahoo.com/ex-prosecutor-spells-huge-trump-090401187.html)
-- Jul 27 - [Kyiv launches a major push against Russian forces, officials and analysts say](https://news.yahoo.com/kyiv-said-launched-major-push-085040767.html)
-- Jul 27 - [‘We carry on’: How Russia’s youth see their lives and their future](https://news.yahoo.com/carry-russia-youth-see-lives-070439687.html)
-- Jul 27 - [Colorado family members die trying to live 'off the grid'](https://news.yahoo.com/colorado-family-members-die-trying-021320552.html)
-- Jul 27 - [North Korea's Kim shows off banned missiles to Russian minister](https://news.yahoo.com/north-koreas-kim-jong-un-000233456.html)
+- Jul 27 - [An intoxicated United Airlines pilot, who turned up for a Transatlantic flight 'staggering' and with 'glassy' eyes, was given a 6-month suspended prison sentence, report says](https://news.yahoo.com/intoxicated-united-airlines-pilot-turned-112546348.html)
+- Jul 27 - ['Go woke, go broke': Billionaire Chamath Palihapitiya suggests that Northeast cities like NYC, Boston are hemorrhaging income because of political ideology — all while the South keeps booming](https://finance.yahoo.com/news/woke-broke-billionaire-chamath-palihapitiya-173000793.html)
+- Jul 27 - [The former Twitter exec who went viral for sleeping on the office floor said she had no choice but to do so because of Elon Musk's 'nearly impossible deadline'](https://finance.yahoo.com/news/former-twitter-exec-went-viral-101936048.html)
+- Jul 27 - [‘That’s a load of crap’: Ramsey Show just highlighted the ‘painful truth’ behind President Biden’s $39B student loan debt forgiveness — here’s what it is and how to protect yourself](https://finance.yahoo.com/news/load-crap-ramsey-show-just-100000776.html)
+- Jul 27 - [Ex-prosecutor Spells Out Huge Trump Legal Problem That’s Entirely ‘Of His Own Making’](https://news.yahoo.com/ex-prosecutor-spells-huge-trump-090401187.html)
 <!-- feed end -->
