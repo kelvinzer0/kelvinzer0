@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Trump lawyers arrive at office of U.S. special counsel -ABC News](https://news.yahoo.com/trump-lawyers-arrive-office-u-141749458.html)
 - Jul 27 - [“Suicide mission”: Trump reportedly turned down by lawyers because his “case is a certain loser”](https://news.yahoo.com/suicide-mission-trump-reportedly-turned-124921826.html)
-- Jul 27 - [Tesla was so swamped with complaints about driving ranges that it created a secret team to cancel owners' service appointments, source says](https://finance.yahoo.com/news/tesla-swamped-complaints-driving-ranges-123412993.html)
-- Jul 27 - [‘I live in the real world': Kevin O'Leary just warned the US has a 'crisis emerging' thanks to the breakneck speed of interest rate hikes — here's who will feel the most pain](https://finance.yahoo.com/news/live-real-world-kevin-oleary-120000167.html)
+- Jul 27 - [Tesla was so swamped with complaints about driving ranges that it created a secret team to cancel owners' service appointments, source says](https://news.yahoo.com/tesla-swamped-complaints-driving-ranges-123412993.html)
+- Jul 27 - [‘I live in the real world': Kevin O'Leary just warned the US has a 'crisis emerging' thanks to the breakneck speed of interest rate hikes — here is who will feel the most pain](https://finance.yahoo.com/news/live-real-world-kevin-oleary-120000167.html)
 - Jul 27 - [An intoxicated United Airlines pilot, who turned up for a transatlantic flight 'staggering' and with 'glassy' eyes, was given a 6-month suspended prison sentence, report says](https://news.yahoo.com/intoxicated-united-airlines-pilot-turned-112546348.html)
-- Jul 27 - ['Go woke, go broke': Billionaire Chamath Palihapitiya suggests that Northeast cities like NYC, Boston are hemorrhaging income because of political ideology — all while the South keeps booming](https://finance.yahoo.com/news/woke-broke-billionaire-chamath-palihapitiya-173000793.html)
 <!-- feed end -->
