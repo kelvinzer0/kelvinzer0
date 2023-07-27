@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Colorado family members die trying to live 'off the grid'](https://news.yahoo.com/colorado-family-members-die-trying-021320552.html)
 - Jul 26 - [McConnell jokes to Biden he got ‘sandbagged’ after freeze episode](https://news.yahoo.com/mcconnell-jokes-biden-got-sandbagged-234603422.html)
+- Jul 26 - [Police chief offered to resign before shooting himself](https://news.yahoo.com/police-chief-offered-resign-shooting-233501730.html)
 - Jul 26 - [‘Overwhelmed’ Teen Missing Since 2019 Walks Into Police Station](https://news.yahoo.com/mystery-overwhelmed-teen-missing-since-230659118.html)
 - Jul 26 - [What happens if climate change causes the Atlantic Ocean current to collapse?](https://news.yahoo.com/what-happens-if-climate-change-causes-the-atlantic-ocean-current-to-collapse-221433345.html)
-- Jul 26 - [One family pocketed $7.6 million by taking cans and bottles from Arizona and recycling them in California. That's fraud, prosecutors say.](https://news.yahoo.com/one-family-pocketed-7-6-221318711.html)
-- Jul 26 - [Angry Russia refuses to speak at UN meeting on its attacks on Ukraine's key port city of Odesa.](https://news.yahoo.com/angry-russia-refuses-speak-un-220003835.html)
 <!-- feed end -->
