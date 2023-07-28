@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Rapper G Herbo pleads guilty in credit card fraud that paid for private jets and designer puppies](https://news.yahoo.com/rapper-g-herbo-pleads-guilty-203637578.html)
+- Jul 28 - [Florida judge rules against Disney in feud with DeSantis](https://finance.yahoo.com/news/florida-judge-rules-against-disney-202852634.html)
+- Jul 28 - [How the loss of one plane is a significant loss for Russia](https://news.yahoo.com/loss-one-plane-significant-loss-201212864.html)
+- Jul 28 - [Parents whose daughter died by suicide reach $9.1M settlement with school district, lawyer says](https://news.yahoo.com/parents-whose-daughter-died-suicide-200422543.html)
 - Jul 28 - [Texas man tracks down alleged truck thief and holds him at gunpoint before fatally shooting him](https://news.yahoo.com/texas-man-tracks-down-alleged-193828243.html)
-- Jul 28 - [People Are Calling Out Olivia Rodrigo For Vacationing In Hawai'i While Native Hawaiians Suffer From The Tourism Industry](https://www.yahoo.com/entertainment/people-calling-olivia-rodrigo-vacationing-192019251.html)
-- Jul 28 - [Rioter who stole badge, radio from beaten officer on Jan. 6 gets more than 4 years in prison](https://news.yahoo.com/rioter-stole-badge-radio-beaten-190559153.html)
-- Jul 28 - [A 'SuperAger' who lived to be 112 years old credited her long life to a low-cholesterol diet and a positive attitude. Scientists were studying her to learn more about longevity.](https://www.yahoo.com/lifestyle/superager-lived-112-years-old-184819499.html)
-- Jul 28 - [Mom of 4 died after using kratom in Florida, lawsuit says. Company owes family $11M](https://news.yahoo.com/mom-4-died-using-kratom-182545213.html)
 <!-- feed end -->
