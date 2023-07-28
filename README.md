@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Japanese man who spent $16K to become a ‘dog’ shares video of 1st public walk](https://news.yahoo.com/japanese-man-spent-16k-become-211110478.html)
+- Jul 28 - [How Donald Trump fell into the special prosecutor Jack Smith's trap | Column](https://news.yahoo.com/donald-trump-fell-special-prosecutor-205210449.html)
 - Jul 28 - [Rapper G Herbo pleads guilty in credit card fraud that paid for private jets and designer puppies](https://news.yahoo.com/rapper-g-herbo-pleads-guilty-203637578.html)
 - Jul 28 - [Florida judge rules against Disney in feud with DeSantis](https://finance.yahoo.com/news/florida-judge-rules-against-disney-202852634.html)
-- Jul 28 - [How the loss of one plane is a significant loss for Russia](https://news.yahoo.com/loss-one-plane-significant-loss-201212864.html)
-- Jul 28 - [Parents whose daughter died by suicide reach $9.1M settlement with school district, lawyer says](https://news.yahoo.com/parents-whose-daughter-died-suicide-200422543.html)
-- Jul 28 - [Texas man tracks down alleged truck thief and holds him at gunpoint before fatally shooting him](https://news.yahoo.com/texas-man-tracks-down-alleged-193828243.html)
+- Jul 28 - [Colorado officer who put suspect in car hit by train found guilty of reckless endangerment](https://news.yahoo.com/officer-put-suspect-car-hit-201724682.html)
 <!-- feed end -->
