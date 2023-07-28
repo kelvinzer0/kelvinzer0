@@ -8,7 +8,11 @@ https://kelvinzer0.github.io
     <a href="https://dev.to/kelvinzer0" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/dev-dot-to.svg" alt="kelvinzer0" height="30" width="40" /></a>
     <a href="https://linkedin.com/in/kelvinzero" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="kelvinzero" height="30" width="40" /></a>
 </p>
-
+<h3 align="left">Representative of Zerolabs Impact Artificial Intelligent Assistant:</h3>
+<p align="left">
+    https://kelvinzer0.github.io/ai2/
+    (Only supports Indonesian language)
+</p>   
 <h3 align="left">Languages and Tools:</h3>
 <p align="left">
     <a href="https://developer.android.com" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/android/android-original-wordmark.svg" alt="android" width="40" height="40" /> </a>
