@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Texas man tracks down alleged truck thief and holds him at gunpoint before fatally shooting him](https://news.yahoo.com/texas-man-tracks-down-alleged-193828243.html)
+- Jul 28 - [People Are Calling Out Olivia Rodrigo For Vacationing In Hawai'i While Native Hawaiians Suffer From The Tourism Industry](https://www.yahoo.com/entertainment/people-calling-olivia-rodrigo-vacationing-192019251.html)
+- Jul 28 - [Rioter who stole badge, radio from beaten officer on Jan. 6 gets more than 4 years in prison](https://news.yahoo.com/rioter-stole-badge-radio-beaten-190559153.html)
+- Jul 28 - [A 'SuperAger' who lived to be 112 years old credited her long life to a low-cholesterol diet and a positive attitude. Scientists were studying her to learn more about longevity.](https://www.yahoo.com/lifestyle/superager-lived-112-years-old-184819499.html)
 - Jul 28 - [Mom of 4 died after using kratom in Florida, lawsuit says. Company owes family $11M](https://news.yahoo.com/mom-4-died-using-kratom-182545213.html)
-- Jul 28 - ["Unprecedented": Experts stunned at Trump's secret docs filing — but worry Cannon "may fall for it"](https://news.yahoo.com/unprecedented-experts-stunned-trumps-secret-175433950.html)
-- Jul 28 - [African Union chair: Putin's grain offer not enough, Ukraine ceasefire needed](https://news.yahoo.com/african-union-chair-putins-grain-170032095.html)
-- Jul 28 - [Judge in Hunter Biden case bans attorneys from calling clerk after bizarre accusations](https://news.yahoo.com/judge-hunter-biden-case-bans-165926199.html)
-- Jul 28 - [A 46,000-year-old worm found in Siberian permafrost was brought back to life, and started having babies](https://news.yahoo.com/46-000-old-worm-found-162315961.html)
 <!-- feed end -->
