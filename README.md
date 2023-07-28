@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Japanese man who spent $16K to become a ‘dog’ shares video of 1st public walk](https://news.yahoo.com/japanese-man-spent-16k-become-211110478.html)
+- Jul 28 - [Chinese internet panics as clueless man swims toward poop ejected by another man in pool](https://news.yahoo.com/chinese-internet-panics-clueless-man-220938435.html)
+- Jul 28 - [Justice Alito says Congress lacks the power to impose an ethics code on the Supreme Court](https://news.yahoo.com/justice-alito-says-congress-lacks-205442989.html)
 - Jul 28 - [How Donald Trump fell into the special prosecutor Jack Smith's trap | Column](https://news.yahoo.com/donald-trump-fell-special-prosecutor-205210449.html)
-- Jul 28 - [Rapper G Herbo pleads guilty in credit card fraud that paid for private jets and designer puppies](https://news.yahoo.com/rapper-g-herbo-pleads-guilty-203637578.html)
 - Jul 28 - [Florida judge rules against Disney in feud with DeSantis](https://finance.yahoo.com/news/florida-judge-rules-against-disney-202852634.html)
 - Jul 28 - [Colorado officer who put suspect in car hit by train found guilty of reckless endangerment](https://news.yahoo.com/officer-put-suspect-car-hit-201724682.html)
 <!-- feed end -->
