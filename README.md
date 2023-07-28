@@ -56,7 +56,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 28 - [Social media is fawning over 19-year-old influencer Milla Sofia — but she's not even real](https://news.yahoo.com/social-media-is-fawning-over-19-year-old-influencer-milla-sofia--but-shes-not-even-real-000349854.html)
-- Jul 27 - [Trump accused of asking staffer to delete camera footage in Florida classified documents case](https://news.yahoo.com/3rd-defendant-added-alongside-trump-220040334.html)
+- Jul 27 - [Blood pressure is best lowered by 2 exercises, study finds](https://news.yahoo.com/2-exercises-best-lowering-blood-223926547.html)
 - Jul 27 - [Japan’s Nara deer take shelter from rain in adorable viral video](https://news.yahoo.com/japan-nara-deer-shelter-rain-214736175.html)
 - Jul 27 - [Video captures an anti-tank ditch swallowing a vehicle, showing one of the dangers complicating Ukraine's assault](https://news.yahoo.com/video-captures-anti-tank-ditch-214221739.html)
 - Jul 27 - [Family Who Died Trying to Live 'Off the Grid' Told Loved Ones About Their Plan: 'We Tried to Stop Them'](https://www.yahoo.com/entertainment/family-died-trying-live-off-212304060.html)
