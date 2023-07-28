@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Marjorie Taylor Greene's Call For 'Decorum' Earns Off-Color Zinger From Dem Rep](https://www.yahoo.com/entertainment/marjorie-taylor-greenes-call-decorum-120106219.html)
+- Jul 28 - [A Virginia woman received more than 100 Amazon packages she didn't order, including 1,000 headlamps and 800 glue guns](https://news.yahoo.com/virginia-woman-received-more-100-102449276.html)
+- Jul 28 - [Biden will sign an executive order in Maine encouraging new inventions to be made in the US](https://news.yahoo.com/biden-sign-executive-order-maine-093457606.html)
 - Jul 28 - [Watergate Prosecutor Asks If New Trump Charges Could Do The, Until Now, Unthinkable](https://news.yahoo.com/watergate-prosecutor-asks-blockbuster-trump-072457185.html)
 - Jul 28 - [GOP Gov Chris Sununu Surprises CNN Host With Bold Prediction About 2024 Candidates](https://news.yahoo.com/gop-gov-chris-sununu-surprises-060655297.html)
-- Jul 28 - [Why Jack Smith waited until now to charge Trump for secret Iran document flaunted on tape](https://news.yahoo.com/why-jack-smith-waited-until-045351201.html)
-- Jul 28 - [Singapore hangs first woman in 19 years after she was convicted of trafficking 31 grams of heroin](https://news.yahoo.com/singapore-hangs-first-woman-19-040741393.html)
-- Jul 28 - [US orders government personnel, family members to leave Haiti](https://news.yahoo.com/us-orders-government-personnel-family-023453156.html)
 <!-- feed end -->
