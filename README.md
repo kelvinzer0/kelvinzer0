@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 28 - [Bolivia is the latest South American nation to use China's yuan for trade in challenge to the dollar](https://news.yahoo.com/bolivia-latest-south-american-nation-022409697.html)
-- Jul 28 - [Hawley on new Trump indictment: ‘We cannot allow this to stand’](https://news.yahoo.com/hawley-trump-indictment-cannot-allow-001828737.html)
 - Jul 28 - [Social media is fawning over 19-year-old influencer Milla Sofia — but she's not even real](https://news.yahoo.com/social-media-is-fawning-over-19-year-old-influencer-milla-sofia--but-shes-not-even-real-000349854.html)
 - Jul 27 - [Blood pressure is best lowered by 2 exercises, study finds](https://news.yahoo.com/2-exercises-best-lowering-blood-223926547.html)
+- Jul 27 - [Trump accused of asking staffer to delete camera footage in Florida classified documents case](https://news.yahoo.com/3rd-defendant-added-alongside-trump-220040334.html)
 - Jul 27 - [Japan’s Nara deer take shelter from rain in adorable viral video](https://news.yahoo.com/japan-nara-deer-shelter-rain-214736175.html)
 <!-- feed end -->
