@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Marjorie Taylor Greene's Call For 'Decorum' Earns Off-Color Zinger From Dem Rep](https://www.yahoo.com/entertainment/marjorie-taylor-greenes-call-decorum-120106219.html)
-- Jul 28 - [Black fisherman repeatedly confronted by white neighbors, who ask what he’s doing there](https://news.yahoo.com/black-fisherman-repeatedly-confronted-white-120000810.html)
-- Jul 28 - [Everything we know about the 2024 Toyota Land Cruiser](https://www.autoblog.com/2023/07/28/2024-toyota-land-cruiser-everything-you-need-to-know/)
-- Jul 28 - [Ford recalls 870K F-150 pickups in US because parking brakes can turn on unexpectedly](https://news.yahoo.com/ford-recalls-870k-f-150-115056393.html)
-- Jul 28 - [Police officers make surprising discovery after investigating a Tesla that was thought to have caught fire ‘spontaneously’](https://news.yahoo.com/police-officers-surprising-discovery-investigating-104500201.html)
+- Jul 28 - [Florida Keys sheriff saw a boat sinking near bridge. Then 5 lobster hunters were found](https://news.yahoo.com/florida-keys-sheriff-saw-boat-142644208.html)
+- Jul 28 - [Mom took her autistic son into movie theater bathroom. Then cops were called, suit says](https://news.yahoo.com/mom-took-her-autistic-son-141939777.html)
+- Jul 28 - [Woman dies, 6 people hospitalized after boat hits Chicago breakwall and capsizes in Lake Michigan](https://news.yahoo.com/woman-dies-6-people-hospitalized-141111501.html)
+- Jul 28 - [More Bang for Your Buck: These 20 Cars Will Last You Twice as Long as the Average Vehicle](https://finance.yahoo.com/news/more-bang-buck-20-cars-110026804.html)
+- Jul 28 - [I used to be a US Marine. Now I'm an OnlyFans star and proudly wear my military uniform in my videos.](https://news.yahoo.com/used-us-marine-now-im-132441193.html)
 <!-- feed end -->
