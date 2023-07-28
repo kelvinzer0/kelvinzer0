@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Watergate Prosecutor Asks If New Trump Charges Could Do The, Until Now, Unthinkable](https://news.yahoo.com/watergate-prosecutor-asks-blockbuster-trump-072457185.html)
 - Jul 28 - [GOP Gov Chris Sununu Surprises CNN Host With Bold Prediction About 2024 Candidates](https://news.yahoo.com/gop-gov-chris-sununu-surprises-060655297.html)
-- Jul 28 - [Singapore hangs first woman in 19 years after she was convicted of trafficking 31 grams of heroin](https://news.yahoo.com/singapore-hangs-first-woman-19-040741393.html)
+- Jul 28 - [Why Jack Smith waited until now to charge Trump for secret Iran document flaunted on tape](https://news.yahoo.com/why-jack-smith-waited-until-045351201.html)
 - Jul 28 - [Social media is fawning over 19-year-old influencer Milla Sofia — but she's not even real](https://news.yahoo.com/social-media-is-fawning-over-19-year-old-influencer-milla-sofia--but-shes-not-even-real-000349854.html)
 - Jul 27 - [Blood pressure is best lowered by 2 exercises, study finds](https://news.yahoo.com/2-exercises-best-lowering-blood-223926547.html)
-- Jul 27 - [Japan’s Nara deer take shelter from rain in adorable viral video](https://news.yahoo.com/japan-nara-deer-shelter-rain-214736175.html)
 <!-- feed end -->
