@@ -56,8 +56,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 28 - [Marjorie Taylor Greene's Call For 'Decorum' Earns Off-Color Zinger From Dem Rep](https://www.yahoo.com/entertainment/marjorie-taylor-greenes-call-decorum-120106219.html)
+- Jul 28 - [Black fisherman repeatedly confronted by white neighbors, who ask what he’s doing there](https://news.yahoo.com/black-fisherman-repeatedly-confronted-white-120000810.html)
+- Jul 28 - [Everything we know about the 2024 Toyota Land Cruiser](https://www.autoblog.com/2023/07/28/2024-toyota-land-cruiser-everything-you-need-to-know/)
+- Jul 28 - [Russia's fighter jets have gone from harassing US aircraft to actually breaking them as Moscow flexes its muscles where it still can](https://news.yahoo.com/russias-fighter-jets-gone-harassing-105420082.html)
 - Jul 28 - [A Virginia woman received more than 100 Amazon packages she didn't order, including 1,000 headlamps and 800 glue guns](https://news.yahoo.com/virginia-woman-received-more-100-102449276.html)
-- Jul 28 - [Biden will sign an executive order in Maine encouraging new inventions to be made in the US](https://news.yahoo.com/biden-sign-executive-order-maine-093457606.html)
-- Jul 28 - [Watergate Prosecutor Asks If New Trump Charges Could Do The, Until Now, Unthinkable](https://news.yahoo.com/watergate-prosecutor-asks-blockbuster-trump-072457185.html)
-- Jul 28 - [GOP Gov Chris Sununu Surprises CNN Host With Bold Prediction About 2024 Candidates](https://news.yahoo.com/gop-gov-chris-sununu-surprises-060655297.html)
 <!-- feed end -->
