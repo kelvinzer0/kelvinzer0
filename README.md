@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Mexican president refutes DEA estimates of cartel strength](https://news.yahoo.com/mexican-president-refutes-dea-estimates-174914339.html)
+- Jul 28 - [Judge in Hunter Biden case bans attorneys from calling clerk after bizarre accusations](https://news.yahoo.com/judge-hunter-biden-case-bans-165926199.html)
 - Jul 28 - [From Near-Death Experiences, To Incredible Coincidences, People Are Sharing The Most "Statistically Improbable" Thing That's Ever Happened To Them, And It's Mind-Boggling](https://www.yahoo.com/lifestyle/near-death-experiences-incredible-coincidences-164502305.html)
-- Jul 28 - [Senate rebukes Wisconsin congressman who yelled vulgarities at high school-age pages](https://news.yahoo.com/senate-rebukes-wisconsin-congressman-yelled-160616650.html)
-- Jul 28 - [A salary under this amount is a dating dealbreaker for many Americans — here's how you can avoid being part of the 64% who say they're financially incompatible with their partner](https://finance.yahoo.com/news/survey-shows-1-3-americans-161500220.html)
-- Jul 28 - ["He has everything to lose": Experts say indicted Trump aide "has almost no choice but to flip"](https://news.yahoo.com/everything-lose-experts-indicted-trump-154158562.html)
-- Jul 28 - [Singapore executes 1st woman in almost 20 years over 31 grams of heroin](https://news.yahoo.com/singapore-executes-1st-woman-almost-153644402.html)
+- Jul 28 - [A first-time flier says she never wants to get on a plane again after her flight had to make a dramatic maneuver to avoid an in-air collision with a jet](https://news.yahoo.com/first-time-flier-says-she-163329778.html)
+- Jul 28 - [A 46,000-year-old worm found in Siberian permafrost was brought back to life, and started having babies](https://news.yahoo.com/46-000-old-worm-found-162315961.html)
 <!-- feed end -->
