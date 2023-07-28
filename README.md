@@ -58,6 +58,6 @@ https://kelvinzer0.github.io
 - Jul 28 - [Marjorie Taylor Greene's Call For 'Decorum' Earns Off-Color Zinger From Dem Rep](https://www.yahoo.com/entertainment/marjorie-taylor-greenes-call-decorum-120106219.html)
 - Jul 28 - [Black fisherman repeatedly confronted by white neighbors, who ask what he’s doing there](https://news.yahoo.com/black-fisherman-repeatedly-confronted-white-120000810.html)
 - Jul 28 - [Everything we know about the 2024 Toyota Land Cruiser](https://www.autoblog.com/2023/07/28/2024-toyota-land-cruiser-everything-you-need-to-know/)
-- Jul 28 - [Russia's fighter jets have gone from harassing US aircraft to actually breaking them as Moscow flexes its muscles where it still can](https://news.yahoo.com/russias-fighter-jets-gone-harassing-105420082.html)
-- Jul 28 - [A Virginia woman received more than 100 Amazon packages she didn't order, including 1,000 headlamps and 800 glue guns](https://news.yahoo.com/virginia-woman-received-more-100-102449276.html)
+- Jul 28 - [Ford recalls 870K F-150 pickups in US because parking brakes can turn on unexpectedly](https://news.yahoo.com/ford-recalls-870k-f-150-115056393.html)
+- Jul 28 - [Police officers make surprising discovery after investigating a Tesla that was thought to have caught fire ‘spontaneously’](https://news.yahoo.com/police-officers-surprising-discovery-investigating-104500201.html)
 <!-- feed end -->
