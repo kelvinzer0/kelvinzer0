@@ -55,9 +55,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Florida Keys sheriff saw a boat sinking near bridge. Then 5 lobster hunters were found](https://news.yahoo.com/florida-keys-sheriff-saw-boat-142644208.html)
-- Jul 28 - [Mom took her autistic son into movie theater bathroom. Then cops were called, suit says](https://news.yahoo.com/mom-took-her-autistic-son-141939777.html)
-- Jul 28 - [Woman dies, 6 people hospitalized after boat hits Chicago breakwall and capsizes in Lake Michigan](https://news.yahoo.com/woman-dies-6-people-hospitalized-141111501.html)
-- Jul 28 - [More Bang for Your Buck: These 20 Cars Will Last You Twice as Long as the Average Vehicle](https://finance.yahoo.com/news/more-bang-buck-20-cars-110026804.html)
-- Jul 28 - [I used to be a US Marine. Now I'm an OnlyFans star and proudly wear my military uniform in my videos.](https://news.yahoo.com/used-us-marine-now-im-132441193.html)
+- Jul 28 - [Singapore executes 1st woman in almost 20 years over 31 grams of heroin](https://news.yahoo.com/singapore-executes-1st-woman-almost-153644402.html)
+- Jul 28 - [Josh Hawley Catches Flak For Harebrained Take On New Trump Document Charges](https://news.yahoo.com/josh-hawley-catches-flak-harebrained-153114560.html)
+- Jul 28 - [Photos show how wildly out of control tourists are this summer](https://news.yahoo.com/photos-show-wildly-control-tourists-150956557.html)
+- Jul 28 - [Donald Trump Rants About Who Is To Blame for His Latest Charges in Classified Documents Case & It's Not Him](https://www.yahoo.com/entertainment/donald-trump-rants-blame-latest-145759668.html)
+- Jul 28 - [A physicist says it's 'quite possible' a SpaceX launch punched a hole in parts of the Earth's atmosphere](https://finance.yahoo.com/news/physicist-says-quite-possible-spacex-145409011.html)
 <!-- feed end -->
