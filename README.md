@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - [Watch: Incredible Footage of a Brown Bear Catching and Killing a Moose in a River](https://www.yahoo.com/lifestyle/watch-incredible-footage-brown-bear-023145606.html)
 - Jul 29 - [Ukraine got its hands on North Korean rockets that troops say are wildly unpredictable and 'do crazy things,' and they're lobbing them at the Russians](https://news.yahoo.com/ukraine-got-hands-north-korean-002953331.html)
 - Jul 28 - [Supreme Court Justice Samuel Alito gives a middle finger to Congress: 'No provision in the Constitution gives them the authority to regulate the Supreme Court — period.'](https://news.yahoo.com/supreme-court-justice-samuel-alito-221440340.html)
 - Jul 28 - [Chinese internet panics as clueless man swims toward poop ejected by another man in pool](https://news.yahoo.com/chinese-internet-panics-clueless-man-220938435.html)
-- Jul 28 - [Local father’s quick thinking leads to arrest of man accused of trying to lure 2 teenage girls](https://news.yahoo.com/local-father-quick-thinking-leads-215256217.html)
-- Jul 28 - [How Donald Trump fell into the special prosecutor Jack Smith's trap | Column](https://news.yahoo.com/donald-trump-fell-special-prosecutor-205210449.html)
+- Jul 28 - [US Supreme Court's Alito temporarily blocks 'ghost gun' ruling](https://news.yahoo.com/us-supreme-courts-alito-temporarily-211229257.html)
 <!-- feed end -->
