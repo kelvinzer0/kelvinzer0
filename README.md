@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - [Ukraine got its hands on North Korean rockets that troops say are wildly unpredictable and 'do crazy things,' and they're lobbing them at the Russians](https://news.yahoo.com/ukraine-got-hands-north-korean-002953331.html)
 - Jul 29 - ['X' logo installed atop Twitter building, spurring San Francisco to investigate permit violation](https://news.yahoo.com/x-logo-installed-atop-twitter-001147892.html)
 - Jul 28 - [Supreme Court Justice Samuel Alito gives a middle finger to Congress: 'No provision in the Constitution gives them the authority to regulate the Supreme Court — period.'](https://news.yahoo.com/supreme-court-justice-samuel-alito-221440340.html)
 - Jul 28 - [Chinese internet panics as clueless man swims toward poop ejected by another man in pool](https://news.yahoo.com/chinese-internet-panics-clueless-man-220938435.html)
 - Jul 28 - [How Donald Trump fell into the special prosecutor Jack Smith's trap | Column](https://news.yahoo.com/donald-trump-fell-special-prosecutor-205210449.html)
-- Jul 28 - [Florida judge rules against Disney in feud with DeSantis](https://finance.yahoo.com/news/florida-judge-rules-against-disney-202852634.html)
 <!-- feed end -->
