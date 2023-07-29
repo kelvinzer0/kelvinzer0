@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - [Medal of Honor recipient watches as warship bearing his name is christened in Maine](https://news.yahoo.com/medal-honor-recipient-watches-warship-173121529.html)
+- Jul 29 - [Wagner mercenaries in Belarus move closer to the Polish border, Poland's prime minister says](https://news.yahoo.com/wagner-mercenaries-belarus-move-closer-170230624.html)
+- Jul 29 - [Rex Heuermann's Wife Breaks Silence After Gilgo Beach Murder Charges](https://news.yahoo.com/rex-heuermanns-wife-breaks-silence-164758540.html)
 - Jul 29 - ['The Few, the Proud' aren't so few: Marines recruiting surges while other services struggle](https://news.yahoo.com/few-proud-arent-few-marines-161144501.html)
 - Jul 29 - [Judge orders hearing on Trump's motion to disqualify Fulton County DA](https://news.yahoo.com/judge-orders-hearing-trumps-motion-151406221.html)
-- Jul 29 - [Ukraine shows off a sea drone that can wipe out Russian ships and is 'faster than anything in the Black Sea'](https://news.yahoo.com/ukraine-shows-off-sea-drone-150853668.html)
-- Jul 29 - [Jen Psaki Asks Ron DeSantis The Question That's Likely On Many Supporters' Minds](https://news.yahoo.com/jen-psaki-asks-ron-desantis-145803107.html)
-- Jul 29 - ['I'm going to be homeless': Ohio Medicaid collects $87.5M from families after loved ones' death](https://news.yahoo.com/im-going-homeless-ohio-medicaid-140300730.html)
 <!-- feed end -->
