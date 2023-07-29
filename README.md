@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - [Russia takes a dangerous turn in its war on Ukraine](https://news.yahoo.com/russia-takes-dangerous-turn-war-213000031.html)
 - Jul 29 - [Ukrainian Armed Forces announces successful strike on Chonhar Bridge](https://news.yahoo.com/ukrainian-armed-forces-announces-successful-190125826.html)
 - Jul 29 - ['Incredibly egregious': Protesters line streets in front of DeSantis fundraiser in Cotuit](https://news.yahoo.com/incredibly-egregious-protesters-line-streets-180851956.html)
 - Jul 29 - [Medal of Honor recipient watches as warship bearing his name is christened in Maine](https://news.yahoo.com/medal-honor-recipient-watches-warship-173121529.html)
 - Jul 29 - [Wagner mercenaries in Belarus move closer to the Polish border, Poland's prime minister says](https://news.yahoo.com/wagner-mercenaries-belarus-move-closer-170230624.html)
-- Jul 29 - ['The Few, the Proud' aren't so few: Marines recruiting surges while other services struggle](https://news.yahoo.com/few-proud-arent-few-marines-161144501.html)
 <!-- feed end -->
