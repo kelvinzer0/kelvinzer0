@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - [It's a miracle, say family of Japanese soldier killed in WWII, as flag he carried returns from US](https://news.yahoo.com/miracle-family-japanese-soldier-killed-135016208.html)
 - Jul 29 - [Greg Gutfeld Suggests Trump Can Destroy Surveillance Video For Dumbfounding Reason](https://news.yahoo.com/greg-gutfeld-suggests-trump-destroy-133302335.html)
 - Jul 29 - [Ready or not: Generation X faces bleak retirement horizon](https://finance.yahoo.com/news/ready-or-not-generation-x-faces-bleak-retirement-horizon-130324103.html)
 - Jul 29 - [Donald Trump Takes The Stage As A Song Lyric About 'Going To Prison' Plays](https://www.yahoo.com/entertainment/donald-trump-takes-stage-song-124457163.html)
 - Jul 29 - [‘I wouldn’t touch [them] with anybody’s money’: Grant Cardone says these two big US cities are some of 'the worst markets to be in right now' for real estate investors — here's why](https://finance.yahoo.com/news/wouldn-t-touch-them-anybody-120000157.html)
-- Jul 29 - [Experts sound the alarm after rare appearances of ‘devil bird’ in New York: ‘We must act now’](https://news.yahoo.com/experts-sound-alarm-rare-appearances-111500049.html)
 <!-- feed end -->
