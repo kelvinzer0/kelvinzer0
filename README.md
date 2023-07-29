@@ -63,6 +63,6 @@ https://kelvinzer0.github.io
 - Jul 29 - [Watch: Incredible Footage of a Brown Bear Catching and Killing a Moose in a River](https://www.yahoo.com/lifestyle/watch-incredible-footage-brown-bear-023145606.html)
 - Jul 29 - [Ukraine got its hands on North Korean rockets that troops say are wildly unpredictable and 'do crazy things,' and they're lobbing them at the Russians](https://news.yahoo.com/ukraine-got-hands-north-korean-002953331.html)
 - Jul 28 - [Putin says Russia withdrew army from Kyiv because it was "asked"](https://news.yahoo.com/putin-says-russia-withdrew-army-225903912.html)
-- Jul 28 - [California man accused of recording girl, 12, in public restroom held down by parents until police arrived: DA](https://news.yahoo.com/california-man-accused-recording-girl-224500345.html)
 - Jul 28 - [Watch: Lion Gets Tossed by a Herd of Cape Buffalo](https://www.yahoo.com/lifestyle/watch-lion-gets-tossed-herd-223000569.html)
+- Jul 28 - [Supreme Court Justice Samuel Alito gives a middle finger to Congress: 'No provision in the Constitution gives them the authority to regulate the Supreme Court — period.'](https://news.yahoo.com/supreme-court-justice-samuel-alito-221440340.html)
 <!-- feed end -->
