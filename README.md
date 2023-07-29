@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - ['The Few, the Proud' aren't so few: Marines recruiting surges while other services struggle](https://news.yahoo.com/few-proud-arent-few-marines-161144501.html)
+- Jul 29 - [Judge orders hearing on Trump's motion to disqualify Fulton County DA](https://news.yahoo.com/judge-orders-hearing-trumps-motion-151406221.html)
 - Jul 29 - [Ukraine shows off a sea drone that can wipe out Russian ships and is 'faster than anything in the Black Sea'](https://news.yahoo.com/ukraine-shows-off-sea-drone-150853668.html)
-- Jul 29 - [It's a miracle, say family of Japanese soldier killed in WWII, as flag he carried returns from US](https://news.yahoo.com/miracle-family-japanese-soldier-killed-135016208.html)
-- Jul 29 - [Greg Gutfeld Suggests Trump Can Destroy Surveillance Video For Dumbfounding Reason](https://news.yahoo.com/greg-gutfeld-suggests-trump-destroy-133302335.html)
-- Jul 29 - [Ready or not: Generation X faces bleak retirement horizon](https://finance.yahoo.com/news/ready-or-not-generation-x-faces-bleak-retirement-horizon-130324103.html)
-- Jul 29 - [Donald Trump Takes The Stage As A Song Lyric About 'Going To Prison' Plays](https://www.yahoo.com/entertainment/donald-trump-takes-stage-song-124457163.html)
+- Jul 29 - [Jen Psaki Asks Ron DeSantis The Question That's Likely On Many Supporters' Minds](https://news.yahoo.com/jen-psaki-asks-ron-desantis-145803107.html)
+- Jul 29 - ['I'm going to be homeless': Ohio Medicaid collects $87.5M from families after loved ones' death](https://news.yahoo.com/im-going-homeless-ohio-medicaid-140300730.html)
 <!-- feed end -->
