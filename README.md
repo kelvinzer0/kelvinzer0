@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - ['X' logo installed atop Twitter building, spurring San Francisco to investigate permit violation](https://news.yahoo.com/x-logo-installed-atop-twitter-001147892.html)
+- Jul 28 - [Supreme Court Justice Samuel Alito gives a middle finger to Congress: 'No provision in the Constitution gives them the authority to regulate the Supreme Court — period.'](https://news.yahoo.com/supreme-court-justice-samuel-alito-221440340.html)
 - Jul 28 - [Chinese internet panics as clueless man swims toward poop ejected by another man in pool](https://news.yahoo.com/chinese-internet-panics-clueless-man-220938435.html)
-- Jul 28 - [Justice Alito says Congress lacks the power to impose an ethics code on the Supreme Court](https://news.yahoo.com/justice-alito-says-congress-lacks-205442989.html)
 - Jul 28 - [How Donald Trump fell into the special prosecutor Jack Smith's trap | Column](https://news.yahoo.com/donald-trump-fell-special-prosecutor-205210449.html)
 - Jul 28 - [Florida judge rules against Disney in feud with DeSantis](https://finance.yahoo.com/news/florida-judge-rules-against-disney-202852634.html)
-- Jul 28 - [Colorado officer who put suspect in car hit by train found guilty of reckless endangerment](https://news.yahoo.com/officer-put-suspect-car-hit-201724682.html)
 <!-- feed end -->
