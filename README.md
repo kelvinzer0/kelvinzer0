@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Shooting wounds 5 people in Michigan with 2 victims in critical condition, police say](https://news.yahoo.com/shooting-wounds-5-people-michigan-112228831.html)
 - Jul 30 - [‘After prayerful consideration,’ KC-area Catholic school kicks boy out to punish his mom | Opinion](https://news.yahoo.com/prayerful-consideration-kc-area-catholic-100800306.html)
+- Jul 30 - [Putin reviews show of Russian naval might, says navy to get 30 new ships this year](https://news.yahoo.com/putin-reviews-show-russian-naval-093711591.html)
 - Jul 30 - [Joining China's Belt and Road was an 'atrocious' decision -Italy minister](https://news.yahoo.com/joining-chinas-belt-road-atrocious-084132833.html)
 - Jul 30 - [The ‘world’s coldest village’ just experienced the highest temperature it’s ever recorded: ‘A particularly acute threat’](https://news.yahoo.com/world-coldest-village-just-experienced-050000548.html)
-- Jul 30 - [Anchorage homeless face cold and bears. A plan to offer one-way airfare out reveals a bigger crisis](https://news.yahoo.com/anchorage-homeless-face-cold-bears-042239440.html)
-- Jul 30 - [A Delta Air Lines customer assaulted a minor on his plane after being served 11 drinks, a new lawsuit says](https://news.yahoo.com/delta-air-lines-customer-assaulted-032530693.html)
 <!-- feed end -->
