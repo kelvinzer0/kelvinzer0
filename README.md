@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Open: This is "Face the Nation with Margaret Brennan," July 30, 2023](https://news.yahoo.com/open-face-nation-margaret-brennan-161052505.html)
+- Jul 30 - [China's Great Leap Backward: So much for the next dominant superpower](https://news.yahoo.com/chinas-great-leap-backward-much-160001055.html)
 - Jul 30 - [Trump calls Biden "A dumb son of a b**ch" during rally in Pennsylvania](https://news.yahoo.com/trump-calls-biden-dumb-son-140659950.html)
-- Jul 30 - [Trump PAC Requested $60 Million Refund Amid Legal Woes: Report](https://news.yahoo.com/trump-pac-requested-60-million-133853254.html)
+- Jul 30 - [Trump PAC Wants Its Money Back As Legal Bills Pile Up](https://news.yahoo.com/trump-pac-requested-60-million-133853254.html)
 - Jul 30 - [Homeowner’s surveillance system catches ‘infuriating’ action by garbage collectors: ‘A lot of [it] is just a lie’](https://news.yahoo.com/homeowner-surveillance-system-catches-infuriating-133000674.html)
-- Jul 30 - [Tennessee police stood by and watched a man drown for 13 minutes, lawsuit says](https://news.yahoo.com/tennessee-police-stood-watched-man-125838042.html)
-- Jul 30 - [Four women whose lives ended in a drainage ditch outside Atlantic City](https://news.yahoo.com/four-women-whose-lives-ended-123843826.html)
 <!-- feed end -->
