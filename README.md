@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Four women whose lives ended in a drainage ditch outside Atlantic City](https://news.yahoo.com/four-women-whose-lives-ended-123843826.html)
+- Jul 30 - [Any attack on French interests in Niger will spur swift response - French presidency](https://news.yahoo.com/attack-french-interests-niger-spur-123813538.html)
+- Jul 30 - [Breakthrough in Long Island serial killings shines light on the many unsolved murders of sex workers](https://news.yahoo.com/breakthrough-long-island-serial-killings-123650486.html)
+- Jul 30 - [Russia's Medvedev: We'd have to use a nuclear weapon if Ukrainian offensive was a success](https://news.yahoo.com/russias-medvedev-wed-nuclear-weapon-120827390.html)
 - Jul 30 - [Shooting wounds 5 people in Michigan with 2 victims in critical condition, police say](https://news.yahoo.com/shooting-wounds-5-people-michigan-112228831.html)
-- Jul 30 - [‘After prayerful consideration,’ KC-area Catholic school kicks boy out to punish his mom | Opinion](https://news.yahoo.com/prayerful-consideration-kc-area-catholic-100800306.html)
-- Jul 30 - [Putin reviews show of Russian naval might, says navy to get 30 new ships this year](https://news.yahoo.com/putin-reviews-show-russian-naval-093711591.html)
-- Jul 30 - [Joining China's Belt and Road was an 'atrocious' decision -Italy minister](https://news.yahoo.com/joining-chinas-belt-road-atrocious-084132833.html)
-- Jul 30 - [The ‘world’s coldest village’ just experienced the highest temperature it’s ever recorded: ‘A particularly acute threat’](https://news.yahoo.com/world-coldest-village-just-experienced-050000548.html)
 <!-- feed end -->
