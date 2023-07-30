@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [‘After prayerful consideration,’ KC-area Catholic school kicks boy out to punish his mom | Opinion](https://news.yahoo.com/prayerful-consideration-kc-area-catholic-100800306.html)
+- Jul 30 - [Joining China's Belt and Road was an 'atrocious' decision -Italy minister](https://news.yahoo.com/joining-chinas-belt-road-atrocious-084132833.html)
 - Jul 30 - [The ‘world’s coldest village’ just experienced the highest temperature it’s ever recorded: ‘A particularly acute threat’](https://news.yahoo.com/world-coldest-village-just-experienced-050000548.html)
 - Jul 30 - [Anchorage homeless face cold and bears. A plan to offer one-way airfare out reveals a bigger crisis](https://news.yahoo.com/anchorage-homeless-face-cold-bears-042239440.html)
 - Jul 30 - [A Delta Air Lines customer assaulted a minor on his plane after being served 11 drinks, a new lawsuit says](https://news.yahoo.com/delta-air-lines-customer-assaulted-032530693.html)
-- Jul 30 - [Explosions Rock Moscow in Brazen Early-Morning Drone Attack](https://news.yahoo.com/explosions-rock-moscow-brazen-early-015708832.html)
-- Jul 30 - [2 sisters went on a cruise touring the Bahamas, Jamaica, and Mexico. They came back with kilos of cocaine worth up to $40K in their luggage, feds allege.](https://news.yahoo.com/2-sisters-went-cruise-touring-000432137.html)
 <!-- feed end -->
