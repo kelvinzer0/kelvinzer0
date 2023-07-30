@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Lori Vallow Daybell will be sentenced on Monday. Here’s what to expect](https://news.yahoo.com/lori-vallow-daybell-sentenced-monday-193131015.html)
+- Jul 30 - [Body of climber missing 37 years is found inside melting Swiss glacier, police report](https://news.yahoo.com/body-climber-missing-37-years-192810843.html)
 - Jul 30 - [Georgia Gov. Brian Kemp, who rejected Trump's push to overturn the 2020 presidential results in his state, called Rudy Giuliani's admission of making false election claims 'very troubling'](https://news.yahoo.com/georgia-gov-brian-kemp-rejected-180940444.html)
 - Jul 30 - [Trump Lawyer: He Could’ve Deleted Mar-a-Lago Tapes If He Really Wanted To](https://news.yahoo.com/trump-lawyer-could-ve-deleted-175045512.html)
 - Jul 30 - [Disney's ESPN streaming transition to be 'massive, extra disruptive event'](https://finance.yahoo.com/news/disneys-espn-streaming-transition-to-be-massive-extra-disruptive-event-163725086.html)
-- Jul 30 - [China's Great Leap Backward: So much for the next dominant superpower](https://news.yahoo.com/chinas-great-leap-backward-much-160001055.html)
-- Jul 30 - [Trump calls Biden "A dumb son of a b**ch" during rally in Pennsylvania](https://news.yahoo.com/trump-calls-biden-dumb-son-140659950.html)
 <!-- feed end -->
