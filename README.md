@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [A Delta Air Lines customer assaulted a minor on his plane after being served 11 drinks, a new lawsuit says](https://news.yahoo.com/delta-air-lines-customer-assaulted-032530693.html)
 - Jul 30 - [Explosions Rock Moscow in Brazen Early-Morning Drone Attack](https://news.yahoo.com/explosions-rock-moscow-brazen-early-015708832.html)
 - Jul 30 - [Todd Chrisley's Home Confinement Case Is Being 'Investigated Internally' After Being 'Rejected' (Exclusive)](https://www.yahoo.com/entertainment/todd-chrisleys-home-confinement-case-011649140.html)
 - Jul 30 - [2 sisters went on a cruise touring the Bahamas, Jamaica, and Mexico. They came back with kilos of cocaine worth up to $40K in their luggage, feds allege.](https://news.yahoo.com/2-sisters-went-cruise-touring-000432137.html)
 - Jul 29 - [North Korea vows to ‘annihilate’ U.S., says country will be terminated this century](https://news.yahoo.com/north-korea-vows-annihilate-u-233737924.html)
-- Jul 29 - [‘We’ve made a mistake’: Frisco police mistakenly pull over family headed to a basketball tournament with guns drawn](https://news.yahoo.com/ve-made-mistake-frisco-police-224552971.html)
 <!-- feed end -->
