@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Russia takes a dangerous turn in its war on Ukraine](https://news.yahoo.com/russia-takes-dangerous-turn-war-213000031.html)
-- Jul 29 - [Ukrainian Armed Forces announces successful strike on Chonhar Bridge](https://news.yahoo.com/ukrainian-armed-forces-announces-successful-190125826.html)
-- Jul 29 - ['Incredibly egregious': Protesters line streets in front of DeSantis fundraiser in Cotuit](https://news.yahoo.com/incredibly-egregious-protesters-line-streets-180851956.html)
-- Jul 29 - [Medal of Honor recipient watches as warship bearing his name is christened in Maine](https://news.yahoo.com/medal-honor-recipient-watches-warship-173121529.html)
-- Jul 29 - [Wagner mercenaries in Belarus move closer to the Polish border, Poland's prime minister says](https://news.yahoo.com/wagner-mercenaries-belarus-move-closer-170230624.html)
+- Jul 30 - [2 sisters went on a cruise touring the Bahamas, Jamaica, and Mexico. They came back with kilos of cocaine worth up to $40K in their luggage, feds allege.](https://news.yahoo.com/2-sisters-went-cruise-touring-000432137.html)
+- Jul 29 - [North Korea vows to ‘annihilate’ U.S., says country will be terminated this century](https://news.yahoo.com/north-korea-vows-annihilate-u-233737924.html)
+- Jul 29 - [‘We’ve made a mistake’: Frisco police mistakenly pull over family headed to a basketball tournament with guns drawn](https://news.yahoo.com/ve-made-mistake-frisco-police-224552971.html)
+- Jul 29 - [Bodycam footage shows police draw guns on family during ‘high risk’ traffic stop](https://news.yahoo.com/bodycam-footage-shows-police-draw-222222774.html)
+- Jul 29 - [Florida fishing boat seen 'shaking like an earthquake' as underwater predator pounces](https://news.yahoo.com/florida-fishing-boat-seen-shaking-221315430.html)
 <!-- feed end -->
