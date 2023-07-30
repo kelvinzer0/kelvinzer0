@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Mar-a-Lago employee overseeing surveillance cameras previously received target letter in Trump classified documents probe](https://news.yahoo.com/mar-lago-employee-overseeing-surveillance-205936542.html)
 - Jul 30 - [Tesla Dominance Pushes Major Carmaker to Exit Electric Vehicles](https://www.thestreet.com/electric-vehicles/tesla-dominance-pushes-major-carmaker-to-exit-electric-vehicles?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Jul 30 - [Longtime Democratic Rep. John Dingell, who helped make the NRA's lobbying arm into a political force, privately sought to repeal the 1994 assault weapons ban that he voted for: report](https://news.yahoo.com/longtime-democratic-rep-john-dingell-203116652.html)
 - Jul 30 - [Lori Vallow Daybell will be sentenced on Monday. Here’s what to expect](https://news.yahoo.com/lori-vallow-daybell-sentenced-monday-193131015.html)
 - Jul 30 - [Body of climber missing 37 years is found inside melting Swiss glacier, police report](https://news.yahoo.com/body-climber-missing-37-years-192810843.html)
-- Jul 30 - [Russian embassy in Moldova to suspend consular appointments](https://news.yahoo.com/russian-embassy-moldova-suspend-consular-192526655.html)
 <!-- feed end -->
