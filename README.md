@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Georgia Gov. Brian Kemp, who rejected Trump's push to overturn the 2020 presidential results in his state, called Rudy Giuliani's admission of making false election claims 'very troubling'](https://news.yahoo.com/georgia-gov-brian-kemp-rejected-180940444.html)
+- Jul 30 - [Trump Lawyer: He Could’ve Deleted Mar-a-Lago Tapes If He Really Wanted To](https://news.yahoo.com/trump-lawyer-could-ve-deleted-175045512.html)
+- Jul 30 - [Disney's ESPN streaming transition to be 'massive, extra disruptive event'](https://finance.yahoo.com/news/disneys-espn-streaming-transition-to-be-massive-extra-disruptive-event-163725086.html)
 - Jul 30 - [China's Great Leap Backward: So much for the next dominant superpower](https://news.yahoo.com/chinas-great-leap-backward-much-160001055.html)
 - Jul 30 - [Trump calls Biden "A dumb son of a b**ch" during rally in Pennsylvania](https://news.yahoo.com/trump-calls-biden-dumb-son-140659950.html)
-- Jul 30 - [Trump PAC Wants Its Money Back As Legal Bills Pile Up](https://news.yahoo.com/trump-pac-requested-60-million-133853254.html)
-- Jul 30 - [Homeowner’s surveillance system catches ‘infuriating’ action by garbage collectors: ‘A lot of [it] is just a lie’](https://news.yahoo.com/homeowner-surveillance-system-catches-infuriating-133000674.html)
-- Jul 30 - [Tennessee police stood by and watched a man drown for 13 minutes, lawsuit says](https://news.yahoo.com/tennessee-police-stood-watched-man-125838042.html)
 <!-- feed end -->
