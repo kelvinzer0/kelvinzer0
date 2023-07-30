@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [The ‘world’s coldest village’ just experienced the highest temperature it’s ever recorded: ‘A particularly acute threat’](https://news.yahoo.com/world-coldest-village-just-experienced-050000548.html)
 - Jul 30 - [Anchorage homeless face cold and bears. A plan to offer one-way airfare out reveals a bigger crisis](https://news.yahoo.com/anchorage-homeless-face-cold-bears-042239440.html)
 - Jul 30 - [Explosions Rock Moscow in Brazen Early-Morning Drone Attack](https://news.yahoo.com/explosions-rock-moscow-brazen-early-015708832.html)
 - Jul 30 - [2 sisters went on a cruise touring the Bahamas, Jamaica, and Mexico. They came back with kilos of cocaine worth up to $40K in their luggage, feds allege.](https://news.yahoo.com/2-sisters-went-cruise-touring-000432137.html)
 - Jul 29 - [North Korea vows to ‘annihilate’ U.S., says country will be terminated this century](https://news.yahoo.com/north-korea-vows-annihilate-u-233737924.html)
-- Jul 29 - [‘We’ve made a mistake’: Frisco police mistakenly pull over family headed to a basketball tournament with guns drawn](https://news.yahoo.com/ve-made-mistake-frisco-police-224552971.html)
 <!-- feed end -->
