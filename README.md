@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Texas family demands justice for son shot in his sleep after shooter gets 90-day sentence](https://news.yahoo.com/family-demands-justice-son-shot-100000357.html)
-- Jul 31 - [I’ve been on Ozempic for two months – and no one warned me about the real side effects](https://www.yahoo.com/lifestyle/sickness-misery-shedding-stones-first-150000712.html)
-- Jul 31 - [It's time to believe Donald Trump](https://news.yahoo.com/time-believe-donald-trump-094501833.html)
-- Jul 31 - [MSNBC Anchors Crack Up At Ron DeSantis’ Latest 'Cringeworthy' Moment](https://news.yahoo.com/msnbc-anchors-crack-ron-desantis-074003718.html)
-- Jul 31 - [As work begins on the largest US dam removal project, tribes look to a future of growth](https://news.yahoo.com/begins-largest-us-dam-removal-040549088.html)
+- Jul 31 - [Todd Chrisley made a request to be released from prison and placed under house arrest, but it was rejected, according to his attorney](https://www.yahoo.com/entertainment/todd-chrisley-made-request-released-110920288.html)
+- Jul 31 - ['Go get your money': This man on TikTok went viral after revealing how to find — and claim — lost funds that your state owes you. Here's the step-by-step to access 'literally billions'](https://finance.yahoo.com/news/money-man-tiktok-went-viral-133000765.html)
+- Jul 31 - [Kremlin expresses concern over Niger after Wagner chief celebrates coup](https://news.yahoo.com/kremlin-expresses-concern-over-niger-104747786.html)
+- Jul 31 - [A British Airways passenger was stuck in his seat for 3 hours after landing and had to be taken out of first class with a hoist](https://news.yahoo.com/british-airways-passenger-stuck-seat-100934452.html)
+- Jul 31 - [‘I can’t believe we’re having this conversation’: the states pushing for 14-year-olds to serve alcohol](https://news.yahoo.com/t-believe-having-conversation-states-100034920.html)
 <!-- feed end -->
