@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Roads turn to rivers in Beijing after typhoon](https://news.yahoo.com/rain-beijing-typhoon-turns-roads-133201589.html)
+- Jul 31 - [Daredevil climber dies after plunging 68 floors from Hong Kong skyscraper](https://news.yahoo.com/daredevil-climber-dies-plunging-68-124936248.html)
+- Jul 31 - [If you feel better near salt water, you are not making it up. It's called thalassotherapy.](https://news.yahoo.com/feel-better-near-salt-water-123501304.html)
 - Jul 31 - [Mexico's 'super peso' puts squeeze on US remittances](https://finance.yahoo.com/news/mexicos-super-peso-puts-squeeze-120531975.html)
-- Jul 31 - [Russia's defensive lines are 'much more complex, and deadly, than anything experienced by any military in nearly 80 years,' says retired general](https://news.yahoo.com/russias-defensive-lines-much-more-114037065.html)
 - Jul 31 - [1st US nuclear reactor built from scratch in decades enters commercial operation in Georgia](https://news.yahoo.com/first-american-nuclear-reactor-built-112242785.html)
-- Jul 31 - [Two Men Hired A Surrogate To Create Their 'Dream Family' – By The End Of The Process A Baby Boy Was Dead](https://www.yahoo.com/lifestyle/two-men-hired-surrogate-create-111500200.html)
-- Jul 31 - [Todd Chrisley made a request to be released from prison and placed under house arrest, but it was rejected, according to his attorney](https://www.yahoo.com/entertainment/todd-chrisley-made-request-released-110920288.html)
 <!-- feed end -->
