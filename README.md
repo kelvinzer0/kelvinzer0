@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [China's factory activity extends declines, firming case for stimulus](https://news.yahoo.com/chinas-factory-activity-extends-declines-013844468.html)
+- Jul 31 - [Records shed light on why K-9 cop was fired after siccing dog on trucker: Report](https://news.yahoo.com/ohio-k-9-cop-fired-010418206.html)
 - Jul 31 - [Home Improvement star Zachery Ty Bryan arrested on charges of domestic violence again](https://www.yahoo.com/entertainment/home-improvement-star-zachery-ty-010212679.html)
 - Jul 31 - [The first self-driving car fatality case put to rest who was responsible for killing a pedestrian. In this case, it was not the robot.](https://news.yahoo.com/first-self-driving-car-fatality-004518016.html)
 - Jul 31 - [Ukraine reports fierce fighting in northeast](https://news.yahoo.com/ukraine-reports-fierce-fighting-northeast-003847928.html)
