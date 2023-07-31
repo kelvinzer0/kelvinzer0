@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Birthday celebration gets weird when dead alligator starts moving, Florida video shows](https://news.yahoo.com/birthday-celebration-gets-weird-dead-153752577.html)
+- Jul 31 - [Musk threatens to sue researchers who documented the rise in hateful tweets](https://news.yahoo.com/musk-threatens-sue-researchers-documented-153326805.html)
+- Jul 31 - [Several EVs and hybrids now selling below MSRP, report says](https://finance.yahoo.com/news/several-evs-and-hybrids-now-selling-below-msrp-report-says-152812148.html)
+- Jul 31 - [Matthew McConaughey has a suggestion for America’s conversation about gun safety](https://www.yahoo.com/entertainment/matthew-mcconaughey-suggestion-america-conversation-140013036.html)
 - Jul 31 - [Trump's bid to quash Georgia probe rejected by judge as charges loom](https://news.yahoo.com/judge-rejects-trumps-bid-disqualify-134800958.html)
-- Jul 31 - [Twitter threatens to sue anti-hate group over its research](https://news.yahoo.com/twitter-threatens-to-sue-anti-hate-group-over-its-research-125645342.html)
-- Jul 31 - [Daredevil climber plunges 68 floors from skyscraper](https://news.yahoo.com/daredevil-climber-dies-plunging-68-124936248.html)
-- Jul 31 - [If you feel better near salt water, you are not making it up. It's called thalassotherapy.](https://news.yahoo.com/feel-better-near-salt-water-123501304.html)
-- Jul 31 - [Argentina won't use 'one dollar' of reserves to repay IMF, says Massa](https://finance.yahoo.com/news/argentina-wont-one-dollar-reserves-122629418.html)
 <!-- feed end -->
