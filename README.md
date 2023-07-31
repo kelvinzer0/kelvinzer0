@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [South Korean dog meat farmers push back against growing moves to outlaw their industry](https://news.yahoo.com/south-korean-dog-meat-farmers-045253233.html)
+- Jul 31 - [As work begins on the largest US dam removal project, tribes look to a future of growth](https://news.yahoo.com/begins-largest-us-dam-removal-040549088.html)
+- Jul 31 - [Trump says it's really 'unpleasant' that he has to keep telling Melania he's been indicted again](https://news.yahoo.com/trump-says-really-unpleasant-keep-031950767.html)
 - Jul 31 - [Records shed light on why K-9 cop was fired after siccing dog on trucker: Report](https://news.yahoo.com/ohio-k-9-cop-fired-010418206.html)
-- Jul 31 - [Home Improvement star Zachery Ty Bryan arrested on charges of domestic violence again](https://www.yahoo.com/entertainment/home-improvement-star-zachery-ty-010212679.html)
 - Jul 31 - [The first self-driving car fatality case put to rest who was responsible for killing a pedestrian. In this case, it was not the robot.](https://news.yahoo.com/first-self-driving-car-fatality-004518016.html)
-- Jul 31 - [Ukraine reports fierce fighting in northeast](https://news.yahoo.com/ukraine-reports-fierce-fighting-northeast-003847928.html)
-- Jul 31 - [Officials found suspected Chinese malware hidden in various US military systems. Its intended use is disruption rather than surveillance, a 'disturbing' change in intent, experts say](https://news.yahoo.com/officials-found-suspected-chinese-malware-001006451.html)
 <!-- feed end -->
