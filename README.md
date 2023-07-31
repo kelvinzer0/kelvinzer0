@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Birthday celebration gets weird when dead alligator starts moving, Florida video shows](https://news.yahoo.com/birthday-celebration-gets-weird-dead-153752577.html)
-- Jul 31 - [Musk threatens to sue researchers who documented the rise in hateful tweets](https://news.yahoo.com/musk-threatens-sue-researchers-documented-153326805.html)
-- Jul 31 - [Several EVs and hybrids now selling below MSRP, report says](https://finance.yahoo.com/news/several-evs-and-hybrids-now-selling-below-msrp-report-says-152812148.html)
-- Jul 31 - [Matthew McConaughey has a suggestion for America’s conversation about gun safety](https://www.yahoo.com/entertainment/matthew-mcconaughey-suggestion-america-conversation-140013036.html)
-- Jul 31 - [Trump's bid to quash Georgia probe rejected by judge as charges loom](https://news.yahoo.com/judge-rejects-trumps-bid-disqualify-134800958.html)
+- Jul 31 - ['They Just Stopped Buying': Bud Light Is Now Selling For Less Than Water In Some US Warehouses, But Is BUD Stock Too Cheap To Pass Up? 1 Reason To Pick It Up Now](https://finance.yahoo.com/news/just-stopped-buying-bud-light-162116088.html)
+- Jul 31 - [Doomsday Mom Smirks Through Sentencing Hearing](https://news.yahoo.com/doomsday-mom-smirks-sentencing-hearing-162752707.html)
+- Jul 31 - [An alligator at a Florida zoo was ‘behaving strangely.’ See what happened next](https://news.yahoo.com/alligator-florida-zoo-behaving-strangely-161043797.html)
+- Jul 31 - [SpaceX tested 'mega steel pancake' water deluge system for Starship](https://news.yahoo.com/spacex-tested-mega-steel-pancake-160352497.html)
+- Jul 31 - [Indicted Trump employee Carlos De Oliveira appears in court](https://news.yahoo.com/indicted-trump-employee-carlos-oliveira-153959595.html)
 <!-- feed end -->
