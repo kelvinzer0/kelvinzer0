@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Mexico's 'super peso' puts squeeze on US remittances](https://finance.yahoo.com/news/mexicos-super-peso-puts-squeeze-120531975.html)
+- Jul 31 - [Russia's defensive lines are 'much more complex, and deadly, than anything experienced by any military in nearly 80 years,' says retired general](https://news.yahoo.com/russias-defensive-lines-much-more-114037065.html)
+- Jul 31 - [1st US nuclear reactor built from scratch in decades enters commercial operation in Georgia](https://news.yahoo.com/first-american-nuclear-reactor-built-112242785.html)
+- Jul 31 - [Two Men Hired A Surrogate To Create Their 'Dream Family' – By The End Of The Process A Baby Boy Was Dead](https://www.yahoo.com/lifestyle/two-men-hired-surrogate-create-111500200.html)
 - Jul 31 - [Todd Chrisley made a request to be released from prison and placed under house arrest, but it was rejected, according to his attorney](https://www.yahoo.com/entertainment/todd-chrisley-made-request-released-110920288.html)
-- Jul 31 - ['Go get your money': This man on TikTok went viral after revealing how to find — and claim — lost funds that your state owes you. Here's the step-by-step to access 'literally billions'](https://finance.yahoo.com/news/money-man-tiktok-went-viral-133000765.html)
-- Jul 31 - [Kremlin expresses concern over Niger after Wagner chief celebrates coup](https://news.yahoo.com/kremlin-expresses-concern-over-niger-104747786.html)
-- Jul 31 - [A British Airways passenger was stuck in his seat for 3 hours after landing and had to be taken out of first class with a hoist](https://news.yahoo.com/british-airways-passenger-stuck-seat-100934452.html)
-- Jul 31 - [‘I can’t believe we’re having this conversation’: the states pushing for 14-year-olds to serve alcohol](https://news.yahoo.com/t-believe-having-conversation-states-100034920.html)
 <!-- feed end -->
