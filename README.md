@@ -63,6 +63,6 @@ https://kelvinzer0.github.io
 - Jul 31 - [MSNBC Anchors Crack Up At Ron DeSantis’ Latest 'Cringeworthy' Moment](https://news.yahoo.com/msnbc-anchors-crack-ron-desantis-074003718.html)
 - Jul 31 - [Italy just slammed China's trillion-dollar Belt and Road Initiative, saying it was an 'atrocious' decision to join and that it's barely benefited from the deal](https://news.yahoo.com/italy-just-slammed-chinas-trillion-040817816.html)
 - Jul 31 - [As work begins on the largest US dam removal project, tribes look to a future of growth](https://news.yahoo.com/begins-largest-us-dam-removal-040549088.html)
-- Jul 31 - [Trump says it's really 'unpleasant' that he has to keep telling Melania he's been indicted again](https://news.yahoo.com/trump-says-really-unpleasant-keep-031950767.html)
+- Jul 31 - [EU leader warns Europe won't tolerate aggression: 'Not in Ukraine, not in the Indo-Pacific'](https://news.yahoo.com/eu-leader-pays-rare-visit-034809111.html)
 - Jul 31 - [A Teenage Boy Decides To Make A Difference After Seeing His Classmates Bullied For Wearing Dirty Clothes](https://www.yahoo.com/lifestyle/teenage-boy-decides-difference-seeing-031500240.html)
 <!-- feed end -->
