@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [China's factory activity extends declines, firming case for stimulus](https://news.yahoo.com/chinas-factory-activity-extends-declines-013844468.html)
+- Jul 31 - [Home Improvement star Zachery Ty Bryan arrested on charges of domestic violence again](https://www.yahoo.com/entertainment/home-improvement-star-zachery-ty-010212679.html)
+- Jul 31 - [The first self-driving car fatality case put to rest who was responsible for killing a pedestrian. In this case, it was not the robot.](https://news.yahoo.com/first-self-driving-car-fatality-004518016.html)
+- Jul 31 - [Ukraine reports fierce fighting in northeast](https://news.yahoo.com/ukraine-reports-fierce-fighting-northeast-003847928.html)
 - Jul 31 - [Officials found suspected Chinese malware hidden in various US military systems. Its intended use is disruption rather than surveillance, a 'disturbing' change in intent, experts say](https://news.yahoo.com/officials-found-suspected-chinese-malware-001006451.html)
-- Jul 30 - [The Ukraine war is about to get worse](https://news.yahoo.com/ukraine-war-worse-230300238.html)
-- Jul 30 - [Tesla Dominance Pushes Major Carmaker to Exit Electric Vehicles](https://www.thestreet.com/electric-vehicles/tesla-dominance-pushes-major-carmaker-to-exit-electric-vehicles?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Jul 30 - [Longtime Democratic Rep. John Dingell, who helped make the NRA's lobbying arm into a political force, privately sought to repeal the 1994 assault weapons ban that he voted for: report](https://news.yahoo.com/longtime-democratic-rep-john-dingell-203116652.html)
-- Jul 30 - [Lori Vallow Daybell will be sentenced on Monday. Here’s what to expect](https://news.yahoo.com/lori-vallow-daybell-sentenced-monday-193131015.html)
 <!-- feed end -->
