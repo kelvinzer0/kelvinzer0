@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Texas family demands justice for son shot in his sleep after shooter gets 90-day sentence](https://news.yahoo.com/family-demands-justice-son-shot-100000357.html)
 - Jul 31 - [I’ve been on Ozempic for two months – and no one warned me about the real side effects](https://www.yahoo.com/lifestyle/sickness-misery-shedding-stones-first-150000712.html)
+- Jul 31 - [It's time to believe Donald Trump](https://news.yahoo.com/time-believe-donald-trump-094501833.html)
 - Jul 31 - [MSNBC Anchors Crack Up At Ron DeSantis’ Latest 'Cringeworthy' Moment](https://news.yahoo.com/msnbc-anchors-crack-ron-desantis-074003718.html)
-- Jul 31 - [Italy just slammed China's trillion-dollar Belt and Road Initiative, saying it was an 'atrocious' decision to join and that it's barely benefited from the deal](https://news.yahoo.com/italy-just-slammed-chinas-trillion-040817816.html)
 - Jul 31 - [As work begins on the largest US dam removal project, tribes look to a future of growth](https://news.yahoo.com/begins-largest-us-dam-removal-040549088.html)
-- Jul 31 - [EU leader warns Europe won't tolerate aggression: 'Not in Ukraine, not in the Indo-Pacific'](https://news.yahoo.com/eu-leader-pays-rare-visit-034809111.html)
 <!-- feed end -->
