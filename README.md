@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Roads turn to rivers in Beijing after typhoon](https://news.yahoo.com/rain-beijing-typhoon-turns-roads-133201589.html)
-- Jul 31 - [Daredevil climber dies after plunging 68 floors from Hong Kong skyscraper](https://news.yahoo.com/daredevil-climber-dies-plunging-68-124936248.html)
+- Jul 31 - [Trump's bid to quash Georgia probe rejected by judge as charges loom](https://news.yahoo.com/judge-rejects-trumps-bid-disqualify-134800958.html)
+- Jul 31 - [Twitter threatens to sue anti-hate group over its research](https://news.yahoo.com/twitter-threatens-to-sue-anti-hate-group-over-its-research-125645342.html)
+- Jul 31 - [Daredevil climber plunges 68 floors from skyscraper](https://news.yahoo.com/daredevil-climber-dies-plunging-68-124936248.html)
 - Jul 31 - [If you feel better near salt water, you are not making it up. It's called thalassotherapy.](https://news.yahoo.com/feel-better-near-salt-water-123501304.html)
-- Jul 31 - [Mexico's 'super peso' puts squeeze on US remittances](https://finance.yahoo.com/news/mexicos-super-peso-puts-squeeze-120531975.html)
-- Jul 31 - [1st US nuclear reactor built from scratch in decades enters commercial operation in Georgia](https://news.yahoo.com/first-american-nuclear-reactor-built-112242785.html)
+- Jul 31 - [Argentina won't use 'one dollar' of reserves to repay IMF, says Massa](https://finance.yahoo.com/news/argentina-wont-one-dollar-reserves-122629418.html)
 <!-- feed end -->
