@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Ivanka Trump & Jared Kushner Reportedly Want Back Into Donald’s Inner Circle After This New Report Came Out](https://www.yahoo.com/entertainment/ivanka-trump-jared-kushner-reportedly-195200952.html)
+- Jul 31 - [Next CPI report could be 'surprisingly high' -market expert](https://news.yahoo.com/next-cpi-report-could-surprisingly-194519503.html)
+- Jul 31 - [Biden has decided to keep Space Command in Colorado, rejecting move to Alabama, officials tell AP](https://news.yahoo.com/biden-decided-keep-space-command-193916983.html)
+- Jul 31 - [GOP strategist who encouraged Ron DeSantis to run calls it quits: 'He's been a very flawed candidate'](https://news.yahoo.com/gop-strategist-encouraged-ron-desantis-190719804.html)
 - Jul 31 - [Business owner in Virginia under fire for racism after hitting an Asian woman’s car](https://news.yahoo.com/business-owner-virginia-under-fire-184417960.html)
-- Jul 31 - [Taco Bell is sued for false advertising of Crunchwraps, Mexican pizzas](https://news.yahoo.com/taco-bell-sued-false-advertising-182553491.html)
-- Jul 31 - [Trump latest: Mar-a-Lago manager Carlos De Oliveira appears in court as more indictments loom](https://news.yahoo.com/trump-mar-a-lago-carlos-de-oliveira-court-indictments-doj-florida-georgia-181515333.html)
-- Jul 31 - [Joe Rogan Says It’s a ‘Fact’ That Jan. 6 Was a False Flag, Cites Ray Epps](https://www.yahoo.com/entertainment/joe-rogan-says-fact-jan-180044649.html)
-- Jul 31 - [The woman Cardi B threw a microphone at reported a 'battery' to authorities, but police aren't arresting anyone yet](https://www.yahoo.com/entertainment/woman-cardi-b-threw-microphone-175925586.html)
 <!-- feed end -->
