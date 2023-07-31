@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Brightly flashing 'X' sign removed from the former Twitter's San Francisco headquarters](https://news.yahoo.com/brightly-flashing-x-sign-removed-203619338.html)
-- Jul 31 - [Ukrainian troops describe brutal, grinding battle](https://news.yahoo.com/ukrainian-troops-describe-brutal-grinding-202534200.html)
+- Jul 31 - [‘Giant’ orange creature found lurking in Amazon rainforest. It’s a new species](https://news.yahoo.com/giant-orange-creature-found-lurking-212027173.html)
+- Jul 31 - [Ukrainian assault commander reveals horrific encounter with one of Russia's fake trench traps](https://news.yahoo.com/ukrainian-assault-commander-reveals-horrific-211649616.html)
 - Jul 31 - [Ivanka Trump & Jared Kushner Reportedly Want Back Into Donald’s Inner Circle After This New Report Came Out](https://www.yahoo.com/entertainment/ivanka-trump-jared-kushner-reportedly-195200952.html)
-- Jul 31 - [Biden has decided to keep Space Command in Colorado, rejecting move to Alabama, officials tell AP](https://news.yahoo.com/biden-decided-keep-space-command-193916983.html)
 - Jul 31 - [The Bidens own a vacation home in Rehoboth Beach, Delaware. Take a look inside the 1,108-person town.](https://news.yahoo.com/bidens-own-vacation-home-rehoboth-192952136.html)
+- Jul 31 - [17 Ocean Facts That Blew My Landlocked Mind](https://www.yahoo.com/lifestyle/sharks-fart-17-absolutely-wild-191603104.html)
 <!-- feed end -->
