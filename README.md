@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - ['They Just Stopped Buying': Bud Light Is Now Selling For Less Than Water In Some US Warehouses, But Is BUD Stock Too Cheap To Pass Up? 1 Reason To Pick It Up Now](https://finance.yahoo.com/news/just-stopped-buying-bud-light-162116088.html)
-- Jul 31 - [Doomsday Mom Smirks Through Sentencing Hearing](https://news.yahoo.com/doomsday-mom-smirks-sentencing-hearing-162752707.html)
-- Jul 31 - [An alligator at a Florida zoo was ‘behaving strangely.’ See what happened next](https://news.yahoo.com/alligator-florida-zoo-behaving-strangely-161043797.html)
-- Jul 31 - [SpaceX tested 'mega steel pancake' water deluge system for Starship](https://news.yahoo.com/spacex-tested-mega-steel-pancake-160352497.html)
-- Jul 31 - [Indicted Trump employee Carlos De Oliveira appears in court](https://news.yahoo.com/indicted-trump-employee-carlos-oliveira-153959595.html)
+- Jul 31 - [Sony's latest QD-OLED TV is significantly brighter than last year’s models](https://news.yahoo.com/sonys-latest-qd-oled-tv-is-significantly-brighter-than-last-years-models-175307553.html)
+- Jul 31 - [Magnus White, a U.S. cycling 'rising star,' dies at age 17 after being hit by vehicle while training](https://sports.yahoo.com/magnus-white-a-us-cycling-rising-star-dies-at-age-17-after-being-hit-by-vehicle-while-training-173728509.html)
+- Jul 31 - [Vladimir Putin is finally losing his psychological grip](https://news.yahoo.com/vladimir-putin-finally-losing-psychological-173501187.html)
+- Jul 31 - ["Is Trump tired of losing yet?": Judge torches Trump lawyers over desperate bid to block Ga. charges](https://news.yahoo.com/trump-tired-losing-yet-judge-170719798.html)
+- Jul 31 - [Turns Out Rep. Tricia Cotham, North Carolina Abortion Traitor, Was a GOP Plant All Along](https://news.yahoo.com/turns-rep-tricia-cotham-north-170000213.html)
 <!-- feed end -->
