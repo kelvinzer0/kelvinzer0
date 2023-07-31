@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Brightly flashing 'X' sign removed from the former Twitter's San Francisco headquarters](https://news.yahoo.com/brightly-flashing-x-sign-removed-203619338.html)
+- Jul 31 - [Ukrainian troops describe brutal, grinding battle](https://news.yahoo.com/ukrainian-troops-describe-brutal-grinding-202534200.html)
 - Jul 31 - [Ivanka Trump & Jared Kushner Reportedly Want Back Into Donald’s Inner Circle After This New Report Came Out](https://www.yahoo.com/entertainment/ivanka-trump-jared-kushner-reportedly-195200952.html)
-- Jul 31 - [Next CPI report could be 'surprisingly high' -market expert](https://news.yahoo.com/next-cpi-report-could-surprisingly-194519503.html)
 - Jul 31 - [Biden has decided to keep Space Command in Colorado, rejecting move to Alabama, officials tell AP](https://news.yahoo.com/biden-decided-keep-space-command-193916983.html)
-- Jul 31 - [GOP strategist who encouraged Ron DeSantis to run calls it quits: 'He's been a very flawed candidate'](https://news.yahoo.com/gop-strategist-encouraged-ron-desantis-190719804.html)
-- Jul 31 - [Business owner in Virginia under fire for racism after hitting an Asian woman’s car](https://news.yahoo.com/business-owner-virginia-under-fire-184417960.html)
+- Jul 31 - [The Bidens own a vacation home in Rehoboth Beach, Delaware. Take a look inside the 1,108-person town.](https://news.yahoo.com/bidens-own-vacation-home-rehoboth-192952136.html)
 <!-- feed end -->
