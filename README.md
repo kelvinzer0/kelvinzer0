@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Sony's latest QD-OLED TV is significantly brighter than last year’s models](https://news.yahoo.com/sonys-latest-qd-oled-tv-is-significantly-brighter-than-last-years-models-175307553.html)
-- Jul 31 - [Magnus White, a U.S. cycling 'rising star,' dies at age 17 after being hit by vehicle while training](https://sports.yahoo.com/magnus-white-a-us-cycling-rising-star-dies-at-age-17-after-being-hit-by-vehicle-while-training-173728509.html)
-- Jul 31 - [Vladimir Putin is finally losing his psychological grip](https://news.yahoo.com/vladimir-putin-finally-losing-psychological-173501187.html)
-- Jul 31 - ["Is Trump tired of losing yet?": Judge torches Trump lawyers over desperate bid to block Ga. charges](https://news.yahoo.com/trump-tired-losing-yet-judge-170719798.html)
-- Jul 31 - [Turns Out Rep. Tricia Cotham, North Carolina Abortion Traitor, Was a GOP Plant All Along](https://news.yahoo.com/turns-rep-tricia-cotham-north-170000213.html)
+- Jul 31 - [Business owner in Virginia under fire for racism after hitting an Asian woman’s car](https://news.yahoo.com/business-owner-virginia-under-fire-184417960.html)
+- Jul 31 - [Taco Bell is sued for false advertising of Crunchwraps, Mexican pizzas](https://news.yahoo.com/taco-bell-sued-false-advertising-182553491.html)
+- Jul 31 - [Trump latest: Mar-a-Lago manager Carlos De Oliveira appears in court as more indictments loom](https://news.yahoo.com/trump-mar-a-lago-carlos-de-oliveira-court-indictments-doj-florida-georgia-181515333.html)
+- Jul 31 - [Joe Rogan Says It’s a ‘Fact’ That Jan. 6 Was a False Flag, Cites Ray Epps](https://www.yahoo.com/entertainment/joe-rogan-says-fact-jan-180044649.html)
+- Jul 31 - [The woman Cardi B threw a microphone at reported a 'battery' to authorities, but police aren't arresting anyone yet](https://www.yahoo.com/entertainment/woman-cardi-b-threw-microphone-175925586.html)
 <!-- feed end -->
