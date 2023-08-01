@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [3 US Marines died of carbon monoxide poisoning in a car. Vehicle experts explain how that can happen](https://news.yahoo.com/3-us-marines-died-carbon-160935353.html)
-- Aug 01 - [In DeSantis rebuke, 2 major Black orgs move their conferences — and millions in revenue — out of Florida](https://news.yahoo.com/desantis-rebuke-black-alpha-phi-alpha-nsbe-conferences-revenue-florida-160040318.html)
-- Aug 01 - [‘Just as important as electricity or water': Biden said the US will spend $42B to give 'every person in America' access to the internet by 2030 — here are 3 stocks to pounce on](https://finance.yahoo.com/news/just-important-electricity-water-president-154500076.html)
-- Aug 01 - [Trump White House Press Secretary Explains Why Carlos De Oliveira Won't Flip](https://news.yahoo.com/trump-white-house-press-secretary-145826105.html)
-- Aug 01 - [A man who was pulled out to sea during a morning swim treaded water for 5 hours and jury-rigged a flag out of a broken fishing pole before he was rescued](https://news.yahoo.com/man-pulled-sea-during-morning-145500134.html)
+- Aug 01 - [Why the Fed may not wait until inflation reaches 2% to cut rates: Economist](https://finance.yahoo.com/video/why-fed-may-not-wait-171807610.html)
+- Aug 01 - [What's next for Bronny James: Will he play high-level basketball again?](https://sports.yahoo.com/whats-next-for-bronny-james-will-he-play-high-level-basketball-again-171751360.html)
+- Aug 01 - [Uber CEO balks after a reporter tells him the cost of his 2.9-mile Uber ride: 'Oh my God. Wow.'](https://finance.yahoo.com/news/uber-ceo-balks-reporter-tells-171042745.html)
+- Aug 01 - [A Tesla owner says she made a 9-day rural road trip through a town without an EV charger by trickle charging from an outlet at an abandoned gas station](https://finance.yahoo.com/news/tesla-owner-says-she-made-133106637.html)
+- Aug 01 - [DeSantis' 'War on Woke' Backfires As Disney Ends $1 Billion Spending in Florida – Controversial Policies Spur Convention Cancellations, Tourism Downturn, and Struggles for Local Businesses](https://finance.yahoo.com/news/desantis-war-woke-backfires-disney-170312133.html)
 <!-- feed end -->
