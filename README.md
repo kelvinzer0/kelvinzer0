@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [The Kremlin has pumped so much money into the economy that it's creating a boom — but this house of cards could topple anytime soon](https://news.yahoo.com/kremlin-pumped-much-money-economy-093221238.html)
+- Aug 01 - [17 Introvert Jokes That Have Me Laughing...Alone...In A Room By Myself](https://www.yahoo.com/lifestyle/17-introvert-jokes-laughing-alone-071602536.html)
 - Aug 01 - [United Airlines temporarily barred a woman from flying after she forced a flight to divert to Arizona, and videos show her arguing with flight attendants and passengers](https://news.yahoo.com/united-airlines-temporarily-banned-woman-055022667.html)
 - Aug 01 - [Analysis: Buildup of American forces in Persian Gulf a new signal of worsening US-Iran conflict](https://news.yahoo.com/analysis-buildup-american-forces-persian-050844225.html)
 - Aug 01 - [Missouri man facing scheduled execution for beating death of 6-year-old girl in 2002](https://news.yahoo.com/missouri-man-facing-scheduled-execution-040524976.html)
-- Aug 01 - [New Filing Shows Trump’s Legal Expenses Are Nowhere Close to Reports](https://news.yahoo.com/filing-shows-trump-legal-expenses-021700870.html)
-- Aug 01 - [Hear Trump’s unearthed comments on destroying evidence as he faces new obstruction charge](https://news.yahoo.com/hear-trump-unearthed-comments-destroying-011923684.html)
 <!-- feed end -->
