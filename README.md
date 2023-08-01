@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Crane collapse kills 17 workers in India](https://news.yahoo.com/crane-collapse-kills-17-workers-073523745.html)
 - Aug 01 - [United Airlines temporarily banned a woman from flying after she forced a flight to divert to Arizona, and videos show her arguing with flight attendants and passengers](https://news.yahoo.com/united-airlines-temporarily-banned-woman-055022667.html)
-- Aug 01 - [Analysis: Buildup of American forces in Persian Gulf a new signal of worsening US-Iran conflict](https://news.yahoo.com/analysis-buildup-american-forces-persian-050844225.html)
 - Aug 01 - [Missouri man facing scheduled execution for beating death of 6-year-old girl in 2002](https://news.yahoo.com/missouri-man-facing-scheduled-execution-040524976.html)
 - Aug 01 - [New Filing Shows Trump’s Legal Expenses Are Nowhere Close to Reports](https://news.yahoo.com/filing-shows-trump-legal-expenses-021700870.html)
 - Jul 31 - [George Conway’s advice for indicted Trump co-defendant](https://news.yahoo.com/george-conway-advice-indicted-trump-233047073.html)
