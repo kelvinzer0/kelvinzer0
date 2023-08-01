@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Why the Fed may not wait until inflation reaches 2% to cut rates: Economist](https://finance.yahoo.com/video/why-fed-may-not-wait-171807610.html)
 - Aug 01 - [What's next for Bronny James: Will he play high-level basketball again?](https://sports.yahoo.com/whats-next-for-bronny-james-will-he-play-high-level-basketball-again-171751360.html)
 - Aug 01 - [Uber CEO balks after a reporter tells him the cost of his 2.9-mile Uber ride: 'Oh my God. Wow.'](https://finance.yahoo.com/news/uber-ceo-balks-reporter-tells-171042745.html)
 - Aug 01 - [A Tesla owner says she made a 9-day rural road trip through a town without an EV charger by trickle charging from an outlet at an abandoned gas station](https://finance.yahoo.com/news/tesla-owner-says-she-made-133106637.html)
 - Aug 01 - [DeSantis' 'War on Woke' Backfires As Disney Ends $1 Billion Spending in Florida – Controversial Policies Spur Convention Cancellations, Tourism Downturn, and Struggles for Local Businesses](https://finance.yahoo.com/news/desantis-war-woke-backfires-disney-170312133.html)
+- Aug 01 - [3 US Marines died of carbon monoxide poisoning in a car. Vehicle experts explain how that can happen](https://news.yahoo.com/3-us-marines-died-carbon-160935353.html)
 <!-- feed end -->
