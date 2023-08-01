@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Missouri man facing scheduled execution for beating death of 6-year-old girl in 2002](https://news.yahoo.com/missouri-man-facing-scheduled-execution-040524976.html)
 - Aug 01 - [New Filing Shows Trump’s Legal Expenses Are Nowhere Close to Reports](https://news.yahoo.com/filing-shows-trump-legal-expenses-021700870.html)
 - Aug 01 - [A man claimed Taco Bell's Mexican Pizza and Crunchwrap Supreme ads deceptively show menu items loaded with 'at least double' the amount of beef and other ingredients in a new lawsuit](https://news.yahoo.com/man-claimed-taco-bells-mexican-012007421.html)
 - Jul 31 - [George Conway’s advice for indicted Trump co-defendant](https://news.yahoo.com/george-conway-advice-indicted-trump-233047073.html)
 - Jul 31 - [Family held at gunpoint after cop’s typo](https://news.yahoo.com/bodycam-footage-shows-police-draw-222222774.html)
-- Jul 31 - [Ex-Trump Doc Detained at Rodeo While Assisting on ‘Chaotic’ Medical Emergency](https://news.yahoo.com/ex-trump-doc-detained-rodeo-230146382.html)
 <!-- feed end -->
