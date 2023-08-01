@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [A Tesla owner says she made a 9-day rural road trip through a town without an EV charger by trickle charging from an outlet at an abandoned gas station](https://news.yahoo.com/tesla-owner-says-she-made-133106637.html)
 - Aug 01 - [NASA hears signal from Voyager 2 spacecraft after mistakenly cutting contact](https://news.yahoo.com/nasa-hears-signal-voyager-2-131355009.html)
+- Aug 01 - [LAX banned a common travel item that’s forbidden in only one other major airport: ‘The right thing to do’](https://news.yahoo.com/lax-banned-common-travel-item-130000349.html)
 - Aug 01 - [“Truly stunning”: Republican admits hyped Biden witness “didn’t know anything” about alleged bribe](https://news.yahoo.com/truly-stunning-republican-admits-hyped-124853436.html)
-- Aug 01 - [‘It’s David and Goliath on steroids.’ Meet the man fighting Taco Bell over ‘Taco Tuesday’](https://finance.yahoo.com/video/david-goliath-steroids-meet-man-121500843.html)
 - Aug 01 - [Iran shuts down for two days because of 'unprecedented heat'](https://news.yahoo.com/iran-shuts-down-two-days-114825293.html)
-- Aug 01 - [Jack Ma started off as a school teacher and built China's Amazon. But 3 years after Beijing cracked down on his tech businesses, Ma's now turned to farming.](https://finance.yahoo.com/news/jack-ma-started-off-school-032207055.html)
 <!-- feed end -->
