@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [A Tesla owner says she made a 9-day rural road trip through a town without an EV charger by trickle charging from an outlet at an abandoned gas station](https://news.yahoo.com/tesla-owner-says-she-made-133106637.html)
-- Aug 01 - [NASA hears signal from Voyager 2 spacecraft after mistakenly cutting contact](https://news.yahoo.com/nasa-hears-signal-voyager-2-131355009.html)
-- Aug 01 - [LAX banned a common travel item that’s forbidden in only one other major airport: ‘The right thing to do’](https://news.yahoo.com/lax-banned-common-travel-item-130000349.html)
-- Aug 01 - [“Truly stunning”: Republican admits hyped Biden witness “didn’t know anything” about alleged bribe](https://news.yahoo.com/truly-stunning-republican-admits-hyped-124853436.html)
-- Aug 01 - [Iran shuts down for two days because of 'unprecedented heat'](https://news.yahoo.com/iran-shuts-down-two-days-114825293.html)
+- Aug 01 - [‘Just as important as electricity or water': President Biden said the US will spend $42B to give 'every person in America' access to the internet by 2030 — here are 3 stocks to pounce on](https://finance.yahoo.com/news/just-important-electricity-water-president-154500076.html)
+- Aug 01 - [Four Nigerians survived 14 days on a ship's rudder](https://news.yahoo.com/four-nigerians-survived-14-days-153040725.html)
+- Aug 01 - [Job openings fall slightly in June, labor market remains 'quite tight'](https://finance.yahoo.com/video/job-openings-fall-slightly-june-151818734.html)
+- Aug 01 - [Trump White House Press Secretary Explains Why Carlos De Oliveira Won't Flip](https://news.yahoo.com/trump-white-house-press-secretary-145826105.html)
+- Aug 01 - [A man who was pulled out to sea during a morning swim treaded water for 5 hours and jury-rigged a flag out of a broken fishing pole before he was rescued](https://news.yahoo.com/man-pulled-sea-during-morning-145500134.html)
 <!-- feed end -->
