@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [What's next for Bronny James: Will he play high-level basketball again?](https://sports.yahoo.com/whats-next-for-bronny-james-will-he-play-high-level-basketball-again-171751360.html)
-- Aug 01 - [Uber CEO balks after a reporter tells him the cost of his 2.9-mile Uber ride: 'Oh my God. Wow.'](https://finance.yahoo.com/news/uber-ceo-balks-reporter-tells-171042745.html)
-- Aug 01 - [A Tesla owner says she made a 9-day rural road trip through a town without an EV charger by trickle charging from an outlet at an abandoned gas station](https://finance.yahoo.com/news/tesla-owner-says-she-made-133106637.html)
-- Aug 01 - [DeSantis' 'War on Woke' Backfires As Disney Ends $1 Billion Spending in Florida – Controversial Policies Spur Convention Cancellations, Tourism Downturn, and Struggles for Local Businesses](https://finance.yahoo.com/news/desantis-war-woke-backfires-disney-170312133.html)
-- Aug 01 - [3 US Marines died of carbon monoxide poisoning in a car. Vehicle experts explain how that can happen](https://news.yahoo.com/3-us-marines-died-carbon-160935353.html)
+- Aug 01 - ["He's going to get drubbed": Fox News legal analyst says "Trump doesn't have a prayer" in 2024](https://news.yahoo.com/hes-going-drubbed-fox-news-191848109.html)
+- Aug 01 - [From "Just A Little Weird" To "This Should Be A Federal Crime," Here Are 16 Things That Are Legal But Creepy](https://www.yahoo.com/lifestyle/just-little-weird-federal-crime-191602576.html)
+- Aug 01 - [Retired bishop in New York state gets married after bid to leave priesthood denied](https://news.yahoo.com/retired-bishop-york-state-gets-191204394.html)
+- Aug 01 - [“Not admissible in court”: Ex-US Attorney says Trump’s defense won’t work unless he risks testifying](https://news.yahoo.com/not-admissible-court-ex-us-185459159.html)
+- Aug 01 - [$2.04 billion Powerball winner bought $25 million Hollywood dream home and another in his home town](https://news.yahoo.com/2-04-billion-powerball-winner-185256785.html)
 <!-- feed end -->
