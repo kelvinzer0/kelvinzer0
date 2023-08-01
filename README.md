@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Jack Ma started off as a school teacher and built China's Amazon. But 3 years after Beijing cracked down on his tech businesses, Ma's now turned to farming.](https://finance.yahoo.com/news/jack-ma-started-off-school-032207055.html)
+- Aug 01 - [Off-duty cops fishing 6 miles off Florida Keys spot adrift diver desperate for rescue](https://news.yahoo.com/off-duty-cops-fishing-6-111755688.html)
+- Aug 01 - [Driver infuriated after discovering avoidable cause of flat tire: ‘These make me so angry’](https://news.yahoo.com/driver-infuriated-discovering-avoidable-cause-200000743.html)
 - Aug 01 - [The Kremlin has pumped so much money into the economy that it's creating a boom — but this house of cards could topple anytime soon](https://news.yahoo.com/kremlin-pumped-much-money-economy-093221238.html)
-- Aug 01 - [17 Introvert Jokes That Have Me Laughing...Alone...In A Room By Myself](https://www.yahoo.com/lifestyle/17-introvert-jokes-laughing-alone-071602536.html)
-- Aug 01 - [United Airlines temporarily barred a woman from flying after she forced a flight to divert to Arizona, and videos show her arguing with flight attendants and passengers](https://news.yahoo.com/united-airlines-temporarily-banned-woman-055022667.html)
-- Aug 01 - [Analysis: Buildup of American forces in Persian Gulf a new signal of worsening US-Iran conflict](https://news.yahoo.com/analysis-buildup-american-forces-persian-050844225.html)
-- Aug 01 - [Missouri man facing scheduled execution for beating death of 6-year-old girl in 2002](https://news.yahoo.com/missouri-man-facing-scheduled-execution-040524976.html)
+- Aug 01 - [17 Tweets Introverts Will Laugh At, So Extroverts, Don't Even Bother](https://www.yahoo.com/lifestyle/17-introvert-jokes-laughing-alone-071602536.html)
 <!-- feed end -->
