@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Trump indicted in federal Jan. 6 investigation: Live updates](https://news.yahoo.com/live-updates-trump-indicted-january-6-capitol-department-of-justice-jack-smith-213515864.html)
+- Aug 01 - [Special counsel: Trump lies 'fueled' Jan. 6 attack](https://news.yahoo.com/smith-seeks-speedy-trial-trump-223803076.html)
+- Aug 01 - [Bud Light's woes become Molson Coors' gain](https://finance.yahoo.com/video/bud-lights-woes-become-molson-215926523.html)
+- Aug 01 - [Trump says he hears his indictment will be announced at 5 p.m](https://news.yahoo.com/trump-says-hears-indictment-announced-205804492.html)
 - Aug 01 - [Ron DeSantis Might Completely Ban This Company From Florida (It's Not Disney or Bud Light)](https://www.thestreet.com/technology/ron-desantis-might-completely-ban-this-company-from-florida-its-not-disney-or-bud-light?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Aug 01 - [North Korea responds to UN Command on US soldier Travis King who ran across border](https://news.yahoo.com/north-korea-responds-un-command-203816944.html)
-- Aug 01 - [Watch daredevil deputy leap onto empty boat speeding at 40 mph off Florida coast](https://news.yahoo.com/watch-daredevil-deputy-leap-onto-195748360.html)
-- Aug 01 - [The tragic tale of Masabumi Hosono, the Japanese Titanic survivor who was ostracized for not going down with the ship](https://news.yahoo.com/tragic-tale-masabumi-hosono-japanese-195556703.html)
 <!-- feed end -->
