@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Trump Immune From Suit for Election Comments Made in Office](https://news.yahoo.com/trump-immune-suit-election-comments-000902483.html)
 - Jul 31 - [George Conway’s advice for indicted Trump co-defendant](https://news.yahoo.com/george-conway-advice-indicted-trump-233047073.html)
-- Jul 31 - [Hear Michael Cohen’s advice to indicted Trump co-defendent](https://news.yahoo.com/hear-michael-cohen-advice-indicted-140639755.html)
 - Jul 31 - [Family held at gunpoint after cop’s typo](https://news.yahoo.com/bodycam-footage-shows-police-draw-222222774.html)
+- Jul 31 - [12 Worst Performing Fast Food Chains In America](https://finance.yahoo.com/news/12-worst-performing-fast-food-230421958.html)
 - Jul 31 - [Ex-Trump Doc Detained at Rodeo While Assisting on ‘Chaotic’ Medical Emergency](https://news.yahoo.com/ex-trump-doc-detained-rodeo-230146382.html)
-- Jul 31 - [Who’s buying up land around major Air Force base in California? ‘We have no idea’](https://news.yahoo.com/buying-land-around-major-air-225434490.html)
 <!-- feed end -->
