@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - ["He's going to get drubbed": Fox News legal analyst says "Trump doesn't have a prayer" in 2024](https://news.yahoo.com/hes-going-drubbed-fox-news-191848109.html)
+- Aug 01 - [North Korea responds to UN Command on US soldier Travis King who ran across border](https://news.yahoo.com/north-korea-responds-un-command-203816944.html)
+- Aug 01 - [Watch daredevil deputy leap onto empty boat speeding at 40 mph off Florida coast](https://news.yahoo.com/watch-daredevil-deputy-leap-onto-195748360.html)
+- Aug 01 - [Michigan prosecutors charge Trump allies in felonies involving voting machines, illegal ‘testing’](https://news.yahoo.com/michigan-prosecutors-charge-trump-allies-192313815.html)
 - Aug 01 - [From "Just A Little Weird" To "This Should Be A Federal Crime," Here Are 16 Things That Are Legal But Creepy](https://www.yahoo.com/lifestyle/just-little-weird-federal-crime-191602576.html)
 - Aug 01 - [Retired bishop in New York state gets married after bid to leave priesthood denied](https://news.yahoo.com/retired-bishop-york-state-gets-191204394.html)
-- Aug 01 - [“Not admissible in court”: Ex-US Attorney says Trump’s defense won’t work unless he risks testifying](https://news.yahoo.com/not-admissible-court-ex-us-185459159.html)
-- Aug 01 - [$2.04 billion Powerball winner bought $25 million Hollywood dream home and another in his home town](https://news.yahoo.com/2-04-billion-powerball-winner-185256785.html)
 <!-- feed end -->
