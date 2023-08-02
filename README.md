@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 02 - [Bill O’Reilly Predicts Trump Will Sign a Plea Deal Before GOP Convention: ‘He’s Inoculated’](https://www.yahoo.com/entertainment/bill-o-reilly-predicts-trump-161119403.html)
+- Aug 02 - [Co-owner, executive director charged after woman kicked out of Ga. assisted-living home](https://news.yahoo.com/co-owner-executive-director-charged-154304020.html)
 - Aug 02 - [The heaviest animal ever may be this ancient whale found in the Peruvian desert](https://news.yahoo.com/heaviest-animal-ever-may-ancient-150726306.html)
 - Aug 02 - [Mike Pence Threw Trump Under the Bus Via 'Contemporaneous Notes,' Which Is Hilarious](https://news.yahoo.com/mike-pence-threw-trump-under-144000453.html)
 - Aug 02 - [Bears that look suspiciously human are circulating online after a zoo in China denied using a person in a costume instead of a real bear](https://www.yahoo.com/entertainment/bears-look-suspiciously-human-circulating-143423525.html)
-- Aug 02 - ['People are homeless and starving': Toronto Police Service spending on fallen K9 funeral raises eyebrows](https://news.yahoo.com/toronto-police-funeral-k9-funeral-bingo-143239978.html)
-- Aug 02 - [Donald Trump's Team Just Admitted to Going Around Airlines in Popular Travel Hack](https://www.thestreet.com/travel/donald-trump-campaign-team-skiplagging?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
