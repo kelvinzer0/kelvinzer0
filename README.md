@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Sam Bankman-Fried enlists Harvard Law's Tribe to stay out of jail](https://finance.yahoo.com/news/sam-bankman-fried-enlists-harvard-175501834.html)
+- Aug 02 - [Arizona man was trapped in his Tesla on a 100 degree day; here's how to get out](https://news.yahoo.com/arizona-man-trapped-tesla-100-180600124.html)
+- Aug 02 - [7 Men Busted for Using Rifles with Silencers and Night-Vision Scopes to Poach Turkeys](https://www.yahoo.com/lifestyle/7-men-busted-using-rifles-180000103.html)
+- Aug 02 - [Mom Who Apparently Jumped Off Royal Caribbean Cruise Ship Near Singapore Has Died, Family Says](https://www.yahoo.com/entertainment/mom-apparently-jumped-off-royal-174756948.html)
+- Aug 02 - [Kroger Makes a Change Customers Hate (Walmart and Target May Follow)](https://www.thestreet.com/retail/kroger-makes-change-customers-hate-walmart-target-may-follow?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Aug 02 - [FBI looks for more possible victims after woman escapes from cinderblock cage in Oregon](https://news.yahoo.com/fbi-looks-more-possible-victims-172837203.html)
-- Aug 02 - [Grandma pushed down stairs, hit with sauce can in fatal fight with daughter, cops say](https://news.yahoo.com/grandma-pushed-down-stairs-hit-171745176.html)
-- Aug 02 - [The biggest fitness mistake people make when trying to get in shape, according to an ex-Navy fitness leader and bodybuilder](https://www.yahoo.com/lifestyle/biggest-fitness-mistake-people-trying-163014765.html)
-- Aug 02 - [In Order for Americans To Love Our Country in Full, They Must Acknowledge Its History in Full](https://news.yahoo.com/order-americans-love-country-full-161500303.html)
 <!-- feed end -->
