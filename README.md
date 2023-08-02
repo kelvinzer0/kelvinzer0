@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [2024 Toyota Land Cruiser revealed](https://news.yahoo.com/2024-toyota-land-cruiser-revealed-132443349.html)
+- Aug 02 - [WWE's McMahon subpoenaed by US law enforcement agents](https://news.yahoo.com/wwes-mcmahon-subpoenaed-us-law-132816256.html)
 - Aug 02 - [One Republican who voted to impeach Trump speaks out on his third indictment](https://news.yahoo.com/one-republican-voted-impeach-trump-125727692.html)
 - Aug 02 - [Russians rise up — over 20 military commissariats targeted with Molotov cocktails in wild 24 hours](https://news.yahoo.com/russians-rise-over-20-military-123000464.html)
 - Aug 02 - [Creatures are piling on beaches for awkward reason, Florida cops say. ‘Don’t call us’](https://news.yahoo.com/creatures-piling-beaches-awkward-reason-112912192.html)
