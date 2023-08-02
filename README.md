@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [WWE's McMahon subpoenaed by US law enforcement agents](https://news.yahoo.com/wwes-mcmahon-subpoenaed-us-law-132816256.html)
-- Aug 02 - [One Republican who voted to impeach Trump speaks out on his third indictment](https://news.yahoo.com/one-republican-voted-impeach-trump-125727692.html)
-- Aug 02 - [Russians rise up — over 20 military commissariats targeted with Molotov cocktails in wild 24 hours](https://news.yahoo.com/russians-rise-over-20-military-123000464.html)
-- Aug 02 - [Creatures are piling on beaches for awkward reason, Florida cops say. ‘Don’t call us’](https://news.yahoo.com/creatures-piling-beaches-awkward-reason-112912192.html)
-- Aug 02 - [Putin reaffirms Russian stance on grain deal in call to Erdogan](https://news.yahoo.com/russia-return-black-sea-grain-101713838.html)
+- Aug 02 - [The heaviest animal ever may be this ancient whale found in the Peruvian desert](https://news.yahoo.com/heaviest-animal-ever-may-ancient-150726306.html)
+- Aug 02 - [Mike Pence Threw Trump Under the Bus Via 'Contemporaneous Notes,' Which Is Hilarious](https://news.yahoo.com/mike-pence-threw-trump-under-144000453.html)
+- Aug 02 - [Bears that look suspiciously human are circulating online after a zoo in China denied using a person in a costume instead of a real bear](https://www.yahoo.com/entertainment/bears-look-suspiciously-human-circulating-143423525.html)
+- Aug 02 - ['People are homeless and starving': Toronto Police Service spending on fallen K9 funeral raises eyebrows](https://news.yahoo.com/toronto-police-funeral-k9-funeral-bingo-143239978.html)
+- Aug 02 - [Donald Trump's Team Just Admitted to Going Around Airlines in Popular Travel Hack](https://www.thestreet.com/travel/donald-trump-campaign-team-skiplagging?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
