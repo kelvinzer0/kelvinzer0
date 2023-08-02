@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Bill O’Reilly Predicts Trump Will Sign a Plea Deal Before GOP Convention: ‘He’s Inoculated’](https://www.yahoo.com/entertainment/bill-o-reilly-predicts-trump-161119403.html)
-- Aug 02 - [Co-owner, executive director charged after woman kicked out of Ga. assisted-living home](https://news.yahoo.com/co-owner-executive-director-charged-154304020.html)
-- Aug 02 - [The heaviest animal ever may be this ancient whale found in the Peruvian desert](https://news.yahoo.com/heaviest-animal-ever-may-ancient-150726306.html)
-- Aug 02 - [Mike Pence Threw Trump Under the Bus Via 'Contemporaneous Notes,' Which Is Hilarious](https://news.yahoo.com/mike-pence-threw-trump-under-144000453.html)
-- Aug 02 - [Bears that look suspiciously human are circulating online after a zoo in China denied using a person in a costume instead of a real bear](https://www.yahoo.com/entertainment/bears-look-suspiciously-human-circulating-143423525.html)
+- Aug 02 - [Sam Bankman-Fried enlists Harvard Law's Tribe to stay out of jail](https://finance.yahoo.com/news/sam-bankman-fried-enlists-harvard-175501834.html)
+- Aug 02 - [FBI looks for more possible victims after woman escapes from cinderblock cage in Oregon](https://news.yahoo.com/fbi-looks-more-possible-victims-172837203.html)
+- Aug 02 - [Grandma pushed down stairs, hit with sauce can in fatal fight with daughter, cops say](https://news.yahoo.com/grandma-pushed-down-stairs-hit-171745176.html)
+- Aug 02 - [The biggest fitness mistake people make when trying to get in shape, according to an ex-Navy fitness leader and bodybuilder](https://www.yahoo.com/lifestyle/biggest-fitness-mistake-people-trying-163014765.html)
+- Aug 02 - [In Order for Americans To Love Our Country in Full, They Must Acknowledge Its History in Full](https://news.yahoo.com/order-americans-love-country-full-161500303.html)
 <!-- feed end -->
