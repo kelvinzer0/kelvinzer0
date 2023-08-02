@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 02 - [2024 Toyota Land Cruiser revealed](https://news.yahoo.com/2024-toyota-land-cruiser-revealed-132443349.html)
+- Aug 02 - [One Republican who voted to impeach Trump speaks out on his third indictment](https://news.yahoo.com/one-republican-voted-impeach-trump-125727692.html)
+- Aug 02 - [Russians rise up — over 20 military commissariats targeted with Molotov cocktails in wild 24 hours](https://news.yahoo.com/russians-rise-over-20-military-123000464.html)
 - Aug 02 - [Creatures are piling on beaches for awkward reason, Florida cops say. ‘Don’t call us’](https://news.yahoo.com/creatures-piling-beaches-awkward-reason-112912192.html)
 - Aug 02 - [Putin reaffirms Russian stance on grain deal in call to Erdogan](https://news.yahoo.com/russia-return-black-sea-grain-101713838.html)
-- Aug 02 - [Lockheed Martin’s $1.7 trillion F-35 fighter jet is 10 years late and 80% over budget—and it could be one of the Pentagon’s biggest success stories](https://finance.yahoo.com/news/lockheed-martin-1-7-trillion-100000423.html)
-- Aug 02 - ['We kept getting outbid': Californians moving to Texas explain why they're changing states](https://finance.yahoo.com/news/kept-getting-outbid-californians-moving-091151342.html)
-- Aug 02 - [Harvard Law Professor Spots 1 Major Flaw In Case Against Trump](https://news.yahoo.com/harvard-law-professor-spots-1-072342844.html)
 <!-- feed end -->
