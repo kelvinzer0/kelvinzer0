@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 02 - [Creatures are piling on beaches for awkward reason, Florida cops say. ‘Don’t call us’](https://news.yahoo.com/creatures-piling-beaches-awkward-reason-112912192.html)
+- Aug 02 - [Putin reaffirms Russian stance on grain deal in call to Erdogan](https://news.yahoo.com/russia-return-black-sea-grain-101713838.html)
+- Aug 02 - [Lockheed Martin’s $1.7 trillion F-35 fighter jet is 10 years late and 80% over budget—and it could be one of the Pentagon’s biggest success stories](https://finance.yahoo.com/news/lockheed-martin-1-7-trillion-100000423.html)
+- Aug 02 - ['We kept getting outbid': Californians moving to Texas explain why they're changing states](https://finance.yahoo.com/news/kept-getting-outbid-californians-moving-091151342.html)
 - Aug 02 - [Harvard Law Professor Spots 1 Major Flaw In Case Against Trump](https://news.yahoo.com/harvard-law-professor-spots-1-072342844.html)
-- Aug 02 - [Trumpworld is roiling over the possibility that more of their dirty secrets could be revealed if the 6 co-conspirators named in Trump's latest indictment get hauled up too: NYT's Haberman](https://news.yahoo.com/trumpworld-roiling-over-possibility-more-053318197.html)
-- Aug 02 - [Brazil now main holdout against BRICS expansion, sources say](https://news.yahoo.com/brazil-now-main-holdout-against-052023359.html)
-- Aug 02 - [Rudy Giuliani Flips Out Over Trump's Jan. 6 Indictment](https://news.yahoo.com/rudy-giuliani-flips-over-trumps-044402181.html)
 <!-- feed end -->
