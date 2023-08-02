@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 02 - [Iconic swimming hole is drying up in Texas. ‘Maybe our tears will fill the well’](https://news.yahoo.com/iconic-swimming-hole-drying-texas-193019387.html)
+- Aug 02 - [Wife sits husband down because she ‘had news to share.’ She had won big lottery prize](https://news.yahoo.com/wife-sits-husband-down-because-183540682.html)
+- Aug 02 - [Strategic bombers take off in Russia, there is attack threat – Air Force](https://news.yahoo.com/strategic-bombers-off-russia-attack-180742723.html)
 - Aug 02 - [Arizona man was trapped in his Tesla on a 100 degree day; here's how to get out](https://news.yahoo.com/arizona-man-trapped-tesla-100-180600124.html)
-- Aug 02 - [7 Men Busted for Using Rifles with Silencers and Night-Vision Scopes to Poach Turkeys](https://www.yahoo.com/lifestyle/7-men-busted-using-rifles-180000103.html)
 - Aug 02 - [Mom Who Apparently Jumped Off Royal Caribbean Cruise Ship Near Singapore Has Died, Family Says](https://www.yahoo.com/entertainment/mom-apparently-jumped-off-royal-174756948.html)
-- Aug 02 - [Kroger Makes a Change Customers Hate (Walmart and Target May Follow)](https://www.thestreet.com/retail/kroger-makes-change-customers-hate-walmart-target-may-follow?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 02 - [FBI looks for more possible victims after woman escapes from cinderblock cage in Oregon](https://news.yahoo.com/fbi-looks-more-possible-victims-172837203.html)
 <!-- feed end -->
