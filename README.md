@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 02 - [Trumpworld is roiling over the possibility that more of their dirty secrets could be revealed if the 6 co-conspirators named in Trump's latest indictment get hauled up too: NYT's Haberman](https://news.yahoo.com/trumpworld-roiling-over-possibility-more-053318197.html)
 - Aug 02 - [Rudy Giuliani Flips Out Over Trump's Jan. 6 Indictment](https://news.yahoo.com/rudy-giuliani-flips-over-trumps-044402181.html)
 - Aug 02 - [Woman Who Was Domestically Abused By Her Ex-Husband For 24 Years Doesn't Blame Him — She Blames Her Church](https://www.yahoo.com/lifestyle/woman-domestically-abused-her-ex-041500159.html)
 - Aug 02 - [Grisham recalls when Trump taught her a method of lying](https://news.yahoo.com/grisham-recalls-trump-taught-her-010056069.html)
 - Aug 01 - ['She killed all of us': South Carolina woman accused of killing newlywed is denied bond](https://news.yahoo.com/she-killed-us-south-carolina-235444455.html)
-- Aug 01 - [Where is Peter Doocy? Why the Fox News White House correspondent has been off the air](https://www.yahoo.com/entertainment/where-peter-doocy-why-fox-225230358.html)
 <!-- feed end -->
