@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 02 - [Harvard Law Professor Spots 1 Major Flaw In Case Against Trump](https://news.yahoo.com/harvard-law-professor-spots-1-072342844.html)
 - Aug 02 - [Trumpworld is roiling over the possibility that more of their dirty secrets could be revealed if the 6 co-conspirators named in Trump's latest indictment get hauled up too: NYT's Haberman](https://news.yahoo.com/trumpworld-roiling-over-possibility-more-053318197.html)
-- Aug 02 - [Drone attacks in Moscow’s glittering business district leave residents on edge](https://news.yahoo.com/drone-attacks-moscow-glittering-business-051603725.html)
 - Aug 02 - [Rudy Giuliani Flips Out Over Trump's Jan. 6 Indictment](https://news.yahoo.com/rudy-giuliani-flips-over-trumps-044402181.html)
 - Aug 02 - [Woman Who Was Domestically Abused By Her Ex-Husband For 24 Years Doesn't Blame Him — She Blames Her Church](https://www.yahoo.com/lifestyle/woman-domestically-abused-her-ex-041500159.html)
+- Aug 02 - [Grisham recalls when Trump taught her a method of lying](https://news.yahoo.com/grisham-recalls-trump-taught-her-010056069.html)
 <!-- feed end -->
