@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Four Nigerian Stowaways Rescued Off Brazil After 14 Days on Ship's Rudder](https://news.yahoo.com/four-nigerian-stowaways-rescued-off-203743244.html)
+- Aug 02 - [Police: Ten injured after stolen vehicle strikes pedestrians in New York City](https://news.yahoo.com/police-ten-injured-stolen-vehicle-212518298.html)
+- Aug 02 - [‘Bank jugging’: People being targeted in Central Florida after withdrawing money](https://news.yahoo.com/bank-jugging-people-being-targeted-203958458.html)
 - Aug 02 - [Restaurant involved in Jackson Mahomes sexual battery case reportedly closes](https://sports.yahoo.com/restaurant-involved-in-jackson-mahomes-sexual-battery-case-reportedly-closes-200243062.html)
 - Aug 02 - [Iconic swimming hole is drying up in Texas. ‘Maybe our tears will fill the well’](https://news.yahoo.com/iconic-swimming-hole-drying-texas-193019387.html)
 - Aug 02 - [Jury finds Alyssa Dellamano guilty in 2020 death of Cameron Nohmy: How she reacted](https://news.yahoo.com/jury-finds-alyssa-dellamano-guilty-191005951.html)
-- Aug 02 - [Strategic bombers take off in Russia, there is attack threat – Air Force](https://news.yahoo.com/strategic-bombers-off-russia-attack-180742723.html)
 <!-- feed end -->
