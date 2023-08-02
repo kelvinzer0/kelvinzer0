@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Special counsel: Trump lies 'fueled' Jan. 6 attack](https://news.yahoo.com/smith-seeks-speedy-trial-trump-223803076.html)
-- Aug 01 - [Bud Light's woes become Molson Coors' gain](https://finance.yahoo.com/video/bud-lights-woes-become-molson-215926523.html)
-- Aug 01 - [Trump says he hears his indictment will be announced at 5 p.m](https://news.yahoo.com/trump-says-hears-indictment-announced-205804492.html)
-- Aug 01 - [Ron DeSantis Might Completely Ban This Company From Florida (It's Not Disney or Bud Light)](https://www.thestreet.com/technology/ron-desantis-might-completely-ban-this-company-from-florida-its-not-disney-or-bud-light?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 01 - [North Korea responds to UN Command on US soldier Travis King who ran across border](https://news.yahoo.com/north-korea-responds-un-command-203816944.html)
+- Aug 01 - ['She killed all of us': South Carolina woman accused of killing newlywed is denied bond](https://news.yahoo.com/she-killed-us-south-carolina-235444455.html)
+- Aug 01 - [Trump told his top military advisor 'we're going to give that to the next guy,' apparently conceding Biden's win days before January 6](https://news.yahoo.com/trump-told-top-military-advisor-232732121.html)
+- Aug 01 - [Where is Peter Doocy? Why the Fox News White House correspondent has been off the air](https://www.yahoo.com/entertainment/where-peter-doocy-why-fox-225230358.html)
+- Aug 01 - [‘What they don’t tell you about getting a BBL’: TikToker’s Brazilian butt lift warning goes viral](https://news.yahoo.com/don-t-tell-getting-bbl-221419244.html)
+- Aug 01 - [Winning Mega Millions numbers for Tuesday, Aug. 1, 2023](https://news.yahoo.com/winning-mega-millions-numbers-tuesday-220034525.html)
 <!-- feed end -->
