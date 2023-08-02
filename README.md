@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 02 - [Four Nigerian Stowaways Rescued Off Brazil After 14 Days on Ship's Rudder](https://news.yahoo.com/four-nigerian-stowaways-rescued-off-203743244.html)
+- Aug 02 - [Restaurant involved in Jackson Mahomes sexual battery case reportedly closes](https://sports.yahoo.com/restaurant-involved-in-jackson-mahomes-sexual-battery-case-reportedly-closes-200243062.html)
 - Aug 02 - [Iconic swimming hole is drying up in Texas. ‘Maybe our tears will fill the well’](https://news.yahoo.com/iconic-swimming-hole-drying-texas-193019387.html)
-- Aug 02 - [Wife sits husband down because she ‘had news to share.’ She had won big lottery prize](https://news.yahoo.com/wife-sits-husband-down-because-183540682.html)
+- Aug 02 - [Jury finds Alyssa Dellamano guilty in 2020 death of Cameron Nohmy: How she reacted](https://news.yahoo.com/jury-finds-alyssa-dellamano-guilty-191005951.html)
 - Aug 02 - [Strategic bombers take off in Russia, there is attack threat – Air Force](https://news.yahoo.com/strategic-bombers-off-russia-attack-180742723.html)
-- Aug 02 - [Arizona man was trapped in his Tesla on a 100 degree day; here's how to get out](https://news.yahoo.com/arizona-man-trapped-tesla-100-180600124.html)
-- Aug 02 - [Mom Who Apparently Jumped Off Royal Caribbean Cruise Ship Near Singapore Has Died, Family Says](https://www.yahoo.com/entertainment/mom-apparently-jumped-off-royal-174756948.html)
 <!-- feed end -->
