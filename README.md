@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Warren Buffett warns that you will 'work until you die' if you can't find a way to make money while you sleep — here are 3 'forever assets' yielding up to 7.4%](https://finance.yahoo.com/news/warren-buffett-warns-until-die-113000300.html)
+- Aug 03 - [The founder of Apple's key supplier said the US stock market would collapse in '10 seconds' if war breaks out in Taiwan. He deleted the comment within hours of posting it.](https://news.yahoo.com/founder-apples-key-supplier-said-103118727.html)
+- Aug 03 - [Nasa’s human error might just save us from an alien invasion](https://news.yahoo.com/nasa-human-error-might-just-100000693.html)
+- Aug 03 - [Somali Official Suspended Following Viral Video of 100 Meter 'Sprinter'](https://news.yahoo.com/somali-official-suspended-following-viral-092026956.html)
 - Aug 03 - ['Nobody was supposed to die': Pensacola man admits to fatal shooting to save his sister](https://news.yahoo.com/nobody-supposed-die-pensacola-man-091326421.html)
-- Aug 03 - [‘Bank jugging’: People being targeted in Central Florida after withdrawing money](https://news.yahoo.com/bank-jugging-people-being-targeted-203958458.html)
-- Aug 03 - [On Ukraine's landmine-strewn front, even the corpses can kill](https://news.yahoo.com/ukraines-landmine-strewn-front-even-090349705.html)
-- Aug 03 - [Caroline Kennedy recreates her father JFK’s heroic World War II swim](https://news.yahoo.com/caroline-kennedy-recreates-her-father-040014895.html)
-- Aug 03 - [India restricts import of laptop, tablets and servers](https://news.yahoo.com/india-restricts-import-laptop-tablets-065854703.html)
 <!-- feed end -->
