@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Woman threatens to blow up house over July Fourth decorations, Oklahoma homeowner says](https://news.yahoo.com/woman-threatens-blow-house-over-193007836.html)
+- Aug 03 - [A rental car company is now demanding $10,000 from a Texas influencer who has been detained in Dubai for 3 months](https://news.yahoo.com/rental-car-company-now-demanding-184346340.html)
+- Aug 03 - [C'mon Bruh! Accused Oregon Abductor Challenges The Idea That Black Men Don't Do Stuff Like That](https://news.yahoo.com/cmon-bruh-accused-oregon-abductor-183118085.html)
 - Aug 03 - [Trump sued Michael Cohen for $500 million. Now he's worried he's at "risk of self-incrimination"](https://news.yahoo.com/trump-sued-michael-cohen-500-181619974.html)
 - Aug 03 - [‘Very rare’ arrowhead discovered is literally from out of this world, study says](https://news.yahoo.com/very-rare-arrowhead-discovered-literally-181126194.html)
-- Aug 03 - [Stunning mythological artifact — left by ancient Romans — found in depths of lagoon](https://news.yahoo.com/stunning-mythological-artifact-left-ancient-173520472.html)
-- Aug 03 - [Let's do the math: how much Western equipment have actually been destroyed](https://news.yahoo.com/lets-math-much-western-equipment-173000591.html)
-- Aug 03 - [How turnout at Trump's recent Erie rally compares to former president's past appearances](https://news.yahoo.com/turnout-trumps-recent-erie-rally-172548626.html)
 <!-- feed end -->
