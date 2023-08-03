@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Eric Trump Mercilessly Mocked For Clueless Claim About Prison For Opponents](https://news.yahoo.com/eric-trump-mercilessly-mocked-clueless-044643911.html)
 - Aug 03 - [Federal jury acquits Louisiana trooper caught on camera pummeling Black motorist](https://news.yahoo.com/federal-jury-acquits-louisiana-trooper-015847937.html)
 - Aug 03 - [Arkansas police use pit maneuver to stop car going to hospital](https://news.yahoo.com/arkansas-police-pit-maneuver-stop-015601827.html)
 - Aug 03 - [Leah Remini claims she was held at Scientology facility for 4 months after Tom Cruise, Katie Holmes wedding — and 6 more lawsuit bombshells](https://www.yahoo.com/entertainment/leah-remini-scientology-lawsuit-tom-cruise-katie-holmes-wedding-005800666.html)
-- Aug 03 - [The teenager whose 'skiplagging' ticket was canceled by American Airlines didn't think it was something that was 'frowned upon,' the teen's mom says](https://news.yahoo.com/teenager-whose-skiplagging-ticket-canceled-004501959.html)
-- Aug 02 - [She got naked, shot up Bay Area freeway, D.A. says. Now she could face 22 years in prison](https://news.yahoo.com/she-got-naked-shot-bay-235954175.html)
+- Aug 03 - [Body seen along floating barrier Texas installed in the Rio Grande, Mexico says](https://news.yahoo.com/mexico-says-body-spotted-near-004927688.html)
 <!-- feed end -->
