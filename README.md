@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Former first-round NBA draft pick is sentenced to 10 years in prison in $4M health care fraud](https://news.yahoo.com/former-first-round-nba-draft-213036605.html)
 - Aug 03 - [Leah Remini claims she was held at Scientology facility for 4 months after Tom Cruise, Katie Holmes wedding — and 6 more lawsuit bombshells](https://www.yahoo.com/entertainment/leah-remini-scientology-lawsuit-tom-cruise-katie-holmes-wedding-005800666.html)
-- Aug 03 - [Zachery Ty Bryan is released from jail after domestic violence arrest](https://www.yahoo.com/entertainment/zachery-ty-bryan-is-released-from-jail-after-domestic-violence-arrest-203247077.html)
 - Aug 03 - [Trump Reportedly Has $425 Million in Cash, What Happens to It After an Indictment?](https://finance.yahoo.com/news/trump-reportedly-425-million-cash-195338401.html)
 - Aug 03 - [Pregnant ‘bronze’ creature snoozing on bushes in Vietnam turns out to be new species](https://news.yahoo.com/pregnant-bronze-creature-snoozing-bushes-194118589.html)
-- Aug 03 - [A rental car company is now demanding $10,000 from a Texas influencer who has been detained in Dubai for 3 months](https://news.yahoo.com/rental-car-company-now-demanding-184346340.html)
+- Aug 03 - [Erin Napier was asked if she's pregnant. 'It’s rude to ask this of any woman,' she responded. Experts agree.](https://www.yahoo.com/lifestyle/erin-napier-asked-if-pregnant-said-its-rude-experts-agree-193337192.html)
 <!-- feed end -->
