@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Leah Remini claims she was held at Scientology facility for 4 months after Tom Cruise, Katie Holmes wedding — and 6 more lawsuit bombshells](https://www.yahoo.com/entertainment/leah-remini-scientology-lawsuit-tom-cruise-katie-holmes-wedding-005800666.html)
+- Aug 03 - [The teenager whose 'skiplagging' ticket was canceled by American Airlines didn't think it was something that was 'frowned upon,' the teen's mom says](https://news.yahoo.com/teenager-whose-skiplagging-ticket-canceled-004501959.html)
 - Aug 02 - [She got naked, shot up Bay Area freeway, D.A. says. Now she could face 22 years in prison](https://news.yahoo.com/she-got-naked-shot-bay-235954175.html)
-- Aug 02 - [Jan. 6 rioter who Tucker Carlson guest said was a fed is arrested by the FBI](https://news.yahoo.com/jan-6-rioter-tucker-carlson-234518687.html)
 - Aug 02 - [Cell phone video surfaces of off-duty Hull officer’s alleged assault on 72-year-old in Pembroke](https://news.yahoo.com/cell-phone-video-surfaces-off-225114013.html)
 - Aug 02 - [Donald Trump fires back at Mike Pence after strong rebuke over federal indictment](https://news.yahoo.com/donald-trump-fires-back-mike-222643958.html)
-- Aug 02 - [‘Call your father’: Police officer pulls over teen going 132 mph on interstate](https://news.yahoo.com/call-father-officer-pulls-over-203934107.html)
 <!-- feed end -->
