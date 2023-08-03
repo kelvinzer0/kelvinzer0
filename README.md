@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [How turnout at Trump's recent Erie rally compares to former president's past appearances](https://news.yahoo.com/turnout-trumps-recent-erie-rally-172548626.html)
+- Aug 03 - [The concertgoer who said Cardi B hit her with a microphone says she wasn't even the person who threw a drink at the rapper: police report](https://www.yahoo.com/entertainment/concertgoer-said-cardi-b-hit-164301303.html)
+- Aug 03 - [Man is charged with cheating Home Depot stores out of $300,000 with door-return scam](https://news.yahoo.com/man-charged-cheating-home-depot-163023566.html)
 - Aug 03 - [Confused Karen Protests Target’s Pride Merch by... Wearing Blackface](https://news.yahoo.com/confused-karen-protests-target-pride-162925286.html)
 - Aug 03 - [Former Fox News Reporter Ordered by Judge to Reveal Anonymous Source](https://www.yahoo.com/entertainment/former-fox-news-reporter-ordered-155543978.html)
-- Aug 03 - [An 87-year-old woman fought off an intruder, then fed him after he told her he was 'awfully hungry'](https://news.yahoo.com/87-old-woman-fought-off-153024959.html)
-- Aug 03 - [Caroline Kennedy recreates her father JFK’s heroic World War II swim](https://news.yahoo.com/caroline-kennedy-recreates-her-father-040014895.html)
-- Aug 03 - [Explainer-Why are Sweden and Denmark having a crisis over the Koran?](https://news.yahoo.com/explainer-why-sweden-denmark-having-151249703.html)
 <!-- feed end -->
