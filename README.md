@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 03 - [Eric Trump Mercilessly Mocked For Clueless Claim About Prison For Opponents](https://news.yahoo.com/eric-trump-mercilessly-mocked-clueless-044643911.html)
+- Aug 03 - [Ukraine released footage of a HIMARS strike on Russians gathering out in the open on a beach, saying it took out 200 troops](https://news.yahoo.com/ukraine-released-footage-himars-strike-044423881.html)
 - Aug 03 - [Federal jury acquits Louisiana trooper caught on camera pummeling Black motorist](https://news.yahoo.com/federal-jury-acquits-louisiana-trooper-015847937.html)
 - Aug 03 - [Arkansas police use pit maneuver to stop car going to hospital](https://news.yahoo.com/arkansas-police-pit-maneuver-stop-015601827.html)
 - Aug 03 - [Leah Remini claims she was held at Scientology facility for 4 months after Tom Cruise, Katie Holmes wedding — and 6 more lawsuit bombshells](https://www.yahoo.com/entertainment/leah-remini-scientology-lawsuit-tom-cruise-katie-holmes-wedding-005800666.html)
-- Aug 03 - [Body seen along floating barrier Texas installed in the Rio Grande, Mexico says](https://news.yahoo.com/mexico-says-body-spotted-near-004927688.html)
 <!-- feed end -->
