@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Teen dies from brain-eating amoeba after swimming in a lake. Should you be worried? Here's what you need to know.](https://www.yahoo.com/lifestyle/brain-eating-amoeba-naegleia-fowleri-215543998.html)
+- Aug 03 - [Sikh store owner goes viral for beating armed robber with stick in California](https://news.yahoo.com/sikh-store-owner-goes-viral-215120752.html)
+- Aug 03 - [Reporter describes how Trump acted in courtroom during arraignment](https://news.yahoo.com/reporter-describes-trump-acted-courtroom-214913775.html)
 - Aug 03 - [Former first-round NBA draft pick is sentenced to 10 years in prison in $4M health care fraud](https://news.yahoo.com/former-first-round-nba-draft-213036605.html)
 - Aug 03 - [Leah Remini claims she was held at Scientology facility for 4 months after Tom Cruise, Katie Holmes wedding — and 6 more lawsuit bombshells](https://www.yahoo.com/entertainment/leah-remini-scientology-lawsuit-tom-cruise-katie-holmes-wedding-005800666.html)
-- Aug 03 - [Trump Reportedly Has $425 Million in Cash, What Happens to It After an Indictment?](https://finance.yahoo.com/news/trump-reportedly-425-million-cash-195338401.html)
-- Aug 03 - [Pregnant ‘bronze’ creature snoozing on bushes in Vietnam turns out to be new species](https://news.yahoo.com/pregnant-bronze-creature-snoozing-bushes-194118589.html)
-- Aug 03 - [Erin Napier was asked if she's pregnant. 'It’s rude to ask this of any woman,' she responded. Experts agree.](https://www.yahoo.com/lifestyle/erin-napier-asked-if-pregnant-said-its-rude-experts-agree-193337192.html)
 <!-- feed end -->
