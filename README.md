@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [DeSantis vows to ‘start slitting throats on day one’](https://news.yahoo.com/desantis-vows-start-slitting-throats-142440520.html)
-- Aug 03 - [‘Morning Joe’ Scarborough Shuts Down On-Air Graphic of Trump Mid-Segment: ‘Take Him Down, I Don’t Want to See His Face!’ (Video)](https://www.yahoo.com/entertainment/morning-joe-scarborough-shuts-down-140649250.html)
-- Aug 03 - [China has made its first strike on the West](https://news.yahoo.com/china-made-first-strike-west-133305153.html)
-- Aug 03 - [Barr calls Trump indictment ‘tip of the iceberg’ in Jack Smith’s case](https://news.yahoo.com/barr-calls-trump-indictment-tip-124437367.html)
-- Aug 03 - [Warren Buffett warns that you will 'work until you die' if you can't find a way to make money while you sleep — here are 3 'forever assets' yielding up to 7.4%](https://finance.yahoo.com/news/warren-buffett-warns-until-die-113000300.html)
+- Aug 03 - [An 87-year-old woman fought off an intruder, then fed him after he told her he was 'awfully hungry'](https://news.yahoo.com/87-old-woman-fought-off-153024959.html)
+- Aug 03 - [Caroline Kennedy recreates her father JFK’s heroic World War II swim](https://news.yahoo.com/caroline-kennedy-recreates-her-father-040014895.html)
+- Aug 03 - [Explainer-Why are Sweden and Denmark having a crisis over the Koran?](https://news.yahoo.com/explainer-why-sweden-denmark-having-151249703.html)
+- Aug 03 - [Stephen A. Smith Gives Diplomatic Response to Joe Rogan's Comments On January 6th](https://www.thestreet.com/media/stephen-a-smith-diplomatic-response-joe-rogan-comments?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Aug 03 - [Woman's husband arrested after Delray police find her body parts in suitcases floating in Intracoastal](https://news.yahoo.com/womans-husband-arrested-delray-police-143607418.html)
 <!-- feed end -->
