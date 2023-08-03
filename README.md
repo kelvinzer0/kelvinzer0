@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [Woman threatens to blow up house over July Fourth decorations, Oklahoma homeowner says](https://news.yahoo.com/woman-threatens-blow-house-over-193007836.html)
+- Aug 03 - [Leah Remini claims she was held at Scientology facility for 4 months after Tom Cruise, Katie Holmes wedding — and 6 more lawsuit bombshells](https://www.yahoo.com/entertainment/leah-remini-scientology-lawsuit-tom-cruise-katie-holmes-wedding-005800666.html)
+- Aug 03 - [Zachery Ty Bryan is released from jail after domestic violence arrest](https://www.yahoo.com/entertainment/zachery-ty-bryan-is-released-from-jail-after-domestic-violence-arrest-203247077.html)
+- Aug 03 - [Trump Reportedly Has $425 Million in Cash, What Happens to It After an Indictment?](https://finance.yahoo.com/news/trump-reportedly-425-million-cash-195338401.html)
+- Aug 03 - [Pregnant ‘bronze’ creature snoozing on bushes in Vietnam turns out to be new species](https://news.yahoo.com/pregnant-bronze-creature-snoozing-bushes-194118589.html)
 - Aug 03 - [A rental car company is now demanding $10,000 from a Texas influencer who has been detained in Dubai for 3 months](https://news.yahoo.com/rental-car-company-now-demanding-184346340.html)
-- Aug 03 - [C'mon Bruh! Accused Oregon Abductor Challenges The Idea That Black Men Don't Do Stuff Like That](https://news.yahoo.com/cmon-bruh-accused-oregon-abductor-183118085.html)
-- Aug 03 - [Trump sued Michael Cohen for $500 million. Now he's worried he's at "risk of self-incrimination"](https://news.yahoo.com/trump-sued-michael-cohen-500-181619974.html)
-- Aug 03 - [‘Very rare’ arrowhead discovered is literally from out of this world, study says](https://news.yahoo.com/very-rare-arrowhead-discovered-literally-181126194.html)
 <!-- feed end -->
