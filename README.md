@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [‘Bank jugging’: People being targeted in Central Florida after withdrawing money](https://news.yahoo.com/bank-jugging-people-being-targeted-203958458.html)
+- Aug 03 - [On Ukraine's landmine-strewn front, even the corpses can kill](https://news.yahoo.com/ukraines-landmine-strewn-front-even-090349705.html)
+- Aug 03 - [India restricts import of laptop, tablets and servers](https://news.yahoo.com/india-restricts-import-laptop-tablets-065854703.html)
 - Aug 03 - [Lindsey Graham Cooks Up A Big Awkward Complaint On Judge In Trump's Jan. 6 Case](https://news.yahoo.com/lindsey-graham-cooks-big-awkward-055427745.html)
-- Aug 03 - [Eric Trump Mercilessly Mocked For Clueless Claim About Prison For Opponents](https://news.yahoo.com/eric-trump-mercilessly-mocked-clueless-044643911.html)
-- Aug 03 - [Ukraine released footage of a HIMARS strike on Russians gathering out in the open on a beach, saying it took out 200 troops](https://news.yahoo.com/ukraine-released-footage-himars-strike-044423881.html)
-- Aug 03 - [Federal jury acquits Louisiana trooper caught on camera pummeling Black motorist](https://news.yahoo.com/federal-jury-acquits-louisiana-trooper-015847937.html)
-- Aug 03 - [Arkansas police use pit maneuver to stop car going to hospital](https://news.yahoo.com/arkansas-police-pit-maneuver-stop-015601827.html)
+- Aug 03 - [Belarusian helicopter incident: US says NATO Article 5 is not yet on the table](https://news.yahoo.com/belarusian-helicopters-incident-us-says-054913678.html)
 <!-- feed end -->
