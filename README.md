@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Trump sued Michael Cohen for $500 million. Now he's worried he's at "risk of self-incrimination"](https://news.yahoo.com/trump-sued-michael-cohen-500-181619974.html)
+- Aug 03 - [‘Very rare’ arrowhead discovered is literally from out of this world, study says](https://news.yahoo.com/very-rare-arrowhead-discovered-literally-181126194.html)
+- Aug 03 - [Stunning mythological artifact — left by ancient Romans — found in depths of lagoon](https://news.yahoo.com/stunning-mythological-artifact-left-ancient-173520472.html)
+- Aug 03 - [Let's do the math: how much Western equipment have actually been destroyed](https://news.yahoo.com/lets-math-much-western-equipment-173000591.html)
 - Aug 03 - [How turnout at Trump's recent Erie rally compares to former president's past appearances](https://news.yahoo.com/turnout-trumps-recent-erie-rally-172548626.html)
-- Aug 03 - [The concertgoer who said Cardi B hit her with a microphone says she wasn't even the person who threw a drink at the rapper: police report](https://www.yahoo.com/entertainment/concertgoer-said-cardi-b-hit-164301303.html)
-- Aug 03 - [Man is charged with cheating Home Depot stores out of $300,000 with door-return scam](https://news.yahoo.com/man-charged-cheating-home-depot-163023566.html)
-- Aug 03 - [Confused Karen Protests Target’s Pride Merch by... Wearing Blackface](https://news.yahoo.com/confused-karen-protests-target-pride-162925286.html)
-- Aug 03 - [Former Fox News Reporter Ordered by Judge to Reveal Anonymous Source](https://www.yahoo.com/entertainment/former-fox-news-reporter-ordered-155543978.html)
 <!-- feed end -->
