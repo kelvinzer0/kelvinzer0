@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Expert: TrumpWorld can't wait to spill the beans on “hated” aide named as “co-conspirator 6” suspect](https://news.yahoo.com/expert-trumpworld-cant-wait-spill-125302252.html)
+- Aug 03 - [Barr calls Trump indictment ‘tip of the iceberg’ in Jack Smith’s case](https://news.yahoo.com/barr-calls-trump-indictment-tip-124437367.html)
 - Aug 03 - [Warren Buffett warns that you will 'work until you die' if you can't find a way to make money while you sleep — here are 3 'forever assets' yielding up to 7.4%](https://finance.yahoo.com/news/warren-buffett-warns-until-die-113000300.html)
+- Aug 03 - [Goldman Sachs staffer’s death stokes fears of ‘darker forces,’ connected killings](https://news.yahoo.com/friends-goldman-sachs-staffer-found-110022057.html)
 - Aug 03 - [The founder of Apple's key supplier said the US stock market would collapse in '10 seconds' if war breaks out in Taiwan. He deleted the comment within hours of posting it.](https://news.yahoo.com/founder-apples-key-supplier-said-103118727.html)
-- Aug 03 - [Nasa’s human error might just save us from an alien invasion](https://news.yahoo.com/nasa-human-error-might-just-100000693.html)
-- Aug 03 - [Somali Official Suspended Following Viral Video of 100 Meter 'Sprinter'](https://news.yahoo.com/somali-official-suspended-following-viral-092026956.html)
-- Aug 03 - [‘Bank jugging’: People being targeted in Central Florida after withdrawing money](https://news.yahoo.com/bank-jugging-people-being-targeted-203958458.html)
 <!-- feed end -->
