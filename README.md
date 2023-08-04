@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [‘Elusive’ creatures — known for hunting sharks — spotted in rare California encounter](https://news.yahoo.com/elusive-creatures-known-hunting-sharks-171443075.html)
+- Aug 04 - [Russia says JPMorgan stops processing its grain payments](https://finance.yahoo.com/news/russia-says-jpmorgan-stops-processing-170254121.html)
+- Aug 04 - ['Sound of Freedom' Funder Fabian Marta Charged With Felony Child Kidnapping](https://www.yahoo.com/entertainment/sound-freedom-funder-fabian-marta-165000513.html)
+- Aug 04 - [Jack Smith Has an Indictment. Trump Has a Massive Plan for Revenge](https://news.yahoo.com/jack-smith-indictment-trump-massive-160830382.html)
 - Aug 04 - [White Woman In Blackface Rants At Target And Starbucks In Colorado: “Trump Is Coming”](https://www.yahoo.com/entertainment/white-woman-blackface-rants-target-153735889.html)
-- Aug 04 - [Ukraine is attacking its allies](https://news.yahoo.com/ukraine-attacking-allies-152535170.html)
-- Aug 04 - [Economy Airline Passenger Invented a Genius Hack for Flying First Class-Style](https://www.thestreet.com/travel/airplane-first-class-in-economy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 04 - [Republicans’ big Biden bombshell: 'He doesn’t have much expertise in the world of business'](https://finance.yahoo.com/news/republicans-big-biden-bombshell-he-doesnt-have-much-expertise-in-the-world-of-business-143919739.html)
-- Aug 04 - [Warren Buffett — 12 Things Poor People Waste Money On](https://finance.yahoo.com/news/warren-buffett-12-things-poor-143028989.html)
 <!-- feed end -->
