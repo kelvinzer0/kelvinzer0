@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [Rudy Giuliani Goes Personal on Mike Pence After ‘Crackpot Lawyer’ Jab](https://www.yahoo.com/entertainment/rudy-giuliani-goes-personal-mike-023844552.html)
+- Aug 04 - [A Ukrainian drone spotted a fellow wounded soldier bleeding out on a battlefield. He crawled back to safety after the drone dropped off water and aid: report](https://news.yahoo.com/ukrainian-drone-spotted-fellow-wounded-015746466.html)
 - Aug 04 - [Jason Aldean fans angry concert resumed after they were told to leave venue](https://news.yahoo.com/jason-aldean-fans-angry-concert-005758967.html)
 - Aug 04 - [‘Complete garbage’: Kinzinger reacts to McCarthy’s criticism of Trump charges](https://news.yahoo.com/complete-garbage-kinzinger-reacts-mccarthy-005258561.html)
 - Aug 04 - [Fisker reveals all-electric Alaska pickup, 3 other EV prototypes](https://news.yahoo.com/fisker-reveals-electric-alaska-pickup-002146329.html)
-- Aug 03 - [Ukraine's Zelenskiy decries 'revolting' practices at recruitment centres](https://news.yahoo.com/ukraines-zelenskiy-decries-revolting-practices-235522891.html)
-- Aug 03 - [Trump judge's greeting to former president sets social media abuzz](https://news.yahoo.com/trump-judges-greeting-former-president-230940469.html)
 <!-- feed end -->
