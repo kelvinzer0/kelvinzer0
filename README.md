@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Ukraine-Russia war latest: Ukraine 'blows hole' in Russian warship](https://news.yahoo.com/ukraine-russia-war-latest-ukraine-063407028.html)
+- Aug 04 - [Ukraine-Russia war latest: 'Unidentified floating objects' behind strike on warship, says Kyiv](https://news.yahoo.com/ukraine-russia-war-latest-ukraine-063407028.html)
+- Aug 04 - [Family speaks out after 35-year-old woman dies of water intoxication](https://news.yahoo.com/family-speaks-35-old-woman-141400432.html)
 - Aug 04 - [“I have never heard that”: Experts stunned after judge “admonished” Trump not to commit any crimes](https://news.yahoo.com/never-heard-experts-stunned-judge-130931394.html)
 - Aug 04 - [L.A. was his destination; the desert was his graveyard. After nearly 40 years, his bones have been identified](https://news.yahoo.com/l-destination-desert-graveyard-nearly-130036167.html)
 - Aug 04 - [Trump calls on Supreme Court to ‘intercede’ in legal fights](https://news.yahoo.com/trump-calls-supreme-court-intercede-125857502.html)
-- Aug 04 - [Toyota teases FJ Cruiser replacement, shadowy CUV in Land Cruiser launch](https://www.autoblog.com/2023/08/04/toyota-teases-fj-cruiser-replacement-shadowy-cuv-in-land-cruiser-launch/)
 <!-- feed end -->
