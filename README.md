@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [He was sleeping with a snoring machine. Then his ex entered the room, Florida cops say](https://news.yahoo.com/sleeping-snoring-machine-then-ex-205410814.html)
+- Aug 04 - [Michigan Karen Yells ‘WHITE PRIVILEGE’ After Antagonizing Black Motorbike Riders](https://news.yahoo.com/michigan-karen-yells-white-privilege-205120639.html)
+- Aug 04 - [Crowd in the thousands overwhelms New York City's Union Square, tosses chairs, climbs on vehicles](https://news.yahoo.com/crowd-overwhelms-york-citys-union-203321118.html)
+- Aug 04 - [Stowaway creature caught hitching a ride to Hawaii on cargo ship, officials say](https://news.yahoo.com/stowaway-creature-caught-hitching-ride-195812709.html)
 - Aug 04 - [‘He's torturing people': Video shows Russian troops being stripped naked and forced to pluck grass](https://news.yahoo.com/hes-torturing-people-video-shows-192857834.html)
-- Aug 04 - [Three arrested after attacking their neighbors in Lincoln County, deputies say](https://news.yahoo.com/three-arrested-attacking-neighbors-lincoln-183406592.html)
-- Aug 04 - [Kari Lake wants to do WHAT in response to Trump's indictment?](https://news.yahoo.com/kari-lake-wants-response-trumps-174849937.html)
-- Aug 04 - [‘Elusive’ creatures — known for hunting sharks — spotted in rare California encounter](https://news.yahoo.com/elusive-creatures-known-hunting-sharks-171443075.html)
-- Aug 04 - [Russia says JPMorgan stops processing its grain payments](https://finance.yahoo.com/news/russia-says-jpmorgan-stops-processing-170254121.html)
 <!-- feed end -->
