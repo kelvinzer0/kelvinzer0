@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 04 - [Russian warship seen listing in Black Sea after Ukrainian sea drone attack on base](https://news.yahoo.com/russian-warship-seen-listing-black-080119787.html)
+- Aug 04 - [A feared Ukrainian female sniper the Russians call 'Punisher' says women can be especially deadly on the battlefield because a male soldier might hesitate to take a shot, but a woman 'never' does](https://news.yahoo.com/feared-ukrainian-female-sniper-russians-082933546.html)
 - Aug 04 - [Another harrowing escape puts attention on open prostitution market along Seattle's Aurora Avenue](https://news.yahoo.com/another-harrowing-escape-puts-attention-053246620.html)
 - Aug 04 - [Anderson Cooper Serves Trump An Ice Cold Reality Check Over 'Filthy' D.C. Claims](https://news.yahoo.com/anderson-cooper-serves-trump-ice-051134541.html)
 - Aug 04 - [MSNBC Panel Stunned by Trump Lawyer’s ‘Admission’ on Fox News](https://www.yahoo.com/entertainment/msnbc-panel-stunned-trump-lawyer-044701723.html)
-- Aug 04 - [Trump Reportedly 'Irked' By 1 Word From Judge During Arraignment](https://news.yahoo.com/trump-reportedly-irked-1-word-032920490.html)
 <!-- feed end -->
