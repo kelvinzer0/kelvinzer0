@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 04 - [White Woman In Blackface Rants At Target And Starbucks In Colorado: “Trump Is Coming”](https://www.yahoo.com/entertainment/white-woman-blackface-rants-target-153735889.html)
-- Aug 04 - [Russian warship seen listing in Black Sea after Ukrainian sea drone attack on major base](https://news.yahoo.com/russian-warship-seen-listing-black-080119787.html)
-- Aug 04 - [The concertgoer who said Cardi B hit her with a microphone says she wasn't even the person who threw a drink at the rapper: police report](https://www.yahoo.com/entertainment/concertgoer-said-cardi-b-hit-164301303.html)
+- Aug 04 - [Ukraine is attacking its allies](https://news.yahoo.com/ukraine-attacking-allies-152535170.html)
 - Aug 04 - [Economy Airline Passenger Invented a Genius Hack for Flying First Class-Style](https://www.thestreet.com/travel/airplane-first-class-in-economy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Aug 04 - [Republicans’ big Biden bombshell: 'He doesn’t have much expertise in the world of business'](https://finance.yahoo.com/news/republicans-big-biden-bombshell-he-doesnt-have-much-expertise-in-the-world-of-business-143919739.html)
+- Aug 04 - [Warren Buffett — 12 Things Poor People Waste Money On](https://finance.yahoo.com/news/warren-buffett-12-things-poor-143028989.html)
 <!-- feed end -->
