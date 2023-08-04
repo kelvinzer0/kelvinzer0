@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [Another harrowing escape puts attention on open prostitution market along Seattle's Aurora Avenue](https://news.yahoo.com/another-harrowing-escape-puts-attention-053246620.html)
 - Aug 04 - [Anderson Cooper Serves Trump An Ice Cold Reality Check Over 'Filthy' D.C. Claims](https://news.yahoo.com/anderson-cooper-serves-trump-ice-051134541.html)
 - Aug 04 - [MSNBC Panel Stunned by Trump Lawyer’s ‘Admission’ on Fox News](https://www.yahoo.com/entertainment/msnbc-panel-stunned-trump-lawyer-044701723.html)
 - Aug 04 - [Trump Reportedly 'Irked' By 1 Word From Judge During Arraignment](https://news.yahoo.com/trump-reportedly-irked-1-word-032920490.html)
 - Aug 04 - [Jason Aldean fans angry concert resumed after they were told to leave venue](https://news.yahoo.com/jason-aldean-fans-angry-concert-005758967.html)
-- Aug 04 - [A Ukrainian drone spotted a fellow wounded soldier bleeding out on a battlefield. He crawled back to safety after the drone dropped off water and aid: report](https://news.yahoo.com/ukrainian-drone-spotted-fellow-wounded-015746466.html)
 <!-- feed end -->
