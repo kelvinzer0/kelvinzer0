@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Ukraine-Russia war latest: 'Unidentified floating objects' behind strike on warship, says Kyiv](https://news.yahoo.com/ukraine-russia-war-latest-ukraine-063407028.html)
-- Aug 04 - [Family speaks out after 35-year-old woman dies of water intoxication](https://news.yahoo.com/family-speaks-35-old-woman-141400432.html)
-- Aug 04 - [“I have never heard that”: Experts stunned after judge “admonished” Trump not to commit any crimes](https://news.yahoo.com/never-heard-experts-stunned-judge-130931394.html)
-- Aug 04 - [L.A. was his destination; the desert was his graveyard. After nearly 40 years, his bones have been identified](https://news.yahoo.com/l-destination-desert-graveyard-nearly-130036167.html)
-- Aug 04 - [Trump calls on Supreme Court to ‘intercede’ in legal fights](https://news.yahoo.com/trump-calls-supreme-court-intercede-125857502.html)
+- Aug 04 - [White Woman In Blackface Rants At Target And Starbucks In Colorado: “Trump Is Coming”](https://www.yahoo.com/entertainment/white-woman-blackface-rants-target-153735889.html)
+- Aug 04 - [Russian warship seen listing in Black Sea after Ukrainian sea drone attack on major base](https://news.yahoo.com/russian-warship-seen-listing-black-080119787.html)
+- Aug 04 - [The concertgoer who said Cardi B hit her with a microphone says she wasn't even the person who threw a drink at the rapper: police report](https://www.yahoo.com/entertainment/concertgoer-said-cardi-b-hit-164301303.html)
+- Aug 04 - [Economy Airline Passenger Invented a Genius Hack for Flying First Class-Style](https://www.thestreet.com/travel/airplane-first-class-in-economy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Aug 04 - [Republicans’ big Biden bombshell: 'He doesn’t have much expertise in the world of business'](https://finance.yahoo.com/news/republicans-big-biden-bombshell-he-doesnt-have-much-expertise-in-the-world-of-business-143919739.html)
 <!-- feed end -->
