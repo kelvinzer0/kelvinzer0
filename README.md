@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Ukraine's Zelenskiy decries 'revolting' practices at recruitment centres](https://news.yahoo.com/ukraines-zelenskiy-decries-revolting-practices-235522891.html)
+- Aug 03 - [Rare otter attack injures three women floating on inner tubes on popular Montana river](https://news.yahoo.com/rare-otter-attack-injures-three-225431364.html)
+- Aug 03 - [Two of the Most Popular Car Makers in America Have a Very Scary Issue](https://www.thestreet.com/retailers/two-of-the-most-popular-car-makers-in-america-have-a-very-scary-issue?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Aug 03 - [Teen dies from brain-eating amoeba after swimming in a lake. Should you be worried? Here's what you need to know.](https://www.yahoo.com/lifestyle/brain-eating-amoeba-naegleia-fowleri-215543998.html)
 - Aug 03 - [Sikh store owner goes viral for beating armed robber with stick in California](https://news.yahoo.com/sikh-store-owner-goes-viral-215120752.html)
-- Aug 03 - [Reporter describes how Trump acted in courtroom during arraignment](https://news.yahoo.com/reporter-describes-trump-acted-courtroom-214913775.html)
-- Aug 03 - [Former first-round NBA draft pick is sentenced to 10 years in prison in $4M health care fraud](https://news.yahoo.com/former-first-round-nba-draft-213036605.html)
-- Aug 03 - [Leah Remini claims she was held at Scientology facility for 4 months after Tom Cruise, Katie Holmes wedding — and 6 more lawsuit bombshells](https://www.yahoo.com/entertainment/leah-remini-scientology-lawsuit-tom-cruise-katie-holmes-wedding-005800666.html)
 <!-- feed end -->
