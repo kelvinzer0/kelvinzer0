@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [A woman on TikTok says boomers are 'so confused' as to why young Americans don't share the same work ethic or goals — here are 3 reasons why their priorities have shifted](https://finance.yahoo.com/news/older-generations-confused-young-woman-113000294.html)
 - Aug 04 - [Ukraine-Russia war latest: Ukraine 'blows hole' in Russian warship](https://news.yahoo.com/ukraine-russia-war-latest-ukraine-063407028.html)
-- Aug 04 - [Exclusive-Trump documents case judge made multiple errors in earlier trial](https://news.yahoo.com/exclusive-trump-documents-case-judge-100245331.html)
-- Aug 04 - [Mayhem in the sky: Chaos erupting at 30,000 feet commonplace as fmr. air marshal reveals cause fueling it all](https://news.yahoo.com/mayhem-sky-chaos-erupting-30-100054107.html)
-- Aug 04 - [Scientists have discovered an alarming new side effect of air pollution: ‘We had not thought about this before’](https://news.yahoo.com/scientists-discovered-alarming-side-effect-100000446.html)
+- Aug 04 - [“I have never heard that”: Experts stunned after judge “admonished” Trump not to commit any crimes](https://news.yahoo.com/never-heard-experts-stunned-judge-130931394.html)
+- Aug 04 - [L.A. was his destination; the desert was his graveyard. After nearly 40 years, his bones have been identified](https://news.yahoo.com/l-destination-desert-graveyard-nearly-130036167.html)
+- Aug 04 - [Trump calls on Supreme Court to ‘intercede’ in legal fights](https://news.yahoo.com/trump-calls-supreme-court-intercede-125857502.html)
+- Aug 04 - [Toyota teases FJ Cruiser replacement, shadowy CUV in Land Cruiser launch](https://www.autoblog.com/2023/08/04/toyota-teases-fj-cruiser-replacement-shadowy-cuv-in-land-cruiser-launch/)
 <!-- feed end -->
