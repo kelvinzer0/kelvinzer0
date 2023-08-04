@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [Woman says Popeye’s employees ripped her hair out because she complained about wrong order](https://news.yahoo.com/woman-says-popeye-employees-ripped-201352326.html)
+- Aug 04 - [Here's why some people keep their cancer diagnosis to themselves: 'An incredibly personal decision'](https://www.yahoo.com/lifestyle/heres-why-people-keep-cancer-210528174.html)
 - Aug 04 - [He was sleeping with a snoring machine. Then his ex entered the room, Florida cops say](https://news.yahoo.com/sleeping-snoring-machine-then-ex-205410814.html)
 - Aug 04 - [Michigan Karen Yells ‘WHITE PRIVILEGE’ After Antagonizing Black Motorbike Riders](https://news.yahoo.com/michigan-karen-yells-white-privilege-205120639.html)
-- Aug 04 - [Crowd in the thousands overwhelms New York City's Union Square, tosses chairs, climbs on vehicles](https://news.yahoo.com/crowd-overwhelms-york-citys-union-203321118.html)
-- Aug 04 - [Stowaway creature caught hitching a ride to Hawaii on cargo ship, officials say](https://news.yahoo.com/stowaway-creature-caught-hitching-ride-195812709.html)
-- Aug 04 - [‘He's torturing people': Video shows Russian troops being stripped naked and forced to pluck grass](https://news.yahoo.com/hes-torturing-people-video-shows-192857834.html)
+- Aug 04 - [Thousands overwhelm New York's Union Square for streamer giveaway, tossing chairs and pounding cars](https://news.yahoo.com/crowd-overwhelms-york-citys-union-203321118.html)
 <!-- feed end -->
