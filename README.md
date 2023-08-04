@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 04 - [Trump Reportedly 'Irked' By 1 Word From Judge During Arraignment](https://news.yahoo.com/trump-reportedly-irked-1-word-032920490.html)
 - Aug 04 - [Jason Aldean fans angry concert resumed after they were told to leave venue](https://news.yahoo.com/jason-aldean-fans-angry-concert-005758967.html)
+- Aug 04 - ['It seems like an admission': Trump's lawyer makes things worse for Trump](https://news.yahoo.com/seems-admission-trumps-lawyer-makes-031957122.html)
+- Aug 04 - [John Bolton: ‘In a second Trump term, we’d almost certainly withdraw from NATO’](https://news.yahoo.com/john-bolton-second-trump-term-025713903.html)
 - Aug 04 - [A Ukrainian drone spotted a fellow wounded soldier bleeding out on a battlefield. He crawled back to safety after the drone dropped off water and aid: report](https://news.yahoo.com/ukrainian-drone-spotted-fellow-wounded-015746466.html)
-- Aug 04 - [‘Complete garbage’: Kinzinger reacts to McCarthy’s criticism of Trump charges](https://news.yahoo.com/complete-garbage-kinzinger-reacts-mccarthy-005258561.html)
-- Aug 04 - [Fisker reveals all-electric Alaska pickup, 3 other EV prototypes](https://news.yahoo.com/fisker-reveals-electric-alaska-pickup-002146329.html)
 <!-- feed end -->
