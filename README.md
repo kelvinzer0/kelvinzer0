@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Pope presides Way of Cross ceremony at youth festival](https://news.yahoo.com/pope-presides-way-cross-ceremony-191920766.html)
+- Aug 04 - [‘He's torturing people': Video shows Russian troops being stripped naked and forced to pluck grass](https://news.yahoo.com/hes-torturing-people-video-shows-192857834.html)
 - Aug 04 - [Three arrested after attacking their neighbors in Lincoln County, deputies say](https://news.yahoo.com/three-arrested-attacking-neighbors-lincoln-183406592.html)
 - Aug 04 - [Kari Lake wants to do WHAT in response to Trump's indictment?](https://news.yahoo.com/kari-lake-wants-response-trumps-174849937.html)
 - Aug 04 - [‘Elusive’ creatures — known for hunting sharks — spotted in rare California encounter](https://news.yahoo.com/elusive-creatures-known-hunting-sharks-171443075.html)
