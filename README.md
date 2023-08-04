@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [Jason Aldean fans angry concert resumed after they were told to leave venue](https://news.yahoo.com/jason-aldean-fans-angry-concert-005758967.html)
+- Aug 04 - [‘Complete garbage’: Kinzinger reacts to McCarthy’s criticism of Trump charges](https://news.yahoo.com/complete-garbage-kinzinger-reacts-mccarthy-005258561.html)
+- Aug 04 - [Fisker reveals all-electric Alaska pickup, 3 other EV prototypes](https://news.yahoo.com/fisker-reveals-electric-alaska-pickup-002146329.html)
 - Aug 03 - [Ukraine's Zelenskiy decries 'revolting' practices at recruitment centres](https://news.yahoo.com/ukraines-zelenskiy-decries-revolting-practices-235522891.html)
-- Aug 03 - [Rare otter attack injures three women floating on inner tubes on popular Montana river](https://news.yahoo.com/rare-otter-attack-injures-three-225431364.html)
-- Aug 03 - [Two of the Most Popular Car Makers in America Have a Very Scary Issue](https://www.thestreet.com/retailers/two-of-the-most-popular-car-makers-in-america-have-a-very-scary-issue?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 03 - [Teen dies from brain-eating amoeba after swimming in a lake. Should you be worried? Here's what you need to know.](https://www.yahoo.com/lifestyle/brain-eating-amoeba-naegleia-fowleri-215543998.html)
-- Aug 03 - [Sikh store owner goes viral for beating armed robber with stick in California](https://news.yahoo.com/sikh-store-owner-goes-viral-215120752.html)
+- Aug 03 - [Trump judge's greeting to former president sets social media abuzz](https://news.yahoo.com/trump-judges-greeting-former-president-230940469.html)
 <!-- feed end -->
