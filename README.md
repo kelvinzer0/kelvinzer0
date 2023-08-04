@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [A woman on TikTok says boomers are 'so confused' as to why young Americans don't share the same work ethic or goals — here are 3 reasons why their priorities have shifted](https://finance.yahoo.com/news/older-generations-confused-young-woman-113000294.html)
 - Aug 04 - [Ukraine-Russia war latest: Ukraine 'blows hole' in Russian warship](https://news.yahoo.com/ukraine-russia-war-latest-ukraine-063407028.html)
-- Aug 04 - [DeSantis appointee to Disney board taught seminar using discredited research claiming White people were slaves in America](https://news.yahoo.com/desantis-appointee-disney-board-taught-110017083.html)
 - Aug 04 - [Exclusive-Trump documents case judge made multiple errors in earlier trial](https://news.yahoo.com/exclusive-trump-documents-case-judge-100245331.html)
-- Aug 04 - [A cardiologist shares how he got fit and lost 30 pounds with strength training and a high-protein vegan diet](https://www.yahoo.com/lifestyle/cardiologist-shares-got-fit-lost-091601884.html)
-- Aug 04 - [A feared Ukrainian female sniper the Russians call 'Punisher' says women can be especially deadly on the battlefield because a male soldier might hesitate to take a shot, but a woman 'never' does](https://news.yahoo.com/feared-ukrainian-female-sniper-russians-082933546.html)
+- Aug 04 - [Mayhem in the sky: Chaos erupting at 30,000 feet commonplace as fmr. air marshal reveals cause fueling it all](https://news.yahoo.com/mayhem-sky-chaos-erupting-30-100054107.html)
+- Aug 04 - [Scientists have discovered an alarming new side effect of air pollution: ‘We had not thought about this before’](https://news.yahoo.com/scientists-discovered-alarming-side-effect-100000446.html)
 <!-- feed end -->
