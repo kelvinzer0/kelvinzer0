@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 04 - [Ukraine-Russia war latest: Ukraine 'blows hole' in Russian warship](https://news.yahoo.com/ukraine-russia-war-latest-ukraine-063407028.html)
+- Aug 04 - [DeSantis appointee to Disney board taught seminar using discredited research claiming White people were slaves in America](https://news.yahoo.com/desantis-appointee-disney-board-taught-110017083.html)
 - Aug 04 - [Exclusive-Trump documents case judge made multiple errors in earlier trial](https://news.yahoo.com/exclusive-trump-documents-case-judge-100245331.html)
-- Aug 04 - [Russian warship seen listing in Black Sea after Ukrainian sea drone attack on base](https://news.yahoo.com/russian-warship-seen-listing-black-080119787.html)
+- Aug 04 - [A cardiologist shares how he got fit and lost 30 pounds with strength training and a high-protein vegan diet](https://www.yahoo.com/lifestyle/cardiologist-shares-got-fit-lost-091601884.html)
 - Aug 04 - [A feared Ukrainian female sniper the Russians call 'Punisher' says women can be especially deadly on the battlefield because a male soldier might hesitate to take a shot, but a woman 'never' does](https://news.yahoo.com/feared-ukrainian-female-sniper-russians-082933546.html)
-- Aug 04 - [Another harrowing escape puts attention on open prostitution market along Seattle's Aurora Avenue](https://news.yahoo.com/another-harrowing-escape-puts-attention-053246620.html)
 <!-- feed end -->
