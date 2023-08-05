@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Trump's mask slips further with choice of Alabama political event](https://news.yahoo.com/trumps-mask-slips-further-choice-043916812.html)
 - Aug 05 - [Feds alert judge to Trump’s ‘If you go after me, I’m coming after you!’ post](https://news.yahoo.com/feds-alert-judge-trump-m-024808698.html)
+- Aug 05 - [Former White House press secretary on Trump threats: ‘How is that not intimidation?’](https://news.yahoo.com/former-white-house-press-secretary-024232353.html)
 - Aug 05 - [Customers scramble after deposits disappear from Wells Fargo accounts](https://finance.yahoo.com/news/customers-scramble-deposits-disappear-wells-022330308.html)
 - Aug 04 - [Trump Threatens ‘If You Go After Me, I’m Coming After You’ Day After Court Warns Him Not to Issue Threats](https://www.yahoo.com/entertainment/trump-threatens-m-coming-day-233448930.html)
-- Aug 04 - [Winning Mega Millions numbers for Friday, Aug. 4, 2023. Lottery drawing jackpot at $1.55B](https://news.yahoo.com/winning-mega-millions-numbers-friday-220021589.html)
+- Aug 04 - [The city mistakenly tore down this man’s home. Now, they are suing him for $68K in demolition costs](https://news.yahoo.com/city-mistakenly-tore-down-man-220730866.html)
 <!-- feed end -->
