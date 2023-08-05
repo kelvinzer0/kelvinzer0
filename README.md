@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 05 - [EV maker Lucid slashes prices of Air sedan as part of offer amid heating competition](https://news.yahoo.com/ev-maker-lucid-slashes-prices-171103403.html)
 - Aug 05 - [Clarence Thomas purchased his luxury RV with the help of a wealthy former healthcare executive: NYT](https://news.yahoo.com/clarence-thomas-purchased-luxury-rv-170856673.html)
-- Aug 05 - [4th body is found in New Jersey house that exploded; 2 injured children were rescued by civilians](https://news.yahoo.com/4th-body-found-jersey-house-155517200.html)
+- Aug 05 - [Judge questions Giuliani over not forfeiting lawsuit after conceding false 2020 election statements](https://news.yahoo.com/judge-questions-giuliani-over-not-170012193.html)
+- Aug 05 - [Texas woman accused of stabbing online date to avenge Iran's Soleimani dodges jailtime](https://news.yahoo.com/texas-woman-accused-stabbing-online-151234793.html)
 - Aug 05 - [15 U.S. Cities with the Highest Weed Consumption in 2023](https://finance.yahoo.com/news/15-u-cities-highest-weed-140410254.html)
-- Aug 05 - [Two Teens Hitchhiked to a Concert. 50 Years Later, They Haven’t Come Home](https://www.yahoo.com/entertainment/two-teens-hitchhiked-concert-50-140000802.html)
 <!-- feed end -->
