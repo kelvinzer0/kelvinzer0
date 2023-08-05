@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [Opinion | Opinion: Here’s the Intelligence Assessment of Donald Trump that the Government Can’t Write](https://news.yahoo.com/opinion-intelligence-assessment-donald-trump-110000827.html)
+- Aug 05 - [Are Chiefs fans who hounded Jackson Mahomes’ alleged victim out of business happy now? | Opinion](https://news.yahoo.com/chiefs-fans-hounded-jackson-mahomes-100200380.html)
+- Aug 05 - [Second sea drone attack on Russian vessel challenges Moscow’s dominance of Black Sea](https://news.yahoo.com/second-sea-drone-attack-russian-073000636.html)
 - Aug 05 - ['On the ground sobbing': Traveler devastated as her wheelchair was dropped on off a plane](https://news.yahoo.com/ground-sobbing-traveler-devastated-her-070013994.html)
-- Aug 05 - [Trump's mask slips further with choice of Alabama political event](https://news.yahoo.com/trumps-mask-slips-further-choice-043916812.html)
-- Aug 05 - [Feds alert judge to Trump’s ‘If you go after me, I’m coming after you!’ post](https://news.yahoo.com/feds-alert-judge-trump-m-024808698.html)
-- Aug 05 - [Former White House press secretary on Trump threats: ‘How is that not intimidation?’](https://news.yahoo.com/former-white-house-press-secretary-024232353.html)
-- Aug 05 - [Customers scramble after deposits disappear from Wells Fargo accounts](https://finance.yahoo.com/news/customers-scramble-deposits-disappear-wells-022330308.html)
+- Aug 05 - [Tesla is set to take a huge step that could completely change the market for EVs: ‘As soon as humanly possible’](https://news.yahoo.com/tesla-set-huge-step-could-050000943.html)
 <!-- feed end -->
