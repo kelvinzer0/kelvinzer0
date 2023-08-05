@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Ukraine Attacks Russian Oil Tanker in Kerch Strait With Naval Drone](https://news.yahoo.com/ukraine-attacks-russian-oil-tanker-092654206.html)
-- Aug 05 - [Prosecutors ask judge to issue protective order after Trump post appearing to promise revenge](https://news.yahoo.com/prosecutors-ask-judge-issue-protective-025850354.html)
+- Aug 05 - ['On the ground sobbing': Traveler devastated as her wheelchair was dropped on off a plane](https://news.yahoo.com/ground-sobbing-traveler-devastated-her-070013994.html)
+- Aug 05 - [Trump's mask slips further with choice of Alabama political event](https://news.yahoo.com/trumps-mask-slips-further-choice-043916812.html)
 - Aug 05 - [Feds alert judge to Trump’s ‘If you go after me, I’m coming after you!’ post](https://news.yahoo.com/feds-alert-judge-trump-m-024808698.html)
 - Aug 05 - [Former White House press secretary on Trump threats: ‘How is that not intimidation?’](https://news.yahoo.com/former-white-house-press-secretary-024232353.html)
 - Aug 05 - [Customers scramble after deposits disappear from Wells Fargo accounts](https://finance.yahoo.com/news/customers-scramble-deposits-disappear-wells-022330308.html)
