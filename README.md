@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [People Aren't Buying Donald Trump's Explanation For 'I'm Coming After You!' Post](https://www.yahoo.com/entertainment/people-arent-buying-donald-trumps-134957103.html)
+- Aug 05 - [Driver says he considered Treat Williams a friend and charges in crash are not warranted](https://news.yahoo.com/driver-says-considered-treat-williams-132754437.html)
+- Aug 05 - [More document trouble looms for Trump, this time over missing evidence in his New York fraud trial](https://news.yahoo.com/more-document-trouble-looms-trump-131501691.html)
 - Aug 05 - [Ukrainian snipers say they don't care for big leafy ghillie suits, but they're fans of these Western rifles](https://news.yahoo.com/ukrainian-snipers-dont-care-big-130315796.html)
 - Aug 05 - [“Do You Not Speak English?”: Trump Former Aide Sebastian Gorka Tears Strip Off BBC Journalist](https://www.yahoo.com/entertainment/not-speak-english-trump-former-124310715.html)
-- Aug 05 - [Jesse Watters Makes Jaw-Dropping Declaration About Donald Trump](https://www.yahoo.com/entertainment/jesse-watters-makes-jaw-dropping-123319165.html)
-- Aug 05 - [Homeowner furious after careless neighbor destroys their yard: ‘Get an attorney’](https://news.yahoo.com/homeowner-furious-careless-neighbor-destroys-200000438.html)
-- Aug 05 - [Ukraine's military intelligence: Russia won't be able to repair Olenegorskiy Gornyak in near future](https://news.yahoo.com/ukraines-military-intelligence-russia-wont-111252560.html)
 <!-- feed end -->
