@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 05 - [9 people injured after 'violent' demonstration at Toronto park: 'I am shocked'](https://news.yahoo.com/violent-demonstration-toronto-earlscourt-park-191754960.html)
+- Aug 05 - [Deshowitz slams Barr for ‘dead wrong’ comments on Trump indictment](https://news.yahoo.com/deshowitz-slams-barr-dead-wrong-184307254.html)
 - Aug 05 - [Judge orders Trump response to DOJ request for protective order in 2020 election case](https://news.yahoo.com/judge-orders-trump-response-doj-175032091.html)
-- Aug 05 - [EV maker Lucid slashes prices of Air sedan as part of offer amid heating competition](https://news.yahoo.com/ev-maker-lucid-slashes-prices-171103403.html)
 - Aug 05 - [Donald Trump's Former Lawyer Believes Jared Kushner Sold Out His Father-in-Law in 3rd Indictment](https://www.yahoo.com/entertainment/donald-trumps-former-lawyer-believes-170901716.html)
 - Aug 05 - [Clarence Thomas purchased his luxury RV with the help of a wealthy former healthcare executive: NYT](https://news.yahoo.com/clarence-thomas-purchased-luxury-rv-170856673.html)
 <!-- feed end -->
