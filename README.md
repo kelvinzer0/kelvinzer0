@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 05 - [Feds alert judge to Trump’s ‘If you go after me, I’m coming after you!’ post](https://news.yahoo.com/feds-alert-judge-trump-m-024808698.html)
-- Aug 05 - [Trump boasts at Alabama fundraiser that he needs 'one more indictment to close out this election'](https://news.yahoo.com/trump-fiery-speech-alabama-boasts-010717266.html)
+- Aug 05 - [Customers scramble after deposits disappear from Wells Fargo accounts](https://finance.yahoo.com/news/customers-scramble-deposits-disappear-wells-022330308.html)
 - Aug 05 - [Hayes: Mitch McConnell blew it with Trump impeachment acquittal](https://news.yahoo.com/hayes-mitch-mcconnell-blew-trump-002453695.html)
 - Aug 04 - [Trump Threatens ‘If You Go After Me, I’m Coming After You’ Day After Court Warns Him Not to Issue Threats](https://www.yahoo.com/entertainment/trump-threatens-m-coming-day-233448930.html)
-- Aug 04 - [Winning Mega Millions numbers for Friday, Aug. 4, 2023](https://news.yahoo.com/winning-mega-millions-numbers-friday-220021589.html)
+- Aug 04 - [Winning Mega Millions numbers for Friday, Aug. 4, 2023. Lottery drawing jackpot at $1.55B](https://news.yahoo.com/winning-mega-millions-numbers-friday-220021589.html)
 <!-- feed end -->
