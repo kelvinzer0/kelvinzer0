@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [Feds alert judge to Trump’s ‘If you go after me, I’m coming after you!’ post](https://news.yahoo.com/feds-alert-judge-trump-m-024808698.html)
 - Aug 05 - [Trump boasts at Alabama fundraiser that he needs 'one more indictment to close out this election'](https://news.yahoo.com/trump-fiery-speech-alabama-boasts-010717266.html)
 - Aug 05 - [Golfer Angel Cabrera is released on parole after 2 years following gender violence cases](https://news.yahoo.com/golfer-angel-cabrera-released-parole-001543354.html)
 - Aug 04 - [Trump Threatens ‘If You Go After Me, I’m Coming After You’ Day After Court Warns Him Not to Issue Threats](https://www.yahoo.com/entertainment/trump-threatens-m-coming-day-233448930.html)
-- Aug 04 - [The city mistakenly tore down this man’s home. Now, they are suing him for $68K in demolition costs](https://news.yahoo.com/city-mistakenly-tore-down-man-220730866.html)
 - Aug 04 - [Winning Mega Millions numbers for Friday, Aug. 4, 2023](https://news.yahoo.com/winning-mega-millions-numbers-friday-220021589.html)
 <!-- feed end -->
