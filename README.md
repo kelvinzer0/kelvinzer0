@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [Jesse Watters Makes Jaw-Dropping Declaration About Donald Trump](https://www.yahoo.com/entertainment/jesse-watters-makes-jaw-dropping-123319165.html)
 - Aug 05 - [Opinion | Opinion: Here’s the Intelligence Assessment of Donald Trump that the Government Can’t Write](https://news.yahoo.com/opinion-intelligence-assessment-donald-trump-110000827.html)
 - Aug 05 - [Are Chiefs fans who hounded Jackson Mahomes’ alleged victim out of business happy now? | Opinion](https://news.yahoo.com/chiefs-fans-hounded-jackson-mahomes-100200380.html)
 - Aug 05 - [Second sea drone attack on Russian vessel challenges Moscow’s dominance of Black Sea](https://news.yahoo.com/second-sea-drone-attack-russian-073000636.html)
 - Aug 05 - ['On the ground sobbing': Traveler devastated as her wheelchair was dropped on off a plane](https://news.yahoo.com/ground-sobbing-traveler-devastated-her-070013994.html)
-- Aug 05 - [Tesla is set to take a huge step that could completely change the market for EVs: ‘As soon as humanly possible’](https://news.yahoo.com/tesla-set-huge-step-could-050000943.html)
 <!-- feed end -->
