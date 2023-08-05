@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Woman says Popeye’s employees ripped her hair out because she complained about wrong order](https://news.yahoo.com/woman-says-popeye-employees-ripped-201352326.html)
+- Aug 04 - [Trump Threatens ‘If You Go After Me, I’m Coming After You’ Day After Court Warns Him Not to Issue Threats](https://www.yahoo.com/entertainment/trump-threatens-m-coming-day-233448930.html)
+- Aug 04 - [The city mistakenly tore down this man’s home. Now, they are suing him for $68K in demolition costs](https://news.yahoo.com/city-mistakenly-tore-down-man-220730866.html)
+- Aug 04 - [Winning Mega Millions numbers for Friday, Aug. 4, 2023](https://news.yahoo.com/winning-mega-millions-numbers-friday-220021589.html)
 - Aug 04 - [Here's why some people keep their cancer diagnosis to themselves: 'An incredibly personal decision'](https://www.yahoo.com/lifestyle/heres-why-people-keep-cancer-210528174.html)
 - Aug 04 - [He was sleeping with a snoring machine. Then his ex entered the room, Florida cops say](https://news.yahoo.com/sleeping-snoring-machine-then-ex-205410814.html)
-- Aug 04 - [Michigan Karen Yells ‘WHITE PRIVILEGE’ After Antagonizing Black Motorbike Riders](https://news.yahoo.com/michigan-karen-yells-white-privilege-205120639.html)
-- Aug 04 - [Thousands overwhelm New York's Union Square for streamer giveaway, tossing chairs and pounding cars](https://news.yahoo.com/crowd-overwhelms-york-citys-union-203321118.html)
 <!-- feed end -->
