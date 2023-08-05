@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [EV maker Lucid slashes prices of Air sedan as part of offer amid heating competition](https://news.yahoo.com/ev-maker-lucid-slashes-prices-171103403.html)
+- Aug 05 - [Clarence Thomas purchased his luxury RV with the help of a wealthy former healthcare executive: NYT](https://news.yahoo.com/clarence-thomas-purchased-luxury-rv-170856673.html)
+- Aug 05 - [4th body is found in New Jersey house that exploded; 2 injured children were rescued by civilians](https://news.yahoo.com/4th-body-found-jersey-house-155517200.html)
 - Aug 05 - [15 U.S. Cities with the Highest Weed Consumption in 2023](https://finance.yahoo.com/news/15-u-cities-highest-weed-140410254.html)
 - Aug 05 - [Two Teens Hitchhiked to a Concert. 50 Years Later, They Haven’t Come Home](https://www.yahoo.com/entertainment/two-teens-hitchhiked-concert-50-140000802.html)
-- Aug 05 - [People Aren't Buying Donald Trump's Explanation For 'I'm Coming After You!' Post](https://www.yahoo.com/entertainment/people-arent-buying-donald-trumps-134957103.html)
-- Aug 05 - [Driver says he considered Treat Williams a friend and charges in crash are not warranted](https://news.yahoo.com/driver-says-considered-treat-williams-132754437.html)
-- Aug 05 - [Ukrainian snipers say they don't care for big leafy ghillie suits, but they're fans of these Western rifles](https://news.yahoo.com/ukrainian-snipers-dont-care-big-130315796.html)
 <!-- feed end -->
