@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [9 people injured after 'violent' demonstration at Toronto park: 'I am shocked'](https://news.yahoo.com/violent-demonstration-toronto-earlscourt-park-191754960.html)
+- Aug 05 - [Judge orders Trump response to DOJ request for protective order in 2020 election case](https://news.yahoo.com/judge-orders-trump-response-doj-175032091.html)
 - Aug 05 - [EV maker Lucid slashes prices of Air sedan as part of offer amid heating competition](https://news.yahoo.com/ev-maker-lucid-slashes-prices-171103403.html)
+- Aug 05 - [Donald Trump's Former Lawyer Believes Jared Kushner Sold Out His Father-in-Law in 3rd Indictment](https://www.yahoo.com/entertainment/donald-trumps-former-lawyer-believes-170901716.html)
 - Aug 05 - [Clarence Thomas purchased his luxury RV with the help of a wealthy former healthcare executive: NYT](https://news.yahoo.com/clarence-thomas-purchased-luxury-rv-170856673.html)
-- Aug 05 - [Judge questions Giuliani over not forfeiting lawsuit after conceding false 2020 election statements](https://news.yahoo.com/judge-questions-giuliani-over-not-170012193.html)
-- Aug 05 - [Texas woman accused of stabbing online date to avenge Iran's Soleimani dodges jailtime](https://news.yahoo.com/texas-woman-accused-stabbing-online-151234793.html)
-- Aug 05 - [15 U.S. Cities with the Highest Weed Consumption in 2023](https://finance.yahoo.com/news/15-u-cities-highest-weed-140410254.html)
 <!-- feed end -->
