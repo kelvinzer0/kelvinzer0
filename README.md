@@ -60,9 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Judge Orders Trump to Respond to DOJ’s Request for Protective Order After Truth Social Outburst](https://www.yahoo.com/entertainment/judge-orders-trump-respond-doj-201020854.html)
+- Aug 05 - [Federal judge muzzles former President Donald Trump, issues protective order on Jan. 6 trial documents](https://news.yahoo.com/federal-judge-muzzles-former-president-222600091.html)
+- Aug 05 - [Ukrainian drone first forces Russian T-90M Proryv tank to retreat, then 
+destroys it – video](https://news.yahoo.com/ukrainian-drone-first-forces-russian-214600968.html)
+- Aug 05 - [Owl Drowning In Backyard Swimming Pool Scooped To Safety Just In Time](https://news.yahoo.com/owl-drowning-backyard-swimming-pool-213403227.html)
 - Aug 05 - [9 people injured after 'violent' demonstration at Toronto park: 'I am shocked'](https://news.yahoo.com/violent-demonstration-toronto-earlscourt-park-191754960.html)
 - Aug 05 - [Seven Tu-95 bombers take off in Russia](https://news.yahoo.com/seven-tu-95-bombers-off-191419973.html)
-- Aug 05 - [Deshowitz slams Barr for ‘dead wrong’ comments on Trump indictment](https://news.yahoo.com/deshowitz-slams-barr-dead-wrong-184307254.html)
-- Aug 05 - [EV maker Lucid slashes prices of Air sedan as part of offer amid heating competition](https://news.yahoo.com/ev-maker-lucid-slashes-prices-171103403.html)
 <!-- feed end -->
