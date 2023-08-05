@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [Ukrainian snipers say they don't care for big leafy ghillie suits, but they're fans of these Western rifles](https://news.yahoo.com/ukrainian-snipers-dont-care-big-130315796.html)
+- Aug 05 - [“Do You Not Speak English?”: Trump Former Aide Sebastian Gorka Tears Strip Off BBC Journalist](https://www.yahoo.com/entertainment/not-speak-english-trump-former-124310715.html)
 - Aug 05 - [Jesse Watters Makes Jaw-Dropping Declaration About Donald Trump](https://www.yahoo.com/entertainment/jesse-watters-makes-jaw-dropping-123319165.html)
-- Aug 05 - [Opinion | Opinion: Here’s the Intelligence Assessment of Donald Trump that the Government Can’t Write](https://news.yahoo.com/opinion-intelligence-assessment-donald-trump-110000827.html)
-- Aug 05 - [Are Chiefs fans who hounded Jackson Mahomes’ alleged victim out of business happy now? | Opinion](https://news.yahoo.com/chiefs-fans-hounded-jackson-mahomes-100200380.html)
-- Aug 05 - [Second sea drone attack on Russian vessel challenges Moscow’s dominance of Black Sea](https://news.yahoo.com/second-sea-drone-attack-russian-073000636.html)
-- Aug 05 - ['On the ground sobbing': Traveler devastated as her wheelchair was dropped on off a plane](https://news.yahoo.com/ground-sobbing-traveler-devastated-her-070013994.html)
+- Aug 05 - [Homeowner furious after careless neighbor destroys their yard: ‘Get an attorney’](https://news.yahoo.com/homeowner-furious-careless-neighbor-destroys-200000438.html)
+- Aug 05 - [Ukraine's military intelligence: Russia won't be able to repair Olenegorskiy Gornyak in near future](https://news.yahoo.com/ukraines-military-intelligence-russia-wont-111252560.html)
 <!-- feed end -->
