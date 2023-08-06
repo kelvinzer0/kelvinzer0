@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Pope discusses health, his ditched peace prayer in Fatima and LGBTQ+ Catholics in airborne briefing](https://news.yahoo.com/pope-discusses-health-ditched-peace-205133734.html)
+- Aug 06 - [Recent satellite imagery indicates serious damage done to Russia's Olenegorsky Gornyak warship](https://news.yahoo.com/recent-satellite-imagery-indicates-serious-201600094.html)
+- Aug 06 - [Ukraine strikes key Crimea bridges with Storm Shadow missiles](https://news.yahoo.com/ukraine-strikes-key-crimea-bridges-192831236.html)
+- Aug 06 - [This Major Former Player in Donald Trump’s Administration Says His Latest Comment Is a ‘Chilling’ Precedent](https://www.yahoo.com/entertainment/major-former-player-donald-trump-173500811.html)
 - Aug 06 - [Trump: I Will ‘IMMEDIATELY’ Ask for New Judge, New Venue in Jan. 6 Trial](https://news.yahoo.com/trump-immediately-ask-judge-venue-165248959.html)
-- Aug 06 - [Suspects detained after Saturday night brawl on Riverfront Park dock](https://news.yahoo.com/suspects-detained-saturday-night-brawl-161636237.html)
-- Aug 06 - [Trump freaks out over Pelosi's "sad puppy" comment, says she will one day "live in hell"](https://news.yahoo.com/trump-freaks-over-pelosis-sad-161511234.html)
-- Aug 06 - [Texas couple dies in their home after air conditioning breaks during intense heat wave](https://news.yahoo.com/texas-couple-dies-home-air-161209822.html)
-- Aug 06 - [CNN Anchor Laughs Off Trump Lawyer's ‘Peaceful Transfer of Power’ Claim](https://www.yahoo.com/entertainment/cnn-anchor-laughs-off-trump-155500766.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
