@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Trump Wants ‘Nightmare’ Judge Chutkan Off His Jan. 6 Case](https://news.yahoo.com/trump-wants-nightmare-judge-chutkan-154017755.html)
+- Aug 06 - [Ukraine strikes Chonhar bridge to Crimea, RIA reports](https://news.yahoo.com/ukraine-strikes-chonhar-bridge-crimea-143208873.html)
+- Aug 06 - [Lostprophets Singer Ian Watkins Taken Hostage and Brutally Stabbed in Prison: Report](https://www.yahoo.com/entertainment/lostprophets-singer-ian-watkins-taken-135316702.html)
 - Aug 06 - [Warren Buffett — 12 Things Poor People Waste Money On](https://finance.yahoo.com/news/warren-buffett-12-things-poor-143028989.html)
 - Aug 06 - [Beloved Retailer Reaches Its Final Days With No Savior in Sight](https://www.thestreet.com/retail/beloved-retailer-reaches-final-days-with-no-savior-in-sight?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 06 - [Trump lawyer reacts to former president calling Jack Smith 'deranged'](https://news.yahoo.com/trump-lawyer-reacts-former-president-123811948.html)
-- Aug 06 - [Archaeologists are too scared to open the tomb of China's first emperor because they fear booby traps](https://news.yahoo.com/archeologists-too-scared-open-tomb-122512929.html)
-- Aug 06 - [Americans are moving further away for affordable homes and 'grandbabies'](https://finance.yahoo.com/news/americans-are-moving-further-away-for-affordable-homes-and-grandbabies-115259279.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
