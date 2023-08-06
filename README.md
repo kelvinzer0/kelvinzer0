@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 06 - [Warren Buffett — 12 Things Poor People Waste Money On](https://finance.yahoo.com/news/warren-buffett-12-things-poor-143028989.html)
+- Aug 06 - [Beloved Retailer Reaches Its Final Days With No Savior in Sight](https://www.thestreet.com/retail/beloved-retailer-reaches-final-days-with-no-savior-in-sight?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Aug 06 - [Trump lawyer reacts to former president calling Jack Smith 'deranged'](https://news.yahoo.com/trump-lawyer-reacts-former-president-123811948.html)
 - Aug 06 - [Archaeologists are too scared to open the tomb of China's first emperor because they fear booby traps](https://news.yahoo.com/archeologists-too-scared-open-tomb-122512929.html)
-- Aug 06 - [Walmart and Sam’s Club introduce ‘game-changing’ new feature at hundreds of stores across the country: ‘It’s a big win’](https://news.yahoo.com/walmart-sam-club-introduce-game-100000507.html)
-- Aug 06 - [After A Yoga Teacher Asked How Far Along She Was, A Woman Is Mad That There 'Has To Be An Explanation' For Why Some People Have A Belly](https://www.yahoo.com/lifestyle/yoga-teacher-asked-far-along-101500836.html)
-- Aug 06 - [A mom is suing Southwest Airlines for 'blatant racism' after being accused of trafficking her biracial daughter](https://news.yahoo.com/mom-suing-southwest-airlines-blatant-094047339.html)
+- Aug 06 - [Americans are moving further away for affordable homes and 'grandbabies'](https://finance.yahoo.com/news/americans-are-moving-further-away-for-affordable-homes-and-grandbabies-115259279.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
