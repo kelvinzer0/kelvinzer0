@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Worker Says He's Forced To Come In 15 Minutes Before His Shift But Is Not Allowed To Clock-In](https://www.yahoo.com/lifestyle/worker-says-hes-forced-come-091500203.html)
+- Aug 06 - [The airline said her bag was lost, but her tracker said otherwise. So she flew to get it](https://www.yahoo.com/lifestyle/airline-said-her-bag-lost-082404332.html)
 - Aug 06 - [Crammed with tourists, Alaska's capital wonders what will happen as its magnificent glacier recedes](https://news.yahoo.com/crammed-tourists-alaskas-capital-wonders-061243516.html)
 - Aug 06 - [Pence Leaves Pro-Trump Hecklers With One Quick Message In Tense Parking Lot Exchange](https://news.yahoo.com/pence-leaves-pro-trump-hecklers-054129555.html)
 - Aug 06 - [Russian families sold on Putin's promise of affordable, seaside living are selling their homes and hunting for cheaper properties in occupied Ukraine](https://news.yahoo.com/russian-families-sold-putins-promise-041727170.html)
-- Aug 06 - [China, Russia send naval warships near Alaska, triggering forceful US response](https://news.yahoo.com/china-russia-send-naval-warships-035042731.html)
-- Aug 06 - [NYC Cancer Doctor Kills Her Infant and Herself](https://news.yahoo.com/nyc-cancer-doctor-kills-her-014740566.html)
 <!-- feed end -->
