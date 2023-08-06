@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Pence, Trump attorney clash over what Trump told his VP ahead of Jan. 6, 2021](https://news.yahoo.com/pence-trump-attorney-clash-over-170705997.html)
+- Aug 06 - [Trump freaks out over Pelosi's "sad puppy" comment, says she will one day "live in hell"](https://news.yahoo.com/trump-freaks-over-pelosis-sad-161511234.html)
 - Aug 06 - [Texas couple dies in their home after air conditioning breaks during intense heat wave](https://news.yahoo.com/texas-couple-dies-home-air-161209822.html)
 - Aug 06 - [CNN Anchor Laughs Off Trump Lawyer's ‘Peaceful Transfer of Power’ Claim](https://www.yahoo.com/entertainment/cnn-anchor-laughs-off-trump-155500766.html)
 - Aug 06 - [Trump Wants ‘Nightmare’ Judge Chutkan Off His Jan. 6 Case](https://news.yahoo.com/trump-wants-nightmare-judge-chutkan-154017755.html)
-- Aug 06 - [Ukraine calls Jeddah talks productive, Russia calls them doomed](https://news.yahoo.com/ukraine-calls-jeddah-talks-productive-145942804.html)
-- Aug 06 - [Kremlin says they only want Ukrainian territories included in Russian Constitution](https://news.yahoo.com/kremlin-says-only-want-ukrainian-145500650.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
