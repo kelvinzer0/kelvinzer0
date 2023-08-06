@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Pence Leaves Pro-Trump Hecklers With One Quick Message In Tense Parking Lot Exchange](https://news.yahoo.com/pence-leaves-pro-trump-hecklers-054129555.html)
 - Aug 06 - [Russian families sold on Putin's promise of affordable, seaside living are selling their homes and hunting for cheaper properties in occupied Ukraine](https://news.yahoo.com/russian-families-sold-putins-promise-041727170.html)
 - Aug 06 - [NYC Cancer Doctor Kills Her Infant and Herself](https://news.yahoo.com/nyc-cancer-doctor-kills-her-014740566.html)
 - Aug 06 - [Boston Mayor Michelle Wu may be required produce evidence, emails about her ‘enemies list,' court orders](https://news.yahoo.com/boston-mayor-michelle-wu-may-005509544.html)
 - Aug 06 - [YMCA camp session canceled, allowing staff to deal with emotional trauma of Idaho bus crash](https://news.yahoo.com/ymca-camp-session-canceled-allowing-001422155.html)
-- Aug 05 - [Florida golfer arrested for punching 87-year-old man to death over car dispute: police](https://news.yahoo.com/florida-golfer-arrested-punching-87-224742469.html)
 <!-- feed end -->
