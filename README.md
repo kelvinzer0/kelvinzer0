@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Texas couple dies in their home after air conditioning breaks during intense heat wave](https://news.yahoo.com/texas-couple-dies-home-air-161209822.html)
+- Aug 06 - [CNN Anchor Laughs Off Trump Lawyer's ‘Peaceful Transfer of Power’ Claim](https://www.yahoo.com/entertainment/cnn-anchor-laughs-off-trump-155500766.html)
 - Aug 06 - [Trump Wants ‘Nightmare’ Judge Chutkan Off His Jan. 6 Case](https://news.yahoo.com/trump-wants-nightmare-judge-chutkan-154017755.html)
-- Aug 06 - [Ukraine strikes Chonhar bridge to Crimea, RIA reports](https://news.yahoo.com/ukraine-strikes-chonhar-bridge-crimea-143208873.html)
-- Aug 06 - [Lostprophets Singer Ian Watkins Taken Hostage and Brutally Stabbed in Prison: Report](https://www.yahoo.com/entertainment/lostprophets-singer-ian-watkins-taken-135316702.html)
-- Aug 06 - [Warren Buffett — 12 Things Poor People Waste Money On](https://finance.yahoo.com/news/warren-buffett-12-things-poor-143028989.html)
-- Aug 06 - [Beloved Retailer Reaches Its Final Days With No Savior in Sight](https://www.thestreet.com/retail/beloved-retailer-reaches-final-days-with-no-savior-in-sight?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Aug 06 - [Ukraine calls Jeddah talks productive, Russia calls them doomed](https://news.yahoo.com/ukraine-calls-jeddah-talks-productive-145942804.html)
+- Aug 06 - [Kremlin says they only want Ukrainian territories included in Russian Constitution](https://news.yahoo.com/kremlin-says-only-want-ukrainian-145500650.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
