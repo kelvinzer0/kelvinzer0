@@ -66,3 +66,6 @@ https://kelvinzer0.github.io
 - Aug 06 - [Pence Leaves Pro-Trump Hecklers With One Quick Message In Tense Parking Lot Exchange](https://news.yahoo.com/pence-leaves-pro-trump-hecklers-054129555.html)
 - Aug 06 - [Russian families sold on Putin's promise of affordable, seaside living are selling their homes and hunting for cheaper properties in occupied Ukraine](https://news.yahoo.com/russian-families-sold-putins-promise-041727170.html)
 <!-- feed end -->
+
+### Are you tired of coding?
+Try this: https://kelvinzer0.github.io/g1
