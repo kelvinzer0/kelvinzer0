@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Warren Buffett — 12 Things Poor People Waste Money On](https://finance.yahoo.com/news/warren-buffett-12-things-poor-143028989.html)
+- Aug 06 - [Archaeologists are too scared to open the tomb of China's first emperor because they fear booby traps](https://news.yahoo.com/archeologists-too-scared-open-tomb-122512929.html)
+- Aug 06 - [Walmart and Sam’s Club introduce ‘game-changing’ new feature at hundreds of stores across the country: ‘It’s a big win’](https://news.yahoo.com/walmart-sam-club-introduce-game-100000507.html)
 - Aug 06 - [After A Yoga Teacher Asked How Far Along She Was, A Woman Is Mad That There 'Has To Be An Explanation' For Why Some People Have A Belly](https://www.yahoo.com/lifestyle/yoga-teacher-asked-far-along-101500836.html)
 - Aug 06 - [A mom is suing Southwest Airlines for 'blatant racism' after being accused of trafficking her biracial daughter](https://news.yahoo.com/mom-suing-southwest-airlines-blatant-094047339.html)
-- Aug 06 - [The airline said her bag was lost, but her tracker said otherwise. So she flew to get it](https://www.yahoo.com/lifestyle/airline-said-her-bag-lost-082404332.html)
-- Aug 06 - [Crammed with tourists, Alaska's capital wonders what will happen as its magnificent glacier recedes](https://news.yahoo.com/crammed-tourists-alaskas-capital-wonders-061243516.html)
-- Aug 06 - [Pence Leaves Pro-Trump Hecklers With One Quick Message In Tense Parking Lot Exchange](https://news.yahoo.com/pence-leaves-pro-trump-hecklers-054129555.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
