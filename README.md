@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [Maryland Town on Edge After Apparent Murder Off Popular Nature Trail](https://news.yahoo.com/maryland-town-edge-apparent-murder-004914335.html)
 - Aug 06 - [Analysis-China can no longer 'extend and pretend' on municipal debt](https://news.yahoo.com/analysis-china-no-longer-extend-230319346.html)
 - Aug 06 - [Pope says Church open to everyone, including LGBT people, but has rules](https://news.yahoo.com/pope-says-church-open-everyone-213559153.html)
 - Aug 06 - [Pope discusses health, his ditched peace prayer in Fatima and LGBTQ+ Catholics in airborne briefing](https://news.yahoo.com/pope-discusses-health-ditched-peace-205133734.html)
-- Aug 06 - [Man whose body was found in a barrel in Malibu had been shot in the head, coroner says](https://news.yahoo.com/man-whose-body-found-barrel-184722483.html)
-- Aug 06 - [Suspects detained after Saturday night brawl on Riverfront Park dock](https://news.yahoo.com/suspects-detained-saturday-night-brawl-161636237.html)
+- Aug 06 - [US scientists repeat fusion ignition breakthrough for 2nd time](https://news.yahoo.com/us-scientists-repeat-fusion-power-195334524.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
