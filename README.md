@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Maryland Town on Edge After Apparent Murder Off Popular Nature Trail](https://news.yahoo.com/maryland-town-edge-apparent-murder-004914335.html)
-- Aug 07 - [Severe thunderstorms expected across the area late Monday afternoon](https://news.yahoo.com/severe-thunderstorms-expected-across-area-004350389.html)
-- Aug 06 - [Analysis-China can no longer 'extend and pretend' on municipal debt](https://finance.yahoo.com/news/analysis-china-no-longer-extend-230319657.html)
-- Aug 06 - [Pope says Church open to everyone, including LGBT people, but has rules](https://news.yahoo.com/pope-says-church-open-everyone-213559153.html)
-- Aug 06 - [Pope discusses health, his ditched peace prayer in Fatima and LGBTQ+ Catholics in airborne briefing](https://news.yahoo.com/pope-discusses-health-ditched-peace-205133734.html)
+- Aug 07 - [Musk Says He May Need Surgery, Will Get MRI on Back and Neck](https://finance.yahoo.com/news/musk-says-may-surgery-mri-034154641.html)
+- Aug 07 - [Trump Flips Out In Hellishly Bizarre New Social Media Meltdown: 'I Wasn't Scared'](https://news.yahoo.com/trump-flips-hellishly-bizarre-social-044436787.html)
+- Aug 07 - [India's Modi faces a no-confidence vote over silence on ethnic violence tearing at remote Manipur](https://news.yahoo.com/indias-modi-faces-no-confidence-041305601.html)
+- Aug 07 - [US trucking firm Yellow files for bankruptcy after loading up on debt](https://finance.yahoo.com/news/u-trucking-firm-yellow-files-031321635.html)
+- Aug 07 - [Mitch McConnell Mercilessly Heckled During Speech With Chants of ‘Retire!’](https://news.yahoo.com/mitch-mcconnell-mercilessly-heckled-during-012919216.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
