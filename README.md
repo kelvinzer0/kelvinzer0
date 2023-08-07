@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [Trump lawyers say proposed protective order is too broad, urge judge to impose more limited rules](https://news.yahoo.com/trump-lawyers-proposed-protective-order-211823093.html)
+- Aug 07 - [18-year-old Emma Lawson took second place worldwide at the 2023 CrossFit Games. Here are 4 things she does every day to stay in peak shape](https://news.yahoo.com/18-old-crossfit-star-emma-103000013.html)
+- Aug 07 - [Women over 70 risk breast cancer overdiagnosis with screening, US study finds](https://news.yahoo.com/women-over-70-risk-breast-210225827.html)
 - Aug 07 - [Far-Right Snowflakes Just Cannot Get Over This ‘Woke’ Razor Company](https://news.yahoo.com/far-snowflakes-just-cannot-over-202430278.html)
-- Aug 07 - [Appeals court upholds Josh Duggar's conviction for downloading child sex abuse images](https://www.yahoo.com/entertainment/appeals-court-upholds-josh-duggars-202024122.html)
 - Aug 07 - [Biden’s green energy law is turning out to be huge](https://finance.yahoo.com/news/bidens-green-energy-law-is-turning-out-to-be-huge-201035230.html)
-- Aug 07 - [MrBeast's burger company countersues the YouTube megastar for over $100 million](https://news.yahoo.com/mrbeasts-burger-company-countersues-the-youtube-megastar-for-over-100-million-183859754.html)
-- Aug 07 - [Ukraine is finally attacking Putin’s weakest spot. It could break him](https://news.yahoo.com/ukraine-finally-attacking-putin-weakest-182737127.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
