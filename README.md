@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Trump lawyers say proposed protective order is too broad, urge judge to impose more limited rules](https://news.yahoo.com/trump-lawyers-proposed-protective-order-211823093.html)
+- Aug 07 - [Trump lawyers say proposed order on info release is too broad, urge more limited rules](https://news.yahoo.com/trump-lawyers-proposed-protective-order-211823093.html)
 - Aug 07 - [18-year-old Emma Lawson took second place worldwide at the 2023 CrossFit Games. Here are 4 things she does every day to stay in peak shape](https://news.yahoo.com/18-old-crossfit-star-emma-103000013.html)
 - Aug 07 - [Women over 70 risk breast cancer overdiagnosis with screening, US study finds](https://news.yahoo.com/women-over-70-risk-breast-210225827.html)
 - Aug 07 - [Far-Right Snowflakes Just Cannot Get Over This ‘Woke’ Razor Company](https://news.yahoo.com/far-snowflakes-just-cannot-over-202430278.html)
