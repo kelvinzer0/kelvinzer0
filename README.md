@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [Ice Cube Should Have Checked Himself Before He Wrecked Himself With Tucker Carlson](https://www.yahoo.com/entertainment/ice-cube-checked-himself-wrecked-094537310.html)
 - Aug 07 - [Analysis-Yuan loses core support as firms leave China](https://news.yahoo.com/analysis-yuan-loses-core-support-092120665.html)
 - Aug 07 - [The airline said her bag was lost, but her tracker said otherwise. So she flew to get it](https://www.yahoo.com/lifestyle/airline-said-her-bag-lost-082404332.html)
 - Aug 07 - [Evangelical Leader Rips Trump, Says Supporters Now 'Looking For Another Candidate'](https://news.yahoo.com/evangelical-leader-rips-trump-says-083532273.html)
 - Aug 07 - [Japan's Warabeya shares drop after cockroach found in 7-Eleven rice balls](https://finance.yahoo.com/news/japans-warabeya-shares-drop-cockroach-075432300.html)
-- Aug 07 - [Elderly people could stay stronger for longer after key to muscle waste discovered](https://news.yahoo.com/elderly-people-could-stay-stronger-060000747.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
