@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Experts: Trump lawyer’s “aspirational” defense suggests “they know they’re going to lose at trial”](https://news.yahoo.com/experts-trump-lawyer-aspirational-defense-130153452.html)
+- Aug 07 - [A man lost at sea for 30 hours on a partially submerged boat stung by jellyfish, removed its motor in a desperate attempt to stay afloat](https://news.yahoo.com/man-lost-sea-30-hours-141944087.html)
+- Aug 07 - [20 Cities with the Highest Weed Consumption in the World](https://finance.yahoo.com/news/20-cities-highest-weed-consumption-140212568.html)
+- Aug 07 - [A Florida doctor thought he removed a kidney. He was wrong. That wasn’t the only problem](https://news.yahoo.com/florida-doctor-thought-removed-kidney-135451964.html)
 - Aug 07 - [Russia blasts Saudi Arabia talks on ending war in Ukraine after Moscow gets no invitation to attend](https://news.yahoo.com/russia-blasts-saudi-arabia-talks-123303106.html)
 - Aug 07 - [An ancient skull unlike any human ever seen is baffling scientists and could rewrite the story of our evolution](https://news.yahoo.com/ancient-skull-unlike-human-ever-120245169.html)
-- Aug 07 - [Here are the top 5 things boomers should (almost) never buy in retirement — how many do you currently own?](https://finance.yahoo.com/news/top-5-things-boomers-almost-120000500.html)
-- Aug 07 - [A woman died after drinking too much water too quickly. Now her family is raising awareness of water toxicity.](https://www.yahoo.com/lifestyle/woman-died-drinking-too-much-113627408.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
