@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Devon Archer testimony: What Hunter Biden's business partner actually told Congress](https://news.yahoo.com/devon-archer-testimony-what-hunter-bidens-business-partner-actually-told-congress-193852443.html)
-- Aug 07 - [Apple stock buybacks are good news for Warren Buffett](https://finance.yahoo.com/video/apple-stock-buybacks-good-news-193819405.html)
+- Aug 07 - [Far-Right Snowflakes Just Cannot Get Over This ‘Woke’ Razor Company](https://news.yahoo.com/far-snowflakes-just-cannot-over-202430278.html)
+- Aug 07 - [Appeals court upholds Josh Duggar's conviction for downloading child sex abuse images](https://www.yahoo.com/entertainment/appeals-court-upholds-josh-duggars-202024122.html)
+- Aug 07 - [Biden’s green energy law is turning out to be huge](https://finance.yahoo.com/news/bidens-green-energy-law-is-turning-out-to-be-huge-201035230.html)
+- Aug 07 - [MrBeast's burger company countersues the YouTube megastar for over $100 million](https://news.yahoo.com/mrbeasts-burger-company-countersues-the-youtube-megastar-for-over-100-million-183859754.html)
 - Aug 07 - [Ukraine is finally attacking Putin’s weakest spot. It could break him](https://news.yahoo.com/ukraine-finally-attacking-putin-weakest-182737127.html)
-- Aug 07 - [Florida man rescued after nearly two days adrift at sea](https://news.yahoo.com/florida-man-rescued-nearly-two-180253291.html)
-- Aug 07 - [Judge Aileen Cannon Comes Out Swinging in Trump’s Favor—Again](https://news.yahoo.com/judge-aileen-cannon-comes-swinging-170207097.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
