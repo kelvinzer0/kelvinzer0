@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [China tells Philippines to remove grounded warship in South China Sea](https://news.yahoo.com/china-tells-philippines-remove-grounded-063702131.html)
 - Aug 07 - [Elderly people could stay stronger for longer after key to muscle waste discovered](https://news.yahoo.com/elderly-people-could-stay-stronger-060000747.html)
 - Aug 07 - [Musk Says He May Need Surgery, Will Get MRI on Back and Neck](https://finance.yahoo.com/news/musk-says-may-surgery-mri-034154641.html)
 - Aug 07 - [Trump Flips Out In Hellishly Bizarre New Social Media Meltdown: 'I Wasn't Scared'](https://news.yahoo.com/trump-flips-hellishly-bizarre-social-044436787.html)
 - Aug 07 - [A $700 million superyacht linked to Putin was seized in Italy last year. It's being treated to a refurb while it waits, and authorities won't say who's paying for it.](https://news.yahoo.com/700-million-superyacht-linked-putin-041647357.html)
+- Aug 07 - [India's Modi faces a no-confidence vote over silence on ethnic violence tearing at remote Manipur](https://news.yahoo.com/indias-modi-faces-no-confidence-041305601.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
