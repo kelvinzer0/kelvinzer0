@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [MrBeast's burger company countersues the YouTube megastar for over $100 million](https://news.yahoo.com/mrbeasts-burger-company-countersues-the-youtube-megastar-for-over-100-million-183859754.html)
+- Aug 07 - [Ukraine is finally attacking Putin’s weakest spot. It could break him](https://news.yahoo.com/ukraine-finally-attacking-putin-weakest-182737127.html)
+- Aug 07 - [Florida man rescued after nearly two days adrift at sea](https://news.yahoo.com/florida-man-rescued-nearly-two-180253291.html)
 - Aug 07 - [Judge Aileen Cannon Comes Out Swinging in Trump’s Favor—Again](https://news.yahoo.com/judge-aileen-cannon-comes-swinging-170207097.html)
 - Aug 07 - [See inside Elon Musk's $50,000 house, thanks to this rare photo posted by his biographer](https://news.yahoo.com/see-inside-elon-musks-50-164748802.html)
-- Aug 07 - [“She should call the coward’s bluff”: Experts say Trump “daring” judge to punish his witness attacks](https://news.yahoo.com/she-call-coward-bluff-experts-162802195.html)
-- Aug 07 - [YouTuber ‘chopped up boyfriend and dumped his head in sea’](https://news.yahoo.com/youtube-chef-chopped-boyfriend-dumped-162444115.html)
-- Aug 07 - [Leaked video shows the Tesla Cybertruck's small frunk](https://www.autoblog.com/2023/08/07/tesla-cybertruck-frunk-front-trunk-video/)
 <!-- feed end -->
 
 ### Are you tired of coding?
