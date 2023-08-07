@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [A man lost at sea for 30 hours on a partially submerged boat stung by jellyfish, removed its motor in a desperate attempt to stay afloat](https://news.yahoo.com/man-lost-sea-30-hours-141944087.html)
-- Aug 07 - [20 Cities with the Highest Weed Consumption in the World](https://finance.yahoo.com/news/20-cities-highest-weed-consumption-140212568.html)
-- Aug 07 - [A Florida doctor thought he removed a kidney. He was wrong. That wasn’t the only problem](https://news.yahoo.com/florida-doctor-thought-removed-kidney-135451964.html)
-- Aug 07 - [Russia blasts Saudi Arabia talks on ending war in Ukraine after Moscow gets no invitation to attend](https://news.yahoo.com/russia-blasts-saudi-arabia-talks-123303106.html)
-- Aug 07 - [An ancient skull unlike any human ever seen is baffling scientists and could rewrite the story of our evolution](https://news.yahoo.com/ancient-skull-unlike-human-ever-120245169.html)
+- Aug 07 - [Spanish actor's son detained in grisly murder case](https://news.yahoo.com/spanish-actors-son-detained-grisly-153345056.html)
+- Aug 07 - [Americans rooting against US at World Cup don’t know difference between patriots, traitors](https://sports.yahoo.com/americans-rooting-against-us-world-153313210.html)
+- Aug 07 - ['Black Aquaman' and the 'Boston Tea Party': World watches Montgomery riverfront brawl](https://news.yahoo.com/black-aquaman-boston-tea-party-151306931.html)
+- Aug 07 - [Burger King Menu Adds a Beloved Lost McDonald's Favorite](https://www.thestreet.com/restaurants/burger-king-menu-adds-a-beloved-lost-mcdonalds-favorite?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Aug 07 - [Lindsey Graham mocked for ‘humiliating himself’ in face of Trump at SC Republican dinner](https://news.yahoo.com/lindsey-graham-mocked-humiliating-himself-150012753.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
