@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Spanish actor's son detained in grisly murder case](https://news.yahoo.com/spanish-actors-son-detained-grisly-153345056.html)
-- Aug 07 - [Americans rooting against US at World Cup don’t know difference between patriots, traitors](https://sports.yahoo.com/americans-rooting-against-us-world-153313210.html)
-- Aug 07 - ['Black Aquaman' and the 'Boston Tea Party': World watches Montgomery riverfront brawl](https://news.yahoo.com/black-aquaman-boston-tea-party-151306931.html)
-- Aug 07 - [Burger King Menu Adds a Beloved Lost McDonald's Favorite](https://www.thestreet.com/restaurants/burger-king-menu-adds-a-beloved-lost-mcdonalds-favorite?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 07 - [Lindsey Graham mocked for ‘humiliating himself’ in face of Trump at SC Republican dinner](https://news.yahoo.com/lindsey-graham-mocked-humiliating-himself-150012753.html)
+- Aug 07 - [Ahead of possible Trump indictment, Atlanta locks down courthouse](https://news.yahoo.com/ahead-possible-trump-indictment-atlanta-163226782.html)
+- Aug 07 - [“She should call the coward’s bluff”: Experts say Trump “daring” judge to punish his witness attacks](https://news.yahoo.com/she-call-coward-bluff-experts-162802195.html)
+- Aug 07 - [YouTuber ‘chopped up boyfriend and dumped his head in sea’](https://news.yahoo.com/youtube-chef-chopped-boyfriend-dumped-162444115.html)
+- Aug 07 - [Coast Guard rescues man adrift at sea in row boat](https://news.yahoo.com/coast-guard-rescues-man-adrift-162206239.html)
+- Aug 07 - [Leaked video shows the Tesla Cybertruck's small frunk](https://www.autoblog.com/2023/08/07/tesla-cybertruck-frunk-front-trunk-video/)
 <!-- feed end -->
 
 ### Are you tired of coding?
