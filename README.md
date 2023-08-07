@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [Ukraine is evacuating wounded soldiers by loading them onto large drones, in what is likely a battlefield first, report says](https://news.yahoo.com/ukraine-evacuating-wounded-soldiers-loading-105307953.html)
+- Aug 07 - [Man accused of kidnapping and killing Nevada 18-year-old dies by suicide in jail while awaiting trial](https://news.yahoo.com/man-accused-kidnapping-killing-nevada-103826419.html)
+- Aug 07 - [Have you seen pouches stapled to forest trees? They’re designed to trick ‘tree murderers’](https://news.yahoo.com/seen-pouches-stapled-forest-trees-100000612.html)
+- Aug 07 - [Exclusive-North Korean hackers breached top Russian missile maker](https://news.yahoo.com/exclusive-north-korean-hackers-breached-095442773.html)
 - Aug 07 - [Ice Cube Should Have Checked Himself Before He Wrecked Himself With Tucker Carlson](https://www.yahoo.com/entertainment/ice-cube-checked-himself-wrecked-094537310.html)
-- Aug 07 - [Analysis-Yuan loses core support as firms leave China](https://news.yahoo.com/analysis-yuan-loses-core-support-092120665.html)
-- Aug 07 - [The airline said her bag was lost, but her tracker said otherwise. So she flew to get it](https://www.yahoo.com/lifestyle/airline-said-her-bag-lost-082404332.html)
-- Aug 07 - [Evangelical Leader Rips Trump, Says Supporters Now 'Looking For Another Candidate'](https://news.yahoo.com/evangelical-leader-rips-trump-says-083532273.html)
-- Aug 07 - [Japan's Warabeya shares drop after cockroach found in 7-Eleven rice balls](https://finance.yahoo.com/news/japans-warabeya-shares-drop-cockroach-075432300.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
