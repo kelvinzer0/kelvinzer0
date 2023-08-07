@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 07 - [Musk Says He May Need Surgery, Will Get MRI on Back and Neck](https://finance.yahoo.com/news/musk-says-may-surgery-mri-034154641.html)
 - Aug 07 - [Trump Flips Out In Hellishly Bizarre New Social Media Meltdown: 'I Wasn't Scared'](https://news.yahoo.com/trump-flips-hellishly-bizarre-social-044436787.html)
+- Aug 07 - [A $700 million superyacht linked to Putin was seized in Italy last year. It's being treated to a refurb while it waits, and authorities won't say who's paying for it.](https://news.yahoo.com/700-million-superyacht-linked-putin-041647357.html)
 - Aug 07 - [India's Modi faces a no-confidence vote over silence on ethnic violence tearing at remote Manipur](https://news.yahoo.com/indias-modi-faces-no-confidence-041305601.html)
 - Aug 07 - [US trucking firm Yellow files for bankruptcy after loading up on debt](https://finance.yahoo.com/news/u-trucking-firm-yellow-files-031321635.html)
-- Aug 07 - [Mitch McConnell Mercilessly Heckled During Speech With Chants of ‘Retire!’](https://news.yahoo.com/mitch-mcconnell-mercilessly-heckled-during-012919216.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
