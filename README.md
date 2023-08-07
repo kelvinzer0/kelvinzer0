@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [Analysis-China can no longer 'extend and pretend' on municipal debt](https://news.yahoo.com/analysis-china-no-longer-extend-230319346.html)
 - Aug 06 - [Pope says Church open to everyone, including LGBT people, but has rules](https://news.yahoo.com/pope-says-church-open-everyone-213559153.html)
 - Aug 06 - [Pope discusses health, his ditched peace prayer in Fatima and LGBTQ+ Catholics in airborne briefing](https://news.yahoo.com/pope-discusses-health-ditched-peace-205133734.html)
-- Aug 06 - [Recent satellite imagery indicates serious damage done to Russia's Olenegorsky Gornyak warship](https://news.yahoo.com/recent-satellite-imagery-indicates-serious-201600094.html)
+- Aug 06 - [Man whose body was found in a barrel in Malibu had been shot in the head, coroner says](https://news.yahoo.com/man-whose-body-found-barrel-184722483.html)
 - Aug 06 - [Suspects detained after Saturday night brawl on Riverfront Park dock](https://news.yahoo.com/suspects-detained-saturday-night-brawl-161636237.html)
-- Aug 06 - [Trump freaks out over Pelosi's "sad puppy" comment, says she will one day "live in hell"](https://news.yahoo.com/trump-freaks-over-pelosis-sad-161511234.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
