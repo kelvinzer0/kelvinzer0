@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Ahead of possible Trump indictment, Atlanta locks down courthouse](https://news.yahoo.com/ahead-possible-trump-indictment-atlanta-163226782.html)
+- Aug 07 - [Judge Aileen Cannon Comes Out Swinging in Trump’s Favor—Again](https://news.yahoo.com/judge-aileen-cannon-comes-swinging-170207097.html)
+- Aug 07 - [See inside Elon Musk's $50,000 house, thanks to this rare photo posted by his biographer](https://news.yahoo.com/see-inside-elon-musks-50-164748802.html)
 - Aug 07 - [“She should call the coward’s bluff”: Experts say Trump “daring” judge to punish his witness attacks](https://news.yahoo.com/she-call-coward-bluff-experts-162802195.html)
 - Aug 07 - [YouTuber ‘chopped up boyfriend and dumped his head in sea’](https://news.yahoo.com/youtube-chef-chopped-boyfriend-dumped-162444115.html)
-- Aug 07 - [Coast Guard rescues man adrift at sea in row boat](https://news.yahoo.com/coast-guard-rescues-man-adrift-162206239.html)
 - Aug 07 - [Leaked video shows the Tesla Cybertruck's small frunk](https://www.autoblog.com/2023/08/07/tesla-cybertruck-frunk-front-trunk-video/)
 <!-- feed end -->
 
