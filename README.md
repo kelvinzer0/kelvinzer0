@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [Retired Judge Predicts What’s Next For ‘Chatty Charlie’ Trump](https://news.yahoo.com/retired-judge-predicts-next-chatty-090541942.html)
 - Aug 08 - ['Bachelorette' sends suitor packing with phrase that sends internet into a frenzy](https://www.yahoo.com/entertainment/bachelorette-sends-suitor-packing-phrase-sends-internet-into-frenzy-064244245.html)
 - Aug 08 - [Chris Christie Names The Trump Insider He Thinks Secretly Flipped](https://news.yahoo.com/chris-christie-names-trump-insider-062235245.html)
 - Aug 08 - [Fox News’ Brit Hume Gives Trump-Loving Commentator A Brutal Fact-Check](https://news.yahoo.com/fox-news-brit-hume-gives-045020265.html)
 - Aug 08 - [Moody's downgrades US banks, warns of possible cuts to others](https://news.yahoo.com/moodys-downgrades-10-us-banks-032059018.html)
-- Aug 08 - [A passenger was whisked through TSA security checkpoints by Clear, but they never signed up or had their identity checked —they just used a boarding pass they found in the trash.](https://news.yahoo.com/passenger-whisked-tsa-security-checkpoints-015930715.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
