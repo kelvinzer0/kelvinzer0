@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Moody's downgrades 10 US banks, warns of possible cuts to others](https://news.yahoo.com/moodys-downgrades-10-us-banks-032059018.html)
+- Aug 08 - [Australia detains 19 men linked to online child abuse](https://news.yahoo.com/australia-detains-19-men-linked-053658845.html)
+- Aug 08 - [Fox News’ Brit Hume Gives Trump-Loving Commentator A Brutal Fact-Check](https://news.yahoo.com/fox-news-brit-hume-gives-045020265.html)
+- Aug 08 - [India bars makers of military drones from using Chinese parts](https://finance.yahoo.com/news/exclusive-india-bars-makers-military-034604933.html)
+- Aug 08 - [Moody's downgrades US banks, warns of possible cuts to others](https://news.yahoo.com/moodys-downgrades-10-us-banks-032059018.html)
 - Aug 08 - [China repeats call for Philippines to remove grounded warship](https://news.yahoo.com/china-repeats-call-philippines-remove-015446683.html)
-- Aug 08 - [Judge orders hearing after Trump's lawyers say proposed protective order would infringe on Trump's free speech](https://www.yahoo.com/gma/proposed-protective-order-infringe-trumps-230949599.html)
-- Aug 08 - [The US Army soldier behind the viral 'Gen Z on the battlefield' videos says people need to wake up and realize 'this ain't the old army'](https://www.yahoo.com/entertainment/us-army-soldier-behind-viral-004501324.html)
-- Aug 08 - [Woman Behind Viral ‘Not Real’ Airplane Outburst Has Been Identified, Is Real](https://www.yahoo.com/entertainment/woman-behind-viral-not-real-004313630.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
