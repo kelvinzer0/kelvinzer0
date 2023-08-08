@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Australia detains 19 men linked to online child abuse](https://news.yahoo.com/australia-detains-19-men-linked-053658845.html)
+- Aug 08 - [Chris Christie Names The Trump Insider He Thinks Secretly Flipped](https://news.yahoo.com/chris-christie-names-trump-insider-062235245.html)
+- Aug 08 - [Dozens arrested over alleged child sex abuse following murder of two FBI agents](https://news.yahoo.com/dozens-arrested-over-alleged-child-051541495.html)
 - Aug 08 - [Fox News’ Brit Hume Gives Trump-Loving Commentator A Brutal Fact-Check](https://news.yahoo.com/fox-news-brit-hume-gives-045020265.html)
-- Aug 08 - [India bars makers of military drones from using Chinese parts](https://finance.yahoo.com/news/exclusive-india-bars-makers-military-034604933.html)
 - Aug 08 - [Moody's downgrades US banks, warns of possible cuts to others](https://news.yahoo.com/moodys-downgrades-10-us-banks-032059018.html)
 - Aug 08 - [China repeats call for Philippines to remove grounded warship](https://news.yahoo.com/china-repeats-call-philippines-remove-015446683.html)
 <!-- feed end -->
