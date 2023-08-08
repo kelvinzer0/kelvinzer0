@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 08 - [Ari Melber Throws Down With Trump Co-Conspirator's Lawyer Over 'Very Easy Question'](https://news.yahoo.com/ari-melber-throws-down-trump-125048958.html)
+- Aug 08 - [Legal experts: Trump lawyers “undermined” their own argument — and Jack Smith walloped them](https://news.yahoo.com/legal-experts-trump-lawyers-undermined-124346443.html)
 - Aug 08 - ['Most insane thing ever': The money is now rolling in for man who discovered 700 Civil War-era gold coins in 'The Great Kentucky Hoard' — here's how to build your own secret stash](https://finance.yahoo.com/news/most-insane-thing-ever-man-180000139.html)
+- Aug 08 - [US agency opens probe into 1.1 million Ram 1500 pickup trucks](https://finance.yahoo.com/news/us-agency-opens-probe-1-121201818.html)
 - Aug 08 - [Boston man files lawsuit seeking to bankrupt white supremacist group he says assaulted him](https://news.yahoo.com/boston-man-files-lawsuit-seeking-115445700.html)
-- Aug 08 - [Political Strategist Says Trump's Pence Outburst Exposes What He's Afraid Of](https://news.yahoo.com/political-strategist-says-trumps-pence-113822098.html)
-- Aug 08 - [Texas woman known as the 'Sassy Trucker' leaves Dubai after monthslong legal dispute, advocate says](https://news.yahoo.com/texas-woman-known-sassy-trucker-113009685.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
