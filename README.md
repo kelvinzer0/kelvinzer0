@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [Michigan mayor faces calls to resign over charges in fake elector case](https://news.yahoo.com/michigan-mayor-faces-calls-resign-164700220.html)
+- Aug 08 - [Nasa asteroid blunder unleashes boulder storm ‘as deadly as Hiroshima’](https://news.yahoo.com/nasa-asteroid-blunder-unleashes-boulder-160735199.html)
+- Aug 08 - ['People Are So Silly': Joe Rogan Drinks Bud Light, Blasts Boycott Over Dylan Mulvaney During Podcast — Could This Be A Turning Point For The Battered Beer Brand?](https://finance.yahoo.com/news/people-silly-joe-rogan-drinks-160246436.html)
 - Aug 08 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://news.yahoo.com/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
-- Aug 08 - [U.S. credit downgrade: Institutional problems are 'undeniable', professor says](https://finance.yahoo.com/video/u-credit-downgrade-institutional-problems-153313074.html)
-- Aug 08 - [Georgia fires football staffer who survived fatal crash, less than a month after lawsuit](https://news.yahoo.com/georgia-fires-football-staffer-survived-144211132.html)
-- Aug 08 - [New details emerge after shocking video shows Alabama riverfront brawl](https://news.yahoo.com/details-emerge-shocking-video-shows-141851693.html)
-- Aug 08 - [Ukraine is winning a crucial part of the land war. It’s nuclear button time for Putin – again](https://news.yahoo.com/ukraine-winning-crucial-part-land-141047594.html)
+- Aug 08 - [No, Trump’s poll numbers don't 'go way up' every time he gets indicted](https://news.yahoo.com/no-trumps-poll-numbers-dont-go-way-up-every-time-he-gets-indicted-145507082.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
