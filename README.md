@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [Ari Melber Throws Down With Trump Co-Conspirator's Lawyer Over 'Very Easy Question'](https://news.yahoo.com/ari-melber-throws-down-trump-125048958.html)
+- Aug 08 - ['Most insane thing ever': The money is now rolling in for man who discovered 700 Civil War-era gold coins in 'The Great Kentucky Hoard' — here's how to build your own secret stash](https://finance.yahoo.com/news/most-insane-thing-ever-man-180000139.html)
 - Aug 08 - [Boston man files lawsuit seeking to bankrupt white supremacist group he says assaulted him](https://news.yahoo.com/boston-man-files-lawsuit-seeking-115445700.html)
 - Aug 08 - [Political Strategist Says Trump's Pence Outburst Exposes What He's Afraid Of](https://news.yahoo.com/political-strategist-says-trumps-pence-113822098.html)
 - Aug 08 - [Texas woman known as the 'Sassy Trucker' leaves Dubai after monthslong legal dispute, advocate says](https://news.yahoo.com/texas-woman-known-sassy-trucker-113009685.html)
-- Aug 08 - [Zelenskyy warned Russia that it may be left with no ships if it continues to attack Ukraine's ports](https://news.yahoo.com/zelenskyy-warned-russia-may-left-111411454.html)
-- Aug 08 - [Ex-Northwestern cheerleader who filed suit alleging sexual exploitation calls school’s hazing response ‘a lot of empty platitudes’](https://sports.yahoo.com/ex-northwestern-cheerleader-filed-suit-100000648.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
