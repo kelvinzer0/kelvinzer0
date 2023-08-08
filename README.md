@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [ESPN, PENN Entertainment strike $2 billion sports betting deal, Dave Portnoy buys back Barstool Sports](https://finance.yahoo.com/news/espn-penn-entertainment-strike-2-billion-sports-betting-deal-dave-portnoy-buys-back-barstool-sports-210355050.html)
-- Aug 08 - [Montgomery brawl: Police charge 3 men with assault, adding 'more charges are likely'](https://news.yahoo.com/montgomery-brawl-police-charge-men-boat-assault-riverwalk-history-205656959.html)
-- Aug 08 - [Russia starts to realize it can’t hold on to Crimea – interview with Refat Chubarov](https://news.yahoo.com/russia-starts-realize-t-hold-200000860.html)
-- Aug 08 - [Trump says Chris Christie 'is eating right now' and tells audience not to call the former governor a 'fat pig'](https://news.yahoo.com/trump-says-chris-christie-eating-194502913.html)
-- Aug 08 - [Anheuser-Busch is selling 8 of its beloved brands as Bud Light drama plagues its business](https://www.thestreet.com/restaurants/anheuser-busch-is-selling-8-of-its-beloved-brands-as-bud-light-drama-plagues-its-business?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Aug 08 - [Judge is asked to block Florida law making it a crime to drive people who are in the US illegally](https://news.yahoo.com/judge-asked-block-florida-law-222110736.html)
+- Aug 08 - [Trump vows to keep talking about criminal cases despite prosecutors pushing for protective order](https://news.yahoo.com/trump-vows-keep-campaigning-criminal-220409139.html)
+- Aug 08 - [Winning Mega Millions numbers for Tuesday, Aug. 8, 2023](https://news.yahoo.com/winning-mega-millions-numbers-tuesday-220054094.html)
+- Aug 08 - [Trump Pushes Total Lie About Georgia Prosecutor Sleeping With Gang Member](https://news.yahoo.com/trump-pushes-total-lie-georgia-214942291.html)
+- Aug 08 - [Trump on possible court-ordered limits: ‘They’re not taking away my First Amendment rights’](https://news.yahoo.com/trump-possible-court-ordered-limits-211926913.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
