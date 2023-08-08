@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Scouts begin S. Korea jamboree evacuation over extreme weather challenges](https://news.yahoo.com/scouts-begin-korea-jamboree-evacuation-024210935.html)
+- Aug 08 - [China repeats call for Philippines to remove grounded warship](https://news.yahoo.com/china-repeats-call-philippines-remove-015446683.html)
+- Aug 08 - [Judge orders hearing after Trump's lawyers say proposed protective order would infringe on Trump's free speech](https://www.yahoo.com/gma/proposed-protective-order-infringe-trumps-230949599.html)
 - Aug 08 - [The US Army soldier behind the viral 'Gen Z on the battlefield' videos says people need to wake up and realize 'this ain't the old army'](https://www.yahoo.com/entertainment/us-army-soldier-behind-viral-004501324.html)
 - Aug 08 - [Woman Behind Viral ‘Not Real’ Airplane Outburst Has Been Identified, Is Real](https://www.yahoo.com/entertainment/woman-behind-viral-not-real-004313630.html)
 - Aug 07 - [Carcinogens found at Montana nuclear missile sites as reports of hundreds of cancers surface](https://news.yahoo.com/carcinogens-found-nuclear-missile-sites-233915884.html)
-- Aug 07 - [Woman Who Was Brutally Attacked by River Otter Shares Graphic Photos](https://www.yahoo.com/lifestyle/woman-brutally-attacked-river-otter-232357876.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
