@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [ESPN, PENN Entertainment strike $2 billion sports betting deal, Dave Portnoy buys back Barstool Sports](https://finance.yahoo.com/news/espn-penn-entertainment-strike-2-billion-sports-betting-deal-dave-portnoy-buys-back-barstool-sports-210355050.html)
 - Aug 08 - [Montgomery brawl: Police charge 3 men with assault, adding 'more charges are likely'](https://news.yahoo.com/montgomery-brawl-police-charge-men-boat-assault-riverwalk-history-205656959.html)
-- Aug 08 - [UPS driver pay and benefits deal in US to be worth $170,000 a year, firm says](https://news.yahoo.com/ups-driver-pay-deal-us-183658717.html)
-- Aug 08 - [Ex-US attorney: Jack Smith "may need to politely tell Judge Cannon to butt out" after latest order](https://news.yahoo.com/ex-us-attorney-jack-smith-192845589.html)
+- Aug 08 - [Russia starts to realize it can’t hold on to Crimea – interview with Refat Chubarov](https://news.yahoo.com/russia-starts-realize-t-hold-200000860.html)
+- Aug 08 - [Trump says Chris Christie 'is eating right now' and tells audience not to call the former governor a 'fat pig'](https://news.yahoo.com/trump-says-chris-christie-eating-194502913.html)
 - Aug 08 - [Anheuser-Busch is selling 8 of its beloved brands as Bud Light drama plagues its business](https://www.thestreet.com/restaurants/anheuser-busch-is-selling-8-of-its-beloved-brands-as-bud-light-drama-plagues-its-business?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 08 - [Eight candidates have qualified for the first Republican presidential debate](https://news.yahoo.com/eight-candidates-qualified-first-republican-185217133.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
