@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [New details emerge after shocking video shows Alabama riverfront brawl](https://news.yahoo.com/details-emerge-shocking-video-shows-141851693.html)
+- Aug 08 - [Ukraine is winning a crucial part of the land war. It’s nuclear button time for Putin – again](https://news.yahoo.com/ukraine-winning-crucial-part-land-141047594.html)
 - Aug 08 - [Ari Melber Throws Down With Trump Co-Conspirator's Lawyer Over 'Very Easy Question'](https://news.yahoo.com/ari-melber-throws-down-trump-125048958.html)
 - Aug 08 - [Legal experts: Trump lawyers “undermined” their own argument — and Jack Smith walloped them](https://news.yahoo.com/legal-experts-trump-lawyers-undermined-124346443.html)
 - Aug 08 - ['Most insane thing ever': The money is now rolling in for man who discovered 700 Civil War-era gold coins in 'The Great Kentucky Hoard' — here's how to build your own secret stash](https://finance.yahoo.com/news/most-insane-thing-ever-man-180000139.html)
-- Aug 08 - [US agency opens probe into 1.1 million Ram 1500 pickup trucks](https://finance.yahoo.com/news/us-agency-opens-probe-1-121201818.html)
-- Aug 08 - [Boston man files lawsuit seeking to bankrupt white supremacist group he says assaulted him](https://news.yahoo.com/boston-man-files-lawsuit-seeking-115445700.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
