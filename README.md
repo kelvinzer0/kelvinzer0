@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Trump lawyers say proposed order on info release is too broad, urge more limited rules](https://news.yahoo.com/trump-lawyers-proposed-protective-order-211823093.html)
-- Aug 07 - [18-year-old Emma Lawson took second place worldwide at the 2023 CrossFit Games. Here are 4 things she does every day to stay in peak shape](https://news.yahoo.com/18-old-crossfit-star-emma-103000013.html)
-- Aug 07 - [Women over 70 risk breast cancer overdiagnosis with screening, US study finds](https://news.yahoo.com/women-over-70-risk-breast-210225827.html)
-- Aug 07 - [Far-Right Snowflakes Just Cannot Get Over This ‘Woke’ Razor Company](https://news.yahoo.com/far-snowflakes-just-cannot-over-202430278.html)
-- Aug 07 - [Biden’s green energy law is turning out to be huge](https://finance.yahoo.com/news/bidens-green-energy-law-is-turning-out-to-be-huge-201035230.html)
+- Aug 07 - [Carcinogens found at Montana nuclear missile sites as reports of hundreds of cancers surface](https://news.yahoo.com/carcinogens-found-nuclear-missile-sites-233915884.html)
+- Aug 07 - [Woman Who Was Brutally Attacked by River Otter Shares Graphic Photos](https://www.yahoo.com/lifestyle/woman-brutally-attacked-river-otter-232357876.html)
+- Aug 07 - [Greta Thunberg says she will no longer speak at a climate event, accusing a sponsor of greenwashing by investing in companies tied to the fossil fuel industry](https://news.yahoo.com/greta-thunberg-says-she-no-223554853.html)
+- Aug 07 - [A snake fell from the sky onto a woman in Silsbee, Texas, while she mowed her lawn — then a hawk attacked them both](https://news.yahoo.com/snake-fell-sky-onto-woman-215907432.html)
+- Aug 07 - [Trump lawyers urge judge to narrow proposed rules on evidence sharing in election subversion case](https://news.yahoo.com/trump-lawyers-proposed-protective-order-211823093.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
