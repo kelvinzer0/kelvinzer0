@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 08 - [Retired Judge Predicts What’s Next For ‘Chatty Charlie’ Trump](https://news.yahoo.com/retired-judge-predicts-next-chatty-090541942.html)
+- Aug 08 - [The American Airlines passenger who was memed after 'not real' outburst lives in a $2 million home and is a top marketing exec](https://news.yahoo.com/american-airlines-passenger-memed-not-082913278.html)
 - Aug 08 - ['Bachelorette' sends suitor packing with phrase that sends internet into a frenzy](https://www.yahoo.com/entertainment/bachelorette-sends-suitor-packing-phrase-sends-internet-into-frenzy-064244245.html)
 - Aug 08 - [Chris Christie Names The Trump Insider He Thinks Secretly Flipped](https://news.yahoo.com/chris-christie-names-trump-insider-062235245.html)
-- Aug 08 - [Fox News’ Brit Hume Gives Trump-Loving Commentator A Brutal Fact-Check](https://news.yahoo.com/fox-news-brit-hume-gives-045020265.html)
-- Aug 08 - [Moody's downgrades US banks, warns of possible cuts to others](https://news.yahoo.com/moodys-downgrades-10-us-banks-032059018.html)
+- Aug 08 - [After attacking Ukraine wheat exports, Russia faces own shipping challenge](https://news.yahoo.com/attacking-ukraine-wheat-exports-russia-060451686.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
