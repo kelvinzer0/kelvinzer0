@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [Ex-US attorney: Jack Smith "may need to politely tell Judge Cannon to butt out" after latest order](https://news.yahoo.com/ex-us-attorney-jack-smith-192845589.html)
+- Aug 08 - [Anheuser-Busch is selling 8 of its beloved brands as Bud Light drama plagues its business](https://www.thestreet.com/restaurants/anheuser-busch-is-selling-8-of-its-beloved-brands-as-bud-light-drama-plagues-its-business?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Aug 08 - [Eight candidates have qualified for the first Republican presidential debate](https://news.yahoo.com/eight-candidates-qualified-first-republican-185217133.html)
-- Aug 08 - [COVID-19 hospitalizations in the US are on the rise again, but not like before](https://news.yahoo.com/covid-19-hospitalizations-us-rise-184921646.html)
-- Aug 08 - [Judge blocks Colorado law raising age to buy a gun to 21](https://news.yahoo.com/judge-blocks-colorado-law-raising-182458623.html)
 - Aug 08 - [You Can Remain Anonymous If You Win the Mega Millions Jackpot in These 16 States — Why Not the Others?](https://finance.yahoo.com/news/remain-anonymous-win-mega-millions-182448839.html)
-- Aug 08 - [China and Russia have achieved naval success off Alaska – where the US Navy has no bases](https://news.yahoo.com/china-russia-achieved-naval-success-173340587.html)
+- Aug 08 - [Texas man on trip to spread father's ashes dies of heat stroke in Utah's Arches National Park](https://news.yahoo.com/texas-man-trip-spread-fathers-181014638.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
