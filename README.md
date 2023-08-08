@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Retired Judge Predicts What’s Next For ‘Chatty Charlie’ Trump](https://news.yahoo.com/retired-judge-predicts-next-chatty-090541942.html)
-- Aug 08 - [The American Airlines passenger who was memed after 'not real' outburst lives in a $2 million home and is a top marketing exec](https://news.yahoo.com/american-airlines-passenger-memed-not-082913278.html)
-- Aug 08 - ['Bachelorette' sends suitor packing with phrase that sends internet into a frenzy](https://www.yahoo.com/entertainment/bachelorette-sends-suitor-packing-phrase-sends-internet-into-frenzy-064244245.html)
-- Aug 08 - [Chris Christie Names The Trump Insider He Thinks Secretly Flipped](https://news.yahoo.com/chris-christie-names-trump-insider-062235245.html)
-- Aug 08 - [After attacking Ukraine wheat exports, Russia faces own shipping challenge](https://news.yahoo.com/attacking-ukraine-wheat-exports-russia-060451686.html)
+- Aug 08 - [Boston man files lawsuit seeking to bankrupt white supremacist group he says assaulted him](https://news.yahoo.com/boston-man-files-lawsuit-seeking-115445700.html)
+- Aug 08 - [Political Strategist Says Trump's Pence Outburst Exposes What He's Afraid Of](https://news.yahoo.com/political-strategist-says-trumps-pence-113822098.html)
+- Aug 08 - [Texas woman known as the 'Sassy Trucker' leaves Dubai after monthslong legal dispute, advocate says](https://news.yahoo.com/texas-woman-known-sassy-trucker-113009685.html)
+- Aug 08 - [Zelenskyy warned Russia that it may be left with no ships if it continues to attack Ukraine's ports](https://news.yahoo.com/zelenskyy-warned-russia-may-left-111411454.html)
+- Aug 08 - [Ex-Northwestern cheerleader who filed suit alleging sexual exploitation calls school’s hazing response ‘a lot of empty platitudes’](https://sports.yahoo.com/ex-northwestern-cheerleader-filed-suit-100000648.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
