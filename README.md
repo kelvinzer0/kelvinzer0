@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://news.yahoo.com/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
+- Aug 08 - [U.S. credit downgrade: Institutional problems are 'undeniable', professor says](https://finance.yahoo.com/video/u-credit-downgrade-institutional-problems-153313074.html)
+- Aug 08 - [Georgia fires football staffer who survived fatal crash, less than a month after lawsuit](https://news.yahoo.com/georgia-fires-football-staffer-survived-144211132.html)
 - Aug 08 - [New details emerge after shocking video shows Alabama riverfront brawl](https://news.yahoo.com/details-emerge-shocking-video-shows-141851693.html)
 - Aug 08 - [Ukraine is winning a crucial part of the land war. It’s nuclear button time for Putin – again](https://news.yahoo.com/ukraine-winning-crucial-part-land-141047594.html)
-- Aug 08 - [Ari Melber Throws Down With Trump Co-Conspirator's Lawyer Over 'Very Easy Question'](https://news.yahoo.com/ari-melber-throws-down-trump-125048958.html)
-- Aug 08 - [Legal experts: Trump lawyers “undermined” their own argument — and Jack Smith walloped them](https://news.yahoo.com/legal-experts-trump-lawyers-undermined-124346443.html)
-- Aug 08 - ['Most insane thing ever': The money is now rolling in for man who discovered 700 Civil War-era gold coins in 'The Great Kentucky Hoard' — here's how to build your own secret stash](https://finance.yahoo.com/news/most-insane-thing-ever-man-180000139.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
