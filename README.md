@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [Eight candidates have qualified for the first Republican presidential debate](https://news.yahoo.com/eight-candidates-qualified-first-republican-185217133.html)
+- Aug 08 - [COVID-19 hospitalizations in the US are on the rise again, but not like before](https://news.yahoo.com/covid-19-hospitalizations-us-rise-184921646.html)
+- Aug 08 - [Judge blocks Colorado law raising age to buy a gun to 21](https://news.yahoo.com/judge-blocks-colorado-law-raising-182458623.html)
+- Aug 08 - [You Can Remain Anonymous If You Win the Mega Millions Jackpot in These 16 States — Why Not the Others?](https://finance.yahoo.com/news/remain-anonymous-win-mega-millions-182448839.html)
 - Aug 08 - [China and Russia have achieved naval success off Alaska – where the US Navy has no bases](https://news.yahoo.com/china-russia-achieved-naval-success-173340587.html)
-- Aug 08 - [Melania Trump Is Reportedly ‘Terrified’ That a Certain Email She Sent Could Incriminate Donald Trump](https://www.yahoo.com/entertainment/melania-trump-reportedly-terrified-certain-172445111.html)
-- Aug 08 - [Doctor charged with 50 counts of drugging and raping women](https://news.yahoo.com/doctor-charged-50-counts-drugging-171423394.html)
-- Aug 08 - [Miss Universe Indonesia contestants say that they were forced to strip down to their underwear for 'body checks'](https://news.yahoo.com/miss-universe-indonesia-contestants-were-165910032.html)
-- Aug 08 - [Michigan mayor faces calls to resign over charges in fake elector case](https://news.yahoo.com/michigan-mayor-faces-calls-resign-164700220.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
