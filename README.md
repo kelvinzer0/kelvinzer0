@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [Scouts begin S. Korea jamboree evacuation over extreme weather challenges](https://news.yahoo.com/scouts-begin-korea-jamboree-evacuation-024210935.html)
+- Aug 08 - [The US Army soldier behind the viral 'Gen Z on the battlefield' videos says people need to wake up and realize 'this ain't the old army'](https://www.yahoo.com/entertainment/us-army-soldier-behind-viral-004501324.html)
 - Aug 08 - [Woman Behind Viral ‘Not Real’ Airplane Outburst Has Been Identified, Is Real](https://www.yahoo.com/entertainment/woman-behind-viral-not-real-004313630.html)
 - Aug 07 - [Carcinogens found at Montana nuclear missile sites as reports of hundreds of cancers surface](https://news.yahoo.com/carcinogens-found-nuclear-missile-sites-233915884.html)
 - Aug 07 - [Woman Who Was Brutally Attacked by River Otter Shares Graphic Photos](https://www.yahoo.com/lifestyle/woman-brutally-attacked-river-otter-232357876.html)
-- Aug 07 - [Greta Thunberg says she will no longer speak at a climate event, accusing a sponsor of greenwashing by investing in companies tied to the fossil fuel industry](https://news.yahoo.com/greta-thunberg-says-she-no-223554853.html)
-- Aug 07 - [A snake fell from the sky onto a woman in Silsbee, Texas, while she mowed her lawn — then a hawk attacked them both](https://news.yahoo.com/snake-fell-sky-onto-woman-215907432.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
