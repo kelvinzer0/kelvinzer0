@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [China and Russia have achieved naval success off Alaska – where the US Navy has no bases](https://news.yahoo.com/china-russia-achieved-naval-success-173340587.html)
+- Aug 08 - [Melania Trump Is Reportedly ‘Terrified’ That a Certain Email She Sent Could Incriminate Donald Trump](https://www.yahoo.com/entertainment/melania-trump-reportedly-terrified-certain-172445111.html)
+- Aug 08 - [Doctor charged with 50 counts of drugging and raping women](https://news.yahoo.com/doctor-charged-50-counts-drugging-171423394.html)
+- Aug 08 - [Miss Universe Indonesia contestants say that they were forced to strip down to their underwear for 'body checks'](https://news.yahoo.com/miss-universe-indonesia-contestants-were-165910032.html)
 - Aug 08 - [Michigan mayor faces calls to resign over charges in fake elector case](https://news.yahoo.com/michigan-mayor-faces-calls-resign-164700220.html)
-- Aug 08 - [Nasa asteroid blunder unleashes boulder storm ‘as deadly as Hiroshima’](https://news.yahoo.com/nasa-asteroid-blunder-unleashes-boulder-160735199.html)
-- Aug 08 - ['People Are So Silly': Joe Rogan Drinks Bud Light, Blasts Boycott Over Dylan Mulvaney During Podcast — Could This Be A Turning Point For The Battered Beer Brand?](https://finance.yahoo.com/news/people-silly-joe-rogan-drinks-160246436.html)
-- Aug 08 - [What you should — and shouldn't — do if you win the Mega Millions jackpot, according to an expert](https://news.yahoo.com/what-you-should--and-shouldnt--do-if-you-win-the-mega-millions-jackpot-according-to-an-expert-154711354.html)
-- Aug 08 - [No, Trump’s poll numbers don't 'go way up' every time he gets indicted](https://news.yahoo.com/no-trumps-poll-numbers-dont-go-way-up-every-time-he-gets-indicted-145507082.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
