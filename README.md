@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Buffalo Bills new stadium cost over-runs approaching $300M over budget, AP sources say](https://news.yahoo.com/buffalo-bills-stadium-cost-over-192652462.html)
-- Aug 09 - [The COVID EG.5 Symptoms Doctors Are Seeing The Most Right Now](https://news.yahoo.com/covid-eg-5-symptoms-doctors-185737159.html)
-- Aug 09 - [‘It’s apocalyptic’: People jump into the ocean to flee Maui wildfires as patients overwhelm hospitals and 911 gets cut off](https://news.yahoo.com/people-jumped-ocean-off-maui-105045553.html)
-- Aug 09 - [Florida Gov. DeSantis Suspends Official, Smiles Behind 'This Is Fine' Meme](https://news.yahoo.com/florida-gov-desantis-suspends-official-182033904.html)
-- Aug 09 - [Ex-Las Vegas Raider Henry Ruggs sentenced to 3-plus years in prison for fatal DUI crash in Nevada](https://news.yahoo.com/ex-las-vegas-raider-henry-174342499.html)
+- Aug 09 - [At least 6 dead as Maui wildfires overwhelm hospitals, sever 911 services and force people to flee into the ocean](https://news.yahoo.com/people-jumped-ocean-off-maui-105045553.html)
+- Aug 09 - [Ron DeSantis Suspends Florida’s Only Black Female State Attorney in Radical Move — and Local Sheriff Mocks Her](https://www.yahoo.com/entertainment/ron-desantis-suspends-florida-only-202748473.html)
+- Aug 09 - [16-year-old girl charged with assault for viral attack on Asian family riding NYC subway](https://news.yahoo.com/16-old-girl-charged-assault-200210055.html)
+- Aug 09 - [Which is cheaper to fuel, a gasoline car or an EV? Washington Post takes a deep dive](https://www.autoblog.com/2023/08/09/which-is-cheaper-to-fuel-a-gasoline-car-or-an-ev-washington-post-takes-a-deep-dive/)
+- Aug 09 - [Utah man suspected of threatening President Joe Biden shot and killed as FBI served warrant](https://news.yahoo.com/utah-man-suspected-threatening-president-195134884.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
