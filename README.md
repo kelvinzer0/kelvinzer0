@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [Uncovered ‘Fraudulent Elector’ Memo Reveals Details of Plot to Overturn 2020 Election: Report](https://news.yahoo.com/uncovered-fraudulent-elector-memo-reveals-034134103.html)
+- Aug 09 - [Trump judge in docs case makes misguided argument curiously similar to Fox News guest: Weissmann](https://news.yahoo.com/trump-judge-docs-case-makes-031029745.html)
 - Aug 09 - [Kim Kardashian shares her experience getting a $2,500 full-body MRI scan that experts say could do more harm than good](https://www.yahoo.com/lifestyle/kim-kardashian-shares-her-experience-020634809.html)
 - Aug 09 - [US Navy sailor's mom encouraged him to pass military details to China, prosecutor says](https://news.yahoo.com/us-navy-sailors-mom-encouraged-004423777.html)
 - Aug 09 - [Oncologist kills 4-month-old baby, then dies by suicide. Postpartum psychosis was a likely factor. An expert explains.](https://www.yahoo.com/lifestyle/oncologist-kills-4-month-old-003622025.html)
-- Aug 09 - [Ohio Special Election Designed to Thwart Abortion Vote Fails Spectacularly](https://news.yahoo.com/ohio-special-election-designed-thwart-001400480.html)
-- Aug 08 - [Miami police begin pulling cars submerged from a Doral lake. Here's what they found so far.](https://news.yahoo.com/miami-police-being-pulling-cars-232602734.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
