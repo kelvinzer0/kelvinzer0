@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [Philippines says 'promise' to remove grounded warship a figment of China's imagination](https://news.yahoo.com/philippines-says-promise-remove-grounded-094026980.html)
 - Aug 09 - ['He Hates America': Trump Slammed For Admitting He'd 'Prefer' To Live Overseas](https://news.yahoo.com/hates-america-trump-slammed-admitting-071531117.html)
 - Aug 09 - [The fake meat fad has finally been exposed as a complete waste of money](https://news.yahoo.com/fake-meat-fad-finally-exposed-050000776.html)
 - Aug 09 - [How the end of ‘Made in China’ is crippling the world’s second largest economy](https://finance.yahoo.com/news/end-made-china-crippling-world-050000386.html)
 - Aug 09 - [Uncovered ‘Fraudulent Elector’ Memo Reveals Details of Plot to Overturn 2020 Election: Report](https://news.yahoo.com/uncovered-fraudulent-elector-memo-reveals-034134103.html)
-- Aug 09 - [Trump judge in docs case makes misguided argument curiously similar to Fox News guest: Weissmann](https://news.yahoo.com/trump-judge-docs-case-makes-031029745.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
