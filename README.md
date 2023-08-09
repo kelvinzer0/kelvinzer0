@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Massive Explosion Outside Moscow Leaves Dozens Injured](https://news.yahoo.com/massive-explosion-outside-moscow-leaves-100350074.html)
+- Aug 09 - [ESPN, PENN Entertainment strike $2 billion sports betting deal, Dave Portnoy buys back Barstool Sports](https://finance.yahoo.com/news/espn-penn-entertainment-strike-2-billion-sports-betting-deal-dave-portnoy-buys-back-barstool-sports-210355050.html)
+- Aug 09 - [This San Francisco woman makes more than $10K/month by buying, selling fixer-uppers — and she’s only 25. Here's how she built her real-estate riches](https://finance.yahoo.com/news/san-francisco-woman-makes-more-120000389.html)
+- Aug 09 - [A 101-year-old neurologist who still works full time shares what he eats in a day](https://www.yahoo.com/lifestyle/101-old-neurologist-still-works-114142107.html)
+- Aug 09 - [Mining company makes ‘significant’ discovery that could change our cars forever: ‘When you find something of that magnitude … ‘](https://news.yahoo.com/mining-company-makes-significant-discovery-110000418.html)
 - Aug 09 - [Here's how to ban Trump — and other MAGA cultists — from holding public office](https://news.yahoo.com/heres-ban-trump-other-maga-093002838.html)
-- Aug 09 - [Hawk drops snake on woman - and both animals attack her](https://news.yahoo.com/woman-savaged-falling-snake-angry-091659448.html)
-- Aug 09 - ['He Hates America': Trump Slammed For Admitting He'd 'Prefer' To Live Overseas](https://news.yahoo.com/hates-america-trump-slammed-admitting-071531117.html)
-- Aug 09 - [Chris Christie Turns Trump’s ‘Fat Pig’ Insult Into A Gutsy New Attack](https://news.yahoo.com/chris-christie-turns-trump-fat-062309772.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
