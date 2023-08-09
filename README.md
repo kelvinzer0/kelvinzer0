@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Philippines says 'promise' to remove grounded warship a figment of China's imagination](https://news.yahoo.com/philippines-says-promise-remove-grounded-094026980.html)
+- Aug 09 - [Here's how to ban Trump — and other MAGA cultists — from holding public office](https://news.yahoo.com/heres-ban-trump-other-maga-093002838.html)
+- Aug 09 - [Hawk drops snake on woman - and both animals attack her](https://news.yahoo.com/woman-savaged-falling-snake-angry-091659448.html)
 - Aug 09 - ['He Hates America': Trump Slammed For Admitting He'd 'Prefer' To Live Overseas](https://news.yahoo.com/hates-america-trump-slammed-admitting-071531117.html)
 - Aug 09 - [The fake meat fad has finally been exposed as a complete waste of money](https://news.yahoo.com/fake-meat-fad-finally-exposed-050000776.html)
 - Aug 09 - [How the end of ‘Made in China’ is crippling the world’s second largest economy](https://finance.yahoo.com/news/end-made-china-crippling-world-050000386.html)
-- Aug 09 - [Uncovered ‘Fraudulent Elector’ Memo Reveals Details of Plot to Overturn 2020 Election: Report](https://news.yahoo.com/uncovered-fraudulent-elector-memo-reveals-034134103.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
