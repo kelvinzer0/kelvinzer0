@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [ESPN, PENN Entertainment strike $2 billion sports betting deal, Dave Portnoy buys back Barstool Sports](https://finance.yahoo.com/news/espn-penn-entertainment-strike-2-billion-sports-betting-deal-dave-portnoy-buys-back-barstool-sports-210355050.html)
+- Aug 09 - [NFL cornerback arrested in Charlotte with stolen car, guns, CMPD says](https://news.yahoo.com/nfl-cornerback-arrested-charlotte-stolen-155251622.html)
 - Aug 09 - [‘It’s apocalyptic’: People jump into the ocean to flee Maui wildfires as patients overwhelm hospitals and 911 gets cut off](https://news.yahoo.com/people-jumped-ocean-off-maui-105045553.html)
-- Aug 09 - [Four relatives came to lunch. Three died with symptoms of ‘death cap’ mushroom poisoning](https://news.yahoo.com/four-relatives-came-lunch-three-052120780.html)
-- Aug 09 - [This San Francisco woman makes more than $10K/month by buying, selling fixer-uppers — and she’s only 25. Here's how she built her real-estate riches](https://finance.yahoo.com/news/san-francisco-woman-makes-more-120000389.html)
-- Aug 09 - [A 101-year-old neurologist who still works full time shares what he eats in a day](https://www.yahoo.com/lifestyle/101-old-neurologist-still-works-114142107.html)
+- Aug 09 - [An American tourist infuriated viewers saying she sneaked onto a train without paying while on vacation in Rome. She says it was just clickbait.](https://www.yahoo.com/entertainment/american-tourist-infuriated-viewers-saying-154945275.html)
+- Aug 09 - [ESPN, PENN Entertainment strike $2 billion sports betting deal, Dave Portnoy buys back Barstool Sports](https://finance.yahoo.com/news/espn-penn-entertainment-strike-2-billion-sports-betting-deal-dave-portnoy-buys-back-barstool-sports-210355050.html)
+- Aug 09 - [Here's who just won $1.58 billion in the Mega Millions lottery](https://www.thestreet.com/entertainment/heres-who-just-won-1-58-billion-in-the-mega-millions-lottery?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Are you tired of coding?
