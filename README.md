@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 09 - [At least 6 dead as Maui wildfires overwhelm hospitals, sever 911 services and force people to flee into the ocean](https://news.yahoo.com/people-jumped-ocean-off-maui-105045553.html)
+- Aug 09 - [Biden snaps at Fox’s Peter Doocy for ‘lousy question’ about Devon Archer](https://news.yahoo.com/biden-snaps-fox-peter-doocy-220001626.html)
 - Aug 09 - [Couple sues metro Atlanta hospital after they say doctor decapitated baby during birth](https://news.yahoo.com/couple-sues-metro-atlanta-hospital-205828361.html)
-- Aug 09 - [Ron DeSantis Suspends Florida’s Only Black Female State Attorney in Radical Move — and Local Sheriff Mocks Her](https://www.yahoo.com/entertainment/ron-desantis-suspends-florida-only-202748473.html)
-- Aug 09 - [China's internet giants order $5 billion of Nvidia chips to power AI ambitions -FT](https://finance.yahoo.com/news/chinas-internet-giants-order-5-202356659.html)
-- Aug 09 - [16-year-old girl charged with assault for viral attack on Asian family riding NYC subway](https://news.yahoo.com/16-old-girl-charged-assault-200210055.html)
+- Aug 09 - [Career criminal accused of stabbing Asian passenger nearly 20 times in Seattle train attack](https://news.yahoo.com/career-criminal-accused-stabbing-asian-204444467.html)
+- Aug 09 - [Dave Portnoy Paid $1 (Yes, One Dollar) to Buy Barstool Sports Back From Penn, Which Will Take Up to $850 Million Charge Related to Disposal of the Business](https://www.yahoo.com/entertainment/dave-portnoy-paid-1-yes-203914321.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
