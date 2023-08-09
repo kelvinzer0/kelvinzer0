@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 09 - [At least 6 dead as Maui wildfires overwhelm hospitals, sever 911 services and force people to flee into the ocean](https://news.yahoo.com/people-jumped-ocean-off-maui-105045553.html)
+- Aug 09 - [Couple sues metro Atlanta hospital after they say doctor decapitated baby during birth](https://news.yahoo.com/couple-sues-metro-atlanta-hospital-205828361.html)
 - Aug 09 - [Ron DeSantis Suspends Florida’s Only Black Female State Attorney in Radical Move — and Local Sheriff Mocks Her](https://www.yahoo.com/entertainment/ron-desantis-suspends-florida-only-202748473.html)
+- Aug 09 - [China's internet giants order $5 billion of Nvidia chips to power AI ambitions -FT](https://finance.yahoo.com/news/chinas-internet-giants-order-5-202356659.html)
 - Aug 09 - [16-year-old girl charged with assault for viral attack on Asian family riding NYC subway](https://news.yahoo.com/16-old-girl-charged-assault-200210055.html)
-- Aug 09 - [Which is cheaper to fuel, a gasoline car or an EV? Washington Post takes a deep dive](https://www.autoblog.com/2023/08/09/which-is-cheaper-to-fuel-a-gasoline-car-or-an-ev-washington-post-takes-a-deep-dive/)
-- Aug 09 - [Utah man suspected of threatening President Joe Biden shot and killed as FBI served warrant](https://news.yahoo.com/utah-man-suspected-threatening-president-195134884.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
