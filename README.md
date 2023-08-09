@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [How the end of ‘Made in China’ is crippling the world’s second largest economy](https://finance.yahoo.com/news/end-made-china-crippling-world-050000386.html)
+- Aug 09 - [The fake meat fad has finally been exposed as a complete waste of money](https://news.yahoo.com/fake-meat-fad-finally-exposed-050000776.html)
 - Aug 09 - [Uncovered ‘Fraudulent Elector’ Memo Reveals Details of Plot to Overturn 2020 Election: Report](https://news.yahoo.com/uncovered-fraudulent-elector-memo-reveals-034134103.html)
 - Aug 09 - [Trump judge in docs case makes misguided argument curiously similar to Fox News guest: Weissmann](https://news.yahoo.com/trump-judge-docs-case-makes-031029745.html)
-- Aug 09 - [Kim Kardashian shares her experience getting a $2,500 full-body MRI scan that experts say could do more harm than good](https://www.yahoo.com/lifestyle/kim-kardashian-shares-her-experience-020634809.html)
 - Aug 09 - [US Navy sailor's mom encouraged him to pass military details to China, prosecutor says](https://news.yahoo.com/us-navy-sailors-mom-encouraged-004423777.html)
-- Aug 09 - [Oncologist kills 4-month-old baby, then dies by suicide. Postpartum psychosis was a likely factor. An expert explains.](https://www.yahoo.com/lifestyle/oncologist-kills-4-month-old-003622025.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
