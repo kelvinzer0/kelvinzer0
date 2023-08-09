@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [Multiple Maui Communities Evacuated Due to Destructive Lahaina Fire](https://news.yahoo.com/multiple-maui-communities-evacuated-due-182736334.html)
 - Aug 09 - [Michigan mom is charged with buying guns for son who threatened top Democrats, prosecutors say](https://news.yahoo.com/michigan-mom-charged-buying-guns-171003417.html)
+- Aug 09 - [Judge Reminds Anti-Abortion Attorneys That No Women Helped Draft Utah's Constitution in 1895](https://news.yahoo.com/judge-reminds-anti-abortion-attorneys-170500779.html)
 - Aug 09 - [‘Large’ creature — with 20 arms — found lurking in Antarctic sea. It’s a new species](https://news.yahoo.com/large-creature-20-arms-found-170241310.html)
 - Aug 09 - [Tech workers react to UPS drivers landing a $170,000 a year package with a mixture of anger and admiration](https://news.yahoo.com/tech-workers-react-ups-drivers-165836925.html)
-- Aug 09 - [Special counsel got a search warrant for Twitter to turn over info on Trump's account, documents say](https://finance.yahoo.com/news/special-counsel-obtained-search-warrant-165833738.html)
-- Aug 09 - [A hungry snake tried to eat a porcupine. It didn’t go well, Israel photo shows](https://news.yahoo.com/hungry-snake-tried-eat-porcupine-165649586.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
