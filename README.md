@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 09 - [US Navy sailor's mom encouraged him to pass military details to China, prosecutor says](https://news.yahoo.com/us-navy-sailors-mom-encouraged-004423777.html)
+- Aug 09 - [Oncologist kills 4-month-old baby, then dies by suicide. Postpartum psychosis was a likely factor. An expert explains.](https://www.yahoo.com/lifestyle/oncologist-kills-4-month-old-003622025.html)
 - Aug 09 - [Ohio Special Election Designed to Thwart Abortion Vote Fails Spectacularly](https://news.yahoo.com/ohio-special-election-designed-thwart-001400480.html)
-- Aug 09 - [Donald Trump was supposed to deliver his pitch to veterans. He unloaded on his indictments.](https://news.yahoo.com/donald-trump-supposed-deliver-pitch-000025191.html)
-- Aug 08 - [Dave Portnoy buys Barstool Sports back for next to nothing, years after selling it](https://news.yahoo.com/dave-portnoy-buys-barstool-sports-223520146.html)
+- Aug 08 - [Miami police begin pulling cars submerged from a Doral lake. Here's what they found so far.](https://news.yahoo.com/miami-police-being-pulling-cars-232602734.html)
 - Aug 08 - [Mexico shutters 23 pharmacies at Caribbean coast resorts after US warned of dangerous pill sales](https://news.yahoo.com/mexico-shutters-23-pharmacies-caribbean-231319958.html)
 <!-- feed end -->
 
