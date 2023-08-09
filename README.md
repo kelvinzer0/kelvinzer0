@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Multiple Maui Communities Evacuated Due to Destructive Lahaina Fire](https://news.yahoo.com/multiple-maui-communities-evacuated-due-182736334.html)
-- Aug 09 - [Michigan mom is charged with buying guns for son who threatened top Democrats, prosecutors say](https://news.yahoo.com/michigan-mom-charged-buying-guns-171003417.html)
-- Aug 09 - [Judge Reminds Anti-Abortion Attorneys That No Women Helped Draft Utah's Constitution in 1895](https://news.yahoo.com/judge-reminds-anti-abortion-attorneys-170500779.html)
-- Aug 09 - [‘Large’ creature — with 20 arms — found lurking in Antarctic sea. It’s a new species](https://news.yahoo.com/large-creature-20-arms-found-170241310.html)
-- Aug 09 - [Tech workers react to UPS drivers landing a $170,000 a year package with a mixture of anger and admiration](https://news.yahoo.com/tech-workers-react-ups-drivers-165836925.html)
+- Aug 09 - [Buffalo Bills new stadium cost over-runs approaching $300M over budget, AP sources say](https://news.yahoo.com/buffalo-bills-stadium-cost-over-192652462.html)
+- Aug 09 - [The COVID EG.5 Symptoms Doctors Are Seeing The Most Right Now](https://news.yahoo.com/covid-eg-5-symptoms-doctors-185737159.html)
+- Aug 09 - [‘It’s apocalyptic’: People jump into the ocean to flee Maui wildfires as patients overwhelm hospitals and 911 gets cut off](https://news.yahoo.com/people-jumped-ocean-off-maui-105045553.html)
+- Aug 09 - [Florida Gov. DeSantis Suspends Official, Smiles Behind 'This Is Fine' Meme](https://news.yahoo.com/florida-gov-desantis-suspends-official-182033904.html)
+- Aug 09 - [Ex-Las Vegas Raider Henry Ruggs sentenced to 3-plus years in prison for fatal DUI crash in Nevada](https://news.yahoo.com/ex-las-vegas-raider-henry-174342499.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
