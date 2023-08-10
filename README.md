@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 10 - [Hawaii wildfires burn historic town of Lahaina 'to the ground'](https://news.yahoo.com/hawaii-wildfires-burn-historic-town-013522796.html)
+- Aug 10 - [Mexico president asks why, if a woman criticizes him, he isn't considered victim of gender violence](https://news.yahoo.com/mexico-president-asks-why-woman-021430415.html)
 - Aug 10 - [Man loses 450 pounds after reaching 'rock bottom.' 1 key diet change helped](https://news.yahoo.com/man-loses-450-pounds-reaching-004813629.html)
 - Aug 10 - [Trump says he won't sign Republican loyalty pledge, flouting debate requirement](https://news.yahoo.com/trump-says-wont-sign-republican-004206391.html)
 - Aug 09 - [Woman details experiencing 'Ozempic face' after losing 68 pounds on the drug](https://news.yahoo.com/woman-details-experiencing-ozempic-face-172411069.html)
-- Aug 09 - [Biden snaps at Fox’s Peter Doocy for ‘lousy question’ about Devon Archer](https://news.yahoo.com/biden-snaps-fox-peter-doocy-220001626.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
