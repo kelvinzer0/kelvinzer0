@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - ['Holy, what did I do?': This NFL star retired at 28 to start selling Pokemon cards. His company is now embroiled in scandal — here are 2 booming collectibles you can confidently scoop up](https://finance.yahoo.com/news/holy-did-nfl-star-retired-110000236.html)
+- Aug 10 - [Mike Pence Says He's 'Deeply Offended' By Vivek Ramaswamy's 9/11 'Truth' Claim](https://news.yahoo.com/mike-pence-says-hes-deeply-115001333.html)
+- Aug 10 - [Joe Biden Goes Full Dark Brandon Barking Back At Fox News' Peter Doocy](https://www.yahoo.com/entertainment/joe-biden-goes-full-dark-105517845.html)
 - Aug 10 - ["You will get violence": Leading democracy expert says Donald Trump is not running to win election](https://news.yahoo.com/violence-leading-democracy-expert-says-094501120.html)
-- Aug 10 - [Hawaii wildfires burn historic town of Lahaina to the ground](https://news.yahoo.com/hawaii-wildfires-burn-historic-town-013522796.html)
 - Aug 10 - [This massive, crumbling shipwreck-turned-military station has become the latest flashpoint in tense US-China relations. Take a look inside.](https://news.yahoo.com/massive-crumbling-shipwreck-turned-military-090127307.html)
-- Aug 10 - ['Bedmates' are a hot commodity for China's broke and jobless youth, who say they need to sleep next to strangers just to survive in the country's megacities](https://www.yahoo.com/entertainment/bedmates-hot-commodity-chinas-broke-074542692.html)
-- Aug 10 - [A first-class passenger slammed American Airlines for overbooking his flight and canceling his ticket, leaving him stuck in Europe: 'I'm an Executive Platinum member'](https://news.yahoo.com/first-class-passenger-slammed-american-060145482.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
