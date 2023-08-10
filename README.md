@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Texas judge says no quick ruling expected over GOP efforts to toss 2022 election losses near Houston](https://news.yahoo.com/texas-judge-says-no-quick-211601128.html)
+- Aug 10 - [“I don’t want to die at the gym:” Car thieves open fire at metro Atlanta L.A. fitness, police say](https://news.yahoo.com/don-t-want-die-gym-211311059.html)
+- Aug 10 - [Fox News Hosts Keep Shouting Down Liberal Who Bursts Their Devon Archer Bubble](https://www.yahoo.com/entertainment/fox-news-hosts-keep-shouting-210424975.html)
+- Aug 10 - [This Pennsylvania trio bought a $100K abandoned school and turned it into a 31-unit apartment building — here's how to invest in residential real estate without all the heavy lifting](https://finance.yahoo.com/news/pennsylvania-trio-bought-100k-abandoned-204500327.html)
 - Aug 10 - [Investigators say miscommunication between pilots caused United plane to drop near ocean's surface](https://news.yahoo.com/investigators-miscommunication-between-pilots-caused-194253659.html)
-- Aug 10 - [Couple faces backlash after allegedly staging TikTok rescue of domestic violence victim: 'We don’t care that people get mad about it'](https://news.yahoo.com/couple-faces-backlash-after-allegedly-staging-tiktok-rescue-of-domestic-violence-victim-we-dont-care-that-people-get-mad-about-it-192352335.html)
-- Aug 10 - [3 hunters found dead in underground reservoir in Texas were trying to rescue dog, each other](https://news.yahoo.com/3-hunters-found-dead-underground-191711920.html)
-- Aug 10 - [I'm Absolutely Dying Laughing At These 32 People Who Just Got Absolutely Roasted Into Oblivion](https://www.yahoo.com/lifestyle/im-absolutely-dying-laughing-32-191633600.html)
-- Aug 10 - [A new homeowner discovered a 12-foot deep pool underneath her rotting floorboards and transformed it into an indoor oasis — but not everyone loved it](https://www.yahoo.com/entertainment/homeowner-discovered-12-foot-deep-190618228.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
