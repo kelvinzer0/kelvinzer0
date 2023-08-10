@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [A passenger slammed American Airlines for overbooking his flight and canceling his ticket, leaving him stuck in Europe: 'I'm an Executive Platinum member'](https://news.yahoo.com/first-class-passenger-slammed-american-060145482.html)
+- Aug 10 - [Philippine president suspends 22 land reclamation projects in Manila Bay after US airs concerns](https://news.yahoo.com/philippine-president-suspends-22-land-140303958.html)
+- Aug 10 - [Legal experts: Judge Cannon risks “recusal” as Trump asks to bring docs back to “scene of the crime”](https://news.yahoo.com/legal-experts-judge-cannon-risks-131451571.html)
 - Aug 10 - [Donald Trump has gone off the deep end for real: He's a danger to humanity](https://news.yahoo.com/donald-trump-gone-off-deep-131308738.html)
 - Aug 10 - [Officials suspect Rachel Morin died in 'violent homicide' after she went missing on Maryland trail](https://news.yahoo.com/officials-suspect-rachel-morin-died-121130800.html)
-- Aug 10 - ['Holy, what did I do?': This NFL star retired at 28 to start selling Pokemon cards. His company is now embroiled in scandal — here are 2 booming collectibles you can confidently scoop up](https://finance.yahoo.com/news/holy-did-nfl-star-retired-110000236.html)
-- Aug 10 - [Maui fires: Aerial photos show damage in Lahaina, Banyan Court after deadly wildfires](https://news.yahoo.com/maui-fires-aerial-photos-show-115837122.html)
-- Aug 10 - [Joe Biden Goes Full Dark Brandon Barking Back At Fox News' Peter Doocy](https://www.yahoo.com/entertainment/joe-biden-goes-full-dark-105517845.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
