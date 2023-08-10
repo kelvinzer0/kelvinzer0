@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [A passenger slammed American Airlines for overbooking his flight and canceling his ticket, leaving him stuck in Europe: 'I'm an Executive Platinum member'](https://news.yahoo.com/first-class-passenger-slammed-american-060145482.html)
+- Aug 10 - [Top mountaineer defends walking past dying Sherpa in pursuit of K2 record](https://news.yahoo.com/kristin-harila-accused-walking-over-162436888.html)
+- Aug 10 - [Ring by ring, majestic banyan tree in heart of fire-scorched Lahaina chronicles 150 years of history](https://news.yahoo.com/ring-ring-majestic-banyan-tree-162808916.html)
 - Aug 10 - [Philippine president suspends 22 land reclamation projects in Manila Bay after US airs concerns](https://news.yahoo.com/philippine-president-suspends-22-land-140303958.html)
 - Aug 10 - [Legal experts: Judge Cannon risks “recusal” as Trump asks to bring docs back to “scene of the crime”](https://news.yahoo.com/legal-experts-judge-cannon-risks-131451571.html)
 - Aug 10 - [Donald Trump has gone off the deep end for real: He's a danger to humanity](https://news.yahoo.com/donald-trump-gone-off-deep-131308738.html)
-- Aug 10 - [WTF: Black Teacher Accuses White Supremacist Group of a 'Racial Attack' as He Was Playing Saxophone](https://news.yahoo.com/wtf-black-teacher-accuses-white-130000088.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
