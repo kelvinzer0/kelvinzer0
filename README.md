@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Donald Trump has gone off the deep end for real: He's a danger to humanity](https://news.yahoo.com/donald-trump-gone-off-deep-131308738.html)
 - Aug 10 - [Officials suspect Rachel Morin died in 'violent homicide' after she went missing on Maryland trail](https://news.yahoo.com/officials-suspect-rachel-morin-died-121130800.html)
 - Aug 10 - ['Holy, what did I do?': This NFL star retired at 28 to start selling Pokemon cards. His company is now embroiled in scandal — here are 2 booming collectibles you can confidently scoop up](https://finance.yahoo.com/news/holy-did-nfl-star-retired-110000236.html)
+- Aug 10 - [Maui fires: Aerial photos show damage in Lahaina, Banyan Court after deadly wildfires](https://news.yahoo.com/maui-fires-aerial-photos-show-115837122.html)
 - Aug 10 - [Joe Biden Goes Full Dark Brandon Barking Back At Fox News' Peter Doocy](https://www.yahoo.com/entertainment/joe-biden-goes-full-dark-105517845.html)
-- Aug 10 - ["You will get violence": Leading democracy expert says Donald Trump is not running to win election](https://news.yahoo.com/violence-leading-democracy-expert-says-094501120.html)
-- Aug 10 - ['Bedmates' are a hot commodity for China's broke and jobless youth, who say they need to sleep next to strangers just to survive in the country's megacities](https://www.yahoo.com/entertainment/bedmates-hot-commodity-chinas-broke-074542692.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
