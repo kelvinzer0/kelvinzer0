@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Report: Southwest Airlines making huge boarding process change](https://www.thestreet.com/travel/southwest-airlines-making-huge-boarding-process-change?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Aug 10 - [21 Heartbreaking Images Of Hawai'i's Deadly Wildfires And Its Devastating Effects](https://www.yahoo.com/lifestyle/21-heartbreaking-images-hawaiis-deadly-181620956.html)
+- Aug 10 - [The girlfriend of a Ukrainian soldier fighting on the front lines is shocked Kyiv residents are partying while the war grinds on](https://news.yahoo.com/girlfriend-ukrainian-soldier-fighting-front-172651349.html)
 - Aug 10 - [Top mountaineer defends walking past dying Sherpa in pursuit of K2 record](https://news.yahoo.com/kristin-harila-accused-walking-over-162436888.html)
-- Aug 10 - [Ring by ring, majestic banyan tree in heart of fire-scorched Lahaina chronicles 150 years of history](https://news.yahoo.com/ring-ring-majestic-banyan-tree-162808916.html)
-- Aug 10 - [Philippine president suspends 22 land reclamation projects in Manila Bay after US airs concerns](https://news.yahoo.com/philippine-president-suspends-22-land-140303958.html)
-- Aug 10 - [Legal experts: Judge Cannon risks “recusal” as Trump asks to bring docs back to “scene of the crime”](https://news.yahoo.com/legal-experts-judge-cannon-risks-131451571.html)
-- Aug 10 - [Donald Trump has gone off the deep end for real: He's a danger to humanity](https://news.yahoo.com/donald-trump-gone-off-deep-131308738.html)
+- Aug 10 - [Michelle Obama could be America's next President](https://news.yahoo.com/michelle-obama-could-americas-next-164537411.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
