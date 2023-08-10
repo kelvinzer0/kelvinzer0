@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Aug 10 - [Mexico president asks why, if a woman criticizes him, he isn't considered victim of gender violence](https://news.yahoo.com/mexico-president-asks-why-woman-021430415.html)
 - Aug 10 - [Man loses 450 pounds after reaching 'rock bottom.' 1 key diet change helped](https://news.yahoo.com/man-loses-450-pounds-reaching-004813629.html)
 - Aug 10 - [Trump says he won't sign Republican loyalty pledge, flouting debate requirement](https://news.yahoo.com/trump-says-wont-sign-republican-004206391.html)
-- Aug 09 - [Woman details experiencing 'Ozempic face' after losing 68 pounds on the drug](https://news.yahoo.com/woman-details-experiencing-ozempic-face-172411069.html)
+- Aug 10 - [How did the Maui fires start? What we know about humans making disasters worse](https://news.yahoo.com/did-maui-fires-start-know-002209962.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
