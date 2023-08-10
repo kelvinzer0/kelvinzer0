@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Hawaii wildfires burn historic town of Lahaina to the ground](https://news.yahoo.com/hawaii-wildfires-burn-historic-town-013522796.html)
+- Aug 10 - [Newsmax Ends Trump Interview With Super Awkward Disclaimer](https://news.yahoo.com/newsmax-ends-trump-interview-super-045703232.html)
 - Aug 10 - [Indictment shows White House lawyers struggling for control as Trump fought to overturn election](https://news.yahoo.com/indictment-shows-white-house-lawyers-040522726.html)
-- Aug 10 - [Hawaii wildfires burn historic town of Lahaina 'to the ground'](https://news.yahoo.com/hawaii-wildfires-burn-historic-town-013522796.html)
-- Aug 10 - [Man sentenced to life in prison for raping woman while her 3-year-old son was in the room](https://news.yahoo.com/man-sentenced-life-prison-raping-005511057.html)
 - Aug 10 - [Man loses 450 pounds after reaching 'rock bottom.' 1 key diet change helped](https://news.yahoo.com/man-loses-450-pounds-reaching-004813629.html)
-- Aug 10 - [Trump says he won't sign Republican loyalty pledge, flouting debate requirement](https://news.yahoo.com/trump-says-wont-sign-republican-004206391.html)
+- Aug 10 - [How did the Maui fires start? What we know about humans making disasters worse](https://news.yahoo.com/did-maui-fires-start-know-002209962.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
