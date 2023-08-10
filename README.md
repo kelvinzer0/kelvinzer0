@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Hawaii wildfires burn historic town of Lahaina 'to the ground'](https://news.yahoo.com/hawaii-wildfires-burn-historic-town-013522796.html)
+- Aug 10 - [Man loses 450 pounds after reaching 'rock bottom.' 1 key diet change helped](https://news.yahoo.com/man-loses-450-pounds-reaching-004813629.html)
 - Aug 10 - [Trump says he won't sign Republican loyalty pledge, flouting debate requirement](https://news.yahoo.com/trump-says-wont-sign-republican-004206391.html)
-- Aug 10 - [At least 6 dead as Maui wildfires overwhelm hospitals, sever 911 services and force people to flee into the ocean](https://news.yahoo.com/people-jumped-ocean-off-maui-105045553.html)
 - Aug 09 - [Woman details experiencing 'Ozempic face' after losing 68 pounds on the drug](https://news.yahoo.com/woman-details-experiencing-ozempic-face-172411069.html)
-- Aug 09 - [Space tourists will probably have sex up there, but they shouldn't get pregnant, researchers warn](https://news.yahoo.com/space-tourists-probably-sex-shouldnt-234257460.html)
 - Aug 09 - [Biden snaps at Fox’s Peter Doocy for ‘lousy question’ about Devon Archer](https://news.yahoo.com/biden-snaps-fox-peter-doocy-220001626.html)
 <!-- feed end -->
 
