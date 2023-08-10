@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Couple faces backlash after allegedly staging TikTok rescue of domestic violence victim: 'We don’t care that people get mad about it'](https://news.yahoo.com/couple-faces-backlash-after-allegedly-staging-tiktok-rescue-of-domestic-violence-victim-we-dont-care-that-people-get-mad-about-it-192352335.html)
 - Aug 10 - [Report: Southwest Airlines making huge boarding process change](https://www.thestreet.com/travel/southwest-airlines-making-huge-boarding-process-change?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Aug 10 - [21 Heartbreaking Images Of Hawai'i's Deadly Wildfires And Its Devastating Effects](https://www.yahoo.com/lifestyle/21-heartbreaking-images-hawaiis-deadly-181620956.html)
-- Aug 10 - [The girlfriend of a Ukrainian soldier fighting on the front lines is shocked Kyiv residents are partying while the war grinds on](https://news.yahoo.com/girlfriend-ukrainian-soldier-fighting-front-172651349.html)
 - Aug 10 - [Top mountaineer defends walking past dying Sherpa in pursuit of K2 record](https://news.yahoo.com/kristin-harila-accused-walking-over-162436888.html)
-- Aug 10 - [Michelle Obama could be America's next President](https://news.yahoo.com/michelle-obama-could-americas-next-164537411.html)
+- Aug 10 - [Blue pickup truck identified in fatal shooting on Interstate 77 last week](https://news.yahoo.com/blue-pickup-truck-identified-fatal-164700307.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
