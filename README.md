@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Investigators say miscommunication between pilots caused United plane to drop near ocean's surface](https://news.yahoo.com/investigators-miscommunication-between-pilots-caused-194253659.html)
 - Aug 10 - [Couple faces backlash after allegedly staging TikTok rescue of domestic violence victim: 'We don’t care that people get mad about it'](https://news.yahoo.com/couple-faces-backlash-after-allegedly-staging-tiktok-rescue-of-domestic-violence-victim-we-dont-care-that-people-get-mad-about-it-192352335.html)
-- Aug 10 - [Report: Southwest Airlines making huge boarding process change](https://www.thestreet.com/travel/southwest-airlines-making-huge-boarding-process-change?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 10 - [21 Heartbreaking Images Of Hawai'i's Deadly Wildfires And Its Devastating Effects](https://www.yahoo.com/lifestyle/21-heartbreaking-images-hawaiis-deadly-181620956.html)
-- Aug 10 - [Top mountaineer defends walking past dying Sherpa in pursuit of K2 record](https://news.yahoo.com/kristin-harila-accused-walking-over-162436888.html)
-- Aug 10 - [Blue pickup truck identified in fatal shooting on Interstate 77 last week](https://news.yahoo.com/blue-pickup-truck-identified-fatal-164700307.html)
+- Aug 10 - [3 hunters found dead in underground reservoir in Texas were trying to rescue dog, each other](https://news.yahoo.com/3-hunters-found-dead-underground-191711920.html)
+- Aug 10 - [I'm Absolutely Dying Laughing At These 32 People Who Just Got Absolutely Roasted Into Oblivion](https://www.yahoo.com/lifestyle/im-absolutely-dying-laughing-32-191633600.html)
+- Aug 10 - [A new homeowner discovered a 12-foot deep pool underneath her rotting floorboards and transformed it into an indoor oasis — but not everyone loved it](https://www.yahoo.com/entertainment/homeowner-discovered-12-foot-deep-190618228.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
