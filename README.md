@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 10 - [A passenger slammed American Airlines for overbooking his flight and canceling his ticket, leaving him stuck in Europe: 'I'm an Executive Platinum member'](https://news.yahoo.com/first-class-passenger-slammed-american-060145482.html)
 - Aug 10 - [Philippine president suspends 22 land reclamation projects in Manila Bay after US airs concerns](https://news.yahoo.com/philippine-president-suspends-22-land-140303958.html)
-- Aug 10 - [Survey: Nearly 40% of Republicans believe racial equality efforts have gone 'too far'](https://news.yahoo.com/survey-republicans-racial-equality-efforts-too-far-pew-politics-gop-140037495.html)
 - Aug 10 - [Legal experts: Judge Cannon risks “recusal” as Trump asks to bring docs back to “scene of the crime”](https://news.yahoo.com/legal-experts-judge-cannon-risks-131451571.html)
 - Aug 10 - [Donald Trump has gone off the deep end for real: He's a danger to humanity](https://news.yahoo.com/donald-trump-gone-off-deep-131308738.html)
+- Aug 10 - [WTF: Black Teacher Accuses White Supremacist Group of a 'Racial Attack' as He Was Playing Saxophone](https://news.yahoo.com/wtf-black-teacher-accuses-white-130000088.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
