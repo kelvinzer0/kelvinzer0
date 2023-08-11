@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Austin moves to Stage 2 water restrictions on Tuesday. Here's what that means](https://news.yahoo.com/austin-moves-stage-2-water-190352676.html)
+- Aug 11 - ["Not amused": Judge sent Trump a "clear message" that he risks early trial if he keeps up attacks](https://news.yahoo.com/not-amused-judge-sent-trump-184710809.html)
+- Aug 11 - [OVI checkpoint to be held in Franklin County tonight. Here's where it will be](https://news.yahoo.com/ovi-checkpoint-held-franklin-county-184618409.html)
 - Aug 11 - [Katharine McPhee Rushes Home & Misses 2 Shows With David Foster Amid 'Horrible Tragedy' In Family](https://www.yahoo.com/entertainment/katharine-mcphee-rushes-home-misses-180151213.html)
 - Aug 11 - [They lost everything in the Paradise fire. Now they're reliving their grief as fires rage in Hawaii](https://news.yahoo.com/lost-everything-paradise-fire-now-173105739.html)
-- Aug 11 - [Prosecutors convinced a judge not to let Trump have his phone while reviewing trial documents because he has a 'tendency' to 'hold onto material' he shouldn't have](https://news.yahoo.com/prosecutors-convinced-judge-not-let-172921144.html)
-- Aug 11 - [New Hunter Biden Special Counsel Could Backfire Spectacularly for Republicans](https://news.yahoo.com/hunter-biden-special-counsel-could-172806454.html)
-- Aug 11 - [Woman accidentally films man stalking and sniffing her in Barnes & Noble, unearths ‘creepy’ string of similar attacks](https://news.yahoo.com/woman-accidentally-films-man-stalking-172656392.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
