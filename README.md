@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [New frontline of US border policy? A Texas pecan farm](https://news.yahoo.com/frontline-us-border-policy-texas-130351356.html)
-- Aug 11 - [Trump Is Disqualified From Holding Office, Conservative Law Professors Argue](https://news.yahoo.com/trump-disqualified-holding-office-conservative-121920656.html)
-- Aug 11 - ['Put the American public first': Senators propose new law to ban members of Congress and executive officials — including the president — from trading stocks](https://finance.yahoo.com/news/put-american-public-first-senators-211500437.html)
-- Aug 11 - [American Airlines passenger in viral videos of her screaming and having a breakdown said it's wrecked her life](https://news.yahoo.com/american-airlines-passenger-viral-videos-103230277.html)
-- Aug 11 - [Apple wants to pay you for your old iPhones and MacBooks — and some items are worth over $700](https://news.yahoo.com/apple-wants-pay-old-iphones-101500905.html)
+- Aug 11 - [Scientists uncover 8,000-year-old village underwater, find "treasure trove"](https://news.yahoo.com/scientists-uncover-8-000-old-143600610.html)
+- Aug 11 - ["Rattled" Trump melts down on Truth Social over Jack Smith's proposed trial date](https://news.yahoo.com/rattled-trump-melts-down-truth-135728272.html)
+- Aug 11 - [Chrysler owner calls for focus on reality in UAW labor talks](https://finance.yahoo.com/news/chrysler-parent-stellantis-criticizes-uaw-135250310.html)
+- Aug 11 - [Elon Musk says he is actually going to fight Mark Zuckerberg; please forgive me](https://news.yahoo.com/elon-musk-says-actually-going-133354456.html)
+- Aug 11 - [Zelensky: All enlistment office chiefs to be dismissed in Ukraine](https://news.yahoo.com/zelensky-enlistment-office-chiefs-dismissed-130530119.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
