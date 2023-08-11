@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 11 - ['Completely Full Of It': Chris Christie Gives Newsmax Host Blunt Trump Fact-Check](https://news.yahoo.com/completely-full-chris-christie-gives-045539139.html)
+- Aug 11 - [Millions of kids are missing weeks of school as attendance tanks across the US](https://news.yahoo.com/millions-kids-missing-weeks-school-040159873.html)
+- Aug 11 - [Lawrence: Jack Smith uses Trump lawyer John Lauro’s words against him in court](https://news.yahoo.com/lawrence-jack-smith-uses-trump-034451076.html)
 - Aug 11 - [Teen says she was sent home from Chick-fil-A job for having an ‘unnatural’ hair color: Blond](https://news.yahoo.com/teen-says-she-sent-home-031159674.html)
 - Aug 11 - [Special Counsel Jack Smith adds more charges against Trump, requests trial date](https://news.yahoo.com/special-counsel-jack-smith-adds-022136894.html)
-- Aug 11 - [Passengers aboard a United flight that rapidly descended to '748 feet from disaster' in the ocean were saved by a warning system amid crew miscommunications and poor weather, aviation expert says](https://news.yahoo.com/passengers-aboard-united-flight-rapidly-011154547.html)
-- Aug 11 - [Vaginal penetration can be painful for some. But sex isn't supposed to hurt, say experts.](https://www.yahoo.com/lifestyle/vaginal-penetration-pain-sex-isnt-supposed-to-hurt-004229185.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
