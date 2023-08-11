@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Two Memphians to be inducted into American Royal Barbecue Hall of Fame](https://www.yahoo.com/entertainment/two-memphians-inducted-american-royal-192435944.html)
+- Aug 11 - [We're identical twins who swapped places over 10 times — and only got caught once](https://www.yahoo.com/lifestyle/were-identical-twins-swapped-places-191612568.html)
 - Aug 11 - [Austin moves to Stage 2 water restrictions on Tuesday. Here's what that means](https://news.yahoo.com/austin-moves-stage-2-water-190352676.html)
+- Aug 11 - [KC area under severe thunderstorm watch. Supercells could bring tornadoes, large hail](https://news.yahoo.com/kc-area-under-severe-thunderstorm-184800037.html)
 - Aug 11 - ["Not amused": Judge sent Trump a "clear message" that he risks early trial if he keeps up attacks](https://news.yahoo.com/not-amused-judge-sent-trump-184710809.html)
-- Aug 11 - [OVI checkpoint to be held in Franklin County tonight. Here's where it will be](https://news.yahoo.com/ovi-checkpoint-held-franklin-county-184618409.html)
-- Aug 11 - [Katharine McPhee Rushes Home & Misses 2 Shows With David Foster Amid 'Horrible Tragedy' In Family](https://www.yahoo.com/entertainment/katharine-mcphee-rushes-home-misses-180151213.html)
-- Aug 11 - [They lost everything in the Paradise fire. Now they're reliving their grief as fires rage in Hawaii](https://news.yahoo.com/lost-everything-paradise-fire-now-173105739.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
