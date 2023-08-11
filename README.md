@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Two Memphians to be inducted into American Royal Barbecue Hall of Fame](https://www.yahoo.com/entertainment/two-memphians-inducted-american-royal-192435944.html)
+- Aug 11 - [What are the symptoms of new COVID variant Eris taking over the US?](https://news.yahoo.com/symptoms-covid-variant-eris-taking-202450712.html)
+- Aug 11 - [Texas questions rights of a fetus after a prison guard who had a stillborn baby sues](https://news.yahoo.com/texas-questions-rights-fetus-prison-192223235.html)
 - Aug 11 - [We're identical twins who swapped places over 10 times — and only got caught once](https://www.yahoo.com/lifestyle/were-identical-twins-swapped-places-191612568.html)
 - Aug 11 - [Austin moves to Stage 2 water restrictions on Tuesday. Here's what that means](https://news.yahoo.com/austin-moves-stage-2-water-190352676.html)
 - Aug 11 - [KC area under severe thunderstorm watch. Supercells could bring tornadoes, large hail](https://news.yahoo.com/kc-area-under-severe-thunderstorm-184800037.html)
-- Aug 11 - ["Not amused": Judge sent Trump a "clear message" that he risks early trial if he keeps up attacks](https://news.yahoo.com/not-amused-judge-sent-trump-184710809.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
