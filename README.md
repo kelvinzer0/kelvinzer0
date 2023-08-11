@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 11 - [Millions of kids are missing weeks of school as attendance tanks across the US](https://news.yahoo.com/millions-kids-missing-weeks-school-040159873.html)
-- Aug 11 - [Philippines says refurbishing grounded ship an option to strengthen hold on disputed shoal](https://news.yahoo.com/philippines-says-refurbishing-grounded-ship-023033658.html)
+- Aug 11 - [Teen says she was sent home from Chick-fil-A job for having an ‘unnatural’ hair color: Blond](https://news.yahoo.com/teen-says-she-sent-home-031159674.html)
 - Aug 11 - [Passengers aboard a United flight that rapidly descended to '748 feet from disaster' in the ocean were saved by a warning system amid crew miscommunications and poor weather, aviation expert says](https://news.yahoo.com/passengers-aboard-united-flight-rapidly-011154547.html)
 - Aug 11 - [Vaginal penetration can be painful for some. But sex isn't supposed to hurt, say experts.](https://www.yahoo.com/lifestyle/vaginal-penetration-pain-sex-isnt-supposed-to-hurt-004229185.html)
 - Aug 11 - [‘We have nothing’: Tacoma contractor allegedly stole thousands from at least 5 homeowners](https://news.yahoo.com/nothing-tacoma-contractor-allegedly-stole-002803895.html)
