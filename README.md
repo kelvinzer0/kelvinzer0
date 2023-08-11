@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Biden calls China a 'ticking time bomb' due to economic troubles](https://news.yahoo.com/biden-calls-china-ticking-time-225914211.html)
+- Aug 10 - [Trump confronted on golf course about no-showing Florida court appearance](https://news.yahoo.com/trump-confronted-golf-course-no-215948871.html)
 - Aug 10 - [Wisconsin judge allows civil case against fake Trump electors to proceed](https://news.yahoo.com/wisconsin-judge-allows-civil-case-213852827.html)
-- Aug 10 - [Texas judge says no quick ruling expected over GOP efforts to toss 2022 election losses near Houston](https://news.yahoo.com/texas-judge-says-no-quick-211601128.html)
-- Aug 10 - [“I don’t want to die at the gym:” Car thieves open fire at metro Atlanta L.A. fitness, police say](https://news.yahoo.com/don-t-want-die-gym-211311059.html)
-- Aug 10 - [Fox News Hosts Keep Shouting Down Liberal Who Bursts Their Devon Archer Bubble](https://www.yahoo.com/entertainment/fox-news-hosts-keep-shouting-210424975.html)
-- Aug 10 - [This Pennsylvania trio bought a $100K abandoned school and turned it into a 31-unit apartment building — here's how to invest in residential real estate without all the heavy lifting](https://finance.yahoo.com/news/pennsylvania-trio-bought-100k-abandoned-204500327.html)
+- Aug 10 - [Republican Congressman Accidentally Admits There’s No Proof of Biden Corruption](https://news.yahoo.com/republican-congressman-accidentally-admits-no-212137547.html)
+- Aug 10 - [Police arrest 35 in 'Operation Hot August Nights' in Brockton](https://news.yahoo.com/police-arrest-35-operation-hot-211919891.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
