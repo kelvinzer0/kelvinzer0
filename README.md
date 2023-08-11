@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Garland appoints David Weiss as special counsel in Hunter Biden investigation](https://news.yahoo.com/garland-appoints-david-weiss-special-165138028.html)
+- Aug 11 - [Attorney General Merrick Garland appoints a special counsel in the Hunter Biden probe](https://news.yahoo.com/attorney-general-garland-appoint-special-162428804.html)
+- Aug 11 - [KFC employee shoots GA woman in restaurant parking lot during busy lunch hour, police say](https://news.yahoo.com/kfc-employee-shoots-ga-woman-160628915.html)
 - Aug 11 - [‘Morning Joe’: Republicans Show ‘How Ignorant They Are’ With a DeSantis Move That Will ‘Haunt Them’ (Video)](https://www.yahoo.com/entertainment/morning-joe-republicans-show-ignorant-153301897.html)
 - Aug 11 - [Pregnant Kourtney Kardashian Is Facing Backlash for ‘Really Inappropriate’ Caption on Recent Baby Bump Photo](https://www.yahoo.com/lifestyle/pregnant-kourtney-kardashian-facing-backlash-153059171.html)
-- Aug 11 - [Before-and-after satellite images show Maui devastation in stark contrast](https://news.yahoo.com/satellite-images-show-maui-devastation-150159400.html)
-- Aug 11 - [Scientists uncover 8,000-year-old village underwater, find "treasure trove"](https://news.yahoo.com/scientists-uncover-8-000-old-143600610.html)
-- Aug 11 - ["Rattled" Trump melts down on Truth Social over Jack Smith's proposed trial date](https://news.yahoo.com/rattled-trump-melts-down-truth-135728272.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
