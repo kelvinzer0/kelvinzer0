@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Philippines says refurbishing grounded ship an option to strengthen hold on disputed shoal](https://news.yahoo.com/philippines-says-refurbishing-grounded-ship-023033658.html)
 - Aug 11 - [Vaginal penetration can be painful for some. But sex isn't supposed to hurt, say experts.](https://www.yahoo.com/lifestyle/vaginal-penetration-pain-sex-isnt-supposed-to-hurt-004229185.html)
+- Aug 10 - [Man forced to ditch $115K Ford EV truck during family road trip to Chicago: ‘biggest scam of modern times’](https://finance.yahoo.com/news/man-forced-ditch-115k-ford-234104336.html)
 - Aug 10 - [Biden calls China a 'ticking time bomb' due to economic troubles](https://news.yahoo.com/biden-calls-china-ticking-time-225914211.html)
-- Aug 10 - [Video: Tesla driver plowed into police car despite 150 warnings from Autopilot](https://www.autoblog.com/2023/08/10/video-tesla-driver-plowed-into-police-car-despite-150-warnings-from-autopilot/)
 - Aug 10 - [Trump confronted on golf course about no-showing Florida court appearance](https://news.yahoo.com/trump-confronted-golf-course-no-215948871.html)
-- Aug 10 - [Wisconsin judge allows civil case against fake Trump electors to proceed](https://news.yahoo.com/wisconsin-judge-allows-civil-case-213852827.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
