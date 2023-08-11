@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - ['Put the American public first': Senators propose law to ban members of Congress and executive officials — including the president — from trading stocks](https://finance.yahoo.com/news/put-american-public-first-senators-211500437.html)
+- Aug 11 - [American Airlines passenger in viral videos of her screaming and having a breakdown said it's wrecked her life](https://news.yahoo.com/american-airlines-passenger-viral-videos-103230277.html)
 - Aug 11 - ['Completely Full Of It': Chris Christie Gives Newsmax Host Blunt Trump Fact-Check](https://news.yahoo.com/completely-full-chris-christie-gives-045539139.html)
 - Aug 11 - [Millions of kids are missing weeks of school as attendance tanks across the US](https://news.yahoo.com/millions-kids-missing-weeks-school-040159873.html)
 - Aug 11 - [Lawrence: Jack Smith uses Trump lawyer John Lauro’s words against him in court](https://news.yahoo.com/lawrence-jack-smith-uses-trump-034451076.html)
-- Aug 11 - [Teen says she was sent home from Chick-fil-A job for having an ‘unnatural’ hair color: Blond](https://news.yahoo.com/teen-says-she-sent-home-031159674.html)
-- Aug 11 - [Special Counsel Jack Smith adds more charges against Trump, requests trial date](https://news.yahoo.com/special-counsel-jack-smith-adds-022136894.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
