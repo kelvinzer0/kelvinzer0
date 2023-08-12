@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 12 - [For over 20 years, archaeologists in Germany thought a 35,000-year-old figurine they found was a horse. Now, they aren't sure whether or not it's a cave lion or cave bear.](https://news.yahoo.com/over-20-years-archaeologists-germany-024940555.html)
 - Aug 11 - [Family Feud contestant who joked about marriage on air gets life in prison for wife's murder](https://www.yahoo.com/entertainment/family-feud-contestant-joked-marriage-232010201.html)
-- Aug 11 - [Falling when you're elderly is dangerous. Here's how it affects the body.](https://www.yahoo.com/lifestyle/falling-elderly-dangerous-how-it-impacts-the-body-224201869.html)
 - Aug 11 - [Michigan police detained a Black child who was in the 'wrong place, wrong time,' department says](https://news.yahoo.com/michigan-police-detained-black-child-223823547.html)
 - Aug 11 - [What are the symptoms of new COVID variant Eris taking over the US?](https://news.yahoo.com/symptoms-covid-variant-eris-taking-202450712.html)
 - Aug 11 - [Teen jogger sexually assaulted on greenway in south Charlotte, police say](https://news.yahoo.com/cmpd-investigating-sexual-assault-teen-161205447.html)
