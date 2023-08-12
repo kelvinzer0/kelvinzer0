@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Family Feud contestant who joked about marriage on air gets life in prison for wife's murder](https://www.yahoo.com/entertainment/family-feud-contestant-joked-marriage-232010201.html)
+- Aug 11 - [39 Self-Absorbed People Who Forgot That Other People Matter, Too](https://www.yahoo.com/lifestyle/39-self-absorbed-people-forgot-231603722.html)
 - Aug 11 - [Michigan police detained a Black child who was in the 'wrong place, wrong time,' department says](https://news.yahoo.com/michigan-police-detained-black-child-223823547.html)
 - Aug 11 - [What are the symptoms of new COVID variant Eris taking over the US?](https://news.yahoo.com/symptoms-covid-variant-eris-taking-202450712.html)
-- Aug 11 - [Wife of suspect in Long Island serial killings living 'nightmare,' battling cancer, her lawyer says](https://news.yahoo.com/wife-accused-long-island-serial-210952863.html)
-- Aug 11 - [School librarian busted for leaving daughter in car for 5 hours, NYPD says](https://news.yahoo.com/school-librarian-busted-leaving-daughter-194600466.html)
-- Aug 11 - [We're identical twins who swapped places over 10 times — and only got caught once](https://www.yahoo.com/lifestyle/were-identical-twins-swapped-places-191612568.html)
+- Aug 11 - [SLO pair steals wallet, goes on $2,000 Home Depot shopping spree, police say](https://news.yahoo.com/slo-pair-steals-wallet-goes-211004967.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
