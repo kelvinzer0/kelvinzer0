@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 11 - [Family Feud contestant who joked about marriage on air gets life in prison for wife's murder](https://www.yahoo.com/entertainment/family-feud-contestant-joked-marriage-232010201.html)
 - Aug 11 - [39 Self-Absorbed People Who Forgot That Other People Matter, Too](https://www.yahoo.com/lifestyle/39-self-absorbed-people-forgot-231603722.html)
+- Aug 11 - [Falling when you're elderly is dangerous. Here's how it affects the body.](https://www.yahoo.com/lifestyle/falling-elderly-dangerous-how-it-impacts-the-body-224201869.html)
 - Aug 11 - [Michigan police detained a Black child who was in the 'wrong place, wrong time,' department says](https://news.yahoo.com/michigan-police-detained-black-child-223823547.html)
 - Aug 11 - [What are the symptoms of new COVID variant Eris taking over the US?](https://news.yahoo.com/symptoms-covid-variant-eris-taking-202450712.html)
-- Aug 11 - [SLO pair steals wallet, goes on $2,000 Home Depot shopping spree, police say](https://news.yahoo.com/slo-pair-steals-wallet-goes-211004967.html)
 <!-- feed end -->
 
 ### Are you tired of coding?
