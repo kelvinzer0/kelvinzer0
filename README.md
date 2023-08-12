@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 12 - [Researchers have identified a new pack of endangered gray wolves in California](https://news.yahoo.com/researchers-identified-pack-endangered-gray-174054885.html)
+- Aug 12 - [Hundreds of government employees in San Francisco told to work from home due to the high levels of crime in the area, report says](https://news.yahoo.com/hundreds-government-employees-san-francisco-164505153.html)
 - Aug 12 - [One of Donald Trump’s Longtime Rivals Are Reportedly Ivanka & Jared Kushner's New Neighbors](https://www.yahoo.com/entertainment/one-donald-trump-longtime-rivals-150200184.html)
+- Aug 12 - [Missing Washington girl was allegedly locked in 'cell' under stairs as mom battles investigators](https://news.yahoo.com/missing-washington-girl-allegedly-locked-150005696.html)
 - Aug 12 - [‘Hired hunter’ kills bull that eluded Charlotte searchers for days. Police cite owner.](https://news.yahoo.com/900-pound-bull-eluded-police-133430071.html)
-- Aug 12 - [Crimea Bridge closed after explosions, wreathed in dense white smoke](https://news.yahoo.com/crimea-bridge-closed-explosions-wreathed-132000813.html)
-- Aug 12 - [Famed investor Peter Schiff just said that married women in the workforce are partly to blame for today's housing crisis — and he got blasted for it. Here's his explanation](https://finance.yahoo.com/news/famed-investor-peter-schiff-just-120000071.html)
-- Aug 12 - [Abducted By My Teacher : Why Elizabeth Thomas Is Done Hiding Her Horrifying Story](https://www.yahoo.com/entertainment/abducted-teacher-why-elizabeth-thomas-120000075.html)
 <!-- feed end -->
 
 ### Onstream
