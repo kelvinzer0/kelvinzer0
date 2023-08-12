@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 12 - [Trump's Iowa state fair spectacle clouds DeSantis as former president is joined by Florida officials](https://news.yahoo.com/trumps-iowa-state-fair-spectacle-215010444.html)
+- Aug 12 - [Miami woman whips out gun after Florida Keys crash, cops say. She squeezed the trigger](https://news.yahoo.com/miami-woman-whips-gun-florida-213423539.html)
 - Aug 12 - [Sweat pouring down his face, DeSantis gets a cold reception from pro-Trump crowd in Iowa](https://news.yahoo.com/sweat-pouring-down-face-desantis-203120529.html)
-- Aug 12 - [Researchers have identified a new pack of endangered gray wolves in California](https://news.yahoo.com/researchers-identified-pack-endangered-gray-174054885.html)
-- Aug 12 - [Hundreds of government employees in San Francisco told to work from home due to the high levels of crime in the area, report says](https://news.yahoo.com/hundreds-government-employees-san-francisco-164505153.html)
-- Aug 12 - [Lina Khan: The most feared person in Silicon Valley is a 34-year-old in DC](https://finance.yahoo.com/news/lina-khan-the-most-feared-person-in-silicon-valley-is-a-34-year-old-in-dc-160417898.html)
-- Aug 12 - [LIVE UPDATES: Houses leveled in explosion in Plum Borough; 1 person dead, several unaccounted for](https://news.yahoo.com/house-leveled-explosion-plum-borough-154757093.html)
+- Aug 12 - [Tornado watch issued for parts of Pennsylvania, including Centre County. What to know](https://news.yahoo.com/tornado-watch-issued-parts-pennsylvania-181358810.html)
+- Aug 12 - [Ammon Bundy Arrested on Outstanding Warrant at Son's Football Fundraiser](https://news.yahoo.com/ammon-bundy-arrested-outstanding-warrant-175928227.html)
 <!-- feed end -->
 
 ### Onstream
