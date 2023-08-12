@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 12 - [Exclusive-DeSantis and his backers paid $95,000 to Iowa religious leader’s group, documents show](https://news.yahoo.com/exclusive-desantis-backers-paid-95-111332380.html)
 - Aug 12 - [Is Elon still laughing? Reports say Mark Zuckerberg's 'Twitter-killer' suffered a 50% collapse of daily users in just a week after a white-hot start — but here's why Musk should still worry](https://finance.yahoo.com/news/elon-laughing-reports-mark-zuckerbergs-135700223.html)
-- Aug 12 - [Opinion: We've defended Trump's 1st Amendment rights. But his latest claims about the Jan. 6 indictment are nonsense](https://news.yahoo.com/opinion-weve-defended-trumps-1st-100038347.html)
+- Aug 12 - ['Last Call' for the lizards at Winking Lizard as the chain finds homes for the reptiles](https://news.yahoo.com/last-call-lizards-winking-lizard-094214422.html)
 - Aug 12 - [Apartment Manager Caught Pouring Soda On 11-Year-Old Black Boy 'Makes You Wonder What People Do When They’re Not Recorded'](https://www.yahoo.com/lifestyle/apartment-manager-caught-pouring-soda-081500834.html)
-- Aug 12 - [Barrels of drinking water for migrants walking through Texas have disappeared](https://news.yahoo.com/barrels-drinking-water-migrants-walking-051803585.html)
-- Aug 12 - [For over 20 years, archaeologists in Germany thought a 35,000-year-old figurine they found was a horse. Now, they aren't sure whether or not it's a cave lion or cave bear.](https://news.yahoo.com/over-20-years-archaeologists-germany-024940555.html)
+- Aug 12 - [Ammon Bundy arrested in Emmett on an outstanding warrant. Here’s what we know](https://news.yahoo.com/ammon-bundy-arrested-emmett-outstanding-053013826.html)
 <!-- feed end -->
 
 ### Onstream
