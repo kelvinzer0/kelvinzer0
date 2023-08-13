@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 13 - [Fighter jet crashes during Thunder over Michigan air show in Ypsilanti](https://news.yahoo.com/fighter-jet-crashes-during-thunder-213750465.html)
 - Aug 13 - [Trump’s Legal Defense Fund Launches With a Big Typo and Bigger Ethical Questions](https://news.yahoo.com/trump-legal-defense-fund-launches-210926150.html)
-- Aug 13 - [Plane makes crash landing Sunday near an Oklahoma City highway](https://news.yahoo.com/plane-makes-crash-landing-sunday-193429535.html)
 - Aug 13 - [Police face criticism over central Kansas newspaper raid in which computers, phones seized](https://news.yahoo.com/police-questioned-over-legality-kansas-190218453.html)
-- Aug 13 - [Prison officer spent 380 hours on phone with inmate during six-month affair](https://news.yahoo.com/prison-officer-spent-380-hours-174009394.html)
+- Aug 13 - [Peoples Gas president says system was ‘operating as designed’  at site of Plum house explosion](https://news.yahoo.com/peoples-gas-president-says-system-185556746.html)
+- Aug 13 - ["I Roomed With A Couple Who Hid Their Pregnancy From Me Until I Signed The Lease" — People Are Sharing Their Roommate Horror Stories, And I Can Say Is, YIKES](https://www.yahoo.com/lifestyle/people-sharing-worst-ever-roommate-174602509.html)
 <!-- feed end -->
 
 ### Onstream
