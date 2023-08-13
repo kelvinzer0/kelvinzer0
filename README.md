@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 13 - ['We Did Nothing Wrong': Trump Steams Over 'Wise Guy Question' About Georgia Case](https://news.yahoo.com/did-nothing-wrong-trump-steams-055055462.html)
 - Aug 13 - [Former top church official warns Christianity is in 'crisis' if people think quotes from Jesus are 'liberal talking points'](https://news.yahoo.com/former-top-church-official-warns-054920018.html)
 - Aug 13 - [Video shows huge blaze after deadly US house explosion](https://news.yahoo.com/video-shows-huge-blaze-deadly-052417090.html)
-- Aug 12 - [Gang boss who threatened slain Ecuador candidate transferred to max security](https://news.yahoo.com/gang-boss-threatened-slain-ecuador-220959640.html)
-- Aug 12 - [Researchers have identified a new pack of endangered gray wolves in California](https://news.yahoo.com/researchers-identified-pack-endangered-gray-174054885.html)
+- Aug 13 - [Doctor Misdiagnoses Patient As Mentally Ill Because She Was 'Patting Her Weave'](https://www.yahoo.com/lifestyle/doctor-misdiagnoses-patient-mentally-ill-041500287.html)
+- Aug 13 - [A man who police say swung a folding chair at the Montgomery Brawl is out of jail after people raised thousands](https://news.yahoo.com/man-police-swung-folding-chair-005804931.html)
 <!-- feed end -->
 
 ### Onstream
