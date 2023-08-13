@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Aug 13 - [Massachusetts passed a 4% millionaire's tax last year. Now every public school student is going to get free lunch.](https://news.yahoo.com/massachusetts-passed-4-millionaires-tax-172447869.html)
 - Aug 13 - [Ted Cruz Is Furious Merrick Garland Did Exactly What He Asked in Hunter Biden Case](https://news.yahoo.com/ted-cruz-furious-merrick-garland-165122413.html)
 - Aug 13 - [Donald Trump Jr’s Latest Controversial Venture Is Being Torn to Shreds for Perpetuating This ‘Toxic’ Mindset](https://www.yahoo.com/entertainment/donald-trump-jr-latest-controversial-162800515.html)
-- Aug 13 - [Family threatened with $7,500 daily fine from city over ‘butterfly paradise’ yard: ‘Draconian and completely unreasonable’](https://news.yahoo.com/family-threatened-7-500-daily-153000293.html)
+- Aug 13 - [2 pedestrians die within hours in Lexington crashes, police say](https://news.yahoo.com/2-pedestrians-die-within-hours-152649864.html)
 <!-- feed end -->
 
 ### Onstream
