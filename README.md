@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [South Carolina state Sen. John Scott, longtime Democratic lawmaker, dies at 69](https://news.yahoo.com/south-carolina-state-sen-john-200802355.html)
+- Aug 13 - [Plane makes crash landing Sunday near an Oklahoma City highway](https://news.yahoo.com/plane-makes-crash-landing-sunday-193429535.html)
+- Aug 13 - [Police questioned over legality of Kansas newspaper raid in which computers, phones seized](https://news.yahoo.com/police-questioned-over-legality-kansas-190218453.html)
 - Aug 13 - [Prison officer spent 380 hours on phone with inmate during six-month affair](https://news.yahoo.com/prison-officer-spent-380-hours-174009394.html)
 - Aug 13 - [Massachusetts passed a 4% millionaire's tax last year. Now every public school student is going to get free lunch.](https://news.yahoo.com/massachusetts-passed-4-millionaires-tax-172447869.html)
-- Aug 13 - [Ted Cruz Is Furious Merrick Garland Did Exactly What He Asked in Hunter Biden Case](https://news.yahoo.com/ted-cruz-furious-merrick-garland-165122413.html)
-- Aug 13 - [Donald Trump Jr’s Latest Controversial Venture Is Being Torn to Shreds for Perpetuating This ‘Toxic’ Mindset](https://www.yahoo.com/entertainment/donald-trump-jr-latest-controversial-162800515.html)
-- Aug 13 - [2 pedestrians die within hours in Lexington crashes, police say](https://news.yahoo.com/2-pedestrians-die-within-hours-152649864.html)
 <!-- feed end -->
 
 ### Onstream
