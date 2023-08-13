@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [Exclusive: Georgia prosecutors have messages showing Trump’s team is behind voting system breach](https://news.yahoo.com/georgia-prosecutors-messages-showing-trump-100438638.html)
 - Aug 13 - [We Bet You Can't Guess How Many Americans Actually Retire With a Million Bucks](https://finance.yahoo.com/news/many-americans-retire-million-dollars-140019814.html)
 - Aug 13 - [A video appears to show Ukraine's drones destroying a Russian 'Terminator' in the second confirmed loss of the prized armored vehicle](https://news.yahoo.com/video-appears-show-ukraines-drones-131130331.html)
-- Aug 13 - [Exclusive: Georgia prosecutors have messages showing Trump’s team is behind voting system breach](https://news.yahoo.com/georgia-prosecutors-messages-showing-trump-100438638.html)
-- Aug 13 - [New York City has lost 5.3% of its population — about 468,000 people — since the start of the pandemic, and many of them are hunkering down in the South](https://finance.yahoo.com/news/york-city-lost-5-3-100000482.html)
-- Aug 13 - [Toyota’s newest breakthrough could be the ‘kiss of death’ for gas-powered cars — and could hit the market as early as 2027](https://news.yahoo.com/toyota-newest-breakthrough-could-kiss-130000193.html)
+- Aug 13 - [New research shows that a devastating new virus is one of the worst outbreaks in history: ‘[This is] uncharted territory’](https://news.yahoo.com/research-shows-devastating-virus-one-110000717.html)
+- Aug 13 - [Neighbor calls police on 92-year-old woman over noises coming from her pond: ‘It’s my entertainment’](https://news.yahoo.com/neighbor-calls-police-92-old-180000665.html)
 <!-- feed end -->
 
 ### Onstream
