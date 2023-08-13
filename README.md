@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [I Consider Myself A Pretty Tough Person, But These 16 Horrifying Facts Really Wrecked Me](https://www.yahoo.com/lifestyle/consider-myself-pretty-tough-person-011603954.html)
 - Aug 13 - [A man who police say swung a folding chair at the Montgomery Brawl is out of jail after people raised thousands](https://news.yahoo.com/man-police-swung-folding-chair-005804931.html)
 - Aug 12 - [Gang boss who threatened slain Ecuador candidate transferred to max security](https://news.yahoo.com/gang-boss-threatened-slain-ecuador-220959640.html)
-- Aug 12 - [Altercation between residents, Maui police shuts down limited access to Lahaina](https://news.yahoo.com/altercation-between-residents-maui-police-213200191.html)
 - Aug 12 - [Researchers have identified a new pack of endangered gray wolves in California](https://news.yahoo.com/researchers-identified-pack-endangered-gray-174054885.html)
+- Aug 12 - [Trump asked at Iowa State Fair if he intended to overturn the 2020 election. His cagey response:](https://news.yahoo.com/donald-trumps-plane-buzzes-over-172559410.html)
+- Aug 12 - [Hundreds of government employees in San Francisco told to work from home due to the high levels of crime in the area, report says](https://news.yahoo.com/hundreds-government-employees-san-francisco-164505153.html)
 <!-- feed end -->
 
 ### Onstream
