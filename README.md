@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Trump's Iowa state fair spectacle clouds DeSantis as former president is joined by Florida officials](https://news.yahoo.com/trumps-iowa-state-fair-spectacle-215010444.html)
+- Aug 13 - [Footage from Thai Zoo Shows Sun Bears Standing Up Like Chinese Zoo Bears Accused of Being Human](https://www.yahoo.com/entertainment/footage-thai-zoo-shows-sun-003302721.html)
 - Aug 12 - [Miami woman whips out gun after Florida Keys crash, cops say. She squeezed the trigger](https://news.yahoo.com/miami-woman-whips-gun-florida-213423539.html)
-- Aug 12 - [Sweat pouring down his face, DeSantis gets a cold reception from pro-Trump crowd in Iowa](https://news.yahoo.com/sweat-pouring-down-face-desantis-203120529.html)
-- Aug 12 - [Tornado watch issued for parts of Pennsylvania, including Centre County. What to know](https://news.yahoo.com/tornado-watch-issued-parts-pennsylvania-181358810.html)
-- Aug 12 - [Ammon Bundy Arrested on Outstanding Warrant at Son's Football Fundraiser](https://news.yahoo.com/ammon-bundy-arrested-outstanding-warrant-175928227.html)
+- Aug 12 - [Altercation between residents, Maui police shuts down limited access to Lahaina](https://news.yahoo.com/altercation-between-residents-maui-police-213200191.html)
+- Aug 12 - [Researchers have identified a new pack of endangered gray wolves in California](https://news.yahoo.com/researchers-identified-pack-endangered-gray-174054885.html)
+- Aug 12 - [Trump asked at Iowa State Fair if he intended to overturn the 2020 election. His response:](https://news.yahoo.com/donald-trumps-plane-buzzes-over-172559410.html)
 <!-- feed end -->
 
 ### Onstream
