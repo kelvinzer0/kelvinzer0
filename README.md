@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 13 - [Exclusive: Georgia prosecutors have messages showing Trump’s team is behind voting system breach](https://news.yahoo.com/georgia-prosecutors-messages-showing-trump-100438638.html)
+- Aug 13 - [Pence doubles down on Trump asking him to disregard constitution: 'Check his tweets'](https://news.yahoo.com/pence-doubles-down-trump-asking-140730433.html)
 - Aug 13 - [We Bet You Can't Guess How Many Americans Actually Retire With a Million Bucks](https://finance.yahoo.com/news/many-americans-retire-million-dollars-140019814.html)
 - Aug 13 - [A video appears to show Ukraine's drones destroying a Russian 'Terminator' in the second confirmed loss of the prized armored vehicle](https://news.yahoo.com/video-appears-show-ukraines-drones-131130331.html)
-- Aug 13 - [New research shows that a devastating new virus is one of the worst outbreaks in history: ‘[This is] uncharted territory’](https://news.yahoo.com/research-shows-devastating-virus-one-110000717.html)
-- Aug 13 - [Neighbor calls police on 92-year-old woman over noises coming from her pond: ‘It’s my entertainment’](https://news.yahoo.com/neighbor-calls-police-92-old-180000665.html)
+- Aug 13 - [Diver records the eerie moment they come face-to-face with a massive  ‘doomsday fish’: ‘There is no scientific evidence … ‘](https://news.yahoo.com/diver-records-eerie-moment-come-130000402.html)
 <!-- feed end -->
 
 ### Onstream
