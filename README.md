@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [South Carolina state Sen. John Scott, longtime Democratic lawmaker, dies at 69](https://news.yahoo.com/south-carolina-state-sen-john-200802355.html)
+- Aug 13 - [Fighter jet crashes during Thunder over Michigan air show in Ypsilanti](https://news.yahoo.com/fighter-jet-crashes-during-thunder-213750465.html)
+- Aug 13 - [Trump’s Legal Defense Fund Launches With a Big Typo and Bigger Ethical Questions](https://news.yahoo.com/trump-legal-defense-fund-launches-210926150.html)
 - Aug 13 - [Plane makes crash landing Sunday near an Oklahoma City highway](https://news.yahoo.com/plane-makes-crash-landing-sunday-193429535.html)
-- Aug 13 - [Police questioned over legality of Kansas newspaper raid in which computers, phones seized](https://news.yahoo.com/police-questioned-over-legality-kansas-190218453.html)
+- Aug 13 - [Police face criticism over central Kansas newspaper raid in which computers, phones seized](https://news.yahoo.com/police-questioned-over-legality-kansas-190218453.html)
 - Aug 13 - [Prison officer spent 380 hours on phone with inmate during six-month affair](https://news.yahoo.com/prison-officer-spent-380-hours-174009394.html)
-- Aug 13 - [Massachusetts passed a 4% millionaire's tax last year. Now every public school student is going to get free lunch.](https://news.yahoo.com/massachusetts-passed-4-millionaires-tax-172447869.html)
 <!-- feed end -->
 
 ### Onstream
