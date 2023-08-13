@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Exclusive: Georgia prosecutors have messages showing Trump’s team is behind voting system breach](https://news.yahoo.com/georgia-prosecutors-messages-showing-trump-100438638.html)
-- Aug 13 - [Pence doubles down on Trump asking him to disregard constitution: 'Check his tweets'](https://news.yahoo.com/pence-doubles-down-trump-asking-140730433.html)
-- Aug 13 - [We Bet You Can't Guess How Many Americans Actually Retire With a Million Bucks](https://finance.yahoo.com/news/many-americans-retire-million-dollars-140019814.html)
-- Aug 13 - [A video appears to show Ukraine's drones destroying a Russian 'Terminator' in the second confirmed loss of the prized armored vehicle](https://news.yahoo.com/video-appears-show-ukraines-drones-131130331.html)
-- Aug 13 - [Diver records the eerie moment they come face-to-face with a massive  ‘doomsday fish’: ‘There is no scientific evidence … ‘](https://news.yahoo.com/diver-records-eerie-moment-come-130000402.html)
+- Aug 13 - [Prison officer spent 380 hours on phone with inmate during six-month affair](https://news.yahoo.com/prison-officer-spent-380-hours-174009394.html)
+- Aug 13 - [Donald Trump Jr’s Latest Controversial Venture Is Being Torn to Shreds for Perpetuating This ‘Toxic’ Mindset](https://www.yahoo.com/entertainment/donald-trump-jr-latest-controversial-162800515.html)
+- Aug 13 - [Family threatened with $7,500 daily fine from city over ‘butterfly paradise’ yard: ‘Draconian and completely unreasonable’](https://news.yahoo.com/family-threatened-7-500-daily-153000293.html)
+- Aug 13 - [2 pedestrians die within hours in Lexington crashes, police say](https://news.yahoo.com/2-pedestrians-die-within-hours-152649864.html)
+- Aug 13 - [Health violations close 6 Fresno food places until problems are fixed. Here’s the list](https://news.yahoo.com/health-violations-close-6-fresno-150000887.html)
 <!-- feed end -->
 
 ### Onstream
