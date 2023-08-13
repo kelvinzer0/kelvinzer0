@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [We Bet You Can't Guess How Many Americans Actually Retire With a Million Bucks](https://finance.yahoo.com/news/many-americans-retire-million-dollars-140019814.html)
+- Aug 13 - [A video appears to show Ukraine's drones destroying a Russian 'Terminator' in the second confirmed loss of the prized armored vehicle](https://news.yahoo.com/video-appears-show-ukraines-drones-131130331.html)
+- Aug 13 - [Bryan Huffman's swim across Lake Michigan ends in disappointment, support boat blamed](https://news.yahoo.com/bryan-huffmans-swim-across-lake-122312801.html)
 - Aug 13 - [Exclusive: Georgia prosecutors have messages showing Trump’s team is behind voting system breach](https://news.yahoo.com/georgia-prosecutors-messages-showing-trump-100438638.html)
 - Aug 13 - [New York City has lost 5.3% of its population — about 468,000 people — since the start of the pandemic, and many of them are hunkering down in the South](https://finance.yahoo.com/news/york-city-lost-5-3-100000482.html)
-- Aug 13 - [Chinese Military Says It’s Figured Out How to Build "Infinite" Laser Weapons](https://news.yahoo.com/chinese-military-says-figured-build-100035281.html)
-- Aug 13 - [‘Who can blame them?’: 61% of Americans say they're more scared of running out of money than of dying — 3 ways to kick your retirement anxiety to the curb](https://finance.yahoo.com/news/blame-them-61-americans-theyre-100000593.html)
-- Aug 13 - [Forced to fire undocumented workers, owner of landmark Florida restaurant seeks change](https://news.yahoo.com/forced-fire-undocumented-workers-owner-093000043.html)
 <!-- feed end -->
 
 ### Onstream
