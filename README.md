@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Trump's attempt to undermine Manhattan DA Alvin Bragg's case badly backfires](https://news.yahoo.com/trumps-attempt-undermine-manhattan-da-193401288.html)
+- Aug 14 - [Maui resident held on to stranger’s 2-year-old in the ocean as they awaited rescue](https://news.yahoo.com/maui-residents-describe-diving-ocean-200855249.html)
 - Aug 14 - [Ukraine tests homemade demining machine](https://news.yahoo.com/ukraine-tests-homemade-demining-machine-185131710.html)
 - Aug 14 - [They were alone in a fight to survive. Maui residents had moments to make life-or-death choices](https://news.yahoo.com/were-alone-fight-survive-maui-184111990.html)
-- Aug 14 - [Man sentenced for abandoning baby after MLB pitcher Dennis Eckersley's daughter gave birth in woods](https://news.yahoo.com/man-sentenced-abandoning-baby-mlb-174914160.html)
-- Aug 14 - [Tommy Tuberville reportedly doesn't live in Alabama − should he still be its senator?](https://news.yahoo.com/tommy-tuberville-reportedly-doesnt-live-174440634.html)
-- Aug 14 - [Russian Mine Clearing Vehicle Detonates In Massive Fireball From Drone Bomblet](https://news.yahoo.com/russian-mine-clearing-vehicle-detonates-170219699.html)
+- Aug 14 - [Driver loses control of pickup truck before it rolls, kills three in Visalia, CHP says](https://news.yahoo.com/driver-loses-control-pickup-truck-182756270.html)
 <!-- feed end -->
 
 ### Onstream
