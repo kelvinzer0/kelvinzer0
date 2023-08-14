@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [UAW vs. The Big Three: Why the talks are different this time](https://finance.yahoo.com/video/uaw-vs-big-three-why-163823808.html)
+- Aug 14 - [Trump Has ‘Blatantly Unlawful’ Tantrum About Georgia Grand Jury Witness](https://news.yahoo.com/trump-blatantly-unlawful-tantrum-georgia-163143248.html)
+- Aug 14 - [4 people accused of abducting, beating and caging woman in Orange County](https://news.yahoo.com/woman-kidnapped-held-dog-cage-220328774.html)
+- Aug 14 - [Russian soldiers madcap escape from Makarivka goes viral — video](https://news.yahoo.com/russian-soldiers-madcap-escape-makarivka-152000862.html)
 - Aug 14 - [Trump assails judge in 2020 election case after she warned him not to make inflammatory remarks](https://news.yahoo.com/trump-assails-judge-2020-election-151425271.html)
-- Aug 14 - [Hawaii woman shocked as tourists are back to swimming at Maui's beaches just days after wildfire victims' bodies were pulled from the water](https://news.yahoo.com/hawaii-woman-shocked-tourists-back-150012009.html)
-- Aug 14 - [Panhandler stabs 76-year-old stranger who declined to give him money outside Manhattan Herald Square subway stop](https://news.yahoo.com/panhandler-stabs-76-old-stranger-145900189.html)
-- Aug 14 - [IBM Plans To Replace Nearly 8,000 Jobs With AI — These Jobs Are First to Go](https://finance.yahoo.com/news/ibm-plans-replace-nearly-8-174052360.html)
-- Aug 14 - ['I only have 1 dog:' Shocked California homeowner spots mountain lion 'playing' with pet](https://news.yahoo.com/only-1-dog-shocked-california-140700689.html)
 <!-- feed end -->
 
 ### Onstream
