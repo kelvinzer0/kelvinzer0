@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Donald Trump hasn't landscaped his ex Ivana Trump's grave at his Bedminster golf course, and it's now overrun by an untidy mess of weeds: report](https://news.yahoo.com/donald-trump-hasnt-landscaped-ex-091427415.html)
+- Aug 14 - [German foreign minister stuck in Abu Dhabi after another government plane problem](https://news.yahoo.com/german-foreign-minister-stuck-abu-090831069.html)
 - Aug 14 - [4 people accused of abducting, beating and caging woman in Orange County](https://news.yahoo.com/woman-kidnapped-held-dog-cage-220328774.html)
-- Aug 14 - [Trump Erupts At Jack Smith Over Search Warrant For His Twitter Account](https://news.yahoo.com/trump-erupts-jack-smith-over-074930955.html)
-- Aug 14 - [Ex-Prosecutor Spots A Major Problem For Donald Trump That People Are Missing](https://news.yahoo.com/ex-prosecutor-spots-major-problem-064958054.html)
-- Aug 14 - [Kremlin blames loose monetary policy as rouble slides past 101 vs dollar](https://finance.yahoo.com/news/rouble-falls-past-100-per-062810716.html)
-- Aug 14 - [A video showing Delta Airlines auctioning '$700 to $1,200' vouchers for passengers to be bumped off a flight went viral, and people online say they'd take it in a heartbeat](https://news.yahoo.com/video-showing-delta-airlines-auctioning-051455293.html)
+- Aug 14 - [MSNBC Anchors Stunned By GOP's New Faux Outrage: ‘Whole Thing Is A Joke’](https://news.yahoo.com/msnbc-anchors-stunned-gops-faux-075150112.html)
+- Aug 14 - [Chinese Defense Minister Li to visit Russia and Belarus in show of support despite West's objections](https://news.yahoo.com/chinese-defense-minister-li-visit-073430010.html)
 <!-- feed end -->
 
 ### Onstream
