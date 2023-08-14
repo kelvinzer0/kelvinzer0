@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Ukraine tests homemade demining machine](https://news.yahoo.com/ukraine-tests-homemade-demining-machine-185131710.html)
+- Aug 14 - [They were alone in a fight to survive. Maui residents had moments to make life-or-death choices](https://news.yahoo.com/were-alone-fight-survive-maui-184111990.html)
+- Aug 14 - [Man sentenced for abandoning baby after MLB pitcher Dennis Eckersley's daughter gave birth in woods](https://news.yahoo.com/man-sentenced-abandoning-baby-mlb-174914160.html)
 - Aug 14 - [Tommy Tuberville reportedly doesn't live in Alabama − should he still be its senator?](https://news.yahoo.com/tommy-tuberville-reportedly-doesnt-live-174440634.html)
-- Aug 14 - [Report: Michael Oher says he was never adopted, tricked into conservatorship, didn't see 'The Blind Side' money](https://sports.yahoo.com/report-michael-oher-says-he-was-never-adopted-tricked-into-conservatorship-didnt-see-the-blind-side-money-170602061.html)
 - Aug 14 - [Russian Mine Clearing Vehicle Detonates In Massive Fireball From Drone Bomblet](https://news.yahoo.com/russian-mine-clearing-vehicle-detonates-170219699.html)
-- Aug 14 - [Georgia court website briefly publishes, removes document about potential Trump charges](https://news.yahoo.com/u-state-georgia-appears-set-165758928.html)
-- Aug 14 - [Food abuse, roaches and flying insects led to 7 Central Florida restaurants shutting down last week](https://finance.yahoo.com/news/food-abuse-roaches-flying-insects-165000843.html)
 <!-- feed end -->
 
 ### Onstream
