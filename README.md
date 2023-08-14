@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Hit-and-run boat crash under investigation on Lake Winnipesaukee](https://news.yahoo.com/hit-run-boat-crash-under-220410248.html)
+- Aug 14 - ['Not a cheeseburger’ comment suggests the NCAA is hellbent on hitting Jim Harbaugh hard](https://sports.yahoo.com/not-a-cheeseburger-comment-suggests-the-ncaa-is-hellbent-on-hitting-jim-harbaugh-hard-015020596.html)
+- Aug 14 - [Victim vignettes: Hawaii wildfires lead to indescribable grief as families learn fate of loved ones](https://news.yahoo.com/victim-vignettes-hawaii-wildfires-lead-014951453.html)
+- Aug 14 - [Kansas newspaper co-owner, 98, dies after 'tearfully' watching police raid her home](https://news.yahoo.com/kansas-newspaper-co-owner-98-012941647.html)
+- Aug 14 - [Trump’s ‘Co-Conspirators’ Are Already Starting to Turn on Each Other](https://news.yahoo.com/trump-co-conspirators-already-starting-000743609.html)
 - Aug 13 - [Woman kidnapped, held in a dog cage in Orange County, deputies say](https://news.yahoo.com/woman-kidnapped-held-dog-cage-220328774.html)
-- Aug 13 - [Fighter jet crashes during Thunder over Michigan air show in Ypsilanti](https://news.yahoo.com/fighter-jet-crashes-during-thunder-213750465.html)
-- Aug 13 - [Trump’s Legal Defense Fund Launches With a Big Typo and Bigger Ethical Questions](https://news.yahoo.com/trump-legal-defense-fund-launches-210926150.html)
-- Aug 13 - [A central Kansas police force sparked a firestorm by raiding a newspaper and the publisher's home](https://news.yahoo.com/police-questioned-over-legality-kansas-190218453.html)
 <!-- feed end -->
 
 ### Onstream
