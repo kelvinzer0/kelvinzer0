@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Ecuador was calm and peaceful. Now hitmen, kidnappers and robbers walk the streets](https://news.yahoo.com/ecuador-calm-peaceful-now-hitmen-041331956.html)
+- Aug 14 - [David McCormick is gearing up for a Senate run in Pennsylvania. But he lives in Connecticut](https://news.yahoo.com/david-mccormick-gearing-senate-run-040630524.html)
+- Aug 14 - [How Fani Willis oversaw what might be the most sprawling legal case against Donald Trump](https://news.yahoo.com/fani-willis-oversaw-might-most-040505424.html)
 - Aug 14 - [Maui Officials Clarify Reports Of Oprah Winfrey & CBS News Crew Being Denied Entry To Shelter Of Wildfire Survivors](https://www.yahoo.com/entertainment/maui-officials-clarify-reports-oprah-020815140.html)
 - Aug 14 - ['Not a cheeseburger’ comment suggests the NCAA is hellbent on hitting Jim Harbaugh hard](https://sports.yahoo.com/not-a-cheeseburger-comment-suggests-the-ncaa-is-hellbent-on-hitting-jim-harbaugh-hard-015020596.html)
-- Aug 14 - [Victim vignettes: Hawaii wildfires lead to indescribable grief as families learn fate of loved ones](https://news.yahoo.com/victim-vignettes-hawaii-wildfires-lead-014951453.html)
-- Aug 14 - [Kansas newspaper co-owner, 98, dies after 'tearfully' watching police raid her home](https://news.yahoo.com/kansas-newspaper-co-owner-98-012941647.html)
-- Aug 14 - [Trump’s ‘Co-Conspirators’ Are Already Starting to Turn on Each Other](https://news.yahoo.com/trump-co-conspirators-already-starting-000743609.html)
 <!-- feed end -->
 
 ### Onstream
