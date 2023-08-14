@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [UAW vs. The Big Three: Why the talks are different this time](https://finance.yahoo.com/video/uaw-vs-big-three-why-163823808.html)
-- Aug 14 - [Trump Has ‘Blatantly Unlawful’ Tantrum About Georgia Grand Jury Witness](https://news.yahoo.com/trump-blatantly-unlawful-tantrum-georgia-163143248.html)
-- Aug 14 - [4 people accused of abducting, beating and caging woman in Orange County](https://news.yahoo.com/woman-kidnapped-held-dog-cage-220328774.html)
-- Aug 14 - [Russian soldiers madcap escape from Makarivka goes viral — video](https://news.yahoo.com/russian-soldiers-madcap-escape-makarivka-152000862.html)
-- Aug 14 - [Trump assails judge in 2020 election case after she warned him not to make inflammatory remarks](https://news.yahoo.com/trump-assails-judge-2020-election-151425271.html)
+- Aug 14 - [Tommy Tuberville reportedly doesn't live in Alabama − should he still be its senator?](https://news.yahoo.com/tommy-tuberville-reportedly-doesnt-live-174440634.html)
+- Aug 14 - [Report: Michael Oher says he was never adopted, tricked into conservatorship, didn't see 'The Blind Side' money](https://sports.yahoo.com/report-michael-oher-says-he-was-never-adopted-tricked-into-conservatorship-didnt-see-the-blind-side-money-170602061.html)
+- Aug 14 - [Russian Mine Clearing Vehicle Detonates In Massive Fireball From Drone Bomblet](https://news.yahoo.com/russian-mine-clearing-vehicle-detonates-170219699.html)
+- Aug 14 - [Georgia court website briefly publishes, removes document about potential Trump charges](https://news.yahoo.com/u-state-georgia-appears-set-165758928.html)
+- Aug 14 - [Food abuse, roaches and flying insects led to 7 Central Florida restaurants shutting down last week](https://finance.yahoo.com/news/food-abuse-roaches-flying-insects-165000843.html)
 <!-- feed end -->
 
 ### Onstream
