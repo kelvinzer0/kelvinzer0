@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Trump assails judge in 2020 election case after she warned him not to make inflammatory remarks](https://news.yahoo.com/trump-assails-judge-2020-election-151425271.html)
+- Aug 14 - [Hawaii woman shocked as tourists are back to swimming at Maui's beaches just days after wildfire victims' bodies were pulled from the water](https://news.yahoo.com/hawaii-woman-shocked-tourists-back-150012009.html)
+- Aug 14 - [Panhandler stabs 76-year-old stranger who declined to give him money outside Manhattan Herald Square subway stop](https://news.yahoo.com/panhandler-stabs-76-old-stranger-145900189.html)
+- Aug 14 - [IBM Plans To Replace Nearly 8,000 Jobs With AI — These Jobs Are First to Go](https://finance.yahoo.com/news/ibm-plans-replace-nearly-8-174052360.html)
 - Aug 14 - ['I only have 1 dog:' Shocked California homeowner spots mountain lion 'playing' with pet](https://news.yahoo.com/only-1-dog-shocked-california-140700689.html)
-- Aug 14 - [Storms brought record rains to Kansas City area Sunday. See where totals were highest](https://news.yahoo.com/storms-brought-record-rains-kansas-134544542.html)
-- Aug 14 - [She Wasn't Able to Get an Abortion. Now She's a Mom. Soon She'll Start 7th Grade.](https://news.yahoo.com/she-wasnt-able-abortion-now-130510870.html)
-- Aug 14 - [Ask an Advisor: Can a Nursing Home ‘Take Our IRA?' My Wife and I Are Elderly. We Have a $100K IRA and a Trust to Protect Our Assets.](https://finance.yahoo.com/news/ask-advisor-nursing-home-ira-140442815.html)
-- Aug 14 - [Rights group urges rapid international intervention to end spiraling gang violence in Haiti](https://news.yahoo.com/rights-group-urges-rapid-international-121727964.html)
 <!-- feed end -->
 
 ### Onstream
