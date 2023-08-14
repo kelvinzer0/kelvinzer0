@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [As rouble falls past 100 per U.S. dollar, Kremlin blames loose monetary policy](https://finance.yahoo.com/news/rouble-falls-past-100-per-062810716.html)
-- Aug 14 - [Pilot and crew member safely eject before Soviet-era fighter jet crashes at Michigan air show](https://news.yahoo.com/pilot-crew-member-safely-eject-061846752.html)
+- Aug 14 - [Ex-Prosecutor Spots A Major Problem For Donald Trump That People Are Missing](https://news.yahoo.com/ex-prosecutor-spots-major-problem-064958054.html)
+- Aug 14 - [Kremlin blames loose monetary policy as rouble slides past 100 vs dollar](https://finance.yahoo.com/news/rouble-falls-past-100-per-062810716.html)
+- Aug 14 - [Niger’s coup leaders say they will prosecute deposed President Mohamed Bazoum for 'high treason'](https://news.yahoo.com/niger-coup-leaders-prosecute-deposed-055647487.html)
 - Aug 14 - [A video showing Delta Airlines auctioning '$700 to $1,200' vouchers for passengers to be bumped off a flight went viral, and people online say they'd take it in a heartbeat](https://news.yahoo.com/video-showing-delta-airlines-auctioning-051455293.html)
-- Aug 14 - [Maui officials and scientists warn that after the flames flicker out, toxic particles will remain](https://news.yahoo.com/maui-officials-scientists-warn-flames-050526418.html)
 - Aug 14 - [The Taliban are entrenched in Afghanistan after 2 years of rule. Women and girls pay the price](https://news.yahoo.com/taliban-entrenched-afghanistan-2-years-044327432.html)
 <!-- feed end -->
 
