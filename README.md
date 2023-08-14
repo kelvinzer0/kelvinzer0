@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Video shows Texas US Rep. Ronny Jackson berating officers after being wrestled to ground at rodeo](https://news.yahoo.com/video-shows-texas-us-rep-225301987.html)
+- Aug 14 - [WATCH: Traffic halted on Boston highway as caravan of street bikes do donuts, burnouts](https://news.yahoo.com/watch-traffic-halted-boston-highway-223211558.html)
+- Aug 14 - [A fierce naval battle 35 years ago shows how destructive another US showdown with Iran could get](https://news.yahoo.com/fierce-naval-battle-35-years-220301785.html)
 - Aug 14 - [Former FBI agent says he was not aware of interference in Hunter Biden probe](https://news.yahoo.com/former-fbi-agent-says-not-215021209.html)
-- Aug 14 - [Tommy Tuberville Blocks Navy's First Woman Leader, Leaving 3rd Military Branch Hanging](https://news.yahoo.com/tommy-tuberville-blocks-navys-first-210000028.html)
 - Aug 14 - [Ozempic before and after: 5 women get real about weight loss, side effects and cost](https://news.yahoo.com/ozempic-5-women-real-weight-205459558.html)
-- Aug 14 - [DeSantis to Disney’s Iger: ‘Drop the lawsuit’](https://news.yahoo.com/desantis-disney-iger-drop-lawsuit-203304217.html)
-- Aug 14 - [Trump's attempt to undermine Manhattan DA Alvin Bragg's case badly backfires](https://news.yahoo.com/trumps-attempt-undermine-manhattan-da-193401288.html)
 <!-- feed end -->
 
 ### Onstream
