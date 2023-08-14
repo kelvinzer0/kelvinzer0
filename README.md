@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Donald Trump hasn't landscaped his ex Ivana Trump's grave at his Bedminster golf course, and it's now overrun by an untidy mess of weeds: report](https://news.yahoo.com/donald-trump-hasnt-landscaped-ex-091427415.html)
-- Aug 14 - [German foreign minister stuck in Abu Dhabi after another government plane problem](https://news.yahoo.com/german-foreign-minister-stuck-abu-090831069.html)
-- Aug 14 - [4 people accused of abducting, beating and caging woman in Orange County](https://news.yahoo.com/woman-kidnapped-held-dog-cage-220328774.html)
-- Aug 14 - [MSNBC Anchors Stunned By GOP's New Faux Outrage: ‘Whole Thing Is A Joke’](https://news.yahoo.com/msnbc-anchors-stunned-gops-faux-075150112.html)
-- Aug 14 - [Chinese Defense Minister Li to visit Russia and Belarus in show of support despite West's objections](https://news.yahoo.com/chinese-defense-minister-li-visit-073430010.html)
+- Aug 14 - [Rep. Marjorie Taylor Greene Stirs Mockery With Question About 'Proven' Trump](https://news.yahoo.com/rep-marjorie-taylor-greene-stirs-103655840.html)
+- Aug 14 - [New Covid vaccines are on the way as 'Eris' variant rises](https://news.yahoo.com/covid-vaccines-way-eris-variant-100603785.html)
+- Aug 14 - [Editorial: Brandon Johnson’s unconscionable treatment of Dr. Allison Arwady](https://news.yahoo.com/editorial-brandon-johnson-unconscionable-treatment-100000045.html)
+- Aug 14 - ['I ran the 80-pound jackhammer': Former governor Jesse Ventura blasts billionaires, says no one works hard enough to make $1B — here are 3 ways make your money do the heavy lifting instead](https://finance.yahoo.com/news/ran-80-pound-jackhammer-former-122500379.html)
+- Aug 14 - [Russia supplying S-400 air defence systems to India on schedule - defence official](https://news.yahoo.com/russia-supplying-400-air-defence-095413930.html)
 <!-- feed end -->
 
 ### Onstream
