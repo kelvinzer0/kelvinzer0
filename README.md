@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [As rouble falls past 100 per U.S. dollar, Kremlin blames loose monetary policy](https://finance.yahoo.com/news/rouble-falls-past-100-per-062810716.html)
+- Aug 14 - [Pilot and crew member safely eject before Soviet-era fighter jet crashes at Michigan air show](https://news.yahoo.com/pilot-crew-member-safely-eject-061846752.html)
+- Aug 14 - [A video showing Delta Airlines auctioning '$700 to $1,200' vouchers for passengers to be bumped off a flight went viral, and people online say they'd take it in a heartbeat](https://news.yahoo.com/video-showing-delta-airlines-auctioning-051455293.html)
+- Aug 14 - [Maui officials and scientists warn that after the flames flicker out, toxic particles will remain](https://news.yahoo.com/maui-officials-scientists-warn-flames-050526418.html)
 - Aug 14 - [The Taliban are entrenched in Afghanistan after 2 years of rule. Women and girls pay the price](https://news.yahoo.com/taliban-entrenched-afghanistan-2-years-044327432.html)
-- Aug 14 - [Mom Explains Why She Allowed Her 17-Year-Old Son To Have Top Surgery — ‘Cody’s Heart Is So Full’](https://www.yahoo.com/lifestyle/mom-explains-why-she-allowed-041500368.html)
-- Aug 14 - [Ecuador was calm and peaceful. Now hitmen, kidnappers and robbers walk the streets](https://news.yahoo.com/ecuador-calm-peaceful-now-hitmen-041331956.html)
-- Aug 14 - [David McCormick is gearing up for a Senate run in Pennsylvania. But he lives in Connecticut](https://news.yahoo.com/david-mccormick-gearing-senate-run-040630524.html)
-- Aug 14 - [Maui Officials Clarify Reports Of Oprah Winfrey & CBS News Crew Being Denied Entry To Shelter Of Wildfire Survivors](https://www.yahoo.com/entertainment/maui-officials-clarify-reports-oprah-020815140.html)
 <!-- feed end -->
 
 ### Onstream
