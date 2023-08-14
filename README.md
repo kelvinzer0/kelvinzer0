@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [The UAW vs The Big Three: Why the union's wish list isn't 'going to happen'](https://finance.yahoo.com/news/the-uaw-vs-the-big-three-why-the-unions-wish-list-isnt-going-to-happen-120912769.html)
+- Aug 14 - [Ask an Advisor: Can a Nursing Home ‘Take Our IRA?' My Wife and I Are Elderly. We Have a $100K IRA and a Trust to Protect Our Assets.](https://finance.yahoo.com/news/ask-advisor-nursing-home-ira-140442815.html)
+- Aug 14 - [The UAW vs. The Big Three: Why the union's wish list isn't 'going to happen'](https://finance.yahoo.com/news/the-uaw-vs-the-big-three-why-the-unions-wish-list-isnt-going-to-happen-120912769.html)
+- Aug 14 - [Three people shot overnight in downtown Columbia, police say](https://news.yahoo.com/three-people-shot-overnight-downtown-113735779.html)
 - Aug 14 - ['I live in the real world': Kevin O'Leary warns the US has a 'crisis emerging' thanks to the breakneck speed of interest rate hikes — here's who will feel the most pain](https://finance.yahoo.com/news/live-real-world-kevin-oleary-120000167.html)
 - Aug 14 - [Why young women like me love Donald Trump](https://news.yahoo.com/why-young-women-love-donald-110541216.html)
-- Aug 14 - [4 people accused of abducting, beating and caging woman in Orange County](https://news.yahoo.com/woman-kidnapped-held-dog-cage-220328774.html)
-- Aug 14 - [Rep. Marjorie Taylor Greene Stirs Mockery With Question About 'Proven' Trump](https://news.yahoo.com/rep-marjorie-taylor-greene-stirs-103655840.html)
 <!-- feed end -->
 
 ### Onstream
