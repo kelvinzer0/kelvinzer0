@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [The UAW vs The Big Three: Why the union's wish list isn't 'going to happen'](https://finance.yahoo.com/news/the-uaw-vs-the-big-three-why-the-unions-wish-list-isnt-going-to-happen-120912769.html)
+- Aug 14 - ['I live in the real world': Kevin O'Leary warns the US has a 'crisis emerging' thanks to the breakneck speed of interest rate hikes — here's who will feel the most pain](https://finance.yahoo.com/news/live-real-world-kevin-oleary-120000167.html)
+- Aug 14 - [Why young women like me love Donald Trump](https://news.yahoo.com/why-young-women-love-donald-110541216.html)
+- Aug 14 - [4 people accused of abducting, beating and caging woman in Orange County](https://news.yahoo.com/woman-kidnapped-held-dog-cage-220328774.html)
 - Aug 14 - [Rep. Marjorie Taylor Greene Stirs Mockery With Question About 'Proven' Trump](https://news.yahoo.com/rep-marjorie-taylor-greene-stirs-103655840.html)
-- Aug 14 - [New Covid vaccines are on the way as 'Eris' variant rises](https://news.yahoo.com/covid-vaccines-way-eris-variant-100603785.html)
-- Aug 14 - [Editorial: Brandon Johnson’s unconscionable treatment of Dr. Allison Arwady](https://news.yahoo.com/editorial-brandon-johnson-unconscionable-treatment-100000045.html)
-- Aug 14 - ['I ran the 80-pound jackhammer': Former governor Jesse Ventura blasts billionaires, says no one works hard enough to make $1B — here are 3 ways make your money do the heavy lifting instead](https://finance.yahoo.com/news/ran-80-pound-jackhammer-former-122500379.html)
-- Aug 14 - [Russia supplying S-400 air defence systems to India on schedule - defence official](https://news.yahoo.com/russia-supplying-400-air-defence-095413930.html)
 <!-- feed end -->
 
 ### Onstream
