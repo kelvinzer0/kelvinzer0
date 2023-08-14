@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Maui Officials Clarify Reports Of Oprah Winfrey & CBS News Crew Being Denied Entry To Shelter Of Wildfire Survivors](https://www.yahoo.com/entertainment/maui-officials-clarify-reports-oprah-020815140.html)
 - Aug 14 - ['Not a cheeseburger’ comment suggests the NCAA is hellbent on hitting Jim Harbaugh hard](https://sports.yahoo.com/not-a-cheeseburger-comment-suggests-the-ncaa-is-hellbent-on-hitting-jim-harbaugh-hard-015020596.html)
-- Aug 14 - [Victim vignettes: Hawaii wildfires lead to indescribable grief as families learn fate of loved ones](https://news.yahoo.com/victim-vignettes-hawaii-wildfires-lead-014951453.html)
 - Aug 14 - [Kansas newspaper co-owner, 98, dies after 'tearfully' watching police raid her home](https://news.yahoo.com/kansas-newspaper-co-owner-98-012941647.html)
+- Aug 14 - [Taiwan will not back down to threats, Taiwan VP says on US trip](https://news.yahoo.com/taiwan-not-back-down-threats-002652630.html)
 - Aug 14 - [Trump’s ‘Co-Conspirators’ Are Already Starting to Turn on Each Other](https://news.yahoo.com/trump-co-conspirators-already-starting-000743609.html)
-- Aug 13 - [Woman kidnapped, held in a dog cage in Orange County, deputies say](https://news.yahoo.com/woman-kidnapped-held-dog-cage-220328774.html)
 <!-- feed end -->
 
 ### Onstream
