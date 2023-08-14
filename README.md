@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 14 - [Trump's attempt to undermine Manhattan DA Alvin Bragg's case badly backfires](https://news.yahoo.com/trumps-attempt-undermine-manhattan-da-193401288.html)
+- Aug 14 - [Ramp that connects 2 Wichita highways has closed. Here’s the suggested alternate route](https://news.yahoo.com/ramp-connects-2-wichita-highways-192807410.html)
 - Aug 14 - [Maui resident held on to stranger’s 2-year-old in the ocean as they awaited rescue](https://news.yahoo.com/maui-residents-describe-diving-ocean-200855249.html)
 - Aug 14 - [Ukraine tests homemade demining machine](https://news.yahoo.com/ukraine-tests-homemade-demining-machine-185131710.html)
-- Aug 14 - [They were alone in a fight to survive. Maui residents had moments to make life-or-death choices](https://news.yahoo.com/were-alone-fight-survive-maui-184111990.html)
-- Aug 14 - [Driver loses control of pickup truck before it rolls, kills three in Visalia, CHP says](https://news.yahoo.com/driver-loses-control-pickup-truck-182756270.html)
+- Aug 14 - [Ivanka Trump’s Latest Appearance Has Everyone Confused About Her Relationship With Dad Donald](https://www.yahoo.com/entertainment/ivanka-trump-latest-appearance-everyone-185000315.html)
 <!-- feed end -->
 
 ### Onstream
