@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Former FBI agent says he was not aware of interference in Hunter Biden probe](https://news.yahoo.com/former-fbi-agent-says-not-215021209.html)
+- Aug 14 - [Tommy Tuberville Blocks Navy's First Woman Leader, Leaving 3rd Military Branch Hanging](https://news.yahoo.com/tommy-tuberville-blocks-navys-first-210000028.html)
+- Aug 14 - [Ozempic before and after: 5 women get real about weight loss, side effects and cost](https://news.yahoo.com/ozempic-5-women-real-weight-205459558.html)
+- Aug 14 - [DeSantis to Disney’s Iger: ‘Drop the lawsuit’](https://news.yahoo.com/desantis-disney-iger-drop-lawsuit-203304217.html)
 - Aug 14 - [Trump's attempt to undermine Manhattan DA Alvin Bragg's case badly backfires](https://news.yahoo.com/trumps-attempt-undermine-manhattan-da-193401288.html)
-- Aug 14 - [Ramp that connects 2 Wichita highways has closed. Here’s the suggested alternate route](https://news.yahoo.com/ramp-connects-2-wichita-highways-192807410.html)
-- Aug 14 - [Maui resident held on to stranger’s 2-year-old in the ocean as they awaited rescue](https://news.yahoo.com/maui-residents-describe-diving-ocean-200855249.html)
-- Aug 14 - [Ukraine tests homemade demining machine](https://news.yahoo.com/ukraine-tests-homemade-demining-machine-185131710.html)
-- Aug 14 - [Ivanka Trump’s Latest Appearance Has Everyone Confused About Her Relationship With Dad Donald](https://www.yahoo.com/entertainment/ivanka-trump-latest-appearance-everyone-185000315.html)
 <!-- feed end -->
 
 ### Onstream
