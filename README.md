@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [The Taliban are entrenched in Afghanistan after 2 years of rule. Women and girls pay the price](https://news.yahoo.com/taliban-entrenched-afghanistan-2-years-044327432.html)
+- Aug 14 - [Mom Explains Why She Allowed Her 17-Year-Old Son To Have Top Surgery — ‘Cody’s Heart Is So Full’](https://www.yahoo.com/lifestyle/mom-explains-why-she-allowed-041500368.html)
 - Aug 14 - [Ecuador was calm and peaceful. Now hitmen, kidnappers and robbers walk the streets](https://news.yahoo.com/ecuador-calm-peaceful-now-hitmen-041331956.html)
 - Aug 14 - [David McCormick is gearing up for a Senate run in Pennsylvania. But he lives in Connecticut](https://news.yahoo.com/david-mccormick-gearing-senate-run-040630524.html)
-- Aug 14 - [How Fani Willis oversaw what might be the most sprawling legal case against Donald Trump](https://news.yahoo.com/fani-willis-oversaw-might-most-040505424.html)
 - Aug 14 - [Maui Officials Clarify Reports Of Oprah Winfrey & CBS News Crew Being Denied Entry To Shelter Of Wildfire Survivors](https://www.yahoo.com/entertainment/maui-officials-clarify-reports-oprah-020815140.html)
-- Aug 14 - ['Not a cheeseburger’ comment suggests the NCAA is hellbent on hitting Jim Harbaugh hard](https://sports.yahoo.com/not-a-cheeseburger-comment-suggests-the-ncaa-is-hellbent-on-hitting-jim-harbaugh-hard-015020596.html)
 <!-- feed end -->
 
 ### Onstream
