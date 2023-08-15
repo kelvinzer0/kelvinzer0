@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [15 Cringe People Who Have Nothing Better To Do Than Make Everyone Around Them Uncomfy](https://www.yahoo.com/lifestyle/15-cringe-people-nothing-better-231603070.html)
 - Aug 14 - [Video shows Texas US Rep. Ronny Jackson berating officers after being wrestled to ground at rodeo](https://news.yahoo.com/video-shows-texas-us-rep-225301987.html)
 - Aug 14 - [WATCH: Traffic halted on Boston highway as caravan of street bikes do donuts, burnouts](https://news.yahoo.com/watch-traffic-halted-boston-highway-223211558.html)
-- Aug 14 - [A fierce naval battle 35 years ago shows how destructive another US showdown with Iran could get](https://news.yahoo.com/fierce-naval-battle-35-years-220301785.html)
 - Aug 14 - [Former FBI agent says he was not aware of interference in Hunter Biden probe](https://news.yahoo.com/former-fbi-agent-says-not-215021209.html)
 - Aug 14 - [Ozempic before and after: 5 women get real about weight loss, side effects and cost](https://news.yahoo.com/ozempic-5-women-real-weight-205459558.html)
 <!-- feed end -->
