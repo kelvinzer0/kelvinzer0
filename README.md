@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Trump Announces Plans to Finally Go Ahead and Prove Election Was Rigged](https://news.yahoo.com/trump-announces-plans-finally-ahead-141636460.html)
+- Aug 15 - [Motorcyclist struck husband and wife in front of Cape Cod restaurant, ran off into woods, police say](https://news.yahoo.com/motorcyclist-struck-husband-wife-front-134611128.html)
 - Aug 15 - [Hear what Republican voters have to say after listening to infamous Trump call](https://news.yahoo.com/republican-voters-listen-phone-call-023904248.html)
 - Aug 15 - [Russia's Shoigu says Ukraine depleted, war showing weakness of Western weapons](https://news.yahoo.com/russias-shoigu-says-ukraine-depleted-125054910.html)
 - Aug 15 - ['Let's move forward': Ron DeSantis tells Disney to drop lawsuit, says he's 'moved on'](https://finance.yahoo.com/news/lets-move-forward-ron-desantis-tells-disney-to-drop-lawsuit-says-hes-moved-on-124531730.html)
-- Aug 15 - ['You've screwed yourself': Dave Ramsey gets candid with a caller who cashed out her 403(b) to buy a home — here's what went wrong](https://finance.yahoo.com/news/youve-screwed-yourself-dave-ramsey-113000459.html)
-- Aug 15 - [Key Georgia Witness Reacts To Trump Saying He 'Shouldn't' Testify](https://news.yahoo.com/key-georgia-witness-reacts-trump-105308366.html)
 <!-- feed end -->
 
 ### Onstream
