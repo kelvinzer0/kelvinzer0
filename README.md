@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Fox News Turns to Paul Manafort to Defend New Trump Georgia Charges](https://www.yahoo.com/entertainment/fox-news-turns-paul-manafort-032831325.html)
+- Aug 15 - [Rudy Giuliani, who pioneered the use of RICO when he was a US attorney, just got indicted on RICO charges](https://news.yahoo.com/rudy-giuliani-pioneered-rico-us-031611367.html)
 - Aug 15 - [Hillary Clinton’s Reaction To Trump 2020 Election Case Indictments On ‘The Rachel Maddow Show’ Goes Viral](https://www.yahoo.com/entertainment/hillary-clinton-reaction-trump-2020-025315543.html)
 - Aug 15 - [Taiwan presidential frontrunner says no plans to change island's formal name](https://news.yahoo.com/taiwan-presidential-frontrunner-says-no-011323250.html)
 - Aug 14 - [Texas Gov. Abbott to Australian woman complaining about 'too many American flags': 'Go back to Australia'](https://news.yahoo.com/texas-gov-abbott-australian-woman-234233562.html)
