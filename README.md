@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Dershowitz predicts ‘there will be some convictions’ after fourth Trump indictment](https://news.yahoo.com/dershowitz-predicts-convictions-fourth-trump-210522461.html)
+- Aug 15 - [‘Where is the Chair When You Need It?’: Crazed White Woman Hits, Kicks Black Veteran Allegedly for Sitting Too Close at Louisiana Casino In Viral Video Sparking Outrage](https://news.yahoo.com/where-chair-crazed-white-woman-220940286.html)
+- Aug 15 - [North Korea asserts US soldier bolted into North after being disillusioned with American society](https://news.yahoo.com/north-korea-says-us-soldier-215716853.html)
+- Aug 15 - [An ex-Mafia hitman says Trump and Giuliani shouldn't face RICO charges because they aren't real criminals like he was](https://news.yahoo.com/ex-mafia-hitman-says-trump-205830386.html)
 - Aug 15 - [Alex Murdaugh's friend gets almost 4 years in prison for helping steal from his dead maid's family](https://news.yahoo.com/alex-murdaughs-friend-gets-almost-205821846.html)
 - Aug 15 - [Massive sea creature with over 3,000 teeth spotted near Texas coast, video shows](https://news.yahoo.com/massive-sea-creature-over-3-204642203.html)
-- Aug 15 - [Hear what Republican voters have to say after listening to infamous Trump call](https://news.yahoo.com/republican-voters-listen-phone-call-023904248.html)
-- Aug 15 - [Driver pulls over to check noises coming from engine and finds ‘joyriding’ stowaways](https://news.yahoo.com/driver-pulls-over-check-noises-204138033.html)
 <!-- feed end -->
 
 ### Onstream
