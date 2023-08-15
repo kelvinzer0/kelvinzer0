@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - ['You've screwed yourself': Dave Ramsey gets candid with a caller who cashed out her 403(b) to buy a home — here's what went wrong](https://finance.yahoo.com/news/youve-screwed-yourself-dave-ramsey-113000459.html)
+- Aug 15 - [‘Just as important as electricity or water': Biden says the US will spend $42B to give 'every person in America' access to the internet by 2030 — here are 3 stocks to pounce on](https://finance.yahoo.com/news/just-important-electricity-water-president-154500076.html)
+- Aug 15 - [Critics Mark Donald Trump's Latest Indictment In Most Brutally Mocking Ways](https://news.yahoo.com/critics-mark-donald-trumps-latest-095559270.html)
 - Aug 15 - [Sen. Lindsey Graham’s Defense Of Donald Trump Goes Spectacularly Awry](https://news.yahoo.com/sen-lindsey-graham-defense-donald-073852831.html)
 - Aug 15 - [John Dean Needs Just 5 Blunt Words To Sum Up New Trump Indictment](https://news.yahoo.com/john-dean-needs-just-5-064735405.html)
-- Aug 15 - [Israel may uproot ancient Christian mosaic near Armageddon. Where it could go next sparks outcry](https://news.yahoo.com/israel-may-uproot-ancient-christian-061011401.html)
-- Aug 15 - [Unbelievable video shows Tesla electric semitruck go head-to-head with a diesel 18-wheeler — see who won](https://news.yahoo.com/unbelievable-video-shows-tesla-electric-050000419.html)
-- Aug 15 - [Hillary Clinton’s Reaction To Trump 2020 Election Case Indictments On ‘The Rachel Maddow Show’ Goes Viral](https://www.yahoo.com/entertainment/hillary-clinton-reaction-trump-2020-025315543.html)
 <!-- feed end -->
 
 ### Onstream
