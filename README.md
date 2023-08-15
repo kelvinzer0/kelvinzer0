@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Hear what Republican voters have to say after listening to infamous Trump call](https://news.yahoo.com/republican-voters-listen-phone-call-023904248.html)
 - Aug 15 - ['You've screwed yourself': Dave Ramsey gets candid with a caller who cashed out her 403(b) to buy a home — here's what went wrong](https://finance.yahoo.com/news/youve-screwed-yourself-dave-ramsey-113000459.html)
+- Aug 15 - [Key Georgia Witness Reacts To Trump Saying He 'Shouldn't' Testify](https://news.yahoo.com/key-georgia-witness-reacts-trump-105308366.html)
 - Aug 15 - [‘Just as important as electricity or water': Biden says the US will spend $42B to give 'every person in America' access to the internet by 2030 — here are 3 stocks to pounce on](https://finance.yahoo.com/news/just-important-electricity-water-president-154500076.html)
-- Aug 15 - [Critics Mark Donald Trump's Latest Indictment In Most Brutally Mocking Ways](https://news.yahoo.com/critics-mark-donald-trumps-latest-095559270.html)
-- Aug 15 - [Sen. Lindsey Graham’s Defense Of Donald Trump Goes Spectacularly Awry](https://news.yahoo.com/sen-lindsey-graham-defense-donald-073852831.html)
-- Aug 15 - [John Dean Needs Just 5 Blunt Words To Sum Up New Trump Indictment](https://news.yahoo.com/john-dean-needs-just-5-064735405.html)
+- Aug 15 - ['I'm hacked off.' Memphis Mayor Jim Strickland sounds off on mass shooting, TN gun laws](https://news.yahoo.com/im-hacked-off-memphis-mayor-100215018.html)
 <!-- feed end -->
 
 ### Onstream
