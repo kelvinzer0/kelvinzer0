@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Caitlyn Jenner: ‘This is the first time I’ve ever been ashamed of my country’](https://news.yahoo.com/caitlyn-jenner-first-time-ve-143710575.html)
+- Aug 15 - [Homeowners were having issues with hot water tank before deadly blast in Pennsylvania, officials say](https://news.yahoo.com/homeowners-were-having-issues-hot-141819970.html)
 - Aug 15 - [Trump Announces Plans to Finally Go Ahead and Prove Election Was Rigged](https://news.yahoo.com/trump-announces-plans-finally-ahead-141636460.html)
 - Aug 15 - [Motorcyclist struck husband and wife in front of Cape Cod restaurant, ran off into woods, police say](https://news.yahoo.com/motorcyclist-struck-husband-wife-front-134611128.html)
 - Aug 15 - [Hear what Republican voters have to say after listening to infamous Trump call](https://news.yahoo.com/republican-voters-listen-phone-call-023904248.html)
-- Aug 15 - [Russia's Shoigu says Ukraine depleted, war showing weakness of Western weapons](https://news.yahoo.com/russias-shoigu-says-ukraine-depleted-125054910.html)
-- Aug 15 - ['Let's move forward': Ron DeSantis tells Disney to drop lawsuit, says he's 'moved on'](https://finance.yahoo.com/news/lets-move-forward-ron-desantis-tells-disney-to-drop-lawsuit-says-hes-moved-on-124531730.html)
 <!-- feed end -->
 
 ### Onstream
