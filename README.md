@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Trump Attorney Scolds ‘Fox & Friends’ Host to His Face: ‘You Used to Love Trump!’](https://www.yahoo.com/entertainment/trump-attorney-scolds-fox-friends-160917411.html)
+- Aug 15 - [Kid struck in head with arcade game ball when woman throws it at group, NJ cops say](https://news.yahoo.com/kid-struck-head-arcade-game-155247330.html)
+- Aug 15 - [New report shares the concerning reason why attendance at Disney’s theme parks is dropping — they’re becoming a ‘ghost town’](https://news.yahoo.com/report-shares-concerning-reason-why-150000056.html)
 - Aug 15 - [Caitlyn Jenner: ‘This is the first time I’ve ever been ashamed of my country’](https://news.yahoo.com/caitlyn-jenner-first-time-ve-143710575.html)
-- Aug 15 - [Homeowners were having issues with hot water tank before deadly blast in Pennsylvania, officials say](https://news.yahoo.com/homeowners-were-having-issues-hot-141819970.html)
 - Aug 15 - [Trump Announces Plans to Finally Go Ahead and Prove Election Was Rigged](https://news.yahoo.com/trump-announces-plans-finally-ahead-141636460.html)
-- Aug 15 - [Motorcyclist struck husband and wife in front of Cape Cod restaurant, ran off into woods, police say](https://news.yahoo.com/motorcyclist-struck-husband-wife-front-134611128.html)
-- Aug 15 - [Hear what Republican voters have to say after listening to infamous Trump call](https://news.yahoo.com/republican-voters-listen-phone-call-023904248.html)
 <!-- feed end -->
 
 ### Onstream
