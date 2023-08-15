@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - ["Signs You're In Your 40s" Was Trending On Twitter, And It's Kind Of Killing Me How Accurate These 34 Tweets Are About It](https://www.yahoo.com/lifestyle/signs-youre-40s-trending-twitter-202741998.html)
-- Aug 15 - [US Senator Feinstein sues over financial abuse in husband's estate](https://news.yahoo.com/us-senator-feinstein-sues-over-193517595.html)
-- Aug 15 - ['Wounded Indian' sculpture given in 1800s to group founded by Paul Revere is returning to Boston](https://news.yahoo.com/wounded-indian-sculpture-given-1800s-191533894.html)
-- Aug 15 - [How a Marine vet killed his stepfather with an atomic wedgie](https://news.yahoo.com/marine-vet-killed-stepfather-atomic-181536995.html)
-- Aug 15 - [Police: Victim found beaten and bruised after most recent attack by teens in Downtown Boston](https://news.yahoo.com/police-victim-found-beaten-bruised-181200507.html)
+- Aug 15 - [Dershowitz predicts ‘there will be some convictions’ after fourth Trump indictment](https://news.yahoo.com/dershowitz-predicts-convictions-fourth-trump-210522461.html)
+- Aug 15 - [Alex Murdaugh's friend gets almost 4 years in prison for helping steal from his dead maid's family](https://news.yahoo.com/alex-murdaughs-friend-gets-almost-205821846.html)
+- Aug 15 - [Massive sea creature with over 3,000 teeth spotted near Texas coast, video shows](https://news.yahoo.com/massive-sea-creature-over-3-204642203.html)
+- Aug 15 - [Hear what Republican voters have to say after listening to infamous Trump call](https://news.yahoo.com/republican-voters-listen-phone-call-023904248.html)
+- Aug 15 - [Driver pulls over to check noises coming from engine and finds ‘joyriding’ stowaways](https://news.yahoo.com/driver-pulls-over-check-noises-204138033.html)
 <!-- feed end -->
 
 ### Onstream
