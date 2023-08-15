@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Ex-FBI counterintelligence official pleads guilty to conspiracy charge for helping Russian oligarch](https://news.yahoo.com/ex-fbi-counterintelligence-official-pleads-182147460.html)
+- Aug 15 - ["Signs You're In Your 40s" Was Trending On Twitter, And It's Kind Of Killing Me How Accurate These 34 Tweets Are About It](https://www.yahoo.com/lifestyle/signs-youre-40s-trending-twitter-202741998.html)
+- Aug 15 - [US Senator Feinstein sues over financial abuse in husband's estate](https://news.yahoo.com/us-senator-feinstein-sues-over-193517595.html)
+- Aug 15 - ['Wounded Indian' sculpture given in 1800s to group founded by Paul Revere is returning to Boston](https://news.yahoo.com/wounded-indian-sculpture-given-1800s-191533894.html)
 - Aug 15 - [How a Marine vet killed his stepfather with an atomic wedgie](https://news.yahoo.com/marine-vet-killed-stepfather-atomic-181536995.html)
 - Aug 15 - [Police: Victim found beaten and bruised after most recent attack by teens in Downtown Boston](https://news.yahoo.com/police-victim-found-beaten-bruised-181200507.html)
-- Aug 15 - [Ukrainian Stryker Seen In Frontline Video For The First Time](https://news.yahoo.com/ukrainian-stryker-seen-frontline-video-180540970.html)
-- Aug 15 - [Special prosecutor will examine actions of Georgia's lieutenant governor in Trump election meddling](https://news.yahoo.com/special-prosecutor-examine-actions-georgias-180116809.html)
 <!-- feed end -->
 
 ### Onstream
