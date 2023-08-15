@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Jenna Ellis Mocked For Invoking God After Getting Indicted](https://news.yahoo.com/jenna-ellis-mocked-invoking-god-175516145.html)
-- Aug 15 - [Georgia GOP Gov. Brian Kemp rips Trump’s plan to "exonerate" himself with "conclusive" fraud report](https://news.yahoo.com/georgia-gop-gov-brian-kemp-175034620.html)
-- Aug 15 - [Another Cop Mistakes A Random Object for a Weapon](https://news.yahoo.com/another-cop-mistakes-random-object-171000878.html)
-- Aug 15 - [Trump Georgia indictment: What his GOP rivals are saying](https://news.yahoo.com/trump-georgia-indictment-what-his-gop-rivals-are-saying-164433546.html)
-- Aug 15 - [In panic mode after ruble plunges below a penny, Russia rescues Vladimir Putin from humiliating currency collapse with emergency hike](https://finance.yahoo.com/news/panic-mode-ruble-plunges-below-154524977.html)
+- Aug 15 - [Ex-FBI counterintelligence official pleads guilty to conspiracy charge for helping Russian oligarch](https://news.yahoo.com/ex-fbi-counterintelligence-official-pleads-182147460.html)
+- Aug 15 - [How a Marine vet killed his stepfather with an atomic wedgie](https://news.yahoo.com/marine-vet-killed-stepfather-atomic-181536995.html)
+- Aug 15 - [Police: Victim found beaten and bruised after most recent attack by teens in Downtown Boston](https://news.yahoo.com/police-victim-found-beaten-bruised-181200507.html)
+- Aug 15 - [Ukrainian Stryker Seen In Frontline Video For The First Time](https://news.yahoo.com/ukrainian-stryker-seen-frontline-video-180540970.html)
+- Aug 15 - [Special prosecutor will examine actions of Georgia's lieutenant governor in Trump election meddling](https://news.yahoo.com/special-prosecutor-examine-actions-georgias-180116809.html)
 <!-- feed end -->
 
 ### Onstream
