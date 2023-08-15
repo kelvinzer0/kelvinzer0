@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Taiwan presidential frontrunner says no plans to change island's formal name](https://news.yahoo.com/taiwan-presidential-frontrunner-says-no-011323250.html)
+- Aug 14 - [Texas Gov. Abbott to Australian woman complaining about 'too many American flags': 'Go back to Australia'](https://news.yahoo.com/texas-gov-abbott-australian-woman-234233562.html)
 - Aug 14 - [This man says squatters took over his home – he got arrested when he called the police on them](https://news.yahoo.com/man-says-squatters-took-over-231606788.html)
-- Aug 14 - [15 Cringe People Who Have Nothing Better To Do Than Make Everyone Around Them Uncomfy](https://www.yahoo.com/lifestyle/15-cringe-people-nothing-better-231603070.html)
 - Aug 14 - [Video shows Texas US Rep. Ronny Jackson berating officers after being wrestled to ground at rodeo](https://news.yahoo.com/video-shows-texas-us-rep-225301987.html)
 - Aug 14 - [Desperate residents are looting businesses and robbing people at gunpoint, Maui locals say](https://news.yahoo.com/desperate-residents-looting-businesses-robbing-223334797.html)
-- Aug 14 - [WATCH: Traffic halted on Boston highway as caravan of street bikes do donuts, burnouts](https://news.yahoo.com/watch-traffic-halted-boston-highway-223211558.html)
 <!-- feed end -->
 
 ### Onstream
