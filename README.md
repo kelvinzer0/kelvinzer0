@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 15 - [Jenna Ellis Mocked For Invoking God After Getting Indicted](https://news.yahoo.com/jenna-ellis-mocked-invoking-god-175516145.html)
+- Aug 15 - [Georgia GOP Gov. Brian Kemp rips Trump’s plan to "exonerate" himself with "conclusive" fraud report](https://news.yahoo.com/georgia-gop-gov-brian-kemp-175034620.html)
+- Aug 15 - [Another Cop Mistakes A Random Object for a Weapon](https://news.yahoo.com/another-cop-mistakes-random-object-171000878.html)
 - Aug 15 - [Trump Georgia indictment: What his GOP rivals are saying](https://news.yahoo.com/trump-georgia-indictment-what-his-gop-rivals-are-saying-164433546.html)
-- Aug 15 - [Trump Attorney Scolds ‘Fox & Friends’ Host to His Face: ‘You Used to Love Trump!’](https://www.yahoo.com/entertainment/trump-attorney-scolds-fox-friends-160917411.html)
-- Aug 15 - [Expert: Trump's plan to counter indictment with "irrefutable" fraud proof will blow up in his face](https://news.yahoo.com/expert-trumps-plan-counter-indictment-152717936.html)
-- Aug 15 - [New report shares the concerning reason why attendance at Disney’s theme parks is dropping — they’re becoming a ‘ghost town’](https://news.yahoo.com/report-shares-concerning-reason-why-150000056.html)
+- Aug 15 - [In panic mode after ruble plunges below a penny, Russia rescues Vladimir Putin from humiliating currency collapse with emergency hike](https://finance.yahoo.com/news/panic-mode-ruble-plunges-below-154524977.html)
 <!-- feed end -->
 
 ### Onstream
