@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Sen. Lindsey Graham’s Defense Of Donald Trump Goes Spectacularly Awry](https://news.yahoo.com/sen-lindsey-graham-defense-donald-073852831.html)
+- Aug 15 - [John Dean Needs Just 5 Blunt Words To Sum Up New Trump Indictment](https://news.yahoo.com/john-dean-needs-just-5-064735405.html)
 - Aug 15 - [Israel may uproot ancient Christian mosaic near Armageddon. Where it could go next sparks outcry](https://news.yahoo.com/israel-may-uproot-ancient-christian-061011401.html)
 - Aug 15 - [Unbelievable video shows Tesla electric semitruck go head-to-head with a diesel 18-wheeler — see who won](https://news.yahoo.com/unbelievable-video-shows-tesla-electric-050000419.html)
 - Aug 15 - [Hillary Clinton’s Reaction To Trump 2020 Election Case Indictments On ‘The Rachel Maddow Show’ Goes Viral](https://www.yahoo.com/entertainment/hillary-clinton-reaction-trump-2020-025315543.html)
-- Aug 15 - [Republican voters listen to the phone call that landed Trump in hot water. See what they had to say](https://news.yahoo.com/republican-voters-listen-phone-call-023904248.html)
-- Aug 15 - [Taiwan presidential frontrunner says no plans to change island's formal name](https://news.yahoo.com/taiwan-presidential-frontrunner-says-no-011323250.html)
 <!-- feed end -->
 
 ### Onstream
