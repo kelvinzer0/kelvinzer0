@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [North Korea says Travis King wants refuge from racism](https://news.yahoo.com/north-korea-says-travis-king-024459796.html)
+- Aug 16 - [166-year-old luxury retailer in San Francisco warns: This could be our last year](https://finance.yahoo.com/news/166-old-luxury-retailer-san-213524416.html)
 - Aug 16 - [GetGo to offer $0.50 per gallon discount on gas starting Thursday, here’s how to get it](https://news.yahoo.com/getgo-offer-0-50-per-013007117.html)
 - Aug 16 - [What do these vaginal odors mean? Here's what experts say — and when to worry.](https://www.yahoo.com/lifestyle/vaginal-odor-meaning-003224733.html)
-- Aug 16 - [A Ukrainian sergeant says the battleground was so thick with wounded soldiers that the evacuation vehicles were accidentally driving over their bodies](https://news.yahoo.com/ukrainian-sergeant-says-battleground-thick-000010578.html)
 - Aug 15 - [New COVID 'Eris' variant: The symptoms, how dangerous it is and whether vaccines work](https://www.yahoo.com/lifestyle/new-covid-eris-variant-symptoms-how-dangerous-233614510.html)
+- Aug 15 - [Katharine McPhee & David Foster's Nanny's Cause of Death Revealed (Reports)](https://www.yahoo.com/entertainment/katharine-mcphee-david-fosters-nannys-232514845.html)
 <!-- feed end -->
 
 ### Onstream
