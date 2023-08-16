@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [Forget Kid Rock: Bud Light faces a new big-name critic](https://www.thestreet.com/restaurants/forget-kid-rock-bud-light-face-a-new-big-name-critic?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 16 - [‘Politicians have too much power’: Sen. Tommy Tuberville just disclosed $250K in futures trading in wheat, corn, soy and cattle — all while influencing agricultural policies](https://finance.yahoo.com/news/politicians-too-much-power-sen-163000715.html)
+- Aug 16 - [People are spotting Tesla's Cybertruck in the wild and it looks insane next to regular cars](https://news.yahoo.com/people-spotting-teslas-cybertruck-wild-170131114.html)
+- Aug 16 - [Gruesome video circulating on social media recalls darkest days of Mexico's drug cartel brutality](https://news.yahoo.com/horrifying-execution-video-recalls-darkest-164613289.html)
+- Aug 16 - [Jeff Bezos Told His Employees, 'I Predict One Day Amazon Will Fail. Amazon Will Go Bankrupt.' But His Goal is to Delay The Inevitable](https://finance.yahoo.com/news/jeff-bezos-told-employees-predict-190915894.html)
+- Aug 16 - [‘Politicians have too much power’: Sen. Tommy Tuberville just disclosed $250K in futures trading in corn, wheat, soy and cattle — all while influencing agricultural policies](https://finance.yahoo.com/news/politicians-too-much-power-sen-163000715.html)
 - Aug 16 - [New video shows Russia fail to stop a Ukrainian drone boat named 'Sea Baby' from blowing apart a key bridge with nearly 2,000 lbs of explosives](https://news.yahoo.com/video-shows-russia-fail-stop-161025851.html)
-- Aug 16 - [Saudi Arabia says it executes American citizen convicted of killing his father](https://news.yahoo.com/saudi-arabia-says-executes-american-153628564.html)
-- Aug 16 - [Surgeons Are Sharing The Scariest And Wildest Moments They've Had During A Procedure, And I'm 1,000% Speechless](https://www.yahoo.com/lifestyle/surgeons-sharing-scariest-wildest-moments-151602855.html)
 <!-- feed end -->
 
 ### Onstream
