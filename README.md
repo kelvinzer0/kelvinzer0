@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [Haiti gang leader vows to fight any foreign armed force if it commits abuses](https://news.yahoo.com/haiti-gang-leader-vows-fight-211624777.html)
+- Aug 16 - [Trump supporters post names and addresses of Georgia grand jurors online](https://news.yahoo.com/trump-supporters-post-names-addresses-210814516.html)
 - Aug 16 - [Trump plunges to 35% favorable rating in dire new poll that says 53% back indictments](https://news.yahoo.com/trump-plunges-35-favorable-rating-192900652.html)
 - Aug 16 - [Russia confirms it hit Swedish plant in Lutsk, saying it was a military target](https://news.yahoo.com/russia-confirms-hit-swedish-plant-184752816.html)
-- Aug 16 - [Tennessee man who killed 8 gets life in prison in surprise plea deal after new evidence surfaces](https://news.yahoo.com/tennessee-man-killed-8-gets-181117097.html)
-- Aug 16 - [DeSantis asked about his response if his kids turn out to be gay or trans: ‘We’ll leave that between my wife and I’](https://news.yahoo.com/desantis-asked-response-kids-turn-175737749.html)
-- Aug 16 - [People are spotting Tesla's Cybertruck in the wild and it looks insane next to regular cars](https://news.yahoo.com/people-spotting-teslas-cybertruck-wild-170131114.html)
+- Aug 16 - [Video shows Long Island officer mow down gun-toting suspect at busy intersection](https://news.yahoo.com/video-shows-long-island-officer-184357621.html)
 <!-- feed end -->
 
 ### Onstream
