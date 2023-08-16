@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [Trump Will Quit Campaign in Plea Deal for No Jail Time, Scaramucci Predicts on ‘Cuomo’: (Video)](https://www.yahoo.com/entertainment/trump-quit-campaign-plea-deal-141343023.html)
+- Aug 16 - [Mark Meadows surfaces at last — and it sure looks like he's flipped on Trump](https://news.yahoo.com/mark-meadows-surfaces-last-sure-133355174.html)
+- Aug 16 - [Body of strangled 11-year-old Texas girl found hidden under bed after sex assault, police say](https://news.yahoo.com/body-strangled-11-old-texas-132408959.html)
 - Aug 16 - [Why do companies want people back in the office? Study after study shows that working from home can lead to more efficiency and higher quality work. Here are 3 possible reasons](https://finance.yahoo.com/news/study-study-shows-working-home-130000724.html)
 - Aug 16 - [‘Sold His Soul to the Devil’: Barack Obama’s Estranged Brother Malik Shares Throwback Photo of the Former President, Calls Him a ‘Snake’ and a ‘Trader’ In Twitter Rant](https://news.yahoo.com/sold-soul-devil-barack-obama-113418179.html)
-- Aug 16 - [Lara Trump Roasted After Raging 'There's Nothing Funny' About Trump Indictment](https://news.yahoo.com/lara-trump-roasted-raging-theres-111507845.html)
-- Aug 16 - [13 Celebrities Who Supported Trump In 2020 And Their Opinions On Him Now](https://www.yahoo.com/entertainment/13-celebrities-supported-trump-2020-110450561.html)
-- Aug 16 - [She saw a snake's head coming out of her brick wall. Then it got weirder.](https://news.yahoo.com/she-saw-snakes-head-coming-100428880.html)
 <!-- feed end -->
 
 ### Onstream
