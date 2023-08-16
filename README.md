@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [Russia's top general Sergei Shoigu bragged that the Kremlin's war in Ukraine has 'debunked many myths' that NATO weapons and military standards are superior](https://news.yahoo.com/russias-top-general-sergei-shoigu-061853820.html)
+- Aug 16 - [Connecticut man seen brutally attacking police officer with hammer on body camera](https://news.yahoo.com/connecticut-man-seen-brutally-attacking-045339714.html)
 - Aug 16 - [Trump enjoys strong support among Republicans. The general election could be a different story](https://news.yahoo.com/trump-enjoys-strong-support-among-040345257.html)
 - Aug 16 - [166-year-old luxury retailer in San Francisco warns: This could be our last year](https://finance.yahoo.com/news/166-old-luxury-retailer-san-213524416.html)
-- Aug 16 - [GetGo to offer $0.50 per gallon discount on gas starting Thursday, here’s how to get it](https://news.yahoo.com/getgo-offer-0-50-per-013007117.html)
-- Aug 16 - [What do these vaginal odors mean? Here's what experts say — and when to worry.](https://www.yahoo.com/lifestyle/vaginal-odor-meaning-003224733.html)
-- Aug 15 - [New COVID 'Eris' variant: The symptoms, how dangerous it is and whether vaccines work](https://www.yahoo.com/lifestyle/new-covid-eris-variant-symptoms-how-dangerous-233614510.html)
+- Aug 16 - [Prosecutors weigh second gun analysis in fatal shooting of cinematographer by Alec Baldwin](https://news.yahoo.com/prosecutors-weigh-second-gun-analysis-021819114.html)
 <!-- feed end -->
 
 ### Onstream
