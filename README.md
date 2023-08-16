@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 16 - [Trump plunges to 35% favorable rating in dire new poll that says 53% back indictments](https://news.yahoo.com/trump-plunges-35-favorable-rating-192900652.html)
-- Aug 16 - ["I've never seen anything like it": Economic analyst stunned at sources of Jared Kushner's funds](https://news.yahoo.com/ive-never-seen-anything-economic-184852509.html)
-- Aug 16 - [US appeals court orders restrictions on abortion pill, implementation on hold](https://news.yahoo.com/us-appeals-court-rules-restrict-184207899.html)
+- Aug 16 - [Russia confirms it hit Swedish plant in Lutsk, saying it was a military target](https://news.yahoo.com/russia-confirms-hit-swedish-plant-184752816.html)
 - Aug 16 - [Tennessee man who killed 8 gets life in prison in surprise plea deal after new evidence surfaces](https://news.yahoo.com/tennessee-man-killed-8-gets-181117097.html)
+- Aug 16 - [DeSantis asked about his response if his kids turn out to be gay or trans: ‘We’ll leave that between my wife and I’](https://news.yahoo.com/desantis-asked-response-kids-turn-175737749.html)
 - Aug 16 - [People are spotting Tesla's Cybertruck in the wild and it looks insane next to regular cars](https://news.yahoo.com/people-spotting-teslas-cybertruck-wild-170131114.html)
 <!-- feed end -->
 
