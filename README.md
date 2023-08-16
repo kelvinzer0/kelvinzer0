@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [People Are Sharing Terrible Financial Decisions, And I'm Clutching My Pennies Real Tight After Seeing These](https://www.yahoo.com/lifestyle/people-sharing-worst-financial-decisions-171603195.html)
+- Aug 16 - [Trump plunges to 35% favorable rating in dire new poll that says 53% back indictments](https://news.yahoo.com/trump-plunges-35-favorable-rating-192900652.html)
+- Aug 16 - ["I've never seen anything like it": Economic analyst stunned at sources of Jared Kushner's funds](https://news.yahoo.com/ive-never-seen-anything-economic-184852509.html)
+- Aug 16 - [US appeals court orders restrictions on abortion pill, implementation on hold](https://news.yahoo.com/us-appeals-court-rules-restrict-184207899.html)
+- Aug 16 - [Tennessee man who killed 8 gets life in prison in surprise plea deal after new evidence surfaces](https://news.yahoo.com/tennessee-man-killed-8-gets-181117097.html)
 - Aug 16 - [People are spotting Tesla's Cybertruck in the wild and it looks insane next to regular cars](https://news.yahoo.com/people-spotting-teslas-cybertruck-wild-170131114.html)
-- Aug 16 - [ALDI is buying Winn-Dixie: Where are these stores in Volusia, Flagler counties?](https://news.yahoo.com/aldi-buying-winn-dixie-where-165221707.html)
-- Aug 16 - [Gruesome video circulating on social media recalls darkest days of Mexico's drug cartel brutality](https://news.yahoo.com/horrifying-execution-video-recalls-darkest-164613289.html)
-- Aug 16 - [Jeff Bezos Told His Employees, 'I Predict One Day Amazon Will Fail. Amazon Will Go Bankrupt.' But His Goal is to Delay The Inevitable](https://finance.yahoo.com/news/jeff-bezos-told-employees-predict-190915894.html)
 <!-- feed end -->
 
 ### Onstream
