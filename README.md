@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [My husband works for UPS and I wish people could see how hard his job is — and why the new $170,000 contract deal is well deserved](https://news.yahoo.com/husband-works-ups-wish-people-091601576.html)
-- Aug 16 - [Russia's top general Sergei Shoigu bragged that the Kremlin's war in Ukraine has 'debunked many myths' that NATO weapons and military standards are superior](https://news.yahoo.com/russias-top-general-sergei-shoigu-061853820.html)
-- Aug 16 - [Connecticut man seen brutally attacking police officer with hammer on body camera](https://news.yahoo.com/connecticut-man-seen-brutally-attacking-045339714.html)
-- Aug 16 - [Trump enjoys strong support among Republicans. The general election could be a different story](https://news.yahoo.com/trump-enjoys-strong-support-among-040345257.html)
-- Aug 16 - [166-year-old luxury retailer in San Francisco warns: This could be our last year](https://finance.yahoo.com/news/166-old-luxury-retailer-san-213524416.html)
+- Aug 16 - [Lara Trump Roasted After Raging 'There's Nothing Funny' About Trump Indictment](https://news.yahoo.com/lara-trump-roasted-raging-theres-111507845.html)
+- Aug 16 - [13 Celebrities Who Supported Trump In 2020 And What They Say About Him Now](https://www.yahoo.com/entertainment/13-celebrities-supported-trump-2020-110450561.html)
+- Aug 16 - [‘A natural desire to diversify': Janet Yellen now says Americans should anticipate a decline in the USD as the world's reserve currency — here's what you need to know and how you can prepare](https://finance.yahoo.com/news/natural-way-diversify-janet-yellen-125500087.html)
+- Aug 16 - [An indicted Sidney Powell hit rock bottom and kept digging, posting election conspiracy theories and hawking $25 signed photos of herself](https://news.yahoo.com/indicted-sidney-powell-hit-rock-103340757.html)
+- Aug 16 - [She saw a snake's head coming out of her brick wall. Then it got weirder.](https://news.yahoo.com/she-saw-snakes-head-coming-100428880.html)
 <!-- feed end -->
 
 ### Onstream
