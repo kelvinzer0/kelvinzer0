@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [‘Where is the Chair When You Need It?’: Crazed White Woman Hits, Kicks Black Veteran Allegedly for Sitting Too Close at Louisiana Casino In Viral Video Sparking Outrage](https://news.yahoo.com/where-chair-crazed-white-woman-220940286.html)
-- Aug 15 - [North Korea asserts US soldier bolted into North after being disillusioned with American society](https://news.yahoo.com/north-korea-says-us-soldier-215716853.html)
-- Aug 15 - [An ex-Mafia hitman says Trump and Giuliani shouldn't face RICO charges because they aren't real criminals like he was](https://news.yahoo.com/ex-mafia-hitman-says-trump-205830386.html)
-- Aug 15 - [Alex Murdaugh's friend gets almost 4 years in prison for helping steal from his dead maid's family](https://news.yahoo.com/alex-murdaughs-friend-gets-almost-205821846.html)
-- Aug 15 - [Massive sea creature with over 3,000 teeth spotted near Texas coast, video shows](https://news.yahoo.com/massive-sea-creature-over-3-204642203.html)
+- Aug 16 - [A Ukrainian sergeant says the battleground was so thick with wounded soldiers that the evacuation vehicles were accidentally driving over their bodies](https://news.yahoo.com/ukrainian-sergeant-says-battleground-thick-000010578.html)
+- Aug 15 - [New COVID 'Eris' variant: The symptoms, how dangerous it is and whether vaccines work](https://www.yahoo.com/lifestyle/new-covid-eris-variant-symptoms-how-dangerous-233614510.html)
+- Aug 15 - [Kimberly Guilfoyle Cites John Gotti To Defend Trump, Makes The Opposite Point She Intended](https://news.yahoo.com/kimberly-guilfoyle-cites-john-gotti-231425896.html)
+- Aug 15 - [North Korea media confirms country has detained U.S. Private Travis King](https://news.yahoo.com/north-korea-media-confirms-country-225333885.html)
+- Aug 15 - [Father of a 12-year-old detained while taking out trash says he will not accept a police apology](https://news.yahoo.com/father-12-old-detained-while-223510809.html)
 <!-- feed end -->
 
 ### Onstream
