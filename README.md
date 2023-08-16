@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [A Ukrainian sergeant says the battleground was so thick with wounded soldiers that the evacuation vehicles were accidentally driving over their bodies](https://news.yahoo.com/ukrainian-sergeant-says-battleground-thick-000010578.html)
+- Aug 16 - [GetGo to offer $0.50 per gallon discount on gas starting Thursday, here’s how to get it](https://news.yahoo.com/getgo-offer-0-50-per-013007117.html)
+- Aug 16 - [What do these vaginal odors mean? Here's what experts say — and when to worry.](https://www.yahoo.com/lifestyle/vaginal-odor-meaning-003224733.html)
 - Aug 15 - [New COVID 'Eris' variant: The symptoms, how dangerous it is and whether vaccines work](https://www.yahoo.com/lifestyle/new-covid-eris-variant-symptoms-how-dangerous-233614510.html)
 - Aug 15 - [Kimberly Guilfoyle Cites John Gotti To Defend Trump, Makes The Opposite Point She Intended](https://news.yahoo.com/kimberly-guilfoyle-cites-john-gotti-231425896.html)
-- Aug 15 - [North Korea media confirms country has detained U.S. Private Travis King](https://news.yahoo.com/north-korea-media-confirms-country-225333885.html)
-- Aug 15 - [Father of a 12-year-old detained while taking out trash says he will not accept a police apology](https://news.yahoo.com/father-12-old-detained-while-223510809.html)
+- Aug 15 - [Salem Fire rescues Willamette Queen sternwheeler after it was untied from dock, hit bridge](https://news.yahoo.com/salem-fire-recuses-willamette-queen-231318394.html)
 <!-- feed end -->
 
 ### Onstream
