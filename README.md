@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [Saudi Arabia says it executes American citizen convicted of killing his father](https://news.yahoo.com/saudi-arabia-says-executes-american-153628564.html)
+- Aug 16 - [Trump's advisors say he's 'upset' Rudy Giuliani got indicted too — but not enough to pay his legal bills, Maggie Haberman told CNN](https://news.yahoo.com/trumps-advisors-hes-upset-rudy-150142425.html)
 - Aug 16 - [Trump Will Quit Campaign in Plea Deal for No Jail Time, Scaramucci Predicts on ‘Cuomo’: (Video)](https://www.yahoo.com/entertainment/trump-quit-campaign-plea-deal-141343023.html)
+- Aug 16 - [Woman orders dogs to attack accused home intruder barging through door, Florida cops say](https://news.yahoo.com/woman-orders-dogs-attack-accused-134642852.html)
 - Aug 16 - [Mark Meadows surfaces at last — and it sure looks like he's flipped on Trump](https://news.yahoo.com/mark-meadows-surfaces-last-sure-133355174.html)
-- Aug 16 - [Body of strangled 11-year-old Texas girl found hidden under bed after sex assault, police say](https://news.yahoo.com/body-strangled-11-old-texas-132408959.html)
-- Aug 16 - [Why do companies want people back in the office? Study after study shows that working from home can lead to more efficiency and higher quality work. Here are 3 possible reasons](https://finance.yahoo.com/news/study-study-shows-working-home-130000724.html)
-- Aug 16 - [‘Sold His Soul to the Devil’: Barack Obama’s Estranged Brother Malik Shares Throwback Photo of the Former President, Calls Him a ‘Snake’ and a ‘Trader’ In Twitter Rant](https://news.yahoo.com/sold-soul-devil-barack-obama-113418179.html)
 <!-- feed end -->
 
 ### Onstream
