@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Cincinnati Bengals' Joe Mixon found not guilty in menacing trial](https://news.yahoo.com/verdict-bengals-joe-mixon-menacing-150637562.html)
-- Aug 17 - [‘I Want Her Life Destroyed’: A North Carolina Property Manager Was Caught Pouring a Soda Bottle on 11-Year-Old Boy’s Face Before Hitting Him. Now His Family Plans to Sue the Apartment Complex](https://news.yahoo.com/want-her-life-destroyed-north-150000481.html)
-- Aug 17 - [A leading longevity expert says there are 4 things you can do today to scientifically reduce your body's biological age](https://www.yahoo.com/lifestyle/leading-longevity-expert-says-4-144524446.html)
-- Aug 17 - [Austin school district cancels classes at Travis High School on Thursday after 'incident'](https://news.yahoo.com/austin-school-district-cancels-classes-144344346.html)
-- Aug 17 - [Mississippi judge declares mistrial in case of 2 white men charged in attack on Black FedEx driver](https://news.yahoo.com/confrontation-2-white-men-left-143841643.html)
+- Aug 17 - [U.S. and Canada coast guards issue warning ahead of Port Huron Float Down](https://news.yahoo.com/u-canada-coast-guards-issue-171418256.html)
+- Aug 17 - [Four 13-year-old suspects arrested in connection with unprovoked attack at South Bay shopping center](https://news.yahoo.com/four-13-old-suspects-arrested-170216962.html)
+- Aug 17 - [Hurricane Hilary could bring more than a year's worth of rain to Palm Springs area](https://news.yahoo.com/hurricane-hilary-could-bring-more-170116973.html)
+- Aug 17 - [‘The Hustle Is Real’: Viral Photo of ‘Flip-Flop Man’ Outside of Beyoncé Concert Has Many Calling Him a Genius](https://news.yahoo.com/hustle-real-viral-photo-flip-160010892.html)
+- Aug 17 - [Fitness influencer calls Logan Paul's Prime Hydration a 'profitable scam': 'I have to professionally disagree'](https://news.yahoo.com/fitness-influencer-calls-logan-pauls-prime-hydration-a-profitable-scam-i-have-to-professionally-disagree-154503269.html)
 <!-- feed end -->
 
 ### Onstream
