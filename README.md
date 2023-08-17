@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Rarely seen predator spotted tearing up Texas beach, photos show. ‘Look at it dig!’](https://news.yahoo.com/rarely-seen-predator-spotted-tearing-205612226.html)
+- Aug 17 - [Disabled veteran denied bathroom access laughed at by Dallas police after wetting himself](https://news.yahoo.com/disabled-veteran-denied-bathroom-access-204310426.html)
+- Aug 17 - [Rachael DelTondo Murder: Parents issue statement after DA names prime suspect](https://news.yahoo.com/rachael-deltondo-murder-parents-issue-204027387.html)
 - Aug 17 - [Phil Mickelson abandoned friend and partner in time of need, new book alleges](https://sports.yahoo.com/phil-mickelson-abandoned-friend-and-partner-in-time-of-need-new-book-alleges-200705731.html)
 - Aug 17 - [2 NASCAR drivers charged with DWI in separate incidents in Huntersville](https://news.yahoo.com/2-nascar-drivers-charged-dwi-192221618.html)
-- Aug 17 - [Judge Issues Restraining Order for Bengals Star Ja’Marr Chase Against Woman Allegedly Making ‘Disturbing’ Claims Following One-Night Stand](https://sports.yahoo.com/judge-issues-restraining-order-bengals-184354177.html)
-- Aug 17 - [Georgia law enforcement probe threats after Trump grand jury ID'd online](https://news.yahoo.com/law-enforcement-probing-threats-over-184104500.html)
-- Aug 17 - [Speakeasy Ultra Lounge in downtown Appleton has licenses suspended for seminude dancing](https://news.yahoo.com/speakeasy-ultra-lounge-downtown-appleton-183003806.html)
 <!-- feed end -->
 
 ### Onstream
