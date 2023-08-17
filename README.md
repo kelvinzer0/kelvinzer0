@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - ['It makes an enormous difference': Warren Buffett says there's a simple 'trick' to building a fat retirement nest egg — here's how to pull it off](https://finance.yahoo.com/news/makes-enormous-difference-warren-buffett-120000311.html)
-- Aug 17 - [Lindsey Graham Makes WTF Claim About Trump Indictments And Gets Corrected](https://news.yahoo.com/lindsey-graham-makes-wtf-claim-120602929.html)
-- Aug 17 - [Wild video shows Ukrainian troops taking a blast to their US-donated Humvee, which they credit with saving their lives](https://news.yahoo.com/wild-video-shows-ukrainian-troops-113202968.html)
-- Aug 17 - [Harness brothers donate land for conservation to prevent housing development by Neenah](https://news.yahoo.com/harness-brothers-donate-land-conservation-100219868.html)
-- Aug 17 - [Scientists discover ‘magical’ material that’s stronger than steel and lighter than aluminum — and its potential is dizzying](https://news.yahoo.com/scientists-discover-magical-material-stronger-100000581.html)
+- Aug 17 - [Mississippi judge declares mistrial in case of 2 white men charged in attack on Black FedEx driver](https://news.yahoo.com/confrontation-2-white-men-left-143841643.html)
+- Aug 17 - ['How dare you do that?': This Hawaii resident blasted investors for pressuring victims to buy their scorched land — as death toll passes 100 and hundreds more still missing](https://finance.yahoo.com/news/dare-hawaii-resident-blasted-investors-143000004.html)
+- Aug 17 - [Teen Apparently Left Deranged Notes on Obit of Boyfriend She Murdered](https://news.yahoo.com/teen-apparently-left-deranged-notes-140432477.html)
+- Aug 17 - [Warrant allowing raid on Kansas newspaper withdrawn due to 'insufficient evidence'](https://news.yahoo.com/kansas-newspaper-police-raid-warrant-withdrawn-equipment-released-marion-county-record-140050314.html)
+- Aug 17 - [“We Will Kill You”: Trump Supporters Threaten Judge, Jurors Amid Indictments](https://news.yahoo.com/kill-trump-supporters-threaten-judge-135830238.html)
 <!-- feed end -->
 
 ### Onstream
