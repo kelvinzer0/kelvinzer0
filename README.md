@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Bengals RB Joe Mixon found not guilty in road rage case](https://sports.yahoo.com/bengals-rb-joe-mixon-found-not-guilty-in-road-rage-case-155744962.html)
+- Aug 17 - [‘I Want Her Life Destroyed’: A North Carolina Property Manager Was Caught Pouring a Soda Bottle on 11-Year-Old Boy’s Face Before Hitting Him. Now His Family Plans to Sue the Apartment Complex](https://news.yahoo.com/want-her-life-destroyed-north-150000481.html)
+- Aug 17 - [A leading longevity expert says there are 4 things you can do today to scientifically reduce your body's biological age](https://www.yahoo.com/lifestyle/leading-longevity-expert-says-4-144524446.html)
+- Aug 17 - [Austin school district cancels classes at Travis High School on Thursday after 'incident'](https://news.yahoo.com/austin-school-district-cancels-classes-144344346.html)
 - Aug 17 - [Mississippi judge declares mistrial in case of 2 white men charged in attack on Black FedEx driver](https://news.yahoo.com/confrontation-2-white-men-left-143841643.html)
-- Aug 17 - ['How dare you do that?': This Hawaii resident blasted investors for pressuring victims to buy their scorched land — as death toll passes 100 and hundreds more still missing](https://finance.yahoo.com/news/dare-hawaii-resident-blasted-investors-143000004.html)
-- Aug 17 - [Teen Apparently Left Deranged Notes on Obit of Boyfriend She Murdered](https://news.yahoo.com/teen-apparently-left-deranged-notes-140432477.html)
-- Aug 17 - [Warrant allowing raid on Kansas newspaper withdrawn due to 'insufficient evidence'](https://news.yahoo.com/kansas-newspaper-police-raid-warrant-withdrawn-equipment-released-marion-county-record-140050314.html)
-- Aug 17 - [“We Will Kill You”: Trump Supporters Threaten Judge, Jurors Amid Indictments](https://news.yahoo.com/kill-trump-supporters-threaten-judge-135830238.html)
 <!-- feed end -->
 
 ### Onstream
