@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [U.S. and Canada coast guards issue warning ahead of Port Huron Float Down](https://news.yahoo.com/u-canada-coast-guards-issue-171418256.html)
-- Aug 17 - [Four 13-year-old suspects arrested in connection with unprovoked attack at South Bay shopping center](https://news.yahoo.com/four-13-old-suspects-arrested-170216962.html)
-- Aug 17 - [Hurricane Hilary could bring more than a year's worth of rain to Palm Springs area](https://news.yahoo.com/hurricane-hilary-could-bring-more-170116973.html)
-- Aug 17 - [‘The Hustle Is Real’: Viral Photo of ‘Flip-Flop Man’ Outside of Beyoncé Concert Has Many Calling Him a Genius](https://news.yahoo.com/hustle-real-viral-photo-flip-160010892.html)
-- Aug 17 - [Fitness influencer calls Logan Paul's Prime Hydration a 'profitable scam': 'I have to professionally disagree'](https://news.yahoo.com/fitness-influencer-calls-logan-pauls-prime-hydration-a-profitable-scam-i-have-to-professionally-disagree-154503269.html)
+- Aug 17 - [Judge Issues Restraining Order for Bengals Star Ja’Marr Chase Against Woman Allegedly Making ‘Disturbing’ Claims Following One-Night Stand](https://sports.yahoo.com/judge-issues-restraining-order-bengals-184354177.html)
+- Aug 17 - [Trump Doesn't Like A 'Big Orange' Photo Of Him That Fox News Keeps Using](https://news.yahoo.com/trump-doesnt-big-orange-photo-182521893.html)
+- Aug 17 - [Over 60 Massachusetts beaches closed due to high bacteria levels and harmful algae](https://news.yahoo.com/over-60-massachusetts-beaches-closed-180123130.html)
+- Aug 17 - [Residents complain about 'prison-style' fence behind their homes. Here's what we know](https://news.yahoo.com/residents-complain-prison-style-fence-175901837.html)
+- Aug 17 - [Mystery animal caught on camera in Texas neighborhood](https://news.yahoo.com/mystery-animal-caught-camera-texas-172330275.html)
 <!-- feed end -->
 
 ### Onstream
