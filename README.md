@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Trump's legal advisers urge him to cancel press conference to refute Georgia allegations: Sources](https://www.yahoo.com/gma/trumps-legal-advisers-urge-him-113033226.html)
+- Aug 17 - [Sean Hannity Predicts Outcome Of Trump Trials And Names Specific GOP Challenge](https://news.yahoo.com/sean-hannity-predicts-outcome-trump-104914264.html)
+- Aug 17 - [Harness brothers donate land for conservation to prevent housing development by Neenah](https://news.yahoo.com/harness-brothers-donate-land-conservation-100219868.html)
 - Aug 17 - [Left or right arm: Choosing where to get vaccinated matters, study suggests. Here's why](https://news.yahoo.com/left-arm-choosing-where-vaccinated-091608657.html)
-- Aug 17 - ['Scared To Death': Joe Scarborough Names Candidate Spooking Trump From GOP Debate](https://news.yahoo.com/scared-death-joe-scarborough-names-084241833.html)
-- Aug 17 - [A distressed Rudy Giuliani made the hike all the way down to Mar-a-Lago to personally beg Trump to help pay off some of his legal bills: CNN](https://news.yahoo.com/distressed-rudy-giuliani-made-hike-081955955.html)
-- Aug 17 - [An employee at the Four Seasons Maui, where 'The White Lotus' was shot, says tourists were complaining about canceled activities and asked about a dinner reservation at a restaurant that had burned down](https://news.yahoo.com/employee-four-seasons-maui-where-023342402.html)
-- Aug 17 - [Exclusive-China's state banks seen selling dollars for yuan in London and New York hours](https://finance.yahoo.com/news/exclusive-chinas-major-state-banks-021504363.html)
+- Aug 17 - [Analysis: Why is China not rushing to fix its ailing economy?](https://news.yahoo.com/why-china-not-rushing-fix-090058515.html)
 <!-- feed end -->
 
 ### Onstream
