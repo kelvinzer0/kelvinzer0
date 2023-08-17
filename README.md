@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Trump's legal advisers urge him to cancel press conference to refute Georgia allegations: Sources](https://www.yahoo.com/gma/trumps-legal-advisers-urge-him-113033226.html)
-- Aug 17 - [Sean Hannity Predicts Outcome Of Trump Trials And Names Specific GOP Challenge](https://news.yahoo.com/sean-hannity-predicts-outcome-trump-104914264.html)
+- Aug 17 - [Lindsey Graham Makes WTF Claim About Trump Indictments And Gets Corrected](https://news.yahoo.com/lindsey-graham-makes-wtf-claim-120602929.html)
+- Aug 17 - [Wild video shows Ukrainian troops taking a blast to their US-donated Humvee, which they credit with saving their lives](https://news.yahoo.com/wild-video-shows-ukrainian-troops-113202968.html)
 - Aug 17 - [Harness brothers donate land for conservation to prevent housing development by Neenah](https://news.yahoo.com/harness-brothers-donate-land-conservation-100219868.html)
+- Aug 17 - [Scientists discover ‘magical’ material that’s stronger than steel and lighter than aluminum — and its potential is dizzying](https://news.yahoo.com/scientists-discover-magical-material-stronger-100000581.html)
 - Aug 17 - [Left or right arm: Choosing where to get vaccinated matters, study suggests. Here's why](https://news.yahoo.com/left-arm-choosing-where-vaccinated-091608657.html)
-- Aug 17 - [Analysis: Why is China not rushing to fix its ailing economy?](https://news.yahoo.com/why-china-not-rushing-fix-090058515.html)
 <!-- feed end -->
 
 ### Onstream
