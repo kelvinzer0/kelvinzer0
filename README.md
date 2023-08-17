@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Left or right arm: Choosing where to get vaccinated matters, study suggests. Here's why](https://news.yahoo.com/left-arm-choosing-where-vaccinated-091608657.html)
 - Aug 17 - ['Scared To Death': Joe Scarborough Names Candidate Spooking Trump From GOP Debate](https://news.yahoo.com/scared-death-joe-scarborough-names-084241833.html)
 - Aug 17 - [A distressed Rudy Giuliani made the hike all the way down to Mar-a-Lago to personally beg Trump to help pay off some of his legal bills: CNN](https://news.yahoo.com/distressed-rudy-giuliani-made-hike-081955955.html)
-- Aug 17 - [China's Xi calls for patience as Communist Party tries to reverse economic slump](https://news.yahoo.com/chinas-xi-calls-patience-communist-045909855.html)
 - Aug 17 - [An employee at the Four Seasons Maui, where 'The White Lotus' was shot, says tourists were complaining about canceled activities and asked about a dinner reservation at a restaurant that had burned down](https://news.yahoo.com/employee-four-seasons-maui-where-023342402.html)
 - Aug 17 - [Exclusive-China's state banks seen selling dollars for yuan in London and New York hours](https://finance.yahoo.com/news/exclusive-chinas-major-state-banks-021504363.html)
 <!-- feed end -->
