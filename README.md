@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Exclusive-China's major state banks sell dollars for yuan in London, NY hours - sources](https://finance.yahoo.com/news/exclusive-chinas-major-state-banks-021504363.html)
+- Aug 17 - [Biden shouts during speech, challenges anyone to name 'one thing' the US set out to accomplish and failed](https://news.yahoo.com/biden-shouts-during-speech-challenges-010345379.html)
 - Aug 17 - [‘A Senseless Act of Violence’: Georgia Man Shoots Neighbor Though Closed Door After She Asks Him to Turn Down Music](https://news.yahoo.com/senseless-act-violence-georgia-man-010000441.html)
 - Aug 17 - [Texas woman accused of threatening to kill judge overseeing Trump election case and a congresswoman](https://news.yahoo.com/texas-woman-accused-threatening-kill-003134408.html)
 - Aug 16 - [Police who fatally shot a pregnant woman are sued by her family in Colorado](https://news.yahoo.com/police-fatally-shot-pregnant-woman-234112110.html)
-- Aug 16 - [Hawaiians who lost everything in Maui watched as wealthy tourists left the blaze behind](https://news.yahoo.com/tourists-locals-recount-vastly-different-231041853.html)
-- Aug 16 - [California woman violently dragged in parking lot by purse-snatchers, good Samaritans rush to rescue](https://news.yahoo.com/california-woman-violently-dragged-parking-230656984.html)
 <!-- feed end -->
 
 ### Onstream
