@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Father and daughter rescued from sinking boat off Rockport](https://news.yahoo.com/father-daughter-rescued-sinking-boat-222235106.html)
 - Aug 17 - [Rarely seen predator spotted tearing up Texas beach, photos show. ‘Look at it dig!’](https://news.yahoo.com/rarely-seen-predator-spotted-tearing-205612226.html)
 - Aug 17 - [Disabled veteran denied bathroom access laughed at by Dallas police after wetting himself](https://news.yahoo.com/disabled-veteran-denied-bathroom-access-204310426.html)
 - Aug 17 - [Rachael DelTondo Murder: Parents issue statement after DA names prime suspect](https://news.yahoo.com/rachael-deltondo-murder-parents-issue-204027387.html)
 - Aug 17 - [Phil Mickelson abandoned friend and partner in time of need, new book alleges](https://sports.yahoo.com/phil-mickelson-abandoned-friend-and-partner-in-time-of-need-new-book-alleges-200705731.html)
-- Aug 17 - [2 NASCAR drivers charged with DWI in separate incidents in Huntersville](https://news.yahoo.com/2-nascar-drivers-charged-dwi-192221618.html)
 <!-- feed end -->
 
 ### Onstream
