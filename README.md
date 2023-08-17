@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [2 NASCAR drivers charged with DWI in separate incidents in Huntersville](https://news.yahoo.com/2-nascar-drivers-charged-dwi-192221618.html)
+- Aug 17 - [Deputies, troopers arrest 'reckless' driver who crashed after pursuit in north Georgia](https://news.yahoo.com/deputies-troopers-arrest-reckless-driver-191451585.html)
 - Aug 17 - [Judge Issues Restraining Order for Bengals Star Ja’Marr Chase Against Woman Allegedly Making ‘Disturbing’ Claims Following One-Night Stand](https://sports.yahoo.com/judge-issues-restraining-order-bengals-184354177.html)
-- Aug 17 - [Trump Doesn't Like A 'Big Orange' Photo Of Him That Fox News Keeps Using](https://news.yahoo.com/trump-doesnt-big-orange-photo-182521893.html)
-- Aug 17 - [Over 60 Massachusetts beaches closed due to high bacteria levels and harmful algae](https://news.yahoo.com/over-60-massachusetts-beaches-closed-180123130.html)
-- Aug 17 - [Residents complain about 'prison-style' fence behind their homes. Here's what we know](https://news.yahoo.com/residents-complain-prison-style-fence-175901837.html)
-- Aug 17 - [Mystery animal caught on camera in Texas neighborhood](https://news.yahoo.com/mystery-animal-caught-camera-texas-172330275.html)
+- Aug 17 - [Speakeasy Ultra Lounge in downtown Appleton has licenses suspended for seminude dancing](https://news.yahoo.com/speakeasy-ultra-lounge-downtown-appleton-183003806.html)
+- Aug 17 - [‘Construction project gone wrong.’ Feuding I-4 builders are heading to court](https://news.yahoo.com/construction-project-gone-wrong-feuding-182700671.html)
 <!-- feed end -->
 
 ### Onstream
