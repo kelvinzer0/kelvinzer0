@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Texas woman accused of threatening to kill judge overseeing Trump election case and a congresswoman](https://news.yahoo.com/texas-woman-accused-threatening-kill-003134408.html)
+- Aug 16 - [Floridians stung by DeSantis veto that cost $346 million in energy-saving programs](https://news.yahoo.com/floridians-stung-desantis-veto-cost-232800873.html)
+- Aug 16 - [Man sentenced to 11 years for sexual assault of girl during remote-learning class](https://news.yahoo.com/man-sentenced-11-years-sexual-224349768.html)
+- Aug 16 - [Tennessee hostage situation ends with brothers killed, 4 officers and victim wounded](https://news.yahoo.com/tennessee-hostage-situation-ends-brothers-224140154.html)
 - Aug 16 - [Gwyneth Paltrow's 'Shallow Hal' body double was 'starving to death' after the film. Why eating disorders don't discriminate based on weight.](https://www.yahoo.com/lifestyle/gwyneth-paltrows-shallow-hal-body-222146262.html)
-- Aug 16 - [Haiti gang leader vows to fight any foreign armed force if it commits abuses](https://news.yahoo.com/haiti-gang-leader-vows-fight-211624777.html)
-- Aug 16 - [Trump supporters post names and addresses of Georgia grand jurors online](https://news.yahoo.com/trump-supporters-post-names-addresses-210814516.html)
-- Aug 16 - [Melania Trump Carries On After Georgia Indictment: 'Another Problem for Her Husband, Not for Her' (Exclusive)](https://www.yahoo.com/entertainment/melania-trump-carries-georgia-indictment-210244540.html)
-- Aug 16 - [Long Island cop takes down gunslinging suspect with fender side swipe on video](https://news.yahoo.com/long-island-cop-takes-down-195839337.html)
 <!-- feed end -->
 
 ### Onstream
