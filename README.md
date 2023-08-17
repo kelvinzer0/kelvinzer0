@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Maui officials defend not using sirens during wildfire](https://news.yahoo.com/maui-officials-defend-not-using-074710464.html)
 - Aug 17 - [China's Xi calls for patience as Communist Party tries to reverse economic slump](https://news.yahoo.com/chinas-xi-calls-patience-communist-045909855.html)
 - Aug 17 - [An employee at the Four Seasons Maui, where 'The White Lotus' was shot, says tourists were complaining about canceled activities and asked about a dinner reservation at a restaurant that had burned down](https://news.yahoo.com/employee-four-seasons-maui-where-023342402.html)
 - Aug 17 - [Exclusive-China's state banks seen selling dollars for yuan in London and New York hours](https://finance.yahoo.com/news/exclusive-chinas-major-state-banks-021504363.html)
 - Aug 17 - [Biden shouts during speech, challenges anyone to name 'one thing' the US set out to accomplish and failed](https://news.yahoo.com/biden-shouts-during-speech-challenges-010345379.html)
-- Aug 17 - [‘A Senseless Act of Violence’: Georgia Man Shoots Neighbor Though Closed Door After She Asks Him to Turn Down Music](https://news.yahoo.com/senseless-act-violence-georgia-man-010000441.html)
 <!-- feed end -->
 
 ### Onstream
