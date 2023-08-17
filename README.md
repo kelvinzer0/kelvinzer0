@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Bengals RB Joe Mixon found not guilty in road rage case](https://sports.yahoo.com/bengals-rb-joe-mixon-found-not-guilty-in-road-rage-case-155744962.html)
+- Aug 17 - [Cincinnati Bengals' Joe Mixon found not guilty in menacing trial](https://news.yahoo.com/verdict-bengals-joe-mixon-menacing-150637562.html)
 - Aug 17 - [‘I Want Her Life Destroyed’: A North Carolina Property Manager Was Caught Pouring a Soda Bottle on 11-Year-Old Boy’s Face Before Hitting Him. Now His Family Plans to Sue the Apartment Complex](https://news.yahoo.com/want-her-life-destroyed-north-150000481.html)
 - Aug 17 - [A leading longevity expert says there are 4 things you can do today to scientifically reduce your body's biological age](https://www.yahoo.com/lifestyle/leading-longevity-expert-says-4-144524446.html)
 - Aug 17 - [Austin school district cancels classes at Travis High School on Thursday after 'incident'](https://news.yahoo.com/austin-school-district-cancels-classes-144344346.html)
