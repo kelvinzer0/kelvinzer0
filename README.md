@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [‘A Senseless Act of Violence’: Georgia Man Shoots Neighbor Though Closed Door After She Asks Him to Turn Down Music](https://news.yahoo.com/senseless-act-violence-georgia-man-010000441.html)
 - Aug 17 - [Texas woman accused of threatening to kill judge overseeing Trump election case and a congresswoman](https://news.yahoo.com/texas-woman-accused-threatening-kill-003134408.html)
 - Aug 16 - [Police who fatally shot a pregnant woman are sued by her family in Colorado](https://news.yahoo.com/police-fatally-shot-pregnant-woman-234112110.html)
 - Aug 16 - [Hawaiians who lost everything in Maui watched as wealthy tourists left the blaze behind](https://news.yahoo.com/tourists-locals-recount-vastly-different-231041853.html)
 - Aug 16 - [California woman violently dragged in parking lot by purse-snatchers, good Samaritans rush to rescue](https://news.yahoo.com/california-woman-violently-dragged-parking-230656984.html)
-- Aug 16 - [Man sentenced to 11 years for sexual assault of girl during remote-learning class](https://news.yahoo.com/man-sentenced-11-years-sexual-224349768.html)
 <!-- feed end -->
 
 ### Onstream
