@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Father and daughter rescued from sinking boat off Rockport](https://news.yahoo.com/father-daughter-rescued-sinking-boat-222235106.html)
+- Aug 18 - [Trump cancels news conference to release report on 2020 election](https://news.yahoo.com/trump-cancels-news-conference-release-002252653.html)
+- Aug 17 - [Live updates: Grover Beach suspect arrested in SLO after second shooting](https://news.yahoo.com/live-updates-grover-beach-suspect-232232447.html)
+- Aug 17 - [NH sheriff arrested, accused of spending nearly $20k of county funds on trips, romantic escapades](https://news.yahoo.com/nh-sheriff-arrested-accused-spending-225831375.html)
+- Aug 17 - [Elon Musk Says One Of The Most Difficult Choices He Ever Had To Make Was When He Had 'Just $30 Million Left'](https://finance.yahoo.com/news/elon-musk-says-one-most-224215101.html)
 - Aug 17 - [Rarely seen predator spotted tearing up Texas beach, photos show. ‘Look at it dig!’](https://news.yahoo.com/rarely-seen-predator-spotted-tearing-205612226.html)
-- Aug 17 - [Disabled veteran denied bathroom access laughed at by Dallas police after wetting himself](https://news.yahoo.com/disabled-veteran-denied-bathroom-access-204310426.html)
-- Aug 17 - [Rachael DelTondo Murder: Parents issue statement after DA names prime suspect](https://news.yahoo.com/rachael-deltondo-murder-parents-issue-204027387.html)
-- Aug 17 - [Phil Mickelson abandoned friend and partner in time of need, new book alleges](https://sports.yahoo.com/phil-mickelson-abandoned-friend-and-partner-in-time-of-need-new-book-alleges-200705731.html)
 <!-- feed end -->
 
 ### Onstream
