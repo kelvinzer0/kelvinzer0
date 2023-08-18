@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - ['$170K a year is a bit of an exaggeration': This UPS driver wants to set the record straight about pay bump — here are the numbers behind the company's striking wage increases](https://finance.yahoo.com/news/170k-bit-exaggeration-ups-driver-111600072.html)
+- Aug 18 - [Over 60 Massachusetts beaches closed due to high bacteria levels and harmful algae](https://news.yahoo.com/over-60-massachusetts-beaches-closed-180123130.html)
 - Aug 18 - ['The worst investment you'll ever make': Real estate guru Grant Cardone says too many Americans are chasing after the dream of homeownership. Here's what he thinks you should do instead](https://finance.yahoo.com/news/worst-investment-ll-ever-financial-130000294.html)
-- Aug 18 - ['Coward' Trump Mocked After 2 Backpedaling Announcements In A Row](https://news.yahoo.com/coward-trump-mocked-2-backpedaling-040229487.html)
-- Aug 18 - [Motorist shot on I-270 in Gahanna during Thursday evening rush hour](https://news.yahoo.com/motorist-shot-270-gahanna-during-025026756.html)
-- Aug 18 - [A food truck owner on Maui said it's irresponsible for people like Jason Momoa to tell tourists the island is closed because local businesses that weren't destroyed are now struggling too](https://www.yahoo.com/entertainment/food-truck-owner-maui-said-020953217.html)
-- Aug 18 - [23-Year-Old News Producer Dies in Rope Swing Accident](https://www.yahoo.com/entertainment/23-old-news-producer-dies-014645235.html)
+- Aug 18 - [The real story behind that photo of a weirdly unscathed house in the rubble of Lahaina](https://news.yahoo.com/real-story-behind-photo-weirdly-100028460.html)
+- Aug 18 - [Tesla lands in hot water after new report alleges the company told a huge, long-term lie about its vehicles](https://news.yahoo.com/tesla-lands-hot-water-report-100000724.html)
 <!-- feed end -->
 
 ### Onstream
