@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Female spy ring working for Russia busted in Ukraine](https://news.yahoo.com/female-spy-ring-working-russia-202709064.html)
-- Aug 18 - [Biden goes west for his second vacation of the month](https://news.yahoo.com/biden-goes-west-second-vacation-200015600.html)
+- Aug 18 - [Judge won't delay Trump's defamation claims trial, calling the ex-president's appeal frivolous](https://news.yahoo.com/judge-wont-delay-trumps-defamation-195223915.html)
 - Aug 18 - [Trees toppled, roads flooded as severe weather wreaks havoc on Massachusetts](https://news.yahoo.com/trees-down-roads-impassable-due-151726818.html)
 - Aug 18 - [Exotic sports cars caught speeding along Hwy. 101, Hwy. 154 after CHP gets ‘tip-off’](https://news.yahoo.com/exotic-sports-cars-caught-speeding-191136388.html)
 - Aug 18 - [Fired founder of right-wing org Project Veritas is under investigation in New York](https://news.yahoo.com/fired-founder-wing-org-project-185709096.html)
+- Aug 18 - [Sara Sharif suffered 'multiple' injuries over 'extended' period of time before death](https://news.yahoo.com/sara-sharif-father-10-old-171051264.html)
 <!-- feed end -->
 
 ### Onstream
