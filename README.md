@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [Engine fire forces plane to make emergency landing](https://news.yahoo.com/engine-fire-forces-plane-emergency-174033931.html)
+- Aug 18 - [Robert Kennedy Jr. and his wife Cheryl Hines are worth an estimated $15 million, according to Forbes](https://news.yahoo.com/robert-kennedy-jr-wife-cheryl-171346097.html)
+- Aug 18 - [Trees toppled, roads flooded as severe weather wreaks havoc on Massachusetts](https://news.yahoo.com/trees-down-roads-impassable-due-151726818.html)
 - Aug 18 - [Watch: Awesome power on display during Yellowstone bison rut](https://sports.yahoo.com/watch-awesome-power-display-during-161330067.html)
 - Aug 18 - [Disney hits Ron DeSantis board with countersuit, days after he says it's time to 'move on'](https://finance.yahoo.com/news/disney-hits-ron-desantis-board-with-countersuit-days-after-he-says-its-time-to-move-on-160426034.html)
-- Aug 18 - [Trees toppled, roads flooded as severe weather wreaks havoc on Massachusetts](https://news.yahoo.com/trees-down-roads-impassable-due-151726818.html)
-- Aug 18 - [Proud Boy on house arrest in Jan. 6 case disappears ahead of sentencing](https://news.yahoo.com/proud-boy-house-arrest-jan-152926936.html)
-- Aug 18 - [‘I Don’t Have Anybody To Help’: 68-Year-Old Woman Allegedly Booted Out of Assisted Living Complex for ‘Partying’ Too Much, Fears She May End Up Homeless](https://news.yahoo.com/don-t-anybody-help-68-150021736.html)
 <!-- feed end -->
 
 ### Onstream
