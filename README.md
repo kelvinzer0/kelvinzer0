@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [‘Yeah, Homeboy, Get Out!’: Unhinged Georgia Man Hurls Racial Slur, Taunts Black Man During Road Rage Dispute While Wearing Company Shirt In Shocking Video](https://news.yahoo.com/yeah-homeboy-unhinged-georgia-man-130000623.html)
+- Aug 18 - [Georgia indictment and post-Civil War history make it clear: Trump's actions have already disqualified him from the presidency](https://news.yahoo.com/georgia-indictment-post-civil-war-123834879.html)
 - Aug 18 - [Watch Georgia State Police Run A Meth Trafficker Over](https://news.yahoo.com/watch-georgia-state-police-run-120000323.html)
 - Aug 18 - ['$170K a year is a bit of an exaggeration': This UPS driver wants to set the record straight about pay bump — here are the numbers behind the company's striking wage increases](https://finance.yahoo.com/news/170k-bit-exaggeration-ups-driver-111600072.html)
-- Aug 18 - [Homeowners get revenge on money-grubbing HOA that tried to fine them for hurricane-proof roof: ‘Fine print gets you every time’](https://news.yahoo.com/homeowners-revenge-money-grubbing-hoa-104500038.html)
-- Aug 18 - ['The worst investment you'll ever make': Real estate guru Grant Cardone says too many Americans are chasing after the dream of homeownership. Here's what he thinks you should do instead](https://finance.yahoo.com/news/worst-investment-ll-ever-financial-130000294.html)
-- Aug 18 - [The real story behind that photo of a weirdly unscathed house in the rubble of Lahaina](https://news.yahoo.com/real-story-behind-photo-weirdly-100028460.html)
+- Aug 18 - [Biden ignites outrage with latest Hawaii comments, Fox News Power Rankings and more top headlines](https://news.yahoo.com/biden-ignites-outrage-latest-hawaii-105144700.html)
 <!-- feed end -->
 
 ### Onstream
