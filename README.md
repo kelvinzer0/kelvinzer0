@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 18 - ['Coward' Trump Mocked After 2 Backpedaling Announcements In A Row](https://news.yahoo.com/coward-trump-mocked-2-backpedaling-040229487.html)
+- Aug 18 - [Motorist shot on I-270 in Gahanna during Thursday evening rush hour](https://news.yahoo.com/motorist-shot-270-gahanna-during-025026756.html)
 - Aug 18 - [A food truck owner on Maui said it's irresponsible for people like Jason Momoa to tell tourists the island is closed because local businesses that weren't destroyed are now struggling too](https://www.yahoo.com/entertainment/food-truck-owner-maui-said-020953217.html)
 - Aug 18 - [23-Year-Old News Producer Dies in Rope Swing Accident](https://www.yahoo.com/entertainment/23-old-news-producer-dies-014645235.html)
 - Aug 18 - [‘Hey, You Stupid Slave N—er’: Vile Texas Woman Threatens to Kill Black Judge Overseeing Donald Trump’s Election Interference Case In Federal Court](https://news.yahoo.com/hey-stupid-slave-n-er-010000834.html)
-- Aug 17 - [California thieves caught on camera blatantly breaking and entering into parked cars in San Francisco](https://news.yahoo.com/california-thieves-caught-camera-blatantly-232635391.html)
 <!-- feed end -->
 
 ### Onstream
