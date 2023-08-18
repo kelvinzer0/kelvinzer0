@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [George Santos says ex-fundraiser caught using a fake name tried a new tactic: spelling it backwards](https://news.yahoo.com/george-santos-says-ex-fundraiser-184132850.html)
-- Aug 18 - [What happened in San Bernardino County when Hurricane El Cordonazo arrived on land in 1939?](https://news.yahoo.com/happened-san-bernardino-county-hurricane-174328683.html)
-- Aug 18 - [‘Deep Disappointment’: Judge Declares Mistrial In Case Against Two White Men Who Chased and Shot at Black FedEx Worker as He Delivered Packages In Mississippi Neighborhood](https://news.yahoo.com/deep-disappointment-judge-declares-mistrial-171855815.html)
-- Aug 18 - [Robert Kennedy Jr. and his wife Cheryl Hines are worth an estimated $15 million, according to Forbes](https://news.yahoo.com/robert-kennedy-jr-wife-cheryl-171346097.html)
 - Aug 18 - [Trees toppled, roads flooded as severe weather wreaks havoc on Massachusetts](https://news.yahoo.com/trees-down-roads-impassable-due-151726818.html)
+- Aug 18 - [Fired founder of right-wing org Project Veritas is under investigation in New York](https://news.yahoo.com/fired-founder-wing-org-project-185709096.html)
+- Aug 18 - [Sara Sharif suffered 'multiple' injuries over 'extended' period of time before death](https://news.yahoo.com/sara-sharif-father-10-old-171051264.html)
+- Aug 18 - [George Santos says ex-fundraiser caught using a fake name tried a new tactic: spelling it backwards](https://news.yahoo.com/george-santos-says-ex-fundraiser-184132850.html)
+- Aug 18 - [UPDATE: Crews draining pond at apartment complex after father claimed 2-year-old was kidnapped](https://news.yahoo.com/police-arrest-father-missing-2-095706998.html)
 <!-- feed end -->
 
 ### Onstream
