@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Lucy Letby: Quiet ‘geek’ who became a killer feared she’d never have children of her own](https://news.yahoo.com/lucy-letby-quiet-geek-became-121839949.html)
-- Aug 18 - [‘Goodwill is tripping lately’: TikToker discovers ‘insane’ price markup at Goodwill store](https://news.yahoo.com/goodwill-tripping-lately-tiktoker-discovers-131934783.html)
-- Aug 18 - [See Christie’s reaction after Trump cancels his own promoted event](https://news.yahoo.com/see-christie-reaction-trump-cancels-130448490.html)
-- Aug 18 - [‘Yeah, Homeboy, Get Out!’: Unhinged Georgia Man Hurls Racial Slur, Taunts Black Man During Road Rage Dispute While Wearing Company Shirt In Shocking Video](https://news.yahoo.com/yeah-homeboy-unhinged-georgia-man-130000623.html)
-- Aug 18 - [Georgia indictment and post-Civil War history make it clear: Trump's actions have already disqualified him from the presidency](https://news.yahoo.com/georgia-indictment-post-civil-war-123834879.html)
+- Aug 18 - [Liz Cheney makes 1st public comment since Trump's election interference indictments](https://www.yahoo.com/gma/liz-cheney-makes-1st-public-153107948.html)
+- Aug 18 - [Proud Boy on house arrest in Jan. 6 case disappears ahead of sentencing](https://news.yahoo.com/proud-boy-house-arrest-jan-152926936.html)
+- Aug 18 - [‘I Don’t Have Anybody To Help’: 68-Year-Old Woman Allegedly Booted Out of Assisted Living Complex for ‘Partying’ Too Much, Fears She May End Up Homeless](https://news.yahoo.com/don-t-anybody-help-68-150021736.html)
+- Aug 18 - [Trump Is Going to Leave Judges With No Choice but to Hold Him in Contempt](https://news.yahoo.com/trump-going-leave-judges-no-144859121.html)
+- Aug 18 - [A woman interrupts a Quran-burning protest in Sweden by spraying activist with a fire extinguisher](https://news.yahoo.com/woman-interrupts-quran-burning-protest-142321855.html)
 <!-- feed end -->
 
 ### Onstream
