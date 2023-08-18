@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [Lucy Letby: Quiet ‘geek’ who became a killer feared she’d never have children of her own](https://news.yahoo.com/lucy-letby-quiet-geek-became-121839949.html)
+- Aug 18 - [‘Goodwill is tripping lately’: TikToker discovers ‘insane’ price markup at Goodwill store](https://news.yahoo.com/goodwill-tripping-lately-tiktoker-discovers-131934783.html)
+- Aug 18 - [See Christie’s reaction after Trump cancels his own promoted event](https://news.yahoo.com/see-christie-reaction-trump-cancels-130448490.html)
 - Aug 18 - [‘Yeah, Homeboy, Get Out!’: Unhinged Georgia Man Hurls Racial Slur, Taunts Black Man During Road Rage Dispute While Wearing Company Shirt In Shocking Video](https://news.yahoo.com/yeah-homeboy-unhinged-georgia-man-130000623.html)
 - Aug 18 - [Georgia indictment and post-Civil War history make it clear: Trump's actions have already disqualified him from the presidency](https://news.yahoo.com/georgia-indictment-post-civil-war-123834879.html)
-- Aug 18 - [Watch Georgia State Police Run A Meth Trafficker Over](https://news.yahoo.com/watch-georgia-state-police-run-120000323.html)
-- Aug 18 - ['$170K a year is a bit of an exaggeration': This UPS driver wants to set the record straight about pay bump — here are the numbers behind the company's striking wage increases](https://finance.yahoo.com/news/170k-bit-exaggeration-ups-driver-111600072.html)
-- Aug 18 - [Biden ignites outrage with latest Hawaii comments, Fox News Power Rankings and more top headlines](https://news.yahoo.com/biden-ignites-outrage-latest-hawaii-105144700.html)
 <!-- feed end -->
 
 ### Onstream
