@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [Watch Georgia State Police Run A Meth Trafficker Over](https://news.yahoo.com/watch-georgia-state-police-run-120000323.html)
 - Aug 18 - ['$170K a year is a bit of an exaggeration': This UPS driver wants to set the record straight about pay bump — here are the numbers behind the company's striking wage increases](https://finance.yahoo.com/news/170k-bit-exaggeration-ups-driver-111600072.html)
-- Aug 18 - [Over 60 Massachusetts beaches closed due to high bacteria levels and harmful algae](https://news.yahoo.com/over-60-massachusetts-beaches-closed-180123130.html)
+- Aug 18 - [Homeowners get revenge on money-grubbing HOA that tried to fine them for hurricane-proof roof: ‘Fine print gets you every time’](https://news.yahoo.com/homeowners-revenge-money-grubbing-hoa-104500038.html)
 - Aug 18 - ['The worst investment you'll ever make': Real estate guru Grant Cardone says too many Americans are chasing after the dream of homeownership. Here's what he thinks you should do instead](https://finance.yahoo.com/news/worst-investment-ll-ever-financial-130000294.html)
 - Aug 18 - [The real story behind that photo of a weirdly unscathed house in the rubble of Lahaina](https://news.yahoo.com/real-story-behind-photo-weirdly-100028460.html)
-- Aug 18 - [Tesla lands in hot water after new report alleges the company told a huge, long-term lie about its vehicles](https://news.yahoo.com/tesla-lands-hot-water-report-100000724.html)
 <!-- feed end -->
 
 ### Onstream
