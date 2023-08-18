@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [‘Hey, You Stupid Slave N—er’: Vile Texas Woman Threatens to Kill Black Judge Overseeing Donald Trump’s Election Interference Case In Federal Court](https://news.yahoo.com/hey-stupid-slave-n-er-010000834.html)
 - Aug 18 - [Trump cancels news conference to release report on 2020 election](https://news.yahoo.com/trump-cancels-news-conference-release-002252653.html)
 - Aug 17 - [California thieves caught on camera blatantly breaking and entering into parked cars in San Francisco](https://news.yahoo.com/california-thieves-caught-camera-blatantly-232635391.html)
-- Aug 17 - [Live updates: Shelter-in-place ordered in SLO neighborhood after pair of shootings](https://news.yahoo.com/live-updates-grover-beach-suspect-232232447.html)
 - Aug 17 - [Elon Musk Says One Of The Most Difficult Choices He Ever Had To Make Was When He Had 'Just $30 Million Left'](https://finance.yahoo.com/news/elon-musk-says-one-most-224215101.html)
-- Aug 17 - [Hunter Biden tax charges dismissed by federal judge following plea deal breakdown](https://news.yahoo.com/hunter-biden-tax-charges-dismissed-222924673.html)
+- Aug 17 - [Rarely seen predator spotted tearing up Texas beach, photos show. ‘Look at it dig!’](https://news.yahoo.com/rarely-seen-predator-spotted-tearing-205612226.html)
 <!-- feed end -->
 
 ### Onstream
