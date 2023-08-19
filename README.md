@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [UPDATE: Crews draining manmade lake at apartment after father claimed 2-year-old was kidnapped](https://news.yahoo.com/police-arrest-father-missing-2-095706998.html)
+- Aug 18 - [See Christie’s reaction after Trump cancels his own promoted event](https://news.yahoo.com/see-christie-reaction-trump-cancels-130448490.html)
+- Aug 18 - [No death penalty for a Utah mom accused of killing her husband, then writing a kid book about death](https://news.yahoo.com/no-death-penalty-utah-mom-230042510.html)
+- Aug 18 - [Threat of losing Crimea might force Putin to back down — report](https://news.yahoo.com/threat-losing-crimea-might-force-214000391.html)
 - Aug 18 - [Judge won't delay Trump's defamation claims trial, calling the ex-president's appeal frivolous](https://news.yahoo.com/judge-wont-delay-trumps-defamation-195223915.html)
-- Aug 18 - [Trees toppled, roads flooded as severe weather wreaks havoc on Massachusetts](https://news.yahoo.com/trees-down-roads-impassable-due-151726818.html)
-- Aug 18 - [Exotic sports cars caught speeding along Hwy. 101, Hwy. 154 after CHP gets ‘tip-off’](https://news.yahoo.com/exotic-sports-cars-caught-speeding-191136388.html)
-- Aug 18 - [Fired founder of right-wing org Project Veritas is under investigation in New York](https://news.yahoo.com/fired-founder-wing-org-project-185709096.html)
-- Aug 18 - [Sara Sharif suffered 'multiple' injuries over 'extended' period of time before death](https://news.yahoo.com/sara-sharif-father-10-old-171051264.html)
 <!-- feed end -->
 
 ### Onstream
