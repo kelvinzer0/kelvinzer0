@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Trees toppled, roads flooded as severe weather wreaks havoc on Massachusetts](https://news.yahoo.com/trees-down-roads-impassable-due-151726818.html)
+- Aug 19 - [Chemical treatment to be deployed against invasive fish in Colorado River](https://news.yahoo.com/chemical-treatment-deployed-against-invasive-014258267.html)
+- Aug 18 - [Former Trump White House lawyer on how he thinks Trump’s surrender in Georgia will play out](https://news.yahoo.com/former-trump-white-house-lawyer-235355313.html)
 - Aug 18 - [UPDATE: Crews draining manmade lake at apartment after father claimed 2-year-old was kidnapped](https://news.yahoo.com/police-arrest-father-missing-2-095706998.html)
 - Aug 18 - [See Christie’s reaction after Trump cancels his own promoted event](https://news.yahoo.com/see-christie-reaction-trump-cancels-130448490.html)
-- Aug 18 - [Threat of losing Crimea might force Putin to back down — report](https://news.yahoo.com/threat-losing-crimea-might-force-214000391.html)
-- Aug 18 - [Judge won't delay Trump's defamation claims trial, calling the ex-president's appeal frivolous](https://news.yahoo.com/judge-wont-delay-trumps-defamation-195223915.html)
-- Aug 18 - [Trees toppled, roads flooded as severe weather wreaks havoc on Massachusetts](https://news.yahoo.com/trees-down-roads-impassable-due-151726818.html)
 <!-- feed end -->
 
 ### Onstream
