@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [UN condemns 'heinous' Russian attack on Ukraine city centre, 7 dead](https://news.yahoo.com/un-condemns-heinous-russian-attack-143611256.html)
+- Aug 19 - [Fire destroys Block Island hotel, visitors asked to stay away - updates](https://news.yahoo.com/fire-destroys-block-island-hotel-132150740.html)
 - Aug 19 - [Trump's lies tested limits of the bully pulpit. His right to say them is at core of criminal defense](https://news.yahoo.com/trumps-lies-tested-limits-bully-130408901.html)
 - Aug 19 - [Baker Mayfield seeks information about handling of $12 million](https://sports.yahoo.com/baker-mayfield-seeks-information-handling-125824464.html)
 - Aug 19 - [Beloved retailer officially decides to liquidate](https://www.thestreet.com/retailers/beloved-retailer-officially-decides-to-liquidate?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 19 - [Bill Maher says he doesn't see the USA 'falling apart' with angry, unhappy people when he rides around town — but Marianne Williamson quickly popped his Beverly Hills bubble. Who's right?](https://finance.yahoo.com/news/bill-maher-says-doesnt-see-120000163.html)
-- Aug 19 - [Video of a Ka-52 attack helicopter being shot down in Ukraine hints Russia isn't learning what it should have by now, former US general says](https://news.yahoo.com/video-ka-52-attack-helicopter-100001176.html)
 <!-- feed end -->
 
 ### Onstream
