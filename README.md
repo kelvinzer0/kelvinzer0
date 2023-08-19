@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [‘Dangerous situation’ sends students scrambling at Gwinnett high school football game](https://news.yahoo.com/dangerous-situation-sends-students-scrambling-024011598.html)
+- Aug 19 - [Crews continue draining manmade lake at apartment after father claimed 2-year-old was kidnapped](https://news.yahoo.com/police-arrest-father-missing-2-095706998.html)
+- Aug 19 - [Man Splits Himself in Half After Jumping 750 Feet Off NYC Building](https://www.yahoo.com/entertainment/man-splits-himself-half-jumping-030339469.html)
 - Aug 19 - [Trees toppled, roads flooded as severe weather wreaks havoc on Massachusetts](https://news.yahoo.com/trees-down-roads-impassable-due-151726818.html)
-- Aug 19 - [Chemical treatment to be deployed against invasive fish in Colorado River](https://news.yahoo.com/chemical-treatment-deployed-against-invasive-014258267.html)
-- Aug 18 - [Former Trump White House lawyer on how he thinks Trump’s surrender in Georgia will play out](https://news.yahoo.com/former-trump-white-house-lawyer-235355313.html)
-- Aug 18 - [UPDATE: Crews draining manmade lake at apartment after father claimed 2-year-old was kidnapped](https://news.yahoo.com/police-arrest-father-missing-2-095706998.html)
-- Aug 18 - [See Christie’s reaction after Trump cancels his own promoted event](https://news.yahoo.com/see-christie-reaction-trump-cancels-130448490.html)
+- Aug 19 - [Former White House lawyer on Trump’s expected surrender in Georgia: ‘He won’t enjoy it’](https://news.yahoo.com/former-white-house-lawyer-trump-023852020.html)
 <!-- feed end -->
 
 ### Onstream
