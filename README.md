@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Trump's lies tested limits of the bully pulpit. His right to say them is at core of criminal defense](https://news.yahoo.com/trumps-lies-tested-limits-bully-130408901.html)
+- Aug 19 - [Baker Mayfield seeks information about handling of $12 million](https://sports.yahoo.com/baker-mayfield-seeks-information-handling-125824464.html)
+- Aug 19 - [Beloved retailer officially decides to liquidate](https://www.thestreet.com/retailers/beloved-retailer-officially-decides-to-liquidate?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Aug 19 - [Bill Maher says he doesn't see the USA 'falling apart' with angry, unhappy people when he rides around town — but Marianne Williamson quickly popped his Beverly Hills bubble. Who's right?](https://finance.yahoo.com/news/bill-maher-says-doesnt-see-120000163.html)
 - Aug 19 - [Video of a Ka-52 attack helicopter being shot down in Ukraine hints Russia isn't learning what it should have by now, former US general says](https://news.yahoo.com/video-ka-52-attack-helicopter-100001176.html)
-- Aug 19 - [Philippines to resupply South China Sea troops after Beijing's block](https://news.yahoo.com/philippines-resupply-south-china-sea-090544452.html)
-- Aug 19 - [Asylum seekers in NYC say America is nothing like they had imagined: It's 'chaos'](https://news.yahoo.com/asylum-seekers-nyc-america-migrants-crisis-chaos-090039003.html)
-- Aug 19 - [Pornhub Parent Company Changes Name to Aylo, Aimed at Giving Adult-Entertainment Purveyor ‘Fresh Start’](https://www.yahoo.com/entertainment/pornhub-parent-company-changes-name-064623486.html)
 <!-- feed end -->
 
 ### Onstream
