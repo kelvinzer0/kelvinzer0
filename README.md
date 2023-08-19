@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [‘Why Did You Do That?’: Mother Furious After Mississippi Police Arrest and Jail 10-Year-Old Son In Her Presence for Urinating In Public Behind Her Car](https://news.yahoo.com/why-did-mother-furious-mississippi-153200971.html)
+- Aug 19 - [Saints tight end Jimmy Graham arrested after medical episode, team believes he may have experienced a seizure](https://sports.yahoo.com/saints-tight-end-jimmy-graham-arrested-after-medical-episode-team-believes-he-may-have-experienced-a-seizure-170227195.html)
+- Aug 19 - [New Reports Allege That Tom Cruise’s Relationship With Scientology May Have Taken an Unexpected Turn](https://www.yahoo.com/entertainment/reports-allege-tom-cruise-relationship-164000596.html)
+- Aug 19 - [Russia's Luna-25 spacecraft suffers technical glitch, space agency says](https://news.yahoo.com/russias-luna-25-spacecraft-produces-130746279.html)
 - Aug 19 - [Beloved retailer officially decides to liquidate](https://www.thestreet.com/retailers/beloved-retailer-officially-decides-to-liquidate?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Aug 19 - [What mosquitoes are most attracted to in human body odor is revealed](https://news.yahoo.com/mosquitoes-most-attracted-human-body-155627243.html)
-- Aug 19 - [Bill Maher says he doesn't see the USA 'falling apart' with angry, unhappy people when he rides around town — but Marianne Williamson quickly popped his Beverly Hills bubble. Who's right?](https://finance.yahoo.com/news/bill-maher-says-doesnt-see-120000163.html)
-- Aug 19 - [Video of a Ka-52 attack helicopter being shot down in Ukraine hints Russia isn't learning what it should have by now, former US general says](https://news.yahoo.com/video-ka-52-attack-helicopter-100001176.html)
 <!-- feed end -->
 
 ### Onstream
