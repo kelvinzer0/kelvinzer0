@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Ex-Adviser Predicts Trump Will 'Suck All The Oxygen' From GOP Debate With 1 Move](https://news.yahoo.com/ex-adviser-predicts-trump-suck-045044937.html)
+- Aug 19 - [‘Dangerous situation’ sends students scrambling at Gwinnett high school football game](https://news.yahoo.com/dangerous-situation-sends-students-scrambling-024011598.html)
 - Aug 19 - [Crews continue draining manmade lake at apartment after father claimed 2-year-old was kidnapped](https://news.yahoo.com/police-arrest-father-missing-2-095706998.html)
 - Aug 19 - [Man Splits Himself in Half After Jumping 750 Feet Off NYC Building](https://www.yahoo.com/entertainment/man-splits-himself-half-jumping-030339469.html)
 - Aug 19 - [Chemical treatment to be deployed against invasive fish in Colorado River](https://news.yahoo.com/chemical-treatment-deployed-against-invasive-014258267.html)
-- Aug 19 - [California woman finds 'whole a--' man occupying crawlspace underneath her house ‘for months'](https://news.yahoo.com/california-woman-finds-whole-man-011651140.html)
-- Aug 18 - [See Christie’s reaction after Trump cancels his own promoted event](https://news.yahoo.com/see-christie-reaction-trump-cancels-130448490.html)
 <!-- feed end -->
 
 ### Onstream
