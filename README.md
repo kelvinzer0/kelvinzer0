@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [‘Why Did You Do That?’: Mother Furious After Mississippi Police Arrest and Jail 10-Year-Old Son In Her Presence for Urinating In Public Behind Her Car](https://news.yahoo.com/why-did-mother-furious-mississippi-153200971.html)
 - Aug 19 - [Beloved retailer officially decides to liquidate](https://www.thestreet.com/retailers/beloved-retailer-officially-decides-to-liquidate?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Aug 19 - [What mosquitoes are most attracted to in human body odor is revealed](https://news.yahoo.com/mosquitoes-most-attracted-human-body-155627243.html)
 - Aug 19 - [Bill Maher says he doesn't see the USA 'falling apart' with angry, unhappy people when he rides around town — but Marianne Williamson quickly popped his Beverly Hills bubble. Who's right?](https://finance.yahoo.com/news/bill-maher-says-doesnt-see-120000163.html)
 - Aug 19 - [Video of a Ka-52 attack helicopter being shot down in Ukraine hints Russia isn't learning what it should have by now, former US general says](https://news.yahoo.com/video-ka-52-attack-helicopter-100001176.html)
-- Aug 19 - [Philippines to resupply South China Sea troops after Beijing's block](https://news.yahoo.com/philippines-resupply-south-china-sea-090544452.html)
-- Aug 19 - [Asylum seekers in NYC say America is nothing like they had imagined: It's 'chaos'](https://news.yahoo.com/asylum-seekers-nyc-america-migrants-crisis-chaos-090039003.html)
 <!-- feed end -->
 
 ### Onstream
