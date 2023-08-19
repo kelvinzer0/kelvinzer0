@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [This Judge Just Dealt Another Blow to Donald Trump By Pegging His Latest Legal Bid as ‘Frivolous'](https://www.yahoo.com/entertainment/judge-just-dealt-another-blow-175000121.html)
 - Aug 19 - [Saints tight end Jimmy Graham arrested after medical episode, team believes he may have experienced a seizure](https://sports.yahoo.com/saints-tight-end-jimmy-graham-arrested-after-medical-episode-team-believes-he-may-have-experienced-a-seizure-170227195.html)
 - Aug 19 - [New Reports Allege That Tom Cruise’s Relationship With Scientology May Have Taken an Unexpected Turn](https://www.yahoo.com/entertainment/reports-allege-tom-cruise-relationship-164000596.html)
 - Aug 19 - [Ex-wife of slain Microsoft exec makes surprising legal move after arrest](https://news.yahoo.com/ex-wife-slain-microsoft-exec-154630984.html)
 - Aug 19 - [Block Island declares State of Emergency after major fire breaks out](https://news.yahoo.com/block-island-declares-state-emergency-150504452.html)
-- Aug 19 - [Russia's Luna-25 spacecraft suffers technical glitch, space agency says](https://news.yahoo.com/russias-luna-25-spacecraft-produces-130746279.html)
 <!-- feed end -->
 
 ### Onstream
