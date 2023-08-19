@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Bill Maher says he doesn't see the USA 'falling apart' with angry, unhappy people when he rides around town — but Marianne Williamson quickly popped his Beverly Hills bubble. Who's right?](https://finance.yahoo.com/news/bill-maher-says-doesnt-see-120000163.html)
 - Aug 19 - [Video of a Ka-52 attack helicopter being shot down in Ukraine hints Russia isn't learning what it should have by now, former US general says](https://news.yahoo.com/video-ka-52-attack-helicopter-100001176.html)
+- Aug 19 - [Philippines to resupply South China Sea troops after Beijing's block](https://news.yahoo.com/philippines-resupply-south-china-sea-090544452.html)
 - Aug 19 - [Asylum seekers in NYC say America is nothing like they had imagined: It's 'chaos'](https://news.yahoo.com/asylum-seekers-nyc-america-migrants-crisis-chaos-090039003.html)
 - Aug 19 - [Pornhub Parent Company Changes Name to Aylo, Aimed at Giving Adult-Entertainment Purveyor ‘Fresh Start’](https://www.yahoo.com/entertainment/pornhub-parent-company-changes-name-064623486.html)
-- Aug 19 - [Ex-Adviser Predicts Trump Will 'Suck All The Oxygen' From GOP Debate With 1 Move](https://news.yahoo.com/ex-adviser-predicts-trump-suck-045044937.html)
-- Aug 19 - [‘Dangerous situation’ sends students scrambling at Gwinnett high school football game](https://news.yahoo.com/dangerous-situation-sends-students-scrambling-024011598.html)
 <!-- feed end -->
 
 ### Onstream
