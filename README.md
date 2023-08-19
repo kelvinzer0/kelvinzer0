@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 19 - [Crews continue draining manmade lake at apartment after father claimed 2-year-old was kidnapped](https://news.yahoo.com/police-arrest-father-missing-2-095706998.html)
 - Aug 19 - [Man Splits Himself in Half After Jumping 750 Feet Off NYC Building](https://www.yahoo.com/entertainment/man-splits-himself-half-jumping-030339469.html)
-- Aug 19 - [Former White House lawyer on Trump’s expected surrender in Georgia: ‘He won’t enjoy it’](https://news.yahoo.com/former-white-house-lawyer-trump-023852020.html)
 - Aug 19 - [Chemical treatment to be deployed against invasive fish in Colorado River](https://news.yahoo.com/chemical-treatment-deployed-against-invasive-014258267.html)
 - Aug 19 - [California woman finds 'whole a--' man occupying crawlspace underneath her house ‘for months'](https://news.yahoo.com/california-woman-finds-whole-man-011651140.html)
+- Aug 18 - [See Christie’s reaction after Trump cancels his own promoted event](https://news.yahoo.com/see-christie-reaction-trump-cancels-130448490.html)
 <!-- feed end -->
 
 ### Onstream
