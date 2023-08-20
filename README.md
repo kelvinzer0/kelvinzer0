@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 20 - [A FedEx driver took a homeowner's gardening tools and killed a rattlesnake while delivering a package: 'Hope you didn't have a pet rattlesnake'](https://news.yahoo.com/fedex-driver-took-homeowners-gardening-185526541.html)
 - Aug 20 - [Court documents suggests reason for police raid of Kansas newspaper](https://news.yahoo.com/court-documents-suggests-reason-police-183901262.html)
+- Aug 20 - [California Man Contracted Legionnaires’ Disease After Sitting In Hot Tub for Five Minutes; Dies Within Days. Officials Say Spa Was Operating Illegally.](https://news.yahoo.com/california-man-contracted-legionnaires-disease-175300778.html)
 - Aug 20 - [A fellow Yale secret society member said Ron DeSantis rolled his eyes when she talked about her upbringing as a Hispanic girl in Texas: 'It was like I wasn't worth listening to'](https://news.yahoo.com/fellow-yale-secret-society-member-174704657.html)
-- Aug 20 - [School district investigates incident involving multiple students at Viera High School](https://news.yahoo.com/multiple-students-involved-incident-brevard-165017751.html)
-- Aug 20 - [We are ready to exchange Belgorod for NATO membership – Zelenskyy](https://news.yahoo.com/ready-exchange-belgorod-nato-membership-163941558.html)
-- Aug 20 - [Russia-Ukraine war: Russian bomber destroyed in Ukrainian drone attack](https://news.yahoo.com/russia-ukraine-war-ukraine-launches-084410539.html)
+- Aug 20 - [Meadows seeks dismissal of Georgia charges against him](https://news.yahoo.com/meadows-seeks-dismissal-georgia-charges-173703693.html)
 <!-- feed end -->
 
 ### Onstream
