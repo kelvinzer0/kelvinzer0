@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Aug 20 - [Tanker believed to hold sanctioned Iran oil begins to be offloaded near Texas despite Tehran threats](https://news.yahoo.com/tanker-believed-hold-sanctioned-iran-033951146.html)
 - Aug 20 - [A Legally Besieged Trump Focuses on a Personal Goal: Revenge Against Hillary Clinton](https://news.yahoo.com/legally-besieged-trump-focuses-personal-031451786.html)
 - Aug 20 - [Tech executive's brutal kidnapping caught on surveillance video](https://news.yahoo.com/tech-executives-brutal-kidnapping-caught-030100788.html)
-- Aug 20 - [Texas man confesses to killing wife over 'jealousy problems': Officials](https://news.yahoo.com/texas-man-confesses-killing-wife-015602495.html)
+- Aug 20 - [Kentucky suspect accused of chopping naked woman's hair, holding her captive for hours: police](https://news.yahoo.com/kentucky-suspect-accused-chopping-naked-000018438.html)
 <!-- feed end -->
 
 ### Onstream
