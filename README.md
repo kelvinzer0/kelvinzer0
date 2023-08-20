@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Meadows told special counsel he could not recall Trump ever declassifying Mar-a-Lago docs: Sources](https://www.yahoo.com/gma/meadows-told-special-counsel-could-124511661.html)
-- Aug 20 - [Car going the wrong way on I-20 overnight led to a deadly head-on crash, SC cops say](https://news.yahoo.com/car-going-wrong-way-20-124154506.html)
+- Aug 20 - [Scientists sound alarm over ‘unheard of’ ocean conditions: ‘We could see mass mortality’](https://news.yahoo.com/scientists-concerned-unheard-conditions-off-113000269.html)
 - Aug 20 - [Here is how much you need to retire among the top 10% of Americans — are you tracking nicely?](https://finance.yahoo.com/news/heres-much-retire-among-top-133000058.html)
+- Aug 20 - [After 48 years and a Baltimore author’s true crime book, police make arrest in Pennsylvania cold case](https://www.yahoo.com/entertainment/48-years-baltimore-author-true-080000286.html)
 - Aug 20 - [If you can't beat them, eat them: Italians cope with invasion of blue crabs this summer](https://www.yahoo.com/lifestyle/cant-beat-them-eat-them-060234732.html)
 - Aug 20 - [Block Island declares State of Emergency after major fire breaks out](https://news.yahoo.com/block-island-declares-state-emergency-150504452.html)
 <!-- feed end -->
