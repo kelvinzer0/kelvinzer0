@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [UPDATE 3-Russia's first lunar mission in 47 years smashes into the moon in failure](https://finance.yahoo.com/news/1-russias-luna-25-smashes-085931208.html)
+- Aug 20 - [Here is how much you need to retire among the top 10% of Americans — are you tracking nicely?](https://finance.yahoo.com/news/heres-much-retire-among-top-133000058.html)
 - Aug 20 - [If you can't beat them, eat them: Italians cope with invasion of blue crabs this summer](https://www.yahoo.com/lifestyle/cant-beat-them-eat-them-060234732.html)
 - Aug 20 - [Block Island declares State of Emergency after major fire breaks out](https://news.yahoo.com/block-island-declares-state-emergency-150504452.html)
 - Aug 20 - [A tanker believed to hold sanctioned Iran oil starts offloading near Texas despite Tehran's threats](https://news.yahoo.com/tanker-believed-hold-sanctioned-iran-033951146.html)
