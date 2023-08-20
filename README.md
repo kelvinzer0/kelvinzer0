@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 20 - [Tanker believed to hold sanctioned Iran oil begins to be offloaded near Texas despite Tehran threats](https://news.yahoo.com/tanker-believed-hold-sanctioned-iran-033951146.html)
+- Aug 20 - [A Legally Besieged Trump Focuses on a Personal Goal: Revenge Against Hillary Clinton](https://news.yahoo.com/legally-besieged-trump-focuses-personal-031451786.html)
 - Aug 20 - [Kentucky suspect accused of chopping naked woman's hair, holding her captive for hours: police](https://news.yahoo.com/kentucky-suspect-accused-chopping-naked-000018438.html)
 - Aug 19 - [Tony Stewart Racing Driver Dies in Alleged Road Rage Incident](https://news.yahoo.com/tony-stewart-racing-driver-dies-215000032.html)
-- Aug 19 - [F-16s already touched down in Ukraine – Head of Ukraine's Air Force](https://news.yahoo.com/f-16s-already-touched-down-201510259.html)
 - Aug 19 - [Block Island declares State of Emergency after major fire breaks out](https://news.yahoo.com/block-island-declares-state-emergency-150504452.html)
-- Aug 19 - [Jake Tapper admits ‘Trump was right,’ ‘Biden was wrong’ about Hunter Biden in 2020 presidential debate](https://news.yahoo.com/jake-tapper-admits-trump-biden-181413609.html)
 <!-- feed end -->
 
 ### Onstream
