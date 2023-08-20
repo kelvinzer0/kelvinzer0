@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 20 - [Court documents suggests reason for police raid of Kansas newspaper](https://news.yahoo.com/court-documents-suggests-reason-police-183901262.html)
+- Aug 20 - [A fellow Yale secret society member said Ron DeSantis rolled his eyes when she talked about her upbringing as a Hispanic girl in Texas: 'It was like I wasn't worth listening to'](https://news.yahoo.com/fellow-yale-secret-society-member-174704657.html)
+- Aug 20 - [School district investigates incident involving multiple students at Viera High School](https://news.yahoo.com/multiple-students-involved-incident-brevard-165017751.html)
 - Aug 20 - [We are ready to exchange Belgorod for NATO membership – Zelenskyy](https://news.yahoo.com/ready-exchange-belgorod-nato-membership-163941558.html)
 - Aug 20 - [Russia-Ukraine war: Russian bomber destroyed in Ukrainian drone attack](https://news.yahoo.com/russia-ukraine-war-ukraine-launches-084410539.html)
-- Aug 20 - [Donald Trump’s Former Campaign Adviser Predicts He May Choose This Shocking Time to ‘Turn Himself In'](https://www.yahoo.com/entertainment/donald-trump-former-campaign-adviser-152500076.html)
-- Aug 20 - [Scientists sound alarm over ‘unheard of’ ocean conditions: ‘We could see mass mortality’](https://news.yahoo.com/scientists-concerned-unheard-conditions-off-113000269.html)
-- Aug 20 - [Here is how much you need to retire among the top 10% of Americans — are you tracking nicely?](https://finance.yahoo.com/news/heres-much-retire-among-top-133000058.html)
 <!-- feed end -->
 
 ### Onstream
