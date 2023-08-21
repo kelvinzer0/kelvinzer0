@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 21 - [Black delivery driver loses FedEx job, more than a year after he said white men attacked him](https://news.yahoo.com/black-delivery-driver-loses-fedex-222355316.html)
+- Aug 21 - [Idaho Officials Find Strange Shark on Riverbank in the Landlocked State](https://www.yahoo.com/entertainment/idaho-officials-strange-shark-river-221735349.html)
 - Aug 21 - [Free Disney World passes is latest front in war between Disney and DeSantis appointees](https://news.yahoo.com/free-disney-world-passes-latest-215117599.html)
-- Aug 21 - [Megyn Kelly Says Biden Addresses Maui Wildfires Like He’s George Clooney Answering to a Sex Scandal: ‘No Comment!’ (Video)](https://www.yahoo.com/entertainment/megyn-kelly-says-biden-addresses-212742013.html)
-- Aug 21 - [This TikToker says she paid nearly $4K over 4 years for a subscription service that gave her absolutely nothing — and she can't get the money back. 3 simple tips to avoid getting blindsided](https://finance.yahoo.com/news/l-tiktoker-says-she-paid-210000582.html)
-- Aug 21 - [Japanese store slams foreign tourists for ‘bad manners'](https://news.yahoo.com/japanese-store-slams-foreign-tourists-203043213.html)
-- Aug 21 - [These 4 NC areas are among America’s ‘most envied suburbs.’ One is in Charlotte](https://news.yahoo.com/4-nc-areas-among-america-201645184.html)
+- Aug 21 - [Watch: 50 Baboons Beat Up a Leopard](https://www.yahoo.com/lifestyle/watch-50-baboons-beat-leopard-213703277.html)
+- Aug 21 - [Sheriff’s Department Lets Armed Boogaloos Waltz Onto School Grounds](https://news.yahoo.com/sheriff-department-lets-armed-boogaloos-213508134.html)
 <!-- feed end -->
 
 ### Onstream
