@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Atlanta college reinstates mask mandate for students, employees on campus](https://news.yahoo.com/atlanta-college-reinstates-mask-mandate-181901379.html)
+- Aug 21 - [Vivek Ramaswamy wants to know how many 'federal agents' were on the planes that hit the Twin Towers: 'I want the truth about 9/11'](https://news.yahoo.com/vivek-ramaswamy-wants-know-many-184724406.html)
+- Aug 21 - [‘I’m traumatized;’ Mother wants answers after son walks out of Dayton elementary school unnoticed](https://news.yahoo.com/m-traumatized-mother-wants-answers-181844351.html)
+- Aug 21 - [Spotless giraffe, thought to be only one in world, born at Tennessee zoo](https://news.yahoo.com/spotless-giraffe-thought-only-one-181228303.html)
 - Aug 21 - [A woman sent nude selfies to her boyfriend. Now she's successfully sued her former high school math teacher for posting them to a revenge porn site.](https://news.yahoo.com/woman-sent-nude-selfies-her-180716883.html)
 - Aug 21 - [Fox News Blames Biden For Letting Tropical Storm Hilary Through The Border](https://news.yahoo.com/fox-news-blames-biden-letting-180646463.html)
-- Aug 21 - [Georgia sheriff pleads guilty to groping TV Judge Hatchett](https://news.yahoo.com/georgia-sheriff-pleads-guilty-groping-180430123.html)
-- Aug 21 - [What is the Pants Store that’s coming up in a lot of Bama Rush videos?](https://news.yahoo.com/pants-store-coming-lot-bama-180002094.html)
 <!-- feed end -->
 
 ### Onstream
