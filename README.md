@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Proud purple to angry red: These Florida residents feel unwelcome in 'new' Florida](https://news.yahoo.com/proud-purple-angry-red-florida-091713931.html)
-- Aug 21 - [Mehdi Hasan Reveals Detail About Trump Supporters That Will ‘Haunt’ Him Forever](https://news.yahoo.com/mehdi-hasan-reveals-detail-trump-090015131.html)
-- Aug 21 - [Palm Springs Declares Local Emergency as Storm Hilary Hits Southern California](https://news.yahoo.com/palm-springs-declares-local-emergency-085418122.html)
-- Aug 21 - [‘He’s Scared’: Jen Psaki Spots ‘Unusual’ Sign That Trump Is Finally Afraid](https://news.yahoo.com/scared-jen-psaki-spots-unusual-072851157.html)
-- Aug 21 - [Pence Won't Hold Trump To 'Same Standard' As He Did To Expelled Democrat](https://news.yahoo.com/pence-wont-hold-trump-same-055008877.html)
+- Aug 21 - [Ukraine's use of imprecise cluster bombs is making Russian 'very scared to go on assault', says frontline soldier](https://news.yahoo.com/ukraines-imprecise-cluster-bombs-making-113102369.html)
+- Aug 21 - [Rudy Giuliani Says He Has 'Scientific' Proof Of Election Fraud To Exonerate Him](https://news.yahoo.com/rudy-giuliani-says-scientific-proof-111944653.html)
+- Aug 21 - [A potential first-of-its-kind fighter jet purchase could be a sign Saudi Arabia isn't happy with what it's getting from the US](https://news.yahoo.com/potential-first-kind-fighter-jet-110301898.html)
+- Aug 21 - [A Disneyland employee was fired after guests said he refused to put whipped cream and Nutella on their waffles, reports say](https://news.yahoo.com/disneyland-employee-fired-guests-said-102609214.html)
+- Aug 21 - [Republican feud over 'root canal' spending cuts raises US gov't shutdown risk](https://news.yahoo.com/republican-feud-over-root-canal-100634943.html)
 <!-- feed end -->
 
 ### Onstream
