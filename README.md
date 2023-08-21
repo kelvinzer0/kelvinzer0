@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Vivek Ramaswamy wants to know how many 'federal agents' were on the planes that hit the Twin Towers: 'I want the truth about 9/11'](https://news.yahoo.com/vivek-ramaswamy-wants-know-many-184724406.html)
-- Aug 21 - [‘I’m traumatized;’ Mother wants answers after son walks out of Dayton elementary school unnoticed](https://news.yahoo.com/m-traumatized-mother-wants-answers-181844351.html)
-- Aug 21 - [Spotless giraffe, thought to be only one in world, born at Tennessee zoo](https://news.yahoo.com/spotless-giraffe-thought-only-one-181228303.html)
-- Aug 21 - [A woman sent nude selfies to her boyfriend. Now she's successfully sued her former high school math teacher for posting them to a revenge porn site.](https://news.yahoo.com/woman-sent-nude-selfies-her-180716883.html)
-- Aug 21 - [Fox News Blames Biden For Letting Tropical Storm Hilary Through The Border](https://news.yahoo.com/fox-news-blames-biden-letting-180646463.html)
+- Aug 21 - [Trump's bond set at $200,000 in Fulton County election interference case](https://www.yahoo.com/gma/trumps-bond-set-200-000-195900262.html)
+- Aug 21 - [Trump faces $200,000 bond, order not to make threats, in Georgia election case](https://news.yahoo.com/trump-faces-200-000-bond-203928261.html)
+- Aug 21 - [Japanese store slams foreign tourists for ‘bad manners'](https://news.yahoo.com/japanese-store-slams-foreign-tourists-203043213.html)
+- Aug 21 - [These 4 NC areas are among America’s ‘most envied suburbs.’ One is in Charlotte](https://news.yahoo.com/4-nc-areas-among-america-201645184.html)
+- Aug 21 - [Spanish singer Miguel Bosé robbed, bound along with children at Mexico City house](https://news.yahoo.com/spanish-singer-miguel-bos-robbed-200819751.html)
 <!-- feed end -->
 
 ### Onstream
