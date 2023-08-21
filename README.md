@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Storm Hilary brings gushing floodwaters to Las Vegas](https://news.yahoo.com/storm-hilary-brings-gushing-floodwaters-073314655.html)
+- Aug 21 - [Russia warns F-16 donations will escalate war with Ukraine](https://news.yahoo.com/ukraine-may-only-donated-f-075708385.html)
 - Aug 21 - [‘He’s Scared’: Jen Psaki Spots ‘Unusual’ Sign That Trump Is Finally Afraid](https://news.yahoo.com/scared-jen-psaki-spots-unusual-072851157.html)
 - Aug 21 - [Hundreds of migrants killed by Saudi border guards - report](https://news.yahoo.com/hundreds-migrants-killed-saudi-border-040821761.html)
 - Aug 21 - [Pence Won't Hold Trump To 'Same Standard' As He Did To Expelled Democrat](https://news.yahoo.com/pence-wont-hold-trump-same-055008877.html)
