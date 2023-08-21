@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Mudflow Shoots in the Air as Storm Hilary Floods Southern California](https://news.yahoo.com/mud-flow-shoots-air-storm-144505266.html)
+- Aug 21 - [Trump's former lawyer was indicted in Georgia. She wants his defense funds to pay her legal fees.](https://news.yahoo.com/trumps-former-lawyer-indicted-georgia-154406434.html)
+- Aug 21 - [Trump refuses to attend Republican debate: Why it matters to the GOP](https://finance.yahoo.com/video/trump-refuses-attend-republican-debate-153914947.html)
+- Aug 21 - [Teen punched trooper in face, fled into woods during traffic stop in Norwell, state police say](https://news.yahoo.com/teen-punched-trooper-face-fled-143818575.html)
 - Aug 21 - [Hilary in photos: See flooding, damage in Southern California after storm moves through](https://news.yahoo.com/hilary-photos-see-flooding-damage-143331879.html)
 - Aug 21 - [‘Blind Side’ controversy: Why the Tuohys sought a conservatorship over adoption for Michael Oher](https://sports.yahoo.com/blind-side-controversy-why-the-tuohys-sought-a-conservatorship-over-adoption-for-michael-oher-141415218.html)
-- Aug 21 - [Georgia sheriff pleads guilty to groping Judge Hatchett, resigns effective immediately](https://news.yahoo.com/georgia-sheriff-pleads-guilty-groping-135803834.html)
-- Aug 21 - [Experts: Leak shows Meadows “tried to cover up for Trump” — now he’s being thrown “under the bus"](https://news.yahoo.com/experts-leak-shows-meadows-tried-132051839.html)
 <!-- feed end -->
 
 ### Onstream
