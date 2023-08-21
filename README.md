@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Putin was meant to be at a summit in South Africa this week. Why was he asked to stay away?](https://news.yahoo.com/putin-meant-summit-south-africa-175134383.html)
-- Aug 21 - [Ukraine lines up destroyed Russian tanks in central Kyiv](https://news.yahoo.com/ukraine-lines-destroyed-russian-tanks-171717271.html)
-- Aug 21 - [Mary Trump: “Donald is going to regret” having cameras in the courtroom](https://news.yahoo.com/mary-trump-donald-going-regret-171502956.html)
-- Aug 21 - [Storm brewing in Gulf of Mexico to strengthen en route to Texas](https://news.yahoo.com/storm-brewing-gulf-mexico-strengthen-164853652.html)
-- Aug 21 - [A right-wing sheriffs group that challenges federal law is gaining acceptance around the country](https://news.yahoo.com/wing-sheriffs-group-challenges-federal-162946214.html)
+- Aug 21 - [Atlanta college reinstates mask mandate for students, employees on campus](https://news.yahoo.com/atlanta-college-reinstates-mask-mandate-181901379.html)
+- Aug 21 - [A woman sent nude selfies to her boyfriend. Now she's successfully sued her former high school math teacher for posting them to a revenge porn site.](https://news.yahoo.com/woman-sent-nude-selfies-her-180716883.html)
+- Aug 21 - [Fox News Blames Biden For Letting Tropical Storm Hilary Through The Border](https://news.yahoo.com/fox-news-blames-biden-letting-180646463.html)
+- Aug 21 - [Georgia sheriff pleads guilty to groping TV Judge Hatchett](https://news.yahoo.com/georgia-sheriff-pleads-guilty-groping-180430123.html)
+- Aug 21 - [What is the Pants Store that’s coming up in a lot of Bama Rush videos?](https://news.yahoo.com/pants-store-coming-lot-bama-180002094.html)
 <!-- feed end -->
 
 ### Onstream
