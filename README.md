@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Watch: Bull elk has last laugh after being taunted by motorist](https://sports.yahoo.com/watch-bull-elk-last-laugh-160112734.html)
-- Aug 21 - [Trump's former lawyer was indicted in Georgia. She wants his defense funds to pay her legal fees.](https://news.yahoo.com/trumps-former-lawyer-indicted-georgia-154406434.html)
-- Aug 21 - [Keefe D Facing “Imminent Charges” In 2Pac Murder After Bragging About Shooting](https://www.yahoo.com/entertainment/keefe-d-facing-imminent-charges-152019930.html)
-- Aug 21 - [Teen punched trooper in face, fled into woods during traffic stop in Norwell, state police say](https://news.yahoo.com/teen-punched-trooper-face-fled-143818575.html)
-- Aug 21 - [Hilary in photos: See flooding, damage in Southern California after storm moves through](https://news.yahoo.com/hilary-photos-see-flooding-damage-143331879.html)
+- Aug 21 - [Putin was meant to be at a summit in South Africa this week. Why was he asked to stay away?](https://news.yahoo.com/putin-meant-summit-south-africa-175134383.html)
+- Aug 21 - [Ukraine lines up destroyed Russian tanks in central Kyiv](https://news.yahoo.com/ukraine-lines-destroyed-russian-tanks-171717271.html)
+- Aug 21 - [Mary Trump: “Donald is going to regret” having cameras in the courtroom](https://news.yahoo.com/mary-trump-donald-going-regret-171502956.html)
+- Aug 21 - [Storm brewing in Gulf of Mexico to strengthen en route to Texas](https://news.yahoo.com/storm-brewing-gulf-mexico-strengthen-164853652.html)
+- Aug 21 - [A right-wing sheriffs group that challenges federal law is gaining acceptance around the country](https://news.yahoo.com/wing-sheriffs-group-challenges-federal-162946214.html)
 <!-- feed end -->
 
 ### Onstream
