@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 21 - [Storm Hilary brings floods to Southern California](https://news.yahoo.com/storm-hilary-brings-floods-southern-011658532.html)
 - Aug 21 - [James Woods Threatens to Leave X (Twitter), Elon Musk Responds: ‘Delete Your Account’](https://www.yahoo.com/entertainment/james-woods-threatens-leave-x-000246016.html)
 - Aug 20 - [Shocking images show snowplows cleaning city streets after summer storm brings 12 inches of ice and snow](https://news.yahoo.com/shocking-images-show-snowplows-cleaning-220000920.html)
 - Aug 20 - [Former respiratory therapist in Missouri sentenced in connection with patient deaths](https://news.yahoo.com/former-respiratory-therapist-missouri-sentenced-213320508.html)
-- Aug 20 - ['He is scared': Psaki on unusual signs of fear from Trump after new indictment](https://news.yahoo.com/scared-psaki-unusual-signs-fear-205503091.html)
-- Aug 20 - [Torrential rain from Tropical Storm Hilary causes dangerous mudslides, rockslides in Southern California](https://news.yahoo.com/torrential-rain-tropical-storm-hilary-204432289.html)
+- Aug 20 - [Thousands of dollars worth of goods stolen from local Home Depot, police looking for suspects](https://news.yahoo.com/thousands-dollars-worth-goods-stolen-212559087.html)
 <!-- feed end -->
 
 ### Onstream
