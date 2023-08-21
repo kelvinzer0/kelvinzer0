@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Trump's bond set at $200,000 in Fulton County election interference case](https://www.yahoo.com/gma/trumps-bond-set-200-000-195900262.html)
-- Aug 21 - [Trump faces $200,000 bond, order not to make threats, in Georgia election case](https://news.yahoo.com/trump-faces-200-000-bond-203928261.html)
+- Aug 21 - [Free Disney World passes is latest front in war between Disney and DeSantis appointees](https://news.yahoo.com/free-disney-world-passes-latest-215117599.html)
+- Aug 21 - [Megyn Kelly Says Biden Addresses Maui Wildfires Like He’s George Clooney Answering to a Sex Scandal: ‘No Comment!’ (Video)](https://www.yahoo.com/entertainment/megyn-kelly-says-biden-addresses-212742013.html)
+- Aug 21 - [This TikToker says she paid nearly $4K over 4 years for a subscription service that gave her absolutely nothing — and she can't get the money back. 3 simple tips to avoid getting blindsided](https://finance.yahoo.com/news/l-tiktoker-says-she-paid-210000582.html)
 - Aug 21 - [Japanese store slams foreign tourists for ‘bad manners'](https://news.yahoo.com/japanese-store-slams-foreign-tourists-203043213.html)
 - Aug 21 - [These 4 NC areas are among America’s ‘most envied suburbs.’ One is in Charlotte](https://news.yahoo.com/4-nc-areas-among-america-201645184.html)
-- Aug 21 - [Spanish singer Miguel Bosé robbed, bound along with children at Mexico City house](https://news.yahoo.com/spanish-singer-miguel-bos-robbed-200819751.html)
 <!-- feed end -->
 
 ### Onstream
