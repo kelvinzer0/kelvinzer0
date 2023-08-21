@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Ukraine's use of imprecise cluster bombs is making Russian 'very scared to go on assault', says frontline soldier](https://news.yahoo.com/ukraines-imprecise-cluster-bombs-making-113102369.html)
+- Aug 21 - [Experts: Leak shows Meadows “tried to cover up for Trump” — now he’s being thrown “under the bus"](https://news.yahoo.com/experts-leak-shows-meadows-tried-132051839.html)
 - Aug 21 - [Rudy Giuliani Says He Has 'Scientific' Proof Of Election Fraud To Exonerate Him](https://news.yahoo.com/rudy-giuliani-says-scientific-proof-111944653.html)
+- Aug 21 - [Elon Musk admitted X ‘might fail’—then the social network accidentally removed swaths of historic content, including Ellen’s Oscars selfie that broke Twitter](https://finance.yahoo.com/news/elon-musk-admitted-x-might-110941259.html)
 - Aug 21 - [A potential first-of-its-kind fighter jet purchase could be a sign Saudi Arabia isn't happy with what it's getting from the US](https://news.yahoo.com/potential-first-kind-fighter-jet-110301898.html)
 - Aug 21 - [New York will now fine restaurants for including a common takeout add-on in their to-go meals: ‘Years in the making’](https://news.yahoo.com/york-now-fine-restaurants-including-110000605.html)
-- Aug 21 - [A Disneyland employee was fired after guests said he refused to put whipped cream and Nutella on their waffles, reports say](https://news.yahoo.com/disneyland-employee-fired-guests-said-102609214.html)
 <!-- feed end -->
 
 ### Onstream
