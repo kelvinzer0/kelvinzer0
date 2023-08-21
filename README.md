@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Hundreds of migrants killed by Saudi border guards - report](https://news.yahoo.com/hundreds-migrants-killed-saudi-border-040821761.html)
 - Aug 21 - [Proud purple to angry red: These Florida residents feel unwelcome in 'new' Florida](https://news.yahoo.com/proud-purple-angry-red-florida-091713931.html)
 - Aug 21 - [Mehdi Hasan Reveals Detail About Trump Supporters That Will ‘Haunt’ Him Forever](https://news.yahoo.com/mehdi-hasan-reveals-detail-trump-090015131.html)
+- Aug 21 - [Palm Springs Declares Local Emergency as Storm Hilary Hits Southern California](https://news.yahoo.com/palm-springs-declares-local-emergency-085418122.html)
 - Aug 21 - [‘He’s Scared’: Jen Psaki Spots ‘Unusual’ Sign That Trump Is Finally Afraid](https://news.yahoo.com/scared-jen-psaki-spots-unusual-072851157.html)
 - Aug 21 - [Pence Won't Hold Trump To 'Same Standard' As He Did To Expelled Democrat](https://news.yahoo.com/pence-wont-hold-trump-same-055008877.html)
 <!-- feed end -->
