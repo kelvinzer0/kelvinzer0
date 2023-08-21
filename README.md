@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 21 - [James Woods Threatens to Leave X (Twitter), Elon Musk Responds: ‘Delete Your Account’](https://www.yahoo.com/entertainment/james-woods-threatens-leave-x-000246016.html)
-- Aug 20 - [UPDATE: Many roads shut down by flooding as Tropical Storm Hilary hammers Coachella Valley](https://news.yahoo.com/many-roads-shut-down-flooding-222003515.html)
 - Aug 20 - [Shocking images show snowplows cleaning city streets after summer storm brings 12 inches of ice and snow](https://news.yahoo.com/shocking-images-show-snowplows-cleaning-220000920.html)
 - Aug 20 - [Former respiratory therapist in Missouri sentenced in connection with patient deaths](https://news.yahoo.com/former-respiratory-therapist-missouri-sentenced-213320508.html)
 - Aug 20 - [Thousands of dollars worth of goods stolen from local Home Depot, police looking for suspects](https://news.yahoo.com/thousands-dollars-worth-goods-stolen-212559087.html)
+- Aug 20 - ['He is scared': Psaki on unusual signs of fear from Trump after new indictment](https://news.yahoo.com/scared-psaki-unusual-signs-fear-205503091.html)
 <!-- feed end -->
 
 ### Onstream
