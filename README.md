@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 21 - [Storm Hilary drenches Southern California, Mexico](https://news.yahoo.com/storm-hilary-drenches-southern-california-065228741.html)
+- Aug 21 - [Hundreds of migrants killed by Saudi border guards - report](https://news.yahoo.com/hundreds-migrants-killed-saudi-border-040821761.html)
+- Aug 21 - [Pence Won't Hold Trump To 'Same Standard' As He Did To Expelled Democrat](https://news.yahoo.com/pence-wont-hold-trump-same-055008877.html)
 - Aug 21 - [Russia's so desperate to get its billionaires and their massive wealth back that it just threatened to seize the assets of an oligarch worth $13 billion](https://news.yahoo.com/russias-desperate-billionaires-massive-wealth-042430223.html)
 - Aug 21 - [Trump and his allies double down on election lies after indictments for trying to undo 2020 results](https://news.yahoo.com/trump-allies-double-down-election-040753066.html)
-- Aug 21 - [An ice cream machine that wasn't cleaned properly led to the deaths of 3 people in Washington, officials say](https://news.yahoo.com/ice-cream-machine-wasnt-cleaned-031342087.html)
-- Aug 21 - [Flooding overtakes Palm Springs, California, during Tropical Storm Hilary as local emergency declared](https://news.yahoo.com/flooding-overtakes-palm-springs-california-020742817.html)
-- Aug 21 - [James Woods Threatens to Leave X (Twitter), Elon Musk Responds: ‘Delete Your Account’](https://www.yahoo.com/entertainment/james-woods-threatens-leave-x-000246016.html)
 <!-- feed end -->
 
 ### Onstream
