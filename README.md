@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Watch India’s Chandrayaan-3 try to land on the Moon here at 8:34AM ET](https://news.yahoo.com/watch-indias-chandrayaan-3-try-to-land-on-the-moon-here-at-834am-et-200053930.html)
+- Aug 22 - [Hollywood strikes:  'A lose-lose situation' as fears mount over a $4 billion economic hit](https://finance.yahoo.com/news/hollywood-strikes-a-lose-lose-situation-as-fears-mount-over-a-4-billion-economic-hit-193730757.html)
+- Aug 22 - [Kari Lake says she has a First Amendment right to lie about Stephen Richer](https://news.yahoo.com/kari-lake-says-she-first-192356631.html)
+- Aug 22 - [Son of Sanderson Ford president dead after accident inside car lot in Glendale](https://news.yahoo.com/son-sanderson-ford-president-dead-191915720.html)
 - Aug 22 - [Met officer raped teenager five years after warnings about his behaviour](https://news.yahoo.com/woman-raped-met-police-officer-174815850.html)
-- Aug 22 - [‘Incredibly dangerous’: Kingston man placed large rocks in road for cars to hit, police say](https://news.yahoo.com/kingston-police-nab-man-allegedly-133204726.html)
-- Aug 22 - [Attorney: New bombshell report confirms Mark Meadows “ratted out Trump to the Feds”](https://news.yahoo.com/attorney-bombshell-report-confirms-mark-175914490.html)
-- Aug 22 - [Conditions are too dangerous to recover bodies of 2 men killed in Alaska plane crash, officials say](https://news.yahoo.com/conditions-too-dangerous-recover-bodies-173953303.html)
-- Aug 22 - [Stephen A. Smith delivers new perspective to Sage Steele's departure from ESPN](https://www.thestreet.com/media/stephen-a-smith-delivers-new-perspective-sage-steeles-departure-espn?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
