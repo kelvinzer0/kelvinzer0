@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Temperatures exceeding 123 Fahrenheit plunges country into 2-day nationwide shutdown: ‘Preserve the health of the citizens’](https://news.yahoo.com/temperatures-exceeding-123-fahrenheit-plunges-050000372.html)
 - Aug 22 - [How Trump's attacks on prosecutors build on history of using racist language and stereotypes](https://news.yahoo.com/trumps-attacks-prosecutors-build-history-040442767.html)
 - Aug 22 - [A cockroach on a plane is going viral for appearing to stay alive and twitching while lodged in a plane window next to one fascinated passenger](https://www.yahoo.com/entertainment/cockroach-plane-going-viral-appearing-034346817.html)
 - Aug 22 - [Maggie Haberman: This move in Trump’s Georgia case is ‘unprecedented’](https://news.yahoo.com/maggie-haberman-move-trump-georgia-030328665.html)
 - Aug 22 - [I moved to Japan and started following 2 basic Japanese healthy-eating principles — and it helped me go from food obsession to freedom](https://www.yahoo.com/lifestyle/moved-japan-started-following-2-025737632.html)
-- Aug 22 - [North Korea's Kim blasts 'irresponsible' top officials for flood damage](https://news.yahoo.com/north-koreas-kim-blasts-irresponsible-023451867.html)
 <!-- feed end -->
 
 ### Onstream
