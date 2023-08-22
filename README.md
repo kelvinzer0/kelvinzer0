@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [How Trump's attacks on prosecutors build on history of using racist language and stereotypes](https://news.yahoo.com/trumps-attacks-prosecutors-build-history-040442767.html)
+- Aug 22 - [A cockroach on a plane is going viral for appearing to stay alive and twitching while lodged in a plane window next to one fascinated passenger](https://www.yahoo.com/entertainment/cockroach-plane-going-viral-appearing-034346817.html)
+- Aug 22 - [Maggie Haberman: This move in Trump’s Georgia case is ‘unprecedented’](https://news.yahoo.com/maggie-haberman-move-trump-georgia-030328665.html)
 - Aug 22 - [I moved to Japan and started following 2 basic Japanese healthy-eating principles — and it helped me go from food obsession to freedom](https://www.yahoo.com/lifestyle/moved-japan-started-following-2-025737632.html)
 - Aug 22 - [North Korea's Kim blasts 'irresponsible' top officials for flood damage](https://news.yahoo.com/north-koreas-kim-blasts-irresponsible-023451867.html)
-- Aug 22 - [A nearly 100-year-old wooden house survived the Lahaina fire. Its owners are stumped as to why, but experts say this photo reveals crucial lessons for homeowners.](https://news.yahoo.com/owners-nearly-100-old-wooden-202123828.html)
-- Aug 22 - [Mississippi woman sentenced to life for role in beating man to death, possibly over veteran benefits: report](https://news.yahoo.com/mississippi-woman-sentenced-life-role-003014683.html)
-- Aug 21 - [Mexico president attacks Reuters report on narco remittances](https://news.yahoo.com/mexico-president-attacks-reuters-report-235621357.html)
 <!-- feed end -->
 
 ### Onstream
