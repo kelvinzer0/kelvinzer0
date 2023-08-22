@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Watch India's Chandrayaan-3 moon landing live](https://news.yahoo.com/watch-indias-chandrayaan-3-moon-155809413.html)
 - Aug 22 - [Melania Trump Is Reportedly ‘Seething With Fury’ After Donald Broke This Family-Oriented Promise](https://www.yahoo.com/entertainment/melania-trump-reportedly-seething-fury-153200314.html)
-- Aug 22 - [‘Morning Joe’: Former US Attorney Says Trump Wants to Be a 1st Amendment ‘Martyr’ but ‘Doesn’t Want to Mess Around and Find Out’ (Video)](https://www.yahoo.com/entertainment/morning-joe-former-us-attorney-150420505.html)
 - Aug 22 - [‘I could’ve died.’ Steering wheel stops spear thrown into woman’s car, Texas video shows](https://news.yahoo.com/could-ve-died-steering-wheel-150106319.html)
 - Aug 22 - [“Dude is losing it”: Trump jokes about fleeing to Russia “with Vladimir” in Fulton Truth Social rant](https://news.yahoo.com/dude-losing-trump-jokes-fleeing-145947822.html)
 - Aug 22 - [Attorney John Eastman surrenders to authorities on charges in Georgia 2020 election subversion case](https://news.yahoo.com/two-more-people-indicted-trump-140908638.html)
