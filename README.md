@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Trump Says He’ll Surrender to Georgia Authorities on Thursday: ‘Can You Believe It?’](https://www.yahoo.com/entertainment/trump-says-ll-surrender-georgia-010422092.html)
+- Aug 21 - [Mexico president attacks Reuters report on narco remittances](https://news.yahoo.com/mexico-president-attacks-reuters-report-235621357.html)
 - Aug 21 - [Watch the last billion years of Earth's tectonic plate movement in just 40 seconds](https://news.yahoo.com/watch-last-billion-years-earths-131800244.html)
 - Aug 21 - [North Korea says Camp David agreements raise possibility of 'thermonuclear war'](https://news.yahoo.com/north-korea-says-camp-david-224815226.html)
 - Aug 21 - [Black delivery driver loses FedEx job, more than a year after he said white men attacked him](https://news.yahoo.com/black-delivery-driver-loses-fedex-222355316.html)
-- Aug 21 - [Trump's $200,000 bond in his Georgia RICO case is the first time he's on the hook for cash in his criminal cases](https://news.yahoo.com/trumps-200-000-bond-georgia-222044110.html)
-- Aug 21 - [Free Disney World passes is latest front in war between Disney and DeSantis appointees](https://news.yahoo.com/free-disney-world-passes-latest-215117599.html)
 <!-- feed end -->
 
 ### Onstream
