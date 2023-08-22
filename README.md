@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Temple ruins on uninhabited Greek island reveal 2,400-year-old statues. Take a look](https://news.yahoo.com/temple-ruins-uninhabited-greek-island-211848541.html)
+- Aug 22 - [Ukraine blows up five jets ‘deep within Russian territory’](https://news.yahoo.com/five-russian-jets-blown-drones-201253205.html)
 - Aug 22 - [Watch India’s Chandrayaan-3 try to land on the Moon here at 8:34AM ET](https://news.yahoo.com/watch-indias-chandrayaan-3-try-to-land-on-the-moon-here-at-834am-et-200053930.html)
-- Aug 22 - [Hollywood strikes:  'A lose-lose situation' as fears mount over a $4 billion economic hit](https://finance.yahoo.com/news/hollywood-strikes-a-lose-lose-situation-as-fears-mount-over-a-4-billion-economic-hit-193730757.html)
-- Aug 22 - [Kari Lake says she has a First Amendment right to lie about Stephen Richer](https://news.yahoo.com/kari-lake-says-she-first-192356631.html)
 - Aug 22 - [Son of Sanderson Ford president dead after accident inside car lot in Glendale](https://news.yahoo.com/son-sanderson-ford-president-dead-191915720.html)
-- Aug 22 - [Met officer raped teenager five years after warnings about his behaviour](https://news.yahoo.com/woman-raped-met-police-officer-174815850.html)
+- Aug 22 - [NASA scientist issues grim warning 35 years after his original prediction: ‘[W]e knew it was coming’](https://news.yahoo.com/nasa-scientist-issues-grim-warning-190000490.html)
 <!-- feed end -->
 
 ### Onstream
