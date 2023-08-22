@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Satellite Images Show 'Historic Flooding' in California Desert](https://news.yahoo.com/satellite-images-show-historic-flooding-144121705.html)
+- Aug 22 - [Melania Trump Is Reportedly ‘Seething With Fury’ After Donald Broke This Family-Oriented Promise](https://www.yahoo.com/entertainment/melania-trump-reportedly-seething-fury-153200314.html)
+- Aug 22 - [‘Morning Joe’: Former US Attorney Says Trump Wants to Be a 1st Amendment ‘Martyr’ but ‘Doesn’t Want to Mess Around and Find Out’ (Video)](https://www.yahoo.com/entertainment/morning-joe-former-us-attorney-150420505.html)
+- Aug 22 - [‘I could’ve died.’ Steering wheel stops spear thrown into woman’s car, Texas video shows](https://news.yahoo.com/could-ve-died-steering-wheel-150106319.html)
+- Aug 22 - [“Dude is losing it”: Trump jokes about fleeing to Russia “with Vladimir” in Fulton Truth Social rant](https://news.yahoo.com/dude-losing-trump-jokes-fleeing-145947822.html)
 - Aug 22 - [Attorney John Eastman surrenders to authorities on charges in Georgia 2020 election subversion case](https://news.yahoo.com/two-more-people-indicted-trump-140908638.html)
-- Aug 22 - [“Set your watches”: Experts say there's "no chance" Trump won't violate strict bond conditions](https://news.yahoo.com/set-watches-experts-theres-no-130224048.html)
-- Aug 22 - [New Toyota dealership stirs controversy with worrisome location selection: ‘[It’s] heartbreaking’](https://news.yahoo.com/toyota-dealership-stirs-controversy-worrisome-130000505.html)
-- Aug 22 - [Cop critically wounded by hammer-wielding 'animal' with 30 priors who 'should never have been out': union](https://news.yahoo.com/cop-critically-wounded-hammer-wielding-120037963.html)
 <!-- feed end -->
 
 ### Onstream
