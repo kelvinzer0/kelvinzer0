@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - ['Sung Like A Canary': Ex-GOP Lawmaker Names Trump Insider Who Flipped](https://news.yahoo.com/sung-canary-ex-gop-lawmaker-084511637.html)
 - Aug 22 - ['Truly An Idiot': Michael Cohen Names The 1 Bad Move That Will Haunt Trump](https://news.yahoo.com/truly-idiot-michael-cohen-names-070903483.html)
 - Aug 22 - [RNC ‘Soulless Ghouls’ Ripped After Launching ‘Dumbest’ Attack On Biden Yet](https://news.yahoo.com/rnc-soulless-ghouls-ripped-launching-054607725.html)
 - Aug 22 - [Temperatures exceeding 123 Fahrenheit plunges country into 2-day nationwide shutdown: ‘Preserve the health of the citizens’](https://news.yahoo.com/temperatures-exceeding-123-fahrenheit-plunges-050000372.html)
 - Aug 22 - [How Trump's attacks on prosecutors build on history of using racist language and stereotypes](https://news.yahoo.com/trumps-attacks-prosecutors-build-history-040442767.html)
-- Aug 22 - [A cockroach on a plane is going viral for appearing to stay alive and twitching while lodged in a plane window next to one fascinated passenger](https://www.yahoo.com/entertainment/cockroach-plane-going-viral-appearing-034346817.html)
 <!-- feed end -->
 
 ### Onstream
