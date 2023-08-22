@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 22 - ['A get rich path': Billionaire Mark Cuban says if you really want to be rich, do these two things now — but here's where his advice falls short](https://finance.yahoo.com/news/rich-path-billionaire-mark-cuban-120000498.html)
 - Aug 22 - [Adam Kinzinger Names GOP Rival He Thinks Trump Is 'Scared To Death Of'](https://news.yahoo.com/adam-kinzinger-names-gop-rival-115113816.html)
-- Aug 22 - ['It's not taxed at all': Warren Buffett shares the 'best investment' you can make when battling inflation — and it doesn't have to cost you a dime](https://finance.yahoo.com/news/not-taxed-warren-buffett-shares-113000568.html)
-- Aug 22 - [Vivek Ramaswamy's 'Mansplaining' To CNN's Kaitlan Collins Riles Up Critics](https://www.yahoo.com/entertainment/vivek-ramaswamys-mansplaining-cnns-kaitlan-111414926.html)
-- Aug 22 - [North Korea's Kim lambasts premier over flooding, possible bid to shift blame for bad economy](https://news.yahoo.com/north-koreas-kim-lambasts-premier-111221146.html)
+- Aug 22 - [UPDATE 1-Russia says it destroyed U.S.-made military vessel carrying Ukrainians near Snake Island](https://finance.yahoo.com/news/1-russia-says-destroyed-u-114041870.html)
+- Aug 22 - [Dentist convicted of killing wife on African safari gets life sentence, $15M in penalties](https://news.yahoo.com/dentist-convicted-killing-wife-african-113843751.html)
+- Aug 22 - ['It's not taxed at all': Warren Buffett says this is the 'best investment' you can make when fighting inflation — and it doesn't have to cost you a dime](https://finance.yahoo.com/news/not-taxed-warren-buffett-shares-113000568.html)
 <!-- feed end -->
 
 ### Onstream
