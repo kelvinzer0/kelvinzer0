@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Prosecutors: Trump Mar-a-Lago security aide flipped after changing lawyers](https://news.yahoo.com/prosecutors-trump-mar-lago-security-220114774.html)
+- Aug 22 - [Texas Takes Attacks on Austin to New Level With “Death Star” Law](https://news.yahoo.com/texas-takes-attacks-austin-level-212633348.html)
 - Aug 22 - [Temple ruins on uninhabited Greek island reveal 2,400-year-old statues. Take a look](https://news.yahoo.com/temple-ruins-uninhabited-greek-island-211848541.html)
+- Aug 22 - [Research finds reducing consumption of just one food item would be like taking 8 million cars off the road: ‘It would make a really big difference’](https://news.yahoo.com/research-finds-reducing-consumption-just-210000019.html)
 - Aug 22 - [Ukraine blows up five jets ‘deep within Russian territory’](https://news.yahoo.com/five-russian-jets-blown-drones-201253205.html)
-- Aug 22 - [Watch India’s Chandrayaan-3 try to land on the Moon here at 8:34AM ET](https://news.yahoo.com/watch-indias-chandrayaan-3-try-to-land-on-the-moon-here-at-834am-et-200053930.html)
-- Aug 22 - [Son of Sanderson Ford president dead after accident inside car lot in Glendale](https://news.yahoo.com/son-sanderson-ford-president-dead-191915720.html)
-- Aug 22 - [NASA scientist issues grim warning 35 years after his original prediction: ‘[W]e knew it was coming’](https://news.yahoo.com/nasa-scientist-issues-grim-warning-190000490.html)
 <!-- feed end -->
 
 ### Onstream
