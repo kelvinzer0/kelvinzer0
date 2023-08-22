@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [A prized Russian bomber was blown up 400 miles behind enemy lines, suggesting the attack came from inside Russia: UK intel](https://news.yahoo.com/prized-russian-bomber-blown-400-100425781.html)
+- Aug 22 - ['Embarrassing': Young Americans are wasting their money on silly things — like TikTok 'pink sauce' and Candy Crush lives. Here are 3 big lessons Gen Z should steal from baby boomers](https://finance.yahoo.com/news/embarrassing-young-americans-wasting-money-120000239.html)
 - Aug 22 - ['Sung Like A Canary': Ex-GOP Lawmaker Names Trump Insider Who Flipped](https://news.yahoo.com/sung-canary-ex-gop-lawmaker-084511637.html)
 - Aug 22 - ['Truly An Idiot': Michael Cohen Names The 1 Bad Move That Will Haunt Trump](https://news.yahoo.com/truly-idiot-michael-cohen-names-070903483.html)
 - Aug 22 - [RNC ‘Soulless Ghouls’ Ripped After Launching ‘Dumbest’ Attack On Biden Yet](https://news.yahoo.com/rnc-soulless-ghouls-ripped-launching-054607725.html)
-- Aug 22 - [Temperatures exceeding 123 Fahrenheit plunges country into 2-day nationwide shutdown: ‘Preserve the health of the citizens’](https://news.yahoo.com/temperatures-exceeding-123-fahrenheit-plunges-050000372.html)
-- Aug 22 - [How Trump's attacks on prosecutors build on history of using racist language and stereotypes](https://news.yahoo.com/trumps-attacks-prosecutors-build-history-040442767.html)
 <!-- feed end -->
 
 ### Onstream
