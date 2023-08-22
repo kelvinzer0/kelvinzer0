@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [A prized Russian bomber was blown up 400 miles behind enemy lines, suggesting the attack came from inside Russia: UK intel](https://news.yahoo.com/prized-russian-bomber-blown-400-100425781.html)
-- Aug 22 - ['Embarrassing': Young Americans are wasting their money on silly things — like TikTok 'pink sauce' and Candy Crush lives. Here are 3 big lessons Gen Z should steal from baby boomers](https://finance.yahoo.com/news/embarrassing-young-americans-wasting-money-120000239.html)
-- Aug 22 - ['Sung Like A Canary': Ex-GOP Lawmaker Names Trump Insider Who Flipped](https://news.yahoo.com/sung-canary-ex-gop-lawmaker-084511637.html)
-- Aug 22 - ['Truly An Idiot': Michael Cohen Names The 1 Bad Move That Will Haunt Trump](https://news.yahoo.com/truly-idiot-michael-cohen-names-070903483.html)
-- Aug 22 - [RNC ‘Soulless Ghouls’ Ripped After Launching ‘Dumbest’ Attack On Biden Yet](https://news.yahoo.com/rnc-soulless-ghouls-ripped-launching-054607725.html)
+- Aug 22 - [Adam Kinzinger Names GOP Rival He Thinks Trump Is 'Scared To Death Of'](https://news.yahoo.com/adam-kinzinger-names-gop-rival-115113816.html)
+- Aug 22 - ['It's not taxed at all': Warren Buffett shares the 'best investment' you can make when battling inflation — and it doesn't have to cost you a dime](https://finance.yahoo.com/news/not-taxed-warren-buffett-shares-113000568.html)
+- Aug 22 - [Vivek Ramaswamy's 'Mansplaining' To CNN's Kaitlan Collins Riles Up Critics](https://www.yahoo.com/entertainment/vivek-ramaswamys-mansplaining-cnns-kaitlan-111414926.html)
+- Aug 22 - [A man stranded for 3 days on a remote Bahamas island was rescued by the Coast Guard after he fired flares](https://news.yahoo.com/man-stranded-3-days-remote-103307776.html)
+- Aug 22 - [‘I wouldn’t touch [them] with anybody’s money’: Grant Cardone says these two major US cities are some of 'the worst markets to be in right now' for real estate investors — here's why](https://finance.yahoo.com/news/wouldn-t-touch-them-anybody-120000157.html)
 <!-- feed end -->
 
 ### Onstream
