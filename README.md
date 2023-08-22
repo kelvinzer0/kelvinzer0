@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Woman raped by Met Police officer waves anonymity as he is jailed for 16 years](https://news.yahoo.com/woman-raped-met-police-officer-174815850.html)
+- Aug 22 - [‘Incredibly dangerous’: Kingston man placed large rocks in road for cars to hit, police say](https://news.yahoo.com/kingston-police-nab-man-allegedly-133204726.html)
+- Aug 22 - [Woman raped by Met Police officer waives anonymity as he is jailed for 16 years](https://news.yahoo.com/woman-raped-met-police-officer-174815850.html)
 - Aug 22 - [Conditions are too dangerous to recover bodies of 2 men killed in Alaska plane crash, officials say](https://news.yahoo.com/conditions-too-dangerous-recover-bodies-173953303.html)
 - Aug 22 - [Stephen A. Smith delivers new perspective to Sage Steele's departure from ESPN](https://www.thestreet.com/media/stephen-a-smith-delivers-new-perspective-sage-steeles-departure-espn?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Aug 22 - [Mississippi officer out of job after 10-year-old is taken into custody for urinating in public](https://news.yahoo.com/mississippi-officer-job-10-old-165234381.html)
-- Aug 22 - [Closest thing to a black bear vs. grizzly fight unfolds at Yellowstone](https://sports.yahoo.com/closest-thing-black-bear-vs-164254349.html)
 <!-- feed end -->
 
 ### Onstream
