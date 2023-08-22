@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - ['A get rich path': Billionaire Mark Cuban says if you really want to be rich, do these two things now — but here's where his advice falls short](https://finance.yahoo.com/news/rich-path-billionaire-mark-cuban-120000498.html)
-- Aug 22 - [Adam Kinzinger Names GOP Rival He Thinks Trump Is 'Scared To Death Of'](https://news.yahoo.com/adam-kinzinger-names-gop-rival-115113816.html)
-- Aug 22 - [UPDATE 1-Russia says it destroyed U.S.-made military vessel carrying Ukrainians near Snake Island](https://finance.yahoo.com/news/1-russia-says-destroyed-u-114041870.html)
-- Aug 22 - [Dentist convicted of killing wife on African safari gets life sentence, $15M in penalties](https://news.yahoo.com/dentist-convicted-killing-wife-african-113843751.html)
-- Aug 22 - ['It's not taxed at all': Warren Buffett says this is the 'best investment' you can make when fighting inflation — and it doesn't have to cost you a dime](https://finance.yahoo.com/news/not-taxed-warren-buffett-shares-113000568.html)
+- Aug 22 - [Satellite Images Show 'Historic Flooding' in California Desert](https://news.yahoo.com/satellite-images-show-historic-flooding-144121705.html)
+- Aug 22 - [Attorney John Eastman surrenders to authorities on charges in Georgia 2020 election subversion case](https://news.yahoo.com/two-more-people-indicted-trump-140908638.html)
+- Aug 22 - [“Set your watches”: Experts say there's "no chance" Trump won't violate strict bond conditions](https://news.yahoo.com/set-watches-experts-theres-no-130224048.html)
+- Aug 22 - [New Toyota dealership stirs controversy with worrisome location selection: ‘[It’s] heartbreaking’](https://news.yahoo.com/toyota-dealership-stirs-controversy-worrisome-130000505.html)
+- Aug 22 - [Cop critically wounded by hammer-wielding 'animal' with 30 priors who 'should never have been out': union](https://news.yahoo.com/cop-critically-wounded-hammer-wielding-120037963.html)
 <!-- feed end -->
 
 ### Onstream
