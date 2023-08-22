@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - ['A get rich path': Billionaire Mark Cuban says if you really want to be rich, do these two things now — but here's where his advice falls short](https://finance.yahoo.com/news/rich-path-billionaire-mark-cuban-120000498.html)
 - Aug 22 - [Adam Kinzinger Names GOP Rival He Thinks Trump Is 'Scared To Death Of'](https://news.yahoo.com/adam-kinzinger-names-gop-rival-115113816.html)
 - Aug 22 - ['It's not taxed at all': Warren Buffett shares the 'best investment' you can make when battling inflation — and it doesn't have to cost you a dime](https://finance.yahoo.com/news/not-taxed-warren-buffett-shares-113000568.html)
 - Aug 22 - [Vivek Ramaswamy's 'Mansplaining' To CNN's Kaitlan Collins Riles Up Critics](https://www.yahoo.com/entertainment/vivek-ramaswamys-mansplaining-cnns-kaitlan-111414926.html)
-- Aug 22 - [A man stranded for 3 days on a remote Bahamas island was rescued by the Coast Guard after he fired flares](https://news.yahoo.com/man-stranded-3-days-remote-103307776.html)
-- Aug 22 - [‘I wouldn’t touch [them] with anybody’s money’: Grant Cardone says these two major US cities are some of 'the worst markets to be in right now' for real estate investors — here's why](https://finance.yahoo.com/news/wouldn-t-touch-them-anybody-120000157.html)
+- Aug 22 - [North Korea's Kim lambasts premier over flooding, possible bid to shift blame for bad economy](https://news.yahoo.com/north-koreas-kim-lambasts-premier-111221146.html)
 <!-- feed end -->
 
 ### Onstream
