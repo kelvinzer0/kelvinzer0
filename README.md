@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Tucker Carlson asks Trump: Are you worried ‘they’re going to try and kill you?’](https://news.yahoo.com/tucker-carlson-asks-trump-worried-222849436.html)
+- Aug 23 - [Here's Rudy Giuliani's mugshot, which he said authorities were 'going to degrade themselves' by making him take](https://news.yahoo.com/heres-rudy-giulianis-mugshot-said-205453541.html)
+- Aug 23 - [Nvidia adds jet fuel to AI optimism with record results, $25 billion buyback](https://news.yahoo.com/nvidia-forecasts-third-quarter-revenue-202307829.html)
 - Aug 23 - [Woman pleads guilty to fatally shoving Broadway singing coach, age 87, avoiding a long prison stay](https://news.yahoo.com/woman-28-pleads-guilty-fatally-194850672.html)
 - Aug 23 - [Black FedEx Deliveryman, Allegedly Attacked by Two White Men While Working, Terminated from Courier Company After Refusing to Get Off Worker’s Compensation Leave](https://news.yahoo.com/black-fedex-deliveryman-allegedly-attacked-193002852.html)
-- Aug 23 - [Prigozhin’s jet crash ‘isn’t an accident’ and has hallmarks of FSB, say British security sources](https://news.yahoo.com/prigozhin-jet-crash-isn-t-192907576.html)
-- Aug 23 - [Elon Musk Associates Say His Strange Behavior May Be Related to Ketamine Habit](https://news.yahoo.com/elon-musk-associates-strange-behavior-191154481.html)
-- Aug 23 - [United Airlines in $30 million settlement with quadriplegic man's family](https://news.yahoo.com/united-airlines-30-million-settlement-190559281.html)
 <!-- feed end -->
 
 ### Onstream
