@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Billionaires Mark Cuban And Chamath Palihapitiya Battle Over 'Go Woke, Go Broke' Mantra — 'Can You Name One Woke Company That Has Gone Broke?'](https://finance.yahoo.com/news/billionaires-mark-cuban-chamath-palihapitiya-172445909.html)
+- Aug 23 - [Officials say jet crash in Russia kills 10. Wagner chief was on passenger list](https://news.yahoo.com/business-jet-crash-russia-kills-172033083.html)
+- Aug 23 - [Putin’s voice in BRICS address raises eyebrows](https://news.yahoo.com/putin-voice-brics-address-raises-163742360.html)
+- Aug 23 - [CNN reporter notices an important detail about the plane Giuliani traveled in](https://news.yahoo.com/cnn-reporter-notices-important-detail-162258780.html)
 - Aug 23 - [Taliban stopped 100 women flying to Dubai for university scholarships, UAE billionaire says](https://news.yahoo.com/taliban-stopped-100-women-flying-160144277.html)
-- Aug 23 - [New video captures the moment Ukrainian forces destroyed a Russian S-400, a rare loss of a prized and formidable air-defense system](https://news.yahoo.com/video-captures-moment-ukrainian-forces-155053545.html)
-- Aug 23 - [US CDC says new COVID lineage could cause infections in vaccinated individuals](https://news.yahoo.com/us-cdc-says-ba-2-153818874.html)
-- Aug 23 - ["Could be devastating": Indicted ex-GOP chair "explicitly" throws Trump under the bus in new filing](https://news.yahoo.com/could-devastating-indicted-ex-gop-152232176.html)
-- Aug 23 - [A decades-old corpse was found in a melting Austrian glacier. Police identified the man using a preserved driver's license found in his backpack.](https://news.yahoo.com/decades-old-corpse-found-melting-151909739.html)
 <!-- feed end -->
 
 ### Onstream
