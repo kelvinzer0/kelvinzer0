@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [A Minnesota teen thought he caught a big fish but it was actually a wallet with $2,000. He found a business card inside and returned it to the owner — an Iowa farmer who lost it a year prior.](https://news.yahoo.com/minnesota-teen-thought-caught-big-001851777.html)
 - Aug 22 - [Netherlands to supply Ukraine with a thousand chargers for remote demining](https://news.yahoo.com/netherlands-supply-ukraine-thousand-chargers-235146577.html)
-- Aug 22 - [Rudy Giuliani, acting as his own lawyer, asks NYC court to toss suit by ex-ShopRite worker jailed for patting him on the back](https://news.yahoo.com/rudy-giuliani-acting-own-lawyer-230800929.html)
-- Aug 22 - [Prosecutors say witness in Trump's classified documents case retracted false testimony](https://news.yahoo.com/prosecutors-witness-trumps-classified-documents-225801991.html)
+- Aug 22 - [Experts Mock Jeffrey Clark's Demands To Georgia Judge About His Arrest](https://news.yahoo.com/experts-mock-jeffrey-clarks-demands-224817656.html)
 - Aug 22 - [In session reacting to school shooting, Tennessee GOP lawmaker orders removal of public from hearing](https://news.yahoo.com/session-reacting-school-shooting-tennessee-221855186.html)
 - Aug 22 - [Prosecutors: Trump Mar-a-Lago security aide flipped after changing lawyers](https://news.yahoo.com/prosecutors-trump-mar-lago-security-220114774.html)
 <!-- feed end -->
