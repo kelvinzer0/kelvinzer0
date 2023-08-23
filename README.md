@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Eight bodies recovered after Yevgeny Prigozhin's jet crashes - live updates](https://news.yahoo.com/yevgeny-prigozhin-killed-plane-crash-171752706.html)
+- Aug 23 - ["Devastating facts": Experts say Jack Smith filing exposes Judge Cannon's "inexplicable" ruling](https://news.yahoo.com/devastating-facts-experts-jack-smith-175337913.html)
+- Aug 23 - [Donald Trump Jr. & Kimberly Guilfoyle Aren't Welcome at the Republican Party Debate But That's Not Stopping Their Attendance](https://www.yahoo.com/entertainment/donald-trump-jr-kimberly-guilfoyle-173940194.html)
+- Aug 23 - [Another massive retailer is sounding the alarm about this scary in-store crime](https://www.thestreet.com/retailers/another-massive-retailer-is-sounding-the-alarm-about-this-scary-in-store-crime?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Aug 23 - [Billionaires Mark Cuban And Chamath Palihapitiya Battle Over 'Go Woke, Go Broke' Mantra — 'Can You Name One Woke Company That Has Gone Broke?'](https://finance.yahoo.com/news/billionaires-mark-cuban-chamath-palihapitiya-172445909.html)
-- Aug 23 - [Officials say jet crash in Russia kills 10. Wagner chief was on passenger list](https://news.yahoo.com/business-jet-crash-russia-kills-172033083.html)
-- Aug 23 - [Putin’s voice in BRICS address raises eyebrows](https://news.yahoo.com/putin-voice-brics-address-raises-163742360.html)
-- Aug 23 - [CNN reporter notices an important detail about the plane Giuliani traveled in](https://news.yahoo.com/cnn-reporter-notices-important-detail-162258780.html)
-- Aug 23 - [Taliban stopped 100 women flying to Dubai for university scholarships, UAE billionaire says](https://news.yahoo.com/taliban-stopped-100-women-flying-160144277.html)
 <!-- feed end -->
 
 ### Onstream
