@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Chinese coast guard blocks Philippine vessels near disputed shoal but two supply boats breach cordon](https://news.yahoo.com/chinese-coast-guard-blocks-philippine-062645455.html)
 - Aug 23 - [In deadly Maui fires, many had no warning and no way out. Those who dodged barricades survived](https://news.yahoo.com/deadly-maui-fires-many-had-045304601.html)
 - Aug 23 - [First Mug Shots In Trump's Georgia Election Interference Case Released](https://news.yahoo.com/first-mug-shots-trumps-georgia-041330214.html)
 - Aug 23 - [Huawei is building secret network for chips, trade group warns - Bloomberg News](https://news.yahoo.com/huawei-building-secret-network-chips-022551533.html)
-- Aug 23 - [MrBeast's Olympics video is a geopolitical nightmare](https://news.yahoo.com/mrbeasts-olympics-video-geopolitical-nightmare-015744366.html)
-- Aug 23 - [These 25 People Just Shared The Quickest Ways They've Ever Seen A Coworker Get Fired, And My Jaw Is Actually Hanging Open](https://www.yahoo.com/lifestyle/people-revealing-quickest-way-theyve-011602755.html)
+- Aug 23 - [Mar-a-Lago property manager invokes speedy trial rights in Trump classified documents case](https://news.yahoo.com/mar-lago-property-manager-invokes-020600196.html)
 <!-- feed end -->
 
 ### Onstream
