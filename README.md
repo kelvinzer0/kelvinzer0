@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Roger Stone's hubris exposes Trump's plan: New video shows lawyers faked distance from Capitol riots](https://news.yahoo.com/roger-stones-hubris-exposes-trumps-100002282.html)
+- Aug 23 - [Video shows huge explosion from Ukrainian drone dropping a grenade on a hidden Russian ammo cache](https://news.yahoo.com/video-shows-huge-explosion-ukrainian-095234034.html)
 - Aug 23 - [Philippine supply boats breach a Chinese coast guard blockade in the hotly contested South China Sea](https://news.yahoo.com/chinese-coast-guard-blocks-philippine-062645455.html)
 - Aug 23 - [In deadly Maui fires, many had no warning and no way out. Those who dodged barricades survived](https://news.yahoo.com/deadly-maui-fires-many-had-045304601.html)
-- Aug 23 - [Biden family huddles in secrecy in exclusive Lake Tahoe home amid special counsel investigation into Hunter](https://news.yahoo.com/biden-family-huddles-secrecy-exclusive-041626179.html)
-- Aug 23 - [First Mug Shots In Trump's Georgia Election Interference Case Released](https://news.yahoo.com/first-mug-shots-trumps-georgia-041330214.html)
-- Aug 23 - [Mar-a-Lago property manager invokes speedy trial rights in Trump classified documents case](https://news.yahoo.com/mar-lago-property-manager-invokes-020600196.html)
+- Aug 23 - [MrBeast's Olympics video is a geopolitical nightmare](https://news.yahoo.com/mrbeasts-olympics-video-geopolitical-nightmare-015744366.html)
 <!-- feed end -->
 
 ### Onstream
