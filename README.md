@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Netherlands to supply Ukraine with a thousand chargers for remote demining](https://news.yahoo.com/netherlands-supply-ukraine-thousand-chargers-235146577.html)
+- Aug 22 - [Rudy Giuliani, acting as his own lawyer, asks NYC court to toss suit by ex-ShopRite worker jailed for patting him on the back](https://news.yahoo.com/rudy-giuliani-acting-own-lawyer-230800929.html)
+- Aug 22 - [Prosecutors say witness in Trump's classified documents case retracted false testimony](https://news.yahoo.com/prosecutors-witness-trumps-classified-documents-225801991.html)
+- Aug 22 - [In session reacting to school shooting, Tennessee GOP lawmaker orders removal of public from hearing](https://news.yahoo.com/session-reacting-school-shooting-tennessee-221855186.html)
 - Aug 22 - [Prosecutors: Trump Mar-a-Lago security aide flipped after changing lawyers](https://news.yahoo.com/prosecutors-trump-mar-lago-security-220114774.html)
-- Aug 22 - [Texas Takes Attacks on Austin to New Level With “Death Star” Law](https://news.yahoo.com/texas-takes-attacks-austin-level-212633348.html)
-- Aug 22 - [Temple ruins on uninhabited Greek island reveal 2,400-year-old statues. Take a look](https://news.yahoo.com/temple-ruins-uninhabited-greek-island-211848541.html)
-- Aug 22 - [Research finds reducing consumption of just one food item would be like taking 8 million cars off the road: ‘It would make a really big difference’](https://news.yahoo.com/research-finds-reducing-consumption-just-210000019.html)
-- Aug 22 - [Ukraine blows up five jets ‘deep within Russian territory’](https://news.yahoo.com/five-russian-jets-blown-drones-201253205.html)
 <!-- feed end -->
 
 ### Onstream
