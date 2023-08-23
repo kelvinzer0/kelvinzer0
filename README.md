@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Wisconsin Republicans ask newly elected liberal justice to not hear redistricting case](https://news.yahoo.com/wisconsin-republicans-ask-newly-elected-145239303.html)
+- Aug 23 - [Mark Meadows runs to federal judge after Fani Willis brutally rejects his attempt to delay arrest](https://news.yahoo.com/mark-meadows-runs-federal-judge-145213185.html)
+- Aug 23 - [Ukraine to Russia: Your ‘Lost’ Mi-8 Pilot Actually Defected](https://news.yahoo.com/ukraine-russia-lost-mi-8-145019800.html)
 - Aug 23 - ['We Will Be Attending': Kimberly Guilfoyle Trashes Fox News Over Debate Access](https://news.yahoo.com/attending-kimberly-guilfoyle-trashes-fox-135417526.html)
 - Aug 23 - [Bud Light offers unique apology to beer drinkers](https://www.thestreet.com/restaurants/bud-light-offers-unique-apology-to-beer-drinkers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 23 - [“The Karen of criminal defendants”: Experts trash indicted Trump co-defendant’s “entitled” demand](https://news.yahoo.com/karen-criminal-defendants-experts-trash-131356425.html)
-- Aug 23 - [Texas man arrested after Ohio mom of 2 kidnapped, found shot dead in Tennessee](https://news.yahoo.com/texas-man-arrested-ohio-mom-120609745.html)
-- Aug 23 - ['It's not arrogance, it's math': An Alabama man asked Dave Ramsey if he should be worried about the US dollar collapsing — and the guru's response was cutting. Here's why](https://finance.yahoo.com/news/youre-spending-too-much-time-130000552.html)
 <!-- feed end -->
 
 ### Onstream
