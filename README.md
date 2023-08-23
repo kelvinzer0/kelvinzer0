@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 23 - ['It's not arrogance, it's math': An Alabama man asked Dave Ramsey if he should be worried about the US dollar collapsing — and the guru's response was cutting. Here's why](https://finance.yahoo.com/news/youre-spending-too-much-time-130000552.html)
 - Aug 23 - [Trump Is Hosting $100,000-Per-Plate Dinner For Cash-Strapped Rudy Giuliani. Snark Is Served.](https://news.yahoo.com/trump-hosting-100-000-per-114403459.html)
 - Aug 23 - [Jeanine Pirro Shocks Critics With Perfect Summary Of Trump... With Just 1 Problem](https://news.yahoo.com/jeanine-pirro-shocks-critics-perfect-110038937.html)
-- Aug 23 - [‘There is no good news here, zero': Kevin O'Leary issues a serious warning on downgraded US credit rating — here's what's got him so worried (and who's taking it in stride)](https://finance.yahoo.com/news/no-good-news-zero-kevin-103000584.html)
 - Aug 23 - [Ukraine's Defence Intelligence confirms explosions in Crimea and destruction of S-400 missile system along with crew](https://news.yahoo.com/ukraines-defence-intelligence-confirms-explosions-102148656.html)
+- Aug 23 - [Roger Stone's hubris exposes Trump's plan: New video shows lawyers faked distance from Capitol riots](https://news.yahoo.com/roger-stones-hubris-exposes-trumps-100002282.html)
 <!-- feed end -->
 
 ### Onstream
