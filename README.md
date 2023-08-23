@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Q&A: Rolls-Royce CEO on the luxury business, the global economy, and building a $25M car](https://finance.yahoo.com/news/qa-rolls-royce-ceo-on-the-luxury-business-the-global-economy-and-building-a-25m-car-202612218.html)
-- Aug 23 - [Nvidia forecast tops Wall Street expectations, $25 billion share buyback planned](https://news.yahoo.com/nvidia-forecasts-third-quarter-revenue-202307829.html)
-- Aug 23 - [Elusive sea creature — that ‘walks’ on its ‘hands’ — seen for first time in 27 years](https://news.yahoo.com/elusive-sea-creature-walks-hands-195911758.html)
-- Aug 23 - [Woman, 28, pleads guilty to fatally shoving Broadway singing coach, 87, avoiding long prison stay](https://news.yahoo.com/woman-28-pleads-guilty-fatally-194850672.html)
+- Aug 23 - [Woman pleads guilty to fatally shoving Broadway singing coach, age 87, avoiding a long prison stay](https://news.yahoo.com/woman-28-pleads-guilty-fatally-194850672.html)
 - Aug 23 - [Black FedEx Deliveryman, Allegedly Attacked by Two White Men While Working, Terminated from Courier Company After Refusing to Get Off Worker’s Compensation Leave](https://news.yahoo.com/black-fedex-deliveryman-allegedly-attacked-193002852.html)
+- Aug 23 - [Prigozhin’s jet crash ‘isn’t an accident’ and has hallmarks of FSB, say British security sources](https://news.yahoo.com/prigozhin-jet-crash-isn-t-192907576.html)
+- Aug 23 - [Elon Musk Associates Say His Strange Behavior May Be Related to Ketamine Habit](https://news.yahoo.com/elon-musk-associates-strange-behavior-191154481.html)
+- Aug 23 - [United Airlines in $30 million settlement with quadriplegic man's family](https://news.yahoo.com/united-airlines-30-million-settlement-190559281.html)
 <!-- feed end -->
 
 ### Onstream
