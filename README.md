@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Chinese coast guard blocks Philippine vessels near disputed shoal but two supply boats breach cordon](https://news.yahoo.com/chinese-coast-guard-blocks-philippine-062645455.html)
+- Aug 23 - [Philippine supply boats breach a Chinese coast guard blockade in the hotly contested South China Sea](https://news.yahoo.com/chinese-coast-guard-blocks-philippine-062645455.html)
 - Aug 23 - [In deadly Maui fires, many had no warning and no way out. Those who dodged barricades survived](https://news.yahoo.com/deadly-maui-fires-many-had-045304601.html)
 - Aug 23 - [Biden family huddles in secrecy in exclusive Lake Tahoe home amid special counsel investigation into Hunter](https://news.yahoo.com/biden-family-huddles-secrecy-exclusive-041626179.html)
 - Aug 23 - [First Mug Shots In Trump's Georgia Election Interference Case Released](https://news.yahoo.com/first-mug-shots-trumps-georgia-041330214.html)
