@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [First Mug Shots In Trump's Georgia Election Interference Case Released](https://news.yahoo.com/first-mug-shots-trumps-georgia-041330214.html)
+- Aug 23 - [Huawei is building secret network for chips, trade group warns - Bloomberg News](https://news.yahoo.com/huawei-building-secret-network-chips-022551533.html)
 - Aug 23 - [MrBeast's Olympics video is a geopolitical nightmare](https://news.yahoo.com/mrbeasts-olympics-video-geopolitical-nightmare-015744366.html)
-- Aug 23 - [A 7-year-old boy was attacked by a bear in the backyard of his New York home, police say](https://news.yahoo.com/7-old-boy-attacked-bear-011711316.html)
-- Aug 23 - [People Are Revealing The Quickest Way They've Ever Seen A Coworker Get Fired, And It's Absolutelyyyy Bonkers](https://www.yahoo.com/lifestyle/people-revealing-quickest-way-theyve-011602755.html)
+- Aug 23 - [These 25 People Just Shared The Quickest Ways They've Ever Seen A Coworker Get Fired, And My Jaw Is Actually Hanging Open](https://www.yahoo.com/lifestyle/people-revealing-quickest-way-theyve-011602755.html)
 - Aug 23 - [‘Baby, wake up’: Florida woman spots missing toddler resting on neighbor’s porch swing](https://news.yahoo.com/baby-wake-florida-woman-spots-004414030.html)
-- Aug 23 - [A Minnesota teen thought he caught a big fish but it was actually a wallet with $2,000. He found a business card inside and returned it to the owner — an Iowa farmer who lost it a year prior.](https://news.yahoo.com/minnesota-teen-thought-caught-big-001851777.html)
 <!-- feed end -->
 
 ### Onstream
