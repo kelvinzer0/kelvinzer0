@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [A 7-year-old boy was attacked by a bear in the backyard of his New York home, police say](https://news.yahoo.com/7-old-boy-attacked-bear-011711316.html)
+- Aug 23 - [People Are Revealing The Quickest Way They've Ever Seen A Coworker Get Fired, And It's Absolutelyyyy Bonkers](https://www.yahoo.com/lifestyle/people-revealing-quickest-way-theyve-011602755.html)
+- Aug 23 - [‘Baby, wake up’: Florida woman spots missing toddler resting on neighbor’s porch swing](https://news.yahoo.com/baby-wake-florida-woman-spots-004414030.html)
 - Aug 23 - [A Minnesota teen thought he caught a big fish but it was actually a wallet with $2,000. He found a business card inside and returned it to the owner — an Iowa farmer who lost it a year prior.](https://news.yahoo.com/minnesota-teen-thought-caught-big-001851777.html)
 - Aug 22 - [Netherlands to supply Ukraine with a thousand chargers for remote demining](https://news.yahoo.com/netherlands-supply-ukraine-thousand-chargers-235146577.html)
-- Aug 22 - [Experts Mock Jeffrey Clark's Demands To Georgia Judge About His Arrest](https://news.yahoo.com/experts-mock-jeffrey-clarks-demands-224817656.html)
-- Aug 22 - [In session reacting to school shooting, Tennessee GOP lawmaker orders removal of public from hearing](https://news.yahoo.com/session-reacting-school-shooting-tennessee-221855186.html)
-- Aug 22 - [Prosecutors: Trump Mar-a-Lago security aide flipped after changing lawyers](https://news.yahoo.com/prosecutors-trump-mar-lago-security-220114774.html)
 <!-- feed end -->
 
 ### Onstream
