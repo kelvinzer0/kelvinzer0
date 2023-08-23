@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Eight bodies recovered after Yevgeny Prigozhin's jet crashes - live updates](https://news.yahoo.com/yevgeny-prigozhin-killed-plane-crash-171752706.html)
-- Aug 23 - ["Devastating facts": Experts say Jack Smith filing exposes Judge Cannon's "inexplicable" ruling](https://news.yahoo.com/devastating-facts-experts-jack-smith-175337913.html)
-- Aug 23 - [Donald Trump Jr. & Kimberly Guilfoyle Aren't Welcome at the Republican Party Debate But That's Not Stopping Their Attendance](https://www.yahoo.com/entertainment/donald-trump-jr-kimberly-guilfoyle-173940194.html)
-- Aug 23 - [Another massive retailer is sounding the alarm about this scary in-store crime](https://www.thestreet.com/retailers/another-massive-retailer-is-sounding-the-alarm-about-this-scary-in-store-crime?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 23 - [Billionaires Mark Cuban And Chamath Palihapitiya Battle Over 'Go Woke, Go Broke' Mantra — 'Can You Name One Woke Company That Has Gone Broke?'](https://finance.yahoo.com/news/billionaires-mark-cuban-chamath-palihapitiya-172445909.html)
+- Aug 23 - [Woman, 28, pleads guilty to fatally shoving Broadway singing coach, 87, avoiding long prison stay](https://news.yahoo.com/woman-28-pleads-guilty-fatally-194850672.html)
+- Aug 23 - [Black FedEx Deliveryman, Allegedly Attacked by Two White Men While Working, Terminated from Courier Company After Refusing to Get Off Worker’s Compensation Leave](https://news.yahoo.com/black-fedex-deliveryman-allegedly-attacked-193002852.html)
+- Aug 23 - [Prigozhin’s jet crash ‘isn’t an accident’ and has hallmarks of FSB, say British security sources](https://news.yahoo.com/prigozhin-jet-crash-isn-t-192907576.html)
+- Aug 23 - [Elon Musk Associates Say His Strange Behavior May Be Related to Ketamine Habit](https://news.yahoo.com/elon-musk-associates-strange-behavior-191154481.html)
+- Aug 23 - ["Truly shameful": Critics blast NY Times for featuring "openly racist and bigoted" Ann Coulter](https://news.yahoo.com/truly-shameful-critics-blast-ny-183412884.html)
 <!-- feed end -->
 
 ### Onstream
