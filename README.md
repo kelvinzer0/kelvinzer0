@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Republican debate winners and losers: Each candidate ranked](https://news.yahoo.com/republican-debate-winners-losers-candidate-082251445.html)
+- Aug 24 - [UK Intelligence reveals why Putin went to headquarters in Rostov](https://news.yahoo.com/uk-intelligence-reveals-why-putin-064435982.html)
 - Aug 24 - [These Iowa voters thought Republican debate had a clear winner. Hear who](https://news.yahoo.com/iowa-voters-thought-republican-debate-042712481.html)
+- Aug 24 - [The Big Question Ron DeSantis Couldn’t Answer at the Debate Kind of Says It All](https://news.yahoo.com/big-ron-desantis-couldn-t-050749846.html)
 - Aug 24 - [Multiple people are dead after a retired police officer opened fire at a biker bar in Orange County](https://news.yahoo.com/multiple-people-dead-retired-police-045105141.html)
 - Aug 24 - [Winners and losers of the first GOP debate](https://news.yahoo.com/winners-losers-first-gop-debate-043217133.html)
-- Aug 24 - [Trump's debate counter-programming draws millions of views on X](https://news.yahoo.com/trumps-debate-counter-programming-draws-025624931.html)
 <!-- feed end -->
 
 ### Onstream
