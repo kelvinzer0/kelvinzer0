@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Who won the Republican debate? Who lost? And what was with that Fox News bell? | Opinion](https://news.yahoo.com/won-republican-debate-lost-fox-103100501.html)
+- Aug 24 - [A Russian helicopter crew freaked out, tried to run, and was killed after realizing their captain had defected to Ukraine, official says](https://news.yahoo.com/russian-helicopter-crew-freaked-tried-122108628.html)
+- Aug 24 - [Some Ford F-150 trucks are making 'loud, crashing noises,' but there's no crash](https://www.autoblog.com/2023/08/24/ford-f150-lound-noises-crashing-sounds/)
+- Aug 24 - [United Airlines settles for $30 million with the family of a quadriplegic man who was left brain damaged after he was 'violently' moved while deplaning, lawsuit says](https://news.yahoo.com/united-airlines-settles-30-million-120215508.html)
 - Aug 24 - ['C'mon Man': Chris Christie Can't Believe His Debate Question](https://news.yahoo.com/cmon-man-chris-christie-cant-100210320.html)
 - Aug 24 - [We Fact-Checked Republicans’ “Biden Corruption” Timeline. And It’s Bad.](https://news.yahoo.com/fact-checked-republicans-biden-corruption-100000432.html)
-- Aug 24 - [These Iowa voters thought Republican debate had a clear winner. Hear who](https://news.yahoo.com/iowa-voters-thought-republican-debate-042712481.html)
-- Aug 24 - [The Big Question Ron DeSantis Couldn’t Answer at the Debate Kind of Says It All](https://news.yahoo.com/big-ron-desantis-couldn-t-050749846.html)
 <!-- feed end -->
 
 ### Onstream
