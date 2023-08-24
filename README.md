@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Ukraine claims Crimea landing in 'special operation'](https://news.yahoo.com/ukraine-claims-crimea-landing-special-133438024.html)
+- Aug 24 - [Putin has signed his name on the wrong piece of paper this time](https://news.yahoo.com/putin-signed-name-wrong-piece-143755793.html)
+- Aug 24 - [Michael Oher conservatorship unlike any legal experts have seen before](https://sports.yahoo.com/michael-oher-conservatorship-unlike-any-legal-experts-have-seen-before-141712311.html)
+- Aug 24 - [Norway rebuilding reindeer fence along border with Russia to stop costly hooves' crossings](https://news.yahoo.com/norway-rebuilding-reindeer-fence-along-135506479.html)
+- Aug 24 - [Why this Japanese SUV is hailed as a 'Future Classic'](https://www.autoblog.com/article/toyota-land-cruiser-100-future-classic-collectible/)
 - Aug 24 - [A Russian helicopter crew freaked out, tried to run, and was killed after realizing their captain had defected to Ukraine, official says](https://news.yahoo.com/russian-helicopter-crew-freaked-tried-122108628.html)
-- Aug 24 - [Some Ford F-150 trucks are making 'sonic boom' and 'ear-piercing static' noise](https://www.autoblog.com/2023/08/24/ford-f150-lound-noises-crashing-sounds/)
-- Aug 24 - ['C'mon Man': Chris Christie Can't Believe His Debate Question](https://news.yahoo.com/cmon-man-chris-christie-cant-100210320.html)
-- Aug 24 - [We Fact-Checked Republicans’ “Biden Corruption” Timeline. And It’s Bad.](https://news.yahoo.com/fact-checked-republicans-biden-corruption-100000432.html)
 <!-- feed end -->
 
 ### Onstream
