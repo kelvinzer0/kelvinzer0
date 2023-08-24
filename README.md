@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [CIA stairwell attack among flood of sexual misconduct complaints at spy agency](https://news.yahoo.com/cia-stairwell-attack-among-flood-151554779.html)
-- Aug 24 - ["I literally am furious": MTG and Don Jr. rage after Fox News "blocked" them from debate spin room](https://news.yahoo.com/literally-am-furious-mtg-don-150008239.html)
-- Aug 24 - [Vivek Ramaswamy made Ron DeSantis look 'well-behaved': Journalist](https://finance.yahoo.com/video/vivek-ramaswamy-made-ron-desantis-150002976.html)
-- Aug 24 - [India's lunar rover goes down a ramp to the moon's surface and takes a walk](https://news.yahoo.com/indias-lunar-rover-comes-down-150001365.html)
-- Aug 24 - [Putin has signed his name on the wrong piece of paper this time](https://news.yahoo.com/putin-signed-name-wrong-piece-143755793.html)
+- Aug 24 - [Venomous sea creature with 96 arms can turn itself inside out. See the new species](https://news.yahoo.com/venomous-sea-creature-96-arms-173628808.html)
+- Aug 24 - ["This is a mistake": Legal expert says Trump just abruptly dumped "the best lawyer he had"](https://news.yahoo.com/mistake-legal-expert-says-trump-171956357.html)
+- Aug 24 - [Accused kidnapper tries to rape 19-year-old, then dumps body in field, CA officials say](https://news.yahoo.com/accused-kidnapper-tries-rape-19-164815655.html)
+- Aug 24 - [Enormous sea creature spotted in Thailand — for only second time ever. See the video](https://news.yahoo.com/enormous-sea-creature-spotted-thailand-164751562.html)
+- Aug 24 - [Mysterious naked ‘wolf man’ spotted in German mountains](https://news.yahoo.com/mysterious-naked-wolf-man-spotted-161632207.html)
 <!-- feed end -->
 
 ### Onstream
