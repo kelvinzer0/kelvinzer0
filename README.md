@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Slain Marine's family plans to refile lawsuit accusing Alec Baldwin of defamation](https://news.yahoo.com/slain-marines-family-plans-refile-194036589.html)
+- Aug 24 - [Watch: Tourists Swarm Grizzly Bear with Two Cubs in Yellowstone National Park](https://www.yahoo.com/lifestyle/watch-tourists-swarm-grizzly-bear-200000622.html)
+- Aug 24 - [Putin’s Troops Ambushed Overnight in Unprecedented Mission](https://news.yahoo.com/putin-troops-ambushed-overnight-unprecedented-193115571.html)
 - Aug 24 - [Legal experts: Jan. 6 architect made a “risky gamble” — but Fani Willis just “called his bluff”](https://news.yahoo.com/legal-experts-jan-6-architect-191111439.html)
-- Aug 24 - [Why Are Trump’s Accused Co-Conspirators Smiling for Their Mug Shots?](https://news.yahoo.com/why-trump-accused-co-conspirators-190731966.html)
-- Aug 24 - [There might be 3 normalish Republican presidential candidates](https://finance.yahoo.com/news/there-might-be-3-normalish-republican-presidential-candidates-180854063.html)
-- Aug 24 - [Biden’s plot to send America back into lockdown must be stopped](https://news.yahoo.com/biden-plot-send-america-back-180202075.html)
+- Aug 24 - [Fleeing Bronx drug suspect dies when cop knocks him off scooter with cooler; sergeant suspended by NYPD](https://news.yahoo.com/fleeing-bronx-drug-suspect-dies-190800105.html)
+- Aug 24 - [New York City police sergeant throws cooler, striking fleeing motorcyclist who crashed and died](https://news.yahoo.com/york-police-sergeant-suspended-throwing-182655256.html)
 <!-- feed end -->
 
 ### Onstream
