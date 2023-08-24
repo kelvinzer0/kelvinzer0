@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [Who won the Republican debate? Who lost? And what was with that Fox News bell? | Opinion](https://news.yahoo.com/won-republican-debate-lost-fox-103100501.html)
 - Aug 24 - ['C'mon Man': Chris Christie Can't Believe His Debate Question](https://news.yahoo.com/cmon-man-chris-christie-cant-100210320.html)
+- Aug 24 - [We Fact-Checked Republicans’ “Biden Corruption” Timeline. And It’s Bad.](https://news.yahoo.com/fact-checked-republicans-biden-corruption-100000432.html)
 - Aug 24 - [These Iowa voters thought Republican debate had a clear winner. Hear who](https://news.yahoo.com/iowa-voters-thought-republican-debate-042712481.html)
 - Aug 24 - [The Big Question Ron DeSantis Couldn’t Answer at the Debate Kind of Says It All](https://news.yahoo.com/big-ron-desantis-couldn-t-050749846.html)
-- Aug 24 - [Multiple people are dead after a retired police officer opened fire at a biker bar in Orange County](https://news.yahoo.com/multiple-people-dead-retired-police-045105141.html)
-- Aug 24 - [Winners and losers of the first GOP debate](https://news.yahoo.com/winners-losers-first-gop-debate-043217133.html)
 <!-- feed end -->
 
 ### Onstream
