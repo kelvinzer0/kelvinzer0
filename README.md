@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Venomous sea creature with 96 arms can turn itself inside out. See the new species](https://news.yahoo.com/venomous-sea-creature-96-arms-173628808.html)
+- Aug 24 - [There might be 3 normalish Republican presidential candidates](https://finance.yahoo.com/news/there-might-be-3-normalish-republican-presidential-candidates-180854063.html)
+- Aug 24 - [Biden’s plot to send America back into lockdown must be stopped](https://news.yahoo.com/biden-plot-send-america-back-180202075.html)
+- Aug 24 - [15 Chilling Photos With Terrible Vibes That Made Me Deeply, Deeply Uneasy](https://www.yahoo.com/lifestyle/15-chilling-photos-terrible-vibes-174603053.html)
 - Aug 24 - ["This is a mistake": Legal expert says Trump just abruptly dumped "the best lawyer he had"](https://news.yahoo.com/mistake-legal-expert-says-trump-171956357.html)
 - Aug 24 - [Accused kidnapper tries to rape 19-year-old, then dumps body in field, CA officials say](https://news.yahoo.com/accused-kidnapper-tries-rape-19-164815655.html)
-- Aug 24 - [Enormous sea creature spotted in Thailand — for only second time ever. See the video](https://news.yahoo.com/enormous-sea-creature-spotted-thailand-164751562.html)
-- Aug 24 - [Mysterious naked ‘wolf man’ spotted in German mountains](https://news.yahoo.com/mysterious-naked-wolf-man-spotted-161632207.html)
 <!-- feed end -->
 
 ### Onstream
