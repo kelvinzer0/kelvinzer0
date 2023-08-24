@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [UK Intelligence reveals why Putin went to headquarters in Rostov](https://news.yahoo.com/uk-intelligence-reveals-why-putin-064435982.html)
+- Aug 24 - ['C'mon Man': Chris Christie Can't Believe His Debate Question](https://news.yahoo.com/cmon-man-chris-christie-cant-100210320.html)
 - Aug 24 - [These Iowa voters thought Republican debate had a clear winner. Hear who](https://news.yahoo.com/iowa-voters-thought-republican-debate-042712481.html)
 - Aug 24 - [The Big Question Ron DeSantis Couldn’t Answer at the Debate Kind of Says It All](https://news.yahoo.com/big-ron-desantis-couldn-t-050749846.html)
 - Aug 24 - [Multiple people are dead after a retired police officer opened fire at a biker bar in Orange County](https://news.yahoo.com/multiple-people-dead-retired-police-045105141.html)
