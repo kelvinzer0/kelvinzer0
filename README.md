@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Aug 24 - [These Iowa voters thought Republican debate had a clear winner. Hear who](https://news.yahoo.com/iowa-voters-thought-republican-debate-042712481.html)
 - Aug 24 - [Winners and losers of the first GOP debate](https://news.yahoo.com/winners-losers-first-gop-debate-043217133.html)
+- Aug 24 - [Joe Biden Drops 3 Sharp Words On GOP In A Swift Flip Of Nikki Haley's Debate Jab](https://news.yahoo.com/joe-biden-drops-3-sharp-042803781.html)
 - Aug 24 - [4 People Dead After Gunman Goes on Rampage at Biker Bar in California](https://news.yahoo.com/multiple-dead-ex-cop-goes-040505448.html)
 - Aug 24 - [Vivek Ramaswamy Busted For Swiping An Old Line From Barack Obama](https://news.yahoo.com/vivek-ramaswamy-busted-swiping-old-030600529.html)
-- Aug 24 - [Trump's debate counter-programming draws millions of views on X](https://news.yahoo.com/trumps-debate-counter-programming-draws-025624931.html)
 <!-- feed end -->
 
 ### Onstream
