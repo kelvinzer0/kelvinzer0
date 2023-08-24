@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [These Iowa voters thought Republican debate had a clear winner. Hear who](https://news.yahoo.com/iowa-voters-thought-republican-debate-042712481.html)
 - Aug 24 - [Winners and losers of the first GOP debate](https://news.yahoo.com/winners-losers-first-gop-debate-043217133.html)
 - Aug 24 - [4 People Dead After Ex-Cop Goes on Rampage at Biker Bar in California](https://news.yahoo.com/multiple-dead-ex-cop-goes-040505448.html)
+- Aug 24 - [Vivek Ramaswamy Busted For Swiping An Old Line From Barack Obama](https://news.yahoo.com/vivek-ramaswamy-busted-swiping-old-030600529.html)
 - Aug 24 - [Trump's debate counter-programming draws millions of views on X](https://news.yahoo.com/trumps-debate-counter-programming-draws-025624931.html)
-- Aug 24 - [3 takeaways from Tucker Carlson's softball interview with Donald Trump](https://news.yahoo.com/3-takeaways-from-tucker-carlsons-softball-interview-with-donald-trump-023821815.html)
-- Aug 24 - [Four takeaways from the first 2024 Republican presidential debate](https://news.yahoo.com/takeaways-first-2024-republican-presidential-022526302.html)
 <!-- feed end -->
 
 ### Onstream
