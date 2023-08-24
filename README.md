@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 24 - [3 takeaways from Tucker Carlson's softball interview with Donald Trump](https://news.yahoo.com/3-takeaways-from-tucker-carlsons-softball-interview-with-donald-trump-023821815.html)
+- Aug 24 - [Four takeaways from the first 2024 Republican presidential debate](https://news.yahoo.com/takeaways-first-2024-republican-presidential-022526302.html)
 - Aug 24 - ["The elephant not in the room": Fox News moderators booed with mention of Trump at first GOP debate](https://news.yahoo.com/elephant-not-room-fox-news-021601249.html)
 - Aug 24 - [GOP debate: Chris Christie trashes Vivek Ramaswamy as an 'amateur' who 'sounds like ChatGPT'](https://news.yahoo.com/gop-debate-chris-christie-trashes-vivek-ramaswamy-as-an-amateur-who-sounds-like-chatgpt-021307366.html)
-- Aug 24 - [Trump lashes out at Fox News, Bill Barr, Chris Christie in Tucker Carlson interview: highlights](https://news.yahoo.com/trump-lashes-fox-news-bill-012943531.html)
-- Aug 24 - [Man convicted of killing Kristin Smart is attacked in prison and hospitalized in serious condition](https://news.yahoo.com/man-convicted-killing-kristin-smart-004215916.html)
+- Aug 24 - [A video claiming to show Prigozhin's jet plummeting from the sky and the plane's fiery wreckage could be starting points for an investigation into the crash — if a fair investigation is possible, aviation expert says](https://news.yahoo.com/video-claiming-show-prigozhins-jet-020524718.html)
 <!-- feed end -->
 
 ### Onstream
