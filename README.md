@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [CIA stairwell attack among flood of sexual misconduct complaints at spy agency](https://news.yahoo.com/cia-stairwell-attack-among-flood-151554779.html)
+- Aug 24 - ["I literally am furious": MTG and Don Jr. rage after Fox News "blocked" them from debate spin room](https://news.yahoo.com/literally-am-furious-mtg-don-150008239.html)
 - Aug 24 - [Putin has signed his name on the wrong piece of paper this time](https://news.yahoo.com/putin-signed-name-wrong-piece-143755793.html)
 - Aug 24 - [Michael Oher conservatorship unlike any legal experts have seen before](https://sports.yahoo.com/michael-oher-conservatorship-unlike-any-legal-experts-have-seen-before-141712311.html)
-- Aug 24 - [Norway rebuilding reindeer fence along border with Russia to stop costly hooves' crossings](https://news.yahoo.com/norway-rebuilding-reindeer-fence-along-135506479.html)
-- Aug 24 - [Why this Japanese SUV is hailed as a 'Future Classic'](https://www.autoblog.com/article/toyota-land-cruiser-100-future-classic-collectible/)
-- Aug 24 - [A Russian helicopter crew freaked out, tried to run, and was killed after realizing their captain had defected to Ukraine, official says](https://news.yahoo.com/russian-helicopter-crew-freaked-tried-122108628.html)
+- Aug 24 - [‘How Did Y’all Forget My Baby?’: Nebraska Toddler Dies After Being Left In a Day Care Van for Hours on a Hot Day; Driver Is Charged](https://news.yahoo.com/did-y-forget-baby-nebraska-140217749.html)
 <!-- feed end -->
 
 ### Onstream
