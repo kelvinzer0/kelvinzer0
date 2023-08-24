@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [A woman abandoned her dog at a Pennsylvania airport before flying to a resort, officials say](https://news.yahoo.com/woman-abandoned-her-dog-pennsylvania-203625923.html)
+- Aug 24 - [Couple murdered electrician in revenge for alleged rape](https://news.yahoo.com/couple-murdered-electrician-revenge-alleged-203213449.html)
 - Aug 24 - [Watch: Tourists Swarm Grizzly Bear with Two Cubs in Yellowstone National Park](https://www.yahoo.com/lifestyle/watch-tourists-swarm-grizzly-bear-200000622.html)
+- Aug 24 - [Vivek Ramaswamy team responds to Ann Coulter saying 'Hindu business' about his clash with Nikki Haley](https://news.yahoo.com/vivek-ramaswamy-team-responds-ann-194151148.html)
 - Aug 24 - [Putin’s Troops Ambushed Overnight in Unprecedented Mission](https://news.yahoo.com/putin-troops-ambushed-overnight-unprecedented-193115571.html)
-- Aug 24 - [Legal experts: Jan. 6 architect made a “risky gamble” — but Fani Willis just “called his bluff”](https://news.yahoo.com/legal-experts-jan-6-architect-191111439.html)
-- Aug 24 - [Fleeing Bronx drug suspect dies when cop knocks him off scooter with cooler; sergeant suspended by NYPD](https://news.yahoo.com/fleeing-bronx-drug-suspect-dies-190800105.html)
-- Aug 24 - [New York City police sergeant throws cooler, striking fleeing motorcyclist who crashed and died](https://news.yahoo.com/york-police-sergeant-suspended-throwing-182655256.html)
 <!-- feed end -->
 
 ### Onstream
