@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [Man convicted of killing Kristin Smart is attacked in prison and hospitalized in serious condition](https://news.yahoo.com/man-convicted-killing-kristin-smart-004215916.html)
+- Aug 23 - [Tensions high in San Francisco as city seeks reversal of ban on clearing homeless encampments](https://news.yahoo.com/tensions-high-san-francisco-city-233100770.html)
 - Aug 23 - [Trial for Idaho college killings suspect Bryan Kohberger delayed indefinitely](https://www.yahoo.com/gma/trial-idaho-college-killings-suspect-224019271.html)
 - Aug 23 - [Kentucky Officers Help Mother Deer in Distress Safely Deliver Her Twin Fawns](https://www.yahoo.com/entertainment/kentucky-officers-help-mother-deer-214141129.html)
 - Aug 23 - [Trump Georgia case: Here are mug shots for everyone who has surrendered so far](https://news.yahoo.com/trump-georgia-case-here-are-mug-shots-for-everyone-who-has-surrendered-so-far-210928759.html)
-- Aug 23 - [Scientists make breakthrough in research that could change the way our homes are constructed: ‘A significant result’](https://news.yahoo.com/scientists-breakthrough-research-could-change-210000107.html)
-- Aug 23 - [Former teacher kicked and struck pony called Bruce Almighty ‘as punishment for running into road’, court told](https://news.yahoo.com/former-teacher-kicked-struck-pony-195622711.html)
 <!-- feed end -->
 
 ### Onstream
