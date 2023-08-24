@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [Slain Marine's family plans to refile lawsuit accusing Alec Baldwin of defamation](https://news.yahoo.com/slain-marines-family-plans-refile-194036589.html)
+- Aug 24 - [Legal experts: Jan. 6 architect made a “risky gamble” — but Fani Willis just “called his bluff”](https://news.yahoo.com/legal-experts-jan-6-architect-191111439.html)
+- Aug 24 - [Why Are Trump’s Accused Co-Conspirators Smiling for Their Mug Shots?](https://news.yahoo.com/why-trump-accused-co-conspirators-190731966.html)
 - Aug 24 - [There might be 3 normalish Republican presidential candidates](https://finance.yahoo.com/news/there-might-be-3-normalish-republican-presidential-candidates-180854063.html)
 - Aug 24 - [Biden’s plot to send America back into lockdown must be stopped](https://news.yahoo.com/biden-plot-send-america-back-180202075.html)
-- Aug 24 - [15 Chilling Photos With Terrible Vibes That Made Me Deeply, Deeply Uneasy](https://www.yahoo.com/lifestyle/15-chilling-photos-terrible-vibes-174603053.html)
-- Aug 24 - ["This is a mistake": Legal expert says Trump just abruptly dumped "the best lawyer he had"](https://news.yahoo.com/mistake-legal-expert-says-trump-171956357.html)
-- Aug 24 - [Accused kidnapper tries to rape 19-year-old, then dumps body in field, CA officials say](https://news.yahoo.com/accused-kidnapper-tries-rape-19-164815655.html)
 <!-- feed end -->
 
 ### Onstream
