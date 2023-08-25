@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Occupier that taunts Zelenskyy in video sheds tears when captured by Ukrainian army – funny video](https://news.yahoo.com/occupier-taunts-zelenskyy-video-sheds-193600278.html)
 - Aug 25 - [‘Amazon better pay attention’: UPS CEO says delivery drivers will earn an average of $170K in newly ratified 'historic' contract — but one driver says that is ‘a bit of an exaggeration'](https://finance.yahoo.com/news/amazon-better-pay-attention-ups-183000604.html)
+- Aug 25 - [Toronto couple wins lawsuit against Italian government for 'offensive use of their image'](https://news.yahoo.com/toronto-couple-wins-lawsuit-against-italian-government-for-offensive-use-of-their-image-182742915.html)
+- Aug 25 - [Biden alcohol czar says US may follow Canada, limit beers to two a week: 'what a joke'](https://news.yahoo.com/biden-alcohol-czar-says-us-175106498.html)
 - Aug 25 - [Boy, 5, Rings Doorbell Asking for Help Finding Mom After Being Dropped Off at Wrong Spot](https://www.yahoo.com/entertainment/boy-5-rings-doorbell-asking-172109365.html)
-- Aug 25 - [She was wading in knee-deep water at this Florida beach. Then came a barbed sea creature](https://news.yahoo.com/she-wading-knee-deep-water-153727502.html)
-- Aug 25 - [Slain Marine’s family plans to refile lawsuit against Alec Baldwin](https://news.yahoo.com/slain-marine-family-plans-refile-143830979.html)
-- Aug 25 - [Wagner Group cemetery in Russia levelled to the ground](https://news.yahoo.com/wagner-group-cemetery-russia-levelled-141642284.html)
 <!-- feed end -->
 
 ### Onstream
