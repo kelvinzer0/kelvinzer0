@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Here is Trump's mug shot](https://news.yahoo.com/here-is-trumps-mug-shot-004911044.html)
+- Aug 24 - [A missing North Carolina woman has been found dead, and a man found in her SUV has been arrested, police say](https://news.yahoo.com/missing-north-carolina-woman-found-235812628.html)
 - Aug 24 - [A video claiming to show Prigozhin's jet plummeting from the sky and the plane's fiery wreckage could be starting points for an investigation into the crash — if a fair investigation is possible, aviation expert says](https://news.yahoo.com/video-claiming-show-prigozhins-jet-020524718.html)
 - Aug 24 - [New study reveals the home appliance that spews more benzene than secondhand smoke: ‘You’re at an elevated risk [of cancer]’](https://news.yahoo.com/study-reveals-home-appliance-spews-110000657.html)
 - Aug 24 - [Actual SEALs Fume at DeSantis’ Navy Service Claims](https://news.yahoo.com/actual-seals-fume-desantis-navy-215216967.html)
-- Aug 24 - [What happens to Wagner mercenary group after Prigozhin plane crash?](https://news.yahoo.com/happens-wagner-mercenary-group-prigozhin-213231610.html)
-- Aug 24 - ['Cherished' college student stabbed 107 times while defending mother from stepfather's attack, authorities say](https://news.yahoo.com/cherished-college-student-stabbed-107-212401299.html)
 <!-- feed end -->
 
 ### Onstream
