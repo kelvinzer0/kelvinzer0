@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Florida elementary school principal and teacher are placed on leave after Black students are singled out at an assembly](https://news.yahoo.com/florida-elementary-school-principal-teacher-053122391.html)
 - Aug 25 - [13 Truck Drivers Parked Side-By-Side And Formed A 'Safety Net' To Save A Man Who Was Planning On Jumping](https://www.yahoo.com/lifestyle/13-truck-drivers-parked-side-051500930.html)
 - Aug 25 - [Tommy Tuberville says he recognizes ‘look’ on Trump’s face in mugshot](https://news.yahoo.com/tommy-tuberville-says-recognizes-look-031652028.html)
 - Aug 25 - ['Selfless' father of 6 dies after moving son into college dorm](https://news.yahoo.com/selfless-father-6-dies-moving-023827532.html)
 - Aug 25 - [Sarah Palin Warns of Civil War After Trump Arrest: ‘We Do Need to Rise Up’ (Video)](https://www.yahoo.com/entertainment/sarah-palin-warns-civil-war-020841662.html)
-- Aug 25 - [Georgia Republicans pass law that could remove Fani Willis to help Trump](https://news.yahoo.com/georgia-republicans-pass-law-could-010759444.html)
 <!-- feed end -->
 
 ### Onstream
