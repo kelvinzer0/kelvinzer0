@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Tommy Tuberville says he recognizes ‘look’ on Trump’s face in mugshot](https://news.yahoo.com/tommy-tuberville-says-recognizes-look-031652028.html)
 - Aug 25 - ['Selfless' father of 6 dies after moving son into college dorm](https://news.yahoo.com/selfless-father-6-dies-moving-023827532.html)
 - Aug 25 - [Sarah Palin Warns of Civil War After Trump Arrest: ‘We Do Need to Rise Up’ (Video)](https://www.yahoo.com/entertainment/sarah-palin-warns-civil-war-020841662.html)
-- Aug 25 - [One image, one face, one American moment: The Donald Trump mug shot](https://news.yahoo.com/one-image-one-face-one-012459871.html)
 - Aug 25 - [Georgia Republicans pass law that could remove Fani Willis to help Trump](https://news.yahoo.com/georgia-republicans-pass-law-could-010759444.html)
-- Aug 24 - [A video claiming to show Prigozhin's jet plummeting from the sky and the plane's fiery wreckage could be starting points for an investigation into the crash — if a fair investigation is possible, aviation expert says](https://news.yahoo.com/video-claiming-show-prigozhins-jet-020524718.html)
+- Aug 25 - [Here is Trump's mug shot](https://news.yahoo.com/here-is-trumps-mug-shot-004911044.html)
 <!-- feed end -->
 
 ### Onstream
