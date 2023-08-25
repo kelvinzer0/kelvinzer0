@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 25 - [A year’s worth of rain dropped at Death Valley in one day — and photos show the damage](https://news.yahoo.com/worth-rain-dropped-death-valley-213430153.html)
 - Aug 25 - [The CDC just published new flu vaccine guidelines: What you need to know](https://www.yahoo.com/lifestyle/cdc-flu-vaccine-guidelines-egg-allergy-202014909.html)
 - Aug 25 - [Occupier that taunts Zelenskyy in video sheds tears when captured by Ukrainian army – funny video](https://news.yahoo.com/occupier-taunts-zelenskyy-video-sheds-193600278.html)
-- Aug 25 - [Poisoner of Russian spy providing intelligence to UK may be involved in Prigozhin's murder](https://news.yahoo.com/poisoner-russian-spy-providing-intelligence-193400260.html)
-- Aug 25 - [‘Amazon better pay attention’: UPS CEO says delivery drivers will earn an average of $170K in newly ratified 'historic' contract — but one driver says that is ‘a bit of an exaggeration'](https://finance.yahoo.com/news/amazon-better-pay-attention-ups-183000604.html)
+- Aug 25 - [Toronto couple wins lawsuit against Italian government for 'offensive use of their image'](https://news.yahoo.com/toronto-couple-wins-lawsuit-against-italian-government-for-offensive-use-of-their-image-182742915.html)
+- Aug 25 - [Biden alcohol czar says US may follow Canada, limit beers to two a week: 'what a joke'](https://news.yahoo.com/biden-alcohol-czar-says-us-175106498.html)
 <!-- feed end -->
 
 ### Onstream
