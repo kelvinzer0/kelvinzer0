@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Powell says Fed 'prepared to raise rates further' to bring inflation down](https://finance.yahoo.com/news/powell-says-fed-prepared-to-raise-rates-further-to-bring-inflation-down-140514315.html)
 - Aug 25 - [Indian Rover Begins Exploring Near Moon's South Pole](https://news.yahoo.com/indian-rover-begins-exploring-near-123930619.html)
+- Aug 25 - [Elderly man bites snake that had wrapped his leg while sleeping: 'felt like I was going to die'](https://news.yahoo.com/elderly-man-bites-snake-had-111427531.html)
 - Aug 25 - [Beachgoer infuriated after witnessing an event that they say ‘ruined’ their vacation: ‘This is so gross and frustrating’](https://news.yahoo.com/beachgoer-infuriated-witnessing-event-ruined-101500399.html)
 - Aug 25 - [Disturbing sight washes up on West Coast beaches: ‘The flood gates opened and it just gets worse every day’](https://news.yahoo.com/disturbing-sight-washes-west-coast-113000973.html)
-- Aug 25 - [13 Truck Drivers Parked Side-By-Side And Formed A 'Safety Net' To Save A Man Who Was Planning On Jumping](https://www.yahoo.com/lifestyle/13-truck-drivers-parked-side-051500930.html)
-- Aug 25 - ['Selfless' father of 6 dies after moving son into college dorm](https://news.yahoo.com/selfless-father-6-dies-moving-023827532.html)
 <!-- feed end -->
 
 ### Onstream
