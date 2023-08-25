@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 25 - [HIMARS changed the game in Ukraine, but a former US artillery officer says what they need now is a firepower boost with M26 cluster rockets](https://news.yahoo.com/himars-changed-game-ukraine-former-100001545.html)
+- Aug 25 - [Vivek Ramaswamy’s Worst Debate Moment Is a Big Problem for the GOP Now](https://news.yahoo.com/vivek-ramaswamy-worst-debate-moment-095000534.html)
 - Aug 25 - [Florida elementary school principal and teacher are placed on leave after Black students are singled out at an assembly](https://news.yahoo.com/florida-elementary-school-principal-teacher-053122391.html)
 - Aug 25 - [13 Truck Drivers Parked Side-By-Side And Formed A 'Safety Net' To Save A Man Who Was Planning On Jumping](https://www.yahoo.com/lifestyle/13-truck-drivers-parked-side-051500930.html)
 - Aug 25 - [Tommy Tuberville says he recognizes ‘look’ on Trump’s face in mugshot](https://news.yahoo.com/tommy-tuberville-says-recognizes-look-031652028.html)
-- Aug 25 - ['Selfless' father of 6 dies after moving son into college dorm](https://news.yahoo.com/selfless-father-6-dies-moving-023827532.html)
 <!-- feed end -->
 
 ### Onstream
