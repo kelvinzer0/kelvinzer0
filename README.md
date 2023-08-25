@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [HIMARS changed the game in Ukraine, but a former US artillery officer says what they need now is a firepower boost with M26 cluster rockets](https://news.yahoo.com/himars-changed-game-ukraine-former-100001545.html)
+- Aug 25 - [Ukraine-Russia war live: Explosion at Russian navy base after 'largest ever' drone attack on Crimea](https://news.yahoo.com/ukraine-russia-war-live-moscow-043032742.html)
+- Aug 25 - [Beachgoer infuriated after witnessing an event that they say ‘ruined’ their vacation: ‘This is so gross and frustrating’](https://news.yahoo.com/beachgoer-infuriated-witnessing-event-ruined-101500399.html)
+- Aug 25 - [Disturbing sight washes up on West Coast beaches: ‘The flood gates opened and it just gets worse every day’](https://news.yahoo.com/disturbing-sight-washes-west-coast-113000973.html)
 - Aug 25 - [Vivek Ramaswamy’s Worst Debate Moment Is a Big Problem for the GOP Now](https://news.yahoo.com/vivek-ramaswamy-worst-debate-moment-095000534.html)
-- Aug 25 - [Florida elementary school principal and teacher are placed on leave after Black students are singled out at an assembly](https://news.yahoo.com/florida-elementary-school-principal-teacher-053122391.html)
 - Aug 25 - [13 Truck Drivers Parked Side-By-Side And Formed A 'Safety Net' To Save A Man Who Was Planning On Jumping](https://www.yahoo.com/lifestyle/13-truck-drivers-parked-side-051500930.html)
-- Aug 25 - [Tommy Tuberville says he recognizes ‘look’ on Trump’s face in mugshot](https://news.yahoo.com/tommy-tuberville-says-recognizes-look-031652028.html)
 <!-- feed end -->
 
 ### Onstream
