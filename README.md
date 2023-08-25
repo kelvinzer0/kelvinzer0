@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [A video claiming to show Prigozhin's jet plummeting from the sky and the plane's fiery wreckage could be starting points for an investigation into the crash — if a fair investigation is possible, aviation expert says](https://news.yahoo.com/video-claiming-show-prigozhins-jet-020524718.html)
+- Aug 24 - [New study reveals the home appliance that spews more benzene than secondhand smoke: ‘You’re at an elevated risk [of cancer]’](https://news.yahoo.com/study-reveals-home-appliance-spews-110000657.html)
 - Aug 24 - [Actual SEALs Fume at DeSantis’ Navy Service Claims](https://news.yahoo.com/actual-seals-fume-desantis-navy-215216967.html)
-- Aug 24 - [A woman abandoned her dog at a Pennsylvania airport before flying to a resort, officials say](https://news.yahoo.com/woman-abandoned-her-dog-pennsylvania-203625923.html)
-- Aug 24 - [Couple murdered electrician in revenge for alleged rape](https://news.yahoo.com/couple-murdered-electrician-revenge-alleged-203213449.html)
-- Aug 24 - [Commander-in-Chief of Ukrainian Armed Forces tells US officials Ukraine is on the cusp of breakthrough](https://news.yahoo.com/commander-chief-ukrainian-armed-forces-200252698.html)
-- Aug 24 - [Watch: Tourists Swarm Grizzly Bear with Two Cubs in Yellowstone National Park](https://www.yahoo.com/lifestyle/watch-tourists-swarm-grizzly-bear-200000622.html)
+- Aug 24 - [What happens to Wagner mercenary group after Prigozhin plane crash?](https://news.yahoo.com/happens-wagner-mercenary-group-prigozhin-213231610.html)
+- Aug 24 - ['Cherished' college student stabbed 107 times while defending mother from stepfather's attack, authorities say](https://news.yahoo.com/cherished-college-student-stabbed-107-212401299.html)
 <!-- feed end -->
 
 ### Onstream
