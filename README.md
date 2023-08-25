@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Russia to resume offensive in east Ukraine after regrouping, Kyiv says](https://news.yahoo.com/russia-resume-offensive-east-ukraine-183749422.html)
-- Aug 25 - [‘Amazon better pay attention’: UPS CEO says delivery drivers will earn an average of $170K in newly ratified 'historic' contract — but one driver says that's ‘a bit of an exaggeration'](https://finance.yahoo.com/news/amazon-better-pay-attention-ups-183000604.html)
+- Aug 25 - [‘Amazon better pay attention’: UPS CEO says delivery drivers will earn an average of $170K in newly ratified 'historic' contract — but one driver says that is ‘a bit of an exaggeration'](https://finance.yahoo.com/news/amazon-better-pay-attention-ups-183000604.html)
 - Aug 25 - [Boy, 5, Rings Doorbell Asking for Help Finding Mom After Being Dropped Off at Wrong Spot](https://www.yahoo.com/entertainment/boy-5-rings-doorbell-asking-172109365.html)
 - Aug 25 - [She was wading in knee-deep water at this Florida beach. Then came a barbed sea creature](https://news.yahoo.com/she-wading-knee-deep-water-153727502.html)
-- Aug 25 - [India's lunar rover keeps walking on the moon, days after spacecraft's historic touchdown](https://news.yahoo.com/indias-lunar-rover-keeps-walking-153035879.html)
+- Aug 25 - [Slain Marine’s family plans to refile lawsuit against Alec Baldwin](https://news.yahoo.com/slain-marine-family-plans-refile-143830979.html)
+- Aug 25 - [Wagner Group cemetery in Russia levelled to the ground](https://news.yahoo.com/wagner-group-cemetery-russia-levelled-141642284.html)
 <!-- feed end -->
 
 ### Onstream
