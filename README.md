@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Here is Trump's mug shot](https://news.yahoo.com/here-is-trumps-mug-shot-004911044.html)
-- Aug 24 - [A missing North Carolina woman has been found dead, and a man found in her SUV has been arrested, police say](https://news.yahoo.com/missing-north-carolina-woman-found-235812628.html)
+- Aug 25 - [Sarah Palin Warns of Civil War After Trump Arrest: ‘We Do Need to Rise Up’ (Video)](https://www.yahoo.com/entertainment/sarah-palin-warns-civil-war-020841662.html)
+- Aug 25 - [Pro-Kyiv Russians urge Wagner Group to revenge Prigozhin's death](https://news.yahoo.com/pro-kyiv-russians-urge-wagner-003832324.html)
 - Aug 24 - [A video claiming to show Prigozhin's jet plummeting from the sky and the plane's fiery wreckage could be starting points for an investigation into the crash — if a fair investigation is possible, aviation expert says](https://news.yahoo.com/video-claiming-show-prigozhins-jet-020524718.html)
 - Aug 24 - [New study reveals the home appliance that spews more benzene than secondhand smoke: ‘You’re at an elevated risk [of cancer]’](https://news.yahoo.com/study-reveals-home-appliance-spews-110000657.html)
 - Aug 24 - [Actual SEALs Fume at DeSantis’ Navy Service Claims](https://news.yahoo.com/actual-seals-fume-desantis-navy-215216967.html)
