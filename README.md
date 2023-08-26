@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 26 - [Russian neo-Nazi group refuses to fight in Ukraine, accusing Kremlin of abandoning its leader](https://news.yahoo.com/russian-neo-nazi-group-refuses-132100259.html)
 - Aug 26 - [People Who Had "Useless" Majors Are Revealing What They Do Now, And Some Of These Seriously Surprised Me](https://www.yahoo.com/lifestyle/people-had-useless-majors-revealing-111602325.html)
 - Aug 26 - [‘If you want to be rich ... you have to STRIP’: Your Rich BFF’s Vivian Tu became a millionaire at just 27 — here are her 5 steps for building wealth](https://finance.yahoo.com/news/want-rich-strip-rich-bff-110000473.html)
 - Aug 26 - [Boss Admits He Fires Any Employee On His Team Who Doesn't Have A Six-Pack — 'It's Called A Standard'](https://www.yahoo.com/lifestyle/boss-admits-fires-employee-team-091500241.html)
-- Aug 26 - [A mystery company backed by Silicon Valley billionaires has purchased tens of thousands of acres of land for more than $800 million to build a new city near San Francisco](https://news.yahoo.com/mystery-company-backed-silicon-valley-071419795.html)
-- Aug 26 - [Beloved wild horses that roam Theodore Roosevelt National Park may be removed. Many oppose the plan](https://news.yahoo.com/beloved-wild-horses-roam-theodore-040429074.html)
+- Aug 26 - [Abused, stripped naked and locked up: the reality of life in Ireland’s Magdalene laundries](https://www.yahoo.com/lifestyle/abused-stripped-naked-locked-reality-090000524.html)
 <!-- feed end -->
 
 ### Onstream
