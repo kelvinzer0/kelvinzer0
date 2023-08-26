@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 26 - [Russian neo-Nazi group refuses to fight in Ukraine, accusing Kremlin of abandoning its leader](https://news.yahoo.com/russian-neo-nazi-group-refuses-132100259.html)
+- Aug 26 - [Most Americans don't understand this key metric when planning for retirement](https://finance.yahoo.com/news/most-americans-dont-understand-this-key-metric-when-planning-for-retirement-130210068.html)
 - Aug 26 - [Tropical creature spotted in Pennsylvania for first time in history: ‘Definitely attracting a lot of attention’](https://news.yahoo.com/tropical-creature-spotted-pennsylvania-first-130000366.html)
 - Aug 26 - [People Who Had "Useless" Majors Are Revealing What They Do Now, And Some Of These Seriously Surprised Me](https://www.yahoo.com/lifestyle/people-had-useless-majors-revealing-111602325.html)
-- Aug 26 - [Abused, stripped naked and locked up: the reality of life in Ireland’s Magdalene laundries](https://www.yahoo.com/lifestyle/abused-stripped-naked-locked-reality-090000524.html)
-- Aug 26 - [A mystery company backed by Silicon Valley billionaires has purchased tens of thousands of acres of land for more than $800 million to build a new city near San Francisco](https://news.yahoo.com/mystery-company-backed-silicon-valley-071419795.html)
+- Aug 26 - [‘If you want to be rich ... you have to STRIP’: Your Rich BFF’s Vivian Tu became a millionaire at just 27 — here are her 5 steps for building wealth](https://finance.yahoo.com/news/want-rich-strip-rich-bff-110000473.html)
 <!-- feed end -->
 
 ### Onstream
