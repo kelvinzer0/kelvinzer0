@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 26 - [‘Multiple fatalities’ in shooting in Jacksonville, Florida, mayor says](https://news.yahoo.com/multiple-fatalities-shooting-jacksonville-florida-212849055.html)
 - Aug 26 - [United Airlines Agent Allegedly ‘Giggled’ After ‘Aggressively’ Pushing Quadriplegic Man Off Plane. Now the Company Must Pay His Family $30M](https://news.yahoo.com/united-airlines-agent-allegedly-giggled-203000552.html)
 - Aug 26 - [Mystery land buyers around California Air Force base revealed](https://news.yahoo.com/mystery-land-buyers-around-california-192053920.html)
 - Aug 26 - [State of emergency declared for most of Florida’s Gulf Coast as tropical system approaches](https://news.yahoo.com/state-emergency-declared-most-florida-175800601.html)
 - Aug 26 - [Stormy Daniels mocks Trump’s reported weight, explains why she knows ‘Tiny’ doesn’t weigh 215 pounds](https://www.yahoo.com/entertainment/stormy-daniels-mocks-trump-reported-175500722.html)
-- Aug 26 - [McCarthy orders Capitol flag at half-staff to honor 13 service members killed in Afghanistan exit](https://news.yahoo.com/mccarthy-orders-capitol-flag-half-171254303.html)
 <!-- feed end -->
 
 ### Onstream
