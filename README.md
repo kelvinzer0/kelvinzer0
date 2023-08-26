@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 26 - [Bronny James diagnosed with congenital heart defect, family says he will play again 'in the very near future'](https://sports.yahoo.com/bronny-james-diagnosed-with-congenital-heart-defect-family-says-he-will-play-again-in-the-very-near-future-003112826.html)
+- Aug 25 - [Florida man caught on video allegedly injecting chemical agent under neighbor's door, making family with baby sick](https://news.yahoo.com/florida-man-caught-video-allegedly-230636622.html)
+- Aug 25 - [Alabama wants to be the 1st state to execute a prisoner by making him breathe only nitrogen](https://news.yahoo.com/alabama-seeks-nations-1st-execution-225234294.html)
 - Aug 25 - [Charges dropped against man accused of fleeing police in a high-speed chase that killed a bystander](https://news.yahoo.com/charges-dropped-against-man-accused-224554946.html)
 - Aug 25 - [A year’s worth of rain dropped at Death Valley in one day — and photos show the damage](https://news.yahoo.com/worth-rain-dropped-death-valley-213430153.html)
-- Aug 25 - [Florida man caught on video allegedly injecting chemical agent under neighbor's door, making family with baby sick](https://news.yahoo.com/florida-man-caught-video-allegedly-230636622.html)
-- Aug 25 - [The CDC just published new flu vaccine guidelines: What you need to know](https://www.yahoo.com/lifestyle/cdc-flu-vaccine-guidelines-egg-allergy-202014909.html)
-- Aug 25 - [Occupier that taunts Zelenskyy in video sheds tears when captured by Ukrainian army – funny video](https://news.yahoo.com/occupier-taunts-zelenskyy-video-sheds-193600278.html)
 <!-- feed end -->
 
 ### Onstream
