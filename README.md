@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 26 - [Stormy Daniels leads mocking and disbelief that Trump weighs just '215 pounds,' as his Fulton County Jail booking record says](https://news.yahoo.com/stormy-daniels-leads-mocking-disbelief-102237253.html)
 - Aug 26 - [Boss Admits He Fires Any Employee On His Team Who Doesn't Have A Six-Pack — 'It's Called A Standard'](https://www.yahoo.com/lifestyle/boss-admits-fires-employee-team-091500241.html)
 - Aug 26 - [A mystery company backed by Silicon Valley billionaires has purchased tens of thousands of acres of land for more than $800 million to build a new city near San Francisco](https://news.yahoo.com/mystery-company-backed-silicon-valley-071419795.html)
 - Aug 26 - [Beloved wild horses that roam Theodore Roosevelt National Park may be removed. Many oppose the plan](https://news.yahoo.com/beloved-wild-horses-roam-theodore-040429074.html)
 - Aug 25 - [Florida man caught on video allegedly injecting chemical agent under neighbor's door, making family with baby sick](https://news.yahoo.com/florida-man-caught-video-allegedly-230636622.html)
-- Aug 25 - [Alabama wants to be the 1st state to execute a prisoner by making him breathe only nitrogen](https://news.yahoo.com/alabama-seeks-nations-1st-execution-225234294.html)
 <!-- feed end -->
 
 ### Onstream
