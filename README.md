@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Russian neo-Nazi group refuses to fight in Ukraine, accusing Kremlin of abandoning its leader](https://news.yahoo.com/russian-neo-nazi-group-refuses-132100259.html)
+- Aug 26 - [Trump, Biden policies shifted trade from China at a cost, study shows](https://finance.yahoo.com/news/trump-biden-policies-shifted-trade-140435626.html)
+- Aug 26 - [Porch pirate steals package directly from FedEx driver, video shows: ‘Never seen anything like that’](https://news.yahoo.com/porch-pirate-steals-package-directly-134757498.html)
 - Aug 26 - [Most Americans don't understand this key metric when planning for retirement](https://finance.yahoo.com/news/most-americans-dont-understand-this-key-metric-when-planning-for-retirement-130210068.html)
 - Aug 26 - [Tropical creature spotted in Pennsylvania for first time in history: ‘Definitely attracting a lot of attention’](https://news.yahoo.com/tropical-creature-spotted-pennsylvania-first-130000366.html)
 - Aug 26 - [People Who Had "Useless" Majors Are Revealing What They Do Now, And Some Of These Seriously Surprised Me](https://www.yahoo.com/lifestyle/people-had-useless-majors-revealing-111602325.html)
-- Aug 26 - [‘If you want to be rich ... you have to STRIP’: Your Rich BFF’s Vivian Tu became a millionaire at just 27 — here are her 5 steps for building wealth](https://finance.yahoo.com/news/want-rich-strip-rich-bff-110000473.html)
 <!-- feed end -->
 
 ### Onstream
