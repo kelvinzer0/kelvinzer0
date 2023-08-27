@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [Women working in Antarctica say they were left to fend for themselves against sexual harassers](https://news.yahoo.com/women-working-antarctica-were-left-040420496.html)
 - Aug 27 - [Robert O'Neill, Former Navy SEAL Who Claims He Killed Osama Bin Laden, Arrested in Texas](https://www.yahoo.com/entertainment/robert-oneill-former-navy-seal-023845657.html)
 - Aug 27 - [OnlyFans Owner Leonid Radvinsky Paid Himself Over $1 Million a Day in 2022](https://www.yahoo.com/entertainment/onlyfans-owner-leonid-radvinsky-paid-014510451.html)
 - Aug 27 - [A gang in Haiti opens fire on a crowd of parishioners trying to rid the community of criminals](https://news.yahoo.com/gang-haiti-opens-fire-crowd-013752744.html)
 - Aug 27 - [Biden plans to ask Congress for funding to develop new COVID vaccine, may require shot for all](https://news.yahoo.com/biden-plans-ask-congress-funding-003513892.html)
-- Aug 26 - [Another Diesel Tuner Nailed With $1M Fine for Emissions Tampering](https://news.yahoo.com/another-diesel-tuner-nailed-1m-220000695.html)
 <!-- feed end -->
 
 ### Onstream
