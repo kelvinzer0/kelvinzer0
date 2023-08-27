@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Massive alligator captured in Mississippi is a new state record. ‘Nightmare material’](https://news.yahoo.com/massive-alligator-captured-mississippi-state-182116907.html)
-- Aug 27 - [‘This Is My Land. I’m a Moor’: Pennsylvania Man Fatally Shot In Eviction Showdown After Hours-Long Gunbattle with Cops Reportedly Believed He Was a Sovereign Citizen](https://news.yahoo.com/land-m-moor-pennsylvania-man-180000769.html)
 - Aug 27 - [Jacksonville gunman in racist attack legally bought two weapons earlier this year, sheriff says](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
-- Aug 27 - [Vivek Ramaswamy Gets A Searing Fact Check After KKK Comments](https://news.yahoo.com/vivek-ramaswamy-gets-searing-fact-173347482.html)
-- Aug 27 - [White Florida shooter who killed 3 Black victims bought guns legally](https://news.yahoo.com/sheriff-identifies-shooter-jacksonville-florida-173319074.html)
+- Aug 27 - [After-game brawl between 49ers, Raiders fans erupts at California In-N-Out, reports say](https://news.yahoo.com/game-brawl-between-49ers-raiders-192043320.html)
+- Aug 27 - [Massive alligator captured in Mississippi is a new state record. ‘Nightmare material’](https://news.yahoo.com/massive-alligator-captured-mississippi-state-182116907.html)
+- Aug 27 - [Vivek Ramaswamy says he would've certified the 2020 election results and that Pence missed an ‘opportunity for heroism'](https://news.yahoo.com/vivek-ramaswamy-says-wouldve-certified-181032202.html)
+- Aug 27 - [‘This Is My Land. I’m a Moor’: Pennsylvania Man Fatally Shot In Eviction Showdown After Hours-Long Gunbattle with Cops Reportedly Believed He Was a Sovereign Citizen](https://news.yahoo.com/land-m-moor-pennsylvania-man-180000769.html)
 <!-- feed end -->
 
 ### Onstream
