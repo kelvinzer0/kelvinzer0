@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [Vivek Ramaswamy Gets A Searing Fact Check After KKK Comments](https://news.yahoo.com/vivek-ramaswamy-gets-searing-fact-173347482.html)
+- Aug 27 - [China's $10 trillion hidden debt mountain could be the 'ticking time bomb' that Joe Biden warned of](https://finance.yahoo.com/news/chinas-10-trillion-hidden-debt-170001361.html)
+- Aug 27 - [Christie Confronted for Standing by Trump After Rape Allegation and Other Scandals](https://news.yahoo.com/christie-confronted-standing-trump-rape-163647351.html)
 - Aug 27 - [Ukraine shows off its next-generation 20-foot-long underwater drone that will sink Russian warships from below the surface](https://news.yahoo.com/ukraine-shows-off-next-generation-161145884.html)
 - Aug 27 - [Jacksonville gunman was turned away from historically Black university before killing 3 in racist shooting at nearby store, authorities say](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
-- Aug 27 - [This all-new tiny but powerful truck proves that bigger isn’t always better: ‘A truck that actually makes sense’](https://news.yahoo.com/tiny-powerful-truck-proves-bigger-150000220.html)
-- Aug 27 - [The Fulton County charges against Donald Trump face a major test Monday. Here’s what to watch for](https://news.yahoo.com/fulton-county-charges-against-donald-123128972.html)
-- Aug 27 - [Ivanka Trump & Jared Kushner’s Latest Outing Shows Where Their Focus Truly Is Amid Donald’s Legal Woes](https://www.yahoo.com/entertainment/ivanka-trump-jared-kushner-latest-143000861.html)
 <!-- feed end -->
 
 ### Onstream
