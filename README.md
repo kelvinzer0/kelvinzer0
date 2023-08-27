@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Takeaways from AP's investigation into sexual harassment and assault at Antarctica's McMurdo Station](https://news.yahoo.com/takeaways-aps-investigation-sexual-harassment-040817215.html)
+- Aug 27 - [New survey reveals the top reason Tesla owners are selling their vehicles: ‘A perfect example of the damage to the brand’](https://news.yahoo.com/survey-reveals-top-reason-tesla-050000876.html)
+- Aug 27 - [North Korea to allow its citizens abroad to return home, a sign of further easing of pandemic curbs](https://news.yahoo.com/north-korea-allow-citizens-abroad-041725727.html)
 - Aug 27 - [Women working in Antarctica say they were left to fend for themselves against sexual harassers](https://news.yahoo.com/women-working-antarctica-were-left-040420496.html)
 - Aug 27 - [Media: Nearly 100 Leopard 1 tanks stored in the open as Switzerland rejects transfer to Ukraine](https://news.yahoo.com/media-nearly-100-leopard-1-025748123.html)
 - Aug 27 - [Robert O'Neill, Former Navy SEAL Who Claims He Killed Osama Bin Laden, Arrested in Texas](https://www.yahoo.com/entertainment/robert-oneill-former-navy-seal-023845657.html)
-- Aug 27 - [A gang in Haiti opens fire on a crowd of parishioners trying to rid the community of criminals](https://news.yahoo.com/gang-haiti-opens-fire-crowd-013752744.html)
 <!-- feed end -->
 
 ### Onstream
