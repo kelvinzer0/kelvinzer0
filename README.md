@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [Ivanka Trump & Jared Kushner’s Latest Outing Shows Where Their Focus Truly Is Amid Donald’s Legal Woes](https://www.yahoo.com/entertainment/ivanka-trump-jared-kushner-latest-143000861.html)
+- Aug 27 - [Ramaswamy doubles down on calling Pressley part of ‘modern KKK’](https://news.yahoo.com/ramaswamy-doubles-down-calling-pressley-135309272.html)
 - Aug 27 - [Jacksonville gunman was turned away from historically Black university before killing 3 in racist shooting at nearby store, authorities say](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
-- Aug 27 - [COVID-19 gave me POTS syndrome — here's how my life has dramatically changed](https://news.yahoo.com/pots-covid-personal-experience-130740549.html)
-- Aug 27 - [To 'crush the Russian army and strangle the troops in frontline fortifications,' Ukraine needs to advance 10 more miles, says war expert](https://news.yahoo.com/crush-russian-army-strangle-troops-125653486.html)
-- Aug 27 - [Ramaswamy says he would've certified 2020 election, but Pence missed 'historic opportunity'](https://news.yahoo.com/ramaswamy-says-wouldve-certified-2020-124920694.html)
-- Aug 27 - [The Fulton County charges against Donald Trump face a major test Monday. Here’s what to watch for](https://news.yahoo.com/fulton-county-charges-against-donald-123128972.html)
+- Aug 27 - [Experts are witnessing a strange new phenomenon in the demand for electric cars: ‘We call it the ‘Field of Dreams’ moment’](https://news.yahoo.com/experts-witnessing-strange-phenomenon-demand-131500996.html)
+- Aug 27 - [COVID-19 gave me POTS disorder. Here's how my life has dramatically changed.](https://news.yahoo.com/pots-covid-personal-experience-130740549.html)
 <!-- feed end -->
 
 ### Onstream
