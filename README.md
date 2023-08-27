@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Jacksonville gunman was turned away from historically Black university before racist shooting that killed 3 at nearby store, authorities say](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
-- Aug 27 - [Trump's drumbeat of lies about the 2020 election keeps getting louder. Here are the facts](https://news.yahoo.com/trumps-drumbeat-lies-2020-election-114229651.html)
-- Aug 27 - [China's 'aggressive behaviour' in South China Sea must be challenged - U.S. Navy official](https://news.yahoo.com/chinas-aggressive-behaviour-south-china-113546379.html)
-- Aug 27 - [100-year-old ginkgo trees could get the axe under disputed plan for Tokyo's Jingu Gaien park](https://news.yahoo.com/100-old-ginkgo-trees-could-065819222.html)
-- Aug 27 - [Justin Jones Slams 'Asinine Governor' DeSantis Following Deadly Jacksonville Shooting](https://news.yahoo.com/justin-jones-slams-asinine-governor-060125395.html)
+- Aug 27 - [Jacksonville gunman was turned away from historically Black university before killing 3 in racist shooting at nearby store, authorities say](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
+- Aug 27 - [COVID-19 gave me POTS syndrome — here's how my life has dramatically changed](https://news.yahoo.com/pots-covid-personal-experience-130740549.html)
+- Aug 27 - [To 'crush the Russian army and strangle the troops in frontline fortifications,' Ukraine needs to advance 10 more miles, says war expert](https://news.yahoo.com/crush-russian-army-strangle-troops-125653486.html)
+- Aug 27 - [Ramaswamy says he would've certified 2020 election, but Pence missed 'historic opportunity'](https://news.yahoo.com/ramaswamy-says-wouldve-certified-2020-124920694.html)
+- Aug 27 - [The Fulton County charges against Donald Trump face a major test Monday. Here’s what to watch for](https://news.yahoo.com/fulton-county-charges-against-donald-123128972.html)
 <!-- feed end -->
 
 ### Onstream
