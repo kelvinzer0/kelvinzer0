@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Ukraine-Russia war latest: Russia sends in elite troops to stop Ukrainian breakthrough](https://news.yahoo.com/ukraine-russia-war-latest-russia-081414112.html)
 - Aug 27 - [Jacksonville gunman was turned away from historically Black university before racist shooting that killed 3 at nearby store, authorities say](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
+- Aug 27 - [Trump's drumbeat of lies about the 2020 election keeps getting louder. Here are the facts](https://news.yahoo.com/trumps-drumbeat-lies-2020-election-114229651.html)
+- Aug 27 - [China's 'aggressive behaviour' in South China Sea must be challenged - U.S. Navy official](https://news.yahoo.com/chinas-aggressive-behaviour-south-china-113546379.html)
 - Aug 27 - [100-year-old ginkgo trees could get the axe under disputed plan for Tokyo's Jingu Gaien park](https://news.yahoo.com/100-old-ginkgo-trees-could-065819222.html)
 - Aug 27 - [Justin Jones Slams 'Asinine Governor' DeSantis Following Deadly Jacksonville Shooting](https://news.yahoo.com/justin-jones-slams-asinine-governor-060125395.html)
-- Aug 27 - [New survey reveals the top reason Tesla owners are selling their vehicles: ‘A perfect example of the damage to the brand’](https://news.yahoo.com/survey-reveals-top-reason-tesla-050000876.html)
 <!-- feed end -->
 
 ### Onstream
