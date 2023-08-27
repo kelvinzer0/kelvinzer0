@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Vivek Ramaswamy says he would've certified the 2020 election results and that Pence missed an ‘opportunity for heroism'](https://news.yahoo.com/vivek-ramaswamy-says-wouldve-certified-181032202.html)
+- Aug 27 - [Will Chicago Bears AND Chicago White Sox end up in Arlington Heights?](https://sports.yahoo.com/chicago-bears-chicago-white-sox-224611653.html)
 - Aug 27 - [Jacksonville gunman in racially motivated attack legally bought two weapons earlier this year, sheriff says](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
-- Aug 27 - [Why Bob Barker Called Betty White His ‘Sworn Enemy’ After a Dispute Over an Elephant](https://www.yahoo.com/entertainment/why-bob-barker-called-betty-200939482.html)
-- Aug 27 - [A San Francisco bakery is refusing to serve police officers because its policy does not allow guns inside the store](https://news.yahoo.com/san-francisco-bakery-refusing-serve-195543538.html)
-- Aug 27 - [After-game brawl between 49ers, Raiders fans erupts at California In-N-Out, reports say](https://news.yahoo.com/game-brawl-between-49ers-raiders-192043320.html)
+- Aug 27 - [Zelensky: Ukraine risks losing support from some ‘major powers’ if battlefield moves to Russian territory](https://news.yahoo.com/zelensky-ukraine-risks-losing-support-210127723.html)
+- Aug 27 - [DeSantis cancels SC campaign travel, returns to Florida facing tropical storm and shooting aftermath](https://news.yahoo.com/desantis-leaves-campaign-trail-returns-204800725.html)
+- Aug 27 - [South Dakota woman admits to making false rape report after an extramarital tryst in Florida](https://news.yahoo.com/south-dakota-woman-admits-making-201028588.html)
 <!-- feed end -->
 
 ### Onstream
