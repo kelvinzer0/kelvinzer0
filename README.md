@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [A gang in Haiti opens fire on a crowd of parishioners trying to rid the community of criminals](https://news.yahoo.com/gang-haiti-opens-fire-crowd-013752744.html)
+- Aug 26 - [Another Diesel Tuner Nailed With $1M Fine for Emissions Tampering](https://news.yahoo.com/another-diesel-tuner-nailed-1m-220000695.html)
 - Aug 26 - [United Airlines Agent Allegedly ‘Giggled’ After ‘Aggressively’ Pushing Quadriplegic Man Off Plane. Now the Company Must Pay His Family $30M](https://news.yahoo.com/united-airlines-agent-allegedly-giggled-203000552.html)
 - Aug 26 - [Mystery land buyers around California Air Force base revealed](https://news.yahoo.com/mystery-land-buyers-around-california-192053920.html)
 - Aug 26 - [State of emergency declared for most of Florida’s Gulf Coast as tropical system approaches](https://news.yahoo.com/state-emergency-declared-most-florida-175800601.html)
-- Aug 26 - [Stormy Daniels mocks Trump’s reported weight, explains why she knows ‘Tiny’ doesn’t weigh 215 pounds](https://www.yahoo.com/entertainment/stormy-daniels-mocks-trump-reported-175500722.html)
-- Aug 26 - [McCarthy orders Capitol flag at half-staff to honor 13 service members killed in Afghanistan exit](https://news.yahoo.com/mccarthy-orders-capitol-flag-half-171254303.html)
 <!-- feed end -->
 
 ### Onstream
