@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [Massive alligator captured in Mississippi is a new state record. ‘Nightmare material’](https://news.yahoo.com/massive-alligator-captured-mississippi-state-182116907.html)
+- Aug 27 - [‘This Is My Land. I’m a Moor’: Pennsylvania Man Fatally Shot In Eviction Showdown After Hours-Long Gunbattle with Cops Reportedly Believed He Was a Sovereign Citizen](https://news.yahoo.com/land-m-moor-pennsylvania-man-180000769.html)
+- Aug 27 - [Jacksonville gunman in racist attack legally bought two weapons earlier this year, sheriff says](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
 - Aug 27 - [Vivek Ramaswamy Gets A Searing Fact Check After KKK Comments](https://news.yahoo.com/vivek-ramaswamy-gets-searing-fact-173347482.html)
-- Aug 27 - [China's $10 trillion hidden debt mountain could be the 'ticking time bomb' that Joe Biden warned of](https://finance.yahoo.com/news/chinas-10-trillion-hidden-debt-170001361.html)
-- Aug 27 - [Christie Confronted for Standing by Trump After Rape Allegation and Other Scandals](https://news.yahoo.com/christie-confronted-standing-trump-rape-163647351.html)
-- Aug 27 - [Ukraine shows off its next-generation 20-foot-long underwater drone that will sink Russian warships from below the surface](https://news.yahoo.com/ukraine-shows-off-next-generation-161145884.html)
-- Aug 27 - [Jacksonville gunman was turned away from historically Black university before killing 3 in racist shooting at nearby store, authorities say](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
+- Aug 27 - [White Florida shooter who killed 3 Black victims bought guns legally](https://news.yahoo.com/sheriff-identifies-shooter-jacksonville-florida-173319074.html)
 <!-- feed end -->
 
 ### Onstream
