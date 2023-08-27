@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 27 - [Jacksonville gunman was turned away from historically Black university before racist shooting that killed 3 at nearby store, authorities say](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
-- Aug 27 - [Prigozhin's final months were overshadowed by questions about what the Kremlin had in store for him](https://news.yahoo.com/prigozhins-final-months-were-overshadowed-063902408.html)
+- Aug 27 - [100-year-old ginkgo trees could get the axe under disputed plan for Tokyo's Jingu Gaien park](https://news.yahoo.com/100-old-ginkgo-trees-could-065819222.html)
 - Aug 27 - [New survey reveals the top reason Tesla owners are selling their vehicles: ‘A perfect example of the damage to the brand’](https://news.yahoo.com/survey-reveals-top-reason-tesla-050000876.html)
 - Aug 27 - [Women working in Antarctica say they were left to fend for themselves against sexual harassers](https://news.yahoo.com/women-working-antarctica-were-left-040420496.html)
 - Aug 27 - [Media: Nearly 100 Leopard 1 tanks stored in the open as Switzerland rejects transfer to Ukraine](https://news.yahoo.com/media-nearly-100-leopard-1-025748123.html)
