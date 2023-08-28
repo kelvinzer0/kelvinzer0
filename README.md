@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Poland, Baltic states warn they could seal border with Belarus if military, migrant tensions grow](https://news.yahoo.com/poland-baltic-states-warn-could-125746569.html)
-- Aug 28 - [Louisiana's growing wildfires prompt evacuations](https://news.yahoo.com/louisianas-growing-wildfires-prompt-evacuations-123313425.html)
+- Aug 28 - [Luis Rubiales' mother goes on hunger strike in protest of 'bloodthirsty witch hunt'](https://sports.yahoo.com/luis-rubiales-mother-goes-on-hunger-strike-in-protest-of-bloodthirsty-witch-hunt-134017984.html)
+- Aug 28 - [Kidnapped Woman Rescued After Passing ‘Help. Call 911’ Note to Customer at Gas Station, Say Police](https://www.yahoo.com/entertainment/kidnapped-woman-rescued-passing-help-133711299.html)
+- Aug 28 - [Hole-in-one prize winner sues after she’s denied keys to new Mercedes-Benz in Florida](https://news.yahoo.com/hole-one-prize-winner-sues-132346758.html)
+- Aug 28 - [“Fatally sabotaged”: Legal experts say concession in Mark Meadows’ filing could backfire in court](https://news.yahoo.com/fatally-sabotaged-legal-experts-concession-131302159.html)
 - Aug 28 - [French ambassador stays in Niger, defying junta, as Macron defends French policy](https://news.yahoo.com/french-ambassador-stays-niger-defying-122504150.html)
-- Aug 28 - [Judge to decide if father of man accused in parade shooting will stand trial too](https://news.yahoo.com/judge-decide-father-man-accused-121946093.html)
-- Aug 28 - [Pope says 'backward' U.S. conservatives have replaced faith with ideology](https://news.yahoo.com/pope-says-backward-u-conservatives-121507295.html)
 <!-- feed end -->
 
 ### Onstream
