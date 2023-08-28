@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [US judge to set trial date for Trump over efforts to overturn 2020 election](https://news.yahoo.com/us-judge-set-trial-date-100227008.html)
+- Aug 28 - [Florida’s Gulf Coast braces for Cat 3 hurricane as Tropical Storm Idalia strengthens](https://news.yahoo.com/florida-gulf-coast-braces-cat-092414118.html)
+- Aug 28 - [Pope Francis laments "reactionary," politicised, US Catholic Church](https://news.yahoo.com/pope-francis-laments-reactionary-politicised-092133967.html)
 - Aug 28 - [Russians Are Strangely Stumped About Why Moscow Is Getting Bombed](https://news.yahoo.com/russians-strangely-stumped-why-moscow-085337503.html)
 - Aug 28 - [Michael Cohen Says What Really ‘Appalled’ Him About Trump’s Georgia Arrest](https://news.yahoo.com/michael-cohen-says-really-appalled-072006565.html)
-- Aug 28 - [Jen Psaki Busts 'Entirely Misleading' Republican Talking Point](https://news.yahoo.com/jen-psaki-busts-entirely-misleading-065017977.html)
-- Aug 28 - [Ukraine says it liberates strategic southeastern settlement](https://news.yahoo.com/ukraine-says-liberated-southeastern-village-062012225.html)
-- Aug 28 - [Trump Legal Spokesperson Undercuts 1 Of His Defenses, Live On Fox News](https://news.yahoo.com/trump-legal-spokesperson-undercuts-1-060554018.html)
 <!-- feed end -->
 
 ### Onstream
