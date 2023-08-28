@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Luis Rubiales' mother goes on hunger strike in protest of 'bloodthirsty witch hunt'](https://sports.yahoo.com/luis-rubiales-mother-goes-on-hunger-strike-in-protest-of-bloodthirsty-witch-hunt-134017984.html)
-- Aug 28 - [Kidnapped Woman Rescued After Passing ‘Help. Call 911’ Note to Customer at Gas Station, Say Police](https://www.yahoo.com/entertainment/kidnapped-woman-rescued-passing-help-133711299.html)
+- Aug 28 - [JSO says no one hurt after shots fire outside Bahama Breeze in St. Johns Town Center](https://news.yahoo.com/large-police-presence-reported-st-190729891.html)
+- Aug 28 - [I've studied more than 5,000 near death experiences. My research has convinced me without a doubt that there's life after death.](https://www.yahoo.com/lifestyle/ive-studied-more-5-000-133633458.html)
 - Aug 28 - [Hole-in-one prize winner sues after she’s denied keys to new Mercedes-Benz in Florida](https://news.yahoo.com/hole-one-prize-winner-sues-132346758.html)
+- Aug 28 - [Trump decries federal ‘fascist thugs’ despite judge’s warnings](https://news.yahoo.com/trump-decries-federal-fascist-thugs-131852448.html)
 - Aug 28 - [“Fatally sabotaged”: Legal experts say concession in Mark Meadows’ filing could backfire in court](https://news.yahoo.com/fatally-sabotaged-legal-experts-concession-131302159.html)
-- Aug 28 - [French ambassador stays in Niger, defying junta, as Macron defends French policy](https://news.yahoo.com/french-ambassador-stays-niger-defying-122504150.html)
 <!-- feed end -->
 
 ### Onstream
