@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Adani's bid to remake Mumbai slum spurs residents' doubts, favouritism claims](https://news.yahoo.com/adanis-bid-remake-mumbai-slum-013544850.html)
+- Aug 28 - [China Evergrande shares plunge more than 80% as trade resumes after 17 months](https://finance.yahoo.com/news/china-evergrande-shares-plunge-more-013647508.html)
 - Aug 28 - [Jacksonville gunman in racially motivated attack legally bought two weapons earlier this year, sheriff says](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
+- Aug 28 - [US-Sino tensions help spawn China card game craze](https://finance.yahoo.com/news/us-sino-tensions-help-spawn-010409030.html)
 - Aug 27 - [New York has tried poison, traps, and birth control to fix its pest problem. Rat researchers say the city should focus on its people instead.](https://news.yahoo.com/york-tried-poison-traps-birth-235632610.html)
 - Aug 27 - [Microsoft moving dirt in Mount Pleasant, selects lead builder for $1 billion data center](https://www.bizjournals.com/milwaukee/news/2023/08/27/microsoft-data-center-walsh-construction.html?utm_source=sy&utm_medium=nsyp&utm_campaign=yh&yptr=yahoo)
-- Aug 27 - [Nordstrom closes San Francisco store on grim note amid naked mannequins, empty display cases](https://news.yahoo.com/nordstrom-closes-san-francisco-store-224242182.html)
 <!-- feed end -->
 
 ### Onstream
