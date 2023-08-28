@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Can Trump be reelected president if convicted?](https://news.yahoo.com/trump-reelected-president-convicted-155340618.html)
-- Aug 28 - [Trump and 18 others charged in the Georgia election case are scheduled to be arraigned on Sept. 6](https://news.yahoo.com/trump-18-others-charged-georgia-153956698.html)
-- Aug 28 - [‘You’re Not Gonna Fight Me!’: Florida Cop Yanks Black Woman Out of Her Parked Car While She Is Reportedly Waiting for Friends at Beach In Bloody Arrest Captured on Video](https://news.yahoo.com/not-gonna-fight-florida-cop-153000125.html)
+- Aug 28 - [China 'might be collapsing': Strategist](https://finance.yahoo.com/video/china-might-collapsing-strategist-163254714.html)
+- Aug 28 - [Hawaii power utility takes responsibility for first fire on Maui, but faults county firefighters](https://news.yahoo.com/hawaii-power-utility-takes-responsibility-161741200.html)
+- Aug 28 - [House Republican Calls Out Biden Impeachment: “There’s No Evidence”](https://news.yahoo.com/house-republican-calls-biden-impeachment-155837085.html)
+- Aug 28 - [Trump lawyer complains after Judge Chutkan sets March 4 trial date — but she's not having it](https://news.yahoo.com/trump-lawyer-complains-judge-chutkan-155043701.html)
 - Aug 28 - [As Idalia nears, Florida officals warn of 'potentially widespread' gas contamination: What to know](https://news.yahoo.com/idalia-nears-florida-officals-warn-151509500.html)
-- Aug 28 - [‘Joe the Plumber,’ Political Activist and Media Sensation, Dead at 49](https://www.yahoo.com/entertainment/joe-plumber-political-activist-media-150437071.html)
 <!-- feed end -->
 
 ### Onstream
