@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 28 - [Trump lawyers back in DC court as two sides differ over trial date in election subversion case](https://news.yahoo.com/trump-lawyers-back-dc-court-040520283.html)
+- Aug 28 - [Biden is widely seen as too old for office, an AP-NORC poll finds. Trump's got other problems](https://news.yahoo.com/biden-widely-seen-too-old-040205068.html)
+- Aug 28 - [Foxconn billionaire Terry Gou says he will seek Taiwan's presidency as independent candidate](https://news.yahoo.com/foxconn-billionaire-terry-gou-says-040125817.html)
+- Aug 28 - [Brawl at Torrance's Del Amo mall draws crowd of 1,000 and a massive police response](https://news.yahoo.com/brawl-torrances-del-amo-mall-032559249.html)
 - Aug 28 - [China Evergrande loses $2.4 billion in value as trade resumes after 17 months](https://finance.yahoo.com/news/china-evergrande-shares-plunge-more-013647508.html)
-- Aug 28 - [Adani's bid to remake Mumbai slum spurs residents' doubts, favouritism claims](https://news.yahoo.com/adanis-bid-remake-mumbai-slum-013544850.html)
-- Aug 28 - [US-Sino tensions help spawn China card game craze](https://finance.yahoo.com/news/us-sino-tensions-help-spawn-010409030.html)
-- Aug 27 - [New York has tried poison, traps, and birth control to fix its pest problem. Rat researchers say the city should focus on its people instead.](https://news.yahoo.com/york-tried-poison-traps-birth-235632610.html)
 <!-- feed end -->
 
 ### Onstream
