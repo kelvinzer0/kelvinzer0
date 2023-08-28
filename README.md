@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [JSO says no one hurt after shots fire outside Bahama Breeze in St. Johns Town Center](https://news.yahoo.com/large-police-presence-reported-st-190729891.html)
-- Aug 28 - [I've studied more than 5,000 near death experiences. My research has convinced me without a doubt that there's life after death.](https://www.yahoo.com/lifestyle/ive-studied-more-5-000-133633458.html)
-- Aug 28 - [Hole-in-one prize winner sues after she’s denied keys to new Mercedes-Benz in Florida](https://news.yahoo.com/hole-one-prize-winner-sues-132346758.html)
-- Aug 28 - [Trump decries federal ‘fascist thugs’ despite judge’s warnings](https://news.yahoo.com/trump-decries-federal-fascist-thugs-131852448.html)
-- Aug 28 - [“Fatally sabotaged”: Legal experts say concession in Mark Meadows’ filing could backfire in court](https://news.yahoo.com/fatally-sabotaged-legal-experts-concession-131302159.html)
+- Aug 28 - [Can Trump be reelected president if convicted?](https://news.yahoo.com/trump-reelected-president-convicted-155340618.html)
+- Aug 28 - [Trump and 18 others charged in the Georgia election case are scheduled to be arraigned on Sept. 6](https://news.yahoo.com/trump-18-others-charged-georgia-153956698.html)
+- Aug 28 - [‘You’re Not Gonna Fight Me!’: Florida Cop Yanks Black Woman Out of Her Parked Car While She Is Reportedly Waiting for Friends at Beach In Bloody Arrest Captured on Video](https://news.yahoo.com/not-gonna-fight-florida-cop-153000125.html)
+- Aug 28 - [As Idalia nears, Florida officals warn of 'potentially widespread' gas contamination: What to know](https://news.yahoo.com/idalia-nears-florida-officals-warn-151509500.html)
+- Aug 28 - [‘Joe the Plumber,’ Political Activist and Media Sensation, Dead at 49](https://www.yahoo.com/entertainment/joe-plumber-political-activist-media-150437071.html)
 <!-- feed end -->
 
 ### Onstream
