@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [China 'might be collapsing': Strategist](https://finance.yahoo.com/video/china-might-collapsing-strategist-163254714.html)
+- Aug 28 - [Authorities identify husband as killer in 'Lady of the Dunes' cold case](https://news.yahoo.com/authorities-identify-husband-killer-lady-175530852.html)
+- Aug 28 - [Convicted ex-Ohio House speaker moved to Oklahoma prison to begin his 20-year sentence](https://news.yahoo.com/convicted-ex-ohio-house-speaker-173143211.html)
+- Aug 28 - [Ron Jeremy Accused Of “Heinous Sexual Acts” At Rainbow Bar & Grill; Sunset Strip Venue Hit With Negligence Suit Over Rapes By Porn Actor](https://www.yahoo.com/entertainment/ron-jeremy-accused-heinous-sexual-171154848.html)
+- Aug 28 - [There’s a GOP Case Against Trump That Could Sway Voters. Only One of His Rivals Is Making It.](https://news.yahoo.com/gop-case-against-trump-could-163000929.html)
 - Aug 28 - [Hawaii power utility takes responsibility for first fire on Maui, but faults county firefighters](https://news.yahoo.com/hawaii-power-utility-takes-responsibility-161741200.html)
-- Aug 28 - [House Republican Calls Out Biden Impeachment: “There’s No Evidence”](https://news.yahoo.com/house-republican-calls-biden-impeachment-155837085.html)
-- Aug 28 - [Trump lawyer complains after Judge Chutkan sets March 4 trial date — but she's not having it](https://news.yahoo.com/trump-lawyer-complains-judge-chutkan-155043701.html)
-- Aug 28 - [As Idalia nears, Florida officals warn of 'potentially widespread' gas contamination: What to know](https://news.yahoo.com/idalia-nears-florida-officals-warn-151509500.html)
 <!-- feed end -->
 
 ### Onstream
