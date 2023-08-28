@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Rescue helicopter crashes into building in Florida, 2 dead](https://news.yahoo.com/rescue-helicopter-crashes-building-florida-203246827.html)
+- Aug 28 - [UAW talks: Why the shift to EVs is such a big deal to workers](https://finance.yahoo.com/video/uaw-talks-why-shift-evs-213948787.html)
+- Aug 28 - [I'm Basically Leaking Endless Tears Of Laughter At These 22 Hilarious Tweets Of The Week](https://www.yahoo.com/lifestyle/im-basically-leaking-endless-tears-210020771.html)
+- Aug 28 - [Elon Musk's Little Sister Says She Is Overcharged Because People Assume Her Brother Pays For Everything —  Despite Being the Richest Man in The World, He Doesn't](https://finance.yahoo.com/news/elon-musks-little-sister-says-210012198.html)
 - Aug 28 - [Alexandra Paul, Olympic Figure Skater, Dead at 31](https://www.yahoo.com/entertainment/alexandra-paul-olympic-figure-skater-200956865.html)
 - Aug 28 - [Judge dismisses lawsuit by sorority sisters who sought to block a transgender woman from joining](https://news.yahoo.com/judge-dismisses-lawsuit-sorority-sisters-200701416.html)
-- Aug 28 - [Ex-US attorney thinks Trump may “fire” his lawyer after “thoroughly unprofessional” court stunt](https://news.yahoo.com/ex-us-attorney-thinks-trump-200102432.html)
-- Aug 28 - [An off-duty Oklahoma officer fired a shot that wounded a man at a high school football game](https://news.yahoo.com/off-duty-oklahoma-officer-fired-193523442.html)
 <!-- feed end -->
 
 ### Onstream
