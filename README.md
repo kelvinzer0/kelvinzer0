@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [UAW talks: Why the shift to EVs is such a big deal to workers](https://finance.yahoo.com/video/uaw-talks-why-shift-evs-213948787.html)
+- Aug 28 - [Wisconsin Supreme Court chief justice accuses liberal majority of staging a 'coup'](https://news.yahoo.com/wisconsin-supreme-court-chief-justice-222807369.html)
+- Aug 28 - [A massive Iranian missile attack on a US base offered a glimpse of the long-lasting injuries US troops will face in a war with Russia or China](https://news.yahoo.com/massive-iranian-missile-attack-us-220701969.html)
+- Aug 28 - [A Member of Donald Trump’s Family Ditched the Controversial Last Name in a Recent Public Statement](https://www.yahoo.com/entertainment/member-donald-trump-family-ditched-213105316.html)
 - Aug 28 - [I'm Basically Leaking Endless Tears Of Laughter At These 22 Hilarious Tweets Of The Week](https://www.yahoo.com/lifestyle/im-basically-leaking-endless-tears-210020771.html)
 - Aug 28 - [Elon Musk's Little Sister Says She Is Overcharged Because People Assume Her Brother Pays For Everything —  Despite Being the Richest Man in The World, He Doesn't](https://finance.yahoo.com/news/elon-musks-little-sister-says-210012198.html)
-- Aug 28 - [Alexandra Paul, Olympic Figure Skater, Dead at 31](https://www.yahoo.com/entertainment/alexandra-paul-olympic-figure-skater-200956865.html)
-- Aug 28 - [Judge dismisses lawsuit by sorority sisters who sought to block a transgender woman from joining](https://news.yahoo.com/judge-dismisses-lawsuit-sorority-sisters-200701416.html)
 <!-- feed end -->
 
 ### Onstream
