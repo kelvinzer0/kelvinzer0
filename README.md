@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [Russians Are Strangely Stumped About Why Moscow Is Getting Bombed](https://news.yahoo.com/russians-strangely-stumped-why-moscow-085337503.html)
 - Aug 28 - [Michael Cohen Says What Really ‘Appalled’ Him About Trump’s Georgia Arrest](https://news.yahoo.com/michael-cohen-says-really-appalled-072006565.html)
+- Aug 28 - [Jen Psaki Busts 'Entirely Misleading' Republican Talking Point](https://news.yahoo.com/jen-psaki-busts-entirely-misleading-065017977.html)
 - Aug 28 - [Ukraine says it liberates strategic southeastern settlement](https://news.yahoo.com/ukraine-says-liberated-southeastern-village-062012225.html)
 - Aug 28 - [Trump Legal Spokesperson Undercuts 1 Of His Defenses, Live On Fox News](https://news.yahoo.com/trump-legal-spokesperson-undercuts-1-060554018.html)
-- Aug 28 - [China's Country Garden says $100 billion Malaysia project on track](https://finance.yahoo.com/news/malaysia-offers-incentives-country-gardens-034908823.html)
-- Aug 28 - [Youth brawls draw hundreds to 2 California malls, including in Torrance](https://news.yahoo.com/brawl-torrances-del-amo-mall-032559249.html)
 <!-- feed end -->
 
 ### Onstream
