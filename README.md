@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Youth brawls draw hundreds to 2 California malls; Torrance fight spurs massive police response](https://news.yahoo.com/brawl-torrances-del-amo-mall-032559249.html)
-- Aug 28 - [China Evergrande loses $2.4 billion in value as trade resumes after 17 months](https://finance.yahoo.com/news/china-evergrande-shares-plunge-more-013647508.html)
+- Aug 28 - [Trump Legal Spokesperson Undercuts 1 Of His Defenses, Live On Fox News](https://news.yahoo.com/trump-legal-spokesperson-undercuts-1-060554018.html)
+- Aug 28 - [China's Country Garden says $100 billion Malaysia project on track](https://finance.yahoo.com/news/malaysia-offers-incentives-country-gardens-034908823.html)
+- Aug 28 - [Youth brawls draw hundreds to 2 California malls, including in Torrance](https://news.yahoo.com/brawl-torrances-del-amo-mall-032559249.html)
 - Aug 28 - [Adani's bid to remake Mumbai slum spurs residents' doubts, favouritism claims](https://news.yahoo.com/adanis-bid-remake-mumbai-slum-013544850.html)
 - Aug 28 - [Airbnb Host Threatens To Find Tenant's Home Address Who Left Him A 4-Star Review – 'I Have Your Picture, Your Name, And Your Number'](https://www.yahoo.com/lifestyle/airbnb-host-threatens-tenants-home-011500261.html)
-- Aug 28 - [US-Sino tensions help spawn China card game craze](https://finance.yahoo.com/news/us-sino-tensions-help-spawn-010409030.html)
 <!-- feed end -->
 
 ### Onstream
