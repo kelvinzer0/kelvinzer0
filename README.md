@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [Rescue helicopter crashes into building in Florida, 2 dead](https://news.yahoo.com/rescue-helicopter-crashes-building-florida-203246827.html)
+- Aug 28 - [Alexandra Paul, Olympic Figure Skater, Dead at 31](https://www.yahoo.com/entertainment/alexandra-paul-olympic-figure-skater-200956865.html)
+- Aug 28 - [Judge dismisses lawsuit by sorority sisters who sought to block a transgender woman from joining](https://news.yahoo.com/judge-dismisses-lawsuit-sorority-sisters-200701416.html)
+- Aug 28 - [Ex-US attorney thinks Trump may “fire” his lawyer after “thoroughly unprofessional” court stunt](https://news.yahoo.com/ex-us-attorney-thinks-trump-200102432.html)
 - Aug 28 - [An off-duty Oklahoma officer fired a shot that wounded a man at a high school football game](https://news.yahoo.com/off-duty-oklahoma-officer-fired-193523442.html)
-- Aug 28 - [Peter Navarro says Trump directed him to assert privilege](https://news.yahoo.com/peter-navarro-says-trump-directed-192631523.html)
-- Aug 28 - [An influencer who used a $1.5 million COVID-19 relief loan on luxury clothes and designer handbags has now been ordered to give them up](https://news.yahoo.com/influencer-used-1-5-million-185044713.html)
-- Aug 28 - [A woman had abdominal pain, depression and a cough. Doctors pulled a live worm from her brain.](https://www.yahoo.com/lifestyle/woman-had-abdominal-pain-depression-184207191.html)
-- Aug 28 - [NASA releases first U.S. pollution map images from new space instrument](https://news.yahoo.com/nasa-releases-first-u-pollution-180300260.html)
 <!-- feed end -->
 
 ### Onstream
