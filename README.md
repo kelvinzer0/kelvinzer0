@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [An off-duty Oklahoma officer fired a shot that wounded a man at a high school football game](https://news.yahoo.com/off-duty-oklahoma-officer-fired-193523442.html)
+- Aug 28 - [Peter Navarro says Trump directed him to assert privilege](https://news.yahoo.com/peter-navarro-says-trump-directed-192631523.html)
+- Aug 28 - [An influencer who used a $1.5 million COVID-19 relief loan on luxury clothes and designer handbags has now been ordered to give them up](https://news.yahoo.com/influencer-used-1-5-million-185044713.html)
+- Aug 28 - [A woman had abdominal pain, depression and a cough. Doctors pulled a live worm from her brain.](https://www.yahoo.com/lifestyle/woman-had-abdominal-pain-depression-184207191.html)
 - Aug 28 - [NASA releases first U.S. pollution map images from new space instrument](https://news.yahoo.com/nasa-releases-first-u-pollution-180300260.html)
-- Aug 28 - [Tesla Cybertruck Wrapped Like a Toyota Tundra Is Really Beating a Dead Horse](https://news.yahoo.com/tesla-cybertruck-wrapped-toyota-tundra-180000508.html)
-- Aug 28 - [Authorities identify husband as killer in 'Lady of the Dunes' cold case](https://news.yahoo.com/authorities-identify-husband-killer-lady-175530852.html)
-- Aug 28 - [Alaska report details 280 missing Indigenous people, including whether disappearances are suspicious](https://news.yahoo.com/alaska-report-details-280-missing-175505089.html)
-- Aug 28 - [Mark Meadows in Ga. court: Time with Donald Trump was 'challenging'](https://news.yahoo.com/mark-meadows-ask-judge-move-123937060.html)
 <!-- feed end -->
 
 ### Onstream
