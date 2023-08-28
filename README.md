@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [US judge to set trial date for Trump over efforts to overturn 2020 election](https://news.yahoo.com/us-judge-set-trial-date-100227008.html)
+- Aug 28 - [Biden is 'old,' Trump is 'corrupt': AP-NORC poll has ominous signs for both in possible 2024 rematch](https://news.yahoo.com/biden-old-trump-corrupt-ap-103441094.html)
+- Aug 28 - ['I live in the real world': Kevin O'Leary warns the US has a 'crisis emerging' thanks to the breakneck speed of interest rate hikes — here's who's set to feel the most pain](https://finance.yahoo.com/news/live-real-world-kevin-oleary-120000167.html)
 - Aug 28 - [Florida’s Gulf Coast braces for Cat 3 hurricane as Tropical Storm Idalia strengthens](https://news.yahoo.com/florida-gulf-coast-braces-cat-092414118.html)
 - Aug 28 - [Pope Francis laments "reactionary," politicised, US Catholic Church](https://news.yahoo.com/pope-francis-laments-reactionary-politicised-092133967.html)
 - Aug 28 - [Russians Are Strangely Stumped About Why Moscow Is Getting Bombed](https://news.yahoo.com/russians-strangely-stumped-why-moscow-085337503.html)
-- Aug 28 - [Michael Cohen Says What Really ‘Appalled’ Him About Trump’s Georgia Arrest](https://news.yahoo.com/michael-cohen-says-really-appalled-072006565.html)
 <!-- feed end -->
 
 ### Onstream
