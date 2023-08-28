@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [NASA releases first U.S. pollution map images from new space instrument](https://news.yahoo.com/nasa-releases-first-u-pollution-180300260.html)
+- Aug 28 - [Tesla Cybertruck Wrapped Like a Toyota Tundra Is Really Beating a Dead Horse](https://news.yahoo.com/tesla-cybertruck-wrapped-toyota-tundra-180000508.html)
 - Aug 28 - [Authorities identify husband as killer in 'Lady of the Dunes' cold case](https://news.yahoo.com/authorities-identify-husband-killer-lady-175530852.html)
-- Aug 28 - [Convicted ex-Ohio House speaker moved to Oklahoma prison to begin his 20-year sentence](https://news.yahoo.com/convicted-ex-ohio-house-speaker-173143211.html)
-- Aug 28 - [Ron Jeremy Accused Of “Heinous Sexual Acts” At Rainbow Bar & Grill; Sunset Strip Venue Hit With Negligence Suit Over Rapes By Porn Actor](https://www.yahoo.com/entertainment/ron-jeremy-accused-heinous-sexual-171154848.html)
-- Aug 28 - [There’s a GOP Case Against Trump That Could Sway Voters. Only One of His Rivals Is Making It.](https://news.yahoo.com/gop-case-against-trump-could-163000929.html)
-- Aug 28 - [Hawaii power utility takes responsibility for first fire on Maui, but faults county firefighters](https://news.yahoo.com/hawaii-power-utility-takes-responsibility-161741200.html)
+- Aug 28 - [Alaska report details 280 missing Indigenous people, including whether disappearances are suspicious](https://news.yahoo.com/alaska-report-details-280-missing-175505089.html)
+- Aug 28 - [Mark Meadows in Ga. court: Time with Donald Trump was 'challenging'](https://news.yahoo.com/mark-meadows-ask-judge-move-123937060.html)
 <!-- feed end -->
 
 ### Onstream
