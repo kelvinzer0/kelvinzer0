@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Will Chicago Bears AND Chicago White Sox end up in Arlington Heights?](https://sports.yahoo.com/chicago-bears-chicago-white-sox-224611653.html)
+- Aug 28 - [Vivek Ramaswamy Tells NBC’s Chuck Todd That Mike Pence Should Have Overturned the 2020 Election Results for Donald Trump (Video)](https://www.yahoo.com/entertainment/vivek-ramaswamy-tells-nbc-chuck-002239752.html)
+- Aug 27 - [New York has tried poison, traps, and birth control to fix its pest problem. Rat researchers say the city should focus on its people instead.](https://news.yahoo.com/york-tried-poison-traps-birth-235632610.html)
 - Aug 27 - [Jacksonville gunman in racially motivated attack legally bought two weapons earlier this year, sheriff says](https://news.yahoo.com/jacksonville-gunman-turned-away-historically-052956639.html)
-- Aug 27 - [Zelensky: Ukraine risks losing support from some ‘major powers’ if battlefield moves to Russian territory](https://news.yahoo.com/zelensky-ukraine-risks-losing-support-210127723.html)
-- Aug 27 - [DeSantis cancels SC campaign travel, returns to Florida facing tropical storm and shooting aftermath](https://news.yahoo.com/desantis-leaves-campaign-trail-returns-204800725.html)
-- Aug 27 - [South Dakota woman admits to making false rape report after an extramarital tryst in Florida](https://news.yahoo.com/south-dakota-woman-admits-making-201028588.html)
+- Aug 27 - [Microsoft moving dirt in Mount Pleasant, selects lead builder for $1 billion data center](https://www.bizjournals.com/milwaukee/news/2023/08/27/microsoft-data-center-walsh-construction.html?utm_source=sy&utm_medium=nsyp&utm_campaign=yh&yptr=yahoo)
+- Aug 27 - [Honduras arrests mayor accused of trafficking cocaine to US](https://news.yahoo.com/honduras-arrests-mayor-accused-trafficking-225859899.html)
 <!-- feed end -->
 
 ### Onstream
