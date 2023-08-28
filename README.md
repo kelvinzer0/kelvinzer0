@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Biden is 'old,' Trump is 'corrupt': AP-NORC poll has ominous signs for both in possible 2024 rematch](https://news.yahoo.com/biden-old-trump-corrupt-ap-103441094.html)
-- Aug 28 - ['I live in the real world': Kevin O'Leary warns the US has a 'crisis emerging' thanks to the breakneck speed of interest rate hikes — here's who's set to feel the most pain](https://finance.yahoo.com/news/live-real-world-kevin-oleary-120000167.html)
-- Aug 28 - [Florida’s Gulf Coast braces for Cat 3 hurricane as Tropical Storm Idalia strengthens](https://news.yahoo.com/florida-gulf-coast-braces-cat-092414118.html)
-- Aug 28 - [Pope Francis laments "reactionary," politicised, US Catholic Church](https://news.yahoo.com/pope-francis-laments-reactionary-politicised-092133967.html)
-- Aug 28 - [Russians Are Strangely Stumped About Why Moscow Is Getting Bombed](https://news.yahoo.com/russians-strangely-stumped-why-moscow-085337503.html)
+- Aug 28 - [Poland, Baltic states warn they could seal border with Belarus if military, migrant tensions grow](https://news.yahoo.com/poland-baltic-states-warn-could-125746569.html)
+- Aug 28 - [Louisiana's growing wildfires prompt evacuations](https://news.yahoo.com/louisianas-growing-wildfires-prompt-evacuations-123313425.html)
+- Aug 28 - [French ambassador stays in Niger, defying junta, as Macron defends French policy](https://news.yahoo.com/french-ambassador-stays-niger-defying-122504150.html)
+- Aug 28 - [Judge to decide if father of man accused in parade shooting will stand trial too](https://news.yahoo.com/judge-decide-father-man-accused-121946093.html)
+- Aug 28 - [Pope says 'backward' U.S. conservatives have replaced faith with ideology](https://news.yahoo.com/pope-says-backward-u-conservatives-121507295.html)
 <!-- feed end -->
 
 ### Onstream
