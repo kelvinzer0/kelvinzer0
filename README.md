@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Russian mercenaries bury Prigozhin's logistics chief](https://news.yahoo.com/russian-mercenaries-bury-prigozhins-logistics-144615877.html)
+- Aug 29 - [Melania Trump's Reported Reaction to Donald Trump's Mug Shot Gives an Indication to Whose Side She's On](https://www.yahoo.com/entertainment/melania-trumps-reported-reaction-donald-133612261.html)
 - Aug 29 - [“He is toast”: Legal experts call out Mark Meadows’ “incriminating admission” on the witness stand](https://news.yahoo.com/toast-legal-experts-call-mark-130116237.html)
 - Aug 29 - [Ukraine claims it damaged prized Russian jets using 'cardboard' drones from Australia in a daring raid](https://news.yahoo.com/ukraine-claims-damaged-prized-russian-115010616.html)
-- Aug 29 - [Police officer sexually assaulted and six others bitten at Notting Hill Carnival](https://news.yahoo.com/police-officer-sexually-assaulted-six-113115074.html)
-- Aug 29 - [PepsiCo reveals truth about Tesla’s semitruck fleet after subjecting them to ‘hellacious’ and dangerous delivery routes](https://news.yahoo.com/pepsico-reveals-truth-tesla-semitruck-113000730.html)
-- Aug 29 - [A German woman who belonged to IS is imprisoned for allowing a 5-year-old child slave to die in Iraq](https://news.yahoo.com/german-woman-belonged-imprisoned-allowing-111623002.html)
+- Aug 29 - [Software CEO worth almost $12 billion says he goes into the office ‘about once a quarter,’ bucking the return to office trend in Big Tech](https://finance.yahoo.com/news/software-ceo-worth-almost-12-113702652.html)
 <!-- feed end -->
 
 ### Onstream
