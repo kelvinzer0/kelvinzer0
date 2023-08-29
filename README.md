@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Use nuclear strike to stop Ukraine’s counter-offensive, says former Russian general](https://news.yahoo.com/former-russian-general-calls-nuclear-174549733.html)
+- Aug 29 - [If Harvard Succeeds In Revoking Francesca Gino’s Tenure, It Would Be History Making](https://finance.yahoo.com/news/harvard-succeeds-revoking-francesca-gino-173153348.html)
+- Aug 29 - [Siblings make progress after NYC hammer attack that killed their mother, left them fighting for life](https://news.yahoo.com/siblings-progress-nyc-hammer-attack-171255914.html)
 - Aug 29 - [Buster Murdaugh Opens Up on ‘Odd’ Thing During Dad’s Trial](https://news.yahoo.com/buster-murdaugh-opens-odd-thing-165037128.html)
-- Aug 29 - [UNC graduate student arrested on murder charge in fatal shooting of faculty member, DA says](https://news.yahoo.com/police-working-determine-motive-gun-045951904.html)
-- Aug 29 - [A woman spent $28,000 on weight-loss and plastic surgeries and said her new body and better health was worth every penny](https://news.yahoo.com/woman-spent-28-000-weight-160149919.html)
 - Aug 29 - [The Jacksonville gunman’s dad called 911 after the deadly rampage started. Here’s what he said about his son](https://news.yahoo.com/security-guard-says-students-warnings-095216283.html)
-- Aug 29 - [Watch a Crocodile Savagely Thrash and Kill a Massive Python](https://www.yahoo.com/lifestyle/watch-crocodile-savagely-thrash-kill-154142353.html)
 <!-- feed end -->
 
 ### Onstream
