@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [US Supreme Court Justice Barrett says she welcomes public scrutiny of court](https://news.yahoo.com/us-supreme-court-justice-barrett-025233172.html)
+- Aug 29 - [UNC-Chapel Hill faculty member killed in shooting](https://news.yahoo.com/unc-chapel-hill-faculty-member-022641496.html)
 - Aug 29 - [‘Should Have Stayed Home That Night’: Kyle Rittenhouse Says He’s Being Sued Again ‘for Defending My Life.’ He Was Met with Backlash on Social Media](https://news.yahoo.com/stayed-home-night-kyle-rittenhouse-010400196.html)
 - Aug 29 - [Faculty member slain, suspect held in University of North Carolina shooting](https://news.yahoo.com/suspect-held-shooting-near-university-195700240.html)
 - Aug 28 - [GOP silences 'Tennessee Three' Democrat on House floor for day on 'out of order' rule; crowd erupts](https://news.yahoo.com/gop-silences-tennessee-three-democrat-225814808.html)
-- Aug 28 - [Wisconsin Supreme Court chief justice accuses liberal majority of staging a 'coup'](https://news.yahoo.com/wisconsin-supreme-court-chief-justice-222807369.html)
-- Aug 28 - [A massive Iranian missile attack on a US base offered a glimpse of the long-lasting injuries US troops will face in a war with Russia or China](https://news.yahoo.com/massive-iranian-missile-attack-us-220701969.html)
 <!-- feed end -->
 
 ### Onstream
