@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 29 - [Live worm found in Australian woman's brain](https://news.yahoo.com/live-worm-found-australian-womans-075925803.html)
+- Aug 29 - [Medvedev begins to frighten world with apocalypse](https://news.yahoo.com/medvedev-begins-frighten-world-apocalypse-062900747.html)
 - Aug 29 - [Daughter of Thailand's ex-PM Thaksin says clemency request "up to him"](https://news.yahoo.com/daughter-ex-pm-thaksin-says-061737281.html)
 - Aug 29 - [Former Judge Rips Trump Lawyers for ‘Stunningly Stupid’ Move](https://www.yahoo.com/entertainment/former-judge-rips-trump-lawyers-042108919.html)
 - Aug 29 - [Recruiting is underway for Trump-like 'wrecking ball' to shrink government and fire federal workers](https://news.yahoo.com/recruiting-underway-trump-wrecking-ball-040301796.html)
-- Aug 29 - [Lawrence: Trump's lawyer just previewed what Trump will say if found guilty](https://news.yahoo.com/lawrence-trumps-lawyer-just-previewed-034835822.html)
 <!-- feed end -->
 
 ### Onstream
