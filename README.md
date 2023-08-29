@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Medical rescue helicopter crash kills 2, including fire captain and woman in her apartment](https://news.yahoo.com/medical-rescue-helicopter-crash-kills-124152416.html)
+- Aug 29 - [Ukraine claims it damaged prized Russian jets using 'cardboard' drones from Australia in a daring raid](https://news.yahoo.com/ukraine-claims-damaged-prized-russian-115010616.html)
 - Aug 29 - [Police officer sexually assaulted and six others bitten at Notting Hill Carnival](https://news.yahoo.com/police-officer-sexually-assaulted-six-113115074.html)
+- Aug 29 - [A German woman who belonged to IS is imprisoned for allowing a 5-year-old child slave to die in Iraq](https://news.yahoo.com/german-woman-belonged-imprisoned-allowing-111623002.html)
 - Aug 29 - [US given OK to enforce maritime law around Palau as Washington vies with China for Pacific influence](https://news.yahoo.com/us-given-ok-enforce-maritime-103211276.html)
-- Aug 29 - [The wild life of billionaire Twitter co-founder Jack Dorsey, who is known for eccentricities like eating one meal a day, and taking ice baths](https://finance.yahoo.com/news/wild-life-billionaire-twitter-co-100700532.html)
-- Aug 29 - [Iran's Raisi urges Japan to release frozen funds, then wavers](https://news.yahoo.com/irans-raisi-urges-japan-release-081920888.html)
-- Aug 29 - [Medvedev begins to frighten world with apocalypse](https://news.yahoo.com/medvedev-begins-frighten-world-apocalypse-062900747.html)
 <!-- feed end -->
 
 ### Onstream
