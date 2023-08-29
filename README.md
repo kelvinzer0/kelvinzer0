@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Doctoral student arrested on murder charge in fatal shooting of UNC faculty member, source says](https://news.yahoo.com/police-working-determine-motive-gun-045951904.html)
-- Aug 29 - [Justice Amy Coney Barrett arranged for someone to sing songs from 'Hamilton' at Ketanji Brown Jackson's welcome party](https://news.yahoo.com/justice-amy-coney-barrett-arranged-143126427.html)
-- Aug 29 - [India lodges strong protest with China over map claiming 'India's territory'](https://news.yahoo.com/india-lodges-strong-protest-china-150405036.html)
-- Aug 29 - [The American dream is no longer about getting rich, owning a home for small business owners, survey finds — here’s what the cost-of-living crisis has these folks chasing instead](https://finance.yahoo.com/news/american-dream-no-longer-getting-150000041.html)
-- Aug 29 - [Radical Environmentalists Plowed By Chevy Silverado](https://news.yahoo.com/radical-environmentalists-plowed-chevy-silverado-150000916.html)
+- Aug 29 - [Buster Murdaugh Opens Up on ‘Odd’ Thing During Dad’s Trial](https://news.yahoo.com/buster-murdaugh-opens-odd-thing-165037128.html)
+- Aug 29 - [UNC graduate student arrested on murder charge in fatal shooting of faculty member, DA says](https://news.yahoo.com/police-working-determine-motive-gun-045951904.html)
+- Aug 29 - [A woman spent $28,000 on weight-loss and plastic surgeries and said her new body and better health was worth every penny](https://news.yahoo.com/woman-spent-28-000-weight-160149919.html)
+- Aug 29 - [The Jacksonville gunman’s dad called 911 after the deadly rampage started. Here’s what he said about his son](https://news.yahoo.com/security-guard-says-students-warnings-095216283.html)
+- Aug 29 - [Watch a Crocodile Savagely Thrash and Kill a Massive Python](https://www.yahoo.com/lifestyle/watch-crocodile-savagely-thrash-kill-154142353.html)
 <!-- feed end -->
 
 ### Onstream
