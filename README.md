@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [UNC graduate student arrested on murder charge in fatal shooting of faculty member, police say](https://news.yahoo.com/police-working-determine-motive-gun-045951904.html)
+- Aug 29 - [The Jacksonville gunman’s dad called 911 after the deadly rampage started. Here’s what he said about his son](https://news.yahoo.com/security-guard-says-students-warnings-095216283.html)
+- Aug 29 - [White House Press Secretary Shocked By Question About Biden Proposing Beer Limits](https://news.yahoo.com/white-house-press-secretary-shocked-182020962.html)
 - Aug 29 - [Photographer finds herself surrounded by wolf pack in Arctic. See ‘incredible’ moment](https://news.yahoo.com/photographer-finds-herself-surrounded-wolf-175406832.html)
 - Aug 29 - [Finland counted its bomb shelters and found 50,500 of them](https://news.yahoo.com/finland-counted-bomb-shelters-found-175405706.html)
-- Aug 29 - [If Harvard Succeeds In Revoking Francesca Gino’s Tenure, It Would Be History Making](https://finance.yahoo.com/news/harvard-succeeds-revoking-francesca-gino-173153348.html)
-- Aug 29 - [Siblings make progress after NYC hammer attack that killed their mother, left them fighting for life](https://news.yahoo.com/siblings-progress-nyc-hammer-attack-171255914.html)
+- Aug 29 - [Lawyers indicted with Trump say they were doing their jobs. But that may be a tough argument to make](https://news.yahoo.com/lawyers-indicted-trump-were-doing-175215451.html)
 <!-- feed end -->
 
 ### Onstream
