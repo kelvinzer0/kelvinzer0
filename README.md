@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Medical rescue helicopter crash kills 2, including fire captain and woman in her apartment](https://news.yahoo.com/medical-rescue-helicopter-crash-kills-124152416.html)
+- Aug 29 - [“He is toast”: Legal experts call out Mark Meadows’ “incriminating admission” on the witness stand](https://news.yahoo.com/toast-legal-experts-call-mark-130116237.html)
 - Aug 29 - [Ukraine claims it damaged prized Russian jets using 'cardboard' drones from Australia in a daring raid](https://news.yahoo.com/ukraine-claims-damaged-prized-russian-115010616.html)
 - Aug 29 - [Police officer sexually assaulted and six others bitten at Notting Hill Carnival](https://news.yahoo.com/police-officer-sexually-assaulted-six-113115074.html)
+- Aug 29 - [PepsiCo reveals truth about Tesla’s semitruck fleet after subjecting them to ‘hellacious’ and dangerous delivery routes](https://news.yahoo.com/pepsico-reveals-truth-tesla-semitruck-113000730.html)
 - Aug 29 - [A German woman who belonged to IS is imprisoned for allowing a 5-year-old child slave to die in Iraq](https://news.yahoo.com/german-woman-belonged-imprisoned-allowing-111623002.html)
-- Aug 29 - [US given OK to enforce maritime law around Palau as Washington vies with China for Pacific influence](https://news.yahoo.com/us-given-ok-enforce-maritime-103211276.html)
 <!-- feed end -->
 
 ### Onstream
