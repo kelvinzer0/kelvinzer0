@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Former Judge Rips Trump Lawyers for ‘Stunningly Stupid’ Move](https://www.yahoo.com/entertainment/former-judge-rips-trump-lawyers-042108919.html)
 - Aug 29 - [Toyota to halt operations at all Japan assembly plants due to system failure](https://news.yahoo.com/toyota-halts-operations-12-japan-011435605.html)
 - Aug 29 - [‘Should Have Stayed Home That Night’: Kyle Rittenhouse Says He’s Being Sued Again ‘for Defending My Life.’ He Was Met with Backlash on Social Media](https://news.yahoo.com/stayed-home-night-kyle-rittenhouse-010400196.html)
 - Aug 29 - [Faculty member slain, suspect held in University of North Carolina shooting](https://news.yahoo.com/suspect-held-shooting-near-university-195700240.html)
 - Aug 28 - [GOP silences 'Tennessee Three' Democrat on House floor for day on 'out of order' rule; crowd erupts](https://news.yahoo.com/gop-silences-tennessee-three-democrat-225814808.html)
-- Aug 28 - [Wisconsin Supreme Court chief justice accuses liberal majority of staging a 'coup'](https://news.yahoo.com/wisconsin-supreme-court-chief-justice-222807369.html)
 <!-- feed end -->
 
 ### Onstream
