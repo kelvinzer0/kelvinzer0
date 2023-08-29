@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Live worm found in Australian woman's brain](https://news.yahoo.com/live-worm-found-australian-womans-075925803.html)
+- Aug 29 - [Satellite Shows 'Powerful' Hurricane Franklin and 'Dangerous' Idalia Off US Coast](https://news.yahoo.com/satellite-shows-powerful-hurricane-franklin-102308653.html)
 - Aug 29 - [Medvedev begins to frighten world with apocalypse](https://news.yahoo.com/medvedev-begins-frighten-world-apocalypse-062900747.html)
 - Aug 29 - [Daughter of Thailand's ex-PM Thaksin says clemency request "up to him"](https://news.yahoo.com/daughter-ex-pm-thaksin-says-061737281.html)
 - Aug 29 - [Former Judge Rips Trump Lawyers for ‘Stunningly Stupid’ Move](https://www.yahoo.com/entertainment/former-judge-rips-trump-lawyers-042108919.html)
