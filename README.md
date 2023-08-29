@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [This viral ab exercise looks like a hoax, but experts say it's actually effective](https://news.yahoo.com/ab-exercise-called-stomach-vacuum-164749376.html)
+- Aug 29 - [The Jacksonville gunman’s dad called 911 after the deadly rampage started. Here’s what he said about his son](https://news.yahoo.com/security-guard-says-students-warnings-095216283.html)
 - Aug 29 - [UNC graduate student charged with murder in fatal shooting of associate professor](https://news.yahoo.com/police-working-determine-motive-gun-045951904.html)
 - Aug 29 - [Notting Hill Carnival is unmanageable, say police, as youths brawl with machetes](https://news.yahoo.com/police-officer-sexually-assaulted-six-113115074.html)
-- Aug 29 - [The Jacksonville gunman’s dad called 911 after the deadly rampage started. Here’s what he said about his son](https://news.yahoo.com/security-guard-says-students-warnings-095216283.html)
 - Aug 29 - ['Lucky to be his parents': Family mourns college student killed after trying to enter wrong house](https://www.yahoo.com/gma/college-student-fatally-shot-south-172323481.html)
-- Aug 29 - [Photographer finds herself surrounded by wolf pack in Arctic. See ‘incredible’ moment](https://news.yahoo.com/photographer-finds-herself-surrounded-wolf-175406832.html)
 <!-- feed end -->
 
 ### Onstream
