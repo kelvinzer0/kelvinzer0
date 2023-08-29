@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 29 - [Former Judge Rips Trump Lawyers for ‘Stunningly Stupid’ Move](https://www.yahoo.com/entertainment/former-judge-rips-trump-lawyers-042108919.html)
+- Aug 29 - [Lawrence: Trump's lawyer just previewed what Trump will say if found guilty](https://news.yahoo.com/lawrence-trumps-lawyer-just-previewed-034835822.html)
 - Aug 29 - [Worm Found in Woman’s Brain Has Zero Chill](https://www.yahoo.com/entertainment/worm-found-woman-brain-zero-031647156.html)
 - Aug 29 - [Toyota's Japan production at standstill as system failure hits assembly plants](https://news.yahoo.com/toyota-halts-operations-12-japan-011435605.html)
 - Aug 29 - [‘Should Have Stayed Home That Night’: Kyle Rittenhouse Says He’s Being Sued Again ‘for Defending My Life.’ He Was Met with Backlash on Social Media](https://news.yahoo.com/stayed-home-night-kyle-rittenhouse-010400196.html)
-- Aug 29 - [Faculty member slain, suspect held in University of North Carolina shooting](https://news.yahoo.com/suspect-held-shooting-near-university-195700240.html)
 <!-- feed end -->
 
 ### Onstream
