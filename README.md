@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Satellite Shows 'Powerful' Hurricane Franklin and 'Dangerous' Idalia Off US Coast](https://news.yahoo.com/satellite-shows-powerful-hurricane-franklin-102308653.html)
+- Aug 29 - [Police officer sexually assaulted and six others bitten at Notting Hill Carnival](https://news.yahoo.com/police-officer-sexually-assaulted-six-113115074.html)
+- Aug 29 - [US given OK to enforce maritime law around Palau as Washington vies with China for Pacific influence](https://news.yahoo.com/us-given-ok-enforce-maritime-103211276.html)
+- Aug 29 - [The wild life of billionaire Twitter co-founder Jack Dorsey, who is known for eccentricities like eating one meal a day, and taking ice baths](https://finance.yahoo.com/news/wild-life-billionaire-twitter-co-100700532.html)
+- Aug 29 - [Iran's Raisi urges Japan to release frozen funds, then wavers](https://news.yahoo.com/irans-raisi-urges-japan-release-081920888.html)
 - Aug 29 - [Medvedev begins to frighten world with apocalypse](https://news.yahoo.com/medvedev-begins-frighten-world-apocalypse-062900747.html)
-- Aug 29 - [Daughter of Thailand's ex-PM Thaksin says clemency request "up to him"](https://news.yahoo.com/daughter-ex-pm-thaksin-says-061737281.html)
-- Aug 29 - [Former Judge Rips Trump Lawyers for ‘Stunningly Stupid’ Move](https://www.yahoo.com/entertainment/former-judge-rips-trump-lawyers-042108919.html)
-- Aug 29 - [Recruiting is underway for Trump-like 'wrecking ball' to shrink government and fire federal workers](https://news.yahoo.com/recruiting-underway-trump-wrecking-ball-040301796.html)
 <!-- feed end -->
 
 ### Onstream
