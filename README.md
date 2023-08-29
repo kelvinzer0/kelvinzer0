@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Russian mercenaries bury Prigozhin's logistics chief](https://news.yahoo.com/russian-mercenaries-bury-prigozhins-logistics-144615877.html)
-- Aug 29 - [Melania Trump's Reported Reaction to Donald Trump's Mug Shot Gives an Indication to Whose Side She's On](https://www.yahoo.com/entertainment/melania-trumps-reported-reaction-donald-133612261.html)
-- Aug 29 - [“He is toast”: Legal experts call out Mark Meadows’ “incriminating admission” on the witness stand](https://news.yahoo.com/toast-legal-experts-call-mark-130116237.html)
-- Aug 29 - [Ukraine claims it damaged prized Russian jets using 'cardboard' drones from Australia in a daring raid](https://news.yahoo.com/ukraine-claims-damaged-prized-russian-115010616.html)
-- Aug 29 - [Software CEO worth almost $12 billion says he goes into the office ‘about once a quarter,’ bucking the return to office trend in Big Tech](https://finance.yahoo.com/news/software-ceo-worth-almost-12-113702652.html)
+- Aug 29 - [Doctoral student arrested on murder charge in fatal shooting of UNC faculty member, source says](https://news.yahoo.com/police-working-determine-motive-gun-045951904.html)
+- Aug 29 - [Justice Amy Coney Barrett arranged for someone to sing songs from 'Hamilton' at Ketanji Brown Jackson's welcome party](https://news.yahoo.com/justice-amy-coney-barrett-arranged-143126427.html)
+- Aug 29 - [India lodges strong protest with China over map claiming 'India's territory'](https://news.yahoo.com/india-lodges-strong-protest-china-150405036.html)
+- Aug 29 - [The American dream is no longer about getting rich, owning a home for small business owners, survey finds — here’s what the cost-of-living crisis has these folks chasing instead](https://finance.yahoo.com/news/american-dream-no-longer-getting-150000041.html)
+- Aug 29 - [Radical Environmentalists Plowed By Chevy Silverado](https://news.yahoo.com/radical-environmentalists-plowed-chevy-silverado-150000916.html)
 <!-- feed end -->
 
 ### Onstream
