@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Use nuclear strike to stop Ukraine’s counter-offensive, says former Russian general](https://news.yahoo.com/former-russian-general-calls-nuclear-174549733.html)
+- Aug 29 - [UNC graduate student arrested on murder charge in fatal shooting of faculty member, police say](https://news.yahoo.com/police-working-determine-motive-gun-045951904.html)
+- Aug 29 - [Photographer finds herself surrounded by wolf pack in Arctic. See ‘incredible’ moment](https://news.yahoo.com/photographer-finds-herself-surrounded-wolf-175406832.html)
+- Aug 29 - [Finland counted its bomb shelters and found 50,500 of them](https://news.yahoo.com/finland-counted-bomb-shelters-found-175405706.html)
 - Aug 29 - [If Harvard Succeeds In Revoking Francesca Gino’s Tenure, It Would Be History Making](https://finance.yahoo.com/news/harvard-succeeds-revoking-francesca-gino-173153348.html)
 - Aug 29 - [Siblings make progress after NYC hammer attack that killed their mother, left them fighting for life](https://news.yahoo.com/siblings-progress-nyc-hammer-attack-171255914.html)
-- Aug 29 - [Buster Murdaugh Opens Up on ‘Odd’ Thing During Dad’s Trial](https://news.yahoo.com/buster-murdaugh-opens-odd-thing-165037128.html)
-- Aug 29 - [The Jacksonville gunman’s dad called 911 after the deadly rampage started. Here’s what he said about his son](https://news.yahoo.com/security-guard-says-students-warnings-095216283.html)
 <!-- feed end -->
 
 ### Onstream
