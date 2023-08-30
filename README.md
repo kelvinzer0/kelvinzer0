@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [Kremlin says Prigozhin plane crash may have been caused deliberately](https://news.yahoo.com/kremlin-says-prigozhin-plane-crash-101911500.html)
+- Aug 30 - [Details emerge on the cause of a violent crash with a Corvette at GM Proving Ground](https://finance.yahoo.com/news/details-emerge-cause-violent-crash-100240495.html)
+- Aug 30 - ['Gloriously Wrong': Law Expert Gladly Takes Back Prediction About Trump's Fate](https://news.yahoo.com/gloriously-wrong-law-expert-gladly-093609934.html)
 - Aug 30 - [Trump’s ‘Lunatic’ Attack On Biden Gets Turned Right Back Against Him](https://news.yahoo.com/trump-lunatic-attack-biden-gets-090553815.html)
 - Aug 30 - [Texas family of 4 dead in apparent murder-suicide weeks after daughter’s drowning](https://news.yahoo.com/texas-family-4-dead-apparent-073933694.html)
-- Aug 30 - [Thai police say man kills his family after online scam leaves them in massive debt](https://news.yahoo.com/thai-man-kills-3-family-072851438.html)
-- Aug 30 - [A Hawaiian family with a ten-generation history in West Maui has put up a sign stating "Tourist Keep Out"](https://news.yahoo.com/hawaiian-family-ten-generation-history-020349977.html)
-- Aug 30 - [Chris Christie Taunts Trump With The '1 Thing He Cannot Stand'](https://news.yahoo.com/chris-christie-taunts-trump-1-053016501.html)
 <!-- feed end -->
 
 ### Onstream
