@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [Chris Christie Taunts Trump With The '1 Thing He Cannot Stand'](https://news.yahoo.com/chris-christie-taunts-trump-1-053016501.html)
 - Aug 30 - [As Trump and Republicans target Georgia's Fani Willis for retribution, the state's governor opts out](https://news.yahoo.com/trump-republicans-target-georgias-fani-040755203.html)
-- Aug 30 - [Ukraine launches biggest drone attack on Russian soil in 18 months: state media](https://news.yahoo.com/ukraine-launches-biggest-drone-attack-022412224.html)
+- Aug 30 - [Chess prodigy accused of cheating with vibrating sex toys settles legal fight](https://news.yahoo.com/chess-prodigy-accused-cheating-vibrating-022055756.html)
 - Aug 30 - [A Hawaiian family with a ten-generation history in East Maui has put up a sign stating "Tourist Keep Out"](https://news.yahoo.com/hawaiian-family-ten-generation-history-020349977.html)
 - Aug 30 - [National Archives says it has 5,000 emails potentially linked to alleged Biden pseudonyms: Lawsuit](https://news.yahoo.com/national-archives-says-5-000-012440755.html)
-- Aug 29 - [Myon Burrell, who was sent to prison for life as a teen but set free in 2020, is arrested](https://news.yahoo.com/myon-burrell-sent-prison-life-234543472.html)
 <!-- feed end -->
 
 ### Onstream
