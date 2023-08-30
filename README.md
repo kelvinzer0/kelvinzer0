@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [Trump’s ‘Lunatic’ Attack On Biden Gets Turned Right Back Against Him](https://news.yahoo.com/trump-lunatic-attack-biden-gets-090553815.html)
 - Aug 30 - [Texas family of 4 dead in apparent murder-suicide weeks after daughter’s drowning](https://news.yahoo.com/texas-family-4-dead-apparent-073933694.html)
+- Aug 30 - [Thai police say man kills his family after online scam leaves them in massive debt](https://news.yahoo.com/thai-man-kills-3-family-072851438.html)
 - Aug 30 - [A Hawaiian family with a ten-generation history in West Maui has put up a sign stating "Tourist Keep Out"](https://news.yahoo.com/hawaiian-family-ten-generation-history-020349977.html)
 - Aug 30 - [Chris Christie Taunts Trump With The '1 Thing He Cannot Stand'](https://news.yahoo.com/chris-christie-taunts-trump-1-053016501.html)
-- Aug 30 - [Gabon army officers say they have seized power after election](https://news.yahoo.com/gabonese-military-officers-announce-seized-050347401.html)
-- Aug 30 - [As Trump and Republicans target Georgia's Fani Willis for retribution, the state's governor opts out](https://news.yahoo.com/trump-republicans-target-georgias-fani-040755203.html)
 <!-- feed end -->
 
 ### Onstream
