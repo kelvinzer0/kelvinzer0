@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [‘You Got What You Wanted’: Outraged Hawaii Resident Blames Oprah Winfrey for Maui Wildfires Amid Reports About Her Growing Popularity on Social Media](https://www.yahoo.com/entertainment/got-wanted-outraged-hawaii-resident-113519068.html)
 - Aug 30 - [Russian planes keep getting blown up in airfields hundreds of miles from the fighting, exposing embarrassing gaps in its defenses](https://news.yahoo.com/russian-planes-keep-getting-blown-112441747.html)
 - Aug 30 - ['Lifting Heavy Weights Scored Me Ab Definition For The First Time Ever At Age 43'](https://www.yahoo.com/lifestyle/lifting-heavy-weights-scored-ab-110000210.html)
 - Aug 30 - [What does the Tampa Bay area look like as floods rush in from Idalia? Take a look](https://news.yahoo.com/does-tampa-bay-area-look-102905262.html)
 - Aug 30 - [Kremlin says Prigozhin plane may have been downed on purpose](https://news.yahoo.com/kremlin-says-prigozhin-plane-crash-101911500.html)
-- Aug 30 - [Details emerge on the cause of a violent crash with a Corvette at GM Proving Ground](https://finance.yahoo.com/news/details-emerge-cause-violent-crash-100240495.html)
 <!-- feed end -->
 
 ### Onstream
