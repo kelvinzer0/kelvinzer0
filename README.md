@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - ['The Country Was Thriving': Joe Rogan Says That 'More Things Were Getting Done' When Donald Trump Was President — Unemployment Was Down, Regulations Relaxed. Is He Right?](https://finance.yahoo.com/news/country-thriving-joe-rogan-says-162219415.html)
+- Aug 30 - [‘I was attacked by a homeless man in San Francisco, and he knew how to play the system’](https://news.yahoo.com/attacked-homeless-man-san-francisco-160000881.html)
+- Aug 30 - [I smoked weed daily for 12 years. I quit cold turkey when I realized it was standing between me and my goals.](https://www.yahoo.com/lifestyle/smoked-weed-daily-12-years-153101579.html)
 - Aug 30 - [The Three Fingers of Death Have Arrived in Ukraine](https://news.yahoo.com/three-fingers-death-arrived-ukraine-152700414.html)
 - Aug 30 - [Rudy Giuliani is liable for defaming Georgia election workers, judge rules](https://news.yahoo.com/judge-rules-giuliani-liable-defaming-151022119.html)
-- Aug 30 - [Laura Ingraham Tells John Eastman 'I Haven't Seen' Any Evidence Of Election Fraud](https://news.yahoo.com/laura-ingraham-tells-john-eastman-145919309.html)
-- Aug 30 - [Toyota Century SUV confirmed, September 6 debut announced](https://www.autoblog.com/2023/08/30/toyota-century-suv-confirmed-september-6-debut-announced/)
-- Aug 30 - [A hidden Tesla feature nicknamed 'Elon mode' is under scrutiny from regulators after a hacker discovered a way to get rid of a prompt to drivers to keep their hands on the wheel](https://news.yahoo.com/hidden-tesla-feature-nicknamed-elon-113601534.html)
 <!-- feed end -->
 
 ### Onstream
