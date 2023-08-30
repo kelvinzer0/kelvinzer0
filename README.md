@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Severe Flooding Hits Tampa Bay Area as Idalia Moves In](https://news.yahoo.com/severe-flooding-hits-tampa-bay-133030091.html)
+- Aug 30 - [Court says Netanyahu's son must pay damages to woman he implied had affair with his father's rival](https://news.yahoo.com/court-says-netanyahus-son-must-145516240.html)
+- Aug 30 - [Ivanka & Tiffany Trump's Relationship Has Reportedly Taken a Drastic Turn After Donald’s Indictments](https://www.yahoo.com/entertainment/ivanka-tiffany-trumps-relationship-reportedly-141000928.html)
 - Aug 30 - [Toyota Century SUV confirmed, September 6 debut announced](https://www.autoblog.com/2023/08/30/toyota-century-suv-confirmed-september-6-debut-announced/)
 - Aug 30 - [A hidden Tesla feature nicknamed 'Elon mode' is under scrutiny from regulators after a hacker discovered a way to get rid of a prompt to drivers to keep their hands on the wheel](https://news.yahoo.com/hidden-tesla-feature-nicknamed-elon-113601534.html)
 - Aug 30 - [‘You Got What You Wanted’: Outraged Hawaii Resident Blames Oprah Winfrey for Maui Wildfires Amid Reports About Her Growing Popularity on Social Media](https://www.yahoo.com/entertainment/got-wanted-outraged-hawaii-resident-113519068.html)
-- Aug 30 - [Russian planes keep getting blown up in airfields hundreds of miles from the fighting, exposing embarrassing gaps in its defenses](https://news.yahoo.com/russian-planes-keep-getting-blown-112441747.html)
 <!-- feed end -->
 
 ### Onstream
