@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [West Point time capsule that appeared to contain nothing more than silt yields centuries-old coins](https://news.yahoo.com/west-point-time-capsule-appeared-221949404.html)
+- Aug 30 - [‘Just Because You’re Black, Doesn’t Mean You’re That’: White Customer Threatens Violence, Calls Dollar General Employee the N-Word After She Reportedly Enters the Store at Closing](https://news.yahoo.com/just-because-black-doesn-t-220000726.html)
 - Aug 30 - [Man who fatally shot South Carolina college student entering wrong home was justified, police say](https://news.yahoo.com/man-fatally-shot-south-carolina-211634503.html)
 - Aug 30 - [New York attorney general seeks immediate verdict in fraud lawsuit against Donald Trump](https://news.yahoo.com/york-attorney-general-seeks-immediate-210048289.html)
-- Aug 30 - [Designers Say The Only Way To Fix The Cybertruck Is To Scrap It And Start Over](https://news.yahoo.com/designers-only-way-fix-cybertruck-204500651.html)
-- Aug 30 - [Legal experts: Judge's order in Mark Meadows case "could be very bad news" for Fani Willis](https://news.yahoo.com/legal-experts-judges-order-mark-190557801.html)
-- Aug 30 - [‘This Could Have Been… Different’: Armed White Man In Camouflage Vest Turned Away from Black Church, Foiling Mass Shooting Attempt Day After Jacksonville Dollar Store Attack](https://news.yahoo.com/could-different-armed-white-man-183000080.html)
+- Aug 30 - [Designer Says The Only Way To Fix The Cybertruck Is To Scrap It And Start Over](https://news.yahoo.com/designers-only-way-fix-cybertruck-204500651.html)
 <!-- feed end -->
 
 ### Onstream
