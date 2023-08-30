@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [US embassy in Haiti urges citizens to leave country 'as soon as possible'](https://news.yahoo.com/us-embassy-haiti-urges-citizens-174331077.html)
+- Aug 30 - [Mitch McConnell Suddenly Freezes Again While Talking to Reporters](https://news.yahoo.com/mitch-mcconnell-suddenly-freezes-again-173405240.html)
+- Aug 30 - [California a step closer to becoming 1st state to officially ban caste discrimination](https://news.yahoo.com/california-step-closer-becoming-1st-171231548.html)
 - Aug 30 - ['The Country Was Thriving': Joe Rogan Says That 'More Things Were Getting Done' When Donald Trump Was President — Unemployment Was Down, Regulations Relaxed. Is He Right?](https://finance.yahoo.com/news/country-thriving-joe-rogan-says-162219415.html)
 - Aug 30 - [‘I was attacked by a homeless man in San Francisco, and he knew how to play the system’](https://news.yahoo.com/attacked-homeless-man-san-francisco-160000881.html)
-- Aug 30 - [I smoked weed daily for 12 years. I quit cold turkey when I realized it was standing between me and my goals.](https://www.yahoo.com/lifestyle/smoked-weed-daily-12-years-153101579.html)
-- Aug 30 - [The Three Fingers of Death Have Arrived in Ukraine](https://news.yahoo.com/three-fingers-death-arrived-ukraine-152700414.html)
-- Aug 30 - [Rudy Giuliani is liable for defaming Georgia election workers, judge rules](https://news.yahoo.com/judge-rules-giuliani-liable-defaming-151022119.html)
 <!-- feed end -->
 
 ### Onstream
