@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Aug 30 - [Tucker Carlson: ‘Obviously’ We’re ‘Speeding Toward Assassination’ of Trump](https://www.yahoo.com/entertainment/tucker-carlson-obviously-speeding-toward-192046370.html)
 - Aug 30 - [Legal experts: Judge's order in Mark Meadows case "could be very bad news" for Fani Willis](https://news.yahoo.com/legal-experts-judges-order-mark-190557801.html)
 - Aug 30 - [‘This Could Have Been… Different’: Armed White Man In Camouflage Vest Turned Away from Black Church, Foiling Mass Shooting Attempt Day After Jacksonville Dollar Store Attack](https://news.yahoo.com/could-different-armed-white-man-183000080.html)
+- Aug 30 - [Navy vet brutally mugged in Philadelphia while walking his dog, gets 100 stitches](https://news.yahoo.com/navy-vet-brutally-mugged-philadelphia-182543258.html)
 - Aug 30 - [Rudy Giuliani, who keeps telling courts he's broke, just got hit with a $132,000 bill from a judge](https://news.yahoo.com/rudy-giuliani-keeps-telling-courts-161533551.html)
-- Aug 30 - [US embassy in Haiti urges citizens to leave country 'as soon as possible'](https://news.yahoo.com/us-embassy-haiti-urges-citizens-174331077.html)
 <!-- feed end -->
 
 ### Onstream
