@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [US embassy in Haiti urges citizens to leave country 'as soon as possible'](https://news.yahoo.com/us-embassy-haiti-urges-citizens-174331077.html)
-- Aug 30 - [Mitch McConnell Suddenly Freezes Again While Talking to Reporters](https://news.yahoo.com/mitch-mcconnell-suddenly-freezes-again-173405240.html)
-- Aug 30 - [California a step closer to becoming 1st state to officially ban caste discrimination](https://news.yahoo.com/california-step-closer-becoming-1st-171231548.html)
-- Aug 30 - ['The Country Was Thriving': Joe Rogan Says That 'More Things Were Getting Done' When Donald Trump Was President — Unemployment Was Down, Regulations Relaxed. Is He Right?](https://finance.yahoo.com/news/country-thriving-joe-rogan-says-162219415.html)
-- Aug 30 - [‘I was attacked by a homeless man in San Francisco, and he knew how to play the system’](https://news.yahoo.com/attacked-homeless-man-san-francisco-160000881.html)
+- Aug 30 - [Barstool Sports Undergoes Layoffs; Dave Portnoy Admits “It Sucks”](https://www.yahoo.com/entertainment/barstool-sports-undergoes-layoffs-dave-183025367.html)
+- Aug 30 - [McConnell freezes during July 2023 press conference](https://news.yahoo.com/mcconnell-freezes-press-conference-unable-184211669.html)
+- Aug 30 - [Senate GOP leader Mitch McConnell appears to freeze up again, this time at a Kentucky event](https://news.yahoo.com/senate-gop-leader-mitch-mcconnell-181636165.html)
+- Aug 30 - [Rudy Giuliani, who keeps telling courts he's broke, just got hit with a $132,000 bill from a judge](https://news.yahoo.com/rudy-giuliani-keeps-telling-courts-161533551.html)
+- Aug 30 - [US Senate's McConnell freezes up for second time in public appearance](https://news.yahoo.com/us-senates-mcconnell-freezes-second-174649636.html)
 <!-- feed end -->
 
 ### Onstream
