@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [This viral ab exercise looks like a hoax, but experts say it's actually effective](https://news.yahoo.com/ab-exercise-called-stomach-vacuum-164749376.html)
+- Aug 29 - [Myon Burrell, who was sent to prison for life as a teen but set free in 2020, is arrested](https://news.yahoo.com/myon-burrell-sent-prison-life-234543472.html)
 - Aug 29 - [The Jacksonville gunman’s dad called 911 after the deadly rampage started. Here’s what he said about his son](https://news.yahoo.com/security-guard-says-students-warnings-095216283.html)
-- Aug 29 - [Trump Defenses of Georgia Phone Call Are Strong Arguments Against Trump 2024 Campaign](https://news.yahoo.com/trump-defenses-georgia-phone-call-203020705.html)
-- Aug 29 - [UNC graduate student charged with murder in fatal shooting of associate professor](https://news.yahoo.com/police-working-determine-motive-gun-045951904.html)
-- Aug 29 - [Notting Hill Carnival is unmanageable, say police, as youths brawl with machetes](https://news.yahoo.com/police-officer-sexually-assaulted-six-113115074.html)
+- Aug 29 - [A judge told Kansas authorities to destroy electronic copies of newspaper's files taken during raid](https://news.yahoo.com/judge-told-kansas-authorities-destroy-230656584.html)
+- Aug 29 - [Backstreet Boys singer Nick Carter accused of sexually assaulting 15-year-old on yacht: lawsuit](https://news.yahoo.com/backstreet-boys-singer-nick-carter-222136723.html)
+- Aug 29 - [This viral ab exercise looks like a hoax, but experts say it's actually effective](https://news.yahoo.com/ab-exercise-called-stomach-vacuum-164749376.html)
 <!-- feed end -->
 
 ### Onstream
