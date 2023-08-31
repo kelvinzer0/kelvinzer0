@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [Disney's firefighters backed DeSantis as he feuded with the company. Now his new board ignored their pleas and stripped away their park benefits.](https://news.yahoo.com/disneys-firefighters-backed-desantis-feuded-143443169.html)
+- Aug 31 - [US exploring land border delineation between Lebanon, Israel -White House adviser](https://news.yahoo.com/us-exploring-land-border-delineation-164524778.html)
+- Aug 31 - [Ex-Proud Boys organizer gets 17 years in prison, second longest sentence in Jan. 6 Capitol riot case](https://news.yahoo.com/ex-proud-boys-organizer-sentenced-164236490.html)
 - Aug 31 - [One of YouTube's most famous family creators was arrested on child-abuse claims. Viewers think they saw it coming.](https://www.yahoo.com/entertainment/one-youtubes-most-famous-family-121743366.html)
+- Aug 31 - [Disney's firefighters backed DeSantis as he feuded with the company. Now his new board ignored their pleas and stripped away their park benefits.](https://news.yahoo.com/disneys-firefighters-backed-desantis-feuded-143443169.html)
 - Aug 31 - [Kim Jong Un feasted at a lavish banquet with gaudy lighting and a showstopping scale model of a nuclear missile](https://news.yahoo.com/kim-jong-un-feasted-lavish-151307347.html)
-- Aug 31 - [Driver with Adult Bull in Passenger Seat Pulled Over by Nebraska Police: ‘Some Citable Issues’](https://www.yahoo.com/entertainment/driver-adult-bull-passenger-seat-143032092.html)
-- Aug 31 - [Southwest Airlines pilots send a scary message to passengers](https://www.thestreet.com/travel/southwest-airlines-pilots-send-a-scary-message-to-passengers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
