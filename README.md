@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Raskin: Trump could learn from early Georgia trials](https://news.yahoo.com/raskin-trump-could-learn-early-172753026.html)
+- Aug 31 - [Zelenskyy says Ukraine has developed a long-range weapon, a day after a strike deep inside Russia](https://news.yahoo.com/zelenskyy-says-ukraine-developed-long-125923978.html)
+- Aug 31 - [One of YouTube's most famous family creators was arrested on child-abuse claims. Viewers think they saw it coming.](https://www.yahoo.com/entertainment/one-youtubes-most-famous-family-121743366.html)
 - Aug 31 - ['Just Confessed': Law Experts Say John Eastman's Fox Interview Was A Very Bad Call](https://news.yahoo.com/just-confessed-law-experts-john-113805608.html)
-- Aug 31 - [‘Ma’am This Is Not Funny’: Erykah Badu Faces Backlash for Appearing to Make a ‘Mockery’ of Sign Language Interpreters In New Video](https://www.yahoo.com/entertainment/ma-am-not-funny-erykah-113000771.html)
-- Aug 31 - [Video shows a Ukrainian soldier celebrating after his first-person-view drone slams into a Russian military truck from behind](https://news.yahoo.com/video-shows-ukrainian-soldier-celebrating-104251780.html)
-- Aug 31 - [Pictured: New Loch Ness monster 'sighting'](https://news.yahoo.com/pictured-loch-ness-monster-sighting-101146370.html)
-- Aug 31 - [Philippines, Taiwan, Malaysia reject China's latest South China Sea map](https://news.yahoo.com/philippines-taiwan-malaysia-reject-chinas-095816678.html)
+- Aug 31 - [Frustrating before-and-after photos of this city’s highway transformation have people outraged: ‘This breaks my heart’](https://news.yahoo.com/frustrating-photos-city-highway-transformation-040000111.html)
 <!-- feed end -->
 
 ### Onstream
