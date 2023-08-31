@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [Alex Murdaugh loses prison phone privileges after lawyer records phone call for documentary](https://news.yahoo.com/alex-murdaugh-loses-prison-phone-231137827.html)
+- Aug 30 - [An elite team of Ukrainian snipers dubbed 'Devils and Angels' is taking out top Russian commanders to demoralize troops: 'We work quietly, we are invisible'](https://news.yahoo.com/elite-team-ukrainian-snipers-dubbed-224226007.html)
 - Aug 30 - [West Point time capsule that appeared to contain nothing more than silt yields centuries-old coins](https://news.yahoo.com/west-point-time-capsule-appeared-221949404.html)
-- Aug 30 - [‘Just Because You’re Black, Doesn’t Mean You’re That’: White Customer Threatens Violence, Calls Dollar General Employee the N-Word After She Reportedly Enters the Store at Closing](https://news.yahoo.com/just-because-black-doesn-t-220000726.html)
 - Aug 30 - [Man who fatally shot South Carolina college student entering wrong home was justified, police say](https://news.yahoo.com/man-fatally-shot-south-carolina-211634503.html)
-- Aug 30 - [New York attorney general seeks immediate verdict in fraud lawsuit against Donald Trump](https://news.yahoo.com/york-attorney-general-seeks-immediate-210048289.html)
-- Aug 30 - [Designer Says The Only Way To Fix The Cybertruck Is To Scrap It And Start Over](https://news.yahoo.com/designers-only-way-fix-cybertruck-204500651.html)
+- Aug 30 - [Trump dismissive as New York attorney general accuses him of inflating his net worth by $2 billion](https://news.yahoo.com/york-attorney-general-seeks-immediate-210048289.html)
 <!-- feed end -->
 
 ### Onstream
