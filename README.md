@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - ['Just Confessed': Law Experts Say John Eastman's Fox Interview Was A Very Bad Call](https://news.yahoo.com/just-confessed-law-experts-john-113805608.html)
+- Aug 31 - [‘Ma’am This Is Not Funny’: Erykah Badu Faces Backlash for Appearing to Make a ‘Mockery’ of Sign Language Interpreters In New Video](https://www.yahoo.com/entertainment/ma-am-not-funny-erykah-113000771.html)
+- Aug 31 - [Video shows a Ukrainian soldier celebrating after his first-person-view drone slams into a Russian military truck from behind](https://news.yahoo.com/video-shows-ukrainian-soldier-celebrating-104251780.html)
 - Aug 31 - [Pictured: New Loch Ness monster 'sighting'](https://news.yahoo.com/pictured-loch-ness-monster-sighting-101146370.html)
-- Aug 31 - [Trump conspirators beware: Rudy Giuliani's loss is a reminder that the courtroom is MAGA kryptonite](https://news.yahoo.com/trump-conspirators-beware-rudy-giulianis-100101443.html)
-- Aug 31 - [First photos of damaged Russian jets seen after Ukraine’s brazen drone attack on Russia’s Pskov airbase](https://news.yahoo.com/first-photos-damaged-russian-jets-095100448.html)
-- Aug 31 - [Late Russian mercenary Prigozhin spoke about his security in newly surfaced video](https://news.yahoo.com/russian-mercenary-prigozhin-spoke-security-082046569.html)
-- Aug 31 - [Huge losses for Russian army in Ukraine – 600 soldiers and dozens of vehicles destroyed in one day](https://news.yahoo.com/huge-losses-russian-army-ukraine-080900888.html)
+- Aug 31 - [Philippines, Taiwan, Malaysia reject China's latest South China Sea map](https://news.yahoo.com/philippines-taiwan-malaysia-reject-chinas-095816678.html)
 <!-- feed end -->
 
 ### Onstream
