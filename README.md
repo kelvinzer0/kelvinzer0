@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Disney's firefighters backed DeSantis as he feuded with the company. Now his new board ignored their pleas and stripped away their park benefits.](https://news.yahoo.com/disneys-firefighters-backed-desantis-feuded-143443169.html)
+- Aug 31 - [One of YouTube's most famous family creators was arrested on child-abuse claims. Viewers think they saw it coming.](https://www.yahoo.com/entertainment/one-youtubes-most-famous-family-121743366.html)
+- Aug 31 - [Kim Jong Un feasted at a lavish banquet with gaudy lighting and a showstopping scale model of a nuclear missile](https://news.yahoo.com/kim-jong-un-feasted-lavish-151307347.html)
 - Aug 31 - [Driver with Adult Bull in Passenger Seat Pulled Over by Nebraska Police: ‘Some Citable Issues’](https://www.yahoo.com/entertainment/driver-adult-bull-passenger-seat-143032092.html)
 - Aug 31 - [Southwest Airlines pilots send a scary message to passengers](https://www.thestreet.com/travel/southwest-airlines-pilots-send-a-scary-message-to-passengers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Aug 31 - [4 Giant Russian Cargo Jets Just Went Up in Flames 400 Miles From Ukraine](https://news.yahoo.com/4-giant-russian-cargo-jets-141300011.html)
-- Aug 31 - [How did we get here? The dumbing of America, from Reagan to Trump and beyond](https://news.yahoo.com/did-dumbing-america-reagan-trump-130501647.html)
-- Aug 31 - [Zelenskyy says Ukraine has developed a long-range weapon, a day after a strike deep inside Russia](https://news.yahoo.com/zelenskyy-says-ukraine-developed-long-125923978.html)
 <!-- feed end -->
 
 ### Onstream
