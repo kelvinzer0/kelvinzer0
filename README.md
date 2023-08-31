@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [Raskin: Trump could learn from early Georgia trials](https://news.yahoo.com/raskin-trump-could-learn-early-172753026.html)
+- Aug 31 - [Driver with Adult Bull in Passenger Seat Pulled Over by Nebraska Police: ‘Some Citable Issues’](https://www.yahoo.com/entertainment/driver-adult-bull-passenger-seat-143032092.html)
+- Aug 31 - [Southwest Airlines pilots send a scary message to passengers](https://www.thestreet.com/travel/southwest-airlines-pilots-send-a-scary-message-to-passengers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Aug 31 - [4 Giant Russian Cargo Jets Just Went Up in Flames 400 Miles From Ukraine](https://news.yahoo.com/4-giant-russian-cargo-jets-141300011.html)
+- Aug 31 - [How did we get here? The dumbing of America, from Reagan to Trump and beyond](https://news.yahoo.com/did-dumbing-america-reagan-trump-130501647.html)
 - Aug 31 - [Zelenskyy says Ukraine has developed a long-range weapon, a day after a strike deep inside Russia](https://news.yahoo.com/zelenskyy-says-ukraine-developed-long-125923978.html)
-- Aug 31 - [One of YouTube's most famous family creators was arrested on child-abuse claims. Viewers think they saw it coming.](https://www.yahoo.com/entertainment/one-youtubes-most-famous-family-121743366.html)
-- Aug 31 - ['Just Confessed': Law Experts Say John Eastman's Fox Interview Was A Very Bad Call](https://news.yahoo.com/just-confessed-law-experts-john-113805608.html)
-- Aug 31 - [Frustrating before-and-after photos of this city’s highway transformation have people outraged: ‘This breaks my heart’](https://news.yahoo.com/frustrating-photos-city-highway-transformation-040000111.html)
 <!-- feed end -->
 
 ### Onstream
