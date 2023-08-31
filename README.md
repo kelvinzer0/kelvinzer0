@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [‘Cuomo’ Slams Marjorie Taylor Greene’s Call to Address ‘Mental Incompetence’ in U.S. Leaders: ‘You Talking About Yourself?’ (Video)](https://www.yahoo.com/entertainment/cuomo-slams-marjorie-taylor-greene-173403996.html)
-- Aug 31 - [15 Weird Photos For The Easily Unsettled That'll Make You Double Check If You're In The Right Dimension](https://www.yahoo.com/lifestyle/15-weird-photos-easily-unsettled-172102900.html)
+- Aug 31 - [Georgia governor rejects call for special session to remove DA over Trump indictment](https://news.yahoo.com/georgia-governor-rejects-call-special-184337398.html)
+- Aug 31 - [Wisconsin's new liberal Supreme Court justice hasn't heard a case but Republicans may impeach](https://news.yahoo.com/wisconsins-liberal-supreme-court-justice-171219090.html)
 - Aug 31 - [This Detail Could Be Melania Trump's 'Last Straw' Before Divorcing Donald Trump, Claims Expert](https://www.yahoo.com/entertainment/detail-could-melania-trumps-last-170859343.html)
 - Aug 31 - [New Documents Show Why Christine Baumgartner Is Trying to Invalidate Her Prenup With Kevin Costner & It’s Even Messier Than We Thought](https://www.yahoo.com/entertainment/documents-show-why-christine-baumgartner-164938894.html)
 - Aug 31 - [Ex-Proud Boys organizer gets 17 years in prison, second longest sentence in Jan. 6 Capitol riot case](https://news.yahoo.com/ex-proud-boys-organizer-sentenced-164236490.html)
