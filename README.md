@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Aug 31 - [Georgia governor rejects call for special session to remove DA over Trump indictment](https://news.yahoo.com/georgia-governor-rejects-call-special-184337398.html)
+- Aug 31 - [Boaters rescue ‘exhausted’ deer found swimming in ocean, Massachusetts cops say](https://news.yahoo.com/boaters-rescue-exhausted-deer-found-183936875.html)
+- Aug 31 - [Trump rambled so much in a NY fraud-case deposition, a lawyer griped, 'we're going to be here until midnight'](https://news.yahoo.com/trump-rambled-much-ny-fraud-183431452.html)
 - Aug 31 - [Wisconsin's new liberal Supreme Court justice hasn't heard a case but Republicans may impeach](https://news.yahoo.com/wisconsins-liberal-supreme-court-justice-171219090.html)
 - Aug 31 - [This Detail Could Be Melania Trump's 'Last Straw' Before Divorcing Donald Trump, Claims Expert](https://www.yahoo.com/entertainment/detail-could-melania-trumps-last-170859343.html)
-- Aug 31 - [New Documents Show Why Christine Baumgartner Is Trying to Invalidate Her Prenup With Kevin Costner & It’s Even Messier Than We Thought](https://www.yahoo.com/entertainment/documents-show-why-christine-baumgartner-164938894.html)
-- Aug 31 - [Ex-Proud Boys organizer gets 17 years in prison, second longest sentence in Jan. 6 Capitol riot case](https://news.yahoo.com/ex-proud-boys-organizer-sentenced-164236490.html)
 <!-- feed end -->
 
 ### Onstream
