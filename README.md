@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Here's how Fox News hosts really feel about Trump](https://news.yahoo.com/heres-fox-news-hosts-really-191456342.html)
+- Aug 31 - [Kevin Costner's Ex Christine Cries During Child Support Hearing, Attorney Says Luxury Is in Kids' 'DNA'](https://www.yahoo.com/entertainment/kevin-costners-ex-christine-cries-203258001.html)
+- Aug 31 - ['Extremely dangerous' convicted murderer escapes from Pennsylvania prison: DA](https://www.yahoo.com/gma/extremely-dangerous-convicted-murderer-escapes-195107839.html)
+- Aug 31 - [‘Wouldn’t Give Him a Nickel’: Rudy Giuliani’s Debt Piles Up After Judge Rules He Must Pay Georgia Election Workers In Defamation Lawsuit As Former Backers Flake on Him](https://news.yahoo.com/wouldn-t-him-nickel-rudy-190000396.html)
 - Aug 31 - [Georgia governor rejects call for special session to remove DA over Trump indictment](https://news.yahoo.com/georgia-governor-rejects-call-special-184337398.html)
-- Aug 31 - [Boaters rescue ‘exhausted’ deer found swimming in ocean, Massachusetts cops say](https://news.yahoo.com/boaters-rescue-exhausted-deer-found-183936875.html)
-- Aug 31 - [Trump rambled so much in a NY fraud-case deposition, a lawyer griped, 'we're going to be here until midnight'](https://news.yahoo.com/trump-rambled-much-ny-fraud-183431452.html)
-- Aug 31 - [Wisconsin's new liberal Supreme Court justice hasn't heard a case but Republicans may impeach](https://news.yahoo.com/wisconsins-liberal-supreme-court-justice-171219090.html)
-- Aug 31 - [This Detail Could Be Melania Trump's 'Last Straw' Before Divorcing Donald Trump, Claims Expert](https://www.yahoo.com/entertainment/detail-could-melania-trumps-last-170859343.html)
 <!-- feed end -->
 
 ### Onstream
