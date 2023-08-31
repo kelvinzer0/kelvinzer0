@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [US exploring land border delineation between Lebanon, Israel -White House adviser](https://news.yahoo.com/us-exploring-land-border-delineation-164524778.html)
+- Aug 31 - [‘Cuomo’ Slams Marjorie Taylor Greene’s Call to Address ‘Mental Incompetence’ in U.S. Leaders: ‘You Talking About Yourself?’ (Video)](https://www.yahoo.com/entertainment/cuomo-slams-marjorie-taylor-greene-173403996.html)
+- Aug 31 - [15 Weird Photos For The Easily Unsettled That'll Make You Double Check If You're In The Right Dimension](https://www.yahoo.com/lifestyle/15-weird-photos-easily-unsettled-172102900.html)
+- Aug 31 - [This Detail Could Be Melania Trump's 'Last Straw' Before Divorcing Donald Trump, Claims Expert](https://www.yahoo.com/entertainment/detail-could-melania-trumps-last-170859343.html)
+- Aug 31 - [New Documents Show Why Christine Baumgartner Is Trying to Invalidate Her Prenup With Kevin Costner & It’s Even Messier Than We Thought](https://www.yahoo.com/entertainment/documents-show-why-christine-baumgartner-164938894.html)
 - Aug 31 - [Ex-Proud Boys organizer gets 17 years in prison, second longest sentence in Jan. 6 Capitol riot case](https://news.yahoo.com/ex-proud-boys-organizer-sentenced-164236490.html)
-- Aug 31 - [One of YouTube's most famous family creators was arrested on child-abuse claims. Viewers think they saw it coming.](https://www.yahoo.com/entertainment/one-youtubes-most-famous-family-121743366.html)
-- Aug 31 - [Disney's firefighters backed DeSantis as he feuded with the company. Now his new board ignored their pleas and stripped away their park benefits.](https://news.yahoo.com/disneys-firefighters-backed-desantis-feuded-143443169.html)
-- Aug 31 - [Kim Jong Un feasted at a lavish banquet with gaudy lighting and a showstopping scale model of a nuclear missile](https://news.yahoo.com/kim-jong-un-feasted-lavish-151307347.html)
 <!-- feed end -->
 
 ### Onstream
