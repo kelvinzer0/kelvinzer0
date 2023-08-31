@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Aug 30 - [An elite team of Ukrainian snipers dubbed 'Devils and Angels' is taking out top Russian commanders to demoralize troops: 'We work quietly, we are invisible'](https://news.yahoo.com/elite-team-ukrainian-snipers-dubbed-224226007.html)
 - Aug 30 - [West Point time capsule that appeared to contain nothing more than silt yields centuries-old coins](https://news.yahoo.com/west-point-time-capsule-appeared-221949404.html)
 - Aug 30 - [Man who fatally shot South Carolina college student entering wrong home was justified, police say](https://news.yahoo.com/man-fatally-shot-south-carolina-211634503.html)
-- Aug 30 - [Trump dismissive as New York attorney general accuses him of inflating his net worth by $2 billion](https://news.yahoo.com/york-attorney-general-seeks-immediate-210048289.html)
+- Aug 30 - [New York says Trump should be found liable for fraud, even before a trial](https://news.yahoo.com/york-says-trump-found-liable-210850444.html)
 <!-- feed end -->
 
 ### Onstream
