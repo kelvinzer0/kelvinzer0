@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [Here's how Fox News hosts really feel about Trump](https://news.yahoo.com/heres-fox-news-hosts-really-191456342.html)
-- Aug 31 - [Kevin Costner's Ex Christine Cries During Child Support Hearing, Attorney Says Luxury Is in Kids' 'DNA'](https://www.yahoo.com/entertainment/kevin-costners-ex-christine-cries-203258001.html)
-- Aug 31 - ['Extremely dangerous' convicted murderer escapes from Pennsylvania prison: DA](https://www.yahoo.com/gma/extremely-dangerous-convicted-murderer-escapes-195107839.html)
-- Aug 31 - [‘Wouldn’t Give Him a Nickel’: Rudy Giuliani’s Debt Piles Up After Judge Rules He Must Pay Georgia Election Workers In Defamation Lawsuit As Former Backers Flake on Him](https://news.yahoo.com/wouldn-t-him-nickel-rudy-190000396.html)
-- Aug 31 - [Georgia governor rejects call for special session to remove DA over Trump indictment](https://news.yahoo.com/georgia-governor-rejects-call-special-184337398.html)
+- Aug 31 - [Duct-taped child begging for food, water led to arrest of family vlogger, Utah cops say](https://news.yahoo.com/duct-taped-child-begging-food-212133591.html)
+- Aug 31 - [Clarence Thomas' lawyer says a billionaire bought his mom's house because it was in a blighted neighborhood full of junkies and they wanted her to keep living there](https://news.yahoo.com/clarence-thomas-lawyer-says-billionaire-210316964.html)
+- Aug 31 - [Ukrainian snipers hunting top enemy commanders are exploiting one of the Russian military's biggest vulnerabilities](https://news.yahoo.com/ukrainian-snipers-hunting-top-enemy-205354641.html)
+- Aug 31 - [Electric cars soaked by saltwater from hurricane go up in flames, Florida officials say](https://news.yahoo.com/electric-cars-soaked-saltwater-hurricane-205349787.html)
+- Aug 31 - [New York police will use drones to monitor backyard parties this weekend, spurring privacy concerns](https://news.yahoo.com/york-police-drones-monitor-backyard-204341036.html)
 <!-- feed end -->
 
 ### Onstream
