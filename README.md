@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Russian Propagandist Says Tucker Carlson Is a ‘Dead Man Walking’](https://www.yahoo.com/entertainment/russian-propagandist-says-tucker-carlson-011546226.html)
+- Aug 31 - [Justice Department rejects subpoenas related to Hunter Biden](https://news.yahoo.com/justice-department-rejects-subpoenas-related-233136969.html)
+- Aug 31 - [This Is New Tesla Model 3 Highland](https://news.yahoo.com/could-tesla-model-3-highland-230000185.html)
 - Aug 31 - [‘Can’t Stand to See a Black Man In Their Waters’: Florida Surfer’s Board Nailed to Tree ‘Like a Lynching’ In Alleged Brazen Act of Racist Vandalism; Culprits Not Yet Found](https://news.yahoo.com/t-stand-see-black-man-220000401.html)
 - Aug 31 - [Duct-taped child begging for food, water led to arrest of family vlogger, Utah cops say](https://news.yahoo.com/duct-taped-child-begging-food-212133591.html)
-- Aug 31 - [Clarence Thomas' lawyer says a billionaire bought his mom's house because it was in a blighted neighborhood full of junkies and they wanted her to keep living there](https://news.yahoo.com/clarence-thomas-lawyer-says-billionaire-210316964.html)
-- Aug 31 - [Ukrainian snipers hunting top enemy commanders are exploiting one of the Russian military's biggest vulnerabilities](https://news.yahoo.com/ukrainian-snipers-hunting-top-enemy-205354641.html)
-- Aug 31 - [NASA Probe Spots Crashed Russian Moon Lander](https://news.yahoo.com/nasa-probe-spots-crashed-russian-204000929.html)
 <!-- feed end -->
 
 ### Onstream
