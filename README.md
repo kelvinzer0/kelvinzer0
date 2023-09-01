@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Ukraine counteroffensive against Russia finally showing signs of progress](https://news.yahoo.com/ukraine-counteroffensive-against-russia-finally-showing-signs-of-progress-153033929.html)
+- Sep 01 - [‘This Is Rude and Disrespectful’: Viral Video of Child Dressed In Costume with Flashing Lights Onboard Plane Draws Mixed Reactions on Social Media](https://news.yahoo.com/rude-disrespectful-viral-video-child-144316700.html)
+- Sep 01 - [Bob Errey, Steve Mears out as Penguins TV crew](https://news.yahoo.com/bob-errey-steve-mears-penguins-140631972.html)
 - Sep 01 - [Video shows 2 Russian helicopters and a jet failing to take out a small Ukrainian drone, Ukraine says](https://news.yahoo.com/video-shows-2-russian-helicopters-135404315.html)
-- Sep 01 - [Trump's Supporters Want To Help Him Crush Democracy. This Is What It Means For Black Folks](https://news.yahoo.com/trumps-supporters-want-help-him-133809774.html)
 - Sep 01 - [When He Ran for Congress, Opponents Called Him a ‘Security Risk’ — Now He’s Defending the U.S. (Exclusive)](https://www.yahoo.com/entertainment/ran-congress-opponents-called-him-132115632.html)
-- Sep 01 - [Ukrainian soldiers remove terrorist ‘Z’ patch from soldier after capture of Major Tomov’s combat unit – dramatic video](https://news.yahoo.com/ukrainian-soldiers-remove-terrorist-z-131300217.html)
-- Sep 01 - [“He’s in big trouble”: Experts say Mark Meadows’ “goose is cooked” after new Fani Willis filing](https://news.yahoo.com/big-trouble-experts-mark-meadows-125601688.html)
 <!-- feed end -->
 
 ### Onstream
