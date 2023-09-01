@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [“He’s in big trouble”: Experts say Mark Meadows’ “goose is cooked” after new Fani Willis filing](https://news.yahoo.com/big-trouble-experts-mark-meadows-125601688.html)
+- Sep 01 - [Fed seen done with rate hikes after jobs data](https://finance.yahoo.com/news/fed-seen-done-rate-hikes-133019125.html)
 - Sep 01 - [It seems like everyone has Covid-19. Here’s why this wave is probably worse than official data suggests](https://www.yahoo.com/lifestyle/seems-everyone-covid-19-why-114106385.html)
-- Sep 01 - [‘Trump isn’t funding any of us’: Co-defendants in Georgia case are struggling with mounting legal bills](https://news.yahoo.com/inside-cash-crunch-facing-trump-110012336.html)
-- Sep 01 - [Elon Musk stayed up playing video games in a Vancouver hotel until 5:30 a.m. after he offered to buy Twitter, because he was in 'stress mode'](https://news.yahoo.com/elon-musk-stayed-playing-video-103711068.html)
-- Sep 01 - [‘I was in complete shock’: New dating trend sees men asking for refunds when they don’t see a 'return on investment’ — how the rules of romance have changed amid high costs of living](https://finance.yahoo.com/news/complete-shock-dating-trend-sees-103000157.html)
+- Sep 01 - [Ukrainian soldiers remove terrorist ‘Z’ patch from soldier after capture of Major Tomov’s combat unit – dramatic video](https://news.yahoo.com/ukrainian-soldiers-remove-terrorist-z-131300217.html)
+- Sep 01 - [“He’s in big trouble”: Experts say Mark Meadows’ “goose is cooked” after new Fani Willis filing](https://news.yahoo.com/big-trouble-experts-mark-meadows-125601688.html)
+- Sep 01 - [Unrecognizable before-and-after photos show ‘zombie lake’ rising from the grave after years of droughts: ‘It’s been a wild year’](https://news.yahoo.com/unrecognizable-photos-show-zombie-lake-113000153.html)
 <!-- feed end -->
 
 ### Onstream
