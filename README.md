@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [‘Trump isn’t funding any of us’: Co-defendants in Georgia case are struggling with mounting legal bills](https://news.yahoo.com/inside-cash-crunch-facing-trump-110012336.html)
+- Sep 01 - [Elon Musk stayed up playing video games in a Vancouver hotel until 5:30 a.m. after he offered to buy Twitter, because he was in 'stress mode'](https://news.yahoo.com/elon-musk-stayed-playing-video-103711068.html)
+- Sep 01 - [‘I was in complete shock’: New dating trend sees men asking for refunds when they don’t see a 'return on investment’ — how the rules of romance have changed amid high costs of living](https://finance.yahoo.com/news/complete-shock-dating-trend-sees-103000157.html)
 - Sep 01 - [Russia to block G20 declaration if its views are ignored - Lavrov](https://news.yahoo.com/russia-block-g20-declaration-views-094332113.html)
-- Sep 01 - [Why is Huawei's new smartphone generating so much buzz?](https://news.yahoo.com/explainer-why-huaweis-smartphone-generating-091102723.html)
-- Sep 01 - [Trump Legal Spokesperson Makes Major Freudian Slip On What Ex-President Does 'Right'](https://news.yahoo.com/trump-legal-spokesperson-makes-major-060053578.html)
-- Sep 01 - [Trump Proudly Shows Off New T-Shirt ― With 1 Glaring Flaw](https://news.yahoo.com/trump-proudly-shows-off-t-045011040.html)
-- Sep 01 - [Haberman on what ‘struck’ her while reading Donald Trump’s deposition](https://news.yahoo.com/haberman-struck-her-while-reading-021248011.html)
+- Sep 01 - [Moscow missile plant ablaze in apparent drone attack](https://news.yahoo.com/moscow-missile-plant-ablaze-apparent-093300905.html)
 <!-- feed end -->
 
 ### Onstream
