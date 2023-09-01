@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Elon Musk met then-Twitter CEO Parag Agrawal for a secret dinner in 2022 and said Agrawal was not the 'fire-breathing dragon' the platform needed](https://news.yahoo.com/elon-musk-met-then-twitter-060531417.html)
 - Sep 01 - [Trump Proudly Shows Off New T-Shirt ― With 1 Glaring Flaw](https://news.yahoo.com/trump-proudly-shows-off-t-045011040.html)
 - Sep 01 - [Haberman on what ‘struck’ her while reading Donald Trump’s deposition](https://news.yahoo.com/haberman-struck-her-while-reading-021248011.html)
 - Sep 01 - [Disney pulls ESPN from Spectrum on 1st day of college football Week 1](https://sports.yahoo.com/disney-pulls-espn-from-spectrum-on-1st-day-of-college-football-week-1-020618027.html)
 - Sep 01 - [Nearly $200,000 worth of stolen items discovered in L.A. bust](https://news.yahoo.com/suspects-arrested-selling-nearly-200-015842736.html)
-- Sep 01 - [Elon Musk says progressive LA school has turned daughter into 'communist' who thinks 'anyone rich is evil'](https://finance.yahoo.com/news/elon-musk-says-progressive-la-015808539.html)
 <!-- feed end -->
 
 ### Onstream
