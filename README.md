@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Disney pulls ESPN from Spectrum on 1st day of college football Week 1](https://sports.yahoo.com/disney-pulls-espn-from-spectrum-on-1st-day-of-college-football-week-1-020618027.html)
 - Sep 01 - [Russian Propagandist Says Tucker Carlson Is a ‘Dead Man Walking’](https://www.yahoo.com/entertainment/russian-propagandist-says-tucker-carlson-011546226.html)
+- Sep 01 - [Florida woman in hospital gown arrested after allegedly stealing ambulance](https://news.yahoo.com/florida-woman-hospital-gown-arrested-000319381.html)
 - Aug 31 - [Justice Department rejects subpoenas related to Hunter Biden](https://news.yahoo.com/justice-department-rejects-subpoenas-related-233136969.html)
-- Aug 31 - [This Is New Tesla Model 3 Highland](https://news.yahoo.com/could-tesla-model-3-highland-230000185.html)
-- Aug 31 - [‘Can’t Stand to See a Black Man In Their Waters’: Florida Surfer’s Board Nailed to Tree ‘Like a Lynching’ In Alleged Brazen Act of Racist Vandalism; Culprits Not Yet Found](https://news.yahoo.com/t-stand-see-black-man-220000401.html)
-- Aug 31 - [Duct-taped child begging for food, water led to arrest of family vlogger, Utah cops say](https://news.yahoo.com/duct-taped-child-begging-food-212133591.html)
+- Aug 31 - [Barstool Sports Cuts 25% of Its Staff After Dave Portnoy Paid $1 to Re-Buy Site He Founded (Video)](https://www.yahoo.com/entertainment/barstool-sports-cuts-25-staff-225843277.html)
 <!-- feed end -->
 
 ### Onstream
