@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [A woman was cleaning up after Hurricane Idalia. Then a hungry sea creature showed up](https://news.yahoo.com/woman-cleaning-hurricane-idalia-then-212947614.html)
+- Sep 01 - [Mohamed Al-Fayed, Harrods owner whose son dated Princess Diana, dead at 94](https://news.yahoo.com/mohamed-al-fayed-former-owner-211602745.html)
 - Sep 01 - [Scientists Say They've Found the Largest Asteroid Impact Crater Hiding in Plain Sight](https://news.yahoo.com/scientists-theyve-found-largest-asteroid-203000503.html)
+- Sep 01 - [Proud Boy claims ‘Trump won’ after sobbing for mercy and receiving 10-year sentence: reports](https://news.yahoo.com/proud-boy-claims-trump-won-202345920.html)
 - Sep 01 - [Paige VanZant: I earned more money on OnlyFans in one day than my entire fighting career combined](https://sports.yahoo.com/paige-vanzant-earned-more-money-201055467.html)
-- Sep 01 - [MSNBC panel predicts Trump may throw his "idiot" sons "under the bus" in $250 million NY AG lawsuit](https://news.yahoo.com/msnbc-panel-predicts-trump-may-193542046.html)
-- Sep 01 - [Porta-Potty Brawl Breaks Out at Morgan Wallen Concert: Watch](https://www.yahoo.com/entertainment/porta-potty-brawl-breaks-morgan-192203378.html)
-- Sep 01 - [In surprise move, Canada pauses talks on trade treaty with India](https://news.yahoo.com/canada-says-paused-talks-trade-185519435.html)
 <!-- feed end -->
 
 ### Onstream
