@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Elon Musk met then-Twitter CEO Parag Agrawal for a secret dinner in 2022 and said Agrawal was not the 'fire-breathing dragon' the platform needed](https://news.yahoo.com/elon-musk-met-then-twitter-060531417.html)
+- Sep 01 - [Russia to block G20 declaration if its views are ignored - Lavrov](https://news.yahoo.com/russia-block-g20-declaration-views-094332113.html)
+- Sep 01 - [Why is Huawei's new smartphone generating so much buzz?](https://news.yahoo.com/explainer-why-huaweis-smartphone-generating-091102723.html)
 - Sep 01 - [Trump Legal Spokesperson Makes Major Freudian Slip On What Ex-President Does 'Right'](https://news.yahoo.com/trump-legal-spokesperson-makes-major-060053578.html)
 - Sep 01 - [Trump Proudly Shows Off New T-Shirt ― With 1 Glaring Flaw](https://news.yahoo.com/trump-proudly-shows-off-t-045011040.html)
 - Sep 01 - [Haberman on what ‘struck’ her while reading Donald Trump’s deposition](https://news.yahoo.com/haberman-struck-her-while-reading-021248011.html)
-- Sep 01 - [Disney pulls ESPN from Spectrum on 1st day of college football Week 1](https://sports.yahoo.com/disney-pulls-espn-from-spectrum-on-1st-day-of-college-football-week-1-020618027.html)
 <!-- feed end -->
 
 ### Onstream
