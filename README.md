@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Sep 01 - [Haberman on what ‘struck’ her while reading Donald Trump’s deposition](https://news.yahoo.com/haberman-struck-her-while-reading-021248011.html)
 - Sep 01 - [Disney pulls ESPN from Spectrum on 1st day of college football Week 1](https://sports.yahoo.com/disney-pulls-espn-from-spectrum-on-1st-day-of-college-football-week-1-020618027.html)
 - Sep 01 - [Nearly $200,000 worth of stolen items discovered in L.A. bust](https://news.yahoo.com/suspects-arrested-selling-nearly-200-015842736.html)
+- Sep 01 - [Elon Musk says progressive LA school has turned daughter into 'communist' who thinks 'anyone rich is evil'](https://finance.yahoo.com/news/elon-musk-says-progressive-la-015808539.html)
 - Sep 01 - [Russian Propagandist Says Tucker Carlson Is a ‘Dead Man Walking’](https://www.yahoo.com/entertainment/russian-propagandist-says-tucker-carlson-011546226.html)
-- Sep 01 - [Florida woman in hospital gown arrested after allegedly stealing ambulance](https://news.yahoo.com/florida-woman-hospital-gown-arrested-000319381.html)
 <!-- feed end -->
 
 ### Onstream
