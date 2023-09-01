@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [‘Can’t Stand to See a Black Man In Their Waters’: Florida Surfer’s Board Nailed to Tree ‘Like a Lynching’ In Alleged Brazen Act of Racist Vandalism; Culprits Not Yet Found](https://news.yahoo.com/t-stand-see-black-man-220000401.html)
 - Aug 31 - [Duct-taped child begging for food, water led to arrest of family vlogger, Utah cops say](https://news.yahoo.com/duct-taped-child-begging-food-212133591.html)
 - Aug 31 - [Clarence Thomas' lawyer says a billionaire bought his mom's house because it was in a blighted neighborhood full of junkies and they wanted her to keep living there](https://news.yahoo.com/clarence-thomas-lawyer-says-billionaire-210316964.html)
 - Aug 31 - [Ukrainian snipers hunting top enemy commanders are exploiting one of the Russian military's biggest vulnerabilities](https://news.yahoo.com/ukrainian-snipers-hunting-top-enemy-205354641.html)
-- Aug 31 - [New York police will use drones to monitor backyard parties this weekend, spurring privacy concerns](https://news.yahoo.com/york-police-drones-monitor-backyard-204341036.html)
 - Aug 31 - [NASA Probe Spots Crashed Russian Moon Lander](https://news.yahoo.com/nasa-probe-spots-crashed-russian-204000929.html)
 <!-- feed end -->
 
