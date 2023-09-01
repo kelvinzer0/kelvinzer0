@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Federal judge dismisses Florida lawsuit seeking to have Trump declared ineligible for presidency](https://news.yahoo.com/federal-judge-dismisses-florida-lawsuit-175900726.html)
+- Sep 01 - [Proud Boy who smashed Capitol window on Jan. 6 gets 10 years in prison, then declares, 'Trump won!'](https://news.yahoo.com/proud-boy-smashed-capitol-window-173713581.html)
+- Sep 01 - [Black Lawmaker Justin Pearson of the ‘Tennessee Three’ Says He Is Considering Pressing Charges After House Speaker Shoved Him In Heated Exchange Caught on Video](https://news.yahoo.com/black-lawmaker-justin-pearson-tennessee-173134399.html)
 - Sep 01 - [Quadriplegic man abandoned by hospital staff found covered in ants, Arizona cops say](https://news.yahoo.com/quadriplegic-man-abandoned-hospital-staff-170612471.html)
 - Sep 01 - [‘Ain’t Them Your Neighbors?’: Oprah Winfrey and Dwayne Johnson’s Relief Fund for Maui Wildfire Victims Backfires After Critics Question Why the Mogul Isn’t Using Her Own Money](https://www.yahoo.com/entertainment/ain-t-them-neighbors-oprah-170000079.html)
-- Sep 01 - [After a woman called Vans 'disgusting' for slashing and trashing seemingly unworn shoes on the street, the company said it's 'revisiting' recycling protocols](https://www.yahoo.com/entertainment/woman-called-vans-disgusting-slashing-163958760.html)
-- Sep 01 - [Florida Keys deputies stopped a car over tinted windows. Then a police dog took a sniff](https://news.yahoo.com/florida-keys-deputies-stopped-car-160510016.html)
-- Sep 01 - [Watch a Grizzly Bear Maul a Black Bear in Canada](https://www.yahoo.com/lifestyle/watch-grizzly-bear-maul-black-160029859.html)
 <!-- feed end -->
 
 ### Onstream
