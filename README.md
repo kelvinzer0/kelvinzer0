@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Quadriplegic man abandoned by hospital staff found covered in ants, Arizona cops say](https://news.yahoo.com/quadriplegic-man-abandoned-hospital-staff-170612471.html)
+- Sep 01 - [‘Ain’t Them Your Neighbors?’: Oprah Winfrey and Dwayne Johnson’s Relief Fund for Maui Wildfire Victims Backfires After Critics Question Why the Mogul Isn’t Using Her Own Money](https://www.yahoo.com/entertainment/ain-t-them-neighbors-oprah-170000079.html)
+- Sep 01 - [After a woman called Vans 'disgusting' for slashing and trashing seemingly unworn shoes on the street, the company said it's 'revisiting' recycling protocols](https://www.yahoo.com/entertainment/woman-called-vans-disgusting-slashing-163958760.html)
 - Sep 01 - [Florida Keys deputies stopped a car over tinted windows. Then a police dog took a sniff](https://news.yahoo.com/florida-keys-deputies-stopped-car-160510016.html)
 - Sep 01 - [Watch a Grizzly Bear Maul a Black Bear in Canada](https://www.yahoo.com/lifestyle/watch-grizzly-bear-maul-black-160029859.html)
-- Sep 01 - [Ukraine counteroffensive against Russia finally showing signs of progress](https://news.yahoo.com/ukraine-counteroffensive-against-russia-finally-showing-signs-of-progress-153033929.html)
-- Sep 01 - ['The Old Farmer’s Almanac' Predicts That Winter Will Be Frigid and Snowy Everywhere But Here](https://www.yahoo.com/lifestyle/old-farmer-almanac-predicts-winter-152200371.html)
-- Sep 01 - [What Happened When the Elderly, White Shooter Of An Unarmed Black Teen Went To Court?](https://news.yahoo.com/happened-elderly-white-shooter-unarmed-144641700.html)
 <!-- feed end -->
 
 ### Onstream
