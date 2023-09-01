@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Florida Keys deputies stopped a car over tinted windows. Then a police dog took a sniff](https://news.yahoo.com/florida-keys-deputies-stopped-car-160510016.html)
+- Sep 01 - [Watch a Grizzly Bear Maul a Black Bear in Canada](https://www.yahoo.com/lifestyle/watch-grizzly-bear-maul-black-160029859.html)
 - Sep 01 - [Ukraine counteroffensive against Russia finally showing signs of progress](https://news.yahoo.com/ukraine-counteroffensive-against-russia-finally-showing-signs-of-progress-153033929.html)
-- Sep 01 - [‘This Is Rude and Disrespectful’: Viral Video of Child Dressed In Costume with Flashing Lights Onboard Plane Draws Mixed Reactions on Social Media](https://news.yahoo.com/rude-disrespectful-viral-video-child-144316700.html)
-- Sep 01 - [Bob Errey, Steve Mears out as Penguins TV crew](https://news.yahoo.com/bob-errey-steve-mears-penguins-140631972.html)
-- Sep 01 - [Video shows 2 Russian helicopters and a jet failing to take out a small Ukrainian drone, Ukraine says](https://news.yahoo.com/video-shows-2-russian-helicopters-135404315.html)
-- Sep 01 - [When He Ran for Congress, Opponents Called Him a ‘Security Risk’ — Now He’s Defending the U.S. (Exclusive)](https://www.yahoo.com/entertainment/ran-congress-opponents-called-him-132115632.html)
+- Sep 01 - ['The Old Farmer’s Almanac' Predicts That Winter Will Be Frigid and Snowy Everywhere But Here](https://www.yahoo.com/lifestyle/old-farmer-almanac-predicts-winter-152200371.html)
+- Sep 01 - [What Happened When the Elderly, White Shooter Of An Unarmed Black Teen Went To Court?](https://news.yahoo.com/happened-elderly-white-shooter-unarmed-144641700.html)
 <!-- feed end -->
 
 ### Onstream
