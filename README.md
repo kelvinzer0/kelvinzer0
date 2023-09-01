@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 01 - [A woman was cleaning up after Hurricane Idalia. Then a hungry sea creature showed up](https://news.yahoo.com/woman-cleaning-hurricane-idalia-then-212947614.html)
-- Sep 01 - [Mohamed Al-Fayed, Harrods owner whose son dated Princess Diana, dead at 94](https://news.yahoo.com/mohamed-al-fayed-former-owner-211602745.html)
+- Sep 01 - [Mohamed al-Fayed, ex-Harrods owner whose son died with Princess Diana, dead at 94](https://news.yahoo.com/mohamed-al-fayed-former-owner-211602745.html)
 - Sep 01 - [Scientists Say They've Found the Largest Asteroid Impact Crater Hiding in Plain Sight](https://news.yahoo.com/scientists-theyve-found-largest-asteroid-203000503.html)
 - Sep 01 - [Proud Boy claims ‘Trump won’ after sobbing for mercy and receiving 10-year sentence: reports](https://news.yahoo.com/proud-boy-claims-trump-won-202345920.html)
-- Sep 01 - [Paige VanZant: I earned more money on OnlyFans in one day than my entire fighting career combined](https://sports.yahoo.com/paige-vanzant-earned-more-money-201055467.html)
+- Sep 01 - [Texas teen girl who was subject of Amber Alert charged in murder, another suspect at large](https://news.yahoo.com/texas-teen-girl-subject-amber-202207062.html)
 <!-- feed end -->
 
 ### Onstream
