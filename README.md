@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Delaware man who police blocked from warning of speed trap wins $50K judgment](https://news.yahoo.com/delaware-man-police-blocked-warning-183738471.html)
+- Sep 01 - [‘You’re Not Equal!’: Crazed White Woman Caught on Camera Spewing Racial Remarks and Screaming at Black Postal Worker In Missouri](https://news.yahoo.com/not-equal-crazed-white-woman-183000848.html)
 - Sep 01 - [Federal judge dismisses Florida lawsuit seeking to have Trump declared ineligible for presidency](https://news.yahoo.com/federal-judge-dismisses-florida-lawsuit-175900726.html)
+- Sep 01 - [23 People Who Tried Their Best, But Crapped The Bed So Bad](https://www.yahoo.com/lifestyle/23-people-tried-best-crapped-174603178.html)
 - Sep 01 - [Proud Boy who smashed Capitol window on Jan. 6 gets 10 years in prison, then declares, 'Trump won!'](https://news.yahoo.com/proud-boy-smashed-capitol-window-173713581.html)
-- Sep 01 - [Black Lawmaker Justin Pearson of the ‘Tennessee Three’ Says He Is Considering Pressing Charges After House Speaker Shoved Him In Heated Exchange Caught on Video](https://news.yahoo.com/black-lawmaker-justin-pearson-tennessee-173134399.html)
-- Sep 01 - [Quadriplegic man abandoned by hospital staff found covered in ants, Arizona cops say](https://news.yahoo.com/quadriplegic-man-abandoned-hospital-staff-170612471.html)
-- Sep 01 - [‘Ain’t Them Your Neighbors?’: Oprah Winfrey and Dwayne Johnson’s Relief Fund for Maui Wildfire Victims Backfires After Critics Question Why the Mogul Isn’t Using Her Own Money](https://www.yahoo.com/entertainment/ain-t-them-neighbors-oprah-170000079.html)
 <!-- feed end -->
 
 ### Onstream
