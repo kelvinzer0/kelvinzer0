@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Haberman on what ‘struck’ her while reading Donald Trump’s deposition](https://news.yahoo.com/haberman-struck-her-while-reading-021248011.html)
 - Sep 01 - [Disney pulls ESPN from Spectrum on 1st day of college football Week 1](https://sports.yahoo.com/disney-pulls-espn-from-spectrum-on-1st-day-of-college-football-week-1-020618027.html)
+- Sep 01 - [Nearly $200,000 worth of stolen items discovered in L.A. bust](https://news.yahoo.com/suspects-arrested-selling-nearly-200-015842736.html)
 - Sep 01 - [Russian Propagandist Says Tucker Carlson Is a ‘Dead Man Walking’](https://www.yahoo.com/entertainment/russian-propagandist-says-tucker-carlson-011546226.html)
 - Sep 01 - [Florida woman in hospital gown arrested after allegedly stealing ambulance](https://news.yahoo.com/florida-woman-hospital-gown-arrested-000319381.html)
-- Aug 31 - [Justice Department rejects subpoenas related to Hunter Biden](https://news.yahoo.com/justice-department-rejects-subpoenas-related-233136969.html)
-- Aug 31 - [Barstool Sports Cuts 25% of Its Staff After Dave Portnoy Paid $1 to Re-Buy Site He Founded (Video)](https://www.yahoo.com/entertainment/barstool-sports-cuts-25-staff-225843277.html)
 <!-- feed end -->
 
 ### Onstream
