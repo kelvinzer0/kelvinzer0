@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Fed seen done with rate hikes after jobs data](https://finance.yahoo.com/news/fed-seen-done-rate-hikes-133019125.html)
-- Sep 01 - [It seems like everyone has Covid-19. Here’s why this wave is probably worse than official data suggests](https://www.yahoo.com/lifestyle/seems-everyone-covid-19-why-114106385.html)
+- Sep 01 - [Video shows 2 Russian helicopters and a jet failing to take out a small Ukrainian drone, Ukraine says](https://news.yahoo.com/video-shows-2-russian-helicopters-135404315.html)
+- Sep 01 - [Trump's Supporters Want To Help Him Crush Democracy. This Is What It Means For Black Folks](https://news.yahoo.com/trumps-supporters-want-help-him-133809774.html)
+- Sep 01 - [When He Ran for Congress, Opponents Called Him a ‘Security Risk’ — Now He’s Defending the U.S. (Exclusive)](https://www.yahoo.com/entertainment/ran-congress-opponents-called-him-132115632.html)
 - Sep 01 - [Ukrainian soldiers remove terrorist ‘Z’ patch from soldier after capture of Major Tomov’s combat unit – dramatic video](https://news.yahoo.com/ukrainian-soldiers-remove-terrorist-z-131300217.html)
 - Sep 01 - [“He’s in big trouble”: Experts say Mark Meadows’ “goose is cooked” after new Fani Willis filing](https://news.yahoo.com/big-trouble-experts-mark-meadows-125601688.html)
-- Sep 01 - [Unrecognizable before-and-after photos show ‘zombie lake’ rising from the grave after years of droughts: ‘It’s been a wild year’](https://news.yahoo.com/unrecognizable-photos-show-zombie-lake-113000153.html)
 <!-- feed end -->
 
 ### Onstream
