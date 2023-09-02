@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 02 - [Former Mike Pence Aide Has 2 Words To Describe Seeing Trump's Mug Shot](https://news.yahoo.com/former-mike-pence-aide-2-071839096.html)
+- Sep 02 - [A 15-year-old shakes up New Hampshire with tough questions for Ron DeSantis and other 2024 hopefuls](https://news.yahoo.com/15-old-shakes-hampshire-tough-023228589.html)
 - Sep 02 - [Russia deploys Sarmat intercontinental ballistic missiles Putin says will make world ‘think twice’ for combat](https://news.yahoo.com/russia-deploys-sarmat-intercontinental-ballistic-014520758.html)
 - Sep 02 - [California Dem-led committee advances bill to let killers serving life without parole request re-sentencing](https://news.yahoo.com/california-dem-led-committee-advances-005604380.html)
 - Sep 01 - [Putin thronged in visit to Russian village](https://news.yahoo.com/putin-thronged-visit-russian-village-235329827.html)
-- Sep 01 - [Austin police identify victims in Arboretum shooting, say attack was random](https://news.yahoo.com/austin-police-identify-victims-arboretum-224034846.html)
 <!-- feed end -->
 
 ### Onstream
