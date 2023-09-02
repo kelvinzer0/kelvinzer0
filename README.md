@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [A 12-year-old in southern California died after his gym teacher told him to run during a triple-digit heatwave, his family says](https://news.yahoo.com/12-old-southern-california-died-193618056.html)
+- Sep 02 - [Nigerian president recalls ambassadors worldwide](https://news.yahoo.com/nigerian-president-recalls-ambassadors-worldwide-190721932.html)
 - Sep 02 - [Biden says 'I don't know' what happened with DeSantis meeting as he surveys Hurricane Idalia damage](https://www.yahoo.com/gma/biden-says-dont-know-happened-184847291.html)
-- Sep 02 - [Killer who escaped Pennsylvania prison is spotted nearby on surveillance cameras](https://news.yahoo.com/killer-escaped-pennsylvania-prison-spotted-153616750.html)
 - Sep 02 - ['Frag out!': Dramatic helmet-cam footage appears to show US volunteers of Ukraine's Chosen Company clearing a Russian trench](https://news.yahoo.com/frag-dramatic-helmet-cam-footage-152828046.html)
 - Sep 02 - [Why Trump Is Risking ‘Fines and Even Jail Time’ to Speak Out Against Judge Tanya Chutkan, DA Fani Willis, and AG Letitia James Despite Signing Agreement Not to Lash Out?](https://news.yahoo.com/why-trump-risking-fines-even-152600994.html)
-- Sep 02 - [NATO-trained Ukrainian recruits admit they're being overpowered by Russia's battle-hardened troops in the northern sector, Kyiv Independent reports](https://news.yahoo.com/nato-trained-ukrainian-recruits-admit-134632629.html)
 <!-- feed end -->
 
 ### Onstream
