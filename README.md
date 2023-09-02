@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [16 Incredibly Dark Stories About Popular Actors Who Died In Their 20s](https://www.yahoo.com/entertainment/16-incredibly-dark-stories-popular-011602814.html)
 - Sep 01 - [Putin thronged in visit to Russian village](https://news.yahoo.com/putin-thronged-visit-russian-village-235329827.html)
 - Sep 01 - [Austin police identify victims in Arboretum shooting, say attack was random](https://news.yahoo.com/austin-police-identify-victims-arboretum-224034846.html)
 - Sep 01 - [A woman was cleaning up after Hurricane Idalia. Then a hungry sea creature showed up](https://news.yahoo.com/woman-cleaning-hurricane-idalia-then-212947614.html)
 - Sep 01 - [Mohamed al-Fayed, ex-Harrods owner whose son died with Princess Diana, dead at 94](https://news.yahoo.com/mohamed-al-fayed-former-owner-211602745.html)
+- Sep 01 - [Colorado women, teen made deadly mistakes in attempt to live off the grid in wilderness](https://news.yahoo.com/colorado-women-teen-made-deadly-203126407.html)
 <!-- feed end -->
 
 ### Onstream
