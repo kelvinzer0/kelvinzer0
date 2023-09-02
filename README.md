@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [Wildfire Grows in Walker County, Texas, Prompting More Evacuations](https://news.yahoo.com/wildfire-grows-walker-county-texas-213132764.html)
+- Sep 02 - [Tens of thousands at Burning Man told to conserve water and food after heavy rains leave attendees unable to leave Nevada desert](https://news.yahoo.com/tens-thousands-burning-man-told-193848572.html)
 - Sep 02 - [A 12-year-old in southern California died after his gym teacher told him to run during a triple-digit heatwave, his family says](https://news.yahoo.com/12-old-southern-california-died-193618056.html)
 - Sep 02 - [Nigerian president recalls ambassadors worldwide](https://news.yahoo.com/nigerian-president-recalls-ambassadors-worldwide-190721932.html)
 - Sep 02 - [Biden says 'I don't know' what happened with DeSantis meeting as he surveys Hurricane Idalia damage](https://www.yahoo.com/gma/biden-says-dont-know-happened-184847291.html)
-- Sep 02 - ['Frag out!': Dramatic helmet-cam footage appears to show US volunteers of Ukraine's Chosen Company clearing a Russian trench](https://news.yahoo.com/frag-dramatic-helmet-cam-footage-152828046.html)
-- Sep 02 - [Why Trump Is Risking ‘Fines and Even Jail Time’ to Speak Out Against Judge Tanya Chutkan, DA Fani Willis, and AG Letitia James Despite Signing Agreement Not to Lash Out?](https://news.yahoo.com/why-trump-risking-fines-even-152600994.html)
 <!-- feed end -->
 
 ### Onstream
