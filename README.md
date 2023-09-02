@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Bill Richardson, a veteran diplomat and former New Mexico governor, is dead at 75](https://news.yahoo.com/former-mexico-governor-bill-richardson-162439917.html)
+- Sep 02 - [Kinzinger slams DeSantis for not meeting with Biden in Florida: ‘Absolutely outrageous’](https://news.yahoo.com/kinzinger-slams-desantis-not-meeting-165138068.html)
+- Sep 02 - [Killer who escaped Pennsylvania prison is spotted nearby on surveillance cameras](https://news.yahoo.com/killer-escaped-pennsylvania-prison-spotted-153616750.html)
 - Sep 02 - ['Frag out!': Dramatic helmet-cam footage appears to show US volunteers of Ukraine's Chosen Company clearing a Russian trench](https://news.yahoo.com/frag-dramatic-helmet-cam-footage-152828046.html)
 - Sep 02 - [Why Trump Is Risking ‘Fines and Even Jail Time’ to Speak Out Against Judge Tanya Chutkan, DA Fani Willis, and AG Letitia James Despite Signing Agreement Not to Lash Out?](https://news.yahoo.com/why-trump-risking-fines-even-152600994.html)
 - Sep 02 - [Fact Check: Bill Clinton Said Republicans Are ‘Simple’ and Want Americans To Be ‘Miserable’?](https://news.yahoo.com/fact-check-bill-clinton-said-150000029.html)
-- Sep 02 - [NATO-trained Ukrainian recruits admit they're being overpowered by Russia's battle-hardened troops in the northern sector, Kyiv Independent reports](https://news.yahoo.com/nato-trained-ukrainian-recruits-admit-134632629.html)
 <!-- feed end -->
 
 ### Onstream
