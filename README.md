@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [Russia deploys Sarmat intercontinental ballistic missiles Putin says will make world ‘think twice’ for combat](https://news.yahoo.com/russia-deploys-sarmat-intercontinental-ballistic-014520758.html)
 - Sep 02 - [California Dem-led committee advances bill to let killers serving life without parole request re-sentencing](https://news.yahoo.com/california-dem-led-committee-advances-005604380.html)
 - Sep 01 - [Putin thronged in visit to Russian village](https://news.yahoo.com/putin-thronged-visit-russian-village-235329827.html)
 - Sep 01 - [Austin police identify victims in Arboretum shooting, say attack was random](https://news.yahoo.com/austin-police-identify-victims-arboretum-224034846.html)
 - Sep 01 - [A woman was cleaning up after Hurricane Idalia. Then a hungry sea creature showed up](https://news.yahoo.com/woman-cleaning-hurricane-idalia-then-212947614.html)
-- Sep 01 - [Mohamed al-Fayed, ex-Harrods owner whose son died with Princess Diana, dead at 94](https://news.yahoo.com/mohamed-al-fayed-former-owner-211602745.html)
 <!-- feed end -->
 
 ### Onstream
