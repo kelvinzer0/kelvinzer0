@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [Killer who escaped Pennsylvania prison is spotted nearby on surveillance cameras](https://news.yahoo.com/killer-escaped-pennsylvania-prison-spotted-153616750.html)
+- Sep 02 - [Fact Check: Bill Clinton Said Republicans Are ‘Simple’ and Want Americans To Be ‘Miserable’?](https://news.yahoo.com/fact-check-bill-clinton-said-150000029.html)
 - Sep 02 - [NATO-trained Ukrainian recruits admit they're being overpowered by Russia's battle-hardened troops in the northern sector, Kyiv Independent reports](https://news.yahoo.com/nato-trained-ukrainian-recruits-admit-134632629.html)
-- Sep 02 - [Kevin Costner & Christine Baumgartner’s Child Support Battle Has Taken an Unexpected Turn](https://www.yahoo.com/entertainment/kevin-costner-christine-baumgartner-child-140200542.html)
+- Sep 02 - [Italian ex-premier says French missile downed an airliner in 1980 by accident in bid to kill Gadhafi](https://news.yahoo.com/former-italian-premier-claims-french-132457910.html)
 - Sep 02 - [Poor Baby: Another Black Woman Prosecutor Has Trump Throwing Online Tantrums](https://news.yahoo.com/poor-baby-another-black-woman-123000253.html)
-- Sep 02 - ['This makes me so mad': Mark Cuban, Kevin Hart passed on the chance to invest in this multibillion-dollar business in its early stages — and it haunts them to this day](https://finance.yahoo.com/news/makes-mad-mark-cuban-kevin-113000366.html)
-- Sep 02 - [John Deere makes major announcement about the future of its lawn equipment: ‘[We want] to serve our evolving customers’](https://news.yahoo.com/john-deere-makes-major-announcement-110000162.html)
 <!-- feed end -->
 
 ### Onstream
