@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [NATO-trained Ukrainian recruits admit they're being overpowered by Russia's battle-hardened troops in the northern sector, Kyiv Independent reports](https://news.yahoo.com/nato-trained-ukrainian-recruits-admit-134632629.html)
+- Sep 02 - [Kevin Costner & Christine Baumgartner’s Child Support Battle Has Taken an Unexpected Turn](https://www.yahoo.com/entertainment/kevin-costner-christine-baumgartner-child-140200542.html)
 - Sep 02 - [Poor Baby: Another Black Woman Prosecutor Has Trump Throwing Online Tantrums](https://news.yahoo.com/poor-baby-another-black-woman-123000253.html)
 - Sep 02 - ['This makes me so mad': Mark Cuban, Kevin Hart passed on the chance to invest in this multibillion-dollar business in its early stages — and it haunts them to this day](https://finance.yahoo.com/news/makes-mad-mark-cuban-kevin-113000366.html)
 - Sep 02 - [John Deere makes major announcement about the future of its lawn equipment: ‘[We want] to serve our evolving customers’](https://news.yahoo.com/john-deere-makes-major-announcement-110000162.html)
-- Sep 02 - [Canada shut its land border to asylum seekers. More refugees came anyway](https://news.yahoo.com/canada-shut-land-border-asylum-100632402.html)
-- Sep 02 - [BMW Vision Neue Klasse revealed: stunning new BMW design language, huge EV improvements](https://www.autoblog.com/2023/09/02/bmw-vision-neue-klasse-revealed-munich-motor-show/)
 <!-- feed end -->
 
 ### Onstream
