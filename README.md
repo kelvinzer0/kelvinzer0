@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Trump May Need Supreme Court To Say His Coup Attempt Does Not Violate Constitution](https://news.yahoo.com/trump-may-supreme-court-coup-120002544.html)
+- Sep 02 - [Poor Baby: Another Black Woman Prosecutor Has Trump Throwing Online Tantrums](https://news.yahoo.com/poor-baby-another-black-woman-123000253.html)
 - Sep 02 - ['This makes me so mad': Mark Cuban, Kevin Hart passed on the chance to invest in this multibillion-dollar business in its early stages — and it haunts them to this day](https://finance.yahoo.com/news/makes-mad-mark-cuban-kevin-113000366.html)
+- Sep 02 - [John Deere makes major announcement about the future of its lawn equipment: ‘[We want] to serve our evolving customers’](https://news.yahoo.com/john-deere-makes-major-announcement-110000162.html)
 - Sep 02 - [Canada shut its land border to asylum seekers. More refugees came anyway](https://news.yahoo.com/canada-shut-land-border-asylum-100632402.html)
 - Sep 02 - [BMW Vision Neue Klasse revealed: stunning new BMW design language, huge EV improvements](https://www.autoblog.com/2023/09/02/bmw-vision-neue-klasse-revealed-munich-motor-show/)
-- Sep 02 - [Former Mike Pence Aide Has 2 Words To Describe Seeing Trump's Mug Shot](https://news.yahoo.com/former-mike-pence-aide-2-071839096.html)
 <!-- feed end -->
 
 ### Onstream
