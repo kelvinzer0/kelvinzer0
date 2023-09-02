@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [BMW Vision Neue Klasse revealed: stunning new BMW design language, huge EV improvements](https://www.autoblog.com/2023/09/02/bmw-vision-neue-klasse-revealed-munich-motor-show/)
 - Sep 02 - [Former Mike Pence Aide Has 2 Words To Describe Seeing Trump's Mug Shot](https://news.yahoo.com/former-mike-pence-aide-2-071839096.html)
+- Sep 02 - [A 19-year-old Texas man went overboard from a Royal Caribbean cruise ship. An ongoing search has yet to find him](https://news.yahoo.com/19-old-texas-man-went-061308511.html)
 - Sep 02 - [A 15-year-old shakes up New Hampshire with tough questions for Ron DeSantis and other 2024 hopefuls](https://news.yahoo.com/15-old-shakes-hampshire-tough-023228589.html)
 - Sep 02 - [Russia deploys Sarmat intercontinental ballistic missiles Putin says will make world ‘think twice’ for combat](https://news.yahoo.com/russia-deploys-sarmat-intercontinental-ballistic-014520758.html)
-- Sep 02 - [California Dem-led committee advances bill to let killers serving life without parole request re-sentencing](https://news.yahoo.com/california-dem-led-committee-advances-005604380.html)
-- Sep 01 - [Putin thronged in visit to Russian village](https://news.yahoo.com/putin-thronged-visit-russian-village-235329827.html)
 <!-- feed end -->
 
 ### Onstream
