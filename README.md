@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [Biden says disappointed China's Xi will not attend G20 summit](https://news.yahoo.com/biden-says-disappointed-chinas-xi-221642504.html)
+- Sep 03 - [Immune cells that fight cancer become exhausted within hours of first encountering tumors – new research](https://news.yahoo.com/immune-cells-fight-cancer-become-150105860.html)
 - Sep 03 - [A Harvard Law professor says it was 'unbelievably juvenile' for Trump's legal team to cite the infamous 'Scottsboro Boys' case as they pushed for a federal election interference trial in 2026](https://news.yahoo.com/harvard-law-professor-says-unbelievably-205159063.html)
 - Sep 03 - [Russia's massive brain drain is ravaging the economy - these stunning figures show why it will soon be smaller than Indonesia's](https://finance.yahoo.com/news/russias-massive-brain-drain-ravaging-203001178.html)
-- Sep 03 - [Ukraine's Zelenskiy moves to replace wartime defence minister](https://news.yahoo.com/ukraines-zelenskiy-moves-replace-wartime-192813862.html)
-- Sep 03 - [2 passengers were kicked off an Air Canada flight because they refused to sit in seats covered in puke, fellow traveler says](https://news.yahoo.com/2-passengers-were-kicked-off-192052945.html)
-- Sep 03 - [Trump takes huge primary lead as 78pc of Republicans back Capitol riot in new poll](https://news.yahoo.com/trump-takes-huge-primary-lead-184605969.html)
+- Sep 03 - [Massachusetts troopers and FBI agents respond to American Airlines flight in Boston for reported criminal act](https://news.yahoo.com/massachusetts-troopers-fbi-agents-respond-202313201.html)
 <!-- feed end -->
 
 ### Onstream
