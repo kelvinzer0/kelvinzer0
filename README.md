@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [‘Wokeism,’ Donald Trump targets of Bill Maher as he skewers extremes at Grand Prairie show](https://news.yahoo.com/wokeism-donald-trump-targets-bill-131209656.html)
-- Sep 03 - [Escaped murder convict is caught on surveillance in Pennsylvania](https://news.yahoo.com/escaped-murder-convict-caught-surveillance-122712170.html)
-- Sep 03 - [A mysterious Arctic shark that can live for 500 years got lost and ended up swimming in the balmy waters of the Caribbean, scientists say](https://news.yahoo.com/mysterious-arctic-shark-live-500-114928817.html)
-- Sep 03 - [This young couple rushed to buy a $730K home — but now they can't sleep at night. Here's a 5-point checklist to know if you're actually ready to buy a house](https://finance.yahoo.com/news/young-couple-rushed-buy-730k-113000742.html)
-- Sep 03 - [Armenian PM says depending solely on Russia for security was 'strategic mistake'](https://news.yahoo.com/armenian-pm-says-depending-solely-112953579.html)
+- Sep 03 - [Raimondo warns China patience of US business is 'wearing thin'](https://news.yahoo.com/raimondo-warns-china-patience-us-143218465.html)
+- Sep 03 - [Ordered from Panda Express? You may be entitled to part of $1.4 million settlement](https://news.yahoo.com/ordered-panda-express-may-entitled-141453927.html)
+- Sep 03 - [Black parents say their children are being suspended for petty reasons that force them to take off from work and sometimes lose their jobs](https://news.yahoo.com/black-parents-children-being-suspended-121820256.html)
+- Sep 03 - [Neo-Nazis parade swastika flags in Florida, chanting 'We are everywhere'](https://news.yahoo.com/neo-nazis-parade-swastika-flags-140904682.html)
+- Sep 03 - [It would be surprising but not ‘total shock’ if Biden didn’t seek re-election: Franklin Foer](https://news.yahoo.com/surprising-not-total-shock-biden-135710165.html)
 <!-- feed end -->
 
 ### Onstream
