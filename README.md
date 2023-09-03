@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [Israel's prime minister pitches fiber optic cable idea to link Asia and the Middle East to Europe](https://news.yahoo.com/israels-prime-minister-pitches-fiber-180235030.html)
+- Sep 03 - [Jimmy Buffett died after a four-year fight with a rare form of skin cancer, his website says](https://news.yahoo.com/jimmy-buffett-died-four-fight-171424606.html)
+- Sep 03 - [18 Signs That Made Me Laugh Way, Way, Way, Way Harder Than I Intended To](https://www.yahoo.com/lifestyle/18-signs-made-laugh-way-164603272.html)
 - Sep 03 - [Aerosmith singer and Maui homeowner Steven Tyler urges tourists to return to the island](https://news.yahoo.com/aerosmith-singer-maui-homeowner-steven-161705178.html)
 - Sep 03 - [Video captures moment Ukrainian forces obliterate Russian Solntsepyok flamethrower using FPV drone in Luhansk](https://news.yahoo.com/video-captures-moment-ukrainian-forces-155100711.html)
-- Sep 03 - [‘It was a miscalculation’: GOP strategist criticizes DeSantis over Biden snub](https://news.yahoo.com/miscalculation-gop-strategist-criticizes-desantis-152546117.html)
-- Sep 03 - [Donald Trump’s Georgia Trial Won’t Be Exempt From This Proceeding That’ll Make It His Most Public Legal Woe](https://www.yahoo.com/entertainment/donald-trump-georgia-trial-won-151000515.html)
-- Sep 03 - [Central American Migrant, In the Country for Less Than a Year, Arrested In Death of an 11-Year-Old. Reportedly Finds Two Black Men to Blame.](https://news.yahoo.com/central-american-migrant-country-less-150627962.html)
 <!-- feed end -->
 
 ### Onstream
