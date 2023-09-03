@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [Donald Trump’s Georgia Trial Won’t Be Exempt From This Proceeding That’ll Make It His Most Public Legal Woe](https://www.yahoo.com/entertainment/donald-trump-georgia-trial-won-151000515.html)
+- Sep 03 - [Central American Migrant, In the Country for Less Than a Year, Arrested In Death of an 11-Year-Old. Reportedly Finds Two Black Men to Blame.](https://news.yahoo.com/central-american-migrant-country-less-150627962.html)
+- Sep 03 - [Videos show Burning Man festival after heavy rain](https://news.yahoo.com/videos-show-burning-man-festival-014912858.html)
 - Sep 03 - [Raimondo warns China patience of US business is 'wearing thin'](https://news.yahoo.com/raimondo-warns-china-patience-us-143218465.html)
 - Sep 03 - [Ordered from Panda Express? You may be entitled to part of $1.4 million settlement](https://news.yahoo.com/ordered-panda-express-may-entitled-141453927.html)
-- Sep 03 - [Black parents say their children are being suspended for petty reasons that force them to take off from work and sometimes lose their jobs](https://news.yahoo.com/black-parents-children-being-suspended-121820256.html)
-- Sep 03 - [Neo-Nazis parade swastika flags in Florida, chanting 'We are everywhere'](https://news.yahoo.com/neo-nazis-parade-swastika-flags-140904682.html)
-- Sep 03 - [It would be surprising but not ‘total shock’ if Biden didn’t seek re-election: Franklin Foer](https://news.yahoo.com/surprising-not-total-shock-biden-135710165.html)
 <!-- feed end -->
 
 ### Onstream
