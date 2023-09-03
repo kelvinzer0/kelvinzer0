@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [Texas suspect caught on video torturing family's cats learns his fate](https://news.yahoo.com/texas-suspect-caught-video-torturing-011157011.html)
 - Sep 03 - [One of Russia's richest oligarchs who now lives in Dubai says Putin's invasion of Ukraine made him a 'pariah'](https://finance.yahoo.com/news/one-russias-richest-oligarchs-now-004145232.html)
 - Sep 02 - [Storms Swamp Burning Man Festival in Nevada, Confining Attendees](https://news.yahoo.com/storms-swamp-burning-man-festival-224938535.html)
 - Sep 02 - [Greene responds to criticism over impeachment comments: ‘The White House is attacking me’](https://news.yahoo.com/greene-responds-criticism-over-impeachment-220714053.html)
 - Sep 02 - [Biden and Trump are virtually tied in polls. Political analyst has a theory why](https://news.yahoo.com/analyst-two-big-factors-hurting-140009654.html)
-- Sep 02 - [Nigerian president recalls ambassadors worldwide](https://news.yahoo.com/nigerian-president-recalls-ambassadors-worldwide-190721932.html)
 <!-- feed end -->
 
 ### Onstream
