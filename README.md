@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Mass. State Police, FBI respond to ‘potential criminal act’ on flight landing in Boston](https://news.yahoo.com/mass-state-police-fbi-respond-002940686.html)
+- Sep 03 - [‘Wokeism,’ Donald Trump targets of Bill Maher as he skewers extremes at Grand Prairie show](https://news.yahoo.com/wokeism-donald-trump-targets-bill-131209656.html)
+- Sep 03 - [Escaped murder convict is caught on surveillance in Pennsylvania](https://news.yahoo.com/escaped-murder-convict-caught-surveillance-122712170.html)
 - Sep 03 - [A mysterious Arctic shark that can live for 500 years got lost and ended up swimming in the balmy waters of the Caribbean, scientists say](https://news.yahoo.com/mysterious-arctic-shark-live-500-114928817.html)
 - Sep 03 - [This young couple rushed to buy a $730K home — but now they can't sleep at night. Here's a 5-point checklist to know if you're actually ready to buy a house](https://finance.yahoo.com/news/young-couple-rushed-buy-730k-113000742.html)
-- Sep 03 - [Warren Buffett warns there's only 1 way that a smart person can go broke — are you making this big financial misstep?](https://finance.yahoo.com/news/warren-buffett-warns-theres-only-103000628.html)
-- Sep 03 - [Not everyone's feeling sorry for all the rich folk stuck in the mud at Burning Man](https://www.yahoo.com/entertainment/not-everyones-feeling-sorry-rich-100030421.html)
+- Sep 03 - [Armenian PM says depending solely on Russia for security was 'strategic mistake'](https://news.yahoo.com/armenian-pm-says-depending-solely-112953579.html)
 <!-- feed end -->
 
 ### Onstream
