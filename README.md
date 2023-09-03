@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Israel's prime minister pitches fiber optic cable idea to link Asia and the Middle East to Europe](https://news.yahoo.com/israels-prime-minister-pitches-fiber-180235030.html)
+- Sep 03 - [Ukraine's military shared video of the moment it says one of its aerial drones sank a Russian naval vessel](https://news.yahoo.com/ukraines-military-shared-video-moment-181232869.html)
+- Sep 03 - [Newt Gingrich on Trump's enduring appeal with Republican voters: He's 'not a candidate' but the 'leader of a mass movement'](https://news.yahoo.com/newt-gingrich-trumps-enduring-appeal-173308942.html)
 - Sep 03 - [Jimmy Buffett died after a four-year fight with a rare form of skin cancer, his website says](https://news.yahoo.com/jimmy-buffett-died-four-fight-171424606.html)
 - Sep 03 - [18 Signs That Made Me Laugh Way, Way, Way, Way Harder Than I Intended To](https://www.yahoo.com/lifestyle/18-signs-made-laugh-way-164603272.html)
 - Sep 03 - [Aerosmith singer and Maui homeowner Steven Tyler urges tourists to return to the island](https://news.yahoo.com/aerosmith-singer-maui-homeowner-steven-161705178.html)
-- Sep 03 - [Video captures moment Ukrainian forces obliterate Russian Solntsepyok flamethrower using FPV drone in Luhansk](https://news.yahoo.com/video-captures-moment-ukrainian-forces-155100711.html)
 <!-- feed end -->
 
 ### Onstream
