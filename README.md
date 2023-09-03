@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Why the war is turning in Ukraine’s favour](https://finance.yahoo.com/news/why-war-turning-ukraine-favour-050000203.html)
+- Sep 03 - [Why Putin’s war is turning in Ukraine’s favour](https://finance.yahoo.com/news/why-war-turning-ukraine-favour-050000203.html)
 - Sep 03 - [ISW: Russian officers reportedly contact former general amid deteriorating conditions on front line](https://news.yahoo.com/isw-russian-officers-reportedly-contact-024500354.html)
 - Sep 03 - [Texas suspect caught on video torturing family's cats learns his fate](https://news.yahoo.com/texas-suspect-caught-video-torturing-011157011.html)
 - Sep 03 - [One of Russia's richest oligarchs who now lives in Dubai says Putin's invasion of Ukraine made him a 'pariah'](https://finance.yahoo.com/news/one-russias-richest-oligarchs-now-004145232.html)
