@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [This young couple rushed to buy a $730K home — but now they can't sleep at night. Here's a 5-point checklist to know if you're actually ready to buy a house](https://finance.yahoo.com/news/young-couple-rushed-buy-730k-113000742.html)
+- Sep 03 - [Warren Buffett warns there's only 1 way that a smart person can go broke — are you making this big financial misstep?](https://finance.yahoo.com/news/warren-buffett-warns-theres-only-103000628.html)
+- Sep 03 - [Not everyone's feeling sorry for all the rich folk stuck in the mud at Burning Man](https://www.yahoo.com/entertainment/not-everyones-feeling-sorry-rich-100030421.html)
+- Sep 03 - [Israel's Netanyahu says he wants Eritrean migrants involved in violent clashes to be deported](https://news.yahoo.com/israels-netanyahu-demands-eritrean-migrants-093138671.html)
 - Sep 03 - [A US Army veteran has been detained in Dubai for 5 years because his ex-employer says he owes $100,000: 'I'm at the end of my life'](https://news.yahoo.com/us-army-veteran-detained-dubai-092102759.html)
-- Sep 03 - [Ex-Prosecutor Sounds The Alarm On Trump's 'Demonstrated Danger' To Witnesses, Jurors](https://news.yahoo.com/ex-prosecutor-sounds-alarm-trumps-075323514.html)
-- Sep 03 - [Russia's Medvedev: Japan's 'militarisation' complicates Asia-Pacific](https://news.yahoo.com/russias-medvedev-japans-militarisation-complicates-050447277.html)
-- Sep 03 - [Fatal police shooting of pregnant Ohio woman raises concerns over firing at moving vehicles](https://news.yahoo.com/fatal-police-shooting-pregnant-ohio-040408429.html)
-- Sep 03 - [One of Russia's richest oligarchs who now lives in Dubai says Putin's invasion of Ukraine made him a 'pariah'](https://finance.yahoo.com/news/one-russias-richest-oligarchs-now-004145232.html)
 <!-- feed end -->
 
 ### Onstream
