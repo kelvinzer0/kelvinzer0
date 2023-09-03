@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Sep 03 - [Ex-Prosecutor Sounds The Alarm On Trump's 'Demonstrated Danger' To Witnesses, Jurors](https://news.yahoo.com/ex-prosecutor-sounds-alarm-trumps-075323514.html)
 - Sep 03 - [Russia's Medvedev: Japan's 'militarisation' complicates Asia-Pacific](https://news.yahoo.com/russias-medvedev-japans-militarisation-complicates-050447277.html)
 - Sep 03 - [Why Putin’s war is turning in Ukraine’s favour](https://finance.yahoo.com/news/why-war-turning-ukraine-favour-050000203.html)
+- Sep 03 - [People Are Revealing The Wildest Thing A Person They Just Met Said That Made Them Instantly Cringe, And My Head Is Pounding From Rolling My Eyes Too Much](https://www.yahoo.com/lifestyle/people-revealing-wildest-thing-person-044602408.html)
 - Sep 03 - [ISW: Russian officers reportedly contact former general amid deteriorating conditions on front line](https://news.yahoo.com/isw-russian-officers-reportedly-contact-024500354.html)
-- Sep 03 - [Texas suspect caught on video torturing family's cats learns his fate](https://news.yahoo.com/texas-suspect-caught-video-torturing-011157011.html)
 <!-- feed end -->
 
 ### Onstream
