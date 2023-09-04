@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Worcester high school student dies of complications from social media challenge, family says](https://news.yahoo.com/worcester-high-school-student-dies-030705798.html)
+- Sep 04 - [Rep. Marjorie Taylor Greene said that stuck Burning Man festivalgoers are 'probably being brainwashed' that climate change is 'the root of all evil'](https://news.yahoo.com/rep-marjorie-taylor-greene-said-203804121.html)
 - Sep 04 - [Former Miami Cop Who Was Captured on Video Pinning His Knee On Pregnant Black Woman’s Neck, Stunning Her with Taser In Belly Sentenced to 30 Days In Jail](https://news.yahoo.com/former-miami-cop-captured-video-203000285.html)
 - Sep 04 - [A Welsh man uploaded a Facebook video of himself destroying 4,500 year-old rock art. Now, he will get 4 months in prison as officials say the Bronze Age artifact is 'lost forever.'](https://news.yahoo.com/welsh-man-uploaded-facebook-video-195810284.html)
 - Sep 04 - [Police ‘abandoned’ teenager who died after leaping into freezing water to avoid arrest](https://news.yahoo.com/police-abandoned-teenager-died-leaping-193938874.html)
-- Sep 04 - [Atlanta flight forced to come back after flyer has diarrhea ‘all the way through’ plane, pilot says](https://news.yahoo.com/atlanta-flight-forced-come-back-192154026.html)
-- Sep 04 - [Hurricane center says 100% chance tropical system will form on way to Caribbean](https://news.yahoo.com/hurricane-center-says-100-chance-192100336.html)
 <!-- feed end -->
 
 ### Onstream
