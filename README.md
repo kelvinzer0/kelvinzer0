@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Japan's top court orders Okinawa to allow a divisive government plan to build US military runways](https://news.yahoo.com/japans-top-court-orders-okinawa-094239589.html)
 - Sep 04 - [Fox News Hosts' Own Words Come Back To Haunt Trump In Brutal MSNBC Supercut](https://news.yahoo.com/fox-news-hosts-own-words-082858148.html)
 - Sep 04 - [MSNBC Hosts Can’t Stop Laughing At ‘Desperate’ Ted Cruz’s Most Cringe Moment Yet](https://news.yahoo.com/msnbc-hosts-t-stop-laughing-070106559.html)
 - Sep 04 - [Michael Cohen Spots Desperate Sign From Donald Trump](https://news.yahoo.com/michael-cohen-spots-desperate-sign-060529700.html)
 - Sep 04 - [George Stephanopoulos Shocked By New Trump-Biden Poll](https://news.yahoo.com/george-stephanopoulos-shocked-trump-biden-051705780.html)
-- Sep 04 - [Attack, robbery of street vendor caught on video in South Los Angeles](https://news.yahoo.com/attack-robbery-street-vendor-caught-051444500.html)
 <!-- feed end -->
 
 ### Onstream
