@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [MSNBC Hosts Can’t Stop Laughing At ‘Desperate’ Ted Cruz’s Most Cringe Moment Yet](https://news.yahoo.com/msnbc-hosts-t-stop-laughing-070106559.html)
 - Sep 04 - [Michael Cohen Spots Desperate Sign From Donald Trump](https://news.yahoo.com/michael-cohen-spots-desperate-sign-060529700.html)
 - Sep 04 - [George Stephanopoulos Shocked By New Trump-Biden Poll](https://news.yahoo.com/george-stephanopoulos-shocked-trump-biden-051705780.html)
+- Sep 04 - [Attack, robbery of street vendor caught on video in South Los Angeles](https://news.yahoo.com/attack-robbery-street-vendor-caught-051444500.html)
 - Sep 04 - [‘Beyond Question’: George Conway Hits Trump With Dire Prison Prediction](https://news.yahoo.com/beyond-george-conway-hits-trump-051055502.html)
-- Sep 04 - [Chinese gatecrashers at US bases raise espionage concerns -WSJ](https://news.yahoo.com/chinese-gate-crashers-us-bases-031629933.html)
-- Sep 04 - [Burning Man: Organizers Decline Assistance from National Guard as President Biden is Briefed](https://www.yahoo.com/entertainment/burning-man-organizers-decline-assistance-025046514.html)
 <!-- feed end -->
 
 ### Onstream
