@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Humans Have a Third Set of Teeth. New Medicine May Help Them Grow.](https://www.yahoo.com/lifestyle/humans-third-set-teeth-medicine-150000841.html)
+- Sep 04 - [‘Black People Are F—ing Lazy’: Texas Company Displayed Hate Symbols and Nooses, Allowed Managers to Call Black Employees the N-Word, Alarming EEOC Lawsuit Alleges](https://news.yahoo.com/black-people-f-ing-lazy-150000616.html)
+- Sep 04 - [Photos show miles of Russia's infamous 'dragon's teeth' defenses that are holding up Ukrainian forces](https://news.yahoo.com/photos-show-miles-russias-infamous-145958773.html)
+- Sep 04 - [Donald Trump's Mug Shot Merchandise Move May Cost Him His $7 Million Profit](https://www.yahoo.com/entertainment/donald-trumps-mug-shot-merchandise-145457593.html)
 - Sep 04 - [Copenhagen mayor urges foreigners to stop buying marijuana at city's drug oasis following shooting](https://news.yahoo.com/copenhagen-mayor-urges-foreigners-stop-134151962.html)
-- Sep 04 - [5 killed, 3 injured in crash involving multiple cars on I-85 and Ga. 316, Gwinnett police say](https://news.yahoo.com/deadly-crash-shuts-down-part-093228211.html)
-- Sep 04 - [I Nearly Died From 'Broken Heart Syndrome' — And Here's Why You Could Be At Risk, Too](https://news.yahoo.com/nearly-died-broken-heart-syndrome-123003996.html)
-- Sep 04 - [Texas college student shot and killed in 'random' attack](https://news.yahoo.com/texas-college-student-shot-killed-121321603.html)
-- Sep 04 - [Worcester high school student dies of complications from social media challenge, family says](https://news.yahoo.com/worcester-high-school-student-dies-030705798.html)
 <!-- feed end -->
 
 ### Onstream
