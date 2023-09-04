@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Copenhagen mayor urges foreigners to stop buying marijuana at city's drug oasis following shooting](https://news.yahoo.com/copenhagen-mayor-urges-foreigners-stop-134151962.html)
+- Sep 04 - [5 killed, 3 injured in crash involving multiple cars on I-85 and Ga. 316, Gwinnett police say](https://news.yahoo.com/deadly-crash-shuts-down-part-093228211.html)
 - Sep 04 - [Texas college student shot and killed in 'random' attack](https://news.yahoo.com/texas-college-student-shot-killed-121321603.html)
+- Sep 04 - [Reports: Suspect in death of TCU student from Germantown was on probation](https://news.yahoo.com/reports-suspect-death-tcu-student-112200113.html)
 - Sep 04 - [Worcester high school student dies of complications from social media challenge, family says](https://news.yahoo.com/worcester-high-school-student-dies-030705798.html)
-- Sep 04 - [Elon Musk's dad says he's worried the Tesla CEO might be assassinated following a report about his influence on government decisions](https://news.yahoo.com/elon-musks-dad-says-hes-100814758.html)
-- Sep 04 - [MSNBC’s Ayman Mohyeldin Warns: Take Trump At His Word Over Latest Wild Threat](https://news.yahoo.com/msnbc-ayman-mohyeldin-warns-trump-100020564.html)
-- Sep 04 - [Gun owners: It's time for us to stand up against the Second Amendment death culture](https://news.yahoo.com/gun-owners-time-us-stand-100002126.html)
 <!-- feed end -->
 
 ### Onstream
