@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [MSNBC’s Ayman Mohyeldin Warns: Take Trump At His Word Over Latest Wild Threat](https://news.yahoo.com/msnbc-ayman-mohyeldin-warns-trump-100020564.html)
+- Sep 04 - [Ken Paxton tried to hide his affair from his wife and voters. It may be his undoing.](https://news.yahoo.com/ken-paxton-tried-hide-affair-100000542.html)
+- Sep 04 - ['All I'd want is $1 per year': This NYC grocery billionaire wants to buy CNN, and says he'd run the embattled network for pennies. Who is this mogul and why is he so interested?](https://finance.yahoo.com/news/d-want-1-per-nyc-133000721.html)
 - Sep 04 - [Japan's top court orders Okinawa to allow a divisive government plan to build US military runways](https://news.yahoo.com/japans-top-court-orders-okinawa-094239589.html)
-- Sep 04 - [Fox News Hosts' Own Words Come Back To Haunt Trump In Brutal MSNBC Supercut](https://news.yahoo.com/fox-news-hosts-own-words-082858148.html)
-- Sep 04 - [MSNBC Hosts Can’t Stop Laughing At ‘Desperate’ Ted Cruz’s Most Cringe Moment Yet](https://news.yahoo.com/msnbc-hosts-t-stop-laughing-070106559.html)
-- Sep 04 - [Michael Cohen Spots Desperate Sign From Donald Trump](https://news.yahoo.com/michael-cohen-spots-desperate-sign-060529700.html)
-- Sep 04 - [George Stephanopoulos Shocked By New Trump-Biden Poll](https://news.yahoo.com/george-stephanopoulos-shocked-trump-biden-051705780.html)
+- Sep 04 - [Worcester high school student dies of complications from social media challenge, family says](https://news.yahoo.com/worcester-high-school-student-dies-030705798.html)
 <!-- feed end -->
 
 ### Onstream
