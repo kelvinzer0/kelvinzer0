@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [1 person dies and more than a dozen swimmers are rescued after rip current warnings along the New Jersey Shore over Labor Day weekend](https://news.yahoo.com/1-person-dies-more-dozen-182236436.html)
+- Sep 04 - [Pakistani premier claims US military equipment left behind in Afghanistan is now in militant hands](https://news.yahoo.com/pakistani-premier-claims-us-military-185808441.html)
 - Sep 04 - [Dodgers pitcher Julio Urías arrested, charged with felony domestic violence](https://sports.yahoo.com/dodgers-pitcher-julio-urias-arrested-charged-with-felony-domestic-violence-180650634.html)
 - Sep 04 - [Teardown of Huawei's new phone shows China's chip breakthrough](https://news.yahoo.com/teardown-huaweis-phone-shows-chinas-173218841.html)
-- Sep 04 - [An influencer has been sentenced to life in prison for a double murder involving her mom's former lover](https://news.yahoo.com/influencer-sentenced-life-prison-double-164734230.html)
-- Sep 04 - [Bill Maher Pushes Back on Joe Rogan: Trump Is a “Crazy Stupid Criminal”](https://www.yahoo.com/entertainment/bill-maher-pushes-back-joe-164202093.html)
-- Sep 04 - [Dwayne 'The Rock' Johnson and Oprah Winfrey face backlash for asking fans to donate to Maui fund instead of contributing more themselves](https://news.yahoo.com/dwayne-rock-johnson-oprah-winfrey-162156805.html)
+- Sep 04 - [Christine Baumgartner Moved to an Ultra-Luxurious Montecito Home After Losing Kevin Costner Child Support Battle](https://www.yahoo.com/entertainment/christine-baumgartner-moved-ultra-luxurious-172340947.html)
 <!-- feed end -->
 
 ### Onstream
