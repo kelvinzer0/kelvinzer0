@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [An influencer has been sentenced to life in prison for a double murder involving her mom's former lover](https://news.yahoo.com/influencer-sentenced-life-prison-double-164734230.html)
 - Sep 04 - [Bill Maher Pushes Back on Joe Rogan: Trump Is a “Crazy Stupid Criminal”](https://www.yahoo.com/entertainment/bill-maher-pushes-back-joe-164202093.html)
-- Sep 04 - [A mom took out over $77,000 in student loans to send her son with autism to college. He got his debt wiped out — but she's still paying hers off with no end in sight.](https://news.yahoo.com/mom-took-over-77-000-103000160.html)
-- Sep 04 - [‘Black People Are F—ing Lazy’: Texas Company Displayed Hate Symbols and Nooses, Allowed Managers to Call Black Employees the N-Word, Alarming EEOC Lawsuit Alleges](https://news.yahoo.com/black-people-f-ing-lazy-150000616.html)
-- Sep 04 - [Humans Have a Third Set of Teeth. New Medicine May Help Them Grow.](https://www.yahoo.com/lifestyle/humans-third-set-teeth-medicine-150000841.html)
-- Sep 04 - [Photos show miles of Russia's infamous 'dragon's teeth' defenses that are holding up Ukrainian forces](https://news.yahoo.com/photos-show-miles-russias-infamous-145958773.html)
+- Sep 04 - [Dwayne 'The Rock' Johnson and Oprah Winfrey face backlash for asking fans to donate to Maui fund instead of contributing more themselves](https://news.yahoo.com/dwayne-rock-johnson-oprah-winfrey-162156805.html)
+- Sep 04 - [Kimberly Guilfoyle Had To Defend Her 2-Year Engagement to Donald Trump Jr. in a Very Awkward Interview](https://www.yahoo.com/entertainment/kimberly-guilfoyle-had-defend-her-160833643.html)
+- Sep 04 - [Russian Defence Minister makes childish mistake when reporting on "destroyed" Ukrainian tanks](https://news.yahoo.com/russian-defence-minister-makes-childish-155847623.html)
 <!-- feed end -->
 
 ### Onstream
