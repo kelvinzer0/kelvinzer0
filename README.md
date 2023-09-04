@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Dodgers pitcher Julio Urías arrested, charged with felony domestic violence](https://sports.yahoo.com/dodgers-pitcher-julio-urias-arrested-charged-with-felony-domestic-violence-180650634.html)
+- Sep 04 - [Teardown of Huawei's new phone shows China's chip breakthrough](https://news.yahoo.com/teardown-huaweis-phone-shows-chinas-173218841.html)
 - Sep 04 - [An influencer has been sentenced to life in prison for a double murder involving her mom's former lover](https://news.yahoo.com/influencer-sentenced-life-prison-double-164734230.html)
 - Sep 04 - [Bill Maher Pushes Back on Joe Rogan: Trump Is a “Crazy Stupid Criminal”](https://www.yahoo.com/entertainment/bill-maher-pushes-back-joe-164202093.html)
 - Sep 04 - [Dwayne 'The Rock' Johnson and Oprah Winfrey face backlash for asking fans to donate to Maui fund instead of contributing more themselves](https://news.yahoo.com/dwayne-rock-johnson-oprah-winfrey-162156805.html)
-- Sep 04 - [Kimberly Guilfoyle Had To Defend Her 2-Year Engagement to Donald Trump Jr. in a Very Awkward Interview](https://www.yahoo.com/entertainment/kimberly-guilfoyle-had-defend-her-160833643.html)
-- Sep 04 - [Russian Defence Minister makes childish mistake when reporting on "destroyed" Ukrainian tanks](https://news.yahoo.com/russian-defence-minister-makes-childish-155847623.html)
 <!-- feed end -->
 
 ### Onstream
