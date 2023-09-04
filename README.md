@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Humans Have a Third Set of Teeth. New Medicine May Help Them Grow.](https://www.yahoo.com/lifestyle/humans-third-set-teeth-medicine-150000841.html)
+- Sep 04 - [Bill Maher Pushes Back on Joe Rogan: Trump Is a “Crazy Stupid Criminal”](https://www.yahoo.com/entertainment/bill-maher-pushes-back-joe-164202093.html)
+- Sep 04 - [A mom took out over $77,000 in student loans to send her son with autism to college. He got his debt wiped out — but she's still paying hers off with no end in sight.](https://news.yahoo.com/mom-took-over-77-000-103000160.html)
 - Sep 04 - [‘Black People Are F—ing Lazy’: Texas Company Displayed Hate Symbols and Nooses, Allowed Managers to Call Black Employees the N-Word, Alarming EEOC Lawsuit Alleges](https://news.yahoo.com/black-people-f-ing-lazy-150000616.html)
+- Sep 04 - [Humans Have a Third Set of Teeth. New Medicine May Help Them Grow.](https://www.yahoo.com/lifestyle/humans-third-set-teeth-medicine-150000841.html)
 - Sep 04 - [Photos show miles of Russia's infamous 'dragon's teeth' defenses that are holding up Ukrainian forces](https://news.yahoo.com/photos-show-miles-russias-infamous-145958773.html)
-- Sep 04 - [Donald Trump's Mug Shot Merchandise Move May Cost Him His $7 Million Profit](https://www.yahoo.com/entertainment/donald-trumps-mug-shot-merchandise-145457593.html)
-- Sep 04 - [Copenhagen mayor urges foreigners to stop buying marijuana at city's drug oasis following shooting](https://news.yahoo.com/copenhagen-mayor-urges-foreigners-stop-134151962.html)
 <!-- feed end -->
 
 ### Onstream
