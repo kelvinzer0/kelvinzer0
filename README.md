@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Drone Documents Burning Man Campgrounds Following Heavy Rain](https://news.yahoo.com/drone-documents-burning-man-campgrounds-202952002.html)
+- Sep 04 - [A Welsh man uploaded a Facebook video of himself destroying 4,500 year-old rock art. Now, he will get 4 months in prison as officials say the Bronze Age artifact is 'lost forever.'](https://news.yahoo.com/welsh-man-uploaded-facebook-video-195810284.html)
+- Sep 04 - [Police ‘abandoned’ teenager who died after leaping into freezing water to avoid arrest](https://news.yahoo.com/police-abandoned-teenager-died-leaping-193938874.html)
+- Sep 04 - [Atlanta flight forced to come back after flyer has diarrhea ‘all the way through’ plane, pilot says](https://news.yahoo.com/atlanta-flight-forced-come-back-192154026.html)
 - Sep 04 - [1 person dies and more than a dozen swimmers are rescued after rip current warnings along the New Jersey Shore over Labor Day weekend](https://news.yahoo.com/1-person-dies-more-dozen-182236436.html)
-- Sep 04 - [Pakistani premier claims US military equipment left behind in Afghanistan is now in militant hands](https://news.yahoo.com/pakistani-premier-claims-us-military-185808441.html)
-- Sep 04 - [Dodgers pitcher Julio Urías arrested, charged with felony domestic violence](https://sports.yahoo.com/dodgers-pitcher-julio-urias-arrested-charged-with-felony-domestic-violence-180650634.html)
-- Sep 04 - [Teardown of Huawei's new phone shows China's chip breakthrough](https://news.yahoo.com/teardown-huaweis-phone-shows-chinas-173218841.html)
-- Sep 04 - [Christine Baumgartner Moved to an Ultra-Luxurious Montecito Home After Losing Kevin Costner Child Support Battle](https://www.yahoo.com/entertainment/christine-baumgartner-moved-ultra-luxurious-172340947.html)
 <!-- feed end -->
 
 ### Onstream
