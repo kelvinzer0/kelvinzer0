@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [The best Labor Day grill sales: Weber, Blackstone, Cuisinart and more, starting at $25](https://www.yahoo.com/lifestyle/labor-day-grill-sales-2023-175311351.html)
 - Sep 03 - [Biden says disappointed China's Xi will not attend G20 summit](https://news.yahoo.com/biden-says-disappointed-chinas-xi-221642504.html)
+- Sep 03 - [Squatters ravage Wyoming downtown with stomach-turning result: mayor](https://news.yahoo.com/squatters-ravage-wyoming-downtown-stomach-212859524.html)
+- Sep 03 - [Book claims Biden ‘exploded’ as Afghanistan collapsed during his vacation: ‘Give me a break’](https://news.yahoo.com/book-claims-biden-exploded-afghanistan-205737759.html)
 - Sep 03 - [Immune cells that fight cancer become exhausted within hours of first encountering tumors – new research](https://news.yahoo.com/immune-cells-fight-cancer-become-150105860.html)
-- Sep 03 - [A Harvard Law professor says it was 'unbelievably juvenile' for Trump's legal team to cite the infamous 'Scottsboro Boys' case as they pushed for a federal election interference trial in 2026](https://news.yahoo.com/harvard-law-professor-says-unbelievably-205159063.html)
-- Sep 03 - [Russia's massive brain drain is ravaging the economy - these stunning figures show why it will soon be smaller than Indonesia's](https://finance.yahoo.com/news/russias-massive-brain-drain-ravaging-203001178.html)
-- Sep 03 - [Massachusetts troopers and FBI agents respond to American Airlines flight in Boston for reported criminal act](https://news.yahoo.com/massachusetts-troopers-fbi-agents-respond-202313201.html)
 <!-- feed end -->
 
 ### Onstream
