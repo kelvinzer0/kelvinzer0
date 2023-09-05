@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [China: Consumers 'shell shocked' over economic slowdown, strategist says](https://finance.yahoo.com/video/china-consumers-shell-shocked-over-134446286.html)
+- Sep 05 - [Joe Scarborough Unleashes Minutelong Tirade Over Biden-Trump Poll Result](https://news.yahoo.com/joe-scarborough-unleashes-minutelong-tirade-144733651.html)
+- Sep 05 - [Philadelphia Police Commissioner Danielle Outlaw resigns, months before end of mayor's second term](https://news.yahoo.com/philadelphia-police-commissioner-danielle-outlaw-143246870.html)
+- Sep 05 - [Voters believe Biden too old to run for re-election: Survey](https://finance.yahoo.com/video/voters-believe-biden-too-old-142652804.html)
 - Sep 05 - [Ford applies to trademark 'F-200' name, suggesting new pickup is on the way](https://www.autoblog.com/2023/09/05/ford-applies-to-trademark-f200-name-suggesting-new-pickup-is-on-the-way/)
-- Sep 05 - [‘What Did We Do?’: Black Truckers Say They Were Denied Service Before White Server Called Cops to Remove Them from North Dakota Denny’s Restaurant Allegedly Because of Their Race](https://news.yahoo.com/did-black-truckers-were-denied-130000697.html)
-- Sep 05 - ['The Old Farmer’s Almanac' Predicts That Winter Will Be Frigid and Snowy Everywhere But Here](https://www.yahoo.com/lifestyle/old-farmer-almanac-predicts-winter-130000762.html)
-- Sep 05 - [Authoritarianism Expert Predicts Why The GOP Will Implode, For Good](https://news.yahoo.com/authoritarianism-expert-predicts-why-gop-122345456.html)
+- Sep 05 - [A corporal gave a speech in front of the top Marine — and got promoted](https://news.yahoo.com/corporal-gave-speech-front-top-133106739.html)
 <!-- feed end -->
 
 ### Onstream
