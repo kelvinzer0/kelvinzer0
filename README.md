@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [‘Dinner plate sized’ device found inside woman’s abdomen 18 months after cesarean birth](https://news.yahoo.com/dinner-plate-sized-device-found-034635514.html)
+- Sep 05 - [India's government replaces 'India' with ancient name 'Bharat' in dinner invitation to G20 guests](https://news.yahoo.com/indias-government-replaces-india-ancient-115809555.html)
 - Sep 05 - [Video seems to show destroyed Western Challenger-2 tank in Ukraine — it would be the first time one has ever been taken out](https://news.yahoo.com/video-seems-show-destroyed-western-100347068.html)
 - Sep 05 - [Ex-Proud Boys leader to be sentenced for role in US Capitol attack](https://news.yahoo.com/ex-proud-boys-leader-sentenced-100125900.html)
-- Sep 05 - [5 teens killed after car flips 50 feet off Ga. 316 overpass onto I-85, police say](https://news.yahoo.com/deadly-crash-shuts-down-part-093228211.html)
-- Sep 05 - [Trump’s co-defendants are already starting to turn against him](https://news.yahoo.com/trump-co-defendants-already-starting-090000078.html)
+- Sep 05 - [Cleveland-Cliffs' bid to keep US blast furnaces smelting](https://finance.yahoo.com/news/focus-inside-cleveland-cliffs-bid-100000026.html)
+- Sep 05 - [LAX banned a common travel item that’s forbidden in only one other major airport: ‘The right thing to do’](https://news.yahoo.com/lax-banned-common-travel-item-130000349.html)
 <!-- feed end -->
 
 ### Onstream
