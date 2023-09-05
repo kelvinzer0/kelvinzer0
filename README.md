@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Design approved for memorial to the victims and survivors of the 2017 Las Vegas mass shooting](https://news.yahoo.com/design-approved-memorial-victims-survivors-210146523.html)
-- Sep 05 - [Vandals saw top off iconic sculpture where hikers pose on California peak, officials say](https://news.yahoo.com/vandals-saw-top-off-iconic-205528732.html)
+- Sep 05 - [Man who killed 6 members of a Nebraska family in 1975 dies after complaining of chest pain](https://news.yahoo.com/man-killed-6-members-nebraska-222216636.html)
+- Sep 05 - [Rep. Ken Buck rips Colorado GOP letter about Jan. 6 defendants’ treatment](https://news.yahoo.com/rep-ken-buck-rips-colorado-215859149.html)
+- Sep 05 - [That Big Poll Showing Trump and Biden Are Evenly Matched? Trump Helped Pay for It.](https://news.yahoo.com/big-poll-showing-trump-biden-204914227.html)
 - Sep 05 - [Ram Goes Flying In Georgia Police Chase](https://news.yahoo.com/ram-goes-flying-georgia-police-200000985.html)
 - Sep 05 - [Alabama Is Quickly Discovering the Dangers of Defying the Supreme Court](https://news.yahoo.com/alabama-quickly-discovering-dangers-defying-195944032.html)
-- Sep 05 - [Voting rights groups ask to dismiss lawsuit challenging gerrymandered Ohio congressional map](https://news.yahoo.com/voting-rights-groups-ask-dismiss-195941920.html)
 <!-- feed end -->
 
 ### Onstream
