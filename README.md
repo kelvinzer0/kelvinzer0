@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [China: Consumers 'shell shocked' over economic slowdown, strategist says](https://finance.yahoo.com/video/china-consumers-shell-shocked-over-134446286.html)
+- Sep 05 - [Ford applies to trademark 'F-200' name, suggesting new pickup is on the way](https://www.autoblog.com/2023/09/05/ford-applies-to-trademark-f200-name-suggesting-new-pickup-is-on-the-way/)
+- Sep 05 - [‘What Did We Do?’: Black Truckers Say They Were Denied Service Before White Server Called Cops to Remove Them from North Dakota Denny’s Restaurant Allegedly Because of Their Race](https://news.yahoo.com/did-black-truckers-were-denied-130000697.html)
+- Sep 05 - ['The Old Farmer’s Almanac' Predicts That Winter Will Be Frigid and Snowy Everywhere But Here](https://www.yahoo.com/lifestyle/old-farmer-almanac-predicts-winter-130000762.html)
 - Sep 05 - [Authoritarianism Expert Predicts Why The GOP Will Implode, For Good](https://news.yahoo.com/authoritarianism-expert-predicts-why-gop-122345456.html)
-- Sep 05 - [India's government replaces 'India' with ancient name 'Bharat' in dinner invitation to G20 guests](https://news.yahoo.com/indias-government-replaces-india-ancient-115809555.html)
-- Sep 05 - [Russian infighting may have led to Ukraine retaking a key town in its counteroffensive: report](https://news.yahoo.com/russian-infighting-may-led-ukraine-111407012.html)
-- Sep 05 - [Video seems to show destroyed Western Challenger-2 tank in Ukraine — it would be the first time one has ever been taken out](https://news.yahoo.com/video-seems-show-destroyed-western-100347068.html)
-- Sep 05 - [Expert sounds the alarm after U.S. Supreme Court sides with couple wanting to build house at protected site](https://news.yahoo.com/expert-sounds-alarm-u-supreme-113000832.html)
 <!-- feed end -->
 
 ### Onstream
