@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [Design approved for memorial to the victims and survivors of the 2017 Las Vegas mass shooting](https://news.yahoo.com/design-approved-memorial-victims-survivors-210146523.html)
+- Sep 05 - [Vandals saw top off iconic sculpture where hikers pose on California peak, officials say](https://news.yahoo.com/vandals-saw-top-off-iconic-205528732.html)
 - Sep 05 - [Ram Goes Flying In Georgia Police Chase](https://news.yahoo.com/ram-goes-flying-georgia-police-200000985.html)
+- Sep 05 - [Alabama Is Quickly Discovering the Dangers of Defying the Supreme Court](https://news.yahoo.com/alabama-quickly-discovering-dangers-defying-195944032.html)
 - Sep 05 - [Voting rights groups ask to dismiss lawsuit challenging gerrymandered Ohio congressional map](https://news.yahoo.com/voting-rights-groups-ask-dismiss-195941920.html)
-- Sep 05 - [Complaints over campaign comments by Wisconsin Supreme Court justice are dismissed](https://news.yahoo.com/complaints-over-campaign-comments-wisconsin-194908824.html)
-- Sep 05 - [Man describes chilling moment he encountered escaped killer using his home as hiding spot](https://news.yahoo.com/man-describes-chilling-moment-encountered-194431726.html)
-- Sep 05 - [Police Launch Investigation Into Viral Video of Cop Kissing Woman and Joining Her in Backseat of Cruiser](https://www.yahoo.com/entertainment/police-launch-investigation-viral-video-191851386.html)
 <!-- feed end -->
 
 ### Onstream
