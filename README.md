@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [The maximum Social Security benefit is a juicy $4,555 per month — but you need a high salary to get there. Here's how much you must earn, and when you should start collecting](https://finance.yahoo.com/news/maximum-social-security-benefit-juicy-170000037.html)
+- Sep 05 - [Fact Check: CDC Says Vaccinated Americans Have Higher Risk of Infection than Unvaccinated?](https://news.yahoo.com/fact-check-cdc-says-vaccinated-164700452.html)
+- Sep 05 - [Hillary Clinton's allies used a QR code from a bag of chips to make a visa look more official in a desperate bid to get women out of Afghanistan: book](https://news.yahoo.com/hillary-clintons-allies-used-qr-162840234.html)
 - Sep 05 - [New tropical depression forms, expected to strengthen. Early track points toward Florida](https://news.yahoo.com/tropical-depression-forms-expected-strengthen-161116486.html)
 - Sep 05 - [Dog plunges from 4,000-step staircase on illegal hike with owner, Hawaii officials say](https://news.yahoo.com/dog-plunges-4-000-step-160330809.html)
-- Sep 05 - [A travel influencer is clapping back after she was labeled privileged and out of touch for telling people to 'just book a flight' to Thailand](https://news.yahoo.com/travel-influencer-clapping-back-she-153454363.html)
-- Sep 05 - [Donald Trump's Truth Social Might Be Days Away From a Full Collapse as Crucial Deadline Approaches](https://www.yahoo.com/entertainment/donald-trumps-truth-social-might-151800868.html)
-- Sep 05 - [‘Absolutely Could Have Been Prevented’: Family of South Carolina Teacher Killed by a Fallen Utility Pole In Freak Accident Seeks $130 Million In Damages](https://news.yahoo.com/absolutely-could-prevented-family-south-150942561.html)
 <!-- feed end -->
 
 ### Onstream
