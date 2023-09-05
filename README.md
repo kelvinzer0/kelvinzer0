@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [Bill Gates's Bold Bet On Bud Light's Comeback: Acquires 1,703,000 Shares Amid Slump As Brand Aims To Win Back Customers With NFL Sunday Ticket Campaign](https://finance.yahoo.com/news/bill-gatess-bold-bet-bud-154755104.html)
+- Sep 05 - [Owner of collapsed Iowa building that killed 3 people files lawsuit blaming engineering company](https://news.yahoo.com/owner-collapsed-iowa-building-killed-154117244.html)
+- Sep 05 - [‘Absolutely Could Have Been Prevented’: Family of South Carolina Teacher Killed by a Fallen Utility Pole In Freak Accident Seeks $130 Million In Damages](https://news.yahoo.com/absolutely-could-prevented-family-south-150942561.html)
+- Sep 05 - [Russia is piling tires on top of its prized bombers, images show — a possible crude attempt to trick Ukraine's missiles](https://news.yahoo.com/russia-piling-tires-top-prized-150046959.html)
 - Sep 05 - [Joe Scarborough Unleashes Minutelong Tirade Over Biden-Trump Poll Result](https://news.yahoo.com/joe-scarborough-unleashes-minutelong-tirade-144733651.html)
-- Sep 05 - [Philadelphia Police Commissioner Danielle Outlaw resigns, months before end of mayor's second term](https://news.yahoo.com/philadelphia-police-commissioner-danielle-outlaw-143246870.html)
-- Sep 05 - [Voters believe Biden too old to run for re-election: Survey](https://finance.yahoo.com/video/voters-believe-biden-too-old-142652804.html)
-- Sep 05 - [Ford applies to trademark 'F-200' name, suggesting new pickup is on the way](https://www.autoblog.com/2023/09/05/ford-applies-to-trademark-f200-name-suggesting-new-pickup-is-on-the-way/)
-- Sep 05 - [A corporal gave a speech in front of the top Marine — and got promoted](https://news.yahoo.com/corporal-gave-speech-front-top-133106739.html)
 <!-- feed end -->
 
 ### Onstream
