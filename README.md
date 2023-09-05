@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Bill Gates's Bold Bet On Bud Light's Comeback: Acquires 1,703,000 Shares Amid Slump As Brand Aims To Win Back Customers With NFL Sunday Ticket Campaign](https://finance.yahoo.com/news/bill-gatess-bold-bet-bud-154755104.html)
-- Sep 05 - [Owner of collapsed Iowa building that killed 3 people files lawsuit blaming engineering company](https://news.yahoo.com/owner-collapsed-iowa-building-killed-154117244.html)
+- Sep 05 - [New tropical depression forms, expected to strengthen. Early track points toward Florida](https://news.yahoo.com/tropical-depression-forms-expected-strengthen-161116486.html)
+- Sep 05 - [Dog plunges from 4,000-step staircase on illegal hike with owner, Hawaii officials say](https://news.yahoo.com/dog-plunges-4-000-step-160330809.html)
+- Sep 05 - [A travel influencer is clapping back after she was labeled privileged and out of touch for telling people to 'just book a flight' to Thailand](https://news.yahoo.com/travel-influencer-clapping-back-she-153454363.html)
+- Sep 05 - [Donald Trump's Truth Social Might Be Days Away From a Full Collapse as Crucial Deadline Approaches](https://www.yahoo.com/entertainment/donald-trumps-truth-social-might-151800868.html)
 - Sep 05 - [‘Absolutely Could Have Been Prevented’: Family of South Carolina Teacher Killed by a Fallen Utility Pole In Freak Accident Seeks $130 Million In Damages](https://news.yahoo.com/absolutely-could-prevented-family-south-150942561.html)
-- Sep 05 - [Russia is piling tires on top of its prized bombers, images show — a possible crude attempt to trick Ukraine's missiles](https://news.yahoo.com/russia-piling-tires-top-prized-150046959.html)
-- Sep 05 - [Joe Scarborough Unleashes Minutelong Tirade Over Biden-Trump Poll Result](https://news.yahoo.com/joe-scarborough-unleashes-minutelong-tirade-144733651.html)
 <!-- feed end -->
 
 ### Onstream
