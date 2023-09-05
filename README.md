@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [Trump’s Fulton County Case Has Descended Into Chaos Even Before It Starts](https://news.yahoo.com/trump-fulton-county-case-descended-081041336.html)
 - Sep 05 - [‘Dinner plate sized’ device found inside woman’s abdomen 18 months after cesarean birth](https://news.yahoo.com/dinner-plate-sized-device-found-034635514.html)
 - Sep 05 - [‘Our child died because doctors didn’t listen – Martha’s rule will ensure patients are heard’](https://news.yahoo.com/child-died-because-doctors-didn-060000955.html)
 - Sep 05 - [Utah special election primary offers glimpse into Republican voters' thoughts on Trump indictments](https://news.yahoo.com/utah-special-election-primary-offers-041307462.html)
 - Sep 05 - [5 teens identified in deadly crash involving multiple cars on I-85 and Ga. 316 in Gwinnett](https://news.yahoo.com/deadly-crash-shuts-down-part-093228211.html)
-- Sep 05 - [An ER doctor shared 7 key places he still wears a mask — and explained why he didn't put one on at the US Open](https://www.yahoo.com/lifestyle/er-doctor-shared-7-key-023606426.html)
 <!-- feed end -->
 
 ### Onstream
