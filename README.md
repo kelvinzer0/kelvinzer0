@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Critics Burn GOP Sen. Marsha Blackburn After Clueless Complaint About 'The Left'](https://news.yahoo.com/critics-burn-gop-sen-marsha-024036000.html)
-- Sep 05 - [Burning Man Fatality Identified as 32-Year-Old Leon Reece, Police Say](https://news.yahoo.com/burning-man-fatality-identified-32-021343319.html)
-- Sep 05 - [Two people have been accused of using an excavator to destroy part of the Great Wall of China to create a shortcut](https://news.yahoo.com/two-people-accused-using-excavator-004842756.html)
-- Sep 04 - [Worcester high school student dies of complications from social media challenge, family says](https://news.yahoo.com/worcester-high-school-student-dies-030705798.html)
-- Sep 04 - [Drone Documents Burning Man Campgrounds Following Heavy Rain](https://news.yahoo.com/drone-documents-burning-man-campgrounds-202952002.html)
+- Sep 05 - [Utah special election primary offers glimpse into Republican voters' thoughts on Trump indictments](https://news.yahoo.com/utah-special-election-primary-offers-041307462.html)
+- Sep 05 - [‘Dinner plate sized’ device found inside woman’s abdomen 18 months after cesarean birth](https://news.yahoo.com/dinner-plate-sized-device-found-034635514.html)
+- Sep 05 - [5 teens identified in deadly crash involving multiple cars on I-85 and Ga. 316 in Gwinnett](https://news.yahoo.com/deadly-crash-shuts-down-part-093228211.html)
+- Sep 05 - [An ER doctor shared 7 key places he still wears a mask — and explained why he didn't put one on at the US Open](https://www.yahoo.com/lifestyle/er-doctor-shared-7-key-023606426.html)
+- Sep 05 - [Sen. Mitt Romney’s approval rating among Utah Republicans jumps higher as he considers a second run for Senate](https://news.yahoo.com/sen-mitt-romney-approval-rating-030000056.html)
 <!-- feed end -->
 
 ### Onstream
