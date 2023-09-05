@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [New book details Biden-Obama frictions and says Harris sought roles 'away from the spotlight'](https://news.yahoo.com/book-details-biden-obama-frictions-183210869.html)
-- Sep 05 - [Putin is developing a sinister new plan for victory](https://news.yahoo.com/putin-developing-sinister-plan-victory-180000526.html)
-- Sep 05 - [US moves to force recall of 52 million air bag inflators that can explode and hurl shrapnel](https://news.yahoo.com/us-takes-step-force-recall-171954007.html)
-- Sep 05 - [The maximum Social Security benefit is a juicy $4,555 per month — but you need a high salary to get there. Here's how much you must earn, and when you should start collecting](https://finance.yahoo.com/news/maximum-social-security-benefit-juicy-170000037.html)
-- Sep 05 - [Fact Check: CDC Says Vaccinated Americans Have Higher Risk of Infection than Unvaccinated?](https://news.yahoo.com/fact-check-cdc-says-vaccinated-164700452.html)
+- Sep 05 - [Complaints over campaign comments by Wisconsin Supreme Court justice are dismissed](https://news.yahoo.com/complaints-over-campaign-comments-wisconsin-194908824.html)
+- Sep 05 - [Man describes chilling moment he encountered escaped killer using his home as hiding spot](https://news.yahoo.com/man-describes-chilling-moment-encountered-194431726.html)
+- Sep 05 - [Police Launch Investigation Into Viral Video of Cop Kissing Woman and Joining Her in Backseat of Cruiser](https://www.yahoo.com/entertainment/police-launch-investigation-viral-video-191851386.html)
+- Sep 05 - [Letitia James wants Trump, sons, and lawyers fined $10K each for repeatedly making losing arguments in her fraud case](https://news.yahoo.com/letitia-james-wants-trump-sons-184525857.html)
+- Sep 05 - [We've Been Looking for Amelia Earhart for 86 Years. A Photo May Have Finally Found Her.](https://news.yahoo.com/weve-looking-amelia-earhart-86-183700883.html)
 <!-- feed end -->
 
 ### Onstream
