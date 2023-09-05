@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [Authoritarianism Expert Predicts Why The GOP Will Implode, For Good](https://news.yahoo.com/authoritarianism-expert-predicts-why-gop-122345456.html)
 - Sep 05 - [India's government replaces 'India' with ancient name 'Bharat' in dinner invitation to G20 guests](https://news.yahoo.com/indias-government-replaces-india-ancient-115809555.html)
+- Sep 05 - [Russian infighting may have led to Ukraine retaking a key town in its counteroffensive: report](https://news.yahoo.com/russian-infighting-may-led-ukraine-111407012.html)
 - Sep 05 - [Video seems to show destroyed Western Challenger-2 tank in Ukraine — it would be the first time one has ever been taken out](https://news.yahoo.com/video-seems-show-destroyed-western-100347068.html)
-- Sep 05 - [Ex-Proud Boys leader to be sentenced for role in US Capitol attack](https://news.yahoo.com/ex-proud-boys-leader-sentenced-100125900.html)
-- Sep 05 - [Cleveland-Cliffs' bid to keep US blast furnaces smelting](https://finance.yahoo.com/news/focus-inside-cleveland-cliffs-bid-100000026.html)
-- Sep 05 - [LAX banned a common travel item that’s forbidden in only one other major airport: ‘The right thing to do’](https://news.yahoo.com/lax-banned-common-travel-item-130000349.html)
+- Sep 05 - [Expert sounds the alarm after U.S. Supreme Court sides with couple wanting to build house at protected site](https://news.yahoo.com/expert-sounds-alarm-u-supreme-113000832.html)
 <!-- feed end -->
 
 ### Onstream
