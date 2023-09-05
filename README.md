@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [American Airlines sues over trick for cheaper flights](https://news.yahoo.com/american-airlines-sues-over-trick-002821102.html)
-- Sep 04 - [A woman depicted in a drawing by the BTK serial killer has possibly been identified, sheriff says](https://news.yahoo.com/woman-depicted-drawing-btk-serial-222137343.html)
+- Sep 05 - [Two people have been accused of using an excavator to destroy part of the Great Wall of China to create a shortcut](https://news.yahoo.com/two-people-accused-using-excavator-004842756.html)
 - Sep 04 - [Worcester high school student dies of complications from social media challenge, family says](https://news.yahoo.com/worcester-high-school-student-dies-030705798.html)
-- Sep 04 - [Amazon is reportedly getting into legal fights with landlords as 'zombie' Amazon Fresh stores pile up](https://news.yahoo.com/amazon-reportedly-getting-legal-fights-210013688.html)
+- Sep 04 - [Drone Documents Burning Man Campgrounds Following Heavy Rain](https://news.yahoo.com/drone-documents-burning-man-campgrounds-202952002.html)
 - Sep 04 - [A Welsh man uploaded a Facebook video of himself destroying 4,500 year-old rock art. Now, he will get 4 months in prison as officials say the Bronze Age artifact is 'lost forever.'](https://news.yahoo.com/welsh-man-uploaded-facebook-video-195810284.html)
+- Sep 04 - [Police ‘abandoned’ teenager who died after leaping into freezing water to avoid arrest](https://news.yahoo.com/police-abandoned-teenager-died-leaping-193938874.html)
 <!-- feed end -->
 
 ### Onstream
