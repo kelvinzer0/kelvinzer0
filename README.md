@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - [Trump was warned FBI could raid Mar-a-Lago as team feared he'd 'go ballistic' complying with subpoena, lawyer's notes show](https://www.yahoo.com/gma/trump-warned-fbi-could-raid-090851657.html)
 - Sep 06 - [Chris Christie Predicts ‘The Minute’ Trump's 2024 Campaign Will Start To Crumble](https://news.yahoo.com/chris-christie-predicts-minute-trumps-070350675.html)
 - Sep 06 - [Vietnam pilot who disregarded direct order gets Medal of Honor](https://news.yahoo.com/vietnam-pilot-disregarded-direct-order-015113446.html)
 - Sep 06 - [Ex-Prosecutor Predicts What Proud Boy Prison Time May Mean For Donald Trump](https://news.yahoo.com/ex-prosecutor-predicts-proud-boy-060840057.html)
 - Sep 06 - [Russia 'tactically' withdrew from Ukraine's Robotyne, official says](https://news.yahoo.com/russia-tactically-withdrew-ukraines-robotyne-055035734.html)
-- Sep 06 - [Florida man arrested by Coast Guard for trying to cross Atlantic in human-sized hamster wheel](https://news.yahoo.com/florida-man-arrested-coast-guard-041150178.html)
 <!-- feed end -->
 
 ### Onstream
