@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Trump's comments risk tainting a jury in federal election subversion case, special counsel says](https://news.yahoo.com/trumps-comments-risk-tainting-jury-231231644.html)
+- Sep 06 - [UPDATE 1-Verizon unit to pay $4 million US penalty to resolve cybersecurity claims](https://finance.yahoo.com/news/1-verizon-unit-pay-4-015200502.html)
+- Sep 05 - [Trump's comments risk tainting jury pool in federal election subversion case, special counsel says](https://news.yahoo.com/trumps-comments-risk-tainting-jury-231231644.html)
+- Sep 05 - [Hawaiian Airlines parent tempers outlook on Maui wildfire, engine issues](https://finance.yahoo.com/news/hawaiian-airlines-parent-tempers-outlook-221740046.html)
 - Sep 05 - [Presidential Motorcade's Roadrunner Ran Off The Road In Florida](https://news.yahoo.com/presidential-motorcades-roadrunner-ran-off-221436226.html)
-- Sep 05 - [Kansas newspaper's lawyer says police didn't follow warrant in last month's newsroom search](https://news.yahoo.com/kansas-newspapers-lawyer-says-police-221307467.html)
 - Sep 05 - [Rep. Ken Buck rips Colorado GOP letter about Jan. 6 defendants’ treatment](https://news.yahoo.com/rep-ken-buck-rips-colorado-215859149.html)
-- Sep 05 - [Fauci's masking message amid rising COVID cases has doctors sounding off: 'Will not reduce the spread'](https://news.yahoo.com/faucis-masking-message-amid-rising-215256307.html)
 <!-- feed end -->
 
 ### Onstream
