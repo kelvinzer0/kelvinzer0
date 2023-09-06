@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Trump was warned that FBI could raid Mar-a-Lago months ahead of time, lawyer's notes show](https://www.yahoo.com/gma/trump-warned-fbi-could-raid-090851657.html)
+- Sep 06 - [This Toyota SUV was designed to complete with Bentley and Rolls-Royce](https://www.autoblog.com/2023/09/06/toyota-century-suv-2/)
+- Sep 06 - [Former Smash Mouth frontman Steve Harwell dies of liver failure — what Canadians need to know](https://news.yahoo.com/steve-harwell-liver-failure-canadians-liver-disease-134507117.html)
 - Sep 06 - [Sarah Palin On Insurrectionists' Prison Time: 'What's The Use In Being A Good Guy?'](https://news.yahoo.com/sarah-palin-insurrectionists-prison-time-132828749.html)
 - Sep 06 - [Family spending teen’s ‘remaining days’ by her side after crash](https://news.yahoo.com/four-people-hospitalized-south-charlotte-094309876.html)
 - Sep 06 - [A former Mossad chief says Israel is enforcing an apartheid system in the West Bank](https://news.yahoo.com/former-mossad-chief-says-israel-122715939.html)
-- Sep 06 - [Germany forges pact for Leopard 2 successor in snub to Paris - Handelsblatt](https://news.yahoo.com/germany-forges-pact-leopard-2-122117972.html)
 <!-- feed end -->
 
 ### Onstream
