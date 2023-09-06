@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 06 - [Hurricane Lee: Projected path, maps and hurricane tracker](https://www.yahoo.com/gma/tropical-storm-lee-projected-path-114238349.html)
-- Sep 06 - [Mike Huckabee Hints at Violence if Trump Loses in 2024: Will Be Last Election ‘Decided by Ballots Rather Than Bullets’ (Video)](https://www.yahoo.com/entertainment/mike-huckabee-hints-violence-trump-204332757.html)
+- Sep 06 - [A 6,000-Year-Old Ceremonial Monument Was Just Discovered in Scotland](https://www.yahoo.com/lifestyle/6-000-old-ceremonial-monument-210000275.html)
+- Sep 06 - [Huckabee: 2024 will be last election ‘decided by ballots rather than bullets’ if Trump loses over legal cases](https://news.yahoo.com/huckabee-2024-last-election-decided-201910814.html)
 - Sep 06 - [The daughter of the woman killed by Pennsylvania prison escapee Danelo Cavalcante told police he said he was going ‘to do something bad’ to their lives](https://news.yahoo.com/know-pennsylvania-prison-escapee-danelo-002152777.html)
 - Sep 06 - [Government shutdown 'would be a mess': Secretary Pete Buttigieg](https://finance.yahoo.com/video/government-shutdown-mess-secretary-pete-200915012.html)
-- Sep 06 - [A football coach who got job back after Supreme Court ruled he could pray on the field has resigned](https://news.yahoo.com/football-coach-got-job-back-193405979.html)
 <!-- feed end -->
 
 ### Onstream
