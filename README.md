@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [US lawmaker calls for ending Huawei, SMIC exports after chip breakthrough](https://news.yahoo.com/us-lawmaker-calls-ending-huawei-183009687.html)
+- Sep 06 - [A football coach who got job back after Supreme Court ruled he could pray on the field has resigned](https://news.yahoo.com/football-coach-got-job-back-193405979.html)
+- Sep 06 - [Tropical Storm Lee: Projected path, maps and hurricane tracker](https://www.yahoo.com/gma/tropical-storm-lee-projected-path-114238349.html)
+- Sep 06 - [Wife waits in car for 79-year-old husband to scout for hunting spot. He never returned](https://news.yahoo.com/wife-waits-car-79-old-191243877.html)
+- Sep 06 - [Georgia Prosecutors Land a Significant Win in Trump Case](https://news.yahoo.com/judge-tosses-trump-co-defendants-183135339.html)
 - Sep 06 - ['It's just bragging rights': This finance expert says that once you attain this credit score, there's really 'no benefit' to scoring higher — here are 3 ways to hit that key threshold](https://finance.yahoo.com/news/just-bragging-rights-finance-expert-183000462.html)
-- Sep 06 - [The daughter of the woman killed by Pennsylvania prison escapee Danelo Cavalcante told police he said he was going ‘to do something bad’ to their lives](https://news.yahoo.com/know-pennsylvania-prison-escapee-danelo-002152777.html)
-- Sep 06 - [UAW plans to make contract counteroffer to Ford - source](https://finance.yahoo.com/news/uaw-plans-contract-counteroffer-ford-181418341.html)
-- Sep 06 - [Watch: Man Calmly Ushers Giant Black Bear Off Patio, Gets Swatted](https://www.yahoo.com/lifestyle/watch-man-calmly-ushers-giant-180032422.html)
 <!-- feed end -->
 
 ### Onstream
