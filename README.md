@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - [Vietnam pilot who disregarded direct order gets Medal of Honor](https://news.yahoo.com/vietnam-pilot-disregarded-direct-order-015113446.html)
 - Sep 06 - [Furious Italians Ban Kanye West And ‘Wife’ Bianca Censori For Life After Couple Commit a Lewd Act On a Boat In Venice: ‘He is No Longer Welcome’](https://news.yahoo.com/furious-italians-ban-kanye-west-020352741.html)
 - Sep 06 - [Stingray impales woman's back, missing her lung by 1 inch](https://news.yahoo.com/stingray-impales-womans-back-missing-015512418.html)
-- Sep 06 - [Canadian man accused of running over and killing a Muslim family pleads not guilty](https://news.yahoo.com/canadian-man-accused-running-over-005414369.html)
-- Sep 05 - [Trump's comments risk tainting jury pool in federal election subversion case, special counsel says](https://news.yahoo.com/trumps-comments-risk-tainting-jury-231231644.html)
-- Sep 05 - [Presidential Motorcade's Roadrunner Ran Off The Road In Florida](https://news.yahoo.com/presidential-motorcades-roadrunner-ran-off-221436226.html)
+- Sep 06 - [Missing Las Vegas man died alone because hospital gave him fake name instead of ‘John Doe,’ sister says](https://news.yahoo.com/missing-las-vegas-man-died-010819620.html)
+- Sep 06 - [Chris Christie makes a prediction about Trump’s success in GOP primaries](https://news.yahoo.com/chris-christie-makes-prediction-trump-010723850.html)
 <!-- feed end -->
 
 ### Onstream
