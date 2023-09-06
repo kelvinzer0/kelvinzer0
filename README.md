@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - ['Still want that drink?' Disgusting bar practice at popular holiday spot exposed by police](https://www.thestreet.com/travel/are-greek-bars-reselling-unfinished-drinks?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Sep 06 - [Witness in Trump documents case reached deal with prosecutors, ex-attorney says](https://news.yahoo.com/witness-trump-documents-case-reached-164044988.html)
+- Sep 06 - [Lawsuit contends Constitution's 'insurrection' clause bars Trump from running again for president](https://news.yahoo.com/lawsuit-contends-constitutions-insurrection-clause-162801488.html)
 - Sep 06 - [Megyn Kelly, Just Asking Questions: Are the Obamas Running a ‘Shadow Puppet’ Government?](https://www.yahoo.com/entertainment/megyn-kelly-just-asking-questions-155713388.html)
-- Sep 06 - [Should Supreme Court disqualify Trump from running? It now looks as if justices may be asked to rule](https://news.yahoo.com/supreme-court-disqualify-trump-running-155448589.html)
 - Sep 06 - [The Toyota Century SUV Is a Budget Rolls-Royce Cullinan With Sliding Rear Doors](https://news.yahoo.com/toyota-century-suv-budget-rolls-153527253.html)
-- Sep 06 - [A Flesh-Eating Pathogen Has Come for East Coast Beaches. It Can Kill You in 2 Days.](https://www.yahoo.com/lifestyle/flesh-eating-pathogen-come-east-153200984.html)
 <!-- feed end -->
 
 ### Onstream
