@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - [This California handyman found a creative way to force out squatters — but it's a dangerous tactic. Here are 3 ways to invest in real estate without putting your safety at risk](https://finance.yahoo.com/news/california-handyman-found-creative-way-110000850.html)
+- Sep 06 - [Analysis-For foreign envoys in China, Xi’s G20 absence confirms worrying trend](https://news.yahoo.com/analysis-foreign-envoys-china-xi-105338419.html)
+- Sep 06 - [A Russian pilot who defected to Ukraine said his helicopter crew panicked when they realised what was happening but couldn't stop him as he was the only one who could fly it](https://news.yahoo.com/russian-pilot-defected-ukraine-said-102316974.html)
 - Sep 06 - [4 exceptionally preserved Roman swords discovered in a Dead Sea cave in Israel](https://news.yahoo.com/4-exceptionally-preserved-roman-swords-101341733.html)
-- Sep 06 - [Trump was warned FBI could raid Mar-a-Lago as team feared he'd 'go ballistic' complying with subpoena, lawyer's notes show](https://www.yahoo.com/gma/trump-warned-fbi-could-raid-090851657.html)
-- Sep 06 - [Video of a Ram truck flying through Burning Man's mud trap while hauling an RV is the best ad a car company could ask for](https://news.yahoo.com/video-ram-truck-flying-burning-085801089.html)
-- Sep 06 - [Chris Christie Predicts ‘The Minute’ Trump's 2024 Campaign Will Start To Crumble](https://news.yahoo.com/chris-christie-predicts-minute-trumps-070350675.html)
-- Sep 06 - [Vietnam pilot who disregarded direct order gets Medal of Honor](https://news.yahoo.com/vietnam-pilot-disregarded-direct-order-015113446.html)
+- Sep 06 - [Philippine $3 billion airport project has three potential bidders - secretary](https://news.yahoo.com/philippine-3-billion-airport-project-100214930.html)
 <!-- feed end -->
 
 ### Onstream
