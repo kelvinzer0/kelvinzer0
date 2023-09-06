@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - [Witness in Trump documents case reached deal with prosecutors, ex-attorney says](https://news.yahoo.com/witness-trump-documents-case-reached-164044988.html)
+- Sep 06 - [Megyn Kelly, Just Asking Questions: Are the Obamas Running a ‘Shadow Puppet’ Government?](https://www.yahoo.com/entertainment/megyn-kelly-just-asking-questions-155713388.html)
+- Sep 06 - [Should Supreme Court disqualify Trump from running? It now looks as if justices may be asked to rule](https://news.yahoo.com/supreme-court-disqualify-trump-running-155448589.html)
+- Sep 06 - [The Toyota Century SUV Is a Budget Rolls-Royce Cullinan With Sliding Rear Doors](https://news.yahoo.com/toyota-century-suv-budget-rolls-153527253.html)
 - Sep 06 - [A Flesh-Eating Pathogen Has Come for East Coast Beaches. It Can Kill You in 2 Days.](https://www.yahoo.com/lifestyle/flesh-eating-pathogen-come-east-153200984.html)
-- Sep 06 - [Judge rules Trump in 2019 defamed writer who has already won a sex abuse and libel suit against him](https://news.yahoo.com/judge-rules-trump-2019-defamed-151638893.html)
-- Sep 06 - [Criminal investigation underway after woman evacuated from yacht off Nantucket, owner arrested](https://news.yahoo.com/criminal-investigation-underway-woman-evacuated-144034642.html)
-- Sep 06 - [People keep telling me I was beautiful before getting a gastric bypass and losing 90 pounds. I know that already.](https://www.yahoo.com/lifestyle/people-keep-telling-beautiful-getting-143357015.html)
-- Sep 06 - [The daughter of the woman killed by Pennsylvania prison escapee Danelo Cavalcante told police he said he was going ‘to do something bad’ to their lives](https://news.yahoo.com/know-pennsylvania-prison-escapee-danelo-002152777.html)
 <!-- feed end -->
 
 ### Onstream
