@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 06 - [This California handyman found a creative way to force out squatters — but it's a dangerous tactic. Here are 3 ways to invest in real estate without putting your safety at risk](https://finance.yahoo.com/news/california-handyman-found-creative-way-110000850.html)
 - Sep 06 - [Analysis-For foreign envoys in China, Xi’s G20 absence confirms worrying trend](https://news.yahoo.com/analysis-foreign-envoys-china-xi-105338419.html)
+- Sep 06 - [Group shares eerie photos of disastrous man-made reef off coast of Florida: ‘500,000 tires left sitting at the bottom of the ocean’](https://news.yahoo.com/group-shares-eerie-photos-disastrous-104500864.html)
 - Sep 06 - [A Russian pilot who defected to Ukraine said his helicopter crew panicked when they realised what was happening but couldn't stop him as he was the only one who could fly it](https://news.yahoo.com/russian-pilot-defected-ukraine-said-102316974.html)
 - Sep 06 - [4 exceptionally preserved Roman swords discovered in a Dead Sea cave in Israel](https://news.yahoo.com/4-exceptionally-preserved-roman-swords-101341733.html)
-- Sep 06 - [Philippine $3 billion airport project has three potential bidders - secretary](https://news.yahoo.com/philippine-3-billion-airport-project-100214930.html)
 <!-- feed end -->
 
 ### Onstream
