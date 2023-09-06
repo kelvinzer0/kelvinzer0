@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [This Toyota SUV was designed to complete with Bentley and Rolls-Royce](https://www.autoblog.com/2023/09/06/toyota-century-suv-2/)
-- Sep 06 - [Former Smash Mouth frontman Steve Harwell dies of liver failure — what Canadians need to know](https://news.yahoo.com/steve-harwell-liver-failure-canadians-liver-disease-134507117.html)
-- Sep 06 - [Sarah Palin On Insurrectionists' Prison Time: 'What's The Use In Being A Good Guy?'](https://news.yahoo.com/sarah-palin-insurrectionists-prison-time-132828749.html)
-- Sep 06 - [Family spending teen’s ‘remaining days’ by her side after crash](https://news.yahoo.com/four-people-hospitalized-south-charlotte-094309876.html)
-- Sep 06 - [A former Mossad chief says Israel is enforcing an apartheid system in the West Bank](https://news.yahoo.com/former-mossad-chief-says-israel-122715939.html)
+- Sep 06 - [A Flesh-Eating Pathogen Has Come for East Coast Beaches. It Can Kill You in 2 Days.](https://www.yahoo.com/lifestyle/flesh-eating-pathogen-come-east-153200984.html)
+- Sep 06 - [Judge rules Trump in 2019 defamed writer who has already won a sex abuse and libel suit against him](https://news.yahoo.com/judge-rules-trump-2019-defamed-151638893.html)
+- Sep 06 - [Criminal investigation underway after woman evacuated from yacht off Nantucket, owner arrested](https://news.yahoo.com/criminal-investigation-underway-woman-evacuated-144034642.html)
+- Sep 06 - [People keep telling me I was beautiful before getting a gastric bypass and losing 90 pounds. I know that already.](https://www.yahoo.com/lifestyle/people-keep-telling-beautiful-getting-143357015.html)
+- Sep 06 - [The daughter of the woman killed by Pennsylvania prison escapee Danelo Cavalcante told police he said he was going ‘to do something bad’ to their lives](https://news.yahoo.com/know-pennsylvania-prison-escapee-danelo-002152777.html)
 <!-- feed end -->
 
 ### Onstream
