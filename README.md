@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - ['Still want that drink?' Disgusting bar practice at popular holiday spot exposed by police](https://www.thestreet.com/travel/are-greek-bars-reselling-unfinished-drinks?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Sep 06 - [Witness in Trump documents case reached deal with prosecutors, ex-attorney says](https://news.yahoo.com/witness-trump-documents-case-reached-164044988.html)
-- Sep 06 - [Lawsuit contends Constitution's 'insurrection' clause bars Trump from running again for president](https://news.yahoo.com/lawsuit-contends-constitutions-insurrection-clause-162801488.html)
-- Sep 06 - [Megyn Kelly, Just Asking Questions: Are the Obamas Running a ‘Shadow Puppet’ Government?](https://www.yahoo.com/entertainment/megyn-kelly-just-asking-questions-155713388.html)
-- Sep 06 - [The Toyota Century SUV Is a Budget Rolls-Royce Cullinan With Sliding Rear Doors](https://news.yahoo.com/toyota-century-suv-budget-rolls-153527253.html)
+- Sep 06 - [US lawmaker calls for ending Huawei, SMIC exports after chip breakthrough](https://news.yahoo.com/us-lawmaker-calls-ending-huawei-183009687.html)
+- Sep 06 - ['It's just bragging rights': This finance expert says that once you attain this credit score, there's really 'no benefit' to scoring higher — here are 3 ways to hit that key threshold](https://finance.yahoo.com/news/just-bragging-rights-finance-expert-183000462.html)
+- Sep 06 - [The daughter of the woman killed by Pennsylvania prison escapee Danelo Cavalcante told police he said he was going ‘to do something bad’ to their lives](https://news.yahoo.com/know-pennsylvania-prison-escapee-danelo-002152777.html)
+- Sep 06 - [UAW plans to make contract counteroffer to Ford - source](https://finance.yahoo.com/news/uaw-plans-contract-counteroffer-ford-181418341.html)
+- Sep 06 - [Watch: Man Calmly Ushers Giant Black Bear Off Patio, Gets Swatted](https://www.yahoo.com/lifestyle/watch-man-calmly-ushers-giant-180032422.html)
 <!-- feed end -->
 
 ### Onstream
