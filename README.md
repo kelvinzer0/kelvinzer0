@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [UPDATE 1-Verizon unit to pay $4 million US penalty to resolve cybersecurity claims](https://finance.yahoo.com/news/1-verizon-unit-pay-4-015200502.html)
+- Sep 06 - [Furious Italians Ban Kanye West And ‘Wife’ Bianca Censori For Life After Couple Commit a Lewd Act On a Boat In Venice: ‘He is No Longer Welcome’](https://news.yahoo.com/furious-italians-ban-kanye-west-020352741.html)
+- Sep 06 - [Stingray impales woman's back, missing her lung by 1 inch](https://news.yahoo.com/stingray-impales-womans-back-missing-015512418.html)
+- Sep 06 - [Canadian man accused of running over and killing a Muslim family pleads not guilty](https://news.yahoo.com/canadian-man-accused-running-over-005414369.html)
 - Sep 05 - [Trump's comments risk tainting jury pool in federal election subversion case, special counsel says](https://news.yahoo.com/trumps-comments-risk-tainting-jury-231231644.html)
-- Sep 05 - [Hawaiian Airlines parent tempers outlook on Maui wildfire, engine issues](https://finance.yahoo.com/news/hawaiian-airlines-parent-tempers-outlook-221740046.html)
 - Sep 05 - [Presidential Motorcade's Roadrunner Ran Off The Road In Florida](https://news.yahoo.com/presidential-motorcades-roadrunner-ran-off-221436226.html)
-- Sep 05 - [Rep. Ken Buck rips Colorado GOP letter about Jan. 6 defendants’ treatment](https://news.yahoo.com/rep-ken-buck-rips-colorado-215859149.html)
 <!-- feed end -->
 
 ### Onstream
