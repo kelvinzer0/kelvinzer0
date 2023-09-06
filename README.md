@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Man who killed 6 members of a Nebraska family in 1975 dies after complaining of chest pain](https://news.yahoo.com/man-killed-6-members-nebraska-222216636.html)
+- Sep 05 - [Trump's comments risk tainting a jury in federal election subversion case, special counsel says](https://news.yahoo.com/trumps-comments-risk-tainting-jury-231231644.html)
+- Sep 05 - [Presidential Motorcade's Roadrunner Ran Off The Road In Florida](https://news.yahoo.com/presidential-motorcades-roadrunner-ran-off-221436226.html)
+- Sep 05 - [Kansas newspaper's lawyer says police didn't follow warrant in last month's newsroom search](https://news.yahoo.com/kansas-newspapers-lawyer-says-police-221307467.html)
 - Sep 05 - [Rep. Ken Buck rips Colorado GOP letter about Jan. 6 defendants’ treatment](https://news.yahoo.com/rep-ken-buck-rips-colorado-215859149.html)
-- Sep 05 - [That Big Poll Showing Trump and Biden Are Evenly Matched? Trump Helped Pay for It.](https://news.yahoo.com/big-poll-showing-trump-biden-204914227.html)
-- Sep 05 - [Ram Goes Flying In Georgia Police Chase](https://news.yahoo.com/ram-goes-flying-georgia-police-200000985.html)
-- Sep 05 - [Alabama Is Quickly Discovering the Dangers of Defying the Supreme Court](https://news.yahoo.com/alabama-quickly-discovering-dangers-defying-195944032.html)
+- Sep 05 - [Fauci's masking message amid rising COVID cases has doctors sounding off: 'Will not reduce the spread'](https://news.yahoo.com/faucis-masking-message-amid-rising-215256307.html)
 <!-- feed end -->
 
 ### Onstream
