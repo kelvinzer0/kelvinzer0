@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 06 - [Vietnam pilot who disregarded direct order gets Medal of Honor](https://news.yahoo.com/vietnam-pilot-disregarded-direct-order-015113446.html)
+- Sep 06 - [Ex-Prosecutor Predicts What Proud Boy Prison Time May Mean For Donald Trump](https://news.yahoo.com/ex-prosecutor-predicts-proud-boy-060840057.html)
 - Sep 06 - [Russia 'tactically' withdrew from Ukraine's Robotyne, official says](https://news.yahoo.com/russia-tactically-withdrew-ukraines-robotyne-055035734.html)
+- Sep 06 - [Florida man arrested by Coast Guard for trying to cross Atlantic in human-sized hamster wheel](https://news.yahoo.com/florida-man-arrested-coast-guard-041150178.html)
 - Sep 06 - [A teen who lost his $12,000 bike while flying from Europe found it in an airport with an AirTag, but said neither United nor Brussels Airlines would help him retrieve it](https://news.yahoo.com/teen-lost-12-000-bike-035946849.html)
-- Sep 06 - [Furious Italians Ban Kanye West And ‘Wife’ Bianca Censori For Life After Couple Commit a Lewd Act On a Boat In Venice: ‘He is No Longer Welcome’](https://news.yahoo.com/furious-italians-ban-kanye-west-020352741.html)
-- Sep 06 - [Stingray impales woman's back, missing her lung by 1 inch](https://news.yahoo.com/stingray-impales-womans-back-missing-015512418.html)
 <!-- feed end -->
 
 ### Onstream
