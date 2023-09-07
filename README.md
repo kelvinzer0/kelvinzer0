@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [‘That '70s Show’ actor Danny Masterson could get decades in prison at sentencing for 2 rapes](https://news.yahoo.com/70s-show-actor-danny-masterson-042850697.html)
 - Sep 07 - [‘Her Opinion Is Worthless’: Megyn Kelly Faces Backlash After Claiming Michelle Obama Does Not ‘Like America’ While Discussing Possibility of Former First Lady Running for President In 2024](https://news.yahoo.com/her-opinion-worthless-megyn-kelly-010930204.html)
 - Sep 07 - [Fact Check: Bill Gates Is Buying Hundreds of Burned-Up Lots in Maui for 'Pennies on the Dollar'?](https://news.yahoo.com/fact-check-bill-gates-buying-001900742.html)
-- Sep 06 - [Woman loses toe inside Las Vegas Strip hotel room after she tells man $200 is ‘not enough’: police](https://news.yahoo.com/woman-loses-toe-inside-las-234133693.html)
 - Sep 06 - [Men have Viagra. What do women have for low libido? Here's what experts say.](https://www.yahoo.com/lifestyle/viagra-for-women-222211817.html)
 - Sep 06 - [A popular climbing area in Yosemite National Park has been closed due to a crack in a granite cliff](https://news.yahoo.com/popular-climbing-area-yosemite-national-210221663.html)
 <!-- feed end -->
