@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [Virginia lawsuit stemming from police pepper-spraying an Army officer will be settled](https://news.yahoo.com/virginia-lawsuit-stemming-police-pepper-214029369.html)
 - Sep 07 - [Hurricane Lee strengthens to Category 4: Projected path, maps and tracker](https://www.yahoo.com/gma/hurricane-lee-projected-path-maps-152700193.html)
-- Sep 07 - [Disney's standoff with Charter is about to face its biggest test yet: NFL season](https://finance.yahoo.com/news/disneys-standoff-with-charter-is-about-to-face-its-biggest-test-yet-nfl-season-202838270.html)
+- Sep 07 - [Mother allegedly confined 9-year-old daughter to home since 2017, had to 'beg to eat': Police](https://www.yahoo.com/gma/mother-allegedly-confined-9-old-203614271.html)
 - Sep 07 - [Jurors Convict Trump Loyalist Peter Navarro After Just 4 Hours](https://news.yahoo.com/trump-pal-peter-navarro-found-201201391.html)
-- Sep 07 - [Unconscious Driver Pulled Out From Burning Tractor Trailer](https://news.yahoo.com/unconscious-driver-pulled-burning-tractor-201102651.html)
-- Sep 07 - [Judge Puts Masterson Away for 30 Years: ‘You Are Not the Victim Here’](https://www.yahoo.com/entertainment/actor-danny-masterson-sentenced-30-184421437.html)
+- Sep 07 - [California man who used bear spray on Capitol police during Jan. 6 insurrection sentenced](https://news.yahoo.com/california-man-used-bear-spray-190803660.html)
 <!-- feed end -->
 
 ### Onstream
