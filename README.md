@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 07 - [‘Her Opinion Is Worthless’: Megyn Kelly Faces Backlash After Claiming Michelle Obama Does Not ‘Like America’ While Discussing Possibility of Former First Lady Running for President In 2024](https://news.yahoo.com/her-opinion-worthless-megyn-kelly-010930204.html)
+- Sep 07 - [Biden refuses to grant some of the conditions that 9/11 defendants were seeking in plea negotiations](https://news.yahoo.com/biden-refuses-grant-conditions-9-005441449.html)
 - Sep 07 - [Fact Check: Bill Gates Is Buying Hundreds of Burned-Up Lots in Maui for 'Pennies on the Dollar'?](https://news.yahoo.com/fact-check-bill-gates-buying-001900742.html)
 - Sep 06 - [Woman loses toe inside Las Vegas Strip hotel room after she tells man $200 is ‘not enough’: police](https://news.yahoo.com/woman-loses-toe-inside-las-234133693.html)
-- Sep 06 - [Why is walking so good for you? Here's what studies show.](https://www.yahoo.com/lifestyle/why-is-walking-good-for-you-232022078.html)
-- Sep 06 - [Hurricane Lee forms, expected to rapidly intensify into 'extremely dangerous' major storm by weekend](https://news.yahoo.com/hurricane-lee-forms-expected-rapidly-204507537.html)
+- Sep 06 - [Men have Viagra. What do women have for low libido? Here's what experts say.](https://www.yahoo.com/lifestyle/viagra-for-women-222211817.html)
 <!-- feed end -->
 
 ### Onstream
