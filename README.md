@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 07 - [‘That '70s Show’ actor Danny Masterson could get decades in prison at sentencing for 2 rapes](https://news.yahoo.com/70s-show-actor-danny-masterson-042850697.html)
+- Sep 07 - [Lordy, more tapes! Trump lawyer's notes add details on lead-up to FBI search of Mar-a-Lago](https://news.yahoo.com/lordy-more-tapes-trump-lawyers-035859346.html)
 - Sep 07 - [‘Her Opinion Is Worthless’: Megyn Kelly Faces Backlash After Claiming Michelle Obama Does Not ‘Like America’ While Discussing Possibility of Former First Lady Running for President In 2024](https://news.yahoo.com/her-opinion-worthless-megyn-kelly-010930204.html)
 - Sep 07 - [Fact Check: Bill Gates Is Buying Hundreds of Burned-Up Lots in Maui for 'Pennies on the Dollar'?](https://news.yahoo.com/fact-check-bill-gates-buying-001900742.html)
 - Sep 06 - [Men have Viagra. What do women have for low libido? Here's what experts say.](https://www.yahoo.com/lifestyle/viagra-for-women-222211817.html)
-- Sep 06 - [A popular climbing area in Yosemite National Park has been closed due to a crack in a granite cliff](https://news.yahoo.com/popular-climbing-area-yosemite-national-210221663.html)
 <!-- feed end -->
 
 ### Onstream
