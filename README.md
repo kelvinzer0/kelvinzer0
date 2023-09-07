@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [GM offers 10% wage hike in contract talks that UAW calls 'insulting'](https://finance.yahoo.com/news/gm-offers-10-wage-hike-160645052.html)
+- Sep 07 - [US and EU slam Palestinian president's remarks on Holocaust](https://news.yahoo.com/us-eu-slam-palestinian-presidents-153128265.html)
+- Sep 07 - [Former Finnish prime minister Sanna Marin, who was one of Europe's youngest leaders, quits politics](https://news.yahoo.com/former-finnish-prime-minister-sanna-142814638.html)
 - Sep 07 - [Lordy, more tapes! Trump lawyer's notes add details on lead-up to FBI search of Mar-a-Lago](https://news.yahoo.com/lordy-more-tapes-trump-lawyers-035859346.html)
 - Sep 07 - [‘Her Opinion Is Worthless’: Megyn Kelly Faces Backlash After Claiming Michelle Obama Does Not ‘Like America’ While Discussing Possibility of Former First Lady Running for President In 2024](https://news.yahoo.com/her-opinion-worthless-megyn-kelly-010930204.html)
-- Sep 07 - [Fact Check: Bill Gates Is Buying Hundreds of Burned-Up Lots in Maui for 'Pennies on the Dollar'?](https://news.yahoo.com/fact-check-bill-gates-buying-001900742.html)
-- Sep 06 - [Chicago Bears stadium: where things stand with Arlington Heights, more](https://sports.yahoo.com/chicago-bears-stadium-where-things-230405258.html)
-- Sep 06 - [Men have Viagra. What do women have for low libido? Here's what experts say.](https://www.yahoo.com/lifestyle/viagra-for-women-222211817.html)
 <!-- feed end -->
 
 ### Onstream
