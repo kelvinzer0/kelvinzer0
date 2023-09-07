@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [GM offers 10% wage hike in contract talks that UAW calls 'insulting'](https://finance.yahoo.com/news/gm-offers-10-wage-hike-160645052.html)
+- Sep 07 - [Maui beckons tourists, and their dollars, to stave off economic disaster after wildfires](https://news.yahoo.com/maui-beckons-tourists-dollars-stave-172745857.html)
 - Sep 07 - [US and EU slam Palestinian president's remarks on Holocaust](https://news.yahoo.com/us-eu-slam-palestinian-presidents-153128265.html)
 - Sep 07 - [Former Finnish prime minister Sanna Marin, who was one of Europe's youngest leaders, quits politics](https://news.yahoo.com/former-finnish-prime-minister-sanna-142814638.html)
 - Sep 07 - [Lordy, more tapes! Trump lawyer's notes add details on lead-up to FBI search of Mar-a-Lago](https://news.yahoo.com/lordy-more-tapes-trump-lawyers-035859346.html)
