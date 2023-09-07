@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [Maui beckons tourists, and their dollars, to stave off economic disaster after wildfires](https://news.yahoo.com/maui-beckons-tourists-dollars-stave-172745857.html)
-- Sep 07 - [US and EU slam Palestinian president's remarks on Holocaust](https://news.yahoo.com/us-eu-slam-palestinian-presidents-153128265.html)
-- Sep 07 - [Former Finnish prime minister Sanna Marin, who was one of Europe's youngest leaders, quits politics](https://news.yahoo.com/former-finnish-prime-minister-sanna-142814638.html)
-- Sep 07 - [Lordy, more tapes! Trump lawyer's notes add details on lead-up to FBI search of Mar-a-Lago](https://news.yahoo.com/lordy-more-tapes-trump-lawyers-035859346.html)
-- Sep 07 - [‘Her Opinion Is Worthless’: Megyn Kelly Faces Backlash After Claiming Michelle Obama Does Not ‘Like America’ While Discussing Possibility of Former First Lady Running for President In 2024](https://news.yahoo.com/her-opinion-worthless-megyn-kelly-010930204.html)
+- Sep 07 - [Hurricane Lee strengthens to Category 4: Projected path, maps and tracker](https://www.yahoo.com/gma/hurricane-lee-projected-path-maps-152700193.html)
+- Sep 07 - [Disney's standoff with Charter is about to face its biggest test yet: NFL season](https://finance.yahoo.com/news/disneys-standoff-with-charter-is-about-to-face-its-biggest-test-yet-nfl-season-202838270.html)
+- Sep 07 - [Jurors Convict Trump Loyalist Peter Navarro After Just 4 Hours](https://news.yahoo.com/trump-pal-peter-navarro-found-201201391.html)
+- Sep 07 - [Unconscious Driver Pulled Out From Burning Tractor Trailer](https://news.yahoo.com/unconscious-driver-pulled-burning-tractor-201102651.html)
+- Sep 07 - [Judge Puts Masterson Away for 30 Years: ‘You Are Not the Victim Here’](https://www.yahoo.com/entertainment/actor-danny-masterson-sentenced-30-184421437.html)
 <!-- feed end -->
 
 ### Onstream
