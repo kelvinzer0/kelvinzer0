@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [Florida Deputy Arrested for Street Racing Tells Police He Was Trying to Impress Girlfriend](https://news.yahoo.com/florida-deputy-arrested-street-racing-143459827.html)
 - Sep 07 - [‘Her Opinion Is Worthless’: Megyn Kelly Faces Backlash After Claiming Michelle Obama Does Not ‘Like America’ While Discussing Possibility of Former First Lady Running for President In 2024](https://news.yahoo.com/her-opinion-worthless-megyn-kelly-010930204.html)
 - Sep 07 - [Fact Check: Bill Gates Is Buying Hundreds of Burned-Up Lots in Maui for 'Pennies on the Dollar'?](https://news.yahoo.com/fact-check-bill-gates-buying-001900742.html)
 - Sep 06 - [Men have Viagra. What do women have for low libido? Here's what experts say.](https://www.yahoo.com/lifestyle/viagra-for-women-222211817.html)
-- Sep 06 - [Hurricane Lee strengthens, expected to rapidly intensify into 'extremely dangerous' major storm by Friday](https://news.yahoo.com/hurricane-lee-forms-expected-rapidly-204507537.html)
-- Sep 06 - [The daughter of the woman killed by Pennsylvania prison escapee Danelo Cavalcante told police he said he was going ‘to do something bad’ to their lives](https://news.yahoo.com/know-pennsylvania-prison-escapee-danelo-002152777.html)
+- Sep 06 - [A popular climbing area in Yosemite National Park has been closed due to a crack in a granite cliff](https://news.yahoo.com/popular-climbing-area-yosemite-national-210221663.html)
 <!-- feed end -->
 
 ### Onstream
