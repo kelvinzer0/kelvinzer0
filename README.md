@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Hong Kong's heaviest rain in at least 140 years floods city streets, metro](https://news.yahoo.com/hong-kongs-heaviest-rain-least-001426499.html)
 - Sep 07 - [Watch a Bison Chase Down and Charge a Grizzly Bear in Yellowstone National Park](https://www.yahoo.com/lifestyle/watch-bison-chase-down-charge-224019280.html)
 - Sep 07 - [‘You’re Prohibited from Using It’: Donald Trump Made Millions Selling Merchandise with His Historic Mugshot, But Legal Expert Says He May Have Violated Copyright Law](https://news.yahoo.com/prohibited-using-donald-trump-made-220000264.html)
-- Sep 07 - [Virginia lawsuit stemming from police pepper-spraying an Army officer will be settled](https://news.yahoo.com/virginia-lawsuit-stemming-police-pepper-214029369.html)
 - Sep 07 - [A couple was flying home from Singapore when their connecting Lufthansa flight was canceled. After multiple failed attempts at rebooking, the couple paid $4,000 to fly home 3 days later.](https://news.yahoo.com/couple-flying-home-singapore-connecting-213806195.html)
+- Sep 07 - [Hurricane Lee strengthens to Category 5: Projected path, maps and tracker](https://www.yahoo.com/gma/hurricane-lee-projected-path-maps-152700193.html)
+- Sep 07 - [Jurors Convict Trump Loyalist Peter Navarro After Just 4 Hours](https://news.yahoo.com/trump-pal-peter-navarro-found-201201391.html)
 <!-- feed end -->
 
 ### Onstream
