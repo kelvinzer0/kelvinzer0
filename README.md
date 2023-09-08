@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 08 - [Hurricane Lee strengthens to Category 5: Projected path, maps and tracker](https://www.yahoo.com/gma/hurricane-lee-projected-path-maps-152700193.html)
-- Sep 08 - [China repeats opposition to Philippines' grounded warship](https://news.yahoo.com/china-repeats-opposition-philippines-grounded-072302371.html)
-- Sep 08 - [The public isn’t being told the full truth about the climate threat](https://news.yahoo.com/public-isn-t-being-told-050000584.html)
-- Sep 08 - [Country star Zach Bryan arrested in Oklahoma: Police](https://www.yahoo.com/gma/country-star-zach-bryan-arrested-024400909.html)
-- Sep 08 - [Trump hosts $100,000-per-person Bedminster fundraiser to help Giuliani pay legal bills](https://news.yahoo.com/trump-hosts-100-000-per-021452669.html)
+- Sep 07 - ["$170k A Year?": Some People Think UPS Workers Are Being Overpaid, So This 33-Year-Old Driver Broke Down The Numbers](https://www.yahoo.com/lifestyle/170k-ups-driver-shared-exactly-225707811.html)
+- Sep 07 - [Watch a Bison Chase Down and Charge a Grizzly Bear in Yellowstone National Park](https://www.yahoo.com/lifestyle/watch-bison-chase-down-charge-224019280.html)
+- Sep 07 - [‘You’re Prohibited from Using It’: Donald Trump Made Millions Selling Merchandise with His Historic Mugshot, But Legal Expert Says He May Have Violated Copyright Law](https://news.yahoo.com/prohibited-using-donald-trump-made-220000264.html)
+- Sep 07 - [A couple was flying home from Singapore when their connecting Lufthansa flight was canceled. After multiple failed attempts at rebooking, the couple paid $4,000 to fly home 3 days later.](https://news.yahoo.com/couple-flying-home-singapore-connecting-213806195.html)
 <!-- feed end -->
 
 ### Onstream
