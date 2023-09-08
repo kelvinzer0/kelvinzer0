@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 08 - [Hurricane Lee strengthens to Category 5: Projected path, maps and tracker](https://www.yahoo.com/gma/hurricane-lee-projected-path-maps-152700193.html)
-- Sep 08 - [Danny Masterson, "That '70s Show" actor, sentenced to 30 years to life in prison](https://news.yahoo.com/danny-masterson-70s-show-actor-121439371.html)
+- Sep 08 - [Baby chimp reunited with surrogate mum after snake bite](https://news.yahoo.com/baby-chimp-reunited-surrogate-mum-113829067.html)
 - Sep 07 - ["$170k A Year?": Some People Think UPS Workers Are Being Overpaid, So This 33-Year-Old Driver Broke Down The Numbers](https://www.yahoo.com/lifestyle/170k-ups-driver-shared-exactly-225707811.html)
 - Sep 07 - [Watch a Bison Chase Down and Charge a Grizzly Bear in Yellowstone National Park](https://www.yahoo.com/lifestyle/watch-bison-chase-down-charge-224019280.html)
 - Sep 07 - [‘You’re Prohibited from Using It’: Donald Trump Made Millions Selling Merchandise with His Historic Mugshot, But Legal Expert Says He May Have Violated Copyright Law](https://news.yahoo.com/prohibited-using-donald-trump-made-220000264.html)
