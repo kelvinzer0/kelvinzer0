@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [NYC migrant influx overshadows chronic issues](https://news.yahoo.com/nyc-migrant-influx-overshadows-chronic-202824458.html)
-- Sep 08 - [Additional bodycam footage is released in the death of pregnant Black mother Ta'Kiya Young](https://news.yahoo.com/additional-bodycam-footage-released-death-201919325.html)
-- Sep 08 - [Country star Zach Bryan arrested: Police report sheds light on circumstances surrounding the traffic stop](https://www.yahoo.com/gma/country-star-zach-bryan-arrested-024400909.html)
-- Sep 08 - [Trump lawyers move 'insurrection' clause lawsuit aiming to bar him from the ballot to federal court](https://news.yahoo.com/trump-lawyers-move-insurrection-clause-193837384.html)
-- Sep 08 - [‘You Have Allowed People to Hunt People Like Me’: Furious Black Veteran Disrupts Ron DeSantis’ News Conference, Blames His Policies for Jacksonville Racial Massacre In Fiery Exchange](https://news.yahoo.com/allowed-people-hunt-people-furious-193000954.html)
+- Sep 08 - [Mark Meadows fails in bid to move Georgia election case to federal court](https://news.yahoo.com/mark-meadows-fails-bid-move-215345456.html)
+- Sep 08 - [Police share more video in Ta'Kiya Young shooting](https://news.yahoo.com/police-share-more-video-takiya-213306893.html)
+- Sep 08 - [‘Zip Tie Guy’ and His Mom Get Prison Time Despite Pleas for Mercy](https://news.yahoo.com/zip-tie-guy-mom-prison-211740935.html)
+- Sep 08 - [Hurricane Lee’s historic intensification skyrockets storm to rare strength](https://news.yahoo.com/hurricane-lee-strengthens-category-5-071219224.html)
+- Sep 08 - [Mike Lindell's belligerent Dominion depositions: Hawking MyPillow dog blankets on Steve Bannon's podcast and scaring away court reporters](https://news.yahoo.com/mike-lindells-belligerent-dominion-depositions-210623625.html)
 <!-- feed end -->
 
 ### Onstream
