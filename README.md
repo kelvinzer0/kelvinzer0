@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [US CDC says existing antibodies can work against new COVID variant](https://news.yahoo.com/us-cdc-says-existing-antibodies-183904917.html)
-- Sep 08 - [Judge orders Louisiana to remove incarcerated youths from the state's maximum-security adult prison](https://news.yahoo.com/judge-orders-louisiana-remove-incarcerated-182749144.html)
-- Sep 08 - [Indianapolis officer gets 1 year in prison for kicking a handcuffed man in the face during an arrest](https://news.yahoo.com/indianapolis-officer-gets-1-prison-182340023.html)
-- Sep 08 - [Trump rips release of Georgia grand jury report](https://news.yahoo.com/trump-rips-release-georgia-grand-170759625.html)
-- Sep 08 - [Former NASCAR Star Danica Patrick Was ‘Stuck’ at Burning Man but ‘Made It Out’](https://www.yahoo.com/entertainment/former-nascar-star-danica-patrick-170641262.html)
+- Sep 08 - [Country star Zach Bryan arrested: Police report sheds light on circumstances surrounding the traffic stop](https://www.yahoo.com/gma/country-star-zach-bryan-arrested-024400909.html)
+- Sep 08 - [“The View ”host Ana Navarro censored on air while discussing wedding dress codes](https://www.yahoo.com/entertainment/view-host-ana-navarro-censored-195004840.html)
+- Sep 08 - [Supreme Court is asked to reject limits on a drug used in the most common method of abortion](https://news.yahoo.com/supreme-court-asked-reject-limits-194440378.html)
+- Sep 08 - [Inside the Biden White House: 5 takeaways from Franklin Foer's new book, 'The Last Politician'](https://news.yahoo.com/inside-the-biden-white-house-5-takeaways-from-franklin-foers-new-book-the-last-politician-193149930.html)
+- Sep 08 - [OSU, WSU ask court to prevent departing Pac-12 schools from standing in way of rebuilding conference](https://news.yahoo.com/osu-wsu-ask-court-prevent-190015172.html)
 <!-- feed end -->
 
 ### Onstream
