@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Why Walmart is paying new hires at lowest possible hourly wage](https://finance.yahoo.com/video/why-walmart-paying-hires-lowest-154511418.html)
+- Sep 08 - [Stocks rise as Fed officials hint at rate respite: Stock market news today](https://finance.yahoo.com/news/stocks-rise-as-fed-officials-hint-at-rate-respite-stock-market-news-today-170421954.html)
+- Sep 08 - [3 women wanted for assaulting 61-year-old man, stealing his car in Chicago Chinatown](https://news.yahoo.com/3-women-wanted-assaulting-61-161254952.html)
 - Sep 08 - [Hurricane Lee now a Category 4: Projected path, maps and tracker](https://www.yahoo.com/gma/hurricane-lee-projected-path-maps-152700193.html)
-- Sep 08 - [Florida teen was watching TV at home. Along came a three-legged creature, video shows](https://news.yahoo.com/florida-teen-watching-tv-home-151028744.html)
-- Sep 08 - [Trump survived impeachment. Biden may not be so lucky](https://news.yahoo.com/trump-survived-impeachment-biden-may-150212859.html)
 - Sep 08 - [“You Were Already A Better Man Than Me” | Son Of NFL Player Hugh Douglas and Morehouse College Roommate Die On Scene After High Speed Car Crash Into Two Power Poles](https://sports.yahoo.com/were-already-better-man-son-150000446.html)
+- Sep 08 - [What N. Korea's 'nuclear attack submarine' means for navy](https://news.yahoo.com/n-koreas-nuclear-attack-submarine-144258910.html)
 <!-- feed end -->
 
 ### Onstream
