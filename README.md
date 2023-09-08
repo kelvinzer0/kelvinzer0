@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Automaker Stellantis makes counteroffer to United Auto Workers](https://news.yahoo.com/automaker-stellantis-makes-counteroffer-united-174651187.html)
+- Sep 08 - [US CDC says existing antibodies can work against new COVID variant](https://news.yahoo.com/us-cdc-says-existing-antibodies-183904917.html)
+- Sep 08 - [Judge orders Louisiana to remove incarcerated youths from the state's maximum-security adult prison](https://news.yahoo.com/judge-orders-louisiana-remove-incarcerated-182749144.html)
+- Sep 08 - [Indianapolis officer gets 1 year in prison for kicking a handcuffed man in the face during an arrest](https://news.yahoo.com/indianapolis-officer-gets-1-prison-182340023.html)
 - Sep 08 - [Trump rips release of Georgia grand jury report](https://news.yahoo.com/trump-rips-release-georgia-grand-170759625.html)
 - Sep 08 - [Former NASCAR Star Danica Patrick Was ‘Stuck’ at Burning Man but ‘Made It Out’](https://www.yahoo.com/entertainment/former-nascar-star-danica-patrick-170641262.html)
-- Sep 08 - [Stocks rise as Fed officials hint at rate respite: Stock market news today](https://finance.yahoo.com/news/stocks-rise-as-fed-officials-hint-at-rate-respite-stock-market-news-today-170421954.html)
-- Sep 08 - [Diner Criticizes Mockery Of Joe Biden In 'Fox & Friends' Interview At Iowa Cafe](https://www.yahoo.com/entertainment/diner-criticizes-mockery-joe-biden-162536484.html)
 <!-- feed end -->
 
 ### Onstream
