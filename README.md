@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [Shocking Footage: Georgia Man Filed Complaint After Being Wrongfully Handcuffed By Cops. They Returned Days Later and Arrested His Wife, Allegedly Held Her Until He Turned Himself In for Obstruction](https://news.yahoo.com/shocking-footage-georgia-man-filed-220616152.html)
 - Sep 08 - [Mark Meadows fails in bid to move Georgia election case to federal court](https://news.yahoo.com/mark-meadows-fails-bid-move-215345456.html)
-- Sep 08 - [Police share more video in Ta'Kiya Young shooting](https://news.yahoo.com/police-share-more-video-takiya-213306893.html)
 - Sep 08 - [‘Zip Tie Guy’ and His Mom Get Prison Time Despite Pleas for Mercy](https://news.yahoo.com/zip-tie-guy-mom-prison-211740935.html)
-- Sep 08 - [Hurricane Lee’s historic intensification skyrockets storm to rare strength](https://news.yahoo.com/hurricane-lee-strengthens-category-5-071219224.html)
 - Sep 08 - [Mike Lindell's belligerent Dominion depositions: Hawking MyPillow dog blankets on Steve Bannon's podcast and scaring away court reporters](https://news.yahoo.com/mike-lindells-belligerent-dominion-depositions-210623625.html)
+- Sep 08 - [Sustainability creator shares how to keep clothes from stiffening up after air-drying](https://news.yahoo.com/sustainability-creator-shares-how-to-keep-clothes-from-stiffening-up-after-air-drying-204650255.html)
 <!-- feed end -->
 
 ### Onstream
