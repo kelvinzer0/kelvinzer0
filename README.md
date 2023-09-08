@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Hurricane Lee strengthens to Category 5: Projected path, maps and tracker](https://www.yahoo.com/gma/hurricane-lee-projected-path-maps-152700193.html)
-- Sep 08 - [Baby chimp reunited with surrogate mum after snake bite](https://news.yahoo.com/baby-chimp-reunited-surrogate-mum-113829067.html)
-- Sep 07 - ["$170k A Year?": Some People Think UPS Workers Are Being Overpaid, So This 33-Year-Old Driver Broke Down The Numbers](https://www.yahoo.com/lifestyle/170k-ups-driver-shared-exactly-225707811.html)
-- Sep 07 - [Watch a Bison Chase Down and Charge a Grizzly Bear in Yellowstone National Park](https://www.yahoo.com/lifestyle/watch-bison-chase-down-charge-224019280.html)
-- Sep 07 - [‘You’re Prohibited from Using It’: Donald Trump Made Millions Selling Merchandise with His Historic Mugshot, But Legal Expert Says He May Have Violated Copyright Law](https://news.yahoo.com/prohibited-using-donald-trump-made-220000264.html)
+- Sep 08 - [Why Walmart is paying new hires at lowest possible hourly wage](https://finance.yahoo.com/video/why-walmart-paying-hires-lowest-154511418.html)
+- Sep 08 - [Hurricane Lee now a Category 4: Projected path, maps and tracker](https://www.yahoo.com/gma/hurricane-lee-projected-path-maps-152700193.html)
+- Sep 08 - [Florida teen was watching TV at home. Along came a three-legged creature, video shows](https://news.yahoo.com/florida-teen-watching-tv-home-151028744.html)
+- Sep 08 - [Trump survived impeachment. Biden may not be so lucky](https://news.yahoo.com/trump-survived-impeachment-biden-may-150212859.html)
+- Sep 08 - [“You Were Already A Better Man Than Me” | Son Of NFL Player Hugh Douglas and Morehouse College Roommate Die On Scene After High Speed Car Crash Into Two Power Poles](https://sports.yahoo.com/were-already-better-man-son-150000446.html)
 <!-- feed end -->
 
 ### Onstream
