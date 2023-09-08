@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [Automaker Stellantis makes counteroffer to United Auto Workers](https://news.yahoo.com/automaker-stellantis-makes-counteroffer-united-174651187.html)
+- Sep 08 - [Trump rips release of Georgia grand jury report](https://news.yahoo.com/trump-rips-release-georgia-grand-170759625.html)
+- Sep 08 - [Former NASCAR Star Danica Patrick Was ‘Stuck’ at Burning Man but ‘Made It Out’](https://www.yahoo.com/entertainment/former-nascar-star-danica-patrick-170641262.html)
 - Sep 08 - [Stocks rise as Fed officials hint at rate respite: Stock market news today](https://finance.yahoo.com/news/stocks-rise-as-fed-officials-hint-at-rate-respite-stock-market-news-today-170421954.html)
-- Sep 08 - [3 women wanted for assaulting 61-year-old man, stealing his car in Chicago Chinatown](https://news.yahoo.com/3-women-wanted-assaulting-61-161254952.html)
-- Sep 08 - [Hurricane Lee now a Category 4: Projected path, maps and tracker](https://www.yahoo.com/gma/hurricane-lee-projected-path-maps-152700193.html)
-- Sep 08 - [“You Were Already A Better Man Than Me” | Son Of NFL Player Hugh Douglas and Morehouse College Roommate Die On Scene After High Speed Car Crash Into Two Power Poles](https://sports.yahoo.com/were-already-better-man-son-150000446.html)
-- Sep 08 - [What N. Korea's 'nuclear attack submarine' means for navy](https://news.yahoo.com/n-koreas-nuclear-attack-submarine-144258910.html)
+- Sep 08 - [Diner Criticizes Mockery Of Joe Biden In 'Fox & Friends' Interview At Iowa Cafe](https://www.yahoo.com/entertainment/diner-criticizes-mockery-joe-biden-162536484.html)
 <!-- feed end -->
 
 ### Onstream
