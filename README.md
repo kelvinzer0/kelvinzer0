@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [NYC migrant influx overshadows chronic issues](https://news.yahoo.com/nyc-migrant-influx-overshadows-chronic-202824458.html)
+- Sep 08 - [Additional bodycam footage is released in the death of pregnant Black mother Ta'Kiya Young](https://news.yahoo.com/additional-bodycam-footage-released-death-201919325.html)
 - Sep 08 - [Country star Zach Bryan arrested: Police report sheds light on circumstances surrounding the traffic stop](https://www.yahoo.com/gma/country-star-zach-bryan-arrested-024400909.html)
-- Sep 08 - [“The View ”host Ana Navarro censored on air while discussing wedding dress codes](https://www.yahoo.com/entertainment/view-host-ana-navarro-censored-195004840.html)
-- Sep 08 - [Supreme Court is asked to reject limits on a drug used in the most common method of abortion](https://news.yahoo.com/supreme-court-asked-reject-limits-194440378.html)
-- Sep 08 - [Inside the Biden White House: 5 takeaways from Franklin Foer's new book, 'The Last Politician'](https://news.yahoo.com/inside-the-biden-white-house-5-takeaways-from-franklin-foers-new-book-the-last-politician-193149930.html)
-- Sep 08 - [OSU, WSU ask court to prevent departing Pac-12 schools from standing in way of rebuilding conference](https://news.yahoo.com/osu-wsu-ask-court-prevent-190015172.html)
+- Sep 08 - [Trump lawyers move 'insurrection' clause lawsuit aiming to bar him from the ballot to federal court](https://news.yahoo.com/trump-lawyers-move-insurrection-clause-193837384.html)
+- Sep 08 - [‘You Have Allowed People to Hunt People Like Me’: Furious Black Veteran Disrupts Ron DeSantis’ News Conference, Blames His Policies for Jacksonville Racial Massacre In Fiery Exchange](https://news.yahoo.com/allowed-people-hunt-people-furious-193000954.html)
 <!-- feed end -->
 
 ### Onstream
