@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [More Americans are forced to retire early — and are unprepared for the long haul](https://finance.yahoo.com/news/more-americans-are-forced-to-retire-early--and-are-unprepared-for-the-long-haul-124815118.html)
-- Sep 09 - [The teacher fired after speaking out when her 1st graders were told they couldn't sing 'Rainbowland' is now suing her school district](https://news.yahoo.com/teacher-fired-speaking-her-1st-115501893.html)
+- Sep 09 - [The Memo: Five Democratic alternatives if President Biden exits the 2024 race](https://news.yahoo.com/memo-five-democratic-alternatives-president-140456393.html)
+- Sep 09 - [In cat and mouse game, Philippines resupplies troops in South China Sea atoll](https://news.yahoo.com/cat-mouse-game-philippines-resupplies-114216888.html)
 - Sep 09 - [‘Unhinged’ and foul-mouthed neighbor destroys homeowner’s yard then lies to the cops about it: ‘Get an attorney’](https://news.yahoo.com/homeowner-furious-careless-neighbor-destroys-200000438.html)
+- Sep 09 - [China think tank says India is 'sabotaging' G20 for its own agenda](https://finance.yahoo.com/news/china-think-tank-says-india-110521613.html)
 - Sep 09 - [Japan says swarms of tourists defiling sacred Mt Fuji](https://news.yahoo.com/japan-says-swarms-tourists-defiling-100616499.html)
-- Sep 09 - [Something Weird Is Going on With the Asteroid NASA Smashed](https://news.yahoo.com/something-weird-going-asteroid-nasa-093047012.html)
 <!-- feed end -->
 
 ### Onstream
