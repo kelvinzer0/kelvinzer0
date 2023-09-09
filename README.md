@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 09 - [Resurfaced Details Reveal the Simple Reason Two of Donald Trump’s Kids Didn’t Vote for Him Back in 2016](https://www.yahoo.com/entertainment/resurfaced-details-reveal-simple-reason-191800110.html)
+- Sep 09 - [People Are Sharing The "Dirty Little Secrets" About The Industries They Work In That They Think Everyone Should Really Know, And It's Eye-Opening](https://www.yahoo.com/lifestyle/people-sharing-dirty-little-secrets-191603398.html)
 - Sep 09 - [Powerful explosions rock Ukraine’s Russian-occupied Crimea](https://news.yahoo.com/powerful-explosions-rock-ukraine-russian-183500012.html)
 - Sep 09 - [Schiff rips Graham’s response to grand jury report](https://news.yahoo.com/schiff-rips-graham-response-grand-175821778.html)
-- Sep 09 - [Giuliani says Trump is “really, really upset” about Peter Navarro's contempt conviction](https://news.yahoo.com/giuliani-says-trump-really-really-170617405.html)
 - Sep 09 - [Watch: Coyote freaks out in presence of trail camera](https://sports.yahoo.com/watch-coyote-freaks-presence-trail-160127344.html)
 <!-- feed end -->
 
