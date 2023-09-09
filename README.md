@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Shocking Footage: Georgia Man Filed Complaint After Being Wrongfully Handcuffed By Cops. They Returned Days Later and Arrested His Wife, Allegedly Held Her Until He Turned Himself In for Obstruction](https://news.yahoo.com/shocking-footage-georgia-man-filed-220616152.html)
-- Sep 08 - [Mark Meadows fails in bid to move Georgia election case to federal court](https://news.yahoo.com/mark-meadows-fails-bid-move-215345456.html)
-- Sep 08 - [‘Zip Tie Guy’ and His Mom Get Prison Time Despite Pleas for Mercy](https://news.yahoo.com/zip-tie-guy-mom-prison-211740935.html)
-- Sep 08 - [Mike Lindell's belligerent Dominion depositions: Hawking MyPillow dog blankets on Steve Bannon's podcast and scaring away court reporters](https://news.yahoo.com/mike-lindells-belligerent-dominion-depositions-210623625.html)
-- Sep 08 - [Sustainability creator shares how to keep clothes from stiffening up after air-drying](https://news.yahoo.com/sustainability-creator-shares-how-to-keep-clothes-from-stiffening-up-after-air-drying-204650255.html)
+- Sep 09 - [China may never become the world's biggest economy and has thrown out its old playbook, Mohamed El-Erian says](https://finance.yahoo.com/news/china-may-never-become-worlds-000502764.html)
+- Sep 08 - [Trump Organization offloads Bronx golf course to casino company with New York City aspirations](https://sports.yahoo.com/trump-organization-offloads-bronx-golf-235249988.html)
+- Sep 08 - [People Are Discussing The Lies They Were Taught In School, And I'm Pretty Sure We All Had The Same Childhood](https://www.yahoo.com/lifestyle/people-discussing-lies-were-taught-231602732.html)
+- Sep 08 - [Rudy Giuliani files new legal challenge to Georgia election interference case](https://news.yahoo.com/rudy-giuliani-files-legal-challenge-231505723.html)
+- Sep 08 - [Melting ice in Norway revealed a 4,000-year-old arrow that was likely lost while ancient hunters targeted reindeer — but is now a 'bull's eye for archaeology'](https://news.yahoo.com/melting-ice-norway-revealed-4-225913990.html)
 <!-- feed end -->
 
 ### Onstream
