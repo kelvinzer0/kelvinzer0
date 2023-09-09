@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 09 - [Sheriff describes Trump’s demeanor while getting mug shot](https://news.yahoo.com/sheriff-describes-trump-demeanor-while-012953497.html)
 - Sep 09 - [Meteorologist Erin Little sues KCTV5’s parent company claiming gender, age discrimination](https://news.yahoo.com/meteorologist-erin-little-sues-kctv5-000941077.html)
 - Sep 08 - [New Mexico governor issues order suspending the right to carry firearms in public across Albuquerque](https://news.yahoo.com/mexico-governor-issues-order-suspend-234135580.html)
-- Sep 08 - [Let's Debunk Some "Facts": People Are Sharing The Lies They Were Taught In School, And Some Of These Are Actually Shocking](https://www.yahoo.com/lifestyle/people-discussing-lies-were-taught-231602732.html)
 - Sep 08 - [Melting ice in Norway revealed a 4,000-year-old arrow that was likely lost while ancient hunters targeted reindeer — but is now a 'bull's eye for archaeology'](https://news.yahoo.com/melting-ice-norway-revealed-4-225913990.html)
 - Sep 08 - [Missing WWII officer from Marquette finally found](https://news.yahoo.com/missing-wwii-officer-marquette-finally-221517544.html)
 <!-- feed end -->
