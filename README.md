@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 09 - [Giuliani says Trump is “really, really upset” about Peter Navarro's contempt conviction](https://news.yahoo.com/giuliani-says-trump-really-really-170617405.html)
+- Sep 09 - [COVID booster warning from Florida surgeon general, who advises people not to get new vaccine](https://news.yahoo.com/covid-booster-warning-florida-surgeon-155352238.html)
 - Sep 09 - [This city cut traffic deaths to 0 after making a major change to its driving rules — here’s why other cities should take note](https://news.yahoo.com/city-cut-traffic-deaths-0-150000081.html)
+- Sep 09 - [Prominent activist's son convicted of storming Capitol and invading Senate floor in Jan. 6 riot](https://news.yahoo.com/prominent-activists-son-convicted-storming-145849565.html)
 - Sep 09 - [The Memo: Five Democratic alternatives if President Biden exits the 2024 race](https://news.yahoo.com/memo-five-democratic-alternatives-president-140456393.html)
-- Sep 09 - [In cat and mouse game, Philippines resupplies troops in South China Sea atoll](https://news.yahoo.com/cat-mouse-game-philippines-resupplies-114216888.html)
-- Sep 09 - [‘Unhinged’ and foul-mouthed neighbor destroys homeowner’s yard then lies to the cops about it: ‘Get an attorney’](https://news.yahoo.com/homeowner-furious-careless-neighbor-destroys-200000438.html)
 <!-- feed end -->
 
 ### Onstream
