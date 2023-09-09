@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [China may never become the world's biggest economy and has thrown out its old playbook, Mohamed El-Erian says](https://finance.yahoo.com/news/china-may-never-become-worlds-000502764.html)
+- Sep 09 - [Meteorologist Erin Little sues KCTV5’s parent company claiming gender, age discrimination](https://news.yahoo.com/meteorologist-erin-little-sues-kctv5-000941077.html)
 - Sep 08 - [Trump Organization offloads Bronx golf course to casino company with New York City aspirations](https://sports.yahoo.com/trump-organization-offloads-bronx-golf-235249988.html)
+- Sep 08 - [New Mexico governor issues order suspending the right to carry firearms in public across Albuquerque](https://news.yahoo.com/mexico-governor-issues-order-suspend-234135580.html)
 - Sep 08 - [People Are Discussing The Lies They Were Taught In School, And I'm Pretty Sure We All Had The Same Childhood](https://www.yahoo.com/lifestyle/people-discussing-lies-were-taught-231602732.html)
-- Sep 08 - [Rudy Giuliani files new legal challenge to Georgia election interference case](https://news.yahoo.com/rudy-giuliani-files-legal-challenge-231505723.html)
 - Sep 08 - [Melting ice in Norway revealed a 4,000-year-old arrow that was likely lost while ancient hunters targeted reindeer — but is now a 'bull's eye for archaeology'](https://news.yahoo.com/melting-ice-norway-revealed-4-225913990.html)
 <!-- feed end -->
 
