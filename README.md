@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Orange County couple allegedly stole $17,000 worth of items from Target](https://news.yahoo.com/orange-county-couple-allegedly-stole-035611756.html)
-- Sep 09 - [Dale fact-checks Trump’s claim of increased Black support after mug shot](https://news.yahoo.com/dale-fact-checks-trump-claim-033849820.html)
-- Sep 09 - [Christie hits Trump for Meghan Markle comments after skipping GOP debate: ‘What a joke’](https://news.yahoo.com/christie-hits-trump-meghan-markle-022750319.html)
+- Sep 09 - [Chicago man beaten and carjacked by group of females in violent attack](https://news.yahoo.com/chicago-man-beaten-carjacked-group-020232290.html)
 - Sep 09 - [Sheriff describes Trump’s demeanor while getting mug shot](https://news.yahoo.com/sheriff-describes-trump-demeanor-while-012953497.html)
 - Sep 09 - [Meteorologist Erin Little sues KCTV5’s parent company claiming gender, age discrimination](https://news.yahoo.com/meteorologist-erin-little-sues-kctv5-000941077.html)
+- Sep 08 - [New Mexico governor issues order suspending the right to carry firearms in public across Albuquerque](https://news.yahoo.com/mexico-governor-issues-order-suspend-234135580.html)
+- Sep 08 - [Let's Debunk Some "Facts": People Are Sharing The Lies They Were Taught In School, And Some Of These Are Actually Shocking](https://www.yahoo.com/lifestyle/people-discussing-lies-were-taught-231602732.html)
 <!-- feed end -->
 
 ### Onstream
