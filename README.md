@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 09 - [More Americans are forced to retire early — and are unprepared for the long haul](https://finance.yahoo.com/news/more-americans-are-forced-to-retire-early--and-are-unprepared-for-the-long-haul-124815118.html)
 - Sep 09 - [The teacher fired after speaking out when her 1st graders were told they couldn't sing 'Rainbowland' is now suing her school district](https://news.yahoo.com/teacher-fired-speaking-her-1st-115501893.html)
 - Sep 09 - [‘Unhinged’ and foul-mouthed neighbor destroys homeowner’s yard then lies to the cops about it: ‘Get an attorney’](https://news.yahoo.com/homeowner-furious-careless-neighbor-destroys-200000438.html)
 - Sep 09 - [Japan says swarms of tourists defiling sacred Mt Fuji](https://news.yahoo.com/japan-says-swarms-tourists-defiling-100616499.html)
 - Sep 09 - [Something Weird Is Going on With the Asteroid NASA Smashed](https://news.yahoo.com/something-weird-going-asteroid-nasa-093047012.html)
-- Sep 09 - [Should You Take Social Security at Age 62, 66, or 70? The Data Points to a Very Clear Answer](https://www.fool.com/retirement/2023/09/09/should-you-take-social-security-at-age-62-66-or-70/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
