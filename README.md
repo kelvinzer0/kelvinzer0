@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Dale fact-checks Trump’s claim of increased Black support after mug shot](https://news.yahoo.com/dale-fact-checks-trump-claim-033849820.html)
+- Sep 09 - [Some of Ukraine's Western-made vehicles are getting 'killed' on the battlefield, but it's not as much of a win for Russia's forces as it was](https://news.yahoo.com/ukraines-western-made-vehicles-getting-100001894.html)
+- Sep 09 - [Something Weird Is Going on With the Asteroid NASA Smashed](https://news.yahoo.com/something-weird-going-asteroid-nasa-093047012.html)
+- Sep 09 - [Should You Take Social Security at Age 62, 66, or 70? The Data Points to a Very Clear Answer](https://www.fool.com/retirement/2023/09/09/should-you-take-social-security-at-age-62-66-or-70/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Sep 09 - [Christie hits Trump for Meghan Markle comments after skipping GOP debate: ‘What a joke’](https://news.yahoo.com/christie-hits-trump-meghan-markle-022750319.html)
 - Sep 09 - [Chicago man beaten and carjacked by group of females in violent attack](https://news.yahoo.com/chicago-man-beaten-carjacked-group-020232290.html)
-- Sep 09 - [Sheriff describes Trump’s demeanor while getting mug shot](https://news.yahoo.com/sheriff-describes-trump-demeanor-while-012953497.html)
-- Sep 09 - [Meteorologist Erin Little sues KCTV5’s parent company claiming gender, age discrimination](https://news.yahoo.com/meteorologist-erin-little-sues-kctv5-000941077.html)
 <!-- feed end -->
 
 ### Onstream
