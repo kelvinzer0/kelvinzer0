@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 09 - [Infiniti Driver Pulls Some Fancy Moves On The Cops](https://news.yahoo.com/infiniti-driver-pulls-fancy-moves-190000728.html)
+- Sep 09 - [Powerful explosions rock Ukraine’s Russian-occupied Crimea](https://news.yahoo.com/powerful-explosions-rock-ukraine-russian-183500012.html)
+- Sep 09 - [Allies of Joe Manchin believe the West Virginia Democrat could retire from the Senate to lead his alma mater, West Virginia University](https://news.yahoo.com/allies-joe-manchin-believe-west-183243773.html)
+- Sep 09 - [Schiff rips Graham’s response to grand jury report](https://news.yahoo.com/schiff-rips-graham-response-grand-175821778.html)
 - Sep 09 - [Giuliani says Trump is “really, really upset” about Peter Navarro's contempt conviction](https://news.yahoo.com/giuliani-says-trump-really-really-170617405.html)
-- Sep 09 - [COVID booster warning from Florida surgeon general, who advises people not to get new vaccine](https://news.yahoo.com/covid-booster-warning-florida-surgeon-155352238.html)
-- Sep 09 - [This city cut traffic deaths to 0 after making a major change to its driving rules — here’s why other cities should take note](https://news.yahoo.com/city-cut-traffic-deaths-0-150000081.html)
-- Sep 09 - [Prominent activist's son convicted of storming Capitol and invading Senate floor in Jan. 6 riot](https://news.yahoo.com/prominent-activists-son-convicted-storming-145849565.html)
-- Sep 09 - [The Memo: Five Democratic alternatives if President Biden exits the 2024 race](https://news.yahoo.com/memo-five-democratic-alternatives-president-140456393.html)
 <!-- feed end -->
 
 ### Onstream
