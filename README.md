@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 10 - [The former Russian arms dealer known as the "Merchant of Death" who the US exchanged for Brittney Griner is back in Russia and now learning to use a smartphone](https://news.yahoo.com/former-russian-arms-dealer-known-184129002.html)
+- Sep 10 - [Video shows Tesla Cybertruck after apparent rollover crash](https://www.autoblog.com/2023/09/10/tesla-cybertruck-rollover-crash-video/)
+- Sep 10 - [A church in Kansas City says they have a miracle: The body of a nun who died 4 years ago has not decomposed and might be a saint](https://news.yahoo.com/church-kansas-city-says-miracle-174725270.html)
+- Sep 10 - [Virginia governor pardons man whose arrest at a school board meeting galvanized conservatives](https://news.yahoo.com/virginia-governor-pardons-man-whose-172044820.html)
 - Sep 10 - [Watch Police PIT A Range Rover Into The Stratosphere](https://news.yahoo.com/watch-police-pit-range-rover-170000794.html)
-- Sep 10 - ['The Old Farmer’s Almanac' Predicts That Winter Will Be Frigid and Snowy Everywhere But Here](https://www.yahoo.com/lifestyle/old-farmer-almanac-predicts-winter-160000769.html)
-- Sep 10 - [White House press secretary ends news conference as Biden is still responding to questions from reporters](https://news.yahoo.com/white-house-press-secretary-ends-154821631.html)
-- Sep 10 - [He ran out of gas on a California road trip 27 years ago — and hasn’t been seen since](https://news.yahoo.com/ran-gas-california-road-trip-152512925.html)
-- Sep 10 - [Biden speaks to China's Li at G20, says economic 'crisis' makes Taiwan invasion less likely](https://news.yahoo.com/biden-holds-highest-level-talks-152029946.html)
 <!-- feed end -->
 
 ### Onstream
