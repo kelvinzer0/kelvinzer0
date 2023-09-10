@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Escaped convict Danelo Cavalcante spotted with altered appearance, Pennsylvania police say](https://www.yahoo.com/gma/escaped-convict-danelo-cavalcante-spotted-102100782.html)
+- Sep 10 - [A US Navy veteran got unexpected help while jailed in Iran. Once released, he repaid the favor](https://news.yahoo.com/us-navy-veteran-got-unexpected-115422958.html)
+- Sep 10 - ['This isn't a random shoplifter anymore': Home Depot CEO warns retail theft is a 'big problem' as the chain bolsters store security — even on small items. What's behind the alarming trend?](https://finance.yahoo.com/news/were-investing-more-security-guards-133000754.html)
+- Sep 10 - [Escaped convict Danelo Cavalcante spotted with altered appearance, driving stolen van, police say](https://www.yahoo.com/gma/escaped-convict-danelo-cavalcante-spotted-102100782.html)
 - Sep 10 - ['You can't produce a baby in 1 month by getting nine women pregnant': Buffett says the key to investing is emotional control — not great talent or effort. 3 'forever' stocks for the long haul](https://finance.yahoo.com/news/cant-produce-baby-1-month-100000185.html)
-- Sep 10 - [My husband and I moved from New Jersey to rural West Virginia. Healthcare access is so bad we moved back to New Jersey.](https://www.yahoo.com/lifestyle/husband-moved-jersey-rural-west-092001903.html)
-- Sep 10 - [Italian PM tells China's premier of plan to quit Belt and Road Initiative -media](https://news.yahoo.com/italian-pm-tells-chinas-premier-091246875.html)
-- Sep 10 - [Michigan State's Mel Tucker reportedly accused of sexually harassing anti-rape activist Brenda Tracy](https://sports.yahoo.com/michigan-states-mel-tucker-reportedly-accused-of-sexually-harassing-anti-rape-activist-brenda-tracy-062046324.html)
+- Sep 10 - [Bystander captures instant karma moment after two men taunt wild moose in Montana: ‘One of the best things I’ve seen all year’](https://news.yahoo.com/bystander-captures-instant-karma-moment-093000756.html)
 <!-- feed end -->
 
 ### Onstream
