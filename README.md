@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Sep 10 - [A US Navy veteran got unexpected help while jailed in Iran. Once released, he repaid the favor](https://news.yahoo.com/us-navy-veteran-got-unexpected-115422958.html)
 - Sep 10 - ['This isn't a random shoplifter anymore': Home Depot CEO warns retail theft is a 'big problem' as the chain bolsters store security — even on small items. What's behind the alarming trend?](https://finance.yahoo.com/news/were-investing-more-security-guards-133000754.html)
 - Sep 10 - [Escaped convict Danelo Cavalcante spotted with altered appearance, driving stolen van, police say](https://www.yahoo.com/gma/escaped-convict-danelo-cavalcante-spotted-102100782.html)
+- Sep 10 - [Colossal Cache of Lithium Found in US May Be World's Largest](https://news.yahoo.com/colossal-cache-lithium-found-us-100005781.html)
 - Sep 10 - ['You can't produce a baby in 1 month by getting nine women pregnant': Buffett says the key to investing is emotional control — not great talent or effort. 3 'forever' stocks for the long haul](https://finance.yahoo.com/news/cant-produce-baby-1-month-100000185.html)
-- Sep 10 - [Bystander captures instant karma moment after two men taunt wild moose in Montana: ‘One of the best things I’ve seen all year’](https://news.yahoo.com/bystander-captures-instant-karma-moment-093000756.html)
 <!-- feed end -->
 
 ### Onstream
