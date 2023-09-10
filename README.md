@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 10 - [JFK Assassination Witness Breaks His Silence and Raises New Questions](https://news.yahoo.com/jfk-assassination-witness-breaks-silence-142858952.html)
 - Sep 10 - [We spoke to hundreds of prison gang members – here's what they said about life behind bars](https://news.yahoo.com/spoke-hundreds-prison-gang-members-124245395.html)
+- Sep 10 - [This city cut traffic deaths to zero after making a major change to its driving rules — here’s why other cities should take note](https://news.yahoo.com/city-cut-traffic-deaths-0-150000081.html)
 - Sep 10 - [A US Navy veteran got unexpected help while jailed in Iran. Once released, he repaid the favor](https://news.yahoo.com/us-navy-veteran-got-unexpected-115422958.html)
 - Sep 10 - ['This isn't a random shoplifter anymore': Home Depot CEO warns retail theft is a 'big problem' as the chain bolsters store security — even on small items. What's behind the alarming trend?](https://finance.yahoo.com/news/were-investing-more-security-guards-133000754.html)
-- Sep 10 - [Escaped convict Danelo Cavalcante spotted with altered appearance, driving stolen van, police say](https://www.yahoo.com/gma/escaped-convict-danelo-cavalcante-spotted-102100782.html)
-- Sep 10 - [Colossal Cache of Lithium Found in US May Be World's Largest](https://news.yahoo.com/colossal-cache-lithium-found-us-100005781.html)
 <!-- feed end -->
 
 ### Onstream
