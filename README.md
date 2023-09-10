@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 09 - [Colombian President proposes Latin American alliance to transform 'war on drugs'](https://news.yahoo.com/colombian-president-proposes-latin-american-230214274.html)
+- Sep 09 - [Indiana woman allegedly hides drugs in private parts, fakes heart attack when police grow suspicious](https://news.yahoo.com/indiana-woman-allegedly-hides-drugs-213228056.html)
 - Sep 09 - [Tim Scott has one-word response to California bill to punish parents who won't 'affirm' trans kids](https://news.yahoo.com/tim-scott-one-word-response-191620794.html)
 - Sep 09 - [People Are Sharing The "Dirty Little Secrets" About The Industries They Work In That They Think Everyone Should Really Know, And It's Eye-Opening](https://www.yahoo.com/lifestyle/people-sharing-dirty-little-secrets-191603398.html)
 - Sep 09 - [Brooklyn parking dispute leads to double shooting at Home Depot](https://news.yahoo.com/brooklyn-parking-dispute-leads-double-185600441.html)
-- Sep 09 - [Powerful explosions rock Ukraine’s Russian-occupied Crimea](https://news.yahoo.com/powerful-explosions-rock-ukraine-russian-183500012.html)
-- Sep 09 - [Schiff rips Graham’s response to grand jury report](https://news.yahoo.com/schiff-rips-graham-response-grand-175821778.html)
 <!-- feed end -->
 
 ### Onstream
