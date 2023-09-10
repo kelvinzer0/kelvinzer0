@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 10 - [California school district to pay $2.25M to settle suit involving teacher who had student's baby](https://news.yahoo.com/california-school-district-pay-2-212932863.html)
+- Sep 10 - [Eric Trump Is Coping with Dad Donald's Indictments By Turning To A Divisive Resource](https://www.yahoo.com/entertainment/eric-trump-coping-dad-donalds-210500611.html)
 - Sep 10 - [Escaped convict Danelo Cavalcante spotted with altered appearance, driving stolen van, police say](https://www.yahoo.com/gma/escaped-convict-danelo-cavalcante-spotted-102100782.html)
+- Sep 10 - [University of Florida president Ben Sasse says professors shouldn't feel stifled by the state's new law stipulating they can't 'distort' history in their teachings](https://news.yahoo.com/university-florida-president-ben-sasse-201251717.html)
 - Sep 10 - [Delta passenger’s dog who went missing at Atlanta airport found safe after 3 weeks](https://www.yahoo.com/lifestyle/delta-passenger-dog-went-missing-200359068.html)
-- Sep 10 - [Angler’s ‘holy grail’ catch could set a new world record. See the monster Texas fish](https://news.yahoo.com/angler-holy-grail-catch-could-194801700.html)
-- Sep 10 - [Watch Anderson Cooper react as he realizes Trump is playing the 'Phantom of the Opera' soundtrack at a rally](https://news.yahoo.com/watch-anderson-cooper-react-realizes-194407863.html)
-- Sep 10 - [The former Russian arms dealer known as the "Merchant of Death" who the US exchanged for Brittney Griner is back in Russia and now learning to use a smartphone](https://news.yahoo.com/former-russian-arms-dealer-known-184129002.html)
 <!-- feed end -->
 
 ### Onstream
