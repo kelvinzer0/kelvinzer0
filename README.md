@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 10 - [Escaped convict Danelo Cavalcante spotted with altered appearance, Pennsylvania police say](https://www.yahoo.com/gma/escaped-convict-danelo-cavalcante-spotted-102100782.html)
+- Sep 10 - ['You can't produce a baby in 1 month by getting nine women pregnant': Buffett says the key to investing is emotional control — not great talent or effort. 3 'forever' stocks for the long haul](https://finance.yahoo.com/news/cant-produce-baby-1-month-100000185.html)
+- Sep 10 - [My husband and I moved from New Jersey to rural West Virginia. Healthcare access is so bad we moved back to New Jersey.](https://www.yahoo.com/lifestyle/husband-moved-jersey-rural-west-092001903.html)
+- Sep 10 - [Italian PM tells China's premier of plan to quit Belt and Road Initiative -media](https://news.yahoo.com/italian-pm-tells-chinas-premier-091246875.html)
 - Sep 10 - [Michigan State's Mel Tucker reportedly accused of sexually harassing anti-rape activist Brenda Tracy](https://sports.yahoo.com/michigan-states-mel-tucker-reportedly-accused-of-sexually-harassing-anti-rape-activist-brenda-tracy-062046324.html)
-- Sep 10 - [Trump Gets Mixed Reaction From Crowd As He Shows Up At Iowa-Iowa State Football Game](https://www.yahoo.com/entertainment/trump-gets-mixed-reaction-crowd-015406946.html)
-- Sep 10 - [Colorado secretary of state calls Trump a ‘liar,’ vows to see ballot lawsuit through](https://news.yahoo.com/colorado-secretary-state-calls-trump-013438359.html)
-- Sep 09 - [Indiana woman allegedly hides drugs in private parts, fakes heart attack when police grow suspicious](https://news.yahoo.com/indiana-woman-allegedly-hides-drugs-213228056.html)
-- Sep 09 - [People Are Sharing The "Dirty Little Secrets" About The Industries They Work In That They Think Everyone Should Really Know, And It's Eye-Opening](https://www.yahoo.com/lifestyle/people-sharing-dirty-little-secrets-191603398.html)
 <!-- feed end -->
 
 ### Onstream
