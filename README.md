@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 10 - [Watch Police PIT A Range Rover Into The Stratosphere](https://news.yahoo.com/watch-police-pit-range-rover-170000794.html)
+- Sep 10 - ['The Old Farmer’s Almanac' Predicts That Winter Will Be Frigid and Snowy Everywhere But Here](https://www.yahoo.com/lifestyle/old-farmer-almanac-predicts-winter-160000769.html)
 - Sep 10 - [White House press secretary ends news conference as Biden is still responding to questions from reporters](https://news.yahoo.com/white-house-press-secretary-ends-154821631.html)
 - Sep 10 - [He ran out of gas on a California road trip 27 years ago — and hasn’t been seen since](https://news.yahoo.com/ran-gas-california-road-trip-152512925.html)
 - Sep 10 - [Biden speaks to China's Li at G20, says economic 'crisis' makes Taiwan invasion less likely](https://news.yahoo.com/biden-holds-highest-level-talks-152029946.html)
-- Sep 10 - [JFK Assassination Witness Breaks His Silence and Raises New Questions](https://news.yahoo.com/jfk-assassination-witness-breaks-silence-142858952.html)
-- Sep 10 - [We spoke to hundreds of prison gang members – here's what they said about life behind bars](https://news.yahoo.com/spoke-hundreds-prison-gang-members-124245395.html)
 <!-- feed end -->
 
 ### Onstream
