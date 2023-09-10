@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Biden finds a new friend in Vietnam as American CEOs look for alternatives to Chinese factories](https://news.yahoo.com/biden-finds-friend-vietnam-american-033213697.html)
-- Sep 10 - [China, Europe should 'unite and co-operate', Premier Li says at G20](https://news.yahoo.com/china-europe-unite-co-operate-033152298.html)
+- Sep 10 - [Americans Are Sharing Things About Life And Culture In The US That Non-Americans Can't Really Wrap Their Heads Around](https://www.yahoo.com/lifestyle/americans-sharing-things-life-culture-034602224.html)
 - Sep 10 - [Trump Gets Mixed Reaction From Crowd As He Shows Up At Iowa-Iowa State Football Game](https://www.yahoo.com/entertainment/trump-gets-mixed-reaction-crowd-015406946.html)
-- Sep 10 - [Colorado secretary of state calls Trump a ‘liar,’ vows to see ballot lawsuit through](https://news.yahoo.com/colorado-secretary-state-calls-trump-013438359.html)
 - Sep 09 - [Indiana woman allegedly hides drugs in private parts, fakes heart attack when police grow suspicious](https://news.yahoo.com/indiana-woman-allegedly-hides-drugs-213228056.html)
+- Sep 09 - [People Are Sharing The "Dirty Little Secrets" About The Industries They Work In That They Think Everyone Should Really Know, And It's Eye-Opening](https://www.yahoo.com/lifestyle/people-sharing-dirty-little-secrets-191603398.html)
+- Sep 09 - [Brooklyn parking dispute leads to double shooting at Home Depot](https://news.yahoo.com/brooklyn-parking-dispute-leads-double-185600441.html)
 <!-- feed end -->
 
 ### Onstream
