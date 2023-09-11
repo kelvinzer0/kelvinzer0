@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Judge rules for Oregon State and Washington, says departing Pac-12 schools can't hold meeting](https://news.yahoo.com/judge-rules-oregon-state-washington-200917888.html)
-- Sep 11 - [Judges refuse to pause order for Alabama to draw new congressional districts while state appeals](https://news.yahoo.com/judges-refuse-pause-order-alabama-195052290.html)
-- Sep 11 - [Sea creature with 22-foot wingspan gives rare, belly-up sighting. See ‘amazing’ photos](https://news.yahoo.com/sea-creature-22-foot-wingspan-193830007.html)
-- Sep 11 - [Delta Passengers Stranded on Remote Island Told to Be Grateful They Didn’t Crash](https://www.yahoo.com/lifestyle/delta-passengers-stranded-remote-island-192634408.html)
-- Sep 11 - [Marjorie Taylor Greene Says States Should ‘Consider Seceding From the Union’](https://news.yahoo.com/marjorie-taylor-greene-says-states-192121080.html)
+- Sep 11 - [Suspended Michigan State coach calls harassment allegations false and outside scope of Title IX](https://news.yahoo.com/suspended-michigan-state-coach-calls-214039987.html)
+- Sep 11 - [1,500-year-old palace-like home was hidden by jungle foliage — until now. Take a look](https://news.yahoo.com/1-500-old-palace-home-211537782.html)
+- Sep 11 - [Trump seeks disqualification of US judge in federal election case](https://news.yahoo.com/trump-seeks-disqualification-us-judge-205401812.html)
+- Sep 11 - [Nike is permanently closing this massive factory store for a scary reason](https://www.thestreet.com/retailers/nike-is-permanently-closing-this-massive-factory-store-for-a-scary-reason?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Sep 11 - [A boy saw 17 doctors over 3 years for chronic pain. ChatGPT found the diagnosis](https://news.yahoo.com/boy-saw-17-doctors-over-204224194.html)
 <!-- feed end -->
 
 ### Onstream
