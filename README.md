@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Disney, Charter near distribution deal - CNBC](https://finance.yahoo.com/news/disney-charter-near-distribution-deal-142025042.html)
-- Sep 11 - [Former Bengal Adam 'Pacman' Jones arrested at CVG prior to flight takeoff](https://news.yahoo.com/former-bengal-adam-pacman-jones-134544943.html)
-- Sep 11 - [Apple’s iOS 17 will mean big changes for your iPhone](https://finance.yahoo.com/news/apples-ios-17-will-mean-big-changes-for-your-iphone-133556313.html)
-- Sep 11 - [North Korea’s bodged nuclear-missile submarine will be very dangerous – to its crew](https://news.yahoo.com/north-korea-bodged-nuclear-missile-125808701.html)
-- Sep 11 - [Ukraine hit Russia with one of its own prized tactics — turning an old, captured tank into a giant rolling bomb](https://news.yahoo.com/ukraine-hit-russia-one-own-125602484.html)
+- Sep 11 - [Elon Musk Is Now The Father To 11 Children After A 3rd Baby With Ex-Girlfriend Grimes Was Announced — 'Doing My Best To Help The Underpopulation Crisis'](https://finance.yahoo.com/news/elon-musk-now-father-11-154803716.html)
+- Sep 11 - [Former Trump aide Meadows files appeal to move Georgia election case to federal court -filing](https://news.yahoo.com/former-trump-aide-meadows-files-153113849.html)
+- Sep 11 - [Irish fan 'abducted and gang raped' by three men after watching Rugby World Cup match](https://sports.yahoo.com/irish-fan-abducted-gang-raped-144505059.html)
+- Sep 11 - [Disney and Charter reach deal to end media blackout: Report](https://finance.yahoo.com/news/disney-and-charter-reach-deal-to-end-media-blackout-report-150909030.html)
+- Sep 11 - [Oprah Winfrey And Dwayne 'The Rock' Johnson Slammed For Asking Working Class Americans To Donate To Maui Fire After Combined $10 Million in Donations](https://finance.yahoo.com/news/oprah-winfrey-dwayne-rock-johnson-150025141.html)
 <!-- feed end -->
 
 ### Onstream
