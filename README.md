@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 11 - [Lahaina's fire-stricken Filipino residents are key to tourism and local culture. Will they stay?](https://news.yahoo.com/lahainas-fire-stricken-filipino-residents-041137640.html)
-- Sep 11 - [Pennsylvania Republicans have the candidate they want for US Senate. They just need him to run.](https://news.yahoo.com/pennsylvania-republicans-candidate-want-us-040202632.html)
+- Sep 11 - [Trump is explaining exactly how wild and extreme his second term would be](https://news.yahoo.com/trump-explaining-exactly-wild-extreme-041101026.html)
 - Sep 11 - [This Nurse Just Called Out Everything That's Wrong With American Healthcare And I'm Begging You To Listen](https://www.yahoo.com/lifestyle/happening-everywhere-california-nurse-calling-011603315.html)
 - Sep 11 - [Disney Ending $1 Billion Move Amid DeSantis Lawsuit Could Be A Bigger Deal For Florida Than We Thought](https://www.yahoo.com/entertainment/disney-ending-1-billion-move-180000050.html)
 - Sep 10 - [Michael Irvin returns to NFL Network, settles $100 million lawsuit with Marriott after misconduct allegations](https://sports.yahoo.com/michael-irvin-returns-to-nfl-network-settles-100-million-lawsuit-with-marriott-after-misconduct-allegations-224021804.html)
