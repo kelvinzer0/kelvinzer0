@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Judge rules for Oregon State and Washington, says departing Pac-12 schools can't hold meeting](https://news.yahoo.com/judge-rules-oregon-state-washington-200917888.html)
+- Sep 11 - [Judges refuse to pause order for Alabama to draw new congressional districts while state appeals](https://news.yahoo.com/judges-refuse-pause-order-alabama-195052290.html)
 - Sep 11 - [Sea creature with 22-foot wingspan gives rare, belly-up sighting. See ‘amazing’ photos](https://news.yahoo.com/sea-creature-22-foot-wingspan-193830007.html)
-- Sep 11 - [Man accused of walking into FBI office, confessing to killing Boston woman in 1979](https://news.yahoo.com/man-accused-walking-fbi-office-193005802.html)
 - Sep 11 - [Delta Passengers Stranded on Remote Island Told to Be Grateful They Didn’t Crash](https://www.yahoo.com/lifestyle/delta-passengers-stranded-remote-island-192634408.html)
-- Sep 11 - [Sheriff in New Mexico's most populous county rejects governor's gun ban, calling it unconstitutional](https://news.yahoo.com/sheriff-mexicos-most-populous-county-180535430.html)
-- Sep 11 - [Trump’s presidential records, ‘dropped’ by DOJ, ‘matter a lot in the long run’](https://news.yahoo.com/trump-presidential-records-dropped-doj-175718284.html)
+- Sep 11 - [Marjorie Taylor Greene Says States Should ‘Consider Seceding From the Union’](https://news.yahoo.com/marjorie-taylor-greene-says-states-192121080.html)
 <!-- feed end -->
 
 ### Onstream
