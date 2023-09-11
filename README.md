@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Sheriff in New Mexico's most populous county rejects governor's gun ban, calling it unconstitutional](https://news.yahoo.com/sheriff-mexicos-most-populous-county-180535430.html)
+- Sep 11 - [Danny Masterson’s Accuser Details Alleged Call With Ashton Kutcher the Night His Date Was Murdered in 2001](https://www.yahoo.com/entertainment/danny-masterson-accuser-details-alleged-175323496.html)
+- Sep 11 - [Donald Trump's 2024 Presidential Campaign Is Showing Major Weaknesses in One of the Most Crucial States](https://www.yahoo.com/entertainment/donald-trumps-2024-presidential-campaign-173842707.html)
 - Sep 11 - [The US has pumped so much groundwater that it's literally splitting the ground open across the American Southwest](https://news.yahoo.com/us-pumped-much-groundwater-literally-171125641.html)
-- Sep 11 - [I watched the newly-public security camera footage from January 6. I saw things I hadn't seen before — including eerie scenes of lawmakers fleeing for their safety on one of the darkest days in American history.](https://news.yahoo.com/watched-newly-public-security-camera-162143274.html)
-- Sep 11 - [Furious Black Woman Claims She Was Fired After Accidentally Receiving Email Referring to Her as ‘Dark Meat,’ Boss Reportedly Claims She Sent It to Herself](https://news.yahoo.com/furious-black-woman-claims-she-160741299.html)
-- Sep 11 - [Video of traffic stop in Buc-ee’s parking lot leads to cop losing job, Texas police say](https://news.yahoo.com/video-traffic-stop-buc-ee-160518869.html)
-- Sep 11 - [Elon Musk Is Now The Father To 11 Children After A 3rd Baby With Ex-Girlfriend Grimes Was Announced — 'Doing My Best To Help The Underpopulation Crisis'](https://finance.yahoo.com/news/elon-musk-now-father-11-154803716.html)
+- Sep 11 - [Active-duty Marine gets probation and community service for storming Capitol with 2 unit members](https://news.yahoo.com/active-duty-marine-gets-probation-165503073.html)
 <!-- feed end -->
 
 ### Onstream
