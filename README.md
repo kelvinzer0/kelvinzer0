@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Russians opened fire on a Ukrainian flag tied to balloons, revealing their position for a counterattack, Ukraine says](https://news.yahoo.com/russians-opened-fire-ukrainian-flag-104529090.html)
-- Sep 11 - [Ukraine collects Russian bodies on 'road of death' in retaken southeast](https://news.yahoo.com/ukraine-collects-russian-bodies-road-103756932.html)
-- Sep 11 - [Are Russia and China going to destroy the US economy? Dave Ramsey has an answer, says only 'bottled water and bullets' would work under a worst-case scenario](https://finance.yahoo.com/news/russia-china-going-destroy-us-103000482.html)
-- Sep 11 - [See the moment Biden press conference ends abruptly in Vietnam](https://news.yahoo.com/see-moment-biden-press-conference-101127310.html)
-- Sep 11 - [Here’s why many Black people despise Clarence Thomas. (It’s not because he’s a conservative.)](https://news.yahoo.com/why-many-black-people-despise-100052930.html)
+- Sep 11 - [North Korea’s bodged nuclear-missile submarine will be very dangerous – to its crew](https://news.yahoo.com/north-korea-bodged-nuclear-missile-125808701.html)
+- Sep 11 - [Ukraine hit Russia with one of its own prized tactics — turning an old, captured tank into a giant rolling bomb](https://news.yahoo.com/ukraine-hit-russia-one-own-125602484.html)
+- Sep 11 - [Boeing's CEO is commuting to the office by private jet, and some employees who have returned to the office are mocking him, report says](https://news.yahoo.com/boeings-ceo-commuting-office-private-115433036.html)
+- Sep 11 - [Two idiot tourists suffer instant karma after taunting ornery moose in Montana: ‘One of the best things I’ve seen all year’](https://news.yahoo.com/bystander-captures-instant-karma-moment-093000756.html)
+- Sep 11 - [Pennsylvania killer Danelo Cavalcante’s sister arrested by ICE; escapee tries to contact former co-workers](https://news.yahoo.com/pennsylvania-killer-danelo-cavalcante-sister-112359549.html)
 <!-- feed end -->
 
 ### Onstream
