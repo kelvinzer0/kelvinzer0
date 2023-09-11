@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Ukraine collects Russian bodies on 'road of death' in retaken southeast](https://news.yahoo.com/ukraine-collects-russian-bodies-road-103756932.html)
+- Sep 11 - [Are Russia and China going to destroy the US economy? Dave Ramsey has an answer, says only 'bottled water and bullets' would work under a worst-case scenario](https://finance.yahoo.com/news/russia-china-going-destroy-us-103000482.html)
+- Sep 11 - [Here’s why many Black people despise Clarence Thomas. (It’s not because he’s a conservative.)](https://news.yahoo.com/why-many-black-people-despise-100052930.html)
+- Sep 11 - [Pakistani ex-cricketer sentenced to 12 years for threatening Dutch far-right leader](https://news.yahoo.com/pakistani-ex-cricketer-sentenced-12-094505394.html)
 - Sep 11 - [White House Thanks Fox News' Peter Doocy For His Viral Biden Remark](https://news.yahoo.com/white-house-thanks-fox-news-094329760.html)
-- Sep 11 - [Pakistan says Taliban forces building 'unlawful' structure in border dispute](https://news.yahoo.com/pakistan-says-taliban-forces-building-085803397.html)
-- Sep 11 - [Trump's 'Mental Acuity' Challenge Gets Exactly The Response You'd Expect](https://news.yahoo.com/trumps-mental-acuity-challenge-gets-080409785.html)
-- Sep 11 - [Trump is explaining exactly how wild and extreme his second term would be](https://news.yahoo.com/trump-explaining-exactly-wild-extreme-041101026.html)
-- Sep 11 - [GOP Rep. Puts ‘Absurd’ Marjorie Taylor Greene On Blast In Blunt TV Interview](https://news.yahoo.com/gop-rep-puts-absurd-marjorie-063514619.html)
 <!-- feed end -->
 
 ### Onstream
