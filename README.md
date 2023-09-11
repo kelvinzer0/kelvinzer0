@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Sea creature with 22-foot wingspan gives rare, belly-up sighting. See ‘amazing’ photos](https://news.yahoo.com/sea-creature-22-foot-wingspan-193830007.html)
+- Sep 11 - [Man accused of walking into FBI office, confessing to killing Boston woman in 1979](https://news.yahoo.com/man-accused-walking-fbi-office-193005802.html)
+- Sep 11 - [Delta Passengers Stranded on Remote Island Told to Be Grateful They Didn’t Crash](https://www.yahoo.com/lifestyle/delta-passengers-stranded-remote-island-192634408.html)
 - Sep 11 - [Sheriff in New Mexico's most populous county rejects governor's gun ban, calling it unconstitutional](https://news.yahoo.com/sheriff-mexicos-most-populous-county-180535430.html)
-- Sep 11 - [Danny Masterson’s Accuser Details Alleged Call With Ashton Kutcher the Night His Date Was Murdered in 2001](https://www.yahoo.com/entertainment/danny-masterson-accuser-details-alleged-175323496.html)
-- Sep 11 - [Donald Trump's 2024 Presidential Campaign Is Showing Major Weaknesses in One of the Most Crucial States](https://www.yahoo.com/entertainment/donald-trumps-2024-presidential-campaign-173842707.html)
-- Sep 11 - [The US has pumped so much groundwater that it's literally splitting the ground open across the American Southwest](https://news.yahoo.com/us-pumped-much-groundwater-literally-171125641.html)
-- Sep 11 - [Active-duty Marine gets probation and community service for storming Capitol with 2 unit members](https://news.yahoo.com/active-duty-marine-gets-probation-165503073.html)
+- Sep 11 - [Trump’s presidential records, ‘dropped’ by DOJ, ‘matter a lot in the long run’](https://news.yahoo.com/trump-presidential-records-dropped-doj-175718284.html)
 <!-- feed end -->
 
 ### Onstream
