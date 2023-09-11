@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [In the Michigan State story, Brenda Tracy is the believable one. Not coach Mel Tucker.](https://sports.yahoo.com/michigan-state-story-brenda-tracy-000139776.html)
+- Sep 11 - ["It Is Happening Everywhere": This California Nurse Is Calling Out The Real Problem With American Healthcare, And It's Eye-Opening](https://www.yahoo.com/lifestyle/happening-everywhere-california-nurse-calling-011603315.html)
+- Sep 11 - [Donald Trump Challenges Joe Biden and Rupert Murdoch to Mental Acuity Tests: ‘Nobody Will Even Come Close to Me’](https://www.yahoo.com/entertainment/donald-trump-challenges-joe-biden-004239212.html)
+- Sep 11 - [Disney Ending $1 Billion Move Amid DeSantis Lawsuit Could Be A Bigger Deal For Florida Than We Thought](https://www.yahoo.com/entertainment/disney-ending-1-billion-move-180000050.html)
 - Sep 10 - [Michael Irvin returns to NFL Network, settles $100 million lawsuit with Marriott after misconduct allegations](https://sports.yahoo.com/michael-irvin-returns-to-nfl-network-settles-100-million-lawsuit-with-marriott-after-misconduct-allegations-224021804.html)
 - Sep 10 - [California school district to pay $2.25M to settle suit involving teacher who had student's baby](https://news.yahoo.com/california-school-district-pay-2-212932863.html)
-- Sep 10 - [Eric Trump Is Coping with Dad Donald's Indictments By Turning To A Divisive Resource](https://www.yahoo.com/entertainment/eric-trump-coping-dad-donalds-210500611.html)
-- Sep 10 - [Escaped convict Danelo Cavalcante spotted with altered appearance, driving stolen van, police say](https://www.yahoo.com/gma/escaped-convict-danelo-cavalcante-spotted-102100782.html)
 <!-- feed end -->
 
 ### Onstream
