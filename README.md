@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Disney, Charter near distribution deal - CNBC](https://finance.yahoo.com/news/disney-charter-near-distribution-deal-142025042.html)
+- Sep 11 - [Former Bengal Adam 'Pacman' Jones arrested at CVG prior to flight takeoff](https://news.yahoo.com/former-bengal-adam-pacman-jones-134544943.html)
+- Sep 11 - [Apple’s iOS 17 will mean big changes for your iPhone](https://finance.yahoo.com/news/apples-ios-17-will-mean-big-changes-for-your-iphone-133556313.html)
 - Sep 11 - [North Korea’s bodged nuclear-missile submarine will be very dangerous – to its crew](https://news.yahoo.com/north-korea-bodged-nuclear-missile-125808701.html)
 - Sep 11 - [Ukraine hit Russia with one of its own prized tactics — turning an old, captured tank into a giant rolling bomb](https://news.yahoo.com/ukraine-hit-russia-one-own-125602484.html)
-- Sep 11 - [Boeing's CEO is commuting to the office by private jet, and some employees who have returned to the office are mocking him, report says](https://news.yahoo.com/boeings-ceo-commuting-office-private-115433036.html)
-- Sep 11 - [Two idiot tourists suffer instant karma after taunting ornery moose in Montana: ‘One of the best things I’ve seen all year’](https://news.yahoo.com/bystander-captures-instant-karma-moment-093000756.html)
-- Sep 11 - [Pennsylvania killer Danelo Cavalcante’s sister arrested by ICE; escapee tries to contact former co-workers](https://news.yahoo.com/pennsylvania-killer-danelo-cavalcante-sister-112359549.html)
 <!-- feed end -->
 
 ### Onstream
