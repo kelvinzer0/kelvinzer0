@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [White House Thanks Fox News' Peter Doocy For His Viral Biden Remark](https://news.yahoo.com/white-house-thanks-fox-news-094329760.html)
+- Sep 11 - [Pakistan says Taliban forces building 'unlawful' structure in border dispute](https://news.yahoo.com/pakistan-says-taliban-forces-building-085803397.html)
 - Sep 11 - [Trump's 'Mental Acuity' Challenge Gets Exactly The Response You'd Expect](https://news.yahoo.com/trumps-mental-acuity-challenge-gets-080409785.html)
 - Sep 11 - [Trump is explaining exactly how wild and extreme his second term would be](https://news.yahoo.com/trump-explaining-exactly-wild-extreme-041101026.html)
 - Sep 11 - [GOP Rep. Puts ‘Absurd’ Marjorie Taylor Greene On Blast In Blunt TV Interview](https://news.yahoo.com/gop-rep-puts-absurd-marjorie-063514619.html)
-- Sep 11 - [Kamala Harris Has 4 Words When Asked About 'Threat' Of Trump Victory](https://news.yahoo.com/kamala-harris-4-words-asked-055644272.html)
-- Sep 11 - [True to life but without the price tag: The decoy weapons Ukraine wants Russia to destroy](https://news.yahoo.com/true-life-without-price-tag-051313104.html)
 <!-- feed end -->
 
 ### Onstream
