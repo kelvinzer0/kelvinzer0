@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [I watched the newly-public security camera footage from January 6. I saw things I hadn't seen before — including eerie scenes of lawmakers fleeing for their safety on one of the darkest days in American history.](https://news.yahoo.com/watched-newly-public-security-camera-162143274.html)
+- Sep 11 - [Video of traffic stop in Buc-ee’s parking lot leads to cop losing job, Texas police say](https://news.yahoo.com/video-traffic-stop-buc-ee-160518869.html)
 - Sep 11 - [Elon Musk Is Now The Father To 11 Children After A 3rd Baby With Ex-Girlfriend Grimes Was Announced — 'Doing My Best To Help The Underpopulation Crisis'](https://finance.yahoo.com/news/elon-musk-now-father-11-154803716.html)
 - Sep 11 - [Former Trump aide Meadows files appeal to move Georgia election case to federal court -filing](https://news.yahoo.com/former-trump-aide-meadows-files-153113849.html)
-- Sep 11 - [Irish fan 'abducted and gang raped' by three men after watching Rugby World Cup match](https://sports.yahoo.com/irish-fan-abducted-gang-raped-144505059.html)
-- Sep 11 - [Disney and Charter reach deal to end media blackout: Report](https://finance.yahoo.com/news/disney-and-charter-reach-deal-to-end-media-blackout-report-150909030.html)
-- Sep 11 - [Oprah Winfrey And Dwayne 'The Rock' Johnson Slammed For Asking Working Class Americans To Donate To Maui Fire After Combined $10 Million in Donations](https://finance.yahoo.com/news/oprah-winfrey-dwayne-rock-johnson-150025141.html)
+- Sep 11 - [Irish fan ‘abducted and gang raped’ by three men after watching Rugby World Cup match](https://sports.yahoo.com/irish-fan-abducted-gang-raped-144505059.html)
 <!-- feed end -->
 
 ### Onstream
