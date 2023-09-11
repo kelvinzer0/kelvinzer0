@@ -63,9 +63,8 @@ https://kelvinzer0.github.io
 - Sep 11 - [Russians opened fire on a Ukrainian flag tied to balloons, revealing their position for a counterattack, Ukraine says](https://news.yahoo.com/russians-opened-fire-ukrainian-flag-104529090.html)
 - Sep 11 - [Ukraine collects Russian bodies on 'road of death' in retaken southeast](https://news.yahoo.com/ukraine-collects-russian-bodies-road-103756932.html)
 - Sep 11 - [Are Russia and China going to destroy the US economy? Dave Ramsey has an answer, says only 'bottled water and bullets' would work under a worst-case scenario](https://finance.yahoo.com/news/russia-china-going-destroy-us-103000482.html)
+- Sep 11 - [See the moment Biden press conference ends abruptly in Vietnam](https://news.yahoo.com/see-moment-biden-press-conference-101127310.html)
 - Sep 11 - [Here’s why many Black people despise Clarence Thomas. (It’s not because he’s a conservative.)](https://news.yahoo.com/why-many-black-people-despise-100052930.html)
-- Sep 11 - [Big Lie Two Is Here, and It’s Far More Insidious
-Than Big Lie One](https://news.yahoo.com/big-lie-two-far-more-100000248.html)
 <!-- feed end -->
 
 ### Onstream
