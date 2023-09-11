@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Trump's 'Mental Acuity' Challenge Gets Exactly The Response You'd Expect](https://news.yahoo.com/trumps-mental-acuity-challenge-gets-080409785.html)
+- Sep 11 - [Trump is explaining exactly how wild and extreme his second term would be](https://news.yahoo.com/trump-explaining-exactly-wild-extreme-041101026.html)
+- Sep 11 - [GOP Rep. Puts ‘Absurd’ Marjorie Taylor Greene On Blast In Blunt TV Interview](https://news.yahoo.com/gop-rep-puts-absurd-marjorie-063514619.html)
 - Sep 11 - [Kamala Harris Has 4 Words When Asked About 'Threat' Of Trump Victory](https://news.yahoo.com/kamala-harris-4-words-asked-055644272.html)
 - Sep 11 - [True to life but without the price tag: The decoy weapons Ukraine wants Russia to destroy](https://news.yahoo.com/true-life-without-price-tag-051313104.html)
-- Sep 11 - [Lahaina's fire-stricken Filipino residents are key to tourism and local culture. Will they stay?](https://news.yahoo.com/lahainas-fire-stricken-filipino-residents-041137640.html)
-- Sep 11 - [Trump is explaining exactly how wild and extreme his second term would be](https://news.yahoo.com/trump-explaining-exactly-wild-extreme-041101026.html)
-- Sep 11 - [Brazil needs to review accession to ICC, own judiciary to decide on Putin: Lula](https://news.yahoo.com/brazils-judiciary-decide-putin-arrest-040949311.html)
 <!-- feed end -->
 
 ### Onstream
