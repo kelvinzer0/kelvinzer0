@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [The US has pumped so much groundwater that it's literally splitting the ground open across the American Southwest](https://news.yahoo.com/us-pumped-much-groundwater-literally-171125641.html)
 - Sep 11 - [I watched the newly-public security camera footage from January 6. I saw things I hadn't seen before — including eerie scenes of lawmakers fleeing for their safety on one of the darkest days in American history.](https://news.yahoo.com/watched-newly-public-security-camera-162143274.html)
+- Sep 11 - [Furious Black Woman Claims She Was Fired After Accidentally Receiving Email Referring to Her as ‘Dark Meat,’ Boss Reportedly Claims She Sent It to Herself](https://news.yahoo.com/furious-black-woman-claims-she-160741299.html)
 - Sep 11 - [Video of traffic stop in Buc-ee’s parking lot leads to cop losing job, Texas police say](https://news.yahoo.com/video-traffic-stop-buc-ee-160518869.html)
 - Sep 11 - [Elon Musk Is Now The Father To 11 Children After A 3rd Baby With Ex-Girlfriend Grimes Was Announced — 'Doing My Best To Help The Underpopulation Crisis'](https://finance.yahoo.com/news/elon-musk-now-father-11-154803716.html)
-- Sep 11 - [Former Trump aide Meadows files appeal to move Georgia election case to federal court -filing](https://news.yahoo.com/former-trump-aide-meadows-files-153113849.html)
-- Sep 11 - [Irish fan ‘abducted and gang raped’ by three men after watching Rugby World Cup match](https://sports.yahoo.com/irish-fan-abducted-gang-raped-144505059.html)
 <!-- feed end -->
 
 ### Onstream
