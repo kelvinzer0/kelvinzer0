@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [True to life but without the price tag: The decoy weapons Ukraine wants Russia to destroy](https://news.yahoo.com/true-life-without-price-tag-051313104.html)
 - Sep 11 - [Lahaina's fire-stricken Filipino residents are key to tourism and local culture. Will they stay?](https://news.yahoo.com/lahainas-fire-stricken-filipino-residents-041137640.html)
 - Sep 11 - [Trump is explaining exactly how wild and extreme his second term would be](https://news.yahoo.com/trump-explaining-exactly-wild-extreme-041101026.html)
+- Sep 11 - [Brazil needs to review accession to ICC, own judiciary to decide on Putin: Lula](https://news.yahoo.com/brazils-judiciary-decide-putin-arrest-040949311.html)
 - Sep 11 - [This Nurse Just Called Out Everything That's Wrong With American Healthcare And I'm Begging You To Listen](https://www.yahoo.com/lifestyle/happening-everywhere-california-nurse-calling-011603315.html)
-- Sep 11 - [Disney Ending $1 Billion Move Amid DeSantis Lawsuit Could Be A Bigger Deal For Florida Than We Thought](https://www.yahoo.com/entertainment/disney-ending-1-billion-move-180000050.html)
-- Sep 10 - [Michael Irvin returns to NFL Network, settles $100 million lawsuit with Marriott after misconduct allegations](https://sports.yahoo.com/michael-irvin-returns-to-nfl-network-settles-100-million-lawsuit-with-marriott-after-misconduct-allegations-224021804.html)
 <!-- feed end -->
 
 ### Onstream
