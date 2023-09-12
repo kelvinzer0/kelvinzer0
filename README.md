@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [Former No. 1 tennis player Simona Halep gets 4-year ban in doping case](https://news.yahoo.com/former-no-1-tennis-player-152632387.html)
+- Sep 12 - [Ukraine makes gains on Eastern Front with ‘blindside’ move near Avdiivka](https://news.yahoo.com/ukraine-makes-gains-eastern-front-151000432.html)
 - Sep 12 - [Putin Goes Full MAGA: Welcomes Trump’s Ukraine Plan and Rages About His ‘Persecution’](https://news.yahoo.com/putin-goes-full-maga-welcomes-141148452.html)
 - Sep 12 - [Las Vegas Strip resort casinos hit by shocking attack](https://www.thestreet.com/travel/las-vegas-strip-resort-casinos-hit-by-shocking-attack?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Sep 12 - [‘They Don’t Own the Street’: Oblivious White Woman Reportedly Calls Cops on Black Man Who Parked Car on Public Street In Front of Home, Video Shows](https://news.yahoo.com/don-t-own-street-oblivious-130000120.html)
-- Sep 12 - [The daughter of the woman killed by Pennsylvania prison escapee Danelo Cavalcante told police he said he was going ‘to do something bad’ to their lives](https://news.yahoo.com/know-pennsylvania-prison-escapee-danelo-002152777.html)
-- Sep 12 - [Millions of Americans are set to lose a popular 401(k) benefit — are you one of them? Here's what it is and what it means for you](https://finance.yahoo.com/news/millions-americans-set-lose-popular-110000873.html)
 <!-- feed end -->
 
 ### Onstream
