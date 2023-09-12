@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Residents asked to stay indoors after escaped Pennsylvania killer is spotted again, and police say he is armed](https://news.yahoo.com/residents-asked-stay-indoors-escaped-055909116.html)
+- Sep 12 - [GOP Lawmaker Scorched For Her 'Mental Gymnastics' About Biden Impeachment Inquiry](https://news.yahoo.com/gop-lawmaker-scorched-her-mental-111137450.html)
+- Sep 12 - [Millions of Americans are set to lose a popular 401(k) benefit — are you one of them? Here's what it is and what it means for you](https://finance.yahoo.com/news/millions-americans-set-lose-popular-110000873.html)
+- Sep 12 - [Teacher charged with raping boy at her home: "It's unspeakable"](https://news.yahoo.com/teacher-charged-raping-boy-her-101640580.html)
 - Sep 12 - [Elon Musk passed out after drinking vodka in a meeting with Russians to buy rockets because he was hungover from partying in Paris, biography says](https://news.yahoo.com/elon-musk-passed-drinking-vodka-094453500.html)
-- Sep 12 - [Lawrence O'Donnell Gives Trump's 'Most Vile Lie' About 9/11 A Blunt Fact-Check](https://news.yahoo.com/lawrence-odonnell-gives-trumps-most-085059414.html)
-- Sep 12 - [Georgia Sheriff Recalls 'Heartbreaking' Realization During Trump Booking](https://news.yahoo.com/georgia-sheriff-recalls-heartbreaking-realization-083143244.html)
-- Sep 12 - [Putin: Sending Soviet tanks into Hungary and Czechoslovakia was a mistake](https://news.yahoo.com/putin-sending-soviet-tanks-hungary-075944753.html)
+- Sep 12 - [Viral video taken aboard Chinese high-speed train stuns social media users: ‘We get shaken up like a champagne bottle’](https://news.yahoo.com/viral-video-taken-aboard-chinese-161314254.html)
 <!-- feed end -->
 
 ### Onstream
