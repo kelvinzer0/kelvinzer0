@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [B-21 Raider Seen Like Never Before In New Images](https://news.yahoo.com/b-21-raider-seen-never-181739785.html)
-- Sep 12 - [Ukrainian soldier says new Leopard tanks are better than old Soviet ones because the ammo doesn't explode, kill the crew, and blow the turret off if it takes a hit](https://news.yahoo.com/ukrainian-soldier-says-leopard-tanks-180949403.html)
-- Sep 12 - [Authorities have launched an investigation into WWE star Matt Riddle's allegations that he was sexually assaulted and harassed by a police officer at NYC's JFK Airport](https://news.yahoo.com/authorities-launched-investigation-wwe-star-174310785.html)
-- Sep 12 - [Sens. Mike Lee, Mitt Romney respond to House impeachment inquiry into President Biden](https://news.yahoo.com/sens-mike-lee-mitt-romney-173313619.html)
-- Sep 12 - [Orangutan finds possum in its treehouse — and throws it ‘like a frisbee,’ video shows](https://news.yahoo.com/orangutan-finds-possum-treehouse-throws-172743810.html)
+- Sep 12 - [Trump the Tariff Man is coming for your wallet — again](https://finance.yahoo.com/news/trump-the-tariff-man-is-coming-for-your-wallet--again-193251470.html)
+- Sep 12 - ["This Is Egregious" — A USC Student's Apartment Is Going Viral For Its Absolutely Terrible Layout](https://www.yahoo.com/lifestyle/egregious-usc-students-apartment-going-192044250.html)
+- Sep 12 - [Investigation shows armed officer was hostage at home of Grammy winner who was killed by police](https://news.yahoo.com/investigation-shows-armed-officer-hostage-191646538.html)
+- Sep 12 - [Watch: Tourists Unleash Rottweiler on Two Bull Elk in Canadian National Park](https://www.yahoo.com/lifestyle/watch-tourists-unleash-rottweiler-two-190919503.html)
+- Sep 12 - [You got COVID. Now what?](https://www.yahoo.com/lifestyle/covid-pandemic-what-to-do-190745228.html)
 <!-- feed end -->
 
 ### Onstream
