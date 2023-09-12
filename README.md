@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Biden approval edges up to highest level since March - Reuters/Ipsos poll](https://news.yahoo.com/biden-approval-edges-highest-level-174312344.html)
+- Sep 12 - [B-21 Raider Seen Like Never Before In New Images](https://news.yahoo.com/b-21-raider-seen-never-181739785.html)
+- Sep 12 - [Ukrainian soldier says new Leopard tanks are better than old Soviet ones because the ammo doesn't explode, kill the crew, and blow the turret off if it takes a hit](https://news.yahoo.com/ukrainian-soldier-says-leopard-tanks-180949403.html)
+- Sep 12 - [Authorities have launched an investigation into WWE star Matt Riddle's allegations that he was sexually assaulted and harassed by a police officer at NYC's JFK Airport](https://news.yahoo.com/authorities-launched-investigation-wwe-star-174310785.html)
+- Sep 12 - [Sens. Mike Lee, Mitt Romney respond to House impeachment inquiry into President Biden](https://news.yahoo.com/sens-mike-lee-mitt-romney-173313619.html)
 - Sep 12 - [Orangutan finds possum in its treehouse — and throws it ‘like a frisbee,’ video shows](https://news.yahoo.com/orangutan-finds-possum-treehouse-throws-172743810.html)
-- Sep 12 - [John Fetterman reacts to the GOP moving forward on a Biden impeachment inquiry: 'OOooOooOoOooh don't do it, please don't do it'](https://news.yahoo.com/john-fetterman-reacts-gop-moving-171125046.html)
-- Sep 12 - [Police officer 'failed to tell parents of son's death and instead visited McDonald's'](https://news.yahoo.com/police-officer-failed-inform-parents-162917898.html)
-- Sep 12 - ['Bring Me The Evidence': Chris Christie Called Out For Abortion Comment On MSNBC](https://news.yahoo.com/bring-evidence-chris-christie-called-162619104.html)
 <!-- feed end -->
 
 ### Onstream
