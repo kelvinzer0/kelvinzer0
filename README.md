@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [China is likely headed for a full-blown financial crisis as its economy is due for wilder swings, market expert says](https://finance.yahoo.com/news/china-likely-headed-full-blown-003432867.html)
+- Sep 12 - [What is a medical pedicure, and why is TikTok so obsessed?: ‘Never knew this existed’](https://news.yahoo.com/medical-pedicure-why-tiktok-obsessed-002900839.html)
 - Sep 11 - [Michigan State coach Mel Tucker denies 'completely false' sexual harassment allegation amid criticism from Gov. Gretchen Whitmer](https://sports.yahoo.com/michigan-state-coach-mel-tucker-denies-completely-false-sexual-harassment-allegation-amid-criticism-from-gov-gretchen-whitmer-224916802.html)
 - Sep 11 - [‘My heart’s gone’: Family loses mom to catastrophic childbirth complication](https://news.yahoo.com/heart-gone-family-loses-mom-214507359.html)
 - Sep 11 - [Suspended Michigan State coach calls harassment allegations false and outside scope of Title IX](https://news.yahoo.com/suspended-michigan-state-coach-calls-214039987.html)
