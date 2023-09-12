@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Wisconsin GOP to pursue nonpartisan redistricting to avoid having state justices toss maps](https://news.yahoo.com/wisconsin-gop-pursue-nonpartisan-redistricting-210037165.html)
+- Sep 12 - [White South Carolina Woman Followed, Pointed Gun at Black Newspaper Delivery Driver Because She Believed Worker Was Staking Out Neighborhood and ‘Didn’t Belong There’](https://news.yahoo.com/white-south-carolina-woman-followed-220000456.html)
+- Sep 12 - [British woman 'gang raped' in Aiya Napa hid in bathroom and screamed for help, court hears](https://news.yahoo.com/british-woman-gang-raped-aiya-215741883.html)
+- Sep 12 - [Wisconsin's Democratic governor rejects GOP's surprise redistricting plan](https://news.yahoo.com/wisconsin-gop-pursue-nonpartisan-redistricting-210037165.html)
 - Sep 12 - [A boy saw 17 doctors over 3 years for chronic pain. ChatGPT found the diagnosis](https://news.yahoo.com/boy-saw-17-doctors-over-204224194.html)
 - Sep 12 - [Drug kingpin El Chapo's wife Emma Coronel set to be released, say US authorities](https://news.yahoo.com/drug-kingpin-el-chapos-wife-202600192.html)
-- Sep 12 - [The Plot Thickens Around GOP Candidate Tim Scott’s Alleged Girlfriend](https://news.yahoo.com/plot-thickens-around-gop-candidate-194812823.html)
-- Sep 12 - [Interstate 77 reopens north of uptown Charlotte after rush hour traffic jams](https://news.yahoo.com/interstate-77-shut-down-north-194401958.html)
 <!-- feed end -->
 
 ### Onstream
