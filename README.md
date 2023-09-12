@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Georgia Sheriff Recalls 'Heartbreaking' Realization During Trump Booking](https://news.yahoo.com/georgia-sheriff-recalls-heartbreaking-realization-083143244.html)
-- Sep 12 - [Putin: sending Soviet tanks into Hungary and Czechoslovakia was a mistake](https://news.yahoo.com/putin-sending-soviet-tanks-hungary-075944753.html)
 - Sep 12 - [Residents asked to stay indoors after escaped Pennsylvania killer is spotted again, and police say he is armed](https://news.yahoo.com/residents-asked-stay-indoors-escaped-055909116.html)
+- Sep 12 - [Lawrence O'Donnell Gives Trump's 'Most Vile Lie' About 9/11 A Blunt Fact-Check](https://news.yahoo.com/lawrence-odonnell-gives-trumps-most-085059414.html)
+- Sep 12 - [Georgia Sheriff Recalls 'Heartbreaking' Realization During Trump Booking](https://news.yahoo.com/georgia-sheriff-recalls-heartbreaking-realization-083143244.html)
+- Sep 12 - [Putin: Sending Soviet tanks into Hungary and Czechoslovakia was a mistake](https://news.yahoo.com/putin-sending-soviet-tanks-hungary-075944753.html)
 - Sep 12 - [‘Insane And Treasonous’: Marjorie Taylor Greene Slammed Over ‘Seceding’ Message](https://news.yahoo.com/insane-treasonous-marjorie-taylor-greene-051454777.html)
-- Sep 12 - [George W. Bush says it was 'shocking' to learn that Yevgeny Prigozhin once served him dinner in St. Petersburg: 'All I know is I survived'](https://news.yahoo.com/george-w-bush-says-shocking-031418706.html)
 <!-- feed end -->
 
 ### Onstream
