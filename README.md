@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [27 Russian occupiers dead, 34 injured in friendly-fire incident over mistaken belief of advance on Donetsk air](https://news.yahoo.com/27-russian-occupiers-dead-34-131500265.html)
-- Sep 12 - [Experts on Judge Chutkan and Trump: "Despite her encouraging words, she has yet to take action"](https://news.yahoo.com/experts-judge-chutkan-trump-despite-130657598.html)
+- Sep 12 - [Putin Goes Full MAGA: Welcomes Trump’s Ukraine Plan and Rages About His ‘Persecution’](https://news.yahoo.com/putin-goes-full-maga-welcomes-141148452.html)
+- Sep 12 - [Las Vegas Strip resort casinos hit by shocking attack](https://www.thestreet.com/travel/las-vegas-strip-resort-casinos-hit-by-shocking-attack?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Sep 12 - [‘They Don’t Own the Street’: Oblivious White Woman Reportedly Calls Cops on Black Man Who Parked Car on Public Street In Front of Home, Video Shows](https://news.yahoo.com/don-t-own-street-oblivious-130000120.html)
-- Sep 12 - [Millions of Americans are set to lose a popular 401(k) benefit — are you one of them? Here is what it is and what it means for you](https://finance.yahoo.com/news/millions-americans-set-lose-popular-110000873.html)
-- Sep 12 - [Teacher charged with raping boy at her home: "It's unspeakable"](https://news.yahoo.com/teacher-charged-raping-boy-her-101640580.html)
+- Sep 12 - [The daughter of the woman killed by Pennsylvania prison escapee Danelo Cavalcante told police he said he was going ‘to do something bad’ to their lives](https://news.yahoo.com/know-pennsylvania-prison-escapee-danelo-002152777.html)
+- Sep 12 - [Millions of Americans are set to lose a popular 401(k) benefit — are you one of them? Here's what it is and what it means for you](https://finance.yahoo.com/news/millions-americans-set-lose-popular-110000873.html)
 <!-- feed end -->
 
 ### Onstream
