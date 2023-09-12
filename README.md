@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [Residents asked to stay indoors after escaped Pennsylvania killer is spotted again, and police say he is armed](https://news.yahoo.com/residents-asked-stay-indoors-escaped-055909116.html)
 - Sep 12 - [‘Insane And Treasonous’: Marjorie Taylor Greene Slammed Over ‘Seceding’ Message](https://news.yahoo.com/insane-treasonous-marjorie-taylor-greene-051454777.html)
 - Sep 12 - [George W. Bush says it was 'shocking' to learn that Yevgeny Prigozhin once served him dinner in St. Petersburg: 'All I know is I survived'](https://news.yahoo.com/george-w-bush-says-shocking-031418706.html)
 - Sep 12 - [McDonald’s is phasing out self-serve soda stations — here’s why](https://www.yahoo.com/lifestyle/mcdonald-phasing-self-serve-soda-024258504.html)
 - Sep 12 - [Dramatic video shows Ukrainian special forces battling a Russian Su-30 from small boats at sea. Kyiv's forces say they scored a hit, forcing the jet to flee](https://news.yahoo.com/dramatic-video-shows-ukrainian-special-023407293.html)
-- Sep 12 - [Vanguard Submarine Arrives Home Absolutely Caked In Algae](https://news.yahoo.com/vanguard-submarine-arrives-home-absolutely-003329517.html)
 <!-- feed end -->
 
 ### Onstream
