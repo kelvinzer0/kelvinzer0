@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Trump the Tariff Man is coming for your wallet — again](https://finance.yahoo.com/news/trump-the-tariff-man-is-coming-for-your-wallet--again-193251470.html)
-- Sep 12 - ["This Is Egregious" — A USC Student's Apartment Is Going Viral For Its Absolutely Terrible Layout](https://www.yahoo.com/lifestyle/egregious-usc-students-apartment-going-192044250.html)
-- Sep 12 - [Investigation shows armed officer was hostage at home of Grammy winner who was killed by police](https://news.yahoo.com/investigation-shows-armed-officer-hostage-191646538.html)
-- Sep 12 - [Watch: Tourists Unleash Rottweiler on Two Bull Elk in Canadian National Park](https://www.yahoo.com/lifestyle/watch-tourists-unleash-rottweiler-two-190919503.html)
-- Sep 12 - [You got COVID. Now what?](https://www.yahoo.com/lifestyle/covid-pandemic-what-to-do-190745228.html)
+- Sep 12 - [A boy saw 17 doctors over 3 years for chronic pain. ChatGPT found the diagnosis](https://news.yahoo.com/boy-saw-17-doctors-over-204224194.html)
+- Sep 12 - [Drug kingpin El Chapo's wife Emma Coronel set to be released, say US authorities](https://news.yahoo.com/drug-kingpin-el-chapos-wife-202600192.html)
+- Sep 12 - [The Plot Thickens Around GOP Candidate Tim Scott’s Alleged Girlfriend](https://news.yahoo.com/plot-thickens-around-gop-candidate-194812823.html)
+- Sep 12 - [Interstate 77 shut down north of uptown Charlotte. Rush hour traffic jams likely.](https://news.yahoo.com/interstate-77-shut-down-north-194401958.html)
+- Sep 12 - [‘You Lost Your Mind’: Mississippi Elementary School Bus Driver on Leave After Parents Say She Refused to Let Frantic Kids Off the Vehicle](https://news.yahoo.com/lost-mind-mississippi-elementary-school-193351629.html)
 <!-- feed end -->
 
 ### Onstream
