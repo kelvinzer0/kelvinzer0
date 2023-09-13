@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Slave descendants vow to fight on after Georgia county approves larger homes for island enclave](https://news.yahoo.com/slave-descendants-vow-fight-georgia-003403775.html)
+- Sep 13 - [Boebert escorted out of Denver theater during ‘Beetlejuice’ performance: report](https://news.yahoo.com/boebert-escorted-denver-theater-during-002453618.html)
 - Sep 12 - [Georgia election case prosecutors cite fairness in urging 1 trial for Trump and 18 other defendants](https://news.yahoo.com/prosecutors-georgia-election-case-continue-235042387.html)
 - Sep 12 - [Virginia candidate who livestreamed sex videos draws support from women, Democratic leader](https://news.yahoo.com/virginia-candidate-livestreamed-sex-videos-232830902.html)
 - Sep 12 - [Migrants 'from all over the globe' gather between California border barriers](https://news.yahoo.com/migrants-over-globe-gather-between-231738004.html)
