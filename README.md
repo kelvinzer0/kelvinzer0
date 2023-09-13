@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Authorities capture fugitive Danelo Cavalcante after 2-week manhunt](https://news.yahoo.com/authorities-capture-fugitive-danelo-cavalcante-153854861.html)
+- Sep 13 - [Wisconsin Republican leader asks former state Supreme Court justices to review impeachment](https://news.yahoo.com/wisconsin-republican-leader-asks-former-150614386.html)
 - Sep 13 - [2024 Ford F-150 prices revealed: Here's what every trim level costs](https://www.autoblog.com/2023/09/13/2024-ford-f-150-pricing-revealed-configurator-opens/)
-- Sep 13 - [Woman with whom Texas AG Ken Paxton is said to have had an affair expected to testify at impeachment](https://news.yahoo.com/woman-whom-texas-ag-ken-143316718.html)
 - Sep 13 - [Spirit Airlines, American Airlines cut forecasts citing higher fuel costs](https://finance.yahoo.com/video/spirit-airlines-american-airlines-cut-143224393.html)
-- Sep 13 - [Another Blow for Kanye: First, a NSFW Water Taxi Ride. Now, a Lawsuit Over Unpaid Bills](https://www.yahoo.com/entertainment/another-blow-kanye-first-nsfw-143109485.html)
-- Sep 13 - [Nicolle Wallace Floored By Tommy Tuberville's Latest 'Profound, Embarrassing Ignorance'](https://news.yahoo.com/nicolle-wallace-floored-tommy-tubervilles-130559734.html)
+- Sep 13 - [Trump must review classified documents case evidence in secure location, judge says](https://news.yahoo.com/judge-issues-protective-order-over-142759320.html)
 <!-- feed end -->
 
 ### Onstream
