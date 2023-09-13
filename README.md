@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Suspect taken into custody following UNC campus lockdown](https://news.yahoo.com/suspect-taken-custody-following-unc-202452886.html)
+- Sep 13 - [Arkansas lawmakers advance plan to shield Gov. Sarah Huckabee Sanders' travel, security records](https://news.yahoo.com/arkansas-lawmakers-advance-plan-shield-193930060.html)
+- Sep 13 - [Trump's 215-Pound Weight Mocked On TikTok — He Avoids Alcohol And Pizza Dough But Loves McDonald's Quarter Pounders And Reportedly Drinks 12 Cans Of Diet Coke Per Day](https://finance.yahoo.com/news/trumps-215-pound-weight-mocked-192252501.html)
 - Sep 13 - [Whoopi Goldberg Saves 'The View' After Matthew McConaughey and Joy Behar's Heated Exchange](https://www.yahoo.com/lifestyle/whoopi-goldberg-saves-view-matthew-191400063.html)
 - Sep 13 - [Ex-Trump attorney admits statements about 2020 election were false and is censured by judge](https://news.yahoo.com/ex-trump-attorney-admits-statements-190130036.html)
-- Sep 13 - [California makes top 10 list of ‘happiest states’ in US. But who ranks No. 1?](https://news.yahoo.com/california-makes-top-10-list-190111698.html)
-- Sep 13 - [Joe Biden is becoming dangerous. Remove him now before it’s too late](https://news.yahoo.com/joe-biden-becoming-dangerous-remove-182245726.html)
-- Sep 13 - [People are furious that Pennsylvania police took a photo with the captured convict Danelo Cavalcante](https://news.yahoo.com/people-furious-pennsylvania-police-took-182121276.html)
 <!-- feed end -->
 
 ### Onstream
