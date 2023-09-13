@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [McDonald’s is phasing out self-serve soda stations — here’s why](https://news.yahoo.com/mcdonald-phasing-self-serve-soda-024258504.html)
+- Sep 13 - [Vladimir Putin says that inflation in Russia is making it 'practically impossible' for businesses to plan](https://finance.yahoo.com/news/vladimir-putin-says-inflation-russia-020206878.html)
+- Sep 13 - [Virginia Democrat in key state House race calls sharing of pornographic videos ‘the worst gutter politics’](https://news.yahoo.com/virginia-democrat-key-state-house-184624439.html)
 - Sep 13 - [Boebert escorted out of Denver theater during ‘Beetlejuice’ performance: report](https://news.yahoo.com/boebert-escorted-denver-theater-during-002453618.html)
 - Sep 12 - [Georgia election case prosecutors cite fairness in urging 1 trial for Trump and 18 other defendants](https://news.yahoo.com/prosecutors-georgia-election-case-continue-235042387.html)
-- Sep 12 - [Virginia candidate who livestreamed sex videos draws support from women, Democratic leader](https://news.yahoo.com/virginia-candidate-livestreamed-sex-videos-232830902.html)
-- Sep 12 - [Migrants 'from all over the globe' gather between California border barriers](https://news.yahoo.com/migrants-over-globe-gather-between-231738004.html)
-- Sep 12 - [Las Vegas police officer’s report details ‘Pawn Stars’ personality’s DUI arrest](https://news.yahoo.com/las-vegas-police-officer-report-223150379.html)
 <!-- feed end -->
 
 ### Onstream
