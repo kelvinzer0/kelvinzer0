@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Russia will defeat 'evil' in Ukraine -Kim](https://news.yahoo.com/russia-defeat-evil-ukraine-kim-120757589.html)
+- Sep 13 - [North Korea's Kim meets Putin, supports 'sacred war'](https://news.yahoo.com/north-koreas-kim-meets-putin-105334323.html)
+- Sep 13 - [A fishing vessel in Greenland will try to free a cruise ship that ran aground with 206 people](https://news.yahoo.com/fishery-vessel-try-pull-free-103452521.html)
+- Sep 13 - [Trump’s Ploy to Evade Punishment for Jan. 6 Is Coming Into Focus](https://news.yahoo.com/trump-ploy-evade-punishment-jan-094000181.html)
 - Sep 13 - [I flew to Paris to pick up my 16-year-old daughter in July. After my return flight was delayed by 2 days, I swore to never fly American Airlines internationally again.](https://news.yahoo.com/flew-paris-pick-16-old-044349889.html)
-- Sep 13 - [Newsom says California will intervene in court case blocking San Francisco from clearing encampments](https://news.yahoo.com/newsom-says-california-intervene-court-032458790.html)
-- Sep 13 - [CNN Interview With George Santos Goes Wildly Off the Rails](https://www.yahoo.com/entertainment/cnn-interview-george-santos-goes-030848417.html)
-- Sep 13 - [Fox’s Jeanine Pirro Goes Quiet When Colleague Points Out She’s Vaccinated](https://www.yahoo.com/entertainment/fox-jeanine-pirro-goes-quiet-020046488.html)
-- Sep 13 - [Arizona resident's new truck stolen, disassembled in less than 24 hours: 'They’re not messing around'](https://news.yahoo.com/arizona-residents-truck-stolen-disassembled-012605930.html)
 <!-- feed end -->
 
 ### Onstream
