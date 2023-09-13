@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Man is accused of holding girlfriend captive in university dorm for days](https://news.yahoo.com/man-accused-holding-girlfriend-captive-212847222.html)
-- Sep 13 - [Airlines slash outlooks, Las Vegas outage, 3M: Top Stories](https://finance.yahoo.com/video/airlines-slash-outlooks-las-vegas-212157053.html)
+- Sep 13 - [Mom survives colon cancer twice, shares symptoms doctors dismissed: 'I knew something was wrong'](https://news.yahoo.com/mom-survives-colon-cancer-twice-221125925.html)
+- Sep 13 - [Romney: Biden and Trump should step aside for younger presidential candidates](https://news.yahoo.com/romney-biden-trump-step-aside-214756204.html)
+- Sep 13 - [Trump to appear on 'Meet the Press' Sunday as Kristen Welker takes over as host](https://news.yahoo.com/trump-appear-meet-press-sunday-212357399.html)
 - Sep 13 - [People Are Sharing The Scams That Have Become So Normalized, We Don't Even Realize They're Scams Anymore](https://www.yahoo.com/lifestyle/people-sharing-scams-become-normalized-211602830.html)
-- Sep 13 - [Attack on Russian warships at a Black Sea naval base shows Ukraine's big offensive is more than meets the eye and making Crimea 'untenable' for Moscow's forces](https://news.yahoo.com/attack-russian-warships-black-sea-202957637.html)
-- Sep 13 - [Republicans laughed at Trump behind his back after he rambled during a Senate luncheon, according to Mitt Romney's new tell-all book](https://news.yahoo.com/republicans-laughed-trump-behind-back-202915070.html)
+- Sep 13 - [Theater video surveillance shows US Rep. Lauren Boebert escorted out of ‘Beetlejuice’ musical](https://news.yahoo.com/theater-video-surveillance-shows-us-210158707.html)
 <!-- feed end -->
 
 ### Onstream
