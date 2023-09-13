@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [2024 Ford F-150 prices revealed: Here's what every trim level costs](https://www.autoblog.com/2023/09/13/2024-ford-f-150-pricing-revealed-configurator-opens/)
+- Sep 13 - [Woman with whom Texas AG Ken Paxton is said to have had an affair expected to testify at impeachment](https://news.yahoo.com/woman-whom-texas-ag-ken-143316718.html)
+- Sep 13 - [Spirit Airlines, American Airlines cut forecasts citing higher fuel costs](https://finance.yahoo.com/video/spirit-airlines-american-airlines-cut-143224393.html)
+- Sep 13 - [Another Blow for Kanye: First, a NSFW Water Taxi Ride. Now, a Lawsuit Over Unpaid Bills](https://www.yahoo.com/entertainment/another-blow-kanye-first-nsfw-143109485.html)
 - Sep 13 - [Nicolle Wallace Floored By Tommy Tuberville's Latest 'Profound, Embarrassing Ignorance'](https://news.yahoo.com/nicolle-wallace-floored-tommy-tubervilles-130559734.html)
-- Sep 13 - [‘It Was Just a Stupid Act’: White Massachusetts Teen Accused of Racist Attempted Drowning of Black Boy Released on Bond; Attorneys Argue It Was ‘Horseplay’](https://news.yahoo.com/just-stupid-act-white-massachusetts-130000233.html)
-- Sep 13 - [Escaped inmate Danelo Cavalcante captured in Pennsylvania, authorities say: Live updates](https://news.yahoo.com/escaped-inmate-danelo-cavalcante-captured-124200815.html)
-- Sep 13 - [Mysterious tremors on the moon have been traced back to an unexpected source](https://news.yahoo.com/mysterious-tremors-moon-traced-back-123042834.html)
-- Sep 13 - [Ford just updated its logo for the first time in decades](https://www.autoblog.com/2023/09/13/ford-blue-oval-logo-emblem-redesigned/)
 <!-- feed end -->
 
 ### Onstream
