@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Escaped inmate Danelo Cavalcante captured in Pennsylvania, authorities say: Live updates](https://news.yahoo.com/escaped-inmate-danelo-cavalcante-captured-124200815.html)
+- Sep 13 - [Ford just updated its logo for the first time in decades](https://www.autoblog.com/2023/09/13/ford-blue-oval-logo-emblem-redesigned/)
 - Sep 13 - [Russia will defeat 'evil' in Ukraine -Kim](https://news.yahoo.com/russia-defeat-evil-ukraine-kim-120757589.html)
-- Sep 13 - [North Korea's Kim meets Putin, supports 'sacred war'](https://news.yahoo.com/north-koreas-kim-meets-putin-105334323.html)
-- Sep 13 - [A fishing vessel in Greenland will try to free a cruise ship that ran aground with 206 people](https://news.yahoo.com/fishery-vessel-try-pull-free-103452521.html)
-- Sep 13 - [Trump’s Ploy to Evade Punishment for Jan. 6 Is Coming Into Focus](https://news.yahoo.com/trump-ploy-evade-punishment-jan-094000181.html)
-- Sep 13 - [I flew to Paris to pick up my 16-year-old daughter in July. After my return flight was delayed by 2 days, I swore to never fly American Airlines internationally again.](https://news.yahoo.com/flew-paris-pick-16-old-044349889.html)
+- Sep 13 - [‘Don’t screw up your life with an Airbnb’: Dave Ramsey didn’t mince words when this North Carolina woman floated the idea of refinancing her home to buy a vacation rental — here’s why](https://finance.yahoo.com/news/don-t-screw-life-airbnb-120000486.html)
+- Sep 13 - [Ukraine's dramatic strikes on Crimea appear to have hit a submarine and a landing craft, setting them ablaze](https://news.yahoo.com/ukraines-dramatic-strikes-crimea-appear-113138864.html)
 <!-- feed end -->
 
 ### Onstream
