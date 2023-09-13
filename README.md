@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [White South Carolina Woman Followed, Pointed Gun at Black Newspaper Delivery Driver Because She Believed Worker Was Staking Out Neighborhood and ‘Didn’t Belong There’](https://news.yahoo.com/white-south-carolina-woman-followed-220000456.html)
-- Sep 12 - [British woman 'gang raped' in Aiya Napa hid in bathroom and screamed for help, court hears](https://news.yahoo.com/british-woman-gang-raped-aiya-215741883.html)
-- Sep 12 - [Wisconsin's Democratic governor rejects GOP's surprise redistricting plan](https://news.yahoo.com/wisconsin-gop-pursue-nonpartisan-redistricting-210037165.html)
-- Sep 12 - [A boy saw 17 doctors over 3 years for chronic pain. ChatGPT found the diagnosis](https://news.yahoo.com/boy-saw-17-doctors-over-204224194.html)
-- Sep 12 - [Drug kingpin El Chapo's wife Emma Coronel set to be released, say US authorities](https://news.yahoo.com/drug-kingpin-el-chapos-wife-202600192.html)
+- Sep 13 - [Slave descendants vow to fight on after Georgia county approves larger homes for island enclave](https://news.yahoo.com/slave-descendants-vow-fight-georgia-003403775.html)
+- Sep 12 - [Georgia election case prosecutors cite fairness in urging 1 trial for Trump and 18 other defendants](https://news.yahoo.com/prosecutors-georgia-election-case-continue-235042387.html)
+- Sep 12 - [Virginia candidate who livestreamed sex videos draws support from women, Democratic leader](https://news.yahoo.com/virginia-candidate-livestreamed-sex-videos-232830902.html)
+- Sep 12 - [Migrants 'from all over the globe' gather between California border barriers](https://news.yahoo.com/migrants-over-globe-gather-between-231738004.html)
+- Sep 12 - [Las Vegas police officer’s report details ‘Pawn Stars’ personality’s DUI arrest](https://news.yahoo.com/las-vegas-police-officer-report-223150379.html)
 <!-- feed end -->
 
 ### Onstream
