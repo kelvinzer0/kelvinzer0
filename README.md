@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Officer Wipes Tears After Saving Baby Who Wasn’t Breathing](https://news.yahoo.com/officer-wipes-tears-saving-baby-183257376.html)
+- Sep 13 - [Joe Biden is becoming dangerous. Remove him now before it’s too late](https://news.yahoo.com/joe-biden-becoming-dangerous-remove-182245726.html)
+- Sep 13 - [Mitt Romney to retire from US Senate after wild ride through Republican politics](https://news.yahoo.com/mitt-romney-retire-us-senate-180241861.html)
 - Sep 13 - [How Laura Prepon Quietly Responded After Danny Masterson Was Accused Of Rape](https://www.yahoo.com/lifestyle/laura-prepon-quietly-responded-danny-175202894.html)
-- Sep 13 - [Loudspeaker message outside NYC migrant shelter warns new arrivals they are 'not safe here'](https://news.yahoo.com/loudspeaker-message-outside-nyc-migrant-173828672.html)
 - Sep 13 - [‘I’m Killing Me a N***er’: Maine Man Said He Wanted to Kill Any Black Person That Came Out of His Neighor’s Home, According to the DOJ. He Faces Five Years In Federal Prison](https://news.yahoo.com/m-killing-n-er-maine-173320161.html)
-- Sep 13 - [California 'Skittles Ban' Advances to Governor's Desk, Here's What It Means for Consumers](https://www.yahoo.com/lifestyle/california-skittles-ban-advances-governors-172818534.html)
-- Sep 13 - [Ye fired the caretaker of his dilapidated Malibu beach house after forcing him to sleep on the floor, lawsuit says](https://news.yahoo.com/ye-fired-caretaker-dilapidated-malibu-163422100.html)
 <!-- feed end -->
 
 ### Onstream
