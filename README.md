@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 13 - [McDonald’s is phasing out self-serve soda stations — here’s why](https://news.yahoo.com/mcdonald-phasing-self-serve-soda-024258504.html)
+- Sep 13 - [Crimean shipyard on fire after Ukraine missile attack - Russia-installed governor](https://news.yahoo.com/ukraine-launches-missile-attack-sevastopol-022820965.html)
 - Sep 13 - [Vladimir Putin says that inflation in Russia is making it 'practically impossible' for businesses to plan](https://finance.yahoo.com/news/vladimir-putin-says-inflation-russia-020206878.html)
+- Sep 13 - [Arizona resident's new truck stolen, disassembled in less than 24 hours: 'They’re not messing around'](https://news.yahoo.com/arizona-residents-truck-stolen-disassembled-012605930.html)
 - Sep 13 - [Virginia Democrat in key state House race calls sharing of pornographic videos ‘the worst gutter politics’](https://news.yahoo.com/virginia-democrat-key-state-house-184624439.html)
-- Sep 13 - [Boebert escorted out of Denver theater during ‘Beetlejuice’ performance: report](https://news.yahoo.com/boebert-escorted-denver-theater-during-002453618.html)
-- Sep 12 - [Georgia election case prosecutors cite fairness in urging 1 trial for Trump and 18 other defendants](https://news.yahoo.com/prosecutors-georgia-election-case-continue-235042387.html)
 <!-- feed end -->
 
 ### Onstream
