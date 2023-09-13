@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Suspect taken into custody following UNC campus lockdown](https://news.yahoo.com/suspect-taken-custody-following-unc-202452886.html)
-- Sep 13 - [Arkansas lawmakers advance plan to shield Gov. Sarah Huckabee Sanders' travel, security records](https://news.yahoo.com/arkansas-lawmakers-advance-plan-shield-193930060.html)
-- Sep 13 - [Trump's 215-Pound Weight Mocked On TikTok — He Avoids Alcohol And Pizza Dough But Loves McDonald's Quarter Pounders And Reportedly Drinks 12 Cans Of Diet Coke Per Day](https://finance.yahoo.com/news/trumps-215-pound-weight-mocked-192252501.html)
-- Sep 13 - [Whoopi Goldberg Saves 'The View' After Matthew McConaughey and Joy Behar's Heated Exchange](https://www.yahoo.com/lifestyle/whoopi-goldberg-saves-view-matthew-191400063.html)
-- Sep 13 - [Ex-Trump attorney admits statements about 2020 election were false and is censured by judge](https://news.yahoo.com/ex-trump-attorney-admits-statements-190130036.html)
+- Sep 13 - [Man is accused of holding girlfriend captive in university dorm for days](https://news.yahoo.com/man-accused-holding-girlfriend-captive-212847222.html)
+- Sep 13 - [Airlines slash outlooks, Las Vegas outage, 3M: Top Stories](https://finance.yahoo.com/video/airlines-slash-outlooks-las-vegas-212157053.html)
+- Sep 13 - [People Are Sharing The Scams That Have Become So Normalized, We Don't Even Realize They're Scams Anymore](https://www.yahoo.com/lifestyle/people-sharing-scams-become-normalized-211602830.html)
+- Sep 13 - [Attack on Russian warships at a Black Sea naval base shows Ukraine's big offensive is more than meets the eye and making Crimea 'untenable' for Moscow's forces](https://news.yahoo.com/attack-russian-warships-black-sea-202957637.html)
+- Sep 13 - [Republicans laughed at Trump behind his back after he rambled during a Senate luncheon, according to Mitt Romney's new tell-all book](https://news.yahoo.com/republicans-laughed-trump-behind-back-202915070.html)
 <!-- feed end -->
 
 ### Onstream
