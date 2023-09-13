@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Nicolle Wallace Floored By Tommy Tuberville's Latest 'Profound, Embarrassing Ignorance'](https://news.yahoo.com/nicolle-wallace-floored-tommy-tubervilles-130559734.html)
+- Sep 13 - [‘It Was Just a Stupid Act’: White Massachusetts Teen Accused of Racist Attempted Drowning of Black Boy Released on Bond; Attorneys Argue It Was ‘Horseplay’](https://news.yahoo.com/just-stupid-act-white-massachusetts-130000233.html)
 - Sep 13 - [Escaped inmate Danelo Cavalcante captured in Pennsylvania, authorities say: Live updates](https://news.yahoo.com/escaped-inmate-danelo-cavalcante-captured-124200815.html)
+- Sep 13 - [Mysterious tremors on the moon have been traced back to an unexpected source](https://news.yahoo.com/mysterious-tremors-moon-traced-back-123042834.html)
 - Sep 13 - [Ford just updated its logo for the first time in decades](https://www.autoblog.com/2023/09/13/ford-blue-oval-logo-emblem-redesigned/)
-- Sep 13 - [Russia will defeat 'evil' in Ukraine -Kim](https://news.yahoo.com/russia-defeat-evil-ukraine-kim-120757589.html)
-- Sep 13 - [‘Don’t screw up your life with an Airbnb’: Dave Ramsey didn’t mince words when this North Carolina woman floated the idea of refinancing her home to buy a vacation rental — here’s why](https://finance.yahoo.com/news/don-t-screw-life-airbnb-120000486.html)
-- Sep 13 - [Ukraine's dramatic strikes on Crimea appear to have hit a submarine and a landing craft, setting them ablaze](https://news.yahoo.com/ukraines-dramatic-strikes-crimea-appear-113138864.html)
 <!-- feed end -->
 
 ### Onstream
