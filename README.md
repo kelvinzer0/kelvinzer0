@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [CNN's Abby Phillip Shuts Down Matt Gaetz Twice In A Minute, And It's Double The Fun](https://news.yahoo.com/cnns-abby-phillip-shuts-down-160700326.html)
-- Sep 13 - [Researcher shows purported "non-human" beings at UFO hearing](https://news.yahoo.com/researcher-shows-purported-non-human-155000945.html)
-- Sep 13 - [The Expected Social Security Raise for 2024 Just Got Bigger](https://www.barrons.com/articles/social-security-cola-increase-ed911e7?siteid=yhoof2&yptr=yahoo)
-- Sep 13 - [Wisconsin Republican leader asks former state Supreme Court justices to review impeachment](https://news.yahoo.com/wisconsin-republican-leader-asks-former-150614386.html)
-- Sep 13 - [2024 Ford F-150 prices revealed: Here's what every trim level costs](https://www.autoblog.com/2023/09/13/2024-ford-f-150-pricing-revealed-configurator-opens/)
+- Sep 13 - [How Laura Prepon Quietly Responded After Danny Masterson Was Accused Of Rape](https://www.yahoo.com/lifestyle/laura-prepon-quietly-responded-danny-175202894.html)
+- Sep 13 - [Loudspeaker message outside NYC migrant shelter warns new arrivals they are 'not safe here'](https://news.yahoo.com/loudspeaker-message-outside-nyc-migrant-173828672.html)
+- Sep 13 - [‘I’m Killing Me a N***er’: Maine Man Said He Wanted to Kill Any Black Person That Came Out of His Neighor’s Home, According to the DOJ. He Faces Five Years In Federal Prison](https://news.yahoo.com/m-killing-n-er-maine-173320161.html)
+- Sep 13 - [California 'Skittles Ban' Advances to Governor's Desk, Here's What It Means for Consumers](https://www.yahoo.com/lifestyle/california-skittles-ban-advances-governors-172818534.html)
+- Sep 13 - [Ye fired the caretaker of his dilapidated Malibu beach house after forcing him to sleep on the floor, lawsuit says](https://news.yahoo.com/ye-fired-caretaker-dilapidated-malibu-163422100.html)
 <!-- feed end -->
 
 ### Onstream
