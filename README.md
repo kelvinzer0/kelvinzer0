@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Newsom says California will intervene in court case blocking San Francisco from clearing encampments](https://news.yahoo.com/newsom-says-california-intervene-court-032458790.html)
 - Sep 13 - [McDonald’s is phasing out self-serve soda stations — here’s why](https://news.yahoo.com/mcdonald-phasing-self-serve-soda-024258504.html)
-- Sep 13 - [Crimean shipyard on fire after Ukraine missile attack - Russia-installed governor](https://news.yahoo.com/ukraine-launches-missile-attack-sevastopol-022820965.html)
+- Sep 13 - [Russia says Crimean shipyard on fire, two ships damaged in Ukraine missile attack](https://news.yahoo.com/ukraine-launches-missile-attack-sevastopol-022820965.html)
 - Sep 13 - [Vladimir Putin says that inflation in Russia is making it 'practically impossible' for businesses to plan](https://finance.yahoo.com/news/vladimir-putin-says-inflation-russia-020206878.html)
 - Sep 13 - [Arizona resident's new truck stolen, disassembled in less than 24 hours: 'They’re not messing around'](https://news.yahoo.com/arizona-residents-truck-stolen-disassembled-012605930.html)
-- Sep 13 - [Virginia Democrat in key state House race calls sharing of pornographic videos ‘the worst gutter politics’](https://news.yahoo.com/virginia-democrat-key-state-house-184624439.html)
 <!-- feed end -->
 
 ### Onstream
