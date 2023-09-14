@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Trump Turns New York AG Case Against Judge](https://news.yahoo.com/trump-turns-york-ag-case-195104129.html)
+- Sep 14 - [A man laughed when a Spanish TV reporter confronted him for touching her while she was live on air. Now he's been arrested.](https://news.yahoo.com/man-laughed-spanish-tv-reporter-205704609.html)
+- Sep 14 - [Arkansas Gov. Sarah Huckabee Sanders signs law restricting release of her travel, security records](https://news.yahoo.com/arkansas-gov-sarah-huckabee-sanders-195225485.html)
+- Sep 14 - [Trump's New York Fraud Trial in Limbo After His Legal Gambit Works](https://news.yahoo.com/trump-turns-york-ag-case-195104129.html)
+- Sep 14 - [Philadelphia teacher's suspicious suicide crime scene was cleaned up before police arrived with search warrant](https://news.yahoo.com/philadelphia-teachers-suspicious-suicide-crime-193019703.html)
 - Sep 14 - [5 arrested after discovery of woman’s body in trunk leads to “house of horrors” in Gwinnett County](https://news.yahoo.com/5-arrested-discovery-body-trunk-160030296.html)
-- Sep 14 - [NASA makes jaw-dropping announcement about new alien evidence](https://www.thestreet.com/technology/nasa-jaw-dropping-announcement-about-new-alien-evidence?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Sep 14 - [Suburban Chicago tent collapse injures at least 26, including 5 seriously, police say](https://news.yahoo.com/police-suburban-chicago-tent-collapse-185216693.html)
-- Sep 14 - [Denny’s Waitress Who Refused to Serve Black Truckers Fired; Newly Released 911 Audio Reveals Manager Called Men ‘Unruly,’ Accused Them of ‘Harassing’ Staff](https://news.yahoo.com/denny-waitress-refused-serve-black-183510253.html)
 <!-- feed end -->
 
 ### Onstream
