@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 14 - [Russia covered up a pilot's attempt to shoot down a NATO aircraft near Ukraine, blaming it on a malfunction, report says](https://news.yahoo.com/russia-covered-pilots-attempt-shoot-093027800.html)
 - Sep 14 - [Mitt Romney Names The Republican Senator He Disrespects Most](https://news.yahoo.com/mitt-romney-names-republican-senator-062628307.html)
 - Sep 14 - [Putin may just have made his greatest blunder yet](https://news.yahoo.com/putin-may-just-made-greatest-060000646.html)
 - Sep 14 - [Nancy Pelosi Uses Unforgettable Hand Gesture To Describe Kevin McCarthy](https://news.yahoo.com/nancy-pelosi-uses-unforgettable-hand-041943158.html)
-- Sep 14 - [Buffalo Bills reporter apologizes after hot mic catches her talking about Stefon Diggs](https://sports.yahoo.com/buffalo-bills-reporter-apologizes-hot-025350491.html)
-- Sep 14 - [Illegal immigrant charged with murder released by New York police because of paperwork delay: Reports](https://news.yahoo.com/illegal-immigrant-charged-murder-released-021024636.html)
+- Sep 14 - [North Korea's Kim Jong Un checks out Putin's ride at Russia summit](https://news.yahoo.com/north-koreas-kim-jong-un-025410331.html)
 <!-- feed end -->
 
 ### Onstream
