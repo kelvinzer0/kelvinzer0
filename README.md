@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [In April, Trump said his private-jet LLC was worth no more than $1,001. Then in July, he said it was worth up to $25 million. Why?](https://finance.yahoo.com/news/april-trump-said-private-jet-172603696.html)
-- Sep 14 - [She danced with Putin at her wedding. Now the former Austrian foreign minister has moved to Russia](https://news.yahoo.com/she-danced-putin-her-wedding-170855322.html)
-- Sep 14 - [Judge severs Trump's Georgia election interference case, and 16 others, from trial starting in October](https://www.yahoo.com/gma/judge-severs-trumps-georgia-election-135000988.html)
 - Sep 14 - [5 arrested after discovery of woman’s body in trunk leads to “house of horrors” in Gwinnett County](https://news.yahoo.com/5-arrested-discovery-body-trunk-160030296.html)
-- Sep 14 - [X-rated party allegations emerge in Nantucket yacht party that landed retired doctor in jail](https://news.yahoo.com/x-rated-party-allegations-emerge-154256354.html)
+- Sep 14 - [NASA makes jaw-dropping announcement about new alien evidence](https://www.thestreet.com/technology/nasa-jaw-dropping-announcement-about-new-alien-evidence?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Sep 14 - [Denny’s Waitress Who Refused to Serve Black Truckers Fired; Newly Released 911 Audio Reveals Manager Called Men ‘Unruly,’ Accused Them of ‘Harassing’ Staff](https://news.yahoo.com/denny-waitress-refused-serve-black-183510253.html)
+- Sep 14 - [In April, Trump said his private-jet LLC was worth no more than $1,001. Then in July, he said it was worth up to $25 million. Why?](https://news.yahoo.com/april-trump-said-private-jet-172603696.html)
+- Sep 14 - [She danced with Putin at her wedding. Now the former Austrian foreign minister has moved to Russia](https://news.yahoo.com/she-danced-putin-her-wedding-170855322.html)
 <!-- feed end -->
 
 ### Onstream
