@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 14 - ['I would rather clock out eternally': This Gen Z TikToker quit her office job and proclaimed she's happier struggling to pay bills than being a ‘corporate drone’ — here's why](https://finance.yahoo.com/news/rather-clock-eternally-gen-z-114500879.html)
 - Sep 14 - [Alexandria Ocasio-Cortez Expertly Mocks Nancy Mace On House Floor](https://www.yahoo.com/entertainment/alexandria-ocasio-cortez-expertly-mocks-113333264.html)
 - Sep 14 - [Chinese warships are menacing Taiwan. Our carriers are at sea, but crippled by incompetence](https://news.yahoo.com/chinese-warships-menacing-taiwan-carriers-111935589.html)
-- Sep 14 - [Ukraine destroys state-of-the-art Russian missile system in Crimea](https://news.yahoo.com/ukraine-destroys-state-art-russian-105200864.html)
-- Sep 14 - [Gigacasting 2.0: Tesla reinvents carmaking with quiet breakthrough](https://news.yahoo.com/gigacasting-2-0-tesla-reinvents-100727303.html)
-- Sep 14 - [Media show Russian Triumph system in Crimea, allegedly destroyed in morning](https://news.yahoo.com/media-show-russian-triumph-system-093528282.html)
+- Sep 14 - [Apple's new iPhone 15 is an underwhelming 'slap in the face,' say disappointed fans](https://news.yahoo.com/apples-iphone-15-underwhelming-slap-110257426.html)
+- Sep 14 - [Video shows Lauren Boebert giving the middle finger to an usher after being kicked out of a performance of 'Beetlejuice'](https://news.yahoo.com/video-shows-lauren-boebert-giving-105548853.html)
 <!-- feed end -->
 
 ### Onstream
