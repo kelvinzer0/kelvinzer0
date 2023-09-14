@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 14 - [Judge severs Trump's Georgia election interference case, and 16 others, from trial starting in October](https://www.yahoo.com/gma/judge-severs-trumps-georgia-election-135000988.html)
-- Sep 14 - [Artists pay tribute to Mahsa Amini, one year on](https://news.yahoo.com/artists-pay-tribute-mahsa-amini-154331027.html)
+- Sep 14 - [5 arrested after discovery of body in trunk leads to “house of horrors” in Gwinnett County](https://news.yahoo.com/5-arrested-discovery-body-trunk-160030296.html)
 - Sep 14 - [Man arrested after appearing to grope female reporter on live TV](https://news.yahoo.com/man-arrested-appearing-grope-female-151753641.html)
 - Sep 14 - [Elusive baby creature spotted in California creek for first time in 160 years, video shows](https://news.yahoo.com/elusive-baby-creature-spotted-california-150906545.html)
-- Sep 14 - [Escaped prisoner says searchers almost stepped on him multiple times](https://news.yahoo.com/escaped-prisoner-says-searchers-almost-145229064.html)
+- Sep 14 - [MPD: Woman drives off with $1,000 in stolen groceries, smiles for camera](https://news.yahoo.com/mpd-woman-drives-off-1-150029121.html)
 <!-- feed end -->
 
 ### Onstream
