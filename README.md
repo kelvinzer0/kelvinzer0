@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 14 - [Trump Turns New York AG Case Against Judge](https://news.yahoo.com/trump-turns-york-ag-case-195104129.html)
 - Sep 14 - [5 arrested after discovery of woman’s body in trunk leads to “house of horrors” in Gwinnett County](https://news.yahoo.com/5-arrested-discovery-body-trunk-160030296.html)
 - Sep 14 - [NASA makes jaw-dropping announcement about new alien evidence](https://www.thestreet.com/technology/nasa-jaw-dropping-announcement-about-new-alien-evidence?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Sep 14 - [Suburban Chicago tent collapse injures at least 26, including 5 seriously, police say](https://news.yahoo.com/police-suburban-chicago-tent-collapse-185216693.html)
 - Sep 14 - [Denny’s Waitress Who Refused to Serve Black Truckers Fired; Newly Released 911 Audio Reveals Manager Called Men ‘Unruly,’ Accused Them of ‘Harassing’ Staff](https://news.yahoo.com/denny-waitress-refused-serve-black-183510253.html)
-- Sep 14 - [In April, Trump said his private-jet LLC was worth no more than $1,001. Then in July, he said it was worth up to $25 million. Why?](https://news.yahoo.com/april-trump-said-private-jet-172603696.html)
-- Sep 14 - [She danced with Putin at her wedding. Now the former Austrian foreign minister has moved to Russia](https://news.yahoo.com/she-danced-putin-her-wedding-170855322.html)
 <!-- feed end -->
 
 ### Onstream
