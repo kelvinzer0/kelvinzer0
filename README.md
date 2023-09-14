@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 14 - [Tuohys Say There Was 'Never an Intent to Adopt' Michael Oher, Claim He Got 20% Share of Profits in New Filing](https://www.yahoo.com/entertainment/tuohys-never-intent-adopt-michael-215908379.html)
+- Sep 14 - [Texas Official Who Voted to Police Highway Travel for Abortion Does a 180](https://news.yahoo.com/texas-official-voted-police-highway-211500645.html)
 - Sep 14 - [A man laughed when a Spanish TV reporter confronted him for touching her while she was live on air. Now he's been arrested.](https://news.yahoo.com/man-laughed-spanish-tv-reporter-205704609.html)
-- Sep 14 - [Arkansas Gov. Sarah Huckabee Sanders signs law restricting release of her travel, security records](https://news.yahoo.com/arkansas-gov-sarah-huckabee-sanders-195225485.html)
-- Sep 14 - [Trump's New York Fraud Trial in Limbo After His Legal Gambit Works](https://news.yahoo.com/trump-turns-york-ag-case-195104129.html)
+- Sep 14 - [Trump’s New York Fraud Trial in Limbo After His Legal Gambit Works](https://news.yahoo.com/trump-turns-york-ag-case-195104129.html)
 - Sep 14 - [Philadelphia teacher's suspicious suicide crime scene was cleaned up before police arrived with search warrant](https://news.yahoo.com/philadelphia-teachers-suspicious-suicide-crime-193019703.html)
-- Sep 14 - [5 arrested after discovery of woman’s body in trunk leads to “house of horrors” in Gwinnett County](https://news.yahoo.com/5-arrested-discovery-body-trunk-160030296.html)
 <!-- feed end -->
 
 ### Onstream
