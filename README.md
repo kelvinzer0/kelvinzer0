@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 14 - [Trump won't be tried with Powell and Chesebro next month in Georgia election case](https://news.yahoo.com/trump-wont-tried-powell-chesebro-134536664.html)
 - Sep 14 - ['I would rather clock out eternally': This Gen Z TikToker quit her office job and proclaimed she's happier struggling to pay bills than being a ‘corporate drone’ — here's why](https://finance.yahoo.com/news/rather-clock-eternally-gen-z-114500879.html)
 - Sep 14 - [Alexandria Ocasio-Cortez Expertly Mocks Nancy Mace On House Floor](https://www.yahoo.com/entertainment/alexandria-ocasio-cortez-expertly-mocks-113333264.html)
 - Sep 14 - [Chinese warships are menacing Taiwan. Our carriers are at sea, but crippled by incompetence](https://news.yahoo.com/chinese-warships-menacing-taiwan-carriers-111935589.html)
 - Sep 14 - [Apple's new iPhone 15 is an underwhelming 'slap in the face,' say disappointed fans](https://news.yahoo.com/apples-iphone-15-underwhelming-slap-110257426.html)
-- Sep 14 - [Video shows Lauren Boebert giving the middle finger to an usher after being kicked out of a performance of 'Beetlejuice'](https://news.yahoo.com/video-shows-lauren-boebert-giving-105548853.html)
 <!-- feed end -->
 
 ### Onstream
