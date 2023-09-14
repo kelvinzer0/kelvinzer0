@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 14 - [Scientists found a massive lithium deposit inside an ancient US volcano that could be a game-changer for American clean energy but spell disaster for Native Americans](https://news.yahoo.com/scientists-found-massive-lithium-deposit-031154768.html)
 - Sep 14 - [Buffalo Bills reporter apologizes after hot mic catches her talking about Stefon Diggs](https://sports.yahoo.com/buffalo-bills-reporter-apologizes-hot-025350491.html)
+- Sep 14 - [Illegal immigrant charged with murder released by New York police because of paperwork delay: Reports](https://news.yahoo.com/illegal-immigrant-charged-murder-released-021024636.html)
 - Sep 14 - [Family tied up, held at gunpoint during alleged home robbery in California](https://news.yahoo.com/family-tied-held-gunpoint-during-013903487.html)
-- Sep 14 - [Return-to-office policies are driving people to sell their homes - even at a loss](https://finance.yahoo.com/news/return-office-policies-driving-people-003712190.html)
 - Sep 13 - ['Seeing is believing': Country Garden's Malaysia project in spotlight](https://news.yahoo.com/seeing-believing-country-gardens-malaysia-230714624.html)
-- Sep 13 - [Appeals court to quickly consider Trump's presidential immunity claim in sex abuse case](https://news.yahoo.com/appeals-court-quickly-consider-trumps-224929553.html)
 <!-- feed end -->
 
 ### Onstream
