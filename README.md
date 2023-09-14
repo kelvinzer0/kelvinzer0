@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 14 - [Judge severs Trump's Georgia election interference case, and 16 others, from trial starting in October](https://www.yahoo.com/gma/judge-severs-trumps-georgia-election-135000988.html)
-- Sep 14 - [Neo-Nazis Gloat as Florida Becomes a Magnet for Hate](https://news.yahoo.com/neo-nazis-gloat-florida-becomes-140000174.html)
-- Sep 14 - [Alex Jones spent over $93,000 in July. Sandy Hook families who sued him have yet to see a dime](https://news.yahoo.com/alex-jones-spent-over-93-135347825.html)
-- Sep 14 - [Stripper Tries Seducing Cop After Hit And Run](https://news.yahoo.com/stripper-tries-seducing-cop-hit-130000152.html)
-- Sep 14 - [California landlords threw a cocktail party to celebrate the return of evictions. It ended in a fistfight.](https://news.yahoo.com/california-landlords-threw-cocktail-party-124727285.html)
+- Sep 14 - [Artists pay tribute to Mahsa Amini, one year on](https://news.yahoo.com/artists-pay-tribute-mahsa-amini-154331027.html)
+- Sep 14 - [Man arrested after appearing to grope female reporter on live TV](https://news.yahoo.com/man-arrested-appearing-grope-female-151753641.html)
+- Sep 14 - [Elusive baby creature spotted in California creek for first time in 160 years, video shows](https://news.yahoo.com/elusive-baby-creature-spotted-california-150906545.html)
+- Sep 14 - [Escaped prisoner says searchers almost stepped on him multiple times](https://news.yahoo.com/escaped-prisoner-says-searchers-almost-145229064.html)
 <!-- feed end -->
 
 ### Onstream
