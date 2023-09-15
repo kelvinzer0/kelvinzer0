@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 15 - [Ukrainian commander says he'd be dead if he fought exactly how the US and its allies taught him](https://news.yahoo.com/ukrainian-commander-says-hed-dead-120352123.html)
 - Sep 15 - ['An economic divide that is widening': Almost a third of Americans earning $150,000 a year or more say they're living paycheck to paycheck and many rely on credit cards to close the gap](https://finance.yahoo.com/news/economic-divide-widening-almost-third-120000620.html)
+- Sep 15 - [California cops arrested a man on a drunken-driving charge, even though he was riding a horse](https://news.yahoo.com/california-cops-arrested-man-drink-112546369.html)
 - Sep 15 - [Lauren Boebert denied vaping at the 'Beetlejuice' performance she was kicked out of. Video clearly shows she did.](https://news.yahoo.com/lauren-boebert-denied-vaping-beetlejuice-103226248.html)
 - Sep 15 - [Scientists are sounding the alarm about a dangerous problem that will soon affect 2 billion people — here’s what to know](https://news.yahoo.com/scientists-sounding-alarm-dangerous-problem-123000792.html)
-- Sep 15 - [Famed investor Peter Schiff says that married women in the workforce are partly to blame for today's housing crisis — and he got blasted for it. Here's his explanation](https://finance.yahoo.com/news/famed-investor-peter-schiff-just-120000071.html)
 <!-- feed end -->
 
 ### Onstream
