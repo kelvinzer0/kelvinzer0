@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [California lawmakers approve bills to raise worker pay](https://news.yahoo.com/california-lawmakers-approve-bills-raise-223543400.html)
+- Sep 15 - [Louisiana island town to repeal ordinance, let driver fly vulgar anti-Biden flag](https://news.yahoo.com/louisiana-island-town-repeal-ordinance-212036339.html)
+- Sep 15 - [A gold miner found a mysterious grapefruit-sized fur ball. It turned out to be a 'perfectly preserved' 30,000-year-old squirrel.](https://news.yahoo.com/gold-miner-found-mysterious-grapefruit-171828048.html)
+- Sep 15 - [Michigan man cleared of killing 2 hunters to get $1 million for wrongful convictions](https://news.yahoo.com/michigan-man-cleared-killing-2-204755737.html)
 - Sep 15 - [Astronauts explain why no human has visited the moon in 50 years — and the reasons why are depressing](https://news.yahoo.com/astronauts-explain-why-nobody-visited-214006068.html)
-- Sep 15 - [Outrage boils in Seattle and in India over death of a student and an officer's callous remarks](https://news.yahoo.com/outrage-boils-seattle-india-over-203316828.html)
-- Sep 15 - [Prosecutors in DC election case seek order barring Trump's 'inflammatory,' 'intimidating' comments](https://news.yahoo.com/prosecutors-dc-election-case-concerned-200026521.html)
-- Sep 15 - [A Jan. 6 rioter was convicted and sentenced in secret. No one will say why](https://news.yahoo.com/jan-6-rioter-convicted-sentenced-194458771.html)
-- Sep 15 - [A woman is defending herself after being called a 'cringe millennial' for her overjoyed reaction to IHOP pancakes, while also addressing allegations of racism for rebuking a critic](https://www.yahoo.com/entertainment/woman-defending-herself-being-called-194243543.html)
 <!-- feed end -->
 
 ### Onstream
