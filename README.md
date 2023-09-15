@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Legal Experts Have A Field Day With Trump's Megyn Kelly Interview](https://news.yahoo.com/legal-experts-field-day-trumps-231951955.html)
+- Sep 14 - [‘I still hear him yelling in my ears,’ Group accused of kidnapping Las Vegas teen, stabbing him at Lake Mead](https://news.yahoo.com/still-hear-him-yelling-ears-231046336.html)
 - Sep 14 - [Texas Official Who Voted to Police Highway Travel for Abortion Does a 180](https://news.yahoo.com/texas-official-voted-police-highway-211500645.html)
 - Sep 14 - [A man laughed when a Spanish TV reporter confronted him for touching her while she was live on air. Now he's been arrested.](https://news.yahoo.com/man-laughed-spanish-tv-reporter-205704609.html)
-- Sep 14 - [Corrections officer gets no jail time after wife's fatal fall from parking garage](https://news.yahoo.com/corrections-officer-gets-no-jail-204643993.html)
+- Sep 14 - [Arkansas Gov. Sarah Huckabee Sanders signs law restricting release of her travel, security records](https://news.yahoo.com/arkansas-gov-sarah-huckabee-sanders-195225485.html)
 - Sep 14 - [Trump’s New York Fraud Trial in Limbo After His Legal Gambit Works](https://news.yahoo.com/trump-turns-york-ag-case-195104129.html)
 <!-- feed end -->
 
