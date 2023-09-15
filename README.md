@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [As cancer rises in young people, man, 35, details symptoms he ignored: 'Can't be me'](https://news.yahoo.com/cancer-rises-young-people-man-020602603.html)
+- Sep 14 - [California man's leisurely stroll into home to allegedly steal Hermes blankets worth $5K each caught on video](https://news.yahoo.com/california-mans-leisurely-stroll-home-233144939.html)
 - Sep 14 - [‘I still hear him yelling in my ears,’ Group accused of kidnapping Las Vegas teen, stabbing him at Lake Mead](https://news.yahoo.com/still-hear-him-yelling-ears-231046336.html)
 - Sep 14 - [Texas Official Who Voted to Police Highway Travel for Abortion Does a 180](https://news.yahoo.com/texas-official-voted-police-highway-211500645.html)
 - Sep 14 - [A man laughed when a Spanish TV reporter confronted him for touching her while she was live on air. Now he's been arrested.](https://news.yahoo.com/man-laughed-spanish-tv-reporter-205704609.html)
-- Sep 14 - [Arkansas Gov. Sarah Huckabee Sanders signs law restricting release of her travel, security records](https://news.yahoo.com/arkansas-gov-sarah-huckabee-sanders-195225485.html)
-- Sep 14 - [Trump’s New York Fraud Trial in Limbo After His Legal Gambit Works](https://news.yahoo.com/trump-turns-york-ag-case-195104129.html)
 <!-- feed end -->
 
 ### Onstream
