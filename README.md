@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - ['Malignant' Trump Torched By His Former Attorney Who Is Predicted To Flip](https://news.yahoo.com/malignant-trump-torched-former-attorney-100216937.html)
 - Sep 15 - [White Mass. teen accused of trying to drown Black boy is charged with attempted murder — but not a hate crime. Why?](https://news.yahoo.com/white-mass-teen-john-sheeran-racist-pond-attack-black-hate-crime-090022801.html)
 - Sep 15 - [Ex-Prosecutor Explains Why Latest Georgia Case Development Will 'Devastate' Trump](https://news.yahoo.com/ex-prosecutor-explains-why-latest-083647033.html)
-- Sep 15 - [Secret records: Government says Marine's adoption of Afghan orphan seen as abduction, must be undone](https://news.yahoo.com/secret-records-government-says-marines-041840667.html)
-- Sep 15 - [Florida registered sex offender posed as teenager's friend's father when he picked girl up and met her mother](https://news.yahoo.com/florida-registered-sex-offender-posed-015017916.html)
-- Sep 14 - [California man's leisurely stroll into home to allegedly steal Hermes blankets worth $5K each caught on video](https://news.yahoo.com/california-mans-leisurely-stroll-home-233144939.html)
+- Sep 15 - [Exclusive-TSMC tells vendors to delay chip equipment deliveries - sources](https://finance.yahoo.com/news/exclusive-tsmc-tells-vendors-delay-065209458.html)
+- Sep 15 - [Trump on having to comply with subpoena: 'I know this. I don't even know that'](https://news.yahoo.com/trump-having-comply-subpoena-know-031808118.html)
 <!-- feed end -->
 
 ### Onstream
