@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [People Are Sharing Their Wildest Coworker Stories And Half Of These Got Real Disturbing Real Fast](https://www.yahoo.com/lifestyle/people-sharing-wildest-coworker-stories-191602620.html)
+- Sep 15 - [Marc Benioff drops a bomb after calling Salesforce workers back to their desks: ‘I don’t work well in an office—it just doesn’t work with my personality’](https://finance.yahoo.com/news/marc-benioff-drops-bomb-calling-173224032.html)
 - Sep 15 - [‘Putin’s Attack Dog’ Kadyrov Reportedly in Critical Condition](https://news.yahoo.com/putin-attack-dog-kadyrov-reportedly-172212726.html)
+- Sep 15 - [Lottery player scores lucky ticket at Publix in Florida. Prize left him ‘trembling’](https://news.yahoo.com/lottery-player-scores-lucky-ticket-170017104.html)
 - Sep 15 - [Jared Kushner's Father Just Made This Shady Financial Move That Has Everyone Questioning His Pardon From Donald Trump](https://www.yahoo.com/entertainment/jared-kushners-father-just-made-165203146.html)
-- Sep 15 - [GM CEO Twists Herself Into Pretzel Trying to Defend Outlandish Salary](https://news.yahoo.com/gm-ceo-twists-herself-pretzel-163615932.html)
-- Sep 15 - [A member of the secret panel studying Wisconsin Supreme Court justice's impeachment backed her rival](https://news.yahoo.com/wisconsin-impeachment-review-panel-includes-162345059.html)
-- Sep 15 - [Why Dusty Military Boneyards Have Become a Purgatory for Expensive U.S. Aircraft](https://news.yahoo.com/why-dusty-military-boneyards-become-150500725.html)
 <!-- feed end -->
 
 ### Onstream
