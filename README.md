@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [Wisconsin impeachment review panel includes former GOP speaker, conservative justice](https://news.yahoo.com/wisconsin-impeachment-review-panel-includes-162345059.html)
 - Sep 15 - [Sara Sharif found fully clothed under a blanket in a bunk bed, court hears](https://news.yahoo.com/sara-sharif-found-fully-clothed-152005974.html)
 - Sep 15 - [Why Dusty Military Boneyards Have Become a Purgatory for Expensive U.S. Aircraft](https://news.yahoo.com/why-dusty-military-boneyards-become-150500725.html)
+- Sep 15 - [Video shows Russian soldier attempting to get children to detonate stun grenade, then setting it off himself](https://news.yahoo.com/video-shows-russian-soldier-attempting-150000390.html)
 - Sep 15 - [2 teen girls arrested for assaulting 61-year-old man, stealing his car in Chicago Chinatown](https://news.yahoo.com/2-teen-girls-arrested-assaulting-145621974.html)
-- Sep 15 - [Joe Biden Has A New Nickname For Donald Trump And It's Historic](https://news.yahoo.com/joe-biden-nickname-donald-trump-145024738.html)
-- Sep 15 - ["I made it very clear at the outset": Judge stops Eastman trial to slam Steve Bannon for live stream](https://news.yahoo.com/made-very-clear-outset-judge-140121039.html)
 <!-- feed end -->
 
 ### Onstream
