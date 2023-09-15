@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Ukrainian soldier says US-made Bradley fighting vehicles are 'priceless' in nighttime assaults, offering visibility better than in daylight](https://news.yahoo.com/ukrainian-soldier-says-us-made-172638955.html)
 - Sep 15 - [‘Putin’s Attack Dog’ Kadyrov Reportedly in Critical Condition](https://news.yahoo.com/putin-attack-dog-kadyrov-reportedly-172212726.html)
+- Sep 15 - [Jared Kushner's Father Just Made This Shady Financial Move That Has Everyone Questioning His Pardon From Donald Trump](https://www.yahoo.com/entertainment/jared-kushners-father-just-made-165203146.html)
 - Sep 15 - [GM CEO Twists Herself Into Pretzel Trying to Defend Outlandish Salary](https://news.yahoo.com/gm-ceo-twists-herself-pretzel-163615932.html)
 - Sep 15 - [A member of the secret panel studying Wisconsin Supreme Court justice's impeachment backed her rival](https://news.yahoo.com/wisconsin-impeachment-review-panel-includes-162345059.html)
 - Sep 15 - [Why Dusty Military Boneyards Have Become a Purgatory for Expensive U.S. Aircraft](https://news.yahoo.com/why-dusty-military-boneyards-become-150500725.html)
