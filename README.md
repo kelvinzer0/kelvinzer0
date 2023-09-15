@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [Ukrainian commander says he'd be dead if he fought exactly how the US and its allies taught him](https://news.yahoo.com/ukrainian-commander-says-hed-dead-120352123.html)
+- Sep 15 - ['An economic divide that is widening': Almost a third of Americans earning $150,000 a year or more say they're living paycheck to paycheck and many rely on credit cards to close the gap](https://finance.yahoo.com/news/economic-divide-widening-almost-third-120000620.html)
+- Sep 15 - [Lauren Boebert denied vaping at the 'Beetlejuice' performance she was kicked out of. Video clearly shows she did.](https://news.yahoo.com/lauren-boebert-denied-vaping-beetlejuice-103226248.html)
+- Sep 15 - [Scientists are sounding the alarm about a dangerous problem that will soon affect 2 billion people — here’s what to know](https://news.yahoo.com/scientists-sounding-alarm-dangerous-problem-123000792.html)
 - Sep 15 - [Famed investor Peter Schiff says that married women in the workforce are partly to blame for today's housing crisis — and he got blasted for it. Here's his explanation](https://finance.yahoo.com/news/famed-investor-peter-schiff-just-120000071.html)
-- Sep 15 - [Apple wants to pay you for your old iPhones and MacBooks — and some items are worth over $700](https://news.yahoo.com/apple-wants-pay-old-iphones-101500905.html)
-- Sep 15 - ['Malignant' Trump Torched By His Former Attorney Who Is Predicted To Flip](https://news.yahoo.com/malignant-trump-torched-former-attorney-100216937.html)
-- Sep 15 - [White Mass. teen accused of trying to drown Black boy is charged with attempted murder — but not a hate crime. Why?](https://news.yahoo.com/white-mass-teen-john-sheeran-racist-pond-attack-black-hate-crime-090022801.html)
-- Sep 15 - [Ex-Prosecutor Explains Why Latest Georgia Case Development Will 'Devastate' Trump](https://news.yahoo.com/ex-prosecutor-explains-why-latest-083647033.html)
 <!-- feed end -->
 
 ### Onstream
