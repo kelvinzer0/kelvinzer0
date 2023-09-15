@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [Famed investor Peter Schiff says that married women in the workforce are partly to blame for today's housing crisis — and he got blasted for it. Here's his explanation](https://finance.yahoo.com/news/famed-investor-peter-schiff-just-120000071.html)
+- Sep 15 - [Apple wants to pay you for your old iPhones and MacBooks — and some items are worth over $700](https://news.yahoo.com/apple-wants-pay-old-iphones-101500905.html)
 - Sep 15 - ['Malignant' Trump Torched By His Former Attorney Who Is Predicted To Flip](https://news.yahoo.com/malignant-trump-torched-former-attorney-100216937.html)
 - Sep 15 - [White Mass. teen accused of trying to drown Black boy is charged with attempted murder — but not a hate crime. Why?](https://news.yahoo.com/white-mass-teen-john-sheeran-racist-pond-attack-black-hate-crime-090022801.html)
 - Sep 15 - [Ex-Prosecutor Explains Why Latest Georgia Case Development Will 'Devastate' Trump](https://news.yahoo.com/ex-prosecutor-explains-why-latest-083647033.html)
-- Sep 15 - [Exclusive-TSMC tells vendors to delay chip equipment deliveries - sources](https://finance.yahoo.com/news/exclusive-tsmc-tells-vendors-delay-065209458.html)
-- Sep 15 - [Trump on having to comply with subpoena: 'I know this. I don't even know that'](https://news.yahoo.com/trump-having-comply-subpoena-know-031808118.html)
 <!-- feed end -->
 
 ### Onstream
