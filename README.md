@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Wisconsin impeachment review panel includes former GOP speaker, conservative justice](https://news.yahoo.com/wisconsin-impeachment-review-panel-includes-162345059.html)
-- Sep 15 - [Sara Sharif found fully clothed under a blanket in a bunk bed, court hears](https://news.yahoo.com/sara-sharif-found-fully-clothed-152005974.html)
+- Sep 15 - [Ukrainian soldier says US-made Bradley fighting vehicles are 'priceless' in nighttime assaults, offering visibility better than in daylight](https://news.yahoo.com/ukrainian-soldier-says-us-made-172638955.html)
+- Sep 15 - [‘Putin’s Attack Dog’ Kadyrov Reportedly in Critical Condition](https://news.yahoo.com/putin-attack-dog-kadyrov-reportedly-172212726.html)
+- Sep 15 - [GM CEO Twists Herself Into Pretzel Trying to Defend Outlandish Salary](https://news.yahoo.com/gm-ceo-twists-herself-pretzel-163615932.html)
+- Sep 15 - [A member of the secret panel studying Wisconsin Supreme Court justice's impeachment backed her rival](https://news.yahoo.com/wisconsin-impeachment-review-panel-includes-162345059.html)
 - Sep 15 - [Why Dusty Military Boneyards Have Become a Purgatory for Expensive U.S. Aircraft](https://news.yahoo.com/why-dusty-military-boneyards-become-150500725.html)
-- Sep 15 - [Video shows Russian soldier attempting to get children to detonate stun grenade, then setting it off himself](https://news.yahoo.com/video-shows-russian-soldier-attempting-150000390.html)
-- Sep 15 - [2 teen girls arrested for assaulting 61-year-old man, stealing his car in Chicago Chinatown](https://news.yahoo.com/2-teen-girls-arrested-assaulting-145621974.html)
 <!-- feed end -->
 
 ### Onstream
