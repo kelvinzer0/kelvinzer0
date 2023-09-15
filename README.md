@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [Astronauts explain why no human has visited the moon in 50 years — and the reasons why are depressing](https://news.yahoo.com/astronauts-explain-why-nobody-visited-214006068.html)
+- Sep 15 - [Outrage boils in Seattle and in India over death of a student and an officer's callous remarks](https://news.yahoo.com/outrage-boils-seattle-india-over-203316828.html)
 - Sep 15 - [Prosecutors in DC election case seek order barring Trump's 'inflammatory,' 'intimidating' comments](https://news.yahoo.com/prosecutors-dc-election-case-concerned-200026521.html)
 - Sep 15 - [A Jan. 6 rioter was convicted and sentenced in secret. No one will say why](https://news.yahoo.com/jan-6-rioter-convicted-sentenced-194458771.html)
 - Sep 15 - [A woman is defending herself after being called a 'cringe millennial' for her overjoyed reaction to IHOP pancakes, while also addressing allegations of racism for rebuking a critic](https://www.yahoo.com/entertainment/woman-defending-herself-being-called-194243543.html)
-- Sep 15 - [People Are Sharing Their Wildest Coworker Stories And Half Of These Got Real Disturbing Real Fast](https://www.yahoo.com/lifestyle/people-sharing-wildest-coworker-stories-191602620.html)
-- Sep 15 - [Florida pays python hunters to clear the Everglades. Ten years later, is it working?](https://news.yahoo.com/florida-pays-python-hunters-clear-185218482.html)
 <!-- feed end -->
 
 ### Onstream
