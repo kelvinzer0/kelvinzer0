@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Tense moments as grizzly bears stalk hikers in Banff](https://sports.yahoo.com/tense-moments-grizzly-bears-stalk-201441527.html)
+- Sep 16 - [‘Intense’ moments as grizzly bears stalk hikers in Banff](https://sports.yahoo.com/tense-moments-grizzly-bears-stalk-201441527.html)
 - Sep 16 - [A sad day for Texas: Acquitting Ken Paxton condones corruption, abuse of power | Opinion](https://news.yahoo.com/sad-day-texas-acquitting-ken-175140421.html)
 - Sep 16 - [Trump Warns That ‘Cognitively Impaired’ Biden Will ‘Lead Us Into World War 2’ in Confused Speech (Video)](https://www.yahoo.com/entertainment/trump-warns-cognitively-impaired-biden-172337832.html)
 - Sep 16 - [Czech protesters rally against government's pro-Western policies](https://news.yahoo.com/czech-protesters-rally-against-governments-161952611.html)
-- Sep 16 - [Lauren Boebert says she ‘fell short of values’ after Beetlejuice groping video](https://news.yahoo.com/lauren-boebert-says-she-fell-143553364.html)
+- Sep 16 - [Lauren Boebert Stays Mum on Public Groping in Video, Apologizes for Vaping](https://news.yahoo.com/lauren-boebert-stays-mum-public-154604969.html)
 <!-- feed end -->
 
 ### Onstream
