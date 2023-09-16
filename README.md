@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 16 - [Erdogan says Turkey could 'part ways' with EU if necessary](https://news.yahoo.com/turkeys-erdogan-says-country-could-103536538.html)
 - Sep 16 - [‘They left us with nothing’: This elderly couple was evicted from their home of 20 years — after their son transferred ownership. Here are 3 ways to avoid being exploited as you get older](https://finance.yahoo.com/news/left-us-nothing-elderly-couple-100000273.html)
+- Sep 16 - [It's Been A Rough Couple Of Days, So Please Enjoy These Signs That Made Me Laugh So Hard, Milk Actually Dribbled From My Nose](https://www.yahoo.com/lifestyle/rough-couple-days-please-enjoy-091603712.html)
 - Sep 16 - [Exclusive-A close encounter with the 'alien bodies' in Mexico](https://news.yahoo.com/exclusive-close-encounter-alien-bodies-070629861.html)
 - Sep 16 - [Trump Bakes A Loaf Of Nonsense With Bizarre Remarks About Grocery Store Purchases](https://news.yahoo.com/trump-bakes-loaf-nonsense-bizarre-052500102.html)
-- Sep 16 - [Eddy Grant explained his song 'Electric Avenue' to Donald Trump's lawyers in a deposition. It did not go well.](https://news.yahoo.com/eddy-grant-explained-song-electric-015729749.html)
-- Sep 15 - [Lauren Boebert Caught Fondling Date’s Genitals During Family-Friendly Musical: Video](https://news.yahoo.com/lauren-boebert-caught-fondling-date-232043134.html)
 <!-- feed end -->
 
 ### Onstream
