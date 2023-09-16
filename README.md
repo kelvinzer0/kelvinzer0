@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [California lawmakers approve bills to raise worker pay](https://news.yahoo.com/california-lawmakers-approve-bills-raise-223543400.html)
+- Sep 15 - [Trump blasts special counsel Jack Smith for seeking gag order](https://news.yahoo.com/trump-blasts-special-counsel-jack-230657542.html)
+- Sep 15 - [Kim Jong Un's Maybach Limo Seen Squeezing Into His Armored Train](https://news.yahoo.com/kim-jong-uns-maybach-limo-230627116.html)
+- Sep 15 - [Shark strands itself on Florida beach. Watch swimmers come to its rescue](https://news.yahoo.com/shark-strands-itself-florida-beach-223128794.html)
 - Sep 15 - [Louisiana island town to repeal ordinance, let driver fly vulgar anti-Biden flag](https://news.yahoo.com/louisiana-island-town-repeal-ordinance-212036339.html)
-- Sep 15 - [A gold miner found a mysterious grapefruit-sized fur ball. It turned out to be a 'perfectly preserved' 30,000-year-old squirrel.](https://news.yahoo.com/gold-miner-found-mysterious-grapefruit-171828048.html)
 - Sep 15 - [Michigan man cleared of killing 2 hunters to get $1 million for wrongful convictions](https://news.yahoo.com/michigan-man-cleared-killing-2-204755737.html)
-- Sep 15 - [Astronauts explain why no human has visited the moon in 50 years — and the reasons why are depressing](https://news.yahoo.com/astronauts-explain-why-nobody-visited-214006068.html)
 <!-- feed end -->
 
 ### Onstream
