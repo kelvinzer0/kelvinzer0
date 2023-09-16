@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 16 - [Eddy Grant explained his song 'Electric Avenue' to Donald Trump's lawyers in a deposition. It did not go well.](https://news.yahoo.com/eddy-grant-explained-song-electric-015729749.html)
 - Sep 15 - [Kim Jong Un's Maybach Limo Seen Squeezing Into His Armored Train](https://news.yahoo.com/kim-jong-uns-maybach-limo-230627116.html)
 - Sep 15 - [Ford lays off hundreds of workers at Michigan plant amid UAW strike](https://finance.yahoo.com/news/ford-lays-off-hundreds-workers-223200833.html)
+- Sep 15 - [A Colorado mountain tied to an 1864 massacre is renamed Mount Blue Sky](https://news.yahoo.com/colorado-mountain-tied-massacre-renamed-212926765.html)
 - Sep 15 - [Louisiana island town to repeal ordinance, let driver fly vulgar anti-Biden flag](https://news.yahoo.com/louisiana-island-town-repeal-ordinance-212036339.html)
-- Sep 15 - [Michigan man cleared of killing 2 hunters to get $1 million for wrongful convictions](https://news.yahoo.com/michigan-man-cleared-killing-2-204755737.html)
-- Sep 15 - [Astronauts explain why no human has visited the moon in 50 years — and the reasons why are depressing](https://news.yahoo.com/astronauts-explain-why-nobody-visited-214006068.html)
 <!-- feed end -->
 
 ### Onstream
