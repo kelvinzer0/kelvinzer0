@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 16 - [Exclusive-A close encounter with the 'alien bodies' in Mexico](https://news.yahoo.com/exclusive-close-encounter-alien-bodies-070629861.html)
 - Sep 16 - [Trump Bakes A Loaf Of Nonsense With Bizarre Remarks About Grocery Store Purchases](https://news.yahoo.com/trump-bakes-loaf-nonsense-bizarre-052500102.html)
-- Sep 16 - [Lauren Boebert Denies Vaping During Crowded ‘Beetlejuice’ Performance, But Backtracks When Video Surfaces:  “I Genuinely Did Not Recall Vaping That Evening”](https://www.yahoo.com/entertainment/lauren-boebert-denies-vaping-during-032455667.html)
 - Sep 16 - [Eddy Grant explained his song 'Electric Avenue' to Donald Trump's lawyers in a deposition. It did not go well.](https://news.yahoo.com/eddy-grant-explained-song-electric-015729749.html)
 - Sep 16 - [Florida women drunkenly tossed baby in air 'like a toy' at bar, charged with child abuse, police say](https://news.yahoo.com/florida-women-drunkenly-tossed-baby-004550915.html)
-- Sep 15 - [Kim Jong Un's Maybach Limo Seen Squeezing Into His Armored Train](https://news.yahoo.com/kim-jong-uns-maybach-limo-230627116.html)
+- Sep 15 - [Lauren Boebert Caught Fondling Date’s Genitals During Family-Friendly Musical: Video](https://news.yahoo.com/lauren-boebert-caught-fondling-date-232043134.html)
 <!-- feed end -->
 
 ### Onstream
