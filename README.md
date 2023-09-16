@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Texas Senate ends deliberations in AG Paxton's impeachment trial; Vote imminent](https://news.yahoo.com/texas-senate-ends-deliberations-ag-152947561.html)
-- Sep 16 - [A high school band director was tased by cops at a football game after he refused orders to stop his musicians from playing](https://news.yahoo.com/high-school-band-director-tased-151341350.html)
-- Sep 16 - [Ex-Finland PM Sanna Marin, who went viral for raunchy dance video, sparks furor with early exit](https://news.yahoo.com/ex-finland-pm-sanna-marin-120027133.html)
-- Sep 16 - [A nuclear bomb is still missing after it was dropped off the Georgia coastline 65 years ago](https://news.yahoo.com/nuclear-bomb-still-missing-dropped-115201547.html)
-- Sep 16 - [Russian drone destroys Ukraine’s top secret air defence system – but all was not as it seemed](https://news.yahoo.com/decoy-war-inside-ukraine-most-114848376.html)
+- Sep 16 - [Mali, Niger and Burkina Faso sign Sahel security pact](https://news.yahoo.com/mali-niger-burkina-faso-sign-180059475.html)
+- Sep 16 - [A sad day for Texas: Acquitting Ken Paxton condones corruption, abuse of power | Opinion](https://news.yahoo.com/sad-day-texas-acquitting-ken-175140421.html)
+- Sep 16 - [Trump Warns That ‘Cognitively Impaired’ Biden Will ‘Lead Us Into World War 2’ in Confused Speech (Video)](https://www.yahoo.com/entertainment/trump-warns-cognitively-impaired-biden-172337832.html)
+- Sep 16 - [Donald Trump Jr’s Latest Business Venture Isn’t Sitting Well With Anyone on the Internet](https://www.yahoo.com/entertainment/donald-trump-jr-latest-business-165000079.html)
+- Sep 16 - [Texas Senate acquits AG Paxton in impeachment trial, keeps him in office](https://news.yahoo.com/texas-senate-ends-deliberations-ag-152947561.html)
 <!-- feed end -->
 
 ### Onstream
