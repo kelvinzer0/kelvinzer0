@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 16 - [Ex-Finland PM Sanna Marin, who went viral for raunchy dance video, sparks furor with early exit](https://news.yahoo.com/ex-finland-pm-sanna-marin-120027133.html)
+- Sep 16 - [A nuclear bomb is still missing after it was dropped off the Georgia coastline 65 years ago](https://news.yahoo.com/nuclear-bomb-still-missing-dropped-115201547.html)
 - Sep 16 - [Russian drone destroys Ukraine’s top secret air defence system – but all was not as it seemed](https://news.yahoo.com/decoy-war-inside-ukraine-most-114848376.html)
+- Sep 16 - [Bicyclists rejoice after witnessing ‘justice’ befall a car parked in the bike lane: ‘I’ve literally never seen this happen’](https://news.yahoo.com/bicyclists-rejoice-witnessing-justice-befall-111500958.html)
 - Sep 16 - [Erdogan says Turkey could 'part ways' with EU if necessary](https://news.yahoo.com/turkeys-erdogan-says-country-could-103536538.html)
-- Sep 16 - [‘They left us with nothing’: This elderly couple was evicted from their home of 20 years — after their son transferred ownership. Here are 3 ways to avoid being exploited as you get older](https://finance.yahoo.com/news/left-us-nothing-elderly-couple-100000273.html)
-- Sep 16 - [The Latest Numbers Are In: Here's How Much Your Social Security Increase Will Be As Things Stand Now](https://www.fool.com/retirement/2023/09/16/latest-numbers-how-much-social-security-increase/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Sep 16 - [COVID levels are so high, they’re hovering near 2020’s initial peak, as the WHO urges those at high risk to take any booster they can get their hands on](https://finance.yahoo.com/news/covid-levels-high-hovering-near-094500374.html)
 <!-- feed end -->
 
 ### Onstream
