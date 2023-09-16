@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Trump blasts special counsel Jack Smith for seeking gag order](https://news.yahoo.com/trump-blasts-special-counsel-jack-230657542.html)
 - Sep 15 - [Kim Jong Un's Maybach Limo Seen Squeezing Into His Armored Train](https://news.yahoo.com/kim-jong-uns-maybach-limo-230627116.html)
-- Sep 15 - [Shark strands itself on Florida beach. Watch swimmers come to its rescue](https://news.yahoo.com/shark-strands-itself-florida-beach-223128794.html)
+- Sep 15 - [Ford lays off hundreds of workers at Michigan plant amid UAW strike](https://finance.yahoo.com/news/ford-lays-off-hundreds-workers-223200833.html)
 - Sep 15 - [Louisiana island town to repeal ordinance, let driver fly vulgar anti-Biden flag](https://news.yahoo.com/louisiana-island-town-repeal-ordinance-212036339.html)
 - Sep 15 - [Michigan man cleared of killing 2 hunters to get $1 million for wrongful convictions](https://news.yahoo.com/michigan-man-cleared-killing-2-204755737.html)
+- Sep 15 - [Astronauts explain why no human has visited the moon in 50 years — and the reasons why are depressing](https://news.yahoo.com/astronauts-explain-why-nobody-visited-214006068.html)
 <!-- feed end -->
 
 ### Onstream
