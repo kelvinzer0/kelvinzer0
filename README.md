@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 16 - [Texas Senate ends deliberations in AG Paxton's impeachment trial; Vote imminent](https://news.yahoo.com/texas-senate-ends-deliberations-ag-152947561.html)
+- Sep 16 - [A high school band director was tased by cops at a football game after he refused orders to stop his musicians from playing](https://news.yahoo.com/high-school-band-director-tased-151341350.html)
 - Sep 16 - [Ex-Finland PM Sanna Marin, who went viral for raunchy dance video, sparks furor with early exit](https://news.yahoo.com/ex-finland-pm-sanna-marin-120027133.html)
 - Sep 16 - [A nuclear bomb is still missing after it was dropped off the Georgia coastline 65 years ago](https://news.yahoo.com/nuclear-bomb-still-missing-dropped-115201547.html)
 - Sep 16 - [Russian drone destroys Ukraine’s top secret air defence system – but all was not as it seemed](https://news.yahoo.com/decoy-war-inside-ukraine-most-114848376.html)
-- Sep 16 - [Bicyclists rejoice after witnessing ‘justice’ befall a car parked in the bike lane: ‘I’ve literally never seen this happen’](https://news.yahoo.com/bicyclists-rejoice-witnessing-justice-befall-111500958.html)
-- Sep 16 - [Erdogan says Turkey could 'part ways' with EU if necessary](https://news.yahoo.com/turkeys-erdogan-says-country-could-103536538.html)
 <!-- feed end -->
 
 ### Onstream
