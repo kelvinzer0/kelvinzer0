@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Mali, Niger and Burkina Faso sign Sahel security pact](https://news.yahoo.com/mali-niger-burkina-faso-sign-180059475.html)
 - Sep 16 - [A sad day for Texas: Acquitting Ken Paxton condones corruption, abuse of power | Opinion](https://news.yahoo.com/sad-day-texas-acquitting-ken-175140421.html)
 - Sep 16 - [Trump Warns That ‘Cognitively Impaired’ Biden Will ‘Lead Us Into World War 2’ in Confused Speech (Video)](https://www.yahoo.com/entertainment/trump-warns-cognitively-impaired-biden-172337832.html)
-- Sep 16 - [Donald Trump Jr’s Latest Business Venture Isn’t Sitting Well With Anyone on the Internet](https://www.yahoo.com/entertainment/donald-trump-jr-latest-business-165000079.html)
+- Sep 16 - [Czech protesters rally against government's pro-Western policies](https://news.yahoo.com/czech-protesters-rally-against-governments-161952611.html)
 - Sep 16 - [Texas Senate acquits AG Paxton in impeachment trial, keeps him in office](https://news.yahoo.com/texas-senate-ends-deliberations-ag-152947561.html)
+- Sep 16 - [IRS Rule Change Should Have You Rethinking How You Leave Assets to Heirs](https://finance.yahoo.com/news/want-leave-assets-heirs-irs-105000681.html)
 <!-- feed end -->
 
 ### Onstream
