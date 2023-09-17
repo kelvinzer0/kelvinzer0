@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [Jazz legend Nat King Cole’s great-nephew, Tracy Cole, 31, stabbed to death in Atlanta: 'Everybody loved him'](https://news.yahoo.com/jazz-legend-nat-king-cole-010005572.html)
 - Sep 16 - [California woman loses limbs after battling bacterial infection from tilapia](https://news.yahoo.com/california-woman-loses-limbs-battling-230259666.html)
 - Sep 16 - [Texas AG Ken Paxton warns Biden administration after defeating 'sham impeachment': 'Buckle up'](https://news.yahoo.com/texas-ag-ken-paxton-warns-224609198.html)
 - Sep 16 - [The winner of the $2 billion Powerball jackpot has been buying fancy homes around Los Angeles](https://finance.yahoo.com/news/winner-2-billion-powerball-jackpot-212754617.html)
 - Sep 16 - ['Extraordinarily difficult': Mayor Joe Hogsett requests privacy after wife files for divorce](https://news.yahoo.com/extraordinarily-difficult-mayor-joe-hogsett-200745560.html)
+- Sep 16 - [In a “Revolutionary Move,” Prince William and Princess Kate are Hiring Their Own Personal CEO, Who Must Have a "Low Ego"](https://www.yahoo.com/lifestyle/revolutionary-move-prince-william-princess-175558512.html)
 <!-- feed end -->
 
 ### Onstream
