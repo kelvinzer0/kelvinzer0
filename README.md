@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 16 - [California woman loses limbs after battling bacterial infection from tilapia](https://news.yahoo.com/california-woman-loses-limbs-battling-230259666.html)
+- Sep 16 - [Devastated Bronx dad ‘never expected’ 1-year-old son to die of suspected day care fentanyl overdose; center ‘looked like a nice place’](https://news.yahoo.com/devastated-bronx-dad-never-expected-224300332.html)
 - Sep 16 - [‘Intense’ moments as grizzly bears stalk hikers in Banff](https://sports.yahoo.com/tense-moments-grizzly-bears-stalk-201441527.html)
+- Sep 16 - ['Extraordinarily difficult': Mayor Joe Hogsett requests privacy after wife files for divorce](https://news.yahoo.com/extraordinarily-difficult-mayor-joe-hogsett-200745560.html)
 - Sep 16 - [A sad day for Texas: Acquitting Ken Paxton condones corruption, abuse of power | Opinion](https://news.yahoo.com/sad-day-texas-acquitting-ken-175140421.html)
-- Sep 16 - [Trump Warns That ‘Cognitively Impaired’ Biden Will ‘Lead Us Into World War 2’ in Confused Speech (Video)](https://www.yahoo.com/entertainment/trump-warns-cognitively-impaired-biden-172337832.html)
-- Sep 16 - [Czech protesters rally against government's pro-Western policies](https://news.yahoo.com/czech-protesters-rally-against-governments-161952611.html)
-- Sep 16 - [Lauren Boebert Stays Mum on Public Groping in Video, Apologizes for Vaping](https://news.yahoo.com/lauren-boebert-stays-mum-public-154604969.html)
 <!-- feed end -->
 
 ### Onstream
