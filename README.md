@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 17 - [Squirmy critter seen at wildlife refuge leaves Texans disturbed. ‘Please nooooo’](https://news.yahoo.com/squirmy-critter-seen-wildlife-refuge-183353287.html)
+- Sep 17 - [Alabama high school band director stunned, arrested after refusing to end performance, police say](https://news.yahoo.com/alabama-high-school-band-director-175341376.html)
+- Sep 17 - [Trump says it was ‘my decision’ to try to overturn 2020 election results](https://news.yahoo.com/trump-says-decision-try-overturn-174422967.html)
 - Sep 17 - [Indiana attorney general sues hospital system over privacy of Ohio girl who traveled for abortion](https://news.yahoo.com/indiana-attorney-general-sues-hospital-164814679.html)
-- Sep 17 - [Trump has sharp exchange with NBC's Kristen Welker after she asked if he watched the January 6 riot unfold on TV in the White House dining room](https://news.yahoo.com/trump-sharp-exchange-nbcs-kristen-152627420.html)
-- Sep 17 - [Video appears on Chechen leader Kadyrov's social media amid rumours of his critical condition and death](https://news.yahoo.com/video-appears-chechen-leader-kadyrovs-142407145.html)
-- Sep 17 - [Romney claims Pence behaved ‘ungodly’ as VP. Hear Pence’s response](https://news.yahoo.com/romney-claims-pence-behaved-ungodly-134806861.html)
-- Sep 17 - [Lots of indoor farms are shutting down as their businesses struggle. So why are more being built?](https://news.yahoo.com/lots-indoor-farms-shutting-down-134002768.html)
+- Sep 17 - [Suspects pull gun on Marshalls employee, steal $1,200 in merchandise: MPD](https://news.yahoo.com/suspects-pull-gun-marshalls-employee-164408002.html)
 <!-- feed end -->
 
 ### Onstream
