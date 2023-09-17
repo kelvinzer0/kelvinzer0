@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [North Korea's Kim heads home from Russia's Far East](https://news.yahoo.com/north-koreas-kim-heads-home-132555290.html)
-- Sep 17 - [Trump, who called Biden 'cognitively impaired,' mocked for saying the president would lead the US into 'World War II' in a gaffe-strewn speech](https://news.yahoo.com/trump-called-biden-cognitively-impaired-115406234.html)
-- Sep 17 - [Before my transition, I was a WWE star, weighed 280 pounds, and had 6% body fat. It took a lot of trial and error to get the feminine body I always wanted.](https://news.yahoo.com/transition-wwe-star-weighed-280-111701029.html)
-- Sep 17 - [Business class airline passenger shares shocking photo of his ‘insulting’ in-flight meal: ‘[This] seems especially important’](https://news.yahoo.com/business-class-airline-passenger-shares-103000135.html)
-- Sep 17 - [2 Major Social Security Changes Coming in 2024 May Surprise Most Americans](https://www.fool.com/retirement/2023/09/17/2-major-social-security-changes-coming-in-2024/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Sep 17 - [Trump refuses to say in a TV interview how he watched the Jan. 6 attack unfold at the US Capitol](https://news.yahoo.com/trump-refuses-tv-interview-watched-142211512.html)
+- Sep 17 - [Lots of indoor farms are shutting down as their businesses struggle. So why are more being built?](https://news.yahoo.com/lots-indoor-farms-shutting-down-134002768.html)
+- Sep 17 - [The bizarre secret behind China's spy balloon](https://news.yahoo.com/bizarre-secret-behind-chinas-spy-132621162.html)
+- Sep 17 - [‘No,’ Trump rules out a third term run if re-elected, says he needs '6 months to a year'](https://news.yahoo.com/no-trump-rules-third-term-123442844.html)
+- Sep 17 - [Trump says he needed ‘22,000 votes’ in each state to win in 2020, but falsely claims he still won](https://news.yahoo.com/trump-says-needed-22-000-123010991.html)
 <!-- feed end -->
 
 ### Onstream
