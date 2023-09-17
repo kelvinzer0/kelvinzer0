@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 17 - [A Mississippi jury rules officers justified in fatal 2017 shooting after police went to wrong house](https://news.yahoo.com/mississippi-jury-rules-officers-justified-195732695.html)
 - Sep 17 - [Trump says it was ‘my decision’ to try to overturn 2020 election results](https://news.yahoo.com/trump-says-decision-try-overturn-174422967.html)
 - Sep 17 - [Squirmy critter seen at wildlife refuge leaves Texans disturbed. ‘Please nooooo’](https://news.yahoo.com/squirmy-critter-seen-wildlife-refuge-183353287.html)
-- Sep 17 - [Alabama high school band director stunned, arrested after refusing to end performance, police say](https://news.yahoo.com/alabama-high-school-band-director-175341376.html)
+- Sep 17 - [Mike Pence reacts to Trump's apparent 'confused' comments on Obama, WWII](https://news.yahoo.com/mike-pence-reacts-trumps-apparent-181056834.html)
 - Sep 17 - [I’m a Mechanic: Here’s What I Drive and 3 Cars I’d Never Own](https://finance.yahoo.com/news/m-mechanic-drive-3-cars-170038313.html)
-- Sep 17 - [Indiana attorney general sues hospital system over privacy of Ohio girl who traveled for abortion](https://news.yahoo.com/indiana-attorney-general-sues-hospital-164814679.html)
 <!-- feed end -->
 
 ### Onstream
