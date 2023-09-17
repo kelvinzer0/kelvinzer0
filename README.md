@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 17 - [Indiana attorney general sues hospital system over privacy of Ohio girl who traveled for abortion](https://news.yahoo.com/indiana-attorney-general-sues-hospital-164814679.html)
 - Sep 17 - [Trump has sharp exchange with NBC's Kristen Welker after she asked if he watched the January 6 riot unfold on TV in the White House dining room](https://news.yahoo.com/trump-sharp-exchange-nbcs-kristen-152627420.html)
+- Sep 17 - [Video appears on Chechen leader Kadyrov's social media amid rumours of his critical condition and death](https://news.yahoo.com/video-appears-chechen-leader-kadyrovs-142407145.html)
+- Sep 17 - [Romney claims Pence behaved ‘ungodly’ as VP. Hear Pence’s response](https://news.yahoo.com/romney-claims-pence-behaved-ungodly-134806861.html)
 - Sep 17 - [Lots of indoor farms are shutting down as their businesses struggle. So why are more being built?](https://news.yahoo.com/lots-indoor-farms-shutting-down-134002768.html)
-- Sep 17 - [The bizarre secret behind China's spy balloon](https://news.yahoo.com/bizarre-secret-behind-chinas-spy-132621162.html)
-- Sep 17 - [‘No,’ Trump rules out a third term run if re-elected, says he needs '6 months to a year'](https://news.yahoo.com/no-trump-rules-third-term-123442844.html)
-- Sep 17 - [Trump says he needed ‘22,000 votes’ in each state to win in 2020, but falsely claims he still won](https://news.yahoo.com/trump-says-needed-22-000-123010991.html)
 <!-- feed end -->
 
 ### Onstream
