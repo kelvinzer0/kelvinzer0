@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [Here are 11 top moments from Trump's 'Meet the Press' interview](https://news.yahoo.com/11-top-moments-trumps-meet-150041793.html)
-- Sep 17 - [Trump refuses to say in a TV interview how he watched the Jan. 6 attack unfold at the US Capitol](https://news.yahoo.com/trump-refuses-tv-interview-watched-142211512.html)
+- Sep 17 - [Trump has sharp exchange with NBC's Kristen Welker after she asked if he watched the January 6 riot unfold on TV in the White House dining room](https://news.yahoo.com/trump-sharp-exchange-nbcs-kristen-152627420.html)
 - Sep 17 - [Lots of indoor farms are shutting down as their businesses struggle. So why are more being built?](https://news.yahoo.com/lots-indoor-farms-shutting-down-134002768.html)
 - Sep 17 - [The bizarre secret behind China's spy balloon](https://news.yahoo.com/bizarre-secret-behind-chinas-spy-132621162.html)
 - Sep 17 - [‘No,’ Trump rules out a third term run if re-elected, says he needs '6 months to a year'](https://news.yahoo.com/no-trump-rules-third-term-123442844.html)
+- Sep 17 - [Trump says he needed ‘22,000 votes’ in each state to win in 2020, but falsely claims he still won](https://news.yahoo.com/trump-says-needed-22-000-123010991.html)
 <!-- feed end -->
 
 ### Onstream
