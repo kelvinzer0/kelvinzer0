@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 17 - [Trump, who called Biden 'cognitively impaired,' mocked for saying the president would lead the US into 'World War II' in a gaffe-strewn speech](https://news.yahoo.com/trump-called-biden-cognitively-impaired-115406619.html)
 - Sep 17 - [Before my transition, I was a WWE star, weighed 280 pounds, and had 6% body fat. It took a lot of trial and error to get the feminine body I always wanted.](https://news.yahoo.com/transition-wwe-star-weighed-280-111701029.html)
 - Sep 17 - [2 Major Social Security Changes Coming in 2024 May Surprise Most Americans](https://www.fool.com/retirement/2023/09/17/2-major-social-security-changes-coming-in-2024/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Sep 16 - [California woman loses limbs after battling bacterial infection from tilapia](https://news.yahoo.com/california-woman-loses-limbs-battling-230259666.html)
 - Sep 16 - [Texas AG Ken Paxton warns Biden administration after defeating 'sham impeachment': 'Buckle up'](https://news.yahoo.com/texas-ag-ken-paxton-warns-224609198.html)
-- Sep 16 - [The winner of the $2 billion Powerball jackpot has been buying fancy homes around Los Angeles](https://finance.yahoo.com/news/winner-2-billion-powerball-jackpot-212754617.html)
 <!-- feed end -->
 
 ### Onstream
