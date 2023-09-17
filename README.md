@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 17 - [A sneaky move at a Kremlin meeting may show why Putin took his time in eliminating Prigozhin](https://news.yahoo.com/sneaky-move-kremlin-meeting-may-213301886.html)
 - Sep 17 - [Pythons wrestle for female’s approval, video shows. They’re no match for snake catcher](https://news.yahoo.com/pythons-wrestle-female-approval-video-210659314.html)
-- Sep 17 - [Trump says it was ‘my decision’ to try to overturn 2020 election results](https://news.yahoo.com/trump-says-decision-try-overturn-174422967.html)
 - Sep 17 - [A Mississippi jury rules officers justified in fatal 2017 shooting after police went to wrong house](https://news.yahoo.com/mississippi-jury-rules-officers-justified-195732695.html)
 - Sep 17 - ['He just said it on air': Weissmann reacts to Trump's TV confession](https://news.yahoo.com/just-said-air-weissmann-reacts-193935878.html)
 - Sep 17 - [Squirmy critter seen at wildlife refuge leaves Texans disturbed. ‘Please nooooo’](https://news.yahoo.com/squirmy-critter-seen-wildlife-refuge-183353287.html)
