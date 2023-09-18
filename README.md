@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - ['Money has no utility to me': Warren Buffett says owning more houses or having a boat means nothing to him — here's 1 thing he values more than money and how you can use it, too](https://finance.yahoo.com/news/money-no-utility-warren-buffett-183000164.html)
+- Sep 18 - [6-year-old fighting for life after Texas man bashed his head with baseball bat](https://nextshark.com/texas-neighbor-baseball-bat-attack-boy/)
 - Sep 18 - [Republicans propose spending $614M in public funds on Milwaukee Brewers' stadium upgrades](https://news.yahoo.com/republicans-propose-spending-614m-public-175320839.html)
-- Sep 18 - [Trump: ‘I brought 58 hostages home … and never paid anything’](https://news.yahoo.com/trump-brought-58-hostages-home-170711134.html)
-- Sep 18 - [San Jose Mom Loses Arms and Legs After Eating Fish Contaminated with Flesh-Eating Bacteria](https://www.yahoo.com/entertainment/san-jose-mom-loses-arms-164426767.html)
-- Sep 18 - [Rape and Murder of 9-Year-Old Georgia Girl Solved—After 51 Years](https://news.yahoo.com/rape-murder-9-old-georgia-164157040.html)
-- Sep 18 - [Mexican president defends inclusion of Russian military contingent in Independence parade](https://news.yahoo.com/mexican-president-defends-inclusion-russian-163121162.html)
+- Sep 18 - [Popular women's clothing retailer files bankruptcy, closes stores](https://www.thestreet.com/retailers/popular-womens-clothing-retailer-files-bankruptcy-closes-stores?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Sep 18 - [A missing F-35 stealth fighter may have kept flying after its pilot ejected. A pilotless Soviet jet once flew 500 miles before crashing in NATO territory.](https://www.businessinsider.com/missing-f35-flying-after-pilot-ejected-soviet-jet-cold-war-2023-9)
 <!-- feed end -->
 
 ### Onstream
