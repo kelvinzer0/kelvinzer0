@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [iOS 17 includes these new security and privacy features](https://news.yahoo.com/ios-17-includes-security-privacy-120530194.html)
+- Sep 18 - [Moscow fires cruise missiles in sea drills between Russia and Alaska](https://news.yahoo.com/moscow-fires-cruise-missiles-sea-121448242.html)
+- Sep 18 - [Elon Musk shared some painfully awkward small talk with Turkey's president, with Erdogan asking the unmarried billionaire how his wife is](https://news.yahoo.com/elon-musk-shared-painfully-awkward-114338261.html)
 - Sep 18 - [An About-Face on Whether the 14th Amendment Bars Trump From Office](https://news.yahoo.com/face-whether-14th-amendment-bars-114129158.html)
 - Sep 18 - [Legal Experts Say Donald Trump Just Threw His Own Legal Defense ‘Under The Bus'](https://news.yahoo.com/legal-experts-donald-trump-just-103421709.html)
 - Sep 18 - [Fox News Anchor Asks Ron DeSantis The ‘Awkward’ Question To His Face](https://news.yahoo.com/fox-news-anchor-asks-ron-102057898.html)
-- Sep 18 - [State Farm is closing its doors to millions of new customers exposed to ‘rapidly growing’ catastrophes — here’s who’s affected](https://news.yahoo.com/state-farm-closing-doors-millions-113000421.html)
 <!-- feed end -->
 
 ### Onstream
