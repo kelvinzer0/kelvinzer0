@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [Republicans propose spending $614M in public funds on Milwaukee Brewers' stadium upgrades](https://news.yahoo.com/republicans-propose-spending-614m-public-175320839.html)
+- Sep 18 - [Trump: ‘I brought 58 hostages home … and never paid anything’](https://news.yahoo.com/trump-brought-58-hostages-home-170711134.html)
+- Sep 18 - [San Jose Mom Loses Arms and Legs After Eating Fish Contaminated with Flesh-Eating Bacteria](https://www.yahoo.com/entertainment/san-jose-mom-loses-arms-164426767.html)
 - Sep 18 - [Rape and Murder of 9-Year-Old Georgia Girl Solved—After 51 Years](https://news.yahoo.com/rape-murder-9-old-georgia-164157040.html)
 - Sep 18 - [Mexican president defends inclusion of Russian military contingent in Independence parade](https://news.yahoo.com/mexican-president-defends-inclusion-russian-163121162.html)
-- Sep 18 - [Woman in Bodysuit Gets Kicked Off Plane, Tells Passengers She's 'Instagram Famous' As She Leaves](https://www.yahoo.com/entertainment/woman-bodysuit-gets-kicked-off-161345235.html)
-- Sep 18 - [‘They’ll walk straight into jail cells’: California says it will spend $267M to crack down on smash-and-grab robberies in retail stores — but will it stave off the national 'growing threat'?](https://finance.yahoo.com/news/ll-walk-straight-jail-cells-153000421.html)
-- Sep 18 - [‘It Was Totally Unprovoked’: Woman Drags 13-Year-Old to the Floor In Vicious Random Attack In Los Angeles McDonald’s While Onlookers Just Stand By and Film](https://news.yahoo.com/totally-unprovoked-woman-drags-13-140246240.html)
 <!-- feed end -->
 
 ### Onstream
