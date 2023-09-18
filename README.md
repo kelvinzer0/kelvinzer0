@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [Former NFL player Sergio Brown is missing and his mother has been found dead near a creek in a Chicago suburb, police say](https://news.yahoo.com/former-nfl-player-sergio-brown-024332479.html)
+- Sep 18 - [China flies 103 military planes toward Taiwan in a new high of activity the island calls harassment](https://news.yahoo.com/taiwan-says-103-chinese-warplanes-020012691.html)
 - Sep 18 - [McCarthy Demands 8% Spending Cut, Border Wall to Avert Shutdown](https://finance.yahoo.com/news/mccarthy-demands-8-spending-cut-002404186.html)
 - Sep 18 - [Donald Trump Wishes ‘Liberal Jews’ a Happy New Year by Accusing Them of Destroying America](https://news.yahoo.com/donald-trump-wishes-liberal-jews-010925798.html)
 - Sep 17 - [Dominican Republic's president stands resolute on his closing of all borders with Haiti](https://news.yahoo.com/dominican-republics-president-stands-resolute-235930027.html)
-- Sep 17 - [A pilot training in one of America's most expensive weapons systems ejected over South Carolina. Officials can't find the F-35 he was flying.](https://news.yahoo.com/pilot-training-one-americas-most-235801415.html)
-- Sep 17 - [Search on for a missing Marine Corps fighter jet in South Carolina after pilot safely ejects](https://news.yahoo.com/search-missing-marine-corps-fighter-234846699.html)
 <!-- feed end -->
 
 ### Onstream
