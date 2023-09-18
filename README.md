@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 17 - [A sneaky move at a Kremlin meeting may show why Putin took his time in eliminating Prigozhin](https://news.yahoo.com/sneaky-move-kremlin-meeting-may-213301886.html)
-- Sep 17 - [Pythons wrestle for female’s approval, video shows. They’re no match for snake catcher](https://news.yahoo.com/pythons-wrestle-female-approval-video-210659314.html)
-- Sep 17 - [A Mississippi jury rules officers justified in fatal 2017 shooting after police went to wrong house](https://news.yahoo.com/mississippi-jury-rules-officers-justified-195732695.html)
-- Sep 17 - ['He just said it on air': Weissmann reacts to Trump's TV confession](https://news.yahoo.com/just-said-air-weissmann-reacts-193935878.html)
-- Sep 17 - [Squirmy critter seen at wildlife refuge leaves Texans disturbed. ‘Please nooooo’](https://news.yahoo.com/squirmy-critter-seen-wildlife-refuge-183353287.html)
+- Sep 18 - [McCarthy Demands 8% Spending Cut, Border Wall to Avert Shutdown](https://finance.yahoo.com/news/mccarthy-demands-8-spending-cut-002404186.html)
+- Sep 17 - [Dominican Republic's president stands resolute on his closing of all borders with Haiti](https://news.yahoo.com/dominican-republics-president-stands-resolute-235930027.html)
+- Sep 17 - [A pilot training in one of America's most expensive weapons systems ejected over South Carolina. Officials can't find the F-35 he was flying.](https://news.yahoo.com/pilot-training-one-americas-most-235801415.html)
+- Sep 17 - [20-year-old Latter-day Saint sister missionary from Seattle area dies in Philippines](https://news.yahoo.com/20-old-latter-day-saint-225254731.html)
+- Sep 17 - [Michigan State plans to dig into source of leak in Mel Tucker investigation](https://news.yahoo.com/michigan-state-plans-dig-source-224425784.html)
 <!-- feed end -->
 
 ### Onstream
