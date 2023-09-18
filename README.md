@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [US charges Hong Kong based-Russian with smuggling military technology to Russia](https://news.yahoo.com/us-charges-hong-kong-based-214501021.html)
 - Sep 18 - [DA identifies man who died after incident in stands during Patriots-Dolphins game at Gillette](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
-- Sep 18 - [BREAKING: Michigan State has served notice to Mel Tucker that they plan to fire him for cause](https://sports.yahoo.com/breaking-michigan-state-served-notice-195746636.html)
-- Sep 18 - [‘I Couldn’t Recognize Her’: Family of Model Found Dead In Downtown Los Angeles Says She Was Discovered with Leg Up In ‘Gruesome’ Scene Days After Telling Friends That She Was Going on Date](https://news.yahoo.com/couldn-t-recognize-her-family-183000672.html)
-- Sep 18 - ['Money has no utility to me': Warren Buffett says owning more houses or having a boat means nothing to him — here's 1 thing he values more than money and how you can use it, too](https://finance.yahoo.com/news/money-no-utility-warren-buffett-183000164.html)
-- Sep 18 - [Speaker McCarthy is running out of options to stop a shutdown as conservatives balk at a new plan](https://news.yahoo.com/speaker-mccarthy-running-options-stop-181105779.html)
+- Sep 18 - [A look at recent vintage aircraft crashes following a deadly collision at the Reno Air Races](https://news.yahoo.com/look-recent-vintage-aircraft-crashes-211326523.html)
+- Sep 18 - ['Disgusted beyond words': Canadians react after body cam reveals cop laughed at death of Indian woman](https://news.yahoo.com/jaahnavi-kandula-canada-reaction-211016292.html)
+- Sep 18 - [Stellantis could close 18 facilities under UAW deal — here are the full details of its latest offer](https://finance.yahoo.com/news/stellantis-could-close-18-facilities-203517942.html)
 <!-- feed end -->
 
 ### Onstream
