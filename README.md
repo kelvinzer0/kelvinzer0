@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [Marjorie Taylor Greene Demanded 'Etiquette And Respect’ And You Know What Happened](https://news.yahoo.com/marjorie-taylor-greene-demanded-etiquette-061146943.html)
+- Sep 18 - [2 years ago, the Taliban banned girls from school. It’s a worsening crisis for all Afghans](https://news.yahoo.com/taliban-banned-girls-school-2-053718600.html)
 - Sep 18 - [A Black student was suspended for his hairstyle. The school says it wasn't discrimination](https://news.yahoo.com/black-student-suspended-hairstyle-school-051047259.html)
 - Sep 18 - [Police: Ex-NFL player Sergio Brown missing, mother found dead by homicide near a creek](https://sports.yahoo.com/police-ex-nfl-player-sergio-brown-missing-mother-found-dead-by-homicide-near-a-creek-044512229.html)
 - Sep 18 - [Trial of 3 Washington officers charged with murder, manslaughter in death of Black man set to begin](https://news.yahoo.com/trial-3-washington-officers-charged-041406397.html)
-- Sep 18 - [Judge to hold hearing on ex-DOJ official's request to move Georgia election case to federal court](https://news.yahoo.com/judge-hold-hearing-ex-doj-040756867.html)
-- Sep 18 - [Biden Taunts House Republicans With 3 Mocking Words On Impeachment Effort](https://news.yahoo.com/biden-taunts-house-republicans-3-035811346.html)
 <!-- feed end -->
 
 ### Onstream
