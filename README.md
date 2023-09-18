@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [Police: Ex-NFL player Sergio Brown missing, mother found dead by homicide near a creek](https://sports.yahoo.com/police-ex-nfl-player-sergio-brown-missing-mother-found-dead-by-homicide-near-a-creek-044512229.html)
+- Sep 18 - [Judge to hold hearing on ex-DOJ official's request to move Georgia election case to federal court](https://news.yahoo.com/judge-hold-hearing-ex-doj-040756867.html)
+- Sep 18 - [Biden Taunts House Republicans With 3 Mocking Words On Impeachment Effort](https://news.yahoo.com/biden-taunts-house-republicans-3-035811346.html)
 - Sep 18 - [Former NFL player Sergio Brown is missing and his mother has been found dead near a creek in a Chicago suburb, police say](https://news.yahoo.com/former-nfl-player-sergio-brown-024332479.html)
 - Sep 18 - [China flies 103 military planes toward Taiwan in a new high of activity the island calls harassment](https://news.yahoo.com/taiwan-says-103-chinese-warplanes-020012691.html)
-- Sep 18 - [McCarthy Demands 8% Spending Cut, Border Wall to Avert Shutdown](https://finance.yahoo.com/news/mccarthy-demands-8-spending-cut-002404186.html)
-- Sep 18 - [Donald Trump Wishes ‘Liberal Jews’ a Happy New Year by Accusing Them of Destroying America](https://news.yahoo.com/donald-trump-wishes-liberal-jews-010925798.html)
-- Sep 17 - [Dominican Republic's president stands resolute on his closing of all borders with Haiti](https://news.yahoo.com/dominican-republics-president-stands-resolute-235930027.html)
 <!-- feed end -->
 
 ### Onstream
