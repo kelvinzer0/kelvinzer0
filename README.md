@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - ['Money has no utility to me': Warren Buffett says owning more houses or having a boat means nothing to him — here's 1 thing he values more than money and how you can use it, too](https://finance.yahoo.com/news/money-no-utility-warren-buffett-183000164.html)
-- Sep 18 - [6-year-old fighting for life after Texas man bashed his head with baseball bat](https://nextshark.com/texas-neighbor-baseball-bat-attack-boy/)
-- Sep 18 - [Republicans propose spending $614M in public funds on Milwaukee Brewers' stadium upgrades](https://news.yahoo.com/republicans-propose-spending-614m-public-175320839.html)
-- Sep 18 - [Popular women's clothing retailer files bankruptcy, closes stores](https://www.thestreet.com/retailers/popular-womens-clothing-retailer-files-bankruptcy-closes-stores?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Sep 18 - [A missing F-35 stealth fighter may have kept flying after its pilot ejected. A pilotless Soviet jet once flew 500 miles before crashing in NATO territory.](https://www.businessinsider.com/missing-f35-flying-after-pilot-ejected-soviet-jet-cold-war-2023-9)
+- Sep 18 - [BREAKING: Michigan State has served notice to Mel Tucker that they plan to fire him for cause](https://spartanswire.usatoday.com/2023/09/18/breaking-michigan-state-has-served-notice-to-mel-tucker-that-they-plan-to-fire-him-for-cause/)
+- Sep 18 - [How Biden could double his approval rating](https://finance.yahoo.com/news/how-biden-could-double-his-approval-rating-193600813.html)
+- Sep 18 - [DA identifies man who died after incident in stands during Patriots-Dolphins game at Gillette](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
+- Sep 18 - [‘El Chapo’ son Ovidio Guzmán López pleads not guilty to US drug and money laundering charges](https://news.yahoo.com/el-chapo-son-ovidio-guzm-183002424.html)
+- Sep 18 - [‘I Couldn’t Recognize Her’: Family of Model Found Dead In Downtown Los Angeles Says She Was Discovered with Leg Up In ‘Gruesome’ Scene Days After Telling Friends That She Was Going on Date](https://atlantablackstar.com/2023/09/18/model-found-dead-in-downtown-los-angeles-with-leg-up/)
 <!-- feed end -->
 
 ### Onstream
