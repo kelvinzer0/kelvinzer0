@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 18 - [McCarthy Demands 8% Spending Cut, Border Wall to Avert Shutdown](https://finance.yahoo.com/news/mccarthy-demands-8-spending-cut-002404186.html)
+- Sep 18 - [Donald Trump Wishes ‘Liberal Jews’ a Happy New Year by Accusing Them of Destroying America](https://news.yahoo.com/donald-trump-wishes-liberal-jews-010925798.html)
 - Sep 17 - [Dominican Republic's president stands resolute on his closing of all borders with Haiti](https://news.yahoo.com/dominican-republics-president-stands-resolute-235930027.html)
 - Sep 17 - [A pilot training in one of America's most expensive weapons systems ejected over South Carolina. Officials can't find the F-35 he was flying.](https://news.yahoo.com/pilot-training-one-americas-most-235801415.html)
-- Sep 17 - [Air Force releases most detailed images yet of secretive Raider nuclear stealth bomber](https://news.yahoo.com/air-force-releases-most-detailed-232159418.html)
-- Sep 17 - [20-year-old Latter-day Saint sister missionary from Seattle area dies in Philippines](https://news.yahoo.com/20-old-latter-day-saint-225254731.html)
+- Sep 17 - [Search on for a missing Marine Corps fighter jet in South Carolina after pilot safely ejects](https://news.yahoo.com/search-missing-marine-corps-fighter-234846699.html)
 <!-- feed end -->
 
 ### Onstream
