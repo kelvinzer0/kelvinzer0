@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [US charges Hong Kong based-Russian with smuggling military technology to Russia](https://news.yahoo.com/us-charges-hong-kong-based-214501021.html)
 - Sep 18 - [DA identifies man who died after incident in stands during Patriots-Dolphins game at Gillette](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
-- Sep 18 - [A look at recent vintage aircraft crashes following a deadly collision at the Reno Air Races](https://news.yahoo.com/look-recent-vintage-aircraft-crashes-211326523.html)
-- Sep 18 - ['Disgusted beyond words': Canadians react after body cam reveals cop laughed at death of Indian woman](https://news.yahoo.com/jaahnavi-kandula-canada-reaction-211016292.html)
-- Sep 18 - [Stellantis could close 18 facilities under UAW deal — here are the full details of its latest offer](https://finance.yahoo.com/news/stellantis-could-close-18-facilities-203517942.html)
+- Sep 18 - [Family says 14-year-old daughter discovered phone taped to back of toilet seat on flight to Boston](https://news.yahoo.com/family-says-14-old-daughter-220330861.html)
+- Sep 18 - [Viral ‘Instagram Famous’ Influencer Morgan Osman Denies Claims She Was ‘Kicked Off’ Plane, Says She Asked to Leave to Avoid ‘Turning Violent’](https://news.yahoo.com/viral-instagram-famous-influencer-morgan-220000287.html)
+- Sep 18 - [Buffalo Bills fan found naked, covered in human waste after falling down hole by Highmark Stadium](https://sports.yahoo.com/buffalo-bills-fan-found-naked-214752378.html)
+- Sep 18 - [Joe Biden Is Right About Merrick Garland’s Job Performance](https://news.yahoo.com/joe-biden-merrick-garland-job-212201892.html)
 <!-- feed end -->
 
 ### Onstream
