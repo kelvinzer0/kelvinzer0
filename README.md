@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [Fox News Anchor Asks Ron DeSantis The ‘Awkward’ Question To His Face](https://news.yahoo.com/fox-news-anchor-asks-ron-102057898.html)
+- Sep 18 - [Former NFL player Sergio Brown is missing after his mother’s death ruled a homicide](https://news.yahoo.com/former-nfl-player-sergio-brown-024332479.html)
+- Sep 18 - [I'm a Topgun-trained fighter pilot for the Navy. I'd make more money as an airline pilot, but it wouldn't be as fulfilling.](https://news.yahoo.com/im-topgun-trained-fighter-pilot-090705628.html)
+- Sep 18 - [China complains to Germany after foreign minister calls Xi a 'dictator'](https://news.yahoo.com/china-complains-germany-foreign-minister-090119326.html)
 - Sep 18 - [A homeless man living on national forest land was shot by federal police. He's now suing](https://news.yahoo.com/homeless-man-living-national-forest-084612828.html)
-- Sep 18 - [Marjorie Taylor Greene Demanded 'Etiquette And Respect’ And You Know What Happened](https://news.yahoo.com/marjorie-taylor-greene-demanded-etiquette-061146943.html)
-- Sep 18 - [2 years ago, the Taliban banned girls from school. It’s a worsening crisis for all Afghans](https://news.yahoo.com/taliban-banned-girls-school-2-053718600.html)
-- Sep 18 - [Dashcam footage captures instant karma moment for obnoxious truck driver: ‘That was so satisfying to see’](https://news.yahoo.com/dashcam-footage-captures-instant-karma-053000507.html)
-- Sep 18 - [A Black student was suspended for his hairstyle. The school says it wasn't discrimination](https://news.yahoo.com/black-student-suspended-hairstyle-school-051047259.html)
 <!-- feed end -->
 
 ### Onstream
