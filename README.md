@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 18 - [Moscow fires cruise missiles in sea drills between Russia and Alaska](https://news.yahoo.com/moscow-fires-cruise-missiles-sea-121448242.html)
+- Sep 18 - [Ford patent details crazy 6x6 truck accessory](https://www.autoblog.com/2023/09/18/ford-6x6-truck-conversion-patent/)
+- Sep 18 - [Ex-Landlord of White Woman Caught on Camera Telling Black Postal Worker She’s ‘Not Equal’ Says He Had to Call Cops on Her More Than 40 times In a Year](https://news.yahoo.com/ex-landlord-white-woman-caught-130000729.html)
 - Sep 18 - [Elon Musk shared some painfully awkward small talk with Turkey's president, with Erdogan asking the unmarried billionaire how his wife is](https://news.yahoo.com/elon-musk-shared-painfully-awkward-114338261.html)
 - Sep 18 - [An About-Face on Whether the 14th Amendment Bars Trump From Office](https://news.yahoo.com/face-whether-14th-amendment-bars-114129158.html)
 - Sep 18 - [Legal Experts Say Donald Trump Just Threw His Own Legal Defense ‘Under The Bus'](https://news.yahoo.com/legal-experts-donald-trump-just-103421709.html)
-- Sep 18 - [Fox News Anchor Asks Ron DeSantis The ‘Awkward’ Question To His Face](https://news.yahoo.com/fox-news-anchor-asks-ron-102057898.html)
 <!-- feed end -->
 
 ### Onstream
