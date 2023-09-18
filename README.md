@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [iOS 17 includes these new security and privacy features](https://news.yahoo.com/ios-17-includes-security-privacy-120530194.html)
+- Sep 18 - [An About-Face on Whether the 14th Amendment Bars Trump From Office](https://news.yahoo.com/face-whether-14th-amendment-bars-114129158.html)
+- Sep 18 - [Legal Experts Say Donald Trump Just Threw His Own Legal Defense ‘Under The Bus'](https://news.yahoo.com/legal-experts-donald-trump-just-103421709.html)
 - Sep 18 - [Fox News Anchor Asks Ron DeSantis The ‘Awkward’ Question To His Face](https://news.yahoo.com/fox-news-anchor-asks-ron-102057898.html)
-- Sep 18 - [Former NFL player Sergio Brown is missing after his mother’s death ruled a homicide](https://news.yahoo.com/former-nfl-player-sergio-brown-024332479.html)
-- Sep 18 - [I'm a Topgun-trained fighter pilot for the Navy. I'd make more money as an airline pilot, but it wouldn't be as fulfilling.](https://news.yahoo.com/im-topgun-trained-fighter-pilot-090705628.html)
-- Sep 18 - [China complains to Germany after foreign minister calls Xi a 'dictator'](https://news.yahoo.com/china-complains-germany-foreign-minister-090119326.html)
-- Sep 18 - [A homeless man living on national forest land was shot by federal police. He's now suing](https://news.yahoo.com/homeless-man-living-national-forest-084612828.html)
+- Sep 18 - [State Farm is closing its doors to millions of new customers exposed to ‘rapidly growing’ catastrophes — here’s who’s affected](https://news.yahoo.com/state-farm-closing-doors-millions-113000421.html)
 <!-- feed end -->
 
 ### Onstream
