@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [Harvard Law Professor Says Trump Blew Up His Own Defense For 1 Reason Only](https://news.yahoo.com/harvard-law-professor-says-trump-114439179.html)
+- Sep 19 - [DA investigates death of NH father who died after incident during Patriots-Dolphins game at Gillette](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
 - Sep 19 - [Yellowstone tourist suffers consequences after getting too close to bison: ‘Got what he was asking for’](https://news.yahoo.com/yellowstone-tourist-suffers-consequences-getting-093000137.html)
+- Sep 19 - [Kristi Noem: Trump’s rumoured running mate whose two-year-old granddaughter has a shotgun](https://news.yahoo.com/kristi-noem-donald-trump-rumoured-090608164.html)
 - Sep 19 - [Evidence suggests errant Ukrainian missile caused market deaths - New York Times](https://news.yahoo.com/evidence-suggests-errant-ukrainian-missile-084831526.html)
-- Sep 19 - [Chris Christie Spots The Trump Interview Moment That Made His Lawyers Sick](https://news.yahoo.com/chris-christie-spots-trump-interview-081945621.html)
-- Sep 19 - [Madison Brooks' dad blames everyone for daughter's death: lawsuit](https://news.yahoo.com/madison-brooks-dad-blames-everyone-080025632.html)
-- Sep 19 - [3 Russian soldiers on a supply run were blown up by a grenade when they had a barbecue, got drunk, and started arguing: local reports](https://news.yahoo.com/3-russian-soldiers-supply-run-073142596.html)
 <!-- feed end -->
 
 ### Onstream
