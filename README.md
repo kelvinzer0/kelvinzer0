@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 19 - [Full US government shutdown likely, could impact Fed -PIMCO](https://news.yahoo.com/full-us-government-shutdown-likely-155245776.html)
-- Sep 19 - [Mel Tucker 'not surprised' to find out Michigan State intends to fire him with cause](https://sports.yahoo.com/mel-tucker-not-surprised-to-find-out-michigan-state-intends-to-fire-him-with-cause-153937001.html)
 - Sep 19 - [Blackstone CEO makes a bold prediction about the 2024 election](https://www.thestreet.com/politics/blackstone-ceo-makes-a-bold-prediction-about-the-2024-election?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Sep 19 - ['Morning Joe' Hosts Can't Get Over 'Unbelievably Stupid' New Trump Report](https://news.yahoo.com/morning-joe-hosts-cant-over-144711975.html)
+- Sep 19 - [‘A devastating financial blow’: McDonald’s franchisee group slams California’s ‘draconian’ fast food bill — here's why they say it'll cost small business owners $250K a year](https://finance.yahoo.com/news/devastating-financial-blow-mcdonald-franchisee-163000954.html)
+- Sep 19 - [Donald Trump Reveals Son Barron’s Future May Start by Following in His Dad’s Footsteps](https://www.yahoo.com/lifestyle/donald-trump-reveals-son-barron-153300109.html)
 - Sep 19 - [Convicted murderer Billy Chemirmir killed in prison, officials say](https://news.yahoo.com/convicted-murderer-billy-chemirmir-killed-143400481.html)
+- Sep 19 - [Missing Ex-NFL Star Sergio Brown Resurfaces After Mother Found Dead](https://www.yahoo.com/entertainment/missing-ex-nfl-star-sergio-140829615.html)
 <!-- feed end -->
 
 ### Onstream
