@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [Hackers who breached casino giants MGM, Caesars also hit 3 other firms, Okta says](https://news.yahoo.com/hackers-breached-casino-giants-mgm-013755801.html)
+- Sep 19 - [Ukraine Situation Report: M109 Paladins Are Proving Too Wily For Russian Gunners](https://news.yahoo.com/ukraine-situation-report-m109-paladins-004949400.html)
 - Sep 19 - [He told on 'badge bending' and was fired. Now, former Vallejo cop will get nearly $1 million](https://news.yahoo.com/told-badge-bending-fired-now-002622305.html)
 - Sep 18 - [Young celebrities like Timothée Chalamet are smoking cigarettes. Here's why it matters, say public health experts.](https://www.yahoo.com/lifestyle/young-celebrities-smoking-cigarettes-why-it-matters-233129416.html)
-- Sep 18 - [F-35 Debris Found In Field After Frantic Search For Missing Jet](https://news.yahoo.com/f-35-debris-found-field-231846515.html)
-- Sep 18 - [DA identifies man who died after incident in stands during Patriots-Dolphins game at Gillette](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
-- Sep 18 - [Family says 14-year-old daughter discovered phone taped to back of toilet seat on flight to Boston](https://news.yahoo.com/family-says-14-old-daughter-220330861.html)
+- Sep 18 - [Airport worker found guilty of killing co-worker’s boyfriend after she refused to date him](https://news.yahoo.com/airport-worker-found-guilty-killing-231722887.html)
 <!-- feed end -->
 
 ### Onstream
