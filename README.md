@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 19 - [Harvard Law Professor Says Trump Blew Up His Own Defense For 1 Reason Only](https://news.yahoo.com/harvard-law-professor-says-trump-114439179.html)
+- Sep 19 - [A Cuban teenager was offered a job doing 'construction work' in Russia. Instead he was sent to fight on the front lines in Ukraine.](https://news.yahoo.com/cuban-teenager-offered-job-doing-113516591.html)
+- Sep 19 - [Dashcam footage captures instant karma moment for obnoxious truck driver: ‘That was so satisfying to see’](https://news.yahoo.com/dashcam-footage-captures-instant-karma-053000507.html)
+- Sep 19 - [Researchers make surprising discovery about lifespan of EV batteries: ‘That was a shock’](https://news.yahoo.com/researchers-surprising-discovery-lifespan-ev-110000330.html)
 - Sep 19 - [DA investigates death of NH father who died after incident during Patriots-Dolphins game at Gillette](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
-- Sep 19 - [Yellowstone tourist suffers consequences after getting too close to bison: ‘Got what he was asking for’](https://news.yahoo.com/yellowstone-tourist-suffers-consequences-getting-093000137.html)
-- Sep 19 - [Kristi Noem: Trump’s rumoured running mate whose two-year-old granddaughter has a shotgun](https://news.yahoo.com/kristi-noem-donald-trump-rumoured-090608164.html)
-- Sep 19 - [Evidence suggests errant Ukrainian missile caused market deaths - New York Times](https://news.yahoo.com/evidence-suggests-errant-ukrainian-missile-084831526.html)
 <!-- feed end -->
 
 ### Onstream
