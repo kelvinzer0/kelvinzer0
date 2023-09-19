@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 19 - [Massachusetts police investigating death of Patriots fan during game at Gillette Stadium](https://sports.yahoo.com/massachusetts-police-investigating-death-of-patriots-fan-during-game-at-gillette-stadium-174927631.html)
-- Sep 19 - [‘It isn’t a puppy.’ Officer rushes to save tiny baby animal found in Arizona dog park](https://news.yahoo.com/isn-t-puppy-officer-rushes-172823871.html)
+- Sep 19 - [DeSantis's Relentless Retaliation Efforts To Destroy Disney Cuts Road Maintenance, Ends Minority Programs And Floats Building A State Prison Near Theme Parks](https://finance.yahoo.com/news/desantiss-relentless-retaliation-efforts-destroy-182608507.html)
+- Sep 19 - [How McDonald’s and Wendy’s Botched National Cheeseburger Day](https://www.yahoo.com/lifestyle/mcdonald-wendy-botched-national-cheeseburger-172818673.html)
 - Sep 19 - [Wisconsin Republican leader blocks pay raises in continuation of DEI fight](https://news.yahoo.com/wisconsin-republican-leader-blocks-pay-172028371.html)
 - Sep 19 - [Chinese blockade of Taiwan would likely fail, Pentagon official says](https://news.yahoo.com/chinese-blockade-taiwan-likely-fail-164637572.html)
 - Sep 19 - [Blackstone CEO makes a bold prediction about the 2024 election](https://www.thestreet.com/politics/blackstone-ceo-makes-a-bold-prediction-about-the-2024-election?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
