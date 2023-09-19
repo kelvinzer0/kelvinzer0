@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [Don't travel to these countries if you're American, U.S. government warns](https://news.yahoo.com/iran-prisoners-state-department-warning-travel-americans-204913991.html)
+- Sep 19 - [Donald Trump was indicted in New York. Here's what we know so far.](https://news.yahoo.com/donald-trump-indicted-york-heres-011231781.html)
+- Sep 19 - [‘We are heartbroken’: Gillette Stadium comments after NH man’s death during Patriots-Dolphins game](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
+- Sep 19 - [Millionaire hedge fund CEO says he mainly hires people with no background in finance and once hiked a worker's pay so he could call him at 1 a.m.](https://finance.yahoo.com/news/millionaire-hedge-fund-ceo-says-193411629.html)
 - Sep 19 - [“He Just Lost It In The Weather” – Audio From F-35 Crash Response Emerges](https://news.yahoo.com/just-lost-weather-audio-f-192433712.html)
-- Sep 19 - [DeSantis's Relentless Retaliation Efforts To Destroy Disney Cuts Road Maintenance, Ends Minority Programs And Floats Building A State Prison Near Theme Parks](https://finance.yahoo.com/news/desantiss-relentless-retaliation-efforts-destroy-182608507.html)
-- Sep 19 - [Vibriosis: What Canadians should know about raw seafood as U.S. mom loses all limbs](https://news.yahoo.com/us-mom-loses-limb-seafood-vibrio-explainer-180555130.html)
-- Sep 19 - [Wisconsin Republican leader blocks pay raises in continuation of DEI fight](https://news.yahoo.com/wisconsin-republican-leader-blocks-pay-172028371.html)
-- Sep 19 - [The $2 billion Powerball winner is making the worst mistakes financial planners warn people of after they come into a ton of money](https://finance.yahoo.com/news/2-billion-powerball-winner-making-170524751.html)
 <!-- feed end -->
 
 ### Onstream
