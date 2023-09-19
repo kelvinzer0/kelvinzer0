@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - ['Morning Joe' Hosts Can't Get Over 'Unbelievably Stupid' New Trump Report](https://news.yahoo.com/morning-joe-hosts-cant-over-144711975.html)
+- Sep 19 - [Missing Ex-NFL Star Sergio Brown Resurfaces After Mother Found Dead](https://www.yahoo.com/entertainment/missing-ex-nfl-star-sergio-140829615.html)
+- Sep 19 - [Russian soldiers working as double agents are killing their comrades for cash and the chance to live abroad, report says](https://news.yahoo.com/russian-soldiers-working-double-agents-135800980.html)
+- Sep 19 - [Comedian Larry David confronted Elon Musk at a wedding about voting Republican: 'Do you just want to murder kids in schools?'](https://news.yahoo.com/comedian-larry-david-confronted-elon-131738498.html)
 - Sep 19 - [‘You’re a N—er’: Vile White Man Goes on Racist, Profanity-Laced Rant, Threatens to Ram Into Woman’s Vehicle, Video Shows](https://news.yahoo.com/n-er-vile-white-man-130000085.html)
-- Sep 19 - [Identity of massive WWII shipwreck confirmed when team finds name still etched on bow](https://news.yahoo.com/identity-massive-wwii-shipwreck-confirmed-124333727.html)
-- Sep 19 - [My Dad Was Diagnosed With Dementia. Medicare's 7-Word Response Baffled Me.](https://news.yahoo.com/dad-diagnosed-dementia-medicares-7-123000292.html)
-- Sep 19 - [Fears of a Second War in Europe as Azerbaijan Launches Military Attack](https://news.yahoo.com/fears-second-war-europe-azerbaijan-122500990.html)
-- Sep 19 - [Harvard Law Professor Says Trump Blew Up His Own Defense For 1 Reason Only](https://news.yahoo.com/harvard-law-professor-says-trump-114439179.html)
 <!-- feed end -->
 
 ### Onstream
