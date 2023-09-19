@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 19 - [Don't travel to these countries if you're American, U.S. government warns](https://news.yahoo.com/iran-prisoners-state-department-warning-travel-americans-204913991.html)
-- Sep 19 - [Donald Trump was indicted in New York. Here's what we know so far.](https://news.yahoo.com/donald-trump-indicted-york-heres-011231781.html)
 - Sep 19 - [‘We are heartbroken’: Gillette Stadium comments after NH man’s death during Patriots-Dolphins game](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
-- Sep 19 - [Millionaire hedge fund CEO says he mainly hires people with no background in finance and once hiked a worker's pay so he could call him at 1 a.m.](https://finance.yahoo.com/news/millionaire-hedge-fund-ceo-says-193411629.html)
-- Sep 19 - [“He Just Lost It In The Weather” – Audio From F-35 Crash Response Emerges](https://news.yahoo.com/just-lost-weather-audio-f-192433712.html)
+- Sep 19 - [Don't travel to these countries if you're American, U.S. government warns](https://news.yahoo.com/iran-prisoners-state-department-warning-travel-americans-204913991.html)
+- Sep 19 - [Tuberville to try going around his own blockade to confirm Marine commandant](https://news.yahoo.com/tuberville-try-going-around-own-205218874.html)
+- Sep 19 - [Donald Trump was indicted in New York. Here's what we know so far.](https://news.yahoo.com/donald-trump-indicted-york-heres-011231781.html)
+- Sep 19 - [Brett Kavanaugh’s Whoopsie Forces Groundhog Day at the Supreme Court](https://news.yahoo.com/brett-kavanaugh-whoopsie-forces-groundhog-204004090.html)
 <!-- feed end -->
 
 ### Onstream
