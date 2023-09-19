@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [“He Just Lost It In The Weather” – Audio From F-35 Crash Response Emerges](https://news.yahoo.com/just-lost-weather-audio-f-192433712.html)
 - Sep 19 - [DeSantis's Relentless Retaliation Efforts To Destroy Disney Cuts Road Maintenance, Ends Minority Programs And Floats Building A State Prison Near Theme Parks](https://finance.yahoo.com/news/desantiss-relentless-retaliation-efforts-destroy-182608507.html)
-- Sep 19 - [How McDonald’s and Wendy’s Botched National Cheeseburger Day](https://www.yahoo.com/lifestyle/mcdonald-wendy-botched-national-cheeseburger-172818673.html)
+- Sep 19 - [Vibriosis: What Canadians should know about raw seafood as U.S. mom loses all limbs](https://news.yahoo.com/us-mom-loses-limb-seafood-vibrio-explainer-180555130.html)
 - Sep 19 - [Wisconsin Republican leader blocks pay raises in continuation of DEI fight](https://news.yahoo.com/wisconsin-republican-leader-blocks-pay-172028371.html)
-- Sep 19 - [Chinese blockade of Taiwan would likely fail, Pentagon official says](https://news.yahoo.com/chinese-blockade-taiwan-likely-fail-164637572.html)
-- Sep 19 - [Blackstone CEO makes a bold prediction about the 2024 election](https://www.thestreet.com/politics/blackstone-ceo-makes-a-bold-prediction-about-the-2024-election?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Sep 19 - [The $2 billion Powerball winner is making the worst mistakes financial planners warn people of after they come into a ton of money](https://finance.yahoo.com/news/2-billion-powerball-winner-making-170524751.html)
 <!-- feed end -->
 
 ### Onstream
