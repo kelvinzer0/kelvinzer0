@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 19 - [Evidence suggests errant Ukrainian missile caused market deaths - New York Times](https://news.yahoo.com/evidence-suggests-errant-ukrainian-missile-084831526.html)
 - Sep 19 - [Chris Christie Spots The Trump Interview Moment That Made His Lawyers Sick](https://news.yahoo.com/chris-christie-spots-trump-interview-081945621.html)
 - Sep 19 - [3 Russian soldiers on a supply run were blown up by a grenade when they had a barbecue, got drunk, and started arguing: local reports](https://news.yahoo.com/3-russian-soldiers-supply-run-073142596.html)
 - Sep 19 - [Evangelical Leader Warns Trump Of The State That Could 'Upend' His Campaign](https://news.yahoo.com/evangelical-leader-warns-trump-state-064405755.html)
-- Sep 19 - [Xi says China, US 'should and must' achieve peaceful co-existence](https://news.yahoo.com/xi-says-china-us-must-053929256.html)
+- Sep 19 - [China's ex-Foreign Minister Qin Gang was ousted after alleged affair, WSJ reports](https://news.yahoo.com/chinas-ex-foreign-minister-qin-054542093.html)
+- Sep 19 - [John Fetterman Dings Marjorie Taylor Greene Over Dick Pic Stunt](https://news.yahoo.com/john-fetterman-dings-marjorie-taylor-034537301.html)
 <!-- feed end -->
 
 ### Onstream
