@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [Full US government shutdown likely, could impact Fed -PIMCO](https://news.yahoo.com/full-us-government-shutdown-likely-155245776.html)
+- Sep 19 - [Mel Tucker 'not surprised' to find out Michigan State intends to fire him with cause](https://sports.yahoo.com/mel-tucker-not-surprised-to-find-out-michigan-state-intends-to-fire-him-with-cause-153937001.html)
+- Sep 19 - [Blackstone CEO makes a bold prediction about the 2024 election](https://www.thestreet.com/politics/blackstone-ceo-makes-a-bold-prediction-about-the-2024-election?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Sep 19 - ['Morning Joe' Hosts Can't Get Over 'Unbelievably Stupid' New Trump Report](https://news.yahoo.com/morning-joe-hosts-cant-over-144711975.html)
-- Sep 19 - [Missing Ex-NFL Star Sergio Brown Resurfaces After Mother Found Dead](https://www.yahoo.com/entertainment/missing-ex-nfl-star-sergio-140829615.html)
-- Sep 19 - [Russian soldiers working as double agents are killing their comrades for cash and the chance to live abroad, report says](https://news.yahoo.com/russian-soldiers-working-double-agents-135800980.html)
-- Sep 19 - [Comedian Larry David confronted Elon Musk at a wedding about voting Republican: 'Do you just want to murder kids in schools?'](https://news.yahoo.com/comedian-larry-david-confronted-elon-131738498.html)
-- Sep 19 - [‘You’re a N—er’: Vile White Man Goes on Racist, Profanity-Laced Rant, Threatens to Ram Into Woman’s Vehicle, Video Shows](https://news.yahoo.com/n-er-vile-white-man-130000085.html)
+- Sep 19 - [Convicted murderer Billy Chemirmir killed in prison, officials say](https://news.yahoo.com/convicted-murderer-billy-chemirmir-killed-143400481.html)
 <!-- feed end -->
 
 ### Onstream
