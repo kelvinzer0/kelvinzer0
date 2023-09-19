@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [Massachusetts police investigating death of Patriots fan during game at Gillette Stadium](https://sports.yahoo.com/massachusetts-police-investigating-death-of-patriots-fan-during-game-at-gillette-stadium-174927631.html)
+- Sep 19 - [‘It isn’t a puppy.’ Officer rushes to save tiny baby animal found in Arizona dog park](https://news.yahoo.com/isn-t-puppy-officer-rushes-172823871.html)
+- Sep 19 - [Wisconsin Republican leader blocks pay raises in continuation of DEI fight](https://news.yahoo.com/wisconsin-republican-leader-blocks-pay-172028371.html)
+- Sep 19 - [Chinese blockade of Taiwan would likely fail, Pentagon official says](https://news.yahoo.com/chinese-blockade-taiwan-likely-fail-164637572.html)
 - Sep 19 - [Blackstone CEO makes a bold prediction about the 2024 election](https://www.thestreet.com/politics/blackstone-ceo-makes-a-bold-prediction-about-the-2024-election?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Sep 19 - [‘A devastating financial blow’: McDonald’s franchisee group slams California’s ‘draconian’ fast food bill — here's why they say it'll cost small business owners $250K a year](https://finance.yahoo.com/news/devastating-financial-blow-mcdonald-franchisee-163000954.html)
-- Sep 19 - [Donald Trump Reveals Son Barron’s Future May Start by Following in His Dad’s Footsteps](https://www.yahoo.com/lifestyle/donald-trump-reveals-son-barron-153300109.html)
-- Sep 19 - [Convicted murderer Billy Chemirmir killed in prison, officials say](https://news.yahoo.com/convicted-murderer-billy-chemirmir-killed-143400481.html)
-- Sep 19 - [Missing Ex-NFL Star Sergio Brown Resurfaces After Mother Found Dead](https://www.yahoo.com/entertainment/missing-ex-nfl-star-sergio-140829615.html)
 <!-- feed end -->
 
 ### Onstream
