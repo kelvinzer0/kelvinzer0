@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [‘You’re a N—er’: Vile White Man Goes on Racist, Profanity-Laced Rant, Threatens to Ram Into Woman’s Vehicle, Video Shows](https://news.yahoo.com/n-er-vile-white-man-130000085.html)
+- Sep 19 - [Identity of massive WWII shipwreck confirmed when team finds name still etched on bow](https://news.yahoo.com/identity-massive-wwii-shipwreck-confirmed-124333727.html)
+- Sep 19 - [My Dad Was Diagnosed With Dementia. Medicare's 7-Word Response Baffled Me.](https://news.yahoo.com/dad-diagnosed-dementia-medicares-7-123000292.html)
+- Sep 19 - [Fears of a Second War in Europe as Azerbaijan Launches Military Attack](https://news.yahoo.com/fears-second-war-europe-azerbaijan-122500990.html)
 - Sep 19 - [Harvard Law Professor Says Trump Blew Up His Own Defense For 1 Reason Only](https://news.yahoo.com/harvard-law-professor-says-trump-114439179.html)
-- Sep 19 - [A Cuban teenager was offered a job doing 'construction work' in Russia. Instead he was sent to fight on the front lines in Ukraine.](https://news.yahoo.com/cuban-teenager-offered-job-doing-113516591.html)
-- Sep 19 - [Dashcam footage captures instant karma moment for obnoxious truck driver: ‘That was so satisfying to see’](https://news.yahoo.com/dashcam-footage-captures-instant-karma-053000507.html)
-- Sep 19 - [Researchers make surprising discovery about lifespan of EV batteries: ‘That was a shock’](https://news.yahoo.com/researchers-surprising-discovery-lifespan-ev-110000330.html)
-- Sep 19 - [DA investigates death of NH father who died after incident during Patriots-Dolphins game at Gillette](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
 <!-- feed end -->
 
 ### Onstream
