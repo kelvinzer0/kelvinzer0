@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 19 - [Hackers who breached casino giants MGM, Caesars also hit 3 other firms, Okta says](https://news.yahoo.com/hackers-breached-casino-giants-mgm-013755801.html)
+- Sep 19 - [John Fetterman Turns the Tables on MTG’s Senate Dress Code Outrage](https://news.yahoo.com/john-fetterman-turns-tables-mtg-005047527.html)
 - Sep 19 - [Ukraine Situation Report: M109 Paladins Are Proving Too Wily For Russian Gunners](https://news.yahoo.com/ukraine-situation-report-m109-paladins-004949400.html)
 - Sep 19 - [He told on 'badge bending' and was fired. Now, former Vallejo cop will get nearly $1 million](https://news.yahoo.com/told-badge-bending-fired-now-002622305.html)
 - Sep 18 - [Young celebrities like Timothée Chalamet are smoking cigarettes. Here's why it matters, say public health experts.](https://www.yahoo.com/lifestyle/young-celebrities-smoking-cigarettes-why-it-matters-233129416.html)
-- Sep 18 - [Airport worker found guilty of killing co-worker’s boyfriend after she refused to date him](https://news.yahoo.com/airport-worker-found-guilty-killing-231722887.html)
 <!-- feed end -->
 
 ### Onstream
