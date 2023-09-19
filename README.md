@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 19 - [DA investigates death of NH father who died after incident during Patriots-Dolphins game at Gillette](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
+- Sep 19 - [A Mom Reported A Man For Bringing A Gun To A School Board Meeting — So They Reported Her To The Gunman](https://www.yahoo.com/lifestyle/mom-reported-man-bringing-gun-021500783.html)
 - Sep 19 - [Hackers who breached casino giants MGM, Caesars also hit 3 other firms, Okta says](https://news.yahoo.com/hackers-breached-casino-giants-mgm-013755801.html)
 - Sep 19 - [John Fetterman Turns the Tables on MTG’s Senate Dress Code Outrage](https://news.yahoo.com/john-fetterman-turns-tables-mtg-005047527.html)
-- Sep 19 - [Ukraine Situation Report: M109 Paladins Are Proving Too Wily For Russian Gunners](https://news.yahoo.com/ukraine-situation-report-m109-paladins-004949400.html)
 - Sep 19 - [He told on 'badge bending' and was fired. Now, former Vallejo cop will get nearly $1 million](https://news.yahoo.com/told-badge-bending-fired-now-002622305.html)
 <!-- feed end -->
 
