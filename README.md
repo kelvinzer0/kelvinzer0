@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 20 - [A jet on the bottom of the Mediterranean shows why even small parts can cause big problems for the F-35](https://news.yahoo.com/jet-bottom-mediterranean-shows-why-105701517.html)
+- Sep 20 - [Here's How Different 50 Years Old Looks Like On 60 Celebs Over The Last 40 Years](https://www.yahoo.com/entertainment/heres-different-50-years-old-105150826.html)
 - Sep 20 - ['We’re 2 months from going bankrupt, but I pretend things are fine': This California couple owns 5 motorcycles, spends half their income on rent — here's the real hard truth they had to face](https://finance.yahoo.com/news/2-months-going-bankrupt-pretend-100000729.html)
-- Sep 20 - [Videos show a massive fuel tank explosion after a suspected drone strike in Putin's prized resort town](https://news.yahoo.com/videos-show-massive-fuel-tank-092126131.html)
+- Sep 20 - [Chris Christie Pinpoints The Very ‘Worst Part’ Of Bombshell Trump Report](https://news.yahoo.com/chris-christie-pinpoints-very-worst-092723328.html)
 - Sep 20 - [Teen kicked out of house by dad is kidnapped on streets, forced into sex slavery: prosecutor](https://news.yahoo.com/teen-kicked-house-dad-kidnapped-083008137.html)
-- Sep 20 - [A tourist outraged by her $1,000 restaurant bill called the police after her group was served nearly 8 pounds of Alaskan king crab](https://news.yahoo.com/tourist-outraged-her-1-000-063037305.html)
-- Sep 20 - [A 'sugar baby' is taking over TikTok with her post about the many demands her 'daddy' has for her, but the real story is wilder than you'd think](https://news.yahoo.com/sugar-baby-taking-over-tiktok-055329247.html)
 <!-- feed end -->
 
 ### Onstream
