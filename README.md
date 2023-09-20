@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [A tourist outraged by her $1,000 restaurant bill called the police after her group was served nearly 8 pounds of Alaskan King Crab](https://news.yahoo.com/tourist-outraged-her-1-000-063037305.html)
+- Sep 20 - ['We’re 2 months from going bankrupt, but I pretend things are fine': This California couple owns 5 motorcycles, spends half their income on rent — here's the real hard truth they had to face](https://finance.yahoo.com/news/2-months-going-bankrupt-pretend-100000729.html)
+- Sep 20 - [Videos show a massive fuel tank explosion after a suspected drone strike in Putin's prized resort town](https://news.yahoo.com/videos-show-massive-fuel-tank-092126131.html)
+- Sep 20 - [Teen kicked out of house by dad is kidnapped on streets, forced into sex slavery: prosecutor](https://news.yahoo.com/teen-kicked-house-dad-kidnapped-083008137.html)
+- Sep 20 - [A tourist outraged by her $1,000 restaurant bill called the police after her group was served nearly 8 pounds of Alaskan king crab](https://news.yahoo.com/tourist-outraged-her-1-000-063037305.html)
 - Sep 20 - [A 'sugar baby' is taking over TikTok with her post about the many demands her 'daddy' has for her, but the real story is wilder than you'd think](https://news.yahoo.com/sugar-baby-taking-over-tiktok-055329247.html)
-- Sep 20 - [A Batman researcher said 'gay' in a talk to schoolkids. When asked to censor himself, he quit](https://news.yahoo.com/batman-researcher-said-gay-talk-050853451.html)
-- Sep 20 - [Exclusive-Huawei unit ships Chinese-made surveillance chips in fresh comeback sign -sources](https://news.yahoo.com/exclusive-huawei-unit-ships-chinese-040615905.html)
-- Sep 20 - [Ford avoids Canada strike with last-minute union deal](https://finance.yahoo.com/news/canadian-union-unifor-reaches-tentative-012046814.html)
 <!-- feed end -->
 
 ### Onstream
