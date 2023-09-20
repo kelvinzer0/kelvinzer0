@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 20 - [Some Virginia Democrats say livestreamed sex acts a distraction from election's real stakes](https://news.yahoo.com/virginia-democrats-livestreamed-sex-acts-000353705.html)
+- Sep 19 - [Ten dogs stick together after being dumped, Florida cops say. They’ll get a 2nd chance](https://news.yahoo.com/ten-dogs-stick-together-being-221515837.html)
+- Sep 19 - [2 Women Accused of Throwing Baby ‘Like a Toy” Outside of Bar: Cops](https://news.yahoo.com/2-women-accused-throwing-baby-220649086.html)
 - Sep 19 - [Mexican railway operator halts trains because so many migrants are climbing aboard and getting hurt](https://news.yahoo.com/mexican-railway-operator-halts-trains-220341689.html)
-- Sep 19 - [Pilot of downed F-35 stealth fighter jet parachuted into residential backyard, official says](https://finance.yahoo.com/news/pilot-downed-f-35-stealth-214803376.html)
-- Sep 19 - [Video of a cheap drone destroying an exposed T-72 hints Russian crews are still working out how to hide their tanks from a growing threat, former US general says](https://news.yahoo.com/video-cheap-drone-destroying-exposed-213516384.html)
-- Sep 19 - [‘We are heartbroken’: Gillette Stadium comments after NH man’s death during Patriots-Dolphins game](https://news.yahoo.com/state-police-da-investigating-death-160426804.html)
-- Sep 19 - [Don't travel to these countries if you're American, U.S. government warns](https://news.yahoo.com/iran-prisoners-state-department-warning-travel-americans-204913991.html)
+- Sep 19 - [Air Force's 9th Bomb Squadron Commander Fired After Just a Couple of Months on the Job](https://news.yahoo.com/air-forces-9th-bomb-squadron-214024458.html)
 <!-- feed end -->
 
 ### Onstream
