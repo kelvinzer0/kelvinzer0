@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [A tourist outraged by her $1,000 restaurant bill called police after her group was served nearly 8 pounds of Alaskan King Crab](https://news.yahoo.com/tourist-outraged-her-1-000-063037305.html)
+- Sep 20 - [A tourist outraged by her $1,000 restaurant bill called the police after her group was served nearly 8 pounds of Alaskan King Crab](https://news.yahoo.com/tourist-outraged-her-1-000-063037305.html)
 - Sep 20 - [A 'sugar baby' is taking over TikTok with her post about the many demands her 'daddy' has for her, but the real story is wilder than you'd think](https://news.yahoo.com/sugar-baby-taking-over-tiktok-055329247.html)
 - Sep 20 - [A Batman researcher said 'gay' in a talk to schoolkids. When asked to censor himself, he quit](https://news.yahoo.com/batman-researcher-said-gay-talk-050853451.html)
 - Sep 20 - [Exclusive-Huawei unit ships Chinese-made surveillance chips in fresh comeback sign -sources](https://news.yahoo.com/exclusive-huawei-unit-ships-chinese-040615905.html)
