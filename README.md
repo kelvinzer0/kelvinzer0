@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 20 - [Some Virginia Democrats say livestreamed sex acts a distraction from election's real stakes](https://news.yahoo.com/virginia-democrats-livestreamed-sex-acts-000353705.html)
+- Sep 19 - [What we know about the Marine Corps F-35 crash, backyard ejection and what went wrong](https://news.yahoo.com/know-marine-corps-f-35-231025521.html)
 - Sep 19 - [Ten dogs stick together after being dumped, Florida cops say. They’ll get a 2nd chance](https://news.yahoo.com/ten-dogs-stick-together-being-221515837.html)
 - Sep 19 - [2 Women Accused of Throwing Baby ‘Like a Toy” Outside of Bar: Cops](https://news.yahoo.com/2-women-accused-throwing-baby-220649086.html)
 - Sep 19 - [Mexican railway operator halts trains because so many migrants are climbing aboard and getting hurt](https://news.yahoo.com/mexican-railway-operator-halts-trains-220341689.html)
-- Sep 19 - [Air Force's 9th Bomb Squadron Commander Fired After Just a Couple of Months on the Job](https://news.yahoo.com/air-forces-9th-bomb-squadron-214024458.html)
 <!-- feed end -->
 
 ### Onstream
