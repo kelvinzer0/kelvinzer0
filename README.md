@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 20 - [A Batman researcher said 'gay' in a talk to schoolkids. When asked to censor himself, he quit](https://news.yahoo.com/batman-researcher-said-gay-talk-050853451.html)
 - Sep 20 - [American Express CEO shares his intense daily routine — 17-hour days that start at 5:45 am and end at 10:30 pm. He answers emails for 3 hours.](https://finance.yahoo.com/news/american-express-ceo-shares-intense-194056282.html)
 - Sep 20 - [Ford avoids Canada walkout as UAW prepares for more US auto strikes](https://finance.yahoo.com/news/canadian-union-unifor-reaches-tentative-012046814.html)
 - Sep 20 - [Some Virginia Democrats say livestreamed sex acts a distraction from election's real stakes](https://news.yahoo.com/virginia-democrats-livestreamed-sex-acts-000353705.html)
 - Sep 19 - [2 teens in Las Vegas face murder charges for fatal hit-and-run they captured on video, police say](https://news.yahoo.com/second-teenager-arrested-video-recorded-235611377.html)
-- Sep 19 - [What we know about the Marine Corps F-35 crash, backyard ejection and what went wrong](https://news.yahoo.com/know-marine-corps-f-35-231025521.html)
 <!-- feed end -->
 
 ### Onstream
