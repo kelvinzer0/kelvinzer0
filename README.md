@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 20 - [What the Fed rate-hike pause means for bank accounts, CDs, loans, and credit cards](https://finance.yahoo.com/personal-finance/what-the-fed-rate-hike-pause-means-for-bank-accounts-cds-loans-and-credit-cards-183027625.html)
+- Sep 20 - [Fact check: Jim Jordan makes false claims about Trump, Hunter Biden to begin hearing on handling of the federal cases against them](https://news.yahoo.com/fact-check-jim-jordan-makes-175641619.html)
+- Sep 20 - [Video shows moments after Amazon driver bitten by venomous snake](https://news.yahoo.com/video-shows-moments-amazon-driver-174705263.html)
 - Sep 20 - [Ukraine, Russia and the tense U.N. encounter that almost happened — but didn't](https://news.yahoo.com/ukraine-russias-tense-u-n-174626006.html)
 - Sep 20 - [Ex-Trump Aide Says Rudy Giuliani Stuck His Hand Up Her Skirt on Jan. 6](https://news.yahoo.com/ex-trump-aide-says-rudy-173804395.html)
-- Sep 20 - [BMI alone is a poor indicator of health, the AMA says. These metrics may be better.](https://www.yahoo.com/lifestyle/bmi-alone-poor-indicator-health-211348802.html)
-- Sep 20 - [University of Central Florida to shut down three of its campuses](https://news.yahoo.com/university-central-florida-shut-down-163246427.html)
-- Sep 20 - ['You guys have lost your minds': Philadelphia man asks Dave Ramsey if he and his wife should borrow money — they make $180K/year but spend $80K on the kids. This was the guru's scathing reply](https://finance.yahoo.com/news/guys-lost-minds-man-asked-150000012.html)
 <!-- feed end -->
 
 ### Onstream
