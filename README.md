@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 20 - [Autopsy finds man who was punched at New England Patriots game before he died had medical issue](https://news.yahoo.com/autopsy-finds-man-punched-england-145310341.html)
+- Sep 20 - [Cops bound 6-year-old’s wrists with zip ties as she begged not to be arrested, suit says](https://news.yahoo.com/cops-bound-6-old-wrists-135250097.html)
+- Sep 20 - [Trump Privately Frets He Could Be Headed to Prison](https://news.yahoo.com/trump-privately-frets-could-headed-133000744.html)
+- Sep 20 - [Sam Bankman-Fried's dad emailed his son that he didn't know 'what to say' after finding he'd be paid $200,000 instead of $1 million by FTX — then looped in SBF's mom, lawsuit claims](https://news.yahoo.com/sam-bankman-frieds-dad-emailed-132722274.html)
 - Sep 20 - [What a Fed rate-hike pause would mean for bank accounts, CDs, loans, and credit cards](https://finance.yahoo.com/personal-finance/what-a-fed-rate-hike-pause-would-mean-for-bank-accounts-cds-loans-and-credit-cards-124343869.html)
-- Sep 20 - [These voters gave an unexpected answer when asked to pick Biden or Trump](https://news.yahoo.com/voters-gave-unexpected-answer-asked-005948906.html)
-- Sep 20 - [Haitian gangs call for armed overthrow of PM Henry as chaos escalates](https://news.yahoo.com/haitian-gangs-call-armed-overthrow-122317994.html)
-- Sep 20 - [Ukrainian drone captures Russian soldier pummeling subordinates with wooden stick – odd video](https://news.yahoo.com/ukrainian-drone-captures-russian-soldier-121700630.html)
-- Sep 20 - [Stanford University says it will return the 'entirety' of millions of dollars in gifts it received from bankrupt crypto firm FTX](https://news.yahoo.com/stanford-university-says-return-entirety-105544502.html)
 <!-- feed end -->
 
 ### Onstream
