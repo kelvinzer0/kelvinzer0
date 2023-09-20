@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - [What the Fed rate-hike pause means for bank accounts, CDs, loans, and credit cards](https://finance.yahoo.com/personal-finance/what-the-fed-rate-hike-pause-means-for-bank-accounts-cds-loans-and-credit-cards-183027625.html)
+- Sep 20 - [Former federal prosecutor who resigned from Trump-Russia probe says she left over concerns with Barr](https://news.yahoo.com/former-federal-prosecutor-resigned-trump-192210851.html)
+- Sep 20 - [The Russian empire is crumbling before Putin’s eyes](https://news.yahoo.com/russian-empire-crumbling-putin-eyes-190000056.html)
+- Sep 20 - [An Atlanta entrepreneur asked social media to 'blow up' his restaurant during a slow month. But it backfired after commenters overwhelmingly trashed it.](https://www.yahoo.com/entertainment/atlanta-entrepreneur-asked-social-media-182637427.html)
 - Sep 20 - [Fact check: Jim Jordan makes false claims about Trump, Hunter Biden to begin hearing on handling of the federal cases against them](https://news.yahoo.com/fact-check-jim-jordan-makes-175641619.html)
-- Sep 20 - [Video shows moments after Amazon driver bitten by venomous snake](https://news.yahoo.com/video-shows-moments-amazon-driver-174705263.html)
-- Sep 20 - [Ukraine, Russia and the tense U.N. encounter that almost happened — but didn't](https://news.yahoo.com/ukraine-russias-tense-u-n-174626006.html)
-- Sep 20 - [Ex-Trump Aide Says Rudy Giuliani Stuck His Hand Up Her Skirt on Jan. 6](https://news.yahoo.com/ex-trump-aide-says-rudy-173804395.html)
+- Sep 20 - [Shaquille O’Neal Invested In Google ‘By Accident’ Then Learned He Hit The Jackpot While Reading A Newspaper](https://finance.yahoo.com/news/shaquille-o-neal-invested-google-175105373.html)
 <!-- feed end -->
 
 ### Onstream
