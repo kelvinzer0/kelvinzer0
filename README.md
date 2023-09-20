@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 20 - ['Poor Sidney Powell': Ex-Trump Lawyer Mocked For Odd Complaint In New Filing](https://news.yahoo.com/poor-sidney-powell-ex-trump-151245350.html)
 - Sep 20 - ['You guys have lost your minds': Philadelphia man asks Dave Ramsey if he and his wife should borrow money — they make $180K/year but spend $80K on the kids. This was the guru's scathing reply](https://finance.yahoo.com/news/guys-lost-minds-man-asked-150000012.html)
 - Sep 20 - [Autopsy finds man who was punched at New England Patriots game before he died had medical issue](https://news.yahoo.com/autopsy-finds-man-punched-england-145310341.html)
+- Sep 20 - [MAGA Lawyer Lin Wood Flips Against Trump in Georgia Racketeering Case](https://news.yahoo.com/maga-lawyer-lin-wood-turns-142939667.html)
 - Sep 20 - [Cops bound 6-year-old’s wrists with zip ties as she begged not to be arrested, suit says](https://news.yahoo.com/cops-bound-6-old-wrists-135250097.html)
-- Sep 20 - [Trump Privately Frets He Could Be Headed to Prison](https://news.yahoo.com/trump-privately-frets-could-headed-133000744.html)
+- Sep 20 - [Sam Bankman-Fried's dad emailed his son that he didn't know 'what to say' after finding he'd be paid $200,000 instead of $1 million by FTX — then looped in SBF's mom, lawsuit claims](https://news.yahoo.com/sam-bankman-frieds-dad-emailed-132722274.html)
 <!-- feed end -->
 
 ### Onstream
