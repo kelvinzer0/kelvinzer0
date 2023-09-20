@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 20 - [Ukraine, Russia and the tense U.N. encounter that almost happened — but didn't](https://news.yahoo.com/ukraine-russias-tense-u-n-174626006.html)
+- Sep 20 - [Ex-Trump Aide Says Rudy Giuliani Stuck His Hand Up Her Skirt on Jan. 6](https://news.yahoo.com/ex-trump-aide-says-rudy-173804395.html)
+- Sep 20 - [BMI alone is a poor indicator of health, the AMA says. These metrics may be better.](https://www.yahoo.com/lifestyle/bmi-alone-poor-indicator-health-211348802.html)
+- Sep 20 - [University of Central Florida to shut down three of its campuses](https://news.yahoo.com/university-central-florida-shut-down-163246427.html)
 - Sep 20 - ['You guys have lost your minds': Philadelphia man asks Dave Ramsey if he and his wife should borrow money — they make $180K/year but spend $80K on the kids. This was the guru's scathing reply](https://finance.yahoo.com/news/guys-lost-minds-man-asked-150000012.html)
-- Sep 20 - [Autopsy finds man who was punched at New England Patriots game before he died had medical issue](https://news.yahoo.com/autopsy-finds-man-punched-england-145310341.html)
-- Sep 20 - [MAGA Lawyer Lin Wood Flips Against Trump in Georgia Racketeering Case](https://news.yahoo.com/maga-lawyer-lin-wood-turns-142939667.html)
-- Sep 20 - [Cops bound 6-year-old’s wrists with zip ties as she begged not to be arrested, suit says](https://news.yahoo.com/cops-bound-6-old-wrists-135250097.html)
-- Sep 20 - [Sam Bankman-Fried's dad emailed his son that he didn't know 'what to say' after finding he'd be paid $200,000 instead of $1 million by FTX — then looped in SBF's mom, lawsuit claims](https://news.yahoo.com/sam-bankman-frieds-dad-emailed-132722274.html)
 <!-- feed end -->
 
 ### Onstream
