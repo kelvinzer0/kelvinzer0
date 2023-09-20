@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 20 - [Fact check: Jim Jordan makes false claims about Trump, Hunter Biden to begin hearing on handling of the federal cases against them](https://news.yahoo.com/fact-check-jim-jordan-makes-175641619.html)
+- Sep 20 - [Saudi crown prince says in rare interview 'every day we get closer' to normalization with Israel](https://news.yahoo.com/saudi-crown-prince-says-rare-211232533.html)
+- Sep 20 - [Democrat Taunts GOP Leader With Bill To Block Lawmaker Pay During Government Shutdown](https://news.yahoo.com/democrat-taunts-gop-leader-bill-205115078.html)
 - Sep 20 - [‘They used cayenne pepper and honey to dress the wounds’: Warrant sheds new light on Ruby Franke, Jodi Hildebrandt child abuse case](https://news.yahoo.com/used-cayenne-pepper-honey-dress-200422466.html)
 - Sep 20 - [Trump blasts ‘nasty’ Megyn Kelly after interview](https://news.yahoo.com/trump-blasts-nasty-megyn-kelly-194513253.html)
-- Sep 20 - [Former federal prosecutor who resigned from Trump-Russia probe says she left over concerns with Barr](https://news.yahoo.com/former-federal-prosecutor-resigned-trump-192210851.html)
-- Sep 20 - [The Russian empire is crumbling before Putin’s eyes](https://news.yahoo.com/russian-empire-crumbling-putin-eyes-190000056.html)
-- Sep 20 - [‘Are you kidding me!’: Lawmaker calls out Jim Jordan at hearing](https://news.yahoo.com/kidding-lawmaker-calls-jim-jordan-183524295.html)
 <!-- feed end -->
 
 ### Onstream
