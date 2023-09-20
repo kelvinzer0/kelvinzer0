@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 20 - [What a Fed rate-hike pause would mean for bank accounts, CDs, loans, and credit cards](https://finance.yahoo.com/personal-finance/what-a-fed-rate-hike-pause-would-mean-for-bank-accounts-cds-loans-and-credit-cards-124343869.html)
+- Sep 20 - [These voters gave an unexpected answer when asked to pick Biden or Trump](https://news.yahoo.com/voters-gave-unexpected-answer-asked-005948906.html)
 - Sep 20 - [Haitian gangs call for armed overthrow of PM Henry as chaos escalates](https://news.yahoo.com/haitian-gangs-call-armed-overthrow-122317994.html)
-- Sep 20 - [Here's How Different 50 Years Old Looks Like On 60 Celebs Over The Last 40 Years](https://www.yahoo.com/entertainment/heres-different-50-years-old-105150826.html)
-- Sep 20 - ['We’re 2 months from going bankrupt, but I pretend things are fine': This California couple owns 5 motorcycles, spends half their income on rent — here's the real hard truth they had to face](https://finance.yahoo.com/news/2-months-going-bankrupt-pretend-100000729.html)
-- Sep 20 - [Teen kicked out of house by dad is kidnapped on streets, forced into sex slavery: prosecutor](https://news.yahoo.com/teen-kicked-house-dad-kidnapped-083008137.html)
-- Sep 20 - [Family displaced by hurricane shares callous letter received from ‘horrid’ neighbor: ‘This is just so cruel’](https://news.yahoo.com/family-displaced-hurricane-shares-callous-073000025.html)
+- Sep 20 - [Ukrainian drone captures Russian soldier pummeling subordinates with wooden stick – odd video](https://news.yahoo.com/ukrainian-drone-captures-russian-soldier-121700630.html)
+- Sep 20 - [Stanford University says it will return the 'entirety' of millions of dollars in gifts it received from bankrupt crypto firm FTX](https://news.yahoo.com/stanford-university-says-return-entirety-105544502.html)
 <!-- feed end -->
 
 ### Onstream
