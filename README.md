@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [New Ad Mocks 'Grifter' Ted Cruz For This 1 Annoying Habit](https://news.yahoo.com/ad-mocks-grifter-ted-cruz-072012710.html)
+- Sep 21 - ['Put the American public first': Senators introduce a bipartisan law to ban members of Congress and executive officials — including the president — from trading stocks](https://finance.yahoo.com/news/put-american-public-first-senators-211500437.html)
+- Sep 21 - [Suspected robber who allegedly pistol-whipped store clerk stopped in his tracks by armed good Samaritan: cops](https://news.yahoo.com/suspected-robber-allegedly-pistol-whipped-083055658.html)
 - Sep 21 - [Special operation in Crimea: Ukrainian Security Service and Navy deal powerful blow to Saky airfield](https://news.yahoo.com/special-operation-crimea-ukrainian-security-071453629.html)
 - Sep 21 - [Ex-White House Aide Reveals Why Trump Wouldn't Wear A Mask During Pandemic](https://news.yahoo.com/ex-white-house-aide-reveals-061332617.html)
 - Sep 21 - [2 police officers being investigated after telling a father his 11-year-old daughter could face child porn charges for sending images to a man online](https://news.yahoo.com/2-police-officers-being-investigated-234457171.html)
-- Sep 21 - [First private US passenger rail line in 100 years is about to link Miami and Orlando at high speed](https://news.yahoo.com/first-private-us-passenger-rail-051944723.html)
 <!-- feed end -->
 
 ### Onstream
