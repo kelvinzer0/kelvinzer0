@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 21 - [Under pressure over border, Biden admin grants protection to hundreds of thousands of Venezuelans](https://news.yahoo.com/under-pressure-over-border-biden-002325382.html)
+- Sep 20 - [Fact Check: Bill Clinton Accuses Republicans of Wanting Americans To Be ‘Very Miserable' and 'Angry'?](https://news.yahoo.com/fact-check-bill-clinton-accuses-232300002.html)
 - Sep 20 - [General Motors delivers hard-nosed message to UAW workers](https://www.thestreet.com/automotive/general-motors-delivers-hard-nosed-message-to-uaw-workers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Sep 20 - [Rosie O’Donnell Almost Died Of A ‘Massive’ Heart Attack After Ignoring 1 Major Symptom](https://www.yahoo.com/entertainment/rosie-o-donnell-almost-died-223421289.html)
 - Sep 20 - [Saudi crown prince says in rare interview 'every day we get closer' to normalization with Israel](https://news.yahoo.com/saudi-crown-prince-says-rare-211232533.html)
-- Sep 20 - [Democrat Taunts GOP Leader With Bill To Block Lawmaker Pay During Government Shutdown](https://news.yahoo.com/democrat-taunts-gop-leader-bill-205115078.html)
-- Sep 20 - [New poll finds 15% of Americans have had COVID 2 or 3 times. How harmful are repeat infections?](https://www.yahoo.com/lifestyle/how-harmful-are-repeat-covid-infections-202909858.html)
 <!-- feed end -->
 
 ### Onstream
