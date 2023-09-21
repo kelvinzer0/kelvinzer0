@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 21 - [Saudi crown prince suggests investment would stay in Kushner fund if Trump reelected](https://news.yahoo.com/saudi-crown-prince-suggests-investment-132753950.html)
 - Sep 21 - [A Swedish prosecutor says a 13-year-old who was shot in the head, is a victim of a bloody gang feud](https://news.yahoo.com/swedish-prosecutor-says-13-old-123704338.html)
 - Sep 21 - ['Holy, what did I do?': This NFL star retired at 28 to start selling Pokemon cards. His company is now embroiled in scandal — here are 2 types of collectibles you can confidently scoop up](https://finance.yahoo.com/news/holy-did-nfl-star-retired-110000236.html)
-- Sep 21 - [GOP Rep's Climate Gag At Pete Buttigieg Is Comedy Gold, For All The Wrong Reasons](https://news.yahoo.com/gop-reps-climate-gag-pete-115753832.html)
+- Sep 21 - [Europe is on the verge of surrendering Ukraine to Putin](https://news.yahoo.com/europe-verge-surrendering-ukraine-putin-121755895.html)
 - Sep 21 - [Tesla fans react strongly to reveal of new Model 3: ‘It’s enough to keep me from buying one’](https://news.yahoo.com/tesla-fans-react-strongly-reveal-103000051.html)
-- Sep 21 - ['Put the American public first': Senators introduce a bipartisan law to ban members of Congress and executive officials — including the president — from trading stocks](https://finance.yahoo.com/news/put-american-public-first-senators-211500437.html)
 <!-- feed end -->
 
 ### Onstream
