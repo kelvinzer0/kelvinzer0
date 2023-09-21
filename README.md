@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 21 - [Warren Buffett Cut Off His Granddaughter Who Spent Nearly Every Christmas and Spring Break With Him: 'I Have Not Emotionally Or Legally Adopted You As A Grandchild'](https://finance.yahoo.com/news/warren-buffett-cut-off-granddaughter-152900004.html)
+- Sep 21 - [Health violations close 2 Fresno markets, 5 restaurants until issues fixed. Here’s the list](https://news.yahoo.com/health-violations-close-2-fresno-143000424.html)
+- Sep 21 - [‘Ignorance for Someone’s Life’: 23-Year-Old Woman Charged After Leaving Tennessee State University Student for Dead on Side of Road](https://news.yahoo.com/ignorance-someone-life-23-old-142227727.html)
 - Sep 21 - [Trump, who led the longest government shutdown in US history, calls on Republicans to let it happen again in 9 days so they can 'defund these political prosecutions against me'](https://news.yahoo.com/trump-led-longest-government-shutdown-141158834.html)
-- Sep 21 - [Saudi crown prince suggests investment would stay in Kushner fund if Trump reelected](https://news.yahoo.com/saudi-crown-prince-suggests-investment-132753950.html)
-- Sep 21 - [A YouTuber bought an Amazon 'mystery' returns pallet for $675 from a liquidation center. He said the stuff inside was worth over $4,000.](https://news.yahoo.com/youtuber-bought-amazon-mystery-returns-131808291.html)
-- Sep 21 - [Shockingly Quick Defeat Shows Putin Is Now Too Weak to Defend His Allies](https://news.yahoo.com/shockingly-quick-defeat-shows-putin-130451245.html)
-- Sep 21 - [Trump knocks Charles Koch: ‘Very stupid, awkward, and highly overrated’](https://news.yahoo.com/trump-knocks-charles-koch-very-124025985.html)
+- Sep 21 - [Trump declared that 'Guam isn't America' when he was warned that the US territory could be vulnerable to a North Korean nuclear strike, report says](https://news.yahoo.com/trump-declared-guam-isnt-america-140517397.html)
 <!-- feed end -->
 
 ### Onstream
