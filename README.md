@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Sep 21 - [Ex-White House Aide Reveals Why Trump Wouldn't Wear A Mask During Pandemic](https://news.yahoo.com/ex-white-house-aide-reveals-061332617.html)
 - Sep 21 - [2 police officers being investigated after telling a father his 11-year-old daughter could face child porn charges for sending images to a man online](https://news.yahoo.com/2-police-officers-being-investigated-234457171.html)
 - Sep 21 - [White House Taunts 'Worst Person' Matt Gaetz With A Well-Timed Meme](https://news.yahoo.com/white-house-taunts-worst-person-033509583.html)
+- Sep 21 - [Saudi Leader Mohammed Bin Salman Addresses Saudi Arabia’s Role In 9/11 Attacks In Fox News Interview](https://www.yahoo.com/entertainment/saudi-leader-mohammed-bin-salman-022040659.html)
 - Sep 21 - [An injured hiker rescued from the Grand Canyon says his 4 friends were 'unjustly vilified' after officials falsely claimed the group left him behind](https://news.yahoo.com/injured-hiker-rescued-grand-canyon-015906941.html)
-- Sep 21 - [Florida women outside Coyote Ugly bar seen tossing baby around 'like a toy' moments before fight breaks out](https://news.yahoo.com/florida-women-outside-coyote-ugly-003720553.html)
 <!-- feed end -->
 
 ### Onstream
