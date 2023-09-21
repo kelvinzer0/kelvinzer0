@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 21 - [Jury fails to reach verdict after brutal attack on 68-year-old Asian jewelry store owner](https://news.yahoo.com/jury-fails-reach-verdict-brutal-184941100.html)
 - Sep 21 - [US general says Trump was angered by invite to wounded soldier: "Nobody wants to see that"](https://news.yahoo.com/us-general-says-trump-angered-173421588.html)
 - Sep 21 - ['The Country Was Thriving': Joe Rogan Says That 'More Things Were Getting Done' When Donald Trump Was President — Unemployment Was Down, Regulations Relaxed. Is He Right?](https://finance.yahoo.com/news/country-thriving-joe-rogan-says-162219415.html)
 - Sep 21 - [Aerial footage from Ukraine offers a new look at a rare tank-on-tank battle that ends with a close-range kill of Russian armor](https://news.yahoo.com/aerial-footage-ukraine-offers-look-163509433.html)
 - Sep 21 - [TikToker points out sign that the 'viral plane video' you're watching might actually be fake: 'I can always tell'](https://news.yahoo.com/tiktoker-points-out-sign-that-the-viral-plane-video-youre-watching-might-actually-be-fake-i-can-always-tell-162252891.html)
-- Sep 21 - [Warren Buffett Cut Off His Granddaughter Who Spent Nearly Every Christmas and Spring Break With Him: 'I Have Not Emotionally Or Legally Adopted You As A Grandchild'](https://finance.yahoo.com/news/warren-buffett-cut-off-granddaughter-152900004.html)
 <!-- feed end -->
 
 ### Onstream
