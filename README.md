@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [Trump says he always had autoworkers' backs. Union leaders say his first-term record shows otherwise](https://finance.yahoo.com/news/trump-says-always-had-autoworkers-172728735.html)
+- Sep 21 - [US general says Trump was angered by invite to wounded soldier: "Nobody wants to see that"](https://news.yahoo.com/us-general-says-trump-angered-173421588.html)
 - Sep 21 - ['The Country Was Thriving': Joe Rogan Says That 'More Things Were Getting Done' When Donald Trump Was President — Unemployment Was Down, Regulations Relaxed. Is He Right?](https://finance.yahoo.com/news/country-thriving-joe-rogan-says-162219415.html)
-- Sep 21 - [Videos of Lamborghini Huracan Dropped on Milk Crates in Bronx Surface on TikTok](https://www.yahoo.com/lifestyle/videos-lamborghini-huracan-dropped-milk-170800517.html)
-- Sep 21 - [15-year-old dies in fiery school van crash, PA officials say. ‘Completely devastating’](https://news.yahoo.com/15-old-dies-fiery-school-170335690.html)
 - Sep 21 - [Aerial footage from Ukraine offers a new look at a rare tank-on-tank battle that ends with a close-range kill of Russian armor](https://news.yahoo.com/aerial-footage-ukraine-offers-look-163509433.html)
+- Sep 21 - [TikToker points out sign that the 'viral plane video' you're watching might actually be fake: 'I can always tell'](https://news.yahoo.com/tiktoker-points-out-sign-that-the-viral-plane-video-youre-watching-might-actually-be-fake-i-can-always-tell-162252891.html)
+- Sep 21 - [Warren Buffett Cut Off His Granddaughter Who Spent Nearly Every Christmas and Spring Break With Him: 'I Have Not Emotionally Or Legally Adopted You As A Grandchild'](https://finance.yahoo.com/news/warren-buffett-cut-off-granddaughter-152900004.html)
 <!-- feed end -->
 
 ### Onstream
