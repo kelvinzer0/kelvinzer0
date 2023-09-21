@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 21 - [An injured hiker rescued from the Grand Canyon says his 4 friends were 'unjustly vilified' after officials falsely claimed the group left him behind](https://news.yahoo.com/injured-hiker-rescued-grand-canyon-015906941.html)
 - Sep 21 - [2 police officers being investigated after telling a father his 11-year-old daughter could face child porn charges for sending images to a man online](https://news.yahoo.com/2-police-officers-being-investigated-234457171.html)
+- Sep 21 - [Florida women outside Coyote Ugly bar seen tossing baby around 'like a toy' moments before fight breaks out](https://news.yahoo.com/florida-women-outside-coyote-ugly-003720553.html)
 - Sep 21 - [Under pressure over border, Biden administration to protect hundreds of thousands of Venezuelans](https://news.yahoo.com/under-pressure-over-border-biden-002325382.html)
 - Sep 20 - [Florida couple allegedly performed sex acts on children, face life in prison](https://news.yahoo.com/florida-couple-allegedly-performed-sex-233118292.html)
-- Sep 20 - [General Motors delivers hard-nosed message to UAW workers](https://www.thestreet.com/automotive/general-motors-delivers-hard-nosed-message-to-uaw-workers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
