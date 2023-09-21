@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [Jury fails to reach verdict after brutal attack on 68-year-old Asian jewelry store owner](https://news.yahoo.com/jury-fails-reach-verdict-brutal-184941100.html)
-- Sep 21 - [US general says Trump was angered by invite to wounded soldier: "Nobody wants to see that"](https://news.yahoo.com/us-general-says-trump-angered-173421588.html)
-- Sep 21 - ['The Country Was Thriving': Joe Rogan Says That 'More Things Were Getting Done' When Donald Trump Was President — Unemployment Was Down, Regulations Relaxed. Is He Right?](https://finance.yahoo.com/news/country-thriving-joe-rogan-says-162219415.html)
-- Sep 21 - [Aerial footage from Ukraine offers a new look at a rare tank-on-tank battle that ends with a close-range kill of Russian armor](https://news.yahoo.com/aerial-footage-ukraine-offers-look-163509433.html)
-- Sep 21 - [TikToker points out sign that the 'viral plane video' you're watching might actually be fake: 'I can always tell'](https://news.yahoo.com/tiktoker-points-out-sign-that-the-viral-plane-video-youre-watching-might-actually-be-fake-i-can-always-tell-162252891.html)
+- Sep 21 - [Palestinian leader tells UN there can be no Mideast peace without his people enjoying full rights](https://news.yahoo.com/palestinian-leader-tells-un-no-202147360.html)
+- Sep 21 - [All labia look different — and their appearance can change over time. Experts explain.](https://www.yahoo.com/lifestyle/do-labias-change-over-time-201354712.html)
+- Sep 21 - [A toddler lost in the woods is found asleep using family dog as a pillow](https://news.yahoo.com/toddler-lost-woods-found-asleep-201230504.html)
+- Sep 21 - [The wife of a man who died after starting a fight at a Patriots game says her husband was verbally taunted by other fans. Authorities say they're trying to figure out what happened.](https://news.yahoo.com/wife-man-died-starting-fight-162020598.html)
+- Sep 21 - [Outrage Grows as Rabbis Who Admitted to Recklessly Starting Deadly Nursing Home Fire Avoid Jail Time: ‘Horrendous Act’](https://news.yahoo.com/outrage-grows-rabbis-admitted-recklessly-190000007.html)
 <!-- feed end -->
 
 ### Onstream
