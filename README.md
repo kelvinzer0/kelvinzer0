@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [Palestinian leader tells UN there can be no Mideast peace without his people enjoying full rights](https://news.yahoo.com/palestinian-leader-tells-un-no-202147360.html)
+- Sep 21 - ["Not even in the ballpark": Judge dismisses three "obviously unqualified" Kari Lake witnesses](https://news.yahoo.com/not-even-ballpark-judge-dismisses-210144137.html)
+- Sep 21 - [What striking workers get wrong about automaker profits](https://finance.yahoo.com/news/what-striking-workers-get-wrong-about-automaker-profits-205100951.html)
+- Sep 21 - [‘It Was Grievous’: Southern Baptist Convention Expels Oklahoma Church After Images of Pastor In Blackface Surface Online; Faith Leader Claims He’s ‘Not Racist All’](https://news.yahoo.com/grievous-southern-baptist-convention-expels-204355749.html)
+- Sep 21 - [911 call shows bizarre circumstances of F-35 ejection: 'Not sure where the airplane is,' pilot says](https://news.yahoo.com/marines-f-35-feature-protect-204143128.html)
 - Sep 21 - [All labia look different — and their appearance can change over time. Experts explain.](https://www.yahoo.com/lifestyle/do-labias-change-over-time-201354712.html)
-- Sep 21 - [A toddler lost in the woods is found asleep using family dog as a pillow](https://news.yahoo.com/toddler-lost-woods-found-asleep-201230504.html)
-- Sep 21 - [The wife of a man who died after starting a fight at a Patriots game says her husband was verbally taunted by other fans. Authorities say they're trying to figure out what happened.](https://news.yahoo.com/wife-man-died-starting-fight-162020598.html)
-- Sep 21 - [Outrage Grows as Rabbis Who Admitted to Recklessly Starting Deadly Nursing Home Fire Avoid Jail Time: ‘Horrendous Act’](https://news.yahoo.com/outrage-grows-rabbis-admitted-recklessly-190000007.html)
 <!-- feed end -->
 
 ### Onstream
