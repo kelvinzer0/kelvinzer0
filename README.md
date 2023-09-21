@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 21 - [Russian soldiers who ran out of ammunition say they are being sent to 'certain death' in a video shared by a Ukrainian official](https://news.yahoo.com/russian-soldiers-ran-ammunition-being-161529530.html)
 - Sep 21 - [Warren Buffett Cut Off His Granddaughter Who Spent Nearly Every Christmas and Spring Break With Him: 'I Have Not Emotionally Or Legally Adopted You As A Grandchild'](https://finance.yahoo.com/news/warren-buffett-cut-off-granddaughter-152900004.html)
+- Sep 21 - [Mississippi auditor says several college majors indoctrinate students and should be defunded](https://news.yahoo.com/mississippi-auditor-says-several-college-144453922.html)
 - Sep 21 - [Health violations close 2 Fresno markets, 5 restaurants until issues fixed. Here’s the list](https://news.yahoo.com/health-violations-close-2-fresno-143000424.html)
 - Sep 21 - [‘Ignorance for Someone’s Life’: 23-Year-Old Woman Charged After Leaving Tennessee State University Student for Dead on Side of Road](https://news.yahoo.com/ignorance-someone-life-23-old-142227727.html)
-- Sep 21 - [Trump, who led the longest government shutdown in US history, calls on Republicans to let it happen again in 9 days so they can 'defund these political prosecutions against me'](https://news.yahoo.com/trump-led-longest-government-shutdown-141158834.html)
-- Sep 21 - [Trump declared that 'Guam isn't America' when he was warned that the US territory could be vulnerable to a North Korean nuclear strike, report says](https://news.yahoo.com/trump-declared-guam-isnt-america-140517397.html)
 <!-- feed end -->
 
 ### Onstream
