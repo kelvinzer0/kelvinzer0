@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 21 - [Russian soldiers who ran out of ammunition say they are being sent to 'certain death' in a video shared by a Ukrainian official](https://news.yahoo.com/russian-soldiers-ran-ammunition-being-161529530.html)
-- Sep 21 - [Warren Buffett Cut Off His Granddaughter Who Spent Nearly Every Christmas and Spring Break With Him: 'I Have Not Emotionally Or Legally Adopted You As A Grandchild'](https://finance.yahoo.com/news/warren-buffett-cut-off-granddaughter-152900004.html)
-- Sep 21 - [Mississippi auditor says several college majors indoctrinate students and should be defunded](https://news.yahoo.com/mississippi-auditor-says-several-college-144453922.html)
-- Sep 21 - [Health violations close 2 Fresno markets, 5 restaurants until issues fixed. Here’s the list](https://news.yahoo.com/health-violations-close-2-fresno-143000424.html)
-- Sep 21 - [‘Ignorance for Someone’s Life’: 23-Year-Old Woman Charged After Leaving Tennessee State University Student for Dead on Side of Road](https://news.yahoo.com/ignorance-someone-life-23-old-142227727.html)
+- Sep 21 - [Trump says he always had autoworkers' backs. Union leaders say his first-term record shows otherwise](https://finance.yahoo.com/news/trump-says-always-had-autoworkers-172728735.html)
+- Sep 21 - ['The Country Was Thriving': Joe Rogan Says That 'More Things Were Getting Done' When Donald Trump Was President — Unemployment Was Down, Regulations Relaxed. Is He Right?](https://finance.yahoo.com/news/country-thriving-joe-rogan-says-162219415.html)
+- Sep 21 - [Videos of Lamborghini Huracan Dropped on Milk Crates in Bronx Surface on TikTok](https://www.yahoo.com/lifestyle/videos-lamborghini-huracan-dropped-milk-170800517.html)
+- Sep 21 - [15-year-old dies in fiery school van crash, PA officials say. ‘Completely devastating’](https://news.yahoo.com/15-old-dies-fiery-school-170335690.html)
+- Sep 21 - [Aerial footage from Ukraine offers a new look at a rare tank-on-tank battle that ends with a close-range kill of Russian armor](https://news.yahoo.com/aerial-footage-ukraine-offers-look-163509433.html)
 <!-- feed end -->
 
 ### Onstream
