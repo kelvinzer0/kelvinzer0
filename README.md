@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 21 - [New Ad Mocks 'Grifter' Ted Cruz For This 1 Annoying Habit](https://news.yahoo.com/ad-mocks-grifter-ted-cruz-072012710.html)
+- Sep 21 - [Special operation in Crimea: Ukrainian Security Service and Navy deal powerful blow to Saky airfield](https://news.yahoo.com/special-operation-crimea-ukrainian-security-071453629.html)
 - Sep 21 - [Ex-White House Aide Reveals Why Trump Wouldn't Wear A Mask During Pandemic](https://news.yahoo.com/ex-white-house-aide-reveals-061332617.html)
 - Sep 21 - [2 police officers being investigated after telling a father his 11-year-old daughter could face child porn charges for sending images to a man online](https://news.yahoo.com/2-police-officers-being-investigated-234457171.html)
-- Sep 21 - [White House Taunts 'Worst Person' Matt Gaetz With A Well-Timed Meme](https://news.yahoo.com/white-house-taunts-worst-person-033509583.html)
-- Sep 21 - [An injured hiker rescued from the Grand Canyon says his 4 friends were 'unjustly vilified' after officials falsely claimed the group left him behind](https://news.yahoo.com/injured-hiker-rescued-grand-canyon-015906941.html)
-- Sep 21 - [Florida women outside Coyote Ugly bar seen tossing baby around 'like a toy' moments before fight breaks out](https://news.yahoo.com/florida-women-outside-coyote-ugly-003720553.html)
+- Sep 21 - [First private US passenger rail line in 100 years is about to link Miami and Orlando at high speed](https://news.yahoo.com/first-private-us-passenger-rail-051944723.html)
 <!-- feed end -->
 
 ### Onstream
