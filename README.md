@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [US will send Ukraine ATACMS long-range missiles, Biden tells Zelenskiy -NBC](https://news.yahoo.com/us-send-ukraine-atacms-long-153946594.html)
+- Sep 22 - [“He’s not here, we are": House Republicans ice out Trump, look to make a deal with Democrats](https://news.yahoo.com/not-house-republicans-ice-trump-155138423.html)
 - Sep 22 - [The Clarence Thomas Corruption Saga Just Got Even Worse](https://news.yahoo.com/clarence-thomas-corruption-saga-just-143955443.html)
 - Sep 22 - [Federal agents found more than $480,000 in cash 'stuffed into envelopes and hidden in clothing' in Sen. Bob Menendez's home, indictment says](https://news.yahoo.com/federal-agents-found-more-480-143147318.html)
 - Sep 22 - [Woman accused of firing gun at Dierks Bentley’s Whiskey Row after being denied entry, police say](https://news.yahoo.com/woman-accused-firing-gun-dierks-140630426.html)
