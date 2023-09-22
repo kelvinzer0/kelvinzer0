@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [Sen. Menendez, wife indicted on bribe charges as probe finds $100,000 in gold bars, prosecutors say](https://news.yahoo.com/jersey-sen-menendez-wife-indicted-134147888.html)
+- Sep 22 - [US will send Ukraine ATACMS long-range missiles, Biden tells Zelenskiy -NBC](https://news.yahoo.com/us-send-ukraine-atacms-long-153946594.html)
+- Sep 22 - [The Clarence Thomas Corruption Saga Just Got Even Worse](https://news.yahoo.com/clarence-thomas-corruption-saga-just-143955443.html)
+- Sep 22 - [Federal agents found more than $480,000 in cash 'stuffed into envelopes and hidden in clothing' in Sen. Bob Menendez's home, indictment says](https://news.yahoo.com/federal-agents-found-more-480-143147318.html)
+- Sep 22 - [Woman accused of firing gun at Dierks Bentley’s Whiskey Row after being denied entry, police say](https://news.yahoo.com/woman-accused-firing-gun-dierks-140630426.html)
 - Sep 22 - [This massive armored vehicle has a giant plow for clearing Russian mines](https://news.yahoo.com/massive-armored-vehicle-giant-plow-133650775.html)
-- Sep 22 - [Hear what Trump reportedly said about injured veteran after this hug](https://news.yahoo.com/hear-trump-reportedly-said-injured-133102816.html)
-- Sep 22 - [Ask an Advisor: My Wife Claimed Social Security at 65. Can She Collect the Max Spousal Benefit When I Retire?](https://finance.yahoo.com/news/ask-advisor-wife-claimed-social-110000148.html)
-- Sep 22 - [Lawrence O'Donnell Torches 'Stupidest ... Most Disgraceful Senator Of The Year'](https://news.yahoo.com/lawrence-odonnell-torches-stupidest-most-101842258.html)
 <!-- feed end -->
 
 ### Onstream
