@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 22 - [Lawrence O'Donnell Torches 'Stupidest ... Most Disgraceful Senator Of The Year'](https://news.yahoo.com/lawrence-odonnell-torches-stupidest-most-101842258.html)
-- Sep 22 - ['You should never be at home': This NYU professor went viral for saying young folks need to get out of the house to succeed — but his advice got blasted online](https://finance.yahoo.com/news/never-home-58-old-nyu-110000040.html)
+- Sep 22 - [Tesla lands in hot water after new report alleges the company told a huge, long-term lie about its vehicles](https://news.yahoo.com/tesla-lands-hot-water-report-100000724.html)
 - Sep 22 - [House Republicans as government shutdown nears: Nobody told us we'd have to govern](https://news.yahoo.com/house-republicans-government-shutdown-nears-080813409.html)
 - Sep 22 - [Anthony Fauci Exposes Ugly Reality Behind Ron DeSantis' Dangerous Attacks](https://news.yahoo.com/anthony-fauci-exposes-ugly-reality-074717738.html)
 - Sep 22 - [A wingsuit flyer was decapitated when he jumped out of a plane and got struck by its wing](https://news.yahoo.com/wingsuit-flyer-decapitated-jumped-plane-050556488.html)
