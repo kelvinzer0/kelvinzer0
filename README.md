@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 22 - [Caught on tape: Filipino airport officer stuffs money stolen from passenger into her mouth](https://news.yahoo.com/caught-tape-filipino-airport-officer-181701698.html)
+- Sep 22 - [Fact Check: Michelle Obama Finally Releases Photos of Herself Pregnant?](https://news.yahoo.com/fact-check-michelle-obama-finally-174600541.html)
+- Sep 22 - [Mel Tucker changed his story, misled investigator in Michigan State sexual harassment case](https://news.yahoo.com/mel-tucker-changed-story-misled-172226562.html)
 - Sep 22 - [McCarthy vows to strip Ukraine money from Pentagon bill after Greene ‘no’ vote](https://news.yahoo.com/mccarthy-vows-strip-ukraine-money-170922855.html)
 - Sep 22 - [Man is weirded out by random stranger recording and uploading private moment in line to TikTok: ‘This is out of hand’](https://news.yahoo.com/man-weirded-random-stranger-recording-170735520.html)
-- Sep 22 - [People Are Sharing Disgusting Things That Have Been Normalized, And I Definitely Agree With Some Of These](https://www.yahoo.com/lifestyle/people-sharing-disgusting-things-normalized-164503652.html)
-- Sep 22 - [Family of Black Man Who Died From ‘Medieval Torture’ Receives Millions From the State of Virginia](https://news.yahoo.com/family-black-man-died-medieval-163808549.html)
-- Sep 22 - [“He’s not here, we are": House Republicans ice out Trump, look to make a deal with Democrats](https://news.yahoo.com/not-house-republicans-ice-trump-155138423.html)
 <!-- feed end -->
 
 ### Onstream
