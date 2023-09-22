@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 22 - [House Republicans as government shutdown nears: Nobody told us we'd have to govern](https://news.yahoo.com/house-republicans-government-shutdown-nears-080813409.html)
 - Sep 22 - [Anthony Fauci Exposes Ugly Reality Behind Ron DeSantis' Dangerous Attacks](https://news.yahoo.com/anthony-fauci-exposes-ugly-reality-074717738.html)
-- Sep 22 - [In Georgia, Donald Trump May Have Just Met His Match in Battle](https://news.yahoo.com/georgia-donald-trump-may-just-051003314.html)
 - Sep 22 - [A wingsuit flyer was decapitated when he jumped out of a plane and got struck by its wing](https://news.yahoo.com/wingsuit-flyer-decapitated-jumped-plane-050556488.html)
-- Sep 22 - [“She Was Escorted Out Within Three Hours”: People Are Sharing The Time They Witnessed A New Coworker Get Fired Extremely Fast](https://www.yahoo.com/lifestyle/she-escorted-within-three-hours-031602248.html)
-- Sep 22 - [Ukraine reaches Russia's last defence line in Zaporizhzhia Oblast − ISW](https://news.yahoo.com/ukraine-reaches-russias-last-defence-025527105.html)
+- Sep 22 - [Bill Gates speaks out on major overlooked contributor to Earth’s overheating: ‘The one that people are probably least aware of’](https://news.yahoo.com/bill-gates-speaks-major-overlooked-050000608.html)
+- Sep 22 - [Joe Biden Kicks Fleeing House Republicans With A Scathing Send-Off Message](https://news.yahoo.com/joe-biden-kicks-fleeing-house-035503195.html)
 <!-- feed end -->
 
 ### Onstream
