@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 22 - [Iowa man disappears on the day a jury finds him guilty of killing his wife](https://news.yahoo.com/iowa-man-disappears-day-jury-213110510.html)
+- Sep 22 - [‘I Almost Blacked Out’: Chicago 11-Year-Old Was Beaten So Bad By Two Adult Women She Has to Get Two Eye Surgeries; No Arrests Made](https://news.yahoo.com/almost-blacked-chicago-11-old-220000121.html)
 - Sep 22 - [Federal judge again strikes down California law banning high capacity gun magazines](https://news.yahoo.com/federal-judge-again-strikes-down-211712266.html)
+- Sep 22 - [12 Kansas City area CVS locations close as pharmacists walk out over working conditions](https://news.yahoo.com/12-kansas-city-area-cvs-210603006.html)
+- Sep 22 - [Man charged with reporting fake bear attack to get out of West Virginia woods](https://news.yahoo.com/man-charged-reporting-fake-bear-204531150.html)
 - Sep 22 - [San Jose Vietnamese restaurant's 'automatic 18% service charge’ for solo diner goes viral](https://news.yahoo.com/san-jose-vietnamese-restaurants-automatic-203144971.html)
-- Sep 22 - [Women on TikTok are sharing their breast reduction stories and how it’s changed their lives](https://news.yahoo.com/women-tiktok-sharing-breast-reduction-202320729.html)
-- Sep 22 - [The fight over Arizona's shipping container border wall ends with dismissal of federal lawsuits](https://news.yahoo.com/fight-over-arizonas-shipping-container-201249436.html)
 <!-- feed end -->
 
 ### Onstream
