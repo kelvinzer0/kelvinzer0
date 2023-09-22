@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 22 - [McCarthy vows to strip Ukraine money from Pentagon bill after Greene ‘no’ vote](https://news.yahoo.com/mccarthy-vows-strip-ukraine-money-170922855.html)
+- Sep 22 - [Man is weirded out by random stranger recording and uploading private moment in line to TikTok: ‘This is out of hand’](https://news.yahoo.com/man-weirded-random-stranger-recording-170735520.html)
+- Sep 22 - [People Are Sharing Disgusting Things That Have Been Normalized, And I Definitely Agree With Some Of These](https://www.yahoo.com/lifestyle/people-sharing-disgusting-things-normalized-164503652.html)
+- Sep 22 - [Family of Black Man Who Died From ‘Medieval Torture’ Receives Millions From the State of Virginia](https://news.yahoo.com/family-black-man-died-medieval-163808549.html)
 - Sep 22 - [“He’s not here, we are": House Republicans ice out Trump, look to make a deal with Democrats](https://news.yahoo.com/not-house-republicans-ice-trump-155138423.html)
-- Sep 22 - [The Clarence Thomas Corruption Saga Just Got Even Worse](https://news.yahoo.com/clarence-thomas-corruption-saga-just-143955443.html)
-- Sep 22 - [Federal agents found more than $480,000 in cash 'stuffed into envelopes and hidden in clothing' in Sen. Bob Menendez's home, indictment says](https://news.yahoo.com/federal-agents-found-more-480-143147318.html)
-- Sep 22 - [Woman accused of firing gun at Dierks Bentley’s Whiskey Row after being denied entry, police say](https://news.yahoo.com/woman-accused-firing-gun-dierks-140630426.html)
-- Sep 22 - [This massive armored vehicle has a giant plow for clearing Russian mines](https://news.yahoo.com/massive-armored-vehicle-giant-plow-133650775.html)
 <!-- feed end -->
 
 ### Onstream
