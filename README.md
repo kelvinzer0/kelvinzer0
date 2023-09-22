@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 21 - [$70M Powerball winner, who was forced to reveal her identity, is now a fierce advocate for anonymity](https://finance.yahoo.com/news/70m-powerball-winner-forced-reveal-222930127.html)
+- Sep 21 - [Las Vegas teens accused of intentionally hitting, killing bicyclist make first adult court appearance](https://news.yahoo.com/las-vegas-teens-accused-intentionally-211936333.html)
 - Sep 21 - ["Not even in the ballpark": Judge dismisses three "obviously unqualified" Kari Lake witnesses](https://news.yahoo.com/not-even-ballpark-judge-dismisses-210144137.html)
 - Sep 21 - [What striking workers get wrong about automaker profits](https://finance.yahoo.com/news/what-striking-workers-get-wrong-about-automaker-profits-205100951.html)
 - Sep 21 - [‘It Was Grievous’: Southern Baptist Convention Expels Oklahoma Church After Images of Pastor In Blackface Surface Online; Faith Leader Claims He’s ‘Not Racist All’](https://news.yahoo.com/grievous-southern-baptist-convention-expels-204355749.html)
-- Sep 21 - [911 call shows bizarre circumstances of F-35 ejection: 'Not sure where the airplane is,' pilot says](https://news.yahoo.com/marines-f-35-feature-protect-204143128.html)
-- Sep 21 - [Palestinian leader tells UN there can be no Mideast peace without his people enjoying full rights](https://news.yahoo.com/palestinian-leader-tells-un-no-202147360.html)
 <!-- feed end -->
 
 ### Onstream
