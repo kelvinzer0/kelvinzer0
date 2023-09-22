@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 22 - [The fight over Arizona's shipping container border wall ends with dismissal of federal lawsuits](https://news.yahoo.com/fight-over-arizonas-shipping-container-201249436.html)
 - Sep 22 - [US Senator Bob Menendez and wife charged in bribery inquiry](https://news.yahoo.com/us-senator-bob-menendez-charged-135524697.html)
+- Sep 22 - [Mark Zuckerberg and Priscilla Chan announced they're building a computing system to help eliminate human disease by 2100, but costs may be hefty](https://news.yahoo.com/mark-zuckerberg-priscilla-chan-announced-194057225.html)
 - Sep 22 - [Judge peppers lawyers in prelude to trial of New York's business fraud lawsuit against Trump](https://news.yahoo.com/judge-peppers-lawyers-prelude-trial-192245897.html)
 - Sep 22 - [Judge overseeing case to remove Trump from ballot agrees to order banning threats and intimidation](https://news.yahoo.com/judge-overseeing-case-remove-trump-191917634.html)
-- Sep 22 - [Dallas mayor switches parties, making the city the nation's largest with a GOP mayor](https://news.yahoo.com/dallas-mayor-switches-parties-making-191835143.html)
-- Sep 22 - [Caught on tape: Filipino airport officer stuffs money stolen from passenger into her mouth](https://news.yahoo.com/caught-tape-filipino-airport-officer-181701698.html)
 <!-- feed end -->
 
 ### Onstream
