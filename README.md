@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 22 - [Sen. Menendez, wife indicted on bribe charges as probe finds $100,000 in gold bars, prosecutors say](https://news.yahoo.com/jersey-sen-menendez-wife-indicted-134147888.html)
+- Sep 22 - [This massive armored vehicle has a giant plow for clearing Russian mines](https://news.yahoo.com/massive-armored-vehicle-giant-plow-133650775.html)
+- Sep 22 - [Hear what Trump reportedly said about injured veteran after this hug](https://news.yahoo.com/hear-trump-reportedly-said-injured-133102816.html)
 - Sep 22 - [Ask an Advisor: My Wife Claimed Social Security at 65. Can She Collect the Max Spousal Benefit When I Retire?](https://finance.yahoo.com/news/ask-advisor-wife-claimed-social-110000148.html)
 - Sep 22 - [Lawrence O'Donnell Torches 'Stupidest ... Most Disgraceful Senator Of The Year'](https://news.yahoo.com/lawrence-odonnell-torches-stupidest-most-101842258.html)
-- Sep 22 - [Tesla lands in hot water after new report alleges the company told a huge, long-term lie about its vehicles](https://news.yahoo.com/tesla-lands-hot-water-report-100000724.html)
-- Sep 22 - [House Republicans as government shutdown nears: Nobody told us we'd have to govern](https://news.yahoo.com/house-republicans-government-shutdown-nears-080813409.html)
 <!-- feed end -->
 
 ### Onstream
