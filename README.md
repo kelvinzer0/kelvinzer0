@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 22 - [South Korea asks US to resolve chip trade issues](https://finance.yahoo.com/news/south-korea-asks-us-resolve-013445343.html)
 - Sep 22 - ['I ejected': Pilot of crashed F-35 jet in South Carolina pleads for help in phone call](https://news.yahoo.com/ejected-pilot-crashed-f-35-011523688.html)
 - Sep 21 - [‘If this is what they believe they need to do, to kill me to move on, I’m happy for them’: Oklahoma executes death-row inmate for 1996 murder](https://news.yahoo.com/believe-kill-move-m-happy-211904839.html)
 - Sep 21 - ["Not even in the ballpark": Judge dismisses three "obviously unqualified" Kari Lake witnesses](https://news.yahoo.com/not-even-ballpark-judge-dismisses-210144137.html)
 - Sep 21 - [What striking workers get wrong about automaker profits](https://finance.yahoo.com/news/what-striking-workers-get-wrong-about-automaker-profits-205100951.html)
-- Sep 21 - [‘It Was Grievous’: Southern Baptist Convention Expels Oklahoma Church After Images of Pastor In Blackface Surface Online; Faith Leader Claims He’s ‘Not Racist All’](https://news.yahoo.com/grievous-southern-baptist-convention-expels-204355749.html)
 <!-- feed end -->
 
 ### Onstream
