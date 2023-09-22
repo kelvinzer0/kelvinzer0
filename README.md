@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 22 - [In Georgia, Donald Trump May Have Just Met His Match in Battle](https://news.yahoo.com/georgia-donald-trump-may-just-051003314.html)
 - Sep 22 - [A wingsuit flyer was decapitated when he jumped out of a plane and got struck by its wing](https://news.yahoo.com/wingsuit-flyer-decapitated-jumped-plane-050556488.html)
 - Sep 22 - [“She Was Escorted Out Within Three Hours”: People Are Sharing The Time They Witnessed A New Coworker Get Fired Extremely Fast](https://www.yahoo.com/lifestyle/she-escorted-within-three-hours-031602248.html)
+- Sep 22 - [Ukraine reaches Russia's last defence line in Zaporizhzhia Oblast − ISW](https://news.yahoo.com/ukraine-reaches-russias-last-defence-025527105.html)
 - Sep 22 - [Florida woman allegedly attacked 2 people at pool for doing 'inappropriate' stretches](https://news.yahoo.com/florida-woman-allegedly-attacked-2-014745829.html)
-- Sep 22 - [Las Vegas teen expected ‘slap on the wrist’ for hitting, killing cyclist: ‘I’ll be out in 30 days, I’ll bet you’](https://news.yahoo.com/las-vegas-teen-expected-slap-011605468.html)
-- Sep 22 - ['I ejected': Pilot of crashed F-35 jet in South Carolina pleads for help in phone call](https://news.yahoo.com/ejected-pilot-crashed-f-35-011523688.html)
 <!-- feed end -->
 
 ### Onstream
