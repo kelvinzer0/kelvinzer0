@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [17-year-old among 3 killed in shootout, Atlanta police not searching for shooter](https://news.yahoo.com/least-3-people-dead-shooting-192104794.html)
 - Sep 23 - [Ted Cruz Claims This Is Who He Thinks Is the ‘Most Likely & Most Dangerous’ Candidate to Replace Joe Biden](https://www.yahoo.com/entertainment/ted-cruz-claims-thinks-most-195300290.html)
+- Sep 23 - [Birthplace of the atomic bomb braces for its biggest mission since the top-secret Manhattan Project](https://news.yahoo.com/birthplace-atomic-bomb-braces-biggest-193132868.html)
 - Sep 23 - [US diplomat says intelligence from 'Five Eyes' nations helped Canada to link India to Sikh's killing](https://news.yahoo.com/us-diplomat-says-intelligence-five-184445220.html)
 - Sep 23 - [13-foot alligator spotted with human remains in its mouth in Florida canal](https://news.yahoo.com/13-foot-alligator-spotted-human-175316800.html)
-- Sep 23 - [Ukraine Recap: Russia Says ‘Let’s Decide It on the Battlefield’](https://finance.yahoo.com/news/ukraine-recap-russia-says-let-173705779.html)
+- Sep 23 - [At UN, African leaders say enough is enough: They must be partnered with, not sidelined](https://news.yahoo.com/un-african-leaders-enough-enough-172205899.html)
 <!-- feed end -->
 
 ### Onstream
