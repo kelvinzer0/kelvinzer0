@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 23 - [17-year-old among 3 killed in shootout, Atlanta police not searching for shooter](https://news.yahoo.com/least-3-people-dead-shooting-192104794.html)
+- Sep 23 - [Ted Cruz Claims This Is Who He Thinks Is the ‘Most Likely & Most Dangerous’ Candidate to Replace Joe Biden](https://www.yahoo.com/entertainment/ted-cruz-claims-thinks-most-195300290.html)
+- Sep 23 - [US diplomat says intelligence from 'Five Eyes' nations helped Canada to link India to Sikh's killing](https://news.yahoo.com/us-diplomat-says-intelligence-five-184445220.html)
 - Sep 23 - [13-foot alligator spotted with human remains in its mouth in Florida canal](https://news.yahoo.com/13-foot-alligator-spotted-human-175316800.html)
 - Sep 23 - [Ukraine Recap: Russia Says ‘Let’s Decide It on the Battlefield’](https://finance.yahoo.com/news/ukraine-recap-russia-says-let-173705779.html)
-- Sep 23 - [Donald Trump turns on old friend Howard Stern calling him a 'broken weirdo' and a 'disloyal guy'](https://news.yahoo.com/donald-trump-turns-old-friend-161427587.html)
-- Sep 23 - [Prince Harry told to ‘give notice’ as he is denied room at Windsor Castle during visit](https://news.yahoo.com/prince-harry-denied-room-windsor-155948674.html)
-- Sep 23 - [Cassidy Hutchinson says Mark Meadows burned so many documents before leaving the White House that the then-chief of staff's wife complained about dry-cleaning bills to remove the 'bonfire' smell: report](https://news.yahoo.com/cassidy-hutchinson-says-mark-meadows-155459313.html)
 <!-- feed end -->
 
 ### Onstream
