@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Elon Musk's grandfather belonged to a political party that believed the world should be governed by technology. Newspapers at the time described it as having 'the tone of an incipient Fascist movement.'](https://news.yahoo.com/elon-musks-grandfather-belonged-political-070410042.html)
+- Sep 23 - ['Amazon better pay attention': UPS CEO says delivery drivers will earn $170K annually in newly ratified 'historic' contract — but this worker says that's 'a bit of an exaggeration'](https://finance.yahoo.com/news/amazon-better-pay-attention-ups-183000604.html)
+- Sep 23 - [Ukrainian heavy artillery inflicts 'hell' on Russian lines near Bakhmut](https://finance.yahoo.com/news/ukrainian-heavy-artillery-inflicts-hell-103053955.html)
+- Sep 23 - [Ex-Wagner commander arrested in Norway for attempting return to Russia](https://news.yahoo.com/ex-wagner-commander-arrested-norway-101344603.html)
+- Sep 23 - [Ukrainian Armed Forces break through Russian defence in Verbove](https://news.yahoo.com/ukrainian-armed-forces-break-russian-081546851.html)
 - Sep 23 - [Trump Hit With Order Banning Threats and Intimidation](https://news.yahoo.com/trump-hit-order-banning-threats-044047900.html)
-- Sep 23 - [Ukrainian steelmakers who scared off Russian forces with decoy weapons made of trash are now supplying troops with hundreds of fake weapons](https://news.yahoo.com/ukrainian-steelmakers-scared-off-russian-033934282.html)
-- Sep 23 - [What does 'lala bop' mean? What parents need to know to protect, inform their kids](https://news.yahoo.com/does-lala-bop-mean-parents-024755079.html)
-- Sep 22 - [‘I Almost Blacked Out’: Chicago 11-Year-Old Was Beaten So Bad By Two Adult Women She Has to Get Two Eye Surgeries; No Arrests Made](https://news.yahoo.com/almost-blacked-chicago-11-old-220000121.html)
 <!-- feed end -->
 
 ### Onstream
