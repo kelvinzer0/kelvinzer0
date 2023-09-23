@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 23 - [‘Thought His Mate Donald Was Going to Bail Him Out’: Already Financially Strapped Rudy Giuliani Misses Defamation Payment Fees Deadline, Now Owes Almost Double](https://news.yahoo.com/thought-mate-donald-going-bail-152236874.html)
+- Sep 23 - [Europeans Have Started The "American Mind Can't Comprehend" Meme, And These Pictures Would Literally Rock Americans' Worlds](https://www.yahoo.com/lifestyle/europeans-started-american-mind-cant-151929939.html)
+- Sep 23 - [Ukraine used US-provided Strykers to break through a key Russian defensive line littered with minefields and trenches](https://news.yahoo.com/ukraine-used-us-provided-strykers-151847454.html)
+- Sep 23 - [Black Family Receive Not So Warm Welcome With Threats From Racist Neighbor](https://news.yahoo.com/black-family-receive-not-warm-142210692.html)
 - Sep 23 - [Where did most of Arizona's foreign-born population come from? The No. 2 country may surprise you](https://news.yahoo.com/where-did-most-arizonas-foreign-130004466.html)
-- Sep 23 - [Lowe's has an answer for Target and Walmart's theft problems](https://www.thestreet.com/retailers/lowes-has-an-answer-for-target-and-walmarts-theft-problems?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Sep 23 - [Even China's 1.4 billion population can't fill all its vacant homes - former official](https://finance.yahoo.com/news/even-chinas-1-4-billion-113820880.html)
-- Sep 23 - ['Amazon better pay attention': UPS CEO says delivery drivers will earn $170K annually in newly ratified 'historic' contract — but this worker says that's 'a bit of an exaggeration'](https://finance.yahoo.com/news/amazon-better-pay-attention-ups-183000604.html)
-- Sep 23 - [Ukrainian heavy artillery inflicts 'hell' on Russian lines near Bakhmut](https://finance.yahoo.com/news/ukrainian-heavy-artillery-inflicts-hell-103053955.html)
 <!-- feed end -->
 
 ### Onstream
