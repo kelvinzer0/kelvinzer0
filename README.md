@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [Netanyahu is asked about Trump calling him disloyal. Hear his response](https://news.yahoo.com/netanyahu-asked-trump-calling-him-021101641.html)
-- Sep 22 - [Workers uncover eight mummies and pre-Inca objects while expanding the gas network in Peru](https://news.yahoo.com/workers-uncover-eight-mummies-pre-225508702.html)
-- Sep 22 - [Iowa man disappears on the day a jury finds him guilty of killing his wife](https://news.yahoo.com/iowa-man-disappears-day-jury-213110510.html)
-- Sep 22 - [Missing Mom Heidi Broussard’s Murder Case Becomes TV Movie](https://news.yahoo.com/missing-mom-heidi-broussard-murder-212452011.html)
-- Sep 22 - [Federal judge again strikes down California law banning gun magazines of more than 10 rounds](https://news.yahoo.com/federal-judge-again-strikes-down-211712266.html)
+- Sep 23 - [Elon Musk's grandfather belonged to a political party that believed the world should be governed by technology. Newspapers at the time described it as having 'the tone of an incipient Fascist movement.'](https://news.yahoo.com/elon-musks-grandfather-belonged-political-070410042.html)
+- Sep 23 - [Trump Hit With Order Banning Threats and Intimidation](https://news.yahoo.com/trump-hit-order-banning-threats-044047900.html)
+- Sep 23 - [Ukrainian steelmakers who scared off Russian forces with decoy weapons made of trash are now supplying troops with hundreds of fake weapons](https://news.yahoo.com/ukrainian-steelmakers-scared-off-russian-033934282.html)
+- Sep 23 - [What does 'lala bop' mean? What parents need to know to protect, inform their kids](https://news.yahoo.com/does-lala-bop-mean-parents-024755079.html)
+- Sep 22 - [Bruce Willis has frontotemporal dementia: Most common symptoms to be aware of](https://news.yahoo.com/bruce-willis-frontotemporal-dementia-most-184658386.html)
 <!-- feed end -->
 
 ### Onstream
