@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Sep 23 - [Trump Hit With Order Banning Threats and Intimidation](https://news.yahoo.com/trump-hit-order-banning-threats-044047900.html)
 - Sep 23 - [Ukrainian steelmakers who scared off Russian forces with decoy weapons made of trash are now supplying troops with hundreds of fake weapons](https://news.yahoo.com/ukrainian-steelmakers-scared-off-russian-033934282.html)
 - Sep 23 - [What does 'lala bop' mean? What parents need to know to protect, inform their kids](https://news.yahoo.com/does-lala-bop-mean-parents-024755079.html)
-- Sep 22 - [Bruce Willis has frontotemporal dementia: Most common symptoms to be aware of](https://news.yahoo.com/bruce-willis-frontotemporal-dementia-most-184658386.html)
+- Sep 22 - [‘I Almost Blacked Out’: Chicago 11-Year-Old Was Beaten So Bad By Two Adult Women She Has to Get Two Eye Surgeries; No Arrests Made](https://news.yahoo.com/almost-blacked-chicago-11-old-220000121.html)
 <!-- feed end -->
 
 ### Onstream
