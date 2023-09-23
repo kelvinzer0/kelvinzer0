@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 23 - [Donald Trump turns on old friend Howard Stern calling him a 'broken weirdo' and a 'disloyal guy'](https://news.yahoo.com/donald-trump-turns-old-friend-161427587.html)
 - Sep 23 - [Cassidy Hutchinson says Mark Meadows burned so many documents before leaving the White House that the then-chief of staff's wife complained about dry-cleaning bills to remove the 'bonfire' smell: report](https://news.yahoo.com/cassidy-hutchinson-says-mark-meadows-155459313.html)
+- Sep 23 - [18 Funny Things I Saw This Week That Made Me Extremely Happy For No Reason](https://www.yahoo.com/lifestyle/18-funny-things-saw-week-154602834.html)
+- Sep 23 - [DeSantis fires back at ‘out of touch’ hosts of ‘The View': 'Won't be paying for their 9th booster'](https://news.yahoo.com/desantis-fires-back-touch-hosts-152820037.html)
 - Sep 23 - [‘Thought His Mate Donald Was Going to Bail Him Out’: Already Financially Strapped Rudy Giuliani Misses Defamation Payment Fees Deadline, Now Owes Almost Double](https://news.yahoo.com/thought-mate-donald-going-bail-152236874.html)
-- Sep 23 - [Europeans Have Started The "American Mind Can't Comprehend" Meme, And These Pictures Would Literally Rock Americans' Worlds](https://www.yahoo.com/lifestyle/europeans-started-american-mind-cant-151929939.html)
-- Sep 23 - [Fact Check: Obama Once Said He'd 'Be Fine with a Third Term' if Someone Could Be a 'Stand-In with an Earpiece'?](https://news.yahoo.com/fact-check-obama-once-said-150000621.html)
 <!-- feed end -->
 
 ### Onstream
