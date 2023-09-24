@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 24 - [Woman's body found in jaws of 13ft Florida alligator identified](https://news.yahoo.com/womans-body-found-jaws-13ft-175600801.html)
+- Sep 24 - [Rep. Gosar’s Homophobic Sunday Rant Is Deranged—Even for Him](https://news.yahoo.com/rep-gosar-homophobic-sunday-rant-203400162.html)
+- Sep 24 - ['Utterly repulsive': Canadians divided on Justin Trudeau's $650M aid to Ukraine](https://news.yahoo.com/canadians-divided-justin-trudeau-federal-government-ukraine-aid-182023007.html)
 - Sep 24 - [A video appearing to show a Russian Lancet drone striking a Ukrainian MiG-29 fighter at its base suggests the small drones can now hit targets far further away](https://news.yahoo.com/video-appearing-show-russian-lancet-173223803.html)
 - Sep 24 - [Hear Buttigieg’s response to Trump’s reported comments toward injured veteran](https://news.yahoo.com/latest-pattern-outrageous-attacks-buttigieg-140934798.html)
-- Sep 24 - [‘A natural desire to diversify': Janet Yellen says Americans should anticipate a decline in the USD as the world's reserve currency — what you need to know and how to prepare](https://finance.yahoo.com/news/natural-way-diversify-janet-yellen-125500087.html)
-- Sep 24 - [Donald Trump Claims There Was Only One Reason Why Melania Wasn’t on the Cover of Vogue](https://www.yahoo.com/entertainment/donald-trump-claims-only-one-153500424.html)
 <!-- feed end -->
 
 ### Onstream
