@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 24 - [‘The Jail Lace Fronts Ain’t Lacing’: Tory Lanez’s New Mugshot Gets Roasted Online After Fans Zoom In on His Hair](https://www.yahoo.com/entertainment/jail-lace-fronts-ain-t-224712896.html)
 - Sep 24 - [Woman's body found in jaws of 13ft Florida alligator identified](https://news.yahoo.com/womans-body-found-jaws-13ft-175600801.html)
-- Sep 24 - [Rep. Gosar’s Homophobic Sunday Rant Is Deranged—Even for Him](https://news.yahoo.com/rep-gosar-homophobic-sunday-rant-203400162.html)
-- Sep 24 - [Army called in as Met firearms officers put down their guns](https://news.yahoo.com/army-called-met-firearms-officers-154150551.html)
-- Sep 24 - [President Macron says France will end its military presence in Niger, pull its ambassador after coup](https://news.yahoo.com/president-macron-says-france-end-184314696.html)
-- Sep 24 - [A video appearing to show a Russian Lancet drone striking a Ukrainian MiG-29 fighter at its base suggests the small drones can now hit targets far further away](https://news.yahoo.com/video-appearing-show-russian-lancet-173223803.html)
+- Sep 24 - [Georgia Gov. Brian Kemp, who has long been one of Trump's biggest political targets, says he'll back the ex-president should he win the GOP nomination](https://news.yahoo.com/georgia-gov-brian-kemp-long-214111886.html)
+- Sep 24 - [Fight erupts during UAW strike outside Stellantis plant, racial slurs and insults thrown](https://news.yahoo.com/fight-erupts-during-uaw-strike-212059114.html)
+- Sep 24 - [Democratic donors rolled their eyes at a recent meeting when the Biden campaign team included GOP-trending Florida as a state that could help reelect the president next year, report says](https://news.yahoo.com/democratic-donors-rolled-eyes-recent-211117645.html)
 <!-- feed end -->
 
 ### Onstream
