@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 24 - [Woman's body found in jaws of 13ft Florida alligator identified](https://news.yahoo.com/womans-body-found-jaws-13ft-175600801.html)
 - Sep 24 - [Rep. Gosar’s Homophobic Sunday Rant Is Deranged—Even for Him](https://news.yahoo.com/rep-gosar-homophobic-sunday-rant-203400162.html)
-- Sep 24 - ['Utterly repulsive': Canadians divided on Justin Trudeau's $650M aid to Ukraine](https://news.yahoo.com/canadians-divided-justin-trudeau-federal-government-ukraine-aid-182023007.html)
+- Sep 24 - [Army called in as Met firearms officers put down their guns](https://news.yahoo.com/army-called-met-firearms-officers-154150551.html)
+- Sep 24 - [President Macron says France will end its military presence in Niger, pull its ambassador after coup](https://news.yahoo.com/president-macron-says-france-end-184314696.html)
 - Sep 24 - [A video appearing to show a Russian Lancet drone striking a Ukrainian MiG-29 fighter at its base suggests the small drones can now hit targets far further away](https://news.yahoo.com/video-appearing-show-russian-lancet-173223803.html)
-- Sep 24 - [Hear Buttigieg’s response to Trump’s reported comments toward injured veteran](https://news.yahoo.com/latest-pattern-outrageous-attacks-buttigieg-140934798.html)
 <!-- feed end -->
 
 ### Onstream
