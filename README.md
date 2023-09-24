@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 24 - [Katie Couric ended Sarah Palin's vice presidential ambitions on this day in 2008](https://www.yahoo.com/entertainment/katie-couric-sarah-palin-interview-tina-fey-vice-president-120027372.html)
+- Sep 24 - [India had been riding a geopolitical high. But it comes to the UN with a mess on its hands](https://news.yahoo.com/india-had-riding-geopolitical-high-112642476.html)
 - Sep 24 - [Obese and facing diabetes, Southlake man shed 100 pounds in months. Here’s his message](https://news.yahoo.com/obese-facing-diabetes-southlake-man-110000107.html)
+- Sep 24 - [Scientists sound alarm over ‘unheard of’ ocean conditions: ‘We could see mass mortality’](https://news.yahoo.com/scientists-concerned-unheard-conditions-off-113000269.html)
 - Sep 24 - [OPEC Just Did Social Security Retirees a Huge Favor](https://www.fool.com/retirement/2023/09/24/opec-just-did-social-security-retirees-a-huge-favo/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Sep 24 - [California workers who cut countertops are dying of an incurable disease](https://news.yahoo.com/california-workers-cut-countertops-dying-100021788.html)
-- Sep 24 - [A woman bought a lighthouse in Ohio for $71,000 and has spent over $300,000 on a decade-long renovation](https://news.yahoo.com/woman-bought-lighthouse-ohio-71-092301326.html)
 <!-- feed end -->
 
 ### Onstream
