@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [Trudeau facing cold reality after lonely week on world stage](https://news.yahoo.com/trudeau-facing-cold-reality-lonely-233635584.html)
+- Sep 24 - [Katie Couric ended Sarah Palin's vice presidential ambitions on this day in 2008](https://www.yahoo.com/entertainment/katie-couric-sarah-palin-interview-tina-fey-vice-president-120027372.html)
+- Sep 24 - [Obese and facing diabetes, Southlake man shed 100 pounds in months. Here’s his message](https://news.yahoo.com/obese-facing-diabetes-southlake-man-110000107.html)
 - Sep 24 - [OPEC Just Did Social Security Retirees a Huge Favor](https://www.fool.com/retirement/2023/09/24/opec-just-did-social-security-retirees-a-huge-favo/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Sep 24 - [California workers who cut countertops are dying of an incurable disease](https://news.yahoo.com/california-workers-cut-countertops-dying-100021788.html)
 - Sep 24 - [A woman bought a lighthouse in Ohio for $71,000 and has spent over $300,000 on a decade-long renovation](https://news.yahoo.com/woman-bought-lighthouse-ohio-71-092301326.html)
-- Sep 24 - [Missing toddler found sleeping in woods using her dog as a pillow after walking 3 miles barefoot](https://news.yahoo.com/missing-toddler-found-sleeping-woods-050245050.html)
 <!-- feed end -->
 
 ### Onstream
