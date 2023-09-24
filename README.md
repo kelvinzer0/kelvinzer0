@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 23 - [George Conway on Giuliani’s ‘problem’ amid Cassidy Hutchinson’s allegations](https://news.yahoo.com/george-conway-giuliani-problem-amid-225915128.html)
 - Sep 23 - [Operator of bus involved in fatal New York crash was listed by the state as an ‘unacceptable operator’ after failing several safety inspections](https://news.yahoo.com/operator-bus-involved-fatal-york-220837440.html)
 - Sep 23 - [Pope says countries should not "play games" with Ukraine on arms aid](https://news.yahoo.com/pope-says-countries-not-play-205316029.html)
 - Sep 23 - [An Iowa man who failed to show up for the guilty verdict at his murder trial has been arrested](https://news.yahoo.com/iowa-man-failed-show-guilty-203522375.html)
 - Sep 23 - [Ted Cruz Claims This Is Who He Thinks Is the ‘Most Likely & Most Dangerous’ Candidate to Replace Joe Biden](https://www.yahoo.com/entertainment/ted-cruz-claims-thinks-most-195300290.html)
+- Sep 23 - [Birthplace of the atomic bomb braces for its biggest mission since the top-secret Manhattan Project](https://news.yahoo.com/birthplace-atomic-bomb-braces-biggest-193132868.html)
 <!-- feed end -->
 
 ### Onstream
