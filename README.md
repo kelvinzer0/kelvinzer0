@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 24 - [A Russian reserve army of 15,000 soldiers is pinned down near Bakhmut and will be destroyed, says Ukraine's spy chief](https://news.yahoo.com/russian-army-15-000-soldiers-145402713.html)
+- Sep 24 - [Simone Biles: Olympic champion responds to viral video of black girl not given medal](https://sports.yahoo.com/simone-biles-olympic-champion-responds-143138863.html)
 - Sep 24 - [Hear what Trump reportedly said about injured veteran after this hug](https://news.yahoo.com/hear-trump-reportedly-said-injured-133102816.html)
+- Sep 24 - [Archaeologists unearth the largest cemetery ever discovered in Gaza and find rare lead sarcophogi](https://news.yahoo.com/archaeologists-unearth-largest-cemetery-ever-131023537.html)
 - Sep 24 - [Some UK police put down guns after an officer is charged with murder in the shooting of a Black man](https://news.yahoo.com/uk-police-put-down-guns-122427037.html)
-- Sep 24 - [Katie Couric ended Sarah Palin's vice presidential ambitions on this day in 2008](https://www.yahoo.com/entertainment/katie-couric-sarah-palin-interview-tina-fey-vice-president-120027372.html)
-- Sep 24 - [Obese and facing diabetes, Southlake man shed 100 pounds in months. Here’s his message](https://news.yahoo.com/obese-facing-diabetes-southlake-man-110000107.html)
-- Sep 24 - [Scientists sound alarm over ‘unheard of’ ocean conditions: ‘We could see mass mortality’](https://news.yahoo.com/scientists-concerned-unheard-conditions-off-113000269.html)
 <!-- feed end -->
 
 ### Onstream
