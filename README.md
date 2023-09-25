@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Sep 25 - [Burger King faces a whopper of a Bud Light-style boycott problem](https://www.thestreet.com/restaurants/heres-why-burger-king-faces-a-bud-light-style-antiwoke-boycott?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Sep 25 - [This Flying Car Just Wowed the Detroit Auto Show. It Could Be in the Skies by 2025.](https://www.yahoo.com/lifestyle/flying-car-just-wowed-detroit-140000283.html)
 - Sep 25 - [One Auto Union Has Settled. Here Is What It Got From Ford.](https://www.barrons.com/articles/ford-canada-union-unifor-contract-b73530c?siteid=yhoof2&yptr=yahoo)
+- Sep 25 - [Earth's Hidden Eighth Continent Is No Longer Lost](https://news.yahoo.com/earths-hidden-eighth-continent-no-130000465.html)
 - Sep 25 - [Trump pledges to investigate MSNBC parent company for ‘threatening treason’](https://news.yahoo.com/trump-pledges-investigate-msnbc-parent-125418602.html)
-- Sep 25 - [What is Nakhchivan? And after Nagorno-Karabakh, is this the next crisis for Azerbaijan and Armenia](https://news.yahoo.com/nakhchivan-nagorno-karabakh-next-crisis-123946126.html)
 <!-- feed end -->
 
 ### Onstream
