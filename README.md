@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Wild video shows Ukrainian drone flying through dense forest into a Russian hideout before exploding, military says](https://news.yahoo.com/wild-video-shows-ukrainian-drone-121132759.html)
-- Sep 25 - [‘To drive around in a Dodge Charger and no one thinks you're cool': This Seattle man dropped $35K on a car one year after bankruptcy — here's the harsh reality he was forced to face](https://finance.yahoo.com/news/drive-around-dodge-charger-no-120000339.html)
-- Sep 25 - [A former guard at one of Putin's luxury palaces said it's like a toxic 'little town' where everyone is snitching on each other](https://news.yahoo.com/former-guard-one-putins-luxury-115033123.html)
 - Sep 25 - [One Auto Union Has Settled. Here Is What It Got From Ford.](https://www.barrons.com/articles/ford-canada-union-unifor-contract-b73530c?siteid=yhoof2&yptr=yahoo)
-- Sep 25 - ['Really?!?': Jen Psaki Shreds Kevin McCarthy's Shutdown Angst](https://news.yahoo.com/really-jen-psaki-shreds-kevin-101335156.html)
+- Sep 25 - [Trump pledges to investigate MSNBC parent for ‘threatening treason’](https://news.yahoo.com/trump-pledges-investigate-msnbc-parent-125418602.html)
+- Sep 25 - [What is Nakhchivan? And after Nagorno-Karabakh, is this the next crisis for Azerbaijan and Armenia](https://news.yahoo.com/nakhchivan-nagorno-karabakh-next-crisis-123946126.html)
+- Sep 25 - [Wild video shows Ukrainian drone flying through dense forest into a Russian hideout before exploding, military says](https://news.yahoo.com/wild-video-shows-ukrainian-drone-121132759.html)
+- Sep 25 - [Liz Cheney? Mitt Romney? Voters who don't want Joe Biden or Donald Trump find their ideal candidates.](https://news.yahoo.com/liz-cheney-mitt-romney-many-120627527.html)
 <!-- feed end -->
 
 ### Onstream
