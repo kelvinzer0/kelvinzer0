@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Philippines to remove barrier placed by China in South China Sea - national security advisor](https://news.yahoo.com/philippines-remove-barrier-placed-china-063048891.html)
+- Sep 25 - [Rep. Marjorie Taylor Greene Mercilessly Mocked, Slammed For Jewish Holiday Snafu](https://news.yahoo.com/rep-marjorie-taylor-greene-mercilessly-091356296.html)
+- Sep 25 - [The world's largest airplane was destroyed by Russia — and Ukraine estimates it will cost $500 million to rebuild. Take a look at what's left of the mammoth jet.](https://news.yahoo.com/worlds-largest-airplane-destroyed-russia-084800685.html)
+- Sep 25 - [An El Niño winter is coming. Here’s what that could mean for the US](https://news.yahoo.com/el-ni-o-winter-coming-084442094.html)
+- Sep 25 - [Huawei disappoints viewers by not discussing Mate 60 phones at product launch](https://finance.yahoo.com/news/chinas-huawei-kicks-off-product-071628726.html)
 - Sep 25 - [Taliban weighs using U.S. mass surveillance plan, met with China's Huawei](https://news.yahoo.com/exclusive-taliban-weighs-using-u-060539995.html)
-- Sep 25 - [Putin orders Russian Defence Minister to halt Ukrainian counteroffensive before early October – ISW](https://news.yahoo.com/putin-orders-russian-defence-minister-043459954.html)
-- Sep 25 - [White Neighbor Allegedly Hoses Down Prominent Black Dinner Party Guests](https://news.yahoo.com/white-neighbor-allegedly-hoses-down-041831544.html)
-- Sep 25 - [Gavin Newsom got grilled on '60 Minutes' about whether he intends to run for president. This time his answer wasn't 'no.'](https://news.yahoo.com/gavin-newsom-got-grilled-60-041533524.html)
 <!-- feed end -->
 
 ### Onstream
