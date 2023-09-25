@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 25 - [‘Reminds Me of When Little Kids Lie’: Marjorie Taylor Greene Ripped Apart Online for Referring to an Airline Employee She Alleges Praised Trump As ‘African American Muhammad’](https://news.yahoo.com/reminds-little-kids-lie-marjorie-220000478.html)
 - Sep 25 - [Kari Lake's trial to review signed ballot envelopes from Arizona election wraps](https://news.yahoo.com/kari-lakes-trial-review-signed-214710604.html)
 - Sep 25 - [Pregnant ‘dwarf’-like creature found on tree in Uganda is ‘cryptic’ new species](https://news.yahoo.com/pregnant-dwarf-creature-found-tree-210937732.html)
 - Sep 25 - [More charges filed against 2 teens held in fatal bicyclist hit-and-run video case in Las Vegas](https://news.yahoo.com/more-charges-filed-against-2-210154423.html)
 - Sep 25 - [Indicted Trump Asks to Buy a Glock at Campaign Stop—Which Would Be Illegal](https://news.yahoo.com/indicted-trump-asks-buy-glock-210045268.html)
-- Sep 25 - [State Trooper Accused of Improperly Committing Ex-Girlfriend](https://news.yahoo.com/state-trooper-accused-improperly-committing-203955519.html)
 <!-- feed end -->
 
 ### Onstream
