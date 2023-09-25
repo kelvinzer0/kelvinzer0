@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 25 - [White Neighbor Allegedly Hoses Down Prominent Black Dinner Party Guests](https://news.yahoo.com/white-neighbor-allegedly-hoses-down-041831544.html)
+- Sep 25 - [Gavin Newsom got grilled on '60 Minutes' about whether he intends to run for president. This time his answer wasn't 'no.'](https://news.yahoo.com/gavin-newsom-got-grilled-60-041533524.html)
 - Sep 25 - [Retired general responds to Republican’s call for Gen. Mark Milley to be ‘hung’](https://news.yahoo.com/retired-general-responds-republican-call-014010582.html)
-- Sep 25 - [People Revealed The Most Scandalous Incident At Their School, And They're Truly Unbelievable](https://www.yahoo.com/lifestyle/people-revealed-most-scandalous-incident-011602228.html)
+- Sep 25 - [21 Disturbing Things That Actually Happened In School, Which Folks Are Unfortunately Still Traumatized By](https://www.yahoo.com/lifestyle/people-revealed-most-scandalous-incident-011602228.html)
 - Sep 25 - [Inside Vietnam's plans to dent China's rare earths dominance](https://finance.yahoo.com/news/inside-vietnams-plans-dent-chinas-010357004.html)
-- Sep 24 - [Kidnapped teen rescued from Southern California motel room after 4 days of being held hostage](https://news.yahoo.com/kidnapped-teen-rescued-southern-california-233441093.html)
-- Sep 24 - [Woman's body found in jaws of 13ft Florida alligator identified](https://news.yahoo.com/womans-body-found-jaws-13ft-175600801.html)
 <!-- feed end -->
 
 ### Onstream
