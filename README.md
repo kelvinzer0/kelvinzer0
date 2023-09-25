@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Burger King faces a whopper of a Bud Light-style boycott problem](https://www.thestreet.com/restaurants/heres-why-burger-king-faces-a-bud-light-style-antiwoke-boycott?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Sep 25 - [This Flying Car Just Wowed the Detroit Auto Show. It Could Be in the Skies by 2025.](https://www.yahoo.com/lifestyle/flying-car-just-wowed-detroit-140000283.html)
-- Sep 25 - [One Auto Union Has Settled. Here Is What It Got From Ford.](https://www.barrons.com/articles/ford-canada-union-unifor-contract-b73530c?siteid=yhoof2&yptr=yahoo)
-- Sep 25 - [Earth's Hidden Eighth Continent Is No Longer Lost](https://news.yahoo.com/earths-hidden-eighth-continent-no-130000465.html)
-- Sep 25 - [Trump pledges to investigate MSNBC parent company for ‘threatening treason’](https://news.yahoo.com/trump-pledges-investigate-msnbc-parent-125418602.html)
+- Sep 25 - [Amazon announced dates for October Prime Day — here are the best early deals you can already shop](https://www.yahoo.com/lifestyle/amazon-october-prime-day-faq-early-deals-174845826.html)
+- Sep 25 - [Navy fires commanding officer of ballistic missile submarine Alabama](https://news.yahoo.com/navy-fires-commanding-officer-ballistic-171802869.html)
+- Sep 25 - [Texas Walmart shooter agrees to pay more than $5M to families over 2019 racist attack](https://news.yahoo.com/texas-walmart-shooter-agrees-pay-164849490.html)
+- Sep 25 - [“DEATH”: Donald Trump ramps up the GOP's attack on the military with call to execute top US general](https://news.yahoo.com/death-donald-trump-ramps-gops-161243918.html)
+- Sep 25 - [Menendez says the cash found in his home was from his 'personal savings account' which he kept for 'emergencies' due to his family 'facing confiscation in Cuba'](https://news.yahoo.com/menendez-says-cash-found-home-160836387.html)
 <!-- feed end -->
 
 ### Onstream
