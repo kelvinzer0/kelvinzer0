@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 25 - [People Revealed The Most Scandalous Incident At Their School, And They're Truly Unbelievable](https://www.yahoo.com/lifestyle/people-revealed-most-scandalous-incident-011602228.html)
+- Sep 25 - [Inside Vietnam's plans to dent China's rare earths dominance](https://finance.yahoo.com/news/inside-vietnams-plans-dent-chinas-010357004.html)
 - Sep 24 - [Kidnapped teen rescued from Southern California motel room after 4 days of being held hostage](https://news.yahoo.com/kidnapped-teen-rescued-southern-california-233441093.html)
 - Sep 24 - [Woman's body found in jaws of 13ft Florida alligator identified](https://news.yahoo.com/womans-body-found-jaws-13ft-175600801.html)
 - Sep 24 - [An Ohio Site Was Just Declared One of the Most Important in Human History. Why Has It Been Ignored?](https://news.yahoo.com/america-sacred-huge-implications-human-230000297.html)
-- Sep 24 - [Mother of Idaho murders victim Ethan Chapin stuns true crime convention with surprise cameo](https://news.yahoo.com/mother-idaho-murders-victim-ethan-214851740.html)
 <!-- feed end -->
 
 ### Onstream
