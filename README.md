@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Did a Toyota video accidentally leak the look of the next Camry?](https://www.autoblog.com/2023/09/25/did-toyota-accidentally-leak-the-new-camry/)
-- Sep 25 - [A phone call between Trump and conservative tech billionaire Peter Thiel reportedly turned 'pretty contentious'](https://news.yahoo.com/phone-call-between-trump-conservative-201639559.html)
-- Sep 25 - [Huawei and Chery Autos claim their first production EV bests the Tesla Model S](https://news.yahoo.com/huawei-and-chery-autos-claim-their-first-production-ev-bests-the-tesla-model-s-200918326.html)
-- Sep 25 - [Russian officers who hadn't been paid by Moscow sold key intel on the Black Sea Fleet to Ukrainian resistance fighters. Then the headquarters blew up.](https://news.yahoo.com/russian-officers-hadnt-paid-moscow-200016928.html)
-- Sep 25 - [Bruce Willis has frontotemporal dementia: Most common symptoms to be aware of](https://news.yahoo.com/bruce-willis-frontotemporal-dementia-most-184658386.html)
+- Sep 25 - [Kari Lake's trial to review signed ballot envelopes from Arizona election wraps](https://news.yahoo.com/kari-lakes-trial-review-signed-214710604.html)
+- Sep 25 - [Pregnant ‘dwarf’-like creature found on tree in Uganda is ‘cryptic’ new species](https://news.yahoo.com/pregnant-dwarf-creature-found-tree-210937732.html)
+- Sep 25 - [More charges filed against 2 teens held in fatal bicyclist hit-and-run video case in Las Vegas](https://news.yahoo.com/more-charges-filed-against-2-210154423.html)
+- Sep 25 - [Indicted Trump Asks to Buy a Glock at Campaign Stop—Which Would Be Illegal](https://news.yahoo.com/indicted-trump-asks-buy-glock-210045268.html)
+- Sep 25 - [State Trooper Accused of Improperly Committing Ex-Girlfriend](https://news.yahoo.com/state-trooper-accused-improperly-committing-203955519.html)
 <!-- feed end -->
 
 ### Onstream
