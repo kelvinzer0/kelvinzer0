@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 25 - [‘To drive around in a Dodge Charger and no one thinks you're cool': This Seattle man dropped $35K on a car one year after bankruptcy — here's the harsh reality he was forced to face](https://finance.yahoo.com/news/drive-around-dodge-charger-no-120000339.html)
+- Sep 25 - [One Auto Union Has Settled. Here Is What It Got From Ford.](https://www.barrons.com/articles/ford-canada-union-unifor-contract-b73530c?siteid=yhoof2&yptr=yahoo)
+- Sep 25 - ['Really?!?': Jen Psaki Shreds Kevin McCarthy's Shutdown Angst](https://news.yahoo.com/really-jen-psaki-shreds-kevin-101335156.html)
 - Sep 25 - ['You can't outearn stupidity': Dave Ramsey explains why teachers — with a median salary of $61K — become millionaires so often. And why doctors don't even crack the top 5](https://finance.yahoo.com/news/cant-outearn-stupidity-dave-ramsey-110000008.html)
-- Sep 25 - [Rep. Marjorie Taylor Greene Mercilessly Mocked, Slammed For Jewish Holiday Snafu](https://news.yahoo.com/rep-marjorie-taylor-greene-mercilessly-091356296.html)
-- Sep 25 - [The world's largest airplane was destroyed by Russia — and Ukraine estimates it will cost $500 million to rebuild. Take a look at what's left of the mammoth jet.](https://news.yahoo.com/worlds-largest-airplane-destroyed-russia-084800685.html)
-- Sep 25 - [An El Niño winter is coming. Here’s what that could mean for the US](https://news.yahoo.com/el-ni-o-winter-coming-084442094.html)
-- Sep 25 - [Philippines to remove barrier placed by China in South China Sea - national security advisor](https://news.yahoo.com/philippines-remove-barrier-placed-china-063048891.html)
+- Sep 25 - ['Just in shock': Dock worker assaulted in Montgomery brawl speaks out in 'GMA' exclusive](https://www.yahoo.com/gma/dock-worker-assaulted-montgomery-brawl-100012233.html)
 <!-- feed end -->
 
 ### Onstream
