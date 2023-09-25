@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [October Prime Day: Everything you need to know and the best early deals you can already shop](https://www.yahoo.com/lifestyle/amazon-october-prime-day-faq-early-deals-174845826.html)
+- Sep 25 - [Ryan Reynolds Sells 2 Companies For Nearly $2 Billion In Less Than 4 Years And Says: 'You Can't Be Good At Something Unless You're Willing To Be Bad'— A Lesson In Risk-Taking For All](https://finance.yahoo.com/news/ryan-reynolds-sells-2-companies-194652637.html)
+- Sep 25 - [Donald Trump's Health In 'Top 10% Of Everyone His Age,' Says Former White House Doctor — He Could Live To Be 200 Because He Has 'Incredibly Good Genes —  It's Just The Way God Made Him'](https://finance.yahoo.com/news/donald-trumps-health-top-10-191032157.html)
+- Sep 25 - [‘Is He Ok?’: LL Cool J Fans Are Concerned After President Joe Biden Butchers the Rapper’s Name Onstage, Calls Him ‘Boy’ at the Congressional Black Conference Phoenix Awards](https://news.yahoo.com/ok-ll-cool-j-fans-190500025.html)
 - Sep 25 - [One Auto Union Has Settled With Ford. What It Got—and Who It’s Targeting Next.](https://www.barrons.com/articles/ford-canada-union-unifor-contract-b73530c?siteid=yhoof2&yptr=yahoo)
-- Sep 25 - [A judge has rewritten Missouri ballot summary language that described 'dangerous' abortions](https://news.yahoo.com/judge-rewritten-missouri-ballot-summary-173907321.html)
-- Sep 25 - [Navy fires commanding officer of ballistic missile submarine Alabama](https://news.yahoo.com/navy-fires-commanding-officer-ballistic-171802869.html)
-- Sep 25 - [Texas Walmart shooter agrees to pay more than $5M to families over 2019 racist attack](https://news.yahoo.com/texas-walmart-shooter-agrees-pay-164849490.html)
+- Sep 25 - [Boaters get glimpse of ‘rare’ creature — known for eating sharks — in Maine. See it](https://news.yahoo.com/boaters-glimpse-rare-creature-known-185250974.html)
 <!-- feed end -->
 
 ### Onstream
