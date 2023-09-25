@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Ryan Reynolds Sells 2 Companies For Nearly $2 Billion In Less Than 4 Years And Says: 'You Can't Be Good At Something Unless You're Willing To Be Bad'— A Lesson In Risk-Taking For All](https://finance.yahoo.com/news/ryan-reynolds-sells-2-companies-194652637.html)
-- Sep 25 - [Donald Trump's Health In 'Top 10% Of Everyone His Age,' Says Former White House Doctor — He Could Live To Be 200 Because He Has 'Incredibly Good Genes —  It's Just The Way God Made Him'](https://finance.yahoo.com/news/donald-trumps-health-top-10-191032157.html)
-- Sep 25 - [‘Is He Ok?’: LL Cool J Fans Are Concerned After President Joe Biden Butchers the Rapper’s Name Onstage, Calls Him ‘Boy’ at the Congressional Black Conference Phoenix Awards](https://news.yahoo.com/ok-ll-cool-j-fans-190500025.html)
-- Sep 25 - [One Auto Union Has Settled With Ford. What It Got—and Who It’s Targeting Next.](https://www.barrons.com/articles/ford-canada-union-unifor-contract-b73530c?siteid=yhoof2&yptr=yahoo)
-- Sep 25 - [Boaters get glimpse of ‘rare’ creature — known for eating sharks — in Maine. See it](https://news.yahoo.com/boaters-glimpse-rare-creature-known-185250974.html)
+- Sep 25 - [Did a Toyota video accidentally leak the look of the next Camry?](https://www.autoblog.com/2023/09/25/did-toyota-accidentally-leak-the-new-camry/)
+- Sep 25 - [A phone call between Trump and conservative tech billionaire Peter Thiel reportedly turned 'pretty contentious'](https://news.yahoo.com/phone-call-between-trump-conservative-201639559.html)
+- Sep 25 - [Huawei and Chery Autos claim their first production EV bests the Tesla Model S](https://news.yahoo.com/huawei-and-chery-autos-claim-their-first-production-ev-bests-the-tesla-model-s-200918326.html)
+- Sep 25 - [Russian officers who hadn't been paid by Moscow sold key intel on the Black Sea Fleet to Ukrainian resistance fighters. Then the headquarters blew up.](https://news.yahoo.com/russian-officers-hadnt-paid-moscow-200016928.html)
+- Sep 25 - [Bruce Willis has frontotemporal dementia: Most common symptoms to be aware of](https://news.yahoo.com/bruce-willis-frontotemporal-dementia-most-184658386.html)
 <!-- feed end -->
 
 ### Onstream
