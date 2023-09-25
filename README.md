@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 24 - [‘The Jail Lace Fronts Ain’t Lacing’: Tory Lanez’s New Mugshot Gets Roasted Online After Fans Zoom In on His Hair](https://www.yahoo.com/entertainment/jail-lace-fronts-ain-t-224712896.html)
+- Sep 24 - [Kidnapped teen rescued from Southern California motel room after 4 days of being held hostage](https://news.yahoo.com/kidnapped-teen-rescued-southern-california-233441093.html)
 - Sep 24 - [Woman's body found in jaws of 13ft Florida alligator identified](https://news.yahoo.com/womans-body-found-jaws-13ft-175600801.html)
-- Sep 24 - [Georgia Gov. Brian Kemp, who has long been one of Trump's biggest political targets, says he'll back the ex-president should he win the GOP nomination](https://news.yahoo.com/georgia-gov-brian-kemp-long-214111886.html)
-- Sep 24 - [Fight erupts during UAW strike outside Stellantis plant, racial slurs and insults thrown](https://news.yahoo.com/fight-erupts-during-uaw-strike-212059114.html)
-- Sep 24 - [Democratic donors rolled their eyes at a recent meeting when the Biden campaign team included GOP-trending Florida as a state that could help reelect the president next year, report says](https://news.yahoo.com/democratic-donors-rolled-eyes-recent-211117645.html)
+- Sep 24 - [An Ohio Site Was Just Declared One of the Most Important in Human History. Why Has It Been Ignored?](https://news.yahoo.com/america-sacred-huge-implications-human-230000297.html)
+- Sep 24 - [‘The Jail Lace Fronts Ain’t Lacing’: Tory Lanez’s New Mugshot Gets Roasted Online After Fans Zoom In on His Hair](https://www.yahoo.com/entertainment/jail-lace-fronts-ain-t-224712896.html)
+- Sep 24 - [Mother of Idaho murders victim Ethan Chapin stuns true crime convention with surprise cameo](https://news.yahoo.com/mother-idaho-murders-victim-ethan-214851740.html)
 <!-- feed end -->
 
 ### Onstream
