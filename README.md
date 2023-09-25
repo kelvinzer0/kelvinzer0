@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 25 - [Philippines to remove barrier placed by China in South China Sea - national security advisor](https://news.yahoo.com/philippines-remove-barrier-placed-china-063048891.html)
 - Sep 25 - [Taliban weighs using U.S. mass surveillance plan, met with China's Huawei](https://news.yahoo.com/exclusive-taliban-weighs-using-u-060539995.html)
+- Sep 25 - [Putin orders Russian Defence Minister to halt Ukrainian counteroffensive before early October – ISW](https://news.yahoo.com/putin-orders-russian-defence-minister-043459954.html)
 - Sep 25 - [White Neighbor Allegedly Hoses Down Prominent Black Dinner Party Guests](https://news.yahoo.com/white-neighbor-allegedly-hoses-down-041831544.html)
 - Sep 25 - [Gavin Newsom got grilled on '60 Minutes' about whether he intends to run for president. This time his answer wasn't 'no.'](https://news.yahoo.com/gavin-newsom-got-grilled-60-041533524.html)
-- Sep 25 - [Russia May Be About to Get a New Friendly Leader in Europe](https://finance.yahoo.com/news/russia-may-friendly-leader-europe-040009834.html)
+- Sep 25 - [Retired general responds to Republican’s call for Gen. Mark Milley to be ‘hung’](https://news.yahoo.com/retired-general-responds-republican-call-014010582.html)
 <!-- feed end -->
 
 ### Onstream
