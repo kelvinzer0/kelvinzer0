@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Russian commander shown after Ukraine said it killed him](https://news.yahoo.com/russian-commander-shown-ukraine-said-144559643.html)
 - Sep 26 - [Supreme Court allows drawing of new Alabama congressional map to proceed, rejecting state's plea](https://news.yahoo.com/supreme-court-allows-drawing-alabama-134917737.html)
+- Sep 26 - [New York is on the verge of anarchy – and nobody seems to care](https://news.yahoo.com/york-verge-anarchy-nobody-seems-133858433.html)
 - Sep 26 - [White Neighbor ‘Violently’ Hosed Down Black New York Doctor and Guests at Backyard Dinner Party, Lawsuit Claims](https://news.yahoo.com/white-neighbor-violently-hosed-down-131639679.html)
-- Sep 26 - [Russian soldiers captured a Ukrainian exploding drone — then it blew up and killed several of them: report](https://news.yahoo.com/russian-soldiers-captured-ukrainian-exploding-130151273.html)
-- Sep 26 - [‘Dead’ Russian Admiral Shoved in Front of the Cameras to Prove He Survived Missile Blast](https://news.yahoo.com/dead-russian-admiral-shoved-front-123644370.html)
-- Sep 26 - [Kremlin won't comment on beating of prisoner by Kadyrov's teenage son](https://news.yahoo.com/kremlin-wont-beating-prisoner-kadyrovs-120117043.html)
+- Sep 26 - [A man survived 3 days in an upturned boat at the bottom of the ocean while crayfish ate his skin. Now he works as a diver.](https://www.yahoo.com/lifestyle/man-survived-3-days-upturned-131254085.html)
 <!-- feed end -->
 
 ### Onstream
