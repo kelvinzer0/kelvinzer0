@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [Mississippi announced incentives for company days after executive gave campaign money to governor](https://news.yahoo.com/mississippi-announced-incentives-company-days-183306016.html)
-- Sep 26 - [Pictured: Scarred Ukrainian soldiers battling Russian troops in the ‘middle of hell’](https://news.yahoo.com/pictured-scarred-ukrainian-soldiers-battling-180432170.html)
-- Sep 26 - [Tourists In San Francisco Cling To Audi As Their Stuff Is Stolen](https://news.yahoo.com/tourists-san-francisco-cling-audi-180000846.html)
-- Sep 26 - [US judge refuses to block venture capital fund's grants for Black women](https://finance.yahoo.com/news/us-judge-refuses-block-venture-175509901.html)
-- Sep 26 - [Trump appears to blame the wrong Bush brother for Iraq war in latest gaffe](https://news.yahoo.com/trump-appears-blame-wrong-bush-175316114.html)
+- Sep 26 - [October Prime Day: Everything you need to know — including the best early deals you can already shop](https://www.yahoo.com/lifestyle/amazon-october-prime-day-faq-early-deals-174845826.html)
+- Sep 26 - [Mar-a-Lago judge blasted for late trial date: "Cannon is slow-walking this case to benefit Trump"](https://news.yahoo.com/mar-lago-judge-blasted-trial-192213142.html)
+- Sep 26 - [Decapitation Victim’s Dad Pleads for Leniency for Sex Killer](https://news.yahoo.com/decapitation-victim-dad-pleads-leniency-191627596.html)
+- Sep 26 - [Target closes 9 stores in response to retail theft, adds locked cases at some stores](https://finance.yahoo.com/news/target-closes-9-stores-in-response-to-retail-theft-adds-locked-cases-at-some-stores-190623263.html)
+- Sep 26 - [‘This is not normal. This is not Raleigh.’ Businesses plead for help on downtown crime.](https://news.yahoo.com/not-normal-not-raleigh-businesses-184136242.html)
 <!-- feed end -->
 
 ### Onstream
