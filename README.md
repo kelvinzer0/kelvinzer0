@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Fact Check: Video Shows 500K Men in Africa Preparing to 'Invade' Europe and America?](https://news.yahoo.com/fact-check-video-shows-500k-205100673.html)
+- Sep 26 - [Formerly incarcerated women on TikTok reveal they weren’t allowed to wear contact lenses in prison](https://news.yahoo.com/formerly-incarcerated-women-tiktok-reveal-203218320.html)
 - Sep 26 - [Judge rules Donald Trump defrauded banks, insurers while building real estate empire](https://news.yahoo.com/judge-rules-donald-trump-defrauded-202326707.html)
 - Sep 26 - [Herschel Walker's wife is selling the Atlanta house listed as Republican's residence in Senate run](https://news.yahoo.com/herschel-walkers-wife-selling-atlanta-200431981.html)
-- Sep 26 - [Anti-abortion groups demand liberal Wisconsin prosecutors charge abortion providers despite ruling](https://news.yahoo.com/anti-abortion-groups-demand-liberal-194012993.html)
-- Sep 26 - [Coast Guard ends search for woman swept into ocean after body found on Rialto Beach](https://news.yahoo.com/coast-guard-searching-woman-swept-054022432.html)
-- Sep 26 - [Mar-a-Lago judge blasted for late trial date: "Cannon is slow-walking this case to benefit Trump"](https://news.yahoo.com/mar-lago-judge-blasted-trial-192213142.html)
+- Sep 26 - [Here's what will happen to Social Security payments and SNAP if the government shuts down](https://news.yahoo.com/heres-happen-social-security-payments-195419483.html)
 <!-- feed end -->
 
 ### Onstream
