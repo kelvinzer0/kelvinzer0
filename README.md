@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Ukraine would be doing worse against Russia if it fought like Americans do, US veteran in Ukraine says](https://news.yahoo.com/ukraine-doing-worse-against-russia-095522929.html)
+- Sep 26 - [Video shows Ukraine's 'hornet' drones following Russia's tanks and plopping grenades on top of them](https://news.yahoo.com/video-shows-ukraines-hornet-drones-091534118.html)
+- Sep 26 - [Viral video taken aboard Chinese train shows attendant addressing passengers trapped for 10 hours: ‘Maybe in private, she would be crying’](https://news.yahoo.com/viral-video-taken-aboard-chinese-093000938.html)
 - Sep 26 - [Cassidy Hutchinson Has Brutally Honest Response To Matt Gaetz Dating Claim](https://news.yahoo.com/cassidy-hutchinson-brutally-honest-response-070909268.html)
 - Sep 26 - [Woman Catches College Professor's Racist Rant Against An African Student For Being Late To Class](https://www.yahoo.com/lifestyle/woman-catches-college-professors-racist-041500496.html)
-- Sep 26 - [Trump opposes US request to limit his comments on election case](https://news.yahoo.com/trump-opposes-us-request-limit-034438034.html)
-- Sep 26 - [Controversial streamer Ice Poseidon responds to backlash over 'sickening' Kick livestream: 'People on Twitter ... complain about nothing'](https://news.yahoo.com/controversial-streamer-ice-poseidon-responds-to-backlash-over-sickening-kick-livestream-people-on-twitter--complain-about-nothing-021543265.html)
-- Sep 26 - [Philippines vows not to back down as China warns  against 'trouble' at disputed shoal](https://news.yahoo.com/philippines-says-china-removed-remnants-015121992.html)
 <!-- feed end -->
 
 ### Onstream
