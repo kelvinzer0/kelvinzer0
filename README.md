@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Kevin McCarthy Wanted Bob Menendez To Resign Until Someone Mentioned George Santos](https://news.yahoo.com/kevin-mccarthy-wanted-bob-menendez-222623227.html)
 - Sep 26 - [Fact Check: Video Shows 500K Men in Africa Preparing to 'Invade' Europe and America?](https://news.yahoo.com/fact-check-video-shows-500k-205100673.html)
+- Sep 26 - [US judge throws out Texas ban on drag acts, calls it unconstitutional](https://news.yahoo.com/us-judge-throws-texas-ban-203314504.html)
 - Sep 26 - [Formerly incarcerated women on TikTok reveal they weren’t allowed to wear contact lenses in prison](https://news.yahoo.com/formerly-incarcerated-women-tiktok-reveal-203218320.html)
 - Sep 26 - [Judge rules Donald Trump defrauded banks, insurers while building real estate empire](https://news.yahoo.com/judge-rules-donald-trump-defrauded-202326707.html)
-- Sep 26 - [Herschel Walker's wife is selling the Atlanta house listed as Republican's residence in Senate run](https://news.yahoo.com/herschel-walkers-wife-selling-atlanta-200431981.html)
-- Sep 26 - [Here's what will happen to Social Security payments and SNAP if the government shuts down](https://news.yahoo.com/heres-happen-social-security-payments-195419483.html)
 <!-- feed end -->
 
 ### Onstream
