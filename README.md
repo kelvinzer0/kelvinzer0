@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [Canadian Sikhs protest over activist's murder](https://news.yahoo.com/canadian-sikhs-protest-over-activists-013639500.html)
+- Sep 26 - [Controversial streamer Ice Poseidon responds to backlash over 'sickening' Kick livestream: 'People on Twitter ... complain about nothing'](https://news.yahoo.com/controversial-streamer-ice-poseidon-responds-to-backlash-over-sickening-kick-livestream-people-on-twitter--complain-about-nothing-021543265.html)
 - Sep 25 - [Woman reveals she’s been nicotine/vape-free for 1.5 months after 7 years of vaping](https://news.yahoo.com/woman-reveals-she-nicotine-vape-225541037.html)
 - Sep 25 - [‘Reminds Me of When Little Kids Lie’: Marjorie Taylor Greene Ripped Apart Online for Referring to an Airline Employee She Alleges Praised Trump As ‘African American Muhammad’](https://news.yahoo.com/reminds-little-kids-lie-marjorie-220000478.html)
 - Sep 25 - [Kari Lake's trial to review signed ballot envelopes from Arizona election wraps](https://news.yahoo.com/kari-lakes-trial-review-signed-214710604.html)
