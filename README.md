@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 26 - [Cassidy Hutchinson Scoffs at Matt Gaetz’s Claim They Dated: ‘I Have Much Higher Standards’ (Video)](https://www.yahoo.com/entertainment/cassidy-hutchinson-scoffs-matt-gaetz-053133336.html)
-- Sep 26 - [Trump opposes US request to limit his comments on election case](https://news.yahoo.com/trump-opposes-us-request-limit-034438034.html)
-- Sep 26 - [The Silicon Valley investors who secretly bought up $800 million in Northern California real estate reveal unexpected plans for 'a city of yesterday'](https://news.yahoo.com/silicon-valley-investors-secretly-bought-033548091.html)
+- Sep 26 - [Woman Catches College Professor's Racist Rant Against An African Student For Being Late To Class](https://www.yahoo.com/lifestyle/woman-catches-college-professors-racist-041500496.html)
 - Sep 26 - [An oligarch who predicted that Russia may run out of money next year is surprised the economy has held up so far](https://news.yahoo.com/oligarch-predicted-russia-may-run-030549089.html)
 - Sep 26 - [Controversial streamer Ice Poseidon responds to backlash over 'sickening' Kick livestream: 'People on Twitter ... complain about nothing'](https://news.yahoo.com/controversial-streamer-ice-poseidon-responds-to-backlash-over-sickening-kick-livestream-people-on-twitter--complain-about-nothing-021543265.html)
+- Sep 25 - [Woman reveals she’s been nicotine/vape-free for 1.5 months after 7 years of vaping](https://news.yahoo.com/woman-reveals-she-nicotine-vape-225541037.html)
 <!-- feed end -->
 
 ### Onstream
