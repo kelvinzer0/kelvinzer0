@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [A Royal Navy Nuclear Sub Just Spent 6 Months Underwater. That's Irresponsible.](https://news.yahoo.com/royal-navy-nuclear-sub-just-174600888.html)
-- Sep 26 - [YouTube prankster says he had no idea he was scaring man who shot him](https://news.yahoo.com/youtube-prankster-says-had-no-170509703.html)
-- Sep 26 - [Jonah Hill Accepted The Minimum Rate Of $60,000 For His Role In 'The Wolf Of Wall Street' While Leonardo DiCaprio Was Paid $10 Million — His Dream Was To Work With Martin Scorsese: 'I Would Sell My House And Give Him All My Money To Work For Him.'](https://finance.yahoo.com/news/jonah-hill-accepted-minimum-rate-160518656.html)
-- Sep 26 - [The Sick, Racist Message Behind Why Trump Chose That Particular Gun Store](https://news.yahoo.com/sick-racist-message-behind-why-160041585.html)
-- Sep 26 - [‘It’s Kind of Insulting’: Black Georgia Father Says He Was Stopped In LAX By Cops Because a Flight Attendant Was Concerned He Had Kidnapped His Own Children](https://news.yahoo.com/kind-insulting-black-georgia-father-153000289.html)
+- Sep 26 - [Mississippi announced incentives for company days after executive gave campaign money to governor](https://news.yahoo.com/mississippi-announced-incentives-company-days-183306016.html)
+- Sep 26 - [Pictured: Scarred Ukrainian soldiers battling Russian troops in the ‘middle of hell’](https://news.yahoo.com/pictured-scarred-ukrainian-soldiers-battling-180432170.html)
+- Sep 26 - [Tourists In San Francisco Cling To Audi As Their Stuff Is Stolen](https://news.yahoo.com/tourists-san-francisco-cling-audi-180000846.html)
+- Sep 26 - [US judge refuses to block venture capital fund's grants for Black women](https://finance.yahoo.com/news/us-judge-refuses-block-venture-175509901.html)
+- Sep 26 - [Trump appears to blame the wrong Bush brother for Iraq war in latest gaffe](https://news.yahoo.com/trump-appears-blame-wrong-bush-175316114.html)
 <!-- feed end -->
 
 ### Onstream
