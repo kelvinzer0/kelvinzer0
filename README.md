@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [Ukraine would be doing worse against Russia if it fought like Americans do, US veteran in Ukraine says](https://news.yahoo.com/ukraine-doing-worse-against-russia-095522929.html)
+- Sep 26 - [Is now the perfect time for a home makeover? Joe Biden is offering thousands of dollars for specific renovations to your property — here's what they are and how to collect your cash](https://finance.yahoo.com/news/now-perfect-time-home-makeover-113000555.html)
+- Sep 26 - [Ted Cruz Predicts Democrats Will Ditch Biden At Last Minute For This Candidate](https://www.yahoo.com/entertainment/ted-cruz-predicts-democrats-ditch-105516631.html)
+- Sep 26 - [Turkey will back Sweden's NATO bid if U.S. keeps promise on F-16 sale -Erdogan](https://news.yahoo.com/turkey-back-swedens-nato-bid-101009508.html)
+- Sep 26 - [Trump Rant About 'Batty' Whales And Windmills Leaves Critics In Stitches](https://news.yahoo.com/trump-rant-batty-whales-windmills-100643700.html)
 - Sep 26 - [Video shows Ukraine's 'hornet' drones following Russia's tanks and plopping grenades on top of them](https://news.yahoo.com/video-shows-ukraines-hornet-drones-091534118.html)
-- Sep 26 - [Viral video taken aboard Chinese train shows attendant addressing passengers trapped for 10 hours: ‘Maybe in private, she would be crying’](https://news.yahoo.com/viral-video-taken-aboard-chinese-093000938.html)
-- Sep 26 - [Cassidy Hutchinson Has Brutally Honest Response To Matt Gaetz Dating Claim](https://news.yahoo.com/cassidy-hutchinson-brutally-honest-response-070909268.html)
-- Sep 26 - [Woman Catches College Professor's Racist Rant Against An African Student For Being Late To Class](https://www.yahoo.com/lifestyle/woman-catches-college-professors-racist-041500496.html)
 <!-- feed end -->
 
 ### Onstream
