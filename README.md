@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [Is now the perfect time for a home makeover? Joe Biden is offering thousands of dollars for specific renovations to your property — here's what they are and how to collect your cash](https://finance.yahoo.com/news/now-perfect-time-home-makeover-113000555.html)
+- Sep 26 - [‘Dead’ Russian Admiral Shoved in Front of the Cameras to Prove He Survived Missile Blast](https://news.yahoo.com/dead-russian-admiral-shoved-front-123644370.html)
+- Sep 26 - [Kremlin won't comment on beating of prisoner by Kadyrov's teenage son](https://news.yahoo.com/kremlin-wont-beating-prisoner-kadyrovs-120117043.html)
+- Sep 26 - [Is now the perfect time for a home makeover? President Joe Biden is offering thousands of dollars for specific renovations to your property — here's what they are and how to collect your cash](https://finance.yahoo.com/news/now-perfect-time-home-makeover-113000555.html)
 - Sep 26 - [Ted Cruz Predicts Democrats Will Ditch Biden At Last Minute For This Candidate](https://www.yahoo.com/entertainment/ted-cruz-predicts-democrats-ditch-105516631.html)
-- Sep 26 - [Turkey will back Sweden's NATO bid if U.S. keeps promise on F-16 sale -Erdogan](https://news.yahoo.com/turkey-back-swedens-nato-bid-101009508.html)
-- Sep 26 - [Trump Rant About 'Batty' Whales And Windmills Leaves Critics In Stitches](https://news.yahoo.com/trump-rant-batty-whales-windmills-100643700.html)
-- Sep 26 - [Video shows Ukraine's 'hornet' drones following Russia's tanks and plopping grenades on top of them](https://news.yahoo.com/video-shows-ukraines-hornet-drones-091534118.html)
+- Sep 26 - [Kremlin says U.S. Abrams tanks, ATACMS missiles for Ukraine can't change battlefield situation](https://news.yahoo.com/kremlin-says-u-abrams-tanks-105343674.html)
 <!-- feed end -->
 
 ### Onstream
