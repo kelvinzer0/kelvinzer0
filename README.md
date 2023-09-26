@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 26 - [Cassidy Hutchinson Scoffs at Matt Gaetz’s Claim They Dated: ‘I Have Much Higher Standards’ (Video)](https://www.yahoo.com/entertainment/cassidy-hutchinson-scoffs-matt-gaetz-053133336.html)
+- Sep 26 - [Cassidy Hutchinson Has Brutally Honest Response To Matt Gaetz Dating Claim](https://news.yahoo.com/cassidy-hutchinson-brutally-honest-response-070909268.html)
 - Sep 26 - [Woman Catches College Professor's Racist Rant Against An African Student For Being Late To Class](https://www.yahoo.com/lifestyle/woman-catches-college-professors-racist-041500496.html)
 - Sep 26 - [Trump opposes US request to limit his comments on election case](https://news.yahoo.com/trump-opposes-us-request-limit-034438034.html)
 - Sep 26 - [Controversial streamer Ice Poseidon responds to backlash over 'sickening' Kick livestream: 'People on Twitter ... complain about nothing'](https://news.yahoo.com/controversial-streamer-ice-poseidon-responds-to-backlash-over-sickening-kick-livestream-people-on-twitter--complain-about-nothing-021543265.html)
