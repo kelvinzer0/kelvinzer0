@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Trump opposes US request to limit his comments on election case](https://news.yahoo.com/trump-opposes-us-request-limit-034438034.html)
 - Sep 26 - [Controversial streamer Ice Poseidon responds to backlash over 'sickening' Kick livestream: 'People on Twitter ... complain about nothing'](https://news.yahoo.com/controversial-streamer-ice-poseidon-responds-to-backlash-over-sickening-kick-livestream-people-on-twitter--complain-about-nothing-021543265.html)
+- Sep 26 - [Philippines says no standoff with China after removal of floating barrier in South China Sea](https://news.yahoo.com/philippines-says-china-removed-remnants-015121992.html)
+- Sep 26 - [Texas man sentenced after fatally shooting man he believed killed friend, put gun up for sale 21 minutes later](https://news.yahoo.com/texas-man-sentenced-fatally-shooting-003409161.html)
 - Sep 25 - [Woman reveals she’s been nicotine/vape-free for 1.5 months after 7 years of vaping](https://news.yahoo.com/woman-reveals-she-nicotine-vape-225541037.html)
-- Sep 25 - [‘Reminds Me of When Little Kids Lie’: Marjorie Taylor Greene Ripped Apart Online for Referring to an Airline Employee She Alleges Praised Trump As ‘African American Muhammad’](https://news.yahoo.com/reminds-little-kids-lie-marjorie-220000478.html)
-- Sep 25 - [Kari Lake's trial to review signed ballot envelopes from Arizona election wraps](https://news.yahoo.com/kari-lakes-trial-review-signed-214710604.html)
-- Sep 25 - [Mel Tucker's attorney: Michigan State doesn't have cause to fire suspended coach over phone sex](https://news.yahoo.com/mel-tuckers-attorney-michigan-state-213620756.html)
 <!-- feed end -->
 
 ### Onstream
