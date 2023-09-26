@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Jeff Bezos's Former Housekeeper Sued Him, Alleging That 14-Hour Shifts And Lack of Bathroom Access Led to Frequent UTIs; Claims She Was Only Allowed To Eat In The Laundry Room And Faced Racial Discrimination — Hired To Work Without Being Seen By The Family](https://finance.yahoo.com/news/jeff-bezoss-former-housekeeper-sued-152551404.html)
+- Sep 26 - [What’s with the AI Meme Maker filter on TikTok that’s brutally roasting users?](https://news.yahoo.com/ai-meme-maker-filter-tiktok-150831434.html)
+- Sep 26 - [Trump Broke the Law by Holding a Glock, Former FBI Counsel Says: ‘Like a Child, Except Much More Serious’](https://www.yahoo.com/entertainment/trump-broke-law-holding-glock-150604371.html)
+- Sep 26 - [JK Rowling’s opening line in first Harry Potter book voted among best of all time](https://news.yahoo.com/jk-rowling-opening-line-first-150340571.html)
 - Sep 26 - [Russian commander shown after Ukraine said it killed him](https://news.yahoo.com/russian-commander-shown-ukraine-said-144559643.html)
-- Sep 26 - [Supreme Court allows drawing of new Alabama congressional map to proceed, rejecting state's plea](https://news.yahoo.com/supreme-court-allows-drawing-alabama-134917737.html)
-- Sep 26 - [New York is on the verge of anarchy – and nobody seems to care](https://news.yahoo.com/york-verge-anarchy-nobody-seems-133858433.html)
-- Sep 26 - [White Neighbor ‘Violently’ Hosed Down Black New York Doctor and Guests at Backyard Dinner Party, Lawsuit Claims](https://news.yahoo.com/white-neighbor-violently-hosed-down-131639679.html)
-- Sep 26 - [A man survived 3 days in an upturned boat at the bottom of the ocean while crayfish ate his skin. Now he works as a diver.](https://www.yahoo.com/lifestyle/man-survived-3-days-upturned-131254085.html)
 <!-- feed end -->
 
 ### Onstream
