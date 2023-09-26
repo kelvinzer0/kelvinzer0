@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [Jonah Hill Accepted The Minimum Rate Of $60,000 For His Role In 'The Wolf Of Wall Street' While Leonardo DiCaprio Was Paid $10 Million — His Dream Was To Work With Martin Scorsese: 'I Would Sell My House And Give Him All My Money To Work For Him.'](https://finance.yahoo.com/news/jonah-hill-accepted-minimum-rate-160518656.html)
+- Sep 26 - [The Sick, Racist Message Behind Why Trump Chose That Particular Gun Store](https://news.yahoo.com/sick-racist-message-behind-why-160041585.html)
+- Sep 26 - [‘It’s Kind of Insulting’: Black Georgia Father Says He Was Stopped In LAX By Cops Because a Flight Attendant Was Concerned He Had Kidnapped His Own Children](https://news.yahoo.com/kind-insulting-black-georgia-father-153000289.html)
 - Sep 26 - [Jeff Bezos's Former Housekeeper Sued Him, Alleging That 14-Hour Shifts And Lack of Bathroom Access Led to Frequent UTIs; Claims She Was Only Allowed To Eat In The Laundry Room And Faced Racial Discrimination — Hired To Work Without Being Seen By The Family](https://finance.yahoo.com/news/jeff-bezoss-former-housekeeper-sued-152551404.html)
 - Sep 26 - [What’s with the AI Meme Maker filter on TikTok that’s brutally roasting users?](https://news.yahoo.com/ai-meme-maker-filter-tiktok-150831434.html)
-- Sep 26 - [Trump Broke the Law by Holding a Glock, Former FBI Counsel Says: ‘Like a Child, Except Much More Serious’](https://www.yahoo.com/entertainment/trump-broke-law-holding-glock-150604371.html)
-- Sep 26 - [JK Rowling’s opening line in first Harry Potter book voted among best of all time](https://news.yahoo.com/jk-rowling-opening-line-first-150340571.html)
-- Sep 26 - [Russian commander shown after Ukraine said it killed him](https://news.yahoo.com/russian-commander-shown-ukraine-said-144559643.html)
 <!-- feed end -->
 
 ### Onstream
