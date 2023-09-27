@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [UAW plans to strike additional auto targets Friday absent serious progress - source](https://news.yahoo.com/uaw-plans-strike-additional-auto-180533907.html)
-- Sep 27 - [Donald Jr. & Eric Trump's Panic Posts About Mar-a-Lago Show Just How Affected They Are About Donald Trump's NY Fraud Case](https://www.yahoo.com/entertainment/donald-jr-eric-trumps-panic-170239479.html)
-- Sep 27 - [Winner of $1.6B Mega Millions jackpot comes forward](https://news.yahoo.com/winner-1-6b-mega-millions-165019705.html)
-- Sep 27 - [Parole has been denied again for a woman serving 15 years in prison for fatally stabbing her abuser](https://news.yahoo.com/parole-denied-again-woman-serving-164247806.html)
-- Sep 27 - [Bipartisan Ohio commission unanimously approves new maps that favor Republican state legislators](https://news.yahoo.com/bipartisan-ohio-commission-unanimously-approves-152849678.html)
+- Sep 27 - [Dad fights to keep daughter alive after lightning strikes them on Florida hunting trip](https://news.yahoo.com/dad-fights-keep-daughter-alive-192852866.html)
+- Sep 27 - [Damaged bridge over I-285 in Sandy Springs to remain closed, officials say](https://news.yahoo.com/lanes-shut-down-285-westbound-164250486.html)
+- Sep 27 - [Jim Jordan fires back at Fani Willis’s ‘hostile response’ to House probe](https://news.yahoo.com/jim-jordan-fires-back-fani-185328923.html)
+- Sep 27 - [Bike thief caught after victim’s mother held three-day protest outside his house](https://news.yahoo.com/bike-thief-caught-victim-mother-183321538.html)
+- Sep 27 - [Massachusetts man stabs five officers after crashing into home following chase, police say](https://news.yahoo.com/massachusetts-man-stabs-five-officers-173254584.html)
 <!-- feed end -->
 
 ### Onstream
