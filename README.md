@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [In 1971, a mysterious hijacker parachuted out of a plane with $200,000 and vanished. This man is suing the FBI to get potential new clues](https://news.yahoo.com/1971-mysterious-hijacker-parachuted-plane-123543503.html)
 - Sep 27 - [Kremlin reminds Hillary Clinton of her own gaffe in response to Putin jab](https://news.yahoo.com/kremlin-reminds-hillary-clinton-her-113045109.html)
+- Sep 27 - [California karate instructors seen on video thwarting attempted carjacking, busting up suspects’ vehicle](https://news.yahoo.com/california-karate-instructors-seen-video-111138072.html)
 - Sep 27 - [President Drink Bleach says what? Trump now claims he beat George W. Bush and Barack Obama](https://news.yahoo.com/president-drink-bleach-says-trump-100002391.html)
 - Sep 27 - [The real reason why Donald Trump wants Gen. Milley to be killed](https://news.yahoo.com/real-reason-why-donald-trump-094501692.html)
-- Sep 27 - [NASA scientist issues grim warning 35 years after his original prediction: ‘[W]e knew it was coming’](https://news.yahoo.com/nasa-scientist-issues-grim-warning-190000490.html)
-- Sep 27 - [Alexandria Ocasio-Cortez Has 3 Blunt Words For Kevin McCarthy's New Demand](https://news.yahoo.com/alexandria-ocasio-cortez-3-blunt-080049231.html)
 <!-- feed end -->
 
 ### Onstream
