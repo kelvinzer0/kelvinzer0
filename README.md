@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Sep 27 - [Damaged bridge over I-285 in Sandy Springs to remain closed, officials say](https://news.yahoo.com/lanes-shut-down-285-westbound-164250486.html)
 - Sep 27 - [Jim Jordan fires back at Fani Willis’s ‘hostile response’ to House probe](https://news.yahoo.com/jim-jordan-fires-back-fani-185328923.html)
 - Sep 27 - [Bike thief caught after victim’s mother held three-day protest outside his house](https://news.yahoo.com/bike-thief-caught-victim-mother-183321538.html)
-- Sep 27 - [Massachusetts man stabs five officers after crashing into home following chase, police say](https://news.yahoo.com/massachusetts-man-stabs-five-officers-173254584.html)
+- Sep 27 - [Let it snow? Winter predictions start as El Niño strengthens. Here's what forecasters say.](https://news.yahoo.com/let-snow-winter-predictions-start-183019980.html)
 <!-- feed end -->
 
 ### Onstream
