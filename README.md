@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [Alexandria Ocasio-Cortez Has 3 Blunt Words For Kevin McCarthy's New Demand](https://news.yahoo.com/alexandria-ocasio-cortez-3-blunt-080049231.html)
 - Sep 27 - [Stephen King Gives 'Jimmy' Jordan A Frightening Fact-Check On Crime](https://news.yahoo.com/stephen-king-gives-jimmy-jordan-074738052.html)
 - Sep 27 - [Paul Ryan Predicts Exactly When And How Trump’s 2024 Run Could Be Doomed](https://news.yahoo.com/paul-ryan-predicts-exactly-trump-072150374.html)
 - Sep 27 - [More than a dozen people were arrested after multiple stores were looted around Philadelphia, police say](https://news.yahoo.com/more-dozen-people-were-arrested-071645046.html)
 - Sep 27 - [Trump Freaks out After Judge Finds Him Liable for Fraud: ‘I AM WORTH MUCH MORE THAN THE NUMBERS SHOWN’](https://www.yahoo.com/entertainment/trump-freaks-judge-finds-him-025225996.html)
-- Sep 27 - ['Devastating': Trump suffers potentially catastrophic loss in court; Judge 'furious'](https://news.yahoo.com/devastating-trump-suffers-potentially-catastrophic-024335284.html)
 <!-- feed end -->
 
 ### Onstream
