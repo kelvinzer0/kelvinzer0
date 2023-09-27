@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [The real reason why Donald Trump wants Gen. Milley to be killed](https://news.yahoo.com/real-reason-why-donald-trump-094501692.html)
+- Sep 27 - [Mary Trump Roasts Her Family Members After New York Fraud Ruling](https://news.yahoo.com/mary-trump-roasts-her-family-093228621.html)
 - Sep 27 - [Michael Cohen Exposes Massive Cash Problem That Could Take Down Trump](https://news.yahoo.com/michael-cohen-exposes-massive-cash-085409540.html)
+- Sep 27 - [NASA scientist issues grim warning 35 years after his original prediction: ‘[W]e knew it was coming’](https://news.yahoo.com/nasa-scientist-issues-grim-warning-190000490.html)
 - Sep 27 - [Mike Lindell says MyPillow has been crippled by American Express slashing their credit line: 'We really need everybody's help right now'](https://news.yahoo.com/mike-lindell-says-mypillow-crippled-082117331.html)
-- Sep 27 - [Alexandria Ocasio-Cortez Has 3 Blunt Words For Kevin McCarthy's New Demand](https://news.yahoo.com/alexandria-ocasio-cortez-3-blunt-080049231.html)
-- Sep 27 - [Stephen King Gives 'Jimmy' Jordan A Frightening Fact-Check On Crime](https://news.yahoo.com/stephen-king-gives-jimmy-jordan-074738052.html)
-- Sep 27 - [Paul Ryan Predicts Exactly When And How Trump’s 2024 Run Could Be Doomed](https://news.yahoo.com/paul-ryan-predicts-exactly-trump-072150374.html)
 <!-- feed end -->
 
 ### Onstream
