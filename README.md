@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [Seattle Residents Mock Fox News Reporter's Attempt To Discuss The City's Crime](https://news.yahoo.com/seattle-residents-mock-fox-news-041244240.html)
 - Sep 27 - [Trump Freaks out After Judge Finds Him Liable for Fraud: ‘I AM WORTH MUCH MORE THAN THE NUMBERS SHOWN’](https://www.yahoo.com/entertainment/trump-freaks-judge-finds-him-025225996.html)
+- Sep 27 - ['Devastating': Trump suffers potentially catastrophic loss in court; Judge 'furious'](https://news.yahoo.com/devastating-trump-suffers-potentially-catastrophic-024335284.html)
 - Sep 27 - [US to indefinitely extend China waiver for South Korean chipmakers -Yonhap](https://news.yahoo.com/us-indefinitely-extend-waiver-korean-020318698.html)
 - Sep 27 - [A reigning homecoming queen in Texas wore a Mexican heritage stole to her graduation. Now, her school says she can’t crown her successor.](https://news.yahoo.com/reigning-homecoming-queen-texas-wore-011643238.html)
-- Sep 27 - [Former Speaker Paul Ryan says Republicans will lose if Donald Trump is nominee](https://news.yahoo.com/former-speaker-paul-ryan-says-003127750.html)
-- Sep 27 - [NASA Fired Up RS-25 Engine For 600 Seconds In Mississippi](https://news.yahoo.com/nasa-fired-rs-25-engine-000000932.html)
 <!-- feed end -->
 
 ### Onstream
