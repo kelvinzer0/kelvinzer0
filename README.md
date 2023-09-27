@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 26 - [State trooper indicted, accused of 'brutally beating' 15-year-old who played ding dong ditch prank](https://news.yahoo.com/state-trooper-indicted-brutally-beating-232022941.html)
-- Sep 26 - [Scientists have found the great white sharks that fled for their lives from gruesome liver-eating killer whale attacks](https://news.yahoo.com/scientists-found-great-white-sharks-231025594.html)
-- Sep 26 - [Public to weigh in on whether wild horses that roam Theodore Roosevelt National Park should stay](https://news.yahoo.com/public-weigh-whether-wild-horses-230254745.html)
 - Sep 26 - [Canadian fashion mogul lured women and girls to bedroom suite at his Toronto HQ, prosecution alleges](https://news.yahoo.com/canadian-fashion-mogul-lured-victims-224636071.html)
 - Sep 26 - [Kevin McCarthy Wanted Bob Menendez To Resign Until Someone Mentioned George Santos](https://news.yahoo.com/kevin-mccarthy-wanted-bob-menendez-222623227.html)
+- Sep 26 - [Man Believes Thieves Followed Him Home From Bank](https://news.yahoo.com/man-believes-thieves-followed-him-215903220.html)
+- Sep 26 - [Defendant in Michigan fake elector case seeks dismissal of charges over attorney general's comments](https://news.yahoo.com/defendant-michigan-fake-elector-case-214259313.html)
 <!-- feed end -->
 
 ### Onstream
