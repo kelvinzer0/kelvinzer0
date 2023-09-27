@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 27 - [‘Why Did You Bring the News People?’: Family of Chicago 11-Year-Old Beaten to a Pulp By Adult Women Reportedly Threatened with Gun for Speaking Out](https://news.yahoo.com/why-did-bring-news-people-140000565.html)
+- Sep 27 - [More than 100 dead in Iraq wedding inferno](https://news.yahoo.com/more-100-dead-iraq-wedding-135102354.html)
 - Sep 27 - [The Trump family fraud exposed: Ivanka gets lucky with Trump Org. case](https://news.yahoo.com/trump-family-fraud-exposed-ivanka-134757748.html)
-- Sep 27 - [Trump Asked His Lawyers for Ways to Suppress His ‘Perfect Call’](https://news.yahoo.com/trump-asked-lawyers-ways-suppress-133000608.html)
 - Sep 27 - [Solomon Islands leader says he skipped Biden summit to avoid 'lecture'](https://news.yahoo.com/solomon-islands-leader-says-skipped-132603091.html)
-- Sep 27 - [In 1971, a mysterious hijacker parachuted out of a plane with $200,000 and vanished. This man is suing the FBI to get potential new clues](https://news.yahoo.com/1971-mysterious-hijacker-parachuted-plane-123543503.html)
+- Sep 27 - [‘What Gives You the Right’: Georgia Man Damages Woman’s Car with Pocketknife After He Wrongfully Assumed She Illegally Parked In Handicap Spot, Video Shows](https://news.yahoo.com/gives-georgia-man-damages-woman-130000744.html)
 <!-- feed end -->
 
 ### Onstream
