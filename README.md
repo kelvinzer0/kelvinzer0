@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [Trump Freaks out After Judge Finds Him Liable for Fraud: ‘I AM WORTH MUCH MORE THAN THE NUMBERS SHOWN’](https://www.yahoo.com/entertainment/trump-freaks-judge-finds-him-025225996.html)
 - Sep 27 - [US to indefinitely extend China waiver for South Korean chipmakers -Yonhap](https://news.yahoo.com/us-indefinitely-extend-waiver-korean-020318698.html)
-- Sep 27 - [Trump's 'corporate death penalty' explained: veteran Manhattan fraud prosecutors describe what's next](https://news.yahoo.com/trumps-corporate-death-penalty-explained-012108298.html)
 - Sep 27 - [A reigning homecoming queen in Texas wore a Mexican heritage stole to her graduation. Now, her school says she can’t crown her successor.](https://news.yahoo.com/reigning-homecoming-queen-texas-wore-011643238.html)
 - Sep 27 - [Former Speaker Paul Ryan says Republicans will lose if Donald Trump is nominee](https://news.yahoo.com/former-speaker-paul-ryan-says-003127750.html)
 - Sep 27 - [NASA Fired Up RS-25 Engine For 600 Seconds In Mississippi](https://news.yahoo.com/nasa-fired-rs-25-engine-000000932.html)
