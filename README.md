@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 26 - [State trooper indicted, accused of 'brutally beating' 15-year-old who played ding dong ditch prank](https://news.yahoo.com/state-trooper-indicted-brutally-beating-232022941.html)
+- Sep 26 - [Scientists have found the great white sharks that fled for their lives from gruesome liver-eating killer whale attacks](https://news.yahoo.com/scientists-found-great-white-sharks-231025594.html)
+- Sep 26 - [Public to weigh in on whether wild horses that roam Theodore Roosevelt National Park should stay](https://news.yahoo.com/public-weigh-whether-wild-horses-230254745.html)
+- Sep 26 - [Canadian fashion mogul lured women and girls to bedroom suite at his Toronto HQ, prosecution alleges](https://news.yahoo.com/canadian-fashion-mogul-lured-victims-224636071.html)
 - Sep 26 - [Kevin McCarthy Wanted Bob Menendez To Resign Until Someone Mentioned George Santos](https://news.yahoo.com/kevin-mccarthy-wanted-bob-menendez-222623227.html)
-- Sep 26 - [Fact Check: Video Shows 500K Men in Africa Preparing to 'Invade' Europe and America?](https://news.yahoo.com/fact-check-video-shows-500k-205100673.html)
-- Sep 26 - [US judge throws out Texas ban on drag acts, calls it unconstitutional](https://news.yahoo.com/us-judge-throws-texas-ban-203314504.html)
-- Sep 26 - [Formerly incarcerated women on TikTok reveal they weren’t allowed to wear contact lenses in prison](https://news.yahoo.com/formerly-incarcerated-women-tiktok-reveal-203218320.html)
-- Sep 26 - [Judge rules Donald Trump defrauded banks, insurers while building real estate empire](https://news.yahoo.com/judge-rules-donald-trump-defrauded-202326707.html)
 <!-- feed end -->
 
 ### Onstream
