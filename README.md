@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 27 - [Trump and sons rage after judge delivers "the corporate death penalty for the Trump Organization"](https://news.yahoo.com/trump-sons-rage-judge-delivers-170945425.html)
-- Sep 27 - [Biden's $15 minimum wage for federal contractors blocked by US judge](https://news.yahoo.com/bidens-15-minimum-wage-federal-154817540.html)
+- Sep 27 - [UAW plans to strike additional auto targets Friday absent serious progress - source](https://news.yahoo.com/uaw-plans-strike-additional-auto-180533907.html)
+- Sep 27 - [Donald Jr. & Eric Trump's Panic Posts About Mar-a-Lago Show Just How Affected They Are About Donald Trump's NY Fraud Case](https://www.yahoo.com/entertainment/donald-jr-eric-trumps-panic-170239479.html)
+- Sep 27 - [Winner of $1.6B Mega Millions jackpot comes forward](https://news.yahoo.com/winner-1-6b-mega-millions-165019705.html)
+- Sep 27 - [Parole has been denied again for a woman serving 15 years in prison for fatally stabbing her abuser](https://news.yahoo.com/parole-denied-again-woman-serving-164247806.html)
 - Sep 27 - [Bipartisan Ohio commission unanimously approves new maps that favor Republican state legislators](https://news.yahoo.com/bipartisan-ohio-commission-unanimously-approves-152849678.html)
-- Sep 27 - [Cigarette Sparks Explosion Inside Dodge Charger, Starts House Fire](https://news.yahoo.com/cigarette-sparks-explosion-inside-dodge-152500424.html)
-- Sep 27 - [Wedding Guests Flee From Flaming Debris During Deadly Iraq Fire](https://news.yahoo.com/wedding-guests-flee-flaming-debris-151157982.html)
 <!-- feed end -->
 
 ### Onstream
