@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Sep 27 - [President Drink Bleach says what? Trump now claims he beat George W. Bush and Barack Obama](https://news.yahoo.com/president-drink-bleach-says-trump-100002391.html)
 - Sep 27 - [The real reason why Donald Trump wants Gen. Milley to be killed](https://news.yahoo.com/real-reason-why-donald-trump-094501692.html)
 - Sep 27 - [NASA scientist issues grim warning 35 years after his original prediction: ‘[W]e knew it was coming’](https://news.yahoo.com/nasa-scientist-issues-grim-warning-190000490.html)
-- Sep 27 - [Mike Lindell says MyPillow has been crippled by American Express slashing their credit line: 'We really need everybody's help right now'](https://news.yahoo.com/mike-lindell-says-mypillow-crippled-082117331.html)
+- Sep 27 - [Alexandria Ocasio-Cortez Has 3 Blunt Words For Kevin McCarthy's New Demand](https://news.yahoo.com/alexandria-ocasio-cortez-3-blunt-080049231.html)
 <!-- feed end -->
 
 ### Onstream
