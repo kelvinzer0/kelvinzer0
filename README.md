@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [Trump and sons rage after judge delivers "the corporate death penalty for the Trump Organization"](https://news.yahoo.com/trump-sons-rage-judge-delivers-170945425.html)
+- Sep 27 - [Biden's $15 minimum wage for federal contractors blocked by US judge](https://news.yahoo.com/bidens-15-minimum-wage-federal-154817540.html)
+- Sep 27 - [Bipartisan Ohio commission unanimously approves new maps that favor Republican state legislators](https://news.yahoo.com/bipartisan-ohio-commission-unanimously-approves-152849678.html)
+- Sep 27 - [Cigarette Sparks Explosion Inside Dodge Charger, Starts House Fire](https://news.yahoo.com/cigarette-sparks-explosion-inside-dodge-152500424.html)
 - Sep 27 - [Wedding Guests Flee From Flaming Debris During Deadly Iraq Fire](https://news.yahoo.com/wedding-guests-flee-flaming-debris-151157982.html)
-- Sep 27 - [Mexico calls for Latin American meeting on soaring migration](https://news.yahoo.com/mexico-president-calls-latin-american-150031656.html)
-- Sep 27 - [‘Why Did You Bring the News People?’: Family of Chicago 11-Year-Old Beaten to a Pulp By Adult Women Reportedly Threatened with Gun for Speaking Out](https://news.yahoo.com/why-did-bring-news-people-140000565.html)
-- Sep 27 - [The Trump family fraud exposed: Ivanka gets lucky with Trump Org. case](https://news.yahoo.com/trump-family-fraud-exposed-ivanka-134757748.html)
-- Sep 27 - [Solomon Islands leader says he skipped Biden summit to avoid 'lecture'](https://news.yahoo.com/solomon-islands-leader-says-skipped-132603091.html)
 <!-- feed end -->
 
 ### Onstream
