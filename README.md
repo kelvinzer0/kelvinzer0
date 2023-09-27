@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [Kremlin reminds Hillary Clinton of her own gaffe in response to Putin jab](https://news.yahoo.com/kremlin-reminds-hillary-clinton-her-113045109.html)
+- Sep 27 - [President Drink Bleach says what? Trump now claims he beat George W. Bush and Barack Obama](https://news.yahoo.com/president-drink-bleach-says-trump-100002391.html)
 - Sep 27 - [The real reason why Donald Trump wants Gen. Milley to be killed](https://news.yahoo.com/real-reason-why-donald-trump-094501692.html)
-- Sep 27 - [Mary Trump Roasts Her Family Members After New York Fraud Ruling](https://news.yahoo.com/mary-trump-roasts-her-family-093228621.html)
-- Sep 27 - [Michael Cohen Exposes Massive Cash Problem That Could Take Down Trump](https://news.yahoo.com/michael-cohen-exposes-massive-cash-085409540.html)
 - Sep 27 - [NASA scientist issues grim warning 35 years after his original prediction: ‘[W]e knew it was coming’](https://news.yahoo.com/nasa-scientist-issues-grim-warning-190000490.html)
 - Sep 27 - [Mike Lindell says MyPillow has been crippled by American Express slashing their credit line: 'We really need everybody's help right now'](https://news.yahoo.com/mike-lindell-says-mypillow-crippled-082117331.html)
 <!-- feed end -->
