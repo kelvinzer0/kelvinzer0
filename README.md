@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 27 - [Judge Chutkan denies Trump’s request to recuse herself in federal election subversion case](https://news.yahoo.com/judge-chutkan-denies-trump-request-214843417.html)
-- Sep 27 - [October Prime Day: The best early deals to shop — plus everything you need to know to prepare](https://www.yahoo.com/lifestyle/amazon-october-prime-day-faq-early-deals-174845826.html)
-- Sep 27 - [Here’s Why Dax Shepard’s Trans Rights Comments To Jonathan Van Ness Are So Damaging](https://www.yahoo.com/entertainment/why-dax-shepard-trans-rights-211429260.html)
 - Sep 27 - [Colorado Mom Suzanne Morphew’s Remains Found 3 Years After She Vanished](https://news.yahoo.com/colorado-mom-suzanne-morphew-remains-205730140.html)
 - Sep 27 - [Adorable spotted kitten sold in parking lot leads to Texas couple’s arrest, feds say](https://news.yahoo.com/adorable-spotted-kitten-sold-parking-204535532.html)
+- Sep 27 - [Damaged bridge over I-285 in Sandy Springs to remain closed, officials say](https://news.yahoo.com/lanes-shut-down-285-westbound-164250486.html)
+- Sep 27 - [Mom, 40, diagnosed with cancer after kids' pediatrician noticed she didn't 'look right'](https://news.yahoo.com/mom-40-diagnosed-cancer-kids-201545711.html)
 <!-- feed end -->
 
 ### Onstream
