@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Danny Masterson legal news brief: Date set in Scientology harassment trial, probation officer reveals actor's 'primary concern' pre-sentencing](https://www.yahoo.com/entertainment/danny-masterson-scientology-harassment-trial-date-probation-officer-report-bijou-phillips-divorce-210951781.html)
-- Sep 28 - [Murder suspect Jason Billingsley waved Pava LaPere down to open a door to her apartment building before the tech CEO's death, court docs show](https://news.yahoo.com/murder-suspect-jason-billingsley-waved-205819500.html)
+- Sep 28 - [400-pound ‘gentle giant’ pulled from waters off New York. Check out the massive catch](https://news.yahoo.com/400-pound-gentle-giant-pulled-222032561.html)
+- Sep 28 - [MAGA Hat Gunman Opens Fire at Rally Over Conquistador Statue: Reports](https://news.yahoo.com/maga-hat-gunman-opens-fire-222032922.html)
+- Sep 28 - [Georgia senator who demanded Fani Willis special session suspended from GOP caucus](https://news.yahoo.com/georgia-senator-demanded-fani-willis-205915493.html)
+- Sep 28 - [Florida high-speed train headed to Orlando fatally strikes pedestrian](https://news.yahoo.com/florida-high-speed-train-headed-203635304.html)
 - Sep 28 - [300-Year-Old Tree Made Famous in Kevin Costner Film Cut Down](https://news.yahoo.com/300-old-tree-made-famous-200002409.html)
-- Sep 28 - [Black Dinner Party Guests Release Footage of Shocking Hose-Down](https://news.yahoo.com/black-dinner-party-guests-release-193058130.html)
-- Sep 28 - [House approves amendment from Marjorie Taylor Greene to cut Lloyd Austin's salary to $1](https://news.yahoo.com/house-approves-amendment-marjorie-taylor-192539636.html)
 <!-- feed end -->
 
 ### Onstream
