@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - [Cassidy Hutchinson Recalls Heartbreaking Exchange With Her Trump-Devoted Dad](https://news.yahoo.com/cassidy-hutchinson-recalls-heartbreaking-exchange-122436725.html)
+- Sep 28 - [An influencer who livestreamed herself laughing as crowds looted stores in Philadelphia has been charged with 6 felonies](https://news.yahoo.com/influencer-livestreamed-herself-laughing-crowds-120057595.html)
 - Sep 28 - [Western-made armor isn't working in Ukraine because it wasn't designed for a conflict of this intensity, Ukrainian analyst says](https://news.yahoo.com/western-made-armor-isnt-working-111700196.html)
 - Sep 28 - [Some Attendees At Donald Trump's Autoworkers Speech Were Total Frauds: Report](https://www.yahoo.com/entertainment/attendees-donald-trumps-autoworkers-rally-110155606.html)
-- Sep 28 - [Second Republican debate: The biggest moments from debate stage](https://news.yahoo.com/key-moments-republican-debate-far-012914955.html)
 - Sep 28 - [Retired 4-Star General Delivers Ominous Warning Over Trump's ‘Lawless Cult’](https://news.yahoo.com/retired-4-star-general-delivers-091103781.html)
-- Sep 28 - [Gavin Newsom Exposes The Most 'Pathetic' Moment Of The Republican Debate](https://news.yahoo.com/gavin-newsom-exposes-most-pathetic-063536331.html)
 <!-- feed end -->
 
 ### Onstream
