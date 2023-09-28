@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Video shows Russian soldier ranting about tank shells arriving with no explosives in them: 'With these rounds, we aren't going to win this war'](https://news.yahoo.com/video-shows-russian-soldier-ranting-124131970.html)
-- Sep 28 - [Cassidy Hutchinson Recalls Heartbreaking Exchange With Her Trump-Devoted Dad](https://news.yahoo.com/cassidy-hutchinson-recalls-heartbreaking-exchange-122436725.html)
-- Sep 28 - [An influencer who livestreamed herself laughing as crowds looted stores in Philadelphia has been charged with 6 felonies](https://news.yahoo.com/influencer-livestreamed-herself-laughing-crowds-120057595.html)
-- Sep 28 - [Chechen leader Kadyrov meets Putin after storm over prisoner beating](https://news.yahoo.com/putin-meets-chechen-leader-kadyrov-114753868.html)
-- Sep 28 - [Border Patrol agent attacked by suspected migrant smuggler with 'RATA,' meaning rat, tattoo on forehead](https://news.yahoo.com/border-patrol-agent-attacked-suspected-113013964.html)
+- Sep 28 - [Turkish opposition hopeful touts plan to finally defeat Erdogan](https://news.yahoo.com/turkish-opposition-hopeful-touts-plan-142847963.html)
+- Sep 28 - [Wisconsin Supreme Court won't hear longshot case trying to head off impeachment](https://news.yahoo.com/wisconsin-supreme-court-wont-hear-142308786.html)
+- Sep 28 - [Western-made armor isn't working in Ukraine because it wasn't designed for a conflict of this intensity, Ukrainian analyst says](https://news.yahoo.com/western-made-armor-isnt-working-111700196.html)
+- Sep 28 - [UK police are investigating the 'deliberate felling' of a famous tree at Hadrian's Wall](https://news.yahoo.com/uk-police-investigating-deliberate-felling-140819500.html)
+- Sep 28 - [‘Morning Joe’ Cringes at Mike Pence’s Sex Joke Attempt During GOP Debate: ‘No, No, No, No, No’ (Video)](https://www.yahoo.com/entertainment/morning-joe-cringes-mike-pence-134743565.html)
 <!-- feed end -->
 
 ### Onstream
