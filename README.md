@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Sep 28 - [Gavin Newsom Exposes The Most 'Pathetic' Moment Of The Republican Debate](https://news.yahoo.com/gavin-newsom-exposes-most-pathetic-063536331.html)
 - Sep 28 - [Ron DeSantis Flailed When Fox News Asked Why So Many Floridians Are Uninsured](https://news.yahoo.com/ron-desantis-flailed-fox-news-041452736.html)
 - Sep 28 - [2nd GOP debate descends into chaos](https://news.yahoo.com/2nd-gop-debate-descends-into-chaos-021657545.html)
-- Sep 28 - [Iowa voters thought the first Republican debate had a clear winner. Hear who](https://news.yahoo.com/iowa-voters-thought-republican-debate-042712481.html)
+- Sep 28 - [Family of woman kidnapped, murdered during 'fun' night in Atlanta honors her spirit](https://news.yahoo.com/family-woman-kidnapped-murdered-during-015218551.html)
 <!-- feed end -->
 
 ### Onstream
