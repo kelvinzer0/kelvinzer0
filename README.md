@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Husband hears screaming as wife’s co-worker kidnaps her outside Texas home, FBI says](https://news.yahoo.com/husband-hears-screaming-wife-co-201528832.html)
+- Sep 28 - [Danny Masterson legal news brief: Date set in Scientology harassment trial, probation officer reveals actor's 'primary concern' pre-sentencing](https://www.yahoo.com/entertainment/danny-masterson-scientology-harassment-trial-date-probation-officer-report-bijou-phillips-divorce-210951781.html)
+- Sep 28 - [Murder suspect Jason Billingsley waved Pava LaPere down to open a door to her apartment building before the tech CEO's death, court docs show](https://news.yahoo.com/murder-suspect-jason-billingsley-waved-205819500.html)
 - Sep 28 - [300-Year-Old Tree Made Famous in Kevin Costner Film Cut Down](https://news.yahoo.com/300-old-tree-made-famous-200002409.html)
 - Sep 28 - [Black Dinner Party Guests Release Footage of Shocking Hose-Down](https://news.yahoo.com/black-dinner-party-guests-release-193058130.html)
 - Sep 28 - [House approves amendment from Marjorie Taylor Greene to cut Lloyd Austin's salary to $1](https://news.yahoo.com/house-approves-amendment-marjorie-taylor-192539636.html)
-- Sep 28 - [California fast-food workers to earn minimum of $20 an hour under new law](https://news.yahoo.com/california-fast-food-workers-earn-191129455.html)
 <!-- feed end -->
 
 ### Onstream
