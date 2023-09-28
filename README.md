@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - ["They have to stop the debates": After second GOP face-off, Trump demands RNC silence his opponents](https://news.yahoo.com/stop-debates-second-gop-face-155122885.html)
+- Sep 28 - [Woman Gets Botulism, Becomes Paralyzed After Eating Pesto From a Farmer's Market: 'My Body Stopped Working'](https://www.yahoo.com/entertainment/woman-gets-botulism-pesto-bought-165535160.html)
+- Sep 28 - [Ron DeSantis Bashed His 'Elite' Ivy League Education Saying, 'I Viewed Having Earned Degrees From Yale And Harvard Law School To Be Political Scarlet Letters'](https://finance.yahoo.com/news/ron-desantis-bashed-elite-ivy-164934642.html)
+- Sep 28 - ['They Can Outbid Your Children': RFK Jr. Warns That Corporations Are 'Trying To Buy Every Single-Family Home' In America — And They Are On Track To Own 60% Of Homes By 2030](https://finance.yahoo.com/news/outbid-children-rfk-jr-warns-164021972.html)
 - Sep 28 - [Star GOP Witness Immediately Pours Cold Water on Biden Impeachment](https://news.yahoo.com/star-gop-witness-immediately-pours-154824160.html)
 - Sep 28 - [‘Would Have Called the Police If I Knew’: New York Mom Who Allegedly Ran Over 15-Year-Old Twice Because She Thought He Bullied Her Son Acquitted of Attempted Murder Charge](https://news.yahoo.com/called-police-knew-york-mom-153000441.html)
-- Sep 28 - [Donald Trump's Former Aide Believes the Possible Loss of Trump Tower Would Be More Devastating Than Prison](https://www.yahoo.com/entertainment/donald-trumps-former-aide-believes-151124791.html)
-- Sep 28 - [‘Old Enough to Know Right from Wrong’: Teens at Idaho High School to Face Disciplinary Action After ‘Disgusting’ Picture of Them with T-Shirts Spelling Out the N-Word Hits the Internet](https://news.yahoo.com/old-enough-know-wrong-teens-143539963.html)
 <!-- feed end -->
 
 ### Onstream
