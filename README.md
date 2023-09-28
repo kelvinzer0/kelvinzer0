@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - [Milley says he will take ‘appropriate measures’ to ensure safety following Trump comments](https://news.yahoo.com/milley-says-appropriate-measures-ensure-003509261.html)
+- Sep 28 - [Migrants approaching Rio Grande surprised by ‘hostile’ border](https://news.yahoo.com/migrants-approaching-rio-grande-surprised-001318913.html)
+- Sep 27 - [Marjorie Taylor Greene moved to slash Defense Secretary Lloyd Austin's salary to $1, exposing a rift between MAGA Republicans and military officials under the Biden Administration](https://news.yahoo.com/marjorie-taylor-greene-moved-slash-232010243.html)
 - Sep 27 - [Fact Check: AOC Became a Multi-Millionaire After Serving Four Years in Congress?](https://news.yahoo.com/fact-check-aoc-became-multi-223500871.html)
 - Sep 27 - [Abrams tanks were 'built to kill' Russian armor, but Ukraine has its work cut out for it keeping them in the fight](https://news.yahoo.com/abrams-tanks-were-built-kill-223345161.html)
-- Sep 27 - [Judge Chutkan denies Trump’s request to recuse herself in federal election subversion case](https://news.yahoo.com/judge-chutkan-denies-trump-request-214843417.html)
-- Sep 27 - [6 bodies and 1 survivor found in Mexico, in the search for 7 kidnapped youths](https://news.yahoo.com/6-bodies-1-survivor-found-212628309.html)
-- Sep 27 - [Colorado Mom Suzanne Morphew’s Remains Found 3 Years After She Vanished](https://news.yahoo.com/colorado-mom-suzanne-morphew-remains-205730140.html)
 <!-- feed end -->
 
 ### Onstream
