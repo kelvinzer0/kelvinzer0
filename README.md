@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Woman Gets Botulism, Becomes Paralyzed After Eating Pesto From a Farmer's Market: 'My Body Stopped Working'](https://www.yahoo.com/entertainment/woman-gets-botulism-pesto-bought-165535160.html)
-- Sep 28 - [Ron DeSantis Bashed His 'Elite' Ivy League Education Saying, 'I Viewed Having Earned Degrees From Yale And Harvard Law School To Be Political Scarlet Letters'](https://finance.yahoo.com/news/ron-desantis-bashed-elite-ivy-164934642.html)
-- Sep 28 - ['They Can Outbid Your Children': RFK Jr. Warns That Corporations Are 'Trying To Buy Every Single-Family Home' In America — And They Are On Track To Own 60% Of Homes By 2030](https://finance.yahoo.com/news/outbid-children-rfk-jr-warns-164021972.html)
-- Sep 28 - [Star GOP Witness Immediately Pours Cold Water on Biden Impeachment](https://news.yahoo.com/star-gop-witness-immediately-pours-154824160.html)
-- Sep 28 - [‘Would Have Called the Police If I Knew’: New York Mom Who Allegedly Ran Over 15-Year-Old Twice Because She Thought He Bullied Her Son Acquitted of Attempted Murder Charge](https://news.yahoo.com/called-police-knew-york-mom-153000441.html)
+- Sep 28 - [Tucker Carlson Wanted To Interview Vladimir Putin But Says The US Government Stopped Him — 'You're Not Allowed To Hear Putin's Voice'](https://finance.yahoo.com/news/tucker-carlson-wanted-interview-vladimir-183524743.html)
+- Sep 28 - [Couple Sues After B-Day Trip to Disney World Is Ruined by ‘Painful Wedgie’](https://news.yahoo.com/couple-sues-b-day-trip-180505170.html)
+- Sep 28 - [Man assaults 13-year-old on flight, says she’ll ‘never see her family again,’ feds say](https://news.yahoo.com/man-assaults-13-old-flight-180344419.html)
+- Sep 28 - [Farmer protecting chickens captures creature considered locally extinct for 130 years](https://news.yahoo.com/farmer-protecting-chickens-captures-creature-175046382.html)
+- Sep 28 - [Latest fight in the Alex Murdaugh case is over who controls the convicted murderer's assets](https://news.yahoo.com/latest-fight-alex-murdaugh-case-165828299.html)
 <!-- feed end -->
 
 ### Onstream
