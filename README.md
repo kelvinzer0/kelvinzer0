@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [UPDATE 2-Appeals court will not delay Donald Trump civil fraud trial](https://finance.yahoo.com/news/1-appeals-court-not-delay-192556068.html)
+- Sep 28 - [Husband hears screaming as wife’s co-worker kidnaps her outside Texas home, FBI says](https://news.yahoo.com/husband-hears-screaming-wife-co-201528832.html)
+- Sep 28 - [300-Year-Old Tree Made Famous in Kevin Costner Film Cut Down](https://news.yahoo.com/300-old-tree-made-famous-200002409.html)
+- Sep 28 - [Black Dinner Party Guests Release Footage of Shocking Hose-Down](https://news.yahoo.com/black-dinner-party-guests-release-193058130.html)
 - Sep 28 - [House approves amendment from Marjorie Taylor Greene to cut Lloyd Austin's salary to $1](https://news.yahoo.com/house-approves-amendment-marjorie-taylor-192539636.html)
-- Sep 28 - [Angry customer and auto shop owner kill each other in a shootout, Florida cops say](https://news.yahoo.com/angry-customer-auto-shop-owner-184711251.html)
-- Sep 28 - [‘I Just Sat There and Took It’: Florida Teen Reportedly Edited Into Image Holding Cotton, Called Racist Terms By Classmates. Other Students Have Come Forward](https://news.yahoo.com/just-sat-took-florida-teen-183519389.html)
-- Sep 28 - [Couple Sues After B-Day Trip to Disney World Is Ruined by ‘Painful Wedgie’](https://news.yahoo.com/couple-sues-b-day-trip-180505170.html)
+- Sep 28 - [California fast-food workers to earn minimum of $20 an hour under new law](https://news.yahoo.com/california-fast-food-workers-earn-191129455.html)
 <!-- feed end -->
 
 ### Onstream
