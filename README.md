@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - [Nikki Haley Bashes Vivek Ramaswamy Over TikTok: “Every Time I Hear You, I Feel A Little Bit Dumber For What You Say” — Update](https://www.yahoo.com/entertainment/second-republican-debate-reagan-library-235146677.html)
+- Sep 28 - [2nd GOP debate descends into chaos](https://news.yahoo.com/2nd-gop-debate-descends-into-chaos-021657545.html)
 - Sep 28 - [Milley says he will take ‘appropriate measures’ to ensure safety following Trump comments](https://news.yahoo.com/milley-says-appropriate-measures-ensure-003509261.html)
-- Sep 28 - [Migrants approaching Rio Grande surprised by ‘hostile’ border](https://news.yahoo.com/migrants-approaching-rio-grande-surprised-001318913.html)
+- Sep 27 - [Pilot error led to Alaska crash killing billionaire Petr Kellner, NTSB says](https://news.yahoo.com/pilot-error-led-alaska-crash-233228440.html)
 - Sep 27 - [Marjorie Taylor Greene moved to slash Defense Secretary Lloyd Austin's salary to $1, exposing a rift between MAGA Republicans and military officials under the Biden Administration](https://news.yahoo.com/marjorie-taylor-greene-moved-slash-232010243.html)
-- Sep 27 - [Fact Check: AOC Became a Multi-Millionaire After Serving Four Years in Congress?](https://news.yahoo.com/fact-check-aoc-became-multi-223500871.html)
-- Sep 27 - [Abrams tanks were 'built to kill' Russian armor, but Ukraine has its work cut out for it keeping them in the fight](https://news.yahoo.com/abrams-tanks-were-built-kill-223345161.html)
 <!-- feed end -->
 
 ### Onstream
