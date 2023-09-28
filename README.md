@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Tucker Carlson Wanted To Interview Vladimir Putin But Says The US Government Stopped Him — 'You're Not Allowed To Hear Putin's Voice'](https://finance.yahoo.com/news/tucker-carlson-wanted-interview-vladimir-183524743.html)
+- Sep 28 - [UPDATE 2-Appeals court will not delay Donald Trump civil fraud trial](https://finance.yahoo.com/news/1-appeals-court-not-delay-192556068.html)
+- Sep 28 - [House approves amendment from Marjorie Taylor Greene to cut Lloyd Austin's salary to $1](https://news.yahoo.com/house-approves-amendment-marjorie-taylor-192539636.html)
+- Sep 28 - [Angry customer and auto shop owner kill each other in a shootout, Florida cops say](https://news.yahoo.com/angry-customer-auto-shop-owner-184711251.html)
+- Sep 28 - [‘I Just Sat There and Took It’: Florida Teen Reportedly Edited Into Image Holding Cotton, Called Racist Terms By Classmates. Other Students Have Come Forward](https://news.yahoo.com/just-sat-took-florida-teen-183519389.html)
 - Sep 28 - [Couple Sues After B-Day Trip to Disney World Is Ruined by ‘Painful Wedgie’](https://news.yahoo.com/couple-sues-b-day-trip-180505170.html)
-- Sep 28 - [Man assaults 13-year-old on flight, says she’ll ‘never see her family again,’ feds say](https://news.yahoo.com/man-assaults-13-old-flight-180344419.html)
-- Sep 28 - [Farmer protecting chickens captures creature considered locally extinct for 130 years](https://news.yahoo.com/farmer-protecting-chickens-captures-creature-175046382.html)
-- Sep 28 - [Latest fight in the Alex Murdaugh case is over who controls the convicted murderer's assets](https://news.yahoo.com/latest-fight-alex-murdaugh-case-165828299.html)
 <!-- feed end -->
 
 ### Onstream
