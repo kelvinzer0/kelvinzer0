@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 27 - [Fact Check: AOC Became a Multi-Millionaire After Serving Four Years in Congress?](https://news.yahoo.com/fact-check-aoc-became-multi-223500871.html)
+- Sep 27 - [Abrams tanks were 'built to kill' Russian armor, but Ukraine has its work cut out for it keeping them in the fight](https://news.yahoo.com/abrams-tanks-were-built-kill-223345161.html)
 - Sep 27 - [Judge Chutkan denies Trump’s request to recuse herself in federal election subversion case](https://news.yahoo.com/judge-chutkan-denies-trump-request-214843417.html)
+- Sep 27 - [6 bodies and 1 survivor found in Mexico, in the search for 7 kidnapped youths](https://news.yahoo.com/6-bodies-1-survivor-found-212628309.html)
 - Sep 27 - [Colorado Mom Suzanne Morphew’s Remains Found 3 Years After She Vanished](https://news.yahoo.com/colorado-mom-suzanne-morphew-remains-205730140.html)
-- Sep 27 - [Adorable spotted kitten sold in parking lot leads to Texas couple’s arrest, feds say](https://news.yahoo.com/adorable-spotted-kitten-sold-parking-204535532.html)
-- Sep 27 - [Damaged bridge over I-285 in Sandy Springs to remain closed, officials say](https://news.yahoo.com/lanes-shut-down-285-westbound-164250486.html)
-- Sep 27 - [Mom, 40, diagnosed with cancer after kids' pediatrician noticed she didn't 'look right'](https://news.yahoo.com/mom-40-diagnosed-cancer-kids-201545711.html)
 <!-- feed end -->
 
 ### Onstream
