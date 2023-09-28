@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - ["They have to stop the debates": After second GOP face-off, Trump demands RNC silence his opponents](https://news.yahoo.com/stop-debates-second-gop-face-155122885.html)
 - Sep 28 - [Star GOP Witness Immediately Pours Cold Water on Biden Impeachment](https://news.yahoo.com/star-gop-witness-immediately-pours-154824160.html)
 - Sep 28 - [‘Would Have Called the Police If I Knew’: New York Mom Who Allegedly Ran Over 15-Year-Old Twice Because She Thought He Bullied Her Son Acquitted of Attempted Murder Charge](https://news.yahoo.com/called-police-knew-york-mom-153000441.html)
+- Sep 28 - [Donald Trump's Former Aide Believes the Possible Loss of Trump Tower Would Be More Devastating Than Prison](https://www.yahoo.com/entertainment/donald-trumps-former-aide-believes-151124791.html)
 - Sep 28 - [‘Old Enough to Know Right from Wrong’: Teens at Idaho High School to Face Disciplinary Action After ‘Disgusting’ Picture of Them with T-Shirts Spelling Out the N-Word Hits the Internet](https://news.yahoo.com/old-enough-know-wrong-teens-143539963.html)
-- Sep 28 - [Wisconsin Supreme Court won't hear longshot case trying to head off impeachment](https://news.yahoo.com/wisconsin-supreme-court-wont-hear-142308786.html)
-- Sep 28 - [16-year-old boy arrested in England over the 'deliberate' felling of a famous tree at Hadrian's Wall](https://news.yahoo.com/uk-police-investigating-deliberate-felling-140819500.html)
 <!-- feed end -->
 
 ### Onstream
