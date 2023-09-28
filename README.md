@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 28 - [Winners and losers from the second Republican debate](https://news.yahoo.com/key-moments-republican-debate-far-012914955.html)
-- Sep 28 - [Chris Christie Goes Straight To Camera With Direct Message For Trump At GOP Debate](https://news.yahoo.com/chris-christie-goes-straight-camera-030038890.html)
+- Sep 28 - [Ron DeSantis Flailed When Fox News Asked Why So Many Floridians Are Uninsured](https://news.yahoo.com/ron-desantis-flailed-fox-news-041452736.html)
 - Sep 28 - [2nd GOP debate descends into chaos](https://news.yahoo.com/2nd-gop-debate-descends-into-chaos-021657545.html)
-- Sep 28 - [Ron DeSantis’s Painfully Weird Smile Goes Viral During GOP Debate Once Again](https://news.yahoo.com/ron-desantis-painfully-weird-smile-021413927.html)
+- Sep 28 - [Iowa voters thought the first Republican debate had a clear winner. Hear who](https://news.yahoo.com/iowa-voters-thought-republican-debate-042712481.html)
 - Sep 28 - [Milley says he will take ‘appropriate measures’ to ensure safety following Trump comments](https://news.yahoo.com/milley-says-appropriate-measures-ensure-003509261.html)
 <!-- feed end -->
 
