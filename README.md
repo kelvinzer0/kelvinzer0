@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - [Western-made armor isn't working in Ukraine because it wasn't designed for a conflict of this intensity, Ukrainian analyst says](https://news.yahoo.com/western-made-armor-isnt-working-111700196.html)
+- Sep 28 - [Some Attendees At Donald Trump's Autoworkers Speech Were Total Frauds: Report](https://www.yahoo.com/entertainment/attendees-donald-trumps-autoworkers-rally-110155606.html)
 - Sep 28 - [Second Republican debate: The biggest moments from debate stage](https://news.yahoo.com/key-moments-republican-debate-far-012914955.html)
 - Sep 28 - [Retired 4-Star General Delivers Ominous Warning Over Trump's ‘Lawless Cult’](https://news.yahoo.com/retired-4-star-general-delivers-091103781.html)
 - Sep 28 - [Gavin Newsom Exposes The Most 'Pathetic' Moment Of The Republican Debate](https://news.yahoo.com/gavin-newsom-exposes-most-pathetic-063536331.html)
-- Sep 28 - [John Fetterman Has A 1-Meme Response After Senate Passes Formal Dress Code](https://news.yahoo.com/john-fetterman-1-meme-response-055618706.html)
-- Sep 28 - [Ron DeSantis Flailed When Fox News Asked Why So Many Floridians Are Uninsured](https://news.yahoo.com/ron-desantis-flailed-fox-news-041452736.html)
 <!-- feed end -->
 
 ### Onstream
