@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - [Video shows Russian soldier ranting about tank shells arriving with no explosives in them: 'With these rounds, we aren't going to win this war'](https://news.yahoo.com/video-shows-russian-soldier-ranting-124131970.html)
 - Sep 28 - [Cassidy Hutchinson Recalls Heartbreaking Exchange With Her Trump-Devoted Dad](https://news.yahoo.com/cassidy-hutchinson-recalls-heartbreaking-exchange-122436725.html)
 - Sep 28 - [An influencer who livestreamed herself laughing as crowds looted stores in Philadelphia has been charged with 6 felonies](https://news.yahoo.com/influencer-livestreamed-herself-laughing-crowds-120057595.html)
-- Sep 28 - [Western-made armor isn't working in Ukraine because it wasn't designed for a conflict of this intensity, Ukrainian analyst says](https://news.yahoo.com/western-made-armor-isnt-working-111700196.html)
-- Sep 28 - [Some Attendees At Donald Trump's Autoworkers Speech Were Total Frauds: Report](https://www.yahoo.com/entertainment/attendees-donald-trumps-autoworkers-rally-110155606.html)
-- Sep 28 - [Retired 4-Star General Delivers Ominous Warning Over Trump's ‘Lawless Cult’](https://news.yahoo.com/retired-4-star-general-delivers-091103781.html)
+- Sep 28 - [Chechen leader Kadyrov meets Putin after storm over prisoner beating](https://news.yahoo.com/putin-meets-chechen-leader-kadyrov-114753868.html)
+- Sep 28 - [Border Patrol agent attacked by suspected migrant smuggler with 'RATA,' meaning rat, tattoo on forehead](https://news.yahoo.com/border-patrol-agent-attacked-suspected-113013964.html)
 <!-- feed end -->
 
 ### Onstream
