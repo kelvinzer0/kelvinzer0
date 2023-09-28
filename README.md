@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Nikki Haley Bashes Vivek Ramaswamy Over TikTok: “Every Time I Hear You, I Feel A Little Bit Dumber For What You Say” — Update](https://www.yahoo.com/entertainment/second-republican-debate-reagan-library-235146677.html)
+- Sep 28 - [Winners and losers from the second Republican debate](https://news.yahoo.com/key-moments-republican-debate-far-012914955.html)
+- Sep 28 - [Chris Christie Goes Straight To Camera With Direct Message For Trump At GOP Debate](https://news.yahoo.com/chris-christie-goes-straight-camera-030038890.html)
 - Sep 28 - [2nd GOP debate descends into chaos](https://news.yahoo.com/2nd-gop-debate-descends-into-chaos-021657545.html)
+- Sep 28 - [Ron DeSantis’s Painfully Weird Smile Goes Viral During GOP Debate Once Again](https://news.yahoo.com/ron-desantis-painfully-weird-smile-021413927.html)
 - Sep 28 - [Milley says he will take ‘appropriate measures’ to ensure safety following Trump comments](https://news.yahoo.com/milley-says-appropriate-measures-ensure-003509261.html)
-- Sep 27 - [Pilot error led to Alaska crash killing billionaire Petr Kellner, NTSB says](https://news.yahoo.com/pilot-error-led-alaska-crash-233228440.html)
-- Sep 27 - [Marjorie Taylor Greene moved to slash Defense Secretary Lloyd Austin's salary to $1, exposing a rift between MAGA Republicans and military officials under the Biden Administration](https://news.yahoo.com/marjorie-taylor-greene-moved-slash-232010243.html)
 <!-- feed end -->
 
 ### Onstream
