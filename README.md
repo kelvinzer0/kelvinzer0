@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Sep 28 - [Second Republican debate: The biggest moments from debate stage](https://news.yahoo.com/key-moments-republican-debate-far-012914955.html)
 - Sep 28 - [Gavin Newsom Exposes The Most 'Pathetic' Moment Of The Republican Debate](https://news.yahoo.com/gavin-newsom-exposes-most-pathetic-063536331.html)
+- Sep 28 - [John Fetterman Has A 1-Meme Response After Senate Passes Formal Dress Code](https://news.yahoo.com/john-fetterman-1-meme-response-055618706.html)
 - Sep 28 - [Ron DeSantis Flailed When Fox News Asked Why So Many Floridians Are Uninsured](https://news.yahoo.com/ron-desantis-flailed-fox-news-041452736.html)
 - Sep 28 - [2nd GOP debate descends into chaos](https://news.yahoo.com/2nd-gop-debate-descends-into-chaos-021657545.html)
-- Sep 28 - [Family of woman kidnapped, murdered during 'fun' night in Atlanta honors her spirit](https://news.yahoo.com/family-woman-kidnapped-murdered-during-015218551.html)
 <!-- feed end -->
 
 ### Onstream
