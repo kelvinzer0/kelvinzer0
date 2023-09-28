@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 28 - [Turkish opposition hopeful touts plan to finally defeat Erdogan](https://news.yahoo.com/turkish-opposition-hopeful-touts-plan-142847963.html)
+- Sep 28 - [Star GOP Witness Immediately Pours Cold Water on Biden Impeachment](https://news.yahoo.com/star-gop-witness-immediately-pours-154824160.html)
+- Sep 28 - [‘Would Have Called the Police If I Knew’: New York Mom Who Allegedly Ran Over 15-Year-Old Twice Because She Thought He Bullied Her Son Acquitted of Attempted Murder Charge](https://news.yahoo.com/called-police-knew-york-mom-153000441.html)
+- Sep 28 - [‘Old Enough to Know Right from Wrong’: Teens at Idaho High School to Face Disciplinary Action After ‘Disgusting’ Picture of Them with T-Shirts Spelling Out the N-Word Hits the Internet](https://news.yahoo.com/old-enough-know-wrong-teens-143539963.html)
 - Sep 28 - [Wisconsin Supreme Court won't hear longshot case trying to head off impeachment](https://news.yahoo.com/wisconsin-supreme-court-wont-hear-142308786.html)
-- Sep 28 - [Western-made armor isn't working in Ukraine because it wasn't designed for a conflict of this intensity, Ukrainian analyst says](https://news.yahoo.com/western-made-armor-isnt-working-111700196.html)
-- Sep 28 - [UK police are investigating the 'deliberate felling' of a famous tree at Hadrian's Wall](https://news.yahoo.com/uk-police-investigating-deliberate-felling-140819500.html)
-- Sep 28 - [‘Morning Joe’ Cringes at Mike Pence’s Sex Joke Attempt During GOP Debate: ‘No, No, No, No, No’ (Video)](https://www.yahoo.com/entertainment/morning-joe-cringes-mike-pence-134743565.html)
+- Sep 28 - [16-year-old boy arrested in England over the 'deliberate' felling of a famous tree at Hadrian's Wall](https://news.yahoo.com/uk-police-investigating-deliberate-felling-140819500.html)
 <!-- feed end -->
 
 ### Onstream
