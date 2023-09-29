@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [Ex-Justice Department official Jeffrey Clark can't move Georgia case to federal court, a judge says](https://news.yahoo.com/ex-justice-department-official-jeffrey-182628960.html)
+- Sep 29 - ["Bleeding cash": Trump machine diverting millions in campaign funds to mounting legal fees](https://news.yahoo.com/bleeding-cash-trump-machine-diverting-184342207.html)
 - Sep 29 - [Missouri high school teacher is put on leave after school officials discover her page on porn site](https://news.yahoo.com/missouri-high-school-teacher-put-180929496.html)
 - Sep 29 - [Mark Wahlberg serves up drinks at grand opening of new Boston bar](https://news.yahoo.com/mark-wahlberg-serves-drinks-grand-175016193.html)
 - Sep 29 - [Teacher accused of raping child texted victim after arrest, police say](https://news.yahoo.com/teacher-accused-raping-child-texted-174852526.html)
-- Sep 29 - [Travis Kelce Is One Of The NFL's Best-Paid Players, But Taylor Swift Earns His Salary In A Single Night, And Her Net Worth Is 25 Times More](https://finance.yahoo.com/news/travis-kelce-one-nfls-best-171611354.html)
+- Sep 29 - [See inside the world's largest private jet, a Boeing 747 typically used by governments and the world's top elite](https://news.yahoo.com/see-inside-worlds-largest-private-124600118.html)
 <!-- feed end -->
 
 ### Onstream
