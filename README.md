@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 28 - [400-pound ‘gentle giant’ pulled from waters off New York. Check out the massive catch](https://news.yahoo.com/400-pound-gentle-giant-pulled-222032561.html)
-- Sep 28 - [Florida high-speed train headed to Orlando fatally strikes pedestrian](https://news.yahoo.com/florida-high-speed-train-headed-203635304.html)
+- Sep 28 - [Trump says Mar-a-Lago is worth $1.8B, but his company hasn't always agreed](https://news.yahoo.com/trump-says-mar-lago-worth-213730468.html)
 - Sep 28 - [300-Year-Old Tree Made Famous in Kevin Costner Film Cut Down](https://news.yahoo.com/300-old-tree-made-famous-200002409.html)
 - Sep 28 - [Black Dinner Party Guests Release Footage of Shocking Hose-Down](https://news.yahoo.com/black-dinner-party-guests-release-193058130.html)
 - Sep 28 - [House approves amendment from Marjorie Taylor Greene to cut Lloyd Austin's salary to $1](https://news.yahoo.com/house-approves-amendment-marjorie-taylor-192539636.html)
