@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [Proud Boys member who disappeared ahead of his sentencing in the Jan. 6 attack has been arrested](https://news.yahoo.com/proud-boys-member-disappeared-ahead-144340091.html)
 - Sep 29 - [Ukraine-Russia war latest: Russian air defences shoot down one of its most advanced fighter jets](https://news.yahoo.com/ukraine-russia-war-latest-putin-071202079.html)
-- Sep 29 - [Long-serving US Democratic Senator Dianne Feinstein dead at 90](https://news.yahoo.com/long-serving-us-democratic-senator-124721164.html)
-- Sep 29 - [Russia pardoned a murderer who put his girlfriend through a meat grinder because he agreed to fight in Ukraine, his mom says](https://news.yahoo.com/russia-pardoned-murderer-put-girlfriend-124452279.html)
+- Sep 29 - [Dianne Feinstein is dead. Here's what happens next, and what it means for Democrats.](https://news.yahoo.com/dianne-feinstein-dead-heres-happens-133521030.html)
 - Sep 29 - [A delivery driver who shot a YouTuber who was pranking him said it was justifiable self-defense — and a jury agreed](https://news.yahoo.com/delivery-driver-shot-youtuber-pranking-103833578.html)
 - Sep 29 - ['The worst investment people can make': Real estate guru Grant Cardone says too many Americans are chasing after the dream of homeownership. Here's what he thinks you should do instead](https://finance.yahoo.com/news/worst-investment-ll-ever-financial-130000294.html)
 <!-- feed end -->
