@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [Judge sets hearing on gag order request in Trump election case in DC](https://news.yahoo.com/judge-sets-hearing-gag-order-210403000.html)
+- Sep 29 - [Subway franchise owners must pay workers nearly $1M - and also sell or close their stores](https://news.yahoo.com/subway-franchise-owners-must-pay-221916422.html)
+- Sep 29 - [‘Disgusting, Hate-Driven’: 17 Hells Angels Members and Associates Attacked 3 Black Men. Prosecutors Suspect It Was Because One of Them Flirted with a Biker’s Girlfriend.](https://news.yahoo.com/disgusting-hate-driven-17-hells-220000053.html)
 - Sep 29 - [Flight attendants and pilots swear by this luggage brand that you can shop on sale on Amazon right now](https://news.yahoo.com/flight-crew-luggage-travelpro-amazon-205059146.html)
 - Sep 29 - [Arizona’s governor didn’t ‘mysteriously’ step down. She was in DC less than a day and is back now](https://news.yahoo.com/arizona-governor-didn-t-mysteriously-204158771.html)
-- Sep 29 - [These are the Republicans who voted against the GOP funding bill](https://news.yahoo.com/republicans-voted-against-gop-funding-192749725.html)
-- Sep 29 - [Bail bondsman charged alongside Trump in Georgia becomes the first defendant to take a plea deal](https://news.yahoo.com/ex-justice-department-official-jeffrey-182628960.html)
+- Sep 29 - [House Dem Leader Jeffries floats end-run around McCarthy to avert government shutdown](https://news.yahoo.com/house-dem-leader-jeffries-floats-200511688.html)
 <!-- feed end -->
 
 ### Onstream
