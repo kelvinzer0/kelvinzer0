@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [Gavin Newsom is positioning himself to replace Biden. But he can’t be trusted](https://news.yahoo.com/gavin-newsom-positioning-himself-replace-164348543.html)
-- Sep 29 - [Man tied to suspected shooter in Tupac Shakur’s 1996 killing arrested in Las Vegas, AP sources say](https://news.yahoo.com/man-connected-suspected-shooter-tupac-163129591.html)
-- Sep 29 - [22 Historical Facts That Range From Fascinating To Horrifying To Unbelievably Bizarre](https://www.yahoo.com/lifestyle/22-historical-facts-range-fascinating-154602037.html)
-- Sep 29 - [Ukraine-Russia war latest: Russian air defences shoot down their own top fighter jet](https://news.yahoo.com/ukraine-russia-war-latest-putin-071202079.html)
-- Sep 29 - [McCarthy launches last-ditch plan to keep government open but with steep 30% cuts to many agencies](https://news.yahoo.com/mccarthy-launches-last-ditch-plan-151436079.html)
+- Sep 29 - [Travis Kelce Is One Of The NFL's Best-Paid Players, But Taylor Swift Earns His Salary In A Single Night, And Her Net Worth Is 25 Times More](https://finance.yahoo.com/news/travis-kelce-one-nfls-best-171611354.html)
+- Sep 29 - [Top US military officer steps down with 'dictator' swipe at Trump](https://news.yahoo.com/top-us-military-officer-steps-154805094.html)
+- Sep 29 - [Man tied to suspected gunman in 1996 killing of rapper Tupac Shakur indicted on murder charge](https://news.yahoo.com/man-connected-suspected-shooter-tupac-163129591.html)
+- Sep 29 - [Kansas guard Arterio Morris charged with rape, dismissed from men's basketball team](https://news.yahoo.com/kansas-guard-arterio-morris-charged-163039737.html)
+- Sep 29 - [Melania Trump Renegotiates Her Very Large Prenup to Protect Her Very Large Son’s Trust](https://news.yahoo.com/melania-trump-renegotiates-her-very-160300123.html)
 <!-- feed end -->
 
 ### Onstream
