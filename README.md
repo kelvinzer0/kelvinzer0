@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [Long-serving US Democratic Senator Dianne Feinstein dead at 90](https://news.yahoo.com/long-serving-us-democratic-senator-124721164.html)
 - Sep 29 - [Ukraine-Russia war latest: Russian air defences shoot down one of its most advanced fighter jets](https://news.yahoo.com/ukraine-russia-war-latest-putin-071202079.html)
 - Sep 29 - [Russia is scaling back its use of the feared Ka-52 attack helicopter after Ukraine got good at taking them out: ISW](https://news.yahoo.com/russia-scaling-back-feared-ka-111536012.html)
 - Sep 29 - [A delivery driver who shot a YouTuber who was pranking him said it was justifiable self-defense — and a jury agreed](https://news.yahoo.com/delivery-driver-shot-youtuber-pranking-103833578.html)
-- Sep 29 - [Elon Musk emailed everyone at X 'please fix this' after his border livestream froze, NYT reporter says](https://news.yahoo.com/elon-musk-emailed-everyone-x-103117654.html)
-- Sep 29 - [Migrants are being raped at Mexico border as they await entry to US](https://news.yahoo.com/migrants-being-raped-mexico-border-100746725.html)
+- Sep 29 - ['The worst investment people can make': Real estate guru Grant Cardone says too many Americans are chasing after the dream of homeownership. Here's what he thinks you should do instead](https://finance.yahoo.com/news/worst-investment-ll-ever-financial-130000294.html)
 <!-- feed end -->
 
 ### Onstream
