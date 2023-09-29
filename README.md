@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [Ukraine-Russia war latest: Russian air defences shoot down their own top fighter jet](https://news.yahoo.com/ukraine-russia-war-latest-putin-071202079.html)
+- Sep 29 - [Former Wisconsin Supreme Court justice refuses to disclose names of others looking at impeachment](https://news.yahoo.com/former-wisconsin-supreme-court-justice-153244059.html)
+- Sep 29 - [McCarthy launches last-ditch plan to keep government open but with steep 30% cuts to many agencies](https://news.yahoo.com/mccarthy-launches-last-ditch-plan-151436079.html)
+- Sep 29 - [We've Been Looking for Amelia Earhart for 86 Years. A Photo May Have Finally Found Her](https://www.yahoo.com/lifestyle/weve-looking-amelia-earhart-86-145000355.html)
 - Sep 29 - [Proud Boys member who disappeared ahead of his sentencing in the Jan. 6 attack has been arrested](https://news.yahoo.com/proud-boys-member-disappeared-ahead-144340091.html)
-- Sep 29 - [Ukraine-Russia war latest: Russian air defences shoot down one of its most advanced fighter jets](https://news.yahoo.com/ukraine-russia-war-latest-putin-071202079.html)
-- Sep 29 - [Dianne Feinstein is dead. Here's what happens next, and what it means for Democrats.](https://news.yahoo.com/dianne-feinstein-dead-heres-happens-133521030.html)
-- Sep 29 - [A delivery driver who shot a YouTuber who was pranking him said it was justifiable self-defense — and a jury agreed](https://news.yahoo.com/delivery-driver-shot-youtuber-pranking-103833578.html)
-- Sep 29 - ['The worst investment people can make': Real estate guru Grant Cardone says too many Americans are chasing after the dream of homeownership. Here's what he thinks you should do instead](https://finance.yahoo.com/news/worst-investment-ll-ever-financial-130000294.html)
 <!-- feed end -->
 
 ### Onstream
