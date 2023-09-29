@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [Gavin Newsom is positioning himself to replace Biden. But he can’t be trusted](https://news.yahoo.com/gavin-newsom-positioning-himself-replace-164348543.html)
+- Sep 29 - [Man tied to suspected shooter in Tupac Shakur’s 1996 killing arrested in Las Vegas, AP sources say](https://news.yahoo.com/man-connected-suspected-shooter-tupac-163129591.html)
+- Sep 29 - [22 Historical Facts That Range From Fascinating To Horrifying To Unbelievably Bizarre](https://www.yahoo.com/lifestyle/22-historical-facts-range-fascinating-154602037.html)
 - Sep 29 - [Ukraine-Russia war latest: Russian air defences shoot down their own top fighter jet](https://news.yahoo.com/ukraine-russia-war-latest-putin-071202079.html)
-- Sep 29 - [Former Wisconsin Supreme Court justice refuses to disclose names of others looking at impeachment](https://news.yahoo.com/former-wisconsin-supreme-court-justice-153244059.html)
 - Sep 29 - [McCarthy launches last-ditch plan to keep government open but with steep 30% cuts to many agencies](https://news.yahoo.com/mccarthy-launches-last-ditch-plan-151436079.html)
-- Sep 29 - [We've Been Looking for Amelia Earhart for 86 Years. A Photo May Have Finally Found Her](https://www.yahoo.com/lifestyle/weve-looking-amelia-earhart-86-145000355.html)
-- Sep 29 - [Proud Boys member who disappeared ahead of his sentencing in the Jan. 6 attack has been arrested](https://news.yahoo.com/proud-boys-member-disappeared-ahead-144340091.html)
 <!-- feed end -->
 
 ### Onstream
