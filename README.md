@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [Florida 3-year-old shoots herself in hand with loaded gun while relative is glued to football game: video](https://news.yahoo.com/florida-3-old-shoots-herself-012548449.html)
+- Sep 28 - [Arrest made in brutal beating of teen at L.A. McDonald’s](https://news.yahoo.com/arrest-made-brutal-beating-teen-231414262.html)
 - Sep 28 - [400-pound ‘gentle giant’ pulled from waters off New York. Check out the massive catch](https://news.yahoo.com/400-pound-gentle-giant-pulled-222032561.html)
+- Sep 28 - [Watch: Nature Photographer Captures Rutting Bull Elk Goring a Cow to Death with Its Antlers](https://www.yahoo.com/lifestyle/watch-nature-photographer-captures-rutting-221702617.html)
 - Sep 28 - [Trump says Mar-a-Lago is worth $1.8B, but his company hasn't always agreed](https://news.yahoo.com/trump-says-mar-lago-worth-213730468.html)
-- Sep 28 - [300-Year-Old Tree Made Famous in Kevin Costner Film Cut Down](https://news.yahoo.com/300-old-tree-made-famous-200002409.html)
-- Sep 28 - [Black Dinner Party Guests Release Footage of Shocking Hose-Down](https://news.yahoo.com/black-dinner-party-guests-release-193058130.html)
-- Sep 28 - [House approves amendment from Marjorie Taylor Greene to cut Lloyd Austin's salary to $1](https://news.yahoo.com/house-approves-amendment-marjorie-taylor-192539636.html)
 <!-- feed end -->
 
 ### Onstream
