@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Sep 29 - [Rudy Giuliani’s Georgia Lawyer Just Ditched His Case](https://news.yahoo.com/rudy-giuliani-georgia-lawyer-just-003817325.html)
 - Sep 28 - [400-pound ‘gentle giant’ pulled from waters off New York. Check out the massive catch](https://news.yahoo.com/400-pound-gentle-giant-pulled-222032561.html)
 - Sep 28 - [Florida high-speed train headed to Orlando fatally strikes pedestrian](https://news.yahoo.com/florida-high-speed-train-headed-203635304.html)
 - Sep 28 - [300-Year-Old Tree Made Famous in Kevin Costner Film Cut Down](https://news.yahoo.com/300-old-tree-made-famous-200002409.html)
 - Sep 28 - [Black Dinner Party Guests Release Footage of Shocking Hose-Down](https://news.yahoo.com/black-dinner-party-guests-release-193058130.html)
+- Sep 28 - [House approves amendment from Marjorie Taylor Greene to cut Lloyd Austin's salary to $1](https://news.yahoo.com/house-approves-amendment-marjorie-taylor-192539636.html)
 <!-- feed end -->
 
 ### Onstream
