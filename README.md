@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [Judge sets hearing on gag order request in Trump election case in DC](https://news.yahoo.com/judge-sets-hearing-gag-order-210403000.html)
+- Sep 29 - [Flight attendants and pilots swear by this luggage brand that you can shop on sale on Amazon right now](https://news.yahoo.com/flight-crew-luggage-travelpro-amazon-205059146.html)
+- Sep 29 - [Arizona’s governor didn’t ‘mysteriously’ step down. She was in DC less than a day and is back now](https://news.yahoo.com/arizona-governor-didn-t-mysteriously-204158771.html)
 - Sep 29 - [These are the Republicans who voted against the GOP funding bill](https://news.yahoo.com/republicans-voted-against-gop-funding-192749725.html)
 - Sep 29 - [Bail bondsman charged alongside Trump in Georgia becomes the first defendant to take a plea deal](https://news.yahoo.com/ex-justice-department-official-jeffrey-182628960.html)
-- Sep 29 - [Missouri high school teacher is put on leave after school officials discover her page on porn site](https://news.yahoo.com/missouri-high-school-teacher-put-180929496.html)
-- Sep 29 - [Mark Wahlberg serves up drinks at grand opening of new Boston bar](https://news.yahoo.com/mark-wahlberg-serves-drinks-grand-175016193.html)
-- Sep 29 - [Teacher accused of raping child texted victim after arrest, police say](https://news.yahoo.com/teacher-accused-raping-child-texted-174852526.html)
 <!-- feed end -->
 
 ### Onstream
