@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 28 - [400-pound ‘gentle giant’ pulled from waters off New York. Check out the massive catch](https://news.yahoo.com/400-pound-gentle-giant-pulled-222032561.html)
-- Sep 28 - [MAGA Hat Gunman Opens Fire at Rally Over Conquistador Statue: Reports](https://news.yahoo.com/maga-hat-gunman-opens-fire-222032922.html)
-- Sep 28 - [Georgia senator who demanded Fani Willis special session suspended from GOP caucus](https://news.yahoo.com/georgia-senator-demanded-fani-willis-205915493.html)
+- Sep 28 - [Appeals court blocks hearings on drawing a second majority-Black congressional district in Louisiana](https://news.yahoo.com/appeals-court-blocks-hearings-drawing-213534183.html)
+- Sep 28 - [WATCH: Biden interrupted by climate protester, tells heckler that he will meet him 'immediately after' speech](https://news.yahoo.com/watch-biden-interrupted-climate-protester-211122560.html)
 - Sep 28 - [Florida high-speed train headed to Orlando fatally strikes pedestrian](https://news.yahoo.com/florida-high-speed-train-headed-203635304.html)
 - Sep 28 - [300-Year-Old Tree Made Famous in Kevin Costner Film Cut Down](https://news.yahoo.com/300-old-tree-made-famous-200002409.html)
 <!-- feed end -->
