@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [Ocasio-Cortez Spots Biden Hearing Moment That Shows Republicans Know It's ‘Cooked’](https://news.yahoo.com/ocasio-cortez-spots-biden-hearing-074633192.html)
 - Sep 29 - [WHOOPS! GOP Lawmaker Accidentally Burns Trump With 'Freudian Slip' For The Ages](https://news.yahoo.com/whoops-gop-lawmaker-accidentally-burns-071503133.html)
 - Sep 29 - [Say What?!? Jeanine Pirro Blurts Out Most Bizarre Impeachment Analysis Yet](https://news.yahoo.com/jeanine-pirro-blurts-most-bizarre-035103327.html)
 - Sep 29 - [Florida 3-year-old shoots herself in hand with loaded gun while relative is glued to football game: video](https://news.yahoo.com/florida-3-old-shoots-herself-012548449.html)
 - Sep 28 - [400-pound ‘gentle giant’ pulled from waters off New York. Check out the massive catch](https://news.yahoo.com/400-pound-gentle-giant-pulled-222032561.html)
-- Sep 28 - [Florida teacher, Disney employees among 219 arrested in human trafficking operation: authorities](https://news.yahoo.com/florida-teacher-disney-employees-among-220150745.html)
 <!-- feed end -->
 
 ### Onstream
