@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 30 - [Trump suggests bizarre plan to keep forests damp to prevent wildfires in California](https://news.yahoo.com/trump-suggests-bizarre-plan-keep-164747194.html)
 - Sep 30 - [2 killed, 4 injured in 10-car crash that shut down I-285 for hours, authorities say](https://news.yahoo.com/red-alert-crash-involving-10-092645337.html)
+- Sep 30 - [Viral Video Shows Maryland Police Attempt to Detain Paralyzed Man, Making Him Sit on the Ground Outside His Car Before Finding Out They Had the Wrong Man](https://news.yahoo.com/viral-video-shows-maryland-police-154026997.html)
 - Sep 30 - [Human Remains Found Nearly 3 Decades Ago Identified as Man Who Disappeared After Leaving for a Walk](https://www.yahoo.com/entertainment/human-remains-found-nearly-3-152904637.html)
-- Sep 30 - [McCarthy Turns to Democrats to Keep Government Open](https://news.yahoo.com/republicans-try-suspending-rules-avert-144029814.html)
 - Sep 30 - [Cassidy Hutchinson says Ted Cruz told her not to be a 'tattletale' after she complained to Mark Meadows that Cruz crashed a Trump tarmac arrival in Texas](https://news.yahoo.com/cassidy-hutchinson-says-ted-cruz-140441553.html)
-- Sep 30 - [Caesars casino move sets dangerous Las Vegas Strip precedent](https://www.thestreet.com/travel/caesars-casino-move-sets-dangerous-las-vegas-strip-precedent?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
