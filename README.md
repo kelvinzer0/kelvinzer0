@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 29 - [Jimmy Carter turns 99: 4 healthy habits that helped former president live a long life](https://news.yahoo.com/jimmy-carter-turns-99-4-223524082.html)
 - Sep 29 - [Court orders Subway franchise owners to pay workers nearly $1M - and to sell or close their stores](https://news.yahoo.com/subway-franchise-owners-must-pay-221916422.html)
+- Sep 29 - [Florida moviegoer beaten after asking couple to move from his reserved, VIP seats in 'callous' attack](https://news.yahoo.com/florida-moviegoer-beaten-asking-couple-220651114.html)
 - Sep 29 - [Flight attendants and pilots swear by this luggage brand that you can shop on sale on Amazon right now](https://news.yahoo.com/flight-crew-luggage-travelpro-amazon-205059146.html)
 - Sep 29 - [House Dem Leader Jeffries floats end-run around McCarthy to avert government shutdown](https://news.yahoo.com/house-dem-leader-jeffries-floats-200511688.html)
-- Sep 29 - [These are the Republicans who voted against the GOP funding bill](https://news.yahoo.com/republicans-voted-against-gop-funding-192749725.html)
-- Sep 29 - [Waxahachie man sentenced to life in prison for beating daughter to death](https://news.yahoo.com/waxahachie-man-sentenced-life-prison-190423494.html)
 <!-- feed end -->
 
 ### Onstream
