@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 30 - [Human Remains Found Nearly 3 Decades Ago Identified as Man Who Disappeared After Leaving for a Walk](https://www.yahoo.com/entertainment/human-remains-found-nearly-3-152904637.html)
 - Sep 30 - [Cassidy Hutchinson says Ted Cruz told her not to be a 'tattletale' after she complained to Mark Meadows that Cruz crashed a Trump tarmac arrival in Texas](https://news.yahoo.com/cassidy-hutchinson-says-ted-cruz-140441553.html)
 - Sep 30 - [Caesars casino move sets dangerous Las Vegas Strip precedent](https://www.thestreet.com/travel/caesars-casino-move-sets-dangerous-las-vegas-strip-precedent?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Sep 30 - [Tennessee teacher charged with raping 12-year-old rearrested for telling victim he'll 'regret doing this'](https://news.yahoo.com/tennessee-teacher-charged-raping-12-120233213.html)
-- Sep 30 - [Elite Ukrainian commandos on jet skis conducted a daring raid on a Russian electronic warfare station in Crimea, report says](https://news.yahoo.com/elite-ukrainian-commandos-jet-skis-104433868.html)
-- Sep 30 - [Experts are witnessing a strange new phenomenon in the demand for electric cars: ‘We call it the ‘Field of Dreams’ moment’](https://news.yahoo.com/experts-witnessing-strange-phenomenon-demand-131500996.html)
+- Sep 30 - ['Lady Dahmer,' who beheaded lover in meth-fueled tryst, 'deserves to be happy': lawyer](https://news.yahoo.com/lady-dahmer-beheaded-lover-meth-120013763.html)
 <!-- feed end -->
 
 ### Onstream
