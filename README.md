@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 30 - [Caesars casino move sets dangerous Las Vegas Strip precedent](https://www.thestreet.com/travel/caesars-casino-move-sets-dangerous-las-vegas-strip-precedent?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Sep 30 - [It sure looks like Vivek Ramaswamy is hiring a seven-day-week nanny. Starting salary: $100,000.](https://news.yahoo.com/sure-looks-vivek-ramaswamy-hiring-123301914.html)
 - Sep 30 - [Elite Ukrainian commandos on jet skis conducted a daring raid on a Russian electronic warfare station in Crimea, report says](https://news.yahoo.com/elite-ukrainian-commandos-jet-skis-104433868.html)
 - Sep 30 - [Experts are witnessing a strange new phenomenon in the demand for electric cars: ‘We call it the ‘Field of Dreams’ moment’](https://news.yahoo.com/experts-witnessing-strange-phenomenon-demand-131500996.html)
 - Sep 30 - [2 killed, 5 injured in crash that shut down I-285, authorities say](https://news.yahoo.com/red-alert-crash-involving-10-092645337.html)
-- Sep 30 - [Married pilot snorts cocaine off topless woman in booze-fueled romp before flight: report](https://news.yahoo.com/married-pilot-snorts-cocaine-off-080028649.html)
-- Sep 30 - [It’s time to admit it: Black Lives Matter hysteria made fools of us all](https://news.yahoo.com/time-admit-black-lives-matter-060000239.html)
 <!-- feed end -->
 
 ### Onstream
