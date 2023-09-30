@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 30 - [Man sentenced to life in prison for killing ’60s soul singer](https://news.yahoo.com/man-sentenced-life-prison-killing-005434096.html)
 - Sep 30 - [Missouri teacher on leave over OnlyFans account: 'Knew this day was coming'](https://news.yahoo.com/missouri-teacher-leave-over-onlyfans-005356987.html)
 - Sep 29 - [Missing Virginia mom tells local reporter why she hasn't been home: 'I wish I could come back'](https://news.yahoo.com/missing-virginia-mom-tells-local-234937081.html)
 - Sep 29 - [Jimmy Carter turns 99: 4 healthy habits that helped former president live a long life](https://news.yahoo.com/jimmy-carter-turns-99-4-223524082.html)
 - Sep 29 - [Court orders Subway franchise owners to pay workers nearly $1M - and to sell or close their stores](https://news.yahoo.com/subway-franchise-owners-must-pay-221916422.html)
-- Sep 29 - [Florida moviegoer beaten after asking couple to move from his reserved, VIP seats in 'callous' attack](https://news.yahoo.com/florida-moviegoer-beaten-asking-couple-220651114.html)
 <!-- feed end -->
 
 ### Onstream
