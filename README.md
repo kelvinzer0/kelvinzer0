@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 30 - [A democratic nation has been allowed to die – the UN has failed once more](https://news.yahoo.com/democratic-nation-allowed-die-un-070000527.html)
+- Sep 30 - [It’s time to admit it: Black Lives Matter hysteria made fools of us all](https://news.yahoo.com/time-admit-black-lives-matter-060000239.html)
 - Sep 30 - [Trump's Appalling Paul Pelosi Dig Gets Laughs From California GOP Crowd](https://news.yahoo.com/trumps-appalling-paul-pelosi-dig-055520881.html)
 - Sep 30 - [Event Planner Sentenced to Over 8 Years in Prison for Shoving Beloved Vocal Coach, 87, to Death](https://www.yahoo.com/entertainment/event-planner-sentenced-over-8-050927314.html)
-- Sep 30 - [Man sentenced to life in prison for killing ’60s soul singer](https://news.yahoo.com/man-sentenced-life-prison-killing-005434096.html)
-- Sep 30 - [Missouri teacher on leave over OnlyFans account: 'Knew this day was coming'](https://news.yahoo.com/missouri-teacher-leave-over-onlyfans-005356987.html)
-- Sep 29 - [Missing Virginia mom tells local reporter why she hasn't been home: 'I wish I could come back'](https://news.yahoo.com/missing-virginia-mom-tells-local-234937081.html)
+- Sep 30 - [Video provides first clear views of WWII aircraft carriers lost in the pivotal Battle of Midway](https://news.yahoo.com/video-provides-first-clear-views-050204055.html)
 <!-- feed end -->
 
 ### Onstream
