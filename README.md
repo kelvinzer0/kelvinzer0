@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 30 - [New York Rep. Jamaal Bowman pulls fire alarm in House office building but says it was an accident](https://news.yahoo.com/york-rep-jamaal-bowman-pulls-202601895.html)
+- Sep 30 - [Rep. Jamaal Bowman triggered a fire alarm in a House office building amid voting on a funding bill](https://news.yahoo.com/rep-jamaal-bowman-triggered-fire-201531896.html)
 - Sep 30 - [NY woman who fatally shoved singing coach, age 87, is sentenced to more time in prison than expected](https://news.yahoo.com/ny-woman-fatally-shoved-singing-194421134.html)
-- Sep 30 - [McConnell announces Senate Republicans will defer to House spending bill](https://news.yahoo.com/mcconnell-announces-senate-republicans-won-180719979.html)
-- Sep 30 - [Disney, DeSantis legal fights ratchet up as company demands documents from Florida governor](https://news.yahoo.com/disney-desantis-legal-fights-ratchet-175358465.html)
 - Sep 30 - [Trump suggests bizarre plan to keep forests damp to prevent wildfires in California](https://news.yahoo.com/trump-suggests-bizarre-plan-keep-164747194.html)
-- Sep 30 - [2 killed, 4 injured in 10-car crash that shut down I-285 for hours, authorities say](https://news.yahoo.com/red-alert-crash-involving-10-092645337.html)
+- Sep 30 - [US appeals court blocks venture capital fund's grant program for Black women](https://news.yahoo.com/us-appeals-court-blocks-venture-163559651.html)
 <!-- feed end -->
 
 ### Onstream
