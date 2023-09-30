@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Sep 30 - [Elite Ukrainian commandos on jet skis conducted a daring raid on a Russian electronic warfare station in Crimea, report says](https://news.yahoo.com/elite-ukrainian-commandos-jet-skis-104433868.html)
-- Sep 30 - [RED ALERT: Crash involving 10 vehicles shuts down I-285, leaves multiple people injured, police say](https://news.yahoo.com/red-alert-crash-involving-10-092645337.html)
+- Sep 30 - [Experts are witnessing a strange new phenomenon in the demand for electric cars: ‘We call it the ‘Field of Dreams’ moment’](https://news.yahoo.com/experts-witnessing-strange-phenomenon-demand-131500996.html)
+- Sep 30 - [2 killed, 5 injured in crash that shut down I-285, authorities say](https://news.yahoo.com/red-alert-crash-involving-10-092645337.html)
 - Sep 30 - [Married pilot snorts cocaine off topless woman in booze-fueled romp before flight: report](https://news.yahoo.com/married-pilot-snorts-cocaine-off-080028649.html)
 - Sep 30 - [It’s time to admit it: Black Lives Matter hysteria made fools of us all](https://news.yahoo.com/time-admit-black-lives-matter-060000239.html)
-- Sep 30 - [Trump's Appalling Paul Pelosi Dig Gets Laughs From California GOP Crowd](https://news.yahoo.com/trumps-appalling-paul-pelosi-dig-055520881.html)
 <!-- feed end -->
 
 ### Onstream
