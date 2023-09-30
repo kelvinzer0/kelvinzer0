@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Sep 30 - [2 killed, 4 injured in 10-car crash that shut down I-285 for hours, authorities say](https://news.yahoo.com/red-alert-crash-involving-10-092645337.html)
 - Sep 30 - [Human Remains Found Nearly 3 Decades Ago Identified as Man Who Disappeared After Leaving for a Walk](https://www.yahoo.com/entertainment/human-remains-found-nearly-3-152904637.html)
+- Sep 30 - [McCarthy Turns to Democrats to Keep Government Open](https://news.yahoo.com/republicans-try-suspending-rules-avert-144029814.html)
 - Sep 30 - [Cassidy Hutchinson says Ted Cruz told her not to be a 'tattletale' after she complained to Mark Meadows that Cruz crashed a Trump tarmac arrival in Texas](https://news.yahoo.com/cassidy-hutchinson-says-ted-cruz-140441553.html)
 - Sep 30 - [Caesars casino move sets dangerous Las Vegas Strip precedent](https://www.thestreet.com/travel/caesars-casino-move-sets-dangerous-las-vegas-strip-precedent?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Sep 30 - [Tennessee teacher charged with raping 12-year-old rearrested for telling victim he'll 'regret doing this'](https://news.yahoo.com/tennessee-teacher-charged-raping-12-120233213.html)
-- Sep 30 - ['Lady Dahmer,' who beheaded lover in meth-fueled tryst, 'deserves to be happy': lawyer](https://news.yahoo.com/lady-dahmer-beheaded-lover-meth-120013763.html)
 <!-- feed end -->
 
 ### Onstream
