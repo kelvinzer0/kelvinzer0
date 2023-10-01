@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [Video shows Tesla Model S go head-to-head with Chevrolet Corvette in drag race — see who gets left in the dust](https://news.yahoo.com/video-shows-tesla-model-head-050000933.html)
 - Oct 01 - [Fetterman: ‘I’m done normalizing this dysfunction’](https://news.yahoo.com/fetterman-m-done-normalizing-dysfunction-025732315.html)
 - Oct 01 - [Video shows thieves ransacking Nike store in Southern California](https://news.yahoo.com/video-shows-suspects-ransacking-nike-002937135.html)
 - Oct 01 - [MSNBC Anchor Recuses Herself From Covering Dad Sen. Bob Menendez’s Indictment (Video)](https://www.yahoo.com/entertainment/msnbc-anchor-recuses-herself-covering-001057879.html)
 - Sep 30 - [Kevin McCarthy Calls for Punishment as Rep. Jamaal Bowman Gets Caught Pulling Capitol Fire Alarm: ‘This Is an Embarrassment’ (Video)](https://www.yahoo.com/entertainment/kevin-mccarthy-calls-punishment-rep-233723029.html)
-- Sep 30 - [Police arrest 2 men in killing of Pontiac man known for fooling sexual predators](https://news.yahoo.com/police-arrest-2-men-killing-231142670.html)
 <!-- feed end -->
 
 ### Onstream
