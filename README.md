@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [‘I’m not sure what to tell you’: Dave Ramsey was at a loss for words when Virginia woman asked for help with her ‘disconnected’ husband — here’s his thoughts on her 'painful' situation](https://finance.yahoo.com/news/m-not-sure-tell-dave-113000624.html)
+- Oct 01 - [This all-new tiny but powerful truck proves that bigger isn’t always better: ‘A truck that actually makes sense’](https://news.yahoo.com/tiny-powerful-truck-proves-bigger-150000220.html)
+- Oct 01 - [Christie’s jab at Jill Biden spotlights GOP problems with women](https://news.yahoo.com/christie-jab-jill-biden-spotlights-100000100.html)
 - Oct 01 - [Video appears to show a Russian tank hitting a mine and running out of control before sinking into water](https://news.yahoo.com/video-appears-show-russian-tank-095654672.html)
-- Oct 01 - [Massive emergency alert test scheduled to hit your phone on Tuesday. Here's what to know.](https://news.yahoo.com/massive-emergency-alert-test-scheduled-091140052.html)
-- Oct 01 - [Here's Precisely When Social Security's Much-Anticipated Cost-of-Living Adjustment (COLA) Will Be Announced](https://www.fool.com/retirement/2023/10/01/heres-when-social-security-cola-will-be-announced/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Oct 01 - [Video shows Tesla Model S go head-to-head with Chevrolet Corvette in drag race — see who gets left in the dust](https://news.yahoo.com/video-shows-tesla-model-head-050000933.html)
-- Oct 01 - [Who is Arthur Engoron? Judge weighing future of Donald Trump empire is Ivy League-educated ex-cabbie](https://news.yahoo.com/arthur-engoron-judge-weighing-future-040230842.html)
+- Oct 01 - [Massive emergency alert test scheduled to hit your phone on Wednesday. Here's what to know.](https://news.yahoo.com/massive-emergency-alert-test-scheduled-091140052.html)
 <!-- feed end -->
 
 ### Onstream
