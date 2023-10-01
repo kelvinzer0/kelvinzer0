@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [MSNBC Anchor Recuses Herself From Covering Dad Sen. Bob Menendez’s Indictment (Video)](https://www.yahoo.com/entertainment/msnbc-anchor-recuses-herself-covering-001057879.html)
+- Sep 30 - [Kevin McCarthy Calls for Punishment as Rep. Jamaal Bowman Gets Caught Pulling Capitol Fire Alarm: ‘This Is an Embarrassment’ (Video)](https://www.yahoo.com/entertainment/kevin-mccarthy-calls-punishment-rep-233723029.html)
+- Sep 30 - [Police arrest 2 men in killing of Pontiac man known for fooling sexual predators](https://news.yahoo.com/police-arrest-2-men-killing-231142670.html)
+- Sep 30 - [Bankrupt Burger King Franchisee Unloads Nearly 6 Dozen Stores](https://www.yahoo.com/lifestyle/bankrupt-burger-king-franchisee-unloads-231106015.html)
 - Sep 30 - [Apple identifies issues causing overheating in the iPhone 15](https://news.yahoo.com/apple-identifies-issues-causing-overheating-220320674.html)
-- Sep 30 - [New York Rep. Jamaal Bowman pulls fire alarm in House office building but says it was an accident](https://news.yahoo.com/york-rep-jamaal-bowman-pulls-202601895.html)
-- Sep 30 - [Rep. Jamaal Bowman triggered a fire alarm in a House office building amid voting on a funding bill](https://news.yahoo.com/rep-jamaal-bowman-triggered-fire-201531896.html)
-- Sep 30 - [NY woman who fatally shoved singing coach, age 87, is sentenced to more time in prison than expected](https://news.yahoo.com/ny-woman-fatally-shoved-singing-194421134.html)
-- Sep 30 - [Trump suggests bizarre plan to keep forests damp to prevent wildfires in California](https://news.yahoo.com/trump-suggests-bizarre-plan-keep-164747194.html)
 <!-- feed end -->
 
 ### Onstream
