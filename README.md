@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [Russia's Medvedev says British training troops in Ukraine could be legitimate targets](https://news.yahoo.com/russias-medvedev-says-british-training-080402929.html)
 - Oct 01 - [Video shows Tesla Model S go head-to-head with Chevrolet Corvette in drag race — see who gets left in the dust](https://news.yahoo.com/video-shows-tesla-model-head-050000933.html)
 - Oct 01 - [Who is Arthur Engoron? Judge weighing future of Donald Trump empire is Ivy League-educated ex-cabbie](https://news.yahoo.com/arthur-engoron-judge-weighing-future-040230842.html)
 - Oct 01 - [Fetterman: ‘I’m done normalizing this dysfunction’](https://news.yahoo.com/fetterman-m-done-normalizing-dysfunction-025732315.html)
 - Oct 01 - [Video shows thieves ransacking Nike store in Southern California](https://news.yahoo.com/video-shows-suspects-ransacking-nike-002937135.html)
-- Oct 01 - [MSNBC Anchor Recuses Herself From Covering Dad Sen. Bob Menendez’s Indictment (Video)](https://www.yahoo.com/entertainment/msnbc-anchor-recuses-herself-covering-001057879.html)
 <!-- feed end -->
 
 ### Onstream
