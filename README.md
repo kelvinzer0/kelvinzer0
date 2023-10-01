@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Russia's Medvedev says British training troops in Ukraine could be legitimate targets](https://news.yahoo.com/russias-medvedev-says-british-training-080402929.html)
+- Oct 01 - [Video appears to show a Russian tank hitting a mine and running out of control before sinking into water](https://news.yahoo.com/video-appears-show-russian-tank-095654672.html)
+- Oct 01 - [Massive emergency alert test scheduled to hit your phone on Tuesday. Here's what to know.](https://news.yahoo.com/massive-emergency-alert-test-scheduled-091140052.html)
 - Oct 01 - [Here's Precisely When Social Security's Much-Anticipated Cost-of-Living Adjustment (COLA) Will Be Announced](https://www.fool.com/retirement/2023/10/01/heres-when-social-security-cola-will-be-announced/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Oct 01 - [Video shows Tesla Model S go head-to-head with Chevrolet Corvette in drag race — see who gets left in the dust](https://news.yahoo.com/video-shows-tesla-model-head-050000933.html)
-- Oct 01 - [Fetterman: ‘I’m done normalizing this dysfunction’](https://news.yahoo.com/fetterman-m-done-normalizing-dysfunction-025732315.html)
-- Oct 01 - [Video shows thieves ransacking Nike store in Southern California](https://news.yahoo.com/video-shows-suspects-ransacking-nike-002937135.html)
+- Oct 01 - [Who is Arthur Engoron? Judge weighing future of Donald Trump empire is Ivy League-educated ex-cabbie](https://news.yahoo.com/arthur-engoron-judge-weighing-future-040230842.html)
 <!-- feed end -->
 
 ### Onstream
