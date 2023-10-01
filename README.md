@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [Trump's war on federal agencies — fueled by his judges — reaches the Supreme Court](https://news.yahoo.com/trumps-war-federal-agencies-fueled-140000458.html)
+- Oct 01 - [Woman Who Fatally Shoved Broadway Coach Receives Longer-Than-Expected Prison Sentence](https://www.yahoo.com/entertainment/woman-fatally-shoved-broadway-coach-134913552.html)
+- Oct 01 - [One couple packed up an RV and drove 1,300 miles to give birth in Virginia to escape the high Black maternal mortality rate in Texas](https://news.yahoo.com/one-couple-packed-rv-drove-131601135.html)
 - Oct 01 - [A New York student has been detained in Dubai for months for touching an airport security guard during a 10-hour layover](https://news.yahoo.com/york-student-detained-dubai-months-115729866.html)
 - Oct 01 - [A Ukrainian sniper called the Ghost of Bakhmut says he's personally killed 113 Russians. He explains how his elite unit hunts the enemy.](https://news.yahoo.com/ukrainian-sniper-called-ghost-bakhmut-113450701.html)
-- Oct 01 - [‘I’m not sure what to tell you’: Dave Ramsey was at a loss for words when Virginia woman asked for help with her ‘disconnected’ husband — here’s his thoughts on her 'painful' situation](https://finance.yahoo.com/news/m-not-sure-tell-dave-113000624.html)
-- Oct 01 - [‘Serial sex offender’ in Virginia caught on camera creeping in park with children nearby, arrested: police](https://news.yahoo.com/serial-sex-offender-virginia-caught-110757603.html)
-- Oct 01 - [This all-new tiny but powerful truck proves that bigger isn’t always better: ‘A truck that actually makes sense’](https://news.yahoo.com/tiny-powerful-truck-proves-bigger-150000220.html)
 <!-- feed end -->
 
 ### Onstream
