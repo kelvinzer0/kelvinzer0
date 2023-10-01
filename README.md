@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [A New York student has been detained in Dubai for months for touching an airport security guard during a 10-hour layover](https://news.yahoo.com/york-student-detained-dubai-months-115729866.html)
+- Oct 01 - [A Ukrainian sniper called the Ghost of Bakhmut says he's personally killed 113 Russians. He explains how his elite unit hunts the enemy.](https://news.yahoo.com/ukrainian-sniper-called-ghost-bakhmut-113450701.html)
 - Oct 01 - [‘I’m not sure what to tell you’: Dave Ramsey was at a loss for words when Virginia woman asked for help with her ‘disconnected’ husband — here’s his thoughts on her 'painful' situation](https://finance.yahoo.com/news/m-not-sure-tell-dave-113000624.html)
 - Oct 01 - [This all-new tiny but powerful truck proves that bigger isn’t always better: ‘A truck that actually makes sense’](https://news.yahoo.com/tiny-powerful-truck-proves-bigger-150000220.html)
-- Oct 01 - [Christie’s jab at Jill Biden spotlights GOP problems with women](https://news.yahoo.com/christie-jab-jill-biden-spotlights-100000100.html)
-- Oct 01 - [Video appears to show a Russian tank hitting a mine and running out of control before sinking into water](https://news.yahoo.com/video-appears-show-russian-tank-095654672.html)
-- Oct 01 - [Massive emergency alert test scheduled to hit your phone on Wednesday. Here's what to know.](https://news.yahoo.com/massive-emergency-alert-test-scheduled-091140052.html)
+- Oct 01 - [Viral video shows the shocking technique used to clear poison ivy from hiking trails: ‘[This is] really innovative’](https://news.yahoo.com/viral-video-shows-shocking-technique-180000524.html)
 <!-- feed end -->
 
 ### Onstream
