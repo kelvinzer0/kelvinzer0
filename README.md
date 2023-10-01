@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [Guy Pulls Gun On Repo Man, Immediately Regrets It](https://news.yahoo.com/guy-pulls-gun-repo-man-163500328.html)
+- Oct 01 - [Transcript: Sen. Lindsey Graham on "Face the Nation," Oct. 1, 2023](https://news.yahoo.com/transcript-sen-lindsey-graham-face-163358611.html)
 - Oct 01 - [‘I Fight Kids. I’ll Fight You!’: LAPD Arrest Woman Weeks After Video Surfaces of Unprovoked Attack of Defenseless 13-Year-Old Girl In a McDonald’s](https://news.yahoo.com/fight-kids-ll-fight-lapd-162333463.html)
 - Oct 01 - [Attorneys for college taken over by DeSantis allies threaten to sue 'alternate' school](https://news.yahoo.com/attorneys-college-taken-over-desantis-154253324.html)
 - Oct 01 - [Donald Trump’s Rumored Option to Save His Businesses Through Wife Melania Just Got a Wake-up Call](https://www.yahoo.com/entertainment/donald-trump-rumored-option-save-153200330.html)
-- Oct 01 - [Alexandria Ocasio-Cortez hits Republicans for tearing into Jamaal Bowman after he pulled fire alarm](https://news.yahoo.com/alexandria-ocasio-cortez-hits-republicans-151023591.html)
-- Oct 01 - [Trump's war on federal agencies — fueled by his judges — reaches the Supreme Court](https://news.yahoo.com/trumps-war-federal-agencies-fueled-140000458.html)
 <!-- feed end -->
 
 ### Onstream
