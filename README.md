@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - [Who is Arthur Engoron? Judge weighing future of Donald Trump empire is Ivy League-educated ex-cabbie](https://news.yahoo.com/arthur-engoron-judge-weighing-future-040230842.html)
 - Oct 01 - [In Texas, water levels are so low a rarely-seen underwater cave and century-old ruins have appeared](https://news.yahoo.com/texas-water-levels-low-rarely-215349449.html)
 - Oct 01 - [Fetterman: ‘I’m done normalizing this dysfunction’](https://news.yahoo.com/fetterman-m-done-normalizing-dysfunction-025732315.html)
 - Oct 01 - [Video shows thieves ransacking Nike store in Southern California](https://news.yahoo.com/video-shows-suspects-ransacking-nike-002937135.html)
 - Oct 01 - [MSNBC Anchor Recuses Herself From Covering Dad Sen. Bob Menendez’s Indictment (Video)](https://www.yahoo.com/entertainment/msnbc-anchor-recuses-herself-covering-001057879.html)
-- Sep 30 - [Kevin McCarthy Calls for Punishment as Rep. Jamaal Bowman Gets Caught Pulling Capitol Fire Alarm: ‘This Is an Embarrassment’ (Video)](https://www.yahoo.com/entertainment/kevin-mccarthy-calls-punishment-rep-233723029.html)
 <!-- feed end -->
 
 ### Onstream
