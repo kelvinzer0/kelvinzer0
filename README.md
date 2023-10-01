@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Oct 01 - [MSNBC Anchor Recuses Herself From Covering Dad Sen. Bob Menendez’s Indictment (Video)](https://www.yahoo.com/entertainment/msnbc-anchor-recuses-herself-covering-001057879.html)
 - Sep 30 - [Kevin McCarthy Calls for Punishment as Rep. Jamaal Bowman Gets Caught Pulling Capitol Fire Alarm: ‘This Is an Embarrassment’ (Video)](https://www.yahoo.com/entertainment/kevin-mccarthy-calls-punishment-rep-233723029.html)
 - Sep 30 - [Police arrest 2 men in killing of Pontiac man known for fooling sexual predators](https://news.yahoo.com/police-arrest-2-men-killing-231142670.html)
-- Sep 30 - [Bankrupt Burger King Franchisee Unloads Nearly 6 Dozen Stores](https://www.yahoo.com/lifestyle/bankrupt-burger-king-franchisee-unloads-231106015.html)
 - Sep 30 - [Apple identifies issues causing overheating in the iPhone 15](https://news.yahoo.com/apple-identifies-issues-causing-overheating-220320674.html)
+- Sep 30 - [In Texas, water levels are so low a rarely-seen underwater cave and century-old ruins have appeared](https://news.yahoo.com/texas-water-levels-low-rarely-215349449.html)
 <!-- feed end -->
 
 ### Onstream
