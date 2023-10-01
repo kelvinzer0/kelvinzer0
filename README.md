@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - ['Gross negligence' caused Iraq's deadly wedding fire](https://news.yahoo.com/gross-negligence-caused-iraqs-deadly-203216323.html)
+- Oct 01 - [Michigan Teen Arrested for Throwing Chair at Teacher Faces Felony Assault Charges](https://www.yahoo.com/entertainment/michigan-teen-arrested-throwing-chair-200213158.html)
+- Oct 01 - [House Democrat steps down from leadership role over party’s support of Biden’s reelection](https://news.yahoo.com/house-democrat-steps-down-leadership-200115508.html)
 - Oct 01 - [Former California Gov. Arnold Schwarzenegger believes there's still a 'home' for him in the Republican Party, but says his state's GOP has 'done a horrible job'](https://news.yahoo.com/former-california-gov-arnold-schwarzenegger-193511979.html)
+- Oct 01 - ['Death blow to Donald': Cohen says Trump facing 'biggest fear' in fraud trial](https://news.yahoo.com/death-blow-donald-cohen-says-191708717.html)
 - Oct 01 - [Lara Trump May Find Herself in Legal Trouble After Covering a Song From Someone That Called Out the Family in 2020](https://www.yahoo.com/entertainment/lara-trump-may-herself-legal-180000517.html)
-- Oct 01 - [Grizzly bear attack in Canada's Banff National Park leaves two dead](https://finance.yahoo.com/news/grizzly-bear-attack-canadas-banff-173926030.html)
-- Oct 01 - [Armed homeowner steps in after girlfriend's estranged husband allegedly breaks in: police](https://news.yahoo.com/armed-homeowner-steps-girlfriends-estranged-165331893.html)
 <!-- feed end -->
 
 ### Onstream
