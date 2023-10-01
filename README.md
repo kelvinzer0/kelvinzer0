@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 01 - ['Gross negligence' caused Iraq's deadly wedding fire](https://news.yahoo.com/gross-negligence-caused-iraqs-deadly-203216323.html)
+- Oct 01 - [Former California Gov. Arnold Schwarzenegger believes there's still a 'home' for him in the Republican Party, but says his state's GOP has 'done a horrible job'](https://news.yahoo.com/former-california-gov-arnold-schwarzenegger-193511979.html)
 - Oct 01 - [Lara Trump May Find Herself in Legal Trouble After Covering a Song From Someone That Called Out the Family in 2020](https://www.yahoo.com/entertainment/lara-trump-may-herself-legal-180000517.html)
 - Oct 01 - [Grizzly bear attack in Canada's Banff National Park leaves two dead](https://finance.yahoo.com/news/grizzly-bear-attack-canadas-banff-173926030.html)
 - Oct 01 - [Armed homeowner steps in after girlfriend's estranged husband allegedly breaks in: police](https://news.yahoo.com/armed-homeowner-steps-girlfriends-estranged-165331893.html)
-- Oct 01 - [Guy Pulls Gun On Repo Man, Immediately Regrets It](https://news.yahoo.com/guy-pulls-gun-repo-man-163500328.html)
-- Oct 01 - [Transcript: Sen. Lindsey Graham on "Face the Nation," Oct. 1, 2023](https://news.yahoo.com/transcript-sen-lindsey-graham-face-163358611.html)
 <!-- feed end -->
 
 ### Onstream
