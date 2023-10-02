@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [2 Lion Cubs Rescued After Getting Illegally Trafficked](https://news.yahoo.com/2-lion-cubs-rescued-getting-210602605.html)
-- Oct 02 - [Donald Trump Says Shoplifters Should be Shot, but Does He Know Who Most Shoplifters Are?](https://news.yahoo.com/donald-trump-says-shoplifters-shot-204900247.html)
-- Oct 02 - [Alabama Cops Who Arrested Mechanic for Not Giving Them His ID Denied Qualified Immunity](https://news.yahoo.com/alabama-cops-arrested-mechanic-not-201013496.html)
-- Oct 02 - [Ice-T Says 2Pac Murder Suspect Keefe D Is “Basically Dead” Following Arrest](https://www.yahoo.com/entertainment/ice-t-says-2pac-murder-195404069.html)
-- Oct 02 - [Legal experts: Trump's unhinged attack on judge in court shows he "realizes he's going to lose"](https://news.yahoo.com/legal-experts-trumps-unhinged-attack-193525011.html)
+- Oct 02 - [Biden implores Congress to pass Ukraine funding, budget bill](https://news.yahoo.com/biden-implores-congress-pass-ukraine-224303148.html)
+- Oct 02 - [Trump turns fraud trial into campaign stop](https://news.yahoo.com/trump-turns-fraud-trial-campaign-223103234.html)
+- Oct 02 - [Fact Check: Trump's 'Violent Thugs' Storm His NYC Courtroom, Leaving 'Many Injured'?](https://news.yahoo.com/fact-check-trumps-violent-thugs-222600975.html)
+- Oct 02 - [Army officer pepper-sprayed during traffic stop asks for a new trial in his lawsuit against police](https://news.yahoo.com/army-officer-pepper-sprayed-during-220641495.html)
+- Oct 02 - [Valerie Bertinelli Rewears Her 'Fat Clothes' From Jenny Craig 'Before Photo': 'I’ve Never Felt More Beautiful'](https://www.yahoo.com/entertainment/valerie-bertinelli-rewears-her-fat-215736723.html)
 <!-- feed end -->
 
 ### Onstream
