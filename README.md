@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [New York AG James, Trump speak before start of civil fraud trial](https://news.yahoo.com/york-ag-james-trump-speak-163947378.html)
+- Oct 02 - [Fact Check: Thousands of Ukrainian Soldiers Surrendered to Russia in Early October 2023?](https://news.yahoo.com/fact-check-thousands-ukrainian-soldiers-173100432.html)
+- Oct 02 - [Fact Check: Sean Combs 'Losing It' After Tupac Shakur's Murderer Threatens To 'Rat Him Out'?](https://www.yahoo.com/entertainment/fact-check-sean-combs-losing-173100980.html)
+- Oct 02 - [“Mind-blowing”: Legal experts warn that lawyer’s incredible “screw-up” is “very ominous” for Trump](https://news.yahoo.com/mind-blowing-legal-experts-warn-171808012.html)
+- Oct 02 - ["Crooked as a barrel of fish hooks": Whistleblower accuses Sarah Huckabee Sanders of ethics scandal](https://news.yahoo.com/crooked-barrel-fish-hooks-whistleblower-163956236.html)
 - Oct 02 - [Mexico president slams US spending on Ukraine as 'irrational'](https://news.yahoo.com/mexico-president-slams-us-spending-163137644.html)
-- Oct 02 - [Toyota's mini Land Cruiser rumored coming in 2024 — possibly called the Land Hopper](https://www.autoblog.com/2023/10/02/toyotas-miniature-land-cruiser-said-to-come-to-market-in-2024/)
-- Oct 02 - [Search for 9-year-old girl who vanished on a New York camping trip enters critical stage](https://news.yahoo.com/family-9-old-girl-vanished-115020139.html)
-- Oct 02 - [Trump and family deny responsibility for fudging Trump Org numbers in previously unseen deposition video shown by New York AG at trial](https://news.yahoo.com/trump-family-deny-responsibility-fudging-155836858.html)
 <!-- feed end -->
 
 ### Onstream
