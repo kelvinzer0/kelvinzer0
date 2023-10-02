@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 02 - [Bankman-Fried explored paying Trump not to run for president, book excerpt says](https://news.yahoo.com/bankman-fried-explored-paying-trump-035036014.html)
-- Oct 02 - [California governor to name Laphonza Butler, former Kamala Harris adviser, to Feinstein Senate seat](https://news.yahoo.com/california-governor-name-laphonza-butler-030601207.html)
+- Oct 02 - [Online personality ‘Boopac Shakur,’ known for exposing alleged sexual predators, shot and killed in Michigan](https://news.yahoo.com/online-personality-boopac-shakur-known-003240647.html)
+- Oct 02 - [California governor names Laphonza Butler, former Kamala Harris adviser, to Feinstein Senate seat](https://news.yahoo.com/california-governor-name-laphonza-butler-030601207.html)
 - Oct 02 - [Sam Bankman-Fried would readily choose a Brooklyn jail cell with internet access over a $39 million Bahamas penthouse that doesn't have Wi-Fi, author of FTX book says](https://news.yahoo.com/sam-bankman-fried-readily-choose-030201010.html)
 - Oct 02 - [Newsom picks Laphonza Butler as Feinstein replacement](https://news.yahoo.com/newsom-picks-laphonza-butler-feinstein-023019290.html)
-- Oct 02 - [Attorney General Garland says in interview he'd resign if Biden asked him to take action on Trump](https://news.yahoo.com/attorney-general-garland-says-interview-001135251.html)
 <!-- feed end -->
 
 ### Onstream
