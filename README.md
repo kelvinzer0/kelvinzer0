@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [Freshman Democrat Hits Matt Gaetz With A Hard Truth About His McCarthy Antics](https://news.yahoo.com/freshman-democrat-hits-matt-gaetz-155832797.html)
-- Oct 02 - [Pennsylvania mummy 'Stoneman Willie' to receive proper burial after 128 years](https://news.yahoo.com/pennsylvania-mummy-stoneman-willie-receive-155004169.html)
-- Oct 02 - [Dogs: Six-legged puppy found dumped in car park](https://news.yahoo.com/dogs-six-legged-puppy-found-135526770.html)
-- Oct 02 - [This L.A. woman says she paid nearly $4K over 4 years for a subscription that gave her absolutely nothing — and she can't get the money back. 3 simple tips to avoid getting blindsided](https://finance.yahoo.com/news/l-tiktoker-says-she-paid-210000582.html)
-- Oct 02 - [A Pissed Off Trump Shows Up for His Bank Fraud Trial](https://news.yahoo.com/pissed-off-trump-shows-bank-142557667.html)
+- Oct 02 - [New York AG James, Trump speak before start of civil fraud trial](https://news.yahoo.com/york-ag-james-trump-speak-163947378.html)
+- Oct 02 - [Mexico president slams US spending on Ukraine as 'irrational'](https://news.yahoo.com/mexico-president-slams-us-spending-163137644.html)
+- Oct 02 - [Toyota's mini Land Cruiser rumored coming in 2024 — possibly called the Land Hopper](https://www.autoblog.com/2023/10/02/toyotas-miniature-land-cruiser-said-to-come-to-market-in-2024/)
+- Oct 02 - [Search for 9-year-old girl who vanished on a New York camping trip enters critical stage](https://news.yahoo.com/family-9-old-girl-vanished-115020139.html)
+- Oct 02 - [Trump and family deny responsibility for fudging Trump Org numbers in previously unseen deposition video shown by New York AG at trial](https://news.yahoo.com/trump-family-deny-responsibility-fudging-155836858.html)
 <!-- feed end -->
 
 ### Onstream
