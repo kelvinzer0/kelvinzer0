@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [US expands probe into Ford engine failures to include two motors and nearly 709,000 vehicles](https://news.yahoo.com/us-expands-probe-ford-engine-131543380.html)
-- Oct 02 - [Legal expert warns judge “increasingly frustrated” with Trump as he rages on Truth Social at 1 am](https://news.yahoo.com/legal-expert-warns-judge-increasingly-130212178.html)
-- Oct 02 - [Massachusetts town ranked most expensive in United States](https://news.yahoo.com/massachusetts-town-ranked-most-expensive-125850283.html)
+- Oct 02 - [New York Attorney General Letitia James: President Trump engaged in 'persistent and repeated fraud'](https://news.yahoo.com/york-attorney-general-letitia-james-144157773.html)
+- Oct 02 - [This L.A. woman says she paid nearly $4K over 4 years for a subscription that gave her absolutely nothing — and she can't get the money back. 3 simple tips to avoid getting blindsided](https://finance.yahoo.com/news/l-tiktoker-says-she-paid-210000582.html)
+- Oct 02 - [Donald Trump appears in court as civil fraud trial begins in New York](https://news.yahoo.com/donald-trump-appears-court-civil-143228793.html)
+- Oct 02 - [A Pissed Off Trump Shows Up for His Bank Fraud Trial](https://news.yahoo.com/pissed-off-trump-shows-bank-142557667.html)
 - Oct 02 - [The family of a 9-year-old girl who vanished on a New York camping trip is asking the public for tips, as police warn she could be in ‘imminent danger’](https://news.yahoo.com/family-9-old-girl-vanished-115020139.html)
-- Oct 02 - [US expands, upgrades probe into 708,000 Ford SUVs, trucks over engine failures](https://finance.yahoo.com/news/us-expands-upgrades-probe-708-113306841.html)
 <!-- feed end -->
 
 ### Onstream
