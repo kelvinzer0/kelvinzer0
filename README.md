@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - [US expands, upgrades probe into 708,000 Ford SUVs, trucks over engine failures](https://finance.yahoo.com/news/us-expands-upgrades-probe-708-113306841.html)
 - Oct 02 - ['A devastating financial blow': California's so-called 'draconian' fast-food bill is now law — why a McDonald's franchisee group says it'll cost small business owners $250K a year](https://finance.yahoo.com/news/devastating-financial-blow-mcdonald-franchisee-163000954.html)
 - Oct 02 - [Marjorie Taylor Greene's Boyfriend Goes On Vile Rant About Liberal Women: 'The Ugliest'](https://news.yahoo.com/marjorie-taylor-greenes-boyfriend-goes-112806675.html)
 - Oct 02 - [Justice Kavanaugh taps the brakes on Supreme Court's sharp move to the right](https://news.yahoo.com/justice-kavanaugh-taps-brakes-supreme-110013506.html)
 - Oct 02 - [PepsiCo reveals truth about Tesla’s semitruck fleet after subjecting them to ‘hellacious’ and dangerous delivery routes](https://news.yahoo.com/pepsico-reveals-truth-tesla-semitruck-113000730.html)
-- Oct 02 - [San Francisco Bay boaters forced to fight off 'pirates' as seafaring bandits ravage community](https://news.yahoo.com/san-francisco-bay-boaters-forced-080029890.html)
 <!-- feed end -->
 
 ### Onstream
