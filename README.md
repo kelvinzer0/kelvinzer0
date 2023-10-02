@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [Top GOP senator says Trump ‘is strengthening’ among independents](https://news.yahoo.com/why-top-gop-senator-believes-175447794.html)
+- Oct 02 - [Alabama Cops Who Arrested Mechanic for Not Giving Them His ID Denied Qualified Immunity](https://news.yahoo.com/alabama-cops-arrested-mechanic-not-201013496.html)
+- Oct 02 - [Ice-T Says 2Pac Murder Suspect Keefe D Is “Basically Dead” Following Arrest](https://www.yahoo.com/entertainment/ice-t-says-2pac-murder-195404069.html)
+- Oct 02 - [North Dakota state senator, his wife and 2 kids killed in Utah plane crash](https://news.yahoo.com/north-dakota-state-senator-wife-193543381.html)
+- Oct 02 - [Legal experts: Trump's unhinged attack on judge in court shows he "realizes he's going to lose"](https://news.yahoo.com/legal-experts-trumps-unhinged-attack-193525011.html)
 - Oct 02 - [Ex-MLB pitcher Trevor Bauer, woman who accused him of assault in 2021 settle legal dispute](https://news.yahoo.com/ex-mlb-pitcher-trevor-bauer-190010164.html)
-- Oct 02 - [Search for 9-year-old girl who vanished on a New York camping trip enters critical stage](https://news.yahoo.com/family-9-old-girl-vanished-115020139.html)
-- Oct 02 - [Donald Trump Reportedly Wanted To Be Paid This Astronomical Price To Sit Out the 2024 Presidential Election](https://www.yahoo.com/entertainment/donald-trump-reportedly-wanted-paid-180559133.html)
-- Oct 02 - [GOP congresswoman says she is tired of 'sacrificing' her children to reduce the national debt and threatens to quit if Congress doesn't establish a debt commission](https://news.yahoo.com/gop-congresswoman-says-she-tired-180505944.html)
 <!-- feed end -->
 
 ### Onstream
