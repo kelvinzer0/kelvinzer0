@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - [Top GOP senator says Trump ‘is strengthening’ among independents](https://news.yahoo.com/why-top-gop-senator-believes-175447794.html)
+- Oct 02 - [Ex-MLB pitcher Trevor Bauer, woman who accused him of assault in 2021 settle legal dispute](https://news.yahoo.com/ex-mlb-pitcher-trevor-bauer-190010164.html)
 - Oct 02 - [Search for 9-year-old girl who vanished on a New York camping trip enters critical stage](https://news.yahoo.com/family-9-old-girl-vanished-115020139.html)
-- Oct 02 - [‘He’s Lucky to be Alive’: Video Shows Florida Cops Beating Black Man ‘Like a ‘Rag Doll.’ Family Wants the Officers Off the Street](https://news.yahoo.com/lucky-alive-video-shows-florida-173233569.html)
-- Oct 02 - [Fact Check: Thousands of Ukrainian Soldiers Surrendered to Russia in Early October 2023?](https://news.yahoo.com/fact-check-thousands-ukrainian-soldiers-173100432.html)
-- Oct 02 - [Fact Check: Sean Combs 'Losing It' After Tupac Shakur's Murderer Threatens To 'Rat Him Out'?](https://www.yahoo.com/entertainment/fact-check-sean-combs-losing-173100980.html)
-- Oct 02 - [“Mind-blowing”: Legal experts warn that lawyer’s incredible “screw-up” is “very ominous” for Trump](https://news.yahoo.com/mind-blowing-legal-experts-warn-171808012.html)
+- Oct 02 - [Donald Trump Reportedly Wanted To Be Paid This Astronomical Price To Sit Out the 2024 Presidential Election](https://www.yahoo.com/entertainment/donald-trump-reportedly-wanted-paid-180559133.html)
+- Oct 02 - [GOP congresswoman says she is tired of 'sacrificing' her children to reduce the national debt and threatens to quit if Congress doesn't establish a debt commission](https://news.yahoo.com/gop-congresswoman-says-she-tired-180505944.html)
 <!-- feed end -->
 
 ### Onstream
