@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 02 - [A Ukrainian soldier called up Russian tech support when his captured Russian tank wouldn't start: report](https://news.yahoo.com/ukrainian-soldier-called-russian-tech-052746475.html)
 - Oct 02 - [Trump Chooses His Own Shocking Cause Of Death In Bonkers New Rant](https://news.yahoo.com/trump-chooses-own-shocking-cause-050905497.html)
+- Oct 02 - [Leaked video of Tesla Cybertruck following crash test sparks debate online: ‘Repair facilities will not touch this’](https://news.yahoo.com/leaked-video-tesla-cybertruck-following-050000129.html)
+- Oct 02 - [Japan startup develops 'Gundam'-like robot](https://news.yahoo.com/japan-start-develops-gundam-robot-043800352.html)
 - Oct 02 - [Online personality ‘Boopac Shakur,’ known for exposing alleged sexual predators, shot and killed in Michigan](https://news.yahoo.com/online-personality-boopac-shakur-known-003240647.html)
-- Oct 02 - [Sam Bankman-Fried would readily choose a Brooklyn jail cell with internet access over a $39 million Bahamas penthouse that doesn't have Wi-Fi, author of FTX book says](https://news.yahoo.com/sam-bankman-fried-readily-choose-030201010.html)
-- Oct 02 - [Newsom picks Laphonza Butler as Feinstein replacement](https://news.yahoo.com/newsom-picks-laphonza-butler-feinstein-023019290.html)
 <!-- feed end -->
 
 ### Onstream
