@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [Donald Trump says he will be in courtroom for New York trial scrutinizing his business practices](https://news.yahoo.com/donald-trump-says-courtroom-york-024511290.html)
+- Oct 02 - [Bankman-Fried explored paying Trump not to run for president, book excerpt says](https://news.yahoo.com/bankman-fried-explored-paying-trump-035036014.html)
+- Oct 02 - [California governor to name Laphonza Butler, former Kamala Harris adviser, to Feinstein Senate seat](https://news.yahoo.com/california-governor-name-laphonza-butler-030601207.html)
+- Oct 02 - [Sam Bankman-Fried would readily choose a Brooklyn jail cell with internet access over a $39 million Bahamas penthouse that doesn't have Wi-Fi, author of FTX book says](https://news.yahoo.com/sam-bankman-fried-readily-choose-030201010.html)
 - Oct 02 - [Newsom picks Laphonza Butler as Feinstein replacement](https://news.yahoo.com/newsom-picks-laphonza-butler-feinstein-023019290.html)
 - Oct 02 - [Attorney General Garland says in interview he'd resign if Biden asked him to take action on Trump](https://news.yahoo.com/attorney-general-garland-says-interview-001135251.html)
-- Oct 01 - [This Caribbean island was once plagued with rats that destroyed the ecosystem. Now, plant biomass has increased 2,000% thanks to environmental group efforts.](https://news.yahoo.com/caribbean-island-once-plagued-rats-234353613.html)
-- Oct 01 - [Earth-Size Planet Found In TOI 700 System's Habitable Zone](https://news.yahoo.com/earth-size-planet-found-toi-200000898.html)
 <!-- feed end -->
 
 ### Onstream
