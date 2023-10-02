@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - [Gavin Newsom's appointee to replace Dianne Feinstein will be eligible to run for a full Senate term in 2024](https://news.yahoo.com/gavin-newsoms-appointee-replace-dianne-001652215.html)
 - Oct 02 - [Attorney General Garland says in interview he'd resign if Biden asked him to take action on Trump](https://news.yahoo.com/attorney-general-garland-says-interview-001135251.html)
 - Oct 01 - [This Caribbean island was once plagued with rats that destroyed the ecosystem. Now, plant biomass has increased 2,000% thanks to environmental group efforts.](https://news.yahoo.com/caribbean-island-once-plagued-rats-234353613.html)
+- Oct 01 - [Earth-Size Planet Found In TOI 700 System's Habitable Zone](https://news.yahoo.com/earth-size-planet-found-toi-200000898.html)
 - Oct 01 - ['Death blow to Donald': Cohen says Trump facing 'biggest fear' in fraud trial](https://news.yahoo.com/death-blow-donald-cohen-says-191708717.html)
-- Oct 01 - [Video shows bloodied Black man surrounded by officers during Florida traffic stop](https://news.yahoo.com/video-shows-bloodied-black-man-183549684.html)
-- Oct 01 - [Grizzly bear attack in Canada's Banff National Park leaves two dead](https://finance.yahoo.com/news/grizzly-bear-attack-canadas-banff-173926030.html)
 <!-- feed end -->
 
 ### Onstream
