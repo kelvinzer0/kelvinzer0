@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - [US expands probe into Ford engine failures to include two motors and nearly 709,000 vehicles](https://news.yahoo.com/us-expands-probe-ford-engine-131543380.html)
+- Oct 02 - [Legal expert warns judge “increasingly frustrated” with Trump as he rages on Truth Social at 1 am](https://news.yahoo.com/legal-expert-warns-judge-increasingly-130212178.html)
+- Oct 02 - [Massachusetts town ranked most expensive in United States](https://news.yahoo.com/massachusetts-town-ranked-most-expensive-125850283.html)
+- Oct 02 - [The family of a 9-year-old girl who vanished on a New York camping trip is asking the public for tips, as police warn she could be in ‘imminent danger’](https://news.yahoo.com/family-9-old-girl-vanished-115020139.html)
 - Oct 02 - [US expands, upgrades probe into 708,000 Ford SUVs, trucks over engine failures](https://finance.yahoo.com/news/us-expands-upgrades-probe-708-113306841.html)
-- Oct 02 - ['A devastating financial blow': California's so-called 'draconian' fast-food bill is now law — why a McDonald's franchisee group says it'll cost small business owners $250K a year](https://finance.yahoo.com/news/devastating-financial-blow-mcdonald-franchisee-163000954.html)
-- Oct 02 - [Marjorie Taylor Greene's Boyfriend Goes On Vile Rant About Liberal Women: 'The Ugliest'](https://news.yahoo.com/marjorie-taylor-greenes-boyfriend-goes-112806675.html)
-- Oct 02 - [Justice Kavanaugh taps the brakes on Supreme Court's sharp move to the right](https://news.yahoo.com/justice-kavanaugh-taps-brakes-supreme-110013506.html)
-- Oct 02 - [PepsiCo reveals truth about Tesla’s semitruck fleet after subjecting them to ‘hellacious’ and dangerous delivery routes](https://news.yahoo.com/pepsico-reveals-truth-tesla-semitruck-113000730.html)
 <!-- feed end -->
 
 ### Onstream
