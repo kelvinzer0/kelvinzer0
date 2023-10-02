@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [A night inside a strip club near Ukraine’s front lines](https://news.yahoo.com/night-inside-strip-club-near-093501417.html)
-- Oct 02 - [Judge orders New York to dole out nearly half a million in legal fees to NRA after Supreme Court victory](https://news.yahoo.com/judge-orders-york-dole-nearly-080004368.html)
-- Oct 02 - [Philippines' Marcos suffers 'significant' drop in approval rating](https://news.yahoo.com/philippines-marcos-suffers-significant-drop-074151855.html)
-- Oct 02 - [CBS Anchor Can't Keep Straight Face Over Kevin McCarthy's Shutdown Claim](https://news.yahoo.com/cbs-anchor-cant-keep-straight-070516877.html)
-- Oct 02 - [Tourist tempts fate by sticking hand in hot pool at Yellowstone: ‘Pushing the limits of stupidity to a new level’](https://news.yahoo.com/tourist-tempts-fate-sticking-hand-053000995.html)
+- Oct 02 - ['A devastating financial blow': California's so-called 'draconian' fast-food bill is now law — why a McDonald's franchisee group says it'll cost small business owners $250K a year](https://finance.yahoo.com/news/devastating-financial-blow-mcdonald-franchisee-163000954.html)
+- Oct 02 - [Marjorie Taylor Greene's Boyfriend Goes On Vile Rant About Liberal Women: 'The Ugliest'](https://news.yahoo.com/marjorie-taylor-greenes-boyfriend-goes-112806675.html)
+- Oct 02 - [Justice Kavanaugh taps the brakes on Supreme Court's sharp move to the right](https://news.yahoo.com/justice-kavanaugh-taps-brakes-supreme-110013506.html)
+- Oct 02 - [PepsiCo reveals truth about Tesla’s semitruck fleet after subjecting them to ‘hellacious’ and dangerous delivery routes](https://news.yahoo.com/pepsico-reveals-truth-tesla-semitruck-113000730.html)
+- Oct 02 - [San Francisco Bay boaters forced to fight off 'pirates' as seafaring bandits ravage community](https://news.yahoo.com/san-francisco-bay-boaters-forced-080029890.html)
 <!-- feed end -->
 
 ### Onstream
