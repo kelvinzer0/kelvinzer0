@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 02 - [A key organizer of the Bling Ring finally speaks out, admits to being one of two leaders](https://www.yahoo.com/entertainment/organizer-of-bling-ring-admits-to-being-one-of-two-leaders-084306637.html)
 - Oct 02 - [Philippines' Marcos suffers 'significant' drop in approval rating](https://news.yahoo.com/philippines-marcos-suffers-significant-drop-074151855.html)
 - Oct 02 - [CBS Anchor Can't Keep Straight Face Over Kevin McCarthy's Shutdown Claim](https://news.yahoo.com/cbs-anchor-cant-keep-straight-070516877.html)
 - Oct 02 - [Tourist tempts fate by sticking hand in hot pool at Yellowstone: ‘Pushing the limits of stupidity to a new level’](https://news.yahoo.com/tourist-tempts-fate-sticking-hand-053000995.html)
 - Oct 02 - [A Ukrainian soldier called up Russian tech support when his captured Russian tank wouldn't start: report](https://news.yahoo.com/ukrainian-soldier-called-russian-tech-052746475.html)
+- Oct 02 - [Trump Chooses His Own Shocking Cause Of Death In Bonkers New Rant](https://news.yahoo.com/trump-chooses-own-shocking-cause-050905497.html)
 <!-- feed end -->
 
 ### Onstream
