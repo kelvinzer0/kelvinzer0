@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 02 - [2 Lion Cubs Rescued After Getting Illegally Trafficked](https://news.yahoo.com/2-lion-cubs-rescued-getting-210602605.html)
+- Oct 02 - [Donald Trump Says Shoplifters Should be Shot, but Does He Know Who Most Shoplifters Are?](https://news.yahoo.com/donald-trump-says-shoplifters-shot-204900247.html)
 - Oct 02 - [Alabama Cops Who Arrested Mechanic for Not Giving Them His ID Denied Qualified Immunity](https://news.yahoo.com/alabama-cops-arrested-mechanic-not-201013496.html)
 - Oct 02 - [Ice-T Says 2Pac Murder Suspect Keefe D Is “Basically Dead” Following Arrest](https://www.yahoo.com/entertainment/ice-t-says-2pac-murder-195404069.html)
-- Oct 02 - [North Dakota state senator, his wife and 2 kids killed in Utah plane crash](https://news.yahoo.com/north-dakota-state-senator-wife-193543381.html)
 - Oct 02 - [Legal experts: Trump's unhinged attack on judge in court shows he "realizes he's going to lose"](https://news.yahoo.com/legal-experts-trumps-unhinged-attack-193525011.html)
-- Oct 02 - [Ex-MLB pitcher Trevor Bauer, woman who accused him of assault in 2021 settle legal dispute](https://news.yahoo.com/ex-mlb-pitcher-trevor-bauer-190010164.html)
 <!-- feed end -->
 
 ### Onstream
