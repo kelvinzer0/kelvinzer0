@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 01 - [Michigan Teen Arrested for Throwing Chair at Teacher Faces Felony Assault Charges](https://www.yahoo.com/entertainment/michigan-teen-arrested-throwing-chair-200213158.html)
-- Oct 01 - [House Democrat steps down from leadership role over party’s support of Biden’s reelection](https://news.yahoo.com/house-democrat-steps-down-leadership-200115508.html)
-- Oct 01 - [Former California Gov. Arnold Schwarzenegger believes there's still a 'home' for him in the Republican Party, but says his state's GOP has 'done a horrible job'](https://news.yahoo.com/former-california-gov-arnold-schwarzenegger-193511979.html)
+- Oct 02 - [Attorney General Garland says in interview he'd resign if Biden asked him to take action on Trump](https://news.yahoo.com/attorney-general-garland-says-interview-001135251.html)
+- Oct 01 - [This Caribbean island was once plagued with rats that destroyed the ecosystem. Now, plant biomass has increased 2,000% thanks to environmental group efforts.](https://news.yahoo.com/caribbean-island-once-plagued-rats-234353613.html)
 - Oct 01 - ['Death blow to Donald': Cohen says Trump facing 'biggest fear' in fraud trial](https://news.yahoo.com/death-blow-donald-cohen-says-191708717.html)
-- Oct 01 - [Lara Trump May Find Herself in Legal Trouble After Covering a Song From Someone That Called Out the Family in 2020](https://www.yahoo.com/entertainment/lara-trump-may-herself-legal-180000517.html)
+- Oct 01 - [Video shows bloodied Black man surrounded by officers during Florida traffic stop](https://news.yahoo.com/video-shows-bloodied-black-man-183549684.html)
+- Oct 01 - [Grizzly bear attack in Canada's Banff National Park leaves two dead](https://finance.yahoo.com/news/grizzly-bear-attack-canadas-banff-173926030.html)
 <!-- feed end -->
 
 ### Onstream
