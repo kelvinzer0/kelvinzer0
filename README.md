@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 03 - [India tells Canada to remove 41 of its 62 diplomats in the country, an official says](https://news.yahoo.com/india-tells-canada-remove-41-115203499.html)
+- Oct 03 - ['It's not taxed at all': Warren Buffett shares the 'best investment' you can make when battling against inflation — and it doesn't have to cost you a dime](https://finance.yahoo.com/news/not-taxed-warren-buffett-shares-113000568.html)
+- Oct 03 - [A huge python built its lair in a trailer park and grew 13ft long eating the neighborhood cats](https://news.yahoo.com/huge-python-built-lair-trailer-101302958.html)
 - Oct 03 - [The unsung hero behind Donald Trump’s crushing fraud case: Alexandria Ocasio-Cortez](https://news.yahoo.com/unsung-hero-behind-donald-trump-100101499.html)
-- Oct 03 - ['They're just meat': Russia deploys punishment battalions in echo of Stalin](https://news.yahoo.com/theyre-just-meat-russia-deploys-050545051.html)
-- Oct 03 - [Fuller picture emerges of the 13 federal executions at the end of Trump's presidency](https://news.yahoo.com/fuller-picture-emerges-13-federal-040457600.html)
-- Oct 03 - [UPDATE 1-India tells Canada to withdraw 41 diplomats - FT](https://finance.yahoo.com/news/1-india-tells-canada-withdraw-035727056.html)
-- Oct 03 - [Sheriff Paul Penzone of Arizona's Maricopa County says he's stepping down a year early in January](https://news.yahoo.com/sheriff-paul-penzone-arizonas-maricopa-010934583.html)
+- Oct 03 - [‘I wouldn’t touch [them] with anybody’s money’: Grant Cardone argues these two major US cities are some of 'the worst markets to be in right now' for real estate investors — here's why](https://finance.yahoo.com/news/wouldn-t-touch-them-anybody-120000157.html)
 <!-- feed end -->
 
 ### Onstream
