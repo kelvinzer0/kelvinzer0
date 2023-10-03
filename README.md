@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 03 - ['They're just meat': Russia deploys punishment battalions in echo of Stalin](https://news.yahoo.com/theyre-just-meat-russia-deploys-050545051.html)
+- Oct 03 - [Fuller picture emerges of the 13 federal executions at the end of Trump's presidency](https://news.yahoo.com/fuller-picture-emerges-13-federal-040457600.html)
 - Oct 03 - [UPDATE 1-India tells Canada to withdraw 41 diplomats - FT](https://finance.yahoo.com/news/1-india-tells-canada-withdraw-035727056.html)
 - Oct 03 - [Taiwan Tech Firms Helping Huawei With China Chip Plants](https://finance.yahoo.com/video/taiwan-tech-firms-helping-huawei-031212836.html)
 - Oct 03 - [Sheriff Paul Penzone of Arizona's Maricopa County says he's stepping down a year early in January](https://news.yahoo.com/sheriff-paul-penzone-arizonas-maricopa-010934583.html)
-- Oct 03 - [Former ‘The Apprentice’ contestant speaks out on Trump’s New York fraud trial](https://news.yahoo.com/former-apprentice-contestant-speaks-trump-010832342.html)
 <!-- feed end -->
 
 ### Onstream
