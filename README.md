@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Taiwan firms reportedly aiding Huawei navigate chip sanctions](https://finance.yahoo.com/video/taiwan-firms-reportedly-aiding-huawei-144603842.html)
 - Oct 03 - [Judge told lawyers to "keep the volume down" after Alina Habba "practically yelled" at him: reporter](https://news.yahoo.com/judge-told-lawyers-keep-volume-143456685.html)
 - Oct 03 - [Neil DeGrasse Tyson reveals startling facts about recently discovered alien evidence](https://www.thestreet.com/technology/neil-degrasse-tyson-reveals-startling-facts-about-recently-discovered-alien-evidence?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 03 - ['That blew up in my face': This college student lives for free in her uncle's investment property — but collects rent from her friends and pockets the cash. Is she 'greedy' or resourceful?](https://finance.yahoo.com/news/blew-face-college-student-lives-143000023.html)
 - Oct 03 - [Not enough Bears: Russia’s Black Sea Fleet is pulling out of Crimea](https://news.yahoo.com/not-enough-bears-russia-black-141826592.html)
 - Oct 03 - [Suge Knight Declines To Testify Against Keefe D, Says Cops Have Wrong Guy](https://www.yahoo.com/entertainment/suge-knight-declines-testify-against-135150938.html)
 <!-- feed end -->
