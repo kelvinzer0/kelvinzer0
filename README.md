@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 03 - [6 Unbelievable FBI Cases That Remain Unsolved, And 6 That Were Successfully Closed](https://www.yahoo.com/lifestyle/6-unbelievable-fbi-cases-remain-174603010.html)
 - Oct 03 - [A man did a DNA test and learned the dark reason his dad was an orphan. He said he can't be angry at his father.](https://www.yahoo.com/lifestyle/man-did-dna-test-learned-160309011.html)
-- Oct 03 - [Returned Asteroid Sample Canister Contains Way More Asteroid Than Expected](https://news.yahoo.com/returned-asteroid-sample-canister-contains-155500266.html)
 - Oct 03 - [Donald Trump wants future Republican debates to be canceled after refusing to participate in them](https://news.yahoo.com/donald-trump-wants-future-republican-154620583.html)
-- Oct 03 - [Judge told lawyers to "keep the volume down" after Alina Habba "practically yelled" at him: reporter](https://news.yahoo.com/judge-told-lawyers-keep-volume-143456685.html)
-- Oct 03 - [Neil DeGrasse Tyson reveals startling facts about recently discovered alien evidence](https://www.thestreet.com/technology/neil-degrasse-tyson-reveals-startling-facts-about-recently-discovered-alien-evidence?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 03 - [‘Ain’t No Way She Just Did That!’: Defiant Substitute Teacher Puts on Teacher’s Alpha Kappa Alpha Jacket. Students and Social Media Brace for What Will Happen Next](https://www.yahoo.com/lifestyle/ain-t-no-way-she-153313376.html)
+- Oct 03 - [I always hated my breasts, but I can't get top surgery because the surgeon said I'm too fat. I'm enraged.](https://news.yahoo.com/always-hated-breasts-cant-top-145925412.html)
 <!-- feed end -->
 
 ### Onstream
