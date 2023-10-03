@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 03 - [Jacksonville sheriff says body camera video shows officers were justified in beating suspect](https://news.yahoo.com/jacksonville-sheriff-says-body-camera-014133567.html)
 - Oct 03 - [Fox Host Points Out Insanity of Trump’s Bank Fraud Trial ‘Jury’ Claim](https://www.yahoo.com/entertainment/fox-host-points-insanity-trump-002913880.html)
-- Oct 03 - ['Political Strategy:' Short on Donald Trump in NY Court](https://finance.yahoo.com/video/political-strategy-short-donald-trump-000341741.html)
 - Oct 02 - [Missing 9-Year-Old Charlotte Sena Found Alive—Suspect Nabbed](https://news.yahoo.com/missing-9-old-charlotte-sena-231217358.html)
 - Oct 02 - [North Carolina widower files settlement with restaurants that served drunk driver who killed his wife](https://news.yahoo.com/north-carolina-widower-files-settlement-230749286.html)
 - Oct 02 - [‘God help us’: John Kelly issues scathing statement on Trump](https://news.yahoo.com/god-help-us-john-kelly-222904442.html)
