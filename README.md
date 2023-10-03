@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Trump legal news brief: Judge refutes Trump’s claim that 80% of the case against will be tossed out](https://news.yahoo.com/trump-legal-news-brief-judge-refutes-trumps-claim-that-80-of-the-case-against-will-be-tossed-out-183429418.html)
-- Oct 03 - [John Kelly slammed for revealing "horrifying" Trump statements "three years too late"](https://news.yahoo.com/john-kelly-slammed-revealing-horrifying-182029828.html)
-- Oct 03 - [Judge brutally debunks Trump's claim that he threw out most of the NY fraud case against him](https://news.yahoo.com/judge-brutally-debunks-trumps-claim-180555192.html)
-- Oct 03 - [House Democrats Refuse to Save McCarthy in Vote on His Ouster](https://news.yahoo.com/house-democrats-refuse-save-mccarthy-164044607.html)
-- Oct 03 - [A man did a DNA test and learned the dark reason his dad was an orphan. He said he can't be angry at his father.](https://www.yahoo.com/lifestyle/man-did-dna-test-learned-160309011.html)
+- Oct 03 - [Jews spitting on the ground beside Christian pilgrims in the Holy Land sparks outrage](https://news.yahoo.com/jews-spitting-ground-beside-christian-190746566.html)
+- Oct 03 - [McCarthy Loses Pivotal Vote, Showing Republican Rebels Can Oust Him as Speaker](https://finance.yahoo.com/news/mccarthy-loses-pivotal-vote-showing-184911394.html)
+- Oct 03 - [Melania Trump Reportedly Roasted Husband Donald When Asked About His Latest Appearances](https://www.yahoo.com/entertainment/melania-trump-reportedly-roasted-husband-184800969.html)
+- Oct 03 - [Blabbering Donald Trump Essentially Admits to Fraud in New York Trial](https://news.yahoo.com/blabbering-donald-trump-essentially-admits-184253566.html)
+- Oct 03 - [Homeless 25-year-old Topeka man arrested in rape and killing of 5-year-old girl](https://news.yahoo.com/homeless-25-old-topeka-man-184158607.html)
 <!-- feed end -->
 
 ### Onstream
