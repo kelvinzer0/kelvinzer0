@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Joe Scarborough Tauntingly Predicts Donald Trump's Next Wild Move In Fraud Trial](https://news.yahoo.com/joe-scarborough-tauntingly-predicts-donald-124306025.html)
-- Oct 03 - [Pakistan orders all illegal immigrants to leave after suicide bombings](https://news.yahoo.com/pakistan-orders-illegal-immigrants-leave-121516169.html)
+- Oct 03 - [Pakistan orders illegal immigrants, including 1.73 million Afghans, to leave](https://news.yahoo.com/pakistan-orders-illegal-immigrants-leave-121516169.html)
 - Oct 03 - [India tells Canada to remove 41 of its 62 diplomats in the country, an official says](https://news.yahoo.com/india-tells-canada-remove-41-115203499.html)
+- Oct 03 - [A New York student was sentenced to a year in prison after touching a Dubai airport security guard: report](https://news.yahoo.com/york-student-sentenced-prison-touching-112905931.html)
 - Oct 03 - [A Hawaiian Airlines flight from Las Vegas to Honolulu didn't even leave Nevada before being struck by lightning and forced to turn back](https://news.yahoo.com/hawaiian-airlines-flight-las-vegas-112839297.html)
 - Oct 03 - [Michigan Supreme Court refuses to hear case of James and Jennifer Crumbley](https://news.yahoo.com/michigan-supreme-court-refuses-hear-112619923.html)
 <!-- feed end -->
