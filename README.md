@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Video captures fireball lighting up Oxford sky](https://news.yahoo.com/video-captures-fireball-lighting-oxford-022649766.html)
-- Oct 03 - [‘I’m Gonna Hunt You Down Like a Dog!’: Enraged White Motorist Ram’s Truck Into Black Man’s Car In Alleged Racist Attack](https://news.yahoo.com/m-gonna-hunt-down-dog-012157920.html)
 - Oct 03 - [Sheriff Paul Penzone of Arizona's Maricopa County says he's stepping down a year early in January](https://news.yahoo.com/sheriff-paul-penzone-arizonas-maricopa-010934583.html)
+- Oct 03 - [Former ‘The Apprentice’ contestant speaks out on Trump’s New York fraud trial](https://news.yahoo.com/former-apprentice-contestant-speaks-trump-010832342.html)
 - Oct 03 - [Fox Host Points Out Insanity of Trump’s Bank Fraud Trial ‘Jury’ Claim](https://www.yahoo.com/entertainment/fox-host-points-insanity-trump-002913880.html)
-- Oct 02 - [Fingerprint on Ransom Note Lead to Rescue of Kidnapped Charlotte Sena](https://news.yahoo.com/missing-9-old-charlotte-sena-231217358.html)
+- Oct 02 - [Kidnapped Charlotte Sena Discovered in Cupboard of Suspect’s Home: Guv](https://news.yahoo.com/missing-9-old-charlotte-sena-231217358.html)
+- Oct 02 - [North Carolina widower files settlement with restaurants that served drunk driver who killed his wife](https://news.yahoo.com/north-carolina-widower-files-settlement-230749286.html)
 <!-- feed end -->
 
 ### Onstream
