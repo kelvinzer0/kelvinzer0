@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 03 - [UPDATE 1-India tells Canada to withdraw 41 diplomats - FT](https://finance.yahoo.com/news/1-india-tells-canada-withdraw-035727056.html)
+- Oct 03 - [Taiwan Tech Firms Helping Huawei With China Chip Plants](https://finance.yahoo.com/video/taiwan-tech-firms-helping-huawei-031212836.html)
 - Oct 03 - [Sheriff Paul Penzone of Arizona's Maricopa County says he's stepping down a year early in January](https://news.yahoo.com/sheriff-paul-penzone-arizonas-maricopa-010934583.html)
 - Oct 03 - [Former ‘The Apprentice’ contestant speaks out on Trump’s New York fraud trial](https://news.yahoo.com/former-apprentice-contestant-speaks-trump-010832342.html)
 - Oct 03 - [Fox Host Points Out Insanity of Trump’s Bank Fraud Trial ‘Jury’ Claim](https://www.yahoo.com/entertainment/fox-host-points-insanity-trump-002913880.html)
-- Oct 02 - [Kidnapped Charlotte Sena Discovered in Cupboard of Suspect’s Home: Guv](https://news.yahoo.com/missing-9-old-charlotte-sena-231217358.html)
-- Oct 02 - [North Carolina widower files settlement with restaurants that served drunk driver who killed his wife](https://news.yahoo.com/north-carolina-widower-files-settlement-230749286.html)
 <!-- feed end -->
 
 ### Onstream
