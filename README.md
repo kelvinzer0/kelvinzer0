@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Tesla now offers a $43,990 rear-wheel drive Model Y in the US](https://news.yahoo.com/tesla-now-offers-a-43990-rear-wheel-drive-model-y-in-the-us-055515210.html)
+- Oct 03 - [The unsung hero behind Donald Trump’s crushing fraud case: Alexandria Ocasio-Cortez](https://news.yahoo.com/unsung-hero-behind-donald-trump-100101499.html)
 - Oct 03 - ['They're just meat': Russia deploys punishment battalions in echo of Stalin](https://news.yahoo.com/theyre-just-meat-russia-deploys-050545051.html)
 - Oct 03 - [Fuller picture emerges of the 13 federal executions at the end of Trump's presidency](https://news.yahoo.com/fuller-picture-emerges-13-federal-040457600.html)
 - Oct 03 - [UPDATE 1-India tells Canada to withdraw 41 diplomats - FT](https://finance.yahoo.com/news/1-india-tells-canada-withdraw-035727056.html)
