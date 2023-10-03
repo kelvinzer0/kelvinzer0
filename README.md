@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 03 - [Michael Zack set to be executed Tuesday in 1996 killing of woman he met at Florida bar](https://news.yahoo.com/michael-zack-set-executed-tuesday-201954850.html)
+- Oct 03 - ['Miracle' water year in California: Rain, snow put state's reservoirs at 128% of historical average](https://news.yahoo.com/miracle-water-california-rain-snow-200205499.html)
+- Oct 03 - [McCarthy Blows Off Dems’ Request to Attend Feinstein Funeral](https://news.yahoo.com/mccarthy-blows-off-dems-request-192028826.html)
 - Oct 03 - [Jews spitting on the ground beside Christian pilgrims in the Holy Land sparks outrage](https://news.yahoo.com/jews-spitting-ground-beside-christian-190746566.html)
 - Oct 03 - [McCarthy Loses Pivotal Vote, Showing Republican Rebels Can Oust Him as Speaker](https://finance.yahoo.com/news/mccarthy-loses-pivotal-vote-showing-184911394.html)
-- Oct 03 - [Melania Trump Reportedly Roasted Husband Donald When Asked About His Latest Appearances](https://www.yahoo.com/entertainment/melania-trump-reportedly-roasted-husband-184800969.html)
-- Oct 03 - [Blabbering Donald Trump Essentially Admits to Fraud in New York Trial](https://news.yahoo.com/blabbering-donald-trump-essentially-admits-184253566.html)
-- Oct 03 - [Homeless 25-year-old Topeka man arrested in rape and killing of 5-year-old girl](https://news.yahoo.com/homeless-25-old-topeka-man-184158607.html)
 <!-- feed end -->
 
 ### Onstream
