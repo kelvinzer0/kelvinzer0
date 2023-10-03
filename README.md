@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [Michael Zack set to be executed Tuesday in 1996 killing of woman he met at Florida bar](https://news.yahoo.com/michael-zack-set-executed-tuesday-201954850.html)
+- Oct 03 - [Dad died after medics waited outside his home, lawsuit says. His son called 911 twice](https://news.yahoo.com/dad-died-medics-waited-outside-204542372.html)
+- Oct 03 - [17-year-old Ohio homecoming queen candidate dies after collapsing on high school football field](https://news.yahoo.com/17-old-ohio-homecoming-queen-202947006.html)
+- Oct 03 - [Jacksonville Sheriff Releases New Details Behind Brutal Beating](https://news.yahoo.com/jacksonville-sheriff-releases-details-behind-201647932.html)
 - Oct 03 - ['Miracle' water year in California: Rain, snow put state's reservoirs at 128% of historical average](https://news.yahoo.com/miracle-water-california-rain-snow-200205499.html)
-- Oct 03 - [McCarthy Blows Off Dems’ Request to Attend Feinstein Funeral](https://news.yahoo.com/mccarthy-blows-off-dems-request-192028826.html)
-- Oct 03 - [Jews spitting on the ground beside Christian pilgrims in the Holy Land sparks outrage](https://news.yahoo.com/jews-spitting-ground-beside-christian-190746566.html)
-- Oct 03 - [McCarthy Loses Pivotal Vote, Showing Republican Rebels Can Oust Him as Speaker](https://finance.yahoo.com/news/mccarthy-loses-pivotal-vote-showing-184911394.html)
+- Oct 03 - [Neighbors react after Craig Ross, Jr. charged with kidnapping 9-year-old girl](https://news.yahoo.com/neighbors-react-craig-ross-jr-194400175.html)
 <!-- feed end -->
 
 ### Onstream
