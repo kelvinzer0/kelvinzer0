@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 03 - [Joe Scarborough Tauntingly Predicts Donald Trump's Next Wild Move In Fraud Trial](https://news.yahoo.com/joe-scarborough-tauntingly-predicts-donald-124306025.html)
+- Oct 03 - [Pakistan orders all illegal immigrants to leave after suicide bombings](https://news.yahoo.com/pakistan-orders-illegal-immigrants-leave-121516169.html)
 - Oct 03 - [India tells Canada to remove 41 of its 62 diplomats in the country, an official says](https://news.yahoo.com/india-tells-canada-remove-41-115203499.html)
-- Oct 03 - ['It's not taxed at all': Warren Buffett shares the 'best investment' you can make when battling against inflation — and it doesn't have to cost you a dime](https://finance.yahoo.com/news/not-taxed-warren-buffett-shares-113000568.html)
-- Oct 03 - [A huge python built its lair in a trailer park and grew 13ft long eating the neighborhood cats](https://news.yahoo.com/huge-python-built-lair-trailer-101302958.html)
-- Oct 03 - [The unsung hero behind Donald Trump’s crushing fraud case: Alexandria Ocasio-Cortez](https://news.yahoo.com/unsung-hero-behind-donald-trump-100101499.html)
-- Oct 03 - [‘I wouldn’t touch [them] with anybody’s money’: Grant Cardone argues these two major US cities are some of 'the worst markets to be in right now' for real estate investors — here's why](https://finance.yahoo.com/news/wouldn-t-touch-them-anybody-120000157.html)
+- Oct 03 - [A Hawaiian Airlines flight from Las Vegas to Honolulu didn't even leave Nevada before being struck by lightning and forced to turn back](https://news.yahoo.com/hawaiian-airlines-flight-las-vegas-112839297.html)
+- Oct 03 - [Michigan Supreme Court refuses to hear case of James and Jennifer Crumbley](https://news.yahoo.com/michigan-supreme-court-refuses-hear-112619923.html)
 <!-- feed end -->
 
 ### Onstream
