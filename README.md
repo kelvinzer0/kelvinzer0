@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 03 - [6 Unbelievable FBI Cases That Remain Unsolved, And 6 That Were Successfully Closed](https://www.yahoo.com/lifestyle/6-unbelievable-fbi-cases-remain-174603010.html)
+- Oct 03 - [Trump legal news brief: Judge refutes Trump’s claim that 80% of the case against will be tossed out](https://news.yahoo.com/trump-legal-news-brief-judge-refutes-trumps-claim-that-80-of-the-case-against-will-be-tossed-out-183429418.html)
+- Oct 03 - [John Kelly slammed for revealing "horrifying" Trump statements "three years too late"](https://news.yahoo.com/john-kelly-slammed-revealing-horrifying-182029828.html)
+- Oct 03 - [Judge brutally debunks Trump's claim that he threw out most of the NY fraud case against him](https://news.yahoo.com/judge-brutally-debunks-trumps-claim-180555192.html)
+- Oct 03 - [House Democrats Refuse to Save McCarthy in Vote on His Ouster](https://news.yahoo.com/house-democrats-refuse-save-mccarthy-164044607.html)
 - Oct 03 - [A man did a DNA test and learned the dark reason his dad was an orphan. He said he can't be angry at his father.](https://www.yahoo.com/lifestyle/man-did-dna-test-learned-160309011.html)
-- Oct 03 - [Donald Trump wants future Republican debates to be canceled after refusing to participate in them](https://news.yahoo.com/donald-trump-wants-future-republican-154620583.html)
-- Oct 03 - [‘Ain’t No Way She Just Did That!’: Defiant Substitute Teacher Puts on Teacher’s Alpha Kappa Alpha Jacket. Students and Social Media Brace for What Will Happen Next](https://www.yahoo.com/lifestyle/ain-t-no-way-she-153313376.html)
-- Oct 03 - [I always hated my breasts, but I can't get top surgery because the surgeon said I'm too fat. I'm enraged.](https://news.yahoo.com/always-hated-breasts-cant-top-145925412.html)
 <!-- feed end -->
 
 ### Onstream
