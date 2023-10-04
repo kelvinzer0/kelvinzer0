@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Cuba blames US for rising migrant traffic thru Central America](https://news.yahoo.com/cuba-blames-us-rising-migrant-164453894.html)
-- Oct 04 - ["He's going to violate the gag order": Trump rages on Truth Social hours after judge's warning](https://news.yahoo.com/hes-going-violate-gag-order-154856884.html)
-- Oct 04 - [Youngkin administration says unknown number of eligible voters were wrongly removed from rolls](https://news.yahoo.com/youngkin-administration-says-unknown-number-152232928.html)
-- Oct 04 - [Oil: 'Demand destruction has begun', say JPMorgan analysts](https://finance.yahoo.com/news/oil-demand-destruction-has-begun-say-jpmorgan-analysts-151912451.html)
-- Oct 04 - [Lawmaker: Pelosi being evicted from office shows dysfunction of GOP](https://news.yahoo.com/lawmaker-pelosi-being-evicted-office-150350306.html)
+- Oct 04 - [Bill Gates Recalls The Time Fellow Billionaire Warren Buffett Treated Him To Lunch At McDonald's And Paid Using Coupons — 'You Offered To Pay, Dug Into Your Pocket And Pulled Out ... Coupons!'](https://finance.yahoo.com/news/bill-gates-recalls-time-fellow-174029938.html)
+- Oct 04 - [Judge erupts at Trump's lawyers for wasting time with 'ridiculous' repetitive questions aimed at Trump Organization's ex-accountant](https://news.yahoo.com/judge-erupts-trumps-lawyers-wasting-171634032.html)
+- Oct 04 - [Top Wisconsin Senate Republican calls on Assembly to impeach state's top elections official](https://news.yahoo.com/top-wisconsin-senate-republican-calls-170636857.html)
+- Oct 04 - [McCarthy is out — Who could be the next House Speaker?](https://finance.yahoo.com/video/mccarthy-could-next-house-speaker-164436182.html)
+- Oct 04 - [Dad loses 100 pounds in 6 months after seeing photo of himself sleeping in church](https://www.yahoo.com/gma/dad-loses-100-pounds-6-162843095.html)
 <!-- feed end -->
 
 ### Onstream
