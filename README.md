@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [They were arrested after a rally against DeSantis. Now, the 'Tampa 5' say protesting is on trial.](https://news.yahoo.com/desantis-florida-usf-arrest-rally-tampa-5-protest-trial-democratic-society-090039280.html)
+- Oct 04 - [Tank battles in Ukraine are putting several generations of 'crappy Russian armored vehicles' and their flaws on display](https://news.yahoo.com/tank-battles-ukraine-putting-several-103702317.html)
 - Oct 04 - [House Dem Spots 1 Very Awkward Problem In GOP Plan To Make Trump Next Speaker](https://news.yahoo.com/house-dem-spots-1-very-083919238.html)
 - Oct 04 - [Jimmy Kimmel Fires Back At Trump’s Late-Night Insult With Creepy Reminder](https://www.yahoo.com/entertainment/jimmy-kimmel-fires-back-trump-072803488.html)
-- Oct 04 - [Foreign troops must leave Maldives, president-elect Muizzu says](https://news.yahoo.com/foreign-troops-must-leave-maldives-064944507.html)
 - Oct 04 - [Disturbing New Details Revealed in Charlotte Sena Kidnapping: Reports](https://news.yahoo.com/disturbing-details-revealed-charlotte-sena-023714760.html)
+- Oct 04 - ['People are threatening me, my wife and my children,' Sunol school board prez claims after banning flags](https://news.yahoo.com/people-threatening-wife-children-sunol-023345801.html)
 <!-- feed end -->
 
 ### Onstream
