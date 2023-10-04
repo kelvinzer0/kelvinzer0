@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - ["Jesus!": Judge explodes at Trump lawyer for trying to "waste time" during questioning](https://news.yahoo.com/jesus-judge-explodes-trump-lawyer-200910086.html)
+- Oct 04 - [Hunter Biden prosecutors move to drop old gun count after plea deal collapse](https://news.yahoo.com/hunter-biden-prosecutors-move-drop-223003413.html)
+- Oct 04 - [A Texas neighborhood became a target of the right over immigration. Locals are pushing back](https://news.yahoo.com/texas-neighborhood-became-target-over-222036668.html)
+- Oct 04 - [See man crash car into police station, walk out celebrating](https://news.yahoo.com/police-man-played-guns-n-201243534.html)
+- Oct 04 - [20 GOP senators led by Rick Scott vow to block bills not related to funding government](https://news.yahoo.com/20-gop-senators-led-rick-203858311.html)
 - Oct 04 - [A parent said her son received a 'zero' grade from his teacher for not bringing in school supplies, igniting a debate about who should pay](https://www.yahoo.com/entertainment/parent-said-her-son-received-193825425.html)
-- Oct 04 - [Trump bails out of fraud trial on 3rd day: He came, he scowled, he got gagged, and left](https://news.yahoo.com/trump-bails-fraud-trial-3rd-192819763.html)
-- Oct 04 - [Matt Gaetz's GOP colleagues are so annoyed with him that they forced him to stand on the Democratic side of the House floor](https://news.yahoo.com/matt-gaetzs-gop-colleagues-annoyed-192353105.html)
-- Oct 04 - [Misunderstanding after passenger passes gas on Las Vegas bus leads to shooting](https://news.yahoo.com/misunderstanding-passenger-passes-gas-las-192138984.html)
 <!-- feed end -->
 
 ### Onstream
