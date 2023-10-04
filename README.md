@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 04 - [Cuba blames US for rising migrant traffic thru Central America](https://news.yahoo.com/cuba-blames-us-rising-migrant-164453894.html)
 - Oct 04 - ["He's going to violate the gag order": Trump rages on Truth Social hours after judge's warning](https://news.yahoo.com/hes-going-violate-gag-order-154856884.html)
-- Oct 04 - [Ex-Alameda Engineer: It Was 'Business as Usual' Until FTX's Crypto Empire Implosion](https://finance.yahoo.com/video/ex-alameda-engineer-business-usual-153345302.html)
+- Oct 04 - [Youngkin administration says unknown number of eligible voters were wrongly removed from rolls](https://news.yahoo.com/youngkin-administration-says-unknown-number-152232928.html)
 - Oct 04 - [Oil: 'Demand destruction has begun', say JPMorgan analysts](https://finance.yahoo.com/news/oil-demand-destruction-has-begun-say-jpmorgan-analysts-151912451.html)
 - Oct 04 - [Lawmaker: Pelosi being evicted from office shows dysfunction of GOP](https://news.yahoo.com/lawmaker-pelosi-being-evicted-office-150350306.html)
-- Oct 04 - [Trump Finally Brings His Online Rage to the Courtroom](https://news.yahoo.com/trump-finally-brings-online-rage-150017870.html)
 <!-- feed end -->
 
 ### Onstream
