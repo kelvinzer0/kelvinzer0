@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Oct 04 - [Rep. Patrick McHenry of North Carolina is the leader of the House, at least for now](https://news.yahoo.com/rep-patrick-mchenry-north-carolina-011408616.html)
 - Oct 04 - [‘Completely Outrageous’: Biker Stomps Back Window of Car with Two Children In the Backseat, Flashes Gun in Woman’s Face When She Approaches Him](https://news.yahoo.com/completely-outrageous-biker-stomps-back-010000261.html)
 - Oct 04 - [McHenry orders Pelosi to vacate Capitol office in one of first acts as Speaker pro tem](https://news.yahoo.com/mchenry-orders-pelosi-vacate-capitol-005530582.html)
+- Oct 03 - [Trump Being Nominated for House Speaker Is Becoming a Real Possibility](https://news.yahoo.com/far-already-floating-trump-next-234018635.html)
 - Oct 03 - [‘Don’t fall for this scam like me’: Woman’s Facebook Marketplace PSA goes viral on TikTok](https://news.yahoo.com/don-t-fall-scam-woman-233701912.html)
-- Oct 03 - [Prostitution sting: Feds bust 8 illegal massage parlors across Carolinas](https://news.yahoo.com/prostitution-sting-feds-bust-8-212744141.html)
 <!-- feed end -->
 
 ### Onstream
