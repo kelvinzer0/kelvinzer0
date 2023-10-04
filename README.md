@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 04 - [They were arrested after a rally against DeSantis. Now, the 'Tampa 5' say protesting is on trial.](https://news.yahoo.com/desantis-florida-usf-arrest-rally-tampa-5-protest-trial-democratic-society-090039280.html)
 - Oct 04 - [House Dem Spots 1 Very Awkward Problem In GOP Plan To Make Trump Next Speaker](https://news.yahoo.com/house-dem-spots-1-very-083919238.html)
-- Oct 04 - [Japan keeps markets guessing on yen intervention](https://news.yahoo.com/japan-warns-may-step-prop-083045892.html)
-- Oct 04 - [Jimmy Kimmel Fires Back At Trump’s Late-Night Insult With Creepy Reminder](https://www.yahoo.com/entertainment/jimmy-kimmel-fires-back-trump-072803488.html)
-- Oct 04 - [3 Filipino fishermen die in South China Sea after their boat is hit by a passing commercial vessel](https://news.yahoo.com/3-filipino-fishermen-die-south-044406520.html)
+- Oct 04 - [Foreign troops must leave Maldives, president-elect Muizzu says](https://news.yahoo.com/foreign-troops-must-leave-maldives-064944507.html)
+- Oct 04 - [Florida boy, 11, shot two football teammates after practice over bag of chips: police](https://news.yahoo.com/florida-boy-11-shot-two-013753034.html)
 - Oct 04 - [Rep. Patrick McHenry of North Carolina is the leader of the House, at least for now](https://news.yahoo.com/rep-patrick-mchenry-north-carolina-011408616.html)
 <!-- feed end -->
 
