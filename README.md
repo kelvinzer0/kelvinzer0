@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Newt Gingrich Has 1 Damning Word For Republicans Who Axed McCarthy](https://www.yahoo.com/entertainment/newt-gingrich-1-damning-word-133448869.html)
-- Oct 04 - ['No one saw this coming': Kevin O’Leary says the persistence of remote work is now harming sectors other than just real estate — here’s why he’s predicting certain ‘banks are going to fail’](https://finance.yahoo.com/news/no-one-saw-coming-kevin-133000274.html)
-- Oct 04 - [Philadelphia motorcyclist arrested after kicking in woman’s car windshield during road rage assault, cops say](https://news.yahoo.com/philadelphia-motorcyclist-arrested-kicking-woman-122315882.html)
-- Oct 04 - [As police arrived at Sam Bankman-Fried's house, his mom was texting him insisting that he wear long pants to get arrested, instead of his usual cargo shorts](https://finance.yahoo.com/news/police-arrived-sam-bankman-frieds-114211080.html)
-- Oct 04 - [October 12 Is a Big Day for Social Security Recipients. Here's Why](https://www.fool.com/retirement/2023/10/04/october-12-is-a-big-day-for-social-security-recipi/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Oct 04 - ["He's going to violate the gag order": Trump rages on Truth Social hours after judge's warning](https://news.yahoo.com/hes-going-violate-gag-order-154856884.html)
+- Oct 04 - [Ex-Alameda Engineer: It Was 'Business as Usual' Until FTX's Crypto Empire Implosion](https://finance.yahoo.com/video/ex-alameda-engineer-business-usual-153345302.html)
+- Oct 04 - [Oil: 'Demand destruction has begun', say JPMorgan analysts](https://finance.yahoo.com/news/oil-demand-destruction-has-begun-say-jpmorgan-analysts-151912451.html)
+- Oct 04 - [Lawmaker: Pelosi being evicted from office shows dysfunction of GOP](https://news.yahoo.com/lawmaker-pelosi-being-evicted-office-150350306.html)
+- Oct 04 - [Trump Finally Brings His Online Rage to the Courtroom](https://news.yahoo.com/trump-finally-brings-online-rage-150017870.html)
 <!-- feed end -->
 
 ### Onstream
