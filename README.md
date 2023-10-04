@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 04 - ["Jesus!": Judge explodes at Trump lawyer for trying to "waste time" during questioning](https://news.yahoo.com/jesus-judge-explodes-trump-lawyer-200910086.html)
 - Oct 04 - [A parent said her son received a 'zero' grade from his teacher for not bringing in school supplies, igniting a debate about who should pay](https://www.yahoo.com/entertainment/parent-said-her-son-received-193825425.html)
 - Oct 04 - [Trump bails out of fraud trial on 3rd day: He came, he scowled, he got gagged, and left](https://news.yahoo.com/trump-bails-fraud-trial-3rd-192819763.html)
 - Oct 04 - [Matt Gaetz's GOP colleagues are so annoyed with him that they forced him to stand on the Democratic side of the House floor](https://news.yahoo.com/matt-gaetzs-gop-colleagues-annoyed-192353105.html)
-- Oct 04 - [Olympic Gymnast Suni Lee Opens Up About Being Diagnosed with Incurable Kidney Disease](https://www.yahoo.com/entertainment/olympic-gymnast-suni-lee-opens-190521257.html)
-- Oct 04 - [Oil: 'Demand destruction has begun', say JPMorgan analysts](https://finance.yahoo.com/news/oil-demand-destruction-has-begun-say-jpmorgan-analysts-151912451.html)
+- Oct 04 - [Misunderstanding after passenger passes gas on Las Vegas bus leads to shooting](https://news.yahoo.com/misunderstanding-passenger-passes-gas-las-192138984.html)
 <!-- feed end -->
 
 ### Onstream
