@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Rape victim featured in ad reemerges as focal point of abortion debate in Kentucky governor's race](https://news.yahoo.com/rape-victim-featured-ad-reemerges-191904542.html)
+- Oct 04 - [A parent said her son received a 'zero' grade from his teacher for not bringing in school supplies, igniting a debate about who should pay](https://www.yahoo.com/entertainment/parent-said-her-son-received-193825425.html)
+- Oct 04 - [Trump bails out of fraud trial on 3rd day: He came, he scowled, he got gagged, and left](https://news.yahoo.com/trump-bails-fraud-trial-3rd-192819763.html)
+- Oct 04 - [Matt Gaetz's GOP colleagues are so annoyed with him that they forced him to stand on the Democratic side of the House floor](https://news.yahoo.com/matt-gaetzs-gop-colleagues-annoyed-192353105.html)
 - Oct 04 - [Olympic Gymnast Suni Lee Opens Up About Being Diagnosed with Incurable Kidney Disease](https://www.yahoo.com/entertainment/olympic-gymnast-suni-lee-opens-190521257.html)
 - Oct 04 - [Oil: 'Demand destruction has begun', say JPMorgan analysts](https://finance.yahoo.com/news/oil-demand-destruction-has-begun-say-jpmorgan-analysts-151912451.html)
-- Oct 04 - [A Texas official faces criminal charge after accidentally shooting his grandson at Nebraska wedding](https://news.yahoo.com/texas-official-faces-criminal-charge-182439189.html)
-- Oct 04 - [Say goodbye to the COVID-19 vaccination card. The CDC has stopped printing them](https://news.yahoo.com/goodbye-covid-19-vaccination-card-182001470.html)
 <!-- feed end -->
 
 ### Onstream
