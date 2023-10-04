@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 04 - [Oil: 'Demand destruction has begun', say JPMorgan analysts](https://finance.yahoo.com/news/oil-demand-destruction-has-begun-say-jpmorgan-analysts-151912451.html)
+- Oct 04 - [A Texas official faces criminal charge after accidentally shooting his grandson at Nebraska wedding](https://news.yahoo.com/texas-official-faces-criminal-charge-182439189.html)
 - Oct 04 - [Bill Gates Recalls The Time Fellow Billionaire Warren Buffett Treated Him To Lunch At McDonald's And Paid Using Coupons — 'You Offered To Pay, Dug Into Your Pocket And Pulled Out ... Coupons!'](https://finance.yahoo.com/news/bill-gates-recalls-time-fellow-174029938.html)
 - Oct 04 - [Judge erupts at Trump's lawyers for wasting time with 'ridiculous' repetitive questions aimed at Trump Organization's ex-accountant](https://news.yahoo.com/judge-erupts-trumps-lawyers-wasting-171634032.html)
 - Oct 04 - [Top Wisconsin Senate Republican calls on Assembly to impeach state's top elections official](https://news.yahoo.com/top-wisconsin-senate-republican-calls-170636857.html)
-- Oct 04 - [McCarthy is out — Who could be the next House Speaker?](https://finance.yahoo.com/video/mccarthy-could-next-house-speaker-164436182.html)
-- Oct 04 - [Dad loses 100 pounds in 6 months after seeing photo of himself sleeping in church](https://www.yahoo.com/gma/dad-loses-100-pounds-6-162843095.html)
 <!-- feed end -->
 
 ### Onstream
