@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Philippines looking into ramming incident in South China Sea -president](https://news.yahoo.com/three-philippine-fishermen-dead-china-014940523.html)
+- Oct 04 - [Texas woman sentenced to 75 years in prison for 'sadistic torture' of another woman](https://news.yahoo.com/texas-woman-sentenced-75-years-020449554.html)
+- Oct 04 - [Philippines says Marshall islands-registered vessel may have been involved in sea collision](https://news.yahoo.com/three-philippine-fishermen-dead-china-014940523.html)
+- Oct 04 - [Florida boy, 11, shot two football teammates after practice over bag of chips: police](https://news.yahoo.com/florida-boy-11-shot-two-013753034.html)
 - Oct 04 - [Rep. Patrick McHenry of North Carolina is the leader of the House, at least for now](https://news.yahoo.com/rep-patrick-mchenry-north-carolina-011408616.html)
-- Oct 04 - [‘Completely Outrageous’: Biker Stomps Back Window of Car with Two Children In the Backseat, Flashes Gun in Woman’s Face When She Approaches Him](https://news.yahoo.com/completely-outrageous-biker-stomps-back-010000261.html)
 - Oct 04 - [McHenry orders Pelosi to vacate Capitol office in one of first acts as Speaker pro tem](https://news.yahoo.com/mchenry-orders-pelosi-vacate-capitol-005530582.html)
-- Oct 03 - [Trump Being Nominated for House Speaker Is Becoming a Real Possibility](https://news.yahoo.com/far-already-floating-trump-next-234018635.html)
 <!-- feed end -->
 
 ### Onstream
