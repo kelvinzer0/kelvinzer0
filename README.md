@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 04 - [Rep. Patrick McHenry of North Carolina is the leader of the House, at least for now](https://news.yahoo.com/rep-patrick-mchenry-north-carolina-011408616.html)
+- Oct 04 - [McHenry orders Pelosi to vacate Capitol office in one of first acts as Speaker pro tem](https://news.yahoo.com/mchenry-orders-pelosi-vacate-capitol-005530582.html)
+- Oct 03 - [Things to know about the resignation of a Kansas police chief who led a raid on a small newspaper](https://news.yahoo.com/things-know-resignation-kansas-police-234944221.html)
 - Oct 03 - [‘Don’t fall for this scam like me’: Woman’s Facebook Marketplace PSA goes viral on TikTok](https://news.yahoo.com/don-t-fall-scam-woman-233701912.html)
-- Oct 03 - [Deer with rat trap stuck to face can’t eat or drink. Then Colorado officers step in](https://news.yahoo.com/deer-rat-trap-stuck-face-221648340.html)
-- Oct 03 - [Republicans Are Freaking Out Immediately After Ousting Kevin McCarthy](https://news.yahoo.com/republicans-freaking-immediately-ousting-kevin-214136493.html)
-- Oct 03 - [Dad died after medics waited outside his home, lawsuit says. His son called 911 twice](https://news.yahoo.com/dad-died-medics-waited-outside-204542372.html)
-- Oct 03 - [17-year-old Ohio homecoming queen candidate dies after collapsing on high school football field](https://news.yahoo.com/17-old-ohio-homecoming-queen-202947006.html)
+- Oct 03 - [Prostitution sting: Feds bust 8 illegal massage parlors across Carolinas](https://news.yahoo.com/prostitution-sting-feds-bust-8-212744141.html)
 <!-- feed end -->
 
 ### Onstream
