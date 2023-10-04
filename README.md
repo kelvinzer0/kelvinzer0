@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 04 - [Newt Gingrich Has 1 Damning Word For Republicans Who Axed McCarthy](https://www.yahoo.com/entertainment/newt-gingrich-1-damning-word-133448869.html)
+- Oct 04 - ['No one saw this coming': Kevin O’Leary says the persistence of remote work is now harming sectors other than just real estate — here’s why he’s predicting certain ‘banks are going to fail’](https://finance.yahoo.com/news/no-one-saw-coming-kevin-133000274.html)
+- Oct 04 - [Philadelphia motorcyclist arrested after kicking in woman’s car windshield during road rage assault, cops say](https://news.yahoo.com/philadelphia-motorcyclist-arrested-kicking-woman-122315882.html)
 - Oct 04 - [As police arrived at Sam Bankman-Fried's house, his mom was texting him insisting that he wear long pants to get arrested, instead of his usual cargo shorts](https://finance.yahoo.com/news/police-arrived-sam-bankman-frieds-114211080.html)
-- Oct 04 - [Ukrainian special operation forces land in Crimea, battle with losses occurs – Defence Intelligence](https://news.yahoo.com/ukrainian-special-operation-forces-land-112458237.html)
-- Oct 04 - [House Dem Spots 1 Very Awkward Problem In GOP Plan To Make Trump Next Speaker](https://news.yahoo.com/house-dem-spots-1-very-083919238.html)
-- Oct 04 - [Jimmy Kimmel Fires Back At Trump’s Late-Night Insult With Creepy Reminder](https://www.yahoo.com/entertainment/jimmy-kimmel-fires-back-trump-072803488.html)
+- Oct 04 - [October 12 Is a Big Day for Social Security Recipients. Here's Why](https://www.fool.com/retirement/2023/10/04/october-12-is-a-big-day-for-social-security-recipi/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
