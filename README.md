@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 04 - [Newt Gingrich Has 1 Damning Word For Republicans Who Axed McCarthy](https://www.yahoo.com/entertainment/newt-gingrich-1-damning-word-133448869.html)
 - Oct 04 - [As police arrived at Sam Bankman-Fried's house, his mom was texting him insisting that he wear long pants to get arrested, instead of his usual cargo shorts](https://finance.yahoo.com/news/police-arrived-sam-bankman-frieds-114211080.html)
 - Oct 04 - [Ukrainian special operation forces land in Crimea, battle with losses occurs – Defence Intelligence](https://news.yahoo.com/ukrainian-special-operation-forces-land-112458237.html)
-- Oct 04 - [Ukrainians create invisibility cloak for protection from Russian thermal imagers and drones](https://news.yahoo.com/ukrainians-create-invisibility-cloak-protection-092205207.html)
 - Oct 04 - [House Dem Spots 1 Very Awkward Problem In GOP Plan To Make Trump Next Speaker](https://news.yahoo.com/house-dem-spots-1-very-083919238.html)
 - Oct 04 - [Jimmy Kimmel Fires Back At Trump’s Late-Night Insult With Creepy Reminder](https://www.yahoo.com/entertainment/jimmy-kimmel-fires-back-trump-072803488.html)
 <!-- feed end -->
