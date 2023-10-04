@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 03 - [‘Don’t fall for this scam like me’: Woman’s Facebook Marketplace PSA goes viral on TikTok](https://news.yahoo.com/don-t-fall-scam-woman-233701912.html)
 - Oct 03 - [Deer with rat trap stuck to face can’t eat or drink. Then Colorado officers step in](https://news.yahoo.com/deer-rat-trap-stuck-face-221648340.html)
-- Oct 03 - [Neighbors react after Craig Ross, Jr. charged with kidnapping 9-year-old girl](https://news.yahoo.com/neighbors-react-craig-ross-jr-194400175.html)
+- Oct 03 - [Republicans Are Freaking Out Immediately After Ousting Kevin McCarthy](https://news.yahoo.com/republicans-freaking-immediately-ousting-kevin-214136493.html)
 - Oct 03 - [Dad died after medics waited outside his home, lawsuit says. His son called 911 twice](https://news.yahoo.com/dad-died-medics-waited-outside-204542372.html)
 - Oct 03 - [17-year-old Ohio homecoming queen candidate dies after collapsing on high school football field](https://news.yahoo.com/17-old-ohio-homecoming-queen-202947006.html)
-- Oct 03 - [Jacksonville Sheriff Releases New Details Behind Brutal Beating](https://news.yahoo.com/jacksonville-sheriff-releases-details-behind-201647932.html)
 <!-- feed end -->
 
 ### Onstream
