@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 05 - [Mysterious injury of 16-year-old Iranian girl not wearing a headscarf in Tehran's Metro sparks anger](https://news.yahoo.com/mysterious-injury-16-old-iranian-113644806.html)
+- Oct 05 - [Philadelphia motorcyclist charged after allegedly kicking in windshield, waving gun at driver in violent video](https://news.yahoo.com/philadelphia-motorcyclist-charged-allegedly-kicking-110257757.html)
 - Oct 05 - [‘I was in complete shock’: New dating trend sees men asking for refunds when they don’t see a 'return on investment’ — how high costs of living have changed the rules of romance](https://finance.yahoo.com/news/complete-shock-dating-trend-sees-103000157.html)
 - Oct 05 - [Trump's lawyers seek to postpone his classified documents trial until after the 2024 election](https://news.yahoo.com/trumps-lawyers-seek-postpone-classified-103339095.html)
 - Oct 05 - [Texas family rejects millions for their property and does something remarkable with it instead: ‘I’m just very grateful’](https://news.yahoo.com/texas-family-rejects-millions-property-190000111.html)
-- Oct 05 - [Cobb teacher accused of sexual assault, having inappropriate relationship with student for months](https://news.yahoo.com/cobb-co-teacher-bonds-jail-065021961.html)
-- Oct 05 - [Ukraine hit Russia's most treasured air-defense system on its own soil, reports say](https://news.yahoo.com/ukraine-hit-russias-most-treasured-094903623.html)
 <!-- feed end -->
 
 ### Onstream
