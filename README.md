@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [Trump lawyers seek dismissal of DC federal election subversion case, arguing presidential immunity](https://news.yahoo.com/trump-lawyers-seek-dismissal-dc-181808758.html)
+- Oct 05 - [Gov. Gavin Newsom’s pick to replace Dianne Feinstein has a big hole in her resume | Opinion](https://news.yahoo.com/gov-gavin-newsom-pick-replace-190929755.html)
+- Oct 05 - [Democrat calls Trump's bluff on Mar-a-Lago valuation by urging Florida officials to hike his taxes](https://news.yahoo.com/democrat-calls-trumps-bluff-mar-190621016.html)
 - Oct 05 - [Further evidence points to footprints in New Mexico being the oldest sign of humans in Americas](https://news.yahoo.com/further-evidence-points-footprints-mexico-180333421.html)
-- Oct 05 - [Josh Duggar Was Denied A Request For A New Trial, But Now It Sounds Like His Legal Team Isn’t Giving Up](https://www.yahoo.com/entertainment/josh-duggar-denied-request-trial-180000224.html)
-- Oct 05 - [Russian strike kills 51 gathered for wake in east Ukraine](https://news.yahoo.com/russian-strike-kills-51-gathered-175601620.html)
 - Oct 05 - [Nursing schools are turning away thousands of applicants during a major nursing shortage. Here’s why](https://finance.yahoo.com/news/nursing-schools-turning-away-thousands-095224269.html)
+- Oct 05 - [Hand grenade fragments were found in the bodies of victims in Prigozhin's plane crash, Putin claims](https://news.yahoo.com/putin-says-hand-grenade-fragments-175246426.html)
 <!-- feed end -->
 
 ### Onstream
