@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [AI could 'unlock creativity' for the workforce, Drift CEO explains](https://finance.yahoo.com/video/ai-could-unlock-creativity-workforce-163608441.html)
+- Oct 05 - [Biden 'can't stop' funds directed for border wall](https://news.yahoo.com/biden-cant-stop-funds-directed-171257623.html)
+- Oct 05 - [U.S. F-16 fighter jet shoots down an armed Turkish drone over Syria](https://news.yahoo.com/u-f-16-fighter-jet-170700778.html)
+- Oct 05 - [Satellite images show glacial lake that burst its banks](https://news.yahoo.com/satellite-images-show-glacial-lake-170129387.html)
+- Oct 05 - [Ex-Trump lawyer warns Giuliani is in "a lot of trouble" after being left without any local attorneys](https://news.yahoo.com/ex-trump-lawyer-warns-giuliani-160924975.html)
 - Oct 05 - [Accountant's testimony sprawls into a 4th day at Trump business fraud trial in New York](https://news.yahoo.com/accountants-testimony-sprawls-4th-day-160159887.html)
-- Oct 05 - [Mexico rejects new border wall plan ahead of talks with U.S. officials](https://news.yahoo.com/mexico-rejects-border-wall-plan-154755023.html)
-- Oct 05 - [‘Bear attack bad’: final message of Canadian couple killed by grizzly](https://news.yahoo.com/bear-attack-bad-final-message-153652443.html)
-- Oct 05 - [Man, 77, meant to sell ill-gotten erectile drugs in sprawling Florida retirement community, feds say](https://news.yahoo.com/man-77-meant-sell-ill-152646072.html)
 <!-- feed end -->
 
 ### Onstream
