@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 05 - [New Jersey GOP Candidate Who Smeared Poop On Day Care Blames Obama](https://news.yahoo.com/jersey-gop-candidate-smeared-poop-004724765.html)
+- Oct 05 - [Fact Check: Did Canadian Government 'Admit' 74% of Triple-Vaccinated People Now Have 'VAIDS'?](https://news.yahoo.com/fact-check-did-canadian-government-000000172.html)
 - Oct 04 - [Motorcyclist arrested after smashing in back of woman's car in front of Philadelphia City Hall](https://news.yahoo.com/motorcyclist-arrested-smashing-back-womans-233842582.html)
 - Oct 04 - [An Elderly Couple Sold an African Mask for $157. Then It Sold for Millions—and Now They Want to Get Paid.](https://www.yahoo.com/lifestyle/elderly-couple-sold-african-mask-233000269.html)
 - Oct 04 - [County agrees to $12.2M settlement with man who was jailed for drunken driving, then lost his hands](https://news.yahoo.com/county-agrees-12-2m-settlement-232446612.html)
-- Oct 04 - [IRS releases new income tax brackets for 2023](https://news.yahoo.com/irs-releases-income-tax-brackets-232359416.html)
 <!-- feed end -->
 
 ### Onstream
