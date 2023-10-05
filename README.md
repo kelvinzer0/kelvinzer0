@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [A New Threat of War in Europe Has Putin’s Fingerprints All Over It](https://news.yahoo.com/threat-war-europe-putin-fingerprints-084645506.html)
+- Oct 05 - [Trump's lawyers seek to postpone his classified documents trial until after the 2024 election](https://news.yahoo.com/trumps-lawyers-seek-postpone-classified-103339095.html)
 - Oct 05 - [Former White House Aide Cassidy Hutchinson Says Trump Threw His Food ‘Once or Twice a Week’](https://news.yahoo.com/former-white-house-aide-cassidy-080356914.html)
+- Oct 05 - [India Authorities Arrest Lawmaker, Two Journalists](https://finance.yahoo.com/video/india-authorities-arrest-lawmaker-two-054057116.html)
 - Oct 05 - [ESPN's Pablo Torre explains how Harvard classmate Vivek Ramaswamy was 'That Guy' in school](https://news.yahoo.com/espns-pablo-torre-explains-harvard-034939749.html)
 - Oct 05 - [A Russian woman lived with an inch-long needle in her brain for 80 years, likely because her parents tried to kill her as an infant, doctors say](https://www.yahoo.com/lifestyle/russian-woman-lived-inch-long-030120392.html)
-- Oct 05 - [Photos capture the carnage left behind when a lake in Brazil became a hot 'soup' and left more than 100 dolphins dead](https://news.yahoo.com/photos-capture-carnage-left-behind-013250863.html)
 <!-- feed end -->
 
 ### Onstream
