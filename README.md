@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [Mysterious injury of 16-year-old Iranian girl not wearing a headscarf in Tehran's Metro sparks anger](https://news.yahoo.com/mysterious-injury-16-old-iranian-113644806.html)
+- Oct 05 - [Watch: Charging Bull Elk Comes Within Inches of Goring a Shocked Bowhunter](https://www.yahoo.com/lifestyle/watch-charging-bull-elk-comes-132529063.html)
+- Oct 05 - [Ex-Mueller prosecutor warns Trump’s NY trial stunt may backfire as he runs to Judge Cannon for delay](https://news.yahoo.com/ex-mueller-prosecutor-warns-trump-131802945.html)
+- Oct 05 - [A cop is under investigation for having an OnlyFans account after a guy she pulled over said he was a subscriber](https://news.yahoo.com/cop-under-investigation-having-onlyfans-125447988.html)
 - Oct 05 - [Philadelphia motorcyclist charged after allegedly kicking in windshield, waving gun at driver in violent video](https://news.yahoo.com/philadelphia-motorcyclist-charged-allegedly-kicking-110257757.html)
 - Oct 05 - [‘I was in complete shock’: New dating trend sees men asking for refunds when they don’t see a 'return on investment’ — how high costs of living have changed the rules of romance](https://finance.yahoo.com/news/complete-shock-dating-trend-sees-103000157.html)
-- Oct 05 - [Trump's lawyers seek to postpone his classified documents trial until after the 2024 election](https://news.yahoo.com/trumps-lawyers-seek-postpone-classified-103339095.html)
-- Oct 05 - [Texas family rejects millions for their property and does something remarkable with it instead: ‘I’m just very grateful’](https://news.yahoo.com/texas-family-rejects-millions-property-190000111.html)
 <!-- feed end -->
 
 ### Onstream
