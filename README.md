@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 05 - [Gunman who shot and wounded 10 riders on New York City subway to be sentenced](https://news.yahoo.com/gunman-shot-wounded-10-riders-041046235.html)
+- Oct 05 - [ESPN's Pablo Torre explains how Harvard classmate Vivek Ramaswamy was 'That Guy' in school](https://news.yahoo.com/espns-pablo-torre-explains-harvard-034939749.html)
+- Oct 05 - [A Russian woman lived with an inch-long needle in her brain for 80 years, likely because her parents tried to kill her as an infant, doctors say](https://www.yahoo.com/lifestyle/russian-woman-lived-inch-long-030120392.html)
 - Oct 05 - [Photos capture the carnage left behind when a lake in Brazil became a hot 'soup' and left more than 100 dolphins dead](https://news.yahoo.com/photos-capture-carnage-left-behind-013250863.html)
 - Oct 05 - [Fact Check: Did Canadian Government 'Admit' 74% of Triple-Vaccinated People Now Have 'VAIDS'?](https://news.yahoo.com/fact-check-did-canadian-government-000000172.html)
-- Oct 04 - [Motorcyclist arrested after smashing in back of woman's car in front of Philadelphia City Hall](https://news.yahoo.com/motorcyclist-arrested-smashing-back-womans-233842582.html)
-- Oct 04 - [An Elderly Couple Sold an African Mask for $157. Then It Sold for Millions—and Now They Want to Get Paid.](https://www.yahoo.com/lifestyle/elderly-couple-sold-african-mask-233000269.html)
-- Oct 04 - [County agrees to $12.2M settlement with man who was jailed for drunken driving, then lost his hands](https://news.yahoo.com/county-agrees-12-2m-settlement-232446612.html)
 <!-- feed end -->
 
 ### Onstream
