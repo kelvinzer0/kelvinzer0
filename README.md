@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Hunter Biden prosecutors move to drop old gun count after plea deal collapse](https://news.yahoo.com/hunter-biden-prosecutors-move-drop-223003413.html)
-- Oct 04 - [A Texas neighborhood became a target of the right over immigration. Locals are pushing back](https://news.yahoo.com/texas-neighborhood-became-target-over-222036668.html)
-- Oct 04 - [See man crash car into police station, walk out celebrating](https://news.yahoo.com/police-man-played-guns-n-201243534.html)
-- Oct 04 - [20 GOP senators led by Rick Scott vow to block bills not related to funding government](https://news.yahoo.com/20-gop-senators-led-rick-203858311.html)
-- Oct 04 - [A parent said her son received a 'zero' grade from his teacher for not bringing in school supplies, igniting a debate about who should pay](https://www.yahoo.com/entertainment/parent-said-her-son-received-193825425.html)
+- Oct 04 - [Arrest made after biker caught on video attacking Philadelphia mom in front of her children](https://news.yahoo.com/arrest-made-biker-caught-video-235053826.html)
+- Oct 04 - [Motorcyclist arrested after smashing in back of woman's car in front of Philadelphia City Hall](https://news.yahoo.com/motorcyclist-arrested-smashing-back-womans-233842582.html)
+- Oct 04 - [County agrees to $12.2M settlement with man who was jailed for drunken driving, then lost his hands](https://news.yahoo.com/county-agrees-12-2m-settlement-232446612.html)
+- Oct 04 - [Slain 5-Year-Old Had Been Kicked Out By Mom, Made To Camp Outside: Neighbors](https://news.yahoo.com/slain-5-old-had-kicked-225452004.html)
+- Oct 04 - [Biden administration waives 26 federal laws to allow border wall construction in South Texas](https://news.yahoo.com/biden-administration-waives-26-federal-224723792.html)
 <!-- feed end -->
 
 ### Onstream
