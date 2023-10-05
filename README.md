@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [‘Bear attack bad’: final message of Canadian couple killed by grizzly](https://news.yahoo.com/bear-attack-bad-final-message-153652443.html)
+- Oct 05 - [Elon Musk's X strips headlines from media shared on platform](https://finance.yahoo.com/video/elon-musks-x-strips-headlines-212843871.html)
+- Oct 05 - [‘Pregnant Twice In One Week’: Pittsburgh Mom Says She Was Pregnant with One Baby, Then Found Out Two More Were on the Way. Here’s How Superfetation Works](https://www.yahoo.com/lifestyle/pregnant-twice-one-week-pittsburgh-203119944.html)
+- Oct 05 - [See inside the $35 million 'Orchid' penthouse Sam Bankman-Fried lived in, with floor-to-ceiling ocean views and a rooftop pool](https://news.yahoo.com/see-inside-35-million-orchid-202917176.html)
+- Oct 05 - [Pregnant Model Maleesa Mooney's Cause of Death Revealed](https://www.yahoo.com/entertainment/pregnant-model-maleesa-mooneys-cause-200051192.html)
 - Oct 05 - ["I can't pay the lawyers": Mike Lindell's attorneys quit over "millions" in unpaid legal bills](https://news.yahoo.com/cant-pay-lawyers-mike-lindells-195638391.html)
-- Oct 05 - [Democrat calls Trump's bluff on Mar-a-Lago valuation by urging Florida officials to hike his taxes](https://news.yahoo.com/democrat-calls-trumps-bluff-mar-190621016.html)
-- Oct 05 - [Further evidence points to footprints in New Mexico being the oldest sign of humans in Americas](https://news.yahoo.com/further-evidence-points-footprints-mexico-180333421.html)
-- Oct 05 - [Nursing schools are turning away thousands of applicants during a major nursing shortage. Here’s why](https://finance.yahoo.com/news/nursing-schools-turning-away-thousands-095224269.html)
 <!-- feed end -->
 
 ### Onstream
