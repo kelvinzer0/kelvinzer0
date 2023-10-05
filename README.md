@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 05 - [‘I was in complete shock’: New dating trend sees men asking for refunds when they don’t see a 'return on investment’ — how high costs of living have changed the rules of romance](https://finance.yahoo.com/news/complete-shock-dating-trend-sees-103000157.html)
 - Oct 05 - [Trump's lawyers seek to postpone his classified documents trial until after the 2024 election](https://news.yahoo.com/trumps-lawyers-seek-postpone-classified-103339095.html)
-- Oct 05 - [Former White House Aide Cassidy Hutchinson Says Trump Threw His Food ‘Once or Twice a Week’](https://news.yahoo.com/former-white-house-aide-cassidy-080356914.html)
-- Oct 05 - [India Authorities Arrest Lawmaker, Two Journalists](https://finance.yahoo.com/video/india-authorities-arrest-lawmaker-two-054057116.html)
-- Oct 05 - [ESPN's Pablo Torre explains how Harvard classmate Vivek Ramaswamy was 'That Guy' in school](https://news.yahoo.com/espns-pablo-torre-explains-harvard-034939749.html)
-- Oct 05 - [A Russian woman lived with an inch-long needle in her brain for 80 years, likely because her parents tried to kill her as an infant, doctors say](https://www.yahoo.com/lifestyle/russian-woman-lived-inch-long-030120392.html)
+- Oct 05 - [Ukraine hit Russia's most treasured air-defense system on its own soil, reports say](https://news.yahoo.com/ukraine-hit-russias-most-treasured-094903623.html)
+- Oct 05 - [Cassidy Hutchinson Reveals A ‘Very Potent Fear’ Of Trump’s](https://www.yahoo.com/entertainment/cassidy-hutchinson-reveals-very-potent-094618869.html)
+- Oct 05 - [New York DoorDash driver charged after allegedly using food delivery to steal packages off porches](https://news.yahoo.com/york-doordash-driver-charged-allegedly-052824445.html)
 <!-- feed end -->
 
 ### Onstream
