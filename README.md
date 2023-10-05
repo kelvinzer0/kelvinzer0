@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 04 - [Arrest made after biker caught on video attacking Philadelphia mom in front of her children](https://news.yahoo.com/arrest-made-biker-caught-video-235053826.html)
+- Oct 05 - [New Jersey GOP Candidate Who Smeared Poop On Day Care Blames Obama](https://news.yahoo.com/jersey-gop-candidate-smeared-poop-004724765.html)
 - Oct 04 - [Motorcyclist arrested after smashing in back of woman's car in front of Philadelphia City Hall](https://news.yahoo.com/motorcyclist-arrested-smashing-back-womans-233842582.html)
+- Oct 04 - [An Elderly Couple Sold an African Mask for $157. Then It Sold for Millions—and Now They Want to Get Paid.](https://www.yahoo.com/lifestyle/elderly-couple-sold-african-mask-233000269.html)
 - Oct 04 - [County agrees to $12.2M settlement with man who was jailed for drunken driving, then lost his hands](https://news.yahoo.com/county-agrees-12-2m-settlement-232446612.html)
-- Oct 04 - [Slain 5-Year-Old Had Been Kicked Out By Mom, Made To Camp Outside: Neighbors](https://news.yahoo.com/slain-5-old-had-kicked-225452004.html)
-- Oct 04 - [Biden administration waives 26 federal laws to allow border wall construction in South Texas](https://news.yahoo.com/biden-administration-waives-26-federal-224723792.html)
+- Oct 04 - [IRS releases new income tax brackets for 2023](https://news.yahoo.com/irs-releases-income-tax-brackets-232359416.html)
 <!-- feed end -->
 
 ### Onstream
