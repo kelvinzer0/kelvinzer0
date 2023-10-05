@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [New Jersey GOP Candidate Who Smeared Poop On Day Care Blames Obama](https://news.yahoo.com/jersey-gop-candidate-smeared-poop-004724765.html)
+- Oct 05 - [Photos capture the carnage left behind when a lake in Brazil became a hot 'soup' and left more than 100 dolphins dead](https://news.yahoo.com/photos-capture-carnage-left-behind-013250863.html)
 - Oct 05 - [Fact Check: Did Canadian Government 'Admit' 74% of Triple-Vaccinated People Now Have 'VAIDS'?](https://news.yahoo.com/fact-check-did-canadian-government-000000172.html)
 - Oct 04 - [Motorcyclist arrested after smashing in back of woman's car in front of Philadelphia City Hall](https://news.yahoo.com/motorcyclist-arrested-smashing-back-womans-233842582.html)
 - Oct 04 - [An Elderly Couple Sold an African Mask for $157. Then It Sold for Millions—and Now They Want to Get Paid.](https://www.yahoo.com/lifestyle/elderly-couple-sold-african-mask-233000269.html)
