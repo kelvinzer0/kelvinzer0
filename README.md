@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [Watch: Charging Bull Elk Comes Within Inches of Goring a Shocked Bowhunter](https://www.yahoo.com/lifestyle/watch-charging-bull-elk-comes-132529063.html)
-- Oct 05 - [Ex-Mueller prosecutor warns Trump’s NY trial stunt may backfire as he runs to Judge Cannon for delay](https://news.yahoo.com/ex-mueller-prosecutor-warns-trump-131802945.html)
-- Oct 05 - [A cop is under investigation for having an OnlyFans account after a guy she pulled over said he was a subscriber](https://news.yahoo.com/cop-under-investigation-having-onlyfans-125447988.html)
-- Oct 05 - [Philadelphia motorcyclist charged after allegedly kicking in windshield, waving gun at driver in violent video](https://news.yahoo.com/philadelphia-motorcyclist-charged-allegedly-kicking-110257757.html)
-- Oct 05 - [‘I was in complete shock’: New dating trend sees men asking for refunds when they don’t see a 'return on investment’ — how high costs of living have changed the rules of romance](https://finance.yahoo.com/news/complete-shock-dating-trend-sees-103000157.html)
+- Oct 05 - [A look into the future of Republican leadership in the House](https://finance.yahoo.com/video/look-future-republican-leadership-house-153101790.html)
+- Oct 05 - [Progressive activist Cornel West leaves the Green Party and will run for president as an independent](https://news.yahoo.com/progressive-activist-cornel-west-leaves-152844856.html)
+- Oct 05 - [Man, 77, meant to sell ill-gotten erectile drugs in sprawling Florida retirement community, feds say](https://news.yahoo.com/man-77-meant-sell-ill-152646072.html)
+- Oct 05 - [Cobb teacher accused of sexual assault, having inappropriate relationship with student for months](https://news.yahoo.com/cobb-co-teacher-bonds-jail-065021961.html)
+- Oct 05 - [South Carolina Hunters Bag 11-Foot Gator with Deer Antler Stuck in Its Mouth](https://www.yahoo.com/lifestyle/south-carolina-hunters-bag-11-143000347.html)
 <!-- feed end -->
 
 ### Onstream
