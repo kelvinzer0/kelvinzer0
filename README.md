@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [Poland election turns Germany into punchbag, straining Western alliance](https://news.yahoo.com/poland-election-turns-germany-punchbag-070736139.html)
+- Oct 05 - [China condemns Philippine re-supply mission to disputed atoll](https://news.yahoo.com/china-condemns-philippine-supply-mission-082431499.html)
 - Oct 05 - [ESPN's Pablo Torre explains how Harvard classmate Vivek Ramaswamy was 'That Guy' in school](https://news.yahoo.com/espns-pablo-torre-explains-harvard-034939749.html)
 - Oct 05 - [A Russian woman lived with an inch-long needle in her brain for 80 years, likely because her parents tried to kill her as an infant, doctors say](https://www.yahoo.com/lifestyle/russian-woman-lived-inch-long-030120392.html)
 - Oct 05 - [Photos capture the carnage left behind when a lake in Brazil became a hot 'soup' and left more than 100 dolphins dead](https://news.yahoo.com/photos-capture-carnage-left-behind-013250863.html)
