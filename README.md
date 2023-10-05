@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [A look into the future of Republican leadership in the House](https://finance.yahoo.com/video/look-future-republican-leadership-house-153101790.html)
-- Oct 05 - [Progressive activist Cornel West leaves the Green Party and will run for president as an independent](https://news.yahoo.com/progressive-activist-cornel-west-leaves-152844856.html)
+- Oct 05 - [AI could 'unlock creativity' for the workforce, Drift CEO explains](https://finance.yahoo.com/video/ai-could-unlock-creativity-workforce-163608441.html)
+- Oct 05 - [Accountant's testimony sprawls into a 4th day at Trump business fraud trial in New York](https://news.yahoo.com/accountants-testimony-sprawls-4th-day-160159887.html)
+- Oct 05 - [Mexico rejects new border wall plan ahead of talks with U.S. officials](https://news.yahoo.com/mexico-rejects-border-wall-plan-154755023.html)
+- Oct 05 - [‘Bear attack bad’: final message of Canadian couple killed by grizzly](https://news.yahoo.com/bear-attack-bad-final-message-153652443.html)
 - Oct 05 - [Man, 77, meant to sell ill-gotten erectile drugs in sprawling Florida retirement community, feds say](https://news.yahoo.com/man-77-meant-sell-ill-152646072.html)
-- Oct 05 - [Cobb teacher accused of sexual assault, having inappropriate relationship with student for months](https://news.yahoo.com/cobb-co-teacher-bonds-jail-065021961.html)
-- Oct 05 - [South Carolina Hunters Bag 11-Foot Gator with Deer Antler Stuck in Its Mouth](https://www.yahoo.com/lifestyle/south-carolina-hunters-bag-11-143000347.html)
 <!-- feed end -->
 
 ### Onstream
