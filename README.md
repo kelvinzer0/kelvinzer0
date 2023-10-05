@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [Biden 'can't stop' funds directed for border wall](https://news.yahoo.com/biden-cant-stop-funds-directed-171257623.html)
-- Oct 05 - [U.S. F-16 fighter jet shoots down an armed Turkish drone over Syria](https://news.yahoo.com/u-f-16-fighter-jet-170700778.html)
-- Oct 05 - [Satellite images show glacial lake that burst its banks](https://news.yahoo.com/satellite-images-show-glacial-lake-170129387.html)
-- Oct 05 - [Ex-Trump lawyer warns Giuliani is in "a lot of trouble" after being left without any local attorneys](https://news.yahoo.com/ex-trump-lawyer-warns-giuliani-160924975.html)
-- Oct 05 - [Accountant's testimony sprawls into a 4th day at Trump business fraud trial in New York](https://news.yahoo.com/accountants-testimony-sprawls-4th-day-160159887.html)
+- Oct 05 - [Trump lawyers seek dismissal of DC federal election subversion case, arguing presidential immunity](https://news.yahoo.com/trump-lawyers-seek-dismissal-dc-181808758.html)
+- Oct 05 - [Further evidence points to footprints in New Mexico being the oldest sign of humans in Americas](https://news.yahoo.com/further-evidence-points-footprints-mexico-180333421.html)
+- Oct 05 - [Josh Duggar Was Denied A Request For A New Trial, But Now It Sounds Like His Legal Team Isn’t Giving Up](https://www.yahoo.com/entertainment/josh-duggar-denied-request-trial-180000224.html)
+- Oct 05 - [Russian strike kills 51 gathered for wake in east Ukraine](https://news.yahoo.com/russian-strike-kills-51-gathered-175601620.html)
+- Oct 05 - [Nursing schools are turning away thousands of applicants during a major nursing shortage. Here’s why](https://finance.yahoo.com/news/nursing-schools-turning-away-thousands-095224269.html)
 <!-- feed end -->
 
 ### Onstream
