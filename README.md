@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 05 - [India Authorities Arrest Lawmaker, Two Journalists](https://finance.yahoo.com/video/india-authorities-arrest-lawmaker-two-054057116.html)
 - Oct 05 - [ESPN's Pablo Torre explains how Harvard classmate Vivek Ramaswamy was 'That Guy' in school](https://news.yahoo.com/espns-pablo-torre-explains-harvard-034939749.html)
 - Oct 05 - [A Russian woman lived with an inch-long needle in her brain for 80 years, likely because her parents tried to kill her as an infant, doctors say](https://www.yahoo.com/lifestyle/russian-woman-lived-inch-long-030120392.html)
 - Oct 05 - [Photos capture the carnage left behind when a lake in Brazil became a hot 'soup' and left more than 100 dolphins dead](https://news.yahoo.com/photos-capture-carnage-left-behind-013250863.html)
 - Oct 05 - [Fact Check: Did Canadian Government 'Admit' 74% of Triple-Vaccinated People Now Have 'VAIDS'?](https://news.yahoo.com/fact-check-did-canadian-government-000000172.html)
+- Oct 04 - [Progressive DA says he will investigate if Philly looters are ‘law-abiding people’ before prosecuting them](https://news.yahoo.com/progressive-da-says-investigate-philly-233911525.html)
 <!-- feed end -->
 
 ### Onstream
