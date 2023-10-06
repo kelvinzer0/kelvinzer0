@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [UAW president says GM has agreed to put battery plant workers under union contract](https://www.autoblog.com/2023/10/06/uaw-president-says-gm-has-agreed-to-put-battery-plant-workers-under-union-contract/)
+- Oct 06 - [Nearly 1,000 migrating songbirds perish after crashing into windows at Chicago exhibition hall](https://news.yahoo.com/nearly-1-000-migrating-songbirds-194123876.html)
+- Oct 06 - [Trump lawyers file to block dissolution of companies — argue judge "does not comprehend" own ruling](https://news.yahoo.com/trump-lawyers-file-block-dissolution-191254276.html)
+- Oct 06 - [Alissa McCommon, teacher accused of raping 12-year-old student is pregnant, documents reveal](https://news.yahoo.com/alissa-mccommon-teacher-accused-raping-191044852.html)
+- Oct 06 - [Ukraine is using $100,000 octocopter drones to destroy Russian tanks and artillery worth millions, even in the dead of night, operator says](https://news.yahoo.com/ukraine-using-100-000-octocopter-183204040.html)
 - Oct 06 - ["Already an embarrassment": Legal experts shred Judge Aileen Cannon for granting Trump "delay"](https://news.yahoo.com/already-embarrassment-legal-experts-shred-180238940.html)
-- Oct 06 - [North Dakota Fossil Site Reveals When Asteroid Killed Dinosaurs](https://www.yahoo.com/lifestyle/north-dakota-fossil-reveals-asteroid-180000139.html)
-- Oct 06 - [Georgia Judge Absolutely Shreds Trump Co-Defendant’s Latest Hail Mary](https://news.yahoo.com/georgia-judge-absolutely-shreds-trump-173001033.html)
-- Oct 06 - [Louisiana Republicans are in court to fight efforts to establish new Black congressional district](https://news.yahoo.com/louisiana-republicans-court-fight-efforts-172551645.html)
 <!-- feed end -->
 
 ### Onstream
