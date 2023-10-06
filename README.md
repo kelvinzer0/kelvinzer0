@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [Stocks flip to big gains after jobs report surprise: Stock market news today](https://finance.yahoo.com/news/stocks-flip-to-big-gains-after-jobs-report-surprise-stock-market-news-today-160647856.html)
+- Oct 06 - [Pete Buttigieg Has The Perfect Response To Trump's Comments About Wounded Vets](https://news.yahoo.com/pete-buttigieg-perfect-response-trumps-152457086.html)
 - Oct 06 - [‘Wait Until You Get a Whiff of Jail!’: Donald Trump’s Son Eric Trump Whines About the Smell of Courthouse Amid Fraud Case Trial](https://news.yahoo.com/wait-until-whiff-jail-donald-140000339.html)
-- Oct 06 - [Stocks tumble at the open after jobs report blows past expectations: Stock market news today](https://finance.yahoo.com/news/stocks-tumble-at-the-open-after-jobs-report-blows-past-expectations-stock-market-news-today-124619401.html)
 - Oct 06 - [“Tip of the iceberg”: Experts sound the alarm after Trump blabbed nuclear secrets at Mar-a-Lago](https://news.yahoo.com/tip-iceberg-experts-sound-alarm-132635540.html)
 - Oct 06 - [San Francisco says tiny sleeping 'pods,' which cost $700 a month and became a big hit with tech workers, are not up to code](https://news.yahoo.com/san-francisco-says-tiny-sleeping-131352788.html)
-- Oct 06 - [Did DoorDash Driver Steal Package From Homeowner’s Porch?](https://news.yahoo.com/did-doordash-driver-steal-package-124556811.html)
 <!-- feed end -->
 
 ### Onstream
