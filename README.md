@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [North Dakota Fossil Site Reveals When Asteroid Killed Dinosaurs](https://www.yahoo.com/lifestyle/north-dakota-fossil-reveals-asteroid-180000139.html)
+- Oct 06 - [Judge Aileen Cannon Hands Trump a Win in Delaying Mar-a-Lago Docs Case](https://news.yahoo.com/judge-aileen-cannon-hands-trump-175149183.html)
+- Oct 06 - [Louisiana Republicans are in court to fight efforts to establish new Black congressional district](https://news.yahoo.com/louisiana-republicans-court-fight-efforts-172551645.html)
+- Oct 06 - [Police say they arrested livestreamers who broadcast a sex worker they hired](https://news.yahoo.com/police-arrested-livestreamers-broadcast-sex-170451358.html)
 - Oct 06 - [A California Airbnb host didn't register his home properly, and now can't get rid of a guest who overstayed 541 days and counting](https://finance.yahoo.com/news/california-airbnb-host-didnt-register-192608036.html)
-- Oct 06 - [Stocks flip to big gains after jobs report surprise: Stock market news today](https://finance.yahoo.com/news/stocks-flip-to-big-gains-after-jobs-report-surprise-stock-market-news-today-160647856.html)
-- Oct 06 - [Pete Buttigieg Has The Perfect Response To Trump's Comments About Wounded Vets](https://news.yahoo.com/pete-buttigieg-perfect-response-trumps-152457086.html)
-- Oct 06 - [‘Wait Until You Get a Whiff of Jail!’: Donald Trump’s Son Eric Trump Whines About the Smell of Courthouse Amid Fraud Case Trial](https://news.yahoo.com/wait-until-whiff-jail-donald-140000339.html)
-- Oct 06 - [“Tip of the iceberg”: Experts sound the alarm after Trump blabbed nuclear secrets at Mar-a-Lago](https://news.yahoo.com/tip-iceberg-experts-sound-alarm-132635540.html)
 <!-- feed end -->
 
 ### Onstream
