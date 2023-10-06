@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [Teen Speeding In Daddy’s Mustang Cusses Out Arizona Deputy](https://news.yahoo.com/teen-speeding-daddy-mustang-cusses-120000299.html)
 - Oct 06 - [This young couple rushed to buy a $730K home — but now they can't sleep at night. Here's a 5-point checklist to find out if you're actually ready to buy a house](https://finance.yahoo.com/news/young-couple-rushed-buy-730k-113000742.html)
-- Oct 06 - [A CEO who replaced 90% of his support staff with an AI chatbot says copy-paste jobs are gone](https://news.yahoo.com/ceo-replaced-90-support-staff-051117269.html)
-- Oct 06 - [Missouri teacher resigned after discovery of OnlyFans account, turned full focus on porn: 'I'm that teacher'](https://news.yahoo.com/missouri-teacher-resigned-discovery-onlyfans-040439638.html)
-- Oct 06 - [Cops Blow a Hole Through Vivek Ramaswamy’s Iowa Fender Bender Story](https://news.yahoo.com/cops-blow-hole-vivek-ramaswamy-032521944.html)
-- Oct 06 - [Tesla cuts US prices of Model 3, Y in push to meet delivery goal](https://news.yahoo.com/tesla-slashes-prices-model-3-024004640.html)
+- Oct 06 - [Mary Trump Floats 2 Reasons Why Trump Ditched His New York Trial](https://news.yahoo.com/mary-trump-floats-2-reasons-102404555.html)
+- Oct 06 - [Florida man fresh out of jail accused in carjacking at gas station](https://news.yahoo.com/florida-man-fresh-jail-accused-101526606.html)
+- Oct 06 - [Watergate Prosecutor Predicts Donald Trump Will Be ‘Destroyed' In Latest Legal Move](https://news.yahoo.com/watergate-prosecutor-predicts-donald-trump-082038189.html)
 <!-- feed end -->
 
 ### Onstream
