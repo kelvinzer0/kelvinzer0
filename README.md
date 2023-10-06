@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [Trump drops $500 million lawsuit against former attorney Michael Cohen](https://www.yahoo.com/gma/trump-drops-500-million-lawsuit-014600223.html)
 - Oct 06 - [Ocasio-Cortez on border wall announcement: President must ‘take responsibility,’ ‘reverse course’](https://news.yahoo.com/ocasio-cortez-border-wall-announcement-003557819.html)
 - Oct 05 - [Ford delivers tough-luck news for UAW workers](https://www.thestreet.com/automotive/ford-delivers-tough-luck-news-for-uaw-workers?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 05 - [Ex-White House Aide Claims Trump Is Afraid of Being Poisoned](https://news.yahoo.com/ex-white-house-aide-claims-223202862.html)
 - Oct 05 - [Wildlife photographers' funniest photos showcased in global competition: See finalists](https://news.yahoo.com/wildlife-photographers-funniest-photos-showcased-222517311.html)
 - Oct 05 - [A California Airbnb host didn't register his home properly, and now can't get rid of a guest who overstayed 541 days and counting](https://finance.yahoo.com/news/california-airbnb-host-didnt-register-192608036.html)
 <!-- feed end -->
