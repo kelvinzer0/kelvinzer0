@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Alaska fishermen will be allowed to harvest lucrative red king crab in the Bering Sea](https://news.yahoo.com/alaska-fishermen-allowed-harvest-lucrative-203452435.html)
+- Oct 06 - [Kevin McCarthy strolled out of his former office just to insist to reporters that he's not resigning and will seek re-election in 2024: 'Not that I wanted to talk to you'](https://news.yahoo.com/kevin-mccarthy-strolled-former-office-211827858.html)
 - Oct 06 - [The US Navy turned the tables on Iran, sending drones that look like speedboats to spy on its warships and troublesome gunboats](https://news.yahoo.com/us-navy-turned-tables-iran-195239267.html)
 - Oct 06 - [Nearly 1,000 migrating songbirds perish after crashing into windows at Chicago exhibition hall](https://news.yahoo.com/nearly-1-000-migrating-songbirds-194123876.html)
-- Oct 06 - [Kentucky GOP Candidate Responds to Rape Survivor Who Called Him Out. It Didn’t Go Well.](https://news.yahoo.com/kentucky-gop-candidate-responds-rape-191500007.html)
-- Oct 06 - [Trump lawyers file to block dissolution of companies — argue judge "does not comprehend" own ruling](https://news.yahoo.com/trump-lawyers-file-block-dissolution-191254276.html)
+- Oct 06 - [An Iowa Man Published Body Camera Footage From His Arrest. The Cops Are Suing Him for Defamation.](https://news.yahoo.com/iowa-man-published-body-camera-194035235.html)
+- Oct 06 - [A Florida man who shot down a law enforcement drone faces 10 years in prison](https://news.yahoo.com/florida-man-shot-down-law-192923041.html)
 <!-- feed end -->
 
 ### Onstream
