@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Tesla slashes prices of Model 3, Models Y vehicles in US](https://news.yahoo.com/tesla-slashes-prices-model-3-024004640.html)
+- Oct 06 - [Tesla cuts US prices of Model 3, Model Y cars](https://news.yahoo.com/tesla-slashes-prices-model-3-024004640.html)
 - Oct 06 - [IRS places lien on Rudy Giuliani's $4.5M Palm Beach penthouse saying he failed to pay more than a half a million dollars in property taxes](https://news.yahoo.com/irs-places-lien-rudy-giulianis-021456503.html)
 - Oct 06 - [Trump drops $500 million lawsuit against former attorney Michael Cohen](https://www.yahoo.com/gma/trump-drops-500-million-lawsuit-014600223.html)
 - Oct 06 - [Ocasio-Cortez on border wall announcement: President must ‘take responsibility,’ ‘reverse course’](https://news.yahoo.com/ocasio-cortez-border-wall-announcement-003557819.html)
