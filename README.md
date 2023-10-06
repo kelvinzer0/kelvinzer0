@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [Stocks tumble at the open after jobs report blows past expectations: Stock market news today](https://finance.yahoo.com/news/stocks-tumble-at-the-open-after-jobs-report-blows-past-expectations-stock-market-news-today-124619401.html)
+- Oct 06 - [Armed Biker Who Attacked A Philly Woman Was Turned In By His Boss: Police](https://news.yahoo.com/armed-biker-attacked-philly-woman-123500803.html)
 - Oct 06 - [Teen Speeding In Daddy’s Mustang Cusses Out Arizona Deputy](https://news.yahoo.com/teen-speeding-daddy-mustang-cusses-120000299.html)
-- Oct 06 - [This young couple rushed to buy a $730K home — but now they can't sleep at night. Here's a 5-point checklist to find out if you're actually ready to buy a house](https://finance.yahoo.com/news/young-couple-rushed-buy-730k-113000742.html)
-- Oct 06 - [Mary Trump Floats 2 Reasons Why Trump Ditched His New York Trial](https://news.yahoo.com/mary-trump-floats-2-reasons-102404555.html)
-- Oct 06 - [Florida man fresh out of jail accused in carjacking at gas station](https://news.yahoo.com/florida-man-fresh-jail-accused-101526606.html)
-- Oct 06 - [Watergate Prosecutor Predicts Donald Trump Will Be ‘Destroyed' In Latest Legal Move](https://news.yahoo.com/watergate-prosecutor-predicts-donald-trump-082038189.html)
+- Oct 06 - [This Midwest hub is the first major US city that has managed to tame inflation and more regions are starting to catch on — here’s how and where it’s happening](https://finance.yahoo.com/news/midwest-hub-first-major-us-120000095.html)
+- Oct 06 - ['Difficult to accept': Prominent Russian hardliner admits its navy couldn't defend itself from Ukraine](https://news.yahoo.com/difficult-accept-prominent-russian-hardliner-115215322.html)
 <!-- feed end -->
 
 ### Onstream
