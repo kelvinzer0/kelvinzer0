@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Philippines protests after a Chinese coast guard ship nearly collides with a Philippine vessel](https://news.yahoo.com/philippines-protests-chinese-coast-guard-061947466.html)
 - Oct 06 - [A CEO who replaced 90% of his support staff with an AI chatbot says copy-paste jobs are gone](https://news.yahoo.com/ceo-replaced-90-support-staff-051117269.html)
 - Oct 06 - [Missouri teacher resigned after discovery of OnlyFans account, turned full focus on porn: 'I'm that teacher'](https://news.yahoo.com/missouri-teacher-resigned-discovery-onlyfans-040439638.html)
-- Oct 06 - [Cops Blow a Hole Through Vivek Ramaswamy’s Iowa Fender Bender Story](https://news.yahoo.com/cops-blow-hole-vivek-ramaswamy-032521944.html)
 - Oct 06 - [Tesla cuts US prices of Model 3, Model Y cars](https://news.yahoo.com/tesla-slashes-prices-model-3-024004640.html)
+- Oct 06 - [IRS places lien on Rudy Giuliani's $4.5M Palm Beach penthouse saying he failed to pay more than a half a million dollars in property taxes](https://news.yahoo.com/irs-places-lien-rudy-giulianis-021456503.html)
+- Oct 06 - [Ocasio-Cortez on border wall announcement: President must ‘take responsibility,’ ‘reverse course’](https://news.yahoo.com/ocasio-cortez-border-wall-announcement-003557819.html)
 <!-- feed end -->
 
 ### Onstream
