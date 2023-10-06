@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [‘Wait Until You Get a Whiff of Jail!’: Donald Trump’s Son Eric Trump Whines About the Smell of Courthouse Amid Fraud Case Trial](https://news.yahoo.com/wait-until-whiff-jail-donald-140000339.html)
 - Oct 06 - [Stocks tumble at the open after jobs report blows past expectations: Stock market news today](https://finance.yahoo.com/news/stocks-tumble-at-the-open-after-jobs-report-blows-past-expectations-stock-market-news-today-124619401.html)
-- Oct 06 - [Armed Biker Who Attacked A Philly Woman Was Turned In By His Boss: Police](https://news.yahoo.com/armed-biker-attacked-philly-woman-123500803.html)
-- Oct 06 - [Teen Speeding In Daddy’s Mustang Cusses Out Arizona Deputy](https://news.yahoo.com/teen-speeding-daddy-mustang-cusses-120000299.html)
-- Oct 06 - [This Midwest hub is the first major US city that has managed to tame inflation and more regions are starting to catch on — here’s how and where it’s happening](https://finance.yahoo.com/news/midwest-hub-first-major-us-120000095.html)
-- Oct 06 - ['Difficult to accept': Prominent Russian hardliner admits its navy couldn't defend itself from Ukraine](https://news.yahoo.com/difficult-accept-prominent-russian-hardliner-115215322.html)
+- Oct 06 - [“Tip of the iceberg”: Experts sound the alarm after Trump blabbed nuclear secrets at Mar-a-Lago](https://news.yahoo.com/tip-iceberg-experts-sound-alarm-132635540.html)
+- Oct 06 - [San Francisco says tiny sleeping 'pods,' which cost $700 a month and became a big hit with tech workers, are not up to code](https://news.yahoo.com/san-francisco-says-tiny-sleeping-131352788.html)
+- Oct 06 - [Did DoorDash Driver Steal Package From Homeowner’s Porch?](https://news.yahoo.com/did-doordash-driver-steal-package-124556811.html)
 <!-- feed end -->
 
 ### Onstream
