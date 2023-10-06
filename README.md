@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [Alaska fishermen will be allowed to harvest lucrative red king crab in the Bering Sea](https://news.yahoo.com/alaska-fishermen-allowed-harvest-lucrative-203452435.html)
+- Oct 06 - [The US Navy turned the tables on Iran, sending drones that look like speedboats to spy on its warships and troublesome gunboats](https://news.yahoo.com/us-navy-turned-tables-iran-195239267.html)
 - Oct 06 - [Nearly 1,000 migrating songbirds perish after crashing into windows at Chicago exhibition hall](https://news.yahoo.com/nearly-1-000-migrating-songbirds-194123876.html)
+- Oct 06 - [Kentucky GOP Candidate Responds to Rape Survivor Who Called Him Out. It Didn’t Go Well.](https://news.yahoo.com/kentucky-gop-candidate-responds-rape-191500007.html)
 - Oct 06 - [Trump lawyers file to block dissolution of companies — argue judge "does not comprehend" own ruling](https://news.yahoo.com/trump-lawyers-file-block-dissolution-191254276.html)
-- Oct 06 - [Alissa McCommon, teacher accused of raping 12-year-old student is pregnant, documents reveal](https://news.yahoo.com/alissa-mccommon-teacher-accused-raping-191044852.html)
-- Oct 06 - [Ukraine is using $100,000 octocopter drones to destroy Russian tanks and artillery worth millions, even in the dead of night, operator says](https://news.yahoo.com/ukraine-using-100-000-octocopter-183204040.html)
-- Oct 06 - ["Already an embarrassment": Legal experts shred Judge Aileen Cannon for granting Trump "delay"](https://news.yahoo.com/already-embarrassment-legal-experts-shred-180238940.html)
 <!-- feed end -->
 
 ### Onstream
