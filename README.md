@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Building in Gaza Destroyed in Israeli Airstrike Following Hamas Attack](https://news.yahoo.com/building-gaza-destroyed-israeli-airstrike-183946387.html)
+- Oct 07 - [Migrants in Europe celebrate Hamas assault on Israel](https://news.yahoo.com/migrants-europe-celebrate-hamas-assault-194005818.html)
+- Oct 07 - [Naked Israeli woman paraded by jeering Hamas fighters](https://news.yahoo.com/naked-israeli-woman-paraded-jeering-191753028.html)
+- Oct 07 - ['You don't speak for Canada': Internet reacts as Trudeau says 'we stand with Israel'](https://news.yahoo.com/canada-justin-trudeau-israel-palestine-hamas-attack-reax-183341824.html)
+- Oct 07 - [An increasingly threatened Iran saw  Netanyahu distracted and pounced](https://news.yahoo.com/increasingly-threatened-iran-saw-netanyahu-180351749.html)
 - Oct 07 - [‘I Could Feel Burning’: Black Woman Claims White Woman Bit Her, Yank Out ‘Clumps’ of Her Hair on Subway and Police Officer Stood By, Let It Happen](https://news.yahoo.com/could-feel-burning-black-woman-180000768.html)
-- Oct 07 - [Retired dean married to Pulitzer Prize-winning writer found shot to death on Vermont trail](https://www.yahoo.com/gma/suspect-large-woman-found-dead-222831876.html)
-- Oct 07 - [Melania Trump’s Renegotiated Prenup May Have Proved a Long-Standing Conspiracy About Her & Donald](https://www.yahoo.com/entertainment/melania-trump-renegotiated-prenup-may-162400817.html)
-- Oct 07 - [$361 million Mega Millions jackpot won by single ticketholder](https://news.yahoo.com/361-million-mega-millions-jackpot-154121582.html)
 <!-- feed end -->
 
 ### Onstream
