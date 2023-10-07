@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 07 - [Brazil to call emergency meeting of UN Security Council over attack on Israel](https://news.yahoo.com/brazil-call-emergency-meeting-un-144021882.html)
-- Oct 07 - [Israeli commander ‘among at least 50 people captured by Hamas’](https://news.yahoo.com/israeli-commander-among-least-50-141729396.html)
-- Oct 07 - [Murdaugh Crime Scene Reconstruction Expert Recounts Moment He Knew Alex Was Guilty: 'Not a Man'](https://www.yahoo.com/entertainment/murdaugh-crime-scene-reconstruction-expert-135536361.html)
-- Oct 07 - [Fox Host Drops Receipts On GOP Over Claim Of Hillary Clinton's 'Threat To Democracy'](https://news.yahoo.com/fox-host-drops-receipts-gop-130313658.html)
 - Oct 07 - [Kroger has an intrusive plan to stop theft (Walmart and Target might follow)](https://www.thestreet.com/retailers/kroger-has-an-intrusive-plan-to-stop-theft-walmart-and-target-might-follow?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 07 - ['Did Mark Cuban's wallet just get drained?': Billionaire loses nearly $1M through crypto scam. What happened and how can you avoid Cuban's costly mistake?](https://finance.yahoo.com/news/did-mark-cubans-wallet-just-123000799.html)
+- Oct 07 - [The ‘hot girls have stomach issues’ social media trend makes sense—Gen Z women experience more anxiety than any other demographic](https://finance.yahoo.com/news/hot-girls-stomach-issues-social-120000702.html)
+- Oct 07 - [Former teacher of Kyiv university suspected of high treason posts photo of herself with Russian tricolour on background](https://news.yahoo.com/former-teacher-kyiv-university-suspected-100115564.html)
 <!-- feed end -->
 
 ### Onstream
