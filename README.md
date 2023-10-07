@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Putin has bet Russia's entire economy on war. An expert says it's his best shot at maintaining control of the country.](https://news.yahoo.com/putin-bet-russias-entire-economy-041621536.html)
 - Oct 07 - [Witnesses to FBI hunt for Civil War gold describe heavily loaded armored truck, signs of a night dig](https://news.yahoo.com/witnesses-fbi-hunt-civil-war-040943542.html)
 - Oct 07 - [19-year-old planned multiple mass shootings, did ‘recon’ at Marjory Stoneman Douglas High, officials say](https://news.yahoo.com/19-old-planned-multiple-mass-030100419.html)
 - Oct 06 - [Fact Check: Ukraine's First Lady Goes on $1.1M Cartier Spending Spree During September 2023 NYC Trip?](https://news.yahoo.com/fact-check-ukraines-first-lady-234400294.html)
 - Oct 06 - [Katy Perry’s Real Estate Trial Takes Shocking, Unexpected Turn](https://www.yahoo.com/entertainment/katy-perry-real-estate-trial-234301981.html)
+- Oct 06 - [Fact Check: Bud Light Appointed Colin Kaepernick as Its New Ambassador to Boost Sales?](https://finance.yahoo.com/news/fact-check-bud-light-appointed-234200515.html)
 <!-- feed end -->
 
 ### Onstream
