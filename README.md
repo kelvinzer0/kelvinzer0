@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Brazil to call emergency meeting of UN Security Council over attack on Israel](https://news.yahoo.com/brazil-call-emergency-meeting-un-144021882.html)
+- Oct 07 - [Melania Trump’s Renegotiated Prenup May Have Proved a Long-Standing Conspiracy About Her & Donald](https://www.yahoo.com/entertainment/melania-trump-renegotiated-prenup-may-162400817.html)
+- Oct 07 - [Woman Finds Enormous Pregnant Spider in Her Office: 'Jumped Out' and 'Ran Down My Forearm'](https://www.yahoo.com/entertainment/woman-finds-enormous-pregnant-spider-162317261.html)
+- Oct 07 - [Brazil aims to prevent escalation of Hamas-Israel conflict, Lula says](https://news.yahoo.com/brazil-call-emergency-meeting-un-144021882.html)
 - Oct 07 - [Kroger has an intrusive plan to stop theft (Walmart and Target might follow)](https://www.thestreet.com/retailers/kroger-has-an-intrusive-plan-to-stop-theft-walmart-and-target-might-follow?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 07 - ['Did Mark Cuban's wallet just get drained?': Billionaire loses nearly $1M through crypto scam. What happened and how can you avoid Cuban's costly mistake?](https://finance.yahoo.com/news/did-mark-cubans-wallet-just-123000799.html)
-- Oct 07 - [The ‘hot girls have stomach issues’ social media trend makes sense—Gen Z women experience more anxiety than any other demographic](https://finance.yahoo.com/news/hot-girls-stomach-issues-social-120000702.html)
-- Oct 07 - [Former teacher of Kyiv university suspected of high treason posts photo of herself with Russian tricolour on background](https://news.yahoo.com/former-teacher-kyiv-university-suspected-100115564.html)
+- Oct 07 - [World’s largest underwater power cable connecting two major countries is officially complete — here’s how many homes it could power](https://news.yahoo.com/world-largest-underwater-power-cable-130000075.html)
 <!-- feed end -->
 
 ### Onstream
