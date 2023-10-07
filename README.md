@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 07 - [TikTok-Famous Police Chief Swapped Incest Vids on Secret Twitter Account: Feds](https://news.yahoo.com/tiktok-famous-police-chief-swapped-214912729.html)
+- Oct 07 - [California governor vetoes bill to ban caste discrimination](https://news.yahoo.com/california-governor-vetoes-bill-ban-210810331.html)
+- Oct 07 - [Ex-girlfriend of Charlotte Sena's suspected abductor speculates about motive: Report](https://news.yahoo.com/ex-girlfriend-charlotte-senas-suspected-202418077.html)
 - Oct 07 - [Migrants in Europe celebrate Hamas assault on Israel](https://news.yahoo.com/migrants-europe-celebrate-hamas-assault-194005818.html)
 - Oct 07 - [Naked Israeli woman paraded by jeering Hamas fighters](https://news.yahoo.com/naked-israeli-woman-paraded-jeering-191753028.html)
-- Oct 07 - ['You don't speak for Canada': Internet reacts as Trudeau says 'we stand with Israel'](https://news.yahoo.com/canada-justin-trudeau-israel-palestine-hamas-attack-reax-183341824.html)
-- Oct 07 - [An increasingly threatened Iran saw  Netanyahu distracted and pounced](https://news.yahoo.com/increasingly-threatened-iran-saw-netanyahu-180351749.html)
-- Oct 07 - [Melania Trump’s Renegotiated Prenup May Have Proved a Long-Standing Conspiracy About Her & Donald](https://www.yahoo.com/entertainment/melania-trump-renegotiated-prenup-may-162400817.html)
 <!-- feed end -->
 
 ### Onstream
