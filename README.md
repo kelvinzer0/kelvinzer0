@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 06 - [Ex-Trump Org. executive testifies that Eric Trump led him to inflate values of some properties](https://news.yahoo.com/ex-trump-org-executive-testifies-221628411.html)
+- Oct 06 - [Fact Check: Ukraine's First Lady Goes on $1.1M Cartier Spending Spree During September 2023 NYC Trip?](https://news.yahoo.com/fact-check-ukraines-first-lady-234400294.html)
+- Oct 06 - [Katy Perry’s Real Estate Trial Takes Shocking, Unexpected Turn](https://www.yahoo.com/entertainment/katy-perry-real-estate-trial-234301981.html)
+- Oct 06 - [Fact Check: Bud Light Appointed Colin Kaepernick as Its New Ambassador to Boost Sales?](https://finance.yahoo.com/news/fact-check-bud-light-appointed-234200515.html)
+- Oct 06 - [A scientist who researches supplements takes these 3 everyday to reduce inflammation and improve skin health](https://news.yahoo.com/scientist-researches-supplements-takes-3-223439323.html)
 - Oct 06 - [New York appeals court halts the process of breaking up Trump’s businesses but rejects stopping the trial](https://news.yahoo.com/trump-asks-appellate-court-stay-171924344.html)
-- Oct 06 - [The US Navy turned the tables on Iran, sending drones that look like speedboats to spy on its warships and troublesome gunboats](https://news.yahoo.com/us-navy-turned-tables-iran-195239267.html)
-- Oct 06 - [Nearly 1,000 migrating songbirds perish after crashing into windows at Chicago exhibition hall](https://news.yahoo.com/nearly-1-000-migrating-songbirds-194123876.html)
-- Oct 06 - [A Florida man who shot down a law enforcement drone faces 10 years in prison](https://news.yahoo.com/florida-man-shot-down-law-192923041.html)
 <!-- feed end -->
 
 ### Onstream
