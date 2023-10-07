@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 07 - [This California handyman found a creative way to force out squatters — but it's a dangerous tactic. Here are 3 ways to invest in real estate without putting your safety at risk](https://finance.yahoo.com/news/california-handyman-found-creative-way-110000850.html)
+- Oct 07 - [Videos show Hamas fighters attacking Israel using motorized paragliders amid a wave of surprise attacks](https://news.yahoo.com/videos-show-hamas-fighters-attacking-094557935.html)
 - Oct 07 - [A Ukrainian sniper said he tracked and took out a Russian for wounding his friend](https://news.yahoo.com/ukrainian-sniper-said-tracked-took-090650555.html)
 - Oct 07 - [The Social Security COLA Countdown Is On: Here's How Much Your Increase Is Likely Going to Be](https://www.fool.com/retirement/2023/10/07/the-social-security-cola-countdown-is-on-heres-how/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Oct 07 - [Former Trump Org exec testified he accounted for multi-million dollar mansions not yet built when valuing a company at the request of Eric Trump](https://news.yahoo.com/former-trump-org-exec-testified-060407908.html)
-- Oct 07 - [Witnesses to FBI hunt for Civil War gold describe heavily loaded armored truck, signs of a night dig](https://news.yahoo.com/witnesses-fbi-hunt-civil-war-040943542.html)
-- Oct 07 - [19-year-old planned multiple mass shootings, did ‘recon’ at Marjory Stoneman Douglas High, officials say](https://news.yahoo.com/19-old-planned-multiple-mass-030100419.html)
 <!-- feed end -->
 
 ### Onstream
