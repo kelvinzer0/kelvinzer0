@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 07 - [Brazil to call emergency meeting of UN Security Council over attack on Israel](https://news.yahoo.com/brazil-call-emergency-meeting-un-144021882.html)
+- Oct 07 - [Israeli commander ‘among at least 50 people captured by Hamas’](https://news.yahoo.com/israeli-commander-among-least-50-141729396.html)
+- Oct 07 - [Murdaugh Crime Scene Reconstruction Expert Recounts Moment He Knew Alex Was Guilty: 'Not a Man'](https://www.yahoo.com/entertainment/murdaugh-crime-scene-reconstruction-expert-135536361.html)
 - Oct 07 - [Fox Host Drops Receipts On GOP Over Claim Of Hillary Clinton's 'Threat To Democracy'](https://news.yahoo.com/fox-host-drops-receipts-gop-130313658.html)
-- Oct 07 - ['Did Mark Cuban's wallet just get drained?': Billionaire loses nearly $1M through crypto scam. What happened and how can you avoid Cuban's costly mistake?](https://finance.yahoo.com/news/did-mark-cubans-wallet-just-123000799.html)
-- Oct 07 - [Former teacher of Kyiv university suspected of high treason posts photo of herself with Russian tricolour on background](https://news.yahoo.com/former-teacher-kyiv-university-suspected-100115564.html)
-- Oct 07 - [This California handyman found a creative way to force out squatters — but it's a dangerous tactic. Here are 3 ways to invest in real estate without putting your safety at risk](https://finance.yahoo.com/news/california-handyman-found-creative-way-110000850.html)
-- Oct 07 - [Videos show Hamas fighters attacking Israel using motorized paragliders amid a wave of surprise attacks](https://news.yahoo.com/videos-show-hamas-fighters-attacking-094557935.html)
+- Oct 07 - [Kroger has an intrusive plan to stop theft (Walmart and Target might follow)](https://www.thestreet.com/retailers/kroger-has-an-intrusive-plan-to-stop-theft-walmart-and-target-might-follow?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
