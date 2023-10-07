@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Oct 07 - [Naked Israeli woman paraded by jeering Hamas fighters](https://news.yahoo.com/naked-israeli-woman-paraded-jeering-191753028.html)
 - Oct 07 - ['You don't speak for Canada': Internet reacts as Trudeau says 'we stand with Israel'](https://news.yahoo.com/canada-justin-trudeau-israel-palestine-hamas-attack-reax-183341824.html)
 - Oct 07 - [An increasingly threatened Iran saw  Netanyahu distracted and pounced](https://news.yahoo.com/increasingly-threatened-iran-saw-netanyahu-180351749.html)
-- Oct 07 - [‘I Could Feel Burning’: Black Woman Claims White Woman Bit Her, Yank Out ‘Clumps’ of Her Hair on Subway and Police Officer Stood By, Let It Happen](https://news.yahoo.com/could-feel-burning-black-woman-180000768.html)
+- Oct 07 - [Melania Trump’s Renegotiated Prenup May Have Proved a Long-Standing Conspiracy About Her & Donald](https://www.yahoo.com/entertainment/melania-trump-renegotiated-prenup-may-162400817.html)
 <!-- feed end -->
 
 ### Onstream
