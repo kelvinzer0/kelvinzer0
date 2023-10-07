@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 07 - [Retired dean married to Pulitzer Prize-winning writer found shot to death on Vermont trail](https://www.yahoo.com/gma/suspect-large-woman-found-dead-222831876.html)
 - Oct 07 - [Melania Trump’s Renegotiated Prenup May Have Proved a Long-Standing Conspiracy About Her & Donald](https://www.yahoo.com/entertainment/melania-trump-renegotiated-prenup-may-162400817.html)
-- Oct 07 - [Woman Finds Enormous Pregnant Spider in Her Office: 'Jumped Out' and 'Ran Down My Forearm'](https://www.yahoo.com/entertainment/woman-finds-enormous-pregnant-spider-162317261.html)
+- Oct 07 - [$361 million Mega Millions jackpot won by single ticketholder](https://news.yahoo.com/361-million-mega-millions-jackpot-154121582.html)
 - Oct 07 - [Brazil aims to prevent escalation of Hamas-Israel conflict, Lula says](https://news.yahoo.com/brazil-call-emergency-meeting-un-144021882.html)
-- Oct 07 - [Kroger has an intrusive plan to stop theft (Walmart and Target might follow)](https://www.thestreet.com/retailers/kroger-has-an-intrusive-plan-to-stop-theft-walmart-and-target-might-follow?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 07 - [World’s largest underwater power cable connecting two major countries is officially complete — here’s how many homes it could power](https://news.yahoo.com/world-largest-underwater-power-cable-130000075.html)
+- Oct 07 - [Iran says attack on Israel is Palestinian 'self-defence'](https://news.yahoo.com/iran-foreign-ministry-says-hamas-140110686.html)
 <!-- feed end -->
 
 ### Onstream
