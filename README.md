@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 07 - [Rand Paul says ‘without question’ Fauci belongs in jail](https://news.yahoo.com/rand-paul-says-without-fauci-014156504.html)
-- Oct 07 - [Hundreds of migrants crossing border daily, gathering in mountains east of San Diego](https://news.yahoo.com/hundreds-migrants-crossing-border-daily-005354164.html)
+- Oct 07 - [19-year-old planned multiple mass shootings, did ‘recon’ at Marjory Stoneman Douglas High, officials say](https://news.yahoo.com/19-old-planned-multiple-mass-030100419.html)
 - Oct 06 - [Fact Check: Ukraine's First Lady Goes on $1.1M Cartier Spending Spree During September 2023 NYC Trip?](https://news.yahoo.com/fact-check-ukraines-first-lady-234400294.html)
 - Oct 06 - [Katy Perry’s Real Estate Trial Takes Shocking, Unexpected Turn](https://www.yahoo.com/entertainment/katy-perry-real-estate-trial-234301981.html)
 - Oct 06 - [Fact Check: Bud Light Appointed Colin Kaepernick as Its New Ambassador to Boost Sales?](https://finance.yahoo.com/news/fact-check-bud-light-appointed-234200515.html)
+- Oct 06 - [A scientist who researches supplements takes these 3 everyday to reduce inflammation and improve skin health](https://news.yahoo.com/scientist-researches-supplements-takes-3-223439323.html)
 <!-- feed end -->
 
 ### Onstream
