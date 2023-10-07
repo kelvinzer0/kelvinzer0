@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 07 - [A Ukrainian sniper said he tracked and took out a Russian for wounding his friend](https://news.yahoo.com/ukrainian-sniper-said-tracked-took-090650555.html)
+- Oct 07 - [The Social Security COLA Countdown Is On: Here's How Much Your Increase Is Likely Going to Be](https://www.fool.com/retirement/2023/10/07/the-social-security-cola-countdown-is-on-heres-how/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Oct 07 - [Former Trump Org exec testified he accounted for multi-million dollar mansions not yet built when valuing a company at the request of Eric Trump](https://news.yahoo.com/former-trump-org-exec-testified-060407908.html)
 - Oct 07 - [Witnesses to FBI hunt for Civil War gold describe heavily loaded armored truck, signs of a night dig](https://news.yahoo.com/witnesses-fbi-hunt-civil-war-040943542.html)
 - Oct 07 - [19-year-old planned multiple mass shootings, did ‘recon’ at Marjory Stoneman Douglas High, officials say](https://news.yahoo.com/19-old-planned-multiple-mass-030100419.html)
-- Oct 06 - [Fact Check: Ukraine's First Lady Goes on $1.1M Cartier Spending Spree During September 2023 NYC Trip?](https://news.yahoo.com/fact-check-ukraines-first-lady-234400294.html)
-- Oct 06 - [Katy Perry’s Real Estate Trial Takes Shocking, Unexpected Turn](https://www.yahoo.com/entertainment/katy-perry-real-estate-trial-234301981.html)
-- Oct 06 - [Fact Check: Bud Light Appointed Colin Kaepernick as Its New Ambassador to Boost Sales?](https://finance.yahoo.com/news/fact-check-bud-light-appointed-234200515.html)
 <!-- feed end -->
 
 ### Onstream
