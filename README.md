@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 08 - [Donald Trump Jr. Just Made Disparaging Jabs to One of His Father Donald’s Biggest Competitors](https://www.yahoo.com/entertainment/donald-trump-jr-just-made-152800331.html)
 - Oct 08 - [How a sunrise desert rave was shattered by paragliding Hamas gunmen](https://news.yahoo.com/paragliding-hamas-gunmen-descend-upon-135926648.html)
-- Oct 08 - [Attack on Israel underscores 'irresponsibility' of Republicans paralyzing House with speaker fight: Christie](https://www.yahoo.com/gma/attack-israel-underscores-irresponsibility-republicans-135822160.html)
-- Oct 08 - [18 Signs From This Past Week That — I'm Not Exaggerating — Are Really, Really, Really, Effing Funny](https://www.yahoo.com/lifestyle/18-signs-past-week-im-131603764.html)
-- Oct 08 - [The mother of tattoo artist Shani Louk who was paraded semi-naked on a Hamas truck makes a public plea for more information](https://news.yahoo.com/mother-tattoo-artist-shani-louk-112050126.html)
-- Oct 08 - [A woman lives on a floating island in Canada that she built with her late husband 31 years ago – it's a challenging life, but she isn't leaving anytime soon](https://news.yahoo.com/woman-lives-floating-island-canada-104301692.html)
+- Oct 08 - [Who is Pavel Prigozhin – the 25-year-old who has inherited the Wagner group and its fortune?](https://news.yahoo.com/pavel-prigozhin-25-old-inherited-150000367.html)
+- Oct 08 - [A man who was trying to row across the Pacific Ocean in a handmade boat was rescued after capsizing](https://news.yahoo.com/man-trying-row-across-pacific-145642090.html)
+- Oct 08 - [Desperate American women are flooding into Mexico in search of reproductive care](https://news.yahoo.com/desperate-american-women-flooding-mexico-145538068.html)
 <!-- feed end -->
 
 ### Onstream
