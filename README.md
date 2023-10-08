@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 08 - [Elon Musk Deletes Tweet Telling People to Follow Known Antisemite for Israel War Updates](https://www.yahoo.com/entertainment/elon-musk-deletes-tweet-telling-202835762.html)
+- Oct 08 - [A GOP congressman says conservative hardliners who helped oust Kevin McCarthy as speaker could 'very easily' cause the party to lose its House majority in 2024](https://news.yahoo.com/gop-congressman-says-conservative-hardliners-200128775.html)
 - Oct 08 - [The US is sending its most advanced aircraft carrier and its heavily armed strike group to Israel's coast and will supply the country with more weapons and ammo](https://news.yahoo.com/us-sending-most-advanced-aircraft-182712832.html)
 - Oct 08 - [I Know I Shouldn't Laugh, But These 19 Extremely Dumb Things People Posted On The Internet Last Week Are Killing Me](https://www.yahoo.com/lifestyle/know-shouldnt-laugh-19-extremely-181832484.html)
 - Oct 08 - [Two people made $4,250 per day from 17 women in a Miami-Dade cul de sac house, cops say](https://news.yahoo.com/two-people-made-4-250-173658212.html)
-- Oct 08 - [Israeli general says Hamas crossed "point of no return" with kidnappings](https://news.yahoo.com/israeli-general-says-hamas-crossed-170945220.html)
-- Oct 08 - [Donald Trump Jr. Just Made Disparaging Jabs to One of His Father Donald’s Biggest Competitors](https://www.yahoo.com/entertainment/donald-trump-jr-just-made-152800331.html)
 <!-- feed end -->
 
 ### Onstream
