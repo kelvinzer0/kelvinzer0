@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 08 - [The mother of tattoo artist Shani Louk who was paraded semi-naked on a Hamas truck makes a public plea for more information](https://news.yahoo.com/mother-tattoo-artist-shani-louk-112050126.html)
+- Oct 08 - [A woman lives on a floating island in Canada that she built with her late husband 31 years ago – it's a challenging life, but she isn't leaving anytime soon](https://news.yahoo.com/woman-lives-floating-island-canada-104301692.html)
+- Oct 08 - [Disturbing video shows a 25-year-old woman begging Hamas fighters not to kill her as she's taken hostage and driven into Gaza on a motorbike](https://news.yahoo.com/disturbing-video-shows-25-old-102311309.html)
 - Oct 08 - [A policeman in Egypt killed 2 Israelis and 1 Egyptian at a tourist site in Alexandria](https://news.yahoo.com/egyptian-media-policeman-kills-2-092447829.html)
-- Oct 08 - [Naked woman paraded by jeering Hamas fighters](https://news.yahoo.com/naked-israeli-woman-paraded-jeering-191753028.html)
 - Oct 08 - [Desert horror: Music festival goers heard rockets, then Gaza militants fired on them and took hostages](https://news.yahoo.com/desert-horror-music-festival-goers-010759063.html)
-- Oct 08 - [UPDATE 3-Israel, Hezbollah exchange artillery, rocket fire](https://finance.yahoo.com/news/1-israel-strikes-lebanon-hezbollah-054145833.html)
-- Oct 08 - [Walmart Customer and State Trooper Make a Scene in the Checkout Line](https://news.yahoo.com/walmart-customer-state-trooper-scene-051500402.html)
 <!-- feed end -->
 
 ### Onstream
