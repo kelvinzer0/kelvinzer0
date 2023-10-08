@@ -62,8 +62,8 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 08 - [Dwayne ‘The Rock’ Johnson addresses Maui fund backlash: ‘I get it and I completely understand’](https://www.yahoo.com/entertainment/dwayne-rock-johnson-addresses-maui-204627702.html)
 - Oct 08 - [The US is sending its most advanced aircraft carrier and its heavily armed strike group to Israel's coast and will supply the country with more weapons and ammo](https://news.yahoo.com/us-sending-most-advanced-aircraft-182712832.html)
+- Oct 08 - [Head of Exxon's shale oil business faces sexual assault charge in Texas](https://finance.yahoo.com/news/head-exxons-shale-oil-business-203251386.html)
 - Oct 08 - [California Gov. Gavin Newsom vetoes bill aimed at limiting the price of insulin](https://news.yahoo.com/california-gov-gavin-newsom-vetoes-202936014.html)
-- Oct 08 - [Elon Musk Deletes Tweet Telling People to Follow Known Antisemite for Israel War Updates](https://www.yahoo.com/entertainment/elon-musk-deletes-tweet-telling-202835762.html)
 - Oct 08 - [How a sunrise desert rave was shattered by paragliding Hamas gunmen](https://news.yahoo.com/paragliding-hamas-gunmen-descend-upon-135926648.html)
 <!-- feed end -->
 
