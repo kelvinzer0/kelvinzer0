@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 08 - [I Know I Shouldn't Laugh, But These 19 Extremely Dumb Things People Posted On The Internet Last Week Are Killing Me](https://www.yahoo.com/lifestyle/know-shouldnt-laugh-19-extremely-181832484.html)
+- Oct 08 - [Two people made $4,250 per day from 17 women in a Miami-Dade cul de sac house, cops say](https://news.yahoo.com/two-people-made-4-250-173658212.html)
+- Oct 08 - [The US will send a carrier strike group to the Eastern Mediterranean in support of Israel](https://news.yahoo.com/us-send-carrier-strike-group-172542094.html)
+- Oct 08 - [Nancy Mace Backs Jim Jordan for Speaker, Says ‘I’m Not Familiar’ With Claims He Ignored Ohio State Abuse Allegations (Video)](https://www.yahoo.com/entertainment/nancy-mace-backs-jim-jordan-172414693.html)
 - Oct 08 - [Israeli general says Hamas crossed "point of no return" with kidnappings](https://news.yahoo.com/israeli-general-says-hamas-crossed-170945220.html)
-- Oct 08 - [Desert horror: Music festival goers heard rockets, then Gaza militants fired on them and took hostages](https://news.yahoo.com/desert-horror-music-festival-goers-010759063.html)
-- Oct 08 - [Donald Trump Jr. Just Made Disparaging Jabs to One of His Father Donald’s Biggest Competitors](https://www.yahoo.com/entertainment/donald-trump-jr-just-made-152800331.html)
-- Oct 08 - [‘Simply Outrageous’: Ohio School Employee Caught on Disturbing Video Knocking Autistic 3-Year-Old to the Floor, Carrying Him Upside Down Finally Charged](https://news.yahoo.com/simply-outrageous-ohio-school-employee-150000798.html)
-- Oct 08 - [A man who was trying to row across the Pacific Ocean in a handmade boat was rescued after capsizing](https://news.yahoo.com/man-trying-row-across-pacific-145642090.html)
 <!-- feed end -->
 
 ### Onstream
