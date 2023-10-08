@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 08 - [Dog Born with Six Legs Stuns Animal Rescue After Being Found Abandoned in Parking Lot](https://www.yahoo.com/entertainment/dog-born-six-legs-stuns-001903956.html)
 - Oct 07 - [TikTok-Famous Police Chief Swapped Incest Vids on Secret Twitter Account: Feds](https://news.yahoo.com/tiktok-famous-police-chief-swapped-214912729.html)
 - Oct 07 - [California governor vetoes bill to ban caste discrimination](https://news.yahoo.com/california-governor-vetoes-bill-ban-210810331.html)
-- Oct 07 - [Ex-girlfriend of Charlotte Sena's suspected abductor speculates about motive: Report](https://news.yahoo.com/ex-girlfriend-charlotte-senas-suspected-202418077.html)
+- Oct 07 - [Israel calls upon residents of Giza Strip to evacuate: We will change reality for 50 years ahead](https://news.yahoo.com/israel-calls-upon-residents-giza-202506680.html)
 - Oct 07 - [Migrants in Europe celebrate Hamas assault on Israel](https://news.yahoo.com/migrants-europe-celebrate-hamas-assault-194005818.html)
-- Oct 07 - [Naked Israeli woman paraded by jeering Hamas fighters](https://news.yahoo.com/naked-israeli-woman-paraded-jeering-191753028.html)
 <!-- feed end -->
 
 ### Onstream
