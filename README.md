@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 08 - [Trump Shows Love To 'Hannibal Lecter' In Killer Blunder At Iowa Rally](https://news.yahoo.com/trump-shows-love-hannibal-lecter-042941582.html)
-- Oct 08 - [RNC Chair Ronna McDaniel Tells Fox News That Israel Attacks Are ‘a Great Opportunity for Our Candidates’ (Video)](https://www.yahoo.com/entertainment/rnc-chair-ronna-mcdaniel-tells-003945340.html)
+- Oct 08 - [Desert horror: Music festival goers first took cover from rockets, then Gaza militants began firing on them](https://news.yahoo.com/desert-horror-music-festival-goers-010759063.html)
 - Oct 08 - [A new threat could send the price of this popular cooking staple soaring: ‘The industry is in crisis’](https://news.yahoo.com/threat-could-send-price-popular-180000664.html)
-- Oct 08 - [Dog Born with Six Legs Stuns Animal Rescue After Being Found Abandoned in Parking Lot](https://www.yahoo.com/entertainment/dog-born-six-legs-stuns-001903956.html)
 - Oct 07 - ['Squad' Dems face backlash calling for 'ceasefire' after Israel attacks: 'Can’t merely condemn terrorism'](https://news.yahoo.com/squad-dems-face-backlash-calling-220240519.html)
+- Oct 07 - [California governor vetoes bill to ban caste discrimination](https://news.yahoo.com/california-governor-vetoes-bill-ban-210810331.html)
 <!-- feed end -->
 
 ### Onstream
