@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 08 - [Desert horror: Music festival goers heard rockets, then Gaza militants fired on them and took hostages](https://news.yahoo.com/desert-horror-music-festival-goers-010759063.html)
 - Oct 08 - [Donald Trump Jr. Just Made Disparaging Jabs to One of His Father Donald’s Biggest Competitors](https://www.yahoo.com/entertainment/donald-trump-jr-just-made-152800331.html)
 - Oct 08 - [How a sunrise desert rave was shattered by paragliding Hamas gunmen](https://news.yahoo.com/paragliding-hamas-gunmen-descend-upon-135926648.html)
+- Oct 08 - [‘Simply Outrageous’: Ohio School Employee Caught on Disturbing Video Knocking Autistic 3-Year-Old to the Floor, Carrying Him Upside Down Finally Charged](https://news.yahoo.com/simply-outrageous-ohio-school-employee-150000798.html)
 - Oct 08 - [Who is Pavel Prigozhin – the 25-year-old who has inherited the Wagner group and its fortune?](https://news.yahoo.com/pavel-prigozhin-25-old-inherited-150000367.html)
-- Oct 08 - [A man who was trying to row across the Pacific Ocean in a handmade boat was rescued after capsizing](https://news.yahoo.com/man-trying-row-across-pacific-145642090.html)
-- Oct 08 - [Desperate American women are flooding into Mexico in search of reproductive care](https://news.yahoo.com/desperate-american-women-flooding-mexico-145538068.html)
 <!-- feed end -->
 
 ### Onstream
