@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 08 - [Elon Musk Deletes Tweet Telling People to Follow Known Antisemite for Israel War Updates](https://www.yahoo.com/entertainment/elon-musk-deletes-tweet-telling-202835762.html)
-- Oct 08 - [A GOP congressman says conservative hardliners who helped oust Kevin McCarthy as speaker could 'very easily' cause the party to lose its House majority in 2024](https://news.yahoo.com/gop-congressman-says-conservative-hardliners-200128775.html)
+- Oct 08 - [Dwayne ‘The Rock’ Johnson addresses Maui fund backlash: ‘I get it and I completely understand’](https://www.yahoo.com/entertainment/dwayne-rock-johnson-addresses-maui-204627702.html)
 - Oct 08 - [The US is sending its most advanced aircraft carrier and its heavily armed strike group to Israel's coast and will supply the country with more weapons and ammo](https://news.yahoo.com/us-sending-most-advanced-aircraft-182712832.html)
-- Oct 08 - [I Know I Shouldn't Laugh, But These 19 Extremely Dumb Things People Posted On The Internet Last Week Are Killing Me](https://www.yahoo.com/lifestyle/know-shouldnt-laugh-19-extremely-181832484.html)
-- Oct 08 - [Two people made $4,250 per day from 17 women in a Miami-Dade cul de sac house, cops say](https://news.yahoo.com/two-people-made-4-250-173658212.html)
+- Oct 08 - [California Gov. Gavin Newsom vetoes bill aimed at limiting the price of insulin](https://news.yahoo.com/california-gov-gavin-newsom-vetoes-202936014.html)
+- Oct 08 - [Elon Musk Deletes Tweet Telling People to Follow Known Antisemite for Israel War Updates](https://www.yahoo.com/entertainment/elon-musk-deletes-tweet-telling-202835762.html)
+- Oct 08 - [How a sunrise desert rave was shattered by paragliding Hamas gunmen](https://news.yahoo.com/paragliding-hamas-gunmen-descend-upon-135926648.html)
 <!-- feed end -->
 
 ### Onstream
