@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 08 - [Naked woman paraded by jeering Hamas fighters](https://news.yahoo.com/naked-israeli-woman-paraded-jeering-191753028.html)
 - Oct 08 - [Desert horror: Music festival goers heard rockets, then Gaza militants fired on them and took hostages](https://news.yahoo.com/desert-horror-music-festival-goers-010759063.html)
-- Oct 08 - [Hezbollah bombards Israeli positions in disputed area along border with Syria's Golan Heights](https://news.yahoo.com/hezbollah-bombards-israeli-positions-disputed-052830109.html)
+- Oct 08 - [UPDATE 1-Israel strikes Lebanon after Hezbollah hits Shebaa Farms](https://finance.yahoo.com/news/1-israel-strikes-lebanon-hezbollah-054145833.html)
 - Oct 08 - [Trump Shows Love To 'Hannibal Lecter' In Killer Blunder At Iowa Rally](https://news.yahoo.com/trump-shows-love-hannibal-lecter-042941582.html)
 - Oct 08 - [A new threat could send the price of this popular cooking staple soaring: ‘The industry is in crisis’](https://news.yahoo.com/threat-could-send-price-popular-180000664.html)
 <!-- feed end -->
