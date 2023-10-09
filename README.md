@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Exxon shale oil exec faces sexual assault charge](https://news.yahoo.com/exxon-shale-oil-exec-faces-174404586.html)
-- Oct 09 - ['Butchered in cold blood': nightmare at Israel music festival](https://news.yahoo.com/butchered-cold-blood-nightmare-israel-174342506.html)
-- Oct 09 - [A Fake Loan Could Mean Real Trouble for George Santos](https://news.yahoo.com/fake-loan-could-mean-real-173510349.html)
-- Oct 09 - [UN chief 'deeply distressed' by planned Israeli siege of Gaza](https://news.yahoo.com/un-chief-deeply-distressed-planned-172941693.html)
+- Oct 09 - [Lawyer: Tyre Nichols had stolen items, hallucinogenic in car during fatal encounter with police](https://news.yahoo.com/lawyer-says-black-man-died-180848567.html)
+- Oct 09 - [Home Depot jumped down retail theft rabbit hole and found a surprising perpetrator](https://www.thestreet.com/retailers/home-depot-retail-theft-ring?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 09 - [For years, they trusted the army to defend and inform them. Now many Israelis feel abandoned](https://news.yahoo.com/years-trusted-army-defend-inform-174427006.html)
+- Oct 09 - [‘Reserved for Members Only’: A Tennessee Teacher Confiscated a Second Grader’s Alpha Kappa Alpha T-Shirt She Was Wearing. Now the School Is Apologizing.](https://news.yahoo.com/reserved-members-only-tennessee-teacher-173314458.html)
 - Oct 09 - [The White House fired back at the head of the Republican National Committee for saying the attacks on Israel presented a 'great opportunity' for GOP candidates](https://news.yahoo.com/white-house-fired-back-head-164658150.html)
 <!-- feed end -->
 
