@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 09 - [Sen. Cory Booker says he is shaken, angered, heartbroken after taking cover in bomb shelter in Israel](https://news.yahoo.com/sen-cory-booker-says-shaken-013351967.html)
+- Oct 09 - [Israeli, Palestinian supporters rally across U.S.](https://news.yahoo.com/israeli-palestinian-supporters-rally-across-012002707.html)
 - Oct 09 - [Analysis-Inside Asia's arms race: China near 'breakthroughs' with nuclear-armed submarines, report says](https://news.yahoo.com/analysis-inside-asias-arms-race-010859592.html)
-- Oct 09 - [A Florida man's wife had her rare $200K purple Rolls Royce stolen. He used a plane banner to find it.](https://news.yahoo.com/florida-mans-wife-had-her-002731487.html)
 - Oct 09 - [US demands condemnation of Hamas at UN meeting, but Security Council takes no immediate action](https://news.yahoo.com/us-demands-condemnation-hamas-un-001317781.html)
 - Oct 08 - [Music festival revelers in the Israeli desert were massacred by Hamas militants](https://news.yahoo.com/music-festival-revelers-israeli-desert-231653672.html)
 <!-- feed end -->
