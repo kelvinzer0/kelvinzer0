@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Israeli Defense Minister Calls for ‘Complete Siege’ of Gaza Strip Two Days After Hamas' Surprise Attack](https://www.yahoo.com/entertainment/israeli-defense-minister-calls-complete-164313411.html)
-- Oct 09 - [Missing Oklahoma man found safe in Texas](https://news.yahoo.com/missing-oklahoma-man-found-safe-154811968.html)
-- Oct 09 - [Israel festival revelers shot at point-blank range, video shows](https://news.yahoo.com/israel-festival-revelers-shot-point-151945849.html)
-- Oct 09 - [Trump rips Forbes after removal from wealthiest Americans list](https://news.yahoo.com/trump-rips-forbes-removal-wealthiest-151536598.html)
-- Oct 09 - [US House Republicans plot next moves on leader, McCarthy says he would go back](https://news.yahoo.com/us-house-republicans-plot-next-150522199.html)
+- Oct 09 - [Exxon shale oil exec faces sexual assault charge](https://news.yahoo.com/exxon-shale-oil-exec-faces-174404586.html)
+- Oct 09 - ['Butchered in cold blood': nightmare at Israel music festival](https://news.yahoo.com/butchered-cold-blood-nightmare-israel-174342506.html)
+- Oct 09 - [A Fake Loan Could Mean Real Trouble for George Santos](https://news.yahoo.com/fake-loan-could-mean-real-173510349.html)
+- Oct 09 - [UN chief 'deeply distressed' by planned Israeli siege of Gaza](https://news.yahoo.com/un-chief-deeply-distressed-planned-172941693.html)
+- Oct 09 - [The White House fired back at the head of the Republican National Committee for saying the attacks on Israel presented a 'great opportunity' for GOP candidates](https://news.yahoo.com/white-house-fired-back-head-164658150.html)
 <!-- feed end -->
 
 ### Onstream
