@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Lawyer: Tyre Nichols had stolen items, hallucinogenic in car during fatal encounter with police](https://news.yahoo.com/lawyer-says-black-man-died-180848567.html)
-- Oct 09 - [Home Depot jumped down retail theft rabbit hole and found a surprising perpetrator](https://www.thestreet.com/retailers/home-depot-retail-theft-ring?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 09 - [For years, they trusted the army to defend and inform them. Now many Israelis feel abandoned](https://news.yahoo.com/years-trusted-army-defend-inform-174427006.html)
-- Oct 09 - [‘Reserved for Members Only’: A Tennessee Teacher Confiscated a Second Grader’s Alpha Kappa Alpha T-Shirt She Was Wearing. Now the School Is Apologizing.](https://news.yahoo.com/reserved-members-only-tennessee-teacher-173314458.html)
-- Oct 09 - [The White House fired back at the head of the Republican National Committee for saying the attacks on Israel presented a 'great opportunity' for GOP candidates](https://news.yahoo.com/white-house-fired-back-head-164658150.html)
+- Oct 09 - ['That's nice and all' to 'You are siding with oppression': PM Trudeau's unapologetic pro-Israel stance draws flurry of reactions from Canadians](https://news.yahoo.com/israel-palestine-canada-trudeau-reaction-193447864.html)
+- Oct 09 - [Aaron Hernandez's attorney sets the record straight: Hernandez died by suicide](https://sports.yahoo.com/aaron-hernandezs-attorney-sets-the-record-straight-hernandez-died-by-suicide-191453838.html)
+- Oct 09 - [What are the big black boxes popping up in downtown Raleigh? Wander no more.](https://news.yahoo.com/big-black-boxes-popping-downtown-190649698.html)
+- Oct 09 - [Louisiana public school principal apologizes after punishing student for dancing at a party](https://news.yahoo.com/louisiana-public-school-principal-apologizes-190430090.html)
+- Oct 09 - [Huge ancient solar storm revealed by tree rings in French Alps](https://news.yahoo.com/huge-ancient-solar-storm-revealed-183032495.html)
 <!-- feed end -->
 
 ### Onstream
