@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Pro-Israel, pro-Palestinian protests held in New York](https://news.yahoo.com/pro-israel-pro-palestinian-protests-070400589.html)
 - Oct 09 - [Geraldo Rivera Gives CNN An Unfiltered Response To Trump's Latest 'Vile' Comment](https://news.yahoo.com/geraldo-rivera-gives-cnn-unfiltered-062046671.html)
+- Oct 09 - [The US will likely 'go to war' in Israel with air and naval power if Syria or Iran become actively involved, retired 4-star general says](https://news.yahoo.com/us-likely-war-israel-air-060243820.html)
 - Oct 09 - [Pro-Palestine Demonstrators March in California](https://news.yahoo.com/pro-palestine-demonstrators-march-california-053459521.html)
 - Oct 09 - [In Beijing, Schumer urges China to support Israel after Hamas attacks](https://news.yahoo.com/us-senate-leader-schumer-says-050936990.html)
 - Oct 09 - [California hits major industry with lawsuit for allegedly spreading ‘lies and mistruths’: ‘[They] have privately known the truth for decades’](https://news.yahoo.com/california-hits-major-industry-lawsuit-050000036.html)
