@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Video of girl dancing got scholarship recommendation pulled. Now, principal apologizes](https://news.yahoo.com/video-girl-dancing-got-scholarship-201758582.html)
-- Oct 09 - [IDF Bombards Central Neighborhood in Gaza City](https://news.yahoo.com/idf-bombards-central-neighborhood-gaza-201657350.html)
-- Oct 09 - [Senior Hamas official says Iran, Hezbollah had no role in Israel incursion, but will help if needed](https://news.yahoo.com/senior-hamas-official-says-iran-200554027.html)
-- Oct 09 - [Israel-Hamas conflict: Key leaders and groups you should know](https://news.yahoo.com/israel-hamas-conflict-key-leaders-groups-you-should-know-200009474.html)
-- Oct 09 - [An Israeli woman held hostage in her home for 15 hours said she distracted Hamas militants with coffee and cookies until she was rescued](https://news.yahoo.com/israeli-woman-held-hostage-her-193255039.html)
+- Oct 09 - [Trump: ‘What's going on with the Patriots, huh?'](https://sports.yahoo.com/trump-whats-going-patriots-huh-214357811.html)
+- Oct 09 - [U.S. Senate moves quickly toward confirming Lew as ambassador to Israel](https://news.yahoo.com/u-senate-moves-quickly-toward-212430144.html)
+- Oct 09 - [Wisconsin GOP leader silent on impeachment of Supreme Court justice after earlier floating it](https://news.yahoo.com/wisconsin-gop-leader-silent-impeachment-210802336.html)
+- Oct 09 - [Socialist rally in Times Square praising Hamas terror attack draws widespread condemnation](https://news.yahoo.com/socialist-rally-in-times-square-praising-hamas-terror-attack-draws-widespread-condemnation-204123785.html)
+- Oct 09 - [Man In Wheelchair Punched Inside Florida McDonald’s: Cops](https://news.yahoo.com/man-wheelchair-punched-inside-florida-203902745.html)
 <!-- feed end -->
 
 ### Onstream
