@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 09 - [Pro-Israel, pro-Palestinian protests held in New York](https://news.yahoo.com/pro-israel-pro-palestinian-protests-070400589.html)
+- Oct 09 - [Geraldo Rivera Gives CNN An Unfiltered Response To Trump's Latest 'Vile' Comment](https://news.yahoo.com/geraldo-rivera-gives-cnn-unfiltered-062046671.html)
 - Oct 09 - [Pro-Palestine Demonstrators March in California](https://news.yahoo.com/pro-palestine-demonstrators-march-california-053459521.html)
 - Oct 09 - [In Beijing, Schumer urges China to support Israel after Hamas attacks](https://news.yahoo.com/us-senate-leader-schumer-says-050936990.html)
-- Oct 09 - [Lions linebacker Alex Anzalone’s parents stuck in Israel with church group amid deadly conflict](https://sports.yahoo.com/lions-linebacker-alex-anzalones-parents-stuck-in-israel-with-church-group-amid-deadly-conflict-042127441.html)
-- Oct 09 - [Reports of western Washington earthquake sparks concerns among residents](https://news.yahoo.com/reports-western-washington-earthquake-sparks-025412124.html)
-- Oct 09 - [France wins suit over history-making shipwreck off US coast](https://news.yahoo.com/france-wins-suit-over-history-013705620.html)
+- Oct 09 - [California hits major industry with lawsuit for allegedly spreading ‘lies and mistruths’: ‘[They] have privately known the truth for decades’](https://news.yahoo.com/california-hits-major-industry-lawsuit-050000036.html)
 <!-- feed end -->
 
 ### Onstream
