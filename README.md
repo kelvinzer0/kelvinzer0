@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 09 - [RFK Jr. is expected to drop his Democratic primary bid and launch an independent or third-party run](https://news.yahoo.com/rfk-jr-expected-drop-democratic-102943746.html)
+- Oct 09 - [EU foreign ministers to meet on Tuesday to discuss situation in Israel - Borrell](https://news.yahoo.com/eu-foreign-minister-meet-tuesday-100950029.html)
+- Oct 09 - [The right is getting weirder about sex](https://news.yahoo.com/getting-weirder-sex-100001149.html)
 - Oct 09 - [Kremlin warns of danger of regional escalation after Israel violence](https://news.yahoo.com/kremlin-warns-risk-regional-escalation-092844293.html)
 - Oct 09 - [Authoritarianism Expert Says Nikki Haley's Trump Comment Means 1 Chilling Thing](https://news.yahoo.com/authoritarianism-expert-says-nikki-haleys-084359712.html)
-- Oct 09 - [China opposes violence, attacks in Middle East crisis](https://news.yahoo.com/china-opposes-violence-attacks-middle-083308842.html)
-- Oct 09 - [Geraldo Rivera Gives CNN An Unfiltered Response To Trump's Latest 'Vile' Comment](https://news.yahoo.com/geraldo-rivera-gives-cnn-unfiltered-062046671.html)
-- Oct 09 - [The US will likely 'go to war' in Israel with air and naval power if Syria or Iran become actively involved, retired 4-star general says](https://news.yahoo.com/us-likely-war-israel-air-060243820.html)
 <!-- feed end -->
 
 ### Onstream
