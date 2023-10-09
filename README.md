@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - ['That's nice and all' to 'You are siding with oppression': PM Trudeau's unapologetic pro-Israel stance draws flurry of reactions from Canadians](https://news.yahoo.com/israel-palestine-canada-trudeau-reaction-193447864.html)
-- Oct 09 - [Aaron Hernandez's attorney sets the record straight: Hernandez died by suicide](https://sports.yahoo.com/aaron-hernandezs-attorney-sets-the-record-straight-hernandez-died-by-suicide-191453838.html)
-- Oct 09 - [What are the big black boxes popping up in downtown Raleigh? Wander no more.](https://news.yahoo.com/big-black-boxes-popping-downtown-190649698.html)
-- Oct 09 - [Louisiana public school principal apologizes after punishing student for dancing at a party](https://news.yahoo.com/louisiana-public-school-principal-apologizes-190430090.html)
-- Oct 09 - [Huge ancient solar storm revealed by tree rings in French Alps](https://news.yahoo.com/huge-ancient-solar-storm-revealed-183032495.html)
+- Oct 09 - [Video of girl dancing got scholarship recommendation pulled. Now, principal apologizes](https://news.yahoo.com/video-girl-dancing-got-scholarship-201758582.html)
+- Oct 09 - [IDF Bombards Central Neighborhood in Gaza City](https://news.yahoo.com/idf-bombards-central-neighborhood-gaza-201657350.html)
+- Oct 09 - [Senior Hamas official says Iran, Hezbollah had no role in Israel incursion, but will help if needed](https://news.yahoo.com/senior-hamas-official-says-iran-200554027.html)
+- Oct 09 - [Israel-Hamas conflict: Key leaders and groups you should know](https://news.yahoo.com/israel-hamas-conflict-key-leaders-groups-you-should-know-200009474.html)
+- Oct 09 - [An Israeli woman held hostage in her home for 15 hours said she distracted Hamas militants with coffee and cookies until she was rescued](https://news.yahoo.com/israeli-woman-held-hostage-her-193255039.html)
 <!-- feed end -->
 
 ### Onstream
