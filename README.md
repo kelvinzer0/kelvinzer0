@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Trump: ‘What's going on with the Patriots, huh?'](https://sports.yahoo.com/trump-whats-going-patriots-huh-214357811.html)
-- Oct 09 - [U.S. Senate moves quickly toward confirming Lew as ambassador to Israel](https://news.yahoo.com/u-senate-moves-quickly-toward-212430144.html)
 - Oct 09 - [Wisconsin GOP leader silent on impeachment of Supreme Court justice after earlier floating it](https://news.yahoo.com/wisconsin-gop-leader-silent-impeachment-210802336.html)
-- Oct 09 - [Socialist rally in Times Square praising Hamas terror attack draws widespread condemnation](https://news.yahoo.com/socialist-rally-in-times-square-praising-hamas-terror-attack-draws-widespread-condemnation-204123785.html)
 - Oct 09 - [Man In Wheelchair Punched Inside Florida McDonald’s: Cops](https://news.yahoo.com/man-wheelchair-punched-inside-florida-203902745.html)
+- Oct 09 - [Video of girl dancing got scholarship recommendation pulled. Now, principal apologizes](https://news.yahoo.com/video-girl-dancing-got-scholarship-201758582.html)
+- Oct 09 - [Lawsuit against OSU in sexual abuse scandal could result in deposition for Speaker candidate Jordan](https://news.yahoo.com/lawsuit-against-osu-sexual-abuse-193721899.html)
+- Oct 09 - ['That's nice and all' to 'You are siding with oppression': PM Trudeau's unapologetic pro-Israel stance draws flurry of reactions from Canadians](https://news.yahoo.com/israel-palestine-canada-trudeau-reaction-193447864.html)
 <!-- feed end -->
 
 ### Onstream
