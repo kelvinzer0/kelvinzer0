@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [RFK Jr. is expected to drop his Democratic primary bid and launch an independent or third-party run](https://news.yahoo.com/rfk-jr-expected-drop-democratic-102943746.html)
+- Oct 09 - [Most casualties in recent Afghan earthquakes are women, children -WHO](https://news.yahoo.com/most-casualties-recent-afghan-earthquakes-114606463.html)
+- Oct 09 - [Western Washington earthquake sparks concerns among residents](https://news.yahoo.com/reports-western-washington-earthquake-sparks-025412124.html)
+- Oct 09 - [Disney caught by surprise by the return of activist investor Nelson Peltz: source](https://finance.yahoo.com/news/disney-caught-by-surprise-by-the-return-of-activist-investor-nelson-peltz-source-112453687.html)
+- Oct 09 - ['It's not arrogance, it's math': An Alabama man asked Dave Ramsey if he should be worried about the US dollar collapsing — and the celeb's response was cutting. Here's why](https://finance.yahoo.com/news/youre-spending-too-much-time-130000552.html)
 - Oct 09 - [EU foreign ministers to meet on Tuesday to discuss situation in Israel - Borrell](https://news.yahoo.com/eu-foreign-minister-meet-tuesday-100950029.html)
-- Oct 09 - [The right is getting weirder about sex](https://news.yahoo.com/getting-weirder-sex-100001149.html)
-- Oct 09 - [Kremlin warns of danger of regional escalation after Israel violence](https://news.yahoo.com/kremlin-warns-risk-regional-escalation-092844293.html)
-- Oct 09 - [Authoritarianism Expert Says Nikki Haley's Trump Comment Means 1 Chilling Thing](https://news.yahoo.com/authoritarianism-expert-says-nikki-haleys-084359712.html)
 <!-- feed end -->
 
 ### Onstream
