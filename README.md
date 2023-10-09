@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Most casualties in recent Afghan earthquakes are women, children -WHO](https://news.yahoo.com/most-casualties-recent-afghan-earthquakes-114606463.html)
+- Oct 09 - [German far-right leader says gains in state elections show her party has 'arrived'](https://news.yahoo.com/german-far-leader-says-gains-123239266.html)
 - Oct 09 - [Western Washington earthquake sparks concerns among residents](https://news.yahoo.com/reports-western-washington-earthquake-sparks-025412124.html)
 - Oct 09 - [Disney caught by surprise by the return of activist investor Nelson Peltz: source](https://finance.yahoo.com/news/disney-caught-by-surprise-by-the-return-of-activist-investor-nelson-peltz-source-112453687.html)
 - Oct 09 - ['It's not arrogance, it's math': An Alabama man asked Dave Ramsey if he should be worried about the US dollar collapsing — and the celeb's response was cutting. Here's why](https://finance.yahoo.com/news/youre-spending-too-much-time-130000552.html)
-- Oct 09 - [EU foreign ministers to meet on Tuesday to discuss situation in Israel - Borrell](https://news.yahoo.com/eu-foreign-minister-meet-tuesday-100950029.html)
+- Oct 09 - [Is this Kansas City area’s most exclusive club? It’s owned by Patrick Mahomes’ barber](https://news.yahoo.com/kansas-city-area-most-exclusive-103000186.html)
 <!-- feed end -->
 
 ### Onstream
