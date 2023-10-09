@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [German far-right leader says gains in state elections show her party has 'arrived'](https://news.yahoo.com/german-far-leader-says-gains-123239266.html)
-- Oct 09 - [Western Washington earthquake sparks concerns among residents](https://news.yahoo.com/reports-western-washington-earthquake-sparks-025412124.html)
-- Oct 09 - [Disney caught by surprise by the return of activist investor Nelson Peltz: source](https://finance.yahoo.com/news/disney-caught-by-surprise-by-the-return-of-activist-investor-nelson-peltz-source-112453687.html)
-- Oct 09 - ['It's not arrogance, it's math': An Alabama man asked Dave Ramsey if he should be worried about the US dollar collapsing — and the celeb's response was cutting. Here's why](https://finance.yahoo.com/news/youre-spending-too-much-time-130000552.html)
-- Oct 09 - [Is this Kansas City area’s most exclusive club? It’s owned by Patrick Mahomes’ barber](https://news.yahoo.com/kansas-city-area-most-exclusive-103000186.html)
+- Oct 09 - [Stocks tumble as Middle East conflict rattles markets: Stock market news today](https://finance.yahoo.com/news/stocks-tumble-as-middle-east-conflict-rattles-markets-stock-market-news-today-133337454.html)
+- Oct 09 - [US raises the death toll to 9 of Americans killed in the weekend Hamas attacks on Israel](https://news.yahoo.com/us-raises-death-toll-9-131001914.html)
+- Oct 09 - [Team Trump Is Using ‘Fyre Festival Strategies’ in NY Fraud Case](https://news.yahoo.com/team-trump-using-fyre-festival-130738822.html)
+- Oct 09 - [UPDATE 2-Germany, Austria suspend bilateral aid to Palestinians after Hamas attack](https://finance.yahoo.com/news/2-germany-austria-suspend-bilateral-124259092.html)
+- Oct 09 - ['It's just bragging rights': This finance expert says once you attain this credit score, there's really 'no benefit' to scoring higher — here are 3 ways to hit that key threshold](https://finance.yahoo.com/news/just-bragging-rights-finance-expert-183000462.html)
 <!-- feed end -->
 
 ### Onstream
