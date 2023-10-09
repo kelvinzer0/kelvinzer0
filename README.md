@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 09 - [Kremlin warns of danger of regional escalation after Israel violence](https://news.yahoo.com/kremlin-warns-risk-regional-escalation-092844293.html)
 - Oct 09 - [Authoritarianism Expert Says Nikki Haley's Trump Comment Means 1 Chilling Thing](https://news.yahoo.com/authoritarianism-expert-says-nikki-haleys-084359712.html)
-- Oct 09 - [Israel battles Hamas, masses near Gaza after attack 'like 9/11'](https://news.yahoo.com/israel-battles-hamas-masses-near-082356646.html)
+- Oct 09 - [China opposes violence, attacks in Middle East crisis](https://news.yahoo.com/china-opposes-violence-attacks-middle-083308842.html)
 - Oct 09 - [Geraldo Rivera Gives CNN An Unfiltered Response To Trump's Latest 'Vile' Comment](https://news.yahoo.com/geraldo-rivera-gives-cnn-unfiltered-062046671.html)
 - Oct 09 - [The US will likely 'go to war' in Israel with air and naval power if Syria or Iran become actively involved, retired 4-star general says](https://news.yahoo.com/us-likely-war-israel-air-060243820.html)
-- Oct 09 - [Pro-Palestine Demonstrators March in California](https://news.yahoo.com/pro-palestine-demonstrators-march-california-053459521.html)
 <!-- feed end -->
 
 ### Onstream
