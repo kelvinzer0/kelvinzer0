@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 09 - [Israel festival revelers shot at point-blank range, video shows](https://news.yahoo.com/israel-festival-revelers-shot-point-151945849.html)
+- Oct 09 - [Trump rips Forbes after removal from wealthiest Americans list](https://news.yahoo.com/trump-rips-forbes-removal-wealthiest-151536598.html)
+- Oct 09 - [CBS Anchor Grills Nancy Mace Over Jim Jordan Allegedly Ignoring Sexual Abuse](https://news.yahoo.com/cbs-anchor-grills-nancy-mace-150919892.html)
 - Oct 09 - [Is Mar-a-Lago worth $1 billion? Trump's winter home valuations are at the core of his fraud trial](https://news.yahoo.com/mar-lago-worth-1-billion-143716443.html)
-- Oct 09 - [Tesla Cybertruck: Somebody paid $400,000 to get one of the first they'll build](https://www.autoblog.com/2023/10/09/tesla-cybertruck-with-a-low-vin-was-auctioned-for-400000-if-and-when-its-built/)
-- Oct 09 - [China urges Philippines to end 'provocations' in South China Sea](https://news.yahoo.com/china-urges-philippines-stop-provocation-135608844.html)
-- Oct 09 - [Team Trump Is Using ‘Fyre Festival Strategies’ in NY Fraud Case](https://news.yahoo.com/team-trump-using-fyre-festival-130738822.html)
-- Oct 09 - [Nikki Haley clashes with NBC host over Biden admin response to deadly terror attacks](https://news.yahoo.com/nikki-haley-clashes-nbc-host-125103648.html)
+- Oct 09 - [This Major Arcade1Up Prime Big Deal Days Sale Takes Hundreds Off an Arcade Cabinet](https://www.yahoo.com/lifestyle/major-arcade1up-prime-big-deal-140000677.html)
 <!-- feed end -->
 
 ### Onstream
