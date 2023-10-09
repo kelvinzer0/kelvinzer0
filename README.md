@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 09 - [Stocks tumble as Middle East conflict rattles markets: Stock market news today](https://finance.yahoo.com/news/stocks-tumble-as-middle-east-conflict-rattles-markets-stock-market-news-today-133337454.html)
-- Oct 09 - [US raises the death toll to 9 of Americans killed in the weekend Hamas attacks on Israel](https://news.yahoo.com/us-raises-death-toll-9-131001914.html)
+- Oct 09 - [Is Mar-a-Lago worth $1 billion? Trump's winter home valuations are at the core of his fraud trial](https://news.yahoo.com/mar-lago-worth-1-billion-143716443.html)
+- Oct 09 - [Tesla Cybertruck: Somebody paid $400,000 to get one of the first they'll build](https://www.autoblog.com/2023/10/09/tesla-cybertruck-with-a-low-vin-was-auctioned-for-400000-if-and-when-its-built/)
+- Oct 09 - [China urges Philippines to end 'provocations' in South China Sea](https://news.yahoo.com/china-urges-philippines-stop-provocation-135608844.html)
 - Oct 09 - [Team Trump Is Using ‘Fyre Festival Strategies’ in NY Fraud Case](https://news.yahoo.com/team-trump-using-fyre-festival-130738822.html)
-- Oct 09 - [UPDATE 2-Germany, Austria suspend bilateral aid to Palestinians after Hamas attack](https://finance.yahoo.com/news/2-germany-austria-suspend-bilateral-124259092.html)
-- Oct 09 - ['It's just bragging rights': This finance expert says once you attain this credit score, there's really 'no benefit' to scoring higher — here are 3 ways to hit that key threshold](https://finance.yahoo.com/news/just-bragging-rights-finance-expert-183000462.html)
+- Oct 09 - [Nikki Haley clashes with NBC host over Biden admin response to deadly terror attacks](https://news.yahoo.com/nikki-haley-clashes-nbc-host-125103648.html)
 <!-- feed end -->
 
 ### Onstream
