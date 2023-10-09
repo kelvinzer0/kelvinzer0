@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 09 - [US demands condemnation of Hamas at UN meeting, but Security Council takes no immediate action](https://news.yahoo.com/us-demands-condemnation-hamas-un-001317781.html)
+- Oct 08 - [Josh Gad Says He Was ‘Shamed, Unfollowed and Threatened’ for Israel Attacks Sympathy](https://www.yahoo.com/entertainment/josh-gad-says-shamed-unfollowed-231007536.html)
+- Oct 08 - [U.S. stocks skid, oil surges on Middle East uncertainty](https://finance.yahoo.com/news/u-stocks-slip-oil-surges-230608512.html)
+- Oct 08 - [Elon Musk flags Iranian supreme leader’s post on Hamas attack on Israel](https://news.yahoo.com/elon-musk-flags-iranian-supreme-215919531.html)
 - Oct 08 - [Dwayne ‘The Rock’ Johnson addresses Maui fund backlash: ‘I get it and I completely understand’](https://www.yahoo.com/entertainment/dwayne-rock-johnson-addresses-maui-204627702.html)
-- Oct 08 - [The US is sending its most advanced aircraft carrier and its heavily armed strike group to Israel's coast and will supply the country with more weapons and ammo](https://news.yahoo.com/us-sending-most-advanced-aircraft-182712832.html)
-- Oct 08 - [Head of Exxon's shale oil business faces sexual assault charge in Texas](https://finance.yahoo.com/news/head-exxons-shale-oil-business-203251386.html)
-- Oct 08 - [California Gov. Gavin Newsom vetoes bill aimed at limiting the price of insulin](https://news.yahoo.com/california-gov-gavin-newsom-vetoes-202936014.html)
-- Oct 08 - [How a sunrise desert rave was shattered by paragliding Hamas gunmen](https://news.yahoo.com/paragliding-hamas-gunmen-descend-upon-135926648.html)
 <!-- feed end -->
 
 ### Onstream
