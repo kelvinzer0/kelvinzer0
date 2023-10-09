@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 09 - [Israeli Defense Minister Calls for ‘Complete Siege’ of Gaza Strip Two Days After Hamas' Surprise Attack](https://www.yahoo.com/entertainment/israeli-defense-minister-calls-complete-164313411.html)
+- Oct 09 - [Missing Oklahoma man found safe in Texas](https://news.yahoo.com/missing-oklahoma-man-found-safe-154811968.html)
 - Oct 09 - [Israel festival revelers shot at point-blank range, video shows](https://news.yahoo.com/israel-festival-revelers-shot-point-151945849.html)
 - Oct 09 - [Trump rips Forbes after removal from wealthiest Americans list](https://news.yahoo.com/trump-rips-forbes-removal-wealthiest-151536598.html)
-- Oct 09 - [CBS Anchor Grills Nancy Mace Over Jim Jordan Allegedly Ignoring Sexual Abuse](https://news.yahoo.com/cbs-anchor-grills-nancy-mace-150919892.html)
-- Oct 09 - [Is Mar-a-Lago worth $1 billion? Trump's winter home valuations are at the core of his fraud trial](https://news.yahoo.com/mar-lago-worth-1-billion-143716443.html)
-- Oct 09 - [This Major Arcade1Up Prime Big Deal Days Sale Takes Hundreds Off an Arcade Cabinet](https://www.yahoo.com/lifestyle/major-arcade1up-prime-big-deal-140000677.html)
+- Oct 09 - [US House Republicans plot next moves on leader, McCarthy says he would go back](https://news.yahoo.com/us-house-republicans-plot-next-150522199.html)
 <!-- feed end -->
 
 ### Onstream
