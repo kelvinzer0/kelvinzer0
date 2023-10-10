@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [The 30 best Amazon Prime Day deals for October 2023](https://news.yahoo.com/best-october-amazon-prime-day-deals-100020186.html)
-- Oct 10 - [Texas prepares for inmate's execution in hopes that Supreme Court allows it to happen](https://news.yahoo.com/texas-prepares-inmates-execution-hopes-173340387.html)
-- Oct 10 - [Turkey's Erdogan says U.S. sending aircraft carrier closer to Israel to commit massacre in Gaza](https://news.yahoo.com/turkeys-erdogan-says-u-sending-171225581.html)
-- Oct 10 - ["Tremendous embarrassment": Trump runs to London court after U.S. judge rejected Steele dossier suit](https://news.yahoo.com/tremendous-embarrassment-trump-runs-london-170921610.html)
-- Oct 10 - [One of Marjorie Taylor Greene's top priorities in a new speaker is advancing a bill to restrict trans children and adults from receiving gender-affirming care](https://news.yahoo.com/one-marjorie-taylor-greenes-top-170019219.html)
+- Oct 10 - [The best Walmart Deals you can get right now on Prime Day](https://news.yahoo.com/walmart-prime-day-holiday-kickoff-deals-185926040.html)
+- Oct 10 - [White House condemns a violent crash at the Chinese Consulate in San Francisco](https://news.yahoo.com/white-house-condemns-violent-crash-183922419.html)
+- Oct 10 - [Oklahoma judge dismisses case of man who spent 30 years in prison for Ada rape](https://news.yahoo.com/oklahoma-judge-dismisses-case-man-182729088.html)
+- Oct 10 - [Biden approval near lowest of his term as immigration concerns rise -Reuters/Ipsos poll](https://news.yahoo.com/biden-approval-near-lowest-term-182611206.html)
+- Oct 10 - [An American couple left their rent-free life in Mexico and moved to a $7,500 abandoned home in Japan: 'We feel overwhelmingly welcome'](https://finance.yahoo.com/news/american-couple-left-rent-free-180405881.html)
 <!-- feed end -->
 
 ### Onstream
