@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [Biden's second try at student loan cancellation moves forward with debate over plan's details](https://news.yahoo.com/bidens-second-try-student-loan-043413617.html)
+- Oct 10 - [Live updates | 1,500 bodies of Hamas militants found in Israel as it claims full control over border](https://news.yahoo.com/live-updates-18-thais-feared-045349430.html)
 - Oct 10 - [Kari Lake wants to be elected to the Senate. She also wants to keep fighting the election she lost](https://news.yahoo.com/kari-lake-wants-elected-senate-042350512.html)
+- Oct 10 - [Donald Trump’s civil fraud trial resuming with ex-CFO Allen Weisselberg on the witness stand](https://finance.yahoo.com/news/donald-trump-civil-fraud-trial-041637711.html)
 - Oct 10 - [AI was told to design a robot that could walk. Within seconds, it generated a 'small, squishy, and misshapen' thing that spasms.](https://news.yahoo.com/ai-told-design-robot-could-025314211.html)
 - Oct 10 - [Taiwan seeks 'peaceful coexistence' with China, president says](https://news.yahoo.com/taiwan-seeks-peaceful-coexistence-china-024551646.html)
-- Oct 10 - [Woman buying pot from NYC deli maced, dragged by hair, kicked in head by cashier who mistook her for trans](https://news.yahoo.com/woman-buying-pot-nyc-deli-024300937.html)
 <!-- feed end -->
 
 ### Onstream
