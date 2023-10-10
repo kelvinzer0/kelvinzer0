@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [The US declares the ousting of Niger's president a coup and suspends military aid and training](https://news.yahoo.com/us-declares-ousting-nigers-president-163016268.html)
-- Oct 10 - [Palestinians in Gaza say Israeli bombardment feels like new 'Nakba'](https://news.yahoo.com/palestinians-gaza-israeli-bombardment-feels-161342178.html)
-- Oct 10 - [Remember The Smiling Cop Who Beat The Black Vet? Well... The DOJ Remembers Him Too](https://news.yahoo.com/remember-smiling-cop-beat-black-152800742.html)
-- Oct 10 - [Group in Nazi gear served at Torchy’s Tacos in Fort Worth; 1 tells diner ‘white power’](https://news.yahoo.com/group-nazi-gear-served-torchy-152341569.html)
-- Oct 10 - [Boeing 737 MAX monthly deliveries fall to lowest since 2021](https://news.yahoo.com/boeing-737-max-monthly-deliveries-150203571.html)
+- Oct 10 - [The 30 best Amazon Prime Day deals for October 2023](https://news.yahoo.com/best-october-amazon-prime-day-deals-100020186.html)
+- Oct 10 - [Texas prepares for inmate's execution in hopes that Supreme Court allows it to happen](https://news.yahoo.com/texas-prepares-inmates-execution-hopes-173340387.html)
+- Oct 10 - [Turkey's Erdogan says U.S. sending aircraft carrier closer to Israel to commit massacre in Gaza](https://news.yahoo.com/turkeys-erdogan-says-u-sending-171225581.html)
+- Oct 10 - ["Tremendous embarrassment": Trump runs to London court after U.S. judge rejected Steele dossier suit](https://news.yahoo.com/tremendous-embarrassment-trump-runs-london-170921610.html)
+- Oct 10 - [One of Marjorie Taylor Greene's top priorities in a new speaker is advancing a bill to restrict trans children and adults from receiving gender-affirming care](https://news.yahoo.com/one-marjorie-taylor-greenes-top-170019219.html)
 <!-- feed end -->
 
 ### Onstream
