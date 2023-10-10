@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [US aircraft carrier due to arrive in South Korea on Thursday](https://news.yahoo.com/us-aircraft-carrier-due-arrive-024806089.html)
-- Oct 10 - [Taiwan seeks 'peaceful coexistence' with China, president says](https://news.yahoo.com/taiwan-seeks-peaceful-coexistence-china-024551646.html)
+- Oct 10 - [AI was told to design a robot that could walk. Within seconds, it generated a 'small, squishy, and misshapen' thing that spasms.](https://news.yahoo.com/ai-told-design-robot-could-025314211.html)
 - Oct 10 - [Bruno Mars Evacuated Israel So Quickly Amid Terrorist Attacks, He Left His Band’s Gear Behind](https://www.yahoo.com/entertainment/bruno-mars-evacuated-israel-quickly-011352439.html)
 - Oct 10 - [Do not get involved in Israel crisis, top U.S. general warns Iran](https://news.yahoo.com/not-involved-israel-crisis-top-011033045.html)
+- Oct 10 - [Las Vegas woman deemed ‘moderate risk’ kills mom of 8 after getting out of jail without bail in similar beating](https://news.yahoo.com/las-vegas-woman-deemed-moderate-010646749.html)
 - Oct 09 - [Russia's Most Advanced Frontline Tank Absolutely Detonates When Hit By Missile](https://news.yahoo.com/russias-most-advanced-frontline-tank-231813792.html)
 <!-- feed end -->
 
