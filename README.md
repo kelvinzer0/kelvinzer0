@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [The best Amazon Prime Day deals for October 2023](https://news.yahoo.com/best-october-amazon-prime-day-deals-100020186.html)
+- Oct 10 - [Senior Iraqi political figure threatens to target U.S. interests if it backs Israel](https://news.yahoo.com/senior-iraqi-political-figure-threatens-131758733.html)
+- Oct 10 - [‘I’m Tired of It’: Outraged Suburban St. Louis Mom Says Her Daughter Had to Wear Headphones to Drown Out Racial Slurs Being Hurled at Her By Other Students](https://news.yahoo.com/m-tired-outraged-suburban-st-130000939.html)
+- Oct 10 - [“His lawyers couldn’t trust him”: Experts stunned at differences between Biden and Trump docs cases](https://news.yahoo.com/lawyers-couldn-t-trust-him-125759811.html)
 - Oct 10 - [Former Wisconsin Supreme Court justice advises Republican leader against impeachment](https://news.yahoo.com/former-wisconsin-supreme-court-justice-121044980.html)
-- Oct 10 - [Explainer-Israel-Palestinian dispute hinges on statehood, land, Jerusalem, refugees](https://news.yahoo.com/explainer-israel-palestinian-dispute-hinges-111050682.html)
-- Oct 10 - [Moms for Liberty meets its match: Parents in this swing suburban district are fighting back](https://news.yahoo.com/moms-liberty-meets-match-parents-100001256.html)
-- Oct 10 - [Jarring footage shows cars driving through ‘rivers of hail’ after storm brings downpours to region: ‘Beware … your car will just start floating out of control’](https://news.yahoo.com/jarring-footage-shows-cars-driving-093000003.html)
-- Oct 10 - [North Carolina Republicans Are Creating a ‘Secret Police Force’](https://news.yahoo.com/north-carolina-republicans-creating-secret-084624794.html)
 <!-- feed end -->
 
 ### Onstream
