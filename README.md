@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 10 - [The silent streets of Stepanakert where 100,000 people ‘vanished’](https://news.yahoo.com/silent-streets-stepanakert-where-100-060000884.html)
 - Oct 10 - [Hamas terrorists post Israeli grandmother's gruesome murder on her Facebook](https://news.yahoo.com/hamas-terrorists-post-israeli-grandmothers-055003846.html)
-- Oct 10 - [Live updates | Gaza’s parliament and civilian ministries are legitimate targets, Israel says](https://news.yahoo.com/live-updates-18-thais-feared-045349430.html)
 - Oct 10 - [Smash-and-grab thieves fired on by jewelry store employee](https://news.yahoo.com/smash-grab-thieves-fired-jewelry-041555570.html)
 - Oct 10 - [AI was told to design a robot that could walk. Within seconds, it generated a 'small, squishy, and misshapen' thing that spasms.](https://news.yahoo.com/ai-told-design-robot-could-025314211.html)
+- Oct 10 - [Taiwan seeks 'peaceful coexistence' with China, president says](https://news.yahoo.com/taiwan-seeks-peaceful-coexistence-china-024551646.html)
 <!-- feed end -->
 
 ### Onstream
