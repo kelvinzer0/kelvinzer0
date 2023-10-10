@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - ['You do not speak for me' to 'A strong statement needed to be made': Canadians react to leaders addressing Israel-Gaza war](https://news.yahoo.com/israel-gaza-hamas-trudeau-ford-rally-ottawa-195053392.html)
 - Oct 10 - [104-year-old Chicago woman dies days after making a skydive that could put her in the record books](https://news.yahoo.com/104-old-chicago-woman-dies-193659676.html)
-- Oct 10 - [Trump legal news brief: Weisselberg testifies Trump’s penthouse apartment is much smaller than what he reported on financial statements](https://news.yahoo.com/trump-legal-news-brief-weisselberg-testifies-trumps-penthouse-apartment-is-much-smaller-than-what-he-reported-on-financial-statements-193021942.html)
-- Oct 10 - [Rep. Lauren Boebert is officially divorced after tense hearing where the congresswoman rejected a judge's plan for $1800 a month child support](https://news.yahoo.com/rep-lauren-boebert-officially-divorced-185544513.html)
+- Oct 10 - [Rep. Lauren Boebert is officially divorced after tense hearing where the congresswoman rejected a judge's plan for $1800 a month child support](https://news.yahoo.com/rep-lauren-boebert-officially-divorced-185544592.html)
 - Oct 10 - [An American couple left their rent-free life in Mexico and moved to a $7,500 abandoned home in Japan: 'We feel overwhelmingly welcome'](https://finance.yahoo.com/news/american-couple-left-rent-free-180405881.html)
-- Oct 10 - [5,000-year-old wine hidden in hundreds of jars at Egyptian queen’s tomb. Take a look](https://news.yahoo.com/5-000-old-wine-hidden-174853552.html)
+- Oct 10 - [FTX cofounder Gary Wang says he took out $200 million to $300 million in loans from Alameda Research for investments he couldn’t ‘recall’](https://finance.yahoo.com/news/ftx-cofounder-gary-wang-says-180049885.html)
 <!-- feed end -->
 
 ### Onstream
