@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Former Wisconsin Supreme Court justice advises Republican leader against impeachment](https://news.yahoo.com/former-wisconsin-supreme-court-justice-121044980.html)
+- Oct 10 - [Explainer-Israel-Palestinian dispute hinges on statehood, land, Jerusalem, refugees](https://news.yahoo.com/explainer-israel-palestinian-dispute-hinges-111050682.html)
 - Oct 10 - [Moms for Liberty meets its match: Parents in this swing suburban district are fighting back](https://news.yahoo.com/moms-liberty-meets-match-parents-100001256.html)
-- Oct 10 - [2 top Polish military commanders resign in a spat with the defense minister](https://news.yahoo.com/2-top-polish-military-commanders-091130494.html)
+- Oct 10 - [Jarring footage shows cars driving through ‘rivers of hail’ after storm brings downpours to region: ‘Beware … your car will just start floating out of control’](https://news.yahoo.com/jarring-footage-shows-cars-driving-093000003.html)
 - Oct 10 - [North Carolina Republicans Are Creating a ‘Secret Police Force’](https://news.yahoo.com/north-carolina-republicans-creating-secret-084624794.html)
-- Oct 10 - [Bryan Kohberger trial: Survivors of Idaho massacre were awake, texting during rampage: report](https://news.yahoo.com/bryan-kohberger-trial-survivors-idaho-080032347.html)
-- Oct 10 - [The mobs cheering Hamas on the streets of Britain have proved Suella right](https://news.yahoo.com/suella-said-multiculturalism-failed-exactly-060000961.html)
 <!-- feed end -->
 
 ### Onstream
