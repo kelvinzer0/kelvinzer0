@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [This TikToker Is Going Viral For His Hack For Anxiety Relief, So I Asked A Psychiatrist If It Works — And To My Surprise, It Actually Can](https://www.yahoo.com/lifestyle/tiktoker-going-viral-hack-anxiety-142328987.html)
-- Oct 10 - [The great China delusion](https://news.yahoo.com/great-china-delusion-140818872.html)
-- Oct 10 - [Pastor Accused of Sexually Assaulting Underage Relative 600 Times](https://news.yahoo.com/pastor-accused-sexually-assaulting-underage-140125558.html)
-- Oct 10 - [‘WTF Is Going on Here?’: Resurfaced Video from 2012 Shows White South African Students Wearing Blackface Because They Believe They’re Victims of Discrimination](https://news.yahoo.com/wtf-going-resurfaced-video-2012-140000407.html)
-- Oct 10 - [The best October Prime Day gaming deals for 2023](https://news.yahoo.com/best-october-prime-day-gaming-deals-122232851.html)
+- Oct 10 - [NATO equips peacekeeping force in Kosovo with heavier armament to have “combat power”](https://news.yahoo.com/nato-equips-peacekeeping-force-kosovo-155257402.html)
+- Oct 10 - [Factbox-What is the UN Human Rights Council and what does it do?](https://news.yahoo.com/factbox-un-human-rights-council-154907635.html)
+- Oct 10 - [The best Amazon Prime Day deals for October 2023](https://news.yahoo.com/best-october-amazon-prime-day-deals-100020186.html)
+- Oct 10 - [Russian forces close in on east Ukraine's Avdiivka](https://news.yahoo.com/russian-forces-close-east-ukraines-154504963.html)
+- Oct 10 - [Group in Nazi gear served at Torchy’s Tacos in Fort Worth; 1 tells diner ‘white power’](https://news.yahoo.com/group-nazi-gear-served-torchy-152341569.html)
 <!-- feed end -->
 
 ### Onstream
