@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Scrutiny of Arkansas governor's $19,000 lectern deepens after new records are released](https://news.yahoo.com/scrutiny-arkansas-governors-19-000-225046503.html)
 - Oct 10 - [Rep. Santos faces new charges he stole donor IDs, made unauthorized charges to their credit cards](https://news.yahoo.com/rep-santos-faces-charges-stole-214857289.html)
-- Oct 10 - [US congressman Santos hit with more charges for inflating fundraising numbers](https://news.yahoo.com/us-congressman-santos-charged-23-214440298.html)
 - Oct 10 - [People Are Sharing The Absolute Dumbest Things They've Ever Seen A Coworker Do While On The Job, And I Almost Feel Bad For Laughing](https://www.yahoo.com/lifestyle/people-sharing-absolute-dumbest-things-211602959.html)
 - Oct 10 - ['You do not speak for me' to 'A strong statement needed to be made': Canadians react to leaders addressing Israel-Gaza war](https://news.yahoo.com/israel-gaza-hamas-trudeau-ford-rally-ottawa-195053392.html)
 - Oct 10 - [Florida's Republican attorney general will oppose putting abortion rights amendment on 2024 ballot](https://news.yahoo.com/floridas-republican-attorney-general-oppose-194436436.html)
