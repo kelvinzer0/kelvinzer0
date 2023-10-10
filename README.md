@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [The best Walmart Deals you can get right now on Prime Day](https://news.yahoo.com/walmart-prime-day-holiday-kickoff-deals-185926040.html)
-- Oct 10 - [White House condemns a violent crash at the Chinese Consulate in San Francisco](https://news.yahoo.com/white-house-condemns-violent-crash-183922419.html)
-- Oct 10 - [Oklahoma judge dismisses case of man who spent 30 years in prison for Ada rape](https://news.yahoo.com/oklahoma-judge-dismisses-case-man-182729088.html)
-- Oct 10 - [Biden approval near lowest of his term as immigration concerns rise -Reuters/Ipsos poll](https://news.yahoo.com/biden-approval-near-lowest-term-182611206.html)
+- Oct 10 - [104-year-old Chicago woman dies days after making a skydive that could put her in the record books](https://news.yahoo.com/104-old-chicago-woman-dies-193659676.html)
+- Oct 10 - [Trump legal news brief: Weisselberg testifies Trump’s penthouse apartment is much smaller than what he reported on financial statements](https://news.yahoo.com/trump-legal-news-brief-weisselberg-testifies-trumps-penthouse-apartment-is-much-smaller-than-what-he-reported-on-financial-statements-193021942.html)
+- Oct 10 - [Rep. Lauren Boebert is officially divorced after tense hearing where the congresswoman rejected a judge's plan for $1800 a month child support](https://news.yahoo.com/rep-lauren-boebert-officially-divorced-185544513.html)
 - Oct 10 - [An American couple left their rent-free life in Mexico and moved to a $7,500 abandoned home in Japan: 'We feel overwhelmingly welcome'](https://finance.yahoo.com/news/american-couple-left-rent-free-180405881.html)
+- Oct 10 - [5,000-year-old wine hidden in hundreds of jars at Egyptian queen’s tomb. Take a look](https://news.yahoo.com/5-000-old-wine-hidden-174853552.html)
 <!-- feed end -->
 
 ### Onstream
