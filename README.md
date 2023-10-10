@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [The best Amazon Prime Day deals for October 2023](https://news.yahoo.com/best-october-amazon-prime-day-deals-100020186.html)
-- Oct 10 - [Senior Iraqi political figure threatens to target U.S. interests if it backs Israel](https://news.yahoo.com/senior-iraqi-political-figure-threatens-131758733.html)
-- Oct 10 - [‘I’m Tired of It’: Outraged Suburban St. Louis Mom Says Her Daughter Had to Wear Headphones to Drown Out Racial Slurs Being Hurled at Her By Other Students](https://news.yahoo.com/m-tired-outraged-suburban-st-130000939.html)
-- Oct 10 - [“His lawyers couldn’t trust him”: Experts stunned at differences between Biden and Trump docs cases](https://news.yahoo.com/lawyers-couldn-t-trust-him-125759811.html)
-- Oct 10 - [Former Wisconsin Supreme Court justice advises Republican leader against impeachment](https://news.yahoo.com/former-wisconsin-supreme-court-justice-121044980.html)
+- Oct 10 - [This TikToker Is Going Viral For His Hack For Anxiety Relief, So I Asked A Psychiatrist If It Works — And To My Surprise, It Actually Can](https://www.yahoo.com/lifestyle/tiktoker-going-viral-hack-anxiety-142328987.html)
+- Oct 10 - [The great China delusion](https://news.yahoo.com/great-china-delusion-140818872.html)
+- Oct 10 - [Pastor Accused of Sexually Assaulting Underage Relative 600 Times](https://news.yahoo.com/pastor-accused-sexually-assaulting-underage-140125558.html)
+- Oct 10 - [‘WTF Is Going on Here?’: Resurfaced Video from 2012 Shows White South African Students Wearing Blackface Because They Believe They’re Victims of Discrimination](https://news.yahoo.com/wtf-going-resurfaced-video-2012-140000407.html)
+- Oct 10 - [The best October Prime Day gaming deals for 2023](https://news.yahoo.com/best-october-prime-day-gaming-deals-122232851.html)
 <!-- feed end -->
 
 ### Onstream
