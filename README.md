@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [NATO equips peacekeeping force in Kosovo with heavier armament to have “combat power”](https://news.yahoo.com/nato-equips-peacekeeping-force-kosovo-155257402.html)
-- Oct 10 - [Factbox-What is the UN Human Rights Council and what does it do?](https://news.yahoo.com/factbox-un-human-rights-council-154907635.html)
-- Oct 10 - [The best Amazon Prime Day deals for October 2023](https://news.yahoo.com/best-october-amazon-prime-day-deals-100020186.html)
-- Oct 10 - [Russian forces close in on east Ukraine's Avdiivka](https://news.yahoo.com/russian-forces-close-east-ukraines-154504963.html)
+- Oct 10 - [The US declares the ousting of Niger's president a coup and suspends military aid and training](https://news.yahoo.com/us-declares-ousting-nigers-president-163016268.html)
+- Oct 10 - [Palestinians in Gaza say Israeli bombardment feels like new 'Nakba'](https://news.yahoo.com/palestinians-gaza-israeli-bombardment-feels-161342178.html)
+- Oct 10 - [Remember The Smiling Cop Who Beat The Black Vet? Well... The DOJ Remembers Him Too](https://news.yahoo.com/remember-smiling-cop-beat-black-152800742.html)
 - Oct 10 - [Group in Nazi gear served at Torchy’s Tacos in Fort Worth; 1 tells diner ‘white power’](https://news.yahoo.com/group-nazi-gear-served-torchy-152341569.html)
+- Oct 10 - [Boeing 737 MAX monthly deliveries fall to lowest since 2021](https://news.yahoo.com/boeing-737-max-monthly-deliveries-150203571.html)
 <!-- feed end -->
 
 ### Onstream
