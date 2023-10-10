@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Blinken calls deposed Niger leader ahead of expected US declaration that his overthrow was a coup](https://news.yahoo.com/blinken-calls-deposed-niger-leader-013605162.html)
+- Oct 10 - [Bruno Mars Evacuated Israel So Quickly Amid Terrorist Attacks, He Left His Band’s Gear Behind](https://www.yahoo.com/entertainment/bruno-mars-evacuated-israel-quickly-011352439.html)
 - Oct 09 - [Russia's Most Advanced Frontline Tank Absolutely Detonates When Hit By Missile](https://news.yahoo.com/russias-most-advanced-frontline-tank-231813792.html)
-- Oct 09 - [University of Washington asks court to dismiss Oregon State, Washington State's suit against Pac-12](https://news.yahoo.com/university-washington-asks-court-dismiss-231102607.html)
 - Oct 09 - [2024 Porsche Macan Electric Preview: Next-gen in every possible way](https://www.autoblog.com/2023/10/09/2024-porsche-macan-review/)
 - Oct 09 - [Wisconsin GOP leader silent on impeachment of Supreme Court justice after earlier floating it](https://news.yahoo.com/wisconsin-gop-leader-silent-impeachment-210802336.html)
-- Oct 09 - [Socialist rally in Times Square praising Hamas terror attack draws widespread condemnation](https://news.yahoo.com/socialist-rally-in-times-square-praising-hamas-terror-attack-draws-widespread-condemnation-204123785.html)
 <!-- feed end -->
 
 ### Onstream
