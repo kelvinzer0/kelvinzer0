@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 10 - [The silent streets of Stepanakert where 100,000 people ‘vanished’](https://news.yahoo.com/silent-streets-stepanakert-where-100-060000884.html)
-- Oct 10 - [Hamas terrorists post Israeli grandmother's murder on her Facebook page](https://news.yahoo.com/hamas-terrorists-post-israeli-grandmothers-055003846.html)
-- Oct 10 - [Live updates | A third French citizen has died and 14 others are missing in latest Israel-Hamas war](https://news.yahoo.com/live-updates-18-thais-feared-045349430.html)
-- Oct 10 - [Smash-and-grab thieves fired on by jewelry store employee](https://news.yahoo.com/smash-grab-thieves-fired-jewelry-041555570.html)
-- Oct 10 - [AI was told to design a robot that could walk. Within seconds, it generated a 'small, squishy, and misshapen' thing that spasms.](https://news.yahoo.com/ai-told-design-robot-could-025314211.html)
+- Oct 10 - [Nonbinary student ready for 'normal' after winning Oregon school discrimination lawsuit](https://news.yahoo.com/nonbinary-student-ready-normal-winning-093148217.html)
+- Oct 10 - [2 top Polish military commanders resign in a spat with the defense minister](https://news.yahoo.com/2-top-polish-military-commanders-091130494.html)
+- Oct 10 - [North Carolina Republicans Are Creating a ‘Secret Police Force’](https://news.yahoo.com/north-carolina-republicans-creating-secret-084624794.html)
+- Oct 10 - [The silent streets of Stepanakert abandoned at the drop of a hat](https://news.yahoo.com/silent-streets-stepanakert-where-100-060000884.html)
+- Oct 10 - [Hamas terrorists post Israeli grandmother’s murder on her Facebook page](https://news.yahoo.com/hamas-terrorists-post-israeli-grandmothers-055003846.html)
 <!-- feed end -->
 
 ### Onstream
