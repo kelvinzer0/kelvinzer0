@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [Rep. Santos faces new charges he stole donor IDs, made unauthorized charges to their credit cards](https://news.yahoo.com/rep-santos-faces-charges-stole-214857289.html)
+- Oct 10 - [US congressman Santos hit with more charges for inflating fundraising numbers](https://news.yahoo.com/us-congressman-santos-charged-23-214440298.html)
+- Oct 10 - [People Are Sharing The Absolute Dumbest Things They've Ever Seen A Coworker Do While On The Job, And I Almost Feel Bad For Laughing](https://www.yahoo.com/lifestyle/people-sharing-absolute-dumbest-things-211602959.html)
 - Oct 10 - ['You do not speak for me' to 'A strong statement needed to be made': Canadians react to leaders addressing Israel-Gaza war](https://news.yahoo.com/israel-gaza-hamas-trudeau-ford-rally-ottawa-195053392.html)
-- Oct 10 - [104-year-old Chicago woman dies days after making a skydive that could put her in the record books](https://news.yahoo.com/104-old-chicago-woman-dies-193659676.html)
-- Oct 10 - [Rep. Lauren Boebert is officially divorced after tense hearing where the congresswoman rejected a judge's plan for $1800 a month child support](https://news.yahoo.com/rep-lauren-boebert-officially-divorced-185544592.html)
-- Oct 10 - [An American couple left their rent-free life in Mexico and moved to a $7,500 abandoned home in Japan: 'We feel overwhelmingly welcome'](https://finance.yahoo.com/news/american-couple-left-rent-free-180405881.html)
-- Oct 10 - [FTX cofounder Gary Wang says he took out $200 million to $300 million in loans from Alameda Research for investments he couldn’t ‘recall’](https://finance.yahoo.com/news/ftx-cofounder-gary-wang-says-180049885.html)
+- Oct 10 - [Florida's Republican attorney general will oppose putting abortion rights amendment on 2024 ballot](https://news.yahoo.com/floridas-republican-attorney-general-oppose-194436436.html)
 <!-- feed end -->
 
 ### Onstream
