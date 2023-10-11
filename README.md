@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Convicted rapist deemed too young for jail after allegedly attacking 13-year-old girl has conviction quashed](https://news.yahoo.com/convicted-rapist-deemed-too-young-134821542.html)
-- Oct 11 - [New Jack Smith filing suggests DOJ identified Trump’s "motive" in classified docs case: analysis](https://news.yahoo.com/jack-smith-filing-suggests-doj-131556954.html)
-- Oct 11 - [She was told her twin sons wouldn’t survive. Texas law made her give birth anyway.](https://news.yahoo.com/she-told-her-twin-sons-100000854.html)
-- Oct 11 - [Ex-Prosecutor Says Jack Smith ‘Hasn’t Just Taken Off The Gloves’ With New Trump Move](https://news.yahoo.com/ex-prosecutor-says-jack-smith-092921101.html)
-- Oct 11 - [Israel girl's final message in family Whatsapp chat before disappearing during Hamas abductions](https://news.yahoo.com/israel-girls-final-message-family-group-chat-disappearing-hamas-abductions-084616762.html)
+- Oct 11 - [NASA shows off its first asteroid samples delivered by a spacecraft](https://news.yahoo.com/nasa-shows-off-first-asteroid-160014630.html)
+- Oct 11 - [Democratic challenger raises more campaign cash than GOP incumbent in Mississippi governor's race](https://news.yahoo.com/democratic-challenger-raises-more-campaign-155252014.html)
+- Oct 11 - [Disney to hike theme park pass, ticket prices](https://finance.yahoo.com/video/disney-hike-theme-park-pass-154301769.html)
+- Oct 11 - ['Fired for expressing views?': Canadians split after Air Canada removes pilot for posting Palestine protest photos](https://news.yahoo.com/air-canada-pilot-palestine-protest-153914191.html)
+- Oct 11 - [Former NFL player Sergio Brown taken into custody in connection with his mother’s death, source says](https://news.yahoo.com/former-nfl-player-sergio-brown-142012974.html)
 <!-- feed end -->
 
 ### Onstream
