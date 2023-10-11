@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [UAW strike: General Dynamics workers vote to strike in 3 states](https://finance.yahoo.com/video/uaw-strike-general-dynamics-workers-203242650.html)
-- Oct 11 - [The 12 best Apple deals from October Prime Day: AirPods, iPads, Apple Watches & more](https://news.yahoo.com/the-12-best-apple-deals-from-october-prime-day-airpods-ipads-apple-watches-more-203138675.html)
+- Oct 11 - [The Trump 'haircut': yes, Deutsche Bank really used this term in reducing what Trump said he was worth](https://news.yahoo.com/trump-haircut-yes-deutsche-bank-210728495.html)
+- Oct 11 - ["I'm Tired Of Seeing Car Dealerships Ruin Families' Lives" — This Woman Went Viral For Sharing How To Buy A Car Without Getting Completely Screwed Over](https://www.yahoo.com/lifestyle/im-tired-seeing-car-dealerships-210659095.html)
+- Oct 11 - [Thief Has Stolen At Least 25 Times From Target: Cops](https://news.yahoo.com/thief-stolen-least-25-times-195842453.html)
 - Oct 11 - [Pregnant 11-year-old girl twice raped by teenage boys should have abortion, High Court judge rules](https://news.yahoo.com/pregnant-11-old-girl-twice-195308178.html)
 - Oct 11 - [Journalist Who First Reported Israeli Child Beheadings Says She Saw Atrocities ‘With My Own Eyes’ (Video)](https://www.yahoo.com/entertainment/journalist-first-reported-israeli-child-194917181.html)
-- Oct 11 - [A Win!: 93-Year-Old South Carolina Woman Surpasses $350K In Fight to Keep Her Land with Help from Tyler Perry, Kyrie Irving and Other Black Celebrities](https://news.yahoo.com/win-93-old-south-carolina-194345186.html)
 <!-- feed end -->
 
 ### Onstream
