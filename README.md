@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 11 - [Former Hamas chief calls for protests, neighbours to join war against Israel](https://news.yahoo.com/former-hamas-chief-calls-protests-071826976.html)
 - Oct 11 - [German woman paraded by Hamas after festival massacre is 'still alive'](https://news.yahoo.com/german-tattoo-artist-abducted-hamas-051807000.html)
 - Oct 11 - [Bill Ackman calls on Harvard to release the names of students in groups holding Israel responsible for Hamas violence — so CEOs don't 'inadvertently hire' them](https://finance.yahoo.com/news/bill-ackman-calls-harvard-release-210130914.html)
 - Oct 11 - [Sen. Mitt Romney urged Democratic senators to challenge Biden — and he named names](https://news.yahoo.com/sen-mitt-romney-urged-democratic-034648461.html)
 - Oct 11 - [90 Day Fiancé’s Alexei and Loren Speak Out About Terrorist Attacks in Israel](https://www.yahoo.com/entertainment/90-day-fianc-alexei-loren-014202828.html)
-- Oct 11 - [Bankruptcy could force this popular retailer to close 500 stores](https://www.thestreet.com/retailers/bankruptcy-could-force-this-popular-retailer-to-close-500-stores?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
