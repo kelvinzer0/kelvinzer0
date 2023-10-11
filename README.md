@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 11 - [Bankruptcy could force this popular retailer to close 500 stores](https://www.thestreet.com/retailers/bankruptcy-could-force-this-popular-retailer-to-close-500-stores?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 11 - [Former Connecticut state worker bangs gun, open fires in police station](https://news.yahoo.com/former-connecticut-state-worker-bangs-005326977.html)
 - Oct 11 - [Pakistan's 'shameful' first Miss Universe contestant](https://news.yahoo.com/pakistans-shameful-first-miss-universe-001027431.html)
 - Oct 10 - [California's 'right to repair' bill is now California's 'right to repair' law](https://news.yahoo.com/californias-right-to-repair-bill-is-now-californias-right-to-repair-law-232526782.html)
 - Oct 10 - [Nancy Mace Wears ‘Scarlet Letter’ After McCarthy Vote](https://news.yahoo.com/nancy-mace-wears-scarlet-letter-231448824.html)
-- Oct 10 - [A helicopter sparked a massive crocodile mating sex frenzy when they probably mistook the sound for a giant thunderstorm](https://news.yahoo.com/helicopter-sparked-massive-crocodile-mating-225958101.html)
-- Oct 10 - [Scrutiny of Arkansas governor's $19,000 lectern deepens after new records are released](https://news.yahoo.com/scrutiny-arkansas-governors-19-000-225046503.html)
 <!-- feed end -->
 
 ### Onstream
