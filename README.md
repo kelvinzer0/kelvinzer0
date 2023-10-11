@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 11 - [Ex-Prosecutor Says Jack Smith 'Hasn't Just Taken Off The Gloves' With New Trump Move](https://news.yahoo.com/ex-prosecutor-says-jack-smith-092921101.html)
 - Oct 11 - [Ex-Pence Aide Recalls What Trump Said About MAGA Fans In Private. It's Not Good.](https://news.yahoo.com/ex-pence-aide-recalls-trump-084346754.html)
 - Oct 11 - [Former Hamas chief calls for protests, neighbours to join war against Israel](https://news.yahoo.com/former-hamas-chief-calls-protests-071826976.html)
 - Oct 11 - [German woman paraded by Hamas after festival massacre is 'still alive'](https://news.yahoo.com/german-tattoo-artist-abducted-hamas-051807000.html)
 - Oct 11 - [Bill Ackman calls on Harvard to release the names of students in groups holding Israel responsible for Hamas violence — so CEOs don't 'inadvertently hire' them](https://finance.yahoo.com/news/bill-ackman-calls-harvard-release-210130914.html)
-- Oct 11 - [Sen. Mitt Romney urged Democratic senators to challenge Biden — and he named names](https://news.yahoo.com/sen-mitt-romney-urged-democratic-034648461.html)
 <!-- feed end -->
 
 ### Onstream
