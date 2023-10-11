@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Anker charging accessories get discounts up to 57% from Prime Day deals](https://news.yahoo.com/anker-charging-accessories-get-discounts-up-to-57-from-prime-day-deals-184324221.html)
-- Oct 11 - [‘I Thought I Could Vote’: 69-Year-Old Florida Woman Charged with Fraud for Voting After Receiving Registration Card As DeSantis’ Task Force Continues Confusing Arrests](https://news.yahoo.com/thought-could-vote-69-old-173739355.html)
-- Oct 11 - [Hunter Biden judge agrees to drop old gun count after indictment replaces scuttled plea deal](https://news.yahoo.com/hunter-biden-judge-agrees-drop-173428671.html)
-- Oct 11 - [House GOP Finally Picks a Speaker—Now Comes the Hard Part](https://news.yahoo.com/house-gop-finally-picks-speaker-170916765.html)
-- Oct 11 - [Tesla now sells $8,000 vinyl wraps, hinting at clever Cybertruck solution](https://news.yahoo.com/tesla-now-sells-8-000-165756843.html)
+- Oct 11 - [Stocks rise as all eyes turn to inflation data: Stock market news today](https://finance.yahoo.com/news/stocks-rise-as-all-eyes-turn-to-inflation-data-stock-market-news-today-200707895.html)
+- Oct 11 - [Judge in Trump's New York fraud trial explains why there's no jury](https://news.yahoo.com/judge-trumps-york-fraud-trial-195122921.html)
+- Oct 11 - [Legal experts: New Jack Smith filing blows a big hole in Trump's election interference defense](https://news.yahoo.com/legal-experts-jack-smith-filing-194054925.html)
+- Oct 11 - [Pet Buck Euthanized by Police After Attacking Man in Florida Neighborhood](https://www.yahoo.com/lifestyle/pet-buck-euthanized-police-attacking-192524574.html)
+- Oct 11 - [Trump Is “Absolutely Petrified” and “Going to Be Found Guilty,” Says Michael Cohen](https://news.yahoo.com/trump-absolutely-petrified-going-found-190610873.html)
 <!-- feed end -->
 
 ### Onstream
