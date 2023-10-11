@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Some Israelis abroad desperately try to head home — to join reserve military units, or just to help](https://news.yahoo.com/israelis-abroad-desperately-try-head-041330019.html)
+- Oct 11 - [German woman paraded by Hamas after festival massacre is 'still alive'](https://news.yahoo.com/german-tattoo-artist-abducted-hamas-051807000.html)
 - Oct 11 - [Sen. Mitt Romney urged Democratic senators to challenge Biden — and he named names](https://news.yahoo.com/sen-mitt-romney-urged-democratic-034648461.html)
 - Oct 11 - [Bankruptcy could force this popular retailer to close 500 stores](https://www.thestreet.com/retailers/bankruptcy-could-force-this-popular-retailer-to-close-500-stores?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Oct 11 - [Former Connecticut state worker bangs gun, open fires in police station](https://news.yahoo.com/former-connecticut-state-worker-bangs-005326977.html)
