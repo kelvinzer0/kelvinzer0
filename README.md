@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Stocks rise as all eyes turn to inflation data: Stock market news today](https://finance.yahoo.com/news/stocks-rise-as-all-eyes-turn-to-inflation-data-stock-market-news-today-200707895.html)
-- Oct 11 - [Judge in Trump's New York fraud trial explains why there's no jury](https://news.yahoo.com/judge-trumps-york-fraud-trial-195122921.html)
-- Oct 11 - [Legal experts: New Jack Smith filing blows a big hole in Trump's election interference defense](https://news.yahoo.com/legal-experts-jack-smith-filing-194054925.html)
-- Oct 11 - [Pet Buck Euthanized by Police After Attacking Man in Florida Neighborhood](https://www.yahoo.com/lifestyle/pet-buck-euthanized-police-attacking-192524574.html)
-- Oct 11 - [Trump Is “Absolutely Petrified” and “Going to Be Found Guilty,” Says Michael Cohen](https://news.yahoo.com/trump-absolutely-petrified-going-found-190610873.html)
+- Oct 11 - [UAW strike: General Dynamics workers vote to strike in 3 states](https://finance.yahoo.com/video/uaw-strike-general-dynamics-workers-203242650.html)
+- Oct 11 - [The 12 best Apple deals from October Prime Day: AirPods, iPads, Apple Watches & more](https://news.yahoo.com/the-12-best-apple-deals-from-october-prime-day-airpods-ipads-apple-watches-more-203138675.html)
+- Oct 11 - [Pregnant 11-year-old girl twice raped by teenage boys should have abortion, High Court judge rules](https://news.yahoo.com/pregnant-11-old-girl-twice-195308178.html)
+- Oct 11 - [Journalist Who First Reported Israeli Child Beheadings Says She Saw Atrocities ‘With My Own Eyes’ (Video)](https://www.yahoo.com/entertainment/journalist-first-reported-israeli-child-194917181.html)
+- Oct 11 - [A Win!: 93-Year-Old South Carolina Woman Surpasses $350K In Fight to Keep Her Land with Help from Tyler Perry, Kyrie Irving and Other Black Celebrities](https://news.yahoo.com/win-93-old-south-carolina-194345186.html)
 <!-- feed end -->
 
 ### Onstream
