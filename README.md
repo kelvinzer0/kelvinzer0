@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Ex-Prosecutor Says Jack Smith 'Hasn't Just Taken Off The Gloves' With New Trump Move](https://news.yahoo.com/ex-prosecutor-says-jack-smith-092921101.html)
-- Oct 11 - [Ex-Pence Aide Recalls What Trump Said About MAGA Fans In Private. It's Not Good.](https://news.yahoo.com/ex-pence-aide-recalls-trump-084346754.html)
+- Oct 11 - [Dave Ramsey warns Americans about the damage 'Bloody Sunday' leaves in its wake, offers advice for folks who want to buy a home amid spiking interest rates](https://finance.yahoo.com/news/dave-ramsey-warns-americans-damage-110000885.html)
+- Oct 11 - [Ex-Prosecutor Says Jack Smith ‘Hasn’t Just Taken Off The Gloves’ With New Trump Move](https://news.yahoo.com/ex-prosecutor-says-jack-smith-092921101.html)
+- Oct 11 - [Ex-Pence Aide Recalls What Trump Said About MAGA Fans In Private. It’s Not Good.](https://news.yahoo.com/ex-pence-aide-recalls-trump-084346754.html)
 - Oct 11 - [Nearly naked prostitutes prowl streets in broad daylight, but California law ties police hands: mayor](https://news.yahoo.com/nearly-naked-prostitutes-prowl-streets-080018421.html)
 - Oct 11 - [Former Hamas chief calls for protests, neighbours to join war against Israel](https://news.yahoo.com/former-hamas-chief-calls-protests-071826976.html)
-- Oct 11 - [German woman paraded by Hamas after festival massacre is 'still alive'](https://news.yahoo.com/german-tattoo-artist-abducted-hamas-051807000.html)
 <!-- feed end -->
 
 ### Onstream
