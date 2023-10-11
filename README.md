@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 11 - [The 22 best Prime Day deals on headphones: Save on AirPods, Sony, Beats, Bose and more](https://news.yahoo.com/best-amazon-prime-day-headphone-deals-104130119.html)
+- Oct 11 - [Newly released emails spark GOP demand for “full blown audit” of deepening Sarah Sanders scandal](https://news.yahoo.com/newly-released-emails-spark-gop-161025424.html)
 - Oct 11 - [NASA shows off its first asteroid samples delivered by a spacecraft](https://news.yahoo.com/nasa-shows-off-first-asteroid-160014630.html)
-- Oct 11 - [Democratic challenger raises more campaign cash than GOP incumbent in Mississippi governor's race](https://news.yahoo.com/democratic-challenger-raises-more-campaign-155252014.html)
-- Oct 11 - [Disney to hike theme park pass, ticket prices](https://finance.yahoo.com/video/disney-hike-theme-park-pass-154301769.html)
-- Oct 11 - ['Fired for expressing views?': Canadians split after Air Canada removes pilot for posting Palestine protest photos](https://news.yahoo.com/air-canada-pilot-palestine-protest-153914191.html)
-- Oct 11 - [Former NFL player Sergio Brown taken into custody in connection with his mother’s death, source says](https://news.yahoo.com/former-nfl-player-sergio-brown-142012974.html)
+- Oct 11 - [Sergio Brown reportedly in custody in connection with mother's death](https://sports.yahoo.com/sergio-brown-reportedly-in-custody-in-connection-with-mothers-death-155900936.html)
+- Oct 11 - [Bernie Sanders says Israel is violating international law with blockade on 'open-air prison' in Gaza](https://news.yahoo.com/bernie-sanders-says-israel-violating-154426564.html)
 <!-- feed end -->
 
 ### Onstream
