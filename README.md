@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [California's 'right to repair' bill is now California's 'right to repair' law](https://news.yahoo.com/californias-right-to-repair-bill-is-now-californias-right-to-repair-law-232526782.html)
+- Oct 10 - [Nancy Mace Wears ‘Scarlet Letter’ After McCarthy Vote](https://news.yahoo.com/nancy-mace-wears-scarlet-letter-231448824.html)
+- Oct 10 - [What’s a love lock? Here’s why rangers say they’re dangerous to leave at Grand Canyon](https://news.yahoo.com/love-lock-why-rangers-dangerous-230145127.html)
+- Oct 10 - [A helicopter sparked a massive crocodile mating sex frenzy when they probably mistook the sound for a giant thunderstorm](https://news.yahoo.com/helicopter-sparked-massive-crocodile-mating-225958101.html)
 - Oct 10 - [Scrutiny of Arkansas governor's $19,000 lectern deepens after new records are released](https://news.yahoo.com/scrutiny-arkansas-governors-19-000-225046503.html)
-- Oct 10 - [Rep. Santos faces new charges he stole donor IDs, made unauthorized charges to their credit cards](https://news.yahoo.com/rep-santos-faces-charges-stole-214857289.html)
-- Oct 10 - [People Are Sharing The Absolute Dumbest Things They've Ever Seen A Coworker Do While On The Job, And I Almost Feel Bad For Laughing](https://www.yahoo.com/lifestyle/people-sharing-absolute-dumbest-things-211602959.html)
-- Oct 10 - ['You do not speak for me' to 'A strong statement needed to be made': Canadians react to leaders addressing Israel-Gaza war](https://news.yahoo.com/israel-gaza-hamas-trudeau-ford-rally-ottawa-195053392.html)
-- Oct 10 - [Florida's Republican attorney general will oppose putting abortion rights amendment on 2024 ballot](https://news.yahoo.com/floridas-republican-attorney-general-oppose-194436436.html)
 <!-- feed end -->
 
 ### Onstream
