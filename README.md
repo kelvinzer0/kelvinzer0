@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 11 - [Black student suspended over his hairstyle to be sent to an alternative education program](https://news.yahoo.com/black-student-suspended-over-hairstyle-220842775.html)
+- Oct 11 - [Judge Accused of Sending Wildly Inappropriate Texts During Her First Murder Trial](https://news.yahoo.com/judge-accused-sending-wildly-inappropriate-212518171.html)
+- Oct 11 - [Kushner says Schumer told family friends he was going to jail](https://news.yahoo.com/kushner-says-schumer-told-family-210849017.html)
 - Oct 11 - [The Trump 'haircut': yes, Deutsche Bank really used this term in reducing what Trump said he was worth](https://news.yahoo.com/trump-haircut-yes-deutsche-bank-210728495.html)
 - Oct 11 - ["I'm Tired Of Seeing Car Dealerships Ruin Families' Lives" — This Woman Went Viral For Sharing How To Buy A Car Without Getting Completely Screwed Over](https://www.yahoo.com/lifestyle/im-tired-seeing-car-dealerships-210659095.html)
-- Oct 11 - [Thief Has Stolen At Least 25 Times From Target: Cops](https://news.yahoo.com/thief-stolen-least-25-times-195842453.html)
-- Oct 11 - [Pregnant 11-year-old girl twice raped by teenage boys should have abortion, High Court judge rules](https://news.yahoo.com/pregnant-11-old-girl-twice-195308178.html)
-- Oct 11 - [Journalist Who First Reported Israeli Child Beheadings Says She Saw Atrocities ‘With My Own Eyes’ (Video)](https://www.yahoo.com/entertainment/journalist-first-reported-israeli-child-194917181.html)
 <!-- feed end -->
 
 ### Onstream
