@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 11 - [Some Israelis abroad desperately try to head home — to join reserve military units, or just to help](https://news.yahoo.com/israelis-abroad-desperately-try-head-041330019.html)
+- Oct 11 - [Sen. Mitt Romney urged Democratic senators to challenge Biden — and he named names](https://news.yahoo.com/sen-mitt-romney-urged-democratic-034648461.html)
 - Oct 11 - [Bankruptcy could force this popular retailer to close 500 stores](https://www.thestreet.com/retailers/bankruptcy-could-force-this-popular-retailer-to-close-500-stores?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Oct 11 - [Former Connecticut state worker bangs gun, open fires in police station](https://news.yahoo.com/former-connecticut-state-worker-bangs-005326977.html)
 - Oct 11 - [Pakistan's 'shameful' first Miss Universe contestant](https://news.yahoo.com/pakistans-shameful-first-miss-universe-001027431.html)
-- Oct 10 - [California's 'right to repair' bill is now California's 'right to repair' law](https://news.yahoo.com/californias-right-to-repair-bill-is-now-californias-right-to-repair-law-232526782.html)
-- Oct 10 - [Nancy Mace Wears ‘Scarlet Letter’ After McCarthy Vote](https://news.yahoo.com/nancy-mace-wears-scarlet-letter-231448824.html)
 <!-- feed end -->
 
 ### Onstream
