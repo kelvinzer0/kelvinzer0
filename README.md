@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [Crane is brought in to remove a tree by Hadrian's Wall in England that was cut in act of vandalism](https://news.yahoo.com/crane-brought-remove-tree-hadrians-103142098.html)
+- Oct 12 - [A teacher quit her job after her OnlyFans was discovered — and says she makes more from adult content anyway](https://news.yahoo.com/teacher-quit-her-job-her-101210192.html)
+- Oct 12 - [A truck drove around Harvard displaying names and photos of students reported to be involved with the letter that blamed Israel for Hamas' attacks](https://news.yahoo.com/truck-drove-around-harvard-displaying-100410476.html)
 - Oct 12 - [Family of allegedly pregnant teacher arrested on student sex charges is experiencing 'ridicule': lawyer](https://news.yahoo.com/family-allegedly-pregnant-teacher-arrested-080049489.html)
 - Oct 12 - [Sen. John Fetterman Mercilessly Mocks Republicans With Scathing 1-Liner](https://www.yahoo.com/entertainment/sen-john-fetterman-mercilessly-mocks-070156786.html)
-- Oct 12 - [Doctors permanently disconnected half of a 6-year-old girl's brain in a 10-hour surgery to stop her daily seizures](https://www.yahoo.com/lifestyle/doctors-permanently-disconnected-half-6-040655801.html)
-- Oct 12 - [Toyota, Idemitsu tie up to mass-produce all-solid-state batteries](https://news.yahoo.com/toyota-idemitsu-join-hands-mass-031414849.html)
-- Oct 12 - [Lawmakers applaud after Democrat apologizes for GOP colleague’s outburst](https://news.yahoo.com/lawmakers-applaud-democrat-apologizes-gop-023901043.html)
 <!-- feed end -->
 
 ### Onstream
