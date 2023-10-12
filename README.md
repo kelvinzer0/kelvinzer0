@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [Alabama police chief apologies for inaccurate information in fatal shooting](https://news.yahoo.com/alabama-police-chief-apologies-inaccurate-172456241.html)
+- Oct 12 - [Arizona dad strips down to crop top and shorts at board meeting to protest school dress code](https://news.yahoo.com/arizona-dad-strips-down-crop-171313075.html)
 - Oct 12 - [SPAC returns remaining $533 million raise for Trump social media deal](https://finance.yahoo.com/news/spac-returns-remaining-533-million-163027569.html)
+- Oct 12 - [Jordan's king and Palestinian leader warn against escalation in Gaza](https://news.yahoo.com/jordans-king-palestinian-leader-warn-160149696.html)
 - Oct 12 - [Wisconsin Republican leader won't back down from impeachment threat against Supreme Court justice](https://news.yahoo.com/wisconsin-republican-leader-wont-back-153124932.html)
-- Oct 12 - [Five officers shot and wounded in Minnesota, authorities say; suspect not in custody](https://news.yahoo.com/five-officers-shot-wounded-minnesota-153010890.html)
-- Oct 12 - [US must be ready for simultaneous wars with China, Russia, report says](https://news.yahoo.com/us-must-ready-simultaneous-wars-150404151.html)
-- Oct 12 - [Robert De Niro Writes An Oscar-Worthy Manifesto About Donald Trump’s ‘Evil’](https://www.yahoo.com/entertainment/robert-niro-writes-oscar-worthy-142547317.html)
 <!-- feed end -->
 
 ### Onstream
