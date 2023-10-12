@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [NATO will hold a major nuclear exercise next week as Russia plans to pull out of a test ban treaty](https://news.yahoo.com/nato-hold-major-nuclear-exercise-143223546.html)
+- Oct 12 - [Robert De Niro Writes An Oscar-Worthy Manifesto About Donald Trump’s ‘Evil’](https://www.yahoo.com/entertainment/robert-niro-writes-oscar-worthy-142547317.html)
 - Oct 12 - [Russia suffers heavy losses in ‘largest offensive action’ since invasion began](https://news.yahoo.com/russia-suffers-heavy-losses-largest-133813871.html)
+- Oct 12 - [A couple who won a $2.7 million home on a TV show claim the prize has been a nightmare: report](https://news.yahoo.com/couple-won-2-7-million-130638950.html)
 - Oct 12 - [It's Official: Here's Your Social Security Raise for 2024](https://www.fool.com/retirement/2023/10/12/its-official-heres-your-social-security-raise-for/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Oct 12 - [Do rattlesnakes disappear when California seasons change? Here’s where they’re hiding](https://news.yahoo.com/rattlesnakes-disappear-california-seasons-change-120000074.html)
-- Oct 12 - [A teacher quit her job after her OnlyFans was discovered — and says she makes more from adult content anyway](https://news.yahoo.com/teacher-quit-her-job-her-101210192.html)
-- Oct 12 - [Family of allegedly pregnant teacher arrested on student sex charges is experiencing 'ridicule': lawyer](https://news.yahoo.com/family-allegedly-pregnant-teacher-arrested-080049489.html)
 <!-- feed end -->
 
 ### Onstream
