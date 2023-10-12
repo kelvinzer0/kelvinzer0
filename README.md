@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [Massacre Survivor: I Hid in Shower as Hamas Slaughtered My Boyfriend](https://news.yahoo.com/massacre-survivor-hid-shower-hamas-212645988.html)
+- Oct 12 - [Report: Pat McAfee has paid Aaron Rodgers "millions" to appear weekly on show](https://sports.yahoo.com/report-pat-mcafee-paid-aaron-205727211.html)
 - Oct 12 - [Judge scolds prosecutors as she delays hearing for co-defendant in Trump classified documents case](https://news.yahoo.com/judge-scolds-prosecutors-she-delays-201222422.html)
 - Oct 12 - [Camper vanishes on solo trip, Arizona police say. Then hunters discover her SUV](https://news.yahoo.com/camper-vanishes-solo-trip-arizona-195941110.html)
 - Oct 12 - ['She's against torture, but wants us to be tortured?': Montreal woman verbally attacks driver with Palestine flag](https://news.yahoo.com/montreal-driver-palestine-flag-racism-hate-israel-viral-video-195720308.html)
-- Oct 12 - [Predator attacks sea creature in ‘incredible act of nature’ in CA. See ‘the shredder’](https://news.yahoo.com/predator-attacks-sea-creature-incredible-194722937.html)
-- Oct 12 - [Beauty Supply Shop Owner Caught on Camera Grabbing Black Woman By Neck Says He ‘Lost Everything’ and Will Have to Leave Town: ‘I Have Nothing In My Pocket Now’](https://news.yahoo.com/beauty-supply-shop-owner-caught-183645601.html)
 <!-- feed end -->
 
 ### Onstream
