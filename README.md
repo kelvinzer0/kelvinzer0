@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [US to attend Beijing defense forum in latest sign of improving ties](https://news.yahoo.com/us-attend-beijing-defense-forum-022951357.html)
 - Oct 12 - [New York Post Reporter Throws Hissy Fit at White House Briefing](https://news.yahoo.com/york-post-reporter-throws-hissy-022755536.html)
 - Oct 12 - [Madman riding Queens train whacks people standing on platforms with slab of wood](https://news.yahoo.com/madman-riding-queens-train-whacks-011300278.html)
 - Oct 12 - [MyPillow Goes Dark: Mike Lindell Pauses TV Ads Amid Financial Struggles](https://www.yahoo.com/entertainment/mypillow-goes-dark-mike-lindell-000053654.html)
 - Oct 11 - [The Bills and Sabres reportedly dismissed COO John Roth and SVP Kathryn D’Angelo due to unethical relationship](https://sports.yahoo.com/the-bills-and-sabres-reportedly-dismissed-coo-john-roth-and-svp-kathryn-dangelo-due-to-unethical-relationship-231347344.html)
+- Oct 11 - [Two 15-year-olds in critical condition after stealing car and getting shot; Car owner charged](https://news.yahoo.com/two-15-olds-critical-condition-224023187.html)
 <!-- feed end -->
 
 ### Onstream
