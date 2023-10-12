@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [CIA publicly acknowledges 1953 coup it backed in Iran was undemocratic as it revisits 'Argo' rescue](https://news.yahoo.com/cia-publicly-acknowledges-1953-coup-042850463.html)
+- Oct 12 - [An Oklahoma man used pandemic relief funds to have his name cleared of murder](https://news.yahoo.com/oklahoma-man-used-pandemic-relief-042743604.html)
+- Oct 12 - [Lawmakers applaud after Democrat apologizes for GOP colleague’s outburst](https://news.yahoo.com/lawmakers-applaud-democrat-apologizes-gop-023901043.html)
 - Oct 12 - [New York Post Reporter Throws Hissy Fit at White House Briefing](https://news.yahoo.com/york-post-reporter-throws-hissy-022755536.html)
-- Oct 12 - [Madman riding Queens train whacks people standing on platforms with slab of wood](https://news.yahoo.com/madman-riding-queens-train-whacks-011300278.html)
-- Oct 12 - [MyPillow Goes Dark: Mike Lindell Pauses TV Ads Amid Financial Struggles](https://www.yahoo.com/entertainment/mypillow-goes-dark-mike-lindell-000053654.html)
-- Oct 11 - [The Bills and Sabres reportedly dismissed COO John Roth and SVP Kathryn D’Angelo due to unethical relationship](https://sports.yahoo.com/the-bills-and-sabres-reportedly-dismissed-coo-john-roth-and-svp-kathryn-dangelo-due-to-unethical-relationship-231347344.html)
-- Oct 11 - [Two 15-year-olds in critical condition after stealing car and getting shot; Car owner charged](https://news.yahoo.com/two-15-olds-critical-condition-224023187.html)
+- Oct 12 - [Hamas terrorist sent mother video of son, girlfriend's gruesome murder: Israeli reality TV star](https://news.yahoo.com/hamas-terrorist-sent-mother-video-021137038.html)
 <!-- feed end -->
 
 ### Onstream
