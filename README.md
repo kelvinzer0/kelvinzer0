@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [50 years on, America’s oldest missing teens case might finally be cracked](https://news.yahoo.com/50-years-america-oldest-missing-190000783.html)
+- Oct 12 - [Judge scolds prosecutors as she delays hearing for co-defendant in Trump classified documents case](https://news.yahoo.com/judge-scolds-prosecutors-she-delays-201222422.html)
+- Oct 12 - [Camper vanishes on solo trip, Arizona police say. Then hunters discover her SUV](https://news.yahoo.com/camper-vanishes-solo-trip-arizona-195941110.html)
+- Oct 12 - ['She's against torture, but wants us to be tortured?': Montreal woman verbally attacks driver with Palestine flag](https://news.yahoo.com/montreal-driver-palestine-flag-racism-hate-israel-viral-video-195720308.html)
+- Oct 12 - [Predator attacks sea creature in ‘incredible act of nature’ in CA. See ‘the shredder’](https://news.yahoo.com/predator-attacks-sea-creature-incredible-194722937.html)
 - Oct 12 - [Beauty Supply Shop Owner Caught on Camera Grabbing Black Woman By Neck Says He ‘Lost Everything’ and Will Have to Leave Town: ‘I Have Nothing In My Pocket Now’](https://news.yahoo.com/beauty-supply-shop-owner-caught-183645601.html)
-- Oct 12 - [$1.765 billion Powerball jackpot goes to a player who bought a ticket in a California mountain town](https://news.yahoo.com/1-765-billion-powerball-jackpot-180917137.html)
-- Oct 12 - [Russia condemns Finland's plan to speed confiscation of Russian real estate](https://news.yahoo.com/russia-condemns-finlands-plan-speed-180737069.html)
-- Oct 12 - [Here's the car that sparked a massive 1,500-vehicle fire at London airport car park](https://www.autoblog.com/2023/10/12/heres-the-car-that-sparked-a-massive-1500-vehicle-fire-at-london-airport-car-park/)
 <!-- feed end -->
 
 ### Onstream
