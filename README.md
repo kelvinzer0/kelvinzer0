@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 12 - [Sen. John Fetterman Mercilessly Mocks Republicans With Scathing 1-Liner](https://www.yahoo.com/entertainment/sen-john-fetterman-mercilessly-mocks-070156786.html)
 - Oct 12 - [Doctors permanently disconnected half of a 6-year-old girl's brain in a 10-hour surgery to stop her daily seizures](https://www.yahoo.com/lifestyle/doctors-permanently-disconnected-half-6-040655801.html)
+- Oct 12 - [Toyota, Idemitsu tie up to mass-produce all-solid-state batteries](https://news.yahoo.com/toyota-idemitsu-join-hands-mass-031414849.html)
 - Oct 12 - [Lawmakers applaud after Democrat apologizes for GOP colleague’s outburst](https://news.yahoo.com/lawmakers-applaud-democrat-apologizes-gop-023901043.html)
 - Oct 12 - [New York Post Reporter Throws Hissy Fit at White House Briefing](https://news.yahoo.com/york-post-reporter-throws-hissy-022755536.html)
-- Oct 12 - [Hamas terrorist sent mother video of son, girlfriend's gruesome murder: Israeli reality TV star](https://news.yahoo.com/hamas-terrorist-sent-mother-video-021137038.html)
 <!-- feed end -->
 
 ### Onstream
