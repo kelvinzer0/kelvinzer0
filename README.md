@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 11 - [Black student suspended over his hairstyle to be sent to an alternative education program](https://news.yahoo.com/black-student-suspended-over-hairstyle-220842775.html)
-- Oct 11 - [Judge Accused of Sending Wildly Inappropriate Texts During Her First Murder Trial](https://news.yahoo.com/judge-accused-sending-wildly-inappropriate-212518171.html)
-- Oct 11 - [Kushner says Schumer told family friends he was going to jail](https://news.yahoo.com/kushner-says-schumer-told-family-210849017.html)
-- Oct 11 - [The Trump 'haircut': yes, Deutsche Bank really used this term in reducing what Trump said he was worth](https://news.yahoo.com/trump-haircut-yes-deutsche-bank-210728495.html)
-- Oct 11 - ["I'm Tired Of Seeing Car Dealerships Ruin Families' Lives" — This Woman Went Viral For Sharing How To Buy A Car Without Getting Completely Screwed Over](https://www.yahoo.com/lifestyle/im-tired-seeing-car-dealerships-210659095.html)
+- Oct 12 - [MyPillow Goes Dark: Mike Lindell Pauses TV Ads Amid Financial Struggles](https://www.yahoo.com/entertainment/mypillow-goes-dark-mike-lindell-000053654.html)
+- Oct 11 - [‘It’s not what she said, but what she did not say’: Canadians weigh in on MPP Sarah Jama’s stance on Israel, Palestine](https://news.yahoo.com/canadians-react-sarah-jamas-hamas-attack-israel-palestine-gaza-235413483.html)
+- Oct 11 - [After a hard fight to clear militants, Israeli soldiers find a scene of destruction, slain children](https://news.yahoo.com/hard-fight-clear-militants-israeli-232452938.html)
+- Oct 11 - [The Bills and Sabres reportedly dismissed COO John Roth and SVP Kathryn D’Angelo due to unethical relationship](https://sports.yahoo.com/the-bills-and-sabres-reportedly-dismissed-coo-john-roth-and-svp-kathryn-dangelo-due-to-unethical-relationship-231347344.html)
+- Oct 11 - [Watch: Is This the Best Bigfoot Sighting Yet or Just a Bowhunter in a Ghillie Suit?](https://www.yahoo.com/lifestyle/watch-sasquatch-figure-emerges-near-223949855.html)
 <!-- feed end -->
 
 ### Onstream
