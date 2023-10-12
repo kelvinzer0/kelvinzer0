@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [50 years on, America’s oldest missing teens case might finally be cracked](https://news.yahoo.com/50-years-america-oldest-missing-190000783.html)
+- Oct 12 - [Beauty Supply Shop Owner Caught on Camera Grabbing Black Woman By Neck Says He ‘Lost Everything’ and Will Have to Leave Town: ‘I Have Nothing In My Pocket Now’](https://news.yahoo.com/beauty-supply-shop-owner-caught-183645601.html)
+- Oct 12 - [$1.765 billion Powerball jackpot goes to a player who bought a ticket in a California mountain town](https://news.yahoo.com/1-765-billion-powerball-jackpot-180917137.html)
 - Oct 12 - [Russia condemns Finland's plan to speed confiscation of Russian real estate](https://news.yahoo.com/russia-condemns-finlands-plan-speed-180737069.html)
 - Oct 12 - [Here's the car that sparked a massive 1,500-vehicle fire at London airport car park](https://www.autoblog.com/2023/10/12/heres-the-car-that-sparked-a-massive-1500-vehicle-fire-at-london-airport-car-park/)
-- Oct 12 - [Arizona dad strips down to crop top and shorts at board meeting to protest school dress code](https://news.yahoo.com/arizona-dad-strips-down-crop-171313075.html)
-- Oct 12 - [SPAC returns remaining $533 million raise for Trump social media deal](https://finance.yahoo.com/news/spac-returns-remaining-533-million-163027569.html)
-- Oct 12 - [Jordan's king and Palestinian leader warn against escalation in Gaza](https://news.yahoo.com/jordans-king-palestinian-leader-warn-160149696.html)
 <!-- feed end -->
 
 ### Onstream
