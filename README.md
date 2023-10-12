@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [NATO will hold a major nuclear exercise next week as Russia plans to pull out of a test ban treaty](https://news.yahoo.com/nato-hold-major-nuclear-exercise-143223546.html)
+- Oct 12 - [Wisconsin Republican leader won't back down from impeachment threat against Supreme Court justice](https://news.yahoo.com/wisconsin-republican-leader-wont-back-153124932.html)
+- Oct 12 - [US must be ready for simultaneous wars with China, Russia, report says](https://news.yahoo.com/us-must-ready-simultaneous-wars-150404151.html)
 - Oct 12 - [Robert De Niro Writes An Oscar-Worthy Manifesto About Donald Trump’s ‘Evil’](https://www.yahoo.com/entertainment/robert-niro-writes-oscar-worthy-142547317.html)
-- Oct 12 - [Russia suffers heavy losses in ‘largest offensive action’ since invasion began](https://news.yahoo.com/russia-suffers-heavy-losses-largest-133813871.html)
-- Oct 12 - [A couple who won a $2.7 million home on a TV show claim the prize has been a nightmare: report](https://news.yahoo.com/couple-won-2-7-million-130638950.html)
-- Oct 12 - [It's Official: Here's Your Social Security Raise for 2024](https://www.fool.com/retirement/2023/10/12/its-official-heres-your-social-security-raise-for/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Oct 12 - [Woman Arrested After Wrapping Car To Look Like A Florida State Trooper](https://news.yahoo.com/woman-arrested-wrapping-car-look-140000945.html)
+- Oct 12 - [Russia suffers heavy losses in blitzkrieg failure](https://news.yahoo.com/russia-suffers-heavy-losses-largest-133813871.html)
 <!-- feed end -->
 
 ### Onstream
