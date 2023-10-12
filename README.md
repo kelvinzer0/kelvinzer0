@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [Massacre Survivor: I Hid in Shower as Hamas Slaughtered My Boyfriend](https://news.yahoo.com/massacre-survivor-hid-shower-hamas-212645988.html)
 - Oct 12 - [Report: Pat McAfee has paid Aaron Rodgers "millions" to appear weekly on show](https://sports.yahoo.com/report-pat-mcafee-paid-aaron-205727211.html)
+- Oct 12 - [Hundreds of entertainers sign letter in support of Israel](https://news.yahoo.com/hundreds-entertainers-sign-letter-support-203041179.html)
 - Oct 12 - [Judge scolds prosecutors as she delays hearing for co-defendant in Trump classified documents case](https://news.yahoo.com/judge-scolds-prosecutors-she-delays-201222422.html)
 - Oct 12 - [Camper vanishes on solo trip, Arizona police say. Then hunters discover her SUV](https://news.yahoo.com/camper-vanishes-solo-trip-arizona-195941110.html)
 - Oct 12 - ['She's against torture, but wants us to be tortured?': Montreal woman verbally attacks driver with Palestine flag](https://news.yahoo.com/montreal-driver-palestine-flag-racism-hate-israel-viral-video-195720308.html)
