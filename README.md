@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [US to attend Beijing defense forum in latest sign of improving ties](https://news.yahoo.com/us-attend-beijing-defense-forum-022951357.html)
+- Oct 12 - [New York Post Reporter Throws Hissy Fit at White House Briefing](https://news.yahoo.com/york-post-reporter-throws-hissy-022755536.html)
+- Oct 12 - [Madman riding Queens train whacks people standing on platforms with slab of wood](https://news.yahoo.com/madman-riding-queens-train-whacks-011300278.html)
 - Oct 12 - [MyPillow Goes Dark: Mike Lindell Pauses TV Ads Amid Financial Struggles](https://www.yahoo.com/entertainment/mypillow-goes-dark-mike-lindell-000053654.html)
-- Oct 11 - [‘It’s not what she said, but what she did not say’: Canadians weigh in on MPP Sarah Jama’s stance on Israel, Palestine](https://news.yahoo.com/canadians-react-sarah-jamas-hamas-attack-israel-palestine-gaza-235413483.html)
-- Oct 11 - [After a hard fight to clear militants, Israeli soldiers find a scene of destruction, slain children](https://news.yahoo.com/hard-fight-clear-militants-israeli-232452938.html)
 - Oct 11 - [The Bills and Sabres reportedly dismissed COO John Roth and SVP Kathryn D’Angelo due to unethical relationship](https://sports.yahoo.com/the-bills-and-sabres-reportedly-dismissed-coo-john-roth-and-svp-kathryn-dangelo-due-to-unethical-relationship-231347344.html)
-- Oct 11 - [Watch: Is This the Best Bigfoot Sighting Yet or Just a Bowhunter in a Ghillie Suit?](https://www.yahoo.com/lifestyle/watch-sasquatch-figure-emerges-near-223949855.html)
 <!-- feed end -->
 
 ### Onstream
