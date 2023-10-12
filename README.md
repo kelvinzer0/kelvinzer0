@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [CIA publicly acknowledges 1953 coup it backed in Iran was undemocratic as it revisits 'Argo' rescue](https://news.yahoo.com/cia-publicly-acknowledges-1953-coup-042850463.html)
-- Oct 12 - [An Oklahoma man used pandemic relief funds to have his name cleared of murder](https://news.yahoo.com/oklahoma-man-used-pandemic-relief-042743604.html)
+- Oct 12 - [Doctors permanently disconnected half of a 6-year-old girl's brain in a 10-hour surgery to stop her daily seizures](https://www.yahoo.com/lifestyle/doctors-permanently-disconnected-half-6-040655801.html)
 - Oct 12 - [Lawmakers applaud after Democrat apologizes for GOP colleague’s outburst](https://news.yahoo.com/lawmakers-applaud-democrat-apologizes-gop-023901043.html)
 - Oct 12 - [New York Post Reporter Throws Hissy Fit at White House Briefing](https://news.yahoo.com/york-post-reporter-throws-hissy-022755536.html)
 - Oct 12 - [Hamas terrorist sent mother video of son, girlfriend's gruesome murder: Israeli reality TV star](https://news.yahoo.com/hamas-terrorist-sent-mother-video-021137038.html)
+- Oct 12 - [Madman riding Queens train whacks people standing on platforms with slab of wood](https://news.yahoo.com/madman-riding-queens-train-whacks-011300278.html)
 <!-- feed end -->
 
 ### Onstream
