@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 12 - [SPAC returns remaining $533 million raise for Trump social media deal](https://finance.yahoo.com/news/spac-returns-remaining-533-million-163027569.html)
 - Oct 12 - [Wisconsin Republican leader won't back down from impeachment threat against Supreme Court justice](https://news.yahoo.com/wisconsin-republican-leader-wont-back-153124932.html)
+- Oct 12 - [Five officers shot and wounded in Minnesota, authorities say; suspect not in custody](https://news.yahoo.com/five-officers-shot-wounded-minnesota-153010890.html)
 - Oct 12 - [US must be ready for simultaneous wars with China, Russia, report says](https://news.yahoo.com/us-must-ready-simultaneous-wars-150404151.html)
 - Oct 12 - [Robert De Niro Writes An Oscar-Worthy Manifesto About Donald Trump’s ‘Evil’](https://www.yahoo.com/entertainment/robert-niro-writes-oscar-worthy-142547317.html)
-- Oct 12 - [Woman Arrested After Wrapping Car To Look Like A Florida State Trooper](https://news.yahoo.com/woman-arrested-wrapping-car-look-140000945.html)
-- Oct 12 - [Russia suffers heavy losses in blitzkrieg failure](https://news.yahoo.com/russia-suffers-heavy-losses-largest-133813871.html)
 <!-- feed end -->
 
 ### Onstream
