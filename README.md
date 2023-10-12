@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [Ukrainian Navy confirms damage to Russian vessel Pavel Derzhavin](https://news.yahoo.com/ukrainian-navy-confirms-damage-russian-075850394.html)
+- Oct 12 - [Family of allegedly pregnant teacher arrested on student sex charges is experiencing 'ridicule': lawyer](https://news.yahoo.com/family-allegedly-pregnant-teacher-arrested-080049489.html)
 - Oct 12 - [Sen. John Fetterman Mercilessly Mocks Republicans With Scathing 1-Liner](https://www.yahoo.com/entertainment/sen-john-fetterman-mercilessly-mocks-070156786.html)
 - Oct 12 - [Doctors permanently disconnected half of a 6-year-old girl's brain in a 10-hour surgery to stop her daily seizures](https://www.yahoo.com/lifestyle/doctors-permanently-disconnected-half-6-040655801.html)
 - Oct 12 - [Toyota, Idemitsu tie up to mass-produce all-solid-state batteries](https://news.yahoo.com/toyota-idemitsu-join-hands-mass-031414849.html)
