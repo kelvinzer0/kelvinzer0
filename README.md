@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [Alabama police chief apologies for inaccurate information in fatal shooting](https://news.yahoo.com/alabama-police-chief-apologies-inaccurate-172456241.html)
+- Oct 12 - [Russia condemns Finland's plan to speed confiscation of Russian real estate](https://news.yahoo.com/russia-condemns-finlands-plan-speed-180737069.html)
+- Oct 12 - [Here's the car that sparked a massive 1,500-vehicle fire at London airport car park](https://www.autoblog.com/2023/10/12/heres-the-car-that-sparked-a-massive-1500-vehicle-fire-at-london-airport-car-park/)
 - Oct 12 - [Arizona dad strips down to crop top and shorts at board meeting to protest school dress code](https://news.yahoo.com/arizona-dad-strips-down-crop-171313075.html)
 - Oct 12 - [SPAC returns remaining $533 million raise for Trump social media deal](https://finance.yahoo.com/news/spac-returns-remaining-533-million-163027569.html)
 - Oct 12 - [Jordan's king and Palestinian leader warn against escalation in Gaza](https://news.yahoo.com/jordans-king-palestinian-leader-warn-160149696.html)
-- Oct 12 - [Wisconsin Republican leader won't back down from impeachment threat against Supreme Court justice](https://news.yahoo.com/wisconsin-republican-leader-wont-back-153124932.html)
 <!-- feed end -->
 
 ### Onstream
