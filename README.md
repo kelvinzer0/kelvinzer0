@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 13 - [‘You’ll end up with $1.5 million in the bank’: Kevin O’Leary says you should do this 1 thing with your 401(k) in order to 'succeed into retirement'](https://finance.yahoo.com/news/ll-end-1-5-million-103000581.html)
+- Oct 13 - [Some Walmart employees say customers are getting hostile at self-checkout — and they blame anti-theft tech](https://news.yahoo.com/walmart-employees-customers-getting-hostile-091101617.html)
 - Oct 13 - [Fox Host Mocks Republican Congressman To His Face Over GOP Chaos](https://news.yahoo.com/fox-host-mocks-republican-congressman-075315795.html)
 - Oct 13 - [Ex-Prosecutor Says Jack Smith Makes Trump 'Put Money Where Mouth Is’ With New Move](https://news.yahoo.com/ex-prosecutor-says-jack-smith-064907290.html)
 - Oct 13 - [Hannity Loses It at Ramaswamy Over His Comments on Israel](https://www.yahoo.com/entertainment/hannity-loses-ramaswamy-over-comments-043328592.html)
-- Oct 13 - [A music festival survivor fleeing the attack, a pair of Hamas militants and a deadly decision](https://news.yahoo.com/music-festival-survivor-fleeing-attack-042817673.html)
-- Oct 13 - [‘Wasting court’s time’: judge in Trump classified documents case rebukes prosecutors](https://news.yahoo.com/wasting-court-time-judge-trump-003326042.html)
 <!-- feed end -->
 
 ### Onstream
