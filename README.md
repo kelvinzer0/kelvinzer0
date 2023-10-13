@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 13 - [Fox Host Mocks Republican Congressman To His Face Over GOP Chaos](https://news.yahoo.com/fox-host-mocks-republican-congressman-075315795.html)
+- Oct 13 - [Ex-Prosecutor Says Jack Smith Makes Trump 'Put Money Where Mouth Is’ With New Move](https://news.yahoo.com/ex-prosecutor-says-jack-smith-064907290.html)
 - Oct 13 - [Hannity Loses It at Ramaswamy Over His Comments on Israel](https://www.yahoo.com/entertainment/hannity-loses-ramaswamy-over-comments-043328592.html)
 - Oct 13 - [A music festival survivor fleeing the attack, a pair of Hamas militants and a deadly decision](https://news.yahoo.com/music-festival-survivor-fleeing-attack-042817673.html)
-- Oct 13 - [North Korea raises specter of nuclear strike over US aircraft carrier's arrival in South Korea](https://news.yahoo.com/north-korea-raises-specter-nuclear-005108294.html)
 - Oct 13 - [‘Wasting court’s time’: judge in Trump classified documents case rebukes prosecutors](https://news.yahoo.com/wasting-court-time-judge-trump-003326042.html)
-- Oct 12 - [Texas Megachurch Pastor to Pay $2.4M After Allegedly Giving Woman Herpes](https://news.yahoo.com/texas-megachurch-pastor-pay-2-233222336.html)
 <!-- feed end -->
 
 ### Onstream
