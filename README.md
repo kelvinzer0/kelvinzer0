@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 12 - [Report: Pat McAfee has paid Aaron Rodgers "millions" to appear weekly on show](https://sports.yahoo.com/report-pat-mcafee-paid-aaron-205727211.html)
-- Oct 12 - [Hundreds of entertainers sign letter in support of Israel](https://news.yahoo.com/hundreds-entertainers-sign-letter-support-203041179.html)
-- Oct 12 - [Judge scolds prosecutors as she delays hearing for co-defendant in Trump classified documents case](https://news.yahoo.com/judge-scolds-prosecutors-she-delays-201222422.html)
-- Oct 12 - [Camper vanishes on solo trip, Arizona police say. Then hunters discover her SUV](https://news.yahoo.com/camper-vanishes-solo-trip-arizona-195941110.html)
-- Oct 12 - ['She's against torture, but wants us to be tortured?': Montreal woman verbally attacks driver with Palestine flag](https://news.yahoo.com/montreal-driver-palestine-flag-racism-hate-israel-viral-video-195720308.html)
+- Oct 12 - [Colorado judge strikes down Trump's attempt to toss a lawsuit seeking to bar him from the ballot](https://news.yahoo.com/colorado-judge-strikes-down-trumps-235029053.html)
+- Oct 12 - [Texas Megachurch Pastor to Pay $2.4M After Allegedly Giving Woman Herpes](https://news.yahoo.com/texas-megachurch-pastor-pay-2-233222336.html)
+- Oct 12 - [El Salvador is gradually filling its new mega prison with alleged gang members](https://news.yahoo.com/el-salvador-gradually-filling-mega-225250817.html)
+- Oct 12 - [Israel Unleashed White Phosphorus in Gaza, Human Rights Watch Finds](https://news.yahoo.com/israel-unleashed-white-phosphorus-gaza-215457025.html)
+- Oct 12 - [Ex-CIA director has a warning about a potential ‘end result’ in Israel-Hamas conflict](https://news.yahoo.com/ex-cia-director-warning-potential-214544075.html)
 <!-- feed end -->
 
 ### Onstream
