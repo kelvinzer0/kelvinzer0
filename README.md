@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 13 - [George Santos calls Jewish man "human scum" during heated exchange on Capitol Hill](https://news.yahoo.com/george-santos-calls-jewish-man-202927990.html)
+- Oct 13 - [Chinese female drill team in Seattle challenges image of an 'American girl'](https://news.yahoo.com/chinese-female-drill-team-seattle-202740278.html)
+- Oct 13 - [Arab states say Palestinians must stay on their land as war escalates](https://news.yahoo.com/arab-states-palestinians-must-stay-201306760.html)
 - Oct 13 - [Hamas in rare English ‘press conference’ as it tries to counter global condemnation](https://news.yahoo.com/hamas-rare-english-press-conference-193426618.html)
 - Oct 13 - [Executive at Donald Trump’s company says 'presidential premium' was floated to boost bottom line](https://news.yahoo.com/executive-donald-trump-company-says-190937305.html)
-- Oct 13 - [Driver Stabbed in Leg During Attempted Car Jacking: Cops](https://news.yahoo.com/driver-stabbed-leg-during-attempted-190702079.html)
-- Oct 13 - [Iowa Man Files Lawsuit After Being Arrested Twice for Criticizing the Police at a Public Meeting](https://news.yahoo.com/iowa-man-files-lawsuit-being-175544785.html)
-- Oct 13 - [Republican Voters Who Don't Want To Vote for Donald Trump or Ron DeSantis Are Choosing This Surprising Candidate](https://www.yahoo.com/entertainment/republican-voters-dont-want-vote-170223566.html)
 <!-- feed end -->
 
 ### Onstream
