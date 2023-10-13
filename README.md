@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 13 - [A man was outside a McDonald’s after a tornado hit his Florida town. Then he looked up](https://news.yahoo.com/man-outside-mcdonald-tornado-hit-153222681.html)
+- Oct 13 - ['The war on inflation is over': Famed economist Paul Krugman just declared victory on white-hot inflation — and says we won at 'very little cost.' But here's what he left out of the math](https://finance.yahoo.com/news/war-inflation-over-famed-economist-144500791.html)
 - Oct 13 - ["Highly problematic": Ex-Trump CFO's testimony abruptly halted after he's accused of perjury](https://news.yahoo.com/highly-problematic-ex-trump-cfos-141544059.html)
 - Oct 13 - [Olentangy principal was placed on leave after employee said he called her derogatory names](https://news.yahoo.com/olentangy-principal-placed-leave-employee-132219261.html)
 - Oct 13 - [Jeff Bezos Cheated On His Ex-Wife With His Now-Fiancée Lauren Sanchez — It Led To The Most Expensive Divorce In History, But He Always Owned Up To The Affair: 'Just To Set The Record Straight, I Did Have A Relationship With This Woman'](https://finance.yahoo.com/news/jeff-bezos-cheated-ex-wife-131314691.html)
-- Oct 13 - [No shade, no water, and record heat: More migrants die in U.S. desert](https://news.yahoo.com/no-shade-no-water-record-130303169.html)
-- Oct 13 - [A student was excited to move to Florida for college. Then she realized she'd applied to Miami University — in Ohio.](https://news.yahoo.com/student-excited-move-florida-college-125417163.html)
 <!-- feed end -->
 
 ### Onstream
