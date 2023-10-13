@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [Israel eases import rules to expedite entry of needed goods](https://news.yahoo.com/israel-eases-import-rules-expedite-125429872.html)
-- Oct 13 - ['Working on the rubble': Artist paints on quake-hit Turkey city](https://news.yahoo.com/working-rubble-artist-paints-quake-123539383.html)
+- Oct 13 - [Jeff Bezos Cheated On His Ex-Wife With His Now-Fiancée Lauren Sanchez — It Led To The Most Expensive Divorce In History, But He Always Owned Up To The Affair: 'Just To Set The Record Straight, I Did Have A Relationship With This Woman'](https://finance.yahoo.com/news/jeff-bezos-cheated-ex-wife-131314691.html)
+- Oct 13 - [No shade, no water, and record heat: More migrants die in U.S. desert](https://news.yahoo.com/no-shade-no-water-record-130303169.html)
+- Oct 13 - [Popular New Hampshire ski area will not open for 2023-2024 season](https://news.yahoo.com/black-mountain-ski-area-not-105115959.html)
 - Oct 13 - [‘You’ll end up with $1.5 million in the bank’: Kevin O’Leary says you should do this 1 thing with your 401(k) in order to 'succeed into retirement'](https://finance.yahoo.com/news/ll-end-1-5-million-103000581.html)
-- Oct 13 - [In Beirut, Iran's foreign minister warns war could spread if Israeli bombardment of Gaza continues](https://news.yahoo.com/beirut-irans-foreign-minister-warns-095518438.html)
 - Oct 13 - [New conservation law sparks concern among hunters and biologists alike: ‘Now anyone with a hunting license can [do it]’](https://news.yahoo.com/conservation-law-sparks-concern-among-130000876.html)
 <!-- feed end -->
 
