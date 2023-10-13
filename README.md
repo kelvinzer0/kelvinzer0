@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 13 - [Taiwan minister says TSMC has received China chip waiver extension from US](https://finance.yahoo.com/news/taiwan-minister-says-tsmc-received-014904069.html)
 - Oct 13 - [North Korea raises specter of nuclear strike over US aircraft carrier's arrival in South Korea](https://news.yahoo.com/north-korea-raises-specter-nuclear-005108294.html)
 - Oct 13 - [What's normal during a medical exam and what isn't? Here's what you need to know — and how to advocate for yourself.](https://www.yahoo.com/lifestyle/whats-normal-during-medical-exam-how-to-advocate-for-yourself-005102225.html)
 - Oct 12 - [Colorado judge strikes down Trump's attempt to toss a lawsuit seeking to bar him from the ballot](https://news.yahoo.com/colorado-judge-strikes-down-trumps-235029053.html)
 - Oct 12 - [Texas Megachurch Pastor to Pay $2.4M After Allegedly Giving Woman Herpes](https://news.yahoo.com/texas-megachurch-pastor-pay-2-233222336.html)
+- Oct 12 - [Tom Skilling, dean of Chicago TV weathercasters, stepping down](https://www.yahoo.com/entertainment/tom-skilling-dean-chicago-tv-225400359.html)
 <!-- feed end -->
 
 ### Onstream
