@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 13 - [Iowa Man Files Lawsuit After Being Arrested Twice for Criticizing the Police at a Public Meeting](https://news.yahoo.com/iowa-man-files-lawsuit-being-175544785.html)
+- Oct 13 - [Republican Voters Who Don't Want To Vote for Donald Trump or Ron DeSantis Are Choosing This Surprising Candidate](https://www.yahoo.com/entertainment/republican-voters-dont-want-vote-170223566.html)
+- Oct 13 - [The average body temperature is no longer 98.6 degrees, study shows](https://www.yahoo.com/lifestyle/average-body-temperature-no-longer-163811445.html)
 - Oct 13 - [Cannon abruptly shuts down hearing — accuses Jack Smith's prosecutors of "wasting the court's time"](https://news.yahoo.com/cannon-abruptly-shuts-down-hearing-155656971.html)
 - Oct 13 - [A man was outside a McDonald’s after a tornado hit his Florida town. Then he looked up](https://news.yahoo.com/man-outside-mcdonald-tornado-hit-153222681.html)
-- Oct 13 - ['The war on inflation is over': Famed economist Paul Krugman just declared victory on white-hot inflation — and says we won at 'very little cost.' But here's what he left out of the math](https://finance.yahoo.com/news/war-inflation-over-famed-economist-144500791.html)
-- Oct 13 - [Donald Trump's Federal Election Conspiracy Case Just Took a Fascinating Turn That Could Divide His Family](https://www.yahoo.com/entertainment/donald-trumps-federal-election-conspiracy-143229569.html)
-- Oct 13 - ["Highly problematic": Ex-Trump CFO's testimony abruptly halted after he's accused of perjury](https://news.yahoo.com/highly-problematic-ex-trump-cfos-141544059.html)
 <!-- feed end -->
 
 ### Onstream
