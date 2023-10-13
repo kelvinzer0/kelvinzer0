@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 13 - [New Bill Cosby Accuser Alleges He Drugged and Raped Her on ‘Cosby Show’ Set](https://www.yahoo.com/entertainment/bill-cosby-accuser-alleges-drugged-163126228.html)
+- Oct 13 - [Cannon abruptly shuts down hearing — accuses Jack Smith's prosecutors of "wasting the court's time"](https://news.yahoo.com/cannon-abruptly-shuts-down-hearing-155656971.html)
 - Oct 13 - [A man was outside a McDonald’s after a tornado hit his Florida town. Then he looked up](https://news.yahoo.com/man-outside-mcdonald-tornado-hit-153222681.html)
 - Oct 13 - ['The war on inflation is over': Famed economist Paul Krugman just declared victory on white-hot inflation — and says we won at 'very little cost.' But here's what he left out of the math](https://finance.yahoo.com/news/war-inflation-over-famed-economist-144500791.html)
-- Oct 13 - ["Highly problematic": Ex-Trump CFO's testimony abruptly halted after he's accused of perjury](https://news.yahoo.com/highly-problematic-ex-trump-cfos-141544059.html)
-- Oct 13 - [Olentangy principal was placed on leave after employee said he called her derogatory names](https://news.yahoo.com/olentangy-principal-placed-leave-employee-132219261.html)
-- Oct 13 - [Jeff Bezos Cheated On His Ex-Wife With His Now-Fiancée Lauren Sanchez — It Led To The Most Expensive Divorce In History, But He Always Owned Up To The Affair: 'Just To Set The Record Straight, I Did Have A Relationship With This Woman'](https://finance.yahoo.com/news/jeff-bezos-cheated-ex-wife-131314691.html)
+- Oct 13 - [Donald Trump's Federal Election Conspiracy Case Just Took a Fascinating Turn That Could Divide His Family](https://www.yahoo.com/entertainment/donald-trumps-federal-election-conspiracy-143229569.html)
 <!-- feed end -->
 
 ### Onstream
