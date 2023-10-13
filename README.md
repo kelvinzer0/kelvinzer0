@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 13 - [Michael Cohen Set to Skip Trump Bank Fraud Trial Testimony](https://news.yahoo.com/michael-cohen-set-skip-trump-213240045.html)
+- Oct 13 - [Woman Says Deli Clerk Assaulted Her After Mistaking Her As Transgender](https://news.yahoo.com/woman-says-deli-clerk-assaulted-211807115.html)
 - Oct 13 - [$12,000 Worth of Jeans Stolen From Kohls: Cops](https://news.yahoo.com/12-000-worth-jeans-stolen-210802778.html)
+- Oct 13 - [‘Freedom of expression has limits’: Canadians call on York University to dismiss student body after Palestine support statement](https://news.yahoo.com/york-university-palestine-students-statement-210513603.html)
 - Oct 13 - [George Santos calls Jewish man "human scum" during heated exchange on Capitol Hill](https://news.yahoo.com/george-santos-calls-jewish-man-202927990.html)
-- Oct 13 - [Chinese female drill team in Seattle challenges image of an 'American girl'](https://news.yahoo.com/chinese-female-drill-team-seattle-202740278.html)
-- Oct 13 - [Arab states say Palestinians must stay on their land as war escalates](https://news.yahoo.com/arab-states-palestinians-must-stay-201306760.html)
 <!-- feed end -->
 
 ### Onstream
