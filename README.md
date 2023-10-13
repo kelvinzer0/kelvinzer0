@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 13 - [‘You’ll end up with $1.5 million in the bank’: Kevin O’Leary says you should do this 1 thing with your 401(k) in order to 'succeed into retirement'](https://finance.yahoo.com/news/ll-end-1-5-million-103000581.html)
+- Oct 13 - [In Beirut, Iran's foreign minister warns war could spread if Israeli bombardment of Gaza continues](https://news.yahoo.com/beirut-irans-foreign-minister-warns-095518438.html)
+- Oct 13 - [Ukraine hits Russian Buyan cruise missile carrier and Pavel Derzhavin vessel with drones](https://news.yahoo.com/ukraine-hits-russian-buyan-cruise-091531647.html)
 - Oct 13 - [Some Walmart employees say customers are getting hostile at self-checkout — and they blame anti-theft tech](https://news.yahoo.com/walmart-employees-customers-getting-hostile-091101617.html)
-- Oct 13 - [Fox Host Mocks Republican Congressman To His Face Over GOP Chaos](https://news.yahoo.com/fox-host-mocks-republican-congressman-075315795.html)
 - Oct 13 - [Ex-Prosecutor Says Jack Smith Makes Trump 'Put Money Where Mouth Is’ With New Move](https://news.yahoo.com/ex-prosecutor-says-jack-smith-064907290.html)
-- Oct 13 - [Hannity Loses It at Ramaswamy Over His Comments on Israel](https://www.yahoo.com/entertainment/hannity-loses-ramaswamy-over-comments-043328592.html)
 <!-- feed end -->
 
 ### Onstream
