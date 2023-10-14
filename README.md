@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 14 - ['A devastating financial blow': California's so-called 'draconian' fast-food bill is now law — here's why McDonald's franchisees say it'll cost small business owners $250K per year](https://finance.yahoo.com/news/devastating-financial-blow-mcdonald-franchisee-163000954.html)
+- Oct 14 - [Retired Israeli general who rescued his family under siege from Hamas is being compared on social media to Liam Neeson's character in 'Taken'](https://news.yahoo.com/retired-israeli-general-rescued-family-111257982.html)
 - Oct 14 - [Top Ukraine general says fighting in northeast has 'significantly worsened'](https://news.yahoo.com/top-ukraine-general-says-fighting-095147707.html)
 - Oct 14 - [Iran's foreign minister warns Israel from Beirut it could suffer 'a huge earthquake'](https://news.yahoo.com/irans-foreign-minister-warns-israel-091749557.html)
 - Oct 14 - [Judge punishes Rudy Giuliani for flagrant disregard of court orders](https://news.yahoo.com/judge-punishes-rudy-giuliani-flagrant-043332820.html)
-- Oct 14 - [People Are Sharing The Signs That Immediately Show Someone Wasn’t Raised Right, And We Need To Talk About It](https://www.yahoo.com/lifestyle/people-sharing-signs-immediately-show-011602794.html)
-- Oct 14 - [2 Virginia corrections officers tasked with watching inmate when he escaped hospital admitted to being asleep](https://news.yahoo.com/2-virginia-corrections-officers-tasked-005633703.html)
 <!-- feed end -->
 
 ### Onstream
