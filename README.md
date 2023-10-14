@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 14 - [Judge punishes Rudy Giuliani for flagrant disregard of court orders](https://news.yahoo.com/judge-punishes-rudy-giuliani-flagrant-043332820.html)
 - Oct 14 - [People Are Sharing The Signs That Immediately Show Someone Wasn’t Raised Right, And We Need To Talk About It](https://www.yahoo.com/lifestyle/people-sharing-signs-immediately-show-011602794.html)
 - Oct 14 - [Montana man to return home from hospital weeks after grizzly bear bit off lower jaw](https://news.yahoo.com/montana-man-return-home-hospital-001726082.html)
-- Oct 13 - [McCarthy in fiery exchange with reporter blames Dems for bringing ‘chaos’ with ouster](https://news.yahoo.com/mccarthy-fiery-exchange-reporter-blames-231855111.html)
 - Oct 13 - [A cardiologist takes 3 supplements every day that can help prevent fatigue and boost immune function](https://news.yahoo.com/cardiologist-takes-3-supplements-every-213528377.html)
 - Oct 13 - [Michael Cohen Set to Skip Trump Bank Fraud Trial Testimony](https://news.yahoo.com/michael-cohen-set-skip-trump-213240045.html)
 <!-- feed end -->
