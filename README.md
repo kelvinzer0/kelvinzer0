@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 14 - [Top Ukraine general says fighting in northeast has 'significantly worsened'](https://news.yahoo.com/top-ukraine-general-says-fighting-095147707.html)
 - Oct 14 - [Iran's foreign minister warns Israel from Beirut it could suffer 'a huge earthquake'](https://news.yahoo.com/irans-foreign-minister-warns-israel-091749557.html)
 - Oct 14 - [Judge punishes Rudy Giuliani for flagrant disregard of court orders](https://news.yahoo.com/judge-punishes-rudy-giuliani-flagrant-043332820.html)
 - Oct 14 - [People Are Sharing The Signs That Immediately Show Someone Wasn’t Raised Right, And We Need To Talk About It](https://www.yahoo.com/lifestyle/people-sharing-signs-immediately-show-011602794.html)
-- Oct 14 - [Montana man to return home from hospital weeks after grizzly bear bit off lower jaw](https://news.yahoo.com/montana-man-return-home-hospital-001726082.html)
-- Oct 13 - [McCarthy in fiery exchange with reporter blames Dems for bringing ‘chaos’ with ouster](https://news.yahoo.com/mccarthy-fiery-exchange-reporter-blames-231855111.html)
+- Oct 14 - [2 Virginia corrections officers tasked with watching inmate when he escaped hospital admitted to being asleep](https://news.yahoo.com/2-virginia-corrections-officers-tasked-005633703.html)
 <!-- feed end -->
 
 ### Onstream
