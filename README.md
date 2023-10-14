@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [One of Donald Trump’s Children Just Heavily Supported Ivana’s Controversial Burial Site](https://www.yahoo.com/entertainment/one-donald-trump-children-just-165500688.html)
-- Oct 14 - [Former pupils have called on a private school to apologize for hiring a former Nazi SS officer who abused students](https://news.yahoo.com/former-pupils-called-private-school-154946879.html)
+- Oct 14 - [Michael Cohen health issue delays court showdown with Donald Trump](https://news.yahoo.com/michael-cohen-health-issue-delays-022824662.html)
+- Oct 14 - [Israel warns Hezbollah to stay out of Gaza war](https://news.yahoo.com/israel-warns-hezbollah-stay-gaza-163944050.html)
+- Oct 14 - [‘There Must Be Some Form of Reparations’: Russell Simmons Condemns Hamas, Wants Israel to Use Funds Given by the United States to Build a Mosque for Palestinians](https://www.yahoo.com/entertainment/must-form-reparations-russell-simmons-163000721.html)
 - Oct 14 - [Historical photos show life in Palestine before the withdrawal of British troops in 1948](https://news.yahoo.com/historical-photos-show-life-palestine-145601782.html)
 - Oct 14 - [Are Russia and China going to destroy the US economy? Dave Ramsey's got an answer, says only 'bottled water and bullets' would work under a worst-case scenario](https://finance.yahoo.com/news/russia-china-going-destroy-us-103000482.html)
-- Oct 14 - [Coca-Cola surprisingly ending most sales of popular beverage line](https://www.thestreet.com/restaurants/coca-cola-surprisingly-ending-most-sales-of-popular-beverage-line?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
