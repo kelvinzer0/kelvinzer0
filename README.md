@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 14 - [Are Russia and China going to destroy the US economy? Dave Ramsey's got an answer, says only 'bottled water and bullets' would work under a worst-case scenario](https://finance.yahoo.com/news/russia-china-going-destroy-us-103000482.html)
 - Oct 14 - [A proposed gag order on Trump in his federal election case is putting the judge in a tricky position](https://news.yahoo.com/proposed-gag-order-trump-federal-122503218.html)
 - Oct 14 - ['A devastating financial blow': California's so-called 'draconian' fast-food bill is now law — here's why McDonald's franchisees say it'll cost small business owners $250K per year](https://finance.yahoo.com/news/devastating-financial-blow-mcdonald-franchisee-163000954.html)
 - Oct 14 - [Retired Israeli general who rescued his family under siege from Hamas is being compared on social media to Liam Neeson's character in 'Taken'](https://news.yahoo.com/retired-israeli-general-rescued-family-111257982.html)
-- Oct 14 - [Top Ukraine general says fighting in northeast has 'significantly worsened'](https://news.yahoo.com/top-ukraine-general-says-fighting-095147707.html)
-- Oct 14 - [Iran's foreign minister warns Israel from Beirut it could suffer 'a huge earthquake'](https://news.yahoo.com/irans-foreign-minister-warns-israel-091749557.html)
+- Oct 14 - [‘Unconscionable’: Baby boomers are now becoming homeless at a rate ‘not seen since the Great Depression’ — here’s what's driving this terrible trend](https://finance.yahoo.com/news/unconscionable-baby-boomers-becoming-homeless-103000310.html)
 <!-- feed end -->
 
 ### Onstream
