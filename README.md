@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 14 - [American Airlines flight attendants aren't happy they still have to stay in a hotel where a colleague died in 'suspicious' circumstances](https://news.yahoo.com/american-airlines-flight-attendants-arent-144043896.html)
+- Oct 14 - [Historical photos show life in Palestine before the withdrawal of British troops in 1948](https://news.yahoo.com/historical-photos-show-life-palestine-145601782.html)
 - Oct 14 - [Are Russia and China going to destroy the US economy? Dave Ramsey's got an answer, says only 'bottled water and bullets' would work under a worst-case scenario](https://finance.yahoo.com/news/russia-china-going-destroy-us-103000482.html)
 - Oct 14 - [Coca-Cola surprisingly ending most sales of popular beverage line](https://www.thestreet.com/restaurants/coca-cola-surprisingly-ending-most-sales-of-popular-beverage-line?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Oct 14 - [A 31-year-old with $44,000 in student debt is shocked she’s paying more after rollout of Biden’s new plan is botched: ‘It’s been a nightmare’](https://finance.yahoo.com/news/31-old-44-000-student-123000728.html)
