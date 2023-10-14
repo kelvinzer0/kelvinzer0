@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 14 - [Thieves in Florida use tractor trailers to steal more than $1.6 million in alcohol from US distributor](https://news.yahoo.com/thieves-florida-tractor-trailers-steal-195836917.html)
 - Oct 14 - [Historical photos show life in Palestine before the withdrawal of British troops in 1948](https://news.yahoo.com/historical-photos-show-life-palestine-145601782.html)
 - Oct 14 - [Are Russia and China going to destroy the US economy? Dave Ramsey's got an answer, says only 'bottled water and bullets' would work under a worst-case scenario](https://finance.yahoo.com/news/russia-china-going-destroy-us-103000482.html)
 - Oct 14 - [Coca-Cola surprisingly ending most sales of popular beverage line](https://www.thestreet.com/restaurants/coca-cola-surprisingly-ending-most-sales-of-popular-beverage-line?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Oct 14 - [A 31-year-old with $44,000 in student debt is shocked she’s paying more after rollout of Biden’s new plan is botched: ‘It’s been a nightmare’](https://finance.yahoo.com/news/31-old-44-000-student-123000728.html)
-- Oct 14 - [A proposed gag order on Trump in his federal election case is putting the judge in a tricky position](https://news.yahoo.com/proposed-gag-order-trump-federal-122503218.html)
 <!-- feed end -->
 
 ### Onstream
