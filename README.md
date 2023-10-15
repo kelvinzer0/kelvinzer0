@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 15 - [Epstein Victim Who Testified Against Ghislaine Maxwell Has Died—and Her Family Wants Answers](https://news.yahoo.com/epstein-victim-testified-against-ghislaine-002922236.html)
+- Oct 14 - [4 Terrible Purchases Made by the $2 Billion Powerball Winner, According to Financial Planners](https://finance.yahoo.com/news/4-terrible-purchases-made-2-162028505.html)
 - Oct 14 - [Fact Check: Biden Ordered FBI Agents To Make 'Knock and Talk' Visits to Homes of Over 100K Trump Supporters?](https://news.yahoo.com/fact-check-biden-ordered-fbi-210000608.html)
 - Oct 14 - [Thieves in Florida use tractor trailers to steal more than $1.6 million in alcohol from US distributor](https://news.yahoo.com/thieves-florida-tractor-trailers-steal-195836917.html)
 - Oct 14 - [Israel warns Hezbollah to stay out of Gaza war](https://news.yahoo.com/israel-warns-hezbollah-stay-gaza-163944050.html)
-- Oct 14 - [Historical photos show life in Palestine before the withdrawal of British troops in 1948](https://news.yahoo.com/historical-photos-show-life-palestine-145601782.html)
 <!-- feed end -->
 
 ### Onstream
