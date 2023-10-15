@@ -62,8 +62,8 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 15 - [Leopard’s purr is giving Ukraine’s tank troops an element of surprise](https://news.yahoo.com/leopard-purr-giving-ukraine-tank-212857353.html)
 - Oct 15 - [Illinois Landlord Stabbed 6-Year-Old Dozens of Times Because He Was Muslim: Cops](https://news.yahoo.com/illinois-landlord-stabbed-6-old-204427275.html)
+- Oct 15 - [Father faces heartbreaking response after HOA discovers the treehouse he built for his daughter: ‘[It] needs to be preserved’](https://www.yahoo.com/lifestyle/father-faces-heartbreaking-response-hoa-200000685.html)
 - Oct 15 - [Family faces multiple E. coli infections after kindergartner’s Tennessee field trip](https://news.yahoo.com/family-faces-multiple-e-coli-192148336.html)
-- Oct 15 - [Factbox-US aircraft carriers - What they bring to the Middle East](https://news.yahoo.com/factbox-us-aircraft-carriers-bring-191508013.html)
 - Oct 15 - [Study uncovers the shocking impact of plant-based meat and dairy alternatives: ‘Not just a novel food product’](https://www.yahoo.com/lifestyle/study-uncovers-shocking-impact-plant-190000181.html)
 <!-- feed end -->
 
