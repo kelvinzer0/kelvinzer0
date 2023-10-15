@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [Study uncovers the shocking impact of plant-based meat and dairy alternatives: ‘Not just a novel food product’](https://www.yahoo.com/lifestyle/study-uncovers-shocking-impact-plant-190000181.html)
 - Oct 15 - [It’s official: The era of China’s global dominance is over](https://finance.yahoo.com/news/great-china-boom-going-bust-102202610.html)
 - Oct 15 - [Large Hamas weapons cache seized by IDF showcases firepower](https://news.yahoo.com/large-hamas-weapons-cache-seized-173617803.html)
 - Oct 15 - [Eric Trump Has Found Himself in Hot Water When One of the Family’s Financial Aides Shed Light on a Certain Phone Call](https://www.yahoo.com/entertainment/eric-trump-found-himself-hot-163500889.html)
 - Oct 15 - [‘That’s the Monkey’: Outraged Parents Forced to Take Legal Action After Son’s Repeated Racist Abuse at a Massachusetts School Were Not Taken Seriously Despite Principle’s Promises](https://news.yahoo.com/monkey-outraged-parents-forced-legal-153633084.html)
-- Oct 15 - [A 15-year-old aspiring journalist who had made Ron DeSantis squirm with his questioning was thrown out of a GOP event by police](https://news.yahoo.com/15-old-aspiring-journalist-had-151852935.html)
 <!-- feed end -->
 
 ### Onstream
