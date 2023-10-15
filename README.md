@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [People Are Sharing Signs That People Are Straight Up Trashy, And Some Of These Are On Point](https://www.yahoo.com/lifestyle/people-sharing-signs-people-straight-130812033.html)
 - Oct 15 - [IDF video shows Israeli navy unit spraying machine gun fire at Hamas fighters 'swimming' toward coast](https://news.yahoo.com/idf-video-shows-israeli-navy-120645741.html)
+- Oct 15 - [Child rights advocates ask why state left slain 5-year-old Kansas girl in a clearly unstable home](https://news.yahoo.com/child-rights-advocates-ask-why-114142941.html)
 - Oct 15 - [A Supreme Court dispute over a $15,000 IRS bill may be aimed at a never-enacted tax on billionaires](https://news.yahoo.com/couple-powerful-help-asking-supreme-114115402.html)
 - Oct 15 - [An Arab paramedic who treated Israelis injured by Hamas militants is remembered as a hero](https://news.yahoo.com/arab-paramedic-treated-israelis-injured-103846898.html)
-- Oct 15 - [Two idiot tourists suffer instant karma after taunting ornery moose in Montana: ‘One of the best things I’ve seen all year’](https://www.yahoo.com/lifestyle/bystander-captures-instant-karma-moment-093000756.html)
-- Oct 15 - [‘That decision cost lives’: Covid data case further deflates Ron DeSantis’s campaign](https://news.yahoo.com/decision-cost-lives-covid-data-100009439.html)
 <!-- feed end -->
 
 ### Onstream
