@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [IDF video shows Israeli navy unit spraying machine gun fire at Hamas fighters 'swimming' toward coast](https://news.yahoo.com/idf-video-shows-israeli-navy-120645741.html)
+- Oct 15 - [A Supreme Court dispute over a $15,000 IRS bill may be aimed at a never-enacted tax on billionaires](https://news.yahoo.com/couple-powerful-help-asking-supreme-114115402.html)
 - Oct 15 - [An Arab paramedic who treated Israelis injured by Hamas militants is remembered as a hero](https://news.yahoo.com/arab-paramedic-treated-israelis-injured-103846898.html)
+- Oct 15 - [Two idiot tourists suffer instant karma after taunting ornery moose in Montana: ‘One of the best things I’ve seen all year’](https://www.yahoo.com/lifestyle/bystander-captures-instant-karma-moment-093000756.html)
 - Oct 15 - [‘That decision cost lives’: Covid data case further deflates Ron DeSantis’s campaign](https://news.yahoo.com/decision-cost-lives-covid-data-100009439.html)
-- Oct 15 - [‘Unhinged’ and foul-mouthed neighbor destroys homeowner’s yard then lies to the cops about it: ‘Get an attorney’](https://news.yahoo.com/homeowner-furious-careless-neighbor-destroys-200000438.html)
-- Oct 15 - [Iranian Director Dariush Mehrjui Murdered At Home With His Wife](https://www.yahoo.com/entertainment/iranian-director-dariush-mehrjui-murdered-090806679.html)
-- Oct 15 - [Putin says suggestions of U.S. war against Russia and China are nonsense](https://news.yahoo.com/putin-says-suggestions-u-war-085534048.html)
 <!-- feed end -->
 
 ### Onstream
