@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [Israeli rabbis work around the clock -- even on the Sabbath -- to count the dead from Hamas attack](https://news.yahoo.com/israeli-rabbis-around-clock-even-174826434.html)
+- Oct 15 - [Eric Trump Has Found Himself in Hot Water When One of the Family’s Financial Aides Shed Light on a Certain Phone Call](https://www.yahoo.com/entertainment/eric-trump-found-himself-hot-163500889.html)
 - Oct 15 - [‘That’s the Monkey’: Outraged Parents Forced to Take Legal Action After Son’s Repeated Racist Abuse at a Massachusetts School Were Not Taken Seriously Despite Principle’s Promises](https://news.yahoo.com/monkey-outraged-parents-forced-legal-153633084.html)
 - Oct 15 - [A 15-year-old aspiring journalist who had made Ron DeSantis squirm with his questioning was thrown out of a GOP event by police](https://news.yahoo.com/15-old-aspiring-journalist-had-151852935.html)
 - Oct 15 - [Why can't some women orgasm? Here's what experts say.](https://www.yahoo.com/lifestyle/why-cant-some-women-orgasm-heres-what-experts-say-190839696.html)
-- Oct 15 - [Ask an Advisor: My Wife Claimed Social Security at 65. Can She Collect the Max Spousal Benefit When I Retire?](https://finance.yahoo.com/news/ask-advisor-wife-claimed-social-110000148.html)
-- Oct 15 - [The IRS Is Cracking Down on These High-Income Earners. Are You One of Them?](https://finance.yahoo.com/news/irs-cracking-down-high-income-113000406.html)
 <!-- feed end -->
 
 ### Onstream
