@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [Boebert spent campaign cash at Beetlejuice boyfriend’s bar](https://news.yahoo.com/boebert-spent-campaign-cash-beetlejuice-144500942.html)
+- Oct 15 - [Jim Jordan’s pressure campaign the ‘dumbest thing you can do’ one House Republican says](https://news.yahoo.com/jim-jordan-pressure-campaign-dumbest-144105629.html)
+- Oct 15 - [Teens Laugh After Crashing Kia Into Los Angeles Storefront](https://news.yahoo.com/teens-laugh-crashing-kia-los-140000070.html)
+- Oct 15 - [A new residential cruise ship will let travelers live at sea while it sails around the world every 3.5 years — take a look at its condos starting at $100,000](https://news.yahoo.com/residential-cruise-ship-let-travelers-131701083.html)
 - Oct 15 - [People Are Sharing Signs That People Are Straight Up Trashy, And Some Of These Are On Point](https://www.yahoo.com/lifestyle/people-sharing-signs-people-straight-130812033.html)
-- Oct 15 - [IDF video shows Israeli navy unit spraying machine gun fire at Hamas fighters 'swimming' toward coast](https://news.yahoo.com/idf-video-shows-israeli-navy-120645741.html)
-- Oct 15 - [Child rights advocates ask why state left slain 5-year-old Kansas girl in a clearly unstable home](https://news.yahoo.com/child-rights-advocates-ask-why-114142941.html)
-- Oct 15 - [A Supreme Court dispute over a $15,000 IRS bill may be aimed at a never-enacted tax on billionaires](https://news.yahoo.com/couple-powerful-help-asking-supreme-114115402.html)
-- Oct 15 - [An Arab paramedic who treated Israelis injured by Hamas militants is remembered as a hero](https://news.yahoo.com/arab-paramedic-treated-israelis-injured-103846898.html)
 <!-- feed end -->
 
 ### Onstream
