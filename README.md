@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [A 15-year-old aspiring journalist who had made Ron DeSantis squirm with his questioning was thrown out of a GOP event by police](https://news.yahoo.com/15-old-aspiring-journalist-had-151852935.html)
+- Oct 15 - [Erectile dysfunction isn't just a blood flow issue. Here's what to know about ED — and the best ways to treat it.](https://www.yahoo.com/lifestyle/erectile-dysfunction-causes-best-ways-to-treat-it-233459231.html)
+- Oct 15 - [Why can't some women orgasm? Here's what experts say.](https://www.yahoo.com/lifestyle/why-cant-some-women-orgasm-heres-what-experts-say-190839696.html)
+- Oct 15 - [The IRS Is Cracking Down on These High-Income Earners. Are You One of Them?](https://finance.yahoo.com/news/irs-cracking-down-high-income-113000406.html)
 - Oct 15 - [Boebert spent campaign cash at Beetlejuice boyfriend’s bar](https://news.yahoo.com/boebert-spent-campaign-cash-beetlejuice-144500942.html)
-- Oct 15 - [Jim Jordan’s pressure campaign the ‘dumbest thing you can do’ one House Republican says](https://news.yahoo.com/jim-jordan-pressure-campaign-dumbest-144105629.html)
-- Oct 15 - [Teens Laugh After Crashing Kia Into Los Angeles Storefront](https://news.yahoo.com/teens-laugh-crashing-kia-los-140000070.html)
-- Oct 15 - [A new residential cruise ship will let travelers live at sea while it sails around the world every 3.5 years — take a look at its condos starting at $100,000](https://news.yahoo.com/residential-cruise-ship-let-travelers-131701083.html)
-- Oct 15 - [People Are Sharing Signs That People Are Straight Up Trashy, And Some Of These Are On Point](https://www.yahoo.com/lifestyle/people-sharing-signs-people-straight-130812033.html)
 <!-- feed end -->
 
 ### Onstream
