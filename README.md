@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [Leopard’s purr is giving Ukraine’s tank troops an element of surprise](https://news.yahoo.com/leopard-purr-giving-ukraine-tank-212857353.html)
+- Oct 15 - [Illinois Landlord Stabbed 6-Year-Old Dozens of Times Because He Was Muslim: Cops](https://news.yahoo.com/illinois-landlord-stabbed-6-old-204427275.html)
+- Oct 15 - [Family faces multiple E. coli infections after kindergartner’s Tennessee field trip](https://news.yahoo.com/family-faces-multiple-e-coli-192148336.html)
+- Oct 15 - [Factbox-US aircraft carriers - What they bring to the Middle East](https://news.yahoo.com/factbox-us-aircraft-carriers-bring-191508013.html)
 - Oct 15 - [Study uncovers the shocking impact of plant-based meat and dairy alternatives: ‘Not just a novel food product’](https://www.yahoo.com/lifestyle/study-uncovers-shocking-impact-plant-190000181.html)
-- Oct 15 - [It’s official: The era of China’s global dominance is over](https://finance.yahoo.com/news/great-china-boom-going-bust-102202610.html)
-- Oct 15 - [Large Hamas weapons cache seized by IDF showcases firepower](https://news.yahoo.com/large-hamas-weapons-cache-seized-173617803.html)
-- Oct 15 - [Eric Trump Has Found Himself in Hot Water When One of the Family’s Financial Aides Shed Light on a Certain Phone Call](https://www.yahoo.com/entertainment/eric-trump-found-himself-hot-163500889.html)
-- Oct 15 - [‘That’s the Monkey’: Outraged Parents Forced to Take Legal Action After Son’s Repeated Racist Abuse at a Massachusetts School Were Not Taken Seriously Despite Principle’s Promises](https://news.yahoo.com/monkey-outraged-parents-forced-legal-153633084.html)
 <!-- feed end -->
 
 ### Onstream
