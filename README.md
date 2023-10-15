@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 15 - [Epstein Victim Who Testified Against Ghislaine Maxwell Has Died—and Her Family Wants Answers](https://news.yahoo.com/epstein-victim-testified-against-ghislaine-002922236.html)
-- Oct 14 - [Iran warns of 'far-reaching consequences' if Israel not stopped](https://news.yahoo.com/iran-warns-far-reaching-consequences-214323484.html)
+- Oct 15 - [Missing San Diego woman's last contacts included chat with police officer, woodcutter before disappearance](https://news.yahoo.com/missing-san-diego-womans-last-000637739.html)
 - Oct 14 - [Fact Check: Biden Ordered FBI Agents To Make 'Knock and Talk' Visits to Homes of Over 100K Trump Supporters?](https://news.yahoo.com/fact-check-biden-ordered-fbi-210000608.html)
 - Oct 14 - [Thieves in Florida use tractor trailers to steal more than $1.6 million in alcohol from US distributor](https://news.yahoo.com/thieves-florida-tractor-trailers-steal-195836917.html)
 - Oct 14 - [Israel warns Hezbollah to stay out of Gaza war](https://news.yahoo.com/israel-warns-hezbollah-stay-gaza-163944050.html)
