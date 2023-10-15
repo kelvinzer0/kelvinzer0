@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [‘That decision cost lives’: Covid data case further deflates Ron DeSantis’s campaign](https://news.yahoo.com/decision-cost-lives-covid-data-100009439.html)
 - Oct 15 - [Iranian Director Dariush Mehrjui Murdered At Home With His Wife](https://www.yahoo.com/entertainment/iranian-director-dariush-mehrjui-murdered-090806679.html)
 - Oct 15 - [Homeowners file restraining order after HOA issues outlandish neighborhood-wide fine: ‘This has been a nightmare for 3 years’](https://www.yahoo.com/lifestyle/homeowners-file-restraining-order-hoa-040000537.html)
 - Oct 15 - [Worst Failure in Israeli History: Netanyahu Abandoned the Very Heart of Israel](https://news.yahoo.com/worst-failure-israeli-history-netanyahu-024850622.html)
 - Oct 15 - [Epstein Victim Who Testified Against Ghislaine Maxwell Has Died—and Her Family Wants Answers](https://news.yahoo.com/epstein-victim-testified-against-ghislaine-002922236.html)
-- Oct 14 - [Israel attacks Syrian international airport again](https://news.yahoo.com/israel-attacks-syrian-international-airport-224647587.html)
 <!-- feed end -->
 
 ### Onstream
