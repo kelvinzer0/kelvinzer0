@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [Billionaire founder of Victoria's Secret pulls funding from Harvard, accusing the school of 'dismal failure' to take a stand for Israel](https://news.yahoo.com/billionaire-founder-victorias-secret-pulls-205658262.html)
 - Oct 16 - [The Supreme Court orders makers of gun parts to comply with rules on ghost guns](https://news.yahoo.com/supreme-court-orders-makers-gun-204102214.html)
-- Oct 16 - [Israel suspends military exports to Colombia over its president's criticism of Gaza seige](https://news.yahoo.com/israel-suspends-military-exports-colombia-203057308.html)
-- Oct 16 - [Metal detectorist finds deep buried object — and unearths trove of ancient treasure](https://news.yahoo.com/metal-detectorist-finds-deep-buried-202958428.html)
-- Oct 16 - [Suspect in Natalee Holloway disappearance to reveal details of her death in plea deal, lawyer says](https://news.yahoo.com/suspect-natalee-holloway-disappearance-reveal-192914541.html)
-- Oct 16 - [Legal expert warns Trump lawyers could face “disbarment” and “possibly be jailed” over court stunts](https://news.yahoo.com/legal-expert-warns-trump-lawyers-191136098.html)
+- Oct 16 - [Trump fraud judge cracks 'what's sauce for the goose...' joke in response to complaint about Michael Cohen's anti-Trump tweets](https://news.yahoo.com/trump-fraud-judge-cracks-whats-203644683.html)
+- Oct 16 - [Interception of Canadian military plane by Chinese jets was unacceptable -Ottawa](https://news.yahoo.com/interception-canadian-military-plane-chinese-202747810.html)
+- Oct 16 - [NFL Star Antonio Brown Arrested, Mugshot Revealed](https://www.yahoo.com/entertainment/nfl-star-antonio-brown-arrested-195638420.html)
 <!-- feed end -->
 
 ### Onstream
