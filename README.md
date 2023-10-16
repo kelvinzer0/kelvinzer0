@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [Judge Chutkan "literally laughs" in Trump lawyer's face before issuing partial gag order](https://news.yahoo.com/judge-chutkan-literally-laughs-trump-184046874.html)
-- Oct 16 - [Donald Trump seeks ‘vindication’ as he counters accusations of ‘perverted’ sex](https://news.yahoo.com/donald-trump-seeks-vindication-counters-173859276.html)
-- Oct 16 - [Josh Jackson, ex-Suns first-rounder and former Kansas star, accused of rape, battery in lawsuit](https://sports.yahoo.com/josh-jackson-ex-suns-first-rounder-and-former-kansas-star-accused-of-rape-battery-in-lawsuit-165039278.html)
-- Oct 16 - [Hawaii Figured Out How To Stop Catalytic Converter Theft, Why Hasn’t Your State?](https://news.yahoo.com/hawaii-figured-stop-catalytic-theft-164500377.html)
-- Oct 16 - [Mexico will help, provide oil to Cuba, Lopez Obrador says](https://news.yahoo.com/mexico-help-oil-cuba-lopez-160255083.html)
+- Oct 16 - [Suspect in Natalee Holloway disappearance to reveal details of her death in plea deal, lawyer says](https://news.yahoo.com/suspect-natalee-holloway-disappearance-reveal-192914541.html)
+- Oct 16 - [Legal expert warns Trump lawyers could face “disbarment” and “possibly be jailed” over court stunts](https://news.yahoo.com/legal-expert-warns-trump-lawyers-191136098.html)
+- Oct 16 - [Former NFL receiver Antonio Brown arrested for alleged unpaid child support](https://sports.yahoo.com/former-nfl-receiver-antonio-brown-arrested-for-alleged-unpaid-child-support-190646688.html)
+- Oct 16 - [‘Oshikatsu’ explained: Why some Japanese people would rather 'stan' than date](https://news.yahoo.com/oshikatsu-explained-why-japanese-people-190253112.html)
+- Oct 16 - [Wisconsin Supreme Court asked to draw new legislative boundaries over Republican objections](https://news.yahoo.com/wisconsin-supreme-court-asked-draw-185903027.html)
 <!-- feed end -->
 
 ### Onstream
