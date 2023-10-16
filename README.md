@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [Judge Chutkan "literally laughs" in Trump lawyer's face before issuing partial gag order](https://news.yahoo.com/judge-chutkan-literally-laughs-trump-184046874.html)
 - Oct 16 - [Donald Trump seeks ‘vindication’ as he counters accusations of ‘perverted’ sex](https://news.yahoo.com/donald-trump-seeks-vindication-counters-173859276.html)
+- Oct 16 - [Josh Jackson, ex-Suns first-rounder and former Kansas star, accused of rape, battery in lawsuit](https://sports.yahoo.com/josh-jackson-ex-suns-first-rounder-and-former-kansas-star-accused-of-rape-battery-in-lawsuit-165039278.html)
+- Oct 16 - [Hawaii Figured Out How To Stop Catalytic Converter Theft, Why Hasn’t Your State?](https://news.yahoo.com/hawaii-figured-stop-catalytic-theft-164500377.html)
 - Oct 16 - [Mexico will help, provide oil to Cuba, Lopez Obrador says](https://news.yahoo.com/mexico-help-oil-cuba-lopez-160255083.html)
-- Oct 16 - ['The stupidest investment I ever saw': Charlie Munger trashes 2 popular investment trends — here's what Warren Buffett's business partner prefers instead](https://finance.yahoo.com/news/stupidest-investment-ever-saw-charlie-160000920.html)
-- Oct 16 - [An Angler Earned Over $100,000 Catching an Unwanted Species of Fish this Summer](https://www.yahoo.com/lifestyle/angler-earned-over-100-000-152605829.html)
-- Oct 16 - ["Approximately" 20 Republicans plot to block Jim Jordan amid the "dumbest" pressure campaign](https://news.yahoo.com/approximately-20-republicans-plot-block-152316888.html)
 <!-- feed end -->
 
 ### Onstream
