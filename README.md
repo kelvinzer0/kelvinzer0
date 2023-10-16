@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [Judge grants gag order in Trump's 2020 election case](https://news.yahoo.com/judge-grants-gag-order-trump-162124338.html)
+- Oct 16 - [Donald Trump seeks ‘vindication’ as he counters accusations of ‘perverted’ sex](https://news.yahoo.com/donald-trump-seeks-vindication-counters-173859276.html)
 - Oct 16 - [Mexico will help, provide oil to Cuba, Lopez Obrador says](https://news.yahoo.com/mexico-help-oil-cuba-lopez-160255083.html)
 - Oct 16 - ['The stupidest investment I ever saw': Charlie Munger trashes 2 popular investment trends — here's what Warren Buffett's business partner prefers instead](https://finance.yahoo.com/news/stupidest-investment-ever-saw-charlie-160000920.html)
+- Oct 16 - [An Angler Earned Over $100,000 Catching an Unwanted Species of Fish this Summer](https://www.yahoo.com/lifestyle/angler-earned-over-100-000-152605829.html)
 - Oct 16 - ["Approximately" 20 Republicans plot to block Jim Jordan amid the "dumbest" pressure campaign](https://news.yahoo.com/approximately-20-republicans-plot-block-152316888.html)
-- Oct 16 - [She dropped off two small kids on a Florida beach, cops say — then she got in her car](https://news.yahoo.com/she-dropped-off-two-small-151425567.html)
 <!-- feed end -->
 
 ### Onstream
