@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [Iran says US already 'militarily involved' in Israeli-Palestinian conflict](https://news.yahoo.com/iran-says-us-already-militarily-090711319.html)
+- Oct 16 - [Biden picks Boebert as his foil for economic message in Colorado](https://news.yahoo.com/biden-picks-boebert-foil-economic-090514603.html)
 - Oct 16 - [With eye on U.S., Turkey in no rush to back Sweden's NATO bid -sources](https://news.yahoo.com/eye-u-turkey-no-rush-083603379.html)
 - Oct 16 - [How Trump’s Team Twisted His Bank Fraud Trial Into a Farce](https://news.yahoo.com/trump-team-twisted-bank-fraud-083235848.html)
 - Oct 16 - [Illinois resident removes Halloween decoration social media commenters called racially insensitive](https://news.yahoo.com/illinois-resident-removes-halloween-decoration-080000767.html)
-- Oct 16 - [Jim Jordan-Backing Republican Receives A Blunt Reminder… But To No Avail](https://news.yahoo.com/jim-jordan-backing-republican-receives-070412296.html)
-- Oct 16 - [Egyptian sources say ceasefire agreed to allow Rafah re-opening, Netanyahu denies](https://news.yahoo.com/egypt-us-israel-agree-ceasefire-061519806.html)
 <!-- feed end -->
 
 ### Onstream
