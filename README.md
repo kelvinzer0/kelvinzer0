@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [With eye on U.S., Turkey in no rush to back Sweden's NATO bid -sources](https://news.yahoo.com/eye-u-turkey-no-rush-083603379.html)
+- Oct 16 - [How Trump’s Team Twisted His Bank Fraud Trial Into a Farce](https://news.yahoo.com/trump-team-twisted-bank-fraud-083235848.html)
+- Oct 16 - [Illinois resident removes Halloween decoration social media commenters called racially insensitive](https://news.yahoo.com/illinois-resident-removes-halloween-decoration-080000767.html)
 - Oct 16 - [Jim Jordan-Backing Republican Receives A Blunt Reminder… But To No Avail](https://news.yahoo.com/jim-jordan-backing-republican-receives-070412296.html)
 - Oct 16 - [Egyptian sources say ceasefire agreed to allow Rafah re-opening, Netanyahu denies](https://news.yahoo.com/egypt-us-israel-agree-ceasefire-061519806.html)
-- Oct 16 - [Experts overwhelmingly blame one person for climate change confusion: ‘One of the greatest climate villains’](https://news.yahoo.com/experts-overwhelmingly-blame-one-person-053000672.html)
-- Oct 16 - [Here's How Much Your 2024 Social Security Increase Would Have Been If Joe Biden Had His Way](https://www.fool.com/retirement/2023/10/15/heres-how-much-your-2024-social-security-increase/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Oct 16 - [Jon Huntsman says family ‘will close its checkbook’ to Penn over non-response to Hamas’ attack on Israel](https://news.yahoo.com/jon-huntsman-says-family-close-032024627.html)
 <!-- feed end -->
 
 ### Onstream
