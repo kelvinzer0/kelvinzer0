@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [Hezbollah destroys Israeli surveillance cameras along the Lebanese border as tension soars](https://news.yahoo.com/hezbollah-destroys-israeli-surveillance-cameras-121425091.html)
+- Oct 16 - ['They'll walk straight into jail cells': California commits $267M to cracking down on smash-and-grab robberies in retail stores — but will it stave off the national 'growing threat'?](https://finance.yahoo.com/news/ll-walk-straight-jail-cells-153000421.html)
 - Oct 16 - [Israel's richest man and his wife stepped down from a Harvard board, saying their faith in the school's leadership had been 'broken' over its response to the Hamas attacks](https://news.yahoo.com/israels-richest-man-wife-stepped-110313840.html)
 - Oct 16 - [Another Twist In Lauren Boebert Theater Moment Emerges](https://www.yahoo.com/entertainment/another-twist-lauren-boebert-theater-103626975.html)
 - Oct 16 - [A Tesla owner says his 'heart missed a beat' when he received a $20,000 bill after the battery was damaged by rain](https://news.yahoo.com/tesla-owner-says-heart-missed-101437691.html)
-- Oct 16 - [Why you should carefully consider what Jamie Dimon just told the investing world](https://finance.yahoo.com/news/why-you-should-carefully-consider-what-jamie-dimon-just-told-the-investing-world-100022741.html)
-- Oct 16 - ["Keep her legs closed!": Republicans are mad one of them said the quiet part out loud](https://news.yahoo.com/keep-her-legs-closed-republicans-100001890.html)
 <!-- feed end -->
 
 ### Onstream
