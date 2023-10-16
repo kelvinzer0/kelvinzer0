@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [The Supreme Court orders makers of gun parts to comply with rules on ghost guns](https://news.yahoo.com/supreme-court-orders-makers-gun-204102214.html)
+- Oct 16 - [Israel suspends military exports to Colombia over its president's criticism of Gaza seige](https://news.yahoo.com/israel-suspends-military-exports-colombia-203057308.html)
+- Oct 16 - [Metal detectorist finds deep buried object — and unearths trove of ancient treasure](https://news.yahoo.com/metal-detectorist-finds-deep-buried-202958428.html)
 - Oct 16 - [Suspect in Natalee Holloway disappearance to reveal details of her death in plea deal, lawyer says](https://news.yahoo.com/suspect-natalee-holloway-disappearance-reveal-192914541.html)
 - Oct 16 - [Legal expert warns Trump lawyers could face “disbarment” and “possibly be jailed” over court stunts](https://news.yahoo.com/legal-expert-warns-trump-lawyers-191136098.html)
-- Oct 16 - [Former NFL receiver Antonio Brown arrested for alleged unpaid child support](https://sports.yahoo.com/former-nfl-receiver-antonio-brown-arrested-for-alleged-unpaid-child-support-190646688.html)
-- Oct 16 - [‘Oshikatsu’ explained: Why some Japanese people would rather 'stan' than date](https://news.yahoo.com/oshikatsu-explained-why-japanese-people-190253112.html)
-- Oct 16 - [Wisconsin Supreme Court asked to draw new legislative boundaries over Republican objections](https://news.yahoo.com/wisconsin-supreme-court-asked-draw-185903027.html)
 <!-- feed end -->
 
 ### Onstream
