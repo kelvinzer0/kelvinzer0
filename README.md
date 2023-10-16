@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 15 - [Joe Biden, In ’60 Minutes’ Interview, Says He Believes The Israelis Are “Going To Do Everything In Their Power To Avoid The Killing Of Innocent Civilians”- Update](https://www.yahoo.com/entertainment/joe-biden-sit-down-60-162312962.html)
+- Oct 15 - [AOC’s admission over her Tesla purchase sparks debate online: ‘Do as I say, not as I do’](https://news.yahoo.com/aoc-admission-over-her-tesla-220000415.html)
+- Oct 15 - [Ronnie Kaye announces removal from radio due to on-air comment](https://news.yahoo.com/ronnie-kaye-announces-removal-radio-213136995.html)
 - Oct 15 - [Leopard’s purr is giving Ukraine’s tank troops an element of surprise](https://news.yahoo.com/leopard-purr-giving-ukraine-tank-212857353.html)
 - Oct 15 - [Illinois Landlord Stabbed 6-Year-Old Dozens of Times Because He Was Muslim: Cops](https://news.yahoo.com/illinois-landlord-stabbed-6-old-204427275.html)
-- Oct 15 - [Father faces heartbreaking response after HOA discovers the treehouse he built for his daughter: ‘[It] needs to be preserved’](https://www.yahoo.com/lifestyle/father-faces-heartbreaking-response-hoa-200000685.html)
-- Oct 15 - [Family faces multiple E. coli infections after kindergartner’s Tennessee field trip](https://news.yahoo.com/family-faces-multiple-e-coli-192148336.html)
-- Oct 15 - [Study uncovers the shocking impact of plant-based meat and dairy alternatives: ‘Not just a novel food product’](https://www.yahoo.com/lifestyle/study-uncovers-shocking-impact-plant-190000181.html)
 <!-- feed end -->
 
 ### Onstream
