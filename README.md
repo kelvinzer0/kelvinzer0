@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [Another Twist In Lauren Boebert Theater Moment Emerges](https://www.yahoo.com/entertainment/another-twist-lauren-boebert-theater-103626975.html)
+- Oct 16 - [A Tesla owner says his 'heart missed a beat' when he received a $20,000 bill after the battery was damaged by rain](https://news.yahoo.com/tesla-owner-says-heart-missed-101437691.html)
+- Oct 16 - [Why you should carefully consider what Jamie Dimon just told the investing world](https://finance.yahoo.com/news/why-you-should-carefully-consider-what-jamie-dimon-just-told-the-investing-world-100022741.html)
+- Oct 16 - ["Keep her legs closed!": Republicans are mad one of them said the quiet part out loud](https://news.yahoo.com/keep-her-legs-closed-republicans-100001890.html)
 - Oct 16 - [Iran says US already 'militarily involved' in Israeli-Palestinian conflict](https://news.yahoo.com/iran-says-us-already-militarily-090711319.html)
-- Oct 16 - [Biden picks Boebert as his foil for economic message in Colorado](https://news.yahoo.com/biden-picks-boebert-foil-economic-090514603.html)
-- Oct 16 - [With eye on U.S., Turkey in no rush to back Sweden's NATO bid -sources](https://news.yahoo.com/eye-u-turkey-no-rush-083603379.html)
-- Oct 16 - [How Trump’s Team Twisted His Bank Fraud Trial Into a Farce](https://news.yahoo.com/trump-team-twisted-bank-fraud-083235848.html)
-- Oct 16 - [Illinois resident removes Halloween decoration social media commenters called racially insensitive](https://news.yahoo.com/illinois-resident-removes-halloween-decoration-080000767.html)
 <!-- feed end -->
 
 ### Onstream
