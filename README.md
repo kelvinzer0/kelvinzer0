@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 16 - [Judge Chutkan to hear arguments over proposed gag order in Trump's election interference case](https://news.yahoo.com/judge-chutkan-hear-arguments-over-042615981.html)
+- Oct 16 - [South Korea to hold largest defence show in bid to boost global sales](https://news.yahoo.com/south-korea-hold-largest-defence-034651502.html)
 - Oct 16 - [Here's How Much Your 2024 Social Security Increase Would Have Been If Joe Biden Had His Way](https://www.fool.com/retirement/2023/10/15/heres-how-much-your-2024-social-security-increase/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Oct 16 - [Jon Huntsman says family ‘will close its checkbook’ to Penn over non-response to Hamas’ attack on Israel](https://news.yahoo.com/jon-huntsman-says-family-close-032024627.html)
-- Oct 16 - [Leaders from emerging economies are visiting China for the 'Belt and Road' forum](https://news.yahoo.com/leaders-emerging-economies-visiting-china-030625328.html)
 - Oct 16 - [Philippines denounces China for 'dangerous and offensive' actions in South China Sea](https://news.yahoo.com/philippines-denounces-china-dangerous-offensive-013205625.html)
 <!-- feed end -->
 
