@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 16 - [Jordan Klepper Confronts Deeply Clueless Trump Fans in New Hampshire](https://www.yahoo.com/entertainment/jordan-klepper-confronts-deeply-clueless-224643003.html)
+- Oct 16 - [As Israeli jets devastate Gaza, air force photos show fighter aircraft armed with what look like unguided 'dumb' bombs](https://news.yahoo.com/israeli-jets-devastate-gaza-air-220001276.html)
+- Oct 16 - [A banker was fired after trying to expense 2 sandwiches, 2 pastas, and 2 coffees, and saying he ate everything himself — before later admitting he shared them with his partner](https://finance.yahoo.com/news/banker-fired-trying-expense-2-215022133.html)
 - Oct 16 - [Billionaire founder of Victoria's Secret pulls funding from Harvard, accusing the school of 'dismal failure' to take a stand for Israel](https://news.yahoo.com/billionaire-founder-victorias-secret-pulls-205658262.html)
 - Oct 16 - [The Supreme Court orders makers of gun parts to comply with rules on ghost guns](https://news.yahoo.com/supreme-court-orders-makers-gun-204102214.html)
-- Oct 16 - [Trump fraud judge cracks 'what's sauce for the goose...' joke in response to complaint about Michael Cohen's anti-Trump tweets](https://news.yahoo.com/trump-fraud-judge-cracks-whats-203644683.html)
-- Oct 16 - [Interception of Canadian military plane by Chinese jets was unacceptable -Ottawa](https://news.yahoo.com/interception-canadian-military-plane-chinese-202747810.html)
-- Oct 16 - [NFL Star Antonio Brown Arrested, Mugshot Revealed](https://www.yahoo.com/entertainment/nfl-star-antonio-brown-arrested-195638420.html)
 <!-- feed end -->
 
 ### Onstream
