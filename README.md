@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 15 - [Joe Biden, In ’60 Minutes’ Interview, Says He Believes The Israelis Are “Going To Do Everything In Their Power To Avoid The Killing Of Innocent Civilians”- Update](https://www.yahoo.com/entertainment/joe-biden-sit-down-60-162312962.html)
+- Oct 16 - [Explainer-New Zealand voted for change, what happens now?](https://news.yahoo.com/explainer-zealand-voted-change-happens-014033402.html)
+- Oct 16 - [Philippines denounces China for 'dangerous and offensive' actions in South China Sea](https://news.yahoo.com/philippines-denounces-china-dangerous-offensive-013205625.html)
+- Oct 15 - [Texas Woman Goes Viral On TikTok For Accidentally Driving To Mexico During Trip To Home Depot](https://news.yahoo.com/texas-woman-goes-viral-tiktok-232757162.html)
 - Oct 15 - [AOC’s admission over her Tesla purchase sparks debate online: ‘Do as I say, not as I do’](https://news.yahoo.com/aoc-admission-over-her-tesla-220000415.html)
-- Oct 15 - [Ronnie Kaye announces removal from radio due to on-air comment](https://news.yahoo.com/ronnie-kaye-announces-removal-radio-213136995.html)
 - Oct 15 - [Leopard’s purr is giving Ukraine’s tank troops an element of surprise](https://news.yahoo.com/leopard-purr-giving-ukraine-tank-212857353.html)
-- Oct 15 - [Illinois Landlord Stabbed 6-Year-Old Dozens of Times Because He Was Muslim: Cops](https://news.yahoo.com/illinois-landlord-stabbed-6-old-204427275.html)
 <!-- feed end -->
 
 ### Onstream
