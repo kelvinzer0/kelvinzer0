@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [US Supreme Court turns away appeal in PETA undercover recording case](https://news.yahoo.com/us-supreme-court-turns-away-134713774.html)
-- Oct 16 - [Ford Executive Chair Bill Ford calls on autoworkers to end strike, says company's future is at stake](https://news.yahoo.com/ford-executive-chairman-bill-ford-134403412.html)
-- Oct 16 - [Trump knocks ’60 Minutes’ after Biden interview: ‘Each question contained the answer’](https://news.yahoo.com/trump-knocks-60-minutes-biden-132604572.html)
-- Oct 16 - [CBS News Anchor's Reaction To GOP Rep.'s Take On Jim Jordan Says It All](https://www.yahoo.com/entertainment/cbs-news-anchors-reaction-gop-131759798.html)
-- Oct 16 - [‘Why Doesn’t She Close the Door?’: White University of Dallas Professor Allegedly Called Security on Black Student Listening to a Lecture on Computer Without Headphones](https://news.yahoo.com/why-doesn-t-she-close-130000062.html)
+- Oct 16 - ['The stupidest investment I ever saw': Charlie Munger trashes 2 popular investment trends — here's what Warren Buffett's business partner prefers instead](https://finance.yahoo.com/news/stupidest-investment-ever-saw-charlie-160000920.html)
+- Oct 16 - ["Approximately" 20 Republicans plot to block Jim Jordan amid the "dumbest" pressure campaign](https://news.yahoo.com/approximately-20-republicans-plot-block-152316888.html)
+- Oct 16 - [She dropped off two small kids on a Florida beach, cops say — then she got in her car](https://news.yahoo.com/she-dropped-off-two-small-151425567.html)
+- Oct 16 - [Hundreds rally to support NYC father arrested for protecting son from violent attack](https://news.yahoo.com/hundreds-rally-support-nyc-father-143646050.html)
+- Oct 16 - [Ford Chairman Bill Ford calls for deal to end UAW strike](https://news.yahoo.com/ford-exec-calls-deal-end-142411878.html)
 <!-- feed end -->
 
 ### Onstream
