@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 16 - [US Supreme Court turns away appeal in PETA undercover recording case](https://news.yahoo.com/us-supreme-court-turns-away-134713774.html)
-- Oct 16 - [Ford Executive Chair Bill Ford gets involved in union contract talks during an uncommon presentation](https://news.yahoo.com/ford-executive-chairman-bill-ford-134403412.html)
+- Oct 16 - [Ford Executive Chair Bill Ford calls on autoworkers to end strike, says company's future is at stake](https://news.yahoo.com/ford-executive-chairman-bill-ford-134403412.html)
+- Oct 16 - [Trump knocks ’60 Minutes’ after Biden interview: ‘Each question contained the answer’](https://news.yahoo.com/trump-knocks-60-minutes-biden-132604572.html)
 - Oct 16 - [CBS News Anchor's Reaction To GOP Rep.'s Take On Jim Jordan Says It All](https://www.yahoo.com/entertainment/cbs-news-anchors-reaction-gop-131759798.html)
-- Oct 16 - [A landlord denied demanding a kidnapped Israeli woman's $600 a month rent after WhatsApp screenshots went viral](https://news.yahoo.com/landlord-denied-demanding-kidnapped-israeli-125350724.html)
-- Oct 16 - [Hezbollah destroys Israeli surveillance cameras along the Lebanese border as tension soars](https://news.yahoo.com/hezbollah-destroys-israeli-surveillance-cameras-121425091.html)
+- Oct 16 - [‘Why Doesn’t She Close the Door?’: White University of Dallas Professor Allegedly Called Security on Black Student Listening to a Lecture on Computer Without Headphones](https://news.yahoo.com/why-doesn-t-she-close-130000062.html)
 <!-- feed end -->
 
 ### Onstream
