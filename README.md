@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [‘Ranting and Raving Like a Lunatic’: Donald Trump Exposes New York Attorney General Letitia James’ Address Amidst Fraud Trial, Tests Water for New Gag Order](https://news.yahoo.com/ranting-raving-lunatic-donald-trump-220000277.html)
+- Oct 17 - [Hundreds killed in Gaza hospital blast](https://news.yahoo.com/hundreds-killed-gaza-hospital-blast-212758279.html)
+- Oct 17 - [‘They do not value Palestinian lives': Palestinian-Canadians, Jewish group call out 'same old bias' in Middle East conflict](https://news.yahoo.com/palestine-canada-bias-reaction-trudeau-israel-211642487.html)
 - Oct 17 - [Pentagon releases footage of hundreds of 'highly concerning' aircraft intercepts by Chinese planes](https://news.yahoo.com/pentagon-releases-footage-hundreds-highly-205529058.html)
-- Oct 17 - [Palestinians clash with Abbas' West Bank forces after Gaza hospital strike](https://news.yahoo.com/palestinians-clash-abbas-west-bank-204045194.html)
-- Oct 17 - [Congress Gasps When Rep. Elise Stefanik Cites Jim Jordan's Wrestling Past In Speech](https://news.yahoo.com/congress-gasps-rep-elise-stefanik-195206189.html)
-- Oct 17 - [‘Dragon’-like creature found perched high on rocky peak in Laos. It’s a new species](https://news.yahoo.com/dragon-creature-found-perched-high-193859884.html)
-- Oct 17 - [We toured the USS Gerald R. Ford, the world's largest aircraft carrier, which can house 75 aircraft (but doesn't have urinals)](https://news.yahoo.com/toured-uss-gerald-r-ford-192516946.html)
+- Oct 17 - [Reactions to strike on Gaza hospital killing hundreds](https://news.yahoo.com/quote-box-israeli-air-strike-203216241.html)
 <!-- feed end -->
 
 ### Onstream
