@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 16 - [Jordan Klepper Confronts Deeply Clueless Trump Fans in New Hampshire](https://www.yahoo.com/entertainment/jordan-klepper-confronts-deeply-clueless-224643003.html)
-- Oct 16 - [As Israeli jets devastate Gaza, air force photos show fighter aircraft armed with what look like unguided 'dumb' bombs](https://news.yahoo.com/israeli-jets-devastate-gaza-air-220001276.html)
-- Oct 16 - [A banker was fired after trying to expense 2 sandwiches, 2 pastas, and 2 coffees, and saying he ate everything himself — before later admitting he shared them with his partner](https://finance.yahoo.com/news/banker-fired-trying-expense-2-215022133.html)
-- Oct 16 - [Billionaire founder of Victoria's Secret pulls funding from Harvard, accusing the school of 'dismal failure' to take a stand for Israel](https://news.yahoo.com/billionaire-founder-victorias-secret-pulls-205658262.html)
-- Oct 16 - [The Supreme Court orders makers of gun parts to comply with rules on ghost guns](https://news.yahoo.com/supreme-court-orders-makers-gun-204102214.html)
+- Oct 16 - [LinkedIn employees discovered a mysterious list of around 500 names over the weekend. On Monday, workers said those on the list were laid off.](https://news.yahoo.com/linkedin-employees-discovered-mysterious-list-234246289.html)
+- Oct 16 - [What is delayed ejaculation? Here's what you need to know about this little-talked about problem](https://www.yahoo.com/lifestyle/what-is-delayed-ejaculation-231939231.html)
+- Oct 16 - [Trump Wastes No Time Attacking Judge Who Slapped Him With Gag Order](https://news.yahoo.com/trump-wastes-no-time-attacking-225930039.html)
+- Oct 16 - [Couple sexually assaults woman they invited to apartment to swim, Florida cops say](https://news.yahoo.com/couple-sexually-assaults-woman-invited-225918384.html)
+- Oct 16 - [Top Iranian envoy warns ‘preemptive action’ against Israel expected soon](https://news.yahoo.com/top-iranian-envoy-warns-preemptive-225800447.html)
 <!-- feed end -->
 
 ### Onstream
