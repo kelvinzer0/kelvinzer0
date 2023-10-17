@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [‘Devastated’: Exonerated Broward man imprisoned for 16 years killed by Georgia deputy](https://news.yahoo.com/devastated-exonerated-broward-man-imprisoned-025901045.html)
+- Oct 17 - ['Aggressive' Chinese Fighter Jets Spook Canadian Plane on UN Mission](https://news.yahoo.com/aggressive-chinese-fighter-jets-spook-004343772.html)
 - Oct 17 - [Former Fresno Hells Angel president accused of illegally cremating 4 missing persons](https://news.yahoo.com/former-fresno-hells-angel-president-004216080.html)
 - Oct 16 - [LinkedIn employees discovered a mysterious list of around 500 names over the weekend. On Monday, workers said those on the list were laid off.](https://news.yahoo.com/linkedin-employees-discovered-mysterious-list-234246289.html)
 - Oct 16 - [What is delayed ejaculation? Here's what you need to know about this little-talked about problem](https://www.yahoo.com/lifestyle/what-is-delayed-ejaculation-231939231.html)
-- Oct 16 - [Hamas releases video of 21-year-old hostage Mia Shem](https://news.yahoo.com/hamas-releases-video-21-old-230219570.html)
-- Oct 16 - [Trump Wastes No Time Attacking Judge Who Slapped Him With Gag Order](https://news.yahoo.com/trump-wastes-no-time-attacking-225930039.html)
 <!-- feed end -->
 
 ### Onstream
