@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Ukraine-Russia war live: Atacms missiles 'fired for first time' at Russian helicopters](https://news.yahoo.com/ukraine-russia-war-live-vladimir-063547128.html)
+- Oct 17 - [Ukraine’s new American missiles may have devastated the Russian airforce](https://news.yahoo.com/ukraine-american-missiles-may-devastated-133556823.html)
+- Oct 17 - [GOP donor known for racist tweet, American flag outfit dies in attempted murder-suicide](https://news.yahoo.com/gop-donor-known-racist-tweet-125659663.html)
 - Oct 17 - [I Sat Next To A Gun 'Fanatic' On A Plane. When I Told Him What My Job Is, Things Got Interesting.](https://news.yahoo.com/sat-next-gun-fanatic-plane-123015361.html)
-- Oct 17 - [Ukrainian partisans say they killed dozens of Russian soldiers by poisoning their food](https://news.yahoo.com/ukrainian-partisans-killed-dozens-russian-114641427.html)
 - Oct 17 - [Russian troops who failed to retake a Ukrainian town were sent into battle in obsolete Soviet-era armored vehicles: reports](https://news.yahoo.com/russian-troops-failed-retake-ukrainian-110351258.html)
-- Oct 17 - [‘She ran rings around Warren Buffett’: This IRS auditor secretly turned a $5K nest egg into a $22M fortune — here are the 3 simple strategies that made Anne Scheiber rich](https://finance.yahoo.com/news/she-ran-rings-around-warren-110000290.html)
-- Oct 17 - [US releases asylum seekers on the streets. Some suburbs bear the burden.](https://news.yahoo.com/us-releases-asylum-seekers-streets-100409714.html)
 <!-- feed end -->
 
 ### Onstream
