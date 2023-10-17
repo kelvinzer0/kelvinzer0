@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 17 - [Ukraine-Russia war live: Atacms missiles 'fired for first time' at Russian helicopters](https://news.yahoo.com/ukraine-russia-war-live-vladimir-063547128.html)
+- Oct 17 - [Customer shoots family-owned car dealership worker to death over pricing, Texas cops say](https://news.yahoo.com/customer-shoots-family-owned-car-143632708.html)
+- Oct 17 - [Rachel Maddow Asks Disturbing 'Open Question' About A Jim Jordan Speakership](https://news.yahoo.com/rachel-maddow-asks-disturbing-open-143106519.html)
 - Oct 17 - [Ukraine’s new American missiles may have devastated the Russian airforce](https://news.yahoo.com/ukraine-american-missiles-may-devastated-133556823.html)
-- Oct 17 - [GOP donor known for racist tweet, American flag outfit dies in attempted murder-suicide](https://news.yahoo.com/gop-donor-known-racist-tweet-125659663.html)
-- Oct 17 - [I Sat Next To A Gun 'Fanatic' On A Plane. When I Told Him What My Job Is, Things Got Interesting.](https://news.yahoo.com/sat-next-gun-fanatic-plane-123015361.html)
-- Oct 17 - [Russian troops who failed to retake a Ukrainian town were sent into battle in obsolete Soviet-era armored vehicles: reports](https://news.yahoo.com/russian-troops-failed-retake-ukrainian-110351258.html)
+- Oct 17 - [Democrats craft strategy to make GOP pay if Jim Jordan is next speaker](https://news.yahoo.com/democrats-craft-strategy-gop-pay-133041539.html)
+- Oct 17 - [“I’m willing to go to jail”: Trump attacks Judge Chutkan hours after she slapped him with gag order](https://news.yahoo.com/m-willing-jail-trump-attacks-130119124.html)
 <!-- feed end -->
 
 ### Onstream
