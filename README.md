@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Wisconsin Republicans reject eight Evers appointees, including majority of environmental board](https://news.yahoo.com/wisconsin-republicans-reject-eight-evers-185340258.html)
+- Oct 17 - [Canadian prime minister calls Israeli strike on hospital 'unacceptable'](https://news.yahoo.com/canadian-prime-minister-calls-israeli-185118333.html)
+- Oct 17 - ["Shouldn't we refer to her as Trump defense counsel?": Experts slam Cannon order scolding Jack Smith](https://news.yahoo.com/shouldnt-refer-her-trump-defense-174112915.html)
 - Oct 17 - [Putin responds to Biden: Russia can't be 'put down' and U.S. should learn respect](https://news.yahoo.com/putin-responds-biden-russia-cant-173813285.html)
 - Oct 17 - [Jim Jordan's Speakership Bid Goes Down in Flames on First Ballot](https://news.yahoo.com/jim-jordan-denied-house-speakership-172030599.html)
-- Oct 17 - [Gaza Doctor: Power Shortages Putting Child Patients at Risk](https://news.yahoo.com/gaza-doctor-power-shortages-putting-170212294.html)
-- Oct 17 - [‘It’s not been enough to carry the day’: Why the Victoria’s Secret rebrand is over](https://www.yahoo.com/lifestyle/why-victoria-secret-bringing-sexy-133355556.html)
-- Oct 17 - [Trump Stoops to New Low With Comments About Military Officials](https://news.yahoo.com/trump-stoops-low-comments-military-155650654.html)
 <!-- feed end -->
 
 ### Onstream
