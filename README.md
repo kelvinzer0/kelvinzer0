@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Former Fresno Hells Angel president accused of illegally cremating 4 missing persons](https://news.yahoo.com/former-fresno-hells-angel-president-004216080.html)
 - Oct 16 - [LinkedIn employees discovered a mysterious list of around 500 names over the weekend. On Monday, workers said those on the list were laid off.](https://news.yahoo.com/linkedin-employees-discovered-mysterious-list-234246289.html)
 - Oct 16 - [What is delayed ejaculation? Here's what you need to know about this little-talked about problem](https://www.yahoo.com/lifestyle/what-is-delayed-ejaculation-231939231.html)
-- Oct 16 - [Hamas releases video of 21-year-old woman taken hostage](https://news.yahoo.com/hamas-releases-video-21-old-230219570.html)
+- Oct 16 - [Hamas releases video of 21-year-old hostage Mia Shem](https://news.yahoo.com/hamas-releases-video-21-old-230219570.html)
 - Oct 16 - [Trump Wastes No Time Attacking Judge Who Slapped Him With Gag Order](https://news.yahoo.com/trump-wastes-no-time-attacking-225930039.html)
-- Oct 16 - [Couple sexually assaults woman they invited to apartment to swim, Florida cops say](https://news.yahoo.com/couple-sexually-assaults-woman-invited-225918384.html)
 <!-- feed end -->
 
 ### Onstream
