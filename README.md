@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Congress Gasps When Rep. Elise Stefanik Cites Jim Jordan's Wrestling Past In Speech](https://news.yahoo.com/congress-gasps-rep-elise-stefanik-195206189.html)
+- Oct 17 - [Ex-Michigan gubernatorial candidate sentenced to 2 months behind bars for Capitol riot role](https://news.yahoo.com/ex-michigan-gubernatorial-candidate-sentenced-193603069.html)
 - Oct 17 - [Wisconsin Republicans reject eight Evers appointees, including majority of environmental board](https://news.yahoo.com/wisconsin-republicans-reject-eight-evers-185340258.html)
 - Oct 17 - [Canadian prime minister calls Israeli strike on hospital 'unacceptable'](https://news.yahoo.com/canadian-prime-minister-calls-israeli-185118333.html)
-- Oct 17 - ["Shouldn't we refer to her as Trump defense counsel?": Experts slam Cannon order scolding Jack Smith](https://news.yahoo.com/shouldnt-refer-her-trump-defense-174112915.html)
-- Oct 17 - [Putin responds to Biden: Russia can't be 'put down' and U.S. should learn respect](https://news.yahoo.com/putin-responds-biden-russia-cant-173813285.html)
-- Oct 17 - [Jim Jordan's Speakership Bid Goes Down in Flames on First Ballot](https://news.yahoo.com/jim-jordan-denied-house-speakership-172030599.html)
+- Oct 17 - [House speaker chaos: New poll shows Americans increasingly blame Republicans for dysfunction in Congress](https://news.yahoo.com/house-speaker-chaos-new-poll-shows-americans-increasingly-blame-republicans-for-dysfunction-in-congress-184926836.html)
 <!-- feed end -->
 
 ### Onstream
