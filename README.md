@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Oct 17 - [Trump scheduled to be questioned in lawsuits from ex-FBI employees who sent negative texts about him](https://news.yahoo.com/trump-scheduled-questioned-lawsuits-ex-042829662.html)
 - Oct 17 - [FTX execs blew through $8B; testimony reveals how](https://news.yahoo.com/ftx-execs-blew-8b-testimony-035232403.html)
 - Oct 17 - [‘Devastated’: Exonerated Broward man imprisoned for 16 years killed by Georgia deputy](https://news.yahoo.com/devastated-exonerated-broward-man-imprisoned-025901045.html)
+- Oct 17 - [An ‘illicit’ affair helps police crack cold case murder of nurse killed 37 years ago](https://news.yahoo.com/illicit-affair-helps-police-crack-023551179.html)
 - Oct 17 - ['Aggressive' Chinese Fighter Jets Spook Canadian Plane on UN Mission](https://news.yahoo.com/aggressive-chinese-fighter-jets-spook-004343772.html)
-- Oct 17 - [Former Fresno Hells Angel president accused of illegally cremating 4 missing persons](https://news.yahoo.com/former-fresno-hells-angel-president-004216080.html)
 <!-- feed end -->
 
 ### Onstream
