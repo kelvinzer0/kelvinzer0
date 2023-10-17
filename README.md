@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Trump committed egregious intelligence breach, ex-UK spy tells court](https://news.yahoo.com/trump-committed-egregious-intelligence-breach-154659972.html)
 - Oct 17 - [Customer shoots family-owned car dealership worker to death over pricing, Texas cops say](https://news.yahoo.com/customer-shoots-family-owned-car-143632708.html)
-- Oct 17 - [Rachel Maddow Asks Disturbing 'Open Question' About A Jim Jordan Speakership](https://news.yahoo.com/rachel-maddow-asks-disturbing-open-143106519.html)
-- Oct 17 - [Ukraine’s new American missiles may have devastated the Russian airforce](https://news.yahoo.com/ukraine-american-missiles-may-devastated-133556823.html)
-- Oct 17 - [Democrats craft strategy to make GOP pay if Jim Jordan is next speaker](https://news.yahoo.com/democrats-craft-strategy-gop-pay-133041539.html)
-- Oct 17 - [“I’m willing to go to jail”: Trump attacks Judge Chutkan hours after she slapped him with gag order](https://news.yahoo.com/m-willing-jail-trump-attacks-130119124.html)
+- Oct 17 - [‘Hate to See It’: Houston Power Couple Sentenced to a Combined 35 Years In Federal Workman’s Comp Fraud Scheme](https://news.yahoo.com/hate-see-houston-power-couple-143346486.html)
+- Oct 17 - [“Carnival of idiots”: GOP holdouts threaten embarrassing defeat for Jordan as “bullying” backfires](https://news.yahoo.com/carnival-idiots-gop-holdouts-threaten-143116163.html)
+- Oct 17 - [Civilian hostages in Hamas custody killed in Be’eri near Gaza border, CNN verified videos show](https://news.yahoo.com/civilian-hostages-hamas-custody-killed-041430712.html)
 <!-- feed end -->
 
 ### Onstream
