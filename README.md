@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Pentagon releases footage of hundreds of 'highly concerning' aircraft intercepts by Chinese planes](https://news.yahoo.com/pentagon-releases-footage-hundreds-highly-205529058.html)
+- Oct 17 - [Palestinians clash with Abbas' West Bank forces after Gaza hospital strike](https://news.yahoo.com/palestinians-clash-abbas-west-bank-204045194.html)
 - Oct 17 - [Congress Gasps When Rep. Elise Stefanik Cites Jim Jordan's Wrestling Past In Speech](https://news.yahoo.com/congress-gasps-rep-elise-stefanik-195206189.html)
+- Oct 17 - [‘Dragon’-like creature found perched high on rocky peak in Laos. It’s a new species](https://news.yahoo.com/dragon-creature-found-perched-high-193859884.html)
 - Oct 17 - [We toured the USS Gerald R. Ford, the world's largest aircraft carrier, which can house 75 aircraft (but doesn't have urinals)](https://news.yahoo.com/toured-uss-gerald-r-ford-192516946.html)
-- Oct 17 - [Wisconsin Republicans reject eight Evers appointees, including majority of environmental board](https://news.yahoo.com/wisconsin-republicans-reject-eight-evers-185340258.html)
-- Oct 17 - [Canadian prime minister calls Israeli strike on hospital 'unacceptable'](https://news.yahoo.com/canadian-prime-minister-calls-israeli-185118333.html)
-- Oct 17 - [House speaker chaos: New poll shows Americans increasingly blame Republicans for dysfunction in Congress](https://news.yahoo.com/house-speaker-chaos-new-poll-shows-americans-increasingly-blame-republicans-for-dysfunction-in-congress-184926836.html)
 <!-- feed end -->
 
 ### Onstream
