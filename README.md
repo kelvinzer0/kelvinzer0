@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Trump scheduled to be questioned in lawsuits from ex-FBI employees who sent negative texts about him](https://news.yahoo.com/trump-scheduled-questioned-lawsuits-ex-042829662.html)
+- Oct 17 - [Israeli video compilation shows the savagery and ease of Hamas' attack](https://news.yahoo.com/israeli-video-compilation-shows-savagery-041346336.html)
+- Oct 17 - [FTX execs blew through $8B; testimony reveals how](https://news.yahoo.com/ftx-execs-blew-8b-testimony-035232403.html)
 - Oct 17 - [‘Devastated’: Exonerated Broward man imprisoned for 16 years killed by Georgia deputy](https://news.yahoo.com/devastated-exonerated-broward-man-imprisoned-025901045.html)
 - Oct 17 - ['Aggressive' Chinese Fighter Jets Spook Canadian Plane on UN Mission](https://news.yahoo.com/aggressive-chinese-fighter-jets-spook-004343772.html)
-- Oct 17 - [Former Fresno Hells Angel president accused of illegally cremating 4 missing persons](https://news.yahoo.com/former-fresno-hells-angel-president-004216080.html)
-- Oct 16 - [LinkedIn employees discovered a mysterious list of around 500 names over the weekend. On Monday, workers said those on the list were laid off.](https://news.yahoo.com/linkedin-employees-discovered-mysterious-list-234246289.html)
-- Oct 16 - [What is delayed ejaculation? Here's what you need to know about this little-talked about problem](https://www.yahoo.com/lifestyle/what-is-delayed-ejaculation-231939231.html)
 <!-- feed end -->
 
 ### Onstream
