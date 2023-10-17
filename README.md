@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Putin responds to Biden: Russia can't be 'put down' and U.S. should learn respect](https://news.yahoo.com/putin-responds-biden-russia-cant-173813285.html)
+- Oct 17 - [Jim Jordan's Speakership Bid Goes Down in Flames on First Ballot](https://news.yahoo.com/jim-jordan-denied-house-speakership-172030599.html)
+- Oct 17 - [Gaza Doctor: Power Shortages Putting Child Patients at Risk](https://news.yahoo.com/gaza-doctor-power-shortages-putting-170212294.html)
+- Oct 17 - [‘It’s not been enough to carry the day’: Why the Victoria’s Secret rebrand is over](https://www.yahoo.com/lifestyle/why-victoria-secret-bringing-sexy-133355556.html)
 - Oct 17 - [Trump Stoops to New Low With Comments About Military Officials](https://news.yahoo.com/trump-stoops-low-comments-military-155650654.html)
-- Oct 17 - [Trump committed egregious intelligence breach, ex-UK spy tells court](https://news.yahoo.com/trump-committed-egregious-intelligence-breach-154659972.html)
-- Oct 17 - [Terrell Owens Intentionally Hit By Car After Argument At Basketball Game](https://www.yahoo.com/entertainment/terrell-owens-intentionally-hit-car-152314919.html)
-- Oct 17 - [Customer shoots family-owned car dealership worker to death over pricing, Texas cops say](https://news.yahoo.com/customer-shoots-family-owned-car-143632708.html)
-- Oct 17 - [‘Hate to See It’: Houston Power Couple Sentenced to a Combined 35 Years In Federal Workman’s Comp Fraud Scheme](https://news.yahoo.com/hate-see-houston-power-couple-143346486.html)
 <!-- feed end -->
 
 ### Onstream
