@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [Trump Stoops to New Low With Comments About Military Officials](https://news.yahoo.com/trump-stoops-low-comments-military-155650654.html)
 - Oct 17 - [Trump committed egregious intelligence breach, ex-UK spy tells court](https://news.yahoo.com/trump-committed-egregious-intelligence-breach-154659972.html)
+- Oct 17 - [Terrell Owens Intentionally Hit By Car After Argument At Basketball Game](https://www.yahoo.com/entertainment/terrell-owens-intentionally-hit-car-152314919.html)
 - Oct 17 - [Customer shoots family-owned car dealership worker to death over pricing, Texas cops say](https://news.yahoo.com/customer-shoots-family-owned-car-143632708.html)
 - Oct 17 - [‘Hate to See It’: Houston Power Couple Sentenced to a Combined 35 Years In Federal Workman’s Comp Fraud Scheme](https://news.yahoo.com/hate-see-houston-power-couple-143346486.html)
-- Oct 17 - [“Carnival of idiots”: GOP holdouts threaten embarrassing defeat for Jordan as “bullying” backfires](https://news.yahoo.com/carnival-idiots-gop-holdouts-threaten-143116163.html)
-- Oct 17 - [Civilian hostages in Hamas custody killed in Be’eri near Gaza border, CNN verified videos show](https://news.yahoo.com/civilian-hostages-hamas-custody-killed-041430712.html)
 <!-- feed end -->
 
 ### Onstream
