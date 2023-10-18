@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 18 - [What we know about the deadly blast at a Gaza City hospital](https://news.yahoo.com/know-deadly-blast-gaza-city-013423828.html)
-- Oct 18 - [‘I Can’t Breathe. Do You Remember That?’: First Black Miss Israel Attacks ‘Black Lives Matter’ Movement for Not Condemning Hamas In Video Rant](https://news.yahoo.com/t-breathe-remember-first-black-010000516.html)
+- Oct 18 - [Japan's Railgun Performs First Test Firing At Sea](https://news.yahoo.com/japans-railgun-performs-first-test-001412372.html)
 - Oct 18 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://news.yahoo.com/james-webb-space-telescopes-first-000000500.html)
 - Oct 17 - [California family behind $600 million, nationwide catalytic converter theft ring pleads guilty](https://news.yahoo.com/california-family-behind-600-million-234854169.html)
-- Oct 17 - [AP PHOTOS: The death toll soars on war's 11th day, compounding misery and fueling anger](https://news.yahoo.com/ap-photos-death-toll-soars-230241765.html)
+- Oct 17 - [‘It’s going to be bad for you,’ Las Vegas teen says he was threatened about viral video involving bicyclist](https://news.yahoo.com/going-bad-las-vegas-teen-233938618.html)
 <!-- feed end -->
 
 ### Onstream
