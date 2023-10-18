@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Robert F. Kennedy Jr. Is Destroying Donald Trump’s Election Chances, Poll Says](https://news.yahoo.com/robert-f-kennedy-jr-destroying-121740419.html)
+- Oct 18 - [‘Unimaginable’: US Navy Officer In Love Triangle Faces Death Penalty for and Abduction of Politician’s 10-Month-Old Daugther and Child’s Mother](https://news.yahoo.com/unimaginable-us-navy-officer-love-130909295.html)
+- Oct 18 - [Nancy Pelosi buries Jim Jordan’s speaker bid as GOPer admits “bullying” spectacularly “backfired”](https://news.yahoo.com/nancy-pelosi-buries-jim-jordan-130552057.html)
+- Oct 18 - [Trump Bragged He Would ‘Drop’ Melania During Early Run-In With Romney: Book](https://news.yahoo.com/trump-bragged-drop-melania-during-130000231.html)
 - Oct 18 - [Ford reshuffles top management as UAW strike drags on](https://news.yahoo.com/ford-names-kumar-galhotra-chief-121051993.html)
-- Oct 18 - [A Ukrainian special forces soldier who snuck into Crimea in a nighttime raid said he was chased by Russian warships as he left](https://news.yahoo.com/ukrainian-special-forces-soldier-snuck-114925918.html)
-- Oct 18 - [Russian President Putin insists Ukraine's new US-supplied weapon won't change the war's outcome](https://news.yahoo.com/russian-president-putin-insists-ukraines-114449198.html)
-- Oct 18 - [Putin reacts to delivery of ATACMS missiles to Ukraine](https://news.yahoo.com/putin-reacts-delivery-atacms-missiles-100947661.html)
+- Oct 18 - [It may be Putin's horror story for NATO – Ukraine's Air Force comments on hypersonic missiles above Black Sea](https://news.yahoo.com/may-putins-horror-story-nato-115045567.html)
 <!-- feed end -->
 
 ### Onstream
