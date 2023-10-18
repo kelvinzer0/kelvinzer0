@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [GOP Rep. Reveals Threatening Texts His Wife Received About Jim Jordan Vote](https://news.yahoo.com/gop-rep-reveals-threatening-texts-073112564.html)
 - Oct 18 - [Gaza hospital explosion likely caused by missile fired from Palestine, analysts claim](https://news.yahoo.com/gaza-hospital-explosion-caused-missile-035529720.html)
-- Oct 18 - [Republicans and Democrats agree on one thing: The Afghan war wasn't worth it, AP-NORC poll shows](https://news.yahoo.com/republicans-democrats-agree-one-thing-040921599.html)
 - Oct 18 - [Footage Shows Moment of Gaza Hospital Blast, Officials Say 500 Killed](https://finance.yahoo.com/video/blast-gaza-hospital-kills-over-192500044.html)
 - Oct 18 - [‘Gun her down like a dog’: Fiancé of woman killed by deputies speaks after seeing footage](https://news.yahoo.com/gun-her-down-dog-fianc-022100626.html)
-- Oct 18 - [Japan's Railgun Performs First Test Firing At Sea](https://news.yahoo.com/japans-railgun-performs-first-test-001412372.html)
+- Oct 18 - [Wild LAPD bodycam video shows robbery suspect jumping off apartment building](https://news.yahoo.com/wild-lapd-bodycam-video-shows-003302611.html)
 <!-- feed end -->
 
 ### Onstream
