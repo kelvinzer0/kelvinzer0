@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Israel-Hamas war live updates: Biden visits Israel and suggests Gaza hospital explosion 'done by the other team'](https://news.yahoo.com/israel-hamas-war-live-updates-gaza-hospital-biden-224233934.html)
-- Oct 18 - [Drone attack on base hosting US troops intercepted in Iraq, heightening fears of a broader conflict](https://news.yahoo.com/drone-attack-u-troops-intercepted-132714105.html)
-- Oct 18 - [US vetoes UN Security Council action on Israel, Gaza](https://news.yahoo.com/us-vetoes-un-security-council-142909087.html)
-- Oct 18 - [‘Unimaginable’: US Navy Officer In Love Triangle Faces Death Penalty for and Abduction of Politician’s 10-Month-Old Daugther and Child’s Mother](https://news.yahoo.com/unimaginable-us-navy-officer-love-130909295.html)
-- Oct 18 - [Nancy Pelosi buries Jim Jordan’s speaker bid as GOPer admits “bullying” spectacularly “backfired”](https://news.yahoo.com/nancy-pelosi-buries-jim-jordan-130552057.html)
+- Oct 18 - [RFK Jr. spent years stoking fear and mistrust of vaccines. Here's who gets hurt by Kennedy's work](https://news.yahoo.com/rfk-jr-spent-years-stoking-155201428.html)
+- Oct 18 - [Former Wisconsin Supreme Court justice fights order to appear in court over impeachment advice](https://news.yahoo.com/former-wisconsin-supreme-court-justice-154249924.html)
+- Oct 18 - [Whether Jim Jordan wins the speakership or not, voters in his Ohio district will stand by their man](https://news.yahoo.com/whether-jim-jordan-wins-speakership-153027066.html)
+- Oct 18 - [Trump and Ivanka's relationship was 'severely damaged' after he found out she was friends with Christopher Steele, the former MI6 agent says](https://news.yahoo.com/trump-ivankas-relationship-severely-damaged-151938366.html)
+- Oct 18 - [Joran van der Sloot’s Confession: I Killed Natalee Holloway, Then Watched Porn](https://news.yahoo.com/joran-van-der-sloot-confesses-151303283.html)
 <!-- feed end -->
 
 ### Onstream
