@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [G-string-clad prostitutes prowl San Diego streets; families, businesses forced to scramble](https://news.yahoo.com/g-string-clad-prostitutes-prowl-080010689.html)
+- Oct 18 - ['Cartel' kidnappers used Florida Airbnb, fake badges, police lights to abduct and waterboard wrong guy](https://news.yahoo.com/cartel-kidnappers-used-florida-airbnb-080009547.html)
 - Oct 18 - [GOP Rep. Reveals Threatening Texts His Wife Received About Jim Jordan Vote](https://news.yahoo.com/gop-rep-reveals-threatening-texts-073112564.html)
+- Oct 18 - [Analysis-US throws Nvidia a lifeline while choking off China's chipmaking future](https://news.yahoo.com/analysis-us-throws-nvidia-lifeline-070416724.html)
 - Oct 18 - [Gaza hospital explosion likely caused by missile fired from Palestine, analysts claim](https://news.yahoo.com/gaza-hospital-explosion-caused-missile-035529720.html)
-- Oct 18 - [Republicans and Democrats agree on one thing: The Afghan war wasn't worth it, AP-NORC poll shows](https://news.yahoo.com/republicans-democrats-agree-one-thing-040921599.html)
-- Oct 18 - [Footage Shows Moment of Gaza Hospital Blast, Officials Say 500 Killed](https://finance.yahoo.com/video/blast-gaza-hospital-kills-over-192500044.html)
-- Oct 18 - [Customs and Border Protection makes bizarre discovery at O'Hare](https://news.yahoo.com/customs-border-protection-makes-bizarre-025605066.html)
 <!-- feed end -->
 
 ### Onstream
