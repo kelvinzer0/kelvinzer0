@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://news.yahoo.com/james-webb-space-telescopes-first-000000500.html)
+- Oct 17 - [California family behind $600 million, nationwide catalytic converter theft ring pleads guilty](https://news.yahoo.com/california-family-behind-600-million-234854169.html)
+- Oct 17 - [AP PHOTOS: The death toll soars on war's 11th day, compounding misery and fueling anger](https://news.yahoo.com/ap-photos-death-toll-soars-230241765.html)
+- Oct 17 - [WATCH: Plane Appears to ‘Pause in the Air’ in Viral Video — Here’s What Causes the Strange Phenomenon](https://www.yahoo.com/entertainment/watch-plane-appears-pause-air-222640252.html)
 - Oct 17 - [‘Ranting and Raving Like a Lunatic’: Donald Trump Exposes New York Attorney General Letitia James’ Address Amidst Fraud Trial, Tests Water for New Gag Order](https://news.yahoo.com/ranting-raving-lunatic-donald-trump-220000277.html)
-- Oct 17 - [Hundreds killed in Gaza hospital blast](https://news.yahoo.com/hundreds-killed-gaza-hospital-blast-212758279.html)
-- Oct 17 - [‘They do not value Palestinian lives': Palestinian-Canadians, Jewish group call out 'same old bias' in Middle East conflict](https://news.yahoo.com/palestine-canada-bias-reaction-trudeau-israel-211642487.html)
-- Oct 17 - [Pentagon releases footage of hundreds of 'highly concerning' aircraft intercepts by Chinese planes](https://news.yahoo.com/pentagon-releases-footage-hundreds-highly-205529058.html)
-- Oct 17 - [Reactions to strike on Gaza hospital killing hundreds](https://news.yahoo.com/quote-box-israeli-air-strike-203216241.html)
 <!-- feed end -->
 
 ### Onstream
