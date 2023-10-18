@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [Russian President Putin insists Ukraine's new US-supplied weapon won't change the war's outcome](https://news.yahoo.com/russian-president-putin-insists-ukraines-114449198.html)
+- Oct 18 - [Putin says US wading deeper into Ukraine war, calls missile supplies a 'mistake'](https://news.yahoo.com/putin-says-atacms-supplies-ukraine-102847451.html)
+- Oct 18 - [Egypt rejects displacement of Palestinians into Sinai, says Sisi](https://news.yahoo.com/egypt-rejects-displacement-palestinians-sinai-091954370.html)
+- Oct 18 - [Putin filmed in China accompanied by officers with Russian nuclear briefcase](https://news.yahoo.com/putin-filmed-china-accompanied-officers-084043762.html)
 - Oct 18 - [G-string-clad prostitutes prowl San Diego streets; families, businesses forced to scramble](https://news.yahoo.com/g-string-clad-prostitutes-prowl-080010689.html)
-- Oct 18 - ['Cartel' kidnappers used Florida Airbnb, fake badges, police lights to abduct and waterboard wrong guy](https://news.yahoo.com/cartel-kidnappers-used-florida-airbnb-080009547.html)
-- Oct 18 - [GOP Rep. Reveals Threatening Texts His Wife Received About Jim Jordan Vote](https://news.yahoo.com/gop-rep-reveals-threatening-texts-073112564.html)
-- Oct 18 - [Analysis-US throws Nvidia a lifeline while choking off China's chipmaking future](https://news.yahoo.com/analysis-us-throws-nvidia-lifeline-070416724.html)
-- Oct 18 - [Gaza hospital explosion likely caused by missile fired from Palestine, analysts claim](https://news.yahoo.com/gaza-hospital-explosion-caused-missile-035529720.html)
 <!-- feed end -->
 
 ### Onstream
