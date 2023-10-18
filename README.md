@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [What we know about the deadly blast at a Gaza City hospital](https://news.yahoo.com/know-deadly-blast-gaza-city-013423828.html)
+- Oct 18 - [‘I Can’t Breathe. Do You Remember That?’: First Black Miss Israel Attacks ‘Black Lives Matter’ Movement for Not Condemning Hamas In Video Rant](https://news.yahoo.com/t-breathe-remember-first-black-010000516.html)
 - Oct 18 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://news.yahoo.com/james-webb-space-telescopes-first-000000500.html)
 - Oct 17 - [California family behind $600 million, nationwide catalytic converter theft ring pleads guilty](https://news.yahoo.com/california-family-behind-600-million-234854169.html)
 - Oct 17 - [AP PHOTOS: The death toll soars on war's 11th day, compounding misery and fueling anger](https://news.yahoo.com/ap-photos-death-toll-soars-230241765.html)
-- Oct 17 - [WATCH: Plane Appears to ‘Pause in the Air’ in Viral Video — Here’s What Causes the Strange Phenomenon](https://www.yahoo.com/entertainment/watch-plane-appears-pause-air-222640252.html)
-- Oct 17 - [‘Ranting and Raving Like a Lunatic’: Donald Trump Exposes New York Attorney General Letitia James’ Address Amidst Fraud Trial, Tests Water for New Gag Order](https://news.yahoo.com/ranting-raving-lunatic-donald-trump-220000277.html)
 <!-- feed end -->
 
 ### Onstream
