@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [Donald Trump told to keep volume down after getting animated at New York civil fraud trial](https://news.yahoo.com/donald-trump-told-keep-volume-165718120.html)
+- Oct 18 - [Three clues the Ahli Arab Hospital strike came from Gaza](https://news.yahoo.com/three-clues-ahli-arab-hospital-163825584.html)
+- Oct 18 - [Russia says it has a 'glaring issue:' More than half of its wounded soldiers are amputees](https://news.yahoo.com/russia-says-glaring-issue-more-161239369.html)
+- Oct 18 - [Gaetz Humiliated by GOP Colleague for ‘RINOs’ Email After Speaker Vote](https://news.yahoo.com/gaetz-humiliated-gop-colleague-rinos-155731720.html)
 - Oct 18 - [RFK Jr. spent years stoking fear and mistrust of vaccines. Here's who gets hurt by Kennedy's work](https://news.yahoo.com/rfk-jr-spent-years-stoking-155201428.html)
-- Oct 18 - [Former Wisconsin Supreme Court justice fights order to appear in court over impeachment advice](https://news.yahoo.com/former-wisconsin-supreme-court-justice-154249924.html)
-- Oct 18 - [Whether Jim Jordan wins the speakership or not, voters in his Ohio district will stand by their man](https://news.yahoo.com/whether-jim-jordan-wins-speakership-153027066.html)
-- Oct 18 - [Trump and Ivanka's relationship was 'severely damaged' after he found out she was friends with Christopher Steele, the former MI6 agent says](https://news.yahoo.com/trump-ivankas-relationship-severely-damaged-151938366.html)
-- Oct 18 - [Joran van der Sloot’s Confession: I Killed Natalee Holloway, Then Watched Porn](https://news.yahoo.com/joran-van-der-sloot-confesses-151303283.html)
 <!-- feed end -->
 
 ### Onstream
