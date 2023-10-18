@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [Israel-Hamas war live updates: Biden visits Israel and suggests Gaza hospital explosion 'done by the other team'](https://news.yahoo.com/israel-hamas-war-live-updates-gaza-hospital-biden-224233934.html)
+- Oct 18 - [Drone attack on base hosting US troops intercepted in Iraq, heightening fears of a broader conflict](https://news.yahoo.com/drone-attack-u-troops-intercepted-132714105.html)
+- Oct 18 - [US vetoes UN Security Council action on Israel, Gaza](https://news.yahoo.com/us-vetoes-un-security-council-142909087.html)
 - Oct 18 - [‘Unimaginable’: US Navy Officer In Love Triangle Faces Death Penalty for and Abduction of Politician’s 10-Month-Old Daugther and Child’s Mother](https://news.yahoo.com/unimaginable-us-navy-officer-love-130909295.html)
 - Oct 18 - [Nancy Pelosi buries Jim Jordan’s speaker bid as GOPer admits “bullying” spectacularly “backfired”](https://news.yahoo.com/nancy-pelosi-buries-jim-jordan-130552057.html)
-- Oct 18 - [Trump Bragged He Would ‘Drop’ Melania During Early Run-In With Romney: Book](https://news.yahoo.com/trump-bragged-drop-melania-during-130000231.html)
-- Oct 18 - [Ford reshuffles top management as UAW strike drags on](https://news.yahoo.com/ford-names-kumar-galhotra-chief-121051993.html)
-- Oct 18 - [It may be Putin's horror story for NATO – Ukraine's Air Force comments on hypersonic missiles above Black Sea](https://news.yahoo.com/may-putins-horror-story-nato-115045567.html)
 <!-- feed end -->
 
 ### Onstream
