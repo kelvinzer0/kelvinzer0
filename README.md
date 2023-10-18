@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [Robert F. Kennedy Jr. Is Destroying Donald Trump’s Election Chances, Poll Says](https://news.yahoo.com/robert-f-kennedy-jr-destroying-121740419.html)
+- Oct 18 - [Ford reshuffles top management as UAW strike drags on](https://news.yahoo.com/ford-names-kumar-galhotra-chief-121051993.html)
+- Oct 18 - [A Ukrainian special forces soldier who snuck into Crimea in a nighttime raid said he was chased by Russian warships as he left](https://news.yahoo.com/ukrainian-special-forces-soldier-snuck-114925918.html)
 - Oct 18 - [Russian President Putin insists Ukraine's new US-supplied weapon won't change the war's outcome](https://news.yahoo.com/russian-president-putin-insists-ukraines-114449198.html)
-- Oct 18 - [Putin says US wading deeper into Ukraine war, calls missile supplies a 'mistake'](https://news.yahoo.com/putin-says-atacms-supplies-ukraine-102847451.html)
-- Oct 18 - [Egypt rejects displacement of Palestinians into Sinai, says Sisi](https://news.yahoo.com/egypt-rejects-displacement-palestinians-sinai-091954370.html)
-- Oct 18 - [Putin filmed in China accompanied by officers with Russian nuclear briefcase](https://news.yahoo.com/putin-filmed-china-accompanied-officers-084043762.html)
-- Oct 18 - [G-string-clad prostitutes prowl San Diego streets; families, businesses forced to scramble](https://news.yahoo.com/g-string-clad-prostitutes-prowl-080010689.html)
+- Oct 18 - [Putin reacts to delivery of ATACMS missiles to Ukraine](https://news.yahoo.com/putin-reacts-delivery-atacms-missiles-100947661.html)
 <!-- feed end -->
 
 ### Onstream
