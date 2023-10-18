@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 18 - [House GOP Chaos Continues as Jordan Loses Speaker Vote—Again](https://news.yahoo.com/house-gop-chaos-continues-jordan-165743945.html)
 - Oct 18 - [Donald Trump told to keep volume down after getting animated at New York civil fraud trial](https://news.yahoo.com/donald-trump-told-keep-volume-165718120.html)
 - Oct 18 - [Three clues the Ahli Arab Hospital strike came from Gaza](https://news.yahoo.com/three-clues-ahli-arab-hospital-163825584.html)
-- Oct 18 - [Russia says it has a 'glaring issue:' More than half of its wounded soldiers are amputees](https://news.yahoo.com/russia-says-glaring-issue-more-161239369.html)
 - Oct 18 - [Gaetz Humiliated by GOP Colleague for ‘RINOs’ Email After Speaker Vote](https://news.yahoo.com/gaetz-humiliated-gop-colleague-rinos-155731720.html)
-- Oct 18 - [RFK Jr. spent years stoking fear and mistrust of vaccines. Here's who gets hurt by Kennedy's work](https://news.yahoo.com/rfk-jr-spent-years-stoking-155201428.html)
+- Oct 18 - [Secret lounge discovered in Rikers Island jail, stashed with unused equipment](https://news.yahoo.com/secret-lounge-discovered-rikers-island-155503153.html)
 <!-- feed end -->
 
 ### Onstream
