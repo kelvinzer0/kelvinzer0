@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [Lawsuit dropped after school board changes course, adopts Youngkin's transgender student policy](https://news.yahoo.com/lawsuit-dropped-school-board-changes-195022855.html)
-- Oct 18 - [Israel-Hamas war live updates: Biden says Israel agreed to allow humanitarian aid into Gaza](https://news.yahoo.com/israel-hamas-war-live-updates-gaza-hospital-biden-224233934.html)
-- Oct 18 - [Court employee arrested for approaching Donald Trump during civil trial](https://www.yahoo.com/gma/court-employee-arrested-approaching-donald-185206191.html)
-- Oct 18 - [Trump fraud-trial fireworks: 'You lied yesterday!' defense lawyer shouts while grilling an AG witness](https://news.yahoo.com/trump-fraud-trial-fireworks-lied-165139194.html)
-- Oct 18 - [Three clues the Ahli Arab Hospital strike came from Gaza](https://news.yahoo.com/three-clues-ahli-arab-hospital-163825584.html)
+- Oct 18 - [Woman becomes Israeli folk hero for plying Hamas militants with snacks until rescue mission arrives](https://news.yahoo.com/woman-becomes-israeli-folk-hero-202143746.html)
+- Oct 18 - [‘Screaming’ Court Staffer Arrested, Trump Told to Simmer Down in Dramatic NY Trial](https://news.yahoo.com/screaming-court-staffer-arrested-trump-201224562.html)
+- Oct 18 - [CNN's GOP Analyst Destroys House Speaker Battle With Just 2 Words](https://news.yahoo.com/cnns-gop-analyst-destroys-house-200654541.html)
+- Oct 18 - [Police Officer Arrested For Breaking Into Ex-Boyfriend's Home And Beating His New Partner](https://www.yahoo.com/entertainment/police-officer-arrested-breaking-ex-193406750.html)
+- Oct 18 - [Oklahoma School Bus Driver Charged with Kidnapping After Police Say He Refused to Let Kids Get Off the Bus: ‘I Don’t Care If Your Mom’s There’](https://news.yahoo.com/oklahoma-school-bus-driver-charged-193000671.html)
 <!-- feed end -->
 
 ### Onstream
