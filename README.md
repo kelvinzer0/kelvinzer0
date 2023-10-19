@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - [Trump Camp Reportedly Blindsided By Sidney Powell Plea Deal](https://news.yahoo.com/trump-camp-reportedly-blindsided-sidney-195303545.html)
+- Oct 19 - [At Donald Trump's civil trial, scrutiny shifts to son Eric's 'lofty ideas' for valuing a property](https://news.yahoo.com/donald-trumps-civil-trial-scrutiny-194810026.html)
+- Oct 19 - [First on CNN: US Navy warship near Yemen intercepts multiple missiles, US officials say](https://news.yahoo.com/first-cnn-us-navy-warship-183327566.html)
 - Oct 19 - [“Biggest F U”: Republican “almost lunges” at Gaetz as GOP meeting erupts over Jordan speaker failure](https://news.yahoo.com/biggest-f-u-republican-almost-181922709.html)
 - Oct 19 - [Powell sets table for November pause, warns of more rate hikes if economy heats up](https://finance.yahoo.com/news/powell-sets-table-for-november-pause-warns-of-more-rate-hikes-if-economy-heats-up-181647875.html)
-- Oct 19 - [Billions of crabs went missing around Alaska. Scientists now know what happened to them](https://news.yahoo.com/billions-crabs-went-missing-around-180012346.html)
-- Oct 19 - [George Clooney and Other A-Listers Offer $50 Million in Annual Dues in Effort to Break Strike Stalemate](https://www.yahoo.com/entertainment/george-clooney-other-listers-offer-172806385.html)
-- Oct 19 - [CNN Legal Ace Explains Why Sidney Powell Guilty Plea Is Ominous For Donald Trump](https://news.yahoo.com/cnn-legal-ace-explains-why-171914464.html)
 <!-- feed end -->
 
 ### Onstream
