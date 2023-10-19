@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - [Tesla's path forward for autonomous driving and Cybertruck](https://finance.yahoo.com/video/teslas-path-forward-autonomous-driving-143031335.html)
+- Oct 19 - [Sidney Powell pleads guilty in case over efforts to overturn Trump's Georgia loss and gets probation](https://news.yahoo.com/sidney-powell-pleads-guilty-deal-140555333.html)
 - Oct 19 - [‘Morning Joe’ Spots Astonishing Moment Trump Gave The Game Away On Courthouse Lie](https://news.yahoo.com/morning-joe-spots-astonishing-moment-134715547.html)
 - Oct 19 - [Jordan tries to back out of vote after GOP opponents face "death threats" and "intimidation": report](https://news.yahoo.com/jordan-tries-back-vote-gop-132422138.html)
 - Oct 19 - [The US Supreme Court notched big conservative wins. It's a key issue in Pennsylvania's fall election](https://news.yahoo.com/us-supreme-court-notched-big-130014686.html)
-- Oct 19 - [China must master a difficult form of warfare before it can take on the US Navy](https://news.yahoo.com/china-must-master-difficult-form-123421964.html)
-- Oct 19 - ['It's not taxed at all': Warren Buffett shares the 'best investment' you can make when battling inflation — and it doesn't have to cost you a dime](https://finance.yahoo.com/news/not-taxed-warren-buffett-shares-113000568.html)
 <!-- feed end -->
 
 ### Onstream
