@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [House Speaker election moves onto third round of voting](https://finance.yahoo.com/video/house-speaker-election-moves-onto-154404579.html)
-- Oct 19 - [How the SALT tax deduction helped stall Jim Jordan's speaker candidacy](https://finance.yahoo.com/news/how-the-salt-tax-deduction-helped-stall-jim-jordans-speaker-candidacy-145157647.html)
-- Oct 19 - ["Embarrassing": D.C. court flags Trump lawyer's filing because he's "not a member of the bar"](https://news.yahoo.com/embarrassing-d-c-court-flags-144517742.html)
-- Oct 19 - [‘I’ll Drag You Out of That Car!’: Enraged White Man with Unleashed Pitbull Threatens Delivery Woman In Viral Video Sparking Outrage](https://news.yahoo.com/ll-drag-car-enraged-white-143515496.html)
-- Oct 19 - [Ex-Trump lawyer Sidney Powell pleads guilty, could testify in Georgia case](https://news.yahoo.com/former-trump-lawyer-powell-pleads-141109328.html)
+- Oct 19 - [California governor signs off on 50 housing bills](https://finance.yahoo.com/video/california-governor-signs-off-50-164900125.html)
+- Oct 19 - [These are the top 10 cars take the longest to sell (and it's not even close)](https://www.thestreet.com/automotive/these-are-the-top-10-cars-take-the-longest-to-sell-and-its-not-even-close?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 19 - [A Florida dentist fired for tearing down posters of Israeli hostages had the 'best of intentions' but is now getting death threats, his lawyer says](https://news.yahoo.com/florida-dentist-fired-tearing-down-160933012.html)
+- Oct 19 - [Family-owned California trucking company ceasing operations after 95 years](https://finance.yahoo.com/news/family-owned-california-trucking-company-150722147.html)
+- Oct 19 - [Courtroom Fight Ensues During Teen Murder Suspect’s Plea Deal](https://news.yahoo.com/courtroom-fight-ensues-during-teen-150004158.html)
 <!-- feed end -->
 
 ### Onstream
