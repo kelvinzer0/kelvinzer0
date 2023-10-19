@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - [Evidence shows Hamas militants likely used some North Korean weapons in attack on Israel](https://news.yahoo.com/evidence-shows-hamas-militants-likely-042659423.html)
 - Oct 19 - [Man who killed 2 South Carolina officers and wounded 5 others in ambush prepares for sentencing](https://news.yahoo.com/man-killed-2-south-carolina-040837319.html)
-- Oct 19 - [Philippines sees no current, future engagements with Taiwan - military chief](https://news.yahoo.com/philippines-sees-no-current-future-030624895.html)
 - Oct 19 - [Dentist in Florida fired after caught on camera ripping down posters of kidnapped Israeli children](https://news.yahoo.com/dentist-florida-fired-caught-camera-015646785.html)
 - Oct 18 - [US House lawmaker receives death threats after voting against Jordan for speaker](https://news.yahoo.com/us-house-lawmaker-receives-death-234357213.html)
 - Oct 18 - [Southern California city ranked as the most expensive place to live in U.S.](https://news.yahoo.com/southern-california-city-ranked-most-233501828.html)
