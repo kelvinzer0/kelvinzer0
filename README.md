@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [Tesla's path forward for autonomous driving and Cybertruck](https://finance.yahoo.com/video/teslas-path-forward-autonomous-driving-143031335.html)
-- Oct 19 - [Sidney Powell pleads guilty in case over efforts to overturn Trump's Georgia loss and gets probation](https://news.yahoo.com/sidney-powell-pleads-guilty-deal-140555333.html)
-- Oct 19 - [‘Morning Joe’ Spots Astonishing Moment Trump Gave The Game Away On Courthouse Lie](https://news.yahoo.com/morning-joe-spots-astonishing-moment-134715547.html)
-- Oct 19 - [Jordan tries to back out of vote after GOP opponents face "death threats" and "intimidation": report](https://news.yahoo.com/jordan-tries-back-vote-gop-132422138.html)
-- Oct 19 - [The US Supreme Court notched big conservative wins. It's a key issue in Pennsylvania's fall election](https://news.yahoo.com/us-supreme-court-notched-big-130014686.html)
+- Oct 19 - [House Speaker election moves onto third round of voting](https://finance.yahoo.com/video/house-speaker-election-moves-onto-154404579.html)
+- Oct 19 - [How the SALT tax deduction helped stall Jim Jordan's speaker candidacy](https://finance.yahoo.com/news/how-the-salt-tax-deduction-helped-stall-jim-jordans-speaker-candidacy-145157647.html)
+- Oct 19 - ["Embarrassing": D.C. court flags Trump lawyer's filing because he's "not a member of the bar"](https://news.yahoo.com/embarrassing-d-c-court-flags-144517742.html)
+- Oct 19 - [‘I’ll Drag You Out of That Car!’: Enraged White Man with Unleashed Pitbull Threatens Delivery Woman In Viral Video Sparking Outrage](https://news.yahoo.com/ll-drag-car-enraged-white-143515496.html)
+- Oct 19 - [Ex-Trump lawyer Sidney Powell pleads guilty, could testify in Georgia case](https://news.yahoo.com/former-trump-lawyer-powell-pleads-141109328.html)
 <!-- feed end -->
 
 ### Onstream
