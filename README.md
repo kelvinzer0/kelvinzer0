@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - [“Biggest F U”: Republican “almost lunges” at Gaetz as GOP meeting erupts over Jordan speaker failure](https://news.yahoo.com/biggest-f-u-republican-almost-181922709.html)
 - Oct 19 - [Powell sets table for November pause, warns of more rate hikes if economy heats up](https://finance.yahoo.com/news/powell-sets-table-for-november-pause-warns-of-more-rate-hikes-if-economy-heats-up-181647875.html)
-- Oct 19 - [Musk turned into 'a little baby' on Tesla call: Investor](https://finance.yahoo.com/video/musk-turned-little-baby-tesla-173731640.html)
+- Oct 19 - [Billions of crabs went missing around Alaska. Scientists now know what happened to them](https://news.yahoo.com/billions-crabs-went-missing-around-180012346.html)
 - Oct 19 - [George Clooney and Other A-Listers Offer $50 Million in Annual Dues in Effort to Break Strike Stalemate](https://www.yahoo.com/entertainment/george-clooney-other-listers-offer-172806385.html)
 - Oct 19 - [CNN Legal Ace Explains Why Sidney Powell Guilty Plea Is Ominous For Donald Trump](https://news.yahoo.com/cnn-legal-ace-explains-why-171914464.html)
-- Oct 19 - [A Gen Zer quit her first corporate job after 8 months. She said the culture was 'soul-sucking'.](https://www.yahoo.com/entertainment/gen-zer-said-she-quit-171855064.html)
 <!-- feed end -->
 
 ### Onstream
