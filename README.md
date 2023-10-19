@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - [Nikki Haley 'misleads' town hall audience when questioned on Chinese land purchases in South Carolina: WaPo](https://news.yahoo.com/nikki-haley-misleads-town-hall-010204264.html)
 - Oct 18 - [US House lawmaker receives death threats after voting against Jordan for speaker](https://news.yahoo.com/us-house-lawmaker-receives-death-234357213.html)
 - Oct 18 - [Brawl breaks out in courtroom between mothers over murder of teen girl](https://news.yahoo.com/brawl-breaks-court-mom-tries-213222214.html)
 - Oct 18 - [Don’t Mail a Check or Other Financial Docs on This Day of the Week](https://finance.yahoo.com/news/don-t-mail-check-other-210054554.html)
 - Oct 18 - [Sam Bankman-Fried trial jury sees his profane messages about regulators](https://news.yahoo.com/sam-bankman-fried-trial-jury-205909128.html)
-- Oct 18 - [Actors’ open letter condemns ‘Israel’s war crimes’ but not Hamas massacre](https://news.yahoo.com/actors-open-letter-condemns-israel-205909428.html)
 <!-- feed end -->
 
 ### Onstream
