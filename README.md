@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - [BBC Admits Reporter’s Speculation Over Gaza Hospital Rocket Misfire ‘Was Wrong’](https://www.yahoo.com/entertainment/bbc-admits-reporter-speculation-over-203053888.html)
+- Oct 19 - [First on CNN: US Navy warship near Yemen intercepts multiple missiles, US officials say](https://news.yahoo.com/first-cnn-us-navy-warship-183327566.html)
+- Oct 19 - [Trump trial tantrum: "No!" a Trump lawyer sniped after an AG lawyer demanded, "Be more respectful!"](https://news.yahoo.com/trump-trial-tantrum-no-trump-195822600.html)
 - Oct 19 - [Trump Camp Reportedly Blindsided By Sidney Powell Plea Deal](https://news.yahoo.com/trump-camp-reportedly-blindsided-sidney-195303545.html)
 - Oct 19 - [At Donald Trump's civil trial, scrutiny shifts to son Eric's 'lofty ideas' for valuing a property](https://news.yahoo.com/donald-trumps-civil-trial-scrutiny-194810026.html)
-- Oct 19 - [First on CNN: US Navy warship near Yemen intercepts multiple missiles, US officials say](https://news.yahoo.com/first-cnn-us-navy-warship-183327566.html)
-- Oct 19 - [“Biggest F U”: Republican “almost lunges” at Gaetz as GOP meeting erupts over Jordan speaker failure](https://news.yahoo.com/biggest-f-u-republican-almost-181922709.html)
-- Oct 19 - [Powell sets table for November pause, warns of more rate hikes if economy heats up](https://finance.yahoo.com/news/powell-sets-table-for-november-pause-warns-of-more-rate-hikes-if-economy-heats-up-181647875.html)
 <!-- feed end -->
 
 ### Onstream
