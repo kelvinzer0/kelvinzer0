@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [Reporter wins support after Nebraska governor dismissed story because the journalist is Chinese](https://news.yahoo.com/nebraska-governor-silent-dismissing-news-213651984.html)
-- Oct 19 - [Federal judge again rules that California's ban on assault weapons is unconstitutional](https://news.yahoo.com/federal-judge-again-rules-californias-212827048.html)
-- Oct 19 - [Spanish police bust illegal pet trafficking ring](https://news.yahoo.com/spanish-police-bust-illegal-pet-212239688.html)
+- Oct 19 - [Former officer who shot Breonna Taylor points gun at suspect during arrest in new job](https://news.yahoo.com/former-officer-shot-breonna-taylor-221928538.html)
+- Oct 19 - [Hunter Bags Marsh Buck and Giant Python During Morning Hunt near Florida Everglades](https://www.yahoo.com/lifestyle/hunter-bags-marsh-buck-giant-214731492.html)
 - Oct 19 - [Captured Hamas weapons hint that if Israeli forces invade Gaza, they could face a deadly improvised bomb that US troops feared in Iraq](https://news.yahoo.com/captured-hamas-weapons-hint-israeli-210851019.html)
 - Oct 19 - [First on CNN: US Navy warship near Yemen intercepts multiple missiles, US officials say](https://news.yahoo.com/first-cnn-us-navy-warship-183327566.html)
+- Oct 19 - [BBC Admits Reporter’s Speculation Over Gaza Hospital Rocket Misfire ‘Was Wrong’](https://www.yahoo.com/entertainment/bbc-admits-reporter-speculation-over-203053888.html)
 <!-- feed end -->
 
 ### Onstream
