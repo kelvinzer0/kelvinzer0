@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [California governor signs off on 50 housing bills](https://finance.yahoo.com/video/california-governor-signs-off-50-164900125.html)
-- Oct 19 - [These are the top 10 cars take the longest to sell (and it's not even close)](https://www.thestreet.com/automotive/these-are-the-top-10-cars-take-the-longest-to-sell-and-its-not-even-close?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 19 - [A Florida dentist fired for tearing down posters of Israeli hostages had the 'best of intentions' but is now getting death threats, his lawyer says](https://news.yahoo.com/florida-dentist-fired-tearing-down-160933012.html)
-- Oct 19 - [Family-owned California trucking company ceasing operations after 95 years](https://finance.yahoo.com/news/family-owned-california-trucking-company-150722147.html)
-- Oct 19 - [Courtroom Fight Ensues During Teen Murder Suspect’s Plea Deal](https://news.yahoo.com/courtroom-fight-ensues-during-teen-150004158.html)
+- Oct 19 - [Powell sets table for November pause, warns of more rate hikes if economy heats up](https://finance.yahoo.com/news/powell-sets-table-for-november-pause-warns-of-more-rate-hikes-if-economy-heats-up-181647875.html)
+- Oct 19 - [Musk turned into 'a little baby' on Tesla call: Investor](https://finance.yahoo.com/video/musk-turned-little-baby-tesla-173731640.html)
+- Oct 19 - [George Clooney and Other A-Listers Offer $50 Million in Annual Dues in Effort to Break Strike Stalemate](https://www.yahoo.com/entertainment/george-clooney-other-listers-offer-172806385.html)
+- Oct 19 - [CNN Legal Ace Explains Why Sidney Powell Guilty Plea Is Ominous For Donald Trump](https://news.yahoo.com/cnn-legal-ace-explains-why-171914464.html)
+- Oct 19 - [A Gen Zer quit her first corporate job after 8 months. She said the culture was 'soul-sucking'.](https://www.yahoo.com/entertainment/gen-zer-said-she-quit-171855064.html)
 <!-- feed end -->
 
 ### Onstream
