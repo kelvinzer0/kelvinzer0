@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - [‘Morning Joe’ Spots Astonishing Moment Trump Gave The Game Away On Courthouse Lie](https://news.yahoo.com/morning-joe-spots-astonishing-moment-134715547.html)
+- Oct 19 - [Jordan tries to back out of vote after GOP opponents face "death threats" and "intimidation": report](https://news.yahoo.com/jordan-tries-back-vote-gop-132422138.html)
+- Oct 19 - [The US Supreme Court notched big conservative wins. It's a key issue in Pennsylvania's fall election](https://news.yahoo.com/us-supreme-court-notched-big-130014686.html)
 - Oct 19 - [China must master a difficult form of warfare before it can take on the US Navy](https://news.yahoo.com/china-must-master-difficult-form-123421964.html)
 - Oct 19 - ['It's not taxed at all': Warren Buffett shares the 'best investment' you can make when battling inflation — and it doesn't have to cost you a dime](https://finance.yahoo.com/news/not-taxed-warren-buffett-shares-113000568.html)
-- Oct 19 - [Elon Musk says 'we dug our own grave' with the Cybertruck as he warns Tesla faces enormous production challenges](https://news.yahoo.com/elon-musk-says-dug-own-102158987.html)
-- Oct 19 - [Missile hits Russia's Black Sea Fleet weapon stockpiles](https://news.yahoo.com/missile-hits-russias-black-sea-080300201.html)
-- Oct 19 - [Evidence shows Hamas militants likely used some North Korean weapons in attack on Israel](https://news.yahoo.com/evidence-shows-hamas-militants-likely-042659423.html)
 <!-- feed end -->
 
 ### Onstream
