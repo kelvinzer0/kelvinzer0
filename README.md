@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 18 - [North Carolina Republicans pitch Congress maps that could help them pick up 3 or 4 seats next year](https://news.yahoo.com/north-carolina-republicans-pitch-congress-224327764.html)
+- Oct 18 - [US House lawmaker receives death threats after voting against Jordan for speaker](https://news.yahoo.com/us-house-lawmaker-receives-death-234357213.html)
+- Oct 18 - [Brawl breaks out in courtroom between mothers over murder of teen girl](https://news.yahoo.com/brawl-breaks-court-mom-tries-213222214.html)
 - Oct 18 - [Sam Bankman-Fried trial jury sees his profane messages about regulators](https://news.yahoo.com/sam-bankman-fried-trial-jury-205909128.html)
 - Oct 18 - [Actors’ open letter condemns ‘Israel’s war crimes’ but not Hamas massacre](https://news.yahoo.com/actors-open-letter-condemns-israel-205909428.html)
 - Oct 18 - [Woman becomes Israeli folk hero for plying Hamas militants with snacks until rescue mission arrives](https://news.yahoo.com/woman-becomes-israeli-folk-hero-202143746.html)
-- Oct 18 - [‘Screaming’ Court Staffer Arrested, Trump Told to Simmer Down in Dramatic NY Trial](https://news.yahoo.com/screaming-court-staffer-arrested-trump-201224562.html)
 <!-- feed end -->
 
 ### Onstream
