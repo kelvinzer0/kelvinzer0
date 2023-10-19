@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 19 - ['It's not taxed at all': Warren Buffett shares the 'best investment' you can make when battling inflation — and it doesn't have to cost you a dime](https://finance.yahoo.com/news/not-taxed-warren-buffett-shares-113000568.html)
+- Oct 19 - [Russia moves its combat dolphins closer to the frontline to defend against Ukrainian special forces, report says](https://news.yahoo.com/russia-moves-combat-dolphins-closer-103753697.html)
+- Oct 19 - [Elon Musk says 'we dug our own grave' with the Cybertruck as he warns Tesla faces enormous production challenges](https://news.yahoo.com/elon-musk-says-dug-own-102158987.html)
+- Oct 19 - [Missile hits Russia's Black Sea Fleet weapon stockpiles](https://news.yahoo.com/missile-hits-russias-black-sea-080300201.html)
 - Oct 19 - [Evidence shows Hamas militants likely used some North Korean weapons in attack on Israel](https://news.yahoo.com/evidence-shows-hamas-militants-likely-042659423.html)
-- Oct 19 - [Man who killed 2 South Carolina officers and wounded 5 others in ambush prepares for sentencing](https://news.yahoo.com/man-killed-2-south-carolina-040837319.html)
-- Oct 19 - [Racial gaps in math have grown. A school tried closing theirs by teaching all kids the same classes](https://news.yahoo.com/racial-gaps-math-grown-school-040206772.html)
-- Oct 19 - [Dentist in Florida fired after caught on camera ripping down posters of kidnapped Israeli children](https://news.yahoo.com/dentist-florida-fired-caught-camera-015646785.html)
-- Oct 18 - [US House lawmaker receives death threats after voting against Jordan for speaker](https://news.yahoo.com/us-house-lawmaker-receives-death-234357213.html)
 <!-- feed end -->
 
 ### Onstream
