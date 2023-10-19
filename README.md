@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [Nikki Haley 'misleads' town hall audience when questioned on Chinese land purchases in South Carolina: WaPo](https://news.yahoo.com/nikki-haley-misleads-town-hall-010204264.html)
+- Oct 19 - [Man who killed 2 South Carolina officers and wounded 5 others in ambush prepares for sentencing](https://news.yahoo.com/man-killed-2-south-carolina-040837319.html)
+- Oct 19 - [Philippines sees no current, future engagements with Taiwan - military chief](https://news.yahoo.com/philippines-sees-no-current-future-030624895.html)
+- Oct 19 - [Dentist in Florida fired after caught on camera ripping down posters of kidnapped Israeli children](https://news.yahoo.com/dentist-florida-fired-caught-camera-015646785.html)
 - Oct 18 - [US House lawmaker receives death threats after voting against Jordan for speaker](https://news.yahoo.com/us-house-lawmaker-receives-death-234357213.html)
-- Oct 18 - [Brawl breaks out in courtroom between mothers over murder of teen girl](https://news.yahoo.com/brawl-breaks-court-mom-tries-213222214.html)
-- Oct 18 - [Don’t Mail a Check or Other Financial Docs on This Day of the Week](https://finance.yahoo.com/news/don-t-mail-check-other-210054554.html)
-- Oct 18 - [Sam Bankman-Fried trial jury sees his profane messages about regulators](https://news.yahoo.com/sam-bankman-fried-trial-jury-205909128.html)
+- Oct 18 - [Southern California city ranked as the most expensive place to live in U.S.](https://news.yahoo.com/southern-california-city-ranked-most-233501828.html)
 <!-- feed end -->
 
 ### Onstream
