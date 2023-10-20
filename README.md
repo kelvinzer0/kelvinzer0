@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 20 - [Kenneth Chesebro takes last-minute plea deal, agrees to testify in Georgia election case](https://www.yahoo.com/gma/kenneth-chesebro-takes-last-minute-161955755.html)
-- Oct 20 - [Dan Le Batard gives a reality check about ESPN after Pat McAfee, Aaron Rodgers payment report](https://www.thestreet.com/sports/dan-le-batard-reality-check-espn-pat-mcafee-aaron-rodgers-payment?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 20 - [“What is he doing?”: Jordan allies “completely befuddled” by press conference as opposition grows](https://news.yahoo.com/doing-jordan-allies-completely-befuddled-152137979.html)
-- Oct 20 - [Judge raises possibility of imprisonment for Trump for violating gag order -NBC News](https://news.yahoo.com/judge-threatens-imprison-trump-violating-151510500.html)
-- Oct 20 - [Russian soldiers are getting hard drugs delivered to their trenches in Ukraine to escape boredom, report says](https://news.yahoo.com/russian-soldiers-getting-hard-drugs-145631661.html)
+- Oct 20 - [Donald Trump Promises 100% Evidence Of 2020 Fraud — With A Racist Dogwhistle](https://news.yahoo.com/donald-trump-promises-100-evidence-172734125.html)
+- Oct 20 - [Hamas Says It’s Released Kidnapped American Mom and Daughter](https://news.yahoo.com/hamas-says-released-kidnapped-american-171332888.html)
+- Oct 20 - [The US Navy is preparing for combat ops on a scale not seen for many years](https://news.yahoo.com/us-navy-preparing-combat-ops-164255427.html)
+- Oct 20 - [Quash my subpoena, Ivanka Trump tells NY judge, in asking not to testify against her father.](https://news.yahoo.com/quash-subpoena-ivanka-trump-tells-163445092.html)
 <!-- feed end -->
 
 ### Onstream
