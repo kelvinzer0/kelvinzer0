@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - [Billions of crabs went missing around Alaska. Scientists now know what happened to them](https://news.yahoo.com/billions-crabs-went-missing-around-180012346.html)
+- Oct 20 - [A man posed as a mannequin in a shop window to steal jewelry after hours, Polish police say](https://news.yahoo.com/man-posed-mannequin-shop-window-061321100.html)
 - Oct 20 - [China's Xi tells Vietnam not to forget roots of their friendship](https://news.yahoo.com/chinas-xi-tells-vietnam-not-060411343.html)
 - Oct 20 - [Vietnam rare earths arrests include key figure in bid to build industry](https://finance.yahoo.com/news/vietnam-rare-earths-arrests-key-025117165.html)
 - Oct 20 - [Trump Is About to Be Ripped to Shreds by NYC Bank Fraud Trial Judge](https://news.yahoo.com/trump-ripped-shreds-nyc-bank-023316622.html)
-- Oct 20 - [Newsmax Angrily Cuts Away From Biden’s Oval Office Address](https://www.yahoo.com/entertainment/newsmax-angrily-cuts-away-biden-021801685.html)
-- Oct 20 - [Amazon warehouse altercation over joke leads to one man attempting to kill the other with a box cutter: police](https://news.yahoo.com/amazon-warehouse-altercation-over-joke-015640377.html)
 <!-- feed end -->
 
 ### Onstream
