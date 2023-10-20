@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - [Judge raises possibility of imprisonment for Trump for violating gag order -NBC News](https://news.yahoo.com/judge-threatens-imprison-trump-violating-151510500.html)
+- Oct 20 - [Russian soldiers are getting hard drugs delivered to their trenches in Ukraine to escape boredom, report says](https://news.yahoo.com/russian-soldiers-getting-hard-drugs-145631661.html)
+- Oct 20 - [Monstrous ‘zombie catfish’ are appearing in US waterways. What’s causing it?](https://news.yahoo.com/monstrous-zombie-catfish-appearing-us-145309402.html)
 - Oct 20 - [Judge Threatens ‘Imprisoning’ Trump for 'Blatantly' Violating Gag Order](https://news.yahoo.com/judge-threatens-imprisoning-trump-blatantly-142934359.html)
 - Oct 20 - [CNN Reporter Sara Sidner Accosted On-Air in the West Bank: ‘You Are Genocide Supporters… F— CNN’](https://www.yahoo.com/entertainment/cnn-reporter-sara-sidner-accosted-141632729.html)
-- Oct 20 - [Fox News’ John Roberts Says Biden’s War Speech Was ‘Glaringly Missing’ the One Thing ‘Everybody in This Nation Wants to Hear’](https://www.yahoo.com/entertainment/fox-news-john-roberts-says-140602569.html)
-- Oct 20 - [Forget Bud Light, popular beer brand files for bankruptcy](https://www.thestreet.com/restaurants/forget-bud-light-popular-beer-brand-files-for-bankruptcy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 20 - [Deadly police shooting in Georgia video released | CW39 HOUSTON](https://news.yahoo.com/deadly-police-shooting-georgia-video-105534668.html)
 <!-- feed end -->
 
 ### Onstream
