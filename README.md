@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Kenneth Chesebro takes last-minute plea deal, agrees to testify in Georgia election case](https://www.yahoo.com/gma/kenneth-chesebro-takes-last-minute-161955755.html)
+- Oct 20 - [Biden: Aid Trucks Should Move Into Gaza From Egypt in Coming Days](https://finance.yahoo.com/video/u-n-chief-aid-trucks-135000095.html)
+- Oct 20 - [Hearing in Trump classified documents case addresses a possible conflict for a co-defendant's lawyer](https://news.yahoo.com/hearing-trump-classified-documents-case-181244285.html)
 - Oct 20 - [Donald Trump Promises 100% Evidence Of 2020 Fraud — With A Racist Dogwhistle](https://news.yahoo.com/donald-trump-promises-100-evidence-172734125.html)
-- Oct 20 - [Hamas Says It’s Released Kidnapped American Mom and Daughter](https://news.yahoo.com/hamas-says-released-kidnapped-american-171332888.html)
+- Oct 20 - [Hamas Releases Kidnapped Mom and Daughter From Illinois](https://news.yahoo.com/hamas-says-released-kidnapped-american-171332888.html)
 - Oct 20 - [The US Navy is preparing for combat ops on a scale not seen for many years](https://news.yahoo.com/us-navy-preparing-combat-ops-164255427.html)
-- Oct 20 - [Quash my subpoena, Ivanka Trump tells NY judge, in asking not to testify against her father.](https://news.yahoo.com/quash-subpoena-ivanka-trump-tells-163445092.html)
 <!-- feed end -->
 
 ### Onstream
