@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - [OUCH! Mitt Romney Has A Scathing Theory About Sean Hannity](https://news.yahoo.com/ouch-mitt-romney-scathing-theory-100101897.html)
+- Oct 20 - [Judge Dies After Being Gunned Down Outside His Maryland Home: Reports](https://news.yahoo.com/judge-dies-being-gunned-down-095207147.html)
+- Oct 20 - [An American soldier stole a 300-year-old painting during World War II. It made an unusual journey back to Germany.](https://news.yahoo.com/american-soldier-stole-300-old-080923750.html)
+- Oct 20 - [CNN Airs Chilling Voicemail Sent To Wife Of Anti-Jim Jordan Republican](https://news.yahoo.com/cnn-airs-chilling-voicemail-sent-071257430.html)
 - Oct 20 - [Billions of crabs went missing around Alaska. Scientists now know what happened to them](https://news.yahoo.com/billions-crabs-went-missing-around-180012346.html)
-- Oct 20 - [A man posed as a mannequin in a shop window to steal jewelry after hours, Polish police say](https://news.yahoo.com/man-posed-mannequin-shop-window-061321100.html)
-- Oct 20 - [China's Xi tells Vietnam not to forget roots of their friendship](https://news.yahoo.com/chinas-xi-tells-vietnam-not-060411343.html)
-- Oct 20 - [Buck says he’s being evicted from Windsor office after voting against Jordan](https://news.yahoo.com/buck-says-being-evicted-windsor-040844641.html)
-- Oct 20 - [Vietnam arrests rare earth industry officials, casting shadow over plans to rival China](https://finance.yahoo.com/news/vietnam-rare-earths-arrests-key-025117165.html)
 <!-- feed end -->
 
 ### Onstream
