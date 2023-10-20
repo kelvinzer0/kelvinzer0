@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 19 - [Former officer who shot Breonna Taylor points gun at suspect during arrest in new job](https://news.yahoo.com/former-officer-shot-breonna-taylor-221928538.html)
-- Oct 19 - [Hunter Bags Marsh Buck and Giant Python During Morning Hunt near Florida Everglades](https://www.yahoo.com/lifestyle/hunter-bags-marsh-buck-giant-214731492.html)
-- Oct 19 - [Captured Hamas weapons hint that if Israeli forces invade Gaza, they could face a deadly improvised bomb that US troops feared in Iraq](https://news.yahoo.com/captured-hamas-weapons-hint-israeli-210851019.html)
-- Oct 19 - [First on CNN: US Navy warship near Yemen intercepts multiple missiles, US officials say](https://news.yahoo.com/first-cnn-us-navy-warship-183327566.html)
-- Oct 19 - [BBC Admits Reporter’s Speculation Over Gaza Hospital Rocket Misfire ‘Was Wrong’](https://www.yahoo.com/entertainment/bbc-admits-reporter-speculation-over-203053888.html)
+- Oct 19 - [Fact Check: Mel Gibson Posted Israel's 'End' Was Coming, Adding 'That's Why They Want to Destroy Everything in the Way'?](https://www.yahoo.com/entertainment/fact-check-mel-gibson-posted-235600604.html)
+- Oct 19 - [300-year-old painting stolen by an American soldier during World War II returned to German museum](https://news.yahoo.com/300-old-painting-stolen-american-235550392.html)
+- Oct 19 - [New York woman comes forward to claim $12 million prize from a 1991 jackpot, largest in state history](https://finance.yahoo.com/news/york-woman-comes-forward-claim-232311901.html)
+- Oct 19 - [Woman who lost 350 pounds says doctors dismissed her lipedema: ‘You’re just fat’](https://news.yahoo.com/woman-lost-350-pounds-says-231421170.html)
+- Oct 19 - [Marlon Wayans says he is being unfairly prosecuted after being by racially targeted by gate agent](https://news.yahoo.com/marlon-wayans-says-being-unfairly-231321863.html)
 <!-- feed end -->
 
 ### Onstream
