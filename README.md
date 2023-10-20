@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - [Kenneth Chesebro takes last-minute plea deal, agrees to testify in Georgia election case](https://www.yahoo.com/gma/kenneth-chesebro-takes-last-minute-161955755.html)
+- Oct 20 - [Dan Le Batard gives a reality check about ESPN after Pat McAfee, Aaron Rodgers payment report](https://www.thestreet.com/sports/dan-le-batard-reality-check-espn-pat-mcafee-aaron-rodgers-payment?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 20 - [“What is he doing?”: Jordan allies “completely befuddled” by press conference as opposition grows](https://news.yahoo.com/doing-jordan-allies-completely-befuddled-152137979.html)
 - Oct 20 - [Judge raises possibility of imprisonment for Trump for violating gag order -NBC News](https://news.yahoo.com/judge-threatens-imprison-trump-violating-151510500.html)
 - Oct 20 - [Russian soldiers are getting hard drugs delivered to their trenches in Ukraine to escape boredom, report says](https://news.yahoo.com/russian-soldiers-getting-hard-drugs-145631661.html)
-- Oct 20 - [Monstrous ‘zombie catfish’ are appearing in US waterways. What’s causing it?](https://news.yahoo.com/monstrous-zombie-catfish-appearing-us-145309402.html)
-- Oct 20 - [Judge Threatens ‘Imprisoning’ Trump for 'Blatantly' Violating Gag Order](https://news.yahoo.com/judge-threatens-imprisoning-trump-blatantly-142934359.html)
-- Oct 20 - [CNN Reporter Sara Sidner Accosted On-Air in the West Bank: ‘You Are Genocide Supporters… F— CNN’](https://www.yahoo.com/entertainment/cnn-reporter-sara-sidner-accosted-141632729.html)
 <!-- feed end -->
 
 ### Onstream
