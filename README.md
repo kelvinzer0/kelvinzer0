@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - [Judge Threatens ‘Imprisoning’ Trump for 'Blatantly' Violating Gag Order](https://news.yahoo.com/judge-threatens-imprisoning-trump-blatantly-142934359.html)
+- Oct 20 - [CNN Reporter Sara Sidner Accosted On-Air in the West Bank: ‘You Are Genocide Supporters… F— CNN’](https://www.yahoo.com/entertainment/cnn-reporter-sara-sidner-accosted-141632729.html)
+- Oct 20 - [Fox News’ John Roberts Says Biden’s War Speech Was ‘Glaringly Missing’ the One Thing ‘Everybody in This Nation Wants to Hear’](https://www.yahoo.com/entertainment/fox-news-john-roberts-says-140602569.html)
 - Oct 20 - [Forget Bud Light, popular beer brand files for bankruptcy](https://www.thestreet.com/restaurants/forget-bud-light-popular-beer-brand-files-for-bankruptcy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 20 - [Exiled mayor: Ukrainian resistance in occupied Melitopol detonates car with looters](https://news.yahoo.com/exiled-mayor-ukrainian-resistance-occupied-110216370.html)
 - Oct 20 - [Deadly police shooting in Georgia video released | CW39 HOUSTON](https://news.yahoo.com/deadly-police-shooting-georgia-video-105534668.html)
-- Oct 20 - [A Russian soldier was so weak from lack of food and water that he couldn't wear his bulletproof vest, Ukrainian intelligence says](https://news.yahoo.com/russian-soldier-weak-lack-food-104735679.html)
-- Oct 20 - [OUCH! Mitt Romney Has A Scathing Theory About Sean Hannity](https://news.yahoo.com/ouch-mitt-romney-scathing-theory-100101897.html)
 <!-- feed end -->
 
 ### Onstream
