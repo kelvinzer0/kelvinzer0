@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [UAW's Fain reports progress in talks with Detroit automakers, wants more](https://www.autoblog.com/2023/10/20/uaws-fain-reports-progress-in-talks-with-detroit-automakers-wants-more/)
+- Oct 20 - [Russian TOS-1A Thermobaric Rocket Launcher Absolutely Detonates When Hit By Drone](https://news.yahoo.com/russian-tos-1a-thermobaric-rocket-205056972.html)
+- Oct 20 - [With eyes of the world on Gaza, Iran’s ‘axis of resistance’ is quietly moving in for the kill](https://news.yahoo.com/iran-axis-resistance-moving-kill-203736753.html)
 - Oct 20 - [Florida cops went to a house to arrest a suspect. Then they saw a sign in the window](https://news.yahoo.com/florida-cops-went-house-arrest-200435657.html)
-- Oct 20 - [Matt Gaetz, of All People, Whines After His Preferred Speaker Is Dumped](https://news.yahoo.com/matt-gaetz-people-whines-preferred-193948625.html)
-- Oct 20 - [The US debt mountain is growing so fast the government could soon be spending more on interest payments than on defense](https://finance.yahoo.com/news/us-debt-mountain-growing-fast-193006391.html)
-- Oct 20 - [Combat video shows what Ukraine says are its special ops forces destroying enemy armor, capturing the cost of Russia's new assaults in the east](https://news.yahoo.com/combat-video-shows-ukraine-says-192737226.html)
+- Oct 20 - [2 including ex-MLB pitcher arrested in 2021 homicide of Lake Tahoe man, attack on wife](https://news.yahoo.com/placer-detectives-arrest-2-nevada-194203425.html)
+- Oct 20 - [Black NYU Law Student Speaks Out After Job Offer Rescinded Following Pro-Palestine Letter](https://news.yahoo.com/black-nyu-law-student-speaks-191239401.html)
 <!-- feed end -->
 
 ### Onstream
