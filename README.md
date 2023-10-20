@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - [Saudi Arabia, UAE leaders meet as Israel-Hamas war threatens to spill over](https://news.yahoo.com/saudi-arabia-uae-leaders-meet-125446708.html)
+- Oct 20 - [Deadly police shooting in Georgia video released | CW39 HOUSTON](https://news.yahoo.com/deadly-police-shooting-georgia-video-105534668.html)
 - Oct 20 - [A Russian soldier was so weak from lack of food and water that he couldn't wear his bulletproof vest, Ukrainian intelligence says](https://news.yahoo.com/russian-soldier-weak-lack-food-104735679.html)
 - Oct 20 - [OUCH! Mitt Romney Has A Scathing Theory About Sean Hannity](https://news.yahoo.com/ouch-mitt-romney-scathing-theory-100101897.html)
 - Oct 20 - [Judge Dies After Being Gunned Down Outside His Maryland Home: Reports](https://news.yahoo.com/judge-dies-being-gunned-down-095207147.html)
-- Oct 20 - [A man was overweight, depressed, and unhealthy. Doing a 'year of the opposite' changed everything.](https://www.yahoo.com/lifestyle/man-overweight-depressed-unhealthy-doing-091559637.html)
-- Oct 20 - [Netanyahu Party Member Furiously Threatens Russia—on Russian State TV](https://news.yahoo.com/netanyahu-party-member-furiously-threatens-091207105.html)
 <!-- feed end -->
 
 ### Onstream
