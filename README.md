@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 20 - [Trump Is About to Be Ripped to Shreds by NYC Bank Fraud Trial Judge](https://news.yahoo.com/trump-ripped-shreds-nyc-bank-023316622.html)
 - Oct 20 - [Newsmax Angrily Cuts Away From Biden’s Oval Office Address](https://www.yahoo.com/entertainment/newsmax-angrily-cuts-away-biden-021801685.html)
-- Oct 20 - [China weighs options to blunt U.S. sanctions in a Taiwan conflict](https://finance.yahoo.com/news/china-weighs-options-blunt-u-020510912.html)
+- Oct 20 - [Amazon warehouse altercation over joke leads to one man attempting to kill the other with a box cutter: police](https://news.yahoo.com/amazon-warehouse-altercation-over-joke-015640377.html)
+- Oct 20 - [30-year mystery solved: Missing man's remains among those found on suspected serial killer's estate](https://news.yahoo.com/30-mystery-solved-missing-mans-013136524.html)
 - Oct 19 - [Fact Check: Mel Gibson Posted Israel's 'End' Was Coming, Adding 'That's Why They Want to Destroy Everything in the Way'?](https://www.yahoo.com/entertainment/fact-check-mel-gibson-posted-235600604.html)
-- Oct 19 - [300-year-old painting stolen by an American soldier during World War II returned to German museum](https://news.yahoo.com/300-old-painting-stolen-american-235550392.html)
 <!-- feed end -->
 
 ### Onstream
