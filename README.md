@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - [North Korea condemns US for supplying long-range missiles to Ukraine](https://news.yahoo.com/north-korea-condemns-us-supplying-223626248.html)
+- Oct 20 - ['History is watching:' Hollywood stars urge Biden to press for Israel, Gaza ceasefire](https://news.yahoo.com/history-watching-hollywood-stars-urge-223607142.html)
 - Oct 20 - [Russian TOS-1A Thermobaric Rocket Launcher Absolutely Detonates When Hit By Drone](https://news.yahoo.com/russian-tos-1a-thermobaric-rocket-205056972.html)
 - Oct 20 - [With eyes of the world on Gaza, Iran’s ‘axis of resistance’ is quietly moving in for the kill](https://news.yahoo.com/iran-axis-resistance-moving-kill-203736753.html)
 - Oct 20 - [Florida cops went to a house to arrest a suspect. Then they saw a sign in the window](https://news.yahoo.com/florida-cops-went-house-arrest-200435657.html)
-- Oct 20 - [2 including ex-MLB pitcher arrested in 2021 homicide of Lake Tahoe man, attack on wife](https://news.yahoo.com/placer-detectives-arrest-2-nevada-194203425.html)
-- Oct 20 - [Black NYU Law Student Speaks Out After Job Offer Rescinded Following Pro-Palestine Letter](https://news.yahoo.com/black-nyu-law-student-speaks-191239401.html)
 <!-- feed end -->
 
 ### Onstream
