@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 19 - [Fact Check: Mel Gibson Posted Israel's 'End' Was Coming, Adding 'That's Why They Want to Destroy Everything in the Way'?](https://www.yahoo.com/entertainment/fact-check-mel-gibson-posted-235600604.html)
 - Oct 19 - [300-year-old painting stolen by an American soldier during World War II returned to German museum](https://news.yahoo.com/300-old-painting-stolen-american-235550392.html)
+- Oct 19 - [In the latest sign of House chaos, the temporary speaker is threatening to quit](https://news.yahoo.com/latest-sign-house-chaos-temporary-234103667.html)
+- Oct 19 - [US conducts nuclear test in Nevada hours after Russian move to revoke global test ban](https://news.yahoo.com/us-conducts-nuclear-test-nevada-233645695.html)
 - Oct 19 - [New York woman comes forward to claim $12 million prize from a 1991 jackpot, largest in state history](https://finance.yahoo.com/news/york-woman-comes-forward-claim-232311901.html)
-- Oct 19 - [Woman who lost 350 pounds says doctors dismissed her lipedema: ‘You’re just fat’](https://news.yahoo.com/woman-lost-350-pounds-says-231421170.html)
-- Oct 19 - [Marlon Wayans says he is being unfairly prosecuted after being by racially targeted by gate agent](https://news.yahoo.com/marlon-wayans-says-being-unfairly-231321863.html)
 <!-- feed end -->
 
 ### Onstream
