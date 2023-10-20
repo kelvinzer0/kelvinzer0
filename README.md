@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [Biden: Aid Trucks Should Move Into Gaza From Egypt in Coming Days](https://finance.yahoo.com/video/u-n-chief-aid-trucks-135000095.html)
-- Oct 20 - [Hearing in Trump classified documents case addresses a possible conflict for a co-defendant's lawyer](https://news.yahoo.com/hearing-trump-classified-documents-case-181244285.html)
+- Oct 20 - [Matt Gaetz, of All People, Whines After His Preferred Speaker Is Dumped](https://news.yahoo.com/matt-gaetz-people-whines-preferred-193948625.html)
+- Oct 20 - [Jordan out as speaker candidate in secret ballot after top ally warned death threats "will continue"](https://news.yahoo.com/jordan-speaker-candidate-secret-ballot-183630596.html)
+- Oct 20 - [Trump co-defendant in classified records case says he wants to keep lawyer despite possible conflict](https://news.yahoo.com/hearing-trump-classified-documents-case-181244285.html)
 - Oct 20 - [Donald Trump Promises 100% Evidence Of 2020 Fraud — With A Racist Dogwhistle](https://news.yahoo.com/donald-trump-promises-100-evidence-172734125.html)
 - Oct 20 - [Hamas Releases Kidnapped Mom and Daughter From Illinois](https://news.yahoo.com/hamas-says-released-kidnapped-american-171332888.html)
-- Oct 20 - [The US Navy is preparing for combat ops on a scale not seen for many years](https://news.yahoo.com/us-navy-preparing-combat-ops-164255427.html)
 <!-- feed end -->
 
 ### Onstream
