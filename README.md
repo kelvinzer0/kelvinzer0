@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - [UAW's Fain reports progress in talks with Detroit automakers, wants more](https://www.autoblog.com/2023/10/20/uaws-fain-reports-progress-in-talks-with-detroit-automakers-wants-more/)
+- Oct 20 - [Florida cops went to a house to arrest a suspect. Then they saw a sign in the window](https://news.yahoo.com/florida-cops-went-house-arrest-200435657.html)
 - Oct 20 - [Matt Gaetz, of All People, Whines After His Preferred Speaker Is Dumped](https://news.yahoo.com/matt-gaetz-people-whines-preferred-193948625.html)
-- Oct 20 - [Jordan out as speaker candidate in secret ballot after top ally warned death threats "will continue"](https://news.yahoo.com/jordan-speaker-candidate-secret-ballot-183630596.html)
-- Oct 20 - [Trump co-defendant in classified records case says he wants to keep lawyer despite possible conflict](https://news.yahoo.com/hearing-trump-classified-documents-case-181244285.html)
-- Oct 20 - [Donald Trump Promises 100% Evidence Of 2020 Fraud — With A Racist Dogwhistle](https://news.yahoo.com/donald-trump-promises-100-evidence-172734125.html)
-- Oct 20 - [Hamas Releases Kidnapped Mom and Daughter From Illinois](https://news.yahoo.com/hamas-says-released-kidnapped-american-171332888.html)
+- Oct 20 - [The US debt mountain is growing so fast the government could soon be spending more on interest payments than on defense](https://finance.yahoo.com/news/us-debt-mountain-growing-fast-193006391.html)
+- Oct 20 - [Combat video shows what Ukraine says are its special ops forces destroying enemy armor, capturing the cost of Russia's new assaults in the east](https://news.yahoo.com/combat-video-shows-ukraine-says-192737226.html)
 <!-- feed end -->
 
 ### Onstream
