@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 21 - [Hamas militants ate family's lunch as they tortured and mutilated parents and 2 young children, says an Israeli emergency responder](https://news.yahoo.com/hamas-militants-ate-familys-lunch-095623203.html)
 - Oct 21 - [WATCH: Ilhan Omar breaks down in fit of rage aimed at Biden, Democrat leadership over support for Israel](https://news.yahoo.com/watch-ilhan-omar-breaks-down-000547463.html)
 - Oct 20 - ['Squads' Ilhan Omar breaks down in fit of rage aimed at Biden, Democrat leadership over support for Israel](https://news.yahoo.com/squads-ilhan-omar-breaks-down-225133687.html)
 - Oct 20 - [‘She May be Hurt’: California Cop Pummels Black Woman In the Face After She Crashes Car In Shocking Video. He Has a History of Violent Arrests](https://news.yahoo.com/she-may-hurt-california-cop-220000663.html)
 - Oct 20 - [US and UK back Canada in dispute with India over diplomats](https://news.yahoo.com/us-backs-canada-dispute-india-213712623.html)
-- Oct 20 - [Ocala mom arrested after heated confrontation with middle school receptionist over visitor pass, deputies say](https://news.yahoo.com/ocala-mom-arrested-heated-confrontation-213604748.html)
 <!-- feed end -->
 
 ### Onstream
