@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 21 - [Israel's ground invasion of Gaza will be way more deadly than the 'absolute hell' US Marines experienced in Fallujah, Iraq, geopolitical expert says](https://news.yahoo.com/israels-ground-invasion-gaza-way-112422890.html)
 - Oct 21 - [Chilling video shows a doomed Russian soldier in a terrifying cat-and-mouse ordeal with a Ukrainian killer drone](https://news.yahoo.com/chilling-video-shows-doomed-russian-105251193.html)
 - Oct 21 - [Hamas militants ate family's lunch as they tortured and mutilated parents and 2 young children, says an Israeli emergency responder](https://news.yahoo.com/hamas-militants-ate-familys-lunch-095623203.html)
 - Oct 21 - [San Francisco could get 90% of its homeless off the streets with the country’s fiercest housing speculation tax, but landlords are already fighting it tooth and nail](https://finance.yahoo.com/news/san-francisco-could-90-homeless-090000070.html)
 - Oct 21 - [Former Major League pitcher arrested in alleged murder and attempted murder of his in-laws](https://news.yahoo.com/former-major-league-pitcher-arrested-030402962.html)
-- Oct 21 - [WATCH: Ilhan Omar breaks down in fit of rage aimed at Biden, Democrat leadership over support for Israel](https://news.yahoo.com/watch-ilhan-omar-breaks-down-000547463.html)
 <!-- feed end -->
 
 ### Onstream
