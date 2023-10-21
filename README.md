@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 21 - [Italy's Meloni urges international community not to fall into Hamas "trap"](https://news.yahoo.com/italys-meloni-urges-international-community-142339070.html)
 - Oct 21 - [‘Kill the difficult ones’: Hamas’s hostage-taking handbook reveals secrets of terror-raid planning](https://news.yahoo.com/kill-difficult-ones-hamas-hostage-140157676.html)
-- Oct 21 - [Ukraine says it took out almost 50 Russian tanks in one day as Russia made failed attempt to capture eastern city](https://news.yahoo.com/ukraine-says-took-almost-50-125156050.html)
+- Oct 21 - [Inside the Search and Sad End for Corrections Officer Vicky White](https://www.yahoo.com/entertainment/inside-wild-search-corrections-officer-120000655.html)
 - Oct 21 - [Chilling video shows a doomed Russian soldier in a terrifying cat-and-mouse ordeal with a Ukrainian killer drone](https://news.yahoo.com/chilling-video-shows-doomed-russian-105251193.html)
 - Oct 21 - [Hamas militants ate family's lunch as they tortured and mutilated parents and 2 young children, says an Israeli emergency responder](https://news.yahoo.com/hamas-militants-ate-familys-lunch-095623203.html)
 <!-- feed end -->
