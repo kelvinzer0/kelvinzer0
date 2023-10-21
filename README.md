@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 20 - ['Squads' Ilhan Omar breaks down in fit of rage aimed at Biden, Democrat leadership over support for Israel](https://news.yahoo.com/squads-ilhan-omar-breaks-down-225133687.html)
 - Oct 20 - [French intelligence points to Palestinian rocket, not Israeli airstrike, for Gaza hospital blast](https://news.yahoo.com/french-intelligence-points-palestinian-rocket-224215389.html)
 - Oct 20 - ['I've never seen anything like this': Death Valley gleams with water, wildflowers and color](https://news.yahoo.com/ive-never-seen-anything-death-220630260.html)
 - Oct 20 - [‘She May be Hurt’: California Cop Pummels Black Woman In the Face After She Crashes Car In Shocking Video. He Has a History of Violent Arrests](https://news.yahoo.com/she-may-hurt-california-cop-220000663.html)
 - Oct 20 - [Gold digger? Las Vegas police say text messages from Gavin Maloof’s ex-girlfriend reveal her plot](https://news.yahoo.com/gold-digger-las-vegas-police-210925258.html)
-- Oct 20 - [San Francisco apartment building facing foreclosure, significant decline in value](https://finance.yahoo.com/news/san-francisco-apartment-building-facing-205807448.html)
 <!-- feed end -->
 
 ### Onstream
