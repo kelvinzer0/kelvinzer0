@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 21 - [Resurfaced Reports Claim Donald Trump May Be Feuding With Son Barron Over the Most Trivial Difference](https://www.yahoo.com/entertainment/resurfaced-reports-claim-donald-trump-155800921.html)
+- Oct 21 - [The American semiconductor boom faces a massive obstacle: A lack of immigrants](https://finance.yahoo.com/news/the-american-semiconductor-boom-faces-a-massive-obstacle-a-lack-of-immigrants-152315540.html)
 - Oct 21 - [Italy's Meloni urges international community not to fall into Hamas "trap"](https://news.yahoo.com/italys-meloni-urges-international-community-142339070.html)
 - Oct 21 - [‘Kill the difficult ones’: Hamas’s hostage-taking handbook reveals secrets of terror-raid planning](https://news.yahoo.com/kill-difficult-ones-hamas-hostage-140157676.html)
 - Oct 21 - [Inside the Search and Sad End for Corrections Officer Vicky White](https://www.yahoo.com/entertainment/inside-wild-search-corrections-officer-120000655.html)
-- Oct 21 - [Chilling video shows a doomed Russian soldier in a terrifying cat-and-mouse ordeal with a Ukrainian killer drone](https://news.yahoo.com/chilling-video-shows-doomed-russian-105251193.html)
-- Oct 21 - [Hamas militants ate family's lunch as they tortured and mutilated parents and 2 young children, says an Israeli emergency responder](https://news.yahoo.com/hamas-militants-ate-familys-lunch-095623203.html)
 <!-- feed end -->
 
 ### Onstream
