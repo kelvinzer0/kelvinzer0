@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 20 - [North Korea condemns US for supplying long-range missiles to Ukraine](https://news.yahoo.com/north-korea-condemns-us-supplying-223626248.html)
-- Oct 20 - ['History is watching:' Hollywood stars urge Biden to press for Israel, Gaza ceasefire](https://news.yahoo.com/history-watching-hollywood-stars-urge-223607142.html)
-- Oct 20 - [Russian TOS-1A Thermobaric Rocket Launcher Absolutely Detonates When Hit By Drone](https://news.yahoo.com/russian-tos-1a-thermobaric-rocket-205056972.html)
-- Oct 20 - [With eyes of the world on Gaza, Iran’s ‘axis of resistance’ is quietly moving in for the kill](https://news.yahoo.com/iran-axis-resistance-moving-kill-203736753.html)
-- Oct 20 - [Florida cops went to a house to arrest a suspect. Then they saw a sign in the window](https://news.yahoo.com/florida-cops-went-house-arrest-200435657.html)
+- Oct 20 - [French intelligence points to Palestinian rocket, not Israeli airstrike, for Gaza hospital blast](https://news.yahoo.com/french-intelligence-points-palestinian-rocket-224215389.html)
+- Oct 20 - ['I've never seen anything like this': Death Valley gleams with water, wildflowers and color](https://news.yahoo.com/ive-never-seen-anything-death-220630260.html)
+- Oct 20 - [‘She May be Hurt’: California Cop Pummels Black Woman In the Face After She Crashes Car In Shocking Video. He Has a History of Violent Arrests](https://news.yahoo.com/she-may-hurt-california-cop-220000663.html)
+- Oct 20 - [Gold digger? Las Vegas police say text messages from Gavin Maloof’s ex-girlfriend reveal her plot](https://news.yahoo.com/gold-digger-las-vegas-police-210925258.html)
+- Oct 20 - [San Francisco apartment building facing foreclosure, significant decline in value](https://finance.yahoo.com/news/san-francisco-apartment-building-facing-205807448.html)
 <!-- feed end -->
 
 ### Onstream
