@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [George Santos says he threw his life 'into the toilet' and 'flushed it' to win his House seat, but doesn't regret running for office](https://news.yahoo.com/george-santos-says-threw-life-184515151.html)
+- Oct 22 - [Man injured in shooting calls wife to pick him up then dies at airport, Texas cops say](https://news.yahoo.com/man-injured-shooting-calls-wife-204433906.html)
 - Oct 22 - [Listen: Billionaire Brags About Trump Sharing Secret Information With Him](https://news.yahoo.com/listen-billionaire-brags-trump-sharing-181909316.html)
+- Oct 22 - [Israel responds sharply to Greta Thunberg after 'Stand With Gaza' post](https://news.yahoo.com/israel-responds-sharply-greta-thunberg-174935762.html)
 - Oct 22 - [After Sidney Powell pleads guilty in Georgia case, Trump claims she was ‘never’ his attorney, despite their past ties](https://news.yahoo.com/sidney-powell-pleads-guilty-georgia-155305437.html)
 - Oct 22 - [Donald Trump Says He'll Expose The 'Riggers' But We Know The Word He Really Wants To Say](https://news.yahoo.com/donald-trump-says-hell-expose-155200575.html)
-- Oct 22 - [Franklin County Sheriff's deputy arrested when he was showed up for work](https://news.yahoo.com/franklin-county-sheriffs-deputy-arrested-133906029.html)
 <!-- feed end -->
 
 ### Onstream
