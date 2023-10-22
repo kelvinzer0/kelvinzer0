@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 22 - [Franklin County Sheriff's deputy arrested when he was showed up for work](https://news.yahoo.com/franklin-county-sheriffs-deputy-arrested-133906029.html)
 - Oct 22 - ['We don't want our children to be waiters —  waiting for us to die': Man who won $22 million lottery says he hasn't told his kids. Dave Ramsey loves it. Here's why](https://finance.yahoo.com/news/dont-want-children-waiters-waiting-121500350.html)
+- Oct 22 - [In 2023, nobody knows how to discuss the Israeli-Palestinian conflict. In 2013, Anthony Bourdain did](https://www.yahoo.com/lifestyle/2023-nobody-knows-discuss-israeli-120001672.html)
 - Oct 22 - [Russian casualties soar by 90% as Putin's generals order furious attacks on small city in east, UK intelligence says](https://news.yahoo.com/russian-casualties-soar-90-putins-113434335.html)
 - Oct 22 - [‘I’m not sure what to tell you’: Dave Ramsey was at a loss for words when Virginia woman came to him for help with her ‘disconnected’ husband — here’s his thoughts on her 'painful' situation](https://finance.yahoo.com/news/m-not-sure-tell-dave-113000624.html)
-- Oct 22 - [Dave Chappelle’s Words On Israel-Gaza Conflict Spark Cheers, Jeers And Walkouts In Audience](https://www.yahoo.com/entertainment/dave-chappelle-words-israel-gaza-112611194.html)
-- Oct 22 - [China says it uncovered another spying case in US](https://news.yahoo.com/china-says-uncovered-another-spying-110456277.html)
 <!-- feed end -->
 
 ### Onstream
