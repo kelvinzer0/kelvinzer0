@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 22 - [Elon Musk Says He’ll Give Wikipedia $1 Billion if They Change Their Name to D*ckipedia](https://www.yahoo.com/entertainment/elon-musk-says-ll-wikipedia-222531368.html)
+- Oct 22 - [China, Philippines boats clash in South China Sea](https://news.yahoo.com/china-philippines-boats-clash-south-220129960.html)
+- Oct 22 - [‘I was just covered in blood.’ Videos show shooting at Myrtle Beach-area truck meet](https://news.yahoo.com/just-covered-blood-videos-show-211039085.html)
 - Oct 22 - [Man injured in shooting calls wife to pick him up then dies at airport, Texas cops say](https://news.yahoo.com/man-injured-shooting-calls-wife-204433906.html)
-- Oct 22 - [Listen: Billionaire Brags About Trump Sharing Secret Information With Him](https://news.yahoo.com/listen-billionaire-brags-trump-sharing-181909316.html)
-- Oct 22 - [Israel responds sharply to Greta Thunberg after 'Stand With Gaza' post](https://news.yahoo.com/israel-responds-sharply-greta-thunberg-174935762.html)
-- Oct 22 - [After Sidney Powell pleads guilty in Georgia case, Trump claims she was ‘never’ his attorney, despite their past ties](https://news.yahoo.com/sidney-powell-pleads-guilty-georgia-155305437.html)
-- Oct 22 - [Donald Trump Says He'll Expose The 'Riggers' But We Know The Word He Really Wants To Say](https://news.yahoo.com/donald-trump-says-hell-expose-155200575.html)
+- Oct 22 - [Gingrich says House GOP poses ‘very real danger’ of electing Speaker, then going ‘back into the same mess’](https://news.yahoo.com/gingrich-says-house-gop-poses-202918747.html)
 <!-- feed end -->
 
 ### Onstream
