@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Australian prime minister announces China visit hours before leaving for US to meet Biden](https://news.yahoo.com/australian-prime-minister-announces-china-014809290.html)
 - Oct 22 - [Disney Ending $1 Billion Move Amid DeSantis Lawsuit Could Be A Bigger Deal For Florida Than We Thought](https://www.yahoo.com/entertainment/disney-ending-1-billion-move-180000050.html)
+- Oct 21 - [Israel strikes militant compound under West Bank mosque, military says](https://news.yahoo.com/israel-strikes-militant-compound-under-235734710.html)
 - Oct 21 - [Arizona governor blocks Saudi Arabia from pumping water in the drought-stricken state: ‘It’s unacceptable’](https://news.yahoo.com/arizona-governor-blocks-saudi-arabia-220000365.html)
 - Oct 21 - [‘Didn’t State Who He Was’: Federal Drug Agents Seize Millions from Passengers at Atlanta Airport While Posing as Regular Travelers In Plainclothes In ‘Cold Consent Encounters’](https://news.yahoo.com/didn-t-state-federal-drug-203000407.html)
 - Oct 21 - [The death of a Jewish synagogue president outside her Detroit home was a 'brutal murder,' Michigan's attorney general says](https://news.yahoo.com/death-jewish-synagogue-president-outside-194726056.html)
