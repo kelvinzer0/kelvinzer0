@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 22 - [Australian prime minister announces China visit hours before leaving for US to meet Biden](https://news.yahoo.com/australian-prime-minister-announces-china-014809290.html)
+- Oct 22 - [Disney Ending $1 Billion Move Amid DeSantis Lawsuit Could Be A Bigger Deal For Florida Than We Thought](https://www.yahoo.com/entertainment/disney-ending-1-billion-move-180000050.html)
 - Oct 21 - [Arizona governor blocks Saudi Arabia from pumping water in the drought-stricken state: ‘It’s unacceptable’](https://news.yahoo.com/arizona-governor-blocks-saudi-arabia-220000365.html)
 - Oct 21 - [‘Didn’t State Who He Was’: Federal Drug Agents Seize Millions from Passengers at Atlanta Airport While Posing as Regular Travelers In Plainclothes In ‘Cold Consent Encounters’](https://news.yahoo.com/didn-t-state-federal-drug-203000407.html)
 - Oct 21 - [The death of a Jewish synagogue president outside her Detroit home was a 'brutal murder,' Michigan's attorney general says](https://news.yahoo.com/death-jewish-synagogue-president-outside-194726056.html)
-- Oct 21 - [Iowa woman who made fake cancer claims on social media must pay restitution but stays out of prison](https://news.yahoo.com/iowa-woman-made-fake-cancer-185905213.html)
-- Oct 21 - [Mike Lindell Wi-Fi Monitoring Devices Banned From Northern Kentucky Polls](https://news.yahoo.com/mike-lindell-wi-fi-monitoring-181647237.html)
 <!-- feed end -->
 
 ### Onstream
