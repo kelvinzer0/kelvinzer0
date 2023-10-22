@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Oct 22 - [After Sidney Powell pleads guilty in Georgia case, Trump claims she was ‘never’ his attorney, despite their past ties](https://news.yahoo.com/sidney-powell-pleads-guilty-georgia-155305437.html)
 - Oct 22 - [Donald Trump Says He'll Expose The 'Riggers' But We Know The Word He Really Wants To Say](https://news.yahoo.com/donald-trump-says-hell-expose-155200575.html)
 - Oct 22 - [Franklin County Sheriff's deputy arrested when he was showed up for work](https://news.yahoo.com/franklin-county-sheriffs-deputy-arrested-133906029.html)
-- Oct 22 - ['We don't want our children to be waiters —  waiting for us to die': Man who won $22 million lottery says he hasn't told his kids. Dave Ramsey loves it. Here's why](https://finance.yahoo.com/news/dont-want-children-waiters-waiting-121500350.html)
+- Oct 22 - [IU basketball star freshman Mackenzie Mgbako arrested at Taco Bell on misdemeanor charges](https://sports.yahoo.com/iu-basketball-star-freshman-mackenzie-130908579.html)
 <!-- feed end -->
 
 ### Onstream
