@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 22 - [Philippines says a coast guard ship and supply boat are hit by Chinese vessels near disputed shoal](https://news.yahoo.com/philippines-says-coast-guard-ship-034444673.html)
+- Oct 22 - [‘SNL’ Drags George Santos, Lauren Boebert Groping Scandal and Republican Drama in Cold Open](https://www.yahoo.com/entertainment/snl-skewers-republicans-cold-open-034010334.html)
 - Oct 22 - [Disney Ending $1 Billion Move Amid DeSantis Lawsuit Could Be A Bigger Deal For Florida Than We Thought](https://www.yahoo.com/entertainment/disney-ending-1-billion-move-180000050.html)
-- Oct 21 - [Israel strikes militant compound under West Bank mosque, military says](https://news.yahoo.com/israel-strikes-militant-compound-under-235734710.html)
 - Oct 21 - [Arizona governor blocks Saudi Arabia from pumping water in the drought-stricken state: ‘It’s unacceptable’](https://news.yahoo.com/arizona-governor-blocks-saudi-arabia-220000365.html)
 - Oct 21 - [‘Didn’t State Who He Was’: Federal Drug Agents Seize Millions from Passengers at Atlanta Airport While Posing as Regular Travelers In Plainclothes In ‘Cold Consent Encounters’](https://news.yahoo.com/didn-t-state-federal-drug-203000407.html)
-- Oct 21 - [The death of a Jewish synagogue president outside her Detroit home was a 'brutal murder,' Michigan's attorney general says](https://news.yahoo.com/death-jewish-synagogue-president-outside-194726056.html)
 <!-- feed end -->
 
 ### Onstream
