@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Philippines says a coast guard ship and supply boat are hit by Chinese vessels near disputed shoal](https://news.yahoo.com/philippines-says-coast-guard-ship-034444673.html)
-- Oct 22 - [‘SNL’ Drags George Santos, Lauren Boebert Groping Scandal and Republican Drama in Cold Open](https://www.yahoo.com/entertainment/snl-skewers-republicans-cold-open-034010334.html)
-- Oct 22 - [Disney Ending $1 Billion Move Amid DeSantis Lawsuit Could Be A Bigger Deal For Florida Than We Thought](https://www.yahoo.com/entertainment/disney-ending-1-billion-move-180000050.html)
-- Oct 21 - [Arizona governor blocks Saudi Arabia from pumping water in the drought-stricken state: ‘It’s unacceptable’](https://news.yahoo.com/arizona-governor-blocks-saudi-arabia-220000365.html)
-- Oct 21 - [‘Didn’t State Who He Was’: Federal Drug Agents Seize Millions from Passengers at Atlanta Airport While Posing as Regular Travelers In Plainclothes In ‘Cold Consent Encounters’](https://news.yahoo.com/didn-t-state-federal-drug-203000407.html)
+- Oct 22 - [Apple supplier Foxconn subjected to tax inspections by Chinese authorities](https://news.yahoo.com/apple-supplier-foxconn-subjected-tax-035738805.html)
+- Oct 22 - [Philippines says its coast guard ship and supply boat are hit by Chinese vessels near disputed shoal](https://news.yahoo.com/philippines-says-coast-guard-ship-034444673.html)
+- Oct 22 - [US redirects Navy carrier strike group, deploys high altitude defense missile system and patriot battalions to the Middle East amid escalations by Iran in the Israel-Hamas war](https://news.yahoo.com/us-redirects-navy-carrier-strike-032614129.html)
+- Oct 22 - [I spent 4 hours running for my life at the Nova festival. A man in a white pickup truck rescued me, but I never learned what happened to him after he returned for more people.](https://news.yahoo.com/spent-4-hours-running-life-025309376.html)
+- Oct 22 - [China says it 'lawfully' blocked Philippine ships going to disputed shoal](https://news.yahoo.com/china-says-lawfully-blocked-philippine-022747761.html)
 <!-- feed end -->
 
 ### Onstream
