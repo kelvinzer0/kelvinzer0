@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 22 - [‘I’m not sure what to tell you’: Dave Ramsey was at a loss for words when Virginia woman came to him for help with her ‘disconnected’ husband — here’s his thoughts on her 'painful' situation](https://finance.yahoo.com/news/m-not-sure-tell-dave-113000624.html)
+- Oct 22 - [Dave Chappelle’s Words On Israel-Gaza Conflict Spark Cheers, Jeers And Walkouts In Audience](https://www.yahoo.com/entertainment/dave-chappelle-words-israel-gaza-112611194.html)
+- Oct 22 - [China says it uncovered another spying case in US](https://news.yahoo.com/china-says-uncovered-another-spying-110456277.html)
+- Oct 22 - [Families’ homes sold out from under them by HOAs due to massive ‘gray area’: ‘Someone else owned the house’](https://www.yahoo.com/lifestyle/families-homes-sold-under-them-103000826.html)
 - Oct 22 - ['Go woke, go broke': Billionaire Chamath Palihapitiya suggests that Northeast cities like NYC and Boston are hemorrhaging income due to political ideology — while the South keeps booming](https://finance.yahoo.com/news/woke-broke-billionaire-chamath-palihapitiya-173000793.html)
-- Oct 22 - [Colin Jost Grounds Trump Over Gag Order Response In Brutal 'Weekend Update' Burn](https://www.yahoo.com/entertainment/colin-jost-grounds-trump-over-075817785.html)
-- Oct 22 - [Iran's quandary: How to stay out of Israel's war on Hamas](https://news.yahoo.com/irans-quandary-stay-israels-war-060932302.html)
-- Oct 22 - [Dog spotted alone in parked Tesla with message on touch screen sends social media users into a frenzy: ‘Every car should have this option’](https://www.yahoo.com/lifestyle/dog-spotted-alone-parked-tesla-050000380.html)
-- Oct 22 - [Police dog's attack on Black trucker in Ohio echoes history](https://news.yahoo.com/police-dogs-attack-black-trucker-040341712.html)
 <!-- feed end -->
 
 ### Onstream
