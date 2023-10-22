@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 22 - [Hamas gunmen were ‘high on drugs’ during terrorist attacks on Israel](https://news.yahoo.com/hamas-gunmen-were-high-drugs-163635798.html)
 - Oct 22 - [After Sidney Powell pleads guilty in Georgia case, Trump claims she was ‘never’ his attorney, despite their past ties](https://news.yahoo.com/sidney-powell-pleads-guilty-georgia-155305437.html)
 - Oct 22 - [Donald Trump Says He'll Expose The 'Riggers' But We Know The Word He Really Wants To Say](https://news.yahoo.com/donald-trump-says-hell-expose-155200575.html)
 - Oct 22 - [Franklin County Sheriff's deputy arrested when he was showed up for work](https://news.yahoo.com/franklin-county-sheriffs-deputy-arrested-133906029.html)
-- Oct 22 - [Russia says it thwarted Ukrainian attempts to cross Dnipro in Kherson region](https://news.yahoo.com/russia-says-thwarted-ukrainian-attempts-121825039.html)
 - Oct 22 - ['We don't want our children to be waiters —  waiting for us to die': Man who won $22 million lottery says he hasn't told his kids. Dave Ramsey loves it. Here's why](https://finance.yahoo.com/news/dont-want-children-waiters-waiting-121500350.html)
 <!-- feed end -->
 
