@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [Trump Falsely Claims He 'Was Never Indicted' Despite Being Indicted 4 Times](https://news.yahoo.com/trump-falsely-claims-never-indicted-224111700.html)
+- Oct 23 - [Foreign Reporters Burst Into Tears During IDF Screening of Hamas’ Atrocities](https://news.yahoo.com/foreign-reporters-burst-tears-during-215231538.html)
+- Oct 23 - [Missing Man Found Alive With McDonald's Biscuit](https://news.yahoo.com/missing-man-found-alive-mcdonalds-210645901.html)
 - Oct 23 - [Family files lawsuit against Panera Bread after college student who drank ‘charged lemonade’ dies](https://news.yahoo.com/family-files-lawsuit-against-panera-164537746.html)
-- Oct 23 - [California man charged with murder of 11-year-old son gets prison for sexually exploiting girl](https://news.yahoo.com/california-man-charged-murder-11-204025640.html)
-- Oct 23 - [US court challenges Trump appeal in rape accuser E. Jean Carroll's case](https://news.yahoo.com/us-court-challenges-trump-appeal-201311878.html)
-- Oct 23 - [Sarah Huckabee Sanders Gets Dragged for Banning ‘Woke Nonsense’ in State Docs: ‘She’s a Joke’](https://www.yahoo.com/entertainment/sarah-huckabee-sanders-gets-dragged-200558491.html)
-- Oct 23 - [Another GOP ‘Bombshell’ About Joe Biden Turns Out To Be A Dud](https://news.yahoo.com/another-gop-bombshell-joe-biden-191107999.html)
+- Oct 23 - [Don Laughlin, resort-casino owner and architect behind Nevada town, is dead at 92](https://news.yahoo.com/don-laughlin-resort-casino-owner-205200329.html)
 <!-- feed end -->
 
 ### Onstream
