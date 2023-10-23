@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Lindsey Graham Screams at Newsmax Reporter for Bringing Up Tlaib in Israel Briefing](https://news.yahoo.com/lindsey-graham-screams-newsmax-reporter-183048652.html)
-- Oct 23 - [Arrest Made After 11-Year-Old Was Struck in Hit-and-Run: Cops](https://news.yahoo.com/arrest-made-11-old-struck-175603631.html)
-- Oct 23 - [Mark Cuban And A Guest Shark Hope To Hit A Home Run With Investment In 8-Year-Old's Baseball Glove Startup](https://finance.yahoo.com/news/mark-cuban-guest-shark-hope-171814067.html)
-- Oct 23 - [Elon Musk's Intense Obsession With A Video Game Influenced His Business Strategies, Caused Fights In His Relationship And Served As A Reminder Every Move Matters: 'You Only Get A Set Number Of Turns In Life'](https://finance.yahoo.com/news/elon-musks-intense-obsession-video-171328115.html)
-- Oct 23 - [Family files lawsuit against Panera Bread after college student who drank ‘charged lemonade’ dies](https://news.yahoo.com/family-files-lawsuit-against-panera-164537746.html)
+- Oct 23 - [Pentagon rushes defenses and advisers to Middle East as Israel's ground assault in Gaza looms](https://news.yahoo.com/pentagon-rushes-defenses-advisers-middle-193849600.html)
+- Oct 23 - [Another GOP ‘Bombshell’ About Joe Biden Turns Out To Be A Dud](https://news.yahoo.com/another-gop-bombshell-joe-biden-191107999.html)
+- Oct 23 - [Israelis release footage of Hamas gunmen firing at driving civilians](https://news.yahoo.com/israelis-release-footage-hamas-gunmen-190736191.html)
+- Oct 23 - [14-year-old who invented soap to treat skin cancer named America’s Top Young Scientist](https://news.yahoo.com/14-old-invented-soap-treat-190640168.html)
+- Oct 23 - ['Mr. Trump May Lie, But Numbers Don't Lie' — Attorney General Says Trump Can Rant And Rave All He Wants, But It Doesn't Change That His Entire Empire Was Built On A Lie](https://finance.yahoo.com/news/mr-trump-may-lie-numbers-185232068.html)
 <!-- feed end -->
 
 ### Onstream
