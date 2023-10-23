@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [Critics Bring The Receipts Over Trump's New Claim About Sidney Powell](https://news.yahoo.com/critics-bring-receipts-over-trumps-120227556.html)
 - Oct 23 - [Kremlin, asked about damaged Baltic pipeline, says threats to Russia 'unacceptable'](https://news.yahoo.com/kremlin-asked-damaged-baltic-pipeline-104647318.html)
-- Oct 23 - [Kremlin says U.S. can't build 'new world order' that Biden spoke of](https://news.yahoo.com/kremlin-says-u-cant-build-103149995.html)
 - Oct 23 - [Why you should carefully consider what Jamie Dimon, Elon Musk and American Express just told the investing world](https://finance.yahoo.com/news/why-you-should-carefully-consider-what-jamie-dimon-elon-musk-and-american-express-just-told-the-investing-world-100045205.html)
+- Oct 23 - [West Virginia University Is Everything That’s Wrong With Higher Education Today](https://news.yahoo.com/west-virginia-university-everything-wrong-100000228.html)
 - Oct 23 - [Trump Claims He Never Spoke to Billionaire ‘Red Haired Weirdo’ About Nuke Subs](https://news.yahoo.com/trump-claims-never-spoke-billionaire-092245642.html)
-- Oct 23 - [US renews warning it will defend treaty ally Philippines after Chinese ships rammed Manila vessels](https://news.yahoo.com/us-renews-warning-defend-treaty-083353410.html)
 <!-- feed end -->
 
 ### Onstream
