@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [Lindsey Graham Screams at Newsmax Reporter for Bringing Up Tlaib in Israel Briefing](https://news.yahoo.com/lindsey-graham-screams-newsmax-reporter-183048652.html)
+- Oct 23 - [Arrest Made After 11-Year-Old Was Struck in Hit-and-Run: Cops](https://news.yahoo.com/arrest-made-11-old-struck-175603631.html)
+- Oct 23 - [Mark Cuban And A Guest Shark Hope To Hit A Home Run With Investment In 8-Year-Old's Baseball Glove Startup](https://finance.yahoo.com/news/mark-cuban-guest-shark-hope-171814067.html)
 - Oct 23 - [Elon Musk's Intense Obsession With A Video Game Influenced His Business Strategies, Caused Fights In His Relationship And Served As A Reminder Every Move Matters: 'You Only Get A Set Number Of Turns In Life'](https://finance.yahoo.com/news/elon-musks-intense-obsession-video-171328115.html)
 - Oct 23 - [Family files lawsuit against Panera Bread after college student who drank ‘charged lemonade’ dies](https://news.yahoo.com/family-files-lawsuit-against-panera-164537746.html)
-- Oct 23 - [Israel Shows Raw Footage of Hamas Atrocities to Journalists](https://www.yahoo.com/entertainment/israel-shows-raw-footage-hamas-162925865.html)
-- Oct 23 - [Off-Duty Pilot Allegedly Tried to Kill the Engines on Alaska Airlines Flight](https://www.yahoo.com/lifestyle/off-duty-pilot-allegedly-tried-161944316.html)
-- Oct 23 - [3 Men Disappear During Fishing Trip Off Georgia Coast: 'We Are Sick to Our Stomachs,' Family Says](https://www.yahoo.com/entertainment/3-men-disappear-during-fishing-160025955.html)
 <!-- feed end -->
 
 ### Onstream
