@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Family of American hostages freed by Hamas speak out: 'It is not the end'](https://www.yahoo.com/gma/family-american-hostages-freed-hamas-121604336.html)
-- Oct 23 - [Critics Bring The Receipts Over Trump's New Claim About Sidney Powell](https://news.yahoo.com/critics-bring-receipts-over-trumps-120227556.html)
-- Oct 23 - [Kremlin, asked about damaged Baltic pipeline, says threats to Russia 'unacceptable'](https://news.yahoo.com/kremlin-asked-damaged-baltic-pipeline-104647318.html)
-- Oct 23 - [Dashcam footage captures instant karma moment for obnoxious truck driver: ‘That was so satisfying to see’](https://www.yahoo.com/lifestyle/dashcam-footage-captures-instant-karma-053000507.html)
-- Oct 23 - [Why you should carefully consider what Jamie Dimon, Elon Musk and American Express just told the investing world](https://finance.yahoo.com/news/why-you-should-carefully-consider-what-jamie-dimon-elon-musk-and-american-express-just-told-the-investing-world-100045205.html)
+- Oct 23 - [Bolivian officials seek 30-year prison sentence for former president Anez](https://news.yahoo.com/bolivian-officials-seek-30-prison-135227632.html)
+- Oct 23 - [GOP Lawmaker Goes To Town On Matt Gaetz And His Allies In Snark-Filled Letter](https://news.yahoo.com/gop-lawmaker-goes-town-matt-134144796.html)
+- Oct 23 - [Navy ends tradition of Chinese laundrymen on warships over spying fears](https://news.yahoo.com/navy-ends-tradition-chinese-laundrymen-133143001.html)
+- Oct 23 - [Trump Plots to Pull Out of NATO — If He Doesn’t Get His Way](https://news.yahoo.com/trump-plots-pull-nato-doesn-130000410.html)
+- Oct 23 - [Utah Officials Tell Resident To Strip Naughty Halloween Display From City Property](https://news.yahoo.com/utah-officials-tell-homeowner-strip-122825297.html)
 <!-- feed end -->
 
 ### Onstream
