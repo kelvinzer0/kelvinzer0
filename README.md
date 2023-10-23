@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [Philippines tells China to stop provocative actions in South China Sea](https://news.yahoo.com/philippines-tells-china-stop-provocative-015832982.html)
 - Oct 23 - [ABC’s Jonathan Karl Shuts Tim Scott Down for Saying Biden Is ‘Complicit’ in Hamas Attack: ‘Beyond the Pale’ (Video)](https://www.yahoo.com/entertainment/abc-jonathan-karl-shuts-tim-011035743.html)
 - Oct 22 - [Teens terrorizing Long Beach apartment complex, residents say](https://news.yahoo.com/teens-terrorizing-long-beach-apartment-234528380.html)
 - Oct 22 - [Israel strikes Gaza, Lebanon overnight; Netanyahu convenes generals](https://news.yahoo.com/israel-strikes-gaza-lebanon-overnight-232634406.html)
 - Oct 22 - [Footage of Tesla Cybertruck’s steering sparks polarized reactions online ahead of release: ‘Weird to iconic’](https://news.yahoo.com/footage-tesla-cybertruck-steering-sparks-210000145.html)
-- Oct 22 - [Israeli nuclear capability could be ultimate deterrence for Iran: Chuck Nash](https://news.yahoo.com/israeli-nuclear-capability-could-ultimate-205935357.html)
 <!-- feed end -->
 
 ### Onstream
