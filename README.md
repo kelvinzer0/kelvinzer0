@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 23 - [Family files lawsuit against Panera Bread after college student who drank ‘charged lemonade’ dies](https://news.yahoo.com/family-files-lawsuit-against-panera-164537746.html)
+- Oct 23 - [California man charged with murder of 11-year-old son gets prison for sexually exploiting girl](https://news.yahoo.com/california-man-charged-murder-11-204025640.html)
 - Oct 23 - [US court challenges Trump appeal in rape accuser E. Jean Carroll's case](https://news.yahoo.com/us-court-challenges-trump-appeal-201311878.html)
 - Oct 23 - [Sarah Huckabee Sanders Gets Dragged for Banning ‘Woke Nonsense’ in State Docs: ‘She’s a Joke’](https://www.yahoo.com/entertainment/sarah-huckabee-sanders-gets-dragged-200558491.html)
-- Oct 23 - [China's fighter jet fleet is growing in size and appears to have made a big jump in capability, new Pentagon report shows](https://news.yahoo.com/chinas-fighter-jet-fleet-growing-193107491.html)
 - Oct 23 - [Another GOP ‘Bombshell’ About Joe Biden Turns Out To Be A Dud](https://news.yahoo.com/another-gop-bombshell-joe-biden-191107999.html)
 <!-- feed end -->
 
