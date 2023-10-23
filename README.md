@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [House speaker race continues as global aid left hanging](https://finance.yahoo.com/video/house-speaker-race-continues-global-155335125.html)
-- Oct 23 - [Why Nvidia's hold on the AI chip market may soon fold](https://finance.yahoo.com/video/why-nvidias-hold-ai-chip-152406471.html)
-- Oct 23 - [UAW blindsides Stellantis as 6,800 workers strike Sterling Heights — which builds Ram trucks](https://www.autoblog.com/2023/10/23/uaw-blindsides-stellantis-as-6800-workers-strike-sterling-heights-which-builds-ram-trucks/)
-- Oct 23 - [He jumped out of a stolen car after a chase with Florida cops. Then he began to rise](https://news.yahoo.com/jumped-stolen-car-chase-florida-145148650.html)
-- Oct 23 - [Leaked Audio Recordings Show the Disturbing Way Donald Trump Wanted to Show Off Melania to His Friends](https://www.yahoo.com/entertainment/leaked-audio-recordings-show-disturbing-143400822.html)
+- Oct 23 - [Highlights From Relive The SpaceX Falcon Heavy Launch Of NASA's Psyche Mission](https://news.yahoo.com/highlights-relive-spacex-falcon-heavy-163000881.html)
+- Oct 23 - [Israel Shows Raw Footage of Hamas Atrocities to Journalists](https://www.yahoo.com/entertainment/israel-shows-raw-footage-hamas-162925865.html)
+- Oct 23 - [Off-Duty Pilot Allegedly Tried to Kill the Engines on Alaska Airlines Flight](https://www.yahoo.com/lifestyle/off-duty-pilot-allegedly-tried-161944316.html)
+- Oct 23 - [3 Men Disappear During Fishing Trip Off Georgia Coast: 'We Are Sick to Our Stomachs,' Family Says](https://www.yahoo.com/entertainment/3-men-disappear-during-fishing-160025955.html)
+- Oct 23 - [Elon Musk Worked At A Bank Making $14 Per Hour — This Led Him To The Conclusion That 'Bankers Are Rich And Dumb' And Only Copy Each Other](https://finance.yahoo.com/news/elon-musk-worked-bank-making-155211861.html)
 <!-- feed end -->
 
 ### Onstream
