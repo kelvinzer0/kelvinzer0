@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Pentagon rushes defenses and advisers to Middle East as Israel's ground assault in Gaza looms](https://news.yahoo.com/pentagon-rushes-defenses-advisers-middle-193849600.html)
+- Oct 23 - [Family files lawsuit against Panera Bread after college student who drank ‘charged lemonade’ dies](https://news.yahoo.com/family-files-lawsuit-against-panera-164537746.html)
+- Oct 23 - [US court challenges Trump appeal in rape accuser E. Jean Carroll's case](https://news.yahoo.com/us-court-challenges-trump-appeal-201311878.html)
+- Oct 23 - [Sarah Huckabee Sanders Gets Dragged for Banning ‘Woke Nonsense’ in State Docs: ‘She’s a Joke’](https://www.yahoo.com/entertainment/sarah-huckabee-sanders-gets-dragged-200558491.html)
+- Oct 23 - [China's fighter jet fleet is growing in size and appears to have made a big jump in capability, new Pentagon report shows](https://news.yahoo.com/chinas-fighter-jet-fleet-growing-193107491.html)
 - Oct 23 - [Another GOP ‘Bombshell’ About Joe Biden Turns Out To Be A Dud](https://news.yahoo.com/another-gop-bombshell-joe-biden-191107999.html)
-- Oct 23 - [Israelis release footage of Hamas gunmen firing at driving civilians](https://news.yahoo.com/israelis-release-footage-hamas-gunmen-190736191.html)
-- Oct 23 - [14-year-old who invented soap to treat skin cancer named America’s Top Young Scientist](https://news.yahoo.com/14-old-invented-soap-treat-190640168.html)
-- Oct 23 - ['Mr. Trump May Lie, But Numbers Don't Lie' — Attorney General Says Trump Can Rant And Rave All He Wants, But It Doesn't Change That His Entire Empire Was Built On A Lie](https://finance.yahoo.com/news/mr-trump-may-lie-numbers-185232068.html)
 <!-- feed end -->
 
 ### Onstream
