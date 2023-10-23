@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Bolivian officials seek 30-year prison sentence for former president Anez](https://news.yahoo.com/bolivian-officials-seek-30-prison-135227632.html)
+- Oct 23 - [Leaked Audio Recordings Show the Disturbing Way Donald Trump Wanted to Show Off Melania to His Friends](https://www.yahoo.com/entertainment/leaked-audio-recordings-show-disturbing-143400822.html)
+- Oct 23 - [Turkey's president submits protocol for Sweden's admission into NATO to parliament for ratification](https://news.yahoo.com/turkeys-president-submits-protocol-swedens-142025170.html)
+- Oct 23 - [Where Jamie Dimon, Elon Musk stand on the U.S. economy](https://finance.yahoo.com/video/where-jamie-dimon-elon-musk-141217790.html)
+- Oct 23 - [Exclusive-Lockheed exits US Air Force tanker competition; lifting Boeing's KC-46](https://finance.yahoo.com/news/exclusive-lockheed-exits-us-air-135218736.html)
 - Oct 23 - [GOP Lawmaker Goes To Town On Matt Gaetz And His Allies In Snark-Filled Letter](https://news.yahoo.com/gop-lawmaker-goes-town-matt-134144796.html)
-- Oct 23 - [Navy ends tradition of Chinese laundrymen on warships over spying fears](https://news.yahoo.com/navy-ends-tradition-chinese-laundrymen-133143001.html)
-- Oct 23 - [Trump Plots to Pull Out of NATO — If He Doesn’t Get His Way](https://news.yahoo.com/trump-plots-pull-nato-doesn-130000410.html)
-- Oct 23 - [Utah Officials Tell Resident To Strip Naughty Halloween Display From City Property](https://news.yahoo.com/utah-officials-tell-homeowner-strip-122825297.html)
 <!-- feed end -->
 
 ### Onstream
