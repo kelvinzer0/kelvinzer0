@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [Kremlin, asked about damaged Baltic pipeline, says threats to Russia 'unacceptable'](https://news.yahoo.com/kremlin-asked-damaged-baltic-pipeline-104647318.html)
+- Oct 23 - [Kremlin says U.S. can't build 'new world order' that Biden spoke of](https://news.yahoo.com/kremlin-says-u-cant-build-103149995.html)
+- Oct 23 - [Why you should carefully consider what Jamie Dimon, Elon Musk and American Express just told the investing world](https://finance.yahoo.com/news/why-you-should-carefully-consider-what-jamie-dimon-elon-musk-and-american-express-just-told-the-investing-world-100045205.html)
 - Oct 23 - [Trump Claims He Never Spoke to Billionaire ‘Red Haired Weirdo’ About Nuke Subs](https://news.yahoo.com/trump-claims-never-spoke-billionaire-092245642.html)
 - Oct 23 - [US renews warning it will defend treaty ally Philippines after Chinese ships rammed Manila vessels](https://news.yahoo.com/us-renews-warning-defend-treaty-083353410.html)
-- Oct 23 - [Hamas says its fighters engaged Israeli force infiltrating Gaza](https://news.yahoo.com/hamas-says-fighters-engaged-israeli-083307978.html)
-- Oct 23 - [A price cap on Russian oil aims to starve Putin of cash. But it's largely been untested. Until now](https://news.yahoo.com/price-cap-russian-oil-aims-062824514.html)
-- Oct 23 - [Ex-GOP Congressman Delivers Damning News About Next House Speaker](https://news.yahoo.com/ex-gop-congressman-delivers-damning-062308343.html)
 <!-- feed end -->
 
 ### Onstream
