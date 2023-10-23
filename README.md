@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 23 - [ABC’s Jonathan Karl Shuts Tim Scott Down for Saying Biden Is ‘Complicit’ in Hamas Attack: ‘Beyond the Pale’ (Video)](https://www.yahoo.com/entertainment/abc-jonathan-karl-shuts-tim-011035743.html)
-- Oct 23 - [China says outlook worrisome as conflict spreads in Middle East - state media](https://news.yahoo.com/china-says-outlook-worrisome-conflict-001758511.html)
 - Oct 22 - [Teens terrorizing Long Beach apartment complex, residents say](https://news.yahoo.com/teens-terrorizing-long-beach-apartment-234528380.html)
 - Oct 22 - [Israel strikes Gaza, Lebanon overnight; Netanyahu convenes generals](https://news.yahoo.com/israel-strikes-gaza-lebanon-overnight-232634406.html)
-- Oct 22 - [California man released from prison 7 weeks prior, and daughter arrested for involvement in murder over Rolex](https://news.yahoo.com/california-man-released-prison-7-214100542.html)
+- Oct 22 - [Footage of Tesla Cybertruck’s steering sparks polarized reactions online ahead of release: ‘Weird to iconic’](https://news.yahoo.com/footage-tesla-cybertruck-steering-sparks-210000145.html)
+- Oct 22 - [Israeli nuclear capability could be ultimate deterrence for Iran: Chuck Nash](https://news.yahoo.com/israeli-nuclear-capability-could-ultimate-205935357.html)
 <!-- feed end -->
 
 ### Onstream
