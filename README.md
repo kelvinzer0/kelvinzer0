@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 22 - [Elon Musk Says He’ll Give Wikipedia $1 Billion if They Change Their Name to D*ckipedia](https://www.yahoo.com/entertainment/elon-musk-says-ll-wikipedia-222531368.html)
-- Oct 22 - [China, Philippines boats clash in South China Sea](https://news.yahoo.com/china-philippines-boats-clash-south-220129960.html)
+- Oct 22 - [California man released from prison 7 weeks prior, and daughter arrested for involvement in murder over Rolex](https://news.yahoo.com/california-man-released-prison-7-214100542.html)
 - Oct 22 - [‘I was just covered in blood.’ Videos show shooting at Myrtle Beach-area truck meet](https://news.yahoo.com/just-covered-blood-videos-show-211039085.html)
+- Oct 22 - [Footage of Tesla Cybertruck’s steering sparks polarized reactions online ahead of release: ‘Weird to iconic’](https://news.yahoo.com/footage-tesla-cybertruck-steering-sparks-210000145.html)
 - Oct 22 - [Man injured in shooting calls wife to pick him up then dies at airport, Texas cops say](https://news.yahoo.com/man-injured-shooting-calls-wife-204433906.html)
-- Oct 22 - [Gingrich says House GOP poses ‘very real danger’ of electing Speaker, then going ‘back into the same mess’](https://news.yahoo.com/gingrich-says-house-gop-poses-202918747.html)
+- Oct 22 - [Tesla 'digs its own grave with the Cybertruck,' Convoy collapses and Rivian scores a win at Rebelle](https://news.yahoo.com/tesla-digs-own-grave-cybertruck-191529131.html)
 <!-- feed end -->
 
 ### Onstream
