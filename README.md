@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 23 - [A price cap on Russian oil aims to starve Putin of cash. But it's largely been untested. Until now](https://news.yahoo.com/price-cap-russian-oil-aims-062824514.html)
-- Oct 23 - [A woman who's lived on cruise ships for over 10 years shared 2 things she's not allowed to do on board](https://news.yahoo.com/woman-whos-lived-cruise-ships-050400556.html)
+- Oct 23 - [Ex-GOP Congressman Delivers Damning News About Next House Speaker](https://news.yahoo.com/ex-gop-congressman-delivers-damning-062308343.html)
 - Oct 23 - [This procedure is banned in the US. Why is it a hot topic in fight over Ohio's abortion amendment?](https://news.yahoo.com/procedure-banned-us-why-hot-040405212.html)
 - Oct 23 - [Philippines labels China as an 'aggressor' fanning tensions in the South China Sea](https://news.yahoo.com/philippines-tells-china-stop-provocative-015832982.html)
 - Oct 23 - [ABC’s Jonathan Karl Shuts Tim Scott Down for Saying Biden Is ‘Complicit’ in Hamas Attack: ‘Beyond the Pale’ (Video)](https://www.yahoo.com/entertainment/abc-jonathan-karl-shuts-tim-011035743.html)
