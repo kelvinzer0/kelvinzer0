@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [Family of American hostages freed by Hamas speak out: 'It is not the end'](https://www.yahoo.com/gma/family-american-hostages-freed-hamas-121604336.html)
 - Oct 23 - [Critics Bring The Receipts Over Trump's New Claim About Sidney Powell](https://news.yahoo.com/critics-bring-receipts-over-trumps-120227556.html)
 - Oct 23 - [Kremlin, asked about damaged Baltic pipeline, says threats to Russia 'unacceptable'](https://news.yahoo.com/kremlin-asked-damaged-baltic-pipeline-104647318.html)
+- Oct 23 - [Dashcam footage captures instant karma moment for obnoxious truck driver: ‘That was so satisfying to see’](https://www.yahoo.com/lifestyle/dashcam-footage-captures-instant-karma-053000507.html)
 - Oct 23 - [Why you should carefully consider what Jamie Dimon, Elon Musk and American Express just told the investing world](https://finance.yahoo.com/news/why-you-should-carefully-consider-what-jamie-dimon-elon-musk-and-american-express-just-told-the-investing-world-100045205.html)
-- Oct 23 - [West Virginia University Is Everything That’s Wrong With Higher Education Today](https://news.yahoo.com/west-virginia-university-everything-wrong-100000228.html)
-- Oct 23 - [Trump Claims He Never Spoke to Billionaire ‘Red Haired Weirdo’ About Nuke Subs](https://news.yahoo.com/trump-claims-never-spoke-billionaire-092245642.html)
 <!-- feed end -->
 
 ### Onstream
