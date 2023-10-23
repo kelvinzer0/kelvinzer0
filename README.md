@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [Trump Claims He Never Spoke to Billionaire ‘Red Haired Weirdo’ About Nuke Subs](https://news.yahoo.com/trump-claims-never-spoke-billionaire-092245642.html)
 - Oct 23 - [US renews warning it will defend treaty ally Philippines after Chinese ships rammed Manila vessels](https://news.yahoo.com/us-renews-warning-defend-treaty-083353410.html)
 - Oct 23 - [Hamas says its fighters engaged Israeli force infiltrating Gaza](https://news.yahoo.com/hamas-says-fighters-engaged-israeli-083307978.html)
 - Oct 23 - [A price cap on Russian oil aims to starve Putin of cash. But it's largely been untested. Until now](https://news.yahoo.com/price-cap-russian-oil-aims-062824514.html)
 - Oct 23 - [Ex-GOP Congressman Delivers Damning News About Next House Speaker](https://news.yahoo.com/ex-gop-congressman-delivers-damning-062308343.html)
-- Oct 23 - [ABC’s Jonathan Karl Shuts Tim Scott Down for Saying Biden Is ‘Complicit’ in Hamas Attack: ‘Beyond the Pale’ (Video)](https://www.yahoo.com/entertainment/abc-jonathan-karl-shuts-tim-011035743.html)
 <!-- feed end -->
 
 ### Onstream
