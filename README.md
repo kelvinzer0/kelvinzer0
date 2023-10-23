@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Highlights From Relive The SpaceX Falcon Heavy Launch Of NASA's Psyche Mission](https://news.yahoo.com/highlights-relive-spacex-falcon-heavy-163000881.html)
+- Oct 23 - [Elon Musk's Intense Obsession With A Video Game Influenced His Business Strategies, Caused Fights In His Relationship And Served As A Reminder Every Move Matters: 'You Only Get A Set Number Of Turns In Life'](https://finance.yahoo.com/news/elon-musks-intense-obsession-video-171328115.html)
+- Oct 23 - [Family files lawsuit against Panera Bread after college student who drank ‘charged lemonade’ dies](https://news.yahoo.com/family-files-lawsuit-against-panera-164537746.html)
 - Oct 23 - [Israel Shows Raw Footage of Hamas Atrocities to Journalists](https://www.yahoo.com/entertainment/israel-shows-raw-footage-hamas-162925865.html)
 - Oct 23 - [Off-Duty Pilot Allegedly Tried to Kill the Engines on Alaska Airlines Flight](https://www.yahoo.com/lifestyle/off-duty-pilot-allegedly-tried-161944316.html)
 - Oct 23 - [3 Men Disappear During Fishing Trip Off Georgia Coast: 'We Are Sick to Our Stomachs,' Family Says](https://www.yahoo.com/entertainment/3-men-disappear-during-fishing-160025955.html)
-- Oct 23 - [Elon Musk Worked At A Bank Making $14 Per Hour — This Led Him To The Conclusion That 'Bankers Are Rich And Dumb' And Only Copy Each Other](https://finance.yahoo.com/news/elon-musk-worked-bank-making-155211861.html)
 <!-- feed end -->
 
 ### Onstream
