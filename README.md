@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [House speaker race continues as global aid left hanging](https://finance.yahoo.com/video/house-speaker-race-continues-global-155335125.html)
+- Oct 23 - [Why Nvidia's hold on the AI chip market may soon fold](https://finance.yahoo.com/video/why-nvidias-hold-ai-chip-152406471.html)
+- Oct 23 - [UAW blindsides Stellantis as 6,800 workers strike Sterling Heights — which builds Ram trucks](https://www.autoblog.com/2023/10/23/uaw-blindsides-stellantis-as-6800-workers-strike-sterling-heights-which-builds-ram-trucks/)
+- Oct 23 - [He jumped out of a stolen car after a chase with Florida cops. Then he began to rise](https://news.yahoo.com/jumped-stolen-car-chase-florida-145148650.html)
 - Oct 23 - [Leaked Audio Recordings Show the Disturbing Way Donald Trump Wanted to Show Off Melania to His Friends](https://www.yahoo.com/entertainment/leaked-audio-recordings-show-disturbing-143400822.html)
-- Oct 23 - [Turkey's president submits protocol for Sweden's admission into NATO to parliament for ratification](https://news.yahoo.com/turkeys-president-submits-protocol-swedens-142025170.html)
-- Oct 23 - [Where Jamie Dimon, Elon Musk stand on the U.S. economy](https://finance.yahoo.com/video/where-jamie-dimon-elon-musk-141217790.html)
-- Oct 23 - [Exclusive-Lockheed exits US Air Force tanker competition; lifting Boeing's KC-46](https://finance.yahoo.com/news/exclusive-lockheed-exits-us-air-135218736.html)
-- Oct 23 - [GOP Lawmaker Goes To Town On Matt Gaetz And His Allies In Snark-Filled Letter](https://news.yahoo.com/gop-lawmaker-goes-town-matt-134144796.html)
 <!-- feed end -->
 
 ### Onstream
