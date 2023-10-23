@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 23 - [ABC’s Jonathan Karl Shuts Tim Scott Down for Saying Biden Is ‘Complicit’ in Hamas Attack: ‘Beyond the Pale’ (Video)](https://www.yahoo.com/entertainment/abc-jonathan-karl-shuts-tim-011035743.html)
+- Oct 23 - [China says outlook worrisome as conflict spreads in Middle East - state media](https://news.yahoo.com/china-says-outlook-worrisome-conflict-001758511.html)
+- Oct 22 - [Teens terrorizing Long Beach apartment complex, residents say](https://news.yahoo.com/teens-terrorizing-long-beach-apartment-234528380.html)
+- Oct 22 - [Israel strikes Gaza, Lebanon overnight; Netanyahu convenes generals](https://news.yahoo.com/israel-strikes-gaza-lebanon-overnight-232634406.html)
 - Oct 22 - [California man released from prison 7 weeks prior, and daughter arrested for involvement in murder over Rolex](https://news.yahoo.com/california-man-released-prison-7-214100542.html)
-- Oct 22 - [‘I was just covered in blood.’ Videos show shooting at Myrtle Beach-area truck meet](https://news.yahoo.com/just-covered-blood-videos-show-211039085.html)
-- Oct 22 - [Footage of Tesla Cybertruck’s steering sparks polarized reactions online ahead of release: ‘Weird to iconic’](https://news.yahoo.com/footage-tesla-cybertruck-steering-sparks-210000145.html)
-- Oct 22 - [Man injured in shooting calls wife to pick him up then dies at airport, Texas cops say](https://news.yahoo.com/man-injured-shooting-calls-wife-204433906.html)
-- Oct 22 - [Tesla 'digs its own grave with the Cybertruck,' Convoy collapses and Rivian scores a win at Rebelle](https://news.yahoo.com/tesla-digs-own-grave-cybertruck-191529131.html)
 <!-- feed end -->
 
 ### Onstream
