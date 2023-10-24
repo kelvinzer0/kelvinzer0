@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 24 - [Jenna Ellis becomes latest Trump lawyer to plead guilty over efforts to overturn Georgia's election](https://news.yahoo.com/jenna-ellis-becomes-latest-trump-134539125.html)
+- Oct 24 - [A Jan. 6 conviction was upheld on appeal. Why this particular ruling could affect Trump's case.](https://news.yahoo.com/jan-6-conviction-upheld-appeal-133121933.html)
 - Oct 24 - [A woman says she was one of 3 people kicked off a Southwest Airlines flight over an incident that started with a dog on board](https://news.yahoo.com/viral-video-claims-passenger-got-042159627.html)
-- Oct 24 - [Moscow denies reports Vladimir Putin suffered a heart attack](https://news.yahoo.com/moscow-denies-reports-vladimir-putin-120139859.html)
-- Oct 24 - [Video shows venomous snake’s angry reaction to being snatched from pipe in Australia](https://news.yahoo.com/video-shows-venomous-snake-angry-112805330.html)
-- Oct 24 - [China announces the removal of defense minister missing for almost 2 months with little explanation](https://news.yahoo.com/china-announces-removal-defense-minister-112100366.html)
-- Oct 24 - [‘One of the worst financial products alive today': Dave Ramsey blasted this one specific investing approach when a concerned Arizona dad called in — why you should avoid it like the plague](https://finance.yahoo.com/news/one-worst-financial-products-alive-103000138.html)
+- Oct 24 - [Washington state senator arrested after landing at Hong Kong airport with unregistered gun](https://news.yahoo.com/washington-state-senator-arrested-landing-122452433.html)
+- Oct 24 - [Anderson Cooper had a realization about a hostage during a live interview with his parents](https://news.yahoo.com/anderson-cooper-shares-footage-obtained-041901345.html)
 <!-- feed end -->
 
 ### Onstream
