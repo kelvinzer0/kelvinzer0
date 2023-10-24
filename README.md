@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Finland retrieves anchor from seabed near broken gas pipeline](https://news.yahoo.com/finland-retrieves-anchor-seabed-near-143627035.html)
-- Oct 24 - [Manchester man who arranged to rape 12-week-old baby jailed](https://news.yahoo.com/manchester-man-arranged-rape-12-141711595.html)
-- Oct 24 - [Ex-Trump Lawyer Jenna Ellis Cries as She Cops a Plea](https://news.yahoo.com/ex-trump-lawyer-jenna-ellis-134313880.html)
-- Oct 24 - [A Jan. 6 conviction was upheld on appeal. Why this particular ruling could affect Trump's case.](https://news.yahoo.com/jan-6-conviction-upheld-appeal-133121933.html)
-- Oct 24 - [A woman says she was one of 3 people kicked off a Southwest Airlines flight over an incident that started with a dog on board](https://news.yahoo.com/viral-video-claims-passenger-got-042159627.html)
+- Oct 24 - [Erdogan to Putin: Western 'silence' worsening humanitarian situation in Gaza](https://news.yahoo.com/erdogan-putin-western-silence-worsening-154630951.html)
+- Oct 24 - [Trump's lawyers demand fraud trial stopped because of a COVID-19 risk — but none are wearing masks in court](https://news.yahoo.com/trumps-lawyers-demand-fraud-trial-145509252.html)
+- Oct 24 - [Finland says gas pipeline likely broken by ship dragging anchor](https://news.yahoo.com/finland-retrieves-anchor-seabed-near-143627035.html)
+- Oct 24 - [UAW expands strike against GM, walking out of Texas SUV plant](https://finance.yahoo.com/news/uaw-expands-strike-against-gm-142242949.html)
+- Oct 24 - [More details emerge after off-duty pilot allegedly tried to shut off engines on Alaska Airlines flight](https://www.yahoo.com/gma/more-details-emerge-off-duty-134800052.html)
 <!-- feed end -->
 
 ### Onstream
