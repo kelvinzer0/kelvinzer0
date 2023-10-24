@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 24 - [Ex-Chief of Staff Mark Meadows granted immunity, tells special counsel he warned Trump about 2020 claims: Sources](https://www.yahoo.com/gma/ex-chief-staff-mark-meadows-204651497.html)
-- Oct 24 - [Tom Emmer Drops Speaker Bid After Trump Knifes Him](https://news.yahoo.com/tom-emmer-drops-speaker-bid-203606960.html)
-- Oct 24 - [Jim Jordan didn't flunk bar exam; Hakeem Jeffries was not Rhodes scholar | Fact check](https://news.yahoo.com/jim-jordan-didnt-flunk-bar-201018322.html)
-- Oct 24 - [Virginia GOP mails voters explicit flyers on Democrat Susanna Gibson](https://news.yahoo.com/virginia-gop-mails-voters-explicit-195335718.html)
 - Oct 24 - [Pilot who allegedly tried to shut off engines hadn't slept in 40 hours: Authorities](https://www.yahoo.com/gma/more-details-emerge-off-duty-134800052.html)
+- Oct 24 - [Police release body camera footage from Chris Olave arrest](https://sports.yahoo.com/police-release-body-camera-footage-213114817.html)
+- Oct 24 - [Former White House Chief of Staff Meadows granted immunity in Jan 6 case -ABC News](https://news.yahoo.com/former-white-house-chief-staff-211411255.html)
+- Oct 24 - [Boyfriend of Alicia Navarro, teen found 4 years after vanishing, charged with child sexual abuse](https://news.yahoo.com/boyfriend-alicia-navarro-teen-found-205502879.html)
 <!-- feed end -->
 
 ### Onstream
