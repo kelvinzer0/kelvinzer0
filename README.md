@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Georgia prosecutors are picking up cooperators in Trump election case. Will it matter?](https://news.yahoo.com/georgia-prosecutors-picking-cooperators-trump-042649467.html)
+- Oct 24 - [A viral video claims a passenger got kicked off a Southwest flight after petting her dog on board](https://news.yahoo.com/viral-video-claims-passenger-got-042159627.html)
+- Oct 24 - [Tennessee GOP is willing to reject millions in funding, if it avoids complying with federal strings](https://news.yahoo.com/tennessee-gop-willing-reject-millions-041919365.html)
 - Oct 24 - [Fact check: Trump falsely claims the US had no terrorist attacks during his presidency](https://news.yahoo.com/fact-check-trump-falsely-claims-001507573.html)
 - Oct 24 - [Tensions between Trump and RNC spill over into public view](https://news.yahoo.com/tensions-between-trump-rnc-spill-010142584.html)
 - Oct 24 - [Sexual assault of woman by homeless man in Long Beach caught on camera](https://news.yahoo.com/sexual-assault-woman-homeless-man-001935319.html)
-- Oct 23 - [Trump is 'a jerk. Nobody likes him': 3 reasons New Hampshire voters are sticking with him](https://news.yahoo.com/trump-jerk-nobody-likes-him-235357262.html)
 <!-- feed end -->
 
 ### Onstream
