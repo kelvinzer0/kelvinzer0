@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 23 - [Trump Falsely Claims He 'Was Never Indicted' Despite Being Indicted 4 Times](https://news.yahoo.com/trump-falsely-claims-never-indicted-224111700.html)
-- Oct 23 - [Foreign Reporters Burst Into Tears During IDF Screening of Hamas’ Atrocities](https://news.yahoo.com/foreign-reporters-burst-tears-during-215231538.html)
-- Oct 23 - [Missing Man Found Alive With McDonald's Biscuit](https://news.yahoo.com/missing-man-found-alive-mcdonalds-210645901.html)
-- Oct 23 - [Family files lawsuit against Panera Bread after college student who drank ‘charged lemonade’ dies](https://news.yahoo.com/family-files-lawsuit-against-panera-164537746.html)
-- Oct 23 - [Don Laughlin, resort-casino owner and architect behind Nevada town, is dead at 92](https://news.yahoo.com/don-laughlin-resort-casino-owner-205200329.html)
+- Oct 23 - [Trump is 'a jerk. Nobody likes him': 3 reasons New Hampshire voters are sticking with him](https://news.yahoo.com/trump-jerk-nobody-likes-him-235357262.html)
+- Oct 23 - [The New York Times’ Mea Culpa on the Gaza Hospital Explosion Is Too Little, Too Late](https://news.yahoo.com/york-times-mea-culpa-gaza-231025482.html)
+- Oct 23 - [Sen. Mitt Romney gets a call from the president during an interview](https://news.yahoo.com/sen-mitt-romney-gets-call-230518027.html)
+- Oct 23 - [Appeals panel questions why 'presidential immunity' argument wasn't pursued years ago in Trump case](https://news.yahoo.com/appeals-panel-questions-why-presidential-225453770.html)
+- Oct 23 - [Window washer who fell from Boston high-rise building identified, remembered as a ‘great person’](https://news.yahoo.com/investigation-underway-person-falls-death-125539119.html)
 <!-- feed end -->
 
 ### Onstream
