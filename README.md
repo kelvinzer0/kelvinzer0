@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 24 - [Four years after fire engulfed California scuba dive boat killing 34 people, captain's trial begins](https://news.yahoo.com/four-years-fire-engulfed-california-070153965.html)
 - Oct 24 - [Trump Files 4 Late Night Motions in Mere Hours Over D.C. Election Case](https://news.yahoo.com/trump-files-4-night-motions-055205201.html)
 - Oct 24 - [A viral video claims a passenger got kicked off a Southwest flight after petting her dog on board](https://news.yahoo.com/viral-video-claims-passenger-got-042159627.html)
 - Oct 24 - [Tennessee GOP is willing to reject millions in funding, if it avoids complying with federal strings](https://news.yahoo.com/tennessee-gop-willing-reject-millions-041919365.html)
 - Oct 24 - [Tensions between Trump and RNC spill over into public view](https://news.yahoo.com/tensions-between-trump-rnc-spill-010142584.html)
-- Oct 24 - [Sexual assault of woman by homeless man in Long Beach caught on camera](https://news.yahoo.com/sexual-assault-woman-homeless-man-001935319.html)
 <!-- feed end -->
 
 ### Onstream
