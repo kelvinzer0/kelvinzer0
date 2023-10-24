@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 24 - [More details emerge after off-duty pilot allegedly tried to shut off engines on Alaska Airlines flight](https://www.yahoo.com/gma/more-details-emerge-off-duty-134800052.html)
+- Oct 24 - [Danny Masterson Branded A ‘Suppressive Person’ After Being EXPELLED From The Church Of Scientology](https://www.yahoo.com/entertainment/danny-masterson-branded-suppressive-person-180002162.html)
+- Oct 24 - [Kyrsten Sinema said she doesn't care if she loses reelection because she 'saved the Senate by myself' and can go serve 'on any board I want to,' book says](https://news.yahoo.com/kyrsten-sinema-said-she-doesnt-174643116.html)
+- Oct 24 - ["A gigantic pool of nos": Dozens of Republicans reject Tom Emmer, GOP's third nominee for speaker](https://news.yahoo.com/gigantic-pool-nos-dozens-republicans-173806819.html)
 - Oct 24 - [Student pilot disables 10 planes after being denied his solo slight, Florida cops say](https://news.yahoo.com/student-pilot-disables-10-planes-173405100.html)
-- Oct 24 - [Runaway Teen Alicia Navarro’s Boyfriend Hit With Child Porn Charges](https://news.yahoo.com/runaway-teen-alicia-navarro-boyfriend-172425299.html)
-- Oct 24 - [GOP Nominates Speaker Dems May Actually Support (And Who Trump Definitely Hates)](https://news.yahoo.com/gop-nominates-speaker-dems-may-163428987.html)
-- Oct 24 - [Michael Cohen's fraud trial bombshell: Trump had me inflate his total assets based on a number he 'arbitrarily' picked](https://news.yahoo.com/michael-cohen-donald-trump-see-162936292.html)
 <!-- feed end -->
 
 ### Onstream
