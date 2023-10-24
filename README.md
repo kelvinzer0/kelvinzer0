@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 24 - [Outlaw militias torch 35 buses in Rio after crime boss is killed](https://news.yahoo.com/outlaw-militias-torch-35-buses-010217827.html)
+- Oct 24 - [Tensions between Trump and RNC spill over into public view](https://news.yahoo.com/tensions-between-trump-rnc-spill-010142584.html)
+- Oct 24 - [Sexual assault of woman by homeless man in Long Beach caught on camera](https://news.yahoo.com/sexual-assault-woman-homeless-man-001935319.html)
+- Oct 24 - [Fact check: Trump falsely claims the US had no terrorist attacks during his presidency](https://news.yahoo.com/fact-check-trump-falsely-claims-001507573.html)
 - Oct 23 - [Trump is 'a jerk. Nobody likes him': 3 reasons New Hampshire voters are sticking with him](https://news.yahoo.com/trump-jerk-nobody-likes-him-235357262.html)
-- Oct 23 - [The New York Times’ Mea Culpa on the Gaza Hospital Explosion Is Too Little, Too Late](https://news.yahoo.com/york-times-mea-culpa-gaza-231025482.html)
-- Oct 23 - [Sen. Mitt Romney gets a call from the president during an interview](https://news.yahoo.com/sen-mitt-romney-gets-call-230518027.html)
-- Oct 23 - [Appeals panel questions why 'presidential immunity' argument wasn't pursued years ago in Trump case](https://news.yahoo.com/appeals-panel-questions-why-presidential-225453770.html)
-- Oct 23 - [Window washer who fell from Boston high-rise building identified, remembered as a ‘great person’](https://news.yahoo.com/investigation-underway-person-falls-death-125539119.html)
 <!-- feed end -->
 
 ### Onstream
