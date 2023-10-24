@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 24 - [Ex-Chief of Staff Mark Meadows granted immunity, tells special counsel he warned Trump about 2020 claims: Sources](https://www.yahoo.com/gma/ex-chief-staff-mark-meadows-204651497.html)
+- Oct 24 - [Mexico deploys 300 National Guard troopers to area where 13 police officers were killed in an ambush](https://news.yahoo.com/mexico-deploys-300-national-guard-220249146.html)
+- Oct 24 - [Israel-Gaza Situation Report: Hamas Frogmen Attempt To Infiltrate Near Israeli Base](https://news.yahoo.com/israel-gaza-situation-report-hamas-215110826.html)
+- Oct 24 - [Sidney Powell pushes claims that 2020 election was rigged and prosecutors 'extorted' her after she pleaded guilty to election interference](https://news.yahoo.com/sidney-powell-pushes-claims-2020-214339386.html)
 - Oct 24 - [Pilot who allegedly tried to shut off engines hadn't slept in 40 hours: Authorities](https://www.yahoo.com/gma/more-details-emerge-off-duty-134800052.html)
-- Oct 24 - [Police release body camera footage from Chris Olave arrest](https://sports.yahoo.com/police-release-body-camera-footage-213114817.html)
-- Oct 24 - [Former White House Chief of Staff Meadows granted immunity in Jan 6 case -ABC News](https://news.yahoo.com/former-white-house-chief-staff-211411255.html)
-- Oct 24 - [Boyfriend of Alicia Navarro, teen found 4 years after vanishing, charged with child sexual abuse](https://news.yahoo.com/boyfriend-alicia-navarro-teen-found-205502879.html)
 <!-- feed end -->
 
 ### Onstream
