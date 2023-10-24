@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 24 - [Ex-Chief of Staff Mark Meadows granted immunity, tells special counsel he warned Trump about 2020 claims: Sources](https://www.yahoo.com/gma/ex-chief-staff-mark-meadows-204651497.html)
+- Oct 24 - [Tom Emmer Drops Speaker Bid After Trump Knifes Him](https://news.yahoo.com/tom-emmer-drops-speaker-bid-203606960.html)
+- Oct 24 - [Jim Jordan didn't flunk bar exam; Hakeem Jeffries was not Rhodes scholar | Fact check](https://news.yahoo.com/jim-jordan-didnt-flunk-bar-201018322.html)
+- Oct 24 - [Virginia GOP mails voters explicit flyers on Democrat Susanna Gibson](https://news.yahoo.com/virginia-gop-mails-voters-explicit-195335718.html)
 - Oct 24 - [Pilot who allegedly tried to shut off engines hadn't slept in 40 hours: Authorities](https://www.yahoo.com/gma/more-details-emerge-off-duty-134800052.html)
-- Oct 24 - [Queen Rania Calls Out CNN in Searing Israel-Gaza Interview](https://news.yahoo.com/queen-rania-calls-cnn-searing-194804659.html)
-- Oct 24 - [A college graduate who just started her first job shared the shock of working a 9-to-5 and was upset by the experience](https://news.yahoo.com/college-graduate-just-started-her-185249035.html)
-- Oct 24 - [Danny Masterson Branded A ‘Suppressive Person’ After Being EXPELLED From The Church Of Scientology](https://www.yahoo.com/entertainment/danny-masterson-branded-suppressive-person-180002162.html)
-- Oct 24 - [Kyrsten Sinema said she doesn't care if she loses reelection because she 'saved the Senate by myself' and can go serve 'on any board I want to,' book says](https://news.yahoo.com/kyrsten-sinema-said-she-doesnt-174643116.html)
 <!-- feed end -->
 
 ### Onstream
