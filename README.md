@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [‘One of the worst financial products alive today': Dave Ramsey blasted this one specific investing approach when a concerned Arizona dad called in — why you should avoid it like the plague](https://finance.yahoo.com/news/one-worst-financial-products-alive-103000138.html)
-- Oct 24 - [‘I went through hell:’ Newly released Hamas hostage describes kidnapping from kibbutz and captivity](https://news.yahoo.com/two-elderly-hostages-freed-hamas-075855095.html)
-- Oct 24 - [Shtorm-Z units are proof of extraordinary troubles in Russian army – UK intelligence](https://news.yahoo.com/shtorm-z-units-proof-extraordinary-065321274.html)
-- Oct 24 - [Trump Files 4 Late Night Motions in Mere Hours Over D.C. Election Case](https://news.yahoo.com/trump-files-4-night-motions-055205201.html)
-- Oct 24 - [Near-extinct keystone animal spotted for first time in almost a century: ‘It was basically a lightning strike’](https://news.yahoo.com/near-extinct-keystone-animal-spotted-053000497.html)
+- Oct 24 - [Britney Spears was 'fined after another brush with police'](https://www.yahoo.com/entertainment/britney-spears-fined-another-brush-121000817.html)
+- Oct 24 - [Moscow denies reports Vladimir Putin suffered a heart attack](https://news.yahoo.com/moscow-denies-reports-vladimir-putin-120139859.html)
+- Oct 24 - [Video shows venomous snake’s angry reaction to being snatched from pipe in Australia](https://news.yahoo.com/video-shows-venomous-snake-angry-112805330.html)
+- Oct 24 - [China announces the removal of defense minister missing for almost 2 months with little explanation](https://news.yahoo.com/china-announces-removal-defense-minister-112100366.html)
+- Oct 24 - [China ousts defence minister, leaves post vacant](https://news.yahoo.com/china-removes-li-shangfu-defence-111951111.html)
 <!-- feed end -->
 
 ### Onstream
