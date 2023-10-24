@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [More details emerge after off-duty pilot allegedly tried to shut off engines on Alaska Airlines flight](https://www.yahoo.com/gma/more-details-emerge-off-duty-134800052.html)
+- Oct 24 - [Pilot who allegedly tried to shut off engines hadn't slept in 40 hours: Authorities](https://www.yahoo.com/gma/more-details-emerge-off-duty-134800052.html)
+- Oct 24 - [Queen Rania Calls Out CNN in Searing Israel-Gaza Interview](https://news.yahoo.com/queen-rania-calls-cnn-searing-194804659.html)
+- Oct 24 - [A college graduate who just started her first job shared the shock of working a 9-to-5 and was upset by the experience](https://news.yahoo.com/college-graduate-just-started-her-185249035.html)
 - Oct 24 - [Danny Masterson Branded A ‘Suppressive Person’ After Being EXPELLED From The Church Of Scientology](https://www.yahoo.com/entertainment/danny-masterson-branded-suppressive-person-180002162.html)
 - Oct 24 - [Kyrsten Sinema said she doesn't care if she loses reelection because she 'saved the Senate by myself' and can go serve 'on any board I want to,' book says](https://news.yahoo.com/kyrsten-sinema-said-she-doesnt-174643116.html)
-- Oct 24 - ["A gigantic pool of nos": Dozens of Republicans reject Tom Emmer, GOP's third nominee for speaker](https://news.yahoo.com/gigantic-pool-nos-dozens-republicans-173806819.html)
-- Oct 24 - [Student pilot disables 10 planes after being denied his solo slight, Florida cops say](https://news.yahoo.com/student-pilot-disables-10-planes-173405100.html)
 <!-- feed end -->
 
 ### Onstream
