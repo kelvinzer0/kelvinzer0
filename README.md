@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 24 - [Jenna Ellis becomes latest Trump lawyer to plead guilty over efforts to overturn Georgia's election](https://news.yahoo.com/jenna-ellis-becomes-latest-trump-134539125.html)
+- Oct 24 - [Finland retrieves anchor from seabed near broken gas pipeline](https://news.yahoo.com/finland-retrieves-anchor-seabed-near-143627035.html)
+- Oct 24 - [Manchester man who arranged to rape 12-week-old baby jailed](https://news.yahoo.com/manchester-man-arranged-rape-12-141711595.html)
+- Oct 24 - [Ex-Trump Lawyer Jenna Ellis Cries as She Cops a Plea](https://news.yahoo.com/ex-trump-lawyer-jenna-ellis-134313880.html)
 - Oct 24 - [A Jan. 6 conviction was upheld on appeal. Why this particular ruling could affect Trump's case.](https://news.yahoo.com/jan-6-conviction-upheld-appeal-133121933.html)
 - Oct 24 - [A woman says she was one of 3 people kicked off a Southwest Airlines flight over an incident that started with a dog on board](https://news.yahoo.com/viral-video-claims-passenger-got-042159627.html)
-- Oct 24 - [Washington state senator arrested after landing at Hong Kong airport with unregistered gun](https://news.yahoo.com/washington-state-senator-arrested-landing-122452433.html)
-- Oct 24 - [Anderson Cooper had a realization about a hostage during a live interview with his parents](https://news.yahoo.com/anderson-cooper-shares-footage-obtained-041901345.html)
 <!-- feed end -->
 
 ### Onstream
