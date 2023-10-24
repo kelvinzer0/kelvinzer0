@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 24 - [More details emerge after off-duty pilot allegedly tried to shut off engines on Alaska Airlines flight](https://www.yahoo.com/gma/more-details-emerge-off-duty-134800052.html)
+- Oct 24 - [Student pilot disables 10 planes after being denied his solo slight, Florida cops say](https://news.yahoo.com/student-pilot-disables-10-planes-173405100.html)
+- Oct 24 - [Runaway Teen Alicia Navarro’s Boyfriend Hit With Child Porn Charges](https://news.yahoo.com/runaway-teen-alicia-navarro-boyfriend-172425299.html)
 - Oct 24 - [GOP Nominates Speaker Dems May Actually Support (And Who Trump Definitely Hates)](https://news.yahoo.com/gop-nominates-speaker-dems-may-163428987.html)
-- Oct 24 - [Iran makes two moves, US carriers shift, and today China rules the Gulf](https://news.yahoo.com/iran-makes-two-moves-us-155424016.html)
-- Oct 24 - [Trump's lawyers demand fraud trial stopped because of a COVID-19 risk — but none are wearing masks in court](https://news.yahoo.com/trumps-lawyers-demand-fraud-trial-145509252.html)
-- Oct 24 - [Finland says gas pipeline likely broken by ship dragging anchor](https://news.yahoo.com/finland-retrieves-anchor-seabed-near-143627035.html)
-- Oct 24 - [UAW expands strike against GM, walking out of Texas SUV plant](https://finance.yahoo.com/news/uaw-expands-strike-against-gm-142242949.html)
+- Oct 24 - [Michael Cohen's fraud trial bombshell: Trump had me inflate his total assets based on a number he 'arbitrarily' picked](https://news.yahoo.com/michael-cohen-donald-trump-see-162936292.html)
 <!-- feed end -->
 
 ### Onstream
