@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 24 - [‘One of the worst financial products alive today': Dave Ramsey blasted this one specific investing approach when a concerned Arizona dad called in — why you should avoid it like the plague](https://finance.yahoo.com/news/one-worst-financial-products-alive-103000138.html)
+- Oct 24 - [‘I went through hell:’ Newly released Hamas hostage describes kidnapping from kibbutz and captivity](https://news.yahoo.com/two-elderly-hostages-freed-hamas-075855095.html)
 - Oct 24 - [Shtorm-Z units are proof of extraordinary troubles in Russian army – UK intelligence](https://news.yahoo.com/shtorm-z-units-proof-extraordinary-065321274.html)
 - Oct 24 - [Trump Files 4 Late Night Motions in Mere Hours Over D.C. Election Case](https://news.yahoo.com/trump-files-4-night-motions-055205201.html)
-- Oct 24 - [A passenger claims a woman got kicked off a Southwest Airlines flight after petting her dog on board](https://news.yahoo.com/viral-video-claims-passenger-got-042159627.html)
-- Oct 24 - [Tennessee GOP is willing to reject millions in funding, if it avoids complying with federal strings](https://news.yahoo.com/tennessee-gop-willing-reject-millions-041919365.html)
-- Oct 24 - [Sexual assault of woman by homeless man in Long Beach caught on camera](https://news.yahoo.com/sexual-assault-woman-homeless-man-001935319.html)
+- Oct 24 - [Near-extinct keystone animal spotted for first time in almost a century: ‘It was basically a lightning strike’](https://news.yahoo.com/near-extinct-keystone-animal-spotted-053000497.html)
 <!-- feed end -->
 
 ### Onstream
