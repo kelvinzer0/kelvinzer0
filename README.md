@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [WATCH: Woman Kicked Off Southwest Flight for Petting Newly Adopted Dog, Other Flyers Booted for Supporting Her](https://www.yahoo.com/entertainment/watch-woman-kicked-off-southwest-210847844.html)
+- Oct 25 - [Donald Trump Storms Out of Trial with Secret Service 'Chasing' Behind, Prompting Courtroom Gasps: Report](https://www.yahoo.com/entertainment/donald-trump-storms-trial-secret-205628809.html)
 - Oct 25 - [Washington State, Oregon State take another legal step against outgoing Pac-12 schools, commissioner](https://sports.yahoo.com/washington-state-oregon-state-take-another-legal-step-against-outgoing-pac-12-schools-commissioner-201944078.html)
-- Oct 25 - ['Sponge bombs': Israel's new secret weapon for inside Hamas tunnels](https://news.yahoo.com/sponge-bombs-israels-secret-weapon-201259694.html)
-- Oct 25 - [Trump Storms Out Of Courtroom Amid Michael Cohen's Testimony](https://news.yahoo.com/trump-storms-courtroom-amid-michael-200049120.html)
-- Oct 25 - [This Decrepit Ship Could Spark A Conflict Between The U.S. And China](https://news.yahoo.com/decrepit-ship-could-spark-conflict-193500583.html)
-- Oct 25 - [New House Speaker Mike Johnson Wants Women to Pop Out 'Able-Bodied Workers' to Fund Social Security](https://news.yahoo.com/house-speaker-mike-johnson-wants-185500075.html)
+- Oct 25 - [Married billionaire Eric Schmidt reportedly invested $100 million in a company run by a 29-year-old entrepreneur said to be his girlfriend](https://news.yahoo.com/married-billionaire-eric-schmidt-reportedly-201348502.html)
+- Oct 25 - [‘Sponge bombs’ are Israel’s new secret weapon to block Hamas tunnels](https://news.yahoo.com/sponge-bombs-israels-secret-weapon-201259694.html)
 <!-- feed end -->
 
 ### Onstream
