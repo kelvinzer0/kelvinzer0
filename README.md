@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [Woman Who Named Her Kids 'Aryan' and 'Nation' Accused of Running Over Native American Woman](https://www.yahoo.com/entertainment/woman-named-her-kids-aryan-164222987.html)
-- Oct 25 - [Sen. Rand Paul of Kentucky was the only Republican in the Foreign Relations Committee who voted with Democrats to advance Lew’s nomination to the Senate floor.](https://news.yahoo.com/sen-rand-paul-kentucky-only-164208051.html)
-- Oct 25 - ["The jig is up": Trump goes beserk at news Mark Meadows' testimony could "obliterate" Jan. 6 defense](https://news.yahoo.com/jig-trump-goes-beserk-news-164038118.html)
-- Oct 25 - [Donald Trump Said, 'In The End, You're Measured Not By How Much You Undertake But By What You Finally Accomplish' — A Look At His Many Failed Businesses Over The Years](https://finance.yahoo.com/news/donald-trump-said-end-youre-163725860.html)
-- Oct 25 - [Judge in NY fraud trial threatens Trump with sanctions again, saying the ex-president's latest comments were a 'blatant' violation of the gag order](https://news.yahoo.com/judge-ny-fraud-trial-threatens-162431572.html)
+- Oct 25 - [Judge Forces Trump to Testify for Insult Then Fines Him $10K](https://news.yahoo.com/judge-forces-trump-testify-insult-184819479.html)
+- Oct 25 - [Well, We Have a Speaker. He’s an Election Denier and an Extreme Christian Fundamentalist.](https://news.yahoo.com/well-speaker-election-denier-extreme-175422424.html)
+- Oct 25 - [Moment Al-Jazeera Reporter Learns His Family Is Dead On-Air](https://news.yahoo.com/al-jazeera-journalist-learns-israeli-174939704.html)
+- Oct 25 - [A Ukrainian soldier went to Washington to explain the war. He says American politicians don't realize much of the funding actually stays in the US.](https://news.yahoo.com/ukrainian-soldier-went-washington-explain-173924225.html)
+- Oct 25 - [Watch: Orca punts seal 70 feet into the air ‘among the gulls’](https://sports.yahoo.com/watch-orca-punts-seal-70-170647515.html)
 <!-- feed end -->
 
 ### Onstream
