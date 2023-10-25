@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [Jimmy Fallon Left Speechless By Donald Trump's Latest Bonkers Insight](https://www.yahoo.com/entertainment/jimmy-fallon-left-speechless-donald-100740291.html)
-- Oct 25 - [The Nashville police chief’s son, who was wanted in the shooting of 2 officers, was found dead after a car chase, officials say](https://news.yahoo.com/nashville-police-chief-son-wanted-084531886.html)
-- Oct 25 - [Leader of Lebanon's Hezbollah holds talks with senior Hamas and Palestinian Islamic Jihad figures](https://news.yahoo.com/leader-lebanons-hezbollah-holds-talks-081955011.html)
-- Oct 25 - [NYU student, criticized and lost job offer for Israel-Hamas remarks, speaks out](https://www.yahoo.com/gma/nyu-student-criticized-lost-job-080700905.html)
-- Oct 25 - [Republican House Members Turn Into Complete Jerks After Trump Question](https://news.yahoo.com/republican-house-members-turn-complete-075844470.html)
+- Oct 25 - [Loyalty above all: Removal of top Chinese officials seen as enforcing Xi's demand for obedience](https://news.yahoo.com/loyalty-above-removal-top-chinese-115244898.html)
+- Oct 25 - [Turkey's Erdogan says Hamas is not a terrorist organisation](https://news.yahoo.com/turkeys-erdogan-says-hamas-not-112649881.html)
+- Oct 25 - [Kinzinger predicts outcome for House speaker nominee Mike Johnson](https://news.yahoo.com/kinzinger-predicts-outcome-house-speaker-031822359.html)
+- Oct 25 - [Jimmy Fallon Left Speechless By Donald Trump’s Latest Bonkers Insight](https://www.yahoo.com/entertainment/jimmy-fallon-left-speechless-donald-100740291.html)
+- Oct 25 - [New report shares the concerning reason why attendance at Disney’s theme parks is dropping — they’re becoming a ‘ghost town’](https://news.yahoo.com/report-shares-concerning-reason-why-150000056.html)
 <!-- feed end -->
 
 ### Onstream
