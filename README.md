@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [Jimmy Fallon Left Speechless By Donald Trump's Latest Bonkers Insight](https://www.yahoo.com/entertainment/jimmy-fallon-left-speechless-donald-100740291.html)
 - Oct 25 - [The Nashville police chief’s son, who was wanted in the shooting of 2 officers, was found dead after a car chase, officials say](https://news.yahoo.com/nashville-police-chief-son-wanted-084531886.html)
 - Oct 25 - [Leader of Lebanon's Hezbollah holds talks with senior Hamas and Palestinian Islamic Jihad figures](https://news.yahoo.com/leader-lebanons-hezbollah-holds-talks-081955011.html)
 - Oct 25 - [NYU student, criticized and lost job offer for Israel-Hamas remarks, speaks out](https://www.yahoo.com/gma/nyu-student-criticized-lost-job-080700905.html)
 - Oct 25 - [Republican House Members Turn Into Complete Jerks After Trump Question](https://news.yahoo.com/republican-house-members-turn-complete-075844470.html)
-- Oct 25 - [Hezbollah, Hamas and Islamic Jihad leaders discuss how to achieve 'victory'](https://news.yahoo.com/hezbollah-chief-meets-top-palestinian-064117997.html)
 <!-- feed end -->
 
 ### Onstream
