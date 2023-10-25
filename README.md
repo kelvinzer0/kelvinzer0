@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [Tennessee attorney general sues federal government over abortion rule blocking funding](https://news.yahoo.com/tennessee-attorney-general-sues-federal-190454843.html)
-- Oct 25 - [Judge Forces Trump to Testify for Insult Then Fines Him $10K](https://news.yahoo.com/judge-forces-trump-testify-insult-184819479.html)
-- Oct 25 - [A Ukrainian soldier went to Washington to explain the war. He says American politicians don't realize much of the funding actually stays in the US.](https://news.yahoo.com/ukrainian-soldier-went-washington-explain-173924225.html)
-- Oct 25 - [Watch: Orca punts seal 70 feet into the air ‘among the gulls’](https://sports.yahoo.com/watch-orca-punts-seal-70-170647515.html)
-- Oct 25 - [Armenia sees no advantage in keeping Russian military bases -PM to WSJ](https://news.yahoo.com/armenia-sees-no-advantage-keeping-164658559.html)
+- Oct 25 - [Washington State, Oregon State take another legal step against outgoing Pac-12 schools, commissioner](https://sports.yahoo.com/washington-state-oregon-state-take-another-legal-step-against-outgoing-pac-12-schools-commissioner-201944078.html)
+- Oct 25 - ['Sponge bombs': Israel's new secret weapon for inside Hamas tunnels](https://news.yahoo.com/sponge-bombs-israels-secret-weapon-201259694.html)
+- Oct 25 - [Trump Storms Out Of Courtroom Amid Michael Cohen's Testimony](https://news.yahoo.com/trump-storms-courtroom-amid-michael-200049120.html)
+- Oct 25 - [This Decrepit Ship Could Spark A Conflict Between The U.S. And China](https://news.yahoo.com/decrepit-ship-could-spark-conflict-193500583.html)
+- Oct 25 - [New House Speaker Mike Johnson Wants Women to Pop Out 'Able-Bodied Workers' to Fund Social Security](https://news.yahoo.com/house-speaker-mike-johnson-wants-185500075.html)
 <!-- feed end -->
 
 ### Onstream
