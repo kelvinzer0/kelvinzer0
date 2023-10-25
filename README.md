@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [Russia launched its biggest attack in months. Huge tank losses show it isn't learning from its many defeats, expert says](https://news.yahoo.com/russia-launched-biggest-attack-months-130140980.html)
 - Oct 25 - [Hillary Clinton Repeatedly Snaps At Heckler In Bonkers Exchange](https://news.yahoo.com/hillary-clinton-repeatedly-snaps-heckler-122541589.html)
 - Oct 25 - [How a single US family cashed in 14,000 winning lottery tickets and screwed the taxman out of $6M](https://news.yahoo.com/single-us-family-cashed-14-113900697.html)
 - Oct 25 - [Turkey's Erdogan says Hamas is not a terrorist organisation](https://news.yahoo.com/turkeys-erdogan-says-hamas-not-112649881.html)
-- Oct 25 - [Police chief's son who was wanted in shooting of 2 officers is found dead, Tennessee officials say](https://news.yahoo.com/police-chiefs-son-wanted-shooting-104840264.html)
-- Oct 25 - [Jimmy Fallon Left Speechless By Donald Trump’s Latest Bonkers Insight](https://www.yahoo.com/entertainment/jimmy-fallon-left-speechless-donald-100740291.html)
+- Oct 25 - [Nashville police chief's son, wanted in the shooting of 2 officers, found dead after car chase](https://news.yahoo.com/police-chiefs-son-wanted-shooting-104840264.html)
 <!-- feed end -->
 
 ### Onstream
