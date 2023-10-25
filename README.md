@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [Analysis-China chases US and Russia guided-missile submarine capabilities with new vessels](https://news.yahoo.com/analysis-china-chases-us-russia-055534247.html)
+- Oct 25 - [Japan's top court to rule on law that requires reproductive organ removal for official gender change](https://news.yahoo.com/japans-top-court-rule-law-052236479.html)
+- Oct 25 - [Trump rages as former acolytes turn against him under legal heat](https://news.yahoo.com/trump-rages-former-acolytes-turn-040501374.html)
 - Oct 25 - [A biotech firm founded by Vivek Ramaswamy turned $15 million into $5 billion by flipping a bowel-disease treatment that Pfizer gave it for free](https://finance.yahoo.com/news/biotech-firm-founded-vivek-ramaswamy-031906776.html)
-- Oct 25 - [China said the US is a disruptor of peace in response to Pentagon report on China’s military buildup](https://news.yahoo.com/china-said-us-disruptor-peace-025118020.html)
 - Oct 25 - [Accuser of Marvel actor Jonathan Majors expected to be arrested Wednesday in his misdemeanor cross-complaint against her](https://www.yahoo.com/entertainment/accuser-marvel-actor-jonathan-majors-024946336.html)
-- Oct 25 - [Fetterman ‘can’t believe’ Marshall resolution on school lunch ‘is even real’](https://news.yahoo.com/fetterman-t-believe-marshall-resolution-005016172.html)
-- Oct 25 - [Yemen’s Houthi army emerges as a major threat to Israel and US](https://news.yahoo.com/yemen-houthi-army-emerges-major-003502846.html)
 <!-- feed end -->
 
 ### Onstream
