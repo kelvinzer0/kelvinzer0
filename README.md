@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [The Nashville police chief’s son, who was wanted in the shooting of 2 officers, was found dead after a car chase, officials say](https://news.yahoo.com/nashville-police-chief-son-wanted-084531886.html)
 - Oct 25 - [Leader of Lebanon's Hezbollah holds talks with senior Hamas and Palestinian Islamic Jihad figures](https://news.yahoo.com/leader-lebanons-hezbollah-holds-talks-081955011.html)
+- Oct 25 - [NYU student, criticized and lost job offer for Israel-Hamas remarks, speaks out](https://www.yahoo.com/gma/nyu-student-criticized-lost-job-080700905.html)
 - Oct 25 - [Republican House Members Turn Into Complete Jerks After Trump Question](https://news.yahoo.com/republican-house-members-turn-complete-075844470.html)
-- Oct 25 - [Republicans Boo Reporter for Probing New Speaker Candidate on 2020](https://www.yahoo.com/entertainment/republicans-boo-reporter-probing-speaker-041010209.html)
-- Oct 25 - [Trump rages as former acolytes turn against him under legal heat](https://news.yahoo.com/trump-rages-former-acolytes-turn-040501374.html)
-- Oct 25 - [A biotech firm founded by Vivek Ramaswamy turned $15 million into $5 billion by flipping a bowel-disease treatment that Pfizer gave it for free](https://finance.yahoo.com/news/biotech-firm-founded-vivek-ramaswamy-031906776.html)
+- Oct 25 - [Hezbollah, Hamas and Islamic Jihad leaders discuss how to achieve 'victory'](https://news.yahoo.com/hezbollah-chief-meets-top-palestinian-064117997.html)
 <!-- feed end -->
 
 ### Onstream
