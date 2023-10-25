@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [Tennessee attorney general sues federal government over abortion rule blocking funding](https://news.yahoo.com/tennessee-attorney-general-sues-federal-190454843.html)
 - Oct 25 - [Judge Forces Trump to Testify for Insult Then Fines Him $10K](https://news.yahoo.com/judge-forces-trump-testify-insult-184819479.html)
-- Oct 25 - [Well, We Have a Speaker. He’s an Election Denier and an Extreme Christian Fundamentalist.](https://news.yahoo.com/well-speaker-election-denier-extreme-175422424.html)
-- Oct 25 - [Moment Al-Jazeera Reporter Learns His Family Is Dead On-Air](https://news.yahoo.com/al-jazeera-journalist-learns-israeli-174939704.html)
 - Oct 25 - [A Ukrainian soldier went to Washington to explain the war. He says American politicians don't realize much of the funding actually stays in the US.](https://news.yahoo.com/ukrainian-soldier-went-washington-explain-173924225.html)
 - Oct 25 - [Watch: Orca punts seal 70 feet into the air ‘among the gulls’](https://sports.yahoo.com/watch-orca-punts-seal-70-170647515.html)
+- Oct 25 - [Armenia sees no advantage in keeping Russian military bases -PM to WSJ](https://news.yahoo.com/armenia-sees-no-advantage-keeping-164658559.html)
 <!-- feed end -->
 
 ### Onstream
