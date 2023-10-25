@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [Jake Tapper Interrupts Live Hit From Israel For GOP News And Isn't Happy](https://news.yahoo.com/jake-tapper-interrupts-live-hit-072908592.html)
+- Oct 25 - [Leader of Lebanon's Hezbollah holds talks with senior Hamas and Palestinian Islamic Jihad figures](https://news.yahoo.com/leader-lebanons-hezbollah-holds-talks-081955011.html)
+- Oct 25 - [Republican House Members Turn Into Complete Jerks After Trump Question](https://news.yahoo.com/republican-house-members-turn-complete-075844470.html)
+- Oct 25 - [Republicans Boo Reporter for Probing New Speaker Candidate on 2020](https://www.yahoo.com/entertainment/republicans-boo-reporter-probing-speaker-041010209.html)
 - Oct 25 - [Trump rages as former acolytes turn against him under legal heat](https://news.yahoo.com/trump-rages-former-acolytes-turn-040501374.html)
 - Oct 25 - [A biotech firm founded by Vivek Ramaswamy turned $15 million into $5 billion by flipping a bowel-disease treatment that Pfizer gave it for free](https://finance.yahoo.com/news/biotech-firm-founded-vivek-ramaswamy-031906776.html)
-- Oct 25 - [Kinzinger predicts outcome for House Speaker nominee Mike Johnson](https://news.yahoo.com/kinzinger-predicts-outcome-house-speaker-031822359.html)
-- Oct 25 - [Fetterman ‘can’t believe’ Marshall resolution on school lunch ‘is even real’](https://news.yahoo.com/fetterman-t-believe-marshall-resolution-005016172.html)
 <!-- feed end -->
 
 ### Onstream
