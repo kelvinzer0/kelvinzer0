@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [House Republicans are onto something—and they don’t even know it](https://finance.yahoo.com/news/house-republicans-are-onto-somethingand-they-dont-even-know-it-145031854.html)
 - Oct 25 - [Russia launched its biggest attack in months. Huge tank losses show it isn't learning from its many defeats, expert says](https://news.yahoo.com/russia-launched-biggest-attack-months-130140980.html)
 - Oct 25 - [Hillary Clinton Repeatedly Snaps At Heckler In Bonkers Exchange](https://news.yahoo.com/hillary-clinton-repeatedly-snaps-heckler-122541589.html)
 - Oct 25 - [How a single US family cashed in 14,000 winning lottery tickets and screwed the taxman out of $6M](https://news.yahoo.com/single-us-family-cashed-14-113900697.html)
-- Oct 25 - [Turkey's Erdogan says Hamas is not a terrorist organisation](https://news.yahoo.com/turkeys-erdogan-says-hamas-not-112649881.html)
-- Oct 25 - [Nashville police chief's son, wanted in the shooting of 2 officers, found dead after car chase](https://news.yahoo.com/police-chiefs-son-wanted-shooting-104840264.html)
+- Oct 25 - [Turkey's Erdogan says Hamas is not terrorist organisation](https://news.yahoo.com/turkeys-erdogan-says-hamas-not-112649881.html)
 <!-- feed end -->
 
 ### Onstream
