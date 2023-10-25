@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [California Gov. Newsom has rare friendly exchange with China's senior diplomat Wang Yi](https://news.yahoo.com/california-gov-newsom-rare-friendly-035034870.html)
+- Oct 25 - [A biotech firm founded by Vivek Ramaswamy turned $15 million into $5 billion by flipping a bowel-disease treatment that Pfizer gave it for free](https://finance.yahoo.com/news/biotech-firm-founded-vivek-ramaswamy-031906776.html)
 - Oct 25 - [Fetterman ‘can’t believe’ Marshall resolution on school lunch ‘is even real’](https://news.yahoo.com/fetterman-t-believe-marshall-resolution-005016172.html)
 - Oct 25 - [Yemen’s Houthi army emerges as a major threat to Israel and US](https://news.yahoo.com/yemen-houthi-army-emerges-major-003502846.html)
 - Oct 25 - [Houston airport had to ground all flights after a private jet departed ‘without permission’ and collided with another jet, FAA says](https://news.yahoo.com/houston-airport-had-ground-flights-002243867.html)
-- Oct 25 - [Chris Christie shares what Trump said after naming Meadows Chief of Staff](https://news.yahoo.com/desperately-christie-worried-trump-meadows-234450777.html)
-- Oct 24 - [Poison specialist and former medical resident at Mayo Clinic is charged with poisoning his wife](https://news.yahoo.com/poison-specialist-former-medical-resident-235741773.html)
 <!-- feed end -->
 
 ### Onstream
