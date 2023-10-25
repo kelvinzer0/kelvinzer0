@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [Biden won't appear on New Hampshire Democratic primary ballot. But write-ins are still an option](https://news.yahoo.com/biden-wont-appear-hampshire-democratic-002908423.html)
+- Oct 24 - [Poison specialist and former medical resident at Mayo Clinic is charged with poisoning his wife](https://news.yahoo.com/poison-specialist-former-medical-resident-235741773.html)
+- Oct 24 - [Room ‘Gasped’ During Bible-Thumping GOP Conference Confrontation](https://news.yahoo.com/room-gasped-during-bible-thumping-235532270.html)
+- Oct 24 - [‘Date’ ends with man robbed, thrown off bridge by woman he met online, Florida cops say](https://news.yahoo.com/date-ends-man-robbed-thrown-224438339.html)
 - Oct 24 - [Ex-Chief of Staff Mark Meadows granted immunity, tells special counsel he warned Trump about 2020 claims: Sources](https://www.yahoo.com/gma/ex-chief-staff-mark-meadows-204651497.html)
-- Oct 24 - [Mexico deploys 300 National Guard troopers to area where 13 police officers were killed in an ambush](https://news.yahoo.com/mexico-deploys-300-national-guard-220249146.html)
-- Oct 24 - [Israel-Gaza Situation Report: Hamas Frogmen Attempt To Infiltrate Near Israeli Base](https://news.yahoo.com/israel-gaza-situation-report-hamas-215110826.html)
-- Oct 24 - [Sidney Powell pushes claims that 2020 election was rigged and prosecutors 'extorted' her after she pleaded guilty to election interference](https://news.yahoo.com/sidney-powell-pushes-claims-2020-214339386.html)
-- Oct 24 - [Pilot who allegedly tried to shut off engines hadn't slept in 40 hours: Authorities](https://www.yahoo.com/gma/more-details-emerge-off-duty-134800052.html)
 <!-- feed end -->
 
 ### Onstream
