@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [2 London police officers have been dismissed over a stop and search of a Black athlete couple](https://sports.yahoo.com/2-london-police-officers-dismissed-150032945.html)
-- Oct 25 - [A mother reported her son missing in March. Police kept the truth from her for months.](https://news.yahoo.com/mother-reported-her-son-missing-150011838.html)
-- Oct 25 - [House Republicans are onto something — and they don’t even know it](https://finance.yahoo.com/news/house-republicans-are-onto-something--and-they-dont-even-know-it-145031420.html)
-- Oct 25 - [‘Clown’: Ice-T’s Son, Tracy Marrow Jr., Faces Backlash After Cutting a Woman’s Hair Without Her Permission During Livestream](https://www.yahoo.com/entertainment/clown-ice-t-son-tracy-143048627.html)
-- Oct 25 - [Ukraine shows off a new ground drone meant to drive under Russian tanks and blow up](https://news.yahoo.com/ukraine-shows-off-ground-drone-140203689.html)
+- Oct 25 - [Sen. Rand Paul of Kentucky was the only Republican in the Foreign Relations Committee who voted with Democrats to advance Lew’s nomination to the Senate floor.](https://news.yahoo.com/sen-rand-paul-kentucky-only-164208051.html)
+- Oct 25 - [Judge in NY fraud trial threatens Trump with sanctions again, saying the ex-president's latest comments were a 'blatant' violation of the gag order](https://news.yahoo.com/judge-ny-fraud-trial-threatens-162431572.html)
+- Oct 25 - [Judge reinstates murder charge against Philadelphia police officer in fatal shooting of motorist](https://news.yahoo.com/judge-reinstates-charges-against-philadelphia-162310723.html)
+- Oct 25 - [Car With Homemade Dent Protectors Provokes Federal-Level Bomb Threat Response In Tennessee](https://news.yahoo.com/car-homemade-dent-protectors-provokes-154500936.html)
+- Oct 25 - [The Battle of the Tunnels is about to begin in Gaza](https://news.yahoo.com/battle-tunnels-begin-gaza-153042279.html)
 <!-- feed end -->
 
 ### Onstream
