@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [New House Speaker Kicks Things Off With Crass Remark About His Wife](https://news.yahoo.com/house-speaker-kicks-things-off-215624196.html)
+- Oct 25 - [Most of Justice Thomas' $267,000 loan for an RV seems to have been forgiven, Senate Democrats say](https://news.yahoo.com/most-justice-thomas-267-000-213328343.html)
 - Oct 25 - [WATCH: Woman Kicked Off Southwest Flight for Petting Newly Adopted Dog, Other Flyers Booted for Supporting Her](https://www.yahoo.com/entertainment/watch-woman-kicked-off-southwest-210847844.html)
 - Oct 25 - [Donald Trump Storms Out of Trial with Secret Service 'Chasing' Behind, Prompting Courtroom Gasps: Report](https://www.yahoo.com/entertainment/donald-trump-storms-trial-secret-205628809.html)
 - Oct 25 - [Washington State, Oregon State take another legal step against outgoing Pac-12 schools, commissioner](https://sports.yahoo.com/washington-state-oregon-state-take-another-legal-step-against-outgoing-pac-12-schools-commissioner-201944078.html)
-- Oct 25 - [Married billionaire Eric Schmidt reportedly invested $100 million in a company run by a 29-year-old entrepreneur said to be his girlfriend](https://news.yahoo.com/married-billionaire-eric-schmidt-reportedly-201348502.html)
-- Oct 25 - [‘Sponge bombs’ are Israel’s new secret weapon to block Hamas tunnels](https://news.yahoo.com/sponge-bombs-israels-secret-weapon-201259694.html)
 <!-- feed end -->
 
 ### Onstream
