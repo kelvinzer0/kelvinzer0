@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [Woman Who Named Her Kids 'Aryan' and 'Nation' Accused of Running Over Native American Woman](https://www.yahoo.com/entertainment/woman-named-her-kids-aryan-164222987.html)
 - Oct 25 - [Sen. Rand Paul of Kentucky was the only Republican in the Foreign Relations Committee who voted with Democrats to advance Lew’s nomination to the Senate floor.](https://news.yahoo.com/sen-rand-paul-kentucky-only-164208051.html)
+- Oct 25 - ["The jig is up": Trump goes beserk at news Mark Meadows' testimony could "obliterate" Jan. 6 defense](https://news.yahoo.com/jig-trump-goes-beserk-news-164038118.html)
+- Oct 25 - [Donald Trump Said, 'In The End, You're Measured Not By How Much You Undertake But By What You Finally Accomplish' — A Look At His Many Failed Businesses Over The Years](https://finance.yahoo.com/news/donald-trump-said-end-youre-163725860.html)
 - Oct 25 - [Judge in NY fraud trial threatens Trump with sanctions again, saying the ex-president's latest comments were a 'blatant' violation of the gag order](https://news.yahoo.com/judge-ny-fraud-trial-threatens-162431572.html)
-- Oct 25 - [Judge reinstates murder charge against Philadelphia police officer in fatal shooting of motorist](https://news.yahoo.com/judge-reinstates-charges-against-philadelphia-162310723.html)
-- Oct 25 - [Car With Homemade Dent Protectors Provokes Federal-Level Bomb Threat Response In Tennessee](https://news.yahoo.com/car-homemade-dent-protectors-provokes-154500936.html)
-- Oct 25 - [The Battle of the Tunnels is about to begin in Gaza](https://news.yahoo.com/battle-tunnels-begin-gaza-153042279.html)
 <!-- feed end -->
 
 ### Onstream
