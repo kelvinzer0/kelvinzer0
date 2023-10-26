@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [‘Whatchu Gonna Do?!’: Texas Security Guard Hurles a Slew of Racial Slurs At Black Woman In Video Before Allegedly Spitting on Her In Dispute Over Broken Car Window](https://news.yahoo.com/whatchu-gonna-texas-security-guard-130000648.html)
+- Oct 26 - [Broken Lebanon cannot afford war, and Hezbollah knows it](https://news.yahoo.com/broken-lebanon-cannot-afford-war-141132002.html)
+- Oct 26 - [A Dazzling Piece of Evidence May Finally End the Mystery of D.B. Cooper's Identity](https://www.yahoo.com/lifestyle/dazzling-piece-evidence-may-finally-140900386.html)
+- Oct 26 - [‘Whatchu Gonna Do?!’: Texas Security Guard Hurles a Slew of Racial Slurs At Black Woman In Video Before Allegedly Spitting on Her In Dispute Over Broken Car Mirror](https://news.yahoo.com/whatchu-gonna-texas-security-guard-130000648.html)
+- Oct 26 - [Robert Card: Maine shootings suspect 'previously threatened gun attack at US Army base'](https://news.yahoo.com/man-wanted-22-killed-maine-082412629.html)
 - Oct 26 - [India 'exploring all legal options' after Qatari court sentences 8 Indians to death for spying](https://news.yahoo.com/india-exploring-legal-options-qatari-115941808.html)
-- Oct 26 - [Cops Found Disturbing Note on Phone of Man Wanted for Wife’s Murder](https://news.yahoo.com/cops-found-disturbing-note-phone-112425334.html)
-- Oct 26 - [Qatar court hands down death penalty verdict for eight Indians - India govt](https://news.yahoo.com/qatar-court-hands-down-death-111359548.html)
-- Oct 26 - [Critics Say Matt Gaetz's Nickname For New House Speaker Is Alarmingly On Point](https://news.yahoo.com/critics-matt-gaetzs-nickname-house-103349916.html)
 <!-- feed end -->
 
 ### Onstream
