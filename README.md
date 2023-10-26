@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 25 - [Elon Musk just lost $28 billion as Tesla took a beating. Now Toyota says ‘people are waking up to reality’ that EV adoption will be an uphill battle](https://finance.yahoo.com/news/elon-musk-just-lost-28-214123188.html)
-- Oct 25 - [Most of Justice Thomas' $267,000 loan for an RV seems to have been forgiven, Senate Democrats say](https://news.yahoo.com/most-justice-thomas-267-000-213328343.html)
-- Oct 25 - [Fact Check: Video Shows Turkey Moving a Warship Toward Gaza To Defend Palestinians?](https://news.yahoo.com/fact-check-video-shows-turkey-212800277.html)
-- Oct 25 - [WATCH: Woman Kicked Off Southwest Flight for Petting Newly Adopted Dog, Other Flyers Booted for Supporting Her](https://www.yahoo.com/entertainment/watch-woman-kicked-off-southwest-210847844.html)
-- Oct 25 - [Donald Trump Storms Out of Trial with Secret Service 'Chasing' Behind, Prompting Courtroom Gasps: Report](https://www.yahoo.com/entertainment/donald-trump-storms-trial-secret-205628809.html)
+- Oct 26 - [Active shooter situation reported in Lewiston, Maine](https://news.yahoo.com/active-shooter-situation-reported-lewiston-005815795.html)
+- Oct 26 - [At least 10 dead in Maine shooting and number expected to rise, law enforcement officials tell AP](https://news.yahoo.com/police-active-shooter-lewiston-maine-002430690.html)
+- Oct 26 - [Covid shots may slightly increase risk of stroke in older adults, particularly when administered with certain flu vaccines](https://www.yahoo.com/lifestyle/covid-shots-may-slightly-increase-000641841.html)
+- Oct 25 - [Tracy Morgan Thanks Business Manager for Not Letting Him Buy “26 Ferraris” and the Brooklyn Bridge](https://www.yahoo.com/entertainment/tracy-morgan-thanks-business-manager-235817277.html)
+- Oct 25 - [Opinion: Why Mike Johnson winning the speakership is a loss for the country](https://news.yahoo.com/opinion-mike-johnson-isn-t-215254598.html)
 <!-- feed end -->
 
 ### Onstream
