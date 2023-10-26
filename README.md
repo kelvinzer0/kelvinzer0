@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Bowling-obsessed grandfather died protecting the children he was coaching](https://news.yahoo.com/bowling-obsessed-grandfather-died-protecting-193518861.html)
+- Oct 26 - [2 Victims of Maine Bowling Alley Massacre Died Charging Gunman: Dad](https://news.yahoo.com/2-victims-maine-bowling-alley-202417741.html)
+- Oct 26 - [Chinese fighter jet nearly collides with American B-52 bomber over South China Sea: US officials](https://www.yahoo.com/gma/chinese-fighter-jet-nearly-collides-194300479.html)
+- Oct 26 - [Legal experts: Trump's defense may be doomed as 5 more co-defendants seek Fulton plea deals](https://news.yahoo.com/legal-experts-trumps-defense-may-191625611.html)
 - Oct 26 - [Family Sues Boat Company After 20-Year-Old Jumped Off Yacht and Died in Florida Waters](https://www.yahoo.com/entertainment/family-sues-boat-company-20-191620505.html)
 - Oct 26 - [Biden sent message warning Iran's Khamenei against targeting US troops](https://news.yahoo.com/biden-sent-message-irans-khamenei-190251852.html)
-- Oct 26 - [Switzerland has a stunningly high rate of gun ownership — here's why it doesn't have mass shootings](https://news.yahoo.com/switzerland-stunningly-high-rate-gun-221301791.html)
-- Oct 26 - [Lauren Boebert Misspells Maine Town In Her 'Thoughts And Prayers' Tweet](https://news.yahoo.com/lauren-boebert-misspells-maine-town-182632833.html)
 <!-- feed end -->
 
 ### Onstream
