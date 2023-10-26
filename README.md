@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [China says US has no right to get involved in problems between it and Philippines](https://news.yahoo.com/china-says-us-no-involved-074616502.html)
-- Oct 26 - [Jimmy Kimmel Nails Exactly What's Wrong With New House Speaker Mike Johnson](https://www.yahoo.com/entertainment/jimmy-kimmel-nails-exactly-whats-054437505.html)
+- Oct 26 - [Robert Card: Maine shootings suspect 'previously threatened gun attack at US Army base'](https://news.yahoo.com/man-wanted-22-killed-maine-082412629.html)
+- Oct 26 - [Who is Mike Johnson? Late-night hosts react to the long-awaited speaker of the House](https://www.yahoo.com/entertainment/late-night-hosts-react-to-long-awaited-speaker-of-the-house-mike-johnson-082907018.html)
+- Oct 26 - [China says US has no right to get involved in its problems with Philippines](https://news.yahoo.com/china-says-us-no-involved-074616502.html)
+- Oct 26 - [Attack Ad Asks 1 Damning Question Of New GOP House Speaker Mike Johnson](https://news.yahoo.com/attack-ad-asks-1-damning-073914830.html)
 - Oct 26 - [Iran is now flirting with its own destruction](https://news.yahoo.com/iran-now-flirting-own-destruction-050000916.html)
-- Oct 26 - [At least 16 dead in Maine mass killing and police hunt for the shooter as residents take shelter](https://news.yahoo.com/police-active-shooter-lewiston-maine-002430690.html)
-- Oct 26 - [Covid shots may slightly increase risk of stroke in older adults, particularly when administered with certain flu vaccines](https://www.yahoo.com/lifestyle/covid-shots-may-slightly-increase-000641841.html)
 <!-- feed end -->
 
 ### Onstream
