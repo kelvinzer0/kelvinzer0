@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 26 - [China says US has no right to get involved in problems between it and Philippines](https://news.yahoo.com/china-says-us-no-involved-074616502.html)
 - Oct 26 - [Jimmy Kimmel Nails Exactly What's Wrong With New House Speaker Mike Johnson](https://www.yahoo.com/entertainment/jimmy-kimmel-nails-exactly-whats-054437505.html)
 - Oct 26 - [Iran is now flirting with its own destruction](https://news.yahoo.com/iran-now-flirting-own-destruction-050000916.html)
 - Oct 26 - [At least 16 dead in Maine mass killing and police hunt for the shooter as residents take shelter](https://news.yahoo.com/police-active-shooter-lewiston-maine-002430690.html)
 - Oct 26 - [Covid shots may slightly increase risk of stroke in older adults, particularly when administered with certain flu vaccines](https://www.yahoo.com/lifestyle/covid-shots-may-slightly-increase-000641841.html)
-- Oct 25 - [Opinion: Why Mike Johnson winning the speakership is a loss for the country](https://news.yahoo.com/opinion-mike-johnson-isn-t-215254598.html)
 <!-- feed end -->
 
 ### Onstream
