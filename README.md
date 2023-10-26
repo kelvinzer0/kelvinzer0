@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Report: Quran-burning protester is ordered to leave Sweden but deportation on hold for now](https://news.yahoo.com/report-quran-burning-protester-ordered-175315421.html)
+- Oct 26 - [Lauren Boebert Misspells Maine Town In Her 'Thoughts And Prayers' Tweet](https://news.yahoo.com/lauren-boebert-misspells-maine-town-182632833.html)
+- Oct 26 - [Maine mass shooting victims: What to know about the 18 people who died](https://www.yahoo.com/gma/maine-mass-shooting-victims-know-180000905.html)
+- Oct 26 - [Trump melts down on Truth Social after judge says his denial "rings hollow and untrue"](https://news.yahoo.com/trump-melts-down-truth-social-181929427.html)
+- Oct 26 - [At UN podium, Israel's envoy plays gruesome Hamas attack video](https://news.yahoo.com/un-podium-israels-envoy-plays-174954619.html)
 - Oct 26 - [Ex-teacher turned model, 60, harassed neighbour after being evicted from beach hut](https://news.yahoo.com/ex-teacher-turned-model-60-171438168.html)
-- Oct 26 - [At UN, Iran warns US will 'not be spared' if war in Gaza continues](https://news.yahoo.com/un-iran-warns-us-not-163248877.html)
-- Oct 26 - [The lesson of Britain’s new US Army Apache helicopter: Just buy American](https://news.yahoo.com/lesson-britain-us-army-apache-161737080.html)
-- Oct 26 - [Why Israelis don't carry with one in the chamber](https://news.yahoo.com/why-israelis-dont-carry-one-155305088.html)
 <!-- feed end -->
 
 ### Onstream
