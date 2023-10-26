@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Mercedes says 'brutal' EV market hitting profits](https://finance.yahoo.com/video/mercedes-says-brutal-ev-market-114511524.html)
+- Oct 26 - [India 'exploring all legal options' after Qatari court sentences 8 Indians to death for spying](https://news.yahoo.com/india-exploring-legal-options-qatari-115941808.html)
 - Oct 26 - [Cops Found Disturbing Note on Phone of Man Wanted for Wife’s Murder](https://news.yahoo.com/cops-found-disturbing-note-phone-112425334.html)
+- Oct 26 - [Qatar court hands down death penalty verdict for eight Indians - India govt](https://news.yahoo.com/qatar-court-hands-down-death-111359548.html)
 - Oct 26 - [Critics Say Matt Gaetz's Nickname For New House Speaker Is Alarmingly On Point](https://news.yahoo.com/critics-matt-gaetzs-nickname-house-103349916.html)
-- Oct 26 - [Robert Card: Maine shootings suspect 'previously threatened gun attack at US Army base'](https://news.yahoo.com/man-wanted-22-killed-maine-082412629.html)
-- Oct 26 - [China says US has no right to get involved in its problems with Philippines](https://news.yahoo.com/china-says-us-no-involved-074616502.html)
+- Oct 26 - [Tesla fans react strongly to reveal of new Model 3: ‘It’s enough to keep me from buying one’](https://news.yahoo.com/tesla-fans-react-strongly-reveal-103000051.html)
 <!-- feed end -->
 
 ### Onstream
