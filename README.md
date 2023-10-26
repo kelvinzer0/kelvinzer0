@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 26 - [Bowling-obsessed grandfather died protecting the children he was coaching](https://news.yahoo.com/bowling-obsessed-grandfather-died-protecting-193518861.html)
+- Oct 26 - [Family Sues Boat Company After 20-Year-Old Jumped Off Yacht and Died in Florida Waters](https://www.yahoo.com/entertainment/family-sues-boat-company-20-191620505.html)
+- Oct 26 - [Biden sent message warning Iran's Khamenei against targeting US troops](https://news.yahoo.com/biden-sent-message-irans-khamenei-190251852.html)
+- Oct 26 - [Switzerland has a stunningly high rate of gun ownership — here's why it doesn't have mass shootings](https://news.yahoo.com/switzerland-stunningly-high-rate-gun-221301791.html)
 - Oct 26 - [Lauren Boebert Misspells Maine Town In Her 'Thoughts And Prayers' Tweet](https://news.yahoo.com/lauren-boebert-misspells-maine-town-182632833.html)
-- Oct 26 - [Maine mass shooting victims: What to know about the 18 people who died](https://www.yahoo.com/gma/maine-mass-shooting-victims-know-180000905.html)
-- Oct 26 - [Trump melts down on Truth Social after judge says his denial "rings hollow and untrue"](https://news.yahoo.com/trump-melts-down-truth-social-181929427.html)
-- Oct 26 - [At UN podium, Israel's envoy plays gruesome Hamas attack video](https://news.yahoo.com/un-podium-israels-envoy-plays-174954619.html)
-- Oct 26 - [Ex-teacher turned model, 60, harassed neighbour after being evicted from beach hut](https://news.yahoo.com/ex-teacher-turned-model-60-171438168.html)
 <!-- feed end -->
 
 ### Onstream
