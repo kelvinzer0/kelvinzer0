@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Broken Lebanon cannot afford war, and Hezbollah knows it](https://news.yahoo.com/broken-lebanon-cannot-afford-war-141132002.html)
-- Oct 26 - [A Dazzling Piece of Evidence May Finally End the Mystery of D.B. Cooper's Identity](https://www.yahoo.com/lifestyle/dazzling-piece-evidence-may-finally-140900386.html)
-- Oct 26 - [‘Whatchu Gonna Do?!’: Texas Security Guard Hurles a Slew of Racial Slurs At Black Woman In Video Before Allegedly Spitting on Her In Dispute Over Broken Car Mirror](https://news.yahoo.com/whatchu-gonna-texas-security-guard-130000648.html)
-- Oct 26 - [Robert Card: Maine shootings suspect 'previously threatened gun attack at US Army base'](https://news.yahoo.com/man-wanted-22-killed-maine-082412629.html)
-- Oct 26 - [India 'exploring all legal options' after Qatari court sentences 8 Indians to death for spying](https://news.yahoo.com/india-exploring-legal-options-qatari-115941808.html)
+- Oct 26 - [Epic battle between heron and snake in Florida wildlife refuge caught on camera](https://news.yahoo.com/epic-battle-between-heron-snake-152143221.html)
+- Oct 26 - [Family Reveals Suspected Gunman’s Link to Maine Massacre Sites](https://news.yahoo.com/family-reveals-suspected-gunman-maine-152129656.html)
+- Oct 26 - [2 workers at Fukushima plant hospitalized after accidentally getting sprayed with radioactive waste](https://news.yahoo.com/2-workers-fukushima-plant-hospitalized-151120549.html)
+- Oct 26 - [Help, I Can't Stop Cringing At These 20 Extremely Dumb Things People Actually Posted On The Internet This Week](https://www.yahoo.com/lifestyle/help-cant-stop-cringing-20-150232637.html)
+- Oct 26 - [New Speaker Mike Johnson Wants Women to Pop Out 'Able-Bodied Workers,' Blames School Shootings on Abortion](https://news.yahoo.com/house-speaker-mike-johnson-wants-185500075.html)
 <!-- feed end -->
 
 ### Onstream
