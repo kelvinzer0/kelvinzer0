@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 26 - [Firearms instructor treated at mental health facility is person of interest in Maine shooting: cops](https://news.yahoo.com/police-active-shooter-lewiston-maine-002430690.html)
+- Oct 26 - [At least 16 dead in Maine shooting as police hunt for 'person of interest' and residents shelter](https://news.yahoo.com/police-active-shooter-lewiston-maine-002430690.html)
 - Oct 26 - [Covid shots may slightly increase risk of stroke in older adults, particularly when administered with certain flu vaccines](https://www.yahoo.com/lifestyle/covid-shots-may-slightly-increase-000641841.html)
 - Oct 25 - [AR shooting suspect in custody after chase, crash on I-40 bridge](https://news.yahoo.com/ar-shooting-suspect-custody-chase-234804403.html)
 - Oct 25 - [Opinion: Why Mike Johnson winning the speakership is a loss for the country](https://news.yahoo.com/opinion-mike-johnson-isn-t-215254598.html)
