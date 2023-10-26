@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 26 - [‘Whatchu Gonna Do?!’: Texas Security Guard Hurles a Slew of Racial Slurs At Black Woman In Video Before Allegedly Spitting on Her In Dispute Over Broken Car Window](https://news.yahoo.com/whatchu-gonna-texas-security-guard-130000648.html)
 - Oct 26 - [India 'exploring all legal options' after Qatari court sentences 8 Indians to death for spying](https://news.yahoo.com/india-exploring-legal-options-qatari-115941808.html)
 - Oct 26 - [Cops Found Disturbing Note on Phone of Man Wanted for Wife’s Murder](https://news.yahoo.com/cops-found-disturbing-note-phone-112425334.html)
 - Oct 26 - [Qatar court hands down death penalty verdict for eight Indians - India govt](https://news.yahoo.com/qatar-court-hands-down-death-111359548.html)
 - Oct 26 - [Critics Say Matt Gaetz's Nickname For New House Speaker Is Alarmingly On Point](https://news.yahoo.com/critics-matt-gaetzs-nickname-house-103349916.html)
-- Oct 26 - [Tesla fans react strongly to reveal of new Model 3: ‘It’s enough to keep me from buying one’](https://news.yahoo.com/tesla-fans-react-strongly-reveal-103000051.html)
 <!-- feed end -->
 
 ### Onstream
