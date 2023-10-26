@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 26 - [New York Republicans Offer Motion to Expel George Santos From Congress](https://news.yahoo.com/york-republicans-offer-motion-expel-213059019.html)
+- Oct 26 - [Britain’s ‘loneliest sheep’ stranded at foot of cliff for over two years](https://news.yahoo.com/britains-loneliest-sheep-stranded-foot-204725377.html)
 - Oct 26 - [2 Victims of Maine Bowling Alley Massacre Died Charging Gunman: Dad](https://news.yahoo.com/2-victims-maine-bowling-alley-202417741.html)
 - Oct 26 - [Chinese fighter jet nearly collides with American B-52 bomber over South China Sea: US officials](https://www.yahoo.com/gma/chinese-fighter-jet-nearly-collides-194300479.html)
-- Oct 26 - [Legal experts: Trump's defense may be doomed as 5 more co-defendants seek Fulton plea deals](https://news.yahoo.com/legal-experts-trumps-defense-may-191625611.html)
 - Oct 26 - [Family Sues Boat Company After 20-Year-Old Jumped Off Yacht and Died in Florida Waters](https://www.yahoo.com/entertainment/family-sues-boat-company-20-191620505.html)
-- Oct 26 - [Biden sent message warning Iran's Khamenei against targeting US troops](https://news.yahoo.com/biden-sent-message-irans-khamenei-190251852.html)
 <!-- feed end -->
 
 ### Onstream
