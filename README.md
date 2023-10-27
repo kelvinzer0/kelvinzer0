@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 27 - ['Barn of horrors': Investigators recall clues that led to body of missing Ohio woman Sierah Joughin](https://www.yahoo.com/gma/barn-horrors-investigators-recall-clues-101357835.html)
 - Oct 27 - ['Trump Too Small' T-shirt slogan turns into US Supreme Court battle](https://news.yahoo.com/trump-too-small-t-shirt-100500526.html)
-- Oct 27 - [Russian Navy mine hunter reportedly explodes in bay at Russian-occupied Sevastopol](https://news.yahoo.com/russian-navy-mine-hunter-reportedly-092200149.html)
+- Oct 27 - [Column: America's retirement system is mediocre. The new House speaker wants to make it downright awful](https://finance.yahoo.com/news/column-americas-retirement-system-mediocre-100057115.html)
 - Oct 27 - [Piers Morgan Drops Shockingly Accurate Take On Shootings In Fox News Pushback](https://news.yahoo.com/piers-morgan-drops-1-shockingly-091614527.html)
 - Oct 27 - [George Conway Ridicules House Republicans With Ten MAGA Commandments](https://news.yahoo.com/george-conway-ridicules-house-republicans-075218576.html)
 <!-- feed end -->
