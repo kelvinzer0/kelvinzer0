@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [SBF tells jury he didn't take FTX customer money but 'a lot of people got hurt'](https://finance.yahoo.com/news/sbf-tells-jury-he-didnt-take-ftx-customer-money-but-a-lot-of-people-got-hurt-143004380.html)
+- Oct 27 - [JD Vance calls Speaker Johnson’s Ukraine remarks ‘concerning’](https://news.yahoo.com/jd-vance-calls-speaker-johnson-173208995.html)
 - Oct 27 - [Ohio woman charged with 'serial killings' allegedly met men for sex before fatally drugging them](https://news.yahoo.com/ohio-woman-charged-serial-killings-170550299.html)
+- Oct 27 - [IDF Says Hamas HQ Is Under Gaza's Largest Hospital](https://news.yahoo.com/idf-says-hamas-hq-under-170032465.html)
 - Oct 27 - [Insurance Company Retroactively Cancels Man's Policy After A Crash Because He Has Teenagers At Home](https://news.yahoo.com/insurance-company-retroactively-cancels-mans-153800753.html)
 - Oct 27 - [Viral Video Claims to Show U.S. Marines Landing in Israel](https://news.yahoo.com/viral-video-claims-show-u-151427777.html)
-- Oct 27 - [Alleged victim punches 80-year-old convicted sex offender in Las Vegas courtroom](https://news.yahoo.com/alleged-victim-punches-80-old-145455964.html)
 <!-- feed end -->
 
 ### Onstream
