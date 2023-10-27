@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 27 - [China ex-Premier Li Keqiang, sidelined by Xi Jinping, dies at 68](https://news.yahoo.com/chinas-former-premier-li-keqiang-001458114.html)
+- Oct 27 - [Police Find Suicide Note Left By Maine Mass Shooter](https://www.yahoo.com/entertainment/police-suicide-note-left-maine-001351551.html)
+- Oct 26 - [‘Weekend marriages,' where couples live separately, gain popularity in Japan](https://news.yahoo.com/weekend-marriages-where-couples-live-233950783.html)
 - Oct 26 - [A mother reported her son missing in March. Police kept the truth from her for months.](https://news.yahoo.com/mother-reported-her-son-missing-150011838.html)
-- Oct 26 - [Maine Pol’s Stunning Mea Culpa After Gunman’s Rampage With Sniper Rifle](https://news.yahoo.com/maine-pol-stunning-mea-culpa-231600963.html)
 - Oct 26 - [Two Dems Retire From Congress After Speaker Drama](https://news.yahoo.com/two-dems-retire-congress-speaker-230541357.html)
-- Oct 26 - [FBI Surrounds Home, Believed To Have Cornered Maine Mass Shooter](https://www.yahoo.com/entertainment/fbi-surrounds-home-believed-cornered-220435068.html)
-- Oct 26 - [Wife of ex-Alaska Airlines pilot says she's in shock after averted Horizon Air disaster](https://news.yahoo.com/wife-ex-alaska-airlines-pilot-215517201.html)
 <!-- feed end -->
 
 ### Onstream
