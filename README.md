@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [The sudden death of former China's No. 2 leader Li Keqiang has shocked many](https://news.yahoo.com/sudden-death-former-chinas-no-042337773.html)
-- Oct 27 - [Southern California couple terrified after window peepers spotted on camera](https://news.yahoo.com/southern-california-couple-terrified-window-004047478.html)
+- Oct 27 - [The sudden death of China's former No. 2 leader Li Keqiang has shocked many](https://news.yahoo.com/sudden-death-former-chinas-no-042337773.html)
 - Oct 27 - [Police Find Suicide Note Left By Maine Mass Shooter](https://www.yahoo.com/entertainment/police-suicide-note-left-maine-001351551.html)
 - Oct 26 - [‘Weekend marriages,' where couples live separately, gain popularity in Japan](https://news.yahoo.com/weekend-marriages-where-couples-live-233950783.html)
 - Oct 26 - [A mother reported her son missing in March. Police kept the truth from her for months.](https://news.yahoo.com/mother-reported-her-son-missing-150011838.html)
+- Oct 26 - [Ron DeSantis Called Out For Florida's Severe Insurance Crisis As Rates Triple The National Average: 'Floridians Are Getting Absolutely Crushed'](https://finance.yahoo.com/news/ron-desantis-called-floridas-severe-224147956.html)
 <!-- feed end -->
 
 ### Onstream
