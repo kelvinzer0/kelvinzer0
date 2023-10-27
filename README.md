@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 27 - [Inside the Hamas 'web' of tunnels under Gaza](https://news.yahoo.com/inside-hamas-tunnels-under-gaza-153454782.html)
+- Oct 27 - [BoA Strategist: S&P 500 potentially to fall another 5%](https://finance.yahoo.com/video/boa-strategist-p-500-potentially-151529225.html)
 - Oct 27 - [Putin is using a new massive table to keep his distance from officials — and it's just as ridiculous as the original](https://news.yahoo.com/putin-using-massive-table-keep-140353359.html)
-- Oct 27 - [“The Howard Stern Show”'s Robin Quivers on Living with Endometrial Cancer for Over a Decade: 'I'm Still Here' (Exclusive)](https://www.yahoo.com/entertainment/howard-stern-show-robin-quivers-140000424.html)
-- Oct 27 - [The Big Lie is expanding: Majority of Republicans now insist Trump never tried to overturn election](https://news.yahoo.com/big-lie-expanding-majority-republicans-135229585.html)
 - Oct 27 - [A student asked a NYC teacher which side she’s on in the Israel-Hamas war. Here’s what she said](https://news.yahoo.com/student-asked-nyc-teacher-side-131515535.html)
-- Oct 27 - [About 30 children were taken hostage by Hamas militants. Their families wait in agony](https://news.yahoo.com/30-children-were-taken-hostage-123227161.html)
+- Oct 27 - [‘Parasites’: Mother wins court case to evict two sons in their 40s](https://news.yahoo.com/parasites-mother-wins-court-case-124607130.html)
 <!-- feed end -->
 
 ### Onstream
