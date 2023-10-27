@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 27 - [Why US EV sales may be at a tipping point](https://finance.yahoo.com/video/why-us-ev-sales-may-203430215.html)
+- Oct 27 - [West Virginia school system mandates religious training following revival assembly lawsuit](https://news.yahoo.com/west-virginia-school-system-mandates-203101650.html)
+- Oct 27 - [US judge asks Trump if he wants his federal election trial televised](https://news.yahoo.com/us-judge-asks-trump-wants-202442696.html)
+- Oct 27 - [Fact Check: Mel Gibson Posted Israel's 'End' Was Coming and 'That's Why They Want to Destroy Everything'?](https://www.yahoo.com/entertainment/fact-check-mel-gibson-posted-200700554.html)
 - Oct 27 - [Ohio woman charged with 'serial killings' allegedly met men for sex before fatally drugging them](https://news.yahoo.com/ohio-woman-charged-serial-killings-170550299.html)
-- Oct 27 - [Inmate suspected in prison attack on Kristin Smart's killer previously murdered 'I-5 Strangler'](https://news.yahoo.com/inmate-suspected-prison-attack-kristin-192953063.html)
-- Oct 27 - [Hamas Official Storms Out of BBC Interview When Confronted Over Israeli Civilian Deaths](https://www.yahoo.com/entertainment/hamas-official-storms-bbc-interview-192849612.html)
-- Oct 27 - [New York City sets up office to give migrants one-way tickets out of town](https://news.yahoo.com/york-city-sets-office-migrants-190649637.html)
-- Oct 27 - [‘No Reason… to Hit Her… That Many Times’: Video Captures Milwaukee Sheriff’s Deputy Repeatedly Striking 17-Year-Old Girl on Ground During Arrest Over Zoo Dispute with Friend](https://news.yahoo.com/no-reason-hit-her-many-183000859.html)
 <!-- feed end -->
 
 ### Onstream
