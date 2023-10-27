@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 27 - [Watch a Sea Lion Rip Out a Shark’s Throat](https://www.yahoo.com/lifestyle/watch-sea-lion-rip-shark-220000566.html)
 - Oct 27 - [Wisconsin judge rules that GOP-controlled Senate's vote to fire top elections official had no effect](https://news.yahoo.com/wisconsin-judge-rules-gop-controlled-215855916.html)
-- Oct 27 - [U.S. GDP grows under Bidenomics: How should voters feel?](https://finance.yahoo.com/video/u-gdp-grows-under-bidenomics-210153738.html)
-- Oct 27 - [Footage shows destruction in Acapulco after Hurricane Otis](https://news.yahoo.com/footage-shows-destruction-acapulco-hurricane-205820347.html)
+- Oct 27 - [West Virginia school system mandates religious training following revival assembly lawsuit](https://news.yahoo.com/west-virginia-school-system-mandates-203101650.html)
 - Oct 27 - [US judge asks Trump if he wants his federal election trial televised](https://news.yahoo.com/us-judge-asks-trump-wants-202442696.html)
-- Oct 27 - [Fact Check: Mel Gibson Posted Israel's 'End' Was Coming and 'That's Why They Want to Destroy Everything'?](https://www.yahoo.com/entertainment/fact-check-mel-gibson-posted-200700554.html)
+- Oct 27 - [San Francisco CEO who’s closing his $215 million company’s upscale office lounge says return-to-work push is ‘fighting a losing war’](https://finance.yahoo.com/news/san-francisco-ceo-closing-215-195939580.html)
 <!-- feed end -->
 
 ### Onstream
