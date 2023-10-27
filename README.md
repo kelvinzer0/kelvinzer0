@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [Eight Indian ex-naval officers sentenced to death in Qatar on Israel spying charges](https://news.yahoo.com/eight-indian-ex-naval-officers-120646446.html)
-- Oct 27 - [Boeing's now lost more than $2 billion on the new Air Force One planes – and has Donald Trump to blame](https://news.yahoo.com/boeings-now-lost-more-2-115150973.html)
-- Oct 27 - [Iraqi cleric al-Sadr demands closure of U.S. embassy over Israel ties](https://news.yahoo.com/shiite-cleric-muqtada-al-sadr-113648513.html)
-- Oct 27 - [China's chief epidemiologist who helped drive the anti-COVID fight dies at age 60](https://news.yahoo.com/chinas-chief-epidemiologist-wu-zunyou-112717501.html)
-- Oct 27 - ['Barn of horrors': Investigators recall clues that led to body of missing Ohio woman Sierah Joughin](https://www.yahoo.com/gma/barn-horrors-investigators-recall-clues-101357835.html)
+- Oct 27 - [Putin is using a new massive table to keep his distance from officials — and it's just as ridiculous as the original](https://news.yahoo.com/putin-using-massive-table-keep-140353359.html)
+- Oct 27 - [“The Howard Stern Show”'s Robin Quivers on Living with Endometrial Cancer for Over a Decade: 'I'm Still Here' (Exclusive)](https://www.yahoo.com/entertainment/howard-stern-show-robin-quivers-140000424.html)
+- Oct 27 - [The Big Lie is expanding: Majority of Republicans now insist Trump never tried to overturn election](https://news.yahoo.com/big-lie-expanding-majority-republicans-135229585.html)
+- Oct 27 - [A student asked a NYC teacher which side she’s on in the Israel-Hamas war. Here’s what she said](https://news.yahoo.com/student-asked-nyc-teacher-side-131515535.html)
+- Oct 27 - [About 30 children were taken hostage by Hamas militants. Their families wait in agony](https://news.yahoo.com/30-children-were-taken-hostage-123227161.html)
 <!-- feed end -->
 
 ### Onstream
