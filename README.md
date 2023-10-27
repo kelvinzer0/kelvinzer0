@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 27 - [Eight Indian ex-naval officers sentenced to death in Qatar on Israel spying charges](https://news.yahoo.com/eight-indian-ex-naval-officers-120646446.html)
+- Oct 27 - [Boeing's now lost more than $2 billion on the new Air Force One planes – and has Donald Trump to blame](https://news.yahoo.com/boeings-now-lost-more-2-115150973.html)
+- Oct 27 - [Iraqi cleric al-Sadr demands closure of U.S. embassy over Israel ties](https://news.yahoo.com/shiite-cleric-muqtada-al-sadr-113648513.html)
 - Oct 27 - [China's chief epidemiologist who helped drive the anti-COVID fight dies at age 60](https://news.yahoo.com/chinas-chief-epidemiologist-wu-zunyou-112717501.html)
 - Oct 27 - ['Barn of horrors': Investigators recall clues that led to body of missing Ohio woman Sierah Joughin](https://www.yahoo.com/gma/barn-horrors-investigators-recall-clues-101357835.html)
-- Oct 27 - ['Trump Too Small' T-shirt slogan turns into US Supreme Court battle](https://news.yahoo.com/trump-too-small-t-shirt-100500526.html)
-- Oct 27 - [Piers Morgan Drops Shockingly Accurate Take On Shootings In Fox News Pushback](https://news.yahoo.com/piers-morgan-drops-1-shockingly-091614527.html)
 <!-- feed end -->
 
 ### Onstream
