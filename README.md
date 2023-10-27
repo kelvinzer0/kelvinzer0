@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [JD Vance calls Speaker Johnson’s Ukraine remarks ‘concerning’](https://news.yahoo.com/jd-vance-calls-speaker-johnson-173208995.html)
 - Oct 27 - [Ohio woman charged with 'serial killings' allegedly met men for sex before fatally drugging them](https://news.yahoo.com/ohio-woman-charged-serial-killings-170550299.html)
-- Oct 27 - [IDF Says Hamas HQ Is Under Gaza's Largest Hospital](https://news.yahoo.com/idf-says-hamas-hq-under-170032465.html)
-- Oct 27 - [Insurance Company Retroactively Cancels Man's Policy After A Crash Because He Has Teenagers At Home](https://news.yahoo.com/insurance-company-retroactively-cancels-mans-153800753.html)
-- Oct 27 - [Viral Video Claims to Show U.S. Marines Landing in Israel](https://news.yahoo.com/viral-video-claims-show-u-151427777.html)
+- Oct 27 - [Inmate suspected in prison attack on Kristin Smart's killer previously murdered 'I-5 Strangler'](https://news.yahoo.com/inmate-suspected-prison-attack-kristin-192953063.html)
+- Oct 27 - [Hamas Official Storms Out of BBC Interview When Confronted Over Israeli Civilian Deaths](https://www.yahoo.com/entertainment/hamas-official-storms-bbc-interview-192849612.html)
+- Oct 27 - [New York City sets up office to give migrants one-way tickets out of town](https://news.yahoo.com/york-city-sets-office-migrants-190649637.html)
+- Oct 27 - [‘No Reason… to Hit Her… That Many Times’: Video Captures Milwaukee Sheriff’s Deputy Repeatedly Striking 17-Year-Old Girl on Ground During Arrest Over Zoo Dispute with Friend](https://news.yahoo.com/no-reason-hit-her-many-183000859.html)
 <!-- feed end -->
 
 ### Onstream
