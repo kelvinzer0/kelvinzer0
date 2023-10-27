@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [US strikes Iran-linked sites in Syria in retaliation for attacks on US troops](https://news.yahoo.com/us-strikes-iran-linked-sites-020822123.html)
-- Oct 27 - [China ex-Premier Li Keqiang, sidelined by Xi Jinping, dies at 68](https://uk.news.yahoo.com/chinas-former-premier-li-keqiang-001458114.html)
+- Oct 27 - [Southern California couple terrified after window peepers spotted on camera](https://news.yahoo.com/southern-california-couple-terrified-window-004047478.html)
+- Oct 27 - [China ex-Premier Li Keqiang, sidelined by Xi Jinping, dies at 68](https://news.yahoo.com/chinas-former-premier-li-keqiang-001458114.html)
 - Oct 27 - [Police Find Suicide Note Left By Maine Mass Shooter](https://www.yahoo.com/entertainment/police-suicide-note-left-maine-001351551.html)
 - Oct 26 - [‘Weekend marriages,' where couples live separately, gain popularity in Japan](https://news.yahoo.com/weekend-marriages-where-couples-live-233950783.html)
 - Oct 26 - [A mother reported her son missing in March. Police kept the truth from her for months.](https://news.yahoo.com/mother-reported-her-son-missing-150011838.html)
