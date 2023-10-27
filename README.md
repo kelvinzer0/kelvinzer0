@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 27 - [Inside the Hamas 'web' of tunnels under Gaza](https://news.yahoo.com/inside-hamas-tunnels-under-gaza-153454782.html)
-- Oct 27 - [BoA Strategist: S&P 500 potentially to fall another 5%](https://finance.yahoo.com/video/boa-strategist-p-500-potentially-151529225.html)
+- Oct 27 - [Viral Video Claims to Show U.S. Marines Landing in Israel](https://news.yahoo.com/viral-video-claims-show-u-151427777.html)
+- Oct 27 - [Alleged victim punches 80-year-old convicted sex offender in Las Vegas courtroom](https://news.yahoo.com/alleged-victim-punches-80-old-145455964.html)
+- Oct 27 - [Spy photos reveal the new look of the Porsche 911](https://www.autoblog.com/2023/10/27/porsche-911-spy-shots-refresh-undisguised-aero-kit/)
 - Oct 27 - [Putin is using a new massive table to keep his distance from officials — and it's just as ridiculous as the original](https://news.yahoo.com/putin-using-massive-table-keep-140353359.html)
-- Oct 27 - [A student asked a NYC teacher which side she’s on in the Israel-Hamas war. Here’s what she said](https://news.yahoo.com/student-asked-nyc-teacher-side-131515535.html)
-- Oct 27 - [‘Parasites’: Mother wins court case to evict two sons in their 40s](https://news.yahoo.com/parasites-mother-wins-court-case-124607130.html)
+- Oct 27 - [Apple Watch is now live with Double Tap — here's how to customize the gesture on watchOS 10.1](https://news.yahoo.com/apple-watch-is-now-live-with-double-tap--heres-how-to-customize-the-gesture-on-watchos-101-133021753.html)
 <!-- feed end -->
 
 ### Onstream
