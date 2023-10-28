@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 28 - [Cohen predicts outcome of Trump case after testimony](https://news.yahoo.com/cohen-predicts-outcome-trump-case-013438746.html)
 - Oct 28 - [Tuberville claims wars in Ukraine, Gaza were ‘created’ by Democrats](https://news.yahoo.com/tuberville-claims-wars-ukraine-gaza-002505359.html)
-- Oct 28 - [The search for a fisherman lost at sea was called off. 2 days later, he was found alive and adrift in a life raft after spending 13 days at sea.](https://news.yahoo.com/search-fisherman-lost-sea-called-002024067.html)
+- Oct 28 - [David Bloom’s sudden death was caused by a ‘silent killer.’ Know the signs](https://news.yahoo.com/david-bloom-sudden-death-caused-172837774.html)
 - Oct 27 - [Woman wins lawsuit vs. American Airlines over bizarre claim](https://www.thestreet.com/travel/woman-wins-lawsuit-vs-american-airlines-over-bizarre-claim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Oct 27 - [Woman Undergoes Skin Removal Surgery After Taking Ozempic](https://news.yahoo.com/woman-undergoes-skin-removal-surgery-221801324.html)
-- Oct 27 - [Watch a Sea Lion Rip Out a Shark’s Throat](https://www.yahoo.com/lifestyle/watch-sea-lion-rip-shark-220000566.html)
 <!-- feed end -->
 
 ### Onstream
