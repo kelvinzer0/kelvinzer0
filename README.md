@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Pence quits the presidential race after struggling to gain traction. 'This is not my time,' he says](https://news.yahoo.com/former-vice-president-mike-pence-182854888.html)
+- Oct 28 - [Video Shows Man Who Jumped Off Florida Cruise Boat and Drowned; Family’s Lawsuit Says Crew Member Spent Time Looking for a Life Ring Instead of Jumping In with Life Jacket](https://news.yahoo.com/video-shows-man-jumped-off-203457656.html)
+- Oct 28 - [Pence ends White House campaign after struggling to gain traction. 'This is not my time,' he says](https://news.yahoo.com/former-vice-president-mike-pence-182854888.html)
 - Oct 28 - [Woman wins lawsuit vs. American Airlines over bizarre claim](https://www.thestreet.com/travel/woman-wins-lawsuit-vs-american-airlines-over-bizarre-claim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Oct 28 - [Chicago man gets 88 years in prison for sexually assaulting suburban Hyatt employee at gunpoint](https://news.yahoo.com/chicago-man-gets-88-years-160121209.html)
 - Oct 28 - [Donald Trump Jr Bizarrely Claimed This Presidential Candidate Is a ‘Democrat Plant’ That Could Ruin His Father’s Campaign](https://www.yahoo.com/entertainment/donald-trump-jr-bizarrely-claimed-153600311.html)
-- Oct 28 - [Meet the 36-Year-Old Scientist Who Designed a Foiling Boat That Could Reshape the Industry](https://www.yahoo.com/lifestyle/meet-36-old-scientist-designed-150000082.html)
 <!-- feed end -->
 
 ### Onstream
