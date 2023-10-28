@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 28 - [Cohen predicts outcome of Trump case after testimony](https://news.yahoo.com/cohen-predicts-outcome-trump-case-013438746.html)
 - Oct 28 - [Chicago woman found guilty in barbaric execution-style murder of Naperville man](https://news.yahoo.com/chicago-woman-found-guilty-barbaric-010249834.html)
+- Oct 28 - [David Bloom’s sudden death was caused by a ‘silent killer.’ Know the signs](https://news.yahoo.com/david-bloom-sudden-death-caused-172837774.html)
 - Oct 27 - [Woman wins lawsuit vs. American Airlines over bizarre claim](https://www.thestreet.com/travel/woman-wins-lawsuit-vs-american-airlines-over-bizarre-claim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 27 - [Watch a Sea Lion Rip Out a Shark’s Throat](https://www.yahoo.com/lifestyle/watch-sea-lion-rip-shark-220000566.html)
-- Oct 27 - [Wisconsin judge rules that GOP-controlled Senate's vote to fire top elections official had no effect](https://news.yahoo.com/wisconsin-judge-rules-gop-controlled-215855916.html)
+- Oct 27 - [Woman Undergoes Skin Removal Surgery After Taking Ozempic](https://news.yahoo.com/woman-undergoes-skin-removal-surgery-221801324.html)
 <!-- feed end -->
 
 ### Onstream
