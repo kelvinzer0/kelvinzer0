@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Rush hour earthquake jolts San Francisco, second in region in 10 days](https://news.yahoo.com/rush-hour-earthquake-jolts-san-030840045.html)
 - Oct 28 - [Cohen predicts outcome of Trump case after testimony](https://news.yahoo.com/cohen-predicts-outcome-trump-case-013438746.html)
 - Oct 28 - [David Bloom’s sudden death was caused by a ‘silent killer.’ Know the signs](https://news.yahoo.com/david-bloom-sudden-death-caused-172837774.html)
-- Oct 27 - [Bill Barr knocks Trump for having verbal skills that ‘are limited’](https://news.yahoo.com/bill-barr-knocks-trump-having-235415854.html)
-- Oct 27 - [FDA advises not to purchase certain eye drops due to infection risk](https://news.yahoo.com/us-fda-asks-not-purchase-233154658.html)
+- Oct 27 - [Woman wins lawsuit vs. American Airlines over bizarre claim](https://www.thestreet.com/travel/woman-wins-lawsuit-vs-american-airlines-over-bizarre-claim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 27 - [Woman Undergoes Skin Removal Surgery After Taking Ozempic](https://news.yahoo.com/woman-undergoes-skin-removal-surgery-221801324.html)
+- Oct 27 - [Watch a Sea Lion Rip Out a Shark’s Throat](https://www.yahoo.com/lifestyle/watch-sea-lion-rip-shark-220000566.html)
 <!-- feed end -->
 
 ### Onstream
