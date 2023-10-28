@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 28 - [Tuberville claims wars in Ukraine, Gaza were ‘created’ by Democrats](https://news.yahoo.com/tuberville-claims-wars-ukraine-gaza-002505359.html)
+- Oct 28 - [The search for a fisherman lost at sea was called off. 2 days later, he was found alive and adrift in a life raft after spending 13 days at sea.](https://news.yahoo.com/search-fisherman-lost-sea-called-002024067.html)
 - Oct 27 - [Woman wins lawsuit vs. American Airlines over bizarre claim](https://www.thestreet.com/travel/woman-wins-lawsuit-vs-american-airlines-over-bizarre-claim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Oct 27 - [Woman Undergoes Skin Removal Surgery After Taking Ozempic](https://news.yahoo.com/woman-undergoes-skin-removal-surgery-221801324.html)
 - Oct 27 - [Watch a Sea Lion Rip Out a Shark’s Throat](https://www.yahoo.com/lifestyle/watch-sea-lion-rip-shark-220000566.html)
-- Oct 27 - [Wisconsin judge rules that GOP-controlled Senate's vote to fire top elections official had no effect](https://news.yahoo.com/wisconsin-judge-rules-gop-controlled-215855916.html)
 <!-- feed end -->
 
 ### Onstream
