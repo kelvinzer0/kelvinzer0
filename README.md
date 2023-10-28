@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 28 - [‘Trial within a trial’: Trump’s strategy on verge of imploding](https://news.yahoo.com/trial-within-trial-trump-strategy-100013943.html)
 - Oct 28 - [Florida cop suspended after stopping runaway car with kids inside but no driver](https://news.yahoo.com/florida-cop-suspended-stopping-runaway-090000965.html)
 - Oct 28 - [Russian soldier says 8 Ukrainian fighters fended off hundreds of enemy troops from their fortified position, per leaked audio](https://news.yahoo.com/russian-soldier-says-8-ukrainian-085119346.html)
 - Oct 28 - [Cohen predicts outcome of Trump case after testimony](https://news.yahoo.com/cohen-predicts-outcome-trump-case-013438746.html)
 - Oct 28 - [Chicago woman found guilty in barbaric execution-style murder of Naperville man](https://news.yahoo.com/chicago-woman-found-guilty-barbaric-010249834.html)
-- Oct 28 - [David Bloom’s sudden death was caused by a ‘silent killer.’ Know the signs](https://news.yahoo.com/david-bloom-sudden-death-caused-172837774.html)
 <!-- feed end -->
 
 ### Onstream
