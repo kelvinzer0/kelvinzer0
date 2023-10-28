@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Maine shooting suspect's assault rifle, cell phone found](https://news.yahoo.com/maine-shooting-suspects-assault-rifle-000134943.html)
+- Oct 28 - [Tuberville claims wars in Ukraine, Gaza were ‘created’ by Democrats](https://news.yahoo.com/tuberville-claims-wars-ukraine-gaza-002505359.html)
 - Oct 27 - [Woman wins lawsuit vs. American Airlines over bizarre claim](https://www.thestreet.com/travel/woman-wins-lawsuit-vs-american-airlines-over-bizarre-claim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 27 - [Did Shooting Suspect Robert Card Get Away Along a River?](https://news.yahoo.com/did-shooting-suspect-robert-card-221504467.html)
+- Oct 27 - [Woman Undergoes Skin Removal Surgery After Taking Ozempic](https://news.yahoo.com/woman-undergoes-skin-removal-surgery-221801324.html)
 - Oct 27 - [Watch a Sea Lion Rip Out a Shark’s Throat](https://www.yahoo.com/lifestyle/watch-sea-lion-rip-shark-220000566.html)
 - Oct 27 - [Wisconsin judge rules that GOP-controlled Senate's vote to fire top elections official had no effect](https://news.yahoo.com/wisconsin-judge-rules-gop-controlled-215855916.html)
 <!-- feed end -->
