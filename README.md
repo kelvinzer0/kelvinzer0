@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 28 - [Donald Trump Jr Bizarrely Claimed This Presidential Candidate Is a ‘Democrat Plant’ That Could Ruin His Father’s Campaign](https://www.yahoo.com/entertainment/donald-trump-jr-bizarrely-claimed-153600311.html)
+- Oct 28 - [Meet the 36-Year-Old Scientist Who Designed a Foiling Boat That Could Reshape the Industry](https://www.yahoo.com/lifestyle/meet-36-old-scientist-designed-150000082.html)
+- Oct 28 - [Attorney for Man Linked to Crash That Left Four Pepperdine University Students Dead Said Client Wasn’t Going That Fast, Claims Evidence Proving Speed Was Result of ‘Road Rage’ Incident Is Being Ignored](https://news.yahoo.com/attorney-man-linked-crash-left-150000710.html)
 - Oct 28 - [Trump’s Lawyers Should Have Known Better](https://news.yahoo.com/trump-lawyers-known-better-122832512.html)
 - Oct 28 - [My family is moving to Phoenix, and I don’t like what I see](https://news.yahoo.com/family-moving-phoenix-don-t-120105002.html)
-- Oct 28 - [A pro-Russian former Ukrainian lawmaker who was lined up to be Putin's puppet leader in Kyiv was shot in Crimea](https://news.yahoo.com/pro-russian-former-ukrainian-lawmaker-110451578.html)
-- Oct 28 - [Hamas is seeking eight Gaza hostages at Russia's request - RIA](https://news.yahoo.com/hamas-seeking-eight-gaza-hostages-105801516.html)
-- Oct 28 - [‘Trial within a trial’: Trump’s strategy on verge of imploding](https://news.yahoo.com/trial-within-trial-trump-strategy-100013943.html)
 <!-- feed end -->
 
 ### Onstream
