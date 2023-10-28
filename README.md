@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 28 - [Pence quits the presidential race after struggling to gain traction. 'This is not my time,' he says](https://news.yahoo.com/former-vice-president-mike-pence-182854888.html)
 - Oct 28 - [Woman wins lawsuit vs. American Airlines over bizarre claim](https://www.thestreet.com/travel/woman-wins-lawsuit-vs-american-airlines-over-bizarre-claim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 28 - [Chicago man gets 88 years in prison for sexually assaulting suburban Hyatt employee at gunpoint](https://news.yahoo.com/chicago-man-gets-88-years-160121209.html)
 - Oct 28 - [Donald Trump Jr Bizarrely Claimed This Presidential Candidate Is a ‘Democrat Plant’ That Could Ruin His Father’s Campaign](https://www.yahoo.com/entertainment/donald-trump-jr-bizarrely-claimed-153600311.html)
 - Oct 28 - [Meet the 36-Year-Old Scientist Who Designed a Foiling Boat That Could Reshape the Industry](https://www.yahoo.com/lifestyle/meet-36-old-scientist-designed-150000082.html)
-- Oct 28 - [Attorney for Man Linked to Crash That Left Four Pepperdine University Students Dead Said Client Wasn’t Going That Fast, Claims Evidence Proving Speed Was Result of ‘Road Rage’ Incident Is Being Ignored](https://news.yahoo.com/attorney-man-linked-crash-left-150000710.html)
 <!-- feed end -->
 
 ### Onstream
