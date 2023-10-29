@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Oct 28 - [Video Shows Man Who Jumped Off Florida Cruise Boat and Drowned; Family’s Lawsuit Says Crew Member Spent Time Looking for a Life Ring Instead of Jumping In with Life Jacket](https://news.yahoo.com/video-shows-man-jumped-off-203457656.html)
 - Oct 28 - [Possible gang war in Wewoka has many frightened, officials finally talk](https://news.yahoo.com/possible-gang-war-wewoka-many-200105781.html)
 - Oct 28 - [Popular retail chain begins bankruptcy liquidation sales](https://www.thestreet.com/retailers/popular-retail-chain-begins-bankruptcy-liquidation-sales?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 28 - [Pence ends White House campaign after struggling to gain traction. 'This is not my time,' he says](https://news.yahoo.com/former-vice-president-mike-pence-182854888.html)
+- Oct 28 - [Woman wins lawsuit vs. American Airlines over bizarre claim](https://www.thestreet.com/travel/woman-wins-lawsuit-vs-american-airlines-over-bizarre-claim?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
