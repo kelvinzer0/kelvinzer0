@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 29 - [Southwest Airlines makes a big baggage change](https://www.thestreet.com/travel/southwest-airlines-makes-a-big-baggage-change?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 29 - [Shooting kills 2 and injures 18 victims in Florida street with hundreds of people nearby](https://news.yahoo.com/shooting-kills-2-injures-18-111931888.html)
+- Oct 29 - [Incredible ancient ruins resurface in Texas, but the reason has residents conflicted: ‘It’s actually kind of sad’](https://news.yahoo.com/incredible-ancient-ruins-resurface-texas-110000953.html)
 - Oct 29 - [Study reveals the shocking factor that’s caused a dramatic shift in Earth’s tilt: ‘I’m concerned and surprised’](https://news.yahoo.com/study-reveals-shocking-factor-caused-113000008.html)
-- Oct 29 - [Gazans break into aid centres taking flour, supplies, UN says](https://news.yahoo.com/gazans-break-aid-centres-taking-080458318.html)
-- Oct 29 - [Convicted 'serial squatter' may have schemed her last illegal stay after landlord fights back](https://news.yahoo.com/convicted-serial-squatter-may-schemed-080019640.html)
-- Oct 29 - [Colin Jost Drops A Harsh New Job Title On Trump In Blistering 'Weekend Update' Diss](https://www.yahoo.com/entertainment/colin-jost-drops-harsh-job-074148869.html)
-- Oct 29 - [17 Signs From This Week That Are Way, Way, Way, Way Too Funny Not To Look At](https://www.yahoo.com/lifestyle/17-signs-week-way-way-071603180.html)
+- Oct 29 - [13 States That Won't Tax Your Social Security, IRA, or 401(k) Retirement Income](https://www.fool.com/retirement/2023/10/29/13-states-wont-tax-social-security-ira-401k/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
