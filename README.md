@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 29 - [G7 calls for immediate repeal of bans on Japanese food, pressing China](https://news.yahoo.com/g7-calls-immediate-repeal-bans-063030402.html)
+- Oct 29 - [Israel strikes near Gaza's largest hospital after accusing Hamas of using it as a base](https://news.yahoo.com/israel-strikes-near-gazas-largest-061927461.html)
 - Oct 29 - [They went hunting for fossil fuels. What they found could help save the world](https://news.yahoo.com/went-hunting-fossil-fuels-found-050016262.html)
 - Oct 29 - [Moms for Liberty unexpectedly finds itself at the center of a heated suburban Indiana mayoral race](https://news.yahoo.com/moms-liberty-unexpectedly-finds-itself-040013815.html)
-- Oct 28 - [Video Shows Man Who Jumped Off Florida Cruise Boat and Drowned; Family’s Lawsuit Says Crew Member Spent Time Looking for a Life Ring Instead of Jumping In with Life Jacket](https://news.yahoo.com/video-shows-man-jumped-off-203457656.html)
-- Oct 28 - [Possible gang war in Wewoka has many frightened, officials finally talk](https://news.yahoo.com/possible-gang-war-wewoka-many-200105781.html)
-- Oct 28 - [Popular retail chain begins bankruptcy liquidation sales](https://www.thestreet.com/retailers/popular-retail-chain-begins-bankruptcy-liquidation-sales?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 29 - [Oregon coach Dan Lanning closes postgame with extended speech on gun violence in America after Maine shooting](https://sports.yahoo.com/oregon-coach-dan-lanning-closes-postgame-with-extended-speech-on-gun-violence-in-america-after-maine-shooting-003636434.html)
 <!-- feed end -->
 
 ### Onstream
