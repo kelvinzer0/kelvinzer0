@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 28 - [Angelina Jolie Says Hamas Terrorist Attacks in Israel ‘Cannot Justify the Innocent Lives Lost’ in Gaza](https://www.yahoo.com/entertainment/angelina-jolie-says-hamas-terrorist-224049775.html)
-- Oct 28 - [LA Councilman’s Aide Resigns After Holocaust Jokes About Amy Schumer](https://news.yahoo.com/la-councilman-aide-resigns-holocaust-222219884.html)
-- Oct 28 - [Trump tensions with Michael Cohen explode: Inside the courtroom](https://news.yahoo.com/trump-tensions-michael-cohen-explode-210000819.html)
+- Oct 29 - [Oregon coach Dan Lanning closes postgame with extended speech on gun violence in America after Maine shooting](https://sports.yahoo.com/oregon-coach-dan-lanning-closes-postgame-with-extended-speech-on-gun-violence-in-america-after-maine-shooting-003636434.html)
 - Oct 28 - [Video Shows Man Who Jumped Off Florida Cruise Boat and Drowned; Family’s Lawsuit Says Crew Member Spent Time Looking for a Life Ring Instead of Jumping In with Life Jacket](https://news.yahoo.com/video-shows-man-jumped-off-203457656.html)
 - Oct 28 - [Possible gang war in Wewoka has many frightened, officials finally talk](https://news.yahoo.com/possible-gang-war-wewoka-many-200105781.html)
+- Oct 28 - [Popular retail chain begins bankruptcy liquidation sales](https://www.thestreet.com/retailers/popular-retail-chain-begins-bankruptcy-liquidation-sales?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 28 - [Pence ends White House campaign after struggling to gain traction. 'This is not my time,' he says](https://news.yahoo.com/former-vice-president-mike-pence-182854888.html)
 <!-- feed end -->
 
 ### Onstream
