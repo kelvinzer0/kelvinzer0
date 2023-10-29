@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 29 - [US in threat to stop supplying rifles to Israel](https://news.yahoo.com/us-threat-stop-supplying-rifles-210839293.html)
+- Oct 29 - [US threatens to stop supplying rifles to Israel](https://news.yahoo.com/us-threat-stop-supplying-rifles-210839293.html)
 - Oct 29 - [Mob Storms Russian Airport Over Flight Landing From Israel: Reports](https://news.yahoo.com/mob-storms-russian-airport-over-210320337.html)
-- Oct 29 - [Hamas ambush Israel from tunnels near Gaza border](https://news.yahoo.com/israel-sends-more-troops-gaza-151453627.html)
+- Oct 29 - [Hamas ambushes Israel from tunnels near Gaza border](https://news.yahoo.com/israel-sends-more-troops-gaza-151453627.html)
+- Oct 29 - [Ohio social worker accused of having sex with 13-year-old client, faces witness intimidation charges](https://news.yahoo.com/ohio-social-worker-accused-having-200256814.html)
 - Oct 29 - [This Legal Expert Claims Eric Trump’s Courtroom Antics Will Have This Effect on the Ongoing Fraud Trial](https://www.yahoo.com/entertainment/legal-expert-claims-eric-trump-192400401.html)
-- Oct 29 - [Trump Is ‘Confused’ by Allies’ Guilty Pleas, Spokesperson Says](https://news.yahoo.com/trump-confused-allies-guilty-pleas-191516163.html)
 <!-- feed end -->
 
 ### Onstream
