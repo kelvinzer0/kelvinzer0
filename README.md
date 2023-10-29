@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 29 - [Gazans break into aid centres taking flour, supplies, UN says](https://news.yahoo.com/gazans-break-aid-centres-taking-080458318.html)
 - Oct 29 - [Colin Jost Drops A Harsh New Job Title On Trump In Blistering 'Weekend Update' Diss](https://www.yahoo.com/entertainment/colin-jost-drops-harsh-job-074148869.html)
-- Oct 29 - [Thousands break into UN aid warehouses in Gaza in a sign of growing desperation as war escalates](https://news.yahoo.com/israel-strikes-near-gazas-largest-061927461.html)
+- Oct 29 - [G7 calls for immediate repeal of bans on Japanese food, pressing China](https://news.yahoo.com/g7-calls-immediate-repeal-bans-063030402.html)
+- Oct 29 - [Thousands loot UN aid warehouses in Gaza as desperation grows and Israel widens ground offensive](https://news.yahoo.com/israel-strikes-near-gazas-largest-061927461.html)
 - Oct 29 - [They went hunting for fossil fuels. What they found could help save the world](https://news.yahoo.com/went-hunting-fossil-fuels-found-050016262.html)
-- Oct 29 - [Moms for Liberty unexpectedly finds itself at the center of a heated suburban Indiana mayoral race](https://news.yahoo.com/moms-liberty-unexpectedly-finds-itself-040013815.html)
-- Oct 29 - [Oregon coach Dan Lanning closes postgame with extended speech on gun violence in America after Maine shooting](https://sports.yahoo.com/oregon-coach-dan-lanning-closes-postgame-with-extended-speech-on-gun-violence-in-america-after-maine-shooting-003636434.html)
 <!-- feed end -->
 
 ### Onstream
