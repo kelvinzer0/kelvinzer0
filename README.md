@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 29 - [Matthew Perry, 'Friends' Star, Found Dead At 54](https://www.yahoo.com/entertainment/matthew-perry-friends-star-found-014534369.html)
+- Oct 29 - [Belarus' Lukashenko says Ukraine-Russia war at stalemate, urges talks](https://news.yahoo.com/belarus-lukashenko-says-ukraine-russia-013627947.html)
 - Oct 29 - [Oregon coach Dan Lanning closes postgame with extended speech on gun violence in America after Maine shooting](https://sports.yahoo.com/oregon-coach-dan-lanning-closes-postgame-with-extended-speech-on-gun-violence-in-america-after-maine-shooting-003636434.html)
 - Oct 28 - [Video Shows Man Who Jumped Off Florida Cruise Boat and Drowned; Family’s Lawsuit Says Crew Member Spent Time Looking for a Life Ring Instead of Jumping In with Life Jacket](https://news.yahoo.com/video-shows-man-jumped-off-203457656.html)
 - Oct 28 - [Possible gang war in Wewoka has many frightened, officials finally talk](https://news.yahoo.com/possible-gang-war-wewoka-many-200105781.html)
