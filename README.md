@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 29 - [Christie says Meadows immunity deal makes Trump Jan. 6 case ‘much tougher’](https://news.yahoo.com/christie-says-meadows-immunity-deal-151134555.html)
+- Oct 29 - [Thousands rally in Pakistan against Israel's bombing in Gaza, chanting anti-American slogans](https://news.yahoo.com/thousands-rally-pakistan-against-israels-140121181.html)
 - Oct 29 - [Southwest Airlines makes a big baggage change](https://www.thestreet.com/travel/southwest-airlines-makes-a-big-baggage-change?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Oct 29 - [Shooting kills 2 and injures 18 victims in Florida street with hundreds of people nearby](https://news.yahoo.com/shooting-kills-2-injures-18-111931888.html)
 - Oct 29 - [Incredible ancient ruins resurface in Texas, but the reason has residents conflicted: ‘It’s actually kind of sad’](https://news.yahoo.com/incredible-ancient-ruins-resurface-texas-110000953.html)
-- Oct 29 - [Study reveals the shocking factor that’s caused a dramatic shift in Earth’s tilt: ‘I’m concerned and surprised’](https://news.yahoo.com/study-reveals-shocking-factor-caused-113000008.html)
-- Oct 29 - [Israel pounds Gaza as UN warns order 'starting to break down'](https://news.yahoo.com/israel-pounds-gaza-un-warns-085846649.html)
 <!-- feed end -->
 
 ### Onstream
