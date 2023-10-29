@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 29 - [US in threat to stop supplying rifles to Israel](https://news.yahoo.com/us-threat-stop-supplying-rifles-210839293.html)
+- Oct 29 - [Mob Storms Russian Airport Over Flight Landing From Israel: Reports](https://news.yahoo.com/mob-storms-russian-airport-over-210320337.html)
+- Oct 29 - [Hamas ambush Israel from tunnels near Gaza border](https://news.yahoo.com/israel-sends-more-troops-gaza-151453627.html)
 - Oct 29 - [This Legal Expert Claims Eric Trump’s Courtroom Antics Will Have This Effect on the Ongoing Fraud Trial](https://www.yahoo.com/entertainment/legal-expert-claims-eric-trump-192400401.html)
-- Oct 29 - [In Mississippi, most voters will have no choice about who represents them in the Legislature](https://news.yahoo.com/mississippi-most-voters-no-choice-182055649.html)
-- Oct 29 - [Thousands rally in Pakistan against Israel's bombing in Gaza, chanting anti-American slogans](https://news.yahoo.com/thousands-rally-pakistan-against-israels-140121181.html)
-- Oct 29 - [Southwest Airlines makes a big baggage change](https://www.thestreet.com/travel/southwest-airlines-makes-a-big-baggage-change?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 29 - [Shooting kills 2 and injures 18 victims in Florida street with hundreds of people nearby](https://news.yahoo.com/shooting-kills-2-injures-18-111931888.html)
+- Oct 29 - [Trump Is ‘Confused’ by Allies’ Guilty Pleas, Spokesperson Says](https://news.yahoo.com/trump-confused-allies-guilty-pleas-191516163.html)
 <!-- feed end -->
 
 ### Onstream
