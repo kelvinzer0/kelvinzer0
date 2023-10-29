@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Oct 29 - [This Legal Expert Claims Eric Trump’s Courtroom Antics Will Have This Effect on the Ongoing Fraud Trial](https://www.yahoo.com/entertainment/legal-expert-claims-eric-trump-192400401.html)
-- Oct 29 - [15 hurt, 2 critically in mass shooting at Halloween party in North Lawndale](https://news.yahoo.com/15-hurt-2-critically-mass-112300994.html)
 - Oct 29 - [In Mississippi, most voters will have no choice about who represents them in the Legislature](https://news.yahoo.com/mississippi-most-voters-no-choice-182055649.html)
-- Oct 29 - [Florida's insurance crisis poses yet another obstacle for homebuyers there](https://finance.yahoo.com/news/floridas-insurance-crisis-poses-yet-another-obstacle-for-homebuyers-there-160148941.html)
 - Oct 29 - [Thousands rally in Pakistan against Israel's bombing in Gaza, chanting anti-American slogans](https://news.yahoo.com/thousands-rally-pakistan-against-israels-140121181.html)
+- Oct 29 - [Southwest Airlines makes a big baggage change](https://www.thestreet.com/travel/southwest-airlines-makes-a-big-baggage-change?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 29 - [Shooting kills 2 and injures 18 victims in Florida street with hundreds of people nearby](https://news.yahoo.com/shooting-kills-2-injures-18-111931888.html)
 <!-- feed end -->
 
 ### Onstream
