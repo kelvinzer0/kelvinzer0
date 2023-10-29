@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 29 - [This Legal Expert Claims Eric Trump’s Courtroom Antics Will Have This Effect on the Ongoing Fraud Trial](https://www.yahoo.com/entertainment/legal-expert-claims-eric-trump-192400401.html)
 - Oct 29 - [15 hurt, 2 critically in mass shooting at Halloween party in North Lawndale](https://news.yahoo.com/15-hurt-2-critically-mass-112300994.html)
-- Oct 29 - [Apple's upgraded 2nd-gen AirPods Pro with USB-C are $50 off right now](https://news.yahoo.com/apples-upgraded-2nd-gen-airpods-pro-with-usb-c-are-50-off-right-now-182421286.html)
 - Oct 29 - [In Mississippi, most voters will have no choice about who represents them in the Legislature](https://news.yahoo.com/mississippi-most-voters-no-choice-182055649.html)
-- Oct 29 - [Christie says Meadows immunity deal makes Trump Jan. 6 case ‘much tougher’](https://news.yahoo.com/christie-says-meadows-immunity-deal-151134555.html)
+- Oct 29 - [Florida's insurance crisis poses yet another obstacle for homebuyers there](https://finance.yahoo.com/news/floridas-insurance-crisis-poses-yet-another-obstacle-for-homebuyers-there-160148941.html)
 - Oct 29 - [Thousands rally in Pakistan against Israel's bombing in Gaza, chanting anti-American slogans](https://news.yahoo.com/thousands-rally-pakistan-against-israels-140121181.html)
 <!-- feed end -->
 
