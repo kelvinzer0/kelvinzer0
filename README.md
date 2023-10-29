@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 29 - [The Trump era has changed the politics of local elections in Georgia, a pivotal 2024 battleground](https://news.yahoo.com/trump-era-changed-politics-local-112325735.html)
 - Oct 29 - [Study reveals the shocking factor that’s caused a dramatic shift in Earth’s tilt: ‘I’m concerned and surprised’](https://news.yahoo.com/study-reveals-shocking-factor-caused-113000008.html)
 - Oct 29 - [Gazans break into aid centres taking flour, supplies, UN says](https://news.yahoo.com/gazans-break-aid-centres-taking-080458318.html)
 - Oct 29 - [Convicted 'serial squatter' may have schemed her last illegal stay after landlord fights back](https://news.yahoo.com/convicted-serial-squatter-may-schemed-080019640.html)
 - Oct 29 - [Colin Jost Drops A Harsh New Job Title On Trump In Blistering 'Weekend Update' Diss](https://www.yahoo.com/entertainment/colin-jost-drops-harsh-job-074148869.html)
+- Oct 29 - [17 Signs From This Week That Are Way, Way, Way, Way Too Funny Not To Look At](https://www.yahoo.com/lifestyle/17-signs-week-way-way-071603180.html)
 <!-- feed end -->
 
 ### Onstream
