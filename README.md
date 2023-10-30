@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 30 - [How high interest rates are impacting REITs](https://finance.yahoo.com/video/high-interest-rates-impacting-reits-213144500.html)
-- Oct 30 - [Video shows tank firing in direction of a car in the Gaza Strip](https://news.yahoo.com/video-shows-tank-firing-direction-210616661.html)
+- Oct 30 - [Some 5,000 migrants set out on foot from Mexico's southern border, tired of long waits for visas](https://news.yahoo.com/5-000-migrants-set-foot-210949448.html)
 - Oct 30 - [A North Carolina woman and her dad enter pleas in the beating death of her Irish husband](https://news.yahoo.com/north-carolina-woman-her-dad-210607493.html)
-- Oct 30 - [A record number of Indians are illegally entering the US through Mexico](https://news.yahoo.com/record-number-indians-illegally-entering-205719055.html)
-- Oct 30 - [Mom is stunned her child’s teacher won’t allow chapstick in the classroom—’suspend her honey’](https://www.yahoo.com/lifestyle/mom-stunned-her-child-teacher-205536072.html)
+- Oct 30 - [Ex-North Dakota Lawmaker Charged With Flying to Prague to Rape Minor](https://news.yahoo.com/ex-north-dakota-lawmaker-charged-203108559.html)
+- Oct 30 - [Boris Johnson asked: ‘Why are we destroying the economy for people who will die anyway?’ during Covid](https://news.yahoo.com/boris-johnson-asked-why-destroying-201751855.html)
+- Oct 30 - [MAGA Mike Johnson Once Warned About Dangers of Living Under Democracy](https://news.yahoo.com/maga-mike-johnson-once-warned-194753859.html)
 <!-- feed end -->
 
 ### Onstream
