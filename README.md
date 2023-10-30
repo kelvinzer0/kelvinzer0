@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [German-Israeli woman snatched by Hamas at music festival is dead, Israel says](https://news.yahoo.com/german-israeli-woman-snatched-hamas-123629268.html)
 - Oct 30 - [US military begins Japan seafood purchases](https://news.yahoo.com/us-military-begins-japan-seafood-115415199.html)
 - Oct 30 - [‘Agitated’ man flashed gun at driver, not realizing it was Florida trooper, cops say](https://news.yahoo.com/agitated-man-flashed-gun-driver-114238882.html)
+- Oct 30 - [Google Brain cofounder says Big Tech companies are lying about the risks of AI wiping out humanity because they want to dominate the market](https://news.yahoo.com/google-brain-cofounder-says-big-113049941.html)
 - Oct 30 - [MSNBC's Jen Psaki Raises Hell With Trump Question For Mike Johnson](https://news.yahoo.com/msnbcs-jen-psaki-raises-hell-104958310.html)
-- Oct 30 - [German-Israeli Shani Louk is confirmed dead, 3 weeks after Hamas captured her and paraded her through Gaza in her underwear](https://news.yahoo.com/german-israeli-shani-louk-confirmed-102851187.html)
-- Oct 30 - [Opinion: He's a Trump supporter who threatened officials over 2020 election. I asked why.](https://news.yahoo.com/opinion-hes-trump-supporter-threatened-100207147.html)
 <!-- feed end -->
 
 ### Onstream
