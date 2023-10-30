@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 29 - [Today's white working-class young men who turn to racist violence are part of a long, sad American history](https://news.yahoo.com/todays-white-working-class-young-122245329.html)
 - Oct 29 - [Judge reinstates gag order in Trump federal election case](https://news.yahoo.com/judge-reinstates-gag-order-trump-232527774.html)
 - Oct 29 - [Trump Forgets Which City He Is in During Iowa Campaign Speech](https://news.yahoo.com/trump-forgets-city-during-iowa-224540652.html)
 - Oct 29 - [Invading Russian troops murder family in occupied Volnovakha for refusing to give up home, Ombudsman says](https://news.yahoo.com/invading-russian-troops-murder-family-222800853.html)
 - Oct 29 - [US threatens to stop supplying rifles to Israel](https://news.yahoo.com/us-threat-stop-supplying-rifles-210839293.html)
-- Oct 29 - [Mob Storms Russian Airport Over Flight Landing From Israel: Reports](https://news.yahoo.com/mob-storms-russian-airport-over-210320337.html)
 <!-- feed end -->
 
 ### Onstream
