@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [Hamas releases new hostage video, Netanyahu denounces "cruel propaganda"](https://news.yahoo.com/hamas-releases-hostage-video-netanyahu-153539279.html)
+- Oct 30 - [Outraised and embattled, Lauren Boebert heads back to Colorado with a revamped campaign strategy](https://news.yahoo.com/outraised-embattled-lauren-boebert-heads-152204965.html)
+- Oct 30 - [Man Arrested For Renting $1M In Cars, Washing The Titles And Reselling Them](https://news.yahoo.com/man-arrested-renting-1m-cars-151500011.html)
 - Oct 30 - [Ground battles rage in Gaza as concern grows for hospitals](https://news.yahoo.com/ground-battles-rage-gaza-concern-145033888.html)
 - Oct 30 - [Treasury Dept. to issue $114B in bonds amid elevated yields](https://finance.yahoo.com/video/treasury-dept-issue-114b-bonds-144530148.html)
-- Oct 30 - [Trump rips Barr after remark about ‘limited’ verbal skills](https://news.yahoo.com/trump-rips-barr-remark-limited-140103410.html)
-- Oct 30 - [Autopsy Reportedly Reveals Body of Pregnant Model Maleesa Mooney Was Found In Refrigerator In Disturbing Downtown Los Angeles Murder](https://news.yahoo.com/autopsy-reportedly-reveals-body-pregnant-140000670.html)
-- Oct 30 - [China military says Philippine boat 'illegally entered' waters near Scarborough Shoal](https://news.yahoo.com/china-military-says-philippine-boat-132252317.html)
 <!-- feed end -->
 
 ### Onstream
