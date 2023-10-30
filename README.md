@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 30 - [Hamas releases new hostage video, Netanyahu denounces "cruel propaganda"](https://news.yahoo.com/hamas-releases-hostage-video-netanyahu-153539279.html)
-- Oct 30 - [Outraised and embattled, Lauren Boebert heads back to Colorado with a revamped campaign strategy](https://news.yahoo.com/outraised-embattled-lauren-boebert-heads-152204965.html)
-- Oct 30 - [Man Arrested For Renting $1M In Cars, Washing The Titles And Reselling Them](https://news.yahoo.com/man-arrested-renting-1m-cars-151500011.html)
-- Oct 30 - [Ground battles rage in Gaza as concern grows for hospitals](https://news.yahoo.com/ground-battles-rage-gaza-concern-145033888.html)
-- Oct 30 - [Treasury Dept. to issue $114B in bonds amid elevated yields](https://finance.yahoo.com/video/treasury-dept-issue-114b-bonds-144530148.html)
+- Oct 30 - [Federal charge says former North Dakota lawmaker traveled to Prague with intent to rape minor](https://news.yahoo.com/federal-charge-says-former-north-164102570.html)
+- Oct 30 - [Scallop wars: US helps Japan with China fish ban](https://finance.yahoo.com/video/scallop-wars-us-helps-japan-161528406.html)
+- Oct 30 - [Federal agents tackle Jan. 6 defendant during court hearing](https://news.yahoo.com/federal-agents-tackle-jan-6-161300596.html)
+- Oct 30 - [The MAGA crazies can't be talked off the ledge. They could keep Biden in the White House](https://news.yahoo.com/maga-crazies-cant-talked-off-160244476.html)
+- Oct 30 - [Kelly Johnson, who is married to House Speaker Mike Johnson, practices an ancient form of Christian counseling that classifies people into 'choleric', 'phlegmatic,' and other personality types purportedly ordained by God](https://news.yahoo.com/kelly-johnson-married-house-speaker-154047595.html)
 <!-- feed end -->
 
 ### Onstream
