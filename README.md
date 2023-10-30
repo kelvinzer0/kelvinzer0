@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [UPDATE 1-China's No.2 military leader vows to develop military ties with US at forum](https://finance.yahoo.com/news/1-chinas-no-2-military-022539626.html)
+- Oct 30 - [China's No.2 military leader vows to develop military ties with US at forum](https://news.yahoo.com/countries-see-world-zero-sum-013650605.html)
 - Oct 29 - [Today's white working-class young men who turn to racist violence are part of a long, sad American history](https://news.yahoo.com/todays-white-working-class-young-122245329.html)
 - Oct 29 - [Judge reinstates gag order in Trump federal election case](https://news.yahoo.com/judge-reinstates-gag-order-trump-232527774.html)
 - Oct 29 - [Trump Forgets Which City He Is in During Iowa Campaign Speech](https://news.yahoo.com/trump-forgets-city-during-iowa-224540652.html)
-- Oct 29 - [Invading Russian troops murder family in occupied Volnovakha for refusing to give up home, Ombudsman says](https://news.yahoo.com/invading-russian-troops-murder-family-222800853.html)
-- Oct 29 - [US threatens to stop supplying rifles to Israel](https://news.yahoo.com/us-threat-stop-supplying-rifles-210839293.html)
 <!-- feed end -->
 
 ### Onstream
