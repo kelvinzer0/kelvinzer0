@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [China military says Philippine boat 'illegally entered' waters near Scarborough Shoal](https://news.yahoo.com/china-military-says-philippine-boat-132252317.html)
+- Oct 30 - [UAW reaches deal with GM, ending coordinated strike against Detroit automakers](https://news.yahoo.com/gm-reaches-tentative-deal-uaw-131907014.html)
+- Oct 30 - [A Japan court says North Korea is responsible for the abuses of people lured there by false promises](https://news.yahoo.com/japan-court-says-north-korea-124611476.html)
 - Oct 30 - [German-Israeli woman snatched by Hamas at music festival is dead, Israel says](https://news.yahoo.com/german-israeli-woman-snatched-hamas-123629268.html)
 - Oct 30 - [US military begins Japan seafood purchases](https://news.yahoo.com/us-military-begins-japan-seafood-115415199.html)
-- Oct 30 - [‘Agitated’ man flashed gun at driver, not realizing it was Florida trooper, cops say](https://news.yahoo.com/agitated-man-flashed-gun-driver-114238882.html)
-- Oct 30 - [Google Brain cofounder says Big Tech companies are lying about the risks of AI wiping out humanity because they want to dominate the market](https://news.yahoo.com/google-brain-cofounder-says-big-113049941.html)
-- Oct 30 - [MSNBC's Jen Psaki Raises Hell With Trump Question For Mike Johnson](https://news.yahoo.com/msnbcs-jen-psaki-raises-hell-104958310.html)
 <!-- feed end -->
 
 ### Onstream
