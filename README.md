@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [Kansas can’t enforce new law on abortion pills or make patients wait 24 hours, judge rules](https://news.yahoo.com/kansas-t-enforce-law-abortion-201102223.html)
 - Oct 30 - [A man was shoved out of campaign event after asking John Fetterman why he doesn't support a ceasefire in Gaza](https://news.yahoo.com/man-shoved-campaign-event-asking-191009465.html)
-- Oct 30 - [Trump, 3 of his children poised to testify at New York fraud trial](https://news.yahoo.com/trump-3-children-poised-testify-190206474.html)
+- Oct 30 - [Fish farm threatens to wreak havoc as thousands of fish escape into natural waters: ‘An environmental catastrophe’](https://news.yahoo.com/fish-farm-threatens-wreak-havoc-190000265.html)
 - Oct 30 - [How graphic pro-Israel ads appeared in kids’ video games](https://news.yahoo.com/graphic-pro-israel-ads-appeared-185810466.html)
-- Oct 30 - [An Israeli ministry, in a 'concept paper,' proposes transferring Gaza civilians to Egypt's Sinai](https://news.yahoo.com/israeli-ministry-concept-paper-proposes-185149921.html)
-- Oct 30 - [Former Ford CEO has a blunt warning for workers following the conclusion of historic auto strikes](https://www.thestreet.com/automotive/former-ford-ceo-has-a-blunt-warning-for-workers-following-the-conclusion-of-historic-auto-strikes?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 30 - [Judge wants to know why men tied to Gov. Whitmer kidnap plot were moved to federal prisons](https://news.yahoo.com/judge-wants-know-why-men-185807845.html)
 <!-- feed end -->
 
 ### Onstream
