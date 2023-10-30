@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [Ground battles rage in Gaza as concern grows for hospitals](https://news.yahoo.com/ground-battles-rage-gaza-concern-145033888.html)
+- Oct 30 - [Treasury Dept. to issue $114B in bonds amid elevated yields](https://finance.yahoo.com/video/treasury-dept-issue-114b-bonds-144530148.html)
+- Oct 30 - [Trump rips Barr after remark about ‘limited’ verbal skills](https://news.yahoo.com/trump-rips-barr-remark-limited-140103410.html)
+- Oct 30 - [Autopsy Reportedly Reveals Body of Pregnant Model Maleesa Mooney Was Found In Refrigerator In Disturbing Downtown Los Angeles Murder](https://news.yahoo.com/autopsy-reportedly-reveals-body-pregnant-140000670.html)
 - Oct 30 - [China military says Philippine boat 'illegally entered' waters near Scarborough Shoal](https://news.yahoo.com/china-military-says-philippine-boat-132252317.html)
-- Oct 30 - [UAW reaches deal with GM, ending coordinated strike against Detroit automakers](https://news.yahoo.com/gm-reaches-tentative-deal-uaw-131907014.html)
-- Oct 30 - [A Japan court says North Korea is responsible for the abuses of people lured there by false promises](https://news.yahoo.com/japan-court-says-north-korea-124611476.html)
-- Oct 30 - [German-Israeli woman snatched by Hamas at music festival is dead, Israel says](https://news.yahoo.com/german-israeli-woman-snatched-hamas-123629268.html)
-- Oct 30 - [US military begins Japan seafood purchases](https://news.yahoo.com/us-military-begins-japan-seafood-115415199.html)
 <!-- feed end -->
 
 ### Onstream
