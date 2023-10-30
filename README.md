@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 30 - [She was told her grandfather had saved a Black man. Then she dug up the ugly truth](https://www.yahoo.com/entertainment/she-told-her-grandfather-had-100006556.html)
-- Oct 30 - [China, US should have 'objective' understanding of strategic intention - Chinese foreign ministry](https://news.yahoo.com/china-us-objective-understanding-strategic-083718711.html)
-- Oct 30 - [Pentagon announces new nuclear bomb 24 times more powerful than one dropped on Japan](https://news.yahoo.com/pentagon-announces-nuclear-bomb-24-080039126.html)
-- Oct 30 - [Bodies of Lianne, Noiya and Yahel Sharabi were found 'cuddled together'](https://news.yahoo.com/bodies-lianne-noiya-yahel-sharabi-074248435.html)
-- Oct 30 - [Donald Trump Says Melania Trump Hates Him Doing This, But He Ignores Her](https://news.yahoo.com/donald-trump-says-melania-trump-071531959.html)
+- Oct 30 - [US military begins Japan seafood purchases](https://news.yahoo.com/us-military-begins-japan-seafood-115415199.html)
+- Oct 30 - [‘Agitated’ man flashed gun at driver, not realizing it was Florida trooper, cops say](https://news.yahoo.com/agitated-man-flashed-gun-driver-114238882.html)
+- Oct 30 - [MSNBC's Jen Psaki Raises Hell With Trump Question For Mike Johnson](https://news.yahoo.com/msnbcs-jen-psaki-raises-hell-104958310.html)
+- Oct 30 - [German-Israeli Shani Louk is confirmed dead, 3 weeks after Hamas captured her and paraded her through Gaza in her underwear](https://news.yahoo.com/german-israeli-shani-louk-confirmed-102851187.html)
+- Oct 30 - [Opinion: He's a Trump supporter who threatened officials over 2020 election. I asked why.](https://news.yahoo.com/opinion-hes-trump-supporter-threatened-100207147.html)
 <!-- feed end -->
 
 ### Onstream
