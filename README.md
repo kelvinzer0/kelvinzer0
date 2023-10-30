@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [Donald Trump Says Melania Trump Hates Him Doing This, But He Ignores Her](https://news.yahoo.com/donald-trump-says-melania-trump-071531959.html)
 - Oct 30 - [Exclusive-US military begins Japan seafood purchases to counter China ban](https://news.yahoo.com/exclusive-us-military-begins-japan-062207032.html)
 - Oct 30 - [Jake Tapper Drops Blistering S-Bomb On Marjorie Taylor Greene On Live TV](https://news.yahoo.com/jake-tapper-drops-blistering-bomb-061221245.html)
 - Oct 30 - [At China military forum, Russian defense minister accuses the US of fueling geopolitical tensions](https://news.yahoo.com/china-military-forum-russian-defense-042847135.html)
 - Oct 30 - [As economy falters, more Chinese migrants take a perilous journey to the US border to seek asylum](https://news.yahoo.com/economy-falters-more-chinese-migrants-042452027.html)
-- Oct 30 - [Russia's Shoigu accuses West of seeking to expand Ukraine war to Asia-Pacific](https://news.yahoo.com/russias-shoigu-accuses-west-seeking-031403195.html)
 <!-- feed end -->
 
 ### Onstream
