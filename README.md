@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [A man was shoved out of campaign event after asking John Fetterman why he doesn't support a ceasefire in Gaza](https://news.yahoo.com/man-shoved-campaign-event-asking-191009465.html)
+- Oct 30 - [Trump, 3 of his children poised to testify at New York fraud trial](https://news.yahoo.com/trump-3-children-poised-testify-190206474.html)
+- Oct 30 - [How graphic pro-Israel ads appeared in kids’ video games](https://news.yahoo.com/graphic-pro-israel-ads-appeared-185810466.html)
+- Oct 30 - [An Israeli ministry, in a 'concept paper,' proposes transferring Gaza civilians to Egypt's Sinai](https://news.yahoo.com/israeli-ministry-concept-paper-proposes-185149921.html)
 - Oct 30 - [Former Ford CEO has a blunt warning for workers following the conclusion of historic auto strikes](https://www.thestreet.com/automotive/former-ford-ceo-has-a-blunt-warning-for-workers-following-the-conclusion-of-historic-auto-strikes?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Oct 30 - [Netanyahu believes Israeli incursions into Gaza creates possibility of freeing hostages](https://news.yahoo.com/netanyahu-believes-israeli-incursions-gaza-182917102.html)
-- Oct 30 - [US Supreme Court leans toward Alabama in dispute over vehicles seized by police](https://news.yahoo.com/us-supreme-court-leans-toward-181020782.html)
-- Oct 30 - [Israel confirms rescue of soldier kidnapped by Hamas; skull of another hostage found](https://news.yahoo.com/israel-confirms-release-soldier-kidnapped-174619302.html)
-- Oct 30 - [US Marshals had to clear a courtroom and rush the judge out after a Capitol rioter started brawling with security trying to handcuff him: reports](https://news.yahoo.com/us-marshals-had-clear-courtroom-173351538.html)
 <!-- feed end -->
 
 ### Onstream
