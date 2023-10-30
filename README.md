@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [As economy falters, more Chinese migrants take a perilous journey to the US border to seek asylum](https://news.yahoo.com/economy-falters-more-chinese-migrants-042452027.html)
 - Oct 30 - [Russia's Shoigu accuses West of seeking to expand Ukraine war to Asia-Pacific](https://news.yahoo.com/russias-shoigu-accuses-west-seeking-031403195.html)
-- Oct 30 - [UPDATE 1-China's No.2 military leader vows to develop military ties with US at forum](https://finance.yahoo.com/news/1-chinas-no-2-military-022539626.html)
 - Oct 30 - [Johnson vows to move $14.5 billion Israel aid package, setting up showdown with Senate](https://news.yahoo.com/johnson-vows-move-14-5-020643707.html)
 - Oct 30 - [China and Russia take aim at US at Chinese military forum](https://news.yahoo.com/countries-see-world-zero-sum-013650605.html)
-- Oct 29 - [Judge reinstates gag order in Trump federal election case](https://news.yahoo.com/judge-reinstates-gag-order-trump-232527774.html)
+- Oct 30 - [California Ritz-Carlton sued after woman allegedly served 'semen-contaminated' water: report](https://news.yahoo.com/california-ritz-carlton-sued-woman-003201179.html)
 <!-- feed end -->
 
 ### Onstream
