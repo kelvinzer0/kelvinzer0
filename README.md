@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 30 - [Federal charge says former North Dakota lawmaker traveled to Prague with intent to rape minor](https://news.yahoo.com/federal-charge-says-former-north-164102570.html)
-- Oct 30 - [Scallop wars: US helps Japan with China fish ban](https://finance.yahoo.com/video/scallop-wars-us-helps-japan-161528406.html)
-- Oct 30 - [Federal agents tackle Jan. 6 defendant during court hearing](https://news.yahoo.com/federal-agents-tackle-jan-6-161300596.html)
-- Oct 30 - [The MAGA crazies can't be talked off the ledge. They could keep Biden in the White House](https://news.yahoo.com/maga-crazies-cant-talked-off-160244476.html)
-- Oct 30 - [Kelly Johnson, who is married to House Speaker Mike Johnson, practices an ancient form of Christian counseling that classifies people into 'choleric', 'phlegmatic,' and other personality types purportedly ordained by God](https://news.yahoo.com/kelly-johnson-married-house-speaker-154047595.html)
+- Oct 30 - [Mother returns home where Hamas took her children](https://news.yahoo.com/mother-returns-home-where-hamas-175049681.html)
+- Oct 30 - [Stock market news today: US stocks rise as investors await Fed decision, Apple earnings](https://finance.yahoo.com/news/stock-market-news-today-us-stocks-rise-as-investors-await-fed-decision-apple-earnings-163736259.html)
+- Oct 30 - [Feds Tackle Capitol Rioter as He Attempts to Flee Court](https://news.yahoo.com/feds-tackle-capitol-rioter-attempts-173545433.html)
+- Oct 30 - [Shani Louk, 23-year-old kidnapped by Hamas from music festival, found dead, Israel says](https://news.yahoo.com/shani-louk-23-old-kidnapped-114502455.html)
+- Oct 30 - [Tesla falls as production cut by battery supplier Panasonic fans EV demand fears](https://finance.yahoo.com/news/tesla-falls-production-cut-battery-170246262.html)
 <!-- feed end -->
 
 ### Onstream
