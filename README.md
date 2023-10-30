@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 30 - [Kansas can’t enforce new law on abortion pills or make patients wait 24 hours, judge rules](https://news.yahoo.com/kansas-t-enforce-law-abortion-201102223.html)
-- Oct 30 - [A man was shoved out of campaign event after asking John Fetterman why he doesn't support a ceasefire in Gaza](https://news.yahoo.com/man-shoved-campaign-event-asking-191009465.html)
-- Oct 30 - [Fish farm threatens to wreak havoc as thousands of fish escape into natural waters: ‘An environmental catastrophe’](https://news.yahoo.com/fish-farm-threatens-wreak-havoc-190000265.html)
-- Oct 30 - [How graphic pro-Israel ads appeared in kids’ video games](https://news.yahoo.com/graphic-pro-israel-ads-appeared-185810466.html)
-- Oct 30 - [Judge wants to know why men tied to Gov. Whitmer kidnap plot were moved to federal prisons](https://news.yahoo.com/judge-wants-know-why-men-185807845.html)
+- Oct 30 - [How high interest rates are impacting REITs](https://finance.yahoo.com/video/high-interest-rates-impacting-reits-213144500.html)
+- Oct 30 - [Video shows tank firing in direction of a car in the Gaza Strip](https://news.yahoo.com/video-shows-tank-firing-direction-210616661.html)
+- Oct 30 - [A North Carolina woman and her dad enter pleas in the beating death of her Irish husband](https://news.yahoo.com/north-carolina-woman-her-dad-210607493.html)
+- Oct 30 - [A record number of Indians are illegally entering the US through Mexico](https://news.yahoo.com/record-number-indians-illegally-entering-205719055.html)
+- Oct 30 - [Mom is stunned her child’s teacher won’t allow chapstick in the classroom—’suspend her honey’](https://www.yahoo.com/lifestyle/mom-stunned-her-child-teacher-205536072.html)
 <!-- feed end -->
 
 ### Onstream
