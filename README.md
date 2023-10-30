@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 30 - [Mother returns home where Hamas took her children](https://news.yahoo.com/mother-returns-home-where-hamas-175049681.html)
-- Oct 30 - [Stock market news today: US stocks rise as investors await Fed decision, Apple earnings](https://finance.yahoo.com/news/stock-market-news-today-us-stocks-rise-as-investors-await-fed-decision-apple-earnings-163736259.html)
-- Oct 30 - [Feds Tackle Capitol Rioter as He Attempts to Flee Court](https://news.yahoo.com/feds-tackle-capitol-rioter-attempts-173545433.html)
-- Oct 30 - [Shani Louk, 23-year-old kidnapped by Hamas from music festival, found dead, Israel says](https://news.yahoo.com/shani-louk-23-old-kidnapped-114502455.html)
-- Oct 30 - [Tesla falls as production cut by battery supplier Panasonic fans EV demand fears](https://finance.yahoo.com/news/tesla-falls-production-cut-battery-170246262.html)
+- Oct 30 - [Former Ford CEO has a blunt warning for workers following the conclusion of historic auto strikes](https://www.thestreet.com/automotive/former-ford-ceo-has-a-blunt-warning-for-workers-following-the-conclusion-of-historic-auto-strikes?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Oct 30 - [Netanyahu believes Israeli incursions into Gaza creates possibility of freeing hostages](https://news.yahoo.com/netanyahu-believes-israeli-incursions-gaza-182917102.html)
+- Oct 30 - [US Supreme Court leans toward Alabama in dispute over vehicles seized by police](https://news.yahoo.com/us-supreme-court-leans-toward-181020782.html)
+- Oct 30 - [Israel confirms rescue of soldier kidnapped by Hamas; skull of another hostage found](https://news.yahoo.com/israel-confirms-release-soldier-kidnapped-174619302.html)
+- Oct 30 - [US Marshals had to clear a courtroom and rush the judge out after a Capitol rioter started brawling with security trying to handcuff him: reports](https://news.yahoo.com/us-marshals-had-clear-courtroom-173351538.html)
 <!-- feed end -->
 
 ### Onstream
