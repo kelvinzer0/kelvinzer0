@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 31 - [Carlsberg CEO: Russia has 'stolen our business'](https://finance.yahoo.com/news/carlsberg-ceo-russia-stolen-business-093130232.html)
+- Oct 31 - [Iran’s chess game is going well, but US Navy carriers are changing the picture](https://news.yahoo.com/iran-chess-game-going-well-092242253.html)
+- Oct 31 - [Ex-Trump Attorney Reveals Why Trump May Be In Jail Sooner Than Anyone Thinks](https://news.yahoo.com/ex-trump-attorney-reveals-why-090603823.html)
 - Oct 31 - [Ukrainian Soldiers Say the Wagner Implosion Has Allowed Them to Make Breakthroughs at Last](https://news.yahoo.com/ukrainian-soldiers-wagner-implosion-allowed-084143479.html)
-- Oct 31 - [Ex-Prosecutor Spots ‘Most Chilling’ Part Of Donald Trump’s Latest Legal Move](https://news.yahoo.com/ex-prosecutor-spots-most-chilling-070529744.html)
-- Oct 31 - [As Hamas propaganda spreads, a warning: ‘We made a big mistake not to ban TikTok’](https://finance.yahoo.com/news/hamas-propaganda-spreads-warning-made-070000352.html)
-- Oct 31 - [Ex-Trump WH lawyer weighs in on Trump gag order reinstated](https://news.yahoo.com/ty-cobb-thinks-trump-stop-014923780.html)
-- Oct 31 - [Jimmy Kimmel Can't Believe Trump's Bizarre New Pee Tape Confession](https://www.yahoo.com/entertainment/jimmy-kimmel-cant-believe-trumps-055456621.html)
+- Oct 31 - [Trump Biographer Predicts How Ivanka Trump’s Delayed Testimony May Backfire](https://news.yahoo.com/trump-biographer-predicts-ivanka-trump-083520166.html)
 <!-- feed end -->
 
 ### Onstream
