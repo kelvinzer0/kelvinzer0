@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 31 - [BLM activist jailed after spending money she raised for youth group on herself](https://news.yahoo.com/blm-fundraiser-raised-money-charity-212519983.html)
+- Oct 31 - [Trump asks a court to prevent Michigan secretary of state from leaving his name off the 2024 ballot](https://news.yahoo.com/trump-asks-court-prevent-michigan-213512770.html)
+- Oct 31 - [SBF cross-examined in FTX fraud trial, defense rests case](https://finance.yahoo.com/video/sbf-cross-examined-ftx-fraud-210855515.html)
+- Oct 31 - [Mitch McConnell warns GOP senators they’ll face ‘incoming’ if they back Hawley bill to limit corporate giving in campaigns](https://news.yahoo.com/mitch-mcconnell-warns-gop-senators-205432796.html)
 - Oct 31 - [As Trump tried to buy Buffalo Bills, bankers doubted he'd get NFL's OK, emails show at fraud trial](https://news.yahoo.com/trump-tried-buy-buffalo-bills-200756359.html)
-- Oct 31 - [Maryland man who received second pig heart transplant dies, hospital says](https://news.yahoo.com/maryland-man-received-second-pig-195058819.html)
-- Oct 31 - [McConnell tells Senate Democrats to back off on Supreme Court](https://news.yahoo.com/mcconnell-tells-senate-democrats-back-194619072.html)
-- Oct 31 - [James Comer Now Wants to Wrap Up Biden Impeachment Probe ‘ASAP’](https://www.yahoo.com/entertainment/james-comer-now-wants-wrap-194354181.html)
-- Oct 31 - [NYC exterminators' new weapon has eliminated nearly 100% of rats from over 100 burrows — and they already have their next targets mapped out](https://news.yahoo.com/nyc-exterminators-weapon-eliminated-nearly-010312061.html)
 <!-- feed end -->
 
 ### Onstream
