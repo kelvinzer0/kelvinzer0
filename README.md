@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 31 - [Connecticut officer who shocked shoplifting suspect 3 times is charged with assault, cruelty](https://news.yahoo.com/connecticut-officer-shocked-shoplifting-suspect-193601841.html)
-- Oct 31 - [Amnesty International says Israeli forces wounded Lebanese civilians with white phosphorus](https://news.yahoo.com/amnesty-international-says-israeli-forces-193109692.html)
-- Oct 31 - [CNN’s Wolf Blitzer Confronts IDF Flack Who Admitted to Bombing Refugee Camp](https://news.yahoo.com/cnn-wolf-blitzer-confronts-idf-192529071.html)
-- Oct 31 - [Robert De Niro testifies it was fine to call his assistant at her grandmother's funeral: 'I don't know if they were putting the body in the ground'](https://news.yahoo.com/robert-niro-testifies-fine-call-185952793.html)
-- Oct 31 - [Walmart bets $9 billion on remodelled 'stores of the future'](https://finance.yahoo.com/video/walmart-bets-9-billion-remodelled-185841626.html)
+- Oct 31 - [As Trump tried to buy Buffalo Bills, bankers doubted he'd get NFL's OK, emails show at fraud trial](https://news.yahoo.com/trump-tried-buy-buffalo-bills-200756359.html)
+- Oct 31 - [Maryland man who received second pig heart transplant dies, hospital says](https://news.yahoo.com/maryland-man-received-second-pig-195058819.html)
+- Oct 31 - [McConnell tells Senate Democrats to back off on Supreme Court](https://news.yahoo.com/mcconnell-tells-senate-democrats-back-194619072.html)
+- Oct 31 - [James Comer Now Wants to Wrap Up Biden Impeachment Probe ‘ASAP’](https://www.yahoo.com/entertainment/james-comer-now-wants-wrap-194354181.html)
+- Oct 31 - [NYC exterminators' new weapon has eliminated nearly 100% of rats from over 100 burrows — and they already have their next targets mapped out](https://news.yahoo.com/nyc-exterminators-weapon-eliminated-nearly-010312061.html)
 <!-- feed end -->
 
 ### Onstream
