@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 31 - [Migrant caravan leaves southern Mexico for the US](https://news.yahoo.com/migrant-caravan-leaves-southern-mexico-003644150.html)
-- Oct 30 - [Joran van der Sloot's extradition temporarily delayed after shocking Holloway confession](https://news.yahoo.com/joran-van-der-sloots-extradition-221832045.html)
+- Oct 31 - [NYC exterminators' new weapon has eliminated nearly 100% of rats from over 100 burrows — and they already have their next targets mapped out](https://news.yahoo.com/nyc-exterminators-weapon-eliminated-nearly-010312061.html)
+- Oct 30 - [Tennessee officials to pay $125K to settle claim they arrested a man for meme about fallen officer](https://news.yahoo.com/tennessee-officials-pay-125k-settle-234913608.html)
+- Oct 30 - [IDF used 'Iron Sting' in combat for first time](https://news.yahoo.com/idf-used-iron-sting-combat-234833263.html)
 - Oct 30 - [Fact check: Trump falsely claims he’d promised Mexico would pay for ‘a piece’ of the border wall](https://news.yahoo.com/fact-check-trump-falsely-claims-221546309.html)
 - Oct 30 - [Guess Which Agency Republicans Conveniently Want to Cut in Order to Fund Israel](https://news.yahoo.com/guess-agency-republicans-conveniently-want-215411034.html)
-- Oct 30 - [Some 5,000 migrants set out on foot from Mexico's southern border, tired of long waits for visas](https://news.yahoo.com/5-000-migrants-set-foot-210949448.html)
 <!-- feed end -->
 
 ### Onstream
