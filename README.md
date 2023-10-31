@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 31 - [Toyota raises North Carolina battery plant investment by $8B](https://finance.yahoo.com/video/toyota-raises-north-carolina-battery-143726115.html)
+- Oct 31 - [Wisconsin's Democratic governor sues Republican Legislature over blocking 'basic functions'](https://news.yahoo.com/wisconsins-democratic-governor-sues-republican-141848508.html)
+- Oct 31 - [One of Donald Trump's Biggest Critics Has a Dire Prediction About Mar-a-Lago Amid Legal Woes](https://www.yahoo.com/entertainment/one-donald-trumps-biggest-critics-135030788.html)
+- Oct 31 - [American couple in Uganda accused of torturing boy plead guilty to lesser charges](https://news.yahoo.com/american-couple-uganda-accused-torturing-134828167.html)
 - Oct 31 - [Ex-military couple hit with longer prison time in 4th sentencing in child abuse case](https://news.yahoo.com/ex-military-couple-hit-longer-132048326.html)
-- Oct 31 - [“Hopeless and frustrated”: Idaho’s abortion ban is driving doctors out of the state](https://news.yahoo.com/hopeless-frustrated-idaho-abortion-ban-125918373.html)
-- Oct 31 - ['There's plenty of room to raise taxes': This billionaire says the US will need to change Social Security, cut federal health insurance to deal with the worsening debt crisis — are you ready?](https://finance.yahoo.com/news/theres-plenty-room-raise-taxes-113000921.html)
-- Oct 31 - [Israel’s ‘Teddy Bear’ armoured bulldozer is anything but cuddly](https://news.yahoo.com/israel-teddy-bear-armoured-bulldozer-111410230.html)
-- Oct 31 - [Child marriage is still legal in most of the U.S. Here’s why.](https://news.yahoo.com/child-marriage-still-legal-most-100000904.html)
 <!-- feed end -->
 
 ### Onstream
