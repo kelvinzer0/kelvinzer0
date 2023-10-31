@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 31 - [Disney accuses Ron DeSantis of 'constitutional mutiny' in new court filing](https://finance.yahoo.com/news/disney-accuses-ron-desantis-of-constitutional-mutiny-in-new-court-filing-144839490.html)
 - Oct 31 - [Toyota raises North Carolina battery plant investment by $8B](https://finance.yahoo.com/video/toyota-raises-north-carolina-battery-143726115.html)
 - Oct 31 - [Wisconsin's Democratic governor sues Republican Legislature over blocking 'basic functions'](https://news.yahoo.com/wisconsins-democratic-governor-sues-republican-141848508.html)
+- Oct 31 - [Open hatred of Jews surges globally, inflamed by Gaza war](https://news.yahoo.com/open-hatred-jews-surges-globally-141737707.html)
 - Oct 31 - [One of Donald Trump's Biggest Critics Has a Dire Prediction About Mar-a-Lago Amid Legal Woes](https://www.yahoo.com/entertainment/one-donald-trumps-biggest-critics-135030788.html)
-- Oct 31 - [American couple in Uganda accused of torturing boy plead guilty to lesser charges](https://news.yahoo.com/american-couple-uganda-accused-torturing-134828167.html)
-- Oct 31 - [Ex-military couple hit with longer prison time in 4th sentencing in child abuse case](https://news.yahoo.com/ex-military-couple-hit-longer-132048326.html)
 <!-- feed end -->
 
 ### Onstream
