@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 31 - [Disney accuses Ron DeSantis of 'constitutional mutiny' in new court filing](https://finance.yahoo.com/news/disney-accuses-ron-desantis-of-constitutional-mutiny-in-new-court-filing-144839490.html)
-- Oct 31 - [Toyota raises North Carolina battery plant investment by $8B](https://finance.yahoo.com/video/toyota-raises-north-carolina-battery-143726115.html)
-- Oct 31 - [Wisconsin's Democratic governor sues Republican Legislature over blocking 'basic functions'](https://news.yahoo.com/wisconsins-democratic-governor-sues-republican-141848508.html)
-- Oct 31 - [Open hatred of Jews surges globally, inflamed by Gaza war](https://news.yahoo.com/open-hatred-jews-surges-globally-141737707.html)
-- Oct 31 - [One of Donald Trump's Biggest Critics Has a Dire Prediction About Mar-a-Lago Amid Legal Woes](https://www.yahoo.com/entertainment/one-donald-trumps-biggest-critics-135030788.html)
+- Oct 31 - [Microsoft has 'first mover advantage' in 365 Copilot launch](https://finance.yahoo.com/video/microsoft-first-mover-advantage-365-160837017.html)
+- Oct 31 - [Squatter moved into Florida home and was even driving the owner’s car, sheriff says](https://news.yahoo.com/squatter-moved-florida-home-even-160338116.html)
+- Oct 31 - [Ukraine official says it can't properly use its Western kit because it has so few soldiers left, report says](https://news.yahoo.com/ukraine-official-says-cant-properly-154209789.html)
+- Oct 31 - [Why a group of researchers believe they found human activity near a possible Noah’s Ark site](https://news.yahoo.com/why-group-researchers-believe-found-153306481.html)
+- Oct 31 - [You’ll Love What Chris Christie Had to Say This Morning about Mark Meadows](https://news.yahoo.com/ll-love-chris-christie-had-153006785.html)
 <!-- feed end -->
 
 ### Onstream
