@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 31 - [Migrant caravan leaves southern Mexico for the US](https://news.yahoo.com/migrant-caravan-leaves-southern-mexico-003644150.html)
+- Oct 30 - [Joran van der Sloot's extradition temporarily delayed after shocking Holloway confession](https://news.yahoo.com/joran-van-der-sloots-extradition-221832045.html)
+- Oct 30 - [Fact check: Trump falsely claims he’d promised Mexico would pay for ‘a piece’ of the border wall](https://news.yahoo.com/fact-check-trump-falsely-claims-221546309.html)
+- Oct 30 - [Guess Which Agency Republicans Conveniently Want to Cut in Order to Fund Israel](https://news.yahoo.com/guess-agency-republicans-conveniently-want-215411034.html)
 - Oct 30 - [Some 5,000 migrants set out on foot from Mexico's southern border, tired of long waits for visas](https://news.yahoo.com/5-000-migrants-set-foot-210949448.html)
-- Oct 30 - [A North Carolina woman and her dad enter pleas in the beating death of her Irish husband](https://news.yahoo.com/north-carolina-woman-her-dad-210607493.html)
-- Oct 30 - [Ex-North Dakota Lawmaker Charged With Flying to Prague to Rape Minor](https://news.yahoo.com/ex-north-dakota-lawmaker-charged-203108559.html)
-- Oct 30 - [Boris Johnson asked: ‘Why are we destroying the economy for people who will die anyway?’ during Covid](https://news.yahoo.com/boris-johnson-asked-why-destroying-201751855.html)
-- Oct 30 - [MAGA Mike Johnson Once Warned About Dangers of Living Under Democracy](https://news.yahoo.com/maga-mike-johnson-once-warned-194753859.html)
 <!-- feed end -->
 
 ### Onstream
