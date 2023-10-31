@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 31 - [Pharmacists with CVS and Walgreens launch 3-day walkout](https://news.yahoo.com/pharmacists-cvs-walgreens-launch-3-175355179.html)
-- Oct 31 - ["Whistling past the graveyard": Judge scolds Trump lawyers for pushing "simply incorrect" claim](https://news.yahoo.com/whistling-past-graveyard-judge-scolds-173120012.html)
-- Oct 31 - [Yemen's Houthis enter Mideast fray, hardening spillover fears](https://news.yahoo.com/yemens-houthis-enter-mideast-fray-170021713.html)
-- Oct 31 - [Ron DeSantis Finally Got Called Out Over Alleged Shoe Lifts, Heeled Boots](https://news.yahoo.com/ron-desantis-finally-got-called-162500211.html)
-- Oct 31 - [Squatter moved into Florida home and was even driving the owner’s car, sheriff says](https://news.yahoo.com/squatter-moved-florida-home-even-160338116.html)
+- Oct 31 - [Connecticut officer who shocked shoplifting suspect 3 times is charged with assault, cruelty](https://news.yahoo.com/connecticut-officer-shocked-shoplifting-suspect-193601841.html)
+- Oct 31 - [Amnesty International says Israeli forces wounded Lebanese civilians with white phosphorus](https://news.yahoo.com/amnesty-international-says-israeli-forces-193109692.html)
+- Oct 31 - [CNN’s Wolf Blitzer Confronts IDF Flack Who Admitted to Bombing Refugee Camp](https://news.yahoo.com/cnn-wolf-blitzer-confronts-idf-192529071.html)
+- Oct 31 - [Robert De Niro testifies it was fine to call his assistant at her grandmother's funeral: 'I don't know if they were putting the body in the ground'](https://news.yahoo.com/robert-niro-testifies-fine-call-185952793.html)
+- Oct 31 - [Walmart bets $9 billion on remodelled 'stores of the future'](https://finance.yahoo.com/video/walmart-bets-9-billion-remodelled-185841626.html)
 <!-- feed end -->
 
 ### Onstream
