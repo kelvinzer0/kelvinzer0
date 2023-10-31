@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Oct 31 - [Jimmy Kimmel Can't Believe Trump's Bizarre New Pee Tape Confession](https://www.yahoo.com/entertainment/jimmy-kimmel-cant-believe-trumps-055456621.html)
 - Oct 31 - [Judge dismisses Brett Favre defamation suit, saying Shannon Sharpe used hyperbole over welfare money](https://news.yahoo.com/judge-dismisses-brett-favre-defamation-040324967.html)
+- Oct 31 - [Vietnam eyes first semiconductor plant, US officials warn of high costs](https://news.yahoo.com/vietnam-eyes-first-semiconductor-plant-030707467.html)
 - Oct 31 - [Russians are hunting the Ukrainian drone pilots destroying their tanks and firing everything they've got, if they pick up their electronic trail, operator says](https://news.yahoo.com/russians-hunting-ukrainian-drone-pilots-020038241.html)
 - Oct 31 - ['Death blow': George Conway on NY civil fraud trial and Trump's businessman image 'crashing down'](https://news.yahoo.com/death-blow-george-conway-ny-015948369.html)
-- Oct 31 - [What Ty Cobb thinks it will take for Trump to stop targeting witnesses](https://news.yahoo.com/ty-cobb-thinks-trump-stop-014923780.html)
 <!-- feed end -->
 
 ### Onstream
