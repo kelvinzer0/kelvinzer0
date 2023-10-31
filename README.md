@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 31 - [Ex-military couple hit with longer prison time in 4th sentencing in child abuse case](https://news.yahoo.com/ex-military-couple-hit-longer-132048326.html)
+- Oct 31 - [“Hopeless and frustrated”: Idaho’s abortion ban is driving doctors out of the state](https://news.yahoo.com/hopeless-frustrated-idaho-abortion-ban-125918373.html)
 - Oct 31 - ['There's plenty of room to raise taxes': This billionaire says the US will need to change Social Security, cut federal health insurance to deal with the worsening debt crisis — are you ready?](https://finance.yahoo.com/news/theres-plenty-room-raise-taxes-113000921.html)
+- Oct 31 - [Israel’s ‘Teddy Bear’ armoured bulldozer is anything but cuddly](https://news.yahoo.com/israel-teddy-bear-armoured-bulldozer-111410230.html)
 - Oct 31 - [Child marriage is still legal in most of the U.S. Here’s why.](https://news.yahoo.com/child-marriage-still-legal-most-100000904.html)
-- Oct 31 - [Carlsberg CEO: Russia has 'stolen our business'](https://finance.yahoo.com/news/carlsberg-ceo-russia-stolen-business-093130232.html)
-- Oct 31 - [Iran’s chess game is going well, but US Navy carriers are changing the picture](https://news.yahoo.com/iran-chess-game-going-well-092242253.html)
-- Oct 31 - [Ex-Trump Attorney Reveals Why Trump May Be In Jail Sooner Than Anyone Thinks](https://news.yahoo.com/ex-trump-attorney-reveals-why-090603823.html)
 <!-- feed end -->
 
 ### Onstream
