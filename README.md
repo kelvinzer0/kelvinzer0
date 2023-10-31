@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 31 - [Yemen's Houthis wade into Israel-Hamas war](https://news.yahoo.com/yemens-houthis-wade-israel-hamas-224629527.html)
+- Oct 31 - [For 250 years, US troops could tow their cannons around the battlefield. The war in Ukraine shows they won't have that luxury in the future.](https://news.yahoo.com/250-years-us-troops-could-221701057.html)
+- Oct 31 - [‘Don’t Shoot! Don’t Shoot!’: Long Island Man Points Gun at 6-Year-Old Who Mistakenly Placed a Halloween Candy Bag on His Porch, Faces Charges](https://news.yahoo.com/don-t-shoot-don-t-220000934.html)
+- Oct 31 - [North Dakota GOP party leader resigns 1 week into job after posts about women, Black people](https://news.yahoo.com/north-dakota-gop-party-leader-215159018.html)
 - Oct 31 - [BLM activist jailed after spending money she raised for youth group on herself](https://news.yahoo.com/blm-fundraiser-raised-money-charity-212519983.html)
-- Oct 31 - [Trump asks a court to prevent Michigan secretary of state from leaving his name off the 2024 ballot](https://news.yahoo.com/trump-asks-court-prevent-michigan-213512770.html)
-- Oct 31 - [SBF cross-examined in FTX fraud trial, defense rests case](https://finance.yahoo.com/video/sbf-cross-examined-ftx-fraud-210855515.html)
-- Oct 31 - [Mitch McConnell warns GOP senators they’ll face ‘incoming’ if they back Hawley bill to limit corporate giving in campaigns](https://news.yahoo.com/mitch-mcconnell-warns-gop-senators-205432796.html)
-- Oct 31 - [As Trump tried to buy Buffalo Bills, bankers doubted he'd get NFL's OK, emails show at fraud trial](https://news.yahoo.com/trump-tried-buy-buffalo-bills-200756359.html)
 <!-- feed end -->
 
 ### Onstream
