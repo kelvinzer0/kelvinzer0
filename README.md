@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 31 - [Ex-Prosecutor Spots ‘Most Chilling’ Part Of Donald Trump’s Latest Legal Move](https://news.yahoo.com/ex-prosecutor-spots-most-chilling-070529744.html)
+- Oct 31 - [As Hamas propaganda spreads, a warning: ‘We made a big mistake not to ban TikTok’](https://finance.yahoo.com/news/hamas-propaganda-spreads-warning-made-070000352.html)
+- Oct 31 - [Ex-Trump WH lawyer weighs in on Trump gag order reinstated](https://news.yahoo.com/ty-cobb-thinks-trump-stop-014923780.html)
 - Oct 31 - [Jimmy Kimmel Can't Believe Trump's Bizarre New Pee Tape Confession](https://www.yahoo.com/entertainment/jimmy-kimmel-cant-believe-trumps-055456621.html)
-- Oct 31 - [Judge dismisses Brett Favre defamation suit, saying Shannon Sharpe used hyperbole over welfare money](https://news.yahoo.com/judge-dismisses-brett-favre-defamation-040324967.html)
-- Oct 31 - [Vietnam eyes first semiconductor plant, US officials warn of high costs](https://news.yahoo.com/vietnam-eyes-first-semiconductor-plant-030707467.html)
-- Oct 31 - [Russians are hunting the Ukrainian drone pilots destroying their tanks and firing everything they've got, if they pick up their electronic trail, operator says](https://news.yahoo.com/russians-hunting-ukrainian-drone-pilots-020038241.html)
-- Oct 31 - ['Death blow': George Conway on NY civil fraud trial and Trump's businessman image 'crashing down'](https://news.yahoo.com/death-blow-george-conway-ny-015948369.html)
+- Oct 31 - [Billionaire hedge fund boss Ken Griffin pays for 1,200 staff and family members to visit Disney Tokyo and hear performances by Maroon 5 and Calvin Harris](https://finance.yahoo.com/news/billionaire-hedge-fund-boss-ken-053311592.html)
 <!-- feed end -->
 
 ### Onstream
