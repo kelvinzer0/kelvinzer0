@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Oct 31 - [Microsoft has 'first mover advantage' in 365 Copilot launch](https://finance.yahoo.com/video/microsoft-first-mover-advantage-365-160837017.html)
+- Oct 31 - [Yemen's Houthis enter Mideast fray, hardening spillover fears](https://news.yahoo.com/yemens-houthis-enter-mideast-fray-170021713.html)
+- Oct 31 - [Ron DeSantis Finally Got Called Out Over Alleged Shoe Lifts, Heeled Boots](https://news.yahoo.com/ron-desantis-finally-got-called-162500211.html)
 - Oct 31 - [Squatter moved into Florida home and was even driving the owner’s car, sheriff says](https://news.yahoo.com/squatter-moved-florida-home-even-160338116.html)
+- Oct 31 - [‘You Ambushed My Son’: California Man Who Strangled Man Attacking Female Bus Passenger Gets Probation In Case Similar to Jordan Neely Killing; Victim’s Family Outraged By Outcome](https://news.yahoo.com/ambushed-son-california-man-strangled-160000859.html)
 - Oct 31 - [Ukraine official says it can't properly use its Western kit because it has so few soldiers left, report says](https://news.yahoo.com/ukraine-official-says-cant-properly-154209789.html)
-- Oct 31 - [Why a group of researchers believe they found human activity near a possible Noah’s Ark site](https://news.yahoo.com/why-group-researchers-believe-found-153306481.html)
-- Oct 31 - [You’ll Love What Chris Christie Had to Say This Morning about Mark Meadows](https://news.yahoo.com/ll-love-chris-christie-had-153006785.html)
 <!-- feed end -->
 
 ### Onstream
