@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Oct 31 - [Pharmacists with CVS and Walgreens launch 3-day walkout](https://news.yahoo.com/pharmacists-cvs-walgreens-launch-3-175355179.html)
+- Oct 31 - ["Whistling past the graveyard": Judge scolds Trump lawyers for pushing "simply incorrect" claim](https://news.yahoo.com/whistling-past-graveyard-judge-scolds-173120012.html)
 - Oct 31 - [Yemen's Houthis enter Mideast fray, hardening spillover fears](https://news.yahoo.com/yemens-houthis-enter-mideast-fray-170021713.html)
 - Oct 31 - [Ron DeSantis Finally Got Called Out Over Alleged Shoe Lifts, Heeled Boots](https://news.yahoo.com/ron-desantis-finally-got-called-162500211.html)
 - Oct 31 - [Squatter moved into Florida home and was even driving the owner’s car, sheriff says](https://news.yahoo.com/squatter-moved-florida-home-even-160338116.html)
-- Oct 31 - [‘You Ambushed My Son’: California Man Who Strangled Man Attacking Female Bus Passenger Gets Probation In Case Similar to Jordan Neely Killing; Victim’s Family Outraged By Outcome](https://news.yahoo.com/ambushed-son-california-man-strangled-160000859.html)
-- Oct 31 - [Ukraine official says it can't properly use its Western kit because it has so few soldiers left, report says](https://news.yahoo.com/ukraine-official-says-cant-properly-154209789.html)
 <!-- feed end -->
 
 ### Onstream
