@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Trump’s Demands for Extreme Loyalty Are Starting to Backfire](https://news.yahoo.com/trump-demands-extreme-loyalty-starting-000000258.html)
+- Oct 31 - [Bar Manager Killed in Maine Shooting Was Subject of Gunman’s Paranoid Delusions](https://news.yahoo.com/bar-manager-killed-maine-shooting-232142142.html)
 - Oct 31 - [Yemen's Houthis wade into Israel-Hamas war](https://news.yahoo.com/yemens-houthis-wade-israel-hamas-224629527.html)
 - Oct 31 - [For 250 years, US troops could tow their cannons around the battlefield. The war in Ukraine shows they won't have that luxury in the future.](https://news.yahoo.com/250-years-us-troops-could-221701057.html)
 - Oct 31 - [‘Don’t Shoot! Don’t Shoot!’: Long Island Man Points Gun at 6-Year-Old Who Mistakenly Placed a Halloween Candy Bag on His Porch, Faces Charges](https://news.yahoo.com/don-t-shoot-don-t-220000934.html)
-- Oct 31 - [North Dakota GOP party leader resigns 1 week into job after posts about women, Black people](https://news.yahoo.com/north-dakota-gop-party-leader-215159018.html)
-- Oct 31 - [BLM activist jailed after spending money she raised for youth group on herself](https://news.yahoo.com/blm-fundraiser-raised-money-charity-212519983.html)
 <!-- feed end -->
 
 ### Onstream
