@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Trump Melts Down As Idiot Sons Are Set to Take the Stand](https://news.yahoo.com/trump-melts-down-idiot-sons-151456628.html)
+- Nov 01 - [‘A Slap On The Wrist’: More Than 100 Seattle HS Students Protest Unsatisfactory Punishment Of Football Players Who Texted “Creepy, Weird, Predatory” Messages Directed at Female Students](https://sports.yahoo.com/slap-wrist-more-100-seattle-150427317.html)
+- Nov 01 - [Close calls around the world show that Russian and Chinese pilots want 'batting practice' against the US, top commanders say](https://news.yahoo.com/close-calls-around-world-show-142605022.html)
 - Nov 01 - [Mitch McConnell warns GOP senators they’ll face ‘incoming’ if they back Hawley bill to limit corporate giving in campaigns](https://news.yahoo.com/mitch-mcconnell-warns-gop-senators-205432796.html)
-- Nov 01 - [Iran warns of 'harsh consequences' if Gaza attacks continue](https://news.yahoo.com/iran-warns-harsh-consequences-gaza-121043709.html)
-- Nov 01 - [Trump tells judge in fraud case to leave his children alone](https://news.yahoo.com/trump-tells-judge-fraud-case-115141497.html)
-- Nov 01 - [A pilot crash-landed in the Florida Everglades and waited on his plane's wing over alligator-infested water for hours until he was rescued](https://news.yahoo.com/pilot-crash-landed-florida-everglades-114908272.html)
-- Nov 01 - [See Trump’s gaffe while talking about world leader](https://news.yahoo.com/see-trump-gaffe-while-talking-113443471.html)
+- Nov 01 - [This L.A. woman says she paid nearly $4K over 4 years for a subscription that gave her absolutely nothing — and she can't get her money back. 3 simple tips to avoid getting blindsided](https://finance.yahoo.com/news/l-tiktoker-says-she-paid-210000582.html)
 <!-- feed end -->
 
 ### Onstream
