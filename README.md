@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 01 - [Schumer and other Senate Democrats call for a federal probe of huge oil deals by Exxon and Chevron](https://news.yahoo.com/schumer-other-senate-democrats-call-213237551.html)
+- Nov 01 - [Florida attorney general, against criticism, seeks to keep abortion rights amendment off 2024 ballot](https://news.yahoo.com/florida-attorney-general-against-criticism-214631896.html)
+- Nov 01 - [Joe Rogan said he 'poisoned' himself with arsenic by eating 3 tins of sardines a night](https://www.yahoo.com/lifestyle/joe-rogan-said-poisoned-himself-214310169.html)
+- Nov 01 - [Trump White House aide points finger at Jan. 6 National Guard call-up in 14th Amendment trial](https://news.yahoo.com/trump-white-house-aide-points-211749020.html)
 - Nov 01 - [Judge indicates she may delay Trump trial on charges he hid classified documents at Mar-a-Lago](https://news.yahoo.com/judge-indicates-she-may-delay-204924084.html)
-- Nov 01 - [Trump lawyer claims "unfair" treatment after judge "snapped" at attorney during cross-examination](https://news.yahoo.com/trump-lawyer-claims-unfair-treatment-201900217.html)
 - Nov 01 - [The Army Suddenly, and Chaotically, Told Hundreds of Soldiers They Have to Be Recruiters Immediately](https://news.yahoo.com/army-suddenly-chaotically-told-hundreds-200550394.html)
-- Nov 01 - ["Almost pointless discussion": Ex-Mueller prosecutor calls out Judge Aileen Cannon's "snarky" order](https://news.yahoo.com/almost-pointless-discussion-ex-mueller-193356310.html)
 <!-- feed end -->
 
 ### Onstream
