@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Witnesses Describe Horror as Shark Tears Aussie Man Apart During Attack](https://news.yahoo.com/witnesses-describe-horror-shark-tears-040946313.html)
 - Nov 01 - [Lindsey Graham Delivers His Most Painfully Clueless Defense Of Trump Yet](https://news.yahoo.com/lindsey-graham-delivers-most-painfully-034106901.html)
-- Nov 01 - [The stock market is approaching a 'once-in-a-generation' buying opportunity as profits are about to take off almost everywhere, investment firm says](https://finance.yahoo.com/news/stock-market-approaching-once-generation-033454007.html)
 - Nov 01 - [‘I wasn’t supposed to be driving,’ Las Vegas man ticketed 19 times before fatal crash describes self as good driver](https://news.yahoo.com/wasn-t-supposed-driving-las-011013511.html)
 - Nov 01 - [A NYC exterminator, who has killed thousands of rats with a new weapon, explains what's happening to all the dead rodent bodies](https://news.yahoo.com/nyc-exterminator-killed-thousands-rats-010054416.html)
 - Nov 01 - [Neighbor Kills New York Man and Stepson Execution-Style In Dispute Over Loud Music Captured on Video: ‘Why Would You Bring a Gun to Tear My Family Apart?’](https://news.yahoo.com/neighbor-kills-york-man-stepson-010000031.html)
