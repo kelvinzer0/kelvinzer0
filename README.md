@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 01 - [Two supervolcanoes, a world apart, have the attention of scientists](https://news.yahoo.com/two-supervolcanoes-world-apart-attention-155604554.html)
-- Nov 01 - [Trump lawyer Alina Habba thinks Secret Service will protect Trump from being jailed](https://news.yahoo.com/trump-lawyer-alina-habba-thinks-154509651.html)
+- Nov 01 - [A Virginia GOP State Rep. Built Her Political Career On A Story That Doesn’t Add Up](https://news.yahoo.com/virginia-gop-state-rep-built-173225741.html)
+- Nov 01 - [What happens to the thousands of dead NYC rats that are being exterminated with a wildly successful new method](https://news.yahoo.com/nyc-exterminator-killed-thousands-rats-010054416.html)
+- Nov 01 - [Image of Palestinian carrying children out of rubble shows signs of AI](https://news.yahoo.com/image-palestinian-carrying-children-rubble-162659625.html)
 - Nov 01 - [Elon Musk Tells Joe Rogan That People Were Killed By Covid Ventilators And Also He Wants To Make 200,000 Cybertrucks Per Year](https://news.yahoo.com/elon-musk-tells-joe-rogan-154500844.html)
-- Nov 01 - [Trump Melts Down As Idiot Sons Are Set to Take the Stand](https://news.yahoo.com/trump-melts-down-idiot-sons-151456628.html)
-- Nov 01 - [Retreating Russian T-72 tanks roll over their own mines, polished off by Ukrainian kamikaze drones – video](https://news.yahoo.com/retreating-russian-t-72-tanks-151100811.html)
 <!-- feed end -->
 
 ### Onstream
