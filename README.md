@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Iran warns of 'harsh consequences' if Gaza attacks continue](https://news.yahoo.com/iran-warns-harsh-consequences-gaza-121043709.html)
+- Nov 01 - [Trump tells judge in fraud case to leave his children alone](https://news.yahoo.com/trump-tells-judge-fraud-case-115141497.html)
+- Nov 01 - [A pilot crash-landed in the Florida Everglades and waited on his plane's wing over alligator-infested water for hours until he was rescued](https://news.yahoo.com/pilot-crash-landed-florida-everglades-114908272.html)
+- Nov 01 - [Jenna Ellis’ Lawyer Reveals Why She Copped a Plea](https://news.yahoo.com/jenna-ellis-lawyer-reveals-why-112926974.html)
 - Nov 01 - [600 sex toys and a diamond dog collar: the obscene luxury of Indian princes’ lives](https://www.yahoo.com/lifestyle/600-sex-toys-diamond-dog-110000541.html)
-- Nov 01 - [Harvard Law Professor Torches Donald Trump's Latest Legal Claim With 1 Word](https://news.yahoo.com/harvard-law-professor-torches-donald-102022165.html)
-- Nov 01 - [NASA scientist issues grim warning 35 years after his original prediction: ‘[W]e knew it was coming’](https://news.yahoo.com/nasa-scientist-issues-grim-warning-190000490.html)
-- Nov 01 - ['Who Wants To Tell Him?': Trump Mocked Over Baffling 'Great Country' Announcement](https://news.yahoo.com/wants-tell-him-trump-mocked-085922499.html)
-- Nov 01 - [California Hells Angels have tortured, killed and cremated ex-members, federal racketeering case reveals](https://news.yahoo.com/california-hells-angels-tortured-killed-080014734.html)
 <!-- feed end -->
 
 ### Onstream
