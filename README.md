@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Don Jr. Gets Grilled at Dad’s New York Fraud Trial](https://news.yahoo.com/don-jr-takes-stand-trump-192713633.html)
+- Nov 01 - [7-year-old sat alone outside bar at 3 a.m. as mom partied for hours, Florida cops say](https://news.yahoo.com/7-old-sat-alone-outside-192407280.html)
+- Nov 01 - [Watch a Japanese research ship fire an electromagnetic railgun](https://news.yahoo.com/watch-japanese-research-ship-fire-190000033.html)
 - Nov 01 - [Two supervolcanoes, a world apart, have the attention of scientists](https://news.yahoo.com/two-supervolcanoes-world-apart-attention-155604554.html)
 - Nov 01 - [A-10 Vs F-35 Close Air Support Flyoff Report Finally Emerges](https://news.yahoo.com/10-vs-f-35-close-174256387.html)
-- Nov 01 - [A Virginia GOP State Rep. Built Her Political Career On A Story That Doesn’t Add Up](https://news.yahoo.com/virginia-gop-state-rep-built-173225741.html)
-- Nov 01 - [What happens to the thousands of dead NYC rats that are being exterminated with a wildly successful new method](https://news.yahoo.com/nyc-exterminator-killed-thousands-rats-010054416.html)
-- Nov 01 - [A marine general collapsed after complaining of unsustainable work, as Tommy Tuberville blocks new military appointments](https://news.yahoo.com/marine-general-collapsed-complaining-unsustainable-165938430.html)
 <!-- feed end -->
 
 ### Onstream
