@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [600 sex toys and a diamond dog collar: the obscene luxury of Indian princes’ lives](https://www.yahoo.com/lifestyle/600-sex-toys-diamond-dog-110000541.html)
 - Nov 01 - [Harvard Law Professor Torches Donald Trump's Latest Legal Claim With 1 Word](https://news.yahoo.com/harvard-law-professor-torches-donald-102022165.html)
+- Nov 01 - [NASA scientist issues grim warning 35 years after his original prediction: ‘[W]e knew it was coming’](https://news.yahoo.com/nasa-scientist-issues-grim-warning-190000490.html)
 - Nov 01 - ['Who Wants To Tell Him?': Trump Mocked Over Baffling 'Great Country' Announcement](https://news.yahoo.com/wants-tell-him-trump-mocked-085922499.html)
-- Nov 01 - ['Belittled and harassed' over child seating: Mother wins lawsuit against American Airlines](https://news.yahoo.com/belittled-harassed-over-child-seating-070036272.html)
-- Nov 01 - [Witnesses Describe Horror as Shark Tears Aussie Man Apart During Attack](https://news.yahoo.com/witnesses-describe-horror-shark-tears-040946313.html)
-- Nov 01 - [Florida man cuts 17-year-old driver off then punches him in the face through car window, deputies say](https://news.yahoo.com/florida-man-cuts-17-old-011345545.html)
+- Nov 01 - [California Hells Angels have tortured, killed and cremated ex-members, federal racketeering case reveals](https://news.yahoo.com/california-hells-angels-tortured-killed-080014734.html)
 <!-- feed end -->
 
 ### Onstream
