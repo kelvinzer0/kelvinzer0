@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Two supervolcanoes, a world apart, have the attention of scientists](https://news.yahoo.com/two-supervolcanoes-world-apart-attention-155604554.html)
+- Nov 01 - [Trump lawyer Alina Habba thinks Secret Service will protect Trump from being jailed](https://news.yahoo.com/trump-lawyer-alina-habba-thinks-154509651.html)
+- Nov 01 - [Elon Musk Tells Joe Rogan That People Were Killed By Covid Ventilators And Also He Wants To Make 200,000 Cybertrucks Per Year](https://news.yahoo.com/elon-musk-tells-joe-rogan-154500844.html)
 - Nov 01 - [Trump Melts Down As Idiot Sons Are Set to Take the Stand](https://news.yahoo.com/trump-melts-down-idiot-sons-151456628.html)
-- Nov 01 - [‘A Slap On The Wrist’: More Than 100 Seattle HS Students Protest Unsatisfactory Punishment Of Football Players Who Texted “Creepy, Weird, Predatory” Messages Directed at Female Students](https://sports.yahoo.com/slap-wrist-more-100-seattle-150427317.html)
-- Nov 01 - [Close calls around the world show that Russian and Chinese pilots want 'batting practice' against the US, top commanders say](https://news.yahoo.com/close-calls-around-world-show-142605022.html)
-- Nov 01 - [Mitch McConnell warns GOP senators they’ll face ‘incoming’ if they back Hawley bill to limit corporate giving in campaigns](https://news.yahoo.com/mitch-mcconnell-warns-gop-senators-205432796.html)
-- Nov 01 - [This L.A. woman says she paid nearly $4K over 4 years for a subscription that gave her absolutely nothing — and she can't get her money back. 3 simple tips to avoid getting blindsided](https://finance.yahoo.com/news/l-tiktoker-says-she-paid-210000582.html)
+- Nov 01 - [Retreating Russian T-72 tanks roll over their own mines, polished off by Ukrainian kamikaze drones – video](https://news.yahoo.com/retreating-russian-t-72-tanks-151100811.html)
 <!-- feed end -->
 
 ### Onstream
