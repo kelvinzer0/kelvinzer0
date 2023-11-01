@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Schumer and other Senate Democrats call for a federal probe of huge oil deals by Exxon and Chevron](https://news.yahoo.com/schumer-other-senate-democrats-call-213237551.html)
+- Nov 01 - [Judge indicates she may delay Trump trial on charges he hid classified documents at Mar-a-Lago](https://news.yahoo.com/judge-indicates-she-may-delay-204924084.html)
 - Nov 01 - [Trump lawyer claims "unfair" treatment after judge "snapped" at attorney during cross-examination](https://news.yahoo.com/trump-lawyer-claims-unfair-treatment-201900217.html)
+- Nov 01 - [The Army Suddenly, and Chaotically, Told Hundreds of Soldiers They Have to Be Recruiters Immediately](https://news.yahoo.com/army-suddenly-chaotically-told-hundreds-200550394.html)
 - Nov 01 - ["Almost pointless discussion": Ex-Mueller prosecutor calls out Judge Aileen Cannon's "snarky" order](https://news.yahoo.com/almost-pointless-discussion-ex-mueller-193356310.html)
-- Nov 01 - [Don Jr. Gets Grilled at Dad’s New York Fraud Trial](https://news.yahoo.com/don-jr-takes-stand-trump-192713633.html)
-- Nov 01 - [7-year-old sat alone outside bar at 3 a.m. as mom partied for hours, Florida cops say](https://news.yahoo.com/7-old-sat-alone-outside-192407280.html)
-- Nov 01 - [Watch a Japanese research ship fire an electromagnetic railgun](https://news.yahoo.com/watch-japanese-research-ship-fire-190000033.html)
 <!-- feed end -->
 
 ### Onstream
