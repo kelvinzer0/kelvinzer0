@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - [Neighbor Kills New York Man and Stepson Execution-Style In Dispute Over Loud Music Captured on Video: ‘Why Would You Bring a Gun to Tear My Family Apart?’](https://news.yahoo.com/neighbor-kills-york-man-stepson-010000031.html)
 - Nov 01 - [Trump’s Demands for Extreme Loyalty Are Starting to Backfire](https://news.yahoo.com/trump-demands-extreme-loyalty-starting-000000258.html)
-- Oct 31 - [Bar Manager Killed in Maine Shooting Was Subject of Gunman’s Paranoid Delusions](https://news.yahoo.com/bar-manager-killed-maine-shooting-232142142.html)
+- Oct 31 - [Matthew Perry’s Assistant Reportedly Tried to Save His Life](https://news.yahoo.com/matthew-perry-assistant-reportedly-tried-231703234.html)
 - Oct 31 - [Yemen's Houthis wade into Israel-Hamas war](https://news.yahoo.com/yemens-houthis-wade-israel-hamas-224629527.html)
 - Oct 31 - [For 250 years, US troops could tow their cannons around the battlefield. The war in Ukraine shows they won't have that luxury in the future.](https://news.yahoo.com/250-years-us-troops-could-221701057.html)
-- Oct 31 - [‘Don’t Shoot! Don’t Shoot!’: Long Island Man Points Gun at 6-Year-Old Who Mistakenly Placed a Halloween Candy Bag on His Porch, Faces Charges](https://news.yahoo.com/don-t-shoot-don-t-220000934.html)
 <!-- feed end -->
 
 ### Onstream
