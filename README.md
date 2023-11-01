@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 01 - [Two supervolcanoes, a world apart, have the attention of scientists](https://news.yahoo.com/two-supervolcanoes-world-apart-attention-155604554.html)
+- Nov 01 - [A-10 Vs F-35 Close Air Support Flyoff Report Finally Emerges](https://news.yahoo.com/10-vs-f-35-close-174256387.html)
 - Nov 01 - [A Virginia GOP State Rep. Built Her Political Career On A Story That Doesn’t Add Up](https://news.yahoo.com/virginia-gop-state-rep-built-173225741.html)
 - Nov 01 - [What happens to the thousands of dead NYC rats that are being exterminated with a wildly successful new method](https://news.yahoo.com/nyc-exterminator-killed-thousands-rats-010054416.html)
-- Nov 01 - [Image of Palestinian carrying children out of rubble shows signs of AI](https://news.yahoo.com/image-palestinian-carrying-children-rubble-162659625.html)
-- Nov 01 - [Elon Musk Tells Joe Rogan That People Were Killed By Covid Ventilators And Also He Wants To Make 200,000 Cybertrucks Per Year](https://news.yahoo.com/elon-musk-tells-joe-rogan-154500844.html)
+- Nov 01 - [A marine general collapsed after complaining of unsustainable work, as Tommy Tuberville blocks new military appointments](https://news.yahoo.com/marine-general-collapsed-complaining-unsustainable-165938430.html)
 <!-- feed end -->
 
 ### Onstream
