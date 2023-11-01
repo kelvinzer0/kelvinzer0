@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 01 - ['Who Wants To Tell Him?': Trump Mocked Over Baffling 'Great Country' Announcement](https://news.yahoo.com/wants-tell-him-trump-mocked-085922499.html)
 - Nov 01 - ['Belittled and harassed' over child seating: Mother wins lawsuit against American Airlines](https://news.yahoo.com/belittled-harassed-over-child-seating-070036272.html)
 - Nov 01 - [Witnesses Describe Horror as Shark Tears Aussie Man Apart During Attack](https://news.yahoo.com/witnesses-describe-horror-shark-tears-040946313.html)
 - Nov 01 - [Lindsey Graham Delivers His Most Painfully Clueless Defense Of Trump Yet](https://news.yahoo.com/lindsey-graham-delivers-most-painfully-034106901.html)
-- Nov 01 - [‘I wasn’t supposed to be driving,’ Las Vegas man ticketed 19 times before fatal crash describes self as good driver](https://news.yahoo.com/wasn-t-supposed-driving-las-011013511.html)
-- Nov 01 - [A NYC exterminator, who has killed thousands of rats with a new weapon, explains what's happening to all the dead rodent bodies](https://news.yahoo.com/nyc-exterminator-killed-thousands-rats-010054416.html)
+- Nov 01 - [Florida man cuts 17-year-old driver off then punches him in the face through car window, deputies say](https://news.yahoo.com/florida-man-cuts-17-old-011345545.html)
 <!-- feed end -->
 
 ### Onstream
