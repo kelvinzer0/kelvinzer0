@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [Warren Buffett Is Undeniably Frugal, But For Christmas He Gives Each Family Member $10,000 Along With His Favorite Candy And Funny Personalized Christmas Cards](https://finance.yahoo.com/news/warren-buffett-undeniably-frugal-christmas-163840700.html)
+- Nov 02 - [Donald Trump's Niece Says Cheating Is A Way Of Life For Him – She Says He Paid Someone To Take His SAT Exam So He Could Get Into Business School](https://finance.yahoo.com/news/donald-trumps-niece-says-cheating-162529508.html)
 - Nov 02 - [Trial testimony reveals gambling giant Bally's paid $60 million to take over Trump's NYC golf course](https://news.yahoo.com/trial-testimony-reveals-gambling-giant-160427165.html)
-- Nov 02 - [Sherri Papini and Her Ex Spar Over Her Spending Spree in Divorce Hearing](https://news.yahoo.com/sherri-papini-her-ex-spar-145503025.html)
+- Nov 02 - [Charged at 15, convicted of murder: Middle Tennessee man, now 20, dead in state custody](https://news.yahoo.com/charged-15-convicted-murder-middle-153606990.html)
 - Nov 02 - ["Strongly undermines any claim": Experts say damning NY trial doc could blow up Trump's D.C. defense](https://news.yahoo.com/strongly-undermines-claim-experts-damning-144536039.html)
-- Nov 02 - [MTG rages at “vaping groping Lauren Boebert” and “Colonel Sanders” Chip Roy as MAGA feud explodes](https://news.yahoo.com/mtg-rages-vaping-groping-lauren-143141408.html)
-- Nov 02 - [Hezbollah leader set to weigh in on Middle East war](https://news.yahoo.com/hezbollah-leader-set-weigh-middle-142425593.html)
 <!-- feed end -->
 
 ### Onstream
