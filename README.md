@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [US imposes sweeping new sanctions targeting Russia over war in Ukraine](https://news.yahoo.com/us-imposes-sweeping-sanctions-targeting-143234027.html)
+- Nov 02 - [Trial testimony reveals gambling giant Bally's paid $60 million to take over Trump's NYC golf course](https://news.yahoo.com/trial-testimony-reveals-gambling-giant-160427165.html)
+- Nov 02 - [Sherri Papini and Her Ex Spar Over Her Spending Spree in Divorce Hearing](https://news.yahoo.com/sherri-papini-her-ex-spar-145503025.html)
+- Nov 02 - ["Strongly undermines any claim": Experts say damning NY trial doc could blow up Trump's D.C. defense](https://news.yahoo.com/strongly-undermines-claim-experts-damning-144536039.html)
 - Nov 02 - [MTG rages at “vaping groping Lauren Boebert” and “Colonel Sanders” Chip Roy as MAGA feud explodes](https://news.yahoo.com/mtg-rages-vaping-groping-lauren-143141408.html)
-- Nov 02 - [Jamie Raskin Explains Why He Voted Against Expelling George Santos](https://news.yahoo.com/jamie-raskin-explains-why-voted-130459763.html)
-- Nov 02 - [‘Didn’t Expect for It to Go So Left’: Houston Teen Regretful About Being Hit with Charges for Violent Spree Targeting Random Strangers for Social Media Prank](https://news.yahoo.com/didn-t-expect-left-houston-130000969.html)
-- Nov 02 - [Legal experts: NY AG “set up” Don Jr. on witness stand — and now he could be criminally prosecuted](https://news.yahoo.com/legal-experts-ny-ag-set-125333302.html)
+- Nov 02 - [Hezbollah leader set to weigh in on Middle East war](https://news.yahoo.com/hezbollah-leader-set-weigh-middle-142425593.html)
 <!-- feed end -->
 
 ### Onstream
