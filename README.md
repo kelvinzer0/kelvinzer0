@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [Pilot of Crashed Plane Rescued from Alligator-Infested Waters in Florida Everglades](https://news.yahoo.com/pilot-crashed-plane-rescued-alligator-094347600.html)
-- Nov 02 - [Hamas using Ukraine war tactics to ambush Israeli soldiers in Gaza](https://news.yahoo.com/hamas-using-ukraine-war-tactics-073126998.html)
 - Nov 02 - [Hamas member says they will repeat attacks until Israel is destroyed](https://news.yahoo.com/hamas-member-says-repeat-attacks-065643206.html)
 - Nov 02 - [Video captures obscene act in downtown Long Beach; businesses, residents outraged](https://news.yahoo.com/video-captures-obscene-act-downtown-061344630.html)
 - Nov 02 - [Republicans clash for hours on the Senate floor as tempers flare over Sen. Tommy Tuberville's blockade of military promotions](https://news.yahoo.com/republicans-clash-hours-senate-floor-030643165.html)
+- Nov 02 - [Room Full of GOP Lawmakers Tell Sean Hannity They’ll Impeach Biden](https://www.yahoo.com/entertainment/room-full-gop-lawmakers-tell-025056544.html)
+- Nov 02 - [Man who shot Fort Worth neighbor dead in anger over toy on sidewalk sentenced to life](https://news.yahoo.com/man-shot-fort-worth-neighbor-022857005.html)
 <!-- feed end -->
 
 ### Onstream
