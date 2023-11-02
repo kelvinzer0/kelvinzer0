@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [‘I Am a Man Who Stands By His Words’: Unapologetic North Dakota GOP Leader Quits After Racist Tweet Suggesting Black People Should ‘Move to Wakanda’ Resurfaces](https://news.yahoo.com/am-man-stands-words-unapologetic-193245128.html)
+- Nov 02 - [Okay, I'm Actually Convinced That These 35 People Might Just Be The Dumbest People On The Entire Internet](https://www.yahoo.com/lifestyle/okay-im-actually-convinced-35-191626494.html)
+- Nov 02 - [Videos appear to show Israeli soldiers abusing bound and blindfolded Palestinian detainees](https://news.yahoo.com/videos-appear-show-israeli-soldiers-190056441.html)
+- Nov 02 - [Indiana attorney general reprimanded over abortion doctor remarks](https://news.yahoo.com/indiana-attorney-general-reprimanded-over-190028219.html)
 - Nov 02 - [‘I’m Sorry That I Let This Happen’: White Texas Man Sentenced to Life Apologizes for Fatally Shooting His Black Neighbor After His Kids Left Their Toys on the Apartment Sidewalk](https://news.yahoo.com/m-sorry-let-happen-white-183000278.html)
-- Nov 02 - [Legal analyst Don Jr.'s "stunning" testimony: "I cannot overstate how damaging these admissions are"](https://news.yahoo.com/legal-analyst-don-jr-stunning-175642950.html)
-- Nov 02 - [Florida babysitter who attempted to circumcise 2-year-old boy charged with child abuse](https://news.yahoo.com/florida-babysitter-attempted-circumcise-2-174015872.html)
-- Nov 02 - [Israel Scores F-35's First Cruise Missile Kill](https://news.yahoo.com/israel-scores-f-35s-first-173117393.html)
-- Nov 02 - [‘Tired of being played for suckers’: President Biden just proposed a new retirement rule that could help Americans save 'tens of thousands of dollars' over time — here's how it works](https://finance.yahoo.com/news/tired-being-played-suckers-president-170000473.html)
 <!-- feed end -->
 
 ### Onstream
