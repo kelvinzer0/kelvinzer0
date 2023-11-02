@@ -63,7 +63,7 @@ https://kelvinzer0.github.io
 - Nov 02 - [Republicans clash for hours on the Senate floor as tempers flare over Sen. Tommy Tuberville's blockade of military promotions](https://news.yahoo.com/republicans-clash-hours-senate-floor-030643165.html)
 - Nov 02 - [Opinion: There’s a smarter way to eliminate Hamas](https://news.yahoo.com/opinion-smarter-way-eliminate-hamas-083514594.html)
 - Nov 02 - [Man who shot Fort Worth neighbor dead in anger over toy on sidewalk sentenced to life](https://news.yahoo.com/man-shot-fort-worth-neighbor-022857005.html)
-- Nov 02 - ["If you come for me, you best not miss": Santos gloats after vote to expel shakes out in his favor](https://news.yahoo.com/come-best-not-miss-santos-014139339.html)
+- Nov 02 - [31 Democrats vote to keep Santos in Congress](https://news.yahoo.com/31-democrats-vote-keep-santos-005622168.html)
 - Nov 01 - [Ukraine has taken 17,000 Russians off the battlefield without firing a shot, US Army special-ops general says](https://news.yahoo.com/ukraine-taken-17-000-russians-222101563.html)
 <!-- feed end -->
 
