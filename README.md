@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [Which High-Carb Foods Should You Eat?](https://www.yahoo.com/lifestyle/high-carb-foods-eat-123527361.html)
 - Nov 02 - [China is working on a weapon the US decided was too dangerous to exist](https://news.yahoo.com/china-working-weapon-us-decided-113322091.html)
 - Nov 02 - ['Biden has made it worse': This hedge fund billionaire just issued a serious warning about the economy — says the S&P 500 will 'go nowhere' for a very long time. Is he right?](https://finance.yahoo.com/news/biden-made-worse-hedge-fund-103000010.html)
 - Nov 02 - [Factbox-Why is Pakistan deporting over a million undocumented Afghan immigrants?](https://news.yahoo.com/factbox-why-pakistan-deporting-over-085147668.html)
 - Nov 02 - [Hamas member says they will repeat attacks until Israel is destroyed](https://news.yahoo.com/hamas-member-says-repeat-attacks-065643206.html)
-- Nov 02 - [Video captures obscene act in downtown Long Beach; businesses, residents outraged](https://news.yahoo.com/video-captures-obscene-act-downtown-061344630.html)
 <!-- feed end -->
 
 ### Onstream
