@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [Apple holiday forecast misses expectations, shares sink](https://news.yahoo.com/apple-beats-quarterly-estimates-iphone-203156713.html)
 - Nov 02 - [Man who squatted at Yosemite National Park vacation home for months gets 5 years in prison](https://news.yahoo.com/man-squatted-yosemite-national-park-201338418.html)
-- Nov 02 - [CNN reporter breaks down Eric Trump’s tense exchange on the stand](https://news.yahoo.com/cnn-reporter-breaks-down-eric-193702785.html)
 - Nov 02 - [‘I Am a Man Who Stands By His Words’: Unapologetic North Dakota GOP Leader Quits After Racist Tweet Suggesting Black People Should ‘Move to Wakanda’ Resurfaces](https://news.yahoo.com/am-man-stands-words-unapologetic-193245128.html)
 - Nov 02 - [Family of Utah Teen Who Died in Tetherball Rope Accident Recalls His ‘Joy’ and ‘Strength’](https://www.yahoo.com/entertainment/family-utah-teen-died-tetherball-192124557.html)
 - Nov 02 - [Okay, I'm Actually Convinced That These 35 People Might Just Be The Dumbest People On The Entire Internet](https://www.yahoo.com/lifestyle/okay-im-actually-convinced-35-191626494.html)
