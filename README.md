@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [Warren Buffett Is Undeniably Frugal, But For Christmas He Gives Each Family Member $10,000 Along With His Favorite Candy And Funny Personalized Christmas Cards](https://finance.yahoo.com/news/warren-buffett-undeniably-frugal-christmas-163840700.html)
+- Nov 02 - [Florida babysitter who attempted to circumcise 2-year-old boy charged with child abuse](https://news.yahoo.com/florida-babysitter-attempted-circumcise-2-174015872.html)
+- Nov 02 - [‘Tired of being played for suckers’: President Biden just proposed a new retirement rule that could help Americans save 'tens of thousands of dollars' over time — here's how it works](https://finance.yahoo.com/news/tired-being-played-suckers-president-170000473.html)
 - Nov 02 - [Donald Trump's Niece Says Cheating Is A Way Of Life For Him – She Says He Paid Someone To Take His SAT Exam So He Could Get Into Business School](https://finance.yahoo.com/news/donald-trumps-niece-says-cheating-162529508.html)
 - Nov 02 - [Trial testimony reveals gambling giant Bally's paid $60 million to take over Trump's NYC golf course](https://news.yahoo.com/trial-testimony-reveals-gambling-giant-160427165.html)
 - Nov 02 - [Charged at 15, convicted of murder: Middle Tennessee man, now 20, dead in state custody](https://news.yahoo.com/charged-15-convicted-murder-middle-153606990.html)
-- Nov 02 - ["Strongly undermines any claim": Experts say damning NY trial doc could blow up Trump's D.C. defense](https://news.yahoo.com/strongly-undermines-claim-experts-damning-144536039.html)
 <!-- feed end -->
 
 ### Onstream
