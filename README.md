@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [‘I’m Sorry That I Let This Happen’: White Texas Man Sentenced to Life Apologizes for Fatally Shooting His Black Neighbor After His Kids Left Their Toys on the Apartment Sidewalk](https://news.yahoo.com/m-sorry-let-happen-white-183000278.html)
+- Nov 02 - [Legal analyst Don Jr.'s "stunning" testimony: "I cannot overstate how damaging these admissions are"](https://news.yahoo.com/legal-analyst-don-jr-stunning-175642950.html)
 - Nov 02 - [Florida babysitter who attempted to circumcise 2-year-old boy charged with child abuse](https://news.yahoo.com/florida-babysitter-attempted-circumcise-2-174015872.html)
+- Nov 02 - [Israel Scores F-35's First Cruise Missile Kill](https://news.yahoo.com/israel-scores-f-35s-first-173117393.html)
 - Nov 02 - [‘Tired of being played for suckers’: President Biden just proposed a new retirement rule that could help Americans save 'tens of thousands of dollars' over time — here's how it works](https://finance.yahoo.com/news/tired-being-played-suckers-president-170000473.html)
-- Nov 02 - [Donald Trump's Niece Says Cheating Is A Way Of Life For Him – She Says He Paid Someone To Take His SAT Exam So He Could Get Into Business School](https://finance.yahoo.com/news/donald-trumps-niece-says-cheating-162529508.html)
-- Nov 02 - [Trial testimony reveals gambling giant Bally's paid $60 million to take over Trump's NYC golf course](https://news.yahoo.com/trial-testimony-reveals-gambling-giant-160427165.html)
-- Nov 02 - [Charged at 15, convicted of murder: Middle Tennessee man, now 20, dead in state custody](https://news.yahoo.com/charged-15-convicted-murder-middle-153606990.html)
 <!-- feed end -->
 
 ### Onstream
