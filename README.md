@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [In a reversal, Schumer says he will move forward to confirm hundreds military promotions previously held up by Tuberville](https://news.yahoo.com/reversal-schumer-says-move-forward-160551273.html)
-- Nov 01 - [George Santos Lives to Lie Another Day](https://news.yahoo.com/george-santos-survives-vote-expel-235528630.html)
+- Nov 01 - [George Santos Again Escapes House Expulsion Ahead Of Ethics Verdict](https://news.yahoo.com/george-santos-again-escapes-house-235137409.html)
 - Nov 01 - [Fox News’ Jesse Watters: ‘We’ve Had It’ With Muslims and Arab-Americans](https://www.yahoo.com/entertainment/fox-news-jesse-watters-ve-233646664.html)
 - Nov 01 - [Ukraine has taken 17,000 Russians off the battlefield without firing a shot, US Army special-ops general says](https://news.yahoo.com/ukraine-taken-17-000-russians-222101563.html)
 - Nov 01 - [Florida attorney general, against criticism, seeks to keep abortion rights amendment off 2024 ballot](https://news.yahoo.com/florida-attorney-general-against-criticism-214631896.html)
+- Nov 01 - [Sprawling tomb sat untouched for 2,600 years — until now. See its remarkable treasures](https://news.yahoo.com/sprawling-tomb-sat-untouched-2-210008209.html)
 <!-- feed end -->
 
 ### Onstream
