@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [Australian police arrest host of lunch that left 3 guests dead from suspected mushroom poisoning](https://news.yahoo.com/australian-police-arrest-host-lunch-034413829.html)
 - Nov 02 - [Opinion: There’s a smarter way to eliminate Hamas](https://news.yahoo.com/opinion-smarter-way-eliminate-hamas-083514594.html)
+- Nov 02 - [Man who shot Fort Worth neighbor dead in anger over toy on sidewalk sentenced to life](https://news.yahoo.com/man-shot-fort-worth-neighbor-022857005.html)
 - Nov 02 - ["If you come for me, you best not miss": Santos gloats after vote to expel shakes out in his favor](https://news.yahoo.com/come-best-not-miss-santos-014139339.html)
 - Nov 01 - [Ukraine has taken 17,000 Russians off the battlefield without firing a shot, US Army special-ops general says](https://news.yahoo.com/ukraine-taken-17-000-russians-222101563.html)
-- Nov 01 - [Florida attorney general, against criticism, seeks to keep abortion rights amendment off 2024 ballot](https://news.yahoo.com/florida-attorney-general-against-criticism-214631896.html)
-- Nov 01 - [Sprawling tomb sat untouched for 2,600 years — until now. See its remarkable treasures](https://news.yahoo.com/sprawling-tomb-sat-untouched-2-210008209.html)
 <!-- feed end -->
 
 ### Onstream
