@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 02 - [US imposes sweeping new sanctions targeting Russia over war in Ukraine](https://news.yahoo.com/us-imposes-sweeping-sanctions-targeting-143234027.html)
+- Nov 02 - [MTG rages at “vaping groping Lauren Boebert” and “Colonel Sanders” Chip Roy as MAGA feud explodes](https://news.yahoo.com/mtg-rages-vaping-groping-lauren-143141408.html)
 - Nov 02 - [Jamie Raskin Explains Why He Voted Against Expelling George Santos](https://news.yahoo.com/jamie-raskin-explains-why-voted-130459763.html)
 - Nov 02 - [‘Didn’t Expect for It to Go So Left’: Houston Teen Regretful About Being Hit with Charges for Violent Spree Targeting Random Strangers for Social Media Prank](https://news.yahoo.com/didn-t-expect-left-houston-130000969.html)
 - Nov 02 - [Legal experts: NY AG “set up” Don Jr. on witness stand — and now he could be criminally prosecuted](https://news.yahoo.com/legal-experts-ny-ag-set-125333302.html)
-- Nov 02 - [China is working on a weapon the US decided was too dangerous to exist](https://news.yahoo.com/china-working-weapon-us-decided-113322091.html)
-- Nov 02 - [People Are Sharing Their Most Brain-Breaking "One In A Million" Stories, And It Really Makes Me Feel Like We're Living In A Simulation](https://www.yahoo.com/lifestyle/people-sharing-most-brain-breaking-111603263.html)
 <!-- feed end -->
 
 ### Onstream
