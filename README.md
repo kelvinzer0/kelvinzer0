@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [Which High-Carb Foods Should You Eat?](https://www.yahoo.com/lifestyle/high-carb-foods-eat-123527361.html)
+- Nov 02 - [Jamie Raskin Explains Why He Voted Against Expelling George Santos](https://news.yahoo.com/jamie-raskin-explains-why-voted-130459763.html)
+- Nov 02 - [‘Didn’t Expect for It to Go So Left’: Houston Teen Regretful About Being Hit with Charges for Violent Spree Targeting Random Strangers for Social Media Prank](https://news.yahoo.com/didn-t-expect-left-houston-130000969.html)
+- Nov 02 - [Legal experts: NY AG “set up” Don Jr. on witness stand — and now he could be criminally prosecuted](https://news.yahoo.com/legal-experts-ny-ag-set-125333302.html)
 - Nov 02 - [China is working on a weapon the US decided was too dangerous to exist](https://news.yahoo.com/china-working-weapon-us-decided-113322091.html)
-- Nov 02 - ['Biden has made it worse': This hedge fund billionaire just issued a serious warning about the economy — says the S&P 500 will 'go nowhere' for a very long time. Is he right?](https://finance.yahoo.com/news/biden-made-worse-hedge-fund-103000010.html)
-- Nov 02 - [Factbox-Why is Pakistan deporting over a million undocumented Afghan immigrants?](https://news.yahoo.com/factbox-why-pakistan-deporting-over-085147668.html)
-- Nov 02 - [Hamas member says they will repeat attacks until Israel is destroyed](https://news.yahoo.com/hamas-member-says-repeat-attacks-065643206.html)
+- Nov 02 - [People Are Sharing Their Most Brain-Breaking "One In A Million" Stories, And It Really Makes Me Feel Like We're Living In A Simulation](https://www.yahoo.com/lifestyle/people-sharing-most-brain-breaking-111603263.html)
 <!-- feed end -->
 
 ### Onstream
