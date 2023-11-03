@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 03 - [Judge, citing Trump's 'repeated public statements,' orders anonymous jury in defamation suit trial](https://news.yahoo.com/judge-citing-trumps-repeated-public-214422287.html)
 - Nov 03 - [Appeals courts temporarily lifts Trump's gag order as he fights the restrictions on his speech](https://news.yahoo.com/appeals-courts-temporarily-lifts-trumps-213814745.html)
+- Nov 03 - [Cops Rescue 23-Year-Old Kidnapped Woman Held Captive in Shed](https://news.yahoo.com/cops-rescue-23-old-kidnapped-213602812.html)
 - Nov 03 - [Puerto Rican ex-boxer Félix Verdejo sentenced to life in prison in the killing of his pregnant lover](https://news.yahoo.com/puerto-rican-ex-boxer-f-202053172.html)
 - Nov 03 - [Chinese woman flees US after deadly Porsche 911 crash in Washington](https://news.yahoo.com/chinese-woman-flees-us-deadly-195448872.html)
-- Nov 03 - [Container Barge Collides With Seattle Pier](https://news.yahoo.com/container-barge-collides-seattle-pier-195002657.html)
-- Nov 03 - ["Unbelievable": Cannon scolds Jack Smith for warning that Trump is trying to "manipulate" her](https://news.yahoo.com/unbelievable-cannon-scolds-jack-smith-192229658.html)
 <!-- feed end -->
 
 ### Onstream
