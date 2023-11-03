@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 03 - [Chinese woman flees US after deadly Porsche 911 crash in Washington](https://news.yahoo.com/chinese-woman-flees-us-deadly-195448872.html)
+- Nov 03 - ["Unbelievable": Cannon scolds Jack Smith for warning that Trump is trying to "manipulate" her](https://news.yahoo.com/unbelievable-cannon-scolds-jack-smith-192229658.html)
 - Nov 03 - [George Santos says voters don't care about his lies, vowing that expulsion wouldn't stop him: 'Nobody elected me because I played volleyball or not'](https://news.yahoo.com/george-santos-says-voters-dont-190351226.html)
 - Nov 03 - [CNN Anchor Pulls Receipts to Expose GOP Rep’s Hypocrisy After Israel Bill](https://www.yahoo.com/entertainment/cnn-anchor-pulls-receipts-expose-175903641.html)
-- Nov 03 - [SBF's mom fought back tears and his dad slumped down when the jury said their son was guilty on all 7 counts](https://finance.yahoo.com/news/sbfs-mom-fought-back-tears-175618089.html)
 - Nov 03 - [Americans are shocked to discover what counts as 'near' in Europe, highlighting a vast cultural difference they hadn't considered before](https://www.yahoo.com/entertainment/americans-shocked-discover-counts-near-175117426.html)
-- Nov 03 - [Emotional outburst on live TV from Gaza over death of reporter encapsulates collective grief](https://news.yahoo.com/emotional-outburst-live-tv-gaza-173940993.html)
 <!-- feed end -->
 
 ### Onstream
