@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [Ivanka Trump asked court to pause her testimony, arguing she’d suffer ‘undue hardship’ if made to do so during school week](https://news.yahoo.com/ivanka-trump-asked-court-pause-005742032.html)
-- Nov 03 - [North Korea media urges stronger nuclear force after U.S. missile test](https://news.yahoo.com/north-korea-protests-us-over-000047671.html)
 - Nov 02 - [Hamas Fighter Shown Placing Bomb On Israeli Merkava Tank](https://news.yahoo.com/hamas-fighter-shown-placing-bomb-231320107.html)
 - Nov 02 - [2 Teens Arrested After Allegedly Firing 100 Rounds Into Wrong Home, Killing Woman](https://news.yahoo.com/2-teens-arrested-allegedly-firing-224821518.html)
 - Nov 02 - [A pilot accused of threatening to shoot a commercial airline captain is an Air Force Reserve officer](https://news.yahoo.com/pilot-accused-threatening-shoot-commercial-215719393.html)
+- Nov 02 - [Jordan to tell Blinken Israel must immediately stop war on Gaza -official statement](https://news.yahoo.com/jordan-tell-blinken-israel-must-215544199.html)
+- Nov 02 - [‘I Am a Man Who Stands By His Words’: Unapologetic North Dakota GOP Leader Quits After Racist Tweet Suggesting Black People Should ‘Move to Wakanda’ Resurfaces](https://news.yahoo.com/am-man-stands-words-unapologetic-193245128.html)
 <!-- feed end -->
 
 ### Onstream
