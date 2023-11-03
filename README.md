@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 02 - [Hamas Fighter Shown Placing Bomb On Israeli Merkava Tank](https://news.yahoo.com/hamas-fighter-shown-placing-bomb-231320107.html)
 - Nov 02 - [2 Teens Arrested After Allegedly Firing 100 Rounds Into Wrong Home, Killing Woman](https://news.yahoo.com/2-teens-arrested-allegedly-firing-224821518.html)
+- Nov 02 - [Students walk out of Hillary Clinton’s lecture at Columbia University](https://news.yahoo.com/students-walk-hillary-clinton-lecture-221117783.html)
 - Nov 02 - [A pilot accused of threatening to shoot a commercial airline captain is an Air Force Reserve officer](https://news.yahoo.com/pilot-accused-threatening-shoot-commercial-215719393.html)
 - Nov 02 - [Jordan to tell Blinken Israel must immediately stop war on Gaza -official statement](https://news.yahoo.com/jordan-tell-blinken-israel-must-215544199.html)
-- Nov 02 - [‘I Am a Man Who Stands By His Words’: Unapologetic North Dakota GOP Leader Quits After Racist Tweet Suggesting Black People Should ‘Move to Wakanda’ Resurfaces](https://news.yahoo.com/am-man-stands-words-unapologetic-193245128.html)
 <!-- feed end -->
 
 ### Onstream
