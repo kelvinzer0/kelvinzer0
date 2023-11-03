@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 03 - [Black Friday 2023: The best early deals from Amazon, Target, Best Buy and more](https://news.yahoo.com/black-friday-2023-the-best-early-deals-from-amazon-target-best-buy-and-more-163054419.html)
+- Nov 03 - [Nurse faked lockdown pregnancy and sent ex pictures of baby in intensive care](https://news.yahoo.com/nurse-faked-lockdown-pregnancy-sent-171605378.html)
+- Nov 03 - [New maps reveal who could see more snow this winter during a strong El Niño](https://news.yahoo.com/maps-reveal-could-see-more-083115837.html)
+- Nov 03 - [Weak Hezbollah speech shows who is really in charge](https://news.yahoo.com/hezbollah-leader-nothing-speech-shows-164403011.html)
 - Nov 03 - [I'm an American who sent her daughter to public school in Mexico. She wore a uniform, and the day ended at 2 p.m.](https://news.yahoo.com/im-american-sent-her-daughter-153901459.html)
-- Nov 03 - [It Just Got Worse—Again—for Donald Trump](https://news.yahoo.com/just-got-worse-again-donald-142939862.html)
 - Nov 03 - [Hezbollah tells U.S. to halt Israel's Gaza attack to prevent regional war](https://news.yahoo.com/hezbollah-leader-says-hamas-oct-135518170.html)
-- Nov 03 - [Al Pacino has agreed to pay his girlfriend Noor Alfallah $30,000 a month in child support and another $110,000 for her to get her own place, court docs show](https://www.yahoo.com/entertainment/al-pacino-agreed-pay-girlfriend-134809121.html)
 <!-- feed end -->
 
 ### Onstream
