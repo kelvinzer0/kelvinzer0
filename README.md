@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 03 - [George Santos says voters don't care about his lies, vowing that expulsion wouldn't stop him: 'Nobody elected me because I played volleyball or not'](https://news.yahoo.com/george-santos-says-voters-dont-190351226.html)
 - Nov 03 - [CNN Anchor Pulls Receipts to Expose GOP Rep’s Hypocrisy After Israel Bill](https://www.yahoo.com/entertainment/cnn-anchor-pulls-receipts-expose-175903641.html)
 - Nov 03 - [SBF's mom fought back tears and his dad slumped down when the jury said their son was guilty on all 7 counts](https://finance.yahoo.com/news/sbfs-mom-fought-back-tears-175618089.html)
-- Nov 03 - [New maps reveal who could see more snow this winter during a strong El Niño](https://news.yahoo.com/maps-reveal-could-see-more-083115837.html)
-- Nov 03 - [I'm an American who sent her daughter to public school in Mexico. She wore a uniform, and the day ended at 2 p.m.](https://news.yahoo.com/im-american-sent-her-daughter-153901459.html)
-- Nov 03 - [Businessman sentenced in $180 million bank fraud that paid for lavish lifestyle, classic cars](https://news.yahoo.com/businessman-sentenced-180-million-bank-142652351.html)
+- Nov 03 - [Americans are shocked to discover what counts as 'near' in Europe, highlighting a vast cultural difference they hadn't considered before](https://www.yahoo.com/entertainment/americans-shocked-discover-counts-near-175117426.html)
+- Nov 03 - [Emotional outburst on live TV from Gaza over death of reporter encapsulates collective grief](https://news.yahoo.com/emotional-outburst-live-tv-gaza-173940993.html)
 <!-- feed end -->
 
 ### Onstream
