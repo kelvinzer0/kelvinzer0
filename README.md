@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 03 - [Ivanka Trump asked court to pause her testimony, arguing she’d suffer ‘undue hardship’ if made to do so during school week](https://news.yahoo.com/ivanka-trump-asked-court-pause-005742032.html)
-- Nov 03 - [North Korea protests to US over Minuteman III missile test](https://news.yahoo.com/north-korea-protests-us-over-000047671.html)
-- Nov 02 - [Boy Genius No More: Sam Bankman-Fried Convicted on All 7 Counts](https://news.yahoo.com/boy-genius-no-more-sam-235104196.html)
+- Nov 03 - [North Korea media urges stronger nuclear force after U.S. missile test](https://news.yahoo.com/north-korea-protests-us-over-000047671.html)
 - Nov 02 - [Hamas Fighter Shown Placing Bomb On Israeli Merkava Tank](https://news.yahoo.com/hamas-fighter-shown-placing-bomb-231320107.html)
 - Nov 02 - [2 Teens Arrested After Allegedly Firing 100 Rounds Into Wrong Home, Killing Woman](https://news.yahoo.com/2-teens-arrested-allegedly-firing-224821518.html)
+- Nov 02 - [A pilot accused of threatening to shoot a commercial airline captain is an Air Force Reserve officer](https://news.yahoo.com/pilot-accused-threatening-shoot-commercial-215719393.html)
 <!-- feed end -->
 
 ### Onstream
