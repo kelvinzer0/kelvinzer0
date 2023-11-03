@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 03 - [Appeals courts temporarily lifts Trump's gag order as he fights the restrictions on his speech](https://news.yahoo.com/appeals-courts-temporarily-lifts-trumps-213814745.html)
+- Nov 03 - [Puerto Rican ex-boxer Félix Verdejo sentenced to life in prison in the killing of his pregnant lover](https://news.yahoo.com/puerto-rican-ex-boxer-f-202053172.html)
 - Nov 03 - [Chinese woman flees US after deadly Porsche 911 crash in Washington](https://news.yahoo.com/chinese-woman-flees-us-deadly-195448872.html)
+- Nov 03 - [Container Barge Collides With Seattle Pier](https://news.yahoo.com/container-barge-collides-seattle-pier-195002657.html)
 - Nov 03 - ["Unbelievable": Cannon scolds Jack Smith for warning that Trump is trying to "manipulate" her](https://news.yahoo.com/unbelievable-cannon-scolds-jack-smith-192229658.html)
-- Nov 03 - [George Santos says voters don't care about his lies, vowing that expulsion wouldn't stop him: 'Nobody elected me because I played volleyball or not'](https://news.yahoo.com/george-santos-says-voters-dont-190351226.html)
-- Nov 03 - [CNN Anchor Pulls Receipts to Expose GOP Rep’s Hypocrisy After Israel Bill](https://www.yahoo.com/entertainment/cnn-anchor-pulls-receipts-expose-175903641.html)
-- Nov 03 - [Americans are shocked to discover what counts as 'near' in Europe, highlighting a vast cultural difference they hadn't considered before](https://www.yahoo.com/entertainment/americans-shocked-discover-counts-near-175117426.html)
 <!-- feed end -->
 
 ### Onstream
