@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [Hamas Fighter Shown Placing Bomb On Israeli Merkava Tank](https://news.yahoo.com/hamas-fighter-shown-placing-bomb-231320107.html)
-- Nov 02 - [2 Teens Arrested After Allegedly Firing 100 Rounds Into Wrong Home, Killing Woman](https://news.yahoo.com/2-teens-arrested-allegedly-firing-224821518.html)
-- Nov 02 - [Students walk out of Hillary Clinton’s lecture at Columbia University](https://news.yahoo.com/students-walk-hillary-clinton-lecture-221117783.html)
-- Nov 02 - [A pilot accused of threatening to shoot a commercial airline captain is an Air Force Reserve officer](https://news.yahoo.com/pilot-accused-threatening-shoot-commercial-215719393.html)
-- Nov 02 - [Jordan to tell Blinken Israel must immediately stop war on Gaza -official statement](https://news.yahoo.com/jordan-tell-blinken-israel-must-215544199.html)
+- Nov 03 - [Hezbollah tells US: Halt Israel's Gaza attack to prevent regional war](https://news.yahoo.com/hezbollah-leader-says-hamas-oct-135518170.html)
+- Nov 03 - [Al Pacino has agreed to pay his girlfriend Noor Alfallah $30,000 a month in child support and another $110,000 for her to get her own place, court docs show](https://www.yahoo.com/entertainment/al-pacino-agreed-pay-girlfriend-134809121.html)
+- Nov 03 - [Lebanon's militant Hezbollah leader threatens escalation with Israel as its war with Hamas rages on](https://news.yahoo.com/leader-lebanons-militant-hezbollah-group-134105568.html)
+- Nov 03 - [Car crashes through gate at South Carolina nuclear plant before pop-up barrier stops it](https://news.yahoo.com/car-crashes-gate-south-carolina-130941683.html)
+- Nov 03 - [“Crazy thing to say to a judge”: Experts stunned after judge explodes at Trump lawyer’s “misogyny”](https://news.yahoo.com/crazy-thing-judge-experts-stunned-125652707.html)
 <!-- feed end -->
 
 ### Onstream
