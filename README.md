@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 02 - [Man who squatted at Yosemite National Park vacation home for months gets 5 years in prison](https://news.yahoo.com/man-squatted-yosemite-national-park-201338418.html)
-- Nov 02 - [‘I Am a Man Who Stands By His Words’: Unapologetic North Dakota GOP Leader Quits After Racist Tweet Suggesting Black People Should ‘Move to Wakanda’ Resurfaces](https://news.yahoo.com/am-man-stands-words-unapologetic-193245128.html)
-- Nov 02 - [Family of Utah Teen Who Died in Tetherball Rope Accident Recalls His ‘Joy’ and ‘Strength’](https://www.yahoo.com/entertainment/family-utah-teen-died-tetherball-192124557.html)
-- Nov 02 - [Help, I Can't Stop Laughing At These 35 Extremely Dumb Things People Actually Posted On The Internet Last Month](https://www.yahoo.com/lifestyle/okay-im-actually-convinced-35-191626494.html)
-- Nov 02 - [Videos appear to show Israeli soldiers abusing bound and blindfolded Palestinian detainees](https://news.yahoo.com/videos-appear-show-israeli-soldiers-190056441.html)
+- Nov 03 - [Ivanka Trump asked court to pause her testimony, arguing she’d suffer ‘undue hardship’ if made to do so during school week](https://news.yahoo.com/ivanka-trump-asked-court-pause-005742032.html)
+- Nov 03 - [North Korea protests to US over Minuteman III missile test](https://news.yahoo.com/north-korea-protests-us-over-000047671.html)
+- Nov 02 - [Boy Genius No More: Sam Bankman-Fried Convicted on All 7 Counts](https://news.yahoo.com/boy-genius-no-more-sam-235104196.html)
+- Nov 02 - [Hamas Fighter Shown Placing Bomb On Israeli Merkava Tank](https://news.yahoo.com/hamas-fighter-shown-placing-bomb-231320107.html)
+- Nov 02 - [2 Teens Arrested After Allegedly Firing 100 Rounds Into Wrong Home, Killing Woman](https://news.yahoo.com/2-teens-arrested-allegedly-firing-224821518.html)
 <!-- feed end -->
 
 ### Onstream
