@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 04 - [Rudy Tells Trump He’ll Go Down With the Ship](https://news.yahoo.com/rudy-tells-trump-ll-down-130000953.html)
 - Nov 04 - [Israeli jets hit Lebanon as Hezbollah fires more powerful missile](https://news.yahoo.com/israeli-jets-hit-lebanon-hezbollah-123635852.html)
 - Nov 04 - [‘That is 72 months of death’: This young Texan took out 2 mega car loans with interest rates of 13% and 25% — and now he’s stuck. Here’s how to avoid being stranded by debt](https://finance.yahoo.com/news/72-months-death-young-texan-113000160.html)
 - Nov 04 - [Children destroy couple's $1.5m home with chainsaws and axes in monthlong 'evil' vandalism spree](https://news.yahoo.com/children-destroy-couples-1-5m-110703429.html)
-- Nov 04 - [Philippines military remains loyal to the president - national security adviser](https://news.yahoo.com/philippines-military-remains-loyal-president-070045987.html)
-- Nov 04 - [‘Jessica’s cancer was missed 20 times by GPs – she never stood a chance’](https://news.yahoo.com/jessica-cancer-missed-20-times-070000058.html)
+- Nov 04 - [Alabama Mayor, Pastor Dies by Suicide After Being Involuntarily Outed as Transgender Woman](https://news.yahoo.com/alabama-mayor-pastor-dies-suicide-084152190.html)
 <!-- feed end -->
 
 ### Onstream
