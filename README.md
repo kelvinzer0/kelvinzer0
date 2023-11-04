@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 04 - [Israeli jets hit Lebanon as Hezbollah fires more powerful missile](https://news.yahoo.com/israeli-jets-hit-lebanon-hezbollah-123635852.html)
+- Nov 04 - [‘That is 72 months of death’: This young Texan took out 2 mega car loans with interest rates of 13% and 25% — and now he’s stuck. Here’s how to avoid being stranded by debt](https://finance.yahoo.com/news/72-months-death-young-texan-113000160.html)
+- Nov 04 - [Children destroy couple's $1.5m home with chainsaws and axes in monthlong 'evil' vandalism spree](https://news.yahoo.com/children-destroy-couples-1-5m-110703429.html)
 - Nov 04 - [Philippines military remains loyal to the president - national security adviser](https://news.yahoo.com/philippines-military-remains-loyal-president-070045987.html)
 - Nov 04 - [‘Jessica’s cancer was missed 20 times by GPs – she never stood a chance’](https://news.yahoo.com/jessica-cancer-missed-20-times-070000058.html)
-- Nov 04 - [Tesla CEO Elon Musk called company’s new asset a ‘money-printing machine’ — now it’s set to open ahead of schedule](https://news.yahoo.com/tesla-ceo-elon-musk-called-050000461.html)
-- Nov 04 - [Ukraine appears to be pulling off the 'Anaconda Plan'](https://news.yahoo.com/ukraine-appears-pulling-off-anaconda-030126559.html)
-- Nov 04 - [55 Chinese sailors allegedly died after falling into their own undersea trap](https://news.yahoo.com/55-chinese-sailors-allegedly-died-025929304.html)
 <!-- feed end -->
 
 ### Onstream
