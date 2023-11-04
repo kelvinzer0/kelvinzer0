@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 04 - [Tens of thousands of ancient coins have been found off Sardinia. They may be spoils of a shipwreck](https://news.yahoo.com/tens-thousands-ancient-coins-found-170056348.html)
 - Nov 04 - [Giant Yukon grizzly bear provides riveting trail-cam moment](https://sports.yahoo.com/giant-yukon-grizzly-bear-provides-161003977.html)
 - Nov 04 - ['Go home!': GOP crowd boos Trump criticism; lawmakers flip from DeSantis at Orlando summit](https://news.yahoo.com/home-gop-crowd-boos-trump-154229789.html)
 - Nov 04 - [FTX founder Sam Bankman-Fried’s biggest fear in jail revealed by author](https://finance.yahoo.com/news/ftx-founder-sam-bankman-fried-140056323.html)
 - Nov 04 - [Rudy Tells Trump He’ll Go Down With the Ship](https://news.yahoo.com/rudy-tells-trump-ll-down-130000953.html)
-- Nov 04 - [Israeli jets hit Lebanon as Hezbollah fires more powerful missile](https://news.yahoo.com/israeli-jets-hit-lebanon-hezbollah-123635852.html)
 <!-- feed end -->
 
 ### Onstream
