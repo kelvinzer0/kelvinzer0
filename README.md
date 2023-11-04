@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 04 - [Tens of thousands of ancient coins have been found off Sardinia. They may be spoils of a shipwreck](https://news.yahoo.com/tens-thousands-ancient-coins-found-170056348.html)
+- Nov 04 - [‘How stupid do they have to be?’: Michael Cohen blasts Don Jr. and Eric's NY civil trial testimony](https://news.yahoo.com/stupid-michael-cohen-blasts-don-165156416.html)
+- Nov 04 - [Israeli rescuers release aftermath video of Hamas attack on music festival, adding chilling details](https://news.yahoo.com/israeli-rescuers-release-aftermath-video-162215150.html)
 - Nov 04 - [Giant Yukon grizzly bear provides riveting trail-cam moment](https://sports.yahoo.com/giant-yukon-grizzly-bear-provides-161003977.html)
 - Nov 04 - ['Go home!': GOP crowd boos Trump criticism; lawmakers flip from DeSantis at Orlando summit](https://news.yahoo.com/home-gop-crowd-boos-trump-154229789.html)
-- Nov 04 - [FTX founder Sam Bankman-Fried’s biggest fear in jail revealed by author](https://finance.yahoo.com/news/ftx-founder-sam-bankman-fried-140056323.html)
-- Nov 04 - [Rudy Tells Trump He’ll Go Down With the Ship](https://news.yahoo.com/rudy-tells-trump-ll-down-130000953.html)
 <!-- feed end -->
 
 ### Onstream
