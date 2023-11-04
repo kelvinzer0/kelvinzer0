@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 04 - [Ukraine minister says he wants to turn his country into a weapons production hub for the West](https://news.yahoo.com/ukraine-minister-says-wants-turn-103535175.html)
-- Nov 04 - [A man lost 10 pounds in a month eating nothing but sandwiches to prove you shouldn't be scared of bread](https://www.yahoo.com/lifestyle/man-lost-10-pounds-month-080101694.html)
+- Nov 04 - [Philippines military remains loyal to the president - national security adviser](https://news.yahoo.com/philippines-military-remains-loyal-president-070045987.html)
 - Nov 04 - [‘Jessica’s cancer was missed 20 times by GPs – she never stood a chance’](https://news.yahoo.com/jessica-cancer-missed-20-times-070000058.html)
 - Nov 04 - [Tesla CEO Elon Musk called company’s new asset a ‘money-printing machine’ — now it’s set to open ahead of schedule](https://news.yahoo.com/tesla-ceo-elon-musk-called-050000461.html)
+- Nov 04 - [Ukraine appears to be pulling off the 'Anaconda Plan'](https://news.yahoo.com/ukraine-appears-pulling-off-anaconda-030126559.html)
 - Nov 04 - [55 Chinese sailors allegedly died after falling into their own undersea trap](https://news.yahoo.com/55-chinese-sailors-allegedly-died-025929304.html)
 <!-- feed end -->
 
