@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 04 - [$40M lawsuit filed by Virginia teacher who was shot by 6-year-old student can move forward, judge rules](https://news.yahoo.com/40m-lawsuit-filed-virginia-teacher-200521914.html)
+- Nov 04 - [Protesters mass outside Israeli PM Netanyahu's house as anger grows](https://news.yahoo.com/protesters-outside-israeli-pm-netanyahus-195354484.html)
+- Nov 04 - [Las Vegas Strip casinos embrace bad habit many want banned](https://www.thestreet.com/travel/las-vegas-strip-casinos-embrace-bad-habit-many-want-banned?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Nov 04 - ['I will never return to Moxies': Restaurant chain criticized for firing employees after pro-Palestine march](https://news.yahoo.com/moxies-restaurant-criticized-firing-employees-pro-palestine-march-193609364.html)
-- Nov 04 - [Tens of thousands of ancient coins have been found off Sardinia. They may be spoils of a shipwreck](https://news.yahoo.com/tens-thousands-ancient-coins-found-170056348.html)
-- Nov 04 - [‘How stupid do they have to be?’: Michael Cohen blasts Don Jr. and Eric's NY civil trial testimony](https://news.yahoo.com/stupid-michael-cohen-blasts-don-165156416.html)
-- Nov 04 - [Americans pay $100 billion in real estate commissions but get ready for a 30% cut on that, expert says](https://finance.yahoo.com/news/americans-pay-100-billion-real-163404746.html)
-- Nov 04 - [Giant Yukon grizzly bear provides riveting trail-cam moment](https://sports.yahoo.com/giant-yukon-grizzly-bear-provides-161003977.html)
+- Nov 04 - [Christie to pro-Trump crowd in Florida: ‘Your anger against the truth is reprehensible’](https://news.yahoo.com/christie-pro-trump-crowd-florida-184908308.html)
 <!-- feed end -->
 
 ### Onstream
