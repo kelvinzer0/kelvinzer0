@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 04 - [Ukraine appears to be pulling off the 'Anaconda Plan'](https://news.yahoo.com/ukraine-appears-pulling-off-anaconda-030126559.html)
 - Nov 04 - [55 Chinese sailors allegedly died after falling into their own undersea trap](https://news.yahoo.com/55-chinese-sailors-allegedly-died-025929304.html)
-- Nov 03 - [Nashville's Broadway reeling after popular Tin Roof bartender Brian Hall's death](https://news.yahoo.com/nashvilles-broadway-reeling-popular-tin-220127550.html)
 - Nov 03 - [Mortgage rates are dropping fast after a shock jobs report set off a series of dominoes on Wall Street—The housing market can thank Detroit’s striking auto workers](https://finance.yahoo.com/news/mortgage-rates-dropping-fast-shock-220111915.html)
 - Nov 03 - [Judge, citing Trump's 'repeated public statements,' orders anonymous jury in defamation suit trial](https://news.yahoo.com/judge-citing-trumps-repeated-public-214422287.html)
+- Nov 03 - [Cops Rescue 23-Year-Old Kidnapped Woman Held Captive in Shed](https://news.yahoo.com/cops-rescue-23-old-kidnapped-213602812.html)
 <!-- feed end -->
 
 ### Onstream
