@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 05 - [California officer involved in controversial police shooting resigns over racist texts, chief says](https://news.yahoo.com/california-officer-involved-controversial-police-220103067.html)
-- Nov 05 - [People Are Sharing Illegal Things That Used To Be Totally Normal, And It's Pretty Shocking](https://www.yahoo.com/lifestyle/people-sharing-illegal-things-used-204129256.html)
 - Nov 05 - [Hundreds leave to join Mexico migrant caravan headed for US](https://news.yahoo.com/hundreds-leave-join-mexico-migrant-203940794.html)
 - Nov 05 - [California cop resigns after police investigation reveals 10 pages of 'disgusting and horrible' racist text messages](https://news.yahoo.com/california-cop-resigns-police-investigation-201646671.html)
-- Nov 05 - [Stephanopoulos presses Scalise on whether 2020 election was stolen: ‘Yes or no?’](https://news.yahoo.com/stephanopoulos-presses-scalise-whether-2020-200604501.html)
+- Nov 05 - [Here’s the average net worth of Americans by age. How do you stack up?](https://news.yahoo.com/average-net-worth-americans-age-193418831.html)
+- Nov 05 - [A middle-schooler just won $25,000 for inventing a fire-detection device that works faster than the average smoke detector](https://news.yahoo.com/middle-schooler-just-won-25-184124347.html)
 <!-- feed end -->
 
 ### Onstream
