@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [Philippines' Marcos condemns killing of journalist, orders investigation](https://news.yahoo.com/philippines-marcos-condemns-killing-journalist-074001051.html)
+- Nov 05 - [Ukrainian Air Force Commander confirms destruction of Russia's modern warship in Kerch](https://news.yahoo.com/ukrainian-air-force-commander-confirms-062725434.html)
 - Nov 05 - [Afghan farmers lose income of more than $1 billion after the Taliban banned poppy cultivation](https://news.yahoo.com/afghan-farmers-lose-income-more-053026358.html)
-- Nov 05 - [Afghanistan opium poppy supply plummets 95% after Taliban ban - U.N](https://news.yahoo.com/afghanistan-opium-poppy-supply-plummets-050829857.html)
-- Nov 05 - [Californians bet farming agave for spirits holds key to weathering drought and groundwater limits](https://news.yahoo.com/californians-bet-farming-agave-spirits-043644053.html)
-- Nov 04 - [How Israel shot down a ballistic missile in space for the first time](https://news.yahoo.com/israel-shot-down-ballistic-missile-205608120.html)
 - Nov 04 - [Cohen slams testimony from Trump’s sons in fraud trial: ‘How stupid do you have to be?’](https://news.yahoo.com/cohen-slams-testimony-trump-sons-203254800.html)
+- Nov 04 - [Las Vegas Strip casinos embrace bad habit many want banned](https://www.thestreet.com/travel/las-vegas-strip-casinos-embrace-bad-habit-many-want-banned?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
