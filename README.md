@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [Afghan farmers lose income of more than $1 billion after the Taliban banned poppy cultivation](https://news.yahoo.com/afghan-farmers-lose-income-more-053026358.html)
 - Nov 05 - [Afghanistan opium poppy supply plummets 95% after Taliban ban - U.N](https://news.yahoo.com/afghanistan-opium-poppy-supply-plummets-050829857.html)
 - Nov 04 - [How Israel shot down a ballistic missile in space for the first time](https://news.yahoo.com/israel-shot-down-ballistic-missile-205608120.html)
 - Nov 04 - [Las Vegas Strip casinos embrace bad habit many want banned](https://www.thestreet.com/travel/las-vegas-strip-casinos-embrace-bad-habit-many-want-banned?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Nov 04 - [Ukraine's Air Force hits Kerch plant where Russian Kalibr missile carrier was docked](https://news.yahoo.com/ukraines-air-force-hits-kerch-194128120.html)
-- Nov 04 - ['I will never return to Moxies': Restaurant chain criticized for firing employees after pro-Palestine march](https://news.yahoo.com/moxies-restaurant-criticized-firing-employees-pro-palestine-march-193609364.html)
 <!-- feed end -->
 
 ### Onstream
