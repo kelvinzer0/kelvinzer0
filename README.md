@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 05 - [Trump trial nears end as prosecutors confident he ‘didn’t have the goods’](https://news.yahoo.com/trump-trial-nears-end-prosecutors-120007802.html)
+- Nov 05 - [Wildlife officers make disturbing autopsy discovery after euthanizing sick bear: ‘It’s a call we wish we never had to make’](https://news.yahoo.com/wildlife-officers-disturbing-autopsy-discovery-110000647.html)
 - Nov 05 - [Netanyahu disciplines Israeli minister who voiced openness to hypothetical nuclear option in Gaza](https://news.yahoo.com/netanyahu-disciplines-israeli-minister-voiced-103037018.html)
 - Nov 05 - [U.S. Money Supply Is Doing Something Not Seen Since the Great Depression, and a Big Move in Stocks May Follow](https://www.fool.com/investing/2023/11/05/money-supply-great-depression-big-move-in-stocks/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Nov 05 - [New study reveals the home appliance that spews more benzene than secondhand smoke: ‘You’re at an elevated risk [of cancer]’](https://news.yahoo.com/study-reveals-home-appliance-spews-110000657.html)
-- Nov 05 - [After a $1.8 billion verdict, the clock is ticking on the 6% real estate commission](https://finance.yahoo.com/news/1-8-billion-verdict-clock-090015429.html)
 <!-- feed end -->
 
 ### Onstream
