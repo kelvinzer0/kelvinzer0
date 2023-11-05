@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [‘They came out of the sea shooting us’: How Israel’s Bedouin Arabs became Hamas targets](https://news.yahoo.com/came-sea-shooting-us-israel-090000944.html)
 - Nov 05 - [Philippines' Marcos condemns killing of journalist, orders investigation](https://news.yahoo.com/philippines-marcos-condemns-killing-journalist-074001051.html)
-- Nov 05 - [Ukrainian Air Force Commander confirms destruction of Russia's modern warship in Kerch](https://news.yahoo.com/ukrainian-air-force-commander-confirms-062725434.html)
+- Nov 05 - [Ukrainian Air Force Commander confirms destruction of Russian warship in Kerch](https://news.yahoo.com/ukrainian-air-force-commander-confirms-062725434.html)
 - Nov 05 - [Afghan farmers lose income of more than $1 billion after the Taliban banned poppy cultivation](https://news.yahoo.com/afghan-farmers-lose-income-more-053026358.html)
-- Nov 04 - [Cohen slams testimony from Trump’s sons in fraud trial: ‘How stupid do you have to be?’](https://news.yahoo.com/cohen-slams-testimony-trump-sons-203254800.html)
-- Nov 04 - [Las Vegas Strip casinos embrace bad habit many want banned](https://www.thestreet.com/travel/las-vegas-strip-casinos-embrace-bad-habit-many-want-banned?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 05 - [Ukraine orders investigation into Russian attack on assault brigade](https://news.yahoo.com/ukraine-orders-investigation-russian-attack-043435542.html)
 <!-- feed end -->
 
 ### Onstream
