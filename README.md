@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [Chris Christie to crowd: ‘Your anger against the truth is reprehensible’](https://news.yahoo.com/watch-chris-christie-scold-audience-235134134.html)
 - Nov 04 - [High schooler calls for AI regulations after manipulated pornographic images of her and others shared online](https://news.yahoo.com/high-schooler-calls-ai-regulations-232607486.html)
 - Nov 04 - [How Israel shot down a ballistic missile in space for the first time](https://news.yahoo.com/israel-shot-down-ballistic-missile-205608120.html)
 - Nov 04 - [Las Vegas Strip casinos embrace bad habit many want banned](https://www.thestreet.com/travel/las-vegas-strip-casinos-embrace-bad-habit-many-want-banned?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Nov 04 - [Ukraine's Air Force hits Kerch plant where Russian Kalibr missile carrier was docked](https://news.yahoo.com/ukraines-air-force-hits-kerch-194128120.html)
+- Nov 04 - ['I will never return to Moxies': Restaurant chain criticized for firing employees after pro-Palestine march](https://news.yahoo.com/moxies-restaurant-criticized-firing-employees-pro-palestine-march-193609364.html)
 <!-- feed end -->
 
 ### Onstream
