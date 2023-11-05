@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [A middle-schooler just won $25,000 for inventing a fire-detection device that works faster than the average smoke detector](https://news.yahoo.com/middle-schooler-just-won-25-184124347.html)
 - Nov 05 - [Resurfaced Reports Claim That Melania Trump’s Biggest Priority Has Everything to Do With Son Barron’s Future](https://www.yahoo.com/lifestyle/resurfaced-reports-claim-melania-trump-175400148.html)
+- Nov 05 - [Pro-Palestinian crowds try to storm US base in Turkey](https://news.yahoo.com/pro-palestinian-crowds-try-storm-173550973.html)
 - Nov 05 - [Coyote snoozing on patio couch refuses to go, California photos show. ‘Time to get up’](https://news.yahoo.com/coyote-snoozing-patio-couch-refuses-165339202.html)
 - Nov 05 - [‘Strong’ El Niño likely to bring more snow to these states](https://news.yahoo.com/strong-el-ni-o-likely-165106868.html)
-- Nov 05 - [Orcas attacked a Polish yacht for 45 minutes, sinking it off the coast of Morocco, tour company says](https://news.yahoo.com/orcas-attacked-polish-yacht-45-164611407.html)
-- Nov 05 - [A Secret War, Strange New Wounds and Silence From the Pentagon](https://news.yahoo.com/secret-war-strange-wounds-silence-160656913.html)
 <!-- feed end -->
 
 ### Onstream
