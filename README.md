@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 04 - [High schooler calls for AI regulations after manipulated pornographic images of her and others shared online](https://news.yahoo.com/high-schooler-calls-ai-regulations-232607486.html)
+- Nov 04 - [How Israel shot down a ballistic missile in space for the first time](https://news.yahoo.com/israel-shot-down-ballistic-missile-205608120.html)
 - Nov 04 - [Cohen slams testimony from Trump’s sons in fraud trial: ‘How stupid do you have to be?’](https://news.yahoo.com/cohen-slams-testimony-trump-sons-203254800.html)
 - Nov 04 - [Protesters mass outside Israeli PM Netanyahu's house as anger grows](https://news.yahoo.com/protesters-outside-israeli-pm-netanyahus-195354484.html)
 - Nov 04 - [Las Vegas Strip casinos embrace bad habit many want banned](https://www.thestreet.com/travel/las-vegas-strip-casinos-embrace-bad-habit-many-want-banned?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 04 - [Ukraine's Air Force hits Kerch plant where Russian Kalibr missile carrier was docked](https://news.yahoo.com/ukraines-air-force-hits-kerch-194128120.html)
-- Nov 04 - ['I will never return to Moxies': Restaurant chain criticized for firing employees after pro-Palestine march](https://news.yahoo.com/moxies-restaurant-criticized-firing-employees-pro-palestine-march-193609364.html)
 <!-- feed end -->
 
 ### Onstream
