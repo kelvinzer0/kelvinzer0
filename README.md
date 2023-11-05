@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [Adam Kinzinger says Trump will 'interview 100 candidates' for attorney general and pick a person who'll disregard the Constitution should the ex-president win in 2024](https://news.yahoo.com/adam-kinzinger-says-trump-interview-140659196.html)
+- Nov 05 - [Zelensky invites Trump to Ukraine: ‘He can’t manage this war’](https://news.yahoo.com/zelensky-invites-trump-ukraine-t-140000529.html)
 - Nov 05 - [Virginia school board elections face a pivotal moment as a cozy corner of democracy turns toxic](https://news.yahoo.com/virginia-school-board-elections-face-124300650.html)
+- Nov 05 - [‘Difficult to stomach’: Rich young Americans are ditching the dream of homeownership as mortgage rates and housing costs hit new highs — here’s why more of them are choosing to rent](https://finance.yahoo.com/news/difficult-stomach-rich-young-americans-123000081.html)
 - Nov 05 - [Trump trial nears end as prosecutors confident he ‘didn’t have the goods’](https://news.yahoo.com/trump-trial-nears-end-prosecutors-120007802.html)
-- Nov 05 - [‘A blow to our local economy’: Americans say the ‘POP-POP’ of pickleball is vexing enough to drive down property values. Here are the hidden costs of America’s fastest-growing sport](https://finance.yahoo.com/news/blow-local-economy-americans-pop-120000720.html)
-- Nov 05 - [Wildlife officers make disturbing autopsy discovery after euthanizing sick bear: ‘It’s a call we wish we never had to make’](https://news.yahoo.com/wildlife-officers-disturbing-autopsy-discovery-110000647.html)
-- Nov 05 - [Netanyahu disciplines Israeli minister who voiced openness to hypothetical nuclear option in Gaza](https://news.yahoo.com/netanyahu-disciplines-israeli-minister-voiced-103037018.html)
 <!-- feed end -->
 
 ### Onstream
