@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [A Secret War, Strange New Wounds and Silence From the Pentagon](https://news.yahoo.com/secret-war-strange-wounds-silence-160656913.html)
+- Nov 05 - [Why Banks Are Suddenly Closing Down Customer Accounts](https://news.yahoo.com/why-banks-suddenly-closing-down-155511987.html)
 - Nov 05 - [Trump claims he won all 50 states in the 2020 election](https://news.yahoo.com/trump-claims-won-50-states-152719454.html)
-- Nov 05 - [Jon Voight slams daughter Angelina Jolie for her anti-Israel stance: 'I'm so disappointed'](https://www.yahoo.com/entertainment/jon-voight-slams-daughter-angelina-141731946.html)
-- Nov 05 - [Adam Kinzinger says Trump will 'interview 100 candidates' for attorney general and pick a person who'll disregard the Constitution should the ex-president win in 2024](https://news.yahoo.com/adam-kinzinger-says-trump-interview-140659196.html)
-- Nov 05 - [Yamaha unveils new handlebar-less electric motorcycle concept — and it looks like it’s straight out of a sci-fi movie](https://news.yahoo.com/yamaha-unveils-handlebar-less-electric-130000443.html)
-- Nov 05 - [GOP Candidate Said She Was Attacked By BLM, But A New Report Suggests a Different and Wilder Story](https://news.yahoo.com/gop-candidate-said-she-attacked-130000342.html)
+- Nov 05 - [Don’t be concerned over one million artillery shells North Korea sent Russia, only 4% are in working condition – Dykyi](https://news.yahoo.com/don-t-concerned-over-one-152400669.html)
+- Nov 05 - [Iranian state media confirm meeting between Khamenei, Hamas' Haniyeh in Tehran](https://news.yahoo.com/iranian-state-media-confirms-meeting-145547398.html)
 <!-- feed end -->
 
 ### Onstream
