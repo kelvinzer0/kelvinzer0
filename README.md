@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 05 - [Hundreds leave to join Mexico migrant caravan headed for US](https://news.yahoo.com/hundreds-leave-join-mexico-migrant-203940794.html)
+- Nov 05 - [Stephanopoulos presses Scalise on whether 2020 election was stolen: ‘Yes or no’](https://news.yahoo.com/stephanopoulos-presses-scalise-whether-2020-200604501.html)
 - Nov 05 - [A middle-schooler just won $25,000 for inventing a fire-detection device that works faster than the average smoke detector](https://news.yahoo.com/middle-schooler-just-won-25-184124347.html)
 - Nov 05 - [Resurfaced Reports Claim That Melania Trump’s Biggest Priority Has Everything to Do With Son Barron’s Future](https://www.yahoo.com/lifestyle/resurfaced-reports-claim-melania-trump-175400148.html)
 - Nov 05 - [Pro-Palestinian crowds try to storm US base in Turkey](https://news.yahoo.com/pro-palestinian-crowds-try-storm-173550973.html)
-- Nov 05 - [Coyote snoozing on patio couch refuses to go, California photos show. ‘Time to get up’](https://news.yahoo.com/coyote-snoozing-patio-couch-refuses-165339202.html)
-- Nov 05 - [‘Strong’ El Niño likely to bring more snow to these states](https://news.yahoo.com/strong-el-ni-o-likely-165106868.html)
 <!-- feed end -->
 
 ### Onstream
