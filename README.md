@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Stephen King Roasts Marjorie Taylor Greene’s Claim ‘Not One Single American Dollar’ Has Been Spent on Israel-Hamas War](https://www.yahoo.com/entertainment/stephen-king-roasts-marjorie-taylor-015257219.html)
 - Nov 06 - [An Ohio-class submarine, possibly equipped with ballistic missiles, has arrived in the Mediterranean](https://news.yahoo.com/ohio-class-submarine-possibly-equipped-010526748.html)
 - Nov 06 - [Video: Knife-wielding man attacks former pro MMA fighter, promptly slammed on pavement](https://sports.yahoo.com/video-knife-wielding-man-attacks-010053176.html)
 - Nov 06 - [Trump and His Lawyers Dare NY Judge to Throw Him in Jail](https://news.yahoo.com/trump-lawyers-dare-ny-judge-010001124.html)
 - Nov 06 - [Trump Mulling Deploying Military to Streets on Day 1 if Elected: Report](https://news.yahoo.com/trump-mulling-deploying-military-streets-000421422.html)
-- Nov 05 - [Scientists sound alarm over America’s billion-dollar problem: ‘We have more targets, more exposure, more vulnerability’](https://news.yahoo.com/scientists-sound-alarm-over-america-220000589.html)
 <!-- feed end -->
 
 ### Onstream
