@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Man accused of Antarctic assault was then sent to remote icefield with young graduate students](https://news.yahoo.com/man-accused-antarctic-assault-then-052421592.html)
+- Nov 06 - ['Sickening and unimaginable' mass shooting in Cincinnati leaves 11-year-old dead, 5 others injured](https://news.yahoo.com/sickening-unimaginable-mass-shooting-cincinnati-050653063.html)
 - Nov 06 - [George Santos, a man who once called himself 'Jew-ish,' now claims he can totally prove his grandparents were Holocaust survivors](https://news.yahoo.com/george-santos-man-once-called-032805431.html)
 - Nov 06 - [Stephen King Roasts Marjorie Taylor Greene’s Claim ‘Not One Single American Dollar’ Has Been Spent on Israel-Hamas War](https://www.yahoo.com/entertainment/stephen-king-roasts-marjorie-taylor-015257219.html)
 - Nov 06 - [An Ohio-class submarine, possibly equipped with ballistic missiles, has arrived in the Mediterranean](https://news.yahoo.com/ohio-class-submarine-possibly-equipped-010526748.html)
-- Nov 06 - [Video: Knife-wielding man attacks former pro MMA fighter, promptly slammed on pavement](https://sports.yahoo.com/video-knife-wielding-man-attacks-010053176.html)
-- Nov 06 - [Trump and His Lawyers Dare NY Judge to Throw Him in Jail](https://news.yahoo.com/trump-lawyers-dare-ny-judge-010001124.html)
 <!-- feed end -->
 
 ### Onstream
