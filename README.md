@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Ukrainian drone takes out Russian occupier busy ‘installing a mine’ – funny video](https://news.yahoo.com/ukrainian-drone-takes-russian-occupier-170100815.html)
+- Nov 06 - [Toyota’s $10,000 Future Pickup Truck Is Basic Transportation Perfection](https://news.yahoo.com/toyota-10-000-future-pickup-162400970.html)
 - Nov 06 - [Evangelical Columnist Reminds 'MAGA Mike Johnson' Of A Key Biblical Virtue](https://news.yahoo.com/evangelical-columnist-reminds-maga-mike-161434883.html)
 - Nov 06 - [Morale down, cronyism up after DeSantis takeover of Disney World government, ex-employees say](https://news.yahoo.com/morale-down-cronyism-desantis-takeover-160634793.html)
 - Nov 06 - [Judge Repeatedly Asks Lawyers to ‘Control’ Trump as Testimony Goes Off the Rails](https://news.yahoo.com/judge-repeatedly-asks-lawyers-control-154146224.html)
-- Nov 06 - ['The government's not going to save them': Suze Orman just warned of a looming financial 'pandemic' — says Americans have no one else to rely on. Here's what she means and how to prepare](https://finance.yahoo.com/news/governments-not-going-save-them-153000637.html)
-- Nov 06 - [Tesla's top designer was spotted driving a matte black Cybertruck — and X users can't decide if it looks awesome or completely horrible](https://news.yahoo.com/teslas-top-designer-spotted-driving-135143207.html)
 <!-- feed end -->
 
 ### Onstream
