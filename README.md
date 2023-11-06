@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Rashida Tlaib defends pro-Palestinian video as rift among Michigan Democrats widens over war](https://news.yahoo.com/rashida-tlaib-defends-pro-palestinian-204808591.html)
+- Nov 06 - [US plans precision bombs transfer to Israel -source](https://news.yahoo.com/us-plans-precision-bombs-transfer-203034710.html)
+- Nov 06 - ["Doesn't know how to act in front of a judge": Legal experts school Trump lawyer over meltdown](https://news.yahoo.com/doesnt-know-act-front-judge-203010757.html)
 - Nov 06 - [IDF says it captured Hamas compound in Gaza](https://news.yahoo.com/idf-says-captured-hamas-compound-134222720.html)
-- Nov 06 - [Trump “just yelled at the judge” for several minutes — and has been “screaming insults” at NY AG](https://news.yahoo.com/trump-just-yelled-judge-several-194021724.html)
-- Nov 06 - [Israeli AH-64 Apache Appears With Mysterious Hellfire Missile](https://news.yahoo.com/israeli-ah-64-apache-appears-184221218.html)
-- Nov 06 - [On The Stand, Trump Admits To Adjusting Property Valuations](https://news.yahoo.com/stand-trump-admits-adjusting-property-175952378.html)
-- Nov 06 - [House Speaker Mike Johnson Plays Dumb When Asked About His Vote Against Birth Control](https://news.yahoo.com/house-speaker-mike-johnson-plays-175500711.html)
+- Nov 06 - [Hiker last seen asking hunters for help vanishes in New Mexico wilderness, family says](https://news.yahoo.com/hiker-last-seen-asking-hunters-195216407.html)
 <!-- feed end -->
 
 ### Onstream
