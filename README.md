@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [ABC’s Jonathan Karl Says Not Enough Attention Is On This Donald Trump Issue](https://news.yahoo.com/abc-jonathan-karl-says-not-123244929.html)
-- Nov 06 - [Mary Trump Mocks Cousin Ivanka Trump For Conveniently Forgetting 1 Thing](https://news.yahoo.com/mary-trump-mocks-cousin-ivanka-105725337.html)
-- Nov 06 - [France to give armoured vehicles to Lebanese army - defence minister](https://news.yahoo.com/france-armoured-vehicles-lebanese-army-102702129.html)
-- Nov 06 - [Ex-DOJ Official Explains Legal Trap Trump's About To Step In](https://news.yahoo.com/ex-doj-official-explains-legal-101131035.html)
-- Nov 06 - [Biden makes decision that will impact more than 10 million acres of land: ‘It is nearly impossible to overstate the importance of today’s announcements’](https://news.yahoo.com/biden-makes-decision-impact-more-210000197.html)
+- Nov 06 - [The nonstop sparring match between the conservative justice and liberal Biden attorney at the Supreme Court](https://news.yahoo.com/nonstop-sparring-match-between-conservative-130015506.html)
+- Nov 06 - [‘To drive around in a Dodge Charger and no one thinks you're cool': This Seattle man dropped $35K on a car just one year after bankruptcy — here's the harsh reality he was forced to face](https://finance.yahoo.com/news/drive-around-dodge-charger-no-120000339.html)
+- Nov 06 - [Republican Peter Meijer, who supported Trump's impeachment, enters Michigan's US Senate race](https://news.yahoo.com/republican-peter-meijer-supported-trumps-125741137.html)
+- Nov 06 - [‘The goose lays more golden eggs every year’: Warren Buffett explains why capitalism isn’t working for young people today — and the simple way he’d solve it](https://finance.yahoo.com/news/goose-lays-more-golden-eggs-113000690.html)
+- Nov 06 - ["Apocalypticism": Polling expert reveals the root of "panic among conservative White Christians"](https://news.yahoo.com/apocalypticism-polling-expert-reveals-root-110105178.html)
 <!-- feed end -->
 
 ### Onstream
