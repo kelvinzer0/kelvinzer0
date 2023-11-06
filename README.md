@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [An Ohio-class submarine, possibly equipped with ballistic missiles, has arrived in the Mediterranean](https://news.yahoo.com/ohio-class-submarine-possibly-equipped-010526748.html)
+- Nov 06 - [Video: Knife-wielding man attacks former pro MMA fighter, promptly slammed on pavement](https://sports.yahoo.com/video-knife-wielding-man-attacks-010053176.html)
+- Nov 06 - [Trump and His Lawyers Dare NY Judge to Throw Him in Jail](https://news.yahoo.com/trump-lawyers-dare-ny-judge-010001124.html)
 - Nov 06 - [Trump Mulling Deploying Military to Streets on Day 1 if Elected: Report](https://news.yahoo.com/trump-mulling-deploying-military-streets-000421422.html)
 - Nov 05 - [Scientists sound alarm over America’s billion-dollar problem: ‘We have more targets, more exposure, more vulnerability’](https://news.yahoo.com/scientists-sound-alarm-over-america-220000589.html)
-- Nov 05 - [Mike Johnson Admits He and His Son Monitor Each Other’s Porn Intake in Resurfaced Video](https://news.yahoo.com/mike-johnson-admits-son-monitor-210653498.html)
-- Nov 05 - [Jetson ONE, the new jetpack that can fly at the speed of a car, goes on sale next year — and its preorders already total 300 units](https://news.yahoo.com/jetson-one-jetpack-fly-speed-210000247.html)
-- Nov 05 - [People Are Sharing Things That Used To Be Normal But Are Now Illegal, And I Didn't Know About A Few Of These](https://www.yahoo.com/lifestyle/people-sharing-illegal-things-used-204129256.html)
 <!-- feed end -->
 
 ### Onstream
