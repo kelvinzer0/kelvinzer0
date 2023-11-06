@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Neil deGrasse Tyson’s new documentary challenges anti-vaxxers, vaccine hesitancy in the age of COVID](https://www.yahoo.com/entertainment/neil-degrasse-tyson-documentary-anti-vaxxers-vaccine-covid-science-221209652.html)
+- Nov 06 - [This 30-Year-Old Was Forced To Move After Rent On Her 1-Bedroom, 570 Sq. Ft. Apartment Was Raised To $7,000](https://www.yahoo.com/lifestyle/30-old-forced-move-rent-214147856.html)
 - Nov 06 - [Bootgate explained: How Ron DeSantis’s alleged cowboy boot hidden heels became a campaign controversy](https://news.yahoo.com/bootgate-explained-how-ron-desantiss-alleged-cowboy-boot-hidden-heels-became-a-campaign-controversy-210713428.html)
+- Nov 06 - [Dog adopted after 7 years in Pennsylvania shelter — and a shocking discovery](https://news.yahoo.com/dog-adopted-7-years-pennsylvania-210548824.html)
 - Nov 06 - [Rashida Tlaib defends pro-Palestinian video as rift among Michigan Democrats widens over war](https://news.yahoo.com/rashida-tlaib-defends-pro-palestinian-204808591.html)
-- Nov 06 - [It's Not Looking Good for The Ex-Michigan Cop Caught Punching a Black Teen](https://news.yahoo.com/video-ex-detroit-officer-accused-191000175.html)
-- Nov 06 - ["Doesn't know how to act in front of a judge": Legal experts school Trump lawyer over meltdown](https://news.yahoo.com/doesnt-know-act-front-judge-203010757.html)
-- Nov 06 - [IDF says it captured Hamas compound in Gaza](https://news.yahoo.com/idf-says-captured-hamas-compound-134222720.html)
 <!-- feed end -->
 
 ### Onstream
