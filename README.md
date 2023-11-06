@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Israeli minister calls for security zones around West Bank settlements to keep Palestinians away](https://news.yahoo.com/israeli-minister-calls-security-zones-184219778.html)
+- Nov 06 - [On The Stand, Trump Admits To Adjusting Property Valuations](https://news.yahoo.com/stand-trump-admits-adjusting-property-175952378.html)
 - Nov 06 - [Ukrainian drone takes out Russian occupier busy ‘installing a mine’ – funny video](https://news.yahoo.com/ukrainian-drone-takes-russian-occupier-170100815.html)
-- Nov 06 - [Toyota’s $10,000 Future Pickup Truck Is Basic Transportation Perfection](https://news.yahoo.com/toyota-10-000-future-pickup-162400970.html)
-- Nov 06 - [Evangelical Columnist Reminds 'MAGA Mike Johnson' Of A Key Biblical Virtue](https://news.yahoo.com/evangelical-columnist-reminds-maga-mike-161434883.html)
-- Nov 06 - [Morale down, cronyism up after DeSantis takeover of Disney World government, ex-employees say](https://news.yahoo.com/morale-down-cronyism-desantis-takeover-160634793.html)
-- Nov 06 - [Judge Repeatedly Asks Lawyers to ‘Control’ Trump as Testimony Goes Off the Rails](https://news.yahoo.com/judge-repeatedly-asks-lawyers-control-154146224.html)
+- Nov 06 - [Jordan says 'all options' open as Gaza conflict intensifies](https://news.yahoo.com/jordan-says-options-open-gaza-165336540.html)
+- Nov 06 - [MrBeast builds 100 wells in Africa, attracting praise – and some criticism](https://news.yahoo.com/mrbeast-builds-100-wells-africa-165048645.html)
 <!-- feed end -->
 
 ### Onstream
