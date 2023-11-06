@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [ABC’s Jonathan Karl Says Not Enough Attention Is On This Donald Trump Issue](https://news.yahoo.com/abc-jonathan-karl-says-not-123244929.html)
 - Nov 06 - [Mary Trump Mocks Cousin Ivanka Trump For Conveniently Forgetting 1 Thing](https://news.yahoo.com/mary-trump-mocks-cousin-ivanka-105725337.html)
+- Nov 06 - [France to give armoured vehicles to Lebanese army - defence minister](https://news.yahoo.com/france-armoured-vehicles-lebanese-army-102702129.html)
 - Nov 06 - [Ex-DOJ Official Explains Legal Trap Trump's About To Step In](https://news.yahoo.com/ex-doj-official-explains-legal-101131035.html)
-- Nov 06 - [Experts are witnessing a strange new phenomenon in the demand for electric cars: ‘We call it the ‘Field of Dreams’ moment’](https://news.yahoo.com/experts-witnessing-strange-phenomenon-demand-131500996.html)
-- Nov 06 - [Broken window leads to Texas man hunting down ex-wife, her girlfriend in chase that ends in murder](https://news.yahoo.com/broken-window-leads-texas-man-090053791.html)
-- Nov 06 - [Europeans have abandoned Cuba, and it's all America's fault](https://www.yahoo.com/lifestyle/europeans-abandoned-cuba-americas-fault-080000735.html)
+- Nov 06 - [Biden makes decision that will impact more than 10 million acres of land: ‘It is nearly impossible to overstate the importance of today’s announcements’](https://news.yahoo.com/biden-makes-decision-impact-more-210000197.html)
 <!-- feed end -->
 
 ### Onstream
