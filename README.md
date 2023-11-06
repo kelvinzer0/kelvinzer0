@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 05 - [California officer involved in controversial police shooting resigns over racist texts, chief says](https://news.yahoo.com/california-officer-involved-controversial-police-220103067.html)
-- Nov 05 - [Hundreds leave to join Mexico migrant caravan headed for US](https://news.yahoo.com/hundreds-leave-join-mexico-migrant-203940794.html)
-- Nov 05 - [California cop resigns after police investigation reveals 10 pages of 'disgusting and horrible' racist text messages](https://news.yahoo.com/california-cop-resigns-police-investigation-201646671.html)
-- Nov 05 - [Here’s the average net worth of Americans by age. How do you stack up?](https://news.yahoo.com/average-net-worth-americans-age-193418831.html)
-- Nov 05 - [A middle-schooler just won $25,000 for inventing a fire-detection device that works faster than the average smoke detector](https://news.yahoo.com/middle-schooler-just-won-25-184124347.html)
+- Nov 06 - [Trump Mulling Deploying Military to Streets on Day 1 if Elected: Report](https://news.yahoo.com/trump-mulling-deploying-military-streets-000421422.html)
+- Nov 05 - [Scientists sound alarm over America’s billion-dollar problem: ‘We have more targets, more exposure, more vulnerability’](https://news.yahoo.com/scientists-sound-alarm-over-america-220000589.html)
+- Nov 05 - [Mike Johnson Admits He and His Son Monitor Each Other’s Porn Intake in Resurfaced Video](https://news.yahoo.com/mike-johnson-admits-son-monitor-210653498.html)
+- Nov 05 - [Jetson ONE, the new jetpack that can fly at the speed of a car, goes on sale next year — and its preorders already total 300 units](https://news.yahoo.com/jetson-one-jetpack-fly-speed-210000247.html)
+- Nov 05 - [People Are Sharing Things That Used To Be Normal But Are Now Illegal, And I Didn't Know About A Few Of These](https://www.yahoo.com/lifestyle/people-sharing-illegal-things-used-204129256.html)
 <!-- feed end -->
 
 ### Onstream
