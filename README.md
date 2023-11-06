@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Bootgate explained: How Ron DeSantis’s alleged cowboy boot hidden heels became a campaign controversy](https://news.yahoo.com/bootgate-explained-how-ron-desantiss-alleged-cowboy-boot-hidden-heels-became-a-campaign-controversy-210713428.html)
 - Nov 06 - [Rashida Tlaib defends pro-Palestinian video as rift among Michigan Democrats widens over war](https://news.yahoo.com/rashida-tlaib-defends-pro-palestinian-204808591.html)
-- Nov 06 - [US plans precision bombs transfer to Israel -source](https://news.yahoo.com/us-plans-precision-bombs-transfer-203034710.html)
+- Nov 06 - [It's Not Looking Good for The Ex-Michigan Cop Caught Punching a Black Teen](https://news.yahoo.com/video-ex-detroit-officer-accused-191000175.html)
 - Nov 06 - ["Doesn't know how to act in front of a judge": Legal experts school Trump lawyer over meltdown](https://news.yahoo.com/doesnt-know-act-front-judge-203010757.html)
 - Nov 06 - [IDF says it captured Hamas compound in Gaza](https://news.yahoo.com/idf-says-captured-hamas-compound-134222720.html)
-- Nov 06 - [Hiker last seen asking hunters for help vanishes in New Mexico wilderness, family says](https://news.yahoo.com/hiker-last-seen-asking-hunters-195216407.html)
 <!-- feed end -->
 
 ### Onstream
