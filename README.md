@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 06 - [Evangelical Columnist Reminds 'MAGA Mike Johnson' Of A Key Biblical Virtue](https://news.yahoo.com/evangelical-columnist-reminds-maga-mike-161434883.html)
+- Nov 06 - [Morale down, cronyism up after DeSantis takeover of Disney World government, ex-employees say](https://news.yahoo.com/morale-down-cronyism-desantis-takeover-160634793.html)
+- Nov 06 - [Judge Repeatedly Asks Lawyers to ‘Control’ Trump as Testimony Goes Off the Rails](https://news.yahoo.com/judge-repeatedly-asks-lawyers-control-154146224.html)
+- Nov 06 - ['The government's not going to save them': Suze Orman just warned of a looming financial 'pandemic' — says Americans have no one else to rely on. Here's what she means and how to prepare](https://finance.yahoo.com/news/governments-not-going-save-them-153000637.html)
 - Nov 06 - [Tesla's top designer was spotted driving a matte black Cybertruck — and X users can't decide if it looks awesome or completely horrible](https://news.yahoo.com/teslas-top-designer-spotted-driving-135143207.html)
-- Nov 06 - [IDF says it captured Hamas compound, announces 4-hour pause to allow evacuations](https://news.yahoo.com/idf-says-captured-hamas-compound-134222720.html)
-- Nov 06 - [The nonstop sparring match between the conservative justice and liberal Biden attorney at the Supreme Court](https://news.yahoo.com/nonstop-sparring-match-between-conservative-130015506.html)
-- Nov 06 - [‘To drive around in a Dodge Charger and no one thinks you're cool': This Seattle man dropped $35K on a car just one year after bankruptcy — here's the harsh reality he was forced to face](https://finance.yahoo.com/news/drive-around-dodge-charger-no-120000339.html)
-- Nov 06 - [Republican Peter Meijer, who supported Trump's impeachment, enters Michigan's US Senate race](https://news.yahoo.com/republican-peter-meijer-supported-trumps-125741137.html)
 <!-- feed end -->
 
 ### Onstream
