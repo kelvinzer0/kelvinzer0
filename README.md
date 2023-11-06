@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Nov 06 - ['Sickening and unimaginable' mass shooting in Cincinnati leaves 11-year-old dead, 5 others injured](https://news.yahoo.com/sickening-unimaginable-mass-shooting-cincinnati-050653063.html)
 - Nov 06 - [George Santos, a man who once called himself 'Jew-ish,' now claims he can totally prove his grandparents were Holocaust survivors](https://news.yahoo.com/george-santos-man-once-called-032805431.html)
 - Nov 06 - [Stephen King Roasts Marjorie Taylor Greene’s Claim ‘Not One Single American Dollar’ Has Been Spent on Israel-Hamas War](https://www.yahoo.com/entertainment/stephen-king-roasts-marjorie-taylor-015257219.html)
-- Nov 06 - [An Ohio-class submarine, possibly equipped with ballistic missiles, has arrived in the Mediterranean](https://news.yahoo.com/ohio-class-submarine-possibly-equipped-010526748.html)
+- Nov 06 - [Video: Knife-wielding man attacks former pro MMA fighter, promptly slammed on pavement](https://sports.yahoo.com/video-knife-wielding-man-attacks-010053176.html)
 <!-- feed end -->
 
 ### Onstream
