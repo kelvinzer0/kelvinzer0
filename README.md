@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [Israeli minister calls for security zones around West Bank settlements to keep Palestinians away](https://news.yahoo.com/israeli-minister-calls-security-zones-184219778.html)
+- Nov 06 - [IDF says it captured Hamas compound in Gaza](https://news.yahoo.com/idf-says-captured-hamas-compound-134222720.html)
+- Nov 06 - [Trump “just yelled at the judge” for several minutes — and has been “screaming insults” at NY AG](https://news.yahoo.com/trump-just-yelled-judge-several-194021724.html)
+- Nov 06 - [Israeli AH-64 Apache Appears With Mysterious Hellfire Missile](https://news.yahoo.com/israeli-ah-64-apache-appears-184221218.html)
 - Nov 06 - [On The Stand, Trump Admits To Adjusting Property Valuations](https://news.yahoo.com/stand-trump-admits-adjusting-property-175952378.html)
-- Nov 06 - [Ukrainian drone takes out Russian occupier busy ‘installing a mine’ – funny video](https://news.yahoo.com/ukrainian-drone-takes-russian-occupier-170100815.html)
-- Nov 06 - [Jordan says 'all options' open as Gaza conflict intensifies](https://news.yahoo.com/jordan-says-options-open-gaza-165336540.html)
-- Nov 06 - [MrBeast builds 100 wells in Africa, attracting praise – and some criticism](https://news.yahoo.com/mrbeast-builds-100-wells-africa-165048645.html)
+- Nov 06 - [House Speaker Mike Johnson Plays Dumb When Asked About His Vote Against Birth Control](https://news.yahoo.com/house-speaker-mike-johnson-plays-175500711.html)
 <!-- feed end -->
 
 ### Onstream
