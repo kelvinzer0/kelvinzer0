@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 07 - [Michael Cohen Produces Old Trump Document To Make Damning Point About Ex-Boss](https://news.yahoo.com/michael-cohen-produces-old-trump-123911765.html)
+- Nov 07 - ['What are you, an idiot?': Kevin O’Leary says people are wasting 15 to 20% of their income on ‘stupid stuff’ like coffee and sandwiches — here’s what he wants you to do instead](https://finance.yahoo.com/news/idiot-kevin-o-leary-says-123000865.html)
+- Nov 07 - [Famed investor Peter Schiff says that married women in the workforce are partly to blame for the country's housing crisis — and he was blasted for it. Here's his explanation](https://finance.yahoo.com/news/famed-investor-peter-schiff-just-120000071.html)
 - Nov 07 - [Obama knows nothing about anti-Semitism](https://news.yahoo.com/obama-knows-nothing-anti-semitism-110658868.html)
 - Nov 07 - [The new Speaker has three ideas to avert a government shutdown. Two make a stoppage more likely.](https://finance.yahoo.com/news/the-new-speaker-has-three-ideas-to-avert-a-government-shutdown-two-make-a-stoppage-more-likely-110450308.html)
-- Nov 07 - [Elizabeth Hirschhorn moves out of Brentwood Airbnb after 570 rent-free days. She said she had a right to stay](https://news.yahoo.com/elizabeth-hirschhorn-moves-brentwood-airbnb-110006626.html)
-- Nov 07 - [PepsiCo reveals truth about Tesla’s semitruck fleet after subjecting them to ‘hellacious’ and dangerous delivery routes](https://news.yahoo.com/pepsico-reveals-truth-tesla-semitruck-113000730.html)
 <!-- feed end -->
 
 ### Onstream
