@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 07 - [A court artist covering Trump's trial had the perfect response to a Fox commentator calling her work a 'travesty'](https://news.yahoo.com/court-artist-covering-trumps-trial-160815085.html)
+- Nov 07 - [Train kills 19-year-old friends as they retrieve car part from crash, Oregon cops say](https://news.yahoo.com/train-kills-19-old-friends-155758384.html)
+- Nov 07 - [Toyota confirms it's bringing a Crown crossover SUV to L.A. show](https://www.autoblog.com/2023/11/07/toyota-crown-crossover-suv-teaser-la-auto-show/)
 - Nov 07 - [Mom of Cornell Student Accused of Antisemitic Threats Says He Has ‘No Future’](https://news.yahoo.com/mom-cornell-student-accused-antisemitic-153641847.html)
-- Nov 07 - [What Americans get wrong about the Biden economy](https://finance.yahoo.com/news/what-americans-get-wrong-about-the-biden-economy-145041189.html)
-- Nov 07 - [Michael Cohen Produces Old Trump Document To Make Damning Point About Ex-Boss](https://news.yahoo.com/michael-cohen-produces-old-trump-123911765.html)
-- Nov 07 - ['What are you, an idiot?': Kevin O’Leary says people are wasting 15 to 20% of their income on ‘stupid stuff’ like coffee and sandwiches — here’s what he wants you to do instead](https://finance.yahoo.com/news/idiot-kevin-o-leary-says-123000865.html)
-- Nov 07 - [Obama knows nothing about anti-Semitism](https://news.yahoo.com/obama-knows-nothing-anti-semitism-110658868.html)
+- Nov 07 - [2024 Toyota Venza Review: Want a ritzier RAV4 Hybrid? A cheaper NX? Try this](https://www.autoblog.com/article/2024-toyota-venza-review/)
 <!-- feed end -->
 
 ### Onstream
