@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 07 - [Lawrence O’Donnell Reveals The 1 Word From Trump That ‘Destroyed’ His Defense](https://news.yahoo.com/lawrence-o-donnell-reveals-1-071044456.html)
+- Nov 07 - [Russia says Israeli nuclear remark raises 'huge number of questions'](https://news.yahoo.com/russia-says-israeli-remark-nuclear-064857053.html)
 - Nov 07 - [The world is turning against Israel’s war in Gaza – and many Israelis don’t understand why](https://news.yahoo.com/world-turning-against-israel-war-053731250.html)
 - Nov 07 - [China owed more than $1 trillion in Belt and Road debt: report](https://news.yahoo.com/china-owed-more-1-trillion-051639717.html)
 - Nov 07 - [Malaysia says won't recognise unilateral sanctions on supporters of Palestinian groups](https://news.yahoo.com/malaysia-pm-not-recognise-unilateral-032007511.html)
-- Nov 07 - [The nonstop sparring match between the conservative justice and liberal Biden attorney at the Supreme Court](https://news.yahoo.com/nonstop-sparring-match-between-conservative-130015506.html)
 <!-- feed end -->
 
 ### Onstream
