@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 07 - [Obama knows nothing about anti-Semitism](https://news.yahoo.com/obama-knows-nothing-anti-semitism-110658868.html)
+- Nov 07 - [The new Speaker has three ideas to avert a government shutdown. Two make a stoppage more likely.](https://finance.yahoo.com/news/the-new-speaker-has-three-ideas-to-avert-a-government-shutdown-two-make-a-stoppage-more-likely-110450308.html)
+- Nov 07 - [Elizabeth Hirschhorn moves out of Brentwood Airbnb after 570 rent-free days. She said she had a right to stay](https://news.yahoo.com/elizabeth-hirschhorn-moves-brentwood-airbnb-110006626.html)
+- Nov 07 - [Michelin-starred restaurant closes because it’s too expensive](https://www.yahoo.com/lifestyle/michelin-starred-restaurant-closes-because-100802002.html)
 - Nov 07 - [Marjorie Taylor Greene Makes Startlingly Accurate Confession About Her Own Party](https://news.yahoo.com/marjorie-taylor-greene-makes-startlingly-084542736.html)
-- Nov 07 - [Lawrence O’Donnell Reveals The 1 Word From Trump That ‘Destroyed’ His Defense](https://news.yahoo.com/lawrence-o-donnell-reveals-1-071044456.html)
-- Nov 07 - [Russia says Israeli nuclear remark raises 'huge number of questions'](https://news.yahoo.com/russia-says-israeli-remark-nuclear-064857053.html)
-- Nov 07 - [The world is turning against Israel’s war in Gaza – and many Israelis don’t understand why](https://news.yahoo.com/world-turning-against-israel-war-053731250.html)
-- Nov 07 - [China owed more than $1 trillion in Belt and Road debt: report](https://news.yahoo.com/china-owed-more-1-trillion-051639717.html)
 <!-- feed end -->
 
 ### Onstream
