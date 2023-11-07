@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 07 - [US Army says it needs $3 billion for 155 mm artillery rounds and production](https://news.yahoo.com/us-army-says-needs-3-225028637.html)
+- Nov 07 - [Runaway semi filled with gravel takes out 33 cars, crashes into dealership](https://www.autoblog.com/2023/11/07/runaway-double-bottom-semi-takes-out-33-cars-as-it-barrels-into-dealership/)
+- Nov 07 - [Ex-CIA officer accused of sexually abusing dozens of women pleads guilty to federal charges](https://news.yahoo.com/ex-cia-officer-accused-sexually-221006438.html)
+- Nov 07 - [Beloved fast-food chain files for Chapter 11 bankruptcy](https://www.thestreet.com/restaurants/beloved-fast-food-chain-files-for-chapter-11-bankruptcy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Nov 07 - [Rivian raises full-year production forecast, shares rise](https://news.yahoo.com/rivian-beats-quarterly-revenue-estimate-210722243.html)
-- Nov 07 - [Tlaib tears up as she defends against censure move over Israel criticism](https://www.yahoo.com/gma/tlaib-tears-she-defends-against-210400170.html)
-- Nov 07 - [Robert De Niro's ex-assistant testified she was forced to do 'demeaning' tasks like washing his bedsheets and researching private schools for his child](https://www.yahoo.com/entertainment/robert-niros-ex-assistant-testified-202159037.html)
-- Nov 07 - [Justices Alito and Thomas Unsurprisingly Argue That Domestic Abusers Have the Right to Own Guns](https://news.yahoo.com/justices-alito-thomas-unsurprisingly-argue-191000579.html)
-- Nov 07 - [A commercial airline pilot explained what he really does on an 18-hour flight to clear up viral 'misconceptions' about his job](https://www.yahoo.com/entertainment/commercial-airline-pilot-explained-really-190318376.html)
 <!-- feed end -->
 
 ### Onstream
