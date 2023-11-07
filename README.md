@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 07 - [China owed more than $1 trillion in Belt and Road debt: report](https://news.yahoo.com/china-owed-more-1-trillion-051639717.html)
+- Nov 07 - [Indonesia says Gaza hospital for Palestinians after Israel accusations](https://news.yahoo.com/indonesia-says-gaza-hospital-palestinians-042138098.html)
 - Nov 07 - [Malaysia says won't recognise unilateral sanctions on supporters of Palestinian groups](https://news.yahoo.com/malaysia-pm-not-recognise-unilateral-032007511.html)
-- Nov 07 - [Jewish man, 69, dead after ‘altercation’ with pro-Palestinian demonstrator in Thousand Oaks](https://news.yahoo.com/elderly-jewish-man-dies-incident-012827688.html)
-- Nov 07 - [Fact Check: House Speaker Mike Johnson Says Women Have 'Duty To Birth at Least One Able-Bodied Worker'?](https://news.yahoo.com/fact-check-house-speaker-mike-002400323.html)
-- Nov 06 - [Man tracks down relative’s stolen car and shoots three teen girls inside, NY cops say](https://news.yahoo.com/man-tracks-down-relative-stolen-233012253.html)
-- Nov 06 - [IDF spokesman says Israel has encircled Hamas stronghold of Gaza City](https://news.yahoo.com/idf-says-captured-hamas-compound-134222720.html)
+- Nov 07 - [The nonstop sparring match between the conservative justice and liberal Biden attorney at the Supreme Court](https://news.yahoo.com/nonstop-sparring-match-between-conservative-130015506.html)
+- Nov 07 - [Elderly Jewish man dies after ‘altercation’ with pro-Palestinian demonstrator in Thousand Oaks](https://news.yahoo.com/elderly-jewish-man-dies-incident-012827688.html)
 <!-- feed end -->
 
 ### Onstream
