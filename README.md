@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 07 - [Michael Cohen Produces Old Trump Document To Make Damning Point About Ex-Boss](https://news.yahoo.com/michael-cohen-produces-old-trump-123911765.html)
 - Nov 07 - [Obama knows nothing about anti-Semitism](https://news.yahoo.com/obama-knows-nothing-anti-semitism-110658868.html)
 - Nov 07 - [The new Speaker has three ideas to avert a government shutdown. Two make a stoppage more likely.](https://finance.yahoo.com/news/the-new-speaker-has-three-ideas-to-avert-a-government-shutdown-two-make-a-stoppage-more-likely-110450308.html)
 - Nov 07 - [Elizabeth Hirschhorn moves out of Brentwood Airbnb after 570 rent-free days. She said she had a right to stay](https://news.yahoo.com/elizabeth-hirschhorn-moves-brentwood-airbnb-110006626.html)
-- Nov 07 - [Michelin-starred restaurant closes because it’s too expensive](https://www.yahoo.com/lifestyle/michelin-starred-restaurant-closes-because-100802002.html)
-- Nov 07 - [Marjorie Taylor Greene Makes Startlingly Accurate Confession About Her Own Party](https://news.yahoo.com/marjorie-taylor-greene-makes-startlingly-084542736.html)
+- Nov 07 - [PepsiCo reveals truth about Tesla’s semitruck fleet after subjecting them to ‘hellacious’ and dangerous delivery routes](https://news.yahoo.com/pepsico-reveals-truth-tesla-semitruck-113000730.html)
 <!-- feed end -->
 
 ### Onstream
