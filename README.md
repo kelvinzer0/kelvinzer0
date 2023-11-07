@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 07 - [What Americans get wrong about the Biden economy](https://finance.yahoo.com/news/what-americans-get-wrong-about-the-biden-economy-145041189.html)
 - Nov 07 - [Michael Cohen Produces Old Trump Document To Make Damning Point About Ex-Boss](https://news.yahoo.com/michael-cohen-produces-old-trump-123911765.html)
 - Nov 07 - ['What are you, an idiot?': Kevin O’Leary says people are wasting 15 to 20% of their income on ‘stupid stuff’ like coffee and sandwiches — here’s what he wants you to do instead](https://finance.yahoo.com/news/idiot-kevin-o-leary-says-123000865.html)
 - Nov 07 - [Famed investor Peter Schiff says that married women in the workforce are partly to blame for the country's housing crisis — and he was blasted for it. Here's his explanation](https://finance.yahoo.com/news/famed-investor-peter-schiff-just-120000071.html)
 - Nov 07 - [Obama knows nothing about anti-Semitism](https://news.yahoo.com/obama-knows-nothing-anti-semitism-110658868.html)
-- Nov 07 - [The new Speaker has three ideas to avert a government shutdown. Two make a stoppage more likely.](https://finance.yahoo.com/news/the-new-speaker-has-three-ideas-to-avert-a-government-shutdown-two-make-a-stoppage-more-likely-110450308.html)
 <!-- feed end -->
 
 ### Onstream
