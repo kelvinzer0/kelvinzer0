@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 07 - [Indonesia says Gaza hospital for Palestinians after Israel accusations](https://news.yahoo.com/indonesia-says-gaza-hospital-palestinians-042138098.html)
+- Nov 07 - [‘It’s bonkers’: Fmr. U.S. Attorney on shocking report about Trump plotting revenge](https://news.yahoo.com/bonkers-fmr-u-attorney-shocking-032619424.html)
 - Nov 07 - [Malaysia says won't recognise unilateral sanctions on supporters of Palestinian groups](https://news.yahoo.com/malaysia-pm-not-recognise-unilateral-032007511.html)
 - Nov 07 - [After mom, 29, got cervical cancer, she wanted her uterus removed. Her doctor said no](https://news.yahoo.com/mom-29-got-cervical-cancer-022501670.html)
 - Nov 07 - [Fact Check: House Speaker Mike Johnson Says Women Have 'Duty To Birth at Least One Able-Bodied Worker'?](https://news.yahoo.com/fact-check-house-speaker-mike-002400323.html)
-- Nov 06 - [Man tracks down relative’s stolen car and shoots three teen girls inside, NY cops say](https://news.yahoo.com/man-tracks-down-relative-stolen-233012253.html)
-- Nov 06 - [IDF spokesman says Israel has encircled Hamas stronghold of Gaza City](https://news.yahoo.com/idf-says-captured-hamas-compound-134222720.html)
 <!-- feed end -->
 
 ### Onstream
