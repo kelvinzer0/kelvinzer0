@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [Trump 'unhinged' in court, could lose support: Scaramucci](https://finance.yahoo.com/video/trump-unhinged-court-could-lose-194218197.html)
+- Nov 07 - [Suspect in California Jewish protester's death cooperating with police](https://news.yahoo.com/suspect-california-jewish-protesters-death-203049393.html)
+- Nov 07 - [Justices Alito and Thomas Unsurprisingly Argue That Domestic Abusers Have the Right to Own Guns](https://news.yahoo.com/justices-alito-thomas-unsurprisingly-argue-191000579.html)
+- Nov 07 - [A commercial airline pilot explained what he really does on an 18-hour flight to clear up viral 'misconceptions' about his job](https://www.yahoo.com/entertainment/commercial-airline-pilot-explained-really-190318376.html)
+- Nov 07 - [Ivana Trump's $22.5 Million NYC Townhouse Has No Buyers & Donald Trump Might Be the Problem](https://www.yahoo.com/entertainment/ivana-trumps-22-5-million-184240669.html)
 - Nov 07 - [They opened him up to remove his appendix. They mistakenly took out much more, lawsuit says.](https://news.yahoo.com/opened-him-remove-appendix-mistakenly-182010326.html)
-- Nov 07 - ["Not credible": Experts say Cannon's new orders suggest she "has her thumb on the scale for Trump"](https://news.yahoo.com/not-credible-experts-cannons-orders-181823414.html)
-- Nov 07 - [Steve Martin’s Perfect Response to Florida School District That Pulled His Book](https://www.yahoo.com/entertainment/steve-martin-perfect-response-florida-180400673.html)
-- Nov 07 - [Defence minister says Israeli forces in the 'heart of Gaza City'](https://news.yahoo.com/defence-minister-says-israeli-forces-174936391.html)
 <!-- feed end -->
 
 ### Onstream
