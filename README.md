@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 07 - [Trump 'unhinged' in court, could lose support: Scaramucci](https://finance.yahoo.com/video/trump-unhinged-court-could-lose-194218197.html)
 - Nov 07 - [They opened him up to remove his appendix. They mistakenly took out much more, lawsuit says.](https://news.yahoo.com/opened-him-remove-appendix-mistakenly-182010326.html)
-- Nov 07 - [US Air Force may remove 105mm cannon from AC-130 gunship](https://news.yahoo.com/us-air-force-may-remove-171141507.html)
-- Nov 07 - [Thousands of people are reportedly lining up to have a portion of their skull removed and one of Elon Musk's brain chips implanted](https://news.yahoo.com/thousands-people-reportedly-lining-portion-170836709.html)
-- Nov 07 - [Newlywed Dies in Shock Waterskiing Accident on Caribbean Honeymoon](https://news.yahoo.com/newlywed-dies-shock-waterskiing-accident-161756131.html)
-- Nov 07 - [A court artist covering Trump's trial had the perfect response to a Fox commentator calling her work a 'travesty'](https://news.yahoo.com/court-artist-covering-trumps-trial-160815085.html)
+- Nov 07 - ["Not credible": Experts say Cannon's new orders suggest she "has her thumb on the scale for Trump"](https://news.yahoo.com/not-credible-experts-cannons-orders-181823414.html)
+- Nov 07 - [Steve Martin’s Perfect Response to Florida School District That Pulled His Book](https://www.yahoo.com/entertainment/steve-martin-perfect-response-florida-180400673.html)
+- Nov 07 - [Defence minister says Israeli forces in the 'heart of Gaza City'](https://news.yahoo.com/defence-minister-says-israeli-forces-174936391.html)
 <!-- feed end -->
 
 ### Onstream
