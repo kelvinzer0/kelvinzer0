@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Nov 07 - [Israeli troops arrest Palestinian activist Ahed Tamimi in West Bank](https://news.yahoo.com/israeli-troops-arrest-palestinian-activist-001130710.html)
 - Nov 06 - [Man tracks down relative’s stolen car and shoots three teen girls inside, NY cops say](https://news.yahoo.com/man-tracks-down-relative-stolen-233012253.html)
 - Nov 06 - [IDF spokesman says Israel has encircled Hamas stronghold of Gaza City](https://news.yahoo.com/idf-says-captured-hamas-compound-134222720.html)
-- Nov 06 - [The housing market is starting to crack—Sellers are cutting prices at record levels as ‘You can no longer price based off of where sales were’](https://finance.yahoo.com/news/housing-market-starting-crack-sellers-221220807.html)
+- Nov 06 - ["Here's What $7,000 A Month Gets You In NYC": This 30-Year-Old Was Forced To Move Out After Her Rent Reached Outlandish Prices](https://www.yahoo.com/lifestyle/30-old-forced-move-rent-214147856.html)
 <!-- feed end -->
 
 ### Onstream
