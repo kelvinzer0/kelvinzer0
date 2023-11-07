@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 06 - [Neil deGrasse Tyson’s new documentary challenges anti-vaxxers, vaccine hesitancy in the age of COVID](https://www.yahoo.com/entertainment/neil-degrasse-tyson-documentary-anti-vaxxers-vaccine-covid-science-221209652.html)
-- Nov 06 - [This 30-Year-Old Was Forced To Move After Rent On Her 1-Bedroom, 570 Sq. Ft. Apartment Was Raised To $7,000](https://www.yahoo.com/lifestyle/30-old-forced-move-rent-214147856.html)
-- Nov 06 - [Bootgate explained: How Ron DeSantis’s alleged cowboy boot hidden heels became a campaign controversy](https://news.yahoo.com/bootgate-explained-how-ron-desantiss-alleged-cowboy-boot-hidden-heels-became-a-campaign-controversy-210713428.html)
-- Nov 06 - [Dog adopted after 7 years in Pennsylvania shelter — and a shocking discovery](https://news.yahoo.com/dog-adopted-7-years-pennsylvania-210548824.html)
-- Nov 06 - [Rashida Tlaib defends pro-Palestinian video as rift among Michigan Democrats widens over war](https://news.yahoo.com/rashida-tlaib-defends-pro-palestinian-204808591.html)
+- Nov 07 - [Fact Check: House Speaker Mike Johnson Says Women Have 'Duty To Birth at Least One Able-Bodied Worker'?](https://news.yahoo.com/fact-check-house-speaker-mike-002400323.html)
+- Nov 07 - [Israeli troops arrest Palestinian activist Ahed Tamimi in West Bank](https://news.yahoo.com/israeli-troops-arrest-palestinian-activist-001130710.html)
+- Nov 06 - [Man tracks down relative’s stolen car and shoots three teen girls inside, NY cops say](https://news.yahoo.com/man-tracks-down-relative-stolen-233012253.html)
+- Nov 06 - [IDF spokesman says Israel has encircled Hamas stronghold of Gaza City](https://news.yahoo.com/idf-says-captured-hamas-compound-134222720.html)
+- Nov 06 - [The housing market is starting to crack—Sellers are cutting prices at record levels as ‘You can no longer price based off of where sales were’](https://finance.yahoo.com/news/housing-market-starting-crack-sellers-221220807.html)
 <!-- feed end -->
 
 ### Onstream
