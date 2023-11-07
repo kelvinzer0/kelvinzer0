@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 07 - [Fact Check: House Speaker Mike Johnson Says Women Have 'Duty To Birth at Least One Able-Bodied Worker'?](https://news.yahoo.com/fact-check-house-speaker-mike-002400323.html)
-- Nov 07 - [Israeli troops arrest Palestinian activist Ahed Tamimi in West Bank](https://news.yahoo.com/israeli-troops-arrest-palestinian-activist-001130710.html)
 - Nov 06 - [Man tracks down relative’s stolen car and shoots three teen girls inside, NY cops say](https://news.yahoo.com/man-tracks-down-relative-stolen-233012253.html)
 - Nov 06 - [IDF spokesman says Israel has encircled Hamas stronghold of Gaza City](https://news.yahoo.com/idf-says-captured-hamas-compound-134222720.html)
-- Nov 06 - ["Here's What $7,000 A Month Gets You In NYC": This 30-Year-Old Was Forced To Move Out After Her Rent Reached Outlandish Prices](https://www.yahoo.com/lifestyle/30-old-forced-move-rent-214147856.html)
+- Nov 06 - [9-foot alligator bit Florida woman's face while she was snorkeling: 'I saw her head in its mouth,' friend says](https://news.yahoo.com/9-foot-alligator-bit-florida-221940236.html)
+- Nov 06 - [Kinder Morgan to buy NextEra Energy Partners' Texas pipelines for $1.82 billion](https://finance.yahoo.com/news/kinder-morgan-buy-nextera-energy-215205760.html)
 <!-- feed end -->
 
 ### Onstream
