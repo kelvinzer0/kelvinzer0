@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 07 - [US Air Force may remove 105mm cannon from AC-130 gunship](https://news.yahoo.com/us-air-force-may-remove-171141507.html)
+- Nov 07 - [Newlywed Dies in Shock Waterskiing Accident on Caribbean Honeymoon](https://news.yahoo.com/newlywed-dies-shock-waterskiing-accident-161756131.html)
 - Nov 07 - [A court artist covering Trump's trial had the perfect response to a Fox commentator calling her work a 'travesty'](https://news.yahoo.com/court-artist-covering-trumps-trial-160815085.html)
-- Nov 07 - [Train kills 19-year-old friends as they retrieve car part from crash, Oregon cops say](https://news.yahoo.com/train-kills-19-old-friends-155758384.html)
 - Nov 07 - [Toyota confirms it's bringing a Crown crossover SUV to L.A. show](https://www.autoblog.com/2023/11/07/toyota-crown-crossover-suv-teaser-la-auto-show/)
-- Nov 07 - [Mom of Cornell Student Accused of Antisemitic Threats Says He Has ‘No Future’](https://news.yahoo.com/mom-cornell-student-accused-antisemitic-153641847.html)
-- Nov 07 - [2024 Toyota Venza Review: Want a ritzier RAV4 Hybrid? A cheaper NX? Try this](https://www.autoblog.com/article/2024-toyota-venza-review/)
+- Nov 07 - [‘Everything just went into a blur’: Bloomington man claims he killed girlfriend to defend himself from ‘taser,’ police say](https://news.yahoo.com/everything-just-went-blur-bloomington-153834031.html)
 <!-- feed end -->
 
 ### Onstream
