@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [What is causing the slowdown in EV demand?](https://finance.yahoo.com/video/causing-slowdown-ev-demand-212844809.html)
+- Nov 08 - [Ivanka Trump Testifies in New York Civil-Fraud Trial](https://finance.yahoo.com/video/ivanka-trump-testifies-york-civil-185100021.html)
+- Nov 08 - [Amazon, One Medical offer health benefit to Prime members](https://finance.yahoo.com/video/amazon-one-medical-offer-health-223000607.html)
+- Nov 08 - [Minnesota Supreme Court dismisses ‘insurrection clause’ challenge and allows Trump on primary ballot](https://news.yahoo.com/minnesota-supreme-court-dismisses-insurrection-220005064.html)
+- Nov 08 - [Lawyer loses temper with Ivanka Trump for ‘three minute’ descriptions](https://news.yahoo.com/lawyer-loses-temper-ivanka-trump-214142501.html)
 - Nov 08 - [Chilling moment gunman kills two protesters blocking road in Panama](https://news.yahoo.com/gunman-shoots-dead-two-protesters-094132467.html)
-- Nov 08 - [Israeli army shows devastation in northern Gaza as invasion grinds on](https://news.yahoo.com/israeli-army-shows-devastation-northern-210635006.html)
-- Nov 08 - [A Nebraska pool company charged people up to 6-figures and vanished after digging giant, ugly pits in their backyards, state AG alleges](https://news.yahoo.com/nebraska-pool-company-charged-people-203657767.html)
-- Nov 08 - [Azerbaijan's president addresses a military parade in Karabakh and says 'we showed the whole world'](https://news.yahoo.com/azerbaijans-president-addresses-military-parade-195114009.html)
 <!-- feed end -->
 
 ### Onstream
