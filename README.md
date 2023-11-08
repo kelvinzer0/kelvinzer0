@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 08 - [India bars protests that support the Palestinians. Analysts say a pro-Israel shift helps at home](https://news.yahoo.com/india-bars-protests-support-palestinians-050240589.html)
 - Nov 08 - [Beloved fast-food chain files for Chapter 11 bankruptcy](https://www.thestreet.com/restaurants/beloved-fast-food-chain-files-for-chapter-11-bankruptcy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 08 - [Virginia Democrats win full control of statehouse, dealing blow to GOP ahead of 2024](https://news.yahoo.com/virginia-democrats-win-full-control-040801240.html)
 - Nov 08 - [China warns against maritime 'camp' confrontations but stops short of naming US](https://news.yahoo.com/china-warns-against-maritime-camp-035930732.html)
 - Nov 08 - [Mexican Congress holds second UFO session featuring Peruvian mummies](https://news.yahoo.com/mexican-congress-holds-second-ufo-033422525.html)
+- Nov 08 - [These 21 Wikipedia Pages Are So Creepy, You'll Need To Prove You're An Adult To Visit Them](https://www.yahoo.com/lifestyle/21-very-very-very-creepy-031602964.html)
 <!-- feed end -->
 
 ### Onstream
