@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [Michigan Democrats to lose full control of state government after representatives win mayoral races](https://news.yahoo.com/michigan-democrats-lose-full-control-133714626.html)
+- Nov 08 - [A commercial plane took off with 2 missing windows and reached 10,000 feet before anyone realized there was a problem](https://news.yahoo.com/commercial-plane-took-off-2-122154396.html)
+- Nov 08 - [A former Fox News correspondent is refusing to reveal a source. Her fate is now in a judge’s hands](https://finance.yahoo.com/news/former-fox-news-correspondent-refusing-120755571.html)
 - Nov 08 - [Chris Hayes Says Judges In Trump Criminal Cases Should Do 1 Thing Right Now](https://news.yahoo.com/chris-hayes-says-judges-trump-114119264.html)
 - Nov 08 - [Russia's Lavrov assails West over switch to green energy](https://news.yahoo.com/russias-lavrov-assails-west-over-090825599.html)
-- Nov 08 - [‘Shockwaves of emotions’ after 4 L.A. Sheriff’s Department employees die of suicide in 24-hour span](https://news.yahoo.com/shockwaves-emotions-4-l-sheriff-071248757.html)
-- Nov 08 - [15 Common Habits And Societal "Norms" That Should No Longer Be Acceptable When 2024 Arrives](https://www.yahoo.com/lifestyle/frustrated-people-revealing-habits-societal-051602557.html)
-- Nov 08 - [Florida boy finds venomous snake in Wekiwa Springs yard: 'Thought it was a stuffed animal'](https://news.yahoo.com/florida-boy-finds-venomous-snake-051435006.html)
 <!-- feed end -->
 
 ### Onstream
