@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [Beloved fast-food chain files for Chapter 11 bankruptcy](https://www.thestreet.com/restaurants/beloved-fast-food-chain-files-for-chapter-11-bankruptcy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Nov 08 - [Mexican Congress holds second UFO session featuring Peruvian mummies](https://news.yahoo.com/mexican-congress-holds-second-ufo-033422525.html)
-- Nov 08 - [House passes Rashida Tlaib censure](https://news.yahoo.com/rashida-tlaib-censure-passes-033146070.html)
-- Nov 08 - [Indiana candidate dies after collapsing outside polling station](https://news.yahoo.com/indiana-candidate-dies-collapsing-outside-023204991.html)
-- Nov 08 - [Democrats win on abortion rights and other highlights from Tuesday's elections](https://news.yahoo.com/democrats-win-abortion-rights-other-022110580.html)
+- Nov 08 - [Terrified cruise passengers wrote good-bye texts to their families as their ship was battered by a giant storm in the Bay of Biscay](https://news.yahoo.com/terrified-cruise-passengers-wrote-good-031054989.html)
+- Nov 08 - [Democrats win in several states on abortion rights and other highlights from Tuesday's elections](https://news.yahoo.com/democrats-win-abortion-rights-other-022110580.html)
 - Nov 08 - [A $10 billion battle is brewing over ownership rights to a 300-year-old sunken warship believed to hold the biggest maritime treasure ever](https://news.yahoo.com/10-billion-battle-brewing-over-014935212.html)
 <!-- feed end -->
 
