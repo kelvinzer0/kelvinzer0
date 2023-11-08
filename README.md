@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [Massachusetts to begin denying shelter beds to homeless families, putting names on a waitlist](https://news.yahoo.com/massachusetts-begin-denying-shelter-beds-203309689.html)
+- Nov 08 - [Massive Texas chemical plant fire prompts residents to shelter in place](https://news.yahoo.com/massive-texas-chemical-plant-fire-202857920.html)
 - Nov 08 - [Azerbaijan's president addresses a military parade in Karabakh and says 'we showed the whole world'](https://news.yahoo.com/azerbaijans-president-addresses-military-parade-195114009.html)
 - Nov 08 - [DOJ announces arrests in ‘high-end brothel network’ used by elected officials, military officers and others](https://news.yahoo.com/doj-announces-arrests-high-end-182557354.html)
-- Nov 08 - [A former Fox News correspondent is refusing to reveal a source. Her fate is now in a judge’s hands](https://finance.yahoo.com/news/former-fox-news-correspondent-refusing-120755571.html)
-- Nov 08 - [Savannah Guthrie's Doc Advised 'No Alcohol, No Chocolate' After Her Silent Reflux Diagnosis: 'You Just Described My Diet'](https://www.yahoo.com/entertainment/savannah-guthries-doc-advised-no-190801400.html)
-- Nov 08 - [Portland ‘Karen’ Goes on Racist Rampage After Black Security Guard Tries To Stop Her From Stealing From Store](https://news.yahoo.com/portland-karen-goes-racist-rampage-184743144.html)
+- Nov 08 - [Russia says a battalion made up of Ukrainian prisoners of war is about to be sent to fight against their own country](https://news.yahoo.com/russia-says-battalion-made-ukrainian-192026948.html)
 <!-- feed end -->
 
 ### Onstream
