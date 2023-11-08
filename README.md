@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [Russia's Lavrov assails West over switch to green energy](https://news.yahoo.com/russias-lavrov-assails-west-over-090825599.html)
+- Nov 08 - [‘Shockwaves of emotions’ after 4 L.A. Sheriff’s Department employees die of suicide in 24-hour span](https://news.yahoo.com/shockwaves-emotions-4-l-sheriff-071248757.html)
 - Nov 08 - [India bars protests that support the Palestinians. Analysts say a pro-Israel shift helps at home](https://news.yahoo.com/india-bars-protests-support-palestinians-050240589.html)
 - Nov 08 - [Beloved fast-food chain files for Chapter 11 bankruptcy](https://www.thestreet.com/restaurants/beloved-fast-food-chain-files-for-chapter-11-bankruptcy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 08 - [China warns against maritime 'camp' confrontations but stops short of naming US](https://news.yahoo.com/china-warns-against-maritime-camp-035930732.html)
-- Nov 08 - [Mexican Congress holds second UFO session featuring Peruvian mummies](https://news.yahoo.com/mexican-congress-holds-second-ufo-033422525.html)
-- Nov 08 - [These 21 Wikipedia Pages Are So Creepy, You'll Need To Prove You're An Adult To Visit Them](https://www.yahoo.com/lifestyle/21-very-very-very-creepy-031602964.html)
+- Nov 08 - [ISW analyses consequences of Ukrainian attack on Russian warship in Kerch](https://news.yahoo.com/isw-analyses-consequences-ukrainian-attack-041630981.html)
 <!-- feed end -->
 
 ### Onstream
