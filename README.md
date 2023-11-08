@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [“Trying to scare women”: Fox News struggles to cope after brutal election night for GOP](https://news.yahoo.com/trying-scare-women-fox-news-140108849.html)
 - Nov 08 - [Michigan Democrats to lose full control of state government after representatives win mayoral races](https://news.yahoo.com/michigan-democrats-lose-full-control-133714626.html)
 - Nov 08 - [A commercial plane took off with 2 missing windows and reached 10,000 feet before anyone realized there was a problem](https://news.yahoo.com/commercial-plane-took-off-2-122154396.html)
 - Nov 08 - [A former Fox News correspondent is refusing to reveal a source. Her fate is now in a judge’s hands](https://finance.yahoo.com/news/former-fox-news-correspondent-refusing-120755571.html)
 - Nov 08 - [Chris Hayes Says Judges In Trump Criminal Cases Should Do 1 Thing Right Now](https://news.yahoo.com/chris-hayes-says-judges-trump-114119264.html)
-- Nov 08 - [Russia's Lavrov assails West over switch to green energy](https://news.yahoo.com/russias-lavrov-assails-west-over-090825599.html)
 <!-- feed end -->
 
 ### Onstream
