@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [Indiana candidate dies after collapsing outside polling station](https://news.yahoo.com/indiana-candidate-dies-collapsing-outside-023204991.html)
+- Nov 08 - [Democrats win on abortion rights, and other highlights from Tuesday's off-year elections](https://news.yahoo.com/democrats-win-abortion-rights-other-022110580.html)
+- Nov 07 - [How Marines became known as ‘Jarheads’](https://news.yahoo.com/marines-became-known-jarheads-231329633.html)
 - Nov 07 - [Runaway semi filled with gravel takes out 33 cars, crashes into dealership](https://www.autoblog.com/2023/11/07/runaway-double-bottom-semi-takes-out-33-cars-as-it-barrels-into-dealership/)
 - Nov 07 - [Ex-CIA officer accused of sexually abusing dozens of women pleads guilty to federal charges](https://news.yahoo.com/ex-cia-officer-accused-sexually-221006438.html)
-- Nov 07 - [Samurai sword beheading: Landaeta refuses to attend own murder trial](https://news.yahoo.com/samurai-sword-beheading-landaeta-refuses-220610157.html)
-- Nov 07 - [Beloved fast-food chain files for Chapter 11 bankruptcy](https://www.thestreet.com/restaurants/beloved-fast-food-chain-files-for-chapter-11-bankruptcy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 07 - [Robert De Niro's ex-assistant testified she was forced to do 'demeaning' tasks like washing his bedsheets and researching private schools for his child](https://www.yahoo.com/entertainment/robert-niros-ex-assistant-testified-202159037.html)
 <!-- feed end -->
 
 ### Onstream
