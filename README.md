@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 07 - [US Army says it needs $3 billion for 155 mm artillery rounds and production](https://news.yahoo.com/us-army-says-needs-3-225028637.html)
+- Nov 08 - [Letters: A very British welcome for an ex-Hamas leader and anti-Israel agitator](https://news.yahoo.com/letters-very-british-welcome-ex-000100256.html)
 - Nov 07 - [Runaway semi filled with gravel takes out 33 cars, crashes into dealership](https://www.autoblog.com/2023/11/07/runaway-double-bottom-semi-takes-out-33-cars-as-it-barrels-into-dealership/)
+- Nov 07 - [Subway plays in a 'sweet spot' globally: CEO](https://finance.yahoo.com/video/subway-plays-sweet-spot-globally-222845427.html)
 - Nov 07 - [Ex-CIA officer accused of sexually abusing dozens of women pleads guilty to federal charges](https://news.yahoo.com/ex-cia-officer-accused-sexually-221006438.html)
-- Nov 07 - [Beloved fast-food chain files for Chapter 11 bankruptcy](https://www.thestreet.com/restaurants/beloved-fast-food-chain-files-for-chapter-11-bankruptcy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 07 - [Rivian raises full-year production forecast, shares rise](https://news.yahoo.com/rivian-beats-quarterly-revenue-estimate-210722243.html)
+- Nov 07 - [Samurai sword beheading: Landaeta refuses to attend own murder trial](https://news.yahoo.com/samurai-sword-beheading-landaeta-refuses-220610157.html)
 <!-- feed end -->
 
 ### Onstream
