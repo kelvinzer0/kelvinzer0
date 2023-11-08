@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [India bars protests that support the Palestinians. Analysts say a pro-Israel shift helps at home](https://news.yahoo.com/india-bars-protests-support-palestinians-050240589.html)
 - Nov 08 - [Beloved fast-food chain files for Chapter 11 bankruptcy](https://www.thestreet.com/restaurants/beloved-fast-food-chain-files-for-chapter-11-bankruptcy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 08 - [Virginia Democrats win full control of statehouse, dealing blow to GOP ahead of 2024](https://news.yahoo.com/virginia-democrats-win-full-control-040801240.html)
+- Nov 08 - [China warns against maritime 'camp' confrontations but stops short of naming US](https://news.yahoo.com/china-warns-against-maritime-camp-035930732.html)
 - Nov 08 - [Mexican Congress holds second UFO session featuring Peruvian mummies](https://news.yahoo.com/mexican-congress-holds-second-ufo-033422525.html)
-- Nov 08 - [Terrified cruise passengers wrote good-bye texts to their families as their ship was battered by a giant storm in the Bay of Biscay](https://news.yahoo.com/terrified-cruise-passengers-wrote-good-031054989.html)
-- Nov 08 - [Democrats win in several states on abortion rights and other highlights from Tuesday's elections](https://news.yahoo.com/democrats-win-abortion-rights-other-022110580.html)
-- Nov 08 - [A $10 billion battle is brewing over ownership rights to a 300-year-old sunken warship believed to hold the biggest maritime treasure ever](https://news.yahoo.com/10-billion-battle-brewing-over-014935212.html)
 <!-- feed end -->
 
 ### Onstream
