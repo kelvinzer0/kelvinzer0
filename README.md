@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [Mexican Congress holds second UFO session featuring Peruvian mummies](https://news.yahoo.com/mexican-congress-holds-second-ufo-033422525.html)
+- Nov 08 - [House passes Rashida Tlaib censure](https://news.yahoo.com/rashida-tlaib-censure-passes-033146070.html)
 - Nov 08 - [Indiana candidate dies after collapsing outside polling station](https://news.yahoo.com/indiana-candidate-dies-collapsing-outside-023204991.html)
-- Nov 08 - [Democrats win on abortion rights, and other highlights from Tuesday's off-year elections](https://news.yahoo.com/democrats-win-abortion-rights-other-022110580.html)
-- Nov 07 - [How Marines became known as ‘Jarheads’](https://news.yahoo.com/marines-became-known-jarheads-231329633.html)
-- Nov 07 - [Runaway semi filled with gravel takes out 33 cars, crashes into dealership](https://www.autoblog.com/2023/11/07/runaway-double-bottom-semi-takes-out-33-cars-as-it-barrels-into-dealership/)
-- Nov 07 - [Ex-CIA officer accused of sexually abusing dozens of women pleads guilty to federal charges](https://news.yahoo.com/ex-cia-officer-accused-sexually-221006438.html)
+- Nov 08 - [Democrats win on abortion rights and other highlights from Tuesday's elections](https://news.yahoo.com/democrats-win-abortion-rights-other-022110580.html)
+- Nov 08 - [A $10 billion battle is brewing over ownership rights to a 300-year-old sunken warship believed to hold the biggest maritime treasure ever](https://news.yahoo.com/10-billion-battle-brewing-over-014935212.html)
 <!-- feed end -->
 
 ### Onstream
