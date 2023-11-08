@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Ivanka Trump gives evidence in father's fraud case](https://news.yahoo.com/ivanka-trump-gives-evidence-fathers-154442475.html)
+- Nov 08 - [Ivanka Trump testifies to New York fraud trial she cannot recall loan details](https://news.yahoo.com/ivanka-trump-gives-evidence-fathers-154442475.html)
+- Nov 08 - [Why American-made Martin acoustic guitars are so expensive](https://news.yahoo.com/why-american-made-martin-acoustic-182022689.html)
+- Nov 08 - [‘We were told the vaccine was safe - but what happened has been life-changing’](https://news.yahoo.com/were-told-vaccine-safe-happened-170000679.html)
 - Nov 08 - [Germany to withdraw Patriot air defence units from Poland](https://news.yahoo.com/germany-withdraw-patriot-air-defence-161921060.html)
-- Nov 08 - [The IRS Is Cracking Down on These High-Income Earners. Are You One of Them?](https://finance.yahoo.com/news/irs-cracking-down-high-income-113000406.html)
-- Nov 08 - [Bemoaning Ohio results, Santorum says ‘pure democracies’ aren’t how to run a country](https://news.yahoo.com/bemoaning-ohio-results-santorum-says-150236507.html)
-- Nov 08 - [The world's largest aircraft breaks cover in Silicon Valley](https://news.yahoo.com/worlds-largest-aircraft-breaks-cover-142035590.html)
+- Nov 08 - [Kayleigh McEnany Says Tuesday-Night Bloodbath Was All the Pollsters’ Fault!](https://news.yahoo.com/kayleigh-mcenany-says-tuesday-night-154747213.html)
 <!-- feed end -->
 
 ### Onstream
