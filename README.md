@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Ivanka Trump testifies to New York fraud trial she cannot recall loan details](https://news.yahoo.com/ivanka-trump-gives-evidence-fathers-154442475.html)
-- Nov 08 - [Why American-made Martin acoustic guitars are so expensive](https://news.yahoo.com/why-american-made-martin-acoustic-182022689.html)
+- Nov 08 - [IDF Strikes Building in Lebanon, Says It Was Used by Hezbollah](https://news.yahoo.com/idf-strikes-building-lebanon-says-183201342.html)
+- Nov 08 - [This Ivanka Trump Email Could Undo Her Family’s Entire Defense](https://news.yahoo.com/ivanka-trump-email-could-undo-173105901.html)
 - Nov 08 - [‘We were told the vaccine was safe - but what happened has been life-changing’](https://news.yahoo.com/were-told-vaccine-safe-happened-170000679.html)
+- Nov 08 - [Putin signs decree allowing foreigners to swap frozen funds for blocked Russian assets abroad](https://news.yahoo.com/putin-signs-decree-allowing-foreigners-162506139.html)
 - Nov 08 - [Germany to withdraw Patriot air defence units from Poland](https://news.yahoo.com/germany-withdraw-patriot-air-defence-161921060.html)
-- Nov 08 - [Kayleigh McEnany Says Tuesday-Night Bloodbath Was All the Pollsters’ Fault!](https://news.yahoo.com/kayleigh-mcenany-says-tuesday-night-154747213.html)
 <!-- feed end -->
 
 ### Onstream
