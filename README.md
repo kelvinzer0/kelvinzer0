@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Massachusetts to begin denying shelter beds to homeless families, putting names on a waitlist](https://news.yahoo.com/massachusetts-begin-denying-shelter-beds-203309689.html)
-- Nov 08 - [Massive Texas chemical plant fire prompts residents to shelter in place](https://news.yahoo.com/massive-texas-chemical-plant-fire-202857920.html)
+- Nov 08 - [What is causing the slowdown in EV demand?](https://finance.yahoo.com/video/causing-slowdown-ev-demand-212844809.html)
+- Nov 08 - [Chilling moment gunman kills two protesters blocking road in Panama](https://news.yahoo.com/gunman-shoots-dead-two-protesters-094132467.html)
+- Nov 08 - [Israeli army shows devastation in northern Gaza as invasion grinds on](https://news.yahoo.com/israeli-army-shows-devastation-northern-210635006.html)
+- Nov 08 - [A Nebraska pool company charged people up to 6-figures and vanished after digging giant, ugly pits in their backyards, state AG alleges](https://news.yahoo.com/nebraska-pool-company-charged-people-203657767.html)
 - Nov 08 - [Azerbaijan's president addresses a military parade in Karabakh and says 'we showed the whole world'](https://news.yahoo.com/azerbaijans-president-addresses-military-parade-195114009.html)
-- Nov 08 - [DOJ announces arrests in ‘high-end brothel network’ used by elected officials, military officers and others](https://news.yahoo.com/doj-announces-arrests-high-end-182557354.html)
-- Nov 08 - [Russia says a battalion made up of Ukrainian prisoners of war is about to be sent to fight against their own country](https://news.yahoo.com/russia-says-battalion-made-ukrainian-192026948.html)
 <!-- feed end -->
 
 ### Onstream
