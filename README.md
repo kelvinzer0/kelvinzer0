@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 08 - [Chris Hayes Says Judges In Trump Criminal Cases Should Do 1 Thing Right Now](https://news.yahoo.com/chris-hayes-says-judges-trump-114119264.html)
 - Nov 08 - [Russia's Lavrov assails West over switch to green energy](https://news.yahoo.com/russias-lavrov-assails-west-over-090825599.html)
 - Nov 08 - [‘Shockwaves of emotions’ after 4 L.A. Sheriff’s Department employees die of suicide in 24-hour span](https://news.yahoo.com/shockwaves-emotions-4-l-sheriff-071248757.html)
-- Nov 08 - [India bars protests that support the Palestinians. Analysts say a pro-Israel shift helps at home](https://news.yahoo.com/india-bars-protests-support-palestinians-050240589.html)
-- Nov 08 - [Beloved fast-food chain files for Chapter 11 bankruptcy](https://www.thestreet.com/restaurants/beloved-fast-food-chain-files-for-chapter-11-bankruptcy?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 08 - [ISW analyses consequences of Ukrainian attack on Russian warship in Kerch](https://news.yahoo.com/isw-analyses-consequences-ukrainian-attack-041630981.html)
+- Nov 08 - [15 Common Habits And Societal "Norms" That Should No Longer Be Acceptable When 2024 Arrives](https://www.yahoo.com/lifestyle/frustrated-people-revealing-habits-societal-051602557.html)
+- Nov 08 - [Florida boy finds venomous snake in Wekiwa Springs yard: 'Thought it was a stuffed animal'](https://news.yahoo.com/florida-boy-finds-venomous-snake-051435006.html)
 <!-- feed end -->
 
 ### Onstream
