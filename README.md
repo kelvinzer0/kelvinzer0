@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [IDF Strikes Building in Lebanon, Says It Was Used by Hezbollah](https://news.yahoo.com/idf-strikes-building-lebanon-says-183201342.html)
-- Nov 08 - [This Ivanka Trump Email Could Undo Her Family’s Entire Defense](https://news.yahoo.com/ivanka-trump-email-could-undo-173105901.html)
-- Nov 08 - [‘We were told the vaccine was safe - but what happened has been life-changing’](https://news.yahoo.com/were-told-vaccine-safe-happened-170000679.html)
-- Nov 08 - [Putin signs decree allowing foreigners to swap frozen funds for blocked Russian assets abroad](https://news.yahoo.com/putin-signs-decree-allowing-foreigners-162506139.html)
-- Nov 08 - [Germany to withdraw Patriot air defence units from Poland](https://news.yahoo.com/germany-withdraw-patriot-air-defence-161921060.html)
+- Nov 08 - [Azerbaijan's president addresses a military parade in Karabakh and says 'we showed the whole world'](https://news.yahoo.com/azerbaijans-president-addresses-military-parade-195114009.html)
+- Nov 08 - [DOJ announces arrests in ‘high-end brothel network’ used by elected officials, military officers and others](https://news.yahoo.com/doj-announces-arrests-high-end-182557354.html)
+- Nov 08 - [A former Fox News correspondent is refusing to reveal a source. Her fate is now in a judge’s hands](https://finance.yahoo.com/news/former-fox-news-correspondent-refusing-120755571.html)
+- Nov 08 - [Savannah Guthrie's Doc Advised 'No Alcohol, No Chocolate' After Her Silent Reflux Diagnosis: 'You Just Described My Diet'](https://www.yahoo.com/entertainment/savannah-guthries-doc-advised-no-190801400.html)
+- Nov 08 - [Portland ‘Karen’ Goes on Racist Rampage After Black Security Guard Tries To Stop Her From Stealing From Store](https://news.yahoo.com/portland-karen-goes-racist-rampage-184743144.html)
 <!-- feed end -->
 
 ### Onstream
