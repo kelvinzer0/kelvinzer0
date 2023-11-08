@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 08 - [Ivanka Trump gives evidence in father's fraud case](https://news.yahoo.com/ivanka-trump-gives-evidence-fathers-154442475.html)
-- Nov 08 - [Ivanka Trump arrives at courthouse to testify in civil fraud case](https://news.yahoo.com/ivanka-trump-arrives-courthouse-testify-153944257.html)
-- Nov 08 - [“Trying to scare women”: Fox News struggles to cope after brutal election night for GOP](https://news.yahoo.com/trying-scare-women-fox-news-140108849.html)
-- Nov 08 - [Wins in mayoral races will temporarily disrupt Michigan Democrats' full control of state government](https://news.yahoo.com/michigan-democrats-lose-full-control-133714626.html)
-- Nov 08 - [Pakistan PM says expulsion of Afghans a response to Taliban non-cooperation](https://news.yahoo.com/pakistan-pm-says-expulsion-afghans-130347791.html)
+- Nov 08 - [Germany to withdraw Patriot air defence units from Poland](https://news.yahoo.com/germany-withdraw-patriot-air-defence-161921060.html)
+- Nov 08 - [The IRS Is Cracking Down on These High-Income Earners. Are You One of Them?](https://finance.yahoo.com/news/irs-cracking-down-high-income-113000406.html)
+- Nov 08 - [Bemoaning Ohio results, Santorum says ‘pure democracies’ aren’t how to run a country](https://news.yahoo.com/bemoaning-ohio-results-santorum-says-150236507.html)
+- Nov 08 - [The world's largest aircraft breaks cover in Silicon Valley](https://news.yahoo.com/worlds-largest-aircraft-breaks-cover-142035590.html)
 <!-- feed end -->
 
 ### Onstream
