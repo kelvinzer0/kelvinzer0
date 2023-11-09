@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 08 - [Ivanka Trump Testifies in New York Civil-Fraud Trial](https://finance.yahoo.com/video/ivanka-trump-testifies-york-civil-185100021.html)
-- Nov 08 - [Amazon, One Medical offer health benefit to Prime members](https://finance.yahoo.com/video/amazon-one-medical-offer-health-223000607.html)
+- Nov 08 - [DOJ announces arrests in ‘high-end brothel network’ used by elected officials, military officers and others](https://news.yahoo.com/doj-announces-arrests-high-end-182557354.html)
+- Nov 08 - [8 people killed when driver suspected of human smuggling crashes in Texas](https://news.yahoo.com/8-people-killed-driver-suspected-230848069.html)
+- Nov 08 - [SoCal housing is so unaffordable that billionaire philanthropist MacKenzie Scott has made yet another multi-million dollar donation to fix the problem](https://finance.yahoo.com/news/socal-housing-unaffordable-billionaire-philanthropist-220919182.html)
 - Nov 08 - [Minnesota Supreme Court dismisses ‘insurrection clause’ challenge and allows Trump on primary ballot](https://news.yahoo.com/minnesota-supreme-court-dismisses-insurrection-220005064.html)
-- Nov 08 - [Lawyer loses temper with Ivanka Trump for ‘three minute’ descriptions](https://news.yahoo.com/lawyer-loses-temper-ivanka-trump-214142501.html)
 - Nov 08 - [Chilling moment gunman kills two protesters blocking road in Panama](https://news.yahoo.com/gunman-shoots-dead-two-protesters-094132467.html)
 <!-- feed end -->
 
