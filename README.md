@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [Russia strikes civilian vessel in Black Sea - Ukraine](https://news.yahoo.com/russia-strikes-civilian-vessel-black-114412073.html)
+- Nov 09 - [On How To Love Your Nonexistent Black Son: A Matt Gaetz And Mike Johnson Nonstory](https://news.yahoo.com/love-nonexistent-black-son-matt-104500742.html)
+- Nov 09 - [India, Pakistan border guards trade fire along their frontier in Kashmir; one Indian soldier killed](https://news.yahoo.com/india-pakistan-border-guards-trade-092333874.html)
 - Nov 09 - [U.S. forces under fire in Middle East as America slides towards brink](https://news.yahoo.com/u-forces-under-fire-middle-090314128.html)
-- Nov 09 - [8 people killed when driver suspected of human smuggling crashes in Texas](https://news.yahoo.com/8-people-killed-driver-suspected-230848069.html)
-- Nov 09 - [Israeli forces destroy entrances to Hamas terrorist tunnels in Gaza](https://news.yahoo.com/israeli-forces-destroy-entrances-hamas-052745396.html)
-- Nov 09 - [Tim Scott Soft Launches His Girlfriend at the GOP Debate](https://news.yahoo.com/tim-scott-hard-launches-girlfriend-035823052.html)
-- Nov 09 - [Trump posts weird story that accuses Judge Arthur Engoron of posting bare-chested photos](https://finance.yahoo.com/news/trump-posts-weird-story-accuses-033000476.html)
+- Nov 09 - [Israel Defence Forces announces capturing key stronghold in Gaza and killing dozens of terrorists](https://news.yahoo.com/israel-defence-forces-announces-capturing-081024495.html)
 <!-- feed end -->
 
 ### Onstream
