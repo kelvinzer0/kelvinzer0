@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [Russia strikes civilian vessel in Black Sea - Ukraine](https://news.yahoo.com/russia-strikes-civilian-vessel-black-114412073.html)
+- Nov 09 - ["I'm so tired of these psychos": Moms for Liberty is now a toxic brand](https://news.yahoo.com/im-tired-psychos-moms-liberty-110002976.html)
 - Nov 09 - [On How To Love Your Nonexistent Black Son: A Matt Gaetz And Mike Johnson Nonstory](https://news.yahoo.com/love-nonexistent-black-son-matt-104500742.html)
 - Nov 09 - [India, Pakistan border guards trade fire along their frontier in Kashmir; one Indian soldier killed](https://news.yahoo.com/india-pakistan-border-guards-trade-092333874.html)
 - Nov 09 - [U.S. forces under fire in Middle East as America slides towards brink](https://news.yahoo.com/u-forces-under-fire-middle-090314128.html)
