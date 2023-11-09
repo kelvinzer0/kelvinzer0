@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [Joe Biden And Fox News' Peter Doocy Go At It On White House South Lawn](https://news.yahoo.com/joe-biden-fox-news-peter-193201486.html)
+- Nov 09 - [The IRS just announced the new tax brackets. Here's how to see yours.](https://finance.yahoo.com/news/irs-just-announced-tax-brackets-184902787.html)
+- Nov 09 - [Commission weighs whether to discipline Illinois judge who reversed rape conviction](https://news.yahoo.com/commission-weighs-whether-discipline-illinois-184239197.html)
+- Nov 09 - [JFK Allegedly Penned a Revealing Letter to This Mistress Before She Met a Very Mysterious End](https://www.yahoo.com/entertainment/jfk-allegedly-penned-revealing-letter-183900296.html)
 - Nov 09 - [Satellite photos analyzed by AP show an axis of Israeli push earlier this week into the Gaza Strip](https://news.yahoo.com/satellite-photos-analyzed-ap-show-181954640.html)
-- Nov 09 - [Oops! Republican Congressman Admits Hunter Biden Subpoena Double Standard](https://news.yahoo.com/oops-republican-congressman-admits-hunter-180159422.html)
-- Nov 09 - [Democrat Schools Lauren Boebert In Awkward House Floor Debate](https://news.yahoo.com/democrat-schools-lauren-boebert-awkward-174717600.html)
-- Nov 09 - [An American tourist declared all British food was 'terrible' despite being taken to all the local favorites, but British people say she has still not tried the right places](https://www.yahoo.com/entertainment/american-tourist-declared-british-food-172804319.html)
-- Nov 09 - [FBI head cites a 'potential conflict of interest' in the selection process for a new headquarters](https://news.yahoo.com/fbi-head-cites-potential-conflict-172448057.html)
 <!-- feed end -->
 
 ### Onstream
