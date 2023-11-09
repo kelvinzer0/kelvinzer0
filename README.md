@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - ["She threw him under the bus": Legal expert says Ivanka's testimony may backfire on Trump](https://news.yahoo.com/she-threw-him-under-bus-152101384.html)
-- Nov 09 - [Trump's lawyers mount long-shot bid to toss NY fraud lawsuit](https://news.yahoo.com/trumps-lawyers-mount-long-shot-151749846.html)
-- Nov 09 - [In 1916, the US began forcing Mexicans crossing the southern border to take kerosene baths. That tactic was later studied by the Nazis.](https://news.yahoo.com/1916-us-began-forcing-mexicans-141508938.html)
-- Nov 09 - [2025 Toyota Camry previewed with all-wheel-drive hybrid system](https://www.autoblog.com/2023/11/09/2025-toyota-camry-hybrid-awd/)
-- Nov 09 - [Tesla Road Rage Guy’s Victims Feel His 5-Year Sentence Is A Slap On The Wrist](https://news.yahoo.com/tesla-road-rage-guy-victims-140000335.html)
+- Nov 09 - [Greg Gutfeld Tells Women The Reason They Have Abortions And It's Infuriating](https://news.yahoo.com/greg-gutfeld-tells-women-reason-164001669.html)
+- Nov 09 - [C.J. Stroud wowed viewers and broke the NFL rookie passing record. Then he did something even more impressive](https://sports.yahoo.com/cj-stroud-wowed-viewers-and-broke-the-nfl-rookie-passing-record-then-he-did-something-even-more-impressive-162550086.html)
+- Nov 09 - [“My jaw almost dropped”: Expert stunned Ivanka offered “proof” Trump was “robbing Peter to pay Paul”](https://news.yahoo.com/jaw-almost-dropped-expert-stunned-155446724.html)
+- Nov 09 - [Well, Well, Well: Hypocrite James Comer Did Exactly What Joe Biden Did](https://news.yahoo.com/well-well-well-hypocrite-james-155332927.html)
+- Nov 09 - [Metal detectorists searching forest stumble on mysterious cache of gold, photos show](https://news.yahoo.com/metal-detectorists-searching-forest-stumble-153139262.html)
 <!-- feed end -->
 
 ### Onstream
