@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - ["I'm so tired of these psychos": Moms for Liberty is now a toxic brand](https://news.yahoo.com/im-tired-psychos-moms-liberty-110002976.html)
-- Nov 09 - [On How To Love Your Nonexistent Black Son: A Matt Gaetz And Mike Johnson Nonstory](https://news.yahoo.com/love-nonexistent-black-son-matt-104500742.html)
-- Nov 09 - [India, Pakistan border guards trade fire along their frontier in Kashmir; one Indian soldier killed](https://news.yahoo.com/india-pakistan-border-guards-trade-092333874.html)
-- Nov 09 - [U.S. forces under fire in Middle East as America slides towards brink](https://news.yahoo.com/u-forces-under-fire-middle-090314128.html)
-- Nov 09 - [Israel Defence Forces announces capturing key stronghold in Gaza and killing dozens of terrorists](https://news.yahoo.com/israel-defence-forces-announces-capturing-081024495.html)
+- Nov 09 - [Brazil minister angered by Israeli statement on foiled Hezbollah attack](https://news.yahoo.com/brazil-minister-angered-israeli-statement-133525611.html)
+- Nov 09 - [A Russian TikToker known for pro-Ukraine posts collapsed on stage after getting called up to fight there](https://news.yahoo.com/russian-tiktoker-known-pro-ukraine-130729101.html)
+- Nov 09 - [Here's the average Social Security payment at ages 62, 66 and 71 — how does your own check stack up?](https://finance.yahoo.com/news/heres-average-social-security-payment-130000781.html)
+- Nov 09 - [College student in critical condition after being hit by a stray bullet in a Nashville park](https://news.yahoo.com/college-student-critical-condition-being-121131330.html)
+- Nov 09 - [Israeli infantry engage in tunnel warfare in 10-hour battle for Hamas outpost](https://news.yahoo.com/israeli-infantry-engage-tunnel-warfare-120421978.html)
 <!-- feed end -->
 
 ### Onstream
