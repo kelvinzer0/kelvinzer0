@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [Satellite photos analyzed by AP show an axis of Israeli push earlier this week into the Gaza Strip](https://news.yahoo.com/satellite-photos-analyzed-ap-show-181954640.html)
+- Nov 09 - [Oops! Republican Congressman Admits Hunter Biden Subpoena Double Standard](https://news.yahoo.com/oops-republican-congressman-admits-hunter-180159422.html)
 - Nov 09 - [Democrat Schools Lauren Boebert In Awkward House Floor Debate](https://news.yahoo.com/democrat-schools-lauren-boebert-awkward-174717600.html)
+- Nov 09 - [An American tourist declared all British food was 'terrible' despite being taken to all the local favorites, but British people say she has still not tried the right places](https://www.yahoo.com/entertainment/american-tourist-declared-british-food-172804319.html)
 - Nov 09 - [FBI head cites a 'potential conflict of interest' in the selection process for a new headquarters](https://news.yahoo.com/fbi-head-cites-potential-conflict-172448057.html)
-- Nov 09 - [Palestinians leaving besieged Gaza City fear new Nakba](https://news.yahoo.com/palestinians-leaving-besieged-gaza-city-171327485.html)
-- Nov 09 - [Donald Trump’s lawyers ask judge to end civil fraud trial, seeking verdict in ex-president’s favor](https://news.yahoo.com/donald-trump-lawyers-ask-judge-171051804.html)
-- Nov 09 - [North Carolina woman and her dad get additional jail time in the beating death of her Irish husband](https://news.yahoo.com/north-carolina-woman-her-dad-170116446.html)
 <!-- feed end -->
 
 ### Onstream
