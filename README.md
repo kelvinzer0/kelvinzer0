@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [Tim Scott Hard Launches His Girlfriend at the GOP Debate](https://news.yahoo.com/tim-scott-hard-launches-girlfriend-035823052.html)
 - Nov 09 - [Trump posts weird story that accuses Judge Arthur Engoron of posting bare-chested photos](https://finance.yahoo.com/news/trump-posts-weird-story-accuses-033000476.html)
 - Nov 09 - [A former Fox News correspondent is refusing to reveal a source. Her fate is now in a judge’s hands](https://finance.yahoo.com/news/former-fox-news-correspondent-refusing-120755571.html)
 - Nov 09 - ['You're Just Scum': Nikki Haley Slams Vivek Ramaswamy For Invoking Her Daughter](https://news.yahoo.com/youre-just-scum-nikki-haley-023040260.html)
 - Nov 08 - [DOJ announces arrests in ‘high-end brothel network’ used by elected officials, military officers and others](https://news.yahoo.com/doj-announces-arrests-high-end-182557354.html)
-- Nov 08 - [8 people killed when driver suspected of human smuggling crashes in Texas](https://news.yahoo.com/8-people-killed-driver-suspected-230848069.html)
 <!-- feed end -->
 
 ### Onstream
