@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [“Puts Trump in a box”: Experts say Judge Chutkan just forced Trump to “put up or shut up” on defense](https://news.yahoo.com/puts-trump-box-experts-judge-134542603.html)
-- Nov 09 - [Brazil minister angered by Israeli statement on foiled Hezbollah attack](https://news.yahoo.com/brazil-minister-angered-israeli-statement-133525611.html)
-- Nov 09 - [Daytona Beach orders two church food pantries to close immediately. Here's why.](https://news.yahoo.com/daytona-beach-orders-two-church-131310214.html)
-- Nov 09 - [Here's the average Social Security payment at ages 62, 66 and 71 — how does your own check stack up?](https://finance.yahoo.com/news/heres-average-social-security-payment-130000781.html)
-- Nov 09 - [College student in critical condition after being hit by a stray bullet in a Nashville park](https://news.yahoo.com/college-student-critical-condition-being-121131330.html)
+- Nov 09 - ["She threw him under the bus": Legal expert says Ivanka's testimony may backfire on Trump](https://news.yahoo.com/she-threw-him-under-bus-152101384.html)
+- Nov 09 - [Trump's lawyers mount long-shot bid to toss NY fraud lawsuit](https://news.yahoo.com/trumps-lawyers-mount-long-shot-151749846.html)
+- Nov 09 - [In 1916, the US began forcing Mexicans crossing the southern border to take kerosene baths. That tactic was later studied by the Nazis.](https://news.yahoo.com/1916-us-began-forcing-mexicans-141508938.html)
+- Nov 09 - [2025 Toyota Camry previewed with all-wheel-drive hybrid system](https://www.autoblog.com/2023/11/09/2025-toyota-camry-hybrid-awd/)
+- Nov 09 - [Tesla Road Rage Guy’s Victims Feel His 5-Year Sentence Is A Slap On The Wrist](https://news.yahoo.com/tesla-road-rage-guy-victims-140000335.html)
 <!-- feed end -->
 
 ### Onstream
