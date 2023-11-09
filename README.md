@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [“Puts Trump in a box”: Experts say Judge Chutkan just forced Trump to “put up or shut up” on defense](https://news.yahoo.com/puts-trump-box-experts-judge-134542603.html)
 - Nov 09 - [Brazil minister angered by Israeli statement on foiled Hezbollah attack](https://news.yahoo.com/brazil-minister-angered-israeli-statement-133525611.html)
-- Nov 09 - [A Russian TikToker known for pro-Ukraine posts collapsed on stage after getting called up to fight there](https://news.yahoo.com/russian-tiktoker-known-pro-ukraine-130729101.html)
+- Nov 09 - [Daytona Beach orders two church food pantries to close immediately. Here's why.](https://news.yahoo.com/daytona-beach-orders-two-church-131310214.html)
 - Nov 09 - [Here's the average Social Security payment at ages 62, 66 and 71 — how does your own check stack up?](https://finance.yahoo.com/news/heres-average-social-security-payment-130000781.html)
 - Nov 09 - [College student in critical condition after being hit by a stray bullet in a Nashville park](https://news.yahoo.com/college-student-critical-condition-being-121131330.html)
-- Nov 09 - [Israeli infantry engage in tunnel warfare in 10-hour battle for Hamas outpost](https://news.yahoo.com/israeli-infantry-engage-tunnel-warfare-120421978.html)
 <!-- feed end -->
 
 ### Onstream
