@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 09 - [China has a sweeping vision to reshape the world — and countries are listening](https://news.yahoo.com/china-sweeping-vision-reshape-world-200015599.html)
+- Nov 09 - [The real Covid jab scandal is finally emerging](https://news.yahoo.com/real-covid-jab-scandal-finally-193355812.html)
 - Nov 09 - [Joe Biden And Fox News' Peter Doocy Go At It On White House South Lawn](https://news.yahoo.com/joe-biden-fox-news-peter-193201486.html)
+- Nov 09 - [A Scientist Says the Singularity Will Happen by 2031](https://www.yahoo.com/lifestyle/scientist-says-singularity-happen-2031-192400436.html)
 - Nov 09 - [The IRS just announced the new tax brackets. Here's how to see yours.](https://finance.yahoo.com/news/irs-just-announced-tax-brackets-184902787.html)
-- Nov 09 - [Commission weighs whether to discipline Illinois judge who reversed rape conviction](https://news.yahoo.com/commission-weighs-whether-discipline-illinois-184239197.html)
-- Nov 09 - [JFK Allegedly Penned a Revealing Letter to This Mistress Before She Met a Very Mysterious End](https://www.yahoo.com/entertainment/jfk-allegedly-penned-revealing-letter-183900296.html)
-- Nov 09 - [Satellite photos analyzed by AP show an axis of Israeli push earlier this week into the Gaza Strip](https://news.yahoo.com/satellite-photos-analyzed-ap-show-181954640.html)
 <!-- feed end -->
 
 ### Onstream
