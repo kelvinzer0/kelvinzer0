@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [Greg Gutfeld Tells Women The Reason They Have Abortions And It's Infuriating](https://news.yahoo.com/greg-gutfeld-tells-women-reason-164001669.html)
-- Nov 09 - [C.J. Stroud wowed viewers and broke the NFL rookie passing record. Then he did something even more impressive](https://sports.yahoo.com/cj-stroud-wowed-viewers-and-broke-the-nfl-rookie-passing-record-then-he-did-something-even-more-impressive-162550086.html)
-- Nov 09 - [“My jaw almost dropped”: Expert stunned Ivanka offered “proof” Trump was “robbing Peter to pay Paul”](https://news.yahoo.com/jaw-almost-dropped-expert-stunned-155446724.html)
-- Nov 09 - [Well, Well, Well: Hypocrite James Comer Did Exactly What Joe Biden Did](https://news.yahoo.com/well-well-well-hypocrite-james-155332927.html)
-- Nov 09 - [Metal detectorists searching forest stumble on mysterious cache of gold, photos show](https://news.yahoo.com/metal-detectorists-searching-forest-stumble-153139262.html)
+- Nov 09 - [Democrat Schools Lauren Boebert In Awkward House Floor Debate](https://news.yahoo.com/democrat-schools-lauren-boebert-awkward-174717600.html)
+- Nov 09 - [FBI head cites a 'potential conflict of interest' in the selection process for a new headquarters](https://news.yahoo.com/fbi-head-cites-potential-conflict-172448057.html)
+- Nov 09 - [Palestinians leaving besieged Gaza City fear new Nakba](https://news.yahoo.com/palestinians-leaving-besieged-gaza-city-171327485.html)
+- Nov 09 - [Donald Trump’s lawyers ask judge to end civil fraud trial, seeking verdict in ex-president’s favor](https://news.yahoo.com/donald-trump-lawyers-ask-judge-171051804.html)
+- Nov 09 - [North Carolina woman and her dad get additional jail time in the beating death of her Irish husband](https://news.yahoo.com/north-carolina-woman-her-dad-170116446.html)
 <!-- feed end -->
 
 ### Onstream
