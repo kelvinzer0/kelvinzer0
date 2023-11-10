@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [Outrage grows after ‘chilling call for genocide’ by Florida Republican](https://news.yahoo.com/outrage-grows-chilling-call-genocide-183426102.html)
+- Nov 10 - [The Houthis have become a dangerous rogue nation. The US Navy should crush them](https://news.yahoo.com/houthis-become-dangerous-rogue-nation-180636184.html)
 - Nov 10 - [Scientists make an eye-opening announcement about recent alien evidence](https://www.thestreet.com/technology/alien-evidence-ufo-mexico-congress-space?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Nov 10 - [Things to know about efforts to block people from crossing state lines for abortion](https://news.yahoo.com/things-know-efforts-block-people-170222891.html)
 - Nov 10 - [Matthew Perry's Official Death Certificate Released Nearly 2 Weeks After He Died](https://www.yahoo.com/entertainment/matthew-perrys-official-death-certificate-161507041.html)
-- Nov 10 - [The Air Force's new nuclear stealth bomber, the B-21 Raider, has taken its first test flight](https://news.yahoo.com/air-forces-nuclear-stealth-bomber-160324204.html)
-- Nov 10 - [Boston radio shakeup: ‘Toucher & Rich’ part ways at 98.5 The Sports Hub](https://news.yahoo.com/boston-radio-shakeup-toucher-rich-134756130.html)
 <!-- feed end -->
 
 ### Onstream
