@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 10 - [Outrage grows after ‘chilling call for genocide’ by Florida Republican](https://news.yahoo.com/outrage-grows-chilling-call-genocide-183426102.html)
-- Nov 10 - [The Houthis have become a dangerous rogue nation. The US Navy should crush them](https://news.yahoo.com/houthis-become-dangerous-rogue-nation-180636184.html)
-- Nov 10 - [Scientists make an eye-opening announcement about recent alien evidence](https://www.thestreet.com/technology/alien-evidence-ufo-mexico-congress-space?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 10 - [Things to know about efforts to block people from crossing state lines for abortion](https://news.yahoo.com/things-know-efforts-block-people-170222891.html)
-- Nov 10 - [Matthew Perry's Official Death Certificate Released Nearly 2 Weeks After He Died](https://www.yahoo.com/entertainment/matthew-perrys-official-death-certificate-161507041.html)
+- Nov 10 - [Hamas tunnel found hidden underneath child’s bed after house in Gaza searched by Israeli forces](https://news.yahoo.com/hamas-tunnel-found-hidden-underneath-191848110.html)
+- Nov 10 - [New Jersey officer disciplined for wearing locs in Bantu knots, supervisors reprimanded for inaction](https://news.yahoo.com/jersey-officer-disciplined-wearing-locs-184017650.html)
+- Nov 10 - [The Houthis have become a dangerous rogue nation. The US Navy could crush them](https://news.yahoo.com/houthis-become-dangerous-rogue-nation-180636184.html)
+- Nov 10 - [Tesla gains ultimate rival as a new EV ‘luxury super-sports sedan’ arrives in driveways: ‘This is a gamechanger’](https://news.yahoo.com/tesla-gains-ultimate-rival-ev-180000896.html)
+- Nov 10 - [Why Is Mike Johnson Flying a Christian Nationalist Flag Outside His Office?](https://news.yahoo.com/why-mike-johnson-flying-christian-174933596.html)
 <!-- feed end -->
 
 ### Onstream
