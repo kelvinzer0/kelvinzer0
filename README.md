@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [Rep. Elise Stefanik files ethics complaint against judge in Trump's civil fraud trial](https://news.yahoo.com/rep-elise-stefanik-files-ethics-130010845.html)
+- Nov 10 - [Homeowner outraged after facing $2,500 HOA fine over simple laundry debate: ‘I never realized this was a possibility’](https://news.yahoo.com/homeowner-outraged-facing-2-500-100000362.html)
 - Nov 10 - [Grimes chased Elon Musk across at least 12 different locations to serve him custody papers, including X headquarters and a horse farm](https://news.yahoo.com/grimes-chased-elon-musk-across-100001660.html)
-- Nov 10 - [Billionaire Trump Donor Peter Thiel Backs Down: 'A Lot Of Things I Got Wrong'](https://news.yahoo.com/billionaire-trump-donor-peter-thiel-094201257.html)
 - Nov 10 - [Legal analyst predicts why Trump went ‘ballistic’ when Mar-a-Lago maid was questioned](https://news.yahoo.com/legal-analyst-predicts-why-trump-014913272.html)
 - Nov 10 - [The Footage of the Oct. 7 Hamas Massacre: a Real-Life Horror Movie That I Hated](https://www.yahoo.com/entertainment/footage-oct-7-hamas-massacre-001000798.html)
-- Nov 10 - [Saskatchewan Hunter Takes 'Two-For-One' Buck with a Giant Deadhead Stuck to Its Rack](https://www.yahoo.com/lifestyle/saskatchewan-hunter-takes-two-one-000000742.html)
 <!-- feed end -->
 
 ### Onstream
