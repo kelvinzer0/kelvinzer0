@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Nov 10 - [Billionaire Trump Donor Peter Thiel Backs Down: 'A Lot Of Things I Got Wrong'](https://news.yahoo.com/billionaire-trump-donor-peter-thiel-094201257.html)
 - Nov 10 - [Joe Biden Burns Trump By Using One Of His Signature Lines Against Him](https://news.yahoo.com/joe-biden-burns-trump-using-072645739.html)
 - Nov 10 - [Philippines denounces China for 'unprovoked acts of coercion' to block resupply mission](https://news.yahoo.com/china-coast-guard-urges-philippines-033556262.html)
-- Nov 10 - [Legal analyst predicts why Trump went ‘ballistic’ when Mar-a-Lago maid was questioned](https://news.yahoo.com/legal-analyst-predicts-why-trump-014913272.html)
 - Nov 10 - [The Footage of the Oct. 7 Hamas Massacre: a Real-Life Horror Movie That I Hated](https://www.yahoo.com/entertainment/footage-oct-7-hamas-massacre-001000798.html)
+- Nov 10 - [Saskatchewan Hunter Takes 'Two-For-One' Buck with a Giant Deadhead Stuck to Its Rack](https://www.yahoo.com/lifestyle/saskatchewan-hunter-takes-two-one-000000742.html)
 <!-- feed end -->
 
 ### Onstream
