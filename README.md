@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [Scientists make an eye-opening announcement about recent alien evidence](https://www.thestreet.com/technology/alien-evidence-ufo-mexico-congress-space?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 10 - [Things to know about efforts to block people from crossing state lines for abortion](https://news.yahoo.com/things-know-efforts-block-people-170222891.html)
+- Nov 10 - [Matthew Perry's Official Death Certificate Released Nearly 2 Weeks After He Died](https://www.yahoo.com/entertainment/matthew-perrys-official-death-certificate-161507041.html)
 - Nov 10 - [The Air Force's new nuclear stealth bomber, the B-21 Raider, has taken its first test flight](https://news.yahoo.com/air-forces-nuclear-stealth-bomber-160324204.html)
 - Nov 10 - [Boston radio shakeup: ‘Toucher & Rich’ part ways at 98.5 The Sports Hub](https://news.yahoo.com/boston-radio-shakeup-toucher-rich-134756130.html)
-- Nov 10 - [PornHub Parent Company Reportedly At Centre Of U.S. Federal Criminal Investigation](https://www.yahoo.com/entertainment/pornhub-parent-company-reportedly-centre-155802719.html)
-- Nov 10 - [Wisconsin judge orders former chief justice to turn over records related to impeachment advice](https://news.yahoo.com/wisconsin-judge-orders-former-chief-154509646.html)
-- Nov 10 - [US Air Force's new B-21 Raider "flying wing" bomber takes first flight - Reuters witness](https://news.yahoo.com/us-air-forces-b-21-153910291.html)
 <!-- feed end -->
 
 ### Onstream
