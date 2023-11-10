@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [The Air Force's new nuclear stealth bomber, the B-21 Raider, has taken its first test flight](https://news.yahoo.com/air-forces-nuclear-stealth-bomber-160324204.html)
 - Nov 10 - [Boston radio shakeup: ‘Toucher & Rich’ part ways at 98.5 The Sports Hub](https://news.yahoo.com/boston-radio-shakeup-toucher-rich-134756130.html)
+- Nov 10 - [PornHub Parent Company Reportedly At Centre Of U.S. Federal Criminal Investigation](https://www.yahoo.com/entertainment/pornhub-parent-company-reportedly-centre-155802719.html)
 - Nov 10 - [Wisconsin judge orders former chief justice to turn over records related to impeachment advice](https://news.yahoo.com/wisconsin-judge-orders-former-chief-154509646.html)
 - Nov 10 - [US Air Force's new B-21 Raider "flying wing" bomber takes first flight - Reuters witness](https://news.yahoo.com/us-air-forces-b-21-153910291.html)
-- Nov 10 - [Judge declines to push back Trump's classified documents trial but postpones other deadlines](https://news.yahoo.com/federal-judge-declines-push-back-150937823.html)
-- Nov 10 - [The mastermind of Hamas' October 7 terrorist attacks is cornered in a bunker, says Israel](https://news.yahoo.com/israels-no-1-hamas-kill-171654050.html)
 <!-- feed end -->
 
 ### Onstream
