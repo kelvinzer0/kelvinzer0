@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [INDIA RUPEE-India rupee will have to contend with jump in US yields, dollar](https://finance.yahoo.com/news/india-rupee-india-rupee-contend-024416891.html)
 - Nov 10 - [Teen Charged With Attempted Murder for Allegedly Stabbing Cop in Face With Screwdriver](https://www.yahoo.com/entertainment/teen-charged-attempted-murder-allegedly-010522178.html)
 - Nov 10 - [The Footage of the Oct. 7 Hamas Massacre: a Real-Life Horror Movie That I Hated](https://www.yahoo.com/entertainment/footage-oct-7-hamas-massacre-001000798.html)
 - Nov 10 - [Saskatchewan Hunter Takes 'Two-For-One' Buck with a Giant Deadhead Stuck to Its Rack](https://www.yahoo.com/lifestyle/saskatchewan-hunter-takes-two-one-000000742.html)
 - Nov 09 - [Joe Manchin Wants One Thing and It’s Disgusting](https://news.yahoo.com/joe-manchin-wants-one-thing-235546803.html)
-- Nov 09 - [Two days after an indictment, North Carolina's state auditor says she'll resign](https://news.yahoo.com/two-days-indictment-north-carolinas-233753257.html)
 <!-- feed end -->
 
 ### Onstream
