@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 09 - [CNN Fires Gaza-Based Photojournalist Discovered to Be Embedded With Hamas](https://www.yahoo.com/entertainment/cnn-fires-gaza-based-photojournalist-213846049.html)
-- Nov 09 - [Okay, I Seriously Can't Stop Laughing At All These Ignorant Americans Who Got Absolutely Roasted Into Oblivion So Far This Year](https://www.yahoo.com/lifestyle/okay-seriously-cant-stop-laughing-211630987.html)
-- Nov 09 - [Former top prosecutor for Baltimore convicted in perjury case tied to purchase of Florida homes](https://news.yahoo.com/former-top-prosecutor-baltimore-convicted-211038153.html)
-- Nov 09 - [Las Vegas man accused of sexually assaulting girl, forcing her to have sex with other children](https://news.yahoo.com/las-vegas-man-accused-sexually-203356934.html)
-- Nov 09 - [China has a sweeping vision to reshape the world — and countries are listening](https://news.yahoo.com/china-sweeping-vision-reshape-world-200015599.html)
+- Nov 10 - [The Footage of the Oct. 7 Hamas Massacre: a Real-Life Horror Movie That I Hated](https://www.yahoo.com/entertainment/footage-oct-7-hamas-massacre-001000798.html)
+- Nov 10 - [Saskatchewan Hunter Takes 'Two-For-One' Buck with a Giant Deadhead Stuck to Its Rack](https://www.yahoo.com/lifestyle/saskatchewan-hunter-takes-two-one-000000742.html)
+- Nov 09 - [Two days after an indictment, North Carolina's state auditor says she'll resign](https://news.yahoo.com/two-days-indictment-north-carolinas-233753257.html)
+- Nov 09 - [Steve Bannon Tries to Weasel His Way Out of Impending Imprisonment](https://news.yahoo.com/steve-bannon-tries-weasel-way-225400273.html)
+- Nov 09 - [Virginia Democrat Susanna Gibson loses state House race after sex video scandal](https://news.yahoo.com/virginia-democrat-susanna-gibson-loses-222520545.html)
 <!-- feed end -->
 
 ### Onstream
