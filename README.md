@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 10 - [UAW workers at GM's Flint assembly narrowly vote against new labor deal](https://finance.yahoo.com/news/uaw-workers-gms-flint-assembly-132715659.html)
+- Nov 10 - [Roseanne Barr Literally SCREAMS In Absolutely Wild Trump Rally Appearance](https://news.yahoo.com/roseanne-barr-literally-screams-absolutely-140229019.html)
+- Nov 10 - [The mastermind of Hamas' October 7 terrorist attacks is cornered in a bunker, says Israel](https://news.yahoo.com/israels-no-1-hamas-kill-171654050.html)
+- Nov 10 - [UAW workers at GM's Flint plant narrowly vote against new labor deal](https://finance.yahoo.com/news/uaw-workers-gms-flint-assembly-132715659.html)
 - Nov 10 - [Rep. Elise Stefanik files ethics complaint against judge in Trump's civil fraud trial](https://news.yahoo.com/rep-elise-stefanik-files-ethics-130010845.html)
 - Nov 10 - [Legal analyst predicts why Trump went ‘ballistic’ when Mar-a-Lago maid may be questioned](https://news.yahoo.com/legal-analyst-predicts-why-trump-014913272.html)
-- Nov 10 - [We moved from the US to Sweden. After-school care was basically free, but my kid barely learned any math.](https://news.yahoo.com/moved-us-sweden-school-care-121902611.html)
-- Nov 10 - [Texas judge rules against GOP lawsuit seeking to toss 2022 election result in Houston area](https://news.yahoo.com/texas-judge-rules-against-gop-115745634.html)
 <!-- feed end -->
 
 ### Onstream
