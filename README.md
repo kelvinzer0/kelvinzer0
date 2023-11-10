@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 10 - [FBI agents seized New York mayor's electronic devices, NY Times reports](https://news.yahoo.com/fbi-agents-seized-york-city-204114504.html)
-- Nov 10 - [AC-130 Laser Weapon Test Slip Raises Questions About Its Future](https://news.yahoo.com/ac-130-laser-tests-slip-202125384.html)
-- Nov 10 - [Palestinian Authority could play Gaza role as part of wider Palestinian solution -Abbas](https://news.yahoo.com/palestinian-authority-could-play-gaza-200622567.html)
-- Nov 10 - [New Jersey officer disciplined for wearing locs in Bantu knots, supervisors reprimanded for inaction](https://news.yahoo.com/jersey-officer-disciplined-wearing-locs-184017650.html)
-- Nov 10 - [The Houthis have become a dangerous rogue nation. The US Navy could crush them](https://news.yahoo.com/houthis-become-dangerous-rogue-nation-180636184.html)
+- Nov 10 - [Oklahoma trooper tickets Native American citizen, sparking outrage from tribal leaders](https://news.yahoo.com/oklahoma-trooper-tickets-native-american-222249474.html)
+- Nov 10 - [Republican faction seeks to keep courts from interpreting Ohio's new abortion rights amendment](https://news.yahoo.com/republican-faction-seeks-keep-courts-221612119.html)
+- Nov 10 - [Russian naval ships struck by exploding drone boats in the night sank to the bottom of the Black Sea, Ukraine says](https://news.yahoo.com/russian-naval-ships-struck-exploding-213018006.html)
+- Nov 10 - [A Wall Street banker bought a coal mine sight unseen that could contain $37 billion worth of rare earth minerals](https://news.yahoo.com/wall-street-banker-bought-coal-204905828.html)
+- Nov 10 - [FBI agents seized New York mayor's electronic devices](https://news.yahoo.com/fbi-agents-seized-york-city-204114504.html)
 <!-- feed end -->
 
 ### Onstream
