@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [UAW workers at GM's Flint assembly narrowly vote against new labor deal](https://finance.yahoo.com/news/uaw-workers-gms-flint-assembly-132715659.html)
 - Nov 10 - [Rep. Elise Stefanik files ethics complaint against judge in Trump's civil fraud trial](https://news.yahoo.com/rep-elise-stefanik-files-ethics-130010845.html)
-- Nov 10 - [Homeowner outraged after facing $2,500 HOA fine over simple laundry debate: ‘I never realized this was a possibility’](https://news.yahoo.com/homeowner-outraged-facing-2-500-100000362.html)
-- Nov 10 - [Grimes chased Elon Musk across at least 12 different locations to serve him custody papers, including X headquarters and a horse farm](https://news.yahoo.com/grimes-chased-elon-musk-across-100001660.html)
-- Nov 10 - [Legal analyst predicts why Trump went ‘ballistic’ when Mar-a-Lago maid was questioned](https://news.yahoo.com/legal-analyst-predicts-why-trump-014913272.html)
-- Nov 10 - [The Footage of the Oct. 7 Hamas Massacre: a Real-Life Horror Movie That I Hated](https://www.yahoo.com/entertainment/footage-oct-7-hamas-massacre-001000798.html)
+- Nov 10 - [Legal analyst predicts why Trump went ‘ballistic’ when Mar-a-Lago maid may be questioned](https://news.yahoo.com/legal-analyst-predicts-why-trump-014913272.html)
+- Nov 10 - [We moved from the US to Sweden. After-school care was basically free, but my kid barely learned any math.](https://news.yahoo.com/moved-us-sweden-school-care-121902611.html)
+- Nov 10 - [Texas judge rules against GOP lawsuit seeking to toss 2022 election result in Houston area](https://news.yahoo.com/texas-judge-rules-against-gop-115745634.html)
 <!-- feed end -->
 
 ### Onstream
