@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 10 - [Hamas tunnel found hidden underneath child’s bed after house in Gaza searched by Israeli forces](https://news.yahoo.com/hamas-tunnel-found-hidden-underneath-191848110.html)
+- Nov 10 - [FBI agents seized New York mayor's electronic devices, NY Times reports](https://news.yahoo.com/fbi-agents-seized-york-city-204114504.html)
 - Nov 10 - [New Jersey officer disciplined for wearing locs in Bantu knots, supervisors reprimanded for inaction](https://news.yahoo.com/jersey-officer-disciplined-wearing-locs-184017650.html)
 - Nov 10 - [The Houthis have become a dangerous rogue nation. The US Navy could crush them](https://news.yahoo.com/houthis-become-dangerous-rogue-nation-180636184.html)
 - Nov 10 - [Tesla gains ultimate rival as a new EV ‘luxury super-sports sedan’ arrives in driveways: ‘This is a gamechanger’](https://news.yahoo.com/tesla-gains-ultimate-rival-ev-180000896.html)
