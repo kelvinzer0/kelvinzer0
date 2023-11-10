@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [Internet collapses in war-torn Yemen after recent attacks by Houthi rebels targeting Israel, US](https://news.yahoo.com/internet-collapses-war-torn-yemen-035328040.html)
+- Nov 10 - [Philippines denounces China for 'unprovoked acts of coercion' to block resupply mission](https://news.yahoo.com/china-coast-guard-urges-philippines-033556262.html)
 - Nov 10 - [Legal analyst predicts why Trump went ‘ballistic’ when Mar-a-Lago maid was questioned](https://news.yahoo.com/legal-analyst-predicts-why-trump-014913272.html)
 - Nov 10 - [The Footage of the Oct. 7 Hamas Massacre: a Real-Life Horror Movie That I Hated](https://www.yahoo.com/entertainment/footage-oct-7-hamas-massacre-001000798.html)
 - Nov 10 - [Saskatchewan Hunter Takes 'Two-For-One' Buck with a Giant Deadhead Stuck to Its Rack](https://www.yahoo.com/lifestyle/saskatchewan-hunter-takes-two-one-000000742.html)
-- Nov 09 - [Joe Manchin Wants One Thing and It’s Disgusting](https://news.yahoo.com/joe-manchin-wants-one-thing-235546803.html)
-- Nov 09 - [Two days after an indictment, North Carolina's state auditor says she'll resign](https://news.yahoo.com/two-days-indictment-north-carolinas-233753257.html)
 <!-- feed end -->
 
 ### Onstream
