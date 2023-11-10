@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 10 - [FBI agents seized New York mayor's electronic devices, NY Times reports](https://news.yahoo.com/fbi-agents-seized-york-city-204114504.html)
+- Nov 10 - [AC-130 Laser Weapon Test Slip Raises Questions About Its Future](https://news.yahoo.com/ac-130-laser-tests-slip-202125384.html)
+- Nov 10 - [Palestinian Authority could play Gaza role as part of wider Palestinian solution -Abbas](https://news.yahoo.com/palestinian-authority-could-play-gaza-200622567.html)
 - Nov 10 - [New Jersey officer disciplined for wearing locs in Bantu knots, supervisors reprimanded for inaction](https://news.yahoo.com/jersey-officer-disciplined-wearing-locs-184017650.html)
 - Nov 10 - [The Houthis have become a dangerous rogue nation. The US Navy could crush them](https://news.yahoo.com/houthis-become-dangerous-rogue-nation-180636184.html)
-- Nov 10 - [Tesla gains ultimate rival as a new EV ‘luxury super-sports sedan’ arrives in driveways: ‘This is a gamechanger’](https://news.yahoo.com/tesla-gains-ultimate-rival-ev-180000896.html)
-- Nov 10 - [Why Is Mike Johnson Flying a Christian Nationalist Flag Outside His Office?](https://news.yahoo.com/why-mike-johnson-flying-christian-174933596.html)
 <!-- feed end -->
 
 ### Onstream
