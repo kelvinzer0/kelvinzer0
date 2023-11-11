@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 11 - [Saints WR Michael Thomas arrested after allegedly throwing brick at truck](https://sports.yahoo.com/saints-wr-michael-thomas-arrested-after-allegedly-throwing-brick-at-truck-170417330.html)
-- Nov 11 - [Children told ‘read woke’ as schools study books that claim white people  invented racism](https://news.yahoo.com/children-told-read-woke-schools-170408845.html)
 - Nov 11 - [Devastating Ukrainian artillery attack takes out Russian supply convoy in Kherson Oblast - video](https://news.yahoo.com/devastating-ukrainian-artillery-attack-takes-170300174.html)
 - Nov 11 - [Can you spot the Yellowstone critter spying the coyote?](https://sports.yahoo.com/spot-yellowstone-critter-spying-coyote-170105620.html)
 - Nov 11 - [Hezbollah says it is introducing new weapons in ongoing battles with Israeli troops](https://news.yahoo.com/hezbollah-says-introducing-weapons-ongoing-161158519.html)
+- Nov 11 - [An American Airlines passenger claims his girlfriend was booted from first class so an off-duty pilot could take her seat](https://news.yahoo.com/american-airlines-passenger-claims-girlfriend-160912878.html)
 <!-- feed end -->
 
 ### Onstream
