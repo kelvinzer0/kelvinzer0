@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 11 - [Gazans turn on Hamas as food shortage fuels disorder](https://news.yahoo.com/gazans-turn-hamas-food-shortage-120846775.html)
 - Nov 11 - [Pope forcibly removes leading US conservative, Texas bishop Strickland](https://news.yahoo.com/pope-forcibly-removes-leading-us-113624334.html)
+- Nov 11 - [She mapped out weddings in 3 states, crashed them, stole thousands in cash and is free again](https://news.yahoo.com/she-mapped-weddings-3-states-110719767.html)
+- Nov 11 - [Texas family rejects millions for their property and does something remarkable with it instead: ‘I’m just very grateful’](https://www.yahoo.com/lifestyle/texas-family-rejects-millions-property-190000111.html)
 - Nov 11 - [Iran President Raisi says action, not words, needed on Gaza](https://news.yahoo.com/iran-president-raisi-says-action-070427943.html)
-- Nov 11 - [A new COVID variant, HV.1, is now dominant. These are its most common symptoms](https://news.yahoo.com/covid-variant-hv-1-now-023335830.html)
-- Nov 11 - [Endangered egg-laying mammal seen for the first time in over 60 years](https://news.yahoo.com/endangered-egg-laying-mammal-seen-234841710.html)
 <!-- feed end -->
 
 ### Onstream
