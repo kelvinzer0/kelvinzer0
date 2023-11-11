@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 11 - [Meteorologists Just Released Snowfall Predictions For This Winter—Here’s Where Flakes Are Most Likely to Fly](https://www.yahoo.com/lifestyle/meteorologists-just-released-snowfall-predictions-130000519.html)
 - Nov 11 - [Gazans turn on Hamas as food shortage fuels disorder](https://news.yahoo.com/gazans-turn-hamas-food-shortage-120846775.html)
 - Nov 11 - [Pope forcibly removes leading US conservative, Texas bishop Strickland](https://news.yahoo.com/pope-forcibly-removes-leading-us-113624334.html)
-- Nov 11 - [She mapped out weddings in 3 states, crashed them, stole thousands in cash and is free again](https://news.yahoo.com/she-mapped-weddings-3-states-110719767.html)
 - Nov 11 - [Texas family rejects millions for their property and does something remarkable with it instead: ‘I’m just very grateful’](https://www.yahoo.com/lifestyle/texas-family-rejects-millions-property-190000111.html)
-- Nov 11 - [Iran President Raisi says action, not words, needed on Gaza](https://news.yahoo.com/iran-president-raisi-says-action-070427943.html)
+- Nov 11 - [Researchers horrified after discovering mysterious plastic rocks on a remote island — here’s what they mean](https://news.yahoo.com/researchers-horrified-discovering-mysterious-plastic-101500468.html)
 <!-- feed end -->
 
 ### Onstream
