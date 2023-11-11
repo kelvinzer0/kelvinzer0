@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 11 - [Endangered egg-laying mammal seen for the first time in over 60 years](https://news.yahoo.com/endangered-egg-laying-mammal-seen-234841710.html)
+- Nov 10 - [Photos show the wreck of the Edmund Fitzgerald on the bottom of Lake Superior 48 years after the 13,000-ton ship sank](https://news.yahoo.com/photos-show-wreck-edmund-fitzgerald-234259641.html)
 - Nov 10 - [Oklahoma trooper tickets Native American citizen, sparking outrage from tribal leaders](https://news.yahoo.com/oklahoma-trooper-tickets-native-american-222249474.html)
 - Nov 10 - [Republican faction seeks to keep courts from interpreting Ohio's new abortion rights amendment](https://news.yahoo.com/republican-faction-seeks-keep-courts-221612119.html)
 - Nov 10 - [Russian naval ships struck by exploding drone boats in the night sank to the bottom of the Black Sea, Ukraine says](https://news.yahoo.com/russian-naval-ships-struck-exploding-213018006.html)
-- Nov 10 - [A Wall Street banker bought a coal mine sight unseen that could contain $37 billion worth of rare earth minerals](https://news.yahoo.com/wall-street-banker-bought-coal-204905828.html)
-- Nov 10 - [FBI agents seized New York mayor's electronic devices](https://news.yahoo.com/fbi-agents-seized-york-city-204114504.html)
 <!-- feed end -->
 
 ### Onstream
