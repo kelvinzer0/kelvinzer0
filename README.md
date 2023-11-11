@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 11 - [RNC warns candidates that attending Iowa Christian group’s forum will disqualify them from debates](https://news.yahoo.com/rnc-warns-candidates-attending-iowa-014454821.html)
+- Nov 11 - [Gazans turn on Hamas as food shortage fuels disorder](https://news.yahoo.com/gazans-turn-hamas-food-shortage-120846775.html)
+- Nov 11 - [Pope forcibly removes leading US conservative, Texas bishop Strickland](https://news.yahoo.com/pope-forcibly-removes-leading-us-113624334.html)
+- Nov 11 - [Iran President Raisi says action, not words, needed on Gaza](https://news.yahoo.com/iran-president-raisi-says-action-070427943.html)
 - Nov 11 - [A new COVID variant, HV.1, is now dominant. These are its most common symptoms](https://news.yahoo.com/covid-variant-hv-1-now-023335830.html)
 - Nov 11 - [Endangered egg-laying mammal seen for the first time in over 60 years](https://news.yahoo.com/endangered-egg-laying-mammal-seen-234841710.html)
-- Nov 10 - [B-21 Raider's First Flight: What We Learned](https://news.yahoo.com/b-21-raiders-first-flight-234344845.html)
-- Nov 10 - [UPDATE 1-US House Republicans plan shutdown-averting measure amid credit warning](https://finance.yahoo.com/news/1-us-house-republicans-plan-225147214.html)
 <!-- feed end -->
 
 ### Onstream
