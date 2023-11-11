@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 11 - [Donald Trump Jr. Is Already Angling to Get This Controversial Internet Personality to Be Father’s Donald’s Press Secretary](https://www.yahoo.com/entertainment/donald-trump-jr-already-angling-153800786.html)
+- Nov 11 - [Grandparents ‘physically assaulted’ by Spanish passport officer hit out at Ryanair](https://news.yahoo.com/grandparents-physically-assaulted-spanish-passport-140000789.html)
 - Nov 11 - [Dozens of Chinese ships chase Philippine vessels as US renews warning it will defend its treaty ally](https://news.yahoo.com/dozens-chinese-ships-chase-philippine-135555078.html)
 - Nov 11 - [Meteorologists Just Released Snowfall Predictions For This Winter—Here’s Where Flakes Are Most Likely to Fly](https://www.yahoo.com/lifestyle/meteorologists-just-released-snowfall-predictions-130000519.html)
 - Nov 11 - [Gazans turn on Hamas as food shortage fuels disorder](https://news.yahoo.com/gazans-turn-hamas-food-shortage-120846775.html)
-- Nov 11 - [Pope forcibly removes a leading US conservative, Texas bishop Strickland](https://news.yahoo.com/pope-forcibly-removes-leading-us-113624334.html)
-- Nov 11 - [Texas family rejects millions for their property and does something remarkable with it instead: ‘I’m just very grateful’](https://www.yahoo.com/lifestyle/texas-family-rejects-millions-property-190000111.html)
 <!-- feed end -->
 
 ### Onstream
