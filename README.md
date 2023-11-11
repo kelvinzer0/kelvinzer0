@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 11 - [US House Speaker Johnson unveils a two-step stopgap bill - media](https://news.yahoo.com/us-house-speaker-johnson-unveils-203539029.html)
+- Nov 11 - [Hospitals have special protection under the rules of war. Why are they in the crosshairs in Gaza?](https://news.yahoo.com/hospitals-special-protection-under-rules-202549138.html)
 - Nov 11 - [Many Speculate Jared Kushner Didn’t Join Ivanka Trump During Her Testimony for One Family-Oriented Reason](https://www.yahoo.com/lifestyle/many-speculate-jared-kushner-didn-200000445.html)
 - Nov 11 - [Former NFL cornerback D.J. Hayden among 6 dead after car accident in Houston](https://sports.yahoo.com/former-nfl-cornerback-d-j-174343877.html)
-- Nov 11 - [People Are Sharing "Boomer Personality Traits," And These 29 Are Particularly Brutal](https://www.yahoo.com/lifestyle/29-things-people-said-boomer-171156926.html)
-- Nov 11 - [Saints WR Michael Thomas arrested after allegedly throwing brick at truck](https://sports.yahoo.com/saints-wr-michael-thomas-arrested-after-allegedly-throwing-brick-at-truck-170417330.html)
+- Nov 11 - [Video shows ‘monster’ python that may still be loose in Florida](https://sports.yahoo.com/florida-hunters-bag-giant-python-173019722.html)
 <!-- feed end -->
 
 ### Onstream
