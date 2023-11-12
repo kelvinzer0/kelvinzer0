@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Netanyahu says Hamas refused Israeli fuel offer for Gaza's Shifa hospital](https://news.yahoo.com/netanyahu-says-hamas-refused-israeli-141726943.html)
+- Nov 12 - [Progressive Minnesota US Rep. Ilhan Omar draws prominent primary challenger](https://news.yahoo.com/progressive-minnesota-us-rep-ilhan-150234365.html)
+- Nov 12 - ['QAnon Shaman' Jacob Chansley, who served more than 2 years in prison for his role in the Jan. 6 attack on Congress, now wants to run for Congress](https://news.yahoo.com/qanon-shaman-jacob-chansley-served-144605123.html)
 - Nov 12 - [‘I’m not sure what to tell you’: Dave Ramsey was at a loss for words when Virginia woman came to him for help with her ‘disconnected’ husband — here’s his thoughts on her 'painful' situation](https://finance.yahoo.com/news/m-not-sure-tell-dave-113000624.html)
 - Nov 12 - [Israel's new Eitan APC spotted in combat against Hamas in Gaza. The IDF prematurely rushed the hi-tech armor into service.](https://news.yahoo.com/israels-eitan-apc-spotted-combat-121635196.html)
 - Nov 12 - [Shocking image reveals seemingly endless traffic as a result of ‘almost no’ public transportation: ‘I have to brave this every day’](https://news.yahoo.com/shocking-image-reveals-seemingly-endless-120000364.html)
-- Nov 12 - [Rucking can help you burn fat, build muscle, and stay strong as you age — and you don't need a gym](https://news.yahoo.com/rucking-help-burn-fat-build-113301394.html)
 <!-- feed end -->
 
 ### Onstream
