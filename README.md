@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 12 - [‘I’m not sure what to tell you’: Dave Ramsey was at a loss for words when Virginia woman came to him for help with her ‘disconnected’ husband — here’s his thoughts on her 'painful' situation](https://finance.yahoo.com/news/m-not-sure-tell-dave-113000624.html)
+- Nov 12 - [Rucking can help you burn fat, build muscle, and stay strong as you age — and you don't need a gym](https://news.yahoo.com/rucking-help-burn-fat-build-113301394.html)
 - Nov 12 - [Is Trump right about World War III? Here's why we should be worried.](https://news.yahoo.com/trump-world-war-iii-heres-100033082.html)
+- Nov 12 - ['Weekend Update': Colin Jost Shreds GOP Debate Using 1 Of The Candidate's Own Words](https://www.yahoo.com/entertainment/weekend-colin-jost-shreds-gop-090039305.html)
 - Nov 12 - [Bill Burr’s Wife Greets Trump With Double Middle Fingers](https://www.yahoo.com/entertainment/bill-burr-wife-greets-trump-061616792.html)
-- Nov 12 - [There's another wildfire burning in Hawaii. This one is destroying irreplaceable rainforest on Oahu](https://news.yahoo.com/theres-another-wildfire-burning-hawaii-050020359.html)
-- Nov 12 - [‘Saturday Night Live’ Cold Open Has Donald Trump Critiquing His Rivals As They Take Part In The “KIds Table” Debate He Skipped: “How Adorable”](https://www.yahoo.com/entertainment/saturday-night-live-cold-open-045032000.html)
-- Nov 12 - [Trump confuses name of current president. See the moment](https://news.yahoo.com/trump-confuses-name-current-president-021333678.html)
 <!-- feed end -->
 
 ### Onstream
