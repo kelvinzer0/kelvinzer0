@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 12 - [‘I’m not sure what to tell you’: Dave Ramsey was at a loss for words when Virginia woman came to him for help with her ‘disconnected’ husband — here’s his thoughts on her 'painful' situation](https://finance.yahoo.com/news/m-not-sure-tell-dave-113000624.html)
+- Nov 12 - [Israel's new Eitan APC spotted in combat against Hamas in Gaza. The IDF prematurely rushed the hi-tech armor into service.](https://news.yahoo.com/israels-eitan-apc-spotted-combat-121635196.html)
 - Nov 12 - [Rucking can help you burn fat, build muscle, and stay strong as you age — and you don't need a gym](https://news.yahoo.com/rucking-help-burn-fat-build-113301394.html)
-- Nov 12 - [Is Trump right about World War III? Here's why we should be worried.](https://news.yahoo.com/trump-world-war-iii-heres-100033082.html)
-- Nov 12 - ['Weekend Update': Colin Jost Shreds GOP Debate Using 1 Of The Candidate's Own Words](https://www.yahoo.com/entertainment/weekend-colin-jost-shreds-gop-090039305.html)
-- Nov 12 - [Bill Burr’s Wife Greets Trump With Double Middle Fingers](https://www.yahoo.com/entertainment/bill-burr-wife-greets-trump-061616792.html)
+- Nov 12 - [Study reveals worrisome new factor contributing to heart attacks: ‘Up to 2.8% of heart attack deaths may be attributed’](https://news.yahoo.com/study-reveals-worrisome-factor-contributing-113000056.html)
+- Nov 12 - [A new threat could send the price of this popular cooking staple soaring: ‘The industry is in crisis’](https://news.yahoo.com/threat-could-send-price-popular-180000664.html)
 <!-- feed end -->
 
 ### Onstream
