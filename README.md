@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 12 - [Body Language Experts Claim Tiffany Trump May Be Closest With This Sibling for One Reason](https://www.yahoo.com/entertainment/body-language-experts-claim-tiffany-215600128.html)
+- Nov 12 - [Rum-and-cola, rape and a hidden bathroom camera: A Florida attorney’s abuse of a boy](https://news.yahoo.com/rum-cola-rape-hidden-bathroom-213645297.html)
+- Nov 12 - [Government officials refuse to cede ‘an inch of land’ amid rising threat: ‘This is something that we take very seriously’](https://news.yahoo.com/government-officials-refuse-cede-inch-213000882.html)
 - Nov 12 - [Capitol rioter plans 2024 run as a Libertarian candidate in Arizona's 8th congressional district](https://news.yahoo.com/capitol-rioter-plans-2024-run-211437066.html)
-- Nov 12 - [An AR-15 ammunition factory built to supply the military shifted to commercial sales and is now tied to more than a dozen mass shootings](https://news.yahoo.com/ar-15-ammunition-factory-built-205303406.html)
-- Nov 12 - [Chechen leader Ramzan Kadyrov favours thuggish 15-year-old son as he lines up succession](https://news.yahoo.com/chechen-leader-ramzan-kadyrov-favours-205116387.html)
-- Nov 12 - [Man arrested after trying to rape student at Indiana University, bystanders intervened](https://news.yahoo.com/man-arrested-trying-rape-student-202834302.html)
-- Nov 12 - [Migrant family journeys back to Venezuela, more leaving Chicago as winter looms: ‘The American Dream doesn’t exist anymore’](https://news.yahoo.com/migrant-family-journeys-back-venezuela-202500695.html)
+- Nov 12 - [Chris Christie reacts to Trump pledging to ‘root out’ ‘radical left thugs’](https://news.yahoo.com/chris-christie-reacts-trump-pledging-211123667.html)
 <!-- feed end -->
 
 ### Onstream
