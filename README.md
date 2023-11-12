@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 12 - [Actor Barton Cowperthwaite, 31, diagnosed with brain cancer](https://www.yahoo.com/lifestyle/actor-barton-cowperthwaite-31-diagnosed-021742488.html)
+- Nov 12 - [‘Saturday Night Live’ Cold Open Has Donald Trump Critiquing His Rivals As They Take Part In The “KIds Table” Debate He Skipped: “How Adorable”](https://www.yahoo.com/entertainment/saturday-night-live-cold-open-045032000.html)
 - Nov 12 - [Trump confuses name of current president. See the moment](https://news.yahoo.com/trump-confuses-name-current-president-021333678.html)
 - Nov 12 - [Joe Biden BLASTED For ‘Embarrassing’ & ‘Pathetic’ Moment At Arlington](https://www.yahoo.com/entertainment/joe-biden-blasted-embarrassing-pathetic-002512581.html)
 - Nov 11 - [Israel kills Hamas commander who held 1,000 Gazans ‘hostage’ in hospital](https://news.yahoo.com/israel-kills-hamas-commander-held-232546552.html)
