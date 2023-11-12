@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 12 - [My parents are spending my inheritance – what can I do about it?](https://news.yahoo.com/parents-spending-inheritance-180000996.html)
+- Nov 12 - [Ivanka Trump’s Testimony Behavior Was the Opposite of Her White House Persona, Former Aide Claims](https://www.yahoo.com/entertainment/ivanka-trump-testimony-behavior-opposite-175200748.html)
+- Nov 12 - [Border guards destroy a group of Russian invaders near Kupyansk-Lyman — video](https://news.yahoo.com/border-guards-destroy-group-russian-170000573.html)
 - Nov 12 - [US military says 5 crew members died when an aircraft crashed over the Mediterranean](https://news.yahoo.com/us-military-says-5-crew-164958919.html)
-- Nov 12 - [Mike Johnson’s funding plan doomed by GOP lawmakers ‘hell-bent’ on shutdown](https://news.yahoo.com/mike-johnson-funding-plan-doomed-164202257.html)
 - Nov 12 - [Critically ill 8-month-old removed from life support after parents battle in court in UK](https://news.yahoo.com/critically-ill-8-month-old-163534759.html)
-- Nov 12 - [Joe Biden Faces MAJOR Backlash For ‘Disgusting’ Veterans Day Message](https://www.yahoo.com/entertainment/joe-biden-faces-major-backlash-161531826.html)
-- Nov 12 - [It’s Official: With “Vermin,” Trump Is Now Using Straight-up Nazi Talk](https://news.yahoo.com/official-vermin-trump-now-using-151028725.html)
 <!-- feed end -->
 
 ### Onstream
