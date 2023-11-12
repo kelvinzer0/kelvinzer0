@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 12 - [Bill Burr’s Wife Greets Trump With Double Middle Fingers](https://www.yahoo.com/entertainment/bill-burr-wife-greets-trump-061616792.html)
 - Nov 12 - [There's another wildfire burning in Hawaii. This one is destroying irreplaceable rainforest on Oahu](https://news.yahoo.com/theres-another-wildfire-burning-hawaii-050020359.html)
 - Nov 12 - [‘Saturday Night Live’ Cold Open Has Donald Trump Critiquing His Rivals As They Take Part In The “KIds Table” Debate He Skipped: “How Adorable”](https://www.yahoo.com/entertainment/saturday-night-live-cold-open-045032000.html)
-- Nov 12 - [UFC Crowd Erupts As Donald Trump, Tucker Carlson, & Kid Rock Show Up Ringside](https://www.yahoo.com/entertainment/ufc-crowd-erupts-donald-trump-031903161.html)
 - Nov 12 - [Trump confuses name of current president. See the moment](https://news.yahoo.com/trump-confuses-name-current-president-021333678.html)
 - Nov 12 - [Joe Biden BLASTED For ‘Embarrassing’ & ‘Pathetic’ Moment At Arlington](https://www.yahoo.com/entertainment/joe-biden-blasted-embarrassing-pathetic-002512581.html)
 <!-- feed end -->
