@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 12 - [Netanyahu says Hamas refused Israeli fuel offer for Gaza's Shifa hospital](https://news.yahoo.com/netanyahu-says-hamas-refused-israeli-141726943.html)
 - Nov 12 - [‘I’m not sure what to tell you’: Dave Ramsey was at a loss for words when Virginia woman came to him for help with her ‘disconnected’ husband — here’s his thoughts on her 'painful' situation](https://finance.yahoo.com/news/m-not-sure-tell-dave-113000624.html)
 - Nov 12 - [Israel's new Eitan APC spotted in combat against Hamas in Gaza. The IDF prematurely rushed the hi-tech armor into service.](https://news.yahoo.com/israels-eitan-apc-spotted-combat-121635196.html)
+- Nov 12 - [Shocking image reveals seemingly endless traffic as a result of ‘almost no’ public transportation: ‘I have to brave this every day’](https://news.yahoo.com/shocking-image-reveals-seemingly-endless-120000364.html)
 - Nov 12 - [Rucking can help you burn fat, build muscle, and stay strong as you age — and you don't need a gym](https://news.yahoo.com/rucking-help-burn-fat-build-113301394.html)
-- Nov 12 - [Study reveals worrisome new factor contributing to heart attacks: ‘Up to 2.8% of heart attack deaths may be attributed’](https://news.yahoo.com/study-reveals-worrisome-factor-contributing-113000056.html)
-- Nov 12 - [A new threat could send the price of this popular cooking staple soaring: ‘The industry is in crisis’](https://news.yahoo.com/threat-could-send-price-popular-180000664.html)
 <!-- feed end -->
 
 ### Onstream
