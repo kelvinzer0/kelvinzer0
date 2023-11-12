@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 12 - [Man arrested after trying to rape student at Indiana University, bystanders intervened](https://news.yahoo.com/man-arrested-trying-rape-student-202834302.html)
+- Nov 12 - [Man holding drink cup full of meth ‘confidently’ lets warden search truck, officials say](https://news.yahoo.com/man-holding-drink-cup-full-195732016.html)
+- Nov 12 - [New report reveals major problem at more than 200 US military bases: ‘Hundreds more [communities] are likely at risk’](https://news.yahoo.com/report-reveals-major-problem-more-193000413.html)
 - Nov 12 - [My parents are spending my inheritance – what can I do about it?](https://news.yahoo.com/parents-spending-inheritance-180000996.html)
 - Nov 12 - [Ivanka Trump’s Testimony Behavior Was the Opposite of Her White House Persona, Former Aide Claims](https://www.yahoo.com/entertainment/ivanka-trump-testimony-behavior-opposite-175200748.html)
-- Nov 12 - [Israel warns Lebanon it could turn Beirut into Gaza](https://news.yahoo.com/israel-warns-lebanon-could-turn-175152158.html)
-- Nov 12 - [Border guards destroy a group of Russian invaders near Kupyansk-Lyman — video](https://news.yahoo.com/border-guards-destroy-group-russian-170000573.html)
-- Nov 12 - [US military says 5 crew members died when an aircraft crashed over the Mediterranean](https://news.yahoo.com/us-military-says-5-crew-164958919.html)
 <!-- feed end -->
 
 ### Onstream
