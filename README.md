@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 12 - [My parents are spending my inheritance – what can I do about it?](https://news.yahoo.com/parents-spending-inheritance-180000996.html)
 - Nov 12 - [Ivanka Trump’s Testimony Behavior Was the Opposite of Her White House Persona, Former Aide Claims](https://www.yahoo.com/entertainment/ivanka-trump-testimony-behavior-opposite-175200748.html)
+- Nov 12 - [Israel warns Lebanon it could turn Beirut into Gaza](https://news.yahoo.com/israel-warns-lebanon-could-turn-175152158.html)
 - Nov 12 - [Border guards destroy a group of Russian invaders near Kupyansk-Lyman — video](https://news.yahoo.com/border-guards-destroy-group-russian-170000573.html)
 - Nov 12 - [US military says 5 crew members died when an aircraft crashed over the Mediterranean](https://news.yahoo.com/us-military-says-5-crew-164958919.html)
-- Nov 12 - [Critically ill 8-month-old removed from life support after parents battle in court in UK](https://news.yahoo.com/critically-ill-8-month-old-163534759.html)
 <!-- feed end -->
 
 ### Onstream
