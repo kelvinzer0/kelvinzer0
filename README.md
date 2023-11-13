@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 13 - [Norway urges Israel to release full Palestinian tax transfer](https://news.yahoo.com/norway-urges-israel-release-full-165117853.html)
+- Nov 13 - [A 22-year-old American veteran moved onto a cattle ranch in rural Australia to live a slower life. The only catch? Understanding the locals.](https://www.yahoo.com/entertainment/22-old-american-veteran-moved-164448809.html)
 - Nov 13 - [Gas prices have dropped below $3 per gallon in these 11 states](https://finance.yahoo.com/news/gas-prices-have-dropped-below-3-per-gallon-in-these-11-states-160518348.html)
 - Nov 13 - ["It's all a charade": Jack Smith busts Trump trying to "hoodwink" judge in new filing](https://news.yahoo.com/charade-jack-smith-busts-trump-160033799.html)
 - Nov 13 - [JFK’s Parkland Doctors Come Forward: Oswald Didn’t Act Alone](https://www.yahoo.com/entertainment/jfk-parkland-doctors-come-forward-160000811.html)
-- Nov 13 - [Lebanon front with Israel heats up, stoking fears of wider war](https://news.yahoo.com/lebanon-front-israel-heats-stoking-155518224.html)
 <!-- feed end -->
 
 ### Onstream
