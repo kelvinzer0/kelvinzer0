@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [Baby Indi Gregory dies after life support is withdrawn](https://news.yahoo.com/baby-indi-gregory-dies-life-075345806.html)
 - Nov 13 - [Tim Scott suspends GOP presidential bid](https://news.yahoo.com/tim-scott-suspends-gop-presidential-073712363.html)
 - Nov 13 - [Mehdi Hasan Reveals 1 Word Used By Trump That Should 'Terrify' Everyone](https://news.yahoo.com/mehdi-hasan-reveals-1-word-044524861.html)
-- Nov 13 - [Three Indian cities among world's 10 most polluted after Diwali](https://news.yahoo.com/three-indian-cities-among-worlds-041347391.html)
 - Nov 13 - [Tim Scott drops out of GOP primary race after girlfriend reveal](https://news.yahoo.com/tim-scott-drops-race-mere-030239091.html)
-- Nov 13 - [China weighs ending freeze on Boeing purchases with 737 Max deal in US -Bloomberg News](https://finance.yahoo.com/news/china-weighs-ending-freeze-boeing-021535201.html)
+- Nov 13 - [China weighs ending freeze on buying Boeing jets: Bloomberg](https://finance.yahoo.com/news/china-weighs-ending-freeze-boeing-021535201.html)
 <!-- feed end -->
 
 ### Onstream
