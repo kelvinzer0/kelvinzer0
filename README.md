@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [Plug Power CEO 'very confident' despite investor concerns](https://finance.yahoo.com/video/plug-power-ceo-very-confident-223853382.html)
+- Nov 13 - [Trump Jr. Just Uttered the Word That Could Trip Up His Family’s Entire Defense](https://news.yahoo.com/trump-jr-just-uttered-word-223839127.html)
+- Nov 13 - [Former President Donald Trump's Sister Maryanne Trump Barry Dead At 86](https://www.yahoo.com/entertainment/former-president-donald-trumps-sister-221633525.html)
+- Nov 13 - [Danny Masterson Rape Case Judge Demands Answers for Actor’s 9 Unaccounted-For Guns](https://www.yahoo.com/entertainment/danny-masterson-rape-case-judge-214553277.html)
 - Nov 13 - ['The boss is not going to leave': Proffer videos show ex-Trump lawyers telling Georgia prosecutors about efforts to overturn 2020 election](https://www.yahoo.com/gma/boss-not-going-leave-proffer-214300722.html)
-- Nov 13 - [Confederate military relics dumped during Union offensive unearthed in South Carolina river cleanup](https://news.yahoo.com/confederate-military-relics-dumped-during-213939513.html)
-- Nov 13 - [Michael Flynn and family pocketed leftover money from his legal defense fund, filing claims](https://news.yahoo.com/michael-flynn-family-pocketed-leftover-201335395.html)
-- Nov 13 - [Ukraine’s Air Force comments on footage of Su-17 flying ‘over Ukraine’](https://news.yahoo.com/ukraine-air-force-comments-footage-204500849.html)
-- Nov 13 - [Stellantis offering buyouts to about half its US salaried employees](https://finance.yahoo.com/news/stellantis-offering-6-400-us-203935455.html)
 <!-- feed end -->
 
 ### Onstream
