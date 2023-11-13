@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [UK leader fires interior minister and brings ex-leader Cameron back to government in surprise move](https://news.yahoo.com/uk-leader-fires-interior-minister-085434280.html)
+- Nov 13 - [British minister who criticised police handling of pro-Palestinian march sacked](https://news.yahoo.com/uk-pm-sunak-sacks-interior-085049728.html)
+- Nov 13 - [Eric Trump Gets Delusional Down To A Fine Art With ‘Mona Lisa’ Boast](https://news.yahoo.com/eric-trump-gets-delusional-down-084804265.html)
 - Nov 13 - [Baby Indi Gregory dies after life support is withdrawn](https://news.yahoo.com/baby-indi-gregory-dies-life-075345806.html)
-- Nov 13 - [Tim Scott suspends GOP presidential bid](https://news.yahoo.com/tim-scott-suspends-gop-presidential-073712363.html)
-- Nov 13 - [Mehdi Hasan Reveals 1 Word Used By Trump That Should 'Terrify' Everyone](https://news.yahoo.com/mehdi-hasan-reveals-1-word-044524861.html)
 - Nov 13 - [Tim Scott drops out of GOP primary race after girlfriend reveal](https://news.yahoo.com/tim-scott-drops-race-mere-030239091.html)
-- Nov 13 - [China weighs ending freeze on buying Boeing jets: Bloomberg](https://finance.yahoo.com/news/china-weighs-ending-freeze-boeing-021535201.html)
 <!-- feed end -->
 
 ### Onstream
