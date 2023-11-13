@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [Tim Scott, lone Black Republican in US Senate, ends White House bid](https://news.yahoo.com/tim-scott-lone-black-republican-024534437.html)
+- Nov 13 - [Some migrant families refuse to stay at new shelter in New York City, hopping right back on bus](https://news.yahoo.com/migrant-families-refuse-stay-shelter-013000101.html)
 - Nov 13 - [Australia to apologise half a century after 'Thalidomide tragedy'](https://news.yahoo.com/australia-apologise-half-century-thalidomide-011543060.html)
+- Nov 13 - [A top Hollywood agent's son hired day laborers to move 3 trash bags full of body parts, workers say](https://news.yahoo.com/top-hollywood-agents-son-hired-003036715.html)
 - Nov 12 - [Rum-and-cola, rape and a hidden bathroom camera: A Florida attorney’s abuse of a boy](https://news.yahoo.com/rum-cola-rape-hidden-bathroom-213645297.html)
-- Nov 12 - [Government officials refuse to cede ‘an inch of land’ amid rising threat: ‘This is something that we take very seriously’](https://news.yahoo.com/government-officials-refuse-cede-inch-213000882.html)
-- Nov 12 - [Capitol rioter plans 2024 run as a Libertarian candidate in Arizona's 8th congressional district](https://news.yahoo.com/capitol-rioter-plans-2024-run-211437066.html)
-- Nov 12 - [Chris Christie reacts to Trump pledging to ‘root out’ ‘radical left thugs’](https://news.yahoo.com/chris-christie-reacts-trump-pledging-211123667.html)
 <!-- feed end -->
 
 ### Onstream
