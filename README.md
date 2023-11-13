@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [Secret Service agents protecting Biden's granddaughter open fire when 3 people try to break into SUV](https://news.yahoo.com/secret-agents-protecting-bidens-granddaughter-125848844.html)
+- Nov 13 - [Trump will file for mistrial in NY fraud case ‘very soon,’ attorney says](https://news.yahoo.com/trump-file-mistrial-ny-fraud-124133528.html)
+- Nov 13 - [Los Angeles braces for transportation ‘crisis’ as part of Interstate 10 indefinitely closes due to fire damage](https://news.yahoo.com/los-angeles-braces-transportation-crisis-093810214.html)
 - Nov 13 - [Vivek Ramaswamy's Way To Slash Federal Jobs Has People Asking... Wait, What?!?](https://news.yahoo.com/vivek-ramaswamys-way-slash-federal-112403553.html)
-- Nov 13 - [Here Are the 2 Best Big Changes Coming to Social Security in 2024 -- and the 1 Worst Change](https://www.fool.com/retirement/2023/11/13/best-big-changes-coming-to-social-security-2024/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 13 - [A Moms for Liberty pep talk after big election losses to 'filthy liberal book-huggers'](https://news.yahoo.com/moms-liberty-pep-talk-big-090528630.html)
-- Nov 13 - [Ex-Prime Minister David Cameron makes shock return to UK government as foreign secretary](https://news.yahoo.com/uk-leader-fires-interior-minister-085434280.html)
-- Nov 13 - [UK's Sunak brings back Cameron, sacks interior minister in new reset](https://news.yahoo.com/uk-pm-sunak-sacks-interior-085049728.html)
+- Nov 13 - [Joe Biden's economy is, honestly, pretty amazing: How come he doesn't get credit?](https://news.yahoo.com/joe-bidens-economy-honestly-pretty-110002417.html)
 <!-- feed end -->
 
 ### Onstream
