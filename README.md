@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [Stunned beachgoers watch ‘world’s most dangerous bird’ emerge from ocean, video shows](https://news.yahoo.com/stunned-beachgoers-watch-world-most-184110100.html)
+- Nov 13 - [REPORT: UCLA recruits were involved in Rose Bowl locker room theft](https://sports.yahoo.com/report-ucla-recruits-were-involved-184100478.html)
+- Nov 13 - [Math teacher who became powerful Haitian gang leader has been killed, former mayor says](https://news.yahoo.com/math-teacher-became-powerful-haitian-175804227.html)
+- Nov 13 - [Steve Jobs Experienced Extreme Regret In The Final Days Before His Death, Saying, 'I Wanted My Kids To Know Me. I Wasn't Always Here For Them, And I Wanted Them To Know Why And To Understand What I Did'](https://finance.yahoo.com/news/steve-jobs-experienced-extreme-regret-174445552.html)
 - Nov 13 - [Norway urges Israel to release full Palestinian tax transfer](https://news.yahoo.com/norway-urges-israel-release-full-165117853.html)
-- Nov 13 - [A 22-year-old American veteran moved onto a cattle ranch in rural Australia to live a slower life. The only catch? Understanding the locals.](https://www.yahoo.com/entertainment/22-old-american-veteran-moved-164448809.html)
-- Nov 13 - [Gas prices have dropped below $3 per gallon in these 11 states](https://finance.yahoo.com/news/gas-prices-have-dropped-below-3-per-gallon-in-these-11-states-160518348.html)
-- Nov 13 - ["It's all a charade": Jack Smith busts Trump trying to "hoodwink" judge in new filing](https://news.yahoo.com/charade-jack-smith-busts-trump-160033799.html)
-- Nov 13 - [JFK’s Parkland Doctors Come Forward: Oswald Didn’t Act Alone](https://www.yahoo.com/entertainment/jfk-parkland-doctors-come-forward-160000811.html)
 <!-- feed end -->
 
 ### Onstream
