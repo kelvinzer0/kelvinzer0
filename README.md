@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [Trump’s Idiot Lawyers Just Shared Faulty Evidence in Fraud Trial](https://news.yahoo.com/trump-idiot-lawyers-just-shared-195310449.html)
-- Nov 13 - [US Supreme Court liberals dissent in 'unusually severe' solitary confinement case](https://news.yahoo.com/us-supreme-court-liberals-dissent-190716050.html)
-- Nov 13 - [NY AG walks out amid "frustrations" that judge let Don Jr. turn testimony into "infomercial"](https://news.yahoo.com/ny-ag-walks-amid-frustrations-190453792.html)
-- Nov 13 - [Giant Eagle announces end of fuelperks+ program](https://news.yahoo.com/giant-eagle-announces-end-fuelperks-190337898.html)
-- Nov 13 - [The Supreme Court says it is adopting a code of ethics, but it has no means of enforcement](https://news.yahoo.com/supreme-court-says-adopting-code-190251829.html)
+- Nov 13 - ['The boss is not going to leave': Proffer videos show ex-Trump lawyers telling Georgia prosecutors about efforts to overturn 2020 election](https://www.yahoo.com/gma/boss-not-going-leave-proffer-214300722.html)
+- Nov 13 - [Confederate military relics dumped during Union offensive unearthed in South Carolina river cleanup](https://news.yahoo.com/confederate-military-relics-dumped-during-213939513.html)
+- Nov 13 - [Michael Flynn and family pocketed leftover money from his legal defense fund, filing claims](https://news.yahoo.com/michael-flynn-family-pocketed-leftover-201335395.html)
+- Nov 13 - [Ukraine’s Air Force comments on footage of Su-17 flying ‘over Ukraine’](https://news.yahoo.com/ukraine-air-force-comments-footage-204500849.html)
+- Nov 13 - [Stellantis offering buyouts to about half its US salaried employees](https://finance.yahoo.com/news/stellantis-offering-6-400-us-203935455.html)
 <!-- feed end -->
 
 ### Onstream
