@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [Maryanne Trump Barry, the former president's older sister and a retired federal judge, dies at 86](https://news.yahoo.com/maryanne-trump-barry-former-presidents-191405189.html)
+- Nov 13 - [NY AG walks out amid "frustrations" that judge let Don Jr. turn testimony into "infomercial"](https://news.yahoo.com/ny-ag-walks-amid-frustrations-190453792.html)
+- Nov 13 - [The Supreme Court says it is adopting a code of ethics for the first time](https://news.yahoo.com/supreme-court-says-adopting-code-190251829.html)
 - Nov 13 - [Stunned beachgoers watch ‘world’s most dangerous bird’ emerge from ocean, video shows](https://news.yahoo.com/stunned-beachgoers-watch-world-most-184110100.html)
-- Nov 13 - [REPORT: UCLA recruits were involved in Rose Bowl locker room theft](https://sports.yahoo.com/report-ucla-recruits-were-involved-184100478.html)
-- Nov 13 - [Math teacher who became powerful Haitian gang leader has been killed, former mayor says](https://news.yahoo.com/math-teacher-became-powerful-haitian-175804227.html)
-- Nov 13 - [Steve Jobs Experienced Extreme Regret In The Final Days Before His Death, Saying, 'I Wanted My Kids To Know Me. I Wasn't Always Here For Them, And I Wanted Them To Know Why And To Understand What I Did'](https://finance.yahoo.com/news/steve-jobs-experienced-extreme-regret-174445552.html)
-- Nov 13 - [Norway urges Israel to release full Palestinian tax transfer](https://news.yahoo.com/norway-urges-israel-release-full-165117853.html)
+- Nov 13 - [Donald Trump Owned Several Atlantic City Casinos That Went Bankrupt — Despite This, He Said, 'Atlantic City Fueled A Lot Of Growth For Me'](https://finance.yahoo.com/news/donald-trump-owned-several-atlantic-181258334.html)
 <!-- feed end -->
 
 ### Onstream
