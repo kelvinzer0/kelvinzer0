@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [Vivek Ramaswamy's Way To Slash Federal Jobs Has People Asking... Wait, What?!?](https://news.yahoo.com/vivek-ramaswamys-way-slash-federal-112403553.html)
 - Nov 13 - [Here Are the 2 Best Big Changes Coming to Social Security in 2024 -- and the 1 Worst Change](https://www.fool.com/retirement/2023/11/13/best-big-changes-coming-to-social-security-2024/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Nov 13 - [A Moms for Liberty pep talk after big election losses to 'filthy liberal book-huggers'](https://news.yahoo.com/moms-liberty-pep-talk-big-090528630.html)
 - Nov 13 - [Ex-Prime Minister David Cameron makes shock return to UK government as foreign secretary](https://news.yahoo.com/uk-leader-fires-interior-minister-085434280.html)
-- Nov 13 - [UK's Sunak brings back Cameron, sacks interior minister in latest reset](https://news.yahoo.com/uk-pm-sunak-sacks-interior-085049728.html)
-- Nov 13 - [Eric Trump Gets Delusional Down To A Fine Art With ‘Mona Lisa’ Boast](https://news.yahoo.com/eric-trump-gets-delusional-down-084804265.html)
+- Nov 13 - [UK's Sunak brings back Cameron, sacks interior minister in new reset](https://news.yahoo.com/uk-pm-sunak-sacks-interior-085049728.html)
 <!-- feed end -->
 
 ### Onstream
