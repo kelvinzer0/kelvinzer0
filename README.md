@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [Agents protecting Biden’s granddaughter open fire in car break-in incident -AP](https://news.yahoo.com/agents-protecting-biden-granddaughter-open-145810236.html)
+- Nov 13 - [McDonald's menu brings back item many thought was gone for good](https://www.thestreet.com/restaurants/mcdonalds-menu-brings-back-item-many-thought-was-gone-for-good?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 13 - [Trump ‘demanded a straight-up quid pro quo’ from Kim Kardashian, later broke with her over Biden: Book](https://news.yahoo.com/trump-demanded-straight-quid-pro-142749017.html)
+- Nov 13 - [An Arizona child is raped. The clergy stays silent. And then comes the truly shocking part](https://news.yahoo.com/arizona-child-raped-clergy-stays-130134739.html)
 - Nov 13 - [Secret Service agents protecting Biden's granddaughter open fire when 3 people try to break into SUV](https://news.yahoo.com/secret-agents-protecting-bidens-granddaughter-125848844.html)
-- Nov 13 - [Trump will file for mistrial in NY fraud case ‘very soon,’ attorney says](https://news.yahoo.com/trump-file-mistrial-ny-fraud-124133528.html)
-- Nov 13 - [Vivek Ramaswamy's Plan To Slash Federal Jobs Has People Asking... Wait, What?!?](https://news.yahoo.com/vivek-ramaswamys-way-slash-federal-112403553.html)
-- Nov 13 - [A first-of-its-kind boat is making waves in the open ocean: ‘It will change the game, for sure’](https://news.yahoo.com/first-kind-boat-making-waves-130000153.html)
-- Nov 13 - [Here Are the 2 Best Big Changes Coming to Social Security in 2024 -- and the 1 Worst Change](https://www.fool.com/retirement/2023/11/13/best-big-changes-coming-to-social-security-2024/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
