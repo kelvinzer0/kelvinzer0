@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [Maryanne Trump Barry, the former president's older sister and a retired federal judge, dies at 86](https://news.yahoo.com/maryanne-trump-barry-former-presidents-191405189.html)
+- Nov 13 - [Trump’s Idiot Lawyers Just Shared Faulty Evidence in Fraud Trial](https://news.yahoo.com/trump-idiot-lawyers-just-shared-195310449.html)
+- Nov 13 - [US Supreme Court liberals dissent in 'unusually severe' solitary confinement case](https://news.yahoo.com/us-supreme-court-liberals-dissent-190716050.html)
 - Nov 13 - [NY AG walks out amid "frustrations" that judge let Don Jr. turn testimony into "infomercial"](https://news.yahoo.com/ny-ag-walks-amid-frustrations-190453792.html)
-- Nov 13 - [The Supreme Court says it is adopting a code of ethics for the first time](https://news.yahoo.com/supreme-court-says-adopting-code-190251829.html)
-- Nov 13 - [Stunned beachgoers watch ‘world’s most dangerous bird’ emerge from ocean, video shows](https://news.yahoo.com/stunned-beachgoers-watch-world-most-184110100.html)
-- Nov 13 - [Donald Trump Owned Several Atlantic City Casinos That Went Bankrupt — Despite This, He Said, 'Atlantic City Fueled A Lot Of Growth For Me'](https://finance.yahoo.com/news/donald-trump-owned-several-atlantic-181258334.html)
+- Nov 13 - [Giant Eagle announces end of fuelperks+ program](https://news.yahoo.com/giant-eagle-announces-end-fuelperks-190337898.html)
+- Nov 13 - [The Supreme Court says it is adopting a code of ethics, but it has no means of enforcement](https://news.yahoo.com/supreme-court-says-adopting-code-190251829.html)
 <!-- feed end -->
 
 ### Onstream
