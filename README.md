@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [Republican 2024 hopeful Haley makes major ad buy after rival Scott quits race](https://news.yahoo.com/republican-2024-hopeful-haley-makes-150645058.html)
-- Nov 13 - [Agents protecting Biden’s granddaughter open fire in car break-in incident -AP](https://news.yahoo.com/agents-protecting-biden-granddaughter-open-145810236.html)
-- Nov 13 - [McDonald's menu brings back item many thought was gone for good](https://www.thestreet.com/restaurants/mcdonalds-menu-brings-back-item-many-thought-was-gone-for-good?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 13 - [Trump ‘demanded a straight-up quid pro quo’ from Kim Kardashian, later broke with her over Biden: Book](https://news.yahoo.com/trump-demanded-straight-quid-pro-142749017.html)
-- Nov 13 - [A Breakthrough Clue May Untangle the Mysterious Death of Edgar Allan Poe](https://www.yahoo.com/lifestyle/breakthrough-clue-may-untangle-mysterious-140000295.html)
+- Nov 13 - [Norway urges Israel to release full Palestinian tax transfer](https://news.yahoo.com/norway-urges-israel-release-full-165117853.html)
+- Nov 13 - [Gas prices have dropped below $3 per gallon in these 11 states](https://finance.yahoo.com/news/gas-prices-have-dropped-below-3-per-gallon-in-these-11-states-160518348.html)
+- Nov 13 - ["It's all a charade": Jack Smith busts Trump trying to "hoodwink" judge in new filing](https://news.yahoo.com/charade-jack-smith-busts-trump-160033799.html)
+- Nov 13 - [JFK’s Parkland Doctors Come Forward: Oswald Didn’t Act Alone](https://www.yahoo.com/entertainment/jfk-parkland-doctors-come-forward-160000811.html)
+- Nov 13 - [Lebanon front with Israel heats up, stoking fears of wider war](https://news.yahoo.com/lebanon-front-israel-heats-stoking-155518224.html)
 <!-- feed end -->
 
 ### Onstream
