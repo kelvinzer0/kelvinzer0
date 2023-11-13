@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 13 - [Republican 2024 hopeful Haley makes major ad buy after rival Scott quits race](https://news.yahoo.com/republican-2024-hopeful-haley-makes-150645058.html)
 - Nov 13 - [Agents protecting Biden’s granddaughter open fire in car break-in incident -AP](https://news.yahoo.com/agents-protecting-biden-granddaughter-open-145810236.html)
 - Nov 13 - [McDonald's menu brings back item many thought was gone for good](https://www.thestreet.com/restaurants/mcdonalds-menu-brings-back-item-many-thought-was-gone-for-good?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Nov 13 - [Trump ‘demanded a straight-up quid pro quo’ from Kim Kardashian, later broke with her over Biden: Book](https://news.yahoo.com/trump-demanded-straight-quid-pro-142749017.html)
-- Nov 13 - [An Arizona child is raped. The clergy stays silent. And then comes the truly shocking part](https://news.yahoo.com/arizona-child-raped-clergy-stays-130134739.html)
-- Nov 13 - [Secret Service agents protecting Biden's granddaughter open fire when 3 people try to break into SUV](https://news.yahoo.com/secret-agents-protecting-bidens-granddaughter-125848844.html)
+- Nov 13 - [A Breakthrough Clue May Untangle the Mysterious Death of Edgar Allan Poe](https://www.yahoo.com/lifestyle/breakthrough-clue-may-untangle-mysterious-140000295.html)
 <!-- feed end -->
 
 ### Onstream
