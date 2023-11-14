@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 14 - [Thailand Takes $28 Billion Malacca Strait Bypass Plan to US](https://news.yahoo.com/thailand-pitches-28-billion-malacca-071518192.html)
 - Nov 14 - [Ex-Prosecutor Says A Torn-Up Note Could Be Key To Taking Down Donald Trump](https://news.yahoo.com/ex-prosecutor-says-torn-note-090450649.html)
 - Nov 14 - ['Sickest thing I've ever heard': Trump denies trying to leave GOP in exclusive new audio](https://news.yahoo.com/sickest-thing-ive-ever-heard-025520011.html)
 - Nov 14 - [Violent sucker-punch caught on camera leaves 68-year-old man severely injured](https://news.yahoo.com/violent-sucker-punch-caught-camera-023510003.html)
 - Nov 14 - [Woman accused of stabbing multiple people at Atlanta's airport, waives court hearing](https://news.yahoo.com/woman-accused-stabbing-multiple-people-014641927.html)
-- Nov 14 - [A woman did more than 100 stool transplants to treat her ulcerative colitis — and it worked. What to know about fecal microbiota transplantation](https://www.yahoo.com/lifestyle/fecal-microbiota-transplantation-010705806.html)
 <!-- feed end -->
 
 ### Onstream
