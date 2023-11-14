@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Nov 14 - [Violent sucker-punch caught on camera leaves 68-year-old man severely injured](https://news.yahoo.com/violent-sucker-punch-caught-camera-023510003.html)
 - Nov 14 - [A woman did more than 100 stool transplants to treat her ulcerative colitis — and it worked. What to know about fecal microbiota transplantation](https://www.yahoo.com/lifestyle/fecal-microbiota-transplantation-010705806.html)
 - Nov 14 - [US plans to buy 1.2 million barrels of oil for Strategic Petroleum Reserve](https://news.yahoo.com/us-buys-1-2-million-005948278.html)
-- Nov 14 - [Israeli peace activist identified after being kidnapped, killed by Hamas terrorists](https://news.yahoo.com/israeli-peace-activist-identified-being-002838588.html)
+- Nov 13 - [‘Bad actors’ used state program to store pallets, hand sanitizer under 10 Fwy before arsonist struck, Newsom says](https://news.yahoo.com/bad-actors-used-state-program-235834502.html)
 <!-- feed end -->
 
 ### Onstream
