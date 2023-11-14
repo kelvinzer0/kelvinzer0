@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [Tens of thousands of supporters of Israel rally in Washington, crying 'never again'](https://news.yahoo.com/supporters-israel-rally-washington-under-192405120.html)
-- Nov 14 - [“I’m stunned”: Reporter watches Republican chase Kevin McCarthy in Capitol for throwing an “elbow”](https://news.yahoo.com/m-stunned-reporter-watches-republican-192020527.html)
-- Nov 14 - [Barring 'thin blue line' flag on Pennsylvania township property is unconstitutional, US court rules](https://news.yahoo.com/barring-thin-blue-line-flag-185323798.html)
-- Nov 14 - [Ukrainian troops have secured foothold in the south, senior official says](https://news.yahoo.com/soja-cae-m%C3%A1ximo-agosto-presionada-182617840.html)
-- Nov 14 - [FBI raids home of Johnathan Buma, a bureau whistleblower who claimed his Trumpworld investigations were suppressed](https://news.yahoo.com/fbi-raids-home-johnathan-buma-181145368.html)
+- Nov 14 - [Senate Rules panel votes along party lines to break Tuberville’s military holds](https://news.yahoo.com/senate-rules-panel-votes-along-211355138.html)
+- Nov 14 - [James Comer Melts Down Over Report He Did the Exact Same Thing As Joe Biden](https://news.yahoo.com/james-comer-melts-down-over-200048227.html)
+- Nov 14 - [Bernie Sanders Stops Fight Between Sen. Markwayne Mullin and Teamsters Boss Sean O’Brien](https://news.yahoo.com/bernie-sanders-stops-fight-between-193634758.html)
+- Nov 14 - [Philadelphia family tied up, assaulted in home invasion as child watches, disturbing video shows](https://news.yahoo.com/philadelphia-family-tied-assaulted-home-193235044.html)
+- Nov 14 - ['Stand your butt up': Senator and former martial arts fighter gets into testy exchange with union boss](https://news.yahoo.com/stand-butt-senator-former-martial-192749010.html)
 <!-- feed end -->
 
 ### Onstream
