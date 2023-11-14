@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 14 - [US plans to buy 1.2 million barrels of oil for Strategic Petroleum Reserve](https://news.yahoo.com/us-buys-1-2-million-005948278.html)
 - Nov 13 - [Israel releases 'evidence' children were held hostage in Gaza hospital basement](https://news.yahoo.com/israel-releases-evidence-children-were-231324839.html)
 - Nov 13 - [Trump Jr. Just Uttered the Word That Could Trip Up His Family’s Entire Defense](https://news.yahoo.com/trump-jr-just-uttered-word-223839127.html)
 - Nov 13 - [‘Fiery’ sea creature with tentacles and pointy teeth is a new species. See photos](https://news.yahoo.com/fiery-sea-creature-tentacles-pointy-223718245.html)
 - Nov 13 - [Former President Donald Trump's Sister Maryanne Trump Barry Dead At 86](https://www.yahoo.com/entertainment/former-president-donald-trumps-sister-221633525.html)
-- Nov 13 - [Confederate military relics dumped during Union offensive unearthed in South Carolina river cleanup](https://news.yahoo.com/confederate-military-relics-dumped-during-213939513.html)
 <!-- feed end -->
 
 ### Onstream
