@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 14 - [Tens of thousands of supporters of Israel rally in Washington, crying 'never again'](https://news.yahoo.com/supporters-israel-rally-washington-under-192405120.html)
+- Nov 14 - [“I’m stunned”: Reporter watches Republican chase Kevin McCarthy in Capitol for throwing an “elbow”](https://news.yahoo.com/m-stunned-reporter-watches-republican-192020527.html)
+- Nov 14 - [Barring 'thin blue line' flag on Pennsylvania township property is unconstitutional, US court rules](https://news.yahoo.com/barring-thin-blue-line-flag-185323798.html)
 - Nov 14 - [Ukrainian troops have secured foothold in the south, senior official says](https://news.yahoo.com/soja-cae-m%C3%A1ximo-agosto-presionada-182617840.html)
 - Nov 14 - [FBI raids home of Johnathan Buma, a bureau whistleblower who claimed his Trumpworld investigations were suppressed](https://news.yahoo.com/fbi-raids-home-johnathan-buma-181145368.html)
-- Nov 14 - [Israel police open investigation into sexual violence during Oct. 7 attack](https://news.yahoo.com/israel-police-open-investigation-sexual-180251875.html)
-- Nov 14 - [Fact Check: Stormy Daniels Admits to Having a 'Business Relationship' with House Speaker Mike Johnson?](https://news.yahoo.com/fact-check-stormy-daniels-admits-175600751.html)
-- Nov 14 - ["This is an actual incitement": Legal experts alarmed after Trump pushes "citizen's arrest"](https://news.yahoo.com/actual-incitement-legal-experts-alarmed-174314050.html)
 <!-- feed end -->
 
 ### Onstream
