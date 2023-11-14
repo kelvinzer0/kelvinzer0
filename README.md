@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 14 - [‘Shame on you’: GOP candidate Chris Christie calls out Warren Buffett, says ‘rich people should not be collecting Social Security’ — was he right to dunk on the Oracle of Omaha?](https://finance.yahoo.com/news/shame-gop-candidate-chris-christie-110000393.html)
 - Nov 14 - [Thailand Takes $28 Billion Malacca Strait Bypass Plan to US](https://news.yahoo.com/thailand-pitches-28-billion-malacca-071518192.html)
 - Nov 14 - [Ex-Prosecutor Says A Torn-Up Note Could Be Key To Taking Down Donald Trump](https://news.yahoo.com/ex-prosecutor-says-torn-note-090450649.html)
-- Nov 14 - ['Sickest thing I've ever heard': Trump denies trying to leave GOP in exclusive new audio](https://news.yahoo.com/sickest-thing-ive-ever-heard-025520011.html)
-- Nov 14 - [Violent sucker-punch caught on camera leaves 68-year-old man severely injured](https://news.yahoo.com/violent-sucker-punch-caught-camera-023510003.html)
-- Nov 14 - [Woman accused of stabbing multiple people at Atlanta's airport, waives court hearing](https://news.yahoo.com/woman-accused-stabbing-multiple-people-014641927.html)
+- Nov 14 - [Alabama father dies after alleged beating, sexual assault by prison gang: family](https://news.yahoo.com/alabama-father-dies-alleged-beating-090042503.html)
+- Nov 14 - [Emergency room nurse, lost to suicide, called US health care system her ‘abuser’ in haunting letter](https://news.yahoo.com/emergency-room-nurse-lost-suicide-090037727.html)
 <!-- feed end -->
 
 ### Onstream
