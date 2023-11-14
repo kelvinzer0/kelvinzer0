@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [The Fed will shift to 'full-on accommodation' mode in 2024 with nearly 3 percentage points of rate cuts as economy slows, UBS says](https://finance.yahoo.com/news/fed-shift-full-accommodation-mode-014453345.html)
+- Nov 14 - [Brazil's Lula welcomes citizens rescued from Gaza, condemns 'inhumane violence'](https://news.yahoo.com/brazils-lula-welcomes-citizens-rescued-035101864.html)
+- Nov 14 - [China is using the world’s largest known online disinformation operation to harass Americans, a CNN review finds](https://news.yahoo.com/china-using-world-largest-known-000439007.html)
 - Nov 14 - [US plans to buy 1.2 million barrels of oil for Strategic Petroleum Reserve](https://news.yahoo.com/us-buys-1-2-million-005948278.html)
 - Nov 14 - [Israeli peace activist identified after being kidnapped, killed by Hamas terrorists](https://news.yahoo.com/israeli-peace-activist-identified-being-002838588.html)
 - Nov 13 - [‘Bad actors’ used state program to store pallets, hand sanitizer under 10 Fwy before arsonist struck, Newsom says](https://news.yahoo.com/bad-actors-used-state-program-235834502.html)
-- Nov 13 - [Israel releases 'evidence' children were held hostage in Gaza hospital basement](https://news.yahoo.com/israel-releases-evidence-children-were-231324839.html)
 <!-- feed end -->
 
 ### Onstream
