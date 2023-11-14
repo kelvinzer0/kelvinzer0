@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [Israel shows alleged Hamas ‘armory’ under children’s hospital in Gaza. Local health officials dismiss the claims](https://news.yahoo.com/israel-shows-alleged-hamas-armory-110831417.html)
-- Nov 14 - [Barbra Streisand Shares Her Plan For If Donald Trump Wins Again](https://www.yahoo.com/entertainment/barbra-streisand-shares-her-plan-132426578.html)
-- Nov 14 - ["She Boinked The PTA President’s Husband": 19 Students Shared The Scandals That Led To Their Teacher's Firing](https://www.yahoo.com/lifestyle/she-boinked-pta-president-husband-131644861.html)
-- Nov 14 - [Israeli minister calls for voluntary emigration of Gazans](https://news.yahoo.com/israeli-minister-calls-voluntary-emigration-123506900.html)
-- Nov 14 - [Chinese student arrested after secretly living under a mall staircase for 6 months: reports](https://news.yahoo.com/chinese-student-arrested-secretly-living-123408295.html)
+- Nov 14 - [New Speaker Mike Johnson formally endorses Donald Trump, a step beyond predecessor Kevin McCarthy](https://news.yahoo.com/speaker-mike-johnson-formally-endorses-154837103.html)
+- Nov 14 - [Israel's foreign minister says UN chief not fit to lead](https://news.yahoo.com/israels-foreign-minister-says-un-154149813.html)
+- Nov 14 - [China receives US equipment to make advanced chips despite new rules-report](https://finance.yahoo.com/news/china-receives-us-equipment-advanced-153204020.html)
+- Nov 14 - ['Airline considers it stealing': Flight attendant describes sneaky things travelers do](https://www.thestreet.com/travel/flight-attendant-get-into-first-class?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 14 - [People Are Sharing The Wildest Conspiracy Theories They've Ever Heard, And I Can't Believe Some Of These](https://www.yahoo.com/lifestyle/people-sharing-wildest-conspiracy-theories-151503188.html)
 <!-- feed end -->
 
 ### Onstream
