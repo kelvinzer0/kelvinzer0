@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 14 - [I’m a Retirement Expert: These 7 States Are Better for Retirement Than Florida](https://finance.yahoo.com/news/m-retirement-expert-7-states-120016513.html)
+- Nov 14 - [Hamas' armed wing says it is ready to free 70 Israeli hostages in return for a 5-day cease-fire](https://news.yahoo.com/hamas-armed-wing-says-ready-115340338.html)
+- Nov 14 - [‘One of the worst financial products alive today': Dave Ramsey blasted this one particular investing approach when a concerned Arizona dad called in — why you should avoid it like the plague](https://finance.yahoo.com/news/one-worst-financial-products-alive-103000138.html)
 - Nov 14 - [‘Shame on you’: GOP candidate Chris Christie calls out Warren Buffett, says ‘rich people should not be collecting Social Security’ — was he right to dunk on the Oracle of Omaha?](https://finance.yahoo.com/news/shame-gop-candidate-chris-christie-110000393.html)
-- Nov 14 - [Thailand Takes $28 Billion Malacca Strait Bypass Plan to US](https://news.yahoo.com/thailand-pitches-28-billion-malacca-071518192.html)
-- Nov 14 - [Ex-Prosecutor Says A Torn-Up Note Could Be Key To Taking Down Donald Trump](https://news.yahoo.com/ex-prosecutor-says-torn-note-090450649.html)
-- Nov 14 - [Alabama father dies after alleged beating, sexual assault by prison gang: family](https://news.yahoo.com/alabama-father-dies-alleged-beating-090042503.html)
-- Nov 14 - [Emergency room nurse, lost to suicide, called US health care system her ‘abuser’ in haunting letter](https://news.yahoo.com/emergency-room-nurse-lost-suicide-090037727.html)
+- Nov 14 - [FBI struggled to disrupt dangerous casino hacking gang, cyber responders say](https://finance.yahoo.com/news/fbi-struggled-disrupt-dangerous-casino-100337309.html)
 <!-- feed end -->
 
 ### Onstream
