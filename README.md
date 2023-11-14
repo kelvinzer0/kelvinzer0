@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 14 - [Israel shows alleged Hamas ‘armory’ under children’s hospital in Gaza. Local health officials dismiss the claims](https://news.yahoo.com/israel-shows-alleged-hamas-armory-110831417.html)
+- Nov 14 - [Barbra Streisand Shares Her Plan For If Donald Trump Wins Again](https://www.yahoo.com/entertainment/barbra-streisand-shares-her-plan-132426578.html)
 - Nov 14 - ["She Boinked The PTA President’s Husband": 19 Students Shared The Scandals That Led To Their Teacher's Firing](https://www.yahoo.com/lifestyle/she-boinked-pta-president-husband-131644861.html)
-- Nov 14 - [Cohen argues it could be ‘dangerous’ to put Trump behind bars](https://news.yahoo.com/cohen-argues-could-dangerous-put-123714667.html)
 - Nov 14 - [Israeli minister calls for voluntary emigration of Gazans](https://news.yahoo.com/israeli-minister-calls-voluntary-emigration-123506900.html)
 - Nov 14 - [Chinese student arrested after secretly living under a mall staircase for 6 months: reports](https://news.yahoo.com/chinese-student-arrested-secretly-living-123408295.html)
-- Nov 14 - [I’m a Retirement Expert: These 7 States Are Better for Retirement Than Florida](https://finance.yahoo.com/news/m-retirement-expert-7-states-120016513.html)
 <!-- feed end -->
 
 ### Onstream
