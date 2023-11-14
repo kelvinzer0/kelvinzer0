@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [New Speaker Mike Johnson formally endorses Donald Trump, a step beyond predecessor Kevin McCarthy](https://news.yahoo.com/speaker-mike-johnson-formally-endorses-154837103.html)
-- Nov 14 - [Israel's foreign minister says UN chief not fit to lead](https://news.yahoo.com/israels-foreign-minister-says-un-154149813.html)
-- Nov 14 - [China receives US equipment to make advanced chips despite new rules-report](https://finance.yahoo.com/news/china-receives-us-equipment-advanced-153204020.html)
-- Nov 14 - ['Airline considers it stealing': Flight attendant describes sneaky things travelers do](https://www.thestreet.com/travel/flight-attendant-get-into-first-class?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 14 - [People Are Sharing The Wildest Conspiracy Theories They've Ever Heard, And I Can't Believe Some Of These](https://www.yahoo.com/lifestyle/people-sharing-wildest-conspiracy-theories-151503188.html)
+- Nov 14 - [Israel police open investigation into sexual violence during Oct. 7 attack](https://news.yahoo.com/israel-police-open-investigation-sexual-180251875.html)
+- Nov 14 - ["This is an actual incitement": Legal experts alarmed after Trump pushes "citizen's arrest"](https://news.yahoo.com/actual-incitement-legal-experts-alarmed-174314050.html)
+- Nov 14 - [GOP Senator Tries to Physically Fight Union Boss During Hearing](https://news.yahoo.com/gop-senator-tries-physically-fight-172921763.html)
+- Nov 14 - [Israel shows alleged Hamas ‘armory’ under children’s hospital in Gaza. Local health officials dismiss the claims](https://news.yahoo.com/israel-shows-alleged-hamas-armory-110831417.html)
+- Nov 14 - [Israel Latest: A Hamas Camp in Gaza Is Seized, Israeli Army Says](https://finance.yahoo.com/news/israel-latest-gaza-hospitals-focus-055936486.html)
 <!-- feed end -->
 
 ### Onstream
