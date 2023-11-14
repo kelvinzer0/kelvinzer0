@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 13 - [Plug Power CEO 'very confident' despite investor concerns](https://finance.yahoo.com/video/plug-power-ceo-very-confident-223853382.html)
+- Nov 13 - [Israel releases 'evidence' children were held hostage in Gaza hospital basement](https://news.yahoo.com/israel-releases-evidence-children-were-231324839.html)
 - Nov 13 - [Trump Jr. Just Uttered the Word That Could Trip Up His Family’s Entire Defense](https://news.yahoo.com/trump-jr-just-uttered-word-223839127.html)
+- Nov 13 - [‘Fiery’ sea creature with tentacles and pointy teeth is a new species. See photos](https://news.yahoo.com/fiery-sea-creature-tentacles-pointy-223718245.html)
 - Nov 13 - [Former President Donald Trump's Sister Maryanne Trump Barry Dead At 86](https://www.yahoo.com/entertainment/former-president-donald-trumps-sister-221633525.html)
-- Nov 13 - [Danny Masterson Rape Case Judge Demands Answers for Actor’s 9 Unaccounted-For Guns](https://www.yahoo.com/entertainment/danny-masterson-rape-case-judge-214553277.html)
-- Nov 13 - ['The boss is not going to leave': Proffer videos show ex-Trump lawyers telling Georgia prosecutors about efforts to overturn 2020 election](https://www.yahoo.com/gma/boss-not-going-leave-proffer-214300722.html)
+- Nov 13 - [Confederate military relics dumped during Union offensive unearthed in South Carolina river cleanup](https://news.yahoo.com/confederate-military-relics-dumped-during-213939513.html)
 <!-- feed end -->
 
 ### Onstream
