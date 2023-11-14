@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 14 - [Judge denies Greene’s request that NY man pay for security fence after threatening her](https://news.yahoo.com/judge-denies-greene-request-ny-220917851.html)
 - Nov 14 - [Senate Rules panel votes along party lines to break Tuberville’s military holds](https://news.yahoo.com/senate-rules-panel-votes-along-211355138.html)
-- Nov 14 - [James Comer Melts Down Over Report He Did the Exact Same Thing As Joe Biden](https://news.yahoo.com/james-comer-melts-down-over-200048227.html)
+- Nov 14 - [Missing Illinois police chief's body found after stomach-turning complaint against girlfriend: docs](https://news.yahoo.com/missing-illinois-police-chiefs-body-200537767.html)
+- Nov 14 - [James Comer Melts Down Over Report He Did the Exact Same Thing as Joe Biden](https://news.yahoo.com/james-comer-melts-down-over-200048227.html)
 - Nov 14 - [Bernie Sanders Stops Fight Between Sen. Markwayne Mullin and Teamsters Boss Sean O’Brien](https://news.yahoo.com/bernie-sanders-stops-fight-between-193634758.html)
-- Nov 14 - [Philadelphia family tied up, assaulted in home invasion as child watches, disturbing video shows](https://news.yahoo.com/philadelphia-family-tied-assaulted-home-193235044.html)
-- Nov 14 - ['Stand your butt up': Senator and former martial arts fighter gets into testy exchange with union boss](https://news.yahoo.com/stand-butt-senator-former-martial-192749010.html)
 <!-- feed end -->
 
 ### Onstream
