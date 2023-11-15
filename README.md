@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [Neighbor beat 6-year-old with baseball bat, Texas cops say. Boy dies months later](https://news.yahoo.com/neighbor-beat-6-old-baseball-181016970.html)
 - Nov 15 - [Jennifer Aniston ditched grueling, morning cardio sessions. Her trainer shares the 54-year-old's 'future-proofing' longevity workout.](https://www.yahoo.com/lifestyle/jennifer-aniston-ditched-grueling-morning-123613839.html)
 - Nov 15 - [Discrimination charge filed against Michigan salon after owner's comments on gender identity](https://news.yahoo.com/discrimination-charge-filed-against-michigan-174305230.html)
 - Nov 15 - [A school superintendent suddenly resigned after Democrats took over — and he's getting a $712,000 severance package](https://news.yahoo.com/school-superintendent-suddenly-resigned-democrats-164334146.html)
 - Nov 15 - [A controversial tech millionaire says his father, 70, is now biologically 46 thanks to injections of his 'super blood'](https://www.yahoo.com/lifestyle/controversial-tech-millionaire-says-father-163144203.html)
-- Nov 15 - [Maria Menounos reveals a pancreatic cancer symptom she noticed a year before diagnosis](https://news.yahoo.com/maria-menounos-reveals-pancreatic-cancer-155227476.html)
 <!-- feed end -->
 
 ### Onstream
