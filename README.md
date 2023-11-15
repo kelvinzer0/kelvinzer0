@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 15 - [Dem Lawmaker Schools Marjorie Taylor Greene In Takedown For The Ages](https://news.yahoo.com/dem-lawmaker-schools-marjorie-taylor-082932475.html)
+- Nov 15 - [Biden hands China big win with military deal, experts say: 'Incredibly poor decision'](https://news.yahoo.com/biden-hands-china-big-win-070049011.html)
 - Nov 15 - [6-year-old Georgetown boy dies from injuries following September attack](https://news.yahoo.com/6-old-georgetown-boy-dies-014209112.html)
 - Nov 15 - [Judge gives Oregon State, Washington State full control of Pac-12 and millions of dollars in assets](https://news.yahoo.com/judge-gives-oregon-state-washington-013708166.html)
 - Nov 15 - [Washington State, Oregon State land court victory against Pac-12](https://sports.yahoo.com/washington-state-oregon-state-land-court-victory-against-pac-12-013039157.html)
-- Nov 15 - [Russia will pay heavy price for Avdiivka, says Ukraine](https://news.yahoo.com/russia-pay-heavy-price-avdiivka-010556909.html)
 <!-- feed end -->
 
 ### Onstream
