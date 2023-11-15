@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Iran tells Hamas it will not enter the war with Israel](https://news.yahoo.com/iran-tells-hamas-not-enter-190351808.html)
-- Nov 15 - [Republican goes on wild rant to push FBI Jan. 6 "ghost buses" conspiracy theory at hearing](https://news.yahoo.com/republican-goes-wild-rant-push-184757405.html)
-- Nov 15 - ['Our boat is sinking!': Woman killed after double-decker ferry sinks in Bahamas](https://news.yahoo.com/boat-sinking-woman-killed-double-183943544.html)
-- Nov 15 - [Matthew Perry’s death certificate released 3 weeks after star’s sudden passing](https://www.yahoo.com/entertainment/matthew-perry-death-certificate-released-182200330.html)
-- Nov 15 - [Neighbor beat 6-year-old with baseball bat, Texas cops say. Boy dies months later](https://news.yahoo.com/neighbor-beat-6-old-baseball-181016970.html)
+- Nov 15 - [Donald Trump's Niece Revealed The Cheap And Weird Christmas Presents He Gave Included A $12 Pack Of Underwear And A Regifted Basket With Sardines And Salami](https://finance.yahoo.com/news/donald-trumps-niece-revealed-cheap-205325931.html)
+- Nov 15 - [House abruptly heads home early after conservatives retaliate over Johnson's government funding plan](https://news.yahoo.com/house-abruptly-heads-home-early-204735405.html)
+- Nov 15 - [Nobody picked up child after school — then came grim discovery at Texas home, cops say](https://news.yahoo.com/nobody-picked-child-school-then-202602099.html)
+- Nov 15 - [Marjorie Taylor Greene claims Democrats failed to defend House from Capitol rioters](https://www.yahoo.com/entertainment/marjorie-taylor-greene-claims-democrats-195600427.html)
+- Nov 15 - [Trump co-defendant’s attorney in Georgia probe admits to leaking videos](https://news.yahoo.com/trump-co-defendant-attorney-georgia-192222935.html)
 <!-- feed end -->
 
 ### Onstream
