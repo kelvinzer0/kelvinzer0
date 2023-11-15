@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [US producer prices slide 0.5% in October, biggest drop since 2020.](https://news.yahoo.com/us-producer-prices-slide-0-133433688.html)
-- Nov 15 - [How Democrats saved House Speaker Mike Johnson’s spending bill](https://news.yahoo.com/democrats-saved-house-speaker-mike-131019613.html)
+- Nov 15 - [Canoo American Bulldog updates the company's Lifestyle Pickup](https://www.autoblog.com/2023/11/15/canoo-american-bulldog-updates-the-companys-lifestyle-pickup/)
+- Nov 15 - [Union workers at General Motors appear to have voted down tentative contract deal](https://news.yahoo.com/union-workers-general-motors-appear-143406815.html)
+- Nov 15 - [Russian woman goes on trial in a cafe bombing that killed a prominent military blogger](https://news.yahoo.com/russian-woman-goes-trial-cafe-142844682.html)
+- Nov 15 - ["Stunning": Court reporters hint at “rumblings” of potential Trump settlement talks in NY fraud case](https://news.yahoo.com/stunning-court-reporters-hint-rumblings-141420127.html)
 - Nov 15 - [Sean Hannity Gets Weird In Interview With Fight-Starting GOP Senator](https://news.yahoo.com/sean-hannity-gets-weird-interview-130612053.html)
-- Nov 15 - [Jennifer Aniston ditched grueling, morning cardio sessions. Her trainer shares the 54-year-old's 'future-proofing' longevity workout.](https://www.yahoo.com/lifestyle/jennifer-aniston-ditched-grueling-morning-123613839.html)
-- Nov 15 - [Rachel Maddow’s Unfiltered Reaction To Mike Johnson News Says It All](https://news.yahoo.com/rachel-maddows-unfiltered-reaction-mike-110826819.html)
 <!-- feed end -->
 
 ### Onstream
