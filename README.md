@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [Various Demonstrators Fill San Francisco Streets as Biden Meets Jinping at APEC Summit](https://news.yahoo.com/various-demonstrators-fill-san-francisco-213250562.html)
+- Nov 15 - [MTG Ends Up With Egg on Her Face While Grilling FBI Director](https://news.yahoo.com/mtg-ends-egg-her-face-210034005.html)
+- Nov 15 - [A Black Man’s Broken Jaw Just Cost These White Dudes a Milli](https://news.yahoo.com/black-man-broken-jaw-just-205656340.html)
 - Nov 15 - [Donald Trump's Niece Revealed The Cheap And Weird Christmas Presents He Gave Included A $12 Pack Of Underwear And A Regifted Basket With Sardines And Salami](https://finance.yahoo.com/news/donald-trumps-niece-revealed-cheap-205325931.html)
 - Nov 15 - [House abruptly heads home early after conservatives retaliate over Johnson's government funding plan](https://news.yahoo.com/house-abruptly-heads-home-early-204735405.html)
-- Nov 15 - [Nobody picked up child after school — then came grim discovery at Texas home, cops say](https://news.yahoo.com/nobody-picked-child-school-then-202602099.html)
-- Nov 15 - [Marjorie Taylor Greene claims Democrats failed to defend House from Capitol rioters](https://www.yahoo.com/entertainment/marjorie-taylor-greene-claims-democrats-195600427.html)
-- Nov 15 - [Trump co-defendant’s attorney in Georgia probe admits to leaking videos](https://news.yahoo.com/trump-co-defendant-attorney-georgia-192222935.html)
 <!-- feed end -->
 
 ### Onstream
