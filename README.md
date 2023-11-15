@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Hunter Biden seeks to subpoena Trump, former atty general Barr -court filing](https://news.yahoo.com/hunter-biden-seeks-subpoena-trump-151435444.html)
-- Nov 15 - [UFC president Dana White issues two-word response to sponsor over Donald Trump request](https://sports.yahoo.com/ufc-president-dana-white-issues-150104254.html)
-- Nov 15 - [An American woman said she was shocked to discover that Alaska isn't actually an island, calling for an 'overhaul' of the school curriculum](https://www.yahoo.com/entertainment/american-woman-said-she-shocked-143533239.html)
-- Nov 15 - [Canoo American Bulldog updates the company's Lifestyle Pickup](https://www.autoblog.com/2023/11/15/canoo-american-bulldog-updates-the-companys-lifestyle-pickup/)
-- Nov 15 - [Vote on tentative contract with General Motors too close to call as more tallies are reported](https://news.yahoo.com/union-workers-general-motors-appear-143406815.html)
+- Nov 15 - [Credit card skimmers found at Market Basket stores in Mass., NH, police say](https://news.yahoo.com/credit-card-skimmers-found-market-151831000.html)
+- Nov 15 - [Maria Menounos reveals a pancreatic cancer symptom she noticed a year before diagnosis](https://news.yahoo.com/maria-menounos-reveals-pancreatic-cancer-155227476.html)
+- Nov 15 - ["Utter embarrassment": "Pathetic" GOPer runs to Fox News to brag about challenging witness to fight](https://news.yahoo.com/utter-embarrassment-pathetic-goper-runs-153807959.html)
+- Nov 15 - [Kayak owners detail unusual behavior of group with Nancy Ng when she went missing in Guatemala](https://news.yahoo.com/kayak-owners-detail-unusual-behavior-153334126.html)
+- Nov 15 - [Trump asks for mistrial in civil fraud case but faces high bar](https://news.yahoo.com/trumps-lawyers-ask-mistrial-york-152328251.html)
 <!-- feed end -->
 
 ### Onstream
