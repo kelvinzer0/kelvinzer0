@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Various Demonstrators Fill San Francisco Streets as Biden Meets Jinping at APEC Summit](https://news.yahoo.com/various-demonstrators-fill-san-francisco-213250562.html)
-- Nov 15 - [MTG Ends Up With Egg on Her Face While Grilling FBI Director](https://news.yahoo.com/mtg-ends-egg-her-face-210034005.html)
-- Nov 15 - [A Black Man’s Broken Jaw Just Cost These White Dudes a Milli](https://news.yahoo.com/black-man-broken-jaw-just-205656340.html)
-- Nov 15 - [Donald Trump's Niece Revealed The Cheap And Weird Christmas Presents He Gave Included A $12 Pack Of Underwear And A Regifted Basket With Sardines And Salami](https://finance.yahoo.com/news/donald-trumps-niece-revealed-cheap-205325931.html)
-- Nov 15 - [House abruptly heads home early after conservatives retaliate over Johnson's government funding plan](https://news.yahoo.com/house-abruptly-heads-home-early-204735405.html)
+- Nov 15 - [Fact Check: Fox News Reported that Trump's Mar-a-Lago Club Received Foreclosure Notice from Deutsche Bank?](https://news.yahoo.com/fact-check-fox-news-reported-223700391.html)
+- Nov 15 - [Prosecutor asks judge to revoke bond for Harrison Floyd in Georgia election case](https://news.yahoo.com/prosecutor-asks-judge-revoke-bond-223305611.html)
+- Nov 15 - [Is the Royals’ list of KC stadium sites growing? A third option is making a late push](https://news.yahoo.com/royals-list-kc-stadium-sites-222518308.html)
+- Nov 15 - [Attorney General Letitia James Has Some Choice Words For The Trumps](https://news.yahoo.com/attorney-general-letitia-james-choice-220736813.html)
+- Nov 15 - [Rare 3,700-year-old weapon uncovered at construction site in Poland, officials say](https://news.yahoo.com/rare-3-700-old-weapon-215749297.html)
 <!-- feed end -->
 
 ### Onstream
