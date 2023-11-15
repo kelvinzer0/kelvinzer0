@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [Stephen Colbert Sums Up Trump With 5 Brutal Words](https://www.yahoo.com/entertainment/stephen-colbert-sums-trump-5-042334310.html)
 - Nov 15 - [Judge gives Oregon State, Washington State full control of Pac-12 and millions of dollars in assets](https://news.yahoo.com/judge-gives-oregon-state-washington-013708166.html)
 - Nov 15 - [Washington State, Oregon State land court victory against Pac-12](https://sports.yahoo.com/washington-state-oregon-state-land-court-victory-against-pac-12-013039157.html)
 - Nov 15 - [Russia will pay heavy price for Avdiivka, says Ukraine](https://news.yahoo.com/russia-pay-heavy-price-avdiivka-010556909.html)
-- Nov 14 - [Lush, private Northern California estate is site for Xi-Biden meeting](https://news.yahoo.com/lush-private-northern-california-estate-234231969.html)
-- Nov 14 - [Formula 1 race sheds light on a huge Las Vegas Strip problem](https://www.thestreet.com/travel/formula-1-race-sheds-light-on-huge-las-vegas-strip-problem?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 15 - [Subject of AMBER Alert now indicted on capital murder charge in Garland killing](https://news.yahoo.com/subject-amber-alert-now-indicted-003352484.html)
 <!-- feed end -->
 
 ### Onstream
