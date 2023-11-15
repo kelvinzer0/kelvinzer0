@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 14 - [Judge denies Greene’s request that NY man pay for security fence after threatening her](https://news.yahoo.com/judge-denies-greene-request-ny-220917851.html)
+- Nov 14 - [Lush, private Northern California estate is site for Xi-Biden meeting](https://news.yahoo.com/lush-private-northern-california-estate-234231969.html)
+- Nov 14 - [Deion Sanders says UCLA recruits who stole from Colorado’s locker room should be forgiven](https://sports.yahoo.com/deion-sanders-says-ucla-recruits-232500561.html)
+- Nov 14 - [The Georgia district attorney who charged Trump expects his trial to be underway over Election Day](https://news.yahoo.com/georgia-district-attorney-charged-trump-221558061.html)
+- Nov 14 - [Formula 1 race sheds light on a huge Las Vegas Strip problem](https://www.thestreet.com/travel/formula-1-race-sheds-light-on-huge-las-vegas-strip-problem?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Nov 14 - [Senate Rules panel votes along party lines to break Tuberville’s military holds](https://news.yahoo.com/senate-rules-panel-votes-along-211355138.html)
-- Nov 14 - [Missing Illinois police chief's body found after stomach-turning complaint against girlfriend: docs](https://news.yahoo.com/missing-illinois-police-chiefs-body-200537767.html)
-- Nov 14 - [James Comer Melts Down Over Report He Did the Exact Same Thing as Joe Biden](https://news.yahoo.com/james-comer-melts-down-over-200048227.html)
-- Nov 14 - [Bernie Sanders Stops Fight Between Sen. Markwayne Mullin and Teamsters Boss Sean O’Brien](https://news.yahoo.com/bernie-sanders-stops-fight-between-193634758.html)
 <!-- feed end -->
 
 ### Onstream
