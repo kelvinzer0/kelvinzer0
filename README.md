@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [Hunter Biden seeks to subpoena Trump, former atty general Barr -court filing](https://news.yahoo.com/hunter-biden-seeks-subpoena-trump-151435444.html)
+- Nov 15 - [UFC president Dana White issues two-word response to sponsor over Donald Trump request](https://sports.yahoo.com/ufc-president-dana-white-issues-150104254.html)
+- Nov 15 - [An American woman said she was shocked to discover that Alaska isn't actually an island, calling for an 'overhaul' of the school curriculum](https://www.yahoo.com/entertainment/american-woman-said-she-shocked-143533239.html)
 - Nov 15 - [Canoo American Bulldog updates the company's Lifestyle Pickup](https://www.autoblog.com/2023/11/15/canoo-american-bulldog-updates-the-companys-lifestyle-pickup/)
-- Nov 15 - [Union workers at General Motors appear to have voted down tentative contract deal](https://news.yahoo.com/union-workers-general-motors-appear-143406815.html)
-- Nov 15 - [Russian woman goes on trial in a cafe bombing that killed a prominent military blogger](https://news.yahoo.com/russian-woman-goes-trial-cafe-142844682.html)
-- Nov 15 - ["Stunning": Court reporters hint at “rumblings” of potential Trump settlement talks in NY fraud case](https://news.yahoo.com/stunning-court-reporters-hint-rumblings-141420127.html)
-- Nov 15 - [Sean Hannity Gets Weird In Interview With Fight-Starting GOP Senator](https://news.yahoo.com/sean-hannity-gets-weird-interview-130612053.html)
+- Nov 15 - [Vote on tentative contract with General Motors too close to call as more tallies are reported](https://news.yahoo.com/union-workers-general-motors-appear-143406815.html)
 <!-- feed end -->
 
 ### Onstream
