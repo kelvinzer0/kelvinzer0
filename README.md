@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Fiery 130 mph speed chase ends with arrest on Gulf Freeway | CW39 HOUSTON](https://news.yahoo.com/fiery-130-mph-speed-chase-114917003.html)
-- Nov 15 - [Rachel Maddow's Unfiltered Reaction To Mike Johnson News Says It All](https://news.yahoo.com/rachel-maddows-unfiltered-reaction-mike-110826819.html)
+- Nov 15 - [Rachel Maddow’s Unfiltered Reaction To Mike Johnson News Says It All](https://news.yahoo.com/rachel-maddows-unfiltered-reaction-mike-110826819.html)
 - Nov 15 - [China's state media take a new tone toward the US ahead of meeting between their leaders](https://news.yahoo.com/chinas-state-media-tone-toward-104406672.html)
 - Nov 15 - [New Jersey parents of Tennessee college student killed by stray bullet say laws 'protect' repeat criminals](https://news.yahoo.com/jersey-parents-tennessee-college-student-090059923.html)
 - Nov 15 - [Rashida Tlaib member of secret Facebook group where Hamas terrorists glorified](https://news.yahoo.com/rashida-tlaib-member-secret-facebook-090056831.html)
+- Nov 15 - [Dem Lawmaker Schools Marjorie Taylor Greene In Takedown For The Ages](https://news.yahoo.com/dem-lawmaker-schools-marjorie-taylor-082932475.html)
 <!-- feed end -->
 
 ### Onstream
