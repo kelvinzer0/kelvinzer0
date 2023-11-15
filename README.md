@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [Judge gives Oregon State, Washington State full control of Pac-12 and millions of dollars in assets](https://news.yahoo.com/judge-gives-oregon-state-washington-013708166.html)
+- Nov 15 - [Washington State, Oregon State land court victory against Pac-12](https://sports.yahoo.com/washington-state-oregon-state-land-court-victory-against-pac-12-013039157.html)
+- Nov 15 - [Russia will pay heavy price for Avdiivka, says Ukraine](https://news.yahoo.com/russia-pay-heavy-price-avdiivka-010556909.html)
 - Nov 14 - [Lush, private Northern California estate is site for Xi-Biden meeting](https://news.yahoo.com/lush-private-northern-california-estate-234231969.html)
 - Nov 14 - [Deion Sanders says UCLA recruits who stole from Colorado’s locker room should be forgiven](https://sports.yahoo.com/deion-sanders-says-ucla-recruits-232500561.html)
-- Nov 14 - [The Georgia district attorney who charged Trump expects his trial to be underway over Election Day](https://news.yahoo.com/georgia-district-attorney-charged-trump-221558061.html)
-- Nov 14 - [Formula 1 race sheds light on a huge Las Vegas Strip problem](https://www.thestreet.com/travel/formula-1-race-sheds-light-on-huge-las-vegas-strip-problem?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 14 - [Senate Rules panel votes along party lines to break Tuberville’s military holds](https://news.yahoo.com/senate-rules-panel-votes-along-211355138.html)
 <!-- feed end -->
 
 ### Onstream
