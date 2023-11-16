@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [United Has Flight Deals Running All the Time on Its Website — Here's Where to Find Them](https://www.yahoo.com/lifestyle/united-flight-deals-running-time-212733302.html)
+- Nov 16 - [2-year-old Fort Worth girl attacked by pit bull in CPS custody. Her parents visit her daily](https://news.yahoo.com/2-old-fort-worth-girl-224013174.html)
+- Nov 16 - [Alabama Set To Execute Man for a Crime He Committed While Legally a Minor](https://news.yahoo.com/alabama-set-execute-man-crime-211501352.html)
 - Nov 16 - [Trump 'made his own bed,' cannot add witness for writer's trial - judge](https://news.yahoo.com/trump-made-own-bed-cannot-210952418.html)
 - Nov 16 - [New York judge lifts gag order that barred Donald Trump from maligning court staff in fraud trial](https://news.yahoo.com/york-judge-lifts-gag-order-201442586.html)
-- Nov 16 - [Old FBI Files Claim Donald Trump's Second Wife Marla Maples Allegedly Had an Affair With This '90s Singer](https://www.yahoo.com/entertainment/old-fbi-files-claim-donald-200125756.html)
-- Nov 16 - [Christie surges in New Hampshire poll. Hear his reaction](https://news.yahoo.com/christie-surges-hampshire-poll-hear-194858675.html)
+- Nov 16 - [‘We’re Gonna Put Kids In Cages’: Meet The Man Who Could Be Trump’s Next Attorney General](https://news.yahoo.com/gonna-put-kids-cages-meet-200752325.html)
 <!-- feed end -->
 
 ### Onstream
