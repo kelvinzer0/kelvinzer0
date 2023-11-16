@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 16 - [UK's Cameron meets Zelenskiy in Kyiv on first trip abroad as foreign minister](https://news.yahoo.com/ukraines-zelenskiy-says-uk-foreign-074436502.html)
 - Nov 16 - [Los Angeles criticized for its handling of homelessness after 16 homeless people escape freeway fire](https://news.yahoo.com/los-angeles-criticized-handling-homelessness-052014400.html)
-- Nov 16 - [Woman banned from Carnival ships after attempting to bring CBD gummies aboard, lawyer says](https://news.yahoo.com/woman-banned-carnival-ships-attempting-015323895.html)
+- Nov 16 - [6-year-old Texas boy dies 2 months after neighbor allegedly hit him with baseball bat](https://news.yahoo.com/6-old-texas-boy-dies-042622065.html)
+- Nov 16 - [Philippines rejects China's call for prior notice on resupply missions](https://news.yahoo.com/philippines-calls-china-remove-illegal-040354432.html)
 - Nov 16 - [China's not-so-special economic zone embodies a harsh new reality](https://finance.yahoo.com/news/chinas-not-special-economic-zone-013622970.html)
-- Nov 16 - [Xi told Biden Taiwan is biggest, most dangerous issue in bilateral ties -US official](https://news.yahoo.com/xi-told-biden-taiwan-biggest-002148100.html)
-- Nov 16 - ['Why should you get to eat in peace?': Canadians slam Trudeau's Gaza stance after protesters swarm him in restaurant](https://news.yahoo.com/canadians-slam-trudeau-gaza-protesters-swarm-vancouver-001503197.html)
 <!-- feed end -->
 
 ### Onstream
