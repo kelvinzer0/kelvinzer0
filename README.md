@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [Taiwan presidential frontrunner taps high profile US envoy as running mate-sources](https://news.yahoo.com/taiwan-presidential-frontrunner-taps-high-043940653.html)
+- Nov 16 - [Los Angeles criticized for its handling of homelessness after 16 homeless people escape freeway fire](https://news.yahoo.com/los-angeles-criticized-handling-homelessness-052014400.html)
+- Nov 16 - [Woman banned from Carnival ships after attempting to bring CBD gummies aboard, lawyer says](https://news.yahoo.com/woman-banned-carnival-ships-attempting-015323895.html)
 - Nov 16 - [China's not-so-special economic zone embodies a harsh new reality](https://finance.yahoo.com/news/chinas-not-special-economic-zone-013622970.html)
 - Nov 16 - [Xi told Biden Taiwan is biggest, most dangerous issue in bilateral ties -US official](https://news.yahoo.com/xi-told-biden-taiwan-biggest-002148100.html)
-- Nov 15 - [Osama bin Laden’s ‘Letter to America’ Goes Viral 21 Years Later — on TikTok](https://www.yahoo.com/entertainment/osama-bin-laden-letter-america-235848603.html)
-- Nov 15 - [Sen. Joe Manchin says Donald Trump would destroy US democracy if he wins second term as president](https://news.yahoo.com/sen-joe-manchin-says-donald-230206676.html)
+- Nov 16 - ['Why should you get to eat in peace?': Canadians slam Trudeau's Gaza stance after protesters swarm him in restaurant](https://news.yahoo.com/canadians-slam-trudeau-gaza-protesters-swarm-vancouver-001503197.html)
 <!-- feed end -->
 
 ### Onstream
