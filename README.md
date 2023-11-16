@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 16 - [‘Sell your stinkin' house': Dave Ramsey says this 'stupid' housing trend is getting out of control and could leave you without a home — are you doing it, too?](https://finance.yahoo.com/news/sell-stinkin-house-dave-ramsey-120000403.html)
+- Nov 16 - [Meta Oversight Board to review handling of video showing unveiled woman in Iran](https://news.yahoo.com/meta-oversight-board-review-handling-111518972.html)
+- Nov 16 - [Video shows the moment Antony Blinken winces after Biden calls China's Xi a dictator, upending months of careful diplomacy](https://news.yahoo.com/video-shows-moment-antony-blinken-105814563.html)
+- Nov 16 - [Bitcoin bump lifts solana and cardano as crypto tokens rally](https://uk.finance.yahoo.com/news/bitcoin-solana-cardano-crypto-price-rally-103054806.html)
 - Nov 16 - [The Car of the Year Isn’t a Tesla. But It Is Electric.](https://www.barrons.com/articles/toyota-prius-motortrend-2024-car-of-the-year-cd82288b?siteid=yhoof2&yptr=yahoo)
-- Nov 16 - [Social Security Changes Are Coming in 2024: Here's the Good and the Bad](https://www.fool.com/retirement/2023/11/16/social-security-changes-are-coming-in-2024-heres-t/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 16 - [Safari officials issue warning after disturbing find during autopsy of dead wildebeest: ‘[It’s] truly disgusting’](https://news.yahoo.com/safari-officials-issue-warning-disturbing-073000984.html)
-- Nov 16 - [Texas inmate faces execution for 2001 abduction and strangulation of 5-year-old girl](https://news.yahoo.com/texas-inmate-faces-execution-2001-052950098.html)
-- Nov 16 - [Far-Right GOP Lawmaker's Question About Republicans Backfires Spectacularly](https://news.yahoo.com/far-gop-lawmakers-republicans-backfires-044243121.html)
 <!-- feed end -->
 
 ### Onstream
