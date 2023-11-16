@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [Jordan says it won't sign energy for water deal with Israel](https://news.yahoo.com/jordan-says-wont-sign-energy-183554108.html)
-- Nov 16 - [Apple will start supporting RCS in 2024](https://news.yahoo.com/apple-will-start-supporting-rcs-in-2024-182232923.html)
-- Nov 16 - [Boaters witness ‘unbelievable spectacle’ when predators attack sea creature. See it](https://news.yahoo.com/boaters-witness-unbelievable-spectacle-predators-181530414.html)
-- Nov 16 - [Ohio Republicans Cook Up Yet Another Sinister Plan After Losing Abortion Vote](https://news.yahoo.com/ohio-republicans-cook-yet-another-173211861.html)
-- Nov 16 - [The all-electric Lucid Gravity SUV finally makes its debut with 440 miles of range](https://news.yahoo.com/electric-lucid-gravity-suv-finally-170952159.html)
+- Nov 16 - [I'm A Terrible Person So I Can't Stop Laughing After Reading These 21 Extremely Dumb Things People Posted On The Internet Last Week](https://www.yahoo.com/lifestyle/im-terrible-person-cant-stop-194620906.html)
+- Nov 16 - [Vivek Ramaswamy Takes Mansplaining To A New Low With CNN Anchor](https://www.yahoo.com/entertainment/vivek-ramaswamy-takes-mansplaining-low-193832922.html)
+- Nov 16 - [Hamas terrorist who paraded festival-goer’s body in Gaza has been killed, says her mother](https://news.yahoo.com/hamas-terrorist-paraded-festival-goer-191824559.html)
+- Nov 16 - [Apple to finally bring RCS to iPhones](https://news.yahoo.com/apple-finally-bring-rcs-iphones-190720803.html)
+- Nov 16 - [2024 Kia Sorento gets quite the update with striking style and new tech](https://www.autoblog.com/article/2024-kia-sorento-preview/)
 <!-- feed end -->
 
 ### Onstream
