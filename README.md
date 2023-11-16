@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [Cathie Wood snaps up 90,000 shares of a stock that just fell 27% in one day](https://www.thestreet.com/investing/stocks/cathie-wood-ark-invest-global-e-earnings-stocks-investing?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 16 - [Tesla's Full Self-Driving is already worth $1B-$3B in sales, with upside to $75B by 2030: Goldman](https://finance.yahoo.com/news/teslas-full-self-driving-is-already-worth-1b-3b-in-sales-with-upside-to-75b-by-2030-goldman-142322417.html)
-- Nov 16 - [Costco makes a major change to stop theft, keep non-members out](https://www.thestreet.com/retailers/costco-makes-a-major-change-to-stop-theft-keep-non-members-out?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 16 - [Watch a speeding Dodge Charger take flight, get hit by a bus midair, crash into restaurant](https://www.autoblog.com/2023/11/16/watch-a-speeding-dodge-charger-go-airborne-get-hit-by-a-bus-midair-destroy-a-restaurant/)
-- Nov 16 - [Who was behind the wheel? State patrol reveals new details about deadly I-70 crash in Ohio](https://news.yahoo.com/behind-wheel-state-patrol-reveals-135924005.html)
+- Nov 16 - [AP PHOTOS: Singapore gives the world a peek into our food future](https://www.yahoo.com/lifestyle/ap-photos-singapore-gives-world-154941413.html)
+- Nov 16 - [George Santos Used Campaign Cash to Pay for OnlyFans and Botox: Ethics Report](https://news.yahoo.com/george-santos-used-campaign-cash-153434957.html)
+- Nov 16 - [Catalytic converter thefts: Here's where the precious metals wind up](https://www.autoblog.com/2023/11/16/catalytic-converter-thefts-heres-where-the-precious-metals-wind-up/)
+- Nov 16 - [Smoke on the water: Watch a submerged Tesla catch fire and burn underwater](https://www.autoblog.com/2023/11/16/watch-as-submerged-tesla-model-x-at-florida-boat-ramp-burns-underwater/)
+- Nov 16 - [Honda Prelude Concept makes surprise appearance at L.A. Auto Show](https://www.autoblog.com/2023/11/16/honda-prelude-concept-makes-north-american-debut-in-la/)
 <!-- feed end -->
 
 ### Onstream
