@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [Woman travels to New Mexico for abortion care not offered to her in Texas, joins suit](https://www.yahoo.com/gma/woman-travels-mexico-abortion-care-012037311.html)
-- Nov 16 - [The gender gap in life expectancy is widening — in women's favor. Here are 5 reasons why.](https://www.yahoo.com/lifestyle/gender-gap-life-expectancy-005429038.html)
 - Nov 16 - [Sighting of mysterious animal in the Phoenix Mountain Preserve leaves officials puzzled](https://news.yahoo.com/sighting-mysterious-animal-phoenix-mountain-005030585.html)
 - Nov 16 - [Xi told Biden Taiwan is biggest, most dangerous issue in bilateral ties -US official](https://news.yahoo.com/xi-told-biden-taiwan-biggest-002148100.html)
-- Nov 16 - ['Why should you get to eat in peace?': Canadians slam Trudeau's Gaza stance after protesters swarm him in restaurant](https://news.yahoo.com/canadians-slam-trudeau-gaza-protesters-swarm-vancouver-001503197.html)
+- Nov 15 - [Microsoft unveils new AI tools Copilot Azure, Copilot for Service and Copilot Studio at Ignite event](https://news.yahoo.com/microsoft-now-copilot-almost-everything-160032057.html)
+- Nov 15 - [F-15QA Flies Demo Unlike Any We've Seen From An Eagle Before](https://news.yahoo.com/f-15qa-flies-demo-unlike-230738688.html)
+- Nov 15 - [Sen. Joe Manchin says Donald Trump would destroy US democracy if he wins second term as president](https://news.yahoo.com/sen-joe-manchin-says-donald-230206676.html)
 <!-- feed end -->
 
 ### Onstream
