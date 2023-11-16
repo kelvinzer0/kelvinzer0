@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [AP PHOTOS: Singapore gives the world a peek into our food future](https://www.yahoo.com/lifestyle/ap-photos-singapore-gives-world-154941413.html)
-- Nov 16 - [George Santos Used Campaign Cash to Pay for OnlyFans and Botox: Ethics Report](https://news.yahoo.com/george-santos-used-campaign-cash-153434957.html)
-- Nov 16 - [Catalytic converter thefts: Here's where the precious metals wind up](https://www.autoblog.com/2023/11/16/catalytic-converter-thefts-heres-where-the-precious-metals-wind-up/)
-- Nov 16 - [Smoke on the water: Watch a submerged Tesla catch fire and burn underwater](https://www.autoblog.com/2023/11/16/watch-as-submerged-tesla-model-x-at-florida-boat-ramp-burns-underwater/)
-- Nov 16 - [Honda Prelude Concept makes surprise appearance at L.A. Auto Show](https://www.autoblog.com/2023/11/16/honda-prelude-concept-makes-north-american-debut-in-la/)
+- Nov 16 - [US issues sanctions to limit Russian influence in Balkans](https://news.yahoo.com/us-issues-sanctions-limit-russian-165637456.html)
+- Nov 16 - [Freshman Rep. George Santos Will Not Seek Reelection Following Release of Bombshell House Ethics Report](https://www.yahoo.com/entertainment/freshman-rep-george-santos-not-165506850.html)
+- Nov 16 - [Ask an Advisor: Can a Nursing Home ‘Take Our IRA?' My Wife and I Are Elderly. We Have a $100K IRA and a Trust to Protect Our Assets.](https://finance.yahoo.com/news/ask-advisor-nursing-home-ira-140442815.html)
+- Nov 16 - [Long-lost $26 million masterpiece found in kitchen heads to the Louvre after 4-year campaign](https://www.yahoo.com/lifestyle/long-lost-26-million-masterpiece-124310565.html)
+- Nov 16 - [Iowa teen sentenced to life in prison for killing his Spanish teacher](https://news.yahoo.com/iowa-teen-sentenced-life-prison-160705511.html)
 <!-- feed end -->
 
 ### Onstream
