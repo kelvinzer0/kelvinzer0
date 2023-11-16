@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 16 - [With mapping robots and blast gel, Israel wages war on Hamas tunnels](https://news.yahoo.com/mapping-robots-blast-gel-israel-130657979.html)
+- Nov 16 - [Donald Trump Insults Kim Kardashian In A Way That May Actually Hurt](https://news.yahoo.com/donald-trump-insults-kim-kardashian-123430278.html)
+- Nov 16 - [Feds want speed reduction tech in every new car. Are American drivers ready?](https://news.yahoo.com/feds-want-speed-reduction-tech-121541145.html)
 - Nov 16 - [‘Sell your stinkin' house': Dave Ramsey says this 'stupid' housing trend is getting out of control and could leave you without a home — are you doing it, too?](https://finance.yahoo.com/news/sell-stinkin-house-dave-ramsey-120000403.html)
-- Nov 16 - [Meta Oversight Board to review handling of video showing unveiled woman in Iran](https://news.yahoo.com/meta-oversight-board-review-handling-111518972.html)
-- Nov 16 - [Video shows the moment Antony Blinken winces after Biden calls China's Xi a dictator, upending months of careful diplomacy](https://news.yahoo.com/video-shows-moment-antony-blinken-105814563.html)
-- Nov 16 - [Bitcoin bump lifts solana and cardano as crypto tokens rally](https://uk.finance.yahoo.com/news/bitcoin-solana-cardano-crypto-price-rally-103054806.html)
-- Nov 16 - [The Car of the Year Isn’t a Tesla. But It Is Electric.](https://www.barrons.com/articles/toyota-prius-motortrend-2024-car-of-the-year-cd82288b?siteid=yhoof2&yptr=yahoo)
+- Nov 16 - [An American Airlines passenger is ordered to pay $40,000 to the airline for disrupting and diverting a flight](https://news.yahoo.com/american-airlines-passenger-ordered-pay-111627875.html)
 <!-- feed end -->
 
 ### Onstream
