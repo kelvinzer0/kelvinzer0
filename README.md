@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 15 - [Fact Check: Fox News Reported that Trump's Mar-a-Lago Club Received Foreclosure Notice from Deutsche Bank?](https://news.yahoo.com/fact-check-fox-news-reported-223700391.html)
-- Nov 15 - [Prosecutor asks judge to revoke bond for Harrison Floyd in Georgia election case](https://news.yahoo.com/prosecutor-asks-judge-revoke-bond-223305611.html)
-- Nov 15 - [Is the Royals’ list of KC stadium sites growing? A third option is making a late push](https://news.yahoo.com/royals-list-kc-stadium-sites-222518308.html)
-- Nov 15 - [Attorney General Letitia James Has Some Choice Words For The Trumps](https://news.yahoo.com/attorney-general-letitia-james-choice-220736813.html)
-- Nov 15 - [Rare 3,700-year-old weapon uncovered at construction site in Poland, officials say](https://news.yahoo.com/rare-3-700-old-weapon-215749297.html)
+- Nov 16 - ['Why should you get to eat in peace?': Canadians slam Trudeau's Gaza stance after protesters swarm him in restaurant](https://news.yahoo.com/canadians-slam-trudeau-gaza-protesters-swarm-vancouver-001503197.html)
+- Nov 16 - [Salem Hospital alerts hundreds to possible exposure to HIV, hepatitis infections](https://news.yahoo.com/salem-hospital-alerts-hundreds-possible-223423191.html)
+- Nov 15 - [Dashcam video shows crash that led to fuel tanker rollover that has Route 3 in Billerica shut down](https://news.yahoo.com/route-3-billerica-closed-wreck-153853268.html)
+- Nov 15 - [Sen. Joe Manchin says Donald Trump would destroy US democracy if he wins second term as president](https://news.yahoo.com/sen-joe-manchin-says-donald-230206676.html)
+- Nov 15 - [Kari Lake ‘drove a stake’ through the heart of McCain Republicans. Now she wants a meeting.](https://news.yahoo.com/kari-lake-drove-stake-heart-230144147.html)
 <!-- feed end -->
 
 ### Onstream
