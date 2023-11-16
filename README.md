@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [UK's Cameron meets Zelenskiy in Kyiv on first trip abroad as foreign minister](https://news.yahoo.com/ukraines-zelenskiy-says-uk-foreign-074436502.html)
-- Nov 16 - [Los Angeles criticized for its handling of homelessness after 16 homeless people escape freeway fire](https://news.yahoo.com/los-angeles-criticized-handling-homelessness-052014400.html)
-- Nov 16 - [6-year-old Texas boy dies 2 months after neighbor allegedly hit him with baseball bat](https://news.yahoo.com/6-old-texas-boy-dies-042622065.html)
-- Nov 16 - [Philippines rejects China's call for prior notice on resupply missions](https://news.yahoo.com/philippines-calls-china-remove-illegal-040354432.html)
-- Nov 16 - [China's not-so-special economic zone embodies a harsh new reality](https://finance.yahoo.com/news/chinas-not-special-economic-zone-013622970.html)
+- Nov 16 - [Days before its sale, my once beautiful property was destroyed](https://news.yahoo.com/days-sale-once-beautiful-property-100000493.html)
+- Nov 16 - [Zelensky meets new UK Foreign Secretary David Cameron](https://news.yahoo.com/zelensky-meets-uk-foreign-secretary-093029368.html)
+- Nov 16 - [Dwayne Johnson Showed Up At The Capitol And You Already Know What People Said](https://www.yahoo.com/entertainment/dwayne-johnson-showed-capitol-already-090744355.html)
+- Nov 16 - [David Cameron Meets Zelensky in First Trip Since Surprise Return to Politics](https://news.yahoo.com/david-cameron-meets-zelensky-first-083050758.html)
+- Nov 16 - [Safari officials issue warning after disturbing find during autopsy of dead wildebeest: ‘[It’s] truly disgusting’](https://news.yahoo.com/safari-officials-issue-warning-disturbing-073000984.html)
 <!-- feed end -->
 
 ### Onstream
