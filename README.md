@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [Finland to close 4 border crossing points after accusing Russia of organizing flow of migrants](https://news.yahoo.com/finland-close-4-border-crossing-135315111.html)
-- Nov 16 - [Palestinian gunmen shot dead on way to ‘massacre in Israel’](https://news.yahoo.com/palestinian-gunmen-shot-dead-way-134542287.html)
-- Nov 16 - [Jimmy Kimmel Explains How Trump Differs From Nazis: ‘Hitler Was Married to a Woman Who Loved Him’ (Video)](https://www.yahoo.com/entertainment/jimmy-kimmel-explains-trump-differs-133000227.html)
-- Nov 16 - [Jury convictions of Bannon and Navarro for refusing congressional subpoena may energize lawmakers' ability to hold powerful people accountable](https://news.yahoo.com/jury-convictions-bannon-navarro-refusing-131907018.html)
-- Nov 16 - [With mapping robots and blast gel, Israel wages war on Hamas tunnels](https://news.yahoo.com/mapping-robots-blast-gel-israel-130657979.html)
+- Nov 16 - [Cathie Wood snaps up 90,000 shares of a stock that just fell 27% in one day](https://www.thestreet.com/investing/stocks/cathie-wood-ark-invest-global-e-earnings-stocks-investing?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 16 - [Tesla's Full Self-Driving is already worth $1B-$3B in sales, with upside to $75B by 2030: Goldman](https://finance.yahoo.com/news/teslas-full-self-driving-is-already-worth-1b-3b-in-sales-with-upside-to-75b-by-2030-goldman-142322417.html)
+- Nov 16 - [Costco makes a major change to stop theft, keep non-members out](https://www.thestreet.com/retailers/costco-makes-a-major-change-to-stop-theft-keep-non-members-out?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 16 - [Watch a speeding Dodge Charger take flight, get hit by a bus midair, crash into restaurant](https://www.autoblog.com/2023/11/16/watch-a-speeding-dodge-charger-go-airborne-get-hit-by-a-bus-midair-destroy-a-restaurant/)
+- Nov 16 - [Who was behind the wheel? State patrol reveals new details about deadly I-70 crash in Ohio](https://news.yahoo.com/behind-wheel-state-patrol-reveals-135924005.html)
 <!-- feed end -->
 
 ### Onstream
