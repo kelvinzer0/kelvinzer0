@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [Don’t let their reputation fool you – bungalows are making a comeback](https://news.yahoo.com/don-t-let-reputation-fool-180000453.html)
-- Nov 16 - [Man secretly records partner during sex, then texts video to friend, CA officials say](https://news.yahoo.com/man-secretly-records-partner-during-174550098.html)
+- Nov 16 - [Jordan says it won't sign energy for water deal with Israel](https://news.yahoo.com/jordan-says-wont-sign-energy-183554108.html)
+- Nov 16 - [Apple will start supporting RCS in 2024](https://news.yahoo.com/apple-will-start-supporting-rcs-in-2024-182232923.html)
+- Nov 16 - [Boaters witness ‘unbelievable spectacle’ when predators attack sea creature. See it](https://news.yahoo.com/boaters-witness-unbelievable-spectacle-predators-181530414.html)
+- Nov 16 - [Ohio Republicans Cook Up Yet Another Sinister Plan After Losing Abortion Vote](https://news.yahoo.com/ohio-republicans-cook-yet-another-173211861.html)
 - Nov 16 - [The all-electric Lucid Gravity SUV finally makes its debut with 440 miles of range](https://news.yahoo.com/electric-lucid-gravity-suv-finally-170952159.html)
-- Nov 16 - [Ask an Advisor: Can a Nursing Home ‘Take Our IRA?' My Wife and I Are Elderly. We Have a $100K IRA and a Trust to Protect Our Assets.](https://finance.yahoo.com/news/ask-advisor-nursing-home-ira-140442815.html)
-- Nov 16 - [Apple teases Black Friday offers, but there are better deals](https://finance.yahoo.com/news/apple-teases-black-friday-offers-161318193.html)
 <!-- feed end -->
 
 ### Onstream
