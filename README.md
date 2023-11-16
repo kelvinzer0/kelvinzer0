@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [I'm A Terrible Person So I Can't Stop Laughing After Reading These 21 Extremely Dumb Things People Posted On The Internet Last Week](https://www.yahoo.com/lifestyle/im-terrible-person-cant-stop-194620906.html)
+- Nov 16 - [‘Loving father and football coach’ missing since June found dead, Michigan cops say](https://news.yahoo.com/loving-father-football-coach-missing-202618468.html)
+- Nov 16 - [How to Do Calf Raises to Fire Up Your Leg Muscles and Improve Your Balance](https://www.yahoo.com/lifestyle/calf-raises-fire-leg-muscles-201613738.html)
+- Nov 16 - [New York judge lifts gag order that barred Donald Trump from maligning court staff in fraud trial](https://news.yahoo.com/york-judge-lifts-gag-order-201442586.html)
 - Nov 16 - [Vivek Ramaswamy Takes Mansplaining To A New Low With CNN Anchor](https://www.yahoo.com/entertainment/vivek-ramaswamy-takes-mansplaining-low-193832922.html)
-- Nov 16 - [Hamas terrorist who paraded festival-goer’s body in Gaza has been killed, says her mother](https://news.yahoo.com/hamas-terrorist-paraded-festival-goer-191824559.html)
-- Nov 16 - [Apple to finally bring RCS to iPhones](https://news.yahoo.com/apple-finally-bring-rcs-iphones-190720803.html)
-- Nov 16 - [2024 Kia Sorento gets quite the update with striking style and new tech](https://www.autoblog.com/article/2024-kia-sorento-preview/)
+- Nov 16 - [Watch: This 39-Foot Foiling Yacht Takes Its First Flight Across the Water](https://www.yahoo.com/lifestyle/watch-39-foot-foiling-yacht-193000496.html)
 <!-- feed end -->
 
 ### Onstream
