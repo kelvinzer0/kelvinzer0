@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [Far-Right GOP Lawmaker's Question About Republicans Backfires Spectacularly](https://news.yahoo.com/far-gop-lawmakers-republicans-backfires-044243121.html)
+- Nov 16 - [Los Angeles criticized for its handling of homelessness after 16 homeless people escape freeway fire](https://news.yahoo.com/los-angeles-criticized-handling-homelessness-052014400.html)
 - Nov 16 - [Taiwan presidential frontrunner taps high profile US envoy as running mate-sources](https://news.yahoo.com/taiwan-presidential-frontrunner-taps-high-043940653.html)
-- Nov 16 - [Feds seize $1.3 billion in knockoffs from Manhattan storage unit in largest-ever counterfeit bust](https://news.yahoo.com/feds-seize-1-3-billion-035200591.html)
-- Nov 16 - [Xi told Biden Taiwan is biggest, most dangerous issue in bilateral ties -US official](https://news.yahoo.com/xi-told-biden-taiwan-biggest-002148100.html)
-- Nov 15 - [Osama bin Laden’s ‘Letter to America’ Goes Viral 21 Years Later — on TikTok](https://www.yahoo.com/entertainment/osama-bin-laden-letter-america-235848603.html)
+- Nov 16 - [Philippines rejects China's call for prior notice on resupply missions](https://news.yahoo.com/philippines-calls-china-remove-illegal-040354432.html)
+- Nov 16 - ['Execution style:' Dog found shot in head with mouth duct taped rescued from Washington woods](https://news.yahoo.com/execution-style-dog-found-shot-010733009.html)
+- Nov 16 - [Sighting of mysterious animal in the Phoenix Mountain Preserve leaves officials puzzled](https://news.yahoo.com/sighting-mysterious-animal-phoenix-mountain-005030585.html)
 <!-- feed end -->
 
 ### Onstream
