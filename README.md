@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 16 - [Finland to close 4 border crossing points after accusing Russia of organizing flow of migrants](https://news.yahoo.com/finland-close-4-border-crossing-135315111.html)
+- Nov 16 - [Palestinian gunmen shot dead on way to ‘massacre in Israel’](https://news.yahoo.com/palestinian-gunmen-shot-dead-way-134542287.html)
+- Nov 16 - [Jimmy Kimmel Explains How Trump Differs From Nazis: ‘Hitler Was Married to a Woman Who Loved Him’ (Video)](https://www.yahoo.com/entertainment/jimmy-kimmel-explains-trump-differs-133000227.html)
+- Nov 16 - [Jury convictions of Bannon and Navarro for refusing congressional subpoena may energize lawmakers' ability to hold powerful people accountable](https://news.yahoo.com/jury-convictions-bannon-navarro-refusing-131907018.html)
 - Nov 16 - [With mapping robots and blast gel, Israel wages war on Hamas tunnels](https://news.yahoo.com/mapping-robots-blast-gel-israel-130657979.html)
-- Nov 16 - [Donald Trump Insults Kim Kardashian In A Way That May Actually Hurt](https://news.yahoo.com/donald-trump-insults-kim-kardashian-123430278.html)
-- Nov 16 - [Feds want speed reduction tech in every new car. Are American drivers ready?](https://news.yahoo.com/feds-want-speed-reduction-tech-121541145.html)
-- Nov 16 - [‘Sell your stinkin' house': Dave Ramsey says this 'stupid' housing trend is getting out of control and could leave you without a home — are you doing it, too?](https://finance.yahoo.com/news/sell-stinkin-house-dave-ramsey-120000403.html)
-- Nov 16 - [An American Airlines passenger is ordered to pay $40,000 to the airline for disrupting and diverting a flight](https://news.yahoo.com/american-airlines-passenger-ordered-pay-111627875.html)
 <!-- feed end -->
 
 ### Onstream
