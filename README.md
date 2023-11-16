@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [US issues sanctions to limit Russian influence in Balkans](https://news.yahoo.com/us-issues-sanctions-limit-russian-165637456.html)
-- Nov 16 - [Freshman Rep. George Santos Will Not Seek Reelection Following Release of Bombshell House Ethics Report](https://www.yahoo.com/entertainment/freshman-rep-george-santos-not-165506850.html)
+- Nov 16 - [Don’t let their reputation fool you – bungalows are making a comeback](https://news.yahoo.com/don-t-let-reputation-fool-180000453.html)
+- Nov 16 - [Man secretly records partner during sex, then texts video to friend, CA officials say](https://news.yahoo.com/man-secretly-records-partner-during-174550098.html)
+- Nov 16 - [The all-electric Lucid Gravity SUV finally makes its debut with 440 miles of range](https://news.yahoo.com/electric-lucid-gravity-suv-finally-170952159.html)
 - Nov 16 - [Ask an Advisor: Can a Nursing Home ‘Take Our IRA?' My Wife and I Are Elderly. We Have a $100K IRA and a Trust to Protect Our Assets.](https://finance.yahoo.com/news/ask-advisor-nursing-home-ira-140442815.html)
-- Nov 16 - [Long-lost $26 million masterpiece found in kitchen heads to the Louvre after 4-year campaign](https://www.yahoo.com/lifestyle/long-lost-26-million-masterpiece-124310565.html)
-- Nov 16 - [Iowa teen sentenced to life in prison for killing his Spanish teacher](https://news.yahoo.com/iowa-teen-sentenced-life-prison-160705511.html)
+- Nov 16 - [Apple teases Black Friday offers, but there are better deals](https://finance.yahoo.com/news/apple-teases-black-friday-offers-161318193.html)
 <!-- feed end -->
 
 ### Onstream
