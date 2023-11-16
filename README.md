@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 16 - [Woman travels to New Mexico for abortion care not offered to her in Texas, joins suit](https://www.yahoo.com/gma/woman-travels-mexico-abortion-care-012037311.html)
+- Nov 16 - [The gender gap in life expectancy is widening — in women's favor. Here are 5 reasons why.](https://www.yahoo.com/lifestyle/gender-gap-life-expectancy-005429038.html)
+- Nov 16 - [Sighting of mysterious animal in the Phoenix Mountain Preserve leaves officials puzzled](https://news.yahoo.com/sighting-mysterious-animal-phoenix-mountain-005030585.html)
+- Nov 16 - [Xi told Biden Taiwan is biggest, most dangerous issue in bilateral ties -US official](https://news.yahoo.com/xi-told-biden-taiwan-biggest-002148100.html)
 - Nov 16 - ['Why should you get to eat in peace?': Canadians slam Trudeau's Gaza stance after protesters swarm him in restaurant](https://news.yahoo.com/canadians-slam-trudeau-gaza-protesters-swarm-vancouver-001503197.html)
-- Nov 16 - [Salem Hospital alerts hundreds to possible exposure to HIV, hepatitis infections](https://news.yahoo.com/salem-hospital-alerts-hundreds-possible-223423191.html)
-- Nov 15 - [Dashcam video shows crash that led to fuel tanker rollover that has Route 3 in Billerica shut down](https://news.yahoo.com/route-3-billerica-closed-wreck-153853268.html)
-- Nov 15 - [Sen. Joe Manchin says Donald Trump would destroy US democracy if he wins second term as president](https://news.yahoo.com/sen-joe-manchin-says-donald-230206676.html)
-- Nov 15 - [Kari Lake ‘drove a stake’ through the heart of McCain Republicans. Now she wants a meeting.](https://news.yahoo.com/kari-lake-drove-stake-heart-230144147.html)
 <!-- feed end -->
 
 ### Onstream
