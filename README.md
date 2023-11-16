@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 16 - [Days before its sale, my once beautiful property was destroyed](https://news.yahoo.com/days-sale-once-beautiful-property-100000493.html)
-- Nov 16 - [Zelensky meets new UK Foreign Secretary David Cameron](https://news.yahoo.com/zelensky-meets-uk-foreign-secretary-093029368.html)
-- Nov 16 - [Dwayne Johnson Showed Up At The Capitol And You Already Know What People Said](https://www.yahoo.com/entertainment/dwayne-johnson-showed-capitol-already-090744355.html)
-- Nov 16 - [David Cameron Meets Zelensky in First Trip Since Surprise Return to Politics](https://news.yahoo.com/david-cameron-meets-zelensky-first-083050758.html)
+- Nov 16 - [The Car of the Year Isn’t a Tesla. But It Is Electric.](https://www.barrons.com/articles/toyota-prius-motortrend-2024-car-of-the-year-cd82288b?siteid=yhoof2&yptr=yahoo)
+- Nov 16 - [Social Security Changes Are Coming in 2024: Here's the Good and the Bad](https://www.fool.com/retirement/2023/11/16/social-security-changes-are-coming-in-2024-heres-t/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Nov 16 - [Safari officials issue warning after disturbing find during autopsy of dead wildebeest: ‘[It’s] truly disgusting’](https://news.yahoo.com/safari-officials-issue-warning-disturbing-073000984.html)
+- Nov 16 - [Texas inmate faces execution for 2001 abduction and strangulation of 5-year-old girl](https://news.yahoo.com/texas-inmate-faces-execution-2001-052950098.html)
+- Nov 16 - [Far-Right GOP Lawmaker's Question About Republicans Backfires Spectacularly](https://news.yahoo.com/far-gop-lawmakers-republicans-backfires-044243121.html)
 <!-- feed end -->
 
 ### Onstream
