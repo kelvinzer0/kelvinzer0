@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Brigitte Macron: I thought 15-year-old Emmanuel would fall in love with someone his own age](https://news.yahoo.com/brigitte-macron-thought-emmanuel-fall-104547682.html)
-- Nov 17 - [Hamas Terrorist Who Paraded Shani Louk’s Body in Gaza Is Dead, Mother Says](https://news.yahoo.com/hamas-terrorist-paraded-shani-louk-164212802.html)
+- Nov 17 - [Trump Gives Away the Game With January 6 Confession in New Recording](https://news.yahoo.com/trump-gives-away-game-january-163538743.html)
 - Nov 17 - ["Wow!": Trump gets schooled after whining that Biden won't face charges over classified docs](https://news.yahoo.com/wow-trump-gets-schooled-whining-161358748.html)
 - Nov 17 - [Ex-Trump Lawyer Jenna Ellis Is Publicly Roasting His Entire Family](https://news.yahoo.com/ex-trump-lawyer-jenna-ellis-155231095.html)
-- Nov 17 - [Honda recalls nearly 250K vehicles because bearing can fail and cause engines to run poorly or stall](https://finance.yahoo.com/news/honda-recalls-nearly-250k-vehicles-154114914.html)
+- Nov 17 - [TikTok doctor explains why you shouldn’t take extremely hot showers](https://news.yahoo.com/tiktok-doctor-explains-why-shouldn-151931314.html)
+- Nov 17 - [Defeated Virginia candidate whose explicit videos surfaced says she may not be done with politics](https://news.yahoo.com/defeated-virginia-candidate-whose-explicit-151457496.html)
 <!-- feed end -->
 
 ### Onstream
