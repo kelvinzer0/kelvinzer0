@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [‘We are the poor people': This couple with 2 young kids has a healthy income of $113,500 — so Ramit Sethi was baffled about why they were 'stuck.' Then it became clear](https://finance.yahoo.com/news/poor-people-couple-2-young-111500914.html)
-- Nov 17 - [The 'resilient consumer' narrative is finally changing](https://finance.yahoo.com/news/the-resilient-consumer-narrative-is-finally-changing-100032598.html)
-- Nov 17 - [Brigitte Macron: I thought Emmanuel would fall in love with someone his own age](https://news.yahoo.com/brigitte-macron-thought-emmanuel-fall-104547682.html)
-- Nov 17 - [Fall River's Battleship Cove had to scrap one of its Navy ships. Here's why they did it.](https://news.yahoo.com/fall-rivers-battleship-cove-had-090132694.html)
+- Nov 17 - [Brigitte Macron: I thought 15-year-old Emmanuel would fall in love with someone his own age](https://news.yahoo.com/brigitte-macron-thought-emmanuel-fall-104547682.html)
+- Nov 17 - [Trump and Aides Immediately Attack Clerk After Gag Order Is Paused](https://news.yahoo.com/trump-aides-immediately-attack-clerk-123925412.html)
+- Nov 17 - [Russia worried about future F-16 supplies to Ukraine and already bracing for it – UK intelligence](https://news.yahoo.com/russia-worried-future-f-16-093044826.html)
 - Nov 17 - [YouTube will now let breastfeeding and twerking videos be monetized](https://news.yahoo.com/youtube-will-now-let-breastfeeding-and-twerking-videos-be-monetized-084535300.html)
+- Nov 17 - [Yet another former Silicon Valley darling is convicted of investor fraud](https://news.yahoo.com/yet-another-former-silicon-valley-061505662.html)
 <!-- feed end -->
 
 ### Onstream
