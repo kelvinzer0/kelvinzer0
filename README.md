@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Police Believe a 'Ticketed Passenger' Abandoned Dog Found Tied to a Pole at Pittsburgh Airport](https://www.yahoo.com/entertainment/police-believe-ticketed-passenger-abandoned-215622765.html)
+- Nov 17 - ['Multiple victims' in New Hampshire psychiatric hospital shooting](https://news.yahoo.com/multiple-people-injured-hampshire-hospital-214445771.html)
 - Nov 17 - [Sharon Osbourne reveals she weighs less than 100 lbs. after Ozempic. Why dropping too much weight is a legitimate concern.](https://www.yahoo.com/lifestyle/sharon-osbourne-weighs-under-100-pounds-ozempic-dropping-too-much-weight-is-legitimate-concern-203057450.html)
+- Nov 17 - [Hunter Shoots Huge Black Bear, Finds 8-Point Buck Underneath It](https://www.yahoo.com/lifestyle/hunter-shoots-huge-black-bear-213000522.html)
+- Nov 17 - [Texas Faces Threat of Blackouts After Grid Fails to Secure New Power Supply](https://finance.yahoo.com/news/texas-faces-threat-blackouts-grid-211613367.html)
 - Nov 17 - [South African Company Transforms Classic VW Beetles into LS-Powered Marvels](https://news.yahoo.com/south-african-company-transforms-classic-211555697.html)
-- Nov 17 - [OpenAI CEO Sam Altman ousted as 'board no longer has confidence' in his leadership](https://news.yahoo.com/openai-ceo-sam-altman-ousted-as-board-no-longer-has-confidence-in-his-leadership-204924006.html)
-- Nov 17 - [Donald Trump loses bid for mistrial in New York civil fraud case](https://news.yahoo.com/donald-trump-loses-bid-mistrial-203425249.html)
 <!-- feed end -->
 
 ### Onstream
