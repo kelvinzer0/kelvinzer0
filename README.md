@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 17 - [Donald Trump Posts Tirade Against Judge, Court Clerk Hours After Gag Order Paused](https://news.yahoo.com/donald-trump-posts-tirade-against-023841178.html)
 - Nov 17 - [Israel 'not successful' in bid to minimize Gaza civilian casualties, Netanyahu says](https://news.yahoo.com/israel-not-successful-bid-minimize-005138133.html)
-- Nov 17 - [Stefanik declares ‘victory’ after New York court lifts ‘unconstitutional’ gag order against Trump](https://news.yahoo.com/stefanik-declares-victory-york-court-001928041.html)
-- Nov 16 - [Texas mom demands expulsion of students, says they intentionally exposed allergic son to peanut products](https://news.yahoo.com/texas-mom-demands-expulsion-students-231106469.html)
+- Nov 17 - [Just-divorced former Idaho high school teacher allegedly had sex with teenage designated driver: police](https://news.yahoo.com/just-divorced-former-idaho-high-001520978.html)
 - Nov 16 - [Wisconsin Bowhunter Kills Cougar in Self Defense: “I Felt Like the Only Option I Had Was to Shoot”](https://www.yahoo.com/lifestyle/wisconsin-bowhunter-kills-cougar-self-224133288.html)
 - Nov 16 - [California family sues sheriff's office after deputy kidnapped girl, killed her mother, grandparents](https://news.yahoo.com/california-family-sues-sheriffs-office-224115172.html)
 <!-- feed end -->
