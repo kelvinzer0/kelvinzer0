@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Backlash builds after Elon Musk called an antisemitic conspiracy theory the 'actual truth'](https://news.yahoo.com/backlash-builds-elon-musk-called-205557740.html)
-- Nov 17 - [Nikki Haley weighs in on Donald Trump's comments calling his opponents 'vermin'](https://news.yahoo.com/nikki-haley-weighs-donald-trumps-205359083.html)
+- Nov 17 - [Police Believe a 'Ticketed Passenger' Abandoned Dog Found Tied to a Pole at Pittsburgh Airport](https://www.yahoo.com/entertainment/police-believe-ticketed-passenger-abandoned-215622765.html)
+- Nov 17 - [Sharon Osbourne reveals she weighs less than 100 lbs. after Ozempic. Why dropping too much weight is a legitimate concern.](https://www.yahoo.com/lifestyle/sharon-osbourne-weighs-under-100-pounds-ozempic-dropping-too-much-weight-is-legitimate-concern-203057450.html)
+- Nov 17 - [South African Company Transforms Classic VW Beetles into LS-Powered Marvels](https://news.yahoo.com/south-african-company-transforms-classic-211555697.html)
 - Nov 17 - [OpenAI CEO Sam Altman ousted as 'board no longer has confidence' in his leadership](https://news.yahoo.com/openai-ceo-sam-altman-ousted-as-board-no-longer-has-confidence-in-his-leadership-204924006.html)
 - Nov 17 - [Donald Trump loses bid for mistrial in New York civil fraud case](https://news.yahoo.com/donald-trump-loses-bid-mistrial-203425249.html)
-- Nov 17 - [Osama bin Laden, Antisemitism and a Viral Tweet: Why TikTok Is Facing Its Biggest Threat](https://www.wsj.com/tech/tiktok-osama-bin-laden-antisemitism-6580384e?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
