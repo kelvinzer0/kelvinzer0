@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Fox News Co-Host Shreds Jesse Watters' Biden Claim With 1 Stinging Remark](https://news.yahoo.com/fox-news-co-host-shreds-083908900.html)
-- Nov 17 - [Caught on camera: moment bear emerges from den to maul eco-activist](https://news.yahoo.com/bear-mauls-eco-activist-trying-204731520.html)
-- Nov 17 - [Vietnam ramps up South China Sea island expansion, researchers say](https://news.yahoo.com/vietnam-ramps-south-china-sea-050701126.html)
+- Nov 17 - [YouTube will now let breastfeeding and twerking videos be monetized](https://news.yahoo.com/youtube-will-now-let-breastfeeding-and-twerking-videos-be-monetized-084535300.html)
 - Nov 17 - [CNN Airs New Tape of Trump Discussing Capitol Trip on Jan. 6](https://news.yahoo.com/cnn-airs-tape-trump-discussing-033408197.html)
 - Nov 17 - [Authorities warn of dangerous crimes targeting drivers in SoCal](https://news.yahoo.com/authorities-warn-dangerous-crimes-targeting-020234839.html)
+- Nov 17 - [Hundreds Evacuated as Fire Rips Through Warehouse in Mexico City](https://news.yahoo.com/hundreds-evacuated-fire-rips-warehouse-014809800.html)
+- Nov 17 - [George Santos Spent Big Bucks on Designer Luxuries & OnlyFans Porn, Says He’s Done Talking](https://news.yahoo.com/george-santos-spent-big-bucks-005446059.html)
 <!-- feed end -->
 
 ### Onstream
