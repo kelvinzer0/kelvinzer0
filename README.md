@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Rhode Drops New Shimmery, "Jelly Bean" Peptide Lip Tint](https://www.yahoo.com/lifestyle/rhode-drops-shimmery-jelly-bean-181516143.html)
-- Nov 17 - [Watch Blinken's Grimacing Reaction to Biden Calling President Xi a 'Dictator'](https://news.yahoo.com/watch-blinkens-grimacing-reaction-biden-142909307.html)
+- Nov 17 - [Former GOP House member's wife said Sen. Markwayne Mullin put his finger in the noses of sleeping members of Congress and their spouses on a trip to Israel](https://news.yahoo.com/former-gop-house-members-wife-153404486.html)
+- Nov 17 - [TikTok doctor explains why you shouldn’t take extremely hot showers](https://news.yahoo.com/tiktok-doctor-explains-why-shouldn-151931314.html)
 - Nov 17 - [Muslim rescuer says Israel kibbutz bloodshed caused by attackers' hate](https://news.yahoo.com/muslim-rescuer-says-israel-kibbutz-142237353.html)
-- Nov 17 - [Legal experts question Judge Cannon’s "ability to serve” over “caginess” in new order](https://news.yahoo.com/legal-experts-judge-cannon-ability-135752987.html)
-- Nov 17 - [Brigitte Macron: I thought 15-year-old Emmanuel would fall in love with someone his own age](https://news.yahoo.com/brigitte-macron-thought-emmanuel-fall-104547682.html)
+- Nov 17 - [Instant fund transfers on mobile phones now possible between Singapore and Malaysia](https://news.yahoo.com/instant-fund-transfers-on-mobile-phones-now-possible-between-singapore-and-malaysia-134622814.html)
+- Nov 17 - [Do you risk catching a cold when you go out with wet hair? Kate Moss says it's a 'rule'](https://news.yahoo.com/catch-cold-wet-hair-kate-moss-132505169.html)
 <!-- feed end -->
 
 ### Onstream
