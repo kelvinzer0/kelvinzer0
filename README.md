@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Hong Kong's Roman Catholic cardinal says he dreams of bishops from greater China praying together](https://news.yahoo.com/hong-kongs-roman-catholic-cardinal-140222856.html)
-- Nov 17 - [I Asked Non-Americans To Tell Me What They Thought Of Each US State — They Did NOT Hold Back](https://www.yahoo.com/lifestyle/asked-non-americans-tell-thought-131602218.html)
+- Nov 17 - [Rhode Drops New Shimmery, "Jelly Bean" Peptide Lip Tint](https://www.yahoo.com/lifestyle/rhode-drops-shimmery-jelly-bean-181516143.html)
+- Nov 17 - [Watch Blinken's Grimacing Reaction to Biden Calling President Xi a 'Dictator'](https://news.yahoo.com/watch-blinkens-grimacing-reaction-biden-142909307.html)
+- Nov 17 - [Muslim rescuer says Israel kibbutz bloodshed caused by attackers' hate](https://news.yahoo.com/muslim-rescuer-says-israel-kibbutz-142237353.html)
+- Nov 17 - [Legal experts question Judge Cannon’s "ability to serve” over “caginess” in new order](https://news.yahoo.com/legal-experts-judge-cannon-ability-135752987.html)
 - Nov 17 - [Brigitte Macron: I thought 15-year-old Emmanuel would fall in love with someone his own age](https://news.yahoo.com/brigitte-macron-thought-emmanuel-fall-104547682.html)
-- Nov 17 - [Trump and Aides Immediately Attack Clerk After Gag Order Is Paused](https://news.yahoo.com/trump-aides-immediately-attack-clerk-123925412.html)
-- Nov 17 - [Toyota debuts all-hybrid lineup and 'hammerhead' look for 2025 Camry and Crown Signia SUV](https://finance.yahoo.com/news/toyota-debuts-hybrid-lineup-hammerhead-120241736.html)
 <!-- feed end -->
 
 ### Onstream
