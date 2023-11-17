@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 17 - [US Capitol Police Clash With Protesters Calling For Gaza Ceasefire](https://news.yahoo.com/us-capitol-police-clash-protesters-042500414.html)
 - Nov 17 - [CNN Airs New Tape of Trump Discussing Capitol Trip on Jan. 6](https://news.yahoo.com/cnn-airs-tape-trump-discussing-033408197.html)
-- Nov 17 - [Long-lost $26 million masterpiece found in kitchen heads to the Louvre after 4-year campaign](https://www.yahoo.com/lifestyle/long-lost-26-million-masterpiece-124310565.html)
+- Nov 17 - [Newly released audio reveals Trump’s words about January 6 crowd](https://news.yahoo.com/newly-released-audio-reveals-trump-012936127.html)
 - Nov 17 - [Just-divorced former Idaho high school teacher allegedly had sex with teenage designated driver: police](https://news.yahoo.com/just-divorced-former-idaho-high-001520978.html)
-- Nov 16 - [New York City to reduce police numbers, slash budgets due to billions spent on migrant crisis](https://news.yahoo.com/york-city-reduce-police-numbers-234001334.html)
+- Nov 16 - [Ukraine Situation Report: First Person Video Drone Relentlessly Hunts Down A Russian Van](https://news.yahoo.com/ukraine-situation-report-first-person-222731029.html)
 <!-- feed end -->
 
 ### Onstream
