@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Donald Trump Posts Tirade Against Judge, Court Clerk Hours After Gag Order Paused](https://news.yahoo.com/donald-trump-posts-tirade-against-023841178.html)
-- Nov 17 - [Israel 'not successful' in bid to minimize Gaza civilian casualties, Netanyahu says](https://news.yahoo.com/israel-not-successful-bid-minimize-005138133.html)
+- Nov 17 - [Chris Hayes Compares Elon Musk to Henry Ford After Latest ‘Shocking and Repellent’ Antisemitic Comments](https://www.yahoo.com/entertainment/chris-hayes-compares-elon-musk-040025078.html)
+- Nov 17 - [CNN Airs New Tape of Trump Discussing Capitol Trip on Jan. 6](https://news.yahoo.com/cnn-airs-tape-trump-discussing-033408197.html)
+- Nov 17 - [Fallout From Musk’s Endorsement of Antisemitic Post Spreads](https://finance.yahoo.com/news/fallout-musk-endorsement-antisemitic-post-032248266.html)
 - Nov 17 - [Just-divorced former Idaho high school teacher allegedly had sex with teenage designated driver: police](https://news.yahoo.com/just-divorced-former-idaho-high-001520978.html)
-- Nov 16 - [Wisconsin Bowhunter Kills Cougar in Self Defense: “I Felt Like the Only Option I Had Was to Shoot”](https://www.yahoo.com/lifestyle/wisconsin-bowhunter-kills-cougar-self-224133288.html)
-- Nov 16 - [California family sues sheriff's office after deputy kidnapped girl, killed her mother, grandparents](https://news.yahoo.com/california-family-sues-sheriffs-office-224115172.html)
+- Nov 16 - [New York City to reduce police numbers, slash budgets due to billions spent on migrant crisis](https://news.yahoo.com/york-city-reduce-police-numbers-234001334.html)
 <!-- feed end -->
 
 ### Onstream
