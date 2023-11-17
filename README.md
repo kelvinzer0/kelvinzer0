@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [YouTube will now let breastfeeding and twerking videos be monetized](https://news.yahoo.com/youtube-will-now-let-breastfeeding-and-twerking-videos-be-monetized-084535300.html)
+- Nov 17 - [Vietnam ramps up South China Sea island expansion, researchers say](https://news.yahoo.com/vietnam-ramps-south-china-sea-050701126.html)
 - Nov 17 - [CNN Airs New Tape of Trump Discussing Capitol Trip on Jan. 6](https://news.yahoo.com/cnn-airs-tape-trump-discussing-033408197.html)
-- Nov 17 - [Authorities warn of dangerous crimes targeting drivers in SoCal](https://news.yahoo.com/authorities-warn-dangerous-crimes-targeting-020234839.html)
 - Nov 17 - [Hundreds Evacuated as Fire Rips Through Warehouse in Mexico City](https://news.yahoo.com/hundreds-evacuated-fire-rips-warehouse-014809800.html)
-- Nov 17 - [George Santos Spent Big Bucks on Designer Luxuries & OnlyFans Porn, Says He’s Done Talking](https://news.yahoo.com/george-santos-spent-big-bucks-005446059.html)
+- Nov 17 - [Just-divorced former Idaho high school teacher allegedly had sex with teenage designated driver: police](https://news.yahoo.com/just-divorced-former-idaho-high-001520978.html)
+- Nov 16 - [New York City to reduce police numbers, slash budgets due to billions spent on migrant crisis](https://news.yahoo.com/york-city-reduce-police-numbers-234001334.html)
 <!-- feed end -->
 
 ### Onstream
