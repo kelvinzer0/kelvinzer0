@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Former GOP House member's wife said Sen. Markwayne Mullin put his finger in the noses of sleeping members of Congress and their spouses on a trip to Israel](https://news.yahoo.com/former-gop-house-members-wife-153404486.html)
-- Nov 17 - [TikTok doctor explains why you shouldn’t take extremely hot showers](https://news.yahoo.com/tiktok-doctor-explains-why-shouldn-151931314.html)
-- Nov 17 - [Muslim rescuer says Israel kibbutz bloodshed caused by attackers' hate](https://news.yahoo.com/muslim-rescuer-says-israel-kibbutz-142237353.html)
-- Nov 17 - [Instant fund transfers on mobile phones now possible between Singapore and Malaysia](https://news.yahoo.com/instant-fund-transfers-on-mobile-phones-now-possible-between-singapore-and-malaysia-134622814.html)
-- Nov 17 - [Do you risk catching a cold when you go out with wet hair? Kate Moss says it's a 'rule'](https://news.yahoo.com/catch-cold-wet-hair-kate-moss-132505169.html)
+- Nov 17 - [Brigitte Macron: I thought 15-year-old Emmanuel would fall in love with someone his own age](https://news.yahoo.com/brigitte-macron-thought-emmanuel-fall-104547682.html)
+- Nov 17 - [Hamas Terrorist Who Paraded Shani Louk’s Body in Gaza Is Dead, Mother Says](https://news.yahoo.com/hamas-terrorist-paraded-shani-louk-164212802.html)
+- Nov 17 - ["Wow!": Trump gets schooled after whining that Biden won't face charges over classified docs](https://news.yahoo.com/wow-trump-gets-schooled-whining-161358748.html)
+- Nov 17 - [Ex-Trump Lawyer Jenna Ellis Is Publicly Roasting His Entire Family](https://news.yahoo.com/ex-trump-lawyer-jenna-ellis-155231095.html)
+- Nov 17 - [Honda recalls nearly 250K vehicles because bearing can fail and cause engines to run poorly or stall](https://finance.yahoo.com/news/honda-recalls-nearly-250k-vehicles-154114914.html)
 <!-- feed end -->
 
 ### Onstream
