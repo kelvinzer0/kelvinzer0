@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 17 - [Hong Kong's Roman Catholic cardinal says he dreams of bishops from greater China praying together](https://news.yahoo.com/hong-kongs-roman-catholic-cardinal-140222856.html)
+- Nov 17 - [I Asked Non-Americans To Tell Me What They Thought Of Each US State — They Did NOT Hold Back](https://www.yahoo.com/lifestyle/asked-non-americans-tell-thought-131602218.html)
 - Nov 17 - [Brigitte Macron: I thought 15-year-old Emmanuel would fall in love with someone his own age](https://news.yahoo.com/brigitte-macron-thought-emmanuel-fall-104547682.html)
 - Nov 17 - [Trump and Aides Immediately Attack Clerk After Gag Order Is Paused](https://news.yahoo.com/trump-aides-immediately-attack-clerk-123925412.html)
-- Nov 17 - [Russia worried about future F-16 supplies to Ukraine and already bracing for it – UK intelligence](https://news.yahoo.com/russia-worried-future-f-16-093044826.html)
-- Nov 17 - [YouTube will now let breastfeeding and twerking videos be monetized](https://news.yahoo.com/youtube-will-now-let-breastfeeding-and-twerking-videos-be-monetized-084535300.html)
-- Nov 17 - [Yet another former Silicon Valley darling is convicted of investor fraud](https://news.yahoo.com/yet-another-former-silicon-valley-061505662.html)
+- Nov 17 - [Toyota debuts all-hybrid lineup and 'hammerhead' look for 2025 Camry and Crown Signia SUV](https://finance.yahoo.com/news/toyota-debuts-hybrid-lineup-hammerhead-120241736.html)
 <!-- feed end -->
 
 ### Onstream
