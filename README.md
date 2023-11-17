@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Expert admits his "optimism has proved flawed" as Trump case falls "four months behind" under Cannon](https://news.yahoo.com/expert-admits-optimism-proved-flawed-191034888.html)
-- Nov 17 - [Apple Black Friday deals include up to $200 off the M3-powered MacBook Pros](https://news.yahoo.com/apple-m3-macbook-pros-are-up-to-200-off-for-black-friday-175043898.html)
-- Nov 17 - [The flu is soaring in seven US states and rising in others, health officials say](https://news.yahoo.com/flu-soaring-seven-us-states-172409520.html)
-- Nov 17 - [Brigitte Macron: I thought 15-year-old Emmanuel would fall in love with someone his own age](https://news.yahoo.com/brigitte-macron-thought-emmanuel-fall-104547682.html)
-- Nov 17 - [Sayreville strip club was a multimillion-dollar family-run prostitution ring, AG alleges](https://news.yahoo.com/sayreville-strip-club-multimillion-dollar-163715884.html)
+- Nov 17 - [Backlash builds after Elon Musk called an antisemitic conspiracy theory the 'actual truth'](https://news.yahoo.com/backlash-builds-elon-musk-called-205557740.html)
+- Nov 17 - [Nikki Haley weighs in on Donald Trump's comments calling his opponents 'vermin'](https://news.yahoo.com/nikki-haley-weighs-donald-trumps-205359083.html)
+- Nov 17 - [OpenAI CEO Sam Altman ousted as 'board no longer has confidence' in his leadership](https://news.yahoo.com/openai-ceo-sam-altman-ousted-as-board-no-longer-has-confidence-in-his-leadership-204924006.html)
+- Nov 17 - [Donald Trump loses bid for mistrial in New York civil fraud case](https://news.yahoo.com/donald-trump-loses-bid-mistrial-203425249.html)
+- Nov 17 - [Osama bin Laden, Antisemitism and a Viral Tweet: Why TikTok Is Facing Its Biggest Threat](https://www.wsj.com/tech/tiktok-osama-bin-laden-antisemitism-6580384e?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
