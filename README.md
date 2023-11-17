@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - [Trump Gives Away the Game With January 6 Confession in New Recording](https://news.yahoo.com/trump-gives-away-game-january-163538743.html)
-- Nov 17 - ["Wow!": Trump gets schooled after whining that Biden won't face charges over classified docs](https://news.yahoo.com/wow-trump-gets-schooled-whining-161358748.html)
-- Nov 17 - [Ex-Trump Lawyer Jenna Ellis Is Publicly Roasting His Entire Family](https://news.yahoo.com/ex-trump-lawyer-jenna-ellis-155231095.html)
-- Nov 17 - [TikTok doctor explains why you shouldn’t take extremely hot showers](https://news.yahoo.com/tiktok-doctor-explains-why-shouldn-151931314.html)
-- Nov 17 - [Defeated Virginia candidate whose explicit videos surfaced says she may not be done with politics](https://news.yahoo.com/defeated-virginia-candidate-whose-explicit-151457496.html)
+- Nov 17 - [Apple Black Friday deals include up to $200 off the M3-powered MacBook Pros](https://news.yahoo.com/apple-m3-macbook-pros-are-up-to-200-off-for-black-friday-175043898.html)
+- Nov 17 - [Trump’s Own Witness in Fraud Trial Admits He Knows Nothing About Finances](https://news.yahoo.com/trump-own-witness-fraud-trial-174001911.html)
+- Nov 17 - [Teenager who killed army veteran, 82, with single punch given two years youth detention](https://news.yahoo.com/teenager-killed-army-veteran-82-163039652.html)
+- Nov 17 - [The flu is soaring in seven US states and rising in others, health officials say](https://news.yahoo.com/flu-soaring-seven-us-states-172409520.html)
+- Nov 17 - [Brigitte Macron: I thought 15-year-old Emmanuel would fall in love with someone his own age](https://news.yahoo.com/brigitte-macron-thought-emmanuel-fall-104547682.html)
 <!-- feed end -->
 
 ### Onstream
