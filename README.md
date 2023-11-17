@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 17 - [Fox News Co-Host Shreds Jesse Watters' Biden Claim With 1 Stinging Remark](https://news.yahoo.com/fox-news-co-host-shreds-083908900.html)
+- Nov 17 - [Caught on camera: moment bear emerges from den to maul eco-activist](https://news.yahoo.com/bear-mauls-eco-activist-trying-204731520.html)
 - Nov 17 - [Vietnam ramps up South China Sea island expansion, researchers say](https://news.yahoo.com/vietnam-ramps-south-china-sea-050701126.html)
 - Nov 17 - [CNN Airs New Tape of Trump Discussing Capitol Trip on Jan. 6](https://news.yahoo.com/cnn-airs-tape-trump-discussing-033408197.html)
-- Nov 17 - [Just-divorced former Idaho high school teacher allegedly had sex with teenage designated driver: police](https://news.yahoo.com/just-divorced-former-idaho-high-001520978.html)
-- Nov 16 - [California family sues sheriff's office after deputy kidnapped girl, killed her mother, grandparents](https://news.yahoo.com/california-family-sues-sheriffs-office-224115172.html)
-- Nov 16 - [Rogue rocket that slammed into the moon last year confirmed to be Chinese vehicle](https://news.yahoo.com/rogue-rocket-slammed-moon-last-215957409.html)
+- Nov 17 - [Authorities warn of dangerous crimes targeting drivers in SoCal](https://news.yahoo.com/authorities-warn-dangerous-crimes-targeting-020234839.html)
 <!-- feed end -->
 
 ### Onstream
