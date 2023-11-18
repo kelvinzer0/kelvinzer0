@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Man arrested in disappearance of Washington couple who are believed to be dead](https://news.yahoo.com/man-arrested-disappearance-washington-couple-075031070.html)
-- Nov 18 - [Sailors playing heavy metal to scare killer whales may be putting a target on their backs by telling the orcas exactly where to find them](https://news.yahoo.com/sailors-playing-heavy-metal-scare-064850931.html)
-- Nov 18 - [Victim, raped repeatedly by her uncle at 14 years old, terrified by his impending parole 29 years later](https://news.yahoo.com/victim-raped-repeatedly-her-uncle-030443925.html)
-- Nov 18 - [Brother-in-law of Stacey Abrams, federal judge’s husband charged with human trafficking](https://news.yahoo.com/brother-law-stacey-abrams-federal-022654665.html)
+- Nov 18 - [Elon Musk Calls Advertisers ‘Oppressors’ of ‘Free Speech’ After Exodus Following Antisemitic Tweets](https://www.yahoo.com/entertainment/elon-musk-calls-advertisers-oppressors-050350791.html)
+- Nov 18 - [Fan footage shows up-close look at major feature of elusive Tesla Cybertruck: ‘Sounds like a roller coaster’](https://news.yahoo.com/fan-footage-shows-close-look-050000362.html)
+- Nov 18 - [Orange County nanny faces over 705 years in prison for molesting 16 boys](https://news.yahoo.com/orange-county-nanny-faces-over-033530010.html)
 - Nov 18 - [PSA: ‘Harmless’ social media pranks aren’t always harmless—mom hospitalized after teen boys played a ‘prank’ on her at Target](https://www.yahoo.com/lifestyle/psa-harmless-social-media-pranks-005500022.html)
+- Nov 18 - [Colorado judge finds Trump engaged in 'insurrection' but allows him on ballot](https://news.yahoo.com/colorado-judge-allows-trump-primary-002823400.html)
 <!-- feed end -->
 
 ### Onstream
