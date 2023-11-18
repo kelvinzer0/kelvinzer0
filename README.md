@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 18 - [Brother-in-law of Stacey Abrams, federal judge’s husband charged with human trafficking](https://news.yahoo.com/brother-law-stacey-abrams-federal-022654665.html)
 - Nov 18 - [PSA: ‘Harmless’ social media pranks aren’t always harmless—mom hospitalized after teen boys played a ‘prank’ on her at Target](https://www.yahoo.com/lifestyle/psa-harmless-social-media-pranks-005500022.html)
 - Nov 18 - [Colorado judge finds Trump engaged in 'insurrection' but allows him on ballot](https://news.yahoo.com/colorado-judge-allows-trump-primary-002823400.html)
 - Nov 18 - [WTF is going on at OpenAI? We have theories](https://news.yahoo.com/wtf-going-openai-theories-000953255.html)
-- Nov 17 - [Ron Jeremy to be released to 'private residence' with rape case frozen and health deteriorating](https://news.yahoo.com/ron-jeremy-released-private-residence-235409644.html)
-- Nov 17 - [Convicted rapist to be released decades early from 170-year sentence](https://news.yahoo.com/convicted-rapist-released-decades-early-233656719.html)
+- Nov 17 - [Sen. Mitt Romney’s bill to tackle $33 trillion in national debt earns bipartisan support](https://news.yahoo.com/sen-mitt-romney-bill-tackle-235718114.html)
 <!-- feed end -->
 
 ### Onstream
