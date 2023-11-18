@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Where Will Apple Stock Be in 3 Years?](https://www.fool.com/investing/2023/11/18/where-will-apple-stock-be-in-3-years/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 18 - [Warren Buffett Says Poor People Waste Money On These 12 Things](https://finance.yahoo.com/news/warren-buffett-12-things-poor-143028989.html)
 - Nov 18 - [Meteorologists Just Released Snowfall Predictions For This Winter—Here’s Where Flakes Are Most Likely to Fly](https://www.yahoo.com/lifestyle/meteorologists-just-released-snowfall-predictions-150000911.html)
 - Nov 18 - [Argentine presidential candidate Milei goes to the opera — and meets both jeers and cheers](https://news.yahoo.com/argentine-presidential-candidate-milei-goes-144019945.html)
-- Nov 18 - [Kevin O’Leary: Once You Have This Much in The Bank You Can Start Taking On More Financial Risks](https://finance.yahoo.com/news/shark-tank-star-kevin-o-154841031.html)
 - Nov 18 - [How retirees can safely withdraw more from savings — and not run out of money](https://finance.yahoo.com/news/how-retirees-can-safely-withdraw-more-from-savings--and-not-run-out-of-money-132836688.html)
+- Nov 18 - [UPDATE 5-SpaceX Starship launch failed minutes after reaching space](https://finance.yahoo.com/news/1-spacex-starship-launched-test-130400093.html)
 <!-- feed end -->
 
 ### Onstream
