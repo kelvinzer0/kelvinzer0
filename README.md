@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 18 - [What Donald Trump’s Presidency Meant for Your Wallet — And How It Could Change If He Wins Again](https://finance.yahoo.com/news/donald-trump-presidency-meant-wallet-120039454.html)
+- Nov 18 - [This Is One of the Worst Stock Market Mistakes You Could Make Right Now](https://www.fool.com/investing/2023/11/18/worst-stock-market-mistake-you-could-make-now/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Nov 18 - [A woman lost 50 pounds and has kept it off for 7 years by following the 80/20 principle and walking](https://www.yahoo.com/lifestyle/woman-lost-50-pounds-kept-100701414.html)
 - Nov 18 - [Chuck Schumer wants to end the federal prohibition on weed: ‘The people are on our side’](https://news.yahoo.com/chuck-schumer-federal-prohibition-weed-cannabis-al-harrington-legal-100029027.html)
-- Nov 18 - [Elon Musk says X to file 'thermonuclear' lawsuit against media watchdog](https://news.yahoo.com/x-corp-file-lawsuit-against-080625162.html)
-- Nov 18 - [Fan footage shows up-close look at major feature of elusive Tesla Cybertruck: ‘Sounds like a roller coaster’](https://news.yahoo.com/fan-footage-shows-close-look-050000362.html)
-- Nov 18 - [Brother-in-law of Stacey Abrams, federal judge’s husband charged with human trafficking](https://news.yahoo.com/brother-law-stacey-abrams-federal-022654665.html)
+- Nov 18 - [Murder suspect busted in police station after incriminating himself when detectives left room: cops](https://news.yahoo.com/murder-suspect-busted-police-station-090043696.html)
 <!-- feed end -->
 
 ### Onstream
