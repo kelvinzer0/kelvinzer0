@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Nov 18 - [The hefty commissions home sellers pay to real estate agents may soon disappear](https://finance.yahoo.com/news/the-hefty-commissions-home-sellers-pay-to-real-estate-agents-may-soon-disappear-171508172.html)
 - Nov 18 - [Ukrainian drone destroys Russia’s $3 million Solntspek flamethrower system in Kherson Oblast – video](https://news.yahoo.com/ukrainian-drone-destroys-russia-3-165700435.html)
 - Nov 18 - [Record for world's priciest bottle of whisky smashed at London auction](https://news.yahoo.com/record-worlds-priciest-bottle-whisky-165043158.html)
-- Nov 18 - [‘Simply incorrect’: Judge Luttig and Tribe react to Judge’s decision to reject Trump 14th Amendment challenge](https://news.yahoo.com/simply-incorrect-judge-luttig-tribe-160354633.html)
 - Nov 18 - [Warren Buffett Says Poor People Waste Money On These 12 Things](https://finance.yahoo.com/news/warren-buffett-12-things-poor-143028989.html)
+- Nov 18 - [UPDATE 6-SpaceX Starship launch failed minutes after reaching space](https://finance.yahoo.com/news/1-spacex-starship-launched-test-130400093.html)
 <!-- feed end -->
 
 ### Onstream
