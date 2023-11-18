@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [What Donald Trump’s Presidency Meant for Your Wallet — And How It Could Change If He Wins Again](https://finance.yahoo.com/news/donald-trump-presidency-meant-wallet-120039454.html)
-- Nov 18 - [This Is One of the Worst Stock Market Mistakes You Could Make Right Now](https://www.fool.com/investing/2023/11/18/worst-stock-market-mistake-you-could-make-now/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 18 - [Thousands march for release of Hamas hostages](https://news.yahoo.com/thousands-march-release-hamas-hostages-124719422.html)
+- Nov 18 - [Watch SpaceX's Starship lift off for its second fully integrated test flight](https://news.yahoo.com/watch-spacexs-starship-lift-off-for-its-second-fully-integrated-test-flight-121559318.html)
+- Nov 18 - ['I don't have a lot of cash': Billionaire Ron Baron says the US pays for its wars, pandemics by 'making your money worth less' — and he's never owned a bond because of that. Do you agree?](https://finance.yahoo.com/news/dont-lot-cash-billionaire-ron-113000926.html)
 - Nov 18 - [A woman lost 50 pounds and has kept it off for 7 years by following the 80/20 principle and walking](https://www.yahoo.com/lifestyle/woman-lost-50-pounds-kept-100701414.html)
 - Nov 18 - [Chuck Schumer wants to end the federal prohibition on weed: ‘The people are on our side’](https://news.yahoo.com/chuck-schumer-federal-prohibition-weed-cannabis-al-harrington-legal-100029027.html)
-- Nov 18 - [Murder suspect busted in police station after incriminating himself when detectives left room: cops](https://news.yahoo.com/murder-suspect-busted-police-station-090043696.html)
 <!-- feed end -->
 
 ### Onstream
