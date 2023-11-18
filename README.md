@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Brother-in-law of Stacey Abrams, federal judge’s husband charged with human trafficking](https://news.yahoo.com/brother-law-stacey-abrams-federal-022654665.html)
 - Nov 18 - [PSA: ‘Harmless’ social media pranks aren’t always harmless—mom hospitalized after teen boys played a ‘prank’ on her at Target](https://www.yahoo.com/lifestyle/psa-harmless-social-media-pranks-005500022.html)
-- Nov 18 - [Colorado judge finds Trump engaged in 'insurrection' but allows him on ballot](https://news.yahoo.com/colorado-judge-allows-trump-primary-002823400.html)
 - Nov 18 - [WTF is going on at OpenAI? We have theories](https://news.yahoo.com/wtf-going-openai-theories-000953255.html)
 - Nov 17 - [Sen. Mitt Romney’s bill to tackle $33 trillion in national debt earns bipartisan support](https://news.yahoo.com/sen-mitt-romney-bill-tackle-235718114.html)
+- Nov 17 - ['If you’re reading this, I have passed away': Mom, 38, goes viral for last message, final wish](https://news.yahoo.com/reading-passed-away-mom-38-221724078.html)
+- Nov 17 - [Sharon Osbourne reveals she weighs less than 100 lbs. after Ozempic. Why dropping too much weight is a legitimate concern.](https://www.yahoo.com/lifestyle/sharon-osbourne-weighs-under-100-pounds-ozempic-dropping-too-much-weight-is-legitimate-concern-203057450.html)
 <!-- feed end -->
 
 ### Onstream
