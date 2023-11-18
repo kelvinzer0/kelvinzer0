@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 18 - [Argentine presidential candidate Milei goes to the opera — and meets both cheers and jeers](https://news.yahoo.com/argentine-presidential-candidate-milei-goes-144019945.html)
 - Nov 18 - [How retirees can safely withdraw more from savings — and not run out of money](https://finance.yahoo.com/news/how-retirees-can-safely-withdraw-more-from-savings--and-not-run-out-of-money-132836688.html)
-- Nov 18 - [Watch SpaceX's Starship lift off for its second fully integrated test flight](https://news.yahoo.com/watch-spacexs-starship-lift-off-for-its-second-fully-integrated-test-flight-121559318.html)
-- Nov 18 - ['I don't have a lot of cash': Billionaire Ron Baron says the US pays for its wars, pandemics by 'making your money worth less' — and he's never owned a bond because of that. Do you agree?](https://finance.yahoo.com/news/dont-lot-cash-billionaire-ron-113000926.html)
-- Nov 18 - [Scientists issue sobering warning about the invasive species wreaking havoc on our communities: ‘An extremely costly mistake’](https://news.yahoo.com/scientists-issue-sobering-warning-invasive-180000644.html)
-- Nov 18 - [Study uncovers disturbing side effect of using microwaves: ‘[This] should be a wake-up call’](https://news.yahoo.com/study-uncovers-disturbing-side-effect-110000309.html)
+- Nov 18 - [UPDATE 5-SpaceX Starship launch failed minutes after reaching space](https://finance.yahoo.com/news/1-spacex-starship-launched-test-130400093.html)
+- Nov 18 - [Here's why Americans with $1 million don't think they’re wealthy](https://finance.yahoo.com/news/heres-why-americans-with-1-million-dont-think-theyre-wealthy-124012895.html)
+- Nov 18 - [What Donald Trump’s Presidency Meant for Your Wallet — And How It Could Change If He Wins Again](https://finance.yahoo.com/news/donald-trump-presidency-meant-wallet-120039454.html)
 <!-- feed end -->
 
 ### Onstream
