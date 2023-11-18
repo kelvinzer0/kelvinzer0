@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 17 - ['Multiple victims' in New Hampshire psychiatric hospital shooting](https://news.yahoo.com/multiple-people-injured-hampshire-hospital-214445771.html)
+- Nov 18 - [Colorado judge finds Trump engaged in 'insurrection' but allows him on ballot](https://news.yahoo.com/colorado-judge-allows-trump-primary-002823400.html)
+- Nov 17 - [Sen. Mitt Romney’s bill to tackle $33 trillion in national debt earns bipartisan support](https://news.yahoo.com/sen-mitt-romney-bill-tackle-235718114.html)
+- Nov 17 - [Ron Jeremy to be released to 'private residence' with rape case frozen and health deteriorating](https://news.yahoo.com/ron-jeremy-released-private-residence-235409644.html)
 - Nov 17 - [Sharon Osbourne reveals she weighs less than 100 lbs. after Ozempic. Why dropping too much weight is a legitimate concern.](https://www.yahoo.com/lifestyle/sharon-osbourne-weighs-under-100-pounds-ozempic-dropping-too-much-weight-is-legitimate-concern-203057450.html)
-- Nov 17 - [Hunter Shoots Huge Black Bear, Finds 8-Point Buck Underneath It](https://www.yahoo.com/lifestyle/hunter-shoots-huge-black-bear-213000522.html)
-- Nov 17 - [Texas Faces Threat of Blackouts After Grid Fails to Secure New Power Supply](https://finance.yahoo.com/news/texas-faces-threat-blackouts-grid-211613367.html)
-- Nov 17 - [South African Company Transforms Classic VW Beetles into LS-Powered Marvels](https://news.yahoo.com/south-african-company-transforms-classic-211555697.html)
+- Nov 17 - [Republicans begin posting Jan. 6 footage online](https://news.yahoo.com/republicans-begin-posting-jan-6-213832149.html)
 <!-- feed end -->
 
 ### Onstream
