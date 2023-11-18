@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 18 - [PSA: ‘Harmless’ social media pranks aren’t always harmless—mom hospitalized after teen boys played a ‘prank’ on her at Target](https://www.yahoo.com/lifestyle/psa-harmless-social-media-pranks-005500022.html)
 - Nov 18 - [Colorado judge finds Trump engaged in 'insurrection' but allows him on ballot](https://news.yahoo.com/colorado-judge-allows-trump-primary-002823400.html)
 - Nov 17 - [Sen. Mitt Romney’s bill to tackle $33 trillion in national debt earns bipartisan support](https://news.yahoo.com/sen-mitt-romney-bill-tackle-235718114.html)
 - Nov 17 - [Ron Jeremy to be released to 'private residence' with rape case frozen and health deteriorating](https://news.yahoo.com/ron-jeremy-released-private-residence-235409644.html)
-- Nov 17 - [Sharon Osbourne reveals she weighs less than 100 lbs. after Ozempic. Why dropping too much weight is a legitimate concern.](https://www.yahoo.com/lifestyle/sharon-osbourne-weighs-under-100-pounds-ozempic-dropping-too-much-weight-is-legitimate-concern-203057450.html)
-- Nov 17 - [Republicans begin posting Jan. 6 footage online](https://news.yahoo.com/republicans-begin-posting-jan-6-213832149.html)
+- Nov 17 - ['If you’re reading this, I have passed away': Mom, 38, goes viral for last message, final wish](https://news.yahoo.com/reading-passed-away-mom-38-221724078.html)
 <!-- feed end -->
 
 ### Onstream
