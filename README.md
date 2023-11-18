@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Thousands march for release of Hamas hostages](https://news.yahoo.com/thousands-march-release-hamas-hostages-124719422.html)
+- Nov 18 - [How retirees can safely withdraw more from savings — and not run out of money](https://finance.yahoo.com/news/how-retirees-can-safely-withdraw-more-from-savings--and-not-run-out-of-money-132836688.html)
 - Nov 18 - [Watch SpaceX's Starship lift off for its second fully integrated test flight](https://news.yahoo.com/watch-spacexs-starship-lift-off-for-its-second-fully-integrated-test-flight-121559318.html)
 - Nov 18 - ['I don't have a lot of cash': Billionaire Ron Baron says the US pays for its wars, pandemics by 'making your money worth less' — and he's never owned a bond because of that. Do you agree?](https://finance.yahoo.com/news/dont-lot-cash-billionaire-ron-113000926.html)
-- Nov 18 - [A woman lost 50 pounds and has kept it off for 7 years by following the 80/20 principle and walking](https://www.yahoo.com/lifestyle/woman-lost-50-pounds-kept-100701414.html)
-- Nov 18 - [Chuck Schumer wants to end the federal prohibition on weed: ‘The people are on our side’](https://news.yahoo.com/chuck-schumer-federal-prohibition-weed-cannabis-al-harrington-legal-100029027.html)
+- Nov 18 - [Scientists issue sobering warning about the invasive species wreaking havoc on our communities: ‘An extremely costly mistake’](https://news.yahoo.com/scientists-issue-sobering-warning-invasive-180000644.html)
+- Nov 18 - [Study uncovers disturbing side effect of using microwaves: ‘[This] should be a wake-up call’](https://news.yahoo.com/study-uncovers-disturbing-side-effect-110000309.html)
 <!-- feed end -->
 
 ### Onstream
