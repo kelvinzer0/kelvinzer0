@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 18 - [Elon Musk Calls Advertisers ‘Oppressors’ of ‘Free Speech’ After Exodus Following Antisemitic Tweets](https://www.yahoo.com/entertainment/elon-musk-calls-advertisers-oppressors-050350791.html)
+- Nov 18 - [A woman lost 50 pounds and has kept it off for 7 years by following the 80/20 principle and walking](https://www.yahoo.com/lifestyle/woman-lost-50-pounds-kept-100701414.html)
+- Nov 18 - [Chuck Schumer wants to end the federal prohibition on weed: ‘The people are on our side’](https://news.yahoo.com/chuck-schumer-federal-prohibition-weed-cannabis-al-harrington-legal-100029027.html)
+- Nov 18 - [Elon Musk says X to file 'thermonuclear' lawsuit against media watchdog](https://news.yahoo.com/x-corp-file-lawsuit-against-080625162.html)
 - Nov 18 - [Fan footage shows up-close look at major feature of elusive Tesla Cybertruck: ‘Sounds like a roller coaster’](https://news.yahoo.com/fan-footage-shows-close-look-050000362.html)
-- Nov 18 - [Orange County nanny faces over 705 years in prison for molesting 16 boys](https://news.yahoo.com/orange-county-nanny-faces-over-033530010.html)
-- Nov 18 - [PSA: ‘Harmless’ social media pranks aren’t always harmless—mom hospitalized after teen boys played a ‘prank’ on her at Target](https://www.yahoo.com/lifestyle/psa-harmless-social-media-pranks-005500022.html)
-- Nov 18 - [Colorado judge finds Trump engaged in 'insurrection' but allows him on ballot](https://news.yahoo.com/colorado-judge-allows-trump-primary-002823400.html)
+- Nov 18 - [Brother-in-law of Stacey Abrams, federal judge’s husband charged with human trafficking](https://news.yahoo.com/brother-law-stacey-abrams-federal-022654665.html)
 <!-- feed end -->
 
 ### Onstream
