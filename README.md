@@ -62,8 +62,8 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Nov 18 - [Norway scrambles fighter jets to intercept Russian bombers](https://news.yahoo.com/norway-scrambles-fighter-jets-intercept-035757437.html)
 - Nov 18 - [PSA: ‘Harmless’ social media pranks aren’t always harmless—mom hospitalized after teen boys played a ‘prank’ on her at Target](https://www.yahoo.com/lifestyle/psa-harmless-social-media-pranks-005500022.html)
-- Nov 18 - [Sam Altman was raising a VC fund when OpenAI fired him](https://news.yahoo.com/openai-board-fires-sam-altman-204222444.html)
 - Nov 18 - [Colorado judge finds Trump engaged in 'insurrection' but allows him on ballot](https://news.yahoo.com/colorado-judge-allows-trump-primary-002823400.html)
+- Nov 18 - [WTF is going on at OpenAI? We have theories](https://news.yahoo.com/wtf-going-openai-theories-000953255.html)
 - Nov 17 - [Sen. Mitt Romney’s bill to tackle $33 trillion in national debt earns bipartisan support](https://news.yahoo.com/sen-mitt-romney-bill-tackle-235718114.html)
 <!-- feed end -->
 
