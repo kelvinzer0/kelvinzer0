@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [Report: 1.3M Teachers, 100,000 Professors Now Under ‘Educational Gag Orders’](https://news.yahoo.com/report-1-3m-teachers-100-153000503.html)
+- Nov 19 - [Hundreds more Rohingya refugees arrive in Indonesia's Aceh](https://news.yahoo.com/hundreds-more-rohingya-refugees-arrive-152136112.html)
+- Nov 19 - [WATCH: Sheriff gives update after body of missing Winter Springs woman found in storage unit](https://news.yahoo.com/body-missing-winter-springs-woman-031710175.html)
 - Nov 19 - [Iran's Khamenei says 'fact' Israel has failed in Hamas war](https://news.yahoo.com/irans-khamenei-says-fact-israel-134657854.html)
 - Nov 19 - [Retirees Are Getting a Social Security Raise. Here's When the Bigger Checks Will Come](https://www.fool.com/retirement/2023/11/19/retirees-are-getting-a-social-security-raise-heres/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 19 - [People Are Sharing What Caused Everyone To Mass Quit At Work, And I'm Actually Pretty Impressed By Some Of These](https://www.yahoo.com/lifestyle/people-quit-job-part-mass-111603539.html)
-- Nov 19 - [Elon Musk is inserting brain chips into people – here's what the tech can do](https://news.yahoo.com/elon-musk-inserting-brain-chips-into-people-heres-what-tech-can-do-111343556.html)
-- Nov 19 - [California nonprofit founder caught in shootout with would-be robbers says his gun permit got taken away](https://news.yahoo.com/california-nonprofit-founder-caught-shootout-091909683.html)
 <!-- feed end -->
 
 ### Onstream
