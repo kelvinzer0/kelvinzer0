@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [IDF combat helicopter targeting Hamas fighters at Nova festival massacre shot some partygoers by mistake, says Haaretz](https://news.yahoo.com/idf-combat-helicopter-targeting-hamas-122629406.html)
+- Nov 19 - [Retirees Are Getting a Social Security Raise. Here's When the Bigger Checks Will Come](https://www.fool.com/retirement/2023/11/19/retirees-are-getting-a-social-security-raise-heres/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Nov 19 - [People Who Quit Their Job As Part Of A Mass Exodus Are Sharing What Their Company Did That Caused Everyone To Quit](https://www.yahoo.com/lifestyle/people-quit-job-part-mass-111603539.html)
 - Nov 19 - [Elon Musk is inserting brain chips into people – here's what the tech can do](https://news.yahoo.com/elon-musk-inserting-brain-chips-into-people-heres-what-tech-can-do-111343556.html)
-- Nov 19 - [India and Australia World Cup final shatters streaming records on Hotstar](https://news.yahoo.com/india-australia-world-cup-final-090709179.html)
-- Nov 19 - [Ukrainian teenager from Mariupol whom Russians called up sent to Belarus](https://news.yahoo.com/ukrainian-teenager-mariupol-whom-russians-090311108.html)
+- Nov 19 - [Experts issue dire warning about looming danger for people with respiratory illnesses: ‘For some, this will be fatal’](https://news.yahoo.com/experts-issue-dire-warning-looming-113000971.html)
+- Nov 19 - [‘He paid the ultimate price’: the grisly fate of the missionary who met the last ‘uncontacted’ tribe](https://www.yahoo.com/lifestyle/paid-ultimate-price-grisly-fate-080000262.html)
 <!-- feed end -->
 
 ### Onstream
