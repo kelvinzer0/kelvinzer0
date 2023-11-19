@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [Iran's Khamenei says 'fact' Israel has failed in Hamas war](https://news.yahoo.com/irans-khamenei-says-fact-israel-134657854.html)
 - Nov 19 - [Retirees Are Getting a Social Security Raise. Here's When the Bigger Checks Will Come](https://www.fool.com/retirement/2023/11/19/retirees-are-getting-a-social-security-raise-heres/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 19 - [People Who Quit Their Job As Part Of A Mass Exodus Are Sharing What Their Company Did That Caused Everyone To Quit](https://www.yahoo.com/lifestyle/people-quit-job-part-mass-111603539.html)
+- Nov 19 - [People Are Sharing What Caused Everyone To Mass Quit At Work, And I'm Actually Pretty Impressed By Some Of These](https://www.yahoo.com/lifestyle/people-quit-job-part-mass-111603539.html)
 - Nov 19 - [Elon Musk is inserting brain chips into people – here's what the tech can do](https://news.yahoo.com/elon-musk-inserting-brain-chips-into-people-heres-what-tech-can-do-111343556.html)
-- Nov 19 - [Experts issue dire warning about looming danger for people with respiratory illnesses: ‘For some, this will be fatal’](https://news.yahoo.com/experts-issue-dire-warning-looming-113000971.html)
-- Nov 19 - [‘He paid the ultimate price’: the grisly fate of the missionary who met the last ‘uncontacted’ tribe](https://www.yahoo.com/lifestyle/paid-ultimate-price-grisly-fate-080000262.html)
+- Nov 19 - [California nonprofit founder caught in shootout with would-be robbers says his gun permit got taken away](https://news.yahoo.com/california-nonprofit-founder-caught-shootout-091909683.html)
 <!-- feed end -->
 
 ### Onstream
