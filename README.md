@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [Trump vows to kill Asia trade deal being pursued by Biden if elected](https://news.yahoo.com/trump-vows-kill-asia-trade-004941939.html)
+- Nov 19 - [Colombia's Petro says he proposed U.S. pay bonuses to Venezuelan migrants](https://news.yahoo.com/colombias-petro-says-proposed-u-003644798.html)
+- Nov 18 - [Trump Brags: ‘I Had a Disease Named After Me’](https://news.yahoo.com/trump-brags-had-disease-named-225924966.html)
+- Nov 18 - [Colorado Hospital Finally Admits to Cutting Lakota Elder’s Hair Without His Permission](https://news.yahoo.com/colorado-hospital-finally-admits-cutting-222941390.html)
 - Nov 18 - [Internal memo says Sam Altman’s firing wasn't due to 'malfeasance' or OpenAI safety practices](https://news.yahoo.com/internal-memo-says-sam-altmans-firing-wasnt-due-to-malfeasance-or-openai-safety-practices-205156164.html)
-- Nov 18 - [Scientists warn of ‘sleeping giant’ threat that we’ve been neglecting: ‘It’s increasing’](https://news.yahoo.com/scientists-warn-sleeping-giant-threat-180000759.html)
-- Nov 18 - [Intense Activity Seen at Mexico's Popocatepetl Volcano](https://news.yahoo.com/intense-activity-seen-mexicos-popocatepetl-172803204.html)
-- Nov 18 - [The hefty commissions home sellers pay to real estate agents may soon disappear](https://finance.yahoo.com/news/the-hefty-commissions-home-sellers-pay-to-real-estate-agents-may-soon-disappear-171508172.html)
-- Nov 18 - [Warren Buffett Says Poor People Waste Money On These 12 Things](https://finance.yahoo.com/news/warren-buffett-12-things-poor-143028989.html)
 <!-- feed end -->
 
 ### Onstream
