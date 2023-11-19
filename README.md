@@ -63,7 +63,7 @@ https://kelvinzer0.github.io
 - Nov 19 - [India and Australia World Cup final shatters streaming records on Hotstar](https://news.yahoo.com/india-australia-world-cup-final-090709179.html)
 - Nov 19 - [‘He paid the ultimate price’: the grisly fate of the missionary who met the last ‘uncontacted’ tribe](https://www.yahoo.com/lifestyle/paid-ultimate-price-grisly-fate-080000262.html)
 - Nov 19 - [A Russian general who was critical of the army's operation was found dead](https://news.yahoo.com/russian-general-critical-armys-operation-064212069.html)
-- Nov 19 - [Gripped by drought, this island is running out of drinking water](https://news.yahoo.com/gripped-drought-island-running-drinking-063003896.html)
+- Nov 19 - [In Iowa speech, Trump praises foreign dictators’ strength, slams ‘weak’ Biden](https://news.yahoo.com/iowa-speech-trump-praises-foreign-033930537.html)
 - Nov 19 - [U.S., Israel and Hamas reach tentative deal to pause conflict and free dozens of hostages- WaPo](https://news.yahoo.com/u-israel-hamas-reach-tentative-014716088.html)
 <!-- feed end -->
 
