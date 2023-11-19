@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Report: 1.3M Teachers, 100,000 Professors Now Under ‘Educational Gag Orders’](https://news.yahoo.com/report-1-3m-teachers-100-153000503.html)
-- Nov 19 - [Hundreds more Rohingya refugees arrive in Indonesia's Aceh](https://news.yahoo.com/hundreds-more-rohingya-refugees-arrive-152136112.html)
-- Nov 19 - [WATCH: Sheriff gives update after body of missing Winter Springs woman found in storage unit](https://news.yahoo.com/body-missing-winter-springs-woman-031710175.html)
-- Nov 19 - [Iran's Khamenei says 'fact' Israel has failed in Hamas war](https://news.yahoo.com/irans-khamenei-says-fact-israel-134657854.html)
+- Nov 19 - [Upcoming Trends in Credit Reporting: Stay Ahead of the Game](https://www.fool.com/the-ascent/credit-cards/articles/upcoming-trends-in-credit-reporting-stay-ahead-of-the-game/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 19 - [Ask an Advisor: ‘Prove Me Wrong.' I Think Investing in CDs Is a Better Deal Than Working With an Advisor](https://finance.yahoo.com/news/ask-advisor-prove-wrong-think-195737088.html)
+- Nov 19 - [‘We want them to be cold & hungry’ — Ukraine’s plans to make winter intolerable for Russian invaders](https://news.yahoo.com/want-them-cold-hungry-ukraine-160000527.html)
 - Nov 19 - [Retirees Are Getting a Social Security Raise. Here's When the Bigger Checks Will Come](https://www.fool.com/retirement/2023/11/19/retirees-are-getting-a-social-security-raise-heres/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 19 - [Elon Musk is inserting brain chips into people – here's what the tech can do](https://news.yahoo.com/elon-musk-inserting-brain-chips-into-people-heres-what-tech-can-do-111343556.html)
 <!-- feed end -->
 
 ### Onstream
