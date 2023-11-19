@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Upcoming Trends in Credit Reporting: Stay Ahead of the Game](https://www.fool.com/the-ascent/credit-cards/articles/upcoming-trends-in-credit-reporting-stay-ahead-of-the-game/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 19 - [The Hidden U.S. Tax Shelter You Can Use Even If You're Not Rich](https://finance.yahoo.com/news/hidden-u-tax-shelter-even-140029108.html)
 - Nov 19 - [Ask an Advisor: ‘Prove Me Wrong.' I Think Investing in CDs Is a Better Deal Than Working With an Advisor](https://finance.yahoo.com/news/ask-advisor-prove-wrong-think-195737088.html)
 - Nov 19 - [‘We want them to be cold & hungry’ — Ukraine’s plans to make winter intolerable for Russian invaders](https://news.yahoo.com/want-them-cold-hungry-ukraine-160000527.html)
-- Nov 19 - [Retirees Are Getting a Social Security Raise. Here's When the Bigger Checks Will Come](https://www.fool.com/retirement/2023/11/19/retirees-are-getting-a-social-security-raise-heres/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 19 - [Elon Musk is inserting brain chips into people – here's what the tech can do](https://news.yahoo.com/elon-musk-inserting-brain-chips-into-people-heres-what-tech-can-do-111343556.html)
+- Nov 19 - [Yemen's Houthi rebels hijack an Israeli-linked ship in the Red Sea and take 25 crew members hostage](https://finance.yahoo.com/news/israel-says-yemens-houthi-rebels-154937570.html)
+- Nov 19 - [Macron’s wife admits her mind was 'a mess’ when she dated her high school aged ex-pupil](https://news.yahoo.com/macron-wife-admits-her-mind-140730058.html)
 <!-- feed end -->
 
 ### Onstream
