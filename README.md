@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [Watching Ukraine burn through ammo fighting Russia has the US Army rethinking how much it really needs for when war breaks out](https://news.yahoo.com/watching-ukraine-burn-ammo-fighting-113001889.html)
+- Nov 19 - [People Who Quit Their Job As Part Of A Mass Exodus Are Sharing What Their Company Did That Caused Everyone To Quit](https://www.yahoo.com/lifestyle/people-quit-job-part-mass-111603539.html)
 - Nov 19 - [India and Australia World Cup final shatters streaming records on Hotstar](https://news.yahoo.com/india-australia-world-cup-final-090709179.html)
+- Nov 19 - [Ukrainian teenager from Mariupol whom Russians called up sent to Belarus](https://news.yahoo.com/ukrainian-teenager-mariupol-whom-russians-090311108.html)
 - Nov 19 - [‘He paid the ultimate price’: the grisly fate of the missionary who met the last ‘uncontacted’ tribe](https://www.yahoo.com/lifestyle/paid-ultimate-price-grisly-fate-080000262.html)
-- Nov 19 - [A Russian general who was critical of the army's operation was found dead](https://news.yahoo.com/russian-general-critical-armys-operation-064212069.html)
-- Nov 19 - [In Iowa speech, Trump praises foreign dictators’ strength, slams ‘weak’ Biden](https://news.yahoo.com/iowa-speech-trump-praises-foreign-033930537.html)
-- Nov 19 - [U.S., Israel and Hamas reach tentative deal to pause conflict and free dozens of hostages- WaPo](https://news.yahoo.com/u-israel-hamas-reach-tentative-014716088.html)
 <!-- feed end -->
 
 ### Onstream
