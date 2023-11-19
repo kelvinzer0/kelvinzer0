@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [OpenAI's board is no match for investors' wrath](https://news.yahoo.com/openais-board-no-match-investors-010045400.html)
+- Nov 19 - [Man vanishes after doctor visit, then farmhand finds his vehicle, Texas officials say](https://news.yahoo.com/man-vanishes-doctor-visit-then-164342021.html)
 - Nov 19 - [The Hidden U.S. Tax Shelter You Can Use Even If You're Not Rich](https://finance.yahoo.com/news/hidden-u-tax-shelter-even-140029108.html)
-- Nov 19 - [Ask an Advisor: ‘Prove Me Wrong.' I Think Investing in CDs Is a Better Deal Than Working With an Advisor](https://finance.yahoo.com/news/ask-advisor-prove-wrong-think-195737088.html)
+- Nov 19 - [Women Are Sharing Their Experience Being Dismissed By A Medical Professional, And It's A Sad Reality For A Lot Of Us](https://www.yahoo.com/lifestyle/women-sharing-experience-being-dismissed-161603473.html)
 - Nov 19 - [‘We want them to be cold & hungry’ — Ukraine’s plans to make winter intolerable for Russian invaders](https://news.yahoo.com/want-them-cold-hungry-ukraine-160000527.html)
-- Nov 19 - [Yemen's Houthi rebels hijack an Israeli-linked ship in the Red Sea and take 25 crew members hostage](https://finance.yahoo.com/news/israel-says-yemens-houthi-rebels-154937570.html)
-- Nov 19 - [Macron’s wife admits her mind was 'a mess’ when she dated her high school aged ex-pupil](https://news.yahoo.com/macron-wife-admits-her-mind-140730058.html)
 <!-- feed end -->
 
 ### Onstream
