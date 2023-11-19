@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [‘He paid the ultimate price’: the grisly fate of the missionary who met the last ‘uncontacted’ tribe](https://www.yahoo.com/lifestyle/paid-ultimate-price-grisly-fate-080000262.html)
 - Nov 19 - [A Russian general who was critical of the army's operation was found dead](https://news.yahoo.com/russian-general-critical-armys-operation-064212069.html)
 - Nov 19 - [Gripped by drought, this island is running out of drinking water](https://news.yahoo.com/gripped-drought-island-running-drinking-063003896.html)
-- Nov 19 - [U.S., Israel and Hamas reach tentative deal to pause conflict and free dozens of hostages- WaPo](https://news.yahoo.com/u-israel-hamas-reach-tentative-014716088.html)
-- Nov 19 - [Trump vows to kill Asia trade deal being pursued by Biden if elected](https://news.yahoo.com/trump-vows-kill-asia-trade-004941939.html)
-- Nov 18 - [Internal memo says Sam Altman’s firing wasn't due to 'malfeasance' or OpenAI safety practices](https://news.yahoo.com/internal-memo-says-sam-altmans-firing-wasnt-due-to-malfeasance-or-openai-safety-practices-205156164.html)
+- Nov 19 - [OpenAI reportedly considering reinstating freshly-ousted CEO Sam Altman](https://news.yahoo.com/openai-potentially-considering-reinstating-its-freshly-ousted-ceo-sam-altman-051223213.html)
+- Nov 19 - [SLO County city smashed 40-year-old rain record during storm. Here’s how much fell](https://news.yahoo.com/slo-county-city-smashed-40-025443607.html)
 <!-- feed end -->
 
 ### Onstream
