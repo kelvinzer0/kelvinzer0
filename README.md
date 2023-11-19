@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [U.S., Israel and Hamas reach tentative deal to pause conflict and free dozens of hostages- WaPo](https://news.yahoo.com/u-israel-hamas-reach-tentative-014716088.html)
+- Nov 19 - [1 person suffering life-threatening injuries after incident at Carowinds Camp](https://news.yahoo.com/one-person-shot-hospitalized-near-110808938.html)
 - Nov 19 - [Trump vows to kill Asia trade deal being pursued by Biden if elected](https://news.yahoo.com/trump-vows-kill-asia-trade-004941939.html)
-- Nov 19 - [Colombia's Petro says he proposed U.S. pay bonuses to Venezuelan migrants](https://news.yahoo.com/colombias-petro-says-proposed-u-003644798.html)
+- Nov 19 - [Israel set to widen Hamas offensive after air strikes kill dozens](https://news.yahoo.com/israeli-set-widen-hamas-offensive-001635545.html)
 - Nov 18 - [Trump Brags: ‘I Had a Disease Named After Me’](https://news.yahoo.com/trump-brags-had-disease-named-225924966.html)
-- Nov 18 - [Colorado Hospital Finally Admits to Cutting Lakota Elder’s Hair Without His Permission](https://news.yahoo.com/colorado-hospital-finally-admits-cutting-222941390.html)
-- Nov 18 - [Internal memo says Sam Altman’s firing wasn't due to 'malfeasance' or OpenAI safety practices](https://news.yahoo.com/internal-memo-says-sam-altmans-firing-wasnt-due-to-malfeasance-or-openai-safety-practices-205156164.html)
 <!-- feed end -->
 
 ### Onstream
