@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Israel Latest: Military Says Video Shows Tunnel Under Hospital](https://finance.yahoo.com/news/israel-latest-focus-turns-gaza-071521006.html)
-- Nov 19 - [Christie knocks RNC chair for remark on abortion: ‘She’s never governed’](https://news.yahoo.com/christie-knocks-rnc-chair-remark-191329494.html)
+- Nov 19 - [Rosalynn Carter, former first lady who advocated for mental health issues, dies at 96](https://news.yahoo.com/former-first-lady-rosalynn-carter-201832933.html)
 - Nov 19 - [‘My friend was a secret CIA agent – and I think she was the second JFK shooter’](https://www.yahoo.com/lifestyle/friend-secret-cia-agent-think-190000508.html)
 - Nov 19 - [OpenAI's board is no match for investors' wrath](https://news.yahoo.com/openais-board-no-match-investors-010045400.html)
+- Nov 19 - [2 killed during separate overnight crashes in Raleigh, Durham; I-40 lanes reopened](https://news.yahoo.com/2-killed-during-separate-overnight-163538755.html)
 - Nov 19 - [Ask an Advisor: ‘Prove Me Wrong.' I Think Investing in CDs Is a Better Deal Than Working With an Advisor](https://finance.yahoo.com/news/ask-advisor-prove-wrong-think-195737088.html)
 <!-- feed end -->
 
