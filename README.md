@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Kremlin notes Argentina President-elect Milei's comments on Russia, but hopes for good ties](https://news.yahoo.com/kremlin-notes-argentina-president-elect-095602357.html)
-- Nov 20 - [Microsoft snatches Sam Altman and former OpenAI colleagues to form its own AI research team](https://news.yahoo.com/microsoft-snatches-sam-ultman-and-former-openai-colleagues-to-form-its-own-ai-research-team-082755226.html)
+- Nov 20 - [Legal Experts Burst Trump’s Bubble Over New Ruling: Actually ‘Very Worst Decision' For Him](https://news.yahoo.com/legal-experts-burst-trump-bubble-102732972.html)
 - Nov 20 - [CNN visited the exposed tunnel shaft near Al-Shifa Hospital. Here’s what we saw](https://news.yahoo.com/cnn-visited-exposed-tunnel-shaft-043130146.html)
-- Nov 20 - [U.S. Stocks May Have Finally Met Their Match. Here Are 3 Reasons Why.](https://www.barrons.com/articles/u-s-stocks-met-their-match-international-e76d117f?siteid=yhoof2&yptr=yahoo)
-- Nov 20 - [Taiwan presidential front-runner picks former de facto ambassador to US as vice president candidate](https://news.yahoo.com/taiwan-presidential-frontrunner-picks-former-064516426.html)
+- Nov 20 - [Julianna Margulies: My non-Jewish friends, your silence on antisemitism is loud](https://news.yahoo.com/julianna-margulies-non-jewish-friends-101738116.html)
+- Nov 20 - [Kremlin says it regrets Finland's decision to shut border crossings with Russia](https://news.yahoo.com/kremlin-says-regrets-finlands-decision-093015548.html)
+- Nov 20 - [Microsoft snatches Sam Altman and former OpenAI colleagues to form its own AI research team](https://news.yahoo.com/microsoft-snatches-sam-ultman-and-former-openai-colleagues-to-form-its-own-ai-research-team-082755226.html)
 <!-- feed end -->
 
 ### Onstream
