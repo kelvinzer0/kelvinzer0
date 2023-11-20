@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Legal Experts Burst Trump’s Bubble Over New Ruling: Actually ‘Very Worst Decision' For Him](https://news.yahoo.com/legal-experts-burst-trump-bubble-102732972.html)
-- Nov 20 - [CNN visited the exposed tunnel shaft near Al-Shifa Hospital. Here’s what we saw](https://news.yahoo.com/cnn-visited-exposed-tunnel-shaft-043130146.html)
-- Nov 20 - [Julianna Margulies: My non-Jewish friends, your silence on antisemitism is loud](https://news.yahoo.com/julianna-margulies-non-jewish-friends-101738116.html)
-- Nov 20 - [Kremlin says it regrets Finland's decision to shut border crossings with Russia](https://news.yahoo.com/kremlin-says-regrets-finlands-decision-093015548.html)
-- Nov 20 - [Microsoft snatches Sam Altman and former OpenAI colleagues to form its own AI research team](https://news.yahoo.com/microsoft-snatches-sam-ultman-and-former-openai-colleagues-to-form-its-own-ai-research-team-082755226.html)
+- Nov 20 - [Study uncovers the shocking impact of plant-based meat and dairy alternatives: ‘Not just a novel food product’](https://www.yahoo.com/lifestyle/study-uncovers-shocking-impact-plant-190000181.html)
+- Nov 20 - [A Harvard professor claimed balls found in the ocean were alien tech. They may have just been industrial waste.](https://news.yahoo.com/harvard-professor-claimed-balls-found-105113195.html)
+- Nov 20 - [Donald Trump dreams of an American Fourth Reich — and he's not kidding](https://news.yahoo.com/donald-trump-dreams-american-fourth-104502547.html)
+- Nov 20 - [Why the drive to McGhee Tyson Airport could take extra time before Thanksgiving](https://news.yahoo.com/why-drive-mcghee-tyson-airport-103916559.html)
+- Nov 20 - [COVID subvariant HV.1 is spreading across Canada: What experts say people should know](https://news.yahoo.com/covid-subvariant-hv1-canada-experts-103036041.html)
 <!-- feed end -->
 
 ### Onstream
