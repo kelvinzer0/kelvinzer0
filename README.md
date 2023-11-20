@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Georgia deputy who shot absolved man had prior firing for excessive force](https://news.yahoo.com/georgia-deputy-shot-absolved-man-050718676.html)
+- Nov 20 - [IDF Claims CCTV Footage Shows Hostages in al-Shifa Hospital](https://news.yahoo.com/idf-claims-cctv-footage-shows-064716862.html)
 - Nov 20 - [CNN visited the exposed tunnel shaft near Al-Shifa Hospital. Here’s what we saw](https://news.yahoo.com/cnn-visited-exposed-tunnel-shaft-043130146.html)
-- Nov 20 - [Former Red Sox pitcher battling kidney disease, needs donor](https://news.yahoo.com/former-red-sox-pitcher-battling-034058282.html)
-- Nov 20 - ["The Outlet Was Leaking": Home Inspectors Are Sharing Photos Of The Worst Things They've Discovered](https://www.yahoo.com/lifestyle/outlet-leaking-home-inspectors-sharing-031602634.html)
+- Nov 20 - ["The Professor Was Dumbfounded": People Are Sharing The Most Out-Of-Touch Comments They've Ever Heard](https://www.yahoo.com/lifestyle/people-sharing-most-touch-things-041602085.html)
+- Nov 20 - [Musk Defends Himself on X After Antisemitic Furor Deepens](https://finance.yahoo.com/news/musk-defends-himself-x-antisemitic-035726993.html)
 - Nov 20 - [Royal Navy nuclear submarine sinks towards 'danger zone'](https://news.yahoo.com/royal-navy-nuclear-submarine-sinks-024751477.html)
 <!-- feed end -->
 
