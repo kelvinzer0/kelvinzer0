@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Israel Latest: Military Says Video Shows Tunnel Under Hospital](https://finance.yahoo.com/news/israel-latest-focus-turns-gaza-071521006.html)
-- Nov 19 - [Bartender arrested after 27-year-old woman found bludgeoned with fire extinguisher](https://news.yahoo.com/bartender-arrested-27-old-woman-220015134.html)
-- Nov 19 - [Hulk Hogan's son arrested for DUI in same Florida city where he was involved in a car crash 16 years ago](https://news.yahoo.com/hulk-hogans-son-arrested-dui-215305837.html)
+- Nov 19 - [Tapper asks DeSantis if Trump is too old to run. Hear his response](https://news.yahoo.com/tapper-asks-desantis-trump-too-152813596.html)
+- Nov 19 - [Alarming study warns of potential ‘collapse’ if call for action is not heeded now: ‘We do have time to make a difference’](https://news.yahoo.com/alarming-study-warns-potential-collapse-220000705.html)
+- Nov 19 - [Changes coming to USPS Shipping Services](https://news.yahoo.com/changes-coming-usps-shipping-services-213102225.html)
 - Nov 19 - [Chernobyl, site of world’s worst nuclear disaster, could soon be home to an exciting new project: ‘Tolerable exposure levels for limited periods of time’](https://news.yahoo.com/chernobyl-world-worst-nuclear-disaster-213000130.html)
 - Nov 19 - ['He does not deserve this': University of Ottawa criticized after medical resident suspended for pro-Palestine posts](https://news.yahoo.com/university-of-ottawa-medical-resident-suspended-pro-palestine-211513644.html)
 <!-- feed end -->
