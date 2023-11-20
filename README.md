@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Social Security: With Cuts and No Cuts, Here’s What Your Benefit Should Be in 10 Years](https://finance.yahoo.com/news/social-security-cuts-no-cuts-130138684.html)
+- Nov 20 - [Former Red Sox pitcher battling kidney disease, needs donor](https://news.yahoo.com/former-red-sox-pitcher-battling-034058282.html)
 - Nov 20 - [Harrowing footage shows Israeli mother clutching her baby as Hamas militants kidnap husband](https://news.yahoo.com/video-israeli-mother-baby-hamas-militants-kidnap-husband-124941220.html)
-- Nov 20 - [Ukrainian grandma says she's too old to fight Russians in the infantry so learned to pilot drones instead](https://news.yahoo.com/ukrainian-grandma-says-shes-too-115459608.html)
-- Nov 20 - [Russian police are overwhelmed by the number of people snitching on neighbors and colleagues: report](https://news.yahoo.com/russian-police-overwhelmed-number-people-113748818.html)
-- Nov 20 - [Study uncovers the shocking impact of plant-based meat and dairy alternatives: ‘Not just a novel food product’](https://www.yahoo.com/lifestyle/study-uncovers-shocking-impact-plant-190000181.html)
+- Nov 20 - [Finland's president says impossible to return asylum seekers](https://news.yahoo.com/finlands-president-says-impossible-return-123943415.html)
+- Nov 20 - [There Are Only Two Options Left In Ukraine](https://news.yahoo.com/only-two-options-left-ukraine-120000619.html)
+- Nov 20 - [2 South Mississippi restaurants, taco place and sandwich shop fail health inspections](https://news.yahoo.com/2-south-mississippi-restaurants-taco-115500846.html)
 <!-- feed end -->
 
 ### Onstream
