@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 20 - [Honda shows next-generation hydrogen fuel cell drivetrain](https://www.autoblog.com/2023/11/20/honda-shows-next-generation-hydrogen-fuel-cell-drivetrain/)
+- Nov 20 - [Toyota to pay $60 million for illegal lending, credit reporting misconduct-US regulator](https://finance.yahoo.com/news/toyota-pay-60-million-illegal-144017142.html)
+- Nov 20 - [Sharon Osbourne Warned People To “Be Careful What You Wish For” After Revealing She’s Now Unable To Put Weight On Due To Her Use Of Ozempic And Feels She’s Too “Gaunt”](https://www.yahoo.com/entertainment/sharon-osbourne-warned-people-careful-141930572.html)
+- Nov 20 - [Restaurant owner shoots unarmed teen trying to steal tip jar, Pennsylvania cops say](https://news.yahoo.com/restaurant-owner-shoots-unarmed-teen-134124806.html)
 - Nov 20 - [Former Red Sox pitcher battling kidney disease, needs donor](https://news.yahoo.com/former-red-sox-pitcher-battling-034058282.html)
-- Nov 20 - [Harrowing footage shows Israeli mother clutching her baby as Hamas militants kidnap husband](https://news.yahoo.com/video-israeli-mother-baby-hamas-militants-kidnap-husband-124941220.html)
-- Nov 20 - [Finland's president says impossible to return asylum seekers](https://news.yahoo.com/finlands-president-says-impossible-return-123943415.html)
-- Nov 20 - [There Are Only Two Options Left In Ukraine](https://news.yahoo.com/only-two-options-left-ukraine-120000619.html)
-- Nov 20 - [2 South Mississippi restaurants, taco place and sandwich shop fail health inspections](https://news.yahoo.com/2-south-mississippi-restaurants-taco-115500846.html)
 <!-- feed end -->
 
 ### Onstream
