@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Woman slammed for painting her nails on flight](https://news.yahoo.com/woman-slammed-painting-her-nails-034039141.html)
+- Nov 20 - ["The Outlet Was Leaking": Home Inspectors Are Sharing Photos Of The Worst Things They've Discovered](https://www.yahoo.com/lifestyle/outlet-leaking-home-inspectors-sharing-031602634.html)
 - Nov 20 - [Royal Navy nuclear submarine sinks towards 'danger zone'](https://news.yahoo.com/royal-navy-nuclear-submarine-sinks-024751477.html)
+- Nov 20 - [Two bankrupt big-name retailers make major comebacks](https://www.thestreet.com/retailers/2-bankrupt-liquidated-retailers-making-brick-and-mortar-comebacks?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Nov 19 - [Tapper asks DeSantis if Trump is too old to run. Hear his response](https://news.yahoo.com/tapper-asks-desantis-trump-too-152813596.html)
-- Nov 19 - [Changes coming to USPS Shipping Services](https://news.yahoo.com/changes-coming-usps-shipping-services-213102225.html)
-- Nov 19 - [Sam Altman and Greg Brockman are meeting with OpenAI execs now at HQ in ongoing talks over reinstatement](https://news.yahoo.com/sam-altman-and-greg-brockman-are-meeting-with-openai-execs-now-in-ongoing-talks-over-reinstatement-212124319.html)
+- Nov 19 - [Alarming study warns of potential ‘collapse’ if call for action is not heeded now: ‘We do have time to make a difference’](https://news.yahoo.com/alarming-study-warns-potential-collapse-220000705.html)
 <!-- feed end -->
 
 ### Onstream
