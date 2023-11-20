@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 20 - [Georgia deputy who shot absolved man had prior firing for excessive force](https://news.yahoo.com/georgia-deputy-shot-absolved-man-050718676.html)
+- Nov 20 - [CNN visited the exposed tunnel shaft near Al-Shifa Hospital. Here’s what we saw](https://news.yahoo.com/cnn-visited-exposed-tunnel-shaft-043130146.html)
+- Nov 20 - [Former Red Sox pitcher battling kidney disease, needs donor](https://news.yahoo.com/former-red-sox-pitcher-battling-034058282.html)
 - Nov 20 - ["The Outlet Was Leaking": Home Inspectors Are Sharing Photos Of The Worst Things They've Discovered](https://www.yahoo.com/lifestyle/outlet-leaking-home-inspectors-sharing-031602634.html)
 - Nov 20 - [Royal Navy nuclear submarine sinks towards 'danger zone'](https://news.yahoo.com/royal-navy-nuclear-submarine-sinks-024751477.html)
-- Nov 20 - [Two bankrupt big-name retailers make major comebacks](https://www.thestreet.com/retailers/2-bankrupt-liquidated-retailers-making-brick-and-mortar-comebacks?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 19 - [Tapper asks DeSantis if Trump is too old to run. Hear his response](https://news.yahoo.com/tapper-asks-desantis-trump-too-152813596.html)
-- Nov 19 - [Alarming study warns of potential ‘collapse’ if call for action is not heeded now: ‘We do have time to make a difference’](https://news.yahoo.com/alarming-study-warns-potential-collapse-220000705.html)
 <!-- feed end -->
 
 ### Onstream
