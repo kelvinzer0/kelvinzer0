@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [6-Year-Old Boy Calls 911 to Say 'I Don't Know What's Happening to My Grandma.' He Ended Up Saving Her Life](https://www.yahoo.com/entertainment/6-old-boy-calls-911-184450227.html)
-- Nov 20 - [Canceling Cybertruck Would Be A 'Positive' For Tesla Stock, Analyst Says](https://www.investors.com/news/cybertruck-getting-shelved-would-be-a-positive-for-tesla-stock-analyst-writes/?src=A00220&yptr=yahoo)
-- Nov 20 - [US Coast Guard seeks source of some 1.1 million gallons of crude oil in Gulf of Mexico](https://finance.yahoo.com/news/us-coast-guard-seeks-source-182719037.html)
-- Nov 20 - [Oscar Pistorius will have another chance at parole on Friday after nearly a decade in prison](https://news.yahoo.com/oscar-pistorius-another-chance-parole-181738715.html)
-- Nov 20 - [Bill Burr Mocks People Mad That His Wife Flipped Off Trump](https://www.yahoo.com/entertainment/bill-burr-mocks-people-mad-180413246.html)
+- Nov 20 - ['If you’re reading this, I have passed away': Mom, 38, goes viral for last message, final wish](https://news.yahoo.com/reading-passed-away-mom-38-221724078.html)
+- Nov 20 - ["Not going well": Legal experts say Trump lawyer "frustrated" judges in hearing to fight gag order](https://news.yahoo.com/not-going-well-legal-experts-191652044.html)
+- Nov 20 - [Suge Knight Says Eazy-E’s Widow Cost His Estate Millions Of Dollars In Botched Dr. Dre Deal](https://www.yahoo.com/entertainment/suge-knight-says-eazy-e-190901268.html)
+- Nov 20 - [Webb telescope images show an unprecedented and 'chaotic' view of the center of our galaxy](https://www.engadget.com/webb-telescope-images-show-an-unprecedented-and-chaotic-view-of-the-center-of-our-galaxy-185912370.html)
+- Nov 20 - [GM Cruise cofounder, senior exec Dan Kan quits day after CEO exit](https://finance.yahoo.com/news/gm-cruise-cofounder-senior-exec-184744506.html)
 <!-- feed end -->
 
 ### Onstream
