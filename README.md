@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 20 - [Social Security: With Cuts and No Cuts, Here’s What Your Benefit Should Be in 10 Years](https://finance.yahoo.com/news/social-security-cuts-no-cuts-130138684.html)
+- Nov 20 - [Harrowing footage shows Israeli mother clutching her baby as Hamas militants kidnap husband](https://news.yahoo.com/video-israeli-mother-baby-hamas-militants-kidnap-husband-124941220.html)
+- Nov 20 - [Ukrainian grandma says she's too old to fight Russians in the infantry so learned to pilot drones instead](https://news.yahoo.com/ukrainian-grandma-says-shes-too-115459608.html)
+- Nov 20 - [Russian police are overwhelmed by the number of people snitching on neighbors and colleagues: report](https://news.yahoo.com/russian-police-overwhelmed-number-people-113748818.html)
 - Nov 20 - [Study uncovers the shocking impact of plant-based meat and dairy alternatives: ‘Not just a novel food product’](https://www.yahoo.com/lifestyle/study-uncovers-shocking-impact-plant-190000181.html)
-- Nov 20 - [A Harvard professor claimed balls found in the ocean were alien tech. They may have just been industrial waste.](https://news.yahoo.com/harvard-professor-claimed-balls-found-105113195.html)
-- Nov 20 - [Donald Trump dreams of an American Fourth Reich — and he's not kidding](https://news.yahoo.com/donald-trump-dreams-american-fourth-104502547.html)
-- Nov 20 - [Why the drive to McGhee Tyson Airport could take extra time before Thanksgiving](https://news.yahoo.com/why-drive-mcghee-tyson-airport-103916559.html)
-- Nov 20 - [COVID subvariant HV.1 is spreading across Canada: What experts say people should know](https://news.yahoo.com/covid-subvariant-hv1-canada-experts-103036041.html)
 <!-- feed end -->
 
 ### Onstream
