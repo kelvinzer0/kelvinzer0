@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 19 - [Tapper asks DeSantis if Trump is too old to run. Hear his response](https://news.yahoo.com/tapper-asks-desantis-trump-too-152813596.html)
+- Nov 20 - [United Cajun Navy announces debris from Carol Ann located off coast of St. Augustine](https://news.yahoo.com/united-cajun-navy-announces-debris-003238851.html)
+- Nov 19 - [Chevy Camaro Blacks Out To Lose The Fuzz](https://news.yahoo.com/chevy-camaro-blacks-lose-fuzz-224500732.html)
 - Nov 19 - [Alarming study warns of potential ‘collapse’ if call for action is not heeded now: ‘We do have time to make a difference’](https://news.yahoo.com/alarming-study-warns-potential-collapse-220000705.html)
 - Nov 19 - [Changes coming to USPS Shipping Services](https://news.yahoo.com/changes-coming-usps-shipping-services-213102225.html)
 - Nov 19 - [Chernobyl, site of world’s worst nuclear disaster, could soon be home to an exciting new project: ‘Tolerable exposure levels for limited periods of time’](https://news.yahoo.com/chernobyl-world-worst-nuclear-disaster-213000130.html)
-- Nov 19 - ['He does not deserve this': University of Ottawa criticized after medical resident suspended for pro-Palestine posts](https://news.yahoo.com/university-of-ottawa-medical-resident-suspended-pro-palestine-211513644.html)
 <!-- feed end -->
 
 ### Onstream
