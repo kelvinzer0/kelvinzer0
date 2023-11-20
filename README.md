@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Wendy's menu adds a new take on a beloved burger](https://www.thestreet.com/restaurants/wendys-menu-adds-a-surprise-new-take-on-a-beloved-burger?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 20 - [2023 L.A. Auto Show Editors' Picks](https://www.autoblog.com/2023/11/20/2023-la-auto-show-editors-picks/)
-- Nov 20 - [Mikey the dog found abandoned in airport parking lot, cops say. Now man is charged](https://news.yahoo.com/mikey-dog-found-abandoned-airport-205040705.html)
+- Nov 20 - [Police report reveals details surrounding Milan Lucic's arrest, domestic abuse allegations](https://news.yahoo.com/nhl-bruins-milan-lucic-arrest-details-revealed-police-report-domestic-abuse-allegations-215119762.html)
+- Nov 20 - [Disney CEO Bob Iger's report card one year back into the job](https://finance.yahoo.com/video/disney-ceo-bob-igers-report-214332708.html)
+- Nov 20 - [When people move out, wildlife moves in: 10 abandoned places reclaimed by nature](https://www.yahoo.com/lifestyle/people-move-wildlife-moves-10-095048065.html)
 - Nov 20 - [Wells Fargo is facing a potential challenge that could affect your everyday banking](https://www.thestreet.com/banking/wells-fargo-is-facing-an-alarming-new-problem-that-could-affect-your-everyday-banking?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Nov 20 - [Trump has big plans for a second term. Critics say they pose a threat to democracy.](https://news.yahoo.com/trump-has-big-plans-for-a-second-term-critics-say-they-pose-a-threat-to-democracy-203042124.html)
 <!-- feed end -->
