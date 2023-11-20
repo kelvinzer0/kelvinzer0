@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 20 - [Microsoft hires ex-OpenAI leaders Altman and Brockman to lead new AI team](https://news.yahoo.com/microsoft-hires-ex-openai-leaders-080146720.html)
+- Nov 20 - [Musk Defends Himself on X After Antisemitic Furor Deepens](https://finance.yahoo.com/news/musk-defends-himself-x-antisemitic-035726993.html)
 - Nov 20 - [CNN visited the exposed tunnel shaft near Al-Shifa Hospital. Here’s what we saw](https://news.yahoo.com/cnn-visited-exposed-tunnel-shaft-043130146.html)
-- Nov 20 - [Taiwan presidential front-runner picks former de facto ambassador to US as vice president candidate](https://news.yahoo.com/taiwan-presidential-frontrunner-picks-former-064516426.html)
 - Nov 20 - [L.A. homeowner who fired on armed robbers has concealed carry permit suspended](https://news.yahoo.com/l-homeowner-fired-armed-robbers-055345708.html)
-- Nov 19 - [Alarming study warns of potential ‘collapse’ if call for action is not heeded now: ‘We do have time to make a difference’](https://news.yahoo.com/alarming-study-warns-potential-collapse-220000705.html)
-- Nov 19 - [Chernobyl, site of world’s worst nuclear disaster, could soon be home to an exciting new project: ‘Tolerable exposure levels for limited periods of time’](https://news.yahoo.com/chernobyl-world-worst-nuclear-disaster-213000130.html)
+- Nov 20 - [Automaker targets Tesla customers with sleek new vehicles: ‘Has the luxury car chops to blow them out of the water’](https://news.yahoo.com/automaker-targets-tesla-customers-sleek-050000980.html)
 <!-- feed end -->
 
 ### Onstream
