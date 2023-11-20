@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Police report reveals details surrounding Milan Lucic's arrest, domestic abuse allegations](https://news.yahoo.com/nhl-bruins-milan-lucic-arrest-details-revealed-police-report-domestic-abuse-allegations-215119762.html)
-- Nov 20 - [Disney CEO Bob Iger's report card one year back into the job](https://finance.yahoo.com/video/disney-ceo-bob-igers-report-214332708.html)
-- Nov 20 - [When people move out, wildlife moves in: 10 abandoned places reclaimed by nature](https://www.yahoo.com/lifestyle/people-move-wildlife-moves-10-095048065.html)
-- Nov 20 - [Wells Fargo is facing a potential challenge that could affect your everyday banking](https://www.thestreet.com/banking/wells-fargo-is-facing-an-alarming-new-problem-that-could-affect-your-everyday-banking?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 20 - [Trump has big plans for a second term. Critics say they pose a threat to democracy.](https://news.yahoo.com/trump-has-big-plans-for-a-second-term-critics-say-they-pose-a-threat-to-democracy-203042124.html)
+- Nov 20 - [What are ‘nothing showers’? Do they actually help with anxiety?](https://www.intheknow.com/post/nothing-showers-anxiety/)
+- Nov 20 - [Colts owner Jim Irsay says past drug overdose stopped his breathing, almost killed him](https://sports.yahoo.com/colts-owner-jim-irsay-says-past-drug-overdose-stopped-his-breathing-almost-killed-him-224104839.html)
+- Nov 20 - [Trump's physician says he is in 'excellent health,' has lost weight](https://news.yahoo.com/trumps-physician-says-excellent-health-221638566.html)
+- Nov 20 - [Melting ice reveals dozens of 7,000-year-old artifacts in Canada. Take a look](https://news.yahoo.com/melting-ice-reveals-dozens-7-221609873.html)
+- Nov 20 - [Oil: Demand shifts, production cuts cloud future of crude](https://finance.yahoo.com/video/oil-demand-shifts-production-cuts-215355374.html)
 <!-- feed end -->
 
 ### Onstream
