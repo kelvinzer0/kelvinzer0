@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 20 - [6-Year-Old Boy Calls 911 to Say 'I Don't Know What's Happening to My Grandma.' He Ended Up Saving Her Life](https://www.yahoo.com/entertainment/6-old-boy-calls-911-184450227.html)
+- Nov 20 - [Canceling Cybertruck Would Be A 'Positive' For Tesla Stock, Analyst Says](https://www.investors.com/news/cybertruck-getting-shelved-would-be-a-positive-for-tesla-stock-analyst-writes/?src=A00220&yptr=yahoo)
+- Nov 20 - [US Coast Guard seeks source of some 1.1 million gallons of crude oil in Gulf of Mexico](https://finance.yahoo.com/news/us-coast-guard-seeks-source-182719037.html)
+- Nov 20 - [Oscar Pistorius will have another chance at parole on Friday after nearly a decade in prison](https://news.yahoo.com/oscar-pistorius-another-chance-parole-181738715.html)
 - Nov 20 - [Bill Burr Mocks People Mad That His Wife Flipped Off Trump](https://www.yahoo.com/entertainment/bill-burr-mocks-people-mad-180413246.html)
-- Nov 20 - [Emmett Shear, the ex-Twitch CEO tasked with stabilizing OpenAI, has some spicy social history](https://news.yahoo.com/emmett-shear-ex-twitch-ceo-174521450.html)
-- Nov 20 - ["Unforced error": Legal expert warns judge risks having ruling reversed if he falls for Trump stunts](https://news.yahoo.com/unforced-error-legal-expert-warns-164728404.html)
-- Nov 20 - [Stampeding deer halt traffic in Hawaii, video put to surf music](https://sports.yahoo.com/stampeding-deer-halt-traffic-hawaii-164215668.html)
-- Nov 20 - [Wendy's menu adds a surprise new take on a beloved burger](https://www.thestreet.com/restaurants/wendys-menu-adds-a-surprise-new-take-on-a-beloved-burger?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
