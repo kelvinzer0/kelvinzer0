@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 20 - [Charlie Munger Lost His 9-Year-Old Son To Cancer, Went Blind In One Eye, Was Left With Nothing After A Divorce And Still Managed To Become One Of The Most Successful Billionaire Investors Ever — 'Envy, Resentment, Revenge And Self-Pity Are Disastrous Modes Of Thought'](https://finance.yahoo.com/news/charlie-munger-lost-9-old-155612903.html)
+- Nov 20 - [Why the S&P 500 could see biggest November rally since 2020](https://finance.yahoo.com/video/why-p-500-could-see-154513985.html)
+- Nov 20 - [Citigroup begins layoffs as Wall Street braces for rough end to 2023](https://finance.yahoo.com/news/citigroup-begins-layoffs-as-wall-street-braces-for-rough-end-to-2023-154443878.html)
 - Nov 20 - [Honda shows next-generation hydrogen fuel cell drivetrain](https://www.autoblog.com/2023/11/20/honda-shows-next-generation-hydrogen-fuel-cell-drivetrain/)
-- Nov 20 - [Toyota to pay $60 million for illegal lending, credit reporting misconduct-US regulator](https://finance.yahoo.com/news/toyota-pay-60-million-illegal-144017142.html)
-- Nov 20 - [Sharon Osbourne Warned People To “Be Careful What You Wish For” After Revealing She’s Now Unable To Put Weight On Due To Her Use Of Ozempic And Feels She’s Too “Gaunt”](https://www.yahoo.com/entertainment/sharon-osbourne-warned-people-careful-141930572.html)
-- Nov 20 - [Restaurant owner shoots unarmed teen trying to steal tip jar, Pennsylvania cops say](https://news.yahoo.com/restaurant-owner-shoots-unarmed-teen-134124806.html)
-- Nov 20 - [Former Red Sox pitcher battling kidney disease, needs donor](https://news.yahoo.com/former-red-sox-pitcher-battling-034058282.html)
+- Nov 20 - [Toyota to pay $60 million for lending abuses, tarnishing credit reports, US regulator says](https://finance.yahoo.com/news/toyota-pay-60-million-illegal-144017142.html)
 <!-- feed end -->
 
 ### Onstream
