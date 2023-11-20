@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [Say goodbye to the Christian Right](https://news.yahoo.com/goodbye-christian-164310558.html)
-- Nov 20 - [Norwegian Cruise Line Stock Is Beaten Down Now, but It Could 10X](https://www.fool.com/investing/2023/11/20/norwegian-cruise-line-stock-is-beaten-down-now-but/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 20 - [Bill Burr Mocks People Mad That His Wife Flipped Off Trump](https://www.yahoo.com/entertainment/bill-burr-mocks-people-mad-180413246.html)
+- Nov 20 - [Emmett Shear, the ex-Twitch CEO tasked with stabilizing OpenAI, has some spicy social history](https://news.yahoo.com/emmett-shear-ex-twitch-ceo-174521450.html)
+- Nov 20 - ["Unforced error": Legal expert warns judge risks having ruling reversed if he falls for Trump stunts](https://news.yahoo.com/unforced-error-legal-expert-warns-164728404.html)
+- Nov 20 - [Stampeding deer halt traffic in Hawaii, video put to surf music](https://sports.yahoo.com/stampeding-deer-halt-traffic-hawaii-164215668.html)
 - Nov 20 - [Wendy's menu adds a surprise new take on a beloved burger](https://www.thestreet.com/restaurants/wendys-menu-adds-a-surprise-new-take-on-a-beloved-burger?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 20 - [Charlie Munger Lost His 9-Year-Old Son To Cancer, Went Blind In One Eye, Was Left With Nothing After A Divorce And Still Managed To Become One Of The Most Successful Billionaire Investors Ever — 'Envy, Resentment, Revenge And Self-Pity Are Disastrous Modes Of Thought'](https://finance.yahoo.com/news/charlie-munger-lost-9-old-155612903.html)
-- Nov 20 - ["In the bag for Trump": Expert says Judge Cannon's new order leaves other trials "in limbo"](https://news.yahoo.com/bag-trump-expert-says-judge-154458194.html)
 <!-- feed end -->
 
 ### Onstream
