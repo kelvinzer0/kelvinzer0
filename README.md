@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - ['If you’re reading this, I have passed away': Mom, 38, goes viral for last message, final wish](https://news.yahoo.com/reading-passed-away-mom-38-221724078.html)
-- Nov 20 - ["Not going well": Legal experts say Trump lawyer "frustrated" judges in hearing to fight gag order](https://news.yahoo.com/not-going-well-legal-experts-191652044.html)
-- Nov 20 - [Suge Knight Says Eazy-E’s Widow Cost His Estate Millions Of Dollars In Botched Dr. Dre Deal](https://www.yahoo.com/entertainment/suge-knight-says-eazy-e-190901268.html)
-- Nov 20 - [Webb telescope images show an unprecedented and 'chaotic' view of the center of our galaxy](https://www.engadget.com/webb-telescope-images-show-an-unprecedented-and-chaotic-view-of-the-center-of-our-galaxy-185912370.html)
-- Nov 20 - [GM Cruise cofounder, senior exec Dan Kan quits day after CEO exit](https://finance.yahoo.com/news/gm-cruise-cofounder-senior-exec-184744506.html)
+- Nov 20 - [Wendy's menu adds a new take on a beloved burger](https://www.thestreet.com/restaurants/wendys-menu-adds-a-surprise-new-take-on-a-beloved-burger?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 20 - [2023 L.A. Auto Show Editors' Picks](https://www.autoblog.com/2023/11/20/2023-la-auto-show-editors-picks/)
+- Nov 20 - [Mikey the dog found abandoned in airport parking lot, cops say. Now man is charged](https://news.yahoo.com/mikey-dog-found-abandoned-airport-205040705.html)
+- Nov 20 - [Wells Fargo is facing a potential challenge that could affect your everyday banking](https://www.thestreet.com/banking/wells-fargo-is-facing-an-alarming-new-problem-that-could-affect-your-everyday-banking?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 20 - [Trump has big plans for a second term. Critics say they pose a threat to democracy.](https://news.yahoo.com/trump-has-big-plans-for-a-second-term-critics-say-they-pose-a-threat-to-democracy-203042124.html)
 <!-- feed end -->
 
 ### Onstream
