@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 21 - [New Hampshire man had no car, no furniture, but died with a big secret, leaving his town millions](https://news.yahoo.com/hampshire-man-had-no-car-051307346.html)
-- Nov 21 - [OpenAI's board approached Anthropic CEO about top job and merger - sources](https://finance.yahoo.com/news/openais-board-approached-anthropic-ceo-041651334.html)
 - Nov 21 - [Trump Sues MSNBC, Reuters and 18 Other News Orgs, Claims They ‘Coordinated’ in Misreporting $73 Million Truth Social Losses](https://www.yahoo.com/entertainment/trump-sues-msnbc-reuters-18-034630039.html)
-- Nov 21 - [Yemen's Houthis Release Footage of Militia Hijacking Ship in the Red Sea](https://news.yahoo.com/yemens-houthis-release-footage-militia-005238179.html)
-- Nov 21 - [Trump, on Biden's 81st birthday, releases doctor's note that says he's in 'excellent' health](https://news.yahoo.com/trump-bidens-81st-birthday-releases-003716881.html)
+- Nov 21 - [‘He had no chance,’ Well-known Las Vegas-area road defect not fixed until child dies](https://news.yahoo.com/had-no-chance-well-known-025526361.html)
+- Nov 21 - [Mayor of McKeesport arrested in Nashville, issues statement](https://news.yahoo.com/mayor-mckeesport-arrested-nashville-issues-022425248.html)
+- Nov 21 - [Microsoft CEO Satya Nadella suggests that Sam Altman might return to OpenAI](https://news.yahoo.com/microsoft-ceo-satya-nadella-suggests-012236325.html)
 <!-- feed end -->
 
 ### Onstream
