@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 20 - [What are ‘nothing showers’? Do they actually help with anxiety?](https://www.intheknow.com/post/nothing-showers-anxiety/)
-- Nov 20 - [Colts owner Jim Irsay says past drug overdose stopped his breathing, almost killed him](https://sports.yahoo.com/colts-owner-jim-irsay-says-past-drug-overdose-stopped-his-breathing-almost-killed-him-224104839.html)
-- Nov 20 - [Trump's physician says he is in 'excellent health,' has lost weight](https://news.yahoo.com/trumps-physician-says-excellent-health-221638566.html)
-- Nov 20 - [Melting ice reveals dozens of 7,000-year-old artifacts in Canada. Take a look](https://news.yahoo.com/melting-ice-reveals-dozens-7-221609873.html)
-- Nov 20 - [Oil: Demand shifts, production cuts cloud future of crude](https://finance.yahoo.com/video/oil-demand-shifts-production-cuts-215355374.html)
+- Nov 21 - [Trump, on Biden's 81st birthday, releases doctor's note that says he's in 'excellent' health](https://news.yahoo.com/trump-bidens-81st-birthday-releases-003716881.html)
+- Nov 21 - [Trump Demands That The RNC Stop Hosting Debates For His Rivals Or Be Revamped: NOW!!!](https://news.yahoo.com/trump-demands-rnc-stop-hosting-003714418.html)
+- Nov 21 - [Court leans toward keeping Trump’s gag order in D.C., but with modifications](https://news.yahoo.com/court-leans-toward-keeping-trump-002204092.html)
+- Nov 21 - [Ukrainian high jumper Yuliya Levchenko in images](https://sports.yahoo.com/ukrainian-high-jumper-yuliya-levchenko-223940598.html)
+- Nov 20 - [44 Horrible Airbnb Houses And Hosts That Have Me Convinced To Book A Hotel Next Time](https://www.yahoo.com/lifestyle/44-horrible-airbnb-houses-hosts-231602727.html)
 <!-- feed end -->
 
 ### Onstream
