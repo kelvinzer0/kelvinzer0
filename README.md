@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Palantir Stock Is Having an Incredible Year. A New Contract Is the Latest Positive.](https://www.barrons.com/articles/palantir-stock-nhs-contract-cdeb3d22?siteid=yhoof2&yptr=yahoo)
+- Nov 21 - [Bruins' Milan Lucic pleads not guilty to assaulting wife amid domestic abuse allegations](https://news.yahoo.com/nhl-boston-bruins-milan-lucic-arrest-police-report-domestic-abuse-allegations-plead-not-guilty-163438346.html)
+- Nov 21 - [Here's the dark horse tech giant that's going to come out ahead of Nvidia and Microsoft](https://www.thestreet.com/technology/nvidia-microsoft-amazon-technology-artificial-intelligence?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 21 - [5 Best States To Buy Property in the Next 5 Years, According to Real Estate Agents](https://finance.yahoo.com/news/m-real-estate-agent-best-120031644.html)
+- Nov 21 - [Tesla launched its own car insurance. These drivers say it's a lemon: 'totally ridiculous'](https://www.autoblog.com/2023/11/21/tesla-launched-its-own-car-insurance-these-drivers-say-its-a-lemon-totally-ridiculous/)
 - Nov 21 - [Russian soldiers are rumored to be sticking their hands out of trenches because they want to get shot](https://news.yahoo.com/russian-soldiers-rumored-sticking-hands-153811666.html)
-- Nov 21 - [Popular cereal gets Bud Light treatment after sneaky marketing campaign](https://www.thestreet.com/restaurants/popular-cereal-gets-bud-light-treatment-after-sneaky-marketing-campaign?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 21 - [A schoolboy digging potatoes in Scotland found an ancient Egyptian statue. Nobody knows how it got there.](https://www.yahoo.com/entertainment/schoolboy-digging-potatoes-scotland-found-143727662.html)
-- Nov 21 - [Elon Musk is now boosting the ‘Pizzagate’ conspiracy theory](https://finance.yahoo.com/news/elon-musk-now-boosting-pizzagate-031459471.html)
 <!-- feed end -->
 
 ### Onstream
