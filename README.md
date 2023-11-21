@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - ['Unbelievable': Navy plane with 9 on board overshoots runway in Hawaii, lands in water](https://news.yahoo.com/unbelievable-navy-plane-9-board-030929706.html)
 - Nov 21 - [Trump Org controller returns to stand at Donald Trump’s NYC fraud trial, blames outside accountants for false financial statements](https://finance.yahoo.com/news/trump-org-controller-returns-stand-023400210.html)
-- Nov 21 - [U.S. military aircraft overshoots runway and lands in Hawaii bay](https://news.yahoo.com/u-military-aircraft-overshoots-runway-015343191.html)
-- Nov 21 - [Starship's 33 Engines Created The Mother Of All 'Shock Diamonds'](https://news.yahoo.com/starships-33-engines-created-mother-012706508.html)
+- Nov 21 - [Elon Musk's 'thermonuclear' lawsuit over hate-adjacent ads on X... actually confirms them](https://news.yahoo.com/elon-musks-thermonuclear-lawsuit-over-020440947.html)
 - Nov 21 - [Microsoft CEO Satya Nadella suggests that Sam Altman might return to OpenAI](https://news.yahoo.com/microsoft-ceo-satya-nadella-suggests-012236325.html)
-- Nov 21 - [All 9 aboard US Navy plane that overshot runway escape injury, Hawaii official says](https://news.yahoo.com/us-navy-plane-overshoots-runway-010131222.html)
+- Nov 21 - [Trump, on Biden's 81st birthday, releases doctor's note that says he's in 'excellent' health](https://news.yahoo.com/trump-bidens-81st-birthday-releases-003716881.html)
 <!-- feed end -->
 
 ### Onstream
