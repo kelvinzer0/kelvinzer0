@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Blackstone to close multi-strategy fund after assets drop nearly 90% - FT](https://finance.yahoo.com/news/blackstone-close-multi-strategy-fund-055307473.html)
 - Nov 21 - [New Hampshire man had no car, no furniture, but died with a big secret, leaving his town millions](https://news.yahoo.com/hampshire-man-had-no-car-051307346.html)
 - Nov 21 - [OpenAI's board approached Anthropic CEO about top job and merger - sources](https://finance.yahoo.com/news/openais-board-approached-anthropic-ceo-041651334.html)
 - Nov 21 - [Trump Sues MSNBC, Reuters and 18 Other News Orgs, Claims They ‘Coordinated’ in Misreporting $73 Million Truth Social Losses](https://www.yahoo.com/entertainment/trump-sues-msnbc-reuters-18-034630039.html)
-- Nov 21 - [Elon Musk is now boosting the ‘Pizzagate’ conspiracy theory](https://finance.yahoo.com/news/elon-musk-now-boosting-pizzagate-031459471.html)
+- Nov 21 - [Yemen's Houthis Release Footage of Militia Hijacking Ship in the Red Sea](https://news.yahoo.com/yemens-houthis-release-footage-militia-005238179.html)
+- Nov 21 - [Trump, on Biden's 81st birthday, releases doctor's note that says he's in 'excellent' health](https://news.yahoo.com/trump-bidens-81st-birthday-releases-003716881.html)
 <!-- feed end -->
 
 ### Onstream
