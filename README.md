@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 21 - [North Wales: Four bodies found in search for missing teens](https://news.yahoo.com/north-wales-four-bodies-found-170433853.html)
-- Nov 21 - [Missouri Supreme Court deals a blow to secretary of state's ballot language on abortion](https://news.yahoo.com/missouri-supreme-court-deals-blow-185815680.html)
-- Nov 21 - [In tears, ex-Trump exec testifies he gave up company job because he was tired of legal woes](https://news.yahoo.com/tears-ex-trump-exec-testifies-185328844.html)
-- Nov 21 - [I Have Regrets About Retiring Early: 4 Expenses I Should Have Prepared For](https://finance.yahoo.com/news/regrets-retiring-early-4-expenses-110008401.html)
-- Nov 21 - [Walmart's $9 billion store makeover may already be paying off](https://finance.yahoo.com/news/walmarts-9-billion-store-makeover-may-already-be-paying-off-173500290.html)
+- Nov 21 - [Why voters favor Trump’s economy over Biden’s](https://finance.yahoo.com/news/why-voters-favor-trumps-economy-over-bidens-193334608.html)
+- Nov 21 - [IRS delays $600 reporting rule for online payments — again](https://finance.yahoo.com/news/irs-delays-600-reporting-rule-193150393.html)
+- Nov 21 - [Trump’s Truth Social Parent Company Sues 20 Media Outlets](https://finance.yahoo.com/news/trump-truth-social-parent-company-035218020.html)
+- Nov 21 - [Capitol rioter who berated a judge and insulted a prosecutor is sentenced to 3 months in jail](https://news.yahoo.com/capitol-rioter-berated-judge-insulted-191158665.html)
 <!-- feed end -->
 
 ### Onstream
