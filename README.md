@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - [The Dutch Question Centuries of Openness as They Go to the Polls](https://news.yahoo.com/dutch-rethink-sex-drugs-profits-050002873.html)
+- Nov 21 - [Apple wants to make screens private and stop shoulder surfing](https://finance.yahoo.com/news/apple-wants-screens-private-stop-131802422.html)
 - Nov 21 - [Cassidy Hutchinson Gives Dark Reason Why ‘Everybody Should Vote For Joe Biden’](https://news.yahoo.com/cassidy-hutchinson-gives-dark-reason-125355353.html)
 - Nov 21 - [Conservative Pundit Trashes Donald Trump's 'Excellent' Doctor's Note With Just 1 Word](https://news.yahoo.com/conservative-pundit-trashes-donald-trumps-124322713.html)
 - Nov 21 - [Why You Will Get Two Social Security Checks in December](https://finance.yahoo.com/news/why-two-social-security-checks-121931294.html)
-- Nov 21 - [Sen. John Kennedy's Crude Joke About Kamala Harris Is Full-On Racist, People Say](https://www.yahoo.com/entertainment/sen-john-kennedys-crude-joke-121511816.html)
-- Nov 21 - [America's got a $2.5 billion wild hog problem. These states see the worst of it.](https://news.yahoo.com/americas-got-2-5-billion-103857469.html)
 <!-- feed end -->
 
 ### Onstream
