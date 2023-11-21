@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [AI: What is it about Sam Altman?](https://finance.yahoo.com/video/ai-sam-altman-120035451.html)
-- Nov 21 - [Almost a third of millionaires in the US now say they're part of the middle class — even the 'regular rich' like doctors, lawyers don't feel well off. But here's how they really stack up](https://finance.yahoo.com/news/almost-third-millionaires-us-now-120000548.html)
-- Nov 21 - [14 Absurd Photos From Waiters That Show Just How Wild Restaurant Life Can Get](https://www.yahoo.com/lifestyle/14-absurd-photos-waiters-show-111602824.html)
+- Nov 21 - [Cassidy Hutchinson Gives Dark Reason Why ‘Everybody Should Vote For Joe Biden’](https://news.yahoo.com/cassidy-hutchinson-gives-dark-reason-125355353.html)
+- Nov 21 - [Conservative Pundit Trashes Donald Trump's 'Excellent' Doctor's Note With Just 1 Word](https://news.yahoo.com/conservative-pundit-trashes-donald-trumps-124322713.html)
+- Nov 21 - [Why You Will Get Two Social Security Checks in December](https://finance.yahoo.com/news/why-two-social-security-checks-121931294.html)
+- Nov 21 - [Sen. John Kennedy's Crude Joke About Kamala Harris Is Full-On Racist, People Say](https://www.yahoo.com/entertainment/sen-john-kennedys-crude-joke-121511816.html)
 - Nov 21 - [America's got a $2.5 billion wild hog problem. These states see the worst of it.](https://news.yahoo.com/americas-got-2-5-billion-103857469.html)
-- Nov 21 - [Zelenskyy on whether Ukraine could kill Putin: We have the right to defend our land](https://news.yahoo.com/zelenskyy-whether-ukraine-could-kill-091703102.html)
 <!-- feed end -->
 
 ### Onstream
