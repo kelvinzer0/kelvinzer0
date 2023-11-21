@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [North Wales: Four bodies found in search for missing teens](https://news.yahoo.com/north-wales-four-bodies-found-170433853.html)
-- Nov 21 - [Why voters favor Trump’s economy over Biden’s](https://finance.yahoo.com/news/why-voters-favor-trumps-economy-over-bidens-193334608.html)
-- Nov 21 - [IRS delays $600 reporting rule for online payments — again](https://finance.yahoo.com/news/irs-delays-600-reporting-rule-193150393.html)
-- Nov 21 - [Trump’s Truth Social Parent Company Sues 20 Media Outlets](https://finance.yahoo.com/news/trump-truth-social-parent-company-035218020.html)
-- Nov 21 - [Capitol rioter who berated a judge and insulted a prosecutor is sentenced to 3 months in jail](https://news.yahoo.com/capitol-rioter-berated-judge-insulted-191158665.html)
+- Nov 21 - [Forget bedbugs: The Las Vegas Strip faces a bigger bug problem](https://www.thestreet.com/travel/forget-bedbugs-the-las-vegas-strip-faces-a-bigger-bug-problem?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 21 - [These 4 Lucky Zodiac Signs Will Have the Best Year During 2024](https://www.yahoo.com/lifestyle/4-lucky-zodiac-signs-best-200000566.html)
+- Nov 21 - [Tesla goes airborne, flies over swimming pool, crashes into house](https://www.autoblog.com/2023/11/21/tesla-model-x-flies-over-a-pool-and-crashes-into-a-house/)
+- Nov 21 - [Missouri Supreme Court deals a blow to secretary of state's ballot language on abortion](https://news.yahoo.com/missouri-supreme-court-deals-blow-185815680.html)
+- Nov 21 - [In tears, ex-Trump exec testifies he gave up company job because he was tired of legal woes](https://news.yahoo.com/tears-ex-trump-exec-testifies-185328844.html)
 <!-- feed end -->
 
 ### Onstream
