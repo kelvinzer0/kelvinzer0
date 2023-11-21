@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [The Dutch Question Centuries of Openness as They Go to the Polls](https://news.yahoo.com/dutch-rethink-sex-drugs-profits-050002873.html)
-- Nov 21 - [Apple wants to make screens private and stop shoulder surfing](https://finance.yahoo.com/news/apple-wants-screens-private-stop-131802422.html)
-- Nov 21 - [Cassidy Hutchinson Gives Dark Reason Why ‘Everybody Should Vote For Joe Biden’](https://news.yahoo.com/cassidy-hutchinson-gives-dark-reason-125355353.html)
-- Nov 21 - [Conservative Pundit Trashes Donald Trump's 'Excellent' Doctor's Note With Just 1 Word](https://news.yahoo.com/conservative-pundit-trashes-donald-trumps-124322713.html)
-- Nov 21 - [Why You Will Get Two Social Security Checks in December](https://finance.yahoo.com/news/why-two-social-security-checks-121931294.html)
+- Nov 21 - [Anti-censorship tools are quietly disappearing into thin air in China](https://news.yahoo.com/anti-censorship-tools-quietly-disappearing-145400635.html)
+- Nov 21 - [Maria Bartiromo Floats Wackadoodle COVID Theory That Has So Many Holes](https://www.yahoo.com/entertainment/maria-bartiromo-floats-wackadoodle-covid-143722003.html)
+- Nov 21 - [“That is not the law”: Legal experts torch Trump lawyer for trying to “stonewall” gag order judges](https://news.yahoo.com/not-law-legal-experts-torch-140917639.html)
+- Nov 21 - [‘Imminent Danger’: A Maine Powerball Winner Who Claimed $1.35B Prize Is Suing the Mother of His Child for Telling His Family About It](https://news.yahoo.com/imminent-danger-maine-powerball-winner-140000235.html)
+- Nov 21 - [Teachers and students grapple with fears and confusion about new laws restricting pronoun use](https://news.yahoo.com/teachers-students-grapple-fears-confusion-135748023.html)
 <!-- feed end -->
 
 ### Onstream
