@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - [US Senator calls for the public release of AT&T ‘Hemisphere’ surveillance records](https://www.engadget.com/us-senator-calls-for-the-public-release-of-att-hemisphere-surveillance-records-083627787.html)
+- Nov 21 - [China says would be 'serious mistake' if Argentina cuts ties](https://news.yahoo.com/china-says-serious-mistake-argentina-073348728.html)
 - Nov 21 - [New Hampshire man had no car, no furniture, but died with a big secret, leaving his town millions](https://news.yahoo.com/hampshire-man-had-no-car-051307346.html)
+- Nov 21 - [The Dutch Rethink Sex, Drugs and Profits as They Head to the Polls](https://news.yahoo.com/dutch-rethink-sex-drugs-profits-050002873.html)
 - Nov 21 - [Trump Sues MSNBC, Reuters and 18 Other News Orgs, Claims They ‘Coordinated’ in Misreporting $73 Million Truth Social Losses](https://www.yahoo.com/entertainment/trump-sues-msnbc-reuters-18-034630039.html)
-- Nov 21 - [‘He had no chance,’ Well-known Las Vegas-area road defect not fixed until child dies](https://news.yahoo.com/had-no-chance-well-known-025526361.html)
-- Nov 21 - [Mayor of McKeesport arrested in Nashville, issues statement](https://news.yahoo.com/mayor-mckeesport-arrested-nashville-issues-022425248.html)
-- Nov 21 - [Microsoft CEO Satya Nadella suggests that Sam Altman might return to OpenAI](https://news.yahoo.com/microsoft-ceo-satya-nadella-suggests-012236325.html)
 <!-- feed end -->
 
 ### Onstream
