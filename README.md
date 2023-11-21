@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - [Walmart's $9 billion store makeover may already be paying off](https://finance.yahoo.com/news/walmarts-9-billion-store-makeover-may-already-be-paying-off-173500290.html)
+- Nov 21 - [Papua rebels hold guns to hostage pilot’s head in alarming new video](https://news.yahoo.com/zealand-alarmed-over-video-showing-165927639.html)
+- Nov 21 - [Whale last seen decades ago found alive, but discovery ends in "heartbreak"](https://news.yahoo.com/whale-last-seen-decades-ago-165819434.html)
 - Nov 21 - [Bruins' Milan Lucic pleads not guilty to assaulting wife amid domestic abuse allegations](https://news.yahoo.com/nhl-boston-bruins-milan-lucic-arrest-police-report-domestic-abuse-allegations-plead-not-guilty-163438346.html)
-- Nov 21 - [Here's the dark horse tech giant that's going to come out ahead of Nvidia and Microsoft](https://www.thestreet.com/technology/nvidia-microsoft-amazon-technology-artificial-intelligence?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 21 - [5 Best States To Buy Property in the Next 5 Years, According to Real Estate Agents](https://finance.yahoo.com/news/m-real-estate-agent-best-120031644.html)
-- Nov 21 - [Tesla launched its own car insurance. These drivers say it's a lemon: 'totally ridiculous'](https://www.autoblog.com/2023/11/21/tesla-launched-its-own-car-insurance-these-drivers-say-its-a-lemon-totally-ridiculous/)
 - Nov 21 - [Russian soldiers are rumored to be sticking their hands out of trenches because they want to get shot](https://news.yahoo.com/russian-soldiers-rumored-sticking-hands-153811666.html)
 <!-- feed end -->
 
