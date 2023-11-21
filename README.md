@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Forget bedbugs: The Las Vegas Strip faces a bigger bug problem](https://www.thestreet.com/travel/forget-bedbugs-the-las-vegas-strip-faces-a-bigger-bug-problem?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 21 - [These 4 Lucky Zodiac Signs Will Have the Best Year During 2024](https://www.yahoo.com/lifestyle/4-lucky-zodiac-signs-best-200000566.html)
-- Nov 21 - [Tesla goes airborne, flies over swimming pool, crashes into house](https://www.autoblog.com/2023/11/21/tesla-model-x-flies-over-a-pool-and-crashes-into-a-house/)
-- Nov 21 - [Missouri Supreme Court deals a blow to secretary of state's ballot language on abortion](https://news.yahoo.com/missouri-supreme-court-deals-blow-185815680.html)
-- Nov 21 - [In tears, ex-Trump exec testifies he gave up company job because he was tired of legal woes](https://news.yahoo.com/tears-ex-trump-exec-testifies-185328844.html)
+- Nov 21 - [Video Shows Marines in All-Out Brawl With Civilians Outside Texas Nightclub](https://www.yahoo.com/entertainment/video-shows-marines-brawl-civilians-214133783.html)
+- Nov 21 - [4 out of 5 Mexicans who got a flu shot this year turned down Cuban and Russian COVID-19 vaccines](https://news.yahoo.com/4-5-mexicans-got-flu-212702131.html)
+- Nov 21 - [Nvidia outlook beats expectations but China worries linger](https://finance.yahoo.com/news/nvidia-forecasts-fourth-quarter-revenue-212701952.html)
+- Nov 21 - [USB-C AirPods Pro 2 just hit a ridiculously low price for Black Friday](https://news.yahoo.com/usb-c-airpods-pro-2-212346617.html)
+- Nov 21 - [Ex-Trump Org executive chokes up on stand at fraud trial](https://news.yahoo.com/ex-trump-org-executive-chokes-205300646.html)
 <!-- feed end -->
 
 ### Onstream
