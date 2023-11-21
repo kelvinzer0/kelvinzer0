@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - [Blackstone to close multi-strategy fund after assets drop nearly 90% - FT](https://finance.yahoo.com/news/blackstone-close-multi-strategy-fund-055307473.html)
+- Nov 21 - [New Hampshire man had no car, no furniture, but died with a big secret, leaving his town millions](https://news.yahoo.com/hampshire-man-had-no-car-051307346.html)
+- Nov 21 - [OpenAI's board approached Anthropic CEO about top job and merger - sources](https://finance.yahoo.com/news/openais-board-approached-anthropic-ceo-041651334.html)
 - Nov 21 - [Trump Sues MSNBC, Reuters and 18 Other News Orgs, Claims They ‘Coordinated’ in Misreporting $73 Million Truth Social Losses](https://www.yahoo.com/entertainment/trump-sues-msnbc-reuters-18-034630039.html)
-- Nov 21 - ['Unbelievable': Navy plane with 9 on board overshoots runway in Hawaii, lands in water](https://news.yahoo.com/unbelievable-navy-plane-9-board-030929706.html)
-- Nov 21 - [Trump Org controller returns to stand at Donald Trump’s NYC fraud trial, blames outside accountants for false financial statements](https://finance.yahoo.com/news/trump-org-controller-returns-stand-023400210.html)
-- Nov 21 - [US aircraft carrier Carl Vinson arrives in South Korea port](https://news.yahoo.com/us-aircraft-carrier-carl-vinson-013836674.html)
-- Nov 21 - [Microsoft CEO Satya Nadella suggests that Sam Altman might return to OpenAI](https://news.yahoo.com/microsoft-ceo-satya-nadella-suggests-012236325.html)
+- Nov 21 - [Elon Musk is now boosting the ‘Pizzagate’ conspiracy theory](https://finance.yahoo.com/news/elon-musk-now-boosting-pizzagate-031459471.html)
 <!-- feed end -->
 
 ### Onstream
