@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [US Senator calls for the public release of AT&T ‘Hemisphere’ surveillance records](https://www.engadget.com/us-senator-calls-for-the-public-release-of-att-hemisphere-surveillance-records-083627787.html)
+- Nov 21 - [Nvidia earnings: OpenAI drama, record high stock price set the table for key report](https://finance.yahoo.com/news/nvidia-earnings-openai-drama-record-high-stock-price-set-the-table-for-key-report-211445574.html)
+- Nov 21 - [Philippines launches joint sea and air patrols with U.S. military](https://news.yahoo.com/philippines-marcos-says-joint-patrols-083500318.html)
 - Nov 21 - [China says would be 'serious mistake' if Argentina cuts ties](https://news.yahoo.com/china-says-serious-mistake-argentina-073348728.html)
+- Nov 21 - [War in Ukraine can escalate into World War III, Russia is preparing – Zelenskyy](https://news.yahoo.com/war-ukraine-escalate-world-war-072609107.html)
 - Nov 21 - [New Hampshire man had no car, no furniture, but died with a big secret, leaving his town millions](https://news.yahoo.com/hampshire-man-had-no-car-051307346.html)
-- Nov 21 - [The Dutch Rethink Sex, Drugs and Profits as They Head to the Polls](https://news.yahoo.com/dutch-rethink-sex-drugs-profits-050002873.html)
-- Nov 21 - [Trump Sues MSNBC, Reuters and 18 Other News Orgs, Claims They ‘Coordinated’ in Misreporting $73 Million Truth Social Losses](https://www.yahoo.com/entertainment/trump-sues-msnbc-reuters-18-034630039.html)
 <!-- feed end -->
 
 ### Onstream
