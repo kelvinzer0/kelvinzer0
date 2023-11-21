@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Anti-censorship tools are quietly disappearing into thin air in China](https://news.yahoo.com/anti-censorship-tools-quietly-disappearing-145400635.html)
-- Nov 21 - [Maria Bartiromo Floats Wackadoodle COVID Theory That Has So Many Holes](https://www.yahoo.com/entertainment/maria-bartiromo-floats-wackadoodle-covid-143722003.html)
-- Nov 21 - [“That is not the law”: Legal experts torch Trump lawyer for trying to “stonewall” gag order judges](https://news.yahoo.com/not-law-legal-experts-torch-140917639.html)
-- Nov 21 - [‘Imminent Danger’: A Maine Powerball Winner Who Claimed $1.35B Prize Is Suing the Mother of His Child for Telling His Family About It](https://news.yahoo.com/imminent-danger-maine-powerball-winner-140000235.html)
-- Nov 21 - [Teachers and students grapple with fears and confusion about new laws restricting pronoun use](https://news.yahoo.com/teachers-students-grapple-fears-confusion-135748023.html)
+- Nov 21 - [Palantir Stock Is Having an Incredible Year. A New Contract Is the Latest Positive.](https://www.barrons.com/articles/palantir-stock-nhs-contract-cdeb3d22?siteid=yhoof2&yptr=yahoo)
+- Nov 21 - [Russian soldiers are rumored to be sticking their hands out of trenches because they want to get shot](https://news.yahoo.com/russian-soldiers-rumored-sticking-hands-153811666.html)
+- Nov 21 - [Popular cereal gets Bud Light treatment after sneaky marketing campaign](https://www.thestreet.com/restaurants/popular-cereal-gets-bud-light-treatment-after-sneaky-marketing-campaign?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 21 - [A schoolboy digging potatoes in Scotland found an ancient Egyptian statue. Nobody knows how it got there.](https://www.yahoo.com/entertainment/schoolboy-digging-potatoes-scotland-found-143727662.html)
+- Nov 21 - [Elon Musk is now boosting the ‘Pizzagate’ conspiracy theory](https://finance.yahoo.com/news/elon-musk-now-boosting-pizzagate-031459471.html)
 <!-- feed end -->
 
 ### Onstream
