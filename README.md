@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Nvidia earnings: OpenAI drama, record high stock price set the table for key report](https://finance.yahoo.com/news/nvidia-earnings-openai-drama-record-high-stock-price-set-the-table-for-key-report-211445574.html)
-- Nov 21 - [Philippines launches joint sea and air patrols with U.S. military](https://news.yahoo.com/philippines-marcos-says-joint-patrols-083500318.html)
-- Nov 21 - [China says would be 'serious mistake' if Argentina cuts ties](https://news.yahoo.com/china-says-serious-mistake-argentina-073348728.html)
+- Nov 21 - [Marvin Connelly of Cumberland County Schools named top superintendent in North Carolina](https://news.yahoo.com/marvin-connelly-cumberland-county-schools-101735748.html)
+- Nov 21 - [Exclusive-China's state banks seen swapping and selling dollars for yuan -sources](https://finance.yahoo.com/news/exclusive-chinas-state-banks-seen-095214842.html)
+- Nov 21 - [China warns Argentina severing ties would be 'serious mistake'](https://news.yahoo.com/china-says-serious-mistake-argentina-073348728.html)
 - Nov 21 - [War in Ukraine can escalate into World War III, Russia is preparing – Zelenskyy](https://news.yahoo.com/war-ukraine-escalate-world-war-072609107.html)
-- Nov 21 - [New Hampshire man had no car, no furniture, but died with a big secret, leaving his town millions](https://news.yahoo.com/hampshire-man-had-no-car-051307346.html)
+- Nov 21 - [Autumn statement: Why it matters for your pensions](https://uk.finance.yahoo.com/news/autumn-statement-pensions-060036044.html)
 <!-- feed end -->
 
 ### Onstream
