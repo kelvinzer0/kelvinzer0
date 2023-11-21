@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - [North Wales: Four bodies found in search for missing teens](https://news.yahoo.com/north-wales-four-bodies-found-170433853.html)
+- Nov 21 - [Missouri Supreme Court deals a blow to secretary of state's ballot language on abortion](https://news.yahoo.com/missouri-supreme-court-deals-blow-185815680.html)
+- Nov 21 - [In tears, ex-Trump exec testifies he gave up company job because he was tired of legal woes](https://news.yahoo.com/tears-ex-trump-exec-testifies-185328844.html)
+- Nov 21 - [I Have Regrets About Retiring Early: 4 Expenses I Should Have Prepared For](https://finance.yahoo.com/news/regrets-retiring-early-4-expenses-110008401.html)
 - Nov 21 - [Walmart's $9 billion store makeover may already be paying off](https://finance.yahoo.com/news/walmarts-9-billion-store-makeover-may-already-be-paying-off-173500290.html)
-- Nov 21 - [Papua rebels hold guns to hostage pilot’s head in alarming new video](https://news.yahoo.com/zealand-alarmed-over-video-showing-165927639.html)
-- Nov 21 - [Whale last seen decades ago found alive, but discovery ends in "heartbreak"](https://news.yahoo.com/whale-last-seen-decades-ago-165819434.html)
-- Nov 21 - [Bruins' Milan Lucic pleads not guilty to assaulting wife amid domestic abuse allegations](https://news.yahoo.com/nhl-boston-bruins-milan-lucic-arrest-police-report-domestic-abuse-allegations-plead-not-guilty-163438346.html)
-- Nov 21 - [Russian soldiers are rumored to be sticking their hands out of trenches because they want to get shot](https://news.yahoo.com/russian-soldiers-rumored-sticking-hands-153811666.html)
 <!-- feed end -->
 
 ### Onstream
