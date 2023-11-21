@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 21 - [Jan. 6 rioter who used sovereign citizen 'gobbledygook' at trial is found guilty](https://news.yahoo.com/jan-6-rioter-used-sovereign-222124154.html)
+- Nov 21 - [Jordan says it beefs up army presence along borders with Israel](https://news.yahoo.com/jordan-says-beefs-army-presence-220107172.html)
+- Nov 21 - [Video Shows 'Possessed' Woman Being Removed From Flight After Wailing and Climbing Over Seats](https://www.yahoo.com/entertainment/video-shows-possessed-woman-being-215154599.html)
 - Nov 21 - [Video Shows Marines in All-Out Brawl With Civilians Outside Texas Nightclub](https://www.yahoo.com/entertainment/video-shows-marines-brawl-civilians-214133783.html)
-- Nov 21 - [4 out of 5 Mexicans who got a flu shot this year turned down Cuban and Russian COVID-19 vaccines](https://news.yahoo.com/4-5-mexicans-got-flu-212702131.html)
-- Nov 21 - [Nvidia outlook beats expectations but China worries linger](https://finance.yahoo.com/news/nvidia-forecasts-fourth-quarter-revenue-212701952.html)
-- Nov 21 - [USB-C AirPods Pro 2 just hit a ridiculously low price for Black Friday](https://news.yahoo.com/usb-c-airpods-pro-2-212346617.html)
-- Nov 21 - [Ex-Trump Org executive chokes up on stand at fraud trial](https://news.yahoo.com/ex-trump-org-executive-chokes-205300646.html)
+- Nov 21 - [The best at-home COVID-19 test for 2023](https://www.yahoo.com/lifestyle/best-at-home-covid-test-211258740.html)
 <!-- feed end -->
 
 ### Onstream
