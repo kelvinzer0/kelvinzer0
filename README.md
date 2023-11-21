@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Marvin Connelly of Cumberland County Schools named top superintendent in North Carolina](https://news.yahoo.com/marvin-connelly-cumberland-county-schools-101735748.html)
-- Nov 21 - [Exclusive-China's state banks seen swapping and selling dollars for yuan -sources](https://finance.yahoo.com/news/exclusive-chinas-state-banks-seen-095214842.html)
-- Nov 21 - [China warns Argentina severing ties would be 'serious mistake'](https://news.yahoo.com/china-says-serious-mistake-argentina-073348728.html)
-- Nov 21 - [War in Ukraine can escalate into World War III, Russia is preparing – Zelenskyy](https://news.yahoo.com/war-ukraine-escalate-world-war-072609107.html)
-- Nov 21 - [Autumn statement: Why it matters for your pensions](https://uk.finance.yahoo.com/news/autumn-statement-pensions-060036044.html)
+- Nov 21 - [AI: What is it about Sam Altman?](https://finance.yahoo.com/video/ai-sam-altman-120035451.html)
+- Nov 21 - [Almost a third of millionaires in the US now say they're part of the middle class — even the 'regular rich' like doctors, lawyers don't feel well off. But here's how they really stack up](https://finance.yahoo.com/news/almost-third-millionaires-us-now-120000548.html)
+- Nov 21 - [14 Absurd Photos From Waiters That Show Just How Wild Restaurant Life Can Get](https://www.yahoo.com/lifestyle/14-absurd-photos-waiters-show-111602824.html)
+- Nov 21 - [America's got a $2.5 billion wild hog problem. These states see the worst of it.](https://news.yahoo.com/americas-got-2-5-billion-103857469.html)
+- Nov 21 - [Zelenskyy on whether Ukraine could kill Putin: We have the right to defend our land](https://news.yahoo.com/zelenskyy-whether-ukraine-could-kill-091703102.html)
 <!-- feed end -->
 
 ### Onstream
