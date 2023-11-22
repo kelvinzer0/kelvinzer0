@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Warren Buffett Discusses Loneliness In Wealth And Importance Of Avoiding Toxicity: 'I've Never Known Anybody That Was Basically Kind That Died Without Friends. And I've Known Plenty of People With Money That Have Died Without Friends'](https://finance.yahoo.com/news/warren-buffett-discusses-loneliness-wealth-164125362.html)
+- Nov 22 - [Democrats who swept Moms For Liberty off school board fight superintendent's $700,000 exit deal](https://news.yahoo.com/democrats-swept-moms-liberty-off-172605000.html)
+- Nov 22 - [Woman Who Threw Hot Drink at Dad at Brooklyn Playground and Called Him 'Terrorist' Charged with Hate Crime](https://www.yahoo.com/entertainment/woman-threw-coffee-dad-brooklyn-164642498.html)
 - Nov 22 - [Massive find made by seafloor mapping team in Pacific Ocean, scientists say](https://news.yahoo.com/massive-made-seafloor-mapping-team-163857092.html)
-- Nov 22 - [PNC to cut 19 branches in February](https://news.yahoo.com/pnc-cut-19-branches-february-161608988.html)
-- Nov 22 - [After 34 years, Johnson County Applebee’s closes. ‘Thanks for being our neighbor’](https://news.yahoo.com/34-years-johnson-county-applebee-155237288.html)
-- Nov 22 - [Android 14: Google's release dates, new features and everything else you need to know](https://www.engadget.com/android-14-googles-release-dates-new-features-and-everything-else-you-need-to-know-150057490.html)
+- Nov 22 - [Autodesk stock falls despite Q3 earnings beat](https://finance.yahoo.com/video/autodesk-stock-falls-despite-q3-153652816.html)
+- Nov 22 - [AutoZone customers' personal information breached, including Social Security numbers](https://www.autoblog.com/2023/11/22/185000-autozone-customers-personal-information-breached/)
 <!-- feed end -->
 
 ### Onstream
