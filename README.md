@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [The 3 most popular editions of Apple AirPods are on sale for Black Friday on Amazon — as low as $80](https://news.yahoo.com/apple-airpods-sale-amazon-203029665.html)
-- Nov 22 - [New AP analysis of last month's deadly Gaza hospital explosion rules out widely cited video](https://news.yahoo.com/ap-analysis-last-months-deadly-151211465.html)
+- Nov 22 - [Warren Buffett Discusses Loneliness In Wealth And Importance Of Avoiding Toxicity: 'I've Never Known Anybody That Was Basically Kind That Died Without Friends. And I've Known Plenty of People With Money That Have Died Without Friends'](https://finance.yahoo.com/news/warren-buffett-discusses-loneliness-wealth-164125362.html)
+- Nov 22 - [Massive find made by seafloor mapping team in Pacific Ocean, scientists say](https://news.yahoo.com/massive-made-seafloor-mapping-team-163857092.html)
+- Nov 22 - [PNC to cut 19 branches in February](https://news.yahoo.com/pnc-cut-19-branches-february-161608988.html)
+- Nov 22 - [After 34 years, Johnson County Applebee’s closes. ‘Thanks for being our neighbor’](https://news.yahoo.com/34-years-johnson-county-applebee-155237288.html)
 - Nov 22 - [Android 14: Google's release dates, new features and everything else you need to know](https://www.engadget.com/android-14-googles-release-dates-new-features-and-everything-else-you-need-to-know-150057490.html)
-- Nov 22 - [Archaeologists Think They Might Have Found the Real Noah’s Ark](https://www.yahoo.com/lifestyle/archaeologists-think-might-found-real-150000958.html)
-- Nov 22 - [Mike Johnson backed Clarence Thomas' suggestion that the Supreme Court 'reconsider' its rulings on contraception and same-sex marriage](https://news.yahoo.com/mike-johnson-backed-clarence-thomas-145640789.html)
 <!-- feed end -->
 
 ### Onstream
