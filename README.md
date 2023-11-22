@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Sam Altman reinstated as OpenAI CEO five days after being fired](https://news.yahoo.com/sam-altman-is-reinstated-as-openai-ceo-five-days-after-being-fired-070037749.html)
+- Nov 22 - [Marjorie Taylor Greene's Book Is Now Out And Critics Are Suggesting A Scathing New Use](https://news.yahoo.com/marjorie-taylor-greenes-book-now-085358691.html)
 - Nov 22 - [Sam Altman to return as OpenAI CEO](https://news.yahoo.com/sam-altman-return-openai-ceo-060655300.html)
-- Nov 22 - [16 Jobs You Might Not Think Twice About That Actually Pay Surprisingly Well](https://www.yahoo.com/lifestyle/16-jobs-might-not-think-044503869.html)
+- Nov 22 - [Amber Alert issued for two 6-year-old girls missing from Kyle, Texas](https://news.yahoo.com/amber-alert-issued-two-6-035454352.html)
 - Nov 22 - [Man caught, ate two conchs in Key West, cops say. The decision landed him behind bars](https://news.yahoo.com/man-caught-ate-two-conchs-022536787.html)
 - Nov 22 - [12 Countries Have Aircraft Carriers But Only One Has A $13.3 Billion Warship](https://finance.yahoo.com/news/12-countries-aircraft-carriers-only-021651461.html)
 <!-- feed end -->
