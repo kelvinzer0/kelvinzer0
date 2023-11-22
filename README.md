@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 22 - [Sam Altman reinstated as OpenAI CEO five days after being fired](https://news.yahoo.com/sam-altman-is-reinstated-as-openai-ceo-five-days-after-being-fired-070037749.html)
+- Nov 22 - [Sam Altman to return as OpenAI CEO](https://news.yahoo.com/sam-altman-return-openai-ceo-060655300.html)
+- Nov 22 - [16 Jobs You Might Not Think Twice About That Actually Pay Surprisingly Well](https://www.yahoo.com/lifestyle/16-jobs-might-not-think-044503869.html)
 - Nov 22 - [Man caught, ate two conchs in Key West, cops say. The decision landed him behind bars](https://news.yahoo.com/man-caught-ate-two-conchs-022536787.html)
 - Nov 22 - [12 Countries Have Aircraft Carriers But Only One Has A $13.3 Billion Warship](https://finance.yahoo.com/news/12-countries-aircraft-carriers-only-021651461.html)
-- Nov 22 - [Family of woman missing on yoga retreat responds to witness who broke silence after weeks](https://news.yahoo.com/family-woman-missing-yoga-retreat-001047354.html)
-- Nov 22 - [Iowa official’s wife found guilty on all 52 counts of voter fraud charges](https://news.yahoo.com/iowa-official-wife-found-guilty-000043427.html)
-- Nov 21 - [Donald Trump has worst day yet in NY civil fraud trial as underling's scribbled note ties him to conspiracy](https://news.yahoo.com/donald-trump-worst-day-yet-223034300.html)
 <!-- feed end -->
 
 ### Onstream
