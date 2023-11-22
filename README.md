@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Killing 4,000 Palestinian children 'wasn't enough', ex-Obama adviser tells vendor in verbal attack](https://news.yahoo.com/killing-4-000-palestinian-children-122039823.html)
-- Nov 22 - [Marjorie Taylor Greene and Mike Lee get Jan. 6 footage — but trying to blame the FBI could backfire](https://news.yahoo.com/marjorie-taylor-greene-mike-lee-110001725.html)
-- Nov 22 - [Russia's budget deficit seen at around 1% of GDP this year -finance minister](https://finance.yahoo.com/news/russias-budget-deficit-seen-around-102357855.html)
-- Nov 22 - [Stock-Split Watch: 2 Unstoppable Artificial Intelligence (AI) Growth Stocks That Could Split Their Shares in the Coming Year](https://www.fool.com/investing/2023/11/22/stock-split-watch-2-unstoppable-artificial-intelli/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 22 - [Police warn residents after "extremely venomous" green mamba escapes](https://news.yahoo.com/police-warn-residents-extremely-venomous-123949206.html)
+- Nov 22 - [Russian actress killed in Ukrainian strike while performing to soldiers](https://news.yahoo.com/russian-actress-killed-ukrainian-strike-121908060.html)
+- Nov 22 - [I Have $1 Million in a Roth IRA and Will Receive $2,250 Monthly From Social Security. Can I Retire at 62?](https://finance.yahoo.com/news/1-million-roth-ira-receive-120000338.html)
 - Nov 22 - [Marjorie Taylor Greene's Book Is Now Out And Critics Are Suggesting A Scathing New Use](https://news.yahoo.com/marjorie-taylor-greenes-book-now-085358691.html)
+- Nov 22 - [Over 200 migrants found locked in a trailer in Mexico](https://news.yahoo.com/over-200-migrants-found-locked-072251699.html)
 <!-- feed end -->
 
 ### Onstream
