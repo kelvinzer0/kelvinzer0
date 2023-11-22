@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 22 - [HW Electro’s solar-powered Puzzle will bring microvan cuteness to the US in 2025](https://news.yahoo.com/hw-electros-solar-powered-puzzle-will-bring-microvan-cuteness-to-the-us-in-2025-202326474.html)
 - Nov 22 - [Israeli army displays tunnel beneath Al Shifa it says served as Hamas hideout](https://news.yahoo.com/israeli-army-displays-tunnel-beneath-195825668.html)
-- Nov 22 - [People Believe $1.8 Million Is Needed For Retirement, Experts Suggest Otherwise — Unraveling Myths And Smart Savings Strategies That Can Help You Save For Your Future](https://finance.yahoo.com/news/people-believe-1-8-million-195059552.html)
-- Nov 22 - [Ohio Bowhunter Tags 197-Inch "Brother Buck" on a Small, 50-Acre Property](https://www.yahoo.com/lifestyle/ohio-bowhunter-tags-197-inch-190151825.html)
+- Nov 22 - [Forget Siri. Turn your iPhone's 'Action Button' into a ChatGPT voice assistant instead](https://news.yahoo.com/forget-siri-turn-iphones-action-193826233.html)
 - Nov 22 - [BofA bullish on Canadian energy stocks ahead of ‘challenging’ 2024](https://news.yahoo.com/bofa-bullish-canadian-energy-stocks-ahead-of-challenging-2024-183042669.html)
-- Nov 22 - [The Shocking Donors Behind a Pro-Trump Nonprofit](https://news.yahoo.com/shocking-donors-behind-pro-trump-181201628.html)
+- Nov 22 - [CNN Releases Audio Of Mike Johnson Calling Abortion An ‘American Holocaust’](https://news.yahoo.com/cnn-releases-audio-mike-johnson-181658960.html)
 <!-- feed end -->
 
 ### Onstream
