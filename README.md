@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Surprised Florida SWAT team watches dog surrender and climb  into armored vehicle](https://news.yahoo.com/surprised-florida-swat-team-watches-143730734.html)
-- Nov 22 - [Burger King menu adds sandwiches McDonald's and Wendy's can't make](https://www.thestreet.com/restaurants/burger-king-menu-adds-sandwiches-mcdonalds-wendys-cant-make?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 22 - [Putin says we must think how to stop 'the tragedy' of war in Ukraine](https://news.yahoo.com/putin-must-think-stop-tragedy-135838216.html)
-- Nov 22 - ['There's no money': Argentina's Milei doubles down on economic shock therapy](https://news.yahoo.com/theres-no-money-argentinas-milei-132533523.html)
-- Nov 22 - [UK Intelligence predicts 'unfortunate' outcome for Russia in battles near Krynky, Kherson Oblast](https://news.yahoo.com/uk-intelligence-predicts-unfortunate-outcome-132400183.html)
+- Nov 22 - [The 3 most popular editions of Apple AirPods are on sale for Black Friday on Amazon — as low as $80](https://news.yahoo.com/apple-airpods-sale-amazon-203029665.html)
+- Nov 22 - [New AP analysis of last month's deadly Gaza hospital explosion rules out widely cited video](https://news.yahoo.com/ap-analysis-last-months-deadly-151211465.html)
+- Nov 22 - [Android 14: Google's release dates, new features and everything else you need to know](https://www.engadget.com/android-14-googles-release-dates-new-features-and-everything-else-you-need-to-know-150057490.html)
+- Nov 22 - [Archaeologists Think They Might Have Found the Real Noah’s Ark](https://www.yahoo.com/lifestyle/archaeologists-think-might-found-real-150000958.html)
+- Nov 22 - [Mike Johnson backed Clarence Thomas' suggestion that the Supreme Court 'reconsider' its rulings on contraception and same-sex marriage](https://news.yahoo.com/mike-johnson-backed-clarence-thomas-145640789.html)
 <!-- feed end -->
 
 ### Onstream
