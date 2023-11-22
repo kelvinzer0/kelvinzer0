@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Jan. 6 rioter who used sovereign citizen 'gobbledygook' at trial is found guilty](https://news.yahoo.com/jan-6-rioter-used-sovereign-222124154.html)
+- Nov 21 - [Bruins' Milan Lucic pleads not guilty to assaulting wife amid domestic abuse allegations](https://news.yahoo.com/nhl-boston-bruins-milan-lucic-arrest-police-report-domestic-abuse-allegations-plead-not-guilty-163438346.html)
+- Nov 21 - [Matt Gaetz’s Constituents Hate Him](https://news.yahoo.com/matt-gaetz-constituents-hate-him-223720848.html)
+- Nov 21 - [Donald Trump has worst day yet in NY civil fraud trial as underling's scribbled note ties him to conspiracy](https://news.yahoo.com/donald-trump-worst-day-yet-223034300.html)
 - Nov 21 - [Jordan says it beefs up army presence along borders with Israel](https://news.yahoo.com/jordan-says-beefs-army-presence-220107172.html)
-- Nov 21 - [Video Shows 'Possessed' Woman Being Removed From Flight After Wailing and Climbing Over Seats](https://www.yahoo.com/entertainment/video-shows-possessed-woman-being-215154599.html)
-- Nov 21 - [Video Shows Marines in All-Out Brawl With Civilians Outside Texas Nightclub](https://www.yahoo.com/entertainment/video-shows-marines-brawl-civilians-214133783.html)
-- Nov 21 - [The best at-home COVID-19 test for 2023](https://www.yahoo.com/lifestyle/best-at-home-covid-test-211258740.html)
+- Nov 21 - [Donald Trump’s Truth Social Has Millions In Financial Losses, SEC Filing Shows – Update](https://www.yahoo.com/entertainment/donald-trump-truth-social-73m-025819639.html)
 <!-- feed end -->
 
 ### Onstream
