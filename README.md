@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [HW Electro’s solar-powered Puzzle will bring microvan cuteness to the US in 2025](https://news.yahoo.com/hw-electros-solar-powered-puzzle-will-bring-microvan-cuteness-to-the-us-in-2025-202326474.html)
+- Nov 22 - [Judge on Trump NY Fraud Case Receives ‘Serious and Credible’ Death Threats From MAGA](https://news.yahoo.com/judge-trump-ny-fraud-case-212521090.html)
+- Nov 22 - [Norwegian Cruise Line cancels more than 7 months of sailings](https://news.yahoo.com/norwegian-cruise-line-cancels-more-201843419.html)
 - Nov 22 - [Israeli army displays tunnel beneath Al Shifa it says served as Hamas hideout](https://news.yahoo.com/israeli-army-displays-tunnel-beneath-195825668.html)
+- Nov 22 - [Turkey tells NATO that Sweden won't join by next week's meeting -sources](https://news.yahoo.com/turkey-tells-nato-sweden-wont-193843374.html)
 - Nov 22 - [Forget Siri. Turn your iPhone's 'Action Button' into a ChatGPT voice assistant instead](https://news.yahoo.com/forget-siri-turn-iphones-action-193826233.html)
-- Nov 22 - [BofA bullish on Canadian energy stocks ahead of ‘challenging’ 2024](https://news.yahoo.com/bofa-bullish-canadian-energy-stocks-ahead-of-challenging-2024-183042669.html)
-- Nov 22 - [CNN Releases Audio Of Mike Johnson Calling Abortion An ‘American Holocaust’](https://news.yahoo.com/cnn-releases-audio-mike-johnson-181658960.html)
 <!-- feed end -->
 
 ### Onstream
