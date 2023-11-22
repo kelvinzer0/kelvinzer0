@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Nov 22 - [Man caught, ate two conchs in Key West, cops say. The decision landed him behind bars](https://news.yahoo.com/man-caught-ate-two-conchs-022536787.html)
 - Nov 22 - [12 Countries Have Aircraft Carriers But Only One Has A $13.3 Billion Warship](https://finance.yahoo.com/news/12-countries-aircraft-carriers-only-021651461.html)
 - Nov 22 - [Family of woman missing on yoga retreat responds to witness who broke silence after weeks](https://news.yahoo.com/family-woman-missing-yoga-retreat-001047354.html)
-- Nov 21 - [North Wales: Four bodies found in search for missing teens](https://news.yahoo.com/north-wales-four-bodies-found-170433853.html)
-- Nov 21 - [Matt Gaetz’s Constituents Hate Him](https://news.yahoo.com/matt-gaetz-constituents-hate-him-223720848.html)
+- Nov 22 - [Iowa official’s wife found guilty on all 52 counts of voter fraud charges](https://news.yahoo.com/iowa-official-wife-found-guilty-000043427.html)
+- Nov 21 - [Donald Trump has worst day yet in NY civil fraud trial as underling's scribbled note ties him to conspiracy](https://news.yahoo.com/donald-trump-worst-day-yet-223034300.html)
 <!-- feed end -->
 
 ### Onstream
