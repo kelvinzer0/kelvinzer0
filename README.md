@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 21 - [Bruins' Milan Lucic pleads not guilty to assaulting wife amid domestic abuse allegations](https://news.yahoo.com/nhl-boston-bruins-milan-lucic-arrest-police-report-domestic-abuse-allegations-plead-not-guilty-163438346.html)
+- Nov 21 - [‘We have no job’: KC-area breakfast and lunch chain suddenly closes two locations](https://news.yahoo.com/no-job-kc-area-breakfast-235917223.html)
+- Nov 21 - [Tesla's congestion fee bills $1 a minute to charge your car past 90 percent](https://news.yahoo.com/teslas-idle-fees-will-charge-drivers-who-keep-their-cars-plugged-in-after-theyve-topped-up-230601570.html)
+- Nov 21 - [North Wales: Four bodies found in search for missing teens](https://news.yahoo.com/north-wales-four-bodies-found-170433853.html)
+- Nov 21 - [Florida man throws package of Oreos at wife while arguing over empty coffee maker: officials](https://news.yahoo.com/florida-man-throws-package-oreos-224610570.html)
 - Nov 21 - [Matt Gaetz’s Constituents Hate Him](https://news.yahoo.com/matt-gaetz-constituents-hate-him-223720848.html)
-- Nov 21 - [Donald Trump has worst day yet in NY civil fraud trial as underling's scribbled note ties him to conspiracy](https://news.yahoo.com/donald-trump-worst-day-yet-223034300.html)
-- Nov 21 - [Jordan says it beefs up army presence along borders with Israel](https://news.yahoo.com/jordan-says-beefs-army-presence-220107172.html)
-- Nov 21 - [Donald Trump’s Truth Social Has Millions In Financial Losses, SEC Filing Shows – Update](https://www.yahoo.com/entertainment/donald-trump-truth-social-73m-025819639.html)
 <!-- feed end -->
 
 ### Onstream
