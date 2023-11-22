@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [US weekly jobless claims fall; labor market still slowing](https://news.yahoo.com/us-weekly-jobless-claims-fall-134920217.html)
-- Nov 22 - [Utah Gov. removed Guard commander two years after learning of problems](https://news.yahoo.com/utah-gov-removed-guard-commander-133758327.html)
-- Nov 22 - [Early holiday shopping trends show deal-focused consumers this season](https://finance.yahoo.com/news/early-holiday-shopping-trends-show-deal-focused-consumers-this-season-133014448.html)
+- Nov 22 - [Surprised Florida SWAT team watches dog surrender and climb  into armored vehicle](https://news.yahoo.com/surprised-florida-swat-team-watches-143730734.html)
+- Nov 22 - [Burger King menu adds sandwiches McDonald's and Wendy's can't make](https://www.thestreet.com/restaurants/burger-king-menu-adds-sandwiches-mcdonalds-wendys-cant-make?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 22 - [Putin says we must think how to stop 'the tragedy' of war in Ukraine](https://news.yahoo.com/putin-must-think-stop-tragedy-135838216.html)
 - Nov 22 - ['There's no money': Argentina's Milei doubles down on economic shock therapy](https://news.yahoo.com/theres-no-money-argentinas-milei-132533523.html)
-- Nov 22 - [Timekeepers no more, rank-and-file Jehovah's Witnesses say goodbye to tracking proselytizing hours](https://news.yahoo.com/timekeepers-no-more-rank-file-131155035.html)
+- Nov 22 - [UK Intelligence predicts 'unfortunate' outcome for Russia in battles near Krynky, Kherson Oblast](https://news.yahoo.com/uk-intelligence-predicts-unfortunate-outcome-132400183.html)
 <!-- feed end -->
 
 ### Onstream
