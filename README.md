@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Police warn residents after "extremely venomous" green mamba escapes](https://news.yahoo.com/police-warn-residents-extremely-venomous-123949206.html)
-- Nov 22 - [Russian actress killed in Ukrainian strike while performing to soldiers](https://news.yahoo.com/russian-actress-killed-ukrainian-strike-121908060.html)
-- Nov 22 - [I Have $1 Million in a Roth IRA and Will Receive $2,250 Monthly From Social Security. Can I Retire at 62?](https://finance.yahoo.com/news/1-million-roth-ira-receive-120000338.html)
-- Nov 22 - [Marjorie Taylor Greene's Book Is Now Out And Critics Are Suggesting A Scathing New Use](https://news.yahoo.com/marjorie-taylor-greenes-book-now-085358691.html)
-- Nov 22 - [Over 200 migrants found locked in a trailer in Mexico](https://news.yahoo.com/over-200-migrants-found-locked-072251699.html)
+- Nov 22 - [US weekly jobless claims fall; labor market still slowing](https://news.yahoo.com/us-weekly-jobless-claims-fall-134920217.html)
+- Nov 22 - [Utah Gov. removed Guard commander two years after learning of problems](https://news.yahoo.com/utah-gov-removed-guard-commander-133758327.html)
+- Nov 22 - [Early holiday shopping trends show deal-focused consumers this season](https://finance.yahoo.com/news/early-holiday-shopping-trends-show-deal-focused-consumers-this-season-133014448.html)
+- Nov 22 - ['There's no money': Argentina's Milei doubles down on economic shock therapy](https://news.yahoo.com/theres-no-money-argentinas-milei-132533523.html)
+- Nov 22 - [Timekeepers no more, rank-and-file Jehovah's Witnesses say goodbye to tracking proselytizing hours](https://news.yahoo.com/timekeepers-no-more-rank-file-131155035.html)
 <!-- feed end -->
 
 ### Onstream
