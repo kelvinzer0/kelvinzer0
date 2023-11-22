@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Bodybuilder left bedbound by condition which is seeing her slowly "internally decapitated"](https://news.yahoo.com/bodybuilder-left-bedbound-condition-seeing-092534421.html)
-- Nov 22 - [Sam Altman to return as OpenAI CEO](https://news.yahoo.com/sam-altman-return-openai-ceo-060655300.html)
-- Nov 22 - [16 Jobs You Might Not Think Twice About That Actually Pay Surprisingly Well](https://www.yahoo.com/lifestyle/16-jobs-might-not-think-044503869.html)
-- Nov 22 - [15 Very, Very, Very Embarrassing Things People Posted On The Internet](https://www.yahoo.com/lifestyle/15-people-log-off-asap-031602627.html)
-- Nov 22 - [Man caught, ate two conchs in Key West, cops say. The decision landed him behind bars](https://news.yahoo.com/man-caught-ate-two-conchs-022536787.html)
+- Nov 22 - [Cabin crew hospitalised after ‘severe turbulence’ during flight](https://news.yahoo.com/cabin-crew-hospitalised-severe-turbulence-104414886.html)
+- Nov 22 - [Russia's budget deficit seen at around 1% of GDP this year -finance minister](https://finance.yahoo.com/news/russias-budget-deficit-seen-around-102357855.html)
+- Nov 22 - [Ukrainian intelligence teases with video filmed in Kerch of ‘absolutely unnecessary’ Crimean bridge](https://news.yahoo.com/ukrainian-intelligence-teases-video-filmed-094100182.html)
+- Nov 22 - [Marjorie Taylor Greene's Book Is Now Out And Critics Are Suggesting A Scathing New Use](https://news.yahoo.com/marjorie-taylor-greenes-book-now-085358691.html)
+- Nov 22 - [Over 200 migrants found locked in a trailer in Mexico](https://news.yahoo.com/over-200-migrants-found-locked-072251699.html)
 <!-- feed end -->
 
 ### Onstream
