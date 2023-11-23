@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 23 - [Committee to elect Romney-Manchin says it will reveal donors, calls on critics to do same](https://news.yahoo.com/committee-elect-romney-manchin-says-014257635.html)
-- Nov 23 - [Israel unveils what it claims is a major Hamas hideout beneath Gaza City’s Shifa Hospital](https://news.yahoo.com/israel-unveils-claims-major-hamas-011657219.html)
+- Nov 23 - [Gen Z girlies are showing off their ‘comfort’ necklaces in a new trend — but what exactly is it?](https://news.yahoo.com/gen-z-girlies-showing-off-013550626.html)
+- Nov 23 - ['Unheard of': Trump attacks led to 'serious and credible' death threats to court](https://news.yahoo.com/unheard-trump-attacks-led-serious-013228152.html)
 - Nov 23 - [KISS Fan, Not Terrorist, Crashes Vehicle on Rainbow Bridge](https://www.yahoo.com/entertainment/kiss-fan-not-terrorist-crashes-005248401.html)
-- Nov 23 - [Flames and Smoke Rise After Vehicle Explosion at US-Canada Border](https://news.yahoo.com/flames-smoke-rise-vehicle-explosion-005114474.html)
-- Nov 22 - [Michigan Senate candidate Hill Harper said he was offered $20 million to mount a primary challenge against Rep. Rashida Tlaib](https://news.yahoo.com/michigan-senate-candidate-hill-harper-234521740.html)
+- Nov 22 - [Georgia Supreme Court ruling prevents GOP-backed commission from beginning to discipline prosecutors](https://news.yahoo.com/georgia-supreme-court-ruling-prevents-224935027.html)
 <!-- feed end -->
 
 ### Onstream
