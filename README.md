@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 23 - [Donald Trump Shares 'Happy Thanksgiving' Message With Unhinged Twist](https://news.yahoo.com/donald-trump-shares-happy-thanksgiving-090924811.html)
-- Nov 23 - [China says Philippines enlisted 'foreign forces' to patrol South China Sea](https://news.yahoo.com/china-says-philippines-enlisted-foreign-084020798.html)
-- Nov 23 - [Ex-Federal Prosecutor Shreds Trump Over 'Vile' New Filing Details: 'Enough Is Enough'](https://news.yahoo.com/ex-federal-prosecutor-shreds-trump-082533588.html)
-- Nov 23 - [Dozens evacuate and 10 homes are destroyed by a wildfire burning out of control on the edge of Perth](https://news.yahoo.com/dozens-evacuate-10-homes-destroyed-053313147.html)
+- Nov 23 - [China says Philippines enlists foreign force to stir trouble in South China Sea](https://news.yahoo.com/china-says-philippines-enlisted-foreign-084020798.html)
+- Nov 23 - [Netflix handed a director millions to make a sci-fi series, but he squandered it on stocks, crypto, and flashy cars: NYT](https://www.yahoo.com/entertainment/netflix-handed-director-millions-sci-052557642.html)
 - Nov 23 - ['Completely unacceptable': Threats against subjects of Trump's ire revealed in gag order filing](https://news.yahoo.com/completely-unacceptable-threats-against-subjects-045640096.html)
+- Nov 23 - [Gen Z girlies are showing off their ‘comfort’ necklaces in a new trend — but what exactly is it?](https://news.yahoo.com/gen-z-girlies-showing-off-013550626.html)
 <!-- feed end -->
 
 ### Onstream
