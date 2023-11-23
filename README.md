@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 22 - [Tesla Cybertruck claims 2,500-lb payload capacity, 11,000-lb tow rating](https://www.autoblog.com/2023/11/22/tesla-cybertruck-claims-2500-lb-payload-capacity-11000-lb-tow-rating/)
-- Nov 22 - [Judge on Trump NY Fraud Case Receives ‘Serious and Credible’ Death Threats From MAGA](https://news.yahoo.com/judge-trump-ny-fraud-case-212521090.html)
-- Nov 22 - [Israeli army displays tunnel beneath Al Shifa it says served as Hamas hideout](https://news.yahoo.com/israeli-army-displays-tunnel-beneath-195825668.html)
-- Nov 22 - [Turkey tells NATO that Sweden won't join by next week's meeting -sources](https://news.yahoo.com/turkey-tells-nato-sweden-wont-193843374.html)
-- Nov 22 - [Forget Siri. Turn your iPhone's 'Action Button' into a ChatGPT voice assistant instead](https://news.yahoo.com/forget-siri-turn-iphones-action-193826233.html)
+- Nov 23 - [Israel unveils what it claims is a major Hamas militant hideout beneath Gaza City's Shifa Hospital](https://news.yahoo.com/israel-unveils-claims-major-hamas-004143222.html)
+- Nov 23 - [Jamie Foxx Accused Of Sexual Assault In New Court Docs](https://news.yahoo.com/jamie-foxx-accused-sexual-assault-003445791.html)
+- Nov 22 - [Michigan Senate candidate Hill Harper said he was offered $20 million to mount a primary challenge against Rep. Rashida Tlaib](https://news.yahoo.com/michigan-senate-candidate-hill-harper-234521740.html)
+- Nov 22 - [Ukrainian Drone Boat Appears To Have Been Captured By Russia](https://news.yahoo.com/ukrainian-drone-boat-appears-captured-234229380.html)
+- Nov 22 - [Georgia Supreme Court ruling prevents GOP-backed commission from beginning to discipline prosecutors](https://news.yahoo.com/georgia-supreme-court-ruling-prevents-224935027.html)
 <!-- feed end -->
 
 ### Onstream
