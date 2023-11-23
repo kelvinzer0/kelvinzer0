@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 23 - [FBI ends investigation of car wreck at Niagara Falls bridge, no indication of terrorism](https://news.yahoo.com/fbi-ends-investigation-car-wreck-174925860.html)
+- Nov 23 - [Chinese Spacecraft That Smashed Into Moon Was Carrying Something Mysterious, Scientists Say](https://news.yahoo.com/chinese-spacecraft-smashed-moon-carrying-160004424.html)
 - Nov 23 - [A pilot who decapitated a wingsuit flyer with his plane's wing has been found guilty of manslaughter](https://news.yahoo.com/pilot-decapitated-wingsuit-flyer-planes-154402244.html)
 - Nov 23 - [Quebec lottery player wins $25,000 a year for life — but opts for different prize](https://news.yahoo.com/quebec-lottery-grande-vie-winner-25000-for-life-153055433.html)
 - Nov 23 - [Study determines the astronomical true cost of electric vehicle ownership](https://www.thestreet.com/electric-vehicles/electric-vehicle-tesla-adoption-curve-cost?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 23 - [Meteorologists Just Released Snowfall Predictions for This Winter](https://www.yahoo.com/lifestyle/meteorologists-just-released-snowfall-predictions-140000359.html)
-- Nov 23 - [Ukrainian drone operators keep hitting Russian soldiers caught ‘desecrating’ Ukrainian land – video](https://news.yahoo.com/ukrainian-drone-operators-keep-hitting-124700843.html)
 <!-- feed end -->
 
 ### Onstream
