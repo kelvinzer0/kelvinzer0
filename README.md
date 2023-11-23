@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 23 - [German police raid homes of Hamas members in crackdown on 'glorification of terror'](https://news.yahoo.com/german-police-raid-homes-hamas-133022804.html)
+- Nov 23 - [Ukrainian drone operators keep hitting Russian soldiers caught ‘desecrating’ Ukrainian land – video](https://news.yahoo.com/ukrainian-drone-operators-keep-hitting-124700843.html)
+- Nov 23 - [Scientists Have Bad News for Astronauts’ Genitals](https://news.yahoo.com/scientists-bad-news-astronauts-genitals-123036036.html)
 - Nov 23 - ['We're going to throw them in the garbage': UFC CEO Dana White demanded that all Peloton bikes be removed from his gyms after hearing a story from comedian Theo Von — here's why](https://finance.yahoo.com/news/were-going-throw-them-garbage-114500787.html)
 - Nov 23 - [Tropical creature spotted in Pennsylvania for first time in history: ‘Definitely attracting a lot of attention’](https://www.yahoo.com/lifestyle/tropical-creature-spotted-pennsylvania-first-130000366.html)
-- Nov 23 - [New study reveals one group devouring as much as half of America’s beef: ‘This was a big surprise’](https://news.yahoo.com/study-reveals-one-group-devouring-180000398.html)
-- Nov 23 - [1 Surprising Artificial Intelligence (AI) Growth Stock to Buy Before It Soars 2,175%, According to Cathie Wood's Ark Invest](https://www.fool.com/investing/2023/11/23/1-ai-stock-to-buy-before-it-soars-2175-cathie-wood/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 23 - [Russian media report death of propagandist from Russia-24 TV channel, who was wearing military uniform in combat zone](https://news.yahoo.com/russian-media-report-death-propagandist-102238471.html)
 <!-- feed end -->
 
 ### Onstream
