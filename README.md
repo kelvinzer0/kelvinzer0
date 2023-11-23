@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 23 - [Donald Trump Shares 'Happy Thanksgiving' Message With Unhinged Twist](https://news.yahoo.com/donald-trump-shares-happy-thanksgiving-090924811.html)
 - Nov 23 - [China says Philippines enlisted 'foreign forces' to patrol South China Sea](https://news.yahoo.com/china-says-philippines-enlisted-foreign-084020798.html)
-- Nov 23 - [Elderly couple sues Ogden police for excessive force](https://news.yahoo.com/elderly-couple-sues-ogden-police-013718392.html)
-- Nov 23 - [Gen Z girlies are showing off their ‘comfort’ necklaces in a new trend — but what exactly is it?](https://news.yahoo.com/gen-z-girlies-showing-off-013550626.html)
-- Nov 23 - [KISS Fan, Not Terrorist, Crashes Vehicle on Rainbow Bridge](https://www.yahoo.com/entertainment/kiss-fan-not-terrorist-crashes-005248401.html)
-- Nov 23 - [Flames and Smoke Rise After Vehicle Explosion at US-Canada Border](https://news.yahoo.com/flames-smoke-rise-vehicle-explosion-005114474.html)
+- Nov 23 - [Ex-Federal Prosecutor Shreds Trump Over 'Vile' New Filing Details: 'Enough Is Enough'](https://news.yahoo.com/ex-federal-prosecutor-shreds-trump-082533588.html)
+- Nov 23 - [Dozens evacuate and 10 homes are destroyed by a wildfire burning out of control on the edge of Perth](https://news.yahoo.com/dozens-evacuate-10-homes-destroyed-053313147.html)
+- Nov 23 - ['Completely unacceptable': Threats against subjects of Trump's ire revealed in gag order filing](https://news.yahoo.com/completely-unacceptable-threats-against-subjects-045640096.html)
 <!-- feed end -->
 
 ### Onstream
