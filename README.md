@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 23 - [Elderly couple sues Ogden police for excessive force](https://news.yahoo.com/elderly-couple-sues-ogden-police-013718392.html)
+- Nov 23 - [Terrorism ruled out in car crash at US-Canada border](https://news.yahoo.com/terrorism-ruled-car-crash-us-053256010.html)
 - Nov 23 - [Gen Z girlies are showing off their ‘comfort’ necklaces in a new trend — but what exactly is it?](https://news.yahoo.com/gen-z-girlies-showing-off-013550626.html)
 - Nov 23 - [More than 43,000 people went to the polls for a Louisiana election. A candidate won by 1 vote](https://news.yahoo.com/more-43-000-people-went-011103412.html)
 - Nov 23 - [KISS Fan, Not Terrorist, Crashes Vehicle on Rainbow Bridge](https://www.yahoo.com/entertainment/kiss-fan-not-terrorist-crashes-005248401.html)
-- Nov 23 - [Flames and Smoke Rise After Vehicle Explosion at US-Canada Border](https://news.yahoo.com/flames-smoke-rise-vehicle-explosion-005114474.html)
+- Nov 22 - [Michigan Senate candidate Hill Harper said he was offered $20 million to mount a primary challenge against Rep. Rashida Tlaib](https://news.yahoo.com/michigan-senate-candidate-hill-harper-234521740.html)
 <!-- feed end -->
 
 ### Onstream
