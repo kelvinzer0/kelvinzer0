@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 23 - [Russian takeover of Ukraine planned since 2008 — Ukrainian professor](https://news.yahoo.com/russian-takeover-ukraine-planned-since-184000899.html)
-- Nov 23 - [Texas mom demands school district protection after harassment of her kids](https://news.yahoo.com/texas-mom-demands-school-district-172539630.html)
+- Nov 23 - [Warren Buffett Says Poor People Waste Money On These 12 Things](https://finance.yahoo.com/news/warren-buffett-12-things-poor-143028989.html)
+- Nov 23 - [Brothels that allegedly hosted political, military leaders raked in 'astounding' amounts of money: prosecutors](https://news.yahoo.com/brothels-allegedly-hosted-political-military-164930801.html)
 - Nov 23 - [Chinese Spacecraft That Smashed Into Moon Was Carrying Something Mysterious, Scientists Say](https://news.yahoo.com/chinese-spacecraft-smashed-moon-carrying-160004424.html)
 - Nov 23 - [A pilot who decapitated a wingsuit flyer with his plane's wing has been found guilty of manslaughter](https://news.yahoo.com/pilot-decapitated-wingsuit-flyer-planes-154402244.html)
 - Nov 23 - [Quebec lottery player wins $25,000 a year for life — but opts for different prize](https://news.yahoo.com/quebec-lottery-grande-vie-winner-25000-for-life-153055433.html)
