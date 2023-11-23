@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 23 - [German police raid homes of Hamas members in crackdown on 'glorification of terror'](https://news.yahoo.com/german-police-raid-homes-hamas-133022804.html)
-- Nov 23 - [Ukrainian drone operators keep hitting Russian soldiers caught ‘desecrating’ Ukrainian land – video](https://news.yahoo.com/ukrainian-drone-operators-keep-hitting-124700843.html)
-- Nov 23 - [Scientists Have Bad News for Astronauts’ Genitals](https://news.yahoo.com/scientists-bad-news-astronauts-genitals-123036036.html)
+- Nov 23 - [Study determines the astronomical true cost of electric vehicle ownership](https://www.thestreet.com/electric-vehicles/electric-vehicle-tesla-adoption-curve-cost?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 23 - [Meteorologists Just Released Snowfall Predictions for This Winter](https://www.yahoo.com/lifestyle/meteorologists-just-released-snowfall-predictions-140000359.html)
+- Nov 23 - [Biden Campaign Posts Bold Thanksgiving Guide for Countering 'Crazy MAGA Nonsense' at the Dinner Table](https://www.yahoo.com/entertainment/biden-campaign-posts-bold-thanksgiving-140000426.html)
 - Nov 23 - ['We're going to throw them in the garbage': UFC CEO Dana White demanded that all Peloton bikes be removed from his gyms after hearing a story from comedian Theo Von — here's why](https://finance.yahoo.com/news/were-going-throw-them-garbage-114500787.html)
-- Nov 23 - [Tropical creature spotted in Pennsylvania for first time in history: ‘Definitely attracting a lot of attention’](https://www.yahoo.com/lifestyle/tropical-creature-spotted-pennsylvania-first-130000366.html)
+- Nov 23 - [New study reveals one group devouring as much as half of America’s beef: ‘This was a big surprise’](https://news.yahoo.com/study-reveals-one-group-devouring-180000398.html)
 <!-- feed end -->
 
 ### Onstream
