@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 23 - [China says Philippines enlisted 'foreign forces' to patrol South China Sea](https://news.yahoo.com/china-says-philippines-enlisted-foreign-084020798.html)
+- Nov 23 - [Elderly couple sues Ogden police for excessive force](https://news.yahoo.com/elderly-couple-sues-ogden-police-013718392.html)
 - Nov 23 - [Gen Z girlies are showing off their ‘comfort’ necklaces in a new trend — but what exactly is it?](https://news.yahoo.com/gen-z-girlies-showing-off-013550626.html)
 - Nov 23 - [KISS Fan, Not Terrorist, Crashes Vehicle on Rainbow Bridge](https://www.yahoo.com/entertainment/kiss-fan-not-terrorist-crashes-005248401.html)
 - Nov 23 - [Flames and Smoke Rise After Vehicle Explosion at US-Canada Border](https://news.yahoo.com/flames-smoke-rise-vehicle-explosion-005114474.html)
-- Nov 22 - [Georgia Supreme Court ruling prevents GOP-backed commission from beginning to discipline prosecutors](https://news.yahoo.com/georgia-supreme-court-ruling-prevents-224935027.html)
-- Nov 22 - [Exclusive-OpenAI researchers warned board of AI breakthrough ahead of CEO ouster, sources say](https://news.yahoo.com/exclusive-sam-altmans-ouster-openai-224405760.html)
 <!-- feed end -->
 
 ### Onstream
