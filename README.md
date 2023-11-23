@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 23 - ['We're going to throw them in the garbage': UFC CEO Dana White demanded that all Peloton bikes be removed from his gyms after hearing a story from comedian Theo Von — here's why](https://finance.yahoo.com/news/were-going-throw-them-garbage-114500787.html)
 - Nov 23 - [Donald Trump Shares 'Happy Thanksgiving' Message With Unhinged Twist](https://news.yahoo.com/donald-trump-shares-happy-thanksgiving-090924811.html)
-- Nov 23 - [China says Philippines enlists foreign force to stir trouble in South China Sea](https://news.yahoo.com/china-says-philippines-enlisted-foreign-084020798.html)
-- Nov 23 - [Netflix handed a director millions to make a sci-fi series, but he squandered it on stocks, crypto, and flashy cars: NYT](https://www.yahoo.com/entertainment/netflix-handed-director-millions-sci-052557642.html)
+- Nov 23 - [Ukrainians Fire on Russian Position From US-Made Bradley in Battle for Strategic Avdiivka](https://news.yahoo.com/ukrainians-fire-russian-position-us-090847280.html)
+- Nov 23 - [Sources: Deadly crash at US-Canadian border bridge involved husband and wife in a Bentley, investigators believe](https://news.yahoo.com/fbi-investigating-vehicle-explosion-killed-200335681.html)
 - Nov 23 - ['Completely unacceptable': Threats against subjects of Trump's ire revealed in gag order filing](https://news.yahoo.com/completely-unacceptable-threats-against-subjects-045640096.html)
-- Nov 23 - [Gen Z girlies are showing off their ‘comfort’ necklaces in a new trend — but what exactly is it?](https://news.yahoo.com/gen-z-girlies-showing-off-013550626.html)
 <!-- feed end -->
 
 ### Onstream
