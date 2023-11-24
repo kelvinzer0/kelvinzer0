@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Saugus police investigating Thanksgiving Eve brawl at Kowloon restaurant](https://news.yahoo.com/saugus-police-investigating-thanksgiving-eve-181223182.html)
-- Nov 24 - [I would not want to be a Houthi guard aboard that hijacked merchant ship right now](https://news.yahoo.com/not-want-houthi-guard-aboard-171928540.html)
+- Nov 24 - [‘Disgusting’: Saugus police investigating Thanksgiving Eve brawl at Kowloon Restaurant](https://news.yahoo.com/saugus-police-investigating-thanksgiving-eve-181223182.html)
+- Nov 24 - [Minnesota Rep. Dean Phillips announces he won't seek reelection to 3rd Congressional District amid presidential run](https://news.yahoo.com/minnesota-rep-dean-phillips-announces-182300576.html)
+- Nov 24 - [A Russian A320 that made an emergency landing in a wheat field gave customers about $1,100 in compensation](https://news.yahoo.com/russian-a320-made-emergency-landing-180053075.html)
+- Nov 24 - [Sunken World War II carrier resting place identified 78 years later](https://news.yahoo.com/sunken-world-war-ii-carrier-173000847.html)
 - Nov 24 - [Tiffany Haddish Arrested In Beverly Hills After Reportedly Falling Asleep At The Wheel](https://www.yahoo.com/entertainment/tiffany-haddish-arrested-beverly-hills-171526234.html)
-- Nov 24 - [Bill Gates Could Be A Trillionaire Today If He Had 'Diamond-Handed' His Original Microsoft Shares](https://finance.yahoo.com/news/bill-gates-could-trillionaire-today-163852659.html)
-- Nov 24 - [Rainbow Bridge: Police identify couple killed in US-Canada border crash](https://news.yahoo.com/rainbow-bridge-police-identify-couple-161116362.html)
 <!-- feed end -->
 
 ### Onstream
