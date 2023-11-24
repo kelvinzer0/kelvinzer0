@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [LATAM Airlines retakes lead in US-Brazil traffic, first time since pandemic](https://finance.yahoo.com/news/latam-airlines-retakes-lead-us-155613074.html)
+- Nov 24 - [‘Macho’ IDF chiefs ignored female surveillance soldiers who warned of Hamas attack](https://news.yahoo.com/women-spotters-said-hamas-preparing-164123674.html)
+- Nov 24 - [Rainbow Bridge: Police identify couple killed in US-Canada border crash](https://news.yahoo.com/rainbow-bridge-police-identify-couple-161116362.html)
+- Nov 24 - [Ex-Binance CEO Zhao urges judge to allow him to leave US before sentencing](https://finance.yahoo.com/news/ex-binance-ceo-zhao-urges-160732817.html)
 - Nov 24 - [With less than 6 weeks before deadline, 3,400 gun owners have registered guns covered by Illinois ban](https://news.yahoo.com/less-6-weeks-deadline-3-152600322.html)
-- Nov 24 - [The hostages' families should have been jailed to shut them up, says former US citizen who was an Israeli spy](https://news.yahoo.com/hostages-families-jailed-shut-them-152212508.html)
-- Nov 24 - [50-year-old muscles just can’t grow big like they used to – the biology of how muscles change with age](https://news.yahoo.com/50-old-muscles-just-t-130737439.html)
-- Nov 24 - [Democrat Recalls 'Disgusting' Way Marjorie Taylor Greene Acted To Jan. 6 Defendants](https://news.yahoo.com/democrat-recalls-disgusting-way-marjorie-134307146.html)
+- Nov 24 - [Switching to a healthy diet could add 10 years to your life. 3 foods seemed to make the biggest difference in a study.](https://www.yahoo.com/lifestyle/switching-healthy-diet-could-add-143414432.html)
 <!-- feed end -->
 
 ### Onstream
