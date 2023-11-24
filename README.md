@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Is It Worth Considering TWC Enterprises Limited (TSE:TWC) For Its Upcoming Dividend?](https://finance.yahoo.com/news/worth-considering-twc-enterprises-limited-102407309.html)
-- Nov 24 - [Washington Post: Russian, Chinese companies discuss possible underwater Crimean tunnel project](https://news.yahoo.com/washington-post-russian-chinese-companies-084145775.html)
-- Nov 24 - [New Book Divulges Donald Trump's 'Colorful Language' About Evangelicals](https://news.yahoo.com/book-divulges-donald-trumps-colorful-082052088.html)
-- Nov 24 - [NVIDIA sued for stealing trade secrets after screensharing blunder showed rival company's code](https://news.yahoo.com/nvidia-sued-for-stealing-trade-secrets-after-screensharing-blunder-showed-rival-companys-code-063009605.html)
-- Nov 24 - [‘I fell in love with a superstar surgeon who turned out to be a conman’](https://www.yahoo.com/lifestyle/fell-love-superstar-surgeon-turned-060000019.html)
+- Nov 24 - [UN confirms sexual spread of mpox in Congo for the 1st time as country sees a record outbreak](https://news.yahoo.com/un-confirms-sexual-spread-mpox-121221290.html)
+- Nov 24 - [$1,000 Invested in These 3 Dividend Stocks Could Make You Rich](https://www.fool.com/investing/2023/11/24/1000-invested-in-these-3-dividend-stocks-could-mak/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 24 - [Ukraine aims a major drone attack at Crimea as Russia tries to capture a destroyed eastern city](https://news.yahoo.com/ukraine-aims-major-drone-attack-112318885.html)
+- Nov 24 - [What happens if a sitting president dies while running for reelection](https://news.yahoo.com/happens-sitting-president-dies-while-112301327.html)
+- Nov 24 - [Letters to the Editor: Biden is a great president. He should serve the country by stepping aside](https://news.yahoo.com/letters-editor-biden-great-president-110017861.html)
 <!-- feed end -->
 
 ### Onstream
