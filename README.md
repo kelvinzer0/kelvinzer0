@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Anker Black Friday 2023: Get up to 60 percent off portable chargers, cables, surge protectors and more](https://news.yahoo.com/anker-black-friday-2023-get-up-to-60-percent-off-portable-chargers-cables-surge-protectors-and-more-124521131.html)
+- Nov 24 - [Democrat Recalls 'Disgusting' Way Marjorie Taylor Greene Acted To Jan. 6 Defendants](https://news.yahoo.com/democrat-recalls-disgusting-way-marjorie-134307146.html)
+- Nov 24 - [‘Fat, bearded and a smoker’: Oscar Pistorius may be free, but his career is over](https://news.yahoo.com/fat-bearded-smoker-oscar-pistorius-133324123.html)
+- Nov 24 - [Egypt president says future Palestinian state could be demilitarised](https://news.yahoo.com/egypt-president-says-future-palestinian-131558310.html)
 - Nov 24 - [An agency created an AI model who earns up to $11,000 a month because it was tired of influencers 'who have egos'](https://news.yahoo.com/agency-created-ai-model-earns-123629846.html)
-- Nov 24 - [‘You’ll end up with $1.5 million in the bank’: Kevin O’Leary says to do this one thing with your 401(k) so you can 'succeed into retirement'](https://finance.yahoo.com/news/ll-end-1-5-million-103000581.html)
-- Nov 24 - [Ukraine aims a major drone attack at Crimea as Russia tries to capture a destroyed eastern city](https://news.yahoo.com/ukraine-aims-major-drone-attack-112318885.html)
-- Nov 24 - [What happens if a sitting president dies while running for reelection](https://news.yahoo.com/happens-sitting-president-dies-while-112301327.html)
+- Nov 24 - [Apple Black Friday deals: The 9th-gen iPad is $99 off and down to a record-low price](https://news.yahoo.com/apple-black-friday-deals-the-9th-gen-ipad-is-99-off-and-down-to-a-record-low-price-100000164.html)
 <!-- feed end -->
 
 ### Onstream
