@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Farmer jailed for clearing Herefordshire river insists ‘I didn’t do anything wrong’](https://news.yahoo.com/farmer-jailed-clearing-herefordshire-river-190335123.html)
+- Nov 24 - [Rainbow Bridge: Police identify couple killed in US-Canada border crash](https://news.yahoo.com/rainbow-bridge-police-identify-couple-161116362.html)
+- Nov 24 - [Daryl Hall is suing John Oates over plan to sell stake in joint venture. A judge has paused the sale](https://finance.yahoo.com/news/daryl-hall-suing-john-oates-202141624.html)
+- Nov 24 - [This Two-Headed 1953 Chrysler Rail Car Was Too Fast for Its Own Good](https://news.yahoo.com/two-headed-1953-chrysler-rail-200000935.html)
 - Nov 24 - [Melania Trump Was Extended an Olive Branch by Rosalynn Carter Ahead of Her Death](https://www.yahoo.com/entertainment/melania-trump-extended-olive-branch-185900702.html)
-- Nov 24 - [The update we all need: Meadow, the Great Dane with 15 puppies, adopted by 'amazing family'](https://news.yahoo.com/meadow-great-dane-15-puppies-183115987.html)
 - Nov 24 - [Kamala Harris roasted for Thanksgiving pic: 'Is that a gas stove?'](https://news.yahoo.com/kamala-harris-roasted-thanksgiving-pic-183014829.html)
-- Nov 24 - [A Russian A320 that made an emergency landing in a wheat field gave customers about $1,100 in compensation](https://news.yahoo.com/russian-a320-made-emergency-landing-180053075.html)
 <!-- feed end -->
 
 ### Onstream
