@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 24 - [I would not want to be a Houthi guard aboard that hijacked merchant ship right now](https://news.yahoo.com/not-want-houthi-guard-aboard-171928540.html)
+- Nov 24 - [Tiffany Haddish Arrested In Beverly Hills After Reportedly Falling Asleep At The Wheel](https://www.yahoo.com/entertainment/tiffany-haddish-arrested-beverly-hills-171526234.html)
 - Nov 24 - [‘Macho’ IDF chiefs ignored female surveillance soldiers who warned of Hamas attack](https://news.yahoo.com/women-spotters-said-hamas-preparing-164123674.html)
+- Nov 24 - [Bill Gates Could Be A Trillionaire Today If He Had 'Diamond-Handed' His Original Microsoft Shares](https://finance.yahoo.com/news/bill-gates-could-trillionaire-today-163852659.html)
 - Nov 24 - [Rainbow Bridge: Police identify couple killed in US-Canada border crash](https://news.yahoo.com/rainbow-bridge-police-identify-couple-161116362.html)
-- Nov 24 - [Ex-Binance CEO Zhao urges judge to allow him to leave US before sentencing](https://finance.yahoo.com/news/ex-binance-ceo-zhao-urges-160732817.html)
-- Nov 24 - [With less than 6 weeks before deadline, 3,400 gun owners have registered guns covered by Illinois ban](https://news.yahoo.com/less-6-weeks-deadline-3-152600322.html)
-- Nov 24 - [Switching to a healthy diet could add 10 years to your life. 3 foods seemed to make the biggest difference in a study.](https://www.yahoo.com/lifestyle/switching-healthy-diet-could-add-143414432.html)
 <!-- feed end -->
 
 ### Onstream
