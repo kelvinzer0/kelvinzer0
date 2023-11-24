@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 24 - [Seagate Expansion Cards for Xbox Series S and Series X are down to record-low prices in an Amazon Black Friday deal](https://news.yahoo.com/seagate-expansion-cards-for-xbox-series-s-and-series-x-are-down-to-record-low-prices-in-an-amazon-black-friday-deal-224523376.html)
+- Nov 24 - [5 family members and a commercial fisherman neighbor are ID'd as dead or missing in Alaska landslide](https://news.yahoo.com/5-family-members-commercial-fisherman-223224621.html)
+- Nov 24 - [Japanese archaeologists unearth massive stash of 100,000 ancient coins](https://news.yahoo.com/japanese-archaeologists-unearth-massive-stash-222542019.html)
 - Nov 24 - [Rainbow Bridge: Police identify couple killed in US-Canada border crash](https://news.yahoo.com/rainbow-bridge-police-identify-couple-161116362.html)
 - Nov 24 - [Daryl Hall is suing John Oates over plan to sell stake in joint venture. A judge has paused the sale](https://finance.yahoo.com/news/daryl-hall-suing-john-oates-202141624.html)
-- Nov 24 - [This Two-Headed 1953 Chrysler Rail Car Was Too Fast for Its Own Good](https://news.yahoo.com/two-headed-1953-chrysler-rail-200000935.html)
-- Nov 24 - [Melania Trump Was Extended an Olive Branch by Rosalynn Carter Ahead of Her Death](https://www.yahoo.com/entertainment/melania-trump-extended-olive-branch-185900702.html)
-- Nov 24 - [Kamala Harris roasted for Thanksgiving pic: 'Is that a gas stove?'](https://news.yahoo.com/kamala-harris-roasted-thanksgiving-pic-183014829.html)
 <!-- feed end -->
 
 ### Onstream
