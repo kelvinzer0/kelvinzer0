@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Olympic runner Oscar Pistorius up for parole Friday, 10 years after a killing that shocked the world](https://news.yahoo.com/olympic-runner-oscar-pistorius-parole-000444563.html)
 - Nov 23 - [Sources: Deadly crash at US-Canadian border bridge involved husband and wife in a Bentley, investigators believe](https://news.yahoo.com/fbi-investigating-vehicle-explosion-killed-200335681.html)
+- Nov 23 - [Mysterious cosmic ray observed in Utah came from beyond our galaxy, scientists say](https://news.yahoo.com/mysterious-cosmic-ray-observed-utah-193249107.html)
 - Nov 23 - [Chinese Spacecraft That Smashed Into Moon Was Carrying Something Mysterious, Scientists Say](https://news.yahoo.com/chinese-spacecraft-smashed-moon-carrying-160004424.html)
 - Nov 23 - [A pilot who decapitated a wingsuit flyer with his plane's wing has been found guilty of manslaughter](https://news.yahoo.com/pilot-decapitated-wingsuit-flyer-planes-154402244.html)
 - Nov 23 - [Quebec lottery player wins $25,000 a year for life — but opts for different prize](https://news.yahoo.com/quebec-lottery-grande-vie-winner-25000-for-life-153055433.html)
