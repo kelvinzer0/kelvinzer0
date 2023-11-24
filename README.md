@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [UN confirms sexual spread of mpox in Congo for the 1st time as country sees a record outbreak](https://news.yahoo.com/un-confirms-sexual-spread-mpox-121221290.html)
-- Nov 24 - [$1,000 Invested in These 3 Dividend Stocks Could Make You Rich](https://www.fool.com/investing/2023/11/24/1000-invested-in-these-3-dividend-stocks-could-mak/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 24 - [Anker Black Friday 2023: Get up to 60 percent off portable chargers, cables, surge protectors and more](https://news.yahoo.com/anker-black-friday-2023-get-up-to-60-percent-off-portable-chargers-cables-surge-protectors-and-more-124521131.html)
+- Nov 24 - [An agency created an AI model who earns up to $11,000 a month because it was tired of influencers 'who have egos'](https://news.yahoo.com/agency-created-ai-model-earns-123629846.html)
+- Nov 24 - [‘You’ll end up with $1.5 million in the bank’: Kevin O’Leary says to do this one thing with your 401(k) so you can 'succeed into retirement'](https://finance.yahoo.com/news/ll-end-1-5-million-103000581.html)
 - Nov 24 - [Ukraine aims a major drone attack at Crimea as Russia tries to capture a destroyed eastern city](https://news.yahoo.com/ukraine-aims-major-drone-attack-112318885.html)
 - Nov 24 - [What happens if a sitting president dies while running for reelection](https://news.yahoo.com/happens-sitting-president-dies-while-112301327.html)
-- Nov 24 - [Letters to the Editor: Biden is a great president. He should serve the country by stepping aside](https://news.yahoo.com/letters-editor-biden-great-president-110017861.html)
 <!-- feed end -->
 
 ### Onstream
