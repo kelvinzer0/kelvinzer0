@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Philippines' South China Sea patrols with US within its rights -security adviser](https://news.yahoo.com/philippines-south-china-sea-patrols-075845700.html)
-- Nov 24 - [NVIDIA sued for stealing trade secrets after screensharing blunder showed rival company's code](https://news.yahoo.com/nvidia-sued-for-stealing-trade-secrets-after-screensharing-blunder-showed-rival-companys-code-063009605.html)
+- Nov 24 - [China offers visa-free entry for citizens of France, Germany, Italy](https://news.yahoo.com/china-offers-visa-free-entry-085415997.html)
+- Nov 24 - [P Diddy accused of drugging and sexually assaulting student in New York in 1991](https://news.yahoo.com/p-diddy-accused-drugging-sexually-084647471.html)
 - Nov 24 - [‘I fell in love with a superstar surgeon who turned out to be a conman’](https://www.yahoo.com/lifestyle/fell-love-superstar-surgeon-turned-060000019.html)
+- Nov 24 - [With no access to crypto, disgraced FTX founder Sam Bankman-Fried is now trading fish to pay for services in prison](https://finance.yahoo.com/news/no-access-crypto-disgraced-ftx-164722170.html)
 - Nov 23 - [Sources: Deadly crash at US-Canadian border bridge involved husband and wife in a Bentley, investigators believe](https://news.yahoo.com/fbi-investigating-vehicle-explosion-killed-200335681.html)
-- Nov 23 - [Chinese Spacecraft That Smashed Into Moon Was Carrying Something Mysterious, Scientists Say](https://news.yahoo.com/chinese-spacecraft-smashed-moon-carrying-160004424.html)
 <!-- feed end -->
 
 ### Onstream
