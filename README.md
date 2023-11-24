@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 24 - [Judge rejects attempt to enshrine abortion rights on Nevada ballot](https://news.yahoo.com/judge-rejects-attempt-enshrine-abortion-030126727.html)
-- Nov 24 - [Newlyweds return home from honeymoon to unexpected notice from homeowners association: ‘Never living in an HOA ever again’](https://www.yahoo.com/lifestyle/newlyweds-return-home-honeymoon-unexpected-030000334.html)
+- Nov 24 - [With no access to crypto, disgraced FTX founder Sam Bankman-Fried is now trading fish to pay for services in prison](https://finance.yahoo.com/news/no-access-crypto-disgraced-ftx-164722170.html)
 - Nov 23 - [Sources: Deadly crash at US-Canadian border bridge involved husband and wife in a Bentley, investigators believe](https://news.yahoo.com/fbi-investigating-vehicle-explosion-killed-200335681.html)
-- Nov 23 - [Mysterious cosmic ray observed in Utah came from beyond our galaxy, scientists say](https://news.yahoo.com/mysterious-cosmic-ray-observed-utah-193249107.html)
 - Nov 23 - [Chinese Spacecraft That Smashed Into Moon Was Carrying Something Mysterious, Scientists Say](https://news.yahoo.com/chinese-spacecraft-smashed-moon-carrying-160004424.html)
+- Nov 23 - [A pilot who decapitated a wingsuit flyer with his plane's wing has been found guilty of manslaughter](https://news.yahoo.com/pilot-decapitated-wingsuit-flyer-planes-154402244.html)
 <!-- feed end -->
 
 ### Onstream
