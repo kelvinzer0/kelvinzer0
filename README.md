@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Got $5,000? Buy and Hold These 3 Value Stocks for Years](https://www.fool.com/investing/2023/11/24/5000-buy-and-hold-these-3-value-stocks-for-years/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 24 - [Is It Worth Considering TWC Enterprises Limited (TSE:TWC) For Its Upcoming Dividend?](https://finance.yahoo.com/news/worth-considering-twc-enterprises-limited-102407309.html)
+- Nov 24 - [Washington Post: Russian, Chinese companies discuss possible underwater Crimean tunnel project](https://news.yahoo.com/washington-post-russian-chinese-companies-084145775.html)
 - Nov 24 - [New Book Divulges Donald Trump's 'Colorful Language' About Evangelicals](https://news.yahoo.com/book-divulges-donald-trumps-colorful-082052088.html)
 - Nov 24 - [NVIDIA sued for stealing trade secrets after screensharing blunder showed rival company's code](https://news.yahoo.com/nvidia-sued-for-stealing-trade-secrets-after-screensharing-blunder-showed-rival-companys-code-063009605.html)
 - Nov 24 - [‘I fell in love with a superstar surgeon who turned out to be a conman’](https://www.yahoo.com/lifestyle/fell-love-superstar-surgeon-turned-060000019.html)
-- Nov 24 - [With no access to crypto, disgraced FTX founder Sam Bankman-Fried is now trading fish to pay for services in prison](https://finance.yahoo.com/news/no-access-crypto-disgraced-ftx-164722170.html)
 <!-- feed end -->
 
 ### Onstream
