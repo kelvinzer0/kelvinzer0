@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [China offers visa-free entry for citizens of France, Germany, Italy](https://news.yahoo.com/china-offers-visa-free-entry-085415997.html)
-- Nov 24 - [P Diddy accused of drugging and sexually assaulting student in New York in 1991](https://news.yahoo.com/p-diddy-accused-drugging-sexually-084647471.html)
+- Nov 24 - [Got $5,000? Buy and Hold These 3 Value Stocks for Years](https://www.fool.com/investing/2023/11/24/5000-buy-and-hold-these-3-value-stocks-for-years/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 24 - [New Book Divulges Donald Trump's 'Colorful Language' About Evangelicals](https://news.yahoo.com/book-divulges-donald-trumps-colorful-082052088.html)
+- Nov 24 - [NVIDIA sued for stealing trade secrets after screensharing blunder showed rival company's code](https://news.yahoo.com/nvidia-sued-for-stealing-trade-secrets-after-screensharing-blunder-showed-rival-companys-code-063009605.html)
 - Nov 24 - [‘I fell in love with a superstar surgeon who turned out to be a conman’](https://www.yahoo.com/lifestyle/fell-love-superstar-surgeon-turned-060000019.html)
 - Nov 24 - [With no access to crypto, disgraced FTX founder Sam Bankman-Fried is now trading fish to pay for services in prison](https://finance.yahoo.com/news/no-access-crypto-disgraced-ftx-164722170.html)
-- Nov 23 - [Sources: Deadly crash at US-Canadian border bridge involved husband and wife in a Bentley, investigators believe](https://news.yahoo.com/fbi-investigating-vehicle-explosion-killed-200335681.html)
 <!-- feed end -->
 
 ### Onstream
