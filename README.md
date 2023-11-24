@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [‘Disgusting’: Saugus police investigating Thanksgiving Eve brawl at Kowloon Restaurant](https://news.yahoo.com/saugus-police-investigating-thanksgiving-eve-181223182.html)
-- Nov 24 - [Minnesota Rep. Dean Phillips announces he won't seek reelection to 3rd Congressional District amid presidential run](https://news.yahoo.com/minnesota-rep-dean-phillips-announces-182300576.html)
+- Nov 24 - [Farmer jailed for clearing Herefordshire river insists ‘I didn’t do anything wrong’](https://news.yahoo.com/farmer-jailed-clearing-herefordshire-river-190335123.html)
+- Nov 24 - [Melania Trump Was Extended an Olive Branch by Rosalynn Carter Ahead of Her Death](https://www.yahoo.com/entertainment/melania-trump-extended-olive-branch-185900702.html)
+- Nov 24 - [The update we all need: Meadow, the Great Dane with 15 puppies, adopted by 'amazing family'](https://news.yahoo.com/meadow-great-dane-15-puppies-183115987.html)
+- Nov 24 - [Kamala Harris roasted for Thanksgiving pic: 'Is that a gas stove?'](https://news.yahoo.com/kamala-harris-roasted-thanksgiving-pic-183014829.html)
 - Nov 24 - [A Russian A320 that made an emergency landing in a wheat field gave customers about $1,100 in compensation](https://news.yahoo.com/russian-a320-made-emergency-landing-180053075.html)
-- Nov 24 - [Sunken World War II carrier resting place identified 78 years later](https://news.yahoo.com/sunken-world-war-ii-carrier-173000847.html)
-- Nov 24 - [Tiffany Haddish Arrested In Beverly Hills After Reportedly Falling Asleep At The Wheel](https://www.yahoo.com/entertainment/tiffany-haddish-arrested-beverly-hills-171526234.html)
 <!-- feed end -->
 
 ### Onstream
