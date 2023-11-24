@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 24 - [LATAM Airlines retakes lead in US-Brazil traffic, first time since pandemic](https://finance.yahoo.com/news/latam-airlines-retakes-lead-us-155613074.html)
+- Nov 24 - [With less than 6 weeks before deadline, 3,400 gun owners have registered guns covered by Illinois ban](https://news.yahoo.com/less-6-weeks-deadline-3-152600322.html)
+- Nov 24 - [The hostages' families should have been jailed to shut them up, says former US citizen who was an Israeli spy](https://news.yahoo.com/hostages-families-jailed-shut-them-152212508.html)
+- Nov 24 - [50-year-old muscles just can’t grow big like they used to – the biology of how muscles change with age](https://news.yahoo.com/50-old-muscles-just-t-130737439.html)
 - Nov 24 - [Democrat Recalls 'Disgusting' Way Marjorie Taylor Greene Acted To Jan. 6 Defendants](https://news.yahoo.com/democrat-recalls-disgusting-way-marjorie-134307146.html)
-- Nov 24 - [‘Fat, bearded and a smoker’: Oscar Pistorius may be free, but his career is over](https://news.yahoo.com/fat-bearded-smoker-oscar-pistorius-133324123.html)
-- Nov 24 - [Egypt president says future Palestinian state could be demilitarised](https://news.yahoo.com/egypt-president-says-future-palestinian-131558310.html)
-- Nov 24 - [Nvidia and Microsoft Have Invested in This AI Company That Is Beating Google, Meta Platforms, and Other Tech Giants](https://www.fool.com/investing/2023/11/24/nvidia-and-microsoft-have-invested-in-this-ai-comp/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 24 - [‘You’ll end up with $1.5 million in the bank’: Kevin O’Leary says to do this one thing with your 401(k) so you can 'succeed into retirement'](https://finance.yahoo.com/news/ll-end-1-5-million-103000581.html)
 <!-- feed end -->
 
 ### Onstream
