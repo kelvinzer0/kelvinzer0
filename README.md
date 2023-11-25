@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 25 - [Alberta to invoke controversial law to resist Canada's energy policy](https://news.yahoo.com/alberta-invoke-controversial-law-resist-212836324.html)
 - Nov 25 - [Pepsi quietly killed a beloved soda (Coca-Cola has an alternative)](https://www.thestreet.com/restaurants/pepsi-quietly-killed-a-beloved-soda-coca-cola-has-an-alternative?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 25 - [Donald Trump Calls Delayed Forbes Sale ‘Really Bad News’ for ‘Your Favorite President, ME’](https://www.yahoo.com/entertainment/donald-trump-calls-delayed-forbes-200820712.html)
-- Nov 25 - [Bob Woodward undermines Trump excuse for not giving back secret papers: ‘He’s not busy’](https://news.yahoo.com/bob-woodward-undermines-trump-excuse-192758201.html)
+- Nov 25 - [New research reveals industry used 160 million pounds of ‘secret chemicals’ over past decade: ‘May just be the tip of the iceberg’](https://news.yahoo.com/research-reveals-industry-used-160-190000287.html)
 - Nov 25 - [A lion and several bears go wild in snow in Kosovo](https://news.yahoo.com/lion-several-bears-wild-snow-181259528.html)
-- Nov 25 - [Ask an Advisor: I'm 77 and Still Working. Is it True That I Don't Have to Take RMDs?](https://finance.yahoo.com/news/ask-advisor-im-77-still-173249409.html)
+- Nov 25 - [Dodge Charger Chase Exposes The Muscle Car’s Big Weakness](https://news.yahoo.com/dodge-charger-chase-exposes-muscle-170000052.html)
 <!-- feed end -->
 
 ### Onstream
