@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Elon Musk's X could lose $75 million in ad revenue following antisemitic content backlash](https://news.yahoo.com/elon-musks-x-could-lose-75-million-in-ad-revenue-following-antisemitic-content-backlash-075316116.html)
-- Nov 25 - [Accuser who previously claimed former New York Gov. Andrew Cuomo groped filing lawsuit](https://news.yahoo.com/accuser-previously-claimed-former-york-050239889.html)
+- Nov 25 - [How the Concorde plans were secretly given to the Russians](https://www.yahoo.com/lifestyle/concorde-plans-were-secretly-given-130000119.html)
+- Nov 25 - [“No Way Back” For BBC Lead News Presenter After Allegations Of Paying For Explicit Images](https://www.yahoo.com/entertainment/no-way-back-bbc-lead-123228391.html)
+- Nov 25 - [The #1 Whole Grain to Eat to Help Decrease Inflammation, According to a Dietitian](https://www.yahoo.com/lifestyle/1-whole-grain-eat-help-113000264.html)
+- Nov 25 - [‘Fake elector’ probes in 2020 swing states could spell more trouble for Trump](https://news.yahoo.com/fake-elector-probes-2020-swing-110000933.html)
 - Nov 25 - [Former police officer convicted in death of George Floyd is stabbed in prison -media](https://news.yahoo.com/former-police-officer-convicted-death-030830311.html)
-- Nov 25 - [Ex-officer Derek Chauvin, convicted in George Floyd's killing, stabbed in prison, AP source says](https://news.yahoo.com/ex-officer-derek-chauvin-convicted-021721135.html)
-- Nov 25 - [Fort Worth CEO and his 2 children killed while traveling for Thanksgiving](https://news.yahoo.com/fort-worth-ceo-2-children-020405439.html)
 <!-- feed end -->
 
 ### Onstream
