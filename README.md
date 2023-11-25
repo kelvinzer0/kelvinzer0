@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 24 - [Seagate Expansion Cards for Xbox Series S and Series X are down to record-low prices in an Amazon Black Friday deal](https://news.yahoo.com/seagate-expansion-cards-for-xbox-series-s-and-series-x-are-down-to-record-low-prices-in-an-amazon-black-friday-deal-224523376.html)
+- Nov 25 - [A couple in their 30s who hit a net worth of $1 million have more than 95% of their stock portfolio invested in 3 index funds and the rest in one individual stock. Take a look at their portfolio.](https://finance.yahoo.com/news/couple-30s-hit-net-worth-000925058.html)
+- Nov 24 - [Ukrainian sabotage of Crimea bridge 'overturns' naval operations -intelligence head](https://news.yahoo.com/ukrainian-sabotage-crimea-bridge-overturns-231416932.html)
+- Nov 24 - [Beloved former Seattle weather anchor Steve Pool dies from Alzheimer’s disease](https://news.yahoo.com/beloved-former-seattle-weather-anchor-192228013.html)
 - Nov 24 - [5 family members and a commercial fisherman neighbor are ID'd as dead or missing in Alaska landslide](https://news.yahoo.com/5-family-members-commercial-fisherman-223224621.html)
-- Nov 24 - [Japanese archaeologists unearth massive stash of 100,000 ancient coins](https://news.yahoo.com/japanese-archaeologists-unearth-massive-stash-222542019.html)
-- Nov 24 - [Rainbow Bridge: Police identify couple killed in US-Canada border crash](https://news.yahoo.com/rainbow-bridge-police-identify-couple-161116362.html)
-- Nov 24 - [Daryl Hall is suing John Oates over plan to sell stake in joint venture. A judge has paused the sale](https://finance.yahoo.com/news/daryl-hall-suing-john-oates-202141624.html)
+- Nov 24 - [Russia vows retaliation over Moldova decision to join EU sanctions](https://news.yahoo.com/russia-vows-retaliation-over-moldova-214646502.html)
 <!-- feed end -->
 
 ### Onstream
