@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [‘Disgusting’: Saugus police investigating Thanksgiving Eve brawl at Kowloon Restaurant](https://news.yahoo.com/saugus-police-investigating-thanksgiving-eve-181223182.html)
+- Nov 25 - [Elon Musk's X could lose $75 million in ad revenue following antisemitic content backlash](https://news.yahoo.com/elon-musks-x-could-lose-75-million-in-ad-revenue-following-antisemitic-content-backlash-075316116.html)
 - Nov 25 - [New York City will pay homeowners up to $395,000 to build an extra dwelling in their garage or basement to help ease the housing shortage](https://news.yahoo.com/york-city-pay-homeowners-395-024634377.html)
 - Nov 25 - [Ex-officer Derek Chauvin, convicted in George Floyd's killing, stabbed in prison, AP source says](https://news.yahoo.com/ex-officer-derek-chauvin-convicted-021721135.html)
 - Nov 25 - [Fort Worth CEO and his 2 children killed while traveling for Thanksgiving](https://news.yahoo.com/fort-worth-ceo-2-children-020405439.html)
