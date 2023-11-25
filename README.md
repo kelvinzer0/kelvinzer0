@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [George Santos won't resign, but expects to be expelled: 'It's done when I say it's done'](https://news.yahoo.com/george-santos-wont-resign-expects-150021655.html)
-- Nov 25 - [Why You Should Refrain From Cutting Potatoes Into Small Chunks](https://www.yahoo.com/lifestyle/why-refrain-cutting-potatoes-small-143028306.html)
-- Nov 25 - [Aliens Are Out There — But They Probably Don’t Care About Us](https://www.yahoo.com/entertainment/aliens-probably-don-t-care-140000656.html)
-- Nov 25 - [One of the most commonly used materials in the world could be getting a huge upgrade](https://news.yahoo.com/one-most-commonly-used-materials-210000051.html)
-- Nov 25 - [Research uncovers stunning factor behind nearly 200,000 cases of dementia each year: ‘Toxins for the brain’](https://news.yahoo.com/research-uncovers-stunning-factor-behind-113000993.html)
+- Nov 25 - [I read Rep. Anna Paulina Luna's children's book based on the 2020 election. It suggests Joe Biden's election victory wasn't legitimate and underscores that election denialism is never really going away.](https://news.yahoo.com/read-rep-anna-paulina-lunas-145233917.html)
+- Nov 25 - [George Santos says he'll treat expulsion as a 'badge of honor' as he claims his colleagues are drunkenly having sex with lobbyists 'every night'](https://news.yahoo.com/george-santos-says-hell-treat-160946910.html)
+- Nov 25 - [US customs officers seized a fake Richard Mille watch. If real, it would have been worth $3.7 million](https://news.yahoo.com/us-customs-officers-seized-fake-160824757.html)
+- Nov 25 - [In these states, Cash for Clunkers is back](https://www.autoblog.com/2023/11/25/in-these-states-cash-for-clunkers-is-back/)
+- Nov 25 - [Palestinian militants kill 2 alleged informers for Israel and mob drags bodies through camp alleys](https://news.yahoo.com/palestinian-militants-kill-2-alleged-152151902.html)
 <!-- feed end -->
 
 ### Onstream
