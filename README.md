@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 25 - [Ex-officer Derek Chauvin, convicted in George Floyd's killing, stabbed in prison, AP source says](https://news.yahoo.com/ex-officer-derek-chauvin-convicted-015437046.html)
+- Nov 25 - [Hall & Oates’ Restraining Order Mystery Solved: Daryl Hall Wants to Block John Oates From Selling His Share of Their Joint Venture to Primary Wave](https://www.yahoo.com/entertainment/hall-oates-restraining-order-mystery-011316111.html)
+- Nov 25 - [US homebuyers are waiting for the Fed to start cutting interest rates. Here's when 10 experts say it's going to happen.](https://finance.yahoo.com/news/us-homebuyers-waiting-fed-start-180000066.html)
 - Nov 25 - [A couple in their 30s who hit a net worth of $1 million have more than 95% of their stock portfolio invested in 3 index funds and the rest in one individual stock. Take a look at their portfolio.](https://finance.yahoo.com/news/couple-30s-hit-net-worth-000925058.html)
 - Nov 24 - [Ukrainian sabotage of Crimea bridge 'overturns' naval operations -intelligence head](https://news.yahoo.com/ukrainian-sabotage-crimea-bridge-overturns-231416932.html)
-- Nov 24 - [Beloved former Seattle weather anchor Steve Pool dies from Alzheimer’s disease](https://news.yahoo.com/beloved-former-seattle-weather-anchor-192228013.html)
-- Nov 24 - [5 family members and a commercial fisherman neighbor are ID'd as dead or missing in Alaska landslide](https://news.yahoo.com/5-family-members-commercial-fisherman-223224621.html)
-- Nov 24 - [Russia vows retaliation over Moldova decision to join EU sanctions](https://news.yahoo.com/russia-vows-retaliation-over-moldova-214646502.html)
 <!-- feed end -->
 
 ### Onstream
