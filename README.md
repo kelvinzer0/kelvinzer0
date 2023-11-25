@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 25 - [‘Disgusting’: Saugus police investigating Thanksgiving Eve brawl at Kowloon Restaurant](https://news.yahoo.com/saugus-police-investigating-thanksgiving-eve-181223182.html)
 - Nov 25 - [New York City will pay homeowners up to $395,000 to build an extra dwelling in their garage or basement to help ease the housing shortage](https://news.yahoo.com/york-city-pay-homeowners-395-024634377.html)
-- Nov 25 - [Chinese military holds training drills near Myanmar border after convoy fire](https://news.yahoo.com/chinese-military-holds-training-drills-022334813.html)
 - Nov 25 - [Ex-officer Derek Chauvin, convicted in George Floyd's killing, stabbed in prison, AP source says](https://news.yahoo.com/ex-officer-derek-chauvin-convicted-021721135.html)
 - Nov 25 - [Fort Worth CEO and his 2 children killed while traveling for Thanksgiving](https://news.yahoo.com/fort-worth-ceo-2-children-020405439.html)
 - Nov 25 - [Hall & Oates’ Restraining Order Mystery Solved: Daryl Hall Wants to Block John Oates From Selling His Share of Their Joint Venture to Primary Wave](https://www.yahoo.com/entertainment/hall-oates-restraining-order-mystery-011316111.html)
