@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Alberta to invoke controversial law to resist Canada's energy policy](https://news.yahoo.com/alberta-invoke-controversial-law-resist-212836324.html)
 - Nov 25 - [Pepsi quietly killed a beloved soda (Coca-Cola has an alternative)](https://www.thestreet.com/restaurants/pepsi-quietly-killed-a-beloved-soda-coca-cola-has-an-alternative?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 25 - [New research reveals industry used 160 million pounds of ‘secret chemicals’ over past decade: ‘May just be the tip of the iceberg’](https://news.yahoo.com/research-reveals-industry-used-160-190000287.html)
+- Nov 25 - [‘Israel spies’ executed and hung from pylon by cheering West Bank mob](https://news.yahoo.com/israel-spies-executed-hung-pylon-184216779.html)
 - Nov 25 - [A lion and several bears go wild in snow in Kosovo](https://news.yahoo.com/lion-several-bears-wild-snow-181259528.html)
-- Nov 25 - [Dodge Charger Chase Exposes The Muscle Car’s Big Weakness](https://news.yahoo.com/dodge-charger-chase-exposes-muscle-170000052.html)
+- Nov 25 - [First snow of the season coming. Here’s what to expect](https://news.yahoo.com/first-snow-season-coming-expect-165619118.html)
+- Nov 25 - [Hamas delays second hostage release until Israel lets aid into northern Gaza](https://news.yahoo.com/hamas-delays-second-release-hostages-162112604.html)
 <!-- feed end -->
 
 ### Onstream
