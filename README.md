@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [I read Rep. Anna Paulina Luna's children's book based on the 2020 election. It suggests Joe Biden's election victory wasn't legitimate and underscores that election denialism is never really going away.](https://news.yahoo.com/read-rep-anna-paulina-lunas-145233917.html)
+- Nov 25 - [Dodge Charger Chase Exposes The Muscle Car’s Big Weakness](https://news.yahoo.com/dodge-charger-chase-exposes-muscle-170000052.html)
+- Nov 25 - [First snow of the season coming. Here’s what to expect](https://news.yahoo.com/first-snow-season-coming-expect-165619118.html)
+- Nov 25 - [Hamas delays second hostage release until Israel lets aid into northern Gaza](https://news.yahoo.com/hamas-delays-second-release-hostages-162112604.html)
 - Nov 25 - [George Santos says he'll treat expulsion as a 'badge of honor' as he claims his colleagues are drunkenly having sex with lobbyists 'every night'](https://news.yahoo.com/george-santos-says-hell-treat-160946910.html)
-- Nov 25 - [US customs officers seized a fake Richard Mille watch. If real, it would have been worth $3.7 million](https://news.yahoo.com/us-customs-officers-seized-fake-160824757.html)
 - Nov 25 - [In these states, Cash for Clunkers is back](https://www.autoblog.com/2023/11/25/in-these-states-cash-for-clunkers-is-back/)
-- Nov 25 - [Palestinian militants kill 2 alleged informers for Israel and mob drags bodies through camp alleys](https://news.yahoo.com/palestinian-militants-kill-2-alleged-152151902.html)
 <!-- feed end -->
 
 ### Onstream
