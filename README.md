@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [BBC’s Jeremy Bowen admits he 'got it wrong' in Gaza hospital report but has ‘no regrets'](https://news.yahoo.com/bbc-jeremy-bowen-admits-got-194844026.html)
+- Nov 25 - [Pepsi quietly killed a beloved soda (Coca-Cola has an alternative)](https://www.thestreet.com/restaurants/pepsi-quietly-killed-a-beloved-soda-coca-cola-has-an-alternative?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 25 - [Donald Trump Calls Delayed Forbes Sale ‘Really Bad News’ for ‘Your Favorite President, ME’](https://www.yahoo.com/entertainment/donald-trump-calls-delayed-forbes-200820712.html)
+- Nov 25 - [Bob Woodward undermines Trump excuse for not giving back secret papers: ‘He’s not busy’](https://news.yahoo.com/bob-woodward-undermines-trump-excuse-192758201.html)
 - Nov 25 - [A lion and several bears go wild in snow in Kosovo](https://news.yahoo.com/lion-several-bears-wild-snow-181259528.html)
-- Nov 25 - [Dodge Charger Chase Exposes The Muscle Car’s Big Weakness](https://news.yahoo.com/dodge-charger-chase-exposes-muscle-170000052.html)
-- Nov 25 - [Neuralink, Elon Musk's brain implant startup, quietly raises an additional $43M](https://news.yahoo.com/neuralink-elon-musks-brain-implant-162538474.html)
-- Nov 25 - [Hamas delays second hostage release until Israel lets aid into northern Gaza](https://news.yahoo.com/hamas-delays-second-release-hostages-162112604.html)
+- Nov 25 - [Ask an Advisor: I'm 77 and Still Working. Is it True That I Don't Have to Take RMDs?](https://finance.yahoo.com/news/ask-advisor-im-77-still-173249409.html)
 <!-- feed end -->
 
 ### Onstream
