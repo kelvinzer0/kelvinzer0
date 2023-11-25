@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [How the Concorde plans were secretly given to the Russians](https://www.yahoo.com/lifestyle/concorde-plans-were-secretly-given-130000119.html)
-- Nov 25 - [“No Way Back” For BBC Lead News Presenter After Allegations Of Paying For Explicit Images](https://www.yahoo.com/entertainment/no-way-back-bbc-lead-123228391.html)
+- Nov 25 - [Accuser who previously claimed former New York Gov. Andrew Cuomo groped her filing lawsuit](https://news.yahoo.com/accuser-previously-claimed-former-york-050239889.html)
+- Nov 25 - [RED ALERT: Crash shuts down I-285 amid busy holiday travel weekend](https://news.yahoo.com/red-alert-crash-shuts-down-125412078.html)
+- Nov 25 - [Research uncovers stunning factor behind nearly 200,000 cases of dementia each year: ‘Toxins for the brain’](https://news.yahoo.com/research-uncovers-stunning-factor-behind-113000993.html)
 - Nov 25 - [The #1 Whole Grain to Eat to Help Decrease Inflammation, According to a Dietitian](https://www.yahoo.com/lifestyle/1-whole-grain-eat-help-113000264.html)
-- Nov 25 - [‘Fake elector’ probes in 2020 swing states could spell more trouble for Trump](https://news.yahoo.com/fake-elector-probes-2020-swing-110000933.html)
-- Nov 25 - [Former police officer convicted in death of George Floyd is stabbed in prison -media](https://news.yahoo.com/former-police-officer-convicted-death-030830311.html)
+- Nov 25 - [Here's what happens if Donald Trump dies while running in the 2024 presidential election](https://news.yahoo.com/heres-happens-donald-trump-dies-091101443.html)
 <!-- feed end -->
 
 ### Onstream
