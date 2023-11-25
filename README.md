@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 25 - [George Santos won't resign, but expects to be expelled: 'It's done when I say it's done'](https://news.yahoo.com/george-santos-wont-resign-expects-150021655.html)
+- Nov 25 - [Why You Should Refrain From Cutting Potatoes Into Small Chunks](https://www.yahoo.com/lifestyle/why-refrain-cutting-potatoes-small-143028306.html)
 - Nov 25 - [Aliens Are Out There — But They Probably Don’t Care About Us](https://www.yahoo.com/entertainment/aliens-probably-don-t-care-140000656.html)
-- Nov 25 - [Police reopen I-285 in DeKalb County after bad crash](https://news.yahoo.com/red-alert-crash-shuts-down-125412078.html)
-- Nov 25 - [Empty Bed Bath & Beyond stores are hot real estate. Here’s who’s moving in.](https://finance.yahoo.com/news/empty-bed-bath-beyond-stores-120032107.html)
 - Nov 25 - [One of the most commonly used materials in the world could be getting a huge upgrade](https://news.yahoo.com/one-most-commonly-used-materials-210000051.html)
 - Nov 25 - [Research uncovers stunning factor behind nearly 200,000 cases of dementia each year: ‘Toxins for the brain’](https://news.yahoo.com/research-uncovers-stunning-factor-behind-113000993.html)
 <!-- feed end -->
