@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Rep. George Santos says he expects to be kicked out of Congress as expulsion vote looms](https://news.yahoo.com/rep-george-santos-says-expects-184924582.html)
+- Nov 25 - [BBC’s Jeremy Bowen admits he 'got it wrong' in Gaza hospital report but has ‘no regrets'](https://news.yahoo.com/bbc-jeremy-bowen-admits-got-194844026.html)
+- Nov 25 - [A lion and several bears go wild in snow in Kosovo](https://news.yahoo.com/lion-several-bears-wild-snow-181259528.html)
 - Nov 25 - [Dodge Charger Chase Exposes The Muscle Car’s Big Weakness](https://news.yahoo.com/dodge-charger-chase-exposes-muscle-170000052.html)
 - Nov 25 - [Neuralink, Elon Musk's brain implant startup, quietly raises an additional $43M](https://news.yahoo.com/neuralink-elon-musks-brain-implant-162538474.html)
 - Nov 25 - [Hamas delays second hostage release until Israel lets aid into northern Gaza](https://news.yahoo.com/hamas-delays-second-release-hostages-162112604.html)
-- Nov 25 - [California man swept out to sea in Hawaii](https://news.yahoo.com/california-man-swept-sea-hawaii-161410163.html)
 <!-- feed end -->
 
 ### Onstream
