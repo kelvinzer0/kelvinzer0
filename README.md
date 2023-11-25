@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 25 - [Rep. George Santos says he expects to be kicked out of Congress as expulsion vote looms](https://news.yahoo.com/rep-george-santos-says-expects-184924582.html)
 - Nov 25 - [Dodge Charger Chase Exposes The Muscle Car’s Big Weakness](https://news.yahoo.com/dodge-charger-chase-exposes-muscle-170000052.html)
-- Nov 25 - [First snow of the season coming. Here’s what to expect](https://news.yahoo.com/first-snow-season-coming-expect-165619118.html)
+- Nov 25 - [Neuralink, Elon Musk's brain implant startup, quietly raises an additional $43M](https://news.yahoo.com/neuralink-elon-musks-brain-implant-162538474.html)
 - Nov 25 - [Hamas delays second hostage release until Israel lets aid into northern Gaza](https://news.yahoo.com/hamas-delays-second-release-hostages-162112604.html)
-- Nov 25 - [George Santos says he'll treat expulsion as a 'badge of honor' as he claims his colleagues are drunkenly having sex with lobbyists 'every night'](https://news.yahoo.com/george-santos-says-hell-treat-160946910.html)
-- Nov 25 - [In these states, Cash for Clunkers is back](https://www.autoblog.com/2023/11/25/in-these-states-cash-for-clunkers-is-back/)
+- Nov 25 - [California man swept out to sea in Hawaii](https://news.yahoo.com/california-man-swept-sea-hawaii-161410163.html)
 <!-- feed end -->
 
 ### Onstream
