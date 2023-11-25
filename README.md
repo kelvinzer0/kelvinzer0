@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Accuser who previously claimed former New York Gov. Andrew Cuomo groped her filing lawsuit](https://news.yahoo.com/accuser-previously-claimed-former-york-050239889.html)
-- Nov 25 - [RED ALERT: Crash shuts down I-285 amid busy holiday travel weekend](https://news.yahoo.com/red-alert-crash-shuts-down-125412078.html)
+- Nov 25 - [Aliens Are Out There — But They Probably Don’t Care About Us](https://www.yahoo.com/entertainment/aliens-probably-don-t-care-140000656.html)
+- Nov 25 - [Police reopen I-285 in DeKalb County after bad crash](https://news.yahoo.com/red-alert-crash-shuts-down-125412078.html)
+- Nov 25 - [Empty Bed Bath & Beyond stores are hot real estate. Here’s who’s moving in.](https://finance.yahoo.com/news/empty-bed-bath-beyond-stores-120032107.html)
+- Nov 25 - [One of the most commonly used materials in the world could be getting a huge upgrade](https://news.yahoo.com/one-most-commonly-used-materials-210000051.html)
 - Nov 25 - [Research uncovers stunning factor behind nearly 200,000 cases of dementia each year: ‘Toxins for the brain’](https://news.yahoo.com/research-uncovers-stunning-factor-behind-113000993.html)
-- Nov 25 - [The #1 Whole Grain to Eat to Help Decrease Inflammation, According to a Dietitian](https://www.yahoo.com/lifestyle/1-whole-grain-eat-help-113000264.html)
-- Nov 25 - [Here's what happens if Donald Trump dies while running in the 2024 presidential election](https://news.yahoo.com/heres-happens-donald-trump-dies-091101443.html)
 <!-- feed end -->
 
 ### Onstream
