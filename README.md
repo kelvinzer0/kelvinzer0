@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Elon Musk's X could lose $75 million in ad revenue following antisemitic content backlash](https://news.yahoo.com/elon-musks-x-could-lose-75-million-in-ad-revenue-following-antisemitic-content-backlash-075316116.html)
+- Nov 25 - [Accuser who previously claimed former New York Gov. Andrew Cuomo groped filing lawsuit](https://news.yahoo.com/accuser-previously-claimed-former-york-050239889.html)
+- Nov 25 - [New York City will pay homeowners up to $395,000 to build an extra dwelling in their garage or basement to help ease the housing shortage](https://news.yahoo.com/york-city-pay-homeowners-395-024634377.html)
 - Nov 25 - [Ex-officer Derek Chauvin, convicted in George Floyd's killing, stabbed in prison, AP source says](https://news.yahoo.com/ex-officer-derek-chauvin-convicted-021721135.html)
 - Nov 25 - [Fort Worth CEO and his 2 children killed while traveling for Thanksgiving](https://news.yahoo.com/fort-worth-ceo-2-children-020405439.html)
 - Nov 25 - [Hall & Oates’ Restraining Order Mystery Solved: Daryl Hall Wants to Block John Oates From Selling His Share of Their Joint Venture to Primary Wave](https://www.yahoo.com/entertainment/hall-oates-restraining-order-mystery-011316111.html)
-- Nov 24 - [World's largest iceberg breaks free](https://news.yahoo.com/worlds-largest-iceberg-breaks-free-235006921.html)
 <!-- feed end -->
 
 ### Onstream
