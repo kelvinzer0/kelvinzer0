@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 25 - [Ecuador's newly sworn-in president repeals guidelines allowing people to carry limited drug amounts](https://news.yahoo.com/ecuadors-newly-sworn-president-repeals-231114309.html)
+- Nov 25 - [Catholic Diocese of Pittsburgh announces merging of 2 parishes](https://news.yahoo.com/catholic-diocese-pittsburgh-announces-merging-230034669.html)
+- Nov 25 - [County shuts down woman’s thriving small business for infuriating reason: ‘I don’t really have a business anymore’](https://news.yahoo.com/county-shuts-down-woman-thriving-213000893.html)
+- Nov 25 - [Romney says any Democrat would be ‘an upgrade’ over Trump in 2024](https://news.yahoo.com/romney-says-democrat-upgrade-over-212045258.html)
 - Nov 25 - [Pepsi quietly killed a beloved soda (Coca-Cola has an alternative)](https://www.thestreet.com/restaurants/pepsi-quietly-killed-a-beloved-soda-coca-cola-has-an-alternative?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 25 - [‘Israel spies’ executed and hung from pylon by cheering West Bank mob](https://news.yahoo.com/israel-spies-executed-hung-pylon-184216779.html)
-- Nov 25 - [A lion and several bears go wild in snow in Kosovo](https://news.yahoo.com/lion-several-bears-wild-snow-181259528.html)
-- Nov 25 - [First snow of the season coming. Here’s what to expect](https://news.yahoo.com/first-snow-season-coming-expect-165619118.html)
-- Nov 25 - [Hamas delays second hostage release until Israel lets aid into northern Gaza](https://news.yahoo.com/hamas-delays-second-release-hostages-162112604.html)
 <!-- feed end -->
 
 ### Onstream
