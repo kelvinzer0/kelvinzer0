@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 26 - [Members of Congress Head for the Exits, Many Citing Dysfunction](https://news.yahoo.com/members-congress-head-exits-many-155851079.html)
+- Nov 26 - [Israel summons Irish ambassador over tweet it alleges doesn't adequately condemn Hamas](https://news.yahoo.com/israel-summons-irish-ambassador-over-155418399.html)
+- Nov 26 - [Vitamin B12 deficiency is a common health problem that can have serious consequences – but doctors often overlook it](https://news.yahoo.com/vitamin-b12-deficiency-common-health-131804646.html)
+- Nov 26 - [Chris Christie plays down risk to Republicans if Trump loses primary but won't leave the race](https://news.yahoo.com/chris-christie-plays-down-risk-151033616.html)
 - Nov 26 - [Politics and the pulpit: How white evangelicals' support of Trump is creating schisms in the Church](https://news.yahoo.com/politics-pulpit-white-evangelicals-support-143114406.html)
-- Nov 26 - [Russia offered to end its invasion of Ukraine if it dumped plans to join NATO, but Kyiv feared a double-cross, says negotiator](https://news.yahoo.com/russia-offered-end-invasion-ukraine-142233992.html)
-- Nov 26 - [If You Think McDonald's Makes Money From Hamburgers and Fries, Then You'll Be Shocked by What Its Real Business Is](https://www.fool.com/investing/2023/11/26/if-you-think-mcdonalds-makes-money-from-hamburgers/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 26 - [Woman warns against the dangerous phenomenon that is ‘trapped water’: ‘I’ve never thought about this’](https://www.yahoo.com/lifestyle/woman-warns-against-dangerous-phenomenon-120000467.html)
-- Nov 26 - [‘Sell your stinkin' house': Dave Ramsey says this 'stupid' money move is getting out of control and could leave you without a home — are you doing it, too?](https://finance.yahoo.com/news/sell-stinkin-house-dave-ramsey-120000403.html)
 <!-- feed end -->
 
 ### Onstream
