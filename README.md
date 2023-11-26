@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 26 - [If You Think McDonald's Makes Money From Hamburgers and Fries, Then You'll Be Shocked by What Its Real Business Is](https://www.fool.com/investing/2023/11/26/if-you-think-mcdonalds-makes-money-from-hamburgers/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 26 - [Woman warns against the dangerous phenomenon that is ‘trapped water’: ‘I’ve never thought about this’](https://www.yahoo.com/lifestyle/woman-warns-against-dangerous-phenomenon-120000467.html)
 - Nov 26 - [The Bond Market Is Sounding This Alarm for the First Time in Decades: Here's What It Could Mean for the Stock Market.](https://www.fool.com/investing/2023/11/26/bond-market-alarm-what-it-means-for-stock-market/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Nov 26 - [Inmates at Ghislaine Maxwell's prison are plugging leaks with tampons and eating moldy food](https://news.yahoo.com/inmates-ghislaine-maxwells-prison-plugging-110301341.html)
-- Nov 26 - [Earth to Democrats: Biden presidency is a dumpster fire. How many warning signs do you need?](https://news.yahoo.com/earth-democrats-biden-presidency-dumpster-090128089.html)
-- Nov 26 - [Dispatch: The invisible killer haunting Laos 50 years after the Vietnam War](https://news.yahoo.com/dispatch-invisible-killer-haunting-laos-070000777.html)
+- Nov 26 - [New study makes grim reveal about New York City’s skyscrapers: ‘It is a deep concern’](https://news.yahoo.com/study-makes-grim-reveal-york-180000425.html)
 <!-- feed end -->
 
 ### Onstream
