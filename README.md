@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 26 - [Porsche Sport Turismo Is Dead Because Americans Don’t Buy Wagons](https://news.yahoo.com/porsche-sport-turismo-dead-because-192136168.html)
+- Nov 26 - [Afghan special forces soldier who risked her life working with British abandoned by UK](https://news.yahoo.com/afghan-special-forces-soldier-risked-190427230.html)
 - Nov 26 - [Ivanka Trump & Jared Kushner Reportedly Went to Drastic Financial Lengths to Start Their New Lives](https://www.yahoo.com/entertainment/ivanka-trump-jared-kushner-reportedly-185500053.html)
+- Nov 26 - [Syria says an Israeli airstrike hit the Damascus airport and put it out of service](https://news.yahoo.com/syria-says-israeli-airstrike-hit-183452820.html)
 - Nov 26 - [I thought I was having an anxiety attack. It was a 'widowmaker.'](https://news.yahoo.com/thought-having-anxiety-attack-widowmaker-172810313.html)
-- Nov 26 - [‘Very dangerous people’: New op-ed sounds alarm about threat of second Trump administration](https://news.yahoo.com/very-dangerous-people-op-ed-170531045.html)
-- Nov 26 - [Palestinian students studying at U.S. universities shot in Vermont](https://news.yahoo.com/palestinian-students-studying-u-universities-165314707.html)
-- Nov 26 - [Qatar says location of Hamas leader thought to have planned Oct. 7 attack is unknown](https://news.yahoo.com/qatar-says-location-hamas-leader-164301407.html)
 <!-- feed end -->
 
 ### Onstream
