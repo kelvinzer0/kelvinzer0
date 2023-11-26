@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Members of Congress Head for the Exits, Many Citing Dysfunction](https://news.yahoo.com/members-congress-head-exits-many-155851079.html)
-- Nov 26 - [Israel summons Irish ambassador over tweet it alleges doesn't adequately condemn Hamas](https://news.yahoo.com/israel-summons-irish-ambassador-over-155418399.html)
-- Nov 26 - [Vitamin B12 deficiency is a common health problem that can have serious consequences – but doctors often overlook it](https://news.yahoo.com/vitamin-b12-deficiency-common-health-131804646.html)
 - Nov 26 - [Chris Christie plays down risk to Republicans if Trump loses primary but won't leave the race](https://news.yahoo.com/chris-christie-plays-down-risk-151033616.html)
-- Nov 26 - [Politics and the pulpit: How white evangelicals' support of Trump is creating schisms in the Church](https://news.yahoo.com/politics-pulpit-white-evangelicals-support-143114406.html)
+- Nov 26 - [This Comedian Is Itching to Become Donald Trump’s VP Pick & the Internet Is Obviously Split](https://www.yahoo.com/entertainment/comedian-itching-become-donald-trump-163600739.html)
+- Nov 26 - [Oakland County Sheriff's Office issues warning about Apple iPhone system update](https://news.yahoo.com/oakland-county-sheriffs-office-issues-162734511.html)
+- Nov 26 - [Cyber Monday deals include 42 percent off one of our favorite Samsung microSD cards](https://news.yahoo.com/cyber-monday-deals-include-42-percent-off-one-of-our-favorite-samsung-microsd-cards-161524306.html)
+- Nov 26 - [Israel summons Irish ambassador over tweet it alleges doesn't adequately condemn Hamas](https://news.yahoo.com/israel-summons-irish-ambassador-over-155418399.html)
 <!-- feed end -->
 
 ### Onstream
