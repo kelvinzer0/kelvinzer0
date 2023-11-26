@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 26 - [Politics and the pulpit: How white evangelicals' support of Trump is creating schisms in the Church](https://news.yahoo.com/politics-pulpit-white-evangelicals-support-143114406.html)
+- Nov 26 - [Russia offered to end its invasion of Ukraine if it dumped plans to join NATO, but Kyiv feared a double-cross, says negotiator](https://news.yahoo.com/russia-offered-end-invasion-ukraine-142233992.html)
 - Nov 26 - [If You Think McDonald's Makes Money From Hamburgers and Fries, Then You'll Be Shocked by What Its Real Business Is](https://www.fool.com/investing/2023/11/26/if-you-think-mcdonalds-makes-money-from-hamburgers/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Nov 26 - [Woman warns against the dangerous phenomenon that is ‘trapped water’: ‘I’ve never thought about this’](https://www.yahoo.com/lifestyle/woman-warns-against-dangerous-phenomenon-120000467.html)
-- Nov 26 - [The Bond Market Is Sounding This Alarm for the First Time in Decades: Here's What It Could Mean for the Stock Market.](https://www.fool.com/investing/2023/11/26/bond-market-alarm-what-it-means-for-stock-market/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 26 - [Inmates at Ghislaine Maxwell's prison are plugging leaks with tampons and eating moldy food](https://news.yahoo.com/inmates-ghislaine-maxwells-prison-plugging-110301341.html)
-- Nov 26 - [New study makes grim reveal about New York City’s skyscrapers: ‘It is a deep concern’](https://news.yahoo.com/study-makes-grim-reveal-york-180000425.html)
+- Nov 26 - [‘Sell your stinkin' house': Dave Ramsey says this 'stupid' money move is getting out of control and could leave you without a home — are you doing it, too?](https://finance.yahoo.com/news/sell-stinkin-house-dave-ramsey-120000403.html)
 <!-- feed end -->
 
 ### Onstream
