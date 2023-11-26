@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 26 - [The homeless handyman and the wealthy widow: Love or something darker?](https://news.yahoo.com/homeless-handyman-wealthy-widow-love-011133047.html)
+- Nov 26 - [Connellsville Area School District announces death of middle school principal](https://news.yahoo.com/connellsville-area-school-district-announces-000438675.html)
 - Nov 25 - [Ecuador's newly sworn-in president repeals guidelines allowing people to carry limited drug amounts](https://news.yahoo.com/ecuadors-newly-sworn-president-repeals-231114309.html)
-- Nov 25 - [Catholic Diocese of Pittsburgh announces merging of 2 parishes](https://news.yahoo.com/catholic-diocese-pittsburgh-announces-merging-230034669.html)
+- Nov 25 - [Avoid Buying a Car at a Dealership on This Day of the Week](https://finance.yahoo.com/news/don-t-buy-car-dealership-180052347.html)
 - Nov 25 - [County shuts down woman’s thriving small business for infuriating reason: ‘I don’t really have a business anymore’](https://news.yahoo.com/county-shuts-down-woman-thriving-213000893.html)
-- Nov 25 - [Romney says any Democrat would be ‘an upgrade’ over Trump in 2024](https://news.yahoo.com/romney-says-democrat-upgrade-over-212045258.html)
-- Nov 25 - [Pepsi quietly killed a beloved soda (Coca-Cola has an alternative)](https://www.thestreet.com/restaurants/pepsi-quietly-killed-a-beloved-soda-coca-cola-has-an-alternative?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
