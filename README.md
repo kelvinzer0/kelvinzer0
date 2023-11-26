@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 26 - ['Can't find words', Israeli families welcome second group of hostages](https://news.yahoo.com/cant-words-israeli-families-welcome-010356641.html)
+- Nov 25 - [Ecuador's newly sworn-in president repeals guidelines allowing people to carry limited drug amounts](https://news.yahoo.com/ecuadors-newly-sworn-president-repeals-231114309.html)
 - Nov 25 - [Catholic Diocese of Pittsburgh announces merging of 2 parishes](https://news.yahoo.com/catholic-diocese-pittsburgh-announces-merging-230034669.html)
+- Nov 25 - [Queens high school students storm halls after learning teacher attended pro-Israel protest](https://news.yahoo.com/queens-high-school-students-storm-225714586.html)
 - Nov 25 - [1 dead after 4-car crash into each other on I-285 in DeKalb County](https://news.yahoo.com/red-alert-crash-shuts-down-125412078.html)
-- Nov 25 - [Avoid Buying a Car at a Dealership on This Day of the Week](https://finance.yahoo.com/news/don-t-buy-car-dealership-180052347.html)
-- Nov 25 - [County shuts down woman’s thriving small business for infuriating reason: ‘I don’t really have a business anymore’](https://news.yahoo.com/county-shuts-down-woman-thriving-213000893.html)
 <!-- feed end -->
 
 ### Onstream
