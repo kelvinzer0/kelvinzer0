@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 26 - [Huawei to move smart car operations to new joint company with Changan](https://news.yahoo.com/chinas-huawei-changan-auto-form-085208880.html)
 - Nov 26 - [Lauren Sanchez says fiancé Jeff Bezos is a 'monster' in the gym — here's what his fitness routine looks like](https://www.yahoo.com/lifestyle/lauren-sanchez-says-fianc-jeff-064910975.html)
-- Nov 26 - ['You’ll die in this pit': Takeaways from secret recordings of Russian soldiers in Ukraine](https://news.yahoo.com/ll-die-pit-takeaways-secret-060117577.html)
-- Nov 26 - [Dead, wounded or AWOL: The voices of desperate Russian soldiers trying to get out of the Ukraine war](https://news.yahoo.com/dead-wounded-awol-voices-desperate-054726844.html)
 - Nov 26 - [Thieves with chainsaws are going after 150-year-old olive trees: ‘You kill your own history’](https://news.yahoo.com/thieves-chainsaws-going-150-old-040000921.html)
-- Nov 26 - [5-year-old girl who was swept out to sea in Half Moon Bay rescued](https://news.yahoo.com/5-old-girl-swept-sea-035740293.html)
+- Nov 25 - [Ecuador's newly sworn-in president repeals guidelines allowing people to carry limited drug amounts](https://news.yahoo.com/ecuadors-newly-sworn-president-repeals-231114309.html)
+- Nov 25 - [Pepsi quietly killed a beloved soda (Coca-Cola has an alternative)](https://www.thestreet.com/restaurants/pepsi-quietly-killed-a-beloved-soda-coca-cola-has-an-alternative?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
