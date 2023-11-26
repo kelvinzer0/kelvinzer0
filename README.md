@@ -63,7 +63,7 @@ https://kelvinzer0.github.io
 - Nov 26 - [Lauren Sanchez says fiancé Jeff Bezos is a 'monster' in the gym — here's what his fitness routine looks like](https://www.yahoo.com/lifestyle/lauren-sanchez-says-fianc-jeff-064910975.html)
 - Nov 26 - ['You’ll die in this pit': Takeaways from secret recordings of Russian soldiers in Ukraine](https://news.yahoo.com/ll-die-pit-takeaways-secret-060117577.html)
 - Nov 26 - [Dead, wounded or AWOL: The voices of desperate Russian soldiers trying to get out of the Ukraine war](https://news.yahoo.com/dead-wounded-awol-voices-desperate-054726844.html)
-- Nov 26 - [With antisemitism rising as the Israel-Hamas war rages, Europe's Jews worry](https://news.yahoo.com/antisemitism-rising-israel-hamas-war-051509592.html)
+- Nov 26 - [Thieves with chainsaws are going after 150-year-old olive trees: ‘You kill your own history’](https://news.yahoo.com/thieves-chainsaws-going-150-old-040000921.html)
 - Nov 26 - [5-year-old girl who was swept out to sea in Half Moon Bay rescued](https://news.yahoo.com/5-old-girl-swept-sea-035740293.html)
 <!-- feed end -->
 
