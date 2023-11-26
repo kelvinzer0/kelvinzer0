@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 25 - [Ecuador's newly sworn-in president repeals guidelines allowing people to carry limited drug amounts](https://news.yahoo.com/ecuadors-newly-sworn-president-repeals-231114309.html)
-- Nov 25 - [Queens high school students storm halls after learning teacher attended pro-Israel protest](https://news.yahoo.com/queens-high-school-students-storm-225714586.html)
-- Nov 25 - [Avoid Buying a Car at a Dealership on This Day of the Week](https://finance.yahoo.com/news/don-t-buy-car-dealership-180052347.html)
+- Nov 26 - ['You’ll die in this pit': Takeaways from secret recordings of Russian soldiers in Ukraine](https://news.yahoo.com/ll-die-pit-takeaways-secret-060117577.html)
+- Nov 26 - [Dead, wounded or AWOL: The voices of desperate Russian soldiers trying to get out of the Ukraine war](https://news.yahoo.com/dead-wounded-awol-voices-desperate-054726844.html)
+- Nov 25 - [1 dead after 4-car crash into each other on I-285 in DeKalb County](https://news.yahoo.com/red-alert-crash-shuts-down-125412078.html)
 - Nov 25 - [County shuts down woman’s thriving small business for infuriating reason: ‘I don’t really have a business anymore’](https://news.yahoo.com/county-shuts-down-woman-thriving-213000893.html)
-- Nov 25 - [Romney says any Democrat would be ‘an upgrade’ over Trump in 2024](https://news.yahoo.com/romney-says-democrat-upgrade-over-212045258.html)
+- Nov 25 - [Pepsi quietly killed a beloved soda (Coca-Cola has an alternative)](https://www.thestreet.com/restaurants/pepsi-quietly-killed-a-beloved-soda-coca-cola-has-an-alternative?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
