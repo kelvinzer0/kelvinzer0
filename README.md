@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Dispatch: The invisible killer haunting Laos 50 years after the Vietnam War](https://news.yahoo.com/dispatch-invisible-killer-haunting-laos-070000777.html)
+- Nov 26 - [The Bond Market Is Sounding This Alarm for the First Time in Decades: Here's What It Could Mean for the Stock Market.](https://www.fool.com/investing/2023/11/26/bond-market-alarm-what-it-means-for-stock-market/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 26 - [Inmates at Ghislaine Maxwell's prison are plugging leaks with tampons and eating moldy food](https://news.yahoo.com/inmates-ghislaine-maxwells-prison-plugging-110301341.html)
 - Nov 26 - [Lauren Sanchez says fiancé Jeff Bezos is a 'monster' in the gym — here's what his fitness routine looks like](https://www.yahoo.com/lifestyle/lauren-sanchez-says-fianc-jeff-064910975.html)
 - Nov 26 - ['You’ll die in this pit': Takeaways from secret recordings of Russian soldiers in Ukraine](https://news.yahoo.com/ll-die-pit-takeaways-secret-060117577.html)
 - Nov 26 - [Dead, wounded or AWOL: The voices of desperate Russian soldiers trying to get out of the Ukraine war](https://news.yahoo.com/dead-wounded-awol-voices-desperate-054726844.html)
-- Nov 26 - [Thieves with chainsaws are going after 150-year-old olive trees: ‘You kill your own history’](https://news.yahoo.com/thieves-chainsaws-going-150-old-040000921.html)
 <!-- feed end -->
 
 ### Onstream
