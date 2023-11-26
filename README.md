@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Chris Christie plays down risk to Republicans if Trump loses primary but won't leave the race](https://news.yahoo.com/chris-christie-plays-down-risk-151033616.html)
+- Nov 26 - [Ivanka Trump & Jared Kushner Reportedly Went to Drastic Financial Lengths to Start Their New Lives](https://www.yahoo.com/entertainment/ivanka-trump-jared-kushner-reportedly-185500053.html)
+- Nov 26 - [I thought I was having an anxiety attack. It was a 'widowmaker.'](https://news.yahoo.com/thought-having-anxiety-attack-widowmaker-172810313.html)
+- Nov 26 - [‘Very dangerous people’: New op-ed sounds alarm about threat of second Trump administration](https://news.yahoo.com/very-dangerous-people-op-ed-170531045.html)
 - Nov 26 - [Palestinian students studying at U.S. universities shot in Vermont](https://news.yahoo.com/palestinian-students-studying-u-universities-165314707.html)
 - Nov 26 - [Qatar says location of Hamas leader thought to have planned Oct. 7 attack is unknown](https://news.yahoo.com/qatar-says-location-hamas-leader-164301407.html)
-- Nov 26 - [This Comedian Is Itching to Become Donald Trump’s VP Pick & the Internet Is Obviously Split](https://www.yahoo.com/entertainment/comedian-itching-become-donald-trump-163600739.html)
-- Nov 26 - [Cyber Monday deals include 42 percent off one of our favorite Samsung microSD cards](https://news.yahoo.com/cyber-monday-deals-include-42-percent-off-one-of-our-favorite-samsung-microsd-cards-161524306.html)
 <!-- feed end -->
 
 ### Onstream
