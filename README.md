@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Porsche Sport Turismo Is Dead Because Americans Don’t Buy Wagons](https://news.yahoo.com/porsche-sport-turismo-dead-because-192136168.html)
-- Nov 26 - [Afghan special forces soldier who risked her life working with British abandoned by UK](https://news.yahoo.com/afghan-special-forces-soldier-risked-190427230.html)
-- Nov 26 - [Ivanka Trump & Jared Kushner Reportedly Went to Drastic Financial Lengths to Start Their New Lives](https://www.yahoo.com/entertainment/ivanka-trump-jared-kushner-reportedly-185500053.html)
-- Nov 26 - [Syria says an Israeli airstrike hit the Damascus airport and put it out of service](https://news.yahoo.com/syria-says-israeli-airstrike-hit-183452820.html)
-- Nov 26 - [I thought I was having an anxiety attack. It was a 'widowmaker.'](https://news.yahoo.com/thought-having-anxiety-attack-widowmaker-172810313.html)
+- Nov 26 - [Amazon's Fire TV sticks are at record-low prices for Black Friday and Cyber Monday](https://news.yahoo.com/amazon-black-friday-deals-include-the-new-fire-tv-stick-4k-max-for-its-lowest-price-yet-174515131.html)
+- Nov 26 - [Black Friday and Cyber Monday deals drop Google Pixel phones to record low prices on Amazon](https://news.yahoo.com/google-black-friday-deals-the-pixel-7a-is-25-percent-off-and-cheaper-than-ever-223006599.html)
+- Nov 26 - [Palestinian students studying at U.S. universities shot in Vermont](https://news.yahoo.com/palestinian-students-studying-u-universities-165314707.html)
+- Nov 26 - [Catholic priest could be defrocked after US pop star filmed provocative music video in church](https://news.yahoo.com/catholic-priest-punished-letting-us-195809027.html)
+- Nov 26 - [Chris Christie Says It Doesn’t Matter if Trump Loses Primaries: ‘He Hasn’t Conceded the 2020 Election – Who Cares?’ | Video](https://www.yahoo.com/entertainment/chris-christie-says-doesn-t-193537426.html)
 <!-- feed end -->
 
 ### Onstream
