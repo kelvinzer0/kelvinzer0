@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [Amazon's Fire TV sticks are at record-low prices for Black Friday and Cyber Monday](https://news.yahoo.com/amazon-black-friday-deals-include-the-new-fire-tv-stick-4k-max-for-its-lowest-price-yet-174515131.html)
-- Nov 26 - [Black Friday and Cyber Monday deals drop Google Pixel phones to record low prices on Amazon](https://news.yahoo.com/google-black-friday-deals-the-pixel-7a-is-25-percent-off-and-cheaper-than-ever-223006599.html)
+- Nov 26 - [Human Rights Watch says rocket misfire likely cause of deadly Gaza hospital blast](https://news.yahoo.com/human-rights-watch-says-rocket-210001351.html)
 - Nov 26 - [Palestinian students studying at U.S. universities shot in Vermont](https://news.yahoo.com/palestinian-students-studying-u-universities-165314707.html)
+- Nov 26 - [I Stopped Buying Apple Products and Here’s What I Learned](https://finance.yahoo.com/news/stopped-buying-apple-products-learned-200052368.html)
 - Nov 26 - [Catholic priest could be defrocked after US pop star filmed provocative music video in church](https://news.yahoo.com/catholic-priest-punished-letting-us-195809027.html)
 - Nov 26 - [Chris Christie Says It Doesn’t Matter if Trump Loses Primaries: ‘He Hasn’t Conceded the 2020 Election – Who Cares?’ | Video](https://www.yahoo.com/entertainment/chris-christie-says-doesn-t-193537426.html)
 <!-- feed end -->
