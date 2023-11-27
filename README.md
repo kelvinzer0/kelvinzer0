@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Trump refuses to rule out new migrant family separations, but allies are wary](https://news.yahoo.com/trump-refuses-rule-migrant-family-110144766.html)
-- Nov 27 - [Alibaba's research arm shuts quantum computing lab amid restructuring](https://finance.yahoo.com/news/alibabas-research-arm-shuts-quantum-100738102.html)
-- Nov 27 - [Mary Trump Stunned By Donald Trump’s Latest Online Stunt: ‘Absolutely Out Of This World’](https://news.yahoo.com/mary-trump-stunned-donald-trump-095632290.html)
-- Nov 27 - [US destroyer has ballistic missiles fired toward it, after responding to attack on commercial tanker](https://news.yahoo.com/us-destroyer-ballistic-missiles-fired-064853375.html)
-- Nov 27 - [Indian army digs by hand to free 41 trapped tunnel workers](https://news.yahoo.com/indian-army-digs-hand-free-073614607.html)
+- Nov 27 - [Best Cyber Monday laptop deals 2023: Get up to $610 off MacBooks, gaming laptops, Chromebooks and more](https://news.yahoo.com/best-cyber-monday-laptop-deals-2023-get-up-to-610-off-macbooks-gaming-laptops-chromebooks-and-more-120001654.html)
+- Nov 27 - [Ask an Advisor: My Advisor Sold My Nvidia Stock When I Hired Him, Costing Me $50k in Potential Profits. How Do I Deal With It?](https://finance.yahoo.com/news/ask-advisor-advisor-sold-nvidia-120000769.html)
+- Nov 27 - [Tesla sues Sweden over blocked license plates, business daily DI reports](https://finance.yahoo.com/news/tesla-sues-sweden-over-blocked-111120447.html)
+- Nov 27 - [Volkswagen to reduce headcount at 'no longer competitive' VW brand](https://finance.yahoo.com/news/volkswagen-signals-staff-reductions-union-110115651.html)
+- Nov 27 - [Absent from court, Donald Trump finds a voice in defense attorney Alina Habba](https://news.yahoo.com/absent-court-donald-trump-finds-100505991.html)
 <!-- feed end -->
 
 ### Onstream
