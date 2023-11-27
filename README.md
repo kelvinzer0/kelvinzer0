@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [ByteDance to wind down Nuverse in full retreat from gaming -sources](https://finance.yahoo.com/news/bytedance-wind-down-gaming-brand-012637151.html)
+- Nov 27 - [33 Facts About US History That'll Challenge Everything You Learned In Grade School](https://www.yahoo.com/lifestyle/33-facts-us-history-thatll-011603507.html)
+- Nov 27 - [Disneyland Park Guest Arrested After Stripping Off Clothes On “It’s A Small World” Ride](https://www.yahoo.com/entertainment/disneyland-park-guest-arrested-stripping-010853720.html)
 - Nov 27 - [Six teenagers in court over beheading of French teacher](https://news.yahoo.com/six-teenagers-court-over-beheading-010358722.html)
-- Nov 27 - [Get a Brand New Apple Watch From $109 As Part of Surprise Cyber Week Sale Online](https://www.yahoo.com/entertainment/apple-watches-discounted-149-part-005000265.html)
+- Nov 26 - [India's EMotorad rides high with $20M investment for global e-bike push](https://news.yahoo.com/indias-emotorad-rides-high-20m-233017097.html)
 - Nov 26 - [Irregular meals, benches as beds. As freed hostages return to Israel, details of captivity emerge](https://news.yahoo.com/irregular-meals-benches-beds-hostages-230752012.html)
-- Nov 26 - [A 24-year-old stock trader who made over $8 million in 2 years shares the 4 indicators he uses as his guides to buy and sell](https://finance.yahoo.com/news/24-old-stock-trader-made-063529644.html)
 <!-- feed end -->
 
 ### Onstream
