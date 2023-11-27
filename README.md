@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Iceland volcano update: Earthquake 'swarm' strikes Grindavik area as residents still evacuated](https://news.yahoo.com/iceland-volcano-update-earthquakes-eruption-grindavik-185527834.html)
-- Nov 27 - [Billionaires now prefer to rent rather than buy in central London](https://news.yahoo.com/billionaires-now-prefer-rent-rather-183219038.html)
-- Nov 27 - [‘Giant coconut-cracking rat’ photographed for first time in Solomon Islands. See it](https://news.yahoo.com/giant-coconut-cracking-rat-photographed-180618316.html)
-- Nov 27 - [Jeff Bezos And Ex-Wife Mackenzie Scott Only Dated For 6 Months Before Getting Married — 'I Wanted A Woman Who Could Get Me Out Of A Third-World Prison'](https://finance.yahoo.com/news/jeff-bezos-ex-wife-mackenzie-180311292.html)
-- Nov 27 - [Florida election official lay ‘dead or dying’ for 24 minutes outside Gov. Ron DeSantis’ office, report says](https://news.yahoo.com/florida-election-official-lay-dead-175800900.html)
+- Nov 27 - [Thief Returns Stolen Truck with Apology Note and Toys for Owner’s Son](https://autos.yahoo.com/thief-returns-stolen-truck-apology-194400724.html)
+- Nov 27 - [Woman's decades-old mosaic of yard rocks and decorative art work may have to go](https://news.yahoo.com/womans-decades-old-mosaic-yard-194031417.html)
+- Nov 27 - [Prehistoric women were probably better at hunting than men, scientists suggest](https://news.yahoo.com/prehistoric-women-were-probably-better-193819280.html)
+- Nov 27 - [Video shows UFC champ Sean Strickland hold man at gunpoint in front of his home](https://sports.yahoo.com/video-shows-ufc-champ-sean-191558200.html)
+- Nov 27 - ["This is in purpose": Experts alarmed after filing reveals shocking extent of Trump-inspired threats](https://news.yahoo.com/purpose-experts-alarmed-filing-reveals-191519299.html)
 <!-- feed end -->
 
 ### Onstream
