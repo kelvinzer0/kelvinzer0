@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Trump's pardoning of a Kushner-linked drug smuggler undercut a larger DOJ investigation](https://news.yahoo.com/trumps-pardoning-kushner-linked-drug-042255788.html)
+- Nov 27 - [U.S. Stocks Have Been Winners This Year. Why That Probably Won’t Change in 2024.](https://www.barrons.com/articles/us-stocks-market-tech-nvidia-tesla-aapl-542cfd04?siteid=yhoof2&yptr=yahoo)
 - Nov 27 - [Selma Blair says a doctor once suggested she get a boyfriend when she sought help for pain](https://www.yahoo.com/lifestyle/selma-blair-says-doctor-once-030421941.html)
+- Nov 27 - [Univision Anchor Jorge Ramos Says Trump Interview “Put in Doubt the Independence of Our News Department”](https://www.yahoo.com/entertainment/univision-anchor-jorge-ramos-says-025118684.html)
 - Nov 27 - [New York corrections officer arrested after allegedly forcing inmate to perform sexual act](https://news.yahoo.com/york-corrections-officer-arrested-allegedly-020925709.html)
-- Nov 27 - [Middle TN authorities warn parents about new feature for updated iPhones](https://news.yahoo.com/middle-tn-authorities-warn-parents-014608425.html)
-- Nov 27 - ['Long Covid triggered our MCAS, but doctors didn't believe us'](https://news.yahoo.com/long-covid-triggered-mcas-doctors-013906974.html)
+- Nov 27 - [Six teenagers in court over beheading of French teacher](https://news.yahoo.com/six-teenagers-court-over-beheading-010358722.html)
 <!-- feed end -->
 
 ### Onstream
