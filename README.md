@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [U.S. Stocks Have Been Winners This Year. Why That Probably Won’t Change in 2024.](https://www.barrons.com/articles/us-stocks-market-tech-nvidia-tesla-aapl-542cfd04?siteid=yhoof2&yptr=yahoo)
+- Nov 27 - [After two ambitious years, TikTok parent ByteDance starts mass layoffs in gaming](https://news.yahoo.com/two-ambitious-years-tiktok-parent-064616740.html)
+- Nov 27 - [Mitt Romney Names The 2 Republican Presidential Candidates He Won't Vote For](https://news.yahoo.com/mitt-romney-names-2-republican-064406136.html)
+- Nov 27 - [Trump hints at expanded role for the military within the US. A legacy law gives him few guardrails](https://news.yahoo.com/trump-hints-expanded-role-military-050336201.html)
 - Nov 27 - [Selma Blair says a doctor once suggested she get a boyfriend when she sought help for pain](https://www.yahoo.com/lifestyle/selma-blair-says-doctor-once-030421941.html)
 - Nov 27 - [Univision Anchor Jorge Ramos Says Trump Interview “Put in Doubt the Independence of Our News Department”](https://www.yahoo.com/entertainment/univision-anchor-jorge-ramos-says-025118684.html)
-- Nov 27 - [New York corrections officer arrested after allegedly forcing inmate to perform sexual act](https://news.yahoo.com/york-corrections-officer-arrested-allegedly-020925709.html)
-- Nov 27 - [Six teenagers in court over beheading of French teacher](https://news.yahoo.com/six-teenagers-court-over-beheading-010358722.html)
 <!-- feed end -->
 
 ### Onstream
