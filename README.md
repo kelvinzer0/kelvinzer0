@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Do Americans still believe in the American Dream?](https://finance.yahoo.com/video/americans-still-believe-american-dream-180728743.html)
+- Nov 27 - [Iceland volcano update: Earthquake 'swarm' strikes Grindavik area as residents still evacuated](https://news.yahoo.com/iceland-volcano-update-earthquakes-eruption-grindavik-185527834.html)
+- Nov 27 - [Billionaires now prefer to rent rather than buy in central London](https://news.yahoo.com/billionaires-now-prefer-rent-rather-183219038.html)
+- Nov 27 - [‘Giant coconut-cracking rat’ photographed for first time in Solomon Islands. See it](https://news.yahoo.com/giant-coconut-cracking-rat-photographed-180618316.html)
+- Nov 27 - [Jeff Bezos And Ex-Wife Mackenzie Scott Only Dated For 6 Months Before Getting Married — 'I Wanted A Woman Who Could Get Me Out Of A Third-World Prison'](https://finance.yahoo.com/news/jeff-bezos-ex-wife-mackenzie-180311292.html)
 - Nov 27 - [Florida election official lay ‘dead or dying’ for 24 minutes outside Gov. Ron DeSantis’ office, report says](https://news.yahoo.com/florida-election-official-lay-dead-175800900.html)
-- Nov 27 - [Putin signs Russia's largest national budget, bolstering military spending](https://news.yahoo.com/putin-signs-russias-largest-national-175704315.html)
-- Nov 27 - [New crypto front emerges in Israel's militant funding fight](https://news.yahoo.com/crypto-front-emerges-israels-militant-175437333.html)
-- Nov 27 - [Bill Gates Is Pulling In Nearly $500 Million In Annual Dividend Income. Here Are The 5 Stocks Generating The Most Cash Flow For His Portfolio](https://finance.yahoo.com/news/bill-gates-pulling-nearly-500-173922582.html)
 <!-- feed end -->
 
 ### Onstream
