@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [After two ambitious years, TikTok parent ByteDance starts mass layoffs in gaming](https://news.yahoo.com/two-ambitious-years-tiktok-parent-064616740.html)
+- Nov 27 - [6 teenagers go on trial for their alleged role in the 2020 beheading of a French teacher](https://news.yahoo.com/6-teenagers-trial-alleged-role-071809218.html)
+- Nov 27 - [Currency clashes sour Russia's oil trade with Asia](https://news.yahoo.com/currency-clashes-sour-russias-oil-070903289.html)
+- Nov 27 - [US destroyer has ballistic missiles fired toward it, after responding to attack on commercial tanker](https://news.yahoo.com/us-destroyer-ballistic-missiles-fired-064853375.html)
 - Nov 27 - [Mitt Romney Names The 2 Republican Presidential Candidates He Won't Vote For](https://news.yahoo.com/mitt-romney-names-2-republican-064406136.html)
 - Nov 27 - [Trump hints at expanded role for the military within the US. A legacy law gives him few guardrails](https://news.yahoo.com/trump-hints-expanded-role-military-050336201.html)
-- Nov 27 - [Selma Blair says a doctor once suggested she get a boyfriend when she sought help for pain](https://www.yahoo.com/lifestyle/selma-blair-says-doctor-once-030421941.html)
-- Nov 27 - [Univision Anchor Jorge Ramos Says Trump Interview “Put in Doubt the Independence of Our News Department”](https://www.yahoo.com/entertainment/univision-anchor-jorge-ramos-says-025118684.html)
 <!-- feed end -->
 
 ### Onstream
