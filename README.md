@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Polish president to swear in govt; opposition condemns 'farce'](https://news.yahoo.com/polish-president-swear-govt-opposition-085120186.html)
-- Nov 27 - [Evangelical Leader Taunts 'Chump' Trump With 'Golden Showers' Dig](https://news.yahoo.com/evangelical-leader-taunts-chump-trump-083231090.html)
-- Nov 27 - [Sarah Huckabee Sanders’ Warning On ‘Normal Vs. Crazy’ Gets Flipped In Viral Video](https://news.yahoo.com/sarah-huckabee-sanders-warning-normal-075636912.html)
-- Nov 27 - [Indian army digs by hand to free 41 trapped tunnel workers](https://news.yahoo.com/indian-army-digs-hand-free-073614607.html)
+- Nov 27 - [Mary Trump Stunned By Donald Trump’s Latest Online Stunt: ‘Absolutely Out Of This World’](https://news.yahoo.com/mary-trump-stunned-donald-trump-095632290.html)
+- Nov 27 - [US destroyer has ballistic missiles fired toward it, after responding to attack on commercial tanker](https://news.yahoo.com/us-destroyer-ballistic-missiles-fired-064853375.html)
 - Nov 27 - [6 teenagers go on trial for their alleged role in the 2020 beheading of a French teacher](https://news.yahoo.com/6-teenagers-trial-alleged-role-071809218.html)
+- Nov 27 - [Currency clashes sour Russia's oil trade with Asia](https://news.yahoo.com/currency-clashes-sour-russias-oil-070903289.html)
+- Nov 27 - [Mitt Romney Names The 2 Republican Presidential Candidates He Won't Vote For](https://news.yahoo.com/mitt-romney-names-2-republican-064406136.html)
 <!-- feed end -->
 
 ### Onstream
