@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 26 - [The viral NuFace Mini is on sale for Cyber Monday — here's my honest review](https://news.yahoo.com/nuface-mini-facial-toning-device-review-cyber-monday-deal-210012634.html)
-- Nov 26 - [Human Rights Watch says rocket misfire likely cause of deadly Gaza hospital blast](https://news.yahoo.com/human-rights-watch-says-rocket-210001351.html)
-- Nov 26 - [Palestinian students studying at U.S. universities shot in Vermont](https://news.yahoo.com/palestinian-students-studying-u-universities-165314707.html)
-- Nov 26 - [I Stopped Buying Apple Products and Here’s What I Learned](https://finance.yahoo.com/news/stopped-buying-apple-products-learned-200052368.html)
-- Nov 26 - [Catholic priest could be demoted after US pop star filmed provocative music video in church](https://news.yahoo.com/catholic-priest-punished-letting-us-195809027.html)
+- Nov 27 - [Trump, Who Destroyed Roe, Thinks He Can Run As an Abortion ‘Moderate’ in 2024](https://news.yahoo.com/trump-destroyed-roe-thinks-run-010001543.html)
+- Nov 26 - [India's EMotorad rides high with $20M investment for global e-bike push](https://news.yahoo.com/indias-emotorad-rides-high-20m-233017097.html)
+- Nov 26 - [Derek Chauvin, convicted in George Floyd death, to survive prison attack](https://news.yahoo.com/derek-chauvin-convicted-george-floyd-232623783.html)
+- Nov 26 - [Irregular meals, benches as beds. As hostages return to Israel, details of captivity begin to emerge](https://news.yahoo.com/irregular-meals-benches-beds-hostages-230752012.html)
+- Nov 26 - [Fourth family member – an 11-year-old girl – found dead after Alaska landslide, authorities say](https://news.yahoo.com/alaskan-landslide-rescuers-bring-heavy-231506252.html)
 <!-- feed end -->
 
 ### Onstream
