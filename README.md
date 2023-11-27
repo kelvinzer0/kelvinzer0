@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Qatar is the go-to mediator in the Mideast war. Its unprecedented Tel Aviv trip saved a shaky truce](https://news.yahoo.com/qatar-mediator-mideast-war-unprecedented-124415447.html)
+- Nov 27 - [Missiles fired from Yemen toward US warship that responded to attack on commercial tanker](https://news.yahoo.com/us-destroyer-ballistic-missiles-fired-064853375.html)
 - Nov 27 - [Passengers were left on a 'crummy cruise to nowhere' after their ship was turned away from New Zealand because it had 4 seashells stuck to the hull](https://news.yahoo.com/passengers-were-left-crummy-cruise-123127511.html)
+- Nov 27 - [Investigation finds cause of Kentucky train derailment that led to Thanksgiving evacuations](https://news.yahoo.com/investigation-finds-cause-kentucky-train-123023242.html)
 - Nov 27 - ['Tired of being played for suckers': President Biden just proposed a new retirement rule that could help Americans save 'tens of thousands of dollars' — here's how it works](https://finance.yahoo.com/news/tired-being-played-suckers-president-170000473.html)
-- Nov 27 - [Major Trump donors who soured on him after 2020 and Jan. 6 now insist he's their best choice](https://news.yahoo.com/major-trump-donors-soured-him-122900860.html)
-- Nov 27 - [Widow of serial killer who preyed on virgins faces trial over cold cases](https://news.yahoo.com/widow-serial-killer-preyed-virgins-114200642.html)
+- Nov 27 - [I’m a Self-Made Millionaire: 3 Frugal Habits I’ll Never Try Again](https://finance.yahoo.com/news/m-self-made-millionaire-3-120101769.html)
 <!-- feed end -->
 
 ### Onstream
