@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Last two NYC Ford Crown Victoria taxis finally at the end of the road](https://www.autoblog.com/2023/11/27/last-two-nyc-ford-crown-victoria-taxis-finally-at-the-end-of-the-road/)
-- Nov 27 - [For the First Time Since '65, the U.S. Military Will Blast a Nuclear Reactor Into Space](https://finance.yahoo.com/news/first-time-since-65-u-140000856.html)
-- Nov 27 - [Passengers were left on a 'crummy cruise to nowhere' after their ship was turned away from New Zealand because it had 4 seashells stuck to the hull](https://news.yahoo.com/passengers-were-left-crummy-cruise-123127511.html)
-- Nov 27 - [Investigation finds cause of Kentucky train derailment that led to Thanksgiving evacuations](https://news.yahoo.com/investigation-finds-cause-kentucky-train-123023242.html)
-- Nov 27 - ['Tired of being played for suckers': President Biden just proposed a new retirement rule that could help Americans save 'tens of thousands of dollars' — here's how it works](https://finance.yahoo.com/news/tired-being-played-suckers-president-170000473.html)
+- Nov 27 - [‘Quiet Cutting’ Is on the Rise: 4 Key Signs You’re Being Pushed Out of Your Job](https://finance.yahoo.com/news/quiet-cutting-rise-4-key-160031498.html)
+- Nov 27 - [How much money should I have saved by 40?](https://finance.yahoo.com/personal-finance/how-much-money-saved-by-40-155018155.html)
+- Nov 27 - [Pantsir-S anti-aircraft system plows into Moscow building during drone attack](https://news.yahoo.com/pantsir-anti-aircraft-system-plows-154800678.html)
+- Nov 27 - [Check your child’s iPhone for this new feature: The warning police are issuing to parents](https://finance.yahoo.com/news/check-child-iphone-feature-warning-153232897.html)
+- Nov 27 - [The 17 best Cyber Monday laptop deals from Amazon, Best Buy and others](https://news.yahoo.com/the-17-best-cyber-monday-laptop-deals-from-amazon-best-buy-and-others-153229959.html)
 <!-- feed end -->
 
 ### Onstream
