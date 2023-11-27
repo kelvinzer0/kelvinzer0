@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Alberta to study forming its own power company in fight with PM Trudeau](https://news.yahoo.com/alberta-study-forming-own-power-215626907.html)
-- Nov 27 - [Trump says he will renew efforts to replace 'Obamacare' if he wins a second term](https://news.yahoo.com/trump-says-renew-efforts-replace-215302883.html)
-- Nov 27 - [A new COVID variant, HV.1, is now dominant. These are its most common symptoms](https://news.yahoo.com/covid-variant-hv-1-now-023335830.html)
-- Nov 27 - [Gator with missing top jaw recovering, Florida park says. See ‘little angel’ scarf meal](https://news.yahoo.com/gator-missing-top-jaw-recovering-213411714.html)
-- Nov 27 - [Two Women Arrested for Assaulting Jewish New Yorker in Hostage Poster Spat](https://news.yahoo.com/two-women-arrested-assaulting-jewish-212933718.html)
+- Nov 27 - [Judge rejects Trump bid for US House Jan. 6 committee records](https://news.yahoo.com/judge-rejects-trump-bid-us-225314809.html)
+- Nov 27 - [AI threat demands new approach to security designs -US official](https://finance.yahoo.com/news/ai-threat-demands-approach-security-224512110.html)
+- Nov 27 - [Alex Jones Needs Sandy Hook Families’ Approval to Exit Bankruptcy](https://finance.yahoo.com/news/alex-jones-needs-sandy-hook-222152347.html)
+- Nov 27 - [Former WWE Star Tammy Sytch Sentenced to More Than 17 Years in Prison for Deadly Car Crash](https://www.yahoo.com/entertainment/former-wwe-star-tammy-sytch-220842491.html)
+- Nov 27 - [George Santos may get to enjoy all sorts of exclusive, lawmakers-only perks — including the ability to walk onto the House floor — even if he's expelled](https://news.yahoo.com/george-santos-may-enjoy-sorts-215819937.html)
 <!-- feed end -->
 
 ### Onstream
