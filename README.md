@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Best Cyber Monday laptop deals 2023: Get up to $610 off MacBooks, gaming laptops, Chromebooks and more](https://news.yahoo.com/best-cyber-monday-laptop-deals-2023-get-up-to-610-off-macbooks-gaming-laptops-chromebooks-and-more-120001654.html)
-- Nov 27 - [Ask an Advisor: My Advisor Sold My Nvidia Stock When I Hired Him, Costing Me $50k in Potential Profits. How Do I Deal With It?](https://finance.yahoo.com/news/ask-advisor-advisor-sold-nvidia-120000769.html)
-- Nov 27 - [Tesla sues Sweden over blocked license plates, business daily DI reports](https://finance.yahoo.com/news/tesla-sues-sweden-over-blocked-111120447.html)
-- Nov 27 - [Volkswagen to reduce headcount at 'no longer competitive' VW brand](https://finance.yahoo.com/news/volkswagen-signals-staff-reductions-union-110115651.html)
-- Nov 27 - [Absent from court, Donald Trump finds a voice in defense attorney Alina Habba](https://news.yahoo.com/absent-court-donald-trump-finds-100505991.html)
+- Nov 27 - [Qatar is the go-to mediator in the Mideast war. Its unprecedented Tel Aviv trip saved a shaky truce](https://news.yahoo.com/qatar-mediator-mideast-war-unprecedented-124415447.html)
+- Nov 27 - [Passengers were left on a 'crummy cruise to nowhere' after their ship was turned away from New Zealand because it had 4 seashells stuck to the hull](https://news.yahoo.com/passengers-were-left-crummy-cruise-123127511.html)
+- Nov 27 - ['Tired of being played for suckers': President Biden just proposed a new retirement rule that could help Americans save 'tens of thousands of dollars' — here's how it works](https://finance.yahoo.com/news/tired-being-played-suckers-president-170000473.html)
+- Nov 27 - [Major Trump donors who soured on him after 2020 and Jan. 6 now insist he's their best choice](https://news.yahoo.com/major-trump-donors-soured-him-122900860.html)
+- Nov 27 - [Widow of serial killer who preyed on virgins faces trial over cold cases](https://news.yahoo.com/widow-serial-killer-preyed-virgins-114200642.html)
 <!-- feed end -->
 
 ### Onstream
