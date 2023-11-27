@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [As Trump's fraud trial eyes his sweeping financial reports, executive says they're not done anymore](https://news.yahoo.com/trumps-fraud-trial-eyes-sweeping-165136783.html)
-- Nov 27 - [Stock market bulls make case for new highs in 2024](https://finance.yahoo.com/news/stock-market-bulls-make-case-for-new-highs-in-2024-165020295.html)
-- Nov 27 - [Best REI Cyber Monday deals 2023: Up to 85% off on outdoor gear and winter wear](https://www.autoblog.com/article/the-best-rei-cyber-monday-deals-2023-up-to-85-percent-off-on-outdoor-gear-and-winter-wear/)
-- Nov 27 - [Trump Has Decided on a Crazy New Abortion Stance](https://news.yahoo.com/trump-decided-crazy-abortion-stance-162815194.html)
-- Nov 27 - [Trump insists he's being "sarcastic" after being called out for repeatedly confusing Obama and Biden](https://news.yahoo.com/trump-insists-hes-being-sarcastic-162001344.html)
+- Nov 27 - [Do Americans still believe in the American Dream?](https://finance.yahoo.com/video/americans-still-believe-american-dream-180728743.html)
+- Nov 27 - [Florida election official lay ‘dead or dying’ for 24 minutes outside Gov. Ron DeSantis’ office, report says](https://news.yahoo.com/florida-election-official-lay-dead-175800900.html)
+- Nov 27 - [Putin signs Russia's largest national budget, bolstering military spending](https://news.yahoo.com/putin-signs-russias-largest-national-175704315.html)
+- Nov 27 - [New crypto front emerges in Israel's militant funding fight](https://news.yahoo.com/crypto-front-emerges-israels-militant-175437333.html)
+- Nov 27 - [Bill Gates Is Pulling In Nearly $500 Million In Annual Dividend Income. Here Are The 5 Stocks Generating The Most Cash Flow For His Portfolio](https://finance.yahoo.com/news/bill-gates-pulling-nearly-500-173922582.html)
 <!-- feed end -->
 
 ### Onstream
