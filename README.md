@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [‘Quiet Cutting’ Is on the Rise: 4 Key Signs You’re Being Pushed Out of Your Job](https://finance.yahoo.com/news/quiet-cutting-rise-4-key-160031498.html)
-- Nov 27 - [How much money should I have saved by 40?](https://finance.yahoo.com/personal-finance/how-much-money-saved-by-40-155018155.html)
-- Nov 27 - [Pantsir-S anti-aircraft system plows into Moscow building during drone attack](https://news.yahoo.com/pantsir-anti-aircraft-system-plows-154800678.html)
-- Nov 27 - [Check your child’s iPhone for this new feature: The warning police are issuing to parents](https://finance.yahoo.com/news/check-child-iphone-feature-warning-153232897.html)
-- Nov 27 - [The 17 best Cyber Monday laptop deals from Amazon, Best Buy and others](https://news.yahoo.com/the-17-best-cyber-monday-laptop-deals-from-amazon-best-buy-and-others-153229959.html)
+- Nov 27 - [As Trump's fraud trial eyes his sweeping financial reports, executive says they're not done anymore](https://news.yahoo.com/trumps-fraud-trial-eyes-sweeping-165136783.html)
+- Nov 27 - [Stock market bulls make case for new highs in 2024](https://finance.yahoo.com/news/stock-market-bulls-make-case-for-new-highs-in-2024-165020295.html)
+- Nov 27 - [Best REI Cyber Monday deals 2023: Up to 85% off on outdoor gear and winter wear](https://www.autoblog.com/article/the-best-rei-cyber-monday-deals-2023-up-to-85-percent-off-on-outdoor-gear-and-winter-wear/)
+- Nov 27 - [Trump Has Decided on a Crazy New Abortion Stance](https://news.yahoo.com/trump-decided-crazy-abortion-stance-162815194.html)
+- Nov 27 - [Trump insists he's being "sarcastic" after being called out for repeatedly confusing Obama and Biden](https://news.yahoo.com/trump-insists-hes-being-sarcastic-162001344.html)
 <!-- feed end -->
 
 ### Onstream
