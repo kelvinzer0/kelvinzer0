@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [The 17 best Cyber Monday laptop deals from Amazon, Best Buy and others](https://news.yahoo.com/the-17-best-cyber-monday-laptop-deals-from-amazon-best-buy-and-others-153229959.html)
-- Nov 27 - [Trump legal news brief: Threats to Judge Engoron and clerk don’t justify gag order, Trump’s lawyers argue](https://news.yahoo.com/trump-legal-news-brief-threats-to-judge-engoron-and-clerk-dont-justify-gag-order-trumps-lawyers-argue-204949110.html)
-- Nov 27 - [Rep. Kevin McCarthy Mocked For Historically Illiterate Tweet](https://news.yahoo.com/rep-kevin-mccarthy-mocked-historically-201431721.html)
-- Nov 27 - [IndyCar looking to add new, major event for 2025, Miles says](https://news.yahoo.com/indycar-looking-add-major-event-200428278.html)
-- Nov 27 - [Newly freed hostages describe what life was like while being held by Hamas](https://news.yahoo.com/newly-freed-hostages-describe-life-200142732.html)
+- Nov 27 - [Alberta to study forming its own power company in fight with PM Trudeau](https://news.yahoo.com/alberta-study-forming-own-power-215626907.html)
+- Nov 27 - [Trump says he will renew efforts to replace 'Obamacare' if he wins a second term](https://news.yahoo.com/trump-says-renew-efforts-replace-215302883.html)
+- Nov 27 - [A new COVID variant, HV.1, is now dominant. These are its most common symptoms](https://news.yahoo.com/covid-variant-hv-1-now-023335830.html)
+- Nov 27 - [Gator with missing top jaw recovering, Florida park says. See ‘little angel’ scarf meal](https://news.yahoo.com/gator-missing-top-jaw-recovering-213411714.html)
+- Nov 27 - [Two Women Arrested for Assaulting Jewish New Yorker in Hostage Poster Spat](https://news.yahoo.com/two-women-arrested-assaulting-jewish-212933718.html)
 <!-- feed end -->
 
 ### Onstream
