@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Thief Returns Stolen Truck with Apology Note and Toys for Owner’s Son](https://autos.yahoo.com/thief-returns-stolen-truck-apology-194400724.html)
-- Nov 27 - [Woman's decades-old mosaic of yard rocks and decorative art work may have to go](https://news.yahoo.com/womans-decades-old-mosaic-yard-194031417.html)
-- Nov 27 - [Prehistoric women were probably better at hunting than men, scientists suggest](https://news.yahoo.com/prehistoric-women-were-probably-better-193819280.html)
-- Nov 27 - [Video shows UFC champ Sean Strickland hold man at gunpoint in front of his home](https://sports.yahoo.com/video-shows-ufc-champ-sean-191558200.html)
-- Nov 27 - ["This is in purpose": Experts alarmed after filing reveals shocking extent of Trump-inspired threats](https://news.yahoo.com/purpose-experts-alarmed-filing-reveals-191519299.html)
+- Nov 27 - [The 17 best Cyber Monday laptop deals from Amazon, Best Buy and others](https://news.yahoo.com/the-17-best-cyber-monday-laptop-deals-from-amazon-best-buy-and-others-153229959.html)
+- Nov 27 - [Trump legal news brief: Threats to Judge Engoron and clerk don’t justify gag order, Trump’s lawyers argue](https://news.yahoo.com/trump-legal-news-brief-threats-to-judge-engoron-and-clerk-dont-justify-gag-order-trumps-lawyers-argue-204949110.html)
+- Nov 27 - [Rep. Kevin McCarthy Mocked For Historically Illiterate Tweet](https://news.yahoo.com/rep-kevin-mccarthy-mocked-historically-201431721.html)
+- Nov 27 - [IndyCar looking to add new, major event for 2025, Miles says](https://news.yahoo.com/indycar-looking-add-major-event-200428278.html)
+- Nov 27 - [Newly freed hostages describe what life was like while being held by Hamas](https://news.yahoo.com/newly-freed-hostages-describe-life-200142732.html)
 <!-- feed end -->
 
 ### Onstream
