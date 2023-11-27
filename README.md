@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 27 - [Missiles fired from Yemen toward US warship that responded to attack on commercial tanker](https://news.yahoo.com/us-destroyer-ballistic-missiles-fired-064853375.html)
+- Nov 27 - [Last two NYC Ford Crown Victoria taxis finally at the end of the road](https://www.autoblog.com/2023/11/27/last-two-nyc-ford-crown-victoria-taxis-finally-at-the-end-of-the-road/)
+- Nov 27 - [For the First Time Since '65, the U.S. Military Will Blast a Nuclear Reactor Into Space](https://finance.yahoo.com/news/first-time-since-65-u-140000856.html)
 - Nov 27 - [Passengers were left on a 'crummy cruise to nowhere' after their ship was turned away from New Zealand because it had 4 seashells stuck to the hull](https://news.yahoo.com/passengers-were-left-crummy-cruise-123127511.html)
 - Nov 27 - [Investigation finds cause of Kentucky train derailment that led to Thanksgiving evacuations](https://news.yahoo.com/investigation-finds-cause-kentucky-train-123023242.html)
 - Nov 27 - ['Tired of being played for suckers': President Biden just proposed a new retirement rule that could help Americans save 'tens of thousands of dollars' — here's how it works](https://finance.yahoo.com/news/tired-being-played-suckers-president-170000473.html)
-- Nov 27 - [I’m a Self-Made Millionaire: 3 Frugal Habits I’ll Never Try Again](https://finance.yahoo.com/news/m-self-made-millionaire-3-120101769.html)
 <!-- feed end -->
 
 ### Onstream
