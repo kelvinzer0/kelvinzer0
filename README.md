@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [Teenage siblings freed from Hamas captivity, only to learn their mother had been murdered](https://news.yahoo.com/teenage-siblings-freed-hamas-captivity-052229773.html)
+- Nov 28 - [Japanese firms raise monthly regular pay by record amount this year - government poll](https://finance.yahoo.com/news/japanese-firms-raise-monthly-regular-045539056.html)
 - Nov 28 - [Fmr. U.S. Atty: Trump’s last-day pardon is ‘violation of the rule of law’](https://news.yahoo.com/fmr-u-atty-trump-last-040820803.html)
-- Nov 28 - [These people experienced complications from weight-loss drugs. Here's what it's like.](https://www.yahoo.com/lifestyle/weight-loss-drugs-ozempic-wegovy-complications-020706382.html)
-- Nov 28 - [New study shows how to extend life expectancy by an entire decade. Here’s what you should know](https://news.yahoo.com/study-shows-extend-life-expectancy-020000238.html)
-- Nov 28 - [Sports Illustrated Writers “Horrified” By Report That AI-Generated Articles Are Being Published Under SI Banner](https://www.yahoo.com/entertainment/sports-illustrated-writers-horrified-report-010709041.html)
-- Nov 27 - [The Coldest Place on Earth Hasn't Been Experienced by Humans](https://news.yahoo.com/coldest-place-earth-hasnt-experienced-235827005.html)
+- Nov 28 - [Joaquin Phoenix’s lips are not like Napoleon's − here’s what everyone should know about cleft lip](https://news.yahoo.com/joaquin-phoenixs-lips-mocked-heres-184654518.html)
+- Nov 28 - [Florida woman stabs boyfriend's eye with rabies needle because he was looking at other women, police say](https://news.yahoo.com/florida-woman-stabs-boyfriends-eye-023133167.html)
 <!-- feed end -->
 
 ### Onstream
