@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - ["They want them to squirm": Experts say Fulton DA not offering plea deals signals bad news for Trump](https://news.yahoo.com/want-them-squirm-experts-fulton-203231970.html)
-- Nov 28 - [Home Depot billionaire says he'd likely still fund Trump if candidate convicted](https://news.yahoo.com/home-depot-billionaire-says-hed-200914677.html)
-- Nov 28 - [Rosalynn Carter funeral: Jimmy Carter and all 5 living first ladies attend service](https://news.yahoo.com/watch-live-rosalynn-carter-funeral-jimmy-carter-all-5-living-first-ladies-melania-trump-hillary-clinton-michelle-obama-162011346.html)
-- Nov 28 - [Amazon says its next-gen chips are four times faster for AI training](https://news.yahoo.com/amazon-says-its-next-gen-chips-are-four-times-faster-for-ai-training-200028416.html)
-- Nov 28 - [Where is Russia's next wave of men coming from?](https://news.yahoo.com/where-russias-next-wave-men-193803935.html)
+- Nov 28 - [Springsteen drummer Max Weinberg says vintage car restorer stole $125,000 from him](https://news.yahoo.com/springsteen-drummer-max-weinberg-says-215520903.html)
+- Nov 28 - [These Pictures Show The Dramatic Difference Between Melania Trump And Jill Biden's White House Christmas Decorations](https://www.yahoo.com/lifestyle/pictures-show-dramatic-difference-between-212031221.html)
+- Nov 28 - [Guy Who Bought Ford Expedition SeaScape Worked At McDonald’s](https://autos.yahoo.com/guy-bought-ford-expedition-seascape-150909948.html)
+- Nov 28 - [Charlie Munger, Warren Buffett's longtime investing partner, dies at 99](https://finance.yahoo.com/news/charlie-munger-warren-buffetts-longtime-investing-partner-dies-at-99-211406297.html)
+- Nov 28 - [Do You Need to Give Up Eggs if You Have High Cholesterol?](https://www.yahoo.com/lifestyle/eggs-high-cholesterol-211322524.html)
 <!-- feed end -->
 
 ### Onstream
