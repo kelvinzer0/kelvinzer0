@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [At 51, Gabrielle Union Opens Up About Hair Loss in Raw Interview](https://www.yahoo.com/lifestyle/51-gabrielle-union-opens-hair-000600948.html)
-- Nov 28 - [Fraud-trial judge saves Trump from what could have been a shoot-self-in-foot plan to call Trump Org's court-ordered watchdog as a defense witness](https://news.yahoo.com/fraud-trial-judge-saves-trump-000537418.html)
-- Nov 27 - [Florida’s ongoing property insurance crisis leading to spikes in HOA fees](https://news.yahoo.com/florida-ongoing-property-insurance-crisis-233909259.html)
+- Nov 28 - [Sandy Hook families offer to settle Alex Jones' $1.5 billion legal debt for a minimum of $85 million](https://news.yahoo.com/sandy-hook-families-offer-settle-004921668.html)
+- Nov 28 - [Soviet whalers wiped out blue whales from part of the Indian Ocean 50 years ago. Underwater audio reveals the gentle giants have returned.](https://news.yahoo.com/soviet-whalers-wiped-blue-whales-004022255.html)
+- Nov 27 - [The Coldest Place on Earth Hasn't Been Experienced by Humans](https://news.yahoo.com/coldest-place-earth-hasnt-experienced-235827005.html)
 - Nov 27 - [Chechen leader says he is ready to send another 3,000 fighters to Ukraine](https://news.yahoo.com/chechen-leader-says-ready-send-232156141.html)
 - Nov 27 - [Judge rejects Trump bid for US House Jan. 6 committee records](https://news.yahoo.com/judge-rejects-trump-bid-us-225314809.html)
 <!-- feed end -->
