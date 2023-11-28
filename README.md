@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [At 51, Gabrielle Union Opens Up About Hair Loss in Raw Interview](https://www.yahoo.com/lifestyle/51-gabrielle-union-opens-hair-000600948.html)
+- Nov 28 - [Fraud-trial judge saves Trump from what could have been a shoot-self-in-foot plan to call Trump Org's court-ordered watchdog as a defense witness](https://news.yahoo.com/fraud-trial-judge-saves-trump-000537418.html)
+- Nov 27 - [Florida’s ongoing property insurance crisis leading to spikes in HOA fees](https://news.yahoo.com/florida-ongoing-property-insurance-crisis-233909259.html)
+- Nov 27 - [Chechen leader says he is ready to send another 3,000 fighters to Ukraine](https://news.yahoo.com/chechen-leader-says-ready-send-232156141.html)
 - Nov 27 - [Judge rejects Trump bid for US House Jan. 6 committee records](https://news.yahoo.com/judge-rejects-trump-bid-us-225314809.html)
-- Nov 27 - [AI threat demands new approach to security designs -US official](https://finance.yahoo.com/news/ai-threat-demands-approach-security-224512110.html)
-- Nov 27 - [Alex Jones Needs Sandy Hook Families’ Approval to Exit Bankruptcy](https://finance.yahoo.com/news/alex-jones-needs-sandy-hook-222152347.html)
-- Nov 27 - [Former WWE Star Tammy Sytch Sentenced to More Than 17 Years in Prison for Deadly Car Crash](https://www.yahoo.com/entertainment/former-wwe-star-tammy-sytch-220842491.html)
-- Nov 27 - [George Santos may get to enjoy all sorts of exclusive, lawmakers-only perks — including the ability to walk onto the House floor — even if he's expelled](https://news.yahoo.com/george-santos-may-enjoy-sorts-215819937.html)
 <!-- feed end -->
 
 ### Onstream
