@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Musk mocked for trying to resurrect QAnon Pizzagate conspiracy following fake headline](https://news.yahoo.com/musk-mocked-trying-resurrect-qanon-195300589.html)
-- Nov 28 - ["Tanks rolling down Main Street": Experts warn law won't stop Trump from deploying military in US](https://news.yahoo.com/tanks-rolling-down-main-street-193616648.html)
-- Nov 28 - [2024 Acura TLX with fewer trims and more equipment starts at $46,195](https://www.autoblog.com/2023/11/28/2024-acura-tlx-with-fewer-trims-and-more-equipment-starts-at-46195/)
-- Nov 28 - [Jimmy Carter, 99, Makes Rare Appearance at Late Wife Rosalynn Carter’s Memorial Service](https://www.yahoo.com/entertainment/jimmy-carter-99-makes-rare-183835375.html)
-- Nov 28 - ["Geological hazards" lurking below Yellowstone National Park, data show](https://news.yahoo.com/geological-hazards-lurking-below-yellowstone-183021764.html)
+- Nov 28 - ["They want them to squirm": Experts say Fulton DA not offering plea deals signals bad news for Trump](https://news.yahoo.com/want-them-squirm-experts-fulton-203231970.html)
+- Nov 28 - [Home Depot billionaire says he'd likely still fund Trump if candidate convicted](https://news.yahoo.com/home-depot-billionaire-says-hed-200914677.html)
+- Nov 28 - [Rosalynn Carter funeral: Jimmy Carter and all 5 living first ladies attend service](https://news.yahoo.com/watch-live-rosalynn-carter-funeral-jimmy-carter-all-5-living-first-ladies-melania-trump-hillary-clinton-michelle-obama-162011346.html)
+- Nov 28 - [Amazon says its next-gen chips are four times faster for AI training](https://news.yahoo.com/amazon-says-its-next-gen-chips-are-four-times-faster-for-ai-training-200028416.html)
+- Nov 28 - [Where is Russia's next wave of men coming from?](https://news.yahoo.com/where-russias-next-wave-men-193803935.html)
 <!-- feed end -->
 
 ### Onstream
