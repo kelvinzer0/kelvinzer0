@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [Fmr. U.S. Atty: Trump’s last-day pardon is ‘violation of the rule of law’](https://news.yahoo.com/fmr-u-atty-trump-last-040820803.html)
 - Nov 28 - [These people experienced complications from weight-loss drugs. Here's what it's like.](https://www.yahoo.com/lifestyle/weight-loss-drugs-ozempic-wegovy-complications-020706382.html)
 - Nov 28 - [New study shows how to extend life expectancy by an entire decade. Here’s what you should know](https://news.yahoo.com/study-shows-extend-life-expectancy-020000238.html)
-- Nov 28 - [‘Mortifying’: OK woman breaks into rental home, showers before being kicked out](https://news.yahoo.com/mortifying-ok-woman-breaks-rental-000354736.html)
+- Nov 28 - [Sports Illustrated Writers “Horrified” By Report That AI-Generated Articles Are Being Published Under SI Banner](https://www.yahoo.com/entertainment/sports-illustrated-writers-horrified-report-010709041.html)
 - Nov 27 - [The Coldest Place on Earth Hasn't Been Experienced by Humans](https://news.yahoo.com/coldest-place-earth-hasnt-experienced-235827005.html)
-- Nov 27 - [Chechen leader says he is ready to send another 3,000 fighters to Ukraine](https://news.yahoo.com/chechen-leader-says-ready-send-232156141.html)
 <!-- feed end -->
 
 ### Onstream
