@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Nintendo Switch Cyber Monday deals you can still get on consoles and games](https://news.yahoo.com/nintendo-switch-cyber-monday-deals-you-can-still-get-on-consoles-and-games-173014282.html)
-- Nov 28 - [Putin accuses the West of trying to 'dismember and plunder' Russia in a ranting speech](https://news.yahoo.com/putin-accuses-west-trying-dismember-165952703.html)
-- Nov 28 - [British inquiry finds serious failings at hospitals where worker had sex with more than 100 corpses](https://news.yahoo.com/british-inquiry-finds-serious-failings-165839037.html)
-- Nov 28 - [Nobody wants U.S. Treasury bonds](https://finance.yahoo.com/news/nobody-wants-u-treasury-bonds-165407118.html)
-- Nov 28 - [Shimano Was the Victim of a Ransomware Attack and Didn’t Pay the Ransom. Hackers Then Published a LOT of Data.](https://www.yahoo.com/lifestyle/shimano-victim-ransomware-attack-didn-165300345.html)
+- Nov 28 - [Ayaneo's Macintosh-inspired mini PC starts at $149 with internals to match](https://news.yahoo.com/ayaneos-macintosh-inspired-mini-pc-starts-at-149-with-internals-to-match-184717612.html)
+- Nov 28 - [Jimmy Carter, 99, Makes Rare Appearance at Late Wife Rosalynn Carter’s Memorial Service](https://www.yahoo.com/entertainment/jimmy-carter-99-makes-rare-183835375.html)
+- Nov 28 - [South Korean Farmers Threaten to Release 2 Million Dogs in Protest of Dog Meat Ban](https://news.yahoo.com/south-korean-farmers-threaten-release-161724582.html)
+- Nov 28 - [Banker involved in big loans to Trump's company testifies for his defense in civil fraud trial](https://news.yahoo.com/banker-involved-big-loans-trumps-180733697.html)
+- Nov 28 - [Canadian Mounties seemingly PIT a large tractor in dramatic video](https://www.autoblog.com/2023/11/28/canadian-mounties-pit-maneuver-tractor/)
 <!-- feed end -->
 
 ### Onstream
