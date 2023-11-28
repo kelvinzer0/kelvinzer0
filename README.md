@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Why the Florida homeowners insurance crisis should worry us all](https://news.yahoo.com/why-the-florida-homeowners-insurance-crisis-should-worry-us-all-152109934.html)
-- Nov 28 - [Maria Bartiromo Amplifies A Whopper About Barack Obama](https://www.yahoo.com/entertainment/maria-bartiromo-amplifies-whopper-barack-150804206.html)
-- Nov 28 - [Pope punishes leading critic Cardinal Burke in second action against conservative American prelates](https://news.yahoo.com/pope-punishes-leading-critic-cardinal-150139851.html)
-- Nov 28 - [American tanks are fighting Russia. It’s time to see how they perform](https://news.yahoo.com/american-tanks-fighting-russia-time-143345011.html)
-- Nov 28 - [“Profile in courage”: Report sinks narrative that Pence was “principled man who did the right thing”](https://news.yahoo.com/profile-courage-report-sinks-narrative-142953117.html)
+- Nov 28 - [7 Things the Middle Class Spends Money on That Poor and Rich People Don’t](https://finance.yahoo.com/news/7-things-middle-class-spends-160104192.html)
+- Nov 28 - [Putin accuses the West of trying to 'dismember and plunder' Russia in a ranting speech](https://news.yahoo.com/putin-accuses-west-trying-dismember-165952703.html)
+- Nov 28 - [Ukraine strikes Russian aircraft factory 200 miles behind enemy lines](https://news.yahoo.com/ukraine-strikes-russian-aircraft-factory-163028182.html)
+- Nov 28 - [Delayed by war, Gaza's olive harvest is too little, too late, say farmers](https://news.yahoo.com/delayed-war-gazas-olive-harvest-162847342.html)
+- Nov 28 - [Russia's Putin, shown alongside Orthodox icon image, warns West against meddling](https://news.yahoo.com/russias-putin-shown-alongside-orthodox-160458306.html)
 <!-- feed end -->
 
 ### Onstream
