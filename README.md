@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [Why the Florida homeowners insurance crisis should worry us all](https://news.yahoo.com/why-the-florida-homeowners-insurance-crisis-should-worry-us-all-152109934.html)
+- Nov 28 - [Maria Bartiromo Amplifies A Whopper About Barack Obama](https://www.yahoo.com/entertainment/maria-bartiromo-amplifies-whopper-barack-150804206.html)
+- Nov 28 - [Pope punishes leading critic Cardinal Burke in second action against conservative American prelates](https://news.yahoo.com/pope-punishes-leading-critic-cardinal-150139851.html)
 - Nov 28 - [American tanks are fighting Russia. It’s time to see how they perform](https://news.yahoo.com/american-tanks-fighting-russia-time-143345011.html)
-- Nov 28 - [11 people died and 75 were injured after an elevator plunged 650 feet at a platinum mine](https://news.yahoo.com/11-people-died-75-were-135826338.html)
-- Nov 28 - [This young Seattle couple rushed to buy a $730K home — and now they can't sleep at night. Here's a 5-point checklist to find out if you're actually ready to buy a house](https://finance.yahoo.com/news/young-couple-rushed-buy-730k-113000742.html)
-- Nov 28 - [Staring into the eyes of a king cobra was required, so Florida lab took drastic steps](https://news.yahoo.com/staring-eyes-king-cobra-required-133806822.html)
-- Nov 28 - [In new challenge to indictment, Trump's lawyers argue he had good basis to question election results](https://news.yahoo.com/challenge-indictment-trumps-lawyers-argue-132154421.html)
+- Nov 28 - [“Profile in courage”: Report sinks narrative that Pence was “principled man who did the right thing”](https://news.yahoo.com/profile-courage-report-sinks-narrative-142953117.html)
 <!-- feed end -->
 
 ### Onstream
