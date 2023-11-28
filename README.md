@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [American tanks are fighting Russia. It’s time to see how they perform](https://news.yahoo.com/american-tanks-fighting-russia-time-143345011.html)
+- Nov 28 - [11 people died and 75 were injured after an elevator plunged 650 feet at a platinum mine](https://news.yahoo.com/11-people-died-75-were-135826338.html)
+- Nov 28 - [This young Seattle couple rushed to buy a $730K home — and now they can't sleep at night. Here's a 5-point checklist to find out if you're actually ready to buy a house](https://finance.yahoo.com/news/young-couple-rushed-buy-730k-113000742.html)
 - Nov 28 - [Staring into the eyes of a king cobra was required, so Florida lab took drastic steps](https://news.yahoo.com/staring-eyes-king-cobra-required-133806822.html)
 - Nov 28 - [In new challenge to indictment, Trump's lawyers argue he had good basis to question election results](https://news.yahoo.com/challenge-indictment-trumps-lawyers-argue-132154421.html)
-- Nov 28 - [Stock Split Watch: 2 Monster Growth Stocks Up 376% and 1,160% in 5 Years to Buy Before 2024](https://www.fool.com/investing/2023/11/28/stock-split-2-monster-growth-stocks-up-1160-to-buy/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 28 - [First on CNN: Father describes how his young daughter Emily Hand survived Hamas captivity](https://news.yahoo.com/first-cnn-father-describes-young-130922813.html)
-- Nov 28 - [Report reveals details of fatal bus crash that killed Tuscarawas Valley students, adults](https://news.yahoo.com/report-reveals-details-fatal-bus-125943044.html)
 <!-- feed end -->
 
 ### Onstream
