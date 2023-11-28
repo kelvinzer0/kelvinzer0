@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [Cryptoverse: 'Layer two' tokens enjoy new life as bitcoin soars](https://finance.yahoo.com/news/cryptoverse-layer-two-tokens-enjoy-061619626.html)
 - Nov 28 - [Teenage siblings freed from Hamas captivity, only to learn their mother had been murdered](https://news.yahoo.com/teenage-siblings-freed-hamas-captivity-052229773.html)
 - Nov 28 - [Japanese firms raise monthly regular pay by record amount this year - government poll](https://finance.yahoo.com/news/japanese-firms-raise-monthly-regular-045539056.html)
 - Nov 28 - [Fmr. U.S. Atty: Trump’s last-day pardon is ‘violation of the rule of law’](https://news.yahoo.com/fmr-u-atty-trump-last-040820803.html)
 - Nov 28 - [Joaquin Phoenix’s lips are not like Napoleon's − here’s what everyone should know about cleft lip](https://news.yahoo.com/joaquin-phoenixs-lips-mocked-heres-184654518.html)
-- Nov 28 - [Florida woman stabs boyfriend's eye with rabies needle because he was looking at other women, police say](https://news.yahoo.com/florida-woman-stabs-boyfriends-eye-023133167.html)
 <!-- feed end -->
 
 ### Onstream
