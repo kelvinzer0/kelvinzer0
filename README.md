@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [These 4 Measures Indicate That Alibaba Group Holding (NYSE:BABA) Is Using Debt Safely](https://finance.yahoo.com/news/4-measures-indicate-alibaba-group-120046943.html)
+- Nov 28 - [Teenage siblings freed from Hamas captivity, only to learn their mother had been murdered](https://news.yahoo.com/teenage-siblings-freed-hamas-captivity-052229773.html)
+- Nov 28 - [“How long can we keep this up?” Food banks are under pressure from Texas’ high level of food insecurity](https://news.yahoo.com/long-keep-food-banks-under-110000607.html)
 - Nov 28 - [In 1st trial of its kind in the US, Irish startup spreads concrete dust on Illinois farm field to remove CO2 from the air](https://news.yahoo.com/1st-trial-kind-us-irish-101600080.html)
 - Nov 28 - [Pence told Jan. 6 special counsel harrowing details about 2020 aftermath, warnings to Trump: Sources](https://news.yahoo.com/pence-told-jan-6-special-100823519.html)
-- Nov 28 - [Evangelical Leader Names Time And Place Voters Will 'Rise Up' Against Trump](https://news.yahoo.com/evangelical-leader-names-time-place-100429575.html)
-- Nov 28 - [This 9% Dividend Yield Stock Is a No-Brainer Buy Right Now](https://www.fool.com/investing/2023/11/28/this-9-dividend-yield-stock-is-a-no-brainer-buy-ri/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 28 - [‘Take It Seriously’: Presidential Historian Issues Warning Over New Donald Trump Vow](https://news.yahoo.com/seriously-presidential-historian-issues-warning-092528536.html)
 <!-- feed end -->
 
 ### Onstream
