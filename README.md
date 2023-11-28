@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [7 Things the Middle Class Spends Money on That Poor and Rich People Don’t](https://finance.yahoo.com/news/7-things-middle-class-spends-160104192.html)
+- Nov 28 - [Nintendo Switch Cyber Monday deals you can still get on consoles and games](https://news.yahoo.com/nintendo-switch-cyber-monday-deals-you-can-still-get-on-consoles-and-games-173014282.html)
 - Nov 28 - [Putin accuses the West of trying to 'dismember and plunder' Russia in a ranting speech](https://news.yahoo.com/putin-accuses-west-trying-dismember-165952703.html)
-- Nov 28 - [Ukraine strikes Russian aircraft factory 200 miles behind enemy lines](https://news.yahoo.com/ukraine-strikes-russian-aircraft-factory-163028182.html)
-- Nov 28 - [Delayed by war, Gaza's olive harvest is too little, too late, say farmers](https://news.yahoo.com/delayed-war-gazas-olive-harvest-162847342.html)
-- Nov 28 - [Russia's Putin, shown alongside Orthodox icon image, warns West against meddling](https://news.yahoo.com/russias-putin-shown-alongside-orthodox-160458306.html)
+- Nov 28 - [British inquiry finds serious failings at hospitals where worker had sex with more than 100 corpses](https://news.yahoo.com/british-inquiry-finds-serious-failings-165839037.html)
+- Nov 28 - [Nobody wants U.S. Treasury bonds](https://finance.yahoo.com/news/nobody-wants-u-treasury-bonds-165407118.html)
+- Nov 28 - [Shimano Was the Victim of a Ransomware Attack and Didn’t Pay the Ransom. Hackers Then Published a LOT of Data.](https://www.yahoo.com/lifestyle/shimano-victim-ransomware-attack-didn-165300345.html)
 <!-- feed end -->
 
 ### Onstream
