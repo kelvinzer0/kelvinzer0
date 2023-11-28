@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Ayaneo's Macintosh-inspired mini PC starts at $149 with internals to match](https://news.yahoo.com/ayaneos-macintosh-inspired-mini-pc-starts-at-149-with-internals-to-match-184717612.html)
+- Nov 28 - [Musk mocked for trying to resurrect QAnon Pizzagate conspiracy following fake headline](https://news.yahoo.com/musk-mocked-trying-resurrect-qanon-195300589.html)
+- Nov 28 - ["Tanks rolling down Main Street": Experts warn law won't stop Trump from deploying military in US](https://news.yahoo.com/tanks-rolling-down-main-street-193616648.html)
+- Nov 28 - [2024 Acura TLX with fewer trims and more equipment starts at $46,195](https://www.autoblog.com/2023/11/28/2024-acura-tlx-with-fewer-trims-and-more-equipment-starts-at-46195/)
 - Nov 28 - [Jimmy Carter, 99, Makes Rare Appearance at Late Wife Rosalynn Carter’s Memorial Service](https://www.yahoo.com/entertainment/jimmy-carter-99-makes-rare-183835375.html)
-- Nov 28 - [South Korean Farmers Threaten to Release 2 Million Dogs in Protest of Dog Meat Ban](https://news.yahoo.com/south-korean-farmers-threaten-release-161724582.html)
-- Nov 28 - [Banker involved in big loans to Trump's company testifies for his defense in civil fraud trial](https://news.yahoo.com/banker-involved-big-loans-trumps-180733697.html)
-- Nov 28 - [Canadian Mounties seemingly PIT a large tractor in dramatic video](https://www.autoblog.com/2023/11/28/canadian-mounties-pit-maneuver-tractor/)
+- Nov 28 - ["Geological hazards" lurking below Yellowstone National Park, data show](https://news.yahoo.com/geological-hazards-lurking-below-yellowstone-183021764.html)
 <!-- feed end -->
 
 ### Onstream
