@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Furious Robert De Niro Realizes Anti-Trump Lines Cut From Teleprompter Mid-Speech](https://www.yahoo.com/entertainment/furious-niro-realizes-anti-trump-123058889.html)
-- Nov 28 - [Teenage siblings freed from Hamas captivity, only to learn their mother had been murdered](https://news.yahoo.com/teenage-siblings-freed-hamas-captivity-052229773.html)
-- Nov 28 - [Ozempic and Wegovy have upended the diet industry. So why is the WeightWatchers CEO betting the company’s future on them?](https://finance.yahoo.com/news/ozempic-wegovy-upended-diet-industry-110033143.html)
-- Nov 28 - [In 1st trial of its kind in the US, Irish startup spreads concrete dust on Illinois farm field to remove CO2 from the air](https://news.yahoo.com/1st-trial-kind-us-irish-101600080.html)
-- Nov 28 - ['Nobody cared': Women who have reported mistreatment while giving birth say CDC report validates their trauma](https://news.yahoo.com/nobody-cared-women-reported-mistreatment-101045843.html)
+- Nov 28 - [Staring into the eyes of a king cobra was required, so Florida lab took drastic steps](https://news.yahoo.com/staring-eyes-king-cobra-required-133806822.html)
+- Nov 28 - [In new challenge to indictment, Trump's lawyers argue he had good basis to question election results](https://news.yahoo.com/challenge-indictment-trumps-lawyers-argue-132154421.html)
+- Nov 28 - [Stock Split Watch: 2 Monster Growth Stocks Up 376% and 1,160% in 5 Years to Buy Before 2024](https://www.fool.com/investing/2023/11/28/stock-split-2-monster-growth-stocks-up-1160-to-buy/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 28 - [First on CNN: Father describes how his young daughter Emily Hand survived Hamas captivity](https://news.yahoo.com/first-cnn-father-describes-young-130922813.html)
+- Nov 28 - [Report reveals details of fatal bus crash that killed Tuscarawas Valley students, adults](https://news.yahoo.com/report-reveals-details-fatal-bus-125943044.html)
 <!-- feed end -->
 
 ### Onstream
