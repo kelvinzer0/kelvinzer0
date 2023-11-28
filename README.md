@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [These 4 Measures Indicate That Alibaba Group Holding (NYSE:BABA) Is Using Debt Safely](https://finance.yahoo.com/news/4-measures-indicate-alibaba-group-120046943.html)
+- Nov 28 - [Furious Robert De Niro Realizes Anti-Trump Lines Cut From Teleprompter Mid-Speech](https://www.yahoo.com/entertainment/furious-niro-realizes-anti-trump-123058889.html)
 - Nov 28 - [Teenage siblings freed from Hamas captivity, only to learn their mother had been murdered](https://news.yahoo.com/teenage-siblings-freed-hamas-captivity-052229773.html)
-- Nov 28 - [“How long can we keep this up?” Food banks are under pressure from Texas’ high level of food insecurity](https://news.yahoo.com/long-keep-food-banks-under-110000607.html)
+- Nov 28 - [Ozempic and Wegovy have upended the diet industry. So why is the WeightWatchers CEO betting the company’s future on them?](https://finance.yahoo.com/news/ozempic-wegovy-upended-diet-industry-110033143.html)
 - Nov 28 - [In 1st trial of its kind in the US, Irish startup spreads concrete dust on Illinois farm field to remove CO2 from the air](https://news.yahoo.com/1st-trial-kind-us-irish-101600080.html)
-- Nov 28 - [Pence told Jan. 6 special counsel harrowing details about 2020 aftermath, warnings to Trump: Sources](https://news.yahoo.com/pence-told-jan-6-special-100823519.html)
+- Nov 28 - ['Nobody cared': Women who have reported mistreatment while giving birth say CDC report validates their trauma](https://news.yahoo.com/nobody-cared-women-reported-mistreatment-101045843.html)
 <!-- feed end -->
 
 ### Onstream
