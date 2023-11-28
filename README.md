@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [‘Take It Seriously’: Presidential Historian Issues Warning Over New Donald Trump Vow](https://news.yahoo.com/seriously-presidential-historian-issues-warning-092528536.html)
+- Nov 28 - ["Rat miners" reach 41 men trapped for 17 days in collapsed Indian tunnel](https://news.yahoo.com/rat-miners-reach-41-men-090500501.html)
 - Nov 28 - [Teenage siblings freed from Hamas captivity, only to learn their mother had been murdered](https://news.yahoo.com/teenage-siblings-freed-hamas-captivity-052229773.html)
-- Nov 28 - [Japanese firms raise monthly regular pay by record amount this year - government poll](https://finance.yahoo.com/news/japanese-firms-raise-monthly-regular-045539056.html)
+- Nov 28 - [Alex Murdaugh, already convicted of murder, will be sentenced for stealing from 18 clients](https://news.yahoo.com/alex-murdaugh-already-convicted-murder-050537880.html)
 - Nov 28 - [Fmr. U.S. Atty: Trump’s last-day pardon is ‘violation of the rule of law’](https://news.yahoo.com/fmr-u-atty-trump-last-040820803.html)
-- Nov 28 - [Joaquin Phoenix’s lips are not like Napoleon's − here’s what everyone should know about cleft lip](https://news.yahoo.com/joaquin-phoenixs-lips-mocked-heres-184654518.html)
-- Nov 28 - [Convicted prostitute, current escort removed from Godley ISD groups, including council overseeing Sex-Ed](https://news.yahoo.com/convicted-prostitute-current-escort-removed-030031637.html)
 <!-- feed end -->
 
 ### Onstream
