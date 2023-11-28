@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [In 1st trial of its kind in the US, Irish startup spreads concrete dust on Illinois farm field to remove CO2 from the air](https://news.yahoo.com/1st-trial-kind-us-irish-101600080.html)
+- Nov 28 - [Pence told Jan. 6 special counsel harrowing details about 2020 aftermath, warnings to Trump: Sources](https://news.yahoo.com/pence-told-jan-6-special-100823519.html)
+- Nov 28 - [Evangelical Leader Names Time And Place Voters Will 'Rise Up' Against Trump](https://news.yahoo.com/evangelical-leader-names-time-place-100429575.html)
+- Nov 28 - [This 9% Dividend Yield Stock Is a No-Brainer Buy Right Now](https://www.fool.com/investing/2023/11/28/this-9-dividend-yield-stock-is-a-no-brainer-buy-ri/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Nov 28 - [‘Take It Seriously’: Presidential Historian Issues Warning Over New Donald Trump Vow](https://news.yahoo.com/seriously-presidential-historian-issues-warning-092528536.html)
-- Nov 28 - ["Rat miners" reach 41 men trapped for 17 days in collapsed Indian tunnel](https://news.yahoo.com/rat-miners-reach-41-men-090500501.html)
-- Nov 28 - [Teenage siblings freed from Hamas captivity, only to learn their mother had been murdered](https://news.yahoo.com/teenage-siblings-freed-hamas-captivity-052229773.html)
-- Nov 28 - [Alex Murdaugh, already convicted of murder, will be sentenced for stealing from 18 clients](https://news.yahoo.com/alex-murdaugh-already-convicted-murder-050537880.html)
-- Nov 28 - [Fmr. U.S. Atty: Trump’s last-day pardon is ‘violation of the rule of law’](https://news.yahoo.com/fmr-u-atty-trump-last-040820803.html)
 <!-- feed end -->
 
 ### Onstream
