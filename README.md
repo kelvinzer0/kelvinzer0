@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - ["Epic humiliation": GOP mocked for rejecting Hunter Biden offer to testify publicly](https://news.yahoo.com/epic-humiliation-gop-mocked-rejecting-160307061.html)
-- Nov 29 - [Mexico president asks lawmakers to let US military trainers into Mexico](https://news.yahoo.com/mexico-president-asks-lawmakers-let-152604621.html)
-- Nov 29 - [Apple may finally be admitting it made a big mistake with the Apple Card](https://www.thestreet.com/technology/apple-card-may-be-coming-to-end?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 29 - [Ukraine-Russia war: Russian general blown up by landmine on front line](https://news.yahoo.com/ukraine-russia-war-russia-bombards-145953686.html)
-- Nov 29 - [Trump targets Judge Arthur Engoron's wife on Truth Social](https://news.yahoo.com/trump-targets-judge-arthur-engorons-151937676.html)
+- Nov 29 - [Jeff Bezos’ superyacht is in South Florida. It’s so big it has to anchor at a seaport](https://news.yahoo.com/jeff-bezos-superyacht-now-south-162612296.html)
+- Nov 29 - [Home Depot co-founder's controversial comments cause cries for boycott](https://www.thestreet.com/retail/home-depot-co-founders-controversial-comments-cause-cries-for-boycott?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 29 - [‘Not a party club.’ Lexington council votes on new private business proposed for Main St.](https://news.yahoo.com/not-party-club-lexington-council-160755630.html)
+- Nov 29 - [Google DeepMind AI reveals potential for thousands of new materials](https://finance.yahoo.com/news/google-deepmind-ai-reveals-potential-160539727.html)
+- Nov 29 - [Hillary Clinton jabs Trump on abortion: ‘He thinks women are going to fall for this?’](https://news.yahoo.com/hillary-clinton-jabs-trump-abortion-154741461.html)
 <!-- feed end -->
 
 ### Onstream
