@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [This luxury juggernaut is the most reliable brand, says Consumer Reports](https://www.thestreet.com/automotive/this-luxury-juggernaut-is-the-most-reliable-brand-says-consumer-reports-?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 29 - [Mark Cuban’s Mavericks Sale Would Boost His Net Worth by $700 Million](https://finance.yahoo.com/news/mark-cuban-mavericks-sale-boost-202056762.html)
-- Nov 29 - [Why TikTok’s ‘tunnel girl’ is building a shelter beneath her home](https://news.yahoo.com/why-tiktok-tunnel-girl-building-200441303.html)
+- Nov 29 - [Stop using WhatsApp, get Paris-made alternative, French PM tells ministers](https://finance.yahoo.com/news/stop-using-whatsapp-paris-made-211954391.html)
+- Nov 29 - [7 eating, drinking habits that increase your cancer risk: New study sheds more insight](https://news.yahoo.com/eating-drinking-habits-cancer-risk-study-205655627.html)
 - Nov 29 - [Jonathan Majors arrives for domestic violence trial with Meagan Good at his side and a Bible in hand. 'That is not by mistake,' says legal expert.](https://www.yahoo.com/entertainment/jonathan-majors-domestic-violence-trial-meagan-good-bible-194137642.html)
 - Nov 29 - [Here are the hardest used cars to sell in America](https://www.autoblog.com/article/slowest-selling-used-cars/)
+- Nov 29 - [What you need to know about the California intrastate ELD mandate](https://finance.yahoo.com/news/know-california-intrastate-eld-mandate-192000466.html)
 <!-- feed end -->
 
 ### Onstream
