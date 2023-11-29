@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 29 - [Okta says hackers stole data for all customer support users in cyber breach](https://news.yahoo.com/okta-says-hackers-stole-data-043533860.html)
+- Nov 29 - [Toyota's October global output hits record despite supplier accident](https://finance.yahoo.com/news/toyotas-october-global-output-hits-043300511.html)
+- Nov 29 - [Report: Mike Pence reveals details in Trump’s federal election interference case](https://news.yahoo.com/report-mike-pence-reveals-details-040431100.html)
+- Nov 29 - [Part owner of Boston bar pleads guilty, admits to helping accused killer after Marine vet’s death](https://news.yahoo.com/plea-expected-woman-charged-connection-175310471.html)
 - Nov 29 - [Adelsons to Buy Stake in NBA’s Dallas Mavericks From Mark Cuban](https://finance.yahoo.com/news/adelson-family-buy-sports-team-213251982.html)
-- Nov 29 - [National Christmas Tree topples to the ground at White House: 'Perfectly summing up Joe Biden's presidency'](https://news.yahoo.com/national-christmas-tree-topples-ground-013249264.html)
-- Nov 29 - [WKYC meteorologist Hollie Strano charged with OVI following Thanksgiving crash](https://news.yahoo.com/wkyc-meteorologist-strano-charged-ovi-012326769.html)
-- Nov 29 - [Crippling Black Sea storm reportedly destroys Kerch bridge barriers](https://news.yahoo.com/crippling-black-sea-storm-reportedly-004942004.html)
-- Nov 28 - [Texas city approves $3.5 million for child who witnessed aunt's fatal shooting by officer](https://news.yahoo.com/texas-city-approves-3-5-232953845.html)
 <!-- feed end -->
 
 ### Onstream
