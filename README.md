@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 29 - [‘Giant’ cave-dwelling creature — carrying 6 eggs — found Ecuador. It’s a new species](https://news.yahoo.com/giant-cave-dwelling-creature-carrying-223907142.html)
+- Nov 29 - [2025 Chevy Tahoe and Suburban revealed with big updates, really big wheels](https://www.autoblog.com/2023/11/29/2025-chevy-tahoe-suburban-revealed-refresh/)
+- Nov 29 - [AWS reInvent: Everything Amazon's announced, from new AI tools to LLM updates and more](https://news.yahoo.com/heres-everything-amazon-services-announced-170607599.html)
+- Nov 29 - [Michael Latt Dies In Home Invasion; Suspect ID’d In Studio Consultant & Activist’s Killing At Mid-Wilshire Residence](https://www.yahoo.com/entertainment/michael-latt-killed-home-invasion-212013008.html)
 - Nov 29 - [Stop using WhatsApp, get Paris-made alternative, French PM tells ministers](https://finance.yahoo.com/news/stop-using-whatsapp-paris-made-211954391.html)
-- Nov 29 - [7 eating, drinking habits that increase your cancer risk: New study sheds more insight](https://news.yahoo.com/eating-drinking-habits-cancer-risk-study-205655627.html)
-- Nov 29 - [Jonathan Majors arrives for domestic violence trial with Meagan Good at his side and a Bible in hand. 'That is not by mistake,' says legal expert.](https://www.yahoo.com/entertainment/jonathan-majors-domestic-violence-trial-meagan-good-bible-194137642.html)
-- Nov 29 - [Here are the hardest used cars to sell in America](https://www.autoblog.com/article/slowest-selling-used-cars/)
-- Nov 29 - [What you need to know about the California intrastate ELD mandate](https://finance.yahoo.com/news/know-california-intrastate-eld-mandate-192000466.html)
 <!-- feed end -->
 
 ### Onstream
