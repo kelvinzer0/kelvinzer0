@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Bank of Singapore's Lee on Markets, Strategy](https://finance.yahoo.com/video/bank-singapores-lee-markets-strategy-040217397.html)
-- Nov 29 - [Analysis-Rakuten's mobile misadventure: from ambitious plan to millstone](https://finance.yahoo.com/news/analysis-rakutens-mobile-misadventure-ambitious-033847621.html)
+- Nov 29 - [Image of child trapped under rubble predates Gaza war and shows signs of AI](https://news.yahoo.com/image-child-trapped-under-rubble-073348830.html)
+- Nov 29 - [Ex-Bush Strategist Predicts Exactly When Donald Trump Will Be Convicted](https://news.yahoo.com/ex-bush-strategist-predicts-exactly-072237657.html)
+- Nov 29 - [Okta says hackers stole data for all customer support users in cyber breach](https://finance.yahoo.com/news/okta-says-hackers-stole-data-043533312.html)
 - Nov 29 - [National Christmas Tree topples to the ground at White House: 'Perfectly summing up Joe Biden's presidency'](https://news.yahoo.com/national-christmas-tree-topples-ground-013249264.html)
 - Nov 29 - [Crippling Black Sea storm reportedly destroys Kerch bridge barriers](https://news.yahoo.com/crippling-black-sea-storm-reportedly-004942004.html)
-- Nov 28 - [Melania Trump And Jill Biden's White House Christmas Decorations Couldn't Be More Different, Like It's Actually Funny](https://www.yahoo.com/lifestyle/pictures-show-dramatic-difference-between-212031221.html)
 <!-- feed end -->
 
 ### Onstream
