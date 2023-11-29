@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Adelsons to Buy NBA Team With $2 Billion Share Sale](https://finance.yahoo.com/news/adelson-family-buy-sports-team-213251982.html)
-- Nov 29 - [At Trump's NY fraud trial, a rep for 'victim' Deutsche Bank wouldn't use the F-word — for fraud](https://news.yahoo.com/trumps-ny-fraud-trial-rep-001926873.html)
+- Nov 29 - [McCarthy visited Mar-a-Lago after January 6 because staffers said Trump was 'not eating,' Liz Cheney writes in forthcoming book](https://news.yahoo.com/mccarthy-visited-mar-lago-january-013736123.html)
+- Nov 29 - [Adelsons to Buy NBA’s Mavericks From Mark Cuban, Reports Say](https://finance.yahoo.com/news/adelson-family-buy-sports-team-213251982.html)
+- Nov 29 - [Part owner of Boston bar pleads guilty, admits to helping accused killer after Marine vet’s death](https://news.yahoo.com/plea-expected-woman-charged-connection-175310471.html)
 - Nov 28 - [Texas city approves $3.5 million for child who witnessed aunt's fatal shooting by officer](https://news.yahoo.com/texas-city-approves-3-5-232953845.html)
-- Nov 28 - [Melania Trump And Jill Biden's White House Christmas Decorations Couldn't Be More Different, Like It's Actually Funny](https://www.yahoo.com/lifestyle/pictures-show-dramatic-difference-between-212031221.html)
-- Nov 28 - [Charlie Munger, Warren Buffett's longtime investing partner, dies at 99](https://finance.yahoo.com/news/charlie-munger-warren-buffetts-longtime-investing-partner-dies-at-99-211406297.html)
+- Nov 28 - [Trump Era Tax Cuts Are Set To Expire — Here’s How Much More You’ll Pay](https://finance.yahoo.com/news/trump-era-tax-cuts-set-160750197.html)
 <!-- feed end -->
 
 ### Onstream
