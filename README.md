@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Kremlin, on reported Polish plan to send troops to Finnish border, says it will stoke tensions](https://news.yahoo.com/kremlin-reported-polish-plan-send-100048045.html)
-- Nov 29 - [‘How Humiliating’: Critics Taunt ‘Groveling’ Kevin McCarthy Over Trump Revelation](https://news.yahoo.com/humiliating-critics-taunt-groveling-kevin-094309673.html)
-- Nov 29 - [It sure looks like Mark Cuban is walking away from everything that made him Mark Cuban](https://www.yahoo.com/entertainment/sure-looks-mark-cuban-walking-093301572.html)
-- Nov 29 - [Ex-Bush Strategist Predicts Exactly When Donald Trump Will Be Convicted](https://news.yahoo.com/ex-bush-strategist-predicts-exactly-072237657.html)
-- Nov 29 - [Southern California woman speaks after being dragged by Costco purse snatcher](https://news.yahoo.com/southern-california-woman-speaks-being-063819776.html)
+- Nov 29 - [Republicans don't want Hunter Biden to testify publicly because truth is scary](https://news.yahoo.com/republicans-dont-want-hunter-biden-102827486.html)
+- Nov 29 - [Possible Polish plan to send troops to Russian border will stoke tensions -Kremlin](https://news.yahoo.com/kremlin-reported-polish-plan-send-100048045.html)
+- Nov 29 - [Ex-Federal Prosecutor Thinks Trump’s Lawyers Doomed Him With Latest ‘Dumb’ Move](https://news.yahoo.com/ex-federal-prosecutor-thinks-trump-090738040.html)
+- Nov 29 - [Half of German companies face labour shortages despite economic stagnation - survey](https://finance.yahoo.com/news/half-german-companies-face-labour-083444493.html)
+- Nov 29 - [Yahya Sinwar: Hamas Gaza leader and 'dead man walking'](https://news.yahoo.com/yahya-sinwar-hamas-gaza-leader-083015270.html)
 <!-- feed end -->
 
 ### Onstream
