@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Image of child trapped under rubble predates Gaza war and shows signs of AI](https://news.yahoo.com/image-child-trapped-under-rubble-073348830.html)
 - Nov 29 - [Ex-Bush Strategist Predicts Exactly When Donald Trump Will Be Convicted](https://news.yahoo.com/ex-bush-strategist-predicts-exactly-072237657.html)
-- Nov 29 - [Okta says hackers stole data for all customer support users in cyber breach](https://finance.yahoo.com/news/okta-says-hackers-stole-data-043533312.html)
-- Nov 29 - [National Christmas Tree topples to the ground at White House: 'Perfectly summing up Joe Biden's presidency'](https://news.yahoo.com/national-christmas-tree-topples-ground-013249264.html)
-- Nov 29 - [Crippling Black Sea storm reportedly destroys Kerch bridge barriers](https://news.yahoo.com/crippling-black-sea-storm-reportedly-004942004.html)
+- Nov 29 - [How banned 'rat-hole' mining saved India's trapped workers](https://news.yahoo.com/banned-rat-hole-mining-saved-053135993.html)
+- Nov 29 - [South Korea's Nov exports to rise for second month but at slower pace : Reuters Poll](https://finance.yahoo.com/news/south-koreas-nov-exports-rise-050401781.html)
+- Nov 29 - [Rakuten's mobile misadventure: from ambitious plan to millstone](https://finance.yahoo.com/news/analysis-rakutens-mobile-misadventure-ambitious-033847621.html)
+- Nov 29 - [WKYC meteorologist Hollie Strano charged with OVI following Thanksgiving crash](https://news.yahoo.com/wkyc-meteorologist-strano-charged-ovi-012326769.html)
 <!-- feed end -->
 
 ### Onstream
