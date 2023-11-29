@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 29 - [US Congress vows to pass massive defense bill, culture wars loom](https://news.yahoo.com/us-congress-vows-pass-massive-190155526.html)
+- Nov 29 - [Fact Check: Fox News Reported that Trump Attorney Alina Habba's Law Firm Has $1.7M in Federal Tax Liens?](https://news.yahoo.com/fact-check-fox-news-reported-183900484.html)
+- Nov 29 - [Nvidia CEO Predicts AI Breakthrough Known as AGI in Five Years](https://www.barrons.com/articles/nvidia-ceo-jensen-huang-agi-breakthrough-a7029004?siteid=yhoof2&yptr=yahoo)
 - Nov 29 - [Deutsche Bank was keen to land a 'whale' of a client in Trump, documents at his fraud trial show](https://news.yahoo.com/deutsche-bank-keen-land-whale-180521377.html)
-- Nov 29 - [Yahya Sinwar: Hamas Gaza leader and 'dead man walking'](https://news.yahoo.com/yahya-sinwar-hamas-gaza-leader-083015270.html)
-- Nov 29 - [Birkenstock shares extend rally, hit IPO price for first time](https://finance.yahoo.com/news/birkenstock-shares-extend-rally-hit-173727023.html)
-- Nov 29 - [Charlie Munger Revealed What Was Left On His Bucket List Before He Died — 'I Would Have Paid Any Amount To Catch A 200-Pound Tuna When I Was Younger. I Never Caught One'](https://finance.yahoo.com/news/charlie-munger-revealed-left-bucket-173249866.html)
-- Nov 29 - [Most reliable cars ranked, EVs and PHEVs fare poorly](https://www.autoblog.com/article/predicted-car-reliability/)
+- Nov 29 - [Iran executes 17-year-old boy after ‘forced confession’](https://news.yahoo.com/iran-executes-17-old-boy-175633862.html)
 <!-- feed end -->
 
 ### Onstream
