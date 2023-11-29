@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 29 - [Kremlin, on reported Polish plan to send troops to Finnish border, says it will stoke tensions](https://news.yahoo.com/kremlin-reported-polish-plan-send-100048045.html)
+- Nov 29 - [‘How Humiliating’: Critics Taunt ‘Groveling’ Kevin McCarthy Over Trump Revelation](https://news.yahoo.com/humiliating-critics-taunt-groveling-kevin-094309673.html)
+- Nov 29 - [It sure looks like Mark Cuban is walking away from everything that made him Mark Cuban](https://www.yahoo.com/entertainment/sure-looks-mark-cuban-walking-093301572.html)
 - Nov 29 - [Ex-Bush Strategist Predicts Exactly When Donald Trump Will Be Convicted](https://news.yahoo.com/ex-bush-strategist-predicts-exactly-072237657.html)
-- Nov 29 - [How banned 'rat-hole' mining saved India's trapped workers](https://news.yahoo.com/banned-rat-hole-mining-saved-053135993.html)
-- Nov 29 - [South Korea's Nov exports to rise for second month but at slower pace : Reuters Poll](https://finance.yahoo.com/news/south-koreas-nov-exports-rise-050401781.html)
-- Nov 29 - [Rakuten's mobile misadventure: from ambitious plan to millstone](https://finance.yahoo.com/news/analysis-rakutens-mobile-misadventure-ambitious-033847621.html)
-- Nov 29 - [WKYC meteorologist Hollie Strano charged with OVI following Thanksgiving crash](https://news.yahoo.com/wkyc-meteorologist-strano-charged-ovi-012326769.html)
+- Nov 29 - [Southern California woman speaks after being dragged by Costco purse snatcher](https://news.yahoo.com/southern-california-woman-speaks-being-063819776.html)
 <!-- feed end -->
 
 ### Onstream
