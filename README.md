@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Americans Glimpse Jimmy Carter’s Frailty and His Resolve](https://news.yahoo.com/americans-glimpse-jimmy-carter-frailty-123706688.html)
-- Nov 29 - [My Friends Bought a Home at a 2.75% Mortgage Rate. Here's Why They Totally Regret It](https://www.fool.com/the-ascent/mortgages/articles/my-friends-bought-a-home-at-a-275-mortgage-rate-heres-why-they-totally-regret-it/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 29 - [Ozempic Receives Some Very Bad News: Is It Time to Sell Novo Nordisk Stock?](https://www.fool.com/investing/2023/11/29/ozempic-bad-news-time-to-sell-novo-nordisk-stock/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 29 - [Republicans don't want Hunter Biden to testify publicly because truth is scary](https://news.yahoo.com/republicans-dont-want-hunter-biden-102827486.html)
-- Nov 29 - ['Point of no return': Why Kyiv won't sit down with the Kremlin](https://news.yahoo.com/point-no-return-why-kyiv-095607885.html)
+- Nov 29 - [Up to 40 inches of snow blankets the Northeast as storm snarls morning commute](https://news.yahoo.com/40-inches-snow-expected-hit-141100437.html)
+- Nov 29 - [New Uni Wheel drive tech could revolutionize electric vehicle design](https://www.autoblog.com/2023/11/29/uni-wheel-hyundai-kia-electric-vehicle-design/)
+- Nov 29 - [Donald Trump Wants Federal Government To “Come Down Hard” On MSNBC For Its Criticism Of Him](https://www.yahoo.com/entertainment/donald-trump-wants-federal-government-140524512.html)
+- Nov 29 - [Freed Israeli hostages tell families of beatings and death threats](https://news.yahoo.com/freed-israeli-hostages-tell-families-131701057.html)
+- Nov 29 - [State Farm is closing its doors to millions of new customers exposed to ‘rapidly growing’ catastrophes — here’s who’s affected](https://news.yahoo.com/state-farm-closing-doors-millions-113000421.html)
 <!-- feed end -->
 
 ### Onstream
