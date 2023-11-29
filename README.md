@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [McCarthy visited Mar-a-Lago after January 6 because staffers said Trump was 'not eating,' Liz Cheney writes in forthcoming book](https://news.yahoo.com/mccarthy-visited-mar-lago-january-013736123.html)
-- Nov 29 - [Adelsons to Buy NBA’s Mavericks From Mark Cuban, Reports Say](https://finance.yahoo.com/news/adelson-family-buy-sports-team-213251982.html)
-- Nov 29 - [Part owner of Boston bar pleads guilty, admits to helping accused killer after Marine vet’s death](https://news.yahoo.com/plea-expected-woman-charged-connection-175310471.html)
-- Nov 28 - [Texas city approves $3.5 million for child who witnessed aunt's fatal shooting by officer](https://news.yahoo.com/texas-city-approves-3-5-232953845.html)
-- Nov 28 - [Trump Era Tax Cuts Are Set To Expire — Here’s How Much More You’ll Pay](https://finance.yahoo.com/news/trump-era-tax-cuts-set-160750197.html)
+- Nov 29 - [Adelsons to Buy Stake in NBA’s Dallas Mavericks From Mark Cuban](https://finance.yahoo.com/news/adelson-family-buy-sports-team-213251982.html)
+- Nov 29 - [18 One-In-A-Million Coincidences That I Can't Believe Actually Happened](https://www.yahoo.com/lifestyle/18-one-million-coincidences-cant-011602507.html)
+- Nov 29 - [Crippling Black Sea storm reportedly destroys Kerch bridge barriers](https://news.yahoo.com/crippling-black-sea-storm-reportedly-004942004.html)
+- Nov 28 - ['Broken and Alone': Father Pens Scathing Letter to Top Brass After Losing Airman Son to Suicide](https://news.yahoo.com/broken-alone-father-pens-scathing-225121095.html)
+- Nov 28 - [Springsteen drummer Max Weinberg says vintage car restorer stole $125,000 from him](https://news.yahoo.com/springsteen-drummer-max-weinberg-says-215520903.html)
 <!-- feed end -->
 
 ### Onstream
