@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Up to 40 inches of snow blankets the Northeast as storm snarls morning commute](https://news.yahoo.com/40-inches-snow-expected-hit-141100437.html)
-- Nov 29 - [New Uni Wheel drive tech could revolutionize electric vehicle design](https://www.autoblog.com/2023/11/29/uni-wheel-hyundai-kia-electric-vehicle-design/)
-- Nov 29 - [Donald Trump Wants Federal Government To “Come Down Hard” On MSNBC For Its Criticism Of Him](https://www.yahoo.com/entertainment/donald-trump-wants-federal-government-140524512.html)
-- Nov 29 - [Freed Israeli hostages tell families of beatings and death threats](https://news.yahoo.com/freed-israeli-hostages-tell-families-131701057.html)
-- Nov 29 - [State Farm is closing its doors to millions of new customers exposed to ‘rapidly growing’ catastrophes — here’s who’s affected](https://news.yahoo.com/state-farm-closing-doors-millions-113000421.html)
+- Nov 29 - ["Epic humiliation": GOP mocked for rejecting Hunter Biden offer to testify publicly](https://news.yahoo.com/epic-humiliation-gop-mocked-rejecting-160307061.html)
+- Nov 29 - [Mexico president asks lawmakers to let US military trainers into Mexico](https://news.yahoo.com/mexico-president-asks-lawmakers-let-152604621.html)
+- Nov 29 - [Apple may finally be admitting it made a big mistake with the Apple Card](https://www.thestreet.com/technology/apple-card-may-be-coming-to-end?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 29 - [Ukraine-Russia war: Russian general blown up by landmine on front line](https://news.yahoo.com/ukraine-russia-war-russia-bombards-145953686.html)
+- Nov 29 - [Trump targets Judge Arthur Engoron's wife on Truth Social](https://news.yahoo.com/trump-targets-judge-arthur-engorons-151937676.html)
 <!-- feed end -->
 
 ### Onstream
