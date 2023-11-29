@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 29 - [Adelsons to Buy Stake in NBA’s Dallas Mavericks From Mark Cuban](https://finance.yahoo.com/news/adelson-family-buy-sports-team-213251982.html)
-- Nov 29 - [18 One-In-A-Million Coincidences That I Can't Believe Actually Happened](https://www.yahoo.com/lifestyle/18-one-million-coincidences-cant-011602507.html)
+- Nov 29 - [National Christmas Tree topples to the ground at White House: 'Perfectly summing up Joe Biden's presidency'](https://news.yahoo.com/national-christmas-tree-topples-ground-013249264.html)
+- Nov 29 - [WKYC meteorologist Hollie Strano charged with OVI following Thanksgiving crash](https://news.yahoo.com/wkyc-meteorologist-strano-charged-ovi-012326769.html)
 - Nov 29 - [Crippling Black Sea storm reportedly destroys Kerch bridge barriers](https://news.yahoo.com/crippling-black-sea-storm-reportedly-004942004.html)
-- Nov 28 - ['Broken and Alone': Father Pens Scathing Letter to Top Brass After Losing Airman Son to Suicide](https://news.yahoo.com/broken-alone-father-pens-scathing-225121095.html)
-- Nov 28 - [Springsteen drummer Max Weinberg says vintage car restorer stole $125,000 from him](https://news.yahoo.com/springsteen-drummer-max-weinberg-says-215520903.html)
+- Nov 28 - [Texas city approves $3.5 million for child who witnessed aunt's fatal shooting by officer](https://news.yahoo.com/texas-city-approves-3-5-232953845.html)
 <!-- feed end -->
 
 ### Onstream
