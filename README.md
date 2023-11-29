@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 29 - [My Friends Bought a Home at a 2.75% Mortgage Rate. Here's Why They Totally Regret It](https://www.fool.com/the-ascent/mortgages/articles/my-friends-bought-a-home-at-a-275-mortgage-rate-heres-why-they-totally-regret-it/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 29 - [The bad news is Trump is polling well — but the good news is he's ready to blow it](https://news.yahoo.com/bad-news-trump-polling-well-110001441.html)
+- Nov 29 - [Buildings and Roads Left Damaged After Israeli Operation in Jenin](https://news.yahoo.com/buildings-roads-left-damaged-israeli-103417054.html)
 - Nov 29 - [Republicans don't want Hunter Biden to testify publicly because truth is scary](https://news.yahoo.com/republicans-dont-want-hunter-biden-102827486.html)
-- Nov 29 - [Possible Polish plan to send troops to Russian border will stoke tensions -Kremlin](https://news.yahoo.com/kremlin-reported-polish-plan-send-100048045.html)
-- Nov 29 - [Ex-Federal Prosecutor Thinks Trump’s Lawyers Doomed Him With Latest ‘Dumb’ Move](https://news.yahoo.com/ex-federal-prosecutor-thinks-trump-090738040.html)
-- Nov 29 - [Half of German companies face labour shortages despite economic stagnation - survey](https://finance.yahoo.com/news/half-german-companies-face-labour-083444493.html)
-- Nov 29 - [Yahya Sinwar: Hamas Gaza leader and 'dead man walking'](https://news.yahoo.com/yahya-sinwar-hamas-gaza-leader-083015270.html)
+- Nov 29 - ['Point of no return': Why Kyiv won't sit down with the Kremlin](https://news.yahoo.com/point-no-return-why-kyiv-095607885.html)
 <!-- feed end -->
 
 ### Onstream
