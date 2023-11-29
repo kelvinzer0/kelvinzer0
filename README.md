@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Michael Oher lawyers: Tuohy family's accounting of 'Blind Side' money 'demonstrably false'](https://sports.yahoo.com/michael-oher-lawyers-tuohy-familys-193732867.html)
+- Nov 29 - [This luxury juggernaut is the most reliable brand, says Consumer Reports](https://www.thestreet.com/automotive/this-luxury-juggernaut-is-the-most-reliable-brand-says-consumer-reports-?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 29 - [Mark Cuban’s Mavericks Sale Would Boost His Net Worth by $700 Million](https://finance.yahoo.com/news/mark-cuban-mavericks-sale-boost-202056762.html)
+- Nov 29 - [Why TikTok’s ‘tunnel girl’ is building a shelter beneath her home](https://news.yahoo.com/why-tiktok-tunnel-girl-building-200441303.html)
+- Nov 29 - [Jonathan Majors arrives for domestic violence trial with Meagan Good at his side and a Bible in hand. 'That is not by mistake,' says legal expert.](https://www.yahoo.com/entertainment/jonathan-majors-domestic-violence-trial-meagan-good-bible-194137642.html)
 - Nov 29 - [Here are the hardest used cars to sell in America](https://www.autoblog.com/article/slowest-selling-used-cars/)
-- Nov 29 - [Wendy's menu adds a meaty new sandwich with a scary twist](https://www.thestreet.com/restaurants/forget-the-15-big-mac-wendys-menu-adds-pricey-new-sandwich?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 29 - [House Speaker Mike Johnson has "reservations" about expelling George Santos](https://news.yahoo.com/house-speaker-mike-johnson-reservations-190851683.html)
-- Nov 29 - [Man experiencing severe headaches for 5 months discovers chopsticks in his brain](https://news.yahoo.com/man-experiencing-severe-headaches-5-190313364.html)
 <!-- feed end -->
 
 ### Onstream
