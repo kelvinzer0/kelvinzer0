@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [Jeff Bezos’ superyacht is in South Florida. It’s so big it has to anchor at a seaport](https://news.yahoo.com/jeff-bezos-superyacht-now-south-162612296.html)
-- Nov 29 - [Home Depot co-founder's controversial comments cause cries for boycott](https://www.thestreet.com/retail/home-depot-co-founders-controversial-comments-cause-cries-for-boycott?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 29 - [‘Not a party club.’ Lexington council votes on new private business proposed for Main St.](https://news.yahoo.com/not-party-club-lexington-council-160755630.html)
-- Nov 29 - [Google DeepMind AI reveals potential for thousands of new materials](https://finance.yahoo.com/news/google-deepmind-ai-reveals-potential-160539727.html)
-- Nov 29 - [Hillary Clinton jabs Trump on abortion: ‘He thinks women are going to fall for this?’](https://news.yahoo.com/hillary-clinton-jabs-trump-abortion-154741461.html)
+- Nov 29 - [Deutsche Bank was keen to land a 'whale' of a client in Trump, documents at his fraud trial show](https://news.yahoo.com/deutsche-bank-keen-land-whale-180521377.html)
+- Nov 29 - [Yahya Sinwar: Hamas Gaza leader and 'dead man walking'](https://news.yahoo.com/yahya-sinwar-hamas-gaza-leader-083015270.html)
+- Nov 29 - [Birkenstock shares extend rally, hit IPO price for first time](https://finance.yahoo.com/news/birkenstock-shares-extend-rally-hit-173727023.html)
+- Nov 29 - [Charlie Munger Revealed What Was Left On His Bucket List Before He Died — 'I Would Have Paid Any Amount To Catch A 200-Pound Tuna When I Was Younger. I Never Caught One'](https://finance.yahoo.com/news/charlie-munger-revealed-left-bucket-173249866.html)
+- Nov 29 - [Most reliable cars ranked, EVs and PHEVs fare poorly](https://www.autoblog.com/article/predicted-car-reliability/)
 <!-- feed end -->
 
 ### Onstream
