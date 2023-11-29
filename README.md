@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 28 - [Have I Bonds from Last Year? Dec. 2 Could Be Your Sweet Spot for Cashing Out](https://www.investopedia.com/have-i-bonds-from-last-year-dec-2-could-be-your-sweet-spot-for-cashing-out-8407461?utm_campaign=quote-yahoo&utm_source=yahoo&utm_medium=referral&yptr=yahoo)
-- Nov 28 - [Adelson Family to Buy Sports Team With $2 Billion Share Sale](https://finance.yahoo.com/news/adelson-family-buy-sports-team-213251982.html)
-- Nov 28 - [Springsteen drummer Max Weinberg says vintage car restorer stole $125,000 from him](https://news.yahoo.com/springsteen-drummer-max-weinberg-says-215520903.html)
-- Nov 28 - [Montana Republican’s Repulsive Palestinian Proposal Is Too Much Even for Pro-Israel Democrats](https://news.yahoo.com/montana-republican-repulsive-palestinian-proposal-212351407.html)
+- Nov 29 - [Adelsons to Buy NBA Team With $2 Billion Share Sale](https://finance.yahoo.com/news/adelson-family-buy-sports-team-213251982.html)
+- Nov 29 - [At Trump's NY fraud trial, a rep for 'victim' Deutsche Bank wouldn't use the F-word — for fraud](https://news.yahoo.com/trumps-ny-fraud-trial-rep-001926873.html)
+- Nov 28 - [Texas city approves $3.5 million for child who witnessed aunt's fatal shooting by officer](https://news.yahoo.com/texas-city-approves-3-5-232953845.html)
 - Nov 28 - [Melania Trump And Jill Biden's White House Christmas Decorations Couldn't Be More Different, Like It's Actually Funny](https://www.yahoo.com/lifestyle/pictures-show-dramatic-difference-between-212031221.html)
+- Nov 28 - [Charlie Munger, Warren Buffett's longtime investing partner, dies at 99](https://finance.yahoo.com/news/charlie-munger-warren-buffetts-longtime-investing-partner-dies-at-99-211406297.html)
 <!-- feed end -->
 
 ### Onstream
