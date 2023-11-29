@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 29 - [Americans Glimpse Jimmy Carter’s Frailty and His Resolve](https://news.yahoo.com/americans-glimpse-jimmy-carter-frailty-123706688.html)
-- Nov 29 - [US military Osprey crashes off coast of Japan, killing at least 1](https://news.yahoo.com/us-military-osprey-crashes-off-121120654.html)
-- Nov 29 - [After years of backlogs, state licensing agency unveils new tool to speed up application process for some health care fields](https://news.yahoo.com/years-backlogs-state-licensing-agency-120224691.html)
 - Nov 29 - [My Friends Bought a Home at a 2.75% Mortgage Rate. Here's Why They Totally Regret It](https://www.fool.com/the-ascent/mortgages/articles/my-friends-bought-a-home-at-a-275-mortgage-rate-heres-why-they-totally-regret-it/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Nov 29 - [The bad news is Trump is polling well — but the good news is he's ready to blow it](https://news.yahoo.com/bad-news-trump-polling-well-110001441.html)
+- Nov 29 - [Ozempic Receives Some Very Bad News: Is It Time to Sell Novo Nordisk Stock?](https://www.fool.com/investing/2023/11/29/ozempic-bad-news-time-to-sell-novo-nordisk-stock/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Nov 29 - [Republicans don't want Hunter Biden to testify publicly because truth is scary](https://news.yahoo.com/republicans-dont-want-hunter-biden-102827486.html)
+- Nov 29 - ['Point of no return': Why Kyiv won't sit down with the Kremlin](https://news.yahoo.com/point-no-return-why-kyiv-095607885.html)
 <!-- feed end -->
 
 ### Onstream
