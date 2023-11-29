@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 29 - [US Congress vows to pass massive defense bill, culture wars loom](https://news.yahoo.com/us-congress-vows-pass-massive-190155526.html)
-- Nov 29 - [Fact Check: Fox News Reported that Trump Attorney Alina Habba's Law Firm Has $1.7M in Federal Tax Liens?](https://news.yahoo.com/fact-check-fox-news-reported-183900484.html)
-- Nov 29 - [Nvidia CEO Predicts AI Breakthrough Known as AGI in Five Years](https://www.barrons.com/articles/nvidia-ceo-jensen-huang-agi-breakthrough-a7029004?siteid=yhoof2&yptr=yahoo)
-- Nov 29 - [Deutsche Bank was keen to land a 'whale' of a client in Trump, documents at his fraud trial show](https://news.yahoo.com/deutsche-bank-keen-land-whale-180521377.html)
-- Nov 29 - [Iran executes 17-year-old boy after ‘forced confession’](https://news.yahoo.com/iran-executes-17-old-boy-175633862.html)
+- Nov 29 - [Michael Oher lawyers: Tuohy family's accounting of 'Blind Side' money 'demonstrably false'](https://sports.yahoo.com/michael-oher-lawyers-tuohy-familys-193732867.html)
+- Nov 29 - [Here are the hardest used cars to sell in America](https://www.autoblog.com/article/slowest-selling-used-cars/)
+- Nov 29 - [Wendy's menu adds a meaty new sandwich with a scary twist](https://www.thestreet.com/restaurants/forget-the-15-big-mac-wendys-menu-adds-pricey-new-sandwich?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 29 - [House Speaker Mike Johnson has "reservations" about expelling George Santos](https://news.yahoo.com/house-speaker-mike-johnson-reservations-190851683.html)
+- Nov 29 - [Man experiencing severe headaches for 5 months discovers chopsticks in his brain](https://news.yahoo.com/man-experiencing-severe-headaches-5-190313364.html)
 <!-- feed end -->
 
 ### Onstream
