@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Appeals court reinstates gag order that barred Trump from maligning court staff in NY fraud trial](https://finance.yahoo.com/news/appeals-court-reinstates-gag-order-160547763.html)
-- Nov 30 - [2025 Volvo EX90 Is Reasonably Priced for a Luxury Three-Row EV SUV](https://autos.yahoo.com/2025-volvo-ex90-reasonably-priced-154200210.html)
-- Nov 30 - [Scott Perry’s texts reveal details about efforts to overturn Trump’s loss in 2020](https://news.yahoo.com/scott-perry-texts-reveal-details-153121722.html)
-- Nov 30 - [10 Russian soldiers killed after lighting a fire near ammunition while training near Rostov](https://news.yahoo.com/10-russian-soldiers-killed-lighting-151700647.html)
-- Nov 30 - [Left at the port: Royal Caribbean passengers denied boarding due to overbooked cruise](https://news.yahoo.com/left-port-royal-caribbean-passengers-145227972.html)
+- Nov 30 - [Ukrainian strike levels Russian HQ, killing 14 Russians, including many officers, in occupied Tokmak](https://news.yahoo.com/ukrainian-strike-levels-russian-hq-164400018.html)
+- Nov 30 - [Trump's gag order reinstated by court in NY civil fraud case](https://news.yahoo.com/trumps-gag-order-reinstated-court-162221101.html)
+- Nov 30 - [Mark Cuban's Dallas Mavericks sale may be 'red flag' for the NBA, one major sports media personality says](https://www.thestreet.com/sports/mark-cubans-dallas-mavericks-sale-red-flag-nba-amin-elhassan?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 30 - [Former Apple worker reveals top 7 iPhone hacks that completely change how you use it](https://www.thestreet.com/technology/former-apple-worker-reveals-top-7-iphone-hacks-that-completely-change-how-you-use-it?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Nov 30 - [One identical twin went vegan while the other didn’t. See what happened](https://www.yahoo.com/lifestyle/one-identical-twin-went-vegan-160031729.html)
 <!-- feed end -->
 
 ### Onstream
