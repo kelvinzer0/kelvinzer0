@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Tesla Says Cybertruck Can Do 0-60 MPH in 2.6 Seconds, Quarter-Mile in Under 11](https://autos.yahoo.com/tesla-says-cybertruck-0-60-204400175.html)
-- Nov 30 - [Millennials are baffled by the way Gen Z uses the camera app on their phones](https://news.yahoo.com/gen-z-zoom-how-to-203000205.html)
-- Nov 30 - [AOC says her life 'completely transformed' for the better after Pelosi stepped down from leadership](https://news.yahoo.com/aoc-says-her-life-completely-195041833.html)
-- Nov 30 - [Trump Responds to Gag Order Reinstatement by Attacking Judge’s Wife](https://news.yahoo.com/trump-responds-gag-order-reinstatement-185236287.html)
-- Nov 30 - [Fact Check: Disney+ Lost 23M Subscribers in One Night After Trying to 'Cancel' Elon Musk?](https://www.yahoo.com/entertainment/fact-check-disney-lost-23m-183600484.html)
+- Nov 30 - [Here's How Much the Tesla Cybertruck Costs](https://autos.yahoo.com/heres-much-tesla-cybertruck-costs-212300657.html)
+- Nov 30 - [Ukraine's air force dropped a wild video of a MiG-29 hugging the ground in a shockingly low pass](https://news.yahoo.com/ukraines-air-force-dropped-wild-211909851.html)
+- Nov 30 - [Chevy's emotional holiday ad features a grandmother with Alzheimer's engaging in reminiscence therapy. Here's how it works.](https://www.yahoo.com/lifestyle/chevys-emotional-holiday-ad-features-210921267.html)
+- Nov 30 - [WKYC meteorologist Hollie Strano pleads guilty to OVI charge after Thanksgiving crash](https://news.yahoo.com/wkyc-meteorologist-hollie-strano-pleads-210310276.html)
+- Nov 30 - [Suspect Arrested After Stomping on Car Window: Cops](https://news.yahoo.com/suspect-arrested-stomping-car-window-210102166.html)
 <!-- feed end -->
 
 ### Onstream
