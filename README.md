@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Coal will remain an important part of India's energy needs: govt official](https://news.yahoo.com/coal-remain-important-part-indias-081821142.html)
 - Nov 30 - [Social Security Official Shreds Lauren Boebert Over What She Finds 'Unacceptable'](https://news.yahoo.com/social-security-official-shreds-lauren-070404050.html)
 - Nov 30 - [Two Palestinians open fire at Jerusalem bus stop, killing three -police](https://news.yahoo.com/shooting-attack-jerusalem-wounds-least-060100141.html)
 - Nov 30 - ['Devastating loss': Hollywood figure killed inside home in random attack, LAPD says](https://news.yahoo.com/devastating-loss-hollywood-figure-killed-032428147.html)
-- Nov 30 - ['You fought for our story': New updates investigation into USPS worker who attacked customers](https://news.yahoo.com/fought-story-updates-investigation-usps-022849769.html)
+- Nov 30 - [Henry Kissinger, America’s Most Notorious War Criminal, Dies At 100](https://news.yahoo.com/henry-kissinger-america-most-notorious-015455590.html)
+- Nov 30 - [Elon Musk Slings Expletives at Advertisers Fleeing X](https://finance.yahoo.com/news/elon-musk-slinging-expletives-says-224343601.html)
 <!-- feed end -->
 
 ### Onstream
