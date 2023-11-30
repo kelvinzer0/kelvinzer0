@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [Appeals court reinstates gag order that barred Trump from maligning court staff in NY fraud trial](https://finance.yahoo.com/news/appeals-court-reinstates-gag-order-160547763.html)
+- Nov 30 - [2025 Volvo EX90 Is Reasonably Priced for a Luxury Three-Row EV SUV](https://autos.yahoo.com/2025-volvo-ex90-reasonably-priced-154200210.html)
+- Nov 30 - [Scott Perry’s texts reveal details about efforts to overturn Trump’s loss in 2020](https://news.yahoo.com/scott-perry-texts-reveal-details-153121722.html)
+- Nov 30 - [10 Russian soldiers killed after lighting a fire near ammunition while training near Rostov](https://news.yahoo.com/10-russian-soldiers-killed-lighting-151700647.html)
 - Nov 30 - [Left at the port: Royal Caribbean passengers denied boarding due to overbooked cruise](https://news.yahoo.com/left-port-royal-caribbean-passengers-145227972.html)
-- Nov 30 - [US and Israel considering exiling Hamas terrorists to shorten conflict](https://news.yahoo.com/hamas-members-could-exiled-iran-144654755.html)
-- Nov 30 - [Palace considers legal action after Piers Morgan names ‘royal racists’](https://news.yahoo.com/palace-considers-legal-action-piers-135120332.html)
-- Nov 30 - [15 Stocks under $50 to Buy and Hold Forever](https://finance.yahoo.com/news/15-stocks-under-50-buy-143729771.html)
-- Nov 30 - [One year later, ChatGPT is still alive and kicking](https://news.yahoo.com/one-later-chatgpt-still-alive-141043751.html)
 <!-- feed end -->
 
 ### Onstream
