@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [Russian Soldier's Desperate Attempt To Fight Off FPV Drone With A Stick Seen In Video](https://news.yahoo.com/russian-soldiers-desperate-attempt-fight-004624247.html)
+- Nov 29 - [SpaceX acquires parachute company for $2.2M – because it turns out space-rated parachutes are very hard](https://news.yahoo.com/spacex-acquires-parachute-company-2-235730376.html)
+- Nov 29 - [Trump ‘breaks court ruling’ by moving $40m from Trump Organisation to personal bank account – report](https://news.yahoo.com/trump-breaks-court-ruling-moving-232443293.html)
 - Nov 29 - [‘Giant’ cave-dwelling creature — carrying 6 eggs — found Ecuador. It’s a new species](https://news.yahoo.com/giant-cave-dwelling-creature-carrying-223907142.html)
 - Nov 29 - [2025 Chevy Tahoe and Suburban revealed with big updates, really big wheels](https://www.autoblog.com/2023/11/29/2025-chevy-tahoe-suburban-revealed-refresh/)
-- Nov 29 - [AWS reInvent: Everything Amazon's announced, from new AI tools to LLM updates and more](https://news.yahoo.com/heres-everything-amazon-services-announced-170607599.html)
-- Nov 29 - [Michael Latt Dies In Home Invasion; Suspect ID’d In Studio Consultant & Activist’s Killing At Mid-Wilshire Residence](https://www.yahoo.com/entertainment/michael-latt-killed-home-invasion-212013008.html)
-- Nov 29 - [Stop using WhatsApp, get Paris-made alternative, French PM tells ministers](https://finance.yahoo.com/news/stop-using-whatsapp-paris-made-211954391.html)
 <!-- feed end -->
 
 ### Onstream
