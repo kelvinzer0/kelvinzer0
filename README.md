@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [Social Security Official Shreds Lauren Boebert Over What She Finds 'Unacceptable'](https://news.yahoo.com/social-security-official-shreds-lauren-070404050.html)
 - Nov 30 - ['Devastating loss': Hollywood figure killed inside home in random attack, LAPD says](https://news.yahoo.com/devastating-loss-hollywood-figure-killed-032428147.html)
 - Nov 30 - [Henry Kissinger, America’s Most Notorious War Criminal, Dies At 100](https://news.yahoo.com/henry-kissinger-america-most-notorious-015455590.html)
 - Nov 30 - [A US Navy plane went into a Hawaii bay. Underwater video shows its tires are touching a coral reef](https://news.yahoo.com/us-navy-releases-underwater-footage-012034906.html)
-- Nov 29 - [Pro-Palestine Demonstrators Gather Near Rockefeller Center Ahead of Tree Lighting](https://news.yahoo.com/pro-palestine-demonstrators-gather-near-235808152.html)
-- Nov 29 - [SpaceX acquires parachute company for $2.2M, because it turns out space-rated parachutes are very hard](https://news.yahoo.com/spacex-acquires-parachute-company-2-235730376.html)
+- Nov 29 - [ISS astronauts watch Russian cargo ship burn up in Earth's atmosphere (photos)](https://news.yahoo.com/iss-astronauts-watch-russian-cargo-233620286.html)
 <!-- feed end -->
 
 ### Onstream
