@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Ukrainian strike levels Russian HQ, killing 14 Russians, including many officers, in occupied Tokmak](https://news.yahoo.com/ukrainian-strike-levels-russian-hq-164400018.html)
-- Nov 30 - [Trump's gag order reinstated by court in NY civil fraud case](https://news.yahoo.com/trumps-gag-order-reinstated-court-162221101.html)
+- Nov 30 - [X CEO Linda Yaccarino publicly backs Musk after he says 'f*ck yourself' to advertisers](https://news.yahoo.com/x-ceo-linda-yaccarino-publicly-174142477.html)
+- Nov 30 - [‘It’s going to kill the company’: Elon Musk launches F-bomb-filled tirade against giants like Disney for stripping ads from X over his endorsement of an antisemitic post](https://finance.yahoo.com/news/going-kill-company-elon-musk-173500641.html)
+- Nov 30 - [8 new cars that are selling below MSRP](https://www.autoblog.com/article/new-cars-selling-below-msrp/)
+- Nov 30 - [Russia hastily deploys poorly-trained Airborne Division to Kherson Oblast – UK intelligence](https://news.yahoo.com/russia-hastily-deploys-poorly-trained-170300149.html)
 - Nov 30 - [Mark Cuban's Dallas Mavericks sale may be 'red flag' for the NBA, one major sports media personality says](https://www.thestreet.com/sports/mark-cubans-dallas-mavericks-sale-red-flag-nba-amin-elhassan?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 30 - [Former Apple worker reveals top 7 iPhone hacks that completely change how you use it](https://www.thestreet.com/technology/former-apple-worker-reveals-top-7-iphone-hacks-that-completely-change-how-you-use-it?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Nov 30 - [One identical twin went vegan while the other didn’t. See what happened](https://www.yahoo.com/lifestyle/one-identical-twin-went-vegan-160031729.html)
 <!-- feed end -->
 
 ### Onstream
