@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [New technology can make speeding impossible. Should all cars have it?](https://news.yahoo.com/new-technology-can-make-speeding-impossible-should-all-cars-have-it-192242320.html)
-- Nov 30 - [Tommy Tuberville moves the goalposts on his military blockade, signaling he's tired of running defense for his unprecedented move](https://news.yahoo.com/tommy-tuberville-moves-goalposts-military-191553415.html)
-- Nov 30 - [Trump’s 48-Hour Manic Rant Had Immediate Consequences](https://news.yahoo.com/trump-48-hour-manic-rant-183240300.html)
-- Nov 30 - [Democratic Rep Has an Immodest Proposal for James Comer](https://news.yahoo.com/democratic-rep-immodest-proposal-james-182630308.html)
-- Nov 30 - [Trump legal news brief: Appeals court reinstates Trump gag order and Engoron vows to enforce it 'rigorously and vigorously'](https://news.yahoo.com/trump-legal-news-brief-appeals-court-reinstates-trump-gag-order-and-engoron-vows-to-enforce-it-rigorously-and-vigorously-182601549.html)
+- Nov 30 - [Tesla Says Cybertruck Can Do 0-60 MPH in 2.6 Seconds, Quarter-Mile in Under 11](https://autos.yahoo.com/tesla-says-cybertruck-0-60-204400175.html)
+- Nov 30 - [Millennials are baffled by the way Gen Z uses the camera app on their phones](https://news.yahoo.com/gen-z-zoom-how-to-203000205.html)
+- Nov 30 - [AOC says her life 'completely transformed' for the better after Pelosi stepped down from leadership](https://news.yahoo.com/aoc-says-her-life-completely-195041833.html)
+- Nov 30 - [Trump Responds to Gag Order Reinstatement by Attacking Judge’s Wife](https://news.yahoo.com/trump-responds-gag-order-reinstatement-185236287.html)
+- Nov 30 - [Fact Check: Disney+ Lost 23M Subscribers in One Night After Trying to 'Cancel' Elon Musk?](https://www.yahoo.com/entertainment/fact-check-disney-lost-23m-183600484.html)
 <!-- feed end -->
 
 ### Onstream
