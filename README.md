@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Social Security Official Shreds Lauren Boebert Over What She Finds 'Unacceptable'](https://news.yahoo.com/social-security-official-shreds-lauren-070404050.html)
-- Nov 30 - [Two Palestinians open fire at Jerusalem bus stop, killing three -police](https://news.yahoo.com/shooting-attack-jerusalem-wounds-least-060100141.html)
-- Nov 30 - ['Devastating loss': Hollywood figure killed inside home in random attack, LAPD says](https://news.yahoo.com/devastating-loss-hollywood-figure-killed-032428147.html)
-- Nov 30 - [Henry Kissinger, America’s Most Notorious War Criminal, Dies At 100](https://news.yahoo.com/henry-kissinger-america-most-notorious-015455590.html)
-- Nov 30 - [A US Navy plane went into a Hawaii bay. Underwater video shows its tires are touching a coral reef](https://news.yahoo.com/us-navy-releases-underwater-footage-012034906.html)
+- Nov 30 - [Last remaining Franciscan friar at St. Mary's Basilica in downtown Phoenix dies at 49](https://news.yahoo.com/last-remaining-franciscan-friar-st-130149237.html)
+- Nov 30 - [Russia has a 'high tolerance' for losses after losing 100s of aircraft, 1000s of tanks, and more than 300,000 men in Ukraine, NATO chief says](https://news.yahoo.com/russia-high-tolerance-losses-losing-123751622.html)
+- Nov 30 - [Shoppers infuriated by photos of absurd product on store shelves at 7-Eleven: ‘They need to stop this immediately’](https://www.yahoo.com/lifestyle/shoppers-infuriated-photos-absurd-product-063000745.html)
+- Nov 30 - [Tesla owners and investors say they’re willing to sell cars and stocks after Elon Musk’s latest post stirs major controversy](https://news.yahoo.com/tesla-owners-investors-willing-sell-103000049.html)
+- Nov 30 - [The 543 word editorial that may have just upended the presidential campaign](https://news.yahoo.com/trump-dives-back-repeal-replace-100000643.html)
 <!-- feed end -->
 
 ### Onstream
