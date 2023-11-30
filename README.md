@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [Students Yell as Hillary Clinton Exits Columbia Classroom Following Protest](https://news.yahoo.com/students-yell-hillary-clinton-exits-023505733.html)
 - Nov 30 - [Oil prices fall on weak demand indicators, China data](https://finance.yahoo.com/news/oil-prices-fall-weak-demand-015943896.html)
 - Nov 30 - [Henry Kissinger, America’s Most Notorious War Criminal, Dies At 100](https://news.yahoo.com/henry-kissinger-america-most-notorious-015455590.html)
-- Nov 30 - [US Navy releases underwater footage of plane that overshot a runway floating above Hawaii reef](https://news.yahoo.com/us-navy-releases-underwater-footage-012034906.html)
 - Nov 30 - [Biden crosses himself after mentioning Rep. Boebert, follows with political attack](https://news.yahoo.com/biden-crosses-himself-mentioning-rep-222400906.html)
-- Nov 30 - [Fact Check: Bill Maher Demands Whoopi Goldberg Leave His Show for 'Anti-Israel Rant'?](https://www.yahoo.com/entertainment/fact-check-bill-maher-demands-001200462.html)
+- Nov 30 - [Charlie Munger had 3 'basic rules' for career happiness. One of them: don't work for anyone you don't respect.](https://finance.yahoo.com/news/charlie-munger-had-3-basic-001923945.html)
 <!-- feed end -->
 
 ### Onstream
