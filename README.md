@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [Trump legal news brief: Appeals court reinstates Trump gag order and Engoron vows to enforce it 'rigorously and vigorously'](https://news.yahoo.com/trump-legal-news-brief-appeals-court-reinstates-trump-gag-order-and-engoron-vows-to-enforce-it-rigorously-and-vigorously-182601549.html)
+- Nov 30 - [Judge won't halt US government destruction of Texas border razor wire fencing](https://news.yahoo.com/judge-wont-halt-us-government-180726277.html)
+- Nov 30 - [Ousted former Speaker Kevin McCarthy says fellow GOP Rep. Matt Gaetz 'belongs in jail'](https://news.yahoo.com/ousted-former-speaker-kevin-mccarthy-174853639.html)
 - Nov 30 - [X CEO Linda Yaccarino publicly backs Musk after he says 'f*ck yourself' to advertisers](https://news.yahoo.com/x-ceo-linda-yaccarino-publicly-174142477.html)
 - Nov 30 - [‘It’s going to kill the company’: Elon Musk launches F-bomb-filled tirade against giants like Disney for stripping ads from X over his endorsement of an antisemitic post](https://finance.yahoo.com/news/going-kill-company-elon-musk-173500641.html)
-- Nov 30 - [8 new cars that are selling below MSRP](https://www.autoblog.com/article/new-cars-selling-below-msrp/)
-- Nov 30 - [Russia hastily deploys poorly-trained Airborne Division to Kherson Oblast – UK intelligence](https://news.yahoo.com/russia-hastily-deploys-poorly-trained-170300149.html)
-- Nov 30 - [Mark Cuban's Dallas Mavericks sale may be 'red flag' for the NBA, one major sports media personality says](https://www.thestreet.com/sports/mark-cubans-dallas-mavericks-sale-red-flag-nba-amin-elhassan?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
