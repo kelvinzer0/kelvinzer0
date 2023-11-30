@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Here's How Much the Tesla Cybertruck Costs](https://autos.yahoo.com/heres-much-tesla-cybertruck-costs-212300657.html)
-- Nov 30 - [Ukraine's air force dropped a wild video of a MiG-29 hugging the ground in a shockingly low pass](https://news.yahoo.com/ukraines-air-force-dropped-wild-211909851.html)
-- Nov 30 - [Chevy's emotional holiday ad features a grandmother with Alzheimer's engaging in reminiscence therapy. Here's how it works.](https://www.yahoo.com/lifestyle/chevys-emotional-holiday-ad-features-210921267.html)
-- Nov 30 - [WKYC meteorologist Hollie Strano pleads guilty to OVI charge after Thanksgiving crash](https://news.yahoo.com/wkyc-meteorologist-hollie-strano-pleads-210310276.html)
-- Nov 30 - [Suspect Arrested After Stomping on Car Window: Cops](https://news.yahoo.com/suspect-arrested-stomping-car-window-210102166.html)
+- Nov 30 - [Maverick Carter, LeBron James' manager, reportedly used illegal bookie to bet on NBA](https://sports.yahoo.com/maverick-carter-lebron-james-manager-reportedly-used-illegal-bookie-to-bet-on-nba-225622339.html)
+- Nov 30 - [Family of Marine killed in Afghanistan fails to win lawsuit against Alec Baldwin](https://news.yahoo.com/family-marine-killed-afghanistan-fails-222006096.html)
+- Nov 30 - [Tesla Cybertruck delivery event: everything Elon revealed about the EV pickup](https://news.yahoo.com/tesla-cybertruck-delivery-event-everything-221435665.html)
+- Nov 30 - [I'm a doctor and my healthy 16-year-old daughter died suddenly from the flu](https://news.yahoo.com/im-doctor-healthy-16-old-215749728.html)
+- Nov 30 - [Ex-Trump Club Employee Sues Over Alleged Forced Sex With Boss, Illegal NDA](https://news.yahoo.com/ex-trump-club-employee-sues-215654416.html)
 <!-- feed end -->
 
 ### Onstream
