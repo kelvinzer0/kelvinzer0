@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Nov 30 - ['Devastating loss': Hollywood figure killed inside home in random attack, LAPD says](https://www.yahoo.com/entertainment/devastating-loss-hollywood-figure-killed-032428147.html)
-- Nov 30 - [Trump's attorney said she warned him he would be committing a crime if he didn't comply with subpoena in classified docs case: report](https://news.yahoo.com/trumps-attorney-said-she-warned-025739081.html)
-- Nov 30 - [Microsoft joins OpenAI board as Sam Altman returns as CEO](https://news.yahoo.com/microsoft-joins-openai-board-as-sam-altman-returns-as-ceo-023844090.html)
 - Nov 30 - [Henry Kissinger, America’s Most Notorious War Criminal, Dies At 100](https://news.yahoo.com/henry-kissinger-america-most-notorious-015455590.html)
-- Nov 30 - [A US Navy plane went into a Hawaii bay. Underwater video shows its tires are touching a coral reef](https://news.yahoo.com/us-navy-releases-underwater-footage-012034906.html)
+- Nov 29 - [SpaceX acquires parachute company for $2.2M, because it turns out space-rated parachutes are very hard](https://news.yahoo.com/spacex-acquires-parachute-company-2-235730376.html)
+- Nov 29 - [Gazans Cheer as Hamas Releases Russian-Israeli Hostages to Red Cross](https://news.yahoo.com/gazans-cheer-hamas-releases-russian-235431601.html)
+- Nov 29 - [Iowa Lottery posted wrong Powerball numbers — but temporary 'winners' get to keep the money](https://news.yahoo.com/iowa-lottery-posted-wrong-powerball-233018371.html)
 <!-- feed end -->
 
 ### Onstream
