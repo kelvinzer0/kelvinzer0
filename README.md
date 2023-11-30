@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Nov 30 - [New technology can make speeding impossible. Should all cars have it?](https://news.yahoo.com/new-technology-can-make-speeding-impossible-should-all-cars-have-it-192242320.html)
+- Nov 30 - [Tommy Tuberville moves the goalposts on his military blockade, signaling he's tired of running defense for his unprecedented move](https://news.yahoo.com/tommy-tuberville-moves-goalposts-military-191553415.html)
+- Nov 30 - [Trump’s 48-Hour Manic Rant Had Immediate Consequences](https://news.yahoo.com/trump-48-hour-manic-rant-183240300.html)
+- Nov 30 - [Democratic Rep Has an Immodest Proposal for James Comer](https://news.yahoo.com/democratic-rep-immodest-proposal-james-182630308.html)
 - Nov 30 - [Trump legal news brief: Appeals court reinstates Trump gag order and Engoron vows to enforce it 'rigorously and vigorously'](https://news.yahoo.com/trump-legal-news-brief-appeals-court-reinstates-trump-gag-order-and-engoron-vows-to-enforce-it-rigorously-and-vigorously-182601549.html)
-- Nov 30 - [Judge won't halt US government destruction of Texas border razor wire fencing](https://news.yahoo.com/judge-wont-halt-us-government-180726277.html)
-- Nov 30 - [Ousted former Speaker Kevin McCarthy says fellow GOP Rep. Matt Gaetz 'belongs in jail'](https://news.yahoo.com/ousted-former-speaker-kevin-mccarthy-174853639.html)
-- Nov 30 - [X CEO Linda Yaccarino publicly backs Musk after he says 'f*ck yourself' to advertisers](https://news.yahoo.com/x-ceo-linda-yaccarino-publicly-174142477.html)
-- Nov 30 - [‘It’s going to kill the company’: Elon Musk launches F-bomb-filled tirade against giants like Disney for stripping ads from X over his endorsement of an antisemitic post](https://finance.yahoo.com/news/going-kill-company-elon-musk-173500641.html)
 <!-- feed end -->
 
 ### Onstream
