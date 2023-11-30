@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [Students Yell as Hillary Clinton Exits Columbia Classroom Following Protest](https://news.yahoo.com/students-yell-hillary-clinton-exits-023505733.html)
-- Nov 30 - [Oil prices fall on weak demand indicators, China data](https://finance.yahoo.com/news/oil-prices-fall-weak-demand-015943896.html)
+- Nov 30 - ['Devastating loss': Hollywood figure killed inside home in random attack, LAPD says](https://www.yahoo.com/entertainment/devastating-loss-hollywood-figure-killed-032428147.html)
+- Nov 30 - [Trump's attorney said she warned him he would be committing a crime if he didn't comply with subpoena in classified docs case: report](https://news.yahoo.com/trumps-attorney-said-she-warned-025739081.html)
+- Nov 30 - [Microsoft joins OpenAI board as Sam Altman returns as CEO](https://news.yahoo.com/microsoft-joins-openai-board-as-sam-altman-returns-as-ceo-023844090.html)
 - Nov 30 - [Henry Kissinger, America’s Most Notorious War Criminal, Dies At 100](https://news.yahoo.com/henry-kissinger-america-most-notorious-015455590.html)
-- Nov 30 - [Biden crosses himself after mentioning Rep. Boebert, follows with political attack](https://news.yahoo.com/biden-crosses-himself-mentioning-rep-222400906.html)
-- Nov 30 - [Charlie Munger had 3 'basic rules' for career happiness. One of them: don't work for anyone you don't respect.](https://finance.yahoo.com/news/charlie-munger-had-3-basic-001923945.html)
+- Nov 30 - [A US Navy plane went into a Hawaii bay. Underwater video shows its tires are touching a coral reef](https://news.yahoo.com/us-navy-releases-underwater-footage-012034906.html)
 <!-- feed end -->
 
 ### Onstream
