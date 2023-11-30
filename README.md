@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Nov 30 - [US consumer spending slows in October; weekly jobless claims rise slightly](https://news.yahoo.com/us-consumer-spending-slows-october-135107735.html)
-- Nov 30 - [Inflation hits lowest level since 2021, Fed's preferred gauge shows](https://finance.yahoo.com/news/inflation-hits-lowest-level-since-2021-feds-preferred-gauge-shows-133230834.html)
-- Nov 30 - [Russia's foreign minister faces Western critics at security meeting and walks out after speech](https://news.yahoo.com/russias-lavrov-faces-western-critics-133132002.html)
-- Nov 30 - [Sacramento sergeant disciplined for arresting man for being drunk in public in his own garage](https://news.yahoo.com/sacramento-sergeant-disciplined-arresting-man-133000515.html)
-- Nov 30 - ['Everybody's in panic mode': Ultra-rich Americans have mansions on their hands that they can't get rid of — so they're renting out their luxury LA homes for as high as $150K+ per month](https://finance.yahoo.com/news/everybodys-panic-mode-ultra-rich-133000235.html)
+- Nov 30 - [Left at the port: Royal Caribbean passengers denied boarding due to overbooked cruise](https://news.yahoo.com/left-port-royal-caribbean-passengers-145227972.html)
+- Nov 30 - [US and Israel considering exiling Hamas terrorists to shorten conflict](https://news.yahoo.com/hamas-members-could-exiled-iran-144654755.html)
+- Nov 30 - [Palace considers legal action after Piers Morgan names ‘royal racists’](https://news.yahoo.com/palace-considers-legal-action-piers-135120332.html)
+- Nov 30 - [15 Stocks under $50 to Buy and Hold Forever](https://finance.yahoo.com/news/15-stocks-under-50-buy-143729771.html)
+- Nov 30 - [One year later, ChatGPT is still alive and kicking](https://news.yahoo.com/one-later-chatgpt-still-alive-141043751.html)
 <!-- feed end -->
 
 ### Onstream
