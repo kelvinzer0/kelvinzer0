@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 01 - [Freedom wins: In red vs. blue state debate, DeSantis offers best case for successful governing](https://news.yahoo.com/freedom-wins-red-vs-blue-122606444.html)
+- Dec 01 - [Rail havoc in Russia after second explosion in as many days destroys key ‘Devil’s Bridge’ – NV souces](https://news.yahoo.com/rail-havoc-russia-second-explosion-122400724.html)
+- Dec 01 - [Jaspreet Singh: The No. 1 Reason Most Americans Will Never Be Rich](https://finance.yahoo.com/news/jaspreet-singh-no-1-reason-120103062.html)
 - Dec 01 - [Solo passenger says it was 'downright humiliating' to give up his emergency row seat so a couple could sit together](https://news.yahoo.com/solo-passenger-says-downright-humiliating-113050910.html)
-- Dec 01 - [One every five minutes – Ukrainian sniper kills 12 Russian invaders in an hour near Avdiivka – video](https://news.yahoo.com/one-every-five-minutes-ukrainian-110000831.html)
-- Dec 01 - [Snow Hits Northern Texas as Temperatures Plummet](https://news.yahoo.com/snow-hits-northern-texas-temperatures-054124331.html)
-- Dec 01 - [Huawei is allegedly building a self-sufficient chip network using state investment fund](https://news.yahoo.com/huawei-is-allegedly-building-a-self-sufficient-chip-network-using-state-investment-fund-051823202.html)
-- Dec 01 - [Critics Crap On DeSantis For Breaking Out A Map Full O' Feces In Newsom Debate](https://news.yahoo.com/critics-crap-desantis-breaking-map-051529994.html)
+- Dec 01 - [China's Xi tells coast guard to enforce maritime law](https://news.yahoo.com/chinas-xi-tells-coast-guard-112751656.html)
 <!-- feed end -->
 
 ### Onstream
