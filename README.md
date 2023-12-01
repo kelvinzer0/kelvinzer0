@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Pennsylvania Hunter Dies in Shocking Treestand Fire](https://www.yahoo.com/lifestyle/pennsylvania-hunter-dies-shocking-treestand-183128216.html)
-- Dec 01 - [CDC Director: Threat of respiratory illnesses underway](https://news.yahoo.com/cdc-director-threat-respiratory-illnesses-180329499.html)
+- Dec 01 - [Trump should not face trial in Georgia if he wins 2024 election, lawyer says](https://news.yahoo.com/trump-not-face-trial-georgia-203354655.html)
+- Dec 01 - [Steve Jobs' Intern, Described As 'The Guy That Got The Coffee For The Guy That Made Coffee,' Sold His Own Company To Google For $625 Million — His Advice? Pay Employers To Let You Work For Them, Not Work To Get Paid](https://finance.yahoo.com/news/steve-jobs-intern-described-guy-202230560.html)
+- Dec 01 - [Putin orders the Russian military to add 170,000 troops for a total of 1.32 million](https://news.yahoo.com/putin-orders-russian-military-add-193055383.html)
 - Dec 01 - [X says it will chase SMB ad dollars after Musk's 'go  f*** yourself' comments to fleeing advertisers](https://news.yahoo.com/x-says-chase-smb-ad-180329324.html)
 - Dec 01 - [George Santos Has 5-Word Response To Being Expelled From Congress](https://news.yahoo.com/george-santos-5-word-response-174832478.html)
-- Dec 01 - [Israel is now attacking the true Hamas stronghold](https://news.yahoo.com/israel-now-attacking-true-hamas-172400721.html)
 <!-- feed end -->
 
 ### Onstream
