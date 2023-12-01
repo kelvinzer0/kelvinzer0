@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - ['You're Down 41 Points' In Florida: Gavin Newsom Tells Ron DeSantis He'll Never Beat Trump](https://news.yahoo.com/youre-down-41-points-florida-045222638.html)
+- Dec 01 - [Huawei is allegedly building a self-sufficient chip network using state investment fund](https://news.yahoo.com/huawei-is-allegedly-building-a-self-sufficient-chip-network-using-state-investment-fund-051823202.html)
+- Dec 01 - [Critics Crap On DeSantis For Breaking Out A Map Full O' Feces In Newsom Debate](https://news.yahoo.com/critics-crap-desantis-breaking-map-051529994.html)
+- Dec 01 - [Israel strikes Gaza after truce expires, in clear sign that war has resumed in full force](https://news.yahoo.com/gaza-truce-expires-without-word-050541719.html)
 - Dec 01 - [Shahed-136 With Cellular Modem Found In Ukraine: What It Means](https://news.yahoo.com/shahed-136-cellular-modem-found-024300753.html)
-- Dec 01 - [If Moms for Liberty co-founder had sex with a woman, why is she targeting Florida’s gays? | Opinion](https://news.yahoo.com/moms-liberty-co-founder-had-011147807.html)
-- Dec 01 - [Names of ‘royal racists’ spread across globe as Palace considers legal action](https://news.yahoo.com/names-royal-racists-spread-across-221502432.html)
-- Dec 01 - [One identical twin went vegan while the other didn’t. See what happened](https://www.yahoo.com/lifestyle/one-identical-twin-went-vegan-160031729.html)
+- Dec 01 - [GOP Melts Down As Dick Durbin Uses Its Tactics For Advancing Biden Judges](https://news.yahoo.com/gop-melts-down-dick-durbin-021856759.html)
 <!-- feed end -->
 
 ### Onstream
