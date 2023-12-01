@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Hamas says offered to hand over remains of hostage baby, family](https://news.yahoo.com/hamas-says-offered-hand-over-140518017.html)
-- Dec 01 - [Russian military humiliated after duped into using a Lancet drone to strike a dummy war jet – video](https://news.yahoo.com/russian-military-humiliated-duped-using-132100866.html)
-- Dec 01 - [The North Face pulled off a hilarious, spectacular marketing stunt by flying a disgruntled customer up a mountain and gifting her a new jacket after hers let the rain in on a hike](https://news.yahoo.com/north-face-pulled-off-hilarious-130038431.html)
-- Dec 01 - [Cyprus and Chevron reach a deal to develop an offshore natural gas field, ending years of delays](https://news.yahoo.com/cyprus-chevron-reach-deal-develop-120959585.html)
-- Dec 01 - [Jaspreet Singh: The No. 1 Reason Most Americans Will Never Be Rich](https://finance.yahoo.com/news/jaspreet-singh-no-1-reason-120103062.html)
+- Dec 01 - [Republican Rep. George Santos expelled from Congress after scathing fraud allegations](https://news.yahoo.com/republican-rep-george-santos-expelled-160119716.html)
+- Dec 01 - [Powell: ‘Premature’ to conclude Fed rate hikes are over or ‘speculate’ when cuts could begin](https://finance.yahoo.com/news/powell-premature-to-conclude-fed-rate-hikes-are-over-or-speculate-when-cuts-could-begin-160003194.html)
+- Dec 01 - [Venomous creature lurking — and hunting — in California desert is new species. See it](https://news.yahoo.com/venomous-creature-lurking-hunting-california-153354282.html)
+- Dec 01 - [US appeals court says Trump must face lawsuits over US Capitol attack](https://news.yahoo.com/us-appeals-court-says-trump-151909429.html)
+- Dec 01 - [A Shipwreck in Rhode Island Appears to Actually Be Captain Cook's Long-Lost Ship](https://finance.yahoo.com/news/shipwreck-rhode-island-appears-actually-150000676.html)
 <!-- feed end -->
 
 ### Onstream
