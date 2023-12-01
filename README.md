@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Hungary's Orban says EU should first sign strategic partnership accord with Ukraine](https://news.yahoo.com/hungarys-orban-says-eu-first-080820784.html)
-- Dec 01 - [Huawei is allegedly building a self-sufficient chip network using state investment fund](https://news.yahoo.com/huawei-is-allegedly-building-a-self-sufficient-chip-network-using-state-investment-fund-051823202.html)
+- Dec 01 - [Exclusive-China lures hundreds of Taiwan politicians with cheap trips before election - sources](https://news.yahoo.com/exclusive-china-lures-hundreds-taiwan-055555042.html)
 - Dec 01 - [Critics Crap On DeSantis For Breaking Out A Map Full O' Feces In Newsom Debate](https://news.yahoo.com/critics-crap-desantis-breaking-map-051529994.html)
-- Dec 01 - [Israeli warplanes hit targets in Gaza as it resumes offensive, warning of attacks to come in south](https://news.yahoo.com/gaza-truce-expires-without-word-050541719.html)
-- Dec 01 - [Boeing-737 with 422 passengers onboard crash-lands in Russia](https://news.yahoo.com/boeing-737-422-passengers-onboard-044055292.html)
+- Dec 01 - [Warplanes hit targets in Gaza as Israel resumes offensive, warning of attacks to come in south](https://news.yahoo.com/gaza-truce-expires-without-word-050541719.html)
+- Dec 01 - [Shahed-136 With Cellular Modem Found In Ukraine: What It Means](https://news.yahoo.com/shahed-136-cellular-modem-found-024300753.html)
+- Dec 01 - [One identical twin went vegan while the other didn’t. See what happened](https://www.yahoo.com/lifestyle/one-identical-twin-went-vegan-160031729.html)
 <!-- feed end -->
 
 ### Onstream
