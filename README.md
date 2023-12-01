@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 01 - [Pennsylvania Hunter Dies in Shocking Treestand Fire](https://www.yahoo.com/lifestyle/pennsylvania-hunter-dies-shocking-treestand-183128216.html)
+- Dec 01 - [CDC Director: Threat of respiratory illnesses underway](https://news.yahoo.com/cdc-director-threat-respiratory-illnesses-180329499.html)
+- Dec 01 - [X says it will chase SMB ad dollars after Musk's 'go  f*** yourself' comments to fleeing advertisers](https://news.yahoo.com/x-says-chase-smb-ad-180329324.html)
 - Dec 01 - [George Santos Has 5-Word Response To Being Expelled From Congress](https://news.yahoo.com/george-santos-5-word-response-174832478.html)
 - Dec 01 - [Israel is now attacking the true Hamas stronghold](https://news.yahoo.com/israel-now-attacking-true-hamas-172400721.html)
-- Dec 01 - [Tesla Offers $1,000 To Cybertruck Reservation Holders To Get A Different Tesla](https://news.yahoo.com/tesla-offers-1-000-cybertruck-171500930.html)
-- Dec 01 - [Von Miller’s Girlfriend Subtly Reacts His Domestic Violence Charge](https://www.yahoo.com/lifestyle/von-miller-girlfriend-subtly-reacts-164225192.html)
-- Dec 01 - [Powell: Fed rate cut speculation is 'premature,' rate hikes still possible](https://finance.yahoo.com/news/powell-fed-rate-cut-speculation-is-premature-rate-hikes-still-possible-160003654.html)
 <!-- feed end -->
 
 ### Onstream
