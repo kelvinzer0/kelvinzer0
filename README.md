@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [GOP Melts Down As Dick Durbin Uses Its Tactics For Advancing Biden Judges](https://news.yahoo.com/gop-melts-down-dick-durbin-021856759.html)
+- Dec 01 - [If Moms for Liberty co-founder had sex with a woman, why is she targeting Florida’s gays? | Opinion](https://news.yahoo.com/moms-liberty-co-founder-had-011147807.html)
 - Dec 01 - [Names of ‘royal racists’ spread across globe as Palace considers legal action](https://news.yahoo.com/names-royal-racists-spread-across-221502432.html)
 - Dec 01 - [One identical twin went vegan while the other didn’t. See what happened](https://www.yahoo.com/lifestyle/one-identical-twin-went-vegan-160031729.html)
 - Nov 30 - [Tesla's Cybertruck is a dystopian, masturbatory fantasy](https://news.yahoo.com/teslas-cybertruck-is-a-dystopian-masturbatory-fantasy-225648188.html)
