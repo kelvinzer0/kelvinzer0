@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [All the best Cyber Monday deals that are still live on Amazon right now](https://news.yahoo.com/all-the-best-cyber-monday-deals-that-are-still-live-on-amazon-right-now-164349983.html)
-- Dec 01 - [We Regret to Inform You That Mike Johnson Is at It Again](https://news.yahoo.com/regret-inform-mike-johnson-again-162046897.html)
+- Dec 01 - [X says it will chase SMB ad dollars after Musk's 'go  f*** yourself' comments to fleeing advertisers](https://news.yahoo.com/x-says-chase-smb-ad-180329324.html)
+- Dec 01 - [Why Lucid Group Stock Popped Friday Morning](https://www.fool.com/investing/2023/12/01/why-lucid-group-stock-popped-friday-morning/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Dec 01 - [George Santos Has 5-Word Response To Being Expelled From Congress](https://news.yahoo.com/george-santos-5-word-response-174832478.html)
+- Dec 01 - [Israel is now attacking the true Hamas stronghold](https://news.yahoo.com/israel-now-attacking-true-hamas-172400721.html)
 - Dec 01 - [After Bud Light boycott, Kid Rock takes on huge retailer](https://www.thestreet.com/restaurants/forget-bud-light-kid-rock-takes-new-antiwoke-shots-at-target?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Dec 01 - [House expels George Santos in historic vote](https://news.yahoo.com/house-expels-george-santos-historic-160156713.html)
-- Dec 01 - [Powell: 'Premature' to conclude Fed rate hikes are over or 'speculate' when cuts could begin](https://finance.yahoo.com/news/powell-premature-to-conclude-fed-rate-hikes-are-over-or-speculate-when-cuts-could-begin-160003194.html)
 <!-- feed end -->
 
 ### Onstream
