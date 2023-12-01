@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Freedom wins: In red vs. blue state debate, DeSantis offers best case for successful governing](https://news.yahoo.com/freedom-wins-red-vs-blue-122606444.html)
+- Dec 01 - [The North Face pulled off a hilarious, spectacular marketing stunt by flying a disgruntled customer up a mountain and gifting her a new jacket after hers let the rain in on a hike](https://news.yahoo.com/north-face-pulled-off-hilarious-130038431.html)
 - Dec 01 - [Rail havoc in Russia after second explosion in as many days destroys key ‘Devil’s Bridge’ – NV souces](https://news.yahoo.com/rail-havoc-russia-second-explosion-122400724.html)
 - Dec 01 - [Jaspreet Singh: The No. 1 Reason Most Americans Will Never Be Rich](https://finance.yahoo.com/news/jaspreet-singh-no-1-reason-120103062.html)
 - Dec 01 - [Solo passenger says it was 'downright humiliating' to give up his emergency row seat so a couple could sit together](https://news.yahoo.com/solo-passenger-says-downright-humiliating-113050910.html)
-- Dec 01 - [China's Xi tells coast guard to enforce maritime law](https://news.yahoo.com/chinas-xi-tells-coast-guard-112751656.html)
+- Dec 01 - [Farmer would 'rather die in jail' than pay fine for knocking down wall he built](https://news.yahoo.com/farmer-would-rather-die-in-jail-than-pay-fine-for-knocking-down-wall-he-built-112907517.html)
 <!-- feed end -->
 
 ### Onstream
