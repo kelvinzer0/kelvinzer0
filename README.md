@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Hungary's Orban says EU should first sign strategic partnership accord with Ukraine](https://news.yahoo.com/hungarys-orban-says-eu-first-080820784.html)
+- Dec 01 - [Solo passenger says it was 'downright humiliating' to give up his emergency row seat so a couple could sit together](https://news.yahoo.com/solo-passenger-says-downright-humiliating-113050910.html)
+- Dec 01 - [One every five minutes – Ukrainian sniper kills 12 Russian invaders in an hour near Avdiivka – video](https://news.yahoo.com/one-every-five-minutes-ukrainian-110000831.html)
+- Dec 01 - [Snow Hits Northern Texas as Temperatures Plummet](https://news.yahoo.com/snow-hits-northern-texas-temperatures-054124331.html)
 - Dec 01 - [Huawei is allegedly building a self-sufficient chip network using state investment fund](https://news.yahoo.com/huawei-is-allegedly-building-a-self-sufficient-chip-network-using-state-investment-fund-051823202.html)
 - Dec 01 - [Critics Crap On DeSantis For Breaking Out A Map Full O' Feces In Newsom Debate](https://news.yahoo.com/critics-crap-desantis-breaking-map-051529994.html)
-- Dec 01 - [Boeing-737 with 422 passengers on board crash-lands in Russia](https://news.yahoo.com/boeing-737-422-passengers-onboard-044055292.html)
-- Dec 01 - [Abcarian: How did Gov. Newsom fare against his Florida rival, Gov. DeSantis?](https://news.yahoo.com/abcarian-did-gov-newsom-fare-040031768.html)
 <!-- feed end -->
 
 ### Onstream
