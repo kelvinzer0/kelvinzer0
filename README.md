@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 01 - [Huawei is allegedly building a self-sufficient chip network using state investment fund](https://news.yahoo.com/huawei-is-allegedly-building-a-self-sufficient-chip-network-using-state-investment-fund-051823202.html)
 - Dec 01 - [Critics Crap On DeSantis For Breaking Out A Map Full O' Feces In Newsom Debate](https://news.yahoo.com/critics-crap-desantis-breaking-map-051529994.html)
 - Dec 01 - [Israel strikes Gaza after truce expires, in clear sign that war has resumed in full force](https://news.yahoo.com/gaza-truce-expires-without-word-050541719.html)
-- Dec 01 - [Shahed-136 With Cellular Modem Found In Ukraine: What It Means](https://news.yahoo.com/shahed-136-cellular-modem-found-024300753.html)
 - Dec 01 - [GOP Melts Down As Dick Durbin Uses Its Tactics For Advancing Biden Judges](https://news.yahoo.com/gop-melts-down-dick-durbin-021856759.html)
+- Dec 01 - [Names of ‘royal racists’ spread across globe as Palace considers legal action](https://news.yahoo.com/names-royal-racists-spread-across-221502432.html)
 <!-- feed end -->
 
 ### Onstream
