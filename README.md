@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Republican Rep. George Santos expelled from Congress after scathing fraud allegations](https://news.yahoo.com/republican-rep-george-santos-expelled-160119716.html)
-- Dec 01 - [Powell: ‘Premature’ to conclude Fed rate hikes are over or ‘speculate’ when cuts could begin](https://finance.yahoo.com/news/powell-premature-to-conclude-fed-rate-hikes-are-over-or-speculate-when-cuts-could-begin-160003194.html)
-- Dec 01 - [Venomous creature lurking — and hunting — in California desert is new species. See it](https://news.yahoo.com/venomous-creature-lurking-hunting-california-153354282.html)
-- Dec 01 - [US appeals court says Trump must face lawsuits over US Capitol attack](https://news.yahoo.com/us-appeals-court-says-trump-151909429.html)
-- Dec 01 - [A Shipwreck in Rhode Island Appears to Actually Be Captain Cook's Long-Lost Ship](https://finance.yahoo.com/news/shipwreck-rhode-island-appears-actually-150000676.html)
+- Dec 01 - [All the best Cyber Monday deals that are still live on Amazon right now](https://news.yahoo.com/all-the-best-cyber-monday-deals-that-are-still-live-on-amazon-right-now-164349983.html)
+- Dec 01 - [We Regret to Inform You That Mike Johnson Is at It Again](https://news.yahoo.com/regret-inform-mike-johnson-again-162046897.html)
+- Dec 01 - [After Bud Light boycott, Kid Rock takes on huge retailer](https://www.thestreet.com/restaurants/forget-bud-light-kid-rock-takes-new-antiwoke-shots-at-target?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Dec 01 - [House expels George Santos in historic vote](https://news.yahoo.com/house-expels-george-santos-historic-160156713.html)
+- Dec 01 - [Powell: 'Premature' to conclude Fed rate hikes are over or 'speculate' when cuts could begin](https://finance.yahoo.com/news/powell-premature-to-conclude-fed-rate-hikes-are-over-or-speculate-when-cuts-could-begin-160003194.html)
 <!-- feed end -->
 
 ### Onstream
