@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Explosive call is the latest reveal in bitter Kevin McCarthy, Donald Trump feud](https://news.yahoo.com/explosive-call-latest-reveal-bitter-002425100.html)
+- Dec 01 - [GOP Melts Down As Dick Durbin Uses Its Tactics For Advancing Biden Judges](https://news.yahoo.com/gop-melts-down-dick-durbin-021856759.html)
 - Dec 01 - [Names of ‘royal racists’ spread across globe as Palace considers legal action](https://news.yahoo.com/names-royal-racists-spread-across-221502432.html)
 - Dec 01 - [One identical twin went vegan while the other didn’t. See what happened](https://www.yahoo.com/lifestyle/one-identical-twin-went-vegan-160031729.html)
 - Nov 30 - [Tesla's Cybertruck is a dystopian, masturbatory fantasy](https://news.yahoo.com/teslas-cybertruck-is-a-dystopian-masturbatory-fantasy-225648188.html)
-- Nov 30 - [Family of Marine killed in Afghanistan fails to win lawsuit against Alec Baldwin](https://news.yahoo.com/family-marine-killed-afghanistan-fails-222006096.html)
+- Nov 30 - [Maverick Carter, LeBron James' manager, reportedly used illegal bookie to bet on NBA](https://sports.yahoo.com/maverick-carter-lebron-james-manager-reportedly-used-illegal-bookie-to-bet-on-nba-225622339.html)
 <!-- feed end -->
 
 ### Onstream
