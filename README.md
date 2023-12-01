@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [If Moms for Liberty co-founder had sex with a woman, why is she targeting Florida’s gays? | Opinion](https://news.yahoo.com/moms-liberty-co-founder-had-011147807.html)
+- Dec 01 - [Fox News debate with DeSantis puts Newsom on the defensive](https://news.yahoo.com/fox-news-debate-desantis-puts-033521539.html)
+- Dec 01 - [Shahed-136 With Cellular Modem Found In Ukraine: What It Means](https://news.yahoo.com/shahed-136-cellular-modem-found-024300753.html)
 - Dec 01 - [Names of ‘royal racists’ spread across globe as Palace considers legal action](https://news.yahoo.com/names-royal-racists-spread-across-221502432.html)
 - Dec 01 - [One identical twin went vegan while the other didn’t. See what happened](https://www.yahoo.com/lifestyle/one-identical-twin-went-vegan-160031729.html)
 - Nov 30 - [Tesla's Cybertruck is a dystopian, masturbatory fantasy](https://news.yahoo.com/teslas-cybertruck-is-a-dystopian-masturbatory-fantasy-225648188.html)
-- Nov 30 - [Maverick Carter, LeBron James' manager, reportedly used illegal bookie to bet on NBA](https://sports.yahoo.com/maverick-carter-lebron-james-manager-reportedly-used-illegal-bookie-to-bet-on-nba-225622339.html)
 <!-- feed end -->
 
 ### Onstream
