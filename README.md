@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [This Metro Area Could Become Bigger Than New York Or Los Angeles In Your Lifetime](https://finance.yahoo.com/news/metro-area-could-become-bigger-210317120.html)
+- Dec 01 - [Derek Chauvin was stabbed 22 times in federal prison attack, charges say](https://news.yahoo.com/derek-chauvin-stabbed-22-times-215400133.html)
 - Dec 01 - [Newsom’s Wife Reportedly Put an End to Fiery Fox News Debate](https://news.yahoo.com/newsom-wife-reportedly-put-end-205902376.html)
 - Dec 01 - [Trump should not face trial in Georgia if he wins 2024 election, lawyer says](https://news.yahoo.com/trump-not-face-trial-georgia-203354655.html)
-- Dec 01 - [Canadian Hunter Tags 4X4 Buck Locked-Up with the Antlers of a Giant Deadhead](https://www.yahoo.com/lifestyle/canadian-hunter-tags-4x4-buck-202813531.html)
-- Dec 01 - [Why sleep matters: New study links lack of deep sleep to risk of dementia — what to know](https://news.yahoo.com/new-study-poor-sleep-dementia-explainer-194553667.html)
+- Dec 01 - [Steve Jobs' Intern, Described As 'The Guy That Got The Coffee For The Guy That Made Coffee,' Sold His Own Company To Google For $625 Million — His Advice? Pay Employers To Let You Work For Them, Not Work To Get Paid](https://finance.yahoo.com/news/steve-jobs-intern-described-guy-202230560.html)
+- Dec 01 - [Putin orders the Russian military to add 170,000 troops for a total of 1.32 million](https://news.yahoo.com/putin-orders-russian-military-add-193055383.html)
 <!-- feed end -->
 
 ### Onstream
