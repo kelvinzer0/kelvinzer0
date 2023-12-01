@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 01 - [Exclusive-China lures hundreds of Taiwan politicians with cheap trips before election - sources](https://news.yahoo.com/exclusive-china-lures-hundreds-taiwan-055555042.html)
+- Dec 01 - [King Charles says world heading for ‘dangerous uncharted territory’ as climate crisis deepens](https://news.yahoo.com/king-charles-says-world-heading-090413006.html)
+- Dec 01 - [Huawei is allegedly building a self-sufficient chip network using state investment fund](https://news.yahoo.com/huawei-is-allegedly-building-a-self-sufficient-chip-network-using-state-investment-fund-051823202.html)
 - Dec 01 - [Critics Crap On DeSantis For Breaking Out A Map Full O' Feces In Newsom Debate](https://news.yahoo.com/critics-crap-desantis-breaking-map-051529994.html)
-- Dec 01 - [Warplanes hit targets in Gaza as Israel resumes offensive, warning of attacks to come in south](https://news.yahoo.com/gaza-truce-expires-without-word-050541719.html)
-- Dec 01 - [Shahed-136 With Cellular Modem Found In Ukraine: What It Means](https://news.yahoo.com/shahed-136-cellular-modem-found-024300753.html)
-- Dec 01 - [One identical twin went vegan while the other didn’t. See what happened](https://www.yahoo.com/lifestyle/one-identical-twin-went-vegan-160031729.html)
+- Dec 01 - [Boeing-737 with 422 passengers on board crash-lands in Russia](https://news.yahoo.com/boeing-737-422-passengers-onboard-044055292.html)
+- Dec 01 - [Abcarian: How did Gov. Newsom fare against his Florida rival, Gov. DeSantis?](https://news.yahoo.com/abcarian-did-gov-newsom-fare-040031768.html)
 <!-- feed end -->
 
 ### Onstream
