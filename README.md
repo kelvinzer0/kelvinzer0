@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 02 - [What's the difference between Ozempic and Zepbound? Our comprehensive guide to weight-loss drugs](https://www.yahoo.com/lifestyle/weight-loss-drugs-guide-003829817.html)
+- Dec 01 - [Video shows Russian soldier saying some troops mixed river water in a can of meat and drank it for a week so they wouldn't starve](https://news.yahoo.com/video-shows-russian-soldier-saying-232833974.html)
+- Dec 01 - [Exclusive-Boeing eliminated from US Air Force's 'Doomsday Plane' competition](https://news.yahoo.com/exclusive-boeing-eliminated-us-air-221431835.html)
 - Dec 01 - [Derek Chauvin was stabbed 22 times in federal prison attack, charges say](https://news.yahoo.com/derek-chauvin-stabbed-22-times-215400133.html)
-- Dec 01 - [Newsom’s Wife Reportedly Put an End to Fiery Fox News Debate](https://news.yahoo.com/newsom-wife-reportedly-put-end-205902376.html)
-- Dec 01 - [Trump should not face trial in Georgia if he wins 2024 election, lawyer says](https://news.yahoo.com/trump-not-face-trial-georgia-203354655.html)
-- Dec 01 - [Steve Jobs' Intern, Described As 'The Guy That Got The Coffee For The Guy That Made Coffee,' Sold His Own Company To Google For $625 Million — His Advice? Pay Employers To Let You Work For Them, Not Work To Get Paid](https://finance.yahoo.com/news/steve-jobs-intern-described-guy-202230560.html)
-- Dec 01 - [Putin orders the Russian military to add 170,000 troops for a total of 1.32 million](https://news.yahoo.com/putin-orders-russian-military-add-193055383.html)
+- Dec 01 - [Forget the ‘tripledemic.’ The U.S. is headed for a ‘syndemic’ this winter—and experts warn we’re not prepared](https://finance.yahoo.com/news/forget-tripledemic-u-headed-syndemic-214915420.html)
 <!-- feed end -->
 
 ### Onstream
