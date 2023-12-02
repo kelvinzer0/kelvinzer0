@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Police charge director of Miss Nicaragua pageant with running 'beauty queen coup' plot](https://news.yahoo.com/police-charge-director-miss-nicaragua-050612598.html)
-- Dec 02 - [Comet Nishimura's Tail Flails In The Solar Wind In Amazing Spacecraft Time-Lapse](https://news.yahoo.com/comet-nishimuras-tail-flails-solar-020000273.html)
+- Dec 02 - [James Carville attacks Speaker Mike Johnson, says he's a 'bigger threat' to US than 'al-Qaeda'](https://news.yahoo.com/james-carville-attacks-speaker-mike-065009575.html)
 - Dec 02 - [North Korea says interference in its satellites would be declaration of war](https://news.yahoo.com/north-korea-says-interference-satellite-014337851.html)
 - Dec 01 - [Teen sentenced in deadly Hillsborough crash apologizes to victim’s family before heading to prison](https://news.yahoo.com/teen-sentenced-deadly-hillsborough-crash-231535596.html)
-- Dec 01 - [Dozens of Troops Suspected of Advocating Overthrow of US Government, New Pentagon Extremism Report Says](https://news.yahoo.com/dozens-troops-suspected-advocating-overthrow-221538999.html)
+- Dec 01 - [Exclusive-Boeing eliminated from US Air Force's 'Doomsday Plane' competition](https://news.yahoo.com/exclusive-boeing-eliminated-us-air-221431835.html)
+- Dec 01 - [Forget the ‘tripledemic.’ The U.S. is headed for a ‘syndemic’ this winter—and experts warn we’re not prepared](https://finance.yahoo.com/news/forget-tripledemic-u-headed-syndemic-214915420.html)
 <!-- feed end -->
 
 ### Onstream
