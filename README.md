@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - ['We do not have insurance. We have an insurance bill': Condos hit with 563% rate increase](https://finance.yahoo.com/news/not-insurance-insurance-bill-condos-101500766.html)
-- Dec 02 - [James Carville attacks Speaker Mike Johnson, says he's a 'bigger threat' to US than 'al-Qaeda'](https://news.yahoo.com/james-carville-attacks-speaker-mike-065009575.html)
+- Dec 02 - [North Korea is readying military and claims it saw U.S. military bases from spy satellite. How did we get to this point?](https://news.yahoo.com/north-korea-military-us-spy-satellite-how-did-we-get-here-120037976.html)
 - Dec 02 - [Police charge director of Miss Nicaragua pageant with running 'beauty queen coup' plot](https://news.yahoo.com/police-charge-director-miss-nicaragua-050612598.html)
-- Dec 02 - [North Korea says interference in its satellites would be declaration of war](https://news.yahoo.com/north-korea-says-interference-satellite-014337851.html)
-- Dec 02 - [Runner Alica Schmidt lights up the track in 2023 in images](https://sports.yahoo.com/runner-alica-schmidt-lights-track-014154880.html)
+- Dec 02 - [Trump suffers two major legal losses in one day as paths of escape narrow](https://news.yahoo.com/trump-suffers-two-major-legal-045142132.html)
+- Dec 02 - [The Iran-Backed Houthi Rebels Attacking Israel From the South](https://finance.yahoo.com/video/iran-backed-houthi-rebels-attacking-003400870.html)
+- Dec 01 - [Teen sentenced in deadly Hillsborough crash apologizes to victim’s family before heading to prison](https://news.yahoo.com/teen-sentenced-deadly-hillsborough-crash-231535596.html)
 <!-- feed end -->
 
 ### Onstream
