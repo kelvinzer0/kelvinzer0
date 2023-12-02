@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Trump Claims Biden Is Prosecuting His Top Foe. So How Come Nikki Haley Isn't In Jail Yet?](https://news.yahoo.com/trump-claims-biden-prosecuting-top-130003291.html)
+- Dec 02 - [9 Reasons Rivian Stock Is a Buy Now](https://www.fool.com/investing/2023/12/02/9-reasons-rivian-stock-is-a-buy-now/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Dec 02 - [The S&P 500 Just Did Something It Has Only Done 10 Times Before. History Says the Stock Market Will Do This Next](https://www.fool.com/investing/2023/12/02/sp-500-only-10-times-the-stock-market-do-this-next/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Dec 02 - [The inmate accused of stabbing Derek Chauvin 22 times bizarrely said he attacked him on Black Friday as a symbolic connection to BLM](https://news.yahoo.com/inmate-accused-stabbing-derek-chauvin-121902468.html)
-- Dec 02 - [Nancy Pelosi called disgraced Rep. George Santos a 'coward' for leaving the House chamber before his expulsion vote ended](https://news.yahoo.com/nancy-pelosi-called-disgraced-rep-120338236.html)
+- Dec 02 - [Tesla May Have Just Made Its Checkmate Move Against the Competition](https://www.fool.com/investing/2023/12/02/tesla-may-have-just-made-its-checkmate-move-agains/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Dec 02 - [North Korea is readying military and claims it saw U.S. military bases from spy satellite. How did we get to this point?](https://news.yahoo.com/north-korea-military-us-spy-satellite-how-did-we-get-here-120037976.html)
-- Dec 02 - [26 kids were buried alive in California. A new CNN Film shows how one plotted their escape – and what happened years later](https://news.yahoo.com/26-kids-were-buried-alive-120031339.html)
 <!-- feed end -->
 
 ### Onstream
