@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Three months after Jacksonville boy hit, killed by a car, his brother dies the same way](https://news.yahoo.com/three-months-jacksonville-boy-hit-051940858.html)
 - Dec 02 - [Police charge director of Miss Nicaragua pageant with running 'beauty queen coup' plot](https://news.yahoo.com/police-charge-director-miss-nicaragua-050612598.html)
 - Dec 02 - [Comet Nishimura's Tail Flails In The Solar Wind In Amazing Spacecraft Time-Lapse](https://news.yahoo.com/comet-nishimuras-tail-flails-solar-020000273.html)
+- Dec 02 - [North Korea says interference in its satellites would be declaration of war](https://news.yahoo.com/north-korea-says-interference-satellite-014337851.html)
 - Dec 02 - [Runner Alica Schmidt lights up the track in 2023 in images](https://sports.yahoo.com/runner-alica-schmidt-lights-track-014154880.html)
-- Dec 01 - [94,500 Gallon Sewer Spill Closes California Beaches](https://news.yahoo.com/94-500-gallon-sewer-spill-233557829.html)
+- Dec 01 - [Teen sentenced in deadly Hillsborough crash apologizes to victim’s family before heading to prison](https://news.yahoo.com/teen-sentenced-deadly-hillsborough-crash-231535596.html)
 <!-- feed end -->
 
 ### Onstream
