@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 02 - ['We do not have insurance. We have an insurance bill': Condos hit with 563% rate increase](https://finance.yahoo.com/news/not-insurance-insurance-bill-condos-101500766.html)
 - Dec 02 - [James Carville attacks Speaker Mike Johnson, says he's a 'bigger threat' to US than 'al-Qaeda'](https://news.yahoo.com/james-carville-attacks-speaker-mike-065009575.html)
+- Dec 02 - [Police charge director of Miss Nicaragua pageant with running 'beauty queen coup' plot](https://news.yahoo.com/police-charge-director-miss-nicaragua-050612598.html)
 - Dec 02 - [North Korea says interference in its satellites would be declaration of war](https://news.yahoo.com/north-korea-says-interference-satellite-014337851.html)
-- Dec 01 - [Teen sentenced in deadly Hillsborough crash apologizes to victim’s family before heading to prison](https://news.yahoo.com/teen-sentenced-deadly-hillsborough-crash-231535596.html)
-- Dec 01 - [Exclusive-Boeing eliminated from US Air Force's 'Doomsday Plane' competition](https://news.yahoo.com/exclusive-boeing-eliminated-us-air-221431835.html)
-- Dec 01 - [Forget the ‘tripledemic.’ The U.S. is headed for a ‘syndemic’ this winter—and experts warn we’re not prepared](https://finance.yahoo.com/news/forget-tripledemic-u-headed-syndemic-214915420.html)
+- Dec 02 - [Runner Alica Schmidt lights up the track in 2023 in images](https://sports.yahoo.com/runner-alica-schmidt-lights-track-014154880.html)
 <!-- feed end -->
 
 ### Onstream
