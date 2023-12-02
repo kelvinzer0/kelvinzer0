@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 02 - [Ja Morant reportedly subpoenaed to testify in civil lawsuit over alleged assault of teenager](https://sports.yahoo.com/ja-morant-reportedly-subpoenaed-to-testify-in-civil-lawsuit-over-alleged-assault-of-teenager-191225003.html)
-- Dec 02 - [Munich airport closed as heavy snow blankets Bavaria](https://news.yahoo.com/munich-airport-closed-heavy-snow-172838043.html)
+- Dec 02 - [Israeli strike destroys prestige Qatar-funded Gaza complex](https://news.yahoo.com/israeli-strike-destroys-prestige-qatar-184641254.html)
+- Dec 02 - [Ukraine's security service alleges Russian plot involving ex-president](https://news.yahoo.com/ukraines-security-alleges-russian-plot-182922393.html)
 - Dec 02 - [F-35C With Mirror-Like Coating Photographed Aboard Carrier](https://news.yahoo.com/f-35c-mirror-coating-photographed-172354804.html)
 - Dec 02 - [Wounded Israeli tattoo artist held hostage by Hamas was operated on by a vet in Gaza, her family says](https://news.yahoo.com/wounded-israeli-tattoo-artist-held-171930485.html)
-- Dec 02 - [World’s first tampons for men are an ‘insult’ to women](https://news.yahoo.com/world-first-tampons-men-insult-171617972.html)
 <!-- feed end -->
 
 ### Onstream
