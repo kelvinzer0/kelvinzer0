@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [9 Reasons Rivian Stock Is a Buy Now](https://www.fool.com/investing/2023/12/02/9-reasons-rivian-stock-is-a-buy-now/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Dec 02 - [Bill Maher Slams GOP Theocrats: ‘Does Anyone in That Party Remember What F–ing Country You’re Living in?’ | Video](https://www.yahoo.com/entertainment/bill-maher-slams-gop-theocrats-143000817.html)
+- Dec 02 - [Singer Anita Baker's lakefront home in Grosse Pointe on market for $1.8 million](https://www.yahoo.com/entertainment/singer-anita-bakers-lakefront-home-130047438.html)
 - Dec 02 - [The S&P 500 Just Did Something It Has Only Done 10 Times Before. History Says the Stock Market Will Do This Next](https://www.fool.com/investing/2023/12/02/sp-500-only-10-times-the-stock-market-do-this-next/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Dec 02 - [Tesla fans react strongly to reveal of new Model 3: ‘It’s enough to keep me from buying one’](https://news.yahoo.com/tesla-fans-react-strongly-reveal-103000051.html)
 - Dec 02 - [The inmate accused of stabbing Derek Chauvin 22 times bizarrely said he attacked him on Black Friday as a symbolic connection to BLM](https://news.yahoo.com/inmate-accused-stabbing-derek-chauvin-121902468.html)
-- Dec 02 - [Tesla May Have Just Made Its Checkmate Move Against the Competition](https://www.fool.com/investing/2023/12/02/tesla-may-have-just-made-its-checkmate-move-agains/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Dec 02 - [North Korea is readying military and claims it saw U.S. military bases from spy satellite. How did we get to this point?](https://news.yahoo.com/north-korea-military-us-spy-satellite-how-did-we-get-here-120037976.html)
 <!-- feed end -->
 
 ### Onstream
