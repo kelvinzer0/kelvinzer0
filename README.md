@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Susan Sarandon Says Her Comments At A Pro-Palestinian Rally Were A "Terrible Mistake"](https://www.yahoo.com/entertainment/susan-sarandon-says-her-comments-155242675.html)
-- Dec 02 - [Harris says US will ‘under no circumstances’ permit forced relocation of Palestinians](https://news.yahoo.com/harris-says-us-under-no-152049610.html)
-- Dec 02 - [Republicans Insist on Deposing Hunter Biden, Saying Public Hearing Must Wait](https://news.yahoo.com/republicans-insist-deposing-hunter-biden-151045168.html)
+- Dec 02 - [Speaker Johnson says he believes GOP has the votes for Biden impeachment inquiry](https://news.yahoo.com/speaker-johnson-says-believes-gop-160117371.html)
+- Dec 02 - [Social Security will likely have a new boss soon. Here's how he wants it to run better.](https://finance.yahoo.com/news/social-security-will-likely-have-a-new-boss-soon-heres-how-he-wants-it-to-run-better-151511410.html)
+- Dec 02 - [China's Mars Rover Detected Polygons Under the Planet's Surface](https://news.yahoo.com/chinas-mars-rover-detected-polygons-143028997.html)
+- Dec 02 - [Farmer reveals creative solution for clearing field of weeds without lifting a finger: ‘[It] makes that way easier’](https://www.yahoo.com/lifestyle/farmer-reveals-creative-solution-clearing-143000099.html)
 - Dec 02 - [The S&P 500 Just Did Something It Has Only Done 10 Times Before. History Says the Stock Market Will Do This Next](https://www.fool.com/investing/2023/12/02/sp-500-only-10-times-the-stock-market-do-this-next/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Dec 02 - [The inmate accused of stabbing Derek Chauvin 22 times bizarrely said he attacked him on Black Friday as a symbolic connection to BLM](https://news.yahoo.com/inmate-accused-stabbing-derek-chauvin-121902468.html)
 <!-- feed end -->
 
 ### Onstream
