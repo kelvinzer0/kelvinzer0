@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 02 - [Trump Claims Biden Is Prosecuting His Top Foe. So How Come Nikki Haley Isn't In Jail Yet?](https://news.yahoo.com/trump-claims-biden-prosecuting-top-130003291.html)
+- Dec 02 - [The inmate accused of stabbing Derek Chauvin 22 times bizarrely said he attacked him on Black Friday as a symbolic connection to BLM](https://news.yahoo.com/inmate-accused-stabbing-derek-chauvin-121902468.html)
+- Dec 02 - [Nancy Pelosi called disgraced Rep. George Santos a 'coward' for leaving the House chamber before his expulsion vote ended](https://news.yahoo.com/nancy-pelosi-called-disgraced-rep-120338236.html)
 - Dec 02 - [North Korea is readying military and claims it saw U.S. military bases from spy satellite. How did we get to this point?](https://news.yahoo.com/north-korea-military-us-spy-satellite-how-did-we-get-here-120037976.html)
-- Dec 02 - [Police charge director of Miss Nicaragua pageant with running 'beauty queen coup' plot](https://news.yahoo.com/police-charge-director-miss-nicaragua-050612598.html)
-- Dec 02 - [Trump suffers two major legal losses in one day as paths of escape narrow](https://news.yahoo.com/trump-suffers-two-major-legal-045142132.html)
-- Dec 02 - [The Iran-Backed Houthi Rebels Attacking Israel From the South](https://finance.yahoo.com/video/iran-backed-houthi-rebels-attacking-003400870.html)
-- Dec 01 - [Teen sentenced in deadly Hillsborough crash apologizes to victim’s family before heading to prison](https://news.yahoo.com/teen-sentenced-deadly-hillsborough-crash-231535596.html)
+- Dec 02 - [26 kids were buried alive in California. A new CNN Film shows how one plotted their escape – and what happened years later](https://news.yahoo.com/26-kids-were-buried-alive-120031339.html)
 <!-- feed end -->
 
 ### Onstream
