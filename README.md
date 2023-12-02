@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 02 - [NBC's Antonia Hylton, 30, diagnosed with rare cancer after dismissing these early signs](https://news.yahoo.com/nbcs-antonia-hylton-30-diagnosed-213504262.html)
+- Dec 02 - [North Korea says interference in its satellites would be declaration of war](https://news.yahoo.com/north-korea-says-interference-satellite-014337851.html)
+- Dec 02 - [Ammon Bundy ‘in hiding’ after losing Idaho home, websites in legal battle with St. Luke’s](https://news.yahoo.com/ammon-bundy-hiding-losing-idaho-011015086.html)
+- Dec 01 - [Dozens of Troops Suspected of Advocating Overthrow of US Government, New Pentagon Extremism Report Says](https://news.yahoo.com/dozens-troops-suspected-advocating-overthrow-221538999.html)
 - Dec 01 - [Exclusive-Boeing eliminated from US Air Force's 'Doomsday Plane' competition](https://news.yahoo.com/exclusive-boeing-eliminated-us-air-221431835.html)
-- Dec 01 - [Derek Chauvin was stabbed 22 times in federal prison attack, charges say](https://news.yahoo.com/derek-chauvin-stabbed-22-times-215400133.html)
-- Dec 01 - [Forget the ‘tripledemic.’ The U.S. is headed for a ‘syndemic’ this winter—and experts warn we’re not prepared](https://finance.yahoo.com/news/forget-tripledemic-u-headed-syndemic-214915420.html)
-- Dec 01 - [Newsom’s Wife Reportedly Put an End to Fiery Fox News Debate](https://news.yahoo.com/newsom-wife-reportedly-put-end-205902376.html)
-- Dec 01 - [Trump should not face trial in Georgia if he wins 2024 election, lawyer says](https://news.yahoo.com/trump-not-face-trial-georgia-203354655.html)
 <!-- feed end -->
 
 ### Onstream
