@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 02 - [Israeli strike destroys prestige Qatar-funded Gaza complex](https://news.yahoo.com/israeli-strike-destroys-prestige-qatar-184641254.html)
+- Dec 02 - [Estranged husband accused of murder after missing woman’s body is found in Florida storage unit](https://news.yahoo.com/estranged-husband-accused-murder-missing-180555625.html)
 - Dec 02 - [F-35C With Mirror-Like Coating Photographed Aboard Carrier](https://news.yahoo.com/f-35c-mirror-coating-photographed-172354804.html)
 - Dec 02 - [Wounded Israeli tattoo artist held hostage by Hamas was operated on by a vet in Gaza, her family says](https://news.yahoo.com/wounded-israeli-tattoo-artist-held-171930485.html)
 - Dec 02 - [World’s first tampons for men are an ‘insult’ to women](https://news.yahoo.com/world-first-tampons-men-insult-171617972.html)
-- Dec 02 - [Social Security will likely have a new boss soon. Here's how he wants it to run better.](https://finance.yahoo.com/news/social-security-will-likely-have-a-new-boss-soon-heres-how-he-wants-it-to-run-better-151511410.html)
-- Dec 02 - [The S&P 500 Just Did Something It Has Only Done 10 Times Before. History Says the Stock Market Will Do This Next](https://www.fool.com/investing/2023/12/02/sp-500-only-10-times-the-stock-market-do-this-next/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
