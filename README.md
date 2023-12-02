@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [NBC's Antonia Hylton, 30, diagnosed with rare cancer after dismissing these early signs](https://news.yahoo.com/nbcs-antonia-hylton-30-diagnosed-213504262.html)
+- Dec 02 - [DeSantis Hilariously Flubs Tweet Announcing His ‘Excitement’ for Colorado Primary](https://news.yahoo.com/desantis-hilariously-flubs-tweet-announcing-044457798.html)
 - Dec 02 - [North Korea says interference in its satellites would be declaration of war](https://news.yahoo.com/north-korea-says-interference-satellite-014337851.html)
-- Dec 02 - [Ammon Bundy ‘in hiding’ after losing Idaho home, websites in legal battle with St. Luke’s](https://news.yahoo.com/ammon-bundy-hiding-losing-idaho-011015086.html)
-- Dec 01 - [Dozens of Troops Suspected of Advocating Overthrow of US Government, New Pentagon Extremism Report Says](https://news.yahoo.com/dozens-troops-suspected-advocating-overthrow-221538999.html)
-- Dec 01 - [Exclusive-Boeing eliminated from US Air Force's 'Doomsday Plane' competition](https://news.yahoo.com/exclusive-boeing-eliminated-us-air-221431835.html)
+- Dec 02 - [Two UT teaching assistants lose their positions after message about Palestine](https://news.yahoo.com/two-ut-teaching-assistants-lose-013010153.html)
+- Dec 01 - [94,500 Gallon Sewer Spill Closes California Beaches](https://news.yahoo.com/94-500-gallon-sewer-spill-233557829.html)
+- Dec 01 - [Teen sentenced in deadly Hillsborough crash apologizes to victim’s family before heading to prison](https://news.yahoo.com/teen-sentenced-deadly-hillsborough-crash-231535596.html)
 <!-- feed end -->
 
 ### Onstream
