@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Prince Harry in three-day battle over legal right to protection](https://news.yahoo.com/prince-harry-three-day-battle-215201894.html)
-- Dec 03 - [UPDATE 3-Alaska Air to buy Hawaiian Airlines for $1.9 billion](https://finance.yahoo.com/news/1-alaska-air-buy-hawaiian-192116436.html)
+- Dec 03 - [Trump Era Tax Cuts Are Set To Expire — Here’s How Much More You’ll Pay](https://finance.yahoo.com/news/trump-era-tax-cuts-set-160750197.html)
+- Dec 03 - [Woman wins millions on Massachusetts scratch-off, hides ticket and goes on vacation](https://news.yahoo.com/woman-wins-millions-massachusetts-scratch-205015756.html)
+- Dec 03 - [Trump pardoned a hodgepodge of controversial figures, from Joe Arpaio to Roger Stone. Now, dozens of them are contributing to his 2024 bid or have spread his false election claims.](https://news.yahoo.com/trump-pardoned-hodgepodge-controversial-figures-203558540.html)
 - Dec 03 - [Graham dismisses Liz Cheney’s Trump warning, says ‘world will be truly on fire’ if Biden re-elected](https://news.yahoo.com/graham-dismisses-liz-cheney-trump-185741271.html)
 - Dec 03 - [On his deathbed, her father told her a secret: He was a fugitive and had robbed a bank in Ohio](https://news.yahoo.com/deathbed-her-father-told-her-133030757.html)
-- Dec 03 - [Google is reportedly pushing the launch of its Gemini AI to 2024](https://news.yahoo.com/google-is-reportedly-pushing-the-launch-of-its-gemini-ai-to-2024-173444507.html)
 <!-- feed end -->
 
 ### Onstream
