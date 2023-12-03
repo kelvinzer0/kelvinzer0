@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Charlie Munger’s Life History & Stock Portfolio: 4 Biggest Positions](https://finance.yahoo.com/news/charlie-munger-life-history-stock-144948111.html)
+- Dec 03 - [DeSantis warns Republicans about Biden impeachment inquiry, says voters care more about border, economy](https://news.yahoo.com/desantis-warns-republicans-biden-impeachment-160026738.html)
 - Dec 03 - [Homebuyer conundrum: If mortgage rates fall, bidding wars will follow, expert says](https://finance.yahoo.com/news/homebuyer-conundrum-if-mortgage-rates-fall-bidding-wars-will-follow-expert-says-140737858.html)
 - Dec 03 - [‘Limbless’ creature found digging beneath rotten tree in Vietnam. It’s a new species](https://news.yahoo.com/limbless-creature-found-digging-beneath-140000236.html)
 - Dec 03 - [On his deathbed, her father told her a secret: He was a fugitive and had robbed a bank in Ohio](https://news.yahoo.com/deathbed-her-father-told-her-133030757.html)
-- Dec 03 - [The gambit to slash Russia's oil profits and undercut Putin's war in Ukraine](https://finance.yahoo.com/news/the-gambit-to-slash-russias-oil-profits-and-undercut-putins-war-in-ukraine-123441566.html)
+- Dec 03 - [The Hottest Temperature A Human Can Survive Is Much Lower Than You Think](https://www.yahoo.com/lifestyle/hottest-temperature-human-survive-much-130000930.html)
 <!-- feed end -->
 
 ### Onstream
