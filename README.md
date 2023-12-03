@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 03 - [Israel, Threatened by Hezbollah, Seeks Solution for Empty North](https://finance.yahoo.com/news/israel-threatened-hezbollah-seeks-solution-083000785.html)
 - Dec 03 - [Scientists issue warning after finding rare tarantula in wild for first time: ‘It is essential to take these steps’](https://news.yahoo.com/scientists-issue-warning-finding-rare-043000919.html)
-- Dec 03 - [Philippine military on high alert after bombing called terrorism](https://news.yahoo.com/three-dead-southern-philippines-university-011916055.html)
+- Dec 03 - [Customer, taco truck, parked vehicles all struck during Fresno drive-by shooting](https://news.yahoo.com/customer-taco-truck-parked-vehicles-035830213.html)
+- Dec 03 - ['Foreign terrorists' behind deadly Philippine bombing - officials](https://news.yahoo.com/three-dead-southern-philippines-university-011916055.html)
 - Dec 03 - [Trump Says if Jesus ‘Came Down’ He’d Win the Blue States in Unhinged Iowa Speech](https://news.yahoo.com/trump-says-jesus-came-down-002004647.html)
-- Dec 02 - [Resurfaced Reports Show That Nearly All of Donald Trump’s Children Heavily Disagree With One of His Home Rules](https://www.yahoo.com/lifestyle/resurfaced-reports-show-nearly-donald-210800605.html)
-- Dec 02 - [Scientists’ discovery deep underground could have massive applications: ‘Climate holy grail’](https://news.yahoo.com/scientists-discovery-deep-underground-could-210000229.html)
 <!-- feed end -->
 
 ### Onstream
