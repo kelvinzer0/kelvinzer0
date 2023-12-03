@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Trump Says if Jesus ‘Came Down’ He’d Win the Blues States in Unhinged Iowa Speech](https://news.yahoo.com/trump-says-jesus-came-down-002004647.html)
-- Dec 02 - [Grand Prairie couple killed after their new dream vacation condo in Mexico explodes](https://news.yahoo.com/grand-prairie-couple-killed-dream-212807445.html)
+- Dec 03 - [Trump Says if Jesus ‘Came Down’ He’d Win the Blue States in Unhinged Iowa Speech](https://news.yahoo.com/trump-says-jesus-came-down-002004647.html)
+- Dec 02 - [2 filmmakers with an underwater drone accidentally found a 128-year-old shipwreck at the bottom of Lake Huron](https://news.yahoo.com/2-filmmakers-underwater-drone-accidentally-231055987.html)
+- Dec 02 - [Archdiocese puts pastor of Whitefish Bay and Fox Point parishes on leave, under investigation](https://news.yahoo.com/catholic-pastor-whitefish-bay-fox-212558470.html)
 - Dec 02 - [Resurfaced Reports Show That Nearly All of Donald Trump’s Children Heavily Disagree With One of His Home Rules](https://www.yahoo.com/lifestyle/resurfaced-reports-show-nearly-donald-210800605.html)
 - Dec 02 - [Scientists’ discovery deep underground could have massive applications: ‘Climate holy grail’](https://news.yahoo.com/scientists-discovery-deep-underground-could-210000229.html)
-- Dec 02 - [Israeli strike destroys prestige Qatar-funded Gaza complex](https://news.yahoo.com/israeli-strike-destroys-prestige-qatar-184641254.html)
 <!-- feed end -->
 
 ### Onstream
