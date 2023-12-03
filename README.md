@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Mount Marapi vocano erupts in Indonesia's West Sumatra province, spewing ash on nearby towns](https://news.yahoo.com/mount-marapi-vocano-erupts-indonesias-184132053.html)
 - Dec 03 - [On his deathbed, her father told her a secret: He was a fugitive and had robbed a bank in Ohio](https://news.yahoo.com/deathbed-her-father-told-her-133030757.html)
 - Dec 03 - [An Israeli raced to confront Palestinian attackers. He was then killed by an Israeli soldier](https://news.yahoo.com/israeli-raced-confront-palestinian-attackers-173551862.html)
-- Dec 03 - [Ivanka Trump’s Miami Mansion Goes to Extreme Measures for Safety, per Resurfaced Reports](https://www.yahoo.com/entertainment/ivanka-trump-miami-mansion-goes-173000659.html)
 - Dec 03 - [US warship attacked in Red Sea](https://news.yahoo.com/us-warship-attacked-red-sea-170515060.html)
+- Dec 03 - [Why You Will Get Two Social Security Checks in December](https://finance.yahoo.com/news/why-two-social-security-checks-121931294.html)
+- Dec 03 - [Trump's "war on democracy" fumble sparks backlash](https://news.yahoo.com/internet-having-lot-fun-trumps-155953429.html)
 <!-- feed end -->
 
 ### Onstream
