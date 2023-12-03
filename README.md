@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Scientists issue warning after finding rare tarantula in wild for first time: ‘It is essential to take these steps’](https://news.yahoo.com/scientists-issue-warning-finding-rare-043000919.html)
-- Dec 03 - [DeSantis says conservatives won't be 'gaslit' by 'people who think we're dumb' after Newsom debate](https://news.yahoo.com/desantis-says-conservatives-wont-gaslit-015206020.html)
-- Dec 03 - ['Foreign terrorists' behind deadly Philippine bombing - officials](https://news.yahoo.com/three-dead-southern-philippines-university-011916055.html)
-- Dec 03 - [Trump Says if Jesus ‘Came Down’ He’d Win the Blue States in Unhinged Iowa Speech](https://news.yahoo.com/trump-says-jesus-came-down-002004647.html)
-- Dec 02 - [Animals seized from Milwaukee home, man sentenced after 100+ found](https://news.yahoo.com/animals-seized-milwaukee-home-man-223020699.html)
+- Dec 03 - [Pope Francis says he's doing better but again skips his window appearance facing St. Peter's Square](https://news.yahoo.com/pope-francis-says-hes-doing-121738744.html)
+- Dec 03 - [Israel says it uncovered 800 shafts to Hamas tunnels below Gaza](https://news.yahoo.com/israel-says-uncovered-800-shafts-115703432.html)
+- Dec 03 - ['They're not super forthcoming': This dentist says you should never ask if your oral health provider takes your insurance – you could end up paying $1,200 for a root canal. Do this instead](https://finance.yahoo.com/news/theyre-not-super-forthcoming-dentist-113000730.html)
+- Dec 03 - [Israeli medical experts declare some Gaza hostages dead in absentia](https://news.yahoo.com/israeli-medical-experts-declare-gaza-110542135.html)
+- Dec 03 - [Biker upends Michigan woman's life, dies in the process: 'It's a national trend'](https://news.yahoo.com/biker-upends-michigan-womans-life-110149679.html)
 <!-- feed end -->
 
 ### Onstream
