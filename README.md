@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Ukrainian saboteurs reportedly poison 35 Russian soldiers in Crimea, 24 die](https://news.yahoo.com/ukrainian-saboteurs-reportedly-poison-35-033700586.html)
+- Dec 03 - [Philippine military on high alert after bombing called terrorism](https://news.yahoo.com/three-dead-southern-philippines-university-011916055.html)
 - Dec 03 - [Trump Says if Jesus ‘Came Down’ He’d Win the Blue States in Unhinged Iowa Speech](https://news.yahoo.com/trump-says-jesus-came-down-002004647.html)
-- Dec 02 - [2 filmmakers with an underwater drone accidentally found a 128-year-old shipwreck at the bottom of Lake Huron](https://news.yahoo.com/2-filmmakers-underwater-drone-accidentally-231055987.html)
-- Dec 02 - [Klitschko says Ukraine is turning authoritarian as conflict with Zelensky persists](https://news.yahoo.com/klitschko-says-ukraine-turning-authoritarian-230715013.html)
-- Dec 02 - [One dead, two injured after man attacks tourists near Paris' Eiffel Tower](https://news.yahoo.com/one-dead-one-injured-assailant-215559874.html)
+- Dec 02 - [Resurfaced Reports Show That Nearly All of Donald Trump’s Children Heavily Disagree With One of His Home Rules](https://www.yahoo.com/lifestyle/resurfaced-reports-show-nearly-donald-210800605.html)
+- Dec 02 - [Scientists’ discovery deep underground could have massive applications: ‘Climate holy grail’](https://news.yahoo.com/scientists-discovery-deep-underground-could-210000229.html)
+- Dec 02 - [Ja Morant reportedly subpoenaed to testify in civil lawsuit over alleged assault of teenager](https://sports.yahoo.com/ja-morant-reportedly-subpoenaed-to-testify-in-civil-lawsuit-over-alleged-assault-of-teenager-191225003.html)
 <!-- feed end -->
 
 ### Onstream
