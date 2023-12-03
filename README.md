@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 03 - [Trump Says if Jesus ‘Came Down’ He’d Win the Blue States in Unhinged Iowa Speech](https://news.yahoo.com/trump-says-jesus-came-down-002004647.html)
+- Dec 02 - [Animals seized from Milwaukee home, man sentenced after 100+ found](https://news.yahoo.com/animals-seized-milwaukee-home-man-223020699.html)
 - Dec 02 - [One dead, two injured after man attacks tourists near Paris' Eiffel Tower](https://news.yahoo.com/one-dead-one-injured-assailant-215559874.html)
 - Dec 02 - [Light Snow Blankets Northern Maine](https://news.yahoo.com/light-snow-blankets-northern-maine-214342306.html)
 - Dec 02 - [Archdiocese puts pastor of Whitefish Bay and Fox Point parishes on leave, under investigation](https://news.yahoo.com/catholic-pastor-whitefish-bay-fox-212558470.html)
-- Dec 02 - [Resurfaced Reports Show That Nearly All of Donald Trump’s Children Heavily Disagree With One of His Home Rules](https://www.yahoo.com/lifestyle/resurfaced-reports-show-nearly-donald-210800605.html)
 <!-- feed end -->
 
 ### Onstream
