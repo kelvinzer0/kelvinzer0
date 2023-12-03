@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 03 - [Israel, Threatened by Hezbollah, Seeks Solution for Empty North](https://finance.yahoo.com/news/israel-threatened-hezbollah-seeks-solution-083000785.html)
+- Dec 03 - [Philippines deploys vessels to monitor 'illegal' presence of Chinese boats in South China Sea](https://news.yahoo.com/philippines-monitored-illegal-presence-more-080303496.html)
 - Dec 03 - [Scientists issue warning after finding rare tarantula in wild for first time: ‘It is essential to take these steps’](https://news.yahoo.com/scientists-issue-warning-finding-rare-043000919.html)
-- Dec 03 - [Customer, taco truck, parked vehicles all struck during Fresno drive-by shooting](https://news.yahoo.com/customer-taco-truck-parked-vehicles-035830213.html)
 - Dec 03 - ['Foreign terrorists' behind deadly Philippine bombing - officials](https://news.yahoo.com/three-dead-southern-philippines-university-011916055.html)
 - Dec 03 - [Trump Says if Jesus ‘Came Down’ He’d Win the Blue States in Unhinged Iowa Speech](https://news.yahoo.com/trump-says-jesus-came-down-002004647.html)
 <!-- feed end -->
