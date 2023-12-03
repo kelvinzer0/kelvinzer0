@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 02 - [Russians ease attacks in eastern Ukraine, shattered town may still be held by Kyiv](https://news.yahoo.com/russians-ease-attacks-eastern-ukraine-221637474.html)
-- Dec 02 - [Avoid Buying These 6 Luxury Cars Most Likely To Have Major Mechanical Problems](https://finance.yahoo.com/news/avoid-buying-6-luxury-cars-220025754.html)
+- Dec 03 - [Trump Says if Jesus ‘Came Down’ He’d Win the Blues States in Unhinged Iowa Speech](https://news.yahoo.com/trump-says-jesus-came-down-002004647.html)
 - Dec 02 - [Grand Prairie couple killed after their new dream vacation condo in Mexico explodes](https://news.yahoo.com/grand-prairie-couple-killed-dream-212807445.html)
 - Dec 02 - [Resurfaced Reports Show That Nearly All of Donald Trump’s Children Heavily Disagree With One of His Home Rules](https://www.yahoo.com/lifestyle/resurfaced-reports-show-nearly-donald-210800605.html)
-- Dec 02 - [Ja Morant reportedly subpoenaed to testify in civil lawsuit over alleged assault of teenager](https://sports.yahoo.com/ja-morant-reportedly-subpoenaed-to-testify-in-civil-lawsuit-over-alleged-assault-of-teenager-191225003.html)
+- Dec 02 - [Scientists’ discovery deep underground could have massive applications: ‘Climate holy grail’](https://news.yahoo.com/scientists-discovery-deep-underground-could-210000229.html)
+- Dec 02 - [Israeli strike destroys prestige Qatar-funded Gaza complex](https://news.yahoo.com/israeli-strike-destroys-prestige-qatar-184641254.html)
 <!-- feed end -->
 
 ### Onstream
