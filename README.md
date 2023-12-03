@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [The internet is having a lot of fun with Trump's "war on Democracy" speech fumble in Iowa](https://news.yahoo.com/internet-having-lot-fun-trumps-155953429.html)
-- Dec 03 - [Al Gore slams COP28 climate summit host UAE, says its emissions soared](https://finance.yahoo.com/news/al-gore-slams-cop28-climate-154515604.html)
-- Dec 03 - [A defiant Ukrainian soldier called in an artillery strike on his own position in a moment of self-sacrifice — and survived](https://news.yahoo.com/defiant-ukrainian-soldier-called-artillery-153719413.html)
-- Dec 03 - [Why retirees may pay 'significant increases' in 2024 Medicare Part D drug premiums](https://finance.yahoo.com/news/why-retirees-may-pay-significant-increases-in-2024-medicare-part-d-drug-premiums-151516209.html)
-- Dec 03 - [‘Limbless’ creature found digging beneath rotten tree in Vietnam. It’s a new species](https://news.yahoo.com/limbless-creature-found-digging-beneath-140000236.html)
+- Dec 03 - [Chris Christie says Donald Trump 'acts like someone who wants to be a dictator' ahead of 2024](https://news.yahoo.com/chris-christie-says-donald-trump-174841192.html)
+- Dec 03 - [On his deathbed, her father told her a secret: He was a fugitive and had robbed a bank in Ohio](https://news.yahoo.com/deathbed-her-father-told-her-133030757.html)
+- Dec 03 - [An Israeli raced to confront Palestinian attackers. He was then killed by an Israeli soldier](https://news.yahoo.com/israeli-raced-confront-palestinian-attackers-173551862.html)
+- Dec 03 - [Elusive predator with eye-catching coat spotted near California coast, photo shows](https://news.yahoo.com/elusive-predator-eye-catching-coat-172348021.html)
+- Dec 03 - [Why You Will Get Two Social Security Checks in December](https://finance.yahoo.com/news/why-two-social-security-checks-121931294.html)
 <!-- feed end -->
 
 ### Onstream
