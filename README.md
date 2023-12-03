@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 03 - [Ukrainian saboteurs reportedly poison 35 Russian soldiers in Crimea, 24 die](https://news.yahoo.com/ukrainian-saboteurs-reportedly-poison-35-033700586.html)
 - Dec 03 - [Trump Says if Jesus ‘Came Down’ He’d Win the Blue States in Unhinged Iowa Speech](https://news.yahoo.com/trump-says-jesus-came-down-002004647.html)
-- Dec 02 - [Animals seized from Milwaukee home, man sentenced after 100+ found](https://news.yahoo.com/animals-seized-milwaukee-home-man-223020699.html)
+- Dec 02 - [2 filmmakers with an underwater drone accidentally found a 128-year-old shipwreck at the bottom of Lake Huron](https://news.yahoo.com/2-filmmakers-underwater-drone-accidentally-231055987.html)
+- Dec 02 - [Klitschko says Ukraine is turning authoritarian as conflict with Zelensky persists](https://news.yahoo.com/klitschko-says-ukraine-turning-authoritarian-230715013.html)
 - Dec 02 - [One dead, two injured after man attacks tourists near Paris' Eiffel Tower](https://news.yahoo.com/one-dead-one-injured-assailant-215559874.html)
-- Dec 02 - [Light Snow Blankets Northern Maine](https://news.yahoo.com/light-snow-blankets-northern-maine-214342306.html)
-- Dec 02 - [Archdiocese puts pastor of Whitefish Bay and Fox Point parishes on leave, under investigation](https://news.yahoo.com/catholic-pastor-whitefish-bay-fox-212558470.html)
 <!-- feed end -->
 
 ### Onstream
