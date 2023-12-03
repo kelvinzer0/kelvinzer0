@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 03 - [Israel, Threatened by Hezbollah, Seeks Solution for Empty North](https://finance.yahoo.com/news/israel-threatened-hezbollah-seeks-solution-083000785.html)
-- Dec 03 - [Philippines deploys vessels to monitor 'illegal' presence of Chinese boats in South China Sea](https://news.yahoo.com/philippines-monitored-illegal-presence-more-080303496.html)
 - Dec 03 - [Scientists issue warning after finding rare tarantula in wild for first time: ‘It is essential to take these steps’](https://news.yahoo.com/scientists-issue-warning-finding-rare-043000919.html)
+- Dec 03 - [DeSantis says conservatives won't be 'gaslit' by 'people who think we're dumb' after Newsom debate](https://news.yahoo.com/desantis-says-conservatives-wont-gaslit-015206020.html)
 - Dec 03 - ['Foreign terrorists' behind deadly Philippine bombing - officials](https://news.yahoo.com/three-dead-southern-philippines-university-011916055.html)
 - Dec 03 - [Trump Says if Jesus ‘Came Down’ He’d Win the Blue States in Unhinged Iowa Speech](https://news.yahoo.com/trump-says-jesus-came-down-002004647.html)
+- Dec 02 - [Animals seized from Milwaukee home, man sentenced after 100+ found](https://news.yahoo.com/animals-seized-milwaukee-home-man-223020699.html)
 <!-- feed end -->
 
 ### Onstream
