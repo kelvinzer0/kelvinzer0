@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Eleven climbers killed as Indonesia volcano erupts, survivors found - official](https://news.yahoo.com/eleven-climbers-killed-indonesia-volcano-023955871.html)
-- Dec 04 - [A 28-year-old man died following a traffic stop and arrest in New Berlin](https://news.yahoo.com/28-old-man-died-following-004512051.html)
-- Dec 03 - [Former US ambassador arrested in Florida, accused of serving as an agent of Cuba, AP source says](https://news.yahoo.com/former-us-ambassador-arrested-florida-235153810.html)
+- Dec 04 - [Firefighters respond to Primanti Brothers in Beaver County](https://news.yahoo.com/firefighters-respond-primanti-brothers-beaver-032248681.html)
+- Dec 04 - [Eleven climbers killed as Indonesia volcano erupts, search on hold](https://news.yahoo.com/eleven-climbers-killed-indonesia-volcano-023955871.html)
+- Dec 03 - [At 14 he slaughtered the woman who raised him and at 21, he walked free. What now?](https://news.yahoo.com/14-slaughtered-woman-raised-him-234517504.html)
+- Dec 03 - [IRS move could carry hefty cost for some taxpayers](https://finance.yahoo.com/news/irs-move-could-carry-hefty-234032182.html)
 - Dec 03 - [China's military: US combat ship 'illegally' entered territorial waters](https://news.yahoo.com/chinas-military-says-u-combat-232945012.html)
-- Dec 03 - [A wave of tenured professors leaving their highly coveted positions say the DeSantis administration is the reason they're leaving Florida](https://news.yahoo.com/wave-tenured-professors-leaving-highly-232502985.html)
 <!-- feed end -->
 
 ### Onstream
