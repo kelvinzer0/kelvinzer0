@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Driver Leads Missouri Police on Chase While Towing Large Mobile Home](https://news.yahoo.com/driver-leads-missouri-police-chase-162646774.html)
-- Dec 04 - [Former Harvard disinformation scholar says she was pushed out of her job after college faced pressure from Facebook](https://finance.yahoo.com/news/former-harvard-disinformation-scholar-says-120824467.html)
-- Dec 04 - ["An absolute tsunami": Legal experts stunned at "disastrous legal day" for Trump](https://news.yahoo.com/absolute-tsunami-legal-experts-stunned-155118297.html)
-- Dec 04 - [Trump seeks to appeal reinstated gag orders in New York civil fraud case -filing](https://news.yahoo.com/trump-seeks-appeal-reinstated-gag-153647839.html)
-- Dec 04 - [530,000 Hondas, Acuras under expanded NHTSA investigation for steering problem](https://www.autoblog.com/2023/12/04/530000-hondas-acuras-under-expanded-nhtsa-investigation-for-steering-problem/)
+- Dec 04 - [Israel thanks Argentina's Milei for pledge to move embassy to Jerusalem](https://news.yahoo.com/israel-thanks-argentinas-milei-pledge-174257674.html)
+- Dec 04 - [Sex offender convicted of killing beloved Atlanta bartender sentenced to life in prison](https://news.yahoo.com/sex-offender-convicted-killing-beloved-152408299.html)
+- Dec 04 - [State police identify 2 people killed in wrong-way crash on Mass. highway](https://news.yahoo.com/state-police-identify-2-people-164859636.html)
+- Dec 04 - [Tesla's cheapest vehicle is losing half its tax credit next year](https://news.yahoo.com/teslas-cheapest-vehicle-losing-half-164618119.html)
+- Dec 04 - [James Webb Spots Strange "Ghostly" Object Reappearing](https://news.yahoo.com/james-webb-spots-strange-ghostly-164238269.html)
 <!-- feed end -->
 
 ### Onstream
