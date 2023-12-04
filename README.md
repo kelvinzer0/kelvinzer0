@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Kevin O'Leary says you need to have $5M in the bank to 'survive' no matter what happens — here's the math behind his number and how to get there](https://finance.yahoo.com/news/kevin-oleary-says-5m-bank-143000357.html)
-- Dec 04 - [Donald Trump's Festive Mug Shot Merch Has Critics Saying... Snow Thanks](https://news.yahoo.com/donald-trumps-festive-mug-shot-124916793.html)
+- Dec 04 - [Alaska Airlines agrees to buy rival Hawaiian Airlines for $1.9 billion](https://news.yahoo.com/alaska-airlines-agrees-buy-rival-132540570.html)
+- Dec 04 - [Ranking 13 Mail-Order Steaks From Worst To Best According To Customer Reviews](https://www.yahoo.com/lifestyle/ranking-13-mail-order-steaks-132509039.html)
+- Dec 04 - [The Philippines Accuses China of ‘Swarming’ Reef Off Its Coast. Here’s What to Know](https://news.yahoo.com/philippines-accuses-china-swarming-reef-130903039.html)
+- Dec 04 - [Opinion: The real reason Trump is attacking Obamacare](https://news.yahoo.com/opinion-real-reason-trump-attacking-130211315.html)
 - Dec 04 - [The Morning After: The cost of generating AI images](https://news.yahoo.com/the-morning-after-the-cost-of-generating-ai-images-121549213.html)
-- Dec 04 - [Kissing bugs in Arizona: Everything to know about these nocturnal bloodsuckers](https://www.yahoo.com/entertainment/kissing-bugs-arizona-everything-know-120142364.html)
-- Dec 04 - [I Want to Convert $500k in My 401(k) to a Roth IRA. How Do I Avoid Paying Taxes?](https://finance.yahoo.com/news/want-convert-500k-401-k-120000165.html)
 <!-- feed end -->
 
 ### Onstream
