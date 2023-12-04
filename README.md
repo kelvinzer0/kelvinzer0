@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Israel thanks Argentina's Milei for pledge to move embassy to Jerusalem](https://news.yahoo.com/israel-thanks-argentinas-milei-pledge-174257674.html)
+- Dec 04 - [Liz Cheney warns that Trump won't leave office if he's elected to a second term and says voting for him 'may mean the last election that you ever get to vote in'](https://news.yahoo.com/liz-cheney-warns-trump-wont-182051098.html)
+- Dec 04 - [Elon Musk Was Reportedly “Speechless” When Someone Pointed Out a Basic Flaw in His Mars Plan](https://news.yahoo.com/elon-musk-reportedly-speechless-someone-173536415.html)
+- Dec 04 - [Britain says no evidence of Sellafield nuclear site hacking](https://finance.yahoo.com/news/britain-says-no-evidence-sellafield-172136960.html)
 - Dec 04 - [Sex offender convicted of killing beloved Atlanta bartender sentenced to life in prison](https://news.yahoo.com/sex-offender-convicted-killing-beloved-152408299.html)
-- Dec 04 - [State police identify 2 people killed in wrong-way crash on Mass. highway](https://news.yahoo.com/state-police-identify-2-people-164859636.html)
-- Dec 04 - [Tesla's cheapest vehicle is losing half its tax credit next year](https://news.yahoo.com/teslas-cheapest-vehicle-losing-half-164618119.html)
-- Dec 04 - [James Webb Spots Strange "Ghostly" Object Reappearing](https://news.yahoo.com/james-webb-spots-strange-ghostly-164238269.html)
+- Dec 04 - [World’s largest iceberg sails away from Antarctica](https://news.yahoo.com/world-largest-iceberg-sails-away-165500977.html)
 <!-- feed end -->
 
 ### Onstream
