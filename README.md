@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [Hong Kong pro-democracy activist Agnes Chow jumps bail and moves to Canada](https://news.yahoo.com/hong-kong-pro-democracy-activist-054755502.html)
 - Dec 04 - [Recordings show how the Mormon church protects itself from child sex abuse claims](https://news.yahoo.com/recordings-show-mormon-church-protects-050153986.html)
 - Dec 04 - [In the Amazon, Indigenous women bring a tiny tribe back from the brink of extinction](https://news.yahoo.com/amazon-indigenous-women-bring-tiny-044039444.html)
 - Dec 04 - [Eleven climbers killed as Indonesia volcano erupts, search on hold](https://news.yahoo.com/eleven-climbers-killed-indonesia-volcano-023955871.html)
-- Dec 04 - [A 28-year-old man died following a traffic stop and arrest in New Berlin](https://news.yahoo.com/28-old-man-died-following-004512051.html)
 - Dec 04 - [Philippines identifies suspects after bombing at Sunday Mass](https://news.yahoo.com/united-states-condemns-horrific-terrorist-003206592.html)
 <!-- feed end -->
 
