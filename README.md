@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Ex-Prosecutor Explains How Donald Trump Lawyer’s New Bid May Backfire](https://news.yahoo.com/ex-prosecutor-explains-donald-trump-080416044.html)
+- Dec 04 - [The North Korean leader calls for women to have more children to halt a fall in the birthrate](https://news.yahoo.com/north-korean-leader-calls-women-085616551.html)
+- Dec 04 - [Turkey's inflation ticks up to 62%](https://news.yahoo.com/turkeys-inflation-ticks-62-085150236.html)
+- Dec 04 - [A $4 Trillion Valuation Is Now in Sight for India’s Booming Stock Market](https://finance.yahoo.com/news/4-trillion-valuation-now-sight-083337479.html)
 - Dec 04 - [Recordings show how the Mormon church protects itself from child sex abuse claims](https://news.yahoo.com/recordings-show-mormon-church-protects-050153986.html)
 - Dec 04 - [Mehdi Hasan Exposes 'Undeniable' Danger Of Trump's Accidental Confession](https://news.yahoo.com/mehdi-hasan-exposes-undeniable-danger-045446728.html)
-- Dec 04 - [In the Amazon, Indigenous women bring a tiny tribe back from the brink of extinction](https://news.yahoo.com/amazon-indigenous-women-bring-tiny-044039444.html)
-- Dec 04 - [800 pounds of marijuana, semi-automatic weapons seized by deputies: Calaveras County Sheriff’s Office](https://news.yahoo.com/800-pounds-marijuana-semi-automatic-024542410.html)
 <!-- feed end -->
 
 ### Onstream
