@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Alaska Airlines agrees to buy rival Hawaiian Airlines for $1.9 billion](https://news.yahoo.com/alaska-airlines-agrees-buy-rival-132540570.html)
-- Dec 04 - [Ranking 13 Mail-Order Steaks From Worst To Best According To Customer Reviews](https://www.yahoo.com/lifestyle/ranking-13-mail-order-steaks-132509039.html)
-- Dec 04 - [The Philippines Accuses China of ‘Swarming’ Reef Off Its Coast. Here’s What to Know](https://news.yahoo.com/philippines-accuses-china-swarming-reef-130903039.html)
-- Dec 04 - [Opinion: The real reason Trump is attacking Obamacare](https://news.yahoo.com/opinion-real-reason-trump-attacking-130211315.html)
+- Dec 04 - [Israel investigates possible trading knowledge ahead of Oct 7 Hamas attack](https://news.yahoo.com/israel-investigates-possible-trading-knowledge-140606287.html)
+- Dec 04 - [Kari Lake's hilariously futile attempt to claim 'common sense' and deny being 'extremist'](https://news.yahoo.com/kari-lakes-hilariously-futile-attempt-140042950.html)
+- Dec 04 - [On his deathbed, her father told her a secret: He was a fugitive and had robbed a bank in Ohio](https://news.yahoo.com/deathbed-her-father-told-her-133030757.html)
 - Dec 04 - [The Morning After: The cost of generating AI images](https://news.yahoo.com/the-morning-after-the-cost-of-generating-ai-images-121549213.html)
+- Dec 04 - [Angry taxpayers to confront Kingfisher school board about $5 million settlement of hazing case](https://news.yahoo.com/angry-taxpayers-confront-kingfisher-school-120547185.html)
 <!-- feed end -->
 
 ### Onstream
