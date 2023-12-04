@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Israel investigates possible trading knowledge ahead of Oct 7 Hamas attack](https://news.yahoo.com/israel-investigates-possible-trading-knowledge-140606287.html)
-- Dec 04 - [Kari Lake's hilariously futile attempt to claim 'common sense' and deny being 'extremist'](https://news.yahoo.com/kari-lakes-hilariously-futile-attempt-140042950.html)
-- Dec 04 - [On his deathbed, her father told her a secret: He was a fugitive and had robbed a bank in Ohio](https://news.yahoo.com/deathbed-her-father-told-her-133030757.html)
-- Dec 04 - [The Morning After: The cost of generating AI images](https://news.yahoo.com/the-morning-after-the-cost-of-generating-ai-images-121549213.html)
-- Dec 04 - [Angry taxpayers to confront Kingfisher school board about $5 million settlement of hazing case](https://news.yahoo.com/angry-taxpayers-confront-kingfisher-school-120547185.html)
+- Dec 04 - [Trump seeks to appeal reinstated gag orders in New York civil fraud case -filing](https://news.yahoo.com/trump-seeks-appeal-reinstated-gag-153647839.html)
+- Dec 04 - [530,000 Hondas, Acuras under expanded NHTSA investigation for steering problem](https://www.autoblog.com/2023/12/04/530000-hondas-acuras-under-expanded-nhtsa-investigation-for-steering-problem/)
+- Dec 04 - ['The government's not going to save them': Suze Orman warns of a looming financial 'pandemic' — says Americans have no one to rely on. Here's what she means and how to prepare](https://finance.yahoo.com/news/governments-not-going-save-them-153000637.html)
+- Dec 04 - [Fox News interrupts Trump speech to fact-check his "many untruths"](https://news.yahoo.com/fox-news-interrupts-trump-speech-152232107.html)
+- Dec 04 - [SBU: Russian ammunition, equipment depots in occupied Luhansk Oblast destroyed by drone strikes](https://news.yahoo.com/sbu-russian-ammunition-equipment-depots-145129084.html)
 <!-- feed end -->
 
 ### Onstream
