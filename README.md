@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [Driver Leads Missouri Police on Chase While Towing Large Mobile Home](https://news.yahoo.com/driver-leads-missouri-police-chase-162646774.html)
+- Dec 04 - [Former Harvard disinformation scholar says she was pushed out of her job after college faced pressure from Facebook](https://finance.yahoo.com/news/former-harvard-disinformation-scholar-says-120824467.html)
+- Dec 04 - ["An absolute tsunami": Legal experts stunned at "disastrous legal day" for Trump](https://news.yahoo.com/absolute-tsunami-legal-experts-stunned-155118297.html)
 - Dec 04 - [Trump seeks to appeal reinstated gag orders in New York civil fraud case -filing](https://news.yahoo.com/trump-seeks-appeal-reinstated-gag-153647839.html)
 - Dec 04 - [530,000 Hondas, Acuras under expanded NHTSA investigation for steering problem](https://www.autoblog.com/2023/12/04/530000-hondas-acuras-under-expanded-nhtsa-investigation-for-steering-problem/)
-- Dec 04 - ['The government's not going to save them': Suze Orman warns of a looming financial 'pandemic' — says Americans have no one to rely on. Here's what she means and how to prepare](https://finance.yahoo.com/news/governments-not-going-save-them-153000637.html)
-- Dec 04 - [Fox News interrupts Trump speech to fact-check his "many untruths"](https://news.yahoo.com/fox-news-interrupts-trump-speech-152232107.html)
-- Dec 04 - [SBU: Russian ammunition, equipment depots in occupied Luhansk Oblast destroyed by drone strikes](https://news.yahoo.com/sbu-russian-ammunition-equipment-depots-145129084.html)
 <!-- feed end -->
 
 ### Onstream
