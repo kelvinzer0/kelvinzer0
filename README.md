@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [White House warns Congress the US is out of money, nearly out of time to avoid 'kneecap' to Ukraine](https://news.yahoo.com/white-house-warns-congress-us-100116181.html)
+- Dec 04 - [Donald Trump Flips Out At Robert De Niro](https://www.yahoo.com/entertainment/donald-trump-flips-robert-niro-095939784.html)
+- Dec 04 - [Joe Biden Burns Lauren Boebert With A Blunt 2-Word Reminder](https://news.yahoo.com/joe-biden-burns-lauren-boebert-090100630.html)
 - Dec 04 - [The North Korean leader calls for women to have more children to halt a fall in the birthrate](https://news.yahoo.com/north-korean-leader-calls-women-085616551.html)
-- Dec 04 - [Turkey's inflation ticks up to 62%](https://news.yahoo.com/turkeys-inflation-ticks-62-085150236.html)
-- Dec 04 - [A $4 Trillion Valuation Is Now in Sight for India’s Booming Stock Market](https://finance.yahoo.com/news/4-trillion-valuation-now-sight-083337479.html)
-- Dec 04 - [Recordings show how the Mormon church protects itself from child sex abuse claims](https://news.yahoo.com/recordings-show-mormon-church-protects-050153986.html)
 - Dec 04 - [Mehdi Hasan Exposes 'Undeniable' Danger Of Trump's Accidental Confession](https://news.yahoo.com/mehdi-hasan-exposes-undeniable-danger-045446728.html)
 <!-- feed end -->
 
