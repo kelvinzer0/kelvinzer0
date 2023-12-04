@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Analysis-Fiscal rules revamp may threaten calm in euro zone's fragile bond markets](https://finance.yahoo.com/news/analysis-fiscal-rules-revamp-may-120359117.html)
-- Dec 04 - [8 Ways Baby Boomers Become Poor in Retirement](https://finance.yahoo.com/news/8-ways-baby-boomers-become-120012650.html)
-- Dec 04 - [It’s Time to Scrap the Abraham Accords](https://news.yahoo.com/time-scrap-abraham-accords-112118314.html)
-- Dec 04 - [Donald Trump Fires Back At Liz Cheney With Unexpected Confession About Eating](https://news.yahoo.com/donald-trump-fires-back-liz-111612584.html)
-- Dec 04 - [‘Like taking poison and hoping he dies’: Dave Ramsey says this Kansas City woman is a case study on why you ‘don't buy a house with people you’re not married to’ — here’s more](https://finance.yahoo.com/news/taking-poison-hoping-dies-dave-110000311.html)
+- Dec 04 - [Kevin O'Leary says you need to have $5M in the bank to 'survive' no matter what happens — here's the math behind his number and how to get there](https://finance.yahoo.com/news/kevin-oleary-says-5m-bank-143000357.html)
+- Dec 04 - [Donald Trump's Festive Mug Shot Merch Has Critics Saying... Snow Thanks](https://news.yahoo.com/donald-trumps-festive-mug-shot-124916793.html)
+- Dec 04 - [The Morning After: The cost of generating AI images](https://news.yahoo.com/the-morning-after-the-cost-of-generating-ai-images-121549213.html)
+- Dec 04 - [Kissing bugs in Arizona: Everything to know about these nocturnal bloodsuckers](https://www.yahoo.com/entertainment/kissing-bugs-arizona-everything-know-120142364.html)
+- Dec 04 - [I Want to Convert $500k in My 401(k) to a Roth IRA. How Do I Avoid Paying Taxes?](https://finance.yahoo.com/news/want-convert-500k-401-k-120000165.html)
 <!-- feed end -->
 
 ### Onstream
