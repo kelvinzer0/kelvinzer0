@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [After racist shooting that killed 3, family sues Dollar General and others over lax security](https://news.yahoo.com/racist-shooting-killed-3-family-215642036.html)
-- Dec 04 - [Longevity researcher says he’s found the healthiest breakfast option — plus 5 more to try](https://www.yahoo.com/lifestyle/longevity-researcher-says-found-healthiest-210000466.html)
-- Dec 04 - [Man featured in 'S-Town' podcast shot and killed by police during standoff, authorities say](https://news.yahoo.com/man-featured-town-podcast-shot-204650023.html)
-- Dec 04 - [Trump legal news brief: Trump appeals reinstatement of Judge Engoron’s gag order](https://news.yahoo.com/trump-legal-news-brief-trump-appeals-reinstatement-of-judge-engorons-gag-order-204225766.html)
-- Dec 04 - [World's Largest Iceberg Moving Toward Open Sea](https://news.yahoo.com/worlds-largest-iceberg-moving-toward-203328969.html)
+- Dec 04 - [If The Average American Household Is A Millionaire With A Net Worth Of $1.06 Million, Why Do People Feel So Broke?](https://finance.yahoo.com/news/average-american-household-millionaire-net-223552839.html)
+- Dec 04 - [Brian Laundrie allegedly told his parents Gabby Petito was 'gone' 13 days before she was reported missing](https://news.yahoo.com/brian-laundrie-allegedly-told-parents-222126750.html)
+- Dec 04 - [Fact Check: Video Shows 'Israelis Running Over Children' with Hatchback Car?](https://news.yahoo.com/fact-check-video-shows-israelis-221900056.html)
+- Dec 04 - [Homebuyers are 'losing patience,' no longer on the sidelines: survey](https://finance.yahoo.com/news/homebuyers-are-losing-patience-no-longer-on-the-sidelines-survey-220614717.html)
+- Dec 04 - [Republicans’ Dangerous New Bill Would Try to Muzzle All Criticism of Israel](https://news.yahoo.com/republicans-dangerous-bill-try-muzzle-214653078.html)
 <!-- feed end -->
 
 ### Onstream
