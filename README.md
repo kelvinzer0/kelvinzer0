@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [‘Like taking poison and hoping he dies’: Dave Ramsey says this Kansas City woman is a case study on why you ‘don't buy a house with people you’re not married to’ — here’s more](https://finance.yahoo.com/news/taking-poison-hoping-dies-dave-110000311.html)
+- Dec 04 - [Democrats keep comparing Trump to Hitler. That panicked rhetoric is dangerous – for them.](https://news.yahoo.com/democrats-keep-comparing-trump-hitler-102257691.html)
 - Dec 04 - [White House warns Congress the US is out of money, nearly out of time to avoid 'kneecap' to Ukraine](https://news.yahoo.com/white-house-warns-congress-us-100116181.html)
 - Dec 04 - [Donald Trump Flips Out At Robert De Niro](https://www.yahoo.com/entertainment/donald-trump-flips-robert-niro-095939784.html)
-- Dec 04 - [Joe Biden Burns Lauren Boebert With A Blunt 2-Word Reminder](https://news.yahoo.com/joe-biden-burns-lauren-boebert-090100630.html)
-- Dec 04 - [The North Korean leader calls for women to have more children to halt a fall in the birthrate](https://news.yahoo.com/north-korean-leader-calls-women-085616551.html)
-- Dec 04 - [Mehdi Hasan Exposes 'Undeniable' Danger Of Trump's Accidental Confession](https://news.yahoo.com/mehdi-hasan-exposes-undeniable-danger-045446728.html)
+- Dec 04 - [China Rips US for Seeing It as ‘Enemy’ After Raimondo Remarks](https://news.yahoo.com/china-rips-us-seeing-enemy-095614928.html)
 <!-- feed end -->
 
 ### Onstream
