@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [Analysis-Fiscal rules revamp may threaten calm in euro zone's fragile bond markets](https://finance.yahoo.com/news/analysis-fiscal-rules-revamp-may-120359117.html)
+- Dec 04 - [8 Ways Baby Boomers Become Poor in Retirement](https://finance.yahoo.com/news/8-ways-baby-boomers-become-120012650.html)
+- Dec 04 - [It’s Time to Scrap the Abraham Accords](https://news.yahoo.com/time-scrap-abraham-accords-112118314.html)
+- Dec 04 - [Donald Trump Fires Back At Liz Cheney With Unexpected Confession About Eating](https://news.yahoo.com/donald-trump-fires-back-liz-111612584.html)
 - Dec 04 - [‘Like taking poison and hoping he dies’: Dave Ramsey says this Kansas City woman is a case study on why you ‘don't buy a house with people you’re not married to’ — here’s more](https://finance.yahoo.com/news/taking-poison-hoping-dies-dave-110000311.html)
-- Dec 04 - [Democrats keep comparing Trump to Hitler. That panicked rhetoric is dangerous – for them.](https://news.yahoo.com/democrats-keep-comparing-trump-hitler-102257691.html)
-- Dec 04 - [White House warns Congress the US is out of money, nearly out of time to avoid 'kneecap' to Ukraine](https://news.yahoo.com/white-house-warns-congress-us-100116181.html)
-- Dec 04 - [Donald Trump Flips Out At Robert De Niro](https://www.yahoo.com/entertainment/donald-trump-flips-robert-niro-095939784.html)
-- Dec 04 - [China Rips US for Seeing It as ‘Enemy’ After Raimondo Remarks](https://news.yahoo.com/china-rips-us-seeing-enemy-095614928.html)
 <!-- feed end -->
 
 ### Onstream
