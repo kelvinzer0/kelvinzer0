@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 04 - [United States condemns 'horrific terrorist attack' in southern Philippines](https://news.yahoo.com/united-states-condemns-horrific-terrorist-003206592.html)
+- Dec 03 - [Former US ambassador arrested in Florida, accused of serving as an agent of Cuba, AP source says](https://news.yahoo.com/former-us-ambassador-arrested-florida-235153810.html)
 - Dec 03 - [At 14 he slaughtered the woman who raised him and at 21, he walked free. What now?](https://news.yahoo.com/14-slaughtered-woman-raised-him-234517504.html)
 - Dec 03 - [China's military: US combat ship 'illegally' entered territorial waters](https://news.yahoo.com/chinas-military-says-u-combat-232945012.html)
 - Dec 03 - [Woman wins millions on Massachusetts scratch-off, hides ticket and goes on vacation](https://news.yahoo.com/woman-wins-millions-massachusetts-scratch-205015756.html)
-- Dec 03 - [Graham dismisses Liz Cheney’s Trump warning, says ‘world will be truly on fire’ if Biden re-elected](https://news.yahoo.com/graham-dismisses-liz-cheney-trump-185741271.html)
 <!-- feed end -->
 
 ### Onstream
