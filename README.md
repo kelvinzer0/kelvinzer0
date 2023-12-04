@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [Liz Cheney warns that Trump won't leave office if he's elected to a second term and says voting for him 'may mean the last election that you ever get to vote in'](https://news.yahoo.com/liz-cheney-warns-trump-wont-182051098.html)
-- Dec 04 - [Elon Musk Was Reportedly “Speechless” When Someone Pointed Out a Basic Flaw in His Mars Plan](https://news.yahoo.com/elon-musk-reportedly-speechless-someone-173536415.html)
-- Dec 04 - [Britain says no evidence of Sellafield nuclear site hacking](https://finance.yahoo.com/news/britain-says-no-evidence-sellafield-172136960.html)
-- Dec 04 - [Sex offender convicted of killing beloved Atlanta bartender sentenced to life in prison](https://news.yahoo.com/sex-offender-convicted-killing-beloved-152408299.html)
-- Dec 04 - [World’s largest iceberg sails away from Antarctica](https://news.yahoo.com/world-largest-iceberg-sails-away-165500977.html)
+- Dec 04 - [FBI arrests L.A. actor and Republican Party official over alleged involvement in Jan. 6 riot](https://news.yahoo.com/fbi-arrests-l-actor-republican-185033314.html)
+- Dec 04 - [Former Trump White House official "stunned" at his visible "decline" in Iowa speech](https://news.yahoo.com/former-trump-white-house-official-184311167.html)
+- Dec 04 - [Toyota unveils two EV crossover concepts arriving by 2025](https://news.yahoo.com/toyota-unveils-two-ev-crossover-concepts-arriving-by-2025-181138687.html)
+- Dec 04 - [23andMe confirms hackers stole ancestry data on 6.9 million users](https://news.yahoo.com/23andme-confirms-hackers-stole-ancestry-175604389.html)
+- Dec 04 - [Graham responds to Cheney’s dire warnings about second Trump term](https://news.yahoo.com/graham-responds-cheney-dire-warnings-175546952.html)
 <!-- feed end -->
 
 ### Onstream
