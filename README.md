@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [FBI arrests L.A. actor and Republican Party official over alleged involvement in Jan. 6 riot](https://news.yahoo.com/fbi-arrests-l-actor-republican-185033314.html)
-- Dec 04 - [Former Trump White House official "stunned" at his visible "decline" in Iowa speech](https://news.yahoo.com/former-trump-white-house-official-184311167.html)
-- Dec 04 - [Toyota unveils two EV crossover concepts arriving by 2025](https://news.yahoo.com/toyota-unveils-two-ev-crossover-concepts-arriving-by-2025-181138687.html)
-- Dec 04 - [23andMe confirms hackers stole ancestry data on 6.9 million users](https://news.yahoo.com/23andme-confirms-hackers-stole-ancestry-175604389.html)
-- Dec 04 - [Graham responds to Cheney’s dire warnings about second Trump term](https://news.yahoo.com/graham-responds-cheney-dire-warnings-175546952.html)
+- Dec 04 - [Man featured in 'S-Town' podcast shot and killed by police during standoff, authorities say](https://news.yahoo.com/man-featured-town-podcast-shot-204650023.html)
+- Dec 04 - [Gold hits all-time high. Here's where analysts say it's going next.](https://finance.yahoo.com/news/gold-hits-all-time-high-heres-where-analysts-say-its-going-next-203153567.html)
+- Dec 04 - [Judge blasts 'nonsense' claim by Rudy Giuliani ahead of election worker defamation trial](https://news.yahoo.com/judge-blasts-nonsense-claim-rudy-202148299.html)
+- Dec 04 - [Republicans DOUBLE UP on impeachment; Leno pauses POLITICS; Congressman wants UFO TRANSPARENCY](https://news.yahoo.com/republicans-double-impeachment-leno-pauses-194900217.html)
+- Dec 04 - [Sharks vs crocodile: Anglers watch epic battle from boat in Australia, video shows](https://news.yahoo.com/sharks-vs-crocodile-anglers-watch-193525306.html)
 <!-- feed end -->
 
 ### Onstream
