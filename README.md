@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 04 - [After racist shooting that killed 3, family sues Dollar General and others over lax security](https://news.yahoo.com/racist-shooting-killed-3-family-215642036.html)
+- Dec 04 - [Longevity researcher says he’s found the healthiest breakfast option — plus 5 more to try](https://www.yahoo.com/lifestyle/longevity-researcher-says-found-healthiest-210000466.html)
 - Dec 04 - [Man featured in 'S-Town' podcast shot and killed by police during standoff, authorities say](https://news.yahoo.com/man-featured-town-podcast-shot-204650023.html)
-- Dec 04 - [Gold hits all-time high. Here's where analysts say it's going next.](https://finance.yahoo.com/news/gold-hits-all-time-high-heres-where-analysts-say-its-going-next-203153567.html)
-- Dec 04 - [Judge blasts 'nonsense' claim by Rudy Giuliani ahead of election worker defamation trial](https://news.yahoo.com/judge-blasts-nonsense-claim-rudy-202148299.html)
-- Dec 04 - [Republicans DOUBLE UP on impeachment; Leno pauses POLITICS; Congressman wants UFO TRANSPARENCY](https://news.yahoo.com/republicans-double-impeachment-leno-pauses-194900217.html)
-- Dec 04 - [Sharks vs crocodile: Anglers watch epic battle from boat in Australia, video shows](https://news.yahoo.com/sharks-vs-crocodile-anglers-watch-193525306.html)
+- Dec 04 - [Trump legal news brief: Trump appeals reinstatement of Judge Engoron’s gag order](https://news.yahoo.com/trump-legal-news-brief-trump-appeals-reinstatement-of-judge-engorons-gag-order-204225766.html)
+- Dec 04 - [World's Largest Iceberg Moving Toward Open Sea](https://news.yahoo.com/worlds-largest-iceberg-moving-toward-203328969.html)
 <!-- feed end -->
 
 ### Onstream
