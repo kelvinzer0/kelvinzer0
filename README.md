@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 05 - [Gold bars featured in Sen. Bob Menendez bribery case are linked to a 2013 robbery, records show](https://news.yahoo.com/gold-bars-featured-sen-bob-013214890.html)
+- Dec 05 - [Four Republicans will be on stage for the fourth presidential debate. Here’s who's in and who's out](https://news.yahoo.com/four-republicans-stage-fourth-presidential-012007826.html)
 - Dec 05 - [Israel considers flooding Gaza tunnels with seawater- WSJ](https://news.yahoo.com/israel-considers-flooding-gaza-tunnels-004126909.html)
 - Dec 04 - [Wife, only survivor of crash that killed Fort Worth CEO and kids, comes home from hospital](https://news.yahoo.com/wife-only-survivor-crash-killed-234319120.html)
 - Dec 04 - [N.Y. high court denies Donald Trump's bid for expedited review of gag order in fraud trial](https://news.yahoo.com/n-y-high-court-denies-231132113.html)
-- Dec 04 - [A ‘knife necklace’ may have played a role in death of 42-year-old Milton man at Kowloon in Saugus](https://news.yahoo.com/knife-necklace-may-played-role-230319135.html)
-- Dec 04 - [After surviving a stroke at 40, dad shares the warning signs he ignored](https://news.yahoo.com/surviving-stroke-40-dad-shares-225243097.html)
 <!-- feed end -->
 
 ### Onstream
