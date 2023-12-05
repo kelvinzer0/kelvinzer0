@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 05 - [Sacramento Kings issue statement after fan dies during game against New Orleans Pelicans](https://news.yahoo.com/sacramento-kings-issue-statement-fan-052026896.html)
+- Dec 05 - [I was slapped and called a sex worker, says flight attendant fired by Qatar Airways after wearing tinted moisturizer](https://news.yahoo.com/slapped-called-sex-worker-says-051516960.html)
+- Dec 05 - [Fox News' Brit Hume Gives Republicans Damning Reality Check About Trump 2024](https://news.yahoo.com/fox-news-brit-hume-gives-045957514.html)
+- Dec 05 - [China's state banks seen swapping and selling dollars for yuan - sources](https://news.yahoo.com/chinas-state-banks-seen-swapping-034937255.html)
 - Dec 05 - [We Asked Cardiologists To Share The 1 Food They Would Never Eat, And Some Of The Answers Might Surprise You](https://www.yahoo.com/lifestyle/asked-cardiologists-share-1-food-031602944.html)
-- Dec 05 - [Analysis-Asian power generation gets cleaner, even as coal emissions rise](https://news.yahoo.com/analysis-asian-power-generation-gets-022004540.html)
-- Dec 05 - [These were the top beauty products of 2023, according to Google searches](https://news.yahoo.com/were-top-beauty-products-2023-021954030.html)
-- Dec 05 - [Roseanne Barr Compares Jewish People to Egyptian Pharaohs in Antisemitic Barb: They ‘Also Inbreed’ | Video](https://www.yahoo.com/entertainment/roseanne-barr-compares-jewish-people-015127078.html)
-- Dec 05 - [Gold bars featured in Sen. Bob Menendez bribery case are linked to a 2013 robbery, records show](https://news.yahoo.com/gold-bars-featured-sen-bob-013214890.html)
 <!-- feed end -->
 
 ### Onstream
