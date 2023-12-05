@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [Asian stocks slide as focus turns to US jobs](https://finance.yahoo.com/news/asian-stocks-slide-focus-turns-020858433.html)
+- Dec 05 - [Boston woman paddleboarding near Bahamas resort killed in shark attack, police say](https://news.yahoo.com/boston-woman-paddleboarding-near-bahamas-022058752.html)
+- Dec 05 - [We Asked Cardiologists To Share The 1 Food They Would Never Eat, And Some Of The Answers Might Surprise You](https://www.yahoo.com/lifestyle/asked-cardiologists-share-1-food-031602944.html)
 - Dec 05 - [Roseanne Barr Compares Jewish People to Egyptian Pharaohs in Antisemitic Barb: They ‘Also Inbreed’ | Video](https://www.yahoo.com/entertainment/roseanne-barr-compares-jewish-people-015127078.html)
-- Dec 05 - [Four Republicans will be on stage for the fourth presidential debate. Here’s who's in and who's out](https://news.yahoo.com/four-republicans-stage-fourth-presidential-012007826.html)
+- Dec 05 - [‘Thrill Kill’ murderer released back into Santa Clara County](https://news.yahoo.com/thrill-kill-murderer-released-back-012710057.html)
 - Dec 05 - [Israel considers flooding Gaza tunnels with seawater- WSJ](https://news.yahoo.com/israel-considers-flooding-gaza-tunnels-004126909.html)
-- Dec 04 - [Wife, only survivor of crash that killed Fort Worth CEO and kids, comes home from hospital](https://news.yahoo.com/wife-only-survivor-crash-killed-234319120.html)
 <!-- feed end -->
 
 ### Onstream
