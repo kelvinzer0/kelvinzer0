@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [Texas high school sends Black student back to in-school suspension over his locs hairstyle](https://news.yahoo.com/texas-high-school-sends-black-192350660.html)
-- Dec 05 - [The feds are going to use Trump's tweets dating back to 2012 that baselessly claimed election fraud against him](https://news.yahoo.com/feds-going-trumps-tweets-dating-192127086.html)
-- Dec 05 - [Mike Johnson Just Killed Republicans’ Favorite January 6 Talking Point](https://news.yahoo.com/mike-johnson-just-killed-republicans-185335995.html)
-- Dec 05 - [Giuliani’s no-show prevents courtroom confrontation with Georgia election workers](https://news.yahoo.com/giuliani-no-show-prevents-courtroom-184935391.html)
-- Dec 05 - [Midwest mystery: Iowa man still missing, 2 weeks after semi holding baby pigs was found on highway](https://news.yahoo.com/midwest-mystery-iowa-man-still-184418440.html)
+- Dec 05 - [Biden says Hamas raped, mutilated women during Israel assault](https://news.yahoo.com/biden-says-hamas-raped-mutilated-204401921.html)
+- Dec 05 - [Alabama officer on leave after video shows her using stun gun on man who is handcuffed and crying](https://news.yahoo.com/alabama-officer-leave-video-shows-201442872.html)
+- Dec 05 - [Trump's defense at civil fraud trial zooms in on Mar-a-Lago, with broker calling it 'breathtaking'](https://news.yahoo.com/trumps-defense-civil-fraud-trial-200316404.html)
+- Dec 05 - [What's the best diet to support healthy aging? Dietitian weighs in on key nutrients](https://news.yahoo.com/healthy-aging-vitality-nutrients-ask-a-dietitian-195132969.html)
+- Dec 05 - [New ranking names 10 best suburbs in Massachusetts. This town claimed the top spot](https://news.yahoo.com/ranking-names-10-best-suburbs-192559056.html)
 <!-- feed end -->
 
 ### Onstream
