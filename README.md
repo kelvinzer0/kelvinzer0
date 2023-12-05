@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 05 - [Revived Moskvich car brand breaks into Russia's top 10](https://finance.yahoo.com/news/revived-moskvich-car-brand-breaks-072932030.html)
+- Dec 05 - [‘You’re Going Straight To Hell’: Jimmy Kimmel Fact-Checks Trump’s Outrageous ‘Jesus’ Claim](https://www.yahoo.com/entertainment/going-straight-hell-jimmy-kimmel-060929336.html)
 - Dec 05 - [Prince Harry challenges UK government's decision to strip him of security detail when he moved to US](https://news.yahoo.com/prince-harry-challenges-uk-governments-060752433.html)
-- Dec 05 - [Sacramento Kings issue statement after fan dies during game against New Orleans Pelicans](https://news.yahoo.com/sacramento-kings-issue-statement-fan-052026896.html)
+- Dec 05 - [I was slapped and called a sex worker, says flight attendant fired by Qatar Airways after wearing tinted moisturizer](https://news.yahoo.com/slapped-called-sex-worker-says-051516960.html)
 - Dec 05 - [Handcuffed and sent to the ER – for misbehavior: Schools are sending more kids to the hospital](https://news.yahoo.com/handcuffed-sent-er-misbehavior-schools-050543756.html)
-- Dec 05 - [Fox News' Brit Hume Gives Republicans Damning Reality Check About Trump 2024](https://news.yahoo.com/fox-news-brit-hume-gives-045957514.html)
-- Dec 05 - [Gold bars featured in Sen. Menendez bribery case linked to 2013 robbery](https://news.yahoo.com/gold-bars-featured-sen-menendez-021832107.html)
 <!-- feed end -->
 
 ### Onstream
