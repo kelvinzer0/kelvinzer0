@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 04 - [If The Average American Household Is A Millionaire With A Net Worth Of $1.06 Million, Why Do People Feel So Broke?](https://finance.yahoo.com/news/average-american-household-millionaire-net-223552839.html)
-- Dec 04 - [Brian Laundrie allegedly told his parents Gabby Petito was 'gone' 13 days before she was reported missing](https://news.yahoo.com/brian-laundrie-allegedly-told-parents-222126750.html)
-- Dec 04 - [Fact Check: Video Shows 'Israelis Running Over Children' with Hatchback Car?](https://news.yahoo.com/fact-check-video-shows-israelis-221900056.html)
-- Dec 04 - [Homebuyers are 'losing patience,' no longer on the sidelines: survey](https://finance.yahoo.com/news/homebuyers-are-losing-patience-no-longer-on-the-sidelines-survey-220614717.html)
-- Dec 04 - [Republicans’ Dangerous New Bill Would Try to Muzzle All Criticism of Israel](https://news.yahoo.com/republicans-dangerous-bill-try-muzzle-214653078.html)
+- Dec 05 - [Israel considers flooding Gaza tunnels with seawater- WSJ](https://news.yahoo.com/israel-considers-flooding-gaza-tunnels-004126909.html)
+- Dec 04 - [Wife, only survivor of crash that killed Fort Worth CEO and kids, comes home from hospital](https://news.yahoo.com/wife-only-survivor-crash-killed-234319120.html)
+- Dec 04 - [N.Y. high court denies Donald Trump's bid for expedited review of gag order in fraud trial](https://news.yahoo.com/n-y-high-court-denies-231132113.html)
+- Dec 04 - [A ‘knife necklace’ may have played a role in death of 42-year-old Milton man at Kowloon in Saugus](https://news.yahoo.com/knife-necklace-may-played-role-230319135.html)
+- Dec 04 - [After surviving a stroke at 40, dad shares the warning signs he ignored](https://news.yahoo.com/surviving-stroke-40-dad-shares-225243097.html)
 <!-- feed end -->
 
 ### Onstream
