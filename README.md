@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [Gold bars featured in Sen. Bob Menendez bribery case are linked to a 2013 robbery, records show](https://news.yahoo.com/gold-bars-featured-sen-bob-013214890.html)
+- Dec 05 - [Asian stocks slide as focus turns to US jobs](https://finance.yahoo.com/news/asian-stocks-slide-focus-turns-020858433.html)
+- Dec 05 - [Roseanne Barr Compares Jewish People to Egyptian Pharaohs in Antisemitic Barb: They ‘Also Inbreed’ | Video](https://www.yahoo.com/entertainment/roseanne-barr-compares-jewish-people-015127078.html)
 - Dec 05 - [Four Republicans will be on stage for the fourth presidential debate. Here’s who's in and who's out](https://news.yahoo.com/four-republicans-stage-fourth-presidential-012007826.html)
 - Dec 05 - [Israel considers flooding Gaza tunnels with seawater- WSJ](https://news.yahoo.com/israel-considers-flooding-gaza-tunnels-004126909.html)
 - Dec 04 - [Wife, only survivor of crash that killed Fort Worth CEO and kids, comes home from hospital](https://news.yahoo.com/wife-only-survivor-crash-killed-234319120.html)
-- Dec 04 - [N.Y. high court denies Donald Trump's bid for expedited review of gag order in fraud trial](https://news.yahoo.com/n-y-high-court-denies-231132113.html)
 <!-- feed end -->
 
 ### Onstream
