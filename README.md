@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 05 - [The tiny Fiat 500e is coming to the US in early 2024](https://news.yahoo.com/the-tiny-fiat-500e-is-coming-to-the-us-in-early-2024-094754049.html)
 - Dec 05 - [Liz Cheney Reveals 'Dangerous And Chilling' Moment She Overheard Trump's True Plan](https://news.yahoo.com/liz-cheney-reveals-dangerous-chilling-083843027.html)
-- Dec 05 - [Revived Moskvich car brand breaks into Russia's top 10](https://finance.yahoo.com/news/revived-moskvich-car-brand-breaks-072932030.html)
+- Dec 05 - [‘You’re Going Straight To Hell’: Jimmy Kimmel Fact-Checks Trump’s Outrageous ‘Jesus’ Claim](https://www.yahoo.com/entertainment/going-straight-hell-jimmy-kimmel-060929336.html)
 - Dec 05 - [Prince Harry challenges UK government's decision to strip him of security detail when he moved to US](https://news.yahoo.com/prince-harry-challenges-uk-governments-060752433.html)
 - Dec 05 - [Handcuffed and sent to the ER – for misbehavior: Schools are sending more kids to the hospital](https://news.yahoo.com/handcuffed-sent-er-misbehavior-schools-050543756.html)
-- Dec 05 - [Fox News' Brit Hume Gives Republicans Damning Reality Check About Trump 2024](https://news.yahoo.com/fox-news-brit-hume-gives-045957514.html)
 <!-- feed end -->
 
 ### Onstream
