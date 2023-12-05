@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 05 - [Texas high school sends Black student back to in-school suspension over his locs hairstyle](https://news.yahoo.com/texas-high-school-sends-black-192350660.html)
+- Dec 05 - [The feds are going to use Trump's tweets dating back to 2012 that baselessly claimed election fraud against him](https://news.yahoo.com/feds-going-trumps-tweets-dating-192127086.html)
+- Dec 05 - [Mike Johnson Just Killed Republicans’ Favorite January 6 Talking Point](https://news.yahoo.com/mike-johnson-just-killed-republicans-185335995.html)
 - Dec 05 - [Giuliani’s no-show prevents courtroom confrontation with Georgia election workers](https://news.yahoo.com/giuliani-no-show-prevents-courtroom-184935391.html)
-- Dec 05 - [Trump doesn’t sound like somebody trying to get elected](https://finance.yahoo.com/news/trump-doesnt-sound-like-somebody-trying-to-get-elected-184323213.html)
-- Dec 05 - [Nikki Haley wants to reform Social Security and Medicare. Donors are paying attention](https://news.yahoo.com/nikki-haley-wants-reform-social-093037917.html)
-- Dec 05 - [High School Sophomore Tags Trophy Bighorn in Nebraska](https://www.yahoo.com/lifestyle/high-school-sophomore-tags-trophy-173500819.html)
-- Dec 05 - [Argentina's President-elect Milei replies to Musk's interest: 'We need to talk, Elon'](https://news.yahoo.com/argentinas-president-elect-milei-replies-172001597.html)
+- Dec 05 - [Midwest mystery: Iowa man still missing, 2 weeks after semi holding baby pigs was found on highway](https://news.yahoo.com/midwest-mystery-iowa-man-still-184418440.html)
 <!-- feed end -->
 
 ### Onstream
