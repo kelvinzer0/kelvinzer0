@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [‘One of the worst financial products alive today': Dave Ramsey blasted this one specific investing approach when a concerned Arizona dad called in — why you should avoid it like the plague](https://finance.yahoo.com/news/one-worst-financial-products-alive-103000138.html)
-- Dec 05 - [Nikki Haley wants to reform Social Security and Medicare. Donors are paying attention](https://news.yahoo.com/nikki-haley-wants-reform-social-093037917.html)
-- Dec 05 - [Sylvester Stallone’s wife on Florida move: ‘Wasn’t really anything left for me in California’](https://www.yahoo.com/entertainment/sylvester-stallone-wife-florida-move-093033631.html)
-- Dec 05 - [In Russia, some women demand return of their men from Ukraine front](https://news.yahoo.com/russia-women-demand-return-men-090538727.html)
-- Dec 05 - [Liz Cheney Reveals 'Dangerous And Chilling' Moment She Overheard Trump's True Plan](https://news.yahoo.com/liz-cheney-reveals-dangerous-chilling-083843027.html)
+- Dec 05 - [Cathie Wood Is Buying These AI Stocks -- And Both Could Make You Richer in 2024](https://www.fool.com/investing/2023/12/05/cathie-woods-is-buying-these-ai-stocks-and-both-co/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Dec 05 - [Man who punched 80-year-old in Rochdale in unprovoked attack jailed](https://news.yahoo.com/man-punched-80-old-rochdale-123945653.html)
+- Dec 05 - [A normal cholesterol level can still be deadly, warns healthy aging expert Dr. Michael Greger](https://finance.yahoo.com/news/normal-cholesterol-level-still-deadly-100000609.html)
+- Dec 05 - [Tensions rise after attempted drone attack on oil facility in occupied Crimea](https://news.yahoo.com/tensions-rise-attempted-drone-attack-094800580.html)
+- Dec 05 - [The tiny Fiat 500e is coming to the US in early 2024](https://news.yahoo.com/the-tiny-fiat-500e-is-coming-to-the-us-in-early-2024-094754049.html)
 <!-- feed end -->
 
 ### Onstream
