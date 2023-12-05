@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [In a rare action against Israel, US says extremist West Bank settlers will be barred from America](https://news.yahoo.com/rare-action-against-israel-us-174821212.html)
+- Dec 05 - [Giuliani’s no-show prevents courtroom confrontation with Georgia election workers](https://news.yahoo.com/giuliani-no-show-prevents-courtroom-184935391.html)
+- Dec 05 - [Trump doesn’t sound like somebody trying to get elected](https://finance.yahoo.com/news/trump-doesnt-sound-like-somebody-trying-to-get-elected-184323213.html)
 - Dec 05 - [Nikki Haley wants to reform Social Security and Medicare. Donors are paying attention](https://news.yahoo.com/nikki-haley-wants-reform-social-093037917.html)
+- Dec 05 - [High School Sophomore Tags Trophy Bighorn in Nebraska](https://www.yahoo.com/lifestyle/high-school-sophomore-tags-trophy-173500819.html)
 - Dec 05 - [Argentina's President-elect Milei replies to Musk's interest: 'We need to talk, Elon'](https://news.yahoo.com/argentinas-president-elect-milei-replies-172001597.html)
-- Dec 05 - [Elon Musk just showed off a new video of the $100K Tesla cybertruck beating a Porsche 911 in a drag race — while towing another Porsche 911. Is TSLA on the straight path to $500 by 2025?](https://finance.yahoo.com/news/elon-musk-just-showed-off-171500911.html)
-- Dec 05 - [Jordan's King Abdullah says world should condemn any attempt to forcibly expel Palestinians](https://news.yahoo.com/jordans-king-abdullah-says-world-170313844.html)
 <!-- feed end -->
 
 ### Onstream
