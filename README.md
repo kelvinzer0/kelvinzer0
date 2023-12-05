@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [Conor McGregor isn’t the first MMA star to flirt with the right](https://sports.yahoo.com/conor-mcgregor-isn-t-first-100039935.html)
-- Dec 05 - ['A war for the essence and character of American Christianity' described in new book](https://news.yahoo.com/a-war-for-the-essence-and-character-of-american-christianity-described-in-new-book-100022874.html)
-- Dec 05 - [‘Daily Show’ Guest Host Charlamagne Tha God Nails Why Republicans Really Booted Santos](https://www.yahoo.com/entertainment/daily-show-guest-host-charlamagne-095516940.html)
-- Dec 05 - [The tiny Fiat 500e is coming to the US in early 2024](https://news.yahoo.com/the-tiny-fiat-500e-is-coming-to-the-us-in-early-2024-094754049.html)
+- Dec 05 - [‘One of the worst financial products alive today': Dave Ramsey blasted this one specific investing approach when a concerned Arizona dad called in — why you should avoid it like the plague](https://finance.yahoo.com/news/one-worst-financial-products-alive-103000138.html)
 - Dec 05 - [Nikki Haley wants to reform Social Security and Medicare. Donors are paying attention](https://news.yahoo.com/nikki-haley-wants-reform-social-093037917.html)
+- Dec 05 - [Sylvester Stallone’s wife on Florida move: ‘Wasn’t really anything left for me in California’](https://www.yahoo.com/entertainment/sylvester-stallone-wife-florida-move-093033631.html)
+- Dec 05 - [In Russia, some women demand return of their men from Ukraine front](https://news.yahoo.com/russia-women-demand-return-men-090538727.html)
+- Dec 05 - [Liz Cheney Reveals 'Dangerous And Chilling' Moment She Overheard Trump's True Plan](https://news.yahoo.com/liz-cheney-reveals-dangerous-chilling-083843027.html)
 <!-- feed end -->
 
 ### Onstream
