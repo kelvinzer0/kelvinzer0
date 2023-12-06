@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [NASA's New Artemis Rocket Engines Closer To Certification After Penultimate Test](https://news.yahoo.com/nasas-artemis-rocket-engines-closer-213000692.html)
 - Dec 06 - [Kansas City area BBQ joint closed when owners retired. Their sons will soon reopen it](https://news.yahoo.com/kansas-city-area-bbq-joint-202806980.html)
-- Dec 06 - [Suspect dead after mass shooting at University of Nevada, Las Vegas](https://news.yahoo.com/police-respond-reports-mass-shooting-202003288.html)
+- Dec 06 - [Suspect dead, multiple victims after mass shooting at University of Nevada, Las Vegas](https://news.yahoo.com/police-respond-reports-mass-shooting-202003288.html)
 - Dec 06 - [I'm Dying Laughing At These Scammers Who Tried To Rip People Off And Got Totally And Completely Destroyed In The Process In 2023](https://www.yahoo.com/lifestyle/im-dying-laughing-scammers-tried-200152555.html)
-- Dec 06 - [McCarthy resigns after humiliating ouster and shrinks GOP majority — after declaring "I never quit"](https://news.yahoo.com/mccarthy-resigns-humiliating-ouster-shrinks-182128402.html)
-- Dec 06 - [Foreign tourist’s $50K watch stolen in alleged Las Vegas ‘trick roll’](https://news.yahoo.com/foreign-tourist-50k-watch-stolen-181154326.html)
+- Dec 06 - [Drone Captures Group of Sharks Lurking Near Florida Shore](https://news.yahoo.com/drone-captures-group-sharks-lurking-193936940.html)
 <!-- feed end -->
 
 ### Onstream
