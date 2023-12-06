@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [Former House Speaker Kevin McCarthy Announces His Resignation After Nearly 17 Years in Congress](https://www.yahoo.com/entertainment/former-house-speaker-kevin-mccarthy-163625989.html)
+- Dec 06 - [Shiver Me Timbers — These 19 Photos Freaked Me The Hell Out](https://www.yahoo.com/lifestyle/shiver-timbers-19-photos-freaked-161602217.html)
+- Dec 06 - [Death of Florida plastic surgeon's wife under investigation after procedures at husband's practice](https://news.yahoo.com/death-florida-plastic-surgeons-wife-160413910.html)
+- Dec 06 - [No antibiotics worked, so this woman turned to a natural enemy of bacteria to save her husband’s life](https://www.yahoo.com/lifestyle/no-antibiotics-worked-woman-turned-151520625.html)
 - Dec 06 - [15 States That Do Not Tax Social Security or Retirement Income](https://finance.yahoo.com/news/15-states-not-tax-social-144759658.html)
-- Dec 06 - [How often should you poop? And do you need to worry if you don't go every day? Here's what doctors say.](https://www.yahoo.com/lifestyle/how-often-should-you-poop-when-should-you-worry-140021257.html)
-- Dec 06 - [Trump melts down on Truth Social after judge refuses to delay his testimony: “No way, no how”](https://news.yahoo.com/trump-melts-down-truth-social-134650168.html)
-- Dec 06 - [Man jailed after 6 minute video emerges of him beating wife that was filmed by youngest child](https://news.yahoo.com/man-jailed-6-minute-video-134007179.html)
-- Dec 06 - ['They take poor people's advice': This Iranian-American businessman, who has a net worth of $100M in his 30s, shared with Dave Ramsey what keeps people broke. Is he right?](https://finance.yahoo.com/news/sadness-ignorance-first-generation-iranian-100000901.html)
 <!-- feed end -->
 
 ### Onstream
