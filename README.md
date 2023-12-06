@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [Russian Su-24 Shot Down Over Black Sea Points To Tactical Shift](https://news.yahoo.com/russian-su-24-shot-down-011323320.html)
 - Dec 05 - [A second Trump administration will 'come after' people in the media in the courts, an ally says](https://news.yahoo.com/second-trump-administration-come-people-235912712.html)
-- Dec 05 - ['Widespread' sexual and gender-based crimes committed during Hamas attack, Israeli officials say](https://news.yahoo.com/widespread-sexual-gender-based-crimes-235842431.html)
 - Dec 05 - [Sen. Mark Kelly has a perfect, 3-word response for Sen. Tommy Tuberville](https://news.yahoo.com/sen-mark-kelly-perfect-3-233244900.html)
 - Dec 05 - [Marjorie Taylor Greene alleged a male Republican got physically aggressive with her](https://news.yahoo.com/marjorie-taylor-greene-alleged-male-212532814.html)
-- Dec 05 - [GOP debate: Another candidate drops out and the stage shrinks](https://news.yahoo.com/gop-debate-another-candidate-drops-220510059.html)
+- Dec 05 - [AOC claims women will face 'genital examinations' if biological men barred from female sports](https://news.yahoo.com/aoc-claims-women-face-genital-230611365.html)
 <!-- feed end -->
 
 ### Onstream
