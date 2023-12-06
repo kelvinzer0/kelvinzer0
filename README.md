@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [Joe Scarborough Shreds Fox News’ Live Trump Audience With 1 Damning Word](https://news.yahoo.com/joe-scarborough-shreds-fox-news-135345223.html)
+- Dec 06 - [Man jailed after 6 minute video emerges of him beating wife that was filmed by youngest child](https://news.yahoo.com/man-jailed-6-minute-video-134007179.html)
+- Dec 06 - [Russian soldiers’ cannabis break at front brutally ended by Ukrainian drone strike – funny video](https://news.yahoo.com/russian-soldiers-cannabis-break-front-125700460.html)
 - Dec 06 - [Exclusive-On edge over Red Sea attacks, Riyadh seeks to contain fall-out](https://news.yahoo.com/exclusive-edge-over-red-sea-123623277.html)
 - Dec 06 - ['You're being a baby': This 41-year-old man has no job, no savings and relies on his parents for rent — but refuses to work jobs that are 'beneath' him. Caleb Hammer serves a reality check](https://finance.yahoo.com/news/youre-being-baby-41-old-123000305.html)
-- Dec 06 - [Watch Jasmine Crockett Tick Off Marjorie Taylor Greene In House Hearing](https://www.yahoo.com/entertainment/watch-jasmine-crockett-tick-off-120223703.html)
-- Dec 06 - [Exclusive-Israeli teen speaks of Hamas captivity with her dog in Gaza](https://news.yahoo.com/exclusive-israeli-teen-speaks-hamas-111022266.html)
-- Dec 06 - [Bill Burr’s Deadly Trump-Biden Joke Could Lead To 'A Visit From The Secret Service'](https://www.yahoo.com/entertainment/bill-burr-deadly-trump-biden-093755060.html)
 <!-- feed end -->
 
 ### Onstream
