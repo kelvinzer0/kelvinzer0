@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [Bill Burr’s Deadly Trump-Biden Joke Could Lead To 'A Visit From The Secret Service'](https://www.yahoo.com/entertainment/bill-burr-deadly-trump-biden-093755060.html)
+- Dec 06 - [Liz Cheney Names Key Trump ‘Mastermind’ With ‘Probably A Lot To Hide’](https://news.yahoo.com/liz-cheney-names-key-trump-083031120.html)
+- Dec 06 - [Man sentenced to prison for six-minute videotaped beating of his wife in Yuba County](https://news.yahoo.com/man-sentenced-prison-six-minute-051440772.html)
 - Dec 06 - [These men once relied on the Aral Sea. Today, the dry land is a reminder of lost livelihoods](https://www.yahoo.com/lifestyle/men-once-relied-aral-sea-051239090.html)
 - Dec 06 - [Poll: Republicans think Trump will win — but if he doesn’t, this is who they think will be the nominee](https://news.yahoo.com/poll-republicans-think-trump-win-040000587.html)
-- Dec 06 - [Trump: I won't be a dictator if I become U.S. president again](https://news.yahoo.com/trump-wont-dictator-become-u-033319790.html)
-- Dec 06 - [Russian Su-24 Shot Down Over Black Sea Points To Tactical Shift](https://news.yahoo.com/russian-su-24-shot-down-011323320.html)
-- Dec 06 - [Grieving South Carolina groom whose bride killed hours after wedding battles mother-in-law over estate: report](https://news.yahoo.com/grieving-south-carolina-groom-whose-001947439.html)
 <!-- feed end -->
 
 ### Onstream
