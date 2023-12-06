@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 05 - [DeSantis wants to cut 1,000 jobs, but asks for $1 million to sue over Florida State's football snub](https://news.yahoo.com/desantis-wants-cut-1-000-215518476.html)
-- Dec 05 - [This Senator Has A New Idea To Curb Mass Shootings — And Gun Reformers Are Actually Optimistic](https://news.yahoo.com/senator-idea-curb-mass-shootings-214505630.html)
+- Dec 05 - [A second Trump administration will 'come after' people in the media in the courts, an ally says](https://news.yahoo.com/second-trump-administration-come-people-235912712.html)
+- Dec 05 - ['Widespread' sexual and gender-based crimes committed during Hamas attack, Israeli officials say](https://news.yahoo.com/widespread-sexual-gender-based-crimes-235842431.html)
+- Dec 05 - [Sen. Mark Kelly has a perfect, 3-word response for Sen. Tommy Tuberville](https://news.yahoo.com/sen-mark-kelly-perfect-3-233244900.html)
 - Dec 05 - [Marjorie Taylor Greene alleged a male Republican got physically aggressive with her](https://news.yahoo.com/marjorie-taylor-greene-alleged-male-212532814.html)
-- Dec 05 - [Alabama Cop Placed on Leave After Video Shows Her Tasering Crying Black Man](https://www.yahoo.com/entertainment/alabama-cop-placed-leave-video-212142048.html)
-- Dec 05 - [Biden says Hamas raped, mutilated women during Israel assault](https://news.yahoo.com/biden-says-hamas-raped-mutilated-204401921.html)
+- Dec 05 - [GOP debate: Another candidate drops out and the stage shrinks](https://news.yahoo.com/gop-debate-another-candidate-drops-220510059.html)
 <!-- feed end -->
 
 ### Onstream
