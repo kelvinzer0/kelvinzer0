@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [Watch Jasmine Crockett Tick Off Marjorie Taylor Greene In House Hearing](https://www.yahoo.com/entertainment/watch-jasmine-crockett-tick-off-120223703.html)
+- Dec 06 - [Exclusive-Israeli teen speaks of Hamas captivity with her dog in Gaza](https://news.yahoo.com/exclusive-israeli-teen-speaks-hamas-111022266.html)
 - Dec 06 - [Bill Burr’s Deadly Trump-Biden Joke Could Lead To 'A Visit From The Secret Service'](https://www.yahoo.com/entertainment/bill-burr-deadly-trump-biden-093755060.html)
 - Dec 06 - [Liz Cheney Names Key Trump ‘Mastermind’ With ‘Probably A Lot To Hide’](https://news.yahoo.com/liz-cheney-names-key-trump-083031120.html)
 - Dec 06 - [These men once relied on the Aral Sea. Today, the dry land is a reminder of lost livelihoods](https://www.yahoo.com/lifestyle/men-once-relied-aral-sea-051239090.html)
-- Dec 06 - [Poll: Republicans think Trump will win — but if he doesn’t, this is who they think will be the nominee](https://news.yahoo.com/poll-republicans-think-trump-win-040000587.html)
-- Dec 06 - [Trump: I won't be a dictator if I become U.S. president again](https://news.yahoo.com/trump-wont-dictator-become-u-033319790.html)
 <!-- feed end -->
 
 ### Onstream
