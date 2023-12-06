@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 06 - [Kansas City area BBQ joint closed when owners retired. Their sons will soon reopen it](https://news.yahoo.com/kansas-city-area-bbq-joint-202806980.html)
+- Dec 06 - [Suspect dead after mass shooting at University of Nevada, Las Vegas](https://news.yahoo.com/police-respond-reports-mass-shooting-202003288.html)
+- Dec 06 - [I'm Dying Laughing At These Scammers Who Tried To Rip People Off And Got Totally And Completely Destroyed In The Process In 2023](https://www.yahoo.com/lifestyle/im-dying-laughing-scammers-tried-200152555.html)
+- Dec 06 - [McCarthy resigns after humiliating ouster and shrinks GOP majority — after declaring "I never quit"](https://news.yahoo.com/mccarthy-resigns-humiliating-ouster-shrinks-182128402.html)
 - Dec 06 - [Foreign tourist’s $50K watch stolen in alleged Las Vegas ‘trick roll’](https://news.yahoo.com/foreign-tourist-50k-watch-stolen-181154326.html)
-- Dec 06 - [Fentanyl Mustang Girl Drives Recklessly And Plays Dumb](https://news.yahoo.com/fentanyl-mustang-girl-drives-recklessly-180000135.html)
-- Dec 06 - [One in four who had Moderna or Pfizer Covid jabs experienced unintended immune response](https://news.yahoo.com/more-one-four-had-mrna-171724613.html)
-- Dec 06 - [Bowhunter Tags Double Palmated Buck After Passing It Two Years in a Row](https://www.yahoo.com/lifestyle/bowhunter-tags-double-palmated-buck-171506815.html)
-- Dec 06 - [Fake Donald Trump electors settle civil lawsuit in Wisconsin, agree that President Biden won](https://news.yahoo.com/fake-donald-trump-electors-settle-170741067.html)
 <!-- feed end -->
 
 ### Onstream
