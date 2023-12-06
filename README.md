@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - ['Hopefully no one dies': House Republicans' majority is about to become even more fragile](https://news.yahoo.com/hopefully-no-one-dies-house-171743832.html)
+- Dec 06 - [Fentanyl Mustang Girl Drives Recklessly And Plays Dumb](https://news.yahoo.com/fentanyl-mustang-girl-drives-recklessly-180000135.html)
 - Dec 06 - [One in four who had Moderna or Pfizer Covid jabs experienced unintended immune response](https://news.yahoo.com/more-one-four-had-mrna-171724613.html)
 - Dec 06 - [Bowhunter Tags Double Palmated Buck After Passing It Two Years in a Row](https://www.yahoo.com/lifestyle/bowhunter-tags-double-palmated-buck-171506815.html)
 - Dec 06 - [Sean Combs Accused of ‘Gang Rape’ of 17-Year-Old in New Lawsuit](https://www.yahoo.com/entertainment/sean-combs-accused-gang-rape-170947861.html)
