@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [Former House Speaker Kevin McCarthy Announces His Resignation After Nearly 17 Years in Congress](https://www.yahoo.com/entertainment/former-house-speaker-kevin-mccarthy-163625989.html)
-- Dec 06 - [Shiver Me Timbers — These 19 Photos Freaked Me The Hell Out](https://www.yahoo.com/lifestyle/shiver-timbers-19-photos-freaked-161602217.html)
-- Dec 06 - [Death of Florida plastic surgeon's wife under investigation after procedures at husband's practice](https://news.yahoo.com/death-florida-plastic-surgeons-wife-160413910.html)
-- Dec 06 - [No antibiotics worked, so this woman turned to a natural enemy of bacteria to save her husband’s life](https://www.yahoo.com/lifestyle/no-antibiotics-worked-woman-turned-151520625.html)
-- Dec 06 - [15 States That Do Not Tax Social Security or Retirement Income](https://finance.yahoo.com/news/15-states-not-tax-social-144759658.html)
+- Dec 06 - ['Hopefully no one dies': House Republicans' majority is about to become even more fragile](https://news.yahoo.com/hopefully-no-one-dies-house-171743832.html)
+- Dec 06 - [One in four who had Moderna or Pfizer Covid jabs experienced unintended immune response](https://news.yahoo.com/more-one-four-had-mrna-171724613.html)
+- Dec 06 - [Bowhunter Tags Double Palmated Buck After Passing It Two Years in a Row](https://www.yahoo.com/lifestyle/bowhunter-tags-double-palmated-buck-171506815.html)
+- Dec 06 - [Sean Combs Accused of ‘Gang Rape’ of 17-Year-Old in New Lawsuit](https://www.yahoo.com/entertainment/sean-combs-accused-gang-rape-170947861.html)
+- Dec 06 - [Fake Donald Trump electors settle civil lawsuit in Wisconsin, agree that President Biden won](https://news.yahoo.com/fake-donald-trump-electors-settle-170741067.html)
 <!-- feed end -->
 
 ### Onstream
