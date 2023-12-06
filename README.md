@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 06 - [Poll: Republicans think Trump will win — but if he doesn’t, this is who they think will be the nominee](https://news.yahoo.com/poll-republicans-think-trump-win-040000587.html)
 - Dec 06 - [Trump: I won't be a dictator if I become U.S. president again](https://news.yahoo.com/trump-wont-dictator-become-u-033319790.html)
-- Dec 06 - [Trump declines to rule out abusing power to seek retribution if he returns to the White House](https://news.yahoo.com/trump-declines-rule-abusing-power-030320290.html)
 - Dec 06 - [Russian Su-24 Shot Down Over Black Sea Points To Tactical Shift](https://news.yahoo.com/russian-su-24-shot-down-011323320.html)
 - Dec 06 - [Grieving South Carolina groom whose bride killed hours after wedding battles mother-in-law over estate: report](https://news.yahoo.com/grieving-south-carolina-groom-whose-001947439.html)
+- Dec 05 - [Sen. Mark Kelly has a perfect, 3-word response for Sen. Tommy Tuberville](https://news.yahoo.com/sen-mark-kelly-perfect-3-233244900.html)
 <!-- feed end -->
 
 ### Onstream
