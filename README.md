@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 06 - [Steve Bannon Slams Sean Hannity for Asking Trump if He’d Be a Dictator if Reelected: ‘We Don’t Have Time for Idiots, Bro’](https://www.yahoo.com/entertainment/steve-bannon-slams-sean-hannity-222506623.html)
-- Dec 06 - [Suspended Florida prosecutor tells state Supreme Court that DeSantis exceeded his authority](https://news.yahoo.com/suspended-florida-prosecutor-tells-state-214957592.html)
+- Dec 06 - [Editorial: Kevin McCarthy quits Congress. It's poetic justice for the Trump apologist](https://news.yahoo.com/editorial-kevin-mccarthy-quits-congress-222523376.html)
+- Dec 06 - [Sen. Robert Menendez, facing bribery charges, stumps bank CEOs by asking how much their firms paid in settlements for allegedly ripping off consumers](https://finance.yahoo.com/news/sen-robert-menendez-facing-bribery-213617840.html)
 - Dec 06 - [Kansas City area BBQ joint closed when owners retired. Their sons will soon reopen it](https://news.yahoo.com/kansas-city-area-bbq-joint-202806980.html)
-- Dec 06 - [Suspect dead, multiple victims after mass shooting at University of Nevada, Las Vegas](https://news.yahoo.com/police-respond-reports-mass-shooting-202003288.html)
-- Dec 06 - [I'm Dying Laughing At These Scammers Who Tried To Rip People Off And Got Totally And Completely Destroyed In The Process In 2023](https://www.yahoo.com/lifestyle/im-dying-laughing-scammers-tried-200152555.html)
+- Dec 06 - [3 killed, 1 critically injured in mass shooting at University of Nevada, Las Vegas](https://news.yahoo.com/police-respond-reports-mass-shooting-202003288.html)
+- Dec 06 - [I'm Dying Laughing At These Scammers Who Tried To Rip People Off And Got Totally And Completely Destroyed In The Process This Past Year](https://www.yahoo.com/lifestyle/im-dying-laughing-scammers-tried-200152555.html)
 <!-- feed end -->
 
 ### Onstream
