@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [Jonathan Majors' accuser pressed about partying at Manhattan nightclub after alleged assault](https://news.yahoo.com/jonathan-majors-accuser-pressed-partying-202827829.html)
+- Dec 07 - [Chinese woman receives $60,000 restaurant bill after mistakenly sharing ordering QR code online](https://news.yahoo.com/chinese-woman-receives-60-000-214006365.html)
+- Dec 07 - [Broadcom is the poor man's Nvidia: Strategist](https://finance.yahoo.com/video/broadcom-poor-mans-nvidia-strategist-213131439.html)
+- Dec 07 - [Watch as students lift a car off a mother and child pinned beneath it](https://www.autoblog.com/2023/12/07/students-lift-car-off-family-pinned-beneath-utah/)
+- Dec 07 - [Van Jones ‘shaking’ over Ramaswamy remarks: ‘That guy is dangerous’](https://news.yahoo.com/van-jones-shaking-over-ramaswamy-201103687.html)
 - Dec 07 - [University of Pennsylvania board of trustees holds emergency meeting after president Liz Magill’s disastrous testimony](https://finance.yahoo.com/news/university-pennsylvania-board-trustees-holds-153949369.html)
-- Dec 07 - ["This is insane": Experts horrified by report revealing Trump's rumored "cabinet of losers"](https://news.yahoo.com/insane-experts-horrified-report-revealing-191451042.html)
-- Dec 07 - [Anti-Woke Beer Company Rivals Bud Light Launching 'Real Women' Calendar Designed To 'Serve As A Reminder: Men Can Never Replace The Beautiful Women Of America'](https://finance.yahoo.com/news/anti-woke-beer-company-rivals-191411931.html)
-- Dec 07 - [A buoyant Trump attends his NY fraud trial as appeals court pauses ruling on his businesses](https://news.yahoo.com/buoyant-trump-attends-ny-fraud-191122478.html)
 <!-- feed end -->
 
 ### Onstream
