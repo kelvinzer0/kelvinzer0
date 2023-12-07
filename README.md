@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [House Dem Takes Down Marjorie Taylor Greene's 'Pathetic' Chamber Floor Lecture](https://news.yahoo.com/house-dem-takes-down-marjorie-162702025.html)
+- Dec 07 - [Trump appeals ruling rejecting immunity claim as window narrows to derail federal election case](https://news.yahoo.com/trump-appeals-judges-ruling-rejecting-172555999.html)
+- Dec 07 - [2 Suspects Involved in Flash Mob Robberies Sentenced to Prison](https://news.yahoo.com/2-suspects-involved-flash-mob-164902324.html)
 - Dec 07 - [IDF strip Palestinian men and parade them through square once used by Hamas](https://news.yahoo.com/idf-strip-palestinian-men-parade-162440067.html)
 - Dec 07 - [Opinion: The finest speech ever given in a presidential debate](https://news.yahoo.com/opinion-finest-speech-ever-given-143448542.html)
 - Dec 07 - [What?! Black Woman’s Miscarriage Results in Felony Charge](https://news.yahoo.com/black-woman-miscarriage-results-felony-152114292.html)
-- Dec 07 - [Son of US Sen. Kevin Cramer crashes during police chase, killing North Dakota sheriff's deputy](https://news.yahoo.com/son-us-sen-kevin-cramer-145938047.html)
 <!-- feed end -->
 
 ### Onstream
