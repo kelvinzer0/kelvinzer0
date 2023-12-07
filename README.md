@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 07 - [Chinese woman receives $60,000 restaurant bill after mistakenly sharing ordering QR code online](https://news.yahoo.com/chinese-woman-receives-60-000-214006365.html)
-- Dec 07 - [Broadcom is the poor man's Nvidia: Strategist](https://finance.yahoo.com/video/broadcom-poor-mans-nvidia-strategist-213131439.html)
 - Dec 07 - [Watch as students lift a car off a mother and child pinned beneath it](https://www.autoblog.com/2023/12/07/students-lift-car-off-family-pinned-beneath-utah/)
+- Dec 07 - [2 UNLV professors killed in UNLV campus shooting identified](https://news.yahoo.com/2-unlv-professors-killed-unlv-203511323.html)
+- Dec 07 - [Trump to court sketch artist: 'I gotta lose some weight'](https://news.yahoo.com/trump-court-sketch-artist-gotta-202937718.html)
 - Dec 07 - [Van Jones ‘shaking’ over Ramaswamy remarks: ‘That guy is dangerous’](https://news.yahoo.com/van-jones-shaking-over-ramaswamy-201103687.html)
-- Dec 07 - [University of Pennsylvania board of trustees holds emergency meeting after president Liz Magill’s disastrous testimony](https://finance.yahoo.com/news/university-pennsylvania-board-trustees-holds-153949369.html)
 <!-- feed end -->
 
 ### Onstream
