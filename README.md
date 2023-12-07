@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [Divers Found Cargo That Might Just Lead to a 'Mind-Blowing' Neolithic Shipwreck](https://finance.yahoo.com/news/divers-found-cargo-might-just-140000061.html)
 - Dec 07 - [Oxford school shooter Ethan Crumbley to be sentenced Friday: I'll rot in prison 'like a tomato'](https://news.yahoo.com/oxford-school-shooter-ethan-crumbley-131004180.html)
 - Dec 07 - [3 fast-food workers arrested over extensive theft ring allegedly run out of their chicken restaurant](https://news.yahoo.com/3-fast-food-workers-arrested-124451060.html)
-- Dec 07 - ['I'm not putting on the tinfoil hat': Economist blasts evidence that the US now boasts the 'greatest economy in the history of the world' — is she right?](https://finance.yahoo.com/news/think-youd-look-amazing-tin-123000111.html)
 - Dec 07 - [Chris Christie Spits Furious 5-Word Insult At Vivek Ramaswamy During Debate Clash](https://news.yahoo.com/chris-christie-spits-furious-5-121036015.html)
 - Dec 07 - [Charles Barkley reacts to Trump’s comments](https://news.yahoo.com/hear-charles-barkley-thinks-trump-032003012.html)
 <!-- feed end -->
