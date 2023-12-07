@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [Son of US Sen. Kevin Cramer crashes during police chase, killing North Dakota sheriff's deputy](https://news.yahoo.com/son-us-sen-kevin-cramer-145938047.html)
-- Dec 07 - [Trump shows up at NY civil trial as case winds down](https://news.yahoo.com/trump-attend-ny-civil-trial-143554494.html)
+- Dec 07 - [House Dem Takes Down Marjorie Taylor Greene's 'Pathetic' Chamber Floor Lecture](https://news.yahoo.com/house-dem-takes-down-marjorie-162702025.html)
+- Dec 07 - [IDF strip Palestinian men and parade them through square once used by Hamas](https://news.yahoo.com/idf-strip-palestinian-men-parade-162440067.html)
 - Dec 07 - [Opinion: The finest speech ever given in a presidential debate](https://news.yahoo.com/opinion-finest-speech-ever-given-143448542.html)
-- Dec 07 - [Divers Found Cargo That Might Just Lead to a 'Mind-Blowing' Neolithic Shipwreck](https://finance.yahoo.com/news/divers-found-cargo-might-just-140000061.html)
-- Dec 07 - [Oxford school shooter Ethan Crumbley to be sentenced Friday: I'll rot in prison 'like a tomato'](https://news.yahoo.com/oxford-school-shooter-ethan-crumbley-131004180.html)
+- Dec 07 - [What?! Black Woman’s Miscarriage Results in Felony Charge](https://news.yahoo.com/black-woman-miscarriage-results-felony-152114292.html)
+- Dec 07 - [Son of US Sen. Kevin Cramer crashes during police chase, killing North Dakota sheriff's deputy](https://news.yahoo.com/son-us-sen-kevin-cramer-145938047.html)
 <!-- feed end -->
 
 ### Onstream
