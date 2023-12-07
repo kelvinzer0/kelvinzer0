@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [Charles Barkley reacts to Trump’s comments](https://news.yahoo.com/hear-charles-barkley-thinks-trump-032003012.html)
 - Dec 07 - [Putin is close to victory. Europe should be terrified](https://news.yahoo.com/putin-close-victory-europe-terrified-060000644.html)
+- Dec 07 - [A nurse's fatal last visit to patient's home renews calls for better safety measures](https://news.yahoo.com/nurses-fatal-last-visit-patients-053207280.html)
 - Dec 07 - [Vegas shooter who killed 3 was a professor who recently applied for a job at UNLV, AP source says](https://news.yahoo.com/vegas-shooter-killed-3-professor-053039962.html)
-- Dec 07 - [Vivek Ramaswamy Held A 2-Word Sign At The GOP Debate — And Nikki Haley Shut Him Down](https://news.yahoo.com/vivek-ramaswamy-held-2-word-041720794.html)
-- Dec 07 - [Hear what Charles Barkley thinks about Trump](https://news.yahoo.com/hear-charles-barkley-thinks-trump-032003012.html)
-- Dec 07 - [Takeaways from the fourth Republican presidential debate](https://news.yahoo.com/takeaway-fourth-republican-presidential-debate-015249700.html)
+- Dec 07 - [St. Clair Shores Kroger clerk knocked out by 21-year-old woman](https://news.yahoo.com/st-clair-shores-kroger-clerk-042350419.html)
 <!-- feed end -->
 
 ### Onstream
