@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [Jonathan Majors' accuser pressed about partying at Manhattan nightclub after alleged assault](https://news.yahoo.com/jonathan-majors-accuser-pressed-partying-202827829.html)
+- Dec 07 - [University of Pennsylvania board of trustees holds emergency meeting after president Liz Magill’s disastrous testimony](https://finance.yahoo.com/news/university-pennsylvania-board-trustees-holds-153949369.html)
 - Dec 07 - ["This is insane": Experts horrified by report revealing Trump's rumored "cabinet of losers"](https://news.yahoo.com/insane-experts-horrified-report-revealing-191451042.html)
 - Dec 07 - [Anti-Woke Beer Company Rivals Bud Light Launching 'Real Women' Calendar Designed To 'Serve As A Reminder: Men Can Never Replace The Beautiful Women Of America'](https://finance.yahoo.com/news/anti-woke-beer-company-rivals-191411931.html)
 - Dec 07 - [A buoyant Trump attends his NY fraud trial as appeals court pauses ruling on his businesses](https://news.yahoo.com/buoyant-trump-attends-ny-fraud-191122478.html)
-- Dec 07 - [Danny Masterson Being Moved to State Prison After 8 Missing Guns Accounted For](https://www.yahoo.com/entertainment/danny-masterson-being-moved-state-190206475.html)
-- Dec 07 - [Married Teacher Accused of Sexually Abusing Teen in Her Car and Planning to Elope with Her: Prosecutors](https://www.yahoo.com/entertainment/married-teacher-accused-sexually-abusing-180207078.html)
 <!-- feed end -->
 
 ### Onstream
