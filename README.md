@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [Takeaways from the fourth Republican presidential debate](https://news.yahoo.com/takeaway-fourth-republican-presidential-debate-015249700.html)
 - Dec 07 - [Putin Flies To UAE With Su-35 Fighter Escorts](https://news.yahoo.com/putin-flies-uae-su-35-002509977.html)
 - Dec 06 - [My Brother Won a Car on The Price Is Right. Here's What It Cost Him](https://www.fool.com/the-ascent/personal-finance/articles/my-brother-won-a-car-on-the-price-is-right-heres-what-it-cost-him/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Dec 06 - [Sen. Robert Menendez, facing bribery charges, stumps bank CEOs by asking how much their firms paid in settlements for allegedly ripping off consumers](https://finance.yahoo.com/news/sen-robert-menendez-facing-bribery-213617840.html)
 - Dec 06 - [Pelvic exams can be uncomfortable for patients and ineffective for doctors. This proven technique could change that.](https://www.yahoo.com/lifestyle/proven-technique-speculum-improves-pelvic-exams-213616967.html)
+- Dec 06 - [Kansas City area BBQ joint closed when owners retired. Their sons will soon reopen it](https://news.yahoo.com/kansas-city-area-bbq-joint-202806980.html)
+- Dec 06 - [3 killed, 1 injured in UNLV mass shooting; shooter was an academic in his 60s, sources say](https://news.yahoo.com/police-respond-reports-mass-shooting-202003288.html)
 <!-- feed end -->
 
 ### Onstream
