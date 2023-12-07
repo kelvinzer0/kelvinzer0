@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 07 - [Putin is close to victory. Europe should be terrified](https://news.yahoo.com/putin-close-victory-europe-terrified-060000644.html)
+- Dec 07 - [Vegas shooter who killed 3 was a professor who recently applied for a job at UNLV, AP source says](https://news.yahoo.com/vegas-shooter-killed-3-professor-053039962.html)
 - Dec 07 - [Vivek Ramaswamy Held A 2-Word Sign At The GOP Debate — And Nikki Haley Shut Him Down](https://news.yahoo.com/vivek-ramaswamy-held-2-word-041720794.html)
 - Dec 07 - [Hear what Charles Barkley thinks about Trump](https://news.yahoo.com/hear-charles-barkley-thinks-trump-032003012.html)
-- Dec 07 - [Putin Flies To UAE With Su-35 Fighter Escorts](https://news.yahoo.com/putin-flies-uae-su-35-002509977.html)
-- Dec 06 - [My Brother Won a Car on The Price Is Right. Here's What It Cost Him](https://www.fool.com/the-ascent/personal-finance/articles/my-brother-won-a-car-on-the-price-is-right-heres-what-it-cost-him/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
+- Dec 07 - [Takeaways from the fourth Republican presidential debate](https://news.yahoo.com/takeaway-fourth-republican-presidential-debate-015249700.html)
 <!-- feed end -->
 
 ### Onstream
