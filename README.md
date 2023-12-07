@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [3 fast-food workers arrested over extensive theft ring allegedly run out of their chicken restaurant](https://news.yahoo.com/3-fast-food-workers-arrested-124451060.html)
+- Dec 07 - ['I'm not putting on the tinfoil hat': Economist blasts evidence that the US now boasts the 'greatest economy in the history of the world' — is she right?](https://finance.yahoo.com/news/think-youd-look-amazing-tin-123000111.html)
+- Dec 07 - [Chris Christie Spits Furious 5-Word Insult At Vivek Ramaswamy During Debate Clash](https://news.yahoo.com/chris-christie-spits-furious-5-121036015.html)
 - Dec 07 - [Charles Barkley reacts to Trump’s comments](https://news.yahoo.com/hear-charles-barkley-thinks-trump-032003012.html)
-- Dec 07 - [Putin is close to victory. Europe should be terrified](https://news.yahoo.com/putin-close-victory-europe-terrified-060000644.html)
-- Dec 07 - [Vegas shooter who killed 3 was a professor who recently applied for a job at UNLV, AP source says](https://news.yahoo.com/vegas-shooter-killed-3-professor-053039962.html)
-- Dec 07 - [St. Clair Shores Kroger clerk knocked out by 21-year-old woman](https://news.yahoo.com/st-clair-shores-kroger-clerk-042350419.html)
-- Dec 07 - [Vivek Ramaswamy Held A 2-Word Sign At The GOP Debate — And Nikki Haley Shut Him Down](https://news.yahoo.com/vivek-ramaswamy-held-2-word-041720794.html)
+- Dec 07 - [Iowa voter panel thinks this candidate won the debate](https://news.yahoo.com/iowa-voter-panel-thinks-candidate-064038829.html)
 <!-- feed end -->
 
 ### Onstream
