@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 08 - [Major donor calls on UPenn president to resign for disastrous testimony on antisemitism, threatening $100 million gift](https://finance.yahoo.com/news/university-pennsylvania-board-trustees-holds-153949369.html)
 - Dec 08 - [Trump’s Expert Witness Trashes NY’s ‘Absurd’ Fraud Case in Court Clash](https://finance.yahoo.com/news/trump-expert-witness-trashes-ny-214737928.html)
 - Dec 08 - [15-year-old student getting off school bus is run over, killed by semi, Texas cops say](https://news.yahoo.com/15-old-student-getting-off-132150317.html)
-- Dec 08 - [Hamas condemns Israel over images showing detained Palestinians in underwear](https://news.yahoo.com/hamas-condemns-israel-over-images-124806609.html)
 - Dec 08 - [Keanu Reeves Missed By Ski-Masked Intruders At His LA Home](https://www.yahoo.com/entertainment/keanu-reeves-missed-ski-masked-123032263.html)
+- Dec 08 - [Europe Swears Off Russian Gas. The Unexpected Price.](https://www.barrons.com/articles/europe-swears-off-russian-gas-the-unexpected-price-5c36b222?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
