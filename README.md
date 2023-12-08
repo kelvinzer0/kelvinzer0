@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 08 - [‘Uncommon’ creature with ‘enormous’ genitalia turns out to be new species in Australia](https://news.yahoo.com/uncommon-creature-enormous-genitalia-turns-180717521.html)
+- Dec 08 - [A first-time business-class traveler had to give up his seat and move to economy due to a technical issue. TikTokers are amazed by his response.](https://news.yahoo.com/first-time-business-class-traveler-175341586.html)
+- Dec 08 - [Ukraine has won a major victory over Russia](https://news.yahoo.com/ukraine-won-major-victory-over-174126233.html)
 - Dec 08 - [Texas Cheerleader Misses Christmas Parade, Then Mom Finds Her Slain in Bathtub](https://www.yahoo.com/entertainment/texas-cheerleader-misses-christmas-parade-165621069.html)
 - Dec 08 - [Michigan school shooter faces life in prison as victims' grieving parents testify](https://news.yahoo.com/michigan-school-shooter-faces-life-163928417.html)
-- Dec 08 - ["It was beneath me": Trump fumes at his own lawyer on Truth Social for giving him "not good advice"](https://news.yahoo.com/beneath-trump-fumes-own-lawyer-163627058.html)
-- Dec 08 - [Mother charged, home condemned for ‘uninhabitable’ condition](https://news.yahoo.com/mother-charged-home-condemned-uninhabitable-162159578.html)
-- Dec 08 - [Major donor calls on UPenn president to resign for disastrous testimony on antisemitism, threatening $100 million gift](https://finance.yahoo.com/news/university-pennsylvania-board-trustees-holds-153949369.html)
 <!-- feed end -->
 
 ### Onstream
