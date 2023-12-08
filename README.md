@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Dec 08 - [UNLV gunman sent letters to university personnel across the country before shootings, sheriff says](https://news.yahoo.com/unlv-shooter-career-professor-connections-081603646.html)
 - Dec 08 - [Images from Gaza show Israeli soldiers detaining dozens of men stripped to underwear](https://news.yahoo.com/images-gaza-show-israeli-soldiers-233212470.html)
 - Dec 08 - [Hear Al Franken’s prediction about 2024 election](https://news.yahoo.com/hear-al-franken-prediction-2024-014726506.html)
-- Dec 07 - [UPS fires about 35 newly organized US workers, Teamsters union says](https://news.yahoo.com/ups-fires-35-newly-organized-224949809.html)
+- Dec 07 - [Man arrested in connection with death of SF tech worker](https://news.yahoo.com/man-arrested-connection-death-sf-234243347.html)
 <!-- feed end -->
 
 ### Onstream
