@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 08 - [Trump hits Christie after strong debate showing: ‘Not fit to run for President’](https://news.yahoo.com/trump-hits-christie-strong-debate-194806367.html)
-- Dec 08 - [Appeals court upholds gag order on Trump in Washington case but narrows restrictions on his speech](https://news.yahoo.com/appeals-court-upholds-gag-order-191912001.html)
+- Dec 08 - [Six French teenagers convicted in connection with 2020 beheading of teacher Paty](https://news.yahoo.com/six-teenagers-convicted-connection-2020-194123280.html)
 - Dec 08 - [Ex Black Panther who maintained innocence in bombing that killed an officer died in Nebraska prison](https://news.yahoo.com/ex-black-panther-maintained-innocence-190536218.html)
 - Dec 08 - [‘Uncommon’ creature with ‘enormous’ genitalia turns out to be new species in Australia](https://news.yahoo.com/uncommon-creature-enormous-genitalia-turns-180717521.html)
+- Dec 08 - [Video: Watch as Venice gondola capsizes after tourists refuse to stop taking selfies](https://news.yahoo.com/video-watch-venice-gondola-capsizes-175300003.html)
 - Dec 08 - [Ukraine has won a major victory over Russia](https://news.yahoo.com/ukraine-won-major-victory-over-174126233.html)
 <!-- feed end -->
 
