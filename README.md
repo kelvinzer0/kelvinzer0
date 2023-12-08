@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 07 - [Chinese woman receives $60,000 restaurant bill after mistakenly sharing ordering QR code online](https://news.yahoo.com/chinese-woman-receives-60-000-214006365.html)
-- Dec 07 - [Watch as students lift a car off a mother and child pinned beneath it](https://www.autoblog.com/2023/12/07/students-lift-car-off-family-pinned-beneath-utah/)
-- Dec 07 - [2 UNLV professors killed in UNLV campus shooting identified](https://news.yahoo.com/2-unlv-professors-killed-unlv-203511323.html)
-- Dec 07 - [Trump to court sketch artist: 'I gotta lose some weight'](https://news.yahoo.com/trump-court-sketch-artist-gotta-202937718.html)
-- Dec 07 - [Van Jones ‘shaking’ over Ramaswamy remarks: ‘That guy is dangerous’](https://news.yahoo.com/van-jones-shaking-over-ramaswamy-201103687.html)
+- Dec 08 - [A buoyant Trump attends his N.Y. fraud trial as appeals court pauses ruling on his businesses](https://news.yahoo.com/buoyant-trump-attends-ny-fraud-191122478.html)
+- Dec 08 - [UPenn board chair expected to speak with president Liz Magill about stepping down](https://finance.yahoo.com/news/university-pennsylvania-board-trustees-holds-153949369.html)
+- Dec 07 - [Images from Gaza show Israeli soldiers detaining dozens of men stripped to underwear](https://news.yahoo.com/images-gaza-show-israeli-soldiers-233212470.html)
+- Dec 07 - [UPS fires about 35 newly organized US workers, Teamsters union says](https://news.yahoo.com/ups-fires-35-newly-organized-224949809.html)
+- Dec 07 - [Penn loses $100 million donation after its president's bungled congressional hearing](https://news.yahoo.com/penn-loses-100-million-donation-220450569.html)
 <!-- feed end -->
 
 ### Onstream
