@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 08 - [Europe Swears Off Russian Gas. The Unexpected Price.](https://www.barrons.com/articles/europe-swears-off-russian-gas-the-unexpected-price-5c36b222?siteid=yhoof2&yptr=yahoo)
 - Dec 08 - [Major donor calls on UPenn president to resign for disastrous testimony on antisemitism, threatening $100 million gift](https://finance.yahoo.com/news/university-pennsylvania-board-trustees-holds-153949369.html)
-- Dec 08 - [UNLV gunman sent letters to university personnel across the country before shootings, sheriff says](https://news.yahoo.com/unlv-shooter-career-professor-connections-081603646.html)
+- Dec 08 - [Images from Gaza show Israeli soldiers detaining dozens of men stripped to underwear](https://news.yahoo.com/images-gaza-show-israeli-soldiers-233212470.html)
 - Dec 08 - [Hear Al Franken’s prediction about 2024 election](https://news.yahoo.com/hear-al-franken-prediction-2024-014726506.html)
 - Dec 07 - [Man arrested in connection with death of SF tech worker](https://news.yahoo.com/man-arrested-connection-death-sf-234243347.html)
 <!-- feed end -->
