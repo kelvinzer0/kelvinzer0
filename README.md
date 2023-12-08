@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 08 - [Images from Gaza show Israeli soldiers detaining dozens of men stripped to underwear](https://news.yahoo.com/images-gaza-show-israeli-soldiers-233212470.html)
 - Dec 08 - [UNLV gunman sent letters to university personnel across the country before shootings, sheriff says](https://news.yahoo.com/unlv-shooter-career-professor-connections-081603646.html)
+- Dec 08 - [Images from Gaza show Israeli soldiers detaining dozens of men stripped to underwear](https://news.yahoo.com/images-gaza-show-israeli-soldiers-233212470.html)
+- Dec 08 - [Hear Al Franken’s prediction about 2024 election](https://news.yahoo.com/hear-al-franken-prediction-2024-014726506.html)
 - Dec 08 - [Hunter Biden indicted on nine tax charges, adding to gun charges in special counsel probe](https://news.yahoo.com/hunter-biden-indicted-nine-tax-013111955.html)
 - Dec 08 - [UPenn president Liz Magill under fire: Wharton’s board of advisors calls for immediate leadership change](https://finance.yahoo.com/news/university-pennsylvania-board-trustees-holds-153949369.html)
-- Dec 07 - [UPS fires about 35 newly organized US workers, Teamsters union says](https://news.yahoo.com/ups-fires-35-newly-organized-224949809.html)
 <!-- feed end -->
 
 ### Onstream
