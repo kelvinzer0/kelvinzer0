@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 08 - ["It was beneath me": Trump fumes at his own lawyer on Truth Social for giving him "not good advice"](https://news.yahoo.com/beneath-trump-fumes-own-lawyer-163627058.html)
 - Dec 08 - [Major donor calls on UPenn president to resign for disastrous testimony on antisemitism, threatening $100 million gift](https://finance.yahoo.com/news/university-pennsylvania-board-trustees-holds-153949369.html)
 - Dec 08 - [Trump’s Expert Witness Trashes NY’s ‘Absurd’ Fraud Case in Court Clash](https://finance.yahoo.com/news/trump-expert-witness-trashes-ny-214737928.html)
-- Dec 08 - [15-year-old student getting off school bus is run over, killed by semi, Texas cops say](https://news.yahoo.com/15-old-student-getting-off-132150317.html)
 - Dec 08 - [Keanu Reeves Missed By Ski-Masked Intruders At His LA Home](https://www.yahoo.com/entertainment/keanu-reeves-missed-ski-masked-123032263.html)
-- Dec 08 - [Europe Swears Off Russian Gas. The Unexpected Price.](https://www.barrons.com/articles/europe-swears-off-russian-gas-the-unexpected-price-5c36b222?siteid=yhoof2&yptr=yahoo)
+- Dec 08 - [‘We are the poor people': This couple with 2 young kids has a healthy income of $113,500 — so Ramit Sethi was confused about why they were 'stuck.' Then it became clear](https://finance.yahoo.com/news/poor-people-couple-2-young-111500914.html)
 <!-- feed end -->
 
 ### Onstream
