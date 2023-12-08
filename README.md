@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 08 - [Trump immunity appeal offers best chance to stave off 2020 election trial](https://news.yahoo.com/trump-immunity-appeal-offers-best-111437213.html)
 - Dec 08 - [Europe Swears Off Russian Gas. The Unexpected Price.](https://www.barrons.com/articles/europe-swears-off-russian-gas-the-unexpected-price-5c36b222?siteid=yhoof2&yptr=yahoo)
 - Dec 08 - [Major donor calls on UPenn president to resign for disastrous testimony on antisemitism, threatening $100 million gift](https://finance.yahoo.com/news/university-pennsylvania-board-trustees-holds-153949369.html)
-- Dec 08 - [Images from Gaza show Israeli soldiers detaining dozens of men stripped to underwear](https://news.yahoo.com/images-gaza-show-israeli-soldiers-233212470.html)
 - Dec 08 - [Hear Al Franken’s prediction about 2024 election](https://news.yahoo.com/hear-al-franken-prediction-2024-014726506.html)
-- Dec 07 - [UPS fires about 35 newly organized US workers, Teamsters union says](https://news.yahoo.com/ups-fires-35-newly-organized-224949809.html)
+- Dec 07 - [Houston ISD staffer says she was fired for taking time off after husband diagnosed, died of cancer](https://news.yahoo.com/houston-isd-staffer-says-she-230523572.html)
 <!-- feed end -->
 
 ### Onstream
