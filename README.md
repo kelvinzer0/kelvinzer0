@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 09 - [CNN's Jake Tapper Mocks Rep. James Comer's Hunter Biden Theory To His Face](https://news.yahoo.com/cnns-jake-tapper-mocks-rep-011138658.html)
 - Dec 09 - [Study makes troubling revelation about killer whales: ‘We’ve really come to learn that you are what you eat’](https://news.yahoo.com/study-makes-troubling-revelation-killer-004500940.html)
+- Dec 08 - [6 teens involved in beheading of French teacher convicted, sentenced](https://news.yahoo.com/6-teens-involved-beheading-french-233540118.html)
 - Dec 08 - [Kevin McCarthy endorses Trump for president and would consider serving in his Cabinet](https://news.yahoo.com/kevin-mccarthy-endorses-trump-president-230219179.html)
-- Dec 08 - [Report: Deputies were justified when they fired at SUV that blasted through Mar-a-Lago checkpoint](https://news.yahoo.com/report-deputies-were-justified-fired-225416727.html)
-- Dec 08 - [Tampa porch pirate caught on camera, arrested after stealing from over 20 houses: TPD](https://news.yahoo.com/tampa-porch-pirate-caught-camera-202846928.html)
+- Dec 08 - [Dave Ramsey: Take Social Security at Age 62, but Only If You Do This With Each Check](https://finance.yahoo.com/news/dave-ramsey-social-security-age-125141707.html)
 <!-- feed end -->
 
 ### Onstream
