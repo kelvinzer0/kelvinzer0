@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 09 - [Wisconsin university regents reject deal with Republicans to reduce diversity positions](https://news.yahoo.com/wisconsin-university-regents-reject-deal-184158659.html)
+- Dec 09 - [Russia warns Israel that Hamas tunnel plan would amount to 'war crime' if pursued](https://news.yahoo.com/russia-warns-israel-hamas-tunnel-181456055.html)
 - Dec 09 - [A teenager who passed California's notoriously tricky bar exam at just 17 is now a practicing attorney](https://news.yahoo.com/teenager-passed-californias-notoriously-tricky-172248249.html)
 - Dec 09 - [Putin’s Russia is closing in on a devastating victory. Europe’s foundations are trembling](https://news.yahoo.com/putin-russia-closing-devastating-victory-170326959.html)
-- Dec 09 - [DeSantis' wife prompts Republican reminder of Iowa nominating process rules](https://news.yahoo.com/desantis-wife-prompts-republican-reminder-162603172.html)
 - Dec 09 - [The IRS Is Cracking Down on These High-Income Earners. Are You One of Them?](https://finance.yahoo.com/news/irs-cracking-down-high-income-113000406.html)
-- Dec 09 - [Motive Behind Derek Chauvin Stabbing Revealed](https://news.yahoo.com/motive-behind-derek-chauvin-stabbing-152800599.html)
 <!-- feed end -->
 
 ### Onstream
