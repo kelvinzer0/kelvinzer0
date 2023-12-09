@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 09 - [Putin’s Russia is closing in on a devastating victory. Europe’s foundations are trembling](https://news.yahoo.com/putin-russia-closing-devastating-victory-170326959.html)
+- Dec 09 - [The IRS Is Cracking Down on These High-Income Earners. Are You One of Them?](https://finance.yahoo.com/news/irs-cracking-down-high-income-113000406.html)
 - Dec 09 - [Motive Behind Derek Chauvin Stabbing Revealed](https://news.yahoo.com/motive-behind-derek-chauvin-stabbing-152800599.html)
 - Dec 09 - [Man Gets 8 Years in Prison for Racial Slurs Against Neighbor](https://news.yahoo.com/man-gets-8-years-prison-145828256.html)
 - Dec 09 - [U.S. is left alone on Gaza issue after veto at UN - Turkey's FM](https://news.yahoo.com/u-left-alone-gaza-issue-135814944.html)
-- Dec 09 - [‘Families were cheated’: Low-income Americans are about to receive $40.6M after chicken and tuna 'price-fixing conspiracies' — here's what happened](https://finance.yahoo.com/news/families-were-cheated-low-income-123000733.html)
-- Dec 09 - [Her Online Sex Life Was Exposed. She Lost Her Election. Now She’s Speaking Out.](https://news.yahoo.com/her-online-sex-life-exposed-120000590.html)
 <!-- feed end -->
 
 ### Onstream
