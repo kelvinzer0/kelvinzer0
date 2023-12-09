@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 09 - [Motive Behind Derek Chauvin Stabbing Revealed](https://news.yahoo.com/motive-behind-derek-chauvin-stabbing-152800599.html)
 - Dec 09 - [Man Gets 8 Years in Prison for Racial Slurs Against Neighbor](https://news.yahoo.com/man-gets-8-years-prison-145828256.html)
+- Dec 09 - [U.S. is left alone on Gaza issue after veto at UN - Turkey's FM](https://news.yahoo.com/u-left-alone-gaza-issue-135814944.html)
 - Dec 09 - [‘Families were cheated’: Low-income Americans are about to receive $40.6M after chicken and tuna 'price-fixing conspiracies' — here's what happened](https://finance.yahoo.com/news/families-were-cheated-low-income-123000733.html)
 - Dec 09 - [Her Online Sex Life Was Exposed. She Lost Her Election. Now She’s Speaking Out.](https://news.yahoo.com/her-online-sex-life-exposed-120000590.html)
-- Dec 09 - [Her mother vanished when she was 1. Some 40 years later, a phone call from a stranger helped her understand why](https://news.yahoo.com/her-mother-vanished-she-1-111201943.html)
-- Dec 09 - [Canada's surging cost of living fuels reverse immigration](https://news.yahoo.com/canadas-surging-cost-living-fuels-110338281.html)
 <!-- feed end -->
 
 ### Onstream
