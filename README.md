@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 09 - [CNN's Jake Tapper Mocks Rep. James Comer's Hunter Biden Theory To His Face](https://news.yahoo.com/cnns-jake-tapper-mocks-rep-011138658.html)
 - Dec 08 - [Kevin McCarthy endorses Trump for president and would consider serving in his Cabinet](https://news.yahoo.com/kevin-mccarthy-endorses-trump-president-230219179.html)
 - Dec 08 - [Report: Deputies were justified when they fired at SUV that blasted through Mar-a-Lago checkpoint](https://news.yahoo.com/report-deputies-were-justified-fired-225416727.html)
-- Dec 08 - [Time to buy? Why the prices of Rolex and other luxury Swiss watches keep falling.](https://finance.yahoo.com/news/time-to-buy-why-the-prices-of-rolex-and-other-luxury-swiss-watches-keep-falling-210120166.html)
 - Dec 08 - [Appeals court upholds gag order on Trump in Washington case but narrows restrictions on his speech](https://news.yahoo.com/appeals-court-upholds-gag-order-191912001.html)
 - Dec 08 - [Ex Black Panther who maintained innocence in bombing that killed an officer dies in Nebraska prison](https://news.yahoo.com/ex-black-panther-maintained-innocence-190536218.html)
 <!-- feed end -->
