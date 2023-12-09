@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 09 - [CNN's Jake Tapper Mocks Rep. James Comer's Hunter Biden Theory To His Face](https://news.yahoo.com/cnns-jake-tapper-mocks-rep-011138658.html)
+- Dec 09 - [Study makes troubling revelation about killer whales: ‘We’ve really come to learn that you are what you eat’](https://news.yahoo.com/study-makes-troubling-revelation-killer-004500940.html)
 - Dec 08 - [Kevin McCarthy endorses Trump for president and would consider serving in his Cabinet](https://news.yahoo.com/kevin-mccarthy-endorses-trump-president-230219179.html)
 - Dec 08 - [Report: Deputies were justified when they fired at SUV that blasted through Mar-a-Lago checkpoint](https://news.yahoo.com/report-deputies-were-justified-fired-225416727.html)
-- Dec 08 - [Appeals court upholds gag order on Trump in Washington case but narrows restrictions on his speech](https://news.yahoo.com/appeals-court-upholds-gag-order-191912001.html)
-- Dec 08 - [Ex Black Panther who maintained innocence in bombing that killed an officer dies in Nebraska prison](https://news.yahoo.com/ex-black-panther-maintained-innocence-190536218.html)
+- Dec 08 - [Tampa porch pirate caught on camera, arrested after stealing from over 20 houses: TPD](https://news.yahoo.com/tampa-porch-pirate-caught-camera-202846928.html)
 <!-- feed end -->
 
 ### Onstream
