@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 09 - [Man Gets 8 Years in Prison for Racial Slurs Against Neighbor](https://news.yahoo.com/man-gets-8-years-prison-145828256.html)
 - Dec 09 - [‘Families were cheated’: Low-income Americans are about to receive $40.6M after chicken and tuna 'price-fixing conspiracies' — here's what happened](https://finance.yahoo.com/news/families-were-cheated-low-income-123000733.html)
 - Dec 09 - [Her Online Sex Life Was Exposed. She Lost Her Election. Now She’s Speaking Out.](https://news.yahoo.com/her-online-sex-life-exposed-120000590.html)
 - Dec 09 - [Her mother vanished when she was 1. Some 40 years later, a phone call from a stranger helped her understand why](https://news.yahoo.com/her-mother-vanished-she-1-111201943.html)
 - Dec 09 - [Canada's surging cost of living fuels reverse immigration](https://news.yahoo.com/canadas-surging-cost-living-fuels-110338281.html)
-- Dec 09 - ['I believe in this': A 52-year-old Austin man says he has no retirement savings and $50K-$60K in bad debt — and now he's seemingly stuck in a pyramid scheme. Here's the reality check he got](https://finance.yahoo.com/news/believe-52-old-austin-man-110000882.html)
 <!-- feed end -->
 
 ### Onstream
