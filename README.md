@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 09 - [Woman Claims Her Diamond Ring — Worth Over $800,000 — Was Stolen amid Her Stay at The Ritz Paris](https://www.yahoo.com/entertainment/woman-claims-her-diamond-ring-203723617.html)
+- Dec 09 - [New York AG suggests Trump experts helped push her fraud case forward](https://news.yahoo.com/york-ag-suggests-trump-experts-224841960.html)
+- Dec 09 - [University of Pennsylvania president resigns after antisemitism testimony](https://news.yahoo.com/university-pennsylvania-president-liz-magill-215310542.html)
 - Dec 09 - [Liz Cheney was 'amused' when she was disinvited from the 2020 White House holiday party after demanding Trump provide evidence of his election claims](https://news.yahoo.com/liz-cheney-amused-she-disinvited-203052131.html)
 - Dec 09 - [Wisconsin university regents reject deal with Republicans to reduce diversity positions](https://news.yahoo.com/wisconsin-university-regents-reject-deal-184158659.html)
 - Dec 09 - [Russia warns Israel that Hamas tunnel plan would amount to 'war crime' if pursued](https://news.yahoo.com/russia-warns-israel-hamas-tunnel-181456055.html)
-- Dec 09 - [Putin’s Russia is closing in on a devastating victory. Europe’s foundations are trembling](https://news.yahoo.com/putin-russia-closing-devastating-victory-170326959.html)
 <!-- feed end -->
 
 ### Onstream
