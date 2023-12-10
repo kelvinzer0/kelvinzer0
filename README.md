@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Dec 09 - [John Lennon’s Doorman Recalls Singer’s Final Words to Him After Being Shot](https://www.yahoo.com/entertainment/john-lennon-doorman-recalls-singer-232836794.html)
 - Dec 09 - [Missing: 72-year-old South Tampa woman caught on camera walking away from home](https://news.yahoo.com/missing-72-old-south-tampa-215619239.html)
 - Dec 09 - [A British Palestinian surgeon gave testimony to a UK war crimes unit after returning from Gaza](https://news.yahoo.com/british-palestinian-surgeon-gave-testimony-215503392.html)
-- Dec 09 - [US Coast Guard helicopter that crashed during rescue mission in Alaska is recovered](https://news.yahoo.com/us-coast-guard-helicopter-crashed-214838291.html)
+- Dec 09 - [University of Pennsylvania president resigns after antisemitism testimony](https://news.yahoo.com/university-pennsylvania-president-liz-magill-215310542.html)
 <!-- feed end -->
 
 ### Onstream
