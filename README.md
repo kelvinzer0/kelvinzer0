@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 10 - [Trump says he won't testify again at his New York fraud trial. He says he has nothing more to say](https://news.yahoo.com/trump-says-wont-testify-monday-204000617.html)
+- Dec 10 - [Trump Says He Will No Longer Testify Again In Civil Fraud Trial](https://news.yahoo.com/trump-says-no-longer-testify-212328655.html)
 - Dec 10 - [Trump again defends infamous 'Access Hollywood' comments and warns Biden, 'Be very careful'](https://news.yahoo.com/trump-again-defends-infamous-access-194933497.html)
 - Dec 10 - [Israel-Gaza war: Video shows Gaza detainees allegedly 'surrendering guns' - what we know](https://news.yahoo.com/israel-gaza-war-video-shows-182123778.html)
 - Dec 10 - [Sunday morning homicide in Franklin Lakes confirmed, authorities investigate](https://news.yahoo.com/sunday-morning-homicide-franklin-lakes-182330504.html)
