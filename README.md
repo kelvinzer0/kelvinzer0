@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 10 - [China, Japan trade blame over confrontation near disputed islands](https://news.yahoo.com/china-says-japanese-vessels-illegally-054753966.html)
+- Dec 10 - [Death of last surviving Alaskan taken by Japan during WWII rekindles memories of forgotten battle](https://news.yahoo.com/death-last-surviving-alaskan-taken-050959890.html)
+- Dec 10 - [Here's the 1 Social Security Change in 2024 That's Going to Hurt the Worst](https://www.fool.com/retirement/2023/12/09/heres-the-1-social-security-change-in-2024-thats-g/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Dec 10 - [Convicted Air Force major blames wife for fight that led to her death](https://news.yahoo.com/convicted-air-force-major-blames-040900022.html)
-- Dec 10 - [Sheila Jackson Lee loses Houston mayor’s race to tough-on-crime state senator](https://news.yahoo.com/sheila-jackson-lee-loses-houston-014337512.html)
 - Dec 09 - [John Lennon’s Doorman Recalls Singer’s Final Words to Him After Being Shot](https://www.yahoo.com/entertainment/john-lennon-doorman-recalls-singer-232836794.html)
-- Dec 09 - [Missing: 72-year-old South Tampa woman caught on camera walking away from home](https://news.yahoo.com/missing-72-old-south-tampa-215619239.html)
 <!-- feed end -->
 
 ### Onstream
