@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [Trump says he won't testify again at his New York fraud trial. He says he has nothing more to say](https://news.yahoo.com/trump-says-wont-testify-monday-204000617.html)
+- Dec 10 - [Trump again defends infamous 'Access Hollywood' comments and warns Biden, 'Be very careful'](https://news.yahoo.com/trump-again-defends-infamous-access-194933497.html)
 - Dec 10 - [Israel-Gaza war: Video shows Gaza detainees allegedly 'surrendering guns' - what we know](https://news.yahoo.com/israel-gaza-war-video-shows-182123778.html)
 - Dec 10 - [Sunday morning homicide in Franklin Lakes confirmed, authorities investigate](https://news.yahoo.com/sunday-morning-homicide-franklin-lakes-182330504.html)
 - Dec 10 - [US Air Force announces retention bonuses of up to $600,000 in desperate bid to fix pilot shortage](https://news.yahoo.com/us-air-force-announces-retention-182056100.html)
-- Dec 10 - [Zelenskiy seen briefly talking to Hungary's Orban in Argentina](https://news.yahoo.com/zelenskiy-seen-briefly-talking-hungarys-181655449.html)
-- Dec 10 - [Catholic priest in small Nebraska community dies after being attacked in church](https://news.yahoo.com/catholic-priest-small-nebraska-community-180759480.html)
 <!-- feed end -->
 
 ### Onstream
