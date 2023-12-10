@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [Israel-Gaza war: Video shows Gaza detainees allegedly 'surrendering guns' - what we know](https://news.yahoo.com/israel-gaza-war-video-shows-182123778.html)
+- Dec 10 - [Sunday morning homicide in Franklin Lakes confirmed, authorities investigate](https://news.yahoo.com/sunday-morning-homicide-franklin-lakes-182330504.html)
+- Dec 10 - [US Air Force announces retention bonuses of up to $600,000 in desperate bid to fix pilot shortage](https://news.yahoo.com/us-air-force-announces-retention-182056100.html)
 - Dec 10 - [Zelenskiy seen briefly talking to Hungary's Orban in Argentina](https://news.yahoo.com/zelenskiy-seen-briefly-talking-hungarys-181655449.html)
 - Dec 10 - [Catholic priest in small Nebraska community dies after being attacked in church](https://news.yahoo.com/catholic-priest-small-nebraska-community-180759480.html)
-- Dec 10 - [Resurfaced Reports Show That Tiffany Trump’s Time at College Highlighted How Different She Is From Her Family](https://www.yahoo.com/entertainment/resurfaced-reports-show-tiffany-trump-173600728.html)
-- Dec 10 - [Dramatic video of a passenger plane landing at Tel Aviv airport amid a barrage as Iron Dome missiles fought off Hamas rockets](https://news.yahoo.com/dramatic-video-passenger-plane-landing-170627457.html)
-- Dec 10 - [47 Photos That Prove Americans *Might" Be The Stupidest People On The Internet](https://www.yahoo.com/lifestyle/47-photos-prove-americans-might-161603111.html)
 <!-- feed end -->
 
 ### Onstream
