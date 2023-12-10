@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 10 - [Drug lords go on killing spree to hunt down corrupt officers who stole shipment in Mexico's Tijuana](https://news.yahoo.com/drug-lords-killing-spree-hunt-150233852.html)
+- Dec 10 - [Kevin McCarthy on Trump: America doesn't want "retribution"](https://news.yahoo.com/kevin-mccarthy-trump-america-doesnt-144520820.html)
+- Dec 10 - [Romney calls Trump 'a human gumball machine'](https://news.yahoo.com/romney-calls-trump-human-gumball-142157387.html)
+- Dec 10 - [Boeing Just Won a Multibillion-Dollar Contract. Here's Why That's Bad News.](https://www.fool.com/investing/2023/12/10/bad-news-boeing-just-won-a-multibillion-dollar-con/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
 - Dec 10 - ["Trump derangement syndrome" is real — but it's not what they say it is](https://news.yahoo.com/trump-derangement-syndrome-real-not-140001121.html)
-- Dec 10 - [A gigantic new ICBM will take US nuclear missiles out of the Cold War-era but add 21st-century risks](https://news.yahoo.com/gigantic-icbm-us-nuclear-missiles-123655775.html)
-- Dec 10 - [Colin Jost Makes A 'Super Embarrassing' Discovery In Hunter Biden's Recent Indictment](https://www.yahoo.com/entertainment/colin-jost-makes-super-embarrassing-121753480.html)
-- Dec 10 - [I thought I caught the flu from my kids. I was actually having a massive heart attack.](https://www.yahoo.com/lifestyle/thought-caught-flu-kids-actually-115802567.html)
 <!-- feed end -->
 
 ### Onstream
