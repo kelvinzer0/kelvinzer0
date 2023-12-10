@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 10 - [Trump Says He Will No Longer Testify Again In Civil Fraud Trial](https://news.yahoo.com/trump-says-no-longer-testify-212328655.html)
+- Dec 10 - [What to know about Trump’s decision to not testify again in New York civil fraud trial](https://news.yahoo.com/know-trump-decision-not-testify-220734101.html)
+- Dec 10 - [Man dies after altercation with wife in Sacramento: Homicide justified, DA says](https://news.yahoo.com/man-dies-altercation-wife-sacramento-201001047.html)
 - Dec 10 - [Trump again defends infamous 'Access Hollywood' comments and warns Biden, 'Be very careful'](https://news.yahoo.com/trump-again-defends-infamous-access-194933497.html)
 - Dec 10 - [Israel-Gaza war: Video shows Gaza detainees allegedly 'surrendering guns' - what we know](https://news.yahoo.com/israel-gaza-war-video-shows-182123778.html)
 - Dec 10 - [Sunday morning homicide in Franklin Lakes confirmed, authorities investigate](https://news.yahoo.com/sunday-morning-homicide-franklin-lakes-182330504.html)
-- Dec 10 - [US Air Force announces retention bonuses of up to $600,000 in desperate bid to fix pilot shortage](https://news.yahoo.com/us-air-force-announces-retention-182056100.html)
 <!-- feed end -->
 
 ### Onstream
