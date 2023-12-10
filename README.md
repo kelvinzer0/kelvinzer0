@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 10 - [Ukrainian Marines fend off Russian attack, leave smoldering armor on southern front](https://news.yahoo.com/ukrainian-marines-fend-off-russian-164100271.html)
+- Dec 10 - [Beachgoers in awe as massive creature swims nearby in Australia. But is it in trouble?](https://news.yahoo.com/beachgoers-awe-massive-creature-swims-174223548.html)
+- Dec 10 - [Resurfaced Reports Show That Tiffany Trump’s Time at College Highlighted How Different She Is From Her Family](https://www.yahoo.com/entertainment/resurfaced-reports-show-tiffany-trump-173600728.html)
+- Dec 10 - [Dramatic video of a passenger plane landing at Tel Aviv airport amid a barrage as Iron Dome missiles fought off Hamas rockets](https://news.yahoo.com/dramatic-video-passenger-plane-landing-170627457.html)
 - Dec 10 - [47 Photos That Prove Americans *Might" Be The Stupidest People On The Internet](https://www.yahoo.com/lifestyle/47-photos-prove-americans-might-161603111.html)
-- Dec 10 - [Drug lords go on killing spree to hunt down corrupt officers who stole shipment in Mexico's Tijuana](https://news.yahoo.com/drug-lords-killing-spree-hunt-150233852.html)
-- Dec 10 - [Kevin McCarthy on Trump: America doesn't want "retribution"](https://news.yahoo.com/kevin-mccarthy-trump-america-doesnt-144520820.html)
-- Dec 10 - [Texas police arrest illegal immigrant in 16-year-old cheerleader Lizbeth Medina's murder](https://news.yahoo.com/texas-police-arrest-illegal-immigrant-142949734.html)
+- Dec 10 - ['Most beautiful man' gives up fame, modeling career for God: 'I am here to discover'](https://news.yahoo.com/most-beautiful-man-gives-fame-152511795.html)
 <!-- feed end -->
 
 ### Onstream
