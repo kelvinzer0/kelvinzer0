@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [A gigantic new ICBM will take US nuclear missiles out of the Cold War-era but add 21st-century risks](https://news.yahoo.com/gigantic-icbm-us-nuclear-missiles-123655775.html)
+- Dec 10 - [Colin Jost Makes A 'Super Embarrassing' Discovery In Hunter Biden's Recent Indictment](https://www.yahoo.com/entertainment/colin-jost-makes-super-embarrassing-121753480.html)
 - Dec 10 - [‘Incredible distortions in our marketplace’: 45% of US real estate agents say they're struggling to pay rent — another bad omen for the housing market. But 2024 could be better](https://finance.yahoo.com/news/incredible-distortions-marketplace-45-us-121500813.html)
+- Dec 10 - [I thought I caught the flu from my kids. I was actually having a massive heart attack.](https://www.yahoo.com/lifestyle/thought-caught-flu-kids-actually-115802567.html)
 - Dec 10 - ['There's no real good end': This Wall Street bear says the US is in the 'greatest credit bubble of human history' — and it's going to pop. How to prepare your portfolio for a 'huge crash'](https://finance.yahoo.com/news/theres-no-real-good-end-114500833.html)
-- Dec 10 - [Megyn Kelly said that Donald Trump is increasingly confused and not as 'mentally sharp' as he once was](https://news.yahoo.com/megyn-kelly-said-donald-trump-104938145.html)
-- Dec 10 - [Survivor of 1972 plane crash who resorted to cannibalism to survive in Andes Mountains speaks out](https://news.yahoo.com/survivor-1972-plane-crash-resorted-090048874.html)
-- Dec 10 - [China, Japan trade blame over confrontation near disputed islands](https://news.yahoo.com/china-says-japanese-vessels-illegally-054753966.html)
 <!-- feed end -->
 
 ### Onstream
