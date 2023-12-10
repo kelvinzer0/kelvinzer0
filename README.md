@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [‘Incredible distortions in our marketplace’: 45% of US real estate agents say they're struggling to pay rent — another bad omen for the housing market. But 2024 could be better](https://finance.yahoo.com/news/incredible-distortions-marketplace-45-us-121500813.html)
+- Dec 10 - ['There's no real good end': This Wall Street bear says the US is in the 'greatest credit bubble of human history' — and it's going to pop. How to prepare your portfolio for a 'huge crash'](https://finance.yahoo.com/news/theres-no-real-good-end-114500833.html)
+- Dec 10 - [Megyn Kelly said that Donald Trump is increasingly confused and not as 'mentally sharp' as he once was](https://news.yahoo.com/megyn-kelly-said-donald-trump-104938145.html)
+- Dec 10 - [Survivor of 1972 plane crash who resorted to cannibalism to survive in Andes Mountains speaks out](https://news.yahoo.com/survivor-1972-plane-crash-resorted-090048874.html)
 - Dec 10 - [China, Japan trade blame over confrontation near disputed islands](https://news.yahoo.com/china-says-japanese-vessels-illegally-054753966.html)
-- Dec 10 - [Death of last surviving Alaskan taken by Japan during WWII rekindles memories of forgotten battle](https://news.yahoo.com/death-last-surviving-alaskan-taken-050959890.html)
-- Dec 10 - [Here's the 1 Social Security Change in 2024 That's Going to Hurt the Worst](https://www.fool.com/retirement/2023/12/09/heres-the-1-social-security-change-in-2024-thats-g/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Dec 10 - [Convicted Air Force major blames wife for fight that led to her death](https://news.yahoo.com/convicted-air-force-major-blames-040900022.html)
-- Dec 09 - [John Lennon’s Doorman Recalls Singer’s Final Words to Him After Being Shot](https://www.yahoo.com/entertainment/john-lennon-doorman-recalls-singer-232836794.html)
 <!-- feed end -->
 
 ### Onstream
