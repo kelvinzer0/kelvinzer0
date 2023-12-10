@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [Ukrainian Marines fend off Russian attack, leave smoldering armor on southern front](https://news.yahoo.com/ukrainian-marines-fend-off-russian-164100271.html)
+- Dec 10 - [47 Photos That Prove Americans *Might" Be The Stupidest People On The Internet](https://www.yahoo.com/lifestyle/47-photos-prove-americans-might-161603111.html)
 - Dec 10 - [Drug lords go on killing spree to hunt down corrupt officers who stole shipment in Mexico's Tijuana](https://news.yahoo.com/drug-lords-killing-spree-hunt-150233852.html)
 - Dec 10 - [Kevin McCarthy on Trump: America doesn't want "retribution"](https://news.yahoo.com/kevin-mccarthy-trump-america-doesnt-144520820.html)
-- Dec 10 - [Romney calls Trump 'a human gumball machine'](https://news.yahoo.com/romney-calls-trump-human-gumball-142157387.html)
-- Dec 10 - [Boeing Just Won a Multibillion-Dollar Contract. Here's Why That's Bad News.](https://www.fool.com/investing/2023/12/10/bad-news-boeing-just-won-a-multibillion-dollar-con/?source=eptyholnk0000202&utm_source=yahoo-host&utm_medium=feed&utm_campaign=article&yptr=yahoo)
-- Dec 10 - ["Trump derangement syndrome" is real — but it's not what they say it is](https://news.yahoo.com/trump-derangement-syndrome-real-not-140001121.html)
+- Dec 10 - [Texas police arrest illegal immigrant in 16-year-old cheerleader Lizbeth Medina's murder](https://news.yahoo.com/texas-police-arrest-illegal-immigrant-142949734.html)
 <!-- feed end -->
 
 ### Onstream
