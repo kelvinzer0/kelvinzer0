@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [Sheila Jackson Lee loses Houston mayor’s race to tough-on-crime state senator](https://news.yahoo.com/sheila-jackson-lee-loses-houston-014337512.html)
 - Dec 09 - [John Lennon’s Doorman Recalls Singer’s Final Words to Him After Being Shot](https://www.yahoo.com/entertainment/john-lennon-doorman-recalls-singer-232836794.html)
 - Dec 09 - [A British Palestinian surgeon gave testimony to a UK war crimes unit after returning from Gaza](https://news.yahoo.com/british-palestinian-surgeon-gave-testimony-215503392.html)
-- Dec 09 - [University of Pennsylvania president resigns after antisemitism testimony](https://news.yahoo.com/university-pennsylvania-president-liz-magill-215310542.html)
-- Dec 09 - [Liz Cheney was 'amused' when she was disinvited from the 2020 White House holiday party after demanding Trump provide evidence of his election claims](https://news.yahoo.com/liz-cheney-amused-she-disinvited-203052131.html)
 - Dec 09 - [Wisconsin university regents reject deal with Republicans to reduce diversity positions](https://news.yahoo.com/wisconsin-university-regents-reject-deal-184158659.html)
+- Dec 09 - [Russia warns Israel that Hamas tunnel plan would amount to 'war crime' if pursued](https://news.yahoo.com/russia-warns-israel-hamas-tunnel-181456055.html)
 <!-- feed end -->
 
 ### Onstream
