@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 10 - [I Thought Taking A Class Taught By Hillary Clinton Would Be Empowering. I Was Wrong.](https://news.yahoo.com/thought-taking-class-taught-hillary-132045028.html)
+- Dec 10 - [Drug lords go on killing spree to hunt down corrupt officers who stole shipment in Mexico's Tijuana](https://news.yahoo.com/drug-lords-killing-spree-hunt-150233852.html)
+- Dec 10 - ["Trump derangement syndrome" is real — but it's not what they say it is](https://news.yahoo.com/trump-derangement-syndrome-real-not-140001121.html)
 - Dec 10 - [A gigantic new ICBM will take US nuclear missiles out of the Cold War-era but add 21st-century risks](https://news.yahoo.com/gigantic-icbm-us-nuclear-missiles-123655775.html)
 - Dec 10 - [Colin Jost Makes A 'Super Embarrassing' Discovery In Hunter Biden's Recent Indictment](https://www.yahoo.com/entertainment/colin-jost-makes-super-embarrassing-121753480.html)
-- Dec 10 - [‘Incredible distortions in our marketplace’: 45% of US real estate agents say they're struggling to pay rent — another bad omen for the housing market. But 2024 could be better](https://finance.yahoo.com/news/incredible-distortions-marketplace-45-us-121500813.html)
 - Dec 10 - [I thought I caught the flu from my kids. I was actually having a massive heart attack.](https://www.yahoo.com/lifestyle/thought-caught-flu-kids-actually-115802567.html)
 <!-- feed end -->
 
