@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [Texas woman who sought emergency abortion from court will leave state for care](https://news.yahoo.com/texas-woman-sought-emergency-abortion-185102284.html)
+- Dec 11 - [George Santos Begins Revenge Tour With Scorching Attack on Fellow Republican](https://news.yahoo.com/george-santos-begins-revenge-tour-182325851.html)
+- Dec 11 - [Hostages were drugged, abused in Gaza: Israeli doctor](https://news.yahoo.com/hostages-were-drugged-abused-gaza-173721146.html)
+- Dec 11 - [New Jersey man filmed shouting racial slurs at neighbors in viral video sentenced to 8 years in prison](https://news.yahoo.com/jersey-man-filmed-shouting-racial-175530404.html)
 - Dec 11 - [Suspect jailed on $2 million bail in slaying of Texas high school cheerleader](https://news.yahoo.com/arrest-made-slaying-texas-high-152300247.html)
-- Dec 11 - [Special counsel Jack Smith asks Supreme Court to rule quickly on whether Trump can be prosecuted](https://news.yahoo.com/special-counsel-asks-supreme-court-174534157.html)
-- Dec 11 - ['Tremendous loss to America': South Carolina is dumping $105M of Disney investments due to 'structural rot' in the company — Treasurer warns the sane people are now gone. Time to sell DIS?](https://finance.yahoo.com/news/tremendous-loss-america-south-carolina-173000263.html)
-- Dec 11 - [High schooler benched in basketball game attacks coach in parking lot, Texas cops say](https://news.yahoo.com/high-schooler-benched-basketball-game-171958323.html)
-- Dec 11 - [A woman raped by her bible teacher from a controversial religious group is now helping other survivors of sexual abuse](https://www.yahoo.com/lifestyle/woman-raped-her-bible-teacher-171510915.html)
 <!-- feed end -->
 
 ### Onstream
