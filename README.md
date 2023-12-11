@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [Iraq scrambles to contain fighting between US troops and Iran-backed groups, fearing Gaza spillover](https://news.yahoo.com/iraq-scrambles-contain-fighting-between-121657763.html)
 - Dec 11 - [CNN Legal Analyst Can't Believe Donald Trump Lawyer's Latest 'Nonsensical' Spin](https://news.yahoo.com/cnn-legal-analyst-cant-believe-105629553.html)
-- Dec 11 - [Bernie Madoff is long gone. The lawyers are going strong](https://news.yahoo.com/bernie-madoff-long-gone-lawyers-100316760.html)
+- Dec 11 - [A man lost more than 150 pounds after retiring by walking and tracking macros. Here's his routine.](https://news.yahoo.com/man-lost-more-150-pounds-103501718.html)
+- Dec 11 - [Bernie Madoff is long gone. The lawyers are going strong](https://finance.yahoo.com/news/bernie-madoff-long-gone-lawyers-100316010.html)
 - Dec 11 - [Ohio woman arrested for shooting her 6-month-old grandchild in the head: 'It was on purpose'](https://news.yahoo.com/ohio-woman-arrested-shooting-her-083829234.html)
-- Dec 11 - [Racist remarks against Mexicans caught on camera in Disneyland bathroom](https://news.yahoo.com/racist-remarks-against-mexicans-caught-075536210.html)
-- Dec 11 - [CBS’ Robert Costa Astounded By Kevin McCarthy’s New Donald Trump Claim](https://news.yahoo.com/cbs-robert-costa-astounded-kevin-065558553.html)
 <!-- feed end -->
 
 ### Onstream
