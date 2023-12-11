@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [Supreme Court sides with 83-year-old woman forced to her knees during traffic stop](https://news.yahoo.com/supreme-court-sides-83-old-144817050.html)
+- Dec 11 - [A tourist lost an $800K diamond ring in the Ritz in Paris — and unexpectedly got it back](https://news.yahoo.com/tourist-lost-800k-diamond-ring-142306448.html)
 - Dec 11 - [Russia demands release of hostages in talks with Palestinians](https://news.yahoo.com/russia-demands-release-hostages-talks-123702361.html)
 - Dec 11 - [Deadly golf cart crash at Florida RV park sent driver sailing across pond, cops say](https://news.yahoo.com/deadly-golf-cart-crash-florida-122424493.html)
 - Dec 11 - [Iraq scrambles to contain fighting between US troops and Iran-backed groups, fearing Gaza spillover](https://news.yahoo.com/iraq-scrambles-contain-fighting-between-121657763.html)
-- Dec 11 - [Yamaha unveils new handlebar-less electric motorcycle concept — and it looks like it’s straight out of a sci-fi movie](https://news.yahoo.com/yamaha-unveils-handlebar-less-electric-130000443.html)
-- Dec 11 - [CNN Legal Analyst Can't Believe Donald Trump Lawyer's Latest 'Nonsensical' Spin](https://news.yahoo.com/cnn-legal-analyst-cant-believe-105629553.html)
 <!-- feed end -->
 
 ### Onstream
