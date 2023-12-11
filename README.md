@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [People Are Sharing The Eerie Rumors From Their Hometowns That Turned Out To Be True, And It's Quite Unsettling](https://www.yahoo.com/lifestyle/people-sharing-eerie-rumors-hometowns-031503962.html)
+- Dec 11 - [Life in Russian-controlled areas of Ukraine is grim. People are fleeing through a dangerous corridor](https://news.yahoo.com/life-russian-controlled-areas-ukraine-050151527.html)
+- Dec 11 - [Harvard faculty rally around beleaguered university president Claudine Gay](https://news.yahoo.com/harvard-faculty-rally-around-beleaguered-042350126.html)
+- Dec 11 - [Hitman who killed the pregnant girlfriend of former Panther Rae Carruth dies in prison](https://news.yahoo.com/hitman-killed-pregnant-girlfriend-former-033514968.html)
 - Dec 11 - [Decrepit steel mill that once was the world’s largest getting a surprising second life: ‘A welcome and positive rebirth’](https://news.yahoo.com/decrepit-steel-mill-once-world-003000832.html)
 - Dec 10 - [Macy's mulling $5.8 billion buyout offer: source](https://finance.yahoo.com/news/macys-mulling-58-billion-buyout-offer-source-230606275.html)
-- Dec 10 - [What to know about Trump’s decision to not testify again in New York civil fraud trial](https://news.yahoo.com/know-trump-decision-not-testify-220734101.html)
-- Dec 10 - [Trump says he won’t testify at NY civil fraud trial. Legal expert has theory why](https://news.yahoo.com/trump-says-won-t-testify-223618150.html)
 <!-- feed end -->
 
 ### Onstream
