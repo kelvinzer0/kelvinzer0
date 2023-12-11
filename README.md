@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [Life in Russian-controlled areas of Ukraine is grim. People are fleeing through a dangerous corridor](https://news.yahoo.com/life-russian-controlled-areas-ukraine-050151527.html)
+- Dec 11 - [Russian presidential hopeful vows to champion peace, women and a 'humane' country](https://news.yahoo.com/russian-presidential-hopeful-vows-champion-050359889.html)
+- Dec 11 - [More than 500 Harvard faculty members have signed a letter defending president Claudine Gay and urging the university not to remove her](https://news.yahoo.com/more-500-harvard-faculty-members-045949347.html)
+- Dec 11 - [Philippines military chief voices anger after latest Chinese coast guard incident in South China Sea](https://news.yahoo.com/philippines-military-chief-voices-anger-044822650.html)
 - Dec 11 - [Harvard faculty rally around beleaguered university president Claudine Gay](https://news.yahoo.com/harvard-faculty-rally-around-beleaguered-042350126.html)
 - Dec 11 - [Hitman who killed the pregnant girlfriend of former Panther Rae Carruth dies in prison](https://news.yahoo.com/hitman-killed-pregnant-girlfriend-former-033514968.html)
-- Dec 11 - [Decrepit steel mill that once was the world’s largest getting a surprising second life: ‘A welcome and positive rebirth’](https://news.yahoo.com/decrepit-steel-mill-once-world-003000832.html)
-- Dec 10 - [Macy's mulling $5.8 billion buyout offer: source](https://finance.yahoo.com/news/macys-mulling-58-billion-buyout-offer-source-230606275.html)
 <!-- feed end -->
 
 ### Onstream
