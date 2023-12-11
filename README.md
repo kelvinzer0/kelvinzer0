@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [Texas woman who sought emergency abortion from court will leave state for care](https://news.yahoo.com/texas-woman-sought-emergency-abortion-185102284.html)
-- Dec 11 - [George Santos Begins Revenge Tour With Scorching Attack on Fellow Republican](https://news.yahoo.com/george-santos-begins-revenge-tour-182325851.html)
-- Dec 11 - [Hostages were drugged, abused in Gaza: Israeli doctor](https://news.yahoo.com/hostages-were-drugged-abused-gaza-173721146.html)
-- Dec 11 - [New Jersey man filmed shouting racial slurs at neighbors in viral video sentenced to 8 years in prison](https://news.yahoo.com/jersey-man-filmed-shouting-racial-175530404.html)
-- Dec 11 - [Suspect jailed on $2 million bail in slaying of Texas high school cheerleader](https://news.yahoo.com/arrest-made-slaying-texas-high-152300247.html)
+- Dec 11 - [Todd Chrisley Talks 'Filthy' Prison, Including Animals in the Food and Photos of Him Sleeping](https://www.yahoo.com/entertainment/todd-chrisley-talks-filthy-prison-200108634.html)
+- Dec 11 - [Child playing online game dies by suicide in Texas, and Michigan boy charged, cops say](https://news.yahoo.com/child-playing-online-game-dies-192815748.html)
+- Dec 11 - [This UPS driver's video breaking down his weekly paycheck has nearly 12 million views](https://news.yahoo.com/ups-drivers-video-breaking-down-185543274.html)
+- Dec 11 - [Israel drove suitcases stuffed with cash into Gaza to keep Hamas in power: NYT](https://news.yahoo.com/israel-drove-suitcases-stuffed-cash-185354972.html)
+- Dec 11 - [Texas woman who asked court to allow emergency abortion will leave state for care](https://news.yahoo.com/texas-woman-sought-emergency-abortion-185102284.html)
 <!-- feed end -->
 
 ### Onstream
