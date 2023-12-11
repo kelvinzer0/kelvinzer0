@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [CNN Legal Analyst Can't Believe Donald Trump Lawyer's Latest 'Nonsensical' Spin](https://news.yahoo.com/cnn-legal-analyst-cant-believe-105629553.html)
+- Dec 11 - [Bernie Madoff is long gone. The lawyers are going strong](https://news.yahoo.com/bernie-madoff-long-gone-lawyers-100316760.html)
+- Dec 11 - [Ohio woman arrested for shooting her 6-month-old grandchild in the head: 'It was on purpose'](https://news.yahoo.com/ohio-woman-arrested-shooting-her-083829234.html)
 - Dec 11 - [Racist remarks against Mexicans caught on camera in Disneyland bathroom](https://news.yahoo.com/racist-remarks-against-mexicans-caught-075536210.html)
 - Dec 11 - [CBS’ Robert Costa Astounded By Kevin McCarthy’s New Donald Trump Claim](https://news.yahoo.com/cbs-robert-costa-astounded-kevin-065558553.html)
-- Dec 11 - [India's top court upholds end of special status for Kashmir, orders polls](https://news.yahoo.com/indias-top-court-orders-elections-062015117.html)
-- Dec 11 - [Russian presidential hopeful vows to champion peace, women and a 'humane' country](https://news.yahoo.com/russian-presidential-hopeful-vows-champion-050359889.html)
-- Dec 11 - [More than 500 Harvard faculty members have signed a letter defending president Claudine Gay and urging the university not to remove her](https://news.yahoo.com/more-500-harvard-faculty-members-045949347.html)
 <!-- feed end -->
 
 ### Onstream
