@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [In-N-Out Burger just announced its Meridian opening date. Here’s what to know, Idaho](https://news.yahoo.com/n-burger-just-announced-meridian-162945261.html)
-- Dec 11 - [Alina Habba’s Bold—and Totally Wrong—Prediction about Her Client](https://news.yahoo.com/alina-habba-bold-totally-wrong-155540606.html)
-- Dec 11 - [Massachusetts city ranked as one of nation’s ‘most caring’, new survey says](https://news.yahoo.com/massachusetts-city-ranked-one-nation-152206427.html)
-- Dec 11 - [Trump should be barred from appealing reinstated fraud case gag order, NY AG says](https://news.yahoo.com/trump-barred-appealing-reinstated-fraud-152018081.html)
-- Dec 11 - [Oops! The Supreme Court Heard Another Case Built on Shameless Lies.](https://news.yahoo.com/oops-supreme-court-heard-another-150000724.html)
+- Dec 11 - [Suspect jailed on $2 million bail in slaying of Texas high school cheerleader](https://news.yahoo.com/arrest-made-slaying-texas-high-152300247.html)
+- Dec 11 - [Special counsel Jack Smith asks Supreme Court to rule quickly on whether Trump can be prosecuted](https://news.yahoo.com/special-counsel-asks-supreme-court-174534157.html)
+- Dec 11 - ['Tremendous loss to America': South Carolina is dumping $105M of Disney investments due to 'structural rot' in the company — Treasurer warns the sane people are now gone. Time to sell DIS?](https://finance.yahoo.com/news/tremendous-loss-america-south-carolina-173000263.html)
+- Dec 11 - [High schooler benched in basketball game attacks coach in parking lot, Texas cops say](https://news.yahoo.com/high-schooler-benched-basketball-game-171958323.html)
+- Dec 11 - [A woman raped by her bible teacher from a controversial religious group is now helping other survivors of sexual abuse](https://www.yahoo.com/lifestyle/woman-raped-her-bible-teacher-171510915.html)
 <!-- feed end -->
 
 ### Onstream
