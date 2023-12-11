@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 11 - [CBS’ Robert Costa Astounded By Kevin McCarthy’s New Donald Trump Claim](https://news.yahoo.com/cbs-robert-costa-astounded-kevin-065558553.html)
+- Dec 11 - [Russian presidential hopeful vows to champion peace, women and a 'humane' country](https://news.yahoo.com/russian-presidential-hopeful-vows-champion-050359889.html)
 - Dec 11 - [More than 500 Harvard faculty members have signed a letter defending president Claudine Gay and urging the university not to remove her](https://news.yahoo.com/more-500-harvard-faculty-members-045949347.html)
 - Dec 11 - [Philippines military chief voices anger after latest confrontations with Beijing in South China Sea](https://news.yahoo.com/philippines-military-chief-voices-anger-044822650.html)
 - Dec 11 - [Whale joins swimmers close to Australian beach](https://news.yahoo.com/whale-joins-swimmers-close-australian-044333333.html)
-- Dec 10 - [Does Canned Tuna Need To Be Rinsed Before Eating?](https://www.yahoo.com/lifestyle/does-canned-tuna-rinsed-eating-234556324.html)
 <!-- feed end -->
 
 ### Onstream
