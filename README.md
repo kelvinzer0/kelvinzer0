@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 11 - [Wisconsin secretary of state calls for removal of fake Trump elector from elections commission](https://news.yahoo.com/wisconsin-secretary-state-calls-removal-153006307.html)
-- Dec 11 - [Supreme Court sides with 83-year-old woman forced to her knees during traffic stop](https://news.yahoo.com/supreme-court-sides-83-old-144817050.html)
-- Dec 11 - [US Supreme Court snubs challenge to gay 'conversion therapy' ban in Washington state](https://news.yahoo.com/us-supreme-court-snubs-challenge-144306273.html)
-- Dec 11 - [A tourist lost an $800K diamond ring in the Ritz in Paris — and unexpectedly got it back](https://news.yahoo.com/tourist-lost-800k-diamond-ring-142306448.html)
-- Dec 11 - [Explainer-Why China, the Philippines keep fighting over tiny shoal](https://news.yahoo.com/explainer-why-china-philippines-keep-131318933.html)
+- Dec 11 - [In-N-Out Burger just announced its Meridian opening date. Here’s what to know, Idaho](https://news.yahoo.com/n-burger-just-announced-meridian-162945261.html)
+- Dec 11 - [Alina Habba’s Bold—and Totally Wrong—Prediction about Her Client](https://news.yahoo.com/alina-habba-bold-totally-wrong-155540606.html)
+- Dec 11 - [Massachusetts city ranked as one of nation’s ‘most caring’, new survey says](https://news.yahoo.com/massachusetts-city-ranked-one-nation-152206427.html)
+- Dec 11 - [Trump should be barred from appealing reinstated fraud case gag order, NY AG says](https://news.yahoo.com/trump-barred-appealing-reinstated-fraud-152018081.html)
+- Dec 11 - [Oops! The Supreme Court Heard Another Case Built on Shameless Lies.](https://news.yahoo.com/oops-supreme-court-heard-another-150000724.html)
 <!-- feed end -->
 
 ### Onstream
