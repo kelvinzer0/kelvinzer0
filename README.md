@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [Giuliani’s Lawyer Whines That Defamation Damages Could ‘End’ Rudy](https://news.yahoo.com/giuliani-lawyer-whines-defamation-damages-212908480.html)
 - Dec 11 - [Wisconsin's Democratic attorney general vows to defend potential 2024 Trump victory in court](https://news.yahoo.com/wisconsins-democratic-attorney-general-vows-210018263.html)
+- Dec 11 - [Project Veritas CEO Jumps Ship After Finding ‘Evidence of Past Illegality’](https://www.yahoo.com/entertainment/project-veritas-ceo-jumps-ship-205050081.html)
 - Dec 11 - [Man sues NYC after he spent 27 years in prison, then was cleared in subway token clerk killing](https://news.yahoo.com/man-sues-nyc-spent-27-202713345.html)
-- Dec 11 - [Female prison guard ‘had secret phone sex with inmate’, court hears](https://news.yahoo.com/female-prison-guard-had-secret-202046180.html)
 - Dec 11 - [Todd Chrisley Talks 'Filthy' Prison, Including Animals in the Food and Photos of Him Sleeping](https://www.yahoo.com/entertainment/todd-chrisley-talks-filthy-prison-200108634.html)
-- Dec 11 - [Child playing online game dies by suicide in Texas, and Michigan boy charged, cops say](https://news.yahoo.com/child-playing-online-game-dies-192815748.html)
 <!-- feed end -->
 
 ### Onstream
