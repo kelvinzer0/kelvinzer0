@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [Racist remarks against Mexicans caught on camera in Disneyland bathroom](https://news.yahoo.com/racist-remarks-against-mexicans-caught-075536210.html)
 - Dec 11 - [CBS’ Robert Costa Astounded By Kevin McCarthy’s New Donald Trump Claim](https://news.yahoo.com/cbs-robert-costa-astounded-kevin-065558553.html)
+- Dec 11 - [India's top court upholds end of special status for Kashmir, orders polls](https://news.yahoo.com/indias-top-court-orders-elections-062015117.html)
 - Dec 11 - [Russian presidential hopeful vows to champion peace, women and a 'humane' country](https://news.yahoo.com/russian-presidential-hopeful-vows-champion-050359889.html)
 - Dec 11 - [More than 500 Harvard faculty members have signed a letter defending president Claudine Gay and urging the university not to remove her](https://news.yahoo.com/more-500-harvard-faculty-members-045949347.html)
-- Dec 11 - [Philippines military chief voices anger after latest confrontations with Beijing in South China Sea](https://news.yahoo.com/philippines-military-chief-voices-anger-044822650.html)
-- Dec 11 - [Whale joins swimmers close to Australian beach](https://news.yahoo.com/whale-joins-swimmers-close-australian-044333333.html)
 <!-- feed end -->
 
 ### Onstream
