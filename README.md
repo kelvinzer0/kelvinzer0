@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [Russia demands release of hostages in talks with Palestinians](https://news.yahoo.com/russia-demands-release-hostages-talks-123702361.html)
+- Dec 11 - [Deadly golf cart crash at Florida RV park sent driver sailing across pond, cops say](https://news.yahoo.com/deadly-golf-cart-crash-florida-122424493.html)
 - Dec 11 - [Iraq scrambles to contain fighting between US troops and Iran-backed groups, fearing Gaza spillover](https://news.yahoo.com/iraq-scrambles-contain-fighting-between-121657763.html)
 - Dec 11 - [CNN Legal Analyst Can't Believe Donald Trump Lawyer's Latest 'Nonsensical' Spin](https://news.yahoo.com/cnn-legal-analyst-cant-believe-105629553.html)
-- Dec 11 - [A man lost more than 150 pounds after retiring by walking and tracking macros. Here's his routine.](https://news.yahoo.com/man-lost-more-150-pounds-103501718.html)
-- Dec 11 - [Bernie Madoff is long gone. The lawyers are going strong](https://finance.yahoo.com/news/bernie-madoff-long-gone-lawyers-100316010.html)
-- Dec 11 - [Ohio woman arrested for shooting her 6-month-old grandchild in the head: 'It was on purpose'](https://news.yahoo.com/ohio-woman-arrested-shooting-her-083829234.html)
+- Dec 11 - [New Study Reveals The Personality Traits Associated With Dementia Risk](https://news.yahoo.com/study-reveals-personality-traits-associated-104529361.html)
 <!-- feed end -->
 
 ### Onstream
