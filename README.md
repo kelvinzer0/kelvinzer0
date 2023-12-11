@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 10 - [Macy's mulling $5.8 billion buyout offer: source](https://finance.yahoo.com/news/macys-mulling-58-billion-buyout-offer-source-230606275.html)
 - Dec 10 - [What to know about Trump’s decision to not testify again in New York civil fraud trial](https://news.yahoo.com/know-trump-decision-not-testify-220734101.html)
+- Dec 10 - [Trump says he won’t testify at NY civil fraud trial. Legal expert has theory why](https://news.yahoo.com/trump-says-won-t-testify-223618150.html)
 - Dec 10 - [Man dies after altercation with wife in Sacramento: Homicide justified, DA says](https://news.yahoo.com/man-dies-altercation-wife-sacramento-201001047.html)
 - Dec 10 - [Trump again defends infamous 'Access Hollywood' comments and warns Biden, 'Be very careful'](https://news.yahoo.com/trump-again-defends-infamous-access-194933497.html)
-- Dec 10 - [Israel-Gaza war: Video shows Gaza detainees allegedly 'surrendering guns' - what we know](https://news.yahoo.com/israel-gaza-war-video-shows-182123778.html)
-- Dec 10 - [Sunday morning homicide in Franklin Lakes confirmed, authorities investigate](https://news.yahoo.com/sunday-morning-homicide-franklin-lakes-182330504.html)
 <!-- feed end -->
 
 ### Onstream
