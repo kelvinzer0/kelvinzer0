@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 11 - [Wisconsin secretary of state calls for removal of fake Trump elector from elections commission](https://news.yahoo.com/wisconsin-secretary-state-calls-removal-153006307.html)
 - Dec 11 - [Supreme Court sides with 83-year-old woman forced to her knees during traffic stop](https://news.yahoo.com/supreme-court-sides-83-old-144817050.html)
+- Dec 11 - [US Supreme Court snubs challenge to gay 'conversion therapy' ban in Washington state](https://news.yahoo.com/us-supreme-court-snubs-challenge-144306273.html)
 - Dec 11 - [A tourist lost an $800K diamond ring in the Ritz in Paris — and unexpectedly got it back](https://news.yahoo.com/tourist-lost-800k-diamond-ring-142306448.html)
-- Dec 11 - [Russia demands release of hostages in talks with Palestinians](https://news.yahoo.com/russia-demands-release-hostages-talks-123702361.html)
-- Dec 11 - [Deadly golf cart crash at Florida RV park sent driver sailing across pond, cops say](https://news.yahoo.com/deadly-golf-cart-crash-florida-122424493.html)
-- Dec 11 - [Iraq scrambles to contain fighting between US troops and Iran-backed groups, fearing Gaza spillover](https://news.yahoo.com/iraq-scrambles-contain-fighting-between-121657763.html)
+- Dec 11 - [Explainer-Why China, the Philippines keep fighting over tiny shoal](https://news.yahoo.com/explainer-why-china-philippines-keep-131318933.html)
 <!-- feed end -->
 
 ### Onstream
