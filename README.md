@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Judge: Giuliani may have defamed Georgia election workers again outside DC courthouse](https://news.yahoo.com/judge-giuliani-may-defamed-georgia-151048426.html)
 - Dec 12 - [Muslim pupils ‘offended’ by Renaissance painting of nudes to be disciplined](https://news.yahoo.com/muslim-pupils-offended-renaissance-painting-143800176.html)
 - Dec 12 - [What is Buc-ee's building next to their store in Daytona Beach? We've got answers.](https://news.yahoo.com/buc-ees-building-next-store-132850824.html)
-- Dec 12 - [If Trump believes he has immunity, he should work with prosecutor Jack Smith](https://news.yahoo.com/trump-believes-immunity-prosecutor-jack-132628942.html)
 - Dec 12 - [Sen. Ron Johnson Squirms When CNN’s Kaitlan Collins Asks Him To Back Up Claim](https://news.yahoo.com/sen-ron-johnson-squirms-cnn-125738497.html)
 - Dec 12 - ['America will become a renter nation': Grant Cardone warns the US could see 100-year mortgages — says we might even rent our clothes. How to buy real estate without going deep into debt](https://finance.yahoo.com/news/america-become-renter-nation-grant-120000726.html)
 <!-- feed end -->
