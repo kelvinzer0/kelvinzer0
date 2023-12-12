@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Florida school board may seek ouster of Moms for Liberty co-founder over Republican sex scandal](https://news.yahoo.com/florida-school-board-may-seek-050853798.html)
 - Dec 12 - [Collins challenges GOP senator to back up his claim against Democrats. See his response](https://news.yahoo.com/collins-challenges-gop-senator-back-040914338.html)
 - Dec 12 - [US millennial women are now more likely to die in their late 20s and early 30s than any generation since the World War II era: report](https://news.yahoo.com/us-millennial-women-now-more-035722323.html)
+- Dec 12 - [Heart of Hawaii's historic Lahaina, burned in wildfire, reopens to residents and business owners](https://news.yahoo.com/heart-hawaiis-historic-lahaina-burned-023118700.html)
 - Dec 12 - [‘She fought her little butt off,’ 3-year-old becomes third victim of Las Vegas wrong-way-driver crash](https://news.yahoo.com/she-fought-her-little-butt-015731442.html)
-- Dec 12 - [Commercial Ship In Flames After Red Sea Missile Attack](https://news.yahoo.com/commercial-ship-flames-red-sea-012021848.html)
-- Dec 12 - [Exclusive: Former Mar-a-Lago employee-turned-witness repeatedly contacted by Trump and associates before documents charges](https://news.yahoo.com/exclusive-former-mar-lago-employee-010037595.html)
 <!-- feed end -->
 
 ### Onstream
