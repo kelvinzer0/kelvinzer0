@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [Todd Chrisley Speaks Out From PRISON!](https://www.yahoo.com/entertainment/todd-chrisley-speaks-prison-023256017.html)
+- Dec 12 - [‘She fought her little butt off,’ 3-year-old becomes third victim of Las Vegas wrong-way-driver crash](https://news.yahoo.com/she-fought-her-little-butt-015731442.html)
+- Dec 12 - [Commercial Ship In Flames After Red Sea Missile Attack](https://news.yahoo.com/commercial-ship-flames-red-sea-012021848.html)
 - Dec 12 - [Exclusive: Former Mar-a-Lago employee-turned-witness repeatedly contacted by Trump and associates before documents charges](https://news.yahoo.com/exclusive-former-mar-lago-employee-010037595.html)
 - Dec 12 - [UNLV gunman resigned as tenured professor after making sexual comment in class, former student says](https://news.yahoo.com/unlv-gunman-resigned-tenured-professor-002921308.html)
-- Dec 12 - ['Do I Look Like a Monster to You?': Natalia Grace, Accused of Trying to Kill Adoptive Parents, Speaks in New Docuseries](https://www.yahoo.com/entertainment/look-monster-natalia-grace-accused-001603671.html)
 - Dec 12 - [Opinion: Jack Smith’s ingenious response to Trump’s immunity defense](https://news.yahoo.com/opinion-trump-immunity-defense-rejected-214816046.html)
 <!-- feed end -->
 
