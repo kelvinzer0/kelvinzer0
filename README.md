@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [High school basketball player and family beat coach in parking lot after being benched during game](https://news.yahoo.com/high-school-basketball-player-family-101143140.html)
-- Dec 12 - [A man flew to the US without a passport or a ticket and only got caught once he landed in LA: FBI](https://news.yahoo.com/man-flew-us-without-passport-071011251.html)
-- Dec 12 - [A Colorado man's getting $400,000 after being arrested for a DUI, even though he passed breath and blood tests](https://news.yahoo.com/colorado-mans-getting-400-000-062233925.html)
-- Dec 12 - [Utahn urges others to be careful after thieves swipe her credit cards at Riverton restaurant](https://news.yahoo.com/utahn-urges-others-careful-thieves-051524905.html)
-- Dec 12 - [Florida school board may seek ouster of Moms for Liberty co-founder over Republican sex scandal](https://news.yahoo.com/florida-school-board-may-seek-050853798.html)
+- Dec 12 - ['America will become a renter nation': Grant Cardone warns the US could see 100-year mortgages — says we might even rent our clothes. How to buy real estate without going deep into debt](https://finance.yahoo.com/news/america-become-renter-nation-grant-120000726.html)
+- Dec 12 - [Yes, Trump can win the 2024 election. Here are four reasons why](https://news.yahoo.com/yes-trump-win-2024-election-110228100.html)
+- Dec 12 - [Column: This porn company makes millions by shaming porn consumers](https://finance.yahoo.com/news/column-porn-company-makes-millions-110000970.html)
+- Dec 12 - [Zooey Deschanel and Ex-Husband Jacob Pechenik Talk Running Lettuce Grow During Their Divorce](https://www.yahoo.com/entertainment/zooey-deschanel-ex-husband-jacob-103000795.html)
+- Dec 12 - [High school basketball player and family beat coach in parking lot after being benched during game: Police](https://news.yahoo.com/high-school-basketball-player-family-101143140.html)
 <!-- feed end -->
 
 ### Onstream
