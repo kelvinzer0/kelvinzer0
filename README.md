@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Commercial Ship In Flames After Red Sea Missile Attack](https://news.yahoo.com/commercial-ship-flames-red-sea-012021848.html)
+- Dec 12 - [Exclusive: Former Mar-a-Lago employee-turned-witness repeatedly contacted by Trump and associates before documents charges](https://news.yahoo.com/exclusive-former-mar-lago-employee-010037595.html)
 - Dec 12 - [UNLV gunman resigned as tenured professor after making sexual comment in class, former student says](https://news.yahoo.com/unlv-gunman-resigned-tenured-professor-002921308.html)
 - Dec 12 - ['Do I Look Like a Monster to You?': Natalia Grace, Accused of Trying to Kill Adoptive Parents, Speaks in New Docuseries](https://www.yahoo.com/entertainment/look-monster-natalia-grace-accused-001603671.html)
-- Dec 11 - [Mario Lopez Sues Construction Company For Over $1M In Damages To LA Home](https://www.yahoo.com/entertainment/mario-lopez-sues-construction-company-223321294.html)
 - Dec 11 - [Giuliani’s Lawyer Whines That Defamation Damages Could ‘End’ Rudy](https://news.yahoo.com/giuliani-lawyer-whines-defamation-damages-212908480.html)
-- Dec 11 - [Wisconsin's Democratic attorney general vows to defend potential 2024 Trump victory in court](https://news.yahoo.com/wisconsins-democratic-attorney-general-vows-210018263.html)
 <!-- feed end -->
 
 ### Onstream
