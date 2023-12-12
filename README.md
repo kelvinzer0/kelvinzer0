@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [Police release body camera video showing an officer repeatedly striking pinned woman](https://news.yahoo.com/police-release-body-camera-video-204400419.html)
-- Dec 12 - [New police videos show broader view of violent encounter between woman and North Carolina officers](https://news.yahoo.com/police-videos-show-broader-view-200550839.html)
-- Dec 12 - [Two more House lawmakers announce they won’t run for reelection](https://news.yahoo.com/democratic-rep-anna-eshoo-california-183824052.html)
-- Dec 12 - [The Crime These Adoptive Parents Committed Brought Even the Judge to Tears](https://news.yahoo.com/crime-adoptive-parents-committed-brought-191627690.html)
-- Dec 12 - [Michigan landlord punished after hiding bodies of renters he claimed he killed in self-defense](https://news.yahoo.com/michigan-landlord-punished-hiding-bodies-181406155.html)
+- Dec 12 - [Inmate who had ‘secret phone sex’ with female guard threatened staff when she was sacked, court told](https://news.yahoo.com/inmate-had-secret-phone-sex-214612582.html)
+- Dec 12 - [Israel's UN envoy holds up Hamas phone number](https://news.yahoo.com/israels-un-envoy-holds-hamas-214034328.html)
+- Dec 12 - [‘Ghost’-like creature with ‘ample’ genitalia found at power plant. It’s a new species](https://news.yahoo.com/ghost-creature-ample-genitalia-found-210334631.html)
+- Dec 12 - [Donald Trump says he'll sell you a piece of the 'priceless' suit he wore in his mugshot — but make sure to read the fine print](https://finance.yahoo.com/news/donald-trump-says-hell-sell-205756826.html)
+- Dec 12 - [North Carolina officer who repeatedly struck woman during arrest gets 40-hour suspension](https://news.yahoo.com/police-videos-show-broader-view-200550839.html)
 <!-- feed end -->
 
 ### Onstream
