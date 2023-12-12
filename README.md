@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Beachgoers Touch Whale in Distress Before It Died](https://news.yahoo.com/beachgoers-touch-whale-distress-died-183155861.html)
 - Dec 12 - [Florida dentist gets life in prison in death of his ex-brother-in-law, a prominent professor](https://news.yahoo.com/florida-dentist-gets-life-prison-174338420.html)
 - Dec 12 - [Judge slams Rudy Giuliani for continuing to lie about election workers while he's on trial for lying about them](https://news.yahoo.com/judge-slams-rudy-giuliani-continuing-172700539.html)
+- Dec 12 - [Far-right Polish lawmaker uses fire extinguisher on Hanukkah candles in parliament](https://news.yahoo.com/far-polish-lawmaker-uses-fire-171424881.html)
 - Dec 12 - [Jack Smith Is Going to Expose Trump—With His Own Cell Phone Data](https://news.yahoo.com/jack-smith-going-expose-trump-154258210.html)
-- Dec 12 - [Kentucky woman seeking court approval for abortion learned her embryo no longer has cardiac activity](https://news.yahoo.com/kentucky-woman-seeking-court-approval-151234391.html)
-- Dec 12 - [Muslim pupils ‘offended’ by Renaissance painting of nudes to be disciplined](https://news.yahoo.com/muslim-pupils-offended-renaissance-painting-143800176.html)
 <!-- feed end -->
 
 ### Onstream
