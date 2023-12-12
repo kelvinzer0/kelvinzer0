@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [High school basketball player and family beat coach in parking lot after being benched during game](https://news.yahoo.com/high-school-basketball-player-family-101143140.html)
 - Dec 12 - [A man flew to the US without a passport or a ticket and only got caught once he landed in LA: FBI](https://news.yahoo.com/man-flew-us-without-passport-071011251.html)
 - Dec 12 - [A Colorado man's getting $400,000 after being arrested for a DUI, even though he passed breath and blood tests](https://news.yahoo.com/colorado-mans-getting-400-000-062233925.html)
+- Dec 12 - [Utahn urges others to be careful after thieves swipe her credit cards at Riverton restaurant](https://news.yahoo.com/utahn-urges-others-careful-thieves-051524905.html)
 - Dec 12 - [Florida school board may seek ouster of Moms for Liberty co-founder over Republican sex scandal](https://news.yahoo.com/florida-school-board-may-seek-050853798.html)
-- Dec 12 - [Collins challenges GOP senator to back up his claim against Democrats. See his response](https://news.yahoo.com/collins-challenges-gop-senator-back-040914338.html)
-- Dec 12 - [Surveillance video helped prove Florida man's 'stand your ground' claim, attorney says](https://news.yahoo.com/surveillance-video-helped-prove-florida-040615752.html)
 <!-- feed end -->
 
 ### Onstream
