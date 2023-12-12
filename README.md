@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Collins challenges GOP senator to back up his claim against Democrats. See his response](https://news.yahoo.com/collins-challenges-gop-senator-back-040914338.html)
+- Dec 12 - [US millennial women are now more likely to die in their late 20s and early 30s than any generation since the World War II era: report](https://news.yahoo.com/us-millennial-women-now-more-035722323.html)
 - Dec 12 - [‘She fought her little butt off,’ 3-year-old becomes third victim of Las Vegas wrong-way-driver crash](https://news.yahoo.com/she-fought-her-little-butt-015731442.html)
 - Dec 12 - [Commercial Ship In Flames After Red Sea Missile Attack](https://news.yahoo.com/commercial-ship-flames-red-sea-012021848.html)
 - Dec 12 - [Exclusive: Former Mar-a-Lago employee-turned-witness repeatedly contacted by Trump and associates before documents charges](https://news.yahoo.com/exclusive-former-mar-lago-employee-010037595.html)
-- Dec 12 - [UNLV gunman resigned as tenured professor after making sexual comment in class, former student says](https://news.yahoo.com/unlv-gunman-resigned-tenured-professor-002921308.html)
-- Dec 12 - [Opinion: Jack Smith’s ingenious response to Trump’s immunity defense](https://news.yahoo.com/opinion-trump-immunity-defense-rejected-214816046.html)
 <!-- feed end -->
 
 ### Onstream
