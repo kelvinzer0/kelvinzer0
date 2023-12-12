@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [Judge shreds Rudy Giuliani's plans to spread the Big Lie on the stand: "Perjuring himself"](https://news.yahoo.com/judge-shreds-rudy-giulianis-plans-181304398.html)
-- Dec 12 - [Florida dentist gets life in prison in death of his ex-brother-in-law, a prominent professor](https://news.yahoo.com/florida-dentist-gets-life-prison-174338420.html)
-- Dec 12 - ['A positive influence': Colleagues, friends remember Erie TV news anchor Emily Matson, 42](https://news.yahoo.com/positive-influence-colleagues-friends-remember-174256385.html)
-- Dec 12 - [Far-right Polish lawmaker uses fire extinguisher on Hanukkah candles in parliament](https://news.yahoo.com/far-polish-lawmaker-uses-fire-171424881.html)
-- Dec 12 - [Iranian foreign minister says Israel, US cannot wipe out Hamas](https://news.yahoo.com/iranian-foreign-minister-says-israel-155035284.html)
+- Dec 12 - [Police release body camera video showing an officer repeatedly striking pinned woman](https://news.yahoo.com/police-release-body-camera-video-204400419.html)
+- Dec 12 - [New police videos show broader view of violent encounter between woman and North Carolina officers](https://news.yahoo.com/police-videos-show-broader-view-200550839.html)
+- Dec 12 - [Two more House lawmakers announce they won’t run for reelection](https://news.yahoo.com/democratic-rep-anna-eshoo-california-183824052.html)
+- Dec 12 - [The Crime These Adoptive Parents Committed Brought Even the Judge to Tears](https://news.yahoo.com/crime-adoptive-parents-committed-brought-191627690.html)
+- Dec 12 - [Michigan landlord punished after hiding bodies of renters he claimed he killed in self-defense](https://news.yahoo.com/michigan-landlord-punished-hiding-bodies-181406155.html)
 <!-- feed end -->
 
 ### Onstream
