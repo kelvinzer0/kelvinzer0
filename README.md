@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [US consumer prices unexpectedly rise in November](https://finance.yahoo.com/news/us-consumer-prices-unexpectedly-rise-134452319.html)
+- Dec 12 - [Muslim pupils ‘offended’ by Renaissance painting of nudes to be disciplined](https://news.yahoo.com/muslim-pupils-offended-renaissance-painting-143800176.html)
+- Dec 12 - [What is Buc-ee's building next to their store in Daytona Beach? We've got answers.](https://news.yahoo.com/buc-ees-building-next-store-132850824.html)
+- Dec 12 - [If Trump believes he has immunity, he should work with prosecutor Jack Smith](https://news.yahoo.com/trump-believes-immunity-prosecutor-jack-132628942.html)
 - Dec 12 - [Sen. Ron Johnson Squirms When CNN’s Kaitlan Collins Asks Him To Back Up Claim](https://news.yahoo.com/sen-ron-johnson-squirms-cnn-125738497.html)
 - Dec 12 - ['America will become a renter nation': Grant Cardone warns the US could see 100-year mortgages — says we might even rent our clothes. How to buy real estate without going deep into debt](https://finance.yahoo.com/news/america-become-renter-nation-grant-120000726.html)
-- Dec 12 - [Yes, Trump can win the 2024 election. Here are four reasons why](https://news.yahoo.com/yes-trump-win-2024-election-110228100.html)
-- Dec 12 - [Column: This porn company makes millions by shaming porn consumers](https://finance.yahoo.com/news/column-porn-company-makes-millions-110000970.html)
 <!-- feed end -->
 
 ### Onstream
