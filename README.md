@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [A former Los Angeles police detective for years hid the truth about how she killed her ex's new wife. Now, she could go free.](https://news.yahoo.com/former-los-angeles-police-detective-221644771.html)
+- Dec 12 - [GM says safety is a reason it's dropping Apple CarPlay, Android Auto](https://www.autoblog.com/2023/12/12/gm-safety-apple-carplay-android-auto-deletion-reasoning/)
 - Dec 12 - [Inmate who had ‘secret phone sex’ with female guard threatened staff when she was sacked, court told](https://news.yahoo.com/inmate-had-secret-phone-sex-214612582.html)
-- Dec 12 - [Israel's UN envoy holds up Hamas phone number](https://news.yahoo.com/israels-un-envoy-holds-hamas-214034328.html)
 - Dec 12 - [‘Ghost’-like creature with ‘ample’ genitalia found at power plant. It’s a new species](https://news.yahoo.com/ghost-creature-ample-genitalia-found-210334631.html)
 - Dec 12 - [Donald Trump says he'll sell you a piece of the 'priceless' suit he wore in his mugshot — but make sure to read the fine print](https://finance.yahoo.com/news/donald-trump-says-hell-sell-205756826.html)
-- Dec 12 - [North Carolina officer who repeatedly struck woman during arrest gets 40-hour suspension](https://news.yahoo.com/police-videos-show-broader-view-200550839.html)
 <!-- feed end -->
 
 ### Onstream
