@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 12 - [Beachgoers Touch Whale in Distress Before It Died](https://news.yahoo.com/beachgoers-touch-whale-distress-died-183155861.html)
+- Dec 12 - [Judge shreds Rudy Giuliani's plans to spread the Big Lie on the stand: "Perjuring himself"](https://news.yahoo.com/judge-shreds-rudy-giulianis-plans-181304398.html)
 - Dec 12 - [Florida dentist gets life in prison in death of his ex-brother-in-law, a prominent professor](https://news.yahoo.com/florida-dentist-gets-life-prison-174338420.html)
-- Dec 12 - [Judge slams Rudy Giuliani for continuing to lie about election workers while he's on trial for lying about them](https://news.yahoo.com/judge-slams-rudy-giuliani-continuing-172700539.html)
+- Dec 12 - ['A positive influence': Colleagues, friends remember Erie TV news anchor Emily Matson, 42](https://news.yahoo.com/positive-influence-colleagues-friends-remember-174256385.html)
 - Dec 12 - [Far-right Polish lawmaker uses fire extinguisher on Hanukkah candles in parliament](https://news.yahoo.com/far-polish-lawmaker-uses-fire-171424881.html)
-- Dec 12 - [Jack Smith Is Going to Expose Trump—With His Own Cell Phone Data](https://news.yahoo.com/jack-smith-going-expose-trump-154258210.html)
+- Dec 12 - [Iranian foreign minister says Israel, US cannot wipe out Hamas](https://news.yahoo.com/iranian-foreign-minister-says-israel-155035284.html)
 <!-- feed end -->
 
 ### Onstream
