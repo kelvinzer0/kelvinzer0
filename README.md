@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 12 - [Sen. Ron Johnson Squirms When CNN’s Kaitlan Collins Asks Him To Back Up Claim](https://news.yahoo.com/sen-ron-johnson-squirms-cnn-125738497.html)
 - Dec 12 - ['America will become a renter nation': Grant Cardone warns the US could see 100-year mortgages — says we might even rent our clothes. How to buy real estate without going deep into debt](https://finance.yahoo.com/news/america-become-renter-nation-grant-120000726.html)
 - Dec 12 - [Yes, Trump can win the 2024 election. Here are four reasons why](https://news.yahoo.com/yes-trump-win-2024-election-110228100.html)
 - Dec 12 - [Column: This porn company makes millions by shaming porn consumers](https://finance.yahoo.com/news/column-porn-company-makes-millions-110000970.html)
-- Dec 12 - [Zooey Deschanel and Ex-Husband Jacob Pechenik Talk Running Lettuce Grow During Their Divorce](https://www.yahoo.com/entertainment/zooey-deschanel-ex-husband-jacob-103000795.html)
 - Dec 12 - [High school basketball player and family beat coach in parking lot after being benched during game: Police](https://news.yahoo.com/high-school-basketball-player-family-101143140.html)
 <!-- feed end -->
 
