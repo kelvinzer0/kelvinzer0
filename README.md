@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [UAE's Jaber, oil boss who brokered 'beginning of end' for fossil fuels](https://news.yahoo.com/uaes-jaber-oil-boss-brokered-104403921.html)
+- Dec 13 - [Closed: Well-known Fort Myers sports bar, restaurant suddenly shutters its doors](https://www.yahoo.com/lifestyle/closed-well-known-fort-myers-103117464.html)
 - Dec 13 - ['Russia is waking up': a tango-dancing soldier's wife finds purpose on Russian home front](https://news.yahoo.com/russia-waking-tango-dancing-soldiers-090118235.html)
-- Dec 13 - [Ambush kills 9 Israeli soldiers in Gaza City, where battles rage weeks into devastating offensive](https://news.yahoo.com/ambush-kills-7-israeli-soldiers-085033444.html)
-- Dec 13 - [‘What Is Going On?!?’: Jimmy Kimmel Stunned By Donald Trump’s Latest Money Stunt](https://www.yahoo.com/entertainment/going-jimmy-kimmel-stunned-donald-071408217.html)
-- Dec 13 - [Amid outcry over Gaza tactics, videos of soldiers acting maliciously create new headache for Israel](https://news.yahoo.com/amid-outcry-over-gaza-tactics-050440482.html)
+- Dec 13 - [Missouri woman's family believes her death in motel, ruled suicide, was murder: 'Most horrible case'](https://news.yahoo.com/missouri-womans-family-believes-her-090055869.html)
+- Dec 13 - [Desperate and near starvation, his wife drove him 1,000 kilometres for the care that saved him](https://news.yahoo.com/desperate-near-starvation-wife-drove-090000049.html)
+- Dec 13 - [Florida school board approves resolution calling for Bridget Ziegler to resign over Republican sex scandal](https://news.yahoo.com/florida-school-board-approves-resolution-075151275.html)
 <!-- feed end -->
 
 ### Onstream
