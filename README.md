@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Trump civil fraud trial testimony concludes](https://news.yahoo.com/trump-civil-fraud-trial-testimony-174104817.html)
+- Dec 13 - [Exclusive: Recordings describe 2020 Oval Office photo-op where Trump was briefed on fake electors and January 6](https://news.yahoo.com/exclusive-recordings-describe-2020-oval-161011185.html)
+- Dec 13 - [Bystander who chased and shot Black man after traffic incident in 2019 found guilty](https://news.yahoo.com/bystander-chased-shot-black-man-174548272.html)
+- Dec 13 - [Trump civil fraud trial testimony concludes, verdict expected in early 2024](https://news.yahoo.com/trump-civil-fraud-trial-testimony-174104817.html)
 - Dec 13 - [Trump Once Accused Warren Buffett Of Tax Evasion, Despite His Own Refusal To Release Tax Returns — Buffett Fires Back: 'I Have Copies Of All 72 Of My Returns'](https://finance.yahoo.com/news/trump-once-accused-warren-buffett-172440511.html)
-- Dec 13 - [Appeals court denies Trump's 'presidential immunity' argument in defamation lawsuit](https://news.yahoo.com/appeals-court-denies-trumps-presidential-171744037.html)
-- Dec 13 - [Luke Combs Isn’t Suing a Fan for Fake Merch. Instead, He’s Sending Her Money](https://www.yahoo.com/entertainment/luke-combs-isn-t-suing-161826317.html)
-- Dec 13 - [16 Dizzying Screenshots That Made Me Do A Triple-Take Before I Realized What Was Going On](https://www.yahoo.com/lifestyle/16-dizzying-screenshots-made-triple-161602425.html)
+- Dec 13 - [Republicans Rage After Hunter Biden Snubs Subpoena](https://news.yahoo.com/republicans-rage-hunter-biden-snubs-164608052.html)
 <!-- feed end -->
 
 ### Onstream
