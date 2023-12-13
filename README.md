@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Multi-vehicle crash leads to major Modesto road closure, diesel spill. Here’s what caused it](https://news.yahoo.com/multi-vehicle-crash-leads-major-182126606.html)
+- Dec 13 - [Woman gets 70 years in prison for killing two bicyclists in Michigan charity ride](https://news.yahoo.com/woman-gets-70-years-prison-202452873.html)
+- Dec 13 - [Rudy Giuliani caused $47.5 million in reputational damage to 2 election workers he defamed, expert testifies at trial](https://news.yahoo.com/rudy-giuliani-caused-47-5-201638276.html)
+- Dec 13 - [Luke Combs ‘Sick to My Stomach’ to Learn He Won $250K Judgment Against Convalescing Fan Who Made Tumblers; Says He Will Raise Funds for Her](https://www.yahoo.com/entertainment/luke-combs-sick-stomach-learn-193049961.html)
 - Dec 13 - [Exclusive: Recordings describe 2020 Oval Office photo-op where Trump was briefed on fake electors and January 6](https://news.yahoo.com/exclusive-recordings-describe-2020-oval-161011185.html)
 - Dec 13 - [Bystander who chased and shot Black man after traffic incident in 2019 found guilty](https://news.yahoo.com/bystander-chased-shot-black-man-174548272.html)
-- Dec 13 - [Trump Once Accused Warren Buffett Of Tax Evasion, Despite His Own Refusal To Release Tax Returns — Buffett Fires Back: 'I Have Copies Of All 72 Of My Returns'](https://finance.yahoo.com/news/trump-once-accused-warren-buffett-172440511.html)
-- Dec 13 - [Appeals court denies Trump's 'presidential immunity' argument in defamation lawsuit](https://news.yahoo.com/appeals-court-denies-trumps-presidential-171744037.html)
 <!-- feed end -->
 
 ### Onstream
