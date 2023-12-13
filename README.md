@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 13 - [Amid outcry over Gaza tactics, videos of soldiers acting maliciously create new headache for Israel](https://news.yahoo.com/amid-outcry-over-gaza-tactics-050440482.html)
+- Dec 13 - [7 out of 70-plus men arrested during F1 sex-trafficking operation in Las Vegas thought they were meeting teenager, police say](https://news.yahoo.com/7-70-plus-men-arrested-045100933.html)
 - Dec 13 - [Pennsylvania TV News Anchor Emily Matson’s Cause Of Death Revealed](https://www.yahoo.com/entertainment/emily-matson-dies-longtime-local-021738714.html)
+- Dec 13 - [Lawrence: Justice Kavanaugh destroyed Trump immunity claim 25 years ago](https://news.yahoo.com/lawrence-justice-kavanaugh-destroyed-trump-043805399.html)
 - Dec 13 - [Migrant who thanked Biden after entering US illegally is already in NYC with court date set for October 2024](https://news.yahoo.com/migrant-thanked-biden-entering-us-021450874.html)
-- Dec 13 - [These 8 countries joined US and Israel in opposing UN resolution on Gaza](https://news.yahoo.com/8-countries-joined-us-israel-005030434.html)
-- Dec 13 - [US agency will not reinstate $900 million subsidy for SpaceX Starlink unit](https://finance.yahoo.com/news/us-agency-not-reinstate-900-002801588.html)
 <!-- feed end -->
 
 ### Onstream
