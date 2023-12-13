@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 13 - [Los Angeles freeway blocked by Jewish protesters against Gaza war](https://news.yahoo.com/los-angeles-freeway-blocked-jewish-210316200.html)
 - Dec 13 - [Woman gets 70 years in prison for killing two bicyclists in Michigan charity ride](https://news.yahoo.com/woman-gets-70-years-prison-202452873.html)
-- Dec 13 - [Rudy Giuliani caused $47.5 million in reputational damage to 2 election workers he defamed, expert testifies at trial](https://news.yahoo.com/rudy-giuliani-caused-47-5-201638276.html)
+- Dec 13 - [Oprah reveals she's on weight-loss medication: 'I'm absolutely done with the shaming'](https://www.yahoo.com/lifestyle/oprah-weight-loss-drugs-001133214.html)
 - Dec 13 - [Luke Combs ‘Sick to My Stomach’ to Learn He Won $250K Judgment Against Convalescing Fan Who Made Tumblers; Says He Will Raise Funds for Her](https://www.yahoo.com/entertainment/luke-combs-sick-stomach-learn-193049961.html)
-- Dec 13 - [Exclusive: Recordings describe 2020 Oval Office photo-op where Trump was briefed on fake electors and January 6](https://news.yahoo.com/exclusive-recordings-describe-2020-oval-161011185.html)
-- Dec 13 - [Bystander who chased and shot Black man after traffic incident in 2019 found guilty](https://news.yahoo.com/bystander-chased-shot-black-man-174548272.html)
+- Dec 13 - [News 5 Cleveland anchor Danita Harris to leave station after nearly 25 years](https://news.yahoo.com/news-5-cleveland-anchor-danita-191554898.html)
 <!-- feed end -->
 
 ### Onstream
