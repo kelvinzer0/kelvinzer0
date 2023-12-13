@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Oprah Winfrey Reveals She Uses Weight-Loss Medication as a ‘Maintenance Tool': ‘I’m Absolutely Done with the Shaming’ (Exclusive)](https://www.yahoo.com/entertainment/oprah-winfrey-reveals-she-uses-163155232.html)
-- Dec 13 - [Exclusive: Recordings describe 2020 Oval Office photo-op where Trump was briefed on fake electors and January 6](https://news.yahoo.com/exclusive-recordings-describe-2020-oval-161011185.html)
-- Dec 13 - [Tourist accused of sexually molesting statue of a beloved Florida manatee, cops say](https://news.yahoo.com/tourist-accused-sexually-molesting-statue-160224606.html)
-- Dec 13 - [Supreme Court will hear a case that could undo Capitol riot charge against hundreds, including Trump](https://news.yahoo.com/supreme-court-hear-case-could-143456759.html)
-- Dec 13 - [Trump loses immunity bid in Carroll defamation suit, to seek Supreme Court review](https://news.yahoo.com/court-rejects-donald-trumps-request-141737899.html)
+- Dec 13 - [Trump civil fraud trial testimony concludes](https://news.yahoo.com/trump-civil-fraud-trial-testimony-174104817.html)
+- Dec 13 - [Trump Once Accused Warren Buffett Of Tax Evasion, Despite His Own Refusal To Release Tax Returns — Buffett Fires Back: 'I Have Copies Of All 72 Of My Returns'](https://finance.yahoo.com/news/trump-once-accused-warren-buffett-172440511.html)
+- Dec 13 - [Appeals court denies Trump's 'presidential immunity' argument in defamation lawsuit](https://news.yahoo.com/appeals-court-denies-trumps-presidential-171744037.html)
+- Dec 13 - [Luke Combs Isn’t Suing a Fan for Fake Merch. Instead, He’s Sending Her Money](https://www.yahoo.com/entertainment/luke-combs-isn-t-suing-161826317.html)
+- Dec 13 - [16 Dizzying Screenshots That Made Me Do A Triple-Take Before I Realized What Was Going On](https://www.yahoo.com/lifestyle/16-dizzying-screenshots-made-triple-161602425.html)
 <!-- feed end -->
 
 ### Onstream
