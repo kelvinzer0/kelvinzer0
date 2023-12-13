@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Black man choked and shocked by police died because of drugs, officers' lawyers argue at trial](https://news.yahoo.com/black-man-choked-shocked-police-014711484.html)
 - Dec 13 - [US agency will not reinstate $900 million subsidy for SpaceX Starlink unit](https://finance.yahoo.com/news/us-agency-not-reinstate-900-002801588.html)
 - Dec 12 - [Donald Trump’s lawyers again ask for early verdict in civil fraud trial, judge says 'no way'](https://news.yahoo.com/donald-trump-lawyers-again-ask-234122894.html)
-- Dec 12 - [Former Microsoft CEO Steve Ballmer is on pace to earn $1 billion in dividends annually from his massive stake in the software company](https://finance.yahoo.com/news/former-microsoft-ceo-steve-ballmer-232012438.html)
 - Dec 12 - [A new COVID variant, HV.1, is now dominant. These are its most common symptoms](https://news.yahoo.com/covid-variant-hv-1-now-023335830.html)
+- Dec 12 - [A New York Court May Have Just Determined Control of the House in 2024](https://news.yahoo.com/york-court-may-just-determined-231853224.html)
+- Dec 12 - [Israel Begins Flooding Hamas’ Tunnels in Gaza With Seawater: Report](https://news.yahoo.com/israel-begins-flooding-hamas-tunnels-230510405.html)
 <!-- feed end -->
 
 ### Onstream
