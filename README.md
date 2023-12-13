@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [Los Angeles freeway blocked by Jewish protesters against Gaza war](https://news.yahoo.com/los-angeles-freeway-blocked-jewish-210316200.html)
-- Dec 13 - [Woman gets 70 years in prison for killing two bicyclists in Michigan charity ride](https://news.yahoo.com/woman-gets-70-years-prison-202452873.html)
-- Dec 13 - [Oprah reveals she's on weight-loss medication: 'I'm absolutely done with the shaming'](https://www.yahoo.com/lifestyle/oprah-weight-loss-drugs-001133214.html)
-- Dec 13 - [Luke Combs ‘Sick to My Stomach’ to Learn He Won $250K Judgment Against Convalescing Fan Who Made Tumblers; Says He Will Raise Funds for Her](https://www.yahoo.com/entertainment/luke-combs-sick-stomach-learn-193049961.html)
-- Dec 13 - [News 5 Cleveland anchor Danita Harris to leave station after nearly 25 years](https://news.yahoo.com/news-5-cleveland-anchor-danita-191554898.html)
+- Dec 13 - [House Republicans authorize Joe Biden impeachment investigation in major escalation](https://news.yahoo.com/house-republicans-authorize-joe-biden-225031220.html)
+- Dec 13 - [Boaters spot orcas ‘zig zagging’ in California. Then came a ‘jaw dropping’ attack](https://news.yahoo.com/boaters-spot-orcas-zig-zagging-224837037.html)
+- Dec 13 - [Trump fraud trial judge evacuated from Manhattan courthouse soon after testimony ends](https://news.yahoo.com/trump-fraud-trial-judge-evacuated-222146157.html)
+- Dec 13 - [San Fran tech founder is accused of forcing his assistant into a 'slave contract' that called him 'Master' before trafficking her for sex around the world](https://finance.yahoo.com/news/san-fran-tech-founder-accused-215800018.html)
+- Dec 13 - [‘Disgusted and...shocked’: Jewish support group denounces Trudeau government’s ‘hypocritical’ foreign policy as Canada calls for ceasefire in Gaza](https://news.yahoo.com/ceasefire-trudeau-canada-jewish-affairs-palestine-reaction-215537574.html)
 <!-- feed end -->
 
 ### Onstream
