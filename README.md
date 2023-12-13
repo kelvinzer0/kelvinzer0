@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 13 - [Pennsylvania TV News Anchor Emily Matson’s Cause Of Death Revealed](https://www.yahoo.com/entertainment/emily-matson-dies-longtime-local-021738714.html)
 - Dec 13 - [US agency will not reinstate $900 million subsidy for SpaceX Starlink unit](https://finance.yahoo.com/news/us-agency-not-reinstate-900-002801588.html)
 - Dec 12 - [Donald Trump’s lawyers again ask for early verdict in civil fraud trial, judge says 'no way'](https://news.yahoo.com/donald-trump-lawyers-again-ask-234122894.html)
 - Dec 12 - [A new COVID variant, HV.1, is now dominant. These are its most common symptoms](https://news.yahoo.com/covid-variant-hv-1-now-023335830.html)
 - Dec 12 - [A New York Court May Have Just Determined Control of the House in 2024](https://news.yahoo.com/york-court-may-just-determined-231853224.html)
-- Dec 12 - [Israel Begins Flooding Hamas’ Tunnels in Gaza With Seawater: Report](https://news.yahoo.com/israel-begins-flooding-hamas-tunnels-230510405.html)
 <!-- feed end -->
 
 ### Onstream
