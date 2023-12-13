@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - ['Daily Show' Guest Host Kal Penn Drops C-Bomb In Nickname For Trump's Defense](https://www.yahoo.com/entertainment/daily-show-guest-host-kal-123123407.html)
+- Dec 13 - [Wartime Palestinian poll shows surge in Hamas support, close to 90% want US-backed Abbas to resign](https://news.yahoo.com/wartime-palestinian-poll-shows-surge-131542031.html)
 - Dec 13 - [Closed: Well-known Fort Myers sports bar, restaurant suddenly shutters its doors](https://www.yahoo.com/lifestyle/closed-well-known-fort-myers-103117464.html)
 - Dec 13 - ['Russia is waking up': a tango-dancing soldier's wife finds purpose on Russian home front](https://news.yahoo.com/russia-waking-tango-dancing-soldiers-090118235.html)
-- Dec 13 - [Missouri woman's family believes her death in motel, ruled suicide, was murder: 'Most horrible case'](https://news.yahoo.com/missouri-womans-family-believes-her-090055869.html)
 - Dec 13 - [Desperate and near starvation, his wife drove him 1,000 kilometres for the care that saved him](https://news.yahoo.com/desperate-near-starvation-wife-drove-090000049.html)
+- Dec 13 - [Ambush kills 9 Israeli soldiers in Gaza City, where battles rage weeks into devastating offensive](https://news.yahoo.com/ambush-kills-7-israeli-soldiers-085033444.html)
 <!-- feed end -->
 
 ### Onstream
