@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 13 - [Amid outcry over Gaza tactics, videos of soldiers acting maliciously create new headache for Israel](https://news.yahoo.com/amid-outcry-over-gaza-tactics-050440482.html)
 - Dec 13 - [Pennsylvania TV News Anchor Emily Matson’s Cause Of Death Revealed](https://www.yahoo.com/entertainment/emily-matson-dies-longtime-local-021738714.html)
+- Dec 13 - [Migrant who thanked Biden after entering US illegally is already in NYC with court date set for October 2024](https://news.yahoo.com/migrant-thanked-biden-entering-us-021450874.html)
+- Dec 13 - [These 8 countries joined US and Israel in opposing UN resolution on Gaza](https://news.yahoo.com/8-countries-joined-us-israel-005030434.html)
 - Dec 13 - [US agency will not reinstate $900 million subsidy for SpaceX Starlink unit](https://finance.yahoo.com/news/us-agency-not-reinstate-900-002801588.html)
-- Dec 12 - [Donald Trump’s lawyers again ask for early verdict in civil fraud trial, judge says 'no way'](https://news.yahoo.com/donald-trump-lawyers-again-ask-234122894.html)
-- Dec 12 - [A new COVID variant, HV.1, is now dominant. These are its most common symptoms](https://news.yahoo.com/covid-variant-hv-1-now-023335830.html)
-- Dec 12 - [A New York Court May Have Just Determined Control of the House in 2024](https://news.yahoo.com/york-court-may-just-determined-231853224.html)
 <!-- feed end -->
 
 ### Onstream
