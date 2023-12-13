@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 13 - ['Russia is waking up': a tango-dancing soldier's wife finds purpose on Russian home front](https://news.yahoo.com/russia-waking-tango-dancing-soldiers-090118235.html)
+- Dec 13 - [Ambush kills 7 Israeli soldiers in Gaza City, where battles rage weeks into devastating offensive](https://news.yahoo.com/ambush-kills-7-israeli-soldiers-085033444.html)
+- Dec 13 - [‘What Is Going On?!?’: Jimmy Kimmel Stunned By Donald Trump’s Latest Money Stunt](https://www.yahoo.com/entertainment/going-jimmy-kimmel-stunned-donald-071408217.html)
 - Dec 13 - [Amid outcry over Gaza tactics, videos of soldiers acting maliciously create new headache for Israel](https://news.yahoo.com/amid-outcry-over-gaza-tactics-050440482.html)
 - Dec 13 - [7 out of 70-plus men arrested during F1 sex-trafficking operation in Las Vegas thought they were meeting teenager, police say](https://news.yahoo.com/7-70-plus-men-arrested-045100933.html)
-- Dec 13 - [Pennsylvania TV News Anchor Emily Matson’s Cause Of Death Revealed](https://www.yahoo.com/entertainment/emily-matson-dies-longtime-local-021738714.html)
-- Dec 13 - [Lawrence: Justice Kavanaugh destroyed Trump immunity claim 25 years ago](https://news.yahoo.com/lawrence-justice-kavanaugh-destroyed-trump-043805399.html)
-- Dec 13 - [Migrant who thanked Biden after entering US illegally is already in NYC with court date set for October 2024](https://news.yahoo.com/migrant-thanked-biden-entering-us-021450874.html)
 <!-- feed end -->
 
 ### Onstream
