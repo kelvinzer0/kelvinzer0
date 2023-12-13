@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 13 - [Oprah Winfrey Reveals She Uses Weight-Loss Medication as a ‘Maintenance Tool': ‘I’m Absolutely Done with the Shaming’ (Exclusive)](https://www.yahoo.com/entertainment/oprah-winfrey-reveals-she-uses-163155232.html)
+- Dec 13 - [Exclusive: Recordings describe 2020 Oval Office photo-op where Trump was briefed on fake electors and January 6](https://news.yahoo.com/exclusive-recordings-describe-2020-oval-161011185.html)
+- Dec 13 - [Tourist accused of sexually molesting statue of a beloved Florida manatee, cops say](https://news.yahoo.com/tourist-accused-sexually-molesting-statue-160224606.html)
 - Dec 13 - [Supreme Court will hear a case that could undo Capitol riot charge against hundreds, including Trump](https://news.yahoo.com/supreme-court-hear-case-could-143456759.html)
 - Dec 13 - [Trump loses immunity bid in Carroll defamation suit, to seek Supreme Court review](https://news.yahoo.com/court-rejects-donald-trumps-request-141737899.html)
-- Dec 13 - [Chevy's new electric SUV has the right stuff to get EV-weary buyers to take a look](https://www.autoblog.com/2023/12/13/2024-chevrolet-blazer-ev-first-drive/)
-- Dec 13 - ['They left us with nothing': This elderly couple says they were evicted from their home of 20 years after their son transferred ownership. 3 ways to avoid exploitation as you age](https://finance.yahoo.com/news/left-us-nothing-elderly-couple-100000273.html)
-- Dec 13 - [San Francisco gym owner describes ‘unrecognizable’ city after returning to den of homelessness, drugs](https://finance.yahoo.com/news/san-francisco-gym-owner-describes-122048125.html)
 <!-- feed end -->
 
 ### Onstream
