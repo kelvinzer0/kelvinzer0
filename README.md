@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 13 - [Supreme Court will hear a case that could undo Capitol riot charge against hundreds, including Trump](https://news.yahoo.com/supreme-court-hear-case-could-143456759.html)
 - Dec 13 - [Trump loses immunity bid in Carroll defamation suit, to seek Supreme Court review](https://news.yahoo.com/court-rejects-donald-trumps-request-141737899.html)
-- Dec 13 - [Trump's lawyers tell an appeals court that federal prosecutors are trying to rush his election case](https://news.yahoo.com/trumps-lawyers-tell-appeals-court-141239054.html)
-- Dec 13 - [Closed: Well-known Fort Myers sports bar, restaurant suddenly shutters its doors](https://www.yahoo.com/lifestyle/closed-well-known-fort-myers-103117464.html)
-- Dec 13 - ['Russia is waking up': a tango-dancing soldier's wife finds purpose on Russian home front](https://news.yahoo.com/russia-waking-tango-dancing-soldiers-090118235.html)
+- Dec 13 - [Chevy's new electric SUV has the right stuff to get EV-weary buyers to take a look](https://www.autoblog.com/2023/12/13/2024-chevrolet-blazer-ev-first-drive/)
+- Dec 13 - ['They left us with nothing': This elderly couple says they were evicted from their home of 20 years after their son transferred ownership. 3 ways to avoid exploitation as you age](https://finance.yahoo.com/news/left-us-nothing-elderly-couple-100000273.html)
+- Dec 13 - [San Francisco gym owner describes ‘unrecognizable’ city after returning to den of homelessness, drugs](https://finance.yahoo.com/news/san-francisco-gym-owner-describes-122048125.html)
 <!-- feed end -->
 
 ### Onstream
