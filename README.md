@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 14 - [Where does Matt Araiza go to to get his reputation — let alone his NFL career — back?](https://sports.yahoo.com/where-does-matt-araiza-go-to-to-get-his-reputation--let-alone-his-nfl-career--back-152042665.html)
+- Dec 14 - [Violent Karen Gets Her Day in Court and It Doesn't End Well](https://news.yahoo.com/violent-karen-gets-her-day-145300067.html)
 - Dec 14 - [Boy Who Vanished on Family Vacation 6 Years Ago Found Alive](https://news.yahoo.com/boy-vanished-family-vacation-6-142935411.html)
 - Dec 14 - [“It’s a very sick thing”: Trump rages at Iowa rally after Jack Smith turns the tables](https://news.yahoo.com/very-sick-thing-trump-rages-140403763.html)
 - Dec 14 - [Viewers stunned after beach-goer captures Tesla Cybertruck going for a quick dip: ‘Is there anything [it] can’t do?’](https://news.yahoo.com/viewers-stunned-beach-goer-captures-140000936.html)
-- Dec 14 - [Putin in rare apology over price of eggs](https://news.yahoo.com/putin-rare-apology-over-price-133950077.html)
 <!-- feed end -->
 
 ### Onstream
