@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 14 - [Hungry, thirsty and humiliated: Israel's mass arrest campaign sows fear in northern Gaza](https://news.yahoo.com/hungry-thirsty-humiliated-israels-mass-181417155.html)
+- Dec 14 - [Congress approves bill barring any president from unilaterally withdrawing from NATO](https://news.yahoo.com/congress-approves-bill-barring-president-173546227.html)
+- Dec 14 - [Real estate investor warns US is entering the 'greatest' correction of his lifetime](https://finance.yahoo.com/news/real-estate-investor-warns-us-153134487.html)
 - Dec 14 - [Where does Matt Araiza go to to get his reputation — let alone his NFL career — back?](https://sports.yahoo.com/where-does-matt-araiza-go-to-to-get-his-reputation--let-alone-his-nfl-career--back-152042665.html)
 - Dec 14 - [Mugshot’s manager, employees charged with brutally beating waitress](https://news.yahoo.com/mugshot-manager-employees-charged-brutally-150522971.html)
-- Dec 14 - [Violent Karen Gets Her Day in Court and It Doesn’t End Well](https://news.yahoo.com/violent-karen-gets-her-day-145300067.html)
-- Dec 14 - [Boy Who Vanished on Family Vacation 6 Years Ago Found Alive](https://news.yahoo.com/boy-vanished-family-vacation-6-142935411.html)
-- Dec 14 - [“It’s a very sick thing”: Trump rages at Iowa rally after Jack Smith turns the tables](https://news.yahoo.com/very-sick-thing-trump-rages-140403763.html)
 <!-- feed end -->
 
 ### Onstream
