@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 14 - [‘Don’t run for president’ text message beamed on screen in front of Putin during live broadcast](https://news.yahoo.com/don-t-run-president-text-122627828.html)
 - Dec 14 - [Donald Trump Just Told A Huge Casual Lie And He'll Get Away With It](https://news.yahoo.com/donald-trump-just-told-huge-115355491.html)
 - Dec 14 - [Emmanuelle Debever, French Actress Who Alleged Gérard Depardieu Sexually Assaulted Her, Takes Own Life Aged 60](https://www.yahoo.com/entertainment/emmanuelle-debever-french-actress-alleged-110059252.html)
 - Dec 14 - [Paul Ryan Sums Up Donald Trump With 3 Blunt Words](https://news.yahoo.com/paul-ryan-sums-donald-trump-102013770.html)
 - Dec 14 - [Donald Trump's Old Stock Market Prediction Comes Back To Haunt Him](https://news.yahoo.com/donald-trumps-old-stock-market-091517272.html)
-- Dec 14 - [Iran warns against proposed U.S.-backed Red Sea force - ISNA](https://news.yahoo.com/iran-warns-against-proposed-u-071651676.html)
 <!-- feed end -->
 
 ### Onstream
