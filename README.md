@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 14 - [Where does Matt Araiza go to to get his reputation — let alone his NFL career — back?](https://sports.yahoo.com/where-does-matt-araiza-go-to-to-get-his-reputation--let-alone-his-nfl-career--back-152042665.html)
+- Dec 14 - [Boy Who Vanished on Family Vacation 6 Years Ago Found Alive](https://news.yahoo.com/boy-vanished-family-vacation-6-142935411.html)
 - Dec 14 - [“It’s a very sick thing”: Trump rages at Iowa rally after Jack Smith turns the tables](https://news.yahoo.com/very-sick-thing-trump-rages-140403763.html)
-- Dec 14 - [Russian drone attack on Ukraine violates NATO airspace over Romania, prompting German fighter jet response](https://news.yahoo.com/russian-drone-attack-ukraine-violates-132400471.html)
-- Dec 14 - [‘Don’t run for president’ text message beamed on screen in front of Putin during live broadcast](https://news.yahoo.com/don-t-run-president-text-122627828.html)
-- Dec 14 - [Donald Trump Just Told A Huge Casual Lie And He'll Get Away With It](https://news.yahoo.com/donald-trump-just-told-huge-115355491.html)
-- Dec 14 - [Emmanuelle Debever, French Actress Who Alleged Gérard Depardieu Sexually Assaulted Her, Takes Own Life At 60](https://www.yahoo.com/entertainment/emmanuelle-debever-french-actress-alleged-110059252.html)
+- Dec 14 - [Viewers stunned after beach-goer captures Tesla Cybertruck going for a quick dip: ‘Is there anything [it] can’t do?’](https://news.yahoo.com/viewers-stunned-beach-goer-captures-140000936.html)
+- Dec 14 - [Putin in rare apology over price of eggs](https://news.yahoo.com/putin-rare-apology-over-price-133950077.html)
 <!-- feed end -->
 
 ### Onstream
