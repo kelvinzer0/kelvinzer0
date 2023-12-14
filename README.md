@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 14 - [Hungry, thirsty and humiliated: Israel's mass arrest campaign sows fear in northern Gaza](https://news.yahoo.com/hungry-thirsty-humiliated-israels-mass-181417155.html)
-- Dec 14 - [Congress approves bill barring any president from unilaterally withdrawing from NATO](https://news.yahoo.com/congress-approves-bill-barring-president-173546227.html)
+- Dec 14 - [US Supreme Court declines to block Illinois assault rifle ban](https://news.yahoo.com/us-supreme-court-declines-block-190844456.html)
+- Dec 14 - [We Now Have Even More Details About James Comer’s Shady Shell Company](https://news.yahoo.com/now-even-more-details-james-182415595.html)
+- Dec 14 - [Senior Hamas official threatens Blinken, says America must 'pay the price' for Gaza blood: report](https://news.yahoo.com/senior-hamas-official-threatens-blinken-172509558.html)
+- Dec 14 - [California community on edge after predator breaks into home for 5 hours, targeting girl as parents slept](https://news.yahoo.com/california-community-edge-predator-breaks-171327584.html)
 - Dec 14 - [Real estate investor warns US is entering the 'greatest' correction of his lifetime](https://finance.yahoo.com/news/real-estate-investor-warns-us-153134487.html)
-- Dec 14 - [Where does Matt Araiza go to to get his reputation — let alone his NFL career — back?](https://sports.yahoo.com/where-does-matt-araiza-go-to-to-get-his-reputation--let-alone-his-nfl-career--back-152042665.html)
-- Dec 14 - [Mugshot’s manager, employees charged with brutally beating waitress](https://news.yahoo.com/mugshot-manager-employees-charged-brutally-150522971.html)
 <!-- feed end -->
 
 ### Onstream
