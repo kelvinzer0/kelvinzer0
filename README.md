@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 14 - [Why the Indian Ocean could be China's Achilles' heel in a Taiwan war](https://news.yahoo.com/why-indian-ocean-could-chinas-020329500.html)
+- Dec 13 - [Former Obama adviser David Axelrod says poll showing Biden at record low approval is 'very, very dark'](https://news.yahoo.com/former-obama-adviser-david-axelrod-234337501.html)
+- Dec 13 - [Matthew Grant, missing RIT student, found safe after more than three weeks](https://news.yahoo.com/matthew-grant-missing-rit-student-233431794.html)
 - Dec 13 - [5k stolen gift cards lead to arrest of 2 women in Braintree in connection with nationwide scam](https://news.yahoo.com/nearly-5k-stolen-gift-cards-020934744.html)
 - Dec 13 - [Former Speaker Ryan: ‘Trump’s not a conservative, he’s an authoritarian narcissist’](https://news.yahoo.com/former-speaker-ryan-trump-not-232408207.html)
-- Dec 13 - [Boaters spot orcas ‘zig zagging’ in California. Then came a ‘jaw dropping’ attack](https://news.yahoo.com/boaters-spot-orcas-zig-zagging-224837037.html)
-- Dec 13 - [San Fran tech founder is accused of forcing his assistant into a 'slave contract' that called him 'Master' before trafficking her for sex around the world](https://finance.yahoo.com/news/san-fran-tech-founder-accused-215800018.html)
-- Dec 13 - [‘Disgusted and...shocked’: Jewish support group denounces Trudeau government’s ‘hypocritical’ foreign policy as Canada calls for ceasefire in Gaza](https://news.yahoo.com/ceasefire-trudeau-canada-jewish-affairs-palestine-reaction-215537574.html)
 <!-- feed end -->
 
 ### Onstream
