@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 14 - [Really!? You'll Never Guess Who Trump Said Was Better Than MLK Jr.](https://news.yahoo.com/really-youll-never-guess-trump-205100104.html)
 - Dec 14 - [Billionaire Warren Buffett Has A McDonald's Gold Card That Gives Him Free Meals For Life — Jokes 'So That's Why The Buffett Family Has Christmas Dinner At McDonald's'](https://finance.yahoo.com/news/billionaire-warren-buffett-mcdonalds-gold-200922573.html)
-- Dec 14 - [Republicans Have A Replacement For George Santos—And She’s A Doozy](https://news.yahoo.com/republicans-replacement-george-santos-she-200715435.html)
+- Dec 14 - [Republicans Have a Replacement for George Santos—and She’s a Doozy](https://news.yahoo.com/republicans-replacement-george-santos-she-200715435.html)
 - Dec 14 - [US Supreme Court declines to block Illinois assault rifle ban](https://news.yahoo.com/us-supreme-court-declines-block-190844456.html)
 - Dec 14 - [Female warden was begged by ‘manipulative’ inmate to wait for him to be freed to continue affair](https://news.yahoo.com/female-warden-begged-manipulative-inmate-190030834.html)
-- Dec 14 - [Unconventional Trial Judge Could Remove Trump From His NY Empire](https://news.yahoo.com/unconventional-trial-judge-could-remove-182701294.html)
 <!-- feed end -->
 
 ### Onstream
