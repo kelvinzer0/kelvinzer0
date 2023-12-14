@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 14 - [Tank Runs For Its Life Under Constant Barrage Of Attack Drones](https://news.yahoo.com/tank-runs-life-under-constant-024846852.html)
 - Dec 14 - [Why the Indian Ocean could be China's Achilles' heel in a Taiwan war](https://news.yahoo.com/why-indian-ocean-could-chinas-020329500.html)
-- Dec 13 - [Israel's F-35I Combat Experience Is Providing Lessons For Future Pacific Fight](https://news.yahoo.com/israels-f-35i-combat-experience-234749882.html)
 - Dec 13 - [Former Obama adviser David Axelrod says poll showing Biden at record low approval is 'very, very dark'](https://news.yahoo.com/former-obama-adviser-david-axelrod-234337501.html)
 - Dec 13 - [Matthew Grant, missing RIT student, found safe after more than three weeks](https://news.yahoo.com/matthew-grant-missing-rit-student-233431794.html)
 - Dec 13 - [5k stolen gift cards lead to arrest of 2 women in Braintree in connection with nationwide scam](https://news.yahoo.com/nearly-5k-stolen-gift-cards-020934744.html)
