@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 13 - [House Republicans authorize Joe Biden impeachment investigation in major escalation](https://news.yahoo.com/house-republicans-authorize-joe-biden-225031220.html)
+- Dec 13 - [5k stolen gift cards lead to arrest of 2 women in Braintree in connection with nationwide scam](https://news.yahoo.com/nearly-5k-stolen-gift-cards-020934744.html)
+- Dec 13 - [Former Speaker Ryan: ‘Trump’s not a conservative, he’s an authoritarian narcissist’](https://news.yahoo.com/former-speaker-ryan-trump-not-232408207.html)
 - Dec 13 - [Boaters spot orcas ‘zig zagging’ in California. Then came a ‘jaw dropping’ attack](https://news.yahoo.com/boaters-spot-orcas-zig-zagging-224837037.html)
-- Dec 13 - [Trump fraud trial judge evacuated from Manhattan courthouse soon after testimony ends](https://news.yahoo.com/trump-fraud-trial-judge-evacuated-222146157.html)
 - Dec 13 - [San Fran tech founder is accused of forcing his assistant into a 'slave contract' that called him 'Master' before trafficking her for sex around the world](https://finance.yahoo.com/news/san-fran-tech-founder-accused-215800018.html)
 - Dec 13 - [‘Disgusted and...shocked’: Jewish support group denounces Trudeau government’s ‘hypocritical’ foreign policy as Canada calls for ceasefire in Gaza](https://news.yahoo.com/ceasefire-trudeau-canada-jewish-affairs-palestine-reaction-215537574.html)
 <!-- feed end -->
