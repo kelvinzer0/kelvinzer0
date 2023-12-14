@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 14 - [Donald Trump's Old Stock Market Prediction Comes Back To Haunt Him](https://news.yahoo.com/donald-trumps-old-stock-market-091517272.html)
 - Dec 14 - [Iran warns against proposed U.S.-backed Red Sea force - ISNA](https://news.yahoo.com/iran-warns-against-proposed-u-071651676.html)
 - Dec 14 - [Dismayed by Moscow's war, Russian volunteers are joining Ukrainian ranks to fight Putin's troops](https://news.yahoo.com/dismayed-moscows-war-russian-volunteers-060550957.html)
 - Dec 14 - [China condemns Canada's support for Philippines on South China Sea incidents](https://news.yahoo.com/china-condemns-canadas-support-philippines-035202812.html)
 - Dec 14 - [Tank Runs For Its Life Under Constant Barrage Of Attack Drones](https://news.yahoo.com/tank-runs-life-under-constant-024846852.html)
-- Dec 14 - [Why the Indian Ocean could be China's Achilles' heel in a Taiwan war](https://news.yahoo.com/why-indian-ocean-could-chinas-020329500.html)
 <!-- feed end -->
 
 ### Onstream
