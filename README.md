@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 14 - [Billionaire Warren Buffett Has A McDonald's Gold Card That Gives Him Free Meals For Life — Jokes 'So That's Why The Buffett Family Has Christmas Dinner At McDonald's'](https://finance.yahoo.com/news/billionaire-warren-buffett-mcdonalds-gold-200922573.html)
+- Dec 14 - [Republicans Have A Replacement For George Santos—And She’s A Doozy](https://news.yahoo.com/republicans-replacement-george-santos-she-200715435.html)
 - Dec 14 - [US Supreme Court declines to block Illinois assault rifle ban](https://news.yahoo.com/us-supreme-court-declines-block-190844456.html)
-- Dec 14 - [We Now Have Even More Details About James Comer’s Shady Shell Company](https://news.yahoo.com/now-even-more-details-james-182415595.html)
-- Dec 14 - [Senior Hamas official threatens Blinken, says America must 'pay the price' for Gaza blood: report](https://news.yahoo.com/senior-hamas-official-threatens-blinken-172509558.html)
-- Dec 14 - [California community on edge after predator breaks into home for 5 hours, targeting girl as parents slept](https://news.yahoo.com/california-community-edge-predator-breaks-171327584.html)
-- Dec 14 - [Real estate investor warns US is entering the 'greatest' correction of his lifetime](https://finance.yahoo.com/news/real-estate-investor-warns-us-153134487.html)
+- Dec 14 - [Female warden was begged by ‘manipulative’ inmate to wait for him to be freed to continue affair](https://news.yahoo.com/female-warden-begged-manipulative-inmate-190030834.html)
+- Dec 14 - [Unconventional Trial Judge Could Remove Trump From His NY Empire](https://news.yahoo.com/unconventional-trial-judge-could-remove-182701294.html)
 <!-- feed end -->
 
 ### Onstream
