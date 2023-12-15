@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 15 - [Court ruling gives Oregon State and Washington State control of the Pac-12](https://sports.yahoo.com/court-ruling-gives-oregon-state-and-washington-state-control-of-the-pac-12-221017102.html)
 - Dec 15 - ['Friends' star Matthew Perry's cause of death revealed](https://www.yahoo.com/entertainment/matthew-perrys-cause-death-revealed-212916141.html)
-- Dec 15 - [Giuliani Ordered to Pay $148 Million to Election Workers He Defamed](https://news.yahoo.com/giuliani-ordered-pay-148-million-212208555.html)
 - Dec 15 - [After 40 witnesses and 43 days of testimony, here's what we learned at Trump’s civil fraud trial](https://finance.yahoo.com/news/40-witnesses-43-days-testimony-194415200.html)
+- Dec 15 - ['Hero' Texas teen drove friends to safety after being shot in heart during road-rage incident](https://news.yahoo.com/hero-texas-teen-drove-friends-193808569.html)
 - Dec 15 - [Violent Karen Faces Consequences for Killing a Black Man Unprovoked](https://news.yahoo.com/violent-karen-gets-her-day-145300067.html)
-- Dec 15 - [Shohei Ohtani's contract with the Dodgers could come with bonus of mostly avoiding California taxes](https://news.yahoo.com/shohei-ohtanis-contract-dodgers-could-185734889.html)
 <!-- feed end -->
 
 ### Onstream
