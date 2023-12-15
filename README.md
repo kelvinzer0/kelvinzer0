@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 15 - ['Friends' star Matthew Perry's cause of death revealed](https://www.yahoo.com/entertainment/matthew-perrys-cause-death-revealed-212916141.html)
+- Dec 15 - [Giuliani Ordered to Pay $148 Million to Election Workers He Defamed](https://news.yahoo.com/giuliani-ordered-pay-148-million-212208555.html)
 - Dec 15 - [After 40 witnesses and 43 days of testimony, here's what we learned at Trump’s civil fraud trial](https://finance.yahoo.com/news/40-witnesses-43-days-testimony-194415200.html)
 - Dec 15 - [Violent Karen Faces Consequences for Killing a Black Man Unprovoked](https://news.yahoo.com/violent-karen-gets-her-day-145300067.html)
 - Dec 15 - [Shohei Ohtani's contract with the Dodgers could come with bonus of mostly avoiding California taxes](https://news.yahoo.com/shohei-ohtanis-contract-dodgers-could-185734889.html)
-- Dec 15 - [Sober Hawaii Man Was Arrested For Drunk Driving To Justify Police Department's Overtime](https://news.yahoo.com/sober-hawaii-man-arrested-drunk-180000654.html)
-- Dec 15 - [Former Mississippi House candidate charged after Satanic Temple display is destroyed at Iowa Capitol](https://news.yahoo.com/mississippi-house-candidate-charged-satanic-173644583.html)
 <!-- feed end -->
 
 ### Onstream
