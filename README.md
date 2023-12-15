@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 15 - [Missing teen found in France to return to UK](https://news.yahoo.com/missing-teen-found-france-return-143143199.html)
+- Dec 15 - [Steve Jobs Was Savage As An Employer And A Person — During Mass Layoffs, An Early Employee Pleaded Him To Give 2 Weeks Notice — His Response: 'OK, But The Notice Is Retroactive From Two Weeks Ago'](https://finance.yahoo.com/news/steve-jobs-savage-employer-person-153142413.html)
+- Dec 15 - [Arkansas Mechanic's Arrest Sparks Debate Over Police Conduct](https://news.yahoo.com/arkansas-mechanics-arrest-sparks-debate-152725093.html)
 - Dec 15 - [Teachers And Their Loved Ones Are Speaking On The Horrors Of Working In Education, And It's Gut-Wrenching](https://www.yahoo.com/lifestyle/teachers-loved-ones-speaking-horrors-141602832.html)
 - Dec 15 - [“Might have already erred”: Legal experts say judge may have imperiled ruling dissolving Trump Org.](https://news.yahoo.com/might-already-erred-legal-experts-140530876.html)
 - Dec 15 - [GM says goodbye to a popular model after 57 years](https://www.thestreet.com/automotive/gm-chevy-camaro-discontinued?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Dec 15 - ['We're going to throw them in the garbage': UFC CEO Dana White ordered all Peloton bikes be removed from his gyms after hearing a story from comedian Theo Von — here's why](https://finance.yahoo.com/news/were-going-throw-them-garbage-114500787.html)
 <!-- feed end -->
 
 ### Onstream
