@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 15 - [GM says goodbye to a popular model after 57 years](https://www.thestreet.com/automotive/gm-chevy-camaro-discontinued?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Dec 15 - ['We're going to throw them in the garbage': UFC CEO Dana White ordered all Peloton bikes be removed from his gyms after hearing a story from comedian Theo Von — here's why](https://finance.yahoo.com/news/were-going-throw-them-garbage-114500787.html)
 - Dec 15 - [‘You’ll end up with $1.5 million in the bank’: Kevin O’Leary says you should do this 1 thing with your 401(k) in order to 'succeed into retirement'](https://finance.yahoo.com/news/ll-end-1-5-million-103000581.html)
 - Dec 15 - [Fox News Host Drops The Mic On James Comer's Biden Hypocrisy](https://news.yahoo.com/fox-news-host-drops-mic-083058447.html)
 - Dec 15 - [Grand jury declines to indict Mississippi police officer who shot 11-year-old boy](https://news.yahoo.com/grand-jury-declines-charge-mississippi-002224417.html)
-- Dec 14 - [Apology letters by Sidney Powell and Kenneth Chesebro in Georgia election case are one sentence long](https://news.yahoo.com/apology-letters-sidney-powell-kenneth-234617429.html)
-- Dec 14 - [Trans athlete wins girls' U14 dance competition, sparking both fury, praise; Riley Gaines weighs in](https://news.yahoo.com/trans-athlete-wins-girls-u14-225327118.html)
 <!-- feed end -->
 
 ### Onstream
