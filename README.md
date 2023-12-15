@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 15 - [Grand jury declines to charge Mississippi police officer who shot 11-year-old boy](https://news.yahoo.com/grand-jury-declines-charge-mississippi-002224417.html)
 - Dec 14 - [Liberal gun-control bill passes in the Senate, set to become law](https://news.yahoo.com/liberal-gun-control-bill-passes-235705709.html)
 - Dec 14 - [Apology letters by Sidney Powell and Kenneth Chesebro in Georgia election case are one sentence long](https://news.yahoo.com/apology-letters-sidney-powell-kenneth-234617429.html)
 - Dec 14 - [‘Huge’ art gallery found carved near Colorado cliffs. See the centuries-old scenes](https://news.yahoo.com/huge-art-gallery-found-carved-210659539.html)
-- Dec 14 - [Really!? You'll Never Guess Who Trump Said Was Better Than MLK Jr.](https://news.yahoo.com/really-youll-never-guess-trump-205100104.html)
 - Dec 14 - [Billionaire Warren Buffett Has A McDonald's Gold Card That Gives Him Free Meals For Life — Jokes 'So That's Why The Buffett Family Has Christmas Dinner At McDonald's'](https://finance.yahoo.com/news/billionaire-warren-buffett-mcdonalds-gold-200922573.html)
 <!-- feed end -->
 
