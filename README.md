@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 15 - [Former 'Rookie Teacher of the Year' Admits Sexually Abusing Boy, 14, After Sister Discovered Texts About Sex](https://www.yahoo.com/entertainment/former-rookie-teacher-admits-sexually-162004883.html)
 - Dec 15 - [Steve Jobs Was Savage As An Employer And A Person — During Mass Layoffs, An Early Employee Pleaded Him To Give 2 Weeks Notice — His Response: 'OK, But The Notice Is Retroactive From Two Weeks Ago'](https://finance.yahoo.com/news/steve-jobs-savage-employer-person-153142413.html)
 - Dec 15 - [Arkansas Mechanic's Arrest Sparks Debate Over Police Conduct](https://news.yahoo.com/arkansas-mechanics-arrest-sparks-debate-152725093.html)
+- Dec 15 - [NC Auditor Beth Wood sentenced after pleading guilty to misusing state-owned vehicle](https://news.yahoo.com/nc-auditor-beth-wood-sentenced-151231729.html)
 - Dec 15 - [Teachers And Their Loved Ones Are Speaking On The Horrors Of Working In Education, And It's Gut-Wrenching](https://www.yahoo.com/lifestyle/teachers-loved-ones-speaking-horrors-141602832.html)
-- Dec 15 - [“Might have already erred”: Legal experts say judge may have imperiled ruling dissolving Trump Org.](https://news.yahoo.com/might-already-erred-legal-experts-140530876.html)
-- Dec 15 - [GM says goodbye to a popular model after 57 years](https://www.thestreet.com/automotive/gm-chevy-camaro-discontinued?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
