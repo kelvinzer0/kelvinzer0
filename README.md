@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 15 - [Germany's Scholz: 'friendly Union proposal' for Orban to leave room for Ukraine decision](https://news.yahoo.com/germanys-scholz-friendly-union-proposal-182606601.html)
+- Dec 15 - [Violent Karen Faces Consequences for Killing a Black Man Unprovoked](https://news.yahoo.com/violent-karen-gets-her-day-145300067.html)
+- Dec 15 - [Israel admits shooting three hostages dead in clash with Hamas](https://news.yahoo.com/israel-admits-shooting-three-hostages-184842831.html)
+- Dec 15 - [Sober Hawaii Man Was Arrested For Drunk Driving To Justify Police Department's Overtime](https://news.yahoo.com/sober-hawaii-man-arrested-drunk-180000654.html)
 - Dec 15 - [GOP senator says Biden can’t be impeached for pre-presidential actions](https://news.yahoo.com/gop-senator-says-biden-t-172306141.html)
-- Dec 15 - [Now that Trump is selling pieces of his clothing online, one House Democrat predicts the former president might sell his late wife's tombstone](https://news.yahoo.com/now-trump-selling-pieces-clothing-171548754.html)
-- Dec 15 - [Former 'Rookie Teacher of the Year' Admits Sexually Abusing Boy, 14, After Sister Discovered Texts About Sex](https://www.yahoo.com/entertainment/former-rookie-teacher-admits-sexually-162004883.html)
-- Dec 15 - [Steve Jobs Was Savage As An Employer And A Person — During Mass Layoffs, An Early Employee Pleaded Him To Give 2 Weeks Notice — His Response: 'OK, But The Notice Is Retroactive From Two Weeks Ago'](https://finance.yahoo.com/news/steve-jobs-savage-employer-person-153142413.html)
+- Dec 15 - [Supreme Court justice decided to overturn Roe just 10 minutes after receiving Dobbs draft decision: report](https://news.yahoo.com/supreme-court-justice-decided-overturn-163711604.html)
 <!-- feed end -->
 
 ### Onstream
