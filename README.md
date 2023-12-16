@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 16 - [CNN Anchor Slams Robert F. Kennedy Jr. With A Brutal On-Air Fact Check](https://news.yahoo.com/cnn-anchor-slams-robert-f-083509350.html)
 - Dec 16 - [Rudy Giuliani Hits Newsmax Host With A Wild Defamation Case Ask On Live TV](https://news.yahoo.com/rudy-giuliani-hits-newsmax-host-063052883.html)
-- Dec 16 - [Mötley Crüe Drummer Tommy Lee Accused of Sexually Assaulting Woman in Helicopter](https://www.yahoo.com/entertainment/m-tley-cr-e-drummer-054349405.html)
+- Dec 16 - ['Just devastating': U.S. searching for stack of intelligence on Russia missing under Trump: reports](https://news.yahoo.com/just-devastating-u-searching-stack-050457759.html)
 - Dec 16 - [Any hostile move against Yemen will have dire consequences -Houthi official on Al Mayadeen TV](https://news.yahoo.com/hostile-move-against-yemen-dire-031141274.html)
 - Dec 16 - [‘Haunted by trauma’: Girl repeatedly raped by another student on Boston school bus, lawsuit alleges](https://news.yahoo.com/haunted-trauma-girl-repeatedly-raped-210849419.html)
 <!-- feed end -->
