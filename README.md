@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 16 - [Student loan servicers’ ‘gross servicing failures’ impact borrower repayment](https://finance.yahoo.com/news/student-loan-servicers-gross-servicing-failures-impact-borrower-repayment-133446109.html)
-- Dec 16 - [Black Ohio woman criminally charged after miscarriage underscores the perils of pregnancy post-Roe](https://news.yahoo.com/black-ohio-woman-criminally-charged-130529225.html)
+- Dec 16 - [Beloved fast food chain enters a bankruptcy death spiral](https://www.thestreet.com/restaurants/beloved-fast-food-chain-enters-a-bankruptcy-death-spiral?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Dec 16 - [A Black woman was criminally charged after a miscarriage. It shows the perils of pregnancy post-Roe](https://news.yahoo.com/black-ohio-woman-criminally-charged-130529225.html)
 - Dec 16 - [Coca-Cola Doesn't Make Money Selling Cans of Soda. Here's What It Sells Instead.](https://finance.yahoo.com/news/coca-cola-doesnt-money-selling-120000098.html)
-- Dec 16 - [Ted Cruz may have a Donald Trump problem. And it’s not the one you think | Opinion](https://news.yahoo.com/ted-cruz-may-donald-trump-113500572.html)
+- Dec 16 - [The debauchery of Fort Worth’s Hell’s Half Acre took no holidays, not even on Christmas](https://news.yahoo.com/debauchery-fort-worth-hell-half-110000251.html)
 - Dec 16 - [CNN Anchor Slams Robert F. Kennedy Jr. With A Brutal On-Air Fact Check](https://news.yahoo.com/cnn-anchor-slams-robert-f-083509350.html)
 <!-- feed end -->
 
