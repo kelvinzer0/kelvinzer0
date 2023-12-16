@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [Alex Jones offers to pay Newtown families at least $55 million over school shooting hoax conspiracy](https://news.yahoo.com/alex-jones-offers-pay-newtown-160621531.html)
+- Dec 16 - [‘Drought-free’ California? Lake Oroville highlighted 2023 shift in amazing before and after images](https://sports.yahoo.com/drought-free-california-lake-oroville-160455792.html)
+- Dec 16 - [Melania Trump’s former adviser calls her citizenship speech ‘quite repulsive’](https://news.yahoo.com/melania-trump-former-adviser-calls-153907758.html)
+- Dec 16 - [OMG: This Staffer Was Caught Doing WHAT in the Senate?!](https://news.yahoo.com/omg-staffer-caught-doing-senate-145900056.html)
 - Dec 16 - [US warns North Korea against nuclear attacks](https://news.yahoo.com/us-warns-north-korea-against-145023039.html)
-- Dec 16 - [Guy Who Urged Planting a Trillion Trees Begs People to Stop Planting So Many Trees](https://news.yahoo.com/guy-urged-planting-trillion-trees-140040977.html)
-- Dec 16 - [Beloved fast food chain enters a bankruptcy death spiral](https://www.thestreet.com/restaurants/beloved-fast-food-chain-enters-a-bankruptcy-death-spiral?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Dec 16 - [A Black woman was criminally charged after a miscarriage. It shows the perils of pregnancy post-Roe](https://news.yahoo.com/black-ohio-woman-criminally-charged-130529225.html)
-- Dec 16 - [Coca-Cola Doesn't Make Money Selling Cans of Soda. Here's What It Sells Instead.](https://finance.yahoo.com/news/coca-cola-doesnt-money-selling-120000098.html)
 <!-- feed end -->
 
 ### Onstream
