@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [Prisoner poured boiling water over ‘vulnerable inmate’ then beat and raped him in violent assault](https://news.yahoo.com/prisoner-poured-boiling-water-over-173412896.html)
 - Dec 16 - [Alex Jones offers to pay Newtown families at least $55 million over school shooting hoax conspiracy](https://news.yahoo.com/alex-jones-offers-pay-newtown-160621531.html)
 - Dec 16 - [‘Drought-free’ California? Lake Oroville highlighted 2023 shift in amazing before and after images](https://sports.yahoo.com/drought-free-california-lake-oroville-160455792.html)
 - Dec 16 - [Melania Trump’s former adviser calls her citizenship speech ‘quite repulsive’](https://news.yahoo.com/melania-trump-former-adviser-calls-153907758.html)
-- Dec 16 - [OMG: This Staffer Was Caught Doing WHAT in the Senate?!](https://news.yahoo.com/omg-staffer-caught-doing-senate-145900056.html)
-- Dec 16 - [US warns North Korea against nuclear attacks](https://news.yahoo.com/us-warns-north-korea-against-145023039.html)
+- Dec 16 - [Teen Speeding In Daddy’s Mustang Cusses Out Arizona Deputy](https://news.yahoo.com/teen-speeding-daddy-mustang-cusses-120000299.html)
 <!-- feed end -->
 
 ### Onstream
