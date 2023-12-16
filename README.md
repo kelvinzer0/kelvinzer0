@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 16 - [Prisoner poured boiling water over ‘vulnerable inmate’ then beat and raped him in violent assault](https://news.yahoo.com/prisoner-poured-boiling-water-over-173412896.html)
-- Dec 16 - [Order blocking enforcement of Ohio abortion ban stands after high court dismisses appeal](https://news.yahoo.com/order-blocking-enforcement-ohio-abortion-172634378.html)
+- Dec 16 - [Jeff Bezos, Elon Musk say human population not nearly big enough: ‘If we had a trillion humans, we would have at any given time a thousand Mozarts’](https://finance.yahoo.com/news/jeff-bezos-elon-musk-human-170119555.html)
 - Dec 16 - [Alex Jones offers to pay Newtown families at least $55 million over school shooting hoax conspiracy](https://news.yahoo.com/alex-jones-offers-pay-newtown-160621531.html)
 - Dec 16 - [‘Drought-free’ California? Lake Oroville highlighted 2023 shift in amazing before and after images](https://sports.yahoo.com/drought-free-california-lake-oroville-160455792.html)
 - Dec 16 - [Melania Trump’s former adviser calls her citizenship speech ‘quite repulsive’](https://news.yahoo.com/melania-trump-former-adviser-calls-153907758.html)
