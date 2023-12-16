@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [Liv Morgan Arrested For Possession In Florida](https://www.yahoo.com/entertainment/liv-morgan-arrested-possession-florida-014658895.html)
 - Dec 16 - [‘Haunted by trauma’: Girl repeatedly raped by another student on Boston school bus, lawsuit alleges](https://news.yahoo.com/haunted-trauma-girl-repeatedly-raped-210849419.html)
+- Dec 16 - [Coroner's concerns over missing dad who died between fence panels](https://news.yahoo.com/coroners-concerns-over-missing-dad-011656113.html)
 - Dec 15 - [Federal judge rejects request from Oregon senators who boycotted Legislature seeking to run in 2024](https://news.yahoo.com/federal-judge-rejects-request-oregon-235938223.html)
 - Dec 15 - [Ukrainian Politician Detonates 3 Grenades in Council Meeting, 26 Wounded](https://www.yahoo.com/entertainment/ukrainian-politician-detonates-3-grenades-233712078.html)
-- Dec 15 - ['Friends' star Matthew Perry's cause of death revealed in autopsy report](https://www.yahoo.com/entertainment/matthew-perrys-cause-death-revealed-212916141.html)
-- Dec 15 - [Israeli military opens probe after videos show Israeli forces killing 2 Palestinians at close range](https://news.yahoo.com/security-videos-show-israeli-forces-212550169.html)
 <!-- feed end -->
 
 ### Onstream
