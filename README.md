@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [US warns North Korea against nuclear attacks](https://news.yahoo.com/us-warns-north-korea-against-145023039.html)
+- Dec 16 - [Guy Who Urged Planting a Trillion Trees Begs People to Stop Planting So Many Trees](https://news.yahoo.com/guy-urged-planting-trillion-trees-140040977.html)
 - Dec 16 - [Beloved fast food chain enters a bankruptcy death spiral](https://www.thestreet.com/restaurants/beloved-fast-food-chain-enters-a-bankruptcy-death-spiral?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Dec 16 - [A Black woman was criminally charged after a miscarriage. It shows the perils of pregnancy post-Roe](https://news.yahoo.com/black-ohio-woman-criminally-charged-130529225.html)
 - Dec 16 - [Coca-Cola Doesn't Make Money Selling Cans of Soda. Here's What It Sells Instead.](https://finance.yahoo.com/news/coca-cola-doesnt-money-selling-120000098.html)
-- Dec 16 - [The debauchery of Fort Worth’s Hell’s Half Acre took no holidays, not even on Christmas](https://news.yahoo.com/debauchery-fort-worth-hell-half-110000251.html)
-- Dec 16 - [CNN Anchor Slams Robert F. Kennedy Jr. With A Brutal On-Air Fact Check](https://news.yahoo.com/cnn-anchor-slams-robert-f-083509350.html)
 <!-- feed end -->
 
 ### Onstream
