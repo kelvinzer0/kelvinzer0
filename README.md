@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [Rudy Giuliani Hits Newsmax Host With A Wild Defamation Case Ask On Live TV](https://news.yahoo.com/rudy-giuliani-hits-newsmax-host-063052883.html)
+- Dec 16 - [Mötley Crüe Drummer Tommy Lee Accused of Sexually Assaulting Woman in Helicopter](https://www.yahoo.com/entertainment/m-tley-cr-e-drummer-054349405.html)
 - Dec 16 - [Any hostile move against Yemen will have dire consequences -Houthi official on Al Mayadeen TV](https://news.yahoo.com/hostile-move-against-yemen-dire-031141274.html)
 - Dec 16 - [‘Haunted by trauma’: Girl repeatedly raped by another student on Boston school bus, lawsuit alleges](https://news.yahoo.com/haunted-trauma-girl-repeatedly-raped-210849419.html)
 - Dec 16 - [Nature photographer discovers ancient ‘freak-of-nature’ tree hiding in plain sight: ‘I’ve never seen a tree as impressive as this one’](https://www.yahoo.com/lifestyle/nature-photographer-discovers-ancient-freak-020000113.html)
-- Dec 16 - [A new COVID variant is spreading fast in the US. These are its most common symptoms](https://news.yahoo.com/covid-variant-spreading-fast-us-014701360.html)
-- Dec 16 - [Liv Morgan Arrested For Possession In Florida](https://www.yahoo.com/entertainment/liv-morgan-arrested-possession-florida-014658895.html)
 <!-- feed end -->
 
 ### Onstream
