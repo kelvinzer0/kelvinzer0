@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 17 - [Democrat aide sacked for filming himself having sex in Senate hearing room](https://news.yahoo.com/democrat-aide-sacked-filming-himself-182704257.html)
+- Dec 17 - [‘The walls are closing in’: Christie says Trump is ‘becoming crazier’](https://news.yahoo.com/walls-closing-christie-says-trump-172145039.html)
 - Dec 17 - [Graham says Biden impeachment inquiry narrative ‘falling apart’](https://news.yahoo.com/graham-says-biden-impeachment-inquiry-164405744.html)
 - Dec 17 - [Rep. Lee leads Civil Lawsuit against Trump for Violating the 1871 Ku Klux Klan Act on Jan. 6](https://news.yahoo.com/rep-lee-leads-civil-lawsuit-152319631.html)
 - Dec 17 - [Israel uncovers 'biggest Hamas tunnel' near Gaza border](https://news.yahoo.com/israel-uncovers-biggest-hamas-tunnel-150216426.html)
-- Dec 17 - [Millions of Americans are set to lose a popular 401(k) benefit — are you one of them? Here's what it is and what it means for you](https://finance.yahoo.com/news/millions-americans-set-lose-popular-110000873.html)
-- Dec 17 - [Accumulating snow expected Monday in Northeast Ohio](https://news.yahoo.com/accumulating-snow-expected-monday-northeast-124207877.html)
 <!-- feed end -->
 
 ### Onstream
