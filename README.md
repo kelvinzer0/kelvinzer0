@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 17 - [India's Modi says new diamond bourse in Gujarat to create 150,000 jobs](https://finance.yahoo.com/news/indias-modi-says-diamond-bourse-122808151.html)
+- Dec 17 - [Christine Beatty is back, refusing to answer questions or pay restitution to Detroit](https://news.yahoo.com/christine-beatty-back-refusing-answer-110345371.html)
 - Dec 17 - [Putin: New NATO member Finland didn't have problems before, but now it will](https://news.yahoo.com/putin-nato-member-finland-didnt-102017761.html)
-- Dec 17 - [Ukrainian drone video provides a grim look at casualties as Russian troops advance toward Avdiivka](https://news.yahoo.com/ukrainian-drone-video-provides-grim-090728213.html)
-- Dec 17 - [Miss France winner says her short hair a victory for 'diversity'](https://news.yahoo.com/miss-france-winner-says-her-062029250.html)
-- Dec 17 - [Black American solidarity with Palestinians is rising and testing longstanding ties to Jewish allies](https://news.yahoo.com/black-american-solidarity-palestinians-rising-050209891.html)
-- Dec 17 - ["Smishing" Is The Latest Way Scammers Are Trying To Get Your Info. Here's How To Protect Yourself](https://www.yahoo.com/lifestyle/thats-immediate-red-flag-being-044602921.html)
+- Dec 17 - [Texas family rejects millions for their property and does something remarkable with it instead: ‘I’m just very grateful’](https://www.yahoo.com/lifestyle/texas-family-rejects-millions-property-190000111.html)
+- Dec 17 - [A first-year medical student was learning about ultrasounds. She found something unexpected about her own health](https://news.yahoo.com/first-medical-student-learning-ultrasounds-100017143.html)
 <!-- feed end -->
 
 ### Onstream
