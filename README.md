@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 17 - [Millions of Americans are set to lose a popular 401(k) benefit — are you one of them? Here's what it is and what it means for you](https://finance.yahoo.com/news/millions-americans-set-lose-popular-110000873.html)
+- Dec 17 - [Accumulating snow expected Monday in Northeast Ohio](https://news.yahoo.com/accumulating-snow-expected-monday-northeast-124207877.html)
 - Dec 17 - [Putin: New NATO member Finland didn't have problems before, but now it will](https://news.yahoo.com/putin-nato-member-finland-didnt-102017761.html)
 - Dec 17 - [Texas family rejects millions for their property and does something remarkable with it instead: ‘I’m just very grateful’](https://www.yahoo.com/lifestyle/texas-family-rejects-millions-property-190000111.html)
 - Dec 17 - [A first-year medical student was learning about ultrasounds. She found something unexpected about her own health](https://news.yahoo.com/first-medical-student-learning-ultrasounds-100017143.html)
-- Dec 17 - [Ukrainian drone video provides a grim look at casualties as Russian troops advance toward Avdiivka](https://news.yahoo.com/ukrainian-drone-video-provides-grim-090728213.html)
 <!-- feed end -->
 
 ### Onstream
