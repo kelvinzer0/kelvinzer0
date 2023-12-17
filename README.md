@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 17 - [Fox News Anchors Worry Trump’s ‘Poisoning the Blood’ Anti-Immigrant Comments Will Overshadow Gay Senate Sex Tape Scandal](https://www.yahoo.com/entertainment/fox-news-anchors-worry-trump-223513157.html)
+- Dec 17 - [An 86-year-old Black Woman Died at a FedEx Facility… And She Isn’t The First](https://news.yahoo.com/86-old-black-woman-died-213600175.html)
+- Dec 17 - [NBA G-league player and girlfriend “execute murder plan,” accused of killing woman in Las Vegas valley, police say](https://news.yahoo.com/nba-g-league-player-girlfriend-205430289.html)
 - Dec 17 - [Florida Republican Party suspends chairman and demands his resignation amid rape investigation](https://news.yahoo.com/florida-republican-party-suspends-chairman-202302811.html)
 - Dec 17 - [Democrat aide sacked for filming himself having sex in Senate hearing room](https://news.yahoo.com/democrat-aide-sacked-filming-himself-182704257.html)
-- Dec 17 - [‘The walls are closing in’: Christie says Trump is ‘becoming crazier’](https://news.yahoo.com/walls-closing-christie-says-trump-172145039.html)
-- Dec 17 - [Graham says Biden narrative around impeachment inquiry ‘falling apart’](https://news.yahoo.com/graham-says-biden-impeachment-inquiry-164405744.html)
-- Dec 17 - [Alan Dershowitz: Trump case a misuse of the criminal justice system to influence an election](https://news.yahoo.com/alan-dershowitz-trump-case-misuse-163352627.html)
 <!-- feed end -->
 
 ### Onstream
