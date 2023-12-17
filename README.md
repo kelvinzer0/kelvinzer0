@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [British teen Alex Batty arrives in UK 6 years after vanishing](https://news.yahoo.com/british-teen-alex-batty-arrives-003220304.html)
+- Dec 16 - [After viral video shows ‘built for any planet’ Cybertruck struggling on hill, Forest Service makes Tesla cheeky offer](https://finance.yahoo.com/news/viral-video-shows-built-planet-225906434.html)
 - Dec 16 - [Trump repeats 'poisoning the blood' anti-immigrant remark](https://news.yahoo.com/trump-repeats-poisoning-blood-anti-221431529.html)
 - Dec 16 - [Confederate memorial to be removed in coming days from Arlington National Cemetery](https://news.yahoo.com/confederate-memorial-removed-coming-days-220630193.html)
 - Dec 16 - [Tropical disease found in mainland U.S., stunning physicians: ‘There’s no effective vaccine’](https://news.yahoo.com/tropical-disease-found-mainland-u-213000508.html)
