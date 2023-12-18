@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [Justice Sandra Day O'Connor, the first woman to serve on the Supreme Court, to lie in repose](https://news.yahoo.com/justice-sandra-day-oconnor-first-052255898.html)
+- Dec 18 - [A gloomy mood hangs over Ukraine's soldiers as war with Russia grinds on](https://news.yahoo.com/gloomy-mood-hangs-over-ukraines-050353899.html)
+- Dec 18 - [A gang of robbers in Colorado found themselves high and dry after their getaway car got stolen, police say](https://news.yahoo.com/gang-robbers-colorado-found-themselves-042318464.html)
 - Dec 18 - [Roseanne Barr Stuns Right-Wing Crowd Into Silence With Speech on ‘Stalinists, Communists, Nazi Fascists’ | Video](https://www.yahoo.com/entertainment/roseanne-barr-stuns-wing-crowd-020034113.html)
-- Dec 18 - [Trump says Nevada fake electors treated 'unfairly' during rally in Reno](https://news.yahoo.com/trump-says-nevada-fake-electors-015554825.html)
 - Dec 18 - [Freed Israeli hostage warns soldiers not to go into Hamas tunnels: ‘It’s a colossal danger’](https://news.yahoo.com/freed-israeli-hostage-warns-soldiers-014830583.html)
-- Dec 18 - [Trump bemoans record stock market as just making 'rich people richer'](https://news.yahoo.com/trump-bemoans-record-stock-market-014448274.html)
-- Dec 18 - [Car plows into parked vehicle in Biden's motorcade outside Delaware campaign headquarters](https://news.yahoo.com/car-plows-parked-vehicle-bidens-014038922.html)
 <!-- feed end -->
 
 ### Onstream
