@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 17 - [Kings G League player Chance Comanche arrested, facing murder charge after woman's death in Las Vegas](https://sports.yahoo.com/kings-g-league-player-chance-comanche-arrested-facing-murder-charge-after-womans-death-in-las-vegas-225446488.html)
 - Dec 17 - [Fox News Anchors Worry Trump’s ‘Poisoning the Blood’ Anti-Immigrant Comments Will Overshadow Gay Senate Sex Tape Scandal](https://www.yahoo.com/entertainment/fox-news-anchors-worry-trump-223513157.html)
 - Dec 17 - [An 86-year-old Black Woman Died at a FedEx Facility… And She Isn’t The First](https://news.yahoo.com/86-old-black-woman-died-213600175.html)
+- Dec 17 - [Scientists sound the alarm after salmon species finds new spawning location: ‘An ominous sign’](https://news.yahoo.com/scientists-sound-alarm-salmon-species-213000446.html)
 - Dec 17 - [NBA G-league player and girlfriend “execute murder plan,” accused of killing woman in Las Vegas valley, police say](https://news.yahoo.com/nba-g-league-player-girlfriend-205430289.html)
-- Dec 17 - [Florida Republican Party suspends chairman and demands his resignation amid rape investigation](https://news.yahoo.com/florida-republican-party-suspends-chairman-202302811.html)
-- Dec 17 - [Democrat aide sacked for filming himself having sex in Senate hearing room](https://news.yahoo.com/democrat-aide-sacked-filming-himself-182704257.html)
 <!-- feed end -->
 
 ### Onstream
