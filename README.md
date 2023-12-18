@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Webb telescope’s new Uranus image looks like a portal to another dimension](https://news.yahoo.com/webb-telescopes-new-uranus-image-looks-like-a-portal-to-another-dimension-181035887.html)
-- Dec 18 - [Hamas' armed wing posts video showing Israeli hostages pleading for release](https://news.yahoo.com/hamas-armed-wing-posts-video-180954052.html)
-- Dec 18 - [Judge issues order keeping Confederate memorial at Arlington Cemetery for now](https://news.yahoo.com/judge-issues-order-keeping-confederate-174135062.html)
-- Dec 18 - [Trump lawyer torched for bragging about being sanctioned nearly $1 million over "frivolous" lawsuit](https://news.yahoo.com/trump-lawyer-torched-bragging-being-172546732.html)
-- Dec 18 - [Walmart makes a major change to prevent theft (some customers will hate it)](https://www.thestreet.com/retailers/walmart-makes-a-major-change-to-prevent-theft-some-customers-will-hate-it?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Dec 18 - [Texas to arrest migrants crossing border illegally under new state law](https://news.yahoo.com/texas-arrest-migrants-crossing-border-194415030.html)
+- Dec 18 - [Town-by-town damage reports: Toppled trees, downed power lines as storm wreaks havoc on Mass.](https://news.yahoo.com/town-town-damage-reports-toppled-134449232.html)
+- Dec 18 - [Biden has lost the battle for the soul of the nation](https://news.yahoo.com/biden-lost-battle-soul-nation-191525093.html)
+- Dec 18 - [Apple Will Halt Some Watch Sales in the U.S. The Stock Is Falling.](https://www.barrons.com/articles/apple-stock-watch-import-ban-e39d8ac4?siteid=yhoof2&yptr=yahoo)
+- Dec 18 - [Planned Parenthood drops challenge to Kentucky abortion ban](https://news.yahoo.com/planned-parenthood-drops-challenge-kentucky-183427939.html)
 <!-- feed end -->
 
 ### Onstream
