@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [Bernstein's top tech stocks for 2024](https://finance.yahoo.com/video/bernsteins-top-tech-stocks-2024-154334455.html)
+- Dec 18 - [Ramaswamy pushes back on Van Jones remarks: ‘Shut the f‑‑‑ up’](https://news.yahoo.com/ramaswamy-pushes-back-van-jones-144918430.html)
 - Dec 18 - [Clarence Thomas was deep in debt when he hinted to a GOP lawmaker that he'd quit if he didn't get a pay raise: report](https://news.yahoo.com/clarence-thomas-deep-debt-hinted-142945172.html)
-- Dec 18 - [Apple will pause Watch Series 9 and Ultra 2 sales in the US due to a patent dispute](https://news.yahoo.com/apple-will-pause-watch-series-9-and-ultra-2-sales-in-the-us-due-to-a-patent-dispute-142051903.html)
+- Dec 18 - [Apple Watch Series 9 and Ultra 2 sales paused in the US due to a patent dispute](https://news.yahoo.com/apple-will-pause-watch-series-9-and-ultra-2-sales-in-the-us-due-to-a-patent-dispute-142051903.html)
 - Dec 18 - [Pope approves blessings for same-sex couples if they don't resemble marriage](https://news.yahoo.com/pope-says-priests-bless-same-140601263.html)
-- Dec 18 - [Watch This Amazing SpaceX Falcon 9 Liftoff Via Falcon Heavy Launch Pad](https://news.yahoo.com/watch-amazing-spacex-falcon-9-140000605.html)
-- Dec 18 - [Ask an Advisor: I'm 62 and My Husband Is 68. Can I Collect Spousal Benefits for 5 Years and Switch to My Own at Full Retirement Age?](https://finance.yahoo.com/news/ask-advisor-im-62-husband-132654724.html)
 <!-- feed end -->
 
 ### Onstream
