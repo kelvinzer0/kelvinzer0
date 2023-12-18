@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [IDF Say 'Biggest Hamas Tunnel' Found Close to Gaza Border](https://news.yahoo.com/idf-biggest-hamas-tunnel-found-081305466.html)
+- Dec 18 - [Man issues warning to others after making a surprising discovery on a bike path: ‘Do not touch … with bare hands’](https://www.yahoo.com/lifestyle/man-issues-warning-others-making-080000510.html)
 - Dec 18 - [Hillary Clinton Burns Donald Trump's Putin Praise With 1 Word](https://news.yahoo.com/hillary-clinton-burns-donald-trumps-074602686.html)
 - Dec 18 - [A gloomy mood hangs over Ukraine's soldiers as war with Russia grinds on](https://news.yahoo.com/gloomy-mood-hangs-over-ukraines-050353899.html)
 - Dec 18 - [Asian fertiliser buyers turn away from key exporter China amid growing curbs](https://finance.yahoo.com/news/asian-fertiliser-buyers-turn-away-043702863.html)
