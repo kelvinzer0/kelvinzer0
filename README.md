@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [San Francisco prosecutors begin charging 80 protesters who blocked bridge while demanding cease-fire](https://news.yahoo.com/san-francisco-prosecutors-begin-charging-201501836.html)
+- Dec 18 - [Experts have bad news for cash-strapped Giuliani: Even bankruptcy can't save him from $148M verdict](https://news.yahoo.com/experts-bad-news-cash-strapped-200919490.html)
+- Dec 18 - [Actor Jonathan Majors found guilty of assaulting his former girlfriend in car in New York](https://news.yahoo.com/actor-jonathan-majors-found-guilty-200243861.html)
 - Dec 18 - [Texas to arrest migrants crossing border illegally under new state law](https://news.yahoo.com/texas-arrest-migrants-crossing-border-194415030.html)
-- Dec 18 - [Town-by-town damage reports: Toppled trees, downed power lines as storm wreaks havoc on Mass.](https://news.yahoo.com/town-town-damage-reports-toppled-134449232.html)
-- Dec 18 - [Biden has lost the battle for the soul of the nation](https://news.yahoo.com/biden-lost-battle-soul-nation-191525093.html)
-- Dec 18 - [Apple Will Halt Some Watch Sales in the U.S. The Stock Is Falling.](https://www.barrons.com/articles/apple-stock-watch-import-ban-e39d8ac4?siteid=yhoof2&yptr=yahoo)
-- Dec 18 - [Planned Parenthood drops challenge to Kentucky abortion ban](https://news.yahoo.com/planned-parenthood-drops-challenge-kentucky-183427939.html)
+- Dec 18 - [‘Just awful’: Acosta reacts to Trump backing man with known racist past](https://news.yahoo.com/just-awful-acosta-reacts-trump-191524905.html)
 <!-- feed end -->
 
 ### Onstream
