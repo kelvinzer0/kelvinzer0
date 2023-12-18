@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 17 - [Kings G League player Chance Comanche arrested, facing murder charge after woman's death in Las Vegas](https://sports.yahoo.com/kings-g-league-player-chance-comanche-arrested-facing-murder-charge-after-womans-death-in-las-vegas-225446488.html)
-- Dec 17 - [Fox News Anchors Worry Trump’s ‘Poisoning the Blood’ Anti-Immigrant Comments Will Overshadow Gay Senate Sex Tape Scandal](https://www.yahoo.com/entertainment/fox-news-anchors-worry-trump-223513157.html)
-- Dec 17 - [An 86-year-old Black Woman Died at a FedEx Facility… And She Isn’t The First](https://news.yahoo.com/86-old-black-woman-died-213600175.html)
-- Dec 17 - [Scientists sound the alarm after salmon species finds new spawning location: ‘An ominous sign’](https://news.yahoo.com/scientists-sound-alarm-salmon-species-213000446.html)
-- Dec 17 - [NBA G-league player and girlfriend “execute murder plan,” accused of killing woman in Las Vegas valley, police say](https://news.yahoo.com/nba-g-league-player-girlfriend-205430289.html)
+- Dec 18 - [Trump says Nevada fake electors treated 'unfairly' during rally in Reno](https://news.yahoo.com/trump-says-nevada-fake-electors-015554825.html)
+- Dec 18 - [Trump bemoans record stock market as just making 'rich people richer'](https://news.yahoo.com/trump-bemoans-record-stock-market-014448274.html)
+- Dec 18 - [Car plows into parked vehicle in Biden's motorcade outside Delaware campaign headquarters](https://news.yahoo.com/car-plows-parked-vehicle-bidens-014038922.html)
+- Dec 18 - [History Says the Nasdaq Will Surge in 2024: 1 Stock-Split Stock to Buy Before It Does](https://finance.yahoo.com/news/history-says-nasdaq-surge-2024-001700586.html)
+- Dec 18 - [Mother shocked after truck driver attempts illegal act next to her EV: ‘Can’t believe people really try [this]’](https://www.yahoo.com/lifestyle/mother-shocked-truck-driver-attempts-000000358.html)
 <!-- feed end -->
 
 ### Onstream
