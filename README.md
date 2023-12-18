@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [San Francisco prosecutors begin charging 80 protesters who blocked bridge while demanding cease-fire](https://news.yahoo.com/san-francisco-prosecutors-begin-charging-201501836.html)
-- Dec 18 - [Experts have bad news for cash-strapped Giuliani: Even bankruptcy can't save him from $148M verdict](https://news.yahoo.com/experts-bad-news-cash-strapped-200919490.html)
-- Dec 18 - [Actor Jonathan Majors found guilty of assaulting his former girlfriend in car in New York](https://news.yahoo.com/actor-jonathan-majors-found-guilty-200243861.html)
-- Dec 18 - [Texas to arrest migrants crossing border illegally under new state law](https://news.yahoo.com/texas-arrest-migrants-crossing-border-194415030.html)
-- Dec 18 - [‘Just awful’: Acosta reacts to Trump backing man with known racist past](https://news.yahoo.com/just-awful-acosta-reacts-trump-191524905.html)
+- Dec 18 - [Trump legal news brief: Appeals court rejects Meadows’s bid to move Georgia case to federal court](https://news.yahoo.com/trump-legal-news-brief-appeals-court-rejects-meadowss-bid-to-move-georgia-case-to-federal-court-213329531.html)
+- Dec 18 - [‘Veep-for-Palestine’ Kamala Harris is undermining Biden's presidency](https://news.yahoo.com/kamala-harris-pro-palestine-plot-205208681.html)
+- Dec 18 - [NY officials shred Trump's fraud-trial 'antics' in a sarcasm-laced filing. Judge agrees, signaling trouble to come.](https://news.yahoo.com/ny-officials-lose-temper-shred-203816425.html)
+- Dec 18 - [Mark Zuckerburg Is Reportedly Building Himself a $270 Million Survivalist Compound in Hawaii](https://www.yahoo.com/lifestyle/mark-zuckerburg-reportedly-building-himself-203000936.html)
+- Dec 18 - [Largest nursing home in St. Louis closes suddenly, forcing out 170 residents](https://news.yahoo.com/largest-nursing-home-st-louis-201630663.html)
 <!-- feed end -->
 
 ### Onstream
