@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [Roseanne Barr Stuns Right-Wing Crowd Into Silence With Speech on ‘Stalinists, Communists, Nazi Fascists’ | Video](https://www.yahoo.com/entertainment/roseanne-barr-stuns-wing-crowd-020034113.html)
 - Dec 18 - [Trump says Nevada fake electors treated 'unfairly' during rally in Reno](https://news.yahoo.com/trump-says-nevada-fake-electors-015554825.html)
 - Dec 18 - [Trump bemoans record stock market as just making 'rich people richer'](https://news.yahoo.com/trump-bemoans-record-stock-market-014448274.html)
 - Dec 18 - [Car plows into parked vehicle in Biden's motorcade outside Delaware campaign headquarters](https://news.yahoo.com/car-plows-parked-vehicle-bidens-014038922.html)
-- Dec 18 - [History Says the Nasdaq Will Surge in 2024: 1 Stock-Split Stock to Buy Before It Does](https://finance.yahoo.com/news/history-says-nasdaq-surge-2024-001700586.html)
-- Dec 18 - [Mother shocked after truck driver attempts illegal act next to her EV: ‘Can’t believe people really try [this]’](https://www.yahoo.com/lifestyle/mother-shocked-truck-driver-attempts-000000358.html)
+- Dec 18 - [Biden safe after car collides with motorcade](https://news.yahoo.com/car-collides-vehicle-president-bidens-013801674.html)
 <!-- feed end -->
 
 ### Onstream
