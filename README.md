@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [Judge issues order keeping Confederate memorial at Arlington Cemetery for now](https://news.yahoo.com/judge-issues-order-keeping-confederate-174135062.html)
+- Dec 18 - [Trump lawyer torched for bragging about being sanctioned nearly $1 million over "frivolous" lawsuit](https://news.yahoo.com/trump-lawyer-torched-bragging-being-172546732.html)
+- Dec 18 - [Apple Stock Falls on Reports Watch Sales Will Be Halted](https://www.barrons.com/articles/apple-stock-watch-import-ban-e39d8ac4?siteid=yhoof2&yptr=yahoo)
+- Dec 18 - [Walmart makes a major change to prevent theft (some customers will hate it)](https://www.thestreet.com/retailers/walmart-makes-a-major-change-to-prevent-theft-some-customers-will-hate-it?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Dec 18 - [MTG explodes at Lindsey Graham for admitting there's no "smoking gun" in Biden impeachment stunt](https://news.yahoo.com/mtg-explodes-lindsey-graham-admitting-163826249.html)
-- Dec 18 - [Why 'cash is in the trash' in 2024: Strategist](https://finance.yahoo.com/video/why-cash-trash-2024-strategist-163333501.html)
-- Dec 18 - [Ramaswamy pushes back on Van Jones remarks: ‘Shut the f‑‑‑ up’](https://news.yahoo.com/ramaswamy-pushes-back-van-jones-144918430.html)
-- Dec 18 - [Clarence Thomas was deep in debt when he hinted to a GOP lawmaker that he'd quit if he didn't get a pay raise: report](https://news.yahoo.com/clarence-thomas-deep-debt-hinted-142945172.html)
-- Dec 18 - [Apple Watch Series 9 and Ultra 2 sales paused in the US due to a patent dispute](https://news.yahoo.com/apple-will-pause-watch-series-9-and-ultra-2-sales-in-the-us-due-to-a-patent-dispute-142051903.html)
 <!-- feed end -->
 
 ### Onstream
