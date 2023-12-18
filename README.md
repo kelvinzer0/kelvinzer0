@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - ['A River Where a Road Once Was':  Queensland Community 'Cut in Half' by Extreme Flooding](https://news.yahoo.com/river-where-road-once-queensland-135147037.html)
-- Dec 18 - [Unwashed and underfed, babies born into Gaza war face hardship in tents](https://news.yahoo.com/unwashed-underfed-babies-born-gaza-134206205.html)
-- Dec 18 - [Retirement Planning: Why Are Nearly Two-Thirds of Boomers and Gen X Open to Working ‘Indefinitely?’ (It’s More Than Money)](https://finance.yahoo.com/news/retirement-planning-why-nearly-two-133353981.html)
+- Dec 18 - [Clarence Thomas was deep in debt when he hinted to a GOP lawmaker that he'd quit if he didn't get a pay raise: report](https://news.yahoo.com/clarence-thomas-deep-debt-hinted-142945172.html)
+- Dec 18 - [Apple will pause Watch Series 9 and Ultra 2 sales in the US due to a patent dispute](https://news.yahoo.com/apple-will-pause-watch-series-9-and-ultra-2-sales-in-the-us-due-to-a-patent-dispute-142051903.html)
+- Dec 18 - [Pope approves blessings for same-sex couples if they don't resemble marriage](https://news.yahoo.com/pope-says-priests-bless-same-140601263.html)
+- Dec 18 - [Watch This Amazing SpaceX Falcon 9 Liftoff Via Falcon Heavy Launch Pad](https://news.yahoo.com/watch-amazing-spacex-falcon-9-140000605.html)
 - Dec 18 - [Ask an Advisor: I'm 62 and My Husband Is 68. Can I Collect Spousal Benefits for 5 Years and Switch to My Own at Full Retirement Age?](https://finance.yahoo.com/news/ask-advisor-im-62-husband-132654724.html)
-- Dec 18 - [Trump Mocked With Brutal Legal Reminders After 'Telephone' Brag](https://news.yahoo.com/trump-mocked-brutal-legal-reminders-132250945.html)
 <!-- feed end -->
 
 ### Onstream
