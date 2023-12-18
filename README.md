@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Man issues warning to others after making a surprising discovery on a bike path: ‘Do not touch … with bare hands’](https://www.yahoo.com/lifestyle/man-issues-warning-others-making-080000510.html)
-- Dec 18 - [Hillary Clinton Burns Donald Trump's Putin Praise With 1 Word](https://news.yahoo.com/hillary-clinton-burns-donald-trumps-074602686.html)
-- Dec 18 - [A gloomy mood hangs over Ukraine's soldiers as war with Russia grinds on](https://news.yahoo.com/gloomy-mood-hangs-over-ukraines-050353899.html)
-- Dec 18 - [Asian fertiliser buyers turn away from key exporter China amid growing curbs](https://finance.yahoo.com/news/asian-fertiliser-buyers-turn-away-043702863.html)
-- Dec 18 - [A gang of robbers in Colorado found themselves high and dry after their getaway car got stolen, police say](https://news.yahoo.com/gang-robbers-colorado-found-themselves-042318464.html)
+- Dec 18 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://news.yahoo.com/james-webb-space-telescopes-first-120500384.html)
+- Dec 18 - [Japan's Nippon Steel to buy U.S. Steel in $14.9 billion deal](https://finance.yahoo.com/news/japans-nippon-steel-plans-acquire-104940430.html)
+- Dec 18 - [Gaza church killings at odds with war on Hamas, Italy tells Israel](https://news.yahoo.com/gaza-church-killings-odds-war-104220498.html)
+- Dec 18 - [Homeowner shocked by HOA’s ‘outdated’ vehicle rules: ‘[They’re] going to discourage people from buying in our community’](https://news.yahoo.com/homeowner-shocked-hoa-outdated-vehicle-101500548.html)
+- Dec 18 - [Biden's daughter owes thousands in income taxes, lien documents show](https://news.yahoo.com/bidens-daughter-owes-thousands-income-090029887.html)
 <!-- feed end -->
 
 ### Onstream
