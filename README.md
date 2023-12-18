@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Ukraine's army chief says situation at front line is not a stalemate](https://news.yahoo.com/ukraines-army-chief-says-situation-124406128.html)
-- Dec 18 - ['Tired of being played for suckers': President Biden proposed a new retirement rule that could help Americans save 'tens of thousands of dollars' — here's how it works](https://finance.yahoo.com/news/tired-being-played-suckers-president-170000473.html)
-- Dec 18 - [Ukraine’s military chief says one of his offices was bugged and other devices were detected](https://news.yahoo.com/ukraine-military-chief-says-one-122625955.html)
-- Dec 18 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://news.yahoo.com/james-webb-space-telescopes-first-120500384.html)
-- Dec 18 - [Gaza church killings at odds with war on Hamas, Italy tells Israel](https://news.yahoo.com/gaza-church-killings-odds-war-104220498.html)
+- Dec 18 - ['A River Where a Road Once Was':  Queensland Community 'Cut in Half' by Extreme Flooding](https://news.yahoo.com/river-where-road-once-queensland-135147037.html)
+- Dec 18 - [Unwashed and underfed, babies born into Gaza war face hardship in tents](https://news.yahoo.com/unwashed-underfed-babies-born-gaza-134206205.html)
+- Dec 18 - [Retirement Planning: Why Are Nearly Two-Thirds of Boomers and Gen X Open to Working ‘Indefinitely?’ (It’s More Than Money)](https://finance.yahoo.com/news/retirement-planning-why-nearly-two-133353981.html)
+- Dec 18 - [Ask an Advisor: I'm 62 and My Husband Is 68. Can I Collect Spousal Benefits for 5 Years and Switch to My Own at Full Retirement Age?](https://finance.yahoo.com/news/ask-advisor-im-62-husband-132654724.html)
+- Dec 18 - [Trump Mocked With Brutal Legal Reminders After 'Telephone' Brag](https://news.yahoo.com/trump-mocked-brutal-legal-reminders-132250945.html)
 <!-- feed end -->
 
 ### Onstream
