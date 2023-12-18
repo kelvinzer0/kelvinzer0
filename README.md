@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [Webb telescope’s new Uranus image looks like a portal to another dimension](https://news.yahoo.com/webb-telescopes-new-uranus-image-looks-like-a-portal-to-another-dimension-181035887.html)
+- Dec 18 - [Hamas' armed wing posts video showing Israeli hostages pleading for release](https://news.yahoo.com/hamas-armed-wing-posts-video-180954052.html)
 - Dec 18 - [Judge issues order keeping Confederate memorial at Arlington Cemetery for now](https://news.yahoo.com/judge-issues-order-keeping-confederate-174135062.html)
 - Dec 18 - [Trump lawyer torched for bragging about being sanctioned nearly $1 million over "frivolous" lawsuit](https://news.yahoo.com/trump-lawyer-torched-bragging-being-172546732.html)
-- Dec 18 - [Apple Stock Falls on Reports Watch Sales Will Be Halted](https://www.barrons.com/articles/apple-stock-watch-import-ban-e39d8ac4?siteid=yhoof2&yptr=yahoo)
 - Dec 18 - [Walmart makes a major change to prevent theft (some customers will hate it)](https://www.thestreet.com/retailers/walmart-makes-a-major-change-to-prevent-theft-some-customers-will-hate-it?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Dec 18 - [MTG explodes at Lindsey Graham for admitting there's no "smoking gun" in Biden impeachment stunt](https://news.yahoo.com/mtg-explodes-lindsey-graham-admitting-163826249.html)
 <!-- feed end -->
 
 ### Onstream
