@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Trump legal news brief: Appeals court rejects Meadows’s bid to move Georgia case to federal court](https://news.yahoo.com/trump-legal-news-brief-appeals-court-rejects-meadowss-bid-to-move-georgia-case-to-federal-court-213329531.html)
+- Dec 18 - [Trump's million dollar expert 'lost all credibility,' judge in NY civil fraud trial says](https://news.yahoo.com/trumps-million-dollar-expert-lost-223110080.html)
+- Dec 18 - [Jeff Bezos' Blue Origin delays unmanned space flight](https://finance.yahoo.com/video/jeff-bezos-blue-origin-delays-222608894.html)
 - Dec 18 - [‘Veep-for-Palestine’ Kamala Harris is undermining Biden's presidency](https://news.yahoo.com/kamala-harris-pro-palestine-plot-205208681.html)
 - Dec 18 - [NY officials shred Trump's fraud-trial 'antics' in a sarcasm-laced filing. Judge agrees, signaling trouble to come.](https://news.yahoo.com/ny-officials-lose-temper-shred-203816425.html)
 - Dec 18 - [Mark Zuckerburg Is Reportedly Building Himself a $270 Million Survivalist Compound in Hawaii](https://www.yahoo.com/lifestyle/mark-zuckerburg-reportedly-building-himself-203000936.html)
-- Dec 18 - [Largest nursing home in St. Louis closes suddenly, forcing out 170 residents](https://news.yahoo.com/largest-nursing-home-st-louis-201630663.html)
 <!-- feed end -->
 
 ### Onstream
