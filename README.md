@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [Ukraine's army chief says situation at front line is not a stalemate](https://news.yahoo.com/ukraines-army-chief-says-situation-124406128.html)
+- Dec 18 - ['Tired of being played for suckers': President Biden proposed a new retirement rule that could help Americans save 'tens of thousands of dollars' — here's how it works](https://finance.yahoo.com/news/tired-being-played-suckers-president-170000473.html)
+- Dec 18 - [Ukraine’s military chief says one of his offices was bugged and other devices were detected](https://news.yahoo.com/ukraine-military-chief-says-one-122625955.html)
 - Dec 18 - [James Webb Space Telescope's First Deep Field Image Is Mind-Boggling](https://news.yahoo.com/james-webb-space-telescopes-first-120500384.html)
-- Dec 18 - [Japan's Nippon Steel to buy U.S. Steel in $14.9 billion deal](https://finance.yahoo.com/news/japans-nippon-steel-plans-acquire-104940430.html)
 - Dec 18 - [Gaza church killings at odds with war on Hamas, Italy tells Israel](https://news.yahoo.com/gaza-church-killings-odds-war-104220498.html)
-- Dec 18 - [Homeowner shocked by HOA’s ‘outdated’ vehicle rules: ‘[They’re] going to discourage people from buying in our community’](https://news.yahoo.com/homeowner-shocked-hoa-outdated-vehicle-101500548.html)
-- Dec 18 - [Biden's daughter owes thousands in income taxes, lien documents show](https://news.yahoo.com/bidens-daughter-owes-thousands-income-090029887.html)
 <!-- feed end -->
 
 ### Onstream
