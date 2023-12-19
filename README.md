@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 19 - [Thousands rally across Slovakia to protest the government's plan to amend the penal code](https://news.yahoo.com/thousands-rally-across-slovakia-protest-184710988.html)
+- Dec 19 - [Trump just blasted this Texas congressman. But he made one big mistake | Opinion](https://news.yahoo.com/trump-just-blasted-texas-congressman-183501699.html)
 - Dec 19 - [Federal judge orders documents naming Jeffrey Epstein's associates to be unsealed](https://news.yahoo.com/federal-judge-orders-documents-naming-172600952.html)
-- Dec 19 - [Zelenskyy says he is weighing Ukrainian military's request for mobilization of up to 500,000 troops](https://news.yahoo.com/zelenskyy-says-weighing-ukrainian-militarys-171840159.html)
+- Dec 19 - [Zelenskyy says he's confident Ukraine will get more U.S. support for its war with Russia](https://news.yahoo.com/zelenskyy-says-weighing-ukrainian-militarys-171840159.html)
 - Dec 19 - [Missing dog found living in woods… but family won’t take her back](https://news.yahoo.com/missing-dog-found-living-woods-171837326.html)
-- Dec 19 - [Nearly half of Gen X workers haven't saved for retirement](https://finance.yahoo.com/video/nearly-half-gen-x-workers-171758739.html)
-- Dec 19 - [Remains found sunk in Kentucky lake almost 25 years ago finally identified](https://news.yahoo.com/remains-found-sunk-kentucky-lake-163053592.html)
 <!-- feed end -->
 
 ### Onstream
