@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 19 - ["Very bad signal for Trump": Experts say ruling against Mark Meadows may doom Trump's defense](https://news.yahoo.com/very-bad-signal-trump-experts-160135571.html)
+- Dec 19 - [Watch a Bradley and a BMP Fighting Vehicle Get Up Close and Personal in a Rare Battle](https://www.yahoo.com/tech/watch-bradley-bmp-fighting-vehicle-160100985.html)
 - Dec 19 - [Lawsuit against former Wisconsin Supreme Court justice dismissed after she turns over records](https://news.yahoo.com/lawsuit-against-former-wisconsin-supreme-155335768.html)
 - Dec 19 - [Mexico to challenge Texas' new 'inhumane' migration law, president says](https://news.yahoo.com/mexico-challenge-texas-inhumane-migration-152603079.html)
-- Dec 19 - [Russian public shows contempt for returning soldiers, attacking them physically](https://news.yahoo.com/russian-public-shows-contempt-returning-142100926.html)
-- Dec 19 - ['The biggest crash in history': Robert Kiyosaki warns that millions of 401(k)s and IRAs will be 'toast' — says there's 'no time to play Russian Roulette.' Here's what he likes for protection](https://finance.yahoo.com/news/biggest-crash-history-robert-kiyosaki-130000435.html)
+- Dec 19 - [Gaza war is world's 'moral failure', Red Cross chief says](https://news.yahoo.com/gaza-war-worlds-moral-failure-145256083.html)
 <!-- feed end -->
 
 ### Onstream
