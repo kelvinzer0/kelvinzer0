@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [China Earthquake: More Than 100 Killed and Hundreds Injured](https://finance.yahoo.com/video/china-earthquake-more-100-killed-031000636.html)
+- Dec 19 - [Man accused of killing 4 university students in Idaho loses bid to have indictment tossed](https://news.yahoo.com/man-accused-killing-4-university-202715098.html)
 - Dec 19 - [Minnesota panel chooses new state flag featuring North Star to replace old flag seen as racist](https://news.yahoo.com/minnesota-panel-chooses-state-flag-191758008.html)
 - Dec 19 - [I'm A Terrible Person So I Can't Stop Laughing After Reading All These Extremely Dumb Things People Posted On The Internet Last Year](https://www.yahoo.com/lifestyle/im-terrible-person-cant-stop-190342906.html)
+- Dec 19 - [Expert hired by Trump’s team to investigate fraud reveals findings](https://news.yahoo.com/expert-hired-trump-team-investigate-185430819.html)
 - Dec 19 - [Trump just blasted this Texas congressman. But he made one big mistake | Opinion](https://news.yahoo.com/trump-just-blasted-texas-congressman-183501699.html)
-- Dec 19 - [Nevada high court upholds sex abuse charges against ‘Dances With Wolves’ actor Nathan Chasing Horse](https://news.yahoo.com/nevada-high-court-upholds-sex-182930821.html)
 <!-- feed end -->
 
 ### Onstream
