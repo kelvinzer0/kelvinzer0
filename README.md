@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 18 - [Trump's million dollar expert 'lost all credibility,' judge in NY civil fraud trial says](https://news.yahoo.com/trumps-million-dollar-expert-lost-223110080.html)
-- Dec 18 - [Jeff Bezos' Blue Origin delays unmanned space flight](https://finance.yahoo.com/video/jeff-bezos-blue-origin-delays-222608894.html)
-- Dec 18 - [‘Veep-for-Palestine’ Kamala Harris is undermining Biden's presidency](https://news.yahoo.com/kamala-harris-pro-palestine-plot-205208681.html)
-- Dec 18 - [NY officials shred Trump's fraud-trial 'antics' in a sarcasm-laced filing. Judge agrees, signaling trouble to come.](https://news.yahoo.com/ny-officials-lose-temper-shred-203816425.html)
-- Dec 18 - [Mark Zuckerburg Is Reportedly Building Himself a $270 Million Survivalist Compound in Hawaii](https://www.yahoo.com/lifestyle/mark-zuckerburg-reportedly-building-himself-203000936.html)
+- Dec 18 - [S.C. woman who wondered how family's killer could 'live with yourself' is arrested in 2015 quadruple homicide](https://news.yahoo.com/c-woman-wondered-familys-killer-233905491.html)
+- Dec 18 - [Nikki Haley seen as more reasonable than Trump in key state: CBS News poll](https://news.yahoo.com/nikki-haley-seen-more-reasonable-230405655.html)
+- Dec 18 - [Trump's million-dollar expert 'lost all credibility,' judge in civil fraud trial says](https://news.yahoo.com/trumps-million-dollar-expert-lost-223110080.html)
+- Dec 18 - [1990 report: Ivana Trump told her lawyer Donald Trump kept Hitler speeches beside bed](https://news.yahoo.com/1990-report-ivana-trump-told-222544952.html)
+- Dec 18 - [3 Dunkin Donuts employees arrested after allegedly threatening customer](https://news.yahoo.com/3-dunkin-donuts-employees-arrested-221353420.html)
 <!-- feed end -->
 
 ### Onstream
