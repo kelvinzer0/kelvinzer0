@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 19 - [‘Return to the office is dead’: Stanford economist says the US is 'stuck' with remote work as more offices sit empty — is the bell tolling for US commercial real estate?](https://finance.yahoo.com/news/return-office-dead-stanford-economist-133000662.html)
 - Dec 19 - ['The biggest crash in history': Robert Kiyosaki warns that millions of 401(k)s and IRAs will be 'toast' — says there's 'no time to play Russian Roulette.' Here's what he likes for protection](https://finance.yahoo.com/news/biggest-crash-history-robert-kiyosaki-130000435.html)
+- Dec 19 - [Rudy Giuliani Back On Newsmax Doing The Same Ol' Thing After $148 Million Verdict](https://news.yahoo.com/rudy-giuliani-back-newsmax-doing-123552491.html)
+- Dec 19 - [Putin says Russia is ready to talk on Ukraine](https://news.yahoo.com/putin-says-russia-ready-talk-123213938.html)
 - Dec 19 - [‘Families were cheated’: Low-income Americans will receive $40M over chicken and tuna 'price-fixing conspiracies' — here's what happened](https://finance.yahoo.com/news/families-were-cheated-low-income-123000733.html)
-- Dec 19 - [21 Photos That Aren't Supposed To Be Funny, But DEFINITELY Are](https://www.yahoo.com/lifestyle/21-photos-arent-supposed-funny-111603193.html)
-- Dec 19 - [Washington serial killer suspect lured victims to their deaths with promises of finding 'buried gold': docs](https://news.yahoo.com/washington-serial-killer-suspect-lured-090009798.html)
-- Dec 19 - [Abby Phillip Stunned By GOP Lawmaker's Defense Of Trump's Vile Claim](https://news.yahoo.com/abby-phillip-stunned-gop-lawmakers-072602692.html)
 <!-- feed end -->
 
 ### Onstream
