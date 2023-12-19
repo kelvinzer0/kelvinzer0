@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 19 - [Human remains found nearly 25 years ago in Kentucky ID'd as those of an FBI fugitive](https://news.yahoo.com/human-remains-found-25-years-182434929.html)
 - Dec 19 - [Man accused of killing 4 university students in Idaho loses bid to have indictment tossed](https://news.yahoo.com/man-accused-killing-4-university-202715098.html)
+- Dec 19 - [Ketanji Brown Jackson slapped with ethics complaint over husband's income](https://news.yahoo.com/ketanji-brown-jackson-slapped-ethics-192952643.html)
 - Dec 19 - [Minnesota panel chooses new state flag featuring North Star to replace old flag seen as racist](https://news.yahoo.com/minnesota-panel-chooses-state-flag-191758008.html)
-- Dec 19 - [I'm A Terrible Person So I Can't Stop Laughing After Reading All These Extremely Dumb Things People Posted On The Internet Last Year](https://www.yahoo.com/lifestyle/im-terrible-person-cant-stop-190342906.html)
-- Dec 19 - [Expert hired by Trump’s team to investigate fraud reveals findings](https://news.yahoo.com/expert-hired-trump-team-investigate-185430819.html)
-- Dec 19 - [Trump just blasted this Texas congressman. But he made one big mistake | Opinion](https://news.yahoo.com/trump-just-blasted-texas-congressman-183501699.html)
+- Dec 19 - [I Know I Shouldn't Laugh But These 85 Extremely Dumb Things People Posted On The Internet Last Month Are Killing Me](https://www.yahoo.com/lifestyle/im-terrible-person-cant-stop-190342906.html)
 <!-- feed end -->
 
 ### Onstream
