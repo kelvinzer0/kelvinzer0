@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [Trump lawyer testified in Nevada about fake elector plot to avoid prosecution, transcripts show](https://news.yahoo.com/trump-lawyer-testified-nevada-fake-021547049.html)
-- Dec 19 - [Texas governor signs bill allowing state to arrest migrants](https://news.yahoo.com/texas-governor-signs-bill-allowing-014835885.html)
+- Dec 19 - [Trump campaign lawyer testified in Nevada fake electors case to avoid prosecution, transcripts show](https://news.yahoo.com/trump-lawyer-testified-nevada-fake-021547049.html)
 - Dec 19 - [Liz Cheney Tells Fox News Viewers Why They Should Not Vote For Donald Trump: “This Isn’t About Policy … It’s About The Republic. It’s About The Constitution”](https://www.yahoo.com/entertainment/liz-cheney-tells-fox-news-003910466.html)
-- Dec 19 - [Kentucky lieutenant governor undergoes 'successful' double mastectomy, expects to make full recovery](https://news.yahoo.com/kentucky-lieutenant-governor-undergoes-successful-001126437.html)
-- Dec 19 - [Colorado releases first 5 wolves in reintroduction plan approved by voters to chagrin of ranchers](https://news.yahoo.com/colorado-releases-first-5-wolves-000840474.html)
+- Dec 18 - [S.C. woman who wondered how family's killer could 'live with yourself' is arrested in 2015 quadruple homicide](https://news.yahoo.com/c-woman-wondered-familys-killer-233905491.html)
+- Dec 18 - [Trump's million-dollar expert 'lost all credibility,' judge in civil fraud trial says](https://news.yahoo.com/trumps-million-dollar-expert-lost-223110080.html)
+- Dec 18 - [1990 report: Ivana Trump told her lawyer Donald Trump kept Hitler speeches beside bed](https://news.yahoo.com/1990-report-ivana-trump-told-222544952.html)
 <!-- feed end -->
 
 ### Onstream
