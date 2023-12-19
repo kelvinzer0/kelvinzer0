@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 19 - [Russian public shows contempt for returning soldiers, attacking them physically](https://news.yahoo.com/russian-public-shows-contempt-returning-142100926.html)
 - Dec 19 - [‘Return to the office is dead’: Stanford economist says the US is 'stuck' with remote work as more offices sit empty — is the bell tolling for US commercial real estate?](https://finance.yahoo.com/news/return-office-dead-stanford-economist-133000662.html)
 - Dec 19 - ['The biggest crash in history': Robert Kiyosaki warns that millions of 401(k)s and IRAs will be 'toast' — says there's 'no time to play Russian Roulette.' Here's what he likes for protection](https://finance.yahoo.com/news/biggest-crash-history-robert-kiyosaki-130000435.html)
-- Dec 19 - [Rudy Giuliani Back On Newsmax Doing The Same Ol' Thing After $148 Million Verdict](https://news.yahoo.com/rudy-giuliani-back-newsmax-doing-123552491.html)
 - Dec 19 - [Putin says Russia is ready to talk on Ukraine](https://news.yahoo.com/putin-says-russia-ready-talk-123213938.html)
 - Dec 19 - [‘Families were cheated’: Low-income Americans will receive $40M over chicken and tuna 'price-fixing conspiracies' — here's what happened](https://finance.yahoo.com/news/families-were-cheated-low-income-123000733.html)
 <!-- feed end -->
