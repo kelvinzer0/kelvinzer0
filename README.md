@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [Hyundai to sell Russian plant, take $219 mln hit](https://finance.yahoo.com/video/hyundai-sell-russian-plant-219-120553860.html)
-- Dec 19 - [Medical examiner confirms wife of Hollywood agent’s son is dead a month after husband was charged with murder](https://news.yahoo.com/medical-examiner-confirms-wife-hollywood-080107329.html)
+- Dec 19 - ['The biggest crash in history': Robert Kiyosaki warns that millions of 401(k)s and IRAs will be 'toast' — says there's 'no time to play Russian Roulette.' Here's what he likes for protection](https://finance.yahoo.com/news/biggest-crash-history-robert-kiyosaki-130000435.html)
+- Dec 19 - [‘Families were cheated’: Low-income Americans will receive $40M over chicken and tuna 'price-fixing conspiracies' — here's what happened](https://finance.yahoo.com/news/families-were-cheated-low-income-123000733.html)
+- Dec 19 - [21 Photos That Aren't Supposed To Be Funny, But DEFINITELY Are](https://www.yahoo.com/lifestyle/21-photos-arent-supposed-funny-111603193.html)
 - Dec 19 - [Washington serial killer suspect lured victims to their deaths with promises of finding 'buried gold': docs](https://news.yahoo.com/washington-serial-killer-suspect-lured-090009798.html)
-- Dec 19 - [Philadelphia LGBTQ+ activist Kendall Stephens charged in rape of two minors: sources](https://news.yahoo.com/philadelphia-lgbtq-activist-kendall-stephens-041807391.html)
-- Dec 19 - [Trump campaign lawyer testified in Nevada fake electors case to avoid prosecution, transcripts show](https://news.yahoo.com/trump-lawyer-testified-nevada-fake-021547049.html)
+- Dec 19 - [Abby Phillip Stunned By GOP Lawmaker's Defense Of Trump's Vile Claim](https://news.yahoo.com/abby-phillip-stunned-gop-lawmakers-072602692.html)
 <!-- feed end -->
 
 ### Onstream
