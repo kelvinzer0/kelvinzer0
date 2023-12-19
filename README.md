@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Dec 19 - [Trump remarks about undocumented immigrants at N.H. rally sparks backlash](https://news.yahoo.com/trump-remarks-undocumented-immigrants-n-015556943.html)
 - Dec 19 - [Kentucky lieutenant governor undergoes 'successful' double mastectomy, expects to make full recovery](https://news.yahoo.com/kentucky-lieutenant-governor-undergoes-successful-001126437.html)
 - Dec 19 - [Colorado releases first 5 wolves in reintroduction plan approved by voters to chagrin of ranchers](https://news.yahoo.com/colorado-releases-first-5-wolves-000840474.html)
-- Dec 18 - [Trump's million-dollar expert 'lost all credibility,' judge in civil fraud trial says](https://news.yahoo.com/trumps-million-dollar-expert-lost-223110080.html)
+- Dec 19 - [White House plans one more Ukraine aid package, then up to Congress](https://news.yahoo.com/white-house-plans-one-more-000416598.html)
 <!-- feed end -->
 
 ### Onstream
