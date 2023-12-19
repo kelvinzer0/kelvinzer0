@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - ["Very bad signal for Trump": Experts say ruling against Mark Meadows may doom Trump's defense](https://news.yahoo.com/very-bad-signal-trump-experts-160135571.html)
-- Dec 19 - [Watch a Bradley and a BMP Fighting Vehicle Get Up Close and Personal in a Rare Battle](https://www.yahoo.com/tech/watch-bradley-bmp-fighting-vehicle-160100985.html)
-- Dec 19 - [Lawsuit against former Wisconsin Supreme Court justice dismissed after she turns over records](https://news.yahoo.com/lawsuit-against-former-wisconsin-supreme-155335768.html)
-- Dec 19 - [Mexico to challenge Texas' new 'inhumane' migration law, president says](https://news.yahoo.com/mexico-challenge-texas-inhumane-migration-152603079.html)
-- Dec 19 - [Gaza war is world's 'moral failure', Red Cross chief says](https://news.yahoo.com/gaza-war-worlds-moral-failure-145256083.html)
+- Dec 19 - [Federal judge orders documents naming Jeffrey Epstein's associates to be unsealed](https://news.yahoo.com/federal-judge-orders-documents-naming-172600952.html)
+- Dec 19 - [Zelenskyy says he is weighing Ukrainian military's request for mobilization of up to 500,000 troops](https://news.yahoo.com/zelenskyy-says-weighing-ukrainian-militarys-171840159.html)
+- Dec 19 - [Missing dog found living in woods… but family won’t take her back](https://news.yahoo.com/missing-dog-found-living-woods-171837326.html)
+- Dec 19 - [Nearly half of Gen X workers haven't saved for retirement](https://finance.yahoo.com/video/nearly-half-gen-x-workers-171758739.html)
+- Dec 19 - [Remains found sunk in Kentucky lake almost 25 years ago finally identified](https://news.yahoo.com/remains-found-sunk-kentucky-lake-163053592.html)
 <!-- feed end -->
 
 ### Onstream
