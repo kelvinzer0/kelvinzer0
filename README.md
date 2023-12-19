@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 19 - [Philippines president says diplomatic efforts with China heading "in poor direction"](https://news.yahoo.com/philippines-president-says-diplomatic-efforts-030006451.html)
 - Dec 19 - [Trump lawyer testified in Nevada about fake elector plot to avoid prosecution, transcripts show](https://news.yahoo.com/trump-lawyer-testified-nevada-fake-021547049.html)
 - Dec 19 - [Texas governor signs bill allowing state to arrest migrants](https://news.yahoo.com/texas-governor-signs-bill-allowing-014835885.html)
 - Dec 19 - [Liz Cheney Tells Fox News Viewers Why They Should Not Vote For Donald Trump: “This Isn’t About Policy … It’s About The Republic. It’s About The Constitution”](https://www.yahoo.com/entertainment/liz-cheney-tells-fox-news-003910466.html)
+- Dec 19 - [Kentucky lieutenant governor undergoes 'successful' double mastectomy, expects to make full recovery](https://news.yahoo.com/kentucky-lieutenant-governor-undergoes-successful-001126437.html)
 - Dec 19 - [Colorado releases first 5 wolves in reintroduction plan approved by voters to chagrin of ranchers](https://news.yahoo.com/colorado-releases-first-5-wolves-000840474.html)
 <!-- feed end -->
 
