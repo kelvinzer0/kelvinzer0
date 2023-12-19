@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 19 - [Medical examiner confirms wife of Hollywood agent’s son is dead a month after husband was charged with murder](https://news.yahoo.com/medical-examiner-confirms-wife-hollywood-080107329.html)
 - Dec 19 - [Philadelphia LGBTQ+ activist Kendall Stephens charged in rape of two minors: sources](https://news.yahoo.com/philadelphia-lgbtq-activist-kendall-stephens-041807391.html)
 - Dec 19 - [Trump campaign lawyer testified in Nevada fake electors case to avoid prosecution, transcripts show](https://news.yahoo.com/trump-lawyer-testified-nevada-fake-021547049.html)
-- Dec 19 - [Judge criticizes Trump's expert witness as he again refuses to toss fraud lawsuit](https://news.yahoo.com/judge-criticizes-trumps-expert-witness-020137915.html)
 - Dec 19 - [Kentucky lieutenant governor undergoes 'successful' double mastectomy, expects to make full recovery](https://news.yahoo.com/kentucky-lieutenant-governor-undergoes-successful-001126437.html)
+- Dec 19 - [Colorado releases first 5 wolves in reintroduction plan approved by voters to chagrin of ranchers](https://news.yahoo.com/colorado-releases-first-5-wolves-000840474.html)
 <!-- feed end -->
 
 ### Onstream
