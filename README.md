@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 19 - [Medical examiner confirms wife of Hollywood agent’s son is dead a month after husband was charged with murder](https://news.yahoo.com/medical-examiner-confirms-wife-hollywood-080107329.html)
 - Dec 19 - [Trump campaign lawyer testified in Nevada fake electors case to avoid prosecution, transcripts show](https://news.yahoo.com/trump-lawyer-testified-nevada-fake-021547049.html)
-- Dec 19 - [Trump remarks about undocumented immigrants at N.H. rally sparks backlash](https://news.yahoo.com/trump-remarks-undocumented-immigrants-n-015556943.html)
 - Dec 19 - [Kentucky lieutenant governor undergoes 'successful' double mastectomy, expects to make full recovery](https://news.yahoo.com/kentucky-lieutenant-governor-undergoes-successful-001126437.html)
 - Dec 19 - [Colorado releases first 5 wolves in reintroduction plan approved by voters to chagrin of ranchers](https://news.yahoo.com/colorado-releases-first-5-wolves-000840474.html)
 - Dec 19 - [White House plans one more Ukraine aid package, then up to Congress](https://news.yahoo.com/white-house-plans-one-more-000416598.html)
