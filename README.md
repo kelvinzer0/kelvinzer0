@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 19 - [A Palestinian baby girl, born 17 days ago during Gaza war, is killed with brother in Israeli strike](https://news.yahoo.com/palestinian-baby-girl-born-17-224722947.html)
+- Dec 19 - [Musk-Iger feud: Tesla removes Disney+ app from cars](https://finance.yahoo.com/video/musk-iger-feud-tesla-removes-223148813.html)
+- Dec 19 - [IRS to waive $1 billion in penalties for people and firms owing back taxes for 2020 or 2021](https://news.yahoo.com/irs-waive-1-billion-penalties-215920531.html)
+- Dec 19 - [Republican US House panel chair subpoenas Attorney General Merrick Garland](https://news.yahoo.com/republican-us-house-panel-chair-214111274.html)
 - Dec 19 - [Human remains found nearly 25 years ago in Kentucky ID'd as those of an FBI fugitive](https://news.yahoo.com/human-remains-found-25-years-182434929.html)
-- Dec 19 - [Man accused of killing 4 university students in Idaho loses bid to have indictment tossed](https://news.yahoo.com/man-accused-killing-4-university-202715098.html)
-- Dec 19 - [Ketanji Brown Jackson slapped with ethics complaint over husband's income](https://news.yahoo.com/ketanji-brown-jackson-slapped-ethics-192952643.html)
-- Dec 19 - [Minnesota panel chooses new state flag featuring North Star to replace old flag seen as racist](https://news.yahoo.com/minnesota-panel-chooses-state-flag-191758008.html)
-- Dec 19 - [I Know I Shouldn't Laugh But These 85 Extremely Dumb Things People Posted On The Internet Last Month Are Killing Me](https://www.yahoo.com/lifestyle/im-terrible-person-cant-stop-190342906.html)
 <!-- feed end -->
 
 ### Onstream
