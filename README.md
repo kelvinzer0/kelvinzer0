@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Letters to the Editor: Trump's legal defense could make Biden America's first king](https://news.yahoo.com/letters-editor-trumps-legal-defense-110000180.html)
+- Dec 20 - [Mary Trump Splatters Uncle With Priceless Picture After Colorado News](https://news.yahoo.com/mary-trump-splatters-uncle-priceless-093221699.html)
 - Dec 20 - [Hamas leader visits Cairo, a sign talks on another Gaza truce and hostage swap are gathering pace](https://news.yahoo.com/hamas-says-top-leader-arrived-084625588.html)
-- Dec 20 - [Ex-White House lawyer says Supreme Court could rule ‘9-0’ in possible Trump 14th Amendment case](https://news.yahoo.com/ex-white-house-lawyer-says-040812190.html)
+- Dec 20 - [Philippines rebukes China over South China Sea claims](https://news.yahoo.com/philippines-rebukes-china-over-south-055843003.html)
 - Dec 20 - [Las Vegas lawyer in teen crime spree receives death threats; judge declines to drop charges](https://news.yahoo.com/las-vegas-lawyer-teen-crime-023639187.html)
-- Dec 20 - [Mother of a child punished by a court for urinating in public refuses to sign probation terms](https://news.yahoo.com/mother-child-punished-court-urinating-010636274.html)
-- Dec 20 - [Group turned away at Mexican holiday party returned with gunmen killing 11, investigators say](https://news.yahoo.com/group-turned-away-mexican-holiday-000348047.html)
 <!-- feed end -->
 
 ### Onstream
