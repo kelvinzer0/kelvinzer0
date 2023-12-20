@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 20 - [Warner Bros. Discovery, Paramount in talks to to merge: Axios](https://finance.yahoo.com/video/warner-bros-discovery-paramount-talks-212607421.html)
+- Dec 20 - [Texas man's photo of 'black panther' creates buzz. Wildlife experts say it's not possible](https://news.yahoo.com/texas-mans-photo-black-panther-214934180.html)
+- Dec 20 - [Wisconsin elections commission rejects complaint against Trump fake electors for second time](https://news.yahoo.com/wisconsin-elections-commission-rejects-complaint-214136983.html)
+- Dec 20 - [North Korea's Kim warns of 'nuclear attack' if provoked with nukes -KCNA](https://news.yahoo.com/north-koreas-kim-warns-nuclear-212448298.html)
 - Dec 20 - [I'm a doctor who lost 25 pounds on Ozempic — then quit. Here's what happened after I stopped taking it.](https://news.yahoo.com/im-doctor-lost-25-pounds-204640069.html)
 - Dec 20 - [Marjorie Taylor Greene Mocked For Yet Another 'National Divorce' Plea](https://news.yahoo.com/marjorie-taylor-greene-mocked-yet-204516415.html)
-- Dec 20 - [White supremacist sentenced for threatening jury and witnesses at synagogue shooter's trial](https://news.yahoo.com/white-supremacist-sentenced-threatening-jury-201934079.html)
-- Dec 20 - [Trump urges US Supreme Court not to expedite 2020 immunity claim](https://news.yahoo.com/trump-urges-us-supreme-court-193657541.html)
 <!-- feed end -->
 
 ### Onstream
