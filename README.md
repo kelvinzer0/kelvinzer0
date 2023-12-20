@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Edmunds bought a Chevy Blazer EV. It isn't going well](https://www.autoblog.com/2023/12/20/edmunds-long-term-chevy-blazer-ev-faults/)
+- Dec 20 - [A Wall Street escort underwent a $3,900 cosmetic procedure to help maximize time with high-paying clients](https://news.yahoo.com/wall-street-escort-did-3-175039616.html)
 - Dec 20 - [Hezbollah pays growing price in Mideast conflict](https://news.yahoo.com/hezbollah-pays-growing-price-mideast-174230209.html)
+- Dec 20 - [Jeff Bezos Said The 'Best Gift' He Ever Received Was Construction Toys — He Loved Them So Much That Mackenzie Scott Bought Him A 5-Foot-Tall Tool Chest Filled With Legos For Their Fifth Wedding Anniversary](https://finance.yahoo.com/news/jeff-bezos-said-best-gift-174042710.html)
 - Dec 20 - [Man walks into Coweta sporting goods store, loads gun he wanted to purchase, deputies say](https://news.yahoo.com/man-walks-coweta-sporting-goods-165850774.html)
-- Dec 20 - [Coach Tommy Tuberville routed in a 0-436 loss after the senator failed to prevent a single military promotion](https://news.yahoo.com/coach-tommy-tuberville-routed-0-165014499.html)
-- Dec 20 - [A Tesla owner says he got a $14,000 repair bill one day after buying a Model Y. A new report suggests it's part of a much bigger problem.](https://news.yahoo.com/tesla-owner-says-got-14-164758526.html)
-- Dec 20 - [Congressman told to hand over hundreds of texts and emails to FBI in 2020 election probe](https://news.yahoo.com/congressman-told-hand-over-hundreds-163621384.html)
 <!-- feed end -->
 
 ### Onstream
