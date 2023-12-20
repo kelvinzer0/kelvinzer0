@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [His dad murdered his mom on an African safari. Now he says the US government is 'hell-bent' on taking what's left](https://news.yahoo.com/dad-murdered-mom-african-safari-134215070.html)
+- Dec 20 - [GM buys out nearly half of its Buick dealers across the country, who opt to not sell EVs](https://finance.yahoo.com/news/gm-buys-nearly-half-buick-133702634.html)
+- Dec 20 - [Trump claims Constitution gives him immunity − here's why judges and the Supreme Court may not agree](https://news.yahoo.com/trump-claims-constitution-gives-him-132804395.html)
 - Dec 20 - [6ABC helicopter crash comes 40 years after death of Action News weatherman Jim O'Brien](https://news.yahoo.com/6abc-helicopter-crash-comes-40-131344927.html)
 - Dec 20 - [Warren Buffett’s Right-Hand Man Charlie Munger Said People With These 5 Traits Are ‘Almost Certain To Succeed’](https://finance.yahoo.com/news/warren-buffett-hand-man-charlie-123044086.html)
-- Dec 20 - [Letters to the Editor: Trump's legal defense could make Biden America's first king](https://news.yahoo.com/letters-editor-trumps-legal-defense-110000180.html)
-- Dec 20 - [Could ex-Panthers coach Frank Reich win big on the sale of his Charlotte home?](https://news.yahoo.com/could-ex-panthers-coach-frank-102000772.html)
-- Dec 20 - [Mary Trump Splatters Uncle With Priceless Picture After Colorado News](https://news.yahoo.com/mary-trump-splatters-uncle-priceless-093221699.html)
 <!-- feed end -->
 
 ### Onstream
