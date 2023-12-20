@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Congressman told to hand over hundreds of texts and emails to FBI in 2020 election probe](https://news.yahoo.com/congressman-told-hand-over-hundreds-163621384.html)
+- Dec 20 - [Ex-G Leaguer Confesses In Grisly Detail To Disturbing Las Vegas Murder During Sex Date](https://www.yahoo.com/entertainment/ex-g-leaguer-confesses-grisly-155110041.html)
 - Dec 20 - [Houthi leader threatens to attack US warships if Washington targets Yemen](https://news.yahoo.com/houthi-leader-threatens-attack-us-153413135.html)
+- Dec 20 - [Should you get a 'sleep divorce' from your significant other?](https://www.yahoo.com/lifestyle/should-you-get-sleep-divorce-162315868.html)
 - Dec 20 - [Brianna Ghey: The young killers who tried to get away with murder](https://news.yahoo.com/brianna-ghey-young-killers-tried-151858610.html)
-- Dec 20 - [His dad murdered his mom on an African safari. Now he says the US government is 'hell-bent' on taking what's left](https://news.yahoo.com/dad-murdered-mom-african-safari-134215070.html)
-- Dec 20 - [GM buys out nearly half of its Buick dealers across the country, who opt to not sell EVs](https://finance.yahoo.com/news/gm-buys-nearly-half-buick-133702634.html)
-- Dec 20 - [Trump claims Constitution gives him immunity − here's why judges and the Supreme Court may not agree](https://news.yahoo.com/trump-claims-constitution-gives-him-132804395.html)
 <!-- feed end -->
 
 ### Onstream
