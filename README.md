@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 20 - [Ex-White House lawyer says Supreme Court could rule ‘9-0’ in possible Trump 14th Amendment case](https://news.yahoo.com/ex-white-house-lawyer-says-040812190.html)
 - Dec 20 - [Las Vegas lawyer in teen crime spree receives death threats; judge declines to drop charges](https://news.yahoo.com/las-vegas-lawyer-teen-crime-023639187.html)
 - Dec 20 - [Israel battles Hamas on streets of Gaza city as UN delays vote again](https://news.yahoo.com/israel-battles-hamas-streets-gaza-022712395.html)
-- Dec 20 - [Sen. Tillis to introduce legislation barring federal funds from states ‘misusing’ 14th Amendment](https://news.yahoo.com/sen-tillis-introduce-legislation-barring-013614752.html)
 - Dec 20 - [Mother of a child punished by a court for urinating in public refuses to sign probation terms](https://news.yahoo.com/mother-child-punished-court-urinating-010636274.html)
+- Dec 20 - [Group turned away at Mexican holiday party returned with gunmen killing 11, investigators say](https://news.yahoo.com/group-turned-away-mexican-holiday-000348047.html)
 <!-- feed end -->
 
 ### Onstream
