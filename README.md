@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Marjorie Taylor Greene Mocked For Yet Another 'National Divorce' Plea](https://news.yahoo.com/marjorie-taylor-greene-mocked-yet-204516415.html)
 - Dec 20 - [Trump urges US Supreme Court not to expedite 2020 immunity claim](https://news.yahoo.com/trump-urges-us-supreme-court-193657541.html)
+- Dec 20 - [42 percent of GOP Iowa caucusgoers say ‘poisoning the blood’ remarks make them more likely to support Trump: poll](https://news.yahoo.com/42-percent-gop-iowa-caucusgoers-193416641.html)
 - Dec 20 - [An influencer has been fined $1 million after 'misleading' claims that proceeds from a cake would be donated to charity](https://www.yahoo.com/entertainment/influencer-fined-1-million-misleading-191140006.html)
-- Dec 20 - [Man Arrested in Girlfriend’s Fatal Plunge After Marriage Proposal](https://news.yahoo.com/man-arrested-girlfriend-fatal-plunge-183247578.html)
-- Dec 20 - [Edmunds bought a Chevy Blazer EV. It isn't going well](https://www.autoblog.com/2023/12/20/edmunds-long-term-chevy-blazer-ev-faults/)
-- Dec 20 - [Tunnels from Hamas leaders' homes found under Gaza City, Israel military says](https://news.yahoo.com/tunnels-hamas-leaders-homes-found-182115298.html)
+- Dec 20 - [Toyota recalling 1.12 million vehicles over potential air bag issue](https://finance.yahoo.com/news/toyota-recalls-1-million-us-185727269.html)
 <!-- feed end -->
 
 ### Onstream
