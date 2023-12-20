@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 20 - [Sen. Tillis to introduce legislation barring federal funds from states ‘misusing’ 14th Amendment](https://news.yahoo.com/sen-tillis-introduce-legislation-barring-013614752.html)
 - Dec 20 - [Mother of a child punished by a court for urinating in public refuses to sign probation terms](https://news.yahoo.com/mother-child-punished-court-urinating-010636274.html)
+- Dec 20 - [Social Media Reacts To Trump's Disqualification By Colorado Supreme Court](https://news.yahoo.com/social-media-reacts-trumps-disqualification-005323208.html)
 - Dec 20 - [Group turned away at Mexican holiday party returned with gunmen killing 11, investigators say](https://news.yahoo.com/group-turned-away-mexican-holiday-000348047.html)
 - Dec 19 - [What does Colorado Supreme Court ballot removal ruling mean for Trump?](https://news.yahoo.com/does-colorado-supreme-court-ballot-235515373.html)
-- Dec 19 - [Tesla skips employees' yearly merit-based stock compensations - Bloomberg News](https://finance.yahoo.com/news/tesla-skips-employees-yearly-merit-233655196.html)
 <!-- feed end -->
 
 ### Onstream
