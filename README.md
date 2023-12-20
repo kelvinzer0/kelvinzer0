@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Warner Bros. Discovery, Paramount in talks to to merge: Axios](https://finance.yahoo.com/video/warner-bros-discovery-paramount-talks-212607421.html)
+- Dec 20 - [I'm a doctor who lost 25 pounds on Ozempic — then quit. Here's what happened after I stopped taking it.](https://news.yahoo.com/im-doctor-lost-25-pounds-204640069.html)
 - Dec 20 - [Marjorie Taylor Greene Mocked For Yet Another 'National Divorce' Plea](https://news.yahoo.com/marjorie-taylor-greene-mocked-yet-204516415.html)
+- Dec 20 - [White supremacist sentenced for threatening jury and witnesses at synagogue shooter's trial](https://news.yahoo.com/white-supremacist-sentenced-threatening-jury-201934079.html)
 - Dec 20 - [Trump urges US Supreme Court not to expedite 2020 immunity claim](https://news.yahoo.com/trump-urges-us-supreme-court-193657541.html)
-- Dec 20 - [42 percent of GOP Iowa caucusgoers say ‘poisoning the blood’ remarks make them more likely to support Trump: poll](https://news.yahoo.com/42-percent-gop-iowa-caucusgoers-193416641.html)
-- Dec 20 - [An influencer has been fined $1 million after 'misleading' claims that proceeds from a cake would be donated to charity](https://www.yahoo.com/entertainment/influencer-fined-1-million-misleading-191140006.html)
-- Dec 20 - [Toyota recalling 1.12 million vehicles over potential air bag issue](https://finance.yahoo.com/news/toyota-recalls-1-million-us-185727269.html)
 <!-- feed end -->
 
 ### Onstream
