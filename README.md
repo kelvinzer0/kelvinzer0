@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Hezbollah pays growing price in Mideast conflict](https://news.yahoo.com/hezbollah-pays-growing-price-mideast-174230209.html)
+- Dec 20 - [Man walks into Coweta sporting goods store, loads gun he wanted to purchase, deputies say](https://news.yahoo.com/man-walks-coweta-sporting-goods-165850774.html)
+- Dec 20 - [Coach Tommy Tuberville routed in a 0-436 loss after the senator failed to prevent a single military promotion](https://news.yahoo.com/coach-tommy-tuberville-routed-0-165014499.html)
+- Dec 20 - [A Tesla owner says he got a $14,000 repair bill one day after buying a Model Y. A new report suggests it's part of a much bigger problem.](https://news.yahoo.com/tesla-owner-says-got-14-164758526.html)
 - Dec 20 - [Congressman told to hand over hundreds of texts and emails to FBI in 2020 election probe](https://news.yahoo.com/congressman-told-hand-over-hundreds-163621384.html)
-- Dec 20 - [Ex-G Leaguer Confesses In Grisly Detail To Disturbing Las Vegas Murder During Sex Date](https://www.yahoo.com/entertainment/ex-g-leaguer-confesses-grisly-155110041.html)
-- Dec 20 - [Houthi leader threatens to attack US warships if Washington targets Yemen](https://news.yahoo.com/houthi-leader-threatens-attack-us-153413135.html)
-- Dec 20 - [Should you get a 'sleep divorce' from your significant other?](https://www.yahoo.com/lifestyle/should-you-get-sleep-divorce-162315868.html)
-- Dec 20 - [Brianna Ghey: The young killers who tried to get away with murder](https://news.yahoo.com/brianna-ghey-young-killers-tried-151858610.html)
 <!-- feed end -->
 
 ### Onstream
