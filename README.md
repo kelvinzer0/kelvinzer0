@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 20 - [Letters to the Editor: Trump's legal defense could make Biden America's first king](https://news.yahoo.com/letters-editor-trumps-legal-defense-110000180.html)
+- Dec 20 - [Could ex-Panthers coach Frank Reich win big on the sale of his Charlotte home?](https://news.yahoo.com/could-ex-panthers-coach-frank-102000772.html)
 - Dec 20 - [Mary Trump Splatters Uncle With Priceless Picture After Colorado News](https://news.yahoo.com/mary-trump-splatters-uncle-priceless-093221699.html)
-- Dec 20 - [Hamas leader visits Cairo, a sign talks on another Gaza truce and hostage swap are gathering pace](https://news.yahoo.com/hamas-says-top-leader-arrived-084625588.html)
-- Dec 20 - [Philippines rebukes China over South China Sea claims](https://news.yahoo.com/philippines-rebukes-china-over-south-055843003.html)
+- Dec 20 - [Woman throws dog off two-storey roof](https://news.yahoo.com/woman-jailed-throwing-pet-dog-064828381.html)
 - Dec 20 - [Las Vegas lawyer in teen crime spree receives death threats; judge declines to drop charges](https://news.yahoo.com/las-vegas-lawyer-teen-crime-023639187.html)
 <!-- feed end -->
 
