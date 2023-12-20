@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [6ABC helicopter crash comes 40 years after death of Action News weatherman Jim O'Brien](https://news.yahoo.com/6abc-helicopter-crash-comes-40-131344927.html)
+- Dec 20 - [Warren Buffett’s Right-Hand Man Charlie Munger Said People With These 5 Traits Are ‘Almost Certain To Succeed’](https://finance.yahoo.com/news/warren-buffett-hand-man-charlie-123044086.html)
 - Dec 20 - [Letters to the Editor: Trump's legal defense could make Biden America's first king](https://news.yahoo.com/letters-editor-trumps-legal-defense-110000180.html)
 - Dec 20 - [Could ex-Panthers coach Frank Reich win big on the sale of his Charlotte home?](https://news.yahoo.com/could-ex-panthers-coach-frank-102000772.html)
 - Dec 20 - [Mary Trump Splatters Uncle With Priceless Picture After Colorado News](https://news.yahoo.com/mary-trump-splatters-uncle-priceless-093221699.html)
-- Dec 20 - [Woman throws dog off two-storey roof](https://news.yahoo.com/woman-jailed-throwing-pet-dog-064828381.html)
-- Dec 20 - [Las Vegas lawyer in teen crime spree receives death threats; judge declines to drop charges](https://news.yahoo.com/las-vegas-lawyer-teen-crime-023639187.html)
 <!-- feed end -->
 
 ### Onstream
