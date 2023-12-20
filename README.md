@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 20 - [Trump urges US Supreme Court not to expedite 2020 immunity claim](https://news.yahoo.com/trump-urges-us-supreme-court-193657541.html)
+- Dec 20 - [An influencer has been fined $1 million after 'misleading' claims that proceeds from a cake would be donated to charity](https://www.yahoo.com/entertainment/influencer-fined-1-million-misleading-191140006.html)
+- Dec 20 - [Man Arrested in Girlfriend’s Fatal Plunge After Marriage Proposal](https://news.yahoo.com/man-arrested-girlfriend-fatal-plunge-183247578.html)
 - Dec 20 - [Edmunds bought a Chevy Blazer EV. It isn't going well](https://www.autoblog.com/2023/12/20/edmunds-long-term-chevy-blazer-ev-faults/)
-- Dec 20 - [A Wall Street escort underwent a $3,900 cosmetic procedure to help maximize time with high-paying clients](https://news.yahoo.com/wall-street-escort-did-3-175039616.html)
-- Dec 20 - [Hezbollah pays growing price in Mideast conflict](https://news.yahoo.com/hezbollah-pays-growing-price-mideast-174230209.html)
-- Dec 20 - [Jeff Bezos Said The 'Best Gift' He Ever Received Was Construction Toys — He Loved Them So Much That Mackenzie Scott Bought Him A 5-Foot-Tall Tool Chest Filled With Legos For Their Fifth Wedding Anniversary](https://finance.yahoo.com/news/jeff-bezos-said-best-gift-174042710.html)
-- Dec 20 - [Man walks into Coweta sporting goods store, loads gun he wanted to purchase, deputies say](https://news.yahoo.com/man-walks-coweta-sporting-goods-165850774.html)
+- Dec 20 - [Tunnels from Hamas leaders' homes found under Gaza City, Israel military says](https://news.yahoo.com/tunnels-hamas-leaders-homes-found-182115298.html)
 <!-- feed end -->
 
 ### Onstream
