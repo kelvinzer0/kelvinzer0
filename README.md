@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 21 - [Colombia will try to raise objects from a 1708 shipwreck believed to have a cargo worth billions](https://news.yahoo.com/colombia-try-raise-objects-1708-181118094.html)
+- Dec 21 - [18-Year Old GTA 6 Hacker Sentenced To Life In Hospital Prison](https://www.yahoo.com/tech/18-old-gta-6-hacker-180000220.html)
+- Dec 21 - [A graduate who went mega-viral with a tearful reaction to her first 9-to-5 job says she's been laid off](https://news.yahoo.com/graduate-went-mega-viral-tearful-174624825.html)
 - Dec 21 - [Giuliani seeks bankruptcy after $148 million judgment in defamation case](https://news.yahoo.com/giuliani-seeks-bankruptcy-148-million-174401355.html)
 - Dec 21 - [2 winning scratch tickets with $4M prizes sold in Massachusetts](https://news.yahoo.com/2-winning-scratch-tickets-4m-160720260.html)
-- Dec 21 - [Son soaks mom in gasoline, tries to light her on fire until stranger steps in, cops say](https://news.yahoo.com/son-soaks-mom-gasoline-tries-154246156.html)
-- Dec 21 - [Innocent Black Man Spent 50 Years in Prison, His Compensation Will Annoy The Hell out of You](https://news.yahoo.com/innocent-black-man-spent-50-150200363.html)
-- Dec 21 - ['Violent, hateful and cruel': Scathing obituary publishes in southwest Michigan newspaper](https://news.yahoo.com/violent-hateful-cruel-scathing-obituary-145558490.html)
 <!-- feed end -->
 
 ### Onstream
