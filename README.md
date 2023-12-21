@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 21 - [Judge orders immediate enforcement of Georgia election workers' $148M judgment against Giuliani](https://news.yahoo.com/judge-orders-immediate-enforcement-georgia-000600120.html)
+- Dec 20 - [Texas begins flying migrants from US-Mexico border to Chicago, with 1st plane carrying 120 people](https://news.yahoo.com/texas-begins-flying-migrants-us-230223253.html)
+- Dec 20 - [Trump Asks Supreme Court Not to Consider That Thing He Said, Please](https://news.yahoo.com/trump-asks-supreme-court-not-222124754.html)
 - Dec 20 - [Texas man's photo of 'black panther' creates buzz. Wildlife experts say it's not possible](https://news.yahoo.com/texas-mans-photo-black-panther-214934180.html)
 - Dec 20 - [Wisconsin elections commission rejects complaint against Trump fake electors for second time](https://news.yahoo.com/wisconsin-elections-commission-rejects-complaint-214136983.html)
-- Dec 20 - [North Korea's Kim warns of 'nuclear attack' if provoked with nukes -KCNA](https://news.yahoo.com/north-koreas-kim-warns-nuclear-212448298.html)
-- Dec 20 - [I'm a doctor who lost 25 pounds on Ozempic — then quit. Here's what happened after I stopped taking it.](https://news.yahoo.com/im-doctor-lost-25-pounds-204640069.html)
-- Dec 20 - [Marjorie Taylor Greene Mocked For Yet Another 'National Divorce' Plea](https://news.yahoo.com/marjorie-taylor-greene-mocked-yet-204516415.html)
 <!-- feed end -->
 
 ### Onstream
