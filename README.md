@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - [Are You Wealthy? The Net Worth You Need To Be Considered Poor, Middle-Class And Wealthy In America](https://finance.yahoo.com/news/wealthy-net-worth-considered-poor-190014440.html)
-- Dec 21 - [Colombia will try to raise objects from a 1708 shipwreck believed to have a cargo worth billions](https://news.yahoo.com/colombia-try-raise-objects-1708-181118094.html)
-- Dec 21 - [18-Year Old GTA 6 Hacker Sentenced To Life In Hospital Prison](https://www.yahoo.com/tech/18-old-gta-6-hacker-180000220.html)
-- Dec 21 - [A graduate who went mega-viral with a tearful reaction to her first 9-to-5 job says she's been laid off](https://news.yahoo.com/graduate-went-mega-viral-tearful-174624825.html)
-- Dec 21 - [2 winning scratch tickets with $4M prizes sold in Massachusetts](https://news.yahoo.com/2-winning-scratch-tickets-4m-160720260.html)
+- Dec 21 - [Stock market news today: S&P 500, Nasdaq lead stock market rebound after worst day since September](https://finance.yahoo.com/news/stock-market-news-today-sp-500-nasdaq-lead-stock-market-rebound-after-worst-day-since-september-210137871.html)
+- Dec 21 - [Records released by House Republicans show that Joe Biden repeatedly emailed Hunter Biden’s business associate in 2014](https://news.yahoo.com/records-released-house-republicans-show-200751874.html)
+- Dec 21 - [Ex-Ald. Ed Burke convicted on 13 of 14 counts at landmark federal corruption trial; jury convicts one co-defendant and acquits the other](https://finance.yahoo.com/news/jury-ex-ald-ed-burke-200200790.html)
+- Dec 21 - [Arriving police unknowingly directed shooter out of building during frantic search for UNLV gunman](https://news.yahoo.com/arriving-police-unknowingly-directed-shooter-195646645.html)
+- Dec 21 - [‘Swamp justice’? Cyclist crosses paths with gator eating python in Florida Everglades](https://news.yahoo.com/swamp-justice-cyclist-crosses-paths-192258236.html)
 <!-- feed end -->
 
 ### Onstream
