@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 21 - [This addictive nut is driving record rates of cancer – yet millions continue to chew it](https://news.yahoo.com/addictive-nut-driving-record-rates-102838138.html)
 - Dec 21 - [China reportedly suspends US$6.5 billion currency swap agreement with Argentina](https://finance.yahoo.com/news/china-reportedly-suspends-us-6-093000646.html)
 - Dec 21 - [China vows to keep up military pressure on the Philippines as territorial dispute grows tenser](https://news.yahoo.com/china-vows-keep-military-pressure-071720427.html)
 - Dec 21 - [Check out this video of Mike Johnson taking his teenage daughter to a purity ball, where she signs a pledge to him not to have sex until marriage](https://news.yahoo.com/check-video-mike-johnson-taking-055205293.html)
 - Dec 21 - [Judge orders immediate enforcement of Georgia election workers' $148M judgment against Giuliani](https://news.yahoo.com/judge-orders-immediate-enforcement-georgia-000600120.html)
-- Dec 20 - [Trump Asks Supreme Court Not to Consider That Thing He Said, Please](https://news.yahoo.com/trump-asks-supreme-court-not-222124754.html)
 <!-- feed end -->
 
 ### Onstream
