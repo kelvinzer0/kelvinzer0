@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 21 - [Judge orders immediate enforcement of Georgia election workers' $148M judgment against Giuliani](https://news.yahoo.com/judge-orders-immediate-enforcement-georgia-000600120.html)
-- Dec 20 - [Texas begins flying migrants from US-Mexico border to Chicago, with 1st plane carrying 120 people](https://news.yahoo.com/texas-begins-flying-migrants-us-230223253.html)
+- Dec 20 - [Texas begins flying migrants from southern border to Chicago. The 1st plane carried over 120 people](https://news.yahoo.com/texas-begins-flying-migrants-us-230223253.html)
 - Dec 20 - [Trump Asks Supreme Court Not to Consider That Thing He Said, Please](https://news.yahoo.com/trump-asks-supreme-court-not-222124754.html)
 - Dec 20 - [Texas man's photo of 'black panther' creates buzz. Wildlife experts say it's not possible](https://news.yahoo.com/texas-mans-photo-black-panther-214934180.html)
 - Dec 20 - [Wisconsin elections commission rejects complaint against Trump fake electors for second time](https://news.yahoo.com/wisconsin-elections-commission-rejects-complaint-214136983.html)
