@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 21 - [Check out this video of Mike Johnson taking his teenage daughter to a purity ball, where she signs a pledge to him not to have sex until marriage](https://news.yahoo.com/check-video-mike-johnson-taking-055205293.html)
 - Dec 21 - [New polling finds cracks in Trump's base; criminal cases making an impression](https://news.yahoo.com/polling-finds-cracks-trumps-criminal-042622555.html)
-- Dec 21 - [China warns Philippines to resolve South China Sea tensions via dialogue](https://news.yahoo.com/china-warns-philippines-resolve-south-031417118.html)
 - Dec 21 - [Judge orders immediate enforcement of Georgia election workers' $148M judgment against Giuliani](https://news.yahoo.com/judge-orders-immediate-enforcement-georgia-000600120.html)
 - Dec 20 - [Trump Asks Supreme Court Not to Consider That Thing He Said, Please](https://news.yahoo.com/trump-asks-supreme-court-not-222124754.html)
 - Dec 20 - [Texas man's photo of 'black panther' creates buzz. Wildlife experts say it's not possible](https://news.yahoo.com/texas-mans-photo-black-panther-214934180.html)
