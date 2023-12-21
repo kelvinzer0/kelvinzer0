@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 21 - [Are You Wealthy? The Net Worth You Need To Be Considered Poor, Middle-Class And Wealthy In America](https://finance.yahoo.com/news/wealthy-net-worth-considered-poor-190014440.html)
 - Dec 21 - [Colombia will try to raise objects from a 1708 shipwreck believed to have a cargo worth billions](https://news.yahoo.com/colombia-try-raise-objects-1708-181118094.html)
 - Dec 21 - [18-Year Old GTA 6 Hacker Sentenced To Life In Hospital Prison](https://www.yahoo.com/tech/18-old-gta-6-hacker-180000220.html)
 - Dec 21 - [A graduate who went mega-viral with a tearful reaction to her first 9-to-5 job says she's been laid off](https://news.yahoo.com/graduate-went-mega-viral-tearful-174624825.html)
-- Dec 21 - [Giuliani seeks bankruptcy after $148 million judgment in defamation case](https://news.yahoo.com/giuliani-seeks-bankruptcy-148-million-174401355.html)
 - Dec 21 - [2 winning scratch tickets with $4M prizes sold in Massachusetts](https://news.yahoo.com/2-winning-scratch-tickets-4m-160720260.html)
 <!-- feed end -->
 
