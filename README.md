@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 21 - [Nikki Haley Makes Bold Claim Against Donald Trump In Colorado Ballot Comments](https://www.yahoo.com/entertainment/nikki-haley-makes-bold-claim-115128321.html)
+- Dec 21 - [Okay, I Seriously Can't Stop Laughing At All These Ignorant Americans Who Got Absolutely Roasted Into Oblivion In 2023](https://www.yahoo.com/lifestyle/okay-seriously-cant-stop-laughing-130334741.html)
+- Dec 21 - [YouTuber says Qatar Airways banned him from flying with them ever again because he left a bad review](https://news.yahoo.com/youtuber-says-qatar-airways-banned-120242179.html)
+- Dec 21 - [Photos of US Air Force A-10s in action capture Warthog strafing runs and the bullet-riddled aftermath](https://news.yahoo.com/photos-us-air-force-10s-120001459.html)
+- Dec 21 - [Austin, we have a problem! Tesla descends into battery hell](https://news.yahoo.com/austin-problem-tesla-descends-battery-111607306.html)
 - Dec 21 - [People Think Domino's Makes Money by Selling Pizza, but 60% of Its Revenue Comes From Something Else Entirely](https://finance.yahoo.com/news/people-think-dominos-makes-money-111200833.html)
-- Dec 21 - [This addictive nut is driving record rates of cancer – yet millions continue to chew it](https://news.yahoo.com/addictive-nut-driving-record-rates-102838138.html)
-- Dec 21 - [China reportedly suspends US$6.5 billion currency swap agreement with Argentina](https://finance.yahoo.com/news/china-reportedly-suspends-us-6-093000646.html)
-- Dec 21 - [Check out this video of Mike Johnson taking his teenage daughter to a purity ball, where she signs a pledge to him not to have sex until marriage](https://news.yahoo.com/check-video-mike-johnson-taking-055205293.html)
 <!-- feed end -->
 
 ### Onstream
