@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 21 - [Son soaks mom in gasoline, tries to light her on fire until stranger steps in, cops say](https://news.yahoo.com/son-soaks-mom-gasoline-tries-154246156.html)
+- Dec 21 - [Kellyanne Conway Asks Gov. Kristi Noem If She Could Bar Biden From South Dakota Ballot](https://www.yahoo.com/entertainment/kellyanne-conway-asks-gov-kristi-145939069.html)
+- Dec 21 - ['Violent, hateful and cruel': Scathing obituary publishes in southwest Michigan newspaper](https://news.yahoo.com/violent-hateful-cruel-scathing-obituary-145558490.html)
 - Dec 21 - [Okay, I Seriously Can't Stop Laughing At All These Ignorant Americans Who Got Absolutely Roasted Into Oblivion In 2023](https://www.yahoo.com/lifestyle/okay-seriously-cant-stop-laughing-130334741.html)
 - Dec 21 - [Photos of US Air Force A-10s in action capture Warthog strafing runs and the bullet-riddled aftermath](https://news.yahoo.com/photos-us-air-force-10s-120001914.html)
-- Dec 21 - [Cranberry Township police looking to identify 3 people in connection to a theft investigation](https://news.yahoo.com/cranberry-township-police-looking-identify-115336345.html)
-- Dec 21 - [Nikki Haley Makes Bold Claim Against Donald Trump In Colorado Ballot Comments](https://www.yahoo.com/entertainment/nikki-haley-makes-bold-claim-115128321.html)
-- Dec 21 - [Austin, we have a problem! Tesla descends into battery hell](https://news.yahoo.com/austin-problem-tesla-descends-battery-111607306.html)
 <!-- feed end -->
 
 ### Onstream
