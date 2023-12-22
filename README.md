@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 22 - [Israel blows up ‘subterranean city’ in Gaza where Oct 7 massacre was hatched](https://news.yahoo.com/israel-blows-subterranean-city-gaza-132347103.html)
 - Dec 22 - [Tape reveals Donald Trump pressured Michigan officials not to certify 2020 vote, a new report says](https://news.yahoo.com/tape-reveals-donald-trump-pressured-150412762.html)
+- Dec 22 - [Resurfaced video shows meeting which allegedly prompted Trump to pressure canvassers not to certify 2020 election](https://news.yahoo.com/resurfaced-2020-video-shows-gop-115016421.html)
+- Dec 22 - [A vegan bodybuilder shared her diet to build muscle and burn fat — and why she recommends indulging over the holidays](https://news.yahoo.com/vegan-bodybuilder-shared-her-diet-144157790.html)
 - Dec 22 - [Biden pardons marijuana use nationwide. Here's what that means](https://news.yahoo.com/biden-pardons-marijuana-nationwide-heres-135757989.html)
-- Dec 22 - ['Severe revenue decline': California faces a record $68 billion deficit — here's what is eating away at the Golden State's coffers](https://finance.yahoo.com/news/severe-revenue-decline-california-faces-133000258.html)
-- Dec 22 - [Israel blows up 'subterranean city' in Gaza where Oct 7 massacre was hatched](https://news.yahoo.com/israel-blows-subterranean-city-gaza-132347103.html)
-- Dec 22 - [Teen found after missing for 6 years breaks his silence: "I've been lying"](https://news.yahoo.com/teen-found-missing-6-years-123240797.html)
 <!-- feed end -->
 
 ### Onstream
