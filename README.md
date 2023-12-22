@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 22 - [Kansas attorney general urges county to keep ballots longer than is allowed to aid sheriff's probe](https://news.yahoo.com/kansas-attorney-general-urges-county-003312990.html)
 - Dec 21 - [He started walking and lost 360 pounds. But loose skin makes him feel 'trapped'](https://news.yahoo.com/started-walking-lost-360-pounds-135529790.html)
 - Dec 21 - [Pictured: Family unknowingly films deadly crocodile or shark attack on Mexico beach](https://news.yahoo.com/pictured-family-unknowingly-films-deadly-233447203.html)
+- Dec 21 - [Fact Check: Here's What We Learned About This Photo of Donald Trump and Jeffrey Epstein](https://news.yahoo.com/fact-check-heres-learned-photo-205400564.html)
 - Dec 21 - [Woman Steals SUV of 3 Robbery Suspects: Cops](https://news.yahoo.com/woman-steals-suv-3-robbery-203302683.html)
-- Dec 21 - [Israel's military campaign in Gaza seen as among the most destructive in history, experts say](https://news.yahoo.com/israels-military-campaign-gaza-seen-201720177.html)
 <!-- feed end -->
 
 ### Onstream
