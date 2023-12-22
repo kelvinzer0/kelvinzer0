@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 22 - [Trump was captured on audio telling Michigan election workers they'd look 'terrible' if they certified the election, new report says](https://news.yahoo.com/trump-captured-audio-telling-michigan-024946881.html)
 - Dec 22 - [Kansas attorney general urges county to keep ballots longer than is allowed to aid sheriff's probe](https://news.yahoo.com/kansas-attorney-general-urges-county-003312990.html)
 - Dec 21 - [He started walking and lost 360 pounds. But loose skin makes him feel 'trapped'](https://news.yahoo.com/started-walking-lost-360-pounds-135529790.html)
 - Dec 21 - [Pictured: Family unknowingly films deadly crocodile or shark attack on Mexico beach](https://news.yahoo.com/pictured-family-unknowingly-films-deadly-233447203.html)
-- Dec 21 - [Woman Steals SUV of 3 Robbery Suspects: Cops](https://news.yahoo.com/woman-steals-suv-3-robbery-203302683.html)
-- Dec 21 - [Israel's military campaign in Gaza seen as among the most destructive in history, experts say](https://news.yahoo.com/israels-military-campaign-gaza-seen-201720177.html)
+- Dec 21 - [A voter pushed Nikki Haley to call Donald Trump a 'grave danger' to the US. Here's how she responded](https://news.yahoo.com/voter-pushed-nikki-haley-call-230912804.html)
 <!-- feed end -->
 
 ### Onstream
