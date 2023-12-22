@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 22 - [Joe Rogan Corrected On His Own Show For Dissing Biden...By Quoting Trump](https://news.yahoo.com/joe-rogan-corrected-own-show-175642179.html)
+- Dec 22 - [‘I had to think about my babies.’ Woman tells FOX 4 she shot 14-year-old to protect family](https://news.yahoo.com/had-think-babies-woman-tells-164531336.html)
+- Dec 22 - [Putin's oldest ally was the mastermind behind the assassination of Wagner warlord Prigozhin: report](https://news.yahoo.com/putins-oldest-ally-mastermind-behind-162006588.html)
 - Dec 22 - [Florida State has sued the ACC, setting the stage for a fight to leave over revenue concerns](https://sports.yahoo.com/florida-state-board-approves-lawsuit-161434107.html)
 - Dec 22 - [A GOP House member thinks his colleagues have been taped sleeping with Russian spies: 'Next thing you know, you're in the motel room with 'em naked'](https://news.yahoo.com/gop-house-member-thinks-colleagues-160414092.html)
-- Dec 22 - [Israel blows up ‘subterranean city’ in Gaza where Oct 7 massacre was hatched](https://news.yahoo.com/israel-blows-subterranean-city-gaza-132347103.html)
-- Dec 22 - [Tape reveals Donald Trump pressured Michigan officials not to certify 2020 vote, a new report says](https://news.yahoo.com/tape-reveals-donald-trump-pressured-150412762.html)
-- Dec 22 - [Resurfaced video shows meeting which allegedly prompted Trump to pressure canvassers not to certify 2020 election](https://news.yahoo.com/resurfaced-2020-video-shows-gop-115016421.html)
 <!-- feed end -->
 
 ### Onstream
