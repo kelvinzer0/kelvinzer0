@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 22 - [Joe Rogan knocks Biden over Trump’s claim of airports during Revolutionary War](https://news.yahoo.com/joe-rogan-knocks-biden-over-210149324.html)
+- Dec 22 - [North Dakota lawmaker made homophobic remarks to officer during DUI stop, bodycam footage shows](https://news.yahoo.com/north-dakota-lawmaker-made-homophobic-224448369.html)
+- Dec 22 - [Legal expert has theory why Supreme Court rejected Jack Smith’s request](https://news.yahoo.com/legal-expert-theory-why-supreme-211730885.html)
 - Dec 22 - [Wisconsin Supreme Court orders new legislative maps in redistricting case brought by Democrats](https://news.yahoo.com/wisconsin-supreme-court-orders-legislative-205224276.html)
 - Dec 22 - [Missing Airplane Mechanic Was Trying to Collect $315,000, and Debtor Is Now Charged with Murder](https://www.yahoo.com/entertainment/missing-airplane-mechanic-trying-collect-205214265.html)
-- Dec 22 - [Trump rails after poll shows Haley within 4 points in New Hampshire](https://news.yahoo.com/trump-rails-poll-shows-haley-173623224.html)
-- Dec 22 - [Putin ally ‘behind bomb’ that killed Wagner boss](https://news.yahoo.com/putin-ordered-death-wagner-boss-172617405.html)
+- Dec 22 - [New research warns one dietary choice may be linked to diabetes: ‘A limit of about one serving per week … would be reasonable’](https://www.yahoo.com/lifestyle/research-warns-one-dietary-choice-200000794.html)
 <!-- feed end -->
 
 ### Onstream
