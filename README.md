@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 22 - [Florida State has sued the ACC, setting the stage for a fight to leave over revenue concerns](https://sports.yahoo.com/florida-state-board-approves-lawsuit-161434107.html)
+- Dec 22 - [A GOP House member thinks his colleagues have been taped sleeping with Russian spies: 'Next thing you know, you're in the motel room with 'em naked'](https://news.yahoo.com/gop-house-member-thinks-colleagues-160414092.html)
 - Dec 22 - [Israel blows up ‘subterranean city’ in Gaza where Oct 7 massacre was hatched](https://news.yahoo.com/israel-blows-subterranean-city-gaza-132347103.html)
 - Dec 22 - [Tape reveals Donald Trump pressured Michigan officials not to certify 2020 vote, a new report says](https://news.yahoo.com/tape-reveals-donald-trump-pressured-150412762.html)
 - Dec 22 - [Resurfaced video shows meeting which allegedly prompted Trump to pressure canvassers not to certify 2020 election](https://news.yahoo.com/resurfaced-2020-video-shows-gop-115016421.html)
-- Dec 22 - [A vegan bodybuilder shared her diet to build muscle and burn fat — and why she recommends indulging over the holidays](https://news.yahoo.com/vegan-bodybuilder-shared-her-diet-144157790.html)
-- Dec 22 - [Biden pardons marijuana use nationwide. Here's what that means](https://news.yahoo.com/biden-pardons-marijuana-nationwide-heres-135757989.html)
 <!-- feed end -->
 
 ### Onstream
