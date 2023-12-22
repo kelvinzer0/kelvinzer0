@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 22 - [A man at a Detroit airport said his family gave him 2 suitcases that turned out to contain $4 million in ketamine](https://news.yahoo.com/man-detroit-airport-said-family-024622101.html)
+- Dec 22 - [‘Damning evidence, if true’: New bombshell report on Trump’s efforts not to certify 2020 vote](https://news.yahoo.com/damning-evidence-true-bombshell-report-043249417.html)
+- Dec 22 - [New Trump Tapes Capture Him Pressuring Michigan Election Officials: Report](https://news.yahoo.com/trump-tapes-capture-him-pressuring-011423779.html)
 - Dec 22 - [Kansas attorney general urges county to keep ballots longer than is allowed to aid sheriff's probe](https://news.yahoo.com/kansas-attorney-general-urges-county-003312990.html)
 - Dec 21 - [He started walking and lost 360 pounds. But loose skin makes him feel 'trapped'](https://news.yahoo.com/started-walking-lost-360-pounds-135529790.html)
 - Dec 21 - [Pictured: Family unknowingly films deadly crocodile or shark attack on Mexico beach](https://news.yahoo.com/pictured-family-unknowingly-films-deadly-233447203.html)
-- Dec 21 - [Florida woman walks out of Walmart after card declines several times over $250 purchase, deputies say](https://news.yahoo.com/florida-woman-walks-walmart-card-225122614.html)
 <!-- feed end -->
 
 ### Onstream
