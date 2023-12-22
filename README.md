@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 22 - [Fox News' Neil Cavuto Reads Viewer Hate Mail From MAGA Disciples Spreading Christmas Jeer](https://www.yahoo.com/entertainment/fox-news-neil-cavuto-reads-124914992.html)
+- Dec 22 - [“Additional crime”: Experts say new Trump recording gives Jack Smith “extremely powerful evidence”](https://news.yahoo.com/additional-crime-experts-trump-recording-133807075.html)
+- Dec 22 - [Israel blows up 'subterranean city' in Gaza where Oct 7 massacre was hatched](https://news.yahoo.com/israel-blows-subterranean-city-gaza-132347103.html)
 - Dec 22 - [Teen found after missing for 6 years breaks his silence: "I've been lying"](https://news.yahoo.com/teen-found-missing-6-years-123240797.html)
 - Dec 22 - [Solar Wind 'Stopped Blowing' On Mars For 2 Days](https://news.yahoo.com/solar-wind-stopped-blowing-mars-120000328.html)
 - Dec 22 - [A risqué party filled with semi-naked celebrities in Moscow has angered Russians who say it violated anti-LGBT laws](https://www.yahoo.com/entertainment/risqu-party-filled-semi-naked-111132962.html)
-- Dec 22 - [UPDATE 2-Putin seizes control of Russia's biggest car dealership](https://finance.yahoo.com/news/1-putin-seizes-control-russias-110728362.html)
 <!-- feed end -->
 
 ### Onstream
