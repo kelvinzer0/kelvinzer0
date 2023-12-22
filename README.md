@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 22 - [Fox News' Neil Cavuto Reads Viewer Hate Mail From MAGA Disciples Spreading Christmas Jeer](https://www.yahoo.com/entertainment/fox-news-neil-cavuto-reads-124914992.html)
+- Dec 22 - [Teen found after missing for 6 years breaks his silence: "I've been lying"](https://news.yahoo.com/teen-found-missing-6-years-123240797.html)
+- Dec 22 - [Solar Wind 'Stopped Blowing' On Mars For 2 Days](https://news.yahoo.com/solar-wind-stopped-blowing-mars-120000328.html)
 - Dec 22 - [A risqué party filled with semi-naked celebrities in Moscow has angered Russians who say it violated anti-LGBT laws](https://www.yahoo.com/entertainment/risqu-party-filled-semi-naked-111132962.html)
-- Dec 22 - [United Airlines is being sued by a first-class flier who says she was sexually assaulted by a 'highly intoxicated' passenger given 9 servings of alcohol](https://news.yahoo.com/united-airlines-being-sued-first-110720706.html)
-- Dec 22 - [Russia dismisses Wall Street Journal's 'pulp fiction' after Prigozhin death report](https://news.yahoo.com/russia-dismisses-wall-street-journals-103406774.html)
-- Dec 22 - [Trump Camp Kicks Up A Stink Over Adam Kinzinger's Claim Ex-President Smells](https://news.yahoo.com/trump-camp-kicks-stink-over-093053260.html)
-- Dec 22 - [‘Damning evidence, if true’: New bombshell report on Trump’s efforts not to certify 2020 vote](https://news.yahoo.com/damning-evidence-true-bombshell-report-043249417.html)
+- Dec 22 - [UPDATE 2-Putin seizes control of Russia's biggest car dealership](https://finance.yahoo.com/news/1-putin-seizes-control-russias-110728362.html)
 <!-- feed end -->
 
 ### Onstream
