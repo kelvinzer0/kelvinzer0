@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 22 - [“Additional crime”: Experts say new Trump recording gives Jack Smith “extremely powerful evidence”](https://news.yahoo.com/additional-crime-experts-trump-recording-133807075.html)
+- Dec 22 - [Tape reveals Donald Trump pressured Michigan officials not to certify 2020 vote, a new report says](https://news.yahoo.com/tape-reveals-donald-trump-pressured-150412762.html)
+- Dec 22 - [Biden pardons marijuana use nationwide. Here's what that means](https://news.yahoo.com/biden-pardons-marijuana-nationwide-heres-135757989.html)
+- Dec 22 - ['Severe revenue decline': California faces a record $68 billion deficit — here's what is eating away at the Golden State's coffers](https://finance.yahoo.com/news/severe-revenue-decline-california-faces-133000258.html)
 - Dec 22 - [Israel blows up 'subterranean city' in Gaza where Oct 7 massacre was hatched](https://news.yahoo.com/israel-blows-subterranean-city-gaza-132347103.html)
 - Dec 22 - [Teen found after missing for 6 years breaks his silence: "I've been lying"](https://news.yahoo.com/teen-found-missing-6-years-123240797.html)
-- Dec 22 - [Solar Wind 'Stopped Blowing' On Mars For 2 Days](https://news.yahoo.com/solar-wind-stopped-blowing-mars-120000328.html)
-- Dec 22 - [A risqué party filled with semi-naked celebrities in Moscow has angered Russians who say it violated anti-LGBT laws](https://www.yahoo.com/entertainment/risqu-party-filled-semi-naked-111132962.html)
 <!-- feed end -->
 
 ### Onstream
