@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 23 - [German runner Alica Schmidt in images](https://sports.yahoo.com/german-influencer-track-sensation-alica-225942285.html)
 - Dec 23 - [“An absolute fool”: Senator Lindsey Graham ridiculed for political Chick-fil-A selfie](https://www.yahoo.com/lifestyle/absolute-fool-senator-lindsey-graham-174201620.html)
 - Dec 23 - [Donald Trump Makes Absolutely Wild Claim About Joe Biden And Catholics](https://news.yahoo.com/donald-trump-makes-absolutely-wild-165251249.html)
 - Dec 23 - [A 21-year-old US Marine veteran died in Ukraine after taking out 12 Russians in his final stand, his family said](https://news.yahoo.com/21-old-us-marine-veteran-163923919.html)
 - Dec 23 - [Reporter asks Trump supporters to watch video of Trump’s anti-immigrant speech. See how they reacted](https://news.yahoo.com/reporter-ask-trump-supporters-watch-031553812.html)
-- Dec 23 - [Putin sends signals of willingness to freeze war – New York Times](https://news.yahoo.com/putin-sends-signals-willingness-freeze-144007795.html)
 <!-- feed end -->
 
 ### Onstream
