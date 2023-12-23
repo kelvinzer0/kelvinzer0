@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 23 - [Donald Trump Makes Absolutely Wild Claim About Joe Biden And Catholics](https://news.yahoo.com/donald-trump-makes-absolutely-wild-165251249.html)
+- Dec 23 - [A 21-year-old US Marine veteran died in Ukraine after taking out 12 Russians in his final stand, his family said](https://news.yahoo.com/21-old-us-marine-veteran-163923919.html)
 - Dec 23 - [Reporter asks Trump supporters to watch video of Trump’s anti-immigrant speech. See how they reacted](https://news.yahoo.com/reporter-ask-trump-supporters-watch-031553812.html)
+- Dec 23 - [Putin sends signals of willingness to freeze war – New York Times](https://news.yahoo.com/putin-sends-signals-willingness-freeze-144007795.html)
 - Dec 23 - ['I almost fell off the chair': This 40-year-old wife was shocked when her 'financial guru' husband revealed $520K in hidden debt — and that even collection agencies are involved. What now?](https://finance.yahoo.com/news/almost-fell-off-chair-40-123000551.html)
-- Dec 23 - [Startup CEO says ‘the house of the future costs as much as a car’ — here’s how the company plans to make it happen](https://news.yahoo.com/startup-ceo-says-house-future-130000027.html)
-- Dec 23 - [Who would Trump choose as vice president? Here's a list of potential candidates](https://news.yahoo.com/trump-choose-vice-president-heres-100449186.html)
 <!-- feed end -->
 
 ### Onstream
