@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 23 - [Iowa won't participate in US food assistance program for kids this summer](https://news.yahoo.com/iowa-wont-participate-us-food-204427597.html)
+- Dec 23 - [Laura Lynch, Founding Dixie Chicks Member, Killed in Car Crash](https://www.yahoo.com/entertainment/laura-lynch-founding-dixie-chicks-202416510.html)
 - Dec 23 - [German runner Alica Schmidt in images](https://sports.yahoo.com/german-influencer-track-sensation-alica-225942285.html)
 - Dec 23 - [“An absolute fool”: Senator Lindsey Graham ridiculed for political Chick-fil-A selfie](https://www.yahoo.com/lifestyle/absolute-fool-senator-lindsey-graham-174201620.html)
 - Dec 23 - [Donald Trump Makes Absolutely Wild Claim About Joe Biden And Catholics](https://news.yahoo.com/donald-trump-makes-absolutely-wild-165251249.html)
-- Dec 23 - [A 21-year-old US Marine veteran died in Ukraine after taking out 12 Russians in his final stand, his family said](https://news.yahoo.com/21-old-us-marine-veteran-163923919.html)
-- Dec 23 - [Glendale swim instructor sex assault charge dismissed in plea deal](https://news.yahoo.com/glendale-swim-instructor-sex-assault-153423704.html)
 <!-- feed end -->
 
 ### Onstream
