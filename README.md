@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Dec 23 - [George Conway makes prediction about election case following Supreme Court’s decision](https://news.yahoo.com/george-conway-makes-prediction-election-031321069.html)
 - Dec 23 - [Paramedics were convicted in Elijah McClain's death. That could make other first responders pause](https://news.yahoo.com/paramedics-found-guilty-death-elijah-005438184.html)
 - Dec 23 - [San Francisco jury finds homeless man not guilty in beating of businessman left with brain injury](https://news.yahoo.com/san-francisco-jury-finds-homeless-000234757.html)
-- Dec 22 - [North Dakota lawmaker made homophobic remarks to officer during DUI stop, bodycam footage shows](https://news.yahoo.com/north-dakota-lawmaker-made-homophobic-224448369.html)
+- Dec 22 - ['How the hell does that even happen?' McCarthy exits Congress amid confusion over who can run to replace him](https://news.yahoo.com/hell-does-even-happen-mccarthy-232212099.html)
 <!-- feed end -->
 
 ### Onstream
