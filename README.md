@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 23 - ['I almost fell off the chair': This 40-year-old wife was shocked when her 'financial guru' husband revealed $520K in hidden debt — and that even collection agencies are involved. What now?](https://finance.yahoo.com/news/almost-fell-off-chair-40-123000551.html)
 - Dec 23 - [Who would Trump choose as vice president? Here's a list of potential candidates](https://news.yahoo.com/trump-choose-vice-president-heres-100449186.html)
+- Dec 23 - [Anti-war challenger Duntsova barred from running against Russia's Putin](https://news.yahoo.com/putin-challenger-duntsova-barred-running-100029274.html)
+- Dec 23 - [Iran threatens Mediterranean closure over Gaza, without saying how](https://news.yahoo.com/iran-threatens-mediterranean-closure-over-095732525.html)
 - Dec 23 - [Texas mom poisoned by husband proves she didn't die by suicide with final diary entry: prosecutors](https://news.yahoo.com/texas-mom-poisoned-husband-proves-090040184.html)
-- Dec 23 - [Reporter ask Trump supporters to watch video of Trump’s anti-immigrant speech. See how they reacted](https://news.yahoo.com/reporter-ask-trump-supporters-watch-031553812.html)
-- Dec 23 - [George Conway makes prediction about election case following Supreme Court’s decision](https://news.yahoo.com/george-conway-makes-prediction-election-031321069.html)
-- Dec 23 - [Paramedics were convicted in Elijah McClain's death. That could make other first responders pause](https://news.yahoo.com/paramedics-found-guilty-death-elijah-005438184.html)
 <!-- feed end -->
 
 ### Onstream
