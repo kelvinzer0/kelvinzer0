@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 23 - [John Schneider Reacts to Backlash Over Joe Biden Tweet](https://www.yahoo.com/entertainment/john-schneider-reacts-backlash-over-000700175.html)
+- Dec 23 - [San Francisco jury finds homeless man not guilty in beating of businessman left with brain injury](https://news.yahoo.com/san-francisco-jury-finds-homeless-000234757.html)
+- Dec 22 - ['How the hell does that even happen?' McCarthy exits Congress amid confusion over who can run to replace him](https://news.yahoo.com/hell-does-even-happen-mccarthy-232212099.html)
 - Dec 22 - [North Dakota lawmaker made homophobic remarks to officer during DUI stop, bodycam footage shows](https://news.yahoo.com/north-dakota-lawmaker-made-homophobic-224448369.html)
 - Dec 22 - [Legal expert has theory why Supreme Court rejected Jack Smith’s request](https://news.yahoo.com/legal-expert-theory-why-supreme-211730885.html)
-- Dec 22 - [Wisconsin Supreme Court orders new legislative maps in redistricting case brought by Democrats](https://news.yahoo.com/wisconsin-supreme-court-orders-legislative-205224276.html)
-- Dec 22 - [Missing Airplane Mechanic Was Trying to Collect $315,000, and Debtor Is Now Charged with Murder](https://www.yahoo.com/entertainment/missing-airplane-mechanic-trying-collect-205214265.html)
-- Dec 22 - [New research warns one dietary choice may be linked to diabetes: ‘A limit of about one serving per week … would be reasonable’](https://www.yahoo.com/lifestyle/research-warns-one-dietary-choice-200000794.html)
 <!-- feed end -->
 
 ### Onstream
