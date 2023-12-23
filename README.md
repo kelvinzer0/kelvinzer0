@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 23 - [Reporter ask Trump supporters to watch video of Trump’s anti-immigrant speech. See how they reacted](https://news.yahoo.com/reporter-ask-trump-supporters-watch-031553812.html)
+- Dec 23 - [George Conway makes prediction about election case following Supreme Court’s decision](https://news.yahoo.com/george-conway-makes-prediction-election-031321069.html)
 - Dec 23 - [Paramedics were convicted in Elijah McClain's death. That could make other first responders pause](https://news.yahoo.com/paramedics-found-guilty-death-elijah-005438184.html)
 - Dec 23 - [San Francisco jury finds homeless man not guilty in beating of businessman left with brain injury](https://news.yahoo.com/san-francisco-jury-finds-homeless-000234757.html)
 - Dec 22 - [North Dakota lawmaker made homophobic remarks to officer during DUI stop, bodycam footage shows](https://news.yahoo.com/north-dakota-lawmaker-made-homophobic-224448369.html)
-- Dec 22 - [Legal expert has theory why Supreme Court rejected Jack Smith’s request](https://news.yahoo.com/legal-expert-theory-why-supreme-211730885.html)
-- Dec 22 - [Hamas and Palestinian Authority split on UN Gaza resolution](https://news.yahoo.com/hamas-palestinian-authority-split-un-211622473.html)
 <!-- feed end -->
 
 ### Onstream
