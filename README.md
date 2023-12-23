@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 23 - [2 paramedics found guilty in death of Elijah McClain, who they injected with an overdose of ketamine](https://news.yahoo.com/paramedics-found-guilty-death-elijah-005438184.html)
 - Dec 23 - [San Francisco jury finds homeless man not guilty in beating of businessman left with brain injury](https://news.yahoo.com/san-francisco-jury-finds-homeless-000234757.html)
+- Dec 22 - ['How the hell does that even happen?' McCarthy exits Congress amid confusion over who can run to replace him](https://news.yahoo.com/hell-does-even-happen-mccarthy-232212099.html)
 - Dec 22 - [North Dakota lawmaker made homophobic remarks to officer during DUI stop, bodycam footage shows](https://news.yahoo.com/north-dakota-lawmaker-made-homophobic-224448369.html)
 - Dec 22 - [Legal expert has theory why Supreme Court rejected Jack Smith’s request](https://news.yahoo.com/legal-expert-theory-why-supreme-211730885.html)
-- Dec 22 - [Hamas and Palestinian Authority split on UN Gaza resolution](https://news.yahoo.com/hamas-palestinian-authority-split-un-211622473.html)
 <!-- feed end -->
 
 ### Onstream
