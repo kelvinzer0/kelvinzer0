@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [Bild: Russia may attempt to attack Europe next winter, European intelligence source says](https://news.yahoo.com/bild-russia-may-attempt-attack-020819774.html)
+- Dec 24 - [Decaying Pillsbury mill in Illinois that once churned flour into opportunity is now getting new life](https://news.yahoo.com/decaying-pillsbury-mill-illinois-once-051659010.html)
+- Dec 24 - [Trump Tells Appeals Panel He Should Have ‘Absolute Immunity’](https://news.yahoo.com/trump-tells-appeals-panel-absolute-042446258.html)
 - Dec 24 - [Las Vegas Strip casinos double down on unpopular pricing move](https://www.thestreet.com/travel/las-vegas-strip-casinos-double-down-on-unpopular-pricing-move?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 - Dec 24 - [Pentagon says Iranian drone 'attack' hit chemical tanker near India](https://news.yahoo.com/pentagon-says-iranian-drone-attack-001020006.html)
 - Dec 23 - [That Time Trump Was Caught Lying on CNN About His Book-Reading Habits | Video](https://www.yahoo.com/entertainment/time-trump-caught-lying-cnn-231350815.html)
-- Dec 23 - [One person killed, another injured in shooting at Florida shopping mall](https://news.yahoo.com/multiple-people-injured-authorities-describe-214849621.html)
 <!-- feed end -->
 
 ### Onstream
