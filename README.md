@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [A weekend of combat in Gaza kills more than a dozen Israeli soldiers, a sign of Hamas' entrenchment](https://news.yahoo.com/weekend-combat-gaza-kills-more-080006367.html)
+- Dec 24 - ['They're not super forthcoming': This dentist says don't ask if your oral health provider takes your insurance – you could end up paying $1,200 for a root canal. Do this instead](https://finance.yahoo.com/news/theyre-not-super-forthcoming-dentist-113000730.html)
+- Dec 24 - [‘This has gotta stop': This Cleveland man going through a divorce is spending $970/month to pay off his truck — and now his ex wants him to shoulder $15K more of debt. Dave Ramsey responds](https://finance.yahoo.com/news/gotta-stop-cleveland-man-going-110000961.html)
 - Dec 24 - [Iran Summons Russian envoy over statement on Persian Gulf disputed islands](https://news.yahoo.com/iran-summons-russian-envoy-over-071633971.html)
 - Dec 24 - [Decaying Pillsbury mill in Illinois that once churned flour into opportunity is now getting new life](https://news.yahoo.com/decaying-pillsbury-mill-illinois-once-051659010.html)
 - Dec 24 - [Trump Tells Appeals Panel He Should Have ‘Absolute Immunity’](https://news.yahoo.com/trump-tells-appeals-panel-absolute-042446258.html)
-- Dec 24 - [Las Vegas Strip casinos double down on unpopular pricing move](https://www.thestreet.com/travel/las-vegas-strip-casinos-double-down-on-unpopular-pricing-move?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
