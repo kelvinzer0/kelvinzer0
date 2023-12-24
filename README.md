@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 24 - [Las Vegas Strip casinos double down on unpopular pricing move](https://www.thestreet.com/travel/las-vegas-strip-casinos-double-down-on-unpopular-pricing-move?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Dec 24 - [Pentagon says Iranian drone 'attack' hit chemical tanker near India](https://news.yahoo.com/pentagon-says-iranian-drone-attack-001020006.html)
+- Dec 23 - [That Time Trump Was Caught Lying on CNN About His Book-Reading Habits | Video](https://www.yahoo.com/entertainment/time-trump-caught-lying-cnn-231350815.html)
 - Dec 23 - [Former federal judge: The Constitution will disqualify Trump from higher office, ‘not Joe Biden’](https://news.yahoo.com/former-federal-judge-constitution-disqualify-223506544.html)
-- Dec 23 - [New York governor vetoes bill that would make it easier for people to challenge their convictions](https://news.yahoo.com/york-governor-vetoes-bill-easier-213556072.html)
-- Dec 23 - [Iowa won't participate in US food assistance program for kids this summer](https://news.yahoo.com/iowa-wont-participate-us-food-204427597.html)
-- Dec 23 - [Laura Lynch, Founding Dixie Chicks Member, Killed in Car Crash](https://www.yahoo.com/entertainment/laura-lynch-founding-dixie-chicks-202416510.html)
-- Dec 23 - [Las Vegas Strip casinos double down on unpopular pricing move](https://www.thestreet.com/travel/las-vegas-strip-casinos-double-down-on-unpopular-pricing-move?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Dec 23 - [One person killed, another injured in shooting at Florida shopping mall](https://news.yahoo.com/multiple-people-injured-authorities-describe-214849621.html)
 <!-- feed end -->
 
 ### Onstream
