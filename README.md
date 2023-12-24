@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 24 - [Trump: ‘I Was Doing my Duty as President’ by Claiming the Election Was Rigged](https://news.yahoo.com/trump-doing-duty-president-claiming-165934892.html)
 - Dec 24 - [Russia says it downs four Ukrainian military aircraft](https://news.yahoo.com/russia-says-downs-four-ukrainian-153655703.html)
 - Dec 24 - [Family visiting from out of town finds body in home’s freezer, California police say](https://news.yahoo.com/family-visiting-town-finds-body-150714702.html)
 - Dec 24 - [‘Did you just hear John Roberts scream?’: US supreme court to have outsized influence in 2024 election](https://news.yahoo.com/did-just-hear-john-roberts-150001483.html)
 - Dec 24 - [Forget retail theft, Costco has a much bigger problem](https://www.thestreet.com/retailers/forget-retail-theft-costco-faces-a-potentially-bigger-problem?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Dec 24 - [What we all forget about the upcoming Trump fraud verdict: It's the chicanery, stupid](https://news.yahoo.com/forget-upcoming-trump-fraud-verdict-131502322.html)
 <!-- feed end -->
 
 ### Onstream
