@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [What we all forget about the upcoming Trump fraud verdict: It's the chicanery, stupid](https://news.yahoo.com/forget-upcoming-trump-fraud-verdict-131502322.html)
+- Dec 24 - [Here's why the Lamborghini Lanzador EV is neither sedan nor SUV](https://www.autoblog.com/2023/12/24/heres-why-the-lamborghini-lanzador-ev-is-neither-sedan-nor-suv/)
+- Dec 24 - [Your money horoscope for the week of December 24](https://finance.yahoo.com/news/money-horoscope-week-december-24-140000661.html)
 - Dec 24 - [I quit my job in consulting and spent $7,000 on a 9-week coding boot camp in Bali. It's given me a whole new take on imposter syndrome.](https://www.yahoo.com/tech/quit-job-consulting-spent-7-124201234.html)
-- Dec 24 - ['They're not super forthcoming': This dentist says don't ask if your oral health provider takes your insurance – you could end up paying $1,200 for a root canal. Do this instead](https://finance.yahoo.com/news/theyre-not-super-forthcoming-dentist-113000730.html)
-- Dec 24 - [‘This has gotta stop': This Cleveland man going through a divorce is spending $970/month to pay off his truck — and now his ex wants him to shoulder $15K more of debt. Dave Ramsey responds](https://finance.yahoo.com/news/gotta-stop-cleveland-man-going-110000961.html)
-- Dec 24 - [Iran summons Russian envoy over statement on Persian Gulf disputed islands](https://news.yahoo.com/iran-summons-russian-envoy-over-071633971.html)
+- Dec 24 - [‘If you're an idiot, go listen to Dave': Grant Cardone says to ignore Dave Ramsey if you want to get rich — he thinks Americans suffer for saving too much](https://finance.yahoo.com/news/youre-idiot-listen-dave-grant-121500222.html)
+- Dec 24 - [‘Incredible distortions in our marketplace’: 45% of real estate agents claim they're struggling to pay rent — another bad sign for the housing market. But 2024 could be better](https://finance.yahoo.com/news/incredible-distortions-marketplace-45-us-121500813.html)
 <!-- feed end -->
 
 ### Onstream
