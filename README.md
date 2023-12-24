@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 24 - [Israel says five Gaza hostages found dead in tunnel, circumstances being probed](https://news.yahoo.com/israel-says-five-gaza-hostages-194728563.html)
 - Dec 24 - [Thousands join migrant caravan in Mexico ahead of Secretary of State Blinken's visit to the capital](https://news.yahoo.com/thousands-join-migrant-caravan-mexico-191633145.html)
 - Dec 24 - [Blackout Dodge Charger Smokes Arkansas Police Yet Again](https://news.yahoo.com/blackout-dodge-charger-smokes-arkansas-174500515.html)
-- Dec 24 - [Trump: ‘I Was Doing my Duty as President’ by Claiming the Election Was Rigged](https://news.yahoo.com/trump-doing-duty-president-claiming-165934892.html)
 - Dec 24 - [Russia says it downs four Ukrainian military aircraft](https://news.yahoo.com/russia-says-downs-four-ukrainian-153655703.html)
 - Dec 24 - [Family visiting from out of town finds body in home’s freezer, California police say](https://news.yahoo.com/family-visiting-town-finds-body-150714702.html)
 <!-- feed end -->
