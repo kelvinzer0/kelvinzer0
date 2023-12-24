@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 24 - [Here's why the Lamborghini Lanzador EV is neither sedan nor SUV](https://www.autoblog.com/2023/12/24/heres-why-the-lamborghini-lanzador-ev-is-neither-sedan-nor-suv/)
-- Dec 24 - [Your money horoscope for the week of December 24](https://finance.yahoo.com/news/money-horoscope-week-december-24-140000661.html)
-- Dec 24 - [I quit my job in consulting and spent $7,000 on a 9-week coding boot camp in Bali. It's given me a whole new take on imposter syndrome.](https://www.yahoo.com/tech/quit-job-consulting-spent-7-124201234.html)
-- Dec 24 - [‘If you're an idiot, go listen to Dave': Grant Cardone says to ignore Dave Ramsey if you want to get rich — he thinks Americans suffer for saving too much](https://finance.yahoo.com/news/youre-idiot-listen-dave-grant-121500222.html)
-- Dec 24 - [‘Incredible distortions in our marketplace’: 45% of real estate agents claim they're struggling to pay rent — another bad sign for the housing market. But 2024 could be better](https://finance.yahoo.com/news/incredible-distortions-marketplace-45-us-121500813.html)
+- Dec 24 - [Second suspect arrested in theft of Banksy stop sign artwork featuring military drones](https://news.yahoo.com/second-suspect-arrested-theft-banksy-154402154.html)
+- Dec 24 - [Russia says it downs four Ukrainian military aircraft](https://news.yahoo.com/russia-says-downs-four-ukrainian-153655703.html)
+- Dec 24 - [Family visiting from out of town finds body in home’s freezer, California police say](https://news.yahoo.com/family-visiting-town-finds-body-150714702.html)
+- Dec 24 - [‘Did you just hear John Roberts scream?’: US supreme court to have outsized influence in 2024 election](https://news.yahoo.com/did-just-hear-john-roberts-150001483.html)
+- Dec 24 - [What we all forget about the upcoming Trump fraud verdict: It's the chicanery, stupid](https://news.yahoo.com/forget-upcoming-trump-fraud-verdict-131502322.html)
 <!-- feed end -->
 
 ### Onstream
