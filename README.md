@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Pennsylvania Animal Shelter Celebrates Having No Dogs For First Time In 47 Years](https://news.yahoo.com/pennsylvania-animal-shelter-celebrates-having-214331983.html)
 - Dec 25 - [Migrant caravan in southern Mexico marks Christmas Day by trudging onward](https://news.yahoo.com/migrant-caravan-southern-mexico-marks-202740233.html)
 - Dec 25 - [The Best Vegetable to Help You Poop, According to Dietitians](https://www.yahoo.com/lifestyle/best-vegetable-help-poop-according-200000014.html)
 - Dec 25 - [Belarus leader says Russian nuclear weapons shipments are completed, raising concern in the region](https://news.yahoo.com/belarus-leader-says-russian-nuclear-195805474.html)
 - Dec 25 - [Lincoln Project releases ‘Trump smells’ ad](https://news.yahoo.com/lincoln-project-releases-trump-smells-195537602.html)
-- Dec 25 - [Zelenskyy after 5 warplanes were downed in one week: Every Russian pilot has to make a choice](https://news.yahoo.com/zelenskyy-5-warplanes-were-downed-181354162.html)
 <!-- feed end -->
 
 ### Onstream
