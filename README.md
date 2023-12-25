@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Trump rails against special counsel Jack Smith in Christmas Eve posts](https://news.yahoo.com/trump-rails-against-special-counsel-161535691.html)
 - Dec 25 - [Russian forces gain control of Maryinka in east Ukraine, defence minister says](https://news.yahoo.com/russian-forces-gain-control-maryinka-155932466.html)
 - Dec 25 - [Israeli air strike in Syria kills senior Iranian Revolutionary Guards member](https://news.yahoo.com/israeli-air-strike-syria-kills-154936458.html)
+- Dec 25 - [What Donald Trump’s Presidency Meant for Your Wallet — And How It Could Change If He Wins Again](https://finance.yahoo.com/news/donald-trump-presidency-meant-wallet-120039454.html)
 - Dec 25 - [Kevin O'Leary says you need to have $5M in the bank to 'survive' no matter what happens — here's the math behind his number and how to get there yourself](https://finance.yahoo.com/news/kevin-oleary-says-5m-bank-143000357.html)
-- Dec 25 - [Hamas faces ‘unprecedented battle’ against Israel, says Sinwar](https://news.yahoo.com/hamas-faces-unprecedented-battle-against-151847701.html)
-- Dec 25 - [What really drives anti-abortion beliefs? Research suggests it's a matter of sexual strategies](https://news.yahoo.com/really-drives-anti-abortion-beliefs-122531280.html)
 <!-- feed end -->
 
 ### Onstream
