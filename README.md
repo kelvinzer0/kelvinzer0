@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 24 - [Ted Cruz Makes Fox Host Defend MSNBC After Saying ‘They Don’t Cover News’ | Video](https://www.yahoo.com/entertainment/ted-cruz-makes-fox-host-233008108.html)
+- Dec 24 - [25 Countries That Welcome Americans With Open Arms](https://finance.yahoo.com/news/25-countries-welcome-americans-open-230603480.html)
+- Dec 24 - [Watch: Massive rogue wave batters cruise ship in North Sea](https://news.yahoo.com/watch-massive-rogue-wave-batters-213935657.html)
 - Dec 24 - [I’m a Self-Made Millionaire: 4 Things To Stop Buying That Are a Waste of Money](https://finance.yahoo.com/news/m-self-made-millionaire-3-130010968.html)
 - Dec 24 - [Israel says five Gaza hostages found dead in tunnel, circumstances being probed](https://news.yahoo.com/israel-says-five-gaza-hostages-194728563.html)
-- Dec 24 - [Thousands join migrant caravan in Mexico ahead of Secretary of State Blinken's visit to the capital](https://news.yahoo.com/thousands-join-migrant-caravan-mexico-191633145.html)
-- Dec 24 - [Blackout Dodge Charger Smokes Arkansas Police Yet Again](https://news.yahoo.com/blackout-dodge-charger-smokes-arkansas-174500515.html)
-- Dec 24 - [Russia, Ukraine exchange claims over downed military aircraft](https://news.yahoo.com/russia-says-downs-four-ukrainian-153655703.html)
 <!-- feed end -->
 
 ### Onstream
