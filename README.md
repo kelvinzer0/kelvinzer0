@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Migrant caravan in southern Mexico marks Christmas Day by trudging onward](https://news.yahoo.com/migrant-caravan-southern-mexico-marks-202740233.html)
+- Dec 25 - [The Best Vegetable to Help You Poop, According to Dietitians](https://www.yahoo.com/lifestyle/best-vegetable-help-poop-according-200000014.html)
 - Dec 25 - [Belarus leader says Russian nuclear weapons shipments are completed, raising concern in the region](https://news.yahoo.com/belarus-leader-says-russian-nuclear-195805474.html)
-- Dec 25 - [Armenian leader travels to Russia despite tensions and promises economic bloc cooperation](https://news.yahoo.com/armenian-leader-travels-russia-despite-193014874.html)
-- Dec 25 - [Hamas faces ‘unprecedented battle’ against Israel, says Sinwar](https://news.yahoo.com/hamas-faces-unprecedented-battle-against-151847701.html)
-- Dec 25 - [These Are The 4 Ingredients Food Safety Experts Say They Will Never Order At A Restaurant](https://www.yahoo.com/lifestyle/4-ingredients-food-safety-experts-191603259.html)
-- Dec 25 - [Russia’s Navalny tracked down to prison in the Arctic](https://news.yahoo.com/russia-navalny-tracked-down-prison-180555404.html)
+- Dec 25 - [Lincoln Project releases ‘Trump smells’ ad](https://news.yahoo.com/lincoln-project-releases-trump-smells-195537602.html)
+- Dec 25 - [Zelenskyy after 5 warplanes were downed in one week: Every Russian pilot has to make a choice](https://news.yahoo.com/zelenskyy-5-warplanes-were-downed-181354162.html)
 <!-- feed end -->
 
 ### Onstream
