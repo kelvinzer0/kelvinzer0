@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 25 - [Egypt floats ambitious plan to end Israel-Hamas war and create transitional Palestinian government](https://news.yahoo.com/egypt-floats-ambitious-plan-end-105201136.html)
+- Dec 25 - [‘Like taking poison and hoping he dies’: Dave Ramsey says this Kansas City woman serves as a case study for why you ‘don't buy a house with people you’re not married to’ — here’s more](https://finance.yahoo.com/news/taking-poison-hoping-dies-dave-110000311.html)
 - Dec 25 - [Finnish people may be some of the happiest in the world but they also have several unusual traditions. Here are 5 surprising facts about the world's happiest country.](https://news.yahoo.com/finnish-people-may-happiest-world-100002619.html)
+- Dec 25 - [A plane stuck for days in France for a human trafficking investigation is leaving for India](https://news.yahoo.com/plane-stuck-days-france-human-095418406.html)
+- Dec 25 - [Russian propagandist who called for drowning of Ukrainian children is poisoned](https://news.yahoo.com/russian-propagandist-called-drowning-ukrainian-093852694.html)
 - Dec 25 - [Russia and China are on the brink of a military alliance that could overwhelm the US](https://news.yahoo.com/russia-china-brink-military-alliance-083401912.html)
-- Dec 25 - [Afghan schoolgirls are finishing sixth grade in tears. Under Taliban rule, their education is over](https://news.yahoo.com/afghan-schoolgirls-finishing-sixth-grade-063526895.html)
-- Dec 25 - [Moses’ parting of the Red Sea may not have been a miracle after all](https://news.yahoo.com/moses-parting-red-sea-may-060000050.html)
 <!-- feed end -->
 
 ### Onstream
