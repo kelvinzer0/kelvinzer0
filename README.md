@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [In battleground Arizona, Robert F. Kennedy Jr. draws Biden and Trump voters united by distrust](https://news.yahoo.com/battleground-arizona-robert-f-kennedy-050123998.html)
+- Dec 25 - [‘Killer whale madness’ continues off Southern California coast](https://news.yahoo.com/killer-whale-madness-continues-off-032129886.html)
 - Dec 25 - [Philippine actions in South China Sea 'extremely dangerous' - Chinese state media](https://news.yahoo.com/philippine-actions-south-china-sea-015245753.html)
 - Dec 24 - [Ted Cruz Makes Fox Host Defend MSNBC After Saying ‘They Don’t Cover News’ | Video](https://www.yahoo.com/entertainment/ted-cruz-makes-fox-host-233008108.html)
 - Dec 24 - [25 Countries That Welcome Americans With Open Arms](https://finance.yahoo.com/news/25-countries-welcome-americans-open-230603480.html)
-- Dec 24 - [Visibly Upset T.D. Jakes Addresses Salacious Tiktok Gossip, Regarding Ties With Diddy](https://news.yahoo.com/visibly-upset-t-d-jakes-215000082.html)
-- Dec 24 - [Watch: Massive rogue wave batters cruise ship in North Sea](https://news.yahoo.com/watch-massive-rogue-wave-batters-213935657.html)
 <!-- feed end -->
 
 ### Onstream
