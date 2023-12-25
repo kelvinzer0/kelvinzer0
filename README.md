@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Could Hybrid Aircraft Be the Future of Air Travel?](https://news.yahoo.com/could-hybrid-aircraft-future-air-140054008.html)
+- Dec 25 - [Imprisoned Russian opposition leader Navalny located in penal colony 3 weeks after contact lost](https://news.yahoo.com/imprisoned-russian-opposition-leader-navalny-132954646.html)
 - Dec 25 - [‘Four years of getting even’: voters in former Trump stronghold mixed on possible second term](https://news.yahoo.com/four-years-getting-even-voters-130023612.html)
+- Dec 25 - [Russia's Navalny tracked down to 'Polar Wolf' prison in the Arctic](https://news.yahoo.com/russias-navalny-prison-colony-yamal-124625997.html)
 - Dec 25 - [North Dakota lawmaker makes homophobic and racist remarks during DUI traffic stop](https://news.yahoo.com/north-dakota-lawmaker-makes-homophobic-110224185.html)
-- Dec 25 - [‘Like taking poison and hoping he dies’: Dave Ramsey says this Kansas City woman serves as a case study for why you ‘don't buy a house with people you’re not married to’ — here’s more](https://finance.yahoo.com/news/taking-poison-hoping-dies-dave-110000311.html)
-- Dec 25 - [Egypt floats ambitious plan to end Israel-Hamas war as death toll in an Israeli strike rises to 106](https://news.yahoo.com/egypt-floats-ambitious-plan-end-105201136.html)
-- Dec 25 - [Finnish people may be some of the happiest in the world but they also have several unusual traditions. Here are 5 surprising facts about the world's happiest country.](https://news.yahoo.com/finnish-people-may-happiest-world-100002619.html)
 <!-- feed end -->
 
 ### Onstream
