@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Belarus leader says Russian nuclear weapons shipments are completed, raising concern in the region](https://news.yahoo.com/belarus-leader-says-russian-nuclear-195805474.html)
+- Dec 25 - [Armenian leader travels to Russia despite tensions and promises economic bloc cooperation](https://news.yahoo.com/armenian-leader-travels-russia-despite-193014874.html)
+- Dec 25 - [Hamas faces ‘unprecedented battle’ against Israel, says Sinwar](https://news.yahoo.com/hamas-faces-unprecedented-battle-against-151847701.html)
+- Dec 25 - [These Are The 4 Ingredients Food Safety Experts Say They Will Never Order At A Restaurant](https://www.yahoo.com/lifestyle/4-ingredients-food-safety-experts-191603259.html)
 - Dec 25 - [Russia’s Navalny tracked down to prison in the Arctic](https://news.yahoo.com/russia-navalny-tracked-down-prison-180555404.html)
-- Dec 25 - [Pittsburgh pizzeria gives away hundreds of free pizzas on Christmas Day](https://news.yahoo.com/pittsburgh-pizzeria-gives-away-hundreds-174205608.html)
-- Dec 25 - [Greene says she was swatted while at home with family on Christmas](https://news.yahoo.com/greene-says-she-swatted-while-170754305.html)
-- Dec 25 - [An Israeli airstrike in Syria kills a high-ranking Iranian general](https://news.yahoo.com/israeli-airstrike-syria-kills-high-164409544.html)
-- Dec 25 - [Trump rails against special counsel Jack Smith in Christmas Eve posts](https://news.yahoo.com/trump-rails-against-special-counsel-161535691.html)
 <!-- feed end -->
 
 ### Onstream
