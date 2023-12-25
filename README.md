@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Russia’s Navalny tracked down to prison in the Arctic](https://news.yahoo.com/russia-navalny-tracked-down-prison-180555404.html)
+- Dec 25 - [Greene says she was swatted while at home with family on Christmas](https://news.yahoo.com/greene-says-she-swatted-while-170754305.html)
+- Dec 25 - [An Israeli airstrike in Syria kills a high-ranking Iranian general](https://news.yahoo.com/israeli-airstrike-syria-kills-high-164409544.html)
+- Dec 25 - [Russian opposition leader Alexei Navalny found in Arctic prison after losing contact for 20 days](https://news.yahoo.com/russian-opposition-leader-alexei-navalny-161813705.html)
 - Dec 25 - [Trump rails against special counsel Jack Smith in Christmas Eve posts](https://news.yahoo.com/trump-rails-against-special-counsel-161535691.html)
-- Dec 25 - [Russian forces gain control of Maryinka in east Ukraine, defence minister says](https://news.yahoo.com/russian-forces-gain-control-maryinka-155932466.html)
-- Dec 25 - [Israeli air strike in Syria kills senior Iranian Revolutionary Guards member](https://news.yahoo.com/israeli-air-strike-syria-kills-154936458.html)
-- Dec 25 - [What Donald Trump’s Presidency Meant for Your Wallet — And How It Could Change If He Wins Again](https://finance.yahoo.com/news/donald-trump-presidency-meant-wallet-120039454.html)
-- Dec 25 - [Kevin O'Leary says you need to have $5M in the bank to 'survive' no matter what happens — here's the math behind his number and how to get there yourself](https://finance.yahoo.com/news/kevin-oleary-says-5m-bank-143000357.html)
 <!-- feed end -->
 
 ### Onstream
