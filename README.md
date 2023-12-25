@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 25 - [Pennsylvania Animal Shelter Celebrates Having No Dogs For First Time In 47 Years](https://news.yahoo.com/pennsylvania-animal-shelter-celebrates-having-214331983.html)
-- Dec 25 - [Migrant caravan in southern Mexico marks Christmas Day by trudging onward](https://news.yahoo.com/migrant-caravan-southern-mexico-marks-202740233.html)
+- Dec 25 - [Investigators poised to get Project Veritas documents after judge strikes down 1st Amendment claim](https://news.yahoo.com/investigators-poised-project-veritas-documents-224200138.html)
+- Dec 25 - [Rep. Marjorie Taylor Greene swatted on Christmas. 'This is not the first incident,' police say](https://news.yahoo.com/rep-marjorie-taylor-greene-swatted-215122490.html)
+- Dec 25 - [Trump wishes electric car supporters 'rot in hell' in Truth Social Christmas message](https://news.yahoo.com/trump-wishes-electric-car-supporters-215004894.html)
 - Dec 25 - [The Best Vegetable to Help You Poop, According to Dietitians](https://www.yahoo.com/lifestyle/best-vegetable-help-poop-according-200000014.html)
 - Dec 25 - [Belarus leader says Russian nuclear weapons shipments are completed, raising concern in the region](https://news.yahoo.com/belarus-leader-says-russian-nuclear-195805474.html)
-- Dec 25 - [Lincoln Project releases ‘Trump smells’ ad](https://news.yahoo.com/lincoln-project-releases-trump-smells-195537602.html)
 <!-- feed end -->
 
 ### Onstream
