@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Hamas, Islamic Jihad reject giving up power in return for permanent ceasefire - Egyptian sources](https://news.yahoo.com/hamas-islamic-jihad-reject-giving-125557347.html)
+- Dec 25 - [Donald Trump can't dodge his NY fraud verdict by moving Trump Org or giving it to, say, Ivanka: experts](https://news.yahoo.com/donald-trump-cant-dodge-ny-123001957.html)
 - Dec 25 - [‘Like taking poison and hoping he dies’: Dave Ramsey says this Kansas City woman serves as a case study for why you ‘don't buy a house with people you’re not married to’ — here’s more](https://finance.yahoo.com/news/taking-poison-hoping-dies-dave-110000311.html)
 - Dec 25 - [Finnish people may be some of the happiest in the world but they also have several unusual traditions. Here are 5 surprising facts about the world's happiest country.](https://news.yahoo.com/finnish-people-may-happiest-world-100002619.html)
 - Dec 25 - [A plane stuck for days in France for a human trafficking investigation is leaving for India](https://news.yahoo.com/plane-stuck-days-france-human-095418406.html)
-- Dec 25 - [Russian propagandist who called for drowning of Ukrainian children is poisoned](https://news.yahoo.com/russian-propagandist-called-drowning-ukrainian-093852694.html)
-- Dec 25 - [Russia and China are on the brink of a military alliance that could overwhelm the US](https://news.yahoo.com/russia-china-brink-military-alliance-083401912.html)
 <!-- feed end -->
 
 ### Onstream
