@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 25 - [Hamas, Islamic Jihad reject giving up power in return for permanent ceasefire - Egyptian sources](https://news.yahoo.com/hamas-islamic-jihad-reject-giving-125557347.html)
-- Dec 25 - [Donald Trump can't dodge his NY fraud verdict by moving Trump Org or giving it to, say, Ivanka: experts](https://news.yahoo.com/donald-trump-cant-dodge-ny-123001957.html)
+- Dec 25 - [‘Four years of getting even’: voters in former Trump stronghold mixed on possible second term](https://news.yahoo.com/four-years-getting-even-voters-130023612.html)
+- Dec 25 - [North Dakota lawmaker makes homophobic and racist remarks during DUI traffic stop](https://news.yahoo.com/north-dakota-lawmaker-makes-homophobic-110224185.html)
 - Dec 25 - [‘Like taking poison and hoping he dies’: Dave Ramsey says this Kansas City woman serves as a case study for why you ‘don't buy a house with people you’re not married to’ — here’s more](https://finance.yahoo.com/news/taking-poison-hoping-dies-dave-110000311.html)
+- Dec 25 - [Egypt floats ambitious plan to end Israel-Hamas war as death toll in an Israeli strike rises to 106](https://news.yahoo.com/egypt-floats-ambitious-plan-end-105201136.html)
 - Dec 25 - [Finnish people may be some of the happiest in the world but they also have several unusual traditions. Here are 5 surprising facts about the world's happiest country.](https://news.yahoo.com/finnish-people-may-happiest-world-100002619.html)
-- Dec 25 - [A plane stuck for days in France for a human trafficking investigation is leaving for India](https://news.yahoo.com/plane-stuck-days-france-human-095418406.html)
 <!-- feed end -->
 
 ### Onstream
