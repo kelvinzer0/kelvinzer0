@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 25 - [Could Hybrid Aircraft Be the Future of Air Travel?](https://news.yahoo.com/could-hybrid-aircraft-future-air-140054008.html)
-- Dec 25 - [Imprisoned Russian opposition leader Navalny located in penal colony 3 weeks after contact lost](https://news.yahoo.com/imprisoned-russian-opposition-leader-navalny-132954646.html)
-- Dec 25 - [‘Four years of getting even’: voters in former Trump stronghold mixed on possible second term](https://news.yahoo.com/four-years-getting-even-voters-130023612.html)
-- Dec 25 - [Russia's Navalny tracked down to 'Polar Wolf' prison in the Arctic](https://news.yahoo.com/russias-navalny-prison-colony-yamal-124625997.html)
-- Dec 25 - [North Dakota lawmaker makes homophobic and racist remarks during DUI traffic stop](https://news.yahoo.com/north-dakota-lawmaker-makes-homophobic-110224185.html)
+- Dec 25 - [Russian forces gain control of Maryinka in east Ukraine, defence minister says](https://news.yahoo.com/russian-forces-gain-control-maryinka-155932466.html)
+- Dec 25 - [Israeli air strike in Syria kills senior Iranian Revolutionary Guards member](https://news.yahoo.com/israeli-air-strike-syria-kills-154936458.html)
+- Dec 25 - [Kevin O'Leary says you need to have $5M in the bank to 'survive' no matter what happens — here's the math behind his number and how to get there yourself](https://finance.yahoo.com/news/kevin-oleary-says-5m-bank-143000357.html)
+- Dec 25 - [Hamas faces ‘unprecedented battle’ against Israel, says Sinwar](https://news.yahoo.com/hamas-faces-unprecedented-battle-against-151847701.html)
+- Dec 25 - [What really drives anti-abortion beliefs? Research suggests it's a matter of sexual strategies](https://news.yahoo.com/really-drives-anti-abortion-beliefs-122531280.html)
 <!-- feed end -->
 
 ### Onstream
