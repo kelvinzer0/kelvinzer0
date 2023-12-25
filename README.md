@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 25 - [Egypt floats ambitious plan to end Israel-Hamas war and create transitional Palestinian government](https://news.yahoo.com/egypt-floats-ambitious-plan-end-105201136.html)
+- Dec 25 - [Finnish people may be some of the happiest in the world but they also have several unusual traditions. Here are 5 surprising facts about the world's happiest country.](https://news.yahoo.com/finnish-people-may-happiest-world-100002619.html)
 - Dec 25 - [Russia and China are on the brink of a military alliance that could overwhelm the US](https://news.yahoo.com/russia-china-brink-military-alliance-083401912.html)
 - Dec 25 - [Afghan schoolgirls are finishing sixth grade in tears. Under Taliban rule, their education is over](https://news.yahoo.com/afghan-schoolgirls-finishing-sixth-grade-063526895.html)
-- Dec 25 - [Russian has the upper hand in arms race with the West - Russian minister says](https://finance.yahoo.com/news/russian-upper-hand-arms-race-060735990.html)
 - Dec 25 - [Moses’ parting of the Red Sea may not have been a miracle after all](https://news.yahoo.com/moses-parting-red-sea-may-060000050.html)
-- Dec 25 - [In battleground Arizona, Robert F. Kennedy Jr. draws Biden and Trump voters united by distrust](https://news.yahoo.com/battleground-arizona-robert-f-kennedy-050123998.html)
 <!-- feed end -->
 
 ### Onstream
