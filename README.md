@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Moscow says it now controls Maryinka in east Ukraine](https://news.yahoo.com/moscow-says-now-controls-maryinka-142648660.html)
-- Dec 26 - [Anti-war candidate barred from running against Putin lodges appeal](https://news.yahoo.com/anti-war-candidate-barred-running-134019646.html)
+- Dec 26 - [Judges temporarily block Tennessee law letting state pick 6 of 13 on local pro sports facility board](https://news.yahoo.com/judges-temporarily-block-tennessee-law-155832861.html)
+- Dec 26 - [“MAY THEY ROT IN HELL”: Trump blasted for hitting "new low" in Christmas Truth Social meltdown](https://news.yahoo.com/may-rot-hell-trump-blasted-152832174.html)
+- Dec 26 - [Melania Trump Has Apparently Changed Her Mind & Really Wants the First Lady Job Again](https://www.yahoo.com/entertainment/melania-trump-apparently-changed-her-150245173.html)
 - Dec 26 - [Instead of $32,000, crippled Russian soldier given two buckets of carrots, onions — photo](https://news.yahoo.com/instead-32-000-crippled-russian-133500445.html)
 - Dec 26 - [“Be careful what you ask for”: Experts warn Trump’s “immunity” filing could backfire with judges](https://news.yahoo.com/careful-ask-experts-warn-trump-133419841.html)
-- Dec 26 - [Russian soldier fails to catch evacuation vehicle — video](https://news.yahoo.com/russian-soldier-fails-catch-evacuation-132500009.html)
 <!-- feed end -->
 
 ### Onstream
