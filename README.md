@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 26 - [Dentist Sued for Performing 8 Crowns, 4 Root Canals, and 20 Fillings in One Visit](https://news.yahoo.com/dentist-sued-performing-8-crowns-203938724.html)
+- Dec 26 - [Missing Woman Called 911 and Said Her Ex Was Chasing Her Down the Road. Now He's Charged with Murder](https://www.yahoo.com/entertainment/missing-woman-called-911-said-200851813.html)
+- Dec 26 - [Ex-Nebraska congressman's conviction for lying to authorities is overturned](https://news.yahoo.com/ex-nebraska-congressmans-conviction-lying-200103442.html)
 - Dec 26 - [Christmas custody exchange ends with mom shooting dad in front of 5 kids, Florida cops say](https://news.yahoo.com/christmas-custody-exchange-ends-mom-195116762.html)
 - Dec 26 - [Mike Huckabee Tells AOC to ‘Stick to Bartending’ Instead of Israel-Palestine After ‘Utterly Ignorant’ Christmas Message | Video](https://www.yahoo.com/entertainment/mike-huckabee-tells-aoc-stick-193410823.html)
-- Dec 26 - [Court reverses former Nebraska US Rep. Jeff Fortenberry's conviction of lying to federal authorities](https://news.yahoo.com/appellate-court-reverses-federal-conviction-193115991.html)
-- Dec 26 - [Watch: Ukraine Strikes Russian Warship in Crimea](https://finance.yahoo.com/video/watch-ukraine-strikes-russian-warship-193100177.html)
-- Dec 26 - [Trump legal news brief: Trump tests two new election interference defenses](https://news.yahoo.com/trump-legal-news-brief-trump-tests-two-new-election-interference-defenses-190343250.html)
 <!-- feed end -->
 
 ### Onstream
