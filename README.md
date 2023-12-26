@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 26 - [Philippines is not provoking conflict in South China Sea, its military says](https://news.yahoo.com/philippines-not-provoking-conflict-south-051435392.html)
 - Dec 26 - [Indian navy to deploy guided missile destroyer ships after strike off its coast](https://news.yahoo.com/indian-navy-deploy-guided-missile-050801896.html)
 - Dec 26 - [This Day in History – Dec. 26, 1862: 38 Dakota Men Executed by Order of Abraham Lincoln](https://news.yahoo.com/day-history-dec-26-1862-045303190.html)
+- Dec 26 - [Trump augurs divisive year in angry Christmas rant](https://news.yahoo.com/trump-augurs-divisive-angry-christmas-050125173.html)
 - Dec 26 - [Biden orders strike on Iranian-aligned group after 3 US troops injured in drone attack in Iraq](https://news.yahoo.com/biden-orders-strike-iranian-aligned-032523319.html)
-- Dec 26 - [These Are The 7 Things Stroke Doctors Say You Should Never, Ever Do](https://www.yahoo.com/lifestyle/7-things-stroke-doctors-never-031603451.html)
 <!-- feed end -->
 
 ### Onstream
