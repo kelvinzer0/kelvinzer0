@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 26 - [Moscow says it now controls Maryinka in east Ukraine](https://news.yahoo.com/moscow-says-now-controls-maryinka-142648660.html)
+- Dec 26 - [Anti-war candidate barred from running against Putin lodges appeal](https://news.yahoo.com/anti-war-candidate-barred-running-134019646.html)
+- Dec 26 - [Instead of $32,000, crippled Russian soldier given two buckets of carrots, onions — photo](https://news.yahoo.com/instead-32-000-crippled-russian-133500445.html)
 - Dec 26 - [“Be careful what you ask for”: Experts warn Trump’s “immunity” filing could backfire with judges](https://news.yahoo.com/careful-ask-experts-warn-trump-133419841.html)
-- Dec 26 - [Trump augurs divisive year in angry Christmas rant](https://news.yahoo.com/trump-augurs-divisive-angry-christmas-050125173.html)
-- Dec 26 - [Trump shares Christmas message insulting politicians](https://news.yahoo.com/trump-shares-christmas-message-insulting-130409184.html)
-- Dec 26 - [Xi vows to prevent anyone 'splitting Taiwan from China'](https://news.yahoo.com/xi-vows-prevent-anyone-splitting-130226748.html)
-- Dec 26 - [Passenger describes panic on cruise ship after a man fell overboard: 'I instantly felt sick to my stomach'](https://news.yahoo.com/passenger-describes-panic-cruise-ship-124206723.html)
+- Dec 26 - [Russian soldier fails to catch evacuation vehicle — video](https://news.yahoo.com/russian-soldier-fails-catch-evacuation-132500009.html)
 <!-- feed end -->
 
 ### Onstream
