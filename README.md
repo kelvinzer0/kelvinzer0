@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Zombie deer disease is a 'slow moving disaster'. Why scientists say humans should 'be prepared'.](https://news.yahoo.com/zombie-deer-disease-slow-moving-161628660.html)
-- Dec 26 - [Pregnant 18-year-old vanishes before she’s scheduled to give birth, Texas family says](https://news.yahoo.com/pregnant-18-old-vanishes-she-160759422.html)
-- Dec 26 - [A Russian officer surrendered and sold out his comrades, helping Ukraine's special forces cross a key river](https://news.yahoo.com/russian-officer-surrendered-sold-comrades-160558045.html)
-- Dec 26 - [Legal expert says Jack Smith can get "devastating" Trump evidence: Juries "eat it up"](https://news.yahoo.com/legal-expert-says-jack-smith-160535643.html)
-- Dec 26 - [Nigerian villagers missing two days after suspected nomadic herders kill 140](https://news.yahoo.com/nigerian-villagers-missing-two-days-153216394.html)
+- Dec 26 - [Argentina's new president lays off 5,000 government employees hired in 2023, before he took office](https://news.yahoo.com/argentinas-president-lays-off-5-175142885.html)
+- Dec 26 - [US holiday sales miss expectations -Mastercard report](https://news.yahoo.com/us-holiday-sales-miss-expectations-173636591.html)
+- Dec 26 - [This rarely happens — Apple AirPods are on sale for Boxing Day at Amazon Canada](https://news.yahoo.com/amazon-boxing-day-airpods-sale-172544161.html)
+- Dec 26 - [Here's what to know about Turkey's decision to move forward with Sweden's bid to join NATO](https://news.yahoo.com/heres-know-turkeys-decision-move-172535456.html)
+- Dec 26 - [An avalanche of money is coming to kick Lauren Boebert out of Congress](https://news.yahoo.com/avalanche-money-coming-kick-lauren-172020672.html)
 <!-- feed end -->
 
 ### Onstream
