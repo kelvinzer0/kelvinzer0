@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Fund manager's top growth stock picks for 2024](https://finance.yahoo.com/video/fund-managers-top-growth-stock-183621828.html)
-- Dec 26 - [Chris Matthews Pins Down ‘SNL’ Cast as ‘Snarling Rich Kids’ Who Cause Trump Supporters’ ‘Rural Rage’ | Video](https://www.yahoo.com/entertainment/chris-matthews-pins-down-snl-175650651.html)
-- Dec 26 - [Argentina's new president lays off 5,000 government employees hired in 2023, before he took office](https://news.yahoo.com/argentinas-president-lays-off-5-175142885.html)
-- Dec 26 - [Kari Lake is in deep, deep trouble with judge's refusal to dismiss defamation lawsuit](https://news.yahoo.com/kari-lake-deep-deep-trouble-172741476.html)
-- Dec 26 - [An avalanche of money is coming to kick Lauren Boebert out of Congress](https://news.yahoo.com/avalanche-money-coming-kick-lauren-172020672.html)
+- Dec 26 - [Christmas custody exchange ends with mom shooting dad in front of 5 kids, Florida cops say](https://news.yahoo.com/christmas-custody-exchange-ends-mom-195116762.html)
+- Dec 26 - [Mike Huckabee Tells AOC to ‘Stick to Bartending’ Instead of Israel-Palestine After ‘Utterly Ignorant’ Christmas Message | Video](https://www.yahoo.com/entertainment/mike-huckabee-tells-aoc-stick-193410823.html)
+- Dec 26 - [Court reverses former Nebraska US Rep. Jeff Fortenberry's conviction of lying to federal authorities](https://news.yahoo.com/appellate-court-reverses-federal-conviction-193115991.html)
+- Dec 26 - [Watch: Ukraine Strikes Russian Warship in Crimea](https://finance.yahoo.com/video/watch-ukraine-strikes-russian-warship-193100177.html)
+- Dec 26 - [Trump legal news brief: Trump tests two new election interference defenses](https://news.yahoo.com/trump-legal-news-brief-trump-tests-two-new-election-interference-defenses-190343250.html)
 <!-- feed end -->
 
 ### Onstream
