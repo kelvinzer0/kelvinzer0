@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [‘We must do more’: Biden administration wants to build 500K starter homes to fix America’s affordable housing crisis — but will this be enough?](https://finance.yahoo.com/news/must-more-biden-administration-wants-121500853.html)
-- Dec 26 - [Here's the average net worth of Americans for every age group — how do you stack up? (Plus 3 easy tips to boost your wealth if you're way behind)](https://finance.yahoo.com/news/heres-average-net-worth-americans-100000494.html)
-- Dec 26 - [Baghdad condemns U.S strike on Iraqi military positions](https://news.yahoo.com/baghdad-condemns-u-strike-iraqi-090416476.html)
-- Dec 26 - [Philippines is not provoking conflict in South China Sea, its military says](https://news.yahoo.com/philippines-not-provoking-conflict-south-051435392.html)
-- Dec 26 - [Indian navy to deploy guided missile destroyer ships after strike off its coast](https://news.yahoo.com/indian-navy-deploy-guided-missile-050801896.html)
+- Dec 26 - [“Be careful what you ask for”: Experts warn Trump’s “immunity” filing could backfire with judges](https://news.yahoo.com/careful-ask-experts-warn-trump-133419841.html)
+- Dec 26 - [Trump augurs divisive year in angry Christmas rant](https://news.yahoo.com/trump-augurs-divisive-angry-christmas-050125173.html)
+- Dec 26 - [Trump shares Christmas message insulting politicians](https://news.yahoo.com/trump-shares-christmas-message-insulting-130409184.html)
+- Dec 26 - [Xi vows to prevent anyone 'splitting Taiwan from China'](https://news.yahoo.com/xi-vows-prevent-anyone-splitting-130226748.html)
+- Dec 26 - [Passenger describes panic on cruise ship after a man fell overboard: 'I instantly felt sick to my stomach'](https://news.yahoo.com/passenger-describes-panic-cruise-ship-124206723.html)
 <!-- feed end -->
 
 ### Onstream
