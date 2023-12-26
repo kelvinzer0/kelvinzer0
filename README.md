@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 26 - [Fund manager's top growth stock picks for 2024](https://finance.yahoo.com/video/fund-managers-top-growth-stock-183621828.html)
+- Dec 26 - [Chris Matthews Pins Down ‘SNL’ Cast as ‘Snarling Rich Kids’ Who Cause Trump Supporters’ ‘Rural Rage’ | Video](https://www.yahoo.com/entertainment/chris-matthews-pins-down-snl-175650651.html)
 - Dec 26 - [Argentina's new president lays off 5,000 government employees hired in 2023, before he took office](https://news.yahoo.com/argentinas-president-lays-off-5-175142885.html)
-- Dec 26 - [US holiday sales miss expectations -Mastercard report](https://news.yahoo.com/us-holiday-sales-miss-expectations-173636591.html)
-- Dec 26 - [This rarely happens — Apple AirPods are on sale for Boxing Day at Amazon Canada](https://news.yahoo.com/amazon-boxing-day-airpods-sale-172544161.html)
-- Dec 26 - [Here's what to know about Turkey's decision to move forward with Sweden's bid to join NATO](https://news.yahoo.com/heres-know-turkeys-decision-move-172535456.html)
+- Dec 26 - [Kari Lake is in deep, deep trouble with judge's refusal to dismiss defamation lawsuit](https://news.yahoo.com/kari-lake-deep-deep-trouble-172741476.html)
 - Dec 26 - [An avalanche of money is coming to kick Lauren Boebert out of Congress](https://news.yahoo.com/avalanche-money-coming-kick-lauren-172020672.html)
 <!-- feed end -->
 
