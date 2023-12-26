@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Judges temporarily block Tennessee law letting state pick 6 of 13 on local pro sports facility board](https://news.yahoo.com/judges-temporarily-block-tennessee-law-155832861.html)
-- Dec 26 - [“MAY THEY ROT IN HELL”: Trump blasted for hitting "new low" in Christmas Truth Social meltdown](https://news.yahoo.com/may-rot-hell-trump-blasted-152832174.html)
-- Dec 26 - [Melania Trump Has Apparently Changed Her Mind & Really Wants the First Lady Job Again](https://www.yahoo.com/entertainment/melania-trump-apparently-changed-her-150245173.html)
-- Dec 26 - [Instead of $32,000, crippled Russian soldier given two buckets of carrots, onions — photo](https://news.yahoo.com/instead-32-000-crippled-russian-133500445.html)
-- Dec 26 - [“Be careful what you ask for”: Experts warn Trump’s “immunity” filing could backfire with judges](https://news.yahoo.com/careful-ask-experts-warn-trump-133419841.html)
+- Dec 26 - [Zombie deer disease is a 'slow moving disaster'. Why scientists say humans should 'be prepared'.](https://news.yahoo.com/zombie-deer-disease-slow-moving-161628660.html)
+- Dec 26 - [Pregnant 18-year-old vanishes before she’s scheduled to give birth, Texas family says](https://news.yahoo.com/pregnant-18-old-vanishes-she-160759422.html)
+- Dec 26 - [A Russian officer surrendered and sold out his comrades, helping Ukraine's special forces cross a key river](https://news.yahoo.com/russian-officer-surrendered-sold-comrades-160558045.html)
+- Dec 26 - [Legal expert says Jack Smith can get "devastating" Trump evidence: Juries "eat it up"](https://news.yahoo.com/legal-expert-says-jack-smith-160535643.html)
+- Dec 26 - [Nigerian villagers missing two days after suspected nomadic herders kill 140](https://news.yahoo.com/nigerian-villagers-missing-two-days-153216394.html)
 <!-- feed end -->
 
 ### Onstream
