@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Iran vows revenge after Israel kills top military commander in Syria](https://news.yahoo.com/iran-vows-revenge-israel-kills-003640345.html)
 - Dec 25 - [Marjorie Taylor Greene targeted by failed Christmas swatting attempt](https://news.yahoo.com/marjorie-taylor-greene-targeted-failed-232511712.html)
 - Dec 25 - [Trump: ‘May they rot in Hell. Merry Christmas’](https://news.yahoo.com/trump-may-rot-hell-merry-232118336.html)
 - Dec 25 - [Skeletal Remains Found in Va. Woods ID'd as Those of Boy Missing Since 2003, Charges Expected](https://www.yahoo.com/entertainment/skeletal-remains-found-va-woods-225656116.html)
-- Dec 25 - [Clarence Thomas' former clerks have brought him a taxidermy lobster and batteries for his RV to express their loyalty over the years, report says](https://news.yahoo.com/clarence-thomas-former-clerks-brought-224527799.html)
+- Dec 25 - [1st Amendment claim struck down in Project Veritas case focused on diary of Biden's daughter](https://news.yahoo.com/investigators-poised-project-veritas-documents-224200138.html)
+- Dec 25 - [Migrant caravan in southern Mexico marks Christmas Day by trudging onward](https://news.yahoo.com/migrant-caravan-southern-mexico-marks-202740233.html)
 <!-- feed end -->
 
 ### Onstream
