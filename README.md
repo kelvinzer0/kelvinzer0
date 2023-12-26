@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [Israeli airstrike kills Iranian commander in Syria](https://news.yahoo.com/israeli-airstrike-kills-iranian-commander-040841545.html)
+- Dec 26 - [Israel PM says no peace until Hamas destroyed](https://news.yahoo.com/israel-pm-says-no-peace-051521939.html)
+- Dec 26 - [Indian navy to deploy guided missile destroyer ships after strike off its coast](https://news.yahoo.com/indian-navy-deploy-guided-missile-050801896.html)
+- Dec 26 - [This Day in History – Dec. 26, 1862: 38 Dakota Men Executed by Order of Abraham Lincoln](https://news.yahoo.com/day-history-dec-26-1862-045303190.html)
 - Dec 26 - [Biden orders strike on Iranian-aligned group after 3 US troops injured in drone attack in Iraq](https://news.yahoo.com/biden-orders-strike-iranian-aligned-032523319.html)
 - Dec 26 - [These Are The 7 Things Stroke Doctors Say You Should Never, Ever Do](https://www.yahoo.com/lifestyle/7-things-stroke-doctors-never-031603451.html)
-- Dec 26 - [Ukrainian Air Force destroys Russian landing ship in occupied Crimea](https://news.yahoo.com/ukrainian-air-force-destroys-russian-023352521.html)
-- Dec 25 - [Marjorie Taylor Greene targeted by failed Christmas swatting attempt](https://news.yahoo.com/marjorie-taylor-greene-targeted-failed-232511712.html)
 <!-- feed end -->
 
 ### Onstream
