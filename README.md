@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 26 - [2024 Chevrolet Tahoe, Suburban almost unchanged, but prices rise](https://www.autoblog.com/2023/12/26/2024-chevrolet-suburban-almost-unchanged-prices-rise-by-2100/)
+- Dec 26 - [Trump shares poll showing voters associate potential second term with "revenge"](https://news.yahoo.com/trump-shares-poll-showing-voters-230052465.html)
 - Dec 26 - [Fact Check: Closer Look: A Viral Pic of Donald Trump While in the Military Sure Looks Like AI](https://news.yahoo.com/fact-check-closer-look-viral-210900233.html)
+- Dec 26 - [14-year-old stomps on girl’s head in classroom, sending her to hospital, DE cops say](https://news.yahoo.com/14-old-stomps-girl-head-210017644.html)
+- Dec 26 - [Man charged after child attacked outside food truck](https://news.yahoo.com/man-charged-child-attacked-outside-205603203.html)
 - Dec 26 - [Biden Orders Airstrikes After American Soldiers Injured; Netanyahu Vows To Destroy Hamas; 2024 Polls](https://news.yahoo.com/biden-orders-airstrikes-american-soldiers-204100201.html)
-- Dec 26 - [Dentist Sued for Performing 8 Crowns, 4 Root Canals, and 20 Fillings in One Visit](https://news.yahoo.com/dentist-sued-performing-8-crowns-203938724.html)
-- Dec 26 - [Missing Woman Called 911 and Said Her Ex Was Chasing Her Down the Road. Now He's Charged with Murder](https://www.yahoo.com/entertainment/missing-woman-called-911-said-200851813.html)
 <!-- feed end -->
 
 ### Onstream
