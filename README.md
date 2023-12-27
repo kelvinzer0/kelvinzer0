@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - ['Parasite' actor Lee found dead amid drug allegations -Yonhap](https://news.yahoo.com/parasite-actor-lee-found-dead-023321744.html)
+- Dec 27 - ['Parasite' actor Lee found dead amid drug accusations](https://news.yahoo.com/parasite-actor-lee-found-dead-023321744.html)
 - Dec 27 - [Watch Ukraine blow up Russian ship in Crimea](https://news.yahoo.com/watch-ukraine-blow-russian-ship-010404314.html)
 - Dec 27 - [Mulvaney on Trump: ‘It’s horrible to put that out on Christmas’](https://news.yahoo.com/mulvaney-trump-horrible-put-christmas-005313025.html)
 - Dec 26 - [Woman paraded naked: A familiar headline in India](https://news.yahoo.com/woman-paraded-naked-familiar-headline-233153668.html)
