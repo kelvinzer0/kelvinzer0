@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Man rescued after 6 days trapped in truck in Indiana](https://news.yahoo.com/man-rescued-6-days-trapped-061213811.html)
 - Dec 27 - [She died weeks after fleeing the Maui wildfire. Her family fought to have her listed as a victim.](https://news.yahoo.com/she-died-weeks-fleeing-maui-060555426.html)
 - Dec 27 - [Russia to deploy newest howitzers close to Finland's border - Rostec](https://news.yahoo.com/russia-deploy-newest-howitzers-close-042124390.html)
 - Dec 27 - [‘Parasite’ Star Lee Sun-Kyun Cause Of Death Revealed](https://www.yahoo.com/entertainment/parasite-star-lee-sun-kyun-040138907.html)
 - Dec 27 - [South Korean actor Lee Sun-kyun of Oscar-winning film 'Parasite' is found dead](https://news.yahoo.com/south-korean-actor-lee-sun-030020026.html)
+- Dec 27 - [Watch Ukraine blow up Russian ship in Crimea](https://news.yahoo.com/watch-ukraine-blow-russian-ship-010404314.html)
 <!-- feed end -->
 
 ### Onstream
