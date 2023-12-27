@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Top Netanyahu aide meets with Biden officials](https://news.yahoo.com/top-netanyahu-aide-meets-biden-003316350.html)
+- Dec 27 - [Watch Ukraine blow up Russian ship in Crimea](https://news.yahoo.com/watch-ukraine-blow-russian-ship-010404314.html)
 - Dec 26 - [Woman paraded naked: A familiar headline in India](https://news.yahoo.com/woman-paraded-naked-familiar-headline-233153668.html)
+- Dec 26 - [US buys 3 million barrels of oil for strategic reserve](https://finance.yahoo.com/news/us-buys-3-million-barrels-233144061.html)
+- Dec 26 - [‘I wanted justice.’ AirTags used to track stolen luggage from Charlotte airport to suspect’s home](https://news.yahoo.com/wanted-justice-airtags-used-track-232336174.html)
 - Dec 26 - [Super Hornets Score Aerial Kills Over Red Sea](https://news.yahoo.com/super-hornets-score-aerial-kills-230616969.html)
-- Dec 26 - [Trump shares poll showing voters associate potential second term with "revenge"](https://news.yahoo.com/trump-shares-poll-showing-voters-230052465.html)
-- Dec 26 - [Biden Orders Airstrikes After American Soldiers Injured; Netanyahu Vows To Destroy Hamas; 2024 Polls](https://news.yahoo.com/biden-orders-airstrikes-american-soldiers-223000164.html)
 <!-- feed end -->
 
 ### Onstream
