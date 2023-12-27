@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Netanyahu warns Hamas: “We see you and we will get to you”](https://news.yahoo.com/netanyahu-warns-hamas-see-041052698.html)
+- Dec 27 - [South Korean actor Lee Sun-kyun of Oscar-winning film 'Parasite' is found dead](https://news.yahoo.com/south-korean-actor-lee-sun-030020026.html)
 - Dec 27 - ['Parasite' actor Lee found dead amid drug accusations](https://news.yahoo.com/parasite-actor-lee-found-dead-023321744.html)
 - Dec 27 - [Watch Ukraine blow up Russian ship in Crimea](https://news.yahoo.com/watch-ukraine-blow-russian-ship-010404314.html)
-- Dec 27 - [Mulvaney on Trump: ‘It’s horrible to put that out on Christmas’](https://news.yahoo.com/mulvaney-trump-horrible-put-christmas-005313025.html)
-- Dec 26 - [Woman paraded naked: A familiar headline in India](https://news.yahoo.com/woman-paraded-naked-familiar-headline-233153668.html)
-- Dec 26 - [US buys 3 million barrels of oil for strategic reserve](https://finance.yahoo.com/news/us-buys-3-million-barrels-233144061.html)
+- Dec 27 - [People leaving California moving here in record numbers, data shows](https://news.yahoo.com/people-leaving-california-moving-record-000544037.html)
 <!-- feed end -->
 
 ### Onstream
