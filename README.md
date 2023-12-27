@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Fishermen spotted something shiny near a creek. It was the first step toward a ‘miracle’](https://news.yahoo.com/fishermen-investigating-something-shiny-led-073014802.html)
+- Dec 27 - [Pa. Mom Says Man Has Broken into Home 4 Times to Watch Her 9-Year-Old Daughter Sleep](https://www.yahoo.com/entertainment/pa-mom-says-man-broken-172258408.html)
+- Dec 27 - [Girl’s body found in dumpster on Christmas Eve, Arizona cops say. Mom arrested](https://news.yahoo.com/girl-body-found-dumpster-christmas-172045578.html)
+- Dec 27 - ['I'm getting ready to knock you out of your chair': This Tampa woman has a mortgage, auto loan debt of $34K — and she asked Dave Ramsey how to build wealth. Here was his wisecrack reply](https://finance.yahoo.com/news/im-getting-ready-knock-chair-170000184.html)
 - Dec 27 - [Man who stole live 50-pound tarpon from Bass Pro Shops yet to be found](https://sports.yahoo.com/man-stole-live-50-pound-163021414.html)
-- Dec 27 - [Russian mass surrender in Zaporizhzhya sector after inhumane treatment and heavy losses](https://news.yahoo.com/russian-mass-surrender-zaporizhzhya-sector-162900025.html)
-- Dec 27 - [Fake Trump Elector Said He Was ‘Betrayed’ by Michigan Officials in 2020](https://news.yahoo.com/fake-trump-elector-said-betrayed-160029471.html)
-- Dec 27 - [Prosecutors seek to bar Trump from injecting politics into federal election interference trial](https://news.yahoo.com/prosecutors-seek-bar-trump-injecting-155130428.html)
-- Dec 27 - [What percentage of the US population is LGBTQ? New data shows which states have the most](https://news.yahoo.com/percentage-us-population-lgbtq-data-155038688.html)
 <!-- feed end -->
 
 ### Onstream
