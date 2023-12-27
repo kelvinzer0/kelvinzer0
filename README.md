@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Investing in REITs: One stock to buy and one to avoid](https://finance.yahoo.com/video/investing-reits-one-stock-buy-215400955.html)
+- Dec 27 - [Couple Robbed in Their Driveway After Going to Jewelry Store](https://news.yahoo.com/couple-robbed-driveway-going-jewelry-215202478.html)
 - Dec 27 - [The first EV with a lithium-free sodium battery hits the road in January](https://news.yahoo.com/the-first-ev-with-a-lithium-free-sodium-battery-hits-the-road-in-january-214828536.html)
+- Dec 27 - [North Korea's Kim orders military to accelerate war preparations -state media](https://news.yahoo.com/north-koreas-kim-orders-military-212946175.html)
 - Dec 27 - [Amazon faces backlash from users over upcoming change to Prime service](https://www.thestreet.com/retail/amazon-faces-backlash-from-users-over-upcoming-change-to-prime-service?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Dec 27 - [Woman files for divorce from Las Vegas jail after alleged role in deadly crime spree with husband, brother-in-law](https://news.yahoo.com/woman-files-divorce-las-vegas-201140148.html)
-- Dec 27 - [A woman who burned Wyoming's only full-service abortion clinic is ordered to pay $298,000](https://news.yahoo.com/woman-burned-wyomings-only-full-191900124.html)
+- Dec 27 - [Full Devastation From Cruise Missile Attack On Russian Ship Comes Into View](https://news.yahoo.com/full-devastation-cruise-missile-attack-195809136.html)
 <!-- feed end -->
 
 ### Onstream
