@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Fishermen spotted something shiny near a creek. It was the first step toward a ‘miracle’](https://news.yahoo.com/fishermen-investigating-something-shiny-led-073014802.html)
-- Dec 27 - [A Cop Who Killed A San Diego College Student In 1986 Gave 'Safety Tips' In A TV News Ride-Along Days Later](https://news.yahoo.com/cop-killed-san-diego-college-130015442.html)
-- Dec 27 - ['You're being a baby': This 41-year-old man has no job, no savings and relies on his parents to pay rent — but refuses to work jobs that are 'beneath' him. Caleb Hammer serves a reality check](https://finance.yahoo.com/news/youre-being-baby-41-old-123000305.html)
-- Dec 27 - ['Very specific in his wishes': Hollywood legend Tony Curtis cut his kids out of his will and $60M fortune when he died. Here's how to avoid messy inheritance disputes](https://finance.yahoo.com/news/hollywood-legend-tony-curtis-cut-133000275.html)
-- Dec 27 - [To fight and survive in hostile airspace, US Air Force special operators may take the big gun off their 'Ghostrider' gunships](https://news.yahoo.com/fight-survive-hostile-airspace-us-113701335.html)
+- Dec 27 - [Prosecutors seek to bar Trump from injecting politics into federal election interference trial](https://news.yahoo.com/prosecutors-seek-bar-trump-injecting-155130428.html)
+- Dec 27 - [Citi names GM, Delta, KeyCorp as top stocks for 2024](https://finance.yahoo.com/video/citi-names-gm-delta-keycorp-153848163.html)
+- Dec 27 - [Hunter who bagged potential record deer under investigation](https://sports.yahoo.com/hunter-bagged-potential-record-deer-153102519.html)
+- Dec 27 - [Trump says he didn't know his immigration rhetoric echoes Hitler. That's part of a broader pattern](https://news.yahoo.com/trump-says-didnt-know-immigration-153005603.html)
+- Dec 27 - [Turkey's Erdogan says Israeli PM Netanyahu no different from Hitler](https://news.yahoo.com/turkeys-erdogan-says-israeli-pm-140552340.html)
 <!-- feed end -->
 
 ### Onstream
