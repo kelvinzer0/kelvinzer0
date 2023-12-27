@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 27 - [She died weeks after fleeing the Maui wildfire. Her family fought to have her listed as a victim.](https://news.yahoo.com/she-died-weeks-fleeing-maui-060555426.html)
-- Dec 27 - [Russia to deploy newest howitzers close to Finland's border - Rostec](https://news.yahoo.com/russia-deploy-newest-howitzers-close-042124390.html)
+- Dec 27 - [Russia to deploy newest howitzers against Ukrainian forces - Rostec](https://news.yahoo.com/russia-deploy-newest-howitzers-close-042124390.html)
 - Dec 27 - [‘Parasite’ Star Lee Sun-Kyun Cause Of Death Revealed](https://www.yahoo.com/entertainment/parasite-star-lee-sun-kyun-040138907.html)
-- Dec 27 - [South Korean actor Lee Sun-kyun of Oscar-winning film 'Parasite' is found dead](https://news.yahoo.com/south-korean-actor-lee-sun-030020026.html)
 - Dec 27 - [Watch Ukraine blow up Russian ship in Crimea](https://news.yahoo.com/watch-ukraine-blow-russian-ship-010404314.html)
+- Dec 27 - [Russia's economy is paralyzed, and Putin's war machine survives on cannibalizing state-owned firms, Yale researchers say](https://finance.yahoo.com/news/russias-economy-paralyzed-putins-war-001648223.html)
 <!-- feed end -->
 
 ### Onstream
