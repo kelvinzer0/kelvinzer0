@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [A woman who burned Wyoming's only full-service abortion clinic is ordered to pay $298,000](https://news.yahoo.com/woman-burned-wyomings-only-full-191900124.html)
+- Dec 27 - [Influencer Documented Husband’s Threats Before He Committed Murder-Suicide](https://www.yahoo.com/entertainment/influencer-documented-husband-threats-committed-190056782.html)
+- Dec 27 - [Russian celebs at 'almost naked' party stung by backlash](https://news.yahoo.com/russian-celebs-almost-naked-party-184420164.html)
 - Dec 27 - [Warren Buffett Had An Unconventional First Marriage — He Lived With Another Woman, And The Trio Sent Out Christmas Cards Every Year:  'Susie Put Me Together And Astrid Keeps Me Together'](https://finance.yahoo.com/news/warren-buffett-had-unconventional-first-183011661.html)
-- Dec 27 - ["Betrayed is an understatement": Fake elector throws Trump team under the bus as he spills the beans](https://news.yahoo.com/betrayed-understatement-fake-elector-throws-174649928.html)
-- Dec 27 - [Fishermen spotted something shiny near a creek. It was the first step toward a ‘miracle’](https://news.yahoo.com/fishermen-investigating-something-shiny-led-073014802.html)
-- Dec 27 - [Man went fishing with his son-in-law. They found a missing person](https://news.yahoo.com/man-went-fishing-son-law-172847472.html)
-- Dec 27 - [Pa. Mom Says Man Has Broken into Home 4 Times to Watch Her 9-Year-Old Daughter Sleep](https://www.yahoo.com/entertainment/pa-mom-says-man-broken-172258408.html)
+- Dec 27 - [Aaron Carter’s Sister Bobbie Jean Carter Found Dead In A Bathroom](https://www.yahoo.com/entertainment/aaron-carter-sister-bobbie-jean-175658098.html)
 <!-- feed end -->
 
 ### Onstream
