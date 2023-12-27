@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Investing in REITs: One stock to buy and one to avoid](https://finance.yahoo.com/video/investing-reits-one-stock-buy-215400955.html)
+- Dec 27 - [The first EV with a lithium-free sodium battery hits the road in January](https://news.yahoo.com/the-first-ev-with-a-lithium-free-sodium-battery-hits-the-road-in-january-214828536.html)
+- Dec 27 - [Amazon faces backlash from users over upcoming change to Prime service](https://www.thestreet.com/retail/amazon-faces-backlash-from-users-over-upcoming-change-to-prime-service?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
+- Dec 27 - [Woman files for divorce from Las Vegas jail after alleged role in deadly crime spree with husband, brother-in-law](https://news.yahoo.com/woman-files-divorce-las-vegas-201140148.html)
 - Dec 27 - [A woman who burned Wyoming's only full-service abortion clinic is ordered to pay $298,000](https://news.yahoo.com/woman-burned-wyomings-only-full-191900124.html)
-- Dec 27 - [Influencer Documented Husband’s Threats Before He Committed Murder-Suicide](https://www.yahoo.com/entertainment/influencer-documented-husband-threats-committed-190056782.html)
-- Dec 27 - [‘That 70s Show’ Star Danny Masterson Prison Mugshot Revealed [PHOTO]](https://www.yahoo.com/entertainment/70s-show-star-danny-masterson-185304682.html)
-- Dec 27 - [California police can no longer ask you this at a traffic stop starting in 2024](https://news.yahoo.com/california-police-no-longer-ask-183023993.html)
-- Dec 27 - [Warren Buffett Had An Unconventional First Marriage — He Lived With Another Woman, And The Trio Sent Out Christmas Cards Every Year:  'Susie Put Me Together And Astrid Keeps Me Together'](https://finance.yahoo.com/news/warren-buffett-had-unconventional-first-183011661.html)
 <!-- feed end -->
 
 ### Onstream
