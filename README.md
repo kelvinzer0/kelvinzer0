@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [A Cop Who Killed A San Diego College Student In 1986 Gave 'Safety Tips' In A TV News Ride-Along Days Later](https://news.yahoo.com/cop-killed-san-diego-college-130015442.html)
 - Dec 27 - ['You're being a baby': This 41-year-old man has no job, no savings and relies on his parents to pay rent — but refuses to work jobs that are 'beneath' him. Caleb Hammer serves a reality check](https://finance.yahoo.com/news/youre-being-baby-41-old-123000305.html)
 - Dec 27 - ['Very specific in his wishes': Hollywood legend Tony Curtis cut his kids out of his will and $60M fortune when he died. Here's how to avoid messy inheritance disputes](https://finance.yahoo.com/news/hollywood-legend-tony-curtis-cut-133000275.html)
 - Dec 27 - [To fight and survive in hostile airspace, US Air Force special operators may take the big gun off their 'Ghostrider' gunships](https://news.yahoo.com/fight-survive-hostile-airspace-us-113701335.html)
 - Dec 27 - [Bill Granger, chef who brought Aussie-style breakfast to world capitals, dies at 54](https://news.yahoo.com/bill-granger-chef-brought-aussie-112935278.html)
-- Dec 27 - [Mexico's weed 'nuns' want to take the plant back from the narcos](https://news.yahoo.com/mexicos-weed-nuns-want-plant-111525716.html)
 <!-- feed end -->
 
 ### Onstream
