@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - ['Parasite' actor Lee found dead amid drug allegations -Yonhap](https://news.yahoo.com/parasite-actor-lee-found-dead-023321744.html)
 - Dec 27 - [Watch Ukraine blow up Russian ship in Crimea](https://news.yahoo.com/watch-ukraine-blow-russian-ship-010404314.html)
+- Dec 27 - [Mulvaney on Trump: ‘It’s horrible to put that out on Christmas’](https://news.yahoo.com/mulvaney-trump-horrible-put-christmas-005313025.html)
 - Dec 26 - [Woman paraded naked: A familiar headline in India](https://news.yahoo.com/woman-paraded-naked-familiar-headline-233153668.html)
 - Dec 26 - [US buys 3 million barrels of oil for strategic reserve](https://finance.yahoo.com/news/us-buys-3-million-barrels-233144061.html)
-- Dec 26 - [‘I wanted justice.’ AirTags used to track stolen luggage from Charlotte airport to suspect’s home](https://news.yahoo.com/wanted-justice-airtags-used-track-232336174.html)
-- Dec 26 - [Super Hornets Score Aerial Kills Over Red Sea](https://news.yahoo.com/super-hornets-score-aerial-kills-230616969.html)
 <!-- feed end -->
 
 ### Onstream
