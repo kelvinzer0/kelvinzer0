@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - ['You're being a baby': This 41-year-old man has no job, no savings and relies on his parents to pay rent — but refuses to work jobs that are 'beneath' him. Caleb Hammer serves a reality check](https://finance.yahoo.com/news/youre-being-baby-41-old-123000305.html)
+- Dec 27 - ['Very specific in his wishes': Hollywood legend Tony Curtis cut his kids out of his will and $60M fortune when he died. Here's how to avoid messy inheritance disputes](https://finance.yahoo.com/news/hollywood-legend-tony-curtis-cut-133000275.html)
+- Dec 27 - [To fight and survive in hostile airspace, US Air Force special operators may take the big gun off their 'Ghostrider' gunships](https://news.yahoo.com/fight-survive-hostile-airspace-us-113701335.html)
+- Dec 27 - [Bill Granger, chef who brought Aussie-style breakfast to world capitals, dies at 54](https://news.yahoo.com/bill-granger-chef-brought-aussie-112935278.html)
 - Dec 27 - [Mexico's weed 'nuns' want to take the plant back from the narcos](https://news.yahoo.com/mexicos-weed-nuns-want-plant-111525716.html)
-- Dec 27 - [In Texas, nearly 18,000 cows died in a single barn fire. This is how it happened](https://news.yahoo.com/texas-nearly-18-000-cows-111028259.html)
-- Dec 27 - [Texas woman seeking abortion argued Trisomy 18 was lethal. Michigan children prove it's not.](https://news.yahoo.com/texas-woman-seeking-abortion-argued-110710022.html)
-- Dec 27 - [Russia warns Japan over providing Patriot air defence systems to Ukraine](https://news.yahoo.com/russia-warns-japan-over-providing-104446216.html)
-- Dec 27 - [A 6-year-old boy traveling alone for Christmas was put on the wrong Spirit flight](https://news.yahoo.com/6-old-boy-traveling-alone-103801855.html)
 <!-- feed end -->
 
 ### Onstream
