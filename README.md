@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Mexico's weed 'nuns' want to take the plant back from the narcos](https://news.yahoo.com/mexicos-weed-nuns-want-plant-111525716.html)
+- Dec 27 - [In Texas, nearly 18,000 cows died in a single barn fire. This is how it happened](https://news.yahoo.com/texas-nearly-18-000-cows-111028259.html)
+- Dec 27 - [Texas woman seeking abortion argued Trisomy 18 was lethal. Michigan children prove it's not.](https://news.yahoo.com/texas-woman-seeking-abortion-argued-110710022.html)
 - Dec 27 - [Russia warns Japan over providing Patriot air defence systems to Ukraine](https://news.yahoo.com/russia-warns-japan-over-providing-104446216.html)
 - Dec 27 - [A 6-year-old boy traveling alone for Christmas was put on the wrong Spirit flight](https://news.yahoo.com/6-old-boy-traveling-alone-103801855.html)
-- Dec 27 - [Fishermen investigating something shiny led to ‘miracle’ rescue of Indiana man trapped in crashed truck for days, police say](https://news.yahoo.com/fishermen-investigating-something-shiny-led-073014802.html)
-- Dec 27 - [She died weeks after fleeing the Maui wildfire. Her family fought to have her listed as a victim.](https://news.yahoo.com/she-died-weeks-fleeing-maui-060555426.html)
-- Dec 27 - [Russia to deploy newest howitzers against Ukrainian forces - Rostec](https://news.yahoo.com/russia-deploy-newest-howitzers-close-042124390.html)
 <!-- feed end -->
 
 ### Onstream
