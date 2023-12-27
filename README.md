@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Top Netanyahu aide meets with Biden officials](https://news.yahoo.com/top-netanyahu-aide-meets-biden-003316350.html)
+- Dec 26 - [Woman paraded naked: A familiar headline in India](https://news.yahoo.com/woman-paraded-naked-familiar-headline-233153668.html)
+- Dec 26 - [Super Hornets Score Aerial Kills Over Red Sea](https://news.yahoo.com/super-hornets-score-aerial-kills-230616969.html)
 - Dec 26 - [Trump shares poll showing voters associate potential second term with "revenge"](https://news.yahoo.com/trump-shares-poll-showing-voters-230052465.html)
-- Dec 26 - [Fact Check: Closer Look: A Viral Pic of Donald Trump While in the Military Sure Looks Like AI](https://news.yahoo.com/fact-check-closer-look-viral-210900233.html)
-- Dec 26 - [14-year-old stomps on girl’s head in classroom, sending her to hospital, DE cops say](https://news.yahoo.com/14-old-stomps-girl-head-210017644.html)
-- Dec 26 - [Man charged after child attacked outside food truck](https://news.yahoo.com/man-charged-child-attacked-outside-205603203.html)
-- Dec 26 - [Biden Orders Airstrikes After American Soldiers Injured; Netanyahu Vows To Destroy Hamas; 2024 Polls](https://news.yahoo.com/biden-orders-airstrikes-american-soldiers-204100201.html)
+- Dec 26 - [Biden Orders Airstrikes After American Soldiers Injured; Netanyahu Vows To Destroy Hamas; 2024 Polls](https://news.yahoo.com/biden-orders-airstrikes-american-soldiers-223000164.html)
 <!-- feed end -->
 
 ### Onstream
