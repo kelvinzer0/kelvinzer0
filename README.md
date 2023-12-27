@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Man who stole live 50-pound tarpon from Bass Pro Shops yet to be found](https://sports.yahoo.com/man-stole-live-50-pound-163021414.html)
+- Dec 27 - [Russian mass surrender in Zaporizhzhya sector after inhumane treatment and heavy losses](https://news.yahoo.com/russian-mass-surrender-zaporizhzhya-sector-162900025.html)
+- Dec 27 - [Fake Trump Elector Said He Was ‘Betrayed’ by Michigan Officials in 2020](https://news.yahoo.com/fake-trump-elector-said-betrayed-160029471.html)
 - Dec 27 - [Prosecutors seek to bar Trump from injecting politics into federal election interference trial](https://news.yahoo.com/prosecutors-seek-bar-trump-injecting-155130428.html)
-- Dec 27 - [Citi names GM, Delta, KeyCorp as top stocks for 2024](https://finance.yahoo.com/video/citi-names-gm-delta-keycorp-153848163.html)
-- Dec 27 - [Hunter who bagged potential record deer under investigation](https://sports.yahoo.com/hunter-bagged-potential-record-deer-153102519.html)
-- Dec 27 - [Trump says he didn't know his immigration rhetoric echoes Hitler. That's part of a broader pattern](https://news.yahoo.com/trump-says-didnt-know-immigration-153005603.html)
-- Dec 27 - [Turkey's Erdogan says Israeli PM Netanyahu no different from Hitler](https://news.yahoo.com/turkeys-erdogan-says-israeli-pm-140552340.html)
+- Dec 27 - [What percentage of the US population is LGBTQ? New data shows which states have the most](https://news.yahoo.com/percentage-us-population-lgbtq-data-155038688.html)
 <!-- feed end -->
 
 ### Onstream
