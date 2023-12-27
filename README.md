@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [Russia warns Japan over providing Patriot air defence systems to Ukraine](https://news.yahoo.com/russia-warns-japan-over-providing-104446216.html)
+- Dec 27 - [A 6-year-old boy traveling alone for Christmas was put on the wrong Spirit flight](https://news.yahoo.com/6-old-boy-traveling-alone-103801855.html)
+- Dec 27 - [Fishermen investigating something shiny led to ‘miracle’ rescue of Indiana man trapped in crashed truck for days, police say](https://news.yahoo.com/fishermen-investigating-something-shiny-led-073014802.html)
 - Dec 27 - [She died weeks after fleeing the Maui wildfire. Her family fought to have her listed as a victim.](https://news.yahoo.com/she-died-weeks-fleeing-maui-060555426.html)
 - Dec 27 - [Russia to deploy newest howitzers against Ukrainian forces - Rostec](https://news.yahoo.com/russia-deploy-newest-howitzers-close-042124390.html)
-- Dec 27 - [‘Parasite’ Star Lee Sun-Kyun Cause Of Death Revealed](https://www.yahoo.com/entertainment/parasite-star-lee-sun-kyun-040138907.html)
-- Dec 27 - [Watch Ukraine blow up Russian ship in Crimea](https://news.yahoo.com/watch-ukraine-blow-russian-ship-010404314.html)
-- Dec 27 - [Russia's economy is paralyzed, and Putin's war machine survives on cannibalizing state-owned firms, Yale researchers say](https://finance.yahoo.com/news/russias-economy-paralyzed-putins-war-001648223.html)
 <!-- feed end -->
 
 ### Onstream
