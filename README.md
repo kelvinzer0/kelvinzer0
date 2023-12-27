@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 27 - [A woman who burned Wyoming's only full-service abortion clinic is ordered to pay $298,000](https://news.yahoo.com/woman-burned-wyomings-only-full-191900124.html)
 - Dec 27 - [Influencer Documented Husband’s Threats Before He Committed Murder-Suicide](https://www.yahoo.com/entertainment/influencer-documented-husband-threats-committed-190056782.html)
-- Dec 27 - [Russian celebs at 'almost naked' party stung by backlash](https://news.yahoo.com/russian-celebs-almost-naked-party-184420164.html)
+- Dec 27 - [‘That 70s Show’ Star Danny Masterson Prison Mugshot Revealed [PHOTO]](https://www.yahoo.com/entertainment/70s-show-star-danny-masterson-185304682.html)
+- Dec 27 - [California police can no longer ask you this at a traffic stop starting in 2024](https://news.yahoo.com/california-police-no-longer-ask-183023993.html)
 - Dec 27 - [Warren Buffett Had An Unconventional First Marriage — He Lived With Another Woman, And The Trio Sent Out Christmas Cards Every Year:  'Susie Put Me Together And Astrid Keeps Me Together'](https://finance.yahoo.com/news/warren-buffett-had-unconventional-first-183011661.html)
-- Dec 27 - [Aaron Carter’s Sister Bobbie Jean Carter Found Dead In A Bathroom](https://www.yahoo.com/entertainment/aaron-carter-sister-bobbie-jean-175658098.html)
 <!-- feed end -->
 
 ### Onstream
