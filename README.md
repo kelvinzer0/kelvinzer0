@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [Florida Couple Has Meltdown at Airport When Delayed Flight Prevents Them From Going Home to Their Dogs](https://www.yahoo.com/entertainment/florida-couple-meltdown-airport-delayed-182921054.html)
+- Dec 28 - [Federal judge accepts redrawn Georgia congressional and legislative districts that will favor GOP](https://news.yahoo.com/federal-judge-accepts-redrawn-georgia-181052533.html)
+- Dec 28 - ["That's just complete nonsense": George Conway clashes with CNN analyst on Trump ballot challenge](https://news.yahoo.com/thats-just-complete-nonsense-george-180424539.html)
 - Dec 28 - [Putin's rumored god-daughter is among Russian celebs doing damage control after a raunchy 'almost naked' party](https://www.yahoo.com/entertainment/putins-rumored-god-daughter-among-170109906.html)
 - Dec 28 - [Everglades snake and gator tried to eat each other. They exploded. See what happened](https://news.yahoo.com/everglades-snake-gator-tried-eat-162804584.html)
-- Dec 28 - [Rams Quarterback Matt Stafford Throws Down a Record $28 Million on an L.A. Estate](https://www.yahoo.com/lifestyle/rams-quarterback-matt-stafford-throws-160000971.html)
-- Dec 28 - [Scientists ID mystery killer of decapitated seals found on California beaches since 2016](https://www.yahoo.com/lifestyle/scientists-id-mystery-killer-decapitated-142745274.html)
-- Dec 28 - ['Almost Naked' Moscow party triggers conservative backlash](https://news.yahoo.com/almost-naked-moscow-party-triggers-141505081.html)
 <!-- feed end -->
 
 ### Onstream
