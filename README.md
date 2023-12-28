@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [Woman sues dentist after 4 root canals, 8 dental crowns and 20 fillings in a single visit](https://news.yahoo.com/woman-sues-dentist-4-root-202806428.html)
 - Dec 28 - [Jan. 6 rioter who was sentenced in secret provided information to authorities, court papers say](https://news.yahoo.com/jan-6-rioter-sentenced-secret-190758047.html)
+- Dec 28 - [10 predictions for 2024 — from Yahoo Finance readers](https://finance.yahoo.com/news/10-predictions-for-2024--from-yahoo-finance-readers-184211547.html)
 - Dec 28 - [Florida Couple Has Meltdown at Airport When Delayed Flight Prevents Them From Going Home to Their Dogs](https://www.yahoo.com/entertainment/florida-couple-meltdown-airport-delayed-182921054.html)
-- Dec 28 - [NRA fails to end New York probe, as trial nears](https://news.yahoo.com/nra-fails-end-york-probe-181333459.html)
 - Dec 28 - [Federal judge accepts redrawn Georgia congressional and legislative districts that will favor GOP](https://news.yahoo.com/federal-judge-accepts-redrawn-georgia-181052533.html)
-- Dec 28 - [Putin's rumored goddaughter is among Russian celebs doing damage control after a raunchy 'almost naked' party](https://news.yahoo.com/putins-rumored-god-daughter-among-170109906.html)
 <!-- feed end -->
 
 ### Onstream
