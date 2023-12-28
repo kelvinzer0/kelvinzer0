@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 28 - [9-year-old asks Nikki Haley if she would pardon former President Trump, ‘I would’](https://news.yahoo.com/9-old-asks-nikki-haley-213128128.html)
+- Dec 28 - ['I wished it had been me': Husband weeps after wife falls 70 feet off New York cliff](https://news.yahoo.com/wished-had-husband-weeps-wife-221601588.html)
+- Dec 28 - [Sanna Marin, the popular former prime minister of Finland, on Putin, powerful women and legislating in the age of AI](https://news.yahoo.com/sanna-marin-popular-former-prime-212813323.html)
 - Dec 28 - [Massive eagle nest spotted in West Texas amazes wildlife officials. ‘I mean golly’](https://news.yahoo.com/massive-eagle-nest-spotted-west-210838376.html)
 - Dec 28 - [Woman sues dentist after 4 root canals, 8 dental crowns and 20 fillings in a single visit](https://news.yahoo.com/woman-sues-dentist-4-root-202806428.html)
-- Dec 28 - [Jan. 6 rioter who was sentenced in secret provided information to authorities, court papers say](https://news.yahoo.com/jan-6-rioter-sentenced-secret-190758047.html)
-- Dec 28 - [Florida Couple Has Meltdown at Airport When Delayed Flight Prevents Them From Going Home to Their Dogs](https://www.yahoo.com/entertainment/florida-couple-meltdown-airport-delayed-182921054.html)
+- Dec 28 - [Putin ally dies falling from house window, latest in spate of mysterious Russian deaths](https://news.yahoo.com/putin-ally-dies-falling-house-195523933.html)
 <!-- feed end -->
 
 ### Onstream
