@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [How history, race and politics divide Tennessee on gun legislation](https://news.yahoo.com/history-race-politics-divide-tennessee-130444013.html)
+- Dec 28 - ['Stupidest thing I've ever heard': This 27-year-old spiritual coach is drowning in debt and can't control her spending while she gives life advice to others. Caleb Hammer sets her straight](https://finance.yahoo.com/news/stupidest-thing-ive-ever-heard-124500108.html)
+- Dec 28 - ['A giant fusion reactor in the sky': Elon Musk told Joe Rogan the whole US could be powered with 100 x 100 miles of solar — and it’s ‘not hard.’ 3 stocks to bet on that sunny outlook](https://finance.yahoo.com/news/giant-fusion-reactor-sky-elon-124500900.html)
 - Dec 28 - [Woman sues L.A., says her husband sent nude photos of her to co-workers. He's a cop. So is she](https://news.yahoo.com/woman-sues-l-says-her-120034503.html)
 - Dec 28 - [‘I have a duty to my family’: This golf superstar accepted $300M to play for the Saudi-backed LIV tour after saying he didn’t ‘play golf for the money.’ How much money is enough?](https://finance.yahoo.com/news/duty-family-golf-superstar-accepted-120000572.html)
-- Dec 28 - [Russian celebs are losing their jobs and one was jailed after attending a controversial 'almost naked' party](https://news.yahoo.com/russian-celebs-losing-jobs-one-113940813.html)
-- Dec 28 - [China's military lashes out at US after breakthrough talks](https://news.yahoo.com/chinas-military-lashes-us-breakthrough-104950036.html)
-- Dec 28 - [Joe Biden Has Blunt 4-Word Reply To Nikki Haley's Viral 'Civil War' Dodge](https://news.yahoo.com/joe-biden-blunt-4-word-102649671.html)
 <!-- feed end -->
 
 ### Onstream
