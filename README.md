@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [9-year-old asks Nikki Haley if she would pardon former President Trump, ‘I would’](https://news.yahoo.com/9-old-asks-nikki-haley-213128128.html)
+- Dec 28 - [Massive eagle nest spotted in West Texas amazes wildlife officials. ‘I mean golly’](https://news.yahoo.com/massive-eagle-nest-spotted-west-210838376.html)
 - Dec 28 - [Woman sues dentist after 4 root canals, 8 dental crowns and 20 fillings in a single visit](https://news.yahoo.com/woman-sues-dentist-4-root-202806428.html)
 - Dec 28 - [Jan. 6 rioter who was sentenced in secret provided information to authorities, court papers say](https://news.yahoo.com/jan-6-rioter-sentenced-secret-190758047.html)
-- Dec 28 - [10 predictions for 2024 — from Yahoo Finance readers](https://finance.yahoo.com/news/10-predictions-for-2024--from-yahoo-finance-readers-184211547.html)
 - Dec 28 - [Florida Couple Has Meltdown at Airport When Delayed Flight Prevents Them From Going Home to Their Dogs](https://www.yahoo.com/entertainment/florida-couple-meltdown-airport-delayed-182921054.html)
-- Dec 28 - [Federal judge accepts redrawn Georgia congressional and legislative districts that will favor GOP](https://news.yahoo.com/federal-judge-accepts-redrawn-georgia-181052533.html)
 <!-- feed end -->
 
 ### Onstream
