@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [Everglades snake and gator tried to eat each other. They exploded. See what happened](https://news.yahoo.com/everglades-snake-gator-tried-eat-162804584.html)
+- Dec 28 - [Why the most widely anticipated recession in history never came](https://finance.yahoo.com/news/why-the-most-widely-anticipated-recession-in-history-never-came-155724207.html)
 - Dec 28 - [US military's secretive X-37B spaceplane ready for launch to higher orbit](https://news.yahoo.com/us-militarys-secretive-x-37b-150309387.html)
-- Dec 28 - [Boeing urges 737 MAX inspections for possible loose bolt: FAA](https://finance.yahoo.com/news/boeing-urges-737-max-inspections-145136332.html)
+- Dec 28 - [Scientists ID mystery killer of decapitated seals found on California beaches since 2016](https://www.yahoo.com/lifestyle/scientists-id-mystery-killer-decapitated-142745274.html)
 - Dec 28 - ['Almost Naked' Moscow party triggers conservative backlash](https://news.yahoo.com/almost-naked-moscow-party-triggers-141505081.html)
-- Dec 28 - [76-year-old man finds wife battling attacker and he starts shooting, Florida cops say](https://news.yahoo.com/76-old-man-finds-wife-141106478.html)
-- Dec 28 - [Do I need to worry if I don't reach orgasm during sex?](https://www.yahoo.com/lifestyle/do-i-need-to-worry-if-i-dont-reach-orgasm-during-sex-140002338.html)
 <!-- feed end -->
 
 ### Onstream
