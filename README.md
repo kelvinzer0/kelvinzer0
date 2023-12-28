@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [Texas highway chase ends with police ripping apart truck's cab and pulling the driver out](https://news.yahoo.com/texas-highway-chase-ends-police-013936358.html)
+- Dec 28 - [Boebert switches congressional districts, avoiding a Democratic opponent who has far outraised her](https://finance.yahoo.com/news/boebert-switches-congressional-districts-avoiding-013621018.html)
+- Dec 28 - [The fish that eats piranhas for breakfast](https://news.yahoo.com/fish-eats-piranhas-breakfast-005322773.html)
+- Dec 28 - [Russian stars' semi-naked party sparks wartime backlash](https://news.yahoo.com/russian-stars-semi-naked-party-001543987.html)
 - Dec 27 - [Fishermen spotted something shiny near a creek. It was the first step toward a ‘miracle’](https://news.yahoo.com/fishermen-investigating-something-shiny-led-073014802.html)
-- Dec 27 - [GM sues San Francisco, seeking $121 million in back taxes, penalties](https://finance.yahoo.com/news/gm-sues-san-francisco-seeking-232410416.html)
-- Dec 27 - [Couple Dies in Head-on Collision on the Way to Share Pregnancy News With Family](https://www.yahoo.com/entertainment/couple-dies-head-collision-way-225327595.html)
-- Dec 27 - [Father says his daughter’s car is melting in the driveway. Honda says it’s not covered by warranty](https://news.yahoo.com/father-says-daughter-car-melting-221012733.html)
-- Dec 27 - [Charlie Sheen’s Alleged Attacker Pleads Not Guilty](https://news.yahoo.com/charlie-sheen-alleged-attacker-pleads-221541680.html)
 <!-- feed end -->
 
 ### Onstream
