@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [Jan. 6 rioter who was sentenced in secret provided information to authorities, court papers say](https://news.yahoo.com/jan-6-rioter-sentenced-secret-190758047.html)
 - Dec 28 - [Florida Couple Has Meltdown at Airport When Delayed Flight Prevents Them From Going Home to Their Dogs](https://www.yahoo.com/entertainment/florida-couple-meltdown-airport-delayed-182921054.html)
+- Dec 28 - [NRA fails to end New York probe, as trial nears](https://news.yahoo.com/nra-fails-end-york-probe-181333459.html)
 - Dec 28 - [Federal judge accepts redrawn Georgia congressional and legislative districts that will favor GOP](https://news.yahoo.com/federal-judge-accepts-redrawn-georgia-181052533.html)
-- Dec 28 - ["That's just complete nonsense": George Conway clashes with CNN analyst on Trump ballot challenge](https://news.yahoo.com/thats-just-complete-nonsense-george-180424539.html)
-- Dec 28 - [Putin's rumored god-daughter is among Russian celebs doing damage control after a raunchy 'almost naked' party](https://www.yahoo.com/entertainment/putins-rumored-god-daughter-among-170109906.html)
-- Dec 28 - [Everglades snake and gator tried to eat each other. They exploded. See what happened](https://news.yahoo.com/everglades-snake-gator-tried-eat-162804584.html)
+- Dec 28 - [Putin's rumored goddaughter is among Russian celebs doing damage control after a raunchy 'almost naked' party](https://news.yahoo.com/putins-rumored-god-daughter-among-170109906.html)
 <!-- feed end -->
 
 ### Onstream
