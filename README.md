@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [Joe Biden Has Blunt 4-Word Reply To Nikki Haley's Viral 'Civil War' Dodge](https://news.yahoo.com/joe-biden-blunt-4-word-102649671.html)
 - Dec 28 - [The fish that eats piranhas for breakfast](https://news.yahoo.com/fish-eats-piranhas-breakfast-005322773.html)
 - Dec 28 - [China urges regional alert as US military steps up forward deployment](https://news.yahoo.com/china-urges-regional-alert-us-082126315.html)
 - Dec 28 - [China says it won't turn a blind eye to Philippines' repeated 'provocations'](https://news.yahoo.com/china-says-wont-turn-blind-074654614.html)
-- Dec 28 - [Nikki Haley, asked what caused the Civil War, leaves out slavery. It's not the first time](https://news.yahoo.com/nikki-haley-asked-caused-civil-043220939.html)
-- Dec 28 - [Alaska Airlines cancels dozens of flights last minute, taking winning chance from local HS team](https://news.yahoo.com/alaska-airlines-cancels-dozens-flights-014801101.html)
+- Dec 28 - [The number of wounded Israeli soldiers is mounting, representing a hidden cost of war](https://news.yahoo.com/number-wounded-israeli-soldiers-mounting-050402294.html)
 <!-- feed end -->
 
 ### Onstream
