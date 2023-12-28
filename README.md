@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 27 - [Couple Robbed in Their Driveway After Going to Jewelry Store](https://news.yahoo.com/couple-robbed-driveway-going-jewelry-215202478.html)
-- Dec 27 - [The first EV with a lithium-free sodium battery hits the road in January](https://news.yahoo.com/the-first-ev-with-a-lithium-free-sodium-battery-hits-the-road-in-january-214828536.html)
-- Dec 27 - [North Korea's Kim orders military to accelerate war preparations -state media](https://news.yahoo.com/north-koreas-kim-orders-military-212946175.html)
-- Dec 27 - [Amazon faces backlash from users over upcoming change to Prime service](https://www.thestreet.com/retail/amazon-faces-backlash-from-users-over-upcoming-change-to-prime-service?puc=yahoo&cm_ven=YAHOO&yptr=yahoo)
-- Dec 27 - [Full Devastation From Cruise Missile Attack On Russian Ship Comes Into View](https://news.yahoo.com/full-devastation-cruise-missile-attack-195809136.html)
+- Dec 27 - [Fishermen spotted something shiny near a creek. It was the first step toward a ‘miracle’](https://news.yahoo.com/fishermen-investigating-something-shiny-led-073014802.html)
+- Dec 27 - [GM sues San Francisco, seeking $121 million in back taxes, penalties](https://finance.yahoo.com/news/gm-sues-san-francisco-seeking-232410416.html)
+- Dec 27 - [Couple Dies in Head-on Collision on the Way to Share Pregnancy News With Family](https://www.yahoo.com/entertainment/couple-dies-head-collision-way-225327595.html)
+- Dec 27 - [Father says his daughter’s car is melting in the driveway. Honda says it’s not covered by warranty](https://news.yahoo.com/father-says-daughter-car-melting-221012733.html)
+- Dec 27 - [Charlie Sheen’s Alleged Attacker Pleads Not Guilty](https://news.yahoo.com/charlie-sheen-alleged-attacker-pleads-221541680.html)
 <!-- feed end -->
 
 ### Onstream
