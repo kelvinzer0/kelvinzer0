@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 28 - [Alaska Airlines cancels dozens of flights last minute, taking winning chance from local HS team](https://news.yahoo.com/alaska-airlines-cancels-dozens-flights-014801101.html)
 - Dec 28 - [Texas highway chase ends with police ripping apart truck's cab and pulling the driver out](https://news.yahoo.com/texas-highway-chase-ends-police-013936358.html)
 - Dec 28 - [Boebert switches congressional districts, avoiding a Democratic opponent who has far outraised her](https://finance.yahoo.com/news/boebert-switches-congressional-districts-avoiding-013621018.html)
 - Dec 28 - [Massachusetts lottery winner chooses $390,000 over $25,000-per-year, for life](https://finance.yahoo.com/news/massachusetts-lottery-winner-chooses-390-011722769.html)
 - Dec 28 - [The fish that eats piranhas for breakfast](https://news.yahoo.com/fish-eats-piranhas-breakfast-005322773.html)
-- Dec 28 - [Russian stars' semi-naked party sparks wartime backlash](https://news.yahoo.com/russian-stars-semi-naked-party-001543987.html)
 <!-- feed end -->
 
 ### Onstream
