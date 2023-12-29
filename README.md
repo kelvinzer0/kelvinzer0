@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - [U.S. intelligence officials determined the Chinese spy balloon used a U.S. internet provider to communicate](https://news.yahoo.com/u-intelligence-officials-determined-chinese-012259529.html)
 - Dec 29 - [Ex-GOP lawmaker describes Trump as smelling like a mix of armpits, ketchup and a butt](https://news.yahoo.com/ex-gop-lawmaker-describes-trump-001102631.html)
 - Dec 28 - [Maine elections official disqualifies Trump from presidential primary ballot](https://news.yahoo.com/maine-elections-official-disqualifies-trump-235840247.html)
-- Dec 28 - [Maine bars Trump from ballot as US Supreme Court weighs state authority to block former president](https://news.yahoo.com/maine-bars-trump-ballot-us-235553694.html)
-- Dec 28 - ['I wished it had been me': Husband weeps after wife falls 70 feet off New York cliff](https://news.yahoo.com/wished-had-husband-weeps-wife-221601588.html)
-- Dec 28 - [Family says they warned police that man was dangerous](https://news.yahoo.com/family-says-warned-police-man-213509229.html)
+- Dec 28 - [Maine bars Trump from ballot as US Supreme Court weighs states' authority to block former president](https://news.yahoo.com/maine-bars-trump-ballot-us-235553694.html)
+- Dec 28 - [Woman sues West Jordan police alleging wrongful arrest while she was naked in hotel room](https://news.yahoo.com/woman-sues-west-jordan-police-230913550.html)
 <!-- feed end -->
 
 ### Onstream
