@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - [Reclusive L'Oréal heir, who plays piano for hours a day, becomes the first woman with a $100 billion fortune](https://news.yahoo.com/reclusive-lor-al-heir-plays-042914956.html)
+- Dec 29 - [Google agrees to settle $5 billion lawsuit accusing it of tracking Incognito users](https://news.yahoo.com/google-agrees-to-settle-5-billion-lawsuit-accusing-it-of-tracking-incognito-users-042435935.html)
 - Dec 29 - [Huge Wave Injures Several at California's Ventura Beach](https://news.yahoo.com/huge-wave-injures-several-californias-023151626.html)
 - Dec 29 - [‘I don’t have a choice to fall apart’: Mother of 7 grapples with loss of husband killed in carjacking spree](https://news.yahoo.com/don-t-choice-fall-apart-021730430.html)
 - Dec 29 - [Disturbing discoveries made in the stomachs of 2 snakes after rescue calls: ‘I tried to remove it, but it was not coming out easily’](https://news.yahoo.com/disturbing-discoveries-made-stomachs-2-013000556.html)
-- Dec 29 - [U.S. intelligence officials determined the Chinese spy balloon used a U.S. internet provider to communicate](https://news.yahoo.com/u-intelligence-officials-determined-chinese-012259529.html)
-- Dec 29 - [US military space plane blasts off on another secretive mission expected to last years](https://news.yahoo.com/us-military-space-plane-blasts-011649347.html)
 <!-- feed end -->
 
 ### Onstream
