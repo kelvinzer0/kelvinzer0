@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - [Gavin Newsom and Kimberly Guilfoyle were married for 5 years and once dubbed 'the new Kennedys.' Here's a timeline of their relationship.](https://news.yahoo.com/gavin-newsom-kimberly-guilfoyle-were-201428182.html)
+- Dec 29 - [The Biden administration once more bypasses Congress on an emergency weapons sale to Israel](https://news.yahoo.com/biden-administration-once-more-bypasses-200133481.html)
 - Dec 29 - [Former Trump ‘fixer’ Michael Cohen admits using Google Bard to cite bogus court cases](https://news.yahoo.com/former-trump-fixer-michael-cohen-admits-using-google-bard-to-cite-bogus-court-cases-184125792.html)
-- Dec 29 - [Argentina formally announces it won't join the BRICS alliance in Milei's latest policy shift](https://news.yahoo.com/argentina-formally-announces-wont-join-183426511.html)
 - Dec 29 - [California becomes first state to offer health insurance to all undocumented immigrants](https://news.yahoo.com/california-becomes-first-state-offer-182200584.html)
 - Dec 29 - [South Africa files genocide case against Israel at World Court](https://news.yahoo.com/south-africa-seeks-international-court-180807497.html)
-- Dec 29 - [China's $10 trillion hidden debt mountain could be the 'ticking time bomb' that Joe Biden warned of](https://finance.yahoo.com/news/chinas-10-trillion-hidden-debt-170001361.html)
 <!-- feed end -->
 
 ### Onstream
