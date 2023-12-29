@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [Russia fires 122 missiles and 36 drones in what Ukraine calls the biggest aerial barrage of the war](https://news.yahoo.com/russia-unleashes-one-years-biggest-084209242.html)
-- Dec 29 - [Video captures moment massive wave smashes into beach spectators northwest of Los Angeles](https://news.yahoo.com/video-captures-moment-massive-wave-052955326.html)
-- Dec 29 - [Haberman reveals how Trump is privately reacting to Maine ballot decision](https://news.yahoo.com/haberman-reveals-trump-reacting-maine-024735808.html)
+- Dec 29 - [Chris Christie Says This Is The Real Reason Behind Nikki Haley’s Civil War Response](https://news.yahoo.com/chris-christie-says-real-reason-122040337.html)
+- Dec 29 - [Watch: 8 hurt as massive wave smashes into beach spectators near Los Angeles](https://news.yahoo.com/video-captures-moment-massive-wave-052955326.html)
 - Dec 29 - [Reclusive L'Oréal heir, who plays piano for hours a day, becomes the first woman with a $100 billion fortune](https://news.yahoo.com/reclusive-lor-al-heir-plays-042914956.html)
 - Dec 29 - [Google agrees to settle $5 billion lawsuit accusing it of tracking Incognito users](https://news.yahoo.com/google-agrees-to-settle-5-billion-lawsuit-accusing-it-of-tracking-incognito-users-042435935.html)
+- Dec 29 - [‘I don’t have a choice to fall apart’: Mother of 7 grapples with loss of husband killed in Las Vegas carjacking spree](https://news.yahoo.com/don-t-choice-fall-apart-021730430.html)
 <!-- feed end -->
 
 ### Onstream
