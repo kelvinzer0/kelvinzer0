@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - ['I Gave It My All': Surfer Emerges From Water as 'Angry' Sea Batters San Diego Coast](https://news.yahoo.com/gave-surfer-emerges-water-angry-215115873.html)
+- Dec 29 - [48 human remains — some with sharpened teeth and modified skulls — found in Mexico](https://news.yahoo.com/48-human-remains-sharpened-teeth-223815072.html)
+- Dec 29 - [Hershey is sued over lack of artistic detail on Reese's candies](https://finance.yahoo.com/news/hershey-sued-over-lack-artistic-222018932.html)
 - Dec 29 - [Nebraska governor stands firm on rejection of federal money to feed food-insecure children](https://news.yahoo.com/nebraska-governor-stands-firm-rejection-213945647.html)
-- Dec 29 - [Maine secretary of state who opted to keep Trump off primary ballot is facing threat of impeachment](https://news.yahoo.com/trump-ballot-decision-leads-maine-212617358.html)
 - Dec 29 - [Former Trump officials warn of a White House return](https://news.yahoo.com/former-trump-officials-warn-white-211900315.html)
 - Dec 29 - [Gavin Newsom and Kimberly Guilfoyle were married for 5 years and once dubbed 'the new Kennedys.' Here's a timeline of their relationship.](https://news.yahoo.com/gavin-newsom-kimberly-guilfoyle-were-201428182.html)
 <!-- feed end -->
