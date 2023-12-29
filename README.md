@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - ["Desperate stunt": Republicans fume at Lauren Boebert for "seat shopping" after district swap](https://news.yahoo.com/desperate-stunt-republicans-fume-lauren-183026090.html)
+- Dec 29 - [Former Trump ‘fixer’ Michael Cohen admits using Google Bard to cite bogus court cases](https://news.yahoo.com/former-trump-fixer-michael-cohen-admits-using-google-bard-to-cite-bogus-court-cases-184125792.html)
+- Dec 29 - [Argentina formally announces it won't join the BRICS alliance in Milei's latest policy shift](https://news.yahoo.com/argentina-formally-announces-wont-join-183426511.html)
 - Dec 29 - [California becomes first state to offer health insurance to all undocumented immigrants](https://news.yahoo.com/california-becomes-first-state-offer-182200584.html)
-- Dec 29 - [South Africa seeks International Court of Justice genocide order against Israel](https://news.yahoo.com/south-africa-seeks-international-court-180807497.html)
+- Dec 29 - [South Africa files genocide case against Israel at World Court](https://news.yahoo.com/south-africa-seeks-international-court-180807497.html)
 - Dec 29 - [China's $10 trillion hidden debt mountain could be the 'ticking time bomb' that Joe Biden warned of](https://finance.yahoo.com/news/chinas-10-trillion-hidden-debt-170001361.html)
-- Dec 29 - [Florida Woman Files Lawsuit Against Hershey Company for $5 Billion, Alleges False Advertising](https://www.yahoo.com/entertainment/florida-woman-files-lawsuit-against-165404050.html)
 <!-- feed end -->
 
 ### Onstream
