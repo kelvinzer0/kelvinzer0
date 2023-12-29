@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [U.S. intelligence officials determined the Chinese spy balloon used a U.S. internet provider to communicate](https://news.yahoo.com/u-intelligence-officials-determined-chinese-012259529.html)
+- Dec 29 - [Former NATO commander reckons that China won't be ready for a war with the US 'for about 10 years'](https://news.yahoo.com/former-nato-commander-reckons-china-030703036.html)
+- Dec 29 - [Disturbing discoveries made in the stomachs of 2 snakes after rescue calls: ‘I tried to remove it, but it was not coming out easily’](https://news.yahoo.com/disturbing-discoveries-made-stomachs-2-013000556.html)
 - Dec 29 - [US military space plane blasts off on another secretive mission expected to last years](https://news.yahoo.com/us-military-space-plane-blasts-011649347.html)
 - Dec 29 - [Ex-GOP lawmaker describes Trump as smelling like a mix of armpits, ketchup and a butt](https://news.yahoo.com/ex-gop-lawmaker-describes-trump-001102631.html)
 - Dec 28 - [Maine elections official disqualifies Trump from presidential primary ballot](https://news.yahoo.com/maine-elections-official-disqualifies-trump-235840247.html)
-- Dec 28 - [Maine bars Trump from ballot as US Supreme Court weighs states' authority to block former president](https://news.yahoo.com/maine-bars-trump-ballot-us-235553694.html)
 <!-- feed end -->
 
 ### Onstream
