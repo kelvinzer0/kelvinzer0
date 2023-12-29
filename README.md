@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - [MAGA meltdown as Trump sics Truth Social fans on Maine secretary of state who booted him off ballot](https://news.yahoo.com/maga-meltdown-trump-sics-truth-140823858.html)
 - Dec 29 - [Hamas used horrific sexual violence, raping and mutilating Israeli women and girls on October 7: NYT](https://news.yahoo.com/hamas-used-horrific-sexual-violence-131412847.html)
 - Dec 29 - [It took years for truth about election 'audit' to emerge. Why The Arizona Republic kept fighting](https://news.yahoo.com/took-years-truth-election-audit-130220646.html)
 - Dec 29 - [Here are some of the wildest things caught on doorbell cameras in 2023](https://news.yahoo.com/doorbell-cameras-videos-2023-year-in-review-130042066.html)
 - Dec 29 - [Security Guard Police Impersonator Allegedly Tries Pulling Over A Police Captain](https://news.yahoo.com/security-guard-police-impersonator-allegedly-130000821.html)
-- Dec 29 - [Flaming Russian missile crashes into Kyiv high-rise apartment in early morning – shocking video](https://news.yahoo.com/flaming-russian-missile-crashes-kyiv-124900393.html)
 <!-- feed end -->
 
 ### Onstream
