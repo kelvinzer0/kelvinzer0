@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [Chris Christie Says This Is The Real Reason Behind Nikki Haley’s Civil War Response](https://news.yahoo.com/chris-christie-says-real-reason-122040337.html)
-- Dec 29 - [Watch: 8 hurt as massive wave smashes into beach spectators near Los Angeles](https://news.yahoo.com/video-captures-moment-massive-wave-052955326.html)
-- Dec 29 - [Reclusive L'Oréal heir, who plays piano for hours a day, becomes the first woman with a $100 billion fortune](https://news.yahoo.com/reclusive-lor-al-heir-plays-042914956.html)
-- Dec 29 - [Google agrees to settle $5 billion lawsuit accusing it of tracking Incognito users](https://news.yahoo.com/google-agrees-to-settle-5-billion-lawsuit-accusing-it-of-tracking-incognito-users-042435935.html)
-- Dec 29 - [‘I don’t have a choice to fall apart’: Mother of 7 grapples with loss of husband killed in Las Vegas carjacking spree](https://news.yahoo.com/don-t-choice-fall-apart-021730430.html)
+- Dec 29 - [Hamas used horrific sexual violence, raping and mutilating Israeli women and girls on October 7: NYT](https://news.yahoo.com/hamas-used-horrific-sexual-violence-131412847.html)
+- Dec 29 - [It took years for truth about election 'audit' to emerge. Why The Arizona Republic kept fighting](https://news.yahoo.com/took-years-truth-election-audit-130220646.html)
+- Dec 29 - [Here are some of the wildest things caught on doorbell cameras in 2023](https://news.yahoo.com/doorbell-cameras-videos-2023-year-in-review-130042066.html)
+- Dec 29 - [Security Guard Police Impersonator Allegedly Tries Pulling Over A Police Captain](https://news.yahoo.com/security-guard-police-impersonator-allegedly-130000821.html)
+- Dec 29 - [Flaming Russian missile crashes into Kyiv high-rise apartment in early morning – shocking video](https://news.yahoo.com/flaming-russian-missile-crashes-kyiv-124900393.html)
 <!-- feed end -->
 
 ### Onstream
