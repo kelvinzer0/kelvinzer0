@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 29 - [MAGA meltdown as Trump sics Truth Social fans on Maine secretary of state who booted him off ballot](https://news.yahoo.com/maga-meltdown-trump-sics-truth-140823858.html)
+- Dec 29 - [Mexican farmers who killed 10 cartel members with sickles and shotguns ‘acted in self-defence’](https://news.yahoo.com/mexican-farmers-killed-10-cartel-155002412.html)
+- Dec 29 - [Here's the first Tesla Cybertruck crash on a public road](https://www.autoblog.com/2023/12/29/tesla-cybertruck-crash-first-in-public/)
+- Dec 29 - [Farmer hits ‘rock’ while plowing — and finds unusual World War II artifact in Slovakia](https://news.yahoo.com/farmer-hits-rock-while-plowing-152918381.html)
+- Dec 29 - [John Dean: ‘Trump’s in trouble’ after Maine ruling](https://news.yahoo.com/john-dean-trump-trouble-maine-143804768.html)
 - Dec 29 - [Hamas used horrific sexual violence, raping and mutilating Israeli women and girls on October 7: NYT](https://news.yahoo.com/hamas-used-horrific-sexual-violence-131412847.html)
-- Dec 29 - [It took years for truth about election 'audit' to emerge. Why The Arizona Republic kept fighting](https://news.yahoo.com/took-years-truth-election-audit-130220646.html)
-- Dec 29 - [Here are some of the wildest things caught on doorbell cameras in 2023](https://news.yahoo.com/doorbell-cameras-videos-2023-year-in-review-130042066.html)
-- Dec 29 - [Security Guard Police Impersonator Allegedly Tries Pulling Over A Police Captain](https://news.yahoo.com/security-guard-police-impersonator-allegedly-130000821.html)
 <!-- feed end -->
 
 ### Onstream
