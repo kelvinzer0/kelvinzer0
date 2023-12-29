@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 29 - [Mexican farmers who killed 10 cartel members with sickles and shotguns ‘acted in self-defence’](https://news.yahoo.com/mexican-farmers-killed-10-cartel-155002412.html)
 - Dec 29 - [Here's the first Tesla Cybertruck crash on a public road](https://www.autoblog.com/2023/12/29/tesla-cybertruck-crash-first-in-public/)
 - Dec 29 - [Farmer hits ‘rock’ while plowing — and finds unusual World War II artifact in Slovakia](https://news.yahoo.com/farmer-hits-rock-while-plowing-152918381.html)
+- Dec 29 - [Texas police release new footage in murder investigation of pregnant woman, boyfriend](https://news.yahoo.com/texas-police-release-footage-murder-151123325.html)
 - Dec 29 - [John Dean: ‘Trump’s in trouble’ after Maine ruling](https://news.yahoo.com/john-dean-trump-trouble-maine-143804768.html)
-- Dec 29 - [Hamas used horrific sexual violence, raping and mutilating Israeli women and girls on October 7: NYT](https://news.yahoo.com/hamas-used-horrific-sexual-violence-131412847.html)
 <!-- feed end -->
 
 ### Onstream
