@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - ["Desperate stunt": Republicans fume at Lauren Boebert for "seat shopping" after district swap](https://news.yahoo.com/desperate-stunt-republicans-fume-lauren-183026090.html)
+- Dec 29 - [California becomes first state to offer health insurance to all undocumented immigrants](https://news.yahoo.com/california-becomes-first-state-offer-182200584.html)
+- Dec 29 - [South Africa seeks International Court of Justice genocide order against Israel](https://news.yahoo.com/south-africa-seeks-international-court-180807497.html)
 - Dec 29 - [China's $10 trillion hidden debt mountain could be the 'ticking time bomb' that Joe Biden warned of](https://finance.yahoo.com/news/chinas-10-trillion-hidden-debt-170001361.html)
 - Dec 29 - [Florida Woman Files Lawsuit Against Hershey Company for $5 Billion, Alleges False Advertising](https://www.yahoo.com/entertainment/florida-woman-files-lawsuit-against-165404050.html)
-- Dec 29 - [Civil rights leader removed from movie theater for using his own chair](https://news.yahoo.com/civil-rights-leader-removed-movie-163559028.html)
-- Dec 29 - [Mexican farmers who killed 10 cartel members with sickles and shotguns ‘acted in self-defence’](https://news.yahoo.com/mexican-farmers-killed-10-cartel-155002412.html)
-- Dec 29 - [Here's the first Tesla Cybertruck crash on a public road](https://www.autoblog.com/2023/12/29/tesla-cybertruck-crash-first-in-public/)
 <!-- feed end -->
 
 ### Onstream
