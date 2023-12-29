@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 29 - [Ex-GOP lawmaker describes Trump as smelling like a mix of armpits, ketchup and a butt](https://news.yahoo.com/ex-gop-lawmaker-describes-trump-001102631.html)
+- Dec 28 - [Maine elections official disqualifies Trump from presidential primary ballot](https://news.yahoo.com/maine-elections-official-disqualifies-trump-235840247.html)
+- Dec 28 - [Maine bars Trump from ballot as US Supreme Court weighs state authority to block former president](https://news.yahoo.com/maine-bars-trump-ballot-us-235553694.html)
 - Dec 28 - ['I wished it had been me': Husband weeps after wife falls 70 feet off New York cliff](https://news.yahoo.com/wished-had-husband-weeps-wife-221601588.html)
-- Dec 28 - [Sanna Marin, the popular former prime minister of Finland, on Putin, powerful women and legislating in the age of AI](https://news.yahoo.com/sanna-marin-popular-former-prime-212813323.html)
-- Dec 28 - [Massive eagle nest spotted in West Texas amazes wildlife officials. ‘I mean golly’](https://news.yahoo.com/massive-eagle-nest-spotted-west-210838376.html)
-- Dec 28 - [Woman sues dentist after 4 root canals, 8 dental crowns and 20 fillings in a single visit](https://news.yahoo.com/woman-sues-dentist-4-root-202806428.html)
-- Dec 28 - [Putin ally dies falling from house window, latest in spate of mysterious Russian deaths](https://news.yahoo.com/putin-ally-dies-falling-house-195523933.html)
+- Dec 28 - [Family says they warned police that man was dangerous](https://news.yahoo.com/family-says-warned-police-man-213509229.html)
 <!-- feed end -->
 
 ### Onstream
