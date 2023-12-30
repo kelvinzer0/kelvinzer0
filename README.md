@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Dec 30 - [Vivek Ramaswamy explains the cause of the Civil War at a rally amid Nikki Haley blowback](https://news.yahoo.com/vivek-ramaswamy-explains-cause-civil-002301812.html)
 - Dec 30 - [Fighting between Israeli forces and Hamas rages after nearly 200 killed in Gaza](https://news.yahoo.com/fighting-between-israeli-forces-hamas-000705622.html)
 - Dec 29 - [Sam Bankman-Fried will not face a second trial](https://www.yahoo.com/tech/sam-bankman-fried-not-face-233911910.html)
-- Dec 29 - [Girlfriend meets police to get lost wallet — then has surprise of a lifetime in Florida](https://news.yahoo.com/girlfriend-meets-police-lost-wallet-230554597.html)
+- Dec 29 - [5 arrested in illegal casino, prostitution operation in San Jose](https://news.yahoo.com/5-arrested-illegal-casino-prostitution-233112366.html)
 <!-- feed end -->
 
 ### Onstream
