@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 30 - [Hamas is succeeding at playing the West for fools](https://news.yahoo.com/hamas-succeeding-playing-west-fools-152008989.html)
-- Dec 30 - [Latest victim of ‘crocodile attack capital of the world’ says screwdriver saved his life](https://news.yahoo.com/latest-victim-crocodile-attack-capital-142216272.html)
-- Dec 30 - [This winter, Idaho’s drivers will be a little safer thanks to a genius invention — and soon, it may be used by ‘transit agencies all throughout the country’](https://news.yahoo.com/winter-idaho-drivers-little-safer-140000887.html)
-- Dec 30 - [Ukraine launches widespread drone attack on military facilities across Russia](https://news.yahoo.com/ukraine-launches-widespread-drone-attack-132500196.html)
-- Dec 30 - [Ohio prosecutor warns robbers should 'expect to be shot' after store manager charged in killing](https://news.yahoo.com/ohio-prosecutor-warns-robbers-expect-130038848.html)
+- Dec 30 - [Large numbers of Americans want a strong, rough, anti-democratic leader](https://news.yahoo.com/large-numbers-americans-want-strong-133349404.html)
+- Dec 30 - [Girl, 12, nabbed for chucking debris from Times Square hotel window: police](https://news.yahoo.com/girl-12-nabbed-chucking-debris-151500835.html)
+- Dec 30 - [New York City to utilize 8,500 acres of parking lots for incredible new initiative: ‘A bold step forward’](https://news.yahoo.com/york-city-utilize-8-500-150000898.html)
+- Dec 30 - [Chipotle worker beaten by furious customers upset over extra chicken charge: police](https://news.yahoo.com/chipotle-worker-beaten-furious-customers-143747029.html)
 <!-- feed end -->
 
 ### Onstream
