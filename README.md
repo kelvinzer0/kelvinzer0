@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 30 - [After 3 generations, family sells longtime North Carolina mountain resort for $15 million](https://news.yahoo.com/3-generations-family-sells-longtime-204622187.html)
 - Dec 30 - [Cargo ship carrying burning lithium-ion batteries reaches Alaska, but kept offshore for safety](https://finance.yahoo.com/news/cargo-ship-carrying-burning-lithium-202847259.html)
-- Dec 30 - [Massachusetts deputy fire chief killed after shooting police officer](https://news.yahoo.com/massachusetts-deputy-fire-chief-killed-202159972.html)
-- Dec 30 - [US urges appeals court to reject Trump immunity claim in 2020 election case](https://news.yahoo.com/us-urges-appeals-court-reject-201507526.html)
 - Dec 30 - [Pastor Allegedly Tried to Deep-Fry McDonald's Cook After He 'Disrespected' His Wife](https://www.yahoo.com/entertainment/pastor-allegedly-tried-deep-fry-191656540.html)
 - Dec 30 - [Israeli ex-hostage says she feared being raped by Gaza captor](https://news.yahoo.com/israeli-ex-hostage-says-she-182059430.html)
+- Dec 30 - [New Hampshire casino to shut down for 6 months, could re-open if sold by owner accused of fraud](https://news.yahoo.com/hampshire-casino-shut-down-6-175610666.html)
 <!-- feed end -->
 
 ### Onstream
