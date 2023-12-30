@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 30 - [Pastor Allegedly Tried to Deep-Fry McDonald's Cook After He 'Disrespected' His Wife](https://www.yahoo.com/entertainment/pastor-allegedly-tried-deep-fry-191656540.html)
 - Dec 30 - [Israeli ex-hostage says she feared being raped by Gaza captor](https://news.yahoo.com/israeli-ex-hostage-says-she-182059430.html)
 - Dec 30 - [Mark Zuckerberg Is Reportedly Building an Underground Bunker in Hawaii. Here's What to Know](https://finance.yahoo.com/news/mark-zuckerberg-reportedly-building-underground-152702098.html)
+- Dec 30 - [New Hampshire casino to shut down for 6 months, could re-open if sold by owner accused of fraud](https://news.yahoo.com/hampshire-casino-shut-down-6-175610666.html)
 - Dec 30 - [Hamas is succeeding at playing the West for fools](https://news.yahoo.com/hamas-succeeding-playing-west-fools-152008989.html)
-- Dec 30 - [Large numbers of Americans want a strong, rough, anti-democratic leader](https://news.yahoo.com/large-numbers-americans-want-strong-133349404.html)
-- Dec 30 - [Girl, 12, nabbed for chucking debris from Times Square hotel window: police](https://news.yahoo.com/girl-12-nabbed-chucking-debris-151500835.html)
 <!-- feed end -->
 
 ### Onstream
