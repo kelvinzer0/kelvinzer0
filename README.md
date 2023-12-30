@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 30 - [The Downsides of Retirement That Nobody Talks About](https://finance.yahoo.com/news/downsides-retirement-nobody-talks-190008190.html)
+- Dec 30 - [‘Substantial amount’ of fentanyl gets smuggled through legal trade, report argues](https://finance.yahoo.com/news/substantial-amount-of-fentanyl-gets-smuggled-through-legal-trade-report-argues-130055458.html)
+- Dec 30 - ['Justification, justification, justification': This Connecticut physician leases a Toyota RAV4 with a $718/month payment — insists she 'needs' an SUV for the snow. Caleb Hammer responds](https://finance.yahoo.com/news/justification-justification-justification-connecticut-physician-130000175.html)
+- Dec 30 - [Legend Motor's Signature Series 001 enters the Defender ring](https://www.autoblog.com/2023/12/30/legend-motors-signature-series-001-enters-the-defender-ring/)
 - Dec 30 - ['I believe in this': A 52-year-old Austin man says he has no retirement savings and $50K-$60K in bad debt — and now he seems to be stuck in a pyramid scheme. Here's the reality check he got](https://finance.yahoo.com/news/believe-52-old-austin-man-110000882.html)
-- Dec 30 - [Marjorie Taylor Greene creates multiple headaches for new Speaker](https://news.yahoo.com/marjorie-taylor-greene-creates-multiple-110000737.html)
-- Dec 30 - [A Very Big Change Is Coming to Social Security in 2024 -- and It Will Impact You Even if You Aren't Getting Benefits](https://finance.yahoo.com/news/very-big-change-coming-social-100200551.html)
-- Dec 30 - [Man makes ancient discovery near one of the busiest highways in North America: ‘You have got to be kidding’](https://www.yahoo.com/lifestyle/man-makes-ancient-discovery-near-033000949.html)
-- Dec 30 - [10-day waiting period to purchase a firearm starts Monday](https://news.yahoo.com/10-day-waiting-period-purchase-025152347.html)
 <!-- feed end -->
 
 ### Onstream
