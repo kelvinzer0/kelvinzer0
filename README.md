@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 30 - [Vivek Ramaswamy explains the cause of the Civil War at a rally amid Nikki Haley blowback](https://news.yahoo.com/vivek-ramaswamy-explains-cause-civil-002301812.html)
+- Dec 30 - [Fighting between Israeli forces and Hamas rages after nearly 200 killed in Gaza](https://news.yahoo.com/fighting-between-israeli-forces-hamas-000705622.html)
 - Dec 29 - [Sam Bankman-Fried will not face a second trial](https://www.yahoo.com/tech/sam-bankman-fried-not-face-233911910.html)
 - Dec 29 - [Girlfriend meets police to get lost wallet — then has surprise of a lifetime in Florida](https://news.yahoo.com/girlfriend-meets-police-lost-wallet-230554597.html)
 - Dec 29 - [L.A. hospital looking to ID patient who speaks unknown language](https://news.yahoo.com/l-hospital-looking-id-patient-230453571.html)
-- Dec 29 - [Nebraska governor stands firm on rejection of federal money to feed food-insecure children](https://news.yahoo.com/nebraska-governor-stands-firm-rejection-213945647.html)
 <!-- feed end -->
 
 ### Onstream
