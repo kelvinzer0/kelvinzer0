@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 30 - [Man makes ancient discovery near one of the busiest highways in North America: ‘You have got to be kidding’](https://www.yahoo.com/lifestyle/man-makes-ancient-discovery-near-033000949.html)
 - Dec 30 - [10-day waiting period to purchase a firearm starts Monday](https://news.yahoo.com/10-day-waiting-period-purchase-025152347.html)
 - Dec 30 - [Vivek Ramaswamy explains the cause of the Civil War at a rally amid Nikki Haley blowback](https://news.yahoo.com/vivek-ramaswamy-explains-cause-civil-002301812.html)
-- Dec 30 - [Fighting between Israeli forces and Hamas rages after nearly 200 killed in Gaza](https://news.yahoo.com/fighting-between-israeli-forces-hamas-000705622.html)
-- Dec 29 - [5 arrested in illegal casino, prostitution operation in San Jose](https://news.yahoo.com/5-arrested-illegal-casino-prostitution-233112366.html)
+- Dec 30 - [Israel pushes deeper into Gaza camps, 12 weeks into war](https://news.yahoo.com/fighting-between-israeli-forces-hamas-000705622.html)
+- Dec 29 - [Sam Bankman-Fried will not face a second trial](https://www.yahoo.com/tech/sam-bankman-fried-not-face-233911910.html)
 <!-- feed end -->
 
 ### Onstream
