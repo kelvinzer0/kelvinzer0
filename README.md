@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 30 - [Hamas is succeeding at playing the West for fools](https://news.yahoo.com/hamas-succeeding-playing-west-fools-152008989.html)
 - Dec 30 - [Latest victim of ‘crocodile attack capital of the world’ says screwdriver saved his life](https://news.yahoo.com/latest-victim-crocodile-attack-capital-142216272.html)
-- Dec 30 - ['Justification, justification, justification': This Connecticut physician leases a Toyota RAV4 with a $718/month payment — insists she 'needs' an SUV for the snow. Caleb Hammer responds](https://finance.yahoo.com/news/justification-justification-justification-connecticut-physician-130000175.html)
-- Dec 30 - ['I believe in this': A 52-year-old Austin man says he has no retirement savings and $50K-$60K in bad debt — and now he seems to be stuck in a pyramid scheme. Here's the reality check he got](https://finance.yahoo.com/news/believe-52-old-austin-man-110000882.html)
-- Dec 30 - [A Very Big Change Is Coming to Social Security in 2024 -- and It Will Impact You Even if You Aren't Getting Benefits](https://finance.yahoo.com/news/very-big-change-coming-social-100200551.html)
-- Dec 30 - [States set to enact new laws on guns, pornography, taxes and even fuzzy dice](https://news.yahoo.com/states-set-enact-laws-guns-050712932.html)
+- Dec 30 - [This winter, Idaho’s drivers will be a little safer thanks to a genius invention — and soon, it may be used by ‘transit agencies all throughout the country’](https://news.yahoo.com/winter-idaho-drivers-little-safer-140000887.html)
+- Dec 30 - [Ukraine launches widespread drone attack on military facilities across Russia](https://news.yahoo.com/ukraine-launches-widespread-drone-attack-132500196.html)
+- Dec 30 - [Ohio prosecutor warns robbers should 'expect to be shot' after store manager charged in killing](https://news.yahoo.com/ohio-prosecutor-warns-robbers-expect-130038848.html)
 <!-- feed end -->
 
 ### Onstream
