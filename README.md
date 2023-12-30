@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 30 - [Israeli ex-hostage says she feared being raped by Gaza captor](https://news.yahoo.com/israeli-ex-hostage-says-she-182059430.html)
 - Dec 30 - [Mark Zuckerberg Is Reportedly Building an Underground Bunker in Hawaii. Here's What to Know](https://finance.yahoo.com/news/mark-zuckerberg-reportedly-building-underground-152702098.html)
 - Dec 30 - [Hamas is succeeding at playing the West for fools](https://news.yahoo.com/hamas-succeeding-playing-west-fools-152008989.html)
+- Dec 30 - [Large numbers of Americans want a strong, rough, anti-democratic leader](https://news.yahoo.com/large-numbers-americans-want-strong-133349404.html)
 - Dec 30 - [Girl, 12, nabbed for chucking debris from Times Square hotel window: police](https://news.yahoo.com/girl-12-nabbed-chucking-debris-151500835.html)
-- Dec 30 - [New York City to utilize 8,500 acres of parking lots for incredible new initiative: ‘A bold step forward’](https://news.yahoo.com/york-city-utilize-8-500-150000898.html)
-- Dec 30 - [Chipotle worker beaten by furious customers upset over extra chicken charge: police](https://news.yahoo.com/chipotle-worker-beaten-furious-customers-143747029.html)
 <!-- feed end -->
 
 ### Onstream
