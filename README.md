@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 31 - ['A get rich path': Billionaire Mark Cuban says if you really want to be rich, do these two things now — but here's where his advice falls short](https://finance.yahoo.com/news/rich-path-billionaire-mark-cuban-120000498.html)
+- Dec 31 - [‘Collecting degrees like a thermometer’: This Atlanta woman has 3 different degrees, $311K in student debt — but refuses to use her law schooling to earn more money. Dave Ramsey responds](https://finance.yahoo.com/news/collecting-degrees-thermometer-atlanta-woman-110000419.html)
+- Dec 31 - [They came to Canada for their dreams. Instead they found a mental health nightmare](https://news.yahoo.com/came-canada-dreams-instead-found-100000848.html)
+- Dec 31 - [Former FBI agent recalls the one serial killer who left her ‘shaken’: ‘He just didn’t seem human’](https://news.yahoo.com/former-fbi-agent-recalls-one-090028945.html)
 - Dec 31 - [Video shows alarming decision from tourist during bison traffic jam at national park: ‘The bison were even stunned’](https://www.yahoo.com/lifestyle/video-shows-alarming-decision-tourist-030000358.html)
-- Dec 31 - [Scientists make stunning discovery in remote forest: ‘There are no others that have had the opportunity to live so long’](https://news.yahoo.com/scientists-stunning-discovery-remote-forest-010000780.html)
-- Dec 31 - [Protestors jump on cars and shut down Lafayette Road for hours](https://news.yahoo.com/protestors-jump-cars-shut-down-003214671.html)
-- Dec 31 - [Tesla dashcam footage sparks fury online after capturing act of vandalism: ‘Can people just leave other people’s property alone?’](https://www.yahoo.com/lifestyle/tesla-dashcam-footage-sparks-fury-000000187.html)
-- Dec 30 - [Gypsy Rose Blanchard Has Been Ordered to Leave the State of Missouri by Her Parole Officer](https://www.yahoo.com/entertainment/gypsy-rose-blanchard-ordered-leave-230842438.html)
 <!-- feed end -->
 
 ### Onstream
