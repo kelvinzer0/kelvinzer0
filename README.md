@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Dec 31 - [Scientists make stunning discovery in remote forest: ‘There are no others that have had the opportunity to live so long’](https://news.yahoo.com/scientists-stunning-discovery-remote-forest-010000780.html)
 - Dec 31 - [Protestors jump on cars and shut down Lafayette Road for hours](https://news.yahoo.com/protestors-jump-cars-shut-down-003214671.html)
 - Dec 31 - [Tesla dashcam footage sparks fury online after capturing act of vandalism: ‘Can people just leave other people’s property alone?’](https://www.yahoo.com/lifestyle/tesla-dashcam-footage-sparks-fury-000000187.html)
-- Dec 30 - [Former top Obama adviser says if Trump prevented from running it ‘would rip the country apart'](https://news.yahoo.com/former-top-obama-adviser-says-235402057.html)
 - Dec 30 - [Gypsy Rose Blanchard Has Been Ordered to Leave the State of Missouri by Her Parole Officer](https://www.yahoo.com/entertainment/gypsy-rose-blanchard-ordered-leave-230842438.html)
+- Dec 30 - [Florida authorities arrest suspect after Walmart attempted child kidnapping incident](https://news.yahoo.com/florida-authorities-arrest-suspect-walmart-212159791.html)
 <!-- feed end -->
 
 ### Onstream
