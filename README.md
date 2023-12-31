@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 31 - [‘I had my drink spiked and was raped – the crime needs its own law to protect victims like me’](https://news.yahoo.com/had-drink-spiked-raped-crime-170000831.html)
+- Dec 31 - [Israeli minister repeats call for Palestinians to leave Gaza](https://news.yahoo.com/israeli-minister-repeats-call-palestinians-164745769.html)
 - Dec 31 - [Melania Trump Reportedly Gave Permission to Post Holiday Photo for 1 Parental Reason](https://www.yahoo.com/lifestyle/melania-trump-reportedly-gave-permission-164500872.html)
 - Dec 31 - [US Navy helicopters kill Iran-backed Houthi fighters attempting to board a cargo ship in Red Sea](https://news.yahoo.com/us-navy-helicopters-kill-iran-114940990.html)
 - Dec 31 - [Mutiny Erupts in a Michigan GOP Overtaken by Chaos](https://news.yahoo.com/mutiny-erupts-michigan-gop-overtaken-153605170.html)
-- Dec 31 - [Kim Jong-Un orders military chiefs to plan nuclear strike against South Korea](https://news.yahoo.com/kim-jong-un-orders-military-153440102.html)
-- Dec 31 - [Missing Kids Who Were Found Alive Years Later](https://news.yahoo.com/missing-kids-were-found-alive-150054354.html)
 <!-- feed end -->
 
 ### Onstream
