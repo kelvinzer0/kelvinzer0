@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 31 - [Doorbell camera shows blazing meteor in England](https://news.yahoo.com/doorbell-camera-shows-blazing-meteor-082042821.html)
 - Dec 31 - [Video shows alarming decision from tourist during bison traffic jam at national park: ‘The bison were even stunned’](https://www.yahoo.com/lifestyle/video-shows-alarming-decision-tourist-030000358.html)
 - Dec 31 - [Scientists make stunning discovery in remote forest: ‘There are no others that have had the opportunity to live so long’](https://news.yahoo.com/scientists-stunning-discovery-remote-forest-010000780.html)
 - Dec 31 - [Protestors jump on cars and shut down Lafayette Road for hours](https://news.yahoo.com/protestors-jump-cars-shut-down-003214671.html)
 - Dec 31 - [Tesla dashcam footage sparks fury online after capturing act of vandalism: ‘Can people just leave other people’s property alone?’](https://www.yahoo.com/lifestyle/tesla-dashcam-footage-sparks-fury-000000187.html)
-- Dec 30 - [After 3 generations, family sells longtime North Carolina mountain resort for $15 million](https://news.yahoo.com/3-generations-family-sells-longtime-204622187.html)
 <!-- feed end -->
 
 ### Onstream
