@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Dec 31 - [‘I had my drink spiked and was raped – the crime needs its own law to protect victims like me’](https://news.yahoo.com/had-drink-spiked-raped-crime-170000831.html)
-- Dec 31 - [Israeli minister repeats call for Palestinians to leave Gaza](https://news.yahoo.com/israeli-minister-repeats-call-palestinians-164745769.html)
-- Dec 31 - [Melania Trump Reportedly Gave Permission to Post Holiday Photo for 1 Parental Reason](https://www.yahoo.com/lifestyle/melania-trump-reportedly-gave-permission-164500872.html)
-- Dec 31 - [US Navy helicopters kill Iran-backed Houthi fighters attempting to board a cargo ship in Red Sea](https://news.yahoo.com/us-navy-helicopters-kill-iran-114940990.html)
-- Dec 31 - [Mutiny Erupts in a Michigan GOP Overtaken by Chaos](https://news.yahoo.com/mutiny-erupts-michigan-gop-overtaken-153605170.html)
+- Dec 31 - [Painful surgeries and passing notes, how Israeli siblings survived Hamas captivity](https://news.yahoo.com/painful-surgeries-passing-notes-israeli-183342136.html)
+- Dec 31 - [Chicago Mayor Brandon Johnson says Texas governor creating "chaos" with migrant transport](https://news.yahoo.com/chicago-mayor-brandon-johnson-says-180157377.html)
+- Dec 31 - [Ron DeSantis keeps talking about blowing up The Bahamas](https://news.yahoo.com/ron-desantis-keeps-talking-blowing-180047891.html)
+- Dec 31 - [Joan Rivers’s Allegedly Haunted $28 Million Penthouse Just Hit a Major Snag](https://www.yahoo.com/entertainment/joan-rivers-allegedly-haunted-28-172700855.html)
+- Dec 31 - [Transcript: Sen. Lindsey Graham on "Face the Nation," Dec. 31, 2023](https://news.yahoo.com/transcript-sen-lindsey-graham-face-172030920.html)
 <!-- feed end -->
 
 ### Onstream
