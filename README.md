@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Dec 31 - [Tesla dashcam footage sparks fury online after capturing act of vandalism: ‘Can people just leave other people’s property alone?’](https://www.yahoo.com/lifestyle/tesla-dashcam-footage-sparks-fury-000000187.html)
+- Dec 30 - [Former top Obama adviser says if Trump prevented from running it ‘would rip the country apart'](https://news.yahoo.com/former-top-obama-adviser-says-235402057.html)
 - Dec 30 - [Gypsy Rose Blanchard Has Been Ordered to Leave the State of Missouri by Her Parole Officer](https://www.yahoo.com/entertainment/gypsy-rose-blanchard-ordered-leave-230842438.html)
 - Dec 30 - [After 3 generations, family sells longtime North Carolina mountain resort for $15 million](https://news.yahoo.com/3-generations-family-sells-longtime-204622187.html)
 - Dec 30 - [Cargo ship carrying burning lithium-ion batteries reaches Alaska, but kept offshore for safety](https://news.yahoo.com/cargo-ship-carrying-burning-lithium-202847382.html)
-- Dec 30 - [Israeli ex-hostage says she feared being raped by Gaza captor](https://news.yahoo.com/israeli-ex-hostage-says-she-182059430.html)
 <!-- feed end -->
 
 ### Onstream
