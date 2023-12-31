@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 31 - [Kim Jong-Un orders military chiefs to plan nuclear strike against South Korea](https://news.yahoo.com/kim-jong-un-orders-military-153440102.html)
+- Dec 31 - [Missing Kids Who Were Found Alive Years Later](https://news.yahoo.com/missing-kids-were-found-alive-150054354.html)
+- Dec 31 - [2 Powerball tickets sold in Mass. win smaller prizes as jackpot climbs to $810M](https://news.yahoo.com/2-powerball-tickets-sold-mass-134129274.html)
 - Dec 31 - [US Navy helicopters kill Iran-backed Houthi fighters attempting to board a cargo ship in Red Sea](https://news.yahoo.com/us-navy-helicopters-kill-iran-114940990.html)
 - Dec 31 - [‘Collecting degrees like a thermometer’: This Atlanta woman has 3 different degrees, $311K in student debt — but refuses to use her law schooling to earn more money. Dave Ramsey responds](https://finance.yahoo.com/news/collecting-degrees-thermometer-atlanta-woman-110000419.html)
-- Dec 31 - [Former FBI agent recalls the one serial killer who left her ‘shaken’: ‘He just didn’t seem human’](https://news.yahoo.com/former-fbi-agent-recalls-one-090028945.html)
-- Dec 31 - [Video shows alarming decision from tourist during bison traffic jam at national park: ‘The bison were even stunned’](https://www.yahoo.com/lifestyle/video-shows-alarming-decision-tourist-030000358.html)
-- Dec 31 - [Scientists make stunning discovery in remote forest: ‘There are no others that have had the opportunity to live so long’](https://news.yahoo.com/scientists-stunning-discovery-remote-forest-010000780.html)
 <!-- feed end -->
 
 ### Onstream
