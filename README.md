@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Dec 31 - [Nostradamus’ predications for 2024](https://sports.yahoo.com/nostradamus-predications-2024-214456438.html)
+- Dec 31 - [Marine embassy security guard dies on duty in Republic of Congo](https://news.yahoo.com/marine-embassy-security-guard-dies-213508660.html)
 - Dec 31 - [In rare apology, Israeli minister says she 'sinned' for her role in reforms that tore country apart](https://news.yahoo.com/rare-apology-israeli-minister-says-195432275.html)
 - Dec 31 - [Ron DeSantis keeps talking about blowing up The Bahamas](https://news.yahoo.com/ron-desantis-keeps-talking-blowing-180047891.html)
 - Dec 31 - [NASA’s Curiosity rover snapped this dreamy timelapse of a Martian day](https://news.yahoo.com/nasas-curiosity-rover-snapped-this-dreamy-timelapse-of-a-martian-day-175701537.html)
-- Dec 31 - [Joan Rivers’s Allegedly Haunted $28 Million Penthouse Just Hit a Major Snag](https://www.yahoo.com/entertainment/joan-rivers-allegedly-haunted-28-172700855.html)
-- Dec 31 - [Transcript: Sen. Lindsey Graham on "Face the Nation," Dec. 31, 2023](https://news.yahoo.com/transcript-sen-lindsey-graham-face-172030920.html)
 <!-- feed end -->
 
 ### Onstream
