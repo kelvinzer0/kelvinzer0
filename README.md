@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 01 - [Melania Trump's Absence From Mar-a-Lago New Year's Party Confirms Where Her Current Focus Remains](https://www.yahoo.com/entertainment/melania-trumps-absence-mar-lago-183712096.html)
+- Jan 01 - [US Navy ending aircraft carrier's Middle East deployment](https://news.yahoo.com/us-navy-ending-aircraft-carriers-175237028.html)
 - Jan 01 - [Israel's Supreme Court overturns a key component of Netanyahu's polarizing judicial overhaul](https://news.yahoo.com/israels-supreme-court-overturns-key-170309230.html)
 - Jan 01 - [Dave Ramsey Says These Are the 14 Best Cities To Retire in the United States](https://finance.yahoo.com/news/dave-ramsey-says-14-best-130028702.html)
-- Jan 01 - [The USS Gerald R. Ford aircraft carrier is returning home after extended deployment defending Israel](https://news.yahoo.com/uss-gerald-r-ford-aircraft-162509451.html)
 - Jan 01 - [Patient turned away by NHS dies of skin cancer after he did not pay for private test](https://news.yahoo.com/patient-wouldn-t-pay-test-153950883.html)
-- Jan 01 - ['The government's not going to save them': Suze Orman warns of a looming financial 'pandemic' — says Americans have no one to rely on. Here's what she means and how to prepare](https://finance.yahoo.com/news/governments-not-going-save-them-153000637.html)
 <!-- feed end -->
 
 ### Onstream
