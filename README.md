@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Japan quake causes chaos in train station](https://news.yahoo.com/japan-quake-causes-chaos-train-122824911.html)
+- Jan 01 - [House collapses, roads damaged after Japan quake](https://news.yahoo.com/house-collapses-roads-damaged-japan-133257339.html)
+- Jan 01 - ['I have a sense of timing': Jerry Seinfeld turned down more than $100M to make another season of 'Seinfeld' — here's how you can tell when it's time to retire](https://finance.yahoo.com/news/sense-timing-jerry-seinfeld-turned-103000166.html)
+- Jan 01 - [Iranian warship Alborz enters the Red Sea - Tasnim](https://news.yahoo.com/iranian-warship-alborz-enters-red-125659394.html)
 - Jan 01 - [Nearly two-thirds of millennials say spending $7 on their daily cup of coffee brings them ‘joy’ — but Suze Orman has compared it to ‘peeing $1M down the drain.’ Who’s right?](https://finance.yahoo.com/news/nearly-two-thirds-millennials-spending-110000689.html)
 - Jan 01 - [New Florida laws for drivers, breastfeeding moms, campers, shoppers are now in effect](https://news.yahoo.com/florida-laws-drivers-breastfeeding-moms-100000461.html)
-- Jan 01 - [Cerne Abbas Giant: Has the mystery of the chalk hill figure been solved?](https://news.yahoo.com/cerne-abbas-giant-mystery-chalk-094649161.html)
-- Jan 01 - [Jeffrey Epstein's friend list: Ghislaine Maxwell lawsuit holds clues to names about to be made public](https://news.yahoo.com/jeffrey-epsteins-friend-list-ghislaine-090025533.html)
 <!-- feed end -->
 
 ### Onstream
