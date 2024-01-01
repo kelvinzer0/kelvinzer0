@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Dec 31 - [Nostradamus’ predications for 2024](https://sports.yahoo.com/nostradamus-predications-2024-214456438.html)
 - Dec 31 - [Marine embassy security guard dies on duty in Republic of Congo](https://news.yahoo.com/marine-embassy-security-guard-dies-213508660.html)
+- Dec 31 - [After U.S. Navy Helicopters Sink Houthi Boats Are Strikes Next?](https://news.yahoo.com/u-navy-helicopters-sink-houthi-212045731.html)
 - Dec 31 - [In rare apology, Israeli minister says she 'sinned' for her role in reforms that tore country apart](https://news.yahoo.com/rare-apology-israeli-minister-says-195432275.html)
 - Dec 31 - [Ron DeSantis keeps talking about blowing up The Bahamas](https://news.yahoo.com/ron-desantis-keeps-talking-blowing-180047891.html)
-- Dec 31 - [NASA’s Curiosity rover snapped this dreamy timelapse of a Martian day](https://news.yahoo.com/nasas-curiosity-rover-snapped-this-dreamy-timelapse-of-a-martian-day-175701537.html)
 <!-- feed end -->
 
 ### Onstream
