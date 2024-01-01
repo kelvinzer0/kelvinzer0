@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 01 - [Xi says 'reunification' with Taiwan is inevitable](https://news.yahoo.com/xi-says-reunification-taiwan-inevitable-044339981.html)
 - Jan 01 - [Mark Zuckerberg sparks outrage with plan for multimillion-dollar Hawaiian compound: ‘There’s cameras everywhere’](https://news.yahoo.com/mark-zuckerberg-sparks-outrage-plan-020000976.html)
 - Jan 01 - [North Korea's Kim orders military to 'thoroughly annihilate' US, South Korea if provoked](https://news.yahoo.com/north-koreas-kim-orders-military-015702463.html)
 - Jan 01 - [Tesla dashcam footage ignites outrage after catching vandal red-handed: ‘This could be a felony’](https://www.yahoo.com/lifestyle/tesla-dashcam-footage-ignites-outrage-010000456.html)
 - Jan 01 - [Actor Ian Ziering takes beating from mini-bikers in Hollywood](https://news.yahoo.com/actor-ian-ziering-takes-beating-005046908.html)
-- Dec 31 - [Nostradamus’ predications for 2024](https://sports.yahoo.com/nostradamus-predications-2024-214456438.html)
 <!-- feed end -->
 
 ### Onstream
