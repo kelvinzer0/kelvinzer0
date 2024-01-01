@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 01 - [Massive Earthquake Turns Japanese Mall Into 'Hell'](https://news.yahoo.com/massive-earthquake-turns-japanese-mall-101625823.html)
+- Jan 01 - [Nearly two-thirds of millennials say spending $7 on their daily cup of coffee brings them ‘joy’ — but Suze Orman has compared it to ‘peeing $1M down the drain.’ Who’s right?](https://finance.yahoo.com/news/nearly-two-thirds-millennials-spending-110000689.html)
 - Jan 01 - [Cerne Abbas Giant: Has the mystery of the chalk hill figure been solved?](https://news.yahoo.com/cerne-abbas-giant-mystery-chalk-094649161.html)
+- Jan 01 - [Jeffrey Epstein's friend list: Ghislaine Maxwell lawsuit holds clues to names about to be made public](https://news.yahoo.com/jeffrey-epsteins-friend-list-ghislaine-090025533.html)
 - Jan 01 - [Earthquake slams Japan, residents flee some coastal areas](https://news.yahoo.com/magnitude-7-4-earthquake-strikes-072634354.html)
 - Jan 01 - [Missing Riverdale foreign exchange student found near Brigham City in case of ‘cyber kidnapping’](https://news.yahoo.com/missing-riverdale-foreign-exchange-student-044248584.html)
-- Jan 01 - [Mark Zuckerberg sparks outrage with plan for multimillion-dollar Hawaiian compound: ‘There’s cameras everywhere’](https://news.yahoo.com/mark-zuckerberg-sparks-outrage-plan-020000976.html)
 <!-- feed end -->
 
 ### Onstream
