@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 01 - [What Kim Jong Un’s Changing Outfits Reveal About North Korea](https://finance.yahoo.com/video/kim-jong-un-changing-outfits-050100562.html)
+- Jan 01 - [Missing Riverdale foreign exchange student found near Brigham City in case of ‘cyber kidnapping’](https://news.yahoo.com/missing-riverdale-foreign-exchange-student-044248584.html)
 - Jan 01 - [Mark Zuckerberg sparks outrage with plan for multimillion-dollar Hawaiian compound: ‘There’s cameras everywhere’](https://news.yahoo.com/mark-zuckerberg-sparks-outrage-plan-020000976.html)
-- Jan 01 - [North Korea's Kim orders military to 'thoroughly annihilate' US, South Korea if provoked](https://news.yahoo.com/north-koreas-kim-orders-military-015702463.html)
+- Jan 01 - [North Korea's Kim says military should 'thoroughly annihilate' US, South Korea if provoked](https://news.yahoo.com/north-koreas-kim-orders-military-015702463.html)
 - Jan 01 - [Actor Ian Ziering takes beating from mini-bikers in Hollywood](https://news.yahoo.com/actor-ian-ziering-takes-beating-005046908.html)
-- Dec 31 - [Nostradamus’ predications for 2024](https://sports.yahoo.com/nostradamus-predications-2024-214456438.html)
 <!-- feed end -->
 
 ### Onstream
