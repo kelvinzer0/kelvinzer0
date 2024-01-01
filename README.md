@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 01 - [Reports: Rays SS Wander Franco arrested in Dominican Republic for missing summons over alleged relationship with minor](https://sports.yahoo.com/reports-rays-ss-wander-franco-arrested-in-dominican-republic-for-missing-summons-over-alleged-relationship-with-minor-214108888.html)
+- Jan 01 - [Britain's youngest Euromillions winner 'devastated' as gangster ex-boyfriend 'shot dead'](https://news.yahoo.com/britains-youngest-euromillions-winner-devastated-212517891.html)
+- Jan 01 - [GRPD: Woman hurt from celebratory gunfire](https://news.yahoo.com/grpd-woman-hurt-celebratory-gunfire-212200810.html)
 - Jan 01 - [Lauren Boebert blames district swap on Barbra Streisand](https://news.yahoo.com/lauren-boebert-blames-district-swap-202426044.html)
 - Jan 01 - [Melania Trump's Absence From Mar-a-Lago New Year's Party Confirms Where Her Current Focus Remains](https://www.yahoo.com/entertainment/melania-trumps-absence-mar-lago-183712096.html)
-- Jan 01 - [US Navy ending aircraft carrier's Middle East deployment](https://news.yahoo.com/us-navy-ending-aircraft-carriers-175237028.html)
-- Jan 01 - [Israel's Supreme Court overturns a key component of Netanyahu's polarizing judicial overhaul](https://news.yahoo.com/israels-supreme-court-overturns-key-170309230.html)
-- Jan 01 - [Dave Ramsey Says These Are the 14 Best Cities To Retire in the United States](https://finance.yahoo.com/news/dave-ramsey-says-14-best-130028702.html)
 <!-- feed end -->
 
 ### Onstream
