@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 01 - [Patient turned away by NHS dies of skin cancer after he did not pay for private test](https://news.yahoo.com/patient-wouldn-t-pay-test-153950883.html)
 - Jan 01 - ['The government's not going to save them': Suze Orman warns of a looming financial 'pandemic' — says Americans have no one to rely on. Here's what she means and how to prepare](https://finance.yahoo.com/news/governments-not-going-save-them-153000637.html)
 - Jan 01 - ['Lifting Heavy Transformed My Confidence And Body In My 30s'](https://www.yahoo.com/lifestyle/lifting-heavy-transformed-confidence-body-133000345.html)
 - Jan 01 - ['I have a sense of timing': Jerry Seinfeld turned down more than $100M to make another season of 'Seinfeld' — here's how you can tell when it's time to retire](https://finance.yahoo.com/news/sense-timing-jerry-seinfeld-turned-103000166.html)
 - Jan 01 - [Iranian warship Alborz enters the Red Sea - Tasnim](https://news.yahoo.com/iranian-warship-alborz-enters-red-125659394.html)
-- Jan 01 - [New Florida laws for drivers, breastfeeding moms, campers, shoppers are now in effect](https://news.yahoo.com/florida-laws-drivers-breastfeeding-moms-100000461.html)
 <!-- feed end -->
 
 ### Onstream
