@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 01 - [Judge allows new court in Mississippi's majority-Black capital, rejecting NAACP request to stop it](https://news.yahoo.com/judge-allows-court-mississippis-majority-030743210.html)
+- Jan 01 - [Takanakuy, the Andean 'fight club' that clears the air for a new year](https://news.yahoo.com/takanakuy-andean-fight-club-clears-023024402.html)
 - Jan 01 - [North Korea's Kim orders military to 'thoroughly annihilate' US, South Korea if provoked](https://news.yahoo.com/north-koreas-kim-orders-military-015702463.html)
-- Dec 31 - [Nostradamus’ predications for 2024](https://sports.yahoo.com/nostradamus-predications-2024-214456438.html)
-- Dec 31 - [Marine embassy security guard dies on duty in Republic of Congo](https://news.yahoo.com/marine-embassy-security-guard-dies-213508660.html)
-- Dec 31 - [In rare apology, Israeli minister says she 'sinned' for her role in reforms that tore country apart](https://news.yahoo.com/rare-apology-israeli-minister-says-195432275.html)
-- Dec 31 - [Ron DeSantis keeps talking about blowing up The Bahamas](https://news.yahoo.com/ron-desantis-keeps-talking-blowing-180047891.html)
+- Jan 01 - [Tesla dashcam footage ignites outrage after catching vandal red-handed: ‘This could be a felony’](https://www.yahoo.com/lifestyle/tesla-dashcam-footage-ignites-outrage-010000456.html)
+- Jan 01 - [Actor Ian Ziering takes beating from mini-bikers in Hollywood](https://news.yahoo.com/actor-ian-ziering-takes-beating-005046908.html)
 <!-- feed end -->
 
 ### Onstream
