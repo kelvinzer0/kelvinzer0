@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 01 - [North Korea's Kim orders military to 'thoroughly annihilate' US, South Korea if provoked](https://news.yahoo.com/north-koreas-kim-orders-military-015702463.html)
 - Dec 31 - [Nostradamus’ predications for 2024](https://sports.yahoo.com/nostradamus-predications-2024-214456438.html)
 - Dec 31 - [Marine embassy security guard dies on duty in Republic of Congo](https://news.yahoo.com/marine-embassy-security-guard-dies-213508660.html)
-- Dec 31 - [After U.S. Navy Helicopters Sink Houthi Boats Are Strikes Next?](https://news.yahoo.com/u-navy-helicopters-sink-houthi-212045731.html)
 - Dec 31 - [In rare apology, Israeli minister says she 'sinned' for her role in reforms that tore country apart](https://news.yahoo.com/rare-apology-israeli-minister-says-195432275.html)
 - Dec 31 - [Ron DeSantis keeps talking about blowing up The Bahamas](https://news.yahoo.com/ron-desantis-keeps-talking-blowing-180047891.html)
 <!-- feed end -->
