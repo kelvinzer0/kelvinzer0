@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 01 - [Reports: Rays SS Wander Franco arrested in Dominican Republic for missing summons over alleged relationship with minor](https://sports.yahoo.com/reports-rays-ss-wander-franco-arrested-in-dominican-republic-for-missing-summons-over-alleged-relationship-with-minor-214108888.html)
 - Jan 01 - [Britain's youngest Euromillions winner 'devastated' as gangster ex-boyfriend 'shot dead'](https://news.yahoo.com/britains-youngest-euromillions-winner-devastated-212517891.html)
-- Jan 01 - [GRPD: Woman hurt from celebratory gunfire](https://news.yahoo.com/grpd-woman-hurt-celebratory-gunfire-212200810.html)
 - Jan 01 - [Lauren Boebert blames district swap on Barbra Streisand](https://news.yahoo.com/lauren-boebert-blames-district-swap-202426044.html)
 - Jan 01 - [Melania Trump's Absence From Mar-a-Lago New Year's Party Confirms Where Her Current Focus Remains](https://www.yahoo.com/entertainment/melania-trumps-absence-mar-lago-183712096.html)
+- Jan 01 - [Iran Sends Warship to Red Sea After US Sinks Houthi Boats](https://finance.yahoo.com/news/iran-sends-warship-red-sea-181602146.html)
 <!-- feed end -->
 
 ### Onstream
