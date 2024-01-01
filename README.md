@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 01 - [Massive Earthquake Turns Japanese Mall Into 'Hell'](https://news.yahoo.com/massive-earthquake-turns-japanese-mall-101625823.html)
+- Jan 01 - [Cerne Abbas Giant: Has the mystery of the chalk hill figure been solved?](https://news.yahoo.com/cerne-abbas-giant-mystery-chalk-094649161.html)
+- Jan 01 - [Earthquake slams Japan, residents flee some coastal areas](https://news.yahoo.com/magnitude-7-4-earthquake-strikes-072634354.html)
 - Jan 01 - [Missing Riverdale foreign exchange student found near Brigham City in case of ‘cyber kidnapping’](https://news.yahoo.com/missing-riverdale-foreign-exchange-student-044248584.html)
 - Jan 01 - [Mark Zuckerberg sparks outrage with plan for multimillion-dollar Hawaiian compound: ‘There’s cameras everywhere’](https://news.yahoo.com/mark-zuckerberg-sparks-outrage-plan-020000976.html)
-- Jan 01 - [North Korea's Kim says military should 'thoroughly annihilate' US, South Korea if provoked](https://news.yahoo.com/north-koreas-kim-orders-military-015702463.html)
-- Jan 01 - [Actor Ian Ziering takes beating from mini-bikers in Hollywood](https://news.yahoo.com/actor-ian-ziering-takes-beating-005046908.html)
-- Dec 31 - [Nostradamus’ predications for 2024](https://sports.yahoo.com/nostradamus-predications-2024-214456438.html)
 <!-- feed end -->
 
 ### Onstream
