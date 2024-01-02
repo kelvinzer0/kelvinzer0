@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Russia says it has a hit list of potential targets to seize if the West confiscates its assets to help Ukraine](https://news.yahoo.com/russia-says-hit-list-potential-042017660.html)
-- Jan 02 - [Missing exchange student found cold and scared after what police call a ‘cyber-kidnapping’](https://news.yahoo.com/missing-exchange-student-found-cold-000908193.html)
+- Jan 02 - [Biden and Trump are poised for a potential rematch that could shake American politics](https://news.yahoo.com/biden-trump-poised-potential-rematch-050254614.html)
+- Jan 02 - [A couple paid $80,000 after being told their teen son was kidnapped. He was found living in a tent outside Salt Lake City, police said.](https://news.yahoo.com/couple-paid-80-000-being-044134936.html)
+- Jan 02 - [China calls on Taiwan's people to promote 'peaceful reunification'](https://news.yahoo.com/china-calls-taiwans-people-promote-032528001.html)
 - Jan 02 - [Wild video shows moment dam cracked under pressure: ‘[This is] probably why old dams are getting removed now’](https://www.yahoo.com/lifestyle/wild-video-shows-moment-dam-030000320.html)
 - Jan 02 - [Doctor who delivered NYC’s first New Year baby didn’t know he also delivered dad](https://news.yahoo.com/doctor-delivered-nyc-first-baby-021600603.html)
-- Jan 02 - [Powerful earthquakes leave at least 15 dead, destroy buildings along Japan's western coast](https://news.yahoo.com/powerful-earthquakes-leave-least-four-011316340.html)
 <!-- feed end -->
 
 ### Onstream
