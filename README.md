@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Suspect arrested after breaking into Colorado Supreme Court building](https://news.yahoo.com/suspect-arrested-breaking-colorado-supreme-153704128.html)
-- Jan 02 - [Inside the ‘zombie’ drug epidemic sweeping West Africa](https://news.yahoo.com/inside-zombie-drug-epidemic-sweeping-153550222.html)
-- Jan 02 - [Watch Out for This Gas Station Scam: ‘Pump Switching’ and How To Avoid It](https://finance.yahoo.com/news/gas-station-scam-pump-switching-190107842.html)
-- Jan 02 - [Olympic Cyclist Dies After Being Hit By Car, Husband Reportedly Arrested](https://news.yahoo.com/olympic-cyclist-dies-being-hit-142022879.html)
-- Jan 02 - [This Person Quit Their Job After Managers Wouldn't Raise Their Pay. Then, The Recruitment Team Unknowingly Offered Them The Same Position For 4.5X Their Original Salary](https://www.yahoo.com/lifestyle/person-quit-job-managers-wouldnt-141950489.html)
+- Jan 02 - ["Extreme sabotage": Trump rants about new "10,000 soldiers" conspiracy theory on Truth Social](https://news.yahoo.com/extreme-sabotage-trump-rants-10-164111280.html)
+- Jan 02 - [Coyote fails to learn lesson, becomes fatal victim in Death Valley](https://sports.yahoo.com/coyote-fails-learn-lesson-becomes-163023255.html)
+- Jan 02 - [Hezbollah's TV station says top Hamas official Saleh Arouri killed in Beirut blast](https://news.yahoo.com/mysterious-blast-shakes-beiruts-southern-162738415.html)
+- Jan 02 - [Police seek motive in fiery fatal crash in upstate New York; no terror link found](https://news.yahoo.com/police-seek-motive-fiery-fatal-161153781.html)
+- Jan 02 - [I tried Dry January and didn't drink for 30 days straight for the first time in years thanks to these 6 strategies](https://www.yahoo.com/lifestyle/tried-dry-january-didnt-drink-160405566.html)
 <!-- feed end -->
 
 ### Onstream
