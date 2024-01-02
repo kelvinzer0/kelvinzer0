@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [Olympic Cyclist Dies After Being Hit By Car, Husband Reportedly Arrested](https://news.yahoo.com/olympic-cyclist-dies-being-hit-142022879.html)
+- Jan 02 - [This Person Quit Their Job After Managers Wouldn't Raise Their Pay. Then, The Recruitment Team Unknowingly Offered Them The Same Position For 4.5X Their Original Salary](https://www.yahoo.com/lifestyle/person-quit-job-managers-wouldnt-141950489.html)
+- Jan 02 - [One of Wyoming’s Most Storied Ranches Returns to Market for $67 Million](https://www.yahoo.com/lifestyle/one-wyoming-most-storied-ranches-140000531.html)
 - Jan 02 - [Turkey to block UK minehunter ships intended for Ukraine](https://news.yahoo.com/turkey-block-uk-minehunter-ships-133328661.html)
 - Jan 02 - [Watch: Plane on Fire at Tokyo Airport After Deadly Collision](https://finance.yahoo.com/video/watch-plane-fire-tokyo-airport-101400056.html)
-- Jan 02 - [A Scientist Says Humans Were Meant to Live So Much Longer—Then the Dinosaurs Ruined It](https://www.yahoo.com/lifestyle/scientist-says-humans-were-meant-130000810.html)
-- Jan 02 - [I’m 55 years old with $0 in savings — have I lost all hope of a comfy retirement? Not yet. But do these 3 crucial things ASAP](https://finance.yahoo.com/news/m-55-years-old-zero-151500300.html)
-- Jan 02 - [Video appears to show passengers shouting inside a Japan Airlines plane as it tried to land while engulfed in flames](https://news.yahoo.com/video-appears-show-passengers-shouting-120801930.html)
 <!-- feed end -->
 
 ### Onstream
