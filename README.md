@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [Missing exchange student found cold and scared after what police call a ‘cyber-kidnapping’](https://news.yahoo.com/missing-exchange-student-found-cold-000908193.html)
+- Jan 02 - [Video of truck driver harassing diners at fast food restaurant sparks outrage: ‘Should be a felony’](https://www.yahoo.com/lifestyle/video-truck-driver-harassing-diners-000000906.html)
 - Jan 02 - [Fact Check: Meet Gigantopithecus the Largest Ape Ever Known To Exist](https://news.yahoo.com/fact-check-meet-gigantopithecus-largest-000000771.html)
+- Jan 01 - [Russia rounds up thousands of migrants at New Year's Eve festivities - reports](https://news.yahoo.com/russia-rounds-thousands-migrants-years-233955933.html)
 - Jan 01 - [How an ex-police officer made $12 million in 3 years after buying ATMs for $2,100 and operating them as a side hustle](https://finance.yahoo.com/news/ex-police-officer-made-12-231026334.html)
-- Jan 01 - [Do squats without knee pain! This top-rated fitness trainer is $45 off at Amazon's Winter Sale](https://www.yahoo.com/lifestyle/do-squats-without-knee-pain-this-top-rated-fitness-trainer-is-45-off-at-amazons-winter-sale-230659364.html)
-- Jan 01 - [Missing Chinese exchange student found safe in Utah following cyber kidnapping scheme, police say](https://news.yahoo.com/missing-chinese-exchange-student-found-221948707.html)
-- Jan 01 - [Reports: Rays SS Wander Franco arrested in Dominican Republic for missing summons over alleged relationship with minor](https://sports.yahoo.com/reports-rays-ss-wander-franco-arrested-in-dominican-republic-for-missing-summons-over-alleged-relationship-with-minor-214108888.html)
 <!-- feed end -->
 
 ### Onstream
