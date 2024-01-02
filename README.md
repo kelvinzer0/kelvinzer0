@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - ['Rich Dad, Poor Dad's' Robert Kiyosaki Says He's $1.2 Billion In Debt Because 'If I Go Bust, The Bank Goes Bust. Not My Problem'](https://finance.yahoo.com/news/rich-dad-poor-dads-robert-193714809.html)
 - Jan 02 - [Trump legal news brief: Trump floats conspiracy theories as a defense for election interference charges](https://news.yahoo.com/trump-legal-news-brief-trump-floats-conspiracy-theories-as-a-defense-for-election-interference-charges-191014811.html)
-- Jan 02 - [Short-term leases from 5 to 12 months are increasingly popular](https://www.autoblog.com/2024/01/02/short-term-leases-from-5-to-12-months-are-increasingly-popular/)
-- Jan 02 - [Harvard President Gay resigns -Harvard Crimson student newspaper](https://news.yahoo.com/harvard-president-gay-resigns-harvard-181118362.html)
-- Jan 02 - [‘A deceptive tactic’: Nancy Pelosi disclosed a 7-figure bet on NVIDIA over the Christmas holidays — despite recent efforts to ‘permanently ban’ lawmakers from trading stocks](https://finance.yahoo.com/news/deceptive-tactic-nancy-pelosi-disclosed-180000159.html)
-- Jan 02 - [This Video Of A Street In Japan "Breathing" During The Earthquake Is Going Super Viral](https://www.yahoo.com/lifestyle/terrifying-video-street-breathing-during-172607770.html)
+- Jan 02 - [Up to 12 inches of snow heading to NJ this weekend. Are you ready?](https://news.yahoo.com/12-inches-snow-heading-nj-190900667.html)
+- Jan 02 - [Michael Cohen can't hold Donald Trump liable for retaliatory imprisonment, appeals court says](https://news.yahoo.com/appeals-court-michael-cohen-cant-190548139.html)
+- Jan 02 - [Sheriff’s Office video shows deputies firing 10 times as woman resisted arrest in Rancho Cordova](https://news.yahoo.com/sheriff-office-video-shows-deputies-185454023.html)
 <!-- feed end -->
 
 ### Onstream
