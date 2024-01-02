@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [Suspect arrested after breaking into Colorado Supreme Court building](https://news.yahoo.com/suspect-arrested-breaking-colorado-supreme-153704128.html)
+- Jan 02 - [Inside the ‘zombie’ drug epidemic sweeping West Africa](https://news.yahoo.com/inside-zombie-drug-epidemic-sweeping-153550222.html)
+- Jan 02 - [Watch Out for This Gas Station Scam: ‘Pump Switching’ and How To Avoid It](https://finance.yahoo.com/news/gas-station-scam-pump-switching-190107842.html)
 - Jan 02 - [Olympic Cyclist Dies After Being Hit By Car, Husband Reportedly Arrested](https://news.yahoo.com/olympic-cyclist-dies-being-hit-142022879.html)
 - Jan 02 - [This Person Quit Their Job After Managers Wouldn't Raise Their Pay. Then, The Recruitment Team Unknowingly Offered Them The Same Position For 4.5X Their Original Salary](https://www.yahoo.com/lifestyle/person-quit-job-managers-wouldnt-141950489.html)
-- Jan 02 - [One of Wyoming’s Most Storied Ranches Returns to Market for $67 Million](https://www.yahoo.com/lifestyle/one-wyoming-most-storied-ranches-140000531.html)
-- Jan 02 - [Turkey to block UK minehunter ships intended for Ukraine](https://news.yahoo.com/turkey-block-uk-minehunter-ships-133328661.html)
-- Jan 02 - [Watch: Plane on Fire at Tokyo Airport After Deadly Collision](https://finance.yahoo.com/video/watch-plane-fire-tokyo-airport-101400056.html)
 <!-- feed end -->
 
 ### Onstream
