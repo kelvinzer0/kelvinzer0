@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [Fact Check: Meet Gigantopithecus the Largest Ape Ever Known To Exist](https://news.yahoo.com/fact-check-meet-gigantopithecus-largest-000000771.html)
+- Jan 01 - [How an ex-police officer made $12 million in 3 years after buying ATMs for $2,100 and operating them as a side hustle](https://finance.yahoo.com/news/ex-police-officer-made-12-231026334.html)
+- Jan 01 - [Do squats without knee pain! This top-rated fitness trainer is $45 off at Amazon's Winter Sale](https://www.yahoo.com/lifestyle/do-squats-without-knee-pain-this-top-rated-fitness-trainer-is-45-off-at-amazons-winter-sale-230659364.html)
+- Jan 01 - [Missing Chinese exchange student found safe in Utah following cyber kidnapping scheme, police say](https://news.yahoo.com/missing-chinese-exchange-student-found-221948707.html)
 - Jan 01 - [Reports: Rays SS Wander Franco arrested in Dominican Republic for missing summons over alleged relationship with minor](https://sports.yahoo.com/reports-rays-ss-wander-franco-arrested-in-dominican-republic-for-missing-summons-over-alleged-relationship-with-minor-214108888.html)
-- Jan 01 - [Britain's youngest Euromillions winner 'devastated' as gangster ex-boyfriend 'shot dead'](https://news.yahoo.com/britains-youngest-euromillions-winner-devastated-212517891.html)
-- Jan 01 - [Lauren Boebert blames district swap on Barbra Streisand](https://news.yahoo.com/lauren-boebert-blames-district-swap-202426044.html)
-- Jan 01 - [Melania Trump's Absence From Mar-a-Lago New Year's Party Confirms Where Her Current Focus Remains](https://www.yahoo.com/entertainment/melania-trumps-absence-mar-lago-183712096.html)
-- Jan 01 - [Iran Sends Warship to Red Sea After US Sinks Houthi Boats](https://finance.yahoo.com/news/iran-sends-warship-red-sea-181602146.html)
 <!-- feed end -->
 
 ### Onstream
