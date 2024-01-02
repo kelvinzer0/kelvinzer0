@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [South Korea protests to Japan about tsunami alerts showing disputed islets](https://news.yahoo.com/south-korea-protests-japan-tsunami-083215679.html)
-- Jan 02 - [South Korea opposition leader stabbed in the neck](https://news.yahoo.com/south-korea-opposition-leader-stabbed-075518570.html)
 - Jan 02 - [Doctors across the US are teaming up to solve one massive problem: ‘We really do have to do something’](https://news.yahoo.com/doctors-across-us-teaming-solve-073000002.html)
 - Jan 02 - [A missing person with no memory: How investigators solved the cold case of Seven Doe](https://news.yahoo.com/missing-person-no-memory-investigators-050649898.html)
 - Jan 02 - [A couple paid $80,000 after being told their teen son was kidnapped. He was found living in a tent outside Salt Lake City, police said.](https://news.yahoo.com/couple-paid-80-000-being-044134936.html)
+- Jan 02 - [Elon Musk is beefing with Green Day for slamming MAGA in their latest rendition of 'American Idiot'](https://news.yahoo.com/elon-musk-beefing-green-day-034917528.html)
+- Jan 02 - [Wild video shows moment dam cracked under pressure: ‘[This is] probably why old dams are getting removed now’](https://www.yahoo.com/lifestyle/wild-video-shows-moment-dam-030000320.html)
 <!-- feed end -->
 
 ### Onstream
