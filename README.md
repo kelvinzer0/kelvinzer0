@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [EV maker Rivian misses quarterly deliveries expectations, shares tank](https://finance.yahoo.com/news/ev-maker-rivian-misses-quarterly-133849579.html)
-- Jan 02 - [Biden administration asks Supreme Court to allow border agents to cut razor wire installed by Texas](https://news.yahoo.com/biden-administration-asks-supreme-court-204604311.html)
+- Jan 02 - [Michigan Republicans call for meeting to consider removing chairperson Karamo amid fundraising woes](https://news.yahoo.com/michigan-republicans-call-meeting-consider-215046569.html)
 - Jan 02 - [Man mowed down by fiance was ‘killed by the person he trusted most’](https://news.yahoo.com/ethics-student-murdered-her-fianc-122153247.html)
-- Jan 02 - [‘Sick to my stomach’: Hear what changed state senator’s mind about Trump after voting for him twice](https://news.yahoo.com/hear-changed-voter-mind-trump-185926529.html)
-- Jan 02 - ['Rich Dad, Poor Dad's' Robert Kiyosaki Says He's $1.2 Billion In Debt Because 'If I Go Bust, The Bank Goes Bust. Not My Problem'](https://finance.yahoo.com/news/rich-dad-poor-dads-robert-193714809.html)
+- Jan 02 - [Kennedy cousin whose murder conviction was overturned sues former cop, Connecticut town](https://news.yahoo.com/kennedy-cousin-whose-murder-conviction-211314759.html)
+- Jan 02 - [You Won't Believe the Racist Things This 80-Year-Old Vietnam Vet Said That Cost Him His Job](https://news.yahoo.com/wont-believe-racist-things-80-210500145.html)
+- Jan 02 - [Suburbs put the brakes on migrant bus arrivals after crackdowns in Chicago and New York](https://news.yahoo.com/suburbs-put-brakes-migrant-bus-210219923.html)
 <!-- feed end -->
 
 ### Onstream
