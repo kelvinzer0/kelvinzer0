@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [Trump legal news brief: Trump floats conspiracy theories as a defense for election interference charges](https://news.yahoo.com/trump-legal-news-brief-trump-floats-conspiracy-theories-as-a-defense-for-election-interference-charges-191014811.html)
+- Jan 02 - [Short-term leases from 5 to 12 months are increasingly popular](https://www.autoblog.com/2024/01/02/short-term-leases-from-5-to-12-months-are-increasingly-popular/)
+- Jan 02 - [Harvard President Gay resigns -Harvard Crimson student newspaper](https://news.yahoo.com/harvard-president-gay-resigns-harvard-181118362.html)
 - Jan 02 - [‘A deceptive tactic’: Nancy Pelosi disclosed a 7-figure bet on NVIDIA over the Christmas holidays — despite recent efforts to ‘permanently ban’ lawmakers from trading stocks](https://finance.yahoo.com/news/deceptive-tactic-nancy-pelosi-disclosed-180000159.html)
-- Jan 02 - [This Terrifying Video Of A Street "Breathing" During An Earthquake In Japan Has Gone Super Viral For Obvious Reasons](https://www.yahoo.com/lifestyle/terrifying-video-street-breathing-during-172607770.html)
-- Jan 02 - [Man sought by cops crawls into plane engine intake and dies, Utah airport police say](https://news.yahoo.com/man-sought-cops-crawls-plane-172334759.html)
-- Jan 02 - ["Extreme sabotage": Trump rants about new "10,000 soldiers" conspiracy theory on Truth Social](https://news.yahoo.com/extreme-sabotage-trump-rants-10-164111280.html)
-- Jan 02 - [Coyote fails to learn lesson, becomes fatal victim in Death Valley](https://sports.yahoo.com/coyote-fails-learn-lesson-becomes-163023255.html)
+- Jan 02 - [This Video Of A Street In Japan "Breathing" During The Earthquake Is Going Super Viral](https://www.yahoo.com/lifestyle/terrifying-video-street-breathing-during-172607770.html)
 <!-- feed end -->
 
 ### Onstream
