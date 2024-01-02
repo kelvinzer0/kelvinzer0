@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [EV maker Rivian misses quarterly deliveries expectations, shares tank](https://finance.yahoo.com/news/ev-maker-rivian-misses-quarterly-133849579.html)
+- Jan 02 - [Biden administration asks Supreme Court to allow border agents to cut razor wire installed by Texas](https://news.yahoo.com/biden-administration-asks-supreme-court-204604311.html)
+- Jan 02 - [Man mowed down by fiance was ‘killed by the person he trusted most’](https://news.yahoo.com/ethics-student-murdered-her-fianc-122153247.html)
+- Jan 02 - [‘Sick to my stomach’: Hear what changed state senator’s mind about Trump after voting for him twice](https://news.yahoo.com/hear-changed-voter-mind-trump-185926529.html)
 - Jan 02 - ['Rich Dad, Poor Dad's' Robert Kiyosaki Says He's $1.2 Billion In Debt Because 'If I Go Bust, The Bank Goes Bust. Not My Problem'](https://finance.yahoo.com/news/rich-dad-poor-dads-robert-193714809.html)
-- Jan 02 - [Trump legal news brief: Trump floats conspiracy theories as a defense for election interference charges](https://news.yahoo.com/trump-legal-news-brief-trump-floats-conspiracy-theories-as-a-defense-for-election-interference-charges-191014811.html)
-- Jan 02 - [Up to 12 inches of snow heading to NJ this weekend. Are you ready?](https://news.yahoo.com/12-inches-snow-heading-nj-190900667.html)
-- Jan 02 - [Michael Cohen can't hold Donald Trump liable for retaliatory imprisonment, appeals court says](https://news.yahoo.com/appeals-court-michael-cohen-cant-190548139.html)
-- Jan 02 - [Sheriff’s Office video shows deputies firing 10 times as woman resisted arrest in Rancho Cordova](https://news.yahoo.com/sheriff-office-video-shows-deputies-185454023.html)
 <!-- feed end -->
 
 ### Onstream
