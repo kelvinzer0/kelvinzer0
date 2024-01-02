@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [‘A deceptive tactic’: Nancy Pelosi disclosed a 7-figure bet on NVIDIA over the Christmas holidays — despite recent efforts to ‘permanently ban’ lawmakers from trading stocks](https://finance.yahoo.com/news/deceptive-tactic-nancy-pelosi-disclosed-180000159.html)
+- Jan 02 - [This Terrifying Video Of A Street "Breathing" During An Earthquake In Japan Has Gone Super Viral For Obvious Reasons](https://www.yahoo.com/lifestyle/terrifying-video-street-breathing-during-172607770.html)
+- Jan 02 - [Man sought by cops crawls into plane engine intake and dies, Utah airport police say](https://news.yahoo.com/man-sought-cops-crawls-plane-172334759.html)
 - Jan 02 - ["Extreme sabotage": Trump rants about new "10,000 soldiers" conspiracy theory on Truth Social](https://news.yahoo.com/extreme-sabotage-trump-rants-10-164111280.html)
 - Jan 02 - [Coyote fails to learn lesson, becomes fatal victim in Death Valley](https://sports.yahoo.com/coyote-fails-learn-lesson-becomes-163023255.html)
-- Jan 02 - [Hezbollah's TV station says top Hamas official Saleh Arouri killed in Beirut blast](https://news.yahoo.com/mysterious-blast-shakes-beiruts-southern-162738415.html)
-- Jan 02 - [Police seek motive in fiery fatal crash in upstate New York; no terror link found](https://news.yahoo.com/police-seek-motive-fiery-fatal-161153781.html)
-- Jan 02 - [I tried Dry January and didn't drink for 30 days straight for the first time in years thanks to these 6 strategies](https://www.yahoo.com/lifestyle/tried-dry-january-didnt-drink-160405566.html)
 <!-- feed end -->
 
 ### Onstream
