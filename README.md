@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Michigan Republicans call for meeting to consider removing chairperson Karamo amid fundraising woes](https://news.yahoo.com/michigan-republicans-call-meeting-consider-215046569.html)
-- Jan 02 - [Man mowed down by fiance was ‘killed by the person he trusted most’](https://news.yahoo.com/ethics-student-murdered-her-fianc-122153247.html)
+- Jan 02 - [Texas can ban emergency abortions despite federal guidance, court rules](https://news.yahoo.com/texas-ban-emergency-abortions-despite-223123881.html)
+- Jan 02 - [Jeffrey Epstein Documents: What's Happening With Newly Unsealed List of Names](https://www.yahoo.com/entertainment/jeffrey-epstein-documents-whats-happening-215108434.html)
 - Jan 02 - [Kennedy cousin whose murder conviction was overturned sues former cop, Connecticut town](https://news.yahoo.com/kennedy-cousin-whose-murder-conviction-211314759.html)
+- Jan 02 - [Why Isn’t The Ouster of Harvard's First Black President Going Viral Among Black Folks? Maybe Because Claudine Gay Doesn't Feel Like She's One of Us.](https://news.yahoo.com/why-isn-t-ouster-harvards-211000194.html)
 - Jan 02 - [You Won't Believe the Racist Things This 80-Year-Old Vietnam Vet Said That Cost Him His Job](https://news.yahoo.com/wont-believe-racist-things-80-210500145.html)
-- Jan 02 - [Suburbs put the brakes on migrant bus arrivals after crackdowns in Chicago and New York](https://news.yahoo.com/suburbs-put-brakes-migrant-bus-210219923.html)
 <!-- feed end -->
 
 ### Onstream
