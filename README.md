@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Livestream Captures Moment of Deadly Plane Collision at Tokyo Airport](https://news.yahoo.com/livestream-captures-moment-deadly-plane-124551229.html)
+- Jan 02 - [Turkey to block UK minehunter ships intended for Ukraine](https://news.yahoo.com/turkey-block-uk-minehunter-ships-133328661.html)
+- Jan 02 - [Watch: Plane on Fire at Tokyo Airport After Deadly Collision](https://finance.yahoo.com/video/watch-plane-fire-tokyo-airport-101400056.html)
+- Jan 02 - [A Scientist Says Humans Were Meant to Live So Much Longer—Then the Dinosaurs Ruined It](https://www.yahoo.com/lifestyle/scientist-says-humans-were-meant-130000810.html)
 - Jan 02 - [I’m 55 years old with $0 in savings — have I lost all hope of a comfy retirement? Not yet. But do these 3 crucial things ASAP](https://finance.yahoo.com/news/m-55-years-old-zero-151500300.html)
 - Jan 02 - [Video appears to show passengers shouting inside a Japan Airlines plane as it tried to land while engulfed in flames](https://news.yahoo.com/video-appears-show-passengers-shouting-120801930.html)
-- Jan 02 - [Plane bursts into flames on airport runway in Tokyo](https://news.yahoo.com/plane-bursts-flames-airport-runway-101903306.html)
-- Jan 02 - [Trump paid me to find voter fraud. Then he lied after I found 2020 election wasn't stolen.](https://news.yahoo.com/trump-paid-voter-fraud-then-101742863.html)
 <!-- feed end -->
 
 ### Onstream
