@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [South Korea opposition chief stabbed in neck - media](https://news.yahoo.com/south-korea-opposition-chief-stabbed-014240492.html)
-- Jan 02 - [Powerful earthquakes leave at least eight dead, destroy buildings along Japan's western coast](https://news.yahoo.com/powerful-earthquakes-leave-least-four-011316340.html)
 - Jan 02 - [Missing exchange student found cold and scared after what police call a ‘cyber-kidnapping’](https://news.yahoo.com/missing-exchange-student-found-cold-000908193.html)
+- Jan 02 - [Doctor who delivered NYC’s first New Year baby didn’t know he also delivered dad](https://news.yahoo.com/doctor-delivered-nyc-first-baby-021600603.html)
+- Jan 02 - [South Korea opposition chief stabbed by autograph-seeker](https://news.yahoo.com/south-korea-opposition-chief-stabbed-014240492.html)
+- Jan 02 - [Powerful earthquakes leave at least eight dead, destroy buildings along Japan's western coast](https://news.yahoo.com/powerful-earthquakes-leave-least-four-011316340.html)
 - Jan 02 - [Video of truck driver harassing diners at fast food restaurant sparks outrage: ‘Should be a felony’](https://www.yahoo.com/lifestyle/video-truck-driver-harassing-diners-000000906.html)
-- Jan 02 - [Fact Check: Meet Gigantopithecus the Largest Ape Ever Known To Exist](https://news.yahoo.com/fact-check-meet-gigantopithecus-largest-000000771.html)
 <!-- feed end -->
 
 ### Onstream
