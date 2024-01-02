@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Disputes over China ties sour Taiwan election campaign](https://news.yahoo.com/disputes-over-china-ties-sour-064617338.html)
-- Jan 02 - [Rescuers rush to reach survivors of Japan's quake](https://news.yahoo.com/rescuers-rush-reach-survivors-japans-063220864.html)
-- Jan 02 - [A boozy banana drink in Uganda is under threat as authorities move to restrict home brewers](https://news.yahoo.com/boozy-banana-drink-uganda-under-060353937.html)
-- Jan 02 - [A missing person with no memory: How investigators solved the cold case of Seven Doe](https://news.yahoo.com/missing-person-no-memory-investigators-050649898.html)
+- Jan 02 - [South Korea opposition leader stabbed in the neck](https://news.yahoo.com/south-korea-opposition-leader-stabbed-075518570.html)
 - Jan 02 - [A couple paid $80,000 after being told their teen son was kidnapped. He was found living in a tent outside Salt Lake City, police said.](https://news.yahoo.com/couple-paid-80-000-being-044134936.html)
+- Jan 02 - [Wild video shows moment dam cracked under pressure: ‘[This is] probably why old dams are getting removed now’](https://www.yahoo.com/lifestyle/wild-video-shows-moment-dam-030000320.html)
+- Jan 02 - [Doctor who delivered NYC’s first New Year baby didn’t know he also delivered dad](https://news.yahoo.com/doctor-delivered-nyc-first-baby-021600603.html)
+- Jan 02 - [Powerful earthquakes leave at least 48 dead, destroy buildings along Japan's western coast](https://news.yahoo.com/powerful-earthquakes-leave-least-four-011316340.html)
 <!-- feed end -->
 
 ### Onstream
