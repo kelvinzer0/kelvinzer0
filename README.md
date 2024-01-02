@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 02 - [Russia says it has a hit list of potential targets to seize if the West confiscates its assets to help Ukraine](https://finance.yahoo.com/news/russia-says-hit-list-potential-042017660.html)
-- Jan 02 - [For investors, 2024 is year of transition to a new economic order](https://finance.yahoo.com/news/investors-2024-transition-economic-order-110741811.html)
-- Jan 02 - [Watch: Passenger jet bursts into flames at Tokyo airport ‘after hitting coast guard plane’](https://news.yahoo.com/plane-burst-flames-tokyo-airport-094337867.html)
+- Jan 02 - [Livestream Captures Moment of Deadly Plane Collision at Tokyo Airport](https://news.yahoo.com/livestream-captures-moment-deadly-plane-124551229.html)
+- Jan 02 - [I’m 55 years old with $0 in savings — have I lost all hope of a comfy retirement? Not yet. But do these 3 crucial things ASAP](https://finance.yahoo.com/news/m-55-years-old-zero-151500300.html)
+- Jan 02 - [Video appears to show passengers shouting inside a Japan Airlines plane as it tried to land while engulfed in flames](https://news.yahoo.com/video-appears-show-passengers-shouting-120801930.html)
 - Jan 02 - [Plane bursts into flames on airport runway in Tokyo](https://news.yahoo.com/plane-bursts-flames-airport-runway-101903306.html)
 - Jan 02 - [Trump paid me to find voter fraud. Then he lied after I found 2020 election wasn't stolen.](https://news.yahoo.com/trump-paid-voter-fraud-then-101742863.html)
 <!-- feed end -->
