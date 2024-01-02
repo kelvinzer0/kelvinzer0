@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 02 - [Russia says it has a hit list of potential targets to seize if the West confiscates its assets to help Ukraine](https://finance.yahoo.com/news/russia-says-hit-list-potential-042017660.html)
+- Jan 02 - [For investors, 2024 is year of transition to a new economic order](https://finance.yahoo.com/news/investors-2024-transition-economic-order-110741811.html)
 - Jan 02 - [Watch: Passenger jet bursts into flames at Tokyo airport ‘after hitting coast guard plane’](https://news.yahoo.com/plane-burst-flames-tokyo-airport-094337867.html)
+- Jan 02 - [Plane bursts into flames on airport runway in Tokyo](https://news.yahoo.com/plane-bursts-flames-airport-runway-101903306.html)
 - Jan 02 - [Trump paid me to find voter fraud. Then he lied after I found 2020 election wasn't stolen.](https://news.yahoo.com/trump-paid-voter-fraud-then-101742863.html)
-- Jan 02 - [Watch: Plane on Fire at Tokyo Airport After Collision](https://finance.yahoo.com/video/watch-plane-fire-tokyo-airport-101400056.html)
-- Jan 02 - [Passengers escape blaze on Japan Airlines plane after collision at Tokyo airport](https://news.yahoo.com/fire-breaks-plane-runway-japans-091938513.html)
-- Jan 02 - [U.S. property reinsurance rates rise by up to 50% on Jan 1-broker says](https://news.yahoo.com/u-property-reinsurance-rates-rise-083806051.html)
 <!-- feed end -->
 
 ### Onstream
