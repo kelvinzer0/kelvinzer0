@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - [Saving the Panama Canal Will Take Years and Cost Billions, If It’s Even Possible](https://finance.yahoo.com/news/saving-panama-canal-years-cost-000011626.html)
+- Jan 02 - [Prosecutors recommend six months in prison for a man at the center of a Jan. 6 conspiracy theory](https://news.yahoo.com/prosecutors-recommend-six-months-prison-235725016.html)
+- Jan 02 - [Encino woman, 88, had private security for protection. A guard shot her on New Year's Eve](https://news.yahoo.com/l-woman-88-had-private-233831263.html)
 - Jan 02 - [Texas can ban emergency abortions despite federal guidance, court rules](https://news.yahoo.com/texas-ban-emergency-abortions-despite-223123881.html)
 - Jan 02 - [Jeffrey Epstein Documents: What's Happening With Newly Unsealed List of Names](https://www.yahoo.com/entertainment/jeffrey-epstein-documents-whats-happening-215108434.html)
-- Jan 02 - [Kennedy cousin whose murder conviction was overturned sues former cop, Connecticut town](https://news.yahoo.com/kennedy-cousin-whose-murder-conviction-211314759.html)
-- Jan 02 - [Why Isn’t The Ouster of Harvard's First Black President Going Viral Among Black Folks? Maybe Because Claudine Gay Doesn't Feel Like She's One of Us.](https://news.yahoo.com/why-isn-t-ouster-harvards-211000194.html)
-- Jan 02 - [You Won't Believe the Racist Things This 80-Year-Old Vietnam Vet Said That Cost Him His Job](https://news.yahoo.com/wont-believe-racist-things-80-210500145.html)
 <!-- feed end -->
 
 ### Onstream
