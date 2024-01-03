@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - [Ex-Rock Musician Arrested In Killing Of Missing Girlfriend After Human Remains Found](https://news.yahoo.com/ex-rock-musician-arrested-killing-200136201.html)
 - Jan 03 - [Firefighters battling large fire at the home of Miami Dolphins receiver Tyreek Hill](https://news.yahoo.com/firefighters-battling-large-fire-home-195605113.html)
 - Jan 03 - [Police investigate as Zara Aleena’s killer ‘caught having sex with prison worker’](https://news.yahoo.com/police-investigate-zara-aleena-killer-194502612.html)
 - Jan 03 - [Passenger on Margaritaville cruise says she was raped, impregnated by bartender](https://news.yahoo.com/passenger-margaritaville-cruise-says-she-191525362.html)
-- Jan 03 - [I was raped in a virtual world – and it felt all too real](https://news.yahoo.com/raped-virtual-world-felt-too-180000181.html)
-- Jan 03 - [Court records related to Jeffrey Epstein are set to be released, but they aren't a client list](https://news.yahoo.com/court-records-related-jeffrey-epstein-174305675.html)
+- Jan 03 - [Police PIT On Fleeing Mustang Turns Fatal](https://news.yahoo.com/police-pit-fleeing-mustang-turns-190000631.html)
 <!-- feed end -->
 
 ### Onstream
