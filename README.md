@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 03 - [North Korea's Kim calls for 'radical improvement' in farm machine sector](https://news.yahoo.com/north-koreas-kim-calls-radical-013713341.html)
+- Jan 03 - [A congressman and a senator's son have jumped into the Senate race to succeed Mitt Romney in Utah](https://news.yahoo.com/congressman-senators-son-jumped-senate-012239152.html)
 - Jan 03 - [Justice Dept. accuses 2 political operatives of hiding foreign lobbying during Trump administration](https://news.yahoo.com/justice-dept-accuses-2-political-011523340.html)
 - Jan 03 - [Trump, potential VP pick and former actress swarm Iowa ahead of caucuses](https://news.yahoo.com/trump-potential-vp-pick-former-005853873.html)
 - Jan 03 - [Saving the Panama Canal Will Take Years and Cost Billions, If It’s Even Possible](https://finance.yahoo.com/news/saving-panama-canal-years-cost-000011626.html)
-- Jan 02 - [Encino woman, 88, had private security for protection. A guard shot her on New Year's Eve](https://news.yahoo.com/l-woman-88-had-private-233831263.html)
 <!-- feed end -->
 
 ### Onstream
