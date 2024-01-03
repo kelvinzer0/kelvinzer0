@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - [Trump legal news brief: Trump asks Supreme Court to intervene in Colorado ballot ban, setting up high-stakes battle](https://news.yahoo.com/trump-legal-news-brief-trump-asks-supreme-court-to-intervene-in-colorado-ballot-ban-setting-up-high-stakes-battle-191050460.html)
+- Jan 03 - [The Supreme Court is expected to determine whether Trump can keep running for president. Here's why](https://news.yahoo.com/supreme-court-expected-determine-whether-223358676.html)
+- Jan 03 - [Kevin McCarthy gives cheeky answer for his newest government gig](https://news.yahoo.com/kevin-mccarthy-gives-cheeky-answer-222456095.html)
+- Jan 03 - ['Debtor's prison' lawsuit filed against St. Louis suburb resolved with $2.9 million settlement](https://news.yahoo.com/debtors-prison-lawsuit-filed-against-212556758.html)
 - Jan 03 - [It took decades, but San Francisco finally installs nets to stop suicides off Golden Gate Bridge](https://news.yahoo.com/took-decades-san-francisco-finally-211840024.html)
-- Jan 03 - [A family missed out on their dream vacation all because of a 1-centimeter tear in their son's passport](https://news.yahoo.com/family-missed-dream-vacation-because-210217872.html)
-- Jan 03 - [Ex-Rock Musician Arrested In Killing Of Missing Girlfriend After Human Remains Found](https://news.yahoo.com/ex-rock-musician-arrested-killing-200136201.html)
-- Jan 03 - [Firefighters battle large fire at the home of Miami Dolphins receiver Tyreek Hill](https://news.yahoo.com/firefighters-battling-large-fire-home-195605113.html)
-- Jan 03 - [Sister Thwarts Possible Kidnapping of 4-Year-Old](https://news.yahoo.com/sister-thwarts-possible-kidnapping-4-195101170.html)
 <!-- feed end -->
 
 ### Onstream
