@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 03 - [Trump's vows to deport millions are undercut by his White House record and one family's story](https://news.yahoo.com/trumps-vows-deport-millions-undercut-051544580.html)
 - Jan 03 - [Space photos show Japan's ground splitting open and mass destruction after a powerful 7.6-magnitude earthquake](https://news.yahoo.com/space-photos-show-japans-ground-045330883.html)
+- Jan 03 - [China unveils new images of its next-generation aircraft carrier](https://news.yahoo.com/china-unveils-images-next-generation-040157822.html)
 - Jan 03 - [Pornhub blocks Montana and North Carolina as their age verification laws take effect](https://news.yahoo.com/pornhub-blocks-montana-and-north-carolina-as-their-age-verification-laws-take-effect-033830719.html)
 - Jan 03 - [Hannity announces move to Florida from New York: ‘I am done’](https://news.yahoo.com/hannity-announces-move-florida-york-020358796.html)
-- Jan 03 - [North Korea's Kim calls for 'radical improvement' in farm machine sector](https://news.yahoo.com/north-koreas-kim-calls-radical-013713341.html)
 <!-- feed end -->
 
 ### Onstream
