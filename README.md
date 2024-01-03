@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - [The captain of a plane that collided with a Japan Airlines jet said he was cleared for takeoff, but traffic control transcripts tell a different story](https://news.yahoo.com/captain-plane-collided-japan-airlines-145633950.html)
 - Jan 03 - [Legal experts highlight "lurid" Jack Smith warning that may hint at "scandalous Trump crimes"](https://news.yahoo.com/legal-experts-highlight-lurid-jack-140608028.html)
+- Jan 03 - [Jaspreet Singh: Why ‘Fake Rich’ Americans Are Going Bankrupt](https://finance.yahoo.com/news/jaspreet-singh-why-fake-rich-140102955.html)
 - Jan 03 - [As a dementia nurse, this is what I wish everyone knew about the illness](https://www.yahoo.com/lifestyle/dementia-nurse-wish-everyone-knew-130000135.html)
-- Jan 03 - ['The new American dream is to leave': Most in the US don't believe hard work will get you ahead. Here's what some are striving for instead](https://finance.yahoo.com/news/american-dream-leave-most-us-123000387.html)
-- Jan 03 - [Iran says at least 103 people killed, 188 wounded in bombing at ceremony honoring slain general](https://news.yahoo.com/irans-state-tv-reports-2-122209769.html)
-- Jan 03 - [Amazon still working on Woodburn distribution center, billed as biggest building in Oregon](https://finance.yahoo.com/news/amazon-still-working-woodburn-distribution-120240613.html)
+- Jan 03 - [Lululemon’s billionaire founder slams the company’s diversity and inclusion efforts: ‘You’ve got to be clear that you don’t want certain customers coming in’](https://finance.yahoo.com/news/lululemon-billionaire-founder-slams-company-123500897.html)
 <!-- feed end -->
 
 ### Onstream
