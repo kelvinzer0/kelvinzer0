@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [Major Update in Kelly Clarkson and Brandon Blackstock's Spousal Support Situation](https://www.yahoo.com/lifestyle/major-kelly-clarkson-brandon-blackstocks-123500934.html)
+- Jan 03 - [Legal experts highlight "lurid" Jack Smith warning that may hint at "scandalous Trump crimes"](https://news.yahoo.com/legal-experts-highlight-lurid-jack-140608028.html)
+- Jan 03 - [As a dementia nurse, this is what I wish everyone knew about the illness](https://www.yahoo.com/lifestyle/dementia-nurse-wish-everyone-knew-130000135.html)
 - Jan 03 - ['The new American dream is to leave': Most in the US don't believe hard work will get you ahead. Here's what some are striving for instead](https://finance.yahoo.com/news/american-dream-leave-most-us-123000387.html)
-- Jan 03 - [Iran says at least 103 people killed, 141 wounded in blasts at ceremony honoring slain general](https://news.yahoo.com/irans-state-tv-reports-2-122209769.html)
-- Jan 03 - [UPDATE 4-More than 70 killed in 'terrorist attacks' near Iranian Guards commander Soleimani's tomb during ceremony](https://finance.yahoo.com/news/1-iranian-state-media-report-120546545.html)
+- Jan 03 - [Iran says at least 103 people killed, 188 wounded in bombing at ceremony honoring slain general](https://news.yahoo.com/irans-state-tv-reports-2-122209769.html)
 - Jan 03 - [Amazon still working on Woodburn distribution center, billed as biggest building in Oregon](https://finance.yahoo.com/news/amazon-still-working-woodburn-distribution-120240613.html)
 <!-- feed end -->
 
