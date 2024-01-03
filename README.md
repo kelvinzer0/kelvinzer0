@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 03 - [Ukraine struck a new $250 million Russian artillery radar system right after the military touted its arrival](https://news.yahoo.com/ukraine-struck-250-million-russian-164258866.html)
+- Jan 03 - [I was raped in a virtual world – and it felt all too real](https://news.yahoo.com/raped-virtual-world-felt-too-180000181.html)
+- Jan 03 - [Court records related to Jeffrey Epstein are set to be released, but they aren't a client list](https://news.yahoo.com/court-records-related-jeffrey-epstein-174305675.html)
 - Jan 03 - [The captain of a plane that collided with a Japan Airlines jet said he was cleared for takeoff, but air-traffic-control transcripts tell a different story](https://news.yahoo.com/captain-plane-collided-japan-airlines-145633950.html)
-- Jan 03 - [‘Mysterious’ inscription on ancient sphinx is deciphered, revealing ‘unusual’ message](https://news.yahoo.com/mysterious-inscription-ancient-sphinx-deciphered-155317427.html)
-- Jan 03 - [Jaspreet Singh: Why ‘Fake Rich’ Americans Are Going Bankrupt](https://finance.yahoo.com/news/jaspreet-singh-why-fake-rich-140102955.html)
-- Jan 03 - [As a dementia nurse, this is what I wish everyone knew about the illness](https://www.yahoo.com/lifestyle/dementia-nurse-wish-everyone-knew-130000135.html)
+- Jan 03 - [Javelina bites Arizona woman, fights with her dogs, state wildlife officials say](https://news.yahoo.com/javelina-bites-arizona-woman-fights-161555956.html)
+- Jan 03 - [Video shows moment of explosion in Iran](https://news.yahoo.com/video-shows-moment-explosion-iran-161105664.html)
 <!-- feed end -->
 
 ### Onstream
