@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - [Trump's vows to deport millions are undercut by his White House record and one family's story](https://news.yahoo.com/trumps-vows-deport-millions-undercut-051544580.html)
+- Jan 03 - [Space photos show Japan's ground splitting open and mass destruction after a powerful 7.6-magnitude earthquake](https://news.yahoo.com/space-photos-show-japans-ground-045330883.html)
 - Jan 03 - [Pornhub blocks Montana and North Carolina as their age verification laws take effect](https://news.yahoo.com/pornhub-blocks-montana-and-north-carolina-as-their-age-verification-laws-take-effect-033830719.html)
 - Jan 03 - [Hannity announces move to Florida from New York: ‘I am done’](https://news.yahoo.com/hannity-announces-move-florida-york-020358796.html)
 - Jan 03 - [North Korea's Kim calls for 'radical improvement' in farm machine sector](https://news.yahoo.com/north-koreas-kim-calls-radical-013713341.html)
-- Jan 03 - [A congressman and a senator's son have jumped into the Senate race to succeed Mitt Romney in Utah](https://news.yahoo.com/congressman-senators-son-jumped-senate-012239152.html)
-- Jan 03 - [Justice Dept. accuses 2 political operatives of hiding foreign lobbying during Trump administration](https://news.yahoo.com/justice-dept-accuses-2-political-011523340.html)
 <!-- feed end -->
 
 ### Onstream
