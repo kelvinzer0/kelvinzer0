@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - [North Korea's Kim calls for 'radical improvement' in farm machine sector](https://news.yahoo.com/north-koreas-kim-calls-radical-013713341.html)
+- Jan 03 - [Justice Dept. accuses 2 political operatives of hiding foreign lobbying during Trump administration](https://news.yahoo.com/justice-dept-accuses-2-political-011523340.html)
+- Jan 03 - [Trump, potential VP pick and former actress swarm Iowa ahead of caucuses](https://news.yahoo.com/trump-potential-vp-pick-former-005853873.html)
 - Jan 03 - [Saving the Panama Canal Will Take Years and Cost Billions, If It’s Even Possible](https://finance.yahoo.com/news/saving-panama-canal-years-cost-000011626.html)
-- Jan 02 - [Prosecutors recommend six months in prison for a man at the center of a Jan. 6 conspiracy theory](https://news.yahoo.com/prosecutors-recommend-six-months-prison-235725016.html)
 - Jan 02 - [Encino woman, 88, had private security for protection. A guard shot her on New Year's Eve](https://news.yahoo.com/l-woman-88-had-private-233831263.html)
-- Jan 02 - [Texas can ban emergency abortions despite federal guidance, court rules](https://news.yahoo.com/texas-ban-emergency-abortions-despite-223123881.html)
-- Jan 02 - [Jeffrey Epstein Documents: What's Happening With Newly Unsealed List of Names](https://www.yahoo.com/entertainment/jeffrey-epstein-documents-whats-happening-215108434.html)
 <!-- feed end -->
 
 ### Onstream
