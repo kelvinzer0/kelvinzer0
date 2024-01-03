@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - [How drunken jealousy turned a promising Cambridge postgraduate into a murderer](https://news.yahoo.com/drunken-jealousy-turned-promising-cambridge-111000200.html)
 - Jan 03 - [Psychic Delivers Prophecy For Trump On Fox News, And It Doesn't Sound Good](https://news.yahoo.com/psychic-delivers-prophecy-trump-fox-104228857.html)
 - Jan 03 - ["They Let Him Go A Few Weeks Later": People Are Sharing The Wildest And Unexpected Reasons They've Seen Others Get Fired For](https://www.yahoo.com/lifestyle/let-him-few-weeks-later-101602101.html)
+- Jan 03 - [Butt-slapping accusation leads to 20 months of limbo for teen in slow-moving SafeSport Center case](https://news.yahoo.com/butt-slapping-accusation-leads-20-072324396.html)
 - Jan 03 - [Southern California couple attacked by armed robbers while selling iPad](https://news.yahoo.com/southern-california-couple-attacked-armed-070428954.html)
-- Jan 03 - [Trump's vows to deport millions are undercut by his White House record and one family's story](https://news.yahoo.com/trumps-vows-deport-millions-undercut-051544580.html)
-- Jan 03 - [Space photos show Japan's ground splitting open and mass destruction after a powerful 7.6-magnitude earthquake](https://news.yahoo.com/space-photos-show-japans-ground-045330883.html)
 <!-- feed end -->
 
 ### Onstream
