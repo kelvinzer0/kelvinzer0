@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [Iran suspects suicide bombers carried out attack on commemoration for slain general that killed 84](https://news.yahoo.com/iran-suspects-suicide-bombers-carried-144011706.html)
-- Jan 04 - [“No shame. No decency”: Experts shocked at "weakness" of Trump’s bizarre Supreme Court ballot appeal](https://news.yahoo.com/no-shame-no-decency-experts-141444961.html)
-- Jan 04 - [Nor’easter watch: Where will the most snow fall in Massachusetts this weekend?](https://news.yahoo.com/weekend-storm-nor-easter-could-121005468.html)
-- Jan 04 - [People are divided over grocery-store worker who objected to a mom letting her kid eat baby food she hadn't bought yet](https://news.yahoo.com/people-divided-over-grocery-store-133535459.html)
-- Jan 04 - [Health inspections close some Fresno County restaurants in December. Here’s what was found](https://news.yahoo.com/health-inspections-close-fresno-county-133000423.html)
+- Jan 04 - [Trump pushes to hold Jack Smith in contempt, block further filings in Jan. 6 case](https://news.yahoo.com/trump-pushes-hold-jack-smith-153643545.html)
+- Jan 04 - [After Two Decades Undercover, She’s Ready to Tell the Real Story of Human Trafficking](https://www.yahoo.com/entertainment/two-decades-undercover-she-ready-150522580.html)
+- Jan 04 - [Trump business got at least $7.8 million in foreign payments during presidency -report](https://news.yahoo.com/trump-business-got-least-7-150421699.html)
+- Jan 04 - [Jeff Bezos Encouraged His Brother And Sister To Invest $10,000 In Amazon — Their Stake Grew 10,249,900% And Now Potentially Is Worth Over $1 Billion](https://finance.yahoo.com/news/jeff-bezos-encouraged-brother-sister-150410268.html)
+- Jan 04 - [Weekend nor’easter: Latest storm timeline & where the most snow will fall in Massachusetts](https://news.yahoo.com/weekend-storm-nor-easter-could-121005468.html)
 <!-- feed end -->
 
 ### Onstream
