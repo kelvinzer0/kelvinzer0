@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [Airstrike in central Baghdad kills Iran-backed militia leader as regional tensions escalate](https://news.yahoo.com/airstrike-central-baghdad-kills-iran-105233758.html)
+- Jan 04 - [Older adults can save on 2023 taxes by claiming an extra deduction. Here's how to do it.](https://finance.yahoo.com/news/older-adults-save-2023-taxes-102429232.html)
 - Jan 04 - [South Korea views the young daughter of North Korean leader Kim Jong Un as his likely successor](https://news.yahoo.com/south-korea-views-young-daughter-091407073.html)
 - Jan 04 - [A 27-year-old thought he was losing weight and ached because of his new CrossFit regime. He had colon cancer.](https://www.yahoo.com/lifestyle/27-old-thought-losing-weight-090001696.html)
-- Jan 04 - [Arrest made in killings of pregnant Texas teen and her boyfriend, police say](https://news.yahoo.com/arrest-made-killings-pregnant-texas-064347451.html)
 - Jan 04 - [WATCH: Clark County, Nevada inmate attacks judge in court](https://news.yahoo.com/watch-clark-county-nevada-inmate-015324783.html)
+- Jan 04 - [Nevada judge attacked by defendant during sentencing in Vegas courtroom scene captured on video](https://news.yahoo.com/nevada-judge-attacked-defendant-during-011707106.html)
 <!-- feed end -->
 
 ### Onstream
