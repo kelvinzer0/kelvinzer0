@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jan 04 - [WATCH: Clark County, Nevada inmate attacks judge in court](https://news.yahoo.com/watch-clark-county-nevada-inmate-015324783.html)
 - Jan 04 - [Nevada judge attacked by defendant during sentencing in Vegas courtroom scene captured on video](https://news.yahoo.com/nevada-judge-attacked-defendant-during-011707106.html)
 - Jan 03 - [The names of more than 170 Jeffrey Epstein associates were just revealed in unsealed court documents. Here's what we know.](https://news.yahoo.com/names-more-170-jeffrey-epstein-235431140.html)
-- Jan 03 - [Police make another gun-related arrest at Naperville TopGolf, fifth since September](https://news.yahoo.com/police-another-gun-related-arrest-231600409.html)
+- Jan 03 - [Judge dismisses felony sexual battery charges against Jackson Mahomes](https://sports.yahoo.com/judge-dismisses-felony-sexual-battery-charges-against-jackson-mahomes-231353421.html)
 <!-- feed end -->
 
 ### Onstream
