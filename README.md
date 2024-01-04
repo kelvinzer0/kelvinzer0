@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [Absolutely Wild Video Shows Felon Assaulting Las Vegas Judge in Flying Leap Over Bench](https://www.yahoo.com/entertainment/absolutely-wild-video-shows-felon-011239519.html)
+- Jan 04 - [Nevada judge attacked by defendant during sentencing in Vegas courtroom scene captured on video](https://news.yahoo.com/nevada-judge-attacked-defendant-during-011707106.html)
 - Jan 03 - [The names of more than 170 Jeffrey Epstein associates were just revealed in unsealed court documents. Here's what we know.](https://news.yahoo.com/names-more-170-jeffrey-epstein-235431140.html)
 - Jan 03 - [German Heiress Christina Block's 2 Kids Abducted During NYE Party](https://www.yahoo.com/entertainment/german-heiress-christina-blocks-2-232300086.html)
 - Jan 03 - [Judge dismisses felony sexual battery charges against Jackson Mahomes](https://sports.yahoo.com/judge-dismisses-felony-sexual-battery-charges-against-jackson-mahomes-231353421.html)
