@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 03 - [The names of more than 170 Jeffrey Epstein associates were just revealed in unsealed court documents. Here's what we know.](https://news.yahoo.com/names-more-170-jeffrey-epstein-235431140.html)
+- Jan 03 - [Police make another gun-related arrest at Naperville TopGolf, fifth since September](https://news.yahoo.com/police-another-gun-related-arrest-231600409.html)
+- Jan 03 - [Judge dismisses felony sexual battery charges against Jackson Mahomes](https://sports.yahoo.com/judge-dismisses-felony-sexual-battery-charges-against-jackson-mahomes-231353421.html)
 - Jan 03 - [Trump legal news brief: Trump asks Supreme Court to intervene in Colorado ballot ban, setting up high-stakes battle](https://news.yahoo.com/trump-legal-news-brief-trump-asks-supreme-court-to-intervene-in-colorado-ballot-ban-setting-up-high-stakes-battle-191050460.html)
-- Jan 03 - [The Supreme Court is expected to determine whether Trump can keep running for president. Here's why](https://news.yahoo.com/supreme-court-expected-determine-whether-223358676.html)
-- Jan 03 - [Kevin McCarthy gives cheeky answer for his newest government gig](https://news.yahoo.com/kevin-mccarthy-gives-cheeky-answer-222456095.html)
-- Jan 03 - ['Debtor's prison' lawsuit filed against St. Louis suburb resolved with $2.9 million settlement](https://news.yahoo.com/debtors-prison-lawsuit-filed-against-212556758.html)
-- Jan 03 - [It took decades, but San Francisco finally installs nets to stop suicides off Golden Gate Bridge](https://news.yahoo.com/took-decades-san-francisco-finally-211840024.html)
+- Jan 03 - [‘Code Blue’ in effect for Allegheny County, City of Pittsburgh starting Thursday night](https://news.yahoo.com/code-blue-effect-allegheny-county-224029500.html)
 <!-- feed end -->
 
 ### Onstream
