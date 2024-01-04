@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 04 - [Iran suspects suicide bombers carried out attack on commemoration for slain general that killed 84](https://news.yahoo.com/iran-suspects-suicide-bombers-carried-144011706.html)
+- Jan 04 - [“No shame. No decency”: Experts shocked at "weakness" of Trump’s bizarre Supreme Court ballot appeal](https://news.yahoo.com/no-shame-no-decency-experts-141444961.html)
 - Jan 04 - [Nor’easter watch: Where will the most snow fall in Massachusetts this weekend?](https://news.yahoo.com/weekend-storm-nor-easter-could-121005468.html)
-- Jan 04 - [Ukraine quickly fixed a huge mistake in how it used tanks. Russia then repeated the error on a grand scale.](https://news.yahoo.com/ukraine-quickly-fixed-huge-mistake-125218134.html)
-- Jan 04 - ['They should have their butts kicked': This Oregon woman wants to divide her late mother's ranch evenly with her siblings — but they put money into it and she didn't. Dave Ramsey responds](https://finance.yahoo.com/news/butts-kicked-oregon-woman-wants-113000406.html)
-- Jan 04 - [Older adults can save on 2023 taxes by claiming an extra deduction. Here's how to do it.](https://finance.yahoo.com/news/older-adults-save-2023-taxes-102429232.html)
-- Jan 04 - [A 27-year-old thought he was losing weight and ached because of his new CrossFit regime. He had colon cancer.](https://www.yahoo.com/lifestyle/27-old-thought-losing-weight-090001696.html)
+- Jan 04 - [People are divided over grocery-store worker who objected to a mom letting her kid eat baby food she hadn't bought yet](https://news.yahoo.com/people-divided-over-grocery-store-133535459.html)
+- Jan 04 - [Health inspections close some Fresno County restaurants in December. Here’s what was found](https://news.yahoo.com/health-inspections-close-fresno-county-133000423.html)
 <!-- feed end -->
 
 ### Onstream
