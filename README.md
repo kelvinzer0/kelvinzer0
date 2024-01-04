@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 04 - [Absolutely Wild Video Shows Felon Assaulting Las Vegas Judge in Flying Leap Over Bench](https://www.yahoo.com/entertainment/absolutely-wild-video-shows-felon-011239519.html)
 - Jan 03 - [The names of more than 170 Jeffrey Epstein associates were just revealed in unsealed court documents. Here's what we know.](https://news.yahoo.com/names-more-170-jeffrey-epstein-235431140.html)
 - Jan 03 - [Police make another gun-related arrest at Naperville TopGolf, fifth since September](https://news.yahoo.com/police-another-gun-related-arrest-231600409.html)
 - Jan 03 - [Judge dismisses felony sexual battery charges against Jackson Mahomes](https://sports.yahoo.com/judge-dismisses-felony-sexual-battery-charges-against-jackson-mahomes-231353421.html)
-- Jan 03 - [Trump legal news brief: Trump asks Supreme Court to intervene in Colorado ballot ban, setting up high-stakes battle](https://news.yahoo.com/trump-legal-news-brief-trump-asks-supreme-court-to-intervene-in-colorado-ballot-ban-setting-up-high-stakes-battle-191050460.html)
-- Jan 03 - [‘Code Blue’ in effect for Allegheny County, City of Pittsburgh starting Thursday night](https://news.yahoo.com/code-blue-effect-allegheny-county-224029500.html)
+- Jan 03 - [Mother and uncle of a US serviceman are rescued from Gaza in a secret operation](https://news.yahoo.com/us-works-israel-egypt-mother-230512608.html)
 <!-- feed end -->
 
 ### Onstream
