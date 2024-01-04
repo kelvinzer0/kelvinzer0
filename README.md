@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [10 foods to avoid for high blood pressure: Canned vegetables, bread & more](https://news.yahoo.com/worst-foods-high-blood-pressure-194910224.html)
-- Jan 04 - [Weekend nor’easter: Latest storm timeline & where the most snow will fall in Massachusetts](https://news.yahoo.com/weekend-storm-nor-easter-could-121005468.html)
-- Jan 04 - [The Biggest Names from Jeffrey Epstein’s Unsealed Court Documents](https://news.yahoo.com/biggest-names-jeffrey-epstein-unsealed-170546536.html)
+- Jan 04 - [Expert: “Treasure trove” of documents debunks Trump claim that president isn’t an “officer” of US](https://news.yahoo.com/expert-treasure-trove-documents-debunks-201132328.html)
 - Jan 04 - [Unsealed documents show again how Jeffrey Epstein leveraged his powerful connections](https://news.yahoo.com/unsealed-documents-show-again-jeffrey-182308986.html)
 - Jan 04 - [Ex-rock musician arrested after human remains found in search for his missing girlfriend](https://news.yahoo.com/ex-rock-musician-arrested-human-175229742.html)
+- Jan 04 - [Pittsburgh Weekend Winter Storm: How much snow we could see and latest timing](https://news.yahoo.com/pittsburgh-weekend-winter-storm-much-174842106.html)
+- Jan 04 - [Fire at home of Dolphins receiver Tyreek Hill started by child playing with cigarette lighter](https://sports.yahoo.com/fire-home-dolphins-receiver-tyreek-171824647.html)
 <!-- feed end -->
 
 ### Onstream
