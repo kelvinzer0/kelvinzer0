@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 04 - [Airstrike in central Baghdad kills Iran-backed militia leader as regional tensions escalate](https://news.yahoo.com/airstrike-central-baghdad-kills-iran-105233758.html)
+- Jan 04 - [South Korea views the young daughter of North Korean leader Kim Jong Un as his likely successor](https://news.yahoo.com/south-korea-views-young-daughter-091407073.html)
+- Jan 04 - [A 27-year-old thought he was losing weight and ached because of his new CrossFit regime. He had colon cancer.](https://www.yahoo.com/lifestyle/27-old-thought-losing-weight-090001696.html)
 - Jan 04 - [Arrest made in killings of pregnant Texas teen and her boyfriend, police say](https://news.yahoo.com/arrest-made-killings-pregnant-texas-064347451.html)
-- Jan 04 - [Israel is winning. Its enemies are powerless to stop it](https://news.yahoo.com/israel-winning-enemies-powerless-stop-060000862.html)
 - Jan 04 - [WATCH: Clark County, Nevada inmate attacks judge in court](https://news.yahoo.com/watch-clark-county-nevada-inmate-015324783.html)
-- Jan 04 - [Nevada judge attacked by defendant during sentencing in Vegas courtroom scene captured on video](https://news.yahoo.com/nevada-judge-attacked-defendant-during-011707106.html)
-- Jan 03 - [The names of more than 170 Jeffrey Epstein associates were just revealed in unsealed court documents. Here's what we know.](https://news.yahoo.com/names-more-170-jeffrey-epstein-235431140.html)
 <!-- feed end -->
 
 ### Onstream
