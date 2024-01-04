@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [Trump pushes to hold Jack Smith in contempt, block further filings in Jan. 6 case](https://news.yahoo.com/trump-pushes-hold-jack-smith-153643545.html)
+- Jan 04 - [Houthis launch sea drone to attack ships hours after US, allies issue 'final warning'](https://news.yahoo.com/houthis-launch-sea-drone-attack-165723111.html)
+- Jan 04 - [Trump seeks to hold special counsel in contempt for violating pause in election case](https://news.yahoo.com/trump-seeks-hold-special-counsel-161002625.html)
 - Jan 04 - [After Two Decades Undercover, She’s Ready to Tell the Real Story of Human Trafficking](https://www.yahoo.com/entertainment/two-decades-undercover-she-ready-150522580.html)
-- Jan 04 - [Trump business got at least $7.8 million in foreign payments during presidency -report](https://news.yahoo.com/trump-business-got-least-7-150421699.html)
 - Jan 04 - [Jeff Bezos Encouraged His Brother And Sister To Invest $10,000 In Amazon — Their Stake Grew 10,249,900% And Now Potentially Is Worth Over $1 Billion](https://finance.yahoo.com/news/jeff-bezos-encouraged-brother-sister-150410268.html)
-- Jan 04 - [Weekend nor’easter: Latest storm timeline & where the most snow will fall in Massachusetts](https://news.yahoo.com/weekend-storm-nor-easter-could-121005468.html)
+- Jan 04 - [ISIS tactic to clear path through minefield inadvertently creates new obstacle for Russians - video](https://news.yahoo.com/isis-tactic-clear-path-minefield-150000887.html)
 <!-- feed end -->
 
 ### Onstream
