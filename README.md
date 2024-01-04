@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [Expert: “Treasure trove” of documents debunks Trump claim that president isn’t an “officer” of US](https://news.yahoo.com/expert-treasure-trove-documents-debunks-201132328.html)
-- Jan 04 - [Unsealed documents show again how Jeffrey Epstein leveraged his powerful connections](https://news.yahoo.com/unsealed-documents-show-again-jeffrey-182308986.html)
-- Jan 04 - [Ex-rock musician arrested after human remains found in search for his missing girlfriend](https://news.yahoo.com/ex-rock-musician-arrested-human-175229742.html)
-- Jan 04 - [Pittsburgh Weekend Winter Storm: How much snow we could see and latest timing](https://news.yahoo.com/pittsburgh-weekend-winter-storm-much-174842106.html)
-- Jan 04 - [Fire at home of Dolphins receiver Tyreek Hill started by child playing with cigarette lighter](https://sports.yahoo.com/fire-home-dolphins-receiver-tyreek-171824647.html)
+- Jan 04 - [Founding member of experimental rock band Mr. Bungle suspected of killing girlfriend in California](https://news.yahoo.com/founding-member-experimental-rock-band-215635617.html)
+- Jan 04 - [King's daughter says wars, gun violence, racism have pushed humanity to the brink](https://news.yahoo.com/kings-daughter-says-wars-gun-215610833.html)
+- Jan 04 - [Snow on the way: Winter storm watch issued in Massachusetts ahead of weekend nor’easter](https://news.yahoo.com/weekend-storm-nor-easter-could-121005468.html)
+- Jan 04 - [Terminally ill Connecticut woman ends her life on her own terms, in Vermont](https://news.yahoo.com/terminally-ill-connecticut-woman-ends-214408327.html)
+- Jan 04 - [Winter weather system headed to North Carolina](https://news.yahoo.com/winter-weather-system-headed-north-163145812.html)
 <!-- feed end -->
 
 ### Onstream
