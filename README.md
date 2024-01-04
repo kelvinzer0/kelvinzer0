@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 04 - [Arrest made in shooting deaths of pregnant Texas teen and boyfriend](https://news.yahoo.com/arrest-made-shooting-deaths-pregnant-050128969.html)
 - Jan 04 - [WATCH: Clark County, Nevada inmate attacks judge in court](https://news.yahoo.com/watch-clark-county-nevada-inmate-015324783.html)
 - Jan 04 - [Nevada judge attacked by defendant during sentencing in Vegas courtroom scene captured on video](https://news.yahoo.com/nevada-judge-attacked-defendant-during-011707106.html)
 - Jan 03 - [The names of more than 170 Jeffrey Epstein associates were just revealed in unsealed court documents. Here's what we know.](https://news.yahoo.com/names-more-170-jeffrey-epstein-235431140.html)
 - Jan 03 - [Judge dismisses felony sexual battery charges against Jackson Mahomes](https://sports.yahoo.com/judge-dismisses-felony-sexual-battery-charges-against-jackson-mahomes-231353421.html)
+- Jan 03 - [Mother and uncle of a US serviceman are rescued from Gaza in a secret operation](https://news.yahoo.com/us-works-israel-egypt-mother-230512608.html)
 <!-- feed end -->
 
 ### Onstream
