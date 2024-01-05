@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [US actor Christian Oliver and his 2 daughters died in a plane crash in the Caribbean, police say](https://news.yahoo.com/us-actor-christian-oliver-2-182213559.html)
+- Jan 05 - [Naperville has a new welcome sign at its border with Bolingbrook, built at a cost of $100,000](https://news.yahoo.com/naperville-welcome-sign-border-bolingbrook-173900923.html)
 - Jan 05 - [Elusive ‘alligator’-like creature found in treetops of Mexico. It’s a new species](https://news.yahoo.com/elusive-alligator-creature-found-treetops-173259785.html)
-- Jan 05 - [Ukraine just got a new Western air-defense system meant to wipe out Russian drones by firing 1,000 rounds per minute](https://news.yahoo.com/ukraine-just-got-western-air-172725064.html)
+- Jan 05 - [Englishman builds wall around home after years of flooding](https://news.yahoo.com/englishman-builds-wall-around-home-172949933.html)
 - Jan 05 - [Trump should be banned from NY real estate for 'outrageous' fraud, attorney general says](https://news.yahoo.com/trump-overstated-worth-billions-york-172332599.html)
-- Jan 05 - [US fugitive accused of faking his death to avoid rape charge in Utah is extradited from Scotland](https://news.yahoo.com/us-fugitive-accused-faking-death-170528488.html)
-- Jan 05 - [Lauren Boebert claims she's 'protecting my voters' by abandoning them for a safer district — but Colorado GOP officials are still stewing about her carpetbagging](https://news.yahoo.com/lauren-boebert-claims-shes-protecting-160527405.html)
 <!-- feed end -->
 
 ### Onstream
