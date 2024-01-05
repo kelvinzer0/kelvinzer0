@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [Casey Anthony lives a solitary life 12 years after she was found not guilty of her daughter's death — here's where she is now](https://www.yahoo.com/entertainment/casey-anthony-lives-solitary-life-020401594.html)
 - Jan 05 - [Florida venue cancels Marjorie Taylor Greene event after learning of its Jan. 6 focus](https://news.yahoo.com/florida-venue-cancels-marjorie-taylor-015016751.html)
 - Jan 04 - [Former Arkansas teacher accused of sex with student](https://news.yahoo.com/former-arkansas-teacher-accused-sex-234002277.html)
 - Jan 04 - [Milwaukee police officer who died following crash in Oak Creek was intoxicated, officials say](https://news.yahoo.com/milwaukee-police-officer-died-following-223131693.html)
 - Jan 04 - [Terminally ill Connecticut woman ends her life on her own terms, in Vermont](https://news.yahoo.com/terminally-ill-connecticut-woman-ends-214408327.html)
-- Jan 04 - [Iowa school shooting suspect filmed TikTok video of himself morning of shooting](https://news.yahoo.com/iowa-school-shooting-suspect-filmed-210210501.html)
 <!-- feed end -->
 
 ### Onstream
