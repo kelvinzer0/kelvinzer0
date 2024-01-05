@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [La. Teacher Accused of Molesting Teen in Car with Her Baby in Backseat, Wanting to Be Boy’s 'First'](https://www.yahoo.com/entertainment/la-teacher-accused-molesting-teen-193125193.html)
+- Jan 05 - [Two Women Sue Plastic Surgeon Who They Claim Operated on Them While Drunk, Leaving Them 'Disfigured' (Exclusive)](https://www.yahoo.com/entertainment/two-women-sue-plastic-surgeon-201516190.html)
+- Jan 05 - [The Gradual Release Of Jan. 6 Footage Has The Far Right Raging At House Republicans And Speaker Mike Johnson](https://news.yahoo.com/gradual-release-jan-6-footage-193823531.html)
 - Jan 05 - [LaPierre to step down as National Rifle Association leader](https://news.yahoo.com/wayne-lapierre-step-down-national-191427487.html)
 - Jan 05 - [Former GOP Congresswoman Caught Stealing Food Photos from the Internet and Passing Them Off as Her Own](https://www.yahoo.com/entertainment/former-gop-congresswoman-caught-stealing-184808135.html)
 - Jan 05 - [Crashed B-1B Bomber Carcass Visible At South Dakota Base](https://news.yahoo.com/crashed-b-1b-bomber-carcass-183516163.html)
-- Jan 05 - [US actor Christian Oliver and his 2 daughters died in a plane crash in the Caribbean, police say](https://news.yahoo.com/us-actor-christian-oliver-2-182213559.html)
 <!-- feed end -->
 
 ### Onstream
