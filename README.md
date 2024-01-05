@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [La. Teacher Accused of Molesting Teen in Car with Her Baby in Backseat, Wanting to Be Boy’s 'First'](https://www.yahoo.com/entertainment/la-teacher-accused-molesting-teen-193125193.html)
+- Jan 05 - [LaPierre to step down as National Rifle Association leader](https://news.yahoo.com/wayne-lapierre-step-down-national-191427487.html)
+- Jan 05 - [Former GOP Congresswoman Caught Stealing Food Photos from the Internet and Passing Them Off as Her Own](https://www.yahoo.com/entertainment/former-gop-congresswoman-caught-stealing-184808135.html)
+- Jan 05 - [Crashed B-1B Bomber Carcass Visible At South Dakota Base](https://news.yahoo.com/crashed-b-1b-bomber-carcass-183516163.html)
 - Jan 05 - [US actor Christian Oliver and his 2 daughters died in a plane crash in the Caribbean, police say](https://news.yahoo.com/us-actor-christian-oliver-2-182213559.html)
-- Jan 05 - [Naperville has a new welcome sign at its border with Bolingbrook, built at a cost of $100,000](https://news.yahoo.com/naperville-welcome-sign-border-bolingbrook-173900923.html)
-- Jan 05 - [Elusive ‘alligator’-like creature found in treetops of Mexico. It’s a new species](https://news.yahoo.com/elusive-alligator-creature-found-treetops-173259785.html)
-- Jan 05 - [Englishman builds wall around home after years of flooding](https://news.yahoo.com/englishman-builds-wall-around-home-172949933.html)
-- Jan 05 - [Trump should be banned from NY real estate for 'outrageous' fraud, attorney general says](https://news.yahoo.com/trump-overstated-worth-billions-york-172332599.html)
 <!-- feed end -->
 
 ### Onstream
