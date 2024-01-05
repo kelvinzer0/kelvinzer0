@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [White middle-aged men are ‘bottom of everything’ claims N word tribunal bank worker](https://news.yahoo.com/white-middle-aged-men-bottom-162729389.html)
+- Jan 05 - [Lauren Boebert claims she's 'protecting my voters' by abandoning them for a safer district — but Colorado GOP officials are still stewing about her carpetbagging](https://news.yahoo.com/lauren-boebert-claims-shes-protecting-160527405.html)
+- Jan 05 - [Some families of kidnapped migrants paid ransoms, Mexico minister says](https://news.yahoo.com/mexico-president-requested-us-visas-145304322.html)
 - Jan 05 - [Rays shortstop Wander Franco faces judge as prosecutors accuse him of having sex with a 14-year-old](https://sports.yahoo.com/rays-shortstop-wander-franco-faces-144411970.html)
 - Jan 05 - [“Unprofessional”: Experts blast Trump lawyer for saying Brett Kavanaugh “quid pro quo part out loud”](https://news.yahoo.com/unprofessional-experts-blast-trump-lawyer-135119363.html)
-- Jan 05 - [‘Terrible’: GOP strategist reacts to Trump attorney’s remark on Fox News](https://news.yahoo.com/terrible-gop-strategist-reacts-trump-133531128.html)
-- Jan 05 - ['Severe revenue decline': California faces a record $68B deficit — here's what is eating away at the Golden State's coffers](https://finance.yahoo.com/news/severe-revenue-decline-california-faces-133000258.html)
-- Jan 05 - ['We're going to throw them in the garbage': UFC CEO Dana White removed all Peloton bikes from his gyms after hearing a story from comedian Theo Von — here's why](https://finance.yahoo.com/news/were-going-throw-them-garbage-114500787.html)
 <!-- feed end -->
 
 ### Onstream
