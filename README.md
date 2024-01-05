@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 04 - [Milwaukee police officer who died following crash in Oak Creek was intoxicated, officials say](https://news.yahoo.com/milwaukee-police-officer-died-following-223131693.html)
 - Jan 04 - [Terminally ill Connecticut woman ends her life on her own terms, in Vermont](https://news.yahoo.com/terminally-ill-connecticut-woman-ends-214408327.html)
+- Jan 04 - [Nearly 17,000 people may have died from hydroxychloroquine: study](https://news.yahoo.com/nearly-17-000-people-may-211424719.html)
 - Jan 04 - [Retiring House Republican says $174,000 isn't enough money for members of Congress: 'Most of us don't have wealth'](https://news.yahoo.com/retiring-house-republican-says-174-210526322.html)
 - Jan 04 - [Iowa school shooting suspect filmed TikTok video of himself morning of shooting](https://news.yahoo.com/iowa-school-shooting-suspect-filmed-210210501.html)
-- Jan 04 - [Scientists make alarming discovery after hearing bubbling sounds from deep within Arctic ice: ‘We decided to have a look’](https://news.yahoo.com/scientists-alarming-discovery-hearing-bubbling-193000271.html)
-- Jan 04 - [Unsealed documents show again how Jeffrey Epstein leveraged his powerful connections](https://news.yahoo.com/unsealed-documents-show-again-jeffrey-182308986.html)
 <!-- feed end -->
 
 ### Onstream
