@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [A couple had to pay more than $3,000 at the airport because one ticket was booked under 'Kate' instead of 'Katherine'](https://news.yahoo.com/couple-had-pay-more-3-110716497.html)
-- Jan 05 - [Iraq prepares to close down U.S-led coalition's mission - PM statement](https://news.yahoo.com/iraq-prepares-close-down-u-095603047.html)
-- Jan 05 - [Trump Lawyer Slammed For Saying The Quiet Part ‘Out Loud’ On Supreme Court Hopes](https://news.yahoo.com/trump-lawyer-slammed-saying-quiet-092947159.html)
-- Jan 05 - [Hundreds of convictions, but a major mystery is still unsolved 3 years after the Jan. 6 Capitol riot](https://news.yahoo.com/capitol-riot-3-years-later-050852791.html)
-- Jan 05 - [OpenAI boss Sam Altman says Muslims in tech world fear retaliation in speaking up](https://finance.yahoo.com/news/openai-boss-sam-altman-says-032058166.html)
+- Jan 05 - [Stock market news today: US futures slide as December jobs report comes in strong](https://finance.yahoo.com/news/stock-market-news-today-us-futures-slide-as-december-jobs-report-comes-in-strong-134002216.html)
+- Jan 05 - [Experts warn that foreign armed forces headed to Haiti will face major obstacles](https://news.yahoo.com/experts-warn-foreign-armed-forces-133759135.html)
+- Jan 05 - [India's new finance hub gives nod to Azim Premji's fund to invest overseas](https://finance.yahoo.com/news/indias-finance-hub-gives-nod-133518053.html)
+- Jan 05 - ['We're going to throw them in the garbage': UFC CEO Dana White removed all Peloton bikes from his gyms after hearing a story from comedian Theo Von — here's why](https://finance.yahoo.com/news/were-going-throw-them-garbage-114500787.html)
+- Jan 05 - [‘You’ll end up with $1.5 million in the bank’: Kevin O’Leary says you should do this 1 thing with your 401(k) in order to 'succeed into retirement' — and he won't hear any of your excuses](https://finance.yahoo.com/news/ll-end-1-5-million-103000581.html)
 <!-- feed end -->
 
 ### Onstream
