@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [Stock market news today: US futures slide as December jobs report comes in strong](https://finance.yahoo.com/news/stock-market-news-today-us-futures-slide-as-december-jobs-report-comes-in-strong-134002216.html)
-- Jan 05 - [Experts warn that foreign armed forces headed to Haiti will face major obstacles](https://news.yahoo.com/experts-warn-foreign-armed-forces-133759135.html)
-- Jan 05 - [India's new finance hub gives nod to Azim Premji's fund to invest overseas](https://finance.yahoo.com/news/indias-finance-hub-gives-nod-133518053.html)
+- Jan 05 - [Rays shortstop Wander Franco faces judge as officials accuse him of having sex with a 14-year-old](https://sports.yahoo.com/rays-shortstop-wander-franco-faces-144411970.html)
+- Jan 05 - [“Unprofessional”: Experts blast Trump lawyer for saying Brett Kavanaugh “quid pro quo part out loud”](https://news.yahoo.com/unprofessional-experts-blast-trump-lawyer-135119363.html)
+- Jan 05 - [‘Terrible’: GOP strategist reacts to Trump attorney’s remark on Fox News](https://news.yahoo.com/terrible-gop-strategist-reacts-trump-133531128.html)
 - Jan 05 - ['We're going to throw them in the garbage': UFC CEO Dana White removed all Peloton bikes from his gyms after hearing a story from comedian Theo Von — here's why](https://finance.yahoo.com/news/were-going-throw-them-garbage-114500787.html)
 - Jan 05 - [‘You’ll end up with $1.5 million in the bank’: Kevin O’Leary says you should do this 1 thing with your 401(k) in order to 'succeed into retirement' — and he won't hear any of your excuses](https://finance.yahoo.com/news/ll-end-1-5-million-103000581.html)
 <!-- feed end -->
