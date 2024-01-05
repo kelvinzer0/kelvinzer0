@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [White middle-aged men are ‘bottom of everything’ claims N word tribunal bank worker](https://news.yahoo.com/white-middle-aged-men-bottom-162729389.html)
+- Jan 05 - [Elusive ‘alligator’-like creature found in treetops of Mexico. It’s a new species](https://news.yahoo.com/elusive-alligator-creature-found-treetops-173259785.html)
+- Jan 05 - [Ukraine just got a new Western air-defense system meant to wipe out Russian drones by firing 1,000 rounds per minute](https://news.yahoo.com/ukraine-just-got-western-air-172725064.html)
+- Jan 05 - [Trump should be banned from NY real estate for 'outrageous' fraud, attorney general says](https://news.yahoo.com/trump-overstated-worth-billions-york-172332599.html)
+- Jan 05 - [US fugitive accused of faking his death to avoid rape charge in Utah is extradited from Scotland](https://news.yahoo.com/us-fugitive-accused-faking-death-170528488.html)
 - Jan 05 - [Lauren Boebert claims she's 'protecting my voters' by abandoning them for a safer district — but Colorado GOP officials are still stewing about her carpetbagging](https://news.yahoo.com/lauren-boebert-claims-shes-protecting-160527405.html)
-- Jan 05 - [Some families of kidnapped migrants paid ransoms, Mexico minister says](https://news.yahoo.com/mexico-president-requested-us-visas-145304322.html)
-- Jan 05 - [Rays shortstop Wander Franco faces judge as prosecutors accuse him of having sex with a 14-year-old](https://sports.yahoo.com/rays-shortstop-wander-franco-faces-144411970.html)
-- Jan 05 - [“Unprofessional”: Experts blast Trump lawyer for saying Brett Kavanaugh “quid pro quo part out loud”](https://news.yahoo.com/unprofessional-experts-blast-trump-lawyer-135119363.html)
 <!-- feed end -->
 
 ### Onstream
