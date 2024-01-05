@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 05 - [A couple had to pay more than $3,000 at the airport because one ticket was booked under 'Kate' instead of 'Katherine'](https://news.yahoo.com/couple-had-pay-more-3-110716497.html)
 - Jan 05 - [Iraq prepares to close down U.S-led coalition's mission - PM statement](https://news.yahoo.com/iraq-prepares-close-down-u-095603047.html)
-- Jan 05 - [Trump Lawyer Slammed For Saying The Quiet Part 'Out Loud' On Supreme Court Hopes](https://news.yahoo.com/trump-lawyer-slammed-saying-quiet-092947159.html)
+- Jan 05 - [Trump Lawyer Slammed For Saying The Quiet Part ‘Out Loud’ On Supreme Court Hopes](https://news.yahoo.com/trump-lawyer-slammed-saying-quiet-092947159.html)
 - Jan 05 - [Hundreds of convictions, but a major mystery is still unsolved 3 years after the Jan. 6 Capitol riot](https://news.yahoo.com/capitol-riot-3-years-later-050852791.html)
 - Jan 05 - [OpenAI boss Sam Altman says Muslims in tech world fear retaliation in speaking up](https://finance.yahoo.com/news/openai-boss-sam-altman-says-032058166.html)
 <!-- feed end -->
