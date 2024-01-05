@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [Trump Lawyer Slammed For Saying The Quiet Part 'Out Loud' On Supreme Court Hopes](https://news.yahoo.com/trump-lawyer-slammed-saying-quiet-092947159.html)
 - Jan 05 - [Capitol riot, 3 years later: Hundreds of convictions, yet 1 major mystery is unsolved](https://news.yahoo.com/capitol-riot-3-years-later-050852791.html)
 - Jan 05 - [OpenAI boss Sam Altman says Muslims in tech world fear retaliation in speaking up](https://finance.yahoo.com/news/openai-boss-sam-altman-says-032058166.html)
 - Jan 05 - [Casey Anthony lives a solitary life 12 years after she was found not guilty of her daughter's death — here's where she is now](https://www.yahoo.com/entertainment/casey-anthony-lives-solitary-life-020401594.html)
 - Jan 05 - [If You're Dealing With *That* Cough Right Now That Everyone Else Seems To Have, Here's What It Might Be](https://www.yahoo.com/lifestyle/whats-deal-cough-everyone-seems-011602668.html)
-- Jan 04 - [Former Arkansas teacher accused of sex with student](https://news.yahoo.com/former-arkansas-teacher-accused-sex-234002277.html)
 <!-- feed end -->
 
 ### Onstream
