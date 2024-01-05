@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [The Supreme Court allows Idaho to enforce its strict abortion ban, even in medical emergencies](https://news.yahoo.com/supreme-court-allows-idaho-enforce-220904018.html)
+- Jan 05 - [New Mexico attorney general says fake GOP electors can't be prosecuted, recommends changes](https://news.yahoo.com/mexico-attorney-general-says-fake-214921504.html)
 - Jan 05 - [Police Chief Says His 'Infidelity' Led To Fellow Officer Shooting Him And Wife](https://news.yahoo.com/police-chief-says-infidelity-led-210745243.html)
-- Jan 05 - [Two Women Sue Plastic Surgeon Who They Claim Operated on Them While Drunk, Leaving Them 'Disfigured' (Exclusive)](https://www.yahoo.com/entertainment/two-women-sue-plastic-surgeon-201516190.html)
 - Jan 05 - [NRA chief, one of the most powerful figures in US gun policy, says he's resigning days before trial](https://news.yahoo.com/nra-chief-wayne-lapierre-says-193151981.html)
 - Jan 05 - [Powerful NRA chief LaPierre resigns ahead of New York corruption trial](https://news.yahoo.com/wayne-lapierre-step-down-national-191427487.html)
-- Jan 05 - [Crashed B-1B Bomber Carcass Visible At South Dakota Base](https://news.yahoo.com/crashed-b-1b-bomber-carcass-183516163.html)
 <!-- feed end -->
 
 ### Onstream
