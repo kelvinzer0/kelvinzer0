@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 05 - [Police Chief Says His 'Infidelity' Led To Fellow Officer Shooting Him And Wife](https://news.yahoo.com/police-chief-says-infidelity-led-210745243.html)
 - Jan 05 - [Two Women Sue Plastic Surgeon Who They Claim Operated on Them While Drunk, Leaving Them 'Disfigured' (Exclusive)](https://www.yahoo.com/entertainment/two-women-sue-plastic-surgeon-201516190.html)
-- Jan 05 - [The Gradual Release Of Jan. 6 Footage Has The Far Right Raging At House Republicans And Speaker Mike Johnson](https://news.yahoo.com/gradual-release-jan-6-footage-193823531.html)
-- Jan 05 - [LaPierre to step down as National Rifle Association leader](https://news.yahoo.com/wayne-lapierre-step-down-national-191427487.html)
-- Jan 05 - [Former GOP Congresswoman Caught Stealing Food Photos from the Internet and Passing Them Off as Her Own](https://www.yahoo.com/entertainment/former-gop-congresswoman-caught-stealing-184808135.html)
+- Jan 05 - [NRA chief, one of the most powerful figures in US gun policy, says he's resigning days before trial](https://news.yahoo.com/nra-chief-wayne-lapierre-says-193151981.html)
+- Jan 05 - [Powerful NRA chief LaPierre resigns ahead of New York corruption trial](https://news.yahoo.com/wayne-lapierre-step-down-national-191427487.html)
 - Jan 05 - [Crashed B-1B Bomber Carcass Visible At South Dakota Base](https://news.yahoo.com/crashed-b-1b-bomber-carcass-183516163.html)
 <!-- feed end -->
 
