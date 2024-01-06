@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 06 - [Trump warns of ‘big trouble’ as Supreme Court agrees to hear Colorado ballot case](https://news.yahoo.com/trump-warns-big-trouble-supreme-144047362.html)
+- Jan 06 - [Trump Calls On Supporters To Put A Stop To 'Bags Of Crap' Arriving At Polling Places](https://news.yahoo.com/trump-calls-supporters-stop-bags-141034023.html)
+- Jan 06 - [House Speaker Mike Johnson invites Biden to deliver the State of the Union address on March 7](https://news.yahoo.com/house-speaker-mike-johnson-invites-140514454.html)
 - Jan 06 - ['I wouldn't let him manage a candy store': Kevin O'Leary blasts California Gov. Gavin Newsom after Chevron projects up to $4B profit hit due to state's energy policies](https://finance.yahoo.com/news/wouldnt-let-him-manage-candy-133000295.html)
 - Jan 06 - [An 11-year-old was given an allotment of 'undesirable' land. Beneath the surface was millions of dollars worth of oil.](https://news.yahoo.com/11-old-given-allotment-undesirable-120901461.html)
-- Jan 06 - [Wait, Ridiculous Kentucky AG Daniel Cameron (Who is Black) Wants to Wage War on What?](https://news.yahoo.com/wait-ridiculous-kentucky-ag-daniel-120000266.html)
-- Jan 06 - [Hezbollah says it hit Israeli observation post with 62 rockets](https://news.yahoo.com/hezbollah-says-hit-israeli-observation-081304385.html)
-- Jan 06 - [Iran Guards commander challenges 'enemy' naval presence in region](https://news.yahoo.com/iran-guards-commander-challenges-enemy-072754970.html)
 <!-- feed end -->
 
 ### Onstream
