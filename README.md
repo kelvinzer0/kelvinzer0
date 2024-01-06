@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 06 - [Hezbollah says it hit Israeli observation post with 62 rockets](https://news.yahoo.com/hezbollah-says-hit-israeli-observation-081304385.html)
 - Jan 06 - [Iran Guards commander challenges 'enemy' naval presence in region](https://news.yahoo.com/iran-guards-commander-challenges-enemy-072754970.html)
-- Jan 06 - [Alaska Airlines flight makes emergency landing in Oregon after midair blowout of window](https://news.yahoo.com/alaska-airlines-flight-makes-emergency-035312774.html)
 - Jan 06 - [Trump’s crowds don’t want to move on from Jan. 6. They want retribution for him.](https://news.yahoo.com/trump-crowds-don-t-want-031927746.html)
 - Jan 06 - [American Airlines plane diverted after passenger punches flight attendant, court documents show](https://news.yahoo.com/american-airlines-plane-diverted-passenger-015313596.html)
 - Jan 06 - [Trump on Iowa School Shooting: ‘Get Over It’](https://news.yahoo.com/trump-iowa-school-shooting-over-010432215.html)
