@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 06 - [A tense new Jan. 6 video shows Republican congressmen admonishing rioters trying to enter House chamber](https://news.yahoo.com/tense-jan-6-video-shows-170350184.html)
+- Jan 06 - [‘Couldn't be any clearer': Judge Luttig predicts outcome of Supreme Court’s Trump ballot ruling](https://news.yahoo.com/couldnt-clearer-judge-luttig-predicts-173202063.html)
 - Jan 06 - [FBI captures three Jan. 6 fugitives at Florida ranch on the third anniversary of the Capitol attack](https://news.yahoo.com/fbi-captures-three-jan-6-165739911.html)
+- Jan 06 - [Greene reacts after Florida resort attempts to cancel Jan. 6 book event: ‘They lost!”](https://news.yahoo.com/greene-reacts-florida-resort-attempts-165159355.html)
 - Jan 06 - [Trump shares bizarre video declaring 'God made Trump,' suggesting he is embracing a messianic image](https://news.yahoo.com/trump-shares-bizarre-video-declaring-155822105.html)
 - Jan 06 - [Trump presents interesting theory on how magnets work during rally in Iowa](https://news.yahoo.com/trump-presents-interesting-theory-magnets-155136264.html)
-- Jan 06 - [Trump warns of ‘big trouble’ as Supreme Court agrees to hear Colorado ballot case](https://news.yahoo.com/trump-warns-big-trouble-supreme-144047362.html)
 <!-- feed end -->
 
 ### Onstream
