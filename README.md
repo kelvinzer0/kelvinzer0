@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 06 - [American Airlines plane diverted after passenger punches flight attendant, court documents show](https://news.yahoo.com/american-airlines-plane-diverted-passenger-015313596.html)
-- Jan 06 - [Fact Check: Trump Said 'We Have to Get Over It' About School Shooting in Perry, Iowa, in January 2024](https://news.yahoo.com/fact-check-trump-said-over-012300717.html)
+- Jan 06 - [Trump on Iowa School Shooting: ‘Get Over It’](https://news.yahoo.com/trump-iowa-school-shooting-over-010432215.html)
 - Jan 05 - [A Florida woman who has been in jail since 2022 is pregnant, prompting an investigation](https://news.yahoo.com/florida-woman-jail-since-2022-232928891.html)
+- Jan 05 - [Video Shows Passenger’s Tirade Against Delta Employees: ‘I’m on My Period, Do You Know What a Uterus Is?’](https://www.yahoo.com/entertainment/video-shows-passenger-tirade-against-232706139.html)
 - Jan 05 - [New Mexico attorney general says fake GOP electors can't be prosecuted, recommends changes](https://news.yahoo.com/mexico-attorney-general-says-fake-214921504.html)
-- Jan 05 - [NRA chief, one of the most powerful figures in US gun policy, says he's resigning days before trial](https://news.yahoo.com/nra-chief-wayne-lapierre-says-193151981.html)
 <!-- feed end -->
 
 ### Onstream
