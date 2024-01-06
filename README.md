@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 05 - [The Supreme Court allows Idaho to enforce its strict abortion ban, even in medical emergencies](https://news.yahoo.com/supreme-court-allows-idaho-enforce-220904018.html)
+- Jan 05 - [A Florida woman who has been in jail since 2022 is pregnant, prompting an investigation](https://news.yahoo.com/florida-woman-jail-since-2022-232928891.html)
+- Jan 05 - [Video Shows Passenger’s Tirade Against Delta Employees: ‘I’m on My Period, Do You Know What a Uterus Is?’](https://www.yahoo.com/entertainment/video-shows-passenger-tirade-against-232706139.html)
+- Jan 05 - [Actor Christian Oliver And His 2 Young Daughters Killed In Plane Crash](https://www.yahoo.com/entertainment/actor-christian-oliver-2-young-215654077.html)
 - Jan 05 - [New Mexico attorney general says fake GOP electors can't be prosecuted, recommends changes](https://news.yahoo.com/mexico-attorney-general-says-fake-214921504.html)
-- Jan 05 - [Police Chief Says His 'Infidelity' Led To Fellow Officer Shooting Him And Wife](https://news.yahoo.com/police-chief-says-infidelity-led-210745243.html)
 - Jan 05 - [NRA chief, one of the most powerful figures in US gun policy, says he's resigning days before trial](https://news.yahoo.com/nra-chief-wayne-lapierre-says-193151981.html)
-- Jan 05 - [Powerful NRA chief LaPierre resigns ahead of New York corruption trial](https://news.yahoo.com/wayne-lapierre-step-down-national-191427487.html)
 <!-- feed end -->
 
 ### Onstream
