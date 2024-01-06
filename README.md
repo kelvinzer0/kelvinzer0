@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 06 - [A tense new Jan. 6 video shows Republican congressmen admonishing rioters trying to enter House chamber](https://news.yahoo.com/tense-jan-6-video-shows-170350184.html)
+- Jan 06 - [FBI captures three Jan. 6 fugitives at Florida ranch on the third anniversary of the Capitol attack](https://news.yahoo.com/fbi-captures-three-jan-6-165739911.html)
 - Jan 06 - [Trump shares bizarre video declaring 'God made Trump,' suggesting he is embracing a messianic image](https://news.yahoo.com/trump-shares-bizarre-video-declaring-155822105.html)
 - Jan 06 - [Trump presents interesting theory on how magnets work during rally in Iowa](https://news.yahoo.com/trump-presents-interesting-theory-magnets-155136264.html)
 - Jan 06 - [Trump warns of ‘big trouble’ as Supreme Court agrees to hear Colorado ballot case](https://news.yahoo.com/trump-warns-big-trouble-supreme-144047362.html)
-- Jan 06 - [House Speaker Mike Johnson invites Biden to deliver the State of the Union address on March 7](https://news.yahoo.com/house-speaker-mike-johnson-invites-140514454.html)
-- Jan 06 - ['I wouldn't let him manage a candy store': Kevin O'Leary blasts California Gov. Gavin Newsom after Chevron projects up to $4B profit hit due to state's energy policies](https://finance.yahoo.com/news/wouldnt-let-him-manage-candy-133000295.html)
 <!-- feed end -->
 
 ### Onstream
