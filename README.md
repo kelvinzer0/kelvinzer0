@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jan 06 - [American Airlines plane diverted after passenger punches flight attendant, court documents show](https://news.yahoo.com/american-airlines-plane-diverted-passenger-015313596.html)
 - Jan 06 - [Trump on Iowa School Shooting: ‘Get Over It’](https://news.yahoo.com/trump-iowa-school-shooting-over-010432215.html)
 - Jan 05 - [A Florida woman who has been in jail since 2022 is pregnant, prompting an investigation](https://news.yahoo.com/florida-woman-jail-since-2022-232928891.html)
-- Jan 05 - [Video Shows Passenger’s Tirade Against Delta Employees: ‘I’m on My Period, Do You Know What a Uterus Is?’](https://www.yahoo.com/entertainment/video-shows-passenger-tirade-against-232706139.html)
 - Jan 05 - [New Mexico attorney general says fake GOP electors can't be prosecuted, recommends changes](https://news.yahoo.com/mexico-attorney-general-says-fake-214921504.html)
+- Jan 05 - [Snow expected across northern Ohio on Saturday. Here's how much Akron is supposed to get](https://news.yahoo.com/snow-expected-across-northern-ohio-210049042.html)
 <!-- feed end -->
 
 ### Onstream
