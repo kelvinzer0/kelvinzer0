@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 06 - [Iran Guards commander challenges 'enemy' naval presence in region](https://news.yahoo.com/iran-guards-commander-challenges-enemy-072754970.html)
+- Jan 06 - [Alaska Airlines flight makes emergency landing in Oregon after midair blowout of window](https://news.yahoo.com/alaska-airlines-flight-makes-emergency-035312774.html)
+- Jan 06 - [Trump’s crowds don’t want to move on from Jan. 6. They want retribution for him.](https://news.yahoo.com/trump-crowds-don-t-want-031927746.html)
 - Jan 06 - [American Airlines plane diverted after passenger punches flight attendant, court documents show](https://news.yahoo.com/american-airlines-plane-diverted-passenger-015313596.html)
 - Jan 06 - [Trump on Iowa School Shooting: ‘Get Over It’](https://news.yahoo.com/trump-iowa-school-shooting-over-010432215.html)
-- Jan 05 - [A Florida woman who has been in jail since 2022 is pregnant, prompting an investigation](https://news.yahoo.com/florida-woman-jail-since-2022-232928891.html)
-- Jan 05 - [New Mexico attorney general says fake GOP electors can't be prosecuted, recommends changes](https://news.yahoo.com/mexico-attorney-general-says-fake-214921504.html)
-- Jan 05 - [Snow expected across northern Ohio on Saturday. Here's how much Akron is supposed to get](https://news.yahoo.com/snow-expected-across-northern-ohio-210049042.html)
 <!-- feed end -->
 
 ### Onstream
