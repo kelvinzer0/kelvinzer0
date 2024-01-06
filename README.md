@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 06 - ['I wouldn't let him manage a candy store': Kevin O'Leary blasts California Gov. Gavin Newsom after Chevron projects up to $4B profit hit due to state's energy policies](https://finance.yahoo.com/news/wouldnt-let-him-manage-candy-133000295.html)
+- Jan 06 - [An 11-year-old was given an allotment of 'undesirable' land. Beneath the surface was millions of dollars worth of oil.](https://news.yahoo.com/11-old-given-allotment-undesirable-120901461.html)
 - Jan 06 - [Wait, Ridiculous Kentucky AG Daniel Cameron (Who is Black) Wants to Wage War on What?](https://news.yahoo.com/wait-ridiculous-kentucky-ag-daniel-120000266.html)
 - Jan 06 - [Hezbollah says it hit Israeli observation post with 62 rockets](https://news.yahoo.com/hezbollah-says-hit-israeli-observation-081304385.html)
 - Jan 06 - [Iran Guards commander challenges 'enemy' naval presence in region](https://news.yahoo.com/iran-guards-commander-challenges-enemy-072754970.html)
-- Jan 06 - [Houston mother looking for stable housing, income arrested after daughter kicked out of school](https://news.yahoo.com/houston-mother-looking-stable-housing-040415311.html)
-- Jan 06 - [Trump’s crowds don’t want to move on from Jan. 6. They want retribution for him.](https://news.yahoo.com/trump-crowds-don-t-want-031927746.html)
 <!-- feed end -->
 
 ### Onstream
