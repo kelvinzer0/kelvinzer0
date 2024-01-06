@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 06 - [Hezbollah says it hit Israeli observation post with 62 rockets](https://news.yahoo.com/hezbollah-says-hit-israeli-observation-081304385.html)
 - Jan 06 - [Iran Guards commander challenges 'enemy' naval presence in region](https://news.yahoo.com/iran-guards-commander-challenges-enemy-072754970.html)
+- Jan 06 - [Houston mother looking for stable housing, income arrested after daughter kicked out of school](https://news.yahoo.com/houston-mother-looking-stable-housing-040415311.html)
 - Jan 06 - [Trump’s crowds don’t want to move on from Jan. 6. They want retribution for him.](https://news.yahoo.com/trump-crowds-don-t-want-031927746.html)
 - Jan 06 - [American Airlines plane diverted after passenger punches flight attendant, court documents show](https://news.yahoo.com/american-airlines-plane-diverted-passenger-015313596.html)
-- Jan 06 - [Trump on Iowa School Shooting: ‘Get Over It’](https://news.yahoo.com/trump-iowa-school-shooting-over-010432215.html)
 <!-- feed end -->
 
 ### Onstream
