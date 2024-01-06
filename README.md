@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 06 - [11-year-old killed in Iowa school shooting remembered as a joyful boy who loved soccer and singing](https://news.yahoo.com/11-old-killed-iowa-school-184949884.html)
+- Jan 06 - [Scare on Alaska Airlines Flight 1282: A loud bang, a whooshing sound and a boy’s shirt sucked right off](https://news.yahoo.com/scare-alaska-airlines-flight-1282-153245989.html)
 - Jan 06 - [‘Couldn't be any clearer': Judge Luttig predicts outcome of Supreme Court’s Trump ballot ruling](https://news.yahoo.com/couldnt-clearer-judge-luttig-predicts-173202063.html)
 - Jan 06 - [FBI captures three Jan. 6 fugitives at Florida ranch on the third anniversary of the Capitol attack](https://news.yahoo.com/fbi-captures-three-jan-6-165739911.html)
 - Jan 06 - [Greene reacts after Florida resort attempts to cancel Jan. 6 book event: ‘They lost!”](https://news.yahoo.com/greene-reacts-florida-resort-attempts-165159355.html)
-- Jan 06 - [Trump shares bizarre video declaring 'God made Trump,' suggesting he is embracing a messianic image](https://news.yahoo.com/trump-shares-bizarre-video-declaring-155822105.html)
-- Jan 06 - [Trump presents interesting theory on how magnets work during rally in Iowa](https://news.yahoo.com/trump-presents-interesting-theory-magnets-155136264.html)
 <!-- feed end -->
 
 ### Onstream
