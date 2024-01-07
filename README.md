@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [North Korea's Kim Yo Jong vows immediate strike if any provocation](https://news.yahoo.com/north-koreas-kim-yo-jong-074323746.html)
+- Jan 07 - [North Korea vows military strike if any provocation, fires artillery rounds](https://news.yahoo.com/north-koreas-kim-yo-jong-074323746.html)
 - Jan 07 - [SpaceX executives worried Elon Musk was on drugs during 'cringeworthy' all-hands meeting, WSJ reports](https://news.yahoo.com/spacex-executives-worried-elon-musk-055211403.html)
 - Jan 07 - [Patrick Reed ordered to pay legal fees for defendants in dismissed $1 billion lawsuit](https://sports.yahoo.com/patrick-reed-ordered-to-pay-legal-fees-for-defendants-in-dismissed-1-billion-lawsuit-054407072.html)
 - Jan 07 - [215 Bodies Found in Unmarked Graves Behind Mississippi Jail, Ben Crump Calls For Investigation](https://www.yahoo.com/entertainment/civil-rights-attorney-ben-crump-020615639.html)
-- Jan 06 - ['Trump, confused': Biden campaign fires back at Trump after jumbled remarks on energy policy](https://news.yahoo.com/trump-confused-biden-campaign-fires-203035661.html)
+- Jan 06 - [Trump Says Civil War Could Have Been ‘Negotiated’ in Bizarre Iowa Speech](https://news.yahoo.com/trump-says-civil-war-could-230339557.html)
 <!-- feed end -->
 
 ### Onstream
