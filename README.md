@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Civil Rights Attorney Ben Crump Calls For Investigation After 215 Bodies Found in Unmarked Graves Behind Mississippi Jail](https://www.yahoo.com/entertainment/civil-rights-attorney-ben-crump-020615639.html)
+- Jan 07 - [Patrick Reed ordered to pay legal fees for defendants in dismissed $1 billion lawsuit](https://sports.yahoo.com/patrick-reed-ordered-to-pay-legal-fees-for-defendants-in-dismissed-1-billion-lawsuit-054407072.html)
+- Jan 07 - [Elon Musk's drug use was so concerning it prompted a Tesla director to forgo a reelection bid, WSJ reports](https://news.yahoo.com/elon-musks-drug-concerning-prompted-041826561.html)
 - Jan 06 - [Trump Says Civil War Could Have Been ‘Negotiated’ in Bizarre Iowa Speech](https://news.yahoo.com/trump-says-civil-war-could-230339557.html)
-- Jan 06 - [Biden mocked for appearing confused after anti-Trump speech: 'Lost again'](https://news.yahoo.com/biden-mocked-appearing-confused-anti-205219892.html)
 - Jan 06 - [11-year-old killed in Iowa school shooting was a joyful boy known as 'Smiley,' his mother says](https://news.yahoo.com/11-old-killed-iowa-school-184949884.html)
 - Jan 06 - [Snowstorm: Heavy snow system likely will hit Chicago Monday night, officials say](https://news.yahoo.com/snowstorm-heavy-snow-system-becoming-181900511.html)
 <!-- feed end -->
