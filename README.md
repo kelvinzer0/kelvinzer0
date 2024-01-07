@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 07 - [Mexican authorities investigate massacre after rival criminal groups clash in remote desert](https://news.yahoo.com/mexican-authorities-investigate-massacre-rival-163725720.html)
 - Jan 07 - [Town-by-town totals: These Massachusetts communities have received the most snow](https://news.yahoo.com/town-town-totals-massachusetts-communities-122655640.html)
 - Jan 07 - [Mike Pence refutes Trump on Jan. 6, urges GOP voters to pick different candidate in 2024](https://news.yahoo.com/mike-pence-refutes-trump-jan-151403870.html)
 - Jan 07 - [IDF releases picture of wanted Hamas military chief clutching wad of US dollars](https://news.yahoo.com/idf-releases-picture-wanted-hamas-142528333.html)
 - Jan 07 - [Judge blocks Trump lawyers from arguing about columnist's rape claim at upcoming defamation trial](https://news.yahoo.com/judge-blocks-trump-lawyers-arguing-130932577.html)
-- Jan 07 - [Special counsel probe uncovers new details about Trump's inaction on Jan. 6: Sources](https://news.yahoo.com/special-counsel-probe-uncovers-details-130200050.html)
 <!-- feed end -->
 
 ### Onstream
