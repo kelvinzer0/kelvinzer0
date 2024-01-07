@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 06 - [Trump Says Civil War Could Have Been ‘Negotiated’ in Bizarre Iowa Speech](https://news.yahoo.com/trump-says-civil-war-could-230339557.html)
 - Jan 06 - [Trump Omits Customary Illinois Pledge To Not Overthrow Government: Report](https://news.yahoo.com/trump-omits-customary-illinois-pledge-224400094.html)
-- Jan 06 - ['Trump, confused': Biden campaign fires back at Trump after jumbled remarks on energy policy](https://news.yahoo.com/trump-confused-biden-campaign-fires-203035661.html)
 - Jan 06 - [11-year-old killed in Iowa school shooting was a joyful boy known as 'Smiley,' his mother says](https://news.yahoo.com/11-old-killed-iowa-school-184949884.html)
 - Jan 06 - [Snowstorm: Heavy snow system likely will hit Chicago Monday night, officials say](https://news.yahoo.com/snowstorm-heavy-snow-system-becoming-181900511.html)
+- Jan 06 - [‘Couldn't be any clearer': Judge Luttig predicts outcome of Supreme Court’s Trump ballot ruling](https://news.yahoo.com/couldnt-clearer-judge-luttig-predicts-173202063.html)
 <!-- feed end -->
 
 ### Onstream
