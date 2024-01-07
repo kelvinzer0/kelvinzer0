@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 07 - [IDF releases picture of wanted Hamas military chief clutching wad of US dollars](https://news.yahoo.com/idf-releases-picture-wanted-hamas-142528333.html)
+- Jan 07 - [Town-by-town totals: These Massachusetts communities have received the most snow](https://news.yahoo.com/town-town-totals-massachusetts-communities-122655640.html)
 - Jan 07 - [Judge blocks Trump lawyers from arguing about columnist's rape claim at upcoming defamation trial](https://news.yahoo.com/judge-blocks-trump-lawyers-arguing-130932577.html)
 - Jan 07 - [Special counsel probe uncovers new details about Trump's inaction on Jan. 6: Sources](https://news.yahoo.com/special-counsel-probe-uncovers-details-130200050.html)
 - Jan 07 - ['Don't tell me you have a tractor': This Oklahoma man and his wife are 'upside down' on 4 vehicles that cost them $2,500 a month — and now he has no job. Dave Ramsey gave him 3 choices](https://finance.yahoo.com/news/dont-tell-tractor-oklahoma-man-130000761.html)
-- Jan 07 - [Town-by-town totals: These Massachusetts communities have received the most snow](https://news.yahoo.com/town-town-totals-massachusetts-communities-122655640.html)
-- Jan 07 - [The diary of a teenage sicario: ‘I murdered 30 people – I became addicted’](https://news.yahoo.com/diary-teenage-sicario-murdered-30-120000412.html)
 <!-- feed end -->
 
 ### Onstream
