@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 07 - [Trump rekindles his rage against John McCain, taunting over POW's broken limbs](https://news.yahoo.com/trump-rekindles-rage-against-john-181838011.html)
+- Jan 07 - [Iranian woman whipped 74 times for refusing to wear hijab](https://news.yahoo.com/iranian-woman-whipped-74-times-181111912.html)
 - Jan 07 - [Mexican authorities investigate massacre after rival criminal groups clash in remote desert](https://news.yahoo.com/mexican-authorities-investigate-massacre-rival-163725720.html)
 - Jan 07 - [A row over sandy beaches reveals fault lines in the relationship between India and the Maldives](https://news.yahoo.com/row-over-sandy-beaches-reveals-163550762.html)
-- Jan 07 - [Town-by-town totals: These Massachusetts communities have received the most snow](https://news.yahoo.com/town-town-totals-massachusetts-communities-122655640.html)
-- Jan 07 - [IDF releases picture of wanted Hamas military chief clutching wad of US dollars](https://news.yahoo.com/idf-releases-picture-wanted-hamas-142528333.html)
-- Jan 07 - [McDonald's Is Making Major Changes To Its Burgers](https://www.yahoo.com/lifestyle/mcdonalds-making-major-changes-burgers-140000564.html)
+- Jan 07 - [Florida Woman Shoots Up Boyfriend’s Girlfriend’s Car](https://news.yahoo.com/florida-woman-shoots-boyfriend-girlfriend-190000648.html)
 <!-- feed end -->
 
 ### Onstream
