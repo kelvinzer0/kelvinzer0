@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 07 - [Chip Roy is right: Narcissist Donald Trump is making us Republicans look like fools | Opinion](https://news.yahoo.com/chip-roy-narcissist-donald-trump-110600272.html)
+- Jan 07 - [U.S. Money Supply Hasn't Done This Since the Great Depression, and It Usually Signals a Big Move to Come in Stocks](https://finance.yahoo.com/news/u-money-supply-hasnt-done-100600021.html)
 - Jan 07 - [North Korea vows military strike if any provocation, fires artillery rounds](https://news.yahoo.com/north-koreas-kim-yo-jong-074323746.html)
 - Jan 07 - [SpaceX executives worried Elon Musk was on drugs during 'cringeworthy' all-hands meeting, WSJ reports](https://news.yahoo.com/spacex-executives-worried-elon-musk-055211403.html)
 - Jan 07 - [Patrick Reed ordered to pay legal fees for defendants in dismissed $1 billion lawsuit](https://sports.yahoo.com/patrick-reed-ordered-to-pay-legal-fees-for-defendants-in-dismissed-1-billion-lawsuit-054407072.html)
-- Jan 07 - [215 Bodies Found in Unmarked Graves Behind Mississippi Jail, Ben Crump Calls For Investigation](https://www.yahoo.com/entertainment/civil-rights-attorney-ben-crump-020615639.html)
-- Jan 06 - [Trump Says Civil War Could Have Been ‘Negotiated’ in Bizarre Iowa Speech](https://news.yahoo.com/trump-says-civil-war-could-230339557.html)
 <!-- feed end -->
 
 ### Onstream
