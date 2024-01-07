@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Norwegian mass killer attempts to sue the state once more for an alleged breach of human rights](https://news.yahoo.com/norwegian-mass-killer-attempts-sue-063451570.html)
+- Jan 07 - [SpaceX executives worried Elon Musk was on drugs during 'cringeworthy' all-hands meeting, WSJ reports](https://news.yahoo.com/spacex-executives-worried-elon-musk-055211403.html)
 - Jan 07 - [Patrick Reed ordered to pay legal fees for defendants in dismissed $1 billion lawsuit](https://sports.yahoo.com/patrick-reed-ordered-to-pay-legal-fees-for-defendants-in-dismissed-1-billion-lawsuit-054407072.html)
-- Jan 07 - [2 killed, 9 injured in pileup that closed fog-shrouded I-5 in California](https://news.yahoo.com/2-people-killed-9-injured-000713583.html)
-- Jan 07 - [Spirit Aero made blowout part but Boeing has key role -sources](https://finance.yahoo.com/news/spirit-aero-made-blowout-part-020117732.html)
-- Jan 06 - [Cindy Morgan Dies: ‘Caddyshack’ And ‘Tron’ Actress Was 69](https://www.yahoo.com/entertainment/cindy-morgan-dies-caddyshack-tron-234833197.html)
+- Jan 07 - [US appeals court prevents California from banning guns in most public places](https://news.yahoo.com/us-appeals-court-prevents-california-010247962.html)
+- Jan 06 - ['Trump, confused': Biden campaign fires back at Trump after jumbled remarks on energy policy](https://news.yahoo.com/trump-confused-biden-campaign-fires-203035661.html)
+- Jan 06 - [11-year-old killed in Iowa school shooting was a joyful boy known as 'Smiley,' his mother says](https://news.yahoo.com/11-old-killed-iowa-school-184949884.html)
 <!-- feed end -->
 
 ### Onstream
