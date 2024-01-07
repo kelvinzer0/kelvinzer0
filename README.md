@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 07 - [Defense secretary remains hospitalized as details emerge about delays in notification, even to Biden](https://news.yahoo.com/defense-secretary-remains-hospitalized-details-204115059.html)
+- Jan 07 - [Walmart Employee’s Stolen Mercedes S-Class Rolls Into Work](https://news.yahoo.com/walmart-employee-stolen-mercedes-class-130000811.html)
 - Jan 07 - [Man kidnapped pregnant woman, locked her in garage for 4-5 years, Texas police say](https://news.yahoo.com/man-kidnapped-pregnant-woman-locked-182412798.html)
 - Jan 07 - [Trump rekindles his rage against John McCain, taunting over POW's broken limbs](https://news.yahoo.com/trump-rekindles-rage-against-john-181838011.html)
 - Jan 07 - [Iranian woman whipped 74 times for refusing to wear hijab](https://news.yahoo.com/iranian-woman-whipped-74-times-181111912.html)
-- Jan 07 - [Mexican authorities investigate massacre after rival criminal groups clash in remote desert](https://news.yahoo.com/mexican-authorities-investigate-massacre-rival-163725720.html)
-- Jan 07 - [A row over sandy beaches reveals fault lines in the relationship between India and the Maldives](https://news.yahoo.com/row-over-sandy-beaches-reveals-163550762.html)
 <!-- feed end -->
 
 ### Onstream
