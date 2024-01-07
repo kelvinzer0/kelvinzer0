@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 07 - [Norwegian mass killer attempts to sue the state once more for an alleged breach of human rights](https://news.yahoo.com/norwegian-mass-killer-attempts-sue-063451570.html)
 - Jan 07 - [Patrick Reed ordered to pay legal fees for defendants in dismissed $1 billion lawsuit](https://sports.yahoo.com/patrick-reed-ordered-to-pay-legal-fees-for-defendants-in-dismissed-1-billion-lawsuit-054407072.html)
-- Jan 07 - [Elon Musk's drug use was so concerning it prompted a Tesla director to forgo a reelection bid, WSJ reports](https://news.yahoo.com/elon-musks-drug-concerning-prompted-041826561.html)
-- Jan 06 - [Trump Says Civil War Could Have Been ‘Negotiated’ in Bizarre Iowa Speech](https://news.yahoo.com/trump-says-civil-war-could-230339557.html)
-- Jan 06 - [11-year-old killed in Iowa school shooting was a joyful boy known as 'Smiley,' his mother says](https://news.yahoo.com/11-old-killed-iowa-school-184949884.html)
-- Jan 06 - [Snowstorm: Heavy snow system likely will hit Chicago Monday night, officials say](https://news.yahoo.com/snowstorm-heavy-snow-system-becoming-181900511.html)
+- Jan 07 - [2 killed, 9 injured in pileup that closed fog-shrouded I-5 in California](https://news.yahoo.com/2-people-killed-9-injured-000713583.html)
+- Jan 07 - [Spirit Aero made blowout part but Boeing has key role -sources](https://finance.yahoo.com/news/spirit-aero-made-blowout-part-020117732.html)
+- Jan 06 - [Cindy Morgan Dies: ‘Caddyshack’ And ‘Tron’ Actress Was 69](https://www.yahoo.com/entertainment/cindy-morgan-dies-caddyshack-tron-234833197.html)
 <!-- feed end -->
 
 ### Onstream
