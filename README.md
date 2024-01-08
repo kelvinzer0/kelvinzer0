@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 08 - [Trump says he will attend federal appeals court arguments on presidential immunity](https://news.yahoo.com/trump-says-attend-federal-appeals-055153968.html)
+- Jan 08 - [India court quashes remission in sentence of men in Muslim woman's gang-rape -media](https://news.yahoo.com/india-court-quashes-remission-given-053757691.html)
 - Jan 08 - [US intel shows China's army had missiles filled with water instead of fuel, in a corruption scandal that led to Xi's military purge: Bloomberg](https://news.yahoo.com/us-intel-shows-chinas-army-045909485.html)
+- Jan 08 - [Samsung debuts the world's first transparent MicroLED screen at CES 2024](https://news.yahoo.com/samsung-debuts-the-worlds-first-transparent-microled-screen-at-ces-2024-042634398.html)
 - Jan 08 - [What aerospace analysts are saying about Boeing's mid-air blowout](https://finance.yahoo.com/news/aerospace-analysts-saying-boeings-mid-041417535.html)
-- Jan 08 - [Trump mocks John McCain’s war injury while on campaign trail](https://news.yahoo.com/video-shows-trump-mocking-mccain-185228468.html)
-- Jan 08 - [Iowa's Christian conservatives follow their faith when voting, and some say it leads them to Trump](https://news.yahoo.com/iowas-christian-conservatives-faith-voting-001957600.html)
 <!-- feed end -->
 
 ### Onstream
