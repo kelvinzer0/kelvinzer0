@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [New caravan forms in Mexico as frustrated migrants complain about visa delays](https://news.yahoo.com/caravan-forms-mexico-frustrated-migrants-194618763.html)
-- Jan 08 - [911 transcripts reveal chaotic scene as gunman killed 18 people in Maine](https://news.yahoo.com/911-transcripts-reveal-chaotic-scene-193934039.html)
-- Jan 08 - [Italian influencer under investigation in scandal over sales of Christmas cakes for charity: reports](https://news.yahoo.com/italian-influencer-under-investigation-scandal-193926661.html)
-- Jan 08 - [CES 2024 updates: Most interesting news and gadgets from tech's big show](https://news.yahoo.com/ces-2024-updates-most-interesting-193633920.html)
-- Jan 08 - [Mesa, Arizona, receives first pure battery-electric fire truck in the U.S.](https://www.autoblog.com/2024/01/08/mesa-arizona-receives-first-pure-battery-electric-fire-truck-in-the-u-s/)
+- Jan 08 - [Israeli forces say they locate large underground weapons factory in Gaza](https://news.yahoo.com/israeli-forces-locate-large-underground-205345671.html)
+- Jan 08 - [Someone Found An iPhone That Fell 16,000 Feet From That Alaska Airlines Flight, And The Creepiest Part Is The Ripped Off Charging Cable](https://www.yahoo.com/lifestyle/someone-found-iphone-fell-16-203253353.html)
+- Jan 08 - [Experts: Jack Smith’s “dramatic new proof” so “overwhelming” reluctant witnesses may decide to flip](https://news.yahoo.com/experts-jack-smith-dramatic-proof-201015839.html)
+- Jan 08 - [Russia struggled to push the Ukrainians into the river after its planes were shot down, intel says, showing how a surprising failure at the war's start is still a problem](https://news.yahoo.com/russia-struggled-push-ukrainians-river-195027559.html)
+- Jan 08 - [Missing Ohio teen located in Florida after logging in to World of Warcraft account](https://news.yahoo.com/missing-ohio-teen-located-florida-192317089.html)
 <!-- feed end -->
 
 ### Onstream
