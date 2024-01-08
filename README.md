@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 08 - [Elon Musk's drug use causing turmoil for Tesla, SpaceX execs: WSJ](https://finance.yahoo.com/video/elon-musks-drug-causing-turmoil-155951308.html)
+- Jan 08 - [Trump cannot challenge writer's rape claim at defamation trial, judge rules](https://news.yahoo.com/trump-cannot-challenge-writers-rape-154022497.html)
+- Jan 08 - [Biden admin to announce independent contractor rule that could upend gig economy](https://finance.yahoo.com/news/biden-admin-announce-independent-contractor-153013467.html)
 - Jan 08 - [Biden wants Mexican help to stop the migrant surge. Here's what Mexico wants in return.](https://news.yahoo.com/biden-wants-mexican-help-stop-133040093.html)
 - Jan 08 - [Robert Downey Jr. announces on Golden Globes stage: 'I took a beta-blocker.' What do they do?](https://news.yahoo.com/robert-downey-jr-announces-golden-131049366.html)
-- Jan 08 - [Ukrainian forces destroy Russian 'satellite killer' weapon 'Triada' in Donetsk sector — video](https://news.yahoo.com/ukrainian-forces-destroy-russian-satellite-125600270.html)
-- Jan 08 - [A supermarket chain pulled PepsiCo products over ‘shrinkflation’—now its biggest rival says Pepsi, Cheetos and Doritos are going nowhere](https://finance.yahoo.com/news/supermarket-chain-pulled-pepsico-products-121411326.html)
-- Jan 08 - [‘In my defense, there is no defense’: This 22-year-old ‘e-girl’ spends $1,000/month to pay off her debt and hasn’t paid taxes in 2 years — Caleb Hammer warns she’s going to ‘die in poverty'](https://finance.yahoo.com/news/defense-no-defense-22-old-120000791.html)
 <!-- feed end -->
 
 ### Onstream
