@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 07 - [Defense secretary remains hospitalized as details emerge about delays in notification, even to Biden](https://news.yahoo.com/defense-secretary-remains-hospitalized-details-204115059.html)
+- Jan 08 - [Iowa's Christian conservatives follow their faith when voting, and some say it leads them to Trump](https://news.yahoo.com/iowas-christian-conservatives-faith-voting-001957600.html)
+- Jan 07 - [The Pentagon adds new details about Austin's secretive hospital stay and the delay in telling Biden](https://news.yahoo.com/defense-secretary-remains-hospitalized-details-204115059.html)
 - Jan 07 - [Walmart Employee’s Stolen Mercedes S-Class Rolls Into Work](https://news.yahoo.com/walmart-employee-stolen-mercedes-class-130000811.html)
 - Jan 07 - [Trump mocks John McCain’s war innjury while on campaign trail](https://news.yahoo.com/video-shows-trump-mocking-mccain-185228468.html)
-- Jan 07 - [Man kidnapped pregnant woman, locked her in garage for 4-5 years, Texas police say](https://news.yahoo.com/man-kidnapped-pregnant-woman-locked-182412798.html)
-- Jan 07 - [Trump rekindles his rage against John McCain, taunting over POW's broken limbs](https://news.yahoo.com/trump-rekindles-rage-against-john-181838011.html)
+- Jan 07 - [North Texas teen who had severe burns after boy threw pan of gas on fire passes away](https://news.yahoo.com/north-texas-teen-had-severe-195719819.html)
 <!-- feed end -->
 
 ### Onstream
