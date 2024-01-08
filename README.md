@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [Man caught on camera accosting a Las Vegas judge in court is sentenced in an unrelated attack](https://news.yahoo.com/man-caught-camera-attacking-las-175846447.html)
-- Jan 08 - [The Jokes Are Piling Up After Cop Filmed Sucking on New Oral Drug Test](https://www.yahoo.com/entertainment/jokes-piling-cop-filmed-sucking-175333218.html)
-- Jan 08 - [Tesla Cybertrucks Keep Getting Stuck In Snow](https://news.yahoo.com/tesla-cybertrucks-keep-getting-stuck-174500089.html)
-- Jan 08 - [New Details on the Defendant Who ‘Supermanned’ Over the Judge’s Bench](https://news.yahoo.com/details-defendant-supermanned-over-judge-164844461.html)
-- Jan 08 - [Report: IHOP employees fired after server refused to wait on Black couple](https://news.yahoo.com/report-ihop-employees-fired-server-164632848.html)
+- Jan 08 - [New caravan forms in Mexico as frustrated migrants complain about visa delays](https://news.yahoo.com/caravan-forms-mexico-frustrated-migrants-194618763.html)
+- Jan 08 - [911 transcripts reveal chaotic scene as gunman killed 18 people in Maine](https://news.yahoo.com/911-transcripts-reveal-chaotic-scene-193934039.html)
+- Jan 08 - [Italian influencer under investigation in scandal over sales of Christmas cakes for charity: reports](https://news.yahoo.com/italian-influencer-under-investigation-scandal-193926661.html)
+- Jan 08 - [CES 2024 updates: Most interesting news and gadgets from tech's big show](https://news.yahoo.com/ces-2024-updates-most-interesting-193633920.html)
+- Jan 08 - [Mesa, Arizona, receives first pure battery-electric fire truck in the U.S.](https://www.autoblog.com/2024/01/08/mesa-arizona-receives-first-pure-battery-electric-fire-truck-in-the-u-s/)
 <!-- feed end -->
 
 ### Onstream
