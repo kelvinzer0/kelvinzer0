@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 08 - [Man caught on camera accosting a Las Vegas judge in court is sentenced in an unrelated attack](https://news.yahoo.com/man-caught-camera-attacking-las-175846447.html)
+- Jan 08 - [The Jokes Are Piling Up After Cop Filmed Sucking on New Oral Drug Test](https://www.yahoo.com/entertainment/jokes-piling-cop-filmed-sucking-175333218.html)
+- Jan 08 - [Tesla Cybertrucks Keep Getting Stuck In Snow](https://news.yahoo.com/tesla-cybertrucks-keep-getting-stuck-174500089.html)
 - Jan 08 - [New Details on the Defendant Who ‘Supermanned’ Over the Judge’s Bench](https://news.yahoo.com/details-defendant-supermanned-over-judge-164844461.html)
 - Jan 08 - [Report: IHOP employees fired after server refused to wait on Black couple](https://news.yahoo.com/report-ihop-employees-fired-server-164632848.html)
-- Jan 08 - [‘We’re leaving!’: Rich Americans are ditching California and ‘taking their tax dollars with them.’  Here’s why they’re leaving — and where they’re headed](https://finance.yahoo.com/news/leaving-rich-americans-ditching-california-163000441.html)
-- Jan 08 - [Man with peanut allergy told paramedics ‘I’m going to die’ after eating online meal, inquest told](https://news.yahoo.com/computer-programmer-peanut-allergy-told-160722794.html)
-- Jan 08 - [Elon Musk's drug use causing turmoil for Tesla, SpaceX execs: WSJ](https://finance.yahoo.com/video/elon-musks-drug-causing-turmoil-155951308.html)
 <!-- feed end -->
 
 ### Onstream
