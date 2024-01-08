@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 08 - [Israeli strike on Lebanon kills senior commander in elite Hezbollah unit - security sources](https://news.yahoo.com/israeli-strike-lebanon-kills-senior-111732058.html)
 - Jan 08 - ['Your Jaw Is Dropping!': CNN Commentator Stunned By New 'God Made Trump' Video](https://news.yahoo.com/jaw-dropping-cnn-commentator-stunned-093940045.html)
 - Jan 08 - [Donald Trump’s Latest ‘Relentlessly Stupid' Ramble Attracts One Hell Of A Fact-Check](https://news.yahoo.com/donald-trump-latest-relentlessly-stupid-084138421.html)
 - Jan 08 - [Trump says he will attend federal appeals court arguments on presidential immunity](https://news.yahoo.com/trump-says-attend-federal-appeals-055153968.html)
-- Jan 08 - [US intel shows China's army had missiles filled with water instead of fuel in a corruption scandal that led to Xi's military purge: Bloomberg](https://news.yahoo.com/us-intel-shows-chinas-army-045909485.html)
-- Jan 08 - [What aerospace analysts are saying about Boeing's mid-air blowout](https://finance.yahoo.com/news/aerospace-analysts-saying-boeings-mid-041417535.html)
+- Jan 08 - [Defendant who attacked judge in wild courtroom video will face her again in Las Vegas](https://news.yahoo.com/defendant-attacked-judge-wild-courtroom-050408390.html)
 <!-- feed end -->
 
 ### Onstream
