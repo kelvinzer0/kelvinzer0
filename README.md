@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [Millions of plastic pellets wash up in Spain](https://news.yahoo.com/millions-plastic-pellets-wash-spain-163904840.html)
-- Jan 08 - [Yellen says 100,000 firms have joined a business database aimed at unmasking shell company owners](https://news.yahoo.com/yellen-says-100-000-firms-163746627.html)
+- Jan 08 - [New Details on the Defendant Who ‘Supermanned’ Over the Judge’s Bench](https://news.yahoo.com/details-defendant-supermanned-over-judge-164844461.html)
+- Jan 08 - [Report: IHOP employees fired after server refused to wait on Black couple](https://news.yahoo.com/report-ihop-employees-fired-server-164632848.html)
 - Jan 08 - [‘We’re leaving!’: Rich Americans are ditching California and ‘taking their tax dollars with them.’  Here’s why they’re leaving — and where they’re headed](https://finance.yahoo.com/news/leaving-rich-americans-ditching-california-163000441.html)
-- Jan 08 - [Tiger announces his longtime Nike partnership has ended](https://sports.yahoo.com/tiger-announces-longtime-nike-partnership-162152082.html)
-- Jan 08 - [Computer programmer with peanut allergy told paramedics ‘I’m going to die’ before death](https://news.yahoo.com/computer-programmer-peanut-allergy-told-160722794.html)
+- Jan 08 - [Man with peanut allergy told paramedics ‘I’m going to die’ after eating online meal, inquest told](https://news.yahoo.com/computer-programmer-peanut-allergy-told-160722794.html)
+- Jan 08 - [Elon Musk's drug use causing turmoil for Tesla, SpaceX execs: WSJ](https://finance.yahoo.com/video/elon-musks-drug-causing-turmoil-155951308.html)
 <!-- feed end -->
 
 ### Onstream
