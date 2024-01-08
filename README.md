@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 08 - [GOP Secretary of State Melts Down When Asked To Explain Bid to Throw Biden Off Ballot](https://news.yahoo.com/gop-secretary-state-melts-down-212946696.html)
+- Jan 08 - [DeSantis responds to Trump’s Civil War remarks: ‘I don’t even know what he’s talking about’](https://news.yahoo.com/desantis-responds-trump-civil-war-212618208.html)
+- Jan 08 - [Russia painted fake fighter jets at its airfields, new satellite images show, likely to trick Ukraine into not blowing up the real deal](https://news.yahoo.com/russia-painted-fake-fighter-jets-211802381.html)
+- Jan 08 - [Roofers find baby's body in trash bin outside South Florida apartment complex](https://news.yahoo.com/roofers-babys-body-trash-bin-205537426.html)
 - Jan 08 - [Israeli forces say they locate large underground weapons factory in Gaza](https://news.yahoo.com/israeli-forces-locate-large-underground-205345671.html)
-- Jan 08 - [Someone Found An iPhone That Fell 16,000 Feet From That Alaska Airlines Flight, And The Creepiest Part Is The Ripped Off Charging Cable](https://www.yahoo.com/lifestyle/someone-found-iphone-fell-16-203253353.html)
-- Jan 08 - [Experts: Jack Smith’s “dramatic new proof” so “overwhelming” reluctant witnesses may decide to flip](https://news.yahoo.com/experts-jack-smith-dramatic-proof-201015839.html)
-- Jan 08 - [Russia struggled to push the Ukrainians into the river after its planes were shot down, intel says, showing how a surprising failure at the war's start is still a problem](https://news.yahoo.com/russia-struggled-push-ukrainians-river-195027559.html)
-- Jan 08 - [Missing Ohio teen located in Florida after logging in to World of Warcraft account](https://news.yahoo.com/missing-ohio-teen-located-florida-192317089.html)
 <!-- feed end -->
 
 ### Onstream
