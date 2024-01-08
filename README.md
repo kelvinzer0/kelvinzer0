@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [NY high school basketball coach and player dismissed after team they played against was targeted with antisemitic rhetoric](https://news.yahoo.com/ny-high-school-basketball-coach-010240033.html)
+- Jan 08 - [What aerospace analysts are saying about Boeing's mid-air blowout](https://finance.yahoo.com/news/aerospace-analysts-saying-boeings-mid-041417535.html)
 - Jan 08 - [Iowa's Christian conservatives follow their faith when voting, and some say it leads them to Trump](https://news.yahoo.com/iowas-christian-conservatives-faith-voting-001957600.html)
 - Jan 07 - [Bill Clinton’s Security Accused Of Tipping Off Raid In Epstein Docs](https://www.yahoo.com/entertainment/bill-clinton-security-accused-tipping-212208229.html)
 - Jan 07 - [The Pentagon adds new details about Austin's secretive hospital stay and the delay in telling Biden](https://news.yahoo.com/defense-secretary-remains-hospitalized-details-204115059.html)
