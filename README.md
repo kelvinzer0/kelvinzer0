@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - ['Rush to judgment:' Why suspended basketball star Terrence Shannon Jr. is taking the University of Illinois to court](https://sports.yahoo.com/rush-to-judgment-why-suspended-basketball-star-terrence-shannon-jr-is-taking-the-university-of-illinois-to-court-130748501.html)
+- Jan 09 - [Trump returns to federal court as judges hear arguments on whether he's immune from prosecution](https://news.yahoo.com/trump-returns-federal-court-judges-154127229.html)
+- Jan 09 - [How much snow has fallen in the Kansas City area? Here’s an early look](https://news.yahoo.com/much-snow-fallen-kansas-city-141314803.html)
 - Jan 09 - ['The biggest crash in history': Robert Kiyosaki warns that millions of 401(k)s and IRAs will be 'toast' — says there's 'no time to play Russian Roulette.' Here's what he likes for protection](https://finance.yahoo.com/news/biggest-crash-history-robert-kiyosaki-130000435.html)
 - Jan 09 - [Deputy bravely offers help to injured bobcat in Florida and gets unexpected reaction](https://news.yahoo.com/deputy-bravely-offers-help-injured-125248515.html)
 - Jan 09 - [Fugitive the size of NFL lineman fails badly at blending into Florida swamp, cops say](https://news.yahoo.com/fugitive-size-nfl-lineman-fails-122142221.html)
-- Jan 09 - [‘It’s a fourth of your freaking take-home pay’: This Oklahoma man owes $51K on his RAM truck with a payment of $1.1K/month — plus he has mortgage and motorcycle debt. Caleb Hammer responds](https://finance.yahoo.com/news/fourth-freaking-home-pay-oklahoma-110000034.html)
 <!-- feed end -->
 
 ### Onstream
