@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Trump returns to federal court as judges hear arguments on whether he's immune from prosecution](https://news.yahoo.com/trump-returns-federal-court-judges-154127229.html)
-- Jan 09 - [How much snow has fallen in the Kansas City area? Here’s an early look](https://news.yahoo.com/much-snow-fallen-kansas-city-141314803.html)
-- Jan 09 - ['The biggest crash in history': Robert Kiyosaki warns that millions of 401(k)s and IRAs will be 'toast' — says there's 'no time to play Russian Roulette.' Here's what he likes for protection](https://finance.yahoo.com/news/biggest-crash-history-robert-kiyosaki-130000435.html)
-- Jan 09 - [Deputy bravely offers help to injured bobcat in Florida and gets unexpected reaction](https://news.yahoo.com/deputy-bravely-offers-help-injured-125248515.html)
-- Jan 09 - [Fugitive the size of NFL lineman fails badly at blending into Florida swamp, cops say](https://news.yahoo.com/fugitive-size-nfl-lineman-fails-122142221.html)
+- Jan 09 - [Ray Epps, a target of Jan. 6 conspiracy theories, gets a year of probation for his Capitol riot role](https://news.yahoo.com/ray-epps-target-jan-6-164800399.html)
+- Jan 09 - [Mo. Teacher Accused of Sexually Abusing Teen After Police See Pictures of Scratches on Him; Student’s Father Also Arrested](https://www.yahoo.com/entertainment/mo-teacher-accused-sexually-abusing-164158874.html)
+- Jan 09 - [Fed is 'not completely done' fighting inflation: Gary Cohn](https://finance.yahoo.com/video/wall-street-misread-recent-fed-163131403.html)
+- Jan 09 - [Tiny ‘stowaway’ outraged after being rescued from inside of car, Texas photos show](https://news.yahoo.com/tiny-stowaway-outraged-being-rescued-163117482.html)
+- Jan 09 - [Trump’s immunity claim gets frosty reception at appeals court](https://news.yahoo.com/trump-immunity-claim-gets-frosty-160622460.html)
 <!-- feed end -->
 
 ### Onstream
