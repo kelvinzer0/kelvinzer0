@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 09 - [Iowa pastors denounce ‘God Made Trump’ video](https://news.yahoo.com/iowa-pastors-denounce-god-made-040000247.html)
 - Jan 09 - [It sure looks like Donald Trump was disguised as 'Doe 174' in the newly unsealed Jeffrey Epstein documents](https://news.yahoo.com/sure-looks-donald-trump-disguised-032415418.html)
+- Jan 09 - [Conway predicts outcome in Trump’s immunity claim](https://news.yahoo.com/conway-predicts-outcome-trump-immunity-024509495.html)
 - Jan 09 - [Trump says he hopes economy crashes in next 12 months: ‘I don’t want to be Herbert Hoover’](https://news.yahoo.com/trump-says-hopes-economy-crashes-014348407.html)
 - Jan 09 - [Video of 73-year-old boarded up inside his apartment sparks investigation](https://news.yahoo.com/video-73-old-boarded-inside-013329993.html)
-- Jan 09 - [Parents of Iowa teen who killed 1 and wounded 7 in shooting say they had 'no inkling' of his plan](https://news.yahoo.com/parents-iowa-teen-killed-1-010432020.html)
-- Jan 09 - [Gillian Anderson's Golden Globes gown was embroidered with vaginas. Ob-gyns say they're vulvas. What's the difference?](https://www.yahoo.com/lifestyle/gillian-anderson-golden-globes-gown-vaginas-vulvas-whats-the-difference-005944525.html)
 <!-- feed end -->
 
 ### Onstream
