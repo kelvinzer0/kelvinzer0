@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 09 - [Secret tunnel in NYC synagogue leads to brawl between police and worshippers](https://news.yahoo.com/secret-tunnel-nyc-synagogue-leads-182815905.html)
+- Jan 09 - [Trump attorney tells court presidential immunity covers assassinating rivals and selling pardons](https://news.yahoo.com/trump-attorney-tells-court-presidential-180257691.html)
+- Jan 09 - [‘Funny looking chicken’ in backyard coop turns out to be scaly predator, officials say](https://news.yahoo.com/funny-looking-chicken-backyard-coop-180039845.html)
+- Jan 09 - [Trump legal news brief: Appeals court seems poised to reject Trump’s immunity claim](https://news.yahoo.com/trump-legal-news-brief-appeals-court-seems-poised-to-reject-trumps-immunity-claim-175658555.html)
 - Jan 09 - [Shohei Ohtani's Dodgers deal prompts California controller to ask Congress to cap deferred payments](https://news.yahoo.com/shohei-ohtanis-dodgers-deal-prompts-174216895.html)
-- Jan 09 - [US Rep. Greg Pence of Indiana, former VP Mike Pence's older brother, won't seek reelection](https://news.yahoo.com/us-rep-greg-pence-indiana-173408765.html)
-- Jan 09 - [Trump is driving economists crazy — again](https://finance.yahoo.com/news/trump-is-driving-economists-crazy--again-173043890.html)
-- Jan 09 - [Trump's lawyer argues that a president can order SEAL Team Six to assassinate his political rival if Congress is cool with it](https://news.yahoo.com/trumps-lawyer-argues-president-order-162731530.html)
-- Jan 09 - [Duct-taped and beaten to death over potty training. Mom will now spend 42 years in prison.](https://news.yahoo.com/duct-taped-beaten-death-over-171747583.html)
 <!-- feed end -->
 
 ### Onstream
