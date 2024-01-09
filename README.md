@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 09 - [Trump suggests unauthorized migrants will vote. The idea stirs his base, but ignores reality](https://news.yahoo.com/trump-suggests-unauthorized-migrants-vote-203546728.html)
+- Jan 09 - ["Preposterous argument": Expert says Trump statements "coming back to haunt him" in immunity hearing](https://news.yahoo.com/preposterous-argument-expert-says-trump-203545552.html)
 - Jan 09 - [Founder of KC company Jericho Home Improvements, John Bartrom, killed in Sunday shooting](https://news.yahoo.com/founder-kc-company-jericho-home-191544246.html)
 - Jan 09 - [Elon Musk Married And Divorced The Same Woman Twice Paying Her Over $20 Million In Settlements, She Says, 'Elon Musk Is The Perfect Ex-Husband' And Is Open To Marrying Him A 3rd Time](https://finance.yahoo.com/news/elon-musk-married-divorced-same-190535830.html)
 - Jan 09 - [A Wisconsin Supreme Court justice says 'we're going to lose this battle' for democracy to 'a bunch of insurrectionists' if public officials don't speak out about the threats they've received](https://news.yahoo.com/wisconsin-supreme-court-justice-says-190327175.html)
-- Jan 09 - [Secret tunnel in NYC synagogue leads to brawl between police and worshippers](https://news.yahoo.com/secret-tunnel-nyc-synagogue-leads-182815905.html)
-- Jan 09 - [Should Trump be immune from criminal prosecution? What Americans said in a new poll](https://news.yahoo.com/trump-immune-criminal-prosecution-americans-180903995.html)
 <!-- feed end -->
 
 ### Onstream
