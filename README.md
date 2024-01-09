@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 09 - [Founder of KC company Jericho Home Improvements, John Bartrom, killed in Sunday shooting](https://news.yahoo.com/founder-kc-company-jericho-home-191544246.html)
+- Jan 09 - [Elon Musk Married And Divorced The Same Woman Twice Paying Her Over $20 Million In Settlements, She Says, 'Elon Musk Is The Perfect Ex-Husband' And Is Open To Marrying Him A 3rd Time](https://finance.yahoo.com/news/elon-musk-married-divorced-same-190535830.html)
+- Jan 09 - [A Wisconsin Supreme Court justice says 'we're going to lose this battle' for democracy to 'a bunch of insurrectionists' if public officials don't speak out about the threats they've received](https://news.yahoo.com/wisconsin-supreme-court-justice-says-190327175.html)
 - Jan 09 - [Secret tunnel in NYC synagogue leads to brawl between police and worshippers](https://news.yahoo.com/secret-tunnel-nyc-synagogue-leads-182815905.html)
-- Jan 09 - [Trump attorney tells court presidential immunity covers assassinating rivals and selling pardons](https://news.yahoo.com/trump-attorney-tells-court-presidential-180257691.html)
-- Jan 09 - [‘Funny looking chicken’ in backyard coop turns out to be scaly predator, officials say](https://news.yahoo.com/funny-looking-chicken-backyard-coop-180039845.html)
-- Jan 09 - [Trump legal news brief: Appeals court seems poised to reject Trump’s immunity claim](https://news.yahoo.com/trump-legal-news-brief-appeals-court-seems-poised-to-reject-trumps-immunity-claim-175658555.html)
-- Jan 09 - [Shohei Ohtani's Dodgers deal prompts California controller to ask Congress to cap deferred payments](https://news.yahoo.com/shohei-ohtanis-dodgers-deal-prompts-174216895.html)
+- Jan 09 - [Should Trump be immune from criminal prosecution? What Americans said in a new poll](https://news.yahoo.com/trump-immune-criminal-prosecution-americans-180903995.html)
 <!-- feed end -->
 
 ### Onstream
