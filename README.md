@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 09 - [Trump's defense from his 2021 impeachment trial comes back to bite him in court as he argues for immunity](https://news.yahoo.com/trumps-defense-2021-impeachment-trial-220829703.html)
+- Jan 09 - [Migrant families begin leaving NYC hotels as first eviction notices kick in](https://news.yahoo.com/migrant-families-begin-leaving-nyc-220345759.html)
 - Jan 09 - [Top Wall Street Analyst Predicts Joe Biden's Future — And Yikes](https://news.yahoo.com/top-wall-street-analyst-predicts-213703079.html)
-- Jan 09 - [Founder of KC company Jericho Home Improvements, John Bartrom, killed in Sunday shooting](https://news.yahoo.com/founder-kc-company-jericho-home-191544246.html)
-- Jan 09 - [Elon Musk Married And Divorced The Same Woman Twice Paying Her Over $20 Million In Settlements, She Says, 'Elon Musk Is The Perfect Ex-Husband' And Is Open To Marrying Him A 3rd Time](https://finance.yahoo.com/news/elon-musk-married-divorced-same-190535830.html)
-- Jan 09 - [A Wisconsin Supreme Court justice says 'we're going to lose this battle' for democracy to 'a bunch of insurrectionists' if public officials don't speak out about the threats they've received](https://news.yahoo.com/wisconsin-supreme-court-justice-says-190327175.html)
-- Jan 09 - [Secret tunnel in NYC synagogue leads to brawl between police and worshippers](https://news.yahoo.com/secret-tunnel-nyc-synagogue-leads-182815905.html)
+- Jan 09 - [Trump suggests unauthorized migrants will vote. The idea stirs his base, but ignores reality](https://news.yahoo.com/trump-suggests-unauthorized-migrants-vote-203546728.html)
+- Jan 09 - [Good Samaritan clotheslines alleged porch pirate fleeing cops: 'pick somewhere else'](https://news.yahoo.com/good-samaritan-clotheslines-alleged-porch-194422909.html)
 <!-- feed end -->
 
 ### Onstream
