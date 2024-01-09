@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 09 - [Deputy bravely offers help to injured bobcat in Florida and gets unexpected reaction](https://news.yahoo.com/deputy-bravely-offers-help-injured-125248515.html)
+- Jan 09 - [Fugitive the size of NFL lineman fails badly at blending into Florida swamp, cops say](https://news.yahoo.com/fugitive-size-nfl-lineman-fails-122142221.html)
+- Jan 09 - [‘It’s a fourth of your freaking take-home pay’: This Oklahoma man owes $51K on his RAM truck with a payment of $1.1K/month — plus has mortgage and motorcycle debt. Caleb Hammer responds](https://finance.yahoo.com/news/fourth-freaking-home-pay-oklahoma-110000034.html)
+- Jan 09 - [U.S. boxer Johnson, Canadian ice hockey player Leipsic get Russian citizenship](https://news.yahoo.com/u-boxer-johnson-canadian-ice-094940238.html)
 - Jan 09 - [Donald Trump Fuels Instant Fact Check With Latest Ridiculous Lie](https://news.yahoo.com/donald-trump-fuels-instant-fact-080107997.html)
-- Jan 09 - [Iowa pastors denounce ‘God Made Trump’ video](https://news.yahoo.com/iowa-pastors-denounce-god-made-040000247.html)
-- Jan 09 - [It sure looks like Donald Trump was disguised as 'Doe 174' in the newly unsealed Jeffrey Epstein documents](https://news.yahoo.com/sure-looks-donald-trump-disguised-032415418.html)
-- Jan 09 - [Conway predicts outcome in Trump’s immunity claim](https://news.yahoo.com/conway-predicts-outcome-trump-immunity-024509495.html)
-- Jan 09 - [Trump says he hopes economy crashes in next 12 months: ‘I don’t want to be Herbert Hoover’](https://news.yahoo.com/trump-says-hopes-economy-crashes-014348407.html)
 <!-- feed end -->
 
 ### Onstream
