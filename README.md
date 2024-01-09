@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Ray Epps, a target of Jan. 6 conspiracy theories, gets a year of probation for his Capitol riot role](https://news.yahoo.com/ray-epps-target-jan-6-164800399.html)
-- Jan 09 - [Mo. Teacher Accused of Sexually Abusing Teen After Police See Pictures of Scratches on Him; Student’s Father Also Arrested](https://www.yahoo.com/entertainment/mo-teacher-accused-sexually-abusing-164158874.html)
-- Jan 09 - [Fed is 'not completely done' fighting inflation: Gary Cohn](https://finance.yahoo.com/video/wall-street-misread-recent-fed-163131403.html)
-- Jan 09 - [Tiny ‘stowaway’ outraged after being rescued from inside of car, Texas photos show](https://news.yahoo.com/tiny-stowaway-outraged-being-rescued-163117482.html)
-- Jan 09 - [Trump’s immunity claim gets frosty reception at appeals court](https://news.yahoo.com/trump-immunity-claim-gets-frosty-160622460.html)
+- Jan 09 - [Shohei Ohtani's Dodgers deal prompts California controller to ask Congress to cap deferred payments](https://news.yahoo.com/shohei-ohtanis-dodgers-deal-prompts-174216895.html)
+- Jan 09 - [US Rep. Greg Pence of Indiana, former VP Mike Pence's older brother, won't seek reelection](https://news.yahoo.com/us-rep-greg-pence-indiana-173408765.html)
+- Jan 09 - [Trump is driving economists crazy — again](https://finance.yahoo.com/news/trump-is-driving-economists-crazy--again-173043890.html)
+- Jan 09 - [Trump's lawyer argues that a president can order SEAL Team Six to assassinate his political rival if Congress is cool with it](https://news.yahoo.com/trumps-lawyer-argues-president-order-162731530.html)
+- Jan 09 - [Duct-taped and beaten to death over potty training. Mom will now spend 42 years in prison.](https://news.yahoo.com/duct-taped-beaten-death-over-171747583.html)
 <!-- feed end -->
 
 ### Onstream
