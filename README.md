@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 09 - [Haley accuses Biden of giving 'offensive' speech at the church where racist mass shooting occurred](https://news.yahoo.com/haley-accuses-biden-giving-offensive-002917546.html)
-- Jan 09 - [Roger Stone Discussed Assassinating Dems Before 2020 Election: Report](https://news.yahoo.com/roger-stone-discussed-assassinating-dems-002815166.html)
 - Jan 09 - [Co-defendant in Trump's Georgia election case seeks to disqualify DA, alleging romantic relationship with prosecutor](https://news.yahoo.com/co-defendant-trumps-georgia-election-235400215.html)
-- Jan 08 - [Arrest warrant issued for Montana man accused of killing thousands of birds, including eagles](https://news.yahoo.com/arrest-warrant-issued-montana-man-235433699.html)
-- Jan 08 - [“Baywatch” Alum Nicole Eggert, 51, Diagnosed with Breast Cancer: 'This Journey's Been Rough' (Exclusive)](https://www.yahoo.com/entertainment/baywatch-alum-nicole-eggert-51-234658289.html)
+- Jan 09 - [Video of 73-year-old boarded up inside his apartment sparks investigation](https://news.yahoo.com/video-73-old-boarded-inside-013329993.html)
+- Jan 09 - [Parents of Iowa teen who killed 1 and wounded 7 in shooting say they had 'no inkling' of his plan](https://news.yahoo.com/parents-iowa-teen-killed-1-010432020.html)
+- Jan 09 - [Gillian Anderson's Golden Globes gown was embroidered with vaginas. Ob-gyns say they're vulvas. What's the difference?](https://www.yahoo.com/lifestyle/gillian-anderson-golden-globes-gown-vaginas-vulvas-whats-the-difference-005944525.html)
+- Jan 09 - [Haley accuses Biden of giving 'offensive' speech at the church where racist mass shooting occurred](https://news.yahoo.com/haley-accuses-biden-giving-offensive-002917546.html)
 <!-- feed end -->
 
 ### Onstream
