@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 08 - [LATEST: Massive explosion at downtown Fort Worth hotel, multiple injuries: ‘Oh my God’](https://news.yahoo.com/firefighters-ambulances-respond-reported-explosion-220405994.html)
-- Jan 08 - [‘That’s not factual sir’: CNN anchor challenges Missouri official’s threat about Biden](https://news.yahoo.com/not-factual-sir-cnn-anchor-213058127.html)
-- Jan 08 - [GOP Secretary of State Melts Down When Asked To Explain Bid to Throw Biden Off Ballot](https://news.yahoo.com/gop-secretary-state-melts-down-212946696.html)
-- Jan 08 - [Cold Murder Case of Black Boy Goes To Trial. You Won’t Believe Who The Star Suspect Is](https://news.yahoo.com/cold-murder-case-black-boy-211934022.html)
-- Jan 08 - [Russia painted fake fighter jets at its airfields, new satellite images show, likely to trick Ukraine into not blowing up the real deal](https://news.yahoo.com/russia-painted-fake-fighter-jets-211802381.html)
+- Jan 09 - [Haley accuses Biden of giving 'offensive' speech at the church where racist mass shooting occurred](https://news.yahoo.com/haley-accuses-biden-giving-offensive-002917546.html)
+- Jan 09 - [Roger Stone Discussed Assassinating Dems Before 2020 Election: Report](https://news.yahoo.com/roger-stone-discussed-assassinating-dems-002815166.html)
+- Jan 09 - [Co-defendant in Trump's Georgia election case seeks to disqualify DA, alleging romantic relationship with prosecutor](https://news.yahoo.com/co-defendant-trumps-georgia-election-235400215.html)
+- Jan 08 - [Arrest warrant issued for Montana man accused of killing thousands of birds, including eagles](https://news.yahoo.com/arrest-warrant-issued-montana-man-235433699.html)
+- Jan 08 - [“Baywatch” Alum Nicole Eggert, 51, Diagnosed with Breast Cancer: 'This Journey's Been Rough' (Exclusive)](https://www.yahoo.com/entertainment/baywatch-alum-nicole-eggert-51-234658289.html)
 <!-- feed end -->
 
 ### Onstream
