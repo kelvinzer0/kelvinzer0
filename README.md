@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 09 - [Iowa pastors denounce ‘God Made Trump’ video](https://news.yahoo.com/iowa-pastors-denounce-god-made-040000247.html)
+- Jan 09 - [Shohei Ohtani contract: State controller urges Congress to intervene on deferrals](https://sports.yahoo.com/shohei-ohtani-contract-state-controller-035325110.html)
 - Jan 09 - [It sure looks like Donald Trump was disguised as 'Doe 174' in the newly unsealed Jeffrey Epstein documents](https://news.yahoo.com/sure-looks-donald-trump-disguised-032415418.html)
 - Jan 09 - [Conway predicts outcome in Trump’s immunity claim](https://news.yahoo.com/conway-predicts-outcome-trump-immunity-024509495.html)
 - Jan 09 - [Trump says he hopes economy crashes in next 12 months: ‘I don’t want to be Herbert Hoover’](https://news.yahoo.com/trump-says-hopes-economy-crashes-014348407.html)
-- Jan 09 - [Video of 73-year-old boarded up inside his apartment sparks investigation](https://news.yahoo.com/video-73-old-boarded-inside-013329993.html)
 <!-- feed end -->
 
 ### Onstream
