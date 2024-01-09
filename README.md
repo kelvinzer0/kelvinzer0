@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 09 - [“Nail in the coffin”: Legal experts say aides’ new testimony is “kryptonite” for Trump’s defense](https://news.yahoo.com/nail-coffin-legal-experts-aides-134843487.html)
+- Jan 09 - ['The biggest crash in history': Robert Kiyosaki warns that millions of 401(k)s and IRAs will be 'toast' — says there's 'no time to play Russian Roulette.' Here's what he likes for protection](https://finance.yahoo.com/news/biggest-crash-history-robert-kiyosaki-130000435.html)
 - Jan 09 - [Deputy bravely offers help to injured bobcat in Florida and gets unexpected reaction](https://news.yahoo.com/deputy-bravely-offers-help-injured-125248515.html)
 - Jan 09 - [Fugitive the size of NFL lineman fails badly at blending into Florida swamp, cops say](https://news.yahoo.com/fugitive-size-nfl-lineman-fails-122142221.html)
 - Jan 09 - [‘It’s a fourth of your freaking take-home pay’: This Oklahoma man owes $51K on his RAM truck with a payment of $1.1K/month — plus has mortgage and motorcycle debt. Caleb Hammer responds](https://finance.yahoo.com/news/fourth-freaking-home-pay-oklahoma-110000034.html)
-- Jan 09 - [U.S. boxer Johnson, Canadian ice hockey player Leipsic get Russian citizenship](https://news.yahoo.com/u-boxer-johnson-canadian-ice-094940238.html)
-- Jan 09 - [Donald Trump Fuels Instant Fact Check With Latest Ridiculous Lie](https://news.yahoo.com/donald-trump-fuels-instant-fact-080107997.html)
 <!-- feed end -->
 
 ### Onstream
