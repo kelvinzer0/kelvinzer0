@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [26-Year-Old Teacher Arrested for Alleged Sexual Relationship With 16-Year-Old Student, Father of Teen Also Arrested](https://www.yahoo.com/entertainment/26-old-teacher-arrested-alleged-181037491.html)
 - Jan 10 - [Food Network Star Darnell Ferguson Arrested on Strangulation and Burglary Charges](https://www.yahoo.com/entertainment/food-network-star-darnell-ferguson-174853505.html)
-- Jan 10 - [Judge rescinds permission for Trump to give his own closing argument at his civil fraud trial](https://finance.yahoo.com/news/judge-rescinds-permission-trump-own-174543986.html)
-- Jan 10 - [Dramatic video: Emergency declared in popular beach town after extreme flooding](https://news.yahoo.com/major-north-shore-roads-closed-160807368.html)
+- Jan 10 - [Judge rescinds permission for Trump to give his own closing argument at his civil fraud trial](https://news.yahoo.com/judge-rescinds-permission-trump-own-174543082.html)
+- Jan 10 - [Dramatic video: Police declare emergency after extreme flooding swamps popular beach town](https://news.yahoo.com/major-north-shore-roads-closed-160807368.html)
 - Jan 10 - [Videos surface of large group sexually assaulting toddlers in Texas mall, FBI says](https://news.yahoo.com/videos-surface-large-group-sexually-172653085.html)
-- Jan 10 - [Jeff Bezos Made Over $7.9 Million An Hour Every Hour In 2023 — In Under 13 Minutes, He Brought In The Equivalent Of What The Typical Person Earns In A Lifetime](https://finance.yahoo.com/news/jeff-bezos-made-over-7-172628289.html)
 <!-- feed end -->
 
 ### Onstream
