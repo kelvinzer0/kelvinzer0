@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Kari Lake is in deep doo doo after Court of Appeals ruling](https://news.yahoo.com/kari-lake-deep-doo-doo-201046738.html)
-- Jan 10 - [Secret Synagogue Tunnel Sparks Clashes Between Police and Worshippers](https://finance.yahoo.com/video/secret-synagogue-tunnel-sparks-clashes-052000375.html)
-- Jan 10 - [Son kills former judge and wife, sending ‘shockwaves’ through Texas community, cops say](https://news.yahoo.com/son-kills-former-judge-wife-194027650.html)
-- Jan 10 - [Searches underway following avalanche at California ski resort near Lake Tahoe](https://news.yahoo.com/searches-under-way-following-avalanche-193736273.html)
-- Jan 10 - [26-Year-Old Teacher Arrested for Alleged Sexual Relationship With 16-Year-Old Student, Father of Teen Also Arrested](https://www.yahoo.com/entertainment/26-old-teacher-arrested-alleged-181037491.html)
+- Jan 10 - [Chris Christie Is Dropping Out Of 2024 GOP Presidential Race](https://news.yahoo.com/chris-christie-drops-2024-gop-215308540.html)
+- Jan 10 - [Trump critic Christie to drop out of Republican presidential race -BBG](https://finance.yahoo.com/news/trump-critic-christie-drop-republican-213854426.html)
+- Jan 10 - [Houston Texans owner is fighting son's claims that she's incapacitated and needs guardian](https://news.yahoo.com/houston-texans-owner-fighting-sons-211549599.html)
+- Jan 10 - [Wisconsin Assembly Speaker Robin Vos targeted for recall for not supporting Trump](https://news.yahoo.com/wisconsin-assembly-speaker-robin-vos-210431889.html)
+- Jan 10 - [Experts: Trump’s closing argument rejected because he made it clear he “would abuse the privilege”](https://news.yahoo.com/experts-trump-closing-argument-rejected-205028661.html)
 <!-- feed end -->
 
 ### Onstream
