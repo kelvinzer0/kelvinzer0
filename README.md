@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [Kari Lake is in deep doo doo after Court of Appeals ruling](https://news.yahoo.com/kari-lake-deep-doo-doo-201046738.html)
 - Jan 10 - [Secret Synagogue Tunnel Sparks Clashes Between Police and Worshippers](https://finance.yahoo.com/video/secret-synagogue-tunnel-sparks-clashes-052000375.html)
 - Jan 10 - [Son kills former judge and wife, sending ‘shockwaves’ through Texas community, cops say](https://news.yahoo.com/son-kills-former-judge-wife-194027650.html)
 - Jan 10 - [Searches underway following avalanche at California ski resort near Lake Tahoe](https://news.yahoo.com/searches-under-way-following-avalanche-193736273.html)
 - Jan 10 - [26-Year-Old Teacher Arrested for Alleged Sexual Relationship With 16-Year-Old Student, Father of Teen Also Arrested](https://www.yahoo.com/entertainment/26-old-teacher-arrested-alleged-181037491.html)
-- Jan 10 - [Judge rescinds permission for Trump to give his own closing argument at his civil fraud trial](https://news.yahoo.com/judge-rescinds-permission-trump-own-174543082.html)
 <!-- feed end -->
 
 ### Onstream
