@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [Colorado Congresswoman Lauren Boebert's ex-husband arrested, facing charges](https://news.yahoo.com/colorado-congresswoman-lauren-boeberts-ex-055400619.html)
 - Jan 10 - [‘Devastating’: Conway reacts to Trump team’s day in court](https://news.yahoo.com/devastating-conway-reacts-trump-team-035649454.html)
 - Jan 10 - ['This is goodbye': YouTuber Brian Barczyk enters hospice for pancreatic cancer](https://news.yahoo.com/goodbye-youtuber-brian-barczyk-enters-033538616.html)
 - Jan 10 - [Clinton, California Gov. Newsom seen vacationing at posh Mexico resort amid Epstein document dump: Report](https://news.yahoo.com/clinton-california-gov-newsom-seen-030400345.html)
 - Jan 10 - [61-year-old man has been found -- three weeks after his St. Louis nursing home suddenly closed](https://news.yahoo.com/61-old-man-found-three-014520944.html)
-- Jan 10 - [Scientists say this common method for preserving meat is actually dangerous: ‘A very real risk to public health’](https://news.yahoo.com/scientists-common-method-preserving-meat-013000539.html)
 <!-- feed end -->
 
 ### Onstream
