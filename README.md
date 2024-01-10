@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Amalija Knavs, mother of former first lady Melania Trump, dies](https://news.yahoo.com/amalija-knavs-mother-former-first-023959336.html)
+- Jan 10 - ['This is goodbye': YouTuber Brian Barczyk enters hospice for pancreatic cancer](https://news.yahoo.com/goodbye-youtuber-brian-barczyk-enters-033538616.html)
 - Jan 10 - [Todd and Julie Chrisley Receive $1 Million Settlement in Lawsuit Alleging Misconduct in Investigation Against Them](https://www.yahoo.com/entertainment/todd-julie-chrisley-receive-1-015406614.html)
 - Jan 10 - [61-year-old man has been found -- three weeks after his St. Louis nursing home suddenly closed](https://news.yahoo.com/61-old-man-found-three-014520944.html)
 - Jan 10 - [Scientists say this common method for preserving meat is actually dangerous: ‘A very real risk to public health’](https://news.yahoo.com/scientists-common-method-preserving-meat-013000539.html)
