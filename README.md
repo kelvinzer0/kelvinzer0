@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [House Oversight Hearing Turns Raucous When Hunter Biden Makes Unexpected Appearance](https://www.yahoo.com/entertainment/house-oversight-hearing-turns-raucous-153440351.html)
+- Jan 10 - [Fentanyl Mustang Girl Drives Recklessly And Plays Dumb](https://news.yahoo.com/fentanyl-mustang-girl-drives-recklessly-180000135.html)
 - Jan 10 - ["My Boss Peed In The Water Cooler": 21 People Shared Their Most Scandalous Work Stories](https://www.yahoo.com/lifestyle/boss-peed-water-cooler-21-142226975.html)
+- Jan 10 - [Russian tank’s astonishing detonation video sparks wave of nuke jokes on social media](https://news.yahoo.com/russian-tank-astonishing-detonation-video-142000696.html)
 - Jan 10 - [Putin may be about to launch an apocalyptic assault](https://news.yahoo.com/putin-may-launch-apocalyptic-assault-140619040.html)
-- Jan 10 - [“Dead man walking”: Experts say Trump immunity lawyer lost judges after he “set a trap for himself”](https://news.yahoo.com/dead-man-walking-experts-trump-140248815.html)
-- Jan 10 - [Bill Gates used to memorize the license plate of every Microsoft employee to keep tabs on them — Paul Allen says Gates would ‘prowl the parking lot.’ Is micromanagement really that bad?](https://finance.yahoo.com/news/bill-gates-used-memorize-license-120000732.html)
-- Jan 10 - [TB Joshua’s daughter: Tortured after standing up to ‘Daddy’](https://news.yahoo.com/tb-joshua-daughter-tortured-standing-000012673.html)
 <!-- feed end -->
 
 ### Onstream
