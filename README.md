@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Chris Christie Is Dropping Out Of 2024 GOP Presidential Race](https://news.yahoo.com/chris-christie-drops-2024-gop-215308540.html)
-- Jan 10 - [Trump critic Christie to drop out of Republican presidential race -BBG](https://finance.yahoo.com/news/trump-critic-christie-drop-republican-213854426.html)
+- Jan 10 - ['She's going to get smoked': Christie caught on hot mic ahead of exiting 2024 race](https://news.yahoo.com/shes-going-smoked-christie-caught-224906904.html)
+- Jan 10 - [Asian couple who gave birth to white twins settles with erring fertility clinic](https://news.yahoo.com/asian-couple-gave-birth-white-222116017.html)
+- Jan 10 - [Chris Christie says he's dropping out of the Republican presidential race before the Iowa caucuses](https://news.yahoo.com/christie-tells-allies-plans-major-212412418.html)
 - Jan 10 - [Houston Texans owner is fighting son's claims that she's incapacitated and needs guardian](https://news.yahoo.com/houston-texans-owner-fighting-sons-211549599.html)
-- Jan 10 - [Wisconsin Assembly Speaker Robin Vos targeted for recall for not supporting Trump](https://news.yahoo.com/wisconsin-assembly-speaker-robin-vos-210431889.html)
-- Jan 10 - [Experts: Trump’s closing argument rejected because he made it clear he “would abuse the privilege”](https://news.yahoo.com/experts-trump-closing-argument-rejected-205028661.html)
+- Jan 10 - [When Lauren Boebert's son called 911 to report he was being assaulted by his father, the congresswoman's ex-husband armed himself with one of many guns in his home: police report](https://news.yahoo.com/lauren-boeberts-son-called-911-204817471.html)
 <!-- feed end -->
 
 ### Onstream
