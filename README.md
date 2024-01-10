@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 10 - [Hunter Biden Abruptly Exits Hearing As Marjorie Taylor Greene Starts Speaking](https://news.yahoo.com/hunter-biden-abruptly-exits-hearing-165031601.html)
-- Jan 10 - [McDonald’s brings back colossal burger not seen in US in years. When you can get it](https://news.yahoo.com/mcdonald-brings-back-colossal-burger-152543588.html)
-- Jan 10 - ["My Boss Peed In The Water Cooler": 21 People Shared Their Most Scandalous Work Stories](https://www.yahoo.com/lifestyle/boss-peed-water-cooler-21-142226975.html)
-- Jan 10 - [Russian tank’s astonishing detonation video sparks wave of nuke jokes on social media](https://news.yahoo.com/russian-tank-astonishing-detonation-video-142000696.html)
-- Jan 10 - [Putin may be about to launch an apocalyptic assault](https://news.yahoo.com/putin-may-launch-apocalyptic-assault-140619040.html)
+- Jan 10 - [Food Network Star Darnell Ferguson Arrested on Strangulation and Burglary Charges](https://www.yahoo.com/entertainment/food-network-star-darnell-ferguson-174853505.html)
+- Jan 10 - [Judge rescinds permission for Trump to give his own closing argument at his civil fraud trial](https://finance.yahoo.com/news/judge-rescinds-permission-trump-own-174543986.html)
+- Jan 10 - [Dramatic video: Emergency declared in popular beach town after extreme flooding](https://news.yahoo.com/major-north-shore-roads-closed-160807368.html)
+- Jan 10 - [Videos surface of large group sexually assaulting toddlers in Texas mall, FBI says](https://news.yahoo.com/videos-surface-large-group-sexually-172653085.html)
+- Jan 10 - [Jeff Bezos Made Over $7.9 Million An Hour Every Hour In 2023 — In Under 13 Minutes, He Brought In The Equivalent Of What The Typical Person Earns In A Lifetime](https://finance.yahoo.com/news/jeff-bezos-made-over-7-172628289.html)
 <!-- feed end -->
 
 ### Onstream
