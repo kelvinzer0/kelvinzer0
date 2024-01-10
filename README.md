@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [Bill Gates used to memorize the license plate of every Microsoft employee to keep tabs on them — Paul Allen says Gates would ‘prowl the parking lot.’ Is micromanagement really that bad?](https://finance.yahoo.com/news/bill-gates-used-memorize-license-120000732.html)
 - Jan 10 - [TB Joshua’s daughter: Tortured after standing up to ‘Daddy’](https://news.yahoo.com/tb-joshua-daughter-tortured-standing-000012673.html)
+- Jan 10 - [19 GOP Former Members Of Congress Issue Stark Call To Courts On Trump](https://news.yahoo.com/19-gop-former-members-congress-112931514.html)
 - Jan 10 - [CNN Dumps Donald Trump Presser For A Dose Of The Truth](https://news.yahoo.com/cnn-dumps-donald-trump-presser-100152354.html)
 - Jan 10 - [45 years ago, a woman found a human skull in her home. Now DNA, genetics technology and fundraising may help police solve the mystery](https://news.yahoo.com/45-years-ago-woman-found-090000099.html)
-- Jan 10 - [Ex-Prosecutor Surprised By 'Jarring' Aspect To Trump Court Appearance](https://news.yahoo.com/ex-prosecutor-surprised-jarring-aspect-082618361.html)
-- Jan 10 - [Colorado Congresswoman Lauren Boebert's ex-husband arrested, facing charges](https://news.yahoo.com/colorado-congresswoman-lauren-boeberts-ex-055400619.html)
 <!-- feed end -->
 
 ### Onstream
