@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jan 10 - [TB Joshua’s daughter: Tortured after standing up to ‘Daddy’](https://news.yahoo.com/tb-joshua-daughter-tortured-standing-000012673.html)
 - Jan 10 - [19 GOP Former Members Of Congress Issue Stark Call To Courts On Trump](https://news.yahoo.com/19-gop-former-members-congress-112931514.html)
 - Jan 10 - [CNN Dumps Donald Trump Presser For A Dose Of The Truth](https://news.yahoo.com/cnn-dumps-donald-trump-presser-100152354.html)
-- Jan 10 - [45 years ago, a woman found a human skull in her home. Now DNA, genetics technology and fundraising may help police solve the mystery](https://news.yahoo.com/45-years-ago-woman-found-090000099.html)
+- Jan 10 - [Ex-Prosecutor Surprised By ‘Jarring’ Aspect To Trump Court Appearance](https://news.yahoo.com/ex-prosecutor-surprised-jarring-aspect-082618361.html)
 <!-- feed end -->
 
 ### Onstream
