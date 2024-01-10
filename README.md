@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 09 - [Coughs can linger for weeks after getting sick. Here’s why — and how to get over it faster.](https://www.yahoo.com/lifestyle/coughs-linger-weeks-after-getting-sick-heres-why-224426462.html)
 - Jan 09 - [Trump's defense from his 2021 impeachment trial comes back to bite him in court as he argues for immunity](https://news.yahoo.com/trumps-defense-2021-impeachment-trial-220829703.html)
-- Jan 09 - [Migrant families begin leaving NYC hotels as first eviction notices kick in](https://news.yahoo.com/migrant-families-begin-leaving-nyc-220345759.html)
-- Jan 09 - [Top Wall Street Analyst Predicts Joe Biden's Future — And Yikes](https://news.yahoo.com/top-wall-street-analyst-predicts-213703079.html)
 - Jan 09 - [Trump suggests unauthorized migrants will vote. The idea stirs his base, but ignores reality](https://news.yahoo.com/trump-suggests-unauthorized-migrants-vote-203546728.html)
+- Jan 09 - [California Democrat pushes wealth tax as $68 billion deficit looms. Why it’s getting attention](https://news.yahoo.com/california-democrat-pushes-wealth-tax-195904573.html)
 - Jan 09 - [Good Samaritan clotheslines alleged porch pirate fleeing cops: 'pick somewhere else'](https://news.yahoo.com/good-samaritan-clotheslines-alleged-porch-194422909.html)
 <!-- feed end -->
 
