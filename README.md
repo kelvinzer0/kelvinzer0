@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - ["My Boss Peed In The Water Cooler": 21 People Shared Their Most Scandalous Work Stories](https://www.yahoo.com/lifestyle/boss-peed-water-cooler-21-142226975.html)
+- Jan 10 - [Putin may be about to launch an apocalyptic assault](https://news.yahoo.com/putin-may-launch-apocalyptic-assault-140619040.html)
+- Jan 10 - [“Dead man walking”: Experts say Trump immunity lawyer lost judges after he “set a trap for himself”](https://news.yahoo.com/dead-man-walking-experts-trump-140248815.html)
 - Jan 10 - [Bill Gates used to memorize the license plate of every Microsoft employee to keep tabs on them — Paul Allen says Gates would ‘prowl the parking lot.’ Is micromanagement really that bad?](https://finance.yahoo.com/news/bill-gates-used-memorize-license-120000732.html)
 - Jan 10 - [TB Joshua’s daughter: Tortured after standing up to ‘Daddy’](https://news.yahoo.com/tb-joshua-daughter-tortured-standing-000012673.html)
-- Jan 10 - [CNN Dumps Donald Trump Presser For A Dose Of The Truth](https://news.yahoo.com/cnn-dumps-donald-trump-presser-100152354.html)
-- Jan 10 - [Is Playalinda in the north part of Brevard really a nude beach? We got the official answer](https://news.yahoo.com/playalinda-north-part-brevard-really-100136176.html)
-- Jan 10 - [Ex-Prosecutor Surprised By ‘Jarring’ Aspect To Trump Court Appearance](https://news.yahoo.com/ex-prosecutor-surprised-jarring-aspect-082618361.html)
 <!-- feed end -->
 
 ### Onstream
