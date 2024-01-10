@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [Amalija Knavs, mother of former first lady Melania Trump, dies](https://news.yahoo.com/amalija-knavs-mother-former-first-023959336.html)
 - Jan 10 - [Todd and Julie Chrisley Receive $1 Million Settlement in Lawsuit Alleging Misconduct in Investigation Against Them](https://www.yahoo.com/entertainment/todd-julie-chrisley-receive-1-015406614.html)
+- Jan 10 - [61-year-old man has been found -- three weeks after his St. Louis nursing home suddenly closed](https://news.yahoo.com/61-old-man-found-three-014520944.html)
+- Jan 10 - [Scientists say this common method for preserving meat is actually dangerous: ‘A very real risk to public health’](https://news.yahoo.com/scientists-common-method-preserving-meat-013000539.html)
 - Jan 10 - [Trump Keeps Suggesting People Who Aren’t White Aren’t Eligible To Be President](https://news.yahoo.com/trump-keeps-suggesting-people-aren-012726133.html)
-- Jan 10 - [Opinion: Trump's attempt to intimidate a federal appeals court could ensure his defeat](https://news.yahoo.com/opinion-trumps-attempt-intimidate-federal-005843537.html)
-- Jan 09 - [Coughs can linger for weeks after getting sick. Here’s why — and how to get over it faster.](https://www.yahoo.com/lifestyle/coughs-linger-weeks-after-getting-sick-heres-why-224426462.html)
-- Jan 09 - [Cook County pair goes on 'lawless crime spree', carjacks multiple vehicles in suburbs: prosecutors](https://news.yahoo.com/cook-county-pair-goes-lawless-202330047.html)
 <!-- feed end -->
 
 ### Onstream
