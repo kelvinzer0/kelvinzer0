@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [Todd and Julie Chrisley Receive $1 Million Settlement in Lawsuit Alleging Misconduct in Investigation Against Them](https://www.yahoo.com/entertainment/todd-julie-chrisley-receive-1-015406614.html)
+- Jan 10 - [61-year-old man has been found -- three weeks after his St. Louis nursing home suddenly closed](https://news.yahoo.com/61-old-man-found-three-014520944.html)
+- Jan 10 - [Trump Keeps Suggesting People Who Aren’t White Aren’t Eligible To Be President](https://news.yahoo.com/trump-keeps-suggesting-people-aren-012726133.html)
+- Jan 10 - [Opinion: Trump's attempt to intimidate a federal appeals court could ensure his defeat](https://news.yahoo.com/opinion-trumps-attempt-intimidate-federal-005843537.html)
 - Jan 09 - [Coughs can linger for weeks after getting sick. Here’s why — and how to get over it faster.](https://www.yahoo.com/lifestyle/coughs-linger-weeks-after-getting-sick-heres-why-224426462.html)
-- Jan 09 - [Trump's defense from his 2021 impeachment trial comes back to bite him in court as he argues for immunity](https://news.yahoo.com/trumps-defense-2021-impeachment-trial-220829703.html)
-- Jan 09 - [Trump suggests unauthorized migrants will vote. The idea stirs his base, but ignores reality](https://news.yahoo.com/trump-suggests-unauthorized-migrants-vote-203546728.html)
-- Jan 09 - [California Democrat pushes wealth tax as $68 billion deficit looms. Why it’s getting attention](https://news.yahoo.com/california-democrat-pushes-wealth-tax-195904573.html)
-- Jan 09 - [Good Samaritan clotheslines alleged porch pirate fleeing cops: 'pick somewhere else'](https://news.yahoo.com/good-samaritan-clotheslines-alleged-porch-194422909.html)
 <!-- feed end -->
 
 ### Onstream
