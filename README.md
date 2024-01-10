@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [CNN Dumps Donald Trump Presser For A Dose Of The Truth](https://news.yahoo.com/cnn-dumps-donald-trump-presser-100152354.html)
 - Jan 10 - [Ex-Prosecutor Surprised By 'Jarring' Aspect To Trump Court Appearance](https://news.yahoo.com/ex-prosecutor-surprised-jarring-aspect-082618361.html)
 - Jan 10 - [Colorado Congresswoman Lauren Boebert's ex-husband arrested, facing charges](https://news.yahoo.com/colorado-congresswoman-lauren-boeberts-ex-055400619.html)
 - Jan 10 - [‘Devastating’: Conway reacts to Trump team’s day in court](https://news.yahoo.com/devastating-conway-reacts-trump-team-035649454.html)
 - Jan 10 - ['This is goodbye': YouTuber Brian Barczyk enters hospice for pancreatic cancer](https://news.yahoo.com/goodbye-youtuber-brian-barczyk-enters-033538616.html)
-- Jan 10 - [Clinton, California Gov. Newsom seen vacationing at posh Mexico resort amid Epstein document dump: Report](https://news.yahoo.com/clinton-california-gov-newsom-seen-030400345.html)
 <!-- feed end -->
 
 ### Onstream
