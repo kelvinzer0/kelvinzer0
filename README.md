@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 11 - [Trump says he got money from China and Saudi Arabia because he was “doing services” for them](https://news.yahoo.com/trump-says-got-money-china-161202767.html)
+- Jan 11 - [The Nazis forced a Jewish woman to hand over a priceless painting. 85 years later,  judges said her family can't have it back.](https://news.yahoo.com/nazis-forced-jewish-woman-hand-154413066.html)
+- Jan 11 - [Russia's Medvedev warns of nuclear response if Ukraine hits missile launch sites](https://finance.yahoo.com/news/russias-medvedev-warns-nuclear-response-144612420.html)
 - Jan 11 - [Debate coach: One candidate got a B. The other flunked](https://news.yahoo.com/debate-coach-one-candidate-got-142627588.html)
 - Jan 11 - [Car rental firm Hertz to sell 20,000 EVs for gas-powered vehicles](https://finance.yahoo.com/news/hertz-sell-20-000-evs-123933257.html)
-- Jan 11 - [I'm Selling My House and Netting $640k to Downsize for Retirement. How Can I Avoid Capital Gains Taxes?](https://finance.yahoo.com/news/im-selling-house-netting-640k-120000169.html)
-- Jan 11 - [Trump Reacts To Woman Telling Him He 'Personally Demeaned' So Many Ex-Associates](https://www.yahoo.com/entertainment/trump-reacts-woman-telling-him-113725901.html)
-- Jan 11 - ['We lost everything in Post Office scandal'](https://www.yahoo.com/entertainment/lost-everything-post-office-scandal-060553213.html)
 <!-- feed end -->
 
 ### Onstream
