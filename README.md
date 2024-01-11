@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 11 - ['Our Guy Gets To Commit Crimes': Democratic Senator Slams Trump's Immunity Claims](https://news.yahoo.com/guy-gets-commit-crimes-democratic-185207565.html)
+- Jan 11 - [Trump gets his way in closing arguments at NY fraud trial, calling himself a 'victim' in surprise remarks](https://news.yahoo.com/trump-gets-way-closing-arguments-183150502.html)
+- Jan 11 - [Former Maryland Gov. Larry Hogan steps down from No Labels' board in a possible sign of a 2024 bid](https://news.yahoo.com/former-maryland-gov-larry-hogan-182115809.html)
 - Jan 11 - [This Social Security rule is dead — but spouses still have options](https://finance.yahoo.com/news/social-security-rule-dead-spouses-171700612.html)
-- Jan 11 - ["I have no rights!": Trump falsely whines outside courtroom — and gets instantly fact-checked](https://news.yahoo.com/no-rights-trump-falsely-whines-171324343.html)
-- Jan 11 - [Rattlesnake den was well hidden behind shower wall — until owners started renovating](https://news.yahoo.com/rattlesnake-den-well-hidden-behind-170055444.html)
-- Jan 11 - [Hunter Biden’s daughter hits back at Greene for ‘lying’ at House hearing](https://news.yahoo.com/hunter-biden-daughter-hits-back-165407596.html)
-- Jan 11 - [Trump says he got money from China and Saudi Arabia because he was “doing services” for them](https://news.yahoo.com/trump-says-got-money-china-161202767.html)
+- Jan 11 - [Texas man suing Walmart is seeking $100M or 'unlimited free lifetime shopping'](https://news.yahoo.com/texas-man-suing-walmart-seeking-173631215.html)
 <!-- feed end -->
 
 ### Onstream
