@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 11 - [Trump Reacts To Woman Telling Him He 'Personally Demeaned' So Many Ex-Associates](https://www.yahoo.com/entertainment/trump-reacts-woman-telling-him-113725901.html)
 - Jan 11 - ['We lost everything in Post Office scandal'](https://www.yahoo.com/entertainment/lost-everything-post-office-scandal-060553213.html)
 - Jan 11 - [Iran identifies alleged bomb-maker behind last week's IS twin suicide attack that killed dozens](https://news.yahoo.com/iran-identifies-alleged-bomb-maker-094916289.html)
 - Jan 11 - [Ex-Trump Aide Reveals 'Scary' Moments He Wanted People Killed](https://news.yahoo.com/ex-trump-aide-reveals-scary-093021432.html)
-- Jan 11 - [Tanker in Gulf of Oman boarded by men in military uniforms in apparent seizure in Mideast waters](https://news.yahoo.com/ship-gulf-oman-boarded-unauthorized-072936601.html)
 - Jan 11 - [Nikki Haley Gets Laughs With Swift 7-Word Answer On What She Admires About Ron DeSantis](https://news.yahoo.com/nikki-haley-gets-laughs-swift-071228317.html)
 <!-- feed end -->
 
