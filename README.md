@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 11 - [Trump Reacts To Woman Telling Him He 'Personally Demeaned' So Many Ex-Associates](https://www.yahoo.com/entertainment/trump-reacts-woman-telling-him-113725901.html)
-- Jan 11 - ['We lost everything in Post Office scandal'](https://www.yahoo.com/entertainment/lost-everything-post-office-scandal-060553213.html)
-- Jan 11 - [Iran identifies alleged bomb-maker behind last week's IS twin suicide attack that killed dozens](https://news.yahoo.com/iran-identifies-alleged-bomb-maker-094916289.html)
-- Jan 11 - [Ex-Trump Aide Reveals 'Scary' Moments He Wanted People Killed](https://news.yahoo.com/ex-trump-aide-reveals-scary-093021432.html)
-- Jan 11 - [Nikki Haley Gets Laughs With Swift 7-Word Answer On What She Admires About Ron DeSantis](https://news.yahoo.com/nikki-haley-gets-laughs-swift-071228317.html)
+- Jan 11 - [Harvard sued by Jewish students over antisemitism on campus](https://news.yahoo.com/harvard-sued-jewish-students-over-140042259.html)
+- Jan 11 - [6 “Bad" Snacks You Should Be Eating When Trying to Lose Weight, According to a Dietitian](https://www.yahoo.com/lifestyle/6-bad-snacks-eating-trying-124215680.html)
+- Jan 11 - [Drunk Spirit passenger asked flight attendants to join the 'mile-high club' and then lay on the floor of the plane, complaint says](https://news.yahoo.com/drunk-spirit-passenger-asked-flight-123235836.html)
+- Jan 11 - ['I've made millions of people rich': Ramit Sethi boldly claims you can earn money 'every single day' from a simple automatic investing technique — but how legit is it?](https://finance.yahoo.com/news/ive-made-millions-people-rich-123000065.html)
+- Jan 11 - [I'm Selling My House and Netting $640k to Downsize for Retirement. How Can I Avoid Capital Gains Taxes?](https://finance.yahoo.com/news/im-selling-house-netting-640k-120000169.html)
 <!-- feed end -->
 
 ### Onstream
