@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 10 - [Police arrest a third person in connection with killings of pregnant woman, boyfriend in Texas](https://news.yahoo.com/police-arrest-third-person-connection-233051838.html)
 - Jan 10 - ['She's going to get smoked': Christie caught on hot mic ahead of exiting 2024 race](https://news.yahoo.com/shes-going-smoked-christie-caught-224906904.html)
+- Jan 10 - [Police declare emergency after extreme flooding swamps popular beach town](https://news.yahoo.com/major-north-shore-roads-closed-160807368.html)
 - Jan 10 - [Asian couple who gave birth to white twins settles with erring fertility clinic](https://news.yahoo.com/asian-couple-gave-birth-white-222116017.html)
-- Jan 10 - [Chris Christie says he's dropping out of the Republican presidential race before the Iowa caucuses](https://news.yahoo.com/christie-tells-allies-plans-major-212412418.html)
-- Jan 10 - [Houston Texans owner is fighting son's claims that she's incapacitated and needs guardian](https://news.yahoo.com/houston-texans-owner-fighting-sons-211549599.html)
 - Jan 10 - [When Lauren Boebert's son called 911 to report he was being assaulted by his father, the congresswoman's ex-husband armed himself with one of many guns in his home: police report](https://news.yahoo.com/lauren-boeberts-son-called-911-204817471.html)
 <!-- feed end -->
 
