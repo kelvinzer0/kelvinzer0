@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 10 - [Police arrest a third person in connection with killings of pregnant woman, boyfriend in Texas](https://news.yahoo.com/police-arrest-third-person-connection-233051838.html)
-- Jan 10 - ['She's going to get smoked': Christie caught on hot mic ahead of exiting 2024 race](https://news.yahoo.com/shes-going-smoked-christie-caught-224906904.html)
 - Jan 10 - [Police declare emergency after extreme flooding swamps popular beach town](https://news.yahoo.com/major-north-shore-roads-closed-160807368.html)
 - Jan 10 - [Asian couple who gave birth to white twins settles with erring fertility clinic](https://news.yahoo.com/asian-couple-gave-birth-white-222116017.html)
-- Jan 10 - [When Lauren Boebert's son called 911 to report he was being assaulted by his father, the congresswoman's ex-husband armed himself with one of many guns in his home: police report](https://news.yahoo.com/lauren-boeberts-son-called-911-204817471.html)
+- Jan 10 - [The newly unsealed Jeffrey Epstein documents have Donald Trump's name all over them. He had been secretly disguised as 'Doe 174.'](https://news.yahoo.com/sure-looks-donald-trump-disguised-032415641.html)
+- Jan 10 - [Actor Adan Canto, 42, dies following battle with rare cancer: What is appendiceal cancer?](https://news.yahoo.com/adan-canto-appendiceal-cancer-211817146.html)
 <!-- feed end -->
 
 ### Onstream
