@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 11 - [This Social Security rule is dead — but spouses still have options](https://finance.yahoo.com/news/social-security-rule-dead-spouses-171700612.html)
+- Jan 11 - ["I have no rights!": Trump falsely whines outside courtroom — and gets instantly fact-checked](https://news.yahoo.com/no-rights-trump-falsely-whines-171324343.html)
+- Jan 11 - [Rattlesnake den was well hidden behind shower wall — until owners started renovating](https://news.yahoo.com/rattlesnake-den-well-hidden-behind-170055444.html)
+- Jan 11 - [Hunter Biden’s daughter hits back at Greene for ‘lying’ at House hearing](https://news.yahoo.com/hunter-biden-daughter-hits-back-165407596.html)
 - Jan 11 - [Trump says he got money from China and Saudi Arabia because he was “doing services” for them](https://news.yahoo.com/trump-says-got-money-china-161202767.html)
-- Jan 11 - [The Nazis forced a Jewish woman to hand over a priceless painting. 85 years later,  judges said her family can't have it back.](https://news.yahoo.com/nazis-forced-jewish-woman-hand-154413066.html)
-- Jan 11 - [Russia's Medvedev warns of nuclear response if Ukraine hits missile launch sites](https://finance.yahoo.com/news/russias-medvedev-warns-nuclear-response-144612420.html)
-- Jan 11 - [Debate coach: One candidate got a B. The other flunked](https://news.yahoo.com/debate-coach-one-candidate-got-142627588.html)
-- Jan 11 - [Car rental firm Hertz to sell 20,000 EVs for gas-powered vehicles](https://finance.yahoo.com/news/hertz-sell-20-000-evs-123933257.html)
 <!-- feed end -->
 
 ### Onstream
