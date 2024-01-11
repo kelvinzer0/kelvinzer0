@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 11 - [Tennessee House Republicans defend requiring tickets for more than half of the public gallery seats](https://news.yahoo.com/tennessee-house-republicans-defend-requiring-212637055.html)
+- Jan 11 - [Debate coach: One candidate got a B. The other almost flunked](https://news.yahoo.com/debate-coach-one-candidate-got-142627588.html)
+- Jan 11 - [The US gave the Houthis a final warning. The Iran-backed rebels answered with their biggest-ever missile and drone attack.](https://news.yahoo.com/us-gave-houthis-final-warning-202003790.html)
 - Jan 11 - [Jelly Roll, former drug dealer and current Grammy nominee, speaks against fentanyl to Senate](https://www.yahoo.com/entertainment/jelly-roll-testifies-congressional-hearing-194539995.html)
 - Jan 11 - [‘Way to fumble the bag.’ Erik Spoelstra’s ex-wife breaks silence over his record contract](https://news.yahoo.com/way-fumble-bag-erik-spoelstra-194404796.html)
-- Jan 11 - [United Airlines plane makes an emergency landing after a warning about a possible door issue](https://news.yahoo.com/united-airlines-plane-makes-emergency-190858536.html)
-- Jan 11 - [Archeologists map lost cities in Ecuadorian Amazon, settlements that lasted 1,000 years](https://news.yahoo.com/archeologists-map-lost-cities-ecuadorian-190408243.html)
-- Jan 11 - [Dallas Cowboys legend Michael Irvin being investigated by Allen police; misconduct alleged](https://news.yahoo.com/former-dallas-cowboys-wide-receiver-185413447.html)
 <!-- feed end -->
 
 ### Onstream
