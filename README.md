@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 11 - [Nikki Haley Gets Laughs With Swift 7-Word Answer On What She Admires About Ron DeSantis](https://news.yahoo.com/nikki-haley-gets-laughs-swift-071228317.html)
 - Jan 11 - [Jeffrey Epstein's brother said the pedophile was 'just having a good time' when confronted by the financier's sex trafficking allegations](https://news.yahoo.com/jeffrey-epsteins-brother-said-pedophile-050859113.html)
+- Jan 11 - [U.S. says fuel shipment to Philippines coordinated with authorities](https://news.yahoo.com/u-says-fuel-shipment-philippines-035112460.html)
 - Jan 11 - [Trump hints at VP pick during Fox News town hall](https://news.yahoo.com/trump-hints-vp-pick-during-034340326.html)
 - Jan 10 - [Police arrest a third person in connection with killings of pregnant woman, boyfriend in Texas](https://news.yahoo.com/police-arrest-third-person-connection-233051838.html)
-- Jan 10 - [Police declare emergency after extreme flooding swamps popular beach town](https://news.yahoo.com/major-north-shore-roads-closed-160807368.html)
-- Jan 10 - [Asian couple who gave birth to white twins settles with erring fertility clinic](https://news.yahoo.com/asian-couple-gave-birth-white-222116017.html)
 <!-- feed end -->
 
 ### Onstream
