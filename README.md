@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [Texas man suing Walmart is seeking $100M or 'unlimited free lifetime shopping'](https://news.yahoo.com/texas-man-suing-walmart-seeking-173631215.html)
+- Jan 12 - [Saudi Arabia calls for restraint after air strikes on Yemen](https://news.yahoo.com/saudi-arabia-calls-restraint-air-022700617.html)
 - Jan 12 - [A woman was hired to investigate racial harassment after a suicide. Then she encountered it herself](https://news.yahoo.com/woman-hired-investigate-racial-harassment-010326462.html)
 - Jan 12 - [Sources: NCAA levies significant penalties on Florida State for NIL recruiting violations](https://sports.yahoo.com/sources-ncaa-levies-significant-penalties-on-florida-state-for-nil-recruiting-violations-002044975.html)
 - Jan 11 - [Trump Judge Spanks Ron DeSantis for Retaliating Against a Democratic Rival](https://news.yahoo.com/trump-judge-spanks-ron-desantis-224104246.html)
-- Jan 11 - [Tennessee House Republicans defend requiring tickets for more than half of the public gallery seats](https://news.yahoo.com/tennessee-house-republicans-defend-requiring-212637055.html)
-- Jan 11 - [Debate coach: One candidate got a B. The other almost flunked](https://news.yahoo.com/debate-coach-one-candidate-got-142627588.html)
 <!-- feed end -->
 
 ### Onstream
