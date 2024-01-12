@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [Hunter Biden would be willing to testify with new House subpoena, lawyer says](https://news.yahoo.com/hunter-biden-willing-testify-house-195754175.html)
-- Jan 12 - [Virginia county admits election tally in 2020 shorted Joe Biden](https://news.yahoo.com/virginia-county-admits-election-tally-195037589.html)
-- Jan 12 - [Trump legal news brief: Oregon punts on removing Trump from ballot until after U.S. Supreme Court weighs in](https://news.yahoo.com/trump-legal-news-brief-oregon-punts-on-removing-trump-from-ballot-until-after-us-supreme-court-weighs-in-194655687.html)
-- Jan 12 - [The Supreme Court will decide whether local anti-homeless laws are 'cruel and unusual'](https://news.yahoo.com/supreme-court-decide-whether-local-193334916.html)
+- Jan 12 - [General Patton’s Car Accident Remains Controversial Today](https://autos.yahoo.com/general-patton-car-accident-remains-200000765.html)
 - Jan 12 - [Donald Trump Ordered to Pay New York Times $400,000 for Frivolous Lawsuit](https://www.yahoo.com/entertainment/donald-trump-ordered-pay-york-193030371.html)
+- Jan 12 - [Wolverhampton grandmother’s abusers caught by hidden camera](https://news.yahoo.com/wolverhampton-grandmother-abusers-caught-hidden-184412345.html)
+- Jan 12 - [Ex-'Teacher of the Year' Accused of Sexually Abusing Student for Years: 'Happens More and More These Days'](https://www.yahoo.com/entertainment/ex-teacher-accused-sexually-abusing-174645046.html)
+- Jan 12 - [New videos show intense strikes on the Iran-backed Houthis, who are vowing revenge after getting hit by well over 100 missiles](https://news.yahoo.com/videos-show-intense-strikes-iran-162416944.html)
 <!-- feed end -->
 
 ### Onstream
