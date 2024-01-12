@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [Turkey providing documents for genocide hearings against Israel -Erdogan](https://news.yahoo.com/turkey-providing-documents-genocide-hearings-143520489.html)
+- Jan 12 - [“What Trump said was so damaging to him”: Experts say NY AG “struck gold” with Trump court rant](https://news.yahoo.com/trump-said-damaging-him-experts-140808805.html)
+- Jan 12 - [Big protests break out in Yemen after U.S.-British attacks](https://news.yahoo.com/large-protests-break-yemen-u-134704039.html)
 - Jan 12 - [Erdogan accuses U.S., Britain of trying to turn Red Sea into 'sea of blood'](https://news.yahoo.com/erdogan-accuses-u-britain-trying-125555042.html)
 - Jan 12 - [Russia's Medvedev says any UK troop deployment to Ukraine would be a declaration of war](https://news.yahoo.com/russias-medvedev-says-uk-troop-125315205.html)
-- Jan 12 - [U.S. suspends military aid to Ukraine - White House](https://news.yahoo.com/u-suspends-military-aid-ukraine-120200164.html)
-- Jan 12 - [Joe Biden Flips Donald Trump's Latest Boast Right Back At Him](https://news.yahoo.com/joe-biden-flips-donald-trumps-112314924.html)
-- Jan 12 - [In ‘unusual’ move, Wisconsin judge Vincent Biskupic orders man to pay restitution that county didn't seek](https://news.yahoo.com/unusual-move-wisconsin-judge-vincent-111112492.html)
 <!-- feed end -->
 
 ### Onstream
