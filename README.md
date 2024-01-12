@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [The “Chosen One”: Why experts say a new campaign ad from Trump signals impending violence](https://news.yahoo.com/chosen-one-why-experts-campaign-104503999.html)
+- Jan 12 - [Idaho man had to hide his excitement in the middle of a work video call when he found out he'd won $1 million in the lottery](https://www.yahoo.com/entertainment/idaho-man-had-hide-excitement-103027653.html)
 - Jan 12 - [Ron DeSantis suffers a stinging defeat in his war on woke](https://news.yahoo.com/ron-desantis-suffers-stinging-defeat-103005580.html)
 - Jan 12 - [Zelenskyy offers to financially support DeSantis in retirement for U.S. support for UA retirees](https://news.yahoo.com/zelenskyy-offers-financially-support-desantis-093700043.html)
-- Jan 12 - [CNN's Brianna Keilar Finds Unexpected Grain Of Truth In Trump Presser](https://news.yahoo.com/cnns-brianna-keilar-finds-unexpected-083502891.html)
-- Jan 12 - ['Thinking Isn't His Strength': Critics Scorch Donald Trump Jr.'s Wild COVID Claim](https://news.yahoo.com/thinking-isnt-strength-critics-scorch-075927577.html)
-- Jan 12 - [Startup accused of violating international law with sale of product dubbed ‘nature’s best kept secret’: ‘There is no good enforcement’](https://news.yahoo.com/startup-accused-violating-international-law-043000172.html)
+- Jan 12 - [Florida woman who kept baby after alleged Lyft driver sex attack says 'blessing' came from 'darkest hour'](https://news.yahoo.com/florida-woman-kept-baby-alleged-090014485.html)
 <!-- feed end -->
 
 ### Onstream
