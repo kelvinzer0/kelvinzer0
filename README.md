@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [Hunter Biden would be willing to testify with new House subpoena, lawyer says](https://news.yahoo.com/hunter-biden-willing-testify-house-195754175.html)
-- Jan 12 - [Chris Cuomo accused of sending explicit texts to former CNN colleague](https://news.yahoo.com/chris-cuomo-accused-sending-explicit-194006692.html)
-- Jan 12 - [Donald Trump Ordered to Pay New York Times $400,000 for Frivolous Lawsuit](https://www.yahoo.com/entertainment/donald-trump-ordered-pay-york-193030371.html)
-- Jan 12 - [Wolverhampton grandmother’s abusers caught by hidden camera](https://news.yahoo.com/wolverhampton-grandmother-abusers-caught-hidden-184412345.html)
-- Jan 12 - [Ex-'Teacher of the Year' Accused of Sexually Abusing Student for Years: 'Happens More and More These Days'](https://www.yahoo.com/entertainment/ex-teacher-accused-sexually-abusing-174645046.html)
+- Jan 12 - [Consumers Energy, road crews ready for winter storm](https://news.yahoo.com/consumers-energy-road-crews-ready-221054588.html)
+- Jan 12 - [Columnist's lawyer warns judge that Trump hopes to 'sow chaos' as jury considers defamation damages](https://news.yahoo.com/columnists-lawyer-warns-judge-trump-205233795.html)
+- Jan 12 - [General Patton’s Car Accident Remains Controversial Today](https://autos.yahoo.com/general-patton-car-accident-remains-200000765.html)
+- Jan 12 - [A Proud Boys member who wielded an axe handle during the Capitol riot gets over 4 years in prison](https://news.yahoo.com/proud-boys-member-wielded-axe-195545092.html)
+- Jan 12 - [Civil Rights Groups Horrified at Elon Musk's Racist Outburst Against Black People](https://news.yahoo.com/civil-rights-groups-horrified-elon-193230017.html)
 <!-- feed end -->
 
 ### Onstream
