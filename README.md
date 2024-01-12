@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [Worried about losing in 2024, Iowa's Republican voters are less interested in talking about abortion](https://news.yahoo.com/worried-losing-2024-iowas-republican-053419226.html)
-- Jan 12 - [Russia condemns US for 'irresponsible' strikes on Yemen](https://news.yahoo.com/russia-requests-un-security-council-052926820.html)
+- Jan 12 - [Ron DeSantis suffers a stinging defeat in his war on woke](https://news.yahoo.com/ron-desantis-suffers-stinging-defeat-103005580.html)
+- Jan 12 - [Zelenskyy offers to financially support DeSantis in retirement for U.S. support for UA retirees](https://news.yahoo.com/zelenskyy-offers-financially-support-desantis-093700043.html)
+- Jan 12 - [CNN's Brianna Keilar Finds Unexpected Grain Of Truth In Trump Presser](https://news.yahoo.com/cnns-brianna-keilar-finds-unexpected-083502891.html)
+- Jan 12 - ['Thinking Isn't His Strength': Critics Scorch Donald Trump Jr.'s Wild COVID Claim](https://news.yahoo.com/thinking-isnt-strength-critics-scorch-075927577.html)
 - Jan 12 - [Startup accused of violating international law with sale of product dubbed ‘nature’s best kept secret’: ‘There is no good enforcement’](https://news.yahoo.com/startup-accused-violating-international-law-043000172.html)
-- Jan 12 - [Texas man suing Walmart is seeking $100M or 'unlimited free lifetime shopping'](https://news.yahoo.com/texas-man-suing-walmart-seeking-173631215.html)
-- Jan 12 - [In a possible bad omen for Trump, his NY fraud judge asked the AG's lawyers to compare him with Madoff](https://news.yahoo.com/possible-bad-omen-trump-ny-023751670.html)
 <!-- feed end -->
 
 ### Onstream
