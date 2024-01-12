@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [A woman was hired to investigate racial harassment after a suicide. Then she encountered it herself](https://news.yahoo.com/woman-hired-investigate-racial-harassment-010326462.html)
 - Jan 12 - [Sources: NCAA levies significant penalties on Florida State for NIL recruiting violations](https://sports.yahoo.com/sources-ncaa-levies-significant-penalties-on-florida-state-for-nil-recruiting-violations-002044975.html)
 - Jan 11 - [Trump Judge Spanks Ron DeSantis for Retaliating Against a Democratic Rival](https://news.yahoo.com/trump-judge-spanks-ron-desantis-224104246.html)
 - Jan 11 - [Tennessee House Republicans defend requiring tickets for more than half of the public gallery seats](https://news.yahoo.com/tennessee-house-republicans-defend-requiring-212637055.html)
 - Jan 11 - [Debate coach: One candidate got a B. The other almost flunked](https://news.yahoo.com/debate-coach-one-candidate-got-142627588.html)
-- Jan 11 - [The US gave the Houthis a final warning. The Iran-backed rebels answered with their biggest-ever missile and drone attack.](https://news.yahoo.com/us-gave-houthis-final-warning-202003790.html)
 <!-- feed end -->
 
 ### Onstream
