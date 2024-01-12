@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jan 12 - [In possible bad omen for Trump, his NY fraud judge asked the AG's lawyers to compare him to Madoff](https://news.yahoo.com/possible-bad-omen-trump-ny-023751670.html)
 - Jan 12 - [A woman was hired to investigate racial harassment after a suicide. Then she encountered it herself](https://news.yahoo.com/woman-hired-investigate-racial-harassment-010326462.html)
 - Jan 12 - [Sources: NCAA levies significant penalties on Florida State for NIL recruiting violations](https://sports.yahoo.com/sources-ncaa-levies-significant-penalties-on-florida-state-for-nil-recruiting-violations-002044975.html)
-- Jan 11 - [Trump Judge Spanks Ron DeSantis for Retaliating Against a Democratic Rival](https://news.yahoo.com/trump-judge-spanks-ron-desantis-224104246.html)
+- Jan 11 - [Alleged gang members arrested in shooting of 6-year-old Mountain View boy](https://news.yahoo.com/alleged-gang-members-arrested-shooting-212552559.html)
 <!-- feed end -->
 
 ### Onstream
