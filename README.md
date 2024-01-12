@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [Sources: NCAA levies significant penalties on Florida State for NIL recruiting violations](https://sports.yahoo.com/sources-ncaa-levies-significant-penalties-on-florida-state-for-nil-recruiting-violations-002044975.html)
+- Jan 11 - [Trump Judge Spanks Ron DeSantis for Retaliating Against a Democratic Rival](https://news.yahoo.com/trump-judge-spanks-ron-desantis-224104246.html)
+- Jan 11 - [Tennessee House Republicans defend requiring tickets for more than half of the public gallery seats](https://news.yahoo.com/tennessee-house-republicans-defend-requiring-212637055.html)
 - Jan 11 - [Debate coach: One candidate got a B. The other almost flunked](https://news.yahoo.com/debate-coach-one-candidate-got-142627588.html)
 - Jan 11 - [The US gave the Houthis a final warning. The Iran-backed rebels answered with their biggest-ever missile and drone attack.](https://news.yahoo.com/us-gave-houthis-final-warning-202003790.html)
-- Jan 11 - [Jelly Roll, former drug dealer and current Grammy nominee, speaks against fentanyl to Senate](https://www.yahoo.com/entertainment/jelly-roll-testifies-congressional-hearing-194539995.html)
-- Jan 11 - [‘Way to fumble the bag.’ Erik Spoelstra’s ex-wife breaks silence over his record contract](https://news.yahoo.com/way-fumble-bag-erik-spoelstra-194404796.html)
-- Jan 11 - [United Airlines plane makes an emergency landing after a warning about a possible door issue](https://news.yahoo.com/united-airlines-plane-makes-emergency-190858536.html)
 <!-- feed end -->
 
 ### Onstream
