@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [Russia scolds United States and Britain for strikes on Yemen, asks for UN meeting](https://news.yahoo.com/russia-requests-un-security-council-052926820.html)
+- Jan 12 - [Startup accused of violating international law with sale of product dubbed ‘nature’s best kept secret’: ‘There is no good enforcement’](https://news.yahoo.com/startup-accused-violating-international-law-043000172.html)
 - Jan 12 - [Texas man suing Walmart is seeking $100M or 'unlimited free lifetime shopping'](https://news.yahoo.com/texas-man-suing-walmart-seeking-173631215.html)
 - Jan 12 - [In possible bad omen for Trump, his NY fraud judge asked the AG's lawyers to compare him to Madoff](https://news.yahoo.com/possible-bad-omen-trump-ny-023751670.html)
 - Jan 12 - [A woman was hired to investigate racial harassment after a suicide. Then she encountered it herself](https://news.yahoo.com/woman-hired-investigate-racial-harassment-010326462.html)
-- Jan 12 - [Deputy district attorney faces DUI, reckless driving charges after police clock her at 73 in 35 mph zone](https://news.yahoo.com/deputy-district-attorney-faces-dui-005806787.html)
-- Jan 12 - [Sources: NCAA levies significant penalties on Florida State for NIL recruiting violations](https://sports.yahoo.com/sources-ncaa-levies-significant-penalties-on-florida-state-for-nil-recruiting-violations-002044975.html)
 <!-- feed end -->
 
 ### Onstream
