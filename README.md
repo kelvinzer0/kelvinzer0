@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [Wolf Blitzer Calls Out GOP Governor For Apparent Change Of Tune On Trump](https://news.yahoo.com/wolf-blitzer-calls-gop-governor-125848197.html)
+- Jan 12 - [Erdogan accuses U.S., Britain of trying to turn Red Sea into 'sea of blood'](https://news.yahoo.com/erdogan-accuses-u-britain-trying-125555042.html)
+- Jan 12 - [Russia's Medvedev says any UK troop deployment to Ukraine would be a declaration of war](https://news.yahoo.com/russias-medvedev-says-uk-troop-125315205.html)
 - Jan 12 - [The “Chosen One”: Why experts say a new campaign ad from Trump signals impending violence](https://news.yahoo.com/chosen-one-why-experts-campaign-104503999.html)
-- Jan 12 - [Idaho man had to hide his excitement in the middle of a work video call when he found out he'd won $1 million in the lottery](https://www.yahoo.com/entertainment/idaho-man-had-hide-excitement-103027653.html)
 - Jan 12 - [Ron DeSantis suffers a stinging defeat in his war on woke](https://news.yahoo.com/ron-desantis-suffers-stinging-defeat-103005580.html)
-- Jan 12 - [Zelenskyy offers to financially support DeSantis in retirement for U.S. support for UA retirees](https://news.yahoo.com/zelenskyy-offers-financially-support-desantis-093700043.html)
-- Jan 12 - [Florida woman who kept baby after alleged Lyft driver sex attack says 'blessing' came from 'darkest hour'](https://news.yahoo.com/florida-woman-kept-baby-alleged-090014485.html)
 <!-- feed end -->
 
 ### Onstream
