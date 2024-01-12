@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [Russia scolds United States and Britain for strikes on Yemen, asks for UN meeting](https://news.yahoo.com/russia-requests-un-security-council-052926820.html)
+- Jan 12 - [Worried about losing in 2024, Iowa's Republican voters are less interested in talking about abortion](https://news.yahoo.com/worried-losing-2024-iowas-republican-053419226.html)
+- Jan 12 - [Russia condemns US for 'irresponsible' strikes on Yemen](https://news.yahoo.com/russia-requests-un-security-council-052926820.html)
 - Jan 12 - [Startup accused of violating international law with sale of product dubbed ‘nature’s best kept secret’: ‘There is no good enforcement’](https://news.yahoo.com/startup-accused-violating-international-law-043000172.html)
 - Jan 12 - [Texas man suing Walmart is seeking $100M or 'unlimited free lifetime shopping'](https://news.yahoo.com/texas-man-suing-walmart-seeking-173631215.html)
-- Jan 12 - [In possible bad omen for Trump, his NY fraud judge asked the AG's lawyers to compare him to Madoff](https://news.yahoo.com/possible-bad-omen-trump-ny-023751670.html)
-- Jan 12 - [A woman was hired to investigate racial harassment after a suicide. Then she encountered it herself](https://news.yahoo.com/woman-hired-investigate-racial-harassment-010326462.html)
+- Jan 12 - [In a possible bad omen for Trump, his NY fraud judge asked the AG's lawyers to compare him with Madoff](https://news.yahoo.com/possible-bad-omen-trump-ny-023751670.html)
 <!-- feed end -->
 
 ### Onstream
