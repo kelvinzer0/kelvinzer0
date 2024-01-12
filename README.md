@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [Trump scores rare legal win as judge cancels trial over his endorsement of multi-level marketing 'videophone' company](https://news.yahoo.com/trump-scores-rare-legal-win-180647134.html)
-- Jan 12 - [Ex-'Teacher of the Year' Accused of Sexually Abusing Student for Years: 'Happens More and More These Days'](https://www.yahoo.com/entertainment/ex-teacher-accused-sexually-abusing-174645046.html)
-- Jan 12 - [Armed Texas National Guard soldiers are now blocking federal agents from getting to the border, government alleges](https://news.yahoo.com/armed-texas-national-guard-soldiers-173641607.html)
-- Jan 12 - [New videos show intense strikes on the Iran-backed Houthis, who are vowing revenge after getting hit by well over 100 missiles](https://news.yahoo.com/videos-show-intense-strikes-iran-162416944.html)
-- Jan 12 - [She’s the only woman living on an island of convicted criminals](https://www.yahoo.com/lifestyle/she-only-woman-living-island-142440207.html)
+- Jan 12 - [Hunter Biden would be willing to testify with new House subpoena, lawyer says](https://news.yahoo.com/hunter-biden-willing-testify-house-195754175.html)
+- Jan 12 - [Virginia county admits election tally in 2020 shorted Joe Biden](https://news.yahoo.com/virginia-county-admits-election-tally-195037589.html)
+- Jan 12 - [Trump legal news brief: Oregon punts on removing Trump from ballot until after U.S. Supreme Court weighs in](https://news.yahoo.com/trump-legal-news-brief-oregon-punts-on-removing-trump-from-ballot-until-after-us-supreme-court-weighs-in-194655687.html)
+- Jan 12 - [The Supreme Court will decide whether local anti-homeless laws are 'cruel and unusual'](https://news.yahoo.com/supreme-court-decide-whether-local-193334916.html)
+- Jan 12 - [Donald Trump Ordered to Pay New York Times $400,000 for Frivolous Lawsuit](https://www.yahoo.com/entertainment/donald-trump-ordered-pay-york-193030371.html)
 <!-- feed end -->
 
 ### Onstream
