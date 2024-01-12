@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [General Patton’s Car Accident Remains Controversial Today](https://autos.yahoo.com/general-patton-car-accident-remains-200000765.html)
+- Jan 12 - [Hunter Biden would be willing to testify with new House subpoena, lawyer says](https://news.yahoo.com/hunter-biden-willing-testify-house-195754175.html)
+- Jan 12 - [Chris Cuomo accused of sending explicit texts to former CNN colleague](https://news.yahoo.com/chris-cuomo-accused-sending-explicit-194006692.html)
 - Jan 12 - [Donald Trump Ordered to Pay New York Times $400,000 for Frivolous Lawsuit](https://www.yahoo.com/entertainment/donald-trump-ordered-pay-york-193030371.html)
 - Jan 12 - [Wolverhampton grandmother’s abusers caught by hidden camera](https://news.yahoo.com/wolverhampton-grandmother-abusers-caught-hidden-184412345.html)
 - Jan 12 - [Ex-'Teacher of the Year' Accused of Sexually Abusing Student for Years: 'Happens More and More These Days'](https://www.yahoo.com/entertainment/ex-teacher-accused-sexually-abusing-174645046.html)
-- Jan 12 - [New videos show intense strikes on the Iran-backed Houthis, who are vowing revenge after getting hit by well over 100 missiles](https://news.yahoo.com/videos-show-intense-strikes-iran-162416944.html)
 <!-- feed end -->
 
 ### Onstream
