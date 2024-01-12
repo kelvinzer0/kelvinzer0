@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [Ex-'Teacher of the Year' Accused of Sexually Abusing Student for Years: 'Happens More and More These Days'](https://www.yahoo.com/entertainment/ex-teacher-accused-sexually-abusing-174645046.html)
+- Jan 12 - [Fact Check: Trump Claims He's the Only US President in 72 Years Not To Have a War. Here's What the History Books Say](https://news.yahoo.com/fact-check-trump-claims-hes-165300828.html)
 - Jan 12 - [New videos show intense strikes on the Iran-backed Houthis, who are vowing revenge after getting hit by well over 100 missiles](https://news.yahoo.com/videos-show-intense-strikes-iran-162416944.html)
 - Jan 12 - [She’s the only woman living on an island of convicted criminals](https://www.yahoo.com/lifestyle/she-only-woman-living-island-142440207.html)
 - Jan 12 - [I Know I Shouldn't Laugh But These Extremely Dumb Things People Posted On The Internet Last Week Are Absolutely Killing Me](https://www.yahoo.com/lifestyle/know-shouldnt-laugh-extremely-dumb-141817446.html)
-- Jan 12 - [“What Trump said was so damaging to him”: Experts say NY AG “struck gold” with Trump court rant](https://news.yahoo.com/trump-said-damaging-him-experts-140808805.html)
-- Jan 12 - [Rand Paul announces which 2024 presidential candidate he's not endorsing](https://news.yahoo.com/rand-paul-announces-2024-presidential-133907901.html)
 <!-- feed end -->
 
 ### Onstream
