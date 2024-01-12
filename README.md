@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [Turkey providing documents for genocide hearings against Israel -Erdogan](https://news.yahoo.com/turkey-providing-documents-genocide-hearings-143520489.html)
+- Jan 12 - [I Know I Shouldn't Laugh But These Extremely Dumb Things People Posted On The Internet Last Week Are Absolutely Killing Me](https://www.yahoo.com/lifestyle/know-shouldnt-laugh-extremely-dumb-141817446.html)
 - Jan 12 - [“What Trump said was so damaging to him”: Experts say NY AG “struck gold” with Trump court rant](https://news.yahoo.com/trump-said-damaging-him-experts-140808805.html)
-- Jan 12 - [Big protests break out in Yemen after U.S.-British attacks](https://news.yahoo.com/large-protests-break-yemen-u-134704039.html)
+- Jan 12 - [Rand Paul announces which 2024 presidential candidate he's not endorsing](https://news.yahoo.com/rand-paul-announces-2024-presidential-133907901.html)
 - Jan 12 - [Erdogan accuses U.S., Britain of trying to turn Red Sea into 'sea of blood'](https://news.yahoo.com/erdogan-accuses-u-britain-trying-125555042.html)
 - Jan 12 - [Russia's Medvedev says any UK troop deployment to Ukraine would be a declaration of war](https://news.yahoo.com/russias-medvedev-says-uk-troop-125315205.html)
 <!-- feed end -->
