@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 13 - [Yeovil cycle lane still unfinished four months after work started](https://news.yahoo.com/yeovil-cycle-lane-still-unfinished-104909662.html)
+- Jan 13 - [Female saboteurs who poisoned 46 Russian soldiers in Crimea are on the run after shoot-out with police, say reports](https://news.yahoo.com/female-saboteurs-poisoned-46-russian-103910678.html)
+- Jan 13 - [Military investigators make disturbing discovery at O’Hare and Midway airports: ‘It’s there forever’](https://news.yahoo.com/military-investigators-disturbing-discovery-o-100000524.html)
 - Jan 13 - [U.S. tanker seizure shown on Iran state TV](https://news.yahoo.com/u-tanker-seizure-shown-iran-083651167.html)
 - Jan 13 - [North Korea halts radio broadcasts, curbs exchanges with South -Yonhap](https://news.yahoo.com/north-korea-halts-radio-broadcasts-040230754.html)
-- Jan 13 - [Tearful Russian billionaire who spent $2 billion on art tells jurors Sotheby's cheated him](https://news.yahoo.com/tearful-russian-billionaire-spent-2-015308976.html)
-- Jan 13 - [Satellite Images Show Damage at Houthi Sites After US-Led Strikes](https://news.yahoo.com/satellite-images-show-damage-houthi-000328520.html)
-- Jan 12 - [Workers fixing dishwasher find starving 2-year-old bound in duct tape, Texas cops say](https://news.yahoo.com/workers-fixing-dishwasher-starving-2-234004455.html)
 <!-- feed end -->
 
 ### Onstream
