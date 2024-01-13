@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [Miami boater, denying alcohol had a role, gets 4 years in Bimini crash that killed couple](https://news.yahoo.com/miami-boater-denying-alcohol-had-193524550.html)
+- Jan 13 - [US climate envoy John Kerry to leave Biden administration](https://news.yahoo.com/us-climate-envoy-john-kerry-191228415.html)
 - Jan 13 - [Two Navy SEALs are missing after Thursday night mission off coast of Somalia](https://news.yahoo.com/two-navy-seals-missing-thursday-182546354.html)
 - Jan 13 - [Bill O’Reilly Is Furious As His Own Titles Get Removed After Supporting Florida Book Bans](https://news.yahoo.com/bill-o-reilly-furious-own-181240858.html)
 - Jan 13 - [2 US Bradley fighting vehicles take out Russia's top T-90 battle tank on Ukraine battlefield, video shows](https://news.yahoo.com/2-us-bradley-fighting-vehicles-173427831.html)
