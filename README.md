@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 13 - [Biden: US does not support Taiwan independence](https://news.yahoo.com/biden-u-does-not-support-152500924.html)
+- Jan 13 - [AOC still thinks $174,000 isn't enough money for members of Congress: 'I know it's kind of a contrarian position'](https://news.yahoo.com/aoc-still-thinks-174-000-141701312.html)
+- Jan 13 - [John Deere makes major announcement about the future of its lawn equipment: ‘[We want] to serve our evolving customers’](https://news.yahoo.com/john-deere-makes-major-announcement-110000162.html)
 - Jan 13 - [GOP Congressman Stands By Accusation Some Fellow Members Have Been Compromised](https://news.yahoo.com/gop-congressman-stands-accusation-fellow-130050879.html)
 - Jan 13 - [Gas station faces major backlash for unbelievable notice posted on door: ‘How could this possibly be legal?’](https://www.yahoo.com/lifestyle/gas-station-faces-major-backlash-130000392.html)
-- Jan 13 - [‘They should plan on their retirement age being increased’: Nikki Haley said at the recent GOP debate that she wants to raise the retirement age above 67 — should you be worried?](https://finance.yahoo.com/news/plan-retirement-age-being-increased-123000024.html)
-- Jan 13 - [I was a muscular WWE star and lost all my muscle mass when I transitioned. Here's how I transformed my body.](https://news.yahoo.com/muscular-wwe-star-lost-muscle-121901979.html)
-- Jan 13 - [The NC Man Who Wreaked Racist Havoc Finally Faces The Gavel](https://news.yahoo.com/maga-allegedly-racially-terrorized-neighborhood-144600295.html)
 <!-- feed end -->
 
 ### Onstream
