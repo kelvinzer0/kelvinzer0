@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 13 - [GOP Congressman Stands By Accusation Some Fellow Members Have Been Compromised](https://news.yahoo.com/gop-congressman-stands-accusation-fellow-130050879.html)
 - Jan 13 - [‘They should plan on their retirement age being increased’: Nikki Haley said at the recent GOP debate that she wants to raise the retirement age above 67 — should you be worried?](https://finance.yahoo.com/news/plan-retirement-age-being-increased-123000024.html)
-- Jan 13 - [Trump has laid the groundwork for a US Supreme Court challenge in his NY civil fraud case: experts](https://news.yahoo.com/trump-laid-groundwork-us-supreme-120201794.html)
+- Jan 13 - [I was a muscular WWE star and lost all my muscle mass when I transitioned. Here's how I transformed my body.](https://news.yahoo.com/muscular-wwe-star-lost-muscle-121901979.html)
 - Jan 13 - [The NC Man Who Wreaked Racist Havoc Finally Faces The Gavel](https://news.yahoo.com/maga-allegedly-racially-terrorized-neighborhood-144600295.html)
 - Jan 13 - [Female saboteurs who poisoned 46 Russian soldiers in Crimea are on the run after shoot-out with police, say reports](https://news.yahoo.com/female-saboteurs-poisoned-46-russian-103910678.html)
-- Jan 13 - [Military investigators make disturbing discovery at O’Hare and Midway airports: ‘It’s there forever’](https://news.yahoo.com/military-investigators-disturbing-discovery-o-100000524.html)
 <!-- feed end -->
 
 ### Onstream
