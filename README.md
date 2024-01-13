@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 12 - [Consumers Energy, road crews ready for winter storm](https://news.yahoo.com/consumers-energy-road-crews-ready-221054588.html)
-- Jan 12 - [Columnist's lawyer warns judge that Trump hopes to 'sow chaos' as jury considers defamation damages](https://news.yahoo.com/columnists-lawyer-warns-judge-trump-205233795.html)
-- Jan 12 - [General Patton’s Car Accident Remains Controversial Today](https://autos.yahoo.com/general-patton-car-accident-remains-200000765.html)
-- Jan 12 - [A Proud Boys member who wielded an axe handle during the Capitol riot gets over 4 years in prison](https://news.yahoo.com/proud-boys-member-wielded-axe-195545092.html)
-- Jan 12 - [Civil Rights Groups Horrified at Elon Musk's Racist Outburst Against Black People](https://news.yahoo.com/civil-rights-groups-horrified-elon-193230017.html)
+- Jan 13 - [Satellite Images Show Damage at Houthi Sites After US-Led Strikes](https://news.yahoo.com/satellite-images-show-damage-houthi-000328520.html)
+- Jan 12 - [Workers fixing dishwasher find starving 2-year-old bound in duct tape, Texas cops say](https://news.yahoo.com/workers-fixing-dishwasher-starving-2-234004455.html)
+- Jan 12 - [Mike Lindell Protests Fox News Halting MyPillow Ads As Network Says He Hasn’t Paid His Bills](https://www.yahoo.com/entertainment/mike-lindell-protests-fox-news-224507903.html)
+- Jan 12 - [Trump Judge Says He’ll Hold Hearing on Fani Willis Affair Claims](https://news.yahoo.com/trump-judge-says-ll-hold-223542532.html)
+- Jan 12 - [State trooper plunges into icy Vermont pond to save 8-year-old girl](https://news.yahoo.com/state-trooper-plunges-icy-vermont-223415647.html)
 <!-- feed end -->
 
 ### Onstream
