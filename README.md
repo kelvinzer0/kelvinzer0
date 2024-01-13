@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 13 - [Biden: US delivered private message to Iran about Houthi attacks](https://news.yahoo.com/biden-us-delivered-private-message-162644105.html)
+- Jan 13 - [2 US Bradley fighting vehicles take out Russia's top T-90 battle tank on Ukraine battlefield, video shows](https://news.yahoo.com/2-us-bradley-fighting-vehicles-173427831.html)
 - Jan 13 - [Biden: US does not support Taiwan independence](https://news.yahoo.com/biden-u-does-not-support-152500924.html)
 - Jan 13 - [AOC still thinks $174,000 isn't enough money for members of Congress: 'I know it's kind of a contrarian position'](https://news.yahoo.com/aoc-still-thinks-174-000-141701312.html)
 - Jan 13 - [Vermont state police officer saves 8-year-old from freezing pond](https://news.yahoo.com/vermont-state-police-officer-saves-134827518.html)
