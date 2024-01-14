@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 14 - [Lincoln University president on paid leave days after VP of student affairs dies by suicide](https://news.yahoo.com/lincoln-university-president-paid-leave-223632748.html)
 - Jan 14 - [Texas congressman says migrants drowned near area where US Border Patrol had access restricted](https://news.yahoo.com/texas-congressman-says-migrants-drowned-000731437.html)
+- Jan 13 - [John Kerry, the US climate envoy, to leave the Biden administration](https://news.yahoo.com/john-kerry-us-climate-envoy-213542522.html)
 - Jan 13 - [Trump trial twist: George Conway reveals he’s ‘admitted into evidence’ in Carroll case](https://news.yahoo.com/trump-trial-twist-george-conway-191956434.html)
 - Jan 13 - [US climate envoy John Kerry to leave Biden administration](https://news.yahoo.com/us-climate-envoy-john-kerry-191228415.html)
-- Jan 13 - [Two Navy SEALs are missing after Thursday night mission off coast of Somalia](https://news.yahoo.com/two-navy-seals-missing-thursday-182546354.html)
 <!-- feed end -->
 
 ### Onstream
