@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 14 - [Rand Paul says Fauci should ‘go to prison’ over COVID-19 ‘dishonesty’](https://news.yahoo.com/rand-paul-says-fauci-prison-120000355.html)
 - Jan 14 - [How the blood-soaked killers of Imperial Japan nearly escaped justice](https://www.yahoo.com/lifestyle/blood-soaked-killers-imperial-japan-110000145.html)
-- Jan 14 - [Researchers find disturbing connection between serious childhood illnesses: ‘Studies … provide irrefutable evidence’](https://news.yahoo.com/researchers-disturbing-connection-between-serious-100000514.html)
 - Jan 14 - [My cousin left his estate to 6 relatives, but only one cousin, worth $30 million, received the inheritance — due to an ‘unexpected surprise’](https://finance.yahoo.com/news/cousin-left-estate-6-relatives-090900122.html)
 - Jan 14 - [Mechanic calls out ‘fancy-schmancy’ car for hiding a costly secret: ‘Not designed for the long haul’](https://news.yahoo.com/mechanic-calls-fancy-schmancy-car-090000408.html)
+- Jan 14 - [Has Congress Really Stolen Trillions From Social Security? Here's the Truth.](https://finance.yahoo.com/news/congress-really-stolen-trillions-social-084400040.html)
 <!-- feed end -->
 
 ### Onstream
