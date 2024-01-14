@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 14 - [I’m an Accountant: The 10 Most Common Mistakes Retirees Make on Their Taxes](https://finance.yahoo.com/news/m-accountant-10-most-common-120009592.html)
+- Jan 14 - [Rand Paul says Fauci should ‘go to prison’ over COVID-19 ‘dishonesty’](https://news.yahoo.com/rand-paul-says-fauci-prison-120000355.html)
 - Jan 14 - [How the blood-soaked killers of Imperial Japan nearly escaped justice](https://www.yahoo.com/lifestyle/blood-soaked-killers-imperial-japan-110000145.html)
-- Jan 14 - [A Cybertruck driver documented his 1340-mile road trip — and the issues he ran into with the Tesla EV](https://news.yahoo.com/cybertruck-driver-documented-1340-mile-103201752.html)
 - Jan 14 - [Mechanic calls out ‘fancy-schmancy’ car for hiding a costly secret: ‘Not designed for the long haul’](https://news.yahoo.com/mechanic-calls-fancy-schmancy-car-090000408.html)
 - Jan 14 - [Has Congress Really Stolen Trillions From Social Security? Here's the Truth.](https://finance.yahoo.com/news/congress-really-stolen-trillions-social-084400040.html)
-- Jan 14 - [The discovery of the Roman dodecahedron simply reminds us of how stupid we are](https://news.yahoo.com/discovery-roman-dodecahedron-simply-reminds-070000010.html)
 <!-- feed end -->
 
 ### Onstream
