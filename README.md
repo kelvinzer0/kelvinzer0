@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Rand Paul says Fauci should ‘go to prison’ over COVID-19 ‘dishonesty’](https://news.yahoo.com/rand-paul-says-fauci-prison-120000355.html)
-- Jan 14 - [How the blood-soaked killers of Imperial Japan nearly escaped justice](https://www.yahoo.com/lifestyle/blood-soaked-killers-imperial-japan-110000145.html)
-- Jan 14 - [My cousin left his estate to 6 relatives, but only one cousin, worth $30 million, received the inheritance — due to an ‘unexpected surprise’](https://finance.yahoo.com/news/cousin-left-estate-6-relatives-090900122.html)
-- Jan 14 - [Mechanic calls out ‘fancy-schmancy’ car for hiding a costly secret: ‘Not designed for the long haul’](https://news.yahoo.com/mechanic-calls-fancy-schmancy-car-090000408.html)
-- Jan 14 - [Has Congress Really Stolen Trillions From Social Security? Here's the Truth.](https://finance.yahoo.com/news/congress-really-stolen-trillions-social-084400040.html)
+- Jan 14 - [Trump's supporters stand for hours in the cold to see him in Iowa a day before the GOP caucuses](https://news.yahoo.com/trumps-supporters-stand-hours-cold-173601134.html)
+- Jan 14 - [Jamaican who was saved from deportation by BA passengers is a violent drug dealer](https://news.yahoo.com/jamaican-saved-deportation-ba-passengers-172539345.html)
+- Jan 14 - [Trump legal team rejects calls for testimony limits in defamation case](https://news.yahoo.com/trump-legal-team-rejects-calls-171920094.html)
+- Jan 14 - [Ask an Advisor: My Wife Claimed Social Security at 65. Can She Collect the Max Spousal Benefit When I Retire?](https://finance.yahoo.com/news/ask-advisor-wife-claimed-social-110000148.html)
+- Jan 14 - [2 US Navy SEALs are missing off the coast of Somalia after rescue bid ends tragically, reports say](https://news.yahoo.com/2-us-navy-seals-missing-163304586.html)
 <!-- feed end -->
 
 ### Onstream
