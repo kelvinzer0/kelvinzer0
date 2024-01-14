@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 14 - [Late Samsung chairman's family sell $2 billion worth of shares to help pay huge South Korean inheritance tax](https://finance.yahoo.com/news/samsung-chairmans-family-sell-2-184659974.html)
+- Jan 14 - [George Conway predicts what Trump will do if he starts losing](https://news.yahoo.com/george-conway-predicts-trump-starts-021538853.html)
 - Jan 14 - [Family man's assassin past revealed after he was killed in front of his wife and child](https://news.yahoo.com/family-mans-assassin-past-revealed-015413214.html)
 - Jan 14 - [Lincoln University president on paid leave days after VP of student affairs dies by suicide](https://news.yahoo.com/lincoln-university-president-paid-leave-223632748.html)
-- Jan 14 - [Texas congressman says migrants drowned near area where US Border Patrol had access restricted](https://news.yahoo.com/texas-congressman-says-migrants-drowned-000731437.html)
 - Jan 13 - [US climate envoy John Kerry to leave Biden administration](https://news.yahoo.com/us-climate-envoy-john-kerry-191228415.html)
-- Jan 13 - [Two Navy SEALs are missing after Thursday night mission off coast of Somalia](https://news.yahoo.com/two-navy-seals-missing-thursday-182546354.html)
 <!-- feed end -->
 
 ### Onstream
