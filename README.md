@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 14 - [Fulton County DA Fani Willis defends special prosecutor following allegation of romantic relationship](https://news.yahoo.com/fulton-county-da-fani-willis-202200356.html)
+- Jan 14 - [Protesters Crash Trump Rally, Call Him ‘Climate Criminal’: Watch](https://news.yahoo.com/protesters-crash-trump-rally-call-195354318.html)
+- Jan 14 - [CES has almost fully succeeded in chasing sex-tech off its show floors](https://news.yahoo.com/ces-almost-fully-succeeded-chasing-192745617.html)
+- Jan 14 - [A ‘striking’ finding from new Iowa poll numbers is bad news for Trump](https://news.yahoo.com/striking-finding-iowa-poll-numbers-185046259.html)
 - Jan 14 - [Iowa principal who risked his life to protect students during a high school shooting has died](https://news.yahoo.com/iowa-principal-risked-life-protect-182129360.html)
-- Jan 14 - [Comer insists his job was ‘never to impeach’ as GOP doubts grow about Biden impeachment vote](https://news.yahoo.com/comer-insists-job-never-impeach-160025134.html)
-- Jan 14 - [Jamaican who was saved from deportation by BA passengers is a violent drug dealer](https://news.yahoo.com/jamaican-saved-deportation-ba-passengers-172539345.html)
-- Jan 14 - [Trump legal team rejects calls for testimony limits in defamation case](https://news.yahoo.com/trump-legal-team-rejects-calls-171920094.html)
-- Jan 14 - [White House: Secretary Austin's doctors think he may need additional care](https://news.yahoo.com/white-house-secretary-austins-doctors-165952931.html)
 <!-- feed end -->
 
 ### Onstream
