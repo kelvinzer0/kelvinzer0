@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 14 - [Trump called a judge a 'bad person' for not allowing him to travel for a funeral. His calendar says he's got a campaign event that day.](https://news.yahoo.com/trump-called-judge-bad-person-052918752.html)
-- Jan 14 - [Late Samsung chairman's family sell $2 billion worth of shares to help pay huge South Korean inheritance tax](https://finance.yahoo.com/news/samsung-chairmans-family-sell-2-184659974.html)
 - Jan 14 - [George Conway predicts what Trump will do if he starts losing](https://news.yahoo.com/george-conway-predicts-trump-starts-021538853.html)
 - Jan 14 - [Family man's assassin past revealed after he was killed in front of his wife and child](https://news.yahoo.com/family-mans-assassin-past-revealed-015413214.html)
-- Jan 14 - [Lincoln University president on paid leave days after VP of student affairs dies by suicide](https://news.yahoo.com/lincoln-university-president-paid-leave-223632748.html)
+- Jan 13 - [US climate envoy John Kerry to leave Biden administration](https://news.yahoo.com/us-climate-envoy-john-kerry-191228415.html)
+- Jan 13 - [Maldives leader says his country's small size isn't a license to bully in apparent swipe at India](https://news.yahoo.com/maldives-leader-says-countrys-small-185423424.html)
 <!-- feed end -->
 
 ### Onstream
