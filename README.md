@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Trump's supporters stand for hours in the cold to see him in Iowa a day before the GOP caucuses](https://news.yahoo.com/trumps-supporters-stand-hours-cold-173601134.html)
+- Jan 14 - [Iowa principal who risked his life to protect students during a high school shooting has died](https://news.yahoo.com/iowa-principal-risked-life-protect-182129360.html)
+- Jan 14 - [Comer insists his job was ‘never to impeach’ as GOP doubts grow about Biden impeachment vote](https://news.yahoo.com/comer-insists-job-never-impeach-160025134.html)
 - Jan 14 - [Jamaican who was saved from deportation by BA passengers is a violent drug dealer](https://news.yahoo.com/jamaican-saved-deportation-ba-passengers-172539345.html)
 - Jan 14 - [Trump legal team rejects calls for testimony limits in defamation case](https://news.yahoo.com/trump-legal-team-rejects-calls-171920094.html)
-- Jan 14 - [Ask an Advisor: My Wife Claimed Social Security at 65. Can She Collect the Max Spousal Benefit When I Retire?](https://finance.yahoo.com/news/ask-advisor-wife-claimed-social-110000148.html)
-- Jan 14 - [2 US Navy SEALs are missing off the coast of Somalia after rescue bid ends tragically, reports say](https://news.yahoo.com/2-us-navy-seals-missing-163304586.html)
+- Jan 14 - [White House: Secretary Austin's doctors think he may need additional care](https://news.yahoo.com/white-house-secretary-austins-doctors-165952931.html)
 <!-- feed end -->
 
 ### Onstream
