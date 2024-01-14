@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 14 - [Researchers find disturbing connection between serious childhood illnesses: ‘Studies … provide irrefutable evidence’](https://news.yahoo.com/researchers-disturbing-connection-between-serious-100000514.html)
+- Jan 14 - [Mechanic calls out ‘fancy-schmancy’ car for hiding a costly secret: ‘Not designed for the long haul’](https://news.yahoo.com/mechanic-calls-fancy-schmancy-car-090000408.html)
 - Jan 14 - [The discovery of the Roman dodecahedron simply reminds us of how stupid we are](https://news.yahoo.com/discovery-roman-dodecahedron-simply-reminds-070000010.html)
 - Jan 14 - [Trump called a judge a 'bad person' for not allowing him to travel for a funeral. His calendar says he's got a campaign event that day.](https://news.yahoo.com/trump-called-judge-bad-person-052918752.html)
 - Jan 14 - [Late Samsung chairman's family sell $2 billion worth of shares to help pay huge South Korean inheritance tax](https://finance.yahoo.com/news/samsung-chairmans-family-sell-2-184659974.html)
-- Jan 14 - [George Conway predicts what Trump will do if he starts losing](https://news.yahoo.com/george-conway-predicts-trump-starts-021538853.html)
-- Jan 14 - [Family man's assassin past revealed after he was killed in front of his wife and child](https://news.yahoo.com/family-mans-assassin-past-revealed-015413214.html)
 <!-- feed end -->
 
 ### Onstream
