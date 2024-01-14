@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jan 14 - [George Conway predicts what Trump will do if he starts losing](https://news.yahoo.com/george-conway-predicts-trump-starts-021538853.html)
 - Jan 14 - [Family man's assassin past revealed after he was killed in front of his wife and child](https://news.yahoo.com/family-mans-assassin-past-revealed-015413214.html)
 - Jan 14 - [Lincoln University president on paid leave days after VP of student affairs dies by suicide](https://news.yahoo.com/lincoln-university-president-paid-leave-223632748.html)
-- Jan 13 - [US climate envoy John Kerry to leave Biden administration](https://news.yahoo.com/us-climate-envoy-john-kerry-191228415.html)
+- Jan 13 - [John Kerry, the US climate envoy, to leave the Biden administration](https://news.yahoo.com/john-kerry-us-climate-envoy-213542522.html)
 <!-- feed end -->
 
 ### Onstream
