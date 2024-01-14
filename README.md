@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 14 - ['Get the hell out': Vivek Ramaswamy removes comedians who interrupted him and Ron DeSantis](https://news.yahoo.com/hell-vivek-ramaswamy-removes-comedians-222638430.html)
+- Jan 14 - [Hamas airs video of Israeli hostages, says will disclose their fate](https://news.yahoo.com/hamas-airs-video-israeli-hostages-215508834.html)
 - Jan 14 - [Fulton County DA Fani Willis defends special prosecutor following allegation of romantic relationship](https://news.yahoo.com/fulton-county-da-fani-willis-202200356.html)
 - Jan 14 - [Protesters Crash Trump Rally, Call Him ‘Climate Criminal’: Watch](https://news.yahoo.com/protesters-crash-trump-rally-call-195354318.html)
-- Jan 14 - [CES has almost fully succeeded in chasing sex-tech off its show floors](https://news.yahoo.com/ces-almost-fully-succeeded-chasing-192745617.html)
-- Jan 14 - [Hamas armed-wing spokesman: fate of many hostages unknown](https://news.yahoo.com/hamas-armed-wing-spokesman-fate-192610696.html)
-- Jan 14 - [A ‘striking’ finding from new Iowa poll numbers is bad news for Trump](https://news.yahoo.com/striking-finding-iowa-poll-numbers-185046259.html)
+- Jan 14 - [Reddit user refuses to switch exit-row seat with pregnant woman: 'You did exactly the right thing'](https://www.yahoo.com/lifestyle/reddit-user-refuses-switch-exit-194430088.html)
 <!-- feed end -->
 
 ### Onstream
