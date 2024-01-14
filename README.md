@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 14 - [The discovery of the Roman dodecahedron simply reminds us of how stupid we are](https://news.yahoo.com/discovery-roman-dodecahedron-simply-reminds-070000010.html)
 - Jan 14 - [Trump called a judge a 'bad person' for not allowing him to travel for a funeral. His calendar says he's got a campaign event that day.](https://news.yahoo.com/trump-called-judge-bad-person-052918752.html)
-- Jan 14 - [Man wanted for stealing nearly $40,000 worth of items from Target stores](https://news.yahoo.com/man-wanted-stealing-nearly-40-052511886.html)
 - Jan 14 - [Late Samsung chairman's family sell $2 billion worth of shares to help pay huge South Korean inheritance tax](https://finance.yahoo.com/news/samsung-chairmans-family-sell-2-184659974.html)
 - Jan 14 - [George Conway predicts what Trump will do if he starts losing](https://news.yahoo.com/george-conway-predicts-trump-starts-021538853.html)
 - Jan 14 - [Family man's assassin past revealed after he was killed in front of his wife and child](https://news.yahoo.com/family-mans-assassin-past-revealed-015413214.html)
