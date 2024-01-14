@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 14 - [Researchers find disturbing connection between serious childhood illnesses: ‘Studies … provide irrefutable evidence’](https://news.yahoo.com/researchers-disturbing-connection-between-serious-100000514.html)
+- Jan 14 - [How the blood-soaked killers of Imperial Japan nearly escaped justice](https://www.yahoo.com/lifestyle/blood-soaked-killers-imperial-japan-110000145.html)
+- Jan 14 - [A Cybertruck driver documented his 1340-mile road trip — and the issues he ran into with the Tesla EV](https://news.yahoo.com/cybertruck-driver-documented-1340-mile-103201752.html)
 - Jan 14 - [Mechanic calls out ‘fancy-schmancy’ car for hiding a costly secret: ‘Not designed for the long haul’](https://news.yahoo.com/mechanic-calls-fancy-schmancy-car-090000408.html)
+- Jan 14 - [Has Congress Really Stolen Trillions From Social Security? Here's the Truth.](https://finance.yahoo.com/news/congress-really-stolen-trillions-social-084400040.html)
 - Jan 14 - [The discovery of the Roman dodecahedron simply reminds us of how stupid we are](https://news.yahoo.com/discovery-roman-dodecahedron-simply-reminds-070000010.html)
-- Jan 14 - [Trump called a judge a 'bad person' for not allowing him to travel for a funeral. His calendar says he's got a campaign event that day.](https://news.yahoo.com/trump-called-judge-bad-person-052918752.html)
-- Jan 14 - [Late Samsung chairman's family sell $2 billion worth of shares to help pay huge South Korean inheritance tax](https://finance.yahoo.com/news/samsung-chairmans-family-sell-2-184659974.html)
 <!-- feed end -->
 
 ### Onstream
