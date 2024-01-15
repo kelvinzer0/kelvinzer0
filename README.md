@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [Ground collision of two Boeing planes in Chicago sparks FAA investigation](https://news.yahoo.com/ground-collision-two-boeing-planes-202559342.html)
 - Jan 15 - [Video shows man ramming skid loader into police cruiser in Nebraska](https://news.yahoo.com/video-shows-man-ramming-skid-200822049.html)
 - Jan 15 - [Hamas airs video purporting to show two Israeli hostages killed in captivity](https://news.yahoo.com/hamas-airs-video-purporting-show-200723798.html)
 - Jan 15 - [My cousin left his estate to 6 relatives, but only one cousin, worth $30 million, received the inheritance — due to an ‘unexpected surprise’](https://finance.yahoo.com/news/cousin-left-estate-6-relatives-090900122.html)
 - Jan 15 - [Bride arrested for extortion, handcuffed in her wedding dress](https://news.yahoo.com/bride-arrested-extortion-handcuffed-her-193720618.html)
-- Jan 15 - [Missouri High School Student Who Attacked 65-Year-Old Teacher In Viral Video Faces Charges](https://news.yahoo.com/missouri-high-school-student-attacked-193400275.html)
 <!-- feed end -->
 
 ### Onstream
