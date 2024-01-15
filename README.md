@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Arctic freeze continues to blast huge swaths of the US with sub-zero temperatures](https://news.yahoo.com/arctic-freeze-continues-blast-huge-064146327.html)
-- Jan 15 - [India ETF flows hit record in 2023, analysts see momentum persisting in election year](https://www.yahoo.com/tech/india-etf-flows-hit-record-063513613.html)
+- Jan 15 - [Lauren Boebert’s Hot Take On The Cold Weather Goes Embarrassingly Awry](https://news.yahoo.com/lauren-boebert-hot-cold-weather-072106561.html)
 - Jan 15 - [Hot air balloon crash in Arizona desert leaves 4 dead and 1 critically injured, police say](https://news.yahoo.com/hot-air-balloon-crash-arizona-022131495.html)
-- Jan 15 - [Taiwan loses first ally post-election as Nauru goes over to China](https://news.yahoo.com/taiwan-loses-first-ally-post-061821550.html)
+- Jan 15 - [‘This person should not be president’: Kamala Harris takes hits in book on Biden](https://www.yahoo.com/entertainment/person-not-president-kamala-harris-070008886.html)
+- Jan 15 - [Taiwan loses ally Nauru to China in post-election ploy](https://news.yahoo.com/taiwan-loses-first-ally-post-061821550.html)
 - Jan 15 - [Claims Swirl Around Possible Shoot Down Of Russian A-50 Radar Jet](https://news.yahoo.com/claims-swirl-around-possible-shoot-051009587.html)
 <!-- feed end -->
 
