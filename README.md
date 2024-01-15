@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 15 - [Donald Trump Talks Down To Protesters With 'Mommy' Sendoff At Iowa Rally](https://news.yahoo.com/donald-trump-talks-down-protesters-121622714.html)
+- Jan 15 - [Denmark's new King Frederik X appears before parliament](https://news.yahoo.com/denmarks-king-frederik-x-appears-111733460.html)
+- Jan 15 - [‘That’s for Dnipro’  Downing of $330 million RU plane payback for deadly missile strike — AF officer](https://news.yahoo.com/dnipro-downing-330-million-ru-105000170.html)
 - Jan 15 - [2 US Navy SEALs are missing off the coast of Somalia after rescue bid ends tragically, reports say](https://news.yahoo.com/2-us-navy-seals-missing-163304586.html)
 - Jan 15 - ['Strangers started telling me to go home': why foreigners who endured China's Covid lockdowns now say they've had enough](https://finance.yahoo.com/news/strangers-started-telling-home-why-093000970.html)
-- Jan 15 - [Jim Jordan Reveals What He Loves Most About Trump And... Wow.](https://news.yahoo.com/jim-jordan-reveals-loves-most-090245834.html)
-- Jan 15 - [War between NATO & Russia is imminent, according to secret German Armed Forces document — Bild](https://news.yahoo.com/war-between-nato-russia-imminent-083500522.html)
 <!-- feed end -->
 
 ### Onstream
