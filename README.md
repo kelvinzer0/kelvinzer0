@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Claims Swirl Around Possible Shoot Down Of Russian A-50 Radar Jet](https://news.yahoo.com/claims-swirl-around-possible-shoot-051009587.html)
-- Jan 15 - [My cousin left his estate to 6 relatives, but only one cousin, worth $30 million, received the inheritance — due to an ‘unexpected surprise’](https://finance.yahoo.com/news/cousin-left-estate-6-relatives-090900122.html)
+- Jan 15 - [Arctic freeze continues to blast huge swaths of the US with sub-zero temperatures](https://news.yahoo.com/arctic-freeze-continues-blast-huge-064146327.html)
+- Jan 15 - [India ETF flows hit record in 2023, analysts see momentum persisting in election year](https://www.yahoo.com/tech/india-etf-flows-hit-record-063513613.html)
 - Jan 15 - [Hot air balloon crash in Arizona desert leaves 4 dead and 1 critically injured, police say](https://news.yahoo.com/hot-air-balloon-crash-arizona-022131495.html)
-- Jan 15 - [Last letters from young kamikaze pilots provide rare insights into Japan’s feared special attack unit](https://www.yahoo.com/lifestyle/last-letters-young-kamikaze-pilots-011624016.html)
-- Jan 15 - [Scientists make worrying discovery while investigating Lake Tahoe: ‘There’s a lot of education we can do’](https://news.yahoo.com/scientists-worrying-discovery-while-investigating-013000579.html)
+- Jan 15 - [Taiwan loses first ally post-election as Nauru goes over to China](https://news.yahoo.com/taiwan-loses-first-ally-post-061821550.html)
+- Jan 15 - [Claims Swirl Around Possible Shoot Down Of Russian A-50 Radar Jet](https://news.yahoo.com/claims-swirl-around-possible-shoot-051009587.html)
 <!-- feed end -->
 
 ### Onstream
