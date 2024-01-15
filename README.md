@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Last flight of Russia’s downed A-50 AWACS plane — video](https://news.yahoo.com/last-flight-russia-downed-50-190000831.html)
-- Jan 15 - [8 skydivers jump off hot air balloon before plunge kills four aboard, officials say](https://news.yahoo.com/8-skydivers-jump-off-hot-185239370.html)
-- Jan 15 - [Ships and aircraft search for 2 Navy SEALs missing after mission to confiscate Iranian missile parts](https://news.yahoo.com/ships-aircraft-search-2-navy-180156787.html)
-- Jan 15 - [Watching Cops Ticket Drivers for Left-Lane Camping Is Incredibly Satisfying](https://news.yahoo.com/watching-cops-ticket-drivers-left-180000729.html)
-- Jan 15 - [Man accused of killing missing mom who was witness in murder case, Texas cops say](https://news.yahoo.com/man-accused-killing-missing-mom-175100465.html)
+- Jan 15 - [Video shows man ramming skid loader into police cruiser in Nebraska](https://news.yahoo.com/video-shows-man-ramming-skid-200822049.html)
+- Jan 15 - [Hamas airs video purporting to show two Israeli hostages killed in captivity](https://news.yahoo.com/hamas-airs-video-purporting-show-200723798.html)
+- Jan 15 - [My cousin left his estate to 6 relatives, but only one cousin, worth $30 million, received the inheritance — due to an ‘unexpected surprise’](https://finance.yahoo.com/news/cousin-left-estate-6-relatives-090900122.html)
+- Jan 15 - [Bride arrested for extortion, handcuffed in her wedding dress](https://news.yahoo.com/bride-arrested-extortion-handcuffed-her-193720618.html)
+- Jan 15 - [Missouri High School Student Who Attacked 65-Year-Old Teacher In Viral Video Faces Charges](https://news.yahoo.com/missouri-high-school-student-attacked-193400275.html)
 <!-- feed end -->
 
 ### Onstream
