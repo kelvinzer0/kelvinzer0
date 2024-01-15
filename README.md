@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [Joseph Zadroga, advocate for 9/11 first responders, killed in parking lot](https://news.yahoo.com/joseph-zadroga-advocate-9-11-010022926.html)
 - Jan 14 - [A man is suing a former Florida cop seen in a viral video pulling a gun on him after he called police for help](https://news.yahoo.com/man-suing-former-florida-cop-223622956.html)
 - Jan 14 - [Police raid gone wrong sends 17-month-old boy to hospital, Ohio family says](https://news.yahoo.com/police-raid-gone-wrong-sends-221747597.html)
 - Jan 14 - [Hamas airs video of Israeli hostages, says will disclose their fate](https://news.yahoo.com/hamas-airs-video-israeli-hostages-215508834.html)
 - Jan 14 - [Fulton County DA Fani Willis defends special prosecutor following allegation of romantic relationship](https://news.yahoo.com/fulton-county-da-fani-willis-202200356.html)
-- Jan 14 - [Protesters Crash Trump Rally, Call Him ‘Climate Criminal’: Watch](https://news.yahoo.com/protesters-crash-trump-rally-call-195354318.html)
 <!-- feed end -->
 
 ### Onstream
