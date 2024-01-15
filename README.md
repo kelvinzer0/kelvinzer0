@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - ['Strangers started telling me to go home': why foreigners who endured China's Covid lockdowns now say they've had enough](https://finance.yahoo.com/news/strangers-started-telling-home-why-093000970.html)
+- Jan 15 - [Jim Jordan Reveals What He Loves Most About Trump And... Wow.](https://news.yahoo.com/jim-jordan-reveals-loves-most-090245834.html)
 - Jan 15 - [War between NATO & Russia is imminent, according to secret German Armed Forces document — Bild](https://news.yahoo.com/war-between-nato-russia-imminent-083500522.html)
-- Jan 15 - [Canadians worry US democracy cannot survive Trump's return to White House, poll finds](https://news.yahoo.com/canadians-worry-us-democracy-cannot-080755345.html)
 - Jan 15 - [Lauren Boebert’s Hot Take On The Cold Weather Goes Embarrassingly Awry](https://news.yahoo.com/lauren-boebert-hot-cold-weather-072106561.html)
 - Jan 15 - [Hot air balloon crash in Arizona desert leaves 4 dead and 1 critically injured, police say](https://news.yahoo.com/hot-air-balloon-crash-arizona-022131495.html)
-- Jan 15 - [‘This person should not be president’: Kamala Harris takes hits in book on Biden](https://www.yahoo.com/entertainment/person-not-president-kamala-harris-070008886.html)
 <!-- feed end -->
 
 ### Onstream
