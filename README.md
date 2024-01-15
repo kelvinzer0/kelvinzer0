@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Trump told Iowa supporters 'it's worth it' to go vote for him in the cold, even if they're 'sick as a dog' and die after casting their ballots](https://news.yahoo.com/trump-told-iowa-supporters-worth-035910883.html)
+- Jan 15 - [Claims Swirl Around Possible Shoot Down Of Russian A-50 Radar Jet](https://news.yahoo.com/claims-swirl-around-possible-shoot-051009587.html)
 - Jan 15 - [My cousin left his estate to 6 relatives, but only one cousin, worth $30 million, received the inheritance — due to an ‘unexpected surprise’](https://finance.yahoo.com/news/cousin-left-estate-6-relatives-090900122.html)
 - Jan 15 - [Hot air balloon crash in Arizona desert leaves 4 dead and 1 critically injured, police say](https://news.yahoo.com/hot-air-balloon-crash-arizona-022131495.html)
 - Jan 15 - [Last letters from young kamikaze pilots provide rare insights into Japan’s feared special attack unit](https://www.yahoo.com/lifestyle/last-letters-young-kamikaze-pilots-011624016.html)
