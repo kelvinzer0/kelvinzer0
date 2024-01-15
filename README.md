@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [2 US Navy SEALs are missing off the coast of Somalia after rescue bid ends tragically, reports say](https://news.yahoo.com/2-us-navy-seals-missing-163304586.html)
 - Jan 15 - ['Strangers started telling me to go home': why foreigners who endured China's Covid lockdowns now say they've had enough](https://finance.yahoo.com/news/strangers-started-telling-home-why-093000970.html)
 - Jan 15 - [Jim Jordan Reveals What He Loves Most About Trump And... Wow.](https://news.yahoo.com/jim-jordan-reveals-loves-most-090245834.html)
 - Jan 15 - [War between NATO & Russia is imminent, according to secret German Armed Forces document — Bild](https://news.yahoo.com/war-between-nato-russia-imminent-083500522.html)
 - Jan 15 - [Lauren Boebert’s Hot Take On The Cold Weather Goes Embarrassingly Awry](https://news.yahoo.com/lauren-boebert-hot-cold-weather-072106561.html)
-- Jan 15 - [Hot air balloon crash in Arizona desert leaves 4 dead and 1 critically injured, police say](https://news.yahoo.com/hot-air-balloon-crash-arizona-022131495.html)
 <!-- feed end -->
 
 ### Onstream
