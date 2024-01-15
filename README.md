@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [Why the Iowa caucuses are important](https://news.yahoo.com/why-the-iowa-caucuses-are-important-181343836.html)
+- Jan 15 - [Ships and aircraft search for 2 Navy SEALs missing after mission to confiscate Iranian missile parts](https://news.yahoo.com/ships-aircraft-search-2-navy-180156787.html)
 - Jan 15 - [Man accused of killing missing mom who was witness in murder case, Texas cops say](https://news.yahoo.com/man-accused-killing-missing-mom-175100465.html)
+- Jan 15 - [Attorney Joe Tacopina withdraws from Trump's legal team](https://news.yahoo.com/attorney-joe-tacopina-withdraws-trumps-174354592.html)
 - Jan 15 - [A woman bought a vintage dress at an antique store. It had a secret pocket with a mysterious note](https://news.yahoo.com/woman-bought-vintage-dress-antique-135643073.html)
-- Jan 15 - [Trump lawyer Joe Tacopina withdraws from ex-president’s cases](https://news.yahoo.com/trump-lawyer-joe-tacopina-withdraws-164755788.html)
-- Jan 15 - [Could the lost Navy SEALs still be alive? It's unlikely, but their world-class training gives them a shot.](https://news.yahoo.com/could-lost-navy-seals-still-162353129.html)
-- Jan 15 - [A bride and groom spent their wedding night in hospital after the venue floor collapsed, sending them plummeting 13 feet](https://news.yahoo.com/bride-groom-spent-wedding-night-152610467.html)
 <!-- feed end -->
 
 ### Onstream
