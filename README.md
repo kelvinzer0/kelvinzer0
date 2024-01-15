@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Ground collision of two Boeing planes in Chicago sparks FAA investigation](https://news.yahoo.com/ground-collision-two-boeing-planes-202559342.html)
-- Jan 15 - [Video shows man ramming skid loader into police cruiser in Nebraska](https://news.yahoo.com/video-shows-man-ramming-skid-200822049.html)
-- Jan 15 - [Hamas airs video purporting to show two Israeli hostages killed in captivity](https://news.yahoo.com/hamas-airs-video-purporting-show-200723798.html)
-- Jan 15 - [My cousin left his estate to 6 relatives, but only one cousin, worth $30 million, received the inheritance — due to an ‘unexpected surprise’](https://finance.yahoo.com/news/cousin-left-estate-6-relatives-090900122.html)
-- Jan 15 - [Bride arrested for extortion, handcuffed in her wedding dress](https://news.yahoo.com/bride-arrested-extortion-handcuffed-her-193720618.html)
+- Jan 15 - [North Korea's Kim calls for change in status of South, warns of war](https://news.yahoo.com/north-koreas-kim-calls-change-223251502.html)
+- Jan 15 - [Fact Check: Posts Falsely Claimed Trump Told Iowa Crowd He'll Be President for '4 Years and Beyond.' Here's What Really Happened](https://news.yahoo.com/fact-check-posts-falsely-claimed-220700729.html)
+- Jan 15 - [Iowa caucus 2024 results: Follow along live](https://news.yahoo.com/iowa-caucus-2024-results-follow-along-live-220604543.html)
+- Jan 15 - [AP VoteCast: Iowa caucusgoers want big changes, see immigration as more important than the economy](https://news.yahoo.com/ap-votecast-iowa-caucusgoers-want-220158216.html)
+- Jan 15 - [Thieves steal man’s $100,000 classic car – but it wasn’t easy, California video shows](https://news.yahoo.com/thieves-steal-man-100-000-212513220.html)
 <!-- feed end -->
 
 ### Onstream
