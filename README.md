@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [My cousin left his estate to 6 relatives, but only one cousin, worth $30 million, received the inheritance — due to an ‘unexpected surprise’](https://finance.yahoo.com/news/cousin-left-estate-6-relatives-090900122.html)
+- Jan 15 - [Hot air balloon crash in Arizona desert leaves 4 dead and 1 critically injured, police say](https://news.yahoo.com/hot-air-balloon-crash-arizona-022131495.html)
 - Jan 15 - [Last letters from young kamikaze pilots provide rare insights into Japan’s feared special attack unit](https://www.yahoo.com/lifestyle/last-letters-young-kamikaze-pilots-011624016.html)
+- Jan 15 - [Scientists make worrying discovery while investigating Lake Tahoe: ‘There’s a lot of education we can do’](https://news.yahoo.com/scientists-worrying-discovery-while-investigating-013000579.html)
 - Jan 15 - [Joseph Zadroga, advocate for 9/11 first responders, killed in parking lot](https://news.yahoo.com/joseph-zadroga-advocate-9-11-010022926.html)
-- Jan 14 - [A man is suing a former Florida cop seen in a viral video pulling a gun on him after he called police for help](https://news.yahoo.com/man-suing-former-florida-cop-223622956.html)
-- Jan 14 - [Police raid gone wrong sends 17-month-old boy to hospital, Ohio family says](https://news.yahoo.com/police-raid-gone-wrong-sends-221747597.html)
-- Jan 14 - [Hamas airs video of Israeli hostages, says will disclose their fate](https://news.yahoo.com/hamas-airs-video-israeli-hostages-215508834.html)
 <!-- feed end -->
 
 ### Onstream
