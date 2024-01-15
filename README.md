@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [Toy manufacturers' shift from China is no child's play](https://finance.yahoo.com/news/toy-manufacturers-shift-china-no-130838077.html)
 - Jan 15 - [Donald Trump Talks Down To Protesters With 'Mommy' Sendoff At Iowa Rally](https://news.yahoo.com/donald-trump-talks-down-protesters-121622714.html)
 - Jan 15 - [Denmark's new King Frederik X appears before parliament](https://news.yahoo.com/denmarks-king-frederik-x-appears-111733460.html)
 - Jan 15 - [‘That’s for Dnipro’  Downing of $330 million RU plane payback for deadly missile strike — AF officer](https://news.yahoo.com/dnipro-downing-330-million-ru-105000170.html)
-- Jan 15 - [2 US Navy SEALs are missing off the coast of Somalia after rescue bid ends tragically, reports say](https://news.yahoo.com/2-us-navy-seals-missing-163304586.html)
-- Jan 15 - ['Strangers started telling me to go home': why foreigners who endured China's Covid lockdowns now say they've had enough](https://finance.yahoo.com/news/strangers-started-telling-home-why-093000970.html)
+- Jan 15 - [Scientist shares remarkable before-and-after photos of a restored nature reserve: ‘It’s an incredible example’](https://www.yahoo.com/lifestyle/scientist-shares-remarkable-photos-restored-104527750.html)
 <!-- feed end -->
 
 ### Onstream
