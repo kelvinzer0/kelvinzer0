@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 15 - [Why the Iowa caucuses are important](https://news.yahoo.com/why-the-iowa-caucuses-are-important-181343836.html)
+- Jan 15 - [Last flight of Russia’s downed A-50 AWACS plane — video](https://news.yahoo.com/last-flight-russia-downed-50-190000831.html)
+- Jan 15 - [8 skydivers jump off hot air balloon before plunge kills four aboard, officials say](https://news.yahoo.com/8-skydivers-jump-off-hot-185239370.html)
 - Jan 15 - [Ships and aircraft search for 2 Navy SEALs missing after mission to confiscate Iranian missile parts](https://news.yahoo.com/ships-aircraft-search-2-navy-180156787.html)
+- Jan 15 - [Watching Cops Ticket Drivers for Left-Lane Camping Is Incredibly Satisfying](https://news.yahoo.com/watching-cops-ticket-drivers-left-180000729.html)
 - Jan 15 - [Man accused of killing missing mom who was witness in murder case, Texas cops say](https://news.yahoo.com/man-accused-killing-missing-mom-175100465.html)
-- Jan 15 - [Attorney Joe Tacopina withdraws from Trump's legal team](https://news.yahoo.com/attorney-joe-tacopina-withdraws-trumps-174354592.html)
-- Jan 15 - [A woman bought a vintage dress at an antique store. It had a secret pocket with a mysterious note](https://news.yahoo.com/woman-bought-vintage-dress-antique-135643073.html)
 <!-- feed end -->
 
 ### Onstream
