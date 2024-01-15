@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [2 US Navy SEALs are missing after one fell off a boat in choppy water during a nighttime mission near Somalia, report says](https://news.yahoo.com/2-us-navy-seals-missing-163304586.html)
+- Jan 15 - [Ukrainian drones find easy prey in Kadyrovite units — video](https://news.yahoo.com/ukrainian-drones-easy-prey-kadyrovite-153800172.html)
+- Jan 15 - [A bride and groom spent their wedding night in hospital after the venue floor collapsed, sending them plummeting 13 feet](https://news.yahoo.com/bride-groom-spent-wedding-night-152610467.html)
+- Jan 15 - [The mystery of Siberia's strange exploding craters may have finally been solved](https://news.yahoo.com/mystery-siberias-strange-exploding-craters-152307939.html)
 - Jan 15 - [A former TSA agent reveals little-known tips about getting through airport security, including taking frozen water bottles on a plane](https://news.yahoo.com/former-tsa-agent-reveals-little-150322244.html)
-- Jan 15 - [Yemen's Houthis hit US-owned container ship, no injuries - U.S Centcom](https://news.yahoo.com/uk-marine-monitoring-report-vessel-142755747.html)
-- Jan 15 - [A woman bought a vintage dress at an antique store. It had a secret pocket with a mysterious note](https://news.yahoo.com/woman-bought-vintage-dress-antique-135643073.html)
-- Jan 15 - [Toy manufacturers' shift from China is no child's play](https://finance.yahoo.com/news/toy-manufacturers-shift-china-no-130838077.html)
-- Jan 15 - [Denmark's new King Frederik X appears before parliament](https://news.yahoo.com/denmarks-king-frederik-x-appears-111733460.html)
 <!-- feed end -->
 
 ### Onstream
