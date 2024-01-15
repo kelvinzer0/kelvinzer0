@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 15 - [A woman bought a vintage dress at an antique store. It had a secret pocket with a mysterious note](https://news.yahoo.com/woman-bought-vintage-dress-antique-135643073.html)
 - Jan 15 - [Toy manufacturers' shift from China is no child's play](https://finance.yahoo.com/news/toy-manufacturers-shift-china-no-130838077.html)
-- Jan 15 - [Donald Trump Talks Down To Protesters With 'Mommy' Sendoff At Iowa Rally](https://news.yahoo.com/donald-trump-talks-down-protesters-121622714.html)
 - Jan 15 - [Denmark's new King Frederik X appears before parliament](https://news.yahoo.com/denmarks-king-frederik-x-appears-111733460.html)
+- Jan 15 - [Ukraine says it shot down 2 Russian command and control aircraft in a significant blow to Moscow](https://news.yahoo.com/ukraine-claims-shot-down-2-105547871.html)
 - Jan 15 - [‘That’s for Dnipro’  Downing of $330 million RU plane payback for deadly missile strike — AF officer](https://news.yahoo.com/dnipro-downing-330-million-ru-105000170.html)
-- Jan 15 - [Scientist shares remarkable before-and-after photos of a restored nature reserve: ‘It’s an incredible example’](https://www.yahoo.com/lifestyle/scientist-shares-remarkable-photos-restored-104527750.html)
 <!-- feed end -->
 
 ### Onstream
