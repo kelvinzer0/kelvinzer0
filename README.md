@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [Ex-President Donald Trump set to face jury over sex abuse and defamation claims](https://news.yahoo.com/ex-president-donald-trump-set-050203860.html)
-- Jan 16 - [Entrepreneur Ramaswamy drops out of White House race, endorses Trump](https://news.yahoo.com/entrepreneur-ramaswamy-drops-white-house-042857220.html)
-- Jan 16 - [‘Absolute tragedy of Ron DeSantis’: Joy uncorks on humiliating loss in Iowa](https://news.yahoo.com/absolute-tragedy-ron-desantis-joy-025054881.html)
-- Jan 16 - [Fact Check: Here's What We Learned About This Supposed Trump Post Claiming He Marched with MLK](https://news.yahoo.com/fact-check-heres-learned-supposed-011400165.html)
-- Jan 16 - [Leaked German documents show leaders are preparing should Russia launch World War 3: reports](https://news.yahoo.com/leaked-german-documents-show-leaders-001648870.html)
+- Jan 16 - [Trump Dominates Iowa GOP Presidential Caucuses, DeSantis Places Second](https://finance.yahoo.com/video/watch-gop-candidates-rally-supporters-230300057.html)
+- Jan 16 - [With 'God's-eye view,' secretive surveillance flights keep close watch on Russia and Ukraine](https://news.yahoo.com/gods-eye-view-secretive-surveillance-051617797.html)
+- Jan 16 - [Trump Makes Baffling Claim About His Own History During Rambling Iowa Victory Speech](https://news.yahoo.com/trump-makes-baffling-claim-own-051323694.html)
+- Jan 16 - [Vivek Ramaswamy suspends his 2024 Republican presidential bid and endorses rival Donald Trump](https://news.yahoo.com/vivek-ramaswamy-announces-suspending-presidential-042505272.html)
+- Jan 16 - [Chicago-area Tesla charging stations lined with dead cars in freezing cold: 'A bunch of dead robots out here'](https://finance.yahoo.com/news/chicago-area-tesla-charging-stations-024817227.html)
 <!-- feed end -->
 
 ### Onstream
