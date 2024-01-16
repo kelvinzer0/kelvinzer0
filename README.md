@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [US military seizes Iranian missile parts bound for Houthi rebels in raid where 2 SEALs went missing](https://news.yahoo.com/us-military-seizes-iranian-missile-122330720.html)
+- Jan 16 - [Trump victory in Iowa raises alarm in Berlin: 'High time to prepare'](https://news.yahoo.com/trump-victory-iowa-raises-alarm-114225905.html)
 - Jan 16 - [Israeli tanks storm back into north Gaza areas where they had withdrawn](https://news.yahoo.com/israeli-tanks-storm-back-north-113358757.html)
 - Jan 16 - ['One of the biggest mass migrations in American history': Economist says 5M people have fled 'blue states' in the last decade, wishes these places would 'stop avoiding reality.' Here’s why](https://finance.yahoo.com/news/one-biggest-mass-migrations-american-113000683.html)
 - Jan 16 - [OnlyFans model accused in Miami murder pictured with taped knuckles, bloody elbow after video meltdown](https://news.yahoo.com/onlyfans-model-accused-miami-murder-090017837.html)
-- Jan 16 - [PhD student ruffles feathers after debunking common misconception about wind turbines: ‘There’s been promising research’](https://news.yahoo.com/phd-student-ruffles-feathers-debunking-083000955.html)
-- Jan 16 - [‘I’m Sorry’: Rachel Maddow Whispers A Harsh Truth For Donald Trump Fans](https://news.yahoo.com/m-sorry-rachel-maddow-whispers-075124245.html)
 <!-- feed end -->
 
 ### Onstream
