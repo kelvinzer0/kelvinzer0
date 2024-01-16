@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [The Houthi air force has a single fighter jet — an ancient F-5. The US is very much not afraid of it.](https://news.yahoo.com/houthi-air-force-single-fighter-161059149.html)
+- Jan 16 - [Ohio mayor orders probe after woman alleges police raided wrong house and injured her baby](https://news.yahoo.com/ohio-mayor-orders-probe-woman-174920981.html)
+- Jan 16 - [Elusive creature behind the ‘yeti legend’ spotted in India for the first time. See it](https://news.yahoo.com/elusive-creature-behind-yeti-legend-171607226.html)
+- Jan 16 - [Blinken says Arab countries not keen to rebuild Gaza if it will be 'leveled' again](https://news.yahoo.com/blinken-says-arab-countries-not-171535035.html)
+- Jan 16 - [The Houthi air force has a single fighter jet — an ancient F-5. The US is very much not afraid of it.](https://news.yahoo.com/houthi-air-force-single-fighter-161059454.html)
 - Jan 16 - [Putin says past U.S. elections were rigged](https://news.yahoo.com/putin-says-past-u-elections-160219651.html)
-- Jan 16 - [New York governor wants to spend $2.4B on migrants in new budget proposal](https://news.yahoo.com/york-governor-wants-spend-2-155529176.html)
-- Jan 16 - [Pakistan's ex-Prime Minister Imran Khan indicted on charge of violating Islamic marriage law](https://news.yahoo.com/pakistans-ex-prime-minister-imran-155408115.html)
-- Jan 16 - [Russia jails officer for buying wrong hardware to protect Crimean bridge from Ukrainian attack - TASS](https://news.yahoo.com/russia-jails-officer-buying-wrong-152118713.html)
 <!-- feed end -->
 
 ### Onstream
