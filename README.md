@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [Iowa caucus 2024 results: Follow along live](https://news.yahoo.com/iowa-caucus-2024-results-follow-along-live-220604543.html)
+- Jan 16 - [Hamas video purportedly shows two dead Israeli hostages](https://news.yahoo.com/hamas-video-purportedly-shows-two-003401573.html)
+- Jan 15 - [Iranian Ballistic Missiles Strike Facilities In Iraq](https://news.yahoo.com/iranian-ballistic-missiles-strike-facilities-225454548.html)
 - Jan 15 - [North Korea's Kim calls for change in status of South, warns of war](https://news.yahoo.com/north-koreas-kim-calls-change-223251502.html)
 - Jan 15 - [Fact Check: Posts Falsely Claimed Trump Told Iowa Crowd He'll Be President for '4 Years and Beyond.' Here's What Really Happened](https://news.yahoo.com/fact-check-posts-falsely-claimed-220700729.html)
-- Jan 15 - [Iowa caucus 2024 results: Follow along live](https://news.yahoo.com/iowa-caucus-2024-results-follow-along-live-220604543.html)
-- Jan 15 - [AP VoteCast: Iowa caucusgoers want big changes, see immigration as more important than the economy](https://news.yahoo.com/ap-votecast-iowa-caucusgoers-want-220158216.html)
-- Jan 15 - [Thieves steal man’s $100,000 classic car – but it wasn’t easy, California video shows](https://news.yahoo.com/thieves-steal-man-100-000-212513220.html)
 <!-- feed end -->
 
 ### Onstream
