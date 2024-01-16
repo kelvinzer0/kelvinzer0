@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [Israeli tanks storm back into north Gaza areas where they had withdrawn](https://news.yahoo.com/israeli-tanks-storm-back-north-113358757.html)
+- Jan 16 - ['One of the biggest mass migrations in American history': Economist says 5M people have fled 'blue states' in the last decade, wishes these places would 'stop avoiding reality.' Here’s why](https://finance.yahoo.com/news/one-biggest-mass-migrations-american-113000683.html)
+- Jan 16 - [OnlyFans model accused in Miami murder pictured with taped knuckles, bloody elbow after video meltdown](https://news.yahoo.com/onlyfans-model-accused-miami-murder-090017837.html)
+- Jan 16 - [PhD student ruffles feathers after debunking common misconception about wind turbines: ‘There’s been promising research’](https://news.yahoo.com/phd-student-ruffles-feathers-debunking-083000955.html)
 - Jan 16 - [‘I’m Sorry’: Rachel Maddow Whispers A Harsh Truth For Donald Trump Fans](https://news.yahoo.com/m-sorry-rachel-maddow-whispers-075124245.html)
-- Jan 16 - [Live updates | Qatari premier warns of massive destruction, says 'Gaza is not there anymore'](https://news.yahoo.com/live-updates-israeli-soldiers-exchange-062316828.html)
-- Jan 16 - [With 'God's-eye view,' secretive surveillance flights keep close watch on Russia and Ukraine](https://news.yahoo.com/gods-eye-view-secretive-surveillance-051617797.html)
-- Jan 16 - [Trump Makes Baffling Claim About His Own History During Rambling Iowa Victory Speech](https://news.yahoo.com/trump-makes-baffling-claim-own-051323694.html)
-- Jan 16 - [Vivek Ramaswamy suspends his 2024 Republican presidential bid and endorses rival Donald Trump](https://news.yahoo.com/vivek-ramaswamy-announces-suspending-presidential-042505272.html)
 <!-- feed end -->
 
 ### Onstream
