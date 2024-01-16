@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [Trump lost his best possible juror in the E. Jean Carroll defamation trial: a man who thought the 2020 election was stolen](https://news.yahoo.com/trump-lost-best-possible-juror-193525939.html)
-- Jan 16 - [Trump White House official Peter Navarro loses his bid for a new contempt of Congress trial](https://news.yahoo.com/trump-white-house-official-peter-193310469.html)
-- Jan 16 - [An Idealistic Cop, a Forbidden Ticket and a Police Career on the Brink](https://news.yahoo.com/idealistic-cop-forbidden-ticket-police-192304559.html)
+- Jan 16 - [Wisconsin Republican leader slams Democrats' proposed election maps as 'political gerrymander'](https://news.yahoo.com/wisconsin-republican-leader-slams-democrats-201311315.html)
+- Jan 16 - [A Texas Woman Has Been Arrested for Allegedly Murdering Her Teenaged Girlfriend ... And It Gets Sadder](https://news.yahoo.com/texas-woman-arrested-allegedly-murdering-195719225.html)
+- Jan 16 - [Trump lost his best possible juror in the E. Jean Carroll defamation trial: a man who thought the 2020 election was stolen](https://news.yahoo.com/trump-lost-best-possible-juror-193525393.html)
 - Jan 16 - [Barstool Sports CEO Erika Ayers Badan Resigns: ‘I Gave You My All’](https://www.yahoo.com/entertainment/barstool-sports-ceo-erika-ayers-192003798.html)
-- Jan 16 - [Wrestler Hulk Hogan helps rescue teenage girl trapped after Florida car crash](https://news.yahoo.com/wrestler-hulk-hogan-helps-rescue-191703667.html)
+- Jan 16 - [After deadly shooting last fall, Kansas City restaurant with rooftop bar has closed](https://news.yahoo.com/deadly-shooting-last-fall-kansas-191328956.html)
 <!-- feed end -->
 
 ### Onstream
