@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [Iowa caucus 2024 results: Follow along live](https://news.yahoo.com/iowa-caucus-2024-results-follow-along-live-220604543.html)
-- Jan 16 - [Hamas video purportedly shows two dead Israeli hostages](https://news.yahoo.com/hamas-video-purportedly-shows-two-003401573.html)
-- Jan 15 - [Iranian Ballistic Missiles Strike Facilities In Iraq](https://news.yahoo.com/iranian-ballistic-missiles-strike-facilities-225454548.html)
+- Jan 16 - [Iowa caucuses results: Trump wins in a landslide as Haley and DeSantis scrap for second](https://news.yahoo.com/iowa-caucuses-results-trump-wins-in-a-landslide-as-haley-and-desantis-scrap-for-second-014022259.html)
+- Jan 16 - [Fact Check: Here's What We Learned About This Supposed Trump Post Claiming He Marched with MLK](https://news.yahoo.com/fact-check-heres-learned-supposed-011400165.html)
 - Jan 15 - [North Korea's Kim calls for change in status of South, warns of war](https://news.yahoo.com/north-koreas-kim-calls-change-223251502.html)
 - Jan 15 - [Fact Check: Posts Falsely Claimed Trump Told Iowa Crowd He'll Be President for '4 Years and Beyond.' Here's What Really Happened](https://news.yahoo.com/fact-check-posts-falsely-claimed-220700729.html)
+- Jan 15 - [Iran's Guards attack Israel's 'spy headquarters' in Iraq, vow more revenge](https://news.yahoo.com/irans-revolutionary-guards-attacked-espionage-213330627.html)
 <!-- feed end -->
 
 ### Onstream
