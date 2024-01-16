@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [‘All My Children’ Star Alec Musser’s Tragic Cause Of Death Revealed](https://www.yahoo.com/entertainment/children-star-alec-musser-tragic-184121268.html)
-- Jan 16 - [Navy ousts USS Georgia commanding officer](https://news.yahoo.com/navy-ousts-uss-georgia-commanding-183212965.html)
-- Jan 16 - [Ohio mayor orders probe after woman alleges police raided wrong house and injured her baby](https://news.yahoo.com/ohio-mayor-orders-probe-woman-174920981.html)
-- Jan 16 - [Iran says it has launched attacks on what it calls militant bases in Pakistan](https://news.yahoo.com/iran-says-launched-attacks-calls-174743200.html)
-- Jan 16 - [Elusive creature behind the ‘yeti legend’ spotted in India for the first time. See it](https://news.yahoo.com/elusive-creature-behind-yeti-legend-171607226.html)
+- Jan 16 - [Trump lost his best possible juror in the E. Jean Carroll defamation trial: a man who thought the 2020 election was stolen](https://news.yahoo.com/trump-lost-best-possible-juror-193525939.html)
+- Jan 16 - [Trump White House official Peter Navarro loses his bid for a new contempt of Congress trial](https://news.yahoo.com/trump-white-house-official-peter-193310469.html)
+- Jan 16 - [An Idealistic Cop, a Forbidden Ticket and a Police Career on the Brink](https://news.yahoo.com/idealistic-cop-forbidden-ticket-police-192304559.html)
+- Jan 16 - [Barstool Sports CEO Erika Ayers Badan Resigns: ‘I Gave You My All’](https://www.yahoo.com/entertainment/barstool-sports-ceo-erika-ayers-192003798.html)
+- Jan 16 - [Wrestler Hulk Hogan helps rescue teenage girl trapped after Florida car crash](https://news.yahoo.com/wrestler-hulk-hogan-helps-rescue-191703667.html)
 <!-- feed end -->
 
 ### Onstream
