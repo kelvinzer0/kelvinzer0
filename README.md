@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [US Supreme Court snubs fight over transgender student bathroom access](https://news.yahoo.com/us-supreme-court-snubs-fight-143754690.html)
+- Jan 16 - [Putin says past U.S. elections were rigged](https://news.yahoo.com/putin-says-past-u-elections-160219651.html)
+- Jan 16 - [Pakistan's ex-Prime Minister Imran Khan indicted on charge of violating Islamic marriage law](https://news.yahoo.com/pakistans-ex-prime-minister-imran-155408115.html)
+- Jan 16 - [Russia jails officer for buying wrong hardware to protect Crimean bridge from Ukrainian attack - TASS](https://news.yahoo.com/russia-jails-officer-buying-wrong-152118713.html)
 - Jan 16 - [I Just Learned About The Supernatural Phenomenon That Is "Third Man Syndrome," So Here Are 23 Stories From People Who Experienced It First Hand](https://www.yahoo.com/lifestyle/just-learned-supernatural-phenomenon-third-141602734.html)
 - Jan 16 - [Burger King owner will buy out its biggest franchisee in US for about $1 billion](https://news.yahoo.com/burger-king-owner-buy-biggest-132507490.html)
-- Jan 16 - [Mass evictions at Mesa townhome complex tied to crackdown on sober living operator](https://news.yahoo.com/mass-evictions-mesa-townhome-complex-130131473.html)
-- Jan 16 - [US military seizes Iranian missile parts bound for Houthi rebels in raid where 2 SEALs went missing](https://news.yahoo.com/us-military-seizes-iranian-missile-122330720.html)
 <!-- feed end -->
 
 ### Onstream
