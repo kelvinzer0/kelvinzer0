@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [Israel accuses Hamas of ‘psychological torment’ of hostages’ families after three videos released](https://news.yahoo.com/israel-accuses-hamas-psychological-torment-015521430.html)
 - Jan 16 - [‘I’m Sorry’: Rachel Maddow Whispers A Harsh Truth For Donald Trump Fans](https://news.yahoo.com/m-sorry-rachel-maddow-whispers-075124245.html)
-- Jan 16 - [Live updates | Israeli soldiers exchange fire along the border with Egypt as regional tensions rise](https://news.yahoo.com/live-updates-israeli-soldiers-exchange-062316828.html)
+- Jan 16 - [Live updates | Qatari premier warns of massive destruction, says 'Gaza is not there anymore'](https://news.yahoo.com/live-updates-israeli-soldiers-exchange-062316828.html)
 - Jan 16 - [With 'God's-eye view,' secretive surveillance flights keep close watch on Russia and Ukraine](https://news.yahoo.com/gods-eye-view-secretive-surveillance-051617797.html)
 - Jan 16 - [Trump Makes Baffling Claim About His Own History During Rambling Iowa Victory Speech](https://news.yahoo.com/trump-makes-baffling-claim-own-051323694.html)
-- Jan 16 - [Vivek Ramaswamy suspends his 2024 Republican presidential bid and endorses rival Donald Trump](https://news.yahoo.com/vivek-ramaswamy-announces-suspending-presidential-042505272.html)
 <!-- feed end -->
 
 ### Onstream
