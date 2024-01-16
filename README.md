@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [Wisconsin Republican leader slams Democrats' proposed election maps as 'political gerrymander'](https://news.yahoo.com/wisconsin-republican-leader-slams-democrats-201311315.html)
-- Jan 16 - [A Texas Woman Has Been Arrested for Allegedly Murdering Her Teenaged Girlfriend ... And It Gets Sadder](https://news.yahoo.com/texas-woman-arrested-allegedly-murdering-195719225.html)
-- Jan 16 - [Trump lost his best possible juror in the E. Jean Carroll defamation trial: a man who thought the 2020 election was stolen](https://news.yahoo.com/trump-lost-best-possible-juror-193525393.html)
-- Jan 16 - [Barstool Sports CEO Erika Ayers Badan Resigns: ‘I Gave You My All’](https://www.yahoo.com/entertainment/barstool-sports-ceo-erika-ayers-192003798.html)
-- Jan 16 - [After deadly shooting last fall, Kansas City restaurant with rooftop bar has closed](https://news.yahoo.com/deadly-shooting-last-fall-kansas-191328956.html)
+- Jan 16 - ['It's the wrong house': Audio of Ohio police raid that left a baby injured raises new questions](https://news.yahoo.com/ohio-mayor-orders-probe-woman-174920981.html)
+- Jan 16 - [John Cusack Shares Chilling Warning About 'Nazis Running For Office' In America](https://www.yahoo.com/entertainment/john-cusack-shares-chilling-warning-213156222.html)
+- Jan 16 - [Republicans pause effort to hold Hunter Biden in contempt, say they are talking with his attorneys](https://news.yahoo.com/republicans-pause-effort-hold-hunter-213154546.html)
+- Jan 16 - [Big Changes Are Coming To Ruth's Chris Steak House In 2024](https://www.yahoo.com/lifestyle/big-changes-coming-ruths-chris-210122780.html)
+- Jan 16 - [Angler feels ‘thump’ — then reels in fish he’s never seen before. It’s a state record](https://news.yahoo.com/angler-feels-thump-then-reels-205921399.html)
 <!-- feed end -->
 
 ### Onstream
