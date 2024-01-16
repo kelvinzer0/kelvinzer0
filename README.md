@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [‘All My Children’ Star Alec Musser’s Tragic Cause Of Death Revealed](https://www.yahoo.com/entertainment/children-star-alec-musser-tragic-184121268.html)
+- Jan 16 - [Navy ousts USS Georgia commanding officer](https://news.yahoo.com/navy-ousts-uss-georgia-commanding-183212965.html)
 - Jan 16 - [Ohio mayor orders probe after woman alleges police raided wrong house and injured her baby](https://news.yahoo.com/ohio-mayor-orders-probe-woman-174920981.html)
+- Jan 16 - [Iran says it has launched attacks on what it calls militant bases in Pakistan](https://news.yahoo.com/iran-says-launched-attacks-calls-174743200.html)
 - Jan 16 - [Elusive creature behind the ‘yeti legend’ spotted in India for the first time. See it](https://news.yahoo.com/elusive-creature-behind-yeti-legend-171607226.html)
-- Jan 16 - [Blinken says Arab countries not keen to rebuild Gaza if it will be 'leveled' again](https://news.yahoo.com/blinken-says-arab-countries-not-171535035.html)
-- Jan 16 - [The Houthi air force has a single fighter jet — an ancient F-5. The US is very much not afraid of it.](https://news.yahoo.com/houthi-air-force-single-fighter-161059454.html)
-- Jan 16 - [Putin says past U.S. elections were rigged](https://news.yahoo.com/putin-says-past-u-elections-160219651.html)
 <!-- feed end -->
 
 ### Onstream
