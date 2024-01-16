@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jan 16 - [Live updates | Israeli soldiers exchange fire along the border with Egypt as regional tensions rise](https://news.yahoo.com/live-updates-israeli-soldiers-exchange-062316828.html)
 - Jan 16 - [With 'God's-eye view,' secretive surveillance flights keep close watch on Russia and Ukraine](https://news.yahoo.com/gods-eye-view-secretive-surveillance-051617797.html)
 - Jan 16 - [Trump Makes Baffling Claim About His Own History During Rambling Iowa Victory Speech](https://news.yahoo.com/trump-makes-baffling-claim-own-051323694.html)
-- Jan 16 - [Chicago-area Tesla charging stations lined with dead cars in freezing cold: 'A bunch of dead robots out here'](https://finance.yahoo.com/news/chicago-area-tesla-charging-stations-024817227.html)
+- Jan 16 - [Vivek Ramaswamy suspends his 2024 Republican presidential bid and endorses rival Donald Trump](https://news.yahoo.com/vivek-ramaswamy-announces-suspending-presidential-042505272.html)
 <!-- feed end -->
 
 ### Onstream
