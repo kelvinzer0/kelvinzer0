@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [2025 Chevrolet Tahoe Z71 and Suburban Z71 will offer updated diesel](https://www.autoblog.com/2024/01/16/2025-chevy-tahoe-suburban-z71-diesel/)
+- Jan 16 - [Burger King owner will buy out its biggest franchisee in US for about $1 billion](https://news.yahoo.com/burger-king-owner-buy-biggest-132507490.html)
 - Jan 16 - [US military seizes Iranian missile parts bound for Houthi rebels in raid where 2 SEALs went missing](https://news.yahoo.com/us-military-seizes-iranian-missile-122330720.html)
 - Jan 16 - [Trump victory in Iowa raises alarm in Berlin: 'High time to prepare'](https://news.yahoo.com/trump-victory-iowa-raises-alarm-114225905.html)
 - Jan 16 - [Israeli tanks storm back into north Gaza areas where they had withdrawn](https://news.yahoo.com/israeli-tanks-storm-back-north-113358757.html)
-- Jan 16 - ['One of the biggest mass migrations in American history': Economist says 5M people have fled 'blue states' in the last decade, wishes these places would 'stop avoiding reality.' Here’s why](https://finance.yahoo.com/news/one-biggest-mass-migrations-american-113000683.html)
-- Jan 16 - [OnlyFans model accused in Miami murder pictured with taped knuckles, bloody elbow after video meltdown](https://news.yahoo.com/onlyfans-model-accused-miami-murder-090017837.html)
 <!-- feed end -->
 
 ### Onstream
