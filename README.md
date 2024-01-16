@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [Trump legal news brief: Trump 'unleashed his followers' on E. Jean Carroll, her lawyer tells jury](https://news.yahoo.com/trump-legal-news-brief-trump-unleashed-his-followers-on-e-jean-carroll-her-lawyer-tells-jury-223636876.html)
+- Jan 16 - [Japanese scientists capture plants communicating with each other on video](https://news.yahoo.com/japanese-scientists-capture-plants-communicating-220021424.html)
 - Jan 16 - ['It's the wrong house': Audio of Ohio police raid that left a baby injured raises new questions](https://news.yahoo.com/ohio-mayor-orders-probe-woman-174920981.html)
 - Jan 16 - [John Cusack Shares Chilling Warning About 'Nazis Running For Office' In America](https://www.yahoo.com/entertainment/john-cusack-shares-chilling-warning-213156222.html)
-- Jan 16 - [Republicans pause effort to hold Hunter Biden in contempt, say they are talking with his attorneys](https://news.yahoo.com/republicans-pause-effort-hold-hunter-213154546.html)
 - Jan 16 - [Big Changes Are Coming To Ruth's Chris Steak House In 2024](https://www.yahoo.com/lifestyle/big-changes-coming-ruths-chris-210122780.html)
-- Jan 16 - [Angler feels ‘thump’ — then reels in fish he’s never seen before. It’s a state record](https://news.yahoo.com/angler-feels-thump-then-reels-205921399.html)
 <!-- feed end -->
 
 ### Onstream
