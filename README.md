@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [The Houthi air force has a single fighter jet — an ancient F-5. The US is very much not afraid of it.](https://news.yahoo.com/houthi-air-force-single-fighter-161059149.html)
 - Jan 16 - [Putin says past U.S. elections were rigged](https://news.yahoo.com/putin-says-past-u-elections-160219651.html)
+- Jan 16 - [New York governor wants to spend $2.4B on migrants in new budget proposal](https://news.yahoo.com/york-governor-wants-spend-2-155529176.html)
 - Jan 16 - [Pakistan's ex-Prime Minister Imran Khan indicted on charge of violating Islamic marriage law](https://news.yahoo.com/pakistans-ex-prime-minister-imran-155408115.html)
 - Jan 16 - [Russia jails officer for buying wrong hardware to protect Crimean bridge from Ukrainian attack - TASS](https://news.yahoo.com/russia-jails-officer-buying-wrong-152118713.html)
-- Jan 16 - [I Just Learned About The Supernatural Phenomenon That Is "Third Man Syndrome," So Here Are 23 Stories From People Who Experienced It First Hand](https://www.yahoo.com/lifestyle/just-learned-supernatural-phenomenon-third-141602734.html)
-- Jan 16 - [Burger King owner will buy out its biggest franchisee in US for about $1 billion](https://news.yahoo.com/burger-king-owner-buy-biggest-132507490.html)
 <!-- feed end -->
 
 ### Onstream
