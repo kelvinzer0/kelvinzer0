@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 16 - [U.S. cargo ship hit by missile off coast of Yemen](https://news.yahoo.com/u-cargo-ship-hit-missile-022752387.html)
-- Jan 16 - [Iowa caucuses results: Trump wins in a landslide as Haley and DeSantis scrap for second](https://news.yahoo.com/iowa-caucuses-results-trump-wins-in-a-landslide-as-haley-and-desantis-scrap-for-second-014022259.html)
 - Jan 16 - [Fact Check: Here's What We Learned About This Supposed Trump Post Claiming He Marched with MLK](https://news.yahoo.com/fact-check-heres-learned-supposed-011400165.html)
 - Jan 16 - [Leaked German documents show leaders are preparing should Russia launch World War 3: reports](https://news.yahoo.com/leaked-german-documents-show-leaders-001648870.html)
+- Jan 15 - [Iran strikes targets in northern Iraq and Syria as regional tensions escalate](https://news.yahoo.com/iran-announces-strikes-northern-iraq-225318066.html)
 - Jan 15 - [North Korea's Kim calls for South to be seen as "primary foe", warns of war](https://news.yahoo.com/north-koreas-kim-calls-change-223251502.html)
+- Jan 15 - [Fact Check: Posts Falsely Claimed Trump Told Iowa Crowd He'll Be President for '4 Years and Beyond.' Here's What Really Happened](https://news.yahoo.com/fact-check-posts-falsely-claimed-220700729.html)
 <!-- feed end -->
 
 ### Onstream
