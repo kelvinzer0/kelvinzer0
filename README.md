@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 16 - [Ex-President Donald Trump set to face jury over sex abuse and defamation claims](https://news.yahoo.com/ex-president-donald-trump-set-050203860.html)
+- Jan 16 - [Entrepreneur Ramaswamy drops out of White House race, endorses Trump](https://news.yahoo.com/entrepreneur-ramaswamy-drops-white-house-042857220.html)
+- Jan 16 - [‘Absolute tragedy of Ron DeSantis’: Joy uncorks on humiliating loss in Iowa](https://news.yahoo.com/absolute-tragedy-ron-desantis-joy-025054881.html)
 - Jan 16 - [Fact Check: Here's What We Learned About This Supposed Trump Post Claiming He Marched with MLK](https://news.yahoo.com/fact-check-heres-learned-supposed-011400165.html)
 - Jan 16 - [Leaked German documents show leaders are preparing should Russia launch World War 3: reports](https://news.yahoo.com/leaked-german-documents-show-leaders-001648870.html)
-- Jan 15 - [Iran strikes targets in northern Iraq and Syria as regional tensions escalate](https://news.yahoo.com/iran-announces-strikes-northern-iraq-225318066.html)
-- Jan 15 - [North Korea's Kim calls for South to be seen as "primary foe", warns of war](https://news.yahoo.com/north-koreas-kim-calls-change-223251502.html)
-- Jan 15 - [Fact Check: Posts Falsely Claimed Trump Told Iowa Crowd He'll Be President for '4 Years and Beyond.' Here's What Really Happened](https://news.yahoo.com/fact-check-posts-falsely-claimed-220700729.html)
 <!-- feed end -->
 
 ### Onstream
