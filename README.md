@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [Suicide dive by Ukrainian drone thwarts Russian drone seconds before likely deadly attack – video](https://news.yahoo.com/suicide-dive-ukrainian-drone-thwarts-120200123.html)
 - Jan 17 - [Colts Owner Jim Irsay Found Unresponsive in Suspected Overdose in December: TMZ](https://www.yahoo.com/entertainment/colts-owner-jim-irsay-found-113529021.html)
 - Jan 17 - [Born to be king: Elon Musk's sister says her family is 'different' from others due to this 1 specific trait — and it even led Elon to becoming the world's second richest man. Do you have it?](https://finance.yahoo.com/news/born-king-elon-musks-sister-113000764.html)
+- Jan 17 - [Blinken says US in demand as he mourns 'gutwrenching' scenes in Gaza](https://news.yahoo.com/blinken-says-us-demand-mourns-111844610.html)
 - Jan 17 - ['Fastest kid alive': Louisiana 5 year old's after-school routine has made him an internet star](https://news.yahoo.com/fastest-kid-alive-louisiana-5-103225886.html)
-- Jan 17 - [Top NATO military officer urges allies and leaders to plan for the unexpected in Ukraine](https://news.yahoo.com/top-nato-military-officer-urges-093549917.html)
-- Jan 17 - [Lawrence O’Donnell Gives Donald Trump Lawyer Alina Habba A Damning New Title](https://news.yahoo.com/lawrence-o-donnell-gives-donald-085500168.html)
 <!-- feed end -->
 
 ### Onstream
