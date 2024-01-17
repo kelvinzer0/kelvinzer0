@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 17 - [Trump's E. Jean Carroll Tirade Comes Back To Bite Him Hours Later](https://news.yahoo.com/trumps-e-jean-carroll-tirade-000823910.html)
-- Jan 16 - [Trump legal news brief: Trump 'unleashed his followers' on E. Jean Carroll, her lawyer tells jury](https://news.yahoo.com/trump-legal-news-brief-trump-unleashed-his-followers-on-e-jean-carroll-her-lawyer-tells-jury-223636876.html)
+- Jan 16 - [USS Georgia Submarine Commander Arrested in Georgia and Relieved of Duty Due to 'Loss of Confidence'](https://news.yahoo.com/uss-georgia-submarine-commander-arrested-232911396.html)
+- Jan 16 - [Republican Rep. Boebert slammed for controversial MLK Day statements](https://news.yahoo.com/republican-rep-boebert-slammed-controversial-231723435.html)
 - Jan 16 - [An Ohio official was arrested for speaking at her own meeting. Her rights were violated, judge says](https://news.yahoo.com/ohio-official-arrested-speaking-her-223214977.html)
-- Jan 16 - [Judge Aileen Cannon Is Quietly Sabotaging the Trump Classified Documents Case](https://news.yahoo.com/judge-aileen-cannon-quietly-sabotaging-221158055.html)
-- Jan 16 - [Japanese scientists capture plants communicating with each other on video](https://news.yahoo.com/japanese-scientists-capture-plants-communicating-220021424.html)
+- Jan 16 - [Mississippi chicken plant supplying Chick-fil-A, cited for teen's death after he was sucked into machine](https://news.yahoo.com/mississippi-chicken-plant-supplying-chick-221540256.html)
 <!-- feed end -->
 
 ### Onstream
