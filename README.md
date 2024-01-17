@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 17 - [Top NATO military officer urges allies and leaders to plan for the unexpected in Ukraine](https://news.yahoo.com/top-nato-military-officer-urges-093549917.html)
+- Jan 17 - [Ted Cruz Mercilessly Mocked After 'Spineless' Trump Announcement](https://news.yahoo.com/ted-cruz-mercilessly-mocked-spineless-091910336.html)
 - Jan 17 - [Lawrence O’Donnell Gives Donald Trump Lawyer Alina Habba A Damning New Title](https://news.yahoo.com/lawrence-o-donnell-gives-donald-085500168.html)
 - Jan 17 - ['It's the wrong house': Audio of Ohio police raid that left a baby injured raises new questions](https://news.yahoo.com/ohio-mayor-orders-probe-woman-174920981.html)
 - Jan 17 - [Trump Says It’s ‘Ridiculous’ He ‘Had to Leave’ the White House](https://news.yahoo.com/trump-says-ridiculous-had-leave-042149258.html)
-- Jan 17 - [In new filing, Trump lawyers foreshadow potential lines of defense in classified documents case](https://news.yahoo.com/filing-trump-lawyers-foreshadow-potential-040056700.html)
 <!-- feed end -->
 
 ### Onstream
