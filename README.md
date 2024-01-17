@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [Analysis: North Korea's rejection of the South is both a shock, and inevitable](https://news.yahoo.com/analysis-north-koreas-rejection-south-071117354.html)
+- Jan 17 - [Russia's Kinzhals are frustrating Chinese analysts who want to find out how Beijing's hypersonic missiles might stack up against US battlefield defenses](https://news.yahoo.com/russias-kinzhals-frustrating-chinese-analysts-052542199.html)
 - Jan 17 - ['It's the wrong house': Audio of Ohio police raid that left a baby injured raises new questions](https://news.yahoo.com/ohio-mayor-orders-probe-woman-174920981.html)
 - Jan 17 - [In new filing, Trump lawyers foreshadow potential lines of defense in classified documents case](https://news.yahoo.com/filing-trump-lawyers-foreshadow-potential-040056700.html)
 - Jan 17 - [Video captures terrifying moment a perturbed moose strikes back after getting surrounded by entitled tourists: ‘And everyone just keeps recording’](https://www.yahoo.com/lifestyle/video-captures-terrifying-moment-perturbed-033000939.html)
-- Jan 17 - [US fugitive accused of faking his death to avoid rape charges denies he is the suspect at hearing](https://news.yahoo.com/us-fugitive-accused-faking-death-005556848.html)
-- Jan 17 - [Trump's E. Jean Carroll Tirade Comes Back To Bite Him Hours Later](https://news.yahoo.com/trumps-e-jean-carroll-tirade-000823910.html)
 <!-- feed end -->
 
 ### Onstream
