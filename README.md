@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [“You just can’t control yourself": Judge threatens to kick "disruptive" Trump out of court](https://news.yahoo.com/just-t-control-yourself-judge-195752409.html)
+- Jan 17 - [Maine judge delays decision on removing Trump from ballot until Supreme Court rules in Colorado case](https://news.yahoo.com/maine-judge-delays-decision-removing-193513375.html)
+- Jan 17 - [Video: Watch a man grab a coyote by the tail and drop it in a dumpster](https://news.yahoo.com/video-watch-man-grab-coyote-192952904.html)
 - Jan 17 - [Colon cancer is now the top cause of cancer death in young men: 1 dad recalls his early symptoms](https://news.yahoo.com/colon-cancer-now-top-cause-182724009.html)
-- Jan 17 - [What are the mysterious red marks on Trump's hand?](https://news.yahoo.com/mysterious-red-marks-trumps-hand-181951598.html)
-- Jan 17 - [Judge scolds Trump after Carroll attorney calls him out for grumbling so loud the jury could hear](https://news.yahoo.com/judge-scolds-trump-carroll-attorney-180648239.html)
 - Jan 17 - [Grant Cardone Says, 'If You're Going To Buy A Car, Don't' — But This $158,000 Vehicle Is The Only One You Should Ever Own](https://finance.yahoo.com/news/grant-cardone-says-youre-going-180151043.html)
-- Jan 17 - [Alligators get more intimidating after study reveals they have an amazing ability](https://news.yahoo.com/alligators-even-more-intimidating-study-174935375.html)
 <!-- feed end -->
 
 ### Onstream
