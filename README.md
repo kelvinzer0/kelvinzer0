@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [Colon cancer is now the top cause of cancer death in young men: 1 dad recalls his early symptoms](https://news.yahoo.com/colon-cancer-now-top-cause-182724009.html)
+- Jan 17 - [What are the mysterious red marks on Trump's hand?](https://news.yahoo.com/mysterious-red-marks-trumps-hand-181951598.html)
+- Jan 17 - [Judge scolds Trump after Carroll attorney calls him out for grumbling so loud the jury could hear](https://news.yahoo.com/judge-scolds-trump-carroll-attorney-180648239.html)
+- Jan 17 - [Grant Cardone Says, 'If You're Going To Buy A Car, Don't' — But This $158,000 Vehicle Is The Only One You Should Ever Own](https://finance.yahoo.com/news/grant-cardone-says-youre-going-180151043.html)
 - Jan 17 - [Alligators get more intimidating after study reveals they have an amazing ability](https://news.yahoo.com/alligators-even-more-intimidating-study-174935375.html)
-- Jan 17 - [Grief Counselor, Teacher and Coach Among 123 Men Arrested on Charges Related to Human Trafficking in Florida](https://www.yahoo.com/entertainment/grief-counselor-teacher-coach-among-174639772.html)
-- Jan 17 - [Colts owner Jim Irsay reportedly found unresponsive in home last month due to 'suspected overdose'](https://sports.yahoo.com/colts-owner-jim-irsay-reportedly-found-unresponsive-in-home-last-month-due-to-suspected-overdose-173153630.html)
-- Jan 17 - ["Sit down": Judge Kaplan shuts down Trump lawyer Alina Habba for complaining at trial](https://news.yahoo.com/sit-down-judge-kaplan-shuts-170422260.html)
-- Jan 17 - [You'll Never Believe What Started That Viral Brawl At the ATL Airport](https://news.yahoo.com/youll-never-believe-started-viral-165820185.html)
 <!-- feed end -->
 
 ### Onstream
