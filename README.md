@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 17 - [A Bank Robbery 74 Years Ago Baffled Investigators for Years - Until One of the Thieves Turned on the Others](https://www.yahoo.com/entertainment/bank-robbery-74-years-ago-164050990.html)
-- Jan 17 - [Schwarzenegger detained by German customs over luxury watch](https://news.yahoo.com/schwarzenegger-detained-german-customs-over-161135316.html)
-- Jan 17 - [Think twice before snapping a photo on a Las Vegas Strip pedestrian bridge, or risk jail time](https://www.yahoo.com/lifestyle/think-twice-snapping-photo-las-154852110.html)
-- Jan 17 - ["Take a seat": Judge tells Trump adviser Boris Ephsteyn to clam it during Carroll trial](https://news.yahoo.com/seat-judge-tells-trump-adviser-154040252.html)
-- Jan 17 - [Arantxa Sanchez Vicario: Former world number one gets two-year suspended sentence for fraud](https://sports.yahoo.com/arantxa-sanchez-vicario-former-world-142039935.html)
+- Jan 17 - [Alligators get more intimidating after study reveals they have an amazing ability](https://news.yahoo.com/alligators-even-more-intimidating-study-174935375.html)
+- Jan 17 - [Grief Counselor, Teacher and Coach Among 123 Men Arrested on Charges Related to Human Trafficking in Florida](https://www.yahoo.com/entertainment/grief-counselor-teacher-coach-among-174639772.html)
+- Jan 17 - [Colts owner Jim Irsay reportedly found unresponsive in home last month due to 'suspected overdose'](https://sports.yahoo.com/colts-owner-jim-irsay-reportedly-found-unresponsive-in-home-last-month-due-to-suspected-overdose-173153630.html)
+- Jan 17 - ["Sit down": Judge Kaplan shuts down Trump lawyer Alina Habba for complaining at trial](https://news.yahoo.com/sit-down-judge-kaplan-shuts-170422260.html)
+- Jan 17 - [You'll Never Believe What Started That Viral Brawl At the ATL Airport](https://news.yahoo.com/youll-never-believe-started-viral-165820185.html)
 <!-- feed end -->
 
 ### Onstream
