@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [Trump's E. Jean Carroll Tirade Comes Back To Bite Him Hours Later](https://news.yahoo.com/trumps-e-jean-carroll-tirade-000823910.html)
 - Jan 16 - [Trump legal news brief: Trump 'unleashed his followers' on E. Jean Carroll, her lawyer tells jury](https://news.yahoo.com/trump-legal-news-brief-trump-unleashed-his-followers-on-e-jean-carroll-her-lawyer-tells-jury-223636876.html)
+- Jan 16 - [An Ohio official was arrested for speaking at her own meeting. Her rights were violated, judge says](https://news.yahoo.com/ohio-official-arrested-speaking-her-223214977.html)
+- Jan 16 - [Judge Aileen Cannon Is Quietly Sabotaging the Trump Classified Documents Case](https://news.yahoo.com/judge-aileen-cannon-quietly-sabotaging-221158055.html)
 - Jan 16 - [Japanese scientists capture plants communicating with each other on video](https://news.yahoo.com/japanese-scientists-capture-plants-communicating-220021424.html)
-- Jan 16 - ['It's the wrong house': Audio of Ohio police raid that left a baby injured raises new questions](https://news.yahoo.com/ohio-mayor-orders-probe-woman-174920981.html)
-- Jan 16 - [John Cusack Shares Chilling Warning About 'Nazis Running For Office' In America](https://www.yahoo.com/entertainment/john-cusack-shares-chilling-warning-213156222.html)
-- Jan 16 - [Big Changes Are Coming To Ruth's Chris Steak House In 2024](https://www.yahoo.com/lifestyle/big-changes-coming-ruths-chris-210122780.html)
 <!-- feed end -->
 
 ### Onstream
