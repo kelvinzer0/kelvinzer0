@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - ["Take a seat": Judge tells Trump adviser Boris Ephsteyn to clam it during Carroll trial](https://news.yahoo.com/seat-judge-tells-trump-adviser-154040252.html)
+- Jan 17 - [Arantxa Sanchez Vicario: Former world number one gets two-year suspended sentence for fraud](https://sports.yahoo.com/arantxa-sanchez-vicario-former-world-142039935.html)
 - Jan 17 - [Fly-tipping forces landowners to turn farms into 'forts'](https://news.yahoo.com/fly-tipping-forces-landowners-turn-140622348.html)
 - Jan 17 - [WATCH: Former ESPN Sportscaster Ejected From RV on Freeway](https://news.yahoo.com/watch-former-espn-sportscaster-ejected-130232395.html)
 - Jan 17 - [Suicide dive by Ukrainian drone thwarts Russian drone seconds before likely deadly attack – video](https://news.yahoo.com/suicide-dive-ukrainian-drone-thwarts-120200123.html)
-- Jan 17 - [Colts Owner Jim Irsay Found Unresponsive in Suspected Overdose in December: TMZ](https://www.yahoo.com/entertainment/colts-owner-jim-irsay-found-113529021.html)
-- Jan 17 - [Born to be king: Elon Musk's sister says her family is 'different' from others due to this 1 specific trait — and it even led Elon to becoming the world's second richest man. Do you have it?](https://finance.yahoo.com/news/born-king-elon-musks-sister-113000764.html)
 <!-- feed end -->
 
 ### Onstream
