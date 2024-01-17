@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [Man Who Locked Daughter in Basement for 24 Years and Fathered 7 Children with Her Could Be Eligible for Parole](https://www.yahoo.com/entertainment/man-locked-daughter-basement-24-213617906.html)
+- Jan 17 - [We asked a dermatologist about the mystery marks on Trump's hands. Here's what he said.](https://news.yahoo.com/asked-dermatologist-mystery-marks-trumps-210906194.html)
 - Jan 17 - [Jeff Bezos Keeps An Inspirational Quote On His Fridge To Remind Him What It Means To Succeed In Life — Here's The Quote He Sees Daily](https://finance.yahoo.com/news/jeff-bezos-keeps-inspirational-quote-201458426.html)
-- Jan 17 - [“You just can’t control yourself": Judge threatens to kick "disruptive" Trump out of court](https://news.yahoo.com/just-t-control-yourself-judge-195752409.html)
 - Jan 17 - ['My stomach just sank': Nanny describes frantic day Connecticut mother of five disappeared](https://news.yahoo.com/stomach-just-sank-nanny-describes-195334211.html)
 - Jan 17 - [Video: Watch a man grab a coyote by the tail and drop it in a dumpster](https://news.yahoo.com/video-watch-man-grab-coyote-192952904.html)
-- Jan 17 - [Colon cancer is now the top cause of cancer death in young men: 1 dad recalls his early symptoms](https://news.yahoo.com/colon-cancer-now-top-cause-182724009.html)
 <!-- feed end -->
 
 ### Onstream
