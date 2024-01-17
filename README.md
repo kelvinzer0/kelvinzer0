@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [In new filing, Trump lawyers foreshadow potential lines of defense in classified documents case](https://news.yahoo.com/filing-trump-lawyers-foreshadow-potential-040056700.html)
 - Jan 17 - [Trump's E. Jean Carroll Tirade Comes Back To Bite Him Hours Later](https://news.yahoo.com/trumps-e-jean-carroll-tirade-000823910.html)
 - Jan 16 - [USS Georgia Submarine Commander Arrested in Georgia and Relieved of Duty Due to 'Loss of Confidence'](https://news.yahoo.com/uss-georgia-submarine-commander-arrested-232911396.html)
 - Jan 16 - [Republican Rep. Boebert slammed for controversial MLK Day statements](https://news.yahoo.com/republican-rep-boebert-slammed-controversial-231723435.html)
 - Jan 16 - [An Ohio official was arrested for speaking at her own meeting. Her rights were violated, judge says](https://news.yahoo.com/ohio-official-arrested-speaking-her-223214977.html)
-- Jan 16 - [Mississippi chicken plant supplying Chick-fil-A, cited for teen's death after he was sucked into machine](https://news.yahoo.com/mississippi-chicken-plant-supplying-chick-221540256.html)
 <!-- feed end -->
 
 ### Onstream
