@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 17 - [Man Who Locked Daughter in Basement for 24 Years and Fathered 7 Children with Her Could Be Eligible for Parole](https://www.yahoo.com/entertainment/man-locked-daughter-basement-24-213617906.html)
 - Jan 17 - [We asked a dermatologist about the mystery marks on Trump's hands. Here's what he said.](https://news.yahoo.com/asked-dermatologist-mystery-marks-trumps-210906194.html)
-- Jan 17 - [Jeff Bezos Keeps An Inspirational Quote On His Fridge To Remind Him What It Means To Succeed In Life — Here's The Quote He Sees Daily](https://finance.yahoo.com/news/jeff-bezos-keeps-inspirational-quote-201458426.html)
-- Jan 17 - ['My stomach just sank': Nanny describes frantic day Connecticut mother of five disappeared](https://news.yahoo.com/stomach-just-sank-nanny-describes-195334211.html)
-- Jan 17 - [Video: Watch a man grab a coyote by the tail and drop it in a dumpster](https://news.yahoo.com/video-watch-man-grab-coyote-192952904.html)
+- Jan 17 - [Watch: Rare Trail Camera Footage Shows a Cougar Mauling a Whitetail Deer in Michigan](https://www.yahoo.com/lifestyle/watch-rare-trail-camera-footage-210003392.html)
+- Jan 17 - [Couple on 10-Hour International Flight Realizes They’re Sitting in Someone Else’s Urine](https://www.yahoo.com/entertainment/couple-10-hour-international-flight-204619857.html)
+- Jan 17 - [‘Extraordinary moment in court’: Anchor reacts to judge threatening Trump](https://news.yahoo.com/extraordinary-moment-court-anchor-reacts-202630124.html)
 <!-- feed end -->
 
 ### Onstream
