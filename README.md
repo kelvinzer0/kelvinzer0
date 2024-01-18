@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [Ky. Teacher Who Confessed to Sexually Abusing Multiple Minors at Same Time Could Get Life in Prison](https://www.yahoo.com/entertainment/ky-teacher-confessed-sexually-abusing-194014727.html)
+- Jan 18 - [McConnell and Cruz defend Trump to Supreme Court, asking: What does 'insurrection' mean anyway?](https://news.yahoo.com/mcconnell-cruz-defend-trump-supreme-193150153.html)
+- Jan 18 - [Woman Suffered Brain Damage During Dental Surgery After Anesthesiologist with 'Cognitive Issues' Gave Her Fentanyl: Suit](https://www.yahoo.com/entertainment/woman-suffered-brain-damage-during-192418526.html)
 - Jan 18 - [White men no longer want to fight for a nation that scorns them](https://news.yahoo.com/white-men-no-longer-want-183357841.html)
-- Jan 18 - [North Korea threat could change 'drastically' given Russia cooperation-US official](https://news.yahoo.com/north-korea-threat-could-change-172914844.html)
-- Jan 18 - ["Did you not hear me?": Judge calls out Trump lawyer for flunking "Evidence 101" at trial](https://news.yahoo.com/did-not-hear-judge-calls-172857002.html)
-- Jan 18 - [Former President Trump, senators attend Palm Beach funeral for Melania Trump's mother](https://news.yahoo.com/former-president-trump-senators-attend-172514627.html)
-- Jan 18 - [Sam Bankman-Fried's Parents Aghast at Lawsuit Asking for FTX Money Back](https://news.yahoo.com/sam-bankman-frieds-parents-aghast-163055885.html)
+- Jan 18 - [Nevada high court says it won't reconsider ‘Dances With Wolves’ actor Nathan Chasing Horse's case](https://news.yahoo.com/nevada-high-court-says-wont-183125349.html)
 <!-- feed end -->
 
 ### Onstream
