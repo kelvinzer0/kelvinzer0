@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 18 - [Maggie Haberman Shares Details Of Donald Trump’s Recent Phone Call To Her](https://news.yahoo.com/maggie-haberman-shares-details-donald-080431248.html)
 - Jan 18 - [Seven killed in Pakistan military strike as Iran ‘demands explanation’](https://news.yahoo.com/pakistan-carries-strikes-militant-groups-044952285.html)
+- Jan 18 - [Ty Cobb calls out ‘shocking’ behavior from Trump’s attorney in court](https://news.yahoo.com/ty-cobb-calls-shocking-behavior-024311306.html)
 - Jan 18 - [“Survivor” Winner Nick Wilson Withdraws Bill Legalizing Sex Between First Cousins in Kentucky: 'I Made a Mistake'](https://www.yahoo.com/entertainment/survivor-winner-nick-wilson-withdraws-020208391.html)
 - Jan 18 - [Florida woman suffers brain damage after allegedly given overdose of fentanyl during dental visit: report](https://news.yahoo.com/florida-woman-suffers-brain-damage-013521325.html)
-- Jan 18 - [US military launches another barrage of missiles against Houthi sites in Yemen](https://news.yahoo.com/us-military-launches-another-barrage-001621740.html)
 <!-- feed end -->
 
 ### Onstream
