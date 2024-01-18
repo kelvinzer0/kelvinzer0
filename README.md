@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [Former Sen. Claire McCaskill Says This Trump Tactic Will Backfire And He Won't Even Realize](https://news.yahoo.com/former-sen-claire-mccaskill-says-121424898.html)
+- Jan 18 - [Kevin O’Leary dismissed the fraud case against Donald Trump as a charge that 'doesn't even make sense' — quips that ‘you’ve got to sue every real estate developer everywhere.' Here's why](https://finance.yahoo.com/news/kevin-o-leary-dismissed-fraud-123000006.html)
 - Jan 18 - [North Korea: Rare footage shows teens sentenced to hard labour over K-drama](https://news.yahoo.com/north-korea-rare-footage-shows-110653391.html)
 - Jan 18 - [They're getting ready for the downfall of America. Just don't call them preppers.](https://news.yahoo.com/theyre-getting-ready-downfall-america-104501769.html)
-- Jan 18 - [Indian Navy rescues crew after attack on ship off coast of Yemen](https://news.yahoo.com/indian-navy-rescues-crew-attack-095951057.html)
+- Jan 18 - [Indian Navy picks up crew after ship hit off Yemen coast](https://news.yahoo.com/indian-navy-rescues-crew-attack-095951057.html)
 - Jan 18 - [Maggie Haberman Shares Details Of Donald Trump’s Recent Phone Call To Her](https://news.yahoo.com/maggie-haberman-shares-details-donald-080431248.html)
 <!-- feed end -->
 
