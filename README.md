@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 18 - [Pakistan carries out strikes on militant groups inside Iran](https://news.yahoo.com/pakistan-carries-strikes-militant-groups-044952285.html)
-- Jan 18 - [Google CEO tells employees to expect more job cuts this year - The Verge](https://www.yahoo.com/tech/google-ceo-tells-employees-expect-032949118.html)
 - Jan 18 - [“Survivor” Winner Nick Wilson Withdraws Bill Legalizing Sex Between First Cousins in Kentucky: 'I Made a Mistake'](https://www.yahoo.com/entertainment/survivor-winner-nick-wilson-withdraws-020208391.html)
 - Jan 18 - [Florida woman suffers brain damage after allegedly given overdose of fentanyl during dental visit: report](https://news.yahoo.com/florida-woman-suffers-brain-damage-013521325.html)
-- Jan 17 - [TriMet urges commuters to delay travel as icy roads thaw](https://news.yahoo.com/trimet-urges-commuters-delay-travel-235903119.html)
+- Jan 18 - [US military launches another barrage of missiles against Houthi sites in Yemen](https://news.yahoo.com/us-military-launches-another-barrage-001621740.html)
+- Jan 17 - [You’re sick. Is it RSV, a cold, COVID or the flu? Here’s how to tell the difference.](https://www.yahoo.com/lifestyle/youre-sick-is-it-rsv-a-cold-covid-or-the-flu-heres-how-to-tell-the-difference-235239489.html)
 <!-- feed end -->
 
 ### Onstream
