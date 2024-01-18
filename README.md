@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [Kidnapping of California woman that police called a hoax gets new attention with Netflix documentary](https://news.yahoo.com/kidnapping-california-woman-police-called-222800435.html)
 - Jan 18 - [Passenger Who Wouldn't Change Seats for Family Says Mom Stole It, Threw Bag in Aisle When She Went to Bathroom](https://www.yahoo.com/entertainment/passenger-wouldnt-change-seats-family-215114921.html)
 - Jan 18 - [Jeff Bezos Says You Can Never Be Proud Of Being Handsome, Beautiful, Smart Or Tall Because Those Are 'Gifts' — You Didn't Do Anything: 'You Can Only Be Proud Of Your Choices Because Those Are The Things That You Are Acting On'](https://finance.yahoo.com/news/jeff-bezos-says-never-proud-200611915.html)
 - Jan 18 - [I Was Diagnosed With Colon Cancer at 32. Here Are the First Symptoms I Had](https://www.yahoo.com/lifestyle/diagnosed-colon-cancer-32-first-195018267.html)
 - Jan 18 - [Woman Suffered Brain Damage During Dental Surgery After Anesthesiologist with 'Cognitive Issues' Gave Her Fentanyl: Suit](https://www.yahoo.com/entertainment/woman-suffered-brain-damage-during-192418526.html)
-- Jan 18 - [Wow! How tall is Barron Trump? Compare his height with other celebrities](https://news.yahoo.com/wow-tall-barron-trump-compare-190127798.html)
 <!-- feed end -->
 
 ### Onstream
