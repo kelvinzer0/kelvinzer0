@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [US military launches another barrage of missiles against Houthi sites in Yemen](https://news.yahoo.com/us-military-launches-another-barrage-001621740.html)
+- Jan 18 - [I spent the morning with the Apple Vision Pro](https://news.yahoo.com/spent-morning-apple-vision-pro-000806594.html)
 - Jan 17 - [You’re sick. Is it RSV, a cold, COVID or the flu? Here’s how to tell the difference.](https://www.yahoo.com/lifestyle/youre-sick-is-it-rsv-a-cold-covid-or-the-flu-heres-how-to-tell-the-difference-235239489.html)
+- Jan 17 - [Capitol rioter who assaulted at least 6 police officers is sentenced to 5 years in prison](https://news.yahoo.com/capitol-rioter-assaulted-least-6-234229769.html)
 - Jan 17 - [Hot Air Balloon Victim Texted Girlfriend ‘Goodbye’ Moments Before Deadly Crash](https://news.yahoo.com/hot-air-balloon-victim-texted-231716371.html)
 - Jan 17 - [Massachusetts man sentenced to life with possibility of parole in racist road rage killing](https://news.yahoo.com/massachusetts-man-sentenced-life-possibility-231611219.html)
-- Jan 17 - [Man Who Locked Daughter in Basement for 24 Years and Fathered 7 Children with Her Could Be Eligible for Parole](https://www.yahoo.com/entertainment/man-locked-daughter-basement-24-213617906.html)
 <!-- feed end -->
 
 ### Onstream
