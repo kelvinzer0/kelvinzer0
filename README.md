@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [US military launches another barrage of missiles against Houthi sites in Yemen](https://news.yahoo.com/us-military-launches-another-barrage-001621740.html)
+- Jan 17 - [You’re sick. Is it RSV, a cold, COVID or the flu? Here’s how to tell the difference.](https://www.yahoo.com/lifestyle/youre-sick-is-it-rsv-a-cold-covid-or-the-flu-heres-how-to-tell-the-difference-235239489.html)
+- Jan 17 - [Hot Air Balloon Victim Texted Girlfriend ‘Goodbye’ Moments Before Deadly Crash](https://news.yahoo.com/hot-air-balloon-victim-texted-231716371.html)
+- Jan 17 - [Massachusetts man sentenced to life with possibility of parole in racist road rage killing](https://news.yahoo.com/massachusetts-man-sentenced-life-possibility-231611219.html)
 - Jan 17 - [Man Who Locked Daughter in Basement for 24 Years and Fathered 7 Children with Her Could Be Eligible for Parole](https://www.yahoo.com/entertainment/man-locked-daughter-basement-24-213617906.html)
-- Jan 17 - [We asked a dermatologist about the mystery marks on Trump's hands. Here's what he said.](https://news.yahoo.com/asked-dermatologist-mystery-marks-trumps-210906194.html)
-- Jan 17 - [Watch: Rare Trail Camera Footage Shows a Cougar Mauling a Whitetail Deer in Michigan](https://www.yahoo.com/lifestyle/watch-rare-trail-camera-footage-210003392.html)
-- Jan 17 - [Couple on 10-Hour International Flight Realizes They’re Sitting in Someone Else’s Urine](https://www.yahoo.com/entertainment/couple-10-hour-international-flight-204619857.html)
-- Jan 17 - [‘Extraordinary moment in court’: Anchor reacts to judge threatening Trump](https://news.yahoo.com/extraordinary-moment-court-anchor-reacts-202630124.html)
 <!-- feed end -->
 
 ### Onstream
