@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [Lufthansa pulling flight capacity from other countries to meet booming India demand](https://finance.yahoo.com/news/lufthansa-pulling-flight-capacity-other-151449461.html)
+- Jan 18 - [Experts alarmed after Trump demands immunity to do “infinite crimes” in 2 am Truth Social rant](https://news.yahoo.com/experts-alarmed-trump-demands-immunity-145859079.html)
+- Jan 18 - [Dominican authorities arrest US rapper Tekashi 6ix9ine on domestic violence charges](https://news.yahoo.com/dominican-authorities-arrest-us-rapper-142859875.html)
 - Jan 18 - [Legal experts: Trump lawyer’s “embarrassing” performance “making the jury dislike her intensely”](https://news.yahoo.com/legal-experts-trump-lawyer-embarrassing-140914593.html)
-- Jan 18 - ['You are a liar': Elon Musk slams Mark Cuban over DEI, says 'shame on anyone who uses it' — then mockingly suggests who Cuban should pick as the next Dallas Mavericks star](https://finance.yahoo.com/news/liar-elon-musk-slams-mark-130000294.html)
-- Jan 18 - [Kevin O’Leary dismissed the fraud case against Donald Trump as a charge that 'doesn't even make sense' — quips that ‘you’ve got to sue every real estate developer everywhere.' Here's why](https://finance.yahoo.com/news/kevin-o-leary-dismissed-fraud-123000006.html)
-- Jan 18 - [Turkey's planned alcohol deposit 'another nail in the coffin', small producers say](https://news.yahoo.com/turkeys-planned-alcohol-deposit-another-121632362.html)
-- Jan 18 - [Watch: Russia's most advanced tank destroyed by US Bradley fighting vehicle](https://news.yahoo.com/watch-bradley-fighting-vehicles-russian-113943218.html)
+- Jan 18 - [Dave Ramsey: If You’re Asking This Question When Buying a Car, You’ll Likely Stay Poor](https://finance.yahoo.com/news/dave-ramsey-asking-buying-car-140025127.html)
 <!-- feed end -->
 
 ### Onstream
