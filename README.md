@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - ['You are a liar': Elon Musk slams Mark Cuban over DEI, says 'shame on anyone who uses it' — then mockingly suggests who Cuban should pick as the next Dallas Mavericks star](https://finance.yahoo.com/news/liar-elon-musk-slams-mark-130000294.html)
 - Jan 18 - [Kevin O’Leary dismissed the fraud case against Donald Trump as a charge that 'doesn't even make sense' — quips that ‘you’ve got to sue every real estate developer everywhere.' Here's why](https://finance.yahoo.com/news/kevin-o-leary-dismissed-fraud-123000006.html)
+- Jan 18 - [Watch: Russia's most advanced tank destroyed by US Bradley fighting vehicle](https://news.yahoo.com/watch-bradley-fighting-vehicles-russian-113943218.html)
 - Jan 18 - [North Korea: Rare footage shows teens sentenced to hard labour over K-drama](https://news.yahoo.com/north-korea-rare-footage-shows-110653391.html)
 - Jan 18 - [They're getting ready for the downfall of America. Just don't call them preppers.](https://news.yahoo.com/theyre-getting-ready-downfall-america-104501769.html)
-- Jan 18 - [Indian Navy picks up crew after ship hit off Yemen coast](https://news.yahoo.com/indian-navy-rescues-crew-attack-095951057.html)
-- Jan 18 - [Maggie Haberman Shares Details Of Donald Trump’s Recent Phone Call To Her](https://news.yahoo.com/maggie-haberman-shares-details-donald-080431248.html)
 <!-- feed end -->
 
 ### Onstream
