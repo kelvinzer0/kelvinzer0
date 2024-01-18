@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [Trump sex accuser faces cross-examination in a New York courtroom](https://news.yahoo.com/trump-sex-accuser-faces-cross-162309827.html)
+- Jan 18 - [Here's How Wildly Different 60 Years Old Looks Like On 60 Different Celebrities Over The Past 60 Years](https://www.yahoo.com/entertainment/heres-wildly-different-60-years-160848849.html)
 - Jan 18 - [Lufthansa pulling flight capacity from other countries to meet booming India demand](https://finance.yahoo.com/news/lufthansa-pulling-flight-capacity-other-151449461.html)
-- Jan 18 - [Experts alarmed after Trump demands immunity to do “infinite crimes” in 2 am Truth Social rant](https://news.yahoo.com/experts-alarmed-trump-demands-immunity-145859079.html)
+- Jan 18 - [Ukraine-Russia war: Nato sends 90,000 troops to deter Russia in largest exercise since Cold War](https://news.yahoo.com/ukraine-russia-war-nato-sends-151220087.html)
 - Jan 18 - [Dominican authorities arrest US rapper Tekashi 6ix9ine on domestic violence charges](https://news.yahoo.com/dominican-authorities-arrest-us-rapper-142859875.html)
-- Jan 18 - [Legal experts: Trump lawyer’s “embarrassing” performance “making the jury dislike her intensely”](https://news.yahoo.com/legal-experts-trump-lawyer-embarrassing-140914593.html)
-- Jan 18 - [Dave Ramsey: If You’re Asking This Question When Buying a Car, You’ll Likely Stay Poor](https://finance.yahoo.com/news/dave-ramsey-asking-buying-car-140025127.html)
 <!-- feed end -->
 
 ### Onstream
