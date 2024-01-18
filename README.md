@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [Australia rejects China comments on sonar incident](https://news.yahoo.com/australia-rejects-china-comments-sonar-020946258.html)
 - Jan 18 - [“Survivor” Winner Nick Wilson Withdraws Bill Legalizing Sex Between First Cousins in Kentucky: 'I Made a Mistake'](https://www.yahoo.com/entertainment/survivor-winner-nick-wilson-withdraws-020208391.html)
-- Jan 18 - [US military launches another barrage of missiles against Houthi sites in Yemen](https://news.yahoo.com/us-military-launches-another-barrage-001621740.html)
+- Jan 18 - [Florida woman suffers brain damage after allegedly given overdose of fentanyl during dental visit: report](https://news.yahoo.com/florida-woman-suffers-brain-damage-013521325.html)
 - Jan 17 - [You’re sick. Is it RSV, a cold, COVID or the flu? Here’s how to tell the difference.](https://www.yahoo.com/lifestyle/youre-sick-is-it-rsv-a-cold-covid-or-the-flu-heres-how-to-tell-the-difference-235239489.html)
 - Jan 17 - [Mom of twins bans her sister-in-law from the house for refusal to call daughters by their names](https://www.yahoo.com/lifestyle/mom-twins-bans-her-sister-234402220.html)
-- Jan 17 - [Capitol rioter who assaulted at least 6 police officers is sentenced to 5 years in prison](https://news.yahoo.com/capitol-rioter-assaulted-least-6-234229769.html)
 <!-- feed end -->
 
 ### Onstream
