@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [White men no longer want to fight for a nation that scorns them](https://news.yahoo.com/white-men-no-longer-want-183357841.html)
 - Jan 18 - [North Korea threat could change 'drastically' given Russia cooperation-US official](https://news.yahoo.com/north-korea-threat-could-change-172914844.html)
+- Jan 18 - ["Did you not hear me?": Judge calls out Trump lawyer for flunking "Evidence 101" at trial](https://news.yahoo.com/did-not-hear-judge-calls-172857002.html)
 - Jan 18 - [Former President Trump, senators attend Palm Beach funeral for Melania Trump's mother](https://news.yahoo.com/former-president-trump-senators-attend-172514627.html)
 - Jan 18 - [Sam Bankman-Fried's Parents Aghast at Lawsuit Asking for FTX Money Back](https://news.yahoo.com/sam-bankman-frieds-parents-aghast-163055885.html)
-- Jan 18 - [Brad Pitt Just Turned 60, So Here's What 60-Years-Old Looks Like On 60 Different Celebrities](https://www.yahoo.com/entertainment/heres-wildly-different-60-years-160848849.html)
-- Jan 18 - [Lufthansa pulling flight capacity from other countries to meet booming India demand](https://finance.yahoo.com/news/lufthansa-pulling-flight-capacity-other-151449461.html)
 <!-- feed end -->
 
 ### Onstream
