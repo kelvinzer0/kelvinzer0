@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [Trump sex accuser faces cross-examination in a New York courtroom](https://news.yahoo.com/trump-sex-accuser-faces-cross-162309827.html)
-- Jan 18 - [Here's How Wildly Different 60 Years Old Looks Like On 60 Different Celebrities Over The Past 60 Years](https://www.yahoo.com/entertainment/heres-wildly-different-60-years-160848849.html)
+- Jan 18 - [North Korea threat could change 'drastically' given Russia cooperation-US official](https://news.yahoo.com/north-korea-threat-could-change-172914844.html)
+- Jan 18 - [Former President Trump, senators attend Palm Beach funeral for Melania Trump's mother](https://news.yahoo.com/former-president-trump-senators-attend-172514627.html)
+- Jan 18 - [Sam Bankman-Fried's Parents Aghast at Lawsuit Asking for FTX Money Back](https://news.yahoo.com/sam-bankman-frieds-parents-aghast-163055885.html)
+- Jan 18 - [Brad Pitt Just Turned 60, So Here's What 60-Years-Old Looks Like On 60 Different Celebrities](https://www.yahoo.com/entertainment/heres-wildly-different-60-years-160848849.html)
 - Jan 18 - [Lufthansa pulling flight capacity from other countries to meet booming India demand](https://finance.yahoo.com/news/lufthansa-pulling-flight-capacity-other-151449461.html)
-- Jan 18 - [Ukraine-Russia war: Nato sends 90,000 troops to deter Russia in largest exercise since Cold War](https://news.yahoo.com/ukraine-russia-war-nato-sends-151220087.html)
-- Jan 18 - [Dominican authorities arrest US rapper Tekashi 6ix9ine on domestic violence charges](https://news.yahoo.com/dominican-authorities-arrest-us-rapper-142859875.html)
 <!-- feed end -->
 
 ### Onstream
