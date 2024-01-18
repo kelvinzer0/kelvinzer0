@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 18 - [Ky. Teacher Who Confessed to Sexually Abusing Multiple Minors at Same Time Could Get Life in Prison](https://www.yahoo.com/entertainment/ky-teacher-confessed-sexually-abusing-194014727.html)
-- Jan 18 - [McConnell and Cruz defend Trump to Supreme Court, asking: What does 'insurrection' mean anyway?](https://news.yahoo.com/mcconnell-cruz-defend-trump-supreme-193150153.html)
+- Jan 18 - [Judge denies Trump's request to hold Jack Smith in contempt in federal 2020 election case](https://news.yahoo.com/judge-denies-trumps-request-hold-195703634.html)
 - Jan 18 - [Woman Suffered Brain Damage During Dental Surgery After Anesthesiologist with 'Cognitive Issues' Gave Her Fentanyl: Suit](https://www.yahoo.com/entertainment/woman-suffered-brain-damage-during-192418526.html)
-- Jan 18 - [White men no longer want to fight for a nation that scorns them](https://news.yahoo.com/white-men-no-longer-want-183357841.html)
-- Jan 18 - [Nevada high court says it won't reconsider ‘Dances With Wolves’ actor Nathan Chasing Horse's case](https://news.yahoo.com/nevada-high-court-says-wont-183125349.html)
+- Jan 18 - [Wow! How tall is Barron Trump? Compare his height with other celebrities](https://news.yahoo.com/wow-tall-barron-trump-compare-190127798.html)
+- Jan 18 - [Nevada Supreme Court panel won't reconsider ‘Dances With Wolves’ actor Nathan Chasing Horse case](https://news.yahoo.com/nevada-high-court-says-wont-183125349.html)
+- Jan 18 - [Warren Buffett's First Wife Said She Believed He Viewed Accumulating Wealth As A 'Scorecard' Of Success, And They Disagreed Because He Wasn't Giving Away Enough Money — 'It's All Mental With Him'](https://finance.yahoo.com/news/warren-buffetts-first-wife-said-174640045.html)
 <!-- feed end -->
 
 ### Onstream
