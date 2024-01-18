@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 18 - [Former Sen. Claire McCaskill Says This Trump Tactic Will Backfire And He Won't Even Realize](https://news.yahoo.com/former-sen-claire-mccaskill-says-121424898.html)
+- Jan 18 - [North Korea: Rare footage shows teens sentenced to hard labour over K-drama](https://news.yahoo.com/north-korea-rare-footage-shows-110653391.html)
+- Jan 18 - [They're getting ready for the downfall of America. Just don't call them preppers.](https://news.yahoo.com/theyre-getting-ready-downfall-america-104501769.html)
+- Jan 18 - [Indian Navy rescues crew after attack on ship off coast of Yemen](https://news.yahoo.com/indian-navy-rescues-crew-attack-095951057.html)
 - Jan 18 - [Maggie Haberman Shares Details Of Donald Trump’s Recent Phone Call To Her](https://news.yahoo.com/maggie-haberman-shares-details-donald-080431248.html)
-- Jan 18 - [Seven killed in Pakistan military strike as Iran ‘demands explanation’](https://news.yahoo.com/pakistan-carries-strikes-militant-groups-044952285.html)
-- Jan 18 - [Ty Cobb calls out ‘shocking’ behavior from Trump’s attorney in court](https://news.yahoo.com/ty-cobb-calls-shocking-behavior-024311306.html)
-- Jan 18 - [“Survivor” Winner Nick Wilson Withdraws Bill Legalizing Sex Between First Cousins in Kentucky: 'I Made a Mistake'](https://www.yahoo.com/entertainment/survivor-winner-nick-wilson-withdraws-020208391.html)
-- Jan 18 - [Florida woman suffers brain damage after allegedly given overdose of fentanyl during dental visit: report](https://news.yahoo.com/florida-woman-suffers-brain-damage-013521325.html)
 <!-- feed end -->
 
 ### Onstream
