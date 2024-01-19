@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [Putin Orders Hunt for Property of Russian Empire, Soviet Union](https://news.yahoo.com/putin-orders-hunt-property-russian-091640990.html)
+- Jan 19 - [A guy who said he boards the plane whenever he wants, regardless of his boarding group, has kicked off a hot debate online](https://news.yahoo.com/guy-said-boards-plane-whenever-083435575.html)
 - Jan 19 - [Small plane that crashed off California coast was among a growing number of home-built aircraft](https://news.yahoo.com/small-plane-crashed-off-california-050114787.html)
 - Jan 19 - [Donald Trump Claims He Will “Never Allow” Creation of CBDC in the US if Reelected](https://finance.yahoo.com/news/donald-trump-claims-never-allow-044123759.html)
 - Jan 19 - ['Dude Is Terrified': Trump Mocked For Bizarre 'Closing Message' To N.H. Voters](https://news.yahoo.com/dude-terrified-trump-mocked-bizarre-043640139.html)
-- Jan 19 - [Man cleared in a 1996 Brooklyn killing said for decades he knew who did it. Prosecutors now agree](https://news.yahoo.com/man-cleared-1996-brooklyn-killing-023654076.html)
-- Jan 19 - [I was forced into an arranged marriage — I cried my eyes out at my wedding](https://news.yahoo.com/forced-arranged-marriage-cried-eyes-020234162.html)
 <!-- feed end -->
 
 ### Onstream
