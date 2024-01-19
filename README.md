@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [Paedophile butcher may have sentence reduced as it ‘put too much weight’ on trans identity](https://www.yahoo.com/lifestyle/paedophile-butcher-may-sentence-reduced-184030601.html)
-- Jan 19 - [Sports Illustrated’s Entire Staff Told Their Jobs Have Been Eliminated After Authenic Brands Revokes License To Publish; Union Vows To “Fight For Every One Of Our Colleagues”](https://www.yahoo.com/entertainment/sports-illustrated-entire-staff-told-181704337.html)
-- Jan 19 - [Scott Peterson’s Sister-in-Law Has Maintained His Innocence: Here’s Why She Thinks He Didn’t Kill Wife Laci](https://www.yahoo.com/entertainment/scott-peterson-sister-law-maintained-180311000.html)
-- Jan 19 - [UC Irvine Students Hospitalized After Hackers Sent Disgusting Images to Their Discord Server](https://news.yahoo.com/uc-irvine-students-hospitalized-hackers-221000307.html)
-- Jan 19 - [Human head and hands found in Colorado freezer during cleanup of recently sold house](https://news.yahoo.com/human-head-hands-found-colorado-164519574.html)
+- Jan 19 - [Jake Johnson Says His Mother's 'Gut Feeling' Saved Him from 1988 School Shooting](https://www.yahoo.com/entertainment/jake-johnson-says-mothers-gut-194431071.html)
+- Jan 19 - [Grand jury indicts Alec Baldwin in fatal shooting of cinematographer on movie set in New Mexico](https://news.yahoo.com/grand-jury-indicts-alec-baldwin-192701250.html)
+- Jan 19 - [Entire Town’s Newspapers Stolen On Day It Runs Story About Rape At Police Chief’s Home](https://news.yahoo.com/entire-town-newspapers-stolen-day-191733368.html)
+- Jan 19 - [Deposition video shows Trump claiming he prevented "nuclear holocaust"](https://news.yahoo.com/deposition-video-shows-trump-claiming-191100406.html)
+- Jan 19 - [Fact Check: Here's What To Know About a Supposed Trump Post Claiming He Sparred with Cassius Clay (aka Muhammad Ali)](https://news.yahoo.com/fact-check-heres-know-supposed-185800172.html)
 <!-- feed end -->
 
 ### Onstream
