@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [MSNBC's Jen Psaki Says Donald Trump’s ‘Creepy’, 'Gross' Attitude To Women Points To 1 Thing](https://news.yahoo.com/msnbcs-jen-psaki-says-donald-113848750.html)
+- Jan 19 - [Ex-Red Wings Zamboni driver Al Sobotka begged Chris Ilitch for 2nd chance after firing](https://sports.yahoo.com/ex-red-wings-zamboni-driver-112501555.html)
+- Jan 19 - [A Ukrainian drone attack on an oil depot inside Russia causes a massive blaze, officials say](https://news.yahoo.com/ukrainian-drone-attack-oil-depot-094311922.html)
 - Jan 19 - [Putin Orders Hunt for Property of Russian Empire, Soviet Union](https://news.yahoo.com/putin-orders-hunt-property-russian-091640990.html)
 - Jan 19 - [A guy who said he boards the plane whenever he wants, regardless of his boarding group, has kicked off a hot debate online](https://news.yahoo.com/guy-said-boards-plane-whenever-083435575.html)
-- Jan 19 - [Small plane that crashed off California coast was among a growing number of home-built aircraft](https://news.yahoo.com/small-plane-crashed-off-california-050114787.html)
-- Jan 19 - [Donald Trump Claims He Will “Never Allow” Creation of CBDC in the US if Reelected](https://finance.yahoo.com/news/donald-trump-claims-never-allow-044123759.html)
-- Jan 19 - ['Dude Is Terrified': Trump Mocked For Bizarre 'Closing Message' To N.H. Voters](https://news.yahoo.com/dude-terrified-trump-mocked-bizarre-043640139.html)
 <!-- feed end -->
 
 ### Onstream
