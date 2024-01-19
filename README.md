@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [Paedophile butcher may have sentence reduced as it ‘put too much weight’ on trans identity](https://www.yahoo.com/lifestyle/paedophile-butcher-may-sentence-reduced-184030601.html)
+- Jan 19 - [Sports Illustrated’s Entire Staff Told Their Jobs Have Been Eliminated After Authenic Brands Revokes License To Publish; Union Vows To “Fight For Every One Of Our Colleagues”](https://www.yahoo.com/entertainment/sports-illustrated-entire-staff-told-181704337.html)
 - Jan 19 - [Scott Peterson’s Sister-in-Law Has Maintained His Innocence: Here’s Why She Thinks He Didn’t Kill Wife Laci](https://www.yahoo.com/entertainment/scott-peterson-sister-law-maintained-180311000.html)
+- Jan 19 - [UC Irvine Students Hospitalized After Hackers Sent Disgusting Images to Their Discord Server](https://news.yahoo.com/uc-irvine-students-hospitalized-hackers-221000307.html)
 - Jan 19 - [Human head and hands found in Colorado freezer during cleanup of recently sold house](https://news.yahoo.com/human-head-hands-found-colorado-164519574.html)
-- Jan 19 - [Prince Harry drops libel case against Daily Mail after damaging pretrial ruling](https://news.yahoo.com/prince-harry-drops-libel-case-153901837.html)
-- Jan 19 - [Good girl! Officer enlists a Michigan man's dog to help rescue him from an icy lake](https://news.yahoo.com/michigan-man-fell-icy-lake-153400433.html)
-- Jan 19 - [A man who lives on a tranquil Scottish island with 60 people and no cars says there are 3 mistakes tourists should avoid when they visit](https://news.yahoo.com/man-lives-tranquil-scottish-island-151845132.html)
 <!-- feed end -->
 
 ### Onstream
