@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 19 - [Trump For The First Time Concedes That His Actions May Have Been Illegal](https://news.yahoo.com/trump-first-time-concedes-actions-004144923.html)
+- Jan 19 - ['Hot Mic' Supposedly Catches Biden Threatening To 'Wage War on Texas' with F-15 Fighter Jets](https://news.yahoo.com/hot-mic-supposedly-catches-biden-003800082.html)
+- Jan 19 - [Barkley laughs at Haley’s remarks on racism: ‘That was just stupid’](https://news.yahoo.com/barkley-laughs-haley-remarks-racism-002507243.html)
 - Jan 18 - [Kidnapping of California woman that police called a hoax gets new attention with Netflix documentary](https://news.yahoo.com/kidnapping-california-woman-police-called-222800435.html)
 - Jan 18 - [This Video of a Subaru WRX Sliding Into a Plow Is a Terrifying Reminder to Be Careful in the Snow](https://autos.yahoo.com/video-subaru-wrx-hitting-plow-222200613.html)
-- Jan 18 - [Passenger Who Wouldn't Change Seats for Family Says Mom Stole It, Threw Bag in Aisle When She Went to Bathroom](https://www.yahoo.com/entertainment/passenger-wouldnt-change-seats-family-215114921.html)
-- Jan 18 - [Jeff Bezos Says You Can Never Be Proud Of Being Handsome, Beautiful, Smart Or Tall Because Those Are 'Gifts' — You Didn't Do Anything: 'You Can Only Be Proud Of Your Choices Because Those Are The Things That You Are Acting On'](https://finance.yahoo.com/news/jeff-bezos-says-never-proud-200611915.html)
 <!-- feed end -->
 
 ### Onstream
