@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [A warning from Trump to the Supreme Court if he's not on Colorado ballot: 'chaos, bedlam'](https://news.yahoo.com/warning-trump-supreme-court-hes-145310596.html)
 - Jan 19 - [‘We can't help you if you don't want help': This Houston woman lives in an RV with her husband and owes $56K on a Ford F-250 — but she gets defensive when calling into The Ramsey Show](https://finance.yahoo.com/news/cant-help-dont-want-help-123000212.html)
 - Jan 19 - [Watch Marjorie Taylor Greene Shamelessly Bully Witness In Mayorkas Hearing](https://www.yahoo.com/entertainment/watch-marjorie-taylor-greene-shamelessly-121955257.html)
 - Jan 19 - [Ex-Red Wings Zamboni driver Al Sobotka begged Chris Ilitch for 2nd chance after firing](https://sports.yahoo.com/ex-red-wings-zamboni-driver-112501555.html)
-- Jan 19 - [Companies want employees back in the office. Over half of hybrid workers are using ‘coffee badging’ to get around the mandates. What is it? And should you try it?](https://finance.yahoo.com/news/companies-want-employees-back-office-110000469.html)
-- Jan 19 - [Record-breaking snowstorm in New Jersey history dumped 3 times the snow that was predicted](https://news.yahoo.com/record-breaking-snowstorm-jersey-history-101038640.html)
+- Jan 19 - [Fire truck boom highlights divide in US manufacturing](https://finance.yahoo.com/news/fire-truck-boom-highlights-divide-110515913.html)
 <!-- feed end -->
 
 ### Onstream
