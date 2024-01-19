@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 19 - [Small plane that crashed off California coast was among a growing number of home-built aircraft](https://news.yahoo.com/small-plane-crashed-off-california-050114787.html)
+- Jan 19 - [Donald Trump Claims He Will “Never Allow” Creation of CBDC in the US if Reelected](https://finance.yahoo.com/news/donald-trump-claims-never-allow-044123759.html)
 - Jan 19 - ['Dude Is Terrified': Trump Mocked For Bizarre 'Closing Message' To N.H. Voters](https://news.yahoo.com/dude-terrified-trump-mocked-bizarre-043640139.html)
 - Jan 19 - [Man cleared in a 1996 Brooklyn killing said for decades he knew who did it. Prosecutors now agree](https://news.yahoo.com/man-cleared-1996-brooklyn-killing-023654076.html)
 - Jan 19 - [Trump defends himself to the Supreme Court, saying he called ‘for peace, patriotism, respect for law and order’ on Jan. 6 and is not an insurrectionist](https://news.yahoo.com/trump-defends-himself-supreme-court-015808458.html)
-- Jan 19 - [Barron Trump Makes Rare Appearance With Donald Trump For Funeral Of Melania Trump's Mother](https://www.yahoo.com/entertainment/barron-trump-makes-rare-appearance-015805427.html)
 <!-- feed end -->
 
 ### Onstream
