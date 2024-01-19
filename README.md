@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [MSNBC's Jen Psaki Says Donald Trump’s ‘Creepy’, 'Gross' Attitude To Women Points To 1 Thing](https://news.yahoo.com/msnbcs-jen-psaki-says-donald-113848750.html)
+- Jan 19 - [‘We can't help you if you don't want help': This Houston woman lives in an RV with her husband and owes $56K on a Ford F-250 — but she gets defensive when calling into The Ramsey Show](https://finance.yahoo.com/news/cant-help-dont-want-help-123000212.html)
+- Jan 19 - [Watch Marjorie Taylor Greene Shamelessly Bully Witness In Mayorkas Hearing](https://www.yahoo.com/entertainment/watch-marjorie-taylor-greene-shamelessly-121955257.html)
 - Jan 19 - [Ex-Red Wings Zamboni driver Al Sobotka begged Chris Ilitch for 2nd chance after firing](https://sports.yahoo.com/ex-red-wings-zamboni-driver-112501555.html)
 - Jan 19 - [A Ukrainian drone attack on an oil depot inside Russia causes a massive blaze, officials say](https://news.yahoo.com/ukrainian-drone-attack-oil-depot-094311922.html)
 - Jan 19 - [Putin Orders Hunt for Property of Russian Empire, Soviet Union](https://news.yahoo.com/putin-orders-hunt-property-russian-091640990.html)
-- Jan 19 - [A guy who said he boards the plane whenever he wants, regardless of his boarding group, has kicked off a hot debate online](https://news.yahoo.com/guy-said-boards-plane-whenever-083435575.html)
 <!-- feed end -->
 
 ### Onstream
