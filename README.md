@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [Four Las Vegas high school students indicted on murder charges in deadly beating of schoolmate](https://news.yahoo.com/four-las-vegas-high-school-211832166.html)
+- Jan 19 - [A Chilling New Twist in the Lindbergh Baby Mystery Could Actually Flip the Verdict](https://www.yahoo.com/lifestyle/chilling-twist-lindbergh-baby-mystery-205900594.html)
 - Jan 19 - [Jake Johnson Says His Mother's 'Gut Feeling' Saved Him from 1988 School Shooting](https://www.yahoo.com/entertainment/jake-johnson-says-mothers-gut-194431071.html)
 - Jan 19 - [Grand jury indicts Alec Baldwin in fatal shooting of cinematographer on movie set in New Mexico](https://news.yahoo.com/grand-jury-indicts-alec-baldwin-192701250.html)
 - Jan 19 - [Entire Town’s Newspapers Stolen On Day It Runs Story About Rape At Police Chief’s Home](https://news.yahoo.com/entire-town-newspapers-stolen-day-191733368.html)
-- Jan 19 - [Deposition video shows Trump claiming he prevented "nuclear holocaust"](https://news.yahoo.com/deposition-video-shows-trump-claiming-191100406.html)
-- Jan 19 - [Fact Check: Here's What To Know About a Supposed Trump Post Claiming He Sparred with Cassius Clay (aka Muhammad Ali)](https://news.yahoo.com/fact-check-heres-know-supposed-185800172.html)
 <!-- feed end -->
 
 ### Onstream
