@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 19 - [Scott Peterson’s Sister-in-Law Has Maintained His Innocence: Here’s Why She Thinks He Didn’t Kill Wife Laci](https://www.yahoo.com/entertainment/scott-peterson-sister-law-maintained-180311000.html)
+- Jan 19 - [Human head and hands found in Colorado freezer during cleanup of recently sold house](https://news.yahoo.com/human-head-hands-found-colorado-164519574.html)
+- Jan 19 - [Prince Harry drops libel case against Daily Mail after damaging pretrial ruling](https://news.yahoo.com/prince-harry-drops-libel-case-153901837.html)
 - Jan 19 - [Good girl! Officer enlists a Michigan man's dog to help rescue him from an icy lake](https://news.yahoo.com/michigan-man-fell-icy-lake-153400433.html)
 - Jan 19 - [A man who lives on a tranquil Scottish island with 60 people and no cars says there are 3 mistakes tourists should avoid when they visit](https://news.yahoo.com/man-lives-tranquil-scottish-island-151845132.html)
-- Jan 19 - [Hunter Biden's friend says Republicans gave 'misleading' account of impeachment testimony](https://news.yahoo.com/hunter-bidens-friend-says-republicans-151629365.html)
-- Jan 19 - [A Treasure Hunter Searched for Riches in Utah’s Soil—and Caused an Archaeological Tragedy](https://www.yahoo.com/tech/treasure-hunter-searched-riches-utah-151600783.html)
-- Jan 19 - [‘We can't help you if you don't want help': This Houston woman lives in an RV with her husband and owes $56K on a Ford F-250 — but she gets defensive when calling into The Ramsey Show](https://finance.yahoo.com/news/cant-help-dont-want-help-123000212.html)
 <!-- feed end -->
 
 ### Onstream
