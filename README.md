@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 19 - [A warning from Trump to the Supreme Court if he's not on Colorado ballot: 'chaos, bedlam'](https://news.yahoo.com/warning-trump-supreme-court-hes-145310596.html)
+- Jan 19 - [Good girl! Officer enlists a Michigan man's dog to help rescue him from an icy lake](https://news.yahoo.com/michigan-man-fell-icy-lake-153400433.html)
+- Jan 19 - [A man who lives on a tranquil Scottish island with 60 people and no cars says there are 3 mistakes tourists should avoid when they visit](https://news.yahoo.com/man-lives-tranquil-scottish-island-151845132.html)
+- Jan 19 - [Hunter Biden's friend says Republicans gave 'misleading' account of impeachment testimony](https://news.yahoo.com/hunter-bidens-friend-says-republicans-151629365.html)
 - Jan 19 - [‘We can't help you if you don't want help': This Houston woman lives in an RV with her husband and owes $56K on a Ford F-250 — but she gets defensive when calling into The Ramsey Show](https://finance.yahoo.com/news/cant-help-dont-want-help-123000212.html)
 - Jan 19 - [Watch Marjorie Taylor Greene Shamelessly Bully Witness In Mayorkas Hearing](https://www.yahoo.com/entertainment/watch-marjorie-taylor-greene-shamelessly-121955257.html)
-- Jan 19 - [Ex-Red Wings Zamboni driver Al Sobotka begged Chris Ilitch for 2nd chance after firing](https://sports.yahoo.com/ex-red-wings-zamboni-driver-112501555.html)
-- Jan 19 - [Fire truck boom highlights divide in US manufacturing](https://finance.yahoo.com/news/fire-truck-boom-highlights-divide-110515913.html)
 <!-- feed end -->
 
 ### Onstream
