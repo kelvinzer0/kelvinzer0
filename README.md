@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Fact Check: Here's What We Know About Posts Claiming Trump Told an Iowa Crowd in 2024 that He'll Be President for the Next '4 Years and Beyond'](https://news.yahoo.com/fact-check-heres-know-posts-190000571.html)
 - Jan 20 - [Body Language Experts Noticed the ‘Unusual’ Gesture Barron Trump Extended to Dad Donald](https://www.yahoo.com/lifestyle/body-language-experts-noticed-unusual-180500956.html)
-- Jan 20 - [6-legged spaniel undergoes surgery to remove extra limbs and adjusts to life on 4 paws](https://news.yahoo.com/six-legged-spaniel-undergoes-surgery-170550224.html)
 - Jan 20 - [23 Really Awful Scandals Hollywood Just Casually Forgot About, But The Rest Of Us Did Not](https://www.yahoo.com/lifestyle/23-really-awful-scandals-hollywood-161602491.html)
 - Jan 20 - [Murder charge is dropped against a 15-year-old for a high school football game shooting](https://news.yahoo.com/murder-charge-dropped-against-15-140851204.html)
 - Jan 20 - [A 13-year-old used a ‘Help Me!’ sign to escape after being abducted. A Texas man has now pleaded guilty to kidnapping](https://news.yahoo.com/13-old-used-help-sign-122556839.html)
