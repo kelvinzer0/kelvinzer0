@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Massive Attack On Al Assad Air Base In Iraq, Airstrikes Hit Houthi Missiles (Updated)](https://news.yahoo.com/massive-attack-al-assad-air-214819320.html)
+- Jan 20 - [NYC Pediatrician Accused of Fleeing After Running Dad And Daughter Over](https://news.yahoo.com/nyc-pediatrician-accused-fleeing-running-214810350.html)
+- Jan 20 - [Saudi says escalating tensions amid Houthi attacks and US strikes are dangerous](https://news.yahoo.com/saudi-says-escalating-tensions-amid-214123687.html)
 - Jan 20 - [Israeli soldiers uncover Gaza tunnel that once held hostages -army](https://news.yahoo.com/israeli-soldiers-uncover-gaza-tunnel-203741401.html)
 - Jan 20 - [‘It’s been so hard.’ Family, witness mourn Texas man beaten to death while delivering wood](https://news.yahoo.com/hard-family-witness-mourn-texas-200621276.html)
-- Jan 20 - [Stefanik pushes back on reports Trump mixed up Haley, Pelosi](https://news.yahoo.com/stefanik-pushes-back-reports-trump-193114882.html)
-- Jan 20 - [Fact Check: Here's What We Know About Posts Claiming Trump Told an Iowa Crowd in 2024 that He'll Be President for the Next '4 Years and Beyond'](https://news.yahoo.com/fact-check-heres-know-posts-190000571.html)
-- Jan 20 - [Father of American teen killed in West Bank by Israeli fire rails against US support for Israel](https://news.yahoo.com/father-american-teen-killed-west-181550155.html)
 <!-- feed end -->
 
 ### Onstream
