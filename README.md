@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 20 - [Riot Roh-Roh: Trump Drags Nikki Haley In Massive Jan. 6 Blunder](https://news.yahoo.com/riot-roh-roh-trump-drags-050801244.html)
-- Jan 20 - [Video Of Anti-Ship Missile Striking Ship During Red Sea Attack Surfaces](https://news.yahoo.com/video-anti-ship-missile-striking-000236897.html)
-- Jan 19 - [Donald Trump goes from calm to indignant in newly released deposition video of civil fraud lawsuit](https://news.yahoo.com/indignant-donald-trump-pouts-rips-230112610.html)
-- Jan 19 - [Fact Check: This Pic of Young Barron Trump Had People Incredulous. Here's Why](https://news.yahoo.com/fact-check-pic-young-barron-215300860.html)
-- Jan 19 - [Four Las Vegas high school students indicted on murder charges in deadly beating of schoolmate](https://news.yahoo.com/four-las-vegas-high-school-211832166.html)
+- Jan 20 - [Russia's elite paratroopers and marines are refusing orders to launch 'human wave attacks,' Ukraine official says](https://news.yahoo.com/russias-elite-paratroopers-marines-refusing-111750432.html)
+- Jan 20 - [The Supreme Court looks set to make Steve Bannon's dream come true](https://news.yahoo.com/supreme-court-looks-set-steve-104603308.html)
+- Jan 20 - [Newlywed says in viral TikTok she was hounded by Sandals resort staff trying to up-sell her during her honeymoon](https://news.yahoo.com/newlywed-says-viral-tiktok-she-102202864.html)
+- Jan 20 - [Beachgoer sparks outrage online after capturing video of floating atrocity: ‘This needs to be illegal’](https://www.yahoo.com/lifestyle/beachgoer-sparks-outrage-online-capturing-090000575.html)
+- Jan 20 - [An Israeli airstrike on the Syrian capital killed at least 4 Iranian advisers, officials say](https://news.yahoo.com/syrian-media-israeli-airstrike-damascus-084114132.html)
 <!-- feed end -->
 
 ### Onstream
