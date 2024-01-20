@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Murder charge is dropped against a 15-year-old for a high school football game shooting](https://news.yahoo.com/murder-charge-dropped-against-15-140851204.html)
 - Jan 20 - [I Know It's Wrong To Laugh, But These Extremely Dumb Things People Posted On The Internet Last Week Are Absolutely Killing Me](https://www.yahoo.com/lifestyle/know-wrong-laugh-extremely-dumb-133129974.html)
 - Jan 20 - [A 13-year-old used a ‘Help Me!’ sign to escape after being abducted. A Texas man has now pleaded guilty to kidnapping](https://news.yahoo.com/13-old-used-help-sign-122556839.html)
 - Jan 20 - [Homebuilt plane sold last year for $100,000 crashes into ocean off California coast, likely killing 4 people](https://news.yahoo.com/homebuilt-plane-sold-last-100-115143617.html)
 - Jan 20 - [Russia's elite paratroopers and marines are refusing orders to launch 'human wave attacks,' Ukraine official says](https://news.yahoo.com/russias-elite-paratroopers-marines-refusing-111750155.html)
-- Jan 20 - [The Supreme Court looks set to make Steve Bannon's dream come true](https://news.yahoo.com/supreme-court-looks-set-steve-104603308.html)
 <!-- feed end -->
 
 ### Onstream
