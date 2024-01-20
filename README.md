@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Riot Roh-Roh: Trump Drags Nikki Haley In Massive Jan. 6 Blunder](https://news.yahoo.com/riot-roh-roh-trump-drags-050801244.html)
+- Jan 20 - [Video Of Anti-Ship Missile Striking Ship During Red Sea Attack Surfaces](https://news.yahoo.com/video-anti-ship-missile-striking-000236897.html)
 - Jan 19 - [Donald Trump goes from calm to indignant in newly released deposition video of civil fraud lawsuit](https://news.yahoo.com/indignant-donald-trump-pouts-rips-230112610.html)
 - Jan 19 - [Fact Check: This Pic of Young Barron Trump Had People Incredulous. Here's Why](https://news.yahoo.com/fact-check-pic-young-barron-215300860.html)
 - Jan 19 - [Four Las Vegas high school students indicted on murder charges in deadly beating of schoolmate](https://news.yahoo.com/four-las-vegas-high-school-211832166.html)
-- Jan 19 - [A Chilling New Twist in the Lindbergh Baby Mystery Could Actually Flip the Verdict](https://www.yahoo.com/lifestyle/chilling-twist-lindbergh-baby-mystery-205900594.html)
-- Jan 19 - [Grand jury indicts Alec Baldwin in fatal shooting of cinematographer on movie set in New Mexico](https://news.yahoo.com/grand-jury-indicts-alec-baldwin-192701250.html)
 <!-- feed end -->
 
 ### Onstream
