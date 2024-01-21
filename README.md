@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 21 - [‘Saturday Night Live’ Cold Open Features Donald Trump In His Courthouse Campaign: “I’m Either Going To Jail, Be President Or Frankly, The Purge”](https://www.yahoo.com/entertainment/saturday-night-live-cold-open-044957549.html)
+- Jan 21 - [Trump pushes back on claims of mental missteps](https://news.yahoo.com/trump-pushes-back-claims-mental-035719496.html)
 - Jan 21 - [California court plunges into chaos when stepdad lunges at stepdaughter's convicted killer](https://news.yahoo.com/california-court-plunges-chaos-stepdad-015208725.html)
 - Jan 21 - [Couple Living in Storage Unit Kicked Out After Viral Video](https://www.yahoo.com/entertainment/couple-went-viral-living-storage-002025636.html)
 - Jan 20 - [Google engineer found 'spattered in blood' following alleged murder of wife in upscale California home: police](https://news.yahoo.com/google-engineer-found-spattered-blood-235016614.html)
-- Jan 20 - [Saudi says escalating tensions amid Houthi attacks and US strikes are dangerous](https://news.yahoo.com/saudi-says-escalating-tensions-amid-214123687.html)
 <!-- feed end -->
 
 ### Onstream
