@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Ron DeSantis ends his struggling presidential bid before New Hampshire and endorses Donald Trump](https://news.yahoo.com/ron-desantis-ends-presidential-bid-201129134.html)
-- Jan 21 - [Sarah, the Duchess of York, diagnosed with malignant melanoma found during breast cancer treatment](https://news.yahoo.com/sarah-duchess-york-diagnosed-malignant-194540697.html)
+- Jan 21 - [Iranian soldier kills 5 comrades in southeastern city where IS attack killed dozens, state TV says](https://news.yahoo.com/iranian-soldier-kills-5-comrades-204933644.html)
+- Jan 21 - [Kansas City man was in bed, unaware of 3 friends’ deaths outside home, attorney says](https://news.yahoo.com/attorney-says-man-didn-t-203210076.html)
+- Jan 21 - [U.S. raids Chinese auto parts maker in Ohio](https://news.yahoo.com/u-raids-chinese-auto-parts-201338301.html)
 - Jan 21 - [Here are the craziest and most picturesque photos from the brutal cold that swept the US last week](https://news.yahoo.com/craziest-most-picturesque-photos-brutal-194014297.html)
 - Jan 21 - [Germans Cheer With Glee As Supercars Are Impounded](https://news.yahoo.com/germans-cheer-glee-supercars-impounded-193000460.html)
-- Jan 21 - [Cops hear screams and burst into home during deadly stabbing spree, Texas police say](https://news.yahoo.com/cops-hear-screams-burst-home-185554216.html)
 <!-- feed end -->
 
 ### Onstream
