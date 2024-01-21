@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 21 - [Your net worth will 'go crazy' once you pass this money milestone — even Charlie Munger said you can 'ease off the gas' once you get there. Here's the magic number and how to hit it](https://finance.yahoo.com/news/net-worth-crazy-once-pass-110000698.html)
 - Jan 21 - [Disgraced police officer quit her job before she could be sacked after violent rampage](https://news.yahoo.com/disgraced-police-officer-quit-her-085416336.html)
 - Jan 21 - [China’s population time bomb is about to explode](https://news.yahoo.com/china-population-time-bomb-explode-080000262.html)
-- Jan 21 - [‘Saturday Night Live’ Cold Open Features Donald Trump In His Courthouse Campaign: “I’m Either Going To Jail, Be President Or Frankly, The Purge”](https://www.yahoo.com/entertainment/saturday-night-live-cold-open-044957549.html)
-- Jan 21 - [Trump pushes back on claims of mental missteps](https://news.yahoo.com/trump-pushes-back-claims-mental-035719496.html)
-- Jan 21 - [California court plunges into chaos when stepdad lunges at stepdaughter's convicted killer](https://news.yahoo.com/california-court-plunges-chaos-stepdad-015208725.html)
+- Jan 21 - [I Rented a Tesla for a 1,600-Mile Road Trip. I’ll Think Twice Next Time.](https://www.barrons.com/articles/hertz-tesla-model-3-rental-charging-43edad54?siteid=yhoof2&yptr=yahoo)
+- Jan 21 - [Reformed mobster went after 'one last score' when he stole Judy Garland's ruby slippers from 'Oz'](https://news.yahoo.com/reformed-mobster-went-one-last-050212091.html)
 <!-- feed end -->
 
 ### Onstream
