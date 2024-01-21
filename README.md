@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 21 - [Canada weighing extra border measures for asylum seekers from Mexico - minister](https://news.yahoo.com/canada-weighing-extra-border-measures-175842418.html)
-- Jan 21 - [As Gaza deaths top 25,000, Hamas defends attacks that sparked war](https://news.yahoo.com/gaza-deaths-top-25-000-174903845.html)
+- Jan 21 - [Duchess of York diagnosed with aggressive form of skin cancer](https://news.yahoo.com/sarah-ferguson-diagnosed-aggressive-form-180749803.html)
+- Jan 21 - [Trump hints at VP pick: ‘People won’t be that surprised’](https://news.yahoo.com/trump-hints-vp-pick-people-173853517.html)
+- Jan 21 - [7 Things About Living In Florida That Are 100% True And 6 That Are 100% False](https://www.yahoo.com/lifestyle/7-things-living-florida-100-171603902.html)
+- Jan 21 - [Danish royals attend church service to mark King Frederik's first visit outside the capital](https://news.yahoo.com/danish-royals-attend-church-mark-165022236.html)
 - Jan 21 - [Teens Laugh After Crashing Kia Into Los Angeles Storefront](https://news.yahoo.com/teens-laugh-crashing-kia-los-140000070.html)
-- Jan 21 - [The Farmers Had What the Billionaires Wanted](https://news.yahoo.com/farmers-had-billionaires-wanted-160525488.html)
-- Jan 21 - [Don’t Do This If A Cop Pulls You Over](https://news.yahoo.com/don-t-cop-pulls-over-202116649.html)
 <!-- feed end -->
 
 ### Onstream
