@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 21 - [Feeling broke on a $665K salary: This surgeon and his wife didn't realize their financial adviser may have been charging a high fee until Ramit Sethi set things straight](https://finance.yahoo.com/news/feeling-broke-665k-salary-surgeon-133000790.html)
 - Jan 21 - [Lauren Boebert switched districts in a bid to stay in Congress. Winning over voters won't be easy](https://news.yahoo.com/lauren-boebert-switched-districts-bid-125220371.html)
 - Jan 21 - [Sports Illustrated Swimsuit Supermodel Petra Nemcova in images](https://sports.yahoo.com/sports-illustrated-swimsuit-supermodel-petra-125045977.html)
-- Jan 21 - [West stands to lose at least $288 bln in assets if Russian assets seized -RIA](https://finance.yahoo.com/news/west-stands-lose-least-288-123925619.html)
 - Jan 21 - [Your net worth will 'go crazy' once you pass this money milestone — even Charlie Munger said you can 'ease off the gas' once you get there. Here's the magic number and how to hit it](https://finance.yahoo.com/news/net-worth-crazy-once-pass-110000698.html)
 - Jan 21 - [Disgraced police officer quit her job before she could be sacked after violent rampage](https://news.yahoo.com/disgraced-police-officer-quit-her-085416336.html)
 <!-- feed end -->
