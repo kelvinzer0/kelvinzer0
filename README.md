@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 21 - [Canada weighing extra border measures for asylum seekers from Mexico - minister](https://news.yahoo.com/canada-weighing-extra-border-measures-175842418.html)
+- Jan 21 - [As Gaza deaths top 25,000, Hamas defends attacks that sparked war](https://news.yahoo.com/gaza-deaths-top-25-000-174903845.html)
 - Jan 21 - [Teens Laugh After Crashing Kia Into Los Angeles Storefront](https://news.yahoo.com/teens-laugh-crashing-kia-los-140000070.html)
 - Jan 21 - [The Farmers Had What the Billionaires Wanted](https://news.yahoo.com/farmers-had-billionaires-wanted-160525488.html)
-- Jan 21 - [‘I’m not ready, brother’: US man to be put to death months after botched execution attempt](https://news.yahoo.com/m-not-ready-brother-us-150030255.html)
-- Jan 21 - [Feeling broke on a $665K salary: This surgeon and his wife didn't realize their financial adviser may have been charging a high fee until Ramit Sethi set things straight](https://finance.yahoo.com/news/feeling-broke-665k-salary-surgeon-133000790.html)
-- Jan 21 - [Video of parents’ bizarre prank on their children sparks outrage online: ‘I’d be livid’](https://www.yahoo.com/lifestyle/video-parents-bizarre-prank-children-130000757.html)
+- Jan 21 - [Don’t Do This If A Cop Pulls You Over](https://news.yahoo.com/don-t-cop-pulls-over-202116649.html)
 <!-- feed end -->
 
 ### Onstream
