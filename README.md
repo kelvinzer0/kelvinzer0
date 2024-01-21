@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 21 - [‘I’m not ready, brother’: US man to be put to death months after botched execution attempt](https://news.yahoo.com/m-not-ready-brother-us-150030255.html)
+- Jan 21 - [Voters are 'angry' over Trump's criminal charges because they don't seem 'legitimate': 'It just looks so fake,' GOP senator says](https://news.yahoo.com/voters-angry-over-trumps-criminal-142817386.html)
 - Jan 21 - [Feeling broke on a $665K salary: This surgeon and his wife didn't realize their financial adviser may have been charging a high fee until Ramit Sethi set things straight](https://finance.yahoo.com/news/feeling-broke-665k-salary-surgeon-133000790.html)
+- Jan 21 - [Video of parents’ bizarre prank on their children sparks outrage online: ‘I’d be livid’](https://www.yahoo.com/lifestyle/video-parents-bizarre-prank-children-130000757.html)
 - Jan 21 - [RFK Jr. was shocked that Biden's $886B defense funding 'exceeds all other discretionary spending combined' — promises that he 'WILL cut the deficit' which now stands at $1.7T](https://finance.yahoo.com/news/rfk-jr-shocked-bidens-886b-130000829.html)
-- Jan 21 - [Lauren Boebert switched districts in a bid to stay in Congress. Winning over voters won't be easy](https://news.yahoo.com/lauren-boebert-switched-districts-bid-125220371.html)
-- Jan 21 - [President Sisi says Egypt will not allow any threat to Somalia or its security](https://news.yahoo.com/president-sisi-says-egypt-not-120038831.html)
-- Jan 21 - [Police officer who assaulted woman quit force before she could be sacked](https://news.yahoo.com/disgraced-police-officer-quit-her-085416336.html)
 <!-- feed end -->
 
 ### Onstream
