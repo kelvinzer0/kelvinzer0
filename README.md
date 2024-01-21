@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 21 - [Ron DeSantis ends his struggling presidential bid before New Hampshire and endorses Donald Trump](https://news.yahoo.com/ron-desantis-ends-presidential-bid-201129134.html)
-- Jan 21 - [Duchess of York diagnosed with aggressive form of skin cancer](https://news.yahoo.com/sarah-ferguson-diagnosed-aggressive-form-180749803.html)
+- Jan 21 - [Sarah, the Duchess of York, diagnosed with malignant melanoma found during breast cancer treatment](https://news.yahoo.com/sarah-duchess-york-diagnosed-malignant-194540697.html)
 - Jan 21 - [Here are the craziest and most picturesque photos from the brutal cold that swept the US last week](https://news.yahoo.com/craziest-most-picturesque-photos-brutal-194014297.html)
 - Jan 21 - [Germans Cheer With Glee As Supercars Are Impounded](https://news.yahoo.com/germans-cheer-glee-supercars-impounded-193000460.html)
 - Jan 21 - [Cops hear screams and burst into home during deadly stabbing spree, Texas police say](https://news.yahoo.com/cops-hear-screams-burst-home-185554216.html)
