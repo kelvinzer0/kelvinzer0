@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Navy identifies 2 SEALS lost at sea off Yemen during Iranian weapons seizure](https://news.yahoo.com/navy-identifies-2-seals-lost-201132099.html)
+- Jan 22 - [US, British militaries team up again to bomb sites in Yemen used by Iran-backed Houthis](https://news.yahoo.com/us-british-militaries-team-again-213857222.html)
+- Jan 22 - [Russia clashes with US and Ukraine supporters, ruling out any peace plan backed by Kyiv and the West](https://news.yahoo.com/russia-clashes-us-ukraine-supporters-213420033.html)
+- Jan 22 - [Navy identifies 2 SEALs lost at sea off Yemen during Iranian weapons seizure](https://news.yahoo.com/navy-identifies-2-seals-lost-201132099.html)
 - Jan 22 - [Supreme Court allows federal agents to cut razor wire Texas installed on US-Mexico border](https://news.yahoo.com/supreme-court-allows-federal-agents-200434300.html)
 - Jan 22 - [Mexico demands investigation into US military-grade weapons being used by drug cartels](https://news.yahoo.com/mexico-demands-investigation-us-military-195234431.html)
-- Jan 22 - [Plagiarism probe finds some problems with former Harvard president Claudine Gay's work](https://news.yahoo.com/plagiarism-probe-finds-problems-former-191641660.html)
-- Jan 22 - [Mark Zuckerberg Spent $187 Million Secretly Buying 1,600 Acres of Hawaii Land, And Now He Is Reportedly Building A Massive Self-Sustaining Apocalypse Bunker](https://finance.yahoo.com/news/mark-zuckerberg-spent-187-million-191118946.html)
 <!-- feed end -->
 
 ### Onstream
