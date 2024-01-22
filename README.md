@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 22 - [Sen. Tim Scott Announces Engagement To Mindy Noce, And Marjorie Taylor Greene Approves](https://www.yahoo.com/entertainment/sen-tim-scott-announces-engagement-125053061.html)
+- Jan 22 - [Donald Trump Reacts To DeSantis Dropping Out And Makes Nickname Announcement](https://www.yahoo.com/entertainment/donald-trump-reacts-desantis-dropping-113649641.html)
 - Jan 22 - [‘Is my wife a princess?': This NJ man is frustrated that his wife refuses to work — says he wants to get the mortgage 'off his back' and retire early. The Ramsey Show had a stunning reply](https://finance.yahoo.com/news/wife-princess-nj-man-frustrated-110000528.html)
-- Jan 22 - [House Jan. 6 Committee deleted more than 100 encrypted files days before GOP took majority: sources](https://news.yahoo.com/house-jan-6-committee-deleted-091722575.html)
-- Jan 22 - [Trump Chooses Absolutely Baffling New Topic For Latest Rambling Aside](https://news.yahoo.com/trump-chooses-absolutely-baffling-topic-090905507.html)
-- Jan 22 - [Couple demolishes their dated beach house and builds something remarkable in its place: ‘Most people don’t know what’s possible’](https://www.yahoo.com/lifestyle/couple-demolishes-dated-beach-house-090000058.html)
-- Jan 22 - [World’s largest nuclear reactor aims to power the Earth with unlimited energy: ‘Arguably the most complex machine ever designed’](https://news.yahoo.com/world-largest-nuclear-reactor-aims-070000048.html)
+- Jan 22 - [Biden’s Entire Candidacy Depends on the One Issue He Still Refuses to Talk About](https://news.yahoo.com/biden-entire-candidacy-depends-one-104500288.html)
+- Jan 22 - [Taliban enforcing restrictions on single and unaccompanied Afghan women, says UN report](https://news.yahoo.com/taliban-enforcing-restrictions-single-unaccompanied-104219986.html)
 <!-- feed end -->
 
 ### Onstream
