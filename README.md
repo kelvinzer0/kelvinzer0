@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [What this billionaire investor needs to see before supporting Donald Trump again](https://finance.yahoo.com/news/what-this-billionaire-investor-needs-to-see-before-supporting-donald-trump-again-160907930.html)
-- Jan 22 - [People Are Calling This Pregnant Passenger "Entitled" After She Demanded A Guy Swap Seats With Her On A Plane](https://www.yahoo.com/lifestyle/people-calling-pregnant-passenger-entitled-141809779.html)
-- Jan 22 - [Woman arrested after police found $2,500 worth of Stanley cups in her car](https://news.yahoo.com/woman-arrested-police-found-2-135558012.html)
-- Jan 22 - [“Suicide mission”: Legal experts warn Trump’s plan to testify could turn into a “bloodbath”](https://news.yahoo.com/suicide-mission-legal-experts-warn-131840587.html)
-- Jan 22 - [A Chinese man who chain-smoked his way through a marathon was disqualified for smoking on the course](https://news.yahoo.com/chinese-man-chain-smoked-way-131100310.html)
+- Jan 22 - [Judge orders unsealing of divorce case involving Georgia special prosecutor accused of affair](https://news.yahoo.com/judge-orders-unsealing-divorce-case-174921903.html)
+- Jan 22 - [Lawyer breaks silence on why he abruptly quit Trump team — predicts Trump could be convicted](https://news.yahoo.com/lawyer-breaks-silence-why-abruptly-164205030.html)
+- Jan 22 - [Where is Fox 8 News in the Morning anchor Wayne Dawson? Why he hasn't been on your TV](https://news.yahoo.com/where-fox-8-news-morning-163735578.html)
+- Jan 22 - [Trump lawyer objects to continuing trial amid illness — then complains about trial schedule](https://news.yahoo.com/trump-lawyer-objects-continuing-trial-163727360.html)
+- Jan 22 - ["Embarrassing": Ron DeSantis mocked for dropping out with fake Winston Churchill quote](https://news.yahoo.com/embarrassing-ron-desantis-mocked-dropping-160023701.html)
 <!-- feed end -->
 
 ### Onstream
