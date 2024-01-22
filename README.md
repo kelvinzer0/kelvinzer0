@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 22 - [A Chinese man who chain-smoked his way through a marathon was disqualified for smoking on the course](https://news.yahoo.com/chinese-man-chain-smoked-way-131100769.html)
+- Jan 22 - [Kanye West once said he was $53M in debt and asked Mark Zuckerberg for a $1B investment](https://finance.yahoo.com/news/kanye-west-once-said-53m-130000547.html)
 - Jan 22 - [Sen. Tim Scott Announces Engagement To Mindy Noce, And Marjorie Taylor Greene Approves](https://www.yahoo.com/entertainment/sen-tim-scott-announces-engagement-125053061.html)
 - Jan 22 - [Donald Trump Reacts To DeSantis Dropping Out And Makes Nickname Announcement](https://www.yahoo.com/entertainment/donald-trump-reacts-desantis-dropping-113649641.html)
 - Jan 22 - [‘Is my wife a princess?': This NJ man is frustrated that his wife refuses to work — says he wants to get the mortgage 'off his back' and retire early. The Ramsey Show had a stunning reply](https://finance.yahoo.com/news/wife-princess-nj-man-frustrated-110000528.html)
-- Jan 22 - [Biden’s Entire Candidacy Depends on the One Issue He Still Refuses to Talk About](https://news.yahoo.com/biden-entire-candidacy-depends-one-104500288.html)
-- Jan 22 - [Taliban enforcing restrictions on single and unaccompanied Afghan women, says UN report](https://news.yahoo.com/taliban-enforcing-restrictions-single-unaccompanied-104219986.html)
 <!-- feed end -->
 
 ### Onstream
