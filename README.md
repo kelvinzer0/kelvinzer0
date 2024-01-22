@@ -63,7 +63,7 @@ https://kelvinzer0.github.io
 - Jan 22 - [People Are Calling This Pregnant Passenger "Entitled" After She Demanded A Guy Swap Seats With Her On A Plane](https://www.yahoo.com/lifestyle/people-calling-pregnant-passenger-entitled-141809779.html)
 - Jan 22 - [Woman arrested after police found $2,500 worth of Stanley cups in her car](https://news.yahoo.com/woman-arrested-police-found-2-135558012.html)
 - Jan 22 - [“Suicide mission”: Legal experts warn Trump’s plan to testify could turn into a “bloodbath”](https://news.yahoo.com/suicide-mission-legal-experts-warn-131840587.html)
-- Jan 22 - [A Chinese man who chain-smoked his way through a marathon was disqualified for smoking on the course](https://news.yahoo.com/chinese-man-chain-smoked-way-131100769.html)
+- Jan 22 - [A Chinese man who chain-smoked his way through a marathon was disqualified for smoking on the course](https://news.yahoo.com/chinese-man-chain-smoked-way-131100310.html)
 - Jan 22 - [Sen. Tim Scott Announces Engagement To Mindy Noce, And Marjorie Taylor Greene Approves](https://www.yahoo.com/entertainment/sen-tim-scott-announces-engagement-125053061.html)
 <!-- feed end -->
 
