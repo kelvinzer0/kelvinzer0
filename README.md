@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 22 - [Mexico demands investigation into US military-grade weapons being used by drug cartels](https://news.yahoo.com/mexico-demands-investigation-us-military-195234431.html)
+- Jan 22 - [Plagiarism probe finds some problems with former Harvard president Claudine Gay's work](https://news.yahoo.com/plagiarism-probe-finds-problems-former-191641660.html)
+- Jan 22 - [Mark Zuckerberg Spent $187 Million Secretly Buying 1,600 Acres of Hawaii Land, And Now He Is Reportedly Building A Massive Self-Sustaining Apocalypse Bunker](https://finance.yahoo.com/news/mark-zuckerberg-spent-187-million-191118946.html)
+- Jan 22 - [This Surreal Video Of A Firetruck Spinning Out Of Control On Ice In St. Louis Is About To Go Mega Viral](https://www.yahoo.com/lifestyle/firetruck-barreling-down-suburban-street-184924503.html)
 - Jan 22 - [North West Seemingly Posted Unedited Photos Of Kim Kardashian](https://www.yahoo.com/entertainment/north-west-seemingly-posted-unedited-180015437.html)
-- Jan 22 - [Judge orders unsealing of divorce case involving Georgia special prosecutor accused of affair](https://news.yahoo.com/judge-orders-unsealing-divorce-case-174921903.html)
-- Jan 22 - [Suspected Robber’s Plans Foiled When Officer Walks In: Cops](https://news.yahoo.com/suspected-robber-plans-foiled-officer-164002188.html)
-- Jan 22 - [Tech CEO Plunges to Death Trying to Make Grand Entrance at Company Party](https://news.yahoo.com/tech-ceo-plunges-death-trying-163854580.html)
-- Jan 22 - [Where is Fox 8 News in the Morning anchor Wayne Dawson? Why he hasn't been on your TV](https://news.yahoo.com/where-fox-8-news-morning-163735578.html)
 <!-- feed end -->
 
 ### Onstream
