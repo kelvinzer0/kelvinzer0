@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Trump celebrates DeSantis' decision to drop out, ending a bitter feud that defined the 2024 campaign](https://news.yahoo.com/trump-celebrates-desantis-decision-drop-010326987.html)
-- Jan 22 - [Joan Rivers Would Be Sad No One Lives in Her Old N.Y.C. Apartment, Says Daughter Melissa (Exclusive)](https://www.yahoo.com/entertainment/joan-rivers-sad-no-one-000000375.html)
-- Jan 21 - [Two US Navy SEALs missing off the coast of Somalia are dead, officials say](https://news.yahoo.com/two-us-navy-seals-missing-234341713.html)
+- Jan 22 - [Two US Navy SEALs missing off the coast of Somalia are dead, officials say](https://news.yahoo.com/two-us-navy-seals-missing-234341713.html)
 - Jan 21 - [They met on a dating app in Bogota. He woke up dizzy and without his passport the next day](https://news.yahoo.com/met-dating-app-bogota-woke-230219138.html)
 - Jan 21 - [Donald Trump’s Campaign Cuts Off Access After Refusing To Allow NBC News’ Vaughn Hillyard As Designated Pool Reporter](https://www.yahoo.com/entertainment/donald-trump-campaign-cuts-off-224930075.html)
+- Jan 21 - [Iranian soldier kills 5 comrades in southeastern city where IS attack killed dozens, state TV says](https://news.yahoo.com/iranian-soldier-kills-5-comrades-204933644.html)
+- Jan 21 - [Kansas City man was in bed, unaware of 3 friends’ deaths outside home, attorney says](https://news.yahoo.com/attorney-says-man-didn-t-203210076.html)
 <!-- feed end -->
 
 ### Onstream
