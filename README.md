@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 22 - [Navy identifies 2 SEALS lost at sea off Yemen during Iranian weapons seizure](https://news.yahoo.com/navy-identifies-2-seals-lost-201132099.html)
+- Jan 22 - [Supreme Court allows federal agents to cut razor wire Texas installed on US-Mexico border](https://news.yahoo.com/supreme-court-allows-federal-agents-200434300.html)
 - Jan 22 - [Mexico demands investigation into US military-grade weapons being used by drug cartels](https://news.yahoo.com/mexico-demands-investigation-us-military-195234431.html)
 - Jan 22 - [Plagiarism probe finds some problems with former Harvard president Claudine Gay's work](https://news.yahoo.com/plagiarism-probe-finds-problems-former-191641660.html)
 - Jan 22 - [Mark Zuckerberg Spent $187 Million Secretly Buying 1,600 Acres of Hawaii Land, And Now He Is Reportedly Building A Massive Self-Sustaining Apocalypse Bunker](https://finance.yahoo.com/news/mark-zuckerberg-spent-187-million-191118946.html)
-- Jan 22 - [This Surreal Video Of A Firetruck Spinning Out Of Control On Ice In St. Louis Is About To Go Mega Viral](https://www.yahoo.com/lifestyle/firetruck-barreling-down-suburban-street-184924503.html)
-- Jan 22 - [North West Seemingly Posted Unedited Photos Of Kim Kardashian](https://www.yahoo.com/entertainment/north-west-seemingly-posted-unedited-180015437.html)
 <!-- feed end -->
 
 ### Onstream
