@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 22 - [‘Is my wife a princess?': This NJ man is frustrated that his wife refuses to work — says he wants to get the mortgage 'off his back' and retire early. The Ramsey Show had a stunning reply](https://finance.yahoo.com/news/wife-princess-nj-man-frustrated-110000528.html)
+- Jan 22 - [House Jan. 6 Committee deleted more than 100 encrypted files days before GOP took majority: sources](https://news.yahoo.com/house-jan-6-committee-deleted-091722575.html)
 - Jan 22 - [Trump Chooses Absolutely Baffling New Topic For Latest Rambling Aside](https://news.yahoo.com/trump-chooses-absolutely-baffling-topic-090905507.html)
 - Jan 22 - [Couple demolishes their dated beach house and builds something remarkable in its place: ‘Most people don’t know what’s possible’](https://www.yahoo.com/lifestyle/couple-demolishes-dated-beach-house-090000058.html)
 - Jan 22 - [World’s largest nuclear reactor aims to power the Earth with unlimited energy: ‘Arguably the most complex machine ever designed’](https://news.yahoo.com/world-largest-nuclear-reactor-aims-070000048.html)
-- Jan 22 - [North Korean Missiles Face Reality Check in Putin’s Battles](https://news.yahoo.com/north-korean-missiles-face-reality-010000134.html)
-- Jan 22 - [Two US Navy SEALs missing off the coast of Somalia are dead, officials say](https://news.yahoo.com/two-us-navy-seals-missing-234341713.html)
 <!-- feed end -->
 
 ### Onstream
