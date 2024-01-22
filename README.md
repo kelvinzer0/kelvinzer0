@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 22 - [Trump Chooses Absolutely Baffling New Topic For Latest Rambling Aside](https://news.yahoo.com/trump-chooses-absolutely-baffling-topic-090905507.html)
-- Jan 22 - [Saudi Arabia's top diplomat says it won't recognize Israel without a path to a Palestinian state](https://news.yahoo.com/saudi-arabias-top-diplomat-says-074041588.html)
+- Jan 22 - [Couple demolishes their dated beach house and builds something remarkable in its place: ‘Most people don’t know what’s possible’](https://www.yahoo.com/lifestyle/couple-demolishes-dated-beach-house-090000058.html)
+- Jan 22 - [World’s largest nuclear reactor aims to power the Earth with unlimited energy: ‘Arguably the most complex machine ever designed’](https://news.yahoo.com/world-largest-nuclear-reactor-aims-070000048.html)
 - Jan 22 - [North Korean Missiles Face Reality Check in Putin’s Battles](https://news.yahoo.com/north-korean-missiles-face-reality-010000134.html)
 - Jan 22 - [Two US Navy SEALs missing off the coast of Somalia are dead, officials say](https://news.yahoo.com/two-us-navy-seals-missing-234341713.html)
-- Jan 22 - [Suburban CEO killed in freak accident before packed audience at company party](https://news.yahoo.com/suburban-ceo-killed-freak-accident-004300220.html)
 <!-- feed end -->
 
 ### Onstream
