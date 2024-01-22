@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [Saudi Arabia's top diplomat says it won't recognize Israel without a path to a Palestinian state](https://news.yahoo.com/saudi-arabias-top-diplomat-says-074041588.html)
 - Jan 22 - [North Korean Missiles Face Reality Check in Putin’s Battles](https://news.yahoo.com/north-korean-missiles-face-reality-010000134.html)
-- Jan 22 - [Trump may testify in sex abuse defamation trial, but the court has limited what he can say](https://news.yahoo.com/trump-may-testify-sex-abuse-050903964.html)
-- Jan 22 - [Taylor Swift enjoyed time at Chief's game in Buffalo a day after a man may have attempted to break into her New York townhome](https://news.yahoo.com/taylor-swift-enjoyed-time-chiefs-045448582.html)
-- Jan 22 - [Two US Navy SEALs missing off the coast of Somalia are dead, officials say](https://news.yahoo.com/two-us-navy-seals-missing-234341713.html)
+- Jan 22 - [Suburban CEO killed in freak accident before packed audience at company party](https://news.yahoo.com/suburban-ceo-killed-freak-accident-004300220.html)
+- Jan 22 - [Controversial study claims megalodon didn't look like a 50-foot giant great white shark](https://www.yahoo.com/lifestyle/controversial-study-claims-megalodon-didnt-000152492.html)
+- Jan 21 - [They met on a dating app in Bogota. He woke up dizzy and without his passport the next day](https://news.yahoo.com/met-dating-app-bogota-woke-230219138.html)
+- Jan 21 - [Donald Trump’s Campaign Cuts Off Access After Refusing To Allow NBC News’ Vaughn Hillyard As Designated Pool Reporter](https://www.yahoo.com/entertainment/donald-trump-campaign-cuts-off-224930075.html)
 <!-- feed end -->
 
 ### Onstream
