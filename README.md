@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 22 - [North Korean Missiles Face Reality Check in Putin’s Battles](https://news.yahoo.com/north-korean-missiles-face-reality-010000134.html)
 - Jan 22 - [Trump may testify in sex abuse defamation trial, but the court has limited what he can say](https://news.yahoo.com/trump-may-testify-sex-abuse-050903964.html)
-- Jan 22 - [US authorities say more Boeing 737 planes should get checks after MAX 9 incident](https://finance.yahoo.com/news/us-faa-recommends-door-plug-035014454.html)
 - Jan 22 - [Two US Navy SEALs missing off the coast of Somalia are dead, officials say](https://news.yahoo.com/two-us-navy-seals-missing-234341713.html)
+- Jan 22 - [Trump is turning to racism to mock Nikki Haley's Indian name. Experts say it could backfire.](https://news.yahoo.com/trump-turning-racism-mock-nikki-002900206.html)
 - Jan 21 - [They met on a dating app in Bogota. He woke up dizzy and without his passport the next day](https://news.yahoo.com/met-dating-app-bogota-woke-230219138.html)
-- Jan 21 - [A caravan of migrants from Honduras who were heading to the US dissolves in Guatemala](https://news.yahoo.com/caravan-migrants-honduras-headed-north-224334017.html)
 <!-- feed end -->
 
 ### Onstream
