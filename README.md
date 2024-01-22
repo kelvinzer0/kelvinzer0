@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 22 - [North West Seemingly Posted Unedited Photos Of Kim Kardashian](https://www.yahoo.com/entertainment/north-west-seemingly-posted-unedited-180015437.html)
 - Jan 22 - [Judge orders unsealing of divorce case involving Georgia special prosecutor accused of affair](https://news.yahoo.com/judge-orders-unsealing-divorce-case-174921903.html)
-- Jan 22 - [Lawyer breaks silence on why he abruptly quit Trump team — predicts Trump could be convicted](https://news.yahoo.com/lawyer-breaks-silence-why-abruptly-164205030.html)
+- Jan 22 - [Suspected Robber’s Plans Foiled When Officer Walks In: Cops](https://news.yahoo.com/suspected-robber-plans-foiled-officer-164002188.html)
+- Jan 22 - [Tech CEO Plunges to Death Trying to Make Grand Entrance at Company Party](https://news.yahoo.com/tech-ceo-plunges-death-trying-163854580.html)
 - Jan 22 - [Where is Fox 8 News in the Morning anchor Wayne Dawson? Why he hasn't been on your TV](https://news.yahoo.com/where-fox-8-news-morning-163735578.html)
-- Jan 22 - [Trump lawyer objects to continuing trial amid illness — then complains about trial schedule](https://news.yahoo.com/trump-lawyer-objects-continuing-trial-163727360.html)
-- Jan 22 - ["Embarrassing": Ron DeSantis mocked for dropping out with fake Winston Churchill quote](https://news.yahoo.com/embarrassing-ron-desantis-mocked-dropping-160023701.html)
 <!-- feed end -->
 
 ### Onstream
