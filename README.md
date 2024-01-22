@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 22 - [US, British militaries team up again to bomb sites in Yemen used by Iran-backed Houthis](https://news.yahoo.com/us-british-militaries-team-again-213857222.html)
+- Jan 22 - [Supreme Court Justices Roberts and Coney Barrett split with conservatives to give Biden a border win](https://news.yahoo.com/supreme-court-justices-roberts-coney-214530539.html)
+- Jan 22 - [US, British militaries launch new round of joint strikes against multiple Houthi sites in Yemen](https://news.yahoo.com/us-british-militaries-team-again-213857222.html)
 - Jan 22 - [Russia clashes with US and Ukraine supporters, ruling out any peace plan backed by Kyiv and the West](https://news.yahoo.com/russia-clashes-us-ukraine-supporters-213420033.html)
 - Jan 22 - [Navy identifies 2 SEALs lost at sea off Yemen during Iranian weapons seizure](https://news.yahoo.com/navy-identifies-2-seals-lost-201132099.html)
-- Jan 22 - [Supreme Court allows federal agents to cut razor wire Texas installed on US-Mexico border](https://news.yahoo.com/supreme-court-allows-federal-agents-200434300.html)
 - Jan 22 - [Mexico demands investigation into US military-grade weapons being used by drug cartels](https://news.yahoo.com/mexico-demands-investigation-us-military-195234431.html)
 <!-- feed end -->
 
