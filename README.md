@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Trade resumes as Pakistan and Afghanistan reopen Torkham border crossing after 10 days](https://news.yahoo.com/trade-resumes-pakistan-afghanistan-reopen-063120133.html)
-- Jan 23 - [U.S.-Led Coalition Launches Major Strike on Houthi Sites in Yemen](https://finance.yahoo.com/video/watch-u-led-coalition-launches-001100228.html)
+- Jan 23 - ['Good One, Donald': Biden Trolls Trump With Blunt Reminder Of His Worst Prediction](https://news.yahoo.com/good-one-donald-biden-trolls-073558639.html)
+- Jan 23 - [21 Israeli soldiers are killed in the deadliest single attack on the army since the war began](https://news.yahoo.com/10-soldiers-killed-gaza-one-053736129.html)
 - Jan 23 - [Ron DeSantis Vows To Veto Florida Bill That Would Help Trump](https://news.yahoo.com/ron-desantis-vows-veto-florida-050917452.html)
 - Jan 23 - [PhD student unpacks common misconception about electric vehicles: ‘You’ve been [misled]’](https://news.yahoo.com/phd-student-unpacks-common-misconception-040000659.html)
-- Jan 23 - [More than a dozen dead after extreme rain wreaks havoc in major city: ‘We feel like animals’](https://news.yahoo.com/more-dozen-dead-extreme-rain-020000962.html)
+- Jan 23 - [New video shows Russian tank obliterated in strike](https://news.yahoo.com/video-shows-russian-tank-obliterated-030057632.html)
 <!-- feed end -->
 
 ### Onstream
