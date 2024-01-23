@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [The Missouri secretary of state pushes back at a state audit claiming a violation of state law](https://news.yahoo.com/missouri-secretary-state-pushes-back-175734123.html)
+- Jan 23 - [Fla. Woman Vanished in November — and Police Just Investigated Home of Woman Who Organized Search](https://www.yahoo.com/entertainment/fla-woman-vanished-november-police-172033627.html)
+- Jan 23 - [State Department responds to Putin on Alaska: ‘Certainly he’s not getting it back’](https://news.yahoo.com/state-department-responds-putin-alaska-164541460.html)
 - Jan 23 - ["This is a horror show": Ex-judge warns Trump lawyer is "playing with fire" by irking Judge Kaplan](https://news.yahoo.com/horror-show-ex-judge-warns-161918882.html)
-- Jan 23 - [WWE President Pleased With $5 Billion Netflix Deal](https://finance.yahoo.com/video/wwe-president-pleased-5-billion-160450219.html)
-- Jan 23 - [As missiles hit, Slovak PM Fico claims there's no war in Kyiv](https://news.yahoo.com/missiles-hit-slovak-pm-fico-152650299.html)
-- Jan 23 - [People Are Sharing The One Sentence They NEVER Want To Hear Their Partner Say In A Relationship](https://www.yahoo.com/lifestyle/people-sharing-one-sentence-never-151603015.html)
-- Jan 23 - [The middle class must accept they can’t afford Range Rovers – they’re only for rich people](https://news.yahoo.com/middle-class-must-accept-t-150000676.html)
+- Jan 23 - [What Cops Say This Georgia Pageant Queen Did To This Baby Will Shock You](https://news.yahoo.com/cops-georgia-pageant-queen-did-160619456.html)
 <!-- feed end -->
 
 ### Onstream
