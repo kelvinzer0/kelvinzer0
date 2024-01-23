@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [San Diegans cry, hug, outside damaged homes after stunning flash floods in normally balmy city](https://news.yahoo.com/san-diegans-cry-hug-outside-201343857.html)
+- Jan 23 - [20-year-old clocked at 199 mph in dad’s Camaro with camera in window, Florida cops say](https://news.yahoo.com/20-old-clocked-199-mph-200810488.html)
 - Jan 23 - [Sen. Bob Menendez says gold bars and cash at his residence were illegally found and seized](https://news.yahoo.com/sen-bob-menendez-says-gold-195302289.html)
-- Jan 23 - [Germany to send Ukraine six 'Sea King' helicopters for air defence](https://news.yahoo.com/germany-send-ukraine-six-sea-194400409.html)
+- Jan 23 - [4 of the biggest stereotypes about Americans, debunked by a British woman living in Ohio](https://www.yahoo.com/entertainment/4-biggest-stereotypes-americans-debunked-194120132.html)
 - Jan 23 - [Animals are acting strange at an Arizona national park. Now officials have theory why](https://news.yahoo.com/animals-acting-strange-arizona-national-192432143.html)
-- Jan 23 - [Excessively Farting Passenger Reportedly Causes American Airlines Flight to Turn Around](https://www.yahoo.com/entertainment/excessively-farting-passenger-causes-american-185932364.html)
-- Jan 23 - [Mexico's Yucatan tourist train sinks pilings into relic-filled limestone caves, activists show](https://news.yahoo.com/mexicos-yucatan-tourist-train-sinks-183320465.html)
 <!-- feed end -->
 
 ### Onstream
