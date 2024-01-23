@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [The Missouri secretary of state pushes back at a state audit claiming a violation of state law](https://news.yahoo.com/missouri-secretary-state-pushes-back-175734123.html)
+- Jan 23 - [Golf pro fired after colleague falsely reported him saying he could lick her all over](https://news.yahoo.com/golf-pro-fired-colleague-falsely-182347888.html)
+- Jan 23 - [Appeals court rejects Trump's bid to reconsider gag order in the election interference case](https://news.yahoo.com/appeals-court-rejects-trumps-bid-181120366.html)
+- Jan 23 - [A flight was canceled minutes before takeoff after a passenger noticed bolts missing from the wing — even though experts say it was perfectly safe](https://news.yahoo.com/flight-canceled-minutes-takeoff-passenger-175515200.html)
+- Jan 23 - [House ethics probe into Rep. Matt Gaetz picks up steam with new witnesses contacted: Sources](https://news.yahoo.com/gaetz-house-ethics-probe-picks-174338366.html)
 - Jan 23 - [Fla. Woman Vanished in November — and Police Just Investigated Home of Woman Who Organized Search](https://www.yahoo.com/entertainment/fla-woman-vanished-november-police-172033627.html)
-- Jan 23 - [State Department responds to Putin on Alaska: ‘Certainly he’s not getting it back’](https://news.yahoo.com/state-department-responds-putin-alaska-164541460.html)
-- Jan 23 - ["This is a horror show": Ex-judge warns Trump lawyer is "playing with fire" by irking Judge Kaplan](https://news.yahoo.com/horror-show-ex-judge-warns-161918882.html)
-- Jan 23 - [What Cops Say This Georgia Pageant Queen Did To This Baby Will Shock You](https://news.yahoo.com/cops-georgia-pageant-queen-did-160619456.html)
 <!-- feed end -->
 
 ### Onstream
