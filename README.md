@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [Japan is rich, but many of its children are poor; a film documents the plight of single mothers](https://news.yahoo.com/japan-rich-many-children-poor-081713979.html)
 - Jan 23 - [Donald Trump Challenged Nikki Haley To An 'Aptitude Test' And You Know What Happened](https://news.yahoo.com/donald-trump-challenged-nikki-haley-080506545.html)
 - Jan 23 - ['Good One, Donald': Biden Trolls Trump With Blunt Reminder Of His Worst Prediction](https://news.yahoo.com/good-one-donald-biden-trolls-073558639.html)
 - Jan 23 - [21 soldiers are killed in the deadliest single attack on Israeli forces since the war in Gaza began](https://news.yahoo.com/10-soldiers-killed-gaza-one-053736129.html)
 - Jan 23 - [Ron DeSantis Vows To Veto Florida Bill That Would Help Trump](https://news.yahoo.com/ron-desantis-vows-veto-florida-050917452.html)
-- Jan 23 - [PhD student unpacks common misconception about electric vehicles: ‘You’ve been [misled]’](https://news.yahoo.com/phd-student-unpacks-common-misconception-040000659.html)
 <!-- feed end -->
 
 ### Onstream
