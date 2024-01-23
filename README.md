@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [Trump's Attempt To Describe Missile Defense Has To Be Heard To Be Believed](https://news.yahoo.com/trumps-attempt-describe-missile-defense-095714061.html)
+- Jan 23 - [6 Chinese people demanded that a British pianist remove their faces from his public live stream. The ensuing fight has gone viral.](https://news.yahoo.com/6-chinese-people-demanded-british-093227698.html)
 - Jan 23 - [Japan is rich, but many of its children are poor; a film documents the plight of single mothers](https://news.yahoo.com/japan-rich-many-children-poor-081713979.html)
 - Jan 23 - [Donald Trump Challenged Nikki Haley To An 'Aptitude Test' And You Know What Happened](https://news.yahoo.com/donald-trump-challenged-nikki-haley-080506545.html)
 - Jan 23 - ['Good One, Donald': Biden Trolls Trump With Blunt Reminder Of His Worst Prediction](https://news.yahoo.com/good-one-donald-biden-trolls-073558639.html)
-- Jan 23 - [21 soldiers are killed in the deadliest single attack on Israeli forces since the war in Gaza began](https://news.yahoo.com/10-soldiers-killed-gaza-one-053736129.html)
-- Jan 23 - [Ron DeSantis Vows To Veto Florida Bill That Would Help Trump](https://news.yahoo.com/ron-desantis-vows-veto-florida-050917452.html)
 <!-- feed end -->
 
 ### Onstream
