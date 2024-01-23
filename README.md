@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [MSNBC's Joe Scarborough Says This Biden Tactic 'Has To Be Driving Donald Trump Crazy'](https://news.yahoo.com/msnbcs-joe-scarborough-says-biden-122754382.html)
 - Jan 23 - ['Working my tail-end off just to get by’: This Walmart worker blasted older Americans for calling young folks lazy — blames them for 'creating' the inflation crisis, ruining the economy](https://finance.yahoo.com/news/working-tail-end-off-just-110000855.html)
 - Jan 23 - [Trump's Attempt To Describe Missile Defense Has To Be Heard To Be Believed](https://news.yahoo.com/trumps-attempt-describe-missile-defense-095714061.html)
 - Jan 23 - [6 Chinese people demanded that a British pianist remove their faces from his public live stream. The ensuing fight has gone viral.](https://news.yahoo.com/6-chinese-people-demanded-british-093227698.html)
 - Jan 23 - [Newly elected school board in Pennsylvania reclaims Indigenous mascot, rejects cancel culture](https://www.yahoo.com/lifestyle/newly-elected-school-board-pennsylvania-091517074.html)
-- Jan 23 - [Donald Trump Challenged Nikki Haley To An 'Aptitude Test' And You Know What Happened](https://news.yahoo.com/donald-trump-challenged-nikki-haley-080506545.html)
 <!-- feed end -->
 
 ### Onstream
