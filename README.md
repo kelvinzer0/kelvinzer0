@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [Donald Trump Challenged Nikki Haley To An 'Aptitude Test' And You Know What Happened](https://news.yahoo.com/donald-trump-challenged-nikki-haley-080506545.html)
 - Jan 23 - ['Good One, Donald': Biden Trolls Trump With Blunt Reminder Of His Worst Prediction](https://news.yahoo.com/good-one-donald-biden-trolls-073558639.html)
-- Jan 23 - [21 Israeli soldiers are killed in the deadliest single attack on the army since the war began](https://news.yahoo.com/10-soldiers-killed-gaza-one-053736129.html)
+- Jan 23 - [21 soldiers are killed in the deadliest single attack on Israeli forces since the war in Gaza began](https://news.yahoo.com/10-soldiers-killed-gaza-one-053736129.html)
 - Jan 23 - [Ron DeSantis Vows To Veto Florida Bill That Would Help Trump](https://news.yahoo.com/ron-desantis-vows-veto-florida-050917452.html)
 - Jan 23 - [PhD student unpacks common misconception about electric vehicles: ‘You’ve been [misled]’](https://news.yahoo.com/phd-student-unpacks-common-misconception-040000659.html)
-- Jan 23 - [New video shows Russian tank obliterated in strike](https://news.yahoo.com/video-shows-russian-tank-obliterated-030057632.html)
 <!-- feed end -->
 
 ### Onstream
