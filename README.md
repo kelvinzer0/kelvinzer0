@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Golf pro fired after colleague falsely reported him saying he could lick her all over](https://news.yahoo.com/golf-pro-fired-colleague-falsely-182347888.html)
-- Jan 23 - [Appeals court rejects Trump's bid to reconsider gag order in the election interference case](https://news.yahoo.com/appeals-court-rejects-trumps-bid-181120366.html)
-- Jan 23 - [A flight was canceled minutes before takeoff after a passenger noticed bolts missing from the wing — even though experts say it was perfectly safe](https://news.yahoo.com/flight-canceled-minutes-takeoff-passenger-175515200.html)
-- Jan 23 - [House ethics probe into Rep. Matt Gaetz picks up steam with new witnesses contacted: Sources](https://news.yahoo.com/gaetz-house-ethics-probe-picks-174338366.html)
-- Jan 23 - [Fla. Woman Vanished in November — and Police Just Investigated Home of Woman Who Organized Search](https://www.yahoo.com/entertainment/fla-woman-vanished-november-police-172033627.html)
+- Jan 23 - [Sen. Bob Menendez says gold bars and cash at his residence were illegally found and seized](https://news.yahoo.com/sen-bob-menendez-says-gold-195302289.html)
+- Jan 23 - [Germany to send Ukraine six 'Sea King' helicopters for air defence](https://news.yahoo.com/germany-send-ukraine-six-sea-194400409.html)
+- Jan 23 - [Animals are acting strange at an Arizona national park. Now officials have theory why](https://news.yahoo.com/animals-acting-strange-arizona-national-192432143.html)
+- Jan 23 - [Excessively Farting Passenger Reportedly Causes American Airlines Flight to Turn Around](https://www.yahoo.com/entertainment/excessively-farting-passenger-causes-american-185932364.html)
+- Jan 23 - [Mexico's Yucatan tourist train sinks pilings into relic-filled limestone caves, activists show](https://news.yahoo.com/mexicos-yucatan-tourist-train-sinks-183320465.html)
 <!-- feed end -->
 
 ### Onstream
