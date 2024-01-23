@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 23 - [Drone the size of a bread slice may allow Japan closer look inside damaged Fukushima nuclear plant](https://news.yahoo.com/drone-size-bread-slice-may-154017151.html)
+- Jan 23 - ["This is a horror show": Ex-judge warns Trump lawyer is "playing with fire" by irking Judge Kaplan](https://news.yahoo.com/horror-show-ex-judge-warns-161918882.html)
+- Jan 23 - [WWE President Pleased With $5 Billion Netflix Deal](https://finance.yahoo.com/video/wwe-president-pleased-5-billion-160450219.html)
+- Jan 23 - [As missiles hit, Slovak PM Fico claims there's no war in Kyiv](https://news.yahoo.com/missiles-hit-slovak-pm-fico-152650299.html)
 - Jan 23 - [People Are Sharing The One Sentence They NEVER Want To Hear Their Partner Say In A Relationship](https://www.yahoo.com/lifestyle/people-sharing-one-sentence-never-151603015.html)
 - Jan 23 - [The middle class must accept they can’t afford Range Rovers – they’re only for rich people](https://news.yahoo.com/middle-class-must-accept-t-150000676.html)
-- Jan 23 - [That didn't last long. Ron DeSantis kills bid to have Florida pay Donald Trump's legal bills.](https://news.yahoo.com/didnt-last-long-ron-desantis-144705813.html)
-- Jan 23 - [Three Chiefs Fans Found Dead In Backyard Of Friend’s Home After Watch Party](https://www.yahoo.com/entertainment/three-chiefs-fans-found-dead-143020181.html)
 <!-- feed end -->
 
 ### Onstream
