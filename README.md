@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [Ron DeSantis Says 1 Thing Is To Blame For His Humiliating Campaign Defeat](https://news.yahoo.com/ron-desantis-says-1-thing-221912672.html)
+- Jan 23 - [Wounded and in pain, but fighting like a hero – how Grace O'Malley-Kumar's young life ended](https://news.yahoo.com/wounded-pain-fighting-hero-grace-220101126.html)
 - Jan 23 - [Military veteran charged in Capitol riot is ordered released from custody](https://news.yahoo.com/military-veteran-charged-capitol-riot-214106448.html)
+- Jan 23 - [Tensions erupt in private Senate Republican lunch over border talks: ‘It’s an ugly place in the conference right now’](https://news.yahoo.com/tensions-erupt-private-senate-republican-213809142.html)
 - Jan 23 - [Oliver North says NRA reacted to misconduct allegations like a 'circular firing squad'](https://news.yahoo.com/oliver-north-says-nra-reacted-212744086.html)
-- Jan 23 - [Video shows massive waves crashing Army base in Marshall Islands, causing extensive damage](https://news.yahoo.com/video-shows-massive-waves-crashing-201533670.html)
-- Jan 23 - [San Diegans cry, hug, outside damaged homes after stunning flash floods in normally balmy city](https://news.yahoo.com/san-diegans-cry-hug-outside-201343857.html)
-- Jan 23 - [20-year-old clocked at 199 mph in dad’s Camaro with camera in window, Florida cops say](https://news.yahoo.com/20-old-clocked-199-mph-200810488.html)
 <!-- feed end -->
 
 ### Onstream
