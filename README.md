@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [Military veteran charged in Capitol riot is ordered released from custody](https://news.yahoo.com/military-veteran-charged-capitol-riot-214106448.html)
+- Jan 23 - [Oliver North says NRA reacted to misconduct allegations like a 'circular firing squad'](https://news.yahoo.com/oliver-north-says-nra-reacted-212744086.html)
+- Jan 23 - [Video shows massive waves crashing Army base in Marshall Islands, causing extensive damage](https://news.yahoo.com/video-shows-massive-waves-crashing-201533670.html)
 - Jan 23 - [San Diegans cry, hug, outside damaged homes after stunning flash floods in normally balmy city](https://news.yahoo.com/san-diegans-cry-hug-outside-201343857.html)
 - Jan 23 - [20-year-old clocked at 199 mph in dad’s Camaro with camera in window, Florida cops say](https://news.yahoo.com/20-old-clocked-199-mph-200810488.html)
-- Jan 23 - [Sen. Bob Menendez says gold bars and cash at his residence were illegally found and seized](https://news.yahoo.com/sen-bob-menendez-says-gold-195302289.html)
-- Jan 23 - [4 of the biggest stereotypes about Americans, debunked by a British woman living in Ohio](https://www.yahoo.com/entertainment/4-biggest-stereotypes-americans-debunked-194120132.html)
-- Jan 23 - [Animals are acting strange at an Arizona national park. Now officials have theory why](https://news.yahoo.com/animals-acting-strange-arizona-national-192432143.html)
 <!-- feed end -->
 
 ### Onstream
