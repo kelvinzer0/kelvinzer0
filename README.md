@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 23 - [Russian foreign minister says U.S. is wrong about ending Ukraine war](https://news.yahoo.com/russian-foreign-minister-says-u-033307315.html)
 - Jan 23 - [The trial of a Honolulu businessman is providing a possible glimpse of Hawaii's underworld](https://news.yahoo.com/trial-honolulu-businessman-providing-possible-011050234.html)
 - Jan 23 - [Fact Check: This Pic of Teenage Barron Trump Might Make You Do a Double-Take](https://news.yahoo.com/fact-check-pic-teenage-barron-002700939.html)
 - Jan 22 - [Fact Check: Rumor Has It that Putin Declared the 1867 Sale of Alaska to the US 'Illegal.' Here's What We Know](https://news.yahoo.com/fact-check-rumor-putin-declared-234900529.html)
 - Jan 22 - [‘Home Alone’ Actor Devin Ratray Hospitalized In ‘Critical Condition’](https://www.yahoo.com/entertainment/home-alone-actor-devin-ratray-225312402.html)
-- Jan 22 - [Supreme Court Justices Roberts and Coney Barrett split with conservatives to give Biden a border win](https://news.yahoo.com/supreme-court-justices-roberts-coney-214530539.html)
 <!-- feed end -->
 
 ### Onstream
