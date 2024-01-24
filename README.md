@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [Ted Bundy tried to kill her, but she survived. Here's the one thing she's sick of being asked.](https://news.yahoo.com/ted-bundy-tried-kill-her-111427686.html)
+- Jan 24 - [PhD student unpacks common misconception about electric vehicles: ‘You’ve been [misled]’](https://news.yahoo.com/phd-student-unpacks-common-misconception-040000659.html)
 - Jan 24 - [Ex-Pence Aide Recalls Trump-Haley Oval Office Moment That Left Her ‘In Shock’](https://news.yahoo.com/ex-pence-aide-recalls-trump-102028789.html)
 - Jan 24 - [China rebuts Vietnam's claims to disputed South China Sea islands](https://news.yahoo.com/china-rebuts-vietnams-claims-disputed-100007714.html)
-- Jan 24 - [China doesn't have the military power to successfully invade Taiwan, the majority of 52 US experts said in a survey](https://news.yahoo.com/china-doesnt-military-power-successfully-095102022.html)
 - Jan 24 - [Fox News' Brit Hume Exposes Key Trump 'Weakness' In Blunt Warning To Republicans](https://news.yahoo.com/fox-news-brit-hume-exposes-083414402.html)
-- Jan 24 - [Rachel Maddow Cuts Into Donald Trump's Victory Speech With Real-Time Fact Check](https://news.yahoo.com/rachel-maddow-cuts-donald-trumps-072142470.html)
 <!-- feed end -->
 
 ### Onstream
