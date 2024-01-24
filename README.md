@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [Kari Lake calls on Arizona GOP chair to resign after reports of leaked audio](https://news.yahoo.com/kari-lake-calls-arizona-gop-032740321.html)
 - Jan 24 - [Couple delivers baby in parking lot of McDonald’s and gives the sweetest nickname](https://news.yahoo.com/couple-delivers-baby-parking-lot-023040149.html)
 - Jan 24 - [Georgia secretary of state says it's unconstitutional for board to oversee him, but lawmakers differ](https://news.yahoo.com/georgia-secretary-state-says-unconstitutional-012905112.html)
-- Jan 24 - [‘Top’ Las Vegas relator scammed ‘best friend’ with dementia out of house, hundreds of thousands](https://news.yahoo.com/top-las-vegas-relator-scammed-000638310.html)
 - Jan 23 - [French mother sentenced to prison after leaving child to live alone for two years](https://news.yahoo.com/french-mother-sentenced-prison-leaving-230319802.html)
 - Jan 23 - [Snowmobiler goes flying when he crashes into cable strewn across dark road, NH cops say](https://news.yahoo.com/snowmobiler-goes-flying-crashes-cable-230216820.html)
 <!-- feed end -->
