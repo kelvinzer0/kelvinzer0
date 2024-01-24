@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [Boeing installed piece that blew off Alaska MAX 9 jet - Seattle Times](https://news.yahoo.com/boeing-installed-piece-blew-off-164748341.html)
+- Jan 24 - [Brown, Yale, and Columbia are among 5 elite schools that agreed to pay $104.5 million to students after being accused of colluding to limit financial aid](https://news.yahoo.com/brown-yale-columbia-among-5-153612389.html)
+- Jan 24 - [California woman who got high and stabbed boyfriend 108 times will not go to prison, judge rules](https://news.yahoo.com/california-woman-got-high-stabbed-150953212.html)
 - Jan 24 - [Driver removes ‘closed road’ sign — and crashes into hole, Oregon cops say](https://news.yahoo.com/driver-removes-closed-road-sign-150625728.html)
 - Jan 24 - [Trump's New Hampshire victory speech shows he's running out of time to hide](https://news.yahoo.com/trumps-hampshire-victory-speech-shows-142403470.html)
-- Jan 24 - [America should unleash its armoured flying Hogs in Ukraine](https://news.yahoo.com/america-unleash-armoured-flying-hogs-142102038.html)
-- Jan 24 - [New tires every 7,000 miles? Electric cars save gas but tire wear shocks Florida drivers](https://news.yahoo.com/electric-vehicles-great-mileage-pricey-141209778.html)
-- Jan 24 - [Is it safe to stand in front of a microwave while it's on? Here's what experts say.](https://www.yahoo.com/lifestyle/safe-stand-front-microwave-while-140027321.html)
 <!-- feed end -->
 
 ### Onstream
