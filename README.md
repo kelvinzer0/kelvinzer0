@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [Ukrainian-born model winning Miss Japan re-ignites identity debate](https://news.yahoo.com/ukrainian-born-named-miss-japan-054047805.html)
+- Jan 24 - [Rachel Maddow Cuts Into Donald Trump's Victory Speech With Real-Time Fact Check](https://news.yahoo.com/rachel-maddow-cuts-donald-trumps-072142470.html)
 - Jan 24 - [Kari Lake calls on Arizona GOP chair to resign after reports of leaked audio](https://news.yahoo.com/kari-lake-calls-arizona-gop-032740321.html)
 - Jan 24 - [Trump Should Be Embarrassed After NH Primary: Nassour](https://finance.yahoo.com/video/trump-embarrassed-nh-primary-nassour-032259787.html)
 - Jan 24 - [Couple delivers baby in parking lot of McDonald’s and gives the sweetest nickname](https://news.yahoo.com/couple-delivers-baby-parking-lot-023040149.html)
-- Jan 24 - [Georgia secretary of state says it's unconstitutional for board to oversee him, but lawmakers differ](https://news.yahoo.com/georgia-secretary-state-says-unconstitutional-012905112.html)
-- Jan 23 - [French mother sentenced to prison after leaving child to live alone for two years](https://news.yahoo.com/french-mother-sentenced-prison-leaving-230319802.html)
 <!-- feed end -->
 
 ### Onstream
