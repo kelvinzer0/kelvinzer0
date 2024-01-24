@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [California Authorities Blast Rockslide Debris Off Mountain Road](https://news.yahoo.com/california-authorities-blast-rockslide-debris-155531805.html)
-- Jan 24 - [Mother of disabled girl who was allegedly raped in Starbucks bathroom sues company, school district](https://finance.yahoo.com/news/mother-disabled-girl-allegedly-raped-151831744.html)
 - Jan 24 - [Driver removes ‘closed road’ sign — and crashes into hole, Oregon cops say](https://news.yahoo.com/driver-removes-closed-road-sign-150625728.html)
 - Jan 24 - [Trump's New Hampshire victory speech shows he's running out of time to hide](https://news.yahoo.com/trumps-hampshire-victory-speech-shows-142403470.html)
+- Jan 24 - [America should unleash its armoured flying Hogs in Ukraine](https://news.yahoo.com/america-unleash-armoured-flying-hogs-142102038.html)
+- Jan 24 - [New tires every 7,000 miles? Electric cars save gas but tire wear shocks Florida drivers](https://news.yahoo.com/electric-vehicles-great-mileage-pricey-141209778.html)
 - Jan 24 - [Is it safe to stand in front of a microwave while it's on? Here's what experts say.](https://www.yahoo.com/lifestyle/safe-stand-front-microwave-while-140027321.html)
 <!-- feed end -->
 
