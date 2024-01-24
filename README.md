@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [Trump's New Hampshire victory speech shows he's running out of time to hide](https://news.yahoo.com/trumps-hampshire-victory-speech-shows-142403470.html)
+- Jan 24 - [Is it safe to stand in front of a microwave while it's on? Here's what experts say.](https://www.yahoo.com/lifestyle/is-it-safe-to-stand-in-front-of-a-microwave-while-its-on-heres-what-experts-say-200027745.html)
+- Jan 24 - [An airline passenger could face a $120,000 bill after fighter jets were scrambled when he joked about blowing up the plane](https://news.yahoo.com/airline-passenger-could-face-120-133415052.html)
+- Jan 24 - [Video of the downing of the Russian Il-76 military transport plane in Belgorod Oblast appears online](https://news.yahoo.com/video-downing-russian-il-76-133400491.html)
 - Jan 24 - [Mark Zuckerberg is raising cattle while reportedly building a huge underground bunker in Hawaii — the cows will drink beer to make ‘the highest quality beef in the world.’ What’s he up to?](https://finance.yahoo.com/news/mark-zuckerberg-raising-cattle-while-133000322.html)
-- Jan 24 - [Ted Bundy tried to kill her, but she survived. Here's the one thing she's sick of being asked.](https://news.yahoo.com/ted-bundy-tried-kill-her-111427686.html)
-- Jan 24 - [PhD student unpacks common misconception about electric vehicles: ‘You’ve been [misled]’](https://news.yahoo.com/phd-student-unpacks-common-misconception-040000659.html)
-- Jan 24 - [Ex-Pence Aide Recalls Trump-Haley Oval Office Moment That Left Her ‘In Shock’](https://news.yahoo.com/ex-pence-aide-recalls-trump-102028789.html)
-- Jan 24 - [China rebuts Vietnam's claims to disputed South China Sea islands](https://news.yahoo.com/china-rebuts-vietnams-claims-disputed-100007714.html)
 <!-- feed end -->
 
 ### Onstream
