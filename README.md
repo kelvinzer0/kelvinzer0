@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [Woman Who Raised $42,000 on GoFundMe Over Purported Brick Attack Turns Herself In After Being Charged With Theft](https://www.yahoo.com/entertainment/woman-raised-42-000-gofundme-190055659.html)
+- Jan 24 - [Trump’s White House Pharmacy Handed Out Drugs Like Candy: Report](https://news.yahoo.com/trump-white-house-pharmacy-handed-185331519.html)
 - Jan 24 - [Matt Gaetz, the House GOP’s Token Troublemaker, Caught in Escalating Ethics Probe That Could Lead to Expulsion](https://www.yahoo.com/entertainment/matt-gaetz-house-gop-token-183032877.html)
 - Jan 24 - [Proud Boys member sentenced to 6 years in prison for Capitol riot role after berating judge](https://news.yahoo.com/proud-boys-member-sentenced-6-181451029.html)
 - Jan 24 - [Maryland appeals court throws out murder conviction of former US intelligence director's daughter](https://news.yahoo.com/maryland-appeals-court-throws-murder-180858854.html)
-- Jan 24 - [Russia seeks emergency UN Security Council session on plane crash](https://news.yahoo.com/russia-seeks-emergency-un-security-173705301.html)
-- Jan 24 - [Boeing installed piece that blew off Alaska MAX 9 jet - Seattle Times](https://news.yahoo.com/boeing-installed-piece-blew-off-164748341.html)
 <!-- feed end -->
 
 ### Onstream
