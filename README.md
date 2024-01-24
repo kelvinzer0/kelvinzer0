@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Tesla stock drops on Q4 earnings miss, warns production growth rate will be 'notably lower' than 2023](https://finance.yahoo.com/news/tesla-stock-drops-on-q4-earnings-miss-warns-production-growth-rate-will-be-notably-lower-than-2023-212357382.html)
+- Jan 24 - [Danny Masterson Denied Bail; “Every Incentive To Flee,” Judge Says Of Convicted Rapist & Incarcerated ’70s Show’ Actor](https://www.yahoo.com/entertainment/danny-masterson-denied-bail-every-220300670.html)
 - Jan 24 - [A New Tallest Building in America Has Been Proposed — and It Isn’t in New York or Chicago](https://www.yahoo.com/entertainment/tallest-building-america-proposed-isn-210101298.html)
 - Jan 24 - [New Jersey sheriff dies in apparent suicide in restaurant, one week after layoffs and officers were charged in jail beating](https://news.yahoo.com/jersey-sheriff-dies-apparent-suicide-204921469.html)
 - Jan 24 - [Fact Check: Real or Fake: This Photo of Trump at a Campaign Rally Has the Internet Chattering](https://news.yahoo.com/fact-check-real-fake-photo-204700624.html)
-- Jan 24 - [Arizona GOP boss quits after leaked tape shows him floating a job for Kari Lake to skip Senate race](https://news.yahoo.com/arizona-gop-boss-quits-leaked-201944254.html)
+- Jan 24 - [Trump leans into voter fraud playbook, preparing to cry foul if he loses expected Biden rematch](https://news.yahoo.com/trump-leans-voter-fraud-playbook-204539701.html)
 <!-- feed end -->
 
 ### Onstream
