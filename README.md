@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [Tesla stock drops on Q4 earnings miss, warns production growth rate will be 'notably lower' than 2023](https://finance.yahoo.com/news/tesla-stock-drops-on-q4-earnings-miss-warns-production-growth-rate-will-be-notably-lower-than-2023-212357382.html)
+- Jan 24 - [A New Tallest Building in America Has Been Proposed — and It Isn’t in New York or Chicago](https://www.yahoo.com/entertainment/tallest-building-america-proposed-isn-210101298.html)
 - Jan 24 - [New Jersey sheriff dies in apparent suicide in restaurant, one week after layoffs and officers were charged in jail beating](https://news.yahoo.com/jersey-sheriff-dies-apparent-suicide-204921469.html)
-- Jan 24 - [House Republicans cry James Comer's "clueless investigation" is a "disaster": report](https://news.yahoo.com/house-republicans-cry-james-comers-204106883.html)
+- Jan 24 - [Fact Check: Real or Fake: This Photo of Trump at a Campaign Rally Has the Internet Chattering](https://news.yahoo.com/fact-check-real-fake-photo-204700624.html)
 - Jan 24 - [Arizona GOP boss quits after leaked tape shows him floating a job for Kari Lake to skip Senate race](https://news.yahoo.com/arizona-gop-boss-quits-leaked-201944254.html)
-- Jan 24 - [Alina Habba Spotted At Trump Victory Party After Delaying Defamation Trial Over Illness](https://news.yahoo.com/alina-habba-spotted-trump-victory-200921344.html)
-- Jan 24 - [Woman Who Raised $42,000 on GoFundMe Over Purported Brick Attack Turns Herself In After Being Charged With Theft](https://www.yahoo.com/entertainment/woman-raised-42-000-gofundme-190055659.html)
 <!-- feed end -->
 
 ### Onstream
