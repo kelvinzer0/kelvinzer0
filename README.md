@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [Matt Gaetz, the House GOP’s Token Troublemaker, Caught in Escalating Ethics Probe That Could Lead to Expulsion](https://www.yahoo.com/entertainment/matt-gaetz-house-gop-token-183032877.html)
+- Jan 24 - [Proud Boys member sentenced to 6 years in prison for Capitol riot role after berating judge](https://news.yahoo.com/proud-boys-member-sentenced-6-181451029.html)
+- Jan 24 - [Maryland appeals court throws out murder conviction of former US intelligence director's daughter](https://news.yahoo.com/maryland-appeals-court-throws-murder-180858854.html)
+- Jan 24 - [Russia seeks emergency UN Security Council session on plane crash](https://news.yahoo.com/russia-seeks-emergency-un-security-173705301.html)
 - Jan 24 - [Boeing installed piece that blew off Alaska MAX 9 jet - Seattle Times](https://news.yahoo.com/boeing-installed-piece-blew-off-164748341.html)
-- Jan 24 - [Brown, Yale, and Columbia are among 5 elite schools that agreed to pay $104.5 million to students after being accused of colluding to limit financial aid](https://news.yahoo.com/brown-yale-columbia-among-5-153612389.html)
-- Jan 24 - [California woman who got high and stabbed boyfriend 108 times will not go to prison, judge rules](https://news.yahoo.com/california-woman-got-high-stabbed-150953212.html)
-- Jan 24 - [Driver removes ‘closed road’ sign — and crashes into hole, Oregon cops say](https://news.yahoo.com/driver-removes-closed-road-sign-150625728.html)
-- Jan 24 - [Trump's New Hampshire victory speech shows he's running out of time to hide](https://news.yahoo.com/trumps-hampshire-victory-speech-shows-142403470.html)
 <!-- feed end -->
 
 ### Onstream
