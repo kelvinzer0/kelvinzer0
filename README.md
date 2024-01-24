@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 24 - [California Authorities Blast Rockslide Debris Off Mountain Road](https://news.yahoo.com/california-authorities-blast-rockslide-debris-155531805.html)
+- Jan 24 - [Mother of disabled girl who was allegedly raped in Starbucks bathroom sues company, school district](https://finance.yahoo.com/news/mother-disabled-girl-allegedly-raped-151831744.html)
+- Jan 24 - [Driver removes ‘closed road’ sign — and crashes into hole, Oregon cops say](https://news.yahoo.com/driver-removes-closed-road-sign-150625728.html)
 - Jan 24 - [Trump's New Hampshire victory speech shows he's running out of time to hide](https://news.yahoo.com/trumps-hampshire-victory-speech-shows-142403470.html)
-- Jan 24 - [Is it safe to stand in front of a microwave while it's on? Here's what experts say.](https://www.yahoo.com/lifestyle/is-it-safe-to-stand-in-front-of-a-microwave-while-its-on-heres-what-experts-say-200027745.html)
-- Jan 24 - [An airline passenger could face a $120,000 bill after fighter jets were scrambled when he joked about blowing up the plane](https://news.yahoo.com/airline-passenger-could-face-120-133415052.html)
-- Jan 24 - [Video of the downing of the Russian Il-76 military transport plane in Belgorod Oblast appears online](https://news.yahoo.com/video-downing-russian-il-76-133400491.html)
-- Jan 24 - [Mark Zuckerberg is raising cattle while reportedly building a huge underground bunker in Hawaii — the cows will drink beer to make ‘the highest quality beef in the world.’ What’s he up to?](https://finance.yahoo.com/news/mark-zuckerberg-raising-cattle-while-133000322.html)
+- Jan 24 - [Is it safe to stand in front of a microwave while it's on? Here's what experts say.](https://www.yahoo.com/lifestyle/safe-stand-front-microwave-while-140027321.html)
 <!-- feed end -->
 
 ### Onstream
