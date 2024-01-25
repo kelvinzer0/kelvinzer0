@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - [Trump's Wild 'Mob Boss' Threat Against Every Single Nikki Haley Donor Backfires](https://news.yahoo.com/trumps-wild-mob-boss-threat-091902241.html)
 - Jan 25 - [Eric Trump Accidentally Shreds His Dad With ‘Freudian Slip’ On Fox News](https://news.yahoo.com/eric-trump-accidentally-shreds-dad-083150086.html)
 - Jan 25 - [Chinese people are debating a superstition that says 2024 is the 'Year of the Widow.' Beijing is starting to pay attention.](https://www.yahoo.com/entertainment/chinese-people-debating-superstition-says-074421520.html)
 - Jan 25 - [Trump White House official convicted of defying Jan. 6 congressional subpoena to be sentenced](https://news.yahoo.com/trump-white-house-official-convicted-051926695.html)
 - Jan 25 - [Tesla CEO Musk: Chinese EV firms will 'demolish' rivals without trade barriers](https://finance.yahoo.com/news/tesla-ceo-musk-chinese-ev-025250371.html)
-- Jan 25 - [‘Ridiculous’: Charles Barkley reacts to Tim Scott’s moment with Trump](https://news.yahoo.com/ridiculous-charles-barkley-reacts-tim-021002289.html)
 <!-- feed end -->
 
 ### Onstream
