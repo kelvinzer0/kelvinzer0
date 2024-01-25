@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - [Trump legal news brief: Trump takes the witness stand in E. Jean Carroll case that could cost him millions](https://news.yahoo.com/trump-legal-news-brief-trump-takes-the-witness-stand-in-e-jean-carroll-case-that-could-cost-him-millions-195027840.html)
+- Jan 25 - [Freediving spearfisherman snags ‘unprecedented’ catch in Portugal, scientists say](https://news.yahoo.com/freediving-spearfisherman-snags-unprecedented-catch-190241905.html)
+- Jan 25 - ["You are not a victim": Judge sentences Trump adviser Peter Navarro to prison for defying subpoena](https://news.yahoo.com/not-victim-judge-sentences-trump-185335022.html)
 - Jan 25 - [Mom Transfers Son's ADHD Medication to Clear Pills — and Makes Alarming Discovery About Dosages (Exclusive)](https://www.yahoo.com/entertainment/mom-transfers-sons-adhd-medication-180000313.html)
 - Jan 25 - [Family of woman killed in alligator attack sues housing company alleging negligence](https://news.yahoo.com/family-woman-killed-alligator-attack-172606843.html)
-- Jan 25 - [Herbert Coward, known for Toothless Man role in 'Deliverance,' dies in North Carolina highway crash](https://news.yahoo.com/herbert-coward-known-toothless-man-172154375.html)
-- Jan 25 - [The US Navy is in the thick of the Red Sea fight. But there’s one warship class that’s missing](https://news.yahoo.com/us-navy-thick-red-sea-164758213.html)
-- Jan 25 - ['Squatters' turn Beverly Hills mansion into party hub. But how? The listing agent explains.](https://news.yahoo.com/squatters-turn-beverly-hills-mansion-163754018.html)
 <!-- feed end -->
 
 ### Onstream
