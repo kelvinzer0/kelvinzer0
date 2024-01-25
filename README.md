@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - [A Miami nurse collapsed in a restroom with a surgical drug IV in a leg. That’s not all](https://news.yahoo.com/miami-nurse-collapsed-restroom-surgical-134504213.html)
 - Jan 25 - [Greg Gutfeld Says Slur Word Is ‘Now Acceptable’ After Ex-GOP Rep Uses It On Air](https://www.yahoo.com/entertainment/greg-gutfeld-says-now-acceptable-123251668.html)
-- Jan 25 - [Southwest Airlines removes MAX 7 from 2024 plans, cuts delivery forecast from Boeing](https://finance.yahoo.com/news/southwest-airlines-removes-max-7-113914985.html)
-- Jan 25 - [China accuses US of 'abusing' international law by sailing in Taiwan Strait and South China Sea](https://news.yahoo.com/china-accuses-us-abusing-international-113704862.html)
+- Jan 25 - [Florida couple arrested after 3 children found living in 'deplorable' conditions](https://news.yahoo.com/florida-couple-arrested-3-children-122737357.html)
 - Jan 25 - [Trump ramps up the threats of violence — and as usual, the media looks away](https://news.yahoo.com/trump-ramps-threats-violence-usual-104503284.html)
-- Jan 25 - [Philippines, Vietnam to sign coastguard deal risking China's ire](https://news.yahoo.com/philippines-vietnam-sign-coastguard-deal-104203585.html)
+- Jan 25 - [Austrian man who raped his captive daughter over 24 years can be moved to a regular prison](https://news.yahoo.com/austrian-man-raped-captive-daughter-095214673.html)
 <!-- feed end -->
 
 ### Onstream
