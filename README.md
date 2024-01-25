@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 25 - [Tesla CEO Musk: Chinese EV firms will 'demolish' rivals without trade barriers](https://finance.yahoo.com/news/tesla-ceo-musk-chinese-ev-025250371.html)
 - Jan 25 - [‘Ridiculous’: Charles Barkley reacts to Tim Scott’s moment with Trump](https://news.yahoo.com/ridiculous-charles-barkley-reacts-tim-021002289.html)
+- Jan 25 - [Woman scalped by dog advocates for resolution that could change Austin Animal Center release rules](https://news.yahoo.com/woman-scalped-dog-pushes-resolution-012020629.html)
 - Jan 25 - [Maine's top court dismisses appeal of judge's decision on Trump ballot status](https://news.yahoo.com/maines-top-court-declines-hear-005117948.html)
 - Jan 25 - [Sandy Hook denier Alex Jones eyes late March bankruptcy exit](https://news.yahoo.com/sandy-hook-denier-alex-jones-003411735.html)
-- Jan 25 - [North Korea's Kim warns failure to provide food a 'serious political issue'](https://news.yahoo.com/north-koreas-kim-warns-failure-001626753.html)
 <!-- feed end -->
 
 ### Onstream
