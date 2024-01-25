@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - [The stock market rally is making Americans happier. But famed economist Paul Krugman says their views on the economy are misguided.](https://finance.yahoo.com/news/stock-market-rally-making-americans-012141573.html)
+- Jan 25 - [Tesla CEO Musk: Chinese EV firms will 'demolish' rivals without trade barriers](https://finance.yahoo.com/news/tesla-ceo-musk-chinese-ev-025250371.html)
+- Jan 25 - [‘Ridiculous’: Charles Barkley reacts to Tim Scott’s moment with Trump](https://news.yahoo.com/ridiculous-charles-barkley-reacts-tim-021002289.html)
 - Jan 25 - [Maine's top court dismisses appeal of judge's decision on Trump ballot status](https://news.yahoo.com/maines-top-court-declines-hear-005117948.html)
 - Jan 25 - [Sandy Hook denier Alex Jones eyes late March bankruptcy exit](https://news.yahoo.com/sandy-hook-denier-alex-jones-003411735.html)
 - Jan 25 - [North Korea's Kim warns failure to provide food a 'serious political issue'](https://news.yahoo.com/north-koreas-kim-warns-failure-001626753.html)
-- Jan 24 - [Police identify relationships between suspect and family members slain in Chicago suburb](https://news.yahoo.com/police-identify-relationships-between-suspect-225901602.html)
 <!-- feed end -->
 
 ### Onstream
