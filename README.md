@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 24 - [Danny Masterson Denied Bail; “Every Incentive To Flee,” Judge Says Of Convicted Rapist & Incarcerated ’70s Show’ Actor](https://www.yahoo.com/entertainment/danny-masterson-denied-bail-every-220300670.html)
+- Jan 25 - [Sandy Hook denier Alex Jones eyes late March bankruptcy exit](https://news.yahoo.com/sandy-hook-denier-alex-jones-003411735.html)
+- Jan 25 - [North Korea's Kim warns failure to provide food a 'serious political issue'](https://news.yahoo.com/north-koreas-kim-warns-failure-001626753.html)
+- Jan 24 - [Police identify relationships between suspect and family members slain in Chicago suburb](https://news.yahoo.com/police-identify-relationships-between-suspect-225901602.html)
+- Jan 24 - [Freed Israeli hostage says she met a Hamas leader in a tunnel, where she was kept in dire conditions](https://news.yahoo.com/freed-israeli-hostage-says-she-225000245.html)
 - Jan 24 - [A New Tallest Building in America Has Been Proposed — and It Isn’t in New York or Chicago](https://www.yahoo.com/entertainment/tallest-building-america-proposed-isn-210101298.html)
-- Jan 24 - [New Jersey sheriff dies in apparent suicide in restaurant, one week after layoffs and officers were charged in jail beating](https://news.yahoo.com/jersey-sheriff-dies-apparent-suicide-204921469.html)
-- Jan 24 - [Fact Check: Real or Fake: This Photo of Trump at a Campaign Rally Has the Internet Chattering](https://news.yahoo.com/fact-check-real-fake-photo-204700624.html)
-- Jan 24 - [Trump leans into voter fraud playbook, preparing to cry foul if he loses expected Biden rematch](https://news.yahoo.com/trump-leans-voter-fraud-playbook-204539701.html)
 <!-- feed end -->
 
 ### Onstream
