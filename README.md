@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - ['A Warning Shot': Maggie Haberman Explains Why Trump Attacked Kayleigh McEnany](https://news.yahoo.com/warning-shot-maggie-haberman-explains-115055943.html)
+- Jan 25 - [Greg Gutfeld Says Slur Word Is ‘Now Acceptable’ After Ex-GOP Rep Uses It On Air](https://www.yahoo.com/entertainment/greg-gutfeld-says-now-acceptable-123251668.html)
+- Jan 25 - [Biden's Granddaughter Slams Jesse Watters For 'Ugly' Remark: 'Crosses The Line'](https://news.yahoo.com/bidens-granddaughter-slams-jesse-watters-105918746.html)
 - Jan 25 - [Trump ramps up the threats of violence — and as usual, the media looks away](https://news.yahoo.com/trump-ramps-threats-violence-usual-104503284.html)
 - Jan 25 - [Austrian man who raped his captive daughter over 24 years can be moved to a regular prison](https://news.yahoo.com/austrian-man-raped-captive-daughter-095214673.html)
 - Jan 25 - [Trump's Wild 'Mob Boss' Threat Against Every Single Nikki Haley Donor Backfires](https://news.yahoo.com/trumps-wild-mob-boss-threat-091902241.html)
-- Jan 25 - [Eric Trump Accidentally Shreds His Dad With ‘Freudian Slip’ On Fox News](https://news.yahoo.com/eric-trump-accidentally-shreds-dad-083150086.html)
 <!-- feed end -->
 
 ### Onstream
