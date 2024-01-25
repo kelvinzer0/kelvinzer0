@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - [Tiger shark chases turtle to beach in wild scene caught on video](https://sports.yahoo.com/tiger-shark-chases-turtle-beach-150123240.html)
-- Jan 25 - [What's the Story Behind Human Remains Found in the Freezer of a Brooklyn Couple’s Apartment?](https://news.yahoo.com/whats-story-behind-human-remains-135800965.html)
-- Jan 25 - [A Miami nurse collapsed in a restroom with a surgical drug IV in a leg. That’s not all](https://news.yahoo.com/miami-nurse-collapsed-restroom-surgical-134504213.html)
-- Jan 25 - [Greg Gutfeld Says Slur Word Is ‘Now Acceptable’ After Ex-GOP Rep Uses It On Air](https://www.yahoo.com/entertainment/greg-gutfeld-says-now-acceptable-123251668.html)
-- Jan 25 - [Florida couple arrested after 3 children found living in 'deplorable' conditions](https://news.yahoo.com/florida-couple-arrested-3-children-122737357.html)
+- Jan 25 - [The US Navy is in the thick of the Red Sea fight. But there’s one warship class that’s missing](https://news.yahoo.com/us-navy-thick-red-sea-164758213.html)
+- Jan 25 - [US warned Iran that ISIS-K was preparing attack ahead of deadly Kerman blasts, a US official says](https://news.yahoo.com/us-warned-iran-isis-k-163615266.html)
+- Jan 25 - [Conservative CNN Pundit Says Nikki Haley Baited Trump Into 'A Strategic Mistake'](https://news.yahoo.com/conservative-cnn-pundit-says-nikki-163535299.html)
+- Jan 25 - [Rampant extortion reveals 'corrosive' hole in Mexico security strategy](https://news.yahoo.com/rampant-extortion-reveals-corrosive-hole-155849244.html)
+- Jan 25 - [It Turns Out You Don’t Need a Quarter for Aldi’s Shopping Carts — Not If You Have This on Hand!](https://www.yahoo.com/lifestyle/turns-don-t-quarter-aldi-154700271.html)
 <!-- feed end -->
 
 ### Onstream
