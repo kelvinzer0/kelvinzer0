@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jan 25 - [Four Las Vegas high school students plead not guilty to murder in deadly beating of schoolmate](https://news.yahoo.com/four-las-vegas-high-school-210748078.html)
 - Jan 25 - [Experts slam Trump's lawyer for letting him testify: "Habba did absolutely no good for her client"](https://news.yahoo.com/experts-slam-trumps-lawyer-letting-204516570.html)
 - Jan 25 - [NASA announces end of history-making Mars helicopter mission](https://news.yahoo.com/nasa-announces-end-history-making-201722115.html)
-- Jan 25 - [Oklahoma trooper hit, thrown in traffic stop as vehicle crashes into parked car: Watch](https://news.yahoo.com/oklahoma-trooper-hit-thrown-traffic-191748281.html)
+- Jan 25 - [Parents of Kansas City Chiefs fan found dead think victims 'saw something they shouldn't have seen'](https://news.yahoo.com/parents-kansas-city-chiefs-fan-200512569.html)
 <!-- feed end -->
 
 ### Onstream
