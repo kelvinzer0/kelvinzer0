@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 25 - [Greg Gutfeld Says Slur Word Is ‘Now Acceptable’ After Ex-GOP Rep Uses It On Air](https://www.yahoo.com/entertainment/greg-gutfeld-says-now-acceptable-123251668.html)
-- Jan 25 - [Biden's Granddaughter Slams Jesse Watters For 'Ugly' Remark: 'Crosses The Line'](https://news.yahoo.com/bidens-granddaughter-slams-jesse-watters-105918746.html)
+- Jan 25 - [Southwest Airlines removes MAX 7 from 2024 plans, cuts delivery forecast from Boeing](https://finance.yahoo.com/news/southwest-airlines-removes-max-7-113914985.html)
+- Jan 25 - [China accuses US of 'abusing' international law by sailing in Taiwan Strait and South China Sea](https://news.yahoo.com/china-accuses-us-abusing-international-113704862.html)
 - Jan 25 - [Trump ramps up the threats of violence — and as usual, the media looks away](https://news.yahoo.com/trump-ramps-threats-violence-usual-104503284.html)
-- Jan 25 - [Austrian man who raped his captive daughter over 24 years can be moved to a regular prison](https://news.yahoo.com/austrian-man-raped-captive-daughter-095214673.html)
-- Jan 25 - [Trump's Wild 'Mob Boss' Threat Against Every Single Nikki Haley Donor Backfires](https://news.yahoo.com/trumps-wild-mob-boss-threat-091902241.html)
+- Jan 25 - [Philippines, Vietnam to sign coastguard deal risking China's ire](https://news.yahoo.com/philippines-vietnam-sign-coastguard-deal-104203585.html)
 <!-- feed end -->
 
 ### Onstream
