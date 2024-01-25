@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - [Missouri Republican leader suggests expulsion of GOP lawmaker as tensions mount in state Senate](https://news.yahoo.com/missouri-republican-leader-suggests-expulsion-213605827.html)
+- Jan 25 - [Four Las Vegas high school students plead not guilty to murder in deadly beating of schoolmate](https://news.yahoo.com/four-las-vegas-high-school-210748078.html)
+- Jan 25 - [Experts slam Trump's lawyer for letting him testify: "Habba did absolutely no good for her client"](https://news.yahoo.com/experts-slam-trumps-lawyer-letting-204516570.html)
 - Jan 25 - [NASA announces end of history-making Mars helicopter mission](https://news.yahoo.com/nasa-announces-end-history-making-201722115.html)
-- Jan 25 - [Freediving spearfisherman snags ‘unprecedented’ catch in Portugal, scientists say](https://news.yahoo.com/freediving-spearfisherman-snags-unprecedented-catch-190241905.html)
-- Jan 25 - ["You are not a victim": Judge sentences Trump adviser Peter Navarro to prison for defying subpoena](https://news.yahoo.com/not-victim-judge-sentences-trump-185335022.html)
-- Jan 25 - [Mom Transfers Son's ADHD Medication to Clear Pills — and Makes Alarming Discovery About Dosages (Exclusive)](https://www.yahoo.com/entertainment/mom-transfers-sons-adhd-medication-180000313.html)
-- Jan 25 - [Family of woman killed in alligator attack sues housing company alleging negligence](https://news.yahoo.com/family-woman-killed-alligator-attack-172606843.html)
+- Jan 25 - [Oklahoma trooper hit, thrown in traffic stop as vehicle crashes into parked car: Watch](https://news.yahoo.com/oklahoma-trooper-hit-thrown-traffic-191748281.html)
 <!-- feed end -->
 
 ### Onstream
