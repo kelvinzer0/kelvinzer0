@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - [Trump legal news brief: Trump takes the witness stand in E. Jean Carroll case that could cost him millions](https://news.yahoo.com/trump-legal-news-brief-trump-takes-the-witness-stand-in-e-jean-carroll-case-that-could-cost-him-millions-195027840.html)
+- Jan 25 - [NASA announces end of history-making Mars helicopter mission](https://news.yahoo.com/nasa-announces-end-history-making-201722115.html)
 - Jan 25 - [Freediving spearfisherman snags ‘unprecedented’ catch in Portugal, scientists say](https://news.yahoo.com/freediving-spearfisherman-snags-unprecedented-catch-190241905.html)
 - Jan 25 - ["You are not a victim": Judge sentences Trump adviser Peter Navarro to prison for defying subpoena](https://news.yahoo.com/not-victim-judge-sentences-trump-185335022.html)
 - Jan 25 - [Mom Transfers Son's ADHD Medication to Clear Pills — and Makes Alarming Discovery About Dosages (Exclusive)](https://www.yahoo.com/entertainment/mom-transfers-sons-adhd-medication-180000313.html)
