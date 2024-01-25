@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 25 - ['A Warning Shot': Maggie Haberman Explains Why Trump Attacked Kayleigh McEnany](https://news.yahoo.com/warning-shot-maggie-haberman-explains-115055943.html)
+- Jan 25 - [Trump ramps up the threats of violence — and as usual, the media looks away](https://news.yahoo.com/trump-ramps-threats-violence-usual-104503284.html)
+- Jan 25 - [Austrian man who raped his captive daughter over 24 years can be moved to a regular prison](https://news.yahoo.com/austrian-man-raped-captive-daughter-095214673.html)
 - Jan 25 - [Trump's Wild 'Mob Boss' Threat Against Every Single Nikki Haley Donor Backfires](https://news.yahoo.com/trumps-wild-mob-boss-threat-091902241.html)
 - Jan 25 - [Eric Trump Accidentally Shreds His Dad With ‘Freudian Slip’ On Fox News](https://news.yahoo.com/eric-trump-accidentally-shreds-dad-083150086.html)
-- Jan 25 - [Chinese people are debating a superstition that says 2024 is the 'Year of the Widow.' Beijing is starting to pay attention.](https://www.yahoo.com/entertainment/chinese-people-debating-superstition-says-074421520.html)
-- Jan 25 - [Trump White House official convicted of defying Jan. 6 congressional subpoena to be sentenced](https://news.yahoo.com/trump-white-house-official-convicted-051926695.html)
-- Jan 25 - [Tesla CEO Musk: Chinese EV firms will 'demolish' rivals without trade barriers](https://finance.yahoo.com/news/tesla-ceo-musk-chinese-ev-025250371.html)
 <!-- feed end -->
 
 ### Onstream
