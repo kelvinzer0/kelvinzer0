@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 25 - [Trump legal news brief: Judge sentences Navarro to 4 months in prison for contempt of Congress](https://news.yahoo.com/trump-legal-news-brief-judge-sentences-navarro-to-4-months-in-prison-for-contempt-of-congress-180537690.html)
-- Jan 25 - [Chinese music student convicted in US of threatening pro-democracy activist](https://news.yahoo.com/chinese-music-student-convicted-us-173537384.html)
+- Jan 25 - [Mom Transfers Son's ADHD Medication to Clear Pills — and Makes Alarming Discovery About Dosages (Exclusive)](https://www.yahoo.com/entertainment/mom-transfers-sons-adhd-medication-180000313.html)
+- Jan 25 - [Family of woman killed in alligator attack sues housing company alleging negligence](https://news.yahoo.com/family-woman-killed-alligator-attack-172606843.html)
 - Jan 25 - [Herbert Coward, known for Toothless Man role in 'Deliverance,' dies in North Carolina highway crash](https://news.yahoo.com/herbert-coward-known-toothless-man-172154375.html)
 - Jan 25 - [The US Navy is in the thick of the Red Sea fight. But there’s one warship class that’s missing](https://news.yahoo.com/us-navy-thick-red-sea-164758213.html)
 - Jan 25 - ['Squatters' turn Beverly Hills mansion into party hub. But how? The listing agent explains.](https://news.yahoo.com/squatters-turn-beverly-hills-mansion-163754018.html)
