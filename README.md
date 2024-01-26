@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [Bodies of 77 Ukrainian soldiers repatriated to Kyiv](https://news.yahoo.com/bodies-77-ukrainian-soldiers-repatriated-133741811.html)
+- Jan 26 - [Supreme Court is urged to rule Trump is ineligible to be president again because of the Jan. 6 riot](https://news.yahoo.com/supreme-court-urged-rule-trump-194430587.html)
+- Jan 26 - [Family of U. of Idaho Victim Kaylee Goncalves Reveals She Was 'Trapped' in Corner of Room During Murder](https://www.yahoo.com/entertainment/family-u-idaho-victim-kaylee-190940963.html)
 - Jan 26 - [Mother ignored Michigan school shooter's texts about hallucinations because she was riding horses](https://news.yahoo.com/mother-ignored-michigan-school-shooters-182343338.html)
-- Jan 26 - [Man punches, then shoots agent trying to repossess his vehicle, Florida police say](https://news.yahoo.com/man-punches-then-shoots-agent-175212599.html)
-- Jan 26 - [Alligator drags 85-year-old to death in Florida retirement community’s lake. Family sues](https://news.yahoo.com/alligator-drags-85-old-death-171725451.html)
-- Jan 26 - [Teen Loses Both Legs After Getting Dragged Underneath Trencher Blade: 'Should Never Have Happened'](https://www.yahoo.com/entertainment/teen-loses-both-legs-getting-164311793.html)
+- Jan 26 - [E-6B 'Doomsday Plane' Looks Like It's Been Through Armageddon](https://news.yahoo.com/e-6b-doomsday-plane-looks-180246955.html)
+- Jan 26 - [Pennsylvania Poachers Fined Thousands After Shooting Giant Buck from Inside a Vehicle at Night](https://www.yahoo.com/lifestyle/pennsylvania-poachers-fined-thousands-shooting-180000564.html)
 <!-- feed end -->
 
 ### Onstream
