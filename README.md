@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [Man punches, then shoots agent trying to repossess his vehicle, Florida police say](https://news.yahoo.com/man-punches-then-shoots-agent-175212599.html)
+- Jan 26 - [Alligator drags 85-year-old to death in Florida retirement community’s lake. Family sues](https://news.yahoo.com/alligator-drags-85-old-death-171725451.html)
 - Jan 26 - [Teen Loses Both Legs After Getting Dragged Underneath Trencher Blade: 'Should Never Have Happened'](https://www.yahoo.com/entertainment/teen-loses-both-legs-getting-164311793.html)
 - Jan 26 - [Biden vs. Trump on the economy: And the winner is …](https://finance.yahoo.com/news/biden-vs-trump-on-the-economy-and-the-winner-is-164241570.html)
 - Jan 26 - [Tim Scott Slams ‘Morning Joe,’ CNN for ‘Vile’ Attacks on His Character: ‘Most Racists in the Country Are Liberals’ | Video](https://www.yahoo.com/entertainment/tim-scott-slams-morning-joe-153350698.html)
-- Jan 26 - [Donald Trump abruptly walked out of the courtroom as E. Jean Carroll's lawyer argued he doesn't respect the jury](https://news.yahoo.com/donald-trump-abruptly-walked-court-153158481.html)
-- Jan 26 - [Watch the moment Lauren Boebert was asked to 'give the definition of carpetbagger' in the first GOP debate in her new district](https://news.yahoo.com/watch-moment-lauren-boebert-asked-145737304.html)
 <!-- feed end -->
 
 ### Onstream
