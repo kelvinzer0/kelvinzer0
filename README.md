@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [‘Whoa!’: Trump's Top Economic Adviser Shocks Fox News Host With Biden Economy Admission](https://news.yahoo.com/whoa-trumps-top-economic-adviser-112641644.html)
+- Jan 26 - [Greg Gutfeld's sexual obsession with AOC accidentally reveals the insecurities of the MAGA man](https://news.yahoo.com/greg-gutfelds-sexual-obsession-aoc-104503814.html)
 - Jan 26 - [Trump Biographer Has Damning Theory About Why Trump Keeps Attacking E. Jean Carroll](https://news.yahoo.com/trump-biographer-damning-theory-why-081642265.html)
+- Jan 26 - [Eyewitness account to first US nitrogen gas execution: Inmate gasped for air and shook](https://news.yahoo.com/eyewitness-account-first-us-nitrogen-063016083.html)
 - Jan 26 - [Exclusive-China presses Iran to rein in Houthi attacks in Red Sea, sources say](https://news.yahoo.com/exclusive-china-presses-iran-rein-010221870.html)
-- Jan 26 - [Trump Had a Very Good Reason to Take the Stand Against E. Jean Carroll](https://news.yahoo.com/trump-had-very-good-reason-000337003.html)
-- Jan 26 - [The U.S. just sold its helium stockpile. Here’s why the medical world is worried.](https://news.yahoo.com/u-just-sold-helium-stockpile-000321805.html)
-- Jan 25 - [Mexican military swarms popular American tourist spot amid crime surge](https://news.yahoo.com/mexican-military-swarms-popular-american-230453221.html)
 <!-- feed end -->
 
 ### Onstream
