@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [Girl who took her own life left voicemail night before she died about school bullying torment](https://news.yahoo.com/girl-took-her-own-life-202218932.html)
+- Jan 26 - [Judge threatens to send Trump attorney Alina Habba to jail over interruptions](https://news.yahoo.com/judge-threatens-send-trump-attorney-201528561.html)
 - Jan 26 - [Supreme Court is urged to rule Trump is ineligible to be president again because of the Jan. 6 riot](https://news.yahoo.com/supreme-court-urged-rule-trump-194430587.html)
 - Jan 26 - [Family of U. of Idaho Victim Kaylee Goncalves Reveals She Was 'Trapped' in Corner of Room During Murder](https://www.yahoo.com/entertainment/family-u-idaho-victim-kaylee-190940963.html)
-- Jan 26 - [Mother ignored Michigan school shooter's texts about hallucinations because she was riding horses](https://news.yahoo.com/mother-ignored-michigan-school-shooters-182343338.html)
-- Jan 26 - [E-6B 'Doomsday Plane' Looks Like It's Been Through Armageddon](https://news.yahoo.com/e-6b-doomsday-plane-looks-180246955.html)
-- Jan 26 - [Pennsylvania Poachers Fined Thousands After Shooting Giant Buck from Inside a Vehicle at Night](https://www.yahoo.com/lifestyle/pennsylvania-poachers-fined-thousands-shooting-180000564.html)
+- Jan 26 - [Panicked Brian Laundrie Called His Parents 20 Times After Killing Gabby Petito](https://news.yahoo.com/panicked-brian-laundrie-called-parents-184908962.html)
 <!-- feed end -->
 
 ### Onstream
