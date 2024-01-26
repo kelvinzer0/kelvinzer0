@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [Man accused of smuggling migrant family who froze to death at border found living outside Toronto](https://news.yahoo.com/man-accused-of-smuggling-migrant-family-who-froze-to-death-at-border-found-living-outside-toronto-141054790.html)
+- Jan 26 - [Fact Check: This Photo of Trump at a Campaign Rally Has the Internet Asking if It's Real](https://news.yahoo.com/fact-check-photo-trump-campaign-140000050.html)
 - Jan 26 - [Private yachts, occasional wife-swapping and over-the-counter Ozempic: The secret lives of expats](https://www.yahoo.com/lifestyle/life-many-revolves-around-private-130412781.html)
-- Jan 26 - [The Never Trump movement might be in its last throes, but a news publication it birthed is booming](https://finance.yahoo.com/news/never-trump-movement-might-last-123439820.html)
 - Jan 26 - [Scientists make shocking WWII-era discovery off California coast: ‘It was a big surprise for us’](https://news.yahoo.com/scientists-shocking-wwii-era-discovery-150000339.html)
-- Jan 26 - ['I wouldn't let him manage a candy store': Kevin O’Leary blasted Justin Trudeau as ‘the worst prime minister ever’ — urges Canada to move on from the 'incredibly weak manager.' Here's why](https://finance.yahoo.com/news/wouldnt-let-him-manage-candy-113000881.html)
 - Jan 26 - [Greg Gutfeld's sexual obsession with AOC accidentally reveals the insecurities of the MAGA man](https://news.yahoo.com/greg-gutfelds-sexual-obsession-aoc-104503814.html)
 <!-- feed end -->
 
