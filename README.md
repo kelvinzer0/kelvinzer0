@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [Private yachts, occasional wife-swapping and over-the-counter Ozempic: The secret lives of expats](https://www.yahoo.com/lifestyle/life-many-revolves-around-private-130412781.html)
+- Jan 26 - [The Never Trump movement might be in its last throes, but a news publication it birthed is booming](https://finance.yahoo.com/news/never-trump-movement-might-last-123439820.html)
+- Jan 26 - [Scientists make shocking WWII-era discovery off California coast: ‘It was a big surprise for us’](https://news.yahoo.com/scientists-shocking-wwii-era-discovery-150000339.html)
 - Jan 26 - ['I wouldn't let him manage a candy store': Kevin O’Leary blasted Justin Trudeau as ‘the worst prime minister ever’ — urges Canada to move on from the 'incredibly weak manager.' Here's why](https://finance.yahoo.com/news/wouldnt-let-him-manage-candy-113000881.html)
 - Jan 26 - [Greg Gutfeld's sexual obsession with AOC accidentally reveals the insecurities of the MAGA man](https://news.yahoo.com/greg-gutfelds-sexual-obsession-aoc-104503814.html)
-- Jan 26 - [New satellite images catch world’s worst polluters red-handed: ‘Now we really know exactly where it’s coming from’](https://news.yahoo.com/satellite-images-catch-world-worst-103000412.html)
-- Jan 26 - [Trump Biographer Has Damning Theory About Why Trump Keeps Attacking E. Jean Carroll](https://news.yahoo.com/trump-biographer-damning-theory-why-081642265.html)
-- Jan 26 - [Eyewitness account to first US nitrogen gas execution: Inmate gasped for air and shook](https://news.yahoo.com/eyewitness-account-first-us-nitrogen-063016083.html)
 <!-- feed end -->
 
 ### Onstream
