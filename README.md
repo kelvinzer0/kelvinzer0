@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jan 26 - [Trump Had a Very Good Reason to Take the Stand Against E. Jean Carroll](https://news.yahoo.com/trump-had-very-good-reason-000337003.html)
 - Jan 26 - [The U.S. just sold its helium stockpile. Here’s why the medical world is worried.](https://news.yahoo.com/u-just-sold-helium-stockpile-000321805.html)
 - Jan 25 - [Mexican military swarms popular American tourist spot amid crime surge](https://news.yahoo.com/mexican-military-swarms-popular-american-230453221.html)
-- Jan 25 - [Putin signals to Washington he’s ready for talks on Ukraine — report](https://news.yahoo.com/putin-signals-washington-ready-talks-225000203.html)
+- Jan 25 - [Map: See where cicada broods will emerge for first time in over 200 years](https://news.yahoo.com/map-see-where-cicada-broods-213754990.html)
 <!-- feed end -->
 
 ### Onstream
