@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [Jury Awards E. Jean Carroll Over $80 Million In Case Against Trump](https://news.yahoo.com/jury-reaches-verdict-e-jean-213653240.html)
+- Jan 26 - [Hear what judge told Trump’s lawyer before Trump walked during closing arguments](https://news.yahoo.com/hear-why-judge-told-trump-163719776.html)
 - Jan 26 - [Girl who took her own life left voicemail night before she died about school bullying torment](https://news.yahoo.com/girl-took-her-own-life-202218932.html)
-- Jan 26 - [Judge threatens to send Trump attorney Alina Habba to jail over interruptions](https://news.yahoo.com/judge-threatens-send-trump-attorney-201528561.html)
+- Jan 26 - [New evidence shows Kari Lake's takedown of Arizona GOP boss was orchestrated](https://news.yahoo.com/evidence-shows-kari-lakes-takedown-194448486.html)
 - Jan 26 - [Supreme Court is urged to rule Trump is ineligible to be president again because of the Jan. 6 riot](https://news.yahoo.com/supreme-court-urged-rule-trump-194430587.html)
-- Jan 26 - [Family of U. of Idaho Victim Kaylee Goncalves Reveals She Was 'Trapped' in Corner of Room During Murder](https://www.yahoo.com/entertainment/family-u-idaho-victim-kaylee-190940963.html)
-- Jan 26 - [Panicked Brian Laundrie Called His Parents 20 Times After Killing Gabby Petito](https://news.yahoo.com/panicked-brian-laundrie-called-parents-184908962.html)
 <!-- feed end -->
 
 ### Onstream
