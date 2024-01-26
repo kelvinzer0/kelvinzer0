@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [Trump Biographer Has Damning Theory About Why Trump Keeps Attacking E. Jean Carroll](https://news.yahoo.com/trump-biographer-damning-theory-why-081642265.html)
 - Jan 26 - [Exclusive-China presses Iran to rein in Houthi attacks in Red Sea, sources say](https://news.yahoo.com/exclusive-china-presses-iran-rein-010221870.html)
 - Jan 26 - [Reagan-appointed judge warns GOP's 'preposterous' claims about Jan. 6 could pose threat](https://news.yahoo.com/reagan-appointed-judge-warns-gops-001746187.html)
 - Jan 26 - [Trump Had a Very Good Reason to Take the Stand Against E. Jean Carroll](https://news.yahoo.com/trump-had-very-good-reason-000337003.html)
 - Jan 26 - [The U.S. just sold its helium stockpile. Here’s why the medical world is worried.](https://news.yahoo.com/u-just-sold-helium-stockpile-000321805.html)
-- Jan 25 - [Map: See where cicada broods will emerge for first time in over 200 years](https://news.yahoo.com/map-see-where-cicada-broods-213754990.html)
 <!-- feed end -->
 
 ### Onstream
