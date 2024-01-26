@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [Jury Awards E. Jean Carroll Over $80 Million In Case Against Trump](https://news.yahoo.com/jury-reaches-verdict-e-jean-213653240.html)
+- Jan 26 - [Why IBM's new retirement plan has the industry buzzing](https://finance.yahoo.com/video/why-ibms-retirement-plan-industry-222733642.html)
+- Jan 26 - [Donald Trump Breaks Silence On $83 Million E. Jean Carroll Verdict: ‘Absolutely Ridiculous’](https://www.yahoo.com/entertainment/donald-trump-breaks-silence-83-222142720.html)
+- Jan 26 - [Mall worker told rowdy kids to leave and was beaten unconscious by parent, TX cops say](https://news.yahoo.com/mall-worker-told-rowdy-kids-221221649.html)
+- Jan 26 - [Former prominent Atlanta attorney who shot his wife in SUV pleads guilty to lesser charges](https://news.yahoo.com/former-prominent-atlanta-attorney-shot-220513132.html)
 - Jan 26 - [Hear what judge told Trump’s lawyer before Trump walked during closing arguments](https://news.yahoo.com/hear-why-judge-told-trump-163719776.html)
-- Jan 26 - [Girl who took her own life left voicemail night before she died about school bullying torment](https://news.yahoo.com/girl-took-her-own-life-202218932.html)
-- Jan 26 - [New evidence shows Kari Lake's takedown of Arizona GOP boss was orchestrated](https://news.yahoo.com/evidence-shows-kari-lakes-takedown-194448486.html)
-- Jan 26 - [Supreme Court is urged to rule Trump is ineligible to be president again because of the Jan. 6 riot](https://news.yahoo.com/supreme-court-urged-rule-trump-194430587.html)
 <!-- feed end -->
 
 ### Onstream
