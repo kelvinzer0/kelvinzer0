@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 26 - [Man accused of smuggling migrant family who froze to death at border found living outside Toronto](https://news.yahoo.com/man-accused-of-smuggling-migrant-family-who-froze-to-death-at-border-found-living-outside-toronto-141054790.html)
-- Jan 26 - [Fact Check: This Photo of Trump at a Campaign Rally Has the Internet Asking if It's Real](https://news.yahoo.com/fact-check-photo-trump-campaign-140000050.html)
-- Jan 26 - [Private yachts, occasional wife-swapping and over-the-counter Ozempic: The secret lives of expats](https://www.yahoo.com/lifestyle/life-many-revolves-around-private-130412781.html)
-- Jan 26 - [Scientists make shocking WWII-era discovery off California coast: ‘It was a big surprise for us’](https://news.yahoo.com/scientists-shocking-wwii-era-discovery-150000339.html)
-- Jan 26 - [Greg Gutfeld's sexual obsession with AOC accidentally reveals the insecurities of the MAGA man](https://news.yahoo.com/greg-gutfelds-sexual-obsession-aoc-104503814.html)
+- Jan 26 - [Pro-Palestine Demonstrators Gather Outside International Court of Justice](https://news.yahoo.com/pro-palestine-demonstrators-gather-outside-154444228.html)
+- Jan 26 - [Tim Scott Slams ‘Morning Joe,’ CNN for ‘Vile’ Attacks on His Character: ‘Most Racists in the Country Are Liberals’ | Video](https://www.yahoo.com/entertainment/tim-scott-slams-morning-joe-153350698.html)
+- Jan 26 - [Donald Trump abruptly walked out of court as E. Jean Carroll's lawyer argued he doesn't respect the jury](https://news.yahoo.com/donald-trump-abruptly-walked-court-153158481.html)
+- Jan 26 - [Watch the moment Lauren Boebert was asked to 'give the definition of carpetbagger' in the first GOP debate in her new district](https://news.yahoo.com/watch-moment-lauren-boebert-asked-145737304.html)
+- Jan 26 - [Exclusive-Russia struggles to sell Pacific oil, 14 tankers stuck - sources, data](https://finance.yahoo.com/news/exclusive-russia-struggles-sell-pacific-141422352.html)
 <!-- feed end -->
 
 ### Onstream
