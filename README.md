@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 26 - [Alabama Kills Kenneth Smith In First-Ever Nitrogen Gas Execution](https://news.yahoo.com/alabama-kills-kenneth-smith-first-023250004.html)
+- Jan 26 - [Exclusive-China presses Iran to rein in Houthi attacks in Red Sea, sources say](https://news.yahoo.com/exclusive-china-presses-iran-rein-010221870.html)
+- Jan 26 - [Trump Had a Very Good Reason to Take the Stand Against E. Jean Carroll](https://news.yahoo.com/trump-had-very-good-reason-000337003.html)
 - Jan 26 - [The U.S. just sold its helium stockpile. Here’s why the medical world is worried.](https://news.yahoo.com/u-just-sold-helium-stockpile-000321805.html)
-- Jan 25 - [Map: See where cicada broods will emerge for first time in over 200 years](https://news.yahoo.com/map-see-where-cicada-broods-213754990.html)
-- Jan 25 - [Missouri Republican leader suggests expulsion of GOP lawmaker as tensions mount in state Senate](https://news.yahoo.com/missouri-republican-leader-suggests-expulsion-213605827.html)
-- Jan 25 - [Four Las Vegas high school students plead not guilty to murder in deadly beating of schoolmate](https://news.yahoo.com/four-las-vegas-high-school-210748078.html)
-- Jan 25 - [Experts slam Trump's lawyer for letting him testify: "Habba did absolutely no good for her client"](https://news.yahoo.com/experts-slam-trumps-lawyer-letting-204516570.html)
+- Jan 25 - [Mexican military swarms popular American tourist spot amid crime surge](https://news.yahoo.com/mexican-military-swarms-popular-american-230453221.html)
 <!-- feed end -->
 
 ### Onstream
