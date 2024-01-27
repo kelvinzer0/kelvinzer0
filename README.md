@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jan 27 - [New Report Shows Electric Vehicles Are Unreliable — These 3 Are the Worst](https://finance.yahoo.com/news/report-shows-electric-vehicles-unreliable-160029308.html)
 - Jan 27 - [Mother’s anger after woman who stabbed schoolgirl five times walks free from court](https://news.yahoo.com/mother-anger-woman-stabbed-schoolgirl-153628113.html)
 - Jan 27 - [More countries pause funds for UN Palestinian agency; Israel wants it replaced](https://news.yahoo.com/britain-italy-finland-pause-funding-151137969.html)
-- Jan 27 - [Earth’s Forces Are Causing This Massive Plate to Split in Two](https://www.yahoo.com/tech/earth-forces-causing-massive-plate-130000092.html)
+- Jan 27 - [Mexico confirms some Mayan ruin sites are unreachable because of gang violence and land conflicts](https://news.yahoo.com/mexico-confirms-mayan-ruin-sites-150213894.html)
 <!-- feed end -->
 
 ### Onstream
