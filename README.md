@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 27 - [Biden backs Senate border deal, vows to shut down border when overwhelmed](https://news.yahoo.com/biden-backs-senate-border-deal-001856174.html)
+- Jan 27 - [Woman committed to mental institution in Slender Man attack again requests release](https://news.yahoo.com/woman-committed-mental-institution-slender-000701233.html)
+- Jan 26 - [Abbott: Texas prepared in ‘unlikely event’ Biden federalizes National Guard](https://news.yahoo.com/abbott-texas-prepared-unlikely-event-224548474.html)
 - Jan 26 - [Why IBM's new retirement plan has the industry buzzing](https://finance.yahoo.com/video/why-ibms-retirement-plan-industry-222733642.html)
-- Jan 26 - [Donald Trump Breaks Silence On $83 Million E. Jean Carroll Verdict: ‘Absolutely Ridiculous’](https://www.yahoo.com/entertainment/donald-trump-breaks-silence-83-222142720.html)
 - Jan 26 - [Mall worker told rowdy kids to leave and was beaten unconscious by parent, TX cops say](https://news.yahoo.com/mall-worker-told-rowdy-kids-221221649.html)
-- Jan 26 - [Former prominent Atlanta attorney who shot his wife in SUV pleads guilty to lesser charges](https://news.yahoo.com/former-prominent-atlanta-attorney-shot-220513132.html)
-- Jan 26 - [Hear what judge told Trump’s lawyer before Trump walked during closing arguments](https://news.yahoo.com/hear-why-judge-told-trump-163719776.html)
 <!-- feed end -->
 
 ### Onstream
