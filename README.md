@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 27 - [‘How much crime do you have?’: Joe Rogan slammed this major country for ‘going after farmers’ — then mocked another for slaughtering cows in the name of climate change. Here's his solution](https://finance.yahoo.com/news/much-crime-joe-rogan-slammed-113000797.html)
+- Jan 27 - [Trump wants Americans to pay up for his crimes](https://news.yahoo.com/trump-wants-americans-pay-crimes-110005620.html)
+- Jan 27 - [Scientists make disturbing discovery about almost all protein sources: ‘There’s no way to hide’](https://news.yahoo.com/scientists-disturbing-discovery-almost-protein-100000630.html)
+- Jan 27 - [Mom holds HIV-positive man at gunpoint after finding him raping young daughter: police](https://news.yahoo.com/mom-holds-hiv-positive-man-090019694.html)
 - Jan 27 - [Arkansas squatters stake claim on land, says it belongs to them since they are part of exclusive group: police](https://news.yahoo.com/arkansas-squatters-stake-claim-land-050849818.html)
-- Jan 27 - [Disturbing report reveals ‘horrifying’ effect of Texas border wall: ‘Proof that border barriers are deathtraps’](https://news.yahoo.com/disturbing-report-reveals-horrifying-effect-050000462.html)
-- Jan 27 - [Trump's 'disrespectful' behavior during E. Jean Carroll trial turned the jury against him and saddled him with an $83.3 million bill, legal experts say](https://news.yahoo.com/trumps-disrespectful-behavior-during-e-031148761.html)
-- Jan 27 - [Girl, 17, diagnosed with stage 4 cancer after doctors said her back pain was a pulled muscle](https://news.yahoo.com/girl-17-diagnosed-stage-4-022042544.html)
-- Jan 27 - [Other passengers support man who opened emergency exit and walked on plane's wing in Mexico airport](https://news.yahoo.com/other-passengers-support-man-opened-002546978.html)
 <!-- feed end -->
 
 ### Onstream
