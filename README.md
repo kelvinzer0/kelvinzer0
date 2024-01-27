@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 27 - [Rep. Marjorie Taylor Greene calls for 'national divorce' between red and blue states amid Texas border standoff over migration](https://news.yahoo.com/rep-marjorie-taylor-greene-calls-170736609.html)
 - Jan 27 - [Mexico confirms some Mayan ruin sites are unreachable because of gang violence and land conflicts](https://news.yahoo.com/mexico-confirms-mayan-ruin-sites-150213894.html)
 - Jan 27 - [A convoy calling themselves 'God's army' plans to head to the Texas border to stop migrants from entering the US](https://news.yahoo.com/convoy-calling-themselves-gods-army-121219238.html)
 - Jan 27 - [Twins separated and sold as babies reunited after one saw the other on TikTok](https://news.yahoo.com/twins-separated-sold-babies-reunited-120227126.html)
 - Jan 27 - [A total solar eclipse in April will cross 13 US states: Which ones are on the path?](https://news.yahoo.com/total-solar-eclipse-april-cross-120223107.html)
-- Jan 27 - [‘How much crime do you have?’: Joe Rogan slammed this major country for ‘going after farmers’ — then mocked another for slaughtering cows in the name of climate change. Here's his solution](https://finance.yahoo.com/news/much-crime-joe-rogan-slammed-113000797.html)
 <!-- feed end -->
 
 ### Onstream
