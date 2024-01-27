@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 27 - [Girl, 17, diagnosed with stage 4 cancer after doctors said her back pain was a pulled muscle](https://news.yahoo.com/girl-17-diagnosed-stage-4-022042544.html)
+- Jan 27 - [After $80 Million Verdict, Trump Has a Jury Problem Ahead of Criminal Trial](https://news.yahoo.com/80-million-verdict-trump-jury-012754074.html)
+- Jan 27 - [Other passengers support man who opened emergency exit and walked on plane's wing in Mexico airport](https://news.yahoo.com/other-passengers-support-man-opened-002546978.html)
 - Jan 27 - [Biden backs Senate border deal, vows to 'shut down the border' when overwhelmed](https://news.yahoo.com/biden-backs-senate-border-deal-001856174.html)
 - Jan 27 - [Woman committed to mental institution in Slender Man attack again requests release](https://news.yahoo.com/woman-committed-mental-institution-slender-000701233.html)
-- Jan 26 - [Abbott: Texas prepared in ‘unlikely event’ Biden federalizes National Guard](https://news.yahoo.com/abbott-texas-prepared-unlikely-event-224548474.html)
-- Jan 26 - [Why IBM's new retirement plan has the industry buzzing](https://finance.yahoo.com/video/why-ibms-retirement-plan-industry-222733642.html)
 <!-- feed end -->
 
 ### Onstream
