@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 27 - [Twins separated and sold as babies reunited after one saw the other on TikTok](https://news.yahoo.com/twins-separated-sold-babies-reunited-120227126.html)
 - Jan 27 - [‘How much crime do you have?’: Joe Rogan slammed this major country for ‘going after farmers’ — then mocked another for slaughtering cows in the name of climate change. Here's his solution](https://finance.yahoo.com/news/much-crime-joe-rogan-slammed-113000797.html)
 - Jan 27 - [Trump wants Americans to pay up for his crimes](https://news.yahoo.com/trump-wants-americans-pay-crimes-110005620.html)
 - Jan 27 - [Scientists make disturbing discovery about almost all protein sources: ‘There’s no way to hide’](https://news.yahoo.com/scientists-disturbing-discovery-almost-protein-100000630.html)
 - Jan 27 - [Mom holds HIV-positive man at gunpoint after finding him raping young daughter: police](https://news.yahoo.com/mom-holds-hiv-positive-man-090019694.html)
-- Jan 27 - [Arkansas squatters stake claim on land, says it belongs to them since they are part of exclusive group: police](https://news.yahoo.com/arkansas-squatters-stake-claim-land-050849818.html)
 <!-- feed end -->
 
 ### Onstream
