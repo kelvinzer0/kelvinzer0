@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 27 - [Biden backs Senate border deal, vows to shut down border when overwhelmed](https://news.yahoo.com/biden-backs-senate-border-deal-001856174.html)
+- Jan 27 - [Biden backs Senate border deal, vows to 'shut down the border' when overwhelmed](https://news.yahoo.com/biden-backs-senate-border-deal-001856174.html)
 - Jan 27 - [Woman committed to mental institution in Slender Man attack again requests release](https://news.yahoo.com/woman-committed-mental-institution-slender-000701233.html)
 - Jan 26 - [Abbott: Texas prepared in ‘unlikely event’ Biden federalizes National Guard](https://news.yahoo.com/abbott-texas-prepared-unlikely-event-224548474.html)
+- Jan 26 - [DJ Rick Buchanan Found Decapitated in Memphis Home](https://www.yahoo.com/entertainment/dj-rick-buchanan-found-decapitated-224000575.html)
 - Jan 26 - [Why IBM's new retirement plan has the industry buzzing](https://finance.yahoo.com/video/why-ibms-retirement-plan-industry-222733642.html)
-- Jan 26 - [Mall worker told rowdy kids to leave and was beaten unconscious by parent, TX cops say](https://news.yahoo.com/mall-worker-told-rowdy-kids-221221649.html)
 <!-- feed end -->
 
 ### Onstream
