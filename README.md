@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 28 - [As war creeps closer to Armageddon, the end of days doesn’t seem so far away](https://news.yahoo.com/third-war-happening-now-atop-151848567.html)
+- Jan 28 - [Austin experimented with giving people $1,000 a month. They spent the no-strings-attached cash mostly on housing, a study found.](https://news.yahoo.com/austin-experimented-giving-people-1-141522585.html)
+- Jan 28 - [British skydiver dies in fall from 29-storey tower block in Thailand](https://news.yahoo.com/british-skydiver-dies-fall-29-141339256.html)
 - Jan 28 - [Donald Trump wants to impose a 10% tariff. Here's what happened when Nixon tried the same thing.](https://finance.yahoo.com/news/donald-trump-wants-to-impose-a-10-tariff-heres-what-happened-when-nixon-tried-the-same-thing-140002092.html)
-- Jan 28 - [‘This is criminal’: Atlanta contractor slapped with $30K water bill — for an empty lot with no water line. The utility company doused his hopes for justice](https://finance.yahoo.com/news/criminal-atlanta-contractor-slapped-30k-110000412.html)
-- Jan 28 - [Special monitor suggests Trump falsified disclosures over $48 million loan in what could be tax evasion, report says](https://news.yahoo.com/special-monitor-suggests-trump-falsified-071730176.html)
-- Jan 28 - [‘SNL’ Weekend Update Roasts Donald Trump After Defamation Trial Verdict & “De-Bank” Fumble](https://www.yahoo.com/entertainment/snl-weekend-roasts-donald-trump-060241996.html)
-- Jan 28 - [Michigan case offers an example of how public trust suffers when police officers lie](https://news.yahoo.com/michigan-case-offers-example-public-050237691.html)
+- Jan 28 - [China allows Philippines to supply troops at disputed reef](https://news.yahoo.com/china-allows-philippines-supply-troops-130834751.html)
 <!-- feed end -->
 
 ### Onstream
