@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 28 - [Three US service members killed, 34 wounded in Jordan drone attack linked to Iran](https://news.yahoo.com/biden-says-three-us-members-164810010.html)
+- Jan 28 - [Biden: Three Americans killed, 'many' wounded in drone attack by Iran-backed militia in Jordan](https://news.yahoo.com/biden-three-americans-killed-many-164752549.html)
 - Jan 28 - [As war creeps closer to Armageddon, the end of days doesn’t seem so far away](https://news.yahoo.com/third-war-happening-now-atop-151848567.html)
+- Jan 28 - [US special operations forces are searching for a new extreme long-range rifle for their next big fight as Ukraine shows the damage that snipers can do](https://news.yahoo.com/us-special-operations-forces-searching-150002122.html)
 - Jan 28 - [Austin experimented with giving people $1,000 a month. They spent the no-strings-attached cash mostly on housing, a study found.](https://news.yahoo.com/austin-experimented-giving-people-1-141522585.html)
-- Jan 28 - [British skydiver dies in fall from 29-storey tower block in Thailand](https://news.yahoo.com/british-skydiver-dies-fall-29-141339256.html)
-- Jan 28 - [Donald Trump wants to impose a 10% tariff. Here's what happened when Nixon tried the same thing.](https://finance.yahoo.com/news/donald-trump-wants-to-impose-a-10-tariff-heres-what-happened-when-nixon-tried-the-same-thing-140002092.html)
-- Jan 28 - [China allows Philippines to supply troops at disputed reef](https://news.yahoo.com/china-allows-philippines-supply-troops-130834751.html)
 <!-- feed end -->
 
 ### Onstream
