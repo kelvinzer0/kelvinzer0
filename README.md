@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 28 - [Donald Trump wants to impose a 10% tariff. Here's what happened when Nixon tried the same thing.](https://finance.yahoo.com/news/donald-trump-wants-to-impose-a-10-tariff-heres-what-happened-when-nixon-tried-the-same-thing-140002092.html)
 - Jan 28 - [‘This is criminal’: Atlanta contractor slapped with $30K water bill — for an empty lot with no water line. The utility company doused his hopes for justice](https://finance.yahoo.com/news/criminal-atlanta-contractor-slapped-30k-110000412.html)
 - Jan 28 - [Special monitor suggests Trump falsified disclosures over $48 million loan in what could be tax evasion, report says](https://news.yahoo.com/special-monitor-suggests-trump-falsified-071730176.html)
 - Jan 28 - [Michigan case offers an example of how public trust suffers when police officers lie](https://news.yahoo.com/michigan-case-offers-example-public-050237691.html)
 - Jan 28 - [A former US Air Force officer spent $11 million searching for Amelia Earhart's long-lost plane — and may have found it](https://news.yahoo.com/former-us-air-force-officer-045818108.html)
-- Jan 28 - [Fugitive Kaitlin Armstrong caught after answering ad for a yoga instructor](https://news.yahoo.com/fugitive-kaitlin-armstrong-caught-answering-040800633.html)
 <!-- feed end -->
 
 ### Onstream
