@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 27 - [Ukraine says it uncovers mass fraud in weapons procurement](https://news.yahoo.com/ukraine-says-uncovers-mass-fraud-225706554.html)
+- Jan 27 - [A snowboarder spent 15 hours trapped in a ski gondola. She rubbed her hands and feet to keep warm](https://news.yahoo.com/snowboarder-spent-15-hours-trapped-224036777.html)
 - Jan 27 - [After LA police raid home of Black Lives Matter attorney, a judge orders photographs destroyed](https://news.yahoo.com/la-police-raid-home-black-220522016.html)
 - Jan 27 - [If You Invested $1000 In Apple When The iPad Was Launched 14 Years Ago, Here's How Much You'd Have Today](https://finance.yahoo.com/news/invested-1000-apple-ipad-launched-165158882.html)
 - Jan 27 - [New Report Shows Electric Vehicles Are Unreliable — These 3 Are the Worst](https://finance.yahoo.com/news/report-shows-electric-vehicles-unreliable-160029308.html)
-- Jan 27 - [More countries pause funds for UN Palestinian agency; Israel wants it replaced](https://news.yahoo.com/britain-italy-finland-pause-funding-151137969.html)
-- Jan 27 - [Mexico confirms some Mayan ruin sites are unreachable because of gang violence and land conflicts](https://news.yahoo.com/mexico-confirms-mayan-ruin-sites-150213894.html)
 <!-- feed end -->
 
 ### Onstream
