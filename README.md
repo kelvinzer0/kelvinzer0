@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 28 - [Special monitor suggests Trump falsified disclosures over $48 million loan in what could be tax evasion, report says](https://news.yahoo.com/special-monitor-suggests-trump-falsified-071730176.html)
+- Jan 28 - [‘SNL’ Weekend Update Roasts Donald Trump After Defamation Trial Verdict & “De-Bank” Fumble](https://www.yahoo.com/entertainment/snl-weekend-roasts-donald-trump-060241996.html)
 - Jan 28 - [Michigan case offers an example of how public trust suffers when police officers lie](https://news.yahoo.com/michigan-case-offers-example-public-050237691.html)
 - Jan 28 - [A former US Air Force officer spent $11 million searching for Amelia Earhart's long-lost plane — and may have found it](https://news.yahoo.com/former-us-air-force-officer-045818108.html)
-- Jan 28 - [A China-Taiwan war simulation that assumes a Trump return to office in 2025 warns that Taiwan would be 'toast'](https://news.yahoo.com/china-taiwan-war-simulation-assumes-044033698.html)
-- Jan 27 - [Cheney recirculates Stefanik Jan. 6 statement after she reportedly deletes it](https://news.yahoo.com/cheney-recirculates-stefanik-jan-6-235544700.html)
-- Jan 27 - [I’m a British woman in Ohio — I thought I was moving to a country where everybody shot each other, I was wrong](https://news.yahoo.com/m-british-woman-ohio-thought-230749883.html)
+- Jan 28 - [A China-Taiwan war simulation that assumes a Trump return to office in 2025 warns Taiwan would be 'toast'](https://news.yahoo.com/china-taiwan-war-simulation-assumes-044033698.html)
 <!-- feed end -->
 
 ### Onstream
