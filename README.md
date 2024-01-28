@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 28 - [Fact Check: Rumors Have Swirled For Years That Trump Once Said Republicans Are the 'Dumbest Group of Voters.' Here Are the Facts](https://news.yahoo.com/fact-check-rumors-swirled-years-190000426.html)
+- Jan 28 - [Rep. Ocasio-Cortez says Americans should not ‘toss someone out of our public discourse’ for accusing Israel of genocide](https://news.yahoo.com/rep-ocasio-cortez-says-americans-184022573.html)
+- Jan 28 - [Reaction to drone strike on US troops in Jordan](https://news.yahoo.com/reaction-drone-strike-us-troops-182243375.html)
+- Jan 28 - [Woman says she lost her voice screaming after she was stuck overnight on ski resort gondola](https://www.yahoo.com/lifestyle/woman-says-she-lost-her-181816268.html)
 - Jan 28 - [Trump targets New York judge, AG as civil fraud case verdict looms](https://news.yahoo.com/trump-targets-york-judge-ag-181803044.html)
-- Jan 28 - [I got laid off from my dream job at LinkedIn. 6 months later, I got an offer from Google for almost double the salary.](https://www.yahoo.com/tech/got-laid-off-dream-job-171131553.html)
-- Jan 28 - [31 American Things That Confuse The Absolute Heck Out Of British People](https://www.yahoo.com/lifestyle/31-american-things-confuse-absolute-165405161.html)
-- Jan 28 - [Three US troops killed, up to 34 injured in Jordan drone strike linked to Iran](https://news.yahoo.com/biden-says-three-us-members-164810010.html)
-- Jan 28 - [Three US troops are killed and 25 injured in drone strike by Iran-backed militia in Jordan, US says](https://news.yahoo.com/biden-three-americans-killed-many-164752549.html)
 <!-- feed end -->
 
 ### Onstream
