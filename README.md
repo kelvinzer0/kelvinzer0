@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 28 - [Woman says she lost her voice screaming after she was stuck overnight on ski resort gondola](https://www.yahoo.com/lifestyle/woman-says-she-lost-her-181816268.html)
+- Jan 28 - [The Reason Behind Donald Trump’s Changing Hair Color Revealed](https://www.yahoo.com/entertainment/reason-behind-donald-trump-changing-193531208.html)
+- Jan 28 - ['Don't sit on it' warns woman whose husband died of strep A](https://news.yahoo.com/dont-sit-warns-woman-whose-192616324.html)
 - Jan 28 - [Fact Check: Rumors Have Swirled For Years That Trump Once Said Republicans Are the 'Dumbest Group of Voters.' Here Are the Facts](https://news.yahoo.com/fact-check-rumors-swirled-years-190000426.html)
 - Jan 28 - [Rep. Ocasio-Cortez says Americans should not ‘toss someone out of our public discourse’ for accusing Israel of genocide](https://news.yahoo.com/rep-ocasio-cortez-says-americans-184022573.html)
-- Jan 28 - [Reaction to drone strike on US troops in Jordan](https://news.yahoo.com/reaction-drone-strike-us-troops-182243375.html)
-- Jan 28 - [Woman says she lost her voice screaming after she was stuck overnight on ski resort gondola](https://www.yahoo.com/lifestyle/woman-says-she-lost-her-181816268.html)
-- Jan 28 - [Trump targets New York judge, AG as civil fraud case verdict looms](https://news.yahoo.com/trump-targets-york-judge-ag-181803044.html)
 <!-- feed end -->
 
 ### Onstream
