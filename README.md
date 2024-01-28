@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 28 - [Trump targets New York judge, AG as civil fraud case verdict looms](https://news.yahoo.com/trump-targets-york-judge-ag-181803044.html)
 - Jan 28 - [I got laid off from my dream job at LinkedIn. 6 months later, I got an offer from Google for almost double the salary.](https://www.yahoo.com/tech/got-laid-off-dream-job-171131553.html)
 - Jan 28 - [31 American Things That Confuse The Absolute Heck Out Of British People](https://www.yahoo.com/lifestyle/31-american-things-confuse-absolute-165405161.html)
 - Jan 28 - [Three US troops killed, up to 34 injured in Jordan drone strike linked to Iran](https://news.yahoo.com/biden-says-three-us-members-164810010.html)
-- Jan 28 - [Three US troops killed and 'many' wounded in drone attack by Iran-backed militia in Jordan, US says](https://news.yahoo.com/biden-three-americans-killed-many-164752549.html)
-- Jan 28 - [Where Is Hamas Getting Its Weapons? Increasingly, From Israel.](https://news.yahoo.com/where-hamas-getting-weapons-increasingly-160335631.html)
+- Jan 28 - [Three US troops are killed and 25 injured in drone strike by Iran-backed militia in Jordan, US says](https://news.yahoo.com/biden-three-americans-killed-many-164752549.html)
 <!-- feed end -->
 
 ### Onstream
