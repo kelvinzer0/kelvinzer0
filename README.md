@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Jan 27 - [Ukraine says it uncovers mass fraud in weapons procurement](https://news.yahoo.com/ukraine-says-uncovers-mass-fraud-225706554.html)
 - Jan 27 - [A snowboarder spent 15 hours trapped in a ski gondola. She rubbed her hands and feet to keep warm](https://news.yahoo.com/snowboarder-spent-15-hours-trapped-224036777.html)
 - Jan 27 - [After LA police raid home of Black Lives Matter attorney, a judge orders photographs destroyed](https://news.yahoo.com/la-police-raid-home-black-220522016.html)
-- Jan 27 - [If You Invested $1000 In Apple When The iPad Was Launched 14 Years Ago, Here's How Much You'd Have Today](https://finance.yahoo.com/news/invested-1000-apple-ipad-launched-165158882.html)
+- Jan 27 - [Under Biden, America has entered its darkest chapter in history](https://news.yahoo.com/under-biden-america-entered-darkest-170000511.html)
 <!-- feed end -->
 
 ### Onstream
