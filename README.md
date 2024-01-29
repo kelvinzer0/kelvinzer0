@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [American Airlines is sued for seizing cardholders' frequent flier miles](https://finance.yahoo.com/news/american-airlines-sued-seizing-cardholders-210731839.html)
+- Jan 29 - [NYC brothers were stockpiling an arsenal of bombs and ghost guns with a hit list, indictment says](https://news.yahoo.com/nyc-brothers-were-stockpiling-arsenal-205449064.html)
 - Jan 29 - [When a white supremacist threatened an Iraqi DEI coordinator in Maine, he fled the state](https://news.yahoo.com/white-supremacist-threatened-iraqi-dei-202603915.html)
+- Jan 29 - [Legal experts: Days after being hit with $83 million ruling, Trump faces "financial death penalty"](https://news.yahoo.com/legal-experts-days-being-hit-202119295.html)
 - Jan 29 - [World War Three is approaching fast, and too few are willing to admit why](https://news.yahoo.com/world-war-three-approaching-fast-200725730.html)
-- Jan 29 - [Grief and mourning for 3 US soldiers killed in Jordan drone strike who were based in Georgia](https://news.yahoo.com/georgia-father-ids-army-reservist-200357870.html)
-- Jan 29 - [‘Most-loving dog’ spends months waiting in Georgia shelter. Then familiar face shows up](https://news.yahoo.com/most-loving-dog-spends-months-193307397.html)
-- Jan 29 - [Where Are the Menendez Brothers Now?](https://news.yahoo.com/where-menendez-brothers-now-191500352.html)
 <!-- feed end -->
 
 ### Onstream
