@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 29 - [Ex-Prosecutor Spots Judge’s ‘Remarkable’ Warning To Donald Trump Jurors](https://news.yahoo.com/ex-prosecutor-spots-judge-remarkable-074916772.html)
+- Jan 29 - ['I think it's the fentanyl': Philippines' Marcos hits back at predecessor Duterte](https://news.yahoo.com/think-fentanyl-philippines-marcos-hits-074123612.html)
 - Jan 29 - [Taking away Trump’s business empire would stand alone under New York fraud law](https://news.yahoo.com/taking-away-trump-business-empire-061712563.html)
 - Jan 29 - [Dying thief who stole 'Wizard of Oz' ruby slippers from Minnesota museum will likely avoid prison](https://news.yahoo.com/dying-thief-stole-wizard-oz-050706162.html)
 - Jan 29 - [A retired admiral says the US needs to start building boats fast because China's going to outpace the US Navy in no time](https://news.yahoo.com/retired-admiral-says-us-needs-050230743.html)
-- Jan 29 - [CNN Doctor Trolls Trump Over 'Dementia' Boast With 1 Simple Sentence](https://news.yahoo.com/cnn-doctor-trolls-trump-over-045944368.html)
 <!-- feed end -->
 
 ### Onstream
