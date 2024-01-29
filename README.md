@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [‘Most-loving dog’ spends months waiting in Georgia shelter. Then familiar face shows up](https://news.yahoo.com/most-loving-dog-spends-months-193307397.html)
+- Jan 29 - [Georgia House votes to revive prosecutor oversight panel as Democrats warn of targeting Fani Willis](https://news.yahoo.com/georgia-house-votes-revive-prosecutor-185924865.html)
+- Jan 29 - [Counselor recalls concerns about Michigan school shooter at mother's trial](https://news.yahoo.com/counselor-recalls-concerns-michigan-school-185758652.html)
 - Jan 29 - [Man beats 79-year-old with her husband’s cane after asking for money at store, feds say](https://news.yahoo.com/man-beats-79-old-her-183028573.html)
-- Jan 29 - [President Biden has said he'd shut the U.S.-Mexico border if given the ability. What does that mean?](https://news.yahoo.com/president-biden-said-hed-shut-182129517.html)
 - Jan 29 - [Sixth Grader Who Carried Out 'Slender Man' Stabbing Is Now 21 And Wants Freedom](https://news.yahoo.com/sixth-grader-carried-slender-man-174546395.html)
-- Jan 29 - [US Vows RETALIATION After Drone Strike Kills 3 US Troops; Senate Deal Allows Biden To SHUT Border](https://news.yahoo.com/us-vows-retaliation-drone-strike-173700355.html)
-- Jan 29 - ["Trump doesn't have an appeal": Experts say Trump may fire lawyer after being "burned very severely"](https://news.yahoo.com/trump-doesnt-appeal-experts-trump-171304346.html)
 <!-- feed end -->
 
 ### Onstream
