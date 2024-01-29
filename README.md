@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [When a white supremacist threatened an Iraqi DEI coordinator in Maine, he fled the state](https://news.yahoo.com/white-supremacist-threatened-iraqi-dei-202603915.html)
+- Jan 29 - [World War Three is approaching fast, and too few are willing to admit why](https://news.yahoo.com/world-war-three-approaching-fast-200725730.html)
+- Jan 29 - [Grief and mourning for 3 US soldiers killed in Jordan drone strike who were based in Georgia](https://news.yahoo.com/georgia-father-ids-army-reservist-200357870.html)
 - Jan 29 - [‘Most-loving dog’ spends months waiting in Georgia shelter. Then familiar face shows up](https://news.yahoo.com/most-loving-dog-spends-months-193307397.html)
-- Jan 29 - [Georgia House votes to revive prosecutor oversight panel as Democrats warn of targeting Fani Willis](https://news.yahoo.com/georgia-house-votes-revive-prosecutor-185924865.html)
-- Jan 29 - [Counselor recalls concerns about Michigan school shooter at mother's trial](https://news.yahoo.com/counselor-recalls-concerns-michigan-school-185758652.html)
-- Jan 29 - [Man beats 79-year-old with her husband’s cane after asking for money at store, feds say](https://news.yahoo.com/man-beats-79-old-her-183028573.html)
-- Jan 29 - [Sixth Grader Who Carried Out 'Slender Man' Stabbing Is Now 21 And Wants Freedom](https://news.yahoo.com/sixth-grader-carried-slender-man-174546395.html)
+- Jan 29 - [Where Are the Menendez Brothers Now?](https://news.yahoo.com/where-menendez-brothers-now-191500352.html)
 <!-- feed end -->
 
 ### Onstream
