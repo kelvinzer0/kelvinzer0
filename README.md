@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [Jasmine Crockett Crucifies Lauren Boebert's Showing In Colorado Straw Poll](https://news.yahoo.com/jasmine-crockett-crucifies-lauren-boeberts-132525792.html)
+- Jan 29 - [Teen was determined to get photo of burglary suspect, so he beat her, Florida cops say](https://news.yahoo.com/teen-determined-photo-burglary-suspect-131028697.html)
 - Jan 29 - [Prisoners in the US are part of a hidden workforce linked to hundreds of popular food brands](https://news.yahoo.com/prisoners-us-part-hidden-workforce-125458768.html)
+- Jan 29 - [E. Jean Carroll says she plans to use $83 million on 'something Donald Trump hates'](https://news.yahoo.com/e-jean-carroll-says-she-125100194.html)
 - Jan 29 - [Large rattlesnake gets itself in odd predicament while prowling Arizona garage](https://news.yahoo.com/large-rattlesnake-gets-itself-odd-122246549.html)
-- Jan 29 - [Arizona Republicans Relentlessly Boo Kari Lake On Home Turf Following Scandal](https://news.yahoo.com/arizona-republicans-relentlessly-boo-kari-120727381.html)
-- Jan 29 - [Elon Musk had to be drug tested for a whole year after smoking weed on Joe Rogan’s podcast — and now the FDA is thinking about defining marijuana as a lower-risk drug. Here's what that means](https://finance.yahoo.com/news/elon-musk-had-drug-tested-120000445.html)
-- Jan 29 - ['People think that it's the roof leaking': Experts voice concerns over growing reports of attic rain](https://news.yahoo.com/people-think-roof-leaking-experts-120000442.html)
 <!-- feed end -->
 
 ### Onstream
