@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [Taking away Trump’s business empire would stand alone under New York fraud law](https://news.yahoo.com/taking-away-trump-business-empire-061712563.html)
 - Jan 29 - [Dying thief who stole 'Wizard of Oz' ruby slippers from Minnesota museum will likely avoid prison](https://news.yahoo.com/dying-thief-stole-wizard-oz-050706162.html)
-- Jan 29 - [A retired admiral says the US needs to start building boats fast because China's going to outpace the US Navy in no time](https://news.yahoo.com/retired-admiral-says-us-needs-050230743.html)
 - Jan 29 - [CNN Doctor Trolls Trump Over 'Dementia' Boast With 1 Simple Sentence](https://news.yahoo.com/cnn-doctor-trolls-trump-over-045944368.html)
 - Jan 29 - [I'm Definitely Not Getting Any Sleep Tonight After Learning About These Horrifying, Shocking, And Upsetting Things](https://www.yahoo.com/lifestyle/im-definitely-not-getting-sleep-044603692.html)
 - Jan 29 - [Man accused of following woman into Las Vegas hotel room in violent sexual assault later arrested for stealing from buffet](https://news.yahoo.com/man-accused-following-woman-las-013033097.html)
