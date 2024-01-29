@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 28 - [The man who leaked Trump's taxes eluded investigators for years but was finally found after leaking info on Musk and Bezos, WSJ reports](https://news.yahoo.com/man-leaked-trumps-taxes-eluded-230938058.html)
 - Jan 28 - [A Rolex seller meets up with a Facebook Marketplace thief. It goes all wrong from there](https://news.yahoo.com/rolex-seller-meets-facebook-marketplace-223018715.html)
 - Jan 28 - [Hear how retired general thinks the US could respond to drone attack](https://news.yahoo.com/hear-retired-general-thinks-us-204128355.html)
 - Jan 28 - [Israel's president says the UN world court misrepresented his comments in its genocide ruling](https://news.yahoo.com/israels-president-says-un-world-203124697.html)
 - Jan 28 - [2 are in custody in Mississippi after baby girl is found abandoned behind dumpsters](https://news.yahoo.com/2-custody-mississippi-baby-girl-203009665.html)
+- Jan 28 - [Israeli settlers hold conference on resettlement in Gaza](https://news.yahoo.com/israeli-settlers-hold-conference-resettlement-201230088.html)
 <!-- feed end -->
 
 ### Onstream
