@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [Prisoners in the US are part of a hidden workforce linked to hundreds of popular food brands](https://news.yahoo.com/prisoners-us-part-hidden-workforce-125458768.html)
+- Jan 29 - [Large rattlesnake gets itself in odd predicament while prowling Arizona garage](https://news.yahoo.com/large-rattlesnake-gets-itself-odd-122246549.html)
 - Jan 29 - [Arizona Republicans Relentlessly Boo Kari Lake On Home Turf Following Scandal](https://news.yahoo.com/arizona-republicans-relentlessly-boo-kari-120727381.html)
 - Jan 29 - [Elon Musk had to be drug tested for a whole year after smoking weed on Joe Rogan’s podcast — and now the FDA is thinking about defining marijuana as a lower-risk drug. Here's what that means](https://finance.yahoo.com/news/elon-musk-had-drug-tested-120000445.html)
-- Jan 29 - ['I don't hire workaholics': Kevin O'Leary says there's 1 common trait shared by great investors, entrepreneurs, and managers — and it has 'nothing to do with business.' Do you have it?](https://finance.yahoo.com/news/dont-hire-workaholics-kevin-oleary-110000615.html)
-- Jan 29 - [The Red Sea fighting shows the humiliating difference between the US and Royal Navies](https://news.yahoo.com/red-sea-fighting-shows-humiliating-100848973.html)
-- Jan 29 - [Biden administration announces steps to prohibit use of salary history for federal employees, contractors](https://news.yahoo.com/biden-administration-announces-steps-prohibit-100000371.html)
+- Jan 29 - ['People think that it's the roof leaking': Experts voice concerns over growing reports of attic rain](https://news.yahoo.com/people-think-roof-leaking-experts-120000442.html)
 <!-- feed end -->
 
 ### Onstream
