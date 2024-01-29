@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 29 - [Secretary of Defense Austin expresses 'outrage and sorrow' over the killing of 3 U.S. troops in Jordan](https://news.yahoo.com/secretary-defense-austin-expresses-outrage-173333570.html)
-- Jan 29 - ['There's no playbook for this': This CEO cut employee salaries by 20% and implemented a 4-day workweek to avoid layoffs and save the company — here's what happened](https://finance.yahoo.com/news/theres-no-playbook-ceo-cut-161100585.html)
-- Jan 29 - [Video shows Ukraine taking out the front and back vehicles of a Russian armored convoy, trapping the others](https://news.yahoo.com/video-shows-ukraine-taking-front-160352480.html)
-- Jan 29 - [What is Tower 22, the military base that was attacked in Jordan where 3 US troops were killed?](https://news.yahoo.com/tower-22-military-attacked-jordan-152952485.html)
-- Jan 29 - [Wisconsin woman involved in Slender Man attack as child seeks release from psychiatric institute](https://news.yahoo.com/wisconsin-woman-involved-slender-man-152405644.html)
+- Jan 29 - [Man beats 79-year-old with her husband’s cane after asking for money at store, feds say](https://news.yahoo.com/man-beats-79-old-her-183028573.html)
+- Jan 29 - [President Biden has said he'd shut the U.S.-Mexico border if given the ability. What does that mean?](https://news.yahoo.com/president-biden-said-hed-shut-182129517.html)
+- Jan 29 - [Sixth Grader Who Carried Out 'Slender Man' Stabbing Is Now 21 And Wants Freedom](https://news.yahoo.com/sixth-grader-carried-slender-man-174546395.html)
+- Jan 29 - [US Vows RETALIATION After Drone Strike Kills 3 US Troops; Senate Deal Allows Biden To SHUT Border](https://news.yahoo.com/us-vows-retaliation-drone-strike-173700355.html)
+- Jan 29 - ["Trump doesn't have an appeal": Experts say Trump may fire lawyer after being "burned very severely"](https://news.yahoo.com/trump-doesnt-appeal-experts-trump-171304346.html)
 <!-- feed end -->
 
 ### Onstream
