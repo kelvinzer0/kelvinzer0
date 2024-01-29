@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - ['There's no playbook for this': This CEO cut employee salaries by 20% and implemented a 4-day workweek to avoid layoffs and save the company — here's what happened](https://finance.yahoo.com/news/theres-no-playbook-ceo-cut-161100585.html)
+- Jan 29 - [Video shows Ukraine taking out the front and back vehicles of a Russian armored convoy, trapping the others](https://news.yahoo.com/video-shows-ukraine-taking-front-160352322.html)
 - Jan 29 - [What is Tower 22, the military base that was attacked in Jordan where 3 US troops were killed?](https://news.yahoo.com/tower-22-military-attacked-jordan-152952485.html)
 - Jan 29 - [Wisconsin woman involved in Slender Man attack as child seeks release from psychiatric institute](https://news.yahoo.com/wisconsin-woman-involved-slender-man-152405644.html)
 - Jan 29 - [Mom charged with child neglect after son seen in Walmart in diaper amid cold snap: Reports](https://news.yahoo.com/mom-charged-child-neglect-son-152206077.html)
-- Jan 29 - [Arkansas Mechanic's Arrest Sparks Debate Over Police Conduct](https://news.yahoo.com/arkansas-mechanics-arrest-sparks-debate-152725093.html)
-- Jan 29 - [China is protesting interrogations and deportations of its students at US entry points](https://news.yahoo.com/china-protesting-interrogations-deportations-students-141246562.html)
 <!-- feed end -->
 
 ### Onstream
