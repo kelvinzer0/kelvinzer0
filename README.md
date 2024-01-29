@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [What is Tower 22, the military base that was attacked in Jordan where 3 US troops were killed?](https://news.yahoo.com/tower-22-military-attacked-jordan-152952485.html)
+- Jan 29 - [Wisconsin woman involved in Slender Man attack as child seeks release from psychiatric institute](https://news.yahoo.com/wisconsin-woman-involved-slender-man-152405644.html)
+- Jan 29 - [Mom charged with child neglect after son seen in Walmart in diaper amid cold snap: Reports](https://news.yahoo.com/mom-charged-child-neglect-son-152206077.html)
+- Jan 29 - [Arkansas Mechanic's Arrest Sparks Debate Over Police Conduct](https://news.yahoo.com/arkansas-mechanics-arrest-sparks-debate-152725093.html)
 - Jan 29 - [China is protesting interrogations and deportations of its students at US entry points](https://news.yahoo.com/china-protesting-interrogations-deportations-students-141246562.html)
-- Jan 29 - [Figure skater Valieva disqualified in Olympic doping case. Russians set to lose team gold to US](https://news.yahoo.com/teenager-valieva-disqualified-olympic-doping-140833357.html)
-- Jan 29 - [Russia is replacing its destroyed tanks at a rate of 100 a month, UK intel says](https://news.yahoo.com/russia-replacing-destroyed-tanks-rate-140105128.html)
-- Jan 29 - [Trump’s Secret Plan to Expand Presidential Immunity To ‘King George’ Levels](https://news.yahoo.com/trump-secret-plan-expand-presidential-140000268.html)
-- Jan 29 - [Jasmine Crockett Crucifies Lauren Boebert's Showing In Colorado Straw Poll](https://news.yahoo.com/jasmine-crockett-crucifies-lauren-boeberts-132525792.html)
 <!-- feed end -->
 
 ### Onstream
