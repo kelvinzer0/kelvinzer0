@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [China is protesting interrogations and deportations of its students at US entry points](https://news.yahoo.com/china-protesting-interrogations-deportations-students-141246562.html)
+- Jan 29 - [Figure skater Valieva disqualified in Olympic doping case. Russians set to lose team gold to US](https://news.yahoo.com/teenager-valieva-disqualified-olympic-doping-140833357.html)
+- Jan 29 - [Russia is replacing its destroyed tanks at a rate of 100 a month, UK intel says](https://news.yahoo.com/russia-replacing-destroyed-tanks-rate-140105128.html)
+- Jan 29 - [Trump’s Secret Plan to Expand Presidential Immunity To ‘King George’ Levels](https://news.yahoo.com/trump-secret-plan-expand-presidential-140000268.html)
 - Jan 29 - [Jasmine Crockett Crucifies Lauren Boebert's Showing In Colorado Straw Poll](https://news.yahoo.com/jasmine-crockett-crucifies-lauren-boeberts-132525792.html)
-- Jan 29 - [Teen was determined to get photo of burglary suspect, so he beat her, Florida cops say](https://news.yahoo.com/teen-determined-photo-burglary-suspect-131028697.html)
-- Jan 29 - [Prisoners in the US are part of a hidden workforce linked to hundreds of popular food brands](https://news.yahoo.com/prisoners-us-part-hidden-workforce-125458768.html)
-- Jan 29 - [E. Jean Carroll says she plans to use $83 million on 'something Donald Trump hates'](https://news.yahoo.com/e-jean-carroll-says-she-125100194.html)
-- Jan 29 - [Large rattlesnake gets itself in odd predicament while prowling Arizona garage](https://news.yahoo.com/large-rattlesnake-gets-itself-odd-122246549.html)
 <!-- feed end -->
 
 ### Onstream
