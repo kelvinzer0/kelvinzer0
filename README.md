@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [Arizona Republicans Relentlessly Boo Kari Lake On Home Turf Following Scandal](https://news.yahoo.com/arizona-republicans-relentlessly-boo-kari-120727381.html)
+- Jan 29 - [Elon Musk had to be drug tested for a whole year after smoking weed on Joe Rogan’s podcast — and now the FDA is thinking about defining marijuana as a lower-risk drug. Here's what that means](https://finance.yahoo.com/news/elon-musk-had-drug-tested-120000445.html)
+- Jan 29 - ['I don't hire workaholics': Kevin O'Leary says there's 1 common trait shared by great investors, entrepreneurs, and managers — and it has 'nothing to do with business.' Do you have it?](https://finance.yahoo.com/news/dont-hire-workaholics-kevin-oleary-110000615.html)
 - Jan 29 - [The Red Sea fighting shows the humiliating difference between the US and Royal Navies](https://news.yahoo.com/red-sea-fighting-shows-humiliating-100848973.html)
-- Jan 29 - [RNC's Bizarre Attack On Biden's Church Visit Backfires Spectacularly](https://news.yahoo.com/rncs-bizarre-attack-bidens-church-081405738.html)
-- Jan 29 - [Ex-Prosecutor Spots Judge’s ‘Remarkable’ Warning To Donald Trump Jurors](https://news.yahoo.com/ex-prosecutor-spots-judge-remarkable-074916772.html)
-- Jan 29 - ['I think it's the fentanyl': Philippines' Marcos hits back at predecessor Duterte](https://news.yahoo.com/think-fentanyl-philippines-marcos-hits-074123612.html)
-- Jan 29 - [Taking away Trump’s business empire would stand alone under New York fraud law](https://news.yahoo.com/taking-away-trump-business-empire-061712563.html)
+- Jan 29 - [Biden administration announces steps to prohibit use of salary history for federal employees, contractors](https://news.yahoo.com/biden-administration-announces-steps-prohibit-100000371.html)
 <!-- feed end -->
 
 ### Onstream
