@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Joe Biden Reveals What World Leaders Are Telling Him About Donald Trump](https://news.yahoo.com/joe-biden-reveals-world-leaders-100516925.html)
+- Jan 30 - [Kremlin, asked about potential US strikes on Iran, calls for all sides to de-escalate](https://news.yahoo.com/kremlin-asked-potential-us-strikes-100320247.html)
+- Jan 30 - [Seth Meyers Airs Fox News Moment That’s A Bad Sign For Donald Trump](https://www.yahoo.com/entertainment/seth-meyers-airs-fox-news-092507571.html)
 - Jan 30 - [Israeli undercover forces dressed as women and medics storm West Bank hospital, killing 3 militants](https://news.yahoo.com/israeli-undercover-forces-dressed-women-090548050.html)
 - Jan 30 - [Putin is trying to track down overseas properties that the Soviet Union owned and stake claims on them](https://news.yahoo.com/putin-trying-track-down-overseas-081141914.html)
-- Jan 30 - [Stephen Colbert Spots The Brain Test Trump Just Flunked Right In Front Of Everyone](https://www.yahoo.com/entertainment/stephen-colbert-spots-brain-test-063806531.html)
-- Jan 30 - ['Make Him Crazy': George Conway Reveals How To Get Under Trump's Skin](https://news.yahoo.com/him-crazy-george-conway-reveals-051228767.html)
-- Jan 30 - [Ukraine's strikes on targets inside Russia hurt Putin's efforts to show the war isn't hitting home](https://news.yahoo.com/ukraines-strikes-targets-inside-russia-050302600.html)
 <!-- feed end -->
 
 ### Onstream
