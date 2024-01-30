@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Ukraine-Russia war live: Putin ‘forms new Africa mercenary group’ with same name as Nazis](https://news.yahoo.com/ukraine-russia-war-live-putin-162417721.html)
+- Jan 30 - [Israeli troops kill three in West Bank hospital raid](https://news.yahoo.com/israeli-troops-kill-three-west-161211229.html)
+- Jan 30 - [Man who used women’s restroom in park is shot, beaten with gun, California cops say](https://news.yahoo.com/man-used-women-restroom-park-160334896.html)
 - Jan 30 - [Biden says he has decided how to respond to attack on US troops in Jordan](https://news.yahoo.com/biden-says-decided-respond-attack-160145764.html)
-- Jan 30 - [Amelia Earhart’s plane ‘found’ in depths of Pacific after $11m search](https://news.yahoo.com/amelia-earhart-plane-found-depths-142751803.html)
-- Jan 30 - [Bolton says Trump 'unfit' to be President in new memoir intro](https://news.yahoo.com/bolton-excoriates-trump-fresh-introduction-140708866.html)
-- Jan 30 - [“Would have to be an idiot”: Legal experts torch Trump lawyer’s “bogus motion” after Carroll ruling](https://news.yahoo.com/idiot-legal-experts-torch-trump-135514497.html)
-- Jan 30 - [Family of teen who died by suicide after video of her assault was posted online sues school](https://news.yahoo.com/family-teen-died-suicide-video-135136627.html)
+- Jan 30 - [I'm 1,000% Convinced That We're Living In A Matrix, And These 16 Photos Prove That We Are](https://www.yahoo.com/lifestyle/im-1-000-convinced-were-155128772.html)
 <!-- feed end -->
 
 ### Onstream
