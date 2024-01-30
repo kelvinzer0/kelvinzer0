@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jan 30 - [Stephen Colbert Spots The Brain Test Trump Just Flunked Right In Front Of Everyone](https://www.yahoo.com/entertainment/stephen-colbert-spots-brain-test-063806531.html)
 - Jan 30 - ['Make Him Crazy': George Conway Reveals How To Get Under Trump's Skin](https://news.yahoo.com/him-crazy-george-conway-reveals-051228767.html)
 - Jan 30 - [Ukraine's strikes on targets inside Russia hurt Putin's efforts to show the war isn't hitting home](https://news.yahoo.com/ukraines-strikes-targets-inside-russia-050302600.html)
-- Jan 30 - [Video of tourist’s unbelievable actions on edge of rock formation at national park sparks fury online: ‘Entitlement in the wild’](https://www.yahoo.com/lifestyle/video-tourist-unbelievable-actions-edge-033000052.html)
-- Jan 29 - [Fact Check: Donald Trump Says His Uncle Was an MIT Professor. Here's the Truth](https://news.yahoo.com/fact-check-donald-trump-says-235800572.html)
+- Jan 30 - [Startling new data links common environmental factor to brain damage and cancer: ‘It has completely crept under the radar’](https://news.yahoo.com/startling-data-links-common-environmental-043000442.html)
+- Jan 30 - [Elon Musk says his startup Neuralink has implanted a device in its first human](https://news.yahoo.com/elon-musk-says-startup-neuralink-034926959.html)
 <!-- feed end -->
 
 ### Onstream
