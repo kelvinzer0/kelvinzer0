@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [PayPal is laying off 2,500 employees](https://news.yahoo.com/paypal-is-laying-off-2500-employees-214628203.html)
-- Jan 30 - [AMD revenue tops Q4 estimates, earnings come in line](https://finance.yahoo.com/video/amd-revenue-tops-q4-estimates-213955644.html)
-- Jan 30 - [NYC Council overrides mayor's vetoes of solitary confinement ban, policing bill](https://news.yahoo.com/nyc-council-overrides-mayors-vetoes-213458031.html)
+- Jan 30 - [IMPD: 1 in critical condition after ‘aggressive’ attack by 2 dogs; officer fired shots](https://news.yahoo.com/impd-1-critical-condition-aggressive-223106661.html)
+- Jan 30 - [Colorado police chief on leave pending criminal case after reported rapes during party at his house](https://news.yahoo.com/colorado-police-chief-leave-pending-221109610.html)
+- Jan 30 - [Fact Check: Rumor Claims the White House Announced Biden Had a 187 IQ](https://news.yahoo.com/fact-check-rumor-claims-white-214700032.html)
 - Jan 30 - [FedEx driver accused of dumping $40,000 worth of packages is ordered to pay $805](https://news.yahoo.com/fedex-driver-accused-dumping-40-213142289.html)
-- Jan 30 - [Exclusive-Hotelier Robert Bigelow gives Trump $1 million for legal fees, to donate $20 million more](https://news.yahoo.com/exclusive-donor-bigelow-gave-trump-211943442.html)
+- Jan 30 - [Mother accused of causing child’s fall from KC high-rise by removing safety devices](https://news.yahoo.com/mother-accused-causing-child-fall-213044706.html)
 <!-- feed end -->
 
 ### Onstream
