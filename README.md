@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Ukraine-Russia war live: Putin ‘forms new Africa mercenary group’ with same name as Nazis](https://news.yahoo.com/ukraine-russia-war-live-putin-162417721.html)
-- Jan 30 - [Israeli troops kill three in West Bank hospital raid](https://news.yahoo.com/israeli-troops-kill-three-west-161211229.html)
-- Jan 30 - [Man who used women’s restroom in park is shot, beaten with gun, California cops say](https://news.yahoo.com/man-used-women-restroom-park-160334896.html)
-- Jan 30 - [Biden says he has decided how to respond to attack on US troops in Jordan](https://news.yahoo.com/biden-says-decided-respond-attack-160145764.html)
-- Jan 30 - [I'm 1,000% Convinced That We're Living In A Matrix, And These 16 Photos Prove That We Are](https://www.yahoo.com/lifestyle/im-1-000-convinced-were-155128772.html)
+- Jan 30 - [Oklahoma asks teachers to return up to $50,000 in bonuses the state says were paid in error](https://news.yahoo.com/oklahoma-asks-teachers-return-50-174526520.html)
+- Jan 30 - [Wisconsin Republicans are asking a liberal justice not to hear a redistricting case](https://news.yahoo.com/wisconsin-republicans-asking-liberal-justice-174012549.html)
+- Jan 30 - ["Particularly troubling": Ex-US attorney alarmed over Judge Cannon's "oddly scheduled" docs meeting](https://news.yahoo.com/particularly-troubling-ex-us-attorney-171856489.html)
+- Jan 30 - [Secret Putin home on Finnish border revealed by drone – complete with £8,000 bidets and ‘stolen’ waterfall](https://news.yahoo.com/secret-putin-home-finnish-border-165332451.html)
+- Jan 30 - [Trump Was Accused of Calling Fallen US Soldiers 'Suckers' and 'Losers.' We Examined the Evidence](https://news.yahoo.com/trump-accused-calling-fallen-us-163600242.html)
 <!-- feed end -->
 
 ### Onstream
