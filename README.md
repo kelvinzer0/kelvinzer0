@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Hit by car after being left at dump by police, Northern California woman wins huge settlement](https://news.yahoo.com/hit-car-being-left-dump-130000158.html)
+- Jan 30 - [‘A fundamentally huge blunder.’ California Secretary of State under fire for ballot error](https://news.yahoo.com/fundamentally-huge-blunder-california-secretary-125500906.html)
 - Jan 30 - [Russia to Japan: Drop territorial claim if you want a peace treaty](https://news.yahoo.com/russia-japan-drop-territorial-claim-122716017.html)
-- Jan 30 - [A passenger who caused fighter jets to flank an airliner after he privately joked about blowing up the plane was cleared and avoided a $120,000 bill](https://news.yahoo.com/passenger-caused-fighter-jets-flank-105000691.html)
-- Jan 30 - [Undercover Israeli troops dressed as medical staff kill three militants in West Bank hospital raid, officials say](https://news.yahoo.com/undercover-israeli-troops-dressed-medical-094403350.html)
-- Jan 30 - [Joe Biden Reveals What World Leaders Are Telling Him About Donald Trump](https://news.yahoo.com/joe-biden-reveals-world-leaders-100516925.html)
-- Jan 30 - [Aldi executive reveals monumental change that will affect millions of shoppers: ‘We’ve seen [the] data’](https://www.yahoo.com/lifestyle/aldi-executive-reveals-monumental-change-053000465.html)
+- Jan 30 - [Can Trump pay $83 million verdict? Hear expert’s prediction](https://news.yahoo.com/trump-pay-83-million-verdict-120055120.html)
+- Jan 30 - [An 83-year-old neurosurgeon who does triathlons has 3 tips for younger people who want to be as fit and healthy as him](https://www.yahoo.com/lifestyle/83-old-neurosurgeon-does-triathlons-115710101.html)
 <!-- feed end -->
 
 ### Onstream
