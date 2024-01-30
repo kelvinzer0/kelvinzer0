@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Russia to Japan: Drop territorial claim if you want a peace treaty](https://news.yahoo.com/russia-japan-drop-territorial-claim-122716017.html)
+- Jan 30 - [A passenger who caused fighter jets to flank an airliner after he privately joked about blowing up the plane was cleared and avoided a $120,000 bill](https://news.yahoo.com/passenger-caused-fighter-jets-flank-105000691.html)
 - Jan 30 - [Undercover Israeli troops dressed as medical staff kill three militants in West Bank hospital raid, officials say](https://news.yahoo.com/undercover-israeli-troops-dressed-medical-094403350.html)
 - Jan 30 - [Joe Biden Reveals What World Leaders Are Telling Him About Donald Trump](https://news.yahoo.com/joe-biden-reveals-world-leaders-100516925.html)
-- Jan 30 - [Kremlin, asked about potential US strikes on Iran, calls for all sides to de-escalate](https://news.yahoo.com/kremlin-asked-potential-us-strikes-100320247.html)
-- Jan 30 - [Seth Meyers Airs Fox News Moment That’s A Bad Sign For Donald Trump](https://www.yahoo.com/entertainment/seth-meyers-airs-fox-news-092507571.html)
-- Jan 30 - [Stephen Colbert Spots The Brain Test Trump Just Flunked Right In Front Of Everyone](https://www.yahoo.com/entertainment/stephen-colbert-spots-brain-test-063806531.html)
+- Jan 30 - [Aldi executive reveals monumental change that will affect millions of shoppers: ‘We’ve seen [the] data’](https://www.yahoo.com/lifestyle/aldi-executive-reveals-monumental-change-053000465.html)
 <!-- feed end -->
 
 ### Onstream
