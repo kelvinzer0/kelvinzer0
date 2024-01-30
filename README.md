@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Front-line Ukrainian soldier says the Russians basically 'have it all' when it comes to weapons, but tanks are probably among the more terrifying](https://news.yahoo.com/front-line-ukrainian-soldier-says-180121623.html)
 - Jan 30 - [Oklahoma asks teachers to return up to $50,000 in bonuses the state says were paid in error](https://news.yahoo.com/oklahoma-asks-teachers-return-50-174526520.html)
-- Jan 30 - [Wisconsin Republicans are asking a liberal justice not to hear a redistricting case](https://news.yahoo.com/wisconsin-republicans-asking-liberal-justice-174012549.html)
-- Jan 30 - ["Particularly troubling": Ex-US attorney alarmed over Judge Cannon's "oddly scheduled" docs meeting](https://news.yahoo.com/particularly-troubling-ex-us-attorney-171856489.html)
 - Jan 30 - [Secret Putin home on Finnish border revealed by drone – complete with £8,000 bidets and ‘stolen’ waterfall](https://news.yahoo.com/secret-putin-home-finnish-border-165332451.html)
+- Jan 30 - [She says she was raped by a Lyft driver and had a child. Now she’s suing](https://finance.yahoo.com/news/she-says-she-gave-birth-132757361.html)
 - Jan 30 - [Trump Was Accused of Calling Fallen US Soldiers 'Suckers' and 'Losers.' We Examined the Evidence](https://news.yahoo.com/trump-accused-calling-fallen-us-163600242.html)
 <!-- feed end -->
 
