@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Tropicana Las Vegas, a Sin City landmark since 1957, will be demolished to make way for MLB baseball](https://news.yahoo.com/tropicana-las-vegas-sin-city-204055717.html)
-- Jan 30 - [Experts: Trump may face "enhanced" penalties or criminal charges after monitor alleges fake loan](https://news.yahoo.com/experts-trump-may-face-enhanced-201326487.html)
-- Jan 30 - [The lies about her voting record have finally caught up with Congresswoman Salazar | Opinion](https://news.yahoo.com/lies-her-voting-record-finally-201306031.html)
-- Jan 30 - [California man arrested after $5 million-worth of Nike products found in warehouse](https://news.yahoo.com/california-man-arrested-5-million-195339436.html)
-- Jan 30 - [Iraq's Kataib Hezbollah suspends attacks on US forces](https://news.yahoo.com/iraqs-kataib-hezbollah-suspends-military-192714421.html)
+- Jan 30 - [PayPal is laying off 2,500 employees](https://news.yahoo.com/paypal-is-laying-off-2500-employees-214628203.html)
+- Jan 30 - [AMD revenue tops Q4 estimates, earnings come in line](https://finance.yahoo.com/video/amd-revenue-tops-q4-estimates-213955644.html)
+- Jan 30 - [NYC Council overrides mayor's vetoes of solitary confinement ban, policing bill](https://news.yahoo.com/nyc-council-overrides-mayors-vetoes-213458031.html)
+- Jan 30 - [FedEx driver accused of dumping $40,000 worth of packages is ordered to pay $805](https://news.yahoo.com/fedex-driver-accused-dumping-40-213142289.html)
+- Jan 30 - [Exclusive-Hotelier Robert Bigelow gives Trump $1 million for legal fees, to donate $20 million more](https://news.yahoo.com/exclusive-donor-bigelow-gave-trump-211943442.html)
 <!-- feed end -->
 
 ### Onstream
