@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 30 - [Burned remnants of prized Jackie Robinson statue found after theft from public park in Kansas](https://news.yahoo.com/burned-remnants-prized-jackie-robinson-195849024.html)
-- Jan 30 - [Kayleigh McEnany Predicts Trump’s VP Pick With an Unexpected Name: ‘Bring on That Guy!’](https://www.yahoo.com/entertainment/kayleigh-mcenany-predicts-trump-vp-190935695.html)
-- Jan 30 - [Front-line Ukrainian soldier says the Russians basically 'have it all' when it comes to weapons, but tanks are probably among the more terrifying](https://news.yahoo.com/front-line-ukrainian-soldier-says-180121623.html)
-- Jan 30 - [Official found it 'strange' that Michigan school shooter's mom didn't take him home over drawing](https://news.yahoo.com/official-found-strange-michigan-school-174736934.html)
-- Jan 30 - [Oklahoma asks teachers to return up to $50,000 in bonuses the state says were paid in error](https://news.yahoo.com/oklahoma-asks-teachers-return-50-174526520.html)
+- Jan 30 - [Tropicana Las Vegas, a Sin City landmark since 1957, will be demolished to make way for MLB baseball](https://news.yahoo.com/tropicana-las-vegas-sin-city-204055717.html)
+- Jan 30 - [Experts: Trump may face "enhanced" penalties or criminal charges after monitor alleges fake loan](https://news.yahoo.com/experts-trump-may-face-enhanced-201326487.html)
+- Jan 30 - [The lies about her voting record have finally caught up with Congresswoman Salazar | Opinion](https://news.yahoo.com/lies-her-voting-record-finally-201306031.html)
+- Jan 30 - [California man arrested after $5 million-worth of Nike products found in warehouse](https://news.yahoo.com/california-man-arrested-5-million-195339436.html)
+- Jan 30 - [Iraq's Kataib Hezbollah suspends attacks on US forces](https://news.yahoo.com/iraqs-kataib-hezbollah-suspends-military-192714421.html)
 <!-- feed end -->
 
 ### Onstream
