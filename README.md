@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - ['Make Him Crazy': George Conway Reveals How To Get Under Trump's Skin](https://news.yahoo.com/him-crazy-george-conway-reveals-051228767.html)
+- Jan 30 - [Ukraine's strikes on targets inside Russia hurt Putin's efforts to show the war isn't hitting home](https://news.yahoo.com/ukraines-strikes-targets-inside-russia-050302600.html)
+- Jan 30 - [Video of tourist’s unbelievable actions on edge of rock formation at national park sparks fury online: ‘Entitlement in the wild’](https://www.yahoo.com/lifestyle/video-tourist-unbelievable-actions-edge-033000052.html)
 - Jan 29 - [Fact Check: Donald Trump Says His Uncle Was an MIT Professor. Here's the Truth](https://news.yahoo.com/fact-check-donald-trump-says-235800572.html)
 - Jan 29 - [Trump lawyer says judge's possible conflict may taint $83 million Carroll verdict](https://news.yahoo.com/trump-lawyer-says-judges-possible-235542714.html)
-- Jan 29 - [Police say Minnesota man dressed as delivery driver in home invasion turned triple homicide](https://news.yahoo.com/police-minnesota-man-dressed-delivery-225803390.html)
-- Jan 29 - [Fact Check: Photographs Supposedly Show 3 US Soldiers Killed in January 2024 Attack. Here's What We Found](https://news.yahoo.com/fact-check-photographs-supposedly-show-225000634.html)
-- Jan 29 - [Hotel VP accused of drunkenly slapping teenage Disney World restaurant hostess over dress code snub](https://news.yahoo.com/hotel-vp-accused-drunkenly-slapping-221934693.html)
 <!-- feed end -->
 
 ### Onstream
