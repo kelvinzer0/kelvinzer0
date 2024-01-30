@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 30 - [Biden says he has decided how to respond to attack on US troops in Jordan](https://news.yahoo.com/biden-says-decided-respond-attack-160145764.html)
+- Jan 30 - [Amelia Earhart’s plane ‘found’ in depths of Pacific after $11m search](https://news.yahoo.com/amelia-earhart-plane-found-depths-142751803.html)
 - Jan 30 - [Bolton says Trump 'unfit' to be President in new memoir intro](https://news.yahoo.com/bolton-excoriates-trump-fresh-introduction-140708866.html)
 - Jan 30 - [“Would have to be an idiot”: Legal experts torch Trump lawyer’s “bogus motion” after Carroll ruling](https://news.yahoo.com/idiot-legal-experts-torch-trump-135514497.html)
 - Jan 30 - [Family of teen who died by suicide after video of her assault was posted online sues school](https://news.yahoo.com/family-teen-died-suicide-video-135136627.html)
-- Jan 30 - [Hit by car after being left at dump by police, Northern California woman wins huge settlement](https://news.yahoo.com/hit-car-being-left-dump-130000158.html)
-- Jan 30 - [‘A fundamentally huge blunder.’ California Secretary of State under fire for ballot error](https://news.yahoo.com/fundamentally-huge-blunder-california-secretary-125500906.html)
 <!-- feed end -->
 
 ### Onstream
