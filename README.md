@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Jan 29 - [Fact Check: Donald Trump Says His Uncle Was an MIT Professor. Here's the Truth](https://news.yahoo.com/fact-check-donald-trump-says-235800572.html)
 - Jan 29 - [Trump lawyer says judge's possible conflict may taint $83 million Carroll verdict](https://news.yahoo.com/trump-lawyer-says-judges-possible-235542714.html)
 - Jan 29 - [Police say Minnesota man dressed as delivery driver in home invasion turned triple homicide](https://news.yahoo.com/police-minnesota-man-dressed-delivery-225803390.html)
+- Jan 29 - [Fact Check: Photographs Supposedly Show 3 US Soldiers Killed in January 2024 Attack. Here's What We Found](https://news.yahoo.com/fact-check-photographs-supposedly-show-225000634.html)
 - Jan 29 - [Hotel VP accused of drunkenly slapping teenage Disney World restaurant hostess over dress code snub](https://news.yahoo.com/hotel-vp-accused-drunkenly-slapping-221934693.html)
-- Jan 29 - [Police Give Update In Chiefs Fans Case Who Were Found Frozen To Death](https://www.yahoo.com/entertainment/police-chiefs-fans-case-were-215055895.html)
 <!-- feed end -->
 
 ### Onstream
