@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 31 - [Man who beheaded ex-girlfriend with sword gets 26 years to life. Not enough, says judge](https://news.yahoo.com/man-beheaded-ex-girlfriend-sword-130017584.html)
+- Jan 31 - [The 'God's army' convoy traveling to Texas to stop migrants has seen a vehicle get lost, tires slashed, and someone stranded on the highway: report](https://news.yahoo.com/gods-army-convoy-traveling-texas-122516277.html)
 - Jan 31 - [Sean Hannity Lists 'Lies' About Republicans To Woo Taylor Swift To GOP — It Backfires](https://www.yahoo.com/entertainment/sean-hannity-lists-lies-republicans-114545802.html)
 - Jan 31 - [Homeowner uses ‘one of the oldest forms’ of construction to build incredible fire-resistant house that could withstand the next major blaze](https://www.yahoo.com/lifestyle/homeowner-uses-one-oldest-forms-113000345.html)
 - Jan 31 - [Chinese hackers are targeting US infrastructure, FBI chief to testify](https://news.yahoo.com/chinese-hackers-targeting-us-infrastructure-101454674.html)
-- Jan 31 - [No U.S. threat to Iran will go unanswered, Tehran says](https://news.yahoo.com/iran-warns-decisive-response-type-045642408.html)
-- Jan 31 - [Trump’s former national security adviser says world leaders think he’s a ‘laughing fool’](https://news.yahoo.com/trump-former-national-security-adviser-045215536.html)
 <!-- feed end -->
 
 ### Onstream
