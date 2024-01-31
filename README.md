@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 31 - [Hungry sea otters are helping save California's marshlands from erosion](https://news.yahoo.com/hungry-sea-otters-helping-save-161811388.html)
 - Jan 31 - [Trump says he's looking for new lawyers on Truth Social amid report he's not "happy" after $83M loss](https://news.yahoo.com/trump-says-hes-looking-lawyers-152437948.html)
+- Jan 31 - [Jordan Willis Cuffed In Undies After Chiefs Fans’ Found Dead [VIDEO]](https://www.yahoo.com/entertainment/jordan-willis-cuffed-undies-chiefs-151512873.html)
 - Jan 31 - [Danny Masterson Moved to Maximum-Security California State Prison That Once Held Charles Manson](https://www.yahoo.com/entertainment/danny-masterson-moved-maximum-security-144255978.html)
-- Jan 31 - [Paramount stock skyrockets on Byron Allen's $14 billion buyout report](https://finance.yahoo.com/news/paramount-stock-skyrockets-on-byron-allens-14-billion-buyout-report-132825453.html)
-- Jan 31 - [A Frontier Airlines passenger pulled down her pants and squatted in the aisle when she wasn't allowed to use the bathroom during landing, affidavit says](https://news.yahoo.com/frontier-airlines-passenger-pulled-down-141507209.html)
-- Jan 31 - [“Begging for money”: Trump under “enormous financial strain” as report reveals massive legal costs](https://news.yahoo.com/begging-money-trump-under-enormous-140940065.html)
+- Jan 31 - [Paramount stock jumps on Byron Allen's $14 billion buyout report](https://finance.yahoo.com/news/paramount-stock-jumps-on-byron-allens-14-billion-buyout-report-143552114.html)
 <!-- feed end -->
 
 ### Onstream
