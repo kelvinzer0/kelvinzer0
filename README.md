@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 31 - [US military revises account of what happened to 2 SEALs who died trying to board Yemen-bound ship](https://news.yahoo.com/us-military-revises-account-happened-175936545.html)
+- Jan 31 - [Investigator describes Michigan school shooter's mom as cold after her son killed four students](https://news.yahoo.com/investigator-describes-michigan-school-shooters-165140159.html)
+- Jan 31 - [Drinking straw DNA shows beautician is Lamborghini founder’s granddaughter, court hears](https://news.yahoo.com/drinking-straw-dna-shows-beautician-163211845.html)
 - Jan 31 - [Hungry sea otters are helping save California's marshlands from erosion](https://news.yahoo.com/hungry-sea-otters-helping-save-161811388.html)
 - Jan 31 - [Trump says he's looking for new lawyers on Truth Social amid report he's not "happy" after $83M loss](https://news.yahoo.com/trump-says-hes-looking-lawyers-152437948.html)
-- Jan 31 - [Jordan Willis Cuffed In Undies After Chiefs Fans’ Found Dead [VIDEO]](https://www.yahoo.com/entertainment/jordan-willis-cuffed-undies-chiefs-151512873.html)
-- Jan 31 - [Danny Masterson Moved to Maximum-Security California State Prison That Once Held Charles Manson](https://www.yahoo.com/entertainment/danny-masterson-moved-maximum-security-144255978.html)
-- Jan 31 - [Paramount stock jumps on Byron Allen's $14 billion buyout report](https://finance.yahoo.com/news/paramount-stock-jumps-on-byron-allens-14-billion-buyout-report-143552114.html)
 <!-- feed end -->
 
 ### Onstream
