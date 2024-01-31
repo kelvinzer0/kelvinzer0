@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 31 - [Megyn Kelly Says Trump ‘Has Zero Chance of Winning’ His Stormy Daniels Hush Money Case | Video](https://www.yahoo.com/entertainment/megyn-kelly-says-trump-zero-014910813.html)
 - Jan 30 - [Man killed by gunman dressed as UPS worker wasn’t supposed to be home at the time of the attack](https://news.yahoo.com/man-killed-gunman-dressed-ups-235016608.html)
+- Jan 30 - [China has indisputable sovereignty over Scarborough Shoal in South China Sea -Coast Guard](https://news.yahoo.com/china-indisputable-sovereignty-over-scarborough-234217665.html)
+- Jan 30 - [VIDEO: Migrants pummel NYPD cops outside Times Square shelter](https://news.yahoo.com/video-migrants-pummel-nypd-cops-233700352.html)
 - Jan 30 - [Plane hits vehicle in fatal crash into busy California intersection, firefighters say](https://news.yahoo.com/plane-hits-vehicle-fatal-crash-222204053.html)
-- Jan 30 - [Passengers say man ‘saved our lives’ by opening emergency exit door on plane and walking out onto wing](https://www.yahoo.com/lifestyle/passengers-man-saved-lives-opening-220218622.html)
-- Jan 30 - [Fact Check: Rumor Claims the White House Announced Biden Had a 187 IQ](https://news.yahoo.com/fact-check-rumor-claims-white-214700032.html)
 <!-- feed end -->
 
 ### Onstream
