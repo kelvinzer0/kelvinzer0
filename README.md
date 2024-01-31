@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - [Judge voids California laws requiring background checks to buy ammunition](https://news.yahoo.com/judge-blocks-california-requiring-background-181518542.html)
-- Jan 31 - [US military revises account of what happened to 2 SEALs who died trying to board Yemen-bound ship](https://news.yahoo.com/us-military-revises-account-happened-175936545.html)
-- Jan 31 - [Investigator describes Michigan school shooter's mom as cold after her son killed four students](https://news.yahoo.com/investigator-describes-michigan-school-shooters-165140159.html)
-- Jan 31 - [Texas parents of OnlyFans model in deadly Miami stabbing arrested](https://news.yahoo.com/texas-parents-onlyfans-model-deadly-163524014.html)
-- Jan 31 - [Hungry sea otters are helping save California's marshlands from erosion](https://news.yahoo.com/hungry-sea-otters-helping-save-161811388.html)
+- Jan 31 - [Man who killed 2 women near the Las Vegas Strip is sentenced to life in prison](https://news.yahoo.com/man-killed-2-women-near-193026359.html)
+- Jan 31 - [Meta's Zuckerberg apologizes to families of victims who have suffered harm due to social media](https://news.yahoo.com/metas-zuckerberg-apologizes-families-victims-192917960.html)
+- Jan 31 - [US judge dismisses Disney's lawsuit accusing DeSantis of retaliation](https://finance.yahoo.com/news/us-judge-dismisses-disneys-lawsuit-191950066.html)
+- Jan 31 - [Nikki Haley says Texas can secede from US if it wants but 'isn't going to'](https://news.yahoo.com/nikki-haley-says-texas-secede-185700053.html)
+- Jan 31 - [I'm a scientist who researches aging. These are the 6 supplements I take daily in the hope I'll live a long, healthy life.](https://news.yahoo.com/im-scientist-researches-aging-6-182544419.html)
 <!-- feed end -->
 
 ### Onstream
