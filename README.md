@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jan 31 - [Sean Hannity Lists 'Lies' About Republicans To Woo Taylor Swift To GOP — It Backfires](https://www.yahoo.com/entertainment/sean-hannity-lists-lies-republicans-114545802.html)
-- Jan 31 - [Iran warns of decisive response to any attack](https://news.yahoo.com/iran-warns-decisive-response-type-045642408.html)
+- Jan 31 - [Homeowner uses ‘one of the oldest forms’ of construction to build incredible fire-resistant house that could withstand the next major blaze](https://www.yahoo.com/lifestyle/homeowner-uses-one-oldest-forms-113000345.html)
+- Jan 31 - [Chinese hackers are targeting US infrastructure, FBI chief to testify](https://news.yahoo.com/chinese-hackers-targeting-us-infrastructure-101454674.html)
+- Jan 31 - [No U.S. threat to Iran will go unanswered, Tehran says](https://news.yahoo.com/iran-warns-decisive-response-type-045642408.html)
 - Jan 31 - [Trump’s former national security adviser says world leaders think he’s a ‘laughing fool’](https://news.yahoo.com/trump-former-national-security-adviser-045215536.html)
-- Jan 31 - [Baby was left at a firehouse with a note saying 'I love you': His parents share his story](https://news.yahoo.com/baby-left-firehouse-note-saying-032757647.html)
-- Jan 31 - [Israel flooding tunnels in Gaza to drive out Hamas terrorists: IDF](https://news.yahoo.com/israel-flooding-tunnels-gaza-drive-004145985.html)
 <!-- feed end -->
 
 ### Onstream
