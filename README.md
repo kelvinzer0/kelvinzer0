@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jan 31 - [Baby was left at a firehouse with a note saying 'I love you': His parents share his story](https://news.yahoo.com/baby-left-firehouse-note-saying-032757647.html)
 - Jan 31 - [Israel flooding tunnels in Gaza to drive out Hamas terrorists: IDF](https://news.yahoo.com/israel-flooding-tunnels-gaza-drive-004145985.html)
+- Jan 31 - [Taiwan angered at 'unilateral' China change to Taiwan Strait flight path](https://news.yahoo.com/taiwan-angered-unilateral-china-change-003435807.html)
 - Jan 30 - [Man killed by gunman dressed as UPS worker wasn’t supposed to be home at the time of the attack](https://news.yahoo.com/man-killed-gunman-dressed-ups-235016608.html)
 - Jan 30 - [China has indisputable sovereignty over Scarborough Shoal in South China Sea -Coast Guard](https://news.yahoo.com/china-indisputable-sovereignty-over-scarborough-234217665.html)
-- Jan 30 - [Plane hits vehicle in fatal crash into busy California intersection, firefighters say](https://news.yahoo.com/plane-hits-vehicle-fatal-crash-222204053.html)
 <!-- feed end -->
 
 ### Onstream
