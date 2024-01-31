@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 31 - [Danny Masterson Moved to Maximum-Security California State Prison That Once Held Charles Manson](https://www.yahoo.com/entertainment/danny-masterson-moved-maximum-security-144255978.html)
+- Jan 31 - [Paramount stock skyrockets on Byron Allen's $14 billion buyout report](https://finance.yahoo.com/news/paramount-stock-skyrockets-on-byron-allens-14-billion-buyout-report-132825453.html)
+- Jan 31 - [A Frontier Airlines passenger pulled down her pants and squatted in the aisle when she wasn't allowed to use the bathroom during landing, affidavit says](https://news.yahoo.com/frontier-airlines-passenger-pulled-down-141507209.html)
+- Jan 31 - [“Begging for money”: Trump under “enormous financial strain” as report reveals massive legal costs](https://news.yahoo.com/begging-money-trump-under-enormous-140940065.html)
 - Jan 31 - [Man who beheaded ex-girlfriend with sword gets 26 years to life. Not enough, says judge](https://news.yahoo.com/man-beheaded-ex-girlfriend-sword-130017584.html)
-- Jan 31 - [The 'God's army' convoy traveling to Texas to stop migrants has seen a vehicle get lost, tires slashed, and someone stranded on the highway: report](https://news.yahoo.com/gods-army-convoy-traveling-texas-122516277.html)
-- Jan 31 - [Sean Hannity Lists 'Lies' About Republicans To Woo Taylor Swift To GOP — It Backfires](https://www.yahoo.com/entertainment/sean-hannity-lists-lies-republicans-114545802.html)
-- Jan 31 - [Homeowner uses ‘one of the oldest forms’ of construction to build incredible fire-resistant house that could withstand the next major blaze](https://www.yahoo.com/lifestyle/homeowner-uses-one-oldest-forms-113000345.html)
-- Jan 31 - [Chinese hackers are targeting US infrastructure, FBI chief to testify](https://news.yahoo.com/chinese-hackers-targeting-us-infrastructure-101454674.html)
 <!-- feed end -->
 
 ### Onstream
