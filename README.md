@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - [Hamas official says it has received new ceasefire proposal](https://news.yahoo.com/hamas-official-says-received-ceasefire-003007061.html)
 - Jan 30 - [Man killed by gunman dressed as UPS worker wasn’t supposed to be home at the time of the attack](https://news.yahoo.com/man-killed-gunman-dressed-ups-235016608.html)
 - Jan 30 - [Trump must still cough up at least $90M in E. Jean Carroll verdict — and soon — even though an appeal means she has to wait for it](https://news.yahoo.com/trump-must-still-cough-least-222733482.html)
 - Jan 30 - [Plane hits vehicle in fatal crash into busy California intersection, firefighters say](https://news.yahoo.com/plane-hits-vehicle-fatal-crash-222204053.html)
 - Jan 30 - [Passengers say man ‘saved our lives’ by opening emergency exit door on plane and walking out onto wing](https://www.yahoo.com/lifestyle/passengers-man-saved-lives-opening-220218622.html)
+- Jan 30 - [Fact Check: Rumor Claims the White House Announced Biden Had a 187 IQ](https://news.yahoo.com/fact-check-rumor-claims-white-214700032.html)
 <!-- feed end -->
 
 ### Onstream
