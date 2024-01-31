@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jan 31 - [Man who killed 2 women near the Las Vegas Strip is sentenced to life in prison](https://news.yahoo.com/man-killed-2-women-near-193026359.html)
-- Jan 31 - [Meta's Zuckerberg apologizes to families of victims who have suffered harm due to social media](https://news.yahoo.com/metas-zuckerberg-apologizes-families-victims-192917960.html)
+- Jan 31 - [Rep. Leezah Sun resigns from Arizona Legislature after damning ethics panel report](https://news.yahoo.com/rep-leezah-sun-resigns-arizona-203810820.html)
+- Jan 31 - [Boston doctor found not guilty on charge of lewd acts near a 14-year-old girl on an airplane](https://news.yahoo.com/boston-doctor-found-not-guilty-201142480.html)
 - Jan 31 - [US judge dismisses Disney's lawsuit accusing DeSantis of retaliation](https://finance.yahoo.com/news/us-judge-dismisses-disneys-lawsuit-191950066.html)
-- Jan 31 - [Nikki Haley says Texas can secede from US if it wants but 'isn't going to'](https://news.yahoo.com/nikki-haley-says-texas-secede-185700053.html)
-- Jan 31 - [I'm a scientist who researches aging. These are the 6 supplements I take daily in the hope I'll live a long, healthy life.](https://news.yahoo.com/im-scientist-researches-aging-6-182544419.html)
+- Jan 31 - [Shocking New Video Shows Where Chiefs Fans’ Bodies Were Discovered](https://www.yahoo.com/entertainment/shocking-video-shows-where-chiefs-191508148.html)
+- Jan 31 - [Machu Picchu tourism suffering after week of protests against new ticketing system](https://news.yahoo.com/machu-picchu-tourism-suffering-week-190033085.html)
 <!-- feed end -->
 
 ### Onstream
