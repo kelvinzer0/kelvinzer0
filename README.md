@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 31 - [Sean Hannity Lists 'Lies' About Republicans To Woo Taylor Swift To GOP — It Backfires](https://www.yahoo.com/entertainment/sean-hannity-lists-lies-republicans-114545802.html)
 - Jan 31 - [Iran warns of decisive response to any attack](https://news.yahoo.com/iran-warns-decisive-response-type-045642408.html)
 - Jan 31 - [Trump’s former national security adviser says world leaders think he’s a ‘laughing fool’](https://news.yahoo.com/trump-former-national-security-adviser-045215536.html)
 - Jan 31 - [Baby was left at a firehouse with a note saying 'I love you': His parents share his story](https://news.yahoo.com/baby-left-firehouse-note-saying-032757647.html)
 - Jan 31 - [Israel flooding tunnels in Gaza to drive out Hamas terrorists: IDF](https://news.yahoo.com/israel-flooding-tunnels-gaza-drive-004145985.html)
-- Jan 30 - [Man killed by gunman dressed as UPS worker wasn’t supposed to be home at the time of the attack](https://news.yahoo.com/man-killed-gunman-dressed-ups-235016608.html)
 <!-- feed end -->
 
 ### Onstream
