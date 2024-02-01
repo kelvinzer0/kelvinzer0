@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jan 31 - [Mountain lion drags dog from snowy Colorado backyard — but armed owners came to rescue](https://news.yahoo.com/mountain-lion-drags-dog-snowy-222959171.html)
+- Jan 31 - [A Houthi missile got so close to a US destroyer the warship had to turn to a last resort gun system to shoot it down: report](https://news.yahoo.com/houthi-missile-got-close-us-221324950.html)
 - Jan 31 - [Rep. Leezah Sun resigns from Arizona Legislature after damning ethics panel report](https://news.yahoo.com/rep-leezah-sun-resigns-arizona-203810820.html)
 - Jan 31 - [Boston doctor found not guilty on charge of lewd acts near a 14-year-old girl on an airplane](https://news.yahoo.com/boston-doctor-found-not-guilty-201142480.html)
 - Jan 31 - [US judge dismisses Disney's lawsuit accusing DeSantis of retaliation](https://finance.yahoo.com/news/us-judge-dismisses-disneys-lawsuit-191950066.html)
-- Jan 31 - [Growing threat sends price of popular breakfast staple soaring for second consecutive year: ‘Consumers should be concerned’](https://news.yahoo.com/growing-threat-sends-price-popular-190000121.html)
-- Jan 31 - [I'm a scientist who researches aging. These are the 6 supplements I take daily in the hope I'll live a long, healthy life.](https://news.yahoo.com/im-scientist-researches-aging-6-182544419.html)
 <!-- feed end -->
 
 ### Onstream
