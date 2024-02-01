@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [Ex-Trump Attorney Offers Stunningly Blunt Analysis Of Current Trump Lawyer Alina Habba](https://news.yahoo.com/ex-trump-attorney-offers-stunningly-113435626.html)
+- Feb 01 - [GOP House Rep. Lisa McClain Roasts Lauren Boebert's 'Inappropriate Touching'](https://www.yahoo.com/entertainment/gop-house-rep-lisa-mcclain-122447294.html)
+- Feb 01 - [‘We don’t need your flying trash’: Misunderstanding scuttles transfer of 41 Australian Hornets to UA](https://news.yahoo.com/don-t-flying-trash-misunderstanding-120700255.html)
+- Feb 01 - [Military intelligence: Russian missile ship sunk off occupied Crimea](https://news.yahoo.com/military-intelligence-russian-missile-ship-115526773.html)
 - Feb 01 - [‘No end in sight’: Blackstone CEO doesn't think the US can handle another term under President Biden — or what he calls 'four more years' of debt misery. But is it really that bad?](https://finance.yahoo.com/news/no-end-sight-blackstone-ceo-113000310.html)
-- Feb 01 - [Trump’s critics hope that Antonin Scalia can sway the Supreme Court in 14th Amendment fight](https://news.yahoo.com/antonin-scalia-could-thing-keeps-100030757.html)
-- Feb 01 - [UK judge dismisses Trump's lawsuit over dossier containing 'shocking and scandalous claims'](https://news.yahoo.com/uk-judge-dismisses-trumps-lawsuit-102209610.html)
-- Feb 01 - [Report: Fired USS Lake Erie captain instilled a ‘culture of fear’](https://news.yahoo.com/report-fired-uss-lake-erie-100000291.html)
+- Feb 01 - [China executes couple for murder of toddlers that shocked the nation](https://news.yahoo.com/china-executes-couple-murder-toddlers-103541041.html)
 <!-- feed end -->
 
 ### Onstream
