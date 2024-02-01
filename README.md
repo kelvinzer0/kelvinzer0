@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 01 - [17-year-old alleged ‘serial swatter’ charged after police say he made threats throughout the country](https://news.yahoo.com/17-old-alleged-serial-swatter-030252992.html)
-- Feb 01 - [Adidas sees profits doubling as Kanye crisis fades](https://finance.yahoo.com/video/adidas-sees-profits-doubling-kanye-023517374.html)
 - Feb 01 - [Newsom recalls seeing brazen theft, refuses photo and asks for manager when worker blames him: LEAKED VIDEO](https://news.yahoo.com/newsom-recalls-seeing-brazen-theft-005224634.html)
 - Jan 31 - [Mountain lion drags dog from snowy Colorado backyard — but armed owners came to rescue](https://news.yahoo.com/mountain-lion-drags-dog-snowy-222959171.html)
 - Jan 31 - [A Houthi missile got so close to a US destroyer the warship turned to a last resort gun system to shoot it down: report](https://news.yahoo.com/houthi-missile-got-close-us-221324950.html)
+- Jan 31 - [You’re less likely to be overweight if you eat 3 servings of this dish daily: study](https://news.yahoo.com/less-likely-overweight-eat-3-211035398.html)
 <!-- feed end -->
 
 ### Onstream
