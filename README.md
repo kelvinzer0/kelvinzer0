@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [Clapham attack: Police release image of suspect with 'significant injuries'](https://news.yahoo.com/suspect-named-south-london-alkali-152334715.html)
+- Feb 01 - [Clapham attack suspect Abdul Ezedi convicted of sex offence in 2018](https://news.yahoo.com/suspect-named-south-london-alkali-152334715.html)
+- Feb 01 - [He Was Arrested for Making a Joke on Facebook. A Jury Just Awarded Him $205,000 in Damages.](https://news.yahoo.com/arrested-making-joke-facebook-jury-212045619.html)
+- Feb 01 - [Analysis shows destruction and possible buffer zone along Gaza Strip's border with Israel](https://news.yahoo.com/analysis-shows-destruction-possible-buffer-194938300.html)
 - Feb 01 - [Chiefs Fan Who Hosted Deadly Watch Party Allegedly Known As ‘The Chemist’](https://www.yahoo.com/entertainment/chiefs-fan-hosted-deadly-watch-192507306.html)
 - Feb 01 - [Trump doles out millions to lawyers: Here’s who’s getting the most](https://news.yahoo.com/trump-doles-millions-lawyers-getting-185013886.html)
-- Feb 01 - [Mexican president suggests US talks on migration and drugs may suffer after drug money allegations](https://news.yahoo.com/mexican-president-suggests-us-talks-184821803.html)
-- Feb 01 - ["I Just Found Out I Have Been Paying The Utility Bill For My Entire Apartment Building Since 2021" — Here's How This Woman's Ex Ended Up Costing Her Thousands](https://www.yahoo.com/lifestyle/just-found-paying-utility-bill-181533709.html)
 <!-- feed end -->
 
 ### Onstream
