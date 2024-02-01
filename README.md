@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - [Clapham attack: Police release image of suspect with 'significant injuries'](https://news.yahoo.com/suspect-named-south-london-alkali-152334715.html)
+- Feb 01 - [Chiefs Fan Who Hosted Deadly Watch Party Allegedly Known As ‘The Chemist’](https://www.yahoo.com/entertainment/chiefs-fan-hosted-deadly-watch-192507306.html)
 - Feb 01 - [Trump doles out millions to lawyers: Here’s who’s getting the most](https://news.yahoo.com/trump-doles-millions-lawyers-getting-185013886.html)
 - Feb 01 - [Mexican president suggests US talks on migration and drugs may suffer after drug money allegations](https://news.yahoo.com/mexican-president-suggests-us-talks-184821803.html)
-- Feb 01 - [Biden Reportedly Is Planning To Unilaterally Mandate Background Checks for All Gun Sales](https://news.yahoo.com/biden-reportedly-planning-unilaterally-mandate-183505238.html)
 - Feb 01 - ["I Just Found Out I Have Been Paying The Utility Bill For My Entire Apartment Building Since 2021" — Here's How This Woman's Ex Ended Up Costing Her Thousands](https://www.yahoo.com/lifestyle/just-found-paying-utility-bill-181533709.html)
-- Feb 01 - [Men run for lives from angry elephant; it doesn’t end well](https://sports.yahoo.com/men-run-lives-angry-elephant-173340617.html)
 <!-- feed end -->
 
 ### Onstream
