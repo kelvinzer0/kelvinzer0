@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - ["I Just Found Out I Have Been Paying The Utility Bill For My Entire Apartment Building Since 2021" — Here's How This Woman's Ex Ended Up Costing Her Thousands](https://www.yahoo.com/lifestyle/just-found-paying-utility-bill-181533709.html)
 - Feb 01 - [Men run for lives from angry elephant; it doesn’t end well](https://sports.yahoo.com/men-run-lives-angry-elephant-173340617.html)
 - Feb 01 - [Elon Musk bashed by heavy metal drummer who cost him $56 billion](https://news.yahoo.com/elon-musk-bashed-heavy-metal-170806527.html)
 - Feb 01 - [Former prosecutors: "Screw up" by Judge Cannon could lay groundwork for Jack Smith appeal](https://news.yahoo.com/former-prosecutors-screw-judge-cannon-164034810.html)
 - Feb 01 - [Oregon high court says 10 GOP state senators who staged long walkout can’t run for reelection](https://news.yahoo.com/oregon-high-court-says-10-163506985.html)
-- Feb 01 - [Cache of coins was hidden in a box underground for 850 years — until now. See it](https://news.yahoo.com/cache-coins-hidden-box-underground-161221248.html)
 <!-- feed end -->
 
 ### Onstream
