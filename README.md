@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - [Jimmy Kimmel Gives Trump A Brutal Reality Check On Just How Unpopular He Is](https://www.yahoo.com/entertainment/jimmy-kimmel-gives-trump-brutal-063309707.html)
 - Feb 01 - [Israel and Lebanon are prepping for a war neither wants, but many fear it's becoming inevitable](https://news.yahoo.com/israel-lebanon-prepping-war-neither-050417654.html)
 - Feb 01 - [Nikki Haley Gives GOP Voters Ugly Truth About 'Toxic' Trump](https://news.yahoo.com/nikki-haley-gives-gop-voters-044247447.html)
 - Feb 01 - [Newsom recalls seeing brazen theft, refuses photo and asks for manager when worker blames him: LEAKED VIDEO](https://news.yahoo.com/newsom-recalls-seeing-brazen-theft-005224634.html)
 - Jan 31 - [Mountain lion drags dog from snowy Colorado backyard — but armed owners came to rescue](https://news.yahoo.com/mountain-lion-drags-dog-snowy-222959171.html)
-- Jan 31 - [A Houthi missile got so close to a US destroyer the warship turned to a last resort gun system to shoot it down: report](https://news.yahoo.com/houthi-missile-got-close-us-221324950.html)
 <!-- feed end -->
 
 ### Onstream
