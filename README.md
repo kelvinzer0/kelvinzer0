@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - [Donald Trump Finally Speaks Out About Those Red Splotches On His Hand](https://news.yahoo.com/donald-trump-finally-speaks-those-092457022.html)
+- Feb 01 - [Donald Trump Jr.’s Latest Attack On Joe Biden Prompts Awkward Reminder](https://news.yahoo.com/donald-trump-jr-latest-attack-082258685.html)
 - Feb 01 - [Republican Senator Puts Trump On Blast With 1 Simple Piece Of Advice](https://news.yahoo.com/republican-senator-puts-trump-blast-075215996.html)
 - Feb 01 - [Israel and Lebanon are prepping for a war neither wants, but many fear it's becoming inevitable](https://news.yahoo.com/israel-lebanon-prepping-war-neither-050417654.html)
-- Feb 01 - [Nikki Haley Gives GOP Voters Ugly Truth About 'Toxic' Trump](https://news.yahoo.com/nikki-haley-gives-gop-voters-044247447.html)
 - Feb 01 - [Newsom recalls seeing brazen theft, refuses photo and asks for manager when worker blames him: LEAKED VIDEO](https://news.yahoo.com/newsom-recalls-seeing-brazen-theft-005224634.html)
-- Jan 31 - [Mountain lion drags dog from snowy Colorado backyard — but armed owners came to rescue](https://news.yahoo.com/mountain-lion-drags-dog-snowy-222959171.html)
 <!-- feed end -->
 
 ### Onstream
