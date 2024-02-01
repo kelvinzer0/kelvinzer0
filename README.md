@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [Fact Check: Once Upon a Time, TSA Full-Body Scans Showed 'Everything.' That's No Longer the Case](https://www.yahoo.com/tech/fact-check-once-upon-time-140000091.html)
-- Feb 01 - [Donald Trump Serves Up A Delusional New Take On His Massive Legal Woes](https://news.yahoo.com/donald-trump-serves-delusional-massive-130512392.html)
-- Feb 01 - [GOP House Rep. Lisa McClain Roasts Lauren Boebert's 'Inappropriate Touching'](https://www.yahoo.com/entertainment/gop-house-rep-lisa-mcclain-122447294.html)
-- Feb 01 - [‘We don’t need your flying trash’: Misunderstanding scuttles transfer of 41 Australian Hornets to UA](https://news.yahoo.com/don-t-flying-trash-misunderstanding-120700255.html)
-- Feb 01 - [Military intelligence: Russian missile ship sunk off occupied Crimea](https://news.yahoo.com/military-intelligence-russian-missile-ship-115526773.html)
+- Feb 01 - ["She is a loser": Experts say Trump replacing lawyer because she "doesn't know what she's doing"](https://news.yahoo.com/she-loser-experts-trump-replacing-152958789.html)
+- Feb 01 - [Inside Kevin McCarthy’s vengeance operation against the Republicans who fired him](https://news.yahoo.com/inside-kevin-mccarthy-vengeance-operation-152747778.html)
+- Feb 01 - [Watch: Ukraine sinks Russian warship in Black Sea drone strike](https://news.yahoo.com/watch-ukraine-sinks-russian-warship-151517140.html)
+- Feb 01 - [19-year-old hiking with friends plunges to death taking photos at canyon, Utah cops say](https://news.yahoo.com/19-old-hiking-friends-plunges-145628064.html)
+- Feb 01 - [Nikola Tesla Lived 24 Years Longer Than He Should Have. Did He Solve the Secret to Longevity?](https://www.yahoo.com/lifestyle/nikola-tesla-lived-24-years-140000862.html)
 <!-- feed end -->
 
 ### Onstream
