@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - [Fact Check: Once Upon a Time, TSA Full-Body Scans Showed 'Everything.' That's No Longer the Case](https://www.yahoo.com/tech/fact-check-once-upon-time-140000091.html)
 - Feb 01 - [Donald Trump Serves Up A Delusional New Take On His Massive Legal Woes](https://news.yahoo.com/donald-trump-serves-delusional-massive-130512392.html)
 - Feb 01 - [GOP House Rep. Lisa McClain Roasts Lauren Boebert's 'Inappropriate Touching'](https://www.yahoo.com/entertainment/gop-house-rep-lisa-mcclain-122447294.html)
 - Feb 01 - [‘We don’t need your flying trash’: Misunderstanding scuttles transfer of 41 Australian Hornets to UA](https://news.yahoo.com/don-t-flying-trash-misunderstanding-120700255.html)
 - Feb 01 - [Military intelligence: Russian missile ship sunk off occupied Crimea](https://news.yahoo.com/military-intelligence-russian-missile-ship-115526773.html)
-- Feb 01 - [A man used a 46-year-old ticket that cost $8 to get into Disney's Magic Kingdom: 'There is no expiration date'](https://news.yahoo.com/man-used-46-old-ticket-113211207.html)
 <!-- feed end -->
 
 ### Onstream
