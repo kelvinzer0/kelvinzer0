@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - [Former prosecutors: "Screw up" by Judge Cannon could lay groundwork for Jack Smith appeal](https://news.yahoo.com/former-prosecutors-screw-judge-cannon-164034810.html)
+- Feb 01 - [Oregon high court says 10 GOP state senators who staged long walkout can’t run for reelection](https://news.yahoo.com/oregon-high-court-says-10-163506985.html)
+- Feb 01 - [Cache of coins was hidden in a box underground for 850 years — until now. See it](https://news.yahoo.com/cache-coins-hidden-box-underground-161221248.html)
 - Feb 01 - ["She is a loser": Experts say Trump replacing lawyer because she "doesn't know what she's doing"](https://news.yahoo.com/she-loser-experts-trump-replacing-152958789.html)
-- Feb 01 - [Inside Kevin McCarthy’s vengeance operation against the Republicans who fired him](https://news.yahoo.com/inside-kevin-mccarthy-vengeance-operation-152747778.html)
-- Feb 01 - [Watch: Ukraine sinks Russian warship in Black Sea drone strike](https://news.yahoo.com/watch-ukraine-sinks-russian-warship-151517140.html)
-- Feb 01 - [19-year-old hiking with friends plunges to death taking photos at canyon, Utah cops say](https://news.yahoo.com/19-old-hiking-friends-plunges-145628064.html)
-- Feb 01 - [Nikola Tesla Lived 24 Years Longer Than He Should Have. Did He Solve the Secret to Longevity?](https://www.yahoo.com/lifestyle/nikola-tesla-lived-24-years-140000862.html)
+- Feb 01 - [Jury hears that Michigan school shooter blamed parents for not getting him help](https://news.yahoo.com/jury-hears-michigan-school-shooter-151829211.html)
 <!-- feed end -->
 
 ### Onstream
