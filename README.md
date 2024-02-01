@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - [Antonin Scalia could be the thing that keeps Trump off the ballot, critics hope](https://news.yahoo.com/antonin-scalia-could-thing-keeps-100030757.html)
+- Feb 01 - [Report: Fired USS Lake Erie captain instilled a ‘culture of fear’](https://news.yahoo.com/report-fired-uss-lake-erie-100000291.html)
 - Feb 01 - [Donald Trump Finally Speaks Out About Those Red Splotches On His Hand](https://news.yahoo.com/donald-trump-finally-speaks-those-092457022.html)
 - Feb 01 - [Donald Trump Jr.’s Latest Attack On Joe Biden Prompts Awkward Reminder](https://news.yahoo.com/donald-trump-jr-latest-attack-082258685.html)
 - Feb 01 - [Republican Senator Puts Trump On Blast With 1 Simple Piece Of Advice](https://news.yahoo.com/republican-senator-puts-trump-blast-075215996.html)
-- Feb 01 - [Israel and Lebanon are prepping for a war neither wants, but many fear it's becoming inevitable](https://news.yahoo.com/israel-lebanon-prepping-war-neither-050417654.html)
-- Feb 01 - [Newsom recalls seeing brazen theft, refuses photo and asks for manager when worker blames him: LEAKED VIDEO](https://news.yahoo.com/newsom-recalls-seeing-brazen-theft-005224634.html)
 <!-- feed end -->
 
 ### Onstream
