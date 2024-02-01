@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 01 - [17-year-old alleged ‘serial swatter’ charged after police say he made threats throughout the country](https://news.yahoo.com/17-old-alleged-serial-swatter-030252992.html)
 - Feb 01 - [Adidas sees profits doubling as Kanye crisis fades](https://finance.yahoo.com/video/adidas-sees-profits-doubling-kanye-023517374.html)
+- Feb 01 - [Newsom recalls seeing brazen theft, refuses photo and asks for manager when worker blames him: LEAKED VIDEO](https://news.yahoo.com/newsom-recalls-seeing-brazen-theft-005224634.html)
 - Jan 31 - [Mountain lion drags dog from snowy Colorado backyard — but armed owners came to rescue](https://news.yahoo.com/mountain-lion-drags-dog-snowy-222959171.html)
 - Jan 31 - [A Houthi missile got so close to a US destroyer the warship turned to a last resort gun system to shoot it down: report](https://news.yahoo.com/houthi-missile-got-close-us-221324950.html)
-- Jan 31 - [Rep. Leezah Sun resigns from Arizona Legislature after damning ethics panel report](https://news.yahoo.com/rep-leezah-sun-resigns-arizona-203810820.html)
-- Jan 31 - [Boston doctor found not guilty on charge of lewd acts near a 14-year-old girl on an airplane](https://news.yahoo.com/boston-doctor-found-not-guilty-201142480.html)
 <!-- feed end -->
 
 ### Onstream
