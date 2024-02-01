@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [Jimmy Kimmel Gives Trump A Brutal Reality Check On Just How Unpopular He Is](https://www.yahoo.com/entertainment/jimmy-kimmel-gives-trump-brutal-063309707.html)
+- Feb 01 - [Republican Senator Puts Trump On Blast With 1 Simple Piece Of Advice](https://news.yahoo.com/republican-senator-puts-trump-blast-075215996.html)
 - Feb 01 - [Israel and Lebanon are prepping for a war neither wants, but many fear it's becoming inevitable](https://news.yahoo.com/israel-lebanon-prepping-war-neither-050417654.html)
 - Feb 01 - [Nikki Haley Gives GOP Voters Ugly Truth About 'Toxic' Trump](https://news.yahoo.com/nikki-haley-gives-gop-voters-044247447.html)
 - Feb 01 - [Newsom recalls seeing brazen theft, refuses photo and asks for manager when worker blames him: LEAKED VIDEO](https://news.yahoo.com/newsom-recalls-seeing-brazen-theft-005224634.html)
