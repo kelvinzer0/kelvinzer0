@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Roberta Kaplan says Trump threw papers across table at Mar-a-Lago deposition because his legal team agreed to feed her lunch](https://news.yahoo.com/roberta-kaplan-says-trump-threw-044213512.html)
 - Feb 02 - [Middle class ‘already dead’: This TikToker says Americans must earn $500K to $1M a year to be ‘doing well in 2024’ — claims inflation is ‘WAY worse’ than everyone thinks. Could he be right?](https://finance.yahoo.com/news/middle-class-already-dead-tiktoker-111700064.html)
+- Feb 02 - [Trump sees diminishing fundraising returns from combative court appearances](https://news.yahoo.com/trump-sees-diminishing-fundraising-returns-110601556.html)
+- Feb 02 - [Column: 'My life cannot be ruined by this scammer.' Two victims lost everything and sued their banks](https://news.yahoo.com/column-life-cannot-ruined-scammer-110048279.html)
 - Feb 02 - [George Conway Says New Development Is 'Very Important Warning' To Trump Witnesses](https://news.yahoo.com/george-conway-says-development-very-105607697.html)
-- Feb 02 - [Donald Trump Shares Jon Voight’s ‘Destroyed As Jesus’ Video And People Say, WTF?](https://www.yahoo.com/entertainment/donald-trump-shares-jon-voight-105428608.html)
-- Feb 02 - [Tesla recalls nearly all its US vehicles in largest-ever such move](https://finance.yahoo.com/news/tesla-recall-over-2-million-103441486.html)
-- Feb 02 - [Mice droppings and moldy mozzarella. The worst Horry County restaurant inspections](https://news.yahoo.com/mice-droppings-moldy-mozzarella-worst-100000731.html)
 <!-- feed end -->
 
 ### Onstream
