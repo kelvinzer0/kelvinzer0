@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 02 - ['I Was Wrong': Ex-Trump White House Adviser Makes Surprise Confession On Fox Business](https://news.yahoo.com/wrong-ex-trump-white-house-053447559.html)
+- Feb 02 - [Analysis-'Open warfare': Philippines' Marcos-Duterte alliance crumbles](https://news.yahoo.com/analysis-open-warfare-philippines-marcos-053145958.html)
 - Feb 02 - [Roberta Kaplan says Trump threw papers across table at Mar-a-Lago deposition because his legal team agreed to feed her lunch](https://news.yahoo.com/roberta-kaplan-says-trump-threw-044213512.html)
 - Feb 02 - [A junior high principal was fired after he was caught pouring more coffee than he paid for](https://news.yahoo.com/junior-high-principal-fired-caught-033410682.html)
 - Feb 02 - [9 hospitalized after 200 prisoners rush corrections officers in riot at Southern California prison](https://news.yahoo.com/california-prisons-locked-down-statewide-013243258.html)
-- Feb 02 - [Japan's message for Donald Trump: don't cut a deal with China](https://news.yahoo.com/japans-message-donald-trump-dont-010429186.html)
 <!-- feed end -->
 
 ### Onstream
