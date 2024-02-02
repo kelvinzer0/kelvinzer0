@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Authorities: Pennsylvania beheading suspect had ‘no history of diagnosed mental health issues’](https://news.yahoo.com/pennsylvania-beheading-suspect-had-no-182656090.html)
+- Feb 02 - [Doctor who prescribed more than 500,000 opioid doses has conviction tossed](https://news.yahoo.com/doctor-prescribed-more-500-000-181108724.html)
 - Feb 02 - [Anglers battle huge fish on Florida beach — and reel in 1,200-pound surprise, video shows](https://news.yahoo.com/anglers-battle-huge-fish-florida-165655023.html)
 - Feb 02 - [UK police say a woman attacked with chemicals is doing 'very poorly.' The suspect is still at large](https://news.yahoo.com/uk-police-woman-attacked-chemicals-162615214.html)
 - Feb 02 - [Italian mafia boss who escaped prison by tying bed sheets together arrested during romantic dinner in France](https://news.yahoo.com/italian-mafia-boss-escaped-prison-161650848.html)
-- Feb 02 - [We know what ‘foo fighters’ that buzzed Second World War pilots really were, say scientists](https://news.yahoo.com/university-experts-reveal-world-war-154506192.html)
-- Feb 02 - [28-year-old Lauren Hoeve died by euthanasia – to a degree, I understand her pain](https://news.yahoo.com/28-old-lauren-hoeve-died-160000727.html)
 <!-- feed end -->
 
 ### Onstream
