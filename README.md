@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [America’s new Stealth hunter killers have arrived in the nick of time](https://news.yahoo.com/america-stealth-hunter-killers-arrived-131941004.html)
 - Feb 02 - [Roberta Kaplan says Trump threw papers across table at Mar-a-Lago deposition because his legal team agreed to feed her lunch](https://news.yahoo.com/roberta-kaplan-says-trump-threw-044213512.html)
+- Feb 02 - [Social Security: ‘Win-Win’ Bill To Cut Federal Taxes Would Extend Funds to 2054](https://finance.yahoo.com/news/social-security-win-win-bill-123006868.html)
 - Feb 02 - [Middle class ‘already dead’: This TikToker says Americans must earn $500K to $1M a year to be ‘doing well in 2024’ — claims inflation is ‘WAY worse’ than everyone thinks. Could he be right?](https://finance.yahoo.com/news/middle-class-already-dead-tiktoker-111700064.html)
 - Feb 02 - [Trump sees diminishing fundraising returns from combative court appearances](https://news.yahoo.com/trump-sees-diminishing-fundraising-returns-110601556.html)
-- Feb 02 - [Column: 'My life cannot be ruined by this scammer.' Two victims lost everything and sued their banks](https://news.yahoo.com/column-life-cannot-ruined-scammer-110048279.html)
-- Feb 02 - [George Conway Says New Development Is 'Very Important Warning' To Trump Witnesses](https://news.yahoo.com/george-conway-says-development-very-105607697.html)
 <!-- feed end -->
 
 ### Onstream
