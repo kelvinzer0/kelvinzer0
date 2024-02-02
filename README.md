@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [9 hospitalized after 200 prisoners rush corrections officers in riot at Southern California prison](https://news.yahoo.com/california-prisons-locked-down-statewide-013243258.html)
 - Feb 02 - [Kevin McCarthy Is Out For Vengeance, Baby!](https://news.yahoo.com/kevin-mccarthy-vengeance-baby-003100695.html)
+- Feb 02 - [Keller Williams agrees to pay $70 million to settle real estate agent commission lawsuits nationwide](https://news.yahoo.com/keller-williams-agrees-pay-70-000339655.html)
 - Feb 01 - [“Hootie & The Blowfish’ Singer Darius Rucker Arrested for Drug Offense In Tennessee](https://www.yahoo.com/entertainment/hootie-blowfish-singer-darius-rucker-235555856.html)
 - Feb 01 - [Former CIA employee sentenced to 40 years in prison after carrying out largest data leak in agency’s history](https://news.yahoo.com/former-cia-employee-sentenced-40-234248276.html)
-- Feb 01 - [Marjorie Taylor Greene Accidentally Turns 'Indictable' Into Dirty Word](https://www.yahoo.com/entertainment/marjorie-taylor-greene-accidentally-turns-233949856.html)
-- Feb 01 - [In California, Black lawmakers share a reparations plan with few direct payments](https://news.yahoo.com/california-black-lawmakers-share-reparations-223126922.html)
 <!-- feed end -->
 
 ### Onstream
