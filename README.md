@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Armenia can no longer rely on Russia for military and defence needs - PM Pashinyan says](https://news.yahoo.com/armenia-no-longer-rely-russia-071810876.html)
 - Feb 02 - ['I Was Wrong': Ex-Trump White House Adviser Makes Surprise Confession On Fox Business](https://news.yahoo.com/wrong-ex-trump-white-house-053447559.html)
 - Feb 02 - [Analysis-'Open warfare': Philippines' Marcos-Duterte alliance crumbles](https://news.yahoo.com/analysis-open-warfare-philippines-marcos-053145958.html)
 - Feb 02 - [Roberta Kaplan says Trump threw papers across table at Mar-a-Lago deposition because his legal team agreed to feed her lunch](https://news.yahoo.com/roberta-kaplan-says-trump-threw-044213512.html)
 - Feb 02 - [A junior high principal was fired after he was caught pouring more coffee than he paid for](https://news.yahoo.com/junior-high-principal-fired-caught-033410682.html)
-- Feb 02 - [9 hospitalized after 200 prisoners rush corrections officers in riot at Southern California prison](https://news.yahoo.com/california-prisons-locked-down-statewide-013243258.html)
 <!-- feed end -->
 
 ### Onstream
