@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Live updates: US set to respond after deadly drone attack on Jordan base](https://news.yahoo.com/live-updates-us-set-respond-184900473.html)
+- Feb 02 - [The Fearsome Tanks That Fought Saddam Hussein May Soon Come for Vladimir Putin](https://www.yahoo.com/tech/fearsome-tanks-fought-saddam-hussein-195500712.html)
 - Feb 02 - [Trump ‘believes’ he’ll be convicted of overturning 2020 US election in trial this year](https://news.yahoo.com/trump-believes-ll-convicted-overturning-195239409.html)
+- Feb 02 - [Video shows skiers trying to save teen snowboarder as she falls from California chairlift](https://news.yahoo.com/video-shows-skiers-trying-save-190246712.html)
 - Feb 02 - ["It Has Been Associated With An Increased Risk Of Developing Dementia" — This Doctor Is Warning People About The Potential Risk Of This Popular Over-The-Counter Medicine](https://www.yahoo.com/lifestyle/associated-increased-risk-developing-dementia-185121171.html)
-- Feb 02 - [Ohio Attorney General given until Monday to explain rejection of voting rights amendment to court](https://news.yahoo.com/ohio-attorney-general-given-until-184603118.html)
-- Feb 02 - [Trump prosecutor Willis admits relationship with colleague, denies tainting case](https://news.yahoo.com/trump-georgia-prosecutor-fani-willis-181620850.html)
-- Feb 02 - [Doctor who prescribed more than 500,000 opioid doses has conviction tossed](https://news.yahoo.com/doctor-prescribed-more-500-000-181108724.html)
 <!-- feed end -->
 
 ### Onstream
