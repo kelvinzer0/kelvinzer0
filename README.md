@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - ['I Was Wrong': Ex-Trump White House Adviser Makes Surprise Confession On Fox Business](https://news.yahoo.com/wrong-ex-trump-white-house-053447559.html)
+- Feb 02 - [Roberta Kaplan says Trump threw papers across table at Mar-a-Lago deposition because his legal team agreed to feed her lunch](https://news.yahoo.com/roberta-kaplan-says-trump-threw-044213512.html)
 - Feb 02 - [A junior high principal was fired after he was caught pouring more coffee than he paid for](https://news.yahoo.com/junior-high-principal-fired-caught-033410682.html)
 - Feb 02 - [9 hospitalized after 200 prisoners rush corrections officers in riot at Southern California prison](https://news.yahoo.com/california-prisons-locked-down-statewide-013243258.html)
 - Feb 02 - [Japan's message for Donald Trump: don't cut a deal with China](https://news.yahoo.com/japans-message-donald-trump-dont-010429186.html)
-- Feb 02 - [Toxicology report back for Kansas City Chiefs fans found frozen to death](https://news.yahoo.com/toxicology-report-back-kansas-city-005345815.html)
-- Feb 02 - [Kevin McCarthy Is Out For Vengeance, Baby!](https://news.yahoo.com/kevin-mccarthy-vengeance-baby-003100695.html)
 <!-- feed end -->
 
 ### Onstream
