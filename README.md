@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Middle class ‘already dead’: This TikToker says Americans must earn $500K to $1M a year to be ‘doing well in 2024’ — claims inflation is ‘WAY worse’ than everyone thinks. Could he be right?](https://finance.yahoo.com/news/middle-class-already-dead-tiktoker-111700064.html)
 - Feb 02 - [George Conway Says New Development Is 'Very Important Warning' To Trump Witnesses](https://news.yahoo.com/george-conway-says-development-very-105607697.html)
-- Feb 02 - [Armenia can no longer rely on Russia for military and defence needs - PM Pashinyan](https://news.yahoo.com/armenia-no-longer-rely-russia-071810876.html)
-- Feb 02 - ['I Was Wrong': Ex-Trump White House Adviser Makes Surprise Confession On Fox Business](https://news.yahoo.com/wrong-ex-trump-white-house-053447559.html)
-- Feb 02 - [Roberta Kaplan says Trump threw papers across table at Mar-a-Lago deposition because his legal team agreed to feed her lunch](https://news.yahoo.com/roberta-kaplan-says-trump-threw-044213512.html)
-- Feb 02 - [A junior high principal was fired after he was caught pouring more coffee than he paid for](https://news.yahoo.com/junior-high-principal-fired-caught-033410682.html)
+- Feb 02 - [Donald Trump Shares Jon Voight’s ‘Destroyed As Jesus’ Video And People Say, WTF?](https://www.yahoo.com/entertainment/donald-trump-shares-jon-voight-105428608.html)
+- Feb 02 - [Tesla recalls nearly all its US vehicles in largest-ever such move](https://finance.yahoo.com/news/tesla-recall-over-2-million-103441486.html)
+- Feb 02 - [Mice droppings and moldy mozzarella. The worst Horry County restaurant inspections](https://news.yahoo.com/mice-droppings-moldy-mozzarella-worst-100000731.html)
 <!-- feed end -->
 
 ### Onstream
