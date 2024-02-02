@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 02 - [Live updates: US set to respond after deadly drone attack on Jordan base](https://news.yahoo.com/live-updates-us-set-respond-184900473.html)
-- Feb 02 - [The Fearsome Tanks That Fought Saddam Hussein May Soon Come for Vladimir Putin](https://www.yahoo.com/tech/fearsome-tanks-fought-saddam-hussein-195500712.html)
-- Feb 02 - [Trump ‘believes’ he’ll be convicted of overturning 2020 US election in trial this year](https://news.yahoo.com/trump-believes-ll-convicted-overturning-195239409.html)
-- Feb 02 - [Video shows skiers trying to save teen snowboarder as she falls from California chairlift](https://news.yahoo.com/video-shows-skiers-trying-save-190246712.html)
-- Feb 02 - ["It Has Been Associated With An Increased Risk Of Developing Dementia" — This Doctor Is Warning People About The Potential Risk Of This Popular Over-The-Counter Medicine](https://www.yahoo.com/lifestyle/associated-increased-risk-developing-dementia-185121171.html)
+- Feb 02 - [Wisconsin Supreme Court agrees to hear governor's lawsuit against GOP-controlled Legislature](https://news.yahoo.com/wisconsin-supreme-court-agrees-hear-213624930.html)
+- Feb 02 - [Trump spent $76 million over last two years on attorneys as legal troubles mount ahead of election](https://news.yahoo.com/trump-spent-76-million-over-212817705.html)
+- Feb 02 - [Florida Man Buys Porsche 911 Turbo With Homemade Check](https://autos.yahoo.com/florida-man-buys-porsche-911-150000420.html)
+- Feb 02 - ['Your Father Is A Moron' – Dave Ramsey Is Disgusted By This Dad's 'Slimy' Car-Buying Strategy For His Teenage Daughter](https://finance.yahoo.com/news/father-moron-dave-ramsey-disgusted-211016354.html)
+- Feb 02 - [Man charged with shooting and beheading father bought the gun he used one day earlier, police say. Here’s everything to know about the gruesome case.](https://news.yahoo.com/pennsylvania-behading-suspect-father-bucks-county-police-update-205740376.html)
 <!-- feed end -->
 
 ### Onstream
