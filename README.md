@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 01 - [Deputies ‘viciously’ beat hospitalized mom of 2 as she waits for CT scan, lawsuit says](https://news.yahoo.com/deputies-viciously-beat-hospitalized-mom-220413185.html)
-- Feb 01 - [He Was Arrested for Making a Joke on Facebook. A Jury Just Awarded Him $205,000 in Damages.](https://news.yahoo.com/arrested-making-joke-facebook-jury-212045619.html)
-- Feb 01 - [Chiefs Fan Who Hosted Deadly Watch Party Allegedly Known As ‘The Chemist’](https://www.yahoo.com/entertainment/chiefs-fan-hosted-deadly-watch-192507306.html)
-- Feb 01 - [Trump doles out millions to lawyers: Here’s who’s getting the most](https://news.yahoo.com/trump-doles-millions-lawyers-getting-185013886.html)
-- Feb 01 - [Mexican president suggests US talks on migration and drugs may suffer after drug money allegations](https://news.yahoo.com/mexican-president-suggests-us-talks-184821803.html)
+- Feb 02 - [Kevin McCarthy Is Out For Vengeance, Baby!](https://news.yahoo.com/kevin-mccarthy-vengeance-baby-003100695.html)
+- Feb 01 - [“Hootie & The Blowfish’ Singer Darius Rucker Arrested for Drug Offense In Tennessee](https://www.yahoo.com/entertainment/hootie-blowfish-singer-darius-rucker-235555856.html)
+- Feb 01 - [Former CIA employee sentenced to 40 years in prison after carrying out largest data leak in agency’s history](https://news.yahoo.com/former-cia-employee-sentenced-40-234248276.html)
+- Feb 01 - [Marjorie Taylor Greene Accidentally Turns 'Indictable' Into Dirty Word](https://www.yahoo.com/entertainment/marjorie-taylor-greene-accidentally-turns-233949856.html)
+- Feb 01 - [In California, Black lawmakers share a reparations plan with few direct payments](https://news.yahoo.com/california-black-lawmakers-share-reparations-223126922.html)
 <!-- feed end -->
 
 ### Onstream
