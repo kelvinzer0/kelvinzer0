@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 02 - [Authorities: Pennsylvania beheading suspect had ‘no history of diagnosed mental health issues’](https://news.yahoo.com/pennsylvania-beheading-suspect-had-no-182656090.html)
+- Feb 02 - [Trump ‘believes’ he’ll be convicted of overturning 2020 US election in trial this year](https://news.yahoo.com/trump-believes-ll-convicted-overturning-195239409.html)
+- Feb 02 - ["It Has Been Associated With An Increased Risk Of Developing Dementia" — This Doctor Is Warning People About The Potential Risk Of This Popular Over-The-Counter Medicine](https://www.yahoo.com/lifestyle/associated-increased-risk-developing-dementia-185121171.html)
+- Feb 02 - [Ohio Attorney General given until Monday to explain rejection of voting rights amendment to court](https://news.yahoo.com/ohio-attorney-general-given-until-184603118.html)
+- Feb 02 - [Trump prosecutor Willis admits relationship with colleague, denies tainting case](https://news.yahoo.com/trump-georgia-prosecutor-fani-willis-181620850.html)
 - Feb 02 - [Doctor who prescribed more than 500,000 opioid doses has conviction tossed](https://news.yahoo.com/doctor-prescribed-more-500-000-181108724.html)
-- Feb 02 - [Anglers battle huge fish on Florida beach — and reel in 1,200-pound surprise, video shows](https://news.yahoo.com/anglers-battle-huge-fish-florida-165655023.html)
-- Feb 02 - [UK police say a woman attacked with chemicals is doing 'very poorly.' The suspect is still at large](https://news.yahoo.com/uk-police-woman-attacked-chemicals-162615214.html)
-- Feb 02 - [Italian mafia boss who escaped prison by tying bed sheets together arrested during romantic dinner in France](https://news.yahoo.com/italian-mafia-boss-escaped-prison-161650848.html)
 <!-- feed end -->
 
 ### Onstream
