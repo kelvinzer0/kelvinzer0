@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 03 - [California’s Lake Shasta rising from severe-drought levels in stunning before and after images](https://sports.yahoo.com/california-lake-shasta-rising-severe-012115692.html)
 - Feb 02 - [Prosecutors in classified files case say Trump team's version of events 'inaccurate and distorted'](https://news.yahoo.com/prosecutors-classified-files-case-trump-233700026.html)
-- Feb 02 - [Illegals who caught bus out of NYC after attack on police may have gotten free ride from US taxpayers: sources](https://news.yahoo.com/illegals-caught-bus-nyc-attack-225318120.html)
+- Feb 02 - [Harvard alumni backed by billionaires fail to make cut for board ballot](https://news.yahoo.com/harvard-alumni-backed-billionaires-fail-231749327.html)
 - Feb 02 - [‘I did everything I was supposed to do’: Kansas wildlife officials remove angler’s trophy catch from state record list](https://news.yahoo.com/did-everything-supposed-kansas-wildlife-223217228.html)
 - Feb 02 - [‘Large’ metallic creature — thought extinct for 100 years — rediscovered on island](https://news.yahoo.com/large-metallic-creature-thought-extinct-222532969.html)
 <!-- feed end -->
