@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - ['Shameful': Mike Rowe trashes college degrees, says Harvard grads are taking their 'degrees off the wall' — is welding, pipe fitting or HVAC a better path to six figures?](https://finance.yahoo.com/news/shameful-mike-rowe-trashes-college-120400100.html)
+- Feb 03 - [I Spent Weeks Near Death In The ICU. Asking My Doctors To Do This 1 Thing May Have Saved My Life.](https://news.yahoo.com/spent-weeks-near-death-icu-133012435.html)
 - Feb 03 - [‘I watched my daughter’s coffin go on the plane. A few months later, I saw the same with my wife’s’](https://news.yahoo.com/watched-daughter-coffin-plane-few-070000947.html)
 - Feb 03 - [China says Philippine vessel "illegally" landed on disputed atoll](https://news.yahoo.com/china-says-philippine-vessel-illegally-062908032.html)
 - Feb 03 - [Hamas demands Israel release Marwan Barghouti, a man some Palestinians see as their Nelson Mandela](https://news.yahoo.com/hamas-demands-israel-release-marwan-051648903.html)
