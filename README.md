@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 03 - [‘I watched my daughter’s coffin go on the plane. A few months later, I saw the same with my wife’s’](https://news.yahoo.com/watched-daughter-coffin-plane-few-070000947.html)
-- Feb 03 - [China says Philippine vessel "illegally" landed on disputed atoll](https://news.yahoo.com/china-says-philippine-vessel-illegally-062908032.html)
-- Feb 03 - [Hamas demands Israel release Marwan Barghouti, a man some Palestinians see as their Nelson Mandela](https://news.yahoo.com/hamas-demands-israel-release-marwan-051648903.html)
-- Feb 03 - [George Conway describes moment Trump went ‘bananas’ at deposition](https://news.yahoo.com/george-conway-describes-moment-trump-035542943.html)
-- Feb 03 - [Iraq says this video shows aftermath of the US strikes](https://news.yahoo.com/iraq-says-video-shows-aftermath-012126091.html)
+- Feb 03 - [The Polling ‘Disaster’ That’s Starting To Terrify Team Trump](https://news.yahoo.com/polling-disaster-starting-terrify-team-150000098.html)
+- Feb 03 - [I got a dangerous surgery at 16 to stop excessive facial blushing, and it ruined my life. Decades later, I can't feel emotions.](https://news.yahoo.com/got-dangerous-surgery-16-stop-140701112.html)
+- Feb 03 - [Fact Check: Online Posts Claim Robin Williams Once Said, 'Everyone You Meet Is Fighting a Battle You Know Nothing About.' Evidence Suggests Otherwise.](https://www.yahoo.com/entertainment/fact-check-online-posts-claim-140000678.html)
+- Feb 03 - [Russians raise wreckage of landing ship Novocherkassk from seabed in Crimea — photo](https://news.yahoo.com/russians-raise-wreckage-landing-ship-135600678.html)
+- Feb 03 - [Pakistan ex-PM Imran Khan and wife jailed for 7 years for unlawful marriage](https://news.yahoo.com/pakistan-ex-pm-imran-khan-105455882.html)
 <!-- feed end -->
 
 ### Onstream
