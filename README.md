@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Prosecutors in classified files case say Trump team's version of events 'inaccurate and distorted'](https://news.yahoo.com/prosecutors-classified-files-case-trump-233700026.html)
 - Feb 02 - [‘Large’ metallic creature — thought extinct for 100 years — rediscovered on island](https://news.yahoo.com/large-metallic-creature-thought-extinct-222532969.html)
-- Feb 02 - [Trump spent $76 million over last two years on attorneys as legal troubles mount ahead of election](https://news.yahoo.com/trump-spent-76-million-over-212817705.html)
+- Feb 02 - [Bulgaria starts sending Ukraine 100 armoured personnel carriers from its warehouses](https://news.yahoo.com/bulgaria-starts-sending-ukraine-100-215418198.html)
+- Feb 02 - [Wisconsin Supreme Court agrees to hear governor's lawsuit against GOP-controlled Legislature](https://news.yahoo.com/wisconsin-supreme-court-agrees-hear-213624930.html)
 - Feb 02 - [Florida Man Buys Porsche 911 Turbo With Homemade Check](https://autos.yahoo.com/florida-man-buys-porsche-911-150000420.html)
-- Feb 02 - ['Your Father Is A Moron' – Dave Ramsey Is Disgusted By This Dad's 'Slimy' Car-Buying Strategy For His Teenage Daughter](https://finance.yahoo.com/news/father-moron-dave-ramsey-disgusted-211016354.html)
-- Feb 02 - [Man charged with shooting and beheading father bought the gun he used one day earlier, police say. Here’s everything to know about the gruesome case.](https://news.yahoo.com/pennsylvania-behading-suspect-father-bucks-county-police-update-205740376.html)
 <!-- feed end -->
 
 ### Onstream
