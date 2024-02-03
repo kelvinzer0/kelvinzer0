@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 03 - [Melania’s Stylist’s Huge Earnings From Trump’s PAC Raises Questions: Is He ‘Robbing MAGA Blind’?](https://www.yahoo.com/entertainment/melania-stylist-huge-earnings-trump-213056007.html)
+- Feb 03 - [Donald Trump and UAW President Shawn Fain exchange barbs: 'Get rid of this dope'](https://news.yahoo.com/donald-trump-uaw-president-shawn-203458278.html)
 - Feb 03 - [Nuclear missile found in US man’s garage](https://news.yahoo.com/nuclear-missile-found-us-man-191224528.html)
 - Feb 03 - [Hiker’s remains found in California national park nearly 9 months after he was last seen alive](https://news.yahoo.com/hiker-remains-found-california-national-170504958.html)
 - Feb 03 - [Pro-Kremlin supporters are fuming after footage appears to show Ukrainian drones decimating an entire Russian armored column](https://news.yahoo.com/pro-kremlin-supporters-fuming-footage-170108245.html)
-- Feb 03 - [‘You feel like a failure’: the parents driven to despair by their children’s refusal to go to school](https://news.yahoo.com/feel-failure-parents-driven-despair-170000358.html)
-- Feb 03 - [They accidentally killed someone with their car. Now they want reform.](https://news.yahoo.com/accidentally-killed-someone-car-now-160040677.html)
 <!-- feed end -->
 
 ### Onstream
