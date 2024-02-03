@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 03 - [‘I watched my daughter’s coffin go on the plane. A few months later, I saw the same with my wife’s’](https://news.yahoo.com/watched-daughter-coffin-plane-few-070000947.html)
 - Feb 03 - [The RNC chairwoman calls for unity as the party faces a cash crunch and attacks by some Trump allies](https://news.yahoo.com/rnc-chairwoman-calls-unity-party-052428571.html)
 - Feb 03 - [Hamas demands Israel release Marwan Barghouti, a man some Palestinians see as their Nelson Mandela](https://news.yahoo.com/hamas-demands-israel-release-marwan-051648903.html)
 - Feb 03 - [California’s Lake Shasta rising from severe-drought levels in stunning before and after images](https://sports.yahoo.com/california-lake-shasta-rising-severe-012115692.html)
-- Feb 02 - [Man arrested after allegedly showing photographs of male genitals to customers in a Family Dollar in Grovetown](https://news.yahoo.com/man-arrested-allegedly-showing-photographs-232701228.html)
 - Feb 02 - [Harvard alumni backed by billionaires fail to make cut for board ballot](https://news.yahoo.com/harvard-alumni-backed-billionaires-fail-231749327.html)
 <!-- feed end -->
 
