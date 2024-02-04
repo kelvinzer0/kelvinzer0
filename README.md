@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 04 - [They hoped solar panels would secure the future of their farm. Then their neighbors found out](https://news.yahoo.com/hoped-solar-panels-secure-future-101845024.html)
 - Feb 04 - ['Open mic night' at the Supreme Court? Don't expect Donald Trump to let loose at the marble palace](https://news.yahoo.com/open-mic-night-supreme-court-100722579.html)
 - Feb 04 - [Chinese turn U.S. embassy post into 'Wailing Wall' for stock plunge](https://www.yahoo.com/tech/chinese-turn-u-embassy-post-090328994.html)
-- Feb 04 - [Covid scientist Sir John Edmunds: ‘We didn’t take enough account of the economic cost of lockdown’](https://news.yahoo.com/covid-scientist-sir-john-edmunds-070000436.html)
+- Feb 04 - [OnlyFans murder: Suspect's 'crime family' parents hacked into victim's laptop, warrants allege](https://news.yahoo.com/onlyfans-murder-suspects-crime-family-090025898.html)
 - Feb 04 - [Newspaper heiress Patty Hearst was kidnapped 50 years ago. Now she's famous for her dogs](https://news.yahoo.com/newspaper-heiress-patty-hearst-kidnapped-065641017.html)
-- Feb 04 - [A stolen digital memory card with gruesome recordings leads to a double murder trial in Alaska](https://news.yahoo.com/stolen-digital-memory-card-gruesome-050139352.html)
 <!-- feed end -->
 
 ### Onstream
