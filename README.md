@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 04 - [Asked if he supports RNC chairwoman, Trump suggests there will 'probably be some changes made'](https://news.yahoo.com/trump-says-ll-probably-changes-174938071.html)
-- Feb 04 - [How the ‘AK-47 of Tehran’ changed warfare and set fire to the Middle East](https://news.yahoo.com/ak-47-tehran-changed-warfare-172341884.html)
+- Feb 04 - [Trump reveals criteria for running mate, name drops two top Republicans](https://news.yahoo.com/trump-reveals-criteria-running-mate-160606899.html)
 - Feb 04 - [New York professor caught on video holding machete to reporter's neck reportedly fired after anti-Israel rants](https://news.yahoo.com/york-professor-caught-video-holding-152806751.html)
 - Feb 04 - [The UK's flagship aircraft carrier suffers new misfortune and won't lead major NATO exercise](https://news.yahoo.com/uks-flagship-aircraft-carrier-suffers-150812548.html)
 - Feb 04 - [Graham slams Biden on Middle East strikes: ‘The only Iranian we killed… is some dumba–’](https://news.yahoo.com/graham-slams-biden-middle-east-150246077.html)
