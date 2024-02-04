@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 04 - [Indianapolis businessman killed in fiery Florida plane crash](https://news.yahoo.com/indianapolis-businessman-killed-fiery-florida-142350694.html)
+- Feb 04 - [The UK's flagship aircraft carrier suffers new misfortune and won't lead major NATO exercise](https://news.yahoo.com/uks-flagship-aircraft-carrier-suffers-150812548.html)
+- Feb 04 - [Graham slams Biden on Middle East strikes: ‘The only Iranian we killed… is some dumba–’](https://news.yahoo.com/graham-slams-biden-middle-east-150246077.html)
 - Feb 04 - [Trump asked his followers if they think he looks like Elvis in a strange social media post](https://news.yahoo.com/trump-asked-followers-think-looks-135931801.html)
 - Feb 04 - [As Trump’s popularity soars again, the family who ditched him now face a dilemma](https://news.yahoo.com/donald-popularity-soars-again-grifters-130000146.html)
-- Feb 04 - [Claims that Jan. 6 rioters are 'political prisoners' endure. Judges want to set the record straight](https://news.yahoo.com/claims-jan-6-rioters-political-122731583.html)
-- Feb 04 - [‘Just send it straight to collections’: This TikToker hasn’t paid her credit card bill in 7 months — says she needs the money to cover the ‘bare necessities.’ Is she making a mistake?](https://finance.yahoo.com/news/just-send-straight-collections-tiktoker-112600850.html)
+- Feb 04 - [After US strikes in Yemen, Iran issues a warning about suspected spy ships in the Mideast](https://news.yahoo.com/us-strikes-hitting-yemen-iran-124310550.html)
 <!-- feed end -->
 
 ### Onstream
