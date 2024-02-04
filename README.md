@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 04 - [After new US strikes hitting Yemen, Iran issues a warning about suspected spy ships in the Mideast](https://news.yahoo.com/us-strikes-hitting-yemen-iran-124310550.html)
 - Feb 04 - [Claims that Jan. 6 rioters are 'political prisoners' endure. Judges want to set the record straight](https://news.yahoo.com/claims-jan-6-rioters-political-122731583.html)
+- Feb 04 - [A 70-year-old who finally found a solution to a lifetime of loneliness says the friendships he's made are worth the cost](https://www.yahoo.com/lifestyle/70-old-finally-found-solution-111701051.html)
 - Feb 04 - [‘Out of touch’: Dave Ramsey slams Philadelphia couple for paying $80K/year on child care — and some parents on TikTok now think Ramsey owes them an apology. Are they right?](https://finance.yahoo.com/news/touch-dave-ramsey-slams-philadelphia-110400721.html)
 - Feb 04 - [They hoped solar panels would secure the future of their farm. Then their neighbors found out](https://news.yahoo.com/hoped-solar-panels-secure-future-101845024.html)
-- Feb 04 - ['Open mic night' at the Supreme Court? Don't expect Donald Trump to let loose at the marble palace](https://news.yahoo.com/open-mic-night-supreme-court-100722579.html)
-- Feb 04 - [Chinese turn U.S. embassy post into 'Wailing Wall' for stock plunge](https://www.yahoo.com/tech/chinese-turn-u-embassy-post-090328994.html)
 <!-- feed end -->
 
 ### Onstream
