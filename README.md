@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 04 - [A stolen digital memory card with gruesome recordings leads to a double murder trial in Alaska](https://news.yahoo.com/stolen-digital-memory-card-gruesome-050139352.html)
+- Feb 04 - [‘SNL’ Faces Backlash After Nikki Haley Makes Surprise Appearance During Cold Open](https://www.yahoo.com/entertainment/snl-faces-backlash-nikki-haley-045711644.html)
 - Feb 04 - [South Dakota tribe bans governor from reservation over US-Mexico border remarks](https://news.yahoo.com/south-dakota-tribe-bans-governor-041223683.html)
 - Feb 04 - [Former Trump official Mike Gill dies after being shot during Washington DC carjacking incident](https://news.yahoo.com/former-trump-official-mike-gill-013719823.html)
 - Feb 04 - [Oklahoma drag queen elementary school principal resigns amid outrage, official says](https://news.yahoo.com/oklahoma-drag-queen-elementary-school-003624476.html)
-- Feb 03 - [Melania’s Stylist’s Huge Earnings From Trump’s PAC Raises Questions: Is He ‘Robbing MAGA Blind’?](https://www.yahoo.com/entertainment/melania-stylist-huge-earnings-trump-213056007.html)
-- Feb 03 - [Blaine woman charged with sexually assaulting youth hockey players at Roseville hotel](https://news.yahoo.com/blaine-woman-charged-sexually-assaulting-212800708.html)
 <!-- feed end -->
 
 ### Onstream
