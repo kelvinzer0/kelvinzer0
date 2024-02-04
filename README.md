@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 04 - [George Stephanopoulos Shuts Down Interview With Sen. J.D. Vance](https://news.yahoo.com/george-stephanopoulos-shuts-down-interview-203847105.html)
+- Feb 04 - [After Biden won 96% of the vote in the South Carolina primary, presidential contender Dean Phillips says Democrats should 'wake up' and move on](https://news.yahoo.com/biden-won-96-vote-south-192339904.html)
 - Feb 04 - [Asked if he supports RNC chairwoman, Trump suggests there will 'probably be some changes made'](https://news.yahoo.com/trump-says-ll-probably-changes-174938071.html)
+- Feb 04 - [Tucker Carlson apparently pictured in Russia amid rumours of interview with Putin](https://news.yahoo.com/tucker-carlson-pictured-russia-amid-174253418.html)
 - Feb 04 - [How the ‘AK-47 of Tehran’ changed warfare and set fire to the Middle East](https://news.yahoo.com/ak-47-tehran-changed-warfare-172341884.html)
-- Feb 04 - [Trump reveals criteria for running mate, name drops two top Republicans](https://news.yahoo.com/trump-reveals-criteria-running-mate-160606899.html)
-- Feb 04 - [Police in Michigan city put on alert after WSJ opinion piece](https://news.yahoo.com/police-michigan-city-put-alert-154031159.html)
-- Feb 04 - [New York professor caught on video holding machete to reporter's neck reportedly fired after anti-Israel rants](https://news.yahoo.com/york-professor-caught-video-holding-152806751.html)
 <!-- feed end -->
 
 ### Onstream
