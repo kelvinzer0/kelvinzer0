@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 04 - [Claims that Jan. 6 rioters are 'political prisoners' endure. Judges want to set the record straight](https://news.yahoo.com/claims-jan-6-rioters-political-122731583.html)
+- Feb 04 - [‘Out of touch’: Dave Ramsey slams Philadelphia couple for paying $80K/year on child care — and some parents on TikTok now think Ramsey owes them an apology. Are they right?](https://finance.yahoo.com/news/touch-dave-ramsey-slams-philadelphia-110400721.html)
 - Feb 04 - [They hoped solar panels would secure the future of their farm. Then their neighbors found out](https://news.yahoo.com/hoped-solar-panels-secure-future-101845024.html)
 - Feb 04 - ['Open mic night' at the Supreme Court? Don't expect Donald Trump to let loose at the marble palace](https://news.yahoo.com/open-mic-night-supreme-court-100722579.html)
 - Feb 04 - [Chinese turn U.S. embassy post into 'Wailing Wall' for stock plunge](https://www.yahoo.com/tech/chinese-turn-u-embassy-post-090328994.html)
-- Feb 04 - [OnlyFans murder: Suspect's 'crime family' parents hacked into victim's laptop, warrants allege](https://news.yahoo.com/onlyfans-murder-suspects-crime-family-090025898.html)
-- Feb 04 - [Newspaper heiress Patty Hearst was kidnapped 50 years ago. Now she's famous for her dogs](https://news.yahoo.com/newspaper-heiress-patty-hearst-kidnapped-065641017.html)
 <!-- feed end -->
 
 ### Onstream
