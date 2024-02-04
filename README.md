@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Feb 04 - [Diplomatic tensions between Ecuador and Russia over military equipment threaten banana exports](https://news.yahoo.com/diplomatic-tensions-between-ecuador-russia-203050144.html)
 - Feb 04 - [Escaped Huber inmate never returned to Dodge County jail, last seen in Beaver Dam](https://news.yahoo.com/escaped-huber-inmate-never-returned-202029853.html)
 - Feb 04 - [After Biden won 96% of the vote in the South Carolina primary, presidential contender Dean Phillips says Democrats should 'wake up' and move on](https://news.yahoo.com/biden-won-96-vote-south-192339904.html)
-- Feb 04 - [Biden camp reportedly fears photos from special counsel classified docs probe could devastate re-election bid](https://news.yahoo.com/biden-camp-reportedly-fears-photos-190641085.html)
+- Feb 04 - [Biden camp reportedly fears photos from special counsel classified docs probe could devastate reelection bid](https://news.yahoo.com/biden-camp-reportedly-fears-photos-190641085.html)
 <!-- feed end -->
 
 ### Onstream
