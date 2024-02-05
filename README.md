@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [US's Blinken lands in Saudi for first stop in Mideast trip](https://news.yahoo.com/uss-blinken-lands-saudi-first-145254805.html)
+- Feb 05 - ["Inaccurate and distorted": New Jack Smith filing blows up Trump's false Mar-a-Lago narrative](https://news.yahoo.com/inaccurate-distorted-jack-smith-filing-152552101.html)
+- Feb 05 - [Ukraine-Russia war latest: Tucker Carlson says Russia is doing ‘very well’ during Moscow visit](https://news.yahoo.com/ukraine-russia-war-latest-tucker-150507627.html)
+- Feb 05 - [With a single word -- 'lover' -- Trump employs familiar playbook in tweaking his investigators](https://news.yahoo.com/single-word-lover-trump-employs-150139855.html)
+- Feb 05 - [Inspectors temporarily close Anna Maria Island restaurant with dozens of live roaches](https://news.yahoo.com/inspectors-temporarily-close-anna-maria-143000174.html)
 - Feb 05 - [Thousands Without Power After Flash Floods, High Winds Hit California](https://finance.yahoo.com/video/thousands-without-power-flash-floods-142300006.html)
-- Feb 05 - [Mysterious bright red squirrels lead to odd discovery in New York town, officials say](https://news.yahoo.com/mysterious-bright-red-squirrels-lead-141521406.html)
-- Feb 05 - [Russian General may face 10 to 15 years in prison for personally ordering seizure of Ukraine's Kherson Oblast](https://news.yahoo.com/russian-general-may-face-10-134900391.html)
-- Feb 05 - [With ‘pig butchering’ scams on the rise, FBI moves to stop the bleeding](https://news.yahoo.com/pig-butchering-scams-rise-fbi-133000379.html)
 <!-- feed end -->
 
 ### Onstream
