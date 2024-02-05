@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [Family of Black girls handcuffed by Colorado police, held at gunpoint reach $1.9 million settlement](https://news.yahoo.com/family-black-girls-handcuffed-colorado-203136634.html)
-- Feb 05 - [The King needs William – and now the Prince of Wales needs Harry](https://news.yahoo.com/william-bind-royal-family-ever-202145715.html)
-- Feb 05 - [Sherriff: Thousands of marijuana plants seized from Maine home owned by Mass. resident](https://news.yahoo.com/sherriff-thousands-marijuana-plants-seized-162338844.html)
-- Feb 05 - ['Category 5' was considered the worst hurricane. There's something scarier, study says.](https://news.yahoo.com/category-5-considered-worst-hurricane-200106484.html)
-- Feb 05 - [Severe Rains and Winds Lash California, Cause Flooding and Mudslides](https://finance.yahoo.com/video/thousands-without-power-flash-floods-142300006.html)
+- Feb 05 - [Minn. Mom Accused of Sexually Abusing 2 Youth Hockey Players After Discussing Marital Problems in Hotel Hot Tub](https://www.yahoo.com/entertainment/minn-mom-accused-sexually-abusing-213001684.html)
+- Feb 05 - [Bowen Yang Sums Up His Feelings For Nikki Haley's 'SNL' Cameo With Just 1 Word](https://www.yahoo.com/entertainment/bowen-yang-sums-feelings-nikki-211728801.html)
+- Feb 05 - [The Industry ‘Scandal’ That Might Completely Upend How America Builds Houses](https://news.yahoo.com/industry-scandal-might-completely-upend-211448232.html)
+- Feb 05 - [US Rep. Lauren Boebert granted temporary restraining order against her ex-husband](https://news.yahoo.com/us-rep-lauren-boebert-granted-210439394.html)
+- Feb 05 - [Pablo Escobar’s 'Cocaine Hippos' Are Multiplying — and Starting to Attack People: ‘Very Dangerous’](https://www.yahoo.com/entertainment/pablo-escobar-cocaine-hippos-multiplying-205333940.html)
 <!-- feed end -->
 
 ### Onstream
