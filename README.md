@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - ["Inaccurate and distorted": New Jack Smith filing blows up Trump's false Mar-a-Lago narrative](https://news.yahoo.com/inaccurate-distorted-jack-smith-filing-152552101.html)
-- Feb 05 - [Ukraine-Russia war latest: Tucker Carlson says Russia is doing ‘very well’ during Moscow visit](https://news.yahoo.com/ukraine-russia-war-latest-tucker-150507627.html)
-- Feb 05 - [With a single word -- 'lover' -- Trump employs familiar playbook in tweaking his investigators](https://news.yahoo.com/single-word-lover-trump-employs-150139855.html)
-- Feb 05 - [Inspectors temporarily close Anna Maria Island restaurant with dozens of live roaches](https://news.yahoo.com/inspectors-temporarily-close-anna-maria-143000174.html)
-- Feb 05 - [Thousands Without Power After Flash Floods, High Winds Hit California](https://finance.yahoo.com/video/thousands-without-power-flash-floods-142300006.html)
+- Feb 05 - [A 70-year-old who finally found a solution to a lifetime of loneliness says the friendships he's made are worth the cost](https://news.yahoo.com/70-old-finally-found-solution-111701051.html)
+- Feb 05 - [Joni Mitchell Made Her Grammys Performance Debut Amid Battle With Morgellons Disease](https://www.yahoo.com/lifestyle/joni-mitchell-morgellons-disease-heres-170000375.html)
+- Feb 05 - ['It's Betrayal': Republicans Go Ballistic Over Bipartisan Border Bill They Demanded](https://news.yahoo.com/betrayal-republicans-ballistic-over-bipartisan-162157150.html)
+- Feb 05 - [Company fires woman who wouldn’t retire on 65th birthday, suit says. She’s owed $105K](https://news.yahoo.com/company-fires-woman-wouldn-t-160631143.html)
+- Feb 05 - [Do you have to comply with police at a DUI checkpoint? What Florida law says about that](https://news.yahoo.com/comply-police-dui-checkpoint-florida-151847417.html)
 <!-- feed end -->
 
 ### Onstream
