@@ -62,8 +62,8 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 05 - [Killer Mike Handcuffed, Detained at Grammys Hours After Winning Three Awards](https://www.yahoo.com/entertainment/killer-mike-taken-away-handcuffs-010143583.html)
 - Feb 05 - [Powell: ‘The US is on an unsustainable fiscal path’](https://news.yahoo.com/powell-us-unsustainable-fiscal-path-002419665.html)
-- Feb 05 - [Florida man arrested after crossing crime scene tape at plane crash site, claimed to be medical staff](https://news.yahoo.com/florida-man-arrested-crossing-crime-000841568.html)
 - Feb 04 - [People Are Claiming Eating Day-Old Rice Can Be Dangerous, And Rage Has Ensued — Here's The Unfortunate Confirmation From An Expert](https://www.yahoo.com/lifestyle/people-claiming-eating-day-old-225441443.html)
+- Feb 04 - [Nose picking likely ‘partially’ to blame for Alzheimer’s disease: scientists](https://news.yahoo.com/nose-picking-likely-partially-blame-205347245.html)
 - Feb 04 - [George Stephanopoulos Shuts Down Interview With Sen. J.D. Vance](https://news.yahoo.com/george-stephanopoulos-shuts-down-interview-203847105.html)
 <!-- feed end -->
 
