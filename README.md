@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [Speaker Johnson says Senate border deal is ‘dead on arrival’](https://news.yahoo.com/speaker-johnson-says-senate-border-123106565.html)
+- Feb 05 - [France to summon Russian Ambassador following ‘cowardly & disgraceful’ killing of French volunteers](https://news.yahoo.com/france-summon-russian-ambassador-following-131000342.html)
 - Feb 05 - [Ukraine’s historic takedown of Russian A-50 radar plane earns global applause](https://news.yahoo.com/ukraine-historic-takedown-russian-50-120500217.html)
 - Feb 05 - [‘I lost $60M during COVID … and made $180M back in 6 months’: This multi-millionaire broke down sharing how his family survived civil war in El Salvador to achieve the American Dream (twice)](https://finance.yahoo.com/news/lost-60m-during-covid-made-113700320.html)
-- Feb 05 - [Trump heads to US Supreme Court with a familiar claim: he is untouchable](https://news.yahoo.com/trump-heads-us-supreme-court-110349908.html)
-- Feb 05 - [US porn actor who advocates for Palestinians visits Iran on trip unacknowledged by Tehran](https://news.yahoo.com/us-porn-actor-advocates-palestinians-105349585.html)
+- Feb 05 - [Joe Rogan blasts US culture for 'demonizing' blue-collar work — while putting white-collar work 'on a pedestal.' Guest suggests being a plumber, electrician to get very rich. Do you agree?](https://finance.yahoo.com/news/joe-rogan-blasts-us-culture-110300557.html)
+- Feb 05 - [Restaurant workers wanted to unionize at this L.A. hotel. Now the restaurants are closing](https://news.yahoo.com/restaurant-workers-wanted-unionize-l-110022532.html)
 <!-- feed end -->
 
 ### Onstream
