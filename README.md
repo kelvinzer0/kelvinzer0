@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 05 - [Severe Rains and Winds Lash California, Cause Flooding and Mudslides](https://finance.yahoo.com/video/thousands-without-power-flash-floods-142300006.html)
 - Feb 05 - [Ukraine-born Miss Japan 2024 relinquishes title following report of affair](https://news.yahoo.com/ukraine-born-miss-japan-2024-183229706.html)
 - Feb 05 - [King Charles, 75, Announces Cancer Diagnosis, Postpones All Future Engagements for Now](https://www.yahoo.com/entertainment/king-charles-75-announces-cancer-180333985.html)
+- Feb 05 - [Horry County man allegedly gave woman THC gummy before sleeping with her, report says](https://news.yahoo.com/horry-county-man-allegedly-gave-172853833.html)
 - Feb 05 - [Goofy 'God's Army' convoy on Texas border shows Trump's MAGA movement is just one long con](https://news.yahoo.com/goofy-gods-army-convoy-texas-172018391.html)
-- Feb 05 - [Legal analyst warns Trump "has some explaining to do" after court-monitor flags "fraud" evidence](https://news.yahoo.com/legal-analyst-warns-trump-explaining-171704767.html)
-- Feb 05 - [Joni Mitchell Made Her Grammys Performance Debut Amid Battle With Morgellons Disease](https://www.yahoo.com/lifestyle/joni-mitchell-morgellons-disease-heres-170000375.html)
 <!-- feed end -->
 
 ### Onstream
