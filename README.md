@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 05 - [Speaker Johnson says Senate border deal is ‘dead on arrival’](https://news.yahoo.com/speaker-johnson-says-senate-border-123106565.html)
+- Feb 05 - [Ukraine’s historic takedown of Russian A-50 radar plane earns global applause](https://news.yahoo.com/ukraine-historic-takedown-russian-50-120500217.html)
+- Feb 05 - [‘I lost $60M during COVID … and made $180M back in 6 months’: This multi-millionaire broke down sharing how his family survived civil war in El Salvador to achieve the American Dream (twice)](https://finance.yahoo.com/news/lost-60m-during-covid-made-113700320.html)
 - Feb 05 - [Trump heads to US Supreme Court with a familiar claim: he is untouchable](https://news.yahoo.com/trump-heads-us-supreme-court-110349908.html)
 - Feb 05 - [US porn actor who advocates for Palestinians visits Iran on trip unacknowledged by Tehran](https://news.yahoo.com/us-porn-actor-advocates-palestinians-105349585.html)
-- Feb 05 - [Angry Chinese take to US Embassy’s social media account to vent about plunging stock market](https://finance.yahoo.com/news/angry-chinese-us-embassy-social-044958891.html)
-- Feb 05 - [Trump's 'Weird' New Boast Is Literally Bringing Tears To People's Eyes](https://news.yahoo.com/trumps-weird-boast-literally-bringing-100512472.html)
-- Feb 05 - [Ex-DOJ Official Says He’s ‘Now At The Freakout Stage’ Over 1 Donald Trump Case](https://news.yahoo.com/ex-doj-official-says-now-094926932.html)
 <!-- feed end -->
 
 ### Onstream
