@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 05 - [France to summon Russian Ambassador following ‘cowardly & disgraceful’ killing of French volunteers](https://news.yahoo.com/france-summon-russian-ambassador-following-131000342.html)
-- Feb 05 - [Ukraine’s historic takedown of Russian A-50 radar plane earns global applause](https://news.yahoo.com/ukraine-historic-takedown-russian-50-120500217.html)
-- Feb 05 - [‘I lost $60M during COVID … and made $180M back in 6 months’: This multi-millionaire broke down sharing how his family survived civil war in El Salvador to achieve the American Dream (twice)](https://finance.yahoo.com/news/lost-60m-during-covid-made-113700320.html)
-- Feb 05 - [Joe Rogan blasts US culture for 'demonizing' blue-collar work — while putting white-collar work 'on a pedestal.' Guest suggests being a plumber, electrician to get very rich. Do you agree?](https://finance.yahoo.com/news/joe-rogan-blasts-us-culture-110300557.html)
-- Feb 05 - [Restaurant workers wanted to unionize at this L.A. hotel. Now the restaurants are closing](https://news.yahoo.com/restaurant-workers-wanted-unionize-l-110022532.html)
+- Feb 05 - [US's Blinken lands in Saudi for first stop in Mideast trip](https://news.yahoo.com/uss-blinken-lands-saudi-first-145254805.html)
+- Feb 05 - [Thousands Without Power After Flash Floods, High Winds Hit California](https://finance.yahoo.com/video/thousands-without-power-flash-floods-142300006.html)
+- Feb 05 - [Mysterious bright red squirrels lead to odd discovery in New York town, officials say](https://news.yahoo.com/mysterious-bright-red-squirrels-lead-141521406.html)
+- Feb 05 - [Russian General may face 10 to 15 years in prison for personally ordering seizure of Ukraine's Kherson Oblast](https://news.yahoo.com/russian-general-may-face-10-134900391.html)
+- Feb 05 - [With ‘pig butchering’ scams on the rise, FBI moves to stop the bleeding](https://news.yahoo.com/pig-butchering-scams-rise-fbi-133000379.html)
 <!-- feed end -->
 
 ### Onstream
