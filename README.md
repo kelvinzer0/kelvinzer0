@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 05 - ['Wow!': NBC's Kristen Welker Shocked By New 'Truly Stunning' Biden-Trump Poll](https://news.yahoo.com/wow-nbcs-kristen-welker-shocked-080308522.html)
 - Feb 05 - [Trump Struggles To Answer After Fox News Host Confronts Him On 'Mistakes'](https://news.yahoo.com/trump-struggles-answer-fox-news-075234621.html)
-- Feb 05 - [A US admiral says he's confident the US Navy's strike groups can counter China's 'carrier killer' missiles](https://news.yahoo.com/us-admiral-says-hes-confident-061016407.html)
-- Feb 05 - [Gavin Newsom Nails Biggest Threat To 'Sad And Pathetic' MAGA Republicans](https://www.yahoo.com/entertainment/gavin-newsom-nails-biggest-threat-060936939.html)
 - Feb 05 - [Here's how 2 sentences in the Constitution rose from obscurity to ensnare Donald Trump](https://news.yahoo.com/heres-2-sentences-constitution-rose-050725770.html)
 - Feb 05 - [Angry Chinese take to US Embassy’s social media account to vent about plunging stock market](https://finance.yahoo.com/news/angry-chinese-us-embassy-social-044958891.html)
+- Feb 05 - [Chinese migrants are flocking to the southern border, and some have Chinese TikTok guides on how to enter the US: CBS](https://news.yahoo.com/chinese-migrants-flocking-southern-border-041120789.html)
 <!-- feed end -->
 
 ### Onstream
