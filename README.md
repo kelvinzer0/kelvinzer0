@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 04 - [At least 2 dead after woman steals police car and crashes into truck](https://news.yahoo.com/bodycam-video-shows-woman-stealing-190607162.html)
+- Feb 04 - [People Are Claiming Eating Day-Old Rice Can Be Dangerous, And Rage Has Ensued — Here's The Unfortunate Confirmation From An Expert](https://www.yahoo.com/lifestyle/people-claiming-eating-day-old-225441443.html)
 - Feb 04 - [George Stephanopoulos Shuts Down Interview With Sen. J.D. Vance](https://news.yahoo.com/george-stephanopoulos-shuts-down-interview-203847105.html)
 - Feb 04 - [Diplomatic tensions between Ecuador and Russia over military equipment threaten banana exports](https://news.yahoo.com/diplomatic-tensions-between-ecuador-russia-203050144.html)
 - Feb 04 - [Escaped Huber inmate never returned to Dodge County jail, last seen in Beaver Dam](https://news.yahoo.com/escaped-huber-inmate-never-returned-202029853.html)
-- Feb 04 - [After Biden won 96% of the vote in the South Carolina primary, presidential contender Dean Phillips says Democrats should 'wake up' and move on](https://news.yahoo.com/biden-won-96-vote-south-192339904.html)
-- Feb 04 - [Biden camp reportedly fears photos from special counsel classified docs probe could devastate reelection bid](https://news.yahoo.com/biden-camp-reportedly-fears-photos-190641085.html)
 <!-- feed end -->
 
 ### Onstream
