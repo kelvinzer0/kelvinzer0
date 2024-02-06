@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [Normally at a crawl, the Los Angeles River threatens to overflow during torrential rains](https://news.yahoo.com/normally-crawl-los-angeles-river-011333635.html)
+- Feb 06 - [Mystery Surrounds Fatal Shooting Of Newlyweds In Wisconsin Bar](https://news.yahoo.com/mystery-surrounds-fatal-shooting-newlyweds-004216649.html)
+- Feb 05 - [Brawl between migrants and police in New York's Times Square touches off backlash](https://news.yahoo.com/brawl-between-migrants-police-times-234833242.html)
 - Feb 05 - [Ex-NFL quarterback Favre must finish repaying misspent welfare money, Mississippi auditor says](https://news.yahoo.com/ex-nfl-quarterback-favre-must-234208486.html)
 - Feb 05 - [Take a look at the tanker-like warship the US has used as a floating Navy SEAL base](https://news.yahoo.com/look-tanker-warship-us-used-223101732.html)
-- Feb 05 - [Minn. Mom Accused of Sexually Abusing 2 Youth Hockey Players After Discussing Marital Problems in Hotel Hot Tub](https://www.yahoo.com/entertainment/minn-mom-accused-sexually-abusing-213001684.html)
-- Feb 05 - [Bowen Yang Sums Up His Feelings For Nikki Haley's 'SNL' Cameo With Just 1 Word](https://www.yahoo.com/entertainment/bowen-yang-sums-feelings-nikki-211728801.html)
-- Feb 05 - [The Industry ‘Scandal’ That Might Completely Upend How America Builds Houses](https://news.yahoo.com/industry-scandal-might-completely-upend-211448232.html)
 <!-- feed end -->
 
 ### Onstream
