@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [Trump’s Awkward Verbal Stumble Has His Critics On A Roll](https://news.yahoo.com/trump-awkward-verbal-stumble-critics-091055609.html)
+- Feb 06 - [GOP Rep's Old Op-Ed Comes Back To Haunt Him In Embarrassing Hearing Moment](https://news.yahoo.com/gop-reps-old-op-ed-082929594.html)
+- Feb 06 - [Growing number of Conservative voters think Canada gives 'too much support' to Ukraine, poll suggests](https://news.yahoo.com/growing-number-conservative-voters-think-080042970.html)
 - Feb 06 - [Russians are freezing as Soviet-era infrastructure in the country crumbles —and Moscow keeps spending on war](https://news.yahoo.com/russians-freezing-soviet-era-infrastructure-060356275.html)
 - Feb 06 - [‘Stop calling’: Over 80 cars towed during Stockton sideshow and sheriff says no one is getting their vehicles back soon](https://news.yahoo.com/stop-calling-over-80-cars-013758715.html)
-- Feb 06 - [Texas couple visited Las Vegas to celebrate birthday, both dead after apparent overdose](https://news.yahoo.com/texas-couple-visited-las-vegas-011704969.html)
-- Feb 06 - [Normally at a crawl, the Los Angeles River threatens to overflow during torrential rains](https://news.yahoo.com/normally-crawl-los-angeles-river-011333635.html)
-- Feb 05 - [Brawl between migrants and police in New York's Times Square touches off backlash](https://news.yahoo.com/brawl-between-migrants-police-times-234833242.html)
 <!-- feed end -->
 
 ### Onstream
