@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [In Huge Reversal, GOP Poised To Kill The Border-Ukraine Package It Demanded](https://news.yahoo.com/huge-reversal-gop-poised-kill-031700036.html)
+- Feb 06 - [‘Stop calling’: Over 80 cars towed during Stockton sideshow and sheriff says no one is getting their car back soon](https://news.yahoo.com/stop-calling-over-80-cars-013758715.html)
+- Feb 06 - [Texas couple visited Las Vegas to celebrate birthday, both dead after apparent overdose](https://news.yahoo.com/texas-couple-visited-las-vegas-011704969.html)
 - Feb 06 - [Normally at a crawl, the Los Angeles River threatens to overflow during torrential rains](https://news.yahoo.com/normally-crawl-los-angeles-river-011333635.html)
-- Feb 06 - [Mystery Surrounds Fatal Shooting Of Newlyweds In Wisconsin Bar](https://news.yahoo.com/mystery-surrounds-fatal-shooting-newlyweds-004216649.html)
 - Feb 05 - [Brawl between migrants and police in New York's Times Square touches off backlash](https://news.yahoo.com/brawl-between-migrants-police-times-234833242.html)
-- Feb 05 - [Biden tells crowd he recently met with Mitterrand, former French president who died in 1996](https://news.yahoo.com/biden-tells-crowd-recently-met-234625101.html)
-- Feb 05 - [Ex-NFL quarterback Favre must finish repaying misspent welfare money, Mississippi auditor says](https://news.yahoo.com/ex-nfl-quarterback-favre-must-234208486.html)
 <!-- feed end -->
 
 ### Onstream
