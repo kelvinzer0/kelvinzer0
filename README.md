@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [US, Russia clash at UN over North Korea, Patriot missiles in Ukraine](https://news.yahoo.com/us-russia-clash-un-over-215548315.html)
+- Feb 06 - [Parents of man found dead outside Kansas City home speak out on what they believe happened](https://news.yahoo.com/parents-man-found-dead-outside-205657801.html)
+- Feb 06 - [Yes, the Los Angeles River is dramatically full. But it’s just ‘doing its job’](https://news.yahoo.com/yes-los-angeles-river-dramatically-204900894.html)
 - Feb 06 - [Hertz went all in on Tesla — and is paying the price](https://finance.yahoo.com/news/hertz-went-all-in-on-tesla--and-is-paying-the-price-195844835.html)
-- Feb 06 - [Tucker Carlson Is Interviewing Vladimir Putin in Moscow, Accuses White House of Spying to Try to Stop Him](https://www.yahoo.com/entertainment/tucker-carlson-interviewing-vladimir-putin-191944411.html)
-- Feb 06 - [16 People Who Embarrassed Themselves Way, Way, Way, Way, Way, Way More Than You Ever Could In Your Entire Life](https://www.yahoo.com/lifestyle/16-people-embarrassed-themselves-way-191602430.html)
-- Feb 06 - [Monster gator struts across swampy Florida reserve path, video shows. How big was it?](https://news.yahoo.com/monster-gator-struts-across-swampy-191356746.html)
-- Feb 06 - [Not wearing a mask during COVID-19 health emergency isn’t a free speech right, appeals court says](https://news.yahoo.com/not-wearing-mask-during-covid-184831261.html)
+- Feb 06 - [More than 78 ‘friends’ of the Supreme Court offer advice on the 14th Amendment and Trump’s eligibility](https://news.yahoo.com/more-78-friends-supreme-court-194311142.html)
 <!-- feed end -->
 
 ### Onstream
