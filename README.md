@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [The Moment Mark Cuban Knew He Could Not Work In The Corporate World: His Bank Boss Yelled At Him For Trying To Set Up Networking Activities](https://finance.yahoo.com/news/moment-mark-cuban-knew-could-160749013.html)
-- Feb 06 - [Jeff Bezos Laughed Off Criticism From Jay Leno In 1999 About Amazon Losing Billions And Never Making A Profit — 'We Are A Famously Unprofitable Company'](https://finance.yahoo.com/news/jeff-bezos-laughed-off-criticism-153202423.html)
-- Feb 06 - [As cancer treatment advances, patients and doctors push back against drugs' harsh side effects](https://news.yahoo.com/cancer-treatment-advances-patients-doctors-142212897.html)
-- Feb 06 - [Honda is recalling more than 750,000 vehicles to fix faulty passenger seat air bag sensor](https://news.yahoo.com/honda-recalling-more-750-000-125116654.html)
-- Feb 06 - [4 Black Eggs Have Surfaced From the Dark Heart of the Ocean—With Alien Creatures Inside](https://www.yahoo.com/tech/4-black-eggs-surfaced-dark-123000583.html)
+- Feb 06 - ["Puts him in a box": Experts say immunity ruling may have doomed Trump's Supreme Court appeal](https://news.yahoo.com/puts-him-box-experts-immunity-171139104.html)
+- Feb 06 - [‘Monster’ caught in suburban lake shatters record. See the ‘world’s longest goldfish’](https://news.yahoo.com/monster-caught-suburban-lake-shatters-165805264.html)
+- Feb 06 - [Robert Kiyosaki, 'Rich Dad Poor Dad' Author, Says, 'I Am a Billionaire in Debt' — And Calls Dave Ramsey An Idiot For Encouraging People To Live Debt-Free](https://finance.yahoo.com/news/robert-kiyosaki-rich-dad-poor-165122958.html)
+- Feb 06 - [Pro bowler from Ohio arrested while competing in tournament in Indiana](https://news.yahoo.com/pro-bowler-ohio-arrested-while-164455225.html)
+- Feb 06 - ["They have you on audio": Democrats bust Republican's glaring hypocrisy at impeachment hearing](https://news.yahoo.com/audio-democrats-bust-republicans-glaring-163225760.html)
 <!-- feed end -->
 
 ### Onstream
