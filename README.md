@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [Hertz went all in on Tesla — and is paying the price](https://finance.yahoo.com/news/hertz-went-all-in-on-tesla--and-is-paying-the-price-195844835.html)
+- Feb 06 - [Tucker Carlson Is Interviewing Vladimir Putin in Moscow, Accuses White House of Spying to Try to Stop Him](https://www.yahoo.com/entertainment/tucker-carlson-interviewing-vladimir-putin-191944411.html)
 - Feb 06 - [16 People Who Embarrassed Themselves Way, Way, Way, Way, Way, Way More Than You Ever Could In Your Entire Life](https://www.yahoo.com/lifestyle/16-people-embarrassed-themselves-way-191602430.html)
 - Feb 06 - [Monster gator struts across swampy Florida reserve path, video shows. How big was it?](https://news.yahoo.com/monster-gator-struts-across-swampy-191356746.html)
-- Feb 06 - [UPDATE 2-Trump civil fraud case judge to probe potential perjury by ex-CFO](https://finance.yahoo.com/news/1-trump-civil-fraud-case-183808318.html)
-- Feb 06 - [Feds Arrest Alleged Militia ‘Sniper’ Planning Attack at Southern Border](https://news.yahoo.com/feds-arrest-alleged-militia-sniper-180521096.html)
-- Feb 06 - [George Soros's Son Alex Says Donald Trump 'Either Winds Up In Prison Or He Winds Up In Power' Among Other Predictions Going Into The 2024 Election](https://finance.yahoo.com/news/george-soross-son-alex-says-180243744.html)
+- Feb 06 - [Not wearing a mask during COVID-19 health emergency isn’t a free speech right, appeals court says](https://news.yahoo.com/not-wearing-mask-during-covid-184831261.html)
 <!-- feed end -->
 
 ### Onstream
