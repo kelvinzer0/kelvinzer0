@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [UPDATE 2-Trump civil fraud case judge to probe potential perjury by ex-CFO](https://finance.yahoo.com/news/1-trump-civil-fraud-case-183808318.html)
+- Feb 06 - [Michigan Mass Shooter's Mom Found Guilty For Role In Son's Crime](https://news.yahoo.com/jury-reaches-verdict-manslaughter-trial-182440164.html)
+- Feb 06 - [George Soros's Son Alex Says Donald Trump 'Either Winds Up In Prison Or He Winds Up In Power' Among Other Predictions Going Into The 2024 Election](https://finance.yahoo.com/news/george-soross-son-alex-says-180243744.html)
+- Feb 06 - [“Trump is in even more trouble”: Judge demands answers after report that Trump CFO “lied under oath”](https://news.yahoo.com/trump-even-more-trouble-judge-173128893.html)
 - Feb 06 - ["Puts him in a box": Experts say immunity ruling may have doomed Trump's Supreme Court appeal](https://news.yahoo.com/puts-him-box-experts-immunity-171139104.html)
-- Feb 06 - [‘Monster’ caught in suburban lake shatters record. See the ‘world’s longest goldfish’](https://news.yahoo.com/monster-caught-suburban-lake-shatters-165805264.html)
-- Feb 06 - [Robert Kiyosaki, 'Rich Dad Poor Dad' Author, Says, 'I Am a Billionaire in Debt' — And Calls Dave Ramsey An Idiot For Encouraging People To Live Debt-Free](https://finance.yahoo.com/news/robert-kiyosaki-rich-dad-poor-165122958.html)
-- Feb 06 - [Pro bowler from Ohio arrested while competing in tournament in Indiana](https://news.yahoo.com/pro-bowler-ohio-arrested-while-164455225.html)
-- Feb 06 - ["They have you on audio": Democrats bust Republican's glaring hypocrisy at impeachment hearing](https://news.yahoo.com/audio-democrats-bust-republicans-glaring-163225760.html)
 <!-- feed end -->
 
 ### Onstream
