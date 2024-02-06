@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [US, Russia clash at UN over North Korea, Patriot missiles in Ukraine](https://news.yahoo.com/us-russia-clash-un-over-215548315.html)
-- Feb 06 - [Parents of man found dead outside Kansas City home speak out on what they believe happened](https://news.yahoo.com/parents-man-found-dead-outside-205657801.html)
-- Feb 06 - [Yes, the Los Angeles River is dramatically full. But it’s just ‘doing its job’](https://news.yahoo.com/yes-los-angeles-river-dramatically-204900894.html)
-- Feb 06 - [Hertz went all in on Tesla — and is paying the price](https://finance.yahoo.com/news/hertz-went-all-in-on-tesla--and-is-paying-the-price-195844835.html)
-- Feb 06 - [More than 78 ‘friends’ of the Supreme Court offer advice on the 14th Amendment and Trump’s eligibility](https://news.yahoo.com/more-78-friends-supreme-court-194311142.html)
+- Feb 06 - [The Pentagon believes it has identified the problem behind Osprey fatal crash and grounding of fleet](https://news.yahoo.com/pentagon-believes-identified-problem-behind-224140448.html)
+- Feb 06 - [Millennials are struggling under mounting credit card debt, NY Fed finds](https://finance.yahoo.com/news/millennials-are-struggling-under-mounting-credit-card-debt-ny-fed-finds-223608360.html)
+- Feb 06 - [Biden plans to hold a March fundraiser with former Presidents Obama and Clinton in New York](https://news.yahoo.com/biden-plans-hold-march-fundraiser-223039607.html)
+- Feb 06 - [‘Alarming’: Mass. middle school asks parents for help as students terrorize Shaw’s grocery store](https://news.yahoo.com/alarming-mass-middle-school-asks-215213054.html)
+- Feb 06 - [Donald Trump paid more than $2.3 million in donor money to law firms helping Ivanka Trump with her legal problems last year](https://news.yahoo.com/donald-trump-paid-more-2-213010305.html)
 <!-- feed end -->
 
 ### Onstream
