@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [Kaitlan Collins Laughs At GOP Rep's Reason For Not Endorsing Haley](https://news.yahoo.com/kaitlan-collins-laughs-gop-reps-120045924.html)
 - Feb 06 - [Canceled tribal chief White Calf, face of the Redskins, generates new support nationwide](https://www.yahoo.com/lifestyle/canceled-tribal-chief-white-calf-091527373.html)
+- Feb 06 - [Ukrainian-born Miss Japan gives up her title after an article reveals her affair with a married man](https://www.yahoo.com/entertainment/ukrainian-born-miss-japan-gives-091318491.html)
 - Feb 06 - [Donald Trump’s Awkward Verbal Stumble Has His Critics On A Roll](https://news.yahoo.com/trump-awkward-verbal-stumble-critics-091055609.html)
-- Feb 06 - [GOP Rep's Old Op-Ed Comes Back To Haunt Him In Embarrassing Hearing Moment](https://news.yahoo.com/gop-reps-old-op-ed-082929594.html)
-- Feb 06 - [Russians are freezing as Soviet-era infrastructure in the country crumbles —and Moscow keeps spending on war](https://news.yahoo.com/russians-freezing-soviet-era-infrastructure-060356275.html)
-- Feb 06 - [‘Stop calling’: Over 80 cars towed during Stockton sideshow and sheriff says no one is getting their vehicles back soon](https://news.yahoo.com/stop-calling-over-80-cars-013758715.html)
+- Feb 06 - [GOP Lawmaker’s Old Op-Ed Comes Back To Haunt Him In Embarrassing Hearing Moment](https://news.yahoo.com/gop-reps-old-op-ed-082929594.html)
 <!-- feed end -->
 
 ### Onstream
