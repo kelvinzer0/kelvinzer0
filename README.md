@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [16 People Who Embarrassed Themselves Way, Way, Way, Way, Way, Way More Than You Ever Could In Your Entire Life](https://www.yahoo.com/lifestyle/16-people-embarrassed-themselves-way-191602430.html)
+- Feb 06 - [Monster gator struts across swampy Florida reserve path, video shows. How big was it?](https://news.yahoo.com/monster-gator-struts-across-swampy-191356746.html)
 - Feb 06 - [UPDATE 2-Trump civil fraud case judge to probe potential perjury by ex-CFO](https://finance.yahoo.com/news/1-trump-civil-fraud-case-183808318.html)
-- Feb 06 - [Michigan Mass Shooter's Mom Found Guilty For Role In Son's Crime](https://news.yahoo.com/jury-reaches-verdict-manslaughter-trial-182440164.html)
+- Feb 06 - [Feds Arrest Alleged Militia ‘Sniper’ Planning Attack at Southern Border](https://news.yahoo.com/feds-arrest-alleged-militia-sniper-180521096.html)
 - Feb 06 - [George Soros's Son Alex Says Donald Trump 'Either Winds Up In Prison Or He Winds Up In Power' Among Other Predictions Going Into The 2024 Election](https://finance.yahoo.com/news/george-soross-son-alex-says-180243744.html)
-- Feb 06 - [“Trump is in even more trouble”: Judge demands answers after report that Trump CFO “lied under oath”](https://news.yahoo.com/trump-even-more-trouble-judge-173128893.html)
-- Feb 06 - ["Puts him in a box": Experts say immunity ruling may have doomed Trump's Supreme Court appeal](https://news.yahoo.com/puts-him-box-experts-immunity-171139104.html)
 <!-- feed end -->
 
 ### Onstream
