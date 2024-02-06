@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Kaitlan Collins Laughs At GOP Rep's Reason For Not Endorsing Haley](https://news.yahoo.com/kaitlan-collins-laughs-gop-reps-120045924.html)
+- Feb 06 - [4 Black Eggs Have Surfaced From the Dark Heart of the Ocean—With Alien Creatures Inside](https://www.yahoo.com/tech/4-black-eggs-surfaced-dark-123000583.html)
+- Feb 06 - [Kaitlan Collins Laughs At GOP Lawmaker’s Reason For Not Endorsing Nikki Haley](https://news.yahoo.com/kaitlan-collins-laughs-gop-reps-120045924.html)
+- Feb 06 - [Explainer-Why does Russia want to capture Ukraine's Avdiivka?](https://news.yahoo.com/explainer-why-does-russia-want-113424376.html)
+- Feb 06 - [Head of Russian Orthodox church in Estonia confirms he is leaving country after expulsion order](https://news.yahoo.com/head-russian-orthodox-church-estonia-112936186.html)
 - Feb 06 - [Canceled tribal chief White Calf, face of the Redskins, generates new support nationwide](https://www.yahoo.com/lifestyle/canceled-tribal-chief-white-calf-091527373.html)
-- Feb 06 - [Ukrainian-born Miss Japan gives up her title after an article reveals her affair with a married man](https://www.yahoo.com/entertainment/ukrainian-born-miss-japan-gives-091318491.html)
-- Feb 06 - [Donald Trump’s Awkward Verbal Stumble Has His Critics On A Roll](https://news.yahoo.com/trump-awkward-verbal-stumble-critics-091055609.html)
-- Feb 06 - [GOP Lawmaker’s Old Op-Ed Comes Back To Haunt Him In Embarrassing Hearing Moment](https://news.yahoo.com/gop-reps-old-op-ed-082929594.html)
 <!-- feed end -->
 
 ### Onstream
