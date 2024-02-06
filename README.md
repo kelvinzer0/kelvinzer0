@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 05 - [Ex-NFL quarterback Favre must finish repaying misspent welfare money, Mississippi auditor says](https://news.yahoo.com/ex-nfl-quarterback-favre-must-234208486.html)
+- Feb 05 - [Take a look at the tanker-like warship the US has used as a floating Navy SEAL base](https://news.yahoo.com/look-tanker-warship-us-used-223101732.html)
 - Feb 05 - [Minn. Mom Accused of Sexually Abusing 2 Youth Hockey Players After Discussing Marital Problems in Hotel Hot Tub](https://www.yahoo.com/entertainment/minn-mom-accused-sexually-abusing-213001684.html)
 - Feb 05 - [Bowen Yang Sums Up His Feelings For Nikki Haley's 'SNL' Cameo With Just 1 Word](https://www.yahoo.com/entertainment/bowen-yang-sums-feelings-nikki-211728801.html)
 - Feb 05 - [The Industry ‘Scandal’ That Might Completely Upend How America Builds Houses](https://news.yahoo.com/industry-scandal-might-completely-upend-211448232.html)
-- Feb 05 - [US Rep. Lauren Boebert granted temporary restraining order against her ex-husband](https://news.yahoo.com/us-rep-lauren-boebert-granted-210439394.html)
-- Feb 05 - [Former CBWDC kitchen worker arrested after allegedly having inappropriate relationship with inmate](https://news.yahoo.com/former-cbwdc-kitchen-worker-arrested-210021034.html)
 <!-- feed end -->
 
 ### Onstream
