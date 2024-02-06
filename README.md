@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Trump sweeping immunity claim rejected by US appeals court](https://news.yahoo.com/trump-not-immune-election-subversion-151211390.html)
-- Feb 06 - [“Bizarre”: Legal experts warn Trump’s Supreme Court argument is a “massive tactical blunder”](https://news.yahoo.com/bizarre-legal-experts-warn-trump-135921744.html)
-- Feb 06 - [Ukraine's tactical switch could make it even harder for an already struggling Russia to make any progress in the war](https://news.yahoo.com/ukraines-tactical-switch-could-even-133541047.html)
+- Feb 06 - [The Moment Mark Cuban Knew He Could Not Work In The Corporate World: His Bank Boss Yelled At Him For Trying To Set Up Networking Activities](https://finance.yahoo.com/news/moment-mark-cuban-knew-could-160749013.html)
+- Feb 06 - [Jeff Bezos Laughed Off Criticism From Jay Leno In 1999 About Amazon Losing Billions And Never Making A Profit — 'We Are A Famously Unprofitable Company'](https://finance.yahoo.com/news/jeff-bezos-laughed-off-criticism-153202423.html)
+- Feb 06 - [As cancer treatment advances, patients and doctors push back against drugs' harsh side effects](https://news.yahoo.com/cancer-treatment-advances-patients-doctors-142212897.html)
+- Feb 06 - [Honda is recalling more than 750,000 vehicles to fix faulty passenger seat air bag sensor](https://news.yahoo.com/honda-recalling-more-750-000-125116654.html)
 - Feb 06 - [4 Black Eggs Have Surfaced From the Dark Heart of the Ocean—With Alien Creatures Inside](https://www.yahoo.com/tech/4-black-eggs-surfaced-dark-123000583.html)
-- Feb 06 - [Kaitlan Collins Laughs At GOP Lawmaker’s Reason For Not Endorsing Nikki Haley](https://news.yahoo.com/kaitlan-collins-laughs-gop-reps-120045924.html)
 <!-- feed end -->
 
 ### Onstream
