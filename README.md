@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [Trump’s Awkward Verbal Stumble Has His Critics On A Roll](https://news.yahoo.com/trump-awkward-verbal-stumble-critics-091055609.html)
+- Feb 06 - [Canceled tribal chief White Calf, face of the Redskins, generates new support nationwide](https://www.yahoo.com/lifestyle/canceled-tribal-chief-white-calf-091527373.html)
+- Feb 06 - [Donald Trump’s Awkward Verbal Stumble Has His Critics On A Roll](https://news.yahoo.com/trump-awkward-verbal-stumble-critics-091055609.html)
 - Feb 06 - [GOP Rep's Old Op-Ed Comes Back To Haunt Him In Embarrassing Hearing Moment](https://news.yahoo.com/gop-reps-old-op-ed-082929594.html)
-- Feb 06 - [Growing number of Conservative voters think Canada gives 'too much support' to Ukraine, poll suggests](https://news.yahoo.com/growing-number-conservative-voters-think-080042970.html)
 - Feb 06 - [Russians are freezing as Soviet-era infrastructure in the country crumbles —and Moscow keeps spending on war](https://news.yahoo.com/russians-freezing-soviet-era-infrastructure-060356275.html)
 - Feb 06 - [‘Stop calling’: Over 80 cars towed during Stockton sideshow and sheriff says no one is getting their vehicles back soon](https://news.yahoo.com/stop-calling-over-80-cars-013758715.html)
 <!-- feed end -->
