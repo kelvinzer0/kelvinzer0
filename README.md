@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 06 - [“Bizarre”: Legal experts warn Trump’s Supreme Court argument is a “massive tactical blunder”](https://news.yahoo.com/bizarre-legal-experts-warn-trump-135921744.html)
 - Feb 06 - [4 Black Eggs Have Surfaced From the Dark Heart of the Ocean—With Alien Creatures Inside](https://www.yahoo.com/tech/4-black-eggs-surfaced-dark-123000583.html)
-- Feb 06 - [Kaitlan Collins Laughs At GOP Lawmaker’s Reason For Not Endorsing Nikki Haley](https://news.yahoo.com/kaitlan-collins-laughs-gop-reps-120045924.html)
 - Feb 06 - [Explainer-Why does Russia want to capture Ukraine's Avdiivka?](https://news.yahoo.com/explainer-why-does-russia-want-113424376.html)
 - Feb 06 - [Head of Russian Orthodox church in Estonia confirms he is leaving country after expulsion order](https://news.yahoo.com/head-russian-orthodox-church-estonia-112936186.html)
 - Feb 06 - [Canceled tribal chief White Calf, face of the Redskins, generates new support nationwide](https://www.yahoo.com/lifestyle/canceled-tribal-chief-white-calf-091527373.html)
