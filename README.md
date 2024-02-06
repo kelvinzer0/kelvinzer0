@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 06 - [What would happen if King Charles III abdicated?](https://news.yahoo.com/happen-king-charles-iii-abdicated-051039213.html)
+- Feb 06 - [Russians are freezing as Soviet-era infrastructure in the country crumbles —and Moscow keeps spending on war](https://news.yahoo.com/russians-freezing-soviet-era-infrastructure-060356275.html)
 - Feb 06 - [‘Stop calling’: Over 80 cars towed during Stockton sideshow and sheriff says no one is getting their vehicles back soon](https://news.yahoo.com/stop-calling-over-80-cars-013758715.html)
 - Feb 06 - [Texas couple visited Las Vegas to celebrate birthday, both dead after apparent overdose](https://news.yahoo.com/texas-couple-visited-las-vegas-011704969.html)
 - Feb 06 - [Normally at a crawl, the Los Angeles River threatens to overflow during torrential rains](https://news.yahoo.com/normally-crawl-los-angeles-river-011333635.html)
