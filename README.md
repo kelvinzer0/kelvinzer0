@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 07 - [Nicaragua grants asylum to Panama's ex-President Martinelli](https://news.yahoo.com/nicaragua-grants-asylum-panamas-ex-192804670.html)
+- Feb 07 - [A sniper killed a Florida bank robber as he held a knife to a hostage's throat](https://news.yahoo.com/sniper-killed-florida-bank-robber-184553376.html)
 - Feb 07 - ['Predator' Middle School Teacher Admits Sexually Abusing 14-Year-Old in His House](https://www.yahoo.com/entertainment/predator-middle-school-teacher-admits-175253860.html)
 - Feb 07 - [2,000-year-old scroll preserved by a volcano is finally readable. What does it say?](https://news.yahoo.com/2-000-old-scroll-preserved-174808831.html)
 - Feb 07 - [Kremlin All But Admits Tucker Carlson Is a Useful Idiot](https://news.yahoo.com/kremlin-admits-tucker-carlson-useful-163348967.html)
-- Feb 07 - [Officers chase woman in airport, then she spits on them and strips in custody, cops say](https://news.yahoo.com/officers-chase-woman-airport-then-160118160.html)
-- Feb 07 - ["What the hell are they thinking?": Furious Republicans erupt over "embarrassing" defeat](https://news.yahoo.com/hell-thinking-furious-republicans-erupt-153703198.html)
 <!-- feed end -->
 
 ### Onstream
