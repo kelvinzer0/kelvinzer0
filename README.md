@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 07 - [Here Are 6 Things White People Say That Highlight Their Privilege And OMG I Hear These Allllll The Time](https://www.yahoo.com/lifestyle/6-things-white-people-highlight-151602356.html)
 - Feb 07 - [Military helicopter with 5 Marines on board goes missing en route to California](https://news.yahoo.com/military-helicopter-5-marines-board-140637384.html)
 - Feb 07 - [“There is nothing left”: Experts say ruling “dismantled” Trump argument so bad SCOTUS won’t touch it](https://news.yahoo.com/nothing-left-experts-ruling-dismantled-135413920.html)
 - Feb 07 - [1,000-pound bomb uncovered at Florida airport prompts half-mile evacuation, cops say](https://news.yahoo.com/1-000-pound-bomb-uncovered-134619785.html)
 - Feb 07 - [Alexandria Ocasio-Cortez Sums Up What Her GOP Colleagues Are Good For In 1 Blunt Tweet](https://news.yahoo.com/alexandria-ocasio-cortez-sums-her-132459076.html)
-- Feb 07 - ['Us small guys need some help': Oklahoma woman deposited $13.5K into her account, but the money didn't show up — leaving her scrambling to pay the bills. What to do if your deposit disappears](https://finance.yahoo.com/news/us-small-guys-help-oklahoma-131300351.html)
 <!-- feed end -->
 
 ### Onstream
