@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Feb 07 - [Taylor Swift isn't the only victim of AI porn. Can the spread of deepfake nudes be stopped?](https://news.yahoo.com/taylor-swift-isnt-the-only-victim-of-ai-porn-can-the-spread-of-deepfake-nudes-be-stopped-202534245.html)
 - Feb 07 - ['They Lied to Us': Family Who Lost Baby to Decapitation During Birth Says Hospital Pushed for Cremation](https://www.yahoo.com/entertainment/lied-us-family-lost-baby-200704442.html)
 - Feb 07 - [Sen. Lankford says a 'popular commentator' threatened to 'do whatever I can to destroy you' if he negotiated a border deal during a presidential election year](https://news.yahoo.com/sen-lankford-says-popular-commentator-200553824.html)
-- Feb 07 - [Powerful explosion occurs at plant in Russia that produces ballistic missiles – video](https://news.yahoo.com/powerful-explosion-occurs-plant-russia-184226562.html)
-- Feb 07 - ['Predator' Middle School Teacher Admits Sexually Abusing 14-Year-Old in His House](https://www.yahoo.com/entertainment/predator-middle-school-teacher-admits-175253860.html)
+- Feb 07 - [Georgia authorities capture escapee who broke into house, car: 'Foot chase was on'](https://news.yahoo.com/georgia-authorities-capture-escapee-broke-191017684.html)
+- Feb 07 - [Fetterman blasts pro-Palestinian protesters: 'Why aren't you demanding that Hamas surrenders?'](https://news.yahoo.com/fetterman-blasts-pro-palestinian-protesters-190250025.html)
 <!-- feed end -->
 
 ### Onstream
