@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [‘Alarming’: Mass. middle school asks parents for help as students terrorize Shaw’s grocery store](https://news.yahoo.com/alarming-mass-middle-school-asks-215213054.html)
-- Feb 07 - [Trump's New York criminal case, likely first for trial, faces crucial test](https://news.yahoo.com/trumps-york-criminal-case-likely-110320438.html)
-- Feb 07 - [The Memo: Former Trump White House lawyer predicts crushing defeat at Supreme Court](https://news.yahoo.com/memo-former-trump-white-house-110000236.html)
-- Feb 07 - [The FBI has arrested a self-touted militia sniper who says he was planning to attack people at the southern border](https://news.yahoo.com/fbi-arrested-self-touted-militia-095129521.html)
-- Feb 07 - [Utah congressman switches vote to ‘no’ on Mayorkas impeachment at the last minute — for this reason](https://news.yahoo.com/utah-congressman-switches-vote-no-055947061.html)
+- Feb 07 - [1,000-pound bomb uncovered at Florida airport prompts half-mile evacuation, cops say](https://news.yahoo.com/1-000-pound-bomb-uncovered-134619785.html)
+- Feb 07 - [Alexandria Ocasio-Cortez Sums Up What Her GOP Colleagues Are Good For In 1 Blunt Tweet](https://news.yahoo.com/alexandria-ocasio-cortez-sums-her-132459076.html)
+- Feb 07 - ['Win-win': Bill to eliminate taxes on Social Security benefits reintroduced — it would also extend the program's shelf life by 20 years. Here's what you need to know](https://finance.yahoo.com/news/win-win-bill-eliminate-taxes-115000255.html)
+- Feb 07 - [Police in 2 Mass. towns urge residents to be vigilant after string of breaking-and-entering cases](https://news.yahoo.com/bellingham-uxbridge-police-investigating-breaking-110102774.html)
+- Feb 07 - [Man spends eight years building 24ft matchstick Eiffel Tower only to be denied world record](https://news.yahoo.com/man-spends-eight-years-building-112504131.html)
 <!-- feed end -->
 
 ### Onstream
