@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 07 - [Marjorie Taylor Greene Storms Out Of Hearing As Dem Lawmaker Puts Her On Blast](https://news.yahoo.com/marjorie-taylor-greene-storms-hearing-054540187.html)
+- Feb 07 - [By disclosing his cancer, Charles breaks centuries of royal tradition. But he shares only so much](https://news.yahoo.com/disclosing-cancer-charles-breaks-centuries-051354688.html)
+- Feb 07 - [Social Media Influencer Veruca Salt Reveals Newborn Baby ‘Died in His Sleep’](https://www.yahoo.com/entertainment/social-media-influencer-veruca-salt-045700824.html)
+- Feb 07 - [‘Alarming’: Mass. middle school asks parents for help as students terrorize Shaw’s grocery store](https://news.yahoo.com/alarming-mass-middle-school-asks-215213054.html)
 - Feb 07 - [Melania Trump Bravely Returns To Public In Form-Fitting Gown Alongside Donald](https://www.yahoo.com/entertainment/melania-trump-bravely-returns-public-004537024.html)
-- Feb 07 - [Saudi Arabia says there will be no diplomatic relations with Israel without an independent Palestinian state](https://news.yahoo.com/saudi-arabia-says-no-diplomatic-002518440.html)
-- Feb 06 - [Former top prosecutor for Baltimore convicted of mortgage fraud](https://news.yahoo.com/former-top-prosecutor-baltimore-convicted-233423743.html)
-- Feb 06 - [‘Alarming’: Mass. middle school asks parents for help as students terrorize Shaw’s grocery store](https://news.yahoo.com/alarming-mass-middle-school-asks-215213054.html)
-- Feb 06 - ['Daylighting,' a new law that California drivers must know to avoid a ticket next year](https://news.yahoo.com/daylighting-law-california-drivers-must-230249753.html)
 <!-- feed end -->
 
 ### Onstream
