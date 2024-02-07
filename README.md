@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 07 - [Melania Trump Bravely Returns To Public In Form-Fitting Gown Alongside Donald](https://www.yahoo.com/entertainment/melania-trump-bravely-returns-public-004537024.html)
+- Feb 07 - [Saudi Arabia says there will be no diplomatic relations with Israel without an independent Palestinian state](https://news.yahoo.com/saudi-arabia-says-no-diplomatic-002518440.html)
 - Feb 06 - [Former top prosecutor for Baltimore convicted of mortgage fraud](https://news.yahoo.com/former-top-prosecutor-baltimore-convicted-233423743.html)
 - Feb 06 - [‘Alarming’: Mass. middle school asks parents for help as students terrorize Shaw’s grocery store](https://news.yahoo.com/alarming-mass-middle-school-asks-215213054.html)
 - Feb 06 - ['Daylighting,' a new law that California drivers must know to avoid a ticket next year](https://news.yahoo.com/daylighting-law-california-drivers-must-230249753.html)
-- Feb 06 - [The Pentagon believes it has identified the problem behind Osprey fatal crash and grounding of fleet](https://news.yahoo.com/pentagon-believes-identified-problem-behind-224140448.html)
 <!-- feed end -->
 
 ### Onstream
