@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 07 - ['Predator' Middle School Teacher Admits Sexually Abusing 14-Year-Old in His House](https://www.yahoo.com/entertainment/predator-middle-school-teacher-admits-175253860.html)
-- Feb 07 - [Ex-QB Art Schlichter pulled over, hands officer crack pipe while on probation, police say](https://sports.yahoo.com/ex-qb-art-schlichter-pulled-164352457.html)
+- Feb 07 - [2,000-year-old scroll preserved by a volcano is finally readable. What does it say?](https://news.yahoo.com/2-000-old-scroll-preserved-174808831.html)
 - Feb 07 - [Kremlin All But Admits Tucker Carlson Is a Useful Idiot](https://news.yahoo.com/kremlin-admits-tucker-carlson-useful-163348967.html)
 - Feb 07 - [Officers chase woman in airport, then she spits on them and strips in custody, cops say](https://news.yahoo.com/officers-chase-woman-airport-then-160118160.html)
 - Feb 07 - ["What the hell are they thinking?": Furious Republicans erupt over "embarrassing" defeat](https://news.yahoo.com/hell-thinking-furious-republicans-erupt-153703198.html)
