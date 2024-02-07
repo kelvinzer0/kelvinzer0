@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Here Are 6 Things White People Say That Highlight Their Privilege And OMG I Hear These Allllll The Time](https://www.yahoo.com/lifestyle/6-things-white-people-highlight-151602356.html)
-- Feb 07 - [Military helicopter with 5 Marines on board goes missing en route to California](https://news.yahoo.com/military-helicopter-5-marines-board-140637384.html)
-- Feb 07 - [“There is nothing left”: Experts say ruling “dismantled” Trump argument so bad SCOTUS won’t touch it](https://news.yahoo.com/nothing-left-experts-ruling-dismantled-135413920.html)
-- Feb 07 - [1,000-pound bomb uncovered at Florida airport prompts half-mile evacuation, cops say](https://news.yahoo.com/1-000-pound-bomb-uncovered-134619785.html)
-- Feb 07 - [Alexandria Ocasio-Cortez Sums Up What Her GOP Colleagues Are Good For In 1 Blunt Tweet](https://news.yahoo.com/alexandria-ocasio-cortez-sums-her-132459076.html)
+- Feb 07 - [Ex-QB Art Schlichter pulled over, hands officer crack pipe while on probation, police say](https://sports.yahoo.com/ex-qb-art-schlichter-pulled-164352457.html)
+- Feb 07 - [Officers chase woman in airport, then she spits on them and strips in custody, cops say](https://news.yahoo.com/officers-chase-woman-airport-then-160118160.html)
+- Feb 07 - ["What the hell are they thinking?": Furious Republicans erupt over "embarrassing" defeat](https://news.yahoo.com/hell-thinking-furious-republicans-erupt-153703198.html)
+- Feb 07 - [‘Iconic Hamptons estate’ obliterates auction record. See it — and how much it went for](https://news.yahoo.com/iconic-hamptons-estate-obliterates-auction-152817976.html)
+- Feb 07 - [Haley vows to stay in race following embarrassing Nevada defeat](https://news.yahoo.com/haley-reels-stinging-loss-nevada-152403169.html)
 <!-- feed end -->
 
 ### Onstream
