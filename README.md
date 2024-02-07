@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 07 - [‘Alarming’: Mass. middle school asks parents for help as students terrorize Shaw’s grocery store](https://news.yahoo.com/alarming-mass-middle-school-asks-215213054.html)
 - Feb 07 - [Trump's New York criminal case, likely first for trial, faces crucial test](https://news.yahoo.com/trumps-york-criminal-case-likely-110320438.html)
+- Feb 07 - [The Memo: Former Trump White House lawyer predicts crushing defeat at Supreme Court](https://news.yahoo.com/memo-former-trump-white-house-110000236.html)
 - Feb 07 - [The FBI has arrested a self-touted militia sniper who says he was planning to attack people at the southern border](https://news.yahoo.com/fbi-arrested-self-touted-militia-095129521.html)
 - Feb 07 - [Utah congressman switches vote to ‘no’ on Mayorkas impeachment at the last minute — for this reason](https://news.yahoo.com/utah-congressman-switches-vote-no-055947061.html)
-- Feb 07 - [Marjorie Taylor Greene Storms Out Of Hearing As Dem Lawmaker Puts Her On Blast](https://news.yahoo.com/marjorie-taylor-greene-storms-hearing-054540187.html)
 <!-- feed end -->
 
 ### Onstream
