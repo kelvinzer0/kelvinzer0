@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [Still working from home? Minneapolis Mayor Jacob Frey has a joke for you](https://finance.yahoo.com/news/still-working-home-minneapolis-mayor-000600864.html)
+- Feb 08 - [Montana man is found guilty in Jan. 6 insurrection](https://news.yahoo.com/montana-man-found-guilty-jan-014255785.html)
+- Feb 08 - [Gingrich slams attempt at border deal, says it was ‘stupid’ to start by trying to work with Democrats](https://news.yahoo.com/gingrich-slams-attempt-border-deal-001635648.html)
 - Feb 07 - [Bob Iger Reacts to Gina Carano’s ‘Mandalorian’ Lawsuit With One-Word Answer](https://www.yahoo.com/entertainment/bob-iger-reacts-gina-carano-222827462.html)
 - Feb 07 - [Republican bid to flip US Senate grows complicated as Montana primary gets competitive](https://news.yahoo.com/republican-rosendale-enter-montana-u-222027735.html)
 - Feb 07 - [An NYC vigilante group tackled what they claimed was a shoplifting ‘migrant’ live on Fox News. They were wrong.](https://finance.yahoo.com/news/nyc-vigilante-group-tackled-claimed-220507791.html)
-- Feb 07 - [Trump could face "draconian remedy" if CFO's possible perjury deal goes through](https://news.yahoo.com/trump-could-face-draconian-remedy-215932511.html)
 <!-- feed end -->
 
 ### Onstream
