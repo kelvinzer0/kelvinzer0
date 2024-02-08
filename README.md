@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [17-year-old shoots mother and father, then walks into sheriff’s office, Texas cops say](https://news.yahoo.com/17-old-shoots-mother-father-193444025.html)
+- Feb 08 - [CIA terminates whistleblower who prompted flood of sexual misconduct complaints](https://news.yahoo.com/cia-terminates-whistleblower-prompted-flood-190454173.html)
 - Feb 08 - ['This Is Why You're Still A Poor Person' – Dave Ramsey Points Out Major Differences Between Financial Classes: 'Rich People Don't Ask How Much Down And How Much A Month'](https://finance.yahoo.com/news/why-youre-still-poor-person-183135119.html)
-- Feb 08 - [Former Olympian set to plead guilty to multiple charges of molesting boys in 1970s](https://sports.yahoo.com/former-olympian-set-plead-guilty-183027954.html)
-- Feb 08 - [Elon Musk Was Bullied And Tormented As A Kid For Being The 'Youngest And Smallest Guy,' According To His Mom — He Worries His Children 'Don't Face Enough Adversity'](https://finance.yahoo.com/news/elon-musk-bullied-tormented-kid-180216275.html)
-- Feb 08 - [Man who diverted national park river to ease boat access on Lake Michigan convicted of misdemeanors](https://news.yahoo.com/man-diverted-national-park-river-174607874.html)
-- Feb 08 - [Judge denies Peter Navarro's bid to remain out of prison while appealing contempt of Congress case](https://news.yahoo.com/judge-denies-peter-navarros-bid-174344155.html)
+- Feb 08 - [Former Olympian pleads guilty to multiple charges of molesting boys in 1970s](https://news.yahoo.com/former-olympian-set-plead-guilty-183027954.html)
+- Feb 08 - [“Off-ramp”: Legal experts say hearing suggests even Supreme Court liberals may rule in Trump's favor](https://news.yahoo.com/off-ramp-legal-experts-hearing-181544580.html)
 <!-- feed end -->
 
 ### Onstream
