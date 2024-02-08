@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [North Korea leader Kim: we will wipe out enemies if they use force -KCNA](https://news.yahoo.com/north-korea-leader-kim-wipe-221719973.html)
+- Feb 08 - [Biden's memory is 'hazy' and 'poor,' says a special counsel's report raising questions about his age](https://news.yahoo.com/bidens-memory-hazy-poor-says-220528006.html)
+- Feb 08 - [Tempers flare after Graham accuses Sinema of ‘half-ass’ border effort](https://news.yahoo.com/tempers-flare-graham-accuses-sinema-220339397.html)
 - Feb 08 - [Massive sea creature with over 3,000 teeth seen in ‘rare’ Australia visit, video shows](https://news.yahoo.com/massive-sea-creature-over-3-214539183.html)
 - Feb 08 - [Elon Musk Spent $1 Million On A Super Rare McLaren F1 But Then Crashed It Trying To Impress Peter Thiel — And The Worst Part Is, The Car Wasn't Insured](https://finance.yahoo.com/news/elon-musk-spent-1-million-213715650.html)
-- Feb 08 - [Woman vanishes into 25-foot sinkhole outside home, California rescuers say](https://news.yahoo.com/woman-vanishes-25-foot-sinkhole-210625259.html)
-- Feb 08 - [Joe Biden forgot when he was vice president and when his son Beau died, special counsel report says](https://news.yahoo.com/joe-biden-forgot-vice-president-202530739.html)
-- Feb 08 - [Two men say they were each robbed of over $30,000 after going to the same bar on different nights](https://news.yahoo.com/two-men-were-robbed-over-013445648.html)
 <!-- feed end -->
 
 ### Onstream
