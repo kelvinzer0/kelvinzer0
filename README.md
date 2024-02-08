@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [Conservative Personality Takes Credit For Threatening To ‘Destroy’ Republican Senator](https://news.yahoo.com/conservative-personality-takes-credit-threatening-092518053.html)
 - Feb 08 - [Laura Ingraham’s Brazen New Boast Causes Critics' Heads To Spin](https://news.yahoo.com/laura-ingraham-brazen-boast-causes-080245633.html)
 - Feb 08 - [Ukraine needs more troops fighting Russia. Hardened professionals from Colombia are helping](https://news.yahoo.com/ukraine-needs-more-troops-fighting-053004061.html)
+- Feb 08 - [Abandoned by his colleagues after negotiating a border compromise, GOP senator faces backlash alone](https://news.yahoo.com/abandoned-colleagues-negotiating-border-compromise-050209128.html)
 - Feb 08 - [Hillary Clinton Drops Diplomacy In 2-Word Insult Of Tucker Carlson](https://news.yahoo.com/hillary-clinton-drops-diplomacy-2-040722018.html)
-- Feb 08 - [Preteen boy dies 1 day after enrolling in controversial North Carolina therapy camp: 'Suspicious death'](https://news.yahoo.com/preteen-boy-dies-1-day-030106076.html)
-- Feb 08 - [New York AG and Trump lawyers tell judge they don’t want to wait for civil fraud verdict](https://news.yahoo.com/york-ag-trump-lawyers-tell-023150709.html)
 <!-- feed end -->
 
 ### Onstream
