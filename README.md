@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [New York AG and Trump lawyers tell judge they don’t want to wait for civil fraud verdict](https://news.yahoo.com/york-ag-trump-lawyers-tell-023150709.html)
 - Feb 08 - [Montana man is found guilty in Jan. 6 insurrection](https://news.yahoo.com/montana-man-found-guilty-jan-014255785.html)
+- Feb 08 - [Two men say they were each robbed of over $30,000 after going to the same bar on different nights](https://news.yahoo.com/two-men-were-robbed-over-013445648.html)
 - Feb 08 - [Hillary Clinton reacts to announcement Carlson will interview Putin: He’s a ‘useful idiot’](https://news.yahoo.com/hillary-clinton-reacts-announcement-carlson-013408702.html)
 - Feb 08 - [Toby Keith dies of stomach cancer: These early signs are easily missed, doctors say](https://news.yahoo.com/toby-keiths-dies-stomach-cancer-223743212.html)
-- Feb 08 - [Robert De Niro says he was in 'disbelief' when he learned his 19-year-old grandson had died: 'It shouldn't have happened'](https://www.yahoo.com/entertainment/robert-niro-says-disbelief-learned-005039767.html)
-- Feb 08 - [Still working from home? Minneapolis Mayor Jacob Frey has a joke for you](https://finance.yahoo.com/news/still-working-home-minneapolis-mayor-000600864.html)
 <!-- feed end -->
 
 ### Onstream
