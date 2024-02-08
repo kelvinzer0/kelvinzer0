@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 07 - [Trump legal news brief: Trump renews request to disqualify Willis from Georgia case over relationship with prosecutor](https://news.yahoo.com/trump-legal-news-brief-trump-renews-request-to-disqualify-willis-from-georgia-case-over-relationship-with-prosecutor-225803236.html)
-- Feb 07 - [Republican Rosendale to enter Montana U.S. Senate race, upending GOP bid to take seat from Democrat](https://news.yahoo.com/republican-rosendale-enter-montana-u-222027735.html)
+- Feb 08 - [Still working from home? Minneapolis Mayor Jacob Frey has a joke for you](https://finance.yahoo.com/news/still-working-home-minneapolis-mayor-000600864.html)
+- Feb 07 - [Bob Iger Reacts to Gina Carano’s ‘Mandalorian’ Lawsuit With One-Word Answer](https://www.yahoo.com/entertainment/bob-iger-reacts-gina-carano-222827462.html)
+- Feb 07 - [Republican bid to flip US Senate grows complicated as Montana primary gets competitive](https://news.yahoo.com/republican-rosendale-enter-montana-u-222027735.html)
+- Feb 07 - [An NYC vigilante group tackled what they claimed was a shoplifting ‘migrant’ live on Fox News. They were wrong.](https://finance.yahoo.com/news/nyc-vigilante-group-tackled-claimed-220507791.html)
 - Feb 07 - [Trump could face "draconian remedy" if CFO's possible perjury deal goes through](https://news.yahoo.com/trump-could-face-draconian-remedy-215932511.html)
-- Feb 07 - [Attorney For John Laurinaitis: Most WWE Management Knew Of Ashley Massaro’s Allegations](https://www.yahoo.com/entertainment/attorney-john-laurinaitis-most-wwe-211012971.html)
-- Feb 07 - [Taylor Swift isn't the only victim of AI porn. Can the spread of deepfake nudes be stopped?](https://news.yahoo.com/taylor-swift-isnt-the-only-victim-of-ai-porn-can-the-spread-of-deepfake-nudes-be-stopped-202534245.html)
 <!-- feed end -->
 
 ### Onstream
