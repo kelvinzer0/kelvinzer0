@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 08 - [Montana man is found guilty in Jan. 6 insurrection](https://news.yahoo.com/montana-man-found-guilty-jan-014255785.html)
-- Feb 08 - [Gingrich slams attempt at border deal, says it was ‘stupid’ to start by trying to work with Democrats](https://news.yahoo.com/gingrich-slams-attempt-border-deal-001635648.html)
-- Feb 07 - [Bob Iger Reacts to Gina Carano’s ‘Mandalorian’ Lawsuit With One-Word Answer](https://www.yahoo.com/entertainment/bob-iger-reacts-gina-carano-222827462.html)
-- Feb 07 - [Republican bid to flip US Senate grows complicated as Montana primary gets competitive](https://news.yahoo.com/republican-rosendale-enter-montana-u-222027735.html)
-- Feb 07 - [An NYC vigilante group tackled what they claimed was a shoplifting ‘migrant’ live on Fox News. They were wrong.](https://finance.yahoo.com/news/nyc-vigilante-group-tackled-claimed-220507791.html)
+- Feb 08 - [Hillary Clinton reacts to announcement Carlson will interview Putin: He’s a ‘useful idiot’](https://news.yahoo.com/hillary-clinton-reacts-announcement-carlson-013408702.html)
+- Feb 08 - [Toby Keith dies of stomach cancer: These early signs are easily missed, doctors say](https://news.yahoo.com/toby-keiths-dies-stomach-cancer-223743212.html)
+- Feb 08 - [Robert De Niro says he was in 'disbelief' when he learned his 19-year-old grandson had died: 'It shouldn't have happened'](https://www.yahoo.com/entertainment/robert-niro-says-disbelief-learned-005039767.html)
+- Feb 08 - [Still working from home? Minneapolis Mayor Jacob Frey has a joke for you](https://finance.yahoo.com/news/still-working-home-minneapolis-mayor-000600864.html)
 <!-- feed end -->
 
 ### Onstream
