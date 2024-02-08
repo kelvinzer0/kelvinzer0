@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [Conspiracy theories swirl around Taylor Swift. These Republican voters say they don't care](https://news.yahoo.com/conspiracy-theories-swirl-around-taylor-134323735.html)
+- Feb 08 - [Rudy Giuliani Makes Big Confession About Trump Campaign In Bankruptcy Court](https://news.yahoo.com/rudy-giuliani-makes-big-confession-141746979.html)
+- Feb 08 - [“Awful and unethical”: Legal experts say Judge Cannon could face removal for “disturbing” order](https://news.yahoo.com/awful-unethical-legal-experts-judge-140434916.html)
+- Feb 08 - [CVS is hit with a $250,000 fine for understaffing a store so badly that it was a month behind on filling prescriptions](https://www.yahoo.com/lifestyle/cvs-hit-250-000-fine-131910025.html)
+- Feb 08 - [Ukraine claims it shot down a Russian attack helicopter in fierce street battle for Avdiivka city](https://news.yahoo.com/ukraine-claims-shot-down-russian-124731690.html)
 - Feb 08 - ['You can't even pay rent': Grant Cardone warns this popular career move is the ‘dumbest, most selfish thing' you can do — and more Americans are doing it now than ever. Try this instead](https://finance.yahoo.com/news/cant-even-pay-rent-grant-123500638.html)
-- Feb 08 - [Putin's Tucker Carlson interview seems timed to inflict maximum damage on US support for Ukraine](https://news.yahoo.com/putins-tucker-carlson-interview-seems-120343012.html)
-- Feb 08 - [‘Do you hear yourself out loud?’: This 20-year-old from Atlanta asked Dave Ramsey for advice on moving in with her boyfriend. Here’s why Ramsey called him a ‘deadbeat’ and told her to ‘run!'](https://finance.yahoo.com/news/hear-yourself-loud-20-old-112700726.html)
-- Feb 08 - [We Asked, And Experts Say These Are The Rudest Things You Can Do At The Doctor's Office](https://www.yahoo.com/lifestyle/asked-experts-rudest-things-doctors-111603360.html)
 <!-- feed end -->
 
 ### Onstream
