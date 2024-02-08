@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - ['This Is Why You're Still A Poor Person' – Dave Ramsey Points Out Major Differences Between Financial Classes: 'Rich People Don't Ask How Much Down And How Much A Month'](https://finance.yahoo.com/news/why-youre-still-poor-person-183135119.html)
+- Feb 08 - [Former Olympian set to plead guilty to multiple charges of molesting boys in 1970s](https://sports.yahoo.com/former-olympian-set-plead-guilty-183027954.html)
+- Feb 08 - [Elon Musk Was Bullied And Tormented As A Kid For Being The 'Youngest And Smallest Guy,' According To His Mom — He Worries His Children 'Don't Face Enough Adversity'](https://finance.yahoo.com/news/elon-musk-bullied-tormented-kid-180216275.html)
 - Feb 08 - [Man who diverted national park river to ease boat access on Lake Michigan convicted of misdemeanors](https://news.yahoo.com/man-diverted-national-park-river-174607874.html)
 - Feb 08 - [Judge denies Peter Navarro's bid to remain out of prison while appealing contempt of Congress case](https://news.yahoo.com/judge-denies-peter-navarros-bid-174344155.html)
-- Feb 08 - [Steve Jobs Didn't Think He Needed To Shower Because He Only Ate Fruit — But His Body Odor Had Him Banished To The Night Shift When Colleagues Complained About The Smell](https://finance.yahoo.com/news/steve-jobs-didnt-think-needed-171754585.html)
-- Feb 08 - [Ukraine replaces army chief in shakeup at difficult time in war with Russia](https://news.yahoo.com/ukraines-zelenskiy-says-time-come-161631621.html)
-- Feb 08 - [‘Extremely rare’ sea creature leaps out of water and stuns scientists in Australia](https://news.yahoo.com/extremely-rare-sea-creature-leaps-161510148.html)
 <!-- feed end -->
 
 ### Onstream
