@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [Conspiracy theories swirl around Taylor Swift. These Republican voters say they don't care](https://news.yahoo.com/conspiracy-theories-swirl-around-taylor-134323735.html)
 - Feb 08 - ['You can't even pay rent': Grant Cardone warns this popular career move is the ‘dumbest, most selfish thing' you can do — and more Americans are doing it now than ever. Try this instead](https://finance.yahoo.com/news/cant-even-pay-rent-grant-123500638.html)
+- Feb 08 - [Putin's Tucker Carlson interview seems timed to inflict maximum damage on US support for Ukraine](https://news.yahoo.com/putins-tucker-carlson-interview-seems-120343012.html)
+- Feb 08 - [‘Do you hear yourself out loud?’: This 20-year-old from Atlanta asked Dave Ramsey for advice on moving in with her boyfriend. Here’s why Ramsey called him a ‘deadbeat’ and told her to ‘run!'](https://finance.yahoo.com/news/hear-yourself-loud-20-old-112700726.html)
 - Feb 08 - [We Asked, And Experts Say These Are The Rudest Things You Can Do At The Doctor's Office](https://www.yahoo.com/lifestyle/asked-experts-rudest-things-doctors-111603360.html)
-- Feb 08 - [Rebecca Grossman floored gas pedal, struck 2 boys at 'freeway speeds,' investigators say](https://news.yahoo.com/rebecca-grossman-floored-gas-pedal-110030271.html)
-- Feb 08 - [Pimps control San Diego neighborhoods as residents fear speaking out amid brazen prostitution: business owner](https://news.yahoo.com/pimps-control-san-diego-neighborhoods-093619565.html)
-- Feb 08 - [Leaked Tesla pay data: How much Elon Musk's factory workers now make across the US after some got raises](https://news.yahoo.com/leaked-tesla-pay-data-much-093001647.html)
 <!-- feed end -->
 
 ### Onstream
