@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [Ukraine needs more troops fighting Russia. Hardened professionals from Colombia are helping](https://news.yahoo.com/ukraine-needs-more-troops-fighting-053004061.html)
 - Feb 08 - [Hillary Clinton Drops Diplomacy In 2-Word Insult Of Tucker Carlson](https://news.yahoo.com/hillary-clinton-drops-diplomacy-2-040722018.html)
+- Feb 08 - [19 Film And TV Set Tragedies Hollywood Hoped People Would Forget That Are Honestly Just Awful](https://www.yahoo.com/entertainment/19-film-tv-set-tragedies-031603358.html)
 - Feb 08 - [New York AG and Trump lawyers tell judge they don’t want to wait for civil fraud verdict](https://news.yahoo.com/york-ag-trump-lawyers-tell-023150709.html)
 - Feb 08 - [Montana man is found guilty in Jan. 6 insurrection](https://news.yahoo.com/montana-man-found-guilty-jan-014255785.html)
-- Feb 08 - [Two men say they were each robbed of over $30,000 after going to the same bar on different nights](https://news.yahoo.com/two-men-were-robbed-over-013445648.html)
-- Feb 08 - [Toby Keith dies of stomach cancer: These early signs are easily missed, doctors say](https://news.yahoo.com/toby-keiths-dies-stomach-cancer-223743212.html)
 <!-- feed end -->
 
 ### Onstream
