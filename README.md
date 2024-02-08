@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 08 - [Alexandria Ocasio-Cortez’s Blunt Analysis Of Mike Johnson Has Chris Hayes Laughing](https://news.yahoo.com/alexandria-ocasio-cortez-blunt-analysis-101842042.html)
+- Feb 08 - [Fox News Gets Cut Off For Asking Mayorkas A Total Fox News Question At Super Bowl Presser](https://www.yahoo.com/entertainment/fox-news-gets-cut-off-115944095.html)
+- Feb 08 - [‘Do you hear yourself out loud?’: This 20-year-old from Atlanta asked Dave Ramsey for advice on moving in with her boyfriend. Here’s why Ramsey called him a ‘deadbeat’ and told her to ‘run!'](https://finance.yahoo.com/news/hear-yourself-loud-20-old-112700726.html)
+- Feb 08 - [Rebecca Grossman floored gas pedal, struck 2 boys at 'freeway speeds,' investigators say](https://news.yahoo.com/rebecca-grossman-floored-gas-pedal-110030271.html)
+- Feb 08 - [Of course Trump's Supreme Court lawyer is the same guy behind Texas' sadistic abortion ban](https://news.yahoo.com/course-trumps-supreme-court-lawyer-110005170.html)
 - Feb 08 - [Conservative Personality Takes Credit For Threatening To ‘Destroy’ Republican Senator](https://news.yahoo.com/conservative-personality-takes-credit-threatening-092518053.html)
-- Feb 08 - [Ukraine needs more troops fighting Russia. Hardened professionals from Colombia are helping](https://news.yahoo.com/ukraine-needs-more-troops-fighting-053004061.html)
-- Feb 08 - [Abandoned by his colleagues after negotiating a border compromise, GOP senator faces backlash alone](https://news.yahoo.com/abandoned-colleagues-negotiating-border-compromise-050209128.html)
-- Feb 08 - [Preteen boy dies 1 day after enrolling in controversial North Carolina therapy camp: 'Suspicious death'](https://news.yahoo.com/preteen-boy-dies-1-day-030106076.html)
 <!-- feed end -->
 
 ### Onstream
