@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [‘Extremely rare’ sea creature leaps out of water and stuns scientists in Australia](https://news.yahoo.com/extremely-rare-sea-creature-leaps-161510148.html)
+- Feb 08 - [Dave Ramsey Tells 29-Year-Old With $1 Million In Debt He's Going To Destroy Her Life As She Knows It – 'Your Friends Are Going To Think You've Lost Your Mind And Your Mother Is Going To Think You Need Counseling'](https://finance.yahoo.com/news/dave-ramsey-tells-29-old-160241364.html)
 - Feb 08 - [Russian soldier tries to fend off drone with a bottle of water - video](https://news.yahoo.com/russian-soldier-tries-fend-off-150300923.html)
 - Feb 08 - [Rudy Giuliani Makes Big Confession About Trump Campaign In Bankruptcy Court](https://news.yahoo.com/rudy-giuliani-makes-big-confession-141746979.html)
 - Feb 08 - [“Awful and unethical”: Legal experts say Judge Cannon could face removal for “disturbing” order](https://news.yahoo.com/awful-unethical-legal-experts-judge-140434916.html)
-- Feb 08 - [CVS is hit with a $250,000 fine for understaffing a store so badly that it was a month behind on filling prescriptions](https://www.yahoo.com/lifestyle/cvs-hit-250-000-fine-131910025.html)
-- Feb 08 - ['You can't even pay rent': Grant Cardone warns this popular career move is the ‘dumbest, most selfish thing' you can do — and more Americans are doing it now than ever. Try this instead](https://finance.yahoo.com/news/cant-even-pay-rent-grant-123500638.html)
 <!-- feed end -->
 
 ### Onstream
