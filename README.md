@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [Man who diverted national park river to ease boat access on Lake Michigan convicted of misdemeanors](https://news.yahoo.com/man-diverted-national-park-river-174607874.html)
+- Feb 08 - [Judge denies Peter Navarro's bid to remain out of prison while appealing contempt of Congress case](https://news.yahoo.com/judge-denies-peter-navarros-bid-174344155.html)
+- Feb 08 - [Steve Jobs Didn't Think He Needed To Shower Because He Only Ate Fruit — But His Body Odor Had Him Banished To The Night Shift When Colleagues Complained About The Smell](https://finance.yahoo.com/news/steve-jobs-didnt-think-needed-171754585.html)
+- Feb 08 - [Ukraine replaces army chief in shakeup at difficult time in war with Russia](https://news.yahoo.com/ukraines-zelenskiy-says-time-come-161631621.html)
 - Feb 08 - [‘Extremely rare’ sea creature leaps out of water and stuns scientists in Australia](https://news.yahoo.com/extremely-rare-sea-creature-leaps-161510148.html)
-- Feb 08 - [Dave Ramsey Tells 29-Year-Old With $1 Million In Debt He's Going To Destroy Her Life As She Knows It – 'Your Friends Are Going To Think You've Lost Your Mind And Your Mother Is Going To Think You Need Counseling'](https://finance.yahoo.com/news/dave-ramsey-tells-29-old-160241364.html)
-- Feb 08 - [Russian soldier tries to fend off drone with a bottle of water - video](https://news.yahoo.com/russian-soldier-tries-fend-off-150300923.html)
-- Feb 08 - [Rudy Giuliani Makes Big Confession About Trump Campaign In Bankruptcy Court](https://news.yahoo.com/rudy-giuliani-makes-big-confession-141746979.html)
-- Feb 08 - [“Awful and unethical”: Legal experts say Judge Cannon could face removal for “disturbing” order](https://news.yahoo.com/awful-unethical-legal-experts-judge-140434916.html)
 <!-- feed end -->
 
 ### Onstream
