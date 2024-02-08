@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 08 - [Massive sea creature with over 3,000 teeth seen in ‘rare’ Australia visit, video shows](https://news.yahoo.com/massive-sea-creature-over-3-214539183.html)
+- Feb 08 - [Elon Musk Spent $1 Million On A Super Rare McLaren F1 But Then Crashed It Trying To Impress Peter Thiel — And The Worst Part Is, The Car Wasn't Insured](https://finance.yahoo.com/news/elon-musk-spent-1-million-213715650.html)
+- Feb 08 - [Woman vanishes into 25-foot sinkhole outside home, California rescuers say](https://news.yahoo.com/woman-vanishes-25-foot-sinkhole-210625259.html)
+- Feb 08 - [Joe Biden forgot when he was vice president and when his son Beau died, special counsel report says](https://news.yahoo.com/joe-biden-forgot-vice-president-202530739.html)
 - Feb 08 - [Two men say they were each robbed of over $30,000 after going to the same bar on different nights](https://news.yahoo.com/two-men-were-robbed-over-013445648.html)
-- Feb 08 - [CNN panel roars with laughter after Jake Tapper cuts of Trump's rant over SCOTUS ballot hearing](https://news.yahoo.com/cnn-panel-roars-laughter-jake-195230228.html)
-- Feb 08 - [17-year-old shoots mother and father, then walks into sheriff’s office, Texas cops say](https://news.yahoo.com/17-old-shoots-mother-father-193444025.html)
-- Feb 08 - [CIA terminates whistleblower who prompted flood of sexual misconduct complaints](https://news.yahoo.com/cia-terminates-whistleblower-prompted-flood-190454173.html)
-- Feb 08 - ['This Is Why You're Still A Poor Person' – Dave Ramsey Points Out Major Differences Between Financial Classes: 'Rich People Don't Ask How Much Down And How Much A Month'](https://finance.yahoo.com/news/why-youre-still-poor-person-183135119.html)
 <!-- feed end -->
 
 ### Onstream
