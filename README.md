@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - [Jessica Simpson posted an ad for milk — and some fans got upset. Here's why there's so much drama over dairy lately.](https://www.yahoo.com/lifestyle/jessica-simpson-posted-an-ad-for-milk--and-some-fans-got-upset-heres-why-theres-so-much-drama-over-dairy-lately-195434180.html)
+- Feb 09 - [Rare winged creature dies soon after drawing admirers in Vermont. What happened?](https://news.yahoo.com/rare-winged-creature-dies-soon-203203304.html)
+- Feb 09 - [I make 4 times more money than my husband earns. He later admitted he was jealous of me being the breadwinner.](https://finance.yahoo.com/news/4-times-more-money-husband-201702891.html)
+- Feb 09 - [Jessica Simpson posted an ad for milk — and some fans got upset. Here's why there's so much drama over dairy lately.](https://www.yahoo.com/lifestyle/jessica-simpson-posted-ad-milk-195434528.html)
+- Feb 09 - [Fact Check: Biden Allegedly Referred to Egypt's President as 'the President of Mexico.' Here's What the Video Shows](https://news.yahoo.com/fact-check-biden-allegedly-referred-192400359.html)
 - Feb 09 - [System of Atlantic Ocean currents approaches 'cliff-like' tipping point, could collapse, study says](https://news.yahoo.com/system-atlantic-ocean-currents-approaches-191346792.html)
-- Feb 09 - [Charlie Munger Handed Over His Family Fortune To The 'Chinese Warren Buffett' Who Flipped It into Half A Billion Dollars — 'We Made Unholy Good Returns For A Long, Long Time'](https://finance.yahoo.com/news/charlie-munger-handed-over-family-190221478.html)
-- Feb 09 - [Russia's Vladimir Putin claims the Biden administration is 'killing' the USD by using it as a weapon — says 'blow was dealt' to America and even its allies are now 'downsizing' the dollar](https://finance.yahoo.com/news/russias-vladimir-putin-claims-biden-175800682.html)
-- Feb 09 - [Exclusive-Cisco to cut thousands of jobs as it seeks to focus on high growth areas -sources](https://www.yahoo.com/tech/cisco-cut-thousands-jobs-seeks-175409713.html)
 <!-- feed end -->
 
 ### Onstream
