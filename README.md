@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - [56 years after death, Tennessee folk hero Buford Pusser's wife Pauline Pusser exhumed](https://news.yahoo.com/56-years-death-tennessee-folk-145421765.html)
 - Feb 09 - [Alligator snapping turtle found in Cumbrian tarn](https://news.yahoo.com/alligator-snapping-turtle-found-cumbrian-143911314.html)
-- Feb 09 - [Gunman shoots tourist in Times Square, fires at officer; manhunt underway: Police](https://news.yahoo.com/gunman-shoots-tourist-times-square-143924040.html)
-- Feb 09 - [Police say an Amazon driver shot a dog in self-defense. The dog’s family hired an attorney.](https://news.yahoo.com/police-amazon-driver-shot-dog-143232213.html)
-- Feb 09 - [Jesse Watters Bombards Joe Biden On His Mental Fitness ― And Then Karma Strikes](https://www.yahoo.com/entertainment/jesse-watters-bombards-joe-biden-141550106.html)
+- Feb 09 - [Police have 'absolutely no record' of fatal intruder incident at Mar-a-Lago | Fact check](https://news.yahoo.com/police-absolutely-no-record-fatal-152331478.html)
+- Feb 09 - [‘My father died in the Columbia space shuttle – it felt like Nasa betrayed him’](https://news.yahoo.com/father-died-columbia-space-shuttle-150000595.html)
+- Feb 09 - [B-1B supersonic bombers sent a 'powerful' message to Iran's proxies all the way from Texas](https://news.yahoo.com/b-1b-supersonic-bombers-sent-145755798.html)
+- Feb 09 - [56 years after death, Tennessee folk hero Buford Pusser's wife Pauline Pusser exhumed](https://news.yahoo.com/56-years-death-tennessee-folk-145421765.html)
 <!-- feed end -->
 
 ### Onstream
