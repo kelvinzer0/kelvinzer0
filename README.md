@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [An Ohio city settles with a truck driver and a former K-9 officer involved in July attack](https://news.yahoo.com/ohio-city-settles-truck-driver-215422450.html)
 - Feb 09 - [Fact Check: Biden's Son Beau Didn't Die While Serving in Iraq](https://news.yahoo.com/fact-check-bidens-son-beau-210300568.html)
 - Feb 09 - [Rare winged creature dies soon after drawing admirers in Vermont. What happened?](https://news.yahoo.com/rare-winged-creature-dies-soon-203203304.html)
-- Feb 09 - [I make 4 times more money than my husband earns. He later admitted he was jealous of me being the breadwinner.](https://finance.yahoo.com/news/4-times-more-money-husband-201702891.html)
 - Feb 09 - [The Pioneer Woman Shared A New Update On Her 60-Pound Weight Loss Journey](https://www.yahoo.com/lifestyle/ree-drummond-52-maintained-calorie-220000469.html)
 - Feb 09 - [Jessica Simpson posted an ad for milk — and some fans got upset. Here's why there's so much drama over dairy lately.](https://www.yahoo.com/lifestyle/jessica-simpson-posted-ad-milk-195434528.html)
 <!-- feed end -->
