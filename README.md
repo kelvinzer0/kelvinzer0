@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [Jessica Simpson posted an ad for milk — and some fans got upset. Here's why there's so much drama over dairy lately.](https://www.yahoo.com/lifestyle/jessica-simpson-posted-an-ad-for-milk--and-some-fans-got-upset-heres-why-theres-so-much-drama-over-dairy-lately-195434180.html)
+- Feb 09 - [System of Atlantic Ocean currents approaches 'cliff-like' tipping point, could collapse, study says](https://news.yahoo.com/system-atlantic-ocean-currents-approaches-191346792.html)
+- Feb 09 - [Charlie Munger Handed Over His Family Fortune To The 'Chinese Warren Buffett' Who Flipped It into Half A Billion Dollars — 'We Made Unholy Good Returns For A Long, Long Time'](https://finance.yahoo.com/news/charlie-munger-handed-over-family-190221478.html)
 - Feb 09 - [Russia's Vladimir Putin claims the Biden administration is 'killing' the USD by using it as a weapon — says 'blow was dealt' to America and even its allies are now 'downsizing' the dollar](https://finance.yahoo.com/news/russias-vladimir-putin-claims-biden-175800682.html)
-- Feb 09 - [5 Marines killed in helicopter crash are identified](https://news.yahoo.com/5-marines-killed-helicopter-crash-174800215.html)
-- Feb 09 - [Former Maryland Gov. Larry Hogan is running for the US Senate](https://news.yahoo.com/former-maryland-gov-larry-hogan-164757159.html)
-- Feb 09 - [Bahamas resort refutes American cruise ship passengers' sex attack warning](https://news.yahoo.com/bahamas-resort-refutes-american-cruise-163028903.html)
-- Feb 09 - [Putin justifies Hitler's actions: The Poles were uncooperative. Poland expresses outrage](https://news.yahoo.com/putin-justifies-hitlers-actions-poles-161157911.html)
+- Feb 09 - [Exclusive-Cisco to cut thousands of jobs as it seeks to focus on high growth areas -sources](https://www.yahoo.com/tech/cisco-cut-thousands-jobs-seeks-175409713.html)
 <!-- feed end -->
 
 ### Onstream
