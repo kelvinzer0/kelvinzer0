@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - [GOP lawmaker calls on Cabinet to ‘explore’ removing Biden under 25th Amendment](https://news.yahoo.com/gop-lawmaker-calls-cabinet-explore-033901773.html)
 - Feb 09 - [Man who shoveled new channel into Lake Michigan convicted](https://news.yahoo.com/man-shoveled-channel-lake-michigan-030913110.html)
 - Feb 09 - [Top female Twitch streamer ends contract after 10 years, blames growing 'manosphere' environment: 'It has regressed a lot'](https://news.yahoo.com/top-female-twitch-streamer-ends-contract-after-10-years-blames-growing-manosphere-environment-it-has-regressed-a-lot-012141177.html)
 - Feb 09 - [Bo Jackson awarded $21 million in Georgia blackmail, stalking case](https://news.yahoo.com/auburn-heisman-trophy-winner-awarded-004926887.html)
+- Feb 09 - [Couple snaps pics of ‘flying saucer’ on road trip: ‘You had to see it to believe it’](https://news.yahoo.com/couple-snaps-pics-flying-saucer-001605430.html)
 - Feb 08 - [Vladamir Putin Tells Tucker Carlson Why Russia Attacked Ukraine [VIDEO]](https://www.yahoo.com/entertainment/vladamir-putin-tells-tucker-carlson-232521265.html)
 <!-- feed end -->
 
