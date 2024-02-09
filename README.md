@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [‘Completely Deranged’: CNN Fact-Checker Shreds Trump’s New 'Bonkers Nonsense’](https://news.yahoo.com/completely-deranged-cnn-fact-checker-091352669.html)
 - Feb 09 - [Man who shoveled new channel into Lake Michigan convicted](https://news.yahoo.com/man-shoveled-channel-lake-michigan-030913110.html)
 - Feb 09 - [Top female Twitch streamer ends contract after 10 years, blames growing 'manosphere' environment: 'It has regressed a lot'](https://news.yahoo.com/top-female-twitch-streamer-ends-contract-after-10-years-blames-growing-manosphere-environment-it-has-regressed-a-lot-012141177.html)
 - Feb 09 - [Bo Jackson awarded $21 million in Georgia blackmail, stalking case](https://news.yahoo.com/auburn-heisman-trophy-winner-awarded-004926887.html)
 - Feb 09 - [Couple snaps pics of ‘flying saucer’ on road trip: ‘You had to see it to believe it’](https://news.yahoo.com/couple-snaps-pics-flying-saucer-001605430.html)
-- Feb 08 - [Vladamir Putin Tells Tucker Carlson Why Russia Attacked Ukraine [VIDEO]](https://www.yahoo.com/entertainment/vladamir-putin-tells-tucker-carlson-232521265.html)
 <!-- feed end -->
 
 ### Onstream
