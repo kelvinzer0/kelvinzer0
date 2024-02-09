@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [Bo Jackson awarded $21 million in Georgia blackmail, stalking case](https://news.yahoo.com/auburn-heisman-trophy-winner-awarded-004926887.html)
+- Feb 08 - [Vladamir Putin Tells Tucker Carlson Why Russia Attacked Ukraine [VIDEO]](https://www.yahoo.com/entertainment/vladamir-putin-tells-tucker-carlson-232521265.html)
+- Feb 08 - [Man Sentenced to 20 Years in Prison for Killing a Woman Who Beat Him at Basketball](https://www.yahoo.com/entertainment/man-sentenced-20-years-prison-230959292.html)
+- Feb 08 - [Fact Check: An Alleged Biden Quote Claims He Once Said He Didn't Want His Kids Growing Up in a 'Racial Jungle.' Here Are the Facts](https://news.yahoo.com/fact-check-alleged-biden-quote-225600134.html)
 - Feb 08 - [North Korea leader Kim: we will wipe out enemies if they use force -KCNA](https://news.yahoo.com/north-korea-leader-kim-wipe-221719973.html)
-- Feb 08 - [Biden's memory is 'hazy' and 'poor,' says a special counsel's report raising questions about his age](https://news.yahoo.com/bidens-memory-hazy-poor-says-220528006.html)
-- Feb 08 - [Tempers flare after Graham accuses Sinema of ‘half-ass’ border effort](https://news.yahoo.com/tempers-flare-graham-accuses-sinema-220339397.html)
-- Feb 08 - [Massive sea creature with over 3,000 teeth seen in ‘rare’ Australia visit, video shows](https://news.yahoo.com/massive-sea-creature-over-3-214539183.html)
-- Feb 08 - [Elon Musk Spent $1 Million On A Super Rare McLaren F1 But Then Crashed It Trying To Impress Peter Thiel — And The Worst Part Is, The Car Wasn't Insured](https://finance.yahoo.com/news/elon-musk-spent-1-million-213715650.html)
 <!-- feed end -->
 
 ### Onstream
