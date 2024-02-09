@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - ['You'll never succeed without me': Barbara Corcoran was dumped by her ex-boyfriend so he could run off with her secretary — then she became a self-made millionaire](https://finance.yahoo.com/news/youll-never-succeed-without-barbara-130400627.html)
 - Feb 09 - [Moscow calls Ukraine's new Russian-born army chief a traitor, says he won't win](https://news.yahoo.com/moscow-calls-ukraines-russian-born-100856797.html)
+- Feb 09 - [John Roberts has a united court on Trump. Now comes the hard part](https://news.yahoo.com/john-roberts-united-court-trump-100030733.html)
 - Feb 09 - [‘Completely Deranged’: CNN Fact-Checker Shreds Trump’s New 'Bonkers Nonsense’](https://news.yahoo.com/completely-deranged-cnn-fact-checker-091352669.html)
 - Feb 09 - [Fact check: Biden makes three false claims about his handling of classified information](https://news.yahoo.com/fact-check-biden-makes-three-061848230.html)
-- Feb 09 - [They opened a Haitian food truck. Then they were told, 'Go back to your own country,' lawsuit says](https://news.yahoo.com/opened-haitian-food-truck-then-051026489.html)
-- Feb 09 - [Biden was in a fighting mood for surprise speech – but he didn’t win](https://news.yahoo.com/biden-fighting-mood-surprise-speech-034744485.html)
 <!-- feed end -->
 
 ### Onstream
