@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [Fact Check: Biden's Son Beau Didn't Die While Serving in Iraq](https://news.yahoo.com/fact-check-bidens-son-beau-210300568.html)
 - Feb 09 - [Rare winged creature dies soon after drawing admirers in Vermont. What happened?](https://news.yahoo.com/rare-winged-creature-dies-soon-203203304.html)
 - Feb 09 - [I make 4 times more money than my husband earns. He later admitted he was jealous of me being the breadwinner.](https://finance.yahoo.com/news/4-times-more-money-husband-201702891.html)
+- Feb 09 - [The Pioneer Woman Shared A New Update On Her 60-Pound Weight Loss Journey](https://www.yahoo.com/lifestyle/ree-drummond-52-maintained-calorie-220000469.html)
 - Feb 09 - [Jessica Simpson posted an ad for milk — and some fans got upset. Here's why there's so much drama over dairy lately.](https://www.yahoo.com/lifestyle/jessica-simpson-posted-ad-milk-195434528.html)
-- Feb 09 - [Fact Check: Biden Allegedly Referred to Egypt's President as 'the President of Mexico.' Here's What the Video Shows](https://news.yahoo.com/fact-check-biden-allegedly-referred-192400359.html)
-- Feb 09 - [System of Atlantic Ocean currents approaches 'cliff-like' tipping point, could collapse, study says](https://news.yahoo.com/system-atlantic-ocean-currents-approaches-191346792.html)
 <!-- feed end -->
 
 ### Onstream
