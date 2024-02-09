@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - ['You'll never succeed without me': Barbara Corcoran was dumped by her ex-boyfriend so he could run off with her secretary — then she became a self-made millionaire](https://finance.yahoo.com/news/youll-never-succeed-without-barbara-130400627.html)
-- Feb 09 - [Moscow calls Ukraine's new Russian-born army chief a traitor, says he won't win](https://news.yahoo.com/moscow-calls-ukraines-russian-born-100856797.html)
-- Feb 09 - [John Roberts has a united court on Trump. Now comes the hard part](https://news.yahoo.com/john-roberts-united-court-trump-100030733.html)
-- Feb 09 - [‘Completely Deranged’: CNN Fact-Checker Shreds Trump’s New 'Bonkers Nonsense’](https://news.yahoo.com/completely-deranged-cnn-fact-checker-091352669.html)
-- Feb 09 - [Fact check: Biden makes three false claims about his handling of classified information](https://news.yahoo.com/fact-check-biden-makes-three-061848230.html)
+- Feb 09 - [56 years after death, Tennessee folk hero Buford Pusser's wife Pauline Pusser exhumed](https://news.yahoo.com/56-years-death-tennessee-folk-145421765.html)
+- Feb 09 - [Alligator snapping turtle found in Cumbrian tarn](https://news.yahoo.com/alligator-snapping-turtle-found-cumbrian-143911314.html)
+- Feb 09 - [Gunman shoots tourist in Times Square, fires at officer; manhunt underway: Police](https://news.yahoo.com/gunman-shoots-tourist-times-square-143924040.html)
+- Feb 09 - [Police say an Amazon driver shot a dog in self-defense. The dog’s family hired an attorney.](https://news.yahoo.com/police-amazon-driver-shot-dog-143232213.html)
+- Feb 09 - [Jesse Watters Bombards Joe Biden On His Mental Fitness ― And Then Karma Strikes](https://www.yahoo.com/entertainment/jesse-watters-bombards-joe-biden-141550106.html)
 <!-- feed end -->
 
 ### Onstream
