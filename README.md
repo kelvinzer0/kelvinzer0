@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [Man who shoveled new channel into Lake Michigan convicted](https://news.yahoo.com/man-shoveled-channel-lake-michigan-030913110.html)
 - Feb 09 - [Top female Twitch streamer ends contract after 10 years, blames growing 'manosphere' environment: 'It has regressed a lot'](https://news.yahoo.com/top-female-twitch-streamer-ends-contract-after-10-years-blames-growing-manosphere-environment-it-has-regressed-a-lot-012141177.html)
 - Feb 09 - [Vladimir Putin Says Russia Has ‘Run Out’ of ‘Decency,’ and It’s on the US to Take ‘Reciprocal Steps’ to Free Evan Gershkovich](https://www.yahoo.com/entertainment/vladimir-putin-says-russia-run-010505817.html)
 - Feb 09 - [Bo Jackson awarded $21 million in Georgia blackmail, stalking case](https://news.yahoo.com/auburn-heisman-trophy-winner-awarded-004926887.html)
 - Feb 08 - [Tempers flare after Graham accuses Sinema of ‘half-ass’ border effort](https://news.yahoo.com/tempers-flare-graham-accuses-sinema-220339397.html)
-- Feb 08 - [Massive sea creature with over 3,000 teeth seen in ‘rare’ Australia visit, video shows](https://news.yahoo.com/massive-sea-creature-over-3-214539183.html)
 <!-- feed end -->
 
 ### Onstream
