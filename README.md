@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Feb 09 - [Moscow calls Ukraine's new Russian-born army chief a traitor, says he won't win](https://news.yahoo.com/moscow-calls-ukraines-russian-born-100856797.html)
 - Feb 09 - [‘Completely Deranged’: CNN Fact-Checker Shreds Trump’s New 'Bonkers Nonsense’](https://news.yahoo.com/completely-deranged-cnn-fact-checker-091352669.html)
 - Feb 09 - [Fact check: Biden makes three false claims about his handling of classified information](https://news.yahoo.com/fact-check-biden-makes-three-061848230.html)
+- Feb 09 - [They opened a Haitian food truck. Then they were told, 'Go back to your own country,' lawsuit says](https://news.yahoo.com/opened-haitian-food-truck-then-051026489.html)
 - Feb 09 - [Biden was in a fighting mood for surprise speech – but he didn’t win](https://news.yahoo.com/biden-fighting-mood-surprise-speech-034744485.html)
-- Feb 09 - [Mutant wolves roaming Chernobyl Exclusion Zone have developed cancer-resilient abilities: study](https://news.yahoo.com/mutant-wolves-roaming-chernobyl-exclusion-032300787.html)
 <!-- feed end -->
 
 ### Onstream
