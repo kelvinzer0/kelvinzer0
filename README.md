@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 09 - [Alligator snapping turtle found in Cumbrian tarn](https://news.yahoo.com/alligator-snapping-turtle-found-cumbrian-143911314.html)
-- Feb 09 - [Police have 'absolutely no record' of fatal intruder incident at Mar-a-Lago | Fact check](https://news.yahoo.com/police-absolutely-no-record-fatal-152331478.html)
-- Feb 09 - [‘My father died in the Columbia space shuttle – it felt like Nasa betrayed him’](https://news.yahoo.com/father-died-columbia-space-shuttle-150000595.html)
-- Feb 09 - [B-1B supersonic bombers sent a 'powerful' message to Iran's proxies all the way from Texas](https://news.yahoo.com/b-1b-supersonic-bombers-sent-145755798.html)
-- Feb 09 - [56 years after death, Tennessee folk hero Buford Pusser's wife Pauline Pusser exhumed](https://news.yahoo.com/56-years-death-tennessee-folk-145421765.html)
+- Feb 09 - [Russia's Vladimir Putin claims the Biden administration is 'killing' the USD by using it as a weapon — says 'blow was dealt' to America and even its allies are now 'downsizing' the dollar](https://finance.yahoo.com/news/russias-vladimir-putin-claims-biden-175800682.html)
+- Feb 09 - [5 Marines killed in helicopter crash are identified](https://news.yahoo.com/5-marines-killed-helicopter-crash-174800215.html)
+- Feb 09 - [Former Maryland Gov. Larry Hogan is running for the US Senate](https://news.yahoo.com/former-maryland-gov-larry-hogan-164757159.html)
+- Feb 09 - [Bahamas resort refutes American cruise ship passengers' sex attack warning](https://news.yahoo.com/bahamas-resort-refutes-american-cruise-163028903.html)
+- Feb 09 - [Putin justifies Hitler's actions: The Poles were uncooperative. Poland expresses outrage](https://news.yahoo.com/putin-justifies-hitlers-actions-poles-161157911.html)
 <!-- feed end -->
 
 ### Onstream
