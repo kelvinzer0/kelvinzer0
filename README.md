@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [Hamas had command tunnel under U.N. Gaza headquarters, Israeli military says](https://news.yahoo.com/hamas-had-command-tunnel-under-180902224.html)
+- Feb 10 - [US F-16s are exceeding the expectations of Ukraine's pilots, report says](https://news.yahoo.com/us-f-16s-exceeding-expectations-173022722.html)
 - Feb 10 - [PR Experts Claim Barron Trump Will Follow One of His Parent’s Footsteps When It Comes to the Spotlight](https://www.yahoo.com/lifestyle/pr-experts-claim-barron-trump-165800821.html)
-- Feb 10 - ['We've lost both engines,' pilot says before private jet crashed onto Florida interstate, killing 2](https://news.yahoo.com/investigators-try-why-private-jet-130830864.html)
-- Feb 10 - [This teen wears a size 23 shoe. It's stopping him from living a normal life.](https://news.yahoo.com/teen-wears-size-23-shoe-120332693.html)
-- Feb 10 - [Ancient Human Artifact Was Made With Extraterrestrial Material, Scientists Say](https://news.yahoo.com/ancient-human-artifact-made-extraterrestrial-120009269.html)
-- Feb 10 - [‘I’m embarrassed’: This TikToker moved to NYC with a $2.3K/month budget to rent an apartment — and was told that was ‘pretty low.’ Is it fruitless to try to make it in the Big Apple?](https://finance.yahoo.com/news/m-embarrassed-tiktoker-moved-nyc-113400977.html)
+- Feb 10 - [Trump bizarrely claims 'they' will change the name of the state of Pennsylvania if he loses it](https://news.yahoo.com/trump-bizarrely-claims-change-name-163957686.html)
+- Feb 10 - [Hungary's president resigns over a pardon to a man convicted in a child sexual abuse case](https://news.yahoo.com/hungarys-president-resigns-over-pardon-163951465.html)
 <!-- feed end -->
 
 ### Onstream
