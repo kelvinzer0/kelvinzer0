@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [12-year-old died less than 24 hours after he arrived at North Carolina wilderness camp, officials say](https://news.yahoo.com/12-old-died-less-24-012225467.html)
 - Feb 10 - [Texas woman is sentenced to 3 years in prison for threatening judge overseeing Trump documents case](https://news.yahoo.com/texas-woman-sentenced-3-years-001927270.html)
 - Feb 09 - [Parents want answers after freshman son at found dead 500 ft. from where he went missing.](https://news.yahoo.com/parents-want-answers-freshman-son-233503485.html)
-- Feb 09 - [GOP Sen. John Kennedy Freaks Out When Reminded He Used To Be A Democrat](https://news.yahoo.com/gop-sen-john-kennedy-freaks-232347739.html)
 - Feb 09 - [An Ohio city settles with a truck driver and a former K-9 officer involved in July attack](https://news.yahoo.com/ohio-city-settles-truck-driver-215422450.html)
 - Feb 09 - [Las Vegas police arrest suspected getaway driver involved in innocent bystander’s death](https://news.yahoo.com/las-vegas-police-arrest-suspected-213445678.html)
 <!-- feed end -->
