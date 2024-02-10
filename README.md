@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [‘If Bill Gates woke up with Oprah’s money, he’d jump out the window’: Morgan Housel reveals how a Chris Rock joke explains why people stay broke — and shares 3 traits that make people rich](https://finance.yahoo.com/news/bill-gates-woke-oprah-money-124300264.html)
+- Feb 10 - [This teen wears a size 23 shoe. It's stopping him from living a normal life.](https://news.yahoo.com/teen-wears-size-23-shoe-120332693.html)
 - Feb 10 - [‘I’m embarrassed’: This TikToker moved to NYC with a $2.3K/month budget to rent an apartment — and was told that was ‘pretty low.’ Is it fruitless to try to make it in the Big Apple?](https://finance.yahoo.com/news/m-embarrassed-tiktoker-moved-nyc-113400977.html)
 - Feb 10 - ['That level of violence is terrifying': Mexican cartel targets tranquil Puget Sound city](https://news.yahoo.com/level-violence-terrifying-mexican-cartel-110301554.html)
-- Feb 10 - [A 34-year-old who worked out regularly and ate healthily noticed blood in his poop. He had stage 3 colon cancer.](https://www.yahoo.com/lifestyle/34-old-worked-regularly-ate-105701372.html)
-- Feb 10 - [UK intelligence describes consequences of Ukrainian strike on Belbek airfield in Crimea](https://news.yahoo.com/uk-intelligence-describes-consequences-ukrainian-100817878.html)
-- Feb 10 - [Mom of American in Bahamas sex attack says daughter texted, 'We've been raped'](https://news.yahoo.com/mom-american-bahamas-sex-attack-090057050.html)
+- Feb 10 - [Detroit's abandoned tunnel systems opens door to another world](https://news.yahoo.com/detroits-abandoned-tunnel-systems-opens-110026361.html)
 <!-- feed end -->
 
 ### Onstream
