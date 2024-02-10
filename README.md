@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Feb 10 - [This teen wears a size 23 shoe. It's stopping him from living a normal life.](https://news.yahoo.com/teen-wears-size-23-shoe-120332693.html)
 - Feb 10 - [‘I’m embarrassed’: This TikToker moved to NYC with a $2.3K/month budget to rent an apartment — and was told that was ‘pretty low.’ Is it fruitless to try to make it in the Big Apple?](https://finance.yahoo.com/news/m-embarrassed-tiktoker-moved-nyc-113400977.html)
 - Feb 10 - ['That level of violence is terrifying': Mexican cartel targets tranquil Puget Sound city](https://news.yahoo.com/level-violence-terrifying-mexican-cartel-110301554.html)
-- Feb 10 - [Detroit's abandoned tunnel systems opens door to another world](https://news.yahoo.com/detroits-abandoned-tunnel-systems-opens-110026361.html)
+- Feb 10 - [Detroit's abandoned tunnel systems open door to another world](https://news.yahoo.com/detroits-abandoned-tunnel-systems-opens-110026361.html)
 <!-- feed end -->
 
 ### Onstream
