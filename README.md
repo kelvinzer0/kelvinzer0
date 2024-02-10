@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Fetterman calls Rand Paul ‘peckerhead’ over Friday night, Super Bowl votes](https://news.yahoo.com/fetterman-calls-rand-paul-peckerhead-020712518.html)
-- Feb 10 - [Could Democrats replace Biden as their nominee?](https://news.yahoo.com/could-democrats-replace-biden-nominee-003603553.html)
-- Feb 10 - [Texas woman is sentenced to 3 years in prison for threatening judge overseeing Trump documents case](https://news.yahoo.com/texas-woman-sentenced-3-years-001927270.html)
-- Feb 09 - [Parents want answers after freshman son at found dead 500 ft. from where he went missing.](https://news.yahoo.com/parents-want-answers-freshman-son-233503485.html)
-- Feb 09 - [An Ohio city settles with a truck driver and a former K-9 officer involved in July attack](https://news.yahoo.com/ohio-city-settles-truck-driver-215422450.html)
+- Feb 10 - [‘I’m embarrassed’: This TikToker moved to NYC with a $2.3K/month budget to rent an apartment — and was told that was ‘pretty low.’ Is it fruitless to try to make it in the Big Apple?](https://finance.yahoo.com/news/m-embarrassed-tiktoker-moved-nyc-113400977.html)
+- Feb 10 - ['That level of violence is terrifying': Mexican cartel targets tranquil Puget Sound city](https://news.yahoo.com/level-violence-terrifying-mexican-cartel-110301554.html)
+- Feb 10 - [A 34-year-old who worked out regularly and ate healthily noticed blood in his poop. He had stage 3 colon cancer.](https://www.yahoo.com/lifestyle/34-old-worked-regularly-ate-105701372.html)
+- Feb 10 - [Mom of American in Bahamas sex attack says daughter texted, 'We've been raped'](https://news.yahoo.com/mom-american-bahamas-sex-attack-090057050.html)
+- Feb 10 - [Wife, daughter of ex-mobster John Gotti Jr. charged with attacking woman at Long Island high school](https://sports.yahoo.com/wife-daughter-ex-mobster-john-025800294.html)
 <!-- feed end -->
 
 ### Onstream
