@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Helicopter crashes in Southern California's Mojave Desert, six missing](https://news.yahoo.com/helicopter-crashes-southern-californias-mojave-163348345.html)
+- Feb 10 - [PR Experts Claim Barron Trump Will Follow One of His Parent’s Footsteps When It Comes to the Spotlight](https://www.yahoo.com/lifestyle/pr-experts-claim-barron-trump-165800821.html)
 - Feb 10 - ['We've lost both engines,' pilot says before private jet crashed onto Florida interstate, killing 2](https://news.yahoo.com/investigators-try-why-private-jet-130830864.html)
 - Feb 10 - [This teen wears a size 23 shoe. It's stopping him from living a normal life.](https://news.yahoo.com/teen-wears-size-23-shoe-120332693.html)
 - Feb 10 - [Ancient Human Artifact Was Made With Extraterrestrial Material, Scientists Say](https://news.yahoo.com/ancient-human-artifact-made-extraterrestrial-120009269.html)
