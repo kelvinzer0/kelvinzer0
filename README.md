@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Feb 10 - [‘I’m embarrassed’: This TikToker moved to NYC with a $2.3K/month budget to rent an apartment — and was told that was ‘pretty low.’ Is it fruitless to try to make it in the Big Apple?](https://finance.yahoo.com/news/m-embarrassed-tiktoker-moved-nyc-113400977.html)
 - Feb 10 - ['That level of violence is terrifying': Mexican cartel targets tranquil Puget Sound city](https://news.yahoo.com/level-violence-terrifying-mexican-cartel-110301554.html)
 - Feb 10 - [A 34-year-old who worked out regularly and ate healthily noticed blood in his poop. He had stage 3 colon cancer.](https://www.yahoo.com/lifestyle/34-old-worked-regularly-ate-105701372.html)
+- Feb 10 - [UK intelligence describes consequences of Ukrainian strike on Belbek airfield in Crimea](https://news.yahoo.com/uk-intelligence-describes-consequences-ukrainian-100817878.html)
 - Feb 10 - [Mom of American in Bahamas sex attack says daughter texted, 'We've been raped'](https://news.yahoo.com/mom-american-bahamas-sex-attack-090057050.html)
-- Feb 10 - [Wife, daughter of ex-mobster John Gotti Jr. charged with attacking woman at Long Island high school](https://sports.yahoo.com/wife-daughter-ex-mobster-john-025800294.html)
 <!-- feed end -->
 
 ### Onstream
