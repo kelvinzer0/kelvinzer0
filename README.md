@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 10 - [Man who attacked Las Vegas judge during sentencing now indicted by a grand jury for attempted murder](https://news.yahoo.com/man-attacked-las-vegas-judge-201740076.html)
 - Feb 10 - [Gallagher says he won't run for Congress again after refusing to impeach Homeland Security chief](https://news.yahoo.com/gallagher-says-wont-run-congress-194906101.html)
+- Feb 10 - [Israeli military kills Hamas terrorists, finds 'significant' weapons and assets inside UNRWA headquarters](https://news.yahoo.com/israeli-military-kills-hamas-terrorists-194812274.html)
 - Feb 10 - [Cyndi Lauper’s Son Bailed Out Of Jail By Famous Dad After Arrest On Gun Charges](https://www.yahoo.com/entertainment/cyndi-lauper-son-bailed-jail-194517906.html)
 - Feb 10 - [Man dies mid-flight after breaking out in 'cold sweats' and losing 'liters of blood,' scaring his fellow passengers](https://news.yahoo.com/man-dies-mid-flight-breaking-191920956.html)
-- Feb 10 - [Former FBI official: Similarities between Biden and Hillary Clinton reports ‘nauseating’](https://news.yahoo.com/former-fbi-official-similarities-between-181301049.html)
 <!-- feed end -->
 
 ### Onstream
