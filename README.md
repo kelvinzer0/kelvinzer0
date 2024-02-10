@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [Man dies mid-flight after breaking out in 'cold sweats' and losing 'liters of blood,' scaring his fellow passengers](https://news.yahoo.com/man-dies-mid-flight-breaking-191920956.html)
+- Feb 10 - [Bob Costas knocks Biden’s ‘hubris’ campaign: He must ‘be shown the door’](https://news.yahoo.com/bob-costas-knocks-biden-hubris-190433368.html)
 - Feb 10 - [Hamas had command tunnel under U.N. Gaza headquarters, Israeli military says](https://news.yahoo.com/hamas-had-command-tunnel-under-180902224.html)
-- Feb 10 - [US F-16s are exceeding the expectations of Ukraine's pilots, report says](https://news.yahoo.com/us-f-16s-exceeding-expectations-173022722.html)
-- Feb 10 - [PR Experts Claim Barron Trump Will Follow One of His Parent’s Footsteps When It Comes to the Spotlight](https://www.yahoo.com/lifestyle/pr-experts-claim-barron-trump-165800821.html)
-- Feb 10 - [Trump bizarrely claims 'they' will change the name of the state of Pennsylvania if he loses it](https://news.yahoo.com/trump-bizarrely-claims-change-name-163957686.html)
-- Feb 10 - [Hungary's president resigns over a pardon to a man convicted in a child sexual abuse case](https://news.yahoo.com/hungarys-president-resigns-over-pardon-163951465.html)
+- Feb 10 - [California teacher who criticized 'Woke Kindergarten' program put on leave](https://www.yahoo.com/lifestyle/california-teacher-criticized-woke-kindergarten-164757150.html)
+- Feb 10 - [A helicopter headed for the Vegas area crashes in the Mojave Desert with 6 people aboard](https://news.yahoo.com/helicopter-crashes-southern-californias-mojave-163348345.html)
 <!-- feed end -->
 
 ### Onstream
