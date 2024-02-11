@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Trump Says He Might 'Encourage' Russia To Attack NATO Allies](https://news.yahoo.com/trump-says-might-encourage-russia-231453004.html)
+- Feb 11 - [Trump says he would encourage Russia to ‘do whatever the hell they want’ to any NATO country that doesn’t pay enough](https://news.yahoo.com/trump-says-encourage-russia-whatever-010508611.html)
 - Feb 10 - [Nikki Haley fires back at Trump for asking where her husband is](https://news.yahoo.com/nikki-haley-fires-back-trump-225409101.html)
 - Feb 10 - [Super Bowl Tragedy: Six Reportedly Dead In Helicopter Crash](https://www.yahoo.com/entertainment/super-bowl-tragedy-six-reportedly-225110759.html)
 - Feb 10 - [Carville: Biden not accepting Super Bowl interview is a ‘sign’](https://news.yahoo.com/carville-biden-not-accepting-super-224838356.html)
