@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 11 - [Is King Charles Stepping Down? He Just Revealed His Plans Amid His Cancer Diagnosis](https://www.yahoo.com/lifestyle/king-charles-stepping-down-just-185000303.html)
+- Feb 11 - [Trump to Taylor Swift: Don't be ungrateful](https://news.yahoo.com/trump-taylor-swift-please-don-184308111.html)
 - Feb 11 - [Trump gets access to sealed documents on witness threats in Mar-a-Lago case](https://news.yahoo.com/trump-gets-access-sealed-documents-181951896.html)
 - Feb 11 - [Biden's legal team went to Justice Dept. over what they viewed as unnecessary digs at his memory](https://news.yahoo.com/bidens-legal-team-went-justice-180158744.html)
 - Feb 11 - [How digital transformation is shaping the Middle East](https://www.yahoo.com/entertainment/digital-transformation-shaping-middle-east-110853875.html)
-- Feb 11 - [59 People Who Make Over $100K A Year Shared What They Do For A Living, And You'll Want To Take Notes](https://www.yahoo.com/lifestyle/59-people-over-100k-shared-171602965.html)
-- Feb 11 - [Former Dutch prime minister and his wife die hand-in-hand in double euthanasia](https://sports.yahoo.com/former-dutch-prime-minister-wife-162028656.html)
 <!-- feed end -->
 
 ### Onstream
