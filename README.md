@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 11 - [Finland's new president sees no limit to NATO ties, Ukraine support](https://news.yahoo.com/finlands-president-sees-no-limit-195817252.html)
 - Feb 11 - [Is King Charles Stepping Down? He Just Revealed His Plans Amid His Cancer Diagnosis](https://www.yahoo.com/lifestyle/king-charles-stepping-down-just-185000303.html)
-- Feb 11 - [Trump to Taylor Swift: Don't be ungrateful](https://news.yahoo.com/trump-taylor-swift-please-don-184308111.html)
 - Feb 11 - [Trump gets access to sealed documents on witness threats in Mar-a-Lago case](https://news.yahoo.com/trump-gets-access-sealed-documents-181951896.html)
 - Feb 11 - [Biden's legal team went to Justice Dept. over what they viewed as unnecessary digs at his memory](https://news.yahoo.com/bidens-legal-team-went-justice-180158744.html)
 - Feb 11 - [How digital transformation is shaping the Middle East](https://www.yahoo.com/entertainment/digital-transformation-shaping-middle-east-110853875.html)
