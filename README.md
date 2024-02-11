@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Finland's new president sees no limit to NATO ties, Ukraine support](https://news.yahoo.com/finlands-president-sees-no-limit-195817252.html)
-- Feb 11 - [Is King Charles Stepping Down? He Just Revealed His Plans Amid His Cancer Diagnosis](https://www.yahoo.com/lifestyle/king-charles-stepping-down-just-185000303.html)
-- Feb 11 - [Trump gets access to sealed documents on witness threats in Mar-a-Lago case](https://news.yahoo.com/trump-gets-access-sealed-documents-181951896.html)
-- Feb 11 - [Biden's legal team went to Justice Dept. over what they viewed as unnecessary digs at his memory](https://news.yahoo.com/bidens-legal-team-went-justice-180158744.html)
-- Feb 11 - [How digital transformation is shaping the Middle East](https://www.yahoo.com/entertainment/digital-transformation-shaping-middle-east-110853875.html)
+- Feb 11 - [Biden national security voice John Kirby gets expanded role](https://news.yahoo.com/biden-national-security-voice-john-215139423.html)
+- Feb 11 - [US Defense Secretary Austin taken to hospital for 'symptoms suggesting emergent bladder issue' - Pentagon](https://news.yahoo.com/us-defense-secretary-austin-taken-214642926.html)
+- Feb 11 - [Father in gender-reveal that sparked fatal 2020 California wildfire has pleaded guilty](https://news.yahoo.com/father-gender-reveal-sparked-fatal-212722179.html)
+- Feb 11 - [Shooting reported at pastor Joel Osteen's Lakewood Church in Houston: Police](https://news.yahoo.com/houston-police-responding-shooting-near-204400709.html)
+- Feb 11 - [Billy Jack Haynes In Police Custody, Expected To Be Charged With Murder](https://www.yahoo.com/entertainment/billy-jack-haynes-police-custody-205614896.html)
 <!-- feed end -->
 
 ### Onstream
