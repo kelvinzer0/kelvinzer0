@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 11 - ['Everybody Needs To Be Welcomed': George Lopez Reveals Why He Can't Stay 'Silent' On Trump](https://www.yahoo.com/entertainment/everybody-needs-welcomed-george-lopez-073110318.html)
+- Feb 11 - [This small New York village made guns for 200 years. What happens when Remington leaves?](https://news.yahoo.com/small-york-village-made-guns-051057572.html)
 - Feb 11 - [California teen vanishes during layover at Denver International Airport on way home from mental health center](https://news.yahoo.com/california-teen-vanishes-during-layover-050431360.html)
 - Feb 11 - [Indonesia scraps plan to buy Mirage fighter jets from Qatar](https://news.yahoo.com/indonesia-scraps-plan-buy-mirage-034353844.html)
 - Feb 11 - [First lady questions whether special counsel referenced son's death to score political points](https://news.yahoo.com/first-lady-questions-whether-special-034332421.html)
-- Feb 11 - [Northern Ireland's new first minister says Hamas will be thought of as 'future partner for peace': report](https://news.yahoo.com/northern-irelands-first-minister-says-020805310.html)
 <!-- feed end -->
 
 ### Onstream
