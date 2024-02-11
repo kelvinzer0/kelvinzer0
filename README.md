@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 11 - ['It’s scary': American families left homeless and unable to repay mega bills after Social Security benefits blunder — here’s what to do if you get a repayment notice](https://finance.yahoo.com/news/scary-american-families-left-homeless-131000225.html)
+- Feb 11 - [McCarthy foes face blowback as primary threats grow and GOP donors shut their wallets](https://news.yahoo.com/mccarthy-foes-face-blowback-primary-130033762.html)
+- Feb 11 - ['We'll call that debt a stupid tax': Florida woman says husband's 'horrible' decision to buy an EV they couldn't afford has them upside down over $20,000 on the auto loan. Dave Ramsey replies](https://finance.yahoo.com/news/well-call-debt-stupid-tax-120200930.html)
 - Feb 11 - [‘A waste of money’: This Atlanta woman wracked up $311K in debt for 3 degrees — and she’s now stuck in a ‘deep, deep hole.’ Here’s what Dave Ramsey says is holding her back](https://finance.yahoo.com/news/collecting-degrees-thermometer-atlanta-woman-110000419.html)
-- Feb 11 - [Hamas says any Israeli ground offensive in Rafah will 'blow up' hostage exchange talks - Aqsa TV](https://news.yahoo.com/hamas-says-israeli-ground-offensive-104031321.html)
 - Feb 11 - [An alleged gang rape shocks Italy, and provides fodder for an ascendant far right](https://news.yahoo.com/alleged-gang-rape-shocks-italy-102748803.html)
-- Feb 11 - [Joe Biden Wants to Make Big Changes to Social Security: 10 Things You Need to Know](https://finance.yahoo.com/news/joe-biden-wants-big-changes-084400773.html)
-- Feb 11 - ['Everybody Needs To Be Welcomed': George Lopez Reveals Why He Can't Stay 'Silent' On Trump](https://www.yahoo.com/entertainment/everybody-needs-welcomed-george-lopez-073110318.html)
 <!-- feed end -->
 
 ### Onstream
