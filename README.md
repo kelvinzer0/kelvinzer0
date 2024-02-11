@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 10 - [Trump Says He Might 'Encourage' Russia To Attack NATO Allies](https://news.yahoo.com/trump-says-might-encourage-russia-231453004.html)
+- Feb 10 - [Nikki Haley fires back at Trump for asking where her husband is](https://news.yahoo.com/nikki-haley-fires-back-trump-225409101.html)
+- Feb 10 - [Super Bowl Tragedy: Six Reportedly Dead In Helicopter Crash](https://www.yahoo.com/entertainment/super-bowl-tragedy-six-reportedly-225110759.html)
+- Feb 10 - [Carville: Biden not accepting Super Bowl interview is a ‘sign’](https://news.yahoo.com/carville-biden-not-accepting-super-224838356.html)
 - Feb 10 - [Man who attacked Las Vegas judge during sentencing now indicted by a grand jury for attempted murder](https://news.yahoo.com/man-attacked-las-vegas-judge-201740076.html)
-- Feb 10 - [Gallagher says he won't run for Congress again after refusing to impeach Homeland Security chief](https://news.yahoo.com/gallagher-says-wont-run-congress-194906101.html)
-- Feb 10 - [Israeli military kills Hamas terrorists, finds 'significant' weapons and assets inside UNRWA headquarters](https://news.yahoo.com/israeli-military-kills-hamas-terrorists-194812274.html)
-- Feb 10 - [Cyndi Lauper’s Son Bailed Out Of Jail By Famous Dad After Arrest On Gun Charges](https://www.yahoo.com/entertainment/cyndi-lauper-son-bailed-jail-194517906.html)
-- Feb 10 - [Man dies mid-flight after breaking out in 'cold sweats' and losing 'liters of blood,' scaring his fellow passengers](https://news.yahoo.com/man-dies-mid-flight-breaking-191920956.html)
 <!-- feed end -->
 
 ### Onstream
