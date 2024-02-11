@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 11 - [Trump gets access to sealed documents on witness threats in Mar-a-Lago case](https://news.yahoo.com/trump-gets-access-sealed-documents-181951896.html)
+- Feb 11 - [Biden's legal team went to Justice Dept. over what they viewed as unnecessary digs at his memory](https://news.yahoo.com/bidens-legal-team-went-justice-180158744.html)
+- Feb 11 - [How digital transformation is shaping the Middle East](https://www.yahoo.com/entertainment/digital-transformation-shaping-middle-east-110853875.html)
 - Feb 11 - [59 People Who Make Over $100K A Year Shared What They Do For A Living, And You'll Want To Take Notes](https://www.yahoo.com/lifestyle/59-people-over-100k-shared-171602965.html)
 - Feb 11 - [Former Dutch prime minister and his wife die hand-in-hand in double euthanasia](https://sports.yahoo.com/former-dutch-prime-minister-wife-162028656.html)
-- Feb 11 - [If You Don't Take A Second And Laugh At These Hilarious Signs From The Past Week, You're Seriously Missing Out](https://www.yahoo.com/lifestyle/dont-second-laugh-hilarious-signs-161602050.html)
-- Feb 11 - [2 Afghans who were detained at Guantanamo Bay for 14 years have been released, the Taliban say](https://news.yahoo.com/2-afghans-were-detained-guantanamo-160931158.html)
-- Feb 11 - [Ford is getting rid of this vehicle feature to save $10M — but you probably won't notice](https://finance.yahoo.com/news/ford-getting-rid-vehicle-feature-160002983.html)
 <!-- feed end -->
 
 ### Onstream
