@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 11 - [Former Dutch prime minister and his wife die hand-in-hand in double euthanasia](https://sports.yahoo.com/former-dutch-prime-minister-wife-162028656.html)
+- Feb 11 - [If You Don't Take A Second And Laugh At These Hilarious Signs From The Past Week, You're Seriously Missing Out](https://www.yahoo.com/lifestyle/dont-second-laugh-hilarious-signs-161602050.html)
+- Feb 11 - [2 Afghans who were detained at Guantanamo Bay for 14 years have been released, the Taliban say](https://news.yahoo.com/2-afghans-were-detained-guantanamo-160931158.html)
 - Feb 11 - [Warren Buffett says, after he dies, 90% of his wife's inheritance will go into this one investment — and it's not Berkshire Hathaway. Here's why](https://finance.yahoo.com/news/warren-buffett-says-dies-90-133400915.html)
 - Feb 11 - ['It’s scary': American families left homeless and unable to repay mega bills after Social Security benefits blunder — here’s what to do if you get a repayment notice](https://finance.yahoo.com/news/scary-american-families-left-homeless-131000225.html)
-- Feb 11 - [McCarthy foes face blowback as primary threats grow and GOP donors shut their wallets](https://news.yahoo.com/mccarthy-foes-face-blowback-primary-130033762.html)
-- Feb 11 - [Sriracha mogul David Tran is a 78-year-old immigrant turned multimillionaire—and now his empire is in peril](https://finance.yahoo.com/news/sriracha-mogul-david-tran-78-110000602.html)
-- Feb 11 - [Egypt threatens to suspend key peace treaty if Israel pushes into Rafah on its border, officials say](https://news.yahoo.com/egypt-threatens-suspend-key-peace-105414695.html)
 <!-- feed end -->
 
 ### Onstream
