@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 11 - [Biden national security voice John Kirby gets expanded role](https://news.yahoo.com/biden-national-security-voice-john-215139423.html)
-- Feb 11 - [US Defense Secretary Austin taken to hospital for 'symptoms suggesting emergent bladder issue' - Pentagon](https://news.yahoo.com/us-defense-secretary-austin-taken-214642926.html)
+- Feb 11 - [A migrant family in peril: He’s paralyzed. She just had a C-section and is caring for her husband and children. And their immigration papers just got tossed.](https://news.yahoo.com/migrant-family-peril-paralyzed-she-215700581.html)
+- Feb 11 - [Biden national security aide John Kirby gets expanded role](https://news.yahoo.com/biden-national-security-voice-john-215139423.html)
 - Feb 11 - [Father in gender-reveal that sparked fatal 2020 California wildfire has pleaded guilty](https://news.yahoo.com/father-gender-reveal-sparked-fatal-212722179.html)
-- Feb 11 - [Shooting reported at pastor Joel Osteen's Lakewood Church in Houston: Police](https://news.yahoo.com/houston-police-responding-shooting-near-204400709.html)
+- Feb 11 - [Woman firing rifle killed by 2 off-duty officers at Joel Osteen's church, 2 others hurt, police say](https://news.yahoo.com/police-report-possible-shooting-texas-212507192.html)
 - Feb 11 - [Billy Jack Haynes In Police Custody, Expected To Be Charged With Murder](https://www.yahoo.com/entertainment/billy-jack-haynes-police-custody-205614896.html)
 <!-- feed end -->
 
