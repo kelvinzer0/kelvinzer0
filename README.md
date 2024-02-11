@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 11 - [Indonesia scraps plan to buy Mirage fighter jets from Qatar](https://news.yahoo.com/indonesia-scraps-plan-buy-mirage-034353844.html)
+- Feb 11 - [First lady questions whether special counsel referenced son's death to score political points](https://news.yahoo.com/first-lady-questions-whether-special-034332421.html)
+- Feb 11 - [Trump comments on Russia and NATO 'appalling and unhinged,' White House spokesperson](https://news.yahoo.com/trump-comments-russia-nato-appalling-032130196.html)
 - Feb 11 - [Trump says he would encourage Russia to ‘do whatever the hell they want’ to any NATO country that doesn’t pay enough](https://news.yahoo.com/trump-says-encourage-russia-whatever-010508611.html)
 - Feb 10 - [Nikki Haley fires back at Trump for asking where her husband is](https://news.yahoo.com/nikki-haley-fires-back-trump-225409101.html)
-- Feb 10 - [Super Bowl Tragedy: Six Reportedly Dead In Helicopter Crash](https://www.yahoo.com/entertainment/super-bowl-tragedy-six-reportedly-225110759.html)
-- Feb 10 - [Carville: Biden not accepting Super Bowl interview is a ‘sign’](https://news.yahoo.com/carville-biden-not-accepting-super-224838356.html)
-- Feb 10 - [Man who attacked Las Vegas judge during sentencing now indicted by a grand jury for attempted murder](https://news.yahoo.com/man-attacked-las-vegas-judge-201740076.html)
 <!-- feed end -->
 
 ### Onstream
