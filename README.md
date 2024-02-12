@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Feb 12 - [Tractor driver hits stone — and opens 1,700-year-old Roman tomb in Bulgaria. See it](https://news.yahoo.com/tractor-driver-hits-stone-opens-164103890.html)
 - Feb 12 - [Russian oligarch's seized yacht costs $7 million a year to maintain, US says](https://news.yahoo.com/russian-oligarchs-seized-yacht-costs-163803718.html)
 - Feb 12 - [A woman entered a Houston megachurch with a child and began shooting. Here’s what we know](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
-- Feb 12 - [Ex-prosecutor: Court may “politely recuse” Judge Cannon after Jack Smith calls out “clear error”](https://news.yahoo.com/ex-prosecutor-court-may-politely-162627257.html)
+- Feb 12 - [Republicans say Trump call for Russia to attack Nato allies was just fine, actually](https://news.yahoo.com/republicans-trump-call-russia-attack-162723963.html)
 <!-- feed end -->
 
 ### Onstream
