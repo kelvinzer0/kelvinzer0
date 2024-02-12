@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 12 - [Maj. Michael Haley Hits Back At Donald Trump Slur With Scathing Fact About Animals](https://news.yahoo.com/maj-michael-haley-hits-back-102543822.html)
-- Feb 12 - [Thai PM urges royal convoy debate in 'safe spaces' after violence](https://news.yahoo.com/thai-pm-urges-royal-convoy-101448039.html)
 - Feb 12 - ['The hardest job in the world': Siberian shipyard workers brave freezing cold](https://news.yahoo.com/hardest-job-world-siberian-shipyard-101203637.html)
-- Feb 12 - [A Dutch court orders Netherlands to stop all exports of F-35 parts to Israel, citing the war in Gaza](https://news.yahoo.com/dutch-court-orders-netherlands-stop-095921788.html)
+- Feb 12 - [Dutch appeals court orders Netherlands to stop exports of F-35 parts to Israel, citing war in Gaza](https://news.yahoo.com/dutch-court-orders-netherlands-stop-095921788.html)
+- Feb 12 - [Slain Microsoft exec, suspects got into heated argument at Mormon church over kids' hair, records show](https://news.yahoo.com/slain-microsoft-exec-suspects-got-090006794.html)
 - Feb 12 - [Lauren Boebert's 'Complete Gaslighting' Claim Gets Thrown Right Back At Her](https://news.yahoo.com/lauren-boeberts-complete-gaslighting-claim-084150703.html)
 <!-- feed end -->
 
