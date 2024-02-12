@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 12 - [Maj. Michael Haley Hits Back At Donald Trump Slur With Scathing Fact About Animals](https://news.yahoo.com/maj-michael-haley-hits-back-102543822.html)
+- Feb 12 - [Thai PM urges royal convoy debate in 'safe spaces' after violence](https://news.yahoo.com/thai-pm-urges-royal-convoy-101448039.html)
+- Feb 12 - ['The hardest job in the world': Siberian shipyard workers brave freezing cold](https://news.yahoo.com/hardest-job-world-siberian-shipyard-101203637.html)
+- Feb 12 - [A Dutch court orders Netherlands to stop all exports of F-35 parts to Israel, citing the war in Gaza](https://news.yahoo.com/dutch-court-orders-netherlands-stop-095921788.html)
 - Feb 12 - [Lauren Boebert's 'Complete Gaslighting' Claim Gets Thrown Right Back At Her](https://news.yahoo.com/lauren-boeberts-complete-gaslighting-claim-084150703.html)
-- Feb 12 - [Chris Wallace Exposes Most Telling Part Of Tucker Carlson’s Putin Interview](https://news.yahoo.com/chris-wallace-exposes-most-telling-082317235.html)
-- Feb 12 - [Drunken power: Russian commanders execute their own](https://news.yahoo.com/drunken-power-russian-commanders-execute-070000372.html)
-- Feb 12 - [Egypt is threatening to void its decades-old peace treaty with Israel. What does that mean?](https://news.yahoo.com/egypt-threatening-void-decades-old-055228782.html)
-- Feb 12 - [Republicans blast Trump over threat to abandon NATO allies](https://news.yahoo.com/republicans-blast-trump-over-threat-050257386.html)
 <!-- feed end -->
 
 ### Onstream
