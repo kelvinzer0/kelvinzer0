@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 12 - [Republicans say Trump call for Russia to attack Nato allies was just fine, actually](https://news.yahoo.com/republicans-trump-call-russia-attack-162723963.html)
+- Feb 12 - [What is Temu? What we know about the e-commerce company with multiple Super Bowl ads](https://finance.yahoo.com/news/temu-know-e-commerce-company-202851583.html)
+- Feb 12 - [Kansas City Mom Allegedly Killed Baby Daughter By Putting Her In The Oven](https://news.yahoo.com/kansas-city-mom-allegedly-killed-201452263.html)
+- Feb 12 - [Top Democrat raises questions over key witness in the GOP impeachment inquiry of President Joe Biden](https://news.yahoo.com/top-democrat-raises-questions-over-195115797.html)
 - Feb 12 - [Senate Republican argues Ukraine funding could lead to Trump impeachment](https://news.yahoo.com/senate-republican-argues-ukraine-funding-184438756.html)
-- Feb 12 - [Police have identified the woman who opened fire in a Houston megachurch. Here’s what we know](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
-- Feb 12 - [Republican Michigan lawmaker loses staff and committee assignment after online racist post](https://news.yahoo.com/republican-michigan-lawmaker-loses-staff-175442202.html)
-- Feb 12 - ['Dumb Is Forever' — Charlie Munger Insisted Some People Are Just Hopeless: 'Teach To The People Who Can Learn, And The Others Who Couldn't Keep Up, The Hell With Them'](https://finance.yahoo.com/news/dumb-forever-charlie-munger-insisted-173158718.html)
-- Feb 12 - [Tractor driver hits stone — and opens 1,700-year-old Roman tomb in Bulgaria. See it](https://news.yahoo.com/tractor-driver-hits-stone-opens-164103890.html)
 <!-- feed end -->
 
 ### Onstream
