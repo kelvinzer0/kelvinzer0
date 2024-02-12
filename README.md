@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 12 - [Lauren Boebert's 'Complete Gaslighting' Claim Gets Thrown Right Back At Her](https://news.yahoo.com/lauren-boeberts-complete-gaslighting-claim-084150703.html)
 - Feb 12 - [Chris Wallace Exposes Most Telling Part Of Tucker Carlson’s Putin Interview](https://news.yahoo.com/chris-wallace-exposes-most-telling-082317235.html)
+- Feb 12 - [Drunken power: Russian commanders execute their own](https://news.yahoo.com/drunken-power-russian-commanders-execute-070000372.html)
 - Feb 12 - [Egypt is threatening to void its decades-old peace treaty with Israel. What does that mean?](https://news.yahoo.com/egypt-threatening-void-decades-old-055228782.html)
 - Feb 12 - [Republicans blast Trump over threat to abandon NATO allies](https://news.yahoo.com/republicans-blast-trump-over-threat-050257386.html)
-- Feb 12 - [Israeli forces rescue 2 hostages in dramatic Gaza raid that killed at least 67 Palestinians](https://news.yahoo.com/israeli-military-says-rescued-2-024802587.html)
-- Feb 11 - [Twitter reacts to Reba McEntire’s performance of National Anthem at Super Bowl LVIII](https://sports.yahoo.com/twitter-reacts-reba-mcentire-performance-234052014.html)
 <!-- feed end -->
 
 ### Onstream
