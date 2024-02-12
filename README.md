@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Former RNC Chair Comes Up With Damning New Way To Describe Trump Supporters](https://news.yahoo.com/former-rnc-chair-comes-damning-134342393.html)
-- Feb 12 - [Australian MP filmed writhing on floor and swearing after mixing prescription drugs with alcohol](https://news.yahoo.com/australian-mp-filmed-writhing-floor-133842430.html)
-- Feb 12 - [Trump faces Monday deadline to ask the Supreme Court for a delay in his election interference trial](https://news.yahoo.com/trump-faces-monday-deadline-ask-132052873.html)
+- Feb 12 - [‘What A Jackass!’: Joe Scarborough Stunned By Donald Trump’s Latest Lie](https://news.yahoo.com/jackass-joe-scarborough-stunned-donald-143525368.html)
+- Feb 12 - [Trump arrives in federal court in Florida for closed hearing in his classified documents case](https://news.yahoo.com/trump-arrives-federal-court-florida-142707155.html)
 - Feb 12 - [A woman walked into a Houston megachurch with a child and began shooting. Here’s what we know](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
+- Feb 12 - [Former RNC Chair Comes Up With Damning New Way To Describe Trump Supporters](https://news.yahoo.com/former-rnc-chair-comes-damning-134342393.html)
 - Feb 12 - [Mongolia's former president mocks Putin with a map showing how big the Mongol empire used to be, and how small Russia was](https://news.yahoo.com/mongolias-former-president-mocks-putin-124949031.html)
 <!-- feed end -->
 
