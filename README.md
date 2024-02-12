@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [A woman walked into a Houston megachurch with a child and began shooting. Here’s what we know](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
+- Feb 12 - [Russian oligarch's seized yacht costs $7 million a year to maintain, US says](https://news.yahoo.com/russian-oligarchs-seized-yacht-costs-163803718.html)
+- Feb 12 - [A woman entered a Houston megachurch with a child and began shooting. Here’s what we know](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
+- Feb 12 - [Ex-prosecutor: Court may “politely recuse” Judge Cannon after Jack Smith calls out “clear error”](https://news.yahoo.com/ex-prosecutor-court-may-politely-162627257.html)
+- Feb 12 - [Trump's NATO comments might scare lawmakers but even Republicans voted to make it nearly impossible for him to leave the alliance](https://news.yahoo.com/lawmakers-stuffed-provision-pentagon-funding-173732658.html)
 - Feb 12 - [‘What A Jackass!’: Joe Scarborough Stunned By Donald Trump’s Latest Lie](https://news.yahoo.com/jackass-joe-scarborough-stunned-donald-143525368.html)
-- Feb 12 - [Former RNC Chair Comes Up With Damning New Way To Describe Trump Supporters](https://news.yahoo.com/former-rnc-chair-comes-damning-134342393.html)
-- Feb 12 - [Russia appears to have built a bizarre, 18-mile fortification from disused freight trains to protect itself in Ukraine, analysts say](https://news.yahoo.com/russia-appears-built-bizarre-18-134234515.html)
-- Feb 12 - [Biden apparently bumps his head on Marine One as debate persists over president's mental fitness](https://news.yahoo.com/biden-apparently-bumps-head-marine-132726662.html)
 <!-- feed end -->
 
 ### Onstream
