@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Republicans say Trump call for Russia to attack Nato allies was just fine, actually](https://news.yahoo.com/republicans-trump-call-russia-attack-162723963.html)
-- Feb 12 - [What is Temu? What we know about the e-commerce company with multiple Super Bowl ads](https://finance.yahoo.com/news/temu-know-e-commerce-company-202851583.html)
-- Feb 12 - [Kansas City Mom Allegedly Killed Baby Daughter By Putting Her In The Oven](https://news.yahoo.com/kansas-city-mom-allegedly-killed-201452263.html)
-- Feb 12 - [Top Democrat raises questions over key witness in the GOP impeachment inquiry of President Joe Biden](https://news.yahoo.com/top-democrat-raises-questions-over-195115797.html)
-- Feb 12 - [Senate Republican argues Ukraine funding could lead to Trump impeachment](https://news.yahoo.com/senate-republican-argues-ukraine-funding-184438756.html)
+- Feb 12 - [Watch: Dog fends off mountain lion attack in California yard](https://news.yahoo.com/watch-dog-fends-off-mountain-215011819.html)
+- Feb 12 - [Inflation expected to fall below 3% for the first time since March 2021](https://finance.yahoo.com/news/inflation-expected-to-fall-below-3-for-the-first-time-since-march-2021-211718510.html)
+- Feb 12 - [Shooter at Houston megachurch had lengthy criminal history including weapons charges, police say](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
+- Feb 12 - [Former professional wrestler William "Billy Jack" Haynes in custody in wife's death in Oregon](https://news.yahoo.com/former-professional-wrestler-william-billy-211307029.html)
+- Feb 12 - [Florida Mom Says Her Kids Were Expelled Over ‘OnlyFans’ Decal on Car: 'I Never Expected Any of This'](https://www.yahoo.com/entertainment/florida-mom-says-her-kids-204929919.html)
 <!-- feed end -->
 
 ### Onstream
