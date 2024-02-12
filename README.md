@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Celebrities At Super Bowl 2024: Hailey Bieber, Taylor Swift & More](https://www.yahoo.com/lifestyle/celebrities-super-bowl-2024-photos-225824789.html)
+- Feb 12 - [The Israeli military says it has rescued 2 hostages from captivity in the Gaza Strip](https://news.yahoo.com/israeli-military-says-rescued-2-024802587.html)
 - Feb 11 - [Twitter reacts to Reba McEntire’s performance of National Anthem at Super Bowl LVIII](https://sports.yahoo.com/twitter-reacts-reba-mcentire-performance-234052014.html)
 - Feb 11 - [Indian state's polygamy ban divides some Muslim women](https://news.yahoo.com/indian-states-polygamy-ban-divides-233357880.html)
-- Feb 11 - [White House national security spokesman John Kirby gets expanded role in Biden administration](https://news.yahoo.com/white-house-national-security-spokesman-232004795.html)
 - Feb 11 - [Couple whose gender-reveal party sparked the massive El Dorado fire sentenced](https://news.yahoo.com/couple-whose-gender-reveal-party-231646082.html)
+- Feb 11 - [Opinion: Trump does the impossible. He sinks even lower](https://news.yahoo.com/opinion-trump-does-impossible-sinks-231042270.html)
 <!-- feed end -->
 
 ### Onstream
