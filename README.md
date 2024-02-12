@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [Robert F. Kennedy Jr. Apologizes For Controversial $7 Million Super Bowl Ad](https://www.yahoo.com/entertainment/robert-f-kennedy-jr-apologizes-124610629.html)
-- Feb 12 - [Maj. Michael Haley Hits Back At Donald Trump Slur With Scathing Fact About Animals](https://news.yahoo.com/maj-michael-haley-hits-back-102543822.html)
-- Feb 12 - ['The hardest job in the world': Siberian shipyard workers brave freezing cold](https://news.yahoo.com/hardest-job-world-siberian-shipyard-101203637.html)
-- Feb 12 - [Dutch appeals court orders Netherlands to stop exports of F-35 parts to Israel, citing war in Gaza](https://news.yahoo.com/dutch-court-orders-netherlands-stop-095921788.html)
-- Feb 12 - [Slain Microsoft exec, suspects got into heated argument at Mormon church over kids' hair, records show](https://news.yahoo.com/slain-microsoft-exec-suspects-got-090006794.html)
+- Feb 12 - [Former RNC Chair Comes Up With Damning New Way To Describe Trump Supporters](https://news.yahoo.com/former-rnc-chair-comes-damning-134342393.html)
+- Feb 12 - [Australian MP filmed writhing on floor and swearing after mixing prescription drugs with alcohol](https://news.yahoo.com/australian-mp-filmed-writhing-floor-133842430.html)
+- Feb 12 - [Trump faces Monday deadline to ask the Supreme Court for a delay in his election interference trial](https://news.yahoo.com/trump-faces-monday-deadline-ask-132052873.html)
+- Feb 12 - [A woman walked into a Houston megachurch with a child and began shooting. Here’s what we know](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
+- Feb 12 - [Mongolia's former president mocks Putin with a map showing how big the Mongol empire used to be, and how small Russia was](https://news.yahoo.com/mongolias-former-president-mocks-putin-124949031.html)
 <!-- feed end -->
 
 ### Onstream
