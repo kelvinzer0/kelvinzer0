@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 12 - [‘What A Jackass!’: Joe Scarborough Stunned By Donald Trump’s Latest Lie](https://news.yahoo.com/jackass-joe-scarborough-stunned-donald-143525368.html)
-- Feb 12 - [Trump arrives in federal court in Florida for closed hearing in his classified documents case](https://news.yahoo.com/trump-arrives-federal-court-florida-142707155.html)
 - Feb 12 - [A woman walked into a Houston megachurch with a child and began shooting. Here’s what we know](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
+- Feb 12 - [‘What A Jackass!’: Joe Scarborough Stunned By Donald Trump’s Latest Lie](https://news.yahoo.com/jackass-joe-scarborough-stunned-donald-143525368.html)
 - Feb 12 - [Former RNC Chair Comes Up With Damning New Way To Describe Trump Supporters](https://news.yahoo.com/former-rnc-chair-comes-damning-134342393.html)
-- Feb 12 - [Mongolia's former president mocks Putin with a map showing how big the Mongol empire used to be, and how small Russia was](https://news.yahoo.com/mongolias-former-president-mocks-putin-124949031.html)
+- Feb 12 - [Russia appears to have built a bizarre, 18-mile fortification from disused freight trains to protect itself in Ukraine, analysts say](https://news.yahoo.com/russia-appears-built-bizarre-18-134234515.html)
+- Feb 12 - [Biden apparently bumps his head on Marine One as debate persists over president's mental fitness](https://news.yahoo.com/biden-apparently-bumps-head-marine-132726662.html)
 <!-- feed end -->
 
 ### Onstream
