@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [Exclusive-Putin's suggestion of Ukraine ceasefire rejected by United States, sources say](https://news.yahoo.com/exclusive-putins-suggestion-ukraine-ceasefire-163636027.html)
-- Feb 13 - [Marjorie Taylor Greene rips ‘Curb Your Enthusiasm’: HBO show depicts Trump supporters as ‘racists and red necks’](https://news.yahoo.com/marjorie-taylor-greene-rips-curb-153913349.html)
-- Feb 13 - [Man asleep in truck after fight with girlfriend fatally shoots accused thief: TX cops](https://news.yahoo.com/man-asleep-truck-fight-girlfriend-144850949.html)
-- Feb 13 - [Moscow MiG fighter factory ablaze, social media report](https://news.yahoo.com/moscow-mig-fighter-factory-ablaze-144100163.html)
-- Feb 13 - ['Corporate America wants you to fail': This 'anti-career' coach explains why young Americans are dismissing the value of hard work. Is she right?](https://finance.yahoo.com/news/corporate-america-wants-fail-anti-131900556.html)
+- Feb 13 - [Pilot Who Died in Fiery Plane Crash on Fla. Highway Spent Last Moments Trying to Save Passengers and Crew](https://www.yahoo.com/entertainment/pilot-died-fiery-plane-crash-173612846.html)
+- Feb 13 - [45-year-old man arrested in Jackie Robinson statue theft that was not motivated by race, police say](https://news.yahoo.com/45-old-man-arrested-jackie-173500769.html)
+- Feb 13 - [Watch: Lioness makes sacrifice to save cub from hungry hyenas](https://sports.yahoo.com/watch-lioness-makes-sacrifice-save-170152937.html)
+- Feb 13 - [Tucker Carlson: Moscow ‘so much nicer than any city in my country’](https://news.yahoo.com/tucker-carlson-moscow-much-nicer-164433063.html)
+- Feb 13 - [Schumer rejects Speaker Johnson’s call to add border reform to Ukraine bill](https://news.yahoo.com/schumer-rejects-speaker-johnson-call-154042934.html)
 <!-- feed end -->
 
 ### Onstream
