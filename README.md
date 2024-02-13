@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Ex-Prosecutor Stunned By 'Incredibly Inappropriate' Line In Trump Immunity Filing](https://news.yahoo.com/ex-prosecutor-stunned-incredibly-inappropriate-085621750.html)
 - Feb 13 - [Russia warns the West: we will be very tough if you 'steal' our assets](https://news.yahoo.com/russia-warns-west-very-tough-081150669.html)
 - Feb 13 - [Mark Hamill Unearths Trump-Bashing Tweet From Taylor Swift That's 'Aged Remarkably Well'](https://www.yahoo.com/entertainment/mark-hamill-unearths-trump-bashing-080151295.html)
+- Feb 13 - [Russia used an advanced hypersonic missile for the first time in recent strike, Ukraine claims](https://news.yahoo.com/russia-used-advanced-hypersonic-missile-062423263.html)
 - Feb 13 - [Shooter at Houston megachurch had lengthy criminal history including weapons charges, police say](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
-- Feb 13 - [Jon Stewart Goes Absolutely Off On Trump AND Biden In Scathing 'Daily Show' Return](https://www.yahoo.com/entertainment/jon-stewart-goes-absolutely-off-054558483.html)
-- Feb 13 - [House votes — again — on impeachment of Homeland Security secretary. Here's what you should know](https://news.yahoo.com/house-votes-again-impeachment-homeland-050432081.html)
 <!-- feed end -->
 
 ### Onstream
