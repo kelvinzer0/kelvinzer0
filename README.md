@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Marjorie Taylor Greene rips ‘Curb Your Enthusiasm’: HBO show depicts Trump supporters as ‘racists and red necks’](https://news.yahoo.com/marjorie-taylor-greene-rips-curb-153913349.html)
 - Feb 13 - [Man asleep in truck after fight with girlfriend fatally shoots accused thief: TX cops](https://news.yahoo.com/man-asleep-truck-fight-girlfriend-144850949.html)
+- Feb 13 - [Moscow MiG fighter factory ablaze, social media report](https://news.yahoo.com/moscow-mig-fighter-factory-ablaze-144100163.html)
 - Feb 13 - ['Corporate America wants you to fail': This 'anti-career' coach explains why young Americans are dismissing the value of hard work. Is she right?](https://finance.yahoo.com/news/corporate-america-wants-fail-anti-131900556.html)
 - Feb 13 - ['I guarantee we get fly-tipping every week'](https://news.yahoo.com/guarantee-fly-tipping-every-week-115504036.html)
-- Feb 13 - [‘Mind-blowing fighting skills’ - impressed by combat prowess, 12 Russians surrender to Ukrainian forces. Video](https://news.yahoo.com/mind-blowing-fighting-skills-impressed-113500862.html)
-- Feb 13 - [‘An unforgivable accident’: This Atlanta woman’s home was demolished by mistake — and then the city threatened to fine her for the mess. How to protect your biggest asset from the unexpected](https://finance.yahoo.com/news/unforgivable-accident-atlanta-woman-home-110200588.html)
 <!-- feed end -->
 
 ### Onstream
