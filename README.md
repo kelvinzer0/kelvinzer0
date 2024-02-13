@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Japan, Sweden and Norway have the longest life expectancy. Here are 6 healthy habits you can learn from them.](https://www.yahoo.com/lifestyle/japan-sweden-and-norway-have-the-longest-life-expectancy-here-are-6-healthy-habits-you-can-learn-from-them-003136178.html)
+- Feb 12 - [As child fights for life in wake of Houston megachurch shooting, police ID assailant](https://news.yahoo.com/child-fights-life-wake-houston-230938337.html)
 - Feb 12 - [Is flying the U.S. flag upside down illegal? Here’s what the Supreme Court has to say](https://news.yahoo.com/flying-u-flag-upside-down-224240519.html)
 - Feb 12 - [Nebraska governor reverses course and says state will take federal funding to feed children](https://news.yahoo.com/nebraska-governor-reverses-course-says-222441209.html)
-- Feb 12 - [Shooter at Houston megachurch had lengthy criminal history including weapons charges, police say](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
 - Feb 12 - [Watch: Dog fends off mountain lion attack in California yard](https://news.yahoo.com/watch-dog-fends-off-mountain-215011819.html)
-- Feb 12 - ['Nothing Has Changed': Another Witness Tells GOP She Saw No Corruption By Joe Biden](https://news.yahoo.com/nothing-changed-another-witness-tells-214722966.html)
 <!-- feed end -->
 
 ### Onstream
