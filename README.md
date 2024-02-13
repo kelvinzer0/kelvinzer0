@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [Tennessee GOP could change law to prevent Democrat's simultaneous bids for Senate and statehouse](https://news.yahoo.com/tennessee-gop-could-change-law-205221693.html)
+- Feb 13 - [CNN host threatens to cut off interview with Texas Republican](https://news.yahoo.com/cnn-host-threatens-cut-off-214756413.html)
+- Feb 13 - [“Exceptionally weak”: Experts say Trump filing effectively asks SCOTUS to “sanction future Jan. 6’s”](https://news.yahoo.com/exceptionally-weak-experts-trump-filing-201616978.html)
 - Feb 13 - [Fact Check: Rumor Alleges Illegal Immigration into the US Grew Tenfold Between 2017 and 2023. Here Are the Facts](https://news.yahoo.com/fact-check-rumor-alleges-illegal-200400251.html)
 - Feb 13 - [Chicago to stop using controversial gunshot detection technology this year](https://news.yahoo.com/chicago-stop-using-controversial-gunshot-195652636.html)
-- Feb 13 - [John Travolta is not happy with developer's plan for his part of Ocala/Marion County](https://news.yahoo.com/john-travolta-not-happy-developers-191149304.html)
-- Feb 13 - [Angela Chao, CEO of US-based shipping company Foremost Group, dead at 50](https://news.yahoo.com/angela-chao-ceo-us-based-190234868.html)
+- Feb 13 - [Cliffside collapse in California: Mansions teeter on edge as more bad weather forecasted](https://news.yahoo.com/cliffside-collapse-california-mansions-teeter-190626563.html)
 <!-- feed end -->
 
 ### Onstream
