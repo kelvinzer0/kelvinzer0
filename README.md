@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [Speaker Johnson fires warning shot as Senate prepares to vote on Ukraine aid](https://news.yahoo.com/speaker-johnson-fires-warning-shot-013311893.html)
+- Feb 13 - [Nancy Pelosi Brutally Shades Trump Without Even Using His Name](https://news.yahoo.com/nancy-pelosi-brutally-shades-trump-035049309.html)
+- Feb 13 - [Tucker Carlson Defends Putin, Says ‘Leadership Requires Killing’ | Video](https://www.yahoo.com/entertainment/tucker-carlson-defends-putin-says-022049023.html)
+- Feb 13 - [Minnesota women convicted in connection with murder released early from prison because of new change to law](https://news.yahoo.com/minnesota-women-convicted-connection-murder-012226963.html)
 - Feb 13 - [Japan, Sweden and Norway have the longest life expectancy. Here are 6 healthy habits you can learn from them.](https://www.yahoo.com/lifestyle/japan-sweden-and-norway-have-the-longest-life-expectancy-here-are-6-healthy-habits-you-can-learn-from-them-003136178.html)
-- Feb 13 - [Russia historians say the Tucker Carlson interview solidified one thing about Putin — he's off the rails](https://news.yahoo.com/russia-historians-tucker-carlson-interview-002000770.html)
 - Feb 12 - [Stone Age megastructure found submerged in the Baltic Sea wasn’t formed by nature, scientists say](https://news.yahoo.com/underwater-may-one-oldest-known-231429026.html)
-- Feb 12 - [As child fights for life in wake of Houston megachurch shooting, police ID assailant](https://news.yahoo.com/child-fights-life-wake-houston-230938337.html)
 <!-- feed end -->
 
 ### Onstream
