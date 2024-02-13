@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Russia warns the West: we will be very tough if you 'steal' our assets](https://news.yahoo.com/russia-warns-west-very-tough-081150669.html)
+- Feb 13 - [Mark Hamill Unearths Trump-Bashing Tweet From Taylor Swift That's 'Aged Remarkably Well'](https://www.yahoo.com/entertainment/mark-hamill-unearths-trump-bashing-080151295.html)
 - Feb 13 - [Shooter at Houston megachurch had lengthy criminal history including weapons charges, police say](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
 - Feb 13 - [Jon Stewart Goes Absolutely Off On Trump AND Biden In Scathing 'Daily Show' Return](https://www.yahoo.com/entertainment/jon-stewart-goes-absolutely-off-054558483.html)
-- Feb 13 - [Tucker Carlson Defends Putin, Says ‘Leadership Requires Killing’ | Video](https://www.yahoo.com/entertainment/tucker-carlson-defends-putin-says-022049023.html)
-- Feb 13 - [Russia and West clash over Ukraine at Security Council meeting ahead of war anniversary](https://news.yahoo.com/russia-west-clash-over-ukraine-020205474.html)
-- Feb 13 - [Minnesota women convicted in connection with murder released early from prison because of new change to law](https://news.yahoo.com/minnesota-women-convicted-connection-murder-012226963.html)
+- Feb 13 - [House votes — again — on impeachment of Homeland Security secretary. Here's what you should know](https://news.yahoo.com/house-votes-again-impeachment-homeland-050432081.html)
 <!-- feed end -->
 
 ### Onstream
