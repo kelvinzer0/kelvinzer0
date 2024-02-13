@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [Nancy Pelosi Brutally Shades Trump Without Even Using His Name](https://news.yahoo.com/nancy-pelosi-brutally-shades-trump-035049309.html)
 - Feb 13 - [Tucker Carlson Defends Putin, Says ‘Leadership Requires Killing’ | Video](https://www.yahoo.com/entertainment/tucker-carlson-defends-putin-says-022049023.html)
+- Feb 13 - [Russia and West clash over Ukraine at Security Council meeting ahead of war anniversary](https://news.yahoo.com/russia-west-clash-over-ukraine-020205474.html)
 - Feb 13 - [Minnesota women convicted in connection with murder released early from prison because of new change to law](https://news.yahoo.com/minnesota-women-convicted-connection-murder-012226963.html)
 - Feb 13 - [Japan, Sweden and Norway have the longest life expectancy. Here are 6 healthy habits you can learn from them.](https://www.yahoo.com/lifestyle/japan-sweden-and-norway-have-the-longest-life-expectancy-here-are-6-healthy-habits-you-can-learn-from-them-003136178.html)
-- Feb 12 - [Stone Age megastructure found submerged in the Baltic Sea wasn’t formed by nature, scientists say](https://news.yahoo.com/underwater-may-one-oldest-known-231429026.html)
+- Feb 12 - [Arizona Republicans challenge Biden’s designation of a national monument near the Grand Canyon](https://news.yahoo.com/arizona-republicans-challenge-biden-designation-232759766.html)
 <!-- feed end -->
 
 ### Onstream
