@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [‘Mind-blowing fighting skills’ - impressed by combat prowess, 12 Russians surrender to Ukrainian forces. Video](https://news.yahoo.com/mind-blowing-fighting-skills-impressed-113500862.html)
+- Feb 13 - [‘An unforgivable accident’: This Atlanta woman’s home was demolished by mistake — and then the city threatened to fine her for the mess. How to protect your biggest asset from the unexpected](https://finance.yahoo.com/news/unforgivable-accident-atlanta-woman-home-110200588.html)
+- Feb 13 - [Hobby Lobby-funded Jesus Super Bowl ads can't hide the hate that fuels the Christian right](https://news.yahoo.com/hobby-lobby-funded-jesus-super-110006244.html)
+- Feb 13 - [‘Dropping dead like flies’ - harsh realities for Russia's conscripted soldiers unveiled in intercepted phone calls](https://news.yahoo.com/dropping-dead-flies-harsh-realities-100400148.html)
 - Feb 13 - ['We did nothing': Trump is a coward. At NRA gun show, he admitted as much.](https://news.yahoo.com/did-nothing-trump-coward-nra-093044878.html)
-- Feb 13 - [A former US Army general says Trump wants the US to abandon NATO because he's a 'mafia type' that 'hates alliances'](https://news.yahoo.com/former-us-army-general-says-091951387.html)
-- Feb 13 - [Ex-Prosecutor Stunned By 'Incredibly Inappropriate' Line In Trump Immunity Filing](https://news.yahoo.com/ex-prosecutor-stunned-incredibly-inappropriate-085621750.html)
-- Feb 13 - [Russia warns the West: we will be very tough if you 'steal' our assets](https://news.yahoo.com/russia-warns-west-very-tough-081150669.html)
-- Feb 13 - [Shooter at Houston megachurch had lengthy criminal history including weapons charges, police say](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
 <!-- feed end -->
 
 ### Onstream
