@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - ['We did nothing': Trump is a coward. At NRA gun show, he admitted as much.](https://news.yahoo.com/did-nothing-trump-coward-nra-093044878.html)
+- Feb 13 - [A former US Army general says Trump wants the US to abandon NATO because he's a 'mafia type' that 'hates alliances'](https://news.yahoo.com/former-us-army-general-says-091951387.html)
 - Feb 13 - [Ex-Prosecutor Stunned By 'Incredibly Inappropriate' Line In Trump Immunity Filing](https://news.yahoo.com/ex-prosecutor-stunned-incredibly-inappropriate-085621750.html)
 - Feb 13 - [Russia warns the West: we will be very tough if you 'steal' our assets](https://news.yahoo.com/russia-warns-west-very-tough-081150669.html)
-- Feb 13 - [Mark Hamill Unearths Trump-Bashing Tweet From Taylor Swift That's 'Aged Remarkably Well'](https://www.yahoo.com/entertainment/mark-hamill-unearths-trump-bashing-080151295.html)
-- Feb 13 - [Russia used an advanced hypersonic missile for the first time in recent strike, Ukraine claims](https://news.yahoo.com/russia-used-advanced-hypersonic-missile-062423263.html)
 - Feb 13 - [Shooter at Houston megachurch had lengthy criminal history including weapons charges, police say](https://news.yahoo.com/woman-walked-houston-megachurch-child-051524422.html)
 <!-- feed end -->
 
