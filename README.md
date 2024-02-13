@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [US consumer prices rise more than expected in January](https://finance.yahoo.com/news/us-consumer-prices-rise-more-134410289.html)
+- Feb 13 - ['I guarantee we get fly-tipping every week'](https://news.yahoo.com/guarantee-fly-tipping-every-week-115504036.html)
 - Feb 13 - [‘Mind-blowing fighting skills’ - impressed by combat prowess, 12 Russians surrender to Ukrainian forces. Video](https://news.yahoo.com/mind-blowing-fighting-skills-impressed-113500862.html)
 - Feb 13 - [‘An unforgivable accident’: This Atlanta woman’s home was demolished by mistake — and then the city threatened to fine her for the mess. How to protect your biggest asset from the unexpected](https://finance.yahoo.com/news/unforgivable-accident-atlanta-woman-home-110200588.html)
 - Feb 13 - [Hobby Lobby-funded Jesus Super Bowl ads can't hide the hate that fuels the Christian right](https://news.yahoo.com/hobby-lobby-funded-jesus-super-110006244.html)
-- Feb 13 - [‘Dropping dead like flies’ - harsh realities for Russia's conscripted soldiers unveiled in intercepted phone calls](https://news.yahoo.com/dropping-dead-flies-harsh-realities-100400148.html)
-- Feb 13 - [Russia puts leader of NATO member Estonia on wanted list over removal of Soviet-era monuments](https://news.yahoo.com/russia-puts-estonian-prime-minister-095157214.html)
 <!-- feed end -->
 
 ### Onstream
