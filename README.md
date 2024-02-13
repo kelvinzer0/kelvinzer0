@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 13 - [Trump endorses a new RNC chair. The current chair says she's not yet leaving the job](https://news.yahoo.com/trump-endorses-rnc-chair-current-015649658.html)
-- Feb 13 - [Ex-Trump White House attorney: Immunity case could be over this week](https://news.yahoo.com/ex-trump-white-house-attorney-010019408.html)
+- Feb 13 - [Speaker Johnson fires warning shot as Senate prepares to vote on Ukraine aid](https://news.yahoo.com/speaker-johnson-fires-warning-shot-013311893.html)
 - Feb 13 - [Japan, Sweden and Norway have the longest life expectancy. Here are 6 healthy habits you can learn from them.](https://www.yahoo.com/lifestyle/japan-sweden-and-norway-have-the-longest-life-expectancy-here-are-6-healthy-habits-you-can-learn-from-them-003136178.html)
 - Feb 13 - [Russia historians say the Tucker Carlson interview solidified one thing about Putin — he's off the rails](https://news.yahoo.com/russia-historians-tucker-carlson-interview-002000770.html)
+- Feb 12 - [Stone Age megastructure found submerged in the Baltic Sea wasn’t formed by nature, scientists say](https://news.yahoo.com/underwater-may-one-oldest-known-231429026.html)
 - Feb 12 - [As child fights for life in wake of Houston megachurch shooting, police ID assailant](https://news.yahoo.com/child-fights-life-wake-houston-230938337.html)
 <!-- feed end -->
 
