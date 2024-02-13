@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Tennessee GOP could change law to prevent Democrat's simultaneous bids for Senate and statehouse](https://news.yahoo.com/tennessee-gop-could-change-law-205221693.html)
+- Feb 13 - [Fact Check: Rumor Alleges Illegal Immigration into the US Grew Tenfold Between 2017 and 2023. Here Are the Facts](https://news.yahoo.com/fact-check-rumor-alleges-illegal-200400251.html)
 - Feb 13 - [Chicago to stop using controversial gunshot detection technology this year](https://news.yahoo.com/chicago-stop-using-controversial-gunshot-195652636.html)
+- Feb 13 - [John Travolta is not happy with developer's plan for his part of Ocala/Marion County](https://news.yahoo.com/john-travolta-not-happy-developers-191149304.html)
 - Feb 13 - [Angela Chao, CEO of US-based shipping company Foremost Group, dead at 50](https://news.yahoo.com/angela-chao-ceo-us-based-190234868.html)
-- Feb 13 - [Man stumbles onto ‘torpedo’ with ‘unsettling’ blinking light, New York photos show](https://news.yahoo.com/man-stumbles-onto-torpedo-unsettling-180331989.html)
-- Feb 13 - [Kidnapped New Zealand pilot looks gaunt in proof-of-life video released by Papua captors](https://news.yahoo.com/kidnapped-zealand-pilot-looks-gaunt-175714835.html)
-- Feb 13 - [Pilot Who Died in Fiery Plane Crash on Fla. Highway Spent Last Moments Trying to Save Passengers and Crew](https://www.yahoo.com/entertainment/pilot-died-fiery-plane-crash-173612846.html)
 <!-- feed end -->
 
 ### Onstream
