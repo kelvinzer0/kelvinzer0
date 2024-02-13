@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Jon Stewart Goes Absolutely Off On Trump AND Biden In Scathing 'Daily Show' Return](https://www.yahoo.com/entertainment/jon-stewart-goes-absolutely-off-054558483.html)
+- Feb 13 - [House votes — again — on impeachment of Homeland Security secretary. Here's what you should know](https://news.yahoo.com/house-votes-again-impeachment-homeland-050432081.html)
 - Feb 13 - [Tucker Carlson Defends Putin, Says ‘Leadership Requires Killing’ | Video](https://www.yahoo.com/entertainment/tucker-carlson-defends-putin-says-022049023.html)
 - Feb 13 - [Russia and West clash over Ukraine at Security Council meeting ahead of war anniversary](https://news.yahoo.com/russia-west-clash-over-ukraine-020205474.html)
 - Feb 13 - [Minnesota women convicted in connection with murder released early from prison because of new change to law](https://news.yahoo.com/minnesota-women-convicted-connection-murder-012226963.html)
-- Feb 13 - [Japan, Sweden and Norway have the longest life expectancy. Here are 6 healthy habits you can learn from them.](https://www.yahoo.com/lifestyle/japan-sweden-and-norway-have-the-longest-life-expectancy-here-are-6-healthy-habits-you-can-learn-from-them-003136178.html)
-- Feb 12 - [Arizona Republicans challenge Biden’s designation of a national monument near the Grand Canyon](https://news.yahoo.com/arizona-republicans-challenge-biden-designation-232759766.html)
 <!-- feed end -->
 
 ### Onstream
