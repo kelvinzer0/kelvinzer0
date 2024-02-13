@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Man stumbles onto ‘torpedo’ with ‘unsettling’ blinking light, New York photos show](https://news.yahoo.com/man-stumbles-onto-torpedo-unsettling-180331989.html)
 - Feb 13 - [Pilot Who Died in Fiery Plane Crash on Fla. Highway Spent Last Moments Trying to Save Passengers and Crew](https://www.yahoo.com/entertainment/pilot-died-fiery-plane-crash-173612846.html)
 - Feb 13 - [45-year-old man arrested in Jackie Robinson statue theft that was not motivated by race, police say](https://news.yahoo.com/45-old-man-arrested-jackie-173500769.html)
 - Feb 13 - [Watch: Lioness makes sacrifice to save cub from hungry hyenas](https://sports.yahoo.com/watch-lioness-makes-sacrifice-save-170152937.html)
 - Feb 13 - [Tucker Carlson: Moscow ‘so much nicer than any city in my country’](https://news.yahoo.com/tucker-carlson-moscow-much-nicer-164433063.html)
-- Feb 13 - [Schumer rejects Speaker Johnson’s call to add border reform to Ukraine bill](https://news.yahoo.com/schumer-rejects-speaker-johnson-call-154042934.html)
 <!-- feed end -->
 
 ### Onstream
