@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 13 - [Chicago to stop using controversial gunshot detection technology this year](https://news.yahoo.com/chicago-stop-using-controversial-gunshot-195652636.html)
+- Feb 13 - [Angela Chao, CEO of US-based shipping company Foremost Group, dead at 50](https://news.yahoo.com/angela-chao-ceo-us-based-190234868.html)
 - Feb 13 - [Man stumbles onto ‘torpedo’ with ‘unsettling’ blinking light, New York photos show](https://news.yahoo.com/man-stumbles-onto-torpedo-unsettling-180331989.html)
+- Feb 13 - [Kidnapped New Zealand pilot looks gaunt in proof-of-life video released by Papua captors](https://news.yahoo.com/kidnapped-zealand-pilot-looks-gaunt-175714835.html)
 - Feb 13 - [Pilot Who Died in Fiery Plane Crash on Fla. Highway Spent Last Moments Trying to Save Passengers and Crew](https://www.yahoo.com/entertainment/pilot-died-fiery-plane-crash-173612846.html)
-- Feb 13 - [45-year-old man arrested in Jackie Robinson statue theft that was not motivated by race, police say](https://news.yahoo.com/45-old-man-arrested-jackie-173500769.html)
-- Feb 13 - [Watch: Lioness makes sacrifice to save cub from hungry hyenas](https://sports.yahoo.com/watch-lioness-makes-sacrifice-save-170152937.html)
-- Feb 13 - [Tucker Carlson: Moscow ‘so much nicer than any city in my country’](https://news.yahoo.com/tucker-carlson-moscow-much-nicer-164433063.html)
 <!-- feed end -->
 
 ### Onstream
