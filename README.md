@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 14 - ['The last thing we need': Barack Obama jumps into the fray after Donald Trump attacks NATO](https://news.yahoo.com/last-thing-barack-obama-jumps-204036597.html)
+- Feb 14 - [McCarthy says Mace needs help ‘to straighten out her life’](https://news.yahoo.com/mccarthy-says-mace-needs-help-202142826.html)
+- Feb 14 - [Kansas City police: Shots fired at Chiefs parade, 10 victims rushed to hospital with injuries](https://sports.yahoo.com/kansas-city-police-shots-fired-at-chiefs-parade-10-victims-rushed-to-hospital-with-injuries-201238860.html)
 - Feb 14 - [Steve Wright was found dead at London home by paramedics after ‘incident’](https://news.yahoo.com/steve-wright-found-dead-london-163725936.html)
 - Feb 14 - [Why Americans pine for the Trump economy](https://finance.yahoo.com/news/why-americans-pine-for-the-trump-economy-193757815.html)
-- Feb 14 - [Mike Johnson Urges Calm After Republicans Disclose Mysterious 'National Security Threat'](https://news.yahoo.com/mike-johnson-urges-calm-republicans-192533613.html)
-- Feb 14 - [‘Fentanyl killer’ poisoned married couple with opioid and rewrote their will, court hears](https://news.yahoo.com/fentanyl-killer-poisoned-married-couple-191146727.html)
-- Feb 14 - [IRS is sending out collection letters for the first time in 2 years. Here's what to know.](https://finance.yahoo.com/news/irs-sending-collection-letters-first-175238522.html)
 <!-- feed end -->
 
 ### Onstream
