@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [House GOP Impeaches DHS Secretary Alejandro Mayorkas — Just To Help Trump](https://news.yahoo.com/house-gop-impeaches-dhs-secretary-002226283.html)
 - Feb 14 - [Family of man who died after being tackled by mental crisis team sues paramedic, police officer](https://news.yahoo.com/family-man-died-being-tackled-000140978.html)
-- Feb 13 - [VIDEO: ‘I’ll kill you. Put the gun down,’ Arlington cop says before shooting armed driver](https://news.yahoo.com/video-ll-kill-put-gun-225407092.html)
 - Feb 13 - [Passenger Kicked Off WestJet Flight for Excessive Bathroom Use After Trip to Mexico](https://www.yahoo.com/entertainment/passenger-kicked-off-westjet-flight-222344014.html)
 - Feb 13 - [CNN host threatens to cut off interview with Texas Republican](https://news.yahoo.com/cnn-host-threatens-cut-off-214756413.html)
+- Feb 13 - [“Exceptionally weak”: Experts say Trump filing effectively asks SCOTUS to “sanction future Jan. 6’s”](https://news.yahoo.com/exceptionally-weak-experts-trump-filing-201616978.html)
+- Feb 13 - [Chicago to stop using controversial gunshot detection technology this year](https://news.yahoo.com/chicago-stop-using-controversial-gunshot-195652636.html)
 <!-- feed end -->
 
 ### Onstream
