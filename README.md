@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 14 - [US congressional intelligence chair warns of 'serious national security threat'](https://news.yahoo.com/us-congressional-intelligence-chair-warns-175016432.html)
+- Feb 14 - [A former South Dakota attorney general urges the state Supreme Court to let him keep his law license](https://news.yahoo.com/former-south-dakota-attorney-general-172321481.html)
+- Feb 14 - ["Personal slush fund": Lara Trump vows "every single penny" at RNC will go to help Trump](https://news.yahoo.com/personal-slush-fund-lara-trump-170647407.html)
 - Feb 14 - [Steve Wright was found dead at London home by paramedics after ‘incident’](https://news.yahoo.com/steve-wright-found-dead-london-163725936.html)
-- Feb 14 - [Cars selling highest above MSRP and lowest below MSRP](https://www.autoblog.com/2024/02/14/new-cars-selling-above-below-msrp/)
 - Feb 14 - [Republican Michigan elector testifies he never intended to make false public record](https://news.yahoo.com/republican-michigan-elector-testifies-never-160239537.html)
-- Feb 14 - [Alligators in pond prompt 911 calls, Arizona city says. They’re aren’t what they seem](https://news.yahoo.com/alligators-pond-prompt-911-calls-154202373.html)
-- Feb 14 - [‘I slept with my half-sibling’: Woman’s horror story reflects loosely regulated nature of US fertility industry](https://news.yahoo.com/slept-half-sibling-woman-horror-150054723.html)
 <!-- feed end -->
 
 ### Onstream
