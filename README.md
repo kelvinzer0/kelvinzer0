@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 14 - [New documents underscore why the Supreme Court must let Jack Smith's Trump case move forward](https://news.yahoo.com/documents-underscore-why-supreme-court-110006297.html)
 - Feb 14 - [Video shows fight breaking out on Southwest flight headed to Hawaii](https://news.yahoo.com/video-shows-fight-breaking-southwest-081249806.html)
 - Feb 14 - [Jordan Klepper Gets Trump Supporters Tangled Up In Their Own Twisted Logic](https://www.yahoo.com/entertainment/jordan-klepper-gets-trump-supporters-062203333.html)
-- Feb 14 - [Russian landing ship Caesar Kunikov hit in Black Sea, it has sunk – intelligence sources, photo, video](https://news.yahoo.com/russian-landing-ship-caesar-kunikov-061257653.html)
+- Feb 14 - [Russian landing ship Tsezar Kunikov hit in Black Sea, it has sunk – intelligence sources, photo, video](https://news.yahoo.com/russian-landing-ship-caesar-kunikov-061257653.html)
 - Feb 14 - [Xi Jinping will make the West pay for China’s economic collapse](https://news.yahoo.com/xi-jinping-west-pay-china-060000779.html)
-- Feb 14 - [Detecting Russian 'carrots' and 'tea bags': Ukraine decodes enemy chatter to save lives](https://news.yahoo.com/detecting-russian-carrots-tea-bags-050319918.html)
 <!-- feed end -->
 
 ### Onstream
