@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 14 - [‘Embarrassing’: This Brooklyn college grad has 2 degrees, speaks 3 languages — but can't even land a minimum wage retail job going store to store. Is the US labor market really that strong?](https://finance.yahoo.com/news/embarrassing-brooklyn-college-grad-2-123500026.html)
-- Feb 14 - ['The new American dream is to leave': Most in the US don't believe hard work will get you ahead and would take a pay cut for a better quality of life. Here's why the old dream is crumbling](https://finance.yahoo.com/news/american-dream-leave-most-us-123000387.html)
 - Feb 14 - [New documents underscore why the Supreme Court must let Jack Smith's Trump case move forward](https://news.yahoo.com/documents-underscore-why-supreme-court-110006297.html)
 - Feb 14 - [Video shows fight breaking out on Southwest flight headed to Hawaii](https://news.yahoo.com/video-shows-fight-breaking-southwest-081249806.html)
 - Feb 14 - [Jordan Klepper Gets Trump Supporters Tangled Up In Their Own Twisted Logic](https://www.yahoo.com/entertainment/jordan-klepper-gets-trump-supporters-062203333.html)
+- Feb 14 - [Russian landing ship Tsezar Kunikov hit in Black Sea, it has sunk – intelligence sources, photo, video](https://news.yahoo.com/russian-landing-ship-caesar-kunikov-061257653.html)
 <!-- feed end -->
 
 ### Onstream
