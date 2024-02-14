@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 14 - [Bizarre Footage Shows Cop Open Fire After Mistaking Acorn for Gunshot](https://news.yahoo.com/bizarre-footage-shows-cop-open-180229947.html)
-- Feb 14 - [IRS is sending out collection letters for the first time in 2 years. Here's what to know.](https://finance.yahoo.com/news/irs-sending-collection-letters-first-175238522.html)
-- Feb 14 - [US congressional intelligence chair warns of 'serious national security threat'](https://news.yahoo.com/us-congressional-intelligence-chair-warns-175016432.html)
-- Feb 14 - ["Personal slush fund": Lara Trump vows "every single penny" at RNC will go to help Trump](https://news.yahoo.com/personal-slush-fund-lara-trump-170647407.html)
 - Feb 14 - [Steve Wright was found dead at London home by paramedics after ‘incident’](https://news.yahoo.com/steve-wright-found-dead-london-163725936.html)
+- Feb 14 - [Why Americans pine for the Trump economy](https://finance.yahoo.com/news/why-americans-pine-for-the-trump-economy-193757815.html)
+- Feb 14 - [Mike Johnson Urges Calm After Republicans Disclose Mysterious 'National Security Threat'](https://news.yahoo.com/mike-johnson-urges-calm-republicans-192533613.html)
+- Feb 14 - [‘Fentanyl killer’ poisoned married couple with opioid and rewrote their will, court hears](https://news.yahoo.com/fentanyl-killer-poisoned-married-couple-191146727.html)
+- Feb 14 - [IRS is sending out collection letters for the first time in 2 years. Here's what to know.](https://finance.yahoo.com/news/irs-sending-collection-letters-first-175238522.html)
 <!-- feed end -->
 
 ### Onstream
