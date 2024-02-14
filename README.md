@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 14 - [Republican Michigan elector testifies he never intended to make false public record](https://news.yahoo.com/republican-michigan-elector-testifies-never-160239537.html)
+- Feb 14 - [Alligators in pond prompt 911 calls, Arizona city says. They’re aren’t what they seem](https://news.yahoo.com/alligators-pond-prompt-911-calls-154202373.html)
+- Feb 14 - [‘I slept with my half-sibling’: Woman’s horror story reflects loosely regulated nature of US fertility industry](https://news.yahoo.com/slept-half-sibling-woman-horror-150054723.html)
+- Feb 14 - [Brian Laundrie’s parents detail ‘the day everything hit the fan’ after their son told them Gabby Petito was ‘gone’](https://news.yahoo.com/brian-laundrie-parents-detail-day-144905740.html)
 - Feb 14 - ['How is this legal?': A 72-year-old woman's life insurance policy is being terminated — despite her premiums being paid on time every month since 1987, TikToker says. How did this happen?](https://finance.yahoo.com/news/legal-72-old-womans-life-143000791.html)
-- Feb 14 - [10 bodies pulled from Texas lake in 20 months, cops say. Now a family wants answers](https://news.yahoo.com/10-bodies-pulled-texas-lake-142930643.html)
-- Feb 14 - [Pair sentenced after sex 'prisoner' fled to police](https://news.yahoo.com/pair-sentenced-sex-prisoner-fled-135554360.html)
-- Feb 14 - [‘Embarrassing’: This Brooklyn college grad has 2 degrees, speaks 3 languages — but can't even land a minimum wage retail job going store to store. Is the US labor market really that strong?](https://finance.yahoo.com/news/embarrassing-brooklyn-college-grad-2-123500026.html)
-- Feb 14 - ['The new American dream is to leave': Most in the US don't believe hard work will get you ahead and would take a pay cut for a better quality of life. Here's why the old dream is crumbling](https://finance.yahoo.com/news/american-dream-leave-most-us-123000387.html)
 <!-- feed end -->
 
 ### Onstream
