@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 14 - [Detecting Russian 'carrots' and 'tea bags': Ukraine decodes enemy chatter to save lives](https://news.yahoo.com/detecting-russian-carrots-tea-bags-050319918.html)
 - Feb 14 - [Jared Kushner Gets Petulant Over Question About $2b Saudi Arabia Payment: ‘Are We Really Still Doing This?’ | Video](https://www.yahoo.com/entertainment/jared-kushner-gets-petulant-over-040726469.html)
-- Feb 14 - [If You Want to Lower Your Heart Attack Risk, There's One Habit You Should Ditch ASAP](https://www.yahoo.com/lifestyle/want-lower-heart-attack-risk-002500752.html)
+- Feb 14 - [Toddler abducted in Long Beach found safe](https://news.yahoo.com/amber-alert-activated-toddler-abducted-032608578.html)
 - Feb 13 - [Passenger Kicked Off WestJet Flight for Excessive Bathroom Use After Trip to Mexico](https://www.yahoo.com/entertainment/passenger-kicked-off-westjet-flight-222344014.html)
-- Feb 13 - [New York special election replay: Democrat Tom Suozzi defeats Republican Mazi Pilip](https://news.yahoo.com/ny-special-election-live-updates-220225700.html)
 - Feb 13 - [CNN host threatens to cut off interview with Texas Republican](https://news.yahoo.com/cnn-host-threatens-cut-off-214756413.html)
 <!-- feed end -->
 
