@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 13 - [Passenger Kicked Off WestJet Flight for Excessive Bathroom Use After Trip to Mexico](https://www.yahoo.com/entertainment/passenger-kicked-off-westjet-flight-222344014.html)
-- Feb 13 - [NY special election live results: Democrat Tom Suozzi defeats Republican Mazi Pilip](https://news.yahoo.com/ny-special-election-live-updates-220225700.html)
+- Feb 13 - [New York special election replay: Democrat Tom Suozzi defeats Republican Mazi Pilip](https://news.yahoo.com/ny-special-election-live-updates-220225700.html)
 - Feb 13 - [CNN host threatens to cut off interview with Texas Republican](https://news.yahoo.com/cnn-host-threatens-cut-off-214756413.html)
 - Feb 13 - [Chicago to stop using controversial gunshot detection technology this year](https://news.yahoo.com/chicago-stop-using-controversial-gunshot-195652636.html)
 - Feb 13 - [Exclusive-Trump adviser proposes new tiered system for NATO members who don't pay up](https://news.yahoo.com/exclusive-trump-adviser-proposes-tiered-191207295.html)
