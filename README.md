@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 14 - [Bizarre Footage Shows Cop Open Fire After Mistaking Acorn for Gunshot](https://news.yahoo.com/bizarre-footage-shows-cop-open-180229947.html)
+- Feb 14 - [IRS is sending out collection letters for the first time in 2 years. Here's what to know.](https://finance.yahoo.com/news/irs-sending-collection-letters-first-175238522.html)
 - Feb 14 - [US congressional intelligence chair warns of 'serious national security threat'](https://news.yahoo.com/us-congressional-intelligence-chair-warns-175016432.html)
-- Feb 14 - [A former South Dakota attorney general urges the state Supreme Court to let him keep his law license](https://news.yahoo.com/former-south-dakota-attorney-general-172321481.html)
 - Feb 14 - ["Personal slush fund": Lara Trump vows "every single penny" at RNC will go to help Trump](https://news.yahoo.com/personal-slush-fund-lara-trump-170647407.html)
 - Feb 14 - [Steve Wright was found dead at London home by paramedics after ‘incident’](https://news.yahoo.com/steve-wright-found-dead-london-163725936.html)
-- Feb 14 - [Republican Michigan elector testifies he never intended to make false public record](https://news.yahoo.com/republican-michigan-elector-testifies-never-160239537.html)
 <!-- feed end -->
 
 ### Onstream
