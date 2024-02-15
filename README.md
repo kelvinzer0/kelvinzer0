@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [Russia and China clash with US and UK over attacks on Yemen rebels for strikes on Red Sea ships](https://news.yahoo.com/russia-china-clash-us-uk-012621159.html)
+- Feb 15 - [Back-to-back deaths of 7 Indian students leaves community shaken and worried](https://news.yahoo.com/back-back-deaths-7-indian-002418476.html)
 - Feb 15 - [Woman Formerly Known as Rachel Dolezal Loses School Job Over OnlyFans Account](https://www.yahoo.com/entertainment/woman-formerly-known-rachel-dolezal-001419349.html)
 - Feb 15 - [House Homeland chairman announces retirement a day after leading Mayorkas' impeachment](https://news.yahoo.com/house-homeland-chairman-announces-retirement-000317583.html)
 - Feb 14 - [Mary Trump blasts Jon Stewart as ‘danger to democracy’ following his ‘Daily Show’ return](https://www.yahoo.com/entertainment/mary-trump-blasts-jon-stewart-234900802.html)
-- Feb 14 - [Putin says Russia prefers Biden to Trump because he's 'more experienced and predictable'](https://news.yahoo.com/putin-says-russia-prefers-biden-230708908.html)
-- Feb 14 - [What is hurkle-durkle? How a TikTok trend is teaching people to embrace rest.](https://www.yahoo.com/lifestyle/what-is-hurkle-durkle-how-a-tiktok-trend-is-teaching-people-to-embrace-rest-223813335.html)
 <!-- feed end -->
 
 ### Onstream
