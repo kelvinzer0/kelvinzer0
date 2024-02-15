@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [Putin Says He Was Not Impressed by Tucker Carlson](https://news.yahoo.com/putin-says-not-impressed-tucker-021828894.html)
+- Feb 15 - [Chiefs Fan Describes Harrowing Moment He Tackled Suspect After Parade Shooting](https://news.yahoo.com/chiefs-fan-describes-harrowing-moment-021722087.html)
+- Feb 15 - [Why a rare ‘golden’ tiger photographed in India is worrying conservationists](https://news.yahoo.com/why-rare-golden-tiger-photographed-012915887.html)
 - Feb 15 - [Russia and China clash with US and UK over attacks on Yemen rebels for strikes on Red Sea ships](https://news.yahoo.com/russia-china-clash-us-uk-012621159.html)
-- Feb 15 - [Back-to-back deaths of 7 Indian students leaves community shaken and worried](https://news.yahoo.com/back-back-deaths-7-indian-002418476.html)
-- Feb 15 - [Woman Formerly Known as Rachel Dolezal Loses School Job Over OnlyFans Account](https://www.yahoo.com/entertainment/woman-formerly-known-rachel-dolezal-001419349.html)
-- Feb 15 - [House Homeland chairman announces retirement a day after leading Mayorkas' impeachment](https://news.yahoo.com/house-homeland-chairman-announces-retirement-000317583.html)
-- Feb 14 - [Mary Trump blasts Jon Stewart as ‘danger to democracy’ following his ‘Daily Show’ return](https://www.yahoo.com/entertainment/mary-trump-blasts-jon-stewart-234900802.html)
+- Feb 15 - [Japan slips to the world's fourth-largest economy, behind the US, China and now Germany](https://news.yahoo.com/japan-slips-worlds-fourth-largest-011039467.html)
 <!-- feed end -->
 
 ### Onstream
