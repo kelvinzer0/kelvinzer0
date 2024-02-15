@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - ["Trump is out of money": Republicans fear Trump will drain RNC funds to pay his own legal bills](https://news.yahoo.com/trump-money-republicans-fear-trump-162833361.html)
+- Feb 15 - [Trump lawyer Alina Habba on New York fraud verdict: ‘I don’t have high hopes’](https://news.yahoo.com/trump-lawyer-alina-habba-york-170729621.html)
+- Feb 15 - [Survivor says Chiefs parade shooter was "shooting and spinning in a circle"](https://news.yahoo.com/survivor-says-chiefs-parade-shooter-164506387.html)
+- Feb 15 - [Witness contradicts Trump prosecutors’ claims about romantic relationship](https://news.yahoo.com/witness-contradicts-trump-prosecutors-claims-162358060.html)
 - Feb 15 - [Tucker Carlson Says Trip to Russian Grocery Store Has ‘Radicalized’ Him Against US Leaders: ‘Legitimately Angry’](https://www.yahoo.com/entertainment/tucker-carlson-says-trip-russian-161319528.html)
 - Feb 15 - [Headlights are blinding us. Here’s why it’s mostly an American problem](https://finance.yahoo.com/news/headlights-blinding-us-why-mostly-140024879.html)
-- Feb 15 - [Sea drones are being used to smash Russia's navy, and now they're being used to attack a US aircraft carrier too](https://news.yahoo.com/sea-drones-being-used-smash-154412241.html)
-- Feb 15 - [“Stop interrupting me”: Judge tells Trump lawyer to “have a seat” in fiery courtroom exchange](https://news.yahoo.com/stop-interrupting-judge-tells-trump-154236640.html)
 <!-- feed end -->
 
 ### Onstream
