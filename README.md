@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [“Turned on their heads”: Legal experts say Jack Smith just used Trump’s “best argument against him”](https://news.yahoo.com/turned-heads-legal-experts-jack-134433884.html)
+- Feb 15 - ['You don't get a pass on math': Homebuyers call out Dave Ramsey's 'unrealistic' mortgage advice. Are they right?](https://finance.yahoo.com/news/dont-pass-math-homebuyers-call-130700730.html)
 - Feb 15 - [Mass shooting at Kansas City Chiefs' Super Bowl celebration claims life of local radio DJ](https://news.yahoo.com/kansas-city-radio-station-confirms-024524321.html)
 - Feb 15 - [Marine vet credits Raptor for saving his life in crash — and Ford was listening](https://finance.yahoo.com/news/marine-vet-credits-raptor-saving-121131729.html)
-- Feb 15 - [‘Super stupid and crazy’: This nurse from Nashville borrowed $48K for her fiance’s truck — after borrowing $25K to fund her custody battle with her ‘crazy ex.’ Dave Ramsey responds](https://finance.yahoo.com/news/super-stupid-crazy-nurse-nashville-110100656.html)
-- Feb 15 - [Iran declares Antarctica its property in direct challenge to Biden, global treaty](https://news.yahoo.com/iran-declares-antarctica-property-direct-090038539.html)
-- Feb 15 - [Nurse helping Americans in alleged Bahamas attack was ‘scared’ by what she saw: ‘Could’ve been my daughters’](https://news.yahoo.com/nurse-helping-americans-alleged-bahamas-090001122.html)
+- Feb 15 - [North Korea leader's sister says Japan PM's comments positive - KCNA](https://news.yahoo.com/north-korea-leaders-sister-says-120139544.html)
 <!-- feed end -->
 
 ### Onstream
