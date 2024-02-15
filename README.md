@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [Mass shooting at Kansas City Chiefs' Super Bowl celebration claims life of local radio DJ](https://news.yahoo.com/kansas-city-radio-station-confirms-024524321.html)
+- Feb 15 - [‘Super stupid and crazy’: This nurse from Nashville borrowed $48K for her fiance’s truck — after borrowing $25K to fund her custody battle with her ‘crazy ex.’ Dave Ramsey responds](https://finance.yahoo.com/news/super-stupid-crazy-nurse-nashville-110100656.html)
+- Feb 15 - [Iran declares Antarctica its property in direct challenge to Biden, global treaty](https://news.yahoo.com/iran-declares-antarctica-property-direct-090038539.html)
+- Feb 15 - [Nurse helping Americans in alleged Bahamas attack was ‘scared’ by what she saw: ‘Could’ve been my daughters’](https://news.yahoo.com/nurse-helping-americans-alleged-bahamas-090001122.html)
 - Feb 15 - [Trump's Puzzling New Excuse For Pelosi-Haley Blunder Includes A Whole New Gaffe](https://news.yahoo.com/trumps-puzzling-excuse-pelosi-haley-060758069.html)
-- Feb 15 - [Warning signs mounted before Texas shooter entered church with her son, former mother-in-law says](https://news.yahoo.com/warning-signs-mounted-texas-shooter-054155478.html)
-- Feb 15 - [Jordan Klepper Exposes Trump's Hilariously Desperate 'Freudian Slip'](https://www.yahoo.com/entertainment/jordan-klepper-exposes-trumps-hilariously-053023881.html)
-- Feb 15 - [Vladimir Putin Delivers Damning Assessment Of Tucker Carlson Days After Interview](https://news.yahoo.com/vladimir-putin-delivers-damning-assessment-033237257.html)
-- Feb 15 - [Donald Trump responds to Vladimir Putin's comments about Joe Biden days after attacking NATO](https://news.yahoo.com/donald-trump-responds-vladimir-putins-031530341.html)
 <!-- feed end -->
 
 ### Onstream
