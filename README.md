@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 15 - [Trump's Puzzling New Excuse For Pelosi-Haley Blunder Includes A Whole New Gaffe](https://news.yahoo.com/trumps-puzzling-excuse-pelosi-haley-060758069.html)
-- Feb 15 - [Warning signs mounted before Texas shooter entered church with her son, former mother-in-law says](https://news.yahoo.com/warning-signs-mounted-texas-shooter-054155478.html)
+- Feb 15 - [Jordan Klepper Exposes Trump's Hilariously Desperate 'Freudian Slip'](https://www.yahoo.com/entertainment/jordan-klepper-exposes-trumps-hilariously-053023881.html)
 - Feb 15 - [Vladimir Putin Delivers Damning Assessment Of Tucker Carlson Days After Interview](https://news.yahoo.com/vladimir-putin-delivers-damning-assessment-033237257.html)
 - Feb 15 - [Donald Trump responds to Vladimir Putin's comments about Joe Biden days after attacking NATO](https://news.yahoo.com/donald-trump-responds-vladimir-putins-031530341.html)
 - Feb 15 - [Kansas City radio station confirms death of DJ Lisa Lopez-Galvan at Chiefs' Super Bowl parade](https://news.yahoo.com/kansas-city-radio-station-confirms-024524321.html)
