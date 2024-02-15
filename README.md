@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - [Trump lawyer Alina Habba on New York fraud verdict: ‘I don’t have high hopes’](https://news.yahoo.com/trump-lawyer-alina-habba-york-170729621.html)
-- Feb 15 - [A Florida man was imprisoned 37 years for a murder he didn't commit. He's now expected to get $14M](https://news.yahoo.com/florida-man-imprisoned-37-years-165153381.html)
-- Feb 15 - [Survivor says Chiefs parade shooter was "shooting and spinning in a circle"](https://news.yahoo.com/survivor-says-chiefs-parade-shooter-164506387.html)
-- Feb 15 - [Travis Kelce Faces Backlash for Continuing to Party After Tragic Super Bowl Parade Shooting](https://www.yahoo.com/lifestyle/travis-kelce-faces-backlash-continuing-163237839.html)
-- Feb 15 - ["Trump is out of money": Republicans fear Trump will drain RNC funds to pay his own legal bills](https://news.yahoo.com/trump-money-republicans-fear-trump-162833361.html)
+- Feb 15 - [Patrol vehicle of Tennessee deputy who disappeared after making arrest recovered from river](https://news.yahoo.com/patrol-vehicle-tennessee-deputy-disappeared-193717731.html)
+- Feb 15 - [As earnings loom, Nvidia options traders brace for monster share move](https://finance.yahoo.com/news/earnings-loom-nvidia-options-traders-193447876.html)
+- Feb 15 - [Russia has obtained a 'troubling' emerging anti-satellite weapon, the White House says](https://news.yahoo.com/russia-obtained-troubling-emerging-anti-193019529.html)
+- Feb 15 - [Jackson Mahomes Deemed A Hero After Protecting Child At Parade Mass Shooting](https://www.yahoo.com/entertainment/jackson-mahomes-deemed-hero-protecting-191518102.html)
+- Feb 15 - [Super Bowl parade victim was Kansas City radio DJ, her son was also shot](https://news.yahoo.com/super-bowl-parade-victim-kansas-190701499.html)
 <!-- feed end -->
 
 ### Onstream
