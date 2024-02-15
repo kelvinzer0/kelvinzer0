@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [FBI informant charged with lying about Joe and Hunter Biden's ties to Ukrainian energy company](https://news.yahoo.com/fbi-informant-charged-lying-joe-221425606.html)
+- Feb 15 - [A loophole got him a free New York hotel stay for five years. Then he claimed to own the building](https://news.yahoo.com/loophole-got-him-free-york-215002080.html)
+- Feb 15 - [Witness Describes The Altercation That Led To Kansas City Mass Shooting](https://www.yahoo.com/entertainment/witness-describes-altercation-led-kansas-211832835.html)
 - Feb 15 - [Fani Willis Goes Scorched Earth From Witness Stand](https://news.yahoo.com/fani-willis-goes-scorched-earth-211114799.html)
 - Feb 15 - [Sweet shelter cat was target of snickering. He found owner to ‘see past his exterior’](https://news.yahoo.com/sweet-shelter-cat-target-snickering-201932899.html)
-- Feb 15 - [Son calls 911 saying his mom won’t wake up, officials say. He’s accused of killing her](https://news.yahoo.com/son-calls-911-saying-mom-201409054.html)
-- Feb 15 - [Patrol vehicle of Tennessee deputy who disappeared after making arrest recovered from river](https://news.yahoo.com/patrol-vehicle-tennessee-deputy-disappeared-193717731.html)
-- Feb 15 - [As earnings loom, Nvidia options traders brace for monster share move](https://finance.yahoo.com/news/earnings-loom-nvidia-options-traders-193447876.html)
 <!-- feed end -->
 
 ### Onstream
