@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [Fact Check: Donald and Ivanka Trump Were Once Photographed Like This on a Bed?](https://news.yahoo.com/fact-check-donald-ivanka-trump-140000481.html)
 - Feb 15 - [“Turned on their heads”: Legal experts say Jack Smith just used Trump’s “best argument against him”](https://news.yahoo.com/turned-heads-legal-experts-jack-134433884.html)
 - Feb 15 - ['You don't get a pass on math': Homebuyers call out Dave Ramsey's 'unrealistic' mortgage advice. Are they right?](https://finance.yahoo.com/news/dont-pass-math-homebuyers-call-130700730.html)
 - Feb 15 - [Mass shooting at Kansas City Chiefs' Super Bowl celebration claims life of local radio DJ](https://news.yahoo.com/kansas-city-radio-station-confirms-024524321.html)
 - Feb 15 - [Marine vet credits Raptor for saving his life in crash — and Ford was listening](https://finance.yahoo.com/news/marine-vet-credits-raptor-saving-121131729.html)
-- Feb 15 - [North Korea leader's sister says Japan PM's comments positive - KCNA](https://news.yahoo.com/north-korea-leaders-sister-says-120139544.html)
 <!-- feed end -->
 
 ### Onstream
