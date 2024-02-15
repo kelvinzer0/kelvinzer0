@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 15 - [Sweet shelter cat was target of snickering. He found owner to ‘see past his exterior’](https://news.yahoo.com/sweet-shelter-cat-target-snickering-201932899.html)
+- Feb 15 - [Son calls 911 saying his mom won’t wake up, officials say. He’s accused of killing her](https://news.yahoo.com/son-calls-911-saying-mom-201409054.html)
 - Feb 15 - [Patrol vehicle of Tennessee deputy who disappeared after making arrest recovered from river](https://news.yahoo.com/patrol-vehicle-tennessee-deputy-disappeared-193717731.html)
-- Feb 15 - [As earnings loom, Nvidia options traders brace for monster share move](https://finance.yahoo.com/news/earnings-loom-nvidia-options-traders-193447876.html)
 - Feb 15 - [Russia has obtained a 'troubling' emerging anti-satellite weapon, the White House says](https://news.yahoo.com/russia-obtained-troubling-emerging-anti-193019529.html)
 - Feb 15 - [Jackson Mahomes Deemed A Hero After Protecting Child At Parade Mass Shooting](https://www.yahoo.com/entertainment/jackson-mahomes-deemed-hero-protecting-191518102.html)
-- Feb 15 - [Super Bowl parade victim was Kansas City radio DJ, her son was also shot](https://news.yahoo.com/super-bowl-parade-victim-kansas-190701499.html)
 <!-- feed end -->
 
 ### Onstream
