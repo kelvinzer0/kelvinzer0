@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 15 - [Mass shooting at Kansas City Chiefs' Super Bowl celebration claims life of local radio DJ](https://news.yahoo.com/kansas-city-radio-station-confirms-024524321.html)
+- Feb 15 - [Marine vet credits Raptor for saving his life in crash — and Ford was listening](https://finance.yahoo.com/news/marine-vet-credits-raptor-saving-121131729.html)
 - Feb 15 - [‘Super stupid and crazy’: This nurse from Nashville borrowed $48K for her fiance’s truck — after borrowing $25K to fund her custody battle with her ‘crazy ex.’ Dave Ramsey responds](https://finance.yahoo.com/news/super-stupid-crazy-nurse-nashville-110100656.html)
 - Feb 15 - [Iran declares Antarctica its property in direct challenge to Biden, global treaty](https://news.yahoo.com/iran-declares-antarctica-property-direct-090038539.html)
 - Feb 15 - [Nurse helping Americans in alleged Bahamas attack was ‘scared’ by what she saw: ‘Could’ve been my daughters’](https://news.yahoo.com/nurse-helping-americans-alleged-bahamas-090001122.html)
-- Feb 15 - [Trump's Puzzling New Excuse For Pelosi-Haley Blunder Includes A Whole New Gaffe](https://news.yahoo.com/trumps-puzzling-excuse-pelosi-haley-060758069.html)
 <!-- feed end -->
 
 ### Onstream
