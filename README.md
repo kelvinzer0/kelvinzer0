@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 15 - [Fact Check: Donald and Ivanka Trump Were Once Photographed Like This on a Bed?](https://news.yahoo.com/fact-check-donald-ivanka-trump-140000481.html)
-- Feb 15 - [“Turned on their heads”: Legal experts say Jack Smith just used Trump’s “best argument against him”](https://news.yahoo.com/turned-heads-legal-experts-jack-134433884.html)
-- Feb 15 - ['You don't get a pass on math': Homebuyers call out Dave Ramsey's 'unrealistic' mortgage advice. Are they right?](https://finance.yahoo.com/news/dont-pass-math-homebuyers-call-130700730.html)
-- Feb 15 - [Mass shooting at Kansas City Chiefs' Super Bowl celebration claims life of local radio DJ](https://news.yahoo.com/kansas-city-radio-station-confirms-024524321.html)
-- Feb 15 - [Marine vet credits Raptor for saving his life in crash — and Ford was listening](https://finance.yahoo.com/news/marine-vet-credits-raptor-saving-121131729.html)
+- Feb 15 - [“Stop interrupting me”: Judge tells Trump lawyer to “have a seat” in fiery courtroom exchange](https://news.yahoo.com/stop-interrupting-judge-tells-trump-154236640.html)
+- Feb 15 - [Ford CEO says company will rethink where it builds vehicles after last year's autoworkers strike](https://news.yahoo.com/ford-ceo-says-company-rethink-153703364.html)
+- Feb 15 - [Saudi money in golf: Tiger Woods is now saying what once made Phil Mickelson persona non grata](https://sports.yahoo.com/saudi-money-in-golf-tiger-woods-is-now-saying-what-once-made-phil-mickelson-persona-non-grata-153630835.html)
+- Feb 15 - [‘Vittrup Man’ violently died in a bog 5,200 years ago. Now, researchers know his story](https://news.yahoo.com/vittrup-man-denmark-oldest-known-133917378.html)
+- Feb 15 - [High school cheerleader told to ‘cover up’ while wearing her uniform at school](https://www.yahoo.com/lifestyle/high-school-cheerleader-told-cover-145204545.html)
 <!-- feed end -->
 
 ### Onstream
