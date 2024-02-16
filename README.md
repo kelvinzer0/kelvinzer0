@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [Consumer sentiment rises again in February to cap complicated week for US economy](https://finance.yahoo.com/news/consumer-sentiment-rises-again-in-february-to-cap-complicated-week-for-us-economy-155635141.html)
 - Feb 16 - [Stormy Daniels payoff case against ‘least impressive lover’ Trump could start to hurt](https://news.yahoo.com/stormy-daniels-payoff-case-against-140640563.html)
 - Feb 16 - [My Head Is Going To Explode After Seeing These Painfully Awkward Things People Really Thought They Could Sell On The Internet](https://www.yahoo.com/lifestyle/head-going-explode-seeing-painfully-133144698.html)
+- Feb 16 - [In court a day before his death, Alexei Navalny laughed and cracked jokes](https://news.yahoo.com/court-day-death-alexei-navalny-133141371.html)
 - Feb 16 - [Trump May Face Harsh Punishment Thanks to a Mighty New York Law](https://news.yahoo.com/trump-may-face-harsh-punishment-130101816.html)
-- Feb 16 - [Dave Ramsey Says Take Social Security at Age 62, But Only If You Do This With Each Check](https://finance.yahoo.com/news/dave-ramsey-social-security-age-125141707.html)
-- Feb 16 - [Sean Hannity and right-wing media claimed the ‘Biden crime family’ took millions in bribes. Their narrative just fell apart](https://finance.yahoo.com/news/sean-hannity-wing-media-claimed-123805902.html)
 <!-- feed end -->
 
 ### Onstream
