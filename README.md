@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 16 - [Navalny recorded this video message for the Russian people in case he was killed](https://news.yahoo.com/navalny-recorded-video-message-russian-152100905.html)
-- Feb 16 - [Stormy Daniels payoff case against ‘least impressive lover’ Trump could start to hurt](https://news.yahoo.com/stormy-daniels-payoff-case-against-140640563.html)
-- Feb 16 - [My Head Is Going To Explode After Seeing These Painfully Awkward Things People Really Thought They Could Sell On The Internet](https://www.yahoo.com/lifestyle/head-going-explode-seeing-painfully-133144698.html)
-- Feb 16 - [Dave Ramsey Says Take Social Security at Age 62, But Only If You Do This With Each Check](https://finance.yahoo.com/news/dave-ramsey-social-security-age-125141707.html)
-- Feb 16 - [Sean Hannity and right-wing media claimed the ‘Biden crime family’ took millions in bribes. Their narrative just fell apart](https://finance.yahoo.com/news/sean-hannity-wing-media-claimed-123805902.html)
+- Feb 16 - [Kansas City shooting: Two teenagers facing weapons charges with more charges expected](https://sports.yahoo.com/kansas-city-shooting-two-teenagers-facing-weapons-charges-with-more-charges-expected-175710632.html)
+- Feb 16 - [Mom punishes 7-year-old by making him walk home, then she runs him over, AL cops say](https://news.yahoo.com/mom-punishes-7-old-making-175052312.html)
+- Feb 16 - [Pennsylvania magistrate judge is charged with shooting her ex-boyfriend in the head as he slept](https://news.yahoo.com/pennsylvania-magistrate-judge-charged-shooting-172248611.html)
+- Feb 16 - [‘The public is being lied to’: Elon Musk says major money funds like BlackRock, Fidelity ‘inflicted’ ESG on American investors — as states like Texas move to ban these policies, is he right?](https://finance.yahoo.com/news/public-being-lied-elon-musk-110000615.html)
+- Feb 16 - [Headlights are blinding us. Here’s why it’s mostly an American problem](https://finance.yahoo.com/news/headlights-blinding-us-why-mostly-140024879.html)
 <!-- feed end -->
 
 ### Onstream
