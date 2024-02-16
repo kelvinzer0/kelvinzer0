@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 16 - [Kansas City shooting: Two teenagers facing weapons charges with more charges expected](https://sports.yahoo.com/kansas-city-shooting-two-teenagers-facing-weapons-charges-with-more-charges-expected-175710632.html)
+- Feb 16 - [Video shows Target store sliding down hillside in West Virginia as store is forced to close](https://news.yahoo.com/video-shows-target-store-sliding-175457388.html)
 - Feb 16 - [Mom punishes 7-year-old by making him walk home, then she runs him over, AL cops say](https://news.yahoo.com/mom-punishes-7-old-making-175052312.html)
-- Feb 16 - [Pennsylvania magistrate judge is charged with shooting her ex-boyfriend in the head as he slept](https://news.yahoo.com/pennsylvania-magistrate-judge-charged-shooting-172248611.html)
+- Feb 16 - [US Supreme Court's Alito pauses Boy Scouts $2.46 billion abuse settlement](https://news.yahoo.com/us-supreme-courts-alito-temporarily-175013158.html)
+- Feb 16 - [Pennsylvania magistrate judge is charged with shooting her ex-boyfriend as he slept](https://news.yahoo.com/pennsylvania-magistrate-judge-charged-shooting-172248611.html)
 - Feb 16 - [‘The public is being lied to’: Elon Musk says major money funds like BlackRock, Fidelity ‘inflicted’ ESG on American investors — as states like Texas move to ban these policies, is he right?](https://finance.yahoo.com/news/public-being-lied-elon-musk-110000615.html)
-- Feb 16 - [Headlights are blinding us. Here’s why it’s mostly an American problem](https://finance.yahoo.com/news/headlights-blinding-us-why-mostly-140024879.html)
 <!-- feed end -->
 
 ### Onstream
