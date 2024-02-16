@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [Stormy Daniels payoff case against ‘least impressive lover’ Trump could start to hurt](https://news.yahoo.com/stormy-daniels-payoff-case-against-140640563.html)
+- Feb 16 - [My Head Is Going To Explode After Seeing These Painfully Awkward Things People Really Thought They Could Sell On The Internet](https://www.yahoo.com/lifestyle/head-going-explode-seeing-painfully-133144698.html)
 - Feb 16 - [Trump May Face Harsh Punishment Thanks to a Mighty New York Law](https://news.yahoo.com/trump-may-face-harsh-punishment-130101816.html)
-- Feb 16 - [MrBeast doesn't consider himself rich despite making $700 million a year, says his mom looks after his bank accounts](https://www.yahoo.com/entertainment/mrbeast-doesnt-consider-himself-rich-124131209.html)
+- Feb 16 - [Dave Ramsey Says Take Social Security at Age 62, But Only If You Do This With Each Check](https://finance.yahoo.com/news/dave-ramsey-social-security-age-125141707.html)
 - Feb 16 - [Sean Hannity and right-wing media claimed the ‘Biden crime family’ took millions in bribes. Their narrative just fell apart](https://finance.yahoo.com/news/sean-hannity-wing-media-claimed-123805902.html)
-- Feb 16 - [See inside the infamous Russian penal colony where Putin foe was in custody](https://news.yahoo.com/see-inside-infamous-russian-penal-014936926.html)
-- Feb 16 - [The American who bought a home in Italy and found ‘big surprises’ inside](https://www.yahoo.com/lifestyle/american-bought-home-italy-found-114500266.html)
 <!-- feed end -->
 
 ### Onstream
