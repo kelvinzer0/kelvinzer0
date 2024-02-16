@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [Russian opposition leader Alexey Navalny dies in prison, officials say](https://news.yahoo.com/russian-opposition-leader-alexey-navalny-113612792.html)
+- Feb 16 - [‘I’m contemplating bankruptcy.’ This Florida woman had $500,000 in the bank, a mortgage-free home and no debt. Now, she’s totally broke — all because of her husband’s financial infidelity](https://finance.yahoo.com/news/m-contemplating-bankruptcy-florida-woman-110300154.html)
 - Feb 16 - [GOP Lawmaker Hits Tucker Carlson With Wicked Label For Russian Grocery Store Love](https://news.yahoo.com/gop-lawmaker-hits-tucker-carlson-091315684.html)
 - Feb 16 - [Looks like Republicans' star Biden impeachment witness is a liar. Who saw that coming?](https://news.yahoo.com/looks-republicans-star-biden-impeachment-090757731.html)
 - Feb 16 - [A California man was found with 1 million rounds of ammo and 248 illegally owned guns in his house, state authorities say](https://news.yahoo.com/california-man-found-1-million-070641981.html)
-- Feb 16 - [14 GOP-led states have turned down federal money to feed low-income kids in the summer. Here's why](https://news.yahoo.com/14-gop-led-states-turned-051938433.html)
-- Feb 16 - [Trump wants to fire thousands of government workers. Liberals are preparing to fight back if he wins](https://news.yahoo.com/trump-wants-fire-thousands-government-050209046.html)
 <!-- feed end -->
 
 ### Onstream
