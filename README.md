@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [30 Things People Posted On The Internet This Month So Far That Are Funnier Than They Should Be](https://www.yahoo.com/lifestyle/30-things-people-posted-internet-011602920.html)
+- Feb 16 - [Missing deputy's patrol car recovered from Tennessee river with body inside](https://news.yahoo.com/missing-deputys-patrol-car-recovered-003426550.html)
 - Feb 16 - [Montana Rep. Rosendale drops US Senate bid after 6 days, citing Trump endorsement of opponent](https://news.yahoo.com/montana-rep-rosendale-drops-us-001419632.html)
 - Feb 16 - [Trump cites US Supreme Court obstruction case as reason to delay criminal trial](https://news.yahoo.com/trump-cites-us-supreme-court-001138437.html)
 - Feb 15 - [FBI informant charged with lying about Joe and Hunter Biden's ties to Ukrainian energy company](https://news.yahoo.com/fbi-informant-charged-lying-joe-221425606.html)
-- Feb 15 - [A loophole got him a free New York hotel stay for five years. Then he claimed to own the building](https://news.yahoo.com/loophole-got-him-free-york-215002080.html)
-- Feb 15 - [Witness Describes The Altercation That Led To Kansas City Mass Shooting](https://www.yahoo.com/entertainment/witness-describes-altercation-led-kansas-211832835.html)
 <!-- feed end -->
 
 ### Onstream
