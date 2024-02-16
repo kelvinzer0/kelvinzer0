@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 16 - [Video shows Target store sliding down hillside in West Virginia as store is forced to close](https://news.yahoo.com/video-shows-target-store-sliding-175457388.html)
-- Feb 16 - [Mom punishes 7-year-old by making him walk home, then she runs him over, AL cops say](https://news.yahoo.com/mom-punishes-7-old-making-175052312.html)
-- Feb 16 - [US Supreme Court's Alito pauses Boy Scouts $2.46 billion abuse settlement](https://news.yahoo.com/us-supreme-courts-alito-temporarily-175013158.html)
-- Feb 16 - [Pennsylvania magistrate judge is charged with shooting her ex-boyfriend as he slept](https://news.yahoo.com/pennsylvania-magistrate-judge-charged-shooting-172248611.html)
-- Feb 16 - [‘The public is being lied to’: Elon Musk says major money funds like BlackRock, Fidelity ‘inflicted’ ESG on American investors — as states like Texas move to ban these policies, is he right?](https://finance.yahoo.com/news/public-being-lied-elon-musk-110000615.html)
+- Feb 16 - [Pa. man faces terrorism charges after allegedly beheading father and calling on ‘patriots’ to take up arms against federal workers](https://news.yahoo.com/pa-man-faces-terrorism-charges-194235189.html)
+- Feb 16 - [American woman goes missing in Madrid after helmeted man disables cameras](https://news.yahoo.com/american-woman-goes-missing-madrid-193133781.html)
+- Feb 16 - [Egypt denies allegations of participating in any process involving displacement of Gazans into Sinai](https://news.yahoo.com/egypt-denies-allegations-participating-process-192808195.html)
+- Feb 16 - [Duo secretly digging in Florida park caught with 224 historic artifacts, officers say](https://news.yahoo.com/duo-secretly-digging-florida-park-192641843.html)
+- Feb 16 - [Auto workers threaten to strike again at Ford's huge Kentucky truck plant in local contract dispute](https://news.yahoo.com/auto-workers-threaten-strike-again-184934534.html)
 <!-- feed end -->
 
 ### Onstream
