@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [A California man was found with 1 million rounds of ammo and 248 illegally owned guns in his house, state authorities say](https://news.yahoo.com/california-man-found-1-million-070641981.html)
 - Feb 16 - [14 GOP-led states have turned down federal money to feed low-income kids in the summer. Here's why](https://news.yahoo.com/14-gop-led-states-turned-051938433.html)
 - Feb 16 - [Missing deputy's body found after patrol car recovered from Tennessee river](https://news.yahoo.com/missing-deputys-patrol-car-recovered-003426550.html)
 - Feb 16 - [Trump wants to fire thousands of government workers. Liberals are preparing to fight back if he wins](https://news.yahoo.com/trump-wants-fire-thousands-government-050209046.html)
 - Feb 16 - [Republican Senator Rips Tucker’s Cringeworthy Russian Grocery Store Video](https://www.yahoo.com/entertainment/republican-senator-rips-tucker-cringeworthy-044914533.html)
-- Feb 16 - [No soft landing: The US economy is going to fall into recession in the middle of 2024, Citi's chief economist says](https://finance.yahoo.com/news/no-soft-landing-us-economy-022146984.html)
 <!-- feed end -->
 
 ### Onstream
