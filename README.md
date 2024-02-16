@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [Trump May Face Harsh Punishment Thanks to a Mighty New York Law](https://news.yahoo.com/trump-may-face-harsh-punishment-130101816.html)
+- Feb 16 - [MrBeast doesn't consider himself rich despite making $700 million a year, says his mom looks after his bank accounts](https://www.yahoo.com/entertainment/mrbeast-doesnt-consider-himself-rich-124131209.html)
+- Feb 16 - [Sean Hannity and right-wing media claimed the ‘Biden crime family’ took millions in bribes. Their narrative just fell apart](https://finance.yahoo.com/news/sean-hannity-wing-media-claimed-123805902.html)
 - Feb 16 - [See inside the infamous Russian penal colony where Putin foe was in custody](https://news.yahoo.com/see-inside-infamous-russian-penal-014936926.html)
 - Feb 16 - [The American who bought a home in Italy and found ‘big surprises’ inside](https://www.yahoo.com/lifestyle/american-bought-home-italy-found-114500266.html)
-- Feb 16 - [‘I’m contemplating bankruptcy.’ This Florida woman had $500,000 in the bank, a mortgage-free home and no debt. Now, she’s totally broke — all because of her husband’s financial infidelity](https://finance.yahoo.com/news/m-contemplating-bankruptcy-florida-woman-110300154.html)
-- Feb 16 - [GOP Lawmaker Hits Tucker Carlson With Wicked Label For Russian Grocery Store Love](https://news.yahoo.com/gop-lawmaker-hits-tucker-carlson-091315684.html)
-- Feb 16 - [Looks like Republicans' star Biden impeachment witness is a liar. Who saw that coming?](https://news.yahoo.com/looks-republicans-star-biden-impeachment-090757731.html)
 <!-- feed end -->
 
 ### Onstream
