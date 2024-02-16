@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 16 - [Pa. man faces terrorism charges after allegedly beheading father and calling on ‘patriots’ to take up arms against federal workers](https://news.yahoo.com/pa-man-faces-terrorism-charges-194235189.html)
+- Feb 16 - [Man who told estranged wife 'If I can't have them neither can you' gets life for killing their kids](https://news.yahoo.com/man-told-estranged-wife-cant-205534410.html)
+- Feb 16 - [Patrick, Brittany Mahomes visit hospitalized children who were shot at Chiefs victory parade](https://sports.yahoo.com/patrick-brittany-mahomes-visit-hospitalized-children-who-were-shot-at-chiefs-victory-parade-201759554.html)
+- Feb 16 - [UPDATE 6-Donald Trump must pay $354.9 million, barred from NY business for 3 years, judge rules](https://finance.yahoo.com/news/1-donald-trump-liable-354-200555056.html)
+- Feb 16 - [Trump’s Bank Fraud Trial Ends With $364 Million Gut Punch](https://news.yahoo.com/trump-bank-fraud-trial-ends-200312079.html)
 - Feb 16 - [American woman goes missing in Madrid after helmeted man disables cameras](https://news.yahoo.com/american-woman-goes-missing-madrid-193133781.html)
-- Feb 16 - [Egypt denies allegations of participating in any process involving displacement of Gazans into Sinai](https://news.yahoo.com/egypt-denies-allegations-participating-process-192808195.html)
-- Feb 16 - [Duo secretly digging in Florida park caught with 224 historic artifacts, officers say](https://news.yahoo.com/duo-secretly-digging-florida-park-192641843.html)
-- Feb 16 - [Auto workers threaten to strike again at Ford's huge Kentucky truck plant in local contract dispute](https://news.yahoo.com/auto-workers-threaten-strike-again-184934534.html)
 <!-- feed end -->
 
 ### Onstream
