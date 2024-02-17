@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [US considering more than $10 billion in subsidies for Intel -Bloomberg News](https://finance.yahoo.com/news/us-considering-more-10-billion-231954588.html)
 - Feb 16 - [Trump Loses It Over $355 Million Judgment In Civil Fraud Trial](https://news.yahoo.com/trump-loses-over-355-million-215415047.html)
 - Feb 16 - [GOP House chair: Johnson has no way out of Ukraine floor vote](https://news.yahoo.com/gop-house-chairman-johnson-no-212243568.html)
 - Feb 16 - [Wichita man who allegedly picked up gun after mass shooting at KC Chiefs rally charged](https://news.yahoo.com/wichita-man-allegedly-picked-gun-211940353.html)
-- Feb 16 - [Human Remains Found at Bottom of Cliff Identified as Retired Nurse Missing for Over 3 Months](https://www.yahoo.com/entertainment/human-remains-found-bottom-cliff-211222830.html)
 - Feb 16 - [Mom Who Jumped From Interstate Ramp with 3-Year-Old Twins Unresponsive in Car Faces Charges](https://www.yahoo.com/entertainment/mom-jumped-interstate-ramp-3-210621669.html)
 <!-- feed end -->
 
