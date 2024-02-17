@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 17 - [Death of Kremlin foe Alexei Navalny provokes Western outrage but few concrete actions to stop Putin](https://news.yahoo.com/putin-ignores-western-criticism-over-203111872.html)
 - Feb 17 - [Intuitive Machines’ moon lander sent home its first images and they’re breathtaking](https://news.yahoo.com/intuitive-machines-moon-lander-sent-home-its-first-images-and-theyre-breathtaking-194208799.html)
+- Feb 17 - [Kid Rock's Oceanfront Home Hangs In The Balance As Erosion Threatens Coastal Properties](https://finance.yahoo.com/news/kid-rocks-oceanfront-home-hangs-192924724.html)
 - Feb 17 - [MAGA Fans Slammed For Launching GoFundMe To Help Billionaire Donald Trump Pay $355M Fine](https://www.yahoo.com/entertainment/maga-fans-slammed-launching-gofundme-191558092.html)
-- Feb 17 - [Trump to address supporters after $354.9 million fraud ruling](https://news.yahoo.com/trump-address-supporters-354-9-182028787.html)
-- Feb 17 - [Tucker Carlson’s Lesson in the Perils of Giving Airtime to an Autocrat](https://news.yahoo.com/tucker-carlson-lesson-perils-giving-152044899.html)
-- Feb 17 - [Israel strikes 'reputation blow' to Iran with sabotage attacks on its gas pipelines, says report](https://news.yahoo.com/israel-strikes-reputation-blow-iran-133228467.html)
+- Feb 17 - [Jacksonville locals take to the streets in just their undies](https://news.yahoo.com/jacksonville-locals-streets-just-undies-115743699.html)
 <!-- feed end -->
 
 ### Onstream
