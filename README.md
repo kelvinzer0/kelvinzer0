@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 17 - [Intuitive Machines’ moon lander sent home its first images and they’re breathtaking](https://news.yahoo.com/intuitive-machines-moon-lander-sent-home-its-first-images-and-theyre-breathtaking-194208799.html)
+- Feb 17 - [MAGA Fans Slammed For Launching GoFundMe To Help Billionaire Donald Trump Pay $355M Fine](https://www.yahoo.com/entertainment/maga-fans-slammed-launching-gofundme-191558092.html)
+- Feb 17 - [Trump to address supporters after $354.9 million fraud ruling](https://news.yahoo.com/trump-address-supporters-354-9-182028787.html)
 - Feb 17 - [Tucker Carlson’s Lesson in the Perils of Giving Airtime to an Autocrat](https://news.yahoo.com/tucker-carlson-lesson-perils-giving-152044899.html)
 - Feb 17 - [Israel strikes 'reputation blow' to Iran with sabotage attacks on its gas pipelines, says report](https://news.yahoo.com/israel-strikes-reputation-blow-iran-133228467.html)
-- Feb 17 - [What does it mean to claim the US is a Christian nation, and what does the Constitution say?](https://news.yahoo.com/does-mean-claim-us-christian-130347222.html)
-- Feb 17 - [Great-grandmother, 80, with Alzheimer's raped at Bahamas resort: family](https://news.yahoo.com/great-grandmother-80-alzheimers-raped-130146669.html)
-- Feb 17 - ['I could've been set for life': This former Goldman Sachs analyst says his family of 4 can't live comfortably on $230K a year after buying 'forever home.' Is the American dream out of reach?](https://finance.yahoo.com/news/couldve-set-life-former-goldman-125200620.html)
 <!-- feed end -->
 
 ### Onstream
