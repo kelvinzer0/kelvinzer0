@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 17 - [Trump hawks $399 branded shoes at 'Sneaker Con,' a day after a $355 million ruling against him](https://finance.yahoo.com/news/trump-hawks-399-branded-shoes-213740037.html)
+- Feb 17 - [500-gallon underground propane tank found at Virginia home that exploded, killing a firefighter and injuring others](https://news.yahoo.com/firefighter-killed-9-others-injured-072052478.html)
+- Feb 17 - [Teen testifies that former Dodgers pitcher threatened to ‘ruin’ her if she claimed to see him at scene of fatal crash](https://news.yahoo.com/teen-testifies-former-dodgers-pitcher-200047627.html)
 - Feb 17 - [Intuitive Machines’ moon lander sent home its first images and they’re breathtaking](https://news.yahoo.com/intuitive-machines-moon-lander-sent-home-its-first-images-and-theyre-breathtaking-194208799.html)
 - Feb 17 - [Kid Rock's Oceanfront Home Hangs In The Balance As Erosion Threatens Coastal Properties](https://finance.yahoo.com/news/kid-rocks-oceanfront-home-hangs-192924724.html)
-- Feb 17 - [MAGA Fans Slammed For Launching GoFundMe To Help Billionaire Donald Trump Pay $355M Fine](https://www.yahoo.com/entertainment/maga-fans-slammed-launching-gofundme-191558092.html)
-- Feb 17 - [Jacksonville locals take to the streets in just their undies](https://news.yahoo.com/jacksonville-locals-streets-just-undies-115743699.html)
-- Feb 17 - [Road rage driver who fired 14 shots at man trying to pass him on Cherokee highway learns his fate](https://news.yahoo.com/road-rage-driver-fired-14-152257849.html)
 <!-- feed end -->
 
 ### Onstream
