@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 17 - [‘I cannot understand how they can do this to people’: Social Security admits to overpaying a North Texas widow by $41K — and now demands she pay the money back. How did this happen?](https://finance.yahoo.com/news/cannot-understand-people-social-security-110400860.html)
 - Feb 17 - [Despair in Russia as Putin Spirals Out of Control](https://news.yahoo.com/despair-russia-putin-spirals-control-041135349.html)
 - Feb 17 - [405 Freeway off-ramp closed for up to a month due to sinkhole](https://news.yahoo.com/405-freeway-off-ramp-closed-022230066.html)
 - Feb 17 - [Biggest takeaways after wild 2-day hearing on Fani Willis affair: 'What's done is done'](https://news.yahoo.com/biggest-takeaways-wild-2-day-020400649.html)
 - Feb 17 - ['Mike & Molly' star Billy Gardell jokes he still battles 'fat guy in there' after 170-pound weight loss](https://www.yahoo.com/entertainment/mike-molly-star-billy-gardell-001042496.html)
-- Feb 16 - [US considering more than $10 billion in subsidies for Intel -Bloomberg News](https://finance.yahoo.com/news/us-considering-more-10-billion-231954588.html)
 <!-- feed end -->
 
 ### Onstream
