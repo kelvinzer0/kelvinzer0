@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 17 - [Despair in Russia as Putin Spirals Out of Control](https://news.yahoo.com/despair-russia-putin-spirals-control-041135349.html)
+- Feb 17 - [New York governor apologizes after implying Israel is justified to destroy Gaza](https://news.yahoo.com/york-governor-apologizes-implying-israel-034723586.html)
 - Feb 17 - [405 Freeway off-ramp closed for up to a month due to sinkhole](https://news.yahoo.com/405-freeway-off-ramp-closed-022230066.html)
 - Feb 17 - [Michael Cohen Says Trump Couldn’t Pay $355 Million Even if He Sold All His NYC Assets: ‘He’s Stuck’ | Video](https://www.yahoo.com/entertainment/michael-cohen-says-trump-couldn-013509262.html)
 - Feb 17 - ['Mike & Molly' star Billy Gardell jokes he still battles 'fat guy in there' after 170-pound weight loss](https://www.yahoo.com/entertainment/mike-molly-star-billy-gardell-001042496.html)
-- Feb 16 - [US considering more than $10 billion in subsidies for Intel -Bloomberg News](https://finance.yahoo.com/news/us-considering-more-10-billion-231954588.html)
-- Feb 16 - [Trump Loses It Over $355 Million Judgment In Civil Fraud Trial](https://news.yahoo.com/trump-loses-over-355-million-215415047.html)
 <!-- feed end -->
 
 ### Onstream
