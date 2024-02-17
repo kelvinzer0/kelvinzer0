@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Feb 16 - [Trump Loses It Over $355 Million Judgment In Civil Fraud Trial](https://news.yahoo.com/trump-loses-over-355-million-215415047.html)
 - Feb 16 - [GOP House chair: Johnson has no way out of Ukraine floor vote](https://news.yahoo.com/gop-house-chairman-johnson-no-212243568.html)
 - Feb 16 - [Wichita man who allegedly picked up gun after mass shooting at KC Chiefs rally charged](https://news.yahoo.com/wichita-man-allegedly-picked-gun-211940353.html)
-- Feb 16 - [Mom Who Jumped From Interstate Ramp with 3-Year-Old Twins Unresponsive in Car Faces Charges](https://www.yahoo.com/entertainment/mom-jumped-interstate-ramp-3-210621669.html)
+- Feb 16 - [Man who told estranged wife 'If I can't have them neither can you' gets life for killing their kids](https://news.yahoo.com/man-told-estranged-wife-cant-205534410.html)
 <!-- feed end -->
 
 ### Onstream
