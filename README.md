@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 17 - [Michael Cohen Says Trump Couldn’t Pay $355 Million Even if He Sold All His NYC Assets: ‘He’s Stuck’ | Video](https://www.yahoo.com/entertainment/michael-cohen-says-trump-couldn-013509262.html)
 - Feb 16 - [US considering more than $10 billion in subsidies for Intel -Bloomberg News](https://finance.yahoo.com/news/us-considering-more-10-billion-231954588.html)
 - Feb 16 - [Trump Loses It Over $355 Million Judgment In Civil Fraud Trial](https://news.yahoo.com/trump-loses-over-355-million-215415047.html)
 - Feb 16 - [GOP House chair: Johnson has no way out of Ukraine floor vote](https://news.yahoo.com/gop-house-chairman-johnson-no-212243568.html)
 - Feb 16 - [Wichita man who allegedly picked up gun after mass shooting at KC Chiefs rally charged](https://news.yahoo.com/wichita-man-allegedly-picked-gun-211940353.html)
-- Feb 16 - [Man who told estranged wife 'If I can't have them neither can you' gets life for killing their kids](https://news.yahoo.com/man-told-estranged-wife-cant-205534410.html)
 <!-- feed end -->
 
 ### Onstream
