@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 18 - [George Santos sues late-night host Jimmy Kimmel for tricking him into making videos to ridicule him](https://news.yahoo.com/george-santos-sues-night-host-011842070.html)
+- Feb 18 - [This US couple built an oceanfront home in the Bahamas. Then a hurricane hit](https://www.yahoo.com/lifestyle/us-couple-built-oceanfront-home-070023854.html)
+- Feb 18 - [California is forging ahead with food waste recycling. But is it too much, too fast?](https://news.yahoo.com/california-forging-ahead-food-waste-050143297.html)
 - Feb 18 - [Elderly Los Angeles Woman Takes Own Life Following Eviction Dispute With Landlord](https://www.yahoo.com/entertainment/elderly-los-angeles-woman-takes-001628620.html)
 - Feb 17 - [Cop Takes His Own Life During Training on Sex Trafficking](https://news.yahoo.com/cop-takes-own-life-during-234258403.html)
 - Feb 17 - [New Video Captures Tense Exchange Among Teens Just Before Kansas City Shooting](https://www.yahoo.com/entertainment/video-captures-tense-exchange-among-231556933.html)
-- Feb 17 - [Trump hawks $399 branded shoes at 'Sneaker Con,' a day after a $355 million ruling against him](https://finance.yahoo.com/news/trump-hawks-399-branded-shoes-213740037.html)
 <!-- feed end -->
 
 ### Onstream
