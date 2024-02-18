@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 18 - [‘This is the angriest I've ever been’: 24-year-old astrologer lost $440,000 by day trading crypto and now lives on credit card debt. Caleb Hammer responds](https://finance.yahoo.com/news/angriest-ive-ever-24-old-121300556.html)
+- Feb 18 - ['I have gone through it all': North Carolina man won a $1-million lottery but lost it all in just 8 years. Hosts of 'The Ramsey Show' help him deal with a persistent gambling problem](https://finance.yahoo.com/news/gone-north-carolina-man-won-115500265.html)
 - Feb 18 - [‘It’s going to be a cat-and-mouse game’: ‘Oracle of Wall Street’ forecasts silver wave as baby boomers begin listing their homes to cash in on wealth gains. Is now the ideal time to sell?](https://finance.yahoo.com/news/going-cat-mouse-game-oracle-114100614.html)
-- Feb 18 - [‘Just do the math’: California democrat wants to hike the federal minimum wage up to $50 an hour — says six-figure salaries ‘barely enough to get by.’ Is she right?](https://finance.yahoo.com/news/just-math-california-democrat-wants-110800022.html)
-- Feb 18 - [Fraud like nobody's watching: Trump was probed for 5 years, and still wouldn't clean up his act](https://news.yahoo.com/fraud-nobodys-watching-trump-probed-103901663.html)
 - Feb 18 - [Trump's questionable morality gets a pass from evangelical voters. I decided to ask why.](https://news.yahoo.com/trumps-questionable-morality-gets-pass-090322307.html)
-- Feb 18 - [This US couple built an oceanfront home in the Bahamas. Then a hurricane hit](https://www.yahoo.com/lifestyle/us-couple-built-oceanfront-home-070023854.html)
+- Feb 18 - [Russian pilot flies his damaged warplane towards village in Luhansk Oblast – video](https://news.yahoo.com/russian-pilot-flies-damaged-warplane-085620484.html)
 <!-- feed end -->
 
 ### Onstream
