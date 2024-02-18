@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 18 - [Elderly Los Angeles Woman Takes Own Life Following Eviction Dispute With Landlord](https://www.yahoo.com/entertainment/elderly-los-angeles-woman-takes-001628620.html)
 - Feb 17 - [Cop Takes His Own Life During Training on Sex Trafficking](https://news.yahoo.com/cop-takes-own-life-during-234258403.html)
 - Feb 17 - [New Video Captures Tense Exchange Among Teens Just Before Kansas City Shooting](https://www.yahoo.com/entertainment/video-captures-tense-exchange-among-231556933.html)
 - Feb 17 - [Trump hawks $399 branded shoes at 'Sneaker Con,' a day after a $355 million ruling against him](https://finance.yahoo.com/news/trump-hawks-399-branded-shoes-213740037.html)
 - Feb 17 - [500-gallon underground propane tank found at Virginia home that exploded, killing a firefighter and injuring others](https://news.yahoo.com/firefighter-killed-9-others-injured-072052478.html)
-- Feb 17 - [Teen testifies that former Dodgers pitcher threatened to ‘ruin’ her if she claimed to see him at scene of fatal crash](https://news.yahoo.com/teen-testifies-former-dodgers-pitcher-200047627.html)
 <!-- feed end -->
 
 ### Onstream
