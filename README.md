@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 18 - [19 Signs From This Week That Beg The Question: "Is It Possible To Be TOO Funny??"](https://www.yahoo.com/lifestyle/19-signs-week-beg-possible-151603835.html)
 - Feb 18 - [Navalny’s body found bruised in Arctic morgue](https://news.yahoo.com/navalny-body-found-bruised-arctic-131031082.html)
+- Feb 18 - [Cheney says it’s ‘worth’ Johnson losing Speakership over passing Ukraine aid bill](https://news.yahoo.com/cheney-says-worth-johnson-losing-144313550.html)
 - Feb 18 - [Russia will not intimidate me, Estonia's Kallas says](https://news.yahoo.com/russia-not-intimidate-estonias-kallas-142956264.html)
-- Feb 18 - [‘This is the angriest I've ever been’: 24-year-old astrologer lost $440,000 by day trading crypto and now lives on credit card debt. Caleb Hammer responds](https://finance.yahoo.com/news/angriest-ive-ever-24-old-121300556.html)
-- Feb 18 - ['I have gone through it all': North Carolina man won a $1-million lottery but lost it all in just 8 years. Hosts of 'The Ramsey Show' help him deal with a persistent gambling problem](https://finance.yahoo.com/news/gone-north-carolina-man-won-115500265.html)
-- Feb 18 - [Medvedev threatens Berlin, London and Washington with nuclear retaliation if Russia is to return to 1991 borders](https://news.yahoo.com/medvedev-threatens-berlin-london-washington-114911038.html)
+- Feb 18 - [Developing: 2 officers, 1 paramedic killed in Burnsville, source says](https://news.yahoo.com/developing-2-officers-1-paramedic-142900177.html)
 <!-- feed end -->
 
 ### Onstream
