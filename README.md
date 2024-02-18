@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 18 - [Navalny’s body found bruised in Arctic morgue](https://news.yahoo.com/navalny-body-found-bruised-arctic-131031082.html)
+- Feb 18 - [Man sues Powerball lottery after being told his apparent $340m win was error](https://news.yahoo.com/man-sues-powerball-lottery-being-175857749.html)
 - Feb 18 - [Graham responds to Trump NATO comments: ‘If you don’t pay you get kicked out’](https://news.yahoo.com/graham-responds-trump-nato-comments-163600769.html)
 - Feb 18 - [Danny Masterson Moved To ‘Nicer’ Detention Facility After Time In ‘Manson’ Prison](https://www.yahoo.com/entertainment/danny-masterson-moved-nicer-detention-163006247.html)
 - Feb 18 - [Eerie footage shows ‘ghost of the forest’ entering residence](https://sports.yahoo.com/eerie-footage-shows-ghost-forest-161927615.html)
-- Feb 18 - [Blaxit: Tired of Racism, Black Americans Try Life in Africa](https://news.yahoo.com/blaxit-tired-racism-black-americans-151400425.html)
 <!-- feed end -->
 
 ### Onstream
