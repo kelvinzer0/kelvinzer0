@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 18 - [Trump's questionable morality gets a pass from evangelical voters. I decided to ask why.](https://news.yahoo.com/trumps-questionable-morality-gets-pass-090322307.html)
 - Feb 18 - [This US couple built an oceanfront home in the Bahamas. Then a hurricane hit](https://www.yahoo.com/lifestyle/us-couple-built-oceanfront-home-070023854.html)
-- Feb 18 - [California is forging ahead with food waste recycling. But is it too much, too fast?](https://news.yahoo.com/california-forging-ahead-food-waste-050143297.html)
+- Feb 18 - [China's first homegrown airliner makes international debut in Singapore](https://finance.yahoo.com/news/chinas-first-homegrown-airliner-makes-044846445.html)
 - Feb 18 - [Elderly Los Angeles Woman Takes Own Life Following Eviction Dispute With Landlord](https://www.yahoo.com/entertainment/elderly-los-angeles-woman-takes-001628620.html)
 - Feb 17 - [Cop Takes His Own Life During Training on Sex Trafficking](https://news.yahoo.com/cop-takes-own-life-during-234258403.html)
-- Feb 17 - [New Video Captures Tense Exchange Among Teens Just Before Kansas City Shooting](https://www.yahoo.com/entertainment/video-captures-tense-exchange-among-231556933.html)
 <!-- feed end -->
 
 ### Onstream
