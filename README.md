@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 18 - [Navalny’s body found bruised in Arctic morgue](https://news.yahoo.com/navalny-body-found-bruised-arctic-131031082.html)
-- Feb 18 - [Antique store shoppers see man put items in rectum then back on shelves, Texas cops say](https://news.yahoo.com/antique-store-shoppers-see-man-161753113.html)
-- Feb 18 - [19 Signs From This Week That Beg The Question: "Is It Possible To Be TOO Funny??"](https://www.yahoo.com/lifestyle/19-signs-week-beg-possible-151603835.html)
+- Feb 18 - [Graham responds to Trump NATO comments: ‘If you don’t pay you get kicked out’](https://news.yahoo.com/graham-responds-trump-nato-comments-163600769.html)
+- Feb 18 - [Danny Masterson Moved To ‘Nicer’ Detention Facility After Time In ‘Manson’ Prison](https://www.yahoo.com/entertainment/danny-masterson-moved-nicer-detention-163006247.html)
+- Feb 18 - [Eerie footage shows ‘ghost of the forest’ entering residence](https://sports.yahoo.com/eerie-footage-shows-ghost-forest-161927615.html)
 - Feb 18 - [Blaxit: Tired of Racism, Black Americans Try Life in Africa](https://news.yahoo.com/blaxit-tired-racism-black-americans-151400425.html)
-- Feb 18 - [Cheney says it’s ‘worth’ Johnson losing Speakership over passing Ukraine aid bill](https://news.yahoo.com/cheney-says-worth-johnson-losing-144313550.html)
 <!-- feed end -->
 
 ### Onstream
