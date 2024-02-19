@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Dutch government says China seeks military advantage from ASML tools](https://www.yahoo.com/tech/dutch-government-says-china-seeks-150037928.html)
-- Feb 19 - [7 Things the Middle Class Won’t Be Able To Afford in the Next 5 Years](https://finance.yahoo.com/news/7-things-middle-class-won-150007805.html)
-- Feb 19 - [Taliban set unacceptable conditions for attending a UN meeting, says UN secretary-general](https://news.yahoo.com/taliban-set-unacceptable-conditions-attending-144518124.html)
-- Feb 19 - [Michael Cohen Describes 1 Of His 'Biggest Fears' About Trump Being Behind Bars](https://news.yahoo.com/michael-cohen-describes-1-biggest-143128224.html)
-- Feb 19 - [Trump breaks silence on Navalny, casts no blame on Putin](https://news.yahoo.com/trump-breaks-silence-navalny-casts-134238123.html)
+- Feb 19 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
+- Feb 19 - [What's happening in eastern Congo and why aid groups are warning of a new humanitarian crisis](https://news.yahoo.com/whats-happening-eastern-congo-why-163948601.html)
+- Feb 19 - [It’s taken just five years for Ursula von der Leyen to destroy Europe’s economy](https://news.yahoo.com/taken-just-five-years-ursula-162907755.html)
+- Feb 19 - [Man who shot Burnsville officers and firefighter tried to have gun rights restored after assault conviction](https://news.yahoo.com/man-fatally-shot-burnsville-officers-155100954.html)
+- Feb 19 - [2 passenger planes hit over 800 mph on recent flights due to strong winds. That's over 200 mph more than a typical plane ride.](https://news.yahoo.com/2-passenger-planes-hit-over-155009611.html)
 <!-- feed end -->
 
 ### Onstream
