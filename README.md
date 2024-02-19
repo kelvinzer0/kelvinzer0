@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [In post about dead Russian opposition leader Navalny, Trump talks of his own legal problems](https://news.yahoo.com/post-dead-russian-opposition-leader-193124078.html)
+- Feb 19 - [Suspect arrested on murder charges in deaths of 2 people in a Colorado college dorm](https://news.yahoo.com/suspect-custody-shooting-deaths-2-200949866.html)
 - Feb 19 - [Mom dies trying to save her 3 kids from raging fire, family says. ‘Lost without her’](https://news.yahoo.com/mom-dies-trying-save-her-184949470.html)
 - Feb 19 - [Americans Are Still Posting The "European Mind Can't Comprehend" Memes, And They're Still Very, Very Funny](https://www.yahoo.com/lifestyle/americans-still-posting-european-mind-183208252.html)
 - Feb 19 - [Grant Cardone Says Earning $400,000 A Year Would 'Embarrass' Him As A Husband, Father And Human Being — 'How Do You Make Sense Of $35,000 A Month?'](https://finance.yahoo.com/news/grant-cardone-says-earning-400-181312003.html)
