@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Tractors roll into downtown Prague as Czech farmers join protests](https://news.yahoo.com/tractors-roll-downtown-prague-czech-102835479.html)
-- Feb 19 - [Brazil's Lula unwelcome in Israel until he retracts Holocaust remarks, minister says](https://news.yahoo.com/brazils-lula-not-welcome-israel-102729250.html)
-- Feb 19 - [Why the Fed now finds itself on a collision course with the 2024 election](https://finance.yahoo.com/news/why-the-fed-now-finds-itself-on-a-collision-course-with-the-2024-election-124357889.html)
-- Feb 19 - [Eric Trump Mocked Over Brazenly False Claim About His Father In New York](https://news.yahoo.com/eric-trump-mocked-over-brazenly-091828826.html)
-- Feb 19 - [January economic data challenges soft landing narrative](https://finance.yahoo.com/news/january-economic-data-challenges-soft-landing-narrative-090058758.html)
+- Feb 19 - [Stalled US aid for Ukraine underscores GOP's shift away from confronting Russia](https://news.yahoo.com/stalled-us-aid-ukraine-underscores-120455435.html)
+- Feb 19 - ['In my defense, there is no defense': This 'e-girl' spends $1,000/month paying off debt — and she’s among the millions of Americans who owe back taxes. Caleb Hammer has a dire warning for her](https://finance.yahoo.com/news/defense-no-defense-22-old-120000791.html)
+- Feb 19 - [Trump-branded properties are selling for far less than buildings that removed his name, report says](https://news.yahoo.com/trump-branded-properties-selling-far-111003446.html)
+- Feb 19 - [Lara Trump's Plan For RNC Is Utterly Shredded By Former Chair](https://news.yahoo.com/lara-trumps-plan-rnc-utterly-110040964.html)
+- Feb 19 - [Graham’s U-turns have Senate colleagues fed up: ‘Annoying,’ ‘tiresome’](https://news.yahoo.com/graham-u-turns-senate-colleagues-110000608.html)
 <!-- feed end -->
 
 ### Onstream
