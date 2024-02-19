@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [North Korea's Kim Jong Un receives car as gift from Putin - KCNA](https://news.yahoo.com/north-koreas-kim-jong-un-222300898.html)
 - Feb 19 - [US tourist admits raping and murdering hiker he threw into German ravine](https://news.yahoo.com/us-tourist-admits-raping-murdering-212731104.html)
 - Feb 19 - [Google Lays Off Thousands More Employees Despite Record Profits One Year After Laying off 12,000 Employees As Workers Begin Worrying AI is Slowly Replacing Them](https://finance.yahoo.com/news/google-lays-off-thousands-more-210822278.html)
-- Feb 19 - [A ship carrying 19,000 cattle caused a big stink in the South African city of Cape Town](https://news.yahoo.com/ship-carrying-19-000-cattle-210402986.html)
 - Feb 19 - [Mark Cuban Says ‘Don’t Apply for a Job With Me’ Without This Valuable Asset — Why It Matters to Employers](https://finance.yahoo.com/news/mark-cuban-says-don-t-173218379.html)
-- Feb 19 - [Suspect arrested on murder charges in deaths of 2 people in a Colorado college dorm](https://news.yahoo.com/suspect-custody-shooting-deaths-2-200949866.html)
+- Feb 19 - [Largest-ever COVID vaccine study links shot to small increase in heart and brain conditions](https://news.yahoo.com/largest-ever-covid-vaccine-study-203626142.html)
 <!-- feed end -->
 
 ### Onstream
