@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [Why the Fed now finds itself on a collision course with the 2024 election](https://finance.yahoo.com/news/why-the-fed-now-finds-itself-on-a-collision-course-with-the-2024-election-124357889.html)
+- Feb 19 - [Eric Trump Mocked Over Brazenly False Claim About His Father In New York](https://news.yahoo.com/eric-trump-mocked-over-brazenly-091828826.html)
+- Feb 19 - [The keeper of the Vatican’s secrets is retiring. Here’s what he wants you to know](https://news.yahoo.com/keeper-vatican-secrets-retiring-wants-090357472.html)
 - Feb 19 - [Ex-Trump Org Exec Predicts Exactly How Trump Will Capitalize On $355 Million Ruling](https://news.yahoo.com/ex-trump-org-exec-predicts-080116263.html)
 - Feb 19 - [Carnival canceled a woman's ticket and refused to refund her because she was 26 weeks pregnant: report](https://news.yahoo.com/carnival-canceled-womans-ticket-refused-073840165.html)
-- Feb 19 - [Chinese fishing vessels are going scorched earth and pumping cyanide into contested waters, Philippine fishing authority says](https://news.yahoo.com/chinese-fishing-vessels-going-scorched-065146043.html)
-- Feb 19 - [Fox News Report On Trump's Dismal Ranking Gets The Treatment  From Critics](https://news.yahoo.com/fox-news-report-trumps-dismal-063325086.html)
-- Feb 19 - [Israel's six-week drive to hit Hamas in Rafah and scale back war](https://news.yahoo.com/israels-six-week-drive-hit-061402847.html)
 <!-- feed end -->
 
 ### Onstream
