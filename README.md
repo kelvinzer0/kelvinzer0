@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [‘You have a lifestyle that’s absolutely asinine’: Florida couple live paycheck to paycheck despite earning $138,000 every year. Dave Ramsey calls them ‘broke’ people with spending issues](https://finance.yahoo.com/news/lifestyle-absolutely-asinine-florida-couple-123300642.html)
-- Feb 19 - [Exclusive-Turkish-Russian trade hit by fresh US sanctions threat](https://finance.yahoo.com/news/exclusive-turkish-russian-trade-hit-123159500.html)
-- Feb 19 - [Ukrainian businesses fear new mobilisation law could paralyse economy](https://finance.yahoo.com/news/ukrainian-businesses-fear-mobilisation-law-122832643.html)
-- Feb 19 - [Qatar criticises Israel's Netanyahu over pressure on Hamas to release hostages](https://news.yahoo.com/qatar-criticises-israels-netanyahu-over-120947575.html)
-- Feb 19 - [Stalled US aid for Ukraine underscores GOP's shift away from confronting Russia](https://news.yahoo.com/stalled-us-aid-ukraine-underscores-120455435.html)
+- Feb 19 - [Trump breaks silence on Navalny, casts no blame on Putin](https://news.yahoo.com/trump-breaks-silence-navalny-casts-134238123.html)
+- Feb 19 - [Houthi missiles strike British bulk carrier in Red Sea, forcing crew to abandon ship](https://news.yahoo.com/houthi-missiles-strike-british-bulk-132150802.html)
+- Feb 19 - [China coast guard boarded Taiwanese boat near frontline islands, Taiwan says](https://news.yahoo.com/china-coast-guard-boarded-taiwanese-131640591.html)
+- Feb 19 - [Dutch nationalist Wilders lashes out against Ukrainian refugees](https://news.yahoo.com/dutch-nationalist-wilders-lashes-against-130210805.html)
+- Feb 19 - [‘I hope that she will recover’: 5 cyclists attacked by cougar in King County](https://news.yahoo.com/5-cyclists-attacked-cougar-king-232931098.html)
 <!-- feed end -->
 
 ### Onstream
