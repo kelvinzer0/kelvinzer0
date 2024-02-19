@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 19 - [Arrests made after girl's body found encased in concrete and boy's remains in a suitcase](https://news.yahoo.com/arrests-made-girls-body-found-003237156.html)
 - Feb 19 - [People Are Sharing The "Scary And Overwhelming" Realities Of Eldercare In The US, And It's Heartbreaking](https://www.yahoo.com/lifestyle/people-sharing-scary-overwhelming-realities-003102046.html)
+- Feb 18 - [1968‘s Romeo & Juliet’ stars Olivia Hussey and Leonard Whiting file new lawsuit over underage nude scene](https://www.yahoo.com/entertainment/1968-romeo-juliet-stars-olivia-232411056.html)
 - Feb 18 - [Teen at Indiana car wash sprays rude customer with water after lemonade thrown at her](https://news.yahoo.com/teen-indiana-car-wash-sprays-211404073.html)
 - Feb 18 - [Mexicans turn out in droves to 'protect democracy' ahead of elections](https://news.yahoo.com/mexicans-turn-droves-protect-democracy-203107353.html)
-- Feb 18 - [New presidential rankings place Obama in top 10, Reagan and Trump below Biden](https://news.yahoo.com/presidential-rankings-place-obama-top-192829867.html)
 <!-- feed end -->
 
 ### Onstream
