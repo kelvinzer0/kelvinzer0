@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 19 - [Americans Are Still Posting The "European Mind Can't Comprehend" Memes, And They'e Still Very, Very Funny](https://www.yahoo.com/lifestyle/americans-still-posting-european-mind-183208252.html)
+- Feb 19 - [In post about dead Russian opposition leader Navalny, Trump talks of his own legal problems](https://news.yahoo.com/post-dead-russian-opposition-leader-193124078.html)
+- Feb 19 - [Mom dies trying to save her 3 kids from raging fire, family says. ‘Lost without her’](https://news.yahoo.com/mom-dies-trying-save-her-184949470.html)
+- Feb 19 - [Americans Are Still Posting The "European Mind Can't Comprehend" Memes, And They're Still Very, Very Funny](https://www.yahoo.com/lifestyle/americans-still-posting-european-mind-183208252.html)
 - Feb 19 - [Grant Cardone Says Earning $400,000 A Year Would 'Embarrass' Him As A Husband, Father And Human Being — 'How Do You Make Sense Of $35,000 A Month?'](https://finance.yahoo.com/news/grant-cardone-says-earning-400-181312003.html)
 - Feb 19 - ['Who In The World Left You $50 Million' — Dave Ramsey Shocked By Massive Inheritance](https://finance.yahoo.com/news/world-left-50-million-dave-180015503.html)
-- Feb 19 - [Deputy Texted Wife About Making His First Arrest Before Crashing into Tennessee River, District Attorney Says](https://www.yahoo.com/entertainment/deputy-texted-wife-making-first-174857354.html)
-- Feb 19 - [Ukrainian intelligence: Russian pilot who defected to Ukraine found dead in Spain](https://news.yahoo.com/ukrainian-intelligence-russian-pilot-defected-171905577.html)
 <!-- feed end -->
 
 ### Onstream
