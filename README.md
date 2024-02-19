@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [Ex-Trump Org Exec Predicts Exactly How Trump Will Capitalize On $355 Million Ruling](https://news.yahoo.com/ex-trump-org-exec-predicts-080116263.html)
+- Feb 19 - [Chinese fishing vessels are going scorched earth and pumping cyanide into contested waters, Philippine fishing authority says](https://news.yahoo.com/chinese-fishing-vessels-going-scorched-065146043.html)
 - Feb 19 - [Fox News Report On Trump's Dismal Ranking Gets The Treatment  From Critics](https://news.yahoo.com/fox-news-report-trumps-dismal-063325086.html)
 - Feb 19 - [Israel's six-week drive to hit Hamas in Rafah and scale back war](https://news.yahoo.com/israels-six-week-drive-hit-061402847.html)
-- Feb 19 - [Abortion rights could complicate Republican Larry Hogan's Senate bid in deep blue Maryland](https://news.yahoo.com/abortion-rights-could-complicate-republican-051137203.html)
 - Feb 19 - [WikiLeaks founder Assange may be near the end of his long fight to stay out of the US](https://news.yahoo.com/wikileaks-founder-assange-may-near-050423727.html)
-- Feb 19 - [US admiral says the fight against the Houthis in the Red Sea is the largest battle the Navy's fought since World War II](https://news.yahoo.com/us-admiral-says-fight-against-032505049.html)
 <!-- feed end -->
 
 ### Onstream
