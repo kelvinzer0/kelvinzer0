@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [‘You have a lifestyle that’s absolutely asinine’: Florida couple live paycheck to paycheck despite earning $138,000 every year. Dave Ramsey calls them ‘broke’ people with spending issues](https://finance.yahoo.com/news/lifestyle-absolutely-asinine-florida-couple-123300642.html)
+- Feb 19 - [Exclusive-Turkish-Russian trade hit by fresh US sanctions threat](https://finance.yahoo.com/news/exclusive-turkish-russian-trade-hit-123159500.html)
+- Feb 19 - [Ukrainian businesses fear new mobilisation law could paralyse economy](https://finance.yahoo.com/news/ukrainian-businesses-fear-mobilisation-law-122832643.html)
+- Feb 19 - [Qatar criticises Israel's Netanyahu over pressure on Hamas to release hostages](https://news.yahoo.com/qatar-criticises-israels-netanyahu-over-120947575.html)
 - Feb 19 - [Stalled US aid for Ukraine underscores GOP's shift away from confronting Russia](https://news.yahoo.com/stalled-us-aid-ukraine-underscores-120455435.html)
-- Feb 19 - ['In my defense, there is no defense': This 'e-girl' spends $1,000/month paying off debt — and she’s among the millions of Americans who owe back taxes. Caleb Hammer has a dire warning for her](https://finance.yahoo.com/news/defense-no-defense-22-old-120000791.html)
-- Feb 19 - [Trump-branded properties are selling for far less than buildings that removed his name, report says](https://news.yahoo.com/trump-branded-properties-selling-far-111003446.html)
-- Feb 19 - [Lara Trump's Plan For RNC Is Utterly Shredded By Former Chair](https://news.yahoo.com/lara-trumps-plan-rnc-utterly-110040964.html)
-- Feb 19 - [Graham’s U-turns have Senate colleagues fed up: ‘Annoying,’ ‘tiresome’](https://news.yahoo.com/graham-u-turns-senate-colleagues-110000608.html)
 <!-- feed end -->
 
 ### Onstream
