@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [Tractors roll into downtown Prague as Czech farmers join protests](https://news.yahoo.com/tractors-roll-downtown-prague-czech-102835479.html)
+- Feb 19 - [Brazil's Lula unwelcome in Israel until he retracts Holocaust remarks, minister says](https://news.yahoo.com/brazils-lula-not-welcome-israel-102729250.html)
 - Feb 19 - [Why the Fed now finds itself on a collision course with the 2024 election](https://finance.yahoo.com/news/why-the-fed-now-finds-itself-on-a-collision-course-with-the-2024-election-124357889.html)
 - Feb 19 - [Eric Trump Mocked Over Brazenly False Claim About His Father In New York](https://news.yahoo.com/eric-trump-mocked-over-brazenly-091828826.html)
-- Feb 19 - [The keeper of the Vatican’s secrets is retiring. Here’s what he wants you to know](https://news.yahoo.com/keeper-vatican-secrets-retiring-wants-090357472.html)
-- Feb 19 - [Ex-Trump Org Exec Predicts Exactly How Trump Will Capitalize On $355 Million Ruling](https://news.yahoo.com/ex-trump-org-exec-predicts-080116263.html)
-- Feb 19 - [Carnival canceled a woman's ticket and refused to refund her because she was 26 weeks pregnant: report](https://news.yahoo.com/carnival-canceled-womans-ticket-refused-073840165.html)
+- Feb 19 - [January economic data challenges soft landing narrative](https://finance.yahoo.com/news/january-economic-data-challenges-soft-landing-narrative-090058758.html)
 <!-- feed end -->
 
 ### Onstream
