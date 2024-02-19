@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 19 - [Dutch government says China seeks military advantage from ASML tools](https://www.yahoo.com/tech/dutch-government-says-china-seeks-150037928.html)
+- Feb 19 - [7 Things the Middle Class Won’t Be Able To Afford in the Next 5 Years](https://finance.yahoo.com/news/7-things-middle-class-won-150007805.html)
+- Feb 19 - [Taliban set unacceptable conditions for attending a UN meeting, says UN secretary-general](https://news.yahoo.com/taliban-set-unacceptable-conditions-attending-144518124.html)
 - Feb 19 - [Michael Cohen Describes 1 Of His 'Biggest Fears' About Trump Being Behind Bars](https://news.yahoo.com/michael-cohen-describes-1-biggest-143128224.html)
 - Feb 19 - [Trump breaks silence on Navalny, casts no blame on Putin](https://news.yahoo.com/trump-breaks-silence-navalny-casts-134238123.html)
-- Feb 19 - [Houthi missiles strike British bulk carrier in Red Sea, forcing crew to abandon ship](https://news.yahoo.com/houthi-missiles-strike-british-bulk-132150802.html)
-- Feb 19 - [China coast guard boarded Taiwanese boat near frontline islands, Taiwan says](https://news.yahoo.com/china-coast-guard-boarded-taiwanese-131640591.html)
 <!-- feed end -->
 
 ### Onstream
