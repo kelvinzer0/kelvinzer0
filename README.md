@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [Israeli military says it has recovered footage of hostage mother and children](https://news.yahoo.com/israeli-military-says-recovered-footage-174316498.html)
+- Feb 19 - [Ukrainian intelligence: Russian pilot who defected to Ukraine found dead in Spain](https://news.yahoo.com/ukrainian-intelligence-russian-pilot-defected-171905577.html)
+- Feb 19 - [Cybertruck engineer addresses claims the Tesla EVs rust in the rain](https://news.yahoo.com/cybertruck-engineer-addresses-claims-tesla-171353917.html)
+- Feb 19 - [Virginia bank delays plans to auction land at resort owned by West Virginia governor's family](https://news.yahoo.com/virginia-bank-delays-plans-auction-170841250.html)
 - Feb 19 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
-- Feb 19 - [What's happening in eastern Congo and why aid groups are warning of a new humanitarian crisis](https://news.yahoo.com/whats-happening-eastern-congo-why-163948601.html)
-- Feb 19 - [It’s taken just five years for Ursula von der Leyen to destroy Europe’s economy](https://news.yahoo.com/taken-just-five-years-ursula-162907755.html)
-- Feb 19 - [Man who shot Burnsville officers and firefighter tried to have gun rights restored after assault conviction](https://news.yahoo.com/man-fatally-shot-burnsville-officers-155100954.html)
-- Feb 19 - [2 passenger planes hit over 800 mph on recent flights due to strong winds. That's over 200 mph more than a typical plane ride.](https://news.yahoo.com/2-passenger-planes-hit-over-155009611.html)
 <!-- feed end -->
 
 ### Onstream
