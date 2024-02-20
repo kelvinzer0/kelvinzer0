@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Houthis shoot down US MQ-9 Reaper drone flying near Yemen](https://news.yahoo.com/houthis-shoot-down-us-mq-180000697.html)
-- Feb 20 - [Giuliani can fight $148 million defamation verdict -- so long as someone else pays](https://news.yahoo.com/giuliani-fight-148-million-defamation-202313889.html)
+- Feb 20 - [Letitia James says she's prepared to seize Trump's buildings if he can't pay his $354M civil fraud fine](https://news.yahoo.com/letitia-james-says-shes-prepared-215055380.html)
+- Feb 20 - [Unions oppose plan to move NBA, NHL teams to northern Virginia, another blow to Youngkin-backed deal](https://sports.yahoo.com/unions-oppose-plan-move-nba-214705509.html)
+- Feb 20 - [Body of 11-Year-Old Texas Girl Who Vanished on Way to School Reportedly Found in River](https://news.yahoo.com/body-11-old-texas-girl-214630366.html)
 - Feb 20 - [2 adults are charged with murder in the deadly shooting at Kansas City's Super Bowl celebration](https://news.yahoo.com/2-adults-charged-murder-deadly-200916997.html)
-- Feb 20 - [Russia's air force took control of the skies before seizing victory in a front-line fight, and it could be 'devastating' for Ukraine if it continues, war experts say](https://news.yahoo.com/russias-air-force-took-control-195949807.html)
-- Feb 20 - [7 Trump losses in a row, and counting](https://finance.yahoo.com/news/7-trump-losses-in-a-row-and-counting-195434518.html)
+- Feb 20 - [Russia apparently got control of the skies before seizing victory in a front-line fight, and it could be 'devastating' for Ukraine if it continues, war experts say](https://news.yahoo.com/russias-air-force-took-control-195949807.html)
 <!-- feed end -->
 
 ### Onstream
