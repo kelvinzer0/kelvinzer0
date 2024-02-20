@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Pet Gila monster bites man, who dies in what experts call a "rare event"](https://news.yahoo.com/pet-gila-monster-bites-man-000000548.html)
-- Feb 20 - [Ill. Man Gets Life for Drowning 3 Kids After Leaving Note for Wife: 'If I Can't Have Them Neither Can You'](https://www.yahoo.com/entertainment/ill-man-gets-life-drowning-163909730.html)
-- Feb 20 - ["Really ironic": Analyst warns Trump's $400 golden sneaker drop "could be a lawsuit in the making"](https://news.yahoo.com/really-ironic-analyst-warns-trumps-153202030.html)
-- Feb 20 - [Supreme Court rejects appeal from 3 GOP House members over $500 mask fines](https://news.yahoo.com/supreme-court-rejects-appeal-3-151357020.html)
-- Feb 20 - [Ecuador’s most notorious gang leader lived ‘like a king’ while locked up. His jailbreak shines a light on the country’s lawless prisons](https://news.yahoo.com/ecuador-most-notorious-gang-leader-130024133.html)
+- Feb 20 - [Watch: Ukrainian drones destroy tens of million pounds’ worth of Russian vehicles, tanks and guns](https://news.yahoo.com/watch-ukrainian-drones-destroy-tens-175231054.html)
+- Feb 20 - ['It's an absolute war zone': Kevin O'Leary blasts California as the worst managed, least competitive state in America and calls San Francisco 'a rat hole.' Why he's hating on the Golden State](https://finance.yahoo.com/news/absolute-war-zone-kevin-oleary-173100215.html)
+- Feb 20 - [Judge to set prison sentences for YouTube mom Ruby Franke and business partner in child abuse case](https://news.yahoo.com/judge-set-prison-sentences-youtube-172529783.html)
+- Feb 20 - [Putin says Russia will push further into Ukraine after 'chaotic' fall of Avdiivka](https://news.yahoo.com/putin-says-russia-push-further-171228953.html)
+- Feb 20 - [Mask mandates? Supreme Court rejects appeal from Marjorie Taylor Greene, GOP lawmakers](https://news.yahoo.com/mask-mandates-supreme-court-rejects-170124702.html)
 <!-- feed end -->
 
 ### Onstream
