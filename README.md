@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 20 - [Pet Gila monster bites man, who dies in what experts call a "rare event"](https://news.yahoo.com/pet-gila-monster-bites-man-000000548.html)
+- Feb 20 - [Ill. Man Gets Life for Drowning 3 Kids After Leaving Note for Wife: 'If I Can't Have Them Neither Can You'](https://www.yahoo.com/entertainment/ill-man-gets-life-drowning-163909730.html)
+- Feb 20 - ["Really ironic": Analyst warns Trump's $400 golden sneaker drop "could be a lawsuit in the making"](https://news.yahoo.com/really-ironic-analyst-warns-trumps-153202030.html)
 - Feb 20 - [Supreme Court rejects appeal from 3 GOP House members over $500 mask fines](https://news.yahoo.com/supreme-court-rejects-appeal-3-151357020.html)
-- Feb 20 - [Biden wants people to know most of the money he's seeking for Ukraine would be spent in the US](https://news.yahoo.com/biden-wants-people-know-most-150130669.html)
-- Feb 20 - [Are You Richer Than You Think? A Surprising Number Of People Consider Themselves 'Poor' But They're Actually In The Top 10% Of Earners](https://finance.yahoo.com/news/richer-think-surprising-number-people-150013478.html)
-- Feb 20 - [Supreme Court declines to undo sanctions on pro-Trump 2020 campaign lawyers](https://news.yahoo.com/supreme-court-declines-undo-sanctions-144811373.html)
-- Feb 20 - [A large prehistoric-looking fish was just found off Florida. Can you eat it for dinner?](https://news.yahoo.com/large-prehistoric-looking-fish-just-144649797.html)
+- Feb 20 - [Ecuador’s most notorious gang leader lived ‘like a king’ while locked up. His jailbreak shines a light on the country’s lawless prisons](https://news.yahoo.com/ecuador-most-notorious-gang-leader-130024133.html)
 <!-- feed end -->
 
 ### Onstream
