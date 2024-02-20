@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [GoFundMe Addresses Calls To Halt Donald Trump Fundraiser Launched To Pay $355M Fine](https://www.yahoo.com/entertainment/gofundme-addresses-calls-halt-donald-235845264.html)
+- Feb 19 - [Rumor Claims Sneaker Con Crowd Booed Trump and Chanted 'Let's Go Biden.' Here Are the Facts](https://news.yahoo.com/rumor-claims-sneaker-con-crowd-234100906.html)
+- Feb 19 - [The Russian pilot who defected to Ukraine with an Mi-8 helicopter was shot to death in Spain](https://news.yahoo.com/russian-pilot-defected-ukraine-mi-225126908.html)
 - Feb 19 - [North Korea's Kim Jong Un receives car as gift from Putin - KCNA](https://news.yahoo.com/north-koreas-kim-jong-un-222300898.html)
-- Feb 19 - [US tourist admits raping and murdering hiker he threw into German ravine](https://news.yahoo.com/us-tourist-admits-raping-murdering-212731104.html)
-- Feb 19 - [Google Lays Off Thousands More Employees Despite Record Profits One Year After Laying off 12,000 Employees As Workers Begin Worrying AI is Slowly Replacing Them](https://finance.yahoo.com/news/google-lays-off-thousands-more-210822278.html)
-- Feb 19 - [Mark Cuban Says ‘Don’t Apply for a Job With Me’ Without This Valuable Asset — Why It Matters to Employers](https://finance.yahoo.com/news/mark-cuban-says-don-t-173218379.html)
-- Feb 19 - [Largest-ever COVID vaccine study links shot to small increase in heart and brain conditions](https://news.yahoo.com/largest-ever-covid-vaccine-study-203626142.html)
+- Feb 19 - [Fact Check: About That Viral Pic Showing Neo-Nazis with Swastika Flags at the Tennessee State Capitol](https://news.yahoo.com/fact-check-viral-pic-showing-220900199.html)
 <!-- feed end -->
 
 ### Onstream
