@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 20 - [World's tallest man and smallest woman reunite](https://news.yahoo.com/worlds-tallest-man-smallest-woman-232800606.html)
+- Feb 20 - [A Tiny Detail In Mike Johnson's Picture Tribute To Donald Trump Has People Howling](https://news.yahoo.com/tiny-detail-mike-johnsons-picture-080717607.html)
 - Feb 20 - [Marjorie Taylor Greene's Presidents' Day Post On Trump Prompts 1 Hell Of An Awkward Reply](https://news.yahoo.com/marjorie-taylor-greenes-presidents-day-071539200.html)
 - Feb 20 - [Nancy Pelosi Has Damning Theory About Why Trump's So Afraid Of Putin](https://news.yahoo.com/nancy-pelosi-damning-theory-why-071143778.html)
 - Feb 20 - [Kayleigh McEnany Gets Blunt History Lesson After Her Meltdown Over Trump Ranking](https://news.yahoo.com/kayleigh-mcenany-gets-blunt-history-060007805.html)
-- Feb 20 - [Salt Bae's London restaurant, which charges $850 for steak, cuts heating during peak hours to save money](https://news.yahoo.com/salt-baes-london-restaurant-charges-054722116.html)
-- Feb 20 - [Welcome to the 'Hotel California' case: The trial over handwritten lyrics to an Eagles classic](https://news.yahoo.com/welcome-hotel-california-case-trial-050933407.html)
 <!-- feed end -->
 
 ### Onstream
