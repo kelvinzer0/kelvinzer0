@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 20 - [Supreme Court rejects appeal from 3 GOP House members over $500 mask fines](https://news.yahoo.com/supreme-court-rejects-appeal-3-151357020.html)
+- Feb 20 - [Biden wants people to know most of the money he's seeking for Ukraine would be spent in the US](https://news.yahoo.com/biden-wants-people-know-most-150130669.html)
+- Feb 20 - [Are You Richer Than You Think? A Surprising Number Of People Consider Themselves 'Poor' But They're Actually In The Top 10% Of Earners](https://finance.yahoo.com/news/richer-think-surprising-number-people-150013478.html)
+- Feb 20 - [Supreme Court declines to undo sanctions on pro-Trump 2020 campaign lawyers](https://news.yahoo.com/supreme-court-declines-undo-sanctions-144811373.html)
 - Feb 20 - [A large prehistoric-looking fish was just found off Florida. Can you eat it for dinner?](https://news.yahoo.com/large-prehistoric-looking-fish-just-144649797.html)
-- Feb 20 - [DA Fani Willis testified she paid cash during trips with top prosecutor. One winery host remembers her paying in paper bills](https://news.yahoo.com/da-fani-willis-testified-she-110023645.html)
-- Feb 20 - [Trump’s plan to disappear millions](https://news.yahoo.com/trump-plan-disappear-millions-140006682.html)
-- Feb 20 - [School worker with ‘far reaching’ impact dies after classroom accident, officials say](https://news.yahoo.com/school-worker-far-reaching-impact-133649120.html)
-- Feb 20 - [Watch: Deputy rescues two children, mother from wreck after motorcyclist whizzed by](https://news.yahoo.com/watch-deputy-rescues-two-children-132642939.html)
 <!-- feed end -->
 
 ### Onstream
