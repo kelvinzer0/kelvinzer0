@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [7 Trump losses in a row, and counting](https://finance.yahoo.com/news/7-trump-losses-in-a-row-and-counting-195434518.html)
-- Feb 20 - [Netanyahu says Israel won't 'pay any price' for release of Gaza hostages](https://news.yahoo.com/netanyahu-says-israel-wont-pay-181430776.html)
 - Feb 20 - [Houthis shoot down US MQ-9 Reaper drone flying near Yemen](https://news.yahoo.com/houthis-shoot-down-us-mq-180000697.html)
-- Feb 20 - [Ruby Franke, sobbing at sentencing, blames child abuse on being 'deceived' into thinking the world was 'evil'](https://www.yahoo.com/entertainment/ruby-franke-sobbing-sentencing-blames-175616112.html)
-- Feb 20 - [Watch: Ukrainian drones destroy Russian armoured vehicles, tanks and guns](https://news.yahoo.com/watch-ukrainian-drones-destroy-tens-175231054.html)
+- Feb 20 - [Giuliani can fight $148 million defamation verdict -- so long as someone else pays](https://news.yahoo.com/giuliani-fight-148-million-defamation-202313889.html)
+- Feb 20 - [2 adults are charged with murder in the deadly shooting at Kansas City's Super Bowl celebration](https://news.yahoo.com/2-adults-charged-murder-deadly-200916997.html)
+- Feb 20 - [Russia's air force took control of the skies before seizing victory in a front-line fight, and it could be 'devastating' for Ukraine if it continues, war experts say](https://news.yahoo.com/russias-air-force-took-control-195949807.html)
+- Feb 20 - [7 Trump losses in a row, and counting](https://finance.yahoo.com/news/7-trump-losses-in-a-row-and-counting-195434518.html)
 <!-- feed end -->
 
 ### Onstream
