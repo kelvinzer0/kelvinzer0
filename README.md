@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 20 - [7 Trump losses in a row, and counting](https://finance.yahoo.com/news/7-trump-losses-in-a-row-and-counting-195434518.html)
+- Feb 20 - [Netanyahu says Israel won't 'pay any price' for release of Gaza hostages](https://news.yahoo.com/netanyahu-says-israel-wont-pay-181430776.html)
 - Feb 20 - [Houthis shoot down US MQ-9 Reaper drone flying near Yemen](https://news.yahoo.com/houthis-shoot-down-us-mq-180000697.html)
-- Feb 20 - [Ruby Franke, sobbing at sentencing, blames child abuse on being 'deceived' into thinking the world was 'evil'](https://news.yahoo.com/ruby-franke-sobbing-sentencing-blames-175616112.html)
-- Feb 20 - [Watch: Ukrainian drones destroy tens of million pounds’ worth of Russian vehicles, tanks and guns](https://news.yahoo.com/watch-ukrainian-drones-destroy-tens-175231054.html)
-- Feb 20 - [Legal expert warns delay by Judge Cannon could badly backfire on Trump](https://news.yahoo.com/legal-expert-warns-delay-judge-173103427.html)
-- Feb 20 - ['It's an absolute war zone': Kevin O'Leary blasts California as the worst managed, least competitive state in America and calls San Francisco 'a rat hole.' Why he's hating on the Golden State](https://finance.yahoo.com/news/absolute-war-zone-kevin-oleary-173100215.html)
+- Feb 20 - [Ruby Franke, sobbing at sentencing, blames child abuse on being 'deceived' into thinking the world was 'evil'](https://www.yahoo.com/entertainment/ruby-franke-sobbing-sentencing-blames-175616112.html)
+- Feb 20 - [Watch: Ukrainian drones destroy Russian armoured vehicles, tanks and guns](https://news.yahoo.com/watch-ukrainian-drones-destroy-tens-175231054.html)
 <!-- feed end -->
 
 ### Onstream
