@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 20 - [Houthis shoot down US MQ-9 Reaper drone flying near Yemen](https://news.yahoo.com/houthis-shoot-down-us-mq-180000697.html)
+- Feb 20 - [Ruby Franke, sobbing at sentencing, blames child abuse on being 'deceived' into thinking the world was 'evil'](https://news.yahoo.com/ruby-franke-sobbing-sentencing-blames-175616112.html)
 - Feb 20 - [Watch: Ukrainian drones destroy tens of million pounds’ worth of Russian vehicles, tanks and guns](https://news.yahoo.com/watch-ukrainian-drones-destroy-tens-175231054.html)
+- Feb 20 - [Legal expert warns delay by Judge Cannon could badly backfire on Trump](https://news.yahoo.com/legal-expert-warns-delay-judge-173103427.html)
 - Feb 20 - ['It's an absolute war zone': Kevin O'Leary blasts California as the worst managed, least competitive state in America and calls San Francisco 'a rat hole.' Why he's hating on the Golden State](https://finance.yahoo.com/news/absolute-war-zone-kevin-oleary-173100215.html)
-- Feb 20 - [Judge to set prison sentences for YouTube mom Ruby Franke and business partner in child abuse case](https://news.yahoo.com/judge-set-prison-sentences-youtube-172529783.html)
-- Feb 20 - [Putin says Russia will push further into Ukraine after 'chaotic' fall of Avdiivka](https://news.yahoo.com/putin-says-russia-push-further-171228953.html)
-- Feb 20 - [Mask mandates? Supreme Court rejects appeal from Marjorie Taylor Greene, GOP lawmakers](https://news.yahoo.com/mask-mandates-supreme-court-rejects-170124702.html)
 <!-- feed end -->
 
 ### Onstream
