@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Taiwan minister says China coast guard triggers panic by boarding Taiwan tourist boat](https://news.yahoo.com/taiwan-minister-says-china-coast-022135628.html)
+- Feb 20 - [Taiwan says China triggered 'panic' by boarding tourist boat](https://news.yahoo.com/taiwan-minister-says-china-coast-022135628.html)
 - Feb 20 - [How a Chinese rocket failure boosted Elon Musk's SpaceX in Indonesia](https://finance.yahoo.com/news/chinese-rocket-failure-boosted-elon-020609416.html)
 - Feb 20 - [Pet Gila monster bites man, who dies in what experts call a "rare event"](https://news.yahoo.com/pet-gila-monster-bites-man-000000548.html)
 - Feb 20 - [Kevin O’Leary says he will no longer invest in ‘loser’ New York after Trump verdict](https://news.yahoo.com/kevin-o-leary-says-no-011729242.html)
-- Feb 20 - [Trump’s Final Hours in Office Were Consumed With Fury at Snoop Dogg](https://news.yahoo.com/trump-final-hours-office-were-010000284.html)
+- Feb 20 - [Bed bugs found at 4 Las Vegas Strip hotels in past 5 months](https://news.yahoo.com/bed-bugs-found-4-las-010101704.html)
 <!-- feed end -->
 
 ### Onstream
