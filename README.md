@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 20 - [Kayleigh McEnany Gets Blunt History Lesson After Her Meltdown Over Trump Ranking](https://news.yahoo.com/kayleigh-mcenany-gets-blunt-history-060007805.html)
+- Feb 20 - [Welcome to the 'Hotel California' case: The trial over handwritten lyrics to an Eagles classic](https://news.yahoo.com/welcome-hotel-california-case-trial-050933407.html)
+- Feb 20 - [As the Ukraine war enters a third year, Putin waits for Western support for Kyiv to wither](https://news.yahoo.com/ukraine-war-enters-third-putin-050717085.html)
+- Feb 20 - [California car-buying scam hits Placer and Sacramento County](https://news.yahoo.com/california-car-buying-scam-hits-031231155.html)
 - Feb 20 - [A lost 22-page transcript discovered at the National Archives reveals the secret history of how Abraham Lincoln pardoned Joe Biden's ancestor](https://news.yahoo.com/lost-22-page-transcript-discovered-023604829.html)
-- Feb 20 - [Taiwan says China triggered 'panic' by boarding tourist boat](https://news.yahoo.com/taiwan-minister-says-china-coast-022135628.html)
-- Feb 20 - [Pet Gila monster bites man, who dies in what experts call a "rare event"](https://news.yahoo.com/pet-gila-monster-bites-man-000000548.html)
-- Feb 20 - [Bed bugs found at 4 Las Vegas Strip hotels in past 5 months](https://news.yahoo.com/bed-bugs-found-4-las-010101704.html)
-- Feb 20 - [Trump’s Final Hours in Office Were Consumed With Fury at Snoop Dogg](https://news.yahoo.com/trump-final-hours-office-were-010000284.html)
 <!-- feed end -->
 
 ### Onstream
