@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 20 - [Kayleigh McEnany Gets Blunt History Lesson After Her Meltdown Over Trump Ranking](https://news.yahoo.com/kayleigh-mcenany-gets-blunt-history-060007805.html)
+- Feb 20 - [Salt Bae's London restaurant, which charges $850 for steak, cuts heating during peak hours to save money](https://news.yahoo.com/salt-baes-london-restaurant-charges-054722116.html)
 - Feb 20 - [Welcome to the 'Hotel California' case: The trial over handwritten lyrics to an Eagles classic](https://news.yahoo.com/welcome-hotel-california-case-trial-050933407.html)
-- Feb 20 - [As the Ukraine war enters a third year, Putin waits for Western support for Kyiv to wither](https://news.yahoo.com/ukraine-war-enters-third-putin-050717085.html)
 - Feb 20 - [California car-buying scam hits Placer and Sacramento County](https://news.yahoo.com/california-car-buying-scam-hits-031231155.html)
-- Feb 20 - [A lost 22-page transcript discovered at the National Archives reveals the secret history of how Abraham Lincoln pardoned Joe Biden's ancestor](https://news.yahoo.com/lost-22-page-transcript-discovered-023604829.html)
+- Feb 20 - [Customers evacuate Seattle business after people smoke drugs inside bathroom for nearly an hour](https://news.yahoo.com/customers-evacuate-seattle-business-people-025034315.html)
 <!-- feed end -->
 
 ### Onstream
