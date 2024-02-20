@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [World's tallest man and smallest woman reunite](https://news.yahoo.com/worlds-tallest-man-smallest-woman-232800606.html)
-- Feb 20 - [A Tiny Detail In Mike Johnson's Picture Tribute To Donald Trump Has People Howling](https://news.yahoo.com/tiny-detail-mike-johnsons-picture-080717607.html)
-- Feb 20 - [Marjorie Taylor Greene's Presidents' Day Post On Trump Prompts 1 Hell Of An Awkward Reply](https://news.yahoo.com/marjorie-taylor-greenes-presidents-day-071539200.html)
-- Feb 20 - [Nancy Pelosi Has Damning Theory About Why Trump's So Afraid Of Putin](https://news.yahoo.com/nancy-pelosi-damning-theory-why-071143778.html)
-- Feb 20 - [Kayleigh McEnany Gets Blunt History Lesson After Her Meltdown Over Trump Ranking](https://news.yahoo.com/kayleigh-mcenany-gets-blunt-history-060007805.html)
+- Feb 20 - [Surging rocket motor demand drives Pentagon to buy from tiny Ursa Major](https://finance.yahoo.com/news/surging-rocket-motor-demand-drives-112219599.html)
+- Feb 20 - [‘Quit entertaining these crazy-butt ideas’: This South Carolina teacher earns $158K and is very close to retirement, paid-off home — but is considering more debt for renovations. Should she?](https://finance.yahoo.com/news/quit-entertaining-crazy-butt-ideas-110300106.html)
+- Feb 20 - [Putin Ally’s Son Drops Dead at 35 in Bizarre Circumstances](https://news.yahoo.com/putin-ally-son-drops-dead-110101336.html)
+- Feb 20 - [DA Fani Willis testified she paid cash during trips with top prosecutor. One winery host remembers her paying in paper bills](https://news.yahoo.com/da-fani-willis-testified-she-110023645.html)
+- Feb 20 - [Parkland Survivor Trolls Donald Trump Fans With Online Sneaker Stunt](https://news.yahoo.com/parkland-survivor-trolls-donald-trump-092255572.html)
 <!-- feed end -->
 
 ### Onstream
