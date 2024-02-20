@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Russia is rebuilding capacity to destabilize European countries, new UK report says](https://news.yahoo.com/russia-rebuilding-capacity-destabilize-european-123704547.html)
+- Feb 20 - [Fed to cut US rates in June, risks skewed towards later move: Reuters poll](https://finance.yahoo.com/news/fed-cut-us-rates-june-134409691.html)
+- Feb 20 - [School worker with ‘far reaching’ impact dies after classroom accident, officials say](https://news.yahoo.com/school-worker-far-reaching-impact-133649120.html)
+- Feb 20 - [DA Fani Willis testified she paid cash during trips with top prosecutor. One winery host remembers her paying in paper bills](https://news.yahoo.com/da-fani-willis-testified-she-110023645.html)
+- Feb 20 - [MAGA Trucker Does A 180 After Trying To Start A Boycott Of NYC Over Donald Trump’s $355M Fine](https://www.yahoo.com/entertainment/maga-trucker-does-180-trying-123056407.html)
 - Feb 20 - [People Are Sharing Their Wildest Stories About *That One Coworker*, And They Range From Horrifying To Completely Unhinged](https://www.yahoo.com/lifestyle/people-sharing-wildest-stories-one-121602270.html)
-- Feb 20 - [Surging rocket motor demand drives Pentagon to buy from tiny Ursa Major](https://finance.yahoo.com/news/surging-rocket-motor-demand-drives-112219599.html)
-- Feb 20 - [‘Quit entertaining these crazy-butt ideas’: This South Carolina teacher earns $158K and is very close to retirement, paid-off home — but is considering more debt for renovations. Should she?](https://finance.yahoo.com/news/quit-entertaining-crazy-butt-ideas-110300106.html)
-- Feb 20 - [Putin Ally’s Son Drops Dead at 35 in Bizarre Circumstances](https://news.yahoo.com/putin-ally-son-drops-dead-110101336.html)
 <!-- feed end -->
 
 ### Onstream
