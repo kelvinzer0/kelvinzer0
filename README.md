@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Fed to cut US rates in June, risks skewed towards later move: Reuters poll](https://finance.yahoo.com/news/fed-cut-us-rates-june-134409691.html)
-- Feb 20 - [School worker with ‘far reaching’ impact dies after classroom accident, officials say](https://news.yahoo.com/school-worker-far-reaching-impact-133649120.html)
+- Feb 20 - [A large prehistoric-looking fish was just found off Florida. Can you eat it for dinner?](https://news.yahoo.com/large-prehistoric-looking-fish-just-144649797.html)
 - Feb 20 - [DA Fani Willis testified she paid cash during trips with top prosecutor. One winery host remembers her paying in paper bills](https://news.yahoo.com/da-fani-willis-testified-she-110023645.html)
-- Feb 20 - [MAGA Trucker Does A 180 After Trying To Start A Boycott Of NYC Over Donald Trump’s $355M Fine](https://www.yahoo.com/entertainment/maga-trucker-does-180-trying-123056407.html)
-- Feb 20 - [People Are Sharing Their Wildest Stories About *That One Coworker*, And They Range From Horrifying To Completely Unhinged](https://www.yahoo.com/lifestyle/people-sharing-wildest-stories-one-121602270.html)
+- Feb 20 - [Trump’s plan to disappear millions](https://news.yahoo.com/trump-plan-disappear-millions-140006682.html)
+- Feb 20 - [School worker with ‘far reaching’ impact dies after classroom accident, officials say](https://news.yahoo.com/school-worker-far-reaching-impact-133649120.html)
+- Feb 20 - [Watch: Deputy rescues two children, mother from wreck after motorcyclist whizzed by](https://news.yahoo.com/watch-deputy-rescues-two-children-132642939.html)
 <!-- feed end -->
 
 ### Onstream
