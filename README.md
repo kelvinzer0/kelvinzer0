@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 20 - [Pet Gila monster bites man, who dies in what experts call a "rare event"](https://news.yahoo.com/pet-gila-monster-bites-man-000000548.html)
+- Feb 20 - [Kevin O’Leary says he will no longer invest in ‘loser’ New York after Trump verdict](https://news.yahoo.com/kevin-o-leary-says-no-011729242.html)
+- Feb 20 - [Trump’s Final Hours in Office Were Consumed With Fury at Snoop Dogg](https://news.yahoo.com/trump-final-hours-office-were-010000284.html)
+- Feb 20 - [Largest multicountry COVID study links vaccines to potential adverse effects](https://news.yahoo.com/largest-multicountry-covid-study-links-002327626.html)
 - Feb 19 - [GoFundMe Addresses Calls To Halt Donald Trump Fundraiser Launched To Pay $355M Fine](https://www.yahoo.com/entertainment/gofundme-addresses-calls-halt-donald-235845264.html)
-- Feb 19 - [Rumor Claims Sneaker Con Crowd Booed Trump and Chanted 'Let's Go Biden.' Here Are the Facts](https://news.yahoo.com/rumor-claims-sneaker-con-crowd-234100906.html)
-- Feb 19 - [The Russian pilot who defected to Ukraine with an Mi-8 helicopter was shot to death in Spain](https://news.yahoo.com/russian-pilot-defected-ukraine-mi-225126908.html)
-- Feb 19 - [North Korea's Kim Jong Un receives car as gift from Putin - KCNA](https://news.yahoo.com/north-koreas-kim-jong-un-222300898.html)
-- Feb 19 - [Fact Check: About That Viral Pic Showing Neo-Nazis with Swastika Flags at the Tennessee State Capitol](https://news.yahoo.com/fact-check-viral-pic-showing-220900199.html)
 <!-- feed end -->
 
 ### Onstream
