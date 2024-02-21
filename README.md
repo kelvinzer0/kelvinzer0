@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [King Charles 'Reduced to Tears' Over Response to His Cancer News as He Holds First Meeting with Prime Minister](https://www.yahoo.com/entertainment/king-charles-reduced-tears-over-183435898.html)
+- Feb 21 - [Fox News co-host ‘surprised’ by GOP’s ‘threshold for humiliation’ in Biden probe](https://news.yahoo.com/fox-news-co-host-surprised-194239140.html)
+- Feb 21 - ['Should I Forward The Photos And Videos To Teresa, Or Will You?' Airbnb Host Allegedly Sent A Guest's Wife Door-Cam Footage Of Him With Another Woman After A Negative Review And $960 Dispute](https://finance.yahoo.com/news/forward-photos-videos-teresa-airbnb-191135702.html)
 - Feb 21 - ['Excuse Me. What Fraud?' — Kevin O'Leary Says Civil Case Is 'Not About Trump Anymore' As New York Becomes A 'Flyover' State No One Wants To Invest In](https://finance.yahoo.com/news/excuse-fraud-kevin-oleary-says-175931770.html)
-- Feb 21 - ["But it's not true!": CNN reporter confronts Jim Jordan over indicted informant's debunked claims](https://news.yahoo.com/not-true-cnn-reporter-confronts-174521441.html)
 - Feb 21 - [Grant Cardone to Team: "Immediately Discontinue All Underwriting on New York City Real Estate"](https://finance.yahoo.com/news/grant-cardone-team-immediately-discontinue-173431156.html)
 - Feb 21 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
 <!-- feed end -->
