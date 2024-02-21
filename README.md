@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [Fox News co-host ‘surprised’ by GOP’s ‘threshold for humiliation’ in Biden probe](https://news.yahoo.com/fox-news-co-host-surprised-194239140.html)
-- Feb 21 - ['Should I Forward The Photos And Videos To Teresa, Or Will You?' Airbnb Host Allegedly Sent A Guest's Wife Door-Cam Footage Of Him With Another Woman After A Negative Review And $960 Dispute](https://finance.yahoo.com/news/forward-photos-videos-teresa-airbnb-191135702.html)
-- Feb 21 - ['Excuse Me. What Fraud?' — Kevin O'Leary Says Civil Case Is 'Not About Trump Anymore' As New York Becomes A 'Flyover' State No One Wants To Invest In](https://finance.yahoo.com/news/excuse-fraud-kevin-oleary-says-175931770.html)
-- Feb 21 - [Grant Cardone to Team: "Immediately Discontinue All Underwriting on New York City Real Estate"](https://finance.yahoo.com/news/grant-cardone-team-immediately-discontinue-173431156.html)
-- Feb 21 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
+- Feb 21 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
+- Feb 21 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
+- Feb 21 - [Sting](https://www.yahoo.com/entertainment/sting-050357276.html)
+- Feb 21 - [Girl who died in sand hole at Florida beach is identified; lifeguards could have prevented tragedy, experts say](https://news.yahoo.com/girl-died-sand-hole-florida-202700225.html)
+- Feb 21 - [Subway cellist says attack 'hurt like hell,' and now wants more protection for performers](https://news.yahoo.com/subway-cellist-says-attack-hurt-200836381.html)
 <!-- feed end -->
 
 ### Onstream
