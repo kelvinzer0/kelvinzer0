@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 21 - [Why Trump may soon rake in a $4 billion payday despite his legal problems](https://news.yahoo.com/why-trump-may-soon-rake-102001468.html)
+- Feb 21 - [‘Confused’ pensioner with Alzheimer’s died after being pushed in bank queue, court hears](https://news.yahoo.com/confused-pensioner-alzheimer-died-being-092818444.html)
 - Feb 21 - [Donald Trump's New Self-Proclaimed Status Has People Reaching For Dictionaries](https://news.yahoo.com/donald-trumps-self-proclaimed-status-091133517.html)
-- Feb 21 - [Ukraine's Armed Forces likely hit Russian training ground during formation, killing at least 60 soldiers – photo](https://news.yahoo.com/ukraines-armed-forces-likely-hit-072301669.html)
+- Feb 21 - [Ukraine's Armed Forces likely hit Russian training ground during inspection, killing at least 60 soldiers on parade – photo](https://news.yahoo.com/ukraines-armed-forces-likely-hit-072301669.html)
 - Feb 21 - [Ukraine outnumbered, outgunned, ground down by relentless Russia](https://news.yahoo.com/ukraine-outnumbered-outgunned-ground-down-070807747.html)
-- Feb 21 - [China-born Australian democracy blogger won't appeal suspended Chinese death sentence](https://news.yahoo.com/china-born-australian-democracy-blogger-041809870.html)
-- Feb 21 - [Flint man becomes first person charged under Michigan's new gun storage law](https://news.yahoo.com/flint-man-becomes-first-person-021359289.html)
 <!-- feed end -->
 
 ### Onstream
