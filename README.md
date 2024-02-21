@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [Dogs jump in stranger’s car — and won’t budge, Florida cops say. ‘Holding my car hostage’](https://news.yahoo.com/dogs-jump-stranger-car-won-152016063.html)
-- Feb 21 - [I have $1.5 million in stocks and bonds. I asked my broker to convert my bonds to cash. He didn’t and my portfolio fell by $100,000. Can I sue?](https://finance.yahoo.com/news/1-5-million-stocks-bonds-224600462.html)
-- Feb 21 - ['Win-win': A bill to eliminate taxes on Social Security benefits has been reintroduced — and it might keep the program afloat for 20 more years. Here's how](https://finance.yahoo.com/news/win-win-bill-eliminate-taxes-115000255.html)
-- Feb 21 - [7 signs you’re financially healthy even if you don't feel like it — how many do you have?](https://finance.yahoo.com/news/7-signs-financially-healthy-even-113600089.html)
-- Feb 21 - [‘I’ve never seen so many overdrafts!’: 24-year-old dropped steady jobs to pursue unprofitable gigs — doesn’t want to pay back $10,000 in student loans. Caleb Hammer thinks it’s delusional](https://finance.yahoo.com/news/ve-never-seen-many-overdrafts-111300263.html)
+- Feb 21 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
+- Feb 21 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
+- Feb 21 - [Warren Buffett Has Spent 70 Years Of His Life Married — His Advice: 'If You Want A Marriage To Last, Look For Someone With Low Expectations'](https://finance.yahoo.com/news/warren-buffett-spent-70-years-165313177.html)
+- Feb 21 - [Prepare for the battle between the President and the US Army](https://news.yahoo.com/us-army-prepared-destroy-democracy-163826673.html)
+- Feb 21 - [Eating bananas ‘is more effective at reducing blood pressure’ than cutting down on salt](https://news.yahoo.com/eating-bananas-more-effective-reducing-161500357.html)
 <!-- feed end -->
 
 ### Onstream
