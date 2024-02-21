@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [An Old Doctored Video of Trump’s ‘Wig’ Flying Off Recirculates](https://news.yahoo.com/old-doctored-video-trump-wig-142200231.html)
-- Feb 21 - [Young girl dies after 5-foot deep hole collapses in Florida beach tragedy](https://news.yahoo.com/young-girl-dies-5-foot-135006699.html)
-- Feb 21 - ['Just tell the honest truth!': Ramit Sethi slams Kevin O'Leary for repeating the tired trope of creating wealth by skipping coffee, says 'frugality' isn't the key to riches](https://finance.yahoo.com/news/just-tell-honest-truth-ramit-121400188.html)
+- Feb 21 - [Dogs jump in stranger’s car — and won’t budge, Florida cops say. ‘Holding my car hostage’](https://news.yahoo.com/dogs-jump-stranger-car-won-152016063.html)
+- Feb 21 - [I have $1.5 million in stocks and bonds. I asked my broker to convert my bonds to cash. He didn’t and my portfolio fell by $100,000. Can I sue?](https://finance.yahoo.com/news/1-5-million-stocks-bonds-224600462.html)
 - Feb 21 - ['Win-win': A bill to eliminate taxes on Social Security benefits has been reintroduced — and it might keep the program afloat for 20 more years. Here's how](https://finance.yahoo.com/news/win-win-bill-eliminate-taxes-115000255.html)
 - Feb 21 - [7 signs you’re financially healthy even if you don't feel like it — how many do you have?](https://finance.yahoo.com/news/7-signs-financially-healthy-even-113600089.html)
+- Feb 21 - [‘I’ve never seen so many overdrafts!’: 24-year-old dropped steady jobs to pursue unprofitable gigs — doesn’t want to pay back $10,000 in student loans. Caleb Hammer thinks it’s delusional](https://finance.yahoo.com/news/ve-never-seen-many-overdrafts-111300263.html)
 <!-- feed end -->
 
 ### Onstream
