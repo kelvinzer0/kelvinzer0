@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 21 - [Flint man becomes first person charged under Michigan's new gun storage law](https://news.yahoo.com/flint-man-becomes-first-person-021359289.html)
+- Feb 21 - ['Maniac' who brutally murdered sex worker with iron in NYC hotel arrested in Arizona: police](https://news.yahoo.com/maniac-brutally-murdered-sex-worker-013013531.html)
 - Feb 21 - [Chiefs Super Bowl rally shooting started because someone was "looking at" someone else](https://sports.yahoo.com/chiefs-super-bowl-rally-shooting-010841959.html)
 - Feb 21 - [Ecuador’s most notorious gang leader lived ‘like a king’ while locked up. His jailbreak shines a light on the country’s lawless prisons](https://news.yahoo.com/ecuador-most-notorious-gang-leader-130024133.html)
-- Feb 21 - [Donald Trump again compares his criminal indictments to imprisonment and death of Putin's top rival](https://news.yahoo.com/donald-trump-again-compares-criminal-005643274.html)
 - Feb 21 - [Gila monster 'Winston' bites, kills Colorado man who owned reptile as pet](https://news.yahoo.com/gila-monster-winston-bites-kills-002228880.html)
 <!-- feed end -->
 
