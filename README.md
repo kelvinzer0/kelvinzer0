@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 21 - [Nvidia’s Q4 earnings will be a referendum on the AI trade as revenue expected to jump 234%](https://finance.yahoo.com/news/nvidias-q4-earnings-will-be-a-referendum-on-the-ai-trade-as-revenue-expected-to-jump-234-125614234.html)
 - Feb 21 - ['Win-win': A bill to eliminate taxes on Social Security benefits has been reintroduced — and it might keep the program afloat for 20 more years. Here's how](https://finance.yahoo.com/news/win-win-bill-eliminate-taxes-115000255.html)
 - Feb 21 - [7 signs you’re financially healthy even if you don't feel like it — how many do you have?](https://finance.yahoo.com/news/7-signs-financially-healthy-even-113600089.html)
 - Feb 21 - [‘I’ve never seen so many overdrafts!’: 24-year-old dropped steady jobs to pursue unprofitable gigs — doesn’t want to pay back $10,000 in student loans. Caleb Hammer thinks it’s delusional](https://finance.yahoo.com/news/ve-never-seen-many-overdrafts-111300263.html)
 - Feb 21 - [A colorful new hurricane cone of uncertainty is coming, Florida. Take a look](https://news.yahoo.com/colorful-hurricane-cone-uncertainty-coming-103000831.html)
-- Feb 21 - [Why Trump may soon rake in a $4 billion payday despite his legal problems](https://news.yahoo.com/why-trump-may-soon-rake-102001468.html)
 <!-- feed end -->
 
 ### Onstream
