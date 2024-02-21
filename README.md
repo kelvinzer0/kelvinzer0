@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 21 - [King Charles 'Reduced to Tears' Over Response to His Cancer News as He Holds First Meeting with Prime Minister](https://www.yahoo.com/entertainment/king-charles-reduced-tears-over-183435898.html)
+- Feb 21 - ['Excuse Me. What Fraud?' — Kevin O'Leary Says Civil Case Is 'Not About Trump Anymore' As New York Becomes A 'Flyover' State No One Wants To Invest In](https://finance.yahoo.com/news/excuse-fraud-kevin-oleary-says-175931770.html)
+- Feb 21 - ["But it's not true!": CNN reporter confronts Jim Jordan over indicted informant's debunked claims](https://news.yahoo.com/not-true-cnn-reporter-confronts-174521441.html)
+- Feb 21 - [Grant Cardone to Team: "Immediately Discontinue All Underwriting on New York City Real Estate"](https://finance.yahoo.com/news/grant-cardone-team-immediately-discontinue-173431156.html)
 - Feb 21 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
-- Feb 21 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
-- Feb 21 - [Warren Buffett Has Spent 70 Years Of His Life Married — His Advice: 'If You Want A Marriage To Last, Look For Someone With Low Expectations'](https://finance.yahoo.com/news/warren-buffett-spent-70-years-165313177.html)
-- Feb 21 - [Prepare for the battle between the President and the US Army](https://news.yahoo.com/us-army-prepared-destroy-democracy-163826673.html)
-- Feb 21 - [Eating bananas ‘is more effective at reducing blood pressure’ than cutting down on salt](https://news.yahoo.com/eating-bananas-more-effective-reducing-161500357.html)
 <!-- feed end -->
 
 ### Onstream
