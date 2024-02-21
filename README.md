@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 21 - [Chiefs Super Bowl rally shooting started because someone was "looking at" someone else](https://sports.yahoo.com/chiefs-super-bowl-rally-shooting-010841959.html)
+- Feb 21 - [Ecuador’s most notorious gang leader lived ‘like a king’ while locked up. His jailbreak shines a light on the country’s lawless prisons](https://news.yahoo.com/ecuador-most-notorious-gang-leader-130024133.html)
+- Feb 21 - [Donald Trump again compares his criminal indictments to imprisonment and death of Putin's top rival](https://news.yahoo.com/donald-trump-again-compares-criminal-005643274.html)
+- Feb 21 - [Israel's statements on Brazil's Lula are unacceptable, says Foreign Minister Vieira](https://news.yahoo.com/israels-statements-brazils-lula-unacceptable-001410067.html)
 - Feb 20 - [Mass graves of Black Death victims found in Germany. See the gruesome ‘surprise’](https://news.yahoo.com/mass-graves-black-death-victims-225058201.html)
-- Feb 20 - [Alito renews criticism of Supreme Court’s same-sex marriage ruling in rejecting Missouri jury case](https://news.yahoo.com/alito-renews-criticism-supreme-court-224438612.html)
-- Feb 20 - [California’s budget deficit is worse than anticipated — and much worse than Newsom projected](https://news.yahoo.com/california-budget-deficit-worse-anticipated-222103715.html)
-- Feb 20 - [Letitia James says she's prepared to seize Trump's buildings if he can't pay his $354M civil fraud fine](https://news.yahoo.com/letitia-james-says-shes-prepared-215055380.html)
-- Feb 20 - [Body of 11-Year-Old Texas Girl Who Vanished on Way to School Reportedly Found in River](https://news.yahoo.com/body-11-old-texas-girl-214630366.html)
 <!-- feed end -->
 
 ### Onstream
