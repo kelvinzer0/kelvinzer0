@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 21 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
+- Feb 21 - [Nvidia Q4 earnings beat, generative AI reaching a 'tipping point'](https://finance.yahoo.com/video/nvidia-q4-earnings-beat-generative-213900646.html)
+- Feb 21 - [Metal detectorist unearths ‘one-of-a-kind’ gold treasure from 1,400 years ago. See it](https://news.yahoo.com/metal-detectorist-unearths-one-kind-213539228.html)
+- Feb 21 - [Police search a car and find cocaine -- and a US Army rocket launcher](https://news.yahoo.com/police-search-car-cocaine-us-211153397.html)
+- Feb 21 - [Trump faces warning signs that his fundraising prowess may have limits in 2024 campaign](https://news.yahoo.com/trump-faces-warning-signs-fundraising-210925992.html)
 - Feb 21 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
-- Feb 21 - [Sting](https://www.yahoo.com/entertainment/sting-050357276.html)
-- Feb 21 - [Girl who died in sand hole at Florida beach is identified; lifeguards could have prevented tragedy, experts say](https://news.yahoo.com/girl-died-sand-hole-florida-202700225.html)
-- Feb 21 - [Subway cellist says attack 'hurt like hell,' and now wants more protection for performers](https://news.yahoo.com/subway-cellist-says-attack-hurt-200836381.html)
 <!-- feed end -->
 
 ### Onstream
