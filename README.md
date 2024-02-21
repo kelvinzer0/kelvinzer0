@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 20 - [Man’s leg amputated after Miami Heat player crashed into him, lawyers say. He’s suing](https://news.yahoo.com/man-leg-amputated-miami-heat-222500176.html)
+- Feb 20 - [Mass graves of Black Death victims found in Germany. See the gruesome ‘surprise’](https://news.yahoo.com/mass-graves-black-death-victims-225058201.html)
+- Feb 20 - [Alito renews criticism of Supreme Court’s same-sex marriage ruling in rejecting Missouri jury case](https://news.yahoo.com/alito-renews-criticism-supreme-court-224438612.html)
 - Feb 20 - [California’s budget deficit is worse than anticipated — and much worse than Newsom projected](https://news.yahoo.com/california-budget-deficit-worse-anticipated-222103715.html)
 - Feb 20 - [Letitia James says she's prepared to seize Trump's buildings if he can't pay his $354M civil fraud fine](https://news.yahoo.com/letitia-james-says-shes-prepared-215055380.html)
 - Feb 20 - [Body of 11-Year-Old Texas Girl Who Vanished on Way to School Reportedly Found in River](https://news.yahoo.com/body-11-old-texas-girl-214630366.html)
-- Feb 20 - [2 adults are charged with murder in the deadly shooting at Kansas City's Super Bowl celebration](https://news.yahoo.com/2-adults-charged-murder-deadly-200916997.html)
 <!-- feed end -->
 
 ### Onstream
