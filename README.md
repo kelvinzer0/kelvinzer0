@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 21 - [Donald Trump's New Self-Proclaimed Status Has People Reaching For Dictionaries](https://news.yahoo.com/donald-trumps-self-proclaimed-status-091133517.html)
+- Feb 21 - [Ukraine's Armed Forces likely hit Russian training ground during formation, killing at least 60 soldiers – photo](https://news.yahoo.com/ukraines-armed-forces-likely-hit-072301669.html)
 - Feb 21 - [Ukraine outnumbered, outgunned, ground down by relentless Russia](https://news.yahoo.com/ukraine-outnumbered-outgunned-ground-down-070807747.html)
 - Feb 21 - [China-born Australian democracy blogger won't appeal suspended Chinese death sentence](https://news.yahoo.com/china-born-australian-democracy-blogger-041809870.html)
-- Feb 21 - [Tennessee mom arrested after posting pictures of 5-year-old daughter waxing nude woman: police](https://news.yahoo.com/tennessee-mom-arrested-posting-pictures-023727473.html)
 - Feb 21 - [Flint man becomes first person charged under Michigan's new gun storage law](https://news.yahoo.com/flint-man-becomes-first-person-021359289.html)
-- Feb 21 - ['Maniac' who brutally murdered sex worker with iron in NYC hotel arrested in Arizona: police](https://news.yahoo.com/maniac-brutally-murdered-sex-worker-013013531.html)
 <!-- feed end -->
 
 ### Onstream
