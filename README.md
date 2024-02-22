@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Desperate for soldiers, Ukraine weighs unpopular plan to expand the draft](https://news.yahoo.com/desperate-soldiers-ukraine-weighs-unpopular-051731582.html)
+- Feb 22 - [Steven Tyler wins dismissal of sexual assault suit](https://news.yahoo.com/steven-tyler-wins-dismissal-sexual-072734089.html)
+- Feb 22 - [Japan stocks hit record, 34 years after bubble era](https://finance.yahoo.com/video/japan-stocks-hit-record-34-071445552.html)
+- Feb 22 - [Europe clearly now wants Vladimir Putin to win](https://news.yahoo.com/europe-clearly-now-wants-vladimir-070000035.html)
 - Feb 22 - [James Comer Changes His Tune on Discredited Biden Probe Witness](https://www.yahoo.com/entertainment/james-comer-changes-tune-discredited-040046583.html)
 - Feb 22 - [Man who stomped on Asian woman in Times Square attack sentenced to 15 years in state prison](https://news.yahoo.com/man-stomped-asian-woman-times-021705174.html)
-- Feb 22 - [Parents of Gabby Petito and Brian Laundrie reach settlement in emotional distress lawsuit](https://news.yahoo.com/parents-gabby-petito-brian-laundrie-021700008.html)
-- Feb 22 - [‘Scrambling’: Conservative commentator reacts to Biden’s potential executive order](https://news.yahoo.com/scrambling-conservative-commentator-reacts-biden-015353596.html)
 <!-- feed end -->
 
 ### Onstream
