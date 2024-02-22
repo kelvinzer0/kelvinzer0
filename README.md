@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Bridge snaps in half in deadly cargo ship crash](https://news.yahoo.com/bridge-snaps-half-deadly-cargo-054655252.html)
-- Feb 22 - ['Like an addiction': Thousands of Americans fall prey to Mexican cartel timeshare scam](https://news.yahoo.com/addiction-thousands-americans-fall-prey-110449963.html)
-- Feb 22 - [Calmes: I watched a Trump rally so you don't have to. But you need to know what he's saying](https://news.yahoo.com/calmes-watched-trump-rally-dont-110253003.html)
-- Feb 22 - [The Taliban carry out a double public execution at a stadium in southeastern Afghanistan](https://news.yahoo.com/taliban-carry-double-public-execution-085859517.html)
-- Feb 22 - [Steven Tyler wins dismissal of sexual assault suit](https://news.yahoo.com/steven-tyler-wins-dismissal-sexual-072734089.html)
+- Feb 22 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
+- Feb 22 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
+- Feb 22 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
+- Feb 22 - [Alligator’s head has an oddity experts have never seen before, Georgia researchers say](https://news.yahoo.com/alligator-head-oddity-experts-never-124156388.html)
+- Feb 22 - [Russian war blogger dies in apparent suicide after facing criticism for revealing Moscow's losses](https://news.yahoo.com/russian-war-blogger-dies-apparent-120842219.html)
 <!-- feed end -->
 
 ### Onstream
