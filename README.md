@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
-- Feb 22 - [Wicked Little Letters: The True Story Behind Wicked Little Letters (Uk)](https://www.yahoo.com/entertainment/wicked-little-letters-true-story-210612440.html)
-- Feb 22 - [Wicked Little Letters: Hatching A Plan Film (Uk)](https://www.yahoo.com/entertainment/wicked-little-letters-hatching-plan-210404509.html)
-- Feb 22 - [Putin takes a flight in nuclear-capable bomber in a tough message to the West ahead of election](https://news.yahoo.com/putin-takes-flight-nuclear-capable-162219962.html)
-- Feb 22 - [Legal analyst "shocked" after Trump's "angry" lawyers demand judge delay fraud payout](https://news.yahoo.com/legal-analyst-shocked-trumps-angry-160657602.html)
+- Feb 22 - [National security lawyers alarmed by Fox News town hall: Did Trump just “disclose classified info?”](https://news.yahoo.com/national-security-lawyers-alarmed-fox-174700725.html)
+- Feb 22 - [Warren Buffett Exposed The Reason For Trump's Failed Business Ventures Decades Before The Fraud Case — 'Where Did Donald Trump Go Wrong? The Big Problem With Donald Trump Was He Never Went Right'](https://finance.yahoo.com/news/warren-buffett-exposed-reason-trumps-174241835.html)
+- Feb 22 - ['It's Like The Town Is Losing Its Soul' — Nation's Oldest Gun Manufacturer Is Ditching New York And Moving Operations To Georgia, A More Supportive State — '208 Years Of History. Gone, Gone'](https://finance.yahoo.com/news/town-losing-soul-nations-oldest-170614336.html)
+- Feb 22 - [Chuy Montana Killed for Singing Songs ‘That Did Not Please One of His Aggressors,’ Authorities Say](https://www.yahoo.com/entertainment/chuy-montana-killed-singing-songs-165638194.html)
+- Feb 22 - [Putin on Biden's 'crazy SOB' remark: shows why he is preferable as U.S president](https://news.yahoo.com/putin-bidens-crazy-sob-remark-164217689.html)
 <!-- feed end -->
 
 ### Onstream
