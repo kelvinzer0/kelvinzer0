@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
-- Feb 22 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
-- Feb 22 - [Amy Brown, wife of GOP Senate candidate Sam Brown, opens up about her abortion for the first time publicly](https://news.yahoo.com/amy-brown-wife-gop-senate-231040883.html)
+- Feb 22 - [Desperate for soldiers, Ukraine weighs unpopular plan to expand the draft](https://news.yahoo.com/desperate-soldiers-ukraine-weighs-unpopular-051731582.html)
+- Feb 22 - [James Comer Changes His Tune on Discredited Biden Probe Witness](https://www.yahoo.com/entertainment/james-comer-changes-tune-discredited-040046583.html)
 - Feb 22 - [Man who stomped on Asian woman in Times Square attack sentenced to 15 years in state prison](https://news.yahoo.com/man-stomped-asian-woman-times-021705174.html)
 - Feb 22 - [Parents of Gabby Petito and Brian Laundrie reach settlement in emotional distress lawsuit](https://news.yahoo.com/parents-gabby-petito-brian-laundrie-021700008.html)
+- Feb 22 - [‘Scrambling’: Conservative commentator reacts to Biden’s potential executive order](https://news.yahoo.com/scrambling-conservative-commentator-reacts-biden-015353596.html)
 <!-- feed end -->
 
 ### Onstream
