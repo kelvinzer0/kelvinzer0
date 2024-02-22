@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [The 29 Absolute Funniest Reactions To The AT&T Cell Outage That Everyone Is Talking About](https://www.yahoo.com/lifestyle/29-absolute-funniest-reactions-t-181657776.html)
-- Feb 22 - [National security lawyers alarmed by Fox News town hall: Did Trump just “disclose classified info?”](https://news.yahoo.com/national-security-lawyers-alarmed-fox-174700725.html)
-- Feb 22 - [Warren Buffett Exposed The Reason For Trump's Failed Business Ventures Decades Before The Fraud Case — 'Where Did Donald Trump Go Wrong? The Big Problem With Donald Trump Was He Never Went Right'](https://finance.yahoo.com/news/warren-buffett-exposed-reason-trumps-174241835.html)
-- Feb 22 - [Map shows where AT&T outages are hitting cellphone users across the U.S.](https://finance.yahoo.com/news/map-shows-where-t-outages-174050613.html)
-- Feb 22 - ['It's Like The Town Is Losing Its Soul' — Nation's Oldest Gun Manufacturer Is Ditching New York And Moving Operations To Georgia, A More Supportive State — '208 Years Of History. Gone, Gone'](https://finance.yahoo.com/news/town-losing-soul-nations-oldest-170614336.html)
+- Feb 22 - [Putin ironically praises Biden for calling him a 'crazy SOB'](https://news.yahoo.com/putin-ironically-praises-biden-calling-193340667.html)
+- Feb 22 - [DeSantis calls takeover of Disney government a 'success' despite worker exodus, litigation](https://news.yahoo.com/desantis-calls-takeover-disney-government-192543988.html)
+- Feb 22 - [Sergeant Slams Chief on Hood of Car During Investigation](https://news.yahoo.com/sergeant-slams-chief-hood-car-190602124.html)
+- Feb 22 - ['You're Just Choosing Not To Work. You're Throwing Away Your Life' — Caleb Hammer Is Disgusted By A 25-Year-Old Who Tried To Live 'The Van Life' And Then Wrecked Her Van And Refuses To Get A Job](https://finance.yahoo.com/news/youre-just-choosing-not-youre-190349953.html)
+- Feb 22 - [‘Confused’ angler calls dad after catching odd fish. It tied a state record in Georgia](https://news.yahoo.com/confused-angler-calls-dad-catching-185304858.html)
 <!-- feed end -->
 
 ### Onstream
