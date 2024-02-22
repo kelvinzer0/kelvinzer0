@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 22 - [Amy Brown, wife of GOP Senate candidate Sam Brown, opens up about her abortion for the first time publicly](https://news.yahoo.com/amy-brown-wife-gop-senate-231040883.html)
-- Feb 22 - [Man who stomped on Asian woman in Times Square attack sentenced to 15 years in state prison](https://news.yahoo.com/man-stomped-asian-woman-times-021705174.html)
 - Feb 22 - [Parents of Gabby Petito and Brian Laundrie reach settlement in emotional distress lawsuit](https://news.yahoo.com/parents-gabby-petito-brian-laundrie-021700008.html)
+- Feb 22 - [‘Scrambling’: Conservative commentator reacts to Biden’s potential executive order](https://news.yahoo.com/scrambling-conservative-commentator-reacts-biden-015353596.html)
+- Feb 22 - [Aerosmith’s Steven Tyler’s Sexual Assault Lawsuit Dismissed For This Reason](https://www.yahoo.com/entertainment/aerosmith-steven-tyler-sexual-assault-014514543.html)
 - Feb 22 - [China's Z-10 attack helicopter makes foreign debut, but export outlook uncertain](https://news.yahoo.com/chinas-z-10-attack-helicopter-012252925.html)
-- Feb 22 - [Lara Trump says she thinks GOP voters would like to see RNC pay Donald Trump's legal fees](https://news.yahoo.com/lara-trump-says-she-thinks-010743094.html)
 <!-- feed end -->
 
 ### Onstream
