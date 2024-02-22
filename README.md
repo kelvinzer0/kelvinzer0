@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
 - Feb 22 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
 - Feb 22 - [Europe clearly now wants Vladimir Putin to win](https://news.yahoo.com/europe-clearly-now-wants-vladimir-070000035.html)
 - Feb 22 - [Russian media identifies 68 soldiers killed in Ukrainian strike during line-up – photo](https://news.yahoo.com/russian-media-identifies-68-soldiers-061022756.html)
 - Feb 22 - [James Comer Changes His Tune on Discredited Biden Probe Witness](https://www.yahoo.com/entertainment/james-comer-changes-tune-discredited-040046583.html)
+- Feb 22 - [Man who stomped on Asian woman in Times Square attack sentenced to 15 years in state prison](https://news.yahoo.com/man-stomped-asian-woman-times-021705174.html)
 <!-- feed end -->
 
 ### Onstream
