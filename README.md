@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [Putin ironically praises Biden for calling him a 'crazy SOB'](https://news.yahoo.com/putin-ironically-praises-biden-calling-193340667.html)
-- Feb 22 - [DeSantis calls takeover of Disney government a 'success' despite worker exodus, litigation](https://news.yahoo.com/desantis-calls-takeover-disney-government-192543988.html)
+- Feb 22 - [Sting](https://www.yahoo.com/entertainment/sting-050357276.html)
+- Feb 22 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
+- Feb 22 - [Passenger stabs fellow traveler with weapon of pens and rubber bands on Seattle-to-Vegas flight](https://news.yahoo.com/passenger-stabs-fellow-traveler-weapon-201526172.html)
+- Feb 22 - [White House says FBI, Homeland Security Dept looking into AT&T outage](https://news.yahoo.com/white-house-says-fbi-homeland-200245948.html)
 - Feb 22 - [Sergeant Slams Chief on Hood of Car During Investigation](https://news.yahoo.com/sergeant-slams-chief-hood-car-190602124.html)
-- Feb 22 - ['You're Just Choosing Not To Work. You're Throwing Away Your Life' — Caleb Hammer Is Disgusted By A 25-Year-Old Who Tried To Live 'The Van Life' And Then Wrecked Her Van And Refuses To Get A Job](https://finance.yahoo.com/news/youre-just-choosing-not-youre-190349953.html)
-- Feb 22 - [‘Confused’ angler calls dad after catching odd fish. It tied a state record in Georgia](https://news.yahoo.com/confused-angler-calls-dad-catching-185304858.html)
 <!-- feed end -->
 
 ### Onstream
