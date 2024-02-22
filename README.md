@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 22 - [AT&T outage, Royal Caribbean, Planet Fitness: Top Stocks](https://finance.yahoo.com/video/t-outage-royal-caribbean-planet-153304121.html)
-- Feb 22 - [Tearful tributes for Kenyan marathon prodigy Kiptum](https://news.yahoo.com/tearful-tributes-kenyan-marathon-prodigy-150755821.html)
-- Feb 22 - [Everything you need to know about the AT&T outage happening right now](https://www.yahoo.com/tech/everything-know-t-outage-happening-145635828.html)
-- Feb 22 - [This Dietitian Is Going Viral For Sharing 16 Toxic Nutrition Myths That Just Aren’t True, And We All Need To Hear This](https://www.yahoo.com/lifestyle/dietitian-going-viral-sharing-16-143543584.html)
-- Feb 22 - [“Humiliation”: Fox host buries GOP as Republican admits “we were warned” about indicted informant](https://news.yahoo.com/humiliation-fox-host-buries-gop-133434882.html)
+- Feb 22 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
+- Feb 22 - [Wicked Little Letters: The True Story Behind Wicked Little Letters (Uk)](https://www.yahoo.com/entertainment/wicked-little-letters-true-story-210612440.html)
+- Feb 22 - [Wicked Little Letters: Hatching A Plan Film (Uk)](https://www.yahoo.com/entertainment/wicked-little-letters-hatching-plan-210404509.html)
+- Feb 22 - [Putin takes a flight in nuclear-capable bomber in a tough message to the West ahead of election](https://news.yahoo.com/putin-takes-flight-nuclear-capable-162219962.html)
+- Feb 22 - [Legal analyst "shocked" after Trump's "angry" lawyers demand judge delay fraud payout](https://news.yahoo.com/legal-analyst-shocked-trumps-angry-160657602.html)
 <!-- feed end -->
 
 ### Onstream
