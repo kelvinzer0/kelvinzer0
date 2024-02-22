@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 22 - [“Humiliation”: Fox host buries GOP as Republican admits “we were warned” about indicted informant](https://news.yahoo.com/humiliation-fox-host-buries-gop-133434882.html)
-- Feb 22 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
-- Feb 22 - [Putin Boards Tu-160M Strategic Bomber at Kazan Aircraft Plant](https://news.yahoo.com/putin-boards-tu-160m-strategic-130104025.html)
 - Feb 22 - [Alligator’s head has an oddity experts have never seen before, Georgia researchers say](https://news.yahoo.com/alligator-head-oddity-experts-never-124156388.html)
-- Feb 22 - [Russian war blogger dies in apparent suicide after facing criticism for revealing Moscow's losses](https://news.yahoo.com/russian-war-blogger-dies-apparent-120842219.html)
+- Feb 22 - [Putin sends signal to West with flight on nuclear-capable bomber](https://news.yahoo.com/putin-fly-modernised-russian-supersonic-120338663.html)
+- Feb 22 - [The Real Reason For Danny Masterson’s Prison Transfer Revealed](https://www.yahoo.com/entertainment/real-reason-danny-masterson-prison-113012458.html)
+- Feb 22 - ['Like an addiction': Thousands of Americans fall prey to Mexican cartel timeshare scam](https://news.yahoo.com/addiction-thousands-americans-fall-prey-110449963.html)
 <!-- feed end -->
 
 ### Onstream
