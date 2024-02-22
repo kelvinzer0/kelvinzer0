@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 22 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
 - Feb 22 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
-- Feb 22 - [Wicked Little Letters: The True Story Behind Wicked Little Letters (Uk)](https://www.yahoo.com/entertainment/wicked-little-letters-true-story-210612440.html)
 - Feb 22 - [Amy Brown, wife of GOP Senate candidate Sam Brown, opens up about her abortion for the first time publicly](https://news.yahoo.com/amy-brown-wife-gop-senate-231040883.html)
 - Feb 22 - [Man who stomped on Asian woman in Times Square attack sentenced to 15 years in state prison](https://news.yahoo.com/man-stomped-asian-woman-times-021705174.html)
+- Feb 22 - [Parents of Gabby Petito and Brian Laundrie reach settlement in emotional distress lawsuit](https://news.yahoo.com/parents-gabby-petito-brian-laundrie-021700008.html)
 <!-- feed end -->
 
 ### Onstream
