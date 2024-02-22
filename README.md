@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 22 - [The 29 Absolute Funniest Reactions To The AT&T Cell Outage That Everyone Is Talking About](https://www.yahoo.com/lifestyle/29-absolute-funniest-reactions-t-181657776.html)
 - Feb 22 - [National security lawyers alarmed by Fox News town hall: Did Trump just “disclose classified info?”](https://news.yahoo.com/national-security-lawyers-alarmed-fox-174700725.html)
 - Feb 22 - [Warren Buffett Exposed The Reason For Trump's Failed Business Ventures Decades Before The Fraud Case — 'Where Did Donald Trump Go Wrong? The Big Problem With Donald Trump Was He Never Went Right'](https://finance.yahoo.com/news/warren-buffett-exposed-reason-trumps-174241835.html)
+- Feb 22 - [Map shows where AT&T outages are hitting cellphone users across the U.S.](https://finance.yahoo.com/news/map-shows-where-t-outages-174050613.html)
 - Feb 22 - ['It's Like The Town Is Losing Its Soul' — Nation's Oldest Gun Manufacturer Is Ditching New York And Moving Operations To Georgia, A More Supportive State — '208 Years Of History. Gone, Gone'](https://finance.yahoo.com/news/town-losing-soul-nations-oldest-170614336.html)
-- Feb 22 - [Chuy Montana Killed for Singing Songs ‘That Did Not Please One of His Aggressors,’ Authorities Say](https://www.yahoo.com/entertainment/chuy-montana-killed-singing-songs-165638194.html)
-- Feb 22 - [Putin on Biden's 'crazy SOB' remark: shows why he is preferable as U.S president](https://news.yahoo.com/putin-bidens-crazy-sob-remark-164217689.html)
 <!-- feed end -->
 
 ### Onstream
