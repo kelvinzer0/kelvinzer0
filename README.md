@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 22 - [How Christian nationalism could shape a 2nd Trump term](https://news.yahoo.com/christian-nationalism-could-shape-2nd-012025735.html)
+- Feb 22 - [Lara Trump says she thinks GOP voters would like to see RNC pay Donald Trump's legal fees](https://news.yahoo.com/lara-trump-says-she-thinks-010743094.html)
 - Feb 22 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
-- Feb 21 - [Arizona prosecutor says will not extradite suspect in New York hotel murder](https://news.yahoo.com/arizona-prosecutor-says-not-extradite-231325176.html)
-- Feb 21 - [Amy Brown, wife of GOP Senate candidate Sam Brown, opens up about her abortion for the first time publicly](https://news.yahoo.com/amy-brown-wife-gop-senate-231040883.html)
 - Feb 21 - [Drunk Driver Sentenced to 22 Years for Death of NYPD Cop](https://news.yahoo.com/drunk-driver-sentenced-22-years-225448534.html)
 - Feb 21 - [Federal judge affirms MyPillow's Mike Lindell must pay $5M in election data dispute](https://news.yahoo.com/federal-judge-affirms-mypillows-mike-224901933.html)
 <!-- feed end -->
