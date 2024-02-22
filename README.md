@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 22 - [AT&T outage, Royal Caribbean, Planet Fitness: Top Stocks](https://finance.yahoo.com/video/t-outage-royal-caribbean-planet-153304121.html)
+- Feb 22 - [Tearful tributes for Kenyan marathon prodigy Kiptum](https://news.yahoo.com/tearful-tributes-kenyan-marathon-prodigy-150755821.html)
+- Feb 22 - [Everything you need to know about the AT&T outage happening right now](https://www.yahoo.com/tech/everything-know-t-outage-happening-145635828.html)
+- Feb 22 - [This Dietitian Is Going Viral For Sharing 16 Toxic Nutrition Myths That Just Aren’t True, And We All Need To Hear This](https://www.yahoo.com/lifestyle/dietitian-going-viral-sharing-16-143543584.html)
 - Feb 22 - [“Humiliation”: Fox host buries GOP as Republican admits “we were warned” about indicted informant](https://news.yahoo.com/humiliation-fox-host-buries-gop-133434882.html)
-- Feb 22 - [Alligator’s head has an oddity experts have never seen before, Georgia researchers say](https://news.yahoo.com/alligator-head-oddity-experts-never-124156388.html)
-- Feb 22 - [Putin sends signal to West with flight on nuclear-capable bomber](https://news.yahoo.com/putin-fly-modernised-russian-supersonic-120338663.html)
-- Feb 22 - [The Real Reason For Danny Masterson’s Prison Transfer Revealed](https://www.yahoo.com/entertainment/real-reason-danny-masterson-prison-113012458.html)
-- Feb 22 - ['Like an addiction': Thousands of Americans fall prey to Mexican cartel timeshare scam](https://news.yahoo.com/addiction-thousands-americans-fall-prey-110449963.html)
 <!-- feed end -->
 
 ### Onstream
