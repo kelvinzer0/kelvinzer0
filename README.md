@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 22 - [Bridge snaps in half in deadly cargo ship crash](https://news.yahoo.com/bridge-snaps-half-deadly-cargo-054655252.html)
+- Feb 22 - ['Like an addiction': Thousands of Americans fall prey to Mexican cartel timeshare scam](https://news.yahoo.com/addiction-thousands-americans-fall-prey-110449963.html)
+- Feb 22 - [Calmes: I watched a Trump rally so you don't have to. But you need to know what he's saying](https://news.yahoo.com/calmes-watched-trump-rally-dont-110253003.html)
+- Feb 22 - [The Taliban carry out a double public execution at a stadium in southeastern Afghanistan](https://news.yahoo.com/taliban-carry-double-public-execution-085859517.html)
 - Feb 22 - [Steven Tyler wins dismissal of sexual assault suit](https://news.yahoo.com/steven-tyler-wins-dismissal-sexual-072734089.html)
-- Feb 22 - [Europe clearly now wants Vladimir Putin to win](https://news.yahoo.com/europe-clearly-now-wants-vladimir-070000035.html)
-- Feb 22 - [Russian media identifies 68 soldiers killed in Ukrainian strike while on parade – photo](https://news.yahoo.com/russian-media-identifies-68-soldiers-061022756.html)
-- Feb 22 - [James Comer Changes His Tune on Discredited Biden Probe Witness](https://www.yahoo.com/entertainment/james-comer-changes-tune-discredited-040046583.html)
 <!-- feed end -->
 
 ### Onstream
