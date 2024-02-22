@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 22 - [“Humiliation”: Fox host buries GOP as Republican admits “we were warned” about indicted informant](https://news.yahoo.com/humiliation-fox-host-buries-gop-133434882.html)
 - Feb 22 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
-- Feb 22 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
-- Feb 22 - [One Life](https://www.yahoo.com/entertainment/one-life-050347553.html)
+- Feb 22 - [Putin Boards Tu-160M Strategic Bomber at Kazan Aircraft Plant](https://news.yahoo.com/putin-boards-tu-160m-strategic-130104025.html)
 - Feb 22 - [Alligator’s head has an oddity experts have never seen before, Georgia researchers say](https://news.yahoo.com/alligator-head-oddity-experts-never-124156388.html)
 - Feb 22 - [Russian war blogger dies in apparent suicide after facing criticism for revealing Moscow's losses](https://news.yahoo.com/russian-war-blogger-dies-apparent-120842219.html)
 <!-- feed end -->
