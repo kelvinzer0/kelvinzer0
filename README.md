@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 22 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
+- Feb 21 - [Arizona prosecutor says will not extradite suspect in New York hotel murder](https://news.yahoo.com/arizona-prosecutor-says-not-extradite-231325176.html)
+- Feb 21 - [Amy Brown, wife of GOP Senate candidate Sam Brown, opens up about her abortion for the first time publicly](https://news.yahoo.com/amy-brown-wife-gop-senate-231040883.html)
+- Feb 21 - [Drunk Driver Sentenced to 22 Years for Death of NYPD Cop](https://news.yahoo.com/drunk-driver-sentenced-22-years-225448534.html)
 - Feb 21 - [Federal judge affirms MyPillow's Mike Lindell must pay $5M in election data dispute](https://news.yahoo.com/federal-judge-affirms-mypillows-mike-224901933.html)
-- Feb 21 - [Jimmy Carter becomes first living ex-president with official White House Christmas ornament](https://news.yahoo.com/jimmy-carter-becomes-first-living-224412125.html)
-- Feb 21 - [How Nvidia's Q4 earnings set the stage for further dominance](https://finance.yahoo.com/video/nvidias-q4-earnings-set-stage-224044436.html)
-- Feb 21 - [US housing underwent 'coastal Sun Belt revolution': Meredith Whitney](https://finance.yahoo.com/video/us-housing-underwent-coastal-sun-222940570.html)
-- Feb 21 - [Lucid, APA, stock reaction to Nvidia: After-hour movers](https://finance.yahoo.com/video/lucid-apa-stock-reaction-nvidia-222813241.html)
 <!-- feed end -->
 
 ### Onstream
