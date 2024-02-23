@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 23 - ['Every single restaurant will close overnight': Celebrity chef blasts California politician's $50 minimum wage proposal, calls state 'the worst run' in the country. Do you agree?](https://finance.yahoo.com/news/every-single-restaurant-close-overnight-123300205.html)
-- Feb 23 - [A New Orleans magician says a Democratic operative paid him to make the fake Biden robocall](https://news.yahoo.com/orleans-magician-says-democratic-operative-120008911.html)
+- Feb 23 - [A magician says a Democratic operative paid him to make the fake Biden New Hampshire robocall that is under investigation](https://news.yahoo.com/orleans-magician-says-democratic-operative-120008911.html)
 - Feb 23 - [Woman who joined ISIS as a teen loses challenge against the removal of her UK citizenship](https://news.yahoo.com/woman-joined-isis-teen-loses-110340155.html)
-- Feb 23 - [Ukrainian farmers bring equipment destroyed by Russian attacks to border with Poland – video](https://news.yahoo.com/ukrainian-farmers-bring-equipment-destroyed-113105170.html)
-- Feb 23 - [IS bride loses her appeal over the removal of her UK citizenship](https://news.yahoo.com/bride-loses-her-appeal-over-103352683.html)
+- Feb 23 - [While eyes are on Trump, Supreme Court conservatives prepare to rewrite the rulebook](https://news.yahoo.com/while-eyes-trump-supreme-court-100023103.html)
+- Feb 23 - [Tropical resorts popular with Americans no longer 'off limits' for cartel killers: 'The rules have changed'](https://news.yahoo.com/tropical-resorts-popular-americans-no-090031509.html)
 <!-- feed end -->
 
 ### Onstream
