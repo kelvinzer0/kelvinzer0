@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 23 - [While eyes are on Trump, Supreme Court conservatives prepare to rewrite the rulebook](https://news.yahoo.com/while-eyes-trump-supreme-court-100023103.html)
 - Feb 23 - [Trump pledges to defend Christianity against the left, which he says wants 'to tear down crosses'](https://news.yahoo.com/trump-pledges-defend-christianity-against-045017411.html)
-- Feb 23 - [Violent assault in West Hollywood captured on surveillance cameras](https://news.yahoo.com/violent-assault-west-hollywood-captured-043443024.html)
 - Feb 23 - [AT&T reveals cause of Thursday’s massive outage](https://www.yahoo.com/tech/t-reveals-cause-thursday-massive-033041308.html)
-- Feb 23 - [Trump moves to dismiss charges accusing him of mishandling classified documents](https://news.yahoo.com/trump-moves-dismiss-charges-accusing-025315494.html)
-- Feb 23 - [11-Year-Old Audrii Cunningham’s Cause of Death Revealed](https://news.yahoo.com/11-old-audrii-cunningham-cause-024958194.html)
+- Feb 23 - [Fact Check: Marjorie Taylor Greene Reportedly Posted That NY Judge Arthur Engoron 'Should Be Disrobed.' We've Got the Tweet](https://news.yahoo.com/fact-check-marjorie-taylor-greene-005700526.html)
+- Feb 23 - [Akron man wins $1 million in Ohio Lottery, walks away with $360,000](https://news.yahoo.com/akron-man-wins-1-million-002451824.html)
 <!-- feed end -->
 
 ### Onstream
