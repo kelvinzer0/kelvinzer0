@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
+- Feb 23 - [Night before 'Rust' shooting armorer smoked 'to get high,' texts show](https://news.yahoo.com/night-rust-shooting-armorer-smoked-213923052.html)
+- Feb 23 - [What could a Trump 2.0 economy look like?](https://finance.yahoo.com/video/could-trump-2-0-economy-213128603.html)
 - Feb 23 - [A magician says a Democratic operative paid him to make the fake Biden New Hampshire robocall that is under investigation](https://news.yahoo.com/orleans-magician-says-democratic-operative-120008911.html)
+- Feb 23 - [Man stumbles on ancient Roman artifact — weighing 13,000 pounds — in riverbed. See it](https://news.yahoo.com/man-stumbles-ancient-roman-artifact-202914692.html)
 - Feb 23 - [‘Not a monster’: Family of Lyndell Mays, charged in Chiefs rally shooting, speaks out](https://news.yahoo.com/not-monster-family-lyndell-mays-200958135.html)
-- Feb 23 - [Woman Asks Fellow Passenger To Move From Business Class to Economy So She Can Move Her Husband Up](https://www.yahoo.com/entertainment/woman-asks-fellow-passenger-move-200311715.html)
-- Feb 23 - [Ukraine claims it downed another Russian early warning and control plane in a major blow to Moscow](https://news.yahoo.com/ukraine-claims-downed-another-russian-194057160.html)
 <!-- feed end -->
 
 ### Onstream
