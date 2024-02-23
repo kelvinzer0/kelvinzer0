@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Ex-Trump White House aide Cassidy Hutchinson pushes back on GOP impeachment witness' claims](https://news.yahoo.com/ex-trump-white-house-aide-144700037.html)
+- Feb 23 - [Man Arrested After Allegedly Trying to Buy a Porsche with $78 Million Check](https://autos.yahoo.com/man-arrested-allegedly-trying-buy-153600739.html)
+- Feb 23 - [Ex-Trump White House aide Cassidy Hutchinson says photo refutes Biden impeachment witness's claims](https://news.yahoo.com/ex-trump-white-house-aide-144700037.html)
+- Feb 23 - [34 Genuinely Terrible Landlords That — Fine, I'm Going To Say It — Need To Get A Real Job](https://www.yahoo.com/lifestyle/34-genuinely-terrible-landlords-fine-141503419.html)
 - Feb 23 - [This week's cellphone outage makes it clear: In the United States, landlines are languishing](https://news.yahoo.com/weeks-cellphone-outage-makes-clear-132401189.html)
 - Feb 23 - [Tesla placed a $16K bakery order for Black History Month — then suddenly canceled it, the bakers say, costing them thousands](https://news.yahoo.com/tesla-placed-16k-bakery-order-124835336.html)
-- Feb 23 - ['Every single restaurant will close overnight': Celebrity chef blasts California politician's $50 minimum wage proposal, calls state 'the worst run' in the country. Do you agree?](https://finance.yahoo.com/news/every-single-restaurant-close-overnight-123300205.html)
-- Feb 23 - [A magician says a Democratic operative paid him to make the fake Biden New Hampshire robocall that is under investigation](https://news.yahoo.com/orleans-magician-says-democratic-operative-120008911.html)
 <!-- feed end -->
 
 ### Onstream
