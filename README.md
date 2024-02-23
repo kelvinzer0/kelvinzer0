@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Feb 23 - [Fact Check: Marjorie Taylor Greene Reportedly Posted That NY Judge Arthur Engoron 'Should Be Disrobed.' We've Got the Tweet](https://news.yahoo.com/fact-check-marjorie-taylor-greene-005700526.html)
 - Feb 23 - [“He’s Threatened To Put Them In Jail”: Joe Biden Tells Katie Couric That Journalists Have Told Him Of Their Fears If Donald Trump Returns To White House](https://www.yahoo.com/entertainment/threatened-put-them-jail-joe-000726356.html)
 - Feb 22 - [Fact Check: It's Claimed that 7.2M Migrants Have Illegally Crossed the US Border Under Biden, Exceeding the Populations of 36 States. Here Are the Facts](https://news.yahoo.com/fact-check-claimed-7-2m-234700783.html)
-- Feb 22 - [Some Republicans are voicing doubt over Alabama IVF ruling. Democrats see an opportunity](https://news.yahoo.com/republicans-voicing-doubt-over-alabama-234621024.html)
 - Feb 22 - [Denver police seek help finding a former funeral home owner after body kept in hearse for 2 years](https://news.yahoo.com/denver-police-seek-help-finding-222732272.html)
+- Feb 22 - [Debris from North Korean missile in Ukraine could expose procurement networks](https://news.yahoo.com/debris-north-korean-missile-ukraine-222038533.html)
 <!-- feed end -->
 
 ### Onstream
