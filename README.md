@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 23 - [Man Arrested After Allegedly Trying to Buy a Porsche with $78 Million Check](https://autos.yahoo.com/man-arrested-allegedly-trying-buy-153600739.html)
+- Feb 23 - ["Oh my God": Tommy Tuberville mocked for "running in circles" in disastrous IVF interview](https://news.yahoo.com/oh-god-tommy-tuberville-mocked-152317754.html)
 - Feb 23 - [Ex-Trump White House aide Cassidy Hutchinson says photo refutes Biden impeachment witness's claims](https://news.yahoo.com/ex-trump-white-house-aide-144700037.html)
+- Feb 23 - [Israel plans to build 3,300 new settlement homes. It says it's a response to a Palestinian attack](https://news.yahoo.com/israel-plans-build-3-300-144350179.html)
 - Feb 23 - [34 Genuinely Terrible Landlords That — Fine, I'm Going To Say It — Need To Get A Real Job](https://www.yahoo.com/lifestyle/34-genuinely-terrible-landlords-fine-141503419.html)
-- Feb 23 - [This week's cellphone outage makes it clear: In the United States, landlines are languishing](https://news.yahoo.com/weeks-cellphone-outage-makes-clear-132401189.html)
-- Feb 23 - [Tesla placed a $16K bakery order for Black History Month — then suddenly canceled it, the bakers say, costing them thousands](https://news.yahoo.com/tesla-placed-16k-bakery-order-124835336.html)
 <!-- feed end -->
 
 ### Onstream
