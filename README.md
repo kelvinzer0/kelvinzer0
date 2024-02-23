@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 23 - [Wicked Little Letters: Hatching A Plan Film (Uk)](https://www.yahoo.com/entertainment/wicked-little-letters-hatching-plan-210404509.html)
+- Feb 23 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
+- Feb 23 - [AT&T reveals cause of Thursday’s massive outage](https://www.yahoo.com/tech/t-reveals-cause-thursday-massive-033041308.html)
 - Feb 23 - [Trump moves to dismiss charges accusing him of mishandling classified documents](https://news.yahoo.com/trump-moves-dismiss-charges-accusing-025315494.html)
 - Feb 23 - [Fact Check: Marjorie Taylor Greene Reportedly Posted That NY Judge Arthur Engoron 'Should Be Disrobed.' We've Got the Tweet](https://news.yahoo.com/fact-check-marjorie-taylor-greene-005700526.html)
-- Feb 23 - [“He’s Threatened To Put Them In Jail”: Joe Biden Tells Katie Couric That Journalists Have Told Him Of Their Fears If Donald Trump Returns To White House](https://www.yahoo.com/entertainment/threatened-put-them-jail-joe-000726356.html)
-- Feb 22 - [Fact Check: It's Claimed that 7.2M Migrants Have Illegally Crossed the US Border Under Biden, Exceeding the Populations of 36 States. Here Are the Facts](https://news.yahoo.com/fact-check-claimed-7-2m-234700783.html)
-- Feb 22 - [Denver police seek help finding a former funeral home owner after body kept in hearse for 2 years](https://news.yahoo.com/denver-police-seek-help-finding-222732272.html)
 <!-- feed end -->
 
 ### Onstream
