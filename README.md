@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Night before 'Rust' shooting armorer smoked 'to get high,' texts show](https://news.yahoo.com/night-rust-shooting-armorer-smoked-213923052.html)
-- Feb 23 - [What could a Trump 2.0 economy look like?](https://finance.yahoo.com/video/could-trump-2-0-economy-213128603.html)
-- Feb 23 - [A magician says a Democratic operative paid him to make the fake Biden New Hampshire robocall that is under investigation](https://news.yahoo.com/orleans-magician-says-democratic-operative-120008911.html)
+- Feb 23 - [National Rifle Association and Wayne LaPierre are found liable in lawsuit over lavish spending](https://news.yahoo.com/national-rifle-association-wayne-lapierre-224147350.html)
+- Feb 23 - [Jury says ex-NRA chief LaPierre mismanaged gun rights group, cost it $5.4 million](https://news.yahoo.com/jury-says-ex-nra-chief-223332821.html)
+- Feb 23 - [$454 million judgment against Trump is finalized, starting clock on appeal in civil fraud case](https://news.yahoo.com/454-million-judgment-against-trump-220823639.html)
+- Feb 23 - [Jury finds Wayne LaPierre, NRA liable in corruption civil case](https://news.yahoo.com/jury-returns-verdict-wayne-lapierre-220723505.html)
 - Feb 23 - [Man stumbles on ancient Roman artifact — weighing 13,000 pounds — in riverbed. See it](https://news.yahoo.com/man-stumbles-ancient-roman-artifact-202914692.html)
-- Feb 23 - [‘Not a monster’: Family of Lyndell Mays, charged in Chiefs rally shooting, speaks out](https://news.yahoo.com/not-monster-family-lyndell-mays-200958135.html)
 <!-- feed end -->
 
 ### Onstream
