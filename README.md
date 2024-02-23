@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 23 - [Sting (Clean Trailer)](https://www.yahoo.com/entertainment/sting-clean-trailer-050357475.html)
+- Feb 23 - [A magician says a Democratic operative paid him to make the fake Biden New Hampshire robocall that is under investigation](https://news.yahoo.com/orleans-magician-says-democratic-operative-120008911.html)
+- Feb 23 - [‘Not a monster’: Family of Lyndell Mays, charged in Chiefs rally shooting, speaks out](https://news.yahoo.com/not-monster-family-lyndell-mays-200958135.html)
+- Feb 23 - [Woman Asks Fellow Passenger To Move From Business Class to Economy So She Can Move Her Husband Up](https://www.yahoo.com/entertainment/woman-asks-fellow-passenger-move-200311715.html)
 - Feb 23 - [Ukraine claims it downed another Russian early warning and control plane in a major blow to Moscow](https://news.yahoo.com/ukraine-claims-downed-another-russian-194057160.html)
-- Feb 23 - [Robot to recover treasure worth billions from legendary shipwreck](https://news.yahoo.com/robot-recover-treasure-worth-billions-190128641.html)
-- Feb 23 - [A US-made M1 Abrams can be seen opening fire on the Russians in Ukraine's first video of the tank in battle](https://news.yahoo.com/us-made-m1-abrams-seen-184156641.html)
-- Feb 23 - [Great white shark weighing 1,500 pounds washes onto Florida beach, photos show](https://news.yahoo.com/great-white-shark-weighing-1-184037935.html)
-- Feb 23 - [Ecuador calls off arms exchange with US over plan to send  weapons to Ukraine](https://news.yahoo.com/ecuador-calls-off-arms-exchange-180715415.html)
 <!-- feed end -->
 
 ### Onstream
