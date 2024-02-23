@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Husband Accused of Making $1.8 Million from Insider Trading by Eavesdropping on Wife’s Work-from-Home Calls](https://www.yahoo.com/entertainment/husband-accused-making-1-8-181932341.html)
+- Feb 23 - [Ukraine claims it downed another Russian early warning and control plane in a major blow to Moscow](https://news.yahoo.com/ukraine-claims-downed-another-russian-194057160.html)
+- Feb 23 - [Robot to recover treasure worth billions from legendary shipwreck](https://news.yahoo.com/robot-recover-treasure-worth-billions-190128641.html)
+- Feb 23 - [A US-made M1 Abrams can be seen opening fire on the Russians in Ukraine's first video of the tank in battle](https://news.yahoo.com/us-made-m1-abrams-seen-184156641.html)
+- Feb 23 - [Great white shark weighing 1,500 pounds washes onto Florida beach, photos show](https://news.yahoo.com/great-white-shark-weighing-1-184037935.html)
 - Feb 23 - [Ecuador calls off arms exchange with US over plan to send  weapons to Ukraine](https://news.yahoo.com/ecuador-calls-off-arms-exchange-180715415.html)
-- Feb 23 - [Wisconsin ethics panel recommends felony charges against Trump committee, lawmaker](https://news.yahoo.com/wisconsin-ethics-panel-recommends-felony-180335891.html)
-- Feb 23 - [Trump Team Releases Eyebrow-Raising Phone Data in Fani Willis Case](https://news.yahoo.com/trump-team-releases-eyebrow-raising-180311524.html)
-- Feb 23 - [Astronauts explain why no human has visited the moon in 50 years — and the reasons why are depressing](https://www.yahoo.com/tech/astronauts-explain-why-nobody-visited-214006981.html)
 <!-- feed end -->
 
 ### Onstream
