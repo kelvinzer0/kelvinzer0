@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
 - Feb 23 - [Trump pledges to defend Christianity against the left, which he says wants 'to tear down crosses'](https://news.yahoo.com/trump-pledges-defend-christianity-against-045017411.html)
+- Feb 23 - [Violent assault in West Hollywood captured on surveillance cameras](https://news.yahoo.com/violent-assault-west-hollywood-captured-043443024.html)
 - Feb 23 - [AT&T reveals cause of Thursday’s massive outage](https://www.yahoo.com/tech/t-reveals-cause-thursday-massive-033041308.html)
 - Feb 23 - [Trump moves to dismiss charges accusing him of mishandling classified documents](https://news.yahoo.com/trump-moves-dismiss-charges-accusing-025315494.html)
 - Feb 23 - [11-Year-Old Audrii Cunningham’s Cause of Death Revealed](https://news.yahoo.com/11-old-audrii-cunningham-cause-024958194.html)
