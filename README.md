@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 23 - [A New Orleans magician says a Democratic operative paid him to make the fake Biden robocall](https://news.yahoo.com/orleans-magician-says-democratic-operative-120008911.html)
 - Feb 23 - [While eyes are on Trump, Supreme Court conservatives prepare to rewrite the rulebook](https://news.yahoo.com/while-eyes-trump-supreme-court-100023103.html)
+- Feb 23 - [Tropical resorts popular with Americans no longer 'off limits' for cartel killers: 'The rules have changed'](https://news.yahoo.com/tropical-resorts-popular-americans-no-090031509.html)
 - Feb 23 - [Trump pledges to defend Christianity against the left, which he says wants 'to tear down crosses'](https://news.yahoo.com/trump-pledges-defend-christianity-against-045017411.html)
 - Feb 23 - [AT&T reveals cause of Thursday’s massive outage](https://www.yahoo.com/tech/t-reveals-cause-thursday-massive-033041308.html)
-- Feb 23 - [Fact Check: Marjorie Taylor Greene Reportedly Posted That NY Judge Arthur Engoron 'Should Be Disrobed.' We've Got the Tweet](https://news.yahoo.com/fact-check-marjorie-taylor-greene-005700526.html)
-- Feb 23 - [Akron man wins $1 million in Ohio Lottery, walks away with $360,000](https://news.yahoo.com/akron-man-wins-1-million-002451824.html)
 <!-- feed end -->
 
 ### Onstream
