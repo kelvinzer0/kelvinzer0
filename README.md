@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 23 - [A nursing student found dead after jogging on the University of Georgia campus has been identified](https://news.yahoo.com/nursing-student-found-dead-jogging-144131387.html)
-- Feb 23 - [‘Blood’-colored creature — feared extinct for decades — hops onto scientist’s tent](https://news.yahoo.com/blood-colored-creature-feared-extinct-155703564.html)
-- Feb 23 - [Man Arrested After Allegedly Trying to Buy a Porsche with $78 Million Check](https://autos.yahoo.com/man-arrested-allegedly-trying-buy-153600739.html)
-- Feb 23 - ["Oh my God": Tommy Tuberville mocked for "running in circles" in disastrous IVF interview](https://news.yahoo.com/oh-god-tommy-tuberville-mocked-152317754.html)
-- Feb 23 - [Ex-Trump White House aide Cassidy Hutchinson says photo refutes Biden impeachment witness's claims](https://news.yahoo.com/ex-trump-white-house-aide-144700037.html)
+- Feb 23 - [Husband Accused of Making $1.8 Million from Insider Trading by Eavesdropping on Wife’s Work-from-Home Calls](https://www.yahoo.com/entertainment/husband-accused-making-1-8-181932341.html)
+- Feb 23 - [Ecuador calls off arms exchange with US over plan to send  weapons to Ukraine](https://news.yahoo.com/ecuador-calls-off-arms-exchange-180715415.html)
+- Feb 23 - [Wisconsin ethics panel recommends felony charges against Trump committee, lawmaker](https://news.yahoo.com/wisconsin-ethics-panel-recommends-felony-180335891.html)
+- Feb 23 - [Trump Team Releases Eyebrow-Raising Phone Data in Fani Willis Case](https://news.yahoo.com/trump-team-releases-eyebrow-raising-180311524.html)
+- Feb 23 - [Astronauts explain why no human has visited the moon in 50 years — and the reasons why are depressing](https://www.yahoo.com/tech/astronauts-explain-why-nobody-visited-214006981.html)
 <!-- feed end -->
 
 ### Onstream
