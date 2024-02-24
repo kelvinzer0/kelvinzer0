@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 24 - [Two daughters ran away to join Islamic State. Years later, their family’s story is an Oscar nominee](https://news.yahoo.com/two-daughters-ran-away-join-062534045.html)
 - Feb 24 - [American Sailing Couple Disappears in Caribbean. Their Yacht Is Found 80 Miles Away](https://www.yahoo.com/entertainment/american-sailing-couple-disappears-caribbean-025006600.html)
 - Feb 24 - [Trump's lawyers seek to suspend $83M defamation verdict, citing 'strong probability' it won't stand](https://news.yahoo.com/trumps-lawyers-seek-suspend-83m-001750010.html)
 - Feb 24 - [Conservative Family ‘Disappointed’ After Moving To Russia To Escape LGBTQ Ideology](https://www.yahoo.com/entertainment/conservative-family-disappointed-moving-russia-001517915.html)
-- Feb 23 - [NORAD fighters intercept high-altitude balloon flying over Utah](https://news.yahoo.com/norad-fighter-intercepts-high-altitude-221733890.html)
 - Feb 23 - [Fox News cuts into footage of Trump's speech in South Carolina to point out inaccuracies](https://news.yahoo.com/fox-news-cuts-footage-trumps-225538458.html)
 <!-- feed end -->
 
