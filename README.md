@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - ['I almost fell off the chair': This 40-year-old wife was shocked when her 'financial guru' husband revealed $520K in hidden debt — how lifestyle creep catches up with high earners](https://finance.yahoo.com/news/almost-fell-off-chair-40-123000551.html)
+- Feb 24 - ['Being broke is a mindset': New York man says he's $100,000 in debt, but buys Gucci clothes and books expensive vacations. Is he wrong — or would Dave Ramsey agree with him?](https://finance.yahoo.com/news/being-broke-mindset-york-man-131200801.html)
+- Feb 24 - [Ind. Woman Has Lost 2 Babies to Co-Sleeping in Last 3 Years, Police Say. Now She's Charged with Homicide](https://www.yahoo.com/entertainment/ind-woman-lost-2-babies-130000228.html)
 - Feb 24 - [‘He was left holding the bag’: Grieving widower can’t wrap his head around why his late wife’s life insurance was voided — here’s the sad reason this TikToker says his claim was rejected](https://finance.yahoo.com/news/left-holding-bag-grieving-widower-120800642.html)
 - Feb 24 - [A shareholder once asked Warren Buffett, Charlie Munger if Social Security is a 'government-sponsored Ponzi scheme for retirees' — their answer was received with laughter and applause](https://finance.yahoo.com/news/shareholder-once-asked-warren-buffett-120000123.html)
-- Feb 24 - ['I wanted to blow it': This DC mother received $10,800 in taxpayer funds for poor families — but spent most of it on a luxury Miami trip to 'inspire' her kids. This is what she learned](https://finance.yahoo.com/news/wanted-blow-dc-mother-received-113600269.html)
 - Feb 24 - [‘I couldn’t be more offended’: Analyst reacts to Trump’s comments about Black voters](https://news.yahoo.com/couldn-t-more-offended-analyst-045038269.html)
 <!-- feed end -->
 
