@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Feb 24 - [Elon Musk steps in after California bakery jolted by cancelled Tesla order](https://www.yahoo.com/tech/elon-musk-steps-california-bakery-153556673.html)
 - Feb 24 - [Scientists may have finally solved the mystery of consciousness – their discoveries are troubling](https://news.yahoo.com/scientists-may-finally-solved-mystery-150000562.html)
-- Feb 24 - ['Being broke is a mindset': New York man says he's $100,000 in debt, but buys Gucci clothes and books expensive vacations. Is he wrong — or would Dave Ramsey agree with him?](https://finance.yahoo.com/news/being-broke-mindset-york-man-131200801.html)
+- Feb 24 - [Jose Ibarra: Here is what we know about the man accused of killing a nursing student on UGA campus](https://news.yahoo.com/jose-ibarra-know-man-accused-105417542.html)
 - Feb 24 - [Steve Jobs adopted a no ‘bozos’ policy and said the best managers are those who never wanted the job—here are his 3 best management tips](https://finance.yahoo.com/news/steve-jobs-adopted-no-bozos-130000529.html)
 - Feb 24 - [Ind. Woman Has Lost 2 Babies to Co-Sleeping in Last 3 Years, Police Say. Now She's Charged with Homicide](https://www.yahoo.com/entertainment/ind-woman-lost-2-babies-130000228.html)
 <!-- feed end -->
