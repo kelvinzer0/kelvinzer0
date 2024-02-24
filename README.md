@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 24 - [Elon Musk steps in after California bakery jolted by cancelled Tesla order](https://www.yahoo.com/tech/elon-musk-steps-california-bakery-153556673.html)
+- Feb 24 - [Scientists may have finally solved the mystery of consciousness – their discoveries are troubling](https://news.yahoo.com/scientists-may-finally-solved-mystery-150000562.html)
 - Feb 24 - ['Being broke is a mindset': New York man says he's $100,000 in debt, but buys Gucci clothes and books expensive vacations. Is he wrong — or would Dave Ramsey agree with him?](https://finance.yahoo.com/news/being-broke-mindset-york-man-131200801.html)
+- Feb 24 - [Steve Jobs adopted a no ‘bozos’ policy and said the best managers are those who never wanted the job—here are his 3 best management tips](https://finance.yahoo.com/news/steve-jobs-adopted-no-bozos-130000529.html)
 - Feb 24 - [Ind. Woman Has Lost 2 Babies to Co-Sleeping in Last 3 Years, Police Say. Now She's Charged with Homicide](https://www.yahoo.com/entertainment/ind-woman-lost-2-babies-130000228.html)
-- Feb 24 - [‘He was left holding the bag’: Grieving widower can’t wrap his head around why his late wife’s life insurance was voided — here’s the sad reason this TikToker says his claim was rejected](https://finance.yahoo.com/news/left-holding-bag-grieving-widower-120800642.html)
-- Feb 24 - [A shareholder once asked Warren Buffett, Charlie Munger if Social Security is a 'government-sponsored Ponzi scheme for retirees' — their answer was received with laughter and applause](https://finance.yahoo.com/news/shareholder-once-asked-warren-buffett-120000123.html)
-- Feb 24 - [‘I couldn’t be more offended’: Analyst reacts to Trump’s comments about Black voters](https://news.yahoo.com/couldn-t-more-offended-analyst-045038269.html)
 <!-- feed end -->
 
 ### Onstream
