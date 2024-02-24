@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Two daughters ran away to join Islamic State. Years later, their family’s story is an Oscar nominee](https://news.yahoo.com/two-daughters-ran-away-join-062534045.html)
+- Feb 24 - ['I wanted to blow it': This DC mother received $10,800 in taxpayer funds for poor families — but spent most of it on a luxury Miami trip to 'inspire' her kids. This is what she learned](https://finance.yahoo.com/news/wanted-blow-dc-mother-received-113600269.html)
 - Feb 24 - [‘I couldn’t be more offended’: Analyst reacts to Trump’s comments about Black voters](https://news.yahoo.com/couldn-t-more-offended-analyst-045038269.html)
-- Feb 24 - [Do you pee multiple times at night? Here's what that means about your health](https://news.yahoo.com/pee-multiple-times-night-heres-025653791.html)
-- Feb 24 - [American Sailing Couple Disappears in Caribbean. Their Yacht Is Found 80 Miles Away](https://www.yahoo.com/entertainment/american-sailing-couple-disappears-caribbean-025006600.html)
-- Feb 24 - [Jury convicts Southern California socialite in 2020 hit-and-run deaths of two young brothers](https://news.yahoo.com/jury-convicts-southern-california-socialite-004207937.html)
+- Feb 24 - [‘This is the worst debt I’ve ever seen’: Young Louisiana couple can’t buy a home because they’re saddled with $210,000 in consumer debt and earn $48K. Caleb Hammer calls it ‘insane’](https://finance.yahoo.com/news/worst-debt-ve-ever-seen-110300562.html)
+- Feb 24 - [Joe Biden gives the media a desperately needed lesson about Donald Trump](https://news.yahoo.com/joe-biden-gives-media-desperately-110005932.html)
+- Feb 24 - [Dead Appalachian Trail hiker, 'Mostly Harmless,' left a trail of mystery: 'He didn't want to be found'](https://news.yahoo.com/dead-appalachian-trail-hiker-mostly-090040395.html)
 <!-- feed end -->
 
 ### Onstream
