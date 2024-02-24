@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [High-altitude balloon intercepted by US fighters over Utah a 'likely hobby balloon': NORAD](https://news.yahoo.com/norad-fighter-intercepts-high-altitude-221733890.html)
+- Feb 24 - [Israel to discuss 'next steps' in Gaza truce talks](https://news.yahoo.com/israel-discuss-next-steps-gaza-193517532.html)
 - Feb 24 - [Illinois judge who reversed rape conviction removed from bench after panel finds he circumvented law](https://news.yahoo.com/illinois-judge-reversed-rape-conviction-183126464.html)
 - Feb 24 - [Elon Musk steps in after California bakery jolted by cancelled Tesla order](https://www.yahoo.com/tech/elon-musk-steps-california-bakery-153556673.html)
 - Feb 24 - [Scientists may have finally solved the mystery of consciousness – their discoveries are troubling](https://news.yahoo.com/scientists-may-finally-solved-mystery-150000562.html)
