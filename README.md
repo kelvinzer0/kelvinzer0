@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [A magician says a Democratic operative paid him to make the fake Biden New Hampshire robocall that is under investigation](https://news.yahoo.com/orleans-magician-says-democratic-operative-120008911.html)
 - Feb 24 - [American Sailing Couple Disappears in Caribbean. Their Yacht Is Found 80 Miles Away](https://www.yahoo.com/entertainment/american-sailing-couple-disappears-caribbean-025006600.html)
 - Feb 24 - [Jury convicts Southern California socialite in 2020 hit-and-run deaths of two young brothers](https://news.yahoo.com/jury-convicts-southern-california-socialite-004207937.html)
 - Feb 24 - [Trump's lawyers seek to suspend $83M defamation verdict, citing 'strong probability' it won't stand](https://news.yahoo.com/trumps-lawyers-seek-suspend-83m-001750010.html)
 - Feb 24 - [Conservative Family ‘Disappointed’ After Moving To Russia To Escape LGBTQ Ideology](https://www.yahoo.com/entertainment/conservative-family-disappointed-moving-russia-001517915.html)
+- Feb 23 - [Ford halts shipments of new F-150 Lightning EVs](https://finance.yahoo.com/news/ford-stops-shipments-2024-f-222242262.html)
 <!-- feed end -->
 
 ### Onstream
