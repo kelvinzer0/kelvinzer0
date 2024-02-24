@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 24 - [‘My ultimate and absolute revenge’: Trump gives chilling CPAC speech on presidential agenda](https://news.yahoo.com/ultimate-absolute-revenge-trump-gives-223538091.html)
+- Feb 24 - [Republican seeks to bar party from paying Trump's legal bills](https://news.yahoo.com/republican-seeks-bar-party-paying-215853396.html)
 - Feb 24 - [An RNC member is trying to stop the party from paying Donald Trump's legal bills](https://news.yahoo.com/rnc-member-trying-stop-party-202108580.html)
 - Feb 24 - [Grappler Successfully Used In Florida Police Chase](https://news.yahoo.com/grappler-successfully-used-florida-police-190000105.html)
 - Feb 24 - [Illinois judge who reversed rape conviction removed from bench after panel finds he circumvented law](https://news.yahoo.com/illinois-judge-reversed-rape-conviction-183126464.html)
-- Feb 24 - [Slovakian prime minister believes Russia started war against Ukraine because of "rampant Ukrainian neo-Nazis"](https://news.yahoo.com/slovakian-prime-minister-believes-russia-174800684.html)
-- Feb 24 - [Elon Musk steps in after California bakery jolted by cancelled Tesla order](https://www.yahoo.com/tech/elon-musk-steps-california-bakery-153556673.html)
 <!-- feed end -->
 
 ### Onstream
