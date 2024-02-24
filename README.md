@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 24 - ['I almost fell off the chair': This 40-year-old wife was shocked when her 'financial guru' husband revealed $520K in hidden debt — how lifestyle creep catches up with high earners](https://finance.yahoo.com/news/almost-fell-off-chair-40-123000551.html)
+- Feb 24 - [‘He was left holding the bag’: Grieving widower can’t wrap his head around why his late wife’s life insurance was voided — here’s the sad reason this TikToker says his claim was rejected](https://finance.yahoo.com/news/left-holding-bag-grieving-widower-120800642.html)
+- Feb 24 - [A shareholder once asked Warren Buffett, Charlie Munger if Social Security is a 'government-sponsored Ponzi scheme for retirees' — their answer was received with laughter and applause](https://finance.yahoo.com/news/shareholder-once-asked-warren-buffett-120000123.html)
 - Feb 24 - ['I wanted to blow it': This DC mother received $10,800 in taxpayer funds for poor families — but spent most of it on a luxury Miami trip to 'inspire' her kids. This is what she learned](https://finance.yahoo.com/news/wanted-blow-dc-mother-received-113600269.html)
 - Feb 24 - [‘I couldn’t be more offended’: Analyst reacts to Trump’s comments about Black voters](https://news.yahoo.com/couldn-t-more-offended-analyst-045038269.html)
-- Feb 24 - [‘This is the worst debt I’ve ever seen’: Young Louisiana couple can’t buy a home because they’re saddled with $210,000 in consumer debt and earn $48K. Caleb Hammer calls it ‘insane’](https://finance.yahoo.com/news/worst-debt-ve-ever-seen-110300562.html)
-- Feb 24 - [Joe Biden gives the media a desperately needed lesson about Donald Trump](https://news.yahoo.com/joe-biden-gives-media-desperately-110005932.html)
-- Feb 24 - [Dead Appalachian Trail hiker, 'Mostly Harmless,' left a trail of mystery: 'He didn't want to be found'](https://news.yahoo.com/dead-appalachian-trail-hiker-mostly-090040395.html)
 <!-- feed end -->
 
 ### Onstream
