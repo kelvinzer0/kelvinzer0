@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 24 - [Wicked Little Letters](https://www.yahoo.com/entertainment/wicked-little-letters-210300321.html)
 - Feb 24 - [An RNC member is trying to stop the party from paying Donald Trump's legal bills](https://news.yahoo.com/rnc-member-trying-stop-party-202108580.html)
 - Feb 24 - [Grappler Successfully Used In Florida Police Chase](https://news.yahoo.com/grappler-successfully-used-florida-police-190000105.html)
 - Feb 24 - [Illinois judge who reversed rape conviction removed from bench after panel finds he circumvented law](https://news.yahoo.com/illinois-judge-reversed-rape-conviction-183126464.html)
 - Feb 24 - [Slovakian prime minister believes Russia started war against Ukraine because of "rampant Ukrainian neo-Nazis"](https://news.yahoo.com/slovakian-prime-minister-believes-russia-174800684.html)
+- Feb 24 - [Elon Musk steps in after California bakery jolted by cancelled Tesla order](https://www.yahoo.com/tech/elon-musk-steps-california-bakery-153556673.html)
 <!-- feed end -->
 
 ### Onstream
