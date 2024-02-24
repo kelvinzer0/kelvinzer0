@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 24 - [American Sailing Couple Disappears in Caribbean. Their Yacht Is Found 80 Miles Away](https://www.yahoo.com/entertainment/american-sailing-couple-disappears-caribbean-025006600.html)
-- Feb 24 - [Jury convicts Southern California socialite in 2020 hit-and-run deaths of two young brothers](https://news.yahoo.com/jury-convicts-southern-california-socialite-004207937.html)
 - Feb 24 - [Trump's lawyers seek to suspend $83M defamation verdict, citing 'strong probability' it won't stand](https://news.yahoo.com/trumps-lawyers-seek-suspend-83m-001750010.html)
 - Feb 24 - [Conservative Family ‘Disappointed’ After Moving To Russia To Escape LGBTQ Ideology](https://www.yahoo.com/entertainment/conservative-family-disappointed-moving-russia-001517915.html)
-- Feb 23 - [Ford halts shipments of new F-150 Lightning EVs](https://finance.yahoo.com/news/ford-stops-shipments-2024-f-222242262.html)
+- Feb 23 - [NORAD fighters intercept high-altitude balloon flying over Utah](https://news.yahoo.com/norad-fighter-intercepts-high-altitude-221733890.html)
+- Feb 23 - [Fox News cuts into footage of Trump's speech in South Carolina to point out inaccuracies](https://news.yahoo.com/fox-news-cuts-footage-trumps-225538458.html)
 <!-- feed end -->
 
 ### Onstream
