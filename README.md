@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 24 - [Jury convicts Southern California socialite in 2020 hit-and-run deaths of two young brothers](https://news.yahoo.com/jury-convicts-southern-california-socialite-004207937.html)
 - Feb 24 - [Trump's lawyers seek to suspend $83M defamation verdict, citing 'strong probability' it won't stand](https://news.yahoo.com/trumps-lawyers-seek-suspend-83m-001750010.html)
 - Feb 24 - [Conservative Family ‘Disappointed’ After Moving To Russia To Escape LGBTQ Ideology](https://www.yahoo.com/entertainment/conservative-family-disappointed-moving-russia-001517915.html)
-- Feb 23 - [US appeals court panel declines to delay execution of one of longest-serving death row inmates](https://news.yahoo.com/us-appeals-court-declines-delay-235505090.html)
 - Feb 23 - [California Bakery Owner 'Left High and Dry' After Tesla Reportedly Canceled $16,000 Pie Order](https://www.yahoo.com/entertainment/california-bakery-owner-left-high-231743393.html)
 - Feb 23 - [Fox News cuts into footage of Trump's speech in South Carolina to point out inaccuracies](https://news.yahoo.com/fox-news-cuts-footage-trumps-225538458.html)
 <!-- feed end -->
