@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 25 - [San Francisco store tests new shopping method to deter ‘rampant shoplifting’](https://news.yahoo.com/san-francisco-store-tests-shopping-185610070.html)
 - Feb 25 - [A video appears to show a lone Ukrainian soldier fending off 10 Russian soldiers in close-quarter trench battle](https://news.yahoo.com/video-appears-show-lone-ukrainian-184342419.html)
 - Feb 25 - [A college is removing its vending machines after a student discovered they were using facial recognition technology](https://news.yahoo.com/college-removing-vending-machines-student-183314550.html)
 - Feb 25 - [Footage appears to show Ukrainian drones destroying prized Russian armor, including a rare 'Terminator' tank, left in an unlocked warehouse](https://news.yahoo.com/footage-appears-show-ukrainian-drones-182408697.html)
 - Feb 25 - [Sylvester Stallone is 'permanently' leaving California behind for Florida: 'It's a done deal'](https://www.yahoo.com/entertainment/sylvester-stallone-permanently-leaving-california-173625219.html)
-- Feb 25 - [Video shows brazen thieves stealing car from quiet street in Hollywood Hills](https://news.yahoo.com/video-shows-brazen-thieves-stealing-165404995.html)
 <!-- feed end -->
 
 ### Onstream
