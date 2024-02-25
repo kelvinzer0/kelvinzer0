@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 25 - [Video shows brazen thieves stealing car from quiet street in Hollywood Hills](https://news.yahoo.com/video-shows-brazen-thieves-stealing-165404995.html)
 - Feb 25 - [First responders in a Texas town are struggling to cope with the trauma of recovering bodies from the Rio Grande](https://news.yahoo.com/first-responders-texas-town-struggling-160000573.html)
-- Feb 25 - [Woman loses £650K spinal injury claim after being pictured winning Christmas tree throwing contest](https://news.yahoo.com/woman-photographed-throwing-tree-claiming-144338896.html)
+- Feb 25 - [Woman loses £650,000 injury claim after being pictured winning Christmas tree-throwing contest](https://news.yahoo.com/woman-photographed-throwing-tree-claiming-144338896.html)
 - Feb 25 - [Mysterious skull of an enormous sea creature washes up on a California beach. See it](https://news.yahoo.com/mysterious-skull-enormous-sea-creature-154644503.html)
-- Feb 25 - [One of the world’s biggest cities may be just months away from running out of water](https://news.yahoo.com/one-world-biggest-cities-may-103023024.html)
-- Feb 25 - [Boris Johnson explains why Trump's possible re-election should not be feared](https://news.yahoo.com/boris-johnson-explains-why-trumps-123857551.html)
+- Feb 25 - [Zelenskyy on negotiating with Putin: We will offer him platform where he can admit his defeat](https://news.yahoo.com/zelenskyy-negotiating-putin-offer-him-153152596.html)
 <!-- feed end -->
 
 ### Onstream
