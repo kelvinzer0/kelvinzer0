@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [Russian soldiers forced to rape each other says report alleging brutal violence on Ukraine frontline](https://news.yahoo.com/russian-soldiers-forced-rape-other-124517949.html)
+- Feb 25 - [One of the world’s biggest cities may be just months away from running out of water](https://news.yahoo.com/one-world-biggest-cities-may-103023024.html)
 - Feb 25 - [Blow to Putin as Europe breaks free of Russian oil for good](https://finance.yahoo.com/news/blow-putin-europe-breaks-free-115227723.html)
 - Feb 25 - [‘I’d rather be caffeinated than depressed with $6’: Young Americans are rejecting Dave Ramsey’s financial advice — here’s why they say they’re ‘not willing to do anything to get out of debt'](https://finance.yahoo.com/news/d-rather-caffeinated-depressed-6-110100987.html)
-- Feb 25 - [One of the world’s biggest cities may be just months away from running out of water](https://news.yahoo.com/one-world-biggest-cities-may-103023024.html)
 - Feb 25 - [If Alcohol Ever Makes You Poop Weird, Experts Say This Is The Reason Why](https://www.yahoo.com/lifestyle/alcohol-ever-makes-poop-weird-101604473.html)
+- Feb 25 - [The Trump vs. Biden Economy: A Comparison in 10 Charts](https://www.barrons.com/articles/trump-biden-economy-inflation-presidential-race-f8c52941?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ### Onstream
