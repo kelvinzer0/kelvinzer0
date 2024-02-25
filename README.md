@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 25 - [A video appears to show a lone Ukrainian soldier fending off 10 Russian soldiers in close-quarter trench battle](https://news.yahoo.com/video-appears-show-lone-ukrainian-184342419.html)
+- Feb 25 - [A college is removing its vending machines after a student discovered they were using facial recognition technology](https://news.yahoo.com/college-removing-vending-machines-student-183314550.html)
+- Feb 25 - [Footage appears to show Ukrainian drones destroying prized Russian armor, including a rare 'Terminator' tank, left in an unlocked warehouse](https://news.yahoo.com/footage-appears-show-ukrainian-drones-182408697.html)
+- Feb 25 - [Sylvester Stallone is 'permanently' leaving California behind for Florida: 'It's a done deal'](https://www.yahoo.com/entertainment/sylvester-stallone-permanently-leaving-california-173625219.html)
 - Feb 25 - [Video shows brazen thieves stealing car from quiet street in Hollywood Hills](https://news.yahoo.com/video-shows-brazen-thieves-stealing-165404995.html)
-- Feb 25 - [First responders in a Texas town are struggling to cope with the trauma of recovering bodies from the Rio Grande](https://news.yahoo.com/first-responders-texas-town-struggling-160000573.html)
-- Feb 25 - [Woman loses £650,000 injury claim after being pictured winning Christmas tree-throwing contest](https://news.yahoo.com/woman-photographed-throwing-tree-claiming-144338896.html)
-- Feb 25 - [Mysterious skull of an enormous sea creature washes up on a California beach. See it](https://news.yahoo.com/mysterious-skull-enormous-sea-creature-154644503.html)
-- Feb 25 - [Zelenskyy on negotiating with Putin: We will offer him platform where he can admit his defeat](https://news.yahoo.com/zelenskyy-negotiating-putin-offer-him-153152596.html)
 <!-- feed end -->
 
 ### Onstream
