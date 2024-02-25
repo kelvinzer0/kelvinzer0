@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [Wicked Little Letters: Hatching A Plan Film (Uk)](https://www.yahoo.com/entertainment/wicked-little-letters-hatching-plan-210404509.html)
 - Feb 25 - [The Trump vs. Biden Economy: A Comparison in 10 Charts](https://www.barrons.com/articles/trump-biden-economy-inflation-presidential-race-f8c52941?siteid=yhoof2&yptr=yahoo)
 - Feb 25 - [Idaho is set to execute a long-time death row inmate, a serial killer with a penchant for poetry](https://news.yahoo.com/idaho-set-execute-long-time-050125784.html)
 - Feb 25 - [‘My ultimate and absolute revenge’: Trump gives chilling CPAC speech on presidential agenda](https://news.yahoo.com/ultimate-absolute-revenge-trump-gives-223538091.html)
 - Feb 24 - [Melania Trump’s ‘I Really Don’t Care’ Jacket Was A Message To Ivanka Trump, New Book Claims](https://www.yahoo.com/entertainment/melania-trump-really-don-t-234517115.html)
+- Feb 24 - [The Internet Is Roasting Lara Trump’s Claims About Her & Eric’s Children’s Nighttime Routine](https://www.yahoo.com/lifestyle/internet-roasting-lara-trump-claims-223400759.html)
 <!-- feed end -->
 
 ### Onstream
