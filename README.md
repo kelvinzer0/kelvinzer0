@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 25 - [Wicked Little Letters: Hatching A Plan Film (Uk)](https://www.yahoo.com/entertainment/wicked-little-letters-hatching-plan-210404509.html)
+- Feb 25 - [‘Seriously wacky’: This doctor has a $500K job offer — and his wife wants him to turn it down. Ramit Sethi sees her side, but cautions the couple not to fall victim to this this 1 trap](https://finance.yahoo.com/news/seriously-wacky-doctor-500k-job-121100995.html)
+- Feb 25 - [Blow to Putin as Europe breaks free of Russian oil for good](https://finance.yahoo.com/news/blow-putin-europe-breaks-free-115227723.html)
 - Feb 25 - [‘I’d rather be caffeinated than depressed with $6’: Young Americans are rejecting Dave Ramsey’s financial advice — here’s why they say they’re ‘not willing to do anything to get out of debt'](https://finance.yahoo.com/news/d-rather-caffeinated-depressed-6-110100987.html)
 - Feb 25 - [One of the world’s biggest cities may be just months away from running out of water](https://news.yahoo.com/one-world-biggest-cities-may-103023024.html)
-- Feb 25 - [The Trump vs. Biden Economy: A Comparison in 10 Charts](https://www.barrons.com/articles/trump-biden-economy-inflation-presidential-race-f8c52941?siteid=yhoof2&yptr=yahoo)
-- Feb 25 - [Idaho is set to execute a long-time death row inmate, a serial killer with a penchant for poetry](https://news.yahoo.com/idaho-set-execute-long-time-050125784.html)
-- Feb 25 - [NJ TikToker bizarrely asked to sleep in the same bed as her colleague on overseas work trip: ‘HR loves a good rom-com’](https://news.yahoo.com/nj-woman-bizarrely-asked-sleep-030137604.html)
 <!-- feed end -->
 
 ### Onstream
