@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [Wicked Little Letters: Hatching A Plan Film (Uk)](https://www.yahoo.com/entertainment/wicked-little-letters-hatching-plan-210404509.html)
-- Feb 25 - [‘Seriously wacky’: This doctor has a $500K job offer — and his wife wants him to turn it down. Ramit Sethi sees her side, but cautions the couple not to fall victim to this this 1 trap](https://finance.yahoo.com/news/seriously-wacky-doctor-500k-job-121100995.html)
+- Feb 25 - [Russian soldiers forced to rape each other says report alleging brutal violence on Ukraine frontline](https://news.yahoo.com/russian-soldiers-forced-rape-other-124517949.html)
 - Feb 25 - [Blow to Putin as Europe breaks free of Russian oil for good](https://finance.yahoo.com/news/blow-putin-europe-breaks-free-115227723.html)
 - Feb 25 - [‘I’d rather be caffeinated than depressed with $6’: Young Americans are rejecting Dave Ramsey’s financial advice — here’s why they say they’re ‘not willing to do anything to get out of debt'](https://finance.yahoo.com/news/d-rather-caffeinated-depressed-6-110100987.html)
 - Feb 25 - [One of the world’s biggest cities may be just months away from running out of water](https://news.yahoo.com/one-world-biggest-cities-may-103023024.html)
+- Feb 25 - [If Alcohol Ever Makes You Poop Weird, Experts Say This Is The Reason Why](https://www.yahoo.com/lifestyle/alcohol-ever-makes-poop-weird-101604473.html)
 <!-- feed end -->
 
 ### Onstream
