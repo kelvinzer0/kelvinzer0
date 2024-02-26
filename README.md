@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Students walk out of Oklahoma high school where nonbinary student was beaten and later died](https://news.yahoo.com/students-walk-oklahoma-high-school-215441375.html)
-- Feb 26 - [Trump legal news brief: Trump lawyers ask judge to admit cellphone records in push to disqualify DA Fani Willis](https://news.yahoo.com/trump-legal-news-brief-trump-lawyers-ask-judge-to-admit-cellphone-records-in-push-to-disqualify-da-fani-willis-213420561.html)
+- Feb 26 - [Dutch to give 100 million euros to Czech initiative to buy ammunition for Ukraine](https://news.yahoo.com/dutch-100-million-euros-czech-223829865.html)
+- Feb 26 - [J.K. Rowling Says ‘I’m So Sick of This S—‘ After Sky News Describes Transgender Killer as a ‘Woman’: ‘This Is Not a Woman. These Are Not Our Crimes’](https://www.yahoo.com/entertainment/j-k-rowling-says-m-222339060.html)
+- Feb 26 - [Investigation underway after 2 bodies found at Boston hotel, police say](https://news.yahoo.com/investigation-underway-2-bodies-found-175508425.html)
+- Feb 26 - [Trump seeks to block Stormy Daniels, Michael Cohen from testifying at NY hush money trial](https://news.yahoo.com/trump-seeks-block-stormy-daniels-213851811.html)
 - Feb 26 - [Biden’s election odds are finally improving](https://finance.yahoo.com/news/bidens-election-odds-are-finally-improving-212911325.html)
-- Feb 26 - [Republicans say Georgia student's killing shows Biden's migration policies have failed](https://news.yahoo.com/republicans-georgia-students-killing-shows-212711283.html)
-- Feb 26 - [People Who Accidentally Woke Up Mid-Surgery Are Sharing What Happened, And It's Wild](https://www.yahoo.com/lifestyle/people-accidentally-woke-mid-surgery-211603797.html)
 <!-- feed end -->
 
 ### Onstream
