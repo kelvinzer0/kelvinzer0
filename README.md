@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [Hutchinson says Trump wants to wrap up nomination soon ‘because he knows the storm clouds are gathering over him’](https://news.yahoo.com/hutchinson-says-trump-wants-wrap-020529119.html)
 - Feb 26 - [Air Force member in critical condition after setting himself on fire outside Israeli embassy in DC](https://news.yahoo.com/air-force-member-critical-condition-020308974.html)
 - Feb 26 - [Melania Trump’s Time As First Lady Was Allegedly Spent Discussing Prenup With Her Lawyers](https://www.yahoo.com/entertainment/melania-trump-time-first-lady-003048631.html)
 - Feb 26 - [Donald Trump: #TrumpIsNotWell Trends On X, He ‘Needs A Psychiatric Evaluation’](https://www.yahoo.com/entertainment/donald-trump-trumpisnotwell-trends-x-001350898.html)
 - Feb 25 - [Farah Griffin: Haley’s South Carolina results should be a ‘five-alarm fire’ for the GOP](https://news.yahoo.com/farah-griffin-haley-south-carolina-235205447.html)
-- Feb 25 - [Michigan parents allegedly made their kids wear collars and eat dog food: reports](https://news.yahoo.com/michigan-parents-allegedly-made-kids-233317857.html)
 <!-- feed end -->
 
 ### Onstream
