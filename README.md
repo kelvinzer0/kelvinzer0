@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [FBI tells court Baldwin's 'Rust' gun would not fire without pulling trigger](https://news.yahoo.com/fbi-tells-court-baldwins-rust-180426546.html)
 - Feb 26 - [Dr. Phil’s Abrupt COVID Tirade Rankles View Hosts — Watch](https://www.yahoo.com/entertainment/dr-phil-abrupt-covid-tirade-175637038.html)
-- Feb 26 - [Supreme Court's Thomas hires clerk accused of racist conduct](https://news.yahoo.com/supreme-courts-thomas-hires-clerk-173130235.html)
-- Feb 26 - [Former professor gives $1 billion to NYC medical school to pay for student tuition](https://news.yahoo.com/former-professor-gives-1-billion-170626119.html)
+- Feb 26 - [Watch the new US Navy supercarrier USS John F. Kennedy catapult heavy cars into a river to make sure the warship can handle planes](https://news.yahoo.com/watch-us-navy-supercarrier-uss-173136842.html)
 - Feb 26 - [A woman who was charged $1,000 for Subway sandwiches got her refund 7 weeks later — as a fistful of cash](https://news.yahoo.com/woman-charged-1-000-subway-170330227.html)
-- Feb 26 - [Trump throws Truth Social tantrum demanding all cases against him "must be immediately halted"](https://news.yahoo.com/trump-throws-truth-social-tantrum-161551184.html)
+- Feb 26 - [Rep. Perry says House GOP should cancel Biden’s SOTU address](https://news.yahoo.com/rep-perry-says-house-gop-170025600.html)
 <!-- feed end -->
 
 ### Onstream
