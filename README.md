@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Palestinian Prime Minister Shtayyeh resigns](https://news.yahoo.com/palestinian-prime-minister-shtayyeh-resigns-090609131.html)
-- Feb 26 - [The Taliban hold another public execution as thousands watch at a stadium in northern Afghanistan](https://news.yahoo.com/taliban-hold-another-public-execution-090139131.html)
-- Feb 26 - [She's left with a concrete slab and $140K out of pocket after conflict with a contractor](https://news.yahoo.com/shes-left-concrete-slab-140k-090000480.html)
-- Feb 26 - [Exclusive-Satellite images reveal floating barrier at mouth of disputed atoll in South China Sea](https://news.yahoo.com/exclusive-satellite-images-reveal-floating-074135585.html)
-- Feb 26 - [Family describes violent scene left behind on missing American couple’s yacht after alleged hijacking in Grenada](https://news.yahoo.com/americans-believed-dead-police-yacht-204541208.html)
+- Feb 26 - [Ukrainian troops pull back again as Russia's onslaught pushes ahead in eastern Ukraine](https://news.yahoo.com/ukrainian-troops-pull-back-again-115354404.html)
+- Feb 26 - [A woman was charged $1,000 for a Subway sandwich. She says she's not been refunded and has struggled to afford groceries.](https://news.yahoo.com/woman-charged-1-000-subway-112110370.html)
+- Feb 26 - [‘You can’t afford a single cent of this!’: Texas woman treats U.S. taxpayers like her sugar daddy. Has $11,000 in student loans and needs 300% of income to survive. Caleb Hammer responds](https://finance.yahoo.com/news/t-afford-single-cent-texas-111300679.html)
+- Feb 26 - [Trump's CPAC speech showed clear signs of major cognitive decline — yet MAGA cheered](https://news.yahoo.com/trumps-cpac-speech-showed-clear-110924840.html)
+- Feb 26 - [Thousands of Ford owners may be driving a 'ticking time bomb' with flawed air bag repairs](https://finance.yahoo.com/news/thousands-ford-owners-may-driving-104628257.html)
 <!-- feed end -->
 
 ### Onstream
