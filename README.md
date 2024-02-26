@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [Do you fall asleep with the TV on every night? Here's what experts say about the habit.](https://www.yahoo.com/lifestyle/do-you-fall-asleep-with-the-tv-on-every-night-heres-what-experts-say-about-the-habit-203936575.html)
 - Feb 26 - [Investigation underway after 2 bodies found at Boston hotel, police say](https://news.yahoo.com/investigation-underway-2-bodies-found-175508425.html)
-- Feb 26 - ["Ice her": Trump plots to use Cannon to make it "impossible" for Chutkan to hold pre-election trial](https://news.yahoo.com/ice-her-trump-plots-cannon-185540350.html)
-- Feb 26 - [Texas governor responds to LGBTQ human rights criticisms: ‘The UN can go pound sand’](https://news.yahoo.com/texas-governor-responds-lgbtq-human-184425459.html)
-- Feb 26 - [Alec Baldwin 'Rust' shooting trial set for July](https://news.yahoo.com/fbi-tells-court-baldwins-rust-180426546.html)
-- Feb 26 - [Dr. Phil’s Abrupt COVID Tirade Rankles View Hosts — Watch](https://www.yahoo.com/entertainment/dr-phil-abrupt-covid-tirade-175637038.html)
+- Feb 26 - [MI5 ‘must come clean’ over Rhianan Rudd, who killed herself after being charged with terrorism at 14](https://news.yahoo.com/mi5-must-come-clean-over-201831040.html)
+- Feb 26 - [Man admits to fatal machete attack on teenage coworker at McDonald's but pursues NCR defence](https://news.yahoo.com/sundre-man-admits-fatal-machete-201337634.html)
+- Feb 26 - [Prosecutors seek Trump gag order in NY hush money criminal case](https://news.yahoo.com/prosecutors-seek-gag-order-trump-195403592.html)
 <!-- feed end -->
 
 ### Onstream
