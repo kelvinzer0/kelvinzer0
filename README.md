@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [Dr. Phil’s Abrupt COVID Tirade Rankles View Hosts — Watch](https://www.yahoo.com/entertainment/dr-phil-abrupt-covid-tirade-175637038.html)
+- Feb 26 - [Supreme Court's Thomas hires clerk accused of racist conduct](https://news.yahoo.com/supreme-courts-thomas-hires-clerk-173130235.html)
+- Feb 26 - [Former professor gives $1 billion to NYC medical school to pay for student tuition](https://news.yahoo.com/former-professor-gives-1-billion-170626119.html)
+- Feb 26 - [A woman who was charged $1,000 for Subway sandwiches got her refund 7 weeks later — as a fistful of cash](https://news.yahoo.com/woman-charged-1-000-subway-170330227.html)
 - Feb 26 - [Trump throws Truth Social tantrum demanding all cases against him "must be immediately halted"](https://news.yahoo.com/trump-throws-truth-social-tantrum-161551184.html)
-- Feb 26 - [US couple whose catamaran was hijacked were likely thrown overboard and died, Grenada police say](https://news.yahoo.com/grenada-police-us-couple-whose-155250299.html)
-- Feb 26 - [Dog walker spots rare — and ‘highly venomous’ — sea creature on beach in Australia](https://news.yahoo.com/dog-walker-spots-rare-highly-155239911.html)
-- Feb 26 - [This teenager was struggling to find size 23 shoes to wear. Shaq came to his rescue.](https://news.yahoo.com/teenager-struggling-size-23-shoes-153350061.html)
-- Feb 26 - ["In for a rude awakening": McDaniel announces resignation as cash-strapped Trump eyes RNC takeover](https://news.yahoo.com/rude-awakening-mcdaniel-announces-resignation-152829876.html)
 <!-- feed end -->
 
 ### Onstream
