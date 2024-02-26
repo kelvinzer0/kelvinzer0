@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 25 - [Man accused of throwing hot coffee at Pasco Dunkin’ employee’s face after receiving drink for free: police](https://news.yahoo.com/man-accused-throwing-hot-coffee-201145289.html)
+- Feb 26 - [Melania Trump’s Time As First Lady Was Allegedly Spent Discussing Prenup With Her Lawyers](https://www.yahoo.com/entertainment/melania-trump-time-first-lady-003048631.html)
+- Feb 26 - [Donald Trump: #TrumpIsNotWell Trends On X, He ‘Needs A Psychiatric Evaluation’](https://www.yahoo.com/entertainment/donald-trump-trumpisnotwell-trends-x-001350898.html)
+- Feb 25 - [Biden is summoning congressional leaders to the White House to talk Ukraine and government funding](https://news.yahoo.com/biden-summoning-congressional-leaders-white-230040595.html)
+- Feb 25 - [Family of Americans believed dead after yacht allegedly hijacked in Grenada describe scene of violence](https://news.yahoo.com/americans-believed-dead-police-yacht-204541208.html)
 - Feb 25 - [San Francisco store tests new shopping method to deter ‘rampant shoplifting’](https://news.yahoo.com/san-francisco-store-tests-shopping-185610070.html)
-- Feb 25 - [A video appears to show a lone Ukrainian soldier fending off 10 Russian soldiers in close-quarter trench battle](https://news.yahoo.com/video-appears-show-lone-ukrainian-184342419.html)
-- Feb 25 - [Footage appears to show Ukrainian drones destroying prized Russian armor, including a rare 'Terminator' tank, left in an unlocked warehouse](https://news.yahoo.com/footage-appears-show-ukrainian-drones-182408697.html)
-- Feb 25 - [Sylvester Stallone is 'permanently' leaving California behind for Florida: 'It's a done deal'](https://www.yahoo.com/entertainment/sylvester-stallone-permanently-leaving-california-173625219.html)
 <!-- feed end -->
 
 ### Onstream
