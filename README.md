@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [Nawaz Sharif's daughter elected to head Pakistan's Punjab, seen as stepping stone](https://news.yahoo.com/nawaz-sharifs-daughter-elected-head-095740398.html)
+- Feb 26 - [Former Pakistani Premier Nawaz Sharif's daughter and close aide takes over top provincial post](https://news.yahoo.com/former-pakistani-premier-nawaz-sharifs-095435609.html)
 - Feb 26 - [Exclusive-Satellite images reveal floating barrier at mouth of disputed atoll in South China Sea](https://news.yahoo.com/exclusive-satellite-images-reveal-floating-074135585.html)
 - Feb 26 - [Family describes violent scene left behind on missing American couple’s yacht after alleged hijacking in Grenada](https://news.yahoo.com/americans-believed-dead-police-yacht-204541208.html)
-- Feb 26 - [Israel-Gaza live updates: Israel says it agrees to cease-fire, hostage release](https://news.yahoo.com/israel-gaza-live-updates-israel-051900370.html)
-- Feb 26 - [Brooklyn preacher goes on trial for fraud charges prosecutors say fueled lavish lifestyle](https://news.yahoo.com/brooklyn-preacher-goes-trial-fraud-050706836.html)
-- Feb 26 - [Moscow ally Serbia cracks down on anti-war Russians living in the Balkan country](https://news.yahoo.com/moscow-ally-serbia-cracks-down-050532802.html)
+- Feb 26 - [Japan's SLIM moon probe unexpectedly survives lunar night](https://news.yahoo.com/japans-slim-moon-probe-unexpectedly-053150670.html)
 <!-- feed end -->
 
 ### Onstream
