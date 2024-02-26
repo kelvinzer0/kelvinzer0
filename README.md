@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Biden to sit down with late-night comic Seth Meyers in New York on Monday](https://news.yahoo.com/biden-sit-down-night-comic-160330511.html)
+- Feb 26 - [Trump throws Truth Social tantrum demanding all cases against him "must be immediately halted"](https://news.yahoo.com/trump-throws-truth-social-tantrum-161551184.html)
+- Feb 26 - [US couple whose catamaran was hijacked were likely thrown overboard and died, Grenada police say](https://news.yahoo.com/grenada-police-us-couple-whose-155250299.html)
+- Feb 26 - [Dog walker spots rare — and ‘highly venomous’ — sea creature on beach in Australia](https://news.yahoo.com/dog-walker-spots-rare-highly-155239911.html)
 - Feb 26 - [This teenager was struggling to find size 23 shoes to wear. Shaq came to his rescue.](https://news.yahoo.com/teenager-struggling-size-23-shoes-153350061.html)
-- Feb 26 - [Biden is traveling to the U.S.-Mexico border on Thursday, according to AP sources](https://news.yahoo.com/biden-traveling-u-mexico-border-153052042.html)
 - Feb 26 - ["In for a rude awakening": McDaniel announces resignation as cash-strapped Trump eyes RNC takeover](https://news.yahoo.com/rude-awakening-mcdaniel-announces-resignation-152829876.html)
-- Feb 26 - [Sideways moon landing cuts mission short, private US lunar lander will cease operations Tuesday](https://news.yahoo.com/sideways-moon-landing-cuts-mission-152620409.html)
 <!-- feed end -->
 
 ### Onstream
