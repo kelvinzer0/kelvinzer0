@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [A fellow student is charged with killing a Christian college wrestler in Kentucky](https://news.yahoo.com/fellow-student-charged-killing-christian-131325586.html)
-- Feb 26 - [3 reasons why rich Californians like Mark Wahlberg and Dean Cain are selling their mansions and moving to Las Vegas. Is Sin City becoming the new high-end real estate capital?](https://finance.yahoo.com/news/3-reasons-why-rich-californians-130000985.html)
-- Feb 26 - [Venezuela's sudden policy change may stem from waning support for Maduro, sources say](https://news.yahoo.com/venezuelas-sudden-policy-change-may-120550540.html)
-- Feb 26 - [Ukrainian troops pull back again as Russia's onslaught pushes ahead in eastern Ukraine](https://news.yahoo.com/ukrainian-troops-pull-back-again-115354404.html)
-- Feb 26 - [A woman was charged $1,000 for a Subway sandwich. She says she's not been refunded and has struggled to afford groceries.](https://news.yahoo.com/woman-charged-1-000-subway-112110370.html)
+- Feb 26 - [Eagles' Don Henley takes the stand at 'Hotel California' lyrics trial](https://news.yahoo.com/eagles-don-henley-set-stand-145628421.html)
+- Feb 26 - [Germany's Scholz explains his reluctance to send Taurus long-range missiles to Ukraine](https://news.yahoo.com/germanys-scholz-explains-reluctance-send-145436573.html)
+- Feb 26 - [Trump appeals $355 million ruling in NY civil fraud case](https://news.yahoo.com/trump-appeals-355-million-ruling-145046239.html)
+- Feb 26 - [Beep! Beep! Supreme Court rejects case of woman ticketed for honking her horn](https://news.yahoo.com/beep-beep-supreme-court-rejects-143710496.html)
+- Feb 26 - [Peter Schiff warns US job numbers are up only because Americans are ‘forced to take 2 or 3 jobs’ — rubbishes Biden economic wins as ‘lipstick on a pig’ and claims Fed has lost inflation fight](https://finance.yahoo.com/news/peter-schiff-warns-us-job-142200088.html)
 <!-- feed end -->
 
 ### Onstream
