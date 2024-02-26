@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Ukrainian troops pull back again as Russia's onslaught pushes ahead in eastern Ukraine](https://news.yahoo.com/ukrainian-troops-pull-back-again-115354404.html)
+- Feb 26 - [3 reasons why rich Californians like Mark Wahlberg and Dean Cain are selling their mansions and moving to Las Vegas. Is Sin City becoming the new high-end real estate capital?](https://finance.yahoo.com/news/3-reasons-why-rich-californians-130000985.html)
+- Feb 26 - [A swap for Navalny was in the final stages before the opposition leader's death, an associate says](https://news.yahoo.com/swap-navalny-final-stages-opposition-121254203.html)
+- Feb 26 - [Venezuela's sudden policy change may stem from waning support for Maduro, sources say](https://news.yahoo.com/venezuelas-sudden-policy-change-may-120550540.html)
 - Feb 26 - [A woman was charged $1,000 for a Subway sandwich. She says she's not been refunded and has struggled to afford groceries.](https://news.yahoo.com/woman-charged-1-000-subway-112110370.html)
 - Feb 26 - [‘You can’t afford a single cent of this!’: Texas woman treats U.S. taxpayers like her sugar daddy. Has $11,000 in student loans and needs 300% of income to survive. Caleb Hammer responds](https://finance.yahoo.com/news/t-afford-single-cent-texas-111300679.html)
-- Feb 26 - [Trump's CPAC speech showed clear signs of major cognitive decline — yet MAGA cheered](https://news.yahoo.com/trumps-cpac-speech-showed-clear-110924840.html)
-- Feb 26 - [Thousands of Ford owners may be driving a 'ticking time bomb' with flawed air bag repairs](https://finance.yahoo.com/news/thousands-ford-owners-may-driving-104628257.html)
 <!-- feed end -->
 
 ### Onstream
