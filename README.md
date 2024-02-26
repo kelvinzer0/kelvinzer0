@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Eagles' Don Henley takes the stand at 'Hotel California' lyrics trial](https://news.yahoo.com/eagles-don-henley-set-stand-145628421.html)
-- Feb 26 - [Germany's Scholz explains his reluctance to send Taurus long-range missiles to Ukraine](https://news.yahoo.com/germanys-scholz-explains-reluctance-send-145436573.html)
-- Feb 26 - [Trump appeals $355 million ruling in NY civil fraud case](https://news.yahoo.com/trump-appeals-355-million-ruling-145046239.html)
-- Feb 26 - [Beep! Beep! Supreme Court rejects case of woman ticketed for honking her horn](https://news.yahoo.com/beep-beep-supreme-court-rejects-143710496.html)
-- Feb 26 - [Peter Schiff warns US job numbers are up only because Americans are ‘forced to take 2 or 3 jobs’ — rubbishes Biden economic wins as ‘lipstick on a pig’ and claims Fed has lost inflation fight](https://finance.yahoo.com/news/peter-schiff-warns-us-job-142200088.html)
+- Feb 26 - [Biden to sit down with late-night comic Seth Meyers in New York on Monday](https://news.yahoo.com/biden-sit-down-night-comic-160330511.html)
+- Feb 26 - [This teenager was struggling to find size 23 shoes to wear. Shaq came to his rescue.](https://news.yahoo.com/teenager-struggling-size-23-shoes-153350061.html)
+- Feb 26 - [Biden is traveling to the U.S.-Mexico border on Thursday, according to AP sources](https://news.yahoo.com/biden-traveling-u-mexico-border-153052042.html)
+- Feb 26 - ["In for a rude awakening": McDaniel announces resignation as cash-strapped Trump eyes RNC takeover](https://news.yahoo.com/rude-awakening-mcdaniel-announces-resignation-152829876.html)
+- Feb 26 - [Sideways moon landing cuts mission short, private US lunar lander will cease operations Tuesday](https://news.yahoo.com/sideways-moon-landing-cuts-mission-152620409.html)
 <!-- feed end -->
 
 ### Onstream
