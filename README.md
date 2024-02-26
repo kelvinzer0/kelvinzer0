@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [A woman lost her $823,000 injury claim after lawyers found a photo of her winning a Christmas tree-throwing competition](https://news.yahoo.com/woman-lost-her-823-000-042109954.html)
 - Feb 26 - [Family describes violent scene left behind on missing American couple’s yacht after alleged hijacking in Grenada](https://news.yahoo.com/americans-believed-dead-police-yacht-204541208.html)
+- Feb 26 - [Anti-Muslim hate speech soars in India, research group says](https://news.yahoo.com/anti-muslim-hate-speech-soars-030414353.html)
 - Feb 26 - [Hutchinson says Trump wants to wrap up nomination soon ‘because he knows the storm clouds are gathering over him’](https://news.yahoo.com/hutchinson-says-trump-wants-wrap-020529119.html)
 - Feb 26 - [Air Force member in critical condition after setting himself on fire outside Israeli embassy in DC](https://news.yahoo.com/air-force-member-critical-condition-020308974.html)
-- Feb 26 - [Melania Trump’s Time As First Lady Was Allegedly Spent Discussing Prenup With Her Lawyers](https://www.yahoo.com/entertainment/melania-trump-time-first-lady-003048631.html)
-- Feb 26 - [Donald Trump: #TrumpIsNotWell Trends On X, He ‘Needs A Psychiatric Evaluation’](https://www.yahoo.com/entertainment/donald-trump-trumpisnotwell-trends-x-001350898.html)
 <!-- feed end -->
 
 ### Onstream
