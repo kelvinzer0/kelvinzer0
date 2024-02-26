@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 26 - [Exclusive-Satellite images reveal floating barrier at mouth of disputed atoll in South China Sea](https://news.yahoo.com/exclusive-satellite-images-reveal-floating-074135585.html)
 - Feb 26 - [Family describes violent scene left behind on missing American couple’s yacht after alleged hijacking in Grenada](https://news.yahoo.com/americans-believed-dead-police-yacht-204541208.html)
-- Feb 26 - [Japan's SLIM moon probe unexpectedly survives lunar night](https://news.yahoo.com/japans-slim-moon-probe-unexpectedly-053150670.html)
+- Feb 26 - [John Oliver Nails the Fatal Flaw in Alabama’s IVF Ban](https://www.yahoo.com/entertainment/john-oliver-nails-fatal-flaw-055207333.html)
 - Feb 26 - [Israel-Gaza live updates: Israel says it agrees to cease-fire, hostage release](https://news.yahoo.com/israel-gaza-live-updates-israel-051900370.html)
 - Feb 26 - [Brooklyn preacher goes on trial for fraud charges prosecutors say fueled lavish lifestyle](https://news.yahoo.com/brooklyn-preacher-goes-trial-fraud-050706836.html)
-- Feb 26 - [A woman lost her $823,000 injury claim after lawyers found a photo of her winning a Christmas tree-throwing competition](https://news.yahoo.com/woman-lost-her-823-000-042109954.html)
 <!-- feed end -->
 
 ### Onstream
