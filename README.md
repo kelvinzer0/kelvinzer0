@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Do you fall asleep with the TV on every night? Here's what experts say about the habit.](https://www.yahoo.com/lifestyle/do-you-fall-asleep-with-the-tv-on-every-night-heres-what-experts-say-about-the-habit-203936575.html)
-- Feb 26 - [Investigation underway after 2 bodies found at Boston hotel, police say](https://news.yahoo.com/investigation-underway-2-bodies-found-175508425.html)
-- Feb 26 - [MI5 ‘must come clean’ over Rhianan Rudd, who killed herself after being charged with terrorism at 14](https://news.yahoo.com/mi5-must-come-clean-over-201831040.html)
-- Feb 26 - [Man admits to fatal machete attack on teenage coworker at McDonald's but pursues NCR defence](https://news.yahoo.com/sundre-man-admits-fatal-machete-201337634.html)
-- Feb 26 - [Prosecutors seek Trump gag order in NY hush money criminal case](https://news.yahoo.com/prosecutors-seek-gag-order-trump-195403592.html)
+- Feb 26 - [Students walk out of Oklahoma high school where nonbinary student was beaten and later died](https://news.yahoo.com/students-walk-oklahoma-high-school-215441375.html)
+- Feb 26 - [Trump legal news brief: Trump lawyers ask judge to admit cellphone records in push to disqualify DA Fani Willis](https://news.yahoo.com/trump-legal-news-brief-trump-lawyers-ask-judge-to-admit-cellphone-records-in-push-to-disqualify-da-fani-willis-213420561.html)
+- Feb 26 - [Biden’s election odds are finally improving](https://finance.yahoo.com/news/bidens-election-odds-are-finally-improving-212911325.html)
+- Feb 26 - [Republicans say Georgia student's killing shows Biden's migration policies have failed](https://news.yahoo.com/republicans-georgia-students-killing-shows-212711283.html)
+- Feb 26 - [People Who Accidentally Woke Up Mid-Surgery Are Sharing What Happened, And It's Wild](https://www.yahoo.com/lifestyle/people-accidentally-woke-mid-surgery-211603797.html)
 <!-- feed end -->
 
 ### Onstream
