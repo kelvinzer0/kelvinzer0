@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [FBI tells court Baldwin's 'Rust' gun would not fire without pulling trigger](https://news.yahoo.com/fbi-tells-court-baldwins-rust-180426546.html)
+- Feb 26 - [Investigation underway after 2 bodies found at Boston hotel, police say](https://news.yahoo.com/investigation-underway-2-bodies-found-175508425.html)
+- Feb 26 - ["Ice her": Trump plots to use Cannon to make it "impossible" for Chutkan to hold pre-election trial](https://news.yahoo.com/ice-her-trump-plots-cannon-185540350.html)
+- Feb 26 - [Texas governor responds to LGBTQ human rights criticisms: ‘The UN can go pound sand’](https://news.yahoo.com/texas-governor-responds-lgbtq-human-184425459.html)
+- Feb 26 - [Alec Baldwin 'Rust' shooting trial set for July](https://news.yahoo.com/fbi-tells-court-baldwins-rust-180426546.html)
 - Feb 26 - [Dr. Phil’s Abrupt COVID Tirade Rankles View Hosts — Watch](https://www.yahoo.com/entertainment/dr-phil-abrupt-covid-tirade-175637038.html)
-- Feb 26 - [Watch the new US Navy supercarrier USS John F. Kennedy catapult heavy cars into a river to make sure the warship can handle planes](https://news.yahoo.com/watch-us-navy-supercarrier-uss-173136842.html)
-- Feb 26 - [A woman who was charged $1,000 for Subway sandwiches got her refund 7 weeks later — as a fistful of cash](https://news.yahoo.com/woman-charged-1-000-subway-170330227.html)
-- Feb 26 - [Rep. Perry says House GOP should cancel Biden’s SOTU address](https://news.yahoo.com/rep-perry-says-house-gop-170025600.html)
 <!-- feed end -->
 
 ### Onstream
