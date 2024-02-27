@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [New Zealand set to scrap world-first tobacco sale ban](https://news.yahoo.com/zealand-set-scrap-world-first-142939180.html)
-- Feb 27 - [Rally against SB4 to happen outside Houston Rodeo](https://news.yahoo.com/rally-against-sb4-happen-outside-141538808.html)
-- Feb 27 - [“More indictments await”: Experts say Jan. 6 architect’s secret tweets may lead to "felony charges”](https://news.yahoo.com/more-indictments-await-experts-jan-140209926.html)
-- Feb 27 - ['Elon, what are you doing?': Joe Rogan flipped out when he saw Tesla's Optimus Gen 2 robots moving 'exactly like a person' and even gently holding eggs — 3 top robotics stocks to watch now](https://finance.yahoo.com/news/elon-doing-joe-rogan-flipped-124600163.html)
-- Feb 27 - [A former member of Germany's Red Army Faction has been arrested after decades in hiding](https://news.yahoo.com/former-member-germanys-red-army-111932716.html)
+- Feb 27 - [There's a norovirus outbreak. Here's how to avoid it — and what to do if you catch it.](https://www.yahoo.com/lifestyle/theres-a-norovirus-outbreak-heres-how-to-avoid-it--and-what-to-do-if-you-catch-it-224854240.html)
+- Feb 27 - [Laken Riley murder: Affidavits reveal disturbing details about death of 22-year-old nursing student](https://news.yahoo.com/laken-riley-murder-warrants-reveal-145208351.html)
+- Feb 27 - [Biden Shrugs Off Age Concerns on Seth Meyers, Says Trump Is Nearly the Same Age and ‘Can’t Even Remember His Wife’s Name’ | Video](https://www.yahoo.com/entertainment/biden-shrugs-off-age-concerns-154426262.html)
+- Feb 27 - [Chevron-Hess deal could face possible challenge from Exxon](https://finance.yahoo.com/video/chevron-hess-deal-could-face-153623241.html)
+- Feb 27 - [Plies Wants Black People To Wake Up Regarding Donald Trump: “He Think Y’all Is This Stupid”](https://www.yahoo.com/entertainment/plies-wants-black-people-wake-153552331.html)
 <!-- feed end -->
 
 ### Onstream
