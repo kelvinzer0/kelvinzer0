@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [A woman lost her $823,000 injury claim after lawyers found a photo of her winning a Christmas-tree-throwing competition](https://news.yahoo.com/woman-lost-her-823-000-042109954.html)
-- Feb 27 - [An ex-KGB agent says every American that Putin can imprison is 'an asset that you can trade' as Moscow detains a US ballerina](https://news.yahoo.com/ex-kgb-agent-says-every-073429276.html)
-- Feb 27 - [Court documents shed new details in killing of nursing student at University of Georgia](https://news.yahoo.com/court-documents-shed-details-killing-070112700.html)
-- Feb 27 - [The Rothschild family is worth an estimated $1 billion. Meet the remaining heirs of the legendary dynasty.](https://finance.yahoo.com/news/rothschild-family-worth-estimated-1-061611648.html)
-- Feb 27 - [Drew Peterson: ‘Being obnoxious got me convicted’](https://news.yahoo.com/drew-peterson-being-obnoxious-got-035213895.html)
+- Feb 27 - [Several Injured as High-Speed Pursuit of Suspect Ends in Crash](https://news.yahoo.com/several-injured-high-speed-pursuit-121253700.html)
+- Feb 27 - ['Struggling to survive': Pennsylvania retiree slapped with lifetime penalty for delaying Medicare sign-up when she was 'too poor to afford insurance' — how you can avoid this costly mistake](https://finance.yahoo.com/news/struggling-survive-pennsylvania-retiree-slapped-111200572.html)
+- Feb 27 - [Squatters set up at a Hollywood Hills home. When police knocked, an OnlyFans model answered](https://news.yahoo.com/squatters-set-hollywood-hills-home-110057122.html)
+- Feb 27 - [A 13-year-old built a 'death ray' using a 2,000-year-old concept from Greek inventor Archimedes](https://news.yahoo.com/13-old-built-death-ray-110001580.html)
+- Feb 27 - [Ukraine welcomes West's discussion of direct intervention, Russia warns against it](https://news.yahoo.com/ukraine-welcomes-wests-discussion-direct-104531016.html)
 <!-- feed end -->
 
 ### Onstream
