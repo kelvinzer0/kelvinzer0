@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 27 - [Biden hopes for Gaza ceasefire by next Monday](https://news.yahoo.com/biden-hopes-gaza-ceasefire-next-023756811.html)
+- Feb 27 - [Teacher loses arms and legs to sepsis after strep infection leads to 'the perfect storm'](https://news.yahoo.com/teacher-loses-arms-legs-sepsis-015243678.html)
 - Feb 27 - [A widow unexpectedly received $1 billion of Berkshire Hathaway stock. Now, she's covering Bronx med students' tuition forever.](https://finance.yahoo.com/news/widow-unexpectedly-received-1-billion-011406117.html)
-- Feb 27 - [With Sweden joining NATO after clearing Finland's opposition, see the new NATO map](https://news.yahoo.com/sweden-joining-nato-clearing-finlands-005351132.html)
-- Feb 27 - [The Y chromosome is disappearing. Here’s what it means for men](https://www.yahoo.com/lifestyle/y-chromosome-disappearing-means-men-004300680.html)
-- Feb 26 - [Ex-CIA Russia chief: Putin proving doubters wrong on Ukraine](https://news.yahoo.com/ex-cia-russia-chief-putin-234506029.html)
-- Feb 26 - [A former Democratic senator may face legal trouble after she claimed a GOP congressman impregnated a 20-year-old staffer](https://news.yahoo.com/former-democratic-senator-claimed-gop-231337054.html)
+- Feb 27 - [Taylor Swift’s Team Says They Were ‘Threatened’ by Paps Before Alleged Assault Involving Her Dad](https://www.yahoo.com/entertainment/taylor-swift-team-says-threatened-005717782.html)
+- Feb 27 - [With Sweden joining NATO after clearing Hungary's opposition, see the new NATO map](https://news.yahoo.com/sweden-joining-nato-clearing-finlands-005351132.html)
 <!-- feed end -->
 
 ### Onstream
