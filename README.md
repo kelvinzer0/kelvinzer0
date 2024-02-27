@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Night Court: Season 2](https://www.yahoo.com/entertainment/night-court-season-2-050257895.html)
+- Feb 27 - ['Elon, what are you doing?': Joe Rogan flipped out when he saw Tesla's Optimus Gen 2 robots moving 'exactly like a person' and even gently holding eggs — 3 top robotics stocks to watch now](https://finance.yahoo.com/news/elon-doing-joe-rogan-flipped-124600163.html)
 - Feb 27 - [A former member of Germany's Red Army Faction has been arrested after decades in hiding](https://news.yahoo.com/former-member-germanys-red-army-111932716.html)
 - Feb 27 - ['Struggling to survive': Pennsylvania retiree slapped with lifetime penalty for delaying Medicare sign-up when she was 'too poor to afford insurance' — how you can avoid this costly mistake](https://finance.yahoo.com/news/struggling-survive-pennsylvania-retiree-slapped-111200572.html)
 - Feb 27 - ["A doomsday scenario": Former DOJ prosecutor warns Trump could profit from classified docs trial](https://news.yahoo.com/doomsday-scenario-former-doj-prosecutor-110900796.html)
