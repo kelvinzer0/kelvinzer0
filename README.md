@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Biden hopes for Gaza ceasefire by next Monday](https://news.yahoo.com/biden-hopes-gaza-ceasefire-next-023756811.html)
+- Feb 27 - [Trump pays $392k in legal fees to New York Times after failed lawsuit over disclosure of his tax documents](https://finance.yahoo.com/news/trump-pays-392k-legal-fees-022201289.html)
 - Feb 27 - [Teacher loses arms and legs to sepsis after strep infection leads to 'the perfect storm'](https://news.yahoo.com/teacher-loses-arms-legs-sepsis-015243678.html)
 - Feb 27 - [A widow unexpectedly received $1 billion of Berkshire Hathaway stock. Now, she's covering Bronx med students' tuition forever.](https://finance.yahoo.com/news/widow-unexpectedly-received-1-billion-011406117.html)
 - Feb 27 - [Taylor Swift’s Team Says They Were ‘Threatened’ by Paps Before Alleged Assault Involving Her Dad](https://www.yahoo.com/entertainment/taylor-swift-team-says-threatened-005717782.html)
