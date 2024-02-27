@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 27 - [Night Court: Season 2](https://www.yahoo.com/entertainment/night-court-season-2-050257895.html)
+- Feb 27 - [Sting](https://www.yahoo.com/entertainment/sting-050357276.html)
+- Feb 27 - [Toppled moon lander sends back more images, with only hours left until it dies](https://news.yahoo.com/toppled-moon-lander-sends-back-161127685.html)
 - Feb 27 - [There's a norovirus outbreak. Here's how to avoid it — and what to do if you catch it.](https://www.yahoo.com/lifestyle/theres-a-norovirus-outbreak-heres-how-to-avoid-it--and-what-to-do-if-you-catch-it-224854240.html)
 - Feb 27 - [Laken Riley murder: Affidavits reveal disturbing details about death of 22-year-old nursing student](https://news.yahoo.com/laken-riley-murder-warrants-reveal-145208351.html)
-- Feb 27 - [Biden Shrugs Off Age Concerns on Seth Meyers, Says Trump Is Nearly the Same Age and ‘Can’t Even Remember His Wife’s Name’ | Video](https://www.yahoo.com/entertainment/biden-shrugs-off-age-concerns-154426262.html)
-- Feb 27 - [Chevron-Hess deal could face possible challenge from Exxon](https://finance.yahoo.com/video/chevron-hess-deal-could-face-153623241.html)
-- Feb 27 - [Plies Wants Black People To Wake Up Regarding Donald Trump: “He Think Y’all Is This Stupid”](https://www.yahoo.com/entertainment/plies-wants-black-people-wake-153552331.html)
 <!-- feed end -->
 
 ### Onstream
