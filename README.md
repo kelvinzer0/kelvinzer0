@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 26 - [Dutch to give 100 million euros to Czech initiative to buy ammunition for Ukraine](https://news.yahoo.com/dutch-100-million-euros-czech-223829865.html)
-- Feb 26 - [J.K. Rowling Says ‘I’m So Sick of This S—‘ After Sky News Describes Transgender Killer as a ‘Woman’: ‘This Is Not a Woman. These Are Not Our Crimes’](https://www.yahoo.com/entertainment/j-k-rowling-says-m-222339060.html)
-- Feb 26 - [Investigation underway after 2 bodies found at Boston hotel, police say](https://news.yahoo.com/investigation-underway-2-bodies-found-175508425.html)
-- Feb 26 - [Trump seeks to block Stormy Daniels, Michael Cohen from testifying at NY hush money trial](https://news.yahoo.com/trump-seeks-block-stormy-daniels-213851811.html)
-- Feb 26 - [Biden’s election odds are finally improving](https://finance.yahoo.com/news/bidens-election-odds-are-finally-improving-212911325.html)
+- Feb 27 - [Sting](https://www.yahoo.com/entertainment/sting-050357276.html)
+- Feb 26 - [Ex-CIA Russia chief: Putin proving doubters wrong on Ukraine](https://news.yahoo.com/ex-cia-russia-chief-putin-234506029.html)
+- Feb 26 - [A former Democratic senator claimed a GOP congressman impregnated a 20-year-old staffer — and she may face legal trouble over it](https://news.yahoo.com/former-democratic-senator-claimed-gop-231337054.html)
+- Feb 26 - [There's a norovirus outbreak. Here's how to avoid it — and what to do if you catch it.](https://www.yahoo.com/lifestyle/theres-a-norovirus-outbreak-heres-how-to-avoid-it--and-what-to-do-if-you-catch-it-224854240.html)
+- Feb 26 - [Barrage of gunfire as officers confront Houston megachurch shooter, released body cam footage shows](https://news.yahoo.com/barrage-gunfire-officers-confront-houston-224114665.html)
 <!-- feed end -->
 
 ### Onstream
