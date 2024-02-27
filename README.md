@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Biden Says Shutdown Would Damage Economy Significantly](https://finance.yahoo.com/video/biden-says-shutdown-damage-economy-182745536.html)
-- Feb 27 - [Why investors should brace for a 'no landing' scenario](https://finance.yahoo.com/video/why-investors-brace-no-landing-182614962.html)
+- Feb 27 - [Police release footage showing moment a woman opened fire at Houston church](https://news.yahoo.com/police-release-footage-showing-moment-194712985.html)
+- Feb 27 - [Biden: Israel agrees to halt military activity in Gaza during Ramadan](https://news.yahoo.com/biden-israel-agrees-halt-military-193244284.html)
+- Feb 27 - [Ranch for sale in Texas comes with a unique something — actually, 54 unique somethings](https://news.yahoo.com/ranch-sale-texas-comes-unique-185649781.html)
 - Feb 27 - [Heartbroken Dad Speaks Out After Mo. Professor Kills 4 Kids and Herself in Intentional House Fire](https://www.yahoo.com/entertainment/heartbroken-dad-speaks-mo-professor-181045789.html)
 - Feb 27 - [Woman faces backlash for telling Asian dog walker to ‘Go back to China’](https://news.yahoo.com/woman-faces-backlash-telling-asian-172800850.html)
-- Feb 27 - [‘They kill and play with their victims’ bodies like dolls’: The elephants terrorising Thailand](https://news.yahoo.com/kill-play-victims-bodies-dolls-172413937.html)
 <!-- feed end -->
 
 ### Onstream
