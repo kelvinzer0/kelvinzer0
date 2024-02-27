@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Sting](https://www.yahoo.com/entertainment/sting-050357276.html)
+- Feb 27 - [A widow unexpectedly received $1 billion of Berkshire Hathaway stock. Now, she's covering Bronx med students' tuition forever.](https://finance.yahoo.com/news/widow-unexpectedly-received-1-billion-011406117.html)
+- Feb 27 - [With Sweden joining NATO after clearing Finland's opposition, see the new NATO map](https://news.yahoo.com/sweden-joining-nato-clearing-finlands-005351132.html)
+- Feb 27 - [The Y chromosome is disappearing. Here’s what it means for men](https://www.yahoo.com/lifestyle/y-chromosome-disappearing-means-men-004300680.html)
 - Feb 26 - [Ex-CIA Russia chief: Putin proving doubters wrong on Ukraine](https://news.yahoo.com/ex-cia-russia-chief-putin-234506029.html)
-- Feb 26 - [A former Democratic senator claimed a GOP congressman impregnated a 20-year-old staffer — and she may face legal trouble over it](https://news.yahoo.com/former-democratic-senator-claimed-gop-231337054.html)
-- Feb 26 - [There's a norovirus outbreak. Here's how to avoid it — and what to do if you catch it.](https://www.yahoo.com/lifestyle/theres-a-norovirus-outbreak-heres-how-to-avoid-it--and-what-to-do-if-you-catch-it-224854240.html)
-- Feb 26 - [Barrage of gunfire as officers confront Houston megachurch shooter, released body cam footage shows](https://news.yahoo.com/barrage-gunfire-officers-confront-houston-224114665.html)
+- Feb 26 - [A former Democratic senator may face legal trouble after she claimed a GOP congressman impregnated a 20-year-old staffer](https://news.yahoo.com/former-democratic-senator-claimed-gop-231337054.html)
 <!-- feed end -->
 
 ### Onstream
