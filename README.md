@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Several Injured as High-Speed Pursuit of Suspect Ends in Crash](https://news.yahoo.com/several-injured-high-speed-pursuit-121253700.html)
+- Feb 27 - [Night Court: Season 2](https://www.yahoo.com/entertainment/night-court-season-2-050257895.html)
+- Feb 27 - [A former member of Germany's Red Army Faction has been arrested after decades in hiding](https://news.yahoo.com/former-member-germanys-red-army-111932716.html)
 - Feb 27 - ['Struggling to survive': Pennsylvania retiree slapped with lifetime penalty for delaying Medicare sign-up when she was 'too poor to afford insurance' — how you can avoid this costly mistake](https://finance.yahoo.com/news/struggling-survive-pennsylvania-retiree-slapped-111200572.html)
+- Feb 27 - ["A doomsday scenario": Former DOJ prosecutor warns Trump could profit from classified docs trial](https://news.yahoo.com/doomsday-scenario-former-doj-prosecutor-110900796.html)
 - Feb 27 - [Squatters set up at a Hollywood Hills home. When police knocked, an OnlyFans model answered](https://news.yahoo.com/squatters-set-hollywood-hills-home-110057122.html)
-- Feb 27 - [A 13-year-old built a 'death ray' using a 2,000-year-old concept from Greek inventor Archimedes](https://news.yahoo.com/13-old-built-death-ray-110001580.html)
-- Feb 27 - [Ukraine welcomes West's discussion of direct intervention, Russia warns against it](https://news.yahoo.com/ukraine-welcomes-wests-discussion-direct-104531016.html)
 <!-- feed end -->
 
 ### Onstream
