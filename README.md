@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Limbo (Us Trailer 1)](https://www.yahoo.com/entertainment/limbo-us-trailer-1-210406049.html)
+- Feb 27 - [A woman lost her $823,000 injury claim after lawyers found a photo of her winning a Christmas-tree-throwing competition](https://news.yahoo.com/woman-lost-her-823-000-042109954.html)
 - Feb 27 - [An ex-KGB agent says every American that Putin can imprison is 'an asset that you can trade' as Moscow detains a US ballerina](https://news.yahoo.com/ex-kgb-agent-says-every-073429276.html)
 - Feb 27 - [Court documents shed new details in killing of nursing student at University of Georgia](https://news.yahoo.com/court-documents-shed-details-killing-070112700.html)
 - Feb 27 - [The Rothschild family is worth an estimated $1 billion. Meet the remaining heirs of the legendary dynasty.](https://finance.yahoo.com/news/rothschild-family-worth-estimated-1-061611648.html)
-- Feb 27 - [Jon Stewart Gives His Solution for Israel-Hamas Peace on ‘Daily Show’](https://www.yahoo.com/entertainment/jon-stewart-gives-solution-israel-045203951.html)
+- Feb 27 - [Drew Peterson: ‘Being obnoxious got me convicted’](https://news.yahoo.com/drew-peterson-being-obnoxious-got-035213895.html)
 <!-- feed end -->
 
 ### Onstream
