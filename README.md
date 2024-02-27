@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [China's Crackdown on 'Hedonistic' Bankers Fuels Industry Brain Drain](https://finance.yahoo.com/video/chinas-crackdown-hedonistic-bankers-fuels-043023016.html)
+- Feb 27 - [Biden: Israel agrees to halt military activity over Ramadan, risks losing world support](https://news.yahoo.com/biden-israel-agrees-halt-military-054338169.html)
 - Feb 27 - [When is the best time to wake up? The ideal waking time, according to experts](https://news.yahoo.com/best-time-wake-ideal-waking-031339483.html)
-- Feb 27 - [Ex-CIA Russia chief said Putin's belief that the US would lose its nerve and stop helping Ukraine is being proven right](https://news.yahoo.com/ex-cia-russia-chief-said-031134346.html)
+- Feb 27 - [Trump pays $392k in legal fees to New York Times after failed lawsuit over disclosure of his tax documents](https://finance.yahoo.com/news/trump-pays-392k-legal-fees-022201289.html)
 - Feb 27 - [Teacher loses arms and legs to sepsis after strep infection leads to 'the perfect storm'](https://news.yahoo.com/teacher-loses-arms-legs-sepsis-015243678.html)
 - Feb 27 - [A widow unexpectedly received $1 billion of Berkshire Hathaway stock. Now, she's covering Bronx med students' tuition forever.](https://finance.yahoo.com/news/widow-unexpectedly-received-1-billion-011406117.html)
 <!-- feed end -->
