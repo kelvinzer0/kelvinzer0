@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 27 - [Court documents shed new details in killing of nursing student at University of Georgia](https://news.yahoo.com/court-documents-shed-details-killing-070112700.html)
 - Feb 27 - [The Rothschild family is worth an estimated $1 billion. Meet the remaining heirs of the legendary dynasty.](https://finance.yahoo.com/news/rothschild-family-worth-estimated-1-061611648.html)
 - Feb 27 - [Drew Peterson: ‘Being obnoxious got me convicted’](https://news.yahoo.com/drew-peterson-being-obnoxious-got-035213895.html)
 - Feb 27 - [When is the best time to wake up? The ideal waking time, according to experts](https://news.yahoo.com/best-time-wake-ideal-waking-031339483.html)
 - Feb 27 - [Teacher loses arms and legs to sepsis after strep infection leads to 'the perfect storm'](https://news.yahoo.com/teacher-loses-arms-legs-sepsis-015243678.html)
-- Feb 27 - [A widow unexpectedly received $1 billion of Berkshire Hathaway stock. Now, she's covering Bronx med students' tuition forever.](https://finance.yahoo.com/news/widow-unexpectedly-received-1-billion-011406117.html)
 <!-- feed end -->
 
 ### Onstream
