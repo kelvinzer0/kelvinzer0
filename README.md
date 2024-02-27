@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Schumer pressures Johnson to pass Ukraine funding bill: 'It's in his hands'](https://news.yahoo.com/schumer-pressures-johnson-pass-ukraine-203027010.html)
+- Feb 27 - [Indiana justices, elections board kick GOP US Senate candidate off primary ballot](https://news.yahoo.com/indiana-justices-elections-board-kick-215111190.html)
+- Feb 27 - [UnitedHealth falls on antitrust probe report](https://finance.yahoo.com/video/unitedhealth-falls-antitrust-probe-report-212301440.html)
+- Feb 27 - [Exiled Missouri lawmaker blocked from running for governor as a Democrat](https://news.yahoo.com/exiled-missouri-lawmaker-blocked-running-211340598.html)
+- Feb 27 - [Warlord involved in hundreds of murders sent to Colombia after serving drug sentence in the US](https://news.yahoo.com/warlord-involved-hundreds-murders-sent-210940760.html)
 - Feb 27 - [Hot springs close indefinitely after second person dies in 16 months, CA rangers say](https://news.yahoo.com/hot-springs-close-indefinitely-second-201850391.html)
-- Feb 27 - [70-year-old grandfather from China amazes with his physique and fitness routine](https://news.yahoo.com/70-old-grandfather-china-amazes-201715848.html)
-- Feb 27 - [Apple pulls the plug on its electric car project](https://www.autoblog.com/2024/02/27/apple-pulls-the-plug-on-its-electric-car-project/)
-- Feb 27 - [Ranch for sale in Texas comes with a unique something — actually, 54 unique somethings](https://news.yahoo.com/ranch-sale-texas-comes-unique-185649781.html)
 <!-- feed end -->
 
 ### Onstream
