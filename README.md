@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Biden says the consequence of the U.S. not funding Ukraine is 'dire'](https://news.yahoo.com/biden-says-consequence-u-not-174940033.html)
+- Feb 27 - [Biden Says Shutdown Would Damage Economy Significantly](https://finance.yahoo.com/video/biden-says-shutdown-damage-economy-182745536.html)
+- Feb 27 - [Why investors should brace for a 'no landing' scenario](https://finance.yahoo.com/video/why-investors-brace-no-landing-182614962.html)
+- Feb 27 - [Heartbroken Dad Speaks Out After Mo. Professor Kills 4 Kids and Herself in Intentional House Fire](https://www.yahoo.com/entertainment/heartbroken-dad-speaks-mo-professor-181045789.html)
 - Feb 27 - [Woman faces backlash for telling Asian dog walker to ‘Go back to China’](https://news.yahoo.com/woman-faces-backlash-telling-asian-172800850.html)
 - Feb 27 - [‘They kill and play with their victims’ bodies like dolls’: The elephants terrorising Thailand](https://news.yahoo.com/kill-play-victims-bodies-dolls-172413937.html)
-- Feb 27 - [Russia may have just carried out its first direct action against the West](https://news.yahoo.com/russia-may-just-carried-first-171928137.html)
-- Feb 27 - [New Documentary Examines Mind of Killer Joran van der Sloot](https://news.yahoo.com/documentary-examines-mind-killer-joran-165802189.html)
 <!-- feed end -->
 
 ### Onstream
