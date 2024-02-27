@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 27 - [Night Court: Season 2](https://www.yahoo.com/entertainment/night-court-season-2-050257895.html)
-- Feb 27 - [Sting](https://www.yahoo.com/entertainment/sting-050357276.html)
-- Feb 27 - [Toppled moon lander sends back more images, with only hours left until it dies](https://news.yahoo.com/toppled-moon-lander-sends-back-161127685.html)
-- Feb 27 - [There's a norovirus outbreak. Here's how to avoid it — and what to do if you catch it.](https://www.yahoo.com/lifestyle/theres-a-norovirus-outbreak-heres-how-to-avoid-it--and-what-to-do-if-you-catch-it-224854240.html)
-- Feb 27 - [Laken Riley murder: Affidavits reveal disturbing details about death of 22-year-old nursing student](https://news.yahoo.com/laken-riley-murder-warrants-reveal-145208351.html)
+- Feb 27 - [Biden says the consequence of the U.S. not funding Ukraine is 'dire'](https://news.yahoo.com/biden-says-consequence-u-not-174940033.html)
+- Feb 27 - [Woman faces backlash for telling Asian dog walker to ‘Go back to China’](https://news.yahoo.com/woman-faces-backlash-telling-asian-172800850.html)
+- Feb 27 - [‘They kill and play with their victims’ bodies like dolls’: The elephants terrorising Thailand](https://news.yahoo.com/kill-play-victims-bodies-dolls-172413937.html)
+- Feb 27 - [Russia may have just carried out its first direct action against the West](https://news.yahoo.com/russia-may-just-carried-first-171928137.html)
+- Feb 27 - [New Documentary Examines Mind of Killer Joran van der Sloot](https://news.yahoo.com/documentary-examines-mind-killer-joran-165802189.html)
 <!-- feed end -->
 
 ### Onstream
