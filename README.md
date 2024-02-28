@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 28 - [UPDATE 3-Trump loses bid to pause $454.2 million judgment in NY civil fraud case](https://finance.yahoo.com/news/1-trump-cannot-line-full-183431465.html)
+- Feb 28 - [Bitcoin retreats from $63K as Coinbase users report outages](https://finance.yahoo.com/video/bitcoin-retreats-63k-coinbase-users-203224393.html)
+- Feb 28 - ['Pro-life' GOP passes bill allowing Arizona ranchers to kill trespassing border crossers](https://news.yahoo.com/pro-life-gop-passes-bill-195312257.html)
 - Feb 28 - [Watch: French student shocked by her discovery upon visit to Chinese beach](https://news.yahoo.com/watch-french-student-shocked-her-192347233.html)
 - Feb 28 - [Older US adults should get another COVID-19 shot, advisers say](https://news.yahoo.com/older-us-adults-another-covid-191550624.html)
-- Feb 28 - [Babysitter wonders if she was wrong to call police when parents didn’t come home all night](https://www.yahoo.com/lifestyle/babysitter-wonders-she-wrong-call-190408055.html)
-- Feb 28 - [Restaurant Workers, What Are Some Common Things Customers Do That Are Actually Rude?](https://www.yahoo.com/lifestyle/restaurant-workers-common-things-customers-185645585.html)
-- Feb 28 - [Football Players Put Peanuts in Allergic Teammate's Locker — School District Says It's Not Bullying (Exclusive)](https://www.yahoo.com/entertainment/football-players-put-peanuts-allergic-182401024.html)
 <!-- feed end -->
 
 ### Onstream
