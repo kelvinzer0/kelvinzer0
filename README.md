@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 28 - [Watch: French student shocked by her discovery upon visit to Chinese beach](https://news.yahoo.com/watch-french-student-shocked-her-192347233.html)
+- Feb 28 - [Older US adults should get another COVID-19 shot, advisers say](https://news.yahoo.com/older-us-adults-another-covid-191550624.html)
+- Feb 28 - [Babysitter wonders if she was wrong to call police when parents didn’t come home all night](https://www.yahoo.com/lifestyle/babysitter-wonders-she-wrong-call-190408055.html)
+- Feb 28 - [Restaurant Workers, What Are Some Common Things Customers Do That Are Actually Rude?](https://www.yahoo.com/lifestyle/restaurant-workers-common-things-customers-185645585.html)
 - Feb 28 - [Football Players Put Peanuts in Allergic Teammate's Locker — School District Says It's Not Bullying (Exclusive)](https://www.yahoo.com/entertainment/football-players-put-peanuts-allergic-182401024.html)
-- Feb 28 - [Trump Revives Fight Over $937,989 Fine in Failed Clinton Suit](https://news.yahoo.com/trump-revives-fight-over-937-181750156.html)
-- Feb 28 - [Helicopter's thermal imaging camera helps deputies find child in Florida swamp](https://news.yahoo.com/helicopters-thermal-imaging-camera-helps-181539606.html)
-- Feb 28 - [Hackers threaten to release Trump documents from Georgia case if they don't get a ransom by Thursday](https://www.yahoo.com/tech/hackers-threaten-release-trump-documents-180944042.html)
-- Feb 28 - [Woman Mouthed 'Help Me' from Car While Passing Police Officers, Leading to Her Rescue and Man's Arrest](https://www.yahoo.com/entertainment/woman-mouthed-help-car-while-180531600.html)
 <!-- feed end -->
 
 ### Onstream
