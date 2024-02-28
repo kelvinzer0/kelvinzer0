@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 28 - [Trump, Biden Score Easy Wins in Michigan Primaries](https://finance.yahoo.com/video/president-biden-faces-uncommitted-protest-192500220.html)
+- Feb 28 - [Fact Check: Trump Supposedly Referred to His Wife Melania as 'Mercedes' During CPAC Speech. Here's What Actually Happened](https://news.yahoo.com/fact-check-trump-supposedly-referred-010701793.html)
 - Feb 27 - [Leaders gang up on Speaker Johnson at ‘intense’ White House meeting](https://news.yahoo.com/leaders-gang-speaker-johnson-intense-224728561.html)
 - Feb 27 - [People flee as cliffside parking lot crashes into ocean in California, video shows](https://news.yahoo.com/people-flee-cliffside-parking-lot-223155873.html)
-- Feb 27 - [Indiana justices, elections board kick GOP US Senate candidate off primary ballot](https://news.yahoo.com/indiana-justices-elections-board-kick-215111190.html)
-- Feb 27 - [Warlord involved in hundreds of murders sent to Colombia after serving drug sentence in the US](https://news.yahoo.com/warlord-involved-hundreds-murders-sent-210940760.html)
-- Feb 27 - [Hot springs close indefinitely after second person dies in 16 months, CA rangers say](https://news.yahoo.com/hot-springs-close-indefinitely-second-201850391.html)
+- Feb 27 - [Kentucky lawmakers advance bill allowing child support to begin with pregnancy](https://news.yahoo.com/kentucky-lawmakers-advance-bill-allowing-220946876.html)
 <!-- feed end -->
 
 ### Onstream
