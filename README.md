@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [European countries eye reopening embassies in North Korea after pandemic closures](https://news.yahoo.com/european-countries-eye-reopening-embassies-083826591.html)
+- Feb 28 - [Sam Bankman-Fried's parents are begging a judge to keep him out of prison, warning their son's social awkwardness could put him in 'extreme danger'](https://news.yahoo.com/sam-bankman-frieds-parents-begging-082034503.html)
 - Feb 28 - [Idaho set to execute Thomas Eugene Creech, one of the longest-serving death row inmates in the US](https://news.yahoo.com/idaho-set-execute-thomas-eugene-051046569.html)
 - Feb 28 - [Employees at a Kentucky Dairy Queen say they were forced to eat ice cream contaminated with cleaning solution](https://news.yahoo.com/employees-kentucky-dairy-queen-were-045427210.html)
-- Feb 28 - [Federal judge rules $1.7 trillion spending bill passed by Congress in 2022 is unconstitutional](https://news.yahoo.com/federal-judge-rules-1-7-024957056.html)
-- Feb 28 - [4 Chinese citizens, 1 in US illegally, allegedly found with $22.5M worth of marijuana plants in Georgia](https://news.yahoo.com/4-chinese-citizens-1-us-023703358.html)
+- Feb 28 - [My Innocence Has Been Obliterated After Learning These Awful, Creepy, And Messed Up Things](https://www.yahoo.com/lifestyle/innocence-obliterated-learning-awful-creepy-041602048.html)
+- Feb 28 - [Fact Check: Trump Supposedly Referred to His Wife Melania as 'Mercedes' During CPAC Speech. Here's What Actually Happened](https://news.yahoo.com/fact-check-trump-supposedly-referred-010701793.html)
 <!-- feed end -->
 
 ### Onstream
