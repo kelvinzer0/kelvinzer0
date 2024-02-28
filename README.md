@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 28 - [Billowing smoke engulfs Texas as wildfires intensify](https://news.yahoo.com/billowing-smoke-engulfs-texas-wildfires-103526625.html)
 - Feb 28 - [Sam Bankman-Fried's parents are begging a judge to keep him out of prison, warning their son's social awkwardness could put him in 'extreme danger'](https://news.yahoo.com/sam-bankman-frieds-parents-begging-082034503.html)
 - Feb 28 - [Idaho set to execute Thomas Eugene Creech, one of the longest-serving death row inmates in the US](https://news.yahoo.com/idaho-set-execute-thomas-eugene-051046569.html)
-- Feb 28 - [Employees at a Kentucky Dairy Queen say they were forced to eat ice cream contaminated with cleaning solution](https://news.yahoo.com/employees-kentucky-dairy-queen-were-045427210.html)
 - Feb 28 - [My Innocence Has Been Obliterated After Learning These Awful, Creepy, And Messed Up Things](https://www.yahoo.com/lifestyle/innocence-obliterated-learning-awful-creepy-041602048.html)
 - Feb 28 - [Fact Check: Trump Supposedly Referred to His Wife Melania as 'Mercedes' During CPAC Speech. Here's What Actually Happened](https://news.yahoo.com/fact-check-trump-supposedly-referred-010701793.html)
 <!-- feed end -->
