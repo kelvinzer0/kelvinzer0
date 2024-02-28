@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [First Jan. 6 rioter to breach the Capitol spent months regurgitating Trump's election lies](https://news.yahoo.com/first-jan-6-rioter-breach-174536577.html)
-- Feb 28 - [McConnell will step down as the Senate Republican leader in November after a record run in the job](https://news.yahoo.com/mcconnell-step-down-senate-republican-172046344.html)
-- Feb 28 - [16 100% Real Photos From Serial Killer And Sex Offender Cases That'll Chill You To Your Core](https://www.yahoo.com/lifestyle/16-100-real-photos-serial-171603242.html)
-- Feb 28 - [Trump cannot line up full bond in New York fraud case, offers to post $100 million](https://news.yahoo.com/trump-cannot-line-full-bond-170009953.html)
-- Feb 28 - [Stone sarcophagi went unopened for 600 years — until now. See what was found inside](https://news.yahoo.com/stone-sarcophagi-went-unopened-600-162239353.html)
+- Feb 28 - [Football Players Put Peanuts in Allergic Teammate's Locker — School District Says It's Not Bullying (Exclusive)](https://www.yahoo.com/entertainment/football-players-put-peanuts-allergic-182401024.html)
+- Feb 28 - [Trump Revives Fight Over $937,989 Fine in Failed Clinton Suit](https://news.yahoo.com/trump-revives-fight-over-937-181750156.html)
+- Feb 28 - [Helicopter's thermal imaging camera helps deputies find child in Florida swamp](https://news.yahoo.com/helicopters-thermal-imaging-camera-helps-181539606.html)
+- Feb 28 - [Hackers threaten to release Trump documents from Georgia case if they don't get a ransom by Thursday](https://www.yahoo.com/tech/hackers-threaten-release-trump-documents-180944042.html)
+- Feb 28 - [Woman Mouthed 'Help Me' from Car While Passing Police Officers, Leading to Her Rescue and Man's Arrest](https://www.yahoo.com/entertainment/woman-mouthed-help-car-while-180531600.html)
 <!-- feed end -->
 
 ### Onstream
