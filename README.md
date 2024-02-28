@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 28 - [Trump, Biden Score Easy Wins in Michigan Primaries](https://finance.yahoo.com/video/president-biden-faces-uncommitted-protest-192500220.html)
 - Feb 28 - [Employees at a Kentucky Dairy Queen say they were forced to eat ice cream contaminated with cleaning solution](https://news.yahoo.com/employees-kentucky-dairy-queen-were-045427210.html)
 - Feb 28 - [My Innocence Has Been Obliterated After Learning These Awful, Creepy, And Messed Up Things](https://www.yahoo.com/lifestyle/innocence-obliterated-learning-awful-creepy-041602048.html)
 - Feb 28 - [4 Chinese citizens, 1 in US illegally, allegedly found with $22.5M worth of marijuana plants in Georgia](https://news.yahoo.com/4-chinese-citizens-1-us-023703358.html)
 - Feb 28 - [Fact Check: Trump Supposedly Referred to His Wife Melania as 'Mercedes' During CPAC Speech. Here's What Actually Happened](https://news.yahoo.com/fact-check-trump-supposedly-referred-010701793.html)
-- Feb 28 - [Prosecutors explore how live rounds got onto set of Baldwin movie 'Rust'](https://news.yahoo.com/prosecutors-explore-live-rounds-got-010922722.html)
 <!-- feed end -->
 
 ### Onstream
