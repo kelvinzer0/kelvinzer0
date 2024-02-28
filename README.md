@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 28 - [Wall of Wildfire Smoke Bears Down on Texas Towns](https://news.yahoo.com/wall-wildfire-smoke-bears-down-154843317.html)
+- Feb 28 - [Hamas raises stakes in Gaza truce talks with Ramadan call](https://news.yahoo.com/hamas-raises-stakes-gaza-truce-135801678.html)
 - Feb 28 - ['Everybody has to suck it up': Kevin O'Leary blasts Biden's EV push — says they're 'too expensive' and 'there's no such thing as replacing hydrocarbons.' Do you agree?](https://finance.yahoo.com/news/everybody-suck-kevin-oleary-blasts-124600974.html)
+- Feb 28 - [A new mom died after giving birth. Was corporate greed to blame?](https://news.yahoo.com/mom-dies-giving-birth-boston-123559936.html)
 - Feb 28 - ['You're being a baby': This 41-year-old man has no job, no savings and relies on his parents for rent — but refuses work that's 'beneath' him. Caleb Hammer delivers a wake-up call](https://finance.yahoo.com/news/youre-being-baby-41-old-123000305.html)
-- Feb 28 - [Lauren Boebert's son was arrested over a spate of thefts as his mom tries to convince voters to look past her chaotic family life](https://news.yahoo.com/lauren-boeberts-son-arrested-over-110857705.html)
-- Feb 28 - [The party’s over for Russians in Sri Lanka after ‘whites only’ event fuels outrage](https://news.yahoo.com/party-over-russians-sri-lanka-110640404.html)
-- Feb 28 - [Husband of American killed by Mexico cartel says they fled Los Angeles over crime](https://news.yahoo.com/husband-american-killed-mexico-cartel-090041115.html)
 <!-- feed end -->
 
 ### Onstream
