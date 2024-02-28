@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [UPDATE 3-Trump loses bid to pause $454.2 million judgment in NY civil fraud case](https://finance.yahoo.com/news/1-trump-cannot-line-full-183431465.html)
-- Feb 28 - [Bitcoin retreats from $63K as Coinbase users report outages](https://finance.yahoo.com/video/bitcoin-retreats-63k-coinbase-users-203224393.html)
-- Feb 28 - ['Pro-life' GOP passes bill allowing Arizona ranchers to kill trespassing border crossers](https://news.yahoo.com/pro-life-gop-passes-bill-195312257.html)
-- Feb 28 - [Watch: French student shocked by her discovery upon visit to Chinese beach](https://news.yahoo.com/watch-french-student-shocked-her-192347233.html)
-- Feb 28 - [Older US adults should get another COVID-19 shot, advisers say](https://news.yahoo.com/older-us-adults-another-covid-191550624.html)
+- Feb 28 - [Satellite Imagery Shows Wildfires Flaring Up in Texas](https://news.yahoo.com/satellite-imagery-shows-wildfires-flaring-212537108.html)
+- Feb 28 - [Toyota wants hydrogen to succeed so bad it’s paying people to buy the Mirai](https://news.yahoo.com/toyota-wants-hydrogen-succeed-bad-210720557.html)
+- Feb 28 - [Crews begin cleanup after tornado near Marshall](https://news.yahoo.com/crews-begin-cleanup-tornado-near-210553689.html)
+- Feb 28 - [Hunter Biden asks GOP: What about Jared Kushner?](https://news.yahoo.com/hunter-biden-asks-gop-jared-201024038.html)
+- Feb 28 - [A bill allowing Arizona ranchers to kill border crossers? Has it really come to this?](https://news.yahoo.com/pro-life-gop-passes-bill-195312257.html)
 <!-- feed end -->
 
 ### Onstream
