@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 28 - [First Jan. 6 rioter to breach the Capitol spent months regurgitating Trump's election lies](https://news.yahoo.com/first-jan-6-rioter-breach-174536577.html)
+- Feb 28 - [McConnell will step down as the Senate Republican leader in November after a record run in the job](https://news.yahoo.com/mcconnell-step-down-senate-republican-172046344.html)
+- Feb 28 - [16 100% Real Photos From Serial Killer And Sex Offender Cases That'll Chill You To Your Core](https://www.yahoo.com/lifestyle/16-100-real-photos-serial-171603242.html)
+- Feb 28 - [Trump cannot line up full bond in New York fraud case, offers to post $100 million](https://news.yahoo.com/trump-cannot-line-full-bond-170009953.html)
 - Feb 28 - [Stone sarcophagi went unopened for 600 years — until now. See what was found inside](https://news.yahoo.com/stone-sarcophagi-went-unopened-600-162239353.html)
-- Feb 28 - [A Startling Confession May Have Just Revealed D.B. Cooper's Real Identity After 52 Years](https://www.yahoo.com/lifestyle/7-people-confessed-being-d-140000642.html)
-- Feb 28 - [Trump plans to post $100 million bond, asks for stay of 'punitive' $464M judgment in civil fraud case](https://news.yahoo.com/trump-plans-post-100-million-161900548.html)
-- Feb 28 - [Woman Who Refused to Give Up Seat to Wheelchair User in Empty Airport Terminal Faces Backlash](https://www.yahoo.com/entertainment/woman-refused-seat-wheelchair-user-160344280.html)
-- Feb 28 - ["I have no answer": Experts say TrumpWorld's "star witness" sank their case against Fani Willis](https://news.yahoo.com/no-answer-experts-trumpworlds-star-160148002.html)
 <!-- feed end -->
 
 ### Onstream
