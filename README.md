@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [Wall of Wildfire Smoke Bears Down on Texas Towns](https://news.yahoo.com/wall-wildfire-smoke-bears-down-154843317.html)
-- Feb 28 - [Hamas raises stakes in Gaza truce talks with Ramadan call](https://news.yahoo.com/hamas-raises-stakes-gaza-truce-135801678.html)
-- Feb 28 - ['Everybody has to suck it up': Kevin O'Leary blasts Biden's EV push — says they're 'too expensive' and 'there's no such thing as replacing hydrocarbons.' Do you agree?](https://finance.yahoo.com/news/everybody-suck-kevin-oleary-blasts-124600974.html)
-- Feb 28 - [A new mom died after giving birth. Was corporate greed to blame?](https://news.yahoo.com/mom-dies-giving-birth-boston-123559936.html)
-- Feb 28 - ['You're being a baby': This 41-year-old man has no job, no savings and relies on his parents for rent — but refuses work that's 'beneath' him. Caleb Hammer delivers a wake-up call](https://finance.yahoo.com/news/youre-being-baby-41-old-123000305.html)
+- Feb 28 - [Stone sarcophagi went unopened for 600 years — until now. See what was found inside](https://news.yahoo.com/stone-sarcophagi-went-unopened-600-162239353.html)
+- Feb 28 - [A Startling Confession May Have Just Revealed D.B. Cooper's Real Identity After 52 Years](https://www.yahoo.com/lifestyle/7-people-confessed-being-d-140000642.html)
+- Feb 28 - [Trump plans to post $100 million bond, asks for stay of 'punitive' $464M judgment in civil fraud case](https://news.yahoo.com/trump-plans-post-100-million-161900548.html)
+- Feb 28 - [Woman Who Refused to Give Up Seat to Wheelchair User in Empty Airport Terminal Faces Backlash](https://www.yahoo.com/entertainment/woman-refused-seat-wheelchair-user-160344280.html)
+- Feb 28 - ["I have no answer": Experts say TrumpWorld's "star witness" sank their case against Fani Willis](https://news.yahoo.com/no-answer-experts-trumpworlds-star-160148002.html)
 <!-- feed end -->
 
 ### Onstream
