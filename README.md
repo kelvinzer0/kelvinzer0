@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 29 - [Reporter Asks Hunter Biden Offensive Question After Hearing](https://www.yahoo.com/entertainment/reporter-asks-hunter-biden-offensive-133502074.html)
-- Feb 29 - [The London police officer who killed Sarah Everard should never have been employed, an inquiry finds](https://news.yahoo.com/london-policeman-killed-33-old-125815400.html)
-- Feb 29 - [Trump hired me to find election fraud in Arizona. Here's what I found instead](https://news.yahoo.com/trump-hired-election-fraud-arizona-120616406.html)
-- Feb 29 - ['The next Ted Bundy': Florida woman said she warned authorities about murder suspect](https://news.yahoo.com/next-ted-bundy-florida-woman-120237545.html)
-- Feb 29 - [‘I have a duty to my family’: This golf superstar accepted $300M to play for the Saudi-backed LIV tour after saying he didn’t ‘play golf for the money' — now Tiger Woods won't text him back](https://finance.yahoo.com/news/duty-family-golf-superstar-accepted-120000572.html)
+- Feb 29 - [Cowboys owner Jerry Jones ordered to take DNA test in paternity case](https://sports.yahoo.com/cowboys-owner-jerry-jones-ordered-152012012.html)
+- Feb 29 - [Watch: Missing girl found in Florida swamp after police spotted her from drone](https://news.yahoo.com/watch-missing-girl-found-florida-145556772.html)
+- Feb 29 - [Ex-WH Doc Who Raved About Trump's Health Throws The Most Hypocritical Tantrum Ever](https://news.yahoo.com/ex-wh-doc-raved-trumps-144831114.html)
+- Feb 29 - [Texas seized part of the US-Mexico border and blocked federal Border Patrol agents. Here’s what happened next](https://news.yahoo.com/texas-seized-part-us-mexico-103113344.html)
+- Feb 29 - [Swiss Police Seize $7 Million Pagani Huayra Codalunga in Traffic Stop](https://news.yahoo.com/swiss-police-seize-7-million-143000942.html)
 <!-- feed end -->
 
 ### Onstream
