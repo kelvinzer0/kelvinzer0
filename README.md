@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 29 - [500 pounds of python caught when mating rituals revealed in Florida marsh, team says](https://news.yahoo.com/500-pounds-python-caught-mating-181047403.html)
-- Feb 29 - [Alina Habba did argue with a judge, but she didn't forget to check off 'jury' box | Fact check](https://news.yahoo.com/alina-habba-did-argue-judge-180313412.html)
-- Feb 29 - [Hearse drivers refuse to take Navalny’s body to Moscow funeral, Putin critic’s team say](https://news.yahoo.com/hearse-drivers-refuse-navalny-body-171320545.html)
-- Feb 29 - [Turkey’s Very First Fighter Jet Made Its History-Shattering Flight](https://www.yahoo.com/tech/turkey-very-first-fighter-jet-165500460.html)
-- Feb 29 - [Nikki Haley can't win the Republican primary with 40%. But she can expose some of Trump's weaknesses](https://news.yahoo.com/nikki-haley-cant-win-republican-154835350.html)
+- Feb 29 - [‘Rust’ Set Footage Shows Alec Baldwin Rushing the Crew, Saying: ‘One More! Right Away! Let’s Reload!’](https://www.yahoo.com/entertainment/rust-set-footage-shows-alec-192747841.html)
+- Feb 29 - [US IRS says it will pursue high-income earners who failed to file tax returns](https://finance.yahoo.com/news/us-irs-says-pursue-high-190508532.html)
+- Feb 29 - [Coyote dragged 4-year-old girl toward woods after biting her at Arlington park: 911 caller](https://www.yahoo.com/news/coyote-dragged-4-old-girl-190349839.html)
+- Feb 29 - [Search for missing Florida 13-year-old ongoing as her mother's boyfriend is arrested](https://www.yahoo.com/news/search-missing-florida-13-old-185228297.html)
+- Feb 29 - [Trans prisoner Tiffany Scott dies in jail](https://news.yahoo.com/trans-prisoner-tiffany-scott-dies-184530249.html)
 <!-- feed end -->
 
 ### Onstream
