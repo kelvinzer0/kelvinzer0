@@ -61,9 +61,9 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Feb 29 - [Trump is disqualified from Illinois ballot, judge rules](https://news.yahoo.com/trump-disqualified-illinois-ballot-judge-001117325.html)
-- Feb 28 - [Former Trump lawyer on Supreme Court taking immunity case](https://news.yahoo.com/former-trump-lawyer-supreme-court-232156014.html)
-- Feb 28 - [Don Henley says lyrics to 'Hotel California' and other Eagles songs were always his sole property](https://news.yahoo.com/don-henley-says-lyrics-hotel-232002102.html)
+- Feb 28 - [Don Henley wraps up testimony in Eagles lyric sheets case, saying they were his property](https://news.yahoo.com/don-henley-says-lyrics-hotel-232002102.html)
 - Feb 28 - [Dave Ramsey Guarantees If You Have A Car Payment, 'You Will Be Broke Your Whole Life' And Says The Average Millionaire Drives A 4-Year-Old Car With 41,000 Miles — Investing The Payment Could Make You $5 Million Instead](https://finance.yahoo.com/news/dave-ramsey-guarantees-car-payment-230514123.html)
+- Feb 28 - [Honig: Newly obtained texts ‘badly undermine’ key witness testimony in push to disqualify Willis](https://news.yahoo.com/honig-newly-obtained-texts-badly-230123061.html)
 - Feb 28 - [Judge Who Reversed Rape Conviction Removed From Bench](https://news.yahoo.com/judge-reversed-rape-conviction-removed-230103076.html)
 <!-- feed end -->
 
