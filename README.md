@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 29 - [Jimmy Fallon Says Mitch McConnell Stepping Down 'Can Only Mean 1 Thing'](https://www.yahoo.com/entertainment/jimmy-fallon-says-mitch-mcconnell-104402567.html)
 - Feb 29 - [Putin warns West of risk of nuclear war, says Moscow can strike Western targets](https://news.yahoo.com/putin-warns-west-risk-nuclear-101243590.html)
+- Feb 29 - [Widow of cyclist killed in crash by cop wins $3 million verdict but can’t collect](https://news.yahoo.com/widow-cyclist-killed-crash-cop-100000611.html)
 - Feb 29 - [Lauren Boebert's son was arrested over a spate of thefts as his mom tries to convince voters to look past her chaotic family life](https://news.yahoo.com/lauren-boeberts-son-arrested-over-110857705.html)
 - Feb 29 - [Florida sergeant arrested after allegedly writing nearly a dozen inappropriate letters to teen inmate](https://news.yahoo.com/florida-sergeant-arrested-allegedly-writing-065416274.html)
-- Feb 29 - [First on CNN: White House pens letter to Fox News executives calling on network to retract bogus FBI informant claims](https://finance.yahoo.com/news/first-cnn-white-house-pens-051420286.html)
-- Feb 29 - ['No, No, No, Absolutely Not': Mitt Romney Has Crystal Clear Message For Trump](https://news.yahoo.com/no-no-no-absolutely-not-050254694.html)
 <!-- feed end -->
 
 ### Onstream
