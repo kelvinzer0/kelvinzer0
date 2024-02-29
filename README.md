@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 29 - [Texas executes inmate who maintained innocence, got support from Kim Kardashian](https://news.yahoo.com/texas-executes-inmate-maintained-innocence-030344609.html)
+- Feb 29 - ['No, No, No, Absolutely Not': Mitt Romney Has Crystal Clear Message For Trump](https://news.yahoo.com/no-no-no-absolutely-not-050254694.html)
+- Feb 29 - [Sen. Romney was asked if he’ll vote for Trump over Biden. Hear his response](https://news.yahoo.com/sen-romney-asked-ll-vote-033323873.html)
 - Feb 29 - [Trump is disqualified from Illinois ballot, judge rules](https://news.yahoo.com/trump-disqualified-illinois-ballot-judge-001117325.html)
 - Feb 28 - [Dave Ramsey Guarantees If You Have A Car Payment, 'You Will Be Broke Your Whole Life' And Says The Average Millionaire Drives A 4-Year-Old Car With 41,000 Miles — Investing The Payment Could Make You $5 Million Instead](https://finance.yahoo.com/news/dave-ramsey-guarantees-car-payment-230514123.html)
 - Feb 28 - [Honig: Newly obtained texts ‘badly undermine’ key witness testimony in push to disqualify Willis](https://news.yahoo.com/honig-newly-obtained-texts-badly-230123061.html)
-- Feb 28 - [Judge Who Reversed Rape Conviction Removed From Bench](https://news.yahoo.com/judge-reversed-rape-conviction-removed-230103076.html)
 <!-- feed end -->
 
 ### Onstream
