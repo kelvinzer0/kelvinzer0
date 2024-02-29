@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 29 - [500 pounds of python caught when mating rituals revealed in Florida marsh, team says](https://news.yahoo.com/500-pounds-python-caught-mating-181047403.html)
+- Feb 29 - [Alina Habba did argue with a judge, but she didn't forget to check off 'jury' box | Fact check](https://news.yahoo.com/alina-habba-did-argue-judge-180313412.html)
+- Feb 29 - [Hearse drivers refuse to take Navalny’s body to Moscow funeral, Putin critic’s team say](https://news.yahoo.com/hearse-drivers-refuse-navalny-body-171320545.html)
+- Feb 29 - [Turkey’s Very First Fighter Jet Made Its History-Shattering Flight](https://www.yahoo.com/tech/turkey-very-first-fighter-jet-165500460.html)
 - Feb 29 - [Nikki Haley can't win the Republican primary with 40%. But she can expose some of Trump's weaknesses](https://news.yahoo.com/nikki-haley-cant-win-republican-154835350.html)
-- Feb 29 - [Kamala Harris praises 'nonpartisan poll worker,' which immediately backfires when people learn who he is](https://news.yahoo.com/kamala-harris-praises-nonpartisan-poll-152359626.html)
-- Feb 29 - [Cowboys owner Jerry Jones ordered to take DNA test in paternity case](https://sports.yahoo.com/cowboys-owner-jerry-jones-ordered-152012012.html)
-- Feb 29 - [Watch: Missing girl found in Florida swamp after police spotted her from drone](https://news.yahoo.com/watch-missing-girl-found-florida-145556772.html)
-- Feb 29 - [Texas seized part of the US-Mexico border and blocked federal Border Patrol agents. Here’s what happened next](https://news.yahoo.com/texas-seized-part-us-mexico-103113344.html)
 <!-- feed end -->
 
 ### Onstream
