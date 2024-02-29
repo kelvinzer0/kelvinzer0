@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 29 - [Thailand to ban recreational cannabis use by year-end](https://news.yahoo.com/thailand-ban-recreational-cannabis-end-090935596.html)
+- Feb 29 - [Putin warns West of risk of nuclear war, says Moscow can strike Western targets](https://news.yahoo.com/putin-warns-west-risk-nuclear-101243590.html)
 - Feb 29 - [Lauren Boebert's son was arrested over a spate of thefts as his mom tries to convince voters to look past her chaotic family life](https://news.yahoo.com/lauren-boeberts-son-arrested-over-110857705.html)
 - Feb 29 - [Florida sergeant arrested after allegedly writing nearly a dozen inappropriate letters to teen inmate](https://news.yahoo.com/florida-sergeant-arrested-allegedly-writing-065416274.html)
+- Feb 29 - [First on CNN: White House pens letter to Fox News executives calling on network to retract bogus FBI informant claims](https://finance.yahoo.com/news/first-cnn-white-house-pens-051420286.html)
 - Feb 29 - ['No, No, No, Absolutely Not': Mitt Romney Has Crystal Clear Message For Trump](https://news.yahoo.com/no-no-no-absolutely-not-050254694.html)
-- Feb 29 - [Sen. Romney was asked if he’ll vote for Trump over Biden. Hear his response](https://news.yahoo.com/sen-romney-asked-ll-vote-033323873.html)
 <!-- feed end -->
 
 ### Onstream
