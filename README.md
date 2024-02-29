@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 29 - [Judge blocks Texas law that gives police broad powers to arrest migrants who illegally enter US](https://news.yahoo.com/judge-blocks-texas-law-gives-163021032.html)
-- Feb 29 - [Hungary's Viktor Orbán to visit former president Donald Trump at Florida home next week](https://news.yahoo.com/hungarys-viktor-orb-n-visit-160007937.html)
 - Feb 29 - [Nikki Haley can't win the Republican primary with 40%. But she can expose some of Trump's weaknesses](https://news.yahoo.com/nikki-haley-cant-win-republican-154835350.html)
+- Feb 29 - [Kamala Harris praises 'nonpartisan poll worker,' which immediately backfires when people learn who he is](https://news.yahoo.com/kamala-harris-praises-nonpartisan-poll-152359626.html)
 - Feb 29 - [Cowboys owner Jerry Jones ordered to take DNA test in paternity case](https://sports.yahoo.com/cowboys-owner-jerry-jones-ordered-152012012.html)
 - Feb 29 - [Watch: Missing girl found in Florida swamp after police spotted her from drone](https://news.yahoo.com/watch-missing-girl-found-florida-145556772.html)
+- Feb 29 - [Texas seized part of the US-Mexico border and blocked federal Border Patrol agents. Here’s what happened next](https://news.yahoo.com/texas-seized-part-us-mexico-103113344.html)
 <!-- feed end -->
 
 ### Onstream
