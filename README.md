@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 29 - [Reporter Asks Hunter Biden Offensive Question After Hearing](https://www.yahoo.com/entertainment/reporter-asks-hunter-biden-offensive-133502074.html)
+- Feb 29 - [The London police officer who killed Sarah Everard should never have been employed, an inquiry finds](https://news.yahoo.com/london-policeman-killed-33-old-125815400.html)
 - Feb 29 - [Trump hired me to find election fraud in Arizona. Here's what I found instead](https://news.yahoo.com/trump-hired-election-fraud-arizona-120616406.html)
 - Feb 29 - ['The next Ted Bundy': Florida woman said she warned authorities about murder suspect](https://news.yahoo.com/next-ted-bundy-florida-woman-120237545.html)
 - Feb 29 - [‘I have a duty to my family’: This golf superstar accepted $300M to play for the Saudi-backed LIV tour after saying he didn’t ‘play golf for the money' — now Tiger Woods won't text him back](https://finance.yahoo.com/news/duty-family-golf-superstar-accepted-120000572.html)
-- Feb 29 - [Ukraine says it has shot down three more Russian warplanes](https://news.yahoo.com/ukraine-says-shot-down-three-111429161.html)
-- Feb 29 - [Jimmy Fallon Says Mitch McConnell Stepping Down 'Can Only Mean 1 Thing'](https://www.yahoo.com/entertainment/jimmy-fallon-says-mitch-mcconnell-104402567.html)
 <!-- feed end -->
 
 ### Onstream
