@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 29 - [Oregon Mom Treated Teen Daughter's Liver Cancer with CBD Oil, Gets 90 Days in Jail](https://www.yahoo.com/entertainment/oregon-mom-treated-teen-daughters-204417803.html)
+- Feb 29 - [Republicans criticize California's new fast food law that appears to benefit a Newsom campaign donor](https://www.yahoo.com/news/republicans-criticize-californias-fast-food-225034387.html)
+- Feb 29 - [Officials investigate rare nervous system disorder in older adults who got RSV vaccine](https://www.yahoo.com/news/officials-investigate-rare-nervous-system-221512328.html)
+- Feb 29 - [Texas prosecutor is fined for allowing murder charges against a woman who self-managed an abortion](https://www.yahoo.com/news/texas-prosecutor-fined-allowing-murder-220351899.html)
+- Feb 29 - [Katt Williams Calls Out Joe Rogan’s ‘Racist’ Question](https://www.yahoo.com/entertainment/katt-williams-calls-joe-rogan-214225165.html)
 - Feb 29 - [Michigan cop's mistake leads to $320,000 deal with Japanese man wrongly accused of drunken driving](https://www.yahoo.com/news/michigan-cops-mistake-leads-320-194716865.html)
-- Feb 29 - [A frog in India has a mushroom sprouting out of it. Researchers have never seen anything like it](https://www.yahoo.com/news/frog-india-mushroom-sprouting-researchers-193240452.html)
-- Feb 29 - [‘Rust’ Set Footage Shows Alec Baldwin Rushing the Crew, Saying: ‘One More! Right Away! Let’s Reload!’](https://www.yahoo.com/entertainment/rust-set-footage-shows-alec-192747841.html)
-- Feb 29 - [Coyote dragged 4-year-old girl toward woods after biting her at Arlington park: 911 caller](https://www.yahoo.com/news/coyote-dragged-4-old-girl-190349839.html)
 <!-- feed end -->
 
 ### Onstream
