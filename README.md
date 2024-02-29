@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Feb 29 - [Trump hired me to find election fraud in Arizona. Here's what I found instead](https://news.yahoo.com/trump-hired-election-fraud-arizona-120616406.html)
+- Feb 29 - ['The next Ted Bundy': Florida woman said she warned authorities about murder suspect](https://news.yahoo.com/next-ted-bundy-florida-woman-120237545.html)
+- Feb 29 - [‘I have a duty to my family’: This golf superstar accepted $300M to play for the Saudi-backed LIV tour after saying he didn’t ‘play golf for the money' — now Tiger Woods won't text him back](https://finance.yahoo.com/news/duty-family-golf-superstar-accepted-120000572.html)
+- Feb 29 - [Ukraine says it has shot down three more Russian warplanes](https://news.yahoo.com/ukraine-says-shot-down-three-111429161.html)
 - Feb 29 - [Jimmy Fallon Says Mitch McConnell Stepping Down 'Can Only Mean 1 Thing'](https://www.yahoo.com/entertainment/jimmy-fallon-says-mitch-mcconnell-104402567.html)
-- Feb 29 - [Putin warns West of risk of nuclear war, says Moscow can strike Western targets](https://news.yahoo.com/putin-warns-west-risk-nuclear-101243590.html)
-- Feb 29 - [Widow of cyclist killed in crash by cop wins $3 million verdict but can’t collect](https://news.yahoo.com/widow-cyclist-killed-crash-cop-100000611.html)
-- Feb 29 - [Lauren Boebert's son was arrested over a spate of thefts as his mom tries to convince voters to look past her chaotic family life](https://news.yahoo.com/lauren-boeberts-son-arrested-over-110857705.html)
-- Feb 29 - [Florida sergeant arrested after allegedly writing nearly a dozen inappropriate letters to teen inmate](https://news.yahoo.com/florida-sergeant-arrested-allegedly-writing-065416274.html)
 <!-- feed end -->
 
 ### Onstream
