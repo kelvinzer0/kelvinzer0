@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 28 - [Trump fan who assaulted officers with a hockey stick on Jan. 6 sentenced to prison](https://news.yahoo.com/trump-fan-assaulted-officers-hockey-221621341.html)
-- Feb 28 - [US Supreme Court to decide Trump criminal immunity claim in 2020 election case](https://news.yahoo.com/us-supreme-court-decide-trump-220731371.html)
-- Feb 28 - [Toyota wants hydrogen to succeed so bad it’s paying people to buy the Mirai](https://news.yahoo.com/toyota-wants-hydrogen-succeed-bad-210720557.html)
-- Feb 28 - [UPDATE 5-Trump loses bid to pause $454.2 million judgment in NY civil fraud case](https://finance.yahoo.com/news/1-trump-cannot-line-full-183431465.html)
-- Feb 28 - [Hunter Biden asks GOP: What about Jared Kushner?](https://news.yahoo.com/hunter-biden-asks-gop-jared-201024038.html)
+- Feb 29 - [Trump is disqualified from Illinois ballot, judge rules](https://news.yahoo.com/trump-disqualified-illinois-ballot-judge-001117325.html)
+- Feb 28 - [Former Trump lawyer on Supreme Court taking immunity case](https://news.yahoo.com/former-trump-lawyer-supreme-court-232156014.html)
+- Feb 28 - [Don Henley says lyrics to 'Hotel California' and other Eagles songs were always his sole property](https://news.yahoo.com/don-henley-says-lyrics-hotel-232002102.html)
+- Feb 28 - [Dave Ramsey Guarantees If You Have A Car Payment, 'You Will Be Broke Your Whole Life' And Says The Average Millionaire Drives A 4-Year-Old Car With 41,000 Miles — Investing The Payment Could Make You $5 Million Instead](https://finance.yahoo.com/news/dave-ramsey-guarantees-car-payment-230514123.html)
+- Feb 28 - [Judge Who Reversed Rape Conviction Removed From Bench](https://news.yahoo.com/judge-reversed-rape-conviction-removed-230103076.html)
 <!-- feed end -->
 
 ### Onstream
