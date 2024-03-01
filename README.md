@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [Fox News Host Crashes Donald Trump Speech With Blunt Reminder For Ex-President](https://www.yahoo.com/news/fox-news-host-crashes-donald-072319489.html)
 - Mar 01 - [Celebrities and tycoons jet to Indian billionaire heir Anant Ambani’s lavish pre-wedding bash](https://www.yahoo.com/lifestyle/celebrities-tycoons-jet-indian-billionaire-033817191.html)
 - Mar 01 - [This tense showdown between Hunter Biden and Matt Gaetz over drug use is quite something](https://www.yahoo.com/news/tense-showdown-between-hunter-biden-033432281.html)
 - Mar 01 - [A police officer and a process server were killed while serving an eviction notice in Missouri](https://www.yahoo.com/news/2-police-officers-civil-process-232358894.html)
 - Mar 01 - [Winery worker who told CNN he saw DA Fani Willis pay cash offers to testify](https://www.yahoo.com/news/winery-worker-told-cnn-saw-030353472.html)
-- Mar 01 - [Rihanna, Ivanka Trump among big names in India for billionaire's lavish pre-wedding parties](https://www.yahoo.com/news/rihanna-ivanka-trump-among-big-010916594.html)
 <!-- feed end -->
 
 ### Onstream
