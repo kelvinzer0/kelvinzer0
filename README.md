@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [Appeals court ruling that vacates Capitol rioter's sentence could impact dozens of Jan. 6 cases](https://www.yahoo.com/news/appeals-court-ruling-vacates-capitol-183052682.html)
+- Mar 01 - [Lady Gabriella Windsor’s husband Thomas Kingston died from ‘catastrophic’ head wound, inquest hears](https://www.yahoo.com/news/lady-gabriella-windsor-husband-thomas-140728307.html)
+- Mar 01 - [‘You just don’t get it.’ Judge admonishes NY man who fatally shot woman in his driveway and sentences him to 25 years to life](https://www.yahoo.com/news/york-man-sentenced-25-years-154833513.html)
 - Mar 01 - [House Republicans send new Justice Department subpoenas in impeachment inquiry, drawing pushback](https://www.yahoo.com/news/house-republicans-send-justice-department-175516815.html)
 - Mar 01 - [Oregon Dad Accused of Drugging Girls at 12-Year-Old Daughter's Sleepover: 'I Don't Feel Safe'](https://www.yahoo.com/entertainment/oregon-dad-accused-drugging-girls-172919947.html)
-- Mar 01 - [Weed-Smoking Capitol Rioter Spars With Judge Handing Down His Sentence](https://www.yahoo.com/news/weed-smoking-capitol-rioter-spars-171808218.html)
-- Mar 01 - [‘You just don’t get it.’ Judge admonishes NY man who fatally shot woman in his driveway and sentences him to 25 years to life](https://www.yahoo.com/news/york-man-sentenced-25-years-154833513.html)
-- Mar 01 - [Married St. Louis principal pleads guilty to hiring hitman to kill his pregnant teacher girlfriend and her unborn baby](https://www.yahoo.com/news/married-st-louis-principal-pleads-164919076.html)
 <!-- feed end -->
 
 ### Onstream
