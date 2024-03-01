@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [Fashion consultant hanged herself ‘after tycoon husband’s campaign of coercive control’](https://www.yahoo.com/news/fashion-consultant-hanged-herself-three-193727161.html)
-- Mar 01 - [Two Irish friends died of fentanyl poisoning in Florida. Authorities say the wrong one was cremated](https://www.yahoo.com/news/two-irish-friends-died-fentanyl-190747220.html)
-- Mar 01 - [Georgia Trooper Does Brutal PIT On Fleeing Suspect](https://www.yahoo.com/news/georgia-trooper-does-brutal-pit-190000299.html)
-- Mar 01 - [Appeals court ruling that vacates Capitol rioter's sentence could impact dozens of Jan. 6 cases](https://www.yahoo.com/news/appeals-court-ruling-vacates-capitol-183052682.html)
-- Mar 01 - [Lady Gabriella Windsor’s husband Thomas Kingston died from ‘catastrophic’ head wound, inquest hears](https://www.yahoo.com/news/lady-gabriella-windsor-husband-thomas-140728307.html)
+- Mar 01 - [Family and advocates want solution to legal loophole after the death of Audrii Cunningham](https://www.yahoo.com/news/family-advocates-want-solution-legal-215432338.html)
+- Mar 01 - [Case dismissed against Florida teen migrant accused of homicide in police officer's death](https://www.yahoo.com/news/case-dismissed-against-florida-teen-214100844.html)
+- Mar 01 - [Wisconsin Supreme Court rejects Democrats’ congressional redistricting challenge](https://www.yahoo.com/news/wisconsin-supreme-court-rejects-democrats-212752791.html)
+- Mar 01 - [I borrowed $20,000 from my mother in 1996, but only repaid $5,000. She deducted the entire loan from my inheritance. I need that money. What now?](https://finance.yahoo.com/news/borrowed-20-000-mother-1996-100400716.html)
+- Mar 01 - [Truck driver pulled to safety after crash leaves vehicle dangling over bridge across Ohio River](https://www.yahoo.com/news/truck-driver-pulled-safety-crash-204100770.html)
 <!-- feed end -->
 
 ### Onstream
