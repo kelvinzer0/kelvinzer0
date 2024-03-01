@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [Married St. Louis principal pleads guilty to hiring hitman to kill his pregnant teacher girlfriend and her unborn baby](https://www.yahoo.com/news/married-st-louis-principal-pleads-164919076.html)
+- Mar 01 - [Fox News Host Instantly Turns Colleagues' Biden B.S. Into Hard Truth About Trump](https://www.yahoo.com/news/fox-news-host-instantly-turns-163855597.html)
+- Mar 01 - [Woman convicted of murder conspiracy, coverup, in 2019 disappearance of Connecticut mother](https://www.yahoo.com/news/woman-convicted-murder-conspiracy-coverup-161024588.html)
+- Mar 01 - [“Look me in the eye”: Hunter Biden turns the tables on Matt Gaetz over question about drug use](https://www.yahoo.com/news/look-eye-hunter-biden-turns-154251115.html)
 - Mar 01 - [Man who killed woman after driveway mistake gets 25 years to life in prison](https://www.yahoo.com/news/man-killed-woman-driveway-mistake-153538483.html)
-- Mar 01 - [College only good for ‘being an unemployed alcoholic for four years,’ says Florida woman who dropped out and claims to earn a doctor’s salary. Is college worth it anymore?](https://finance.yahoo.com/news/college-only-good-being-unemployed-144500356.html)
-- Mar 01 - [Thousands gather for Navalny’s funeral in Moscow despite threat of arrest](https://www.yahoo.com/news/thousands-gather-navalny-funeral-moscow-141925704.html)
-- Mar 01 - [Lady Gabriella Windsor’s husband Thomas Kingston died from ‘catastrophic’ head wound, inquest hears](https://www.yahoo.com/news/lady-gabriella-windsor-husband-thomas-140728307.html)
-- Mar 01 - [Screams in a Motel Room Lead Police to Woman Who’d Been Missing for 7 Years](https://www.yahoo.com/news/screams-motel-room-lead-police-123842735.html)
 <!-- feed end -->
 
 ### Onstream
