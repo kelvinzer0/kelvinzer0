@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [College only good for ‘being an unemployed alcoholic for four years,’ says Florida woman who dropped out and claims to earn a doctor’s salary. Is college worth it anymore?](https://finance.yahoo.com/news/college-only-good-being-unemployed-144500356.html)
+- Mar 01 - [Lady Gabriella Windsor’s husband Thomas Kingston died from ‘catastrophic’ head wound, inquest hears](https://www.yahoo.com/news/lady-gabriella-windsor-husband-thomas-140728307.html)
 - Mar 01 - [Screams in a Motel Room Lead Police to Woman Who’d Been Missing for 7 Years](https://www.yahoo.com/news/screams-motel-room-lead-police-123842735.html)
 - Mar 01 - [‘We’re leaving!’: Rich Americans are ditching California and ‘taking their tax dollars with them — and now the tax rates they're fleeing have been raised even higher](https://finance.yahoo.com/news/leaving-rich-americans-ditching-california-163000441.html)
 - Mar 01 - [Unexpected millionaire: 36-year-old Florida man isn’t sure how to manage his $3.6 million windfall. Dave Ramsey believes he can build a $24 million fortune within 21 years with a simple plan](https://finance.yahoo.com/news/unexpected-millionaire-36-old-florida-111200780.html)
-- Mar 01 - [How Trump, suddenly strapped for cash, could raise more than half a billion dollars to satisfy judgments against him](https://finance.yahoo.com/news/trump-suddenly-strapped-cash-could-110023354.html)
-- Mar 01 - [A 12-year-old Texas girl who has been missing for over a week may have been trafficked, police say](https://www.yahoo.com/news/12-old-texas-girl-missing-105754827.html)
 <!-- feed end -->
 
 ### Onstream
