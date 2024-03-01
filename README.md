@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [Fashion consultant hanged herself ‘after tycoon husband’s campaign of coercive control’](https://www.yahoo.com/news/fashion-consultant-hanged-herself-three-193727161.html)
 - Mar 01 - [Two Irish friends died of fentanyl poisoning in Florida. Authorities say the wrong one was cremated](https://www.yahoo.com/news/two-irish-friends-died-fentanyl-190747220.html)
 - Mar 01 - [Georgia Trooper Does Brutal PIT On Fleeing Suspect](https://www.yahoo.com/news/georgia-trooper-does-brutal-pit-190000299.html)
 - Mar 01 - [Appeals court ruling that vacates Capitol rioter's sentence could impact dozens of Jan. 6 cases](https://www.yahoo.com/news/appeals-court-ruling-vacates-capitol-183052682.html)
 - Mar 01 - [Lady Gabriella Windsor’s husband Thomas Kingston died from ‘catastrophic’ head wound, inquest hears](https://www.yahoo.com/news/lady-gabriella-windsor-husband-thomas-140728307.html)
-- Mar 01 - [‘You just don’t get it.’ Judge admonishes NY man who fatally shot woman in his driveway and sentences him to 25 years to life](https://www.yahoo.com/news/york-man-sentenced-25-years-154833513.html)
 <!-- feed end -->
 
 ### Onstream
