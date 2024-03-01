@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 01 - [At least 3 injured in shooting at Southern California dental office](https://www.yahoo.com/news/least-3-injured-shooting-southern-033524579.html)
 - Mar 01 - [A police officer and a process server were killed while serving an eviction notice in Missouri](https://www.yahoo.com/news/2-police-officers-civil-process-232358894.html)
 - Mar 01 - [Winery worker who told CNN he saw DA Fani Willis pay cash offers to testify](https://www.yahoo.com/news/winery-worker-told-cnn-saw-030353472.html)
 - Mar 01 - [Rihanna, Ivanka Trump among big names in India for billionaire's lavish pre-wedding parties](https://www.yahoo.com/news/rihanna-ivanka-trump-among-big-010916594.html)
 - Feb 29 - [Judge holds veteran journalist Catherine Herridge in civil contempt for refusing to divulge source](https://www.yahoo.com/news/judge-holds-veteran-journalist-catherine-233536189.html)
+- Feb 29 - [Delaware judge cites 'evil' and 'extreme cruelty' in sentencing couple for torturing their sons](https://www.yahoo.com/news/delaware-judge-cites-evil-extreme-231641754.html)
 <!-- feed end -->
 
 ### Onstream
