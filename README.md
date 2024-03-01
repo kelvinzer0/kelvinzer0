@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Feb 29 - [Republicans criticize California's new fast food law that appears to benefit a Newsom campaign donor](https://www.yahoo.com/news/republicans-criticize-californias-fast-food-225034387.html)
-- Feb 29 - [Officials investigate rare nervous system disorder in older adults who got RSV vaccine](https://www.yahoo.com/news/officials-investigate-rare-nervous-system-221512328.html)
+- Feb 29 - [Judge holds veteran journalist Catherine Herridge in civil contempt for refusing to divulge source](https://www.yahoo.com/news/judge-holds-veteran-journalist-catherine-233536189.html)
+- Feb 29 - [Delaware judge cites 'evil' and 'extreme cruelty' in sentencing couple for torturing their sons](https://www.yahoo.com/news/delaware-judge-cites-evil-extreme-231641754.html)
+- Feb 29 - [Trump says he cannot get fair trial this year in classified documents case](https://www.yahoo.com/news/trump-asks-delay-federal-classified-231218830.html)
+- Feb 29 - [California governor pushes back against criticism of fast food minimum wage law](https://www.yahoo.com/news/republicans-criticize-californias-fast-food-225034387.html)
 - Feb 29 - [Texas prosecutor is fined for allowing murder charges against a woman who self-managed an abortion](https://www.yahoo.com/news/texas-prosecutor-fined-allowing-murder-220351899.html)
-- Feb 29 - [Katt Williams Calls Out Joe Rogan’s ‘Racist’ Question](https://www.yahoo.com/entertainment/katt-williams-calls-joe-rogan-214225165.html)
-- Feb 29 - [Michigan cop's mistake leads to $320,000 deal with Japanese man wrongly accused of drunken driving](https://www.yahoo.com/news/michigan-cops-mistake-leads-320-194716865.html)
 <!-- feed end -->
 
 ### Onstream
