@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Feb 29 - [Judge holds veteran journalist Catherine Herridge in civil contempt for refusing to divulge source](https://www.yahoo.com/news/judge-holds-veteran-journalist-catherine-233536189.html)
 - Feb 29 - [Delaware judge cites 'evil' and 'extreme cruelty' in sentencing couple for torturing their sons](https://www.yahoo.com/news/delaware-judge-cites-evil-extreme-231641754.html)
 - Feb 29 - [California governor pushes back against criticism of fast food minimum wage law](https://www.yahoo.com/news/republicans-criticize-californias-fast-food-225034387.html)
-- Feb 29 - [Texas prosecutor is fined for allowing murder charges against a woman who self-managed an abortion](https://www.yahoo.com/news/texas-prosecutor-fined-allowing-murder-220351899.html)
+- Feb 29 - [Human remains found in Florida believed to be those of teen who vanished nearly 20 years ago](https://www.yahoo.com/news/human-remains-found-florida-believed-224834568.html)
 <!-- feed end -->
 
 ### Onstream
