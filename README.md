@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [The Missouri governor shortens the DWI prison sentence of former Chiefs assistant coach Britt Reid](https://www.yahoo.com/news/missouri-governor-shortens-dwi-prison-224702218.html)
+- Mar 01 - [A lone orca slayed a great white in less than two minutes. Scientists say it could signal an ecological shift](https://www.yahoo.com/news/lone-orca-slayed-great-white-220948641.html)
 - Mar 01 - [Family and advocates want solution to legal loophole after the death of Audrii Cunningham](https://www.yahoo.com/news/family-advocates-want-solution-legal-215432338.html)
 - Mar 01 - [Case dismissed against Florida teen migrant accused of homicide in police officer's death](https://www.yahoo.com/news/case-dismissed-against-florida-teen-214100844.html)
 - Mar 01 - [Wisconsin Supreme Court rejects Democrats’ congressional redistricting challenge](https://www.yahoo.com/news/wisconsin-supreme-court-rejects-democrats-212752791.html)
-- Mar 01 - [I borrowed $20,000 from my mother in 1996, but only repaid $5,000. She deducted the entire loan from my inheritance. I need that money. What now?](https://finance.yahoo.com/news/borrowed-20-000-mother-1996-100400716.html)
-- Mar 01 - [Truck driver pulled to safety after crash leaves vehicle dangling over bridge across Ohio River](https://www.yahoo.com/news/truck-driver-pulled-safety-crash-204100770.html)
 <!-- feed end -->
 
 ### Onstream
