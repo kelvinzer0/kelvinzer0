@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [Rihanna, Ivanka Trump among big names in India for billionaire's lavish pre-wedding parties](https://www.yahoo.com/news/rihanna-ivanka-trump-among-big-010916594.html)
 - Feb 29 - [Judge holds veteran journalist Catherine Herridge in civil contempt for refusing to divulge source](https://www.yahoo.com/news/judge-holds-veteran-journalist-catherine-233536189.html)
 - Feb 29 - [Delaware judge cites 'evil' and 'extreme cruelty' in sentencing couple for torturing their sons](https://www.yahoo.com/news/delaware-judge-cites-evil-extreme-231641754.html)
-- Feb 29 - [Trump says he cannot get fair trial this year in classified documents case](https://www.yahoo.com/news/trump-asks-delay-federal-classified-231218830.html)
 - Feb 29 - [California governor pushes back against criticism of fast food minimum wage law](https://www.yahoo.com/news/republicans-criticize-californias-fast-food-225034387.html)
 - Feb 29 - [Texas prosecutor is fined for allowing murder charges against a woman who self-managed an abortion](https://www.yahoo.com/news/texas-prosecutor-fined-allowing-murder-220351899.html)
 <!-- feed end -->
