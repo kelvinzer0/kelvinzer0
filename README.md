@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [Screams in a Motel Room Lead Police to Woman Who’d Been Missing for 7 Years](https://www.yahoo.com/news/screams-motel-room-lead-police-123842735.html)
+- Mar 01 - [‘We’re leaving!’: Rich Americans are ditching California and ‘taking their tax dollars with them — and now the tax rates they're fleeing have been raised even higher](https://finance.yahoo.com/news/leaving-rich-americans-ditching-california-163000441.html)
+- Mar 01 - [How Trump, suddenly strapped for cash, could raise more than half a billion dollars to satisfy judgments against him](https://finance.yahoo.com/news/trump-suddenly-strapped-cash-could-110023354.html)
 - Mar 01 - [A 12-year-old Texas girl who has been missing for over a week may have been trafficked, police say](https://www.yahoo.com/news/12-old-texas-girl-missing-105754827.html)
-- Mar 01 - [Law Professor Spots 'Most Chilling' Part Of New Trump Move That Knocked His 'Socks Off'](https://www.yahoo.com/news/law-professor-spots-most-chilling-103149900.html)
 - Mar 01 - [Readers had a lot to say about those newly minted 401(k) millionaires](https://finance.yahoo.com/news/readers-had-a-lot-to-say-about-those-newly-minted-401k-millionaires-100010284.html)
-- Mar 01 - [Want to know how weird Donald Trump is? Just read this transcript.](https://www.yahoo.com/news/want-know-weird-donald-trump-090621910.html)
-- Mar 01 - [Fox News Host Crashes Donald Trump Speech With Blunt Reminder For Ex-President](https://www.yahoo.com/news/fox-news-host-crashes-donald-072319489.html)
 <!-- feed end -->
 
 ### Onstream
