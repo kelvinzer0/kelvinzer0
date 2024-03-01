@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [A 12-year-old Texas girl who has been missing for over a week may have been trafficked, police say](https://www.yahoo.com/news/12-old-texas-girl-missing-105754827.html)
+- Mar 01 - [Law Professor Spots 'Most Chilling' Part Of New Trump Move That Knocked His 'Socks Off'](https://www.yahoo.com/news/law-professor-spots-most-chilling-103149900.html)
 - Mar 01 - [Readers had a lot to say about those newly minted 401(k) millionaires](https://finance.yahoo.com/news/readers-had-a-lot-to-say-about-those-newly-minted-401k-millionaires-100010284.html)
 - Mar 01 - [Want to know how weird Donald Trump is? Just read this transcript.](https://www.yahoo.com/news/want-know-weird-donald-trump-090621910.html)
 - Mar 01 - [Fox News Host Crashes Donald Trump Speech With Blunt Reminder For Ex-President](https://www.yahoo.com/news/fox-news-host-crashes-donald-072319489.html)
-- Mar 01 - [Celebrities and tycoons jet to Indian billionaire heir Anant Ambani’s lavish pre-wedding bash](https://www.yahoo.com/lifestyle/celebrities-tycoons-jet-indian-billionaire-033817191.html)
-- Mar 01 - [18 Completely Unsettling Photos That Made The Hair On The Back Of My Neck Stand Straight Up](https://www.yahoo.com/lifestyle/18-completely-unsettling-photos-made-041602300.html)
 <!-- feed end -->
 
 ### Onstream
