@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 02 - [Case dismissed against Florida teen migrant accused of homicide in police officer's death](https://www.yahoo.com/news/case-dismissed-against-florida-teen-214100844.html)
+- Mar 02 - [Israeli Troops Open Fire on Palestinians Surrounding Gaza Aid Trucks](https://finance.yahoo.com/video/israeli-troops-open-fire-palestinians-212200143.html)
+- Mar 02 - [Multi-Passenger Brawl Erupts on RyanAir Flight: ‘There Was No Calming the Situation’](https://www.yahoo.com/entertainment/multi-passenger-brawl-erupts-ryanair-000524244.html)
+- Mar 01 - [Lawyers who voided Elon Musk's pay as excessive want a $6 billion fee](https://finance.yahoo.com/news/legal-team-voided-musks-tesla-230039948.html)
 - Mar 01 - [The Missouri governor shortens the DWI prison sentence of former Chiefs assistant coach Britt Reid](https://www.yahoo.com/news/missouri-governor-shortens-dwi-prison-224702218.html)
-- Mar 01 - [A lone orca slayed a great white in less than two minutes. Scientists say it could signal an ecological shift](https://www.yahoo.com/news/lone-orca-slayed-great-white-220948641.html)
-- Mar 01 - [Family and advocates want solution to legal loophole after the death of Audrii Cunningham](https://www.yahoo.com/news/family-advocates-want-solution-legal-215432338.html)
-- Mar 01 - [Case dismissed against Florida teen migrant accused of homicide in police officer's death](https://www.yahoo.com/news/case-dismissed-against-florida-teen-214100844.html)
-- Mar 01 - [Wisconsin Supreme Court rejects Democrats’ congressional redistricting challenge](https://www.yahoo.com/news/wisconsin-supreme-court-rejects-democrats-212752791.html)
 <!-- feed end -->
 
 ### Onstream
