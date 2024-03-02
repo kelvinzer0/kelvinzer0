@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 02 - [A party like no other? Asia's richest man celebrates son's prenuptials with a star-studded bash](https://www.yahoo.com/news/party-no-other-asias-richest-072621676.html)
 - Mar 02 - [Ivanka Trump and her shiny sari are attempting to single-handedly revive the glamorous face of Trumpworld at Ambani's pre-wedding bash](https://www.yahoo.com/entertainment/ivanka-trump-her-shiny-sari-053233298.html)
 - Mar 02 - [Hasan vows to cover Trump legal cases differently: ‘We will stop with this charade’](https://www.yahoo.com/news/hasan-vows-cover-trump-legal-031253053.html)
 - Mar 02 - [Putin warns of ‘destruction of civilization’. Hear retired general’s response](https://www.yahoo.com/news/putin-warns-destruction-civilization-hear-024657840.html)
 - Mar 02 - [German ‘Plot’ to Bomb Crimean Bridge Sparks Moscow Meltdown](https://www.yahoo.com/news/german-plot-bomb-crimean-bridge-012651511.html)
-- Mar 02 - [‘You just don’t get it.’ Judge admonishes NY man who fatally shot woman in his driveway and sentences him to 25 years to life](https://www.yahoo.com/news/york-man-sentenced-25-years-154833513.html)
 <!-- feed end -->
 
 ### Onstream
