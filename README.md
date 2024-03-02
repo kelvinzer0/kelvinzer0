@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 02 - [‘You just don’t get it.’ Judge admonishes NY man who fatally shot woman in his driveway and sentences him to 25 years to life](https://www.yahoo.com/news/york-man-sentenced-25-years-154833513.html)
+- Mar 02 - [Man charged with attacking police in Times Square, vilified in Trump ad, was misidentified, DA says](https://www.yahoo.com/news/man-charged-attacking-police-times-005732241.html)
+- Mar 02 - [A lone orca killed a great white in less than two minutes. Scientists say it could signal an ecological shift](https://www.yahoo.com/news/lone-orca-slayed-great-white-220948641.html)
 - Mar 02 - [Case dismissed against Florida teen migrant accused of homicide in police officer's death](https://www.yahoo.com/news/case-dismissed-against-florida-teen-214100844.html)
-- Mar 02 - [Israeli Troops Open Fire on Palestinians Surrounding Gaza Aid Trucks](https://finance.yahoo.com/video/israeli-troops-open-fire-palestinians-212200143.html)
 - Mar 02 - [Multi-Passenger Brawl Erupts on RyanAir Flight: ‘There Was No Calming the Situation’](https://www.yahoo.com/entertainment/multi-passenger-brawl-erupts-ryanair-000524244.html)
-- Mar 01 - [Lawyers who voided Elon Musk's pay as excessive want a $6 billion fee](https://finance.yahoo.com/news/legal-team-voided-musks-tesla-230039948.html)
-- Mar 01 - [The Missouri governor shortens the DWI prison sentence of former Chiefs assistant coach Britt Reid](https://www.yahoo.com/news/missouri-governor-shortens-dwi-prison-224702218.html)
 <!-- feed end -->
 
 ### Onstream
