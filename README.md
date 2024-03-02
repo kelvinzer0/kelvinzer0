@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 02 - [Hear what Donald Trump’s niece says keeps him up at night over legal cases](https://www.yahoo.com/news/hear-donald-trump-niece-says-183156833.html)
 - Mar 02 - [Porter attacks Schiff for taking 'dirty money.' His response? 'I gave that money to you'](https://www.yahoo.com/news/porter-attacked-schiff-taking-dirty-180541040.html)
 - Mar 02 - [Here’s why Americans drive on the right and the UK drives on the left](https://finance.yahoo.com/news/why-americans-drive-uk-drives-103023611.html)
 - Mar 02 - [Singapore brokered a deal with Taylor Swift, so she wouldn't take the Eras Tour to other Southeast Asian countries. Now, a Philippines lawmaker is calling it out.](https://www.yahoo.com/entertainment/singapore-brokered-deal-taylor-swift-155612037.html)
 - Mar 02 - [As Trump’s Criminal Trial Approaches, He May Be His Own Worst Enemy](https://www.yahoo.com/news/trump-criminal-trial-approaches-may-151654543.html)
-- Mar 02 - [Former NBA player, actor gets 90 years to life in California State Prison for violent sexual assaults](https://www.yahoo.com/news/former-nba-player-actor-gets-150240225.html)
 <!-- feed end -->
 
 ### Onstream
