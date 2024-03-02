@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - ['This is not a joke': 20-year-old Texas woman spends 70% of her income on rent and has racked up $4,000 in credit card debt. She laughs it off as 'girl math.' Caleb Hammer responds](https://finance.yahoo.com/news/not-joke-20-old-texas-121200819.html)
+- Mar 02 - [As Trump’s Criminal Trial Approaches, He May Be His Own Worst Enemy](https://www.yahoo.com/news/trump-criminal-trial-approaches-may-151654543.html)
 - Mar 02 - [Here’s why Americans drive on the right and the UK drives on the left](https://finance.yahoo.com/news/why-americans-drive-uk-drives-103023611.html)
 - Mar 02 - [Teens brutally attacked me with brass knuckles at In-N-Out. Why are these weapons still legal?](https://www.yahoo.com/news/teens-brutally-attacked-brass-knuckles-101708015.html)
 - Mar 02 - [A party like no other? Asia's richest man celebrates son's prenuptials with a star-studded bash](https://www.yahoo.com/news/party-no-other-asias-richest-072621676.html)
