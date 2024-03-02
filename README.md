@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 02 - ['This is not a joke': 20-year-old Texas woman spends 70% of her income on rent and has racked up $4,000 in credit card debt. She laughs it off as 'girl math.' Caleb Hammer responds](https://finance.yahoo.com/news/not-joke-20-old-texas-121200819.html)
 - Mar 02 - [Teens brutally attacked me with brass knuckles at In-N-Out. Why are these weapons still legal?](https://www.yahoo.com/news/teens-brutally-attacked-brass-knuckles-101708015.html)
 - Mar 02 - [A party like no other? Asia's richest man celebrates son's prenuptials with a star-studded bash](https://www.yahoo.com/news/party-no-other-asias-richest-072621676.html)
 - Mar 02 - [Ivanka Trump and her shiny sari are attempting to single-handedly revive the glamorous face of Trumpworld at Ambani's pre-wedding bash](https://www.yahoo.com/entertainment/ivanka-trump-her-shiny-sari-053233298.html)
 - Mar 02 - [Hasan vows to cover Trump legal cases differently: ‘We will stop with this charade’](https://www.yahoo.com/news/hasan-vows-cover-trump-legal-031253053.html)
-- Mar 02 - [Putin warns of ‘destruction of civilization’. Hear retired general’s response](https://www.yahoo.com/news/putin-warns-destruction-civilization-hear-024657840.html)
 <!-- feed end -->
 
 ### Onstream
