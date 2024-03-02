@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 02 - [Trump escalates his immigration rhetoric with baseless claim about Biden trying to overthrow the US](https://www.yahoo.com/news/trump-escalates-immigration-rhetoric-baseless-225148126.html)
+- Mar 02 - [Trump slams E. Jean Carroll’s objection to his request to delay posting bond as ‘inconsistent’](https://www.yahoo.com/news/trump-slams-e-jean-carroll-220040811.html)
 - Mar 02 - [Jill Biden puts Donald Trump on notice as her campaign role comes into focus](https://www.yahoo.com/news/jill-biden-puts-donald-trump-200023176.html)
 - Mar 02 - [Why Donald Trump’s niece says he’s ‘nothing like he pretends to be’](https://www.yahoo.com/news/hear-donald-trump-niece-says-183156833.html)
 - Mar 02 - [Here’s why Americans drive on the right and the UK drives on the left](https://finance.yahoo.com/news/why-americans-drive-uk-drives-103023611.html)
-- Mar 02 - [Singapore brokered a deal with Taylor Swift, so she wouldn't take the Eras Tour to other Southeast Asian countries. Now, a Philippines lawmaker is calling it out.](https://www.yahoo.com/entertainment/singapore-brokered-deal-taylor-swift-155612037.html)
-- Mar 02 - [As Trump’s Criminal Trial Approaches, He May Be His Own Worst Enemy](https://www.yahoo.com/news/trump-criminal-trial-approaches-may-151654543.html)
 <!-- feed end -->
 
 ### Onstream
