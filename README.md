@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 02 - [As Trump’s Criminal Trial Approaches, He May Be His Own Worst Enemy](https://www.yahoo.com/news/trump-criminal-trial-approaches-may-151654543.html)
 - Mar 02 - [Here’s why Americans drive on the right and the UK drives on the left](https://finance.yahoo.com/news/why-americans-drive-uk-drives-103023611.html)
+- Mar 02 - [Singapore brokered a deal with Taylor Swift, so she wouldn't take the Eras Tour to other Southeast Asian countries. Now, a Philippines lawmaker is calling it out.](https://www.yahoo.com/entertainment/singapore-brokered-deal-taylor-swift-155612037.html)
+- Mar 02 - [As Trump’s Criminal Trial Approaches, He May Be His Own Worst Enemy](https://www.yahoo.com/news/trump-criminal-trial-approaches-may-151654543.html)
+- Mar 02 - [Former NBA player, actor gets 90 years to life in California State Prison for violent sexual assaults](https://www.yahoo.com/news/former-nba-player-actor-gets-150240225.html)
 - Mar 02 - [Teens brutally attacked me with brass knuckles at In-N-Out. Why are these weapons still legal?](https://www.yahoo.com/news/teens-brutally-attacked-brass-knuckles-101708015.html)
-- Mar 02 - [A party like no other? Asia's richest man celebrates son's prenuptials with a star-studded bash](https://www.yahoo.com/news/party-no-other-asias-richest-072621676.html)
-- Mar 02 - [Ivanka Trump and her shiny sari are attempting to single-handedly revive the glamorous face of Trumpworld at Ambani's pre-wedding bash](https://www.yahoo.com/entertainment/ivanka-trump-her-shiny-sari-053233298.html)
 <!-- feed end -->
 
 ### Onstream
