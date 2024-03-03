@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - [Details Of NCIS Investigation Into Ashley Massaro’s Sexual Assault Claims Released](https://www.yahoo.com/entertainment/details-ncis-investigation-ashley-massaro-204856788.html)
 - Mar 03 - [Man killed trying to defend home during alleged invasion: North Carolina authorities](https://www.yahoo.com/news/man-killed-trying-defend-home-190354866.html)
 - Mar 03 - [Sri Lanka has ended free long-term visas for Russians and Ukrainians following outrage over a 'whites only' party](https://www.yahoo.com/news/sri-lanka-ended-free-long-184953768.html)
 - Mar 03 - [This enormous sea creature’s rare good deed at a California beach puzzles experts](https://www.yahoo.com/news/enormous-sea-creature-rare-good-183314923.html)
-- Mar 03 - [A Supreme Court decision could come Monday in a case about barring Trump from the 2024 ballot](https://www.yahoo.com/news/supreme-court-decision-could-come-181618352.html)
 - Mar 03 - [Family in ‘in shock, dismay, mourning’ following Illinois police shooting of man inside his home](https://www.yahoo.com/news/family-shock-dismay-mourning-following-163439580.html)
 <!-- feed end -->
 
