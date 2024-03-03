@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - ['It’s scary’: American families are homeless, unable to pay mega bills after Social Security benefits blunder. Lawmakers want to put a stop to it — will Congress come to the rescue?](https://finance.yahoo.com/news/scary-american-families-left-homeless-131000225.html)
 - Mar 03 - [A chunk of Republican primary and caucus voters say they wouldn’t vote for Trump as the GOP nominee](https://www.yahoo.com/news/chunk-republican-primary-caucus-voters-122946171.html)
 - Mar 03 - [18 Signs From The Past Week That Made Ma Laugh So Hard, I Lost Consciousness For A Second And Saw The Other Side](https://www.yahoo.com/lifestyle/18-signs-past-week-made-121602520.html)
 - Mar 03 - [‘A total nightmare’: This NY couple bought a $2M retirement dream home in Queens — only to find a squatter inside, who they’re now struggling to evict because he's a 'tenant' under the law](https://finance.yahoo.com/news/total-nightmare-ny-couple-bought-121000318.html)
 - Mar 03 - [What is considered a ‘good income’ in America? Dave Ramsey explains his answer and tells an Ohio woman that her $36K/year job doesn't pass the test. Does yours?](https://finance.yahoo.com/news/considered-good-income-america-dave-113400372.html)
-- Mar 03 - [A medical plane carrying Norway's king departs Malaysia, the day after he received a pacemaker](https://www.yahoo.com/news/plane-believed-carrying-norways-king-050851840.html)
 <!-- feed end -->
 
 ### Onstream
