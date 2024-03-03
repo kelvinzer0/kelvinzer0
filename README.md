@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - [Speed chess, Soul Cycle, and push-up contests: Saturday Night Live parodies Joe Biden's age](https://www.yahoo.com/news/age-old-bit-saturday-night-155018973.html)
+- Mar 03 - [Man, 70, who has eaten a record 34,000 McDonald's Big Macs, says, 'People thought I'd be dead by now'](https://www.yahoo.com/news/man-70-eaten-record-34-152444701.html)
 - Mar 03 - [A ‘cowboy ski town’ where high earners can’t afford a home faces a housing battle](https://www.yahoo.com/news/cowboy-ski-town-where-high-150000327.html)
 - Mar 03 - [White supremacist fitness clubs are fat-shaming Trump supporters and plotting a race war](https://www.yahoo.com/news/white-supremacist-fitness-clubs-fat-143738739.html)
 - Mar 03 - [After 10 years of trying, a Palestinian woman had twins. An Israeli strike killed them both](https://www.yahoo.com/news/10-years-trying-palestinian-woman-142712675.html)
-- Mar 03 - [75-Year-Old Substitute Teacher Says Student Punched Him](https://www.yahoo.com/news/75-old-substitute-teacher-says-130103716.html)
-- Mar 03 - [A chunk of Republican primary and caucus voters say they wouldn’t vote for Trump as the GOP nominee](https://www.yahoo.com/news/chunk-republican-primary-caucus-voters-122946171.html)
 <!-- feed end -->
 
 ### Onstream
