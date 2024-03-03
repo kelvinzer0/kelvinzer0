@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - [Sri Lanka has ended free long-term visas for Russians and Ukrainians following outrage over a 'whites only' party](https://www.yahoo.com/news/sri-lanka-ended-free-long-184953768.html)
+- Mar 03 - [This enormous sea creature’s rare good deed at a California beach puzzles experts](https://www.yahoo.com/news/enormous-sea-creature-rare-good-183314923.html)
 - Mar 03 - [A Supreme Court decision could come Monday in a case about barring Trump from the 2024 ballot](https://www.yahoo.com/news/supreme-court-decision-could-come-181618352.html)
-- Mar 03 - [Female soldier quits Army after being scarred in glassing by stranger on Beaujolais Day](https://www.yahoo.com/news/female-soldier-quits-army-being-164234470.html)
-- Mar 03 - [Trump confuses Obama for Biden again at Virginia rally speech](https://www.yahoo.com/news/trump-confuses-obama-biden-again-163640961.html)
-- Mar 03 - [Speed chess, Soul Cycle, and push-up contests: Saturday Night Live parodies Joe Biden's age](https://www.yahoo.com/news/age-old-bit-saturday-night-155018973.html)
-- Mar 03 - [Hundreds of inmates flee after armed gangs storm Haiti's main prison, leaving bodies behind](https://www.yahoo.com/news/hundreds-inmates-flee-armed-gangs-153943719.html)
+- Mar 03 - [Family in ‘in shock, dismay, mourning’ following Illinois police shooting of man inside his home](https://www.yahoo.com/news/family-shock-dismay-mourning-following-163439580.html)
+- Mar 03 - [Ken Buck says he’s ‘not going to lie’ on behalf of GOP](https://www.yahoo.com/news/ken-buck-says-not-going-170241264.html)
 <!-- feed end -->
 
 ### Onstream
