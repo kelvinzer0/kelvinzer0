@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - [A ‘cowboy ski town’ where high earners can’t afford a home faces a housing battle](https://www.yahoo.com/news/cowboy-ski-town-where-high-150000327.html)
 - Mar 03 - [After 10 years of trying, a Palestinian woman had twins. An Israeli strike killed them both](https://www.yahoo.com/news/10-years-trying-palestinian-woman-142712675.html)
-- Mar 03 - [Tim Scott lost his own presidential bid. But he's gotten Donald Trump's attention for vice president](https://www.yahoo.com/news/tim-scott-lost-own-presidential-132348968.html)
-- Mar 03 - [75-Year-Old Substitute Teacher Says Student Punched Him](https://www.yahoo.com/news/75-old-substitute-teacher-says-130103716.html)
 - Mar 03 - [A chunk of Republican primary and caucus voters say they wouldn’t vote for Trump as the GOP nominee](https://www.yahoo.com/news/chunk-republican-primary-caucus-voters-122946171.html)
 - Mar 03 - [18 Signs From The Past Week That Made Ma Laugh So Hard, I Lost Consciousness For A Second And Saw The Other Side](https://www.yahoo.com/lifestyle/18-signs-past-week-made-121602520.html)
+- Mar 03 - [‘A total nightmare’: This NY couple bought a $2M retirement dream home in Queens — only to find a squatter inside, who they’re now struggling to evict because he's a 'tenant' under the law](https://finance.yahoo.com/news/total-nightmare-ny-couple-bought-121000318.html)
 <!-- feed end -->
 
 ### Onstream
