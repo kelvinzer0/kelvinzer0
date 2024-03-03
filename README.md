@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 03 - [3 Arrested After Brazilian Influencer Gang-Raped in India While on Motorcycle Trip Around the World](https://www.yahoo.com/news/3-arrested-brazilian-influencer-gang-005514562.html)
 - Mar 02 - [Trump escalates his immigration rhetoric with baseless claim about Biden trying to overthrow the US](https://www.yahoo.com/news/trump-escalates-immigration-rhetoric-baseless-225148126.html)
 - Mar 02 - [Trump slams E. Jean Carroll’s objection to his request to delay posting bond as ‘inconsistent’](https://www.yahoo.com/news/trump-slams-e-jean-carroll-220040811.html)
-- Mar 02 - [Shocking images of epic blizzard slamming California with snow, 100 mph wind gusts](https://sports.yahoo.com/shocking-images-epic-blizzard-slamming-200820288.html)
+- Mar 02 - [Here’s why Americans drive on the right and the UK drives on the left](https://finance.yahoo.com/news/why-americans-drive-uk-drives-103023611.html)
 <!-- feed end -->
 
 ### Onstream
