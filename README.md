@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - [A Supreme Court decision could come Monday in a case about barring Trump from the 2024 ballot](https://www.yahoo.com/news/supreme-court-decision-could-come-181618352.html)
+- Mar 03 - [Female soldier quits Army after being scarred in glassing by stranger on Beaujolais Day](https://www.yahoo.com/news/female-soldier-quits-army-being-164234470.html)
+- Mar 03 - [Trump confuses Obama for Biden again at Virginia rally speech](https://www.yahoo.com/news/trump-confuses-obama-biden-again-163640961.html)
 - Mar 03 - [Speed chess, Soul Cycle, and push-up contests: Saturday Night Live parodies Joe Biden's age](https://www.yahoo.com/news/age-old-bit-saturday-night-155018973.html)
-- Mar 03 - [Man, 70, who has eaten a record 34,000 McDonald's Big Macs, says, 'People thought I'd be dead by now'](https://www.yahoo.com/news/man-70-eaten-record-34-152444701.html)
-- Mar 03 - [A ‘cowboy ski town’ where high earners can’t afford a home faces a housing battle](https://www.yahoo.com/news/cowboy-ski-town-where-high-150000327.html)
-- Mar 03 - [White supremacist fitness clubs are fat-shaming Trump supporters and plotting a race war](https://www.yahoo.com/news/white-supremacist-fitness-clubs-fat-143738739.html)
-- Mar 03 - [After 10 years of trying, a Palestinian woman had twins. An Israeli strike killed them both](https://www.yahoo.com/news/10-years-trying-palestinian-woman-142712675.html)
+- Mar 03 - [Hundreds of inmates flee after armed gangs storm Haiti's main prison, leaving bodies behind](https://www.yahoo.com/news/hundreds-inmates-flee-armed-gangs-153943719.html)
 <!-- feed end -->
 
 ### Onstream
