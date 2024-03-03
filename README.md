@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 03 - [3 Arrested After Brazilian Influencer Gang-Raped in India While on Motorcycle Trip Around the World](https://www.yahoo.com/news/3-arrested-brazilian-influencer-gang-005514562.html)
 - Mar 02 - [Trump escalates his immigration rhetoric with baseless claim about Biden trying to overthrow the US](https://www.yahoo.com/news/trump-escalates-immigration-rhetoric-baseless-225148126.html)
 - Mar 02 - [Trump slams E. Jean Carroll’s objection to his request to delay posting bond as ‘inconsistent’](https://www.yahoo.com/news/trump-slams-e-jean-carroll-220040811.html)
-- Mar 02 - [The semi driver rescued dangling from a bridge had been struck by an oncoming vehicle: mayor](https://www.yahoo.com/news/bridge-where-dramatic-open-air-180504752.html)
+- Mar 02 - [Why Donald Trump’s niece says he’s ‘nothing like he pretends to be’](https://www.yahoo.com/news/hear-donald-trump-niece-says-183156833.html)
 <!-- feed end -->
 
 ### Onstream
