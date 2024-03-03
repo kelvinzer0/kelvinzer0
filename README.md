@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 02 - [Trump slams E. Jean Carroll’s objection to his request to delay posting bond as ‘inconsistent’](https://www.yahoo.com/news/trump-slams-e-jean-carroll-220040811.html)
 - Mar 02 - [The semi driver rescued dangling from a bridge had been struck by an oncoming vehicle: mayor](https://www.yahoo.com/news/bridge-where-dramatic-open-air-180504752.html)
 - Mar 02 - [Here’s why Americans drive on the right and the UK drives on the left](https://finance.yahoo.com/news/why-americans-drive-uk-drives-103023611.html)
-- Mar 02 - [What is Cushing's syndrome? Amy Schumer's diagnosis prompts 750% spike in web searches — and more health questions Canadians are asking](https://www.yahoo.com/news/what-is-cushings-syndrome-amy-schumers-diagnosis-prompts-750-spike-in-web-searches--and-more-health-questions-canadians-are-asking-160028781.html)
+- Mar 02 - [Former NBA player, actor gets 90 years to life in California State Prison for violent sexual assaults](https://www.yahoo.com/news/former-nba-player-actor-gets-150240225.html)
 <!-- feed end -->
 
 ### Onstream
