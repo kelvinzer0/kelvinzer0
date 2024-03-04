@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 04 - [3 men suspected in the disappearance of a US sailing couple ordered deported from St. Vincent](https://www.yahoo.com/news/3-men-suspected-disappearance-us-183832777.html)
 - Mar 04 - [Fox News Stars Flip Out When Reminded That Trump ‘Had Dinner With Nazis’](https://www.yahoo.com/entertainment/fox-news-stars-flip-reminded-175136207.html)
-- Mar 04 - [Judge upholds Tennessee law to stop crossover voting in primaries. Critics say the law is too vague.](https://www.yahoo.com/news/judge-upholds-tennessee-law-stop-174935835.html)
-- Mar 04 - [Grandchildren who ‘hurt’ retired solider with lack of visits lose legal battle over his will](https://www.yahoo.com/news/grandchildren-hurt-retired-solider-lack-174745562.html)
+- Mar 04 - [Grandchildren whose lack of visits ‘hurt’ retired solider lose legal battle over his will](https://www.yahoo.com/news/grandchildren-hurt-retired-solider-lack-174745562.html)
+- Mar 04 - [Road rage driver follows teen, knocks him out, threatens to sexually assault sister, police say](https://www.yahoo.com/news/road-rage-driver-follows-teen-173939947.html)
 - Mar 04 - [The search for a young girl missing in South Africa ramps up as emotions run high](https://www.yahoo.com/news/search-young-girl-missing-south-173226941.html)
-- Mar 04 - [Spanish travel blogger gang raped by seven men in India](https://www.yahoo.com/news/spanish-travel-blogger-gang-raped-170654034.html)
 <!-- feed end -->
 
 ### Onstream
