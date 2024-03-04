@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Conservative Pundit Sends Stark Warning To ‘Bedwetting’ Dems Over ‘Morning Joe’ Supercut](https://www.yahoo.com/news/conservative-pundit-sends-stark-warning-135445224.html)
-- Mar 04 - [Kremlin: German recording shows intent to strike Russia](https://www.yahoo.com/news/kremlin-german-recording-shows-intent-133740393.html)
-- Mar 04 - [Russia's top court upholds decision barring anti-Ukraine war hopeful from presidential race](https://www.yahoo.com/news/russias-top-court-upholds-decision-133450885.html)
-- Mar 04 - ['I have a sense of timing': Jerry Seinfeld once said why he didn't take $100M to keep making 'Seinfeld' — now his old pal Larry David is ending 'Curb.' Here's how to know when to retire](https://finance.yahoo.com/news/sense-timing-jerry-seinfeld-turned-103000166.html)
-- Mar 04 - [Prankster’s Simple Question Sees Trump Fan’s Wild Logic Disintegrate In Real-Time](https://www.yahoo.com/entertainment/prankster-simple-sees-trump-fan-124829381.html)
+- Mar 04 - [Donald Trump cleared to run for president after Supreme Court victory](https://www.yahoo.com/news/donald-trump-allowed-run-president-150254523.html)
+- Mar 04 - [Trillions of gallons leak from aging drinking water systems, further stressing shrinking US cities](https://www.yahoo.com/news/trillions-gallons-leak-aging-drinking-143907273.html)
+- Mar 04 - [Sinead O'Connor's estate asks Donald Trump to stop playing her music at rallies](https://www.yahoo.com/news/sinead-oconnors-estate-asks-donald-143706429.html)
+- Mar 04 - [Three underwater data cables through the Red Sea are cut amid Houthi rebel attacks in the area](https://www.yahoo.com/news/three-underwater-data-cables-red-143239992.html)
+- Mar 04 - [Former Trump Organization CFO Allen Weisselberg surrenders to NYC prosecutors on new charges](https://www.yahoo.com/news/former-trump-organization-cfo-allen-143234035.html)
 <!-- feed end -->
 
 ### Onstream
