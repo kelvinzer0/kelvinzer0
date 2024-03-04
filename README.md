@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Car Gets Trapped by Snow Sluff and Rescued in South Lake Tahoe](https://www.yahoo.com/news/car-gets-trapped-snow-sluff-021342920.html)
+- Mar 04 - [The Russian pilot who defected to Ukraine was shot 5 times while less than 500 feet away from a police station: WSJ](https://www.yahoo.com/news/russian-pilot-defected-ukraine-shot-021949083.html)
 - Mar 04 - [Philly LGBT Affairs executive director yells, ‘I work for the mayor,’ as she films her and her husband’s arrest](https://www.yahoo.com/news/philly-lgbt-affairs-executive-director-015139111.html)
 - Mar 04 - [Nikki Haley wins the District of Columbia’s Republican primary and gets her first 2024 victory](https://www.yahoo.com/news/nikki-haley-wins-district-columbia-014550445.html)
-- Mar 04 - [Trump’s White House Was ‘Awash in Speed’ — and Xanax](https://www.yahoo.com/news/trump-white-house-awash-speed-010007508.html)
-- Mar 03 - [Bruce Springsteen’s Drummer Sues Car Restoration Shop](https://www.yahoo.com/news/bruce-springsteen-drummer-sues-car-150000681.html)
+- Mar 04 - [US Border Patrol shoots, kills bandit robbing migrants in California](https://www.yahoo.com/news/us-border-patrol-shoots-kills-013409139.html)
+- Mar 04 - [LDS missionary from Idaho passes away from ‘sudden medical emergency’ in New Jersey](https://www.yahoo.com/news/lds-missionary-idaho-passes-away-011124835.html)
 <!-- feed end -->
 
 ### Onstream
