@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 04 - [China in a surprise announcement says it is eliminating annual news conference by premier](https://www.yahoo.com/news/china-surprise-announcement-says-eliminating-053231352.html)
 - Mar 04 - [Trump keeps making incendiary statements. His campaign says that won't change.](https://www.yahoo.com/news/trump-keeps-making-incendiary-statements-052452477.html)
 - Mar 04 - [How Chinese retailers can offer Americans steep bargains on clothes and why that could change](https://www.yahoo.com/news/chinese-retailers-offer-americans-steep-051729962.html)
-- Mar 04 - [The Supreme Court could decide Monday whether Trump can be barred from the 2024 ballot](https://www.yahoo.com/news/supreme-court-could-decide-monday-050402545.html)
-- Mar 04 - [As Biden prepares to address the nation, more than 6 in 10 US adults doubt his mental capability](https://www.yahoo.com/news/biden-prepares-address-nation-more-050215015.html)
 - Mar 04 - [Lauren Boebert says she's 'not dumb' and knew switching districts would be tough, but she 'talked to God' and he told her to press on](https://www.yahoo.com/news/lauren-boebert-says-shes-not-043131125.html)
+- Mar 04 - [The Russian pilot who defected to Ukraine was shot 5 times while less than 500 feet away from a police station: WSJ](https://www.yahoo.com/news/russian-pilot-defected-ukraine-shot-021949083.html)
 <!-- feed end -->
 
 ### Onstream
