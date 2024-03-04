@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 04 - [Donald Trump Makes An Incredibly Dubious Claim About 2020 Election, Even For Him](https://www.yahoo.com/news/donald-trump-makes-incredibly-dubious-120347632.html)
+- Mar 04 - [Woman woke to find she was raped after invitation to 'afterparty'](https://www.yahoo.com/news/woman-woke-she-raped-invitation-114745058.html)
+- Mar 04 - [Lauren Boebert missed a campaign stop because she was busy working out if her ex had thrown her stuff into a pond: report](https://www.yahoo.com/news/lauren-boebert-missed-campaign-stop-112101817.html)
 - Mar 04 - [‘The bank is watching you’: This is what happens when you deposit too much cash into your bank account](https://finance.yahoo.com/news/bank-watching-happens-deposit-too-110400404.html)
 - Mar 04 - [I'm A Colorectal Cancer Doctor. Here Are 5 Things I'd Never Do.](https://www.yahoo.com/news/im-colorectal-cancer-doctor-5-104507876.html)
-- Mar 04 - [J.D. Vance's Threat To Anti-Trumpers Receives The Mother Of All Reminders](https://www.yahoo.com/news/j-d-vances-threat-anti-094513809.html)
-- Mar 04 - [Kremlin says German recording shows intent to strike Russia, asks whether Scholz in charge](https://www.yahoo.com/news/kremlin-says-german-army-discussing-093853505.html)
-- Mar 04 - [Israel carries out biggest Ramallah raid in years, witnesses say](https://www.yahoo.com/news/israel-carries-biggest-ramallah-raid-093009889.html)
 <!-- feed end -->
 
 ### Onstream
