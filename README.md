@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 03 - [A man stumbled upon a 70-million-year-old dinosaur fossil but kept it secret for 2 years](https://www.yahoo.com/news/man-stumbled-upon-70-million-223703506.html)
+- Mar 03 - [In blunt remarks, US VP Harris calls out Israel over "catastrophe" in Gaza](https://www.yahoo.com/news/us-vp-harris-urges-israeli-211456586.html)
 - Mar 03 - [Details Of NCIS Investigation Into Ashley Massaro’s Sexual Assault Claims Released](https://www.yahoo.com/entertainment/details-ncis-investigation-ashley-massaro-204856788.html)
 - Mar 03 - [Man killed trying to defend home during alleged invasion: North Carolina authorities](https://www.yahoo.com/news/man-killed-trying-defend-home-190354866.html)
 - Mar 03 - [Sri Lanka has ended free long-term visas for Russians and Ukrainians following outrage over a 'whites only' party](https://www.yahoo.com/news/sri-lanka-ended-free-long-184953768.html)
-- Mar 03 - [This enormous sea creature’s rare good deed at a California beach puzzles experts](https://www.yahoo.com/news/enormous-sea-creature-rare-good-183314923.html)
-- Mar 03 - [Family in ‘in shock, dismay, mourning’ following Illinois police shooting of man inside his home](https://www.yahoo.com/news/family-shock-dismay-mourning-following-163439580.html)
 <!-- feed end -->
 
 ### Onstream
