@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Supreme Court rules Trump cannot be kicked off Colorado primary ballot](https://www.yahoo.com/news/supreme-court-rules-trump-cannot-be-kicked-off-colorado-primary-ballot-150547297.html)
-- Mar 04 - [Trump wins Colorado ballot disqualification case at US Supreme Court](https://www.yahoo.com/news/trump-wins-colorado-ballot-disqualification-150454935.html)
-- Mar 04 - [Akron police charge Cynthia George, wife of Tangier owner, in 2001 murder of Jeffrey Zack](https://www.yahoo.com/news/akron-police-charge-cynthia-george-145126033.html)
-- Mar 04 - [Trillions of gallons leak from aging drinking water systems, further stressing shrinking US cities](https://www.yahoo.com/news/trillions-gallons-leak-aging-drinking-143907273.html)
-- Mar 04 - [Three Red Sea underwater data cables have been cut as Houthi attacks continue in the vital waterway](https://www.yahoo.com/news/three-underwater-data-cables-red-143239992.html)
+- Mar 04 - [Republican state senator to run for open congressional seat representing northeastern Wisconsin](https://www.yahoo.com/news/republican-state-senator-run-open-165820154.html)
+- Mar 04 - [Settlement in Wisconsin fake elector case offers new details on the strategy by Trump lawyers](https://www.yahoo.com/news/settlement-wisconsin-fake-elector-case-162518500.html)
+- Mar 04 - [King Charles III May Have Another Headache Coming His Way From the State of Florida](https://www.yahoo.com/entertainment/king-charles-iii-may-another-160432668.html)
+- Mar 04 - [Scientists have used cells from fluid drawn during pregnancy to grow mini lungs and other organs](https://www.yahoo.com/news/scientists-used-cells-fluid-drawn-160119416.html)
+- Mar 04 - [Fact Check: This Pic Supposedly Showing Donald and Ivanka Trump On a Bed Has Raised Some Eyebrows](https://www.yahoo.com/news/fact-check-donald-ivanka-trump-140000481.html)
 <!-- feed end -->
 
 ### Onstream
