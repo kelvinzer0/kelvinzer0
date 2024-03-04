@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Donald Trump cleared to run for president after Supreme Court victory](https://www.yahoo.com/news/donald-trump-allowed-run-president-150254523.html)
+- Mar 04 - [Supreme Court rules Trump cannot be kicked off Colorado primary ballot](https://www.yahoo.com/news/supreme-court-rules-trump-cannot-be-kicked-off-colorado-primary-ballot-150547297.html)
+- Mar 04 - [Trump wins Colorado ballot disqualification case at US Supreme Court](https://www.yahoo.com/news/trump-wins-colorado-ballot-disqualification-150454935.html)
+- Mar 04 - [Akron police charge Cynthia George, wife of Tangier owner, in 2001 murder of Jeffrey Zack](https://www.yahoo.com/news/akron-police-charge-cynthia-george-145126033.html)
 - Mar 04 - [Trillions of gallons leak from aging drinking water systems, further stressing shrinking US cities](https://www.yahoo.com/news/trillions-gallons-leak-aging-drinking-143907273.html)
-- Mar 04 - [Sinead O'Connor's estate asks Donald Trump to stop playing her music at rallies](https://www.yahoo.com/news/sinead-oconnors-estate-asks-donald-143706429.html)
-- Mar 04 - [Three underwater data cables through the Red Sea are cut amid Houthi rebel attacks in the area](https://www.yahoo.com/news/three-underwater-data-cables-red-143239992.html)
-- Mar 04 - [Former Trump Organization CFO Allen Weisselberg surrenders to NYC prosecutors on new charges](https://www.yahoo.com/news/former-trump-organization-cfo-allen-143234035.html)
+- Mar 04 - [Three Red Sea underwater data cables have been cut as Houthi attacks continue in the vital waterway](https://www.yahoo.com/news/three-underwater-data-cables-red-143239992.html)
 <!-- feed end -->
 
 ### Onstream
