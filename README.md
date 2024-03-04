@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 04 - [Philly LGBT Affairs executive director yells, ‘I work for the mayor,’ as she records her and her husband’s arrest](https://www.yahoo.com/news/philly-lgbt-affairs-executive-director-015139111.html)
+- Mar 04 - [Alabama man jailed in 'the freezer' died of homicide due to hypothermia, records show](https://www.yahoo.com/news/alabama-man-jailed-freezer-died-214108735.html)
 - Mar 04 - [Girl Scouts were told to stop bracelet-making fundraiser for kids in Gaza. Now they can't keep up](https://www.yahoo.com/news/girl-scouts-were-told-stop-213616844.html)
+- Mar 04 - [French lawmakers cheer as abortion vote passes](https://www.yahoo.com/news/french-lawmakers-cheer-abortion-vote-204035086.html)
 - Mar 04 - ['Barbeque' Cherizier: the gang leader seeking to topple Haiti's government](https://www.yahoo.com/news/barbeque-cherizier-gang-leader-seeking-202132228.html)
-- Mar 04 - [Small business reporting requirement found unconstitutional by Alabama federal judge](https://www.yahoo.com/news/small-business-reporting-requirement-found-200526047.html)
-- Mar 04 - [Former NFL player Braylon Edwards helped stop locker room attack on 80-year-old man](https://sports.yahoo.com/former-nfl-player-braylon-edwards-helped-stop-locker-room-attack-on-80-year-old-man-200114530.html)
-- Mar 04 - [US calls on Hamas to accept ceasefire terms](https://www.yahoo.com/news/us-calls-hamas-accept-ceasefire-193606039.html)
 <!-- feed end -->
 
 ### Onstream
