@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 04 - [Conservative Pundit Sends Stark Warning To ‘Bedwetting’ Dems Over ‘Morning Joe’ Supercut](https://www.yahoo.com/news/conservative-pundit-sends-stark-warning-135445224.html)
+- Mar 04 - [Kremlin: German recording shows intent to strike Russia](https://www.yahoo.com/news/kremlin-german-recording-shows-intent-133740393.html)
+- Mar 04 - [Russia's top court upholds decision barring anti-Ukraine war hopeful from presidential race](https://www.yahoo.com/news/russias-top-court-upholds-decision-133450885.html)
+- Mar 04 - ['I have a sense of timing': Jerry Seinfeld once said why he didn't take $100M to keep making 'Seinfeld' — now his old pal Larry David is ending 'Curb.' Here's how to know when to retire](https://finance.yahoo.com/news/sense-timing-jerry-seinfeld-turned-103000166.html)
 - Mar 04 - [Prankster’s Simple Question Sees Trump Fan’s Wild Logic Disintegrate In Real-Time](https://www.yahoo.com/entertainment/prankster-simple-sees-trump-fan-124829381.html)
-- Mar 04 - [Donald Trump Makes An Incredibly Dubious Claim About 2020 Election, Even For Him](https://www.yahoo.com/news/donald-trump-makes-incredibly-dubious-120347632.html)
-- Mar 04 - [Woman woke to find she was raped after invitation to 'afterparty'](https://www.yahoo.com/news/woman-woke-she-raped-invitation-114745058.html)
-- Mar 04 - [Lauren Boebert missed a campaign stop because she was busy working out if her ex had thrown her stuff into a pond: report](https://www.yahoo.com/news/lauren-boebert-missed-campaign-stop-112101817.html)
-- Mar 04 - [‘The bank is watching you’: This is what happens when you deposit too much cash into your bank account](https://finance.yahoo.com/news/bank-watching-happens-deposit-too-110400404.html)
 <!-- feed end -->
 
 ### Onstream
