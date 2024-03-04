@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [The Russian pilot who defected to Ukraine was shot 5 times while less than 500 feet away from a police station: WSJ](https://www.yahoo.com/news/russian-pilot-defected-ukraine-shot-021949083.html)
-- Mar 04 - [Philly LGBT Affairs executive director yells, ‘I work for the mayor,’ as she films her and her husband’s arrest](https://www.yahoo.com/news/philly-lgbt-affairs-executive-director-015139111.html)
-- Mar 04 - [Nikki Haley wins the District of Columbia’s Republican primary and gets her first 2024 victory](https://www.yahoo.com/news/nikki-haley-wins-district-columbia-014550445.html)
-- Mar 04 - [US Border Patrol shoots, kills bandit robbing migrants in California](https://www.yahoo.com/news/us-border-patrol-shoots-kills-013409139.html)
-- Mar 04 - [LDS missionary from Idaho passes away from ‘sudden medical emergency’ in New Jersey](https://www.yahoo.com/news/lds-missionary-idaho-passes-away-011124835.html)
+- Mar 04 - [Trump keeps making incendiary statements. His campaign says that won't change.](https://www.yahoo.com/news/trump-keeps-making-incendiary-statements-052452477.html)
+- Mar 04 - [How Chinese retailers can offer Americans steep bargains on clothes and why that could change](https://www.yahoo.com/news/chinese-retailers-offer-americans-steep-051729962.html)
+- Mar 04 - [The Supreme Court could decide Monday whether Trump can be barred from the 2024 ballot](https://www.yahoo.com/news/supreme-court-could-decide-monday-050402545.html)
+- Mar 04 - [As Biden prepares to address the nation, more than 6 in 10 US adults doubt his mental capability](https://www.yahoo.com/news/biden-prepares-address-nation-more-050215015.html)
+- Mar 04 - [Lauren Boebert says she's 'not dumb' and knew switching districts would be tough, but she 'talked to God' and he told her to press on](https://www.yahoo.com/news/lauren-boebert-says-shes-not-043131125.html)
 <!-- feed end -->
 
 ### Onstream
