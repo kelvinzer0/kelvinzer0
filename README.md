@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 04 - [Prankster’s Simple Question Sees Trump Fan’s Wild Logic Disintegrate In Real-Time](https://www.yahoo.com/entertainment/prankster-simple-sees-trump-fan-124829381.html)
 - Mar 04 - [Donald Trump Makes An Incredibly Dubious Claim About 2020 Election, Even For Him](https://www.yahoo.com/news/donald-trump-makes-incredibly-dubious-120347632.html)
 - Mar 04 - [Woman woke to find she was raped after invitation to 'afterparty'](https://www.yahoo.com/news/woman-woke-she-raped-invitation-114745058.html)
 - Mar 04 - [Lauren Boebert missed a campaign stop because she was busy working out if her ex had thrown her stuff into a pond: report](https://www.yahoo.com/news/lauren-boebert-missed-campaign-stop-112101817.html)
 - Mar 04 - [‘The bank is watching you’: This is what happens when you deposit too much cash into your bank account](https://finance.yahoo.com/news/bank-watching-happens-deposit-too-110400404.html)
-- Mar 04 - [I'm A Colorectal Cancer Doctor. Here Are 5 Things I'd Never Do.](https://www.yahoo.com/news/im-colorectal-cancer-doctor-5-104507876.html)
 <!-- feed end -->
 
 ### Onstream
