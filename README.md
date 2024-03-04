@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 03 - [A man stumbled upon a 70-million-year-old dinosaur fossil but kept it secret for 2 years](https://www.yahoo.com/news/man-stumbled-upon-70-million-223703506.html)
-- Mar 03 - [In blunt remarks, US VP Harris calls out Israel over "catastrophe" in Gaza](https://www.yahoo.com/news/us-vp-harris-urges-israeli-211456586.html)
-- Mar 03 - [Details Of NCIS Investigation Into Ashley Massaro’s Sexual Assault Claims Released](https://www.yahoo.com/entertainment/details-ncis-investigation-ashley-massaro-204856788.html)
-- Mar 03 - [Man killed trying to defend home during alleged invasion: North Carolina authorities](https://www.yahoo.com/news/man-killed-trying-defend-home-190354866.html)
-- Mar 03 - [Sri Lanka has ended free long-term visas for Russians and Ukrainians following outrage over a 'whites only' party](https://www.yahoo.com/news/sri-lanka-ended-free-long-184953768.html)
+- Mar 04 - [Car Gets Trapped by Snow Sluff and Rescued in South Lake Tahoe](https://www.yahoo.com/news/car-gets-trapped-snow-sluff-021342920.html)
+- Mar 04 - [Philly LGBT Affairs executive director yells, ‘I work for the mayor,’ as she films her and her husband’s arrest](https://www.yahoo.com/news/philly-lgbt-affairs-executive-director-015139111.html)
+- Mar 04 - [Nikki Haley wins the District of Columbia’s Republican primary and gets her first 2024 victory](https://www.yahoo.com/news/nikki-haley-wins-district-columbia-014550445.html)
+- Mar 04 - [Trump’s White House Was ‘Awash in Speed’ — and Xanax](https://www.yahoo.com/news/trump-white-house-awash-speed-010007508.html)
+- Mar 03 - [Bruce Springsteen’s Drummer Sues Car Restoration Shop](https://www.yahoo.com/news/bruce-springsteen-drummer-sues-car-150000681.html)
 <!-- feed end -->
 
 ### Onstream
