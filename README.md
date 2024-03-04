@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Republican state senator to run for open congressional seat representing northeastern Wisconsin](https://www.yahoo.com/news/republican-state-senator-run-open-165820154.html)
-- Mar 04 - [Settlement in Wisconsin fake elector case offers new details on the strategy by Trump lawyers](https://www.yahoo.com/news/settlement-wisconsin-fake-elector-case-162518500.html)
-- Mar 04 - [King Charles III May Have Another Headache Coming His Way From the State of Florida](https://www.yahoo.com/entertainment/king-charles-iii-may-another-160432668.html)
-- Mar 04 - [Scientists have used cells from fluid drawn during pregnancy to grow mini lungs and other organs](https://www.yahoo.com/news/scientists-used-cells-fluid-drawn-160119416.html)
-- Mar 04 - [Fact Check: This Pic Supposedly Showing Donald and Ivanka Trump On a Bed Has Raised Some Eyebrows](https://www.yahoo.com/news/fact-check-donald-ivanka-trump-140000481.html)
+- Mar 04 - [Fox News Stars Flip Out When Reminded That Trump ‘Had Dinner With Nazis’](https://www.yahoo.com/entertainment/fox-news-stars-flip-reminded-175136207.html)
+- Mar 04 - [Judge upholds Tennessee law to stop crossover voting in primaries. Critics say the law is too vague.](https://www.yahoo.com/news/judge-upholds-tennessee-law-stop-174935835.html)
+- Mar 04 - [Grandchildren who ‘hurt’ retired solider with lack of visits lose legal battle over his will](https://www.yahoo.com/news/grandchildren-hurt-retired-solider-lack-174745562.html)
+- Mar 04 - [The search for a young girl missing in South Africa ramps up as emotions run high](https://www.yahoo.com/news/search-young-girl-missing-south-173226941.html)
+- Mar 04 - [Spanish travel blogger gang raped by seven men in India](https://www.yahoo.com/news/spanish-travel-blogger-gang-raped-170654034.html)
 <!-- feed end -->
 
 ### Onstream
