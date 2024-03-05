@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [Legal experts say Trump’s Jan. 6 architect has a “new perjury problem”: His “goose looks cooked”](https://www.yahoo.com/news/legal-experts-trump-jan-6-171810319.html)
 - Mar 05 - [19-year-old who was quarter mile away from fiery explosion killed by flying canister: Michigan officials](https://www.yahoo.com/news/19-old-quarter-mile-away-134700612.html)
 - Mar 05 - [Charles Barkley Threatens Black People Wearing Donald Trump’s Mugshot](https://www.yahoo.com/entertainment/charles-barkley-threatens-black-people-164330182.html)
 - Mar 05 - [Ukraine Destroys Russia’s Brand-New $65 Million Warship](https://www.yahoo.com/news/ukraine-destroys-russia-brand-65-154654333.html)
-- Mar 05 - ['Fighting back': Woman kills convicted sex offender who tried to rape her, police say](https://www.yahoo.com/news/fighting-back-woman-kills-convicted-145222467.html)
-- Mar 05 - [The New York Times is facing backlash over its coverage of Donald Trump and the 2024 election](https://finance.yahoo.com/news/york-times-facing-backlash-over-120044346.html)
+- Mar 05 - [The IRS already has all your income tax data – so why do Americans still have to file their taxes?](https://finance.yahoo.com/news/irs-already-income-tax-data-130029063.html)
 <!-- feed end -->
 
 ### Onstream
