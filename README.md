@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [California Senate race: Democrats aim to block Republican from contest to fill Feinstein's seat](https://www.yahoo.com/news/california-senate-race-democrats-aim-051022021.html)
+- Mar 05 - [A Vietnamese property tycoon accused of embezzling $12.5 billion begins her trial](https://www.yahoo.com/news/vietnamese-property-tycoon-accused-embezzling-050827818.html)
 - Mar 05 - [Georgia defense attorney subpoenaed to appear before state committee investigating Fulton County District Attorney Fani Willis](https://www.yahoo.com/news/georgia-defense-attorney-subpoenaed-appear-185742878.html)
 - Mar 05 - [Large number of 830,000 salmon fry die after released into California river](https://www.yahoo.com/news/large-number-830-000-salmon-021823631.html)
 - Mar 05 - [Amy Coney Barrett disagreed with the majority over Trump, but admonished the liberals instead](https://www.yahoo.com/news/amy-coney-barrett-disagreed-majority-011359775.html)
-- Mar 05 - [A woman wins $3.8 million verdict after SWAT team searches wrong home based on Find My iPhone app](https://www.yahoo.com/news/woman-wins-3-8-million-003925981.html)
-- Mar 05 - [China drops 'peaceful reunification' reference to Taiwan; raises defence spending by 7.2%](https://www.yahoo.com/news/china-drops-peaceful-reunification-reference-003429428.html)
 <!-- feed end -->
 
 ### Onstream
