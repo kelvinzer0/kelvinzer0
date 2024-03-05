@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 04 - [Philly LGBT Affairs executive director yells, ‘I work for the mayor,’ as she records her and her husband’s arrest](https://www.yahoo.com/news/philly-lgbt-affairs-executive-director-015139111.html)
-- Mar 04 - [Alabama man jailed in 'the freezer' died of homicide due to hypothermia, records show](https://www.yahoo.com/news/alabama-man-jailed-freezer-died-214108735.html)
-- Mar 04 - [Girl Scouts were told to stop bracelet-making fundraiser for kids in Gaza. Now they can't keep up](https://www.yahoo.com/news/girl-scouts-were-told-stop-213616844.html)
-- Mar 04 - [French lawmakers cheer as abortion vote passes](https://www.yahoo.com/news/french-lawmakers-cheer-abortion-vote-204035086.html)
-- Mar 04 - ['Barbeque' Cherizier: the gang leader seeking to topple Haiti's government](https://www.yahoo.com/news/barbeque-cherizier-gang-leader-seeking-202132228.html)
+- Mar 05 - [A woman wins $3.8 million verdict after SWAT team searches wrong home based on Find My iPhone app](https://www.yahoo.com/news/woman-wins-3-8-million-003925981.html)
+- Mar 05 - [5-time Iditarod champion Dallas Seavey kills and guts a moose that got entangled with his dog team](https://sports.yahoo.com/5-time-iditarod-champion-dallas-002847500.html)
+- Mar 04 - [Charles Barkley Says He Will 'Punch' Any Black Person He Sees Wearing Donald Trump's Mugshot](https://www.yahoo.com/entertainment/charles-barkley-says-punch-black-233641845.html)
+- Mar 04 - [NYPD arrests 23-year-old woman in connection with a subway attack on cellist](https://www.yahoo.com/news/nypd-arrests-23-old-woman-232954063.html)
+- Mar 04 - [Florida loses court bid to revive 'woke' workplace training ban](https://www.yahoo.com/news/florida-loses-court-bid-revive-232359677.html)
 <!-- feed end -->
 
 ### Onstream
