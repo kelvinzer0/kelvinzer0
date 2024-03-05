@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [Toobin on Trump Supreme Court win: ‘There were some pissed off justices’](https://www.yahoo.com/news/toobin-trump-supreme-court-win-130949672.html)
+- Mar 05 - [‘Get used to the $30 burger’: 'Bar Rescue' host Jon Taffer slams California for getting ‘involved' in the restaurant business — warns of ‘incredibly high’ menu prices. Does he have a point?](https://finance.yahoo.com/news/used-30-burger-bar-rescue-130100381.html)
+- Mar 05 - [The New York Times is facing backlash over its coverage of Donald Trump and the 2024 election](https://finance.yahoo.com/news/york-times-facing-backlash-over-120044346.html)
 - Mar 05 - [A German military officer used an unsecured line for a conference call. Russia hacked and leaked it](https://www.yahoo.com/news/german-military-officer-used-unsecured-110940425.html)
 - Mar 05 - [Gang rape of a tourist in India highlights its struggle to curb sexual violence against women](https://www.yahoo.com/news/gang-rape-tourist-india-highlights-110937527.html)
-- Mar 05 - [Michigan men confront cousin's abusive ex-husband at gym, demand answers about his missing girlfriend](https://www.yahoo.com/news/michigan-men-confront-cousins-abusive-090010845.html)
-- Mar 05 - [Ukraine claims it has sunk another Russian warship in the Black Sea using high-tech sea drones](https://www.yahoo.com/news/ukraine-claims-sunk-another-russian-085528395.html)
-- Mar 05 - [Fox News Personalities Lose It Over Guest’s Harsh Truth About Donald Trump](https://www.yahoo.com/news/fox-news-personalities-lose-over-085336644.html)
 <!-- feed end -->
 
 ### Onstream
