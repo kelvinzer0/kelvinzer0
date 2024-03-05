@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [Amy Coney Barrett disagreed with the majority over Trump, but admonished the liberals instead](https://www.yahoo.com/news/amy-coney-barrett-disagreed-majority-011359775.html)
 - Mar 05 - [A woman wins $3.8 million verdict after SWAT team searches wrong home based on Find My iPhone app](https://www.yahoo.com/news/woman-wins-3-8-million-003925981.html)
+- Mar 05 - [China drops 'peaceful reunification' reference to Taiwan; raises defence spending by 7.2%](https://www.yahoo.com/news/china-drops-peaceful-reunification-reference-003429428.html)
 - Mar 05 - [5-time Iditarod champion Dallas Seavey kills and guts a moose that got entangled with his dog team](https://sports.yahoo.com/5-time-iditarod-champion-dallas-002847500.html)
 - Mar 04 - [Charles Barkley Says He Will 'Punch' Any Black Person He Sees Wearing Donald Trump's Mugshot](https://www.yahoo.com/entertainment/charles-barkley-says-punch-black-233641845.html)
-- Mar 04 - [NYPD arrests 23-year-old woman in connection with a subway attack on cellist](https://www.yahoo.com/news/nypd-arrests-23-old-woman-232954063.html)
-- Mar 04 - [Florida loses court bid to revive 'woke' workplace training ban](https://www.yahoo.com/news/florida-loses-court-bid-revive-232359677.html)
 <!-- feed end -->
 
 ### Onstream
