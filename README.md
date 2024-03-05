@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 05 - [19-year-old who was quarter mile away from fiery explosion killed by flying canister: Michigan officials](https://www.yahoo.com/news/19-old-quarter-mile-away-134700612.html)
-- Mar 05 - [Man Sentenced After Police Found Buckets of Human Remains in Harvard Medical School Scandal](https://people.com/jeremy-pauley-sentenced-buckets-human-remains-harvard-medical-school-scandal-8604635)
 - Mar 05 - [Mom, other passengers intervene when woman rubs 14-year-old’s leg on flight, feds say](https://www.yahoo.com/news/mom-other-passengers-intervene-woman-211444366.html)
+- Mar 05 - [Mitt Romney responds to Kyrsten Sinema not seeking Senate reelection](https://www.yahoo.com/news/mitt-romney-responds-kyrsten-sinema-211258961.html)
 - Mar 05 - [8-year-old died after flying from school slide 7 feet above ‘frozen’ ground, Utah suit says](https://www.yahoo.com/news/8-old-died-flying-school-205320411.html)
 - Mar 05 - [Trump asks judge to cut the $83.3 million penalty in E. Jean Carroll case or grant him a new trial](https://www.yahoo.com/news/trump-asks-judge-cut-83-201904545.html)
 <!-- feed end -->
