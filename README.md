@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Jon Stewart Dismantles Donald Trump's New Catchphrase](https://www.yahoo.com/entertainment/jon-stewart-dismantles-donald-trumps-102033338.html)
+- Mar 05 - [A German military officer used an unsecured line for a conference call. Russia hacked and leaked it](https://www.yahoo.com/news/german-military-officer-used-unsecured-110940425.html)
+- Mar 05 - [Gang rape of a tourist in India highlights its struggle to curb sexual violence against women](https://www.yahoo.com/news/gang-rape-tourist-india-highlights-110937527.html)
+- Mar 05 - [Michigan men confront cousin's abusive ex-husband at gym, demand answers about his missing girlfriend](https://www.yahoo.com/news/michigan-men-confront-cousins-abusive-090010845.html)
 - Mar 05 - [Ukraine claims it has sunk another Russian warship in the Black Sea using high-tech sea drones](https://www.yahoo.com/news/ukraine-claims-sunk-another-russian-085528395.html)
 - Mar 05 - [Fox News Personalities Lose It Over Guest’s Harsh Truth About Donald Trump](https://www.yahoo.com/news/fox-news-personalities-lose-over-085336644.html)
-- Mar 05 - [A Vietnamese property tycoon accused of embezzling $12.5 billion begins her trial](https://www.yahoo.com/news/vietnamese-property-tycoon-accused-embezzling-050827818.html)
-- Mar 05 - [Small plane crashes near Nashville interstate and 5 people aboard were killed, police say](https://www.yahoo.com/news/single-engine-plane-crashes-along-040342554.html)
 <!-- feed end -->
 
 ### Onstream
