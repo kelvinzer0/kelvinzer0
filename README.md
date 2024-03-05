@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [19-year-old who was quarter mile away from fiery explosion killed by flying canister: Michigan officials](https://www.yahoo.com/news/19-old-quarter-mile-away-134700612.html)
+- Mar 05 - [Charles Barkley Threatens Black People Wearing Donald Trump’s Mugshot](https://www.yahoo.com/entertainment/charles-barkley-threatens-black-people-164330182.html)
+- Mar 05 - [Ukraine Destroys Russia’s Brand-New $65 Million Warship](https://www.yahoo.com/news/ukraine-destroys-russia-brand-65-154654333.html)
 - Mar 05 - ['Fighting back': Woman kills convicted sex offender who tried to rape her, police say](https://www.yahoo.com/news/fighting-back-woman-kills-convicted-145222467.html)
 - Mar 05 - [The New York Times is facing backlash over its coverage of Donald Trump and the 2024 election](https://finance.yahoo.com/news/york-times-facing-backlash-over-120044346.html)
-- Mar 05 - [19-year-old who was quarter mile away from fiery explosion killed by flying canister: Michigan officials](https://www.yahoo.com/news/19-old-quarter-mile-away-134700612.html)
-- Mar 05 - [‘Get used to the $30 burger’: 'Bar Rescue' host Jon Taffer slams California for getting ‘involved' in the restaurant business — warns of ‘incredibly high’ menu prices. Does he have a point?](https://finance.yahoo.com/news/used-30-burger-bar-rescue-130100381.html)
-- Mar 05 - [Gang rape of a tourist in India highlights its struggle to curb sexual violence against women](https://www.yahoo.com/news/gang-rape-tourist-india-highlights-110937527.html)
 <!-- feed end -->
 
 ### Onstream
