@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [Independent Sen. Kyrsten Sinema of Arizona says she won’t seek reelection, avoiding 3-way race](https://www.yahoo.com/news/independent-sen-kyrsten-sinema-arizona-192719722.html)
+- Mar 05 - [Here's What AI Thinks Each State's Miss USA Costume Should Look Like](https://www.yahoo.com/lifestyle/heres-ai-thinks-states-miss-191603148.html)
 - Mar 05 - [Steve Jobs' Daughter Claims He Told Her She 'Smelled Like A Toilet' While On His Death Bed — But She Clarifies He Was Being Honest: 'I Really Did'](https://finance.yahoo.com/news/steve-jobs-daughter-claims-told-183215662.html)
 - Mar 05 - [Georgia pushes group to sanction prosecutors as Fani Willis faces removal from Trump case](https://www.yahoo.com/news/georgia-pushes-group-sanction-prosecutors-182751757.html)
 - Mar 05 - [The Lindbergh Baby Kidnapping: A Grisly Theory and a Renewed Debate](https://www.yahoo.com/news/lindbergh-baby-kidnapping-grisly-theory-181116592.html)
-- Mar 05 - [Hamas says no exchange of prisoners before Gaza ceasefire](https://www.yahoo.com/news/hamas-says-no-exchange-prisoners-181035554.html)
-- Mar 05 - [V-J Day 'Kiss' photo stays on display as VA head reverses department memo that would've banned it](https://www.yahoo.com/news/v-j-day-kiss-photo-181016333.html)
 <!-- feed end -->
 
 ### Onstream
