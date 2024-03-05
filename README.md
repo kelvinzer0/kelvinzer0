@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 05 - [Jon Stewart Dismantles Donald Trump's New Catchphrase](https://www.yahoo.com/entertainment/jon-stewart-dismantles-donald-trumps-102033338.html)
 - Mar 05 - [Ukraine claims it has sunk another Russian warship in the Black Sea using high-tech sea drones](https://www.yahoo.com/news/ukraine-claims-sunk-another-russian-085528395.html)
 - Mar 05 - [Fox News Personalities Lose It Over Guest’s Harsh Truth About Donald Trump](https://www.yahoo.com/news/fox-news-personalities-lose-over-085336644.html)
-- Mar 05 - [California Senate race: Democrats aim to block Republican from contest to fill Feinstein's seat](https://www.yahoo.com/news/california-senate-race-democrats-aim-051022021.html)
 - Mar 05 - [A Vietnamese property tycoon accused of embezzling $12.5 billion begins her trial](https://www.yahoo.com/news/vietnamese-property-tycoon-accused-embezzling-050827818.html)
-- Mar 05 - [Small plane with several aboard crashes in Nashville and all were killed](https://www.yahoo.com/news/single-engine-plane-crashes-along-040342554.html)
+- Mar 05 - [Small plane crashes near Nashville interstate and 5 people aboard were killed, police say](https://www.yahoo.com/news/single-engine-plane-crashes-along-040342554.html)
 <!-- feed end -->
 
 ### Onstream
