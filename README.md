@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 05 - [Arizona's Democratic governor vetoes border bill approved by Republican-led Legislature](https://www.yahoo.com/news/arizonas-democratic-governor-vetoes-border-222611324.html)
-- Mar 05 - [19-year-old who was quarter mile away from fiery explosion killed by flying canister: Michigan officials](https://www.yahoo.com/news/19-old-quarter-mile-away-134700612.html)
-- Mar 05 - [Mom, other passengers intervene when woman rubs 14-year-old’s leg on flight, feds say](https://www.yahoo.com/news/mom-other-passengers-intervene-woman-211444366.html)
-- Mar 05 - [Mitt Romney responds to Kyrsten Sinema not seeking Senate reelection](https://www.yahoo.com/news/mitt-romney-responds-kyrsten-sinema-211258961.html)
-- Mar 05 - [8-year-old died after flying from school slide 7 feet above ‘frozen’ ground, Utah suit says](https://www.yahoo.com/news/8-old-died-flying-school-205320411.html)
+- Mar 06 - [Sure, Nikki Haley is losing big on Super Tuesday. But warning signs for Trump are flashing.](https://www.yahoo.com/news/sure-nikki-haley-lost-big-012016637.html)
+- Mar 06 - [Fact Check: When Trump Was in  Office, US Job Growth Was Worst Since Great Depression. Let's Look at the Facts](https://www.yahoo.com/news/fact-check-trump-office-us-004000998.html)
+- Mar 06 - [Southwest Airlines’ New Seat Design for 2025 Sparks Outrage: ‘We Are Getting Lawn Chairs’](https://www.yahoo.com/entertainment/southwest-airlines-seat-design-2025-002731696.html)
+- Mar 06 - [Trump lawyers want him back on witness stand in E. Jean Carroll case](https://www.yahoo.com/news/trump-lawyers-want-him-back-001556921.html)
+- Mar 05 - [Kentucky Senate passes bill to grant the right to collect child support for unborn children](https://www.yahoo.com/news/kentucky-senate-passes-bill-allowing-231941217.html)
 <!-- feed end -->
 
 ### Onstream
