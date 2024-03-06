@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [A man deliberately got 217 Covid shots. Here’s what happened](https://www.yahoo.com/lifestyle/man-deliberately-got-217-covid-111127225.html)
-- Mar 06 - [Zelensky and Mitsotakis Mark Attack That Killed Odesa Children](https://www.yahoo.com/news/zelensky-mitsotakis-mark-attack-killed-155301977.html)
+- Mar 06 - [Greene tells reporter to ‘f‑‑‑ off’ after question about Jewish space lasers](https://www.yahoo.com/news/greene-tells-reporter-f-off-170945226.html)
 - Mar 06 - [Missile explodes near Ukrainian President Volodymyr Zelenskyy's meeting with Greek prime minister: Sources](https://www.yahoo.com/news/missile-explodes-near-ukrainian-president-152239495.html)
+- Mar 06 - [Father of missing 13-year-old girl finds unnerving clue by dumpster, Texas police say](https://www.yahoo.com/news/father-missing-13-old-girl-165547365.html)
+- Mar 06 - [A man deliberately got 217 Covid shots. Here’s what happened](https://www.yahoo.com/lifestyle/man-deliberately-got-217-covid-111127225.html)
 - Mar 06 - [15 promises Donald Trump has made so far in his campaign for a second term](https://www.yahoo.com/news/15-promises-donald-trump-made-151203126.html)
-- Mar 06 - [Georgia Man Beats Teen Unconcious After Road Rage Incident, Threatens To Sexually Assault Teenage Sister Passenger](https://www.yahoo.com/news/georgia-man-beats-teen-unconcious-150901288.html)
 <!-- feed end -->
 
 ### Onstream
