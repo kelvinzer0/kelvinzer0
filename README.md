@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 06 - [Black couple rented to a Chinese American family when nobody would. Now, they're donating $5M to Black community.](https://www.yahoo.com/news/black-couple-rented-chinese-american-202616601.html)
+- Mar 06 - [She had 80% of her stomach removed because of cancer. Here's what she wants you to know](https://www.yahoo.com/news/she-had-80-of-her-stomach-removed-because-of-cancer-heres-what-she-wants-you-to-know-120052918.html)
+- Mar 06 - [Mourners honor Liza who fled Belarus to Warsaw for a new life but was raped and died in a hospital](https://www.yahoo.com/news/mourners-honor-liza-fled-belarus-195340929.html)
 - Mar 06 - [Bernie Sanders Gives 3-Word Reply When Asked If He'll Miss Kyrsten Sinema](https://www.yahoo.com/entertainment/bernie-sanders-gives-3-word-184441827.html)
 - Mar 06 - [Who do voters want as Trump’s vice president? Poll reveals some surprising choices](https://www.yahoo.com/news/voters-want-trump-vice-president-183454493.html)
-- Mar 06 - [Man who crashed snowmobile into Black Hawk sues government for $9.5M](https://www.yahoo.com/news/man-crashed-snowmobile-black-hawk-180724607.html)
-- Mar 06 - [Texas sheriff who was under scrutiny following mass shooting loses reelection bid](https://www.yahoo.com/news/texas-sheriff-under-scrutiny-following-175047915.html)
-- Mar 06 - [NASA Concerned as Voyager 1 Sending Back Incomprehensible Code](https://www.yahoo.com/news/nasa-concerned-voyager-1-sending-173015693.html)
 <!-- feed end -->
 
 ### Onstream
