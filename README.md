@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 06 - [A man deliberately got 217 Covid shots. Here’s what happened](https://www.yahoo.com/lifestyle/man-deliberately-got-217-covid-111127225.html)
+- Mar 06 - ['McDonald’s is becoming a luxury': This Orlando man asks if Americans are living through a middle-class 'takeover' — warns even fast food costs are drowning people. Does he have real beef?](https://finance.yahoo.com/news/mcdonald-becoming-luxury-orlando-man-110400052.html)
+- Mar 06 - ['Oh, Come On!': Jordan Klepper Stunned By Haley Voters' Admissions On Trump](https://www.yahoo.com/entertainment/oh-come-jordan-klepper-stunned-105349204.html)
+- Mar 06 - ['Dismay and disbelief': What US allies are saying about the chance of another Trump presidency](https://www.yahoo.com/news/dismay-disbelief-us-allies-saying-103314538.html)
 - Mar 06 - [Who is Jason Palmer, the Democrat who delivered Biden his first primary defeat?](https://www.yahoo.com/news/jason-palmer-democrat-delivered-biden-044211006.html)
-- Mar 06 - [Rachel Maddow Cuts Into Donald Trump's Super Tuesday Speech Lies With 2 Scathing Words](https://www.yahoo.com/news/rachel-maddow-cuts-donald-trumps-070855256.html)
-- Mar 06 - [Inside Europe's drive to get ammunition to Ukraine as Russia advances](https://www.yahoo.com/news/inside-europes-drive-ammunition-ukraine-060638643.html)
-- Mar 06 - [The Next Governor of North Carolina Could Be a Holocaust Denier Who Hates Pretty Much Everybody](https://www.yahoo.com/news/next-governor-north-carolina-could-060324174.html)
-- Mar 06 - [Hostage crisis poses dilemma for Israel and offers a path to victory for Hamas](https://www.yahoo.com/news/hostage-crisis-poses-dilemma-israel-050405289.html)
 <!-- feed end -->
 
 ### Onstream
