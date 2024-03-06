@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 06 - [Bernie Sanders Gives 3-Word Reply When Asked If He'll Miss Kyrsten Sinema](https://www.yahoo.com/entertainment/bernie-sanders-gives-3-word-184441827.html)
+- Mar 06 - [Man who crashed snowmobile into Black Hawk sues government for $9.5M](https://www.yahoo.com/news/man-crashed-snowmobile-black-hawk-180724607.html)
+- Mar 06 - [With police absent in Gaza, vigilante groups arrive on the streets](https://www.yahoo.com/news/police-absent-gaza-vigilante-groups-175649410.html)
 - Mar 06 - [Greene tells reporter to ‘f‑‑‑ off’ after question about Jewish space lasers](https://www.yahoo.com/news/greene-tells-reporter-f-off-170945226.html)
-- Mar 06 - [Missile explodes near Ukrainian President Volodymyr Zelenskyy's meeting with Greek prime minister: Sources](https://www.yahoo.com/news/missile-explodes-near-ukrainian-president-152239495.html)
 - Mar 06 - [Father of missing 13-year-old girl finds unnerving clue by dumpster, Texas police say](https://www.yahoo.com/news/father-missing-13-old-girl-165547365.html)
-- Mar 06 - [A man deliberately got 217 Covid shots. Here’s what happened](https://www.yahoo.com/lifestyle/man-deliberately-got-217-covid-111127225.html)
-- Mar 06 - [15 promises Donald Trump has made so far in his campaign for a second term](https://www.yahoo.com/news/15-promises-donald-trump-made-151203126.html)
 <!-- feed end -->
 
 ### Onstream
