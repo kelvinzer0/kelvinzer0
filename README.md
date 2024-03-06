@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 06 - [Bernie Sanders Gives 3-Word Reply When Asked If He'll Miss Kyrsten Sinema](https://www.yahoo.com/entertainment/bernie-sanders-gives-3-word-184441827.html)
+- Mar 06 - [Who do voters want as Trump’s vice president? Poll reveals some surprising choices](https://www.yahoo.com/news/voters-want-trump-vice-president-183454493.html)
 - Mar 06 - [Man who crashed snowmobile into Black Hawk sues government for $9.5M](https://www.yahoo.com/news/man-crashed-snowmobile-black-hawk-180724607.html)
-- Mar 06 - [With police absent in Gaza, vigilante groups arrive on the streets](https://www.yahoo.com/news/police-absent-gaza-vigilante-groups-175649410.html)
-- Mar 06 - [Greene tells reporter to ‘f‑‑‑ off’ after question about Jewish space lasers](https://www.yahoo.com/news/greene-tells-reporter-f-off-170945226.html)
-- Mar 06 - [Father of missing 13-year-old girl finds unnerving clue by dumpster, Texas police say](https://www.yahoo.com/news/father-missing-13-old-girl-165547365.html)
+- Mar 06 - [Texas sheriff who was under scrutiny following mass shooting loses reelection bid](https://www.yahoo.com/news/texas-sheriff-under-scrutiny-following-175047915.html)
+- Mar 06 - [NASA Concerned as Voyager 1 Sending Back Incomprehensible Code](https://www.yahoo.com/news/nasa-concerned-voyager-1-sending-173015693.html)
 <!-- feed end -->
 
 ### Onstream
