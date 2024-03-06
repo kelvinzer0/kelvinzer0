@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 06 - [The weirdest thing about a Trump vs. Biden rematch](https://www.yahoo.com/news/weirdest-thing-trump-vs-biden-215758575.html)
+- Mar 06 - [Amid Louisiana's crawfish shortage, governor issues disaster declaration](https://www.yahoo.com/news/amid-louisianas-crawfish-shortage-governor-203611088.html)
 - Mar 06 - [Black couple rented to a Chinese American family when nobody would. Now, they're donating $5M to Black community.](https://www.yahoo.com/news/black-couple-rented-chinese-american-202616601.html)
 - Mar 06 - [She had 80% of her stomach removed because of cancer. Here's what she wants you to know](https://www.yahoo.com/news/she-had-80-of-her-stomach-removed-because-of-cancer-heres-what-she-wants-you-to-know-120052918.html)
-- Mar 06 - [Mourners honor Liza who fled Belarus to Warsaw for a new life but was raped and died in a hospital](https://www.yahoo.com/news/mourners-honor-liza-fled-belarus-195340929.html)
-- Mar 06 - [Bernie Sanders Gives 3-Word Reply When Asked If He'll Miss Kyrsten Sinema](https://www.yahoo.com/entertainment/bernie-sanders-gives-3-word-184441827.html)
-- Mar 06 - [Who do voters want as Trump’s vice president? Poll reveals some surprising choices](https://www.yahoo.com/news/voters-want-trump-vice-president-183454493.html)
+- Mar 06 - [Mourners honor woman who was raped and killed in Poland's capital after fleeing Belarus](https://www.yahoo.com/news/mourners-honor-liza-fled-belarus-195340929.html)
 <!-- feed end -->
 
 ### Onstream
