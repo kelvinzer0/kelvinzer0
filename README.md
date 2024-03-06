@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [The weirdest thing about a Trump vs. Biden rematch](https://www.yahoo.com/news/weirdest-thing-trump-vs-biden-215758575.html)
+- Mar 06 - [North Carolina schools chief loses primary to home-schooling parent critical of 'radical agendas'](https://www.yahoo.com/news/north-carolina-schools-chief-loses-222351525.html)
+- Mar 06 - [Lawyer behind effort to remove Fani Willis from Georgia Trump case testifies before state lawmakers](https://www.yahoo.com/news/lawyer-behind-effort-remove-fani-221359301.html)
+- Mar 06 - [North Korea leader Kim Jong Un orders heightened war preparations, KCNA says](https://www.yahoo.com/news/north-korea-leader-kim-jong-220516768.html)
+- Mar 06 - [Missing 3-Year-Old Found Wearing Only a Diaper](https://www.yahoo.com/news/missing-3-old-found-wearing-211058766.html)
 - Mar 06 - [Amid Louisiana's crawfish shortage, governor issues disaster declaration](https://www.yahoo.com/news/amid-louisianas-crawfish-shortage-governor-203611088.html)
-- Mar 06 - [Black couple rented to a Chinese American family when nobody would. Now, they're donating $5M to Black community.](https://www.yahoo.com/news/black-couple-rented-chinese-american-202616601.html)
-- Mar 06 - [She had 80% of her stomach removed because of cancer. Here's what she wants you to know](https://www.yahoo.com/news/she-had-80-of-her-stomach-removed-because-of-cancer-heres-what-she-wants-you-to-know-120052918.html)
-- Mar 06 - [Mourners honor woman who was raped and killed in Poland's capital after fleeing Belarus](https://www.yahoo.com/news/mourners-honor-liza-fled-belarus-195340929.html)
 <!-- feed end -->
 
 ### Onstream
