@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 06 - [Garrison Brown, son of 'Sister Wives' stars Janelle and Kody Brown, dead at 25](https://www.yahoo.com/news/garrison-brown-son-sister-wives-031137347.html)
+- Mar 06 - [She voted for Trump twice. Hear why she doesn’t want to do it again](https://www.yahoo.com/news/hear-haley-supporters-dreading-biden-021920580.html)
 - Mar 06 - [Sure, Nikki Haley lost big on Super Tuesday. But warning signs for Trump are flashing.](https://www.yahoo.com/news/sure-nikki-haley-lost-big-012016637.html)
-- Mar 06 - [Thousands of voters in Alabama district drawn to boost Black political power got wrong information](https://www.yahoo.com/news/thousands-voters-alabama-district-drawn-011013971.html)
+- Mar 06 - [Whale that vanished from Atlantic over 200 years ago spotted off Massachusetts: 'Shouldn't exist'](https://www.yahoo.com/news/whale-vanished-atlantic-over-200-004447378.html)
 - Mar 06 - [Fact Check: When Trump Was in  Office, US Job Growth Was Worst Since Great Depression. Let's Look at the Facts](https://www.yahoo.com/news/fact-check-trump-office-us-004000998.html)
-- Mar 06 - [Southwest Airlines’ New Seat Design for 2025 Sparks Outrage: ‘We Are Getting Lawn Chairs’](https://www.yahoo.com/entertainment/southwest-airlines-seat-design-2025-002731696.html)
-- Mar 05 - [Kentucky Senate passes bill to grant the right to collect child support for unborn children](https://www.yahoo.com/news/kentucky-senate-passes-bill-allowing-231941217.html)
 <!-- feed end -->
 
 ### Onstream
