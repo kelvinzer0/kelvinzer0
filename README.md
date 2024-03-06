@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Sure, Nikki Haley is losing big on Super Tuesday. But warning signs for Trump are flashing.](https://www.yahoo.com/news/sure-nikki-haley-lost-big-012016637.html)
+- Mar 06 - [Sure, Nikki Haley lost big on Super Tuesday. But warning signs for Trump are flashing.](https://www.yahoo.com/news/sure-nikki-haley-lost-big-012016637.html)
+- Mar 06 - [Thousands of voters in Alabama district drawn to boost Black political power got wrong information](https://www.yahoo.com/news/thousands-voters-alabama-district-drawn-011013971.html)
 - Mar 06 - [Fact Check: When Trump Was in  Office, US Job Growth Was Worst Since Great Depression. Let's Look at the Facts](https://www.yahoo.com/news/fact-check-trump-office-us-004000998.html)
 - Mar 06 - [Southwest Airlines’ New Seat Design for 2025 Sparks Outrage: ‘We Are Getting Lawn Chairs’](https://www.yahoo.com/entertainment/southwest-airlines-seat-design-2025-002731696.html)
-- Mar 06 - [Trump lawyers want him back on witness stand in E. Jean Carroll case](https://www.yahoo.com/news/trump-lawyers-want-him-back-001556921.html)
 - Mar 05 - [Kentucky Senate passes bill to grant the right to collect child support for unborn children](https://www.yahoo.com/news/kentucky-senate-passes-bill-allowing-231941217.html)
 <!-- feed end -->
 
