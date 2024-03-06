@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 06 - [Mass. lawyer who crashed snowmobile into parked Black Hawk helicopter suing government for $9.5M](https://www.yahoo.com/news/man-crashed-snowmobile-parked-black-105140027.html)
 - Mar 06 - [A man deliberately got 217 Covid shots. Here’s what happened](https://www.yahoo.com/lifestyle/man-deliberately-got-217-covid-111127225.html)
 - Mar 06 - ['McDonald’s is becoming a luxury': This Orlando man asks if Americans are living through a middle-class 'takeover' — warns even fast food costs are drowning people. Does he have real beef?](https://finance.yahoo.com/news/mcdonald-becoming-luxury-orlando-man-110400052.html)
-- Mar 06 - [FKA Twigs, Calvin Klein Ruling Reversed by U.K. Advertising Standards Authority](https://www.yahoo.com/lifestyle/fka-twigs-calvin-klein-ruling-105516182.html)
+- Mar 06 - [FKA Twigs’ Partially Nude Calvin Klein Ads Ruled ‘Not Sexually Explicit’ By U.K. Advertising Standards Authority](https://www.yahoo.com/lifestyle/fka-twigs-calvin-klein-ruling-105516182.html)
 <!-- feed end -->
 
 ### Onstream
