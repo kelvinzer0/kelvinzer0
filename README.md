@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 06 - [Mark Cuban says he's not voting for Donald Trump because he doesn't want 'a snake oil salesperson as President'](https://www.yahoo.com/news/mark-cuban-says-hes-not-031610825.html)
 - Mar 06 - [Garrison Brown, son of 'Sister Wives' stars Janelle and Kody Brown, dead at 25](https://www.yahoo.com/news/garrison-brown-son-sister-wives-031137347.html)
 - Mar 06 - [She voted for Trump twice. Hear why she doesn’t want to do it again](https://www.yahoo.com/news/hear-haley-supporters-dreading-biden-021920580.html)
-- Mar 06 - [Sure, Nikki Haley lost big on Super Tuesday. But warning signs for Trump are flashing.](https://www.yahoo.com/news/sure-nikki-haley-lost-big-012016637.html)
 - Mar 06 - [Whale that vanished from Atlantic over 200 years ago spotted off Massachusetts: 'Shouldn't exist'](https://www.yahoo.com/news/whale-vanished-atlantic-over-200-004447378.html)
 - Mar 06 - [Fact Check: When Trump Was in  Office, US Job Growth Was Worst Since Great Depression. Let's Look at the Facts](https://www.yahoo.com/news/fact-check-trump-office-us-004000998.html)
 <!-- feed end -->
