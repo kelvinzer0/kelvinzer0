@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 06 - [Trump Fan Says Quiet Part Out Very, Very Loud With Disgusting Anti-Haley Comment](https://www.yahoo.com/news/trump-fan-says-quiet-part-122650504.html)
-- Mar 06 - [Mass. lawyer who crashed snowmobile into parked Black Hawk helicopter suing government for $9.5M](https://www.yahoo.com/news/man-crashed-snowmobile-parked-black-105140027.html)
-- Mar 06 - [A man deliberately got 217 Covid shots. Here’s what happened](https://www.yahoo.com/lifestyle/man-deliberately-got-217-covid-111127225.html)
-- Mar 06 - ['McDonald’s is becoming a luxury': This Orlando man asks if Americans are living through a middle-class 'takeover' — warns even fast food costs are drowning people. Does he have real beef?](https://finance.yahoo.com/news/mcdonald-becoming-luxury-orlando-man-110400052.html)
-- Mar 06 - [FKA Twigs’ Partially Nude Calvin Klein Ads Ruled ‘Not Sexually Explicit’ By U.K. Advertising Standards Authority](https://www.yahoo.com/lifestyle/fka-twigs-calvin-klein-ruling-105516182.html)
+- Mar 06 - [Ukraine hits behind frontlines as Odesa blasts rock Greek PM visit](https://www.yahoo.com/news/ukraine-hits-behind-frontlines-odesa-154721419.html)
+- Mar 06 - [McConnell endorses Trump for president. He once blamed Trump for 'disgraceful' Jan. 6, 2021, attack](https://www.yahoo.com/news/mcconnell-endorses-trump-president-once-153523835.html)
+- Mar 06 - [Missile explodes near Ukrainian President Volodymyr Zelenskyy's meeting with Greek prime minister: Sources](https://www.yahoo.com/news/missile-explodes-near-ukrainian-president-152239495.html)
+- Mar 06 - [Prosecutors drop charges midtrial against 3 accused of possessing stolen 'Hotel California' lyrics](https://www.yahoo.com/news/prosecutors-drop-charges-midtrial-against-150844769.html)
+- Mar 06 - [Las Vegas' Bellagio pauses fountain show when rare bird visits](https://www.yahoo.com/news/las-vegas-bellagio-pauses-fountain-145807630.html)
 <!-- feed end -->
 
 ### Onstream
