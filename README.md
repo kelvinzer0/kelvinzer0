@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 07 - [Steve Bannon’s Refusal to Pay His Bills Is Costing Him Big](https://www.yahoo.com/news/steve-bannon-refusal-pay-bills-093110693.html)
+- Mar 07 - [Elon Musk is lashing out at MacKenzie Scott, Jeff Bezos' ex, for donating billions to charities for women and minorities](https://www.yahoo.com/tech/elon-musk-lashing-mackenzie-scott-091605822.html)
 - Mar 07 - [China coast guard flexes its might against the Philippines in disputed waters as journalists watch](https://www.yahoo.com/news/china-flexes-military-might-against-053758822.html)
+- Mar 07 - [Mexico's most dangerous city for police refuses to give up or negotiate with cartels](https://www.yahoo.com/news/mexicos-most-dangerous-city-police-050233380.html)
 - Mar 07 - [Attorney leading effort to disqualify DA Fani Willis tells legislators how she uncovered allegations of misconduct](https://www.yahoo.com/news/attorney-leading-effort-disqualify-da-040013827.html)
-- Mar 07 - [Pennsylvania woman saw a bear jump a fence before it attacked and thought, 'This is it — I’m going to die'](https://www.yahoo.com/news/pennsylvania-woman-saw-bear-jump-013336924.html)
-- Mar 07 - [Doctors found tiny microplastics in people’s arteries. Their presence was tied to a higher risk of heart disease.](https://www.yahoo.com/news/doctors-found-tiny-microplastics-people-004015302.html)
 <!-- feed end -->
 
 ### Onstream
