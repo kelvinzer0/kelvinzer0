@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 07 - [Fact Check: Trump claims 325,000 migrants ‘were flown in from parts unknown’](https://www.yahoo.com/news/fact-check-trump-claims-325-181438367.html)
 - Mar 07 - [Images show North Korea sealing its border with China](https://www.yahoo.com/news/images-show-north-korea-sealing-165336945.html)
 - Mar 07 - [A girl went missing, seizing South Africa's attention. Now her mother is charged with selling her](https://www.yahoo.com/news/girl-went-missing-seizing-south-163922384.html)
 - Mar 07 - [Donald Trump told to pay six-figure costs of firm he sued](https://www.yahoo.com/news/donald-trump-told-pay-six-162129818.html)
 - Mar 07 - [Fulton County ethics board drops Fani Willis complaints from hearing](https://www.yahoo.com/news/fulton-county-ethics-board-drops-162055005.html)
-- Mar 07 - [Trump’s Favorite Doctor Has Been Lying About His Military Rank: Report](https://www.yahoo.com/news/trump-favorite-doctor-lying-military-161426154.html)
 <!-- feed end -->
 
 ### Onstream
