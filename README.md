@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 07 - [Images show North Korea sealing its border with China](https://www.yahoo.com/news/images-show-north-korea-sealing-165336945.html)
 - Mar 07 - [A girl went missing, seizing South Africa's attention. Now her mother is charged with selling her](https://www.yahoo.com/news/girl-went-missing-seizing-south-163922384.html)
+- Mar 07 - [Donald Trump told to pay six-figure costs of firm he sued](https://www.yahoo.com/news/donald-trump-told-pay-six-162129818.html)
+- Mar 07 - [Fulton County ethics board drops Fani Willis complaints from hearing](https://www.yahoo.com/news/fulton-county-ethics-board-drops-162055005.html)
 - Mar 07 - [Trump’s Favorite Doctor Has Been Lying About His Military Rank: Report](https://www.yahoo.com/news/trump-favorite-doctor-lying-military-161426154.html)
-- Mar 07 - [The one clever trick Ukraine uses to shoot down Russian planes](https://www.yahoo.com/news/one-clever-trick-ukraine-uses-153023940.html)
-- Mar 07 - [Southwest defends new seat redesign after social media backlash](https://www.yahoo.com/news/southwest-defends-seat-redesign-social-151946218.html)
-- Mar 07 - [Opinion: I’m a climate scientist. If you knew what I know, you’d be terrified too](https://www.yahoo.com/news/opinion-m-climate-scientist-knew-145632863.html)
 <!-- feed end -->
 
 ### Onstream
