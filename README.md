@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 07 - [Watch Police Hold Nothing Back To Chase Down A Cop Killer](https://www.yahoo.com/news/watch-police-hold-nothing-back-203000466.html)
 - Mar 07 - [Quick-thinking boy traps leopard to diffuse dangerous situation](https://sports.yahoo.com/quick-thinking-boy-traps-leopard-195603569.html)
 - Mar 07 - [A Prominent Republican Member Of Congress Asked A Really, Really Foolish Question, And Now Is Being Roasted For It](https://www.yahoo.com/lifestyle/prominent-republican-member-congress-asked-193241864.html)
-- Mar 07 - [Fact Check: Rumor Alleges There Will Be 2 Intermissions During Biden's State of the Union. Here's What This Is All About](https://www.yahoo.com/news/fact-check-rumor-alleges-2-190800999.html)
-- Mar 07 - [Rivian unveils smaller, less expensive EVs, hastens delivery plans](https://www.yahoo.com/tech/ev-maker-rivian-unveils-smaller-184751192.html)
-- Mar 07 - [Thousands of children are landing in the ER after ingesting melatonin without supervision](https://www.yahoo.com/lifestyle/thousands-children-landing-er-ingesting-184311759.html)
+- Mar 07 - [California mail carrier fights back after getting sucker punched, video shows](https://www.yahoo.com/news/california-mail-carrier-fights-back-193023323.html)
+- Mar 07 - [Rivian shows off smaller, less expensive EVs, hastens delivery plans](https://uk.finance.yahoo.com/news/ev-maker-rivian-unveils-smaller-184751192.html)
 <!-- feed end -->
 
 ### Onstream
