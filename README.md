@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 07 - [Indians killed in Ukraine were forced to fight for Russia, families say](https://www.yahoo.com/news/indians-killed-ukraine-were-forced-154348840.html)
+- Mar 07 - [Opinion: I’m a climate scientist. If you knew what I know, you’d be terrified too](https://www.yahoo.com/news/opinion-m-climate-scientist-knew-145632863.html)
 - Mar 07 - [Woman, 41, Who Died on Plane from Dominican Republic Seemed Healthy Before Flight, Says Friend](https://www.yahoo.com/entertainment/woman-41-died-plane-dominican-142608070.html)
 - Mar 07 - [Legal expert: Trump lawyer begging for “mercy” suggests he’s “having difficulty” coming up with bond](https://www.yahoo.com/news/legal-expert-trump-lawyer-begging-140527345.html)
 - Mar 07 - ['I was crying my eyes out': Ex-Google employee retired at age 40 on a Friday but regretted it by Monday. Why an early retirement might not be for you](https://finance.yahoo.com/news/crying-eyes-ex-google-employee-123400340.html)
-- Mar 07 - [‘Many engaged in tax evasion’: A new IRS plan targets high-income Americans who haven’t done this 1 simple thing in recent years — here's what you need to know](https://finance.yahoo.com/news/many-engaged-tax-evasion-irs-110600793.html)
-- Mar 07 - [Top official from China's Xinjiang says 'Sinicisation' of Islam 'inevitable'](https://www.yahoo.com/news/top-official-chinas-xinjiang-says-101554936.html)
 <!-- feed end -->
 
 ### Onstream
