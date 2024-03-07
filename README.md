@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [Watch Police Hold Nothing Back To Chase Down A Cop Killer](https://www.yahoo.com/news/watch-police-hold-nothing-back-203000466.html)
-- Mar 07 - [Quick-thinking boy traps leopard to diffuse dangerous situation](https://sports.yahoo.com/quick-thinking-boy-traps-leopard-195603569.html)
-- Mar 07 - [A Prominent Republican Member Of Congress Asked A Really, Really Foolish Question, And Now Is Being Roasted For It](https://www.yahoo.com/lifestyle/prominent-republican-member-congress-asked-193241864.html)
-- Mar 07 - [California mail carrier fights back after getting sucker punched, video shows](https://www.yahoo.com/news/california-mail-carrier-fights-back-193023323.html)
-- Mar 07 - [Rivian shows off smaller, less expensive EVs, hastens delivery plans](https://uk.finance.yahoo.com/news/ev-maker-rivian-unveils-smaller-184751192.html)
+- Mar 07 - [Democrats walk out of Kentucky hearing on legislation dealing with support for nonviable pregnancies](https://www.yahoo.com/news/democrats-walk-kentucky-hearing-legislation-220852558.html)
+- Mar 07 - [Rupert Murdoch engaged for 6th time at 92](https://www.yahoo.com/news/rupert-murdoch-engaged-6th-time-220747789.html)
+- Mar 07 - [Trump cannot delay enforcement of $83.3 million verdict in E. Jean Carroll case](https://www.yahoo.com/news/trump-cannot-delay-enforcing-83-220523294.html)
+- Mar 07 - [Woman dies after Brazilian butt lift procedure performed by Miami doctor who was not allowed to operate, lawsuit alleges](https://www.yahoo.com/news/woman-dies-brazilian-butt-lift-220513108.html)
+- Mar 07 - [How a Pregnant Texas Woman Caught Her Husband Drugging Her Drinks Trying to Induce an Abortion](https://www.yahoo.com/entertainment/pregnant-texas-woman-caught-her-215607758.html)
 <!-- feed end -->
 
 ### Onstream
