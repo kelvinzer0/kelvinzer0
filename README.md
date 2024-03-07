@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 07 - [Teacher Resigns After Viral Libs of TikTok Clip of Him Wearing Pink Dress in School](https://www.yahoo.com/news/teacher-resigns-viral-libs-tiktok-120233672.html)
 - Mar 07 - [‘Many engaged in tax evasion’: A new IRS plan targets high-income Americans who haven’t done this 1 simple thing in recent years — here's what you need to know](https://finance.yahoo.com/news/many-engaged-tax-evasion-irs-110600793.html)
-- Mar 07 - [Did the U.S. destroy a Venezuelan cargo jet in Miami? Feds won’t say, but Maduro is upset](https://www.yahoo.com/news/did-u-destroy-venezuelan-cargo-103000108.html)
 - Mar 07 - [Top official from China's Xinjiang says 'Sinicisation' of Islam 'inevitable'](https://www.yahoo.com/news/top-official-chinas-xinjiang-says-101554936.html)
+- Mar 07 - [Former Browns player’s business goes up in flames](https://www.yahoo.com/news/former-browns-player-business-goes-094818917.html)
 - Mar 07 - [Steve Bannon’s Refusal to Pay His Bills Is Costing Him Big](https://www.yahoo.com/news/steve-bannon-refusal-pay-bills-093110693.html)
-- Mar 07 - [Elon Musk is lashing out at MacKenzie Scott, Jeff Bezos' ex, for donating billions to charities for women and minorities](https://www.yahoo.com/tech/elon-musk-lashing-mackenzie-scott-091605822.html)
 <!-- feed end -->
 
 ### Onstream
