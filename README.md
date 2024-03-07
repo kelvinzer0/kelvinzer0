@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 06 - [North Carolina GOP Candidate Wants to ‘Go Back to the America Where Women Couldn’t Vote’](https://www.yahoo.com/entertainment/north-carolina-gop-candidate-wants-235049615.html)
+- Mar 06 - [‘Took my virginity’: A dramatic day as accuser describes abuse by gymnastics coach](https://www.yahoo.com/news/took-virginity-dramatic-day-accuser-230407221.html)
+- Mar 06 - [Fact Check: Rumor Suggests MTG Posted 'Atheists Are Using Satellites to Intercept Prayer to Jesus.' Here Are the Facts](https://www.yahoo.com/news/fact-check-rumor-suggests-mtg-224800758.html)
 - Mar 06 - [North Carolina schools chief loses primary to home-schooling parent critical of 'radical agendas'](https://www.yahoo.com/news/north-carolina-schools-chief-loses-222351525.html)
-- Mar 06 - [Lawyer behind effort to remove Fani Willis from Georgia Trump case testifies before state lawmakers](https://www.yahoo.com/news/lawyer-behind-effort-remove-fani-221359301.html)
-- Mar 06 - [North Korea leader Kim Jong Un orders heightened war preparations, KCNA says](https://www.yahoo.com/news/north-korea-leader-kim-jong-220516768.html)
-- Mar 06 - [Missing 3-Year-Old Found Wearing Only a Diaper](https://www.yahoo.com/news/missing-3-old-found-wearing-211058766.html)
-- Mar 06 - [Amid Louisiana's crawfish shortage, governor issues disaster declaration](https://www.yahoo.com/news/amid-louisianas-crawfish-shortage-governor-203611088.html)
+- Mar 06 - [FDA warns consumers to stop using six brands of ground cinnamon found to have high levels of lead](https://www.yahoo.com/lifestyle/fda-warns-consumers-stop-using-222028078.html)
 <!-- feed end -->
 
 ### Onstream
