@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [Senior Russian officer warns Ukraine conflict could escalate into full-scale war in Europe](https://www.yahoo.com/news/senior-russian-officer-warns-ukraine-062105046.html)
-- Mar 07 - [Evidence of traumatic brain injury in shooter who killed 18 in deadliest shooting in Maine history](https://www.yahoo.com/news/evidence-traumatic-brain-injury-shooter-055215708.html)
 - Mar 07 - [Mexico's most dangerous city for police refuses to give up or negotiate with cartels](https://www.yahoo.com/news/mexicos-most-dangerous-city-police-050233380.html)
 - Mar 07 - [Attorney leading effort to disqualify DA Fani Willis tells legislators how she uncovered allegations of misconduct](https://www.yahoo.com/news/attorney-leading-effort-disqualify-da-040013827.html)
 - Mar 07 - [Pennsylvania woman saw a bear jump a fence before it attacked and thought, 'This is it — I’m going to die'](https://www.yahoo.com/news/pennsylvania-woman-saw-bear-jump-013336924.html)
+- Mar 07 - [Iditarod issues time penalty to Seavey for not properly gutting moose that he killed on the trail](https://sports.yahoo.com/iditarod-issues-time-penalty-seavey-010703331.html)
+- Mar 06 - [Fact Focus: Claims Biden administration is secretly flying migrants into the country are unfounded](https://www.yahoo.com/news/fact-focus-biden-falsely-accused-235631727.html)
 <!-- feed end -->
 
 ### Onstream
