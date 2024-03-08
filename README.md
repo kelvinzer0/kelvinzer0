@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 07 - [Donald Trump will get juror names at New York criminal trial but they'll be anonymous to the public](https://www.yahoo.com/news/donald-trump-juror-names-york-234329096.html)
+- Mar 08 - [New Orleans' mayor says she's not using coveted city apartment, but council orders locks changed](https://www.yahoo.com/news/orleans-mayor-says-shes-not-004700823.html)
 - Mar 07 - [Democrats walk out of Kentucky hearing on legislation dealing with support for nonviable pregnancies](https://www.yahoo.com/news/democrats-walk-kentucky-hearing-legislation-220852558.html)
-- Mar 07 - [Rupert Murdoch engaged for 6th time at 92](https://www.yahoo.com/news/rupert-murdoch-engaged-6th-time-220747789.html)
-- Mar 07 - [Woman dies after Brazilian butt lift procedure performed by Miami doctor who was not allowed to operate, lawsuit alleges](https://www.yahoo.com/news/woman-dies-brazilian-butt-lift-220513108.html)
+- Mar 07 - [Woman dies after Brazilian butt lift procedure performed by Miami doctor who wasn't allowed to operate, lawsuit alleges](https://www.yahoo.com/news/woman-dies-brazilian-butt-lift-220513108.html)
 - Mar 07 - [Melania Trump’s Former Aide Explains Why She Skipped Her Husband’s Super Tuesday Victory Party](https://www.yahoo.com/entertainment/melania-trump-former-aide-explains-220200048.html)
+- Mar 07 - [Former Browns player’s business goes up in flames](https://www.yahoo.com/news/former-browns-player-business-goes-094818917.html)
 <!-- feed end -->
 
 ### Onstream
