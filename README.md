@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 07 - [Donald Trump will get juror names at New York criminal trial but they'll be anonymous to the public](https://www.yahoo.com/news/donald-trump-juror-names-york-234329096.html)
 - Mar 07 - [Democrats walk out of Kentucky hearing on legislation dealing with support for nonviable pregnancies](https://www.yahoo.com/news/democrats-walk-kentucky-hearing-legislation-220852558.html)
 - Mar 07 - [Rupert Murdoch engaged for 6th time at 92](https://www.yahoo.com/news/rupert-murdoch-engaged-6th-time-220747789.html)
-- Mar 07 - [Trump cannot delay enforcement of $83.3 million verdict in E. Jean Carroll case](https://www.yahoo.com/news/trump-cannot-delay-enforcing-83-220523294.html)
 - Mar 07 - [Woman dies after Brazilian butt lift procedure performed by Miami doctor who was not allowed to operate, lawsuit alleges](https://www.yahoo.com/news/woman-dies-brazilian-butt-lift-220513108.html)
-- Mar 07 - [How a Pregnant Texas Woman Caught Her Husband Drugging Her Drinks Trying to Induce an Abortion](https://www.yahoo.com/entertainment/pregnant-texas-woman-caught-her-215607758.html)
+- Mar 07 - [Melania Trump’s Former Aide Explains Why She Skipped Her Husband’s Super Tuesday Victory Party](https://www.yahoo.com/entertainment/melania-trump-former-aide-explains-220200048.html)
 <!-- feed end -->
 
 ### Onstream
