@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 08 - [Road Rage Doesn’t End Well For Ford Escape](https://www.yahoo.com/news/road-rage-doesn-t-end-190000389.html)
+- Mar 08 - [Driver pleads guilty to reduced charge in Vermont crash that killed actor Treat Williams](https://www.yahoo.com/news/driver-pleads-guilty-reduced-charge-181258836.html)
 - Mar 08 - [United Airlines plane rolls off runway in Houston](https://www.yahoo.com/news/oops-united-airlines-plane-rolls-170329252.html)
-- Mar 08 - [Israeli forces stop Palestinians from entering Al-Aqsa](https://www.yahoo.com/news/israeli-forces-stop-palestinians-entering-164757001.html)
 - Mar 08 - [Biden in a hot mic moment shows his growing frustration with Netanyahu over Gaza humanitarian crisis](https://www.yahoo.com/news/biden-hot-mic-moment-shows-164505722.html)
 - Mar 08 - [Jackson Mahomes, brother of KC Chiefs quarterback, sentenced to probation in assault case](https://www.yahoo.com/news/brother-kc-chiefs-quarterback-patrick-154957143.html)
-- Mar 08 - [Biden's reaction to Rep. Marjorie Taylor Greene's MAGA garb at SOTU goes viral](https://www.yahoo.com/news/bidens-reaction-rep-marjorie-taylor-150139785.html)
 <!-- feed end -->
 
 ### Onstream
