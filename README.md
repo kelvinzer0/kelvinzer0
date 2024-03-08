@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 08 - ['We've lost our minds': Ben Carson slams squatter's rights after New York family home taken over — warns America will be 'destroyed from within' if law-abiding citizens aren't protected](https://finance.yahoo.com/news/weve-lost-minds-ben-carson-114400583.html)
 - Mar 08 - [‘Contemplating bankruptcy': This Florida woman had $500K in the bank and a mortgage-free home. Now she’s broke — thanks to her husband — and joining a surge of Americans facing bankruptcy](https://finance.yahoo.com/news/m-contemplating-bankruptcy-florida-woman-110300154.html)
-- Mar 08 - [Sean Hannity Deploys New Nickname For Joe Biden And Democrats Actually Love It](https://www.yahoo.com/news/sean-hannity-deploys-nickname-joe-100746088.html)
+- Mar 08 - [Ex-undersheriff admits to having alleged deputy gang tattoo — then getting rid of it](https://www.yahoo.com/news/ex-undersheriff-admits-having-alleged-110011639.html)
+- Mar 08 - [Did Biden pass or fail? Former presidential speechwriters grade the State of the Union address](https://www.yahoo.com/news/did-biden-pass-fail-former-090724931.html)
 - Mar 08 - [Malaysia Airlines flight mystery: Former NTSB investigator introduces new theory about missing plane](https://www.yahoo.com/news/malaysia-airlines-flight-mystery-former-090002907.html)
-- Mar 08 - [Mike Johnson Had 1 Extremely Awkward Question For Kamala Harris](https://www.yahoo.com/news/mike-johnson-had-1-extremely-083834815.html)
 <!-- feed end -->
 
 ### Onstream
