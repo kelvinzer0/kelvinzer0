@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 08 - [EU says Gaza to get aid by sea as airdrop ends in deaths](https://www.yahoo.com/news/eu-says-gaza-aid-sea-204536229.html)
+- Mar 08 - [35 Jokes About The State Of The Union That Are Way, Way Funnier Than They Should Be](https://www.yahoo.com/lifestyle/35-jokes-state-union-way-200944760.html)
+- Mar 08 - [Biden predicts "come to Jesus" meeting with Netanyahu over Gaza aid](https://www.yahoo.com/news/biden-predicts-come-jesus-meeting-200759768.html)
 - Mar 08 - [Road Rage Doesn’t End Well For Ford Escape](https://www.yahoo.com/news/road-rage-doesn-t-end-190000389.html)
-- Mar 08 - [Driver pleads guilty to reduced charge in Vermont crash that killed actor Treat Williams](https://www.yahoo.com/news/driver-pleads-guilty-reduced-charge-181258836.html)
-- Mar 08 - [United Airlines plane rolls off runway in Houston](https://www.yahoo.com/news/oops-united-airlines-plane-rolls-170329252.html)
-- Mar 08 - [Biden in a hot mic moment shows his growing frustration with Netanyahu over Gaza humanitarian crisis](https://www.yahoo.com/news/biden-hot-mic-moment-shows-164505722.html)
-- Mar 08 - [Jackson Mahomes, brother of KC Chiefs quarterback, sentenced to probation in assault case](https://www.yahoo.com/news/brother-kc-chiefs-quarterback-patrick-154957143.html)
+- Mar 08 - [Behind-the-scenes of AP photographer's experience covering violence against women in Haiti](https://www.yahoo.com/news/behind-scenes-ap-photographers-experience-184040624.html)
 <!-- feed end -->
 
 ### Onstream
