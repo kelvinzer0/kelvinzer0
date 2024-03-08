@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 08 - [Activist slashes painting of Arthur Balfour over 1917 declaration](https://www.yahoo.com/news/activist-slashes-painting-arthur-balfour-224820656.html)
+- Mar 08 - [Family of an Indiana mom who died on a plane are still dealing with 'uncertainty'](https://www.yahoo.com/news/family-indiana-mom-died-plane-222159544.html)
+- Mar 08 - [Day care worker ‘savagely’ beats toddler, causing paralysis, lawyers say. Parents sue](https://www.yahoo.com/news/day-care-worker-savagely-beats-220321690.html)
 - Mar 08 - [Texas mom ‘relieved’ to resolve case of helping son flee to Mexico after fatal DWI crash](https://www.yahoo.com/news/texas-mom-relieved-resolve-case-211708067.html)
-- Mar 08 - [EU says Gaza to get aid by sea as airdrop ends in deaths](https://www.yahoo.com/news/eu-says-gaza-aid-sea-204536229.html)
 - Mar 08 - [Footage of Workers Unexpectedly Trapped with Silverback Gorilla in Enclosure Goes Viral as Zoo Responds](https://www.yahoo.com/entertainment/footage-workers-unexpectedly-trapped-silverback-202000241.html)
-- Mar 08 - [‘Is that a UFO?’ Oklahoma family spot bizarre other-worldly sighting in night sky](https://www.yahoo.com/news/ufo-oklahoma-family-spot-bizarre-201111368.html)
-- Mar 08 - [Even If You Hate Politics, You'll Probably Laugh At These 35 Jokes About The State Of The Union](https://www.yahoo.com/lifestyle/35-jokes-state-union-way-200944760.html)
 <!-- feed end -->
 
 ### Onstream
