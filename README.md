@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [New Orleans' mayor says she's not using coveted city apartment, but council orders locks changed](https://www.yahoo.com/news/orleans-mayor-says-shes-not-004700823.html)
-- Mar 07 - [Democrats walk out of Kentucky hearing on legislation dealing with support for nonviable pregnancies](https://www.yahoo.com/news/democrats-walk-kentucky-hearing-legislation-220852558.html)
-- Mar 07 - [Woman dies after Brazilian butt lift procedure performed by Miami doctor who wasn't allowed to operate, lawsuit alleges](https://www.yahoo.com/news/woman-dies-brazilian-butt-lift-220513108.html)
-- Mar 07 - [Melania Trump’s Former Aide Explains Why She Skipped Her Husband’s Super Tuesday Victory Party](https://www.yahoo.com/entertainment/melania-trump-former-aide-explains-220200048.html)
-- Mar 07 - [Former Browns player’s business goes up in flames](https://www.yahoo.com/news/former-browns-player-business-goes-094818917.html)
+- Mar 08 - [Biden old and frail? Nope. President delivers fiery State of the Union his campaign needed.](https://www.yahoo.com/news/biden-old-frail-nope-president-035506027.html)
+- Mar 08 - [State of the Union: Biden calls for 'fundamental fairness' in tax code](https://www.yahoo.com/news/state-union-biden-calls-fundamental-033618505.html)
+- Mar 08 - [Marjorie Taylor Greene Breaks House Rules to Wear MAGA Hat at State of the Union](https://www.yahoo.com/news/marjorie-taylor-greene-breaks-house-031820116.html)
+- Mar 08 - [Joe Rogan Guest Arrested After Discovery of Headless Torso in NYC: Cops](https://www.yahoo.com/news/joe-rogan-guest-arrested-discovery-030126032.html)
+- Mar 08 - [Indicted Serial Liar George Santos Announces New Run for Congress During State of the Union](https://www.yahoo.com/news/indicted-serial-liar-george-santos-025119106.html)
 <!-- feed end -->
 
 ### Onstream
