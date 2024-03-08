@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [Trump posts $91.6m bond to appeal E Jean Carroll defamation verdict](https://www.yahoo.com/news/trump-posts-91-6m-bond-160459981.html)
-- Mar 08 - [The brother of KC Chiefs quarterback Patrick Mahomes is sentenced to probation in assault case](https://www.yahoo.com/news/brother-kc-chiefs-quarterback-patrick-154957143.html)
+- Mar 08 - [United Airlines plane rolls off runway in Houston](https://www.yahoo.com/news/oops-united-airlines-plane-rolls-170329252.html)
+- Mar 08 - [Biden in a hot mic moment shows his growing frustration with Netanyahu over Gaza humanitarian crisis](https://www.yahoo.com/news/biden-hot-mic-moment-shows-164505722.html)
+- Mar 08 - [Jackson Mahomes, brother of KC Chiefs quarterback, sentenced to probation in assault case](https://www.yahoo.com/news/brother-kc-chiefs-quarterback-patrick-154957143.html)
 - Mar 08 - [Biden's reaction to Rep. Marjorie Taylor Greene's MAGA garb at SOTU goes viral](https://www.yahoo.com/news/bidens-reaction-rep-marjorie-taylor-150139785.html)
 - Mar 08 - [U.S. warns of imminent Moscow attack by 'extremists,' urges citizens to avoid crowds](https://www.yahoo.com/news/u-warns-imminent-moscow-attack-123508141.html)
-- Mar 08 - ['We've lost our minds': Ben Carson slams squatter's rights after New York family home taken over — warns America will be 'destroyed from within' if law-abiding citizens aren't protected](https://finance.yahoo.com/news/weve-lost-minds-ben-carson-114400583.html)
 <!-- feed end -->
 
 ### Onstream
