@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 08 - [Texas mom ‘relieved’ to resolve case of helping son flee to Mexico after fatal DWI crash](https://www.yahoo.com/news/texas-mom-relieved-resolve-case-211708067.html)
 - Mar 08 - [EU says Gaza to get aid by sea as airdrop ends in deaths](https://www.yahoo.com/news/eu-says-gaza-aid-sea-204536229.html)
-- Mar 08 - [35 Jokes About The State Of The Union That Are Way, Way Funnier Than They Should Be](https://www.yahoo.com/lifestyle/35-jokes-state-union-way-200944760.html)
-- Mar 08 - [Biden predicts "come to Jesus" meeting with Netanyahu over Gaza aid](https://www.yahoo.com/news/biden-predicts-come-jesus-meeting-200759768.html)
-- Mar 08 - [Road Rage Doesn’t End Well For Ford Escape](https://www.yahoo.com/news/road-rage-doesn-t-end-190000389.html)
-- Mar 08 - [Behind-the-scenes of AP photographer's experience covering violence against women in Haiti](https://www.yahoo.com/news/behind-scenes-ap-photographers-experience-184040624.html)
+- Mar 08 - [Footage of Workers Unexpectedly Trapped with Silverback Gorilla in Enclosure Goes Viral as Zoo Responds](https://www.yahoo.com/entertainment/footage-workers-unexpectedly-trapped-silverback-202000241.html)
+- Mar 08 - [‘Is that a UFO?’ Oklahoma family spot bizarre other-worldly sighting in night sky](https://www.yahoo.com/news/ufo-oklahoma-family-spot-bizarre-201111368.html)
+- Mar 08 - [Even If You Hate Politics, You'll Probably Laugh At These 35 Jokes About The State Of The Union](https://www.yahoo.com/lifestyle/35-jokes-state-union-way-200944760.html)
 <!-- feed end -->
 
 ### Onstream
