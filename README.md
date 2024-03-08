@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 08 - [Mike Johnson Had 1 Extremely Awkward Question For Kamala Harris](https://www.yahoo.com/news/mike-johnson-had-1-extremely-083834815.html)
+- Mar 08 - [Ex-Prosecutor Sums Up Trump Lawyer Alina Habba’s New Claim With 1 Brutal Word](https://www.yahoo.com/news/ex-prosecutor-sums-trump-lawyer-083824642.html)
 - Mar 08 - [Sean Hannity Has a New Nickname for Biden After SOTU Address](https://www.yahoo.com/entertainment/sean-hannity-nickname-biden-sotu-061246625.html)
 - Mar 08 - [‘What the Hell Am I Watching’: Republicans Torch Their Own SOTU Rebuttal](https://www.yahoo.com/news/hell-am-watching-republicans-torch-053820399.html)
 - Mar 08 - [Billionaires are Raging About Biden’s State of the Union Tax Proposals](https://www.yahoo.com/news/billionaires-raging-biden-state-union-053806264.html)
-- Mar 08 - [State of the Union: Gold Star dad whose son died during U.S. withdrawal from Afghanistan arrested for heckling Biden](https://www.yahoo.com/news/state-of-the-union-gold-star-dad-whose-son-died-during-us-withdrawal-from-afghanistan-arrested-for-heckling-biden-050919369.html)
-- Mar 08 - [Biden says her name — Laken Riley — at urging of GOP Rep. Marjorie Taylor Greene](https://www.yahoo.com/news/biden-says-her-name-laken-043150054.html)
 <!-- feed end -->
 
 ### Onstream
