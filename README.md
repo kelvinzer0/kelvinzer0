@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 08 - [Sean Hannity Has a New Nickname for Biden After SOTU Address](https://www.yahoo.com/entertainment/sean-hannity-nickname-biden-sotu-061246625.html)
 - Mar 08 - [‘What the Hell Am I Watching’: Republicans Torch Their Own SOTU Rebuttal](https://www.yahoo.com/news/hell-am-watching-republicans-torch-053820399.html)
-- Mar 08 - [Takeaways from Biden's State of the Union address: Combative attacks on a foe with no name](https://www.yahoo.com/news/takeaways-bidens-state-union-address-040845060.html)
-- Mar 08 - [Disaster for Trump as Truth Social Crashes at Critical SOTU Moment](https://www.yahoo.com/news/disaster-trump-truth-social-crashes-035702854.html)
-- Mar 08 - [Biden old and frail? Nope. President delivers fiery State of the Union his campaign needed](https://www.yahoo.com/news/biden-old-frail-nope-president-035506027.html)
-- Mar 08 - [Marjorie Taylor Greene Breaks House Rules to Wear MAGA Hat at State of the Union](https://www.yahoo.com/news/marjorie-taylor-greene-breaks-house-031820116.html)
+- Mar 08 - [Billionaires are Raging About Biden’s State of the Union Tax Proposals](https://www.yahoo.com/news/billionaires-raging-biden-state-union-053806264.html)
+- Mar 08 - [State of the Union: Gold Star dad whose son died during U.S. withdrawal from Afghanistan arrested for heckling Biden](https://www.yahoo.com/news/state-of-the-union-gold-star-dad-whose-son-died-during-us-withdrawal-from-afghanistan-arrested-for-heckling-biden-050919369.html)
+- Mar 08 - [Biden says her name — Laken Riley — at urging of GOP Rep. Marjorie Taylor Greene](https://www.yahoo.com/news/biden-says-her-name-laken-043150054.html)
 <!-- feed end -->
 
 ### Onstream
