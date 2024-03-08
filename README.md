@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 08 - [Biden old and frail? Nope. President delivers fiery State of the Union his campaign needed.](https://www.yahoo.com/news/biden-old-frail-nope-president-035506027.html)
-- Mar 08 - [State of the Union: Biden calls for 'fundamental fairness' in tax code](https://www.yahoo.com/news/state-union-biden-calls-fundamental-033618505.html)
-- Mar 08 - [Marjorie Taylor Greene Breaks House Rules to Wear MAGA Hat at State of the Union](https://www.yahoo.com/news/marjorie-taylor-greene-breaks-house-031820116.html)
-- Mar 08 - [Joe Rogan Guest Arrested After Discovery of Headless Torso in NYC: Cops](https://www.yahoo.com/news/joe-rogan-guest-arrested-discovery-030126032.html)
-- Mar 08 - [Indicted Serial Liar George Santos Announces New Run for Congress During State of the Union](https://www.yahoo.com/news/indicted-serial-liar-george-santos-025119106.html)
+- Mar 08 - [Sen. Katie Britt gives GOP response to Biden's SOTU speech: 'Bless his heart'](https://www.yahoo.com/news/sen-katie-britt-gives-gop-045224567.html)
+- Mar 08 - ['Nightmare': Sen. Katie Britt paints bleak picture of America in Republican response to Biden](https://www.yahoo.com/news/families-hurting-alabama-sen-katie-044526776.html)
+- Mar 08 - [Takeaways from Biden's State of the Union address: Combative attacks on a foe with no name](https://www.yahoo.com/news/takeaways-bidens-state-union-address-040845060.html)
+- Mar 08 - [Disaster for Trump as Truth Social Crashes at Critical SOTU Moment](https://www.yahoo.com/news/disaster-trump-truth-social-crashes-035702854.html)
+- Mar 08 - [Biden old and frail? Nope. President delivers fiery State of the Union his campaign needed](https://www.yahoo.com/news/biden-old-frail-nope-president-035506027.html)
 <!-- feed end -->
 
 ### Onstream
