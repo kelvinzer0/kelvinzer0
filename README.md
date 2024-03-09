@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 09 - [13-year-old has eureka moment with science project that suggests Archimedes’ invention was plausible](https://www.yahoo.com/news/middle-schooler-science-project-suggests-232414386.html)
+- Mar 09 - [Did State of the Union change how voters see Biden?](https://www.yahoo.com/news/did-state-union-change-voters-214935064.html)
 - Mar 08 - [A Palm Springs house sold for $1.3 million in 2023 after zero days on the market. It previously sold for $611,000 in 2021. How is that possible?](https://finance.yahoo.com/news/palm-springs-house-sold-1-051600340.html)
 - Mar 08 - ['God help her': Dramatic video shows zookeepers escape silverback gorilla in Fort Worth](https://www.yahoo.com/news/god-help-her-dramatic-video-231406838.html)
 - Mar 08 - [Activist slashes painting of Arthur Balfour over 1917 declaration](https://www.yahoo.com/news/activist-slashes-painting-arthur-balfour-224820656.html)
-- Mar 08 - [Family of an Indiana mom who died on a plane are still dealing with 'uncertainty'](https://www.yahoo.com/news/family-indiana-mom-died-plane-222159544.html)
-- Mar 08 - [Program that allows 30,000 migrants from 4 countries into the US each month upheld by judge](https://www.yahoo.com/news/program-allows-30-000-migrants-221523288.html)
 <!-- feed end -->
 
 ### Onstream
