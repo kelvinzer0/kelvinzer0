@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 09 - [Dead Ohio man's roommates drove body to withdraw money from his bank account, police say](https://www.yahoo.com/news/dead-ohio-mans-roommates-drove-053551135.html)
+- Mar 09 - [Journalist who covered Trump’s finances has theory about if Trump can pay legal penalties of $454M](https://www.yahoo.com/news/journalist-covered-trump-finances-theory-033113537.html)
 - Mar 09 - [Trump held ‘friendly’ meeting with Hungary’s Viktor Orbán at Mar-a-Lago and then took autocrat to a concert](https://www.yahoo.com/news/trump-held-friendly-meeting-hungary-032749073.html)
 - Mar 09 - [Tapper Rips Hannity’s SOTU Response: ‘Pick a Lane’](https://www.yahoo.com/entertainment/tapper-rips-hannity-sotu-response-020308524.html)
 - Mar 09 - [13-year-old has eureka moment with science project that suggests Archimedes’ invention was plausible](https://www.yahoo.com/news/middle-schooler-science-project-suggests-232414386.html)
-- Mar 09 - [Did State of the Union change how voters see Biden?](https://www.yahoo.com/news/did-state-union-change-voters-214935064.html)
-- Mar 08 - ['God help her': Dramatic video shows zookeepers escape silverback gorilla in Fort Worth](https://www.yahoo.com/news/god-help-her-dramatic-video-231406838.html)
 <!-- feed end -->
 
 ### Onstream
