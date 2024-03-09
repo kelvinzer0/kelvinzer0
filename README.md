@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [Exclusive: US prepared ‘rigorously’ for potential Russian nuclear strike in Ukraine in late 2022, officials say](https://www.yahoo.com/news/exclusive-us-prepared-rigorously-potential-070037128.html)
-- Mar 09 - [Dead Ohio man's roommates drove body to withdraw money from his bank account, police say](https://www.yahoo.com/news/dead-ohio-mans-roommates-drove-053551135.html)
-- Mar 09 - [Angela Chao may have died after accidentally putting her Tesla in reverse, a mistake she made before, WSJ reports](https://www.yahoo.com/news/angela-chao-may-died-accidentally-051505195.html)
-- Mar 09 - [Journalist who covered Trump’s finances has theory about if Trump can pay legal penalties of $454M](https://www.yahoo.com/news/journalist-covered-trump-finances-theory-033113537.html)
-- Mar 09 - [CDC warns of dangerous uptick in infections from flesh-eating bacteria in three states — officials say the cause 'is well-documented'](https://www.yahoo.com/news/cdc-warns-dangerous-uptick-infections-023000908.html)
+- Mar 09 - [He had a badge, his car had emergency lights, he pulled people over — but he wasn't a cop, authorities say](https://www.yahoo.com/news/had-badge-car-had-emergency-130029135.html)
+- Mar 09 - [Why it will be tough for Biden to defeat Trump](https://www.yahoo.com/news/why-tough-biden-defeat-trump-123037214.html)
+- Mar 09 - [Soldiers and civilians are dying as Mexican cartels embrace a terrifying new weapon: Land mines](https://www.yahoo.com/news/soldiers-civilians-dying-mexican-cartels-120051564.html)
+- Mar 09 - [I've done 150 burpees every day for the past 3 years. I started after a medical emergency that should have killed me.](https://www.yahoo.com/lifestyle/ive-done-150-burpees-every-113802143.html)
+- Mar 09 - [Out of options, Trump will pay $500M cash bond to appeal his NY fraud case, experts predict. Not paying will hurt even more.](https://www.yahoo.com/news/options-trump-pay-500m-cash-110001574.html)
 <!-- feed end -->
 
 ### Onstream
