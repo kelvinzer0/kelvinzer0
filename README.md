@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 09 - [‘Rust’ Armorer Reportedly Having A Difficult Time Behind Bars](https://www.yahoo.com/entertainment/rust-armorer-reportedly-having-difficult-140029945.html)
 - Mar 09 - [He had a badge, his car had emergency lights, he pulled people over — but he wasn't a cop, authorities say](https://www.yahoo.com/news/had-badge-car-had-emergency-130029135.html)
+- Mar 09 - [A surge of illegal homemade machine guns has helped fuel gun violence in the US](https://www.yahoo.com/news/surge-illegal-homemade-machine-guns-124905063.html)
 - Mar 09 - [Why it will be tough for Biden to defeat Trump](https://www.yahoo.com/news/why-tough-biden-defeat-trump-123037214.html)
 - Mar 09 - [Soldiers and civilians are dying as Mexican cartels embrace a terrifying new weapon: Land mines](https://www.yahoo.com/news/soldiers-civilians-dying-mexican-cartels-120051564.html)
-- Mar 09 - [I've done 150 burpees every day for the past 3 years. I started after a medical emergency that should have killed me.](https://www.yahoo.com/lifestyle/ive-done-150-burpees-every-113802143.html)
-- Mar 09 - [Out of options, Trump will pay $500M cash bond to appeal his NY fraud case, experts predict. Not paying will hurt even more.](https://www.yahoo.com/news/options-trump-pay-500m-cash-110001574.html)
 <!-- feed end -->
 
 ### Onstream
