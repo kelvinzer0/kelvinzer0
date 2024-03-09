@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 09 - [Poland's foreign minister says the presence of NATO troops in Ukraine is 'not unthinkable'](https://www.yahoo.com/news/polands-foreign-minister-says-presence-101703992.html)
 - Mar 09 - [Exclusive: US prepared ‘rigorously’ for potential Russian nuclear strike in Ukraine in late 2022, officials say](https://www.yahoo.com/news/exclusive-us-prepared-rigorously-potential-070037128.html)
 - Mar 09 - [Dead Ohio man's roommates drove body to withdraw money from his bank account, police say](https://www.yahoo.com/news/dead-ohio-mans-roommates-drove-053551135.html)
 - Mar 09 - [Angela Chao may have died after accidentally putting her Tesla in reverse, a mistake she made before, WSJ reports](https://www.yahoo.com/news/angela-chao-may-died-accidentally-051505195.html)
 - Mar 09 - [Journalist who covered Trump’s finances has theory about if Trump can pay legal penalties of $454M](https://www.yahoo.com/news/journalist-covered-trump-finances-theory-033113537.html)
-- Mar 09 - [Trump held ‘friendly’ meeting with Hungary’s Viktor Orbán at Mar-a-Lago and then took autocrat to a concert](https://www.yahoo.com/news/trump-held-friendly-meeting-hungary-032749073.html)
 <!-- feed end -->
 
 ### Onstream
