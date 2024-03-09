@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 09 - [Spain's prime minister says he will propose that parliament recognizes a Palestinian state](https://www.yahoo.com/news/spains-prime-minister-says-propose-184022650.html)
 - Mar 09 - [Pope says Ukraine should have 'courage of the white flag' of negotiations](https://www.yahoo.com/news/pope-says-ukraine-courage-white-161856540.html)
+- Mar 09 - [Over 1/3 of flights delayed, canceled at Tampa International Airport Saturday](https://www.yahoo.com/news/over-1-3-flights-delayed-152850162.html)
 - Mar 09 - [Robert De Niro Labels Trump a ‘Total Monster’](https://www.yahoo.com/news/robert-niro-labels-trump-total-152142299.html)
 - Mar 09 - [Packaging billionaires to help fund Trump campaign, FT reports](https://www.yahoo.com/news/packaging-billionaires-help-fund-trump-150212944.html)
-- Mar 09 - [‘Rust’ Armorer Reportedly Having A Difficult Time Behind Bars](https://www.yahoo.com/entertainment/rust-armorer-reportedly-having-difficult-140029945.html)
-- Mar 09 - [He had a badge, his car had emergency lights, he pulled people over — but he wasn't a cop, authorities say](https://www.yahoo.com/news/had-badge-car-had-emergency-130029135.html)
 <!-- feed end -->
 
 ### Onstream
