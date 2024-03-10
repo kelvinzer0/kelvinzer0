@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 10 - [Nancy Mace Blows Up at George Stephanopoulos Over Trump Rape Case](https://www.yahoo.com/news/nancy-mace-blows-george-stephanopoulos-180030782.html)
+- Mar 10 - [Sen. Katie Britt acknowledges anecdote used to criticize Biden’s border policies didn’t happen during his presidency](https://www.yahoo.com/news/sen-katie-britt-acknowledges-anecdote-174200662.html)
 - Mar 10 - ['A stunning turnabout': Voters and lawmakers across US move to reverse criminal justice reform](https://www.yahoo.com/news/stunning-turnabout-voters-lawmakers-across-170024206.html)
-- Mar 10 - [Fox News Confronts Katie Britt on Falsely Connecting Biden to Sex-Trafficking Story](https://www.yahoo.com/entertainment/fox-news-confronts-katie-britt-163611033.html)
 - Mar 10 - [Lindsey Graham: Biden has 'screwed the world up every way you can'](https://www.yahoo.com/news/lindsey-graham-biden-screwed-world-161746075.html)
 - Mar 10 - [Girl Who Started 'Tipping Over' at Sleepover Thought She Was Just Tired. Now Police Say She Was Drugged](https://www.yahoo.com/entertainment/girl-started-tipping-over-sleepover-150000916.html)
-- Mar 10 - [The Fed’s 2% inflation target is a source of growing liberal discontent](https://finance.yahoo.com/news/the-feds-2-inflation-target-is-a-source-of-growing-liberal-discontent-123104995.html)
 <!-- feed end -->
 
 ### Onstream
