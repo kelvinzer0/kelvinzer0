@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 10 - [Opinion: Sheryl Swoopes is right: Black people can't be racist](https://sports.yahoo.com/opinion-sheryl-swoopes-black-people-100520546.html)
 - Mar 10 - [If Donald Trump returns to the White House, House GOP wonders: Who will talk to him?](https://www.yahoo.com/news/donald-trump-returns-white-house-091554353.html)
-- Mar 10 - [U.S. military flies Marines into Haiti embassy, evacuating some staff in overnight airlift](https://www.yahoo.com/news/u-evacuates-staff-middle-night-091353937.html)
 - Mar 10 - [Russia’s new guided bomb inflicts devastation and heavy casualties on the Ukrainian front lines](https://www.yahoo.com/news/russia-guided-bomb-inflicts-devastation-053410901.html)
 - Mar 10 - [‘SNL’ Cold Open: Scarlett Johansson Spoofs Katie Britt’s Weird SOTU Rebuttal](https://www.yahoo.com/entertainment/snl-cold-open-scarlett-johansson-050425115.html)
+- Mar 10 - [Krystyna Pyszková from Czech Republic crowned Miss World 2024](https://www.yahoo.com/news/czech-republics-krystyna-pyszkova-crowned-035139508.html)
 <!-- feed end -->
 
 ### Onstream
