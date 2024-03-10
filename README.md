@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 10 - [Russia’s new guided bomb inflicts devastation and heavy casualties on the Ukrainian front lines](https://www.yahoo.com/news/russia-guided-bomb-inflicts-devastation-053410901.html)
 - Mar 10 - [‘SNL’ Cold Open: Scarlett Johansson Spoofs Katie Britt’s Weird SOTU Rebuttal](https://www.yahoo.com/entertainment/snl-cold-open-scarlett-johansson-050425115.html)
 - Mar 10 - [Krystyna Pyszková from Czech Republic crowned Miss World 2024](https://www.yahoo.com/news/czech-republics-krystyna-pyszkova-crowned-035139508.html)
 - Mar 10 - [Georgia Men Plotted to Have ‘Large Python’ Eat Woman’s Daughter, Feds Say](https://www.yahoo.com/news/georgia-men-plotted-large-python-005605599.html)
 - Mar 10 - [Ty Cobb: The ‘facts are terrible’ in Trump legal cases](https://www.yahoo.com/news/ty-cobb-facts-terrible-trump-002335227.html)
-- Mar 09 - [Biden makes contradictory comments on Gaza 'red line' in MSNBC interview](https://www.yahoo.com/news/biden-makes-contradictory-comments-gaza-232839671.html)
 <!-- feed end -->
 
 ### Onstream
