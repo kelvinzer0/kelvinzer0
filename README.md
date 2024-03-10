@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 10 - [Nancy Mace Blows Up at George Stephanopoulos Over Trump Rape Case](https://www.yahoo.com/news/nancy-mace-blows-george-stephanopoulos-180030782.html)
+- Mar 10 - [Trump supporters hoping to oust Wisconsin leader say they have enough signatures to force recall](https://www.yahoo.com/news/trump-supporters-hoping-oust-wisconsin-192005258.html)
+- Mar 10 - [Netanyahu says at least 13,000 'terrorists' among Palestinians killed](https://www.yahoo.com/news/netanyahu-says-least-13-000-191810890.html)
 - Mar 10 - [Sen. Katie Britt acknowledges anecdote used to criticize Biden’s border policies didn’t happen during his presidency](https://www.yahoo.com/news/sen-katie-britt-acknowledges-anecdote-174200662.html)
-- Mar 10 - ['A stunning turnabout': Voters and lawmakers across US move to reverse criminal justice reform](https://www.yahoo.com/news/stunning-turnabout-voters-lawmakers-across-170024206.html)
-- Mar 10 - [Lindsey Graham: Biden has 'screwed the world up every way you can'](https://www.yahoo.com/news/lindsey-graham-biden-screwed-world-161746075.html)
-- Mar 10 - [Girl Who Started 'Tipping Over' at Sleepover Thought She Was Just Tired. Now Police Say She Was Drugged](https://www.yahoo.com/entertainment/girl-started-tipping-over-sleepover-150000916.html)
+- Mar 10 - [Russia’s new guided bomb inflicts devastation and heavy casualties on the Ukrainian front lines](https://www.yahoo.com/news/russia-guided-bomb-inflicts-devastation-053410901.html)
+- Mar 10 - [Jan. 6 committee allegedly suppressed testimony showing Trump admin pushed for National Guard presence: report](https://www.yahoo.com/news/jan-6-committee-allegedly-suppressed-174304598.html)
 <!-- feed end -->
 
 ### Onstream
