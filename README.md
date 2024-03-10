@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 10 - [Georgia Men Plotted to Have ‘Large Python’ Eat Woman’s Daughter, Feds Say](https://www.yahoo.com/news/georgia-men-plotted-large-python-005605599.html)
+- Mar 10 - [Ty Cobb: The ‘facts are terrible’ in Trump legal cases](https://www.yahoo.com/news/ty-cobb-facts-terrible-trump-002335227.html)
+- Mar 09 - [Biden makes contradictory comments on Gaza 'red line' in MSNBC interview](https://www.yahoo.com/news/biden-makes-contradictory-comments-gaza-232839671.html)
 - Mar 09 - [Colorado Bureau of Investigation finds DNA scientist manipulated data in hundreds of cases over decades](https://www.yahoo.com/news/colorado-bureau-investigation-finds-dna-212334662.html)
-- Mar 09 - [Biden says he regrets using term 'illegal,' as Trump hosts Laken Riley's family at rally](https://www.yahoo.com/news/biden-says-regrets-using-term-221659185.html)
-- Mar 09 - [Woman Struck by N.Y.C. Subway Train After Being Pushed onto Tracks by Her Boyfriend, Loses Both Feet: Reports](https://www.yahoo.com/entertainment/woman-struck-n-y-c-221024255.html)
-- Mar 09 - [Pope Francis: Ukraine should have the courage of the 'white flag,' negotiate end of war with Russia](https://www.yahoo.com/news/pope-francis-ukraine-courage-white-203345984.html)
-- Mar 09 - [I get random men to buy me $4K Chanel bags and private jet trips to Miami just by asking — here’s how](https://www.yahoo.com/lifestyle/random-men-buy-4k-chanel-170946172.html)
+- Mar 09 - [Trump blasts Biden over Laken Riley's death after Biden says he regrets using term 'illegal'](https://www.yahoo.com/news/biden-says-regrets-using-term-221659185.html)
 <!-- feed end -->
 
 ### Onstream
