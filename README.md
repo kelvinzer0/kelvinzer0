@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 10 - ['A stunning turnabout': Voters and lawmakers across US move to reverse criminal justice reform](https://www.yahoo.com/news/stunning-turnabout-voters-lawmakers-across-170024206.html)
 - Mar 10 - [Fox News Confronts Katie Britt on Falsely Connecting Biden to Sex-Trafficking Story](https://www.yahoo.com/entertainment/fox-news-confronts-katie-britt-163611033.html)
 - Mar 10 - [Lindsey Graham: Biden has 'screwed the world up every way you can'](https://www.yahoo.com/news/lindsey-graham-biden-screwed-world-161746075.html)
 - Mar 10 - [Girl Who Started 'Tipping Over' at Sleepover Thought She Was Just Tired. Now Police Say She Was Drugged](https://www.yahoo.com/entertainment/girl-started-tipping-over-sleepover-150000916.html)
-- Mar 10 - [Katie Porter's star dims in failed US Senate bid, leaving the Californian facing an uncertain future](https://www.yahoo.com/news/katie-porters-star-dims-failed-113706182.html)
-- Mar 10 - [Opinion: Sheryl Swoopes is right: Black people can't be racist](https://sports.yahoo.com/opinion-sheryl-swoopes-black-people-100520546.html)
+- Mar 10 - [The Fed’s 2% inflation target is a source of growing liberal discontent](https://finance.yahoo.com/news/the-feds-2-inflation-target-is-a-source-of-growing-liberal-discontent-123104995.html)
 <!-- feed end -->
 
 ### Onstream
