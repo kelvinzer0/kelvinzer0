@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 10 - [Trump backtracks on statement that Georgia polls are rigged because now he is ‘winning by so much’](https://www.yahoo.com/news/trump-backtracks-statement-georgia-polls-005913152.html)
 - Mar 10 - [Georgia Men Plotted to Have ‘Large Python’ Eat Woman’s Daughter, Feds Say](https://www.yahoo.com/news/georgia-men-plotted-large-python-005605599.html)
 - Mar 10 - [Ty Cobb: The ‘facts are terrible’ in Trump legal cases](https://www.yahoo.com/news/ty-cobb-facts-terrible-trump-002335227.html)
 - Mar 09 - [Biden makes contradictory comments on Gaza 'red line' in MSNBC interview](https://www.yahoo.com/news/biden-makes-contradictory-comments-gaza-232839671.html)
 - Mar 09 - [Colorado Bureau of Investigation finds DNA scientist manipulated data in hundreds of cases over decades](https://www.yahoo.com/news/colorado-bureau-investigation-finds-dna-212334662.html)
-- Mar 09 - [Trump blasts Biden over Laken Riley's death after Biden says he regrets using term 'illegal'](https://www.yahoo.com/news/biden-says-regrets-using-term-221659185.html)
 <!-- feed end -->
 
 ### Onstream
