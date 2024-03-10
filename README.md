@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 09 - [Katie Britt in GOP response used decades-old example of rapes in Mexico to blast Biden border policy](https://www.yahoo.com/news/republican-senator-used-decades-old-223010728.html)
+- Mar 09 - [Colorado Bureau of Investigation finds DNA scientist manipulated data in hundreds of cases over decades](https://www.yahoo.com/news/colorado-bureau-investigation-finds-dna-212334662.html)
 - Mar 09 - [Biden says he regrets using term 'illegal,' as Trump hosts Laken Riley's family at rally](https://www.yahoo.com/news/biden-says-regrets-using-term-221659185.html)
 - Mar 09 - [Woman Struck by N.Y.C. Subway Train After Being Pushed onto Tracks by Her Boyfriend, Loses Both Feet: Reports](https://www.yahoo.com/entertainment/woman-struck-n-y-c-221024255.html)
-- Mar 09 - [Daughter of ex-Indiana sheriff latest to be charged in alleged family corruption scheme](https://www.yahoo.com/news/daughter-ex-indiana-sheriff-latest-215515675.html)
-- Mar 09 - [Colorado Bureau of Investigation finds DNA scientist manipulated data in hundreds of cases over decades](https://www.yahoo.com/news/colorado-bureau-investigation-finds-dna-212334662.html)
+- Mar 09 - [Pope Francis: Ukraine should have the courage of the 'white flag,' negotiate end of war with Russia](https://www.yahoo.com/news/pope-francis-ukraine-courage-white-203345984.html)
+- Mar 09 - [I get random men to buy me $4K Chanel bags and private jet trips to Miami just by asking — here’s how](https://www.yahoo.com/lifestyle/random-men-buy-4k-chanel-170946172.html)
 <!-- feed end -->
 
 ### Onstream
