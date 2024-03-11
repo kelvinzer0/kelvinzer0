@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [27-year-old veteran dies after hit-and-run crash in Downtown Indy, family says](https://www.yahoo.com/news/27-old-veteran-dies-hit-032243828.html)
 - Mar 11 - [News agencies recall image of Catherine, Princess of Wales, citing manipulation concerns](https://www.yahoo.com/news/news-agencies-recall-image-catherine-234902120.html)
-- Mar 11 - [Al-Qaida's Yemen branch says leader Khalid al-Batarfi dead in unclear circumstances](https://www.yahoo.com/news/al-qaidas-yemen-branch-says-015025514.html)
+- Mar 11 - [At US universities, record numbers of Indian students seek brighter prospects — and overseas jobs](https://www.yahoo.com/news/us-universities-record-numbers-indian-040751407.html)
 - Mar 11 - [The Trump campaign paid an expert $750,000 to find fraud in the 2020 election, only for him to dismiss their complaints in minutes](https://www.yahoo.com/news/trump-campaign-paid-expert-750-000113143.html)
 - Mar 10 - [About 300 people at California hospital possibly exposed to measles after child goes for treatment](https://www.yahoo.com/news/300-people-california-hospital-possibly-232806829.html)
+- Mar 10 - [Liz Cheney spars with Mark Levin on social media after he called her ‘sleazy’](https://www.yahoo.com/news/liz-cheney-spars-mark-levin-220814151.html)
 <!-- feed end -->
 
 ### Onstream
