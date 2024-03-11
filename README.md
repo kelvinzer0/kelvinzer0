@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Donald Trump Suggests Cutting Retirement Programs In Incoherent Ramble](https://www.yahoo.com/news/donald-trump-suggests-cutting-retirement-163700397.html)
-- Mar 11 - [Trump asks to delay hush money trial until US Supreme Court reviews immunity claim](https://www.yahoo.com/news/trump-asks-delay-hush-money-163143383.html)
-- Mar 11 - [Stone Age facial piercings found near wearers’ skulls in Turkey, in an archaeological first](https://www.yahoo.com/lifestyle/stone-age-facial-piercings-found-162709692.html)
-- Mar 11 - ['You can't just go to electric': Trump sounds off on EV transition as automakers warn on demand](https://finance.yahoo.com/news/you-cant-just-go-to-electric-trump-sounds-off-on-ev-transition-as-automakers-warn-on-demand-161918940.html)
-- Mar 11 - [Counselor recalls morning of Michigan school attack when parents declined to take shooter home](https://www.yahoo.com/news/counselor-recalls-morning-michigan-school-160418674.html)
+- Mar 11 - [Donald Trump claims immunity from NY hush money criminal charges, but legal experts doubtful](https://www.yahoo.com/news/donald-trump-claims-immunity-ny-175325407.html)
+- Mar 11 - [US man jailed for life over rape and murder near German castle](https://www.yahoo.com/news/us-man-jailed-life-over-173202876.html)
+- Mar 11 - [British police officer who emigrated to Australia dies in a freak accident at his engagement party](https://www.yahoo.com/news/british-officer-emigrated-australia-dies-172724574.html)
+- Mar 11 - [Woman goes to store for snacks, then family tracks phone and finds her dead, cops say](https://www.yahoo.com/news/woman-goes-store-snacks-then-170351122.html)
+- Mar 11 - [FBI again searches California federal women's prison plagued by sexual abuse](https://www.yahoo.com/news/fbi-again-searches-california-federal-165018766.html)
 <!-- feed end -->
 
 ### Onstream
