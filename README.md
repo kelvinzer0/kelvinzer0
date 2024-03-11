@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 11 - [Trump won't give money to Ukraine if elected, says Hungary's Orban](https://www.yahoo.com/news/trump-wont-money-ukraine-elected-090221152.html)
 - Mar 11 - [Russia says pope's appeal on Ukraine war is to the West](https://www.yahoo.com/news/russia-says-popes-appeal-ukraine-063110839.html)
 - Mar 11 - [Ex-DOJ Official: 'Sure Sounds Like' Trump Just Wrote Third Lawsuit From E. Jean Carroll](https://www.yahoo.com/news/ex-doj-official-sure-sounds-062229535.html)
 - Mar 11 - [Exhaustion, dwindling reserves and a commander who disappeared: How Ukraine lost Avdiivka to Russia](https://www.yahoo.com/news/exhaustion-dwindling-reserves-commander-disappeared-050340613.html)
 - Mar 11 - [At US universities, record numbers of Indian students seek brighter prospects — and overseas jobs](https://www.yahoo.com/news/us-universities-record-numbers-indian-040751407.html)
-- Mar 11 - [Al-Qaida's Yemen branch says leader Khalid al-Batarfi dead in unclear circumstances](https://www.yahoo.com/news/al-qaidas-yemen-branch-says-015025514.html)
 <!-- feed end -->
 
 ### Onstream
