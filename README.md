@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Man Attacked by Crocodile While Trying to Swim to Shore After His Boat Capsized at Florida Park](https://www.yahoo.com/entertainment/man-attacked-crocodile-while-trying-194129029.html)
-- Mar 11 - [Granderson: What Katie Britt's misleading, melodramatic speech revealed about the Republican Party](https://www.yahoo.com/news/granderson-katie-britts-misleading-melodramatic-192438824.html)
-- Mar 11 - [Confidentiality pact deepens mystery of how bakery clause got into California minimum wage law](https://www.yahoo.com/news/confidentiality-pact-deepens-mystery-bakery-191349410.html)
-- Mar 11 - [Fight in casino bar area ends with sergeant attacked and killed, New York cops say](https://www.yahoo.com/news/fight-casino-bar-area-ends-185140171.html)
-- Mar 11 - [Boys found rare silver treasure under church, kept it in box for 60 years — until now](https://www.yahoo.com/news/boys-found-rare-silver-treasure-184600597.html)
+- Mar 11 - [Trump floats 'cutting' retirement spending, drawing quick pushback from Biden](https://www.yahoo.com/news/trump-floats-cutting-retirement-spending-181838263.html)
+- Mar 11 - [Teams search for skier in Switzerland, five others found dead](https://www.yahoo.com/news/teams-search-skier-switzerland-five-204728865.html)
+- Mar 11 - [Gas prices at four-month high: Costco's pressure at the pump](https://finance.yahoo.com/video/gas-prices-four-month-high-203537401.html)
+- Mar 11 - [Drugstore worker gets May trial date in slaying of 2 teen girls](https://www.yahoo.com/news/drugstore-worker-gets-may-trial-203007229.html)
+- Mar 11 - [Nebraska woman used rewards card loophole for 7,000 gallons of free gas: Reports](https://www.yahoo.com/news/nebraska-woman-used-rewards-card-201751997.html)
 <!-- feed end -->
 
 ### Onstream
