@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Trump floats 'cutting' retirement spending, drawing quick pushback from Biden](https://www.yahoo.com/news/trump-floats-cutting-retirement-spending-181838263.html)
-- Mar 11 - [Donald Trump claims immunity from NY hush money criminal charges, but legal experts doubtful](https://www.yahoo.com/news/donald-trump-claims-immunity-ny-175325407.html)
-- Mar 11 - [Your car might be secretly recording every drive you take — and sending data to your insurance company](https://www.yahoo.com/news/car-might-secretly-recording-every-173824110.html)
-- Mar 11 - [British police officer who emigrated to Australia dies in a freak accident at his engagement party](https://www.yahoo.com/news/british-officer-emigrated-australia-dies-172724574.html)
-- Mar 11 - [FBI again searches California federal women's prison plagued by sexual abuse](https://www.yahoo.com/news/fbi-again-searches-california-federal-165018766.html)
+- Mar 11 - [Man Attacked by Crocodile While Trying to Swim to Shore After His Boat Capsized at Florida Park](https://www.yahoo.com/entertainment/man-attacked-crocodile-while-trying-194129029.html)
+- Mar 11 - [Granderson: What Katie Britt's misleading, melodramatic speech revealed about the Republican Party](https://www.yahoo.com/news/granderson-katie-britts-misleading-melodramatic-192438824.html)
+- Mar 11 - [Confidentiality pact deepens mystery of how bakery clause got into California minimum wage law](https://www.yahoo.com/news/confidentiality-pact-deepens-mystery-bakery-191349410.html)
+- Mar 11 - [Fight in casino bar area ends with sergeant attacked and killed, New York cops say](https://www.yahoo.com/news/fight-casino-bar-area-ends-185140171.html)
+- Mar 11 - [Boys found rare silver treasure under church, kept it in box for 60 years — until now](https://www.yahoo.com/news/boys-found-rare-silver-treasure-184600597.html)
 <!-- feed end -->
 
 ### Onstream
