@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 11 - [Donald Trump Suggests Cutting Retirement Programs In Incoherent Ramble](https://www.yahoo.com/news/donald-trump-suggests-cutting-retirement-163700397.html)
+- Mar 11 - [Trump asks to delay hush money trial until US Supreme Court reviews immunity claim](https://www.yahoo.com/news/trump-asks-delay-hush-money-163143383.html)
+- Mar 11 - [Stone Age facial piercings found near wearers’ skulls in Turkey, in an archaeological first](https://www.yahoo.com/lifestyle/stone-age-facial-piercings-found-162709692.html)
+- Mar 11 - ['You can't just go to electric': Trump sounds off on EV transition as automakers warn on demand](https://finance.yahoo.com/news/you-cant-just-go-to-electric-trump-sounds-off-on-ev-transition-as-automakers-warn-on-demand-161918940.html)
 - Mar 11 - [Counselor recalls morning of Michigan school attack when parents declined to take shooter home](https://www.yahoo.com/news/counselor-recalls-morning-michigan-school-160418674.html)
-- Mar 11 - [Trump-Backed Candidate Makes 'Shameless' Claim About Ex-President's Golf Feat](https://www.yahoo.com/entertainment/trump-backed-candidate-makes-shameless-154746530.html)
-- Mar 11 - [Legal expert thinks Judge Cannon may be “looking to toss the case” against Trump at hearing](https://www.yahoo.com/news/legal-expert-thinks-judge-cannon-153747603.html)
-- Mar 11 - [India announces steps to implement a citizenship law that excludes Muslims](https://www.yahoo.com/news/india-announces-steps-implement-citizenship-150043827.html)
-- Mar 11 - [Colorado Bureau of Investigation finds DNA scientist manipulated data in hundreds of cases over decades](https://www.yahoo.com/news/colorado-bureau-investigation-finds-dna-212334662.html)
 <!-- feed end -->
 
 ### Onstream
