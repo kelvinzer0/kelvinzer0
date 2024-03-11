@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 11 - [Biden is spreading $442 billion across the US. The impact could be greatest where he’s least popular.](https://finance.yahoo.com/news/biden-is-spreading-442-billion-across-the-us-the-impact-could-be-greatest-where-hes-least-popular-100041249.html)
+- Mar 11 - [Jen Psaki Unearths Video That Shows How Fast Sen. Katie Britt Went 'Full MAGA'](https://www.yahoo.com/news/jen-psaki-unearths-video-shows-095332835.html)
 - Mar 11 - [Trump won't give money to Ukraine if elected, says Hungary's Orban](https://www.yahoo.com/news/trump-wont-money-ukraine-elected-090221152.html)
-- Mar 11 - [Russia says pope's appeal on Ukraine war is to the West](https://www.yahoo.com/news/russia-says-popes-appeal-ukraine-063110839.html)
+- Mar 11 - [Kremlin says appeal by Pope Francis for Ukraine talks is quite understandable](https://www.yahoo.com/news/russia-says-popes-appeal-ukraine-063110839.html)
 - Mar 11 - [Ex-DOJ Official: 'Sure Sounds Like' Trump Just Wrote Third Lawsuit From E. Jean Carroll](https://www.yahoo.com/news/ex-doj-official-sure-sounds-062229535.html)
-- Mar 11 - [Exhaustion, dwindling reserves and a commander who disappeared: How Ukraine lost Avdiivka to Russia](https://www.yahoo.com/news/exhaustion-dwindling-reserves-commander-disappeared-050340613.html)
-- Mar 11 - [At US universities, record numbers of Indian students seek brighter prospects — and overseas jobs](https://www.yahoo.com/news/us-universities-record-numbers-indian-040751407.html)
 <!-- feed end -->
 
 ### Onstream
