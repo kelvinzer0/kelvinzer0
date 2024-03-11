@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 11 - [US man convicted of murder and rape, given life sentence for attack on 2 American women in Germany](https://www.yahoo.com/news/us-man-convicted-murder-rape-120013987.html)
+- Mar 11 - [Young men in Atlanta knocked out, kidnapped and robbed after visiting bars in Buckhead](https://www.yahoo.com/news/young-men-atlanta-knocked-kidnapped-120000313.html)
+- Mar 11 - [Authoritarianism Expert Highlights 'Saddest Part' Of Donald Trump Cult](https://www.yahoo.com/news/authoritarianism-expert-highlights-saddest-part-114337101.html)
+- Mar 11 - [Kate, Princess of Wales, apologizes for editing family photo that fueled rumors about her health](https://www.yahoo.com/news/princess-kate-says-sorry-manipulated-105405850.html)
 - Mar 11 - [Biden is spreading $442 billion across the US. The impact could be greatest where he’s least popular.](https://finance.yahoo.com/news/biden-is-spreading-442-billion-across-the-us-the-impact-could-be-greatest-where-hes-least-popular-100041249.html)
-- Mar 11 - [Jen Psaki Unearths Video That Shows How Fast Sen. Katie Britt Went 'Full MAGA'](https://www.yahoo.com/news/jen-psaki-unearths-video-shows-095332835.html)
-- Mar 11 - [Trump won't give money to Ukraine if elected, says Hungary's Orban](https://www.yahoo.com/news/trump-wont-money-ukraine-elected-090221152.html)
-- Mar 11 - [Kremlin says appeal by Pope Francis for Ukraine talks is quite understandable](https://www.yahoo.com/news/russia-says-popes-appeal-ukraine-063110839.html)
-- Mar 11 - [Ex-DOJ Official: 'Sure Sounds Like' Trump Just Wrote Third Lawsuit From E. Jean Carroll](https://www.yahoo.com/news/ex-doj-official-sure-sounds-062229535.html)
 <!-- feed end -->
 
 ### Onstream
