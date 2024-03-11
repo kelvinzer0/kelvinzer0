@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Bitcoin's new $71K record high: What's fueling the gains?](https://finance.yahoo.com/video/bitcoins-71k-record-high-whats-141548963.html)
+- Mar 11 - [Counselor recalls morning of Michigan school attack when parents declined to take shooter home](https://www.yahoo.com/news/counselor-recalls-morning-michigan-school-160418674.html)
+- Mar 11 - [Trump-Backed Candidate Makes 'Shameless' Claim About Ex-President's Golf Feat](https://www.yahoo.com/entertainment/trump-backed-candidate-makes-shameless-154746530.html)
+- Mar 11 - [Legal expert thinks Judge Cannon may be “looking to toss the case” against Trump at hearing](https://www.yahoo.com/news/legal-expert-thinks-judge-cannon-153747603.html)
+- Mar 11 - [India announces steps to implement a citizenship law that excludes Muslims](https://www.yahoo.com/news/india-announces-steps-implement-citizenship-150043827.html)
 - Mar 11 - [Colorado Bureau of Investigation finds DNA scientist manipulated data in hundreds of cases over decades](https://www.yahoo.com/news/colorado-bureau-investigation-finds-dna-212334662.html)
-- Mar 11 - [Legal analyst: Trump may have jeopardized his bond with new attack on E. Jean Carroll](https://www.yahoo.com/news/legal-analyst-trump-may-jeopardized-133234012.html)
-- Mar 11 - [I lived in Finland for 3 years. Even as an international student, I got a taste of why it's the happiest country in the world.](https://www.yahoo.com/news/lived-finland-3-years-even-132327407.html)
-- Mar 11 - [Christina Applegate says she lives 'kind of in hell' battling multiple sclerosis](https://www.yahoo.com/news/christina-applegate-says-she-lives-125348230.html)
 <!-- feed end -->
 
 ### Onstream
