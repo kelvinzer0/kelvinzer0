@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [US man convicted of murder and rape, given life sentence for attack on 2 American women in Germany](https://www.yahoo.com/news/us-man-convicted-murder-rape-120013987.html)
+- Mar 11 - [Joe Scarborough Reveals Real Takeaway Of Donald Trump's Oscars Jab At Jimmy Kimmel](https://www.yahoo.com/news/joe-scarborough-reveals-real-takeaway-121805601.html)
+- Mar 11 - [Victims of Catholic nuns rely on each other after being overlooked in the clergy sex abuse crisis](https://www.yahoo.com/news/victims-catholic-nuns-rely-other-120946045.html)
+- Mar 11 - [A US man is sentenced to life in prison for murder and rape in attack on 2 American women in Germany](https://www.yahoo.com/news/us-man-convicted-murder-rape-120013987.html)
 - Mar 11 - [Young men in Atlanta knocked out, kidnapped and robbed after visiting bars in Buckhead](https://www.yahoo.com/news/young-men-atlanta-knocked-kidnapped-120000313.html)
 - Mar 11 - [Authoritarianism Expert Highlights 'Saddest Part' Of Donald Trump Cult](https://www.yahoo.com/news/authoritarianism-expert-highlights-saddest-part-114337101.html)
-- Mar 11 - [Kate, Princess of Wales, apologizes for editing family photo that fueled rumors about her health](https://www.yahoo.com/news/princess-kate-says-sorry-manipulated-105405850.html)
-- Mar 11 - [Biden is spreading $442 billion across the US. The impact could be greatest where he’s least popular.](https://finance.yahoo.com/news/biden-is-spreading-442-billion-across-the-us-the-impact-could-be-greatest-where-hes-least-popular-100041249.html)
 <!-- feed end -->
 
 ### Onstream
