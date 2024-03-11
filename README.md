@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 11 - [UK's Princess of Wales apologizes for edited photo](https://www.yahoo.com/news/uks-princess-wales-apologizes-edited-134114046.html)
+- Mar 11 - [Christina Applegate says she lives 'kind of in hell' battling multiple sclerosis](https://www.yahoo.com/news/christina-applegate-says-she-lives-125348230.html)
 - Mar 11 - [Joe Scarborough Reveals Real Takeaway Of Donald Trump's Oscars Jab At Jimmy Kimmel](https://www.yahoo.com/news/joe-scarborough-reveals-real-takeaway-121805601.html)
 - Mar 11 - [Victims of Catholic nuns rely on each other after being overlooked in the clergy sex abuse crisis](https://www.yahoo.com/news/victims-catholic-nuns-rely-other-120946045.html)
-- Mar 11 - [A US man is sentenced to life in prison for murder and rape in attack on 2 American women in Germany](https://www.yahoo.com/news/us-man-convicted-murder-rape-120013987.html)
-- Mar 11 - [Young men in Atlanta knocked out, kidnapped and robbed after visiting bars in Buckhead](https://www.yahoo.com/news/young-men-atlanta-knocked-kidnapped-120000313.html)
-- Mar 11 - [Authoritarianism Expert Highlights 'Saddest Part' Of Donald Trump Cult](https://www.yahoo.com/news/authoritarianism-expert-highlights-saddest-part-114337101.html)
+- Mar 11 - [Trump says tax cuts could offset 10% tariffs, eyes entitlements](https://finance.yahoo.com/news/trump-says-tariff-impact-could-120221669.html)
 <!-- feed end -->
 
 ### Onstream
