@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [UK's Princess of Wales apologizes for edited photo](https://www.yahoo.com/news/uks-princess-wales-apologizes-edited-134114046.html)
+- Mar 11 - [Bitcoin's new $71K record high: What's fueling the gains?](https://finance.yahoo.com/video/bitcoins-71k-record-high-whats-141548963.html)
+- Mar 11 - [Colorado Bureau of Investigation finds DNA scientist manipulated data in hundreds of cases over decades](https://www.yahoo.com/news/colorado-bureau-investigation-finds-dna-212334662.html)
+- Mar 11 - [Legal analyst: Trump may have jeopardized his bond with new attack on E. Jean Carroll](https://www.yahoo.com/news/legal-analyst-trump-may-jeopardized-133234012.html)
+- Mar 11 - [I lived in Finland for 3 years. Even as an international student, I got a taste of why it's the happiest country in the world.](https://www.yahoo.com/news/lived-finland-3-years-even-132327407.html)
 - Mar 11 - [Christina Applegate says she lives 'kind of in hell' battling multiple sclerosis](https://www.yahoo.com/news/christina-applegate-says-she-lives-125348230.html)
-- Mar 11 - [Joe Scarborough Reveals Real Takeaway Of Donald Trump's Oscars Jab At Jimmy Kimmel](https://www.yahoo.com/news/joe-scarborough-reveals-real-takeaway-121805601.html)
-- Mar 11 - [Victims of Catholic nuns rely on each other after being overlooked in the clergy sex abuse crisis](https://www.yahoo.com/news/victims-catholic-nuns-rely-other-120946045.html)
-- Mar 11 - [Trump says tax cuts could offset 10% tariffs, eyes entitlements](https://finance.yahoo.com/news/trump-says-tariff-impact-could-120221669.html)
 <!-- feed end -->
 
 ### Onstream
