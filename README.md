@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [Melania Trump’s Ex-Aide Claims Donald Trump No Longer Displays ‘Chivalry’ Towards His Wife](https://www.yahoo.com/entertainment/melania-trump-ex-aide-claims-024721121.html)
+- Mar 12 - [Trump’s freewheeling CNBC interview gives glimpse of the campaign to come](https://www.yahoo.com/news/trump-freewheeling-cnbc-interview-gives-224233509.html)
+- Mar 12 - [Philippines' says China's maritime-related proposals run contrary to its interests](https://www.yahoo.com/news/philippines-says-chinas-maritime-related-021247414.html)
 - Mar 12 - [Dak Prescott sues woman who accused him of sexual assault, claiming $100M extortion plot](https://sports.yahoo.com/dak-prescott-sues-woman-who-accused-him-of-sexual-assault-claiming-100m-extortion-plot-012241360.html)
 - Mar 12 - [Exclusive: ‘Trump Employee 5,’ who unknowingly helped move classified documents, speaks out](https://www.yahoo.com/news/exclusive-trump-employee-5-unknowingly-200501307.html)
-- Mar 12 - [Trump’s freewheeling CNBC interview gives glimpse of the campaign to come](https://www.yahoo.com/news/trump-freewheeling-cnbc-interview-gives-224233509.html)
-- Mar 12 - [Missing 12-year-old boy spent the night in an Ohio Target](https://www.yahoo.com/news/missing-12-old-boy-spent-010342220.html)
-- Mar 12 - [An Alabama police officer was disciplined after he arrested a woman for refusing to show her ID](https://www.yahoo.com/news/alabama-police-officer-disciplined-arrested-002711785.html)
 <!-- feed end -->
 
 ### Onstream
