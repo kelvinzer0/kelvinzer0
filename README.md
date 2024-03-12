@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [Turkey's Erdogan warns against spreading Ukraine conflict to NATO, exacerbating war](https://www.yahoo.com/news/turkeys-erdogan-warns-against-spreading-183352053.html)
+- Mar 12 - [Passenger sexually assaults woman, assaults crew members on Delta flight, feds say](https://www.yahoo.com/news/passenger-sexually-assaults-woman-assaults-183204711.html)
+- Mar 12 - [Many Republicans plan to skip House GOP retreat as they grumble about location and spending time with one another](https://www.yahoo.com/news/many-republicans-plan-skip-house-175829671.html)
 - Mar 12 - ['Devastating': Missing Washington woman's body found in Mexican cemetery, police say](https://www.yahoo.com/news/devastating-missing-washington-womans-body-174459540.html)
-- Mar 12 - [Scott Peterson Back in Court After L.A. Innocence Project Claims Evidence Suggests He Didn't Kill Wife Laci](https://www.yahoo.com/entertainment/scott-peterson-back-court-l-164841153.html)
-- Mar 12 - [‘Ludicrous, embarrassing spectacle’: Rep. Raskin claps back at GOP colleagues](https://www.yahoo.com/news/ludicrous-embarrassing-spectacle-rep-raskin-162040634.html)
-- Mar 12 - [Looks like Tesla was serious with its Cybertruck flipping threats](https://www.autoblog.com/2024/03/12/looks-like-tesla-was-serious-with-its-cybertruck-flipping-threats/)
-- Mar 12 - [Can you spot the leopard? Photographer spotted it just in time](https://sports.yahoo.com/spot-leopard-photographer-spotted-just-160146602.html)
+- Mar 12 - [“Can’t make it up”: Experts say transcript shows special counsel Robert Hur “lied” about Biden](https://www.yahoo.com/news/t-experts-transcript-shows-special-172637182.html)
 <!-- feed end -->
 
 ### Onstream
