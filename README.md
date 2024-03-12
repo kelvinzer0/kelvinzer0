@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [Boeing whistleblower found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
 - Mar 12 - [LATAM passenger recalls flight plunge scare](https://www.yahoo.com/news/latam-passenger-recalls-flight-plunge-090820721.html)
+- Mar 12 - [Ukraine-based Russian armed groups say they have launched incursion into Russia](https://finance.yahoo.com/news/ukraine-based-russian-armed-groups-080418657.html)
 - Mar 12 - [Online influencer Andrew Tate detained in Romania, handed UK arrest warrant, his spokesperson says](https://www.yahoo.com/news/online-influencer-andrew-tate-detained-073750284.html)
 - Mar 12 - [India rejects China's objections to Modi's visit to Himalayan border state](https://www.yahoo.com/news/india-rejects-chinas-objections-modis-065217964.html)
-- Mar 12 - [Passenger on Boeing flight that suddenly dropped says pilot told him he lost control after instrument failure](https://www.yahoo.com/news/passenger-boeing-flight-suddenly-dropped-061959425.html)
-- Mar 12 - [Jon Stewart Taunts Sen. Katie Britt With 1 Burning Question About Her Biden Speech](https://www.yahoo.com/entertainment/jon-stewart-taunts-sen-katie-061929697.html)
 <!-- feed end -->
 
 ### Onstream
