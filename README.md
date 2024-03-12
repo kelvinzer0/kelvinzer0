@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [What we know about the Princess of Wales's 'manipulated' family photo](https://www.yahoo.com/news/what-we-know-princess-wales-kate-photo-manipulated-093844101.html)
-- Mar 12 - [Passenger on Boeing flight that suddenly dropped says pilot told him he lost control after instrument failure](https://www.yahoo.com/lifestyle/passenger-boeing-flight-suddenly-dropped-061959425.html)
-- Mar 12 - ["Obviously low IQ": Former DHS official says "Donald Trump has apparent repeated memory lapses"](https://www.yahoo.com/news/obviously-low-iq-former-dhs-094503806.html)
 - Mar 12 - [Boeing whistleblower found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
-- Mar 12 - [Ukraine-based Russian armed groups say they have launched incursion into Russia](https://finance.yahoo.com/news/ukraine-based-russian-armed-groups-080418657.html)
+- Mar 12 - [Robert De Niro Bleeped As He Sums Up His Thoughts On Trump In 4 Short Words](https://www.yahoo.com/entertainment/robert-niro-bleeped-sums-thoughts-103539207.html)
+- Mar 12 - [Chemtrails are one of the most popular conspiracy theories. Here’s what it means](https://www.yahoo.com/news/chemtrails-one-most-popular-conspiracy-100037741.html)
+- Mar 12 - [Russia reports Ukrainian drone strikes on targets deep inside its territory and a border incursion](https://www.yahoo.com/news/russia-reports-ukrainian-drone-strikes-094644024.html)
+- Mar 12 - [Passenger on Boeing flight that suddenly dropped says pilot told him he lost control after instrument failure](https://www.yahoo.com/lifestyle/passenger-boeing-flight-suddenly-dropped-061959425.html)
 <!-- feed end -->
 
 ### Onstream
