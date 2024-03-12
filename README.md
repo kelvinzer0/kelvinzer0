@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - ['Devastating': Missing Washington woman's body found in Mexican cemetery, police say](https://www.yahoo.com/news/devastating-missing-washington-womans-body-174459540.html)
+- Mar 12 - [Scott Peterson Back in Court After L.A. Innocence Project Claims Evidence Suggests He Didn't Kill Wife Laci](https://www.yahoo.com/entertainment/scott-peterson-back-court-l-164841153.html)
 - Mar 12 - [‘Ludicrous, embarrassing spectacle’: Rep. Raskin claps back at GOP colleagues](https://www.yahoo.com/news/ludicrous-embarrassing-spectacle-rep-raskin-162040634.html)
-- Mar 12 - [Legal analyst: Cannon just “quickly” gave Trump’s lawyers extension to “reply to their own motions”](https://www.yahoo.com/news/legal-analyst-cannon-just-quickly-161157664.html)
 - Mar 12 - [Looks like Tesla was serious with its Cybertruck flipping threats](https://www.autoblog.com/2024/03/12/looks-like-tesla-was-serious-with-its-cybertruck-flipping-threats/)
-- Mar 12 - [Stock market today: US stocks march higher after CPI surprise](https://finance.yahoo.com/news/stock-market-today-us-stocks-march-higher-after-cpi-surprise-133436610.html)
-- Mar 12 - [University of Missouri student, 22, missing after he was asked to leave Nashville bar during fraternity trip](https://www.yahoo.com/news/university-missouri-student-22-missing-151645554.html)
+- Mar 12 - [Can you spot the leopard? Photographer spotted it just in time](https://sports.yahoo.com/spot-leopard-photographer-spotted-just-160146602.html)
 <!-- feed end -->
 
 ### Onstream
