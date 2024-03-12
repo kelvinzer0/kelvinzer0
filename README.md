@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Hungary protests Biden's 'dictatorship' comments about Orban](https://www.yahoo.com/news/hungary-protests-bidens-dictatorship-comments-144920146.html)
-- Mar 12 - [Boeing woes: FAA audit, Southwest impact, whistleblower found dead](https://finance.yahoo.com/video/boeing-woes-faa-audit-southwest-141437004.html)
-- Mar 12 - [7 Things You Should Know If You Withdraw More Than $5,000 From Your Checking Account](https://finance.yahoo.com/news/7-things-know-withdraw-more-140102839.html)
-- Mar 12 - [Inside the organized crime rings plaguing retailers including Ulta, T.J. Maxx and Walgreens](https://www.yahoo.com/news/inside-organized-crime-rings-plaguing-134737481.html)
 - Mar 12 - [Stock market today: US stocks march higher after CPI surprise](https://finance.yahoo.com/news/stock-market-today-us-stocks-march-higher-after-cpi-surprise-133436610.html)
+- Mar 12 - [University of Missouri student, 22, missing after he was asked to leave Nashville bar during fraternity trip](https://www.yahoo.com/news/university-missouri-student-22-missing-151645554.html)
+- Mar 12 - [North Carolina judges block elections board changes pushed by Republicans that weaken governor](https://www.yahoo.com/news/north-carolina-judges-block-elections-151315014.html)
+- Mar 12 - [The Real Story on Inflation: Breaking Down the February CPI Report](https://finance.yahoo.com/video/real-story-inflation-breaking-down-143700310.html)
+- Mar 12 - [A Jewish passenger is suing JetBlue claiming religious discrimination after he was thrown off a plane following his refusal to sit next to a woman](https://www.yahoo.com/news/jewish-passenger-suing-jetblue-claiming-143025268.html)
 <!-- feed end -->
 
 ### Onstream
