@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [Witnesses Claim Tenn. Man Who Died After 'Altercation' with Security Guard Was Attacked From Behind: Family](https://www.yahoo.com/entertainment/witnesses-claim-tenn-man-died-201103317.html)
+- Mar 12 - [P.E. Teacher, 23, 'Felt Something Was Wrong' After First Marathon, Learns He Has Heart Disease a Week Later (Exclusive)](https://www.yahoo.com/entertainment/p-e-teacher-23-felt-201013198.html)
 - Mar 12 - [Boeing whistleblower John Barnett found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
-- Mar 12 - [Scott Peterson appears virtually in California court as LA Innocence Project takes up murder case](https://www.yahoo.com/news/scott-peterson-appears-virtually-california-193719900.html)
-- Mar 12 - [University of Missouri student, 22, missing after he was asked to leave Nashville bar during fraternity trip](https://www.yahoo.com/news/university-missouri-student-22-missing-151645554.html)
-- Mar 12 - [Uvalde police chief who was on vacation during Robb Elementary shooting resigns](https://www.yahoo.com/news/uvalde-police-chief-vacation-during-190647314.html)
-- Mar 12 - [Miami-Dade family killed in murder-suicide were found over a week after shooting: cops](https://www.yahoo.com/news/miami-dade-family-killed-murder-190248388.html)
+- Mar 12 - [Trump's defense in hush money trial to stop short of blaming his lawyers](https://www.yahoo.com/news/trumps-defense-hush-money-trial-200605896.html)
+- Mar 12 - [Two elementary school teachers found dead in home in murder-suicide, Texas cops say](https://www.yahoo.com/news/two-elementary-school-teachers-found-200558504.html)
 <!-- feed end -->
 
 ### Onstream
