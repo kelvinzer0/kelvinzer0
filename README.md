@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [Stock market today: US stocks march higher after CPI surprise](https://finance.yahoo.com/news/stock-market-today-us-stocks-march-higher-after-cpi-surprise-133436610.html)
+- Mar 12 - [February's CPI data: Top takeaways](https://finance.yahoo.com/video/februarys-cpi-data-top-takeaways-133211510.html)
+- Mar 12 - [“Disturbing”: Experts alarmed after Judge Cannon “concerns” cause witness to complicate Trump case](https://www.yahoo.com/news/disturbing-experts-alarmed-judge-cannon-132605114.html)
+- Mar 12 - [Biden special counsel Robert Hur’s resignation from DOJ makes his testimony “even more problematic”](https://www.yahoo.com/news/biden-special-counsel-robert-hur-125446942.html)
 - Mar 12 - [Boeing whistleblower John Barnett found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
-- Mar 12 - [Donald Trump's New Nickname For Himself Has People Howling](https://www.yahoo.com/news/donald-trumps-nickname-himself-people-123859380.html)
-- Mar 12 - [Consumer prices rise more than forecast as inflation pressures persist](https://finance.yahoo.com/news/consumer-prices-rise-more-than-forecast-as-inflation-pressures-persist-123226166.html)
-- Mar 12 - [Warden is ousted as FBI raids California women's prison known as the 'rape club'](https://www.yahoo.com/news/warden-ousted-fbi-raids-california-120011970.html)
-- Mar 12 - [Transcript from documents probe contradicts Biden's account of exchange with Hur over son's death](https://www.yahoo.com/news/transcript-documents-probe-contradicts-bidens-120000959.html)
 <!-- feed end -->
 
 ### Onstream
