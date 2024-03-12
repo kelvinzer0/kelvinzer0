@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Melania Trump’s Ex-Aide Claims Donald Trump No Longer Displays ‘Chivalry’ Towards His Wife](https://www.yahoo.com/entertainment/melania-trump-ex-aide-claims-024721121.html)
+- Mar 12 - [Former Trump employee: Australian billionaire repeated sensitive information after Trump meeting](https://www.yahoo.com/news/former-trump-employee-australian-billionaire-041032515.html)
 - Mar 12 - [Trump’s freewheeling CNBC interview gives glimpse of the campaign to come](https://www.yahoo.com/news/trump-freewheeling-cnbc-interview-gives-224233509.html)
 - Mar 12 - [Philippines' says China's maritime-related proposals run contrary to its interests](https://www.yahoo.com/news/philippines-says-chinas-maritime-related-021247414.html)
 - Mar 12 - [New Zealand says seizing black boxes from LATAM Boeing 787](https://finance.yahoo.com/news/zealand-says-seizing-black-boxes-015100357.html)
-- Mar 12 - [Exclusive: ‘Trump Employee 5,’ who unknowingly helped move classified documents, speaks out](https://www.yahoo.com/news/exclusive-trump-employee-5-unknowingly-200501307.html)
+- Mar 12 - [Melania Trump's Ex-Aide Claims Donald Trump No Longer Displays 'Chivalry' Towards His Wife](https://www.yahoo.com/entertainment/melania-trump-ex-aide-claims-024721121.html)
 <!-- feed end -->
 
 ### Onstream
