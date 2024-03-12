@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Turkey's Erdogan warns against spreading Ukraine conflict to NATO, exacerbating war](https://www.yahoo.com/news/turkeys-erdogan-warns-against-spreading-183352053.html)
-- Mar 12 - [Passenger sexually assaults woman, assaults crew members on Delta flight, feds say](https://www.yahoo.com/news/passenger-sexually-assaults-woman-assaults-183204711.html)
-- Mar 12 - [Many Republicans plan to skip House GOP retreat as they grumble about location and spending time with one another](https://www.yahoo.com/news/many-republicans-plan-skip-house-175829671.html)
-- Mar 12 - ['Devastating': Missing Washington woman's body found in Mexican cemetery, police say](https://www.yahoo.com/news/devastating-missing-washington-womans-body-174459540.html)
-- Mar 12 - [“Can’t make it up”: Experts say transcript shows special counsel Robert Hur “lied” about Biden](https://www.yahoo.com/news/t-experts-transcript-shows-special-172637182.html)
+- Mar 12 - [Boeing whistleblower John Barnett found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
+- Mar 12 - [Scott Peterson appears virtually in California court as LA Innocence Project takes up murder case](https://www.yahoo.com/news/scott-peterson-appears-virtually-california-193719900.html)
+- Mar 12 - [University of Missouri student, 22, missing after he was asked to leave Nashville bar during fraternity trip](https://www.yahoo.com/news/university-missouri-student-22-missing-151645554.html)
+- Mar 12 - [Uvalde police chief who was on vacation during Robb Elementary shooting resigns](https://www.yahoo.com/news/uvalde-police-chief-vacation-during-190647314.html)
+- Mar 12 - [Miami-Dade family killed in murder-suicide were found over a week after shooting: cops](https://www.yahoo.com/news/miami-dade-family-killed-murder-190248388.html)
 <!-- feed end -->
 
 ### Onstream
