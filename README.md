@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [Criminal referrals emerge as possible 'exit strategy' of struggling Biden impeachment inquiry, sources say](https://www.yahoo.com/news/criminal-referrals-emerge-possible-exit-214922067.html)
+- Mar 12 - [Plane engine loses power minutes into flight — so pilot thinks fast and uses parachute](https://www.yahoo.com/news/plane-engine-loses-power-minutes-214921833.html)
 - Mar 12 - [Ghislaine Maxwell's lawyer tell appeals judges that Jeffrey Epstein's Florida plea deal protects her](https://www.yahoo.com/news/ghislaine-maxwells-lawyer-tell-appeals-213253889.html)
+- Mar 12 - [22-Year-Old Mizzou Student Goes Missing in Nashville](https://www.yahoo.com/news/22-old-mizzou-student-goes-205649315.html)
 - Mar 12 - [P.E. Teacher, 23, 'Felt Something Was Wrong' After First Marathon, Learns He Has Heart Disease a Week Later (Exclusive)](https://www.yahoo.com/entertainment/p-e-teacher-23-felt-201013198.html)
-- Mar 12 - [Boeing whistleblower John Barnett found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
-- Mar 12 - [Trump's defense in hush money trial to stop short of blaming his lawyers](https://www.yahoo.com/news/trumps-defense-hush-money-trial-200605896.html)
-- Mar 12 - [Two elementary school teachers found dead in home in murder-suicide, Texas cops say](https://www.yahoo.com/news/two-elementary-school-teachers-found-200558504.html)
 <!-- feed end -->
 
 ### Onstream
