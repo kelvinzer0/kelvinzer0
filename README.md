@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 11 - [Firefighters booed NY attorney general who prosecuted Trump. Officials are investigating](https://www.yahoo.com/news/firefighters-booed-ny-attorney-general-224321051.html)
+- Mar 12 - [An Alabama police officer was disciplined after he arrested a woman for refusing to show her ID](https://www.yahoo.com/news/alabama-police-officer-disciplined-arrested-002711785.html)
+- Mar 11 - [Biden slams Trump for floating cuts to Social Security, Medicare](https://www.yahoo.com/news/biden-slams-trump-floating-cuts-235451627.html)
+- Mar 11 - [Firefighters booed New York attorney general who sued Trump for fraud. Officials are investigating](https://www.yahoo.com/news/firefighters-booed-ny-attorney-general-224321051.html)
+- Mar 11 - [Trump’s freewheeling CNBC interview gives glimpse of the campaign to come](https://www.yahoo.com/news/trump-freewheeling-cnbc-interview-gives-224233509.html)
 - Mar 11 - [Wisconsin officials release names of 7 Virginia residents killed in crash that claimed 9 lives](https://www.yahoo.com/news/wisconsin-officials-release-names-7-224020308.html)
-- Mar 11 - [University of Missouri Student Missing After Reportedly Getting Kicked Out of Luke Bryan's Bar in Nashville](https://www.yahoo.com/entertainment/university-missouri-student-missing-reportedly-215510587.html)
-- Mar 11 - [Boeing whistleblower found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
-- Mar 11 - [Bloodbath at RNC: Trump team slashes staff at committee](https://www.yahoo.com/news/bloodbath-rnc-trump-team-slashes-213021123.html)
 <!-- feed end -->
 
 ### Onstream
