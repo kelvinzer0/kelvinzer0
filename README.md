@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [The Fed’s 2% inflation target is a source of growing liberal discontent](https://finance.yahoo.com/news/the-feds-2-inflation-target-is-a-source-of-growing-liberal-discontent-123104995.html)
-- Mar 12 - [FAA audit finds Boeing 737 production issues: NYT](https://finance.yahoo.com/video/faa-audit-finds-boeing-737-073205123.html)
+- Mar 12 - [LATAM passenger recalls flight plunge scare](https://www.yahoo.com/news/latam-passenger-recalls-flight-plunge-090820721.html)
+- Mar 12 - [Online influencer Andrew Tate detained in Romania, handed UK arrest warrant, his spokesperson says](https://www.yahoo.com/news/online-influencer-andrew-tate-detained-073750284.html)
+- Mar 12 - [India rejects China's objections to Modi's visit to Himalayan border state](https://www.yahoo.com/news/india-rejects-chinas-objections-modis-065217964.html)
 - Mar 12 - [Passenger on Boeing flight that suddenly dropped says pilot told him he lost control after instrument failure](https://www.yahoo.com/news/passenger-boeing-flight-suddenly-dropped-061959425.html)
 - Mar 12 - [Jon Stewart Taunts Sen. Katie Britt With 1 Burning Question About Her Biden Speech](https://www.yahoo.com/entertainment/jon-stewart-taunts-sen-katie-061929697.html)
-- Mar 12 - [An expanding NATO uses its diversity as strength. Member troops know Russia is watching](https://www.yahoo.com/news/expanding-nato-uses-diversity-strength-053555883.html)
 <!-- feed end -->
 
 ### Onstream
