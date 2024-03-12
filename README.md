@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [Hungary protests Biden's 'dictatorship' comments about Orban](https://www.yahoo.com/news/hungary-protests-bidens-dictatorship-comments-144920146.html)
+- Mar 12 - [Boeing woes: FAA audit, Southwest impact, whistleblower found dead](https://finance.yahoo.com/video/boeing-woes-faa-audit-southwest-141437004.html)
+- Mar 12 - [7 Things You Should Know If You Withdraw More Than $5,000 From Your Checking Account](https://finance.yahoo.com/news/7-things-know-withdraw-more-140102839.html)
+- Mar 12 - [Inside the organized crime rings plaguing retailers including Ulta, T.J. Maxx and Walgreens](https://www.yahoo.com/news/inside-organized-crime-rings-plaguing-134737481.html)
 - Mar 12 - [Stock market today: US stocks march higher after CPI surprise](https://finance.yahoo.com/news/stock-market-today-us-stocks-march-higher-after-cpi-surprise-133436610.html)
-- Mar 12 - [February's CPI data: Top takeaways](https://finance.yahoo.com/video/februarys-cpi-data-top-takeaways-133211510.html)
-- Mar 12 - [“Disturbing”: Experts alarmed after Judge Cannon “concerns” cause witness to complicate Trump case](https://www.yahoo.com/news/disturbing-experts-alarmed-judge-cannon-132605114.html)
-- Mar 12 - [Biden special counsel Robert Hur’s resignation from DOJ makes his testimony “even more problematic”](https://www.yahoo.com/news/biden-special-counsel-robert-hur-125446942.html)
-- Mar 12 - [Boeing whistleblower John Barnett found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
 <!-- feed end -->
 
 ### Onstream
