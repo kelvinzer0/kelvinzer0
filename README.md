@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Indonesia to deport Japanese man accused of role in $90 million investment fraud](https://www.yahoo.com/news/indonesia-deport-japanese-man-accused-063020325.html)
-- Mar 12 - [Former Trump employee recounts situation where he thinks foreign businessman obtained sensitive information from meeting with Trump](https://www.yahoo.com/news/former-trump-employee-australian-billionaire-041032515.html)
-- Mar 12 - [UN envoy: Finding that some hostages were victims of sexual violence doesn't justify Israeli attacks](https://www.yahoo.com/news/un-envoy-finding-hostages-were-050847597.html)
-- Mar 12 - [Trump’s freewheeling CNBC interview gives glimpse of the campaign to come](https://www.yahoo.com/news/trump-freewheeling-cnbc-interview-gives-224233509.html)
-- Mar 12 - [Philippines' says China's maritime-related proposals run contrary to its interests](https://www.yahoo.com/news/philippines-says-chinas-maritime-related-021247414.html)
+- Mar 12 - [The Fed’s 2% inflation target is a source of growing liberal discontent](https://finance.yahoo.com/news/the-feds-2-inflation-target-is-a-source-of-growing-liberal-discontent-123104995.html)
+- Mar 12 - [FAA audit finds Boeing 737 production issues: NYT](https://finance.yahoo.com/video/faa-audit-finds-boeing-737-073205123.html)
+- Mar 12 - [Passenger on Boeing flight that suddenly dropped says pilot told him he lost control after instrument failure](https://www.yahoo.com/news/passenger-boeing-flight-suddenly-dropped-061959425.html)
+- Mar 12 - [Jon Stewart Taunts Sen. Katie Britt With 1 Burning Question About Her Biden Speech](https://www.yahoo.com/entertainment/jon-stewart-taunts-sen-katie-061929697.html)
+- Mar 12 - [An expanding NATO uses its diversity as strength. Member troops know Russia is watching](https://www.yahoo.com/news/expanding-nato-uses-diversity-strength-053555883.html)
 <!-- feed end -->
 
 ### Onstream
