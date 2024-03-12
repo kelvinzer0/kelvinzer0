@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [‘Ludicrous, embarrassing spectacle’: Rep. Raskin claps back at GOP colleagues](https://www.yahoo.com/news/ludicrous-embarrassing-spectacle-rep-raskin-162040634.html)
+- Mar 12 - [Legal analyst: Cannon just “quickly” gave Trump’s lawyers extension to “reply to their own motions”](https://www.yahoo.com/news/legal-analyst-cannon-just-quickly-161157664.html)
+- Mar 12 - [Looks like Tesla was serious with its Cybertruck flipping threats](https://www.autoblog.com/2024/03/12/looks-like-tesla-was-serious-with-its-cybertruck-flipping-threats/)
 - Mar 12 - [Stock market today: US stocks march higher after CPI surprise](https://finance.yahoo.com/news/stock-market-today-us-stocks-march-higher-after-cpi-surprise-133436610.html)
 - Mar 12 - [University of Missouri student, 22, missing after he was asked to leave Nashville bar during fraternity trip](https://www.yahoo.com/news/university-missouri-student-22-missing-151645554.html)
-- Mar 12 - [North Carolina judges block elections board changes pushed by Republicans that weaken governor](https://www.yahoo.com/news/north-carolina-judges-block-elections-151315014.html)
-- Mar 12 - [The Real Story on Inflation: Breaking Down the February CPI Report](https://finance.yahoo.com/video/real-story-inflation-breaking-down-143700310.html)
-- Mar 12 - [A Jewish passenger is suing JetBlue claiming religious discrimination after he was thrown off a plane following his refusal to sit next to a woman](https://www.yahoo.com/news/jewish-passenger-suing-jetblue-claiming-143025268.html)
 <!-- feed end -->
 
 ### Onstream
