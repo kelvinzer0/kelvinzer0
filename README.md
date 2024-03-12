@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 12 - [What we know about the Princess of Wales's 'manipulated' family photo](https://www.yahoo.com/news/what-we-know-princess-wales-kate-photo-manipulated-093844101.html)
+- Mar 12 - [Passenger on Boeing flight that suddenly dropped says pilot told him he lost control after instrument failure](https://www.yahoo.com/lifestyle/passenger-boeing-flight-suddenly-dropped-061959425.html)
+- Mar 12 - ["Obviously low IQ": Former DHS official says "Donald Trump has apparent repeated memory lapses"](https://www.yahoo.com/news/obviously-low-iq-former-dhs-094503806.html)
 - Mar 12 - [Boeing whistleblower found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
-- Mar 12 - [LATAM passenger recalls flight plunge scare](https://www.yahoo.com/news/latam-passenger-recalls-flight-plunge-090820721.html)
 - Mar 12 - [Ukraine-based Russian armed groups say they have launched incursion into Russia](https://finance.yahoo.com/news/ukraine-based-russian-armed-groups-080418657.html)
-- Mar 12 - [Online influencer Andrew Tate detained in Romania, handed UK arrest warrant, his spokesperson says](https://www.yahoo.com/news/online-influencer-andrew-tate-detained-073750284.html)
-- Mar 12 - [India rejects China's objections to Modi's visit to Himalayan border state](https://www.yahoo.com/news/india-rejects-chinas-objections-modis-065217964.html)
 <!-- feed end -->
 
 ### Onstream
