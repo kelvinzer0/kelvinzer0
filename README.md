@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Boeing whistleblower found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
-- Mar 12 - [Robert De Niro Bleeped As He Sums Up His Thoughts On Trump In 4 Short Words](https://www.yahoo.com/entertainment/robert-niro-bleeped-sums-thoughts-103539207.html)
-- Mar 12 - [Chemtrails are one of the most popular conspiracy theories. Here’s what it means](https://www.yahoo.com/news/chemtrails-one-most-popular-conspiracy-100037741.html)
-- Mar 12 - [Russia reports Ukrainian drone strikes on targets deep inside its territory and a border incursion](https://www.yahoo.com/news/russia-reports-ukrainian-drone-strikes-094644024.html)
-- Mar 12 - [Passenger on Boeing flight that suddenly dropped says pilot told him he lost control after instrument failure](https://www.yahoo.com/lifestyle/passenger-boeing-flight-suddenly-dropped-061959425.html)
+- Mar 12 - [Boeing whistleblower John Barnett found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
+- Mar 12 - [Donald Trump's New Nickname For Himself Has People Howling](https://www.yahoo.com/news/donald-trumps-nickname-himself-people-123859380.html)
+- Mar 12 - [Consumer prices rise more than forecast as inflation pressures persist](https://finance.yahoo.com/news/consumer-prices-rise-more-than-forecast-as-inflation-pressures-persist-123226166.html)
+- Mar 12 - [Warden is ousted as FBI raids California women's prison known as the 'rape club'](https://www.yahoo.com/news/warden-ousted-fbi-raids-california-120011970.html)
+- Mar 12 - [Transcript from documents probe contradicts Biden's account of exchange with Hur over son's death](https://www.yahoo.com/news/transcript-documents-probe-contradicts-bidens-120000959.html)
 <!-- feed end -->
 
 ### Onstream
