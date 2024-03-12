@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 12 - [Witnesses Claim Tenn. Man Who Died After 'Altercation' with Security Guard Was Attacked From Behind: Family](https://www.yahoo.com/entertainment/witnesses-claim-tenn-man-died-201103317.html)
+- Mar 12 - [Ghislaine Maxwell's lawyer tell appeals judges that Jeffrey Epstein's Florida plea deal protects her](https://www.yahoo.com/news/ghislaine-maxwells-lawyer-tell-appeals-213253889.html)
 - Mar 12 - [P.E. Teacher, 23, 'Felt Something Was Wrong' After First Marathon, Learns He Has Heart Disease a Week Later (Exclusive)](https://www.yahoo.com/entertainment/p-e-teacher-23-felt-201013198.html)
 - Mar 12 - [Boeing whistleblower John Barnett found dead in US](https://www.yahoo.com/news/boeing-whistleblower-found-dead-us-211331098.html)
 - Mar 12 - [Trump's defense in hush money trial to stop short of blaming his lawyers](https://www.yahoo.com/news/trumps-defense-hush-money-trial-200605896.html)
