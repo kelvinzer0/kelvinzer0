@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 13 - [Former Teachers Are Recalling The "Final Straw" Moments That Made Them Quit Education For Good](https://www.yahoo.com/lifestyle/former-teachers-recalling-final-straw-221603335.html)
 - Mar 13 - [LGBTQ teen Nex Benedict died by suicide, medical examiner says](https://www.yahoo.com/news/lgbtq-teen-nex-benedict-died-210000288.html)
+- Mar 13 - [Sen. Katie Britt says House Speaker Mike Johnson told her to ignore 'horror stories' before her State of the Union response](https://www.yahoo.com/news/sen-katie-britt-says-house-214646486.html)
 - Mar 13 - [South Dakota legislator calls for inquiry into Gov. Noem's Texas dental trip and promo video](https://www.yahoo.com/news/south-dakota-legislator-calls-inquiry-210317163.html)
 - Mar 13 - [100-year-old giant snapping alligator turtle disappears on North Carolina highway to reptile expo](https://www.yahoo.com/news/100-old-snapping-turtle-mysteriously-191657109.html)
-- Mar 13 - [California mom alleged 'ringleader' behind $8M retail theft ring that hit over 200 Ulta stores, others: AG](https://www.yahoo.com/news/california-mom-alleged-ringleader-behind-185020113.html)
-- Mar 13 - [Student pilot allegedly tries to storm Alaska Airlines cockpit multiple times midflight](https://www.yahoo.com/news/student-pilot-allegedly-tries-storm-184307806.html)
 <!-- feed end -->
 
 ### Onstream
