@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 13 - [LGBTQ teen Nex Benedict died by suicide, medical examiner says](https://www.yahoo.com/news/lgbtq-teen-nex-benedict-died-210000288.html)
+- Mar 13 - [South Dakota legislator calls for inquiry into Gov. Noem's Texas dental trip and promo video](https://www.yahoo.com/news/south-dakota-legislator-calls-inquiry-210317163.html)
 - Mar 13 - [100-year-old giant snapping alligator turtle disappears on North Carolina highway to reptile expo](https://www.yahoo.com/news/100-old-snapping-turtle-mysteriously-191657109.html)
+- Mar 13 - [California mom alleged 'ringleader' behind $8M retail theft ring that hit over 200 Ulta stores, others: AG](https://www.yahoo.com/news/california-mom-alleged-ringleader-behind-185020113.html)
 - Mar 13 - [Student pilot allegedly tries to storm Alaska Airlines cockpit multiple times midflight](https://www.yahoo.com/news/student-pilot-allegedly-tries-storm-184307806.html)
-- Mar 13 - ['We don't take sides,' CEO of company that guaranteed Trump's $92M bond tells shareholders](https://www.yahoo.com/news/dont-sides-ceo-company-guaranteed-183421567.html)
-- Mar 13 - [Decades-Submerged Corvette Rescued from Oregon River](https://www.yahoo.com/news/decades-submerged-corvette-rescued-oregon-183000619.html)
-- Mar 13 - [McDowell now uncontested in North Carolina House race after ex-Rep. Walker declines runoff](https://www.yahoo.com/news/mcdowell-now-uncontested-north-carolina-182051856.html)
 <!-- feed end -->
 
 ### Onstream
