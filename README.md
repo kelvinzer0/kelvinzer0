@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 13 - [Russia says it is alarmed by 'insulting rhetoric' and ultimatums from Armenian leadership](https://www.yahoo.com/news/russia-says-alarmed-insulting-rhetoric-143244985.html)
+- Mar 13 - [Judge dismisses some charges against Trump in the Georgia 2020 election interference case](https://www.yahoo.com/news/judge-overseeing-georgia-election-interference-141349089.html)
 - Mar 13 - [Donald Trump Flips Out At Democrats' Mocking Montages With Massive Self-Own](https://www.yahoo.com/news/donald-trump-flips-democrats-mocking-135554886.html)
+- Mar 13 - [Mike Johnson “blindsided” as abrupt departure shrinks GOP majority — and puts Lauren Boebert at risk](https://www.yahoo.com/news/mike-johnson-blindsided-abrupt-departure-131740116.html)
 - Mar 13 - [How the Czech Republic has just stopped Putin cold and saved Ukraine](https://www.yahoo.com/news/czech-republic-just-stopped-putin-130207886.html)
-- Mar 13 - [America’s Secret Hypersonic Weapon Is About to Stun the Pacific](https://www.yahoo.com/tech/america-secret-hypersonic-weapon-stun-123000519.html)
-- Mar 13 - [Billionaire Dies After Accidentally Backing Tesla Into Pond](https://www.yahoo.com/news/billionaire-dies-accidentally-backing-tesla-122702324.html)
-- Mar 13 - [Stephan Sterns faces 60 new child sex abuse charges in connection to Madeline Soto's death](https://www.yahoo.com/news/stephan-sterns-faces-60-child-120457791.html)
 <!-- feed end -->
 
 ### Onstream
