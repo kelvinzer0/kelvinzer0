@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 13 - [2 men charged with blowing up woman's home, planning to use large python to eat her daughter](https://www.yahoo.com/news/2-men-charged-blowing-womans-085220995.html)
 - Mar 13 - [Conservative pundit says retirement 'is a stupid idea.' I agree. Let us work until we die.](https://www.yahoo.com/news/conservative-pundit-says-retirement-stupid-080600663.html)
 - Mar 13 - [Suspect in LSU student attack claims victim's romantic history 'crucial' to defense](https://www.yahoo.com/news/suspect-lsu-student-attack-claims-080046315.html)
 - Mar 13 - [American texted friend just before dying on flight from Dominican Republic after resort vacation](https://www.yahoo.com/news/american-texted-friend-just-dying-080010029.html)
 - Mar 13 - [Lara Trump's Boast About Her Father-In-Law Prompts A Brutal Reminder](https://www.yahoo.com/news/lara-trumps-boast-her-father-062016633.html)
-- Mar 13 - [Fisherman’s Hand Bitten Off After Being Attacked by Alligator on Golf Course: ‘His Hand Is Gone’](https://www.yahoo.com/entertainment/fisherman-hand-bitten-off-being-050800058.html)
 <!-- feed end -->
 
 ### Onstream
