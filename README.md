@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 13 - [Lara Trump's Boast About Her Father-In-Law Prompts A Brutal Reminder](https://www.yahoo.com/news/lara-trumps-boast-her-father-062016633.html)
 - Mar 13 - [Putin warns the West: Russia is ready for nuclear war](https://www.yahoo.com/news/putin-says-russia-ready-nuclear-035128076.html)
 - Mar 13 - [South Dakota gov. promotes work on her teeth by Texas dentist in infomercial-style social media post](https://www.yahoo.com/news/south-dakota-gov-promotes-her-034846005.html)
 - Mar 13 - [Lauren Boebert says special election triggered by Ken Buck's resignation is 'swampy' and could 'confuse voters'](https://www.yahoo.com/news/lauren-boebert-says-special-election-014145788.html)
 - Mar 13 - [SXSW Responds To Texas Governor’s “Don’t Come Back” Comment After Musicians Drop Out Of Fest Protesting Military Ties](https://www.yahoo.com/entertainment/sxsw-responds-texas-governor-don-012916423.html)
-- Mar 13 - [Dallas man bonds out of jail after allegedly running through stop sign at nearly 70 mph, killing young couple](https://www.yahoo.com/news/dallas-man-bonds-jail-allegedly-003741792.html)
 <!-- feed end -->
 
 ### Onstream
