@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 13 - [Man rapes 17-year-old he kept hostage for days, then she escapes, California cops say](https://www.yahoo.com/news/man-rapes-17-old-kept-174938555.html)
-- Mar 13 - [South Africa's foreign minister says citizens fighting with Israeli forces in Gaza will be arrested](https://www.yahoo.com/news/south-africas-foreign-minister-says-173013881.html)
-- Mar 13 - [Pageant queen. Go-getter. NFL wife. Senator. ‘SNL’ target: The ascent of Katie Britt](https://www.yahoo.com/news/pageant-queen-getter-nfl-wife-172625274.html)
-- Mar 13 - [Migrant Children Sell Candy on the Subway. New York Has No Solutions.](https://www.yahoo.com/news/migrant-children-sell-candy-subway-171454879.html)
-- Mar 13 - [500 pounds of pure snake: Massive python nest snagged in Southwest Florida](https://www.yahoo.com/news/500-pounds-pure-snake-massive-164103848.html)
+- Mar 13 - [Student pilot allegedly tries to storm Alaska Airlines cockpit multiple times midflight](https://www.yahoo.com/news/student-pilot-allegedly-tries-storm-184307806.html)
+- Mar 13 - ['We don't take sides,' CEO of company that guaranteed Trump's $92M bond tells shareholders](https://www.yahoo.com/news/dont-sides-ceo-company-guaranteed-183421567.html)
+- Mar 13 - [How big is Russia’s nuclear arsenal?](https://www.yahoo.com/news/big-russia-nuclear-arsenal-183343482.html)
+- Mar 13 - [McDowell now uncontested in North Carolina House race after ex-Rep. Walker declines runoff](https://www.yahoo.com/news/mcdowell-now-uncontested-north-carolina-182051856.html)
+- Mar 13 - [Judge schedules sentencing for movie armorer in fatal shooting by Alec Baldwin](https://www.yahoo.com/news/judge-schedules-sentencing-movie-armorer-181532259.html)
 <!-- feed end -->
 
 ### Onstream
