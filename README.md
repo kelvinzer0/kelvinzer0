@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 13 - [Horse rescued from a trench by firefighters and vets](https://www.yahoo.com/news/horse-rescued-trench-firefighters-vets-014443941.html)
+- Mar 13 - [Robert F. Kennedy Jr. is considering Aaron Rodgers or Jesse Ventura for a 2024 running mate](https://www.yahoo.com/news/robert-f-kennedy-jr-considering-011458803.html)
 - Mar 12 - [Staff at a Virginia wildlife center pretend to be red foxes as they care for an orphaned kit](https://www.yahoo.com/news/staff-virginia-wildlife-center-pretend-234824200.html)
 - Mar 12 - [Criminal referrals emerge as possible 'exit strategy' of struggling Biden impeachment inquiry, sources say](https://www.yahoo.com/news/criminal-referrals-emerge-possible-exit-214922067.html)
 - Mar 12 - [Plane engine loses power minutes into flight — so pilot thinks fast and uses parachute](https://www.yahoo.com/news/plane-engine-loses-power-minutes-214921833.html)
-- Mar 12 - [Ghislaine Maxwell's lawyer tell appeals judges that Jeffrey Epstein's Florida plea deal protects her](https://www.yahoo.com/news/ghislaine-maxwells-lawyer-tell-appeals-213253889.html)
-- Mar 12 - [P.E. Teacher, 23, 'Felt Something Was Wrong' After First Marathon, Learns He Has Heart Disease a Week Later (Exclusive)](https://www.yahoo.com/entertainment/p-e-teacher-23-felt-201013198.html)
 <!-- feed end -->
 
 ### Onstream
