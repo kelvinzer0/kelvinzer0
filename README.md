@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 13 - [Putin says Russia ready for nuclear war, but 'not everything rushing to it'](https://www.yahoo.com/news/putin-says-russia-ready-nuclear-035128076.html)
-- Mar 13 - [Lauren Boebert says special election triggered by Ken Buck's resignation is 'swampy' and could 'confuse voters'](https://www.yahoo.com/news/lauren-boebert-says-special-election-014145788.html)
+- Mar 13 - [South Dakota gov. promotes work on her teeth by Texas dentist in infomercial-style social media post](https://www.yahoo.com/news/south-dakota-gov-promotes-her-034846005.html)
 - Mar 13 - [SXSW Responds To Texas Governor’s “Don’t Come Back” Comment After Musicians Drop Out Of Fest Protesting Military Ties](https://www.yahoo.com/entertainment/sxsw-responds-texas-governor-don-012916423.html)
-- Mar 13 - [Robert F. Kennedy Jr. is considering Aaron Rodgers or Jesse Ventura for a 2024 running mate](https://www.yahoo.com/news/robert-f-kennedy-jr-considering-011458803.html)
 - Mar 13 - [Dallas man bonds out of jail after allegedly running through stop sign at nearly 70 mph, killing young couple](https://www.yahoo.com/news/dallas-man-bonds-jail-allegedly-003741792.html)
+- Mar 13 - [Montana Man Pleads Guilty to Creating Massive Franken-Sheep With Cloned Animal Parts](https://www.yahoo.com/tech/montana-man-pleads-guilty-creating-003000858.html)
 <!-- feed end -->
 
 ### Onstream
