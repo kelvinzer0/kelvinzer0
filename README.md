@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 13 - [Scott Peterson, killer of pregnant wife, sports new look in court in latest bid for freedom](https://www.yahoo.com/news/scott-peterson-killer-pregnant-wife-110040324.html)
-- Mar 13 - [Putin Recalls Trump Acting Like Jealous GF in Private](https://www.yahoo.com/news/putin-recalls-trump-acting-jealous-102358021.html)
-- Mar 13 - [Cheney fuels speculation about her next move](https://www.yahoo.com/news/cheney-fuels-speculation-her-next-100000981.html)
-- Mar 13 - [2 men charged with blowing up woman's home, planning to use large python to eat her daughter](https://www.yahoo.com/news/2-men-charged-blowing-womans-085220995.html)
-- Mar 13 - [Conservative pundit says retirement 'is a stupid idea.' I agree. Let us work until we die.](https://www.yahoo.com/news/conservative-pundit-says-retirement-stupid-080600663.html)
+- Mar 13 - [Donald Trump Flips Out At Democrats' Mocking Montages With Massive Self-Own](https://www.yahoo.com/news/donald-trump-flips-democrats-mocking-135554886.html)
+- Mar 13 - [How the Czech Republic has just stopped Putin cold and saved Ukraine](https://www.yahoo.com/news/czech-republic-just-stopped-putin-130207886.html)
+- Mar 13 - [America’s Secret Hypersonic Weapon Is About to Stun the Pacific](https://www.yahoo.com/tech/america-secret-hypersonic-weapon-stun-123000519.html)
+- Mar 13 - [Billionaire Dies After Accidentally Backing Tesla Into Pond](https://www.yahoo.com/news/billionaire-dies-accidentally-backing-tesla-122702324.html)
+- Mar 13 - [Stephan Sterns faces 60 new child sex abuse charges in connection to Madeline Soto's death](https://www.yahoo.com/news/stephan-sterns-faces-60-child-120457791.html)
 <!-- feed end -->
 
 ### Onstream
