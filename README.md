@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 13 - [Man rapes 17-year-old he kept hostage for days, then she escapes, California cops say](https://www.yahoo.com/news/man-rapes-17-old-kept-174938555.html)
+- Mar 13 - [South Africa's foreign minister says citizens fighting with Israeli forces in Gaza will be arrested](https://www.yahoo.com/news/south-africas-foreign-minister-says-173013881.html)
+- Mar 13 - [Pageant queen. Go-getter. NFL wife. Senator. ‘SNL’ target: The ascent of Katie Britt](https://www.yahoo.com/news/pageant-queen-getter-nfl-wife-172625274.html)
+- Mar 13 - [Migrant Children Sell Candy on the Subway. New York Has No Solutions.](https://www.yahoo.com/news/migrant-children-sell-candy-subway-171454879.html)
 - Mar 13 - [500 pounds of pure snake: Massive python nest snagged in Southwest Florida](https://www.yahoo.com/news/500-pounds-pure-snake-massive-164103848.html)
-- Mar 13 - [Shakeup continues at Disney district a year after takeover by DeSantis appointees](https://www.yahoo.com/news/shakeup-continues-disney-district-takeover-160814349.html)
-- Mar 13 - [Landslide destroys Los Angeles home and threatens at least two others](https://www.yahoo.com/news/landslide-destroys-los-angeles-home-155155580.html)
-- Mar 13 - [Hunter Biden rebuffs Republicans' invitation to appear for a public hearing](https://www.yahoo.com/news/hunter-biden-rebuffs-republicans-invitation-151436228.html)
-- Mar 13 - [Russia says it is alarmed by 'insulting rhetoric' and ultimatums from Armenian leadership](https://www.yahoo.com/news/russia-says-alarmed-insulting-rhetoric-143244985.html)
 <!-- feed end -->
 
 ### Onstream
