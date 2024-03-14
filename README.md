@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - [Terrified residents of San Francisco's Tenderloin district sue for streets free of drugs, tents](https://www.yahoo.com/news/terrified-residents-san-franciscos-tenderloin-211651647.html)
+- Mar 14 - [Mortgage rates dip two weeks in a row, refinancing demand up](https://finance.yahoo.com/video/mortgage-rates-dip-two-weeks-210957176.html)
 - Mar 14 - [GOP nominee to run North Carolina public schools called for violence against Democrats, including executing Obama and Biden](https://www.yahoo.com/news/gop-nominee-run-north-carolina-200002143.html)
-- Mar 14 - [Woman insists roommate get rid of 6 cats, so he shoots her 10 times, Florida cops say](https://www.yahoo.com/news/woman-insists-roommate-rid-6-195322609.html)
-- Mar 14 - [Rep. Matt Gaetz subpoenaed in defamation suit by woman he allegedly had sex with as minor: Sources](https://www.yahoo.com/news/rep-matt-gaetz-subpoenaed-defamation-175400975.html)
 - Mar 14 - [6 eighth graders face criminal charges over 'hateful and racist' online chat: DA](https://www.yahoo.com/news/6-eighth-graders-face-criminal-193701713.html)
 - Mar 14 - [Kamila Valieva: Russian figure skater given 56 medications and supplements over two years](https://sports.yahoo.com/kamila-valieva-russian-figure-skater-184615260.html)
 <!-- feed end -->
