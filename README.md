@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - [Family of Sloan Mattingly, 7-year-old girl who died after getting buried in sand, speaks out](https://www.yahoo.com/news/family-sloan-mattingly-7-old-101800922.html)
+- Mar 14 - [Exclusive-Trump launched CIA covert influence operation against China](https://www.yahoo.com/news/exclusive-trump-launched-cia-covert-100648423.html)
+- Mar 14 - [San Antonio experimented with giving people $5,108 no-strings-attached. They spent it on housing and school supplies for their kids.](https://www.yahoo.com/news/san-antonio-experimented-giving-people-100301935.html)
 - Mar 14 - [Stephen Colbert Clowns Lara Trump For Doing What 'No One' Thought Was Possible](https://www.yahoo.com/entertainment/stephen-colbert-clowns-lara-trump-061943396.html)
-- Mar 14 - [West Point military academy drops 'Duty, Honor, Country' from mission statement](https://www.yahoo.com/news/west-point-military-academy-drops-055505015.html)
 - Mar 14 - [Judge to hear arguments on whether to dismiss Trump's classified documents prosecution](https://www.yahoo.com/news/judge-hear-arguments-whether-dismiss-040843257.html)
-- Mar 14 - [Man Who 'Snapped' After Seeing His Girlfriend Kiss Her Female Friend Convicted of Double Murder](https://www.yahoo.com/entertainment/man-snapped-seeing-girlfriend-kiss-035639793.html)
-- Mar 14 - [Georgia woman gets stuck under conveyor, dies while trying to get AirPod, authorities say](https://www.yahoo.com/news/georgia-woman-gets-stuck-under-021951299.html)
 <!-- feed end -->
 
 ### Onstream
