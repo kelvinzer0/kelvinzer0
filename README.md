@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - [Georgia woman gets stuck under conveyor, dies while trying to get AirPod, authorities say](https://www.yahoo.com/news/georgia-woman-gets-stuck-under-021951299.html)
 - Mar 14 - [North Korea's Kim drives new-type tank during drills and calls for efforts to prepare for war](https://www.yahoo.com/news/north-koreas-kim-drives-type-002854620.html)
-- Mar 13 - [Movement of pilot's seat a focus of probe into LATAM Boeing flight, report says](https://finance.yahoo.com/news/pilot-seat-movement-focus-probe-235431287.html)
+- Mar 13 - [Movement of pilot's seat a focus of probe into LATAM Boeing flight, report says](https://finance.yahoo.com/news/pilot-seat-movement-focus-probe-235431466.html)
 - Mar 13 - [NY sergeant killed in line of duty after attack with metal necklace chain: Police](https://www.yahoo.com/news/ny-sergeant-killed-line-duty-224222374.html)
 - Mar 13 - [Speaker Johnson: ‘There will probably be a change’ to motion to vacate next Congress](https://www.yahoo.com/news/speaker-johnson-probably-change-motion-222635481.html)
-- Mar 13 - ["I Threw In My Hat After Being In The Same District For Over 20 Years": Teachers Who Quit To Pursue Other Careers Share Their "Final Straw" Moments](https://www.yahoo.com/lifestyle/former-teachers-recalling-final-straw-221603335.html)
 <!-- feed end -->
 
 ### Onstream
