@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - [US Senate top Republican McConnell criticizes anti 'judge shopping' policy](https://www.yahoo.com/news/us-senate-top-republican-mcconnell-155342634.html)
+- Mar 14 - [Details reveal the desperate attempt to save CEO Angela Chao, trapped in a submerged Tesla](https://www.yahoo.com/news/details-reveal-desperate-attempt-save-153911344.html)
+- Mar 14 - [Python farming could offer one of the most sustainable sources of meat in the world, according to a new study](https://www.yahoo.com/news/python-farming-could-offer-one-150101771.html)
 - Mar 14 - [Residents face bill to clean up giant rubbish pile left by fly-tippers](https://www.yahoo.com/news/residents-private-road-face-bill-141703857.html)
-- Mar 14 - [There is only one thing that matters about Donald Trump — and it’s not his crimes or mental decline](https://www.yahoo.com/news/only-one-thing-matters-donald-131735426.html)
-- Mar 14 - [LGBTQ teen Nex Benedict died by suicide, medical examiner says](https://www.yahoo.com/news/lgbtq-teen-nex-benedict-died-210000288.html)
-- Mar 14 - [Blood pressure is best lowered by 2 exercises, study finds](https://www.yahoo.com/lifestyle/2-exercises-best-lowering-blood-223926547.html)
-- Mar 14 - [Family of Sloan Mattingly, 7-year-old girl who died after getting buried in sand, speaks out](https://www.yahoo.com/news/family-sloan-mattingly-7-old-101800922.html)
+- Mar 14 - [Record-breaking supersonic Concorde airplane floats down New York’s Hudson River](https://www.yahoo.com/lifestyle/record-breaking-supersonic-concorde-airplane-141619973.html)
 <!-- feed end -->
 
 ### Onstream
