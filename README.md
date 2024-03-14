@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - [Lyft and Uber say they will leave Minneapolis after city council forces them to pay drivers more](https://www.yahoo.com/news/lyft-uber-leave-minneapolis-city-223347347.html)
+- Mar 14 - [Off-Duty Police Officer Punches Driver in the Face](https://www.yahoo.com/news/off-duty-police-officer-punches-220802630.html)
+- Mar 14 - [CNN reporter describes Trump’s behavior in the courtroom](https://www.yahoo.com/news/cnn-reporter-describes-trump-behavior-213339399.html)
 - Mar 14 - [Terrified residents of San Francisco's Tenderloin district sue for streets free of drugs, tents](https://www.yahoo.com/news/terrified-residents-san-franciscos-tenderloin-211651647.html)
-- Mar 14 - [Mortgage rates dip two weeks in a row, refinancing demand up](https://finance.yahoo.com/video/mortgage-rates-dip-two-weeks-210957176.html)
 - Mar 14 - [GOP nominee to run North Carolina public schools called for violence against Democrats, including executing Obama and Biden](https://www.yahoo.com/news/gop-nominee-run-north-carolina-200002143.html)
-- Mar 14 - [6 eighth graders face criminal charges over 'hateful and racist' online chat: DA](https://www.yahoo.com/news/6-eighth-graders-face-criminal-193701713.html)
-- Mar 14 - [Kamila Valieva: Russian figure skater given 56 medications and supplements over two years](https://sports.yahoo.com/kamila-valieva-russian-figure-skater-184615260.html)
 <!-- feed end -->
 
 ### Onstream
