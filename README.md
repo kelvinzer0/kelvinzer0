@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 14 - [Ex-Trump White House official convicted of contempt must report to prison, appeals court finds](https://www.yahoo.com/news/ex-trump-white-house-official-184055247.html)
-- Mar 14 - [New Jersey voters may soon decide whether they have a right to a clean environment](https://www.yahoo.com/news/jersey-voters-may-soon-decide-182213795.html)
-- Mar 14 - [Indian schoolgirl who became a film star and won an Oscar back living in poverty](https://www.yahoo.com/news/indian-schoolgirl-became-film-star-180101451.html)
-- Mar 14 - [Duty, Honor, Outrage: Change to West Point's mission statement sparks controversy](https://www.yahoo.com/news/duty-honor-outrage-change-west-175700980.html)
 - Mar 14 - [Rep. Matt Gaetz subpoenaed in defamation suit by woman he allegedly had sex with as minor: Sources](https://www.yahoo.com/news/rep-matt-gaetz-subpoenaed-defamation-175400975.html)
+- Mar 14 - [6 eighth graders face criminal charges over 'hateful and racist' online chat: DA](https://www.yahoo.com/news/6-eighth-graders-face-criminal-193701713.html)
+- Mar 14 - [Kamila Valieva: Russian figure skater given 56 medications and supplements over two years](https://sports.yahoo.com/kamila-valieva-russian-figure-skater-184615260.html)
+- Mar 14 - [New Jersey voters may soon decide whether they have a right to a clean environment](https://www.yahoo.com/news/jersey-voters-may-soon-decide-182213795.html)
+- Mar 14 - [Navy fires USS Ohio submarine commanding officer](https://www.yahoo.com/news/navy-fires-uss-ohio-submarine-182122839.html)
 <!-- feed end -->
 
 ### Onstream
