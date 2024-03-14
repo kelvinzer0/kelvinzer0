@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - [Rep. Matt Gaetz subpoenaed in defamation suit by woman he allegedly had sex with as minor: Sources](https://www.yahoo.com/news/rep-matt-gaetz-subpoenaed-defamation-175400975.html)
+- Mar 14 - [Aaron Rodgers says 'Sandy Hook was an absolute tragedy' in wake of report he believed in conspiracy theory](https://sports.yahoo.com/aaron-rodgers-says-sandy-hook-was-an-absolute-tragedy-in-wake-of-report-he-believed-in-conspiracy-theory-171408515.html)
+- Mar 14 - [A girl is in critical condition after a fight caught on video shows another girl slamming her head to the ground repeatedly](https://www.yahoo.com/news/girl-critical-condition-fight-caught-165626362.html)
+- Mar 14 - [Fishermen using sonar equipment find car at bottom of Illinois river connected to 1976 cold case disappearance](https://www.yahoo.com/news/fishermen-using-sonar-equipment-car-163216183.html)
 - Mar 14 - [Wriggling gold: Fishermen who catch baby eels for $2,000 a pound hope for many years of fishing](https://www.yahoo.com/news/wriggling-gold-fishermen-catch-baby-160819439.html)
-- Mar 14 - [US Senate top Republican McConnell criticizes anti 'judge shopping' policy](https://www.yahoo.com/news/us-senate-top-republican-mcconnell-155342634.html)
-- Mar 14 - [Who will win the US election? Our expert predictions on the next president](https://www.yahoo.com/news/win-us-election-expert-predictions-155148267.html)
-- Mar 14 - [Details reveal the desperate attempt to save CEO Angela Chao, trapped in a submerged Tesla](https://www.yahoo.com/news/details-reveal-desperate-attempt-save-153911344.html)
-- Mar 14 - [Elon Musk's $195.1 Billion Net Worth Is Not Enough For Him As His Billions In Charitable Donations Have Gone To Support His Personal Causes](https://finance.yahoo.com/news/elon-musks-195-1-billion-150429168.html)
 <!-- feed end -->
 
 ### Onstream
