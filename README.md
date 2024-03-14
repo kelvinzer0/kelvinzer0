@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 13 - [NY sergeant killed in line of duty after attack with metal necklace chain: Police](https://www.yahoo.com/news/ny-sergeant-killed-line-duty-224222374.html)
+- Mar 13 - [Speaker Johnson: ‘There will probably be a change’ to motion to vacate next Congress](https://www.yahoo.com/news/speaker-johnson-probably-change-motion-222635481.html)
 - Mar 13 - [Former Teachers Are Recalling The "Final Straw" Moments That Made Them Quit Education For Good](https://www.yahoo.com/lifestyle/former-teachers-recalling-final-straw-221603335.html)
 - Mar 13 - [LGBTQ teen Nex Benedict died by suicide, medical examiner says](https://www.yahoo.com/news/lgbtq-teen-nex-benedict-died-210000288.html)
-- Mar 13 - [Sen. Katie Britt says House Speaker Mike Johnson told her to ignore 'horror stories' before her State of the Union response](https://www.yahoo.com/news/sen-katie-britt-says-house-214646486.html)
-- Mar 13 - [South Dakota legislator calls for inquiry into Gov. Noem's Texas dental trip and promo video](https://www.yahoo.com/news/south-dakota-legislator-calls-inquiry-210317163.html)
-- Mar 13 - [100-year-old giant snapping alligator turtle disappears on North Carolina highway to reptile expo](https://www.yahoo.com/news/100-old-snapping-turtle-mysteriously-191657109.html)
+- Mar 13 - [Joe Biden is admitting that nobody wants to sell their house—and he’s offering a measly incentive to fix it](https://finance.yahoo.com/news/joe-biden-admitting-nobody-wants-214751355.html)
 <!-- feed end -->
 
 ### Onstream
