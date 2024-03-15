@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 15 - [Jeff Bezos Gives $50M Each To Eva Longoria And Admiral Bill McRaven](https://www.yahoo.com/entertainment/jeff-bezos-gives-50m-eva-012416691.html)
+- Mar 15 - [Trump ex-aide Navarro asks US Supreme Court to keep him out of prison during appeal](https://www.yahoo.com/news/trump-ex-aide-navarro-asks-212631604.html)
+- Mar 15 - [Family of Missouri Teen Beaten on Video Say They Are ‘Hopeful’ She Will Recover Despite ‘Long Road Ahead’](https://www.yahoo.com/entertainment/family-missouri-teen-beaten-video-205622445.html)
+- Mar 15 - [Adult Film Star Sophia Leone's Cause of Death—What We Know](https://www.yahoo.com/lifestyle/adult-film-star-sophia-leones-203145383.html)
 - Mar 15 - [Women Everywhere Are Infuriated And Tired After Watching This Republican Senator Refer To A Female Pilot As A "Stewardess"](https://www.yahoo.com/lifestyle/women-everywhere-infuriated-tired-watching-201948481.html)
-- Mar 15 - [Authorities seize ailing alligator kept illegally in New York home's swimming pool](https://www.yahoo.com/lifestyle/authorities-seize-ailing-alligator-kept-195500074.html)
-- Mar 15 - [Mike Lindell's and Kari Lake's 'explosive' new evidence of election skullduggery goes pffft](https://www.yahoo.com/news/mike-lindells-kari-lakes-explosive-191822427.html)
-- Mar 15 - [The 6% commission on buying or selling a home is gone after Realtors association agrees to seismic settlement](https://finance.yahoo.com/news/realtor-settlement-commission-fixing-could-141747151.html)
-- Mar 15 - [John Roberts Just Dropped the Hammer on Rogue, Lawless Trump Judges](https://www.yahoo.com/news/john-roberts-just-dropped-hammer-190412406.html)
 <!-- feed end -->
 
 ### Onstream
