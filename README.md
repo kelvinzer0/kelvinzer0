@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 15 - [Jeff Bezos Gives $50M Each To Eva Longoria And Admiral Bill McRaven](https://www.yahoo.com/entertainment/jeff-bezos-gives-50m-eva-012416691.html)
+- Mar 14 - [Sanders gets heated in exchange with Fox Business reporter over proposed 32-hour workweek](https://www.yahoo.com/news/sanders-gets-heated-exchange-fox-234750563.html)
 - Mar 14 - [Trump-backed Senate candidate faces GOP worries that he could be linked to adult website profile](https://www.yahoo.com/news/trump-backed-senate-candidate-faces-233027161.html)
 - Mar 14 - [Lyft and Uber say they will leave Minneapolis after city council forces them to pay drivers more](https://www.yahoo.com/news/lyft-uber-leave-minneapolis-city-223347347.html)
 - Mar 14 - [Pregnant teacher found unresponsive after school has died, New York district says](https://www.yahoo.com/news/pregnant-teacher-found-unresponsive-school-221055381.html)
-- Mar 14 - [Off-Duty Police Officer Punches Driver in the Face](https://www.yahoo.com/news/off-duty-police-officer-punches-220802630.html)
-- Mar 14 - [CNN reporter describes Trump’s behavior in the courtroom](https://www.yahoo.com/news/cnn-reporter-describes-trump-behavior-213339399.html)
 <!-- feed end -->
 
 ### Onstream
