@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 15 - [Exclusive-Hamas issues ceasefire proposal detailing exchange of hostages, prisoners](https://www.yahoo.com/news/hamas-issues-ceasefire-proposal-mediators-055555746.html)
 - Mar 15 - [32-Year-Old Beauty Store Employee Beaten By Robbers Need Heart Transplant Following Brutal Attack, Father Says](https://www.yahoo.com/entertainment/32-old-beauty-store-employee-041602991.html)
+- Mar 15 - [Judge in Trump’s Georgia election case says upcoming ruling on whether to disqualify DA Willis won’t ‘be based on politics’](https://www.yahoo.com/news/judge-trump-georgia-election-case-025609966.html)
 - Mar 15 - [Jeff Bezos Gives $50M Each To Eva Longoria And Admiral Bill McRaven](https://www.yahoo.com/entertainment/jeff-bezos-gives-50m-eva-012416691.html)
 - Mar 14 - [Trump-backed Senate candidate faces GOP worries that he could be linked to adult website profile](https://www.yahoo.com/news/trump-backed-senate-candidate-faces-233027161.html)
-- Mar 14 - [Lyft and Uber say they will leave Minneapolis after city council forces them to pay drivers more](https://www.yahoo.com/news/lyft-uber-leave-minneapolis-city-223347347.html)
-- Mar 14 - [Pregnant teacher found unresponsive after school has died, New York district says](https://www.yahoo.com/news/pregnant-teacher-found-unresponsive-school-221055381.html)
 <!-- feed end -->
 
 ### Onstream
