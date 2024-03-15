@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 15 - [Sam Bankman-Fried deserves 40-50 years in prison for FTX fraud, prosecutors say](https://finance.yahoo.com/news/sam-bankman-fried-deserves-40-182843415.html)
+- Mar 15 - [Lottery player won $1.765 billion Powerball jackpot in CA. Now officials identify them](https://www.yahoo.com/news/lottery-player-won-1-765-180527651.html)
+- Mar 15 - [Why a Native American Nation Is Challenging the U.S. Over a 1794 Treaty](https://www.yahoo.com/news/why-native-american-nation-challenging-175940780.html)
 - Mar 15 - [A judge tosses claims against a former Wisconsin police officer who killed 3 people in five years](https://www.yahoo.com/news/judge-tosses-claims-against-former-174510589.html)
-- Mar 15 - [Trump says hush money prosecutors sought to block access to Michael Cohen evidence](https://www.yahoo.com/news/trump-says-hush-money-prosecutors-174508014.html)
 - Mar 15 - [‘Nanny cam’ footage of prison boss abusing her husband will be shown in documentary](https://www.yahoo.com/news/nanny-cam-footage-prison-boss-173227087.html)
-- Mar 15 - [We asked ChatGPT and Claude to analyze Biden's cognitive abilities based on the Joe Biden-Robert Hur transcript. Their verdict: the president is doing fine.](https://www.yahoo.com/tech/asked-chatgpt-claude-analyze-bidens-154919456.html)
-- Mar 15 - [Watch: Tornado photographer captures apocalyptic scene as Ohio twister nearly sucks him out the door](https://www.yahoo.com/news/watch-tornado-photographer-captures-apocalyptic-151846701.html)
 <!-- feed end -->
 
 ### Onstream
