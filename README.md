@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 15 - [A judge tosses claims against a former Wisconsin police officer who killed 3 people in five years](https://www.yahoo.com/news/judge-tosses-claims-against-former-174510589.html)
+- Mar 15 - [Trump says hush money prosecutors sought to block access to Michael Cohen evidence](https://www.yahoo.com/news/trump-says-hush-money-prosecutors-174508014.html)
+- Mar 15 - [‘Nanny cam’ footage of prison boss abusing her husband will be shown in documentary](https://www.yahoo.com/news/nanny-cam-footage-prison-boss-173227087.html)
 - Mar 15 - [We asked ChatGPT and Claude to analyze Biden's cognitive abilities based on the Joe Biden-Robert Hur transcript. Their verdict: the president is doing fine.](https://www.yahoo.com/tech/asked-chatgpt-claude-analyze-bidens-154919456.html)
-- Mar 15 - [Supreme Court rules public officials can sometimes be sued for blocking critics on social media](https://www.yahoo.com/news/supreme-court-rules-public-officials-152010970.html)
-- Mar 15 - [Lawmaker Asks Delta Pilot About Being A 'Stewardess' Immediately After Being Told She's A Pilot](https://www.yahoo.com/news/lawmaker-asks-delta-pilot-being-150103618.html)
-- Mar 15 - [Hamas lashes out at Abbas's 'unilateral' designation of new PM](https://www.yahoo.com/news/hamas-lashes-abbass-unilateral-designation-142637915.html)
-- Mar 15 - [US Supreme Court sets free-speech test for officials who block social media critics](https://www.yahoo.com/news/us-supreme-court-throws-rulings-141346184.html)
+- Mar 15 - [Watch: Tornado photographer captures apocalyptic scene as Ohio twister nearly sucks him out the door](https://www.yahoo.com/news/watch-tornado-photographer-captures-apocalyptic-151846701.html)
 <!-- feed end -->
 
 ### Onstream
