@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 14 - [Trump-backed Senate candidate faces GOP worries that he could be linked to adult website profile](https://www.yahoo.com/news/trump-backed-senate-candidate-faces-233027161.html)
 - Mar 14 - [Lyft and Uber say they will leave Minneapolis after city council forces them to pay drivers more](https://www.yahoo.com/news/lyft-uber-leave-minneapolis-city-223347347.html)
+- Mar 14 - [Pregnant teacher found unresponsive after school has died, New York district says](https://www.yahoo.com/news/pregnant-teacher-found-unresponsive-school-221055381.html)
 - Mar 14 - [Off-Duty Police Officer Punches Driver in the Face](https://www.yahoo.com/news/off-duty-police-officer-punches-220802630.html)
 - Mar 14 - [CNN reporter describes Trump’s behavior in the courtroom](https://www.yahoo.com/news/cnn-reporter-describes-trump-behavior-213339399.html)
-- Mar 14 - [Terrified residents of San Francisco's Tenderloin district sue for streets free of drugs, tents](https://www.yahoo.com/news/terrified-residents-san-franciscos-tenderloin-211651647.html)
-- Mar 14 - [GOP nominee to run North Carolina public schools called for violence against Democrats, including executing Obama and Biden](https://www.yahoo.com/news/gop-nominee-run-north-carolina-200002143.html)
 <!-- feed end -->
 
 ### Onstream
