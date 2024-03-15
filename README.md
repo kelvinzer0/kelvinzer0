@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 15 - [Stephen Colbert Utterly Stunned By Newsmax Question For Donald Trump](https://www.yahoo.com/entertainment/stephen-colbert-utterly-stunned-newsmax-085449461.html)
+- Mar 15 - [Inspired by a dream, this photograph became a symbol for a transformative protest movement](https://www.yahoo.com/lifestyle/inspired-dream-photograph-became-symbol-083037681.html)
 - Mar 15 - [Hezbollah tells Iran it would fight alone in any war with Israel](https://www.yahoo.com/news/hezbollah-tells-iran-fight-alone-073638246.html)
-- Mar 15 - [Exclusive-Hamas presents ceasefire proposal detailing exchange of hostages, prisoners](https://www.yahoo.com/news/hamas-issues-ceasefire-proposal-mediators-055555746.html)
-- Mar 15 - [Judge in Trump’s Georgia election case says upcoming ruling on whether to disqualify DA Willis won’t ‘be based on politics’](https://www.yahoo.com/news/judge-trump-georgia-election-case-025609966.html)
 - Mar 15 - [Jeff Bezos Gives $50M Each To Eva Longoria And Admiral Bill McRaven](https://www.yahoo.com/entertainment/jeff-bezos-gives-50m-eva-012416691.html)
 - Mar 14 - [Trump-backed Senate candidate faces GOP worries that he could be linked to adult website profile](https://www.yahoo.com/news/trump-backed-senate-candidate-faces-233027161.html)
 <!-- feed end -->
