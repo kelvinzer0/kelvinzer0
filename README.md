@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 15 - [The sudden drop of a Boeing 787 that injured 50 people may have been caused by a flight attendant accidentally hitting a switch in the cockpit, report says](https://www.yahoo.com/news/sudden-drop-boeing-787-injured-105539278.html)
+- Mar 15 - [A cardiologist explains 1 thing you can do to test your heart health — and simple exercises to improve it](https://www.yahoo.com/lifestyle/cardiologist-explains-1-thing-test-100202963.html)
+- Mar 15 - [Investors bought a historic Echo Park home. Sisters who have lived there since childhood are fighting to stay](https://www.yahoo.com/news/investors-bought-historic-echo-park-100014671.html)
 - Mar 15 - [Stephen Colbert Utterly Stunned By Newsmax Question For Donald Trump](https://www.yahoo.com/entertainment/stephen-colbert-utterly-stunned-newsmax-085449461.html)
 - Mar 15 - [Inspired by a dream, this photograph became a symbol for a transformative protest movement](https://www.yahoo.com/lifestyle/inspired-dream-photograph-became-symbol-083037681.html)
-- Mar 15 - [Hezbollah tells Iran it would fight alone in any war with Israel](https://www.yahoo.com/news/hezbollah-tells-iran-fight-alone-073638246.html)
-- Mar 15 - [Judge in Trump’s Georgia election case says upcoming ruling on whether to disqualify DA Willis won’t ‘be based on politics’](https://www.yahoo.com/news/judge-trump-georgia-election-case-025609966.html)
-- Mar 15 - [Jeff Bezos Gives $50M Each To Eva Longoria And Admiral Bill McRaven](https://www.yahoo.com/entertainment/jeff-bezos-gives-50m-eva-012416691.html)
 <!-- feed end -->
 
 ### Onstream
