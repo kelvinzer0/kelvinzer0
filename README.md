@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 15 - [Florida Woman Offered to Sell Her 18-Month-Old Daughter for $500, Police Say](https://www.yahoo.com/entertainment/florida-woman-offered-sell-her-195456113.html)
+- Mar 15 - [Women Everywhere Are Infuriated And Tired After Watching This Republican Senator Refer To A Female Pilot As A "Stewardess"](https://www.yahoo.com/lifestyle/women-everywhere-infuriated-tired-watching-201948481.html)
+- Mar 15 - [Authorities seize ailing alligator kept illegally in New York home's swimming pool](https://www.yahoo.com/lifestyle/authorities-seize-ailing-alligator-kept-195500074.html)
 - Mar 15 - [Mike Lindell's and Kari Lake's 'explosive' new evidence of election skullduggery goes pffft](https://www.yahoo.com/news/mike-lindells-kari-lakes-explosive-191822427.html)
-- Mar 15 - [Lottery player won $1.765 billion Powerball jackpot in CA. Now officials identify them](https://www.yahoo.com/news/lottery-player-won-1-765-180527651.html)
-- Mar 15 - [Why a Native American Nation Is Challenging the U.S. Over a 1794 Treaty](https://www.yahoo.com/news/why-native-american-nation-challenging-175940780.html)
-- Mar 15 - [A judge tosses claims against a former Wisconsin police officer who killed 3 people in five years](https://www.yahoo.com/news/judge-tosses-claims-against-former-174510589.html)
+- Mar 15 - [The 6% commission on buying or selling a home is gone after Realtors association agrees to seismic settlement](https://finance.yahoo.com/news/realtor-settlement-commission-fixing-could-141747151.html)
+- Mar 15 - [John Roberts Just Dropped the Hammer on Rogue, Lawless Trump Judges](https://www.yahoo.com/news/john-roberts-just-dropped-hammer-190412406.html)
 <!-- feed end -->
 
 ### Onstream
