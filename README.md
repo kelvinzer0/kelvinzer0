@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 16 - [Bill Maher Confronts Nancy Mace on Flip-Flopping Over Trump](https://www.yahoo.com/entertainment/bill-maher-confronts-nancy-mace-150632859.html)
 - Mar 16 - [A 15-year problem that has plagued corporate America is finally turning around](https://finance.yahoo.com/news/a-15-year-problem-that-has-plagued-corporate-america-is-finally-turning-around-141822989.html)
 - Mar 16 - [A new kind of hospital is coming to rural America. To qualify, facilities must close their beds](https://www.yahoo.com/news/kind-hospital-coming-rural-america-125504249.html)
 - Mar 16 - [India's navy intercepts a bulk carrier hijacked by Somali pirates](https://www.yahoo.com/news/indias-navy-intercepts-bulk-carrier-121948272.html)
 - Mar 16 - [AOC district neighborhood labeled 'Third World' as migrants clog streets and prostitutes overrun every block](https://www.yahoo.com/news/aoc-district-neighborhood-labeled-third-115732934.html)
-- Mar 16 - [Ex-college football star, son of Texas A&M associate head coach, arrested in poisoning deaths of girlfriend and unborn baby](https://sports.yahoo.com/ex-college-football-star-son-091218653.html)
 <!-- feed end -->
 
 ### Onstream
