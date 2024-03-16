@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 16 - [India's navy intercepts a bulk carrier hijacked by Somali pirates](https://www.yahoo.com/news/indias-navy-intercepts-bulk-carrier-121948272.html)
 - Mar 16 - [Ex-college football star, son of Texas A&M associate head coach, arrested in poisoning deaths of girlfriend and unborn baby](https://sports.yahoo.com/ex-college-football-star-son-091218653.html)
 - Mar 16 - [‘Everything he is saying isn’t true’: Congolese governments denounce Trump’s baseless stories about emptied prisons](https://www.yahoo.com/news/everything-saying-isn-t-true-100029144.html)
 - Mar 16 - [DeSantis sends state troopers to halt Florida spring break crime. What about Trump's Mar-a-Lago?](https://www.yahoo.com/news/desantis-sends-state-troopers-halt-090618299.html)
 - Mar 16 - [VP Kamala Harris broke politics at an abortion clinic visit. She even said the 'u' word](https://www.yahoo.com/news/vp-kamala-harris-broke-politics-090244413.html)
-- Mar 16 - ['We Made A Mistake': Laura Ingraham Apologizes For Fani Willis Graphic Flub](https://www.yahoo.com/news/made-mistake-laura-ingraham-apologizes-060223560.html)
 <!-- feed end -->
 
 ### Onstream
