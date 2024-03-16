@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 16 - [Cara Delevingne's Parents Reveal Cause of Her Devastating House Fire](https://www.yahoo.com/entertainment/cara-delevingnes-parents-reveal-cause-014041691.html)
 - Mar 16 - [The 6% commission on buying or selling a home is gone after Realtors association agrees to seismic settlement](https://finance.yahoo.com/news/realtor-settlement-commission-fixing-could-141747151.html)
 - Mar 15 - [Older Boeing plane found to have missing panel after flight from California to southern Oregon](https://www.yahoo.com/news/boeing-plane-found-missing-panel-235057293.html)
-- Mar 15 - [22 artifacts looted after the Battle of Okinawa returned to Japan](https://www.yahoo.com/news/22-artifacts-looted-battle-okinawa-234001742.html)
+- Mar 15 - [Weekly ski trip turns into overnight ordeal when about 50 women get stranded in bus during snowstorm](https://www.yahoo.com/news/weekly-ski-trip-turns-overnight-232955488.html)
 <!-- feed end -->
 
 ### Onstream
