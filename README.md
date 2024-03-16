@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 16 - [Hopeful Viewers Of Eagle Nest's Hatch Cam Get Bittersweet Update](https://www.yahoo.com/news/hopeful-viewers-eagle-nests-hatch-181119772.html)
+- Mar 16 - [Kavanaugh accuser Christine Blasey Ford discusses consequences of testimony in rare interview](https://www.yahoo.com/news/kavanaugh-accuser-christine-blasey-ford-180301996.html)
+- Mar 16 - [Slain Wife Of Hollywood Exec's Son May Have Been Alive During Decapitation: Autopsy](https://www.yahoo.com/news/slain-wife-hollywood-execs-son-180208502.html)
+- Mar 16 - [Opinion: Is the US on the brink of another civil war?](https://www.yahoo.com/news/opinion-us-brink-another-civil-174055564.html)
 - Mar 16 - [Can you spot the other Yellowstone critter in this spring snapshot?](https://sports.yahoo.com/spot-other-yellowstone-critter-spring-161540671.html)
-- Mar 16 - [David Breashears, mountaineer and filmmaker who co-produced Mount Everest documentary, dies at 68](https://www.yahoo.com/news/david-breashears-mountaineer-filmmaker-co-151116733.html)
-- Mar 16 - [Bill Maher Confronts Nancy Mace on Flip-Flopping Over Trump](https://www.yahoo.com/entertainment/bill-maher-confronts-nancy-mace-150632859.html)
-- Mar 16 - [A 15-year problem that has plagued corporate America is finally turning around](https://finance.yahoo.com/news/a-15-year-problem-that-has-plagued-corporate-america-is-finally-turning-around-141822989.html)
-- Mar 16 - [See inside the world's largest private jet, a $400 million Boeing 747 typically used by governments and the world's elite](https://www.yahoo.com/news/see-inside-worlds-largest-private-124600118.html)
 <!-- feed end -->
 
 ### Onstream
