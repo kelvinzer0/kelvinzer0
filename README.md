@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 16 - [DeSantis sends state troopers to halt Florida spring break crime. What about Trump's Mar-a-Lago?](https://www.yahoo.com/news/desantis-sends-state-troopers-halt-090618299.html)
 - Mar 16 - ['We Made A Mistake': Laura Ingraham Apologizes For Fani Willis Graphic Flub](https://www.yahoo.com/news/made-mistake-laura-ingraham-apologizes-060223560.html)
 - Mar 16 - [Winner of the $1.765-billion Powerball — the second-largest jackpot ever — has been revealed](https://www.yahoo.com/news/winner-1-765-billion-powerball-022846108.html)
 - Mar 16 - [Cara Delevingne's Parents Reveal Cause of Her Devastating House Fire](https://www.yahoo.com/entertainment/cara-delevingnes-parents-reveal-cause-014041691.html)
 - Mar 16 - [The 6% commission on buying or selling a home is gone after Realtors association agrees to seismic settlement](https://finance.yahoo.com/news/realtor-settlement-commission-fixing-could-141747151.html)
-- Mar 16 - [Don Lemon demanded Tesla Cybertruck, $5M advance, equity in X before Elon Musk canned him: sources](https://www.yahoo.com/news/don-lemon-demanded-tesla-cybertruck-002626265.html)
 <!-- feed end -->
 
 ### Onstream
