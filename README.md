@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 16 - [Ex-college football star, son of Texas A&M associate head coach, arrested in poisoning deaths of girlfriend and unborn baby](https://sports.yahoo.com/ex-college-football-star-son-091218653.html)
+- Mar 16 - [‘Everything he is saying isn’t true’: Congolese governments denounce Trump’s baseless stories about emptied prisons](https://www.yahoo.com/news/everything-saying-isn-t-true-100029144.html)
 - Mar 16 - [DeSantis sends state troopers to halt Florida spring break crime. What about Trump's Mar-a-Lago?](https://www.yahoo.com/news/desantis-sends-state-troopers-halt-090618299.html)
+- Mar 16 - [VP Kamala Harris broke politics at an abortion clinic visit. She even said the 'u' word](https://www.yahoo.com/news/vp-kamala-harris-broke-politics-090244413.html)
 - Mar 16 - ['We Made A Mistake': Laura Ingraham Apologizes For Fani Willis Graphic Flub](https://www.yahoo.com/news/made-mistake-laura-ingraham-apologizes-060223560.html)
-- Mar 16 - [Winner of the $1.765-billion Powerball — the second-largest jackpot ever — has been revealed](https://www.yahoo.com/news/winner-1-765-billion-powerball-022846108.html)
-- Mar 16 - [Cara Delevingne's Parents Reveal Cause of Her Devastating House Fire](https://www.yahoo.com/entertainment/cara-delevingnes-parents-reveal-cause-014041691.html)
-- Mar 16 - [The 6% commission on buying or selling a home is gone after Realtors association agrees to seismic settlement](https://finance.yahoo.com/news/realtor-settlement-commission-fixing-could-141747151.html)
 <!-- feed end -->
 
 ### Onstream
