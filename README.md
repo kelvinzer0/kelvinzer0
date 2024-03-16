@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 15 - [Jeff Bezos Gives $50M Each To Eva Longoria And Admiral Bill McRaven](https://www.yahoo.com/entertainment/jeff-bezos-gives-50m-eva-012416691.html)
-- Mar 15 - [Mike Pence won't endorse Donald Trump in 2024: 'It should come as no surprise'](https://www.yahoo.com/news/mike-pence-wont-endorse-donald-210908340.html)
-- Mar 15 - [Family of Missouri Teen Beaten on Video Say They Are ‘Hopeful’ She Will Recover Despite ‘Long Road Ahead’](https://www.yahoo.com/entertainment/family-missouri-teen-beaten-video-205622445.html)
-- Mar 15 - [Fitness Influencers Baxter and Thievin Die in Car Crash](https://www.yahoo.com/news/fitness-influencers-baxter-thievin-die-204702124.html)
-- Mar 15 - [Adult Film Star Sophia Leone's Cause of Death—What We Know](https://www.yahoo.com/lifestyle/adult-film-star-sophia-leones-203145383.html)
+- Mar 16 - [Teen gets 40 years in prison for Denver house fire that killed 5 from Senegal](https://www.yahoo.com/news/teen-gets-40-years-prison-000737162.html)
+- Mar 15 - [Boeing plane found to have missing panel after flight from California to southern Oregon](https://www.yahoo.com/news/boeing-plane-found-missing-panel-235057293.html)
+- Mar 15 - [Weekly ski trip turns into overnight ordeal when about 50 women get stranded in bus during snowstorm](https://www.yahoo.com/news/weekly-ski-trip-turns-overnight-232955488.html)
+- Mar 15 - [Peter Navarro asks Supreme Court to let him avoid reporting to prison next week](https://www.yahoo.com/news/peter-navarro-asks-supreme-court-213626551.html)
+- Mar 15 - [The 6% commission on buying or selling a home is gone after Realtors association agrees to seismic settlement](https://finance.yahoo.com/news/realtor-settlement-commission-fixing-could-141747151.html)
 <!-- feed end -->
 
 ### Onstream
