@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 17 - [Years after her stepdad shot her in the face, Michigan woman gets a new nose](https://www.yahoo.com/news/years-her-stepdad-shot-her-125610931.html)
 - Mar 17 - [Lines at Russian polling stations grow suddenly following opposition appeal](https://www.yahoo.com/news/lines-russian-polling-stations-grow-112339610.html)
 - Mar 17 - [‘Knock it off’: Speaker Mike Johnson tries to stop Republicans from campaigning against each other in bitter primary battles](https://www.yahoo.com/news/knock-off-speaker-mike-johnson-110029850.html)
+- Mar 17 - [Brooke Burke warns Ozempic can be 'dangerous,' shares benefits of biohacking: There's no 'quick fix'](https://www.yahoo.com/entertainment/brooke-burke-warns-ozempic-dangerous-083008613.html)
 - Mar 17 - [Biden says at DC roast that of 2 presidential candidates, 1 was mentally unfit. 'The other's me'](https://www.yahoo.com/news/biden-says-dc-roast-2-040245359.html)
-- Mar 17 - [Trump says there will be a 'bloodbath' if he loses the election](https://www.yahoo.com/news/trump-says-bloodbath-loses-election-033717568.html)
-- Mar 17 - [Bruno Mars Apparently Owes $50 Million in Gambling Debt](https://www.yahoo.com/entertainment/bruno-mars-apparently-owes-50-013823888.html)
 <!-- feed end -->
 
 ### Onstream
