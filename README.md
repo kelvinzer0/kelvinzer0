@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 17 - [Fact check: Trump, telling a completely fictional story, falsely claims he released ‘the tape’ of his Zelensky call](https://www.yahoo.com/news/fact-check-trump-telling-completely-170118316.html)
+- Mar 17 - [Schiff: DOJ ‘bears some of that responsibility’ for not moving faster on Trump cases](https://www.yahoo.com/news/schiff-doj-bears-responsibility-not-162231379.html)
 - Mar 17 - [19 Signs From The Past Week That Are So Funny, You'll Wonder Why Male Comedians Even Try](https://www.yahoo.com/lifestyle/19-signs-past-week-funny-151503093.html)
+- Mar 17 - [Rats Get Into Marijuana at New Orleans Police Station and It's As Wild As It Sounds](https://www.yahoo.com/lifestyle/rats-marijuana-orleans-police-station-151500759.html)
 - Mar 17 - [6 former Mississippi officers will be sentenced in federal court this week for torturing 2 Black men. Here’s what we know](https://www.yahoo.com/news/6-former-mississippi-officers-sentenced-151053706.html)
-- Mar 17 - [Joe Biden Wants to Make Big Changes to Social Security. Will Americans Support What He Wants to Do?](https://finance.yahoo.com/news/joe-biden-wants-big-changes-143000051.html)
-- Mar 17 - [How a surprising detail in bank records helped a historian bust a longstanding myth about Irish immigrants](https://www.yahoo.com/news/surprising-detail-bank-records-helped-050030584.html)
-- Mar 17 - [New Hampshire artist missing since January found dead, police say](https://www.yahoo.com/news/hampshire-artist-missing-since-january-132834509.html)
 <!-- feed end -->
 
 ### Onstream
