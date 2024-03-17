@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 17 - [Biden says at DC roast that of 2 presidential candidates, 1 was mentally unfit. 'The other's me'](https://www.yahoo.com/news/biden-says-dc-roast-2-040245359.html)
 - Mar 17 - [Trump says there will be a 'bloodbath' if he loses the election](https://www.yahoo.com/news/trump-says-bloodbath-loses-election-033717568.html)
+- Mar 17 - [Bruno Mars Apparently Owes $50 Million in Gambling Debt](https://www.yahoo.com/entertainment/bruno-mars-apparently-owes-50-013823888.html)
+- Mar 17 - [Niger's junta says US military presence is no longer justified](https://www.yahoo.com/news/nigers-junta-says-u-military-004707209.html)
 - Mar 17 - [Trump predicts the end of U.S. democracy if he loses 2024 election](https://www.yahoo.com/news/trump-predicts-end-u-democracy-003905037.html)
-- Mar 16 - [This could be the devastating proof that Hamas is faking its death figures](https://www.yahoo.com/news/could-devastating-proof-hamas-faking-210000483.html)
-- Mar 16 - [How a Florida woman’s NYC selfie led to her brain tumor diagnosis](https://www.yahoo.com/lifestyle/florida-woman-nyc-selfie-led-205555682.html)
 <!-- feed end -->
 
 ### Onstream
