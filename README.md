@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 17 - [Fact check: Trump, telling a completely fictional story, falsely claims he released ‘the tape’ of his Zelensky call](https://www.yahoo.com/news/fact-check-trump-telling-completely-170118316.html)
-- Mar 17 - [Schiff: DOJ ‘bears some of that responsibility’ for not moving faster on Trump cases](https://www.yahoo.com/news/schiff-doj-bears-responsibility-not-162231379.html)
+- Mar 17 - [Pelosi on Trump: ‘You wouldn’t even allow him in your house, much less in the White House’](https://www.yahoo.com/news/pelosi-trump-wouldn-t-even-153948543.html)
 - Mar 17 - [19 Signs From The Past Week That Are So Funny, You'll Wonder Why Male Comedians Even Try](https://www.yahoo.com/lifestyle/19-signs-past-week-funny-151503093.html)
 - Mar 17 - [Rats Get Into Marijuana at New Orleans Police Station and It's As Wild As It Sounds](https://www.yahoo.com/lifestyle/rats-marijuana-orleans-police-station-151500759.html)
 - Mar 17 - [6 former Mississippi officers will be sentenced in federal court this week for torturing 2 Black men. Here’s what we know](https://www.yahoo.com/news/6-former-mississippi-officers-sentenced-151053706.html)
