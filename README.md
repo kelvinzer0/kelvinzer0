@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 17 - [Niger's junta says US military presence is no longer justified](https://www.yahoo.com/news/nigers-junta-says-u-military-004707209.html)
 - Mar 17 - [Donald Trump goes off script in dehumanising rant at half-baked Ohio rally](https://www.yahoo.com/news/donald-trump-goes-off-script-230745821.html)
 - Mar 17 - [Trump predicts the end of U.S. democracy if he loses 2024 election](https://www.yahoo.com/news/trump-predicts-end-u-democracy-003905037.html)
 - Mar 16 - [This could be the devastating proof that Hamas is faking its death figures](https://www.yahoo.com/news/could-devastating-proof-hamas-faking-210000483.html)
 - Mar 16 - [State Medicaid offices target dead people’s homes to recoup their health care costs](https://www.yahoo.com/news/state-medicaid-offices-target-dead-201807283.html)
+- Mar 16 - [Hopeful Viewers Of Eagle Nest's Hatch Cam Get Bittersweet Update](https://www.yahoo.com/news/hopeful-viewers-eagle-nests-hatch-181119772.html)
 <!-- feed end -->
 
 ### Onstream
