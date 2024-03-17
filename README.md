@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 17 - [‘Knock it off’: Speaker Mike Johnson tries to stop Republicans from campaigning against each other in bitter primary battles](https://www.yahoo.com/news/knock-off-speaker-mike-johnson-110029850.html)
+- Mar 17 - [Ukraine launches far-ranging drone attacks on the final day of Russia's presidential vote](https://www.yahoo.com/news/ukraine-launches-far-ranging-drone-060414459.html)
+- Mar 17 - [How a surprising detail in bank records helped a historian bust a longstanding myth about Irish immigrants](https://www.yahoo.com/news/surprising-detail-bank-records-helped-050030584.html)
 - Mar 17 - [Biden says at DC roast that of 2 presidential candidates, 1 was mentally unfit. 'The other's me'](https://www.yahoo.com/news/biden-says-dc-roast-2-040245359.html)
 - Mar 17 - [Trump says there will be a 'bloodbath' if he loses the election](https://www.yahoo.com/news/trump-says-bloodbath-loses-election-033717568.html)
-- Mar 17 - [Niger ends military agreement with US, calls it ‘profoundly unfair’](https://www.yahoo.com/news/niger-ends-military-agreement-us-031405106.html)
-- Mar 17 - [Bruno Mars Apparently Owes $50 Million in Gambling Debt](https://www.yahoo.com/entertainment/bruno-mars-apparently-owes-50-013823888.html)
-- Mar 17 - [Trump predicts the end of U.S. democracy if he loses 2024 election](https://www.yahoo.com/news/trump-predicts-end-u-democracy-003905037.html)
 <!-- feed end -->
 
 ### Onstream
