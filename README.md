@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [Biden’s ‘maximum stability’ sneakers raise eyebrows on social media: ‘Air Bidens’](https://www.yahoo.com/news/biden-maximum-stability-sneakers-raise-115456918.html)
+- Mar 18 - [With the election behind him, Russia’s leader says he aims to create a buffer zone in Ukraine](https://www.yahoo.com/news/putin-says-russia-planning-buffer-112525890.html)
 - Mar 18 - [South Korean defense chief says North Korea has supplied 7,000 containers of munitions to Russia](https://www.yahoo.com/news/south-korean-defense-chief-says-100703991.html)
 - Mar 18 - [Rich Americans keep high-end RV company rolling along](https://www.yahoo.com/news/rich-americans-keep-high-end-100630321.html)
-- Mar 18 - [China's military, state media slam U.S. after Reuters report on SpaceX spy satellites](https://www.yahoo.com/tech/chinas-military-state-media-slam-093340652.html)
-- Mar 18 - [A 15-year problem that has plagued corporate America is finally turning around](https://finance.yahoo.com/news/a-15-year-problem-that-has-plagued-corporate-america-is-finally-turning-around-141822989.html)
-- Mar 18 - [Column: Trump has big plans for California if he wins a second term. Fasten your seatbelts](https://www.yahoo.com/news/column-trump-big-plans-california-090043162.html)
+- Mar 18 - [Expert: "There's something about being a gun owner that makes many people turn into Republicans"](https://www.yahoo.com/news/expert-theres-something-being-gun-094503649.html)
 <!-- feed end -->
 
 ### Onstream
