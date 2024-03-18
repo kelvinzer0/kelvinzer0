@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [Independent Russian vote monitor says election was a mockery](https://www.yahoo.com/news/independent-russian-vote-monitor-says-121509333.html)
 - Mar 18 - [Biden’s ‘maximum stability’ sneakers raise eyebrows on social media: ‘Air Bidens’](https://www.yahoo.com/news/biden-maximum-stability-sneakers-raise-115456918.html)
-- Mar 18 - [With the election behind him, Russia’s leader says he aims to create a buffer zone in Ukraine](https://www.yahoo.com/news/putin-says-russia-planning-buffer-112525890.html)
-- Mar 18 - [South Korean defense chief says North Korea has supplied 7,000 containers of munitions to Russia](https://www.yahoo.com/news/south-korean-defense-chief-says-100703991.html)
+- Mar 18 - [Justice Breyer, Off the Bench, Sounds an Alarm Over the Supreme Court’s Direction](https://www.yahoo.com/news/justice-breyer-off-bench-sounds-114138411.html)
+- Mar 18 - [With the election behind him, Putin says Russian forces aim to set up a buffer zone inside Ukraine](https://www.yahoo.com/news/putin-says-russia-planning-buffer-112525890.html)
 - Mar 18 - [Rich Americans keep high-end RV company rolling along](https://www.yahoo.com/news/rich-americans-keep-high-end-100630321.html)
-- Mar 18 - [Expert: "There's something about being a gun owner that makes many people turn into Republicans"](https://www.yahoo.com/news/expert-theres-something-being-gun-094503649.html)
 <!-- feed end -->
 
 ### Onstream
