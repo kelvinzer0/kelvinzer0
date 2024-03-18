@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [A 15-year problem that has plagued corporate America is finally turning around](https://finance.yahoo.com/news/a-15-year-problem-that-has-plagued-corporate-america-is-finally-turning-around-141822989.html)
+- Mar 18 - [Trump Delivers Head-Spinningly Awkward Answer To New Question About Putin](https://www.yahoo.com/news/trump-delivers-head-spinningly-awkward-074000812.html)
 - Mar 18 - [Shock and confusion as Turkey seizes earthquake survivors' homes](https://www.yahoo.com/news/shock-confusion-turkey-seizes-earthquake-073436966.html)
 - Mar 18 - [How Russia's grab of Crimea 10 years ago led to war with Ukraine and rising tensions with the West](https://www.yahoo.com/news/russias-grab-crimea-10-years-052404206.html)
 - Mar 18 - [Women pinned cougar during ‘hand-to-hand combat’ to save friend trapped in its jaws](https://www.yahoo.com/news/women-pinned-cougar-during-hand-042336789.html)
-- Mar 18 - [In Germany, the far right is on the rise again. How did it happen?](https://www.yahoo.com/news/germany-far-rise-again-did-040958351.html)
-- Mar 18 - [Ten years since its illegal annexation, Crimea is a template for newly occupied parts of Ukraine](https://www.yahoo.com/news/ten-years-since-illegal-annexation-040029877.html)
 <!-- feed end -->
 
 ### Onstream
