@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Supreme Court chief justice denies ex-Trump aide Peter Navarro's bid to stave off prison sentence](https://www.yahoo.com/news/supreme-court-chief-justice-denies-213738490.html)
-- Mar 18 - [Remains of 17-Year-Old Who Served in War 80 Years Ago Identified](https://www.yahoo.com/news/remains-17-old-served-war-213557967.html)
+- Mar 18 - [When Peter Navarro goes to prison, he’ll hear the lions roar](https://www.yahoo.com/news/peter-navarro-goes-prison-ll-190657831.html)
+- Mar 18 - [Another 2024 GOP Presidential Candidate Says He Won't Endorse Trump](https://www.yahoo.com/news/another-2024-gop-presidential-candidate-215611320.html)
 - Mar 18 - [The longest-serving member of the Alabama House resigns after pleading guilty to federal charges](https://www.yahoo.com/news/longest-serving-member-alabama-house-203750986.html)
 - Mar 18 - [What happens if Trump can’t secure $464m bond in civil fraud case? Here’s what to know](https://www.yahoo.com/news/happens-trump-t-secure-464m-203712578.html)
-- Mar 18 - [Trump wants to appeal Georgia ruling that kept prosecutor on his case](https://www.yahoo.com/news/trump-seeks-appeal-georgia-prosecutor-200228208.html)
+- Mar 18 - [Even the Supreme Court’s Conservatives Are Fed Up With the Garbage Coming Out of the 5th Circuit](https://www.yahoo.com/news/even-supreme-court-conservatives-fed-201414395.html)
 <!-- feed end -->
 
 ### Onstream
