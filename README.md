@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 17 - [Missing University of Missouri student Riley Strain's bank card discovered as search continues](https://www.yahoo.com/news/missing-university-missouri-student-riley-215259852.html)
+- Mar 17 - [Putin Says He Agreed to Navalny Swap Before Activist's Death](https://finance.yahoo.com/video/putin-says-agreed-navalny-swap-235831696.html)
+- Mar 17 - [Police discover Riley Strain's bank card amid college student's disappearance](https://www.yahoo.com/news/missing-university-missouri-student-riley-215259852.html)
+- Mar 17 - [Commenting on Navalny's death for first time, Putin says he supported prisoner swap for his foe](https://www.yahoo.com/news/commenting-navalnys-death-first-time-230950104.html)
 - Mar 17 - [Pelosi on Trump: ‘You wouldn’t even allow him in your house, much less in the White House’](https://www.yahoo.com/news/pelosi-trump-wouldn-t-even-153948543.html)
 - Mar 17 - [Fact check: Trump, telling a completely fictional story, falsely claims he released ‘the tape’ of his Zelensky call](https://www.yahoo.com/news/fact-check-trump-telling-completely-170118316.html)
-- Mar 17 - [19 Signs From The Past Week That Are So Funny, You'll Wonder Why Male Comedians Even Try](https://www.yahoo.com/lifestyle/19-signs-past-week-funny-151503093.html)
-- Mar 17 - [Rats Get Into Marijuana at New Orleans Police Station and It's As Wild As It Sounds](https://www.yahoo.com/lifestyle/rats-marijuana-orleans-police-station-151500759.html)
 <!-- feed end -->
 
 ### Onstream
