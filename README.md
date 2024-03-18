@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Donald Trump’s $355M GoFundMe Stalls At $1.3M After A Month Amid Legal Battles](https://www.yahoo.com/entertainment/donald-trump-355m-gofundme-stalls-010840184.html)
+- Mar 18 - [Putin wins landslide in Russian election](https://www.yahoo.com/news/putin-wins-landslide-russian-election-023458781.html)
 - Mar 18 - [Trump doubles down on call for Liz Cheney to be prosecuted](https://www.yahoo.com/news/trump-doubles-down-call-liz-002857585.html)
+- Mar 18 - [Trump campaign defends his ‘bloodbath’ warning. Hear what political strategists think](https://www.yahoo.com/news/trump-campaign-defends-bloodbath-warning-001652963.html)
+- Mar 17 - [Elderly Washington state man reportedly poisoned with fentanyl by pair he met on dating app](https://www.yahoo.com/news/elderly-washington-state-man-reportedly-234149089.html)
 - Mar 17 - [Police discover Riley Strain's bank card amid college student's disappearance](https://www.yahoo.com/news/missing-university-missouri-student-riley-215259852.html)
-- Mar 17 - [Pelosi on Trump: ‘You wouldn’t even allow him in your house, much less in the White House’](https://www.yahoo.com/news/pelosi-trump-wouldn-t-even-153948543.html)
-- Mar 17 - [Fact check: Trump, telling a completely fictional story, falsely claims he released ‘the tape’ of his Zelensky call](https://www.yahoo.com/news/fact-check-trump-telling-completely-170118316.html)
 <!-- feed end -->
 
 ### Onstream
