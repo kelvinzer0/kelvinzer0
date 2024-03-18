@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [Mexican food chain has closed three Kansas City area locations. Now only one remains](https://www.yahoo.com/news/mexican-food-chain-closed-three-162210057.html)
+- Mar 18 - [Pence calls Trump’s move at rally ‘unacceptable’](https://www.yahoo.com/news/see-pence-reaction-trump-salutes-144329651.html)
 - Mar 18 - [Gangs unleash new attacks on upscale areas in Haiti's capital, with at least a dozen killed nearby](https://www.yahoo.com/news/gangs-unleash-attacks-upscale-areas-152118573.html)
-- Mar 18 - [UPDATE 2-Trump has failed to get appeal bond for $454 mln civil fraud judgment, lawyers say](https://finance.yahoo.com/news/1-trump-failed-appeal-bond-150739705.html)
-- Mar 18 - [Trump faces 'insurmountable difficulties' in securing $464M bond in civil fraud case, his attorneys say](https://www.yahoo.com/news/trump-faces-insurmountable-difficulties-securing-144740273.html)
-- Mar 18 - [See Pence’s reaction after Trump salutes Jan. 6 prisoners at rally](https://www.yahoo.com/news/see-pence-reaction-trump-salutes-144329651.html)
-- Mar 18 - [Ade Adepitan: ‘I went to the whitest place on Earth – and saw a global shift to the far-Right’](https://www.yahoo.com/lifestyle/ade-adepitan-went-whitest-place-140000339.html)
+- Mar 18 - [Trump's lawyers say it is impossible for him to post bond covering $454 million civil fraud judgment](https://www.yahoo.com/news/trumps-lawyers-impossible-him-post-151734672.html)
+- Mar 18 - [Rogue Russian soldiers capture second village in two days](https://www.yahoo.com/news/rogue-russian-soldiers-capture-second-151717541.html)
 <!-- feed end -->
 
 ### Onstream
