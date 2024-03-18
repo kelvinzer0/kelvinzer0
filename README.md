@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Trump loses bid to block Michael Cohen, Stormy Daniels testimony at hush money trial](https://www.yahoo.com/news/judge-denies-trump-request-exclude-205250856.html)
+- Mar 18 - [Supreme Court chief justice denies ex-Trump aide Peter Navarro's bid to stave off prison sentence](https://www.yahoo.com/news/supreme-court-chief-justice-denies-213738490.html)
+- Mar 18 - [Remains of 17-Year-Old Who Served in War 80 Years Ago Identified](https://www.yahoo.com/news/remains-17-old-served-war-213557967.html)
 - Mar 18 - [The longest-serving member of the Alabama House resigns after pleading guilty to federal charges](https://www.yahoo.com/news/longest-serving-member-alabama-house-203750986.html)
 - Mar 18 - [What happens if Trump can’t secure $464m bond in civil fraud case? Here’s what to know](https://www.yahoo.com/news/happens-trump-t-secure-464m-203712578.html)
 - Mar 18 - [Trump wants to appeal Georgia ruling that kept prosecutor on his case](https://www.yahoo.com/news/trump-seeks-appeal-georgia-prosecutor-200228208.html)
-- Mar 18 - [‘I thought hospital was the safest place my husband could be – until he died a slow, painful death’](https://www.yahoo.com/news/thought-hospital-safest-place-husband-193832213.html)
 <!-- feed end -->
 
 ### Onstream
