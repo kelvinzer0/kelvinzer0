@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [New video shows missing student Riley Strain briefly speak with police on night he vanished in Nashville](https://www.yahoo.com/news/video-shows-missing-student-riley-174355662.html)
+- Mar 18 - [Mom Gets Life in Prison After Leaving Baby Alone for 11 Days](https://www.yahoo.com/news/mom-gets-life-prison-leaving-173301679.html)
+- Mar 18 - [2 Black men tortured by Mississippi officers call for toughest sentences](https://www.yahoo.com/news/2-black-men-tortured-mississippi-171625250.html)
+- Mar 18 - [Michael Moore Says You'll Think He's Crazy For What He Thinks About Trump](https://www.yahoo.com/entertainment/michael-moore-says-youll-think-170340263.html)
 - Mar 18 - [Mexican food chain has closed three Kansas City area locations. Now only one remains](https://www.yahoo.com/news/mexican-food-chain-closed-three-162210057.html)
-- Mar 18 - [Pence calls Trump’s move at rally ‘unacceptable’](https://www.yahoo.com/news/see-pence-reaction-trump-salutes-144329651.html)
-- Mar 18 - [Gangs unleash new attacks on upscale areas in Haiti's capital, with at least a dozen killed nearby](https://www.yahoo.com/news/gangs-unleash-attacks-upscale-areas-152118573.html)
-- Mar 18 - [Trump's lawyers say it is impossible for him to post bond covering $454 million civil fraud judgment](https://www.yahoo.com/news/trumps-lawyers-impossible-him-post-151734672.html)
-- Mar 18 - [Rogue Russian soldiers capture second village in two days](https://www.yahoo.com/news/rogue-russian-soldiers-capture-second-151717541.html)
 <!-- feed end -->
 
 ### Onstream
