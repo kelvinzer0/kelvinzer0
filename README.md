@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [Tow truck driver delivers fatal punch in NYC parking spot dispute, police say](https://www.yahoo.com/news/tow-truck-driver-delivers-fatal-135951464.html)
+- Mar 18 - [Supreme Court rejects appeal by former New Mexico county commissioner banned for Jan. 6 insurrection](https://www.yahoo.com/news/supreme-court-rejects-appeal-former-133333894.html)
+- Mar 18 - [The heat pump fantasy is dead – only our blinkered elites haven’t noticed](https://www.yahoo.com/news/heat-pump-fantasy-dead-only-122544233.html)
 - Mar 18 - [Independent Russian vote monitor says election was a mockery](https://www.yahoo.com/news/independent-russian-vote-monitor-says-121509333.html)
 - Mar 18 - [Biden’s ‘maximum stability’ sneakers raise eyebrows on social media: ‘Air Bidens’](https://www.yahoo.com/news/biden-maximum-stability-sneakers-raise-115456918.html)
-- Mar 18 - [Justice Breyer, Off the Bench, Sounds an Alarm Over the Supreme Court’s Direction](https://www.yahoo.com/news/justice-breyer-off-bench-sounds-114138411.html)
-- Mar 18 - [With the election behind him, Putin says Russian forces aim to set up a buffer zone inside Ukraine](https://www.yahoo.com/news/putin-says-russia-planning-buffer-112525890.html)
-- Mar 18 - [Rich Americans keep high-end RV company rolling along](https://www.yahoo.com/news/rich-americans-keep-high-end-100630321.html)
 <!-- feed end -->
 
 ### Onstream
