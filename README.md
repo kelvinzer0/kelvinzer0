@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [South Korean defense chief says North Korea has supplied 7,000 containers of munitions to Russia](https://www.yahoo.com/news/south-korean-defense-chief-says-100703991.html)
+- Mar 18 - [Rich Americans keep high-end RV company rolling along](https://www.yahoo.com/news/rich-americans-keep-high-end-100630321.html)
 - Mar 18 - [China's military, state media slam U.S. after Reuters report on SpaceX spy satellites](https://www.yahoo.com/tech/chinas-military-state-media-slam-093340652.html)
 - Mar 18 - [A 15-year problem that has plagued corporate America is finally turning around](https://finance.yahoo.com/news/a-15-year-problem-that-has-plagued-corporate-america-is-finally-turning-around-141822989.html)
 - Mar 18 - [Column: Trump has big plans for California if he wins a second term. Fasten your seatbelts](https://www.yahoo.com/news/column-trump-big-plans-california-090043162.html)
-- Mar 18 - ['Something Wrong Here': Nancy Pelosi Gives Voters Frightening Trump Reality Check](https://www.yahoo.com/news/something-wrong-nancy-pelosi-gives-084809232.html)
-- Mar 18 - [Trump Delivers Head-Spinningly Awkward Answer To New Question About Putin](https://www.yahoo.com/news/trump-delivers-head-spinningly-awkward-074000812.html)
 <!-- feed end -->
 
 ### Onstream
