@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [Trump loses bid to block Michael Cohen, Stormy Daniels testimony at hush money trial](https://www.yahoo.com/news/judge-denies-trump-request-exclude-205250856.html)
+- Mar 18 - [The longest-serving member of the Alabama House resigns after pleading guilty to federal charges](https://www.yahoo.com/news/longest-serving-member-alabama-house-203750986.html)
+- Mar 18 - [What happens if Trump can’t secure $464m bond in civil fraud case? Here’s what to know](https://www.yahoo.com/news/happens-trump-t-secure-464m-203712578.html)
+- Mar 18 - [Trump wants to appeal Georgia ruling that kept prosecutor on his case](https://www.yahoo.com/news/trump-seeks-appeal-georgia-prosecutor-200228208.html)
 - Mar 18 - [‘I thought hospital was the safest place my husband could be – until he died a slow, painful death’](https://www.yahoo.com/news/thought-hospital-safest-place-husband-193832213.html)
-- Mar 18 - [Former Olympian Caitlyn Jenner backs New York county's ban on transgender female athletes](https://www.yahoo.com/news/former-olympian-caitlyn-jenner-backs-193051923.html)
-- Mar 18 - [Social media influencer is charged with joining the Jan. 6 attack on the US Capitol](https://www.yahoo.com/news/social-media-influencer-charged-joining-192255017.html)
-- Mar 18 - [If Peter Navarro goes to prison, he’ll hear the lions roar](https://www.yahoo.com/news/peter-navarro-goes-prison-ll-190657831.html)
-- Mar 18 - [New video shows missing student Riley Strain briefly speak with police on night he vanished in Nashville](https://www.yahoo.com/news/video-shows-missing-student-riley-174355662.html)
 <!-- feed end -->
 
 ### Onstream
