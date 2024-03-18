@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [China's military, state media slam U.S. after Reuters report on SpaceX spy satellites](https://www.yahoo.com/tech/chinas-military-state-media-slam-093340652.html)
 - Mar 18 - [A 15-year problem that has plagued corporate America is finally turning around](https://finance.yahoo.com/news/a-15-year-problem-that-has-plagued-corporate-america-is-finally-turning-around-141822989.html)
+- Mar 18 - [Column: Trump has big plans for California if he wins a second term. Fasten your seatbelts](https://www.yahoo.com/news/column-trump-big-plans-california-090043162.html)
+- Mar 18 - ['Something Wrong Here': Nancy Pelosi Gives Voters Frightening Trump Reality Check](https://www.yahoo.com/news/something-wrong-nancy-pelosi-gives-084809232.html)
 - Mar 18 - [Trump Delivers Head-Spinningly Awkward Answer To New Question About Putin](https://www.yahoo.com/news/trump-delivers-head-spinningly-awkward-074000812.html)
-- Mar 18 - [Shock and confusion as Turkey seizes earthquake survivors' homes](https://www.yahoo.com/news/shock-confusion-turkey-seizes-earthquake-073436966.html)
-- Mar 18 - [How Russia's grab of Crimea 10 years ago led to war with Ukraine and rising tensions with the West](https://www.yahoo.com/news/russias-grab-crimea-10-years-052404206.html)
-- Mar 18 - [Women pinned cougar during ‘hand-to-hand combat’ to save friend trapped in its jaws](https://www.yahoo.com/news/women-pinned-cougar-during-hand-042336789.html)
 <!-- feed end -->
 
 ### Onstream
