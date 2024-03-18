@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Putin wins landslide in Russian election](https://www.yahoo.com/news/putin-wins-landslide-russian-election-023458781.html)
+- Mar 18 - [Body of 18-year-old Carson Hughes recovered from Versailles Lake in Ripley County](https://www.yahoo.com/news/body-18-old-carson-hughes-034547634.html)
+- Mar 18 - [15 States with the Highest Homeless Population in the US](https://finance.yahoo.com/news/15-states-highest-homeless-population-011835825.html)
 - Mar 18 - [Trump doubles down on call for Liz Cheney to be prosecuted](https://www.yahoo.com/news/trump-doubles-down-call-liz-002857585.html)
 - Mar 18 - [Trump campaign defends his ‘bloodbath’ warning. Hear what political strategists think](https://www.yahoo.com/news/trump-campaign-defends-bloodbath-warning-001652963.html)
 - Mar 17 - [Elderly Washington state man reportedly poisoned with fentanyl by pair he met on dating app](https://www.yahoo.com/news/elderly-washington-state-man-reportedly-234149089.html)
-- Mar 17 - [Police discover Riley Strain's bank card amid college student's disappearance](https://www.yahoo.com/news/missing-university-missouri-student-riley-215259852.html)
 <!-- feed end -->
 
 ### Onstream
