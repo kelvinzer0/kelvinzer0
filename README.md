@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [Tesla CEO Elon Musk teases new Roadster amid price hikes](https://finance.yahoo.com/video/tesla-ceo-elon-musk-teases-144750471.html)
+- Mar 18 - [Ade Adepitan: ‘I went to the whitest place on Earth – and saw a global shift to the far-Right’](https://www.yahoo.com/lifestyle/ade-adepitan-went-whitest-place-140000339.html)
 - Mar 18 - [Tow truck driver delivers fatal punch in NYC parking spot dispute, police say](https://www.yahoo.com/news/tow-truck-driver-delivers-fatal-135951464.html)
+- Mar 18 - [23 Very, Very, Very, Very, Very, Very, Very, Very, Very Honest Answers About What People Say They Miss Most From Their Childhood](https://www.yahoo.com/lifestyle/23-very-very-very-very-134221140.html)
 - Mar 18 - [Supreme Court rejects appeal by former New Mexico county commissioner banned for Jan. 6 insurrection](https://www.yahoo.com/news/supreme-court-rejects-appeal-former-133333894.html)
-- Mar 18 - [The heat pump fantasy is dead – only our blinkered elites haven’t noticed](https://www.yahoo.com/news/heat-pump-fantasy-dead-only-122544233.html)
-- Mar 18 - [Independent Russian vote monitor says election was a mockery](https://www.yahoo.com/news/independent-russian-vote-monitor-says-121509333.html)
-- Mar 18 - [Biden’s ‘maximum stability’ sneakers raise eyebrows on social media: ‘Air Bidens’](https://www.yahoo.com/news/biden-maximum-stability-sneakers-raise-115456918.html)
 <!-- feed end -->
 
 ### Onstream
