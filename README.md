@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [‘I thought hospital was the safest place my husband could be – until he died a slow, painful death’](https://www.yahoo.com/news/thought-hospital-safest-place-husband-193832213.html)
+- Mar 18 - [Former Olympian Caitlyn Jenner backs New York county's ban on transgender female athletes](https://www.yahoo.com/news/former-olympian-caitlyn-jenner-backs-193051923.html)
+- Mar 18 - [Social media influencer is charged with joining the Jan. 6 attack on the US Capitol](https://www.yahoo.com/news/social-media-influencer-charged-joining-192255017.html)
+- Mar 18 - [If Peter Navarro goes to prison, he’ll hear the lions roar](https://www.yahoo.com/news/peter-navarro-goes-prison-ll-190657831.html)
 - Mar 18 - [New video shows missing student Riley Strain briefly speak with police on night he vanished in Nashville](https://www.yahoo.com/news/video-shows-missing-student-riley-174355662.html)
-- Mar 18 - [Mom Gets Life in Prison After Leaving Baby Alone for 11 Days](https://www.yahoo.com/news/mom-gets-life-prison-leaving-173301679.html)
-- Mar 18 - [2 Black men tortured by Mississippi officers call for toughest sentences](https://www.yahoo.com/news/2-black-men-tortured-mississippi-171625250.html)
-- Mar 18 - [Michael Moore Says You'll Think He's Crazy For What He Thinks About Trump](https://www.yahoo.com/entertainment/michael-moore-says-youll-think-170340263.html)
-- Mar 18 - [Mexican food chain has closed three Kansas City area locations. Now only one remains](https://www.yahoo.com/news/mexican-food-chain-closed-three-162210057.html)
 <!-- feed end -->
 
 ### Onstream
