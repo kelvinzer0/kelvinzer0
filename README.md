@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 18 - [Tesla CEO Elon Musk teases new Roadster amid price hikes](https://finance.yahoo.com/video/tesla-ceo-elon-musk-teases-144750471.html)
+- Mar 18 - [Gangs unleash new attacks on upscale areas in Haiti's capital, with at least a dozen killed nearby](https://www.yahoo.com/news/gangs-unleash-attacks-upscale-areas-152118573.html)
+- Mar 18 - [UPDATE 2-Trump has failed to get appeal bond for $454 mln civil fraud judgment, lawyers say](https://finance.yahoo.com/news/1-trump-failed-appeal-bond-150739705.html)
+- Mar 18 - [Trump faces 'insurmountable difficulties' in securing $464M bond in civil fraud case, his attorneys say](https://www.yahoo.com/news/trump-faces-insurmountable-difficulties-securing-144740273.html)
+- Mar 18 - [See Pence’s reaction after Trump salutes Jan. 6 prisoners at rally](https://www.yahoo.com/news/see-pence-reaction-trump-salutes-144329651.html)
 - Mar 18 - [Ade Adepitan: ‘I went to the whitest place on Earth – and saw a global shift to the far-Right’](https://www.yahoo.com/lifestyle/ade-adepitan-went-whitest-place-140000339.html)
-- Mar 18 - [Tow truck driver delivers fatal punch in NYC parking spot dispute, police say](https://www.yahoo.com/news/tow-truck-driver-delivers-fatal-135951464.html)
-- Mar 18 - [23 Very, Very, Very, Very, Very, Very, Very, Very, Very Honest Answers About What People Say They Miss Most From Their Childhood](https://www.yahoo.com/lifestyle/23-very-very-very-very-134221140.html)
-- Mar 18 - [Supreme Court rejects appeal by former New Mexico county commissioner banned for Jan. 6 insurrection](https://www.yahoo.com/news/supreme-court-rejects-appeal-former-133333894.html)
 <!-- feed end -->
 
 ### Onstream
