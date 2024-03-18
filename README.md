@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [How Russia's grab of Crimea 10 years ago led to war with Ukraine and rising tensions with the West](https://www.yahoo.com/news/russias-grab-crimea-10-years-052404206.html)
 - Mar 18 - [Women pinned cougar during ‘hand-to-hand combat’ to save friend trapped in its jaws](https://www.yahoo.com/news/women-pinned-cougar-during-hand-042336789.html)
 - Mar 18 - [In Germany, the far right is on the rise again. How did it happen?](https://www.yahoo.com/news/germany-far-rise-again-did-040958351.html)
+- Mar 18 - [Ten years since its illegal annexation, Crimea is a template for newly occupied parts of Ukraine](https://www.yahoo.com/news/ten-years-since-illegal-annexation-040029877.html)
 - Mar 18 - [Body of 18-year-old Carson Hughes recovered from Versailles Lake in Ripley County](https://www.yahoo.com/news/body-18-old-carson-hughes-034547634.html)
-- Mar 18 - [15 States with the Highest Homeless Population in the US](https://finance.yahoo.com/news/15-states-highest-homeless-population-011835825.html)
-- Mar 18 - [Azeri president says peace with Armenia is closer than ever](https://www.yahoo.com/news/azeri-president-says-peace-armenia-005146289.html)
 <!-- feed end -->
 
 ### Onstream
