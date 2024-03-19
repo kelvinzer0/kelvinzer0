@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Trump says he could have to sell assets to cover $454 million fraud judgment](https://www.yahoo.com/news/trump-says-could-sell-assets-163136695.html)
-- Mar 19 - [Arizona lawmaker says she plans to have an abortion after learning her pregnancy isn't viable](https://www.yahoo.com/news/arizona-lawmaker-says-she-plans-153049461.html)
-- Mar 19 - [Trump Throws Tantrum After Failing to Post Bond in NY Fraud Case](https://www.yahoo.com/news/trump-throws-tantrum-failing-post-152358019.html)
-- Mar 19 - [Palestinian clans and factions step in to protect Gaza aid, sources say](https://www.yahoo.com/news/palestinian-clans-factions-step-protect-151626200.html)
-- Mar 19 - [MacKenzie Scott donates $640 million -- more than double her initial plan -- to nonprofit applicants](https://www.yahoo.com/news/mackenzie-scott-donates-640-million-150122972.html)
+- Mar 19 - [Palace has lost control of the Princess of Wales narrative – here’s the picture that shows why](https://www.yahoo.com/news/palace-lost-control-princess-wales-180702585.html)
+- Mar 19 - [“Trump lost almost everything”: Legal expert says judge’s evidence ruling a “disaster for Trump”](https://www.yahoo.com/news/trump-lost-almost-everything-legal-175623098.html)
+- Mar 19 - [Drunken parents who passed out on Florida beach face child neglect charges, cops say](https://www.yahoo.com/news/drunken-parents-passed-florida-beach-172133579.html)
+- Mar 19 - [Kushner Pitches Moving Palestinians Out of Gaza’s ‘Valuable’ Waterfront](https://www.yahoo.com/news/kushner-pitches-moving-palestinians-gaza-171105082.html)
+- Mar 19 - [Missouri girl in critical condition after video shows teen slamming her head in 'deranged display of violence'](https://www.yahoo.com/news/missouri-girl-critical-condition-video-164610952.html)
 <!-- feed end -->
 
 ### Onstream
