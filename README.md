@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [Trump is making the Jan. 6 attack a cornerstone of his bid for the White House](https://www.yahoo.com/news/trump-making-jan-6-attack-041147424.html)
 - Mar 19 - [Mar-a-Lago Judge’s Stark Ruling: Jury Sees Secret Files or Trump Wins](https://www.yahoo.com/news/mar-lago-judge-stark-ruling-022208652.html)
 - Mar 19 - [Pro-Trump attorney arrested after court hearing about leaked Dominion emails](https://www.yahoo.com/news/trump-allies-disrupt-2020-election-235816366.html)
 - Mar 19 - [‘He’s really angry’: Cohen on Trump’s reaction to his inability to make bond](https://www.yahoo.com/news/really-angry-cohen-trump-reaction-014435103.html)
 - Mar 19 - [Mom Who Left Toddler Alone In Playpen While She Went On Vacation Gets Life Sentence](https://www.yahoo.com/news/mom-left-toddler-alone-playpen-002803671.html)
-- Mar 19 - [When Peter Navarro goes to prison, he’ll hear the lions roar](https://www.yahoo.com/news/peter-navarro-goes-prison-ll-190657831.html)
 <!-- feed end -->
 
 ### Onstream
