@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Why Trump’s legal troubles may soon catch up with his reelection campaign](https://www.yahoo.com/news/why-trump-legal-troubles-may-193756447.html)
+- Mar 19 - [South Carolina's governor marks new gun law with ceremonial bill signing](https://www.yahoo.com/news/south-carolinas-governor-marks-gun-201022387.html)
 - Mar 19 - [Texas mother, 3-year-old son believed found in ditch in possible murder-suicide](https://www.yahoo.com/news/texas-mother-3-old-son-192852941.html)
 - Mar 19 - [Trump urges US Supreme Court to endorse 'absolute immunity' for ex-presidents](https://www.yahoo.com/news/trump-files-us-supreme-court-192608876.html)
 - Mar 19 - [Supreme Court opens new frontier for insurrection claims that could target state and local officials](https://www.yahoo.com/news/supreme-court-opens-frontier-insurrection-191826768.html)
