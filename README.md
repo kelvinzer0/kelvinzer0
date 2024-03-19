@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Mar 19 - [Texas man used to spend $9,000 a month partying, now refuses to work more than 15 hours a week to pay off debt](https://finance.yahoo.com/news/texas-man-used-spend-9-104400824.html)
 - Mar 19 - [Images taken deep inside melted Fukushima reactor show damage, but leave many questions unanswered](https://www.yahoo.com/news/images-taken-deep-inside-melted-085109331.html)
 - Mar 19 - [Trump Golf Club Settlement Hangs Alina Habba Out to Dry](https://www.yahoo.com/news/trump-golf-club-settlement-hangs-084203594.html)
-- Mar 19 - [Ex-Trump Aide Says This Letitia James Move Would 'Absolutely Devastate' Trump](https://www.yahoo.com/news/ex-trump-aide-says-letitia-080812891.html)
 - Mar 19 - [Editorial: No more targeting LGBTQ folks: Florida settlement illuminates MAGA strategy](https://www.yahoo.com/news/editorial-no-more-targeting-lgbtq-080000921.html)
+- Mar 19 - [Michigan school shooter's father threatened to destroy the prosecutor in case against him, sources confirm](https://www.yahoo.com/news/michigan-school-shooter-father-threatened-070455688.html)
 <!-- feed end -->
 
 ### Onstream
