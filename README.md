@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [Confusing last text message sent by missing student Riley Strain revealed: ‘Good lops’](https://www.yahoo.com/news/confusing-last-text-message-sent-142522992.html)
+- Mar 19 - [Child in wheelchair spends school day with broken legs when no one helps, lawsuit says](https://www.yahoo.com/news/child-wheelchair-spends-school-day-131630524.html)
 - Mar 19 - [Hamas' No 3, reported dead, was 'nightmare' for Israel](https://www.yahoo.com/news/hamas-no-3-reported-dead-125437290.html)
 - Mar 19 - [Trump sues ABC and Stephanopoulos, alleging defamation over Mace interview](https://www.yahoo.com/news/trump-sues-abc-stephanopoulos-alleging-121809986.html)
-- Mar 19 - [Yulia Navalnaya says Putin is not Russia's legitimate president](https://www.yahoo.com/news/yulia-navalnaya-says-putin-not-120704770.html)
 - Mar 19 - [Hundreds Of Jews In Hollywood Denounce Jonathan Glazer's Oscars Speech In Letter](https://www.yahoo.com/entertainment/hundreds-jews-hollywood-denounce-jonathan-113147846.html)
-- Mar 19 - [Highway takeover: Drivers react after video shows more than 100 bikers snarling traffic in Boston](https://www.yahoo.com/news/highway-takeover-drivers-react-video-112747832.html)
 <!-- feed end -->
 
 ### Onstream
