@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [Trump sues ABC and Stephanopoulos, alleging defamation over Mace interview](https://www.yahoo.com/news/trump-sues-abc-stephanopoulos-alleging-121809986.html)
+- Mar 19 - [Hundreds Of Jews In Hollywood Denounce Jonathan Glazer's Oscars Speech In Letter](https://www.yahoo.com/entertainment/hundreds-jews-hollywood-denounce-jonathan-113147846.html)
 - Mar 19 - [Texas man used to spend $9,000 a month partying, now refuses to work more than 15 hours a week to pay off debt](https://finance.yahoo.com/news/texas-man-used-spend-9-104400824.html)
 - Mar 19 - [Images taken deep inside melted Fukushima reactor show damage, but leave many questions unanswered](https://www.yahoo.com/news/images-taken-deep-inside-melted-085109331.html)
 - Mar 19 - [Trump Golf Club Settlement Hangs Alina Habba Out to Dry](https://www.yahoo.com/news/trump-golf-club-settlement-hangs-084203594.html)
-- Mar 19 - [Editorial: No more targeting LGBTQ folks: Florida settlement illuminates MAGA strategy](https://www.yahoo.com/news/editorial-no-more-targeting-lgbtq-080000921.html)
-- Mar 19 - [Michigan school shooter's father threatened to destroy the prosecutor in case against him, sources confirm](https://www.yahoo.com/news/michigan-school-shooter-father-threatened-070455688.html)
 <!-- feed end -->
 
 ### Onstream
