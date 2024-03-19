@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [Trump Golf Club Settlement Hangs Alina Habba Out to Dry](https://www.yahoo.com/news/trump-golf-club-settlement-hangs-084203594.html)
+- Mar 19 - [Ex-Trump Aide Says This Letitia James Move Would 'Absolutely Devastate' Trump](https://www.yahoo.com/news/ex-trump-aide-says-letitia-080812891.html)
 - Mar 19 - [Michigan school shooter’s father threatened to destroy the prosecutor in case against him, sources confirm](https://www.yahoo.com/news/michigan-school-shooter-father-threatened-070455688.html)
-- Mar 19 - [Armenia's PM says he must return disputed areas to Azerbaijan or face war -TASS](https://www.yahoo.com/news/armenias-pm-says-must-return-065313595.html)
+- Mar 19 - [Armenia's PM says he must return disputed areas to Azerbaijan or face war](https://www.yahoo.com/news/armenias-pm-says-must-return-065313595.html)
 - Mar 19 - [Chicago begins evicting migrants from shelters as residents decry a 'lack of respect'](https://www.yahoo.com/news/chicago-begins-evicting-migrants-shelters-052156960.html)
-- Mar 19 - [Trump is making the Jan. 6 attack a cornerstone of his bid for the White House](https://www.yahoo.com/news/trump-making-jan-6-attack-041147424.html)
-- Mar 19 - [Mar-a-Lago Judge’s Stark Ruling: Jury Sees Secret Files or Trump Wins](https://www.yahoo.com/news/mar-lago-judge-stark-ruling-022208652.html)
 <!-- feed end -->
 
 ### Onstream
