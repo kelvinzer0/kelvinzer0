@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [Mom Who Left Toddler Alone In Playpen While She Went On Vacation Gets Life Sentence](https://www.yahoo.com/news/mom-left-toddler-alone-playpen-002803671.html)
+- Mar 18 - [Pro-Trump Michigan attorney arrested after hearing in DC over leaking Dominion documents](https://www.yahoo.com/news/defendants-attorney-dominion-voting-defamation-235934688.html)
+- Mar 18 - [Trump allies disrupt 2020 election defamation case by leaking Dominion emails](https://www.yahoo.com/news/trump-allies-disrupt-2020-election-235816366.html)
+- Mar 18 - [Teen’s family says she still hasn’t regained consciousness after fight near St. Louis high school](https://www.yahoo.com/news/teen-family-says-she-still-225458327.html)
 - Mar 18 - [When Peter Navarro goes to prison, he’ll hear the lions roar](https://www.yahoo.com/news/peter-navarro-goes-prison-ll-190657831.html)
-- Mar 18 - [Another 2024 GOP Presidential Candidate Says He Won't Endorse Trump](https://www.yahoo.com/news/another-2024-gop-presidential-candidate-215611320.html)
-- Mar 18 - [The longest-serving member of the Alabama House resigns after pleading guilty to federal charges](https://www.yahoo.com/news/longest-serving-member-alabama-house-203750986.html)
-- Mar 18 - [What happens if Trump can’t secure $464m bond in civil fraud case? Here’s what to know](https://www.yahoo.com/news/happens-trump-t-secure-464m-203712578.html)
-- Mar 18 - [Even the Supreme Court’s Conservatives Are Fed Up With the Garbage Coming Out of the 5th Circuit](https://www.yahoo.com/news/even-supreme-court-conservatives-fed-201414395.html)
 <!-- feed end -->
 
 ### Onstream
