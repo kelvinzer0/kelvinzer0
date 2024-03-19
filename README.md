@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Palace has lost control of the Princess of Wales narrative – here’s the picture that shows why](https://www.yahoo.com/news/palace-lost-control-princess-wales-180702585.html)
-- Mar 19 - [“Trump lost almost everything”: Legal expert says judge’s evidence ruling a “disaster for Trump”](https://www.yahoo.com/news/trump-lost-almost-everything-legal-175623098.html)
-- Mar 19 - [Drunken parents who passed out on Florida beach face child neglect charges, cops say](https://www.yahoo.com/news/drunken-parents-passed-florida-beach-172133579.html)
-- Mar 19 - [Kushner Pitches Moving Palestinians Out of Gaza’s ‘Valuable’ Waterfront](https://www.yahoo.com/news/kushner-pitches-moving-palestinians-gaza-171105082.html)
-- Mar 19 - [Missouri girl in critical condition after video shows teen slamming her head in 'deranged display of violence'](https://www.yahoo.com/news/missouri-girl-critical-condition-video-164610952.html)
+- Mar 19 - [Homeowner Finds Toes Sticking Out of Ground in Backyard, Leading to Discovery of Missing Man's Body](https://www.yahoo.com/entertainment/homeowner-finds-toes-sticking-ground-183230287.html)
+- Mar 19 - [Key questions as Trump hurtles toward deadline to pay $454 million fraud penalty](https://www.yahoo.com/news/key-questions-trump-hurtles-toward-182235153.html)
+- Mar 19 - [US Supreme Court lets Texas border enforcement law take effect](https://www.yahoo.com/news/us-supreme-court-wont-halt-181828083.html)
+- Mar 19 - [Palace has lost control of the Princess of Wales narrative – here’s the picture that shows how](https://www.yahoo.com/news/palace-lost-control-princess-wales-180702585.html)
+- Mar 19 - [Policeman raped mother while on duty in Plymouth, court hears](https://www.yahoo.com/news/policeman-raped-mother-while-duty-175955518.html)
 <!-- feed end -->
 
 ### Onstream
