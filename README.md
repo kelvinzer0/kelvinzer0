@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 19 - [Homeowner Finds Toes Sticking Out of Ground in Backyard, Leading to Discovery of Missing Man's Body](https://www.yahoo.com/entertainment/homeowner-finds-toes-sticking-ground-183230287.html)
+- Mar 19 - [Why Trump’s legal troubles may soon catch up with his reelection campaign](https://www.yahoo.com/news/why-trump-legal-troubles-may-193756447.html)
+- Mar 19 - [Texas mother, 3-year-old son believed found in ditch in possible murder-suicide](https://www.yahoo.com/news/texas-mother-3-old-son-192852941.html)
+- Mar 19 - [Trump urges US Supreme Court to endorse 'absolute immunity' for ex-presidents](https://www.yahoo.com/news/trump-files-us-supreme-court-192608876.html)
+- Mar 19 - [Supreme Court opens new frontier for insurrection claims that could target state and local officials](https://www.yahoo.com/news/supreme-court-opens-frontier-insurrection-191826768.html)
 - Mar 19 - [Key questions as Trump hurtles toward deadline to pay $454 million fraud penalty](https://www.yahoo.com/news/key-questions-trump-hurtles-toward-182235153.html)
-- Mar 19 - [US Supreme Court lets Texas border enforcement law take effect](https://www.yahoo.com/news/us-supreme-court-wont-halt-181828083.html)
-- Mar 19 - [Palace has lost control of the Princess of Wales narrative – here’s the picture that shows how](https://www.yahoo.com/news/palace-lost-control-princess-wales-180702585.html)
-- Mar 19 - [Policeman raped mother while on duty in Plymouth, court hears](https://www.yahoo.com/news/policeman-raped-mother-while-duty-175955518.html)
 <!-- feed end -->
 
 ### Onstream
