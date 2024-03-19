@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [Hamas' No 3, reported dead, was 'nightmare' for Israel](https://www.yahoo.com/news/hamas-no-3-reported-dead-125437290.html)
 - Mar 19 - [Trump sues ABC and Stephanopoulos, alleging defamation over Mace interview](https://www.yahoo.com/news/trump-sues-abc-stephanopoulos-alleging-121809986.html)
+- Mar 19 - [Yulia Navalnaya says Putin is not Russia's legitimate president](https://www.yahoo.com/news/yulia-navalnaya-says-putin-not-120704770.html)
 - Mar 19 - [Hundreds Of Jews In Hollywood Denounce Jonathan Glazer's Oscars Speech In Letter](https://www.yahoo.com/entertainment/hundreds-jews-hollywood-denounce-jonathan-113147846.html)
-- Mar 19 - [Texas man used to spend $9,000 a month partying, now refuses to work more than 15 hours a week to pay off debt](https://finance.yahoo.com/news/texas-man-used-spend-9-104400824.html)
-- Mar 19 - [Images taken deep inside melted Fukushima reactor show damage, but leave many questions unanswered](https://www.yahoo.com/news/images-taken-deep-inside-melted-085109331.html)
-- Mar 19 - [Trump Golf Club Settlement Hangs Alina Habba Out to Dry](https://www.yahoo.com/news/trump-golf-club-settlement-hangs-084203594.html)
+- Mar 19 - [Highway takeover: Drivers react after video shows more than 100 bikers snarling traffic in Boston](https://www.yahoo.com/news/highway-takeover-drivers-react-video-112747832.html)
 <!-- feed end -->
 
 ### Onstream
