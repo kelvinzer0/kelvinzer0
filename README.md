@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [Arizona lawmaker says she plans to have an abortion after learning her pregnancy isn't viable](https://www.yahoo.com/news/arizona-lawmaker-says-she-plans-153049461.html)
+- Mar 19 - [Palestinian clans and factions step in to protect Gaza aid, sources say](https://www.yahoo.com/news/palestinian-clans-factions-step-protect-151626200.html)
+- Mar 19 - [MacKenzie Scott donates $640 million -- more than double her initial plan -- to nonprofit applicants](https://www.yahoo.com/news/mackenzie-scott-donates-640-million-150122972.html)
 - Mar 19 - [Confusing last text message sent by missing student Riley Strain revealed: ‘Good lops’](https://www.yahoo.com/news/confusing-last-text-message-sent-142522992.html)
 - Mar 19 - [Child in wheelchair spends school day with broken legs when no one helps, lawsuit says](https://www.yahoo.com/news/child-wheelchair-spends-school-day-131630524.html)
-- Mar 19 - [Hamas' No 3, reported dead, was 'nightmare' for Israel](https://www.yahoo.com/news/hamas-no-3-reported-dead-125437290.html)
-- Mar 19 - [Trump sues ABC and Stephanopoulos, alleging defamation over Mace interview](https://www.yahoo.com/news/trump-sues-abc-stephanopoulos-alleging-121809986.html)
-- Mar 19 - [Hundreds Of Jews In Hollywood Denounce Jonathan Glazer's Oscars Speech In Letter](https://www.yahoo.com/entertainment/hundreds-jews-hollywood-denounce-jonathan-113147846.html)
 <!-- feed end -->
 
 ### Onstream
