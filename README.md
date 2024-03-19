@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [Mar-a-Lago Judge’s Stark Ruling: Jury Sees Secret Files or Trump Wins](https://www.yahoo.com/news/mar-lago-judge-stark-ruling-022208652.html)
+- Mar 19 - [Pro-Trump attorney arrested after court hearing about leaked Dominion emails](https://www.yahoo.com/news/trump-allies-disrupt-2020-election-235816366.html)
 - Mar 19 - [Mom Who Left Toddler Alone In Playpen While She Went On Vacation Gets Life Sentence](https://www.yahoo.com/news/mom-left-toddler-alone-playpen-002803671.html)
 - Mar 19 - [When Peter Navarro goes to prison, he’ll hear the lions roar](https://www.yahoo.com/news/peter-navarro-goes-prison-ll-190657831.html)
-- Mar 18 - [Trump allies disrupt 2020 election defamation case by leaking Dominion emails](https://www.yahoo.com/news/trump-allies-disrupt-2020-election-235816366.html)
-- Mar 18 - [As Tulsi Gabbard joins Trump's VP shortlist, her father distances himself](https://www.yahoo.com/news/tulsi-gabbard-joins-trumps-vp-230524183.html)
 - Mar 18 - [Teen’s family says she still hasn’t regained consciousness after fight near St. Louis high school](https://www.yahoo.com/news/teen-family-says-she-still-225458327.html)
 <!-- feed end -->
 
