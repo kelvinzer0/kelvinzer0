@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [Vermont owner of now-defunct firearms training center is arrested](https://www.yahoo.com/news/vermont-owner-now-defunct-firearms-211441306.html)
+- Mar 20 - [Longtime Trump employee: Mar-a-Lago culture would have led many to commit crimes](https://www.yahoo.com/news/longtime-trump-employee-mar-lago-223656974.html)
+- Mar 20 - [DPH warns public not to drink bottled water from Mass. company due to PFAS contamination](https://www.yahoo.com/news/dph-warns-public-not-drink-185012732.html)
+- Mar 20 - [Angela Chao's blood alcohol content nearly 3x legal limit before her fatal drive into pond](https://www.yahoo.com/news/angela-chaos-blood-alcohol-content-221829322.html)
+- Mar 20 - [Invasive fish in the Adriatic threaten local species](https://www.yahoo.com/news/invasive-fish-adriatic-threaten-local-215934874.html)
 - Mar 20 - [This Queens woman was arrested for trying to keep squatters out of her home by changing the locks](https://finance.yahoo.com/news/queens-woman-arrested-trying-keep-210000522.html)
-- Mar 20 - [Airport executive shot in firefight with federal agents at his home in Arkansas](https://www.yahoo.com/news/airport-executive-shot-firefight-federal-135816972.html)
-- Mar 20 - [Missing elevator sends New Jersey grandma down shaft as horrified granddaughter looks on](https://www.yahoo.com/news/missing-elevator-sends-jersey-grandma-200651128.html)
-- Mar 20 - [After a handcuffed ride in the back of a police van, a man was left paralyzed and needed his legs amputated, lawsuit alleges](https://www.yahoo.com/news/handcuffed-ride-back-police-van-200430439.html)
 <!-- feed end -->
 
 ### Onstream
