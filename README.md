@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [Vermont owner of now-defunct firearms training center is arrested](https://www.yahoo.com/news/vermont-owner-now-defunct-firearms-211441306.html)
+- Mar 20 - [This Queens woman was arrested for trying to keep squatters out of her home by changing the locks](https://finance.yahoo.com/news/queens-woman-arrested-trying-keep-210000522.html)
 - Mar 20 - [Airport executive shot in firefight with federal agents at his home in Arkansas](https://www.yahoo.com/news/airport-executive-shot-firefight-federal-135816972.html)
 - Mar 20 - [Missing elevator sends New Jersey grandma down shaft as horrified granddaughter looks on](https://www.yahoo.com/news/missing-elevator-sends-jersey-grandma-200651128.html)
 - Mar 20 - [After a handcuffed ride in the back of a police van, a man was left paralyzed and needed his legs amputated, lawsuit alleges](https://www.yahoo.com/news/handcuffed-ride-back-police-van-200430439.html)
-- Mar 20 - [Dentist warns against 1 habit that leaves 'the baddest, toughest' germs in your mouth](https://www.yahoo.com/news/dentist-warns-against-1-habit-123125365.html)
-- Mar 20 - [An Ohio toddler died after her mom left her home alone while she took a 10-day vacation. A judge called it the ‘ultimate act of betrayal’](https://www.yahoo.com/news/ohio-toddler-died-her-mom-130612092.html)
 <!-- feed end -->
 
 ### Onstream
