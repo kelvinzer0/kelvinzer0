@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 19 - [Jared Kushner, Trump's son-in-law, praises 'very valuable' potential of Gaza's 'waterfront property'](https://www.yahoo.com/news/jared-kushner-trumps-son-law-231605420.html)
 - Mar 19 - [Fox’s Larry Kudlow Begs Kevin O’Leary to Loan Trump $464 Million Bond](https://www.yahoo.com/entertainment/fox-larry-kudlow-begs-kevin-224519894.html)
-- Mar 19 - [A nurse and her former college teammate: two women killed by one’s beau in Miami-Dade](https://www.yahoo.com/news/nurse-her-former-college-teammate-223046257.html)
 - Mar 19 - [A teen weighing 70 pounds turned up at a hospital badly injured. Four family members are charged](https://www.yahoo.com/news/teen-weighing-70-pounds-turned-221701739.html)
 - Mar 19 - [Chicago sues gunmaker Glock over conversions to machine guns](https://www.yahoo.com/news/chicago-sues-gunmaker-glock-over-203707755.html)
+- Mar 19 - [South Carolina's governor marks new gun law with ceremonial bill signing](https://www.yahoo.com/news/south-carolinas-governor-marks-gun-201022387.html)
 <!-- feed end -->
 
 ### Onstream
