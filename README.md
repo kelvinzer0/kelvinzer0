@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [Florida homeless to be banned from sleeping in public spaces under DeSantis-backed law](https://www.yahoo.com/news/florida-homeless-banned-sleeping-public-162208320.html)
+- Mar 20 - [An Ohio toddler died after her mom left her home alone while she took a 10-day vacation. A judge called it the ‘ultimate act of betrayal’](https://www.yahoo.com/news/ohio-toddler-died-her-mom-130612092.html)
+- Mar 20 - [Wildlife officer thought angler was joking when reporting a rare catch](https://sports.yahoo.com/wildlife-officer-thought-angler-joking-160100648.html)
+- Mar 20 - [Angry elephant lifts safari truck into the air, ‘traumatizes’ tourists](https://sports.yahoo.com/angry-elephant-lifts-safari-truck-153055019.html)
 - Mar 20 - [AP documents grueling conditions in Indian shrimp industry that report calls 'dangerous and abusive'](https://www.yahoo.com/news/ap-documents-grueling-conditions-indian-151312317.html)
-- Mar 20 - [After odor complaints shut down a Portland Vietnamese restaurant, city revisits a potentially discriminatory policy](https://www.yahoo.com/news/odor-complaints-shut-down-portland-150000681.html)
-- Mar 20 - [New York AG pushes back on Trump's 'extraordinary' request to stay $464M fraud judgment](https://www.yahoo.com/news/york-ag-pushes-back-trumps-144348906.html)
-- Mar 20 - [Megan Fox Confirmed Exactly What Plastic Surgery She's Had](https://www.yahoo.com/entertainment/megan-fox-confirmed-exactly-plastic-144056557.html)
-- Mar 20 - [Airport executive shot in firefight with federal agents at his home in Arkansas](https://www.yahoo.com/news/airport-executive-shot-firefight-federal-135816972.html)
 <!-- feed end -->
 
 ### Onstream
