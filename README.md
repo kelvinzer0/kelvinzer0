@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [The owner of a $3.4 million Lamborghini yacht screamed 'I will kill you' and threw $100 bills into the water when told he couldn't use a private dock](https://www.yahoo.com/news/owner-3-4-million-lamborghini-073157490.html)
 - Mar 20 - [China tells US to not take sides on South China Sea issue](https://www.yahoo.com/news/china-tells-us-not-sides-052316628.html)
+- Mar 20 - [No bidders present at Myanmar auction for $90 million sale of Suu Kyi's home](https://www.yahoo.com/news/no-bidders-present-myanmar-auction-042537690.html)
 - Mar 20 - [Dad arrested after police say he called ‘18 or 19 times’ in under an hour to complain about his son’s homework](https://www.yahoo.com/news/dad-arrested-police-called-18-034653139.html)
 - Mar 20 - [Elon Musk accused Jeff Bezos' ex-wife MacKenzie Scott of destroying Western civilization with her philanthropy. Then she quietly doubled her donations.](https://www.yahoo.com/tech/elon-musk-accused-jeff-bezos-034003312.html)
-- Mar 20 - [Gigantic new aircraft design aims to create the largest plane ever to fly](https://www.yahoo.com/lifestyle/gigantic-aircraft-design-aims-create-160446190.html)
-- Mar 19 - [Jared Kushner, Trump's son-in-law, praises 'very valuable' potential of Gaza's 'waterfront property'](https://www.yahoo.com/news/jared-kushner-trumps-son-law-231605420.html)
 <!-- feed end -->
 
 ### Onstream
