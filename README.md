@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 20 - [German woman loses appeal of 14-year sentence for letting Yazidi slave girl die in Iraq](https://www.yahoo.com/news/german-woman-loses-appeal-14-115652863.html)
-- Mar 20 - [Thailand's national police chief and his deputy are suspended amid rumors of a power struggle](https://www.yahoo.com/news/thailands-national-police-chief-deputy-114100384.html)
+- Mar 20 - [Thailand's national police chief is suspended amid concerns about a possible power struggle](https://www.yahoo.com/news/thailands-national-police-chief-deputy-114100384.html)
 - Mar 20 - [If trucks keep coming, so will tickets, says North Texas city urging TxDOT to cooperate](https://www.yahoo.com/news/trucks-keep-coming-tickets-says-110000347.html)
 - Mar 20 - [Tim Scott's Totally Confusing Trump Pitch On Fox News Is Mocked On Social Media](https://www.yahoo.com/entertainment/tim-scotts-totally-confusing-trump-104915196.html)
-- Mar 20 - [‘Thanks Liberals’: How squatters took over a Beverly Hills mansion down the street from LeBron James' home](https://finance.yahoo.com/news/thanks-liberals-squatters-took-over-100500705.html)
+- Mar 20 - [Ukrainian drones attacked Russian bomber air base overnight, Kyiv source says](https://www.yahoo.com/news/ukrainian-drones-attacked-russian-bomber-104621906.html)
 <!-- feed end -->
 
 ### Onstream
