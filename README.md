@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 20 - [Trump campaign pleads for one million donations as cash crunch looms](https://www.yahoo.com/news/trump-campaign-pleads-one-million-184041730.html)
-- Mar 20 - [Man Tortured Minors in Family With Methods Used in Vietnam and Korean Wars](https://www.yahoo.com/entertainment/man-tortured-minors-family-methods-181614852.html)
-- Mar 20 - [Why Israel is so determined to launch an offensive in Rafah](https://www.yahoo.com/news/why-israel-determined-launch-offensive-175143609.html)
-- Mar 20 - [Biden impeachment hearing descends into chaos as lawmaker caught on hot mic branding it ‘Jurassic Park’](https://www.yahoo.com/news/biden-impeachment-hearing-descends-chaos-171857881.html)
 - Mar 20 - [An Ohio toddler died after her mom left her home alone while she took a 10-day vacation. A judge called it the ‘ultimate act of betrayal’](https://www.yahoo.com/news/ohio-toddler-died-her-mom-130612092.html)
+- Mar 20 - [New York AG pushes back on Trump's 'extraordinary' request to stay $464M fraud judgment](https://www.yahoo.com/news/york-ag-pushes-back-trumps-144348906.html)
+- Mar 20 - [Elon Musk weighs in on Cybertruck door panel gap after reviewer calls it the 'worst I've ever seen in a production vehicle'](https://www.yahoo.com/tech/elon-musk-weighs-cybertruck-door-185205453.html)
+- Mar 20 - [A New York man's pet alligator was seized after 30 years. Now, he wants Albert back](https://www.yahoo.com/news/york-mans-pet-alligator-seized-185043011.html)
+- Mar 20 - [Trump campaign pleads for one million donations as cash crunch looms](https://www.yahoo.com/news/trump-campaign-pleads-one-million-184041730.html)
 <!-- feed end -->
 
 ### Onstream
