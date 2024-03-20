@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [German woman loses appeal of 14-year sentence for letting Yazidi slave girl die in Iraq](https://www.yahoo.com/news/german-woman-loses-appeal-14-115652863.html)
+- Mar 20 - [Thailand's national police chief and his deputy are suspended amid rumors of a power struggle](https://www.yahoo.com/news/thailands-national-police-chief-deputy-114100384.html)
+- Mar 20 - [If trucks keep coming, so will tickets, says North Texas city urging TxDOT to cooperate](https://www.yahoo.com/news/trucks-keep-coming-tickets-says-110000347.html)
 - Mar 20 - [Tim Scott's Totally Confusing Trump Pitch On Fox News Is Mocked On Social Media](https://www.yahoo.com/entertainment/tim-scotts-totally-confusing-trump-104915196.html)
-- Mar 20 - [The owner of a $3.4 million Lamborghini yacht screamed 'I will kill you' and threw $100 bills into the water when told he couldn't use a private dock](https://www.yahoo.com/news/owner-3-4-million-lamborghini-073157490.html)
-- Mar 20 - [China tells US to not take sides on South China Sea issue](https://www.yahoo.com/news/china-tells-us-not-sides-052316628.html)
-- Mar 20 - [No bidders present at Myanmar auction for $90 million sale of Suu Kyi's home](https://www.yahoo.com/news/no-bidders-present-myanmar-auction-042537690.html)
-- Mar 20 - [Dad arrested after police say he called ‘18 or 19 times’ in under an hour to complain about his son’s homework](https://www.yahoo.com/news/dad-arrested-police-called-18-034653139.html)
+- Mar 20 - [‘Thanks Liberals’: How squatters took over a Beverly Hills mansion down the street from LeBron James' home](https://finance.yahoo.com/news/thanks-liberals-squatters-took-over-100500705.html)
 <!-- feed end -->
 
 ### Onstream
