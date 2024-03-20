@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [Gigantic new aircraft design aims to create the largest plane ever to fly](https://www.yahoo.com/lifestyle/gigantic-aircraft-design-aims-create-160446190.html)
 - Mar 19 - [Jared Kushner, Trump's son-in-law, praises 'very valuable' potential of Gaza's 'waterfront property'](https://www.yahoo.com/news/jared-kushner-trumps-son-law-231605420.html)
 - Mar 19 - [Fox’s Larry Kudlow Begs Kevin O’Leary to Loan Trump $464 Million Bond](https://www.yahoo.com/entertainment/fox-larry-kudlow-begs-kevin-224519894.html)
 - Mar 19 - [A teen weighing 70 pounds turned up at a hospital badly injured. Four family members are charged](https://www.yahoo.com/news/teen-weighing-70-pounds-turned-221701739.html)
-- Mar 19 - [Supreme Court opens new frontier for insurrection claims that could target state and local officials](https://www.yahoo.com/news/supreme-court-opens-frontier-insurrection-191826768.html)
 - Mar 19 - [Cuban hits Ted Lieu over Trump bond fee comments: ‘You are wrong’](https://www.yahoo.com/news/cuban-hits-ted-lieu-over-190554006.html)
 <!-- feed end -->
 
