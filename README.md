@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [AP documents grueling conditions in Indian shrimp industry that report calls 'dangerous and abusive'](https://www.yahoo.com/news/ap-documents-grueling-conditions-indian-151312317.html)
+- Mar 20 - [After odor complaints shut down a Portland Vietnamese restaurant, city revisits a potentially discriminatory policy](https://www.yahoo.com/news/odor-complaints-shut-down-portland-150000681.html)
+- Mar 20 - [New York AG pushes back on Trump's 'extraordinary' request to stay $464M fraud judgment](https://www.yahoo.com/news/york-ag-pushes-back-trumps-144348906.html)
+- Mar 20 - [Megan Fox Confirmed Exactly What Plastic Surgery She's Had](https://www.yahoo.com/entertainment/megan-fox-confirmed-exactly-plastic-144056557.html)
 - Mar 20 - [Airport executive shot in firefight with federal agents at his home in Arkansas](https://www.yahoo.com/news/airport-executive-shot-firefight-federal-135816972.html)
-- Mar 20 - [“Holy backfire”: Expert says SCOTUS filing misciting Brett Kavanaugh could blow up in Trump’s face](https://www.yahoo.com/news/holy-backfire-expert-says-scotus-135132104.html)
-- Mar 20 - [Cape Coral police arrest North Fort Myers teen, 16, linked to a murder involving a robbery](https://www.yahoo.com/news/cape-coral-police-arrest-north-132052736.html)
-- Mar 20 - [Russia says it is pushing Ukrainian forces back, will create two new armies](https://www.yahoo.com/news/russia-says-pushing-ukrainian-forces-131037837.html)
-- Mar 20 - [An Ohio toddler died after her mom left her home alone while she took a 10-day vacation. A judge called it the ‘ultimate act of betrayal’](https://www.yahoo.com/news/ohio-toddler-died-her-mom-130612092.html)
 <!-- feed end -->
 
 ### Onstream
