@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [Trump campaign pleads for one million donations as cash crunch looms](https://www.yahoo.com/news/trump-campaign-pleads-one-million-184041730.html)
+- Mar 20 - [Man Tortured Minors in Family With Methods Used in Vietnam and Korean Wars](https://www.yahoo.com/entertainment/man-tortured-minors-family-methods-181614852.html)
+- Mar 20 - [Why Israel is so determined to launch an offensive in Rafah](https://www.yahoo.com/news/why-israel-determined-launch-offensive-175143609.html)
 - Mar 20 - [Biden impeachment hearing descends into chaos as lawmaker caught on hot mic branding it ‘Jurassic Park’](https://www.yahoo.com/news/biden-impeachment-hearing-descends-chaos-171857881.html)
-- Mar 20 - [Super Hornet fighter jets on the deck of a US Navy aircraft carrier in the Red Sea are sporting Houthi drone kill marks](https://www.yahoo.com/news/super-hornet-fighter-jets-deck-170358759.html)
 - Mar 20 - [An Ohio toddler died after her mom left her home alone while she took a 10-day vacation. A judge called it the ‘ultimate act of betrayal’](https://www.yahoo.com/news/ohio-toddler-died-her-mom-130612092.html)
-- Mar 20 - [Wildlife officer thought angler was joking when reporting a rare catch](https://sports.yahoo.com/wildlife-officer-thought-angler-joking-160100648.html)
-- Mar 20 - [Angry elephant lifts safari truck into the air, ‘traumatizes’ tourists](https://sports.yahoo.com/angry-elephant-lifts-safari-truck-153055019.html)
 <!-- feed end -->
 
 ### Onstream
