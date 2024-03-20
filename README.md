@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [Airport executive shot in firefight with federal agents at his home in Arkansas](https://www.yahoo.com/news/airport-executive-shot-firefight-federal-135816972.html)
+- Mar 20 - [Missing elevator sends New Jersey grandma down shaft as horrified granddaughter looks on](https://www.yahoo.com/news/missing-elevator-sends-jersey-grandma-200651128.html)
+- Mar 20 - [After a handcuffed ride in the back of a police van, a man was left paralyzed and needed his legs amputated, lawsuit alleges](https://www.yahoo.com/news/handcuffed-ride-back-police-van-200430439.html)
+- Mar 20 - [Dentist warns against 1 habit that leaves 'the baddest, toughest' germs in your mouth](https://www.yahoo.com/news/dentist-warns-against-1-habit-123125365.html)
 - Mar 20 - [An Ohio toddler died after her mom left her home alone while she took a 10-day vacation. A judge called it the ‘ultimate act of betrayal’](https://www.yahoo.com/news/ohio-toddler-died-her-mom-130612092.html)
-- Mar 20 - [New York AG pushes back on Trump's 'extraordinary' request to stay $464M fraud judgment](https://www.yahoo.com/news/york-ag-pushes-back-trumps-144348906.html)
-- Mar 20 - [Elon Musk weighs in on Cybertruck door panel gap after reviewer calls it the 'worst I've ever seen in a production vehicle'](https://www.yahoo.com/tech/elon-musk-weighs-cybertruck-door-185205453.html)
-- Mar 20 - [A New York man's pet alligator was seized after 30 years. Now, he wants Albert back](https://www.yahoo.com/news/york-mans-pet-alligator-seized-185043011.html)
-- Mar 20 - [Trump campaign pleads for one million donations as cash crunch looms](https://www.yahoo.com/news/trump-campaign-pleads-one-million-184041730.html)
 <!-- feed end -->
 
 ### Onstream
