@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 20 - [Airport executive shot in firefight with federal agents at his home in Arkansas](https://www.yahoo.com/news/airport-executive-shot-firefight-federal-135816972.html)
+- Mar 20 - [“Holy backfire”: Expert says SCOTUS filing misciting Brett Kavanaugh could blow up in Trump’s face](https://www.yahoo.com/news/holy-backfire-expert-says-scotus-135132104.html)
+- Mar 20 - [Cape Coral police arrest North Fort Myers teen, 16, linked to a murder involving a robbery](https://www.yahoo.com/news/cape-coral-police-arrest-north-132052736.html)
 - Mar 20 - [Russia says it is pushing Ukrainian forces back, will create two new armies](https://www.yahoo.com/news/russia-says-pushing-ukrainian-forces-131037837.html)
-- Mar 20 - [German woman loses appeal of 14-year sentence for letting Yazidi slave girl die in Iraq](https://www.yahoo.com/news/german-woman-loses-appeal-14-115652863.html)
-- Mar 20 - [Thailand's national police chief is suspended amid concerns about a possible power struggle](https://www.yahoo.com/news/thailands-national-police-chief-deputy-114100384.html)
-- Mar 20 - [If trucks keep coming, so will tickets, says North Texas city urging TxDOT to cooperate](https://www.yahoo.com/news/trucks-keep-coming-tickets-says-110000347.html)
+- Mar 20 - [An Ohio toddler died after her mom left her home alone while she took a 10-day vacation. A judge called it the ‘ultimate act of betrayal’](https://www.yahoo.com/news/ohio-toddler-died-her-mom-130612092.html)
 <!-- feed end -->
 
 ### Onstream
