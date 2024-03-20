@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 20 - [Airport executive shot in firefight with federal agents at his home in Arkansas](https://www.yahoo.com/news/airport-executive-shot-firefight-federal-135816972.html)
+- Mar 20 - [Russia says it is pushing Ukrainian forces back, will create two new armies](https://www.yahoo.com/news/russia-says-pushing-ukrainian-forces-131037837.html)
 - Mar 20 - [German woman loses appeal of 14-year sentence for letting Yazidi slave girl die in Iraq](https://www.yahoo.com/news/german-woman-loses-appeal-14-115652863.html)
 - Mar 20 - [Thailand's national police chief is suspended amid concerns about a possible power struggle](https://www.yahoo.com/news/thailands-national-police-chief-deputy-114100384.html)
 - Mar 20 - [If trucks keep coming, so will tickets, says North Texas city urging TxDOT to cooperate](https://www.yahoo.com/news/trucks-keep-coming-tickets-says-110000347.html)
-- Mar 20 - [Tim Scott's Totally Confusing Trump Pitch On Fox News Is Mocked On Social Media](https://www.yahoo.com/entertainment/tim-scotts-totally-confusing-trump-104915196.html)
-- Mar 20 - [Ukrainian drones attacked Russian bomber air base overnight, Kyiv source says](https://www.yahoo.com/news/ukrainian-drones-attacked-russian-bomber-104621906.html)
 <!-- feed end -->
 
 ### Onstream
