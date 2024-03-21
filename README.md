@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 21 - [Jim Jordan Faces Uncomfortable Impeachment Question On Newsmax](https://www.yahoo.com/news/jim-jordan-faces-uncomfortable-impeachment-104651722.html)
 - Mar 21 - [Dem Lawmaker Gives Ted Cruz Painful Law School Reminder: 'Everyone Hated You'](https://www.yahoo.com/news/dem-lawmaker-gives-ted-cruz-083039036.html)
 - Mar 21 - [Ex-RNC Chair Warns Why ‘All Hell’s About To Break Loose’ With Donald Trump Campaign](https://www.yahoo.com/news/ex-rnc-chair-warns-why-074630193.html)
-- Mar 21 - ['You Think She Hates Him Now?': Jimmy Kimmel Hits Trump Right In The Marriage](https://www.yahoo.com/entertainment/think-she-hates-him-now-070101456.html)
 - Mar 21 - [Putin is now openly planning for war against Nato](https://www.yahoo.com/news/putin-now-openly-planning-war-060000849.html)
 - Mar 21 - [Man arrested after allegedly boarding Delta flight using photo of another passenger’s ticket](https://www.yahoo.com/news/man-arrested-allegedly-boarding-delta-045604654.html)
 <!-- feed end -->
