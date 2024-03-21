@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 21 - [Dad grabs pistol and joins deputy’s gunfight with suspect in yard, Florida cops say](https://www.yahoo.com/news/dad-grabs-pistol-joins-deputy-112514372.html)
 - Mar 21 - [Jim Jordan Faces Uncomfortable Impeachment Question On Newsmax](https://www.yahoo.com/news/jim-jordan-faces-uncomfortable-impeachment-104651722.html)
+- Mar 21 - [This retired teacher was tossed out of her Houston home of 45-plus years — here’s how other may be at risk too](https://finance.yahoo.com/news/retired-teacher-tossed-her-houston-100200414.html)
 - Mar 21 - [Dem Lawmaker Gives Ted Cruz Painful Law School Reminder: 'Everyone Hated You'](https://www.yahoo.com/news/dem-lawmaker-gives-ted-cruz-083039036.html)
 - Mar 21 - [Ex-RNC Chair Warns Why ‘All Hell’s About To Break Loose’ With Donald Trump Campaign](https://www.yahoo.com/news/ex-rnc-chair-warns-why-074630193.html)
-- Mar 21 - [Putin is now openly planning for war against Nato](https://www.yahoo.com/news/putin-now-openly-planning-war-060000849.html)
-- Mar 21 - [Man arrested after allegedly boarding Delta flight using photo of another passenger’s ticket](https://www.yahoo.com/news/man-arrested-allegedly-boarding-delta-045604654.html)
 <!-- feed end -->
 
 ### Onstream
