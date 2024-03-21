@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [Pastor Arrested for Hiring Hitman to Kill Daughter’s Boyfriend: Cops](https://www.yahoo.com/news/pastor-arrested-hiring-hitman-kill-182351502.html)
+- Mar 21 - [Riley Strain seen in video footage approaching river bridge as witnesses reveal they saw him being sick](https://www.yahoo.com/news/riley-strain-seen-video-footage-185122066.html)
+- Mar 21 - [Chicago grieves 11-year-old killed trying to 'protect his mother' during domestic violence incident](https://www.yahoo.com/news/chicago-grieves-11-old-killed-182629090.html)
 - Mar 21 - [Michael Jordan Gets Personal Delivery Of $3.5 Million Hennessey Venom F5](https://www.yahoo.com/news/michael-jordan-gets-personal-delivery-180611826.html)
-- Mar 21 - [Manhattan DA tells judge not to further delay Trump trial: 'Enough is enough'](https://www.yahoo.com/news/manhattan-da-tells-judge-not-175941355.html)
-- Mar 21 - [Exclusive-Pressure mounts on Ukraine to scrap 'sponsors of war' blacklist](https://www.yahoo.com/news/exclusive-pressure-mounts-ukraine-scrap-175159127.html)
 - Mar 21 - [Ex-Steelers quarterback Kenny Pickett selling his Cranberry Township home](https://www.yahoo.com/news/ex-steelers-quarterback-kenny-pickett-173428807.html)
+- Mar 21 - [Judge in Trump's civil fraud trial imposes monitor to oversee Trump Organization's finances](https://www.yahoo.com/news/judge-trumps-civil-fraud-trial-171159632.html)
 <!-- feed end -->
 
 ### Onstream
