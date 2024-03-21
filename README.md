@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 21 - [DPH warns public not to drink bottled water from Mass. company due to PFAS contamination](https://www.yahoo.com/news/dph-warns-public-not-drink-185012732.html)
 - Mar 21 - [Longtime Trump employee: Mar-a-Lago culture would have led many to commit crimes](https://www.yahoo.com/news/longtime-trump-employee-mar-lago-223656974.html)
 - Mar 21 - [In Texas, Biden targets Senator Ted Cruz, raises millions](https://www.yahoo.com/news/texas-biden-targets-senator-ted-020114965.html)
+- Mar 21 - [Trans man beaten and arrested by sheriff's deputy asks judge to be declared innocent](https://www.yahoo.com/news/trans-man-beaten-arrested-sheriffs-005552535.html)
 - Mar 21 - [After a handcuffed ride in the back of a police van, a man was left paralyzed and needed his legs amputated, lawsuit alleges](https://www.yahoo.com/news/handcuffed-ride-back-police-van-200430439.html)
-- Mar 20 - [A police officer was accused of spying for China. The charges were dropped, but the NYPD fired him](https://www.yahoo.com/news/police-officer-accused-spying-china-234414708.html)
-- Mar 20 - [Woman, 25, announces her own death from cancer in final letter: 'Do whatever makes you happy'](https://www.yahoo.com/news/woman-25-announces-her-own-225554988.html)
 <!-- feed end -->
 
 ### Onstream
