@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 21 - [Kellyanne Conway Makes Bizarre Claim About 'Thoughts And Prayers'](https://www.yahoo.com/news/kellyanne-conway-makes-bizarre-claim-164227134.html)
+- Mar 21 - [Older Adults Are Revealing The "Normal" Things That Used To Be Common In Schools, And It's Mind-Blowing](https://www.yahoo.com/lifestyle/older-adults-revealing-normal-things-160935458.html)
 - Mar 21 - [Dad of Lacey Fletcher, Who ‘Melted’ into Couch, Claims Maggot-Infested Sofa Was 'Her Sanctuary'](https://www.yahoo.com/entertainment/dad-lacey-fletcher-melted-couch-154426488.html)
-- Mar 21 - [Nvidia Is This Market's Paris Hilton: Wu Silverman](https://finance.yahoo.com/video/nvidia-markets-paris-hilton-wu-153312409.html)
-- Mar 21 - [Kyle Rittenhouse Flees Stage After Face Off With Booing Protesters](https://www.yahoo.com/news/kyle-rittenhouse-flees-stage-face-150052450.html)
-- Mar 21 - [The owner of a Vermont firearms training center has been arrested after a struggle](https://www.yahoo.com/news/owner-vermont-firearms-training-center-145847413.html)
-- Mar 21 - [One Vice President Possibility Is Gaining Traction With Donald Trump, NBC Reports](https://www.yahoo.com/entertainment/one-vice-president-possibility-gaining-143359493.html)
+- Mar 21 - [McDonald’s Clarifies Their Secret ‘Dinner Box’ with Discounted Menu Items After Mom’s Hack Goes Viral](https://www.yahoo.com/entertainment/mcdonald-clarifies-secret-dinner-box-153914956.html)
+- Mar 21 - [Kyle Rittenhouse Flees Stage After Face-Off With Booing Protesters](https://www.yahoo.com/news/kyle-rittenhouse-flees-stage-face-150052450.html)
 <!-- feed end -->
 
 ### Onstream
