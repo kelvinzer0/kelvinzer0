@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 21 - [One Vice President Possibility Is Gaining Traction With Donald Trump, NBC Reports](https://www.yahoo.com/entertainment/one-vice-president-possibility-gaining-143359493.html)
+- Mar 21 - [Attorneys try to stop DeSantis appointees from giving depositions in Disney lawsuit](https://www.yahoo.com/news/attorneys-try-stop-desantis-appointees-143001153.html)
 - Mar 21 - ['Humiliating': Conservative Pundit Says Republicans Just Had 'A Very Bad Day'](https://www.yahoo.com/news/humiliating-conservative-pundit-says-republicans-135612745.html)
-- Mar 21 - [New witnesses reveal encounter with Missouri student Riley Strain on night he went missing](https://www.yahoo.com/news/witnesses-reveal-encounter-missouri-student-122534260.html)
-- Mar 21 - [The Army’s Long-Range Howitzer Has Met Its Achilles Heel](https://www.yahoo.com/tech/army-long-range-howitzer-met-113000064.html)
-- Mar 21 - [Dad grabs pistol and joins deputy’s gunfight with suspect in yard, Florida cops say](https://www.yahoo.com/news/dad-grabs-pistol-joins-deputy-112514372.html)
-- Mar 21 - [A Soviet attack submarine crashed into a US aircraft carrier 40 years ago during the Cold War. It was a bad day for the sub.](https://www.yahoo.com/news/soviet-attack-submarine-crashed-us-112001761.html)
+- Mar 21 - [“WTF”: Alina Habba’s answer raises alarms amid concerns Trump may need foreign money for legal bills](https://www.yahoo.com/news/wtf-alina-habba-answer-raises-133546142.html)
+- Mar 21 - [It's Rumored that N. Korea's Kim Jong Il and His Son, Kim Jong Un, Used Fake Passports To Go to Disneyland. Here Are the Facts](https://www.yahoo.com/entertainment/rumored-n-koreas-kim-jong-130000392.html)
 <!-- feed end -->
 
 ### Onstream
