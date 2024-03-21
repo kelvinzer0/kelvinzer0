@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [Kellyanne Conway Makes Bizarre Claim About 'Thoughts And Prayers'](https://www.yahoo.com/news/kellyanne-conway-makes-bizarre-claim-164227134.html)
+- Mar 21 - [Judge in Trump's civil fraud trial imposes monitor to oversee Trump Organization's finances](https://www.yahoo.com/news/judge-trumps-civil-fraud-trial-171159632.html)
 - Mar 21 - [Older Adults Are Revealing The "Normal" Things That Used To Be Common In Schools, And It's Mind-Blowing](https://www.yahoo.com/lifestyle/older-adults-revealing-normal-things-160935458.html)
-- Mar 21 - [Dad of Lacey Fletcher, Who ‘Melted’ into Couch, Claims Maggot-Infested Sofa Was 'Her Sanctuary'](https://www.yahoo.com/entertainment/dad-lacey-fletcher-melted-couch-154426488.html)
+- Mar 21 - [Trump is making 'wild' claims about late hush money documents, prosecutors say](https://www.yahoo.com/news/trump-making-wild-claims-hush-155311208.html)
 - Mar 21 - [McDonald’s Clarifies Their Secret ‘Dinner Box’ with Discounted Menu Items After Mom’s Hack Goes Viral](https://www.yahoo.com/entertainment/mcdonald-clarifies-secret-dinner-box-153914956.html)
 - Mar 21 - [Kyle Rittenhouse Flees Stage After Face-Off With Booing Protesters](https://www.yahoo.com/news/kyle-rittenhouse-flees-stage-face-150052450.html)
 <!-- feed end -->
