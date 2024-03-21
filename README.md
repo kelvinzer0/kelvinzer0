@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 21 - [New witnesses reveal encounter with Missouri student Riley Strain on night he went missing](https://www.yahoo.com/news/witnesses-reveal-encounter-missouri-student-122534260.html)
 - Mar 21 - [Dad grabs pistol and joins deputy’s gunfight with suspect in yard, Florida cops say](https://www.yahoo.com/news/dad-grabs-pistol-joins-deputy-112514372.html)
+- Mar 21 - [A Soviet attack submarine crashed into a US aircraft carrier 40 years ago during the Cold War. It was a bad day for the sub.](https://www.yahoo.com/news/soviet-attack-submarine-crashed-us-112001761.html)
 - Mar 21 - [Jim Jordan Faces Uncomfortable Impeachment Question On Newsmax](https://www.yahoo.com/news/jim-jordan-faces-uncomfortable-impeachment-104651722.html)
-- Mar 21 - [This retired teacher was tossed out of her Houston home of 45-plus years — here’s how other may be at risk too](https://finance.yahoo.com/news/retired-teacher-tossed-her-houston-100200414.html)
-- Mar 21 - [Dem Lawmaker Gives Ted Cruz Painful Law School Reminder: 'Everyone Hated You'](https://www.yahoo.com/news/dem-lawmaker-gives-ted-cruz-083039036.html)
-- Mar 21 - [Ex-RNC Chair Warns Why ‘All Hell’s About To Break Loose’ With Donald Trump Campaign](https://www.yahoo.com/news/ex-rnc-chair-warns-why-074630193.html)
+- Mar 21 - [My Sister Euthanized Herself. She Shouldn’t Have Had to Do It the Way She Did.](https://www.yahoo.com/lifestyle/sister-euthanized-herself-she-shouldn-094500341.html)
 <!-- feed end -->
 
 ### Onstream
