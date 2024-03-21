@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 21 - [Man arrested after allegedly boarding Delta flight using photo of another passenger’s ticket](https://www.yahoo.com/news/man-arrested-allegedly-boarding-delta-045604654.html)
+- Mar 21 - [Homelessness, affordable-housing shortage spark resurgence of single-room ‘micro-apartments'](https://www.yahoo.com/news/homelessness-affordable-housing-shortage-spark-040707306.html)
 - Mar 21 - [DPH warns public not to drink bottled water from Mass. company due to PFAS contamination](https://www.yahoo.com/news/dph-warns-public-not-drink-185012732.html)
 - Mar 21 - [Longtime Trump employee: Mar-a-Lago culture would have led many to commit crimes](https://www.yahoo.com/news/longtime-trump-employee-mar-lago-223656974.html)
 - Mar 21 - [Prop 1 passes by narrow margin, Gov. Gavin Newsom calls it ‘a huge victory’ for California](https://www.yahoo.com/news/prop-1-passes-narrow-margin-015034768.html)
-- Mar 20 - [Woman, 25, announces her own death from cancer in final letter: 'Do whatever makes you happy'](https://www.yahoo.com/news/woman-25-announces-her-own-225554988.html)
-- Mar 20 - [Angela Chao's blood alcohol content nearly 3x legal limit before her fatal drive into pond](https://www.yahoo.com/news/angela-chaos-blood-alcohol-content-221829322.html)
 <!-- feed end -->
 
 ### Onstream
