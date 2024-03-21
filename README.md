@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 21 - [Judge in Trump's civil fraud trial imposes monitor to oversee Trump Organization's finances](https://www.yahoo.com/news/judge-trumps-civil-fraud-trial-171159632.html)
-- Mar 21 - [Older Adults Are Revealing The "Normal" Things That Used To Be Common In Schools, And It's Mind-Blowing](https://www.yahoo.com/lifestyle/older-adults-revealing-normal-things-160935458.html)
-- Mar 21 - [Trump is making 'wild' claims about late hush money documents, prosecutors say](https://www.yahoo.com/news/trump-making-wild-claims-hush-155311208.html)
-- Mar 21 - [McDonald’s Clarifies Their Secret ‘Dinner Box’ with Discounted Menu Items After Mom’s Hack Goes Viral](https://www.yahoo.com/entertainment/mcdonald-clarifies-secret-dinner-box-153914956.html)
-- Mar 21 - [Kyle Rittenhouse Flees Stage After Face-Off With Booing Protesters](https://www.yahoo.com/news/kyle-rittenhouse-flees-stage-face-150052450.html)
+- Mar 21 - [Pastor Arrested for Hiring Hitman to Kill Daughter’s Boyfriend: Cops](https://www.yahoo.com/news/pastor-arrested-hiring-hitman-kill-182351502.html)
+- Mar 21 - [Michael Jordan Gets Personal Delivery Of $3.5 Million Hennessey Venom F5](https://www.yahoo.com/news/michael-jordan-gets-personal-delivery-180611826.html)
+- Mar 21 - [Manhattan DA tells judge not to further delay Trump trial: 'Enough is enough'](https://www.yahoo.com/news/manhattan-da-tells-judge-not-175941355.html)
+- Mar 21 - [Exclusive-Pressure mounts on Ukraine to scrap 'sponsors of war' blacklist](https://www.yahoo.com/news/exclusive-pressure-mounts-ukraine-scrap-175159127.html)
+- Mar 21 - [Ex-Steelers quarterback Kenny Pickett selling his Cranberry Township home](https://www.yahoo.com/news/ex-steelers-quarterback-kenny-pickett-173428807.html)
 <!-- feed end -->
 
 ### Onstream
