@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 21 - [Dad of Lacey Fletcher, Who ‘Melted’ into Couch, Claims Maggot-Infested Sofa Was 'Her Sanctuary'](https://www.yahoo.com/entertainment/dad-lacey-fletcher-melted-couch-154426488.html)
+- Mar 21 - [Nvidia Is This Market's Paris Hilton: Wu Silverman](https://finance.yahoo.com/video/nvidia-markets-paris-hilton-wu-153312409.html)
+- Mar 21 - [Kyle Rittenhouse Flees Stage After Face Off With Booing Protesters](https://www.yahoo.com/news/kyle-rittenhouse-flees-stage-face-150052450.html)
+- Mar 21 - [The owner of a Vermont firearms training center has been arrested after a struggle](https://www.yahoo.com/news/owner-vermont-firearms-training-center-145847413.html)
 - Mar 21 - [One Vice President Possibility Is Gaining Traction With Donald Trump, NBC Reports](https://www.yahoo.com/entertainment/one-vice-president-possibility-gaining-143359493.html)
-- Mar 21 - [Attorneys try to stop DeSantis appointees from giving depositions in Disney lawsuit](https://www.yahoo.com/news/attorneys-try-stop-desantis-appointees-143001153.html)
-- Mar 21 - ['Humiliating': Conservative Pundit Says Republicans Just Had 'A Very Bad Day'](https://www.yahoo.com/news/humiliating-conservative-pundit-says-republicans-135612745.html)
-- Mar 21 - [“WTF”: Alina Habba’s answer raises alarms amid concerns Trump may need foreign money for legal bills](https://www.yahoo.com/news/wtf-alina-habba-answer-raises-133546142.html)
-- Mar 21 - [It's Rumored that N. Korea's Kim Jong Il and His Son, Kim Jong Un, Used Fake Passports To Go to Disneyland. Here Are the Facts](https://www.yahoo.com/entertainment/rumored-n-koreas-kim-jong-130000392.html)
 <!-- feed end -->
 
 ### Onstream
