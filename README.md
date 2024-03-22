@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 22 - [Trump Suddenly Claims He Has Cash for Bond Despite Lawyers Saying Otherwise](https://www.yahoo.com/news/trump-suddenly-claims-cash-bond-143955073.html)
+- Mar 22 - [Russia warns Japan of 'serious consequences' if Patriot missiles made there end up in Ukraine - RIA](https://www.yahoo.com/news/russia-warns-japan-serious-consequences-152803755.html)
+- Mar 22 - [The Kate hysteria just got serious](https://www.yahoo.com/news/kate-hysteria-just-got-serious-150350724.html)
 - Mar 22 - [Body of Riley Strain found in river, no evidence of foul play: Nashville police](https://www.yahoo.com/gma/body-riley-strain-found-river-144200507.html)
-- Mar 22 - [Prosecutors in 3 Wisconsin counties decline to pursue charges against Trump committee, lawmaker](https://www.yahoo.com/news/prosecutors-3-wisconsin-counties-decline-143105943.html)
 - Mar 22 - [NYT: Trump valet’s testimony reveals how Trump reacted to Jan. 6 insurrection](https://www.yahoo.com/news/nyt-report-reveals-trump-valet-005250853.html)
-- Mar 22 - [Trump Claims He’s Scraped Together Almost $500M ‘IN CASH’ as Fraud Bond Deadline Looms](https://www.yahoo.com/news/trump-claims-scraped-together-almost-131317841.html)
-- Mar 22 - [A busy colon-cancer doctor shares 3 simple things he does to prevent the disease that's killing more young people](https://www.yahoo.com/news/busy-colon-cancer-doctor-shares-115912024.html)
 <!-- feed end -->
 
 ### Onstream
