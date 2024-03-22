@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 22 - [I'm Embarrassed For These 14 People Who Thought They Could Get Away With A Silly Lie](https://www.yahoo.com/lifestyle/im-embarrassed-14-people-thought-111602378.html)
+- Mar 22 - [Russia warns Western banks of catastrophic consequences over asset confiscation](https://www.yahoo.com/news/russia-warns-western-banks-catastrophic-104238877.html)
 - Mar 22 - ['God gave us Trump': Christian media evangelicals preach a messianic message](https://www.yahoo.com/news/god-gave-us-trump-christian-100346241.html)
 - Mar 22 - [State Farm refused to cover this Florida man’s repairs on his Porsche — why the courts are now involved](https://finance.yahoo.com/news/state-farm-refused-cover-florida-095800478.html)
-- Mar 22 - [Donald Trump Jr. Self-Owns With Inadvertent Attack On His Dad](https://www.yahoo.com/news/donald-trump-jr-self-owns-093727296.html)
-- Mar 22 - [Donald Trump may be about to get $3 billion richer. But that likely won’t solve his cash crunch](https://finance.yahoo.com/news/donald-trump-may-3-billion-090029573.html)
-- Mar 22 - [This photographer spent two years documenting life for the women forced to leave Ukraine](https://www.yahoo.com/lifestyle/photographer-spent-two-years-documenting-083029070.html)
+- Mar 22 - [Kremlin says Russia is at war due to Western intervention on Ukrainian side](https://www.yahoo.com/news/kremlin-says-russia-war-due-094346938.html)
 <!-- feed end -->
 
 ### Onstream
