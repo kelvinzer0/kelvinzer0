@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 22 - [Dozens dead after mass shooting at Moscow region concert hall](https://www.yahoo.com/news/dozens-dead-mass-shooting-moscow-200545346.html)
+- Mar 22 - [Trump's social media company approved to go public, potentially netting former president billions](https://www.yahoo.com/news/trumps-social-media-company-approved-210732500.html)
+- Mar 22 - [Putin dismissed US warnings about a potential terror incident as 'blackmail' just 3 days before concert hall attack](https://www.yahoo.com/news/putin-dismissed-us-warnings-potential-205300616.html)
 - Mar 22 - [Beverly Hills mansion where Menendez brothers murdered their parents sells for $17 million](https://www.yahoo.com/news/beverly-hills-mansion-where-menendez-195054086.html)
 - Mar 22 - [Chelsea Clinton Says Barron Trump, 18, Has ‘an Unimpeachable Right to Privacy’ Despite Dad’s Presidential Past](https://www.yahoo.com/entertainment/chelsea-clinton-says-barron-trump-194151627.html)
 - Mar 22 - [Deaths of dog walker, 83, and resident of a remote cabin possibly tied to escaped Idaho inmate](https://www.yahoo.com/news/deaths-dog-walker-83-resident-192138335.html)
-- Mar 22 - [Russia says United States must share any information it has on attack near Moscow](https://www.yahoo.com/news/russia-says-united-states-must-191525623.html)
 <!-- feed end -->
 
 ### Onstream
