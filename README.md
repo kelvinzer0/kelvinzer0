@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 22 - [Ukraine finally found a way to make Russia suffer. The US seems to want it to stop.](https://www.yahoo.com/news/ukraine-finally-found-way-russia-120417136.html)
+- Mar 22 - [A busy colon cancer doctor shares 3 simple things he does to prevent the disease that's killing more young people](https://www.yahoo.com/news/busy-colon-cancer-doctor-shares-115912024.html)
+- Mar 22 - [FBI tells Alaska Airlines passengers they may be ‘victim of a crime’](https://finance.yahoo.com/news/fbi-tells-alaska-airlines-passengers-101306191.html)
 - Mar 22 - [I'm Embarrassed For These 14 People Who Thought They Could Get Away With A Silly Lie](https://www.yahoo.com/lifestyle/im-embarrassed-14-people-thought-111602378.html)
 - Mar 22 - [Russia warns Western banks of catastrophic consequences over asset confiscation](https://www.yahoo.com/news/russia-warns-western-banks-catastrophic-104238877.html)
-- Mar 22 - ['God gave us Trump': Christian media evangelicals preach a messianic message](https://www.yahoo.com/news/god-gave-us-trump-christian-100346241.html)
-- Mar 22 - [State Farm refused to cover this Florida man’s repairs on his Porsche — why the courts are now involved](https://finance.yahoo.com/news/state-farm-refused-cover-florida-095800478.html)
-- Mar 22 - [Kremlin says Russia is at war due to Western intervention on Ukrainian side](https://www.yahoo.com/news/kremlin-says-russia-war-due-094346938.html)
 <!-- feed end -->
 
 ### Onstream
