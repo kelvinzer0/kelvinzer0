@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 22 - [Japan braces for impact of historic monetary shift](https://finance.yahoo.com/video/japan-braces-impact-historic-monetary-074430000.html)
 - Mar 22 - ['Sorry, Donald': Biden Unleashes Absolutely Vicious Joke At Trump's Expense](https://www.yahoo.com/news/sorry-donald-biden-unleashes-absolutely-070024866.html)
 - Mar 22 - ['Complete Failure': Marjorie Taylor Greene Mocked After Unexpected GOP Confession](https://www.yahoo.com/news/complete-failure-marjorie-taylor-greene-035351307.html)
 - Mar 22 - [State Farm discontinuing 72,000 home policies in California in latest blow to state insurance market](https://www.yahoo.com/news/state-farm-discontinuing-72-000-023248819.html)
 - Mar 22 - [102-year-old California man ordered to clean up graffiti on personal property or pay thousands](https://www.yahoo.com/news/102-old-california-man-ordered-020644036.html)
+- Mar 21 - [Haiti gang leader killed as transition council nears completion](https://www.yahoo.com/news/un-welcomes-reports-haiti-transition-223609574.html)
 <!-- feed end -->
 
 ### Onstream
