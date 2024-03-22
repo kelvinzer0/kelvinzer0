@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 22 - [How the MS-13 gang actually works, according to a former member](https://www.yahoo.com/news/ms-13-gang-actually-works-131425378.html)
+- Mar 22 - [Trump Claims He’s Scraped Together Almost $500M ‘IN CASH’ as Fraud Bond Deadline Looms](https://www.yahoo.com/news/trump-claims-scraped-together-almost-131317841.html)
 - Mar 22 - [Ukraine finally found a way to make Russia suffer. The US seems to want it to stop.](https://www.yahoo.com/news/ukraine-finally-found-way-russia-120417136.html)
 - Mar 22 - [A busy colon cancer doctor shares 3 simple things he does to prevent the disease that's killing more young people](https://www.yahoo.com/news/busy-colon-cancer-doctor-shares-115912024.html)
 - Mar 22 - [FBI tells Alaska Airlines passengers they may be ‘victim of a crime’](https://finance.yahoo.com/news/fbi-tells-alaska-airlines-passengers-101306191.html)
-- Mar 22 - [I'm Embarrassed For These 14 People Who Thought They Could Get Away With A Silly Lie](https://www.yahoo.com/lifestyle/im-embarrassed-14-people-thought-111602378.html)
-- Mar 22 - [Russia warns Western banks of catastrophic consequences over asset confiscation](https://www.yahoo.com/news/russia-warns-western-banks-catastrophic-104238877.html)
 <!-- feed end -->
 
 ### Onstream
