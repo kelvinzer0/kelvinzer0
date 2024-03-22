@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 22 - [Gun attack at Moscow concert leaves at least 40 dead: authorities](https://www.yahoo.com/news/gun-attack-moscow-concert-leaves-195748121.html)
+- Mar 22 - [Russia says United States must share any information it has on attack near Moscow](https://www.yahoo.com/news/russia-says-united-states-must-191525623.html)
+- Mar 22 - [Mexico's president says he won't fight drug cartels on US orders, calls it a 'Mexico First' policy](https://www.yahoo.com/news/mexicos-president-says-wont-fight-191016145.html)
+- Mar 22 - [Ex-Prosecutor Says Trump's New Cash Brag Is The 'Dumbest Thing' He Could've Done](https://www.yahoo.com/news/ex-prosecutor-says-trumps-cash-184717313.html)
 - Mar 22 - [Republican Mike Gallagher to leave US House in April](https://www.yahoo.com/news/republican-mike-gallagher-leave-us-182614529.html)
-- Mar 22 - [Top Russian agency investigating assault on concert hall as a terrorist attack](https://www.yahoo.com/news/gunmen-combat-fatigues-open-fire-174053657.html)
-- Mar 22 - [Eisen: ‘Dumb’ for Trump to claim he has cash to cover fraud judgment](https://www.yahoo.com/news/eisen-dumb-trump-claim-cash-165817014.html)
-- Mar 22 - [Matt Gaetz worries House may “end up with a Democrat” speaker after MTG files to oust Mike Johnson](https://www.yahoo.com/news/matt-gaetz-worries-house-may-162336988.html)
-- Mar 22 - [Explainer-Why is Russia changing its language about the war?](https://www.yahoo.com/news/explainer-why-russia-changing-language-154917490.html)
 <!-- feed end -->
 
 ### Onstream
