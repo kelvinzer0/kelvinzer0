@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 22 - [Miami hires controversial administrator amid scandal. She says she did nothing wrong](https://www.yahoo.com/news/miami-hires-controversial-administrator-amid-162413134.html)
+- Mar 22 - [Republican Mike Gallagher to leave US House in April](https://www.yahoo.com/news/republican-mike-gallagher-leave-us-182614529.html)
+- Mar 22 - [Top Russian agency investigating assault on concert hall as a terrorist attack](https://www.yahoo.com/news/gunmen-combat-fatigues-open-fire-174053657.html)
+- Mar 22 - [Eisen: ‘Dumb’ for Trump to claim he has cash to cover fraud judgment](https://www.yahoo.com/news/eisen-dumb-trump-claim-cash-165817014.html)
 - Mar 22 - [Matt Gaetz worries House may “end up with a Democrat” speaker after MTG files to oust Mike Johnson](https://www.yahoo.com/news/matt-gaetz-worries-house-may-162336988.html)
 - Mar 22 - [Explainer-Why is Russia changing its language about the war?](https://www.yahoo.com/news/explainer-why-russia-changing-language-154917490.html)
-- Mar 22 - [Russia warns Japan of 'serious consequences' if Patriot missiles made there end up in Ukraine - RIA](https://www.yahoo.com/news/russia-warns-japan-serious-consequences-152803755.html)
-- Mar 22 - [Body of Riley Strain found in river, no evidence of foul play: Nashville police](https://www.yahoo.com/gma/body-riley-strain-found-river-144200507.html)
 <!-- feed end -->
 
 ### Onstream
