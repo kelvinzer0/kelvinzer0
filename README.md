@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 22 - [FOR SALE: Donald Trump, lightly used Republican presidential candidate. $454 million, firm.](https://www.yahoo.com/news/sale-donald-trump-lightly-used-080735193.html)
-- Mar 22 - ['Sorry, Donald': Biden Unleashes Absolutely Vicious Joke At Trump's Expense](https://www.yahoo.com/news/sorry-donald-biden-unleashes-absolutely-070024866.html)
-- Mar 22 - ['Complete Failure': Marjorie Taylor Greene Mocked After Unexpected GOP Confession](https://www.yahoo.com/news/complete-failure-marjorie-taylor-greene-035351307.html)
-- Mar 22 - [State Farm discontinuing 72,000 home policies in California in latest blow to state insurance market](https://www.yahoo.com/news/state-farm-discontinuing-72-000-023248819.html)
-- Mar 22 - [102-year-old California man ordered to clean up graffiti on personal property or pay thousands](https://www.yahoo.com/news/102-old-california-man-ordered-020644036.html)
+- Mar 22 - ['God gave us Trump': Christian media evangelicals preach a messianic message](https://www.yahoo.com/news/god-gave-us-trump-christian-100346241.html)
+- Mar 22 - [State Farm refused to cover this Florida man’s repairs on his Porsche — why the courts are now involved](https://finance.yahoo.com/news/state-farm-refused-cover-florida-095800478.html)
+- Mar 22 - [Donald Trump Jr. Self-Owns With Inadvertent Attack On His Dad](https://www.yahoo.com/news/donald-trump-jr-self-owns-093727296.html)
+- Mar 22 - [Donald Trump may be about to get $3 billion richer. But that likely won’t solve his cash crunch](https://finance.yahoo.com/news/donald-trump-may-3-billion-090029573.html)
+- Mar 22 - [This photographer spent two years documenting life for the women forced to leave Ukraine](https://www.yahoo.com/lifestyle/photographer-spent-two-years-documenting-083029070.html)
 <!-- feed end -->
 
 ### Onstream
