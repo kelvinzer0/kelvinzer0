@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 22 - [Gun attack at Moscow concert leaves at least 40 dead: authorities](https://www.yahoo.com/news/gun-attack-moscow-concert-leaves-195748121.html)
+- Mar 22 - [Dozens dead after mass shooting at Moscow region concert hall](https://www.yahoo.com/news/dozens-dead-mass-shooting-moscow-200545346.html)
+- Mar 22 - [Beverly Hills mansion where Menendez brothers murdered their parents sells for $17 million](https://www.yahoo.com/news/beverly-hills-mansion-where-menendez-195054086.html)
+- Mar 22 - [Chelsea Clinton Says Barron Trump, 18, Has ‘an Unimpeachable Right to Privacy’ Despite Dad’s Presidential Past](https://www.yahoo.com/entertainment/chelsea-clinton-says-barron-trump-194151627.html)
+- Mar 22 - [Deaths of dog walker, 83, and resident of a remote cabin possibly tied to escaped Idaho inmate](https://www.yahoo.com/news/deaths-dog-walker-83-resident-192138335.html)
 - Mar 22 - [Russia says United States must share any information it has on attack near Moscow](https://www.yahoo.com/news/russia-says-united-states-must-191525623.html)
-- Mar 22 - [Mexico's president says he won't fight drug cartels on US orders, calls it a 'Mexico First' policy](https://www.yahoo.com/news/mexicos-president-says-wont-fight-191016145.html)
-- Mar 22 - [Ex-Prosecutor Says Trump's New Cash Brag Is The 'Dumbest Thing' He Could've Done](https://www.yahoo.com/news/ex-prosecutor-says-trumps-cash-184717313.html)
-- Mar 22 - [Republican Mike Gallagher to leave US House in April](https://www.yahoo.com/news/republican-mike-gallagher-leave-us-182614529.html)
 <!-- feed end -->
 
 ### Onstream
