@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Mar 22 - [Body of Riley Strain found in river, no evidence of foul play: Nashville police](https://www.yahoo.com/news/body-riley-strain-found-river-144200507.html)
 - Mar 22 - [Putin dismissed US warnings about a potential terror incident as 'blackmail' just 3 days before concert hall attack](https://www.yahoo.com/news/putin-dismissed-us-warnings-potential-205300616.html)
 - Mar 22 - [Beverly Hills mansion where Menendez brothers murdered their parents sells for $17 million](https://www.yahoo.com/news/beverly-hills-mansion-where-menendez-195054086.html)
+- Mar 22 - [Massive alligator snags helpless snapping turtle in its jaws on Florida golf course](https://sports.yahoo.com/massive-alligator-snags-helpless-snapping-194304287.html)
 - Mar 22 - [Chelsea Clinton Says Barron Trump, 18, Has ‘an Unimpeachable Right to Privacy’ Despite Dad’s Presidential Past](https://www.yahoo.com/entertainment/chelsea-clinton-says-barron-trump-194151627.html)
-- Mar 22 - [Deaths of dog walker, 83, and resident of a remote cabin possibly tied to escaped Idaho inmate](https://www.yahoo.com/news/deaths-dog-walker-83-resident-192138335.html)
 <!-- feed end -->
 
 ### Onstream
