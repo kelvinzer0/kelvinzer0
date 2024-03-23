@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 23 - [Russia arrests suspected gunmen as concert toll rises to 93](https://www.yahoo.com/news/two-suspects-moscow-attack-detained-074255244.html)
+- Mar 23 - [The al Qaeda plot to kill Bill Clinton that history nearly forgot](https://www.yahoo.com/news/al-qaeda-plot-kill-bill-100727823.html)
 - Mar 23 - [Retired general has theory on why Putin is silent about attack at Russian concert hall](https://www.yahoo.com/news/retired-general-theory-why-putin-003430747.html)
 - Mar 23 - [Putin dismissed US warnings about a potential terror incident as 'blackmail' just 3 days before concert hall attack](https://www.yahoo.com/news/putin-dismissed-us-warnings-potential-205300616.html)
 - Mar 23 - [Explainer-Why did ISIS-K attack a Moscow theater?](https://www.yahoo.com/news/explainer-why-did-isis-k-011615857.html)
