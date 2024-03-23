@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 23 - [NYT: Trump valet’s testimony reveals how Trump reacted to Jan. 6 insurrection](https://www.yahoo.com/news/nyt-report-reveals-trump-valet-005250853.html)
 - Mar 23 - [Retired general has theory on why Putin is silent about attack at Russian concert hall](https://www.yahoo.com/news/retired-general-theory-why-putin-003430747.html)
 - Mar 23 - [Putin dismissed US warnings about a potential terror incident as 'blackmail' just 3 days before concert hall attack](https://www.yahoo.com/news/putin-dismissed-us-warnings-potential-205300616.html)
 - Mar 23 - [Explainer-Why did ISIS-K attack a Moscow theater?](https://www.yahoo.com/news/explainer-why-did-isis-k-011615857.html)
+- Mar 23 - [What Trump can learn from OJ Simpson and Bernie Madoff if he fails to pay bond](https://www.yahoo.com/news/trump-learn-oj-simpson-bernie-011230927.html)
 - Mar 22 - [Body of Riley Strain found in river, no evidence of foul play: Nashville police](https://www.yahoo.com/news/body-riley-strain-found-river-144200507.html)
 <!-- feed end -->
 
