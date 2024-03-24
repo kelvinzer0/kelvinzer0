@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 24 - [Lisa Murkowski, done with Donald Trump, won’t rule out leaving GOP](https://www.yahoo.com/news/lisa-murkowski-done-donald-trump-101529167.html)
 - Mar 24 - [Long Island volleyball coach accused of raping player dies by suicide](https://sports.yahoo.com/long-island-volleyball-coach-accused-195600812.html)
 - Mar 24 - ['Our bosses owe you an apology': NBC anchor bashes network on air for hiring former RNC chair](https://www.yahoo.com/news/bosses-owe-apology-nbc-anchor-192008656.html)
-- Mar 24 - [Lisa Murkowski, done with Donald Trump, won’t rule out leaving GOP](https://www.yahoo.com/news/lisa-murkowski-done-donald-trump-101529167.html)
 - Mar 24 - [James Carville says Democrats are losing support among men due to 'preachy females' who drive the party's culture: 'The message is too feminine'](https://www.yahoo.com/news/james-carville-says-democrats-losing-183036438.html)
-- Mar 24 - [The son of Stewart Rhodes, founder of the extremist Oath Keepers, has decided to enter politics as a Democrat](https://www.yahoo.com/news/son-stewart-rhodes-founder-extremist-181119465.html)
+- Mar 24 - [I Was Retired, but Wasted Big Money On These 3 Things and Had To Go Back To Work](https://finance.yahoo.com/news/retired-wasted-big-money-3-164548646.html)
 <!-- feed end -->
 
 ### Onstream
