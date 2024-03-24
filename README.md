@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 24 - [‘It doesn’t work’: This Florida waitress says she tried doing what she loves but couldn’t afford to live](https://finance.yahoo.com/news/doesn-t-florida-waitress-says-110700521.html)
 - Mar 24 - [I'm a veteran. The oath I took means I can't vote for Trump. | Letters to the Editor](https://www.yahoo.com/news/im-veteran-oath-took-means-100124256.html)
 - Mar 24 - [What the US Army should learn from Ukraine's hasty retreat from a Russian assault](https://www.yahoo.com/news/us-army-learn-ukraines-hasty-100101160.html)
-- Mar 24 - [This Italian town is struggling to sell off its empty homes for one euro. Here’s why](https://www.yahoo.com/lifestyle/italian-town-struggling-sell-off-060029291.html)
+- Mar 24 - [RFK Jr. seeks major boost with VP announcement](https://www.yahoo.com/news/rfk-jr-seeks-major-boost-100000823.html)
 <!-- feed end -->
 
 ### Onstream
