@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 24 - [‘It doesn’t work’: This Florida waitress says she tried doing what she loves but couldn’t afford to live](https://finance.yahoo.com/news/doesn-t-florida-waitress-says-110700521.html)
+- Mar 24 - [Lisa Murkowski, done with Donald Trump, won’t rule out leaving GOP](https://www.yahoo.com/news/lisa-murkowski-done-donald-trump-101529167.html)
+- Mar 24 - [What the US Army should learn from Ukraine's hasty retreat from a Russian assault](https://www.yahoo.com/news/us-army-learn-ukraines-hasty-100101160.html)
 - Mar 24 - [This Italian town is struggling to sell off its empty homes for one euro. Here’s why](https://www.yahoo.com/lifestyle/italian-town-struggling-sell-off-060029291.html)
-- Mar 24 - [Russia stages major airstrike on Ukraine; one missile enters Polish airspace](https://www.yahoo.com/news/kyiv-lviv-under-russian-air-042547780.html)
 - Mar 24 - [15 Things You Probably Assumed Were Unhealthy That Are Actually Perfectly Fine](https://www.yahoo.com/lifestyle/15-things-probably-assumed-were-041602523.html)
-- Mar 24 - [1 killed, 1 injured in mountain lion attack in Northern California](https://www.yahoo.com/news/1-killed-1-injured-mountain-040203487.html)
-- Mar 24 - [China vows to safeguard its territorial integrity after South China Sea incident](https://www.yahoo.com/news/china-vows-safeguard-territorial-integrity-031841458.html)
 <!-- feed end -->
 
 ### Onstream
