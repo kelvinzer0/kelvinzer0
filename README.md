@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Lisa Murkowski, done with Donald Trump, won’t rule out leaving GOP](https://www.yahoo.com/news/lisa-murkowski-done-donald-trump-101529167.html)
-- Mar 24 - [‘It doesn’t work’: This Florida waitress says she tried doing what she loves but couldn’t afford to live](https://finance.yahoo.com/news/doesn-t-florida-waitress-says-110700521.html)
-- Mar 24 - [Israel besieges two more Gaza hospitals, demands evacuations, Palestinians say](https://www.yahoo.com/news/israel-besieges-two-more-gaza-105419798.html)
-- Mar 24 - [I'm a veteran. The oath I took means I can't vote for Trump. | Letters to the Editor](https://www.yahoo.com/news/im-veteran-oath-took-means-100124256.html)
-- Mar 24 - [What the US Army should learn from Ukraine's hasty retreat from a Russian assault](https://www.yahoo.com/news/us-army-learn-ukraines-hasty-100101160.html)
+- Mar 24 - [Student who fell overboard on cruise ship holiday sent tragic last text to wife](https://www.independent.co.uk/news/uk/home-news/msc-euribia-cruise-liam-jones-b2517786.html)
+- Mar 24 - [A woman repeated her son’s claim of sexual abuse. Now, she’s being sued.](https://www.yahoo.com/news/woman-repeated-her-son-claim-150041126.html)
+- Mar 24 - [Former Justice Stephen Breyer: It’s ‘possible’ Dobbs could be overruled one day](https://www.yahoo.com/news/former-justice-stephen-breyer-possible-144810865.html)
+- Mar 24 - [Biden Is Building a ‘Superstructure’ to Stop Trump From Stealing the Election](https://www.yahoo.com/news/biden-building-superstructure-stop-trump-141631115.html)
+- Mar 24 - [California zombie lake turned farmland to water. A year later, is it gone for good?](https://www.yahoo.com/news/california-zombie-lake-turned-farmland-140007489.html)
 <!-- feed end -->
 
 ### Onstream
