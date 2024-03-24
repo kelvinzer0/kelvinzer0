@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 23 - [19 Hilarious Signs From The Past Week That'll Make You Laugh For No Less Than 10 Minutes](https://www.yahoo.com/lifestyle/19-hilarious-signs-past-week-221602623.html)
+- Mar 23 - [Berkeley professor apologizes after telling students to leave Bay Area 'if you want a girlfriend'](https://www.yahoo.com/news/berkeley-professor-apologizes-telling-students-221700622.html)
+- Mar 23 - [19 Signs From The Past Week Made Me Laugh So Hard, I Nearly Forgot How To Breathe](https://www.yahoo.com/lifestyle/19-hilarious-signs-past-week-221602623.html)
 - Mar 23 - [Gingrich reacts to Greene’s motion to oust Speaker Johnson: Gaetz ‘unleashed the demons’](https://www.yahoo.com/news/gingrich-reacts-greene-motion-oust-213829913.html)
 - Mar 23 - ['Big day for evil':  Ruby Franke's journals detailing abuse of her children are released](https://www.yahoo.com/news/big-day-evil-ruby-frankes-212819113.html)
 - Mar 23 - [Army four-star general suspended during investigation of alleged misconduct](https://www.yahoo.com/news/army-four-star-general-suspended-211900981.html)
-- Mar 23 - [U.S. proposes hostage-to-prisoner ratio in Gaza truce talks, Israeli official says](https://www.yahoo.com/news/u-proposes-hostage-prisoner-ratio-201903423.html)
 <!-- feed end -->
 
 ### Onstream
