@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Student who fell overboard on cruise ship holiday sent tragic last text to wife](https://www.independent.co.uk/news/uk/home-news/msc-euribia-cruise-liam-jones-b2517786.html)
+- Mar 24 - [Boomers fed up with Florida are moving to southern Appalachia, fueling a population spike in longtime rural communities](https://www.yahoo.com/news/boomers-fed-florida-moving-southern-152041744.html)
+- Mar 24 - [Former RNC chair McDaniel calls January 6 Capitol attack ‘unacceptable’ after years of deflection](https://www.yahoo.com/news/former-rnc-chair-mcdaniel-calls-151809603.html)
+- Mar 24 - [Trump Will Face His Greatest Fears as Two Legal Threats Coincide Monday](https://www.yahoo.com/news/trump-face-greatest-fears-two-151548182.html)
 - Mar 24 - [A woman repeated her son’s claim of sexual abuse. Now, she’s being sued.](https://www.yahoo.com/news/woman-repeated-her-son-claim-150041126.html)
-- Mar 24 - [Former Justice Stephen Breyer: It’s ‘possible’ Dobbs could be overruled one day](https://www.yahoo.com/news/former-justice-stephen-breyer-possible-144810865.html)
 - Mar 24 - [Biden Is Building a ‘Superstructure’ to Stop Trump From Stealing the Election](https://www.yahoo.com/news/biden-building-superstructure-stop-trump-141631115.html)
-- Mar 24 - [California zombie lake turned farmland to water. A year later, is it gone for good?](https://www.yahoo.com/news/california-zombie-lake-turned-farmland-140007489.html)
 <!-- feed end -->
 
 ### Onstream
