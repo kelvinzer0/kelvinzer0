@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 24 - [1 killed, 1 injured in mountain lion attack in Northern California](https://www.yahoo.com/news/1-killed-1-injured-mountain-040203487.html)
+- Mar 24 - [China vows to safeguard its territorial integrity after South China Sea incident](https://www.yahoo.com/news/china-vows-safeguard-territorial-integrity-031841458.html)
 - Mar 23 - [Berkeley professor apologizes after telling students to leave Bay Area 'if you want a girlfriend'](https://www.yahoo.com/news/berkeley-professor-apologizes-telling-students-221700622.html)
 - Mar 23 - [19 Signs From The Past Week Made Me Laugh So Hard, I Nearly Forgot How To Breathe](https://www.yahoo.com/lifestyle/19-hilarious-signs-past-week-221602623.html)
 - Mar 23 - [Gingrich reacts to Greene’s motion to oust Speaker Johnson: Gaetz ‘unleashed the demons’](https://www.yahoo.com/news/gingrich-reacts-greene-motion-oust-213829913.html)
-- Mar 23 - ['Big day for evil':  Ruby Franke's journals detailing abuse of her children are released](https://www.yahoo.com/news/big-day-evil-ruby-frankes-212819113.html)
-- Mar 23 - [Army four-star general suspended during investigation of alleged misconduct](https://www.yahoo.com/news/army-four-star-general-suspended-211900981.html)
 <!-- feed end -->
 
 ### Onstream
