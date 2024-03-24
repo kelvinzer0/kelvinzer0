@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 23 - [19 Hilarious Signs From The Past Week That'll Make You Laugh For No Less Than 10 Minutes](https://www.yahoo.com/lifestyle/19-hilarious-signs-past-week-221602623.html)
+- Mar 23 - [Gingrich reacts to Greene’s motion to oust Speaker Johnson: Gaetz ‘unleashed the demons’](https://www.yahoo.com/news/gingrich-reacts-greene-motion-oust-213829913.html)
 - Mar 23 - ['Big day for evil':  Ruby Franke's journals detailing abuse of her children are released](https://www.yahoo.com/news/big-day-evil-ruby-frankes-212819113.html)
-- Mar 23 - [Putin must now realise he’s been fighting the wrong war](https://www.yahoo.com/news/putin-must-now-realise-fighting-180000857.html)
-- Mar 23 - [Trump stares down first derailment of his campaign-to-courthouse strategy](https://www.yahoo.com/news/trump-stares-down-first-derailment-100029573.html)
-- Mar 23 - [This Surprising Public Figure Just Pleaded With the Public to Give Barron Trump Privacy: ‘Leave Him Alone'](https://www.yahoo.com/lifestyle/surprising-public-figure-just-pleaded-163400262.html)
-- Mar 23 - [She went skinny-dipping and then skipped her flight home. It was the best move she ever made](https://www.yahoo.com/lifestyle/she-went-skinny-dipping-then-133029253.html)
+- Mar 23 - [Army four-star general suspended during investigation of alleged misconduct](https://www.yahoo.com/news/army-four-star-general-suspended-211900981.html)
+- Mar 23 - [U.S. proposes hostage-to-prisoner ratio in Gaza truce talks, Israeli official says](https://www.yahoo.com/news/u-proposes-hostage-prisoner-ratio-201903423.html)
 <!-- feed end -->
 
 ### Onstream
