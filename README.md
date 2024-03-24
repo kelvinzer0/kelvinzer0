@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 24 - [Face The Nation: Warnock, Montoya-Galvez, Vinograd](https://www.yahoo.com/news/face-nation-warnock-montoya-galvez-172927488.html)
+- Mar 24 - [I write about tech sales for a living — these are the 25+ best deals that are tempting my shopping cart](https://www.yahoo.com/tech/i-write-about-tech-sales-for-a-living-and-these-are-the-25-deals-im-shopping-today-113915574.html)
 - Mar 24 - [Bleak images show snapshots of daily life in the closed world of North Korea](https://www.yahoo.com/news/bleak-images-show-snapshots-daily-163810254.html)
+- Mar 24 - [Massive changes coming to Google Chrome threaten to reshape the modern internet](https://finance.yahoo.com/news/massive-changes-coming-to-google-chrome-threaten-to-reshape-the-modern-internet-160044166.html)
 - Mar 24 - [Boomers fed up with Florida are moving to southern Appalachia, fueling a population spike in longtime rural communities](https://www.yahoo.com/news/boomers-fed-florida-moving-southern-152041744.html)
 - Mar 24 - [Former RNC chair McDaniel calls January 6 Capitol attack ‘unacceptable’ after years of deflection](https://www.yahoo.com/news/former-rnc-chair-mcdaniel-calls-151809603.html)
-- Mar 24 - [Trump Will Face His Greatest Fears as Two Legal Threats Coincide Monday](https://www.yahoo.com/news/trump-face-greatest-fears-two-151548182.html)
 <!-- feed end -->
 
 ### Onstream
