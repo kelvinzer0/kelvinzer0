@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 24 - [Fire extinguished on Carnival Freedom cruise ship after witnesses reported possible lightning strike](https://www.yahoo.com/lifestyle/fire-extinguished-carnival-freedom-cruise-210747911.html)
 - Mar 24 - [Lisa Murkowski, done with Donald Trump, won’t rule out leaving GOP](https://www.yahoo.com/news/lisa-murkowski-done-donald-trump-101529167.html)
 - Mar 24 - [NBC news analyst rips own network over hiring former RNC chair Ronna McDaniel](https://finance.yahoo.com/video/nbc-news-analyst-rips-own-213046453.html)
 - Mar 24 - [France raises terror alert warning to highest level](https://www.yahoo.com/news/france-raises-terror-alert-warning-211815196.html)
-- Mar 24 - [Fire extinguished on Carnival Freedom cruise ship after witnesses reported possible lightning strike](https://www.yahoo.com/lifestyle/fire-extinguished-carnival-freedom-cruise-210747911.html)
-- Mar 24 - [Long Island volleyball coach accused of raping player dies by suicide](https://sports.yahoo.com/long-island-volleyball-coach-accused-195600812.html)
+- Mar 24 - [Stolen Truck Returned Undamaged And With A Written Apology Plus Presents](https://www.yahoo.com/news/stolen-truck-returned-undamaged-written-140000031.html)
 <!-- feed end -->
 
 ### Onstream
