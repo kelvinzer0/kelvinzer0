@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Fergie Chambers Is Heir to One of America’s Richest Families — and Determined to See the U.S. Fall](https://www.yahoo.com/entertainment/fergie-chambers-heir-one-america-145952002.html)
-- Mar 25 - [Trump Gets a Massive Lifeline on Half-Billion-Dollar Bond](https://www.yahoo.com/news/trump-gets-more-time-come-152733206.html)
-- Mar 25 - [Houston Police Department investigates major crash on Katy Freeway](https://www.yahoo.com/news/houston-police-department-investigates-major-150000385.html)
-- Mar 25 - [A family is suing Delta Air Lines after a 13-year-old girl was sexually assaulted when she was separated from her parents on board](https://www.yahoo.com/news/family-suing-delta-air-lines-131254132.html)
-- Mar 25 - [A nutritionist who cut down on ultra-processed foods shares his 5 go-to grocery store snacks](https://www.yahoo.com/news/nutritionist-cut-down-ultra-processed-121854969.html)
+- Mar 25 - [Russian massacre suspects' homeland is plagued by poverty and religious strife](https://www.yahoo.com/news/russian-massacre-suspects-homeland-plagued-164612437.html)
+- Mar 25 - [Dani Alves leaves Spanish prison after posting bail](https://www.yahoo.com/news/dani-alves-leaves-spanish-prison-164337179.html)
+- Mar 25 - ['Cancel culture': Supreme Court rejects case on dust-up between Catholic student and Native American](https://www.yahoo.com/news/cancel-culture-supreme-court-rejects-162731666.html)
+- Mar 25 - [3 expenses you should write off in your tax filings](https://finance.yahoo.com/video/3-expenses-write-off-tax-161914599.html)
+- Mar 25 - [Kremlin refuses to comment on IS links to Moscow attack](https://www.yahoo.com/news/kremlin-refuses-links-moscow-attack-161837030.html)
 <!-- feed end -->
 
 ### Onstream
