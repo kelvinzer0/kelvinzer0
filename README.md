@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Russian Concert Hall Attack Suspects Charged in Court](https://finance.yahoo.com/video/moscow-concert-hall-attack-suspects-061100780.html)
+- Mar 25 - [Musk loses suit against hate speech watchdog](https://finance.yahoo.com/video/musk-loses-suit-against-hate-222939487.html)
+- Mar 25 - [Hamas tells mediators it will stick to original position on ceasefire](https://www.yahoo.com/news/hamas-tells-mediators-stick-original-215831487.html)
 - Mar 25 - [Trump tells Michigan's Republican chair to ramp up outreach to Black voters in Detroit, chair says](https://www.yahoo.com/news/trump-tells-michigans-republican-chair-213153003.html)
-- Mar 25 - [Republicans threaten to hold Attorney General Garland in contempt over Biden documents case](https://www.yahoo.com/news/republicans-threaten-hold-attorney-general-205649452.html)
-- Mar 25 - [Trump urges Israel to 'finish up' its Gaza offensive and warns about global support fading](https://www.yahoo.com/news/trump-urges-israel-finish-gaza-204839665.html)
-- Mar 25 - [Taliban leader says women will be stoned to death in public](https://www.yahoo.com/news/taliban-leader-says-women-stoned-195243252.html)
+- Mar 25 - [I flew in business class for the first time. It cost $6,000 and was the best flight of my life, but I wouldn't do it again for 5 reasons.](https://www.yahoo.com/news/flew-business-class-first-time-211931353.html)
+- Mar 25 - [Moscow theater shooting fans flames of a disinformation war](https://www.yahoo.com/news/moscow-theater-shooting-fans-flames-210602405.html)
 <!-- feed end -->
 
 ### Onstream
