@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 25 - [Mountain lion that killed man and injured his brother is euthanized in California](https://www.yahoo.com/news/1-killed-1-injured-mountain-040203487.html)
+- Mar 25 - [Eric Trump Says Lenders He Hit for Half-Billion Dollars in Father’s Bond Scramble ‘Were Laughing’](https://www.yahoo.com/news/eric-trump-says-lenders-hit-233557346.html)
 - Mar 25 - [Ex-Trump official says this is why the bond deadline scares Trump](https://www.yahoo.com/news/ex-trump-official-says-why-001519908.html)
 - Mar 25 - [California woman violently attacked after road-rage incident](https://www.yahoo.com/news/california-woman-violently-attacked-road-000219531.html)
 - Mar 24 - [Moscow concert hall attack suspects appear in court](https://www.yahoo.com/news/moscow-concert-hall-attack-suspects-232537904.html)
-- Mar 24 - [Fire extinguished on Carnival Freedom cruise ship after witnesses reported possible lightning strike](https://www.yahoo.com/lifestyle/fire-extinguished-carnival-freedom-cruise-210747911.html)
 <!-- feed end -->
 
 ### Onstream
