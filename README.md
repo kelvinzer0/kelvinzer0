@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Python caught in Everglades had blood-sucking tick filling its eye socket. See photos](https://www.yahoo.com/news/python-caught-everglades-had-blood-114758359.html)
+- Mar 25 - [Fergie Chambers Is Heir to One of America’s Richest Families — and Determined to See the U.S. Fall](https://www.yahoo.com/entertainment/fergie-chambers-heir-one-america-145952002.html)
+- Mar 25 - [A family is suing Delta Air Lines after a 13-year-old girl was sexually assaulted when she was separated from her parents on board](https://www.yahoo.com/news/family-suing-delta-air-lines-131254132.html)
+- Mar 25 - [Trump hits $454 million deadline, a major winter storm in the Midwest and Southeast and ‘The Bachelor’ season finale](https://www.yahoo.com/news/trump-hits-454-million-deadline-a-major-winter-storm-in-the-midwest-and-southeast-and-the-bachelor-season-finale-123522617.html)
+- Mar 25 - [A nutritionist who cut down on ultra-processed foods shares his 5 go-to grocery store snacks](https://www.yahoo.com/news/nutritionist-cut-down-ultra-processed-121854969.html)
 - Mar 25 - [Park outside! More than 72K cars in Massachusetts recalled due to fire risk, report says](https://www.yahoo.com/news/park-outside-more-72k-cars-111022687.html)
-- Mar 25 - [Federal Reserve expected to cut rates, lift Biden's prospects](https://www.yahoo.com/news/federal-expected-cut-rates-lift-101221165.html)
-- Mar 25 - [Trump to ask judge to delay or dismiss Stormy Daniels hush money case](https://www.yahoo.com/news/trump-ask-judge-delay-dismiss-100651147.html)
-- Mar 25 - [Forensic psychiatrist on physical signs of Trump's mental decline: "Changes in movement and gait"](https://www.yahoo.com/news/forensic-psychiatrist-physical-signs-trumps-094504165.html)
 <!-- feed end -->
 
 ### Onstream
