@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 25 - [John Travolta Just Turned 70, So Here's What 70 Years Old Looks Like On 48 Different Celebrities](https://www.yahoo.com/entertainment/john-travolta-just-turned-70-111359635.html)
 - Mar 25 - [Federal Reserve expected to cut rates, lift Biden's prospects](https://www.yahoo.com/news/federal-expected-cut-rates-lift-101221165.html)
 - Mar 25 - [Trump to ask judge to delay or dismiss Stormy Daniels hush money case](https://www.yahoo.com/news/trump-ask-judge-delay-dismiss-100651147.html)
+- Mar 25 - [Forensic psychiatrist on physical signs of Trump's mental decline: "Changes in movement and gait"](https://www.yahoo.com/news/forensic-psychiatrist-physical-signs-trumps-094504165.html)
 - Mar 25 - [US plummeted in world happiness ranking because of young people like me. I'll tell you why.](https://www.yahoo.com/news/us-plummeted-world-happiness-ranking-092523642.html)
-- Mar 25 - [Brutally violent Mexican cartel draining Americans' life savings in complex scam](https://www.yahoo.com/news/brutally-violent-mexican-cartel-draining-080024025.html)
-- Mar 25 - [Jim Jordan Gets Flustered As Simple Question Turns Awkward On '60 Minutes'](https://www.yahoo.com/news/jim-jordan-gets-flustered-simple-074604262.html)
 <!-- feed end -->
 
 ### Onstream
