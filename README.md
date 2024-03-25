@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Millions of Americans caught up in Chinese hacking plot - US](https://www.yahoo.com/news/millions-americans-caught-chinese-hacking-170330834.html)
-- Mar 25 - [A woman repeated her son's claim of sexual abuse. Now, she's being sued.](https://www.yahoo.com/news/woman-repeated-her-son-claim-150041126.html)
-- Mar 25 - [Alter: ‘This was a historic day,’ as Trump will be the first fmr. U.S. president to stand criminal trial](https://www.yahoo.com/news/alter-historic-day-trump-first-180011396.html)
-- Mar 25 - [Roman helmet looked like a ‘rusty bucket’ when it was found in UK. Now, it’s restored](https://www.yahoo.com/news/roman-helmet-looked-rusty-bucket-173840386.html)
-- Mar 25 - [Israel fury at US abstention on Security Council ceasefire vote](https://www.yahoo.com/news/israel-fury-us-abstention-security-172911531.html)
+- Mar 25 - [Illinois parole official quits after police say a freed felon attacked a woman and killed her son](https://www.yahoo.com/news/illinois-parole-official-quits-police-192927300.html)
+- Mar 25 - [Moscow shooting poses awkward questions for Russia's intelligence agencies](https://www.yahoo.com/news/moscow-shooting-poses-awkward-questions-192024856.html)
+- Mar 25 - [Family identifies brothers, 21 and 18, in fatal Northern California mountain lion attack](https://www.yahoo.com/news/family-identifies-brothers-fatal-northern-190714876.html)
+- Mar 25 - ['Worst landlord' in New York City gets jail time for ignoring repairs, is attacked at Rikers Island](https://www.yahoo.com/news/worst-landlord-york-city-gets-182737424.html)
+- Mar 25 - [Israeli minister quits Netanyahu's unity government, saying he was sidelined](https://www.yahoo.com/news/israeli-minister-quits-netanyahus-unity-182631674.html)
 <!-- feed end -->
 
 ### Onstream
