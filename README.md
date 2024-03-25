@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [This Hospice Nurse Is Answering Taboo Questions About Death And Dying, And I Learned So Much](https://www.yahoo.com/lifestyle/hospice-nurse-answering-taboo-questions-201913260.html)
+- Mar 25 - [Russian Concert Hall Attack Suspects Charged in Court](https://finance.yahoo.com/video/moscow-concert-hall-attack-suspects-061100780.html)
+- Mar 25 - [Trump tells Michigan's Republican chair to ramp up outreach to Black voters in Detroit, chair says](https://www.yahoo.com/news/trump-tells-michigans-republican-chair-213153003.html)
+- Mar 25 - [Republicans threaten to hold Attorney General Garland in contempt over Biden documents case](https://www.yahoo.com/news/republicans-threaten-hold-attorney-general-205649452.html)
+- Mar 25 - [Trump urges Israel to 'finish up' its Gaza offensive and warns about global support fading](https://www.yahoo.com/news/trump-urges-israel-finish-gaza-204839665.html)
 - Mar 25 - [Taliban leader says women will be stoned to death in public](https://www.yahoo.com/news/taliban-leader-says-women-stoned-195243252.html)
-- Mar 25 - [Illinois parole official quits after police say a freed felon attacked a woman and killed her son](https://www.yahoo.com/news/illinois-parole-official-quits-police-192927300.html)
-- Mar 25 - [Family identifies brothers, 21 and 18, in fatal Northern California mountain lion attack](https://www.yahoo.com/news/family-identifies-brothers-fatal-northern-190714876.html)
-- Mar 25 - ['Worst landlord' in New York City gets jail time for ignoring repairs, is attacked at Rikers Island](https://www.yahoo.com/news/worst-landlord-york-city-gets-182737424.html)
 <!-- feed end -->
 
 ### Onstream
