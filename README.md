@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 25 - [Jim Jordan Gets Flustered As Simple Question Turns Awkward On '60 Minutes'](https://www.yahoo.com/news/jim-jordan-gets-flustered-simple-074604262.html)
 - Mar 25 - [Moscow court charges suspects in deadly concert attack](https://www.yahoo.com/news/moscow-court-charges-suspects-deadly-062254408.html)
 - Mar 25 - [Philippines summons China envoy over standoff, dares Beijing to seek arbitration](https://www.yahoo.com/news/philippines-defence-minister-dares-china-024651224.html)
 - Mar 25 - [Mountain lion that killed man and injured his brother is euthanized in California](https://www.yahoo.com/news/1-killed-1-injured-mountain-040203487.html)
-- Mar 25 - [Eric Trump Says Lenders He Hit for Half-Billion Dollars in Father’s Bond Scramble ‘Were Laughing’](https://www.yahoo.com/news/eric-trump-says-lenders-hit-233557346.html)
 - Mar 25 - [California woman violently attacked after road-rage incident](https://www.yahoo.com/news/california-woman-violently-attacked-road-000219531.html)
 <!-- feed end -->
 
