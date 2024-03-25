@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 25 - [This Hospice Nurse Is Answering Taboo Questions About Death And Dying, And I Learned So Much](https://www.yahoo.com/lifestyle/hospice-nurse-answering-taboo-questions-201913260.html)
+- Mar 25 - [Taliban leader says women will be stoned to death in public](https://www.yahoo.com/news/taliban-leader-says-women-stoned-195243252.html)
 - Mar 25 - [Illinois parole official quits after police say a freed felon attacked a woman and killed her son](https://www.yahoo.com/news/illinois-parole-official-quits-police-192927300.html)
-- Mar 25 - [Moscow shooting poses awkward questions for Russia's intelligence agencies](https://www.yahoo.com/news/moscow-shooting-poses-awkward-questions-192024856.html)
 - Mar 25 - [Family identifies brothers, 21 and 18, in fatal Northern California mountain lion attack](https://www.yahoo.com/news/family-identifies-brothers-fatal-northern-190714876.html)
 - Mar 25 - ['Worst landlord' in New York City gets jail time for ignoring repairs, is attacked at Rikers Island](https://www.yahoo.com/news/worst-landlord-york-city-gets-182737424.html)
-- Mar 25 - [Israeli minister quits Netanyahu's unity government, saying he was sidelined](https://www.yahoo.com/news/israeli-minister-quits-netanyahus-unity-182631674.html)
 <!-- feed end -->
 
 ### Onstream
