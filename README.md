@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Russian massacre suspects' homeland is plagued by poverty and religious strife](https://www.yahoo.com/news/russian-massacre-suspects-homeland-plagued-164612437.html)
-- Mar 25 - [Dani Alves leaves Spanish prison after posting bail](https://www.yahoo.com/news/dani-alves-leaves-spanish-prison-164337179.html)
+- Mar 25 - [A woman repeated her son's claim of sexual abuse. Now, she's being sued.](https://www.yahoo.com/news/woman-repeated-her-son-claim-150041126.html)
+- Mar 25 - [UN Security Council calls for Gaza ceasefire, U.S. abstains](https://www.yahoo.com/news/un-security-council-calls-gaza-173115691.html)
+- Mar 25 - [Israel fury at US abstention on Security Council ceasefire vote](https://www.yahoo.com/news/israel-fury-us-abstention-security-172911531.html)
+- Mar 25 - [Judge gets frustrated with Trump’s attorneys. Hear what happened in court](https://www.yahoo.com/news/judge-gets-frustrated-trump-attorneys-164907748.html)
 - Mar 25 - ['Cancel culture': Supreme Court rejects case on dust-up between Catholic student and Native American](https://www.yahoo.com/news/cancel-culture-supreme-court-rejects-162731666.html)
-- Mar 25 - [3 expenses you should write off in your tax filings](https://finance.yahoo.com/video/3-expenses-write-off-tax-161914599.html)
-- Mar 25 - [Kremlin refuses to comment on IS links to Moscow attack](https://www.yahoo.com/news/kremlin-refuses-links-moscow-attack-161837030.html)
 <!-- feed end -->
 
 ### Onstream
