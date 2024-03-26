@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [How the criminal case against Texas AG Ken Paxton abruptly ended after nearly a decade of delays](https://www.yahoo.com/news/criminal-case-against-texas-ag-160615471.html)
-- Mar 26 - [Why Florida's new social media rules for kids may not last](https://finance.yahoo.com/video/why-floridas-social-media-rules-155725210.html)
-- Mar 26 - [“Intimidating the judge”: Expert says Trump Truth Social post put a “target” on judge’s daughter](https://www.yahoo.com/news/intimidating-judge-expert-says-trump-155636296.html)
+- Mar 26 - [Trump is selling 'God Bless the USA' Bibles for $59.99 as he faces mounting legal bills](https://www.yahoo.com/news/trump-selling-god-bless-usa-172605780.html)
+- Mar 26 - [Fire Department Battalion Chief Said Wife Died After a Seizure. Then Police Learned He Was Having an Affair](https://www.yahoo.com/entertainment/fire-department-battalion-chief-said-171131743.html)
+- Mar 26 - [Sean Combs’ Accused ‘Mule’ Arrested at Miami Airport on Cocaine and Marijuana Charges](https://www.yahoo.com/entertainment/sean-combs-accused-mule-arrested-162107812.html)
+- Mar 26 - [Stewart hits O’Leary for Trump defense after fraud verdict: ‘The f‑‑‑ing entitled arrogance’](https://www.yahoo.com/news/stewart-hits-o-leary-trump-155628778.html)
 - Mar 26 - [Lebanese Sunni militant group head says coordination with Shiite Hezbollah is vital to fight Israel](https://www.yahoo.com/news/lebanese-sunni-militant-group-head-155412660.html)
-- Mar 26 - [‘Tiny’ newborn stays near mom — until he gets the zoomies at Florida zoo, video shows](https://www.yahoo.com/news/tiny-newborn-stays-near-mom-150923012.html)
 <!-- feed end -->
 
 ### Onstream
