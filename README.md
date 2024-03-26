@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [If You Know What These 45 Items Are Then You Are Considered An Old Person Now](https://www.yahoo.com/lifestyle/know-45-items-then-considered-204100344.html)
+- Mar 26 - [Opinion: In 35 years of covering the media, I’ve never seen a newsroom revolt like the one at NBC](https://www.yahoo.com/news/opinion-35-years-covering-media-213010030.html)
+- Mar 26 - [I'm So, So, So, So Sorry But If You Recognize These 45 Items You're Considered Old Now](https://www.yahoo.com/lifestyle/know-45-items-then-considered-204100344.html)
 - Mar 26 - [Lego head mugshots add to California's debate on policing and privacy](https://www.yahoo.com/news/lego-head-mugshots-add-californias-203504735.html)
-- Mar 26 - [Trump Goes After Judge’s Daughter in Hush Money Trial Rant](https://www.yahoo.com/news/trump-goes-judge-daughter-hush-170621210.html)
-- Mar 26 - [RFK Jr. picks running mate. What to know about philanthropist Nicole Shanahan](https://www.yahoo.com/news/rfk-jr-picks-running-mate-192921227.html)
-- Mar 26 - [San Francisco residents protest probation sentence in 94-year-old Asian woman's assault](https://www.yahoo.com/news/san-francisco-residents-protest-probation-192445566.html)
+- Mar 26 - [Bat-wielding extortionist who targeted Koreatown karaoke bars faces centuries in prison](https://www.yahoo.com/news/bat-wielding-extortionist-targeted-koreatown-203306478.html)
+- Mar 26 - [Unlikely friendships: This cheetah-tortoise duo are inseparable and will melt your heart](https://www.yahoo.com/news/unlikely-friendships-this-cheetah-tortoise-duo-are-inseparable-and-will-melt-your-heart-201327589.html)
 <!-- feed end -->
 
 ### Onstream
