@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Eighth suspect in Moscow attack appears in court, rights commissioner warns on torture](https://www.yahoo.com/news/eighth-suspect-moscow-attack-appears-125319242.html)
-- Mar 26 - [Baltimore Bridge Collapses, Rescue Efforts Underway](https://finance.yahoo.com/video/baltimore-bridge-collapses-cargo-ship-081000140.html)
+- Mar 26 - [Baltimore Key Bridge collapse live updates: No evidence of terror as desperate search continues](https://www.yahoo.com/news/baltimore-bridge-collapse-live-updates-123000200.html)
+- Mar 26 - [Republican fears Democratic speaker as Fox News reporter reveals GOPers eyeing exit for “big payday”](https://www.yahoo.com/news/republican-fears-democratic-speaker-fox-131707964.html)
 - Mar 26 - [Cargo ship that hit Baltimore bridge was involved in Antwerp collision in 2016](https://www.yahoo.com/news/cargo-ship-hit-baltimore-bridge-121734992.html)
+- Mar 26 - [Cop Shoots At And Stabs Repo Man Who Came For His Car](https://www.yahoo.com/news/cop-shoots-stabs-repo-man-120000051.html)
 - Mar 26 - [Former Hungarian insider releases audio he says is proof of corruption in embattled Orbán government](https://www.yahoo.com/news/former-hungarian-insider-releases-audio-113121387.html)
-- Mar 26 - ["Hastening his deterioration": Dr. John Gartner on impact of court trials on "Trump’s fragile brain"](https://www.yahoo.com/news/hastening-deterioration-dr-john-gartner-094504953.html)
 <!-- feed end -->
 
 ### Onstream
