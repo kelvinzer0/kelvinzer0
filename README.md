@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 25 - [Musk loses suit against hate speech watchdog](https://finance.yahoo.com/video/musk-loses-suit-against-hate-222939487.html)
+- Mar 26 - [US appeals court finds for Donald Trump Jr. in defamation suit by ex-coal CEO Don Blankenship](https://www.yahoo.com/news/us-appeals-court-finds-donald-003546494.html)
+- Mar 25 - [Russia terror suspects appear badly beaten in court](https://www.yahoo.com/news/russia-terror-suspects-appear-badly-235524339.html)
+- Mar 25 - [Fact check: Trump tells ‘mind-bogglingly nonsensical’ story about the New York Stock Exchange](https://www.yahoo.com/news/fact-check-trump-tells-mind-231710483.html)
+- Mar 25 - [‘Craziest thing I’ve ever seen in my life:’ Shootout on I-285 caught on camera](https://www.yahoo.com/news/craziest-thing-ve-ever-seen-215944641.html)
 - Mar 25 - [Hamas tells mediators it will stick to original position on ceasefire](https://www.yahoo.com/news/hamas-tells-mediators-stick-original-215831487.html)
-- Mar 25 - [Trump tells Michigan's Republican chair to ramp up outreach to Black voters in Detroit, chair says](https://www.yahoo.com/news/trump-tells-michigans-republican-chair-213153003.html)
-- Mar 25 - [I flew in business class for the first time. It cost $6,000 and was the best flight of my life, but I wouldn't do it again for 5 reasons.](https://www.yahoo.com/news/flew-business-class-first-time-211931353.html)
-- Mar 25 - [Moscow theater shooting fans flames of a disinformation war](https://www.yahoo.com/news/moscow-theater-shooting-fans-flames-210602405.html)
 <!-- feed end -->
 
 ### Onstream
