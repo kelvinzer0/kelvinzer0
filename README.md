@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Baltimore Key Bridge collapse live updates: No evidence of terror as desperate search continues](https://www.yahoo.com/news/baltimore-bridge-collapse-live-updates-123000200.html)
-- Mar 26 - [Republican fears Democratic speaker as Fox News reporter reveals GOPers eyeing exit for “big payday”](https://www.yahoo.com/news/republican-fears-democratic-speaker-fox-131707964.html)
-- Mar 26 - [Cargo ship that hit Baltimore bridge was involved in Antwerp collision in 2016](https://www.yahoo.com/news/cargo-ship-hit-baltimore-bridge-121734992.html)
-- Mar 26 - [Cop Shoots At And Stabs Repo Man Who Came For His Car](https://www.yahoo.com/news/cop-shoots-stabs-repo-man-120000051.html)
-- Mar 26 - [Former Hungarian insider releases audio he says is proof of corruption in embattled Orbán government](https://www.yahoo.com/news/former-hungarian-insider-releases-audio-113121387.html)
+- Mar 26 - [Baltimore Key Bridge collapse live updates: At least 6 unaccounted for, no evidence of terrorism](https://www.yahoo.com/news/baltimore-bridge-collapse-live-updates-123000200.html)
+- Mar 26 - [Why Are Women Getting Punched In The Face On The Streets Of NYC?](https://www.yahoo.com/entertainment/why-women-getting-punched-face-143007131.html)
+- Mar 26 - [Austrian police given small gifts after protecting Russian Embassy, told to reject them in future](https://www.yahoo.com/news/austrian-police-given-small-gifts-134759578.html)
+- Mar 26 - [Kenya starts to return the 429 bodies of doomsday cult victims to families](https://www.yahoo.com/news/kenya-starts-return-429-bodies-134425124.html)
+- Mar 26 - [Boaters left with ‘jaws gaping’ as two ‘titans of the ocean’ battle, rare video shows](https://www.yahoo.com/news/boaters-left-jaws-gaping-two-134353944.html)
 <!-- feed end -->
 
 ### Onstream
