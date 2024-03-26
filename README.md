@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [Convicted sex offender who hacked jumbotron at the Jacksonville Jaguars' stadium gets 220 years](https://www.yahoo.com/news/convicted-sex-offender-hacked-jumbotron-192321755.html)
+- Mar 26 - [South Carolina has $1.8 billion but doesn't know where the money came from or where it should go](https://www.yahoo.com/news/south-carolina-1-8-billion-185421835.html)
+- Mar 26 - [Trump’s Idiot Lawyers Just Screwed Themselves Over in Hush-Money Case](https://www.yahoo.com/news/trump-idiot-lawyers-just-screwed-182016542.html)
 - Mar 26 - [The 'extreme' Social Security move that actually makes sense](https://finance.yahoo.com/news/the-extreme-social-security-move-that-actually-makes-sense-180912516.html)
 - Mar 26 - [Ecuador's youngest mayor, Brigitte García, killed with her advisor amid state of emergency](https://www.yahoo.com/news/ecuadors-youngest-mayor-brigitte-garc-180841781.html)
-- Mar 26 - [“Less than a Scaramucci”: NBC News reportedly dropping Ronna McDaniel after on-air protests](https://www.yahoo.com/news/less-scaramucci-nbc-news-reportedly-175243224.html)
-- Mar 26 - [Ketanji Brown Jackson Dunks on Alito During Abortion Hearing](https://www.yahoo.com/news/ketanji-brown-jackson-dunks-alito-173103313.html)
-- Mar 26 - [Trump is selling 'God Bless the USA' Bibles for $59.99 as he faces mounting legal bills](https://www.yahoo.com/news/trump-selling-god-bless-usa-172605780.html)
 <!-- feed end -->
 
 ### Onstream
