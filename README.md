@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [The 'extreme' Social Security move that actually makes sense](https://finance.yahoo.com/news/the-extreme-social-security-move-that-actually-makes-sense-180912516.html)
+- Mar 26 - [Ecuador's youngest mayor, Brigitte García, killed with her advisor amid state of emergency](https://www.yahoo.com/news/ecuadors-youngest-mayor-brigitte-garc-180841781.html)
+- Mar 26 - [“Less than a Scaramucci”: NBC News reportedly dropping Ronna McDaniel after on-air protests](https://www.yahoo.com/news/less-scaramucci-nbc-news-reportedly-175243224.html)
+- Mar 26 - [Ketanji Brown Jackson Dunks on Alito During Abortion Hearing](https://www.yahoo.com/news/ketanji-brown-jackson-dunks-alito-173103313.html)
 - Mar 26 - [Trump is selling 'God Bless the USA' Bibles for $59.99 as he faces mounting legal bills](https://www.yahoo.com/news/trump-selling-god-bless-usa-172605780.html)
-- Mar 26 - [Fire Department Battalion Chief Said Wife Died After a Seizure. Then Police Learned He Was Having an Affair](https://www.yahoo.com/entertainment/fire-department-battalion-chief-said-171131743.html)
-- Mar 26 - [Sean Combs’ Accused ‘Mule’ Arrested at Miami Airport on Cocaine and Marijuana Charges](https://www.yahoo.com/entertainment/sean-combs-accused-mule-arrested-162107812.html)
-- Mar 26 - [Stewart hits O’Leary for Trump defense after fraud verdict: ‘The f‑‑‑ing entitled arrogance’](https://www.yahoo.com/news/stewart-hits-o-leary-trump-155628778.html)
-- Mar 26 - [Lebanese Sunni militant group head says coordination with Shiite Hezbollah is vital to fight Israel](https://www.yahoo.com/news/lebanese-sunni-militant-group-head-155412660.html)
 <!-- feed end -->
 
 ### Onstream
