@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [Trump Goes After Judge’s Daughter in Hush Money Trial Rant](https://www.yahoo.com/news/trump-goes-judge-daughter-hush-170621210.html)
+- Mar 26 - [San Francisco residents protest probation sentence in 94-year-old Asian woman's assault](https://www.yahoo.com/news/san-francisco-residents-protest-probation-192445566.html)
 - Mar 26 - [Convicted sex offender who hacked jumbotron at the Jacksonville Jaguars' stadium gets 220 years](https://www.yahoo.com/news/convicted-sex-offender-hacked-jumbotron-192321755.html)
+- Mar 26 - [‘The Wire’ Creator David Simon Rips Into Baltimore Bridge Conspiracists, Calls Marjorie Taylor Greene A “Complete Submoronic Pratfall Of A Human Being’](https://www.yahoo.com/entertainment/wire-creator-david-simon-rips-191031374.html)
 - Mar 26 - [South Carolina has $1.8 billion but doesn't know where the money came from or where it should go](https://www.yahoo.com/news/south-carolina-1-8-billion-185421835.html)
-- Mar 26 - [Trump’s Idiot Lawyers Just Screwed Themselves Over in Hush-Money Case](https://www.yahoo.com/news/trump-idiot-lawyers-just-screwed-182016542.html)
-- Mar 26 - [The 'extreme' Social Security move that actually makes sense](https://finance.yahoo.com/news/the-extreme-social-security-move-that-actually-makes-sense-180912516.html)
-- Mar 26 - [Ecuador's youngest mayor, Brigitte García, killed with her advisor amid state of emergency](https://www.yahoo.com/news/ecuadors-youngest-mayor-brigitte-garc-180841781.html)
 <!-- feed end -->
 
 ### Onstream
