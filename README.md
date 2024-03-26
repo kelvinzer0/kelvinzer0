@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Baltimore Key Bridge collapse live updates: At least 6 unaccounted for, no evidence of terrorism](https://www.yahoo.com/news/baltimore-bridge-collapse-live-updates-123000200.html)
+- Mar 26 - [‘My son got over the Baltimore bridge three minutes before it collapsed’](https://www.yahoo.com/news/son-got-over-baltimore-bridge-144712389.html)
 - Mar 26 - [Why Are Women Getting Punched In The Face On The Streets Of NYC?](https://www.yahoo.com/entertainment/why-women-getting-punched-face-143007131.html)
+- Mar 26 - [U.N. expert says Israel has committed genocide in Gaza, calls for arms embargo](https://www.yahoo.com/news/u-n-expert-says-israel-140327938.html)
 - Mar 26 - [Austrian police given small gifts after protecting Russian Embassy, told to reject them in future](https://www.yahoo.com/news/austrian-police-given-small-gifts-134759578.html)
-- Mar 26 - [Kenya starts to return the 429 bodies of doomsday cult victims to families](https://www.yahoo.com/news/kenya-starts-return-429-bodies-134425124.html)
-- Mar 26 - [Boaters left with ‘jaws gaping’ as two ‘titans of the ocean’ battle, rare video shows](https://www.yahoo.com/news/boaters-left-jaws-gaping-two-134353944.html)
+- Mar 26 - [Kenya starts to hand over to relatives the bodies of 429 members of a doomsday cult](https://www.yahoo.com/news/kenya-starts-return-429-bodies-134425124.html)
 <!-- feed end -->
 
 ### Onstream
