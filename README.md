@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [‘My son got over the Baltimore bridge three minutes before it collapsed’](https://www.yahoo.com/news/son-got-over-baltimore-bridge-144712389.html)
-- Mar 26 - [Why Are Women Getting Punched In The Face On The Streets Of NYC?](https://www.yahoo.com/entertainment/why-women-getting-punched-face-143007131.html)
-- Mar 26 - [U.N. expert says Israel has committed genocide in Gaza, calls for arms embargo](https://www.yahoo.com/news/u-n-expert-says-israel-140327938.html)
-- Mar 26 - [Austrian police given small gifts after protecting Russian Embassy, told to reject them in future](https://www.yahoo.com/news/austrian-police-given-small-gifts-134759578.html)
-- Mar 26 - [Kenya starts to hand over to relatives the bodies of 429 members of a doomsday cult](https://www.yahoo.com/news/kenya-starts-return-429-bodies-134425124.html)
+- Mar 26 - [How the criminal case against Texas AG Ken Paxton abruptly ended after nearly a decade of delays](https://www.yahoo.com/news/criminal-case-against-texas-ag-160615471.html)
+- Mar 26 - [Why Florida's new social media rules for kids may not last](https://finance.yahoo.com/video/why-floridas-social-media-rules-155725210.html)
+- Mar 26 - [“Intimidating the judge”: Expert says Trump Truth Social post put a “target” on judge’s daughter](https://www.yahoo.com/news/intimidating-judge-expert-says-trump-155636296.html)
+- Mar 26 - [Lebanese Sunni militant group head says coordination with Shiite Hezbollah is vital to fight Israel](https://www.yahoo.com/news/lebanese-sunni-militant-group-head-155412660.html)
+- Mar 26 - [‘Tiny’ newborn stays near mom — until he gets the zoomies at Florida zoo, video shows](https://www.yahoo.com/news/tiny-newborn-stays-near-mom-150923012.html)
 <!-- feed end -->
 
 ### Onstream
