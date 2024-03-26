@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Some Republicans who supported Nikki Haley are still refusing to back Donald Trump](https://www.yahoo.com/news/republicans-supported-nikki-haley-still-042006665.html)
 - Mar 26 - [‘Duty to warn’ guided US advance warning of the Moscow attack. Adversaries don’t always listen](https://www.yahoo.com/news/duty-warn-guided-us-advance-041519734.html)
 - Mar 26 - [Ukraine ramps up spending on homemade weapons to help repel Russia](https://www.yahoo.com/news/ukraine-ramps-spending-homemade-weapons-040524212.html)
 - Mar 26 - [Man Arrested After Being Filmed Carrying Severed Human Leg and Allegedly Biting It](https://www.yahoo.com/entertainment/man-arrested-being-filmed-carrying-034119746.html)
 - Mar 26 - [Haberman reveals what Trump’s aides are saying privately about hush money case](https://www.yahoo.com/news/haberman-reveals-trump-aides-saying-020522100.html)
+- Mar 26 - [Sean 'Diddy' Combs' Private Jet Lands in Caribbean amid U.S. Home Raids](https://www.yahoo.com/entertainment/sean-diddy-combs-private-jet-012114931.html)
 <!-- feed end -->
 
 ### Onstream
