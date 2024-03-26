@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [Sean 'Diddy' Combs' Private Jet Reportedly in Caribbean amid U.S. Home Raids](https://www.yahoo.com/entertainment/sean-diddy-combs-private-jet-012114931.html)
 - Mar 26 - [US appeals court finds for Donald Trump Jr. in defamation suit by ex-coal CEO Don Blankenship](https://www.yahoo.com/news/us-appeals-court-finds-donald-003546494.html)
-- Mar 25 - [Russia terror suspects appear badly beaten in court](https://www.yahoo.com/news/russia-terror-suspects-appear-badly-235524339.html)
+- Mar 26 - [Japan approves plan to sell fighter jets to other nations in latest break from pacifist principles](https://www.yahoo.com/news/japan-approves-plan-sell-fighter-002040856.html)
+- Mar 26 - [Disturbing video shows security forces run down Moscow attack suspects](https://www.yahoo.com/news/disturbing-video-shows-security-forces-001332469.html)
 - Mar 25 - [Fact check: Trump tells ‘mind-bogglingly nonsensical’ story about the New York Stock Exchange](https://www.yahoo.com/news/fact-check-trump-tells-mind-231710483.html)
-- Mar 25 - [‘Craziest thing I’ve ever seen in my life:’ Shootout on I-285 caught on camera](https://www.yahoo.com/news/craziest-thing-ve-ever-seen-215944641.html)
-- Mar 25 - [Hamas tells mediators it will stick to original position on ceasefire](https://www.yahoo.com/news/hamas-tells-mediators-stick-original-215831487.html)
 <!-- feed end -->
 
 ### Onstream
