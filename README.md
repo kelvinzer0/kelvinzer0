@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Millions of Americans caught up in Chinese hacking plot - US](https://www.yahoo.com/news/millions-americans-caught-chinese-hacking-170330834.html)
+- Mar 26 - [Some Republicans who supported Nikki Haley are still refusing to back Donald Trump](https://www.yahoo.com/news/republicans-supported-nikki-haley-still-042006665.html)
 - Mar 26 - [‘Duty to warn’ guided US advance warning of the Moscow attack. Adversaries don’t always listen](https://www.yahoo.com/news/duty-warn-guided-us-advance-041519734.html)
 - Mar 26 - [Ukraine ramps up spending on homemade weapons to help repel Russia](https://www.yahoo.com/news/ukraine-ramps-spending-homemade-weapons-040524212.html)
 - Mar 26 - [Man Arrested After Being Filmed Carrying Severed Human Leg and Allegedly Biting It](https://www.yahoo.com/entertainment/man-arrested-being-filmed-carrying-034119746.html)
