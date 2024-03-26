@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [Eighth suspect in Moscow attack appears in court, rights commissioner warns on torture](https://www.yahoo.com/news/eighth-suspect-moscow-attack-appears-125319242.html)
+- Mar 26 - [Baltimore Bridge Collapses, Rescue Efforts Underway](https://finance.yahoo.com/video/baltimore-bridge-collapses-cargo-ship-081000140.html)
+- Mar 26 - [Cargo ship that hit Baltimore bridge was involved in Antwerp collision in 2016](https://www.yahoo.com/news/cargo-ship-hit-baltimore-bridge-121734992.html)
 - Mar 26 - [Former Hungarian insider releases audio he says is proof of corruption in embattled Orbán government](https://www.yahoo.com/news/former-hungarian-insider-releases-audio-113121387.html)
 - Mar 26 - ["Hastening his deterioration": Dr. John Gartner on impact of court trials on "Trump’s fragile brain"](https://www.yahoo.com/news/hastening-deterioration-dr-john-gartner-094504953.html)
-- Mar 26 - [‘Feeble, Confused And Tired’: Donald Trump Torched After Bizarre Gaffe-Filled Appearance](https://www.yahoo.com/news/feeble-confused-tired-trump-torched-085918760.html)
-- Mar 26 - [Police in Fort Lauderdale report surge of spring breakers amid Miami Beach crackdown](https://www.yahoo.com/news/police-fort-lauderdale-report-surge-080003084.html)
-- Mar 26 - [Livestream caught the moment a massive ship crashed into Baltimore's Francis Scott Key Bridge and caused it to collapse](https://www.yahoo.com/news/livestream-caught-moment-massive-ship-075237762.html)
 <!-- feed end -->
 
 ### Onstream
