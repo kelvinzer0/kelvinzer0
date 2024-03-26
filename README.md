@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 26 - [Millions of Americans caught up in Chinese hacking plot - US](https://www.yahoo.com/news/millions-americans-caught-chinese-hacking-170330834.html)
+- Mar 26 - [‘Duty to warn’ guided US advance warning of the Moscow attack. Adversaries don’t always listen](https://www.yahoo.com/news/duty-warn-guided-us-advance-041519734.html)
+- Mar 26 - [Ukraine ramps up spending on homemade weapons to help repel Russia](https://www.yahoo.com/news/ukraine-ramps-spending-homemade-weapons-040524212.html)
+- Mar 26 - [Man Arrested After Being Filmed Carrying Severed Human Leg and Allegedly Biting It](https://www.yahoo.com/entertainment/man-arrested-being-filmed-carrying-034119746.html)
 - Mar 26 - [Haberman reveals what Trump’s aides are saying privately about hush money case](https://www.yahoo.com/news/haberman-reveals-trump-aides-saying-020522100.html)
-- Mar 26 - [Sean 'Diddy' Combs' Private Jet Lands in Caribbean amid U.S. Home Raids](https://www.yahoo.com/entertainment/sean-diddy-combs-private-jet-012114931.html)
-- Mar 26 - [US appeals court finds for Donald Trump Jr. in defamation suit by ex-coal CEO Don Blankenship](https://www.yahoo.com/news/us-appeals-court-finds-donald-003546494.html)
-- Mar 26 - [Japan approves plan to sell fighter jets to other nations in latest break from pacifist principles](https://www.yahoo.com/news/japan-approves-plan-sell-fighter-002040856.html)
-- Mar 26 - [Disturbing video shows security forces run down Moscow attack suspects](https://www.yahoo.com/news/disturbing-video-shows-security-forces-001332469.html)
 <!-- feed end -->
 
 ### Onstream
