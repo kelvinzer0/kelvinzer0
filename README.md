@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 27 - [Oncologist: Kate’s diagnosis is part of a troubling trend](https://www.yahoo.com/news/oncologist-kate-diagnosis-part-troubling-090214545.html)
-- Mar 27 - [China's Xi issues a positive message in meeting with U.S. business leaders as relations improve](https://www.yahoo.com/news/chinas-xi-issues-positive-message-115827002.html)
+- Mar 27 - [Karine Jean-Pierre Snaps At Interviewer's 'Incredibly Insulting' Question](https://www.yahoo.com/entertainment/karine-jean-pierre-snaps-interviewers-151333140.html)
+- Mar 27 - [Settlement reached in lawsuit between Disney and Florida Gov. Ron DeSantis' allies](https://finance.yahoo.com/news/settlement-reached-lawsuit-between-florida-142545296.html)
+- Mar 27 - [Russia says it's hard to believe Islamic State could have launched Moscow attack](https://www.yahoo.com/news/russia-says-hard-believe-islamic-135347339.html)
 - Mar 27 - [Opinion: The writing was on the wall for Ronna McDaniel](https://www.yahoo.com/news/opinion-35-years-covering-media-213010030.html)
-- Mar 27 - [Israeli woman who was held hostage by Hamas speaks out on her abduction and sexual assault in Gaza](https://www.yahoo.com/news/israeli-woman-held-hostage-hamas-233640209.html)
-- Mar 27 - [A Nigerian woman reviewed some tomato puree online. Now she faces jail](https://www.yahoo.com/news/nigerian-woman-reviewed-tomato-puree-105050378.html)
 <!-- feed end -->
 
 ### Onstream
