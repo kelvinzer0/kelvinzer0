@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 27 - [Children's author Kouri Richins hit with new charges alleging earlier attempt to kill her husband](https://www.yahoo.com/news/childrens-author-kouri-richins-hit-014324246.html)
-- Mar 27 - [Sean Combs’ Accused ‘Mule’ Arrested at Miami Airport on Cocaine and Marijuana Charges](https://www.yahoo.com/entertainment/sean-combs-accused-mule-arrested-162107812.html)
+- Mar 27 - [I quit sugar for 6 months and this is what it did to my face and body](https://www.yahoo.com/news/quit-sugar-6-months-did-012213059.html)
 - Mar 26 - [Israeli woman who was held hostage by Hamas speaks out on her abduction and sexual assault in Gaza](https://www.yahoo.com/news/israeli-woman-held-hostage-hamas-233640209.html)
 - Mar 26 - [Opinion: After a revolt by MSNBC’s primetime anchors, the writing was on the wall for Ronna McDaniel](https://www.yahoo.com/news/opinion-35-years-covering-media-213010030.html)
 - Mar 26 - [FBI says Alex Murdaugh lied about where money stolen from clients went and who helped him steal](https://www.yahoo.com/news/fbi-says-alex-murdaugh-lied-225830015.html)
