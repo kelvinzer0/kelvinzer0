@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 27 - [Karine Jean-Pierre Snaps At Interviewer's 'Incredibly Insulting' Question](https://www.yahoo.com/entertainment/karine-jean-pierre-snaps-interviewers-151333140.html)
 - Mar 27 - [Settlement reached in lawsuit between Disney and Florida Gov. Ron DeSantis' allies](https://finance.yahoo.com/news/settlement-reached-lawsuit-between-florida-142545296.html)
 - Mar 27 - [Russia says it's hard to believe Islamic State could have launched Moscow attack](https://www.yahoo.com/news/russia-says-hard-believe-islamic-135347339.html)
-- Mar 27 - [Opinion: The writing was on the wall for Ronna McDaniel](https://www.yahoo.com/news/opinion-35-years-covering-media-213010030.html)
+- Mar 27 - [16 Mega Millions tickets sold in Mass. hit for smaller prizes as jackpot is won in another state](https://www.yahoo.com/news/16-mega-millions-tickets-sold-133525737.html)
 <!-- feed end -->
 
 ### Onstream
