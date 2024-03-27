@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 27 - [Woman who stole Biden daughter's diary skips sentencing, threatened with arrest](https://www.yahoo.com/news/woman-stole-biden-daughters-diary-200805052.html)
+- Mar 27 - [Oncologist: Kate’s diagnosis is part of a troubling trend](https://www.yahoo.com/news/oncologist-kate-diagnosis-part-troubling-090214545.html)
 - Mar 27 - ['Such a loss': 2 women in South Carolina Army National Guard died after head-on collision](https://www.yahoo.com/news/loss-2-women-south-carolina-190719710.html)
-- Mar 27 - [I invested most of my salary for 7 years and had enough to retire at 29. My best tips: start young, take risks and don't settle in expensive cities.](https://finance.yahoo.com/news/invested-most-salary-7-years-181442762.html)
-- Mar 27 - [People Are Absolutely Losing It Over Donald Trump Selling An American-Themed Bible For $60](https://www.yahoo.com/lifestyle/people-absolutely-losing-over-donald-180303060.html)
-- Mar 27 - [DC mayor called out for two word response to Baltimore bridge collapse](https://www.yahoo.com/news/dc-mayor-called-two-word-171924448.html)
-- Mar 27 - [Utah grief author Kouri Richins also tried to poison husband with Valentine's Day sandwich, prosecutors say](https://www.yahoo.com/news/utah-grief-author-kouri-richins-173556177.html)
+- Mar 27 - [Las Vegas woman accused of ‘random’ murder was paroled months ago](https://www.yahoo.com/news/las-vegas-woman-accused-random-190304292.html)
+- Mar 27 - [You can buy this electric luxury SUV for $25,000 right now. But there might be a catch](https://finance.yahoo.com/news/buy-electric-luxury-suv-25-181654264.html)
 <!-- feed end -->
 
 ### Onstream
