@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 27 - [Trump slow to invest in states that could decide election as some in GOP fear 'skeleton' campaign](https://www.yahoo.com/news/trump-slow-invest-states-could-041136753.html)
+- Mar 27 - [Ahmaud Arbery's killers ask a US appeals court to overturn their hate crime convictions](https://www.yahoo.com/news/ahmaud-arberys-killers-ask-us-040748996.html)
+- Mar 27 - [AP-NORC Poll: Trump evokes more anger and fear from Democrats than Biden does from Republicans](https://www.yahoo.com/news/ap-norc-poll-trump-evokes-040116447.html)
+- Mar 27 - [Jordan Klepper Unleashes Holy Hell On Trump With 1 Truly Burning Question](https://www.yahoo.com/entertainment/jordan-klepper-unleashes-holy-hell-035247539.html)
 - Mar 27 - [Children's author Kouri Richins hit with new charges alleging earlier attempt to kill her husband](https://www.yahoo.com/news/childrens-author-kouri-richins-hit-014324246.html)
-- Mar 27 - [I quit sugar for 6 months and this is what it did to my face and body](https://www.yahoo.com/news/quit-sugar-6-months-did-012213059.html)
-- Mar 26 - [Israeli woman who was held hostage by Hamas speaks out on her abduction and sexual assault in Gaza](https://www.yahoo.com/news/israeli-woman-held-hostage-hamas-233640209.html)
-- Mar 26 - [Opinion: After a revolt by MSNBC’s primetime anchors, the writing was on the wall for Ronna McDaniel](https://www.yahoo.com/news/opinion-35-years-covering-media-213010030.html)
-- Mar 26 - [FBI says Alex Murdaugh lied about where money stolen from clients went and who helped him steal](https://www.yahoo.com/news/fbi-says-alex-murdaugh-lied-225830015.html)
 <!-- feed end -->
 
 ### Onstream
