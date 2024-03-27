@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 27 - [Former Sen. Joe Lieberman, Democrats’ VP pick in 2000, dead at 82](https://www.yahoo.com/news/former-sen-joe-lieberman-democrats-214816174.html)
+- Mar 27 - [Recently discovered anaconda said to be 'largest in the world' found dead in the Amazon](https://www.yahoo.com/news/recently-discovered-anaconda-said-largest-212847736.html)
 - Mar 27 - [Woman who stole Biden daughter's diary skips sentencing, threatened with arrest](https://www.yahoo.com/news/woman-stole-biden-daughters-diary-200805052.html)
-- Mar 27 - [Oncologist: Kate’s diagnosis is part of a troubling trend](https://www.yahoo.com/news/oncologist-kate-diagnosis-part-troubling-090214545.html)
 - Mar 27 - ['Such a loss': 2 women in South Carolina Army National Guard died after head-on collision](https://www.yahoo.com/news/loss-2-women-south-carolina-190719710.html)
-- Mar 27 - [Las Vegas woman accused of ‘random’ murder was paroled months ago](https://www.yahoo.com/news/las-vegas-woman-accused-random-190304292.html)
 - Mar 27 - [You can buy this electric luxury SUV for $25,000 right now. But there might be a catch](https://finance.yahoo.com/news/buy-electric-luxury-suv-25-181654264.html)
 <!-- feed end -->
 
