@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 26 - [Opinion: In 35 years of covering the media, I’ve never seen a newsroom revolt like the one at NBC](https://www.yahoo.com/news/opinion-35-years-covering-media-213010030.html)
-- Mar 26 - [I'm So, So, So, So Sorry But If You Recognize These 45 Items You're Considered Old Now](https://www.yahoo.com/lifestyle/know-45-items-then-considered-204100344.html)
-- Mar 26 - [Lego head mugshots add to California's debate on policing and privacy](https://www.yahoo.com/news/lego-head-mugshots-add-californias-203504735.html)
-- Mar 26 - [Bat-wielding extortionist who targeted Koreatown karaoke bars faces centuries in prison](https://www.yahoo.com/news/bat-wielding-extortionist-targeted-koreatown-203306478.html)
-- Mar 26 - [Unlikely friendships: This cheetah-tortoise duo are inseparable and will melt your heart](https://www.yahoo.com/news/unlikely-friendships-this-cheetah-tortoise-duo-are-inseparable-and-will-melt-your-heart-201327589.html)
+- Mar 26 - [Israeli woman who was held hostage by Hamas speaks out on her abduction and sexual assault in Gaza](https://www.yahoo.com/news/israeli-woman-held-hostage-hamas-233640209.html)
+- Mar 26 - [Opinion: After a revolt by MSNBC’s primetime anchors, the writing was on the wall for Ronna McDaniel](https://www.yahoo.com/news/opinion-35-years-covering-media-213010030.html)
+- Mar 26 - [FBI says Alex Murdaugh lied about where money stolen from clients went and who helped him steal](https://www.yahoo.com/news/fbi-says-alex-murdaugh-lied-225830015.html)
+- Mar 26 - [Former Kansas City Chiefs Cheerleader Dies of Sepsis After Stillbirth](https://www.yahoo.com/entertainment/former-kansas-city-chiefs-cheerleader-221435397.html)
+- Mar 26 - [I’ve captained ships into tight ports like Baltimore, and this is how captains like me work with harbor pilots to avoid deadly collisions](https://www.yahoo.com/news/ve-captained-ships-tight-ports-213113532.html)
 <!-- feed end -->
 
 ### Onstream
