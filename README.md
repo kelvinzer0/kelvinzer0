@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 27 - [Oncologist: Kate’s diagnosis is part of a troubling trend](https://www.yahoo.com/news/oncologist-kate-diagnosis-part-troubling-090214545.html)
 - Mar 27 - [Exclusive-Russia struggles to collect oil payments as China, UAE, Turkey raise bank scrutiny](https://finance.yahoo.com/news/exclusive-russia-struggles-collect-oil-060405352.html)
 - Mar 27 - [Jordan Klepper Unleashes Holy Hell On Trump With 1 Truly Burning Question](https://www.yahoo.com/entertainment/jordan-klepper-unleashes-holy-hell-035247539.html)
 - Mar 27 - [Children's author Kouri Richins hit with new charges alleging earlier attempt to kill her husband](https://www.yahoo.com/news/childrens-author-kouri-richins-hit-014324246.html)
 - Mar 27 - [I quit sugar for 6 months and this is what it did to my face and body](https://www.yahoo.com/news/quit-sugar-6-months-did-012213059.html)
-- Mar 27 - [Chicago suburb tops list of '2024 Best Cities to Live in America'](https://www.yahoo.com/news/chicago-suburb-tops-list-2024-002421522.html)
 <!-- feed end -->
 
 ### Onstream
