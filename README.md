@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 27 - [AP-NORC Poll: Trump evokes more anger and fear from Democrats than Biden does from Republicans](https://www.yahoo.com/news/ap-norc-poll-trump-evokes-040116447.html)
 - Mar 27 - [Children's author Kouri Richins hit with new charges alleging earlier attempt to kill her husband](https://www.yahoo.com/news/childrens-author-kouri-richins-hit-014324246.html)
 - Mar 27 - [I quit sugar for 6 months and this is what it did to my face and body](https://www.yahoo.com/news/quit-sugar-6-months-did-012213059.html)
-- Mar 26 - [Israeli woman who was held hostage by Hamas speaks out on her abduction and sexual assault in Gaza](https://www.yahoo.com/news/israeli-woman-held-hostage-hamas-233640209.html)
+- Mar 27 - [Chicago suburb tops list of '2024 Best Cities to Live in America'](https://www.yahoo.com/news/chicago-suburb-tops-list-2024-002421522.html)
 <!-- feed end -->
 
 ### Onstream
