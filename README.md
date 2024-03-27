@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 27 - [Children's author Kouri Richins hit with new charges alleging earlier attempt to kill her husband](https://www.yahoo.com/news/childrens-author-kouri-richins-hit-014324246.html)
+- Mar 27 - [Sean Combs’ Accused ‘Mule’ Arrested at Miami Airport on Cocaine and Marijuana Charges](https://www.yahoo.com/entertainment/sean-combs-accused-mule-arrested-162107812.html)
 - Mar 26 - [Israeli woman who was held hostage by Hamas speaks out on her abduction and sexual assault in Gaza](https://www.yahoo.com/news/israeli-woman-held-hostage-hamas-233640209.html)
 - Mar 26 - [Opinion: After a revolt by MSNBC’s primetime anchors, the writing was on the wall for Ronna McDaniel](https://www.yahoo.com/news/opinion-35-years-covering-media-213010030.html)
 - Mar 26 - [FBI says Alex Murdaugh lied about where money stolen from clients went and who helped him steal](https://www.yahoo.com/news/fbi-says-alex-murdaugh-lied-225830015.html)
-- Mar 26 - [Former Kansas City Chiefs Cheerleader Dies of Sepsis After Stillbirth](https://www.yahoo.com/entertainment/former-kansas-city-chiefs-cheerleader-221435397.html)
-- Mar 26 - [I’ve captained ships into tight ports like Baltimore, and this is how captains like me work with harbor pilots to avoid deadly collisions](https://www.yahoo.com/news/ve-captained-ships-tight-ports-213113532.html)
 <!-- feed end -->
 
 ### Onstream
