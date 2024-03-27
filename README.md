@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 27 - [I invested most of my salary for 7 years and had enough to retire at 29. My best tips: start young, take risks and don't settle in expensive cities.](https://finance.yahoo.com/news/invested-most-salary-7-years-181442762.html)
+- Mar 27 - [DC mayor called out for two word response to Baltimore bridge collapse](https://www.yahoo.com/news/dc-mayor-called-two-word-171924448.html)
 - Mar 27 - [Utah grief author Kouri Richins also tried to poison husband with Valentine's Day sandwich, prosecutors say](https://www.yahoo.com/news/utah-grief-author-kouri-richins-173556177.html)
 - Mar 27 - [2 high school wrestling team members in West Virginia are charged with sexual assault](https://sports.yahoo.com/2-high-school-wrestling-team-164650104.html)
 - Mar 27 - [“Not wise”: Trump goes after judge’s daughter one day after being hit with gag order](https://www.yahoo.com/news/not-wise-trump-goes-judge-163416216.html)
-- Mar 27 - [Oncologist: Kate’s diagnosis is part of a troubling trend](https://www.yahoo.com/news/oncologist-kate-diagnosis-part-troubling-090214545.html)
-- Mar 27 - [Karine Jean-Pierre Snaps At Interviewer's 'Incredibly Insulting' Question](https://www.yahoo.com/entertainment/karine-jean-pierre-snaps-interviewers-151333140.html)
 <!-- feed end -->
 
 ### Onstream
