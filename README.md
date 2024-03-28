@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 28 - [Why did more than 1,000 people die after police subdued them with force that isn't meant to kill?](https://www.yahoo.com/news/why-did-more-1-000-100117919.html)
+- Mar 28 - [Paul Ryan Has A Stark Prediction For Down-Ballot Republicans On Donald Trump](https://www.yahoo.com/news/paul-ryan-stark-prediction-down-090725340.html)
+- Mar 28 - [Biden is announcing a new rule to protect consumers who purchase short-term health insurance plans](https://www.yahoo.com/news/biden-announcing-rule-protect-consumers-090351310.html)
+- Mar 28 - [Trump Biographer Busts Trump's Biggest Myth About Himself Wide Open](https://www.yahoo.com/news/trump-biographer-busts-trumps-biggest-074909915.html)
 - Mar 28 - [You can buy this electric luxury SUV for $25,000 right now. But there might be a catch](https://finance.yahoo.com/news/buy-electric-luxury-suv-25-181654264.html)
-- Mar 28 - [Judge forges ahead with pretrial motions in Georgia election interference case](https://www.yahoo.com/news/judge-forges-ahead-pretrial-motions-041019324.html)
-- Mar 28 - [‘Hillary was right’: Lifelong GOP voter on why he is leaving party](https://www.yahoo.com/news/hillary-lifelong-gop-voter-why-033003432.html)
-- Mar 28 - [A Nigerian woman reviewed some tomato puree online. Now she faces jail](https://www.yahoo.com/news/nigerian-woman-reviewed-tomato-puree-105050378.html)
-- Mar 28 - [Former correctional officer at women's prison in California sentenced for sexually abusing inmates](https://www.yahoo.com/news/former-correctional-officer-womens-prison-025103046.html)
 <!-- feed end -->
 
 ### Onstream
