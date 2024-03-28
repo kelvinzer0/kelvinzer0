@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Palestinian fighters battle Israeli forces around Gaza's Al Shifa Hospital](https://www.yahoo.com/news/palestinian-fighters-battle-israeli-forces-130029390.html)
+- Mar 28 - [Republican-passed bill removes role of Democratic governor if Senate vacancy occurs in Kentucky](https://www.yahoo.com/news/republican-passed-bill-removes-role-142831562.html)
+- Mar 28 - [This Italian town is struggling to sell off its empty homes for one euro. Here’s why](https://www.yahoo.com/lifestyle/italian-town-struggling-sell-off-060029291.html)
 - Mar 28 - [Flames engulf historic Cleveland church](https://www.yahoo.com/news/live-look-flames-engulf-historic-113316883.html)
-- Mar 28 - [Judge to consider if Trump can throw out Georgia election subversion case on First Amendment grounds](https://www.yahoo.com/news/judge-consider-trump-throw-georgia-100027937.html)
 - Mar 28 - [Trump Bibles make a mockery of Christianity — and that's exactly why MAGA will eat them up](https://www.yahoo.com/news/trump-bibles-mockery-christianity-thats-100005573.html)
 - Mar 28 - [Former Buncombe County sheriff deputy banned from law enforcement dies in Old Fort home](https://www.yahoo.com/news/former-buncombe-county-sheriff-deputy-091731605.html)
 <!-- feed end -->
