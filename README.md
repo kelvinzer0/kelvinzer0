@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 28 - [Dashcam video shows deadly Texas school bus crash after cement truck veers into oncoming lane](https://www.yahoo.com/news/dashcam-video-shows-deadly-texas-211751486.html)
+- Mar 28 - [Owner of ship that crashed into Baltimore bridge will likely try to invoke 1851 law used to cap damages after Titanic disaster](https://www.yahoo.com/news/owner-ship-crashed-baltimore-bridge-201630179.html)
 - Mar 28 - [Hezbollah fires heavy rockets at northern Israel after deadliest day of Israeli strikes on Lebanon](https://www.yahoo.com/news/hezbollah-fires-heavy-rockets-northern-201436706.html)
+- Mar 28 - [Judge minces no words: Kari Lake basically admitted she defamed Stephen Richer](https://www.yahoo.com/news/judge-minces-no-words-kari-192907826.html)
 - Mar 28 - [CDC alerts doctors to watch for rare, serious bacterial infection appearing with unusual symptoms](https://www.yahoo.com/lifestyle/cdc-alerts-doctors-watch-rare-192207569.html)
-- Mar 28 - [Israel has not received everything it has asked for, top US general says](https://www.yahoo.com/news/israel-not-received-everything-asked-191151504.html)
-- Mar 28 - [Ruby Franke’s Husband Reveals Alleged Rules He Had to Follow at Home](https://www.yahoo.com/entertainment/ruby-franke-husband-reveals-alleged-182016343.html)
-- Mar 28 - [Pope Francis washes women inmates' feet on Holy Thursday](https://www.yahoo.com/news/pope-francis-washes-women-inmates-180113904.html)
 <!-- feed end -->
 
 ### Onstream
