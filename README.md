@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 28 - [Russia says evidence links concert hall attackers to "Ukrainian nationalists"](https://www.yahoo.com/news/russia-says-evidence-links-concert-153526254.html)
+- Mar 28 - [Getting ready for war with China: The world’s greatest fighter jet gets an upgrade](https://www.yahoo.com/news/getting-ready-war-china-world-144409957.html)
 - Mar 28 - [Republican-passed bill removes role of Democratic governor if Senate vacancy occurs in Kentucky](https://www.yahoo.com/news/republican-passed-bill-removes-role-142831562.html)
+- Mar 28 - [Ex-Giuliani Associate Shares Video “Republicans Don’t Want You to See”](https://www.yahoo.com/news/ex-giuliani-associate-shares-video-135950451.html)
 - Mar 28 - [This Italian town is struggling to sell off its empty homes for one euro. Here’s why](https://www.yahoo.com/lifestyle/italian-town-struggling-sell-off-060029291.html)
-- Mar 28 - [Flames engulf historic Cleveland church](https://www.yahoo.com/news/live-look-flames-engulf-historic-113316883.html)
-- Mar 28 - [Trump Bibles make a mockery of Christianity — and that's exactly why MAGA will eat them up](https://www.yahoo.com/news/trump-bibles-mockery-christianity-thats-100005573.html)
-- Mar 28 - [Former Buncombe County sheriff deputy banned from law enforcement dies in Old Fort home](https://www.yahoo.com/news/former-buncombe-county-sheriff-deputy-091731605.html)
 <!-- feed end -->
 
 ### Onstream
