@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Trump Biographer Busts Trump's Biggest Myth About Himself Wide Open](https://www.yahoo.com/news/trump-biographer-busts-trumps-biggest-074909915.html)
 - Mar 28 - [You can buy this electric luxury SUV for $25,000 right now. But there might be a catch](https://finance.yahoo.com/news/buy-electric-luxury-suv-25-181654264.html)
 - Mar 28 - [Judge forges ahead with pretrial motions in Georgia election interference case](https://www.yahoo.com/news/judge-forges-ahead-pretrial-motions-041019324.html)
 - Mar 28 - [‘Hillary was right’: Lifelong GOP voter on why he is leaving party](https://www.yahoo.com/news/hillary-lifelong-gop-voter-why-033003432.html)
 - Mar 28 - [A Nigerian woman reviewed some tomato puree online. Now she faces jail](https://www.yahoo.com/news/nigerian-woman-reviewed-tomato-puree-105050378.html)
+- Mar 28 - [Former correctional officer at women's prison in California sentenced for sexually abusing inmates](https://www.yahoo.com/news/former-correctional-officer-womens-prison-025103046.html)
 <!-- feed end -->
 
 ### Onstream
