@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 28 - [LIVE LOOK: Flames engulf historic Cleveland church](https://www.yahoo.com/news/live-look-flames-engulf-historic-113316883.html)
+- Mar 28 - [Judge to consider if Trump can throw out Georgia election subversion case on First Amendment grounds](https://www.yahoo.com/news/judge-consider-trump-throw-georgia-100027937.html)
 - Mar 28 - [Trump Bibles make a mockery of Christianity — and that's exactly why MAGA will eat them up](https://www.yahoo.com/news/trump-bibles-mockery-christianity-thats-100005573.html)
+- Mar 28 - [Former Buncombe County sheriff deputy banned from law enforcement dies in Old Fort home](https://www.yahoo.com/news/former-buncombe-county-sheriff-deputy-091731605.html)
 - Mar 28 - [Paul Ryan Has A Stark Prediction For Down-Ballot Republicans On Donald Trump](https://www.yahoo.com/news/paul-ryan-stark-prediction-down-090725340.html)
-- Mar 28 - [Biden is announcing a new rule to protect consumers who purchase short-term health insurance plans](https://www.yahoo.com/news/biden-announcing-rule-protect-consumers-090351310.html)
-- Mar 28 - [You can buy this electric luxury SUV for $25,000 right now. But there might be a catch](https://finance.yahoo.com/news/buy-electric-luxury-suv-25-181654264.html)
-- Mar 28 - [‘Hillary was right’: Lifelong GOP voter on why he is leaving party](https://www.yahoo.com/news/hillary-lifelong-gop-voter-why-033003432.html)
 <!-- feed end -->
 
 ### Onstream
