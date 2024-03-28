@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Russia links concert shooting to "Ukrainian nationalists"; US says 'nonsense'](https://www.yahoo.com/news/russia-says-evidence-links-concert-153526254.html)
+- Mar 28 - [Russia links concert shooting to 'Ukrainian nationalists'; US says 'nonsense'](https://www.yahoo.com/news/russia-says-evidence-links-concert-153526254.html)
+- Mar 28 - [It’s Time to Give Up the Lie We Keep Telling Ourselves About Donald Trump](https://www.yahoo.com/news/time-lie-keep-telling-ourselves-153000510.html)
+- Mar 28 - [Hays CISD releases video from deadly bus crash](https://www.yahoo.com/news/hays-cisd-releases-video-deadly-145901984.html)
 - Mar 28 - [World’s best fighter jet gets an upgrade for war against China](https://www.yahoo.com/news/getting-ready-war-china-world-144409957.html)
 - Mar 28 - [Republican-passed bill removes role of Democratic governor if Senate vacancy occurs in Kentucky](https://www.yahoo.com/news/republican-passed-bill-removes-role-142831562.html)
-- Mar 28 - [Ex-Giuliani Associate Shares Video “Republicans Don’t Want You to See”](https://www.yahoo.com/news/ex-giuliani-associate-shares-video-135950451.html)
-- Mar 28 - [This Italian town is struggling to sell off its empty homes for one euro. Here’s why](https://www.yahoo.com/lifestyle/italian-town-struggling-sell-off-060029291.html)
 <!-- feed end -->
 
 ### Onstream
