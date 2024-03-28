@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 28 - [You can buy this electric luxury SUV for $25,000 right now. But there might be a catch](https://finance.yahoo.com/news/buy-electric-luxury-suv-25-181654264.html)
 - Mar 28 - [A teacher diagnosed with colon cancer at 36 had only 1 noticeable symptom](https://www.yahoo.com/news/teacher-diagnosed-colon-cancer-36-002030794.html)
 - Mar 28 - [Senator & VP Nominee Joe Lieberman’s Cause Of Death Revealed](https://www.yahoo.com/entertainment/senator-vp-nominee-joe-lieberman-000515866.html)
 - Mar 27 - [Putin tells pilots: F16s can carry nuclear weapons but they won't change things in Ukraine](https://www.yahoo.com/news/putin-tells-pilots-f16s-carry-234533941.html)
 - Mar 27 - [An indicted Tennessee judge is sent to jail after her bond is revoked for positive cocaine tests](https://www.yahoo.com/news/indicted-tennessee-judge-sent-jail-233338499.html)
-- Mar 27 - [Haberman reveals what Trump’s aides are saying privately about hush money case](https://www.yahoo.com/news/haberman-reveals-trump-aides-saying-020522100.html)
 <!-- feed end -->
 
 ### Onstream
