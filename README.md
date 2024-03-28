@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 28 - [Hezbollah fires heavy rockets at northern Israel after deadliest day of Israeli strikes on Lebanon](https://www.yahoo.com/news/hezbollah-fires-heavy-rockets-northern-201436706.html)
+- Mar 28 - [CDC alerts doctors to watch for rare, serious bacterial infection appearing with unusual symptoms](https://www.yahoo.com/lifestyle/cdc-alerts-doctors-watch-rare-192207569.html)
 - Mar 28 - [Israel has not received everything it has asked for, top US general says](https://www.yahoo.com/news/israel-not-received-everything-asked-191151504.html)
-- Mar 28 - [The Christian reaction to Trump’s Bible endorsement goes deeper than you think](https://www.yahoo.com/news/why-christians-angry-trump-god-173235981.html)
-- Mar 28 - [Data Leak Reveals Hundreds of Visitors to Epstein's Private Island](https://www.yahoo.com/news/data-leak-reveals-hundreds-visitors-155040418.html)
-- Mar 28 - [Hays CISD releases video from deadly bus crash](https://www.yahoo.com/news/hays-cisd-releases-video-deadly-145901984.html)
-- Mar 28 - [World’s best fighter jet gets an upgrade for war against China](https://www.yahoo.com/news/getting-ready-war-china-world-144409957.html)
+- Mar 28 - [Ruby Franke’s Husband Reveals Alleged Rules He Had to Follow at Home](https://www.yahoo.com/entertainment/ruby-franke-husband-reveals-alleged-182016343.html)
+- Mar 28 - [Pope Francis washes women inmates' feet on Holy Thursday](https://www.yahoo.com/news/pope-francis-washes-women-inmates-180113904.html)
 <!-- feed end -->
 
 ### Onstream
