@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 28 - [Dashcam video shows deadly Texas school bus crash after cement truck veers into oncoming lane](https://www.yahoo.com/news/dashcam-video-shows-deadly-texas-211751486.html)
-- Mar 28 - [Owner of ship that crashed into Baltimore bridge will likely try to invoke 1851 law used to cap damages after Titanic disaster](https://www.yahoo.com/news/owner-ship-crashed-baltimore-bridge-201630179.html)
-- Mar 28 - [Hezbollah fires heavy rockets at northern Israel after deadliest day of Israeli strikes on Lebanon](https://www.yahoo.com/news/hezbollah-fires-heavy-rockets-northern-201436706.html)
-- Mar 28 - [Judge minces no words: Kari Lake basically admitted she defamed Stephen Richer](https://www.yahoo.com/news/judge-minces-no-words-kari-192907826.html)
-- Mar 28 - [CDC alerts doctors to watch for rare, serious bacterial infection appearing with unusual symptoms](https://www.yahoo.com/lifestyle/cdc-alerts-doctors-watch-rare-192207569.html)
+- Mar 28 - [Fox News Star Shouts Down Colleague for Invoking Her Jewish Heritage: ‘Don't Do That!’](https://www.yahoo.com/entertainment/fox-news-star-shouts-down-221246667.html)
+- Mar 28 - [Georgia Republican official and outspoken election denier caught voting illegally 9 times](https://www.yahoo.com/news/georgia-republican-official-outspoken-election-221010542.html)
+- Mar 28 - [Rudy Giuliani says forcing him to sell Florida condo could make him ‘join the ranks of the homeless’](https://www.yahoo.com/news/rudy-giuliani-says-forcing-him-214455823.html)
+- Mar 28 - [The Christian reaction to Trump’s Bible endorsement goes deeper than you think](https://www.yahoo.com/news/why-christians-angry-trump-god-173235981.html)
+- Mar 28 - [Watch: Russian jet explodes in fireball as it plunges into sea in Crimea](https://www.yahoo.com/news/watch-russian-jet-explodes-fireball-212105760.html)
 <!-- feed end -->
 
 ### Onstream
