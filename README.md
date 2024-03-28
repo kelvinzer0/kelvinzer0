@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Mar 28 - [Judge forges ahead with pretrial motions in Georgia election interference case](https://www.yahoo.com/news/judge-forges-ahead-pretrial-motions-041019324.html)
 - Mar 28 - [‘Hillary was right’: Lifelong GOP voter on why he is leaving party](https://www.yahoo.com/news/hillary-lifelong-gop-voter-why-033003432.html)
 - Mar 28 - [A Nigerian woman reviewed some tomato puree online. Now she faces jail](https://www.yahoo.com/news/nigerian-woman-reviewed-tomato-puree-105050378.html)
-- Mar 28 - [Former correctional officer at women's prison in California sentenced for sexually abusing inmates](https://www.yahoo.com/news/former-correctional-officer-womens-prison-025103046.html)
+- Mar 28 - [Her Family Claims She Was Being Bullied. The Coroner Says She Died of 'Accidental' Trauma After Fight](https://www.yahoo.com/entertainment/her-family-claims-she-being-012417718.html)
 <!-- feed end -->
 
 ### Onstream
