@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 27 - [Jeffrey Clark Screws Over Donald Trump Big-Time in 2020 Election Case](https://www.yahoo.com/news/jeffrey-clark-screws-over-donald-213826953.html)
-- Mar 27 - [Recently discovered anaconda said to be 'largest in the world' found dead in the Amazon](https://www.yahoo.com/news/recently-discovered-anaconda-said-largest-212847736.html)
-- Mar 27 - [Woman who stole Biden daughter's diary skips sentencing, threatened with arrest](https://www.yahoo.com/news/woman-stole-biden-daughters-diary-200805052.html)
-- Mar 27 - [DeSantis eliminates 'squatters' rights' in Florida, gives power to cops to remove offenders](https://www.yahoo.com/news/desantis-eliminates-squatters-rights-florida-184731530.html)
-- Mar 27 - [Guns found at Sean 'Diddy' Combs' L.A. and Miami properties during federal searches, sources say](https://www.yahoo.com/news/guns-found-sean-diddy-combs-034554261.html)
+- Mar 28 - [A teacher diagnosed with colon cancer at 36 had only 1 noticeable symptom](https://www.yahoo.com/news/teacher-diagnosed-colon-cancer-36-002030794.html)
+- Mar 28 - [Senator & VP Nominee Joe Lieberman’s Cause Of Death Revealed](https://www.yahoo.com/entertainment/senator-vp-nominee-joe-lieberman-000515866.html)
+- Mar 27 - [Putin tells pilots: F16s can carry nuclear weapons but they won't change things in Ukraine](https://www.yahoo.com/news/putin-tells-pilots-f16s-carry-234533941.html)
+- Mar 27 - [An indicted Tennessee judge is sent to jail after her bond is revoked for positive cocaine tests](https://www.yahoo.com/news/indicted-tennessee-judge-sent-jail-233338499.html)
+- Mar 27 - [Haberman reveals what Trump’s aides are saying privately about hush money case](https://www.yahoo.com/news/haberman-reveals-trump-aides-saying-020522100.html)
 <!-- feed end -->
 
 ### Onstream
