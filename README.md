@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [CNN Data Reporter Puts Trump's Bad News Into Terms Even He Can Understand](https://www.yahoo.com/news/cnn-data-reporter-puts-trumps-064307573.html)
 - Mar 29 - [Obama, Clinton on why Americans don't love the Biden economy](https://www.yahoo.com/news/obama-clinton-why-americans-dont-035920785.html)
 - Mar 29 - [The Christian reaction to Trump’s Bible endorsement goes deeper than you think](https://www.yahoo.com/news/why-christians-angry-trump-god-173235981.html)
 - Mar 28 - [NYC woman suffers broken jaw when randomly punched while walking down street](https://www.yahoo.com/news/nyc-woman-suffers-broken-jaw-233713569.html)
 - Mar 28 - [Interstate 5 southbound shut down for emergency bridge joint repair](https://www.yahoo.com/news/interstate-5-southbound-shut-down-232536630.html)
-- Mar 28 - [Drunk driver speeding at 140 mph on Las Vegas Boulevard crashes into car, killing man: police](https://www.yahoo.com/news/drunk-driver-speeding-140-mph-224253277.html)
 <!-- feed end -->
 
 ### Onstream
