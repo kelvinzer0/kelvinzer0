@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [He killed a man 26 years ago in Missouri. His husband secretly worked with investigators to get a confession](https://www.yahoo.com/news/killed-man-26-years-ago-110026096.html)
 - Mar 29 - [Trump’s mental acuity questioned on Fox News](https://www.yahoo.com/news/trump-mental-acuity-questioned-fox-153042144.html)
 - Mar 29 - [Man was ‘executed’ as he ate alone at California restaurant, officials say. 2 charged](https://www.yahoo.com/news/man-executed-ate-alone-california-145040397.html)
-- Mar 29 - [“Very troubling”: Federal judge makes “extraordinary” move to reveal the truth about Trump’s threats](https://www.yahoo.com/news/very-troubling-federal-judge-makes-141651663.html)
 - Mar 29 - [CDC alerts doctors to watch for rare, serious bacterial infection appearing with unusual symptoms](https://www.yahoo.com/lifestyle/cdc-alerts-doctors-watch-rare-192207569.html)
-- Mar 29 - [Joe Biden Says He Challenged Donald Trump At Golf, But On One Mocking Condition](https://www.yahoo.com/news/joe-biden-says-challenged-donald-125730235.html)
+- Mar 29 - [Horry County hotel evacuated and closed. Guests notified that it will shut down for weeks](https://www.yahoo.com/news/horry-county-hotel-evacuated-closed-120859808.html)
 <!-- feed end -->
 
 ### Onstream
