@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [Obama to Protester Interrupting:  ‘Can’t Just Talk and Not Listen … That’s What the Other Side Does’](https://www.yahoo.com/news/obama-protester-interrupting-t-just-053300201.html)
 - Mar 29 - [CNN Data Reporter Puts Trump's Bad News Into Terms Even He Can Understand](https://www.yahoo.com/news/cnn-data-reporter-puts-trumps-064307573.html)
-- Mar 29 - [Obama, Clinton on why Americans don't love the Biden economy](https://www.yahoo.com/news/obama-clinton-why-americans-dont-035920785.html)
+- Mar 29 - [Lauren Boebert’s ‘Exact Opposite’ Attack On Joe Biden Has The Exact Opposite Effect](https://www.yahoo.com/news/lauren-boebert-exact-opposite-attack-064046158.html)
 - Mar 29 - [The Christian reaction to Trump’s Bible endorsement goes deeper than you think](https://www.yahoo.com/news/why-christians-angry-trump-god-173235981.html)
-- Mar 28 - [NYC woman suffers broken jaw when randomly punched while walking down street](https://www.yahoo.com/news/nyc-woman-suffers-broken-jaw-233713569.html)
-- Mar 28 - [Drunk driver speeding at 140 mph on Las Vegas Boulevard crashes into car, killing man: police](https://www.yahoo.com/news/drunk-driver-speeding-140-mph-224253277.html)
+- Mar 29 - [A mostly male board will decide whether a Nebraska lawmaker faces censure for sexual harassment](https://www.yahoo.com/news/mostly-male-board-decide-whether-020055077.html)
 <!-- feed end -->
 
 ### Onstream
