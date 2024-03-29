@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 29 - [He killed a man 26 years ago in Missouri. His husband secretly worked with investigators to get a confession](https://www.yahoo.com/news/killed-man-26-years-ago-110026096.html)
+- Mar 29 - [Horry County hotel evacuated and closed. Guests notified that it will shut down for weeks](https://www.yahoo.com/news/horry-county-hotel-evacuated-closed-120859808.html)
+- Mar 29 - [Seth Meyers Bursts Trump Supporters' Bubble With 1 Line From Truth Social Filing](https://www.yahoo.com/entertainment/seth-meyers-bursts-trump-supporters-105822420.html)
 - Mar 29 - [40 Forgotten Pandemic Trends From 4 Years Ago That Feel Like They Are From An Alternate Universe](https://www.yahoo.com/lifestyle/40-forgotten-pandemic-trends-4-105238789.html)
 - Mar 29 - [He didn’t trust police but sought their help anyway. Two days later, he was dead](https://www.yahoo.com/news/didn-t-trust-police-sought-101030621.html)
-- Mar 29 - [For years she thought her son had died of an overdose. The police video changed all that](https://www.yahoo.com/news/years-she-thought-her-son-100353054.html)
-- Mar 29 - [Anthony Scaramucci Gives 'No. 1 Reason' Why 'Alarmed' Republicans Are Hush On Trump](https://www.yahoo.com/news/anthony-scaramucci-gives-no-1-094222182.html)
 <!-- feed end -->
 
 ### Onstream
