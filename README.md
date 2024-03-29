@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [The Christian reaction to Trump’s Bible endorsement goes deeper than you think](https://www.yahoo.com/news/why-christians-angry-trump-god-173235981.html)
+- Mar 29 - [A mostly male board will decide whether a Nebraska lawmaker faces censure for sexual harassment](https://www.yahoo.com/news/mostly-male-board-decide-whether-020055077.html)
+- Mar 28 - [NYC woman suffers broken jaw when randomly punched while walking down street](https://www.yahoo.com/news/nyc-woman-suffers-broken-jaw-233713569.html)
 - Mar 28 - [Drunk driver speeding at 140 mph on Las Vegas Boulevard crashes into car, killing man: police](https://www.yahoo.com/news/drunk-driver-speeding-140-mph-224253277.html)
 - Mar 28 - [IRS Quietly Changes The Rule On How Your Children’s Inheritance Will Be Taxed](https://www.yahoo.com/lifestyle/irs-quietly-changes-rule-children-223400547.html)
-- Mar 28 - [Tennessee politicians strip historically Black university of its board](https://www.yahoo.com/news/tennessee-politicians-strip-historically-black-222007196.html)
-- Mar 28 - [Georgia Republican official and outspoken election denier caught voting illegally 9 times](https://www.yahoo.com/news/georgia-republican-official-outspoken-election-221010542.html)
-- Mar 28 - [Rudy Giuliani says forcing him to sell Florida condo could make him ‘join the ranks of the homeless’](https://www.yahoo.com/news/rudy-giuliani-says-forcing-him-214455823.html)
 <!-- feed end -->
 
 ### Onstream
