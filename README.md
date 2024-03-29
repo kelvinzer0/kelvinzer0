@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [CDC alerts doctors to watch for rare, serious bacterial infection appearing with unusual symptoms](https://www.yahoo.com/lifestyle/cdc-alerts-doctors-watch-rare-192207569.html)
 - Mar 29 - [He killed a man 26 years ago in Missouri. His husband secretly worked with investigators to get a confession](https://www.yahoo.com/news/killed-man-26-years-ago-110026096.html)
-- Mar 29 - [Horry County hotel evacuated and closed. Guests notified that it will shut down for weeks](https://www.yahoo.com/news/horry-county-hotel-evacuated-closed-120859808.html)
+- Mar 29 - [Federal judge delivers rare response after Trump attacks the daughter of a judge](https://www.yahoo.com/news/federal-judge-delivers-rare-response-112919696.html)
 - Mar 29 - [Seth Meyers Bursts Trump Supporters' Bubble With 1 Line From Truth Social Filing](https://www.yahoo.com/entertainment/seth-meyers-bursts-trump-supporters-105822420.html)
 - Mar 29 - [40 Forgotten Pandemic Trends From 4 Years Ago That Feel Like They Are From An Alternate Universe](https://www.yahoo.com/lifestyle/40-forgotten-pandemic-trends-4-105238789.html)
-- Mar 29 - [He didn’t trust police but sought their help anyway. Two days later, he was dead](https://www.yahoo.com/news/didn-t-trust-police-sought-101030621.html)
 <!-- feed end -->
 
 ### Onstream
