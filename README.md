@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [Trump must 'immediately desist' from targeting judge's daughter, prosecutors say](https://www.yahoo.com/news/trump-must-immediately-desist-targeting-222700317.html)
 - Mar 29 - [Texas woman sues prosecutors who charged her with murder after she self-managed an abortion](https://www.yahoo.com/news/texas-woman-sues-prosecutors-charged-202817185.html)
 - Mar 29 - [Column: As we were warned, the villain Trump has returned. The news cycle proves it](https://www.yahoo.com/entertainment/column-were-warned-villain-trump-200316097.html)
 - Mar 29 - [Parents plead no contest to killing and torturing their 4-year-old son, Noah Cuatro](https://www.yahoo.com/news/parents-plead-no-contest-killing-194619996.html)
 - Mar 29 - [Former MTV star arrested in Clearwater after a year on the run from grooming charges: PCSO](https://www.yahoo.com/news/former-mtv-star-arrested-clearwater-174606076.html)
-- Mar 29 - [He killed a man 26 years ago in Missouri. His husband secretly worked with investigators to get a confession](https://www.yahoo.com/news/killed-man-26-years-ago-110026096.html)
 <!-- feed end -->
 
 ### Onstream
