@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [Filipino villager to be nailed to a cross for the 35th time on Good Friday to pray for world peace](https://www.yahoo.com/news/filipino-villager-nailed-cross-35th-031009601.html)
 - Mar 29 - [The Christian reaction to Trump’s Bible endorsement goes deeper than you think](https://www.yahoo.com/news/why-christians-angry-trump-god-173235981.html)
-- Mar 29 - [A mostly male board will decide whether a Nebraska lawmaker faces censure for sexual harassment](https://www.yahoo.com/news/mostly-male-board-decide-whether-020055077.html)
 - Mar 28 - [NYC woman suffers broken jaw when randomly punched while walking down street](https://www.yahoo.com/news/nyc-woman-suffers-broken-jaw-233713569.html)
+- Mar 28 - [Interstate 5 southbound shut down for emergency bridge joint repair](https://www.yahoo.com/news/interstate-5-southbound-shut-down-232536630.html)
 - Mar 28 - [Drunk driver speeding at 140 mph on Las Vegas Boulevard crashes into car, killing man: police](https://www.yahoo.com/news/drunk-driver-speeding-140-mph-224253277.html)
-- Mar 28 - [IRS Quietly Changes The Rule On How Your Children’s Inheritance Will Be Taxed](https://www.yahoo.com/lifestyle/irs-quietly-changes-rule-children-223400547.html)
 <!-- feed end -->
 
 ### Onstream
