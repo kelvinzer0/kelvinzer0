@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 29 - [He didn’t trust police but sought their help anyway. Two days later, he was dead](https://www.yahoo.com/news/didn-t-trust-police-sought-101030621.html)
+- Mar 29 - [OK, I'll be the No Labels presidential candidate. My platform is: 'Vote for Joe Biden.'](https://www.yahoo.com/news/ok-ill-no-labels-presidential-093037115.html)
 - Mar 29 - [Obama to Protester Interrupting:  ‘Can’t Just Talk and Not Listen … That’s What the Other Side Does’](https://www.yahoo.com/news/obama-protester-interrupting-t-just-053300201.html)
+- Mar 29 - [Experts Say This Eating Habit Can Be An Early Sign Of Dementia](https://www.yahoo.com/lifestyle/experts-eating-habit-early-sign-091602429.html)
 - Mar 29 - [CNN Data Reporter Puts Trump's Bad News Into Terms Even He Can Understand](https://www.yahoo.com/news/cnn-data-reporter-puts-trumps-064307573.html)
-- Mar 29 - [Lauren Boebert’s ‘Exact Opposite’ Attack On Joe Biden Has The Exact Opposite Effect](https://www.yahoo.com/news/lauren-boebert-exact-opposite-attack-064046158.html)
-- Mar 29 - [The Christian reaction to Trump’s Bible endorsement goes deeper than you think](https://www.yahoo.com/news/why-christians-angry-trump-god-173235981.html)
-- Mar 29 - [A mostly male board will decide whether a Nebraska lawmaker faces censure for sexual harassment](https://www.yahoo.com/news/mostly-male-board-decide-whether-020055077.html)
 <!-- feed end -->
 
 ### Onstream
