@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 30 - [John Bolton Dismisses Trump Dictator Talk With Brutal Observation](https://www.yahoo.com/news/john-bolton-dismisses-trump-dictator-101341762.html)
+- Mar 30 - [Walmart employee opens fire inside store, injuring 2. Now, Ga. police are looking for him](https://www.yahoo.com/news/walmart-employee-opens-fire-inside-085934098.html)
 - Mar 30 - [This US state is not covered by the NATO treaty. Some experts say that needs to change](https://www.yahoo.com/news/us-state-not-covered-nato-040404164.html)
 - Mar 30 - [Trump posts video with an image of a hog-tied Biden, drawing a rebuke from Democrat's campaign](https://www.yahoo.com/news/trump-posts-video-image-hog-015848407.html)
 - Mar 30 - [Winner of $1-billion Powerball has been revealed. Another jackpot is up for grabs](https://www.yahoo.com/news/winner-1-billion-powerball-revealed-010523631.html)
-- Mar 30 - [Family of teen injured in fight near St. Louis high school says she has begun speech therapy](https://www.yahoo.com/news/teen-family-says-she-still-225458327.html)
-- Mar 29 - [Texas woman sues prosecutors who charged her with murder after she self-managed an abortion](https://www.yahoo.com/news/texas-woman-sues-prosecutors-charged-202817185.html)
 <!-- feed end -->
 
 ### Onstream
