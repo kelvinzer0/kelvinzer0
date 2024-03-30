@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 30 - [Walmart employee shoots teenager to death, injures 9-year-old. Now, Ga. police are looking for him](https://www.yahoo.com/news/walmart-employee-opens-fire-inside-085934098.html)
+- Mar 30 - [Amanda Bynes Arrested in a Blonde Wig, Sweatpants, and Cartier Love Bracelet](https://www.yahoo.com/lifestyle/amanda-bynes-arrested-blonde-wig-172728900.html)
+- Mar 30 - [California’s Lake Shasta rising from severe-drought levels in stunning before and after images](https://sports.yahoo.com/california-lake-shasta-rising-severe-012115692.html)
 - Mar 30 - [4 Sneaky Car Dealership Scams That Will Be Illegal in 2024](https://finance.yahoo.com/news/4-sneaky-car-dealership-scams-140036803.html)
 - Mar 30 - [Shani Louk: Hamas victim's father defends award-winning photo of her body as 'symbol' of an era](https://www.yahoo.com/news/shani-louk-hamas-victims-father-133706470.html)
-- Mar 30 - [I visited a McDonald's test kitchen to try its biggest menu overhaul in a decade. The burger patties are a big improvement, but the new Big Mac is too sweet.](https://www.yahoo.com/news/visited-mcdonalds-test-kitchen-try-105301025.html)
-- Mar 30 - [What is “pink cocaine” or “tuci,” the drug Diddy allegedly had smuggled on a jet?](https://www.yahoo.com/news/pink-cocaine-tuci-drug-diddy-093005540.html)
-- Mar 30 - [Walmart employee shoots teenager to death, injures 9-year-old. Now, Ga. police are looking for him](https://www.yahoo.com/news/walmart-employee-opens-fire-inside-085934098.html)
 <!-- feed end -->
 
 ### Onstream
