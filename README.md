@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 30 - [Family of teen injured in fight near St. Louis high school says she has begun speech therapy](https://www.yahoo.com/news/teen-family-says-she-still-225458327.html)
 - Mar 29 - [Trump shares violent image of Biden tied-up in the back of a pickup truck](https://www.yahoo.com/news/trump-shares-violent-image-biden-224824107.html)
 - Mar 29 - [Trump must 'immediately desist' from targeting judge's daughter, prosecutors say](https://www.yahoo.com/news/trump-must-immediately-desist-targeting-222700317.html)
+- Mar 29 - [Cajun Navy calls off search for missing autistic teen Sebastian Rogers amid threats](https://www.yahoo.com/news/cajun-navy-calls-off-search-215557102.html)
 - Mar 29 - [Texas woman sues prosecutors who charged her with murder after she self-managed an abortion](https://www.yahoo.com/news/texas-woman-sues-prosecutors-charged-202817185.html)
-- Mar 29 - [Column: As we were warned, the villain Trump has returned. The news cycle proves it](https://www.yahoo.com/entertainment/column-were-warned-villain-trump-200316097.html)
-- Mar 29 - [Parents plead no contest to killing and torturing their 4-year-old son, Noah Cuatro](https://www.yahoo.com/news/parents-plead-no-contest-killing-194619996.html)
 <!-- feed end -->
 
 ### Onstream
