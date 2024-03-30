@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 30 - [I visited a McDonald's test kitchen to try its biggest menu overhaul in a decade. The burger patties are a big improvement, but the new Big Mac is too sweet.](https://www.yahoo.com/news/visited-mcdonalds-test-kitchen-try-105301025.html)
 - Mar 30 - [John Bolton Dismisses Trump Dictator Talk With Brutal Observation](https://www.yahoo.com/news/john-bolton-dismisses-trump-dictator-101341762.html)
-- Mar 30 - [Walmart employee opens fire inside store, injuring 2. Now, Ga. police are looking for him](https://www.yahoo.com/news/walmart-employee-opens-fire-inside-085934098.html)
+- Mar 30 - [Walmart employee shoots teenager to death, injures 9-year-old. Now, Ga. police are looking for him](https://www.yahoo.com/news/walmart-employee-opens-fire-inside-085934098.html)
 - Mar 30 - [This US state is not covered by the NATO treaty. Some experts say that needs to change](https://www.yahoo.com/news/us-state-not-covered-nato-040404164.html)
 - Mar 30 - [Lawmakers rush to stop 'catastrophic-level event' at Texas oil fields: 'We are going to have complete and utter ecological devastation'](https://www.yahoo.com/news/lawmakers-rush-stop-catastrophic-level-020000023.html)
-- Mar 30 - [Trump posts video with an image of a hog-tied Biden, drawing a rebuke from Democrat's campaign](https://www.yahoo.com/news/trump-posts-video-image-hog-015848407.html)
 <!-- feed end -->
 
 ### Onstream
