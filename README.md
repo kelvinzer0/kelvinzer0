@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 31 - [Here is the true value of having a fully paid-off home in America — especially when you're heading into retirement](https://finance.yahoo.com/news/true-value-having-fully-paid-103300711.html)
+- Mar 31 - [Was Jesus a man of color? Why this question matters more than ever](https://www.yahoo.com/news/jesus-man-color-why-matters-100026628.html)
 - Mar 31 - [King Charles shakes hands, chats with crowd at most significant public outing since cancer diagnosis](https://www.yahoo.com/news/king-charles-attend-easter-providing-091632732.html)
 - Mar 31 - [Lebanon's precarious sectarian balance tipping amid Hezbollah-Israeli war](https://www.yahoo.com/news/lebanons-precarious-sectarian-balance-tipping-091458462.html)
-- Mar 31 - [Colin Jost Trashes Trump's Holy Book In Biblical 'Weekend Update' Burn](https://www.yahoo.com/entertainment/colin-jost-trashes-trumps-holy-072719532.html)
-- Mar 31 - [17 "Time To Retire" Horror Stories From Teachers Who Had Awful Encounters With Today’s Students](https://www.yahoo.com/lifestyle/teachers-sharing-stories-one-kid-023602803.html)
+- Mar 31 - [Joe Biden hasn't targeted a judge's daughter or sold a single Bible. What a LOSER!](https://www.yahoo.com/news/joe-biden-hasnt-targeted-judges-091417088.html)
 <!-- feed end -->
 
 ### Onstream
