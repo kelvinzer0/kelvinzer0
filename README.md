@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 31 - [At least 7 children, aged 12 to 17, were wounded in a shooting in downtown Indianapolis, police say](https://www.yahoo.com/news/least-7-children-aged-12-093449668.html)
+- Mar 31 - [They came for Florida’s sun and sand. They got soaring costs and a culture war.](https://www.yahoo.com/news/came-florida-sun-sand-got-130000443.html)
 - Mar 31 - [Here is the true value of having a fully paid-off home in America — especially when you're heading into retirement](https://finance.yahoo.com/news/true-value-having-fully-paid-103300711.html)
 - Mar 31 - [Was Jesus a man of color? Why this question matters more than ever](https://www.yahoo.com/news/jesus-man-color-why-matters-100026628.html)
 - Mar 31 - [King Charles shakes hands, chats with crowd at most significant public outing since cancer diagnosis](https://www.yahoo.com/news/king-charles-attend-easter-providing-091632732.html)
-- Mar 31 - [Lebanon's precarious sectarian balance tipping amid Hezbollah-Israeli war](https://www.yahoo.com/news/lebanons-precarious-sectarian-balance-tipping-091458462.html)
-- Mar 31 - [Joe Biden hasn't targeted a judge's daughter or sold a single Bible. What a LOSER!](https://www.yahoo.com/news/joe-biden-hasnt-targeted-judges-091417088.html)
 <!-- feed end -->
 
 ### Onstream
