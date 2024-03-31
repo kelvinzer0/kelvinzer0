@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [King Charles attends Easter service, providing a glimpse of the monarch after cancer diagnosis](https://www.yahoo.com/news/king-charles-attend-easter-providing-091632732.html)
-- Mar 31 - [‘Saturday Night Live’ Cold Open Spoofs Donald Trump’s Sales Pitch For $60 Bibles: “Sounds Like A Joke … But It’s Also Very Real”](https://www.yahoo.com/entertainment/saturday-night-live-cold-open-034959557.html)
+- Mar 31 - [Here is the true value of having a fully paid-off home in America — especially when you're heading into retirement](https://finance.yahoo.com/news/true-value-having-fully-paid-103300711.html)
+- Mar 31 - [King Charles shakes hands, chats with crowd at most significant public outing since cancer diagnosis](https://www.yahoo.com/news/king-charles-attend-easter-providing-091632732.html)
+- Mar 31 - [Lebanon's precarious sectarian balance tipping amid Hezbollah-Israeli war](https://www.yahoo.com/news/lebanons-precarious-sectarian-balance-tipping-091458462.html)
+- Mar 31 - [Colin Jost Trashes Trump's Holy Book In Biblical 'Weekend Update' Burn](https://www.yahoo.com/entertainment/colin-jost-trashes-trumps-holy-072719532.html)
 - Mar 31 - [17 "Time To Retire" Horror Stories From Teachers Who Had Awful Encounters With Today’s Students](https://www.yahoo.com/lifestyle/teachers-sharing-stories-one-kid-023602803.html)
-- Mar 30 - ['I'm a Doctor Who Treats Liver Conditions—This Is the Snack I Eat Almost Every Single Day'](https://www.yahoo.com/lifestyle/im-doctor-treats-liver-conditions-232500660.html)
-- Mar 30 - [The Trump camp assails Biden for declaring March 31, Easter Sunday, as Transgender Day of Visibility](https://www.yahoo.com/news/trump-camp-assails-biden-declaring-231429283.html)
 <!-- feed end -->
 
 ### Onstream
