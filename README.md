@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 30 - [The Trump camp assails Biden for declaring March 31, Easter Sunday, as Transgender Day of Visibility](https://www.yahoo.com/news/trump-camp-assails-biden-declaring-231429283.html)
 - Mar 30 - [Police in Haiti say 2 men were hacked to death by a mob who thought they were buying ammo for gangs](https://www.yahoo.com/news/police-haiti-2-men-were-210524383.html)
-- Mar 30 - [Salvage crews to lift first piece of collapsed Baltimore bridge](https://www.yahoo.com/news/salvage-crews-lift-first-piece-202237872.html)
+- Mar 30 - [Salvage crews work to lift first piece of collapsed Baltimore bridge](https://www.yahoo.com/news/salvage-crews-lift-first-piece-202237872.html)
 - Mar 30 - [Texas federal court will not adopt policy against 'judge shopping'](https://www.yahoo.com/news/texas-federal-court-not-adopt-182825689.html)
 - Mar 30 - [Donald Trump’s Joke May Show a Similarity Between His Marriage to Melania & His Daughter Tiffany’s Marriage](https://www.yahoo.com/entertainment/donald-trump-joke-may-show-181520954.html)
-- Mar 30 - [Walmart employee shoots teenager to death, injures 9-year-old. Now, Ga. police are looking for him](https://www.yahoo.com/news/walmart-employee-opens-fire-inside-085934098.html)
 <!-- feed end -->
 
 ### Onstream
