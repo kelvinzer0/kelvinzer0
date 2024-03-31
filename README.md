@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Pope Francis calls for Gaza ceasefire in Easter Mass](https://www.yahoo.com/news/pope-francis-calls-gaza-ceasefire-154541074.html)
+- Mar 31 - [At least 7 children, aged 12 to 17, were wounded in a shooting in downtown Indianapolis, police say](https://www.yahoo.com/news/least-7-children-aged-12-093449668.html)
+- Mar 31 - [Chiefs receiver Rashee Rice suspected in connection with multi-vehicle crash in Dallas](https://sports.yahoo.com/chiefs-receiver-rashee-rice-suspected-connection-multi-vehicle-crash-dallas-160407691.html)
 - Mar 31 - [As crews work to lift first piece of Baltimore bridge debris, officials eye a temporary channel around the collapse site](https://www.yahoo.com/news/crews-lift-first-piece-baltimore-085549385.html)
 - Mar 31 - [Trump Launches Another Attack on Judge’s Daughter, This Time with Photos](https://www.yahoo.com/news/trump-launches-another-attack-judge-145208524.html)
-- Mar 31 - [At least 7 children, aged 12 to 17, were wounded in a shooting in downtown Indianapolis, police say](https://www.yahoo.com/news/least-7-children-aged-12-093449668.html)
 - Mar 31 - [They came for Florida’s sun and sand. They got soaring costs and a culture war.](https://www.yahoo.com/news/came-florida-sun-sand-got-130000443.html)
 <!-- feed end -->
 
