@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 31 - [Clashes in Jerusalem over military draft exemption](https://www.yahoo.com/news/clashes-jerusalem-over-military-draft-201228442.html)
 - Mar 31 - [Crews remove first pieces of collapsed Baltimore bridge from the water](https://www.yahoo.com/news/crews-lift-first-piece-baltimore-085549385.html)
 - Mar 31 - [Here’s what Trump and Biden said in their Easter messages](https://www.yahoo.com/news/trump-biden-said-easter-messages-182029951.html)
 - Mar 31 - [Russia seeks extradition of Ukraine security service head; Ukraine rejects demand](https://www.yahoo.com/news/russia-demands-ukraine-hand-over-164646035.html)
 - Mar 31 - [At least 7 children, aged 12 to 17, were wounded in a shooting in downtown Indianapolis, police say](https://www.yahoo.com/news/least-7-children-aged-12-093449668.html)
-- Mar 31 - [Chiefs receiver Rashee Rice suspected in connection with multi-vehicle crash in Dallas](https://sports.yahoo.com/chiefs-receiver-rashee-rice-suspected-connection-multi-vehicle-crash-dallas-160407691.html)
 <!-- feed end -->
 
 ### Onstream
