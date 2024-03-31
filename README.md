@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Mar 31 - [King Charles attends Easter service, providing a glimpse of the monarch after cancer diagnosis](https://www.yahoo.com/news/king-charles-attend-easter-providing-091632732.html)
 - Mar 31 - [‘Saturday Night Live’ Cold Open Spoofs Donald Trump’s Sales Pitch For $60 Bibles: “Sounds Like A Joke … But It’s Also Very Real”](https://www.yahoo.com/entertainment/saturday-night-live-cold-open-034959557.html)
+- Mar 31 - [17 "Time To Retire" Horror Stories From Teachers Who Had Awful Encounters With Today’s Students](https://www.yahoo.com/lifestyle/teachers-sharing-stories-one-kid-023602803.html)
 - Mar 30 - ['I'm a Doctor Who Treats Liver Conditions—This Is the Snack I Eat Almost Every Single Day'](https://www.yahoo.com/lifestyle/im-doctor-treats-liver-conditions-232500660.html)
 - Mar 30 - [The Trump camp assails Biden for declaring March 31, Easter Sunday, as Transgender Day of Visibility](https://www.yahoo.com/news/trump-camp-assails-biden-declaring-231429283.html)
-- Mar 30 - [Police in Haiti say 2 men were hacked to death by a mob who thought they were buying ammo for gangs](https://www.yahoo.com/news/police-haiti-2-men-were-210524383.html)
-- Mar 30 - [‘I find this evil’: My stepfather, who was worth $14 million, put my mother in a facility — then they both died. He did not honor their prenup. What can I do?](https://finance.yahoo.com/news/evil-stepfather-worth-14-million-104300852.html)
 <!-- feed end -->
 
 ### Onstream
