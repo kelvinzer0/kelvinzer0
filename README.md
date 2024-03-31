@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Mar 31 - [Man drove onto Miami Beach marina boardwalk — and plunged into the ocean, video shows](https://www.yahoo.com/news/man-drove-onto-miami-beach-205514984.html)
+- Mar 31 - [Traffic moving again on California's scenic Highway 1 after lane collapsed during drenching storm](https://www.yahoo.com/news/traffic-moving-again-californias-scenic-202450295.html)
 - Mar 31 - [Crews remove first pieces of collapsed Baltimore bridge from the water](https://www.yahoo.com/news/crews-lift-first-piece-baltimore-085549385.html)
 - Mar 31 - [Joe Biden has betrayed Christian America](https://www.yahoo.com/news/joe-biden-betrayed-christian-america-184550008.html)
 - Mar 31 - [Here’s what Trump and Biden said in their Easter messages](https://www.yahoo.com/news/trump-biden-said-easter-messages-182029951.html)
-- Mar 31 - [Russia seeks extradition of Ukraine security service head; Ukraine rejects demand](https://www.yahoo.com/news/russia-demands-ukraine-hand-over-164646035.html)
 <!-- feed end -->
 
 ### Onstream
