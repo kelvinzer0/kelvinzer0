@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Mar 31 - [At least 7 children, aged 12 to 17, were wounded in a shooting in downtown Indianapolis, police say](https://www.yahoo.com/news/least-7-children-aged-12-093449668.html)
 - Mar 31 - [They came for Florida’s sun and sand. They got soaring costs and a culture war.](https://www.yahoo.com/news/came-florida-sun-sand-got-130000443.html)
+- Mar 31 - [River Danube cruise ship crashed after it was 'suddenly no longer able to maneuver,' 17 passengers injured](https://www.yahoo.com/news/river-danube-cruise-ship-crashed-125314421.html)
 - Mar 31 - [Here is the true value of having a fully paid-off home in America — especially when you're heading into retirement](https://finance.yahoo.com/news/true-value-having-fully-paid-103300711.html)
 - Mar 31 - [Was Jesus a man of color? Why this question matters more than ever](https://www.yahoo.com/news/jesus-man-color-why-matters-100026628.html)
-- Mar 31 - [King Charles shakes hands, chats with crowd at most significant public outing since cancer diagnosis](https://www.yahoo.com/news/king-charles-attend-easter-providing-091632732.html)
 <!-- feed end -->
 
 ### Onstream
