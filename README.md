@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 01 - [Crews work to open temporary channel near Baltimore bridge collapse for essential vessels](https://www.yahoo.com/news/crews-lift-first-piece-baltimore-085549385.html)
 - Apr 01 - [‘I consider myself very lucky’: This man was one of the last to make it off the Baltimore bridge before its collapse](https://www.yahoo.com/news/consider-myself-very-lucky-man-074522714.html)
-- Apr 01 - [Iran alerted Russia to security threat before Moscow attack, sources say](https://www.yahoo.com/news/exclusive-iran-alerted-russia-security-090438109.html)
+- Apr 01 - [Exclusive-Iran alerted Russia to security threat before Moscow attack, sources say](https://www.yahoo.com/news/exclusive-iran-alerted-russia-security-090438109.html)
 - Apr 01 - [Alex Murdaugh faces a South Carolina judge for punishment a final time](https://www.yahoo.com/news/alex-murdaugh-faces-south-carolina-040824581.html)
 - Apr 01 - [Exclusive: Hackers stole Russian prisoner database to avenge death of Navalny](https://www.yahoo.com/news/exclusive-hackers-stole-russian-prisoner-040025952.html)
-- Apr 01 - [MAGA Pastor Says ‘200 Bibles’ Set Ablaze Outside His Church on Easter Morning](https://www.yahoo.com/news/maga-pastor-says-200-bibles-003735774.html)
 <!-- feed end -->
 
 ### Onstream
