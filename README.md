@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Rashee Rice lawyer: Chiefs WR 'cooperating with local authorities' regarding multi-vehicle crash in Dallas](https://sports.yahoo.com/rashee-rice-lawyer-chiefs-wr-cooperating-local-authorities-multi-vehicle-crash-dallas-160407239.html)
 - Apr 01 - [Trump Media stock tanks as new filing reveals heavy losses, 'greater risks' on Trump's involvement](https://finance.yahoo.com/news/trump-media-stock-tanks-as-new-filing-reveals-heavy-losses-greater-risks-on-trumps-involvement-164313322.html)
 - Apr 01 - [Wash. Teacher Avoids Jail Time After Sexually Abusing Teen in Her Home While Husband Was on Hunting Trip](https://www.yahoo.com/entertainment/wash-teacher-avoids-jail-time-201616708.html)
 - Apr 01 - [Barron Trump’s Super-Rare Outing With Dad Donald May Show Why We Never See Them Together](https://www.yahoo.com/lifestyle/barron-trump-super-rare-outing-201600697.html)
 - Apr 01 - [Trump legal news brief: Hope Hicks to testify in hush money trial, source tells MSNBC](https://www.yahoo.com/news/trump-legal-news-brief-hope-hicks-to-testify-in-hush-money-trial-source-tells-msnbc-193907893.html)
+- Apr 01 - [Fact Check: King Charles III Was Allegedly Diagnosed with Pancreatic Cancer, Given 2 Years To Live. We Looked for Verification](https://www.yahoo.com/news/fact-check-king-charles-iii-193000274.html)
 <!-- feed end -->
 
 ### Onstream
