@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Mars Helicopter Ingenuity Spots Perseverance Rover During Flight 51](https://www.yahoo.com/news/mars-helicopter-ingenuity-spots-perseverance-210000401.html)
-- Apr 01 - [Russian security agency says suspects detained in the Caucasus are linked to Moscow attack](https://www.yahoo.com/news/russian-security-agency-says-suspects-133031838.html)
 - Apr 01 - [‘I consider myself very lucky’: This man was one of the last to make it off the Baltimore bridge before its collapse](https://www.yahoo.com/news/consider-myself-very-lucky-man-074522714.html)
-- Apr 01 - [Exclusive: Hackers stole Russian prisoner database to avenge death of Navalny](https://www.yahoo.com/news/exclusive-hackers-stole-russian-prisoner-040025952.html)
 - Apr 01 - [“She’s stacking the deck”: Ex-prosecutor says Jack Smith set to appeal Judge Cannon’s looming order](https://www.yahoo.com/news/she-stacking-deck-ex-prosecutor-120455720.html)
+- Apr 01 - [“Threatening the president is a crime”: Expert says Trump Truth Social post may violate bail terms](https://www.yahoo.com/news/threatening-president-crime-expert-says-114925819.html)
+- Apr 01 - [First in the state? Hopkinton allows students initiated in Sikh faith to carry kirpans](https://www.yahoo.com/news/first-state-hopkinton-allows-students-113013380.html)
+- Apr 01 - [American sniper in Ukraine says he couldn't care less about expensive weapons like tanks. 'Give me artillery' and ammo, he says.](https://www.yahoo.com/news/american-sniper-ukraine-says-couldnt-113001509.html)
 <!-- feed end -->
 
 ### Onstream
