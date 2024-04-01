@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 01 - [Police on Horseback Arrest Alleged Shoplifter](https://www.yahoo.com/news/police-horseback-arrest-alleged-shoplifter-171603198.html)
+- Apr 01 - [WATCH: Dashcam Video Shows Moment Car Registered to Chiefs Star Rashee Rice Causes Six-Car Accident](https://www.yahoo.com/entertainment/watch-dashcam-video-shows-moment-165841959.html)
 - Apr 01 - [Trump Media stock tanks as new filing reveals heavy losses, 'greater risks' on Trump's involvement](https://finance.yahoo.com/news/trump-media-stock-tanks-as-new-filing-reveals-heavy-losses-greater-risks-on-trumps-involvement-164313322.html)
-- Apr 01 - [How the 'Magnificent 7' became the 'Mag 4'](https://finance.yahoo.com/video/magnificent-7-became-mag-4-162828133.html)
-- Apr 01 - [Desperate Donald Trump’s New Attempt to Stop Justice Is Jaw-Dropping](https://www.yahoo.com/news/desperate-donald-trump-attempt-stop-160139732.html)
+- Apr 01 - [Orlando city commissioner charged, accused of using 96-year-old's money on personal expenses](https://www.yahoo.com/news/orlando-city-commissioner-charged-accused-160830776.html)
 - Apr 01 - [Landscaper hits suspected robber with weedwhacker in northwest Houston](https://www.yahoo.com/news/landscaper-hits-suspected-robber-weedwhacker-154100408.html)
-- Apr 01 - [What to know about the 'oat-zempic' weight loss trend growing on social media](https://www.yahoo.com/news/know-oat-zempic-weight-loss-152704416.html)
 <!-- feed end -->
 
 ### Onstream
