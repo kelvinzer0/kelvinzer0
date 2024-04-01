@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Melania Trump's Disappearance From the Public Eye Might Be Related to This White House Detail](https://www.yahoo.com/lifestyle/melania-trumps-disappearance-public-eye-152224796.html)
-- Apr 01 - [Florida airboat flips sending 9 passengers into gator-infested waters, operator arrested](https://www.yahoo.com/news/florida-airboat-flips-sending-9-152049086.html)
-- Apr 01 - [Migrants in Iowa wonder whether to leave over a bill that could see some arrested and deported](https://www.yahoo.com/news/migrants-iowa-wonder-whether-leave-151249782.html)
-- Apr 01 - [Despite racial messages, some Black and Latino voters are backing Trump. Here’s why](https://www.yahoo.com/news/why-voters-color-backing-trump-120344108.html)
-- Apr 01 - [Trump's media company raises going-concern doubts; shares tumble](https://www.yahoo.com/tech/trumps-media-company-falls-raising-143421881.html)
+- Apr 01 - [Trump Media stock tanks as new filing reveals heavy losses, 'greater risks' on Trump's involvement](https://finance.yahoo.com/news/trump-media-stock-tanks-as-new-filing-reveals-heavy-losses-greater-risks-on-trumps-involvement-164313322.html)
+- Apr 01 - [How the 'Magnificent 7' became the 'Mag 4'](https://finance.yahoo.com/video/magnificent-7-became-mag-4-162828133.html)
+- Apr 01 - [Desperate Donald Trump’s New Attempt to Stop Justice Is Jaw-Dropping](https://www.yahoo.com/news/desperate-donald-trump-attempt-stop-160139732.html)
+- Apr 01 - [Landscaper hits suspected robber with weedwhacker in northwest Houston](https://www.yahoo.com/news/landscaper-hits-suspected-robber-weedwhacker-154100408.html)
+- Apr 01 - [What to know about the 'oat-zempic' weight loss trend growing on social media](https://www.yahoo.com/news/know-oat-zempic-weight-loss-152704416.html)
 <!-- feed end -->
 
 ### Onstream
