@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Mar 31 - [Man drove onto Miami Beach marina boardwalk — and plunged into the ocean, video shows](https://www.yahoo.com/news/man-drove-onto-miami-beach-205514984.html)
-- Mar 31 - [Traffic moving again on California's scenic Highway 1 after lane collapsed during drenching storm](https://www.yahoo.com/news/traffic-moving-again-californias-scenic-202450295.html)
+- Apr 01 - [MAGA Pastor Says ‘200 Bibles’ Set Ablaze Outside His Church on Easter Morning](https://www.yahoo.com/news/maga-pastor-says-200-bibles-003735774.html)
 - Mar 31 - [Crews remove first pieces of collapsed Baltimore bridge from the water](https://www.yahoo.com/news/crews-lift-first-piece-baltimore-085549385.html)
-- Mar 31 - [Joe Biden has betrayed Christian America](https://www.yahoo.com/news/joe-biden-betrayed-christian-america-184550008.html)
-- Mar 31 - [Here’s what Trump and Biden said in their Easter messages](https://www.yahoo.com/news/trump-biden-said-easter-messages-182029951.html)
+- Mar 31 - [AT&T says a data breach leaked millions of customers' information online. Were you affected?](https://finance.yahoo.com/news/t-says-data-breach-leaked-213234412.html)
+- Mar 31 - [Man drove onto Miami Beach marina boardwalk — and plunged into the ocean, video shows](https://www.yahoo.com/news/man-drove-onto-miami-beach-205514984.html)
+- Mar 31 - [Crews escorting cars around damaged section of California's Highway 1 after lane collapsed in storm](https://www.yahoo.com/news/traffic-moving-again-californias-scenic-202450295.html)
 <!-- feed end -->
 
 ### Onstream
