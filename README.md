@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Trump’s First Criminal Trial Just Got a New Witness—and She’s a Banger](https://www.yahoo.com/news/trump-first-criminal-trial-just-183823821.html)
-- Apr 01 - [The Biden stock market is swamping Trump’s](https://finance.yahoo.com/news/the-biden-stock-market-is-swamping-trumps-182858118.html)
-- Apr 01 - [38 Things People Sold On Facebook Marketplace That Show Just How Weird That World Can Be](https://www.yahoo.com/lifestyle/38-things-people-sold-facebook-172246806.html)
-- Apr 01 - [WATCH: Dashcam Video Shows Moment Car Registered to Chiefs Star Rashee Rice Causes Six-Car Accident](https://www.yahoo.com/entertainment/watch-dashcam-video-shows-moment-165841959.html)
-- Apr 01 - [Trump Media stock tanks as new filing reveals heavy losses, 'greater risks' on Trump's involvement](https://finance.yahoo.com/news/trump-media-stock-tanks-as-new-filing-reveals-heavy-losses-greater-risks-on-trumps-involvement-164313322.html)
+- Apr 01 - [Trump legal news brief: Hope Hicks to testify in hush money trial, source tells MSNBC](https://www.yahoo.com/news/trump-legal-news-brief-hope-hicks-to-testify-in-hush-money-trial-source-tells-msnbc-193907893.html)
+- Apr 01 - [Fact Check: King Charles III Was Allegedly Diagnosed with Pancreatic Cancer, Given 2 Years To Live. We Looked for Verification](https://www.yahoo.com/news/fact-check-king-charles-iii-193000274.html)
+- Apr 01 - [Flight attendant complains about passengers switching seats on plane: ‘This isn’t Southwest’](https://www.yahoo.com/news/flight-attendant-complains-passengers-switching-191041964.html)
+- Apr 01 - [Did Trump go to church on Easter Sunday?](https://www.yahoo.com/news/did-trump-church-easter-sunday-185019158.html)
+- Apr 01 - [28 Funny Tweets That Will Have You Laughin' Harder Than Any April Fools Joke](https://www.yahoo.com/lifestyle/28-funny-tweets-laughin-harder-185009436.html)
 <!-- feed end -->
 
 ### Onstream
