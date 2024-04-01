@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 01 - [“She’s stacking the deck”: Ex-prosecutor says Jack Smith set to appeal Judge Cannon’s looming order](https://www.yahoo.com/news/she-stacking-deck-ex-prosecutor-120455720.html)
+- Apr 01 - [“Threatening the president is a crime”: Expert says Trump Truth Social post may violate bail terms](https://www.yahoo.com/news/threatening-president-crime-expert-says-114925819.html)
+- Apr 01 - [American sniper in Ukraine says he couldn't care less about expensive weapons like tanks. 'Give me artillery' and ammo, he says.](https://www.yahoo.com/news/american-sniper-ukraine-says-couldnt-113001509.html)
+- Apr 01 - [Erdogan vows to make amends after humbling election loss in Turkey](https://www.yahoo.com/news/erdogan-vows-amends-humbling-election-112528693.html)
 - Apr 01 - [Russian officials end efforts to reach 13 workers in a collapsed gold mine and declare them dead](https://www.yahoo.com/news/russian-officials-end-efforts-reach-105956909.html)
-- Apr 01 - ["Stand where he tells you to stand": Why the GOP is doubling down on misogyny in 2024](https://www.yahoo.com/news/stand-where-tells-stand-why-100006933.html)
-- Apr 01 - [Crews work to open temporary channel near Baltimore bridge collapse for essential vessels](https://www.yahoo.com/news/crews-lift-first-piece-baltimore-085549385.html)
-- Apr 01 - [‘I consider myself very lucky’: This man was one of the last to make it off the Baltimore bridge before its collapse](https://www.yahoo.com/news/consider-myself-very-lucky-man-074522714.html)
-- Apr 01 - ['I want to be buried with them': Dad of 6 kids lost in house fire criticizes memorial fund](https://www.yahoo.com/news/want-buried-them-dad-6-090911286.html)
 <!-- feed end -->
 
 ### Onstream
