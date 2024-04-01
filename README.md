@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 01 - [Russia is behind Havana Syndrome, attacks on U.S., former lead Pentagon investigator says](https://www.yahoo.com/news/russia-behind-havana-syndrome-attacks-015859443.html)
 - Apr 01 - [MAGA Pastor Says ‘200 Bibles’ Set Ablaze Outside His Church on Easter Morning](https://www.yahoo.com/news/maga-pastor-says-200-bibles-003735774.html)
+- Mar 31 - [Gunman kills 1, injures 4 at Nashville coffee shop on Easter Sunday](https://www.yahoo.com/news/gunman-kills-1-injures-4-235658873.html)
 - Mar 31 - [Crews remove first pieces of collapsed Baltimore bridge from the water](https://www.yahoo.com/news/crews-lift-first-piece-baltimore-085549385.html)
 - Mar 31 - [AT&T says a data breach leaked millions of customers' information online. Were you affected?](https://finance.yahoo.com/news/t-says-data-breach-leaked-213234412.html)
-- Mar 31 - [Man drove onto Miami Beach marina boardwalk — and plunged into the ocean, video shows](https://www.yahoo.com/news/man-drove-onto-miami-beach-205514984.html)
-- Mar 31 - [Crews escorting cars around damaged section of California's Highway 1 after lane collapsed in storm](https://www.yahoo.com/news/traffic-moving-again-californias-scenic-202450295.html)
 <!-- feed end -->
 
 ### Onstream
