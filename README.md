@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 01 - [Alex Murdaugh faces a South Carolina judge for punishment a final time](https://www.yahoo.com/news/alex-murdaugh-faces-south-carolina-040824581.html)
-- Apr 01 - [Trump’s immigration rhetoric makes inroads with some Democrats. That could be a concern for Biden](https://www.yahoo.com/news/trump-immigration-rhetoric-makes-inroads-040406409.html)
 - Apr 01 - [Exclusive: Hackers stole Russian prisoner database to avenge death of Navalny](https://www.yahoo.com/news/exclusive-hackers-stole-russian-prisoner-040025952.html)
-- Apr 01 - [Former Taiwan president Ma leaves for China, likely to meet Xi](https://www.yahoo.com/news/former-taiwan-president-ma-leaves-034107237.html)
-- Apr 01 - [Johnson sounds out key Republicans with speakership and Ukraine aid on line](https://www.yahoo.com/news/johnson-sounds-key-republicans-speakership-140026067.html)
+- Apr 01 - [Russia is behind Havana Syndrome, attacks on U.S., former lead Pentagon investigator says](https://www.yahoo.com/news/russia-behind-havana-syndrome-attacks-015859443.html)
+- Apr 01 - [MAGA Pastor Says ‘200 Bibles’ Set Ablaze Outside His Church on Easter Morning](https://www.yahoo.com/news/maga-pastor-says-200-bibles-003735774.html)
+- Mar 31 - [Gunman kills 1, injures 4 at Nashville coffee shop on Easter Sunday](https://www.yahoo.com/news/gunman-kills-1-injures-4-235658873.html)
 <!-- feed end -->
 
 ### Onstream
