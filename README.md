@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 01 - [Russian officials end efforts to reach 13 workers in a collapsed gold mine and declare them dead](https://www.yahoo.com/news/russian-officials-end-efforts-reach-105956909.html)
+- Apr 01 - ["Stand where he tells you to stand": Why the GOP is doubling down on misogyny in 2024](https://www.yahoo.com/news/stand-where-tells-stand-why-100006933.html)
 - Apr 01 - [Crews work to open temporary channel near Baltimore bridge collapse for essential vessels](https://www.yahoo.com/news/crews-lift-first-piece-baltimore-085549385.html)
 - Apr 01 - [‘I consider myself very lucky’: This man was one of the last to make it off the Baltimore bridge before its collapse](https://www.yahoo.com/news/consider-myself-very-lucky-man-074522714.html)
-- Apr 01 - [Exclusive-Iran alerted Russia to security threat before Moscow attack, sources say](https://www.yahoo.com/news/exclusive-iran-alerted-russia-security-090438109.html)
-- Apr 01 - [Alex Murdaugh faces a South Carolina judge for punishment a final time](https://www.yahoo.com/news/alex-murdaugh-faces-south-carolina-040824581.html)
-- Apr 01 - [Exclusive: Hackers stole Russian prisoner database to avenge death of Navalny](https://www.yahoo.com/news/exclusive-hackers-stole-russian-prisoner-040025952.html)
+- Apr 01 - ['I want to be buried with them': Dad of 6 kids lost in house fire criticizes memorial fund](https://www.yahoo.com/news/want-buried-them-dad-6-090911286.html)
 <!-- feed end -->
 
 ### Onstream
