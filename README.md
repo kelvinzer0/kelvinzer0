@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Police on Horseback Arrest Alleged Shoplifter](https://www.yahoo.com/news/police-horseback-arrest-alleged-shoplifter-171603198.html)
+- Apr 01 - [Trump’s First Criminal Trial Just Got a New Witness—and She’s a Banger](https://www.yahoo.com/news/trump-first-criminal-trial-just-183823821.html)
+- Apr 01 - [The Biden stock market is swamping Trump’s](https://finance.yahoo.com/news/the-biden-stock-market-is-swamping-trumps-182858118.html)
+- Apr 01 - [38 Things People Sold On Facebook Marketplace That Show Just How Weird That World Can Be](https://www.yahoo.com/lifestyle/38-things-people-sold-facebook-172246806.html)
 - Apr 01 - [WATCH: Dashcam Video Shows Moment Car Registered to Chiefs Star Rashee Rice Causes Six-Car Accident](https://www.yahoo.com/entertainment/watch-dashcam-video-shows-moment-165841959.html)
 - Apr 01 - [Trump Media stock tanks as new filing reveals heavy losses, 'greater risks' on Trump's involvement](https://finance.yahoo.com/news/trump-media-stock-tanks-as-new-filing-reveals-heavy-losses-greater-risks-on-trumps-involvement-164313322.html)
-- Apr 01 - [Orlando city commissioner charged, accused of using 96-year-old's money on personal expenses](https://www.yahoo.com/news/orlando-city-commissioner-charged-accused-160830776.html)
-- Apr 01 - [Landscaper hits suspected robber with weedwhacker in northwest Houston](https://www.yahoo.com/news/landscaper-hits-suspected-robber-weedwhacker-154100408.html)
 <!-- feed end -->
 
 ### Onstream
