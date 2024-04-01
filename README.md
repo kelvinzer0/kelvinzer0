@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Russia is behind Havana Syndrome, attacks on U.S., former lead Pentagon investigator says](https://www.yahoo.com/news/russia-behind-havana-syndrome-attacks-015859443.html)
+- Apr 01 - [Chinese state media stoked allegation Taiwan's president would flee war](https://www.yahoo.com/news/chinese-state-media-stoked-allegation-022631230.html)
 - Apr 01 - [MAGA Pastor Says ‘200 Bibles’ Set Ablaze Outside His Church on Easter Morning](https://www.yahoo.com/news/maga-pastor-says-200-bibles-003735774.html)
 - Mar 31 - [Gunman kills 1, injures 4 at Nashville coffee shop on Easter Sunday](https://www.yahoo.com/news/gunman-kills-1-injures-4-235658873.html)
 - Mar 31 - [Crews remove first pieces of collapsed Baltimore bridge from the water](https://www.yahoo.com/news/crews-lift-first-piece-baltimore-085549385.html)
