@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [‘I consider myself very lucky’: This man was one of the last to make it off the Baltimore bridge before its collapse](https://www.yahoo.com/news/consider-myself-very-lucky-man-074522714.html)
-- Apr 01 - [“She’s stacking the deck”: Ex-prosecutor says Jack Smith set to appeal Judge Cannon’s looming order](https://www.yahoo.com/news/she-stacking-deck-ex-prosecutor-120455720.html)
-- Apr 01 - [“Threatening the president is a crime”: Expert says Trump Truth Social post may violate bail terms](https://www.yahoo.com/news/threatening-president-crime-expert-says-114925819.html)
-- Apr 01 - [First in the state? Hopkinton allows students initiated in Sikh faith to carry kirpans](https://www.yahoo.com/news/first-state-hopkinton-allows-students-113013380.html)
-- Apr 01 - [American sniper in Ukraine says he couldn't care less about expensive weapons like tanks. 'Give me artillery' and ammo, he says.](https://www.yahoo.com/news/american-sniper-ukraine-says-couldnt-113001509.html)
+- Apr 01 - [Melania Trump's Disappearance From the Public Eye Might Be Related to This White House Detail](https://www.yahoo.com/lifestyle/melania-trumps-disappearance-public-eye-152224796.html)
+- Apr 01 - [Florida airboat flips sending 9 passengers into gator-infested waters, operator arrested](https://www.yahoo.com/news/florida-airboat-flips-sending-9-152049086.html)
+- Apr 01 - [Migrants in Iowa wonder whether to leave over a bill that could see some arrested and deported](https://www.yahoo.com/news/migrants-iowa-wonder-whether-leave-151249782.html)
+- Apr 01 - [Despite racial messages, some Black and Latino voters are backing Trump. Here’s why](https://www.yahoo.com/news/why-voters-color-backing-trump-120344108.html)
+- Apr 01 - [Trump's media company raises going-concern doubts; shares tumble](https://www.yahoo.com/tech/trumps-media-company-falls-raising-143421881.html)
 <!-- feed end -->
 
 ### Onstream
