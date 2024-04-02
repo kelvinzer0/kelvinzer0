@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Israel Says Strike That Killed Gaza Aid Workers Was Unintentional](https://finance.yahoo.com/video/aid-group-suspends-gaza-operations-110000686.html)
 - Apr 02 - [Trump Sues Truth Social Company Co-Founders to Zero Them Out](https://finance.yahoo.com/news/trump-sues-co-founders-truth-190328312.html)
-- Apr 02 - [Judge sides with conservative group in its push to access, publish voter rolls online](https://www.yahoo.com/news/judge-sides-conservative-group-push-193521936.html)
+- Apr 02 - [Clothes of French toddler Emile Soleil found near remains in French Alps](https://www.yahoo.com/news/clothes-french-toddler-emile-soleil-190946695.html)
+- Apr 02 - [Tribes blast South Dakota governor's claim that leaders are benefitting from drug cartels](https://www.yahoo.com/news/tribes-blast-south-dakota-governors-185718364.html)
 - Apr 02 - [Rockford stabbing suspect hurls insults at judge, victims' families at court appearance](https://www.yahoo.com/news/rockford-stabbing-suspect-hurls-insults-185421655.html)
-- Apr 02 - [‘Large’ predator — with hundreds of teeth — pulled from the depths. It’s a new species](https://www.yahoo.com/news/large-predator-hundreds-teeth-pulled-181301708.html)
+- Apr 02 - [Donald Trump's Reported Reaction to Ivanka Trump's Political Exit Shows How Much He Depended on Her](https://www.yahoo.com/lifestyle/donald-trumps-reported-reaction-ivanka-180220601.html)
 <!-- feed end -->
 
 ### Onstream
