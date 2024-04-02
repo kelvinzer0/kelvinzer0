@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [Mexican government blames contractor for loose clamps that caused Maya Train derailment](https://www.yahoo.com/news/mexican-government-blames-contractor-loose-212104295.html)
 - Apr 02 - [Trump ally files complaint about judge who criticized Trump attacks on judiciary](https://www.yahoo.com/news/trump-ally-files-complaint-judge-205602059.html)
+- Apr 02 - [California dems want to block bill that would recriminalize loitering as prostitution spirals in big cities](https://www.yahoo.com/news/california-dems-want-block-bill-202416146.html)
+- Apr 02 - [Driver sentenced to prison after drunken head-on crash with trooper during Skyway 10k](https://www.yahoo.com/news/driver-sentenced-prison-drunken-head-201453691.html)
 - Apr 02 - [Trump Sues Truth Social Company Co-Founders to Zero Them Out](https://finance.yahoo.com/news/trump-sues-co-founders-truth-190328312.html)
-- Apr 02 - [Scratch tickets sold at Massachusetts deli, gas station win $4 million prizes](https://www.yahoo.com/news/scratch-tickets-sold-massachusetts-deli-192530456.html)
-- Apr 02 - [Clothes of French toddler Emile Soleil found near remains in French Alps](https://www.yahoo.com/news/clothes-french-toddler-emile-soleil-190946695.html)
-- Apr 02 - [Tribes blast South Dakota governor's claim that leaders are benefitting from drug cartels](https://www.yahoo.com/news/tribes-blast-south-dakota-governors-185718364.html)
 <!-- feed end -->
 
 ### Onstream
