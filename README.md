@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [Russia's helicopters are landing on its fake painted fighter jets, 'undermining' its attempt to fool Ukraine: intel](https://www.yahoo.com/news/russias-helicopters-landing-fake-painted-150718091.html)
 - Apr 02 - [Police release name of man accused of ramming vehicle into front gate of FBI Atlanta office](https://www.yahoo.com/news/police-release-name-man-accused-145317349.html)
-- Apr 02 - [Hillary Clinton Bluntly Sums Up How Trump Compares To Biden As A Candidate](https://www.yahoo.com/entertainment/hillary-clinton-bluntly-sums-trump-140844878.html)
+- Apr 02 - [Trump Completely Melts Down Over New Gag Order in Hush Money Trial](https://www.yahoo.com/news/trump-big-mouth-just-cost-143706073.html)
 - Apr 02 - [First vessel uses alternate channel to bypass wreckage at the Baltimore bridge collapse site](https://www.yahoo.com/news/first-vessel-uses-alternate-channel-131420802.html)
-- Apr 02 - [The amount of money Americans think they need to retire comfortably hits record high: study](https://finance.yahoo.com/news/amount-money-americans-think-retire-130154903.html)
-- Apr 02 - [Trump fires back after judge expands gag order: ‘This judge should be recused’](https://www.yahoo.com/news/trump-fires-back-judge-expands-123313114.html)
+- Apr 02 - [Section of I-79 reopens after crash, truck rollover](https://www.yahoo.com/news/section-79-closed-due-crash-130525903.html)
 <!-- feed end -->
 
 ### Onstream
