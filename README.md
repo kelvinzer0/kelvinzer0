@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Former Dolphins cornerback Vontae Davis found dead in home gym, witness says in 911 call](https://www.yahoo.com/news/former-dolphins-cornerback-vontae-davis-171445893.html)
-- Apr 02 - [Jimmy Kimmel Calls USA ‘A Filthy and Disgusting Country’ After Trip to Japan: ‘The Whole Country Is Disneyland and We’re Living in Six Flags’ | Video](https://www.yahoo.com/entertainment/jimmy-kimmel-calls-usa-filthy-163123493.html)
-- Apr 02 - [Fact check: Trump falsely claims, again, that he had to post bond to appeal civil fraud decision](https://www.yahoo.com/news/fact-check-trump-falsely-claims-162246001.html)
-- Apr 02 - [New Video Shows Unarmed, Kidnapped Girl Being Gunned Down by Police](https://www.yahoo.com/news/video-shows-unarmed-kidnapped-girl-153239136.html)
-- Apr 02 - [Eight passengers stranded on African island after Norwegian cruise ship left without them](https://www.yahoo.com/news/eight-passengers-stranded-african-island-153209876.html)
+- Apr 02 - [Israel Says Strike That Killed Gaza Aid Workers Was Unintentional](https://finance.yahoo.com/video/aid-group-suspends-gaza-operations-110000686.html)
+- Apr 02 - [Trump Sues Truth Social Company Co-Founders to Zero Them Out](https://finance.yahoo.com/news/trump-sues-co-founders-truth-190328312.html)
+- Apr 02 - [Judge sides with conservative group in its push to access, publish voter rolls online](https://www.yahoo.com/news/judge-sides-conservative-group-push-193521936.html)
+- Apr 02 - [Rockford stabbing suspect hurls insults at judge, victims' families at court appearance](https://www.yahoo.com/news/rockford-stabbing-suspect-hurls-insults-185421655.html)
+- Apr 02 - [‘Large’ predator — with hundreds of teeth — pulled from the depths. It’s a new species](https://www.yahoo.com/news/large-predator-hundreds-teeth-pulled-181301708.html)
 <!-- feed end -->
 
 ### Onstream
