@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [Former Dolphins cornerback Vontae Davis found dead in home gym, witness says in 911 call](https://www.yahoo.com/news/former-dolphins-cornerback-vontae-davis-171445893.html)
+- Apr 02 - [Fact check: Trump falsely claims, again, that he had to post bond to appeal civil fraud decision](https://www.yahoo.com/news/fact-check-trump-falsely-claims-162246001.html)
 - Apr 02 - [New Video Shows Unarmed, Kidnapped Girl Being Gunned Down by Police](https://www.yahoo.com/news/video-shows-unarmed-kidnapped-girl-153239136.html)
+- Apr 02 - [Eight passengers stranded on African island after Norwegian cruise ship left without them](https://www.yahoo.com/news/eight-passengers-stranded-african-island-153209876.html)
 - Apr 02 - [Russia's helicopters are screwing up its attempt to fool Ukraine with decoys by landing on its fake painted fighter jets: intel](https://www.yahoo.com/news/russias-helicopters-landing-fake-painted-150718091.html)
-- Apr 02 - [Police release name of man accused of ramming vehicle into front gate of FBI Atlanta office](https://www.yahoo.com/news/police-release-name-man-accused-145317349.html)
-- Apr 02 - [Trump Completely Melts Down Over New Gag Order in Hush Money Trial](https://www.yahoo.com/news/trump-big-mouth-just-cost-143706073.html)
-- Apr 02 - [First vessel uses alternate channel to bypass wreckage at the Baltimore bridge collapse site](https://www.yahoo.com/news/first-vessel-uses-alternate-channel-131420802.html)
 <!-- feed end -->
 
 ### Onstream
