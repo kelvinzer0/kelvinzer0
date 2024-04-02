@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Russia's helicopters are landing on its fake painted fighter jets, 'undermining' its attempt to fool Ukraine: intel](https://www.yahoo.com/news/russias-helicopters-landing-fake-painted-150718091.html)
+- Apr 02 - [New Video Shows Unarmed, Kidnapped Girl Being Gunned Down by Police](https://www.yahoo.com/news/video-shows-unarmed-kidnapped-girl-153239136.html)
+- Apr 02 - [Russia's helicopters are screwing up its attempt to fool Ukraine with decoys by landing on its fake painted fighter jets: intel](https://www.yahoo.com/news/russias-helicopters-landing-fake-painted-150718091.html)
 - Apr 02 - [Police release name of man accused of ramming vehicle into front gate of FBI Atlanta office](https://www.yahoo.com/news/police-release-name-man-accused-145317349.html)
 - Apr 02 - [Trump Completely Melts Down Over New Gag Order in Hush Money Trial](https://www.yahoo.com/news/trump-big-mouth-just-cost-143706073.html)
 - Apr 02 - [First vessel uses alternate channel to bypass wreckage at the Baltimore bridge collapse site](https://www.yahoo.com/news/first-vessel-uses-alternate-channel-131420802.html)
-- Apr 02 - [Section of I-79 reopens after crash, truck rollover](https://www.yahoo.com/news/section-79-closed-due-crash-130525903.html)
 <!-- feed end -->
 
 ### Onstream
