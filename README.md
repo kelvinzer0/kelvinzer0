@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [Actor Michael Stuhlbarg hit in back of the neck with rock while in Central Park, chased his alleged attacker](https://www.yahoo.com/entertainment/actor-michael-stuhlbarg-hit-back-210419323.html)
+- Apr 02 - [Canton police chief cited for hitting pedestrian in crosswalk with town-owned SUV, officials say](https://www.yahoo.com/news/canton-police-chief-cited-hitting-211227460.html)
 - Apr 02 - [Fact Check: The Truth About Rumors That Trump Paid Slain NYPD Officer Jonathan Diller's Mortgage](https://www.yahoo.com/news/fact-check-truth-rumors-trump-004000707.html)
-- Apr 01 - [Chiefs player Rashee Rice is cooperating with police after sports car crash in Dallas, attorney says](https://www.yahoo.com/news/chiefs-player-rashee-rice-cooperating-230019199.html)
+- Apr 01 - [Secret Service alerted by Rocklin police after large amounts of fake money recovered](https://www.yahoo.com/news/secret-alerted-rocklin-police-large-232648405.html)
 - Apr 01 - [‘Beyond devastated.’ Actress Angie Harmon says Instacart driver killed her dog in NC](https://www.yahoo.com/news/beyond-devastated-actress-angie-harmon-224610639.html)
-- Apr 01 - [Au pair, employer visited shooting range before Reston murder, witness says](https://www.yahoo.com/news/au-pair-employer-visited-shooting-223659840.html)
-- Apr 01 - [Oregon governor signs a bill recriminalizing drug possession into law](https://www.yahoo.com/news/oregon-governor-signs-bill-recriminalizing-221811650.html)
 <!-- feed end -->
 
 ### Onstream
