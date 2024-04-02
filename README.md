@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Three children wounded in Finland school shooting](https://www.yahoo.com/news/three-children-wounded-finland-school-093633205.html)
+- Apr 02 - [Ukraine drone attacks Russia's Tatarstan region](https://www.yahoo.com/news/ukraine-drone-attacks-russias-tatarstan-103028721.html)
+- Apr 02 - [Analysis-Trump-and-dump: Speculators bet on Truth Social 'meme' stock](https://finance.yahoo.com/news/analysis-trump-dump-speculators-bet-100426791.html)
+- Apr 02 - [People Who've Had Cancer Are Sharing The First Symptom They Noticed That Something Was Wrong](https://www.yahoo.com/lifestyle/people-whove-had-cancer-sharing-091602130.html)
 - Apr 02 - [Florida Supreme Court puts abortion on the ballot – and hands Trump a serious problem](https://www.yahoo.com/news/florida-supreme-court-puts-abortion-080846601.html)
 - Apr 02 - [Attack by an alleged sex worker on San Francisco homeless woman caught on camera](https://www.yahoo.com/news/attack-alleged-sex-worker-san-044450912.html)
-- Apr 02 - [After welcoming guests for 67 years, the Tropicana Las Vegas casino's final day has arrived](https://www.yahoo.com/news/welcoming-guests-67-years-tropicana-041420373.html)
-- Apr 02 - [I Can't Stop Laughing At The 62 Hilarious Things These People Actually Posted Online This Month](https://www.yahoo.com/lifestyle/62-hysterical-things-people-posted-031603671.html)
 <!-- feed end -->
 
 ### Onstream
