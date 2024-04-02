@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [Florida Supreme Court puts abortion on the ballot – and hands Trump a serious problem](https://www.yahoo.com/news/florida-supreme-court-puts-abortion-080846601.html)
+- Apr 02 - [Major Russian refinery hit by Ukrainian drone 1,300 km from the front lines](https://www.yahoo.com/news/several-people-injured-drone-attack-052252479.html)
 - Apr 02 - [After welcoming guests for 67 years, the Tropicana Las Vegas casino's final day has arrived](https://www.yahoo.com/news/welcoming-guests-67-years-tropicana-041420373.html)
 - Apr 02 - [I Can't Stop Laughing At The 62 Hilarious Things These People Actually Posted Online This Month](https://www.yahoo.com/lifestyle/62-hysterical-things-people-posted-031603671.html)
 - Apr 02 - [Actor Michael Stuhlbarg hit in back of the neck with rock while in Central Park, chased his alleged attacker](https://www.yahoo.com/entertainment/actor-michael-stuhlbarg-hit-back-210419323.html)
-- Apr 02 - [Fact Check: The Truth About Rumors That Trump Paid Slain NYPD Officer Jonathan Diller's Mortgage](https://www.yahoo.com/news/fact-check-truth-rumors-trump-004000707.html)
-- Apr 01 - [Fact Check: Video Purports to Show Trump Only Partially Mouthing Words to the Lord's Prayer. We Tracked Down Its Origin](https://www.yahoo.com/news/fact-check-video-purports-show-235200608.html)
 <!-- feed end -->
 
 ### Onstream
