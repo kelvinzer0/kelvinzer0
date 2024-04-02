@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [Police release name of man accused of ramming vehicle into front gate of FBI Atlanta office](https://www.yahoo.com/news/police-release-name-man-accused-145317349.html)
+- Apr 02 - [Hillary Clinton Bluntly Sums Up How Trump Compares To Biden As A Candidate](https://www.yahoo.com/entertainment/hillary-clinton-bluntly-sums-trump-140844878.html)
 - Apr 02 - [First vessel uses alternate channel to bypass wreckage at the Baltimore bridge collapse site](https://www.yahoo.com/news/first-vessel-uses-alternate-channel-131420802.html)
-- Apr 02 - [First Vessel Passes Through Temporary Alternate Channel Near Baltimore's Key Bridge](https://www.yahoo.com/news/first-vessel-passes-temporary-alternate-123203976.html)
-- Apr 02 - [A man who attended the Charlottesville Unite the Right rallies is now fighting to keep his city council seat after his past was revealed](https://www.yahoo.com/news/man-attended-charlottesville-unite-rallies-114850652.html)
-- Apr 02 - [Dogs Cause $3,000 in Car Damage After Trying to Catch Cat](https://www.yahoo.com/news/dogs-cause-3-000-car-122551309.html)
-- Apr 02 - [Panic as Drone Strikes a Record 800 Miles Inside Russia](https://www.yahoo.com/news/panic-drone-strikes-record-800-121039309.html)
+- Apr 02 - [The amount of money Americans think they need to retire comfortably hits record high: study](https://finance.yahoo.com/news/amount-money-americans-think-retire-130154903.html)
+- Apr 02 - [Trump fires back after judge expands gag order: ‘This judge should be recused’](https://www.yahoo.com/news/trump-fires-back-judge-expands-123313114.html)
 <!-- feed end -->
 
 ### Onstream
