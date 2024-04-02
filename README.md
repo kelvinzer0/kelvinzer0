@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [First vessel uses alternate channel to bypass wreckage at the Baltimore bridge collapse site](https://www.yahoo.com/news/first-vessel-uses-alternate-channel-131420802.html)
+- Apr 02 - [First Vessel Passes Through Temporary Alternate Channel Near Baltimore's Key Bridge](https://www.yahoo.com/news/first-vessel-passes-temporary-alternate-123203976.html)
 - Apr 02 - [A man who attended the Charlottesville Unite the Right rallies is now fighting to keep his city council seat after his past was revealed](https://www.yahoo.com/news/man-attended-charlottesville-unite-rallies-114850652.html)
 - Apr 02 - [Dogs Cause $3,000 in Car Damage After Trying to Catch Cat](https://www.yahoo.com/news/dogs-cause-3-000-car-122551309.html)
 - Apr 02 - [Panic as Drone Strikes a Record 800 Miles Inside Russia](https://www.yahoo.com/news/panic-drone-strikes-record-800-121039309.html)
-- Apr 02 - [Newspaper Editor Tells Readers He Must Say Truth About Trump, Even If It Offends](https://www.yahoo.com/news/newspaper-editor-tells-readers-must-110746786.html)
-- Apr 02 - [Here's how much Americans have saved up in their retirement accounts by age — are you ahead or way behind?](https://finance.yahoo.com/news/heres-much-americans-saved-retirement-104600457.html)
 <!-- feed end -->
 
 ### Onstream
