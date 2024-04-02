@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [A man who attended the Charlottesville Unite the Right rallies is now fighting to keep his city council seat after his past was revealed](https://www.yahoo.com/news/man-attended-charlottesville-unite-rallies-114850652.html)
+- Apr 02 - [Dogs Cause $3,000 in Car Damage After Trying to Catch Cat](https://www.yahoo.com/news/dogs-cause-3-000-car-122551309.html)
+- Apr 02 - [Panic as Drone Strikes a Record 800 Miles Inside Russia](https://www.yahoo.com/news/panic-drone-strikes-record-800-121039309.html)
+- Apr 02 - [Newspaper Editor Tells Readers He Must Say Truth About Trump, Even If It Offends](https://www.yahoo.com/news/newspaper-editor-tells-readers-must-110746786.html)
 - Apr 02 - [Here's how much Americans have saved up in their retirement accounts by age — are you ahead or way behind?](https://finance.yahoo.com/news/heres-much-americans-saved-retirement-104600457.html)
-- Apr 02 - [Analysis-Trump-and-dump: Speculators bet on Truth Social 'meme' stock](https://finance.yahoo.com/news/analysis-trump-dump-speculators-bet-100426791.html)
-- Apr 02 - [How ISIS-K killed Americans, beat the Taliban, and massacred 140 people in Moscow](https://www.yahoo.com/news/isis-k-killed-americans-beat-091904795.html)
-- Apr 02 - [People Who've Had Cancer Are Sharing The First Symptom They Noticed That Something Was Wrong](https://www.yahoo.com/lifestyle/people-whove-had-cancer-sharing-091602130.html)
-- Apr 02 - [Ukraine aims drones at an oil refinery and a drone factory in its deepest strike yet inside Russia](https://www.yahoo.com/news/ukraine-uses-drones-appears-deepest-090525675.html)
 <!-- feed end -->
 
 ### Onstream
