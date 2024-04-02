@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 01 - [Trump Media stock tanks as new filing reveals heavy losses, 'greater risks' on Trump's involvement](https://finance.yahoo.com/news/trump-media-stock-tanks-as-new-filing-reveals-heavy-losses-greater-risks-on-trumps-involvement-164313322.html)
-- Apr 01 - [Kansas City Chiefs’ Rashee Rice releases statement on Dallas racing crash via attorney](https://www.yahoo.com/news/kansas-city-chiefs-rashee-rice-214325236.html)
-- Apr 01 - [Wash. Teacher Avoids Jail Time After Sexually Abusing Teen in Her Home While Husband Was on Hunting Trip](https://www.yahoo.com/entertainment/wash-teacher-avoids-jail-time-201616708.html)
-- Apr 01 - [Barron Trump’s Super-Rare Outing With Dad Donald May Show Why We Never See Them Together](https://www.yahoo.com/lifestyle/barron-trump-super-rare-outing-201600697.html)
-- Apr 01 - [Trump legal news brief: Hope Hicks to testify in hush money trial, source tells MSNBC](https://www.yahoo.com/news/trump-legal-news-brief-hope-hicks-to-testify-in-hush-money-trial-source-tells-msnbc-193907893.html)
+- Apr 02 - [Trump secures $175 million bond in New York civil fraud case](https://www.yahoo.com/news/trump-secures-175-million-bond-001401529.html)
+- Apr 01 - [Chiefs player Rashee Rice is cooperating with police after sports car crash in Dallas, attorney says](https://www.yahoo.com/news/chiefs-player-rashee-rice-cooperating-230019199.html)
+- Apr 01 - [‘Beyond devastated.’ Actress Angie Harmon says Instacart driver killed her dog in NC](https://www.yahoo.com/news/beyond-devastated-actress-angie-harmon-224610639.html)
+- Apr 01 - [Au pair, employer visited shooting range before Reston murder, witness says](https://www.yahoo.com/news/au-pair-employer-visited-shooting-223659840.html)
+- Apr 01 - [Oregon governor signs a bill recriminalizing drug possession into law](https://www.yahoo.com/news/oregon-governor-signs-bill-recriminalizing-221811650.html)
 <!-- feed end -->
 
 ### Onstream
