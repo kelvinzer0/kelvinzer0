@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [After welcoming guests for 67 years, the Tropicana Las Vegas casino's final day has arrived](https://www.yahoo.com/news/welcoming-guests-67-years-tropicana-041420373.html)
+- Apr 02 - [62 Hysterical Things People Posted On The Internet That I've Been Laughing At All Month](https://www.yahoo.com/lifestyle/62-hysterical-things-people-posted-031603671.html)
 - Apr 02 - [Actor Michael Stuhlbarg hit in back of the neck with rock while in Central Park, chased his alleged attacker](https://www.yahoo.com/entertainment/actor-michael-stuhlbarg-hit-back-210419323.html)
 - Apr 02 - [Canton police chief cited for hitting pedestrian in crosswalk with town-owned SUV, officials say](https://www.yahoo.com/news/canton-police-chief-cited-hitting-211227460.html)
 - Apr 02 - [Fact Check: The Truth About Rumors That Trump Paid Slain NYPD Officer Jonathan Diller's Mortgage](https://www.yahoo.com/news/fact-check-truth-rumors-trump-004000707.html)
-- Apr 01 - [Family searching for teen boy, 15, who disappeared in Southern California](https://www.yahoo.com/news/family-searching-teen-boy-15-233255952.html)
-- Apr 01 - [Secret Service alerted by Rocklin police after large amounts of fake money recovered](https://www.yahoo.com/news/secret-alerted-rocklin-police-large-232648405.html)
 <!-- feed end -->
 
 ### Onstream
