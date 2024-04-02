@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Trump secures $175 million bond in New York civil fraud case](https://www.yahoo.com/news/trump-secures-175-million-bond-001401529.html)
+- Apr 02 - [Fact Check: The Truth About Rumors That Trump Paid Slain NYPD Officer Jonathan Diller's Mortgage](https://www.yahoo.com/news/fact-check-truth-rumors-trump-004000707.html)
 - Apr 01 - [Chiefs player Rashee Rice is cooperating with police after sports car crash in Dallas, attorney says](https://www.yahoo.com/news/chiefs-player-rashee-rice-cooperating-230019199.html)
 - Apr 01 - [‘Beyond devastated.’ Actress Angie Harmon says Instacart driver killed her dog in NC](https://www.yahoo.com/news/beyond-devastated-actress-angie-harmon-224610639.html)
 - Apr 01 - [Au pair, employer visited shooting range before Reston murder, witness says](https://www.yahoo.com/news/au-pair-employer-visited-shooting-223659840.html)
