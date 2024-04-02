@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 02 - [Trump ally files complaint about judge who criticized Trump attacks on judiciary](https://www.yahoo.com/news/trump-ally-files-complaint-judge-205602059.html)
 - Apr 02 - [Trump Sues Truth Social Company Co-Founders to Zero Them Out](https://finance.yahoo.com/news/trump-sues-co-founders-truth-190328312.html)
+- Apr 02 - [Scratch tickets sold at Massachusetts deli, gas station win $4 million prizes](https://www.yahoo.com/news/scratch-tickets-sold-massachusetts-deli-192530456.html)
 - Apr 02 - [Clothes of French toddler Emile Soleil found near remains in French Alps](https://www.yahoo.com/news/clothes-french-toddler-emile-soleil-190946695.html)
 - Apr 02 - [Tribes blast South Dakota governor's claim that leaders are benefitting from drug cartels](https://www.yahoo.com/news/tribes-blast-south-dakota-governors-185718364.html)
-- Apr 02 - [Rockford stabbing suspect hurls insults at judge, victims' families at court appearance](https://www.yahoo.com/news/rockford-stabbing-suspect-hurls-insults-185421655.html)
-- Apr 02 - [Donald Trump's Reported Reaction to Ivanka Trump's Political Exit Shows How Much He Depended on Her](https://www.yahoo.com/lifestyle/donald-trumps-reported-reaction-ivanka-180220601.html)
 <!-- feed end -->
 
 ### Onstream
