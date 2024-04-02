@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 02 - [Former Dolphins cornerback Vontae Davis found dead in home gym, witness says in 911 call](https://www.yahoo.com/news/former-dolphins-cornerback-vontae-davis-171445893.html)
+- Apr 02 - [Jimmy Kimmel Calls USA ‘A Filthy and Disgusting Country’ After Trip to Japan: ‘The Whole Country Is Disneyland and We’re Living in Six Flags’ | Video](https://www.yahoo.com/entertainment/jimmy-kimmel-calls-usa-filthy-163123493.html)
 - Apr 02 - [Fact check: Trump falsely claims, again, that he had to post bond to appeal civil fraud decision](https://www.yahoo.com/news/fact-check-trump-falsely-claims-162246001.html)
 - Apr 02 - [New Video Shows Unarmed, Kidnapped Girl Being Gunned Down by Police](https://www.yahoo.com/news/video-shows-unarmed-kidnapped-girl-153239136.html)
 - Apr 02 - [Eight passengers stranded on African island after Norwegian cruise ship left without them](https://www.yahoo.com/news/eight-passengers-stranded-african-island-153209876.html)
-- Apr 02 - [Russia's helicopters are screwing up its attempt to fool Ukraine with decoys by landing on its fake painted fighter jets: intel](https://www.yahoo.com/news/russias-helicopters-landing-fake-painted-150718091.html)
 <!-- feed end -->
 
 ### Onstream
