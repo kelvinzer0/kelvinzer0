@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [In rare call, Russian defense minister warns French counterpart against sending troops to Ukraine](https://www.yahoo.com/news/rare-call-russian-defense-minister-222020992.html)
 - Apr 03 - [Donald Trump loses presidential immunity delay effort for upcoming New York criminal trial](https://www.yahoo.com/news/donald-trump-loses-presidential-immunity-211747141.html)
 - Apr 03 - [Jeff Bezos Buys $90 Million Florida Mansion To Live In While His Other Newly Purchased $147 Million Homes Are 'Demolished' For A Mega Mansion](https://finance.yahoo.com/news/jeff-bezos-buys-90-million-194549310.html)
 - Apr 03 - [Rashee Rice apologizes for 'my part' in crash while injured couple reportedly lawyer up](https://sports.yahoo.com/rashee-rice-apologizes-for-my-part-in-crash-while-injured-couple-reportedly-lawyer-up-192951810.html)
 - Apr 03 - [Did the eclipse path change? New map reveals Hoosiers could see less of the solar eclipse](https://www.yahoo.com/news/did-eclipse-path-change-map-182349174.html)
-- Apr 03 - [Dozens of migrants unexpectedly flown to Martha’s Vineyard can sue the transport company, federal judge rules](https://www.yahoo.com/news/dozens-migrants-unexpectedly-flown-martha-180158163.html)
 <!-- feed end -->
 
 ### Onstream
