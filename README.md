@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Kim Jong Un Faces Annihilation in Most Korea War Scenarios (1)](https://www.yahoo.com/news/kim-jong-un-faces-annihilation-220022595.html)
-- Apr 03 - [Trump calls for Biden to debate 'any time, any place'](https://www.yahoo.com/news/trump-calls-biden-debate-time-003126123.html)
-- Apr 03 - [Japan issues evacuation advisory for Okinawa areas after earthquake, tsunami](https://www.yahoo.com/news/japan-issues-evacuation-advisory-okinawa-001045610.html)
+- Apr 03 - [Couple injured in Rashee Rice crash reportedly lawyers up: 'They're angry'](https://sports.yahoo.com/couple-injured-in-rashee-rice-crash-reportedly-lawyers-up-theyre-angry-005925871.html)
+- Apr 03 - [Trump sues Truth Social co-founders, says they're not entitled to stock shares](https://www.yahoo.com/news/trump-sues-truth-social-co-003924976.html)
+- Apr 03 - [Kim Jong Un Faces Annihilation in Most Korea War Scenarios](https://www.yahoo.com/news/kim-jong-un-faces-annihilation-220022595.html)
 - Apr 02 - [Houston police chief won't say if thousands of dropped cases reveals bigger problems within agency](https://www.yahoo.com/news/houston-police-chief-wont-thousands-234321290.html)
 - Apr 02 - [Former high school wrestler subdues man who allegedly caused disturbance in a Subway restaurant](https://www.yahoo.com/news/former-high-school-wrestler-subdues-232945662.html)
 <!-- feed end -->
