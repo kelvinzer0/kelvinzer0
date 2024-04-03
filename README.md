@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [Testing found this recalled medicine can have a deadly bacterial contamination](https://www.yahoo.com/news/testing-found-recalled-medicine-deadly-102024437.html)
 - Apr 03 - [I spent 24 hours on Trump's Truth Social so you don't have to. No wonder it's tanking](https://www.yahoo.com/entertainment/spent-24-hours-trumps-truth-100051473.html)
 - Apr 03 - [Hawaii property owner left stunned after $500K home was mistakenly built on her lot. Now she’s being sued](https://finance.yahoo.com/news/hawaii-property-owner-left-stunned-095700264.html)
 - Apr 03 - [Liberals in la-la land: High wages, 32-hour workweeks sound great, but there's a steep price](https://www.yahoo.com/news/liberals-la-la-land-high-092216306.html)
-- Apr 03 - [Special counsel blasts judge’s jury instruction request in Trump documents case](https://www.yahoo.com/news/special-counsel-blasts-judge-jury-051419288.html)
 - Apr 03 - [Rep. Lauren Boebert underwent emergency surgery to remove blood clot in her leg](https://www.yahoo.com/news/rep-lauren-boebert-underwent-emergency-040312842.html)
 <!-- feed end -->
 
