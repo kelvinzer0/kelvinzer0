@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [Special counsel blasts judge’s jury instruction request in Trump documents case](https://www.yahoo.com/news/special-counsel-blasts-judge-jury-051419288.html)
 - Apr 03 - [Rep. Lauren Boebert underwent emergency surgery to remove blood clot in her leg](https://www.yahoo.com/news/rep-lauren-boebert-underwent-emergency-040312842.html)
 - Apr 03 - [How Trump’s greatest policy triumph could derail his bid to win back the White House](https://www.yahoo.com/news/trump-greatest-policy-triumph-could-040026940.html)
 - Apr 03 - [Couple injured in Rashee Rice crash reportedly lawyers up: 'They're angry'](https://sports.yahoo.com/couple-injured-in-rashee-rice-crash-reportedly-lawyers-up-theyre-angry-005925871.html)
 - Apr 03 - [Trump sues Truth Social co-founders, says they're not entitled to stock shares](https://www.yahoo.com/news/trump-sues-truth-social-co-003924976.html)
-- Apr 03 - [Kim Jong Un Faces Annihilation in Most Korea War Scenarios](https://www.yahoo.com/news/kim-jong-un-faces-annihilation-220022595.html)
 <!-- feed end -->
 
 ### Onstream
