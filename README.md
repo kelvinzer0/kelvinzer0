@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Voters in Enid, Oklahoma, oust city council member with ties to white nationalism](https://www.yahoo.com/news/voters-enid-oklahoma-oust-city-015017148.html)
+- Apr 03 - [South Koreans bid emotional farewell to beloved panda leaving for China](https://www.yahoo.com/news/tears-crowd-south-koreans-bids-032639554.html)
+- Apr 03 - [Lauren Boebert Recovering After Emergency Surgery for Blood Clot](https://www.yahoo.com/news/lauren-boebert-recovering-emergency-surgery-022913198.html)
 - Apr 03 - [Couple injured in Rashee Rice crash reportedly lawyers up: 'They're angry'](https://sports.yahoo.com/couple-injured-in-rashee-rice-crash-reportedly-lawyers-up-theyre-angry-005925871.html)
 - Apr 03 - [Trump sues Truth Social co-founders, says they're not entitled to stock shares](https://www.yahoo.com/news/trump-sues-truth-social-co-003924976.html)
 - Apr 03 - [Kim Jong Un Faces Annihilation in Most Korea War Scenarios](https://www.yahoo.com/news/kim-jong-un-faces-annihilation-220022595.html)
-- Apr 02 - [Former high school wrestler subdues man who allegedly caused disturbance in a Subway restaurant](https://www.yahoo.com/news/former-high-school-wrestler-subdues-232945662.html)
 <!-- feed end -->
 
 ### Onstream
