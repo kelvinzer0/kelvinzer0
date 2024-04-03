@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [Palestinian Fatah group says Iran trying to spread chaos in West Bank](https://www.yahoo.com/news/palestinian-fatah-group-says-iran-151827944.html)
+- Apr 03 - [Customer points gun on Burger King employee after getting a discounted breakfast, police say](https://www.yahoo.com/news/customer-points-gun-burger-king-150740206.html)
 - Apr 03 - [Investor in company that took Trump Media public pleads guilty to insider trading](https://www.yahoo.com/tech/investor-company-took-trump-media-144657224.html)
-- Apr 03 - [F-16 fighter jets ‘no longer relevant’, says Ukrainian military official](https://www.yahoo.com/news/f-16-fighter-jets-no-131449451.html)
-- Apr 03 - [Tanker Crash Accidentally Releases 70,000 Salmon Into Wrong Oregon River](https://www.yahoo.com/news/tanker-crash-accidentally-releases-70-123900315.html)
-- Apr 03 - [79-Year-Old Says She Was Scammed by Phony Tree Trimmers](https://www.yahoo.com/news/79-old-says-she-scammed-121901604.html)
-- Apr 03 - [“Things just got very real”: Legal experts say Jack Smith appeal threat “puts Cannon on notice”](https://www.yahoo.com/news/things-just-got-very-real-120954251.html)
+- Apr 03 - [Calif. Home Surrounded by Mountains of Trash Sparks Complaints and Concerns from Neighbors](https://www.yahoo.com/entertainment/calif-home-surrounded-mountains-trash-143754558.html)
+- Apr 03 - [Hamas chief says movement sticking to ceasefire conditions including Israeli pullout](https://www.yahoo.com/news/hamas-chief-says-movement-sticking-142746579.html)
 <!-- feed end -->
 
 ### Onstream
