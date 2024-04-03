@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [Eight passengers stranded on African island after Norwegian cruise ship left without them](https://www.yahoo.com/news/eight-passengers-stranded-african-island-153209876.html)
+- Apr 03 - [It’s not just clouds, there’s a new weather threat for eclipse viewers to worry about](https://www.yahoo.com/news/not-just-clouds-weather-threat-150322396.html)
 - Apr 03 - [New sonar images show wreckage from Baltimore bridge collapse at bottom of river](https://www.yahoo.com/news/sonar-images-show-wreckage-baltimore-161125342.html)
-- Apr 03 - [Man who used megaphone to lead attack on police during Capitol riot gets over 7 years in prison](https://www.yahoo.com/news/man-used-megaphone-lead-attack-155158114.html)
 - Apr 03 - [Palestinian Fatah group says Iran trying to spread chaos in West Bank](https://www.yahoo.com/news/palestinian-fatah-group-says-iran-151827944.html)
 - Apr 03 - [Customer points gun on Burger King employee after getting a discounted breakfast, police say](https://www.yahoo.com/news/customer-points-gun-burger-king-150740206.html)
-- Apr 03 - [It’s not just clouds, there’s a new weather threat for eclipse viewers to worry about](https://www.yahoo.com/news/not-just-clouds-weather-threat-150322396.html)
 <!-- feed end -->
 
 ### Onstream
