@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [Special counsel slams idea that Trump could claim classified docs as personal records](https://www.yahoo.com/news/special-counsel-files-response-judges-033000705.html)
-- Apr 03 - [Lauren Boebert Recovering After Emergency Surgery for Blood Clot](https://www.yahoo.com/news/lauren-boebert-recovering-emergency-surgery-022913198.html)
+- Apr 03 - [Rep. Lauren Boebert underwent emergency surgery to remove blood clot in her leg](https://www.yahoo.com/news/rep-lauren-boebert-underwent-emergency-040312842.html)
+- Apr 03 - [How Trump’s greatest policy triumph could derail his bid to win back the White House](https://www.yahoo.com/news/trump-greatest-policy-triumph-could-040026940.html)
 - Apr 03 - [Couple injured in Rashee Rice crash reportedly lawyers up: 'They're angry'](https://sports.yahoo.com/couple-injured-in-rashee-rice-crash-reportedly-lawyers-up-theyre-angry-005925871.html)
 - Apr 03 - [Trump sues Truth Social co-founders, says they're not entitled to stock shares](https://www.yahoo.com/news/trump-sues-truth-social-co-003924976.html)
 - Apr 03 - [Kim Jong Un Faces Annihilation in Most Korea War Scenarios](https://www.yahoo.com/news/kim-jong-un-faces-annihilation-220022595.html)
