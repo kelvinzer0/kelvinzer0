@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [I spent 24 hours on Trump's Truth Social so you don't have to. No wonder it's tanking](https://www.yahoo.com/entertainment/spent-24-hours-trumps-truth-100051473.html)
+- Apr 03 - [Hawaii property owner left stunned after $500K home was mistakenly built on her lot. Now she’s being sued](https://finance.yahoo.com/news/hawaii-property-owner-left-stunned-095700264.html)
+- Apr 03 - [Liberals in la-la land: High wages, 32-hour workweeks sound great, but there's a steep price](https://www.yahoo.com/news/liberals-la-la-land-high-092216306.html)
 - Apr 03 - [Special counsel blasts judge’s jury instruction request in Trump documents case](https://www.yahoo.com/news/special-counsel-blasts-judge-jury-051419288.html)
 - Apr 03 - [Rep. Lauren Boebert underwent emergency surgery to remove blood clot in her leg](https://www.yahoo.com/news/rep-lauren-boebert-underwent-emergency-040312842.html)
-- Apr 03 - [How Trump’s greatest policy triumph could derail his bid to win back the White House](https://www.yahoo.com/news/trump-greatest-policy-triumph-could-040026940.html)
-- Apr 03 - [Couple injured in Rashee Rice crash reportedly lawyers up: 'They're angry'](https://sports.yahoo.com/couple-injured-in-rashee-rice-crash-reportedly-lawyers-up-theyre-angry-005925871.html)
-- Apr 03 - [Trump sues Truth Social co-founders, says they're not entitled to stock shares](https://www.yahoo.com/news/trump-sues-truth-social-co-003924976.html)
 <!-- feed end -->
 
 ### Onstream
