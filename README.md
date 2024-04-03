@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [Rashee Rice apologizes for 'my part' in crash while injured couple reportedly lawyer up](https://sports.yahoo.com/rashee-rice-apologizes-for-my-part-in-crash-while-injured-couple-reportedly-lawyer-up-192951810.html)
+- Apr 03 - [Did the eclipse path change? New map reveals Hoosiers could see less of the solar eclipse](https://www.yahoo.com/news/did-eclipse-path-change-map-182349174.html)
 - Apr 03 - [Dozens of migrants unexpectedly flown to Martha’s Vineyard can sue the transport company, federal judge rules](https://www.yahoo.com/news/dozens-migrants-unexpectedly-flown-martha-180158163.html)
 - Apr 03 - [Expecting a lawsuit, North Dakota lawmakers estimate $1 million to defend congressional age limit](https://www.yahoo.com/news/expecting-lawsuit-north-dakota-lawmakers-175240652.html)
 - Apr 03 - [Eight passengers stranded on African island after Norwegian cruise ship left without them](https://www.yahoo.com/news/eight-passengers-stranded-african-island-153209876.html)
-- Apr 03 - [I’m a Bank Teller: 3 Times You Should Never Ask For $100 Bills at the Bank](https://finance.yahoo.com/news/m-bank-teller-3-times-170019553.html)
-- Apr 03 - [It’s not just clouds, there’s a new weather threat for eclipse viewers to worry about](https://www.yahoo.com/news/not-just-clouds-weather-threat-150322396.html)
 <!-- feed end -->
 
 ### Onstream
