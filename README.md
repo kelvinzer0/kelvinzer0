@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 03 - [South Koreans bid emotional farewell to beloved panda leaving for China](https://www.yahoo.com/news/tears-crowd-south-koreans-bids-032639554.html)
+- Apr 03 - [Special counsel slams idea that Trump could claim classified docs as personal records](https://www.yahoo.com/news/special-counsel-files-response-judges-033000705.html)
 - Apr 03 - [Lauren Boebert Recovering After Emergency Surgery for Blood Clot](https://www.yahoo.com/news/lauren-boebert-recovering-emergency-surgery-022913198.html)
 - Apr 03 - [Couple injured in Rashee Rice crash reportedly lawyers up: 'They're angry'](https://sports.yahoo.com/couple-injured-in-rashee-rice-crash-reportedly-lawyers-up-theyre-angry-005925871.html)
 - Apr 03 - [Trump sues Truth Social co-founders, says they're not entitled to stock shares](https://www.yahoo.com/news/trump-sues-truth-social-co-003924976.html)
