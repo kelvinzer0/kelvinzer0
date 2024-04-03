@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 03 - [Investor in company that took Trump Media public pleads guilty to insider trading](https://www.yahoo.com/tech/investor-company-took-trump-media-144657224.html)
 - Apr 03 - [F-16 fighter jets ‘no longer relevant’, says Ukrainian military official](https://www.yahoo.com/news/f-16-fighter-jets-no-131449451.html)
 - Apr 03 - [Tanker Crash Accidentally Releases 70,000 Salmon Into Wrong Oregon River](https://www.yahoo.com/news/tanker-crash-accidentally-releases-70-123900315.html)
-- Apr 03 - [Testing found this recalled medicine can have a deadly bacterial contamination](https://www.yahoo.com/news/testing-found-recalled-medicine-deadly-102024437.html)
-- Apr 03 - [I spent 24 hours on Trump's Truth Social so you don't have to. No wonder it's tanking](https://www.yahoo.com/entertainment/spent-24-hours-trumps-truth-100051473.html)
-- Apr 03 - [Hawaii property owner left stunned after $500K home was mistakenly built on her lot. Now she’s being sued](https://finance.yahoo.com/news/hawaii-property-owner-left-stunned-095700264.html)
+- Apr 03 - [79-Year-Old Says She Was Scammed by Phony Tree Trimmers](https://www.yahoo.com/news/79-old-says-she-scammed-121901604.html)
+- Apr 03 - [“Things just got very real”: Legal experts say Jack Smith appeal threat “puts Cannon on notice”](https://www.yahoo.com/news/things-just-got-very-real-120954251.html)
 <!-- feed end -->
 
 ### Onstream
