@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 02 - [Mexican government blames contractor for loose clamps that caused Maya Train derailment](https://www.yahoo.com/news/mexican-government-blames-contractor-loose-212104295.html)
-- Apr 02 - [Trump ally files complaint about judge who criticized Trump attacks on judiciary](https://www.yahoo.com/news/trump-ally-files-complaint-judge-205602059.html)
-- Apr 02 - [California dems want to block bill that would recriminalize loitering as prostitution spirals in big cities](https://www.yahoo.com/news/california-dems-want-block-bill-202416146.html)
-- Apr 02 - [Driver sentenced to prison after drunken head-on crash with trooper during Skyway 10k](https://www.yahoo.com/news/driver-sentenced-prison-drunken-head-201453691.html)
-- Apr 02 - [Trump Sues Truth Social Company Co-Founders to Zero Them Out](https://finance.yahoo.com/news/trump-sues-co-founders-truth-190328312.html)
+- Apr 03 - [Kim Jong Un Faces Annihilation in Most Korea War Scenarios (1)](https://www.yahoo.com/news/kim-jong-un-faces-annihilation-220022595.html)
+- Apr 03 - [Trump calls for Biden to debate 'any time, any place'](https://www.yahoo.com/news/trump-calls-biden-debate-time-003126123.html)
+- Apr 03 - [Japan issues evacuation advisory for Okinawa areas after earthquake, tsunami](https://www.yahoo.com/news/japan-issues-evacuation-advisory-okinawa-001045610.html)
+- Apr 02 - [Houston police chief won't say if thousands of dropped cases reveals bigger problems within agency](https://www.yahoo.com/news/houston-police-chief-wont-thousands-234321290.html)
+- Apr 02 - [Former high school wrestler subdues man who allegedly caused disturbance in a Subway restaurant](https://www.yahoo.com/news/former-high-school-wrestler-subdues-232945662.html)
 <!-- feed end -->
 
 ### Onstream
