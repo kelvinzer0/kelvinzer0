@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [The latest eclipse forecast is throwing a curveball at eclipse watchers](https://www.yahoo.com/news/not-just-clouds-weather-threat-150322396.html)
+- Apr 04 - [Major New Hampshire highway shut down after truck crash damages overhead sign](https://www.yahoo.com/news/major-hampshire-highway-shut-down-132711017.html)
+- Apr 04 - [Biden moves to protect civil service as Trump plans to install loyalists](https://www.yahoo.com/news/biden-moves-protect-civil-trump-154855518.html)
 - Apr 04 - [Police say use of racial slur clearly audible as they investigate racist incidents toward Utah team](https://www.yahoo.com/news/police-racial-slur-clearly-audible-144249352.html)
-- Apr 04 - [Millions go missing from money storage facility in LA area on Easter](https://www.yahoo.com/news/millions-missing-money-storage-facility-142200750.html)
-- Apr 04 - [Andrew Siciliano, face of 'Red Zone Channel,' and others out at NFL Network, per report](https://sports.yahoo.com/andrew-siciliano-face-of-red-zone-channel-and-others-out-at-nfl-network-per-report-135215044.html)
-- Apr 04 - [Russia can't be target for Islamic fundamentalists, Putin says](https://www.yahoo.com/news/russia-cant-target-islamic-fundamentalists-115535693.html)
-- Apr 04 - [It’s not just clouds, there’s a new weather threat for eclipse viewers to worry about](https://www.yahoo.com/news/not-just-clouds-weather-threat-150322396.html)
+- Apr 04 - [Danish frigate suffered weapon system failure in Red Sea combat, captain says](https://www.yahoo.com/news/danish-frigate-suffered-weapon-system-143606542.html)
 <!-- feed end -->
 
 ### Onstream
