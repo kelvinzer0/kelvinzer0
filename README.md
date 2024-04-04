@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Andrew Siciliano, face of 'NFL Red Zone,' and others out at NFL Network, per report](https://sports.yahoo.com/andrew-siciliano-face-of-nfl-red-zone-and-others-out-at-nfl-network-per-report-135215102.html)
+- Apr 04 - [It’s not just clouds, there’s a new weather threat for eclipse viewers to worry about](https://www.yahoo.com/news/not-just-clouds-weather-threat-150322396.html)
 - Apr 04 - [Russia's Lavrov says Chinese peace plan on Ukraine is most reasonable so far](https://www.yahoo.com/news/russias-lavrov-says-chinese-peace-115046400.html)
 - Apr 04 - [Karl Rove Says If Biden Campaign Is Smart, It Should 'Go Hard' At 1 Trump 'Mistake'](https://www.yahoo.com/news/karl-rove-says-biden-campaign-111216636.html)
-- Apr 04 - [How the US employment boom is leaving factory workers behind](https://finance.yahoo.com/news/us-employment-boom-leaves-factory-101040510.html)
-- Apr 04 - [Evicted, arrested and being sued by the boss: When will MAGA learn loyalty to Trump ends in sorrow?](https://finance.yahoo.com/news/evicted-arrested-being-sued-boss-100005281.html)
-- Apr 04 - [Taiwan condemns 'shameless' China's thanks for global sympathy on quake](https://www.yahoo.com/news/taiwan-condemns-shameless-china-accepting-094711886.html)
+- Apr 04 - [Tree stumps, 100-foot power poles: These Joco neighbors lament their view and future](https://www.yahoo.com/news/tree-stumps-100-foot-power-103000434.html)
 <!-- feed end -->
 
 ### Onstream
