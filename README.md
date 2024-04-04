@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Evicted, arrested and being sued by the boss: When will MAGA learn loyalty to Trump ends in sorrow?](https://finance.yahoo.com/news/evicted-arrested-being-sued-boss-100005281.html)
+- Apr 04 - [Billionaire fights to dock his boat on water behind his house. His 164-foot boat, that is.](https://www.yahoo.com/news/billionaire-fights-dock-boat-water-090840830.html)
 - Apr 04 - [Trump says he'll jail his opponents. Members of the House Jan. 6 committee are preparing](https://www.yahoo.com/news/trump-says-hell-jail-opponents-090006783.html)
+- Apr 04 - [Russia says backup power line to Zaporizhzhia nuclear plant has gone down](https://www.yahoo.com/news/russia-says-backup-power-line-084437623.html)
 - Apr 04 - [Exclusive-U.S. sanctions hamper Russian efforts to repair refineries, sources say](https://www.yahoo.com/news/exclusive-u-sanctions-hamper-russian-075022948.html)
-- Apr 04 - [California schools forced to compete with fast food industry for workers after minimum wage hike](https://www.yahoo.com/news/california-schools-forced-compete-fast-051030418.html)
-- Apr 04 - [Two winning $1.6 million Powerball tickets sold in Southern California](https://www.yahoo.com/news/two-winning-1-6-million-044419710.html)
-- Apr 04 - [Japanese people could all be called Sato by 2531, study warns. But they’d need to get married first](https://www.yahoo.com/news/japanese-people-could-called-sato-041816518.html)
 <!-- feed end -->
 
 ### Onstream
