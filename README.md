@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [In one of L.A.'s largest cash heists, burglars steal as much as $30 million. Mystery surrounds case](https://www.yahoo.com/news/one-l-largest-cash-heists-003059420.html)
 - Apr 03 - [Porn Star Ron Jeremy's 34 Criminal Counts Have Officially Been Dismissed](https://www.yahoo.com/news/porn-star-ron-jeremys-34-235138427.html)
 - Apr 03 - [In rare call, Russian defense minister warns French counterpart against sending troops to Ukraine](https://www.yahoo.com/news/rare-call-russian-defense-minister-222020992.html)
-- Apr 03 - [Donald Trump loses presidential immunity delay effort for upcoming New York criminal trial](https://www.yahoo.com/news/donald-trump-loses-presidential-immunity-211747141.html)
 - Apr 03 - [Jeff Bezos Buys $90 Million Florida Mansion To Live In While His Other Newly Purchased $147 Million Homes Are 'Demolished' For A Mega Mansion](https://finance.yahoo.com/news/jeff-bezos-buys-90-million-194549310.html)
-- Apr 03 - [Buffett Suggests Radical Approach To End U.S. Deficit In '5 Minutes' – But It Involves Disqualifying Members Of Congress Based On The Debt](https://finance.yahoo.com/news/buffett-suggests-radical-approach-end-193014954.html)
+- Apr 03 - [Rashee Rice apologizes for 'my part' in crash while injured couple reportedly lawyer up](https://sports.yahoo.com/rashee-rice-apologizes-for-my-part-in-crash-while-injured-couple-reportedly-lawyer-up-192951810.html)
 <!-- feed end -->
 
 ### Onstream
