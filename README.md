@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Arkansas mom arrested after 7-year-old son found walking 8 miles to school, reports say](https://www.yahoo.com/news/arkansas-mom-arrested-7-old-221156865.html)
+- Apr 04 - [Woman Accused of Smashing Car Windshields With Brick](https://www.yahoo.com/news/woman-accused-smashing-car-windshields-220302160.html)
 - Apr 04 - [Judge warns Giuliani about 'pyrrhic' victory in Florida condo dispute](https://www.yahoo.com/news/judge-warns-giuliani-pyrrhic-victory-212256110.html)
-- Apr 04 - [Chiefs' Rashee Rice was driving Lamborghini in Dallas chain-reaction crash, his attorney says](https://www.yahoo.com/news/chiefs-rashee-rice-driving-lamborghini-212026957.html)
 - Apr 04 - [NY state is demanding more information on Trump's $175 million appeal bond in civil fraud case](https://finance.yahoo.com/news/ny-state-demanding-more-information-202740297.html)
 - Apr 04 - [Jack Smith Laid a Trap for Trump’s Mar-a-Lago Judge. Cannon Didn’t Take It.](https://www.yahoo.com/news/jack-smith-laid-trap-trump-194628382.html)
-- Apr 04 - [Fact check: Trump falsely claims that appeals court said ‘you won’ the civil fraud case he lost](https://www.yahoo.com/news/fact-check-trump-falsely-claims-193331670.html)
 <!-- feed end -->
 
 ### Onstream
