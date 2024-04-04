@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Trump says he'll jail his opponents. Members of the House Jan. 6 committee are preparing](https://www.yahoo.com/news/trump-says-hell-jail-opponents-090006783.html)
+- Apr 04 - [Exclusive-U.S. sanctions hamper Russian efforts to repair refineries, sources say](https://www.yahoo.com/news/exclusive-u-sanctions-hamper-russian-075022948.html)
 - Apr 04 - [California schools forced to compete with fast food industry for workers after minimum wage hike](https://www.yahoo.com/news/california-schools-forced-compete-fast-051030418.html)
 - Apr 04 - [Two winning $1.6 million Powerball tickets sold in Southern California](https://www.yahoo.com/news/two-winning-1-6-million-044419710.html)
 - Apr 04 - [Japanese people could all be called Sato by 2531, study warns. But they’d need to get married first](https://www.yahoo.com/news/japanese-people-could-called-sato-041816518.html)
-- Apr 04 - [Noticing This When You Brush Your Teeth Could Be A Sign Of Dementia](https://www.yahoo.com/lifestyle/noticing-brush-teeth-could-sign-031602650.html)
-- Apr 04 - [In one of L.A.'s largest cash heists, burglars steal as much as $30 million. Mystery surrounds case](https://www.yahoo.com/news/one-l-largest-cash-heists-003059420.html)
 <!-- feed end -->
 
 ### Onstream
