@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Japanese people could all be called Sato by 2531, study warns. But they’d need to get married first](https://www.yahoo.com/news/japanese-people-could-called-sato-041816518.html)
 - Apr 04 - [Noticing This When You Brush Your Teeth Could Be A Sign Of Dementia](https://www.yahoo.com/lifestyle/noticing-brush-teeth-could-sign-031602650.html)
+- Apr 04 - [Prosecutors say school shooter Ethan Crumbley’s parents show ‘chilling lack of remorse’ after manslaughter convictions](https://www.yahoo.com/news/prosecutors-school-shooter-ethan-crumbley-031049911.html)
 - Apr 04 - [Burglars steal $30 million in cash from Los Angeles money storage facility, police say](https://www.yahoo.com/news/burglars-steal-30-million-cash-012729624.html)
 - Apr 04 - [In one of L.A.'s largest cash heists, burglars steal as much as $30 million. Mystery surrounds case](https://www.yahoo.com/news/one-l-largest-cash-heists-003059420.html)
-- Apr 03 - [Porn Star Ron Jeremy's 34 Criminal Counts Have Officially Been Dismissed](https://www.yahoo.com/news/porn-star-ron-jeremys-34-235138427.html)
-- Apr 03 - [In rare call, Russian defense minister warns French counterpart against sending troops to Ukraine](https://www.yahoo.com/news/rare-call-russian-defense-minister-222020992.html)
 <!-- feed end -->
 
 ### Onstream
