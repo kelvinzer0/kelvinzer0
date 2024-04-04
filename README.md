@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 04 - [Trump ally Clark broke ethics rule in election subversion attempts, panel rules](https://www.yahoo.com/news/trump-ally-clark-broke-ethics-191416536.html)
+- Apr 04 - [NY is state demanding more information on Trump's $175 million appeal bond in civil fraud case](https://finance.yahoo.com/news/ny-state-demanding-more-information-202740297.html)
+- Apr 04 - [Jack Smith Laid a Trap for Trump’s Mar-a-Lago Judge. Cannon Didn’t Take It.](https://www.yahoo.com/news/jack-smith-laid-trap-trump-194628382.html)
+- Apr 04 - [Fact check: Trump falsely claims that appeals court said ‘you won’ the civil fraud case he lost](https://www.yahoo.com/news/fact-check-trump-falsely-claims-193331670.html)
 - Apr 04 - [Dan Rather ‘Vehemently’ Denounces Trump as President for One ‘Simple’ Reason](https://www.yahoo.com/news/dan-rather-vehemently-denounces-trump-190239801.html)
-- Apr 04 - [Trump calls for Jack Smith's punishment for criticizing judge in classified documents case](https://www.yahoo.com/news/trump-calls-jack-smiths-punishment-180137963.html)
 - Apr 04 - [Judge rejects Trump's First Amendment challenge to indictment in Georgia election case](https://www.yahoo.com/news/judge-rejects-trumps-first-amendment-173509038.html)
-- Apr 04 - [Virginia au pair murder: Fetish plot, affair, gun range tied to double homicide at home, prosecutors say](https://www.yahoo.com/news/virginia-au-pair-murder-fetish-171107488.html)
 <!-- feed end -->
 
 ### Onstream
