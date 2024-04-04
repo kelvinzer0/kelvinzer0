@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Judge rejects Trump's First Amendment challenge to indictment in Georgia election case](https://www.yahoo.com/news/judge-rejects-trumps-first-amendment-173509038.html)
+- Apr 04 - [11 ships are trapped behind the Key Bridge, including 4 considered critical to the nation’s defense](https://www.yahoo.com/news/11-ships-trapped-behind-key-170600253.html)
 - Apr 04 - [The latest eclipse forecast is throwing a curveball at eclipse watchers](https://www.yahoo.com/news/not-just-clouds-weather-threat-150322396.html)
-- Apr 04 - [Major New Hampshire highway shut down after truck crash damages overhead sign](https://www.yahoo.com/news/major-hampshire-highway-shut-down-132711017.html)
 - Apr 04 - [Biden moves to protect civil service as Trump plans to install loyalists](https://www.yahoo.com/news/biden-moves-protect-civil-trump-154855518.html)
-- Apr 04 - [Police say use of racial slur clearly audible as they investigate racist incidents toward Utah team](https://www.yahoo.com/news/police-racial-slur-clearly-audible-144249352.html)
-- Apr 04 - [Danish frigate suffered weapon system failure in Red Sea combat, captain says](https://www.yahoo.com/news/danish-frigate-suffered-weapon-system-143606542.html)
+- Apr 04 - [K-9 killed protecting officer and inmate who was attacked by prisoners, Virginia officials say](https://www.yahoo.com/news/k-9-killed-protecting-officer-154726399.html)
 <!-- feed end -->
 
 ### Onstream
