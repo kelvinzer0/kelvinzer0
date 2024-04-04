@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Danish frigate suffered weapon system failure in Red Sea combat, captain says](https://www.yahoo.com/news/danish-frigate-suffered-weapon-system-143606542.html)
+- Apr 04 - [Gold prices step back after climbing to record high](https://finance.yahoo.com/video/gold-prices-step-back-climbing-142809116.html)
 - Apr 04 - [Andrew Siciliano, face of 'NFL Red Zone,' and others out at NFL Network, per report](https://sports.yahoo.com/andrew-siciliano-face-of-nfl-red-zone-and-others-out-at-nfl-network-per-report-135215102.html)
+- Apr 04 - [Russian minister casts prospective Ukraine peace talks as Western plot to win hesitant Global South](https://www.yahoo.com/news/russian-minister-casts-prospective-ukraine-123252387.html)
 - Apr 04 - [It’s not just clouds, there’s a new weather threat for eclipse viewers to worry about](https://www.yahoo.com/news/not-just-clouds-weather-threat-150322396.html)
-- Apr 04 - [Russia's Lavrov says Chinese peace plan on Ukraine is most reasonable so far](https://www.yahoo.com/news/russias-lavrov-says-chinese-peace-115046400.html)
-- Apr 04 - [Karl Rove Says If Biden Campaign Is Smart, It Should 'Go Hard' At 1 Trump 'Mistake'](https://www.yahoo.com/news/karl-rove-says-biden-campaign-111216636.html)
-- Apr 04 - [Tree stumps, 100-foot power poles: These Joco neighbors lament their view and future](https://www.yahoo.com/news/tree-stumps-100-foot-power-103000434.html)
 <!-- feed end -->
 
 ### Onstream
