@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Trump ally Clark broke ethics rule in election subversion attempts, panel rules](https://www.yahoo.com/news/trump-ally-clark-broke-ethics-191416536.html)
+- Apr 04 - [Dan Rather ‘Vehemently’ Denounces Trump as President for One ‘Simple’ Reason](https://www.yahoo.com/news/dan-rather-vehemently-denounces-trump-190239801.html)
 - Apr 04 - [Trump calls for Jack Smith's punishment for criticizing judge in classified documents case](https://www.yahoo.com/news/trump-calls-jack-smiths-punishment-180137963.html)
 - Apr 04 - [Judge rejects Trump's First Amendment challenge to indictment in Georgia election case](https://www.yahoo.com/news/judge-rejects-trumps-first-amendment-173509038.html)
-- Apr 04 - [11 ships are trapped behind the Key Bridge, including 4 considered critical to the nation’s defense](https://www.yahoo.com/news/11-ships-trapped-behind-key-170600253.html)
-- Apr 04 - [The latest eclipse forecast is throwing a curveball at eclipse watchers](https://www.yahoo.com/news/not-just-clouds-weather-threat-150322396.html)
-- Apr 04 - [Biden moves to protect civil service as Trump plans to install loyalists](https://www.yahoo.com/news/biden-moves-protect-civil-trump-154855518.html)
+- Apr 04 - [Virginia au pair murder: Fetish plot, affair, gun range tied to double homicide at home, prosecutors say](https://www.yahoo.com/news/virginia-au-pair-murder-fetish-171107488.html)
 <!-- feed end -->
 
 ### Onstream
