@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 05 - [Alabama murderer gives up appeals and asks to be executed so that victims’ families have ‘justice’](https://www.yahoo.com/news/alabama-murderer-gives-appeals-asks-012801412.html)
 - Apr 04 - [Students walk out of schools across Alaska to protest the governor's veto of education package](https://www.yahoo.com/news/students-walk-schools-across-alaska-235138400.html)
 - Apr 04 - [Wife of New York Yankees exec killed after tree falls on car during storm](https://www.yahoo.com/news/wife-york-yankees-exec-killed-232900274.html)
+- Apr 04 - [South Carolina resort sued for 4-year-old’s drowning, the third death of a child there in three years](https://www.yahoo.com/news/south-carolina-resort-sued-4-232750828.html)
 - Apr 04 - [Down to the wire. California US House election could end in improbable tie vote for second place](https://www.yahoo.com/news/down-wire-california-us-house-223837190.html)
-- Apr 04 - [Arkansas mom arrested after 7-year-old son found walking 8 miles to school, reports say](https://www.yahoo.com/news/arkansas-mom-arrested-7-old-221156865.html)
-- Apr 04 - [Judge warns Giuliani about 'pyrrhic' victory in Florida condo dispute](https://www.yahoo.com/news/judge-warns-giuliani-pyrrhic-victory-212256110.html)
 <!-- feed end -->
 
 ### Onstream
