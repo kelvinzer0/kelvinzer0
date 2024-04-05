@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 04 - [Students walk out of schools across Alaska to protest the governor's veto of education package](https://www.yahoo.com/news/students-walk-schools-across-alaska-235138400.html)
+- Apr 04 - [Wife of New York Yankees exec killed after tree falls on car during storm](https://www.yahoo.com/news/wife-york-yankees-exec-killed-232900274.html)
+- Apr 04 - [Down to the wire. California US House election could end in improbable tie vote for second place](https://www.yahoo.com/news/down-wire-california-us-house-223837190.html)
 - Apr 04 - [Arkansas mom arrested after 7-year-old son found walking 8 miles to school, reports say](https://www.yahoo.com/news/arkansas-mom-arrested-7-old-221156865.html)
-- Apr 04 - [Woman Accused of Smashing Car Windshields With Brick](https://www.yahoo.com/news/woman-accused-smashing-car-windshields-220302160.html)
 - Apr 04 - [Judge warns Giuliani about 'pyrrhic' victory in Florida condo dispute](https://www.yahoo.com/news/judge-warns-giuliani-pyrrhic-victory-212256110.html)
-- Apr 04 - [NY state is demanding more information on Trump's $175 million appeal bond in civil fraud case](https://finance.yahoo.com/news/ny-state-demanding-more-information-202740297.html)
-- Apr 04 - [Jack Smith Laid a Trap for Trump’s Mar-a-Lago Judge. Cannon Didn’t Take It.](https://www.yahoo.com/news/jack-smith-laid-trap-trump-194628382.html)
 <!-- feed end -->
 
 ### Onstream
