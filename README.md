@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 05 - [‘They hit the jackpot’: How so-called ‘burglary tourists’ use visa waivers to target luxury US homes](https://www.yahoo.com/news/hit-jackpot-called-burglary-tourists-095451675.html)
+- Apr 05 - [Ukraine claims it destroyed Russian warplanes in one of its biggest drone attacks of the war](https://www.yahoo.com/news/ukraine-fires-more-50-drones-080915891.html)
 - Apr 05 - [Former Trump officials are among the most vocal opponents of returning him to the White House](https://www.yahoo.com/news/former-trump-officials-among-most-040606954.html)
 - Apr 05 - [Charging elephant kills an American woman on 'bucket list trip' in Zambia](https://www.yahoo.com/news/charging-elephant-kills-elderly-american-120326306.html)
-- Apr 05 - [Maggie Haberman reacts to Trump’s comments about Nixon and Watergate](https://www.yahoo.com/news/maggie-haberman-reacts-trump-comments-020846113.html)
 - Apr 05 - [Alabama murderer gives up appeals and asks to be executed so that victims’ families have ‘justice’](https://www.yahoo.com/news/alabama-murderer-gives-appeals-asks-012801412.html)
-- Apr 05 - [Drunk Florida man beaten after making fun of guest with Down syndrome at Disney World resort bar: police](https://www.yahoo.com/news/drunk-florida-man-beaten-making-001428975.html)
 <!-- feed end -->
 
 ### Onstream
