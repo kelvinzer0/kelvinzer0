@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 05 - [Marjorie Taylor Greene's 'Repent' Earthquake Tweet Shakes Up Internet](https://www.yahoo.com/news/marjorie-taylor-greenes-repent-earthquake-200205708.html)
 - Apr 05 - [Democratic congressmen unveil bill to rename a federal prison after Trump](https://www.yahoo.com/news/democratic-congressmen-unveil-bill-rename-194843325.html)
 - Apr 05 - [CIA refutes whistleblower claim pushed by Republicans leading Biden impeachment inquiry](https://www.yahoo.com/news/cia-refutes-whistleblower-claim-pushed-184814180.html)
 - Apr 05 - [Tampa woman who posed as teen, molested boy, charged with more child sex crimes: police](https://www.yahoo.com/news/tampa-woman-posed-teen-molested-181606640.html)
 - Apr 05 - [US economy has Wall Street 'borderline speechless' after blowout March jobs report](https://finance.yahoo.com/news/us-economy-has-wall-street-borderline-speechless-after-blowout-march-jobs-report-175409776.html)
-- Apr 05 - [Trump subpoena to NBC over Stormy Daniels documentary blocked by judge](https://www.yahoo.com/news/trump-subpoena-nbc-over-stormy-174243103.html)
 <!-- feed end -->
 
 ### Onstream
