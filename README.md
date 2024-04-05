@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 05 - [Trump’s Rant on Truth Social May Have Broken the Law](https://finance.yahoo.com/news/trump-rant-truth-social-may-144816989.html)
+- Apr 05 - [Home Security Camera Captures New Jersey Earthquake](https://www.yahoo.com/news/home-security-camera-captures-jersey-154423657.html)
 - Apr 05 - [Fact Check: Story Alleges a Dad Found a Buried Chain After Landscaping His Yard and Instantly Regretted It. Here's the Truth](https://www.yahoo.com/entertainment/fact-check-story-alleges-dad-110000400.html)
-- Apr 05 - [Donald Trump Puts Outrageous Condition On Potential Debate With Joe Biden](https://www.yahoo.com/entertainment/donald-trump-puts-outrageous-condition-105441089.html)
+- Apr 05 - [Donald Trump Puts Outrageous Condition On Potential Debate With Joe Biden](https://www.yahoo.com/news/donald-trump-puts-outrageous-condition-105441089.html)
 - Apr 05 - [A Black couple defied racism by renting to a Chinese family. Now comes $5 million in thanks](https://www.yahoo.com/news/black-couple-defied-racism-renting-100051710.html)
 - Apr 05 - [Column: He admitted to punching a reporter. A judge wished him "best of luck"](https://www.yahoo.com/news/column-admitted-punching-reporter-judge-100001520.html)
 <!-- feed end -->
