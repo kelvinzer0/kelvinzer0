@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 05 - [Wife of Royals owner John Sherman says team won’t work with Jackson County again](https://sports.yahoo.com/wife-royals-owner-john-sherman-172424674.html)
 - Apr 05 - [Strike on Iran's consulate in Syria is 'turning point', Hezbollah head says](https://www.yahoo.com/news/strike-irans-consulate-syria-turning-160054861.html)
-- Apr 05 - [“They had to cut her off”: Report says server denied booze to “overserved” Boebert at Trump event](https://www.yahoo.com/entertainment/had-cut-her-off-report-155642376.html)
+- Apr 05 - [“They had to cut her off”: Report says server denied booze to “overserved” Boebert at Trump event](https://www.yahoo.com/news/had-cut-her-off-report-155642376.html)
 - Apr 05 - [People Are Sharing Pictures Of Damage Caused By The East Coast Earthquake, And Here's How It's Looking Out There](https://www.yahoo.com/news/people-sharing-pictures-damage-caused-155228573.html)
 - Apr 05 - [Dwayne Johnson Says He Won’t Endorse Biden Again for President](https://www.yahoo.com/entertainment/dwayne-johnson-says-won-t-154755490.html)
-- Apr 05 - [Condemned inmate could face 'surgery without anesthesia' if good vein is elusive, lawyers say](https://www.yahoo.com/news/condemned-inmate-could-face-surgery-152903186.html)
 <!-- feed end -->
 
 ### Onstream
