@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Apr 05 - [Former Trump officials are among the most vocal opponents of returning him to the White House](https://www.yahoo.com/news/former-trump-officials-among-most-040606954.html)
 - Apr 05 - [Charging elephant kills an American woman on 'bucket list trip' in Zambia](https://www.yahoo.com/news/charging-elephant-kills-elderly-american-120326306.html)
 - Apr 05 - [Alabama murderer gives up appeals and asks to be executed so that victims’ families have ‘justice’](https://www.yahoo.com/news/alabama-murderer-gives-appeals-asks-012801412.html)
+- Apr 05 - [Drunk Florida man beaten after making fun of guest with Down syndrome at Disney World resort bar: police](https://www.yahoo.com/news/drunk-florida-man-beaten-making-001428975.html)
 - Apr 04 - [Students walk out of schools across Alaska to protest the governor's veto of education package](https://www.yahoo.com/news/students-walk-schools-across-alaska-235138400.html)
-- Apr 04 - [Wife of New York Yankees exec killed after tree falls on car during storm](https://www.yahoo.com/news/wife-york-yankees-exec-killed-232900274.html)
 <!-- feed end -->
 
 ### Onstream
