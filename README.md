@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 05 - [UPDATE 2-Trump subpoena to NBC over Stormy Daniels documentary blocked by judge](https://finance.yahoo.com/news/1-trump-subpoena-nbc-over-175525418.html)
+- Apr 05 - [CIA refutes whistleblower claim pushed by Republicans leading Biden impeachment inquiry](https://www.yahoo.com/news/cia-refutes-whistleblower-claim-pushed-184814180.html)
+- Apr 05 - [US economy has Wall Street 'borderline speechless' after blowout March jobs report](https://finance.yahoo.com/news/us-economy-has-wall-street-borderline-speechless-after-blowout-march-jobs-report-175409776.html)
 - Apr 05 - [Trump subpoena to NBC over Stormy Daniels documentary blocked by judge](https://www.yahoo.com/news/trump-subpoena-nbc-over-stormy-174243103.html)
 - Apr 05 - [Wife of Royals owner John Sherman says team won’t work with Jackson County again](https://sports.yahoo.com/wife-royals-owner-john-sherman-172424674.html)
-- Apr 05 - [Strike on Iran's consulate in Syria is 'turning point', Hezbollah head says](https://www.yahoo.com/news/strike-irans-consulate-syria-turning-160054861.html)
-- Apr 05 - [“They had to cut her off”: Report says server denied booze to “overserved” Boebert at Trump event](https://www.yahoo.com/news/had-cut-her-off-report-155642376.html)
+- Apr 05 - [Everyone Is Making Jokes About The East Coast Earthquake, And Here Are The 35 Funniest Ones](https://www.yahoo.com/entertainment/35-funniest-jokes-east-coast-164311747.html)
 <!-- feed end -->
 
 ### Onstream
