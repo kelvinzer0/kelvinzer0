@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 05 - [Trump’s Rant on Truth Social May Have Broken the Law](https://finance.yahoo.com/news/trump-rant-truth-social-may-144816989.html)
 - Apr 05 - [Fact Check: Story Alleges a Dad Found a Buried Chain After Landscaping His Yard and Instantly Regretted It. Here's the Truth](https://www.yahoo.com/entertainment/fact-check-story-alleges-dad-110000400.html)
 - Apr 05 - [Donald Trump Puts Outrageous Condition On Potential Debate With Joe Biden](https://www.yahoo.com/entertainment/donald-trump-puts-outrageous-condition-105441089.html)
 - Apr 05 - [A Black couple defied racism by renting to a Chinese family. Now comes $5 million in thanks](https://www.yahoo.com/news/black-couple-defied-racism-renting-100051710.html)
-- Apr 05 - [‘They hit the jackpot’: How so-called ‘burglary tourists’ use visa waivers to target luxury US homes](https://www.yahoo.com/news/hit-jackpot-called-burglary-tourists-095451675.html)
-- Apr 05 - [Ukraine claims it destroyed Russian warplanes in one of its biggest drone attacks of the war](https://www.yahoo.com/news/ukraine-fires-more-50-drones-080915891.html)
+- Apr 05 - [Column: He admitted to punching a reporter. A judge wished him "best of luck"](https://www.yahoo.com/news/column-admitted-punching-reporter-judge-100001520.html)
 <!-- feed end -->
 
 ### Onstream
