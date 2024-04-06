@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 05 - [5 Teens Arrested in Attempted Car Jacking: Cops](https://www.yahoo.com/news/5-teens-arrested-attempted-car-231054117.html)
+- Apr 05 - [Portland, Oregon, schools and after-school program sued after a 9-year-old girl is allegedly raped](https://www.yahoo.com/news/portland-oregon-schools-school-program-224719398.html)
+- Apr 05 - ['She's electric': Watch lightning strike the Statue of Liberty, emerge from her torch](https://www.yahoo.com/news/shes-electric-watch-lightning-strike-223108055.html)
 - Apr 05 - [Fact Check: Kyle Rittenhouse Allegedly Failed Military Entrance Exam So Badly He's 'Banned' from Serving in Marines. Here's What We Know](https://www.yahoo.com/news/fact-check-kyle-rittenhouse-allegedly-212300510.html)
-- Apr 05 - [Watch: NYC skyline, Statue of Liberty shake during earthquake](https://www.yahoo.com/news/watch-nyc-skyline-statue-liberty-201114654.html)
 - Apr 05 - [Marjorie Taylor Greene's 'Repent' Earthquake Tweet Shakes Up Internet](https://www.yahoo.com/news/marjorie-taylor-greenes-repent-earthquake-200205708.html)
-- Apr 05 - [Democratic congressmen unveil bill to rename a federal prison after Trump](https://www.yahoo.com/news/democratic-congressmen-unveil-bill-rename-194843325.html)
-- Apr 05 - [Tampa woman who posed as teen, molested boy, charged with more child sex crimes: police](https://www.yahoo.com/news/tampa-woman-posed-teen-molested-181606640.html)
 <!-- feed end -->
 
 ### Onstream
