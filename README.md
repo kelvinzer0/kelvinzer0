@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Apr 05 - [5 Teens Arrested in Attempted Car Jacking: Cops](https://www.yahoo.com/news/5-teens-arrested-attempted-car-231054117.html)
 - Apr 05 - [Portland, Oregon, schools and after-school program sued after a 9-year-old girl is allegedly raped](https://www.yahoo.com/news/portland-oregon-schools-school-program-224719398.html)
 - Apr 05 - ['She's electric': Watch lightning strike the Statue of Liberty, emerge from her torch](https://www.yahoo.com/news/shes-electric-watch-lightning-strike-223108055.html)
+- Apr 05 - [Should You Sleep In Underwear Or Go Commando? Doctors Have Thoughts.](https://www.yahoo.com/lifestyle/sleep-underwear-commando-doctors-thoughts-221602454.html)
 - Apr 05 - [Fact Check: Kyle Rittenhouse Allegedly Failed Military Entrance Exam So Badly He's 'Banned' from Serving in Marines. Here's What We Know](https://www.yahoo.com/news/fact-check-kyle-rittenhouse-allegedly-212300510.html)
-- Apr 05 - [Marjorie Taylor Greene's 'Repent' Earthquake Tweet Shakes Up Internet](https://www.yahoo.com/news/marjorie-taylor-greenes-repent-earthquake-200205708.html)
 <!-- feed end -->
 
 ### Onstream
