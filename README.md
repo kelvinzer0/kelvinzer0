@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - [Teen Boy Who Died in Avalanche While on Spring Break Is Identified as Son of Former Olympic Swimmer](https://www.yahoo.com/news/teen-boy-died-avalanche-while-200516774.html)
+- Apr 06 - [Retired judge says statute cited in Trump’s motion raises concerns about judge in hush money case](https://www.yahoo.com/news/retired-judge-says-statute-cited-030532589.html)
 - Apr 06 - [Why gas prices in California ‘have gone ballistic'](https://finance.yahoo.com/news/why-gas-prices-in-california-have-gone-ballistic-160544399.html)
 - Apr 06 - [Video of Python Attempting to Grab Pet Cat In Australian Backyard Is Wild](https://www.yahoo.com/news/video-python-attempting-grab-pet-151500616.html)
-- Apr 06 - [South Carolina 15-Year-Old Walks Off Soccer Field with a Headache — It Turns Out to Be a Brain Bleed (Exclusive)](https://www.yahoo.com/news/south-carolina-15-old-walks-150000087.html)
-- Apr 06 - [Report: Israeli doctor says detained Palestinians are undergoing ‘routine’ amputations for handcuff injuries](https://www.yahoo.com/news/israeli-doctor-says-detained-palestinians-113343322.html)
-- Apr 06 - [Dutch police have detained activist Greta Thunberg at a climate demonstration in The Hague](https://www.yahoo.com/news/dutch-police-detained-activist-greta-132757339.html)
+- Apr 06 - [Armed man shot after crashing into Conway Massage Envy, standoff in shopping center with SWAT, multiple agencies](https://www.yahoo.com/news/conway-police-department-swat-team-150117122.html)
 <!-- feed end -->
 
 ### Onstream
