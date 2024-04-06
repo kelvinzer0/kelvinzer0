@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - [Trump saved millions by keeping court in dark about billionaire's bond offer: report](https://www.yahoo.com/news/trump-saved-millions-keeping-court-024626410.html)
 - Apr 06 - [Michael Jackson's accusers seek to open sealed records that include nude photos of the singer](https://www.yahoo.com/entertainment/michael-jacksons-accusers-seek-open-001537749.html)
 - Apr 05 - [5 Teens Arrested in Attempted Car Jacking: Cops](https://www.yahoo.com/news/5-teens-arrested-attempted-car-231054117.html)
 - Apr 05 - [Portland, Oregon, schools and after-school program sued after a 9-year-old girl is allegedly raped](https://www.yahoo.com/news/portland-oregon-schools-school-program-224719398.html)
 - Apr 05 - ['She's electric': Watch lightning strike the Statue of Liberty, emerge from her torch](https://www.yahoo.com/news/shes-electric-watch-lightning-strike-223108055.html)
-- Apr 05 - [Whether You Wear Underwear To Bed Or Sleep Commando, Doctors Say You Might Want To Rethink It — Here's Why](https://www.yahoo.com/lifestyle/sleep-underwear-commando-doctors-thoughts-221602454.html)
 <!-- feed end -->
 
 ### Onstream
