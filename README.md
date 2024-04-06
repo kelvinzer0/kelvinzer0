@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - [Why gas prices in California ‘have gone ballistic'](https://finance.yahoo.com/news/why-gas-prices-in-california-have-gone-ballistic-160544399.html)
+- Apr 06 - [Video of Python Attempting to Grab Pet Cat In Australian Backyard Is Wild](https://www.yahoo.com/news/video-python-attempting-grab-pet-151500616.html)
 - Apr 06 - [South Carolina 15-Year-Old Walks Off Soccer Field with a Headache — It Turns Out to Be a Brain Bleed (Exclusive)](https://www.yahoo.com/news/south-carolina-15-old-walks-150000087.html)
 - Apr 06 - [Dutch police have detained activist Greta Thunberg at a climate demonstration in The Hague](https://www.yahoo.com/news/dutch-police-detained-activist-greta-132757339.html)
 - Apr 06 - [Reclusive Taliban leader releases Eid message urging officials to set aside their differences](https://www.yahoo.com/news/reclusive-taliban-leader-releases-eid-112045386.html)
-- Apr 06 - [‘Blows my mind’: North Carolina woman made $50K in car payments — and barely reduced the $84K loan. How to avoid this](https://finance.yahoo.com/news/blows-mind-north-carolina-woman-110000966.html)
-- Apr 06 - [Kansas City-area Catholic school principal suspended during investigation | Opinion](https://www.yahoo.com/news/kansas-city-area-catholic-school-100600506.html)
 <!-- feed end -->
 
 ### Onstream
