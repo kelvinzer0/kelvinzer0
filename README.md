@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - [‘They hit the jackpot’: How so-called ‘burglary tourists’ use visa waivers to target luxury US homes](https://www.yahoo.com/news/hit-jackpot-called-burglary-tourists-095451675.html)
+- Apr 06 - [Ecuadorian police broke into Mexico's embassy, sparking outrage. Why is this such a big deal?](https://www.yahoo.com/news/ecuadorian-police-broke-mexicos-embassy-202134791.html)
 - Apr 06 - [Teen Boy Who Died in Avalanche While on Spring Break Is Identified as Son of Former Olympic Swimmer](https://www.yahoo.com/news/teen-boy-died-avalanche-while-200516774.html)
 - Apr 06 - [Retired judge says statute cited in Trump’s motion raises concerns about judge in hush money case](https://www.yahoo.com/news/retired-judge-says-statute-cited-030532589.html)
-- Apr 06 - [Why gas prices in California ‘have gone ballistic'](https://finance.yahoo.com/news/why-gas-prices-in-california-have-gone-ballistic-160544399.html)
-- Apr 06 - [Video of Python Attempting to Grab Pet Cat In Australian Backyard Is Wild](https://www.yahoo.com/news/video-python-attempting-grab-pet-151500616.html)
-- Apr 06 - [Armed man shot after crashing into Conway Massage Envy, standoff in shopping center with SWAT, multiple agencies](https://www.yahoo.com/news/conway-police-department-swat-team-150117122.html)
+- Apr 06 - [2 men hurt in a fight at downtown CLE restaurant: I-TEAM](https://www.yahoo.com/news/2-men-hurt-fight-downtown-163045683.html)
 <!-- feed end -->
 
 ### Onstream
