@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 06 - [Kansas City-area Catholic school principal suspended during investigation | Opinion](https://www.yahoo.com/news/kansas-city-area-catholic-school-100600506.html)
 - Apr 06 - [How an Oklahoma man double-crossed a Mexican cartel with knockoff guns](https://www.yahoo.com/news/oklahoma-man-double-crossed-mexican-100311584.html)
 - Apr 06 - [After years on the run, GirlsDoPorn boss faces 'beginning of the end' in San Diego](https://www.yahoo.com/news/years-run-girlsdoporn-boss-faces-100036059.html)
+- Apr 06 - [Trump’s bizarre, vindictive incoherence has to be heard in full to be believed](https://www.yahoo.com/news/trump-bizarre-vindictive-incoherence-heard-100030232.html)
 - Apr 06 - [Mexico's president says his country is breaking diplomatic ties with Ecuador after embassy raid](https://www.yahoo.com/news/ecuadorian-police-break-mexican-embassy-035601922.html)
-- Apr 06 - [Retired judge says statute cited in Trump’s motion raises concerns on judge in hush money case](https://www.yahoo.com/news/retired-judge-says-statute-cited-030532589.html)
-- Apr 06 - [Trump saved millions by keeping court in dark about billionaire's bond offer: report](https://www.yahoo.com/news/trump-saved-millions-keeping-court-024626410.html)
 <!-- feed end -->
 
 ### Onstream
