@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Apr 06 - [Ecuadorian police broke into Mexico's embassy, sparking outrage. Why is this such a big deal?](https://www.yahoo.com/news/ecuadorian-police-broke-mexicos-embassy-202134791.html)
 - Apr 06 - [Teen Boy Who Died in Avalanche While on Spring Break Is Identified as Son of Former Olympic Swimmer](https://www.yahoo.com/news/teen-boy-died-avalanche-while-200516774.html)
 - Apr 06 - [Retired judge says statute cited in Trump’s motion raises concerns about judge in hush money case](https://www.yahoo.com/news/retired-judge-says-statute-cited-030532589.html)
-- Apr 06 - [2 men hurt in a fight at downtown CLE restaurant: I-TEAM](https://www.yahoo.com/news/2-men-hurt-fight-downtown-163045683.html)
+- Apr 06 - [Gov. Sanders declares state of emergency ahead of eclipse](https://www.yahoo.com/news/gov-sanders-declares-state-emergency-171229725.html)
 <!-- feed end -->
 
 ### Onstream
