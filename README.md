@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 07 - [Southwest flight from Denver makes emergency landing after 'mechanical issue,' airline says](https://www.yahoo.com/news/southwest-flight-denver-makes-emergency-191000125.html)
 - Apr 07 - [The internet is having a blast with these photos of Melania Trump looking peeved at a fundraiser](https://www.yahoo.com/entertainment/internet-having-blast-photos-melania-180713684.html)
-- Apr 07 - [Kentucky man admits to faking his own death to avoid paying over $100k in child support](https://www.yahoo.com/news/kentucky-man-admits-faking-own-174813035.html)
 - Apr 07 - [Marjorie Taylor Greene Responds to Backlash Over Comments About Northeast Earthquake](https://www.yahoo.com/news/marjorie-taylor-greene-responds-backlash-173443389.html)
 - Apr 07 - [Seven Powerball players across US win $1 million. Where were winning tickets sold?](https://www.yahoo.com/news/seven-powerball-players-across-us-154618039.html)
-- Apr 07 - [Tens of thousands of live salmon fell off a truck in Oregon – and into a creek](https://www.yahoo.com/news/tens-thousands-live-salmon-fell-142118157.html)
+- Apr 07 - [Say it bluntly: The president just moved heaven and earth](https://www.yahoo.com/news/bluntly-president-just-moved-heaven-152027286.html)
 <!-- feed end -->
 
 ### Onstream
