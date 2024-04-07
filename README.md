@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 07 - [2 women who say abortion restrictions put them in medical peril feel compelled to campaign for Biden](https://www.yahoo.com/news/2-women-abortion-restrictions-put-142129707.html)
+- Apr 07 - [Tens of thousands of live salmon fell off a truck in Oregon – and into a creek](https://www.yahoo.com/news/tens-thousands-live-salmon-fell-142118157.html)
 - Apr 07 - [The polls are suggesting a huge shift in the electorate. Are they right?](https://www.yahoo.com/news/age-inversion-rocking-2024-election-110000502.html)
 - Apr 07 - [Dave Ramsey predicts what's in store for the housing market again after saying he got it right 2 years ago](https://finance.yahoo.com/news/dave-ramsey-predicts-whats-store-104600624.html)
 - Apr 07 - [Top UN court will hold hearings in a case accusing Germany of facilitating Israel's Gaza conflict](https://www.yahoo.com/news/top-un-court-hold-hearings-102500964.html)
-- Apr 07 - [Doctors Say These Are The 5 Biggest Early Warning Signs Of A 'Mini Stroke'](https://www.yahoo.com/news/doctors-5-biggest-early-warning-101602913.html)
-- Apr 07 - [If you like your car, good luck keeping it. Biden's EV mandate drives change people don't want.](https://www.yahoo.com/tech/car-good-luck-keeping-bidens-091209528.html)
 <!-- feed end -->
 
 ### Onstream
