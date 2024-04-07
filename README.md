@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Apr 07 - [Dave Ramsey predicts what's in store for the housing market again after saying he got it right 2 years ago](https://finance.yahoo.com/news/dave-ramsey-predicts-whats-store-104600624.html)
 - Apr 07 - [Top UN court will hold hearings in a case accusing Germany of facilitating Israel's Gaza conflict](https://www.yahoo.com/news/top-un-court-hold-hearings-102500964.html)
 - Apr 07 - [Doctors Say These Are The 5 Biggest Early Warning Signs Of A 'Mini Stroke'](https://www.yahoo.com/news/doctors-5-biggest-early-warning-101602913.html)
+- Apr 07 - [We asked readers why you voted no. You told us, and then some, about the stadium | Opinion](https://www.yahoo.com/news/asked-readers-why-voted-no-100900503.html)
 - Apr 07 - [If you like your car, good luck keeping it. Biden's EV mandate drives change people don't want.](https://www.yahoo.com/tech/car-good-luck-keeping-bidens-091209528.html)
-- Apr 07 - [Iran’s paper tiger has finally been exposed](https://www.yahoo.com/news/iran-paper-tiger-finally-exposed-050000547.html)
 <!-- feed end -->
 
 ### Onstream
