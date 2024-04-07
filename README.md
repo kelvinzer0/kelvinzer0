@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 07 - [UF student drives to mother’s Polk County home, stabs her to death: PCSO](https://www.yahoo.com/news/uf-student-drives-mother-polk-012757035.html)
+- Apr 07 - [Powerball lottery drawing delayed](https://www.yahoo.com/news/powerball-lottery-drawing-delayed-033439429.html)
 - Apr 07 - [Major US lake expected to completely fill after years of historic drought: 'We're feeling very good'](https://www.yahoo.com/news/major-us-lake-expected-completely-010000870.html)
 - Apr 07 - [Republican strategist says Trump has made a critical mistake in the campaign](https://www.yahoo.com/news/ex-bush-adviser-says-trump-234304102.html)
 - Apr 06 - [‘They hit the jackpot’: How so-called ‘burglary tourists’ use visa waivers to target luxury US homes](https://www.yahoo.com/news/hit-jackpot-called-burglary-tourists-095451675.html)
