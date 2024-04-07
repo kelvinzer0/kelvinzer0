@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 07 - [If you like your car, good luck keeping it. Biden's EV mandate drives change people don't want.](https://www.yahoo.com/tech/car-good-luck-keeping-bidens-091209528.html)
 - Apr 07 - [Iran’s paper tiger has finally been exposed](https://www.yahoo.com/news/iran-paper-tiger-finally-exposed-050000547.html)
+- Apr 07 - [This Ex-Airline Employee's Mind-Blowing Flight Hack Is Going Viral And You Won't Believe How Simple And Smart It Is](https://www.yahoo.com/lifestyle/former-airline-employees-viral-flight-034602433.html)
 - Apr 07 - [Powerball lottery's $1.3 billion jackpot drawing delayed](https://www.yahoo.com/news/powerball-lottery-drawing-delayed-033439429.html)
 - Apr 07 - [Major US lake expected to completely fill after years of historic drought: 'We're feeling very good'](https://www.yahoo.com/news/major-us-lake-expected-completely-010000870.html)
-- Apr 07 - [Republican strategist says Trump has made a critical mistake in the campaign](https://www.yahoo.com/news/ex-bush-adviser-says-trump-234304102.html)
-- Apr 06 - [‘They hit the jackpot’: How so-called ‘burglary tourists’ use visa waivers to target luxury US homes](https://www.yahoo.com/news/hit-jackpot-called-burglary-tourists-095451675.html)
 <!-- feed end -->
 
 ### Onstream
