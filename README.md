@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Apr 07 - [The internet is having a blast with these photos of Melania Trump looking peeved at a fundraiser](https://www.yahoo.com/entertainment/internet-having-blast-photos-melania-180713684.html)
 - Apr 07 - [Marjorie Taylor Greene Responds to Backlash Over Comments About Northeast Earthquake](https://www.yahoo.com/news/marjorie-taylor-greene-responds-backlash-173443389.html)
 - Apr 07 - [Seven Powerball players across US win $1 million. Where were winning tickets sold?](https://www.yahoo.com/news/seven-powerball-players-across-us-154618039.html)
-- Apr 07 - [Say it bluntly: The president just moved heaven and earth](https://www.yahoo.com/news/bluntly-president-just-moved-heaven-152027286.html)
+- Apr 07 - [Trump: it would be 'great honor' to go to jail for violating gag order](https://www.yahoo.com/news/trump-great-honor-jail-violating-154224413.html)
 <!-- feed end -->
 
 ### Onstream
