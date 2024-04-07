@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 07 - [UF student drives to mother’s Polk County home, stabs her to death: PCSO](https://www.yahoo.com/news/uf-student-drives-mother-polk-012757035.html)
 - Apr 07 - [Major US lake expected to completely fill after years of historic drought: 'We're feeling very good'](https://www.yahoo.com/news/major-us-lake-expected-completely-010000870.html)
 - Apr 07 - [Republican strategist says Trump has made a critical mistake in the campaign](https://www.yahoo.com/news/ex-bush-adviser-says-trump-234304102.html)
 - Apr 06 - [‘They hit the jackpot’: How so-called ‘burglary tourists’ use visa waivers to target luxury US homes](https://www.yahoo.com/news/hit-jackpot-called-burglary-tourists-095451675.html)
 - Apr 06 - [Ecuadorian police broke into Mexico's embassy, sparking outrage. Why is this such a big deal?](https://www.yahoo.com/news/ecuadorian-police-broke-mexicos-embassy-202134791.html)
-- Apr 06 - [Teen Boy Who Died in Avalanche While on Spring Break Is Identified as Son of Former Olympic Swimmer](https://www.yahoo.com/news/teen-boy-died-avalanche-while-200516774.html)
 <!-- feed end -->
 
 ### Onstream
