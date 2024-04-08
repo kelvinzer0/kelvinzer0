@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Solar eclipse 2024: A darkness descends - in pictures](https://www.yahoo.com/news/solar-eclipse-2024-crowds-gather-161530915.html)
-- Apr 08 - [Solar Eclipse Reaches Totality in Mexico's Mazatlan](https://www.yahoo.com/news/solar-eclipse-reaches-totality-mexicos-183121298.html)
-- Apr 08 - [McConnell, back in Kentucky, talks about life in the Senate after leaving longtime leadership post](https://www.yahoo.com/news/mcconnell-back-kentucky-talks-life-181831857.html)
-- Apr 08 - [Protesters in southern Mexico set state government building afire and torch a dozen vehicles](https://www.yahoo.com/news/protesters-southern-mexico-set-state-181333417.html)
-- Apr 08 - [Police K-9 Airlifted for Surgery After Being Stabbed](https://www.yahoo.com/news/police-k-9-airlifted-surgery-180959877.html)
+- Apr 08 - [Solar eclipse 2024: An eerie darkness descends - in pictures](https://www.yahoo.com/news/solar-eclipse-2024-crowds-gather-161530915.html)
+- Apr 08 - [Trump sues judge overseeing his hush money case](https://www.yahoo.com/news/trump-sues-judge-overseeing-hush-185819372.html)
+- Apr 08 - [RFK Jr. Adviser Makes Shocking Admission about Campaign’s True Goal](https://www.yahoo.com/news/rfk-jr-adviser-makes-shocking-184120920.html)
+- Apr 08 - [Amid probe into Musk, Brazil's top court says 'every company is subject to the constitution'](https://finance.yahoo.com/news/amid-probe-musk-brazils-top-182929204.html)
+- Apr 08 - [NASA Spots Object Speeding Around the Moon](https://www.yahoo.com/tech/nasa-spots-object-speeding-around-181921778.html)
 <!-- feed end -->
 
 ### Onstream
