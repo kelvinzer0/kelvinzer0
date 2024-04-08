@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Biden administration announces $6.6 billion to ensure leading-edge microchips are built in the US](https://finance.yahoo.com/news/biden-administration-announces-6-6-090301774.html)
+- Apr 08 - [Alex Rodriguez lost 32 pounds last year. He says one of the biggest changes to his diet is eating way less meat.](https://www.yahoo.com/entertainment/alex-rodriguez-lost-32-pounds-083425673.html)
+- Apr 08 - [Dem Lawmaker Trolls Republicans By Daring Them To Give Trump This 1 Backhanded Honor](https://www.yahoo.com/news/dem-lawmaker-trolls-republicans-daring-083149648.html)
 - Apr 08 - [Yellen says US will not accept its industries being decimated by cheap Chinese imports](https://finance.yahoo.com/news/yellen-says-u-not-accept-065045537.html)
 - Apr 08 - [Russian convicts who earned their freedom fighting Ukraine are going home with swagger and a stash of money to burn: NYT](https://www.yahoo.com/news/russian-convicts-earned-freedom-fighting-053551629.html)
-- Apr 08 - [Malaysian shoemaker apologizes for high heels with logo that some say resemble Arab writing for God](https://www.yahoo.com/news/malaysian-shoemaker-apologizes-high-heels-042323360.html)
-- Apr 08 - [Trump says he will disclose abortion policy on Monday](https://www.yahoo.com/news/trump-says-disclose-abortion-policy-023947692.html)
-- Apr 08 - [Brazil Supreme Court justice orders investigation of Elon Musk over fake news and obstruction](https://www.yahoo.com/news/brazil-supreme-court-justice-investigating-020420002.html)
 <!-- feed end -->
 
 ### Onstream
