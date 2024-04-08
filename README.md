@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Justice Department blasts GOP effort to hold Attorney General Garland in contempt over Biden audio](https://www.yahoo.com/news/justice-department-blasts-gop-effort-172503202.html)
-- Apr 08 - [Contractor Who Died After Walking into Propeller Lost 'Situational Awareness,' Air Force Says](https://www.yahoo.com/news/contractor-died-walking-propeller-lost-172340734.html)
-- Apr 08 - [What Researchers Discovered When They Sent 80,000 Fake Resumes to U.S. Jobs](https://www.yahoo.com/news/researchers-discovered-sent-80-000-165423098.html)
-- Apr 08 - [Traffic on New Hampshire highways backed up for miles ahead of solar eclipse](https://www.yahoo.com/news/traffic-hampshire-highways-backed-miles-163234832.html)
-- Apr 08 - [Trista Sutter Says It’s 'Very Scary' When 'Superhuman' Husband Ryan Can’t 'Push Through' Lyme Disease Symptoms](https://www.yahoo.com/entertainment/trista-sutter-says-very-scary-163137525.html)
+- Apr 08 - [Solar eclipse 2024: A darkness descends - in pictures](https://www.yahoo.com/news/solar-eclipse-2024-crowds-gather-161530915.html)
+- Apr 08 - [Solar Eclipse Reaches Totality in Mexico's Mazatlan](https://www.yahoo.com/news/solar-eclipse-reaches-totality-mexicos-183121298.html)
+- Apr 08 - [McConnell, back in Kentucky, talks about life in the Senate after leaving longtime leadership post](https://www.yahoo.com/news/mcconnell-back-kentucky-talks-life-181831857.html)
+- Apr 08 - [Protesters in southern Mexico set state government building afire and torch a dozen vehicles](https://www.yahoo.com/news/protesters-southern-mexico-set-state-181333417.html)
+- Apr 08 - [Police K-9 Airlifted for Surgery After Being Stabbed](https://www.yahoo.com/news/police-k-9-airlifted-surgery-180959877.html)
 <!-- feed end -->
 
 ### Onstream
