@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Parents of Oxford High School shooter face sentencing as pioneering case reaches its conclusion](https://www.yahoo.com/news/parents-oxford-high-school-shooter-163414192.html)
-- Apr 08 - [“Incomprehensible”: Experts say Trump’s $175 million bond makes no sense](https://finance.yahoo.com/news/incomprehensible-experts-trump-175-million-153908921.html)
-- Apr 08 - [Trump Admits He Only Wants White People to Come to the U.S.](https://www.yahoo.com/news/trump-admits-only-wants-white-151913182.html)
-- Apr 08 - [Missouri to reduce risk of suffering if man requires surgical procedure at execution](https://www.yahoo.com/news/missouri-reduce-risk-suffering-man-151618001.html)
-- Apr 08 - [Spain will scrap 'golden visas' that allow wealthy non-EU residents to stay if they buy real estate](https://finance.yahoo.com/news/spain-scrap-golden-visas-allow-150841288.html)
+- Apr 08 - [Justice Department blasts GOP effort to hold Attorney General Garland in contempt over Biden audio](https://www.yahoo.com/news/justice-department-blasts-gop-effort-172503202.html)
+- Apr 08 - [Contractor Who Died After Walking into Propeller Lost 'Situational Awareness,' Air Force Says](https://www.yahoo.com/news/contractor-died-walking-propeller-lost-172340734.html)
+- Apr 08 - [What Researchers Discovered When They Sent 80,000 Fake Resumes to U.S. Jobs](https://www.yahoo.com/news/researchers-discovered-sent-80-000-165423098.html)
+- Apr 08 - [Traffic on New Hampshire highways backed up for miles ahead of solar eclipse](https://www.yahoo.com/news/traffic-hampshire-highways-backed-miles-163234832.html)
+- Apr 08 - [Trista Sutter Says It’s 'Very Scary' When 'Superhuman' Husband Ryan Can’t 'Push Through' Lyme Disease Symptoms](https://www.yahoo.com/entertainment/trista-sutter-says-very-scary-163137525.html)
 <!-- feed end -->
 
 ### Onstream
