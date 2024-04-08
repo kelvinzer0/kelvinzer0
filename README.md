@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Japan is boosting defense spending after years of pacifism. Here’s why](https://www.yahoo.com/news/japanese-prime-minister-kishida-tells-213120467.html)
 - Apr 08 - [Russian convicts who earned their freedom fighting Ukraine are going home with swagger and a stash of money to burn: NYT](https://www.yahoo.com/news/russian-convicts-earned-freedom-fighting-053551629.html)
-- Apr 08 - [Trump says he'll announce his position on abortion Monday, a key moment in the presidential race](https://www.yahoo.com/news/trump-says-hell-announce-position-044229364.html)
 - Apr 08 - [Malaysian shoemaker apologizes for high heels with logo that some say resemble Arab writing for God](https://www.yahoo.com/news/malaysian-shoemaker-apologizes-high-heels-042323360.html)
 - Apr 08 - [Philippines will continue dialogue with China to ease South China Sea tensions, says president](https://www.yahoo.com/news/philippines-continue-dialogue-china-ease-042011190.html)
 - Apr 08 - [Trump says he will disclose abortion policy on Monday](https://www.yahoo.com/news/trump-says-disclose-abortion-policy-023947692.html)
