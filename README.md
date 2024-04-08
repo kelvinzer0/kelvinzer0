@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Trump says he'll announce his position on abortion Monday, a key moment in the presidential race](https://www.yahoo.com/news/trump-says-hell-announce-position-044229364.html)
 - Apr 08 - [Malaysian shoemaker apologizes for high heels with logo that some say resemble Arab writing for God](https://www.yahoo.com/news/malaysian-shoemaker-apologizes-high-heels-042323360.html)
 - Apr 08 - [Philippines will continue dialogue with China to ease South China Sea tensions, says president](https://www.yahoo.com/news/philippines-continue-dialogue-china-ease-042011190.html)
 - Apr 08 - [Trump says he will disclose abortion policy on Monday](https://www.yahoo.com/news/trump-says-disclose-abortion-policy-023947692.html)
 - Apr 08 - [‘I didn’t think it’d be empty’: Eclipse crowds much less than expected in Texas Hill Country](https://www.yahoo.com/news/didn-t-think-d-empty-023630314.html)
+- Apr 08 - [Brazil Supreme Court justice orders investigation of Elon Musk over fake news and obstruction](https://www.yahoo.com/news/brazil-supreme-court-justice-investigating-020420002.html)
 <!-- feed end -->
 
 ### Onstream
