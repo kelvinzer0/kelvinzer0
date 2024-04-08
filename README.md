@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Trump says he will disclose abortion policy on Monday](https://www.yahoo.com/news/trump-says-disclose-abortion-policy-023947692.html)
 - Apr 08 - [Brazil Supreme Court justice orders investigation of Elon Musk over fake news and obstruction](https://www.yahoo.com/news/brazil-supreme-court-justice-investigating-020420002.html)
 - Apr 07 - ['I'm an Oncologist and This Is the Dinner I Swear By for Cancer Prevention'](https://www.yahoo.com/lifestyle/im-oncologist-dinner-swear-cancer-232500844.html)
 - Apr 07 - [Southwest flight from Denver makes emergency landing after 'mechanical issue,' airline says](https://www.yahoo.com/news/southwest-flight-denver-makes-emergency-191000125.html)
 - Apr 07 - [The internet is having a blast with these photos of Melania Trump looking peeved at a fundraiser](https://www.yahoo.com/entertainment/internet-having-blast-photos-melania-180713684.html)
-- Apr 07 - [UPDATE 5-Loss of engine cover on Southwest Boeing 737-800 prompts FAA investigation](https://finance.yahoo.com/news/1-us-faa-investigate-loss-175858430.html)
 <!-- feed end -->
 
 ### Onstream
