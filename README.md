@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Trump Says States Should Decide on Abortion](https://finance.yahoo.com/video/trump-says-states-decide-abortion-223717146.html)
+- Apr 08 - [Donald Trump's media company falls 12%, extends selloff](https://finance.yahoo.com/news/donald-trumps-media-company-falls-222555610.html)
+- Apr 08 - [N.Y. Pediatrician Was Trying to 'Secure' Door When She Was 'Thrown' from Moving Trailer, Daughter Says](https://www.yahoo.com/news/n-y-pediatrician-trying-secure-215728491.html)
+- Apr 08 - [Fact Check: Kyle Rittenhouse Purportedly Was 'Banned' from Marines After Badly Failing Military Entrance Exam. Here Are the Facts](https://www.yahoo.com/news/fact-check-kyle-rittenhouse-purportedly-214000476.html)
 - Apr 08 - ['Slap in the face': Mike Pence blasts Donald Trump for saying abortion restrictions should be up to states](https://www.yahoo.com/news/slap-face-mike-pence-blasts-212811022.html)
-- Apr 08 - [Policewoman recorded officer trying to rape her as he used training to pin her down, jury hears](https://www.yahoo.com/news/policewoman-recorded-officer-trying-rape-204539010.html)
-- Apr 08 - [Trump Hush-Money Case Got Two New Witnesses—and It’s Not Looking Good](https://www.yahoo.com/news/trump-hush-money-case-got-203827665.html)
-- Apr 08 - [Medical Professionals, What Are Some "Small," Everyday Habits That Can Drastically Improve Your Health?](https://www.yahoo.com/lifestyle/medical-professionals-small-everyday-habits-203733134.html)
-- Apr 08 - [Tesla rises on robotaxi announcement: Trending ticker](https://finance.yahoo.com/video/tesla-rises-robotaxi-announcement-trending-203630912.html)
 <!-- feed end -->
 
 ### Onstream
