@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [An espionage scandal rocks Austria, laying bare alleged Russian spying operations across Europe](https://www.yahoo.com/news/espionage-scandal-rocks-austria-laying-120142176.html)
 - Apr 08 - [Donald Trump’s Reported Peace Plan In Ukraine Is Revealed. Expert Says It’s ‘Terrible’](https://www.yahoo.com/news/donald-trump-reported-peace-plan-115301977.html)
-- Apr 08 - [Video appears to show Ukrainian soldiers walking up and stealing a souped-up Russian tank](https://www.yahoo.com/news/video-appears-show-ukrainian-soldiers-112303569.html)
+- Apr 08 - [‘We have reached the limit.’ Clash with Elon Musk prompts calls for social media controls in Brazil](https://finance.yahoo.com/news/reached-limit-clash-elon-musk-110838593.html)
 - Apr 08 - [Country star Morgan Wallen arrested after throwing chair off rooftop for 'no legitimate purpose,' police say](https://www.yahoo.com/entertainment/country-star-morgan-wallen-arrested-104504551.html)
-- Apr 08 - [Men punching random women in NYC: A desperate last gasp of the male rage fueling MAGA](https://www.yahoo.com/news/men-punching-random-women-nyc-100005215.html)
 - Apr 08 - [Palestinians returning to Khan Younis after Israeli withdrawal find an unrecognizable city](https://www.yahoo.com/news/palestinians-returning-khan-younis-israeli-093206627.html)
 <!-- feed end -->
 
