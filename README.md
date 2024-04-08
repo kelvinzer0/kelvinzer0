@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 07 - [Venezuelan ‘migrant influencer’ who encouraged squatting complains from jail he’s victim of persecution](https://www.yahoo.com/news/venezuelan-migrant-influencer-encouraged-squatting-200314123.html)
 - Apr 07 - [Southwest flight from Denver makes emergency landing after 'mechanical issue,' airline says](https://www.yahoo.com/news/southwest-flight-denver-makes-emergency-191000125.html)
 - Apr 07 - [The internet is having a blast with these photos of Melania Trump looking peeved at a fundraiser](https://www.yahoo.com/entertainment/internet-having-blast-photos-melania-180713684.html)
 - Apr 07 - [Marjorie Taylor Greene Responds to Backlash Over Comments About Northeast Earthquake](https://www.yahoo.com/news/marjorie-taylor-greene-responds-backlash-173443389.html)
 - Apr 07 - [Seven Powerball players across US win $1 million. Where were winning tickets sold?](https://www.yahoo.com/news/seven-powerball-players-across-us-154618039.html)
-- Apr 07 - [Trump: it would be 'great honor' to go to jail for violating gag order](https://www.yahoo.com/news/trump-great-honor-jail-violating-154224413.html)
 <!-- feed end -->
 
 ### Onstream
