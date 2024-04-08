@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Everything to know about the total eclipse, Biden’s new student loan forgiveness plan and what’s next for Caitlin Clark](https://www.yahoo.com/news/everything-to-know-about-the-total-eclipse-bidens-new-student-loan-forgiveness-plan-and-whats-next-for-caitlin-clark-125324462.html)
 - Apr 08 - [An espionage scandal rocks Austria, laying bare alleged Russian spying operations across Europe](https://www.yahoo.com/news/espionage-scandal-rocks-austria-laying-120142176.html)
+- Apr 08 - [Spain to scupper 'golden visas' for foreign real estate investors](https://www.yahoo.com/news/spain-scupper-golden-visas-foreign-115917107.html)
 - Apr 08 - [Donald Trump’s Reported Peace Plan In Ukraine Is Revealed. Expert Says It’s ‘Terrible’](https://www.yahoo.com/news/donald-trump-reported-peace-plan-115301977.html)
 - Apr 08 - [‘We have reached the limit.’ Clash with Elon Musk prompts calls for social media controls in Brazil](https://finance.yahoo.com/news/reached-limit-clash-elon-musk-110838593.html)
-- Apr 08 - [Country star Morgan Wallen arrested after throwing chair off rooftop for 'no legitimate purpose,' police say](https://www.yahoo.com/entertainment/country-star-morgan-wallen-arrested-104504551.html)
-- Apr 08 - [Palestinians returning to Khan Younis after Israeli withdrawal find an unrecognizable city](https://www.yahoo.com/news/palestinians-returning-khan-younis-israeli-093206627.html)
 <!-- feed end -->
 
 ### Onstream
