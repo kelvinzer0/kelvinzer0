@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Solar eclipse 2024: An eerie darkness descends - in pictures](https://www.yahoo.com/news/solar-eclipse-2024-crowds-gather-161530915.html)
+- Apr 08 - [3 dead, including suspect, after shooting inside Las Vegas law office, police say](https://www.yahoo.com/news/3-dead-including-shooter-shooting-191723679.html)
+- Apr 08 - [Trump's abortion statement angers conservatives and gives the Biden campaign a new target](https://www.yahoo.com/news/trumps-abortion-statement-angers-conservatives-191341062.html)
 - Apr 08 - [Trump sues judge overseeing his hush money case](https://www.yahoo.com/news/trump-sues-judge-overseeing-hush-185819372.html)
 - Apr 08 - [RFK Jr. Adviser Makes Shocking Admission about Campaign’s True Goal](https://www.yahoo.com/news/rfk-jr-adviser-makes-shocking-184120920.html)
-- Apr 08 - [Amid probe into Musk, Brazil's top court says 'every company is subject to the constitution'](https://finance.yahoo.com/news/amid-probe-musk-brazils-top-182929204.html)
 - Apr 08 - [NASA Spots Object Speeding Around the Moon](https://www.yahoo.com/tech/nasa-spots-object-speeding-around-181921778.html)
 <!-- feed end -->
 
