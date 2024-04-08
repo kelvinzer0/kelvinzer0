@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Boeing woes: Southwest plane malfunctions during takeoff](https://finance.yahoo.com/video/boeing-woes-southwest-plane-malfunctions-142716474.html)
+- Apr 08 - [Missouri to reduce risk of suffering if man requires surgical procedure at execution](https://www.yahoo.com/news/missouri-reduce-risk-suffering-man-151618001.html)
+- Apr 08 - [Spain will scrap 'golden visas' that allow wealthy non-EU residents to stay if they buy real estate](https://finance.yahoo.com/news/spain-scrap-golden-visas-allow-150841288.html)
+- Apr 08 - [Maps show where trillions of cicadas will emerge in the U.S. this spring](https://www.yahoo.com/news/maps-show-where-trillions-cicadas-150715126.html)
 - Apr 08 - [Biden could miss the deadline for the November ballot in Ohio, the state's election office says](https://www.yahoo.com/news/biden-could-miss-deadline-november-142617830.html)
-- Apr 08 - [Air Force contractor who walked into moving propeller had 'inadequate training' when killed](https://www.yahoo.com/news/air-force-contractor-walked-moving-141548400.html)
-- Apr 08 - [Drone footage shows a lively Gaza turned to wasteland since war began](https://www.yahoo.com/news/drone-footage-shows-lively-gaza-140229546.html)
-- Apr 08 - [Saudi crown prince meets Pakistani premier, stresses India-Pakistan dialogue](https://www.yahoo.com/news/saudi-crown-prince-meets-pakistani-120801803.html)
+- Apr 08 - [Trump's "Truth Social" Stock Crashes as Soon as Market Opens](https://finance.yahoo.com/news/trumps-truth-social-stock-crashes-142329175.html)
 <!-- feed end -->
 
 ### Onstream
