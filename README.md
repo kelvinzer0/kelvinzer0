@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 08 - [Parents of Oxford High School shooter face sentencing as pioneering case reaches its conclusion](https://www.yahoo.com/news/parents-oxford-high-school-shooter-163414192.html)
+- Apr 08 - [“Incomprehensible”: Experts say Trump’s $175 million bond makes no sense](https://finance.yahoo.com/news/incomprehensible-experts-trump-175-million-153908921.html)
+- Apr 08 - [Trump Admits He Only Wants White People to Come to the U.S.](https://www.yahoo.com/news/trump-admits-only-wants-white-151913182.html)
 - Apr 08 - [Missouri to reduce risk of suffering if man requires surgical procedure at execution](https://www.yahoo.com/news/missouri-reduce-risk-suffering-man-151618001.html)
 - Apr 08 - [Spain will scrap 'golden visas' that allow wealthy non-EU residents to stay if they buy real estate](https://finance.yahoo.com/news/spain-scrap-golden-visas-allow-150841288.html)
-- Apr 08 - [Maps show where trillions of cicadas will emerge in the U.S. this spring](https://www.yahoo.com/news/maps-show-where-trillions-cicadas-150715126.html)
-- Apr 08 - [Biden could miss the deadline for the November ballot in Ohio, the state's election office says](https://www.yahoo.com/news/biden-could-miss-deadline-november-142617830.html)
-- Apr 08 - [Trump's "Truth Social" Stock Crashes as Soon as Market Opens](https://finance.yahoo.com/news/trumps-truth-social-stock-crashes-142329175.html)
 <!-- feed end -->
 
 ### Onstream
