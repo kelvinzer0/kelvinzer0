@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Biden administration announces $6.6 billion to ensure leading-edge microchips are built in the US](https://finance.yahoo.com/news/biden-administration-announces-6-6-090301774.html)
+- Apr 08 - [Men punching random women in NYC: A desperate last gasp of the male rage fueling MAGA](https://www.yahoo.com/news/men-punching-random-women-nyc-100005215.html)
+- Apr 08 - [Palestinians returning to Khan Younis after Israeli withdrawal find an unrecognizable city](https://www.yahoo.com/news/palestinians-returning-khan-younis-israeli-093206627.html)
+- Apr 08 - [Gen Z wants student loan forgiveness without any accountability. It doesn't work that way.](https://finance.yahoo.com/news/gen-z-wants-student-loan-090546468.html)
 - Apr 08 - [Alex Rodriguez lost 32 pounds last year. He says one of the biggest changes to his diet is eating way less meat.](https://www.yahoo.com/entertainment/alex-rodriguez-lost-32-pounds-083425673.html)
 - Apr 08 - [Dem Lawmaker Trolls Republicans By Daring Them To Give Trump This 1 Backhanded Honor](https://www.yahoo.com/news/dem-lawmaker-trolls-republicans-daring-083149648.html)
-- Apr 08 - [Yellen says US will not accept its industries being decimated by cheap Chinese imports](https://finance.yahoo.com/news/yellen-says-u-not-accept-065045537.html)
-- Apr 08 - [Russian convicts who earned their freedom fighting Ukraine are going home with swagger and a stash of money to burn: NYT](https://www.yahoo.com/news/russian-convicts-earned-freedom-fighting-053551629.html)
 <!-- feed end -->
 
 ### Onstream
