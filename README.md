@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Everything to know about the total eclipse, Biden’s new student loan forgiveness plan and what’s next for Caitlin Clark](https://www.yahoo.com/news/everything-to-know-about-the-total-eclipse-bidens-new-student-loan-forgiveness-plan-and-whats-next-for-caitlin-clark-125324462.html)
-- Apr 08 - [An espionage scandal rocks Austria, laying bare alleged Russian spying operations across Europe](https://www.yahoo.com/news/espionage-scandal-rocks-austria-laying-120142176.html)
-- Apr 08 - [Spain to scupper 'golden visas' for foreign real estate investors](https://www.yahoo.com/news/spain-scupper-golden-visas-foreign-115917107.html)
-- Apr 08 - [Donald Trump’s Reported Peace Plan In Ukraine Is Revealed. Expert Says It’s ‘Terrible’](https://www.yahoo.com/news/donald-trump-reported-peace-plan-115301977.html)
-- Apr 08 - [‘We have reached the limit.’ Clash with Elon Musk prompts calls for social media controls in Brazil](https://finance.yahoo.com/news/reached-limit-clash-elon-musk-110838593.html)
+- Apr 08 - [Boeing woes: Southwest plane malfunctions during takeoff](https://finance.yahoo.com/video/boeing-woes-southwest-plane-malfunctions-142716474.html)
+- Apr 08 - [Biden could miss the deadline for the November ballot in Ohio, the state's election office says](https://www.yahoo.com/news/biden-could-miss-deadline-november-142617830.html)
+- Apr 08 - [Air Force contractor who walked into moving propeller had 'inadequate training' when killed](https://www.yahoo.com/news/air-force-contractor-walked-moving-141548400.html)
+- Apr 08 - [Drone footage shows a lively Gaza turned to wasteland since war began](https://www.yahoo.com/news/drone-footage-shows-lively-gaza-140229546.html)
+- Apr 08 - [Saudi crown prince meets Pakistani premier, stresses India-Pakistan dialogue](https://www.yahoo.com/news/saudi-crown-prince-meets-pakistani-120801803.html)
 <!-- feed end -->
 
 ### Onstream
