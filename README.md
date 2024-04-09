@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 09 - [Special counsel urges US Supreme Court to reject Trump immunity bid](https://www.yahoo.com/news/special-counsel-urges-us-supreme-000042631.html)
-- Apr 08 - [Trump says he's proud of role in overturning Roe v. Wade](https://www.yahoo.com/news/trump-says-hes-proud-role-233315231.html)
 - Apr 08 - [Trump attacks Lindsey Graham during social media back-and-forth](https://www.yahoo.com/news/trump-attacks-lindsey-graham-during-232920089.html)
+- Apr 08 - [Trump takes credit for Roe v. Wade reversal; says states should decide abortion laws](https://www.yahoo.com/news/trump-takes-credit-roe-v-230903624.html)
 - Apr 08 - [Donald Trump's media company falls 12%, extends selloff](https://finance.yahoo.com/news/donald-trumps-media-company-falls-222555610.html)
 - Apr 08 - [N.Y. Pediatrician Was Trying to 'Secure' Door When She Was 'Thrown' from Moving Trailer, Daughter Says](https://www.yahoo.com/news/n-y-pediatrician-trying-secure-215728491.html)
 <!-- feed end -->
