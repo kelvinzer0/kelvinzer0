@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Stop storing all your money in a checking account. Here's why.](https://finance.yahoo.com/video/stop-storing-money-checking-account-152639468.html)
+- Apr 09 - [Biden proposes 'wealth tax' for Americans with over $100M](https://finance.yahoo.com/video/biden-proposes-wealth-tax-americans-163120267.html)
+- Apr 09 - [Oral surgeon who guided prison guard through extraction of inmate's teeth given absolute discharge](https://www.yahoo.com/news/oral-surgeon-guided-prison-guard-161724713.html)
 - Apr 09 - [Planet Fitness Has Been 'Pretty Much Destroyed,' Says Company Founder Amid Speculation On Boycott Cancellations](https://finance.yahoo.com/news/planet-fitness-pretty-much-destroyed-150010141.html)
+- Apr 09 - [If a potential juror answers yes to this question about Trump, they’ll be removed from jury pool](https://www.yahoo.com/news/potential-juror-answers-yes-trump-144449638.html)
 - Apr 09 - [Woman Who ‘Wilfully’ Gave Boy Harmful Laxatives That Affected His Development Jailed for 7 Years](https://www.yahoo.com/news/woman-wilfully-gave-boy-harmful-143002533.html)
-- Apr 09 - [US transfers thousands of seized Iranian guns, rocket launchers and munitions to Ukraine](https://www.yahoo.com/news/us-transfers-thousands-seized-iranian-142453452.html)
-- Apr 09 - [Police zero in on person of interest as investigations into missing woman, human remains ramp up](https://www.yahoo.com/news/police-zero-person-interest-investigations-141011250.html)
 <!-- feed end -->
 
 ### Onstream
