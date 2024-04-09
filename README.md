@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Trump 'not above the law': Special Counsel to SCOTUS](https://www.yahoo.com/news/trump-not-above-law-special-082906304.html)
+- Apr 09 - [Trial opens in Thailand for the son of Spanish actors over the killing of a Colombian surgeon](https://www.yahoo.com/news/trial-opens-thailand-son-spanish-084911949.html)
 - Apr 09 - [Jon Stewart says the Arab states won't give Palestinians citizenship because they're really terrified of the 'Islamists' they backed](https://www.yahoo.com/news/jon-stewart-says-arab-states-070856284.html)
 - Apr 09 - [Marjorie Taylor Greene Mocked After Spilling Accidental Truth About Republicans](https://www.yahoo.com/news/marjorie-taylor-greene-mocked-spilling-045044777.html)
 - Apr 09 - [More than 200 women and several men accuse doctor in lawsuit of sexual abuse, unnecessary exams](https://www.yahoo.com/news/more-200-women-several-men-042915063.html)
