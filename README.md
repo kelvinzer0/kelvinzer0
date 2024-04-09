@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Biden proposes 'wealth tax' for Americans with over $100M](https://finance.yahoo.com/video/biden-proposes-wealth-tax-americans-163120267.html)
+- Apr 09 - [Colobus Monkey Mom Shows Off New Baby at Indiana Zoo](https://www.yahoo.com/news/colobus-monkey-mom-shows-off-171822248.html)
+- Apr 09 - [Republican operatives to pay $1.25 million for robocalls threatening Black voters, NY prosecutor says](https://www.yahoo.com/news/republican-operatives-pay-1-25-170511480.html)
+- Apr 09 - [The little-known disaster paralysing both the US and Royal Navies](https://www.yahoo.com/news/little-known-disaster-paralysing-both-163729999.html)
+- Apr 09 - ["Unprecedented": Jared Kushner’s “unusual” dependence on foreign money shocks other investors](https://finance.yahoo.com/news/unprecedented-jared-kushner-unusual-dependence-162054342.html)
 - Apr 09 - [Oral surgeon who guided prison guard through extraction of inmate's teeth given absolute discharge](https://www.yahoo.com/news/oral-surgeon-guided-prison-guard-161724713.html)
-- Apr 09 - [Planet Fitness Has Been 'Pretty Much Destroyed,' Says Company Founder Amid Speculation On Boycott Cancellations](https://finance.yahoo.com/news/planet-fitness-pretty-much-destroyed-150010141.html)
-- Apr 09 - [If a potential juror answers yes to this question about Trump, they’ll be removed from jury pool](https://www.yahoo.com/news/potential-juror-answers-yes-trump-144449638.html)
-- Apr 09 - [Woman Who ‘Wilfully’ Gave Boy Harmful Laxatives That Affected His Development Jailed for 7 Years](https://www.yahoo.com/news/woman-wilfully-gave-boy-harmful-143002533.html)
 <!-- feed end -->
 
 ### Onstream
