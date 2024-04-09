@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 09 - [Oklahoma judge orders Kansas City Chiefs superfan 'ChiefsAholic' to pay $10.8M to bank teller](https://www.yahoo.com/news/oklahoma-judge-orders-kansas-city-190141362.html)
 - Apr 09 - [Videos show Chicago police fired nearly 100 shots over 41 seconds during fatal traffic stop](https://www.yahoo.com/news/videos-show-chicago-police-fired-183202649.html)
+- Apr 09 - [Florida woman is sentenced to a month in jail for selling Biden's daughter's diary](https://www.yahoo.com/news/florida-woman-sentenced-month-jail-182720120.html)
 - Apr 09 - [Jim Jordan shows how Trump would pressure private companies to do his bidding](https://www.yahoo.com/news/jim-jordan-shows-trump-pressure-223642355.html)
-- Apr 09 - [An Arizona court ruling makes nearly all abortions illegal in a presidential battleground state](https://www.yahoo.com/news/arizona-court-ruling-makes-nearly-175930382.html)
-- Apr 09 - [18-year-old in Idaho planned to attack more than 21 churches on behalf of ISIS, feds say](https://www.yahoo.com/news/18-old-idaho-planned-attack-173933906.html)
-- Apr 09 - [Ancient sea turtle housed at Boston aquarium for more than 50 years passes another physical](https://www.yahoo.com/news/ancient-sea-turtle-housed-boston-173430609.html)
+- Apr 09 - [Jennifer Crumbley issues warning during her sentencing](https://www.yahoo.com/news/jennifer-crumbley-issues-warning-during-172420442.html)
 <!-- feed end -->
 
 ### Onstream
