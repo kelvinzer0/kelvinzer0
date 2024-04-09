@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Marjorie Taylor Greene Receives A Withering New Nickname From Ken Buck](https://www.yahoo.com/news/marjorie-taylor-greene-receives-withering-115912204.html)
-- Apr 09 - [Suspected smugglers were caught trying to hide $10 million of gold by painting it silver and disguising it as machinery on a cargo plane](https://www.yahoo.com/news/suspected-smugglers-were-caught-trying-104411508.html)
+- Apr 09 - [Death investigation underway after body found in pond on near northeast side](https://www.yahoo.com/news/death-investigation-underway-body-found-124817324.html)
+- Apr 09 - [Pakistan deploys more than 100,000 police and paramilitary forces ahead of Eid al-Fitr](https://www.yahoo.com/news/pakistan-deploys-more-100-000-112716989.html)
+- Apr 09 - [The reality of spending $500 billion to build a city in the desert is starting to hit home for Saudi officials](https://www.yahoo.com/tech/reality-spending-500-billion-build-110202254.html)
+- Apr 09 - [China trying to gain space through force, US admiral says](https://www.yahoo.com/news/china-trying-gain-space-force-104656345.html)
 - Apr 09 - [Goldberg: The latest sign that Republicans are abandoning even their most deeply held principles](https://www.yahoo.com/news/goldberg-latest-sign-republicans-abandoning-103057061.html)
-- Apr 09 - [Ex-Prosecutor Burns Donald Trump With 1 Biting Question About Latest Legal Moves](https://www.yahoo.com/news/ex-prosecutor-burns-donald-trump-094255970.html)
-- Apr 09 - [Trial opens in Thailand for the son of Spanish actors over the killing of a Colombian surgeon](https://www.yahoo.com/news/trial-opens-thailand-son-spanish-084911949.html)
 <!-- feed end -->
 
 ### Onstream
