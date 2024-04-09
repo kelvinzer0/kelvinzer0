@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 09 - [Trump 'not above the law': Special Counsel to SCOTUS](https://www.yahoo.com/news/trump-not-above-law-special-082906304.html)
+- Apr 09 - [Jon Stewart says the Arab states won't give Palestinians citizenship because they're really terrified of the 'Islamists' they backed](https://www.yahoo.com/news/jon-stewart-says-arab-states-070856284.html)
 - Apr 09 - [Marjorie Taylor Greene Mocked After Spilling Accidental Truth About Republicans](https://www.yahoo.com/news/marjorie-taylor-greene-mocked-spilling-045044777.html)
 - Apr 09 - [More than 200 women and several men accuse doctor in lawsuit of sexual abuse, unnecessary exams](https://www.yahoo.com/news/more-200-women-several-men-042915063.html)
 - Apr 09 - [Pediatrician on way to see solar eclipse dies after falling out of Airstream: Reports](https://www.yahoo.com/news/pediatrician-way-see-solar-eclipse-025508337.html)
-- Apr 09 - [‘Elegant’: Nixon White House counsel reacts to newest special counsel filing](https://www.yahoo.com/news/elegant-nixon-white-house-counsel-015124814.html)
-- Apr 09 - [Former Chicago Mayor Lori Lightfoot hired to investigate so-called 'worst mayor in America' at $400 an hour](https://www.yahoo.com/news/former-chicago-mayor-lori-lightfoot-014948331.html)
 <!-- feed end -->
 
 ### Onstream
