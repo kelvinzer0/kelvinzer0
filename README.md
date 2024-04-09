@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Apr 09 - [Marjorie Taylor Greene Mocked After Spilling Accidental Truth About Republicans](https://www.yahoo.com/news/marjorie-taylor-greene-mocked-spilling-045044777.html)
 - Apr 09 - [More than 200 women and several men accuse doctor in lawsuit of sexual abuse, unnecessary exams](https://www.yahoo.com/news/more-200-women-several-men-042915063.html)
 - Apr 09 - [Pediatrician on way to see solar eclipse dies after falling out of Airstream: Reports](https://www.yahoo.com/news/pediatrician-way-see-solar-eclipse-025508337.html)
-- Apr 09 - [‘Elegant’: Nixon White House counsel reacts to newest special counsel filing](https://www.yahoo.com/news/elegant-nixon-white-house-counsel-015124814.html)
 - Apr 09 - [Why these Black voters in key state say they won’t vote for Biden](https://www.yahoo.com/news/why-black-voters-key-state-014525628.html)
+- Apr 09 - [Person comes forward to claim $1.3 billion Powerball jackpot in Oregon](https://finance.yahoo.com/news/person-comes-forward-claim-1-004241162.html)
 <!-- feed end -->
 
 ### Onstream
