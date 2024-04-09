@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Speaker Johnson will delay sending Mayorkas impeachment to Senate as Republicans push to hold trial](https://www.yahoo.com/news/speaker-johnson-delay-sending-mayorkas-202756998.html)
-- Apr 09 - [Moderna stock jumps on positive data for cancer vaccine](https://finance.yahoo.com/video/moderna-stock-jumps-positive-data-202051395.html)
-- Apr 09 - [U.S. announces $138 million in emergency military sales of Hawk missile systems support for Ukraine](https://www.yahoo.com/news/u-announces-138-million-emergency-200421004.html)
-- Apr 09 - [Former assistant principal charged with child neglect in case of 6-year-old boy who shot teacher](https://www.yahoo.com/news/former-assistant-principal-charged-child-194910951.html)
-- Apr 09 - [15 Incredibly Hilarious Fails From The Internet This Week That Will Make You Die Of Laughter](https://www.yahoo.com/entertainment/15-incredibly-hilarious-fails-internet-193251194.html)
+- Apr 09 - [Newsom's 'California Dream' Faces $26K 'Cost-of-living Penalty,' Homelessness Director Flees High-Cost State After Another Eviction](https://finance.yahoo.com/news/newsoms-california-dream-faces-26k-210014260.html)
+- Apr 09 - ['Fantastic Four' actress Jessica Alba to step down as creative chief at Honest Company](https://finance.yahoo.com/news/fantastic-four-actress-jessica-alba-205348238.html)
+- Apr 09 - [Company that made millions of defective sleep apnea machines ordered to overhaul manufacturing](https://www.yahoo.com/news/company-made-millions-defective-sleep-203125854.html)
+- Apr 09 - [House to delay sending Mayorkas impeachment articles to Senate](https://www.yahoo.com/news/speaker-johnson-delay-sending-mayorkas-202756998.html)
+- Apr 09 - [A Chicago traffic stop turned fatal. Here’s what bodycam footage shows](https://www.yahoo.com/news/chicago-traffic-stop-turned-fatal-200531747.html)
 <!-- feed end -->
 
 ### Onstream
