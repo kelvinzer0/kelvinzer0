@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 09 - [Person comes forward to claim $1.3 billion Powerball jackpot in Oregon](https://finance.yahoo.com/news/person-comes-forward-claim-1-004241162.html)
 - Apr 09 - [Special counsel urges US Supreme Court to reject Trump immunity bid](https://www.yahoo.com/news/special-counsel-urges-us-supreme-000042631.html)
+- Apr 08 - ['Genius' pre-med student seen on Ring video holding knife seconds before allegedly stabbing his mom to death](https://www.yahoo.com/news/genius-pre-med-student-seen-234303396.html)
 - Apr 08 - [Trump attacks Lindsey Graham during social media back-and-forth](https://www.yahoo.com/news/trump-attacks-lindsey-graham-during-232920089.html)
 - Apr 08 - [Trump takes credit for Roe v. Wade reversal; says states should decide abortion laws](https://www.yahoo.com/news/trump-takes-credit-roe-v-230903624.html)
-- Apr 08 - [Donald Trump's media company falls 12%, extends selloff](https://finance.yahoo.com/news/donald-trumps-media-company-falls-222555610.html)
-- Apr 08 - [N.Y. Pediatrician Was Trying to 'Secure' Door When She Was 'Thrown' from Moving Trailer, Daughter Says](https://www.yahoo.com/news/n-y-pediatrician-trying-secure-215728491.html)
 <!-- feed end -->
 
 ### Onstream
