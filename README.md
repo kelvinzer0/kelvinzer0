@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 09 - [Marjorie Taylor Greene Receives A Withering New Nickname From Ken Buck](https://www.yahoo.com/news/marjorie-taylor-greene-receives-withering-115912204.html)
+- Apr 09 - [Suspected smugglers were caught trying to hide $10 million of gold by painting it silver and disguising it as machinery on a cargo plane](https://www.yahoo.com/news/suspected-smugglers-were-caught-trying-104411508.html)
+- Apr 09 - [Goldberg: The latest sign that Republicans are abandoning even their most deeply held principles](https://www.yahoo.com/news/goldberg-latest-sign-republicans-abandoning-103057061.html)
+- Apr 09 - [Ex-Prosecutor Burns Donald Trump With 1 Biting Question About Latest Legal Moves](https://www.yahoo.com/news/ex-prosecutor-burns-donald-trump-094255970.html)
 - Apr 09 - [Trial opens in Thailand for the son of Spanish actors over the killing of a Colombian surgeon](https://www.yahoo.com/news/trial-opens-thailand-son-spanish-084911949.html)
-- Apr 09 - [Jon Stewart says the Arab states won't give Palestinians citizenship because they're really terrified of the 'Islamists' they backed](https://www.yahoo.com/news/jon-stewart-says-arab-states-070856284.html)
-- Apr 09 - [Marjorie Taylor Greene Mocked After Spilling Accidental Truth About Republicans](https://www.yahoo.com/news/marjorie-taylor-greene-mocked-spilling-045044777.html)
-- Apr 09 - [More than 200 women and several men accuse doctor in lawsuit of sexual abuse, unnecessary exams](https://www.yahoo.com/news/more-200-women-several-men-042915063.html)
-- Apr 09 - [Pediatrician on way to see solar eclipse dies after falling out of Airstream: Reports](https://www.yahoo.com/news/pediatrician-way-see-solar-eclipse-025508337.html)
 <!-- feed end -->
 
 ### Onstream
