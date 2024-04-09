@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Charlie Munger Said, 'Find A Way To Get Your Hands On $100,000' Even If It Means Walking Everywhere — The Magic Number If You Want To Be Rich](https://finance.yahoo.com/news/charlie-munger-said-way-hands-140014519.html)
-- Apr 09 - [Donald Trump says abortion legislation should be left to the states](https://www.yahoo.com/news/donald-trump-says-abortion-legislation-133002546.html)
-- Apr 09 - [Amanda Knox faces a new slander trial in Italy that could remove the last legal stain against her](https://www.yahoo.com/news/amanda-knox-faces-slander-trial-130035994.html)
-- Apr 09 - [Bodycam footage shows Akron police shooting of teen determined to be holding a fake gun](https://www.yahoo.com/news/bodycam-footage-shows-akron-police-123014165.html)
-- Apr 09 - [Pakistan deploys more than 100,000 police and paramilitary forces ahead of Eid al-Fitr](https://www.yahoo.com/news/pakistan-deploys-more-100-000-112716989.html)
+- Apr 09 - [Stop storing all your money in a checking account. Here's why.](https://finance.yahoo.com/video/stop-storing-money-checking-account-152639468.html)
+- Apr 09 - [Planet Fitness Has Been 'Pretty Much Destroyed,' Says Company Founder Amid Speculation On Boycott Cancellations](https://finance.yahoo.com/news/planet-fitness-pretty-much-destroyed-150010141.html)
+- Apr 09 - [Woman Who ‘Wilfully’ Gave Boy Harmful Laxatives That Affected His Development Jailed for 7 Years](https://www.yahoo.com/news/woman-wilfully-gave-boy-harmful-143002533.html)
+- Apr 09 - [US transfers thousands of seized Iranian guns, rocket launchers and munitions to Ukraine](https://www.yahoo.com/news/us-transfers-thousands-seized-iranian-142453452.html)
+- Apr 09 - [Police zero in on person of interest as investigations into missing woman, human remains ramp up](https://www.yahoo.com/news/police-zero-person-interest-investigations-141011250.html)
 <!-- feed end -->
 
 ### Onstream
