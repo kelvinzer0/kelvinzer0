@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 09 - [Charlie Munger Said, 'Find A Way To Get Your Hands On $100,000' Even If It Means Walking Everywhere — The Magic Number If You Want To Be Rich](https://finance.yahoo.com/news/charlie-munger-said-way-hands-140014519.html)
 - Apr 09 - [Donald Trump says abortion legislation should be left to the states](https://www.yahoo.com/news/donald-trump-says-abortion-legislation-133002546.html)
 - Apr 09 - [Amanda Knox faces a new slander trial in Italy that could remove the last legal stain against her](https://www.yahoo.com/news/amanda-knox-faces-slander-trial-130035994.html)
+- Apr 09 - [Bodycam footage shows Akron police shooting of teen determined to be holding a fake gun](https://www.yahoo.com/news/bodycam-footage-shows-akron-police-123014165.html)
 - Apr 09 - [Pakistan deploys more than 100,000 police and paramilitary forces ahead of Eid al-Fitr](https://www.yahoo.com/news/pakistan-deploys-more-100-000-112716989.html)
-- Apr 09 - [The reality of spending $500 billion to build a city in the desert is starting to hit home for Saudi officials](https://www.yahoo.com/tech/reality-spending-500-billion-build-110202254.html)
-- Apr 09 - [China trying to gain space through force, US admiral says](https://www.yahoo.com/news/china-trying-gain-space-force-104656345.html)
 <!-- feed end -->
 
 ### Onstream
