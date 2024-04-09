@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Oklahoma judge orders Kansas City Chiefs superfan 'ChiefsAholic' to pay $10.8M to bank teller](https://www.yahoo.com/news/oklahoma-judge-orders-kansas-city-190141362.html)
-- Apr 09 - [Videos show Chicago police fired nearly 100 shots over 41 seconds during fatal traffic stop](https://www.yahoo.com/news/videos-show-chicago-police-fired-183202649.html)
-- Apr 09 - [Florida woman is sentenced to a month in jail for selling Biden's daughter's diary](https://www.yahoo.com/news/florida-woman-sentenced-month-jail-182720120.html)
-- Apr 09 - [Jim Jordan shows how Trump would pressure private companies to do his bidding](https://www.yahoo.com/news/jim-jordan-shows-trump-pressure-223642355.html)
-- Apr 09 - [Jennifer Crumbley issues warning during her sentencing](https://www.yahoo.com/news/jennifer-crumbley-issues-warning-during-172420442.html)
+- Apr 09 - [Speaker Johnson will delay sending Mayorkas impeachment to Senate as Republicans push to hold trial](https://www.yahoo.com/news/speaker-johnson-delay-sending-mayorkas-202756998.html)
+- Apr 09 - [Moderna stock jumps on positive data for cancer vaccine](https://finance.yahoo.com/video/moderna-stock-jumps-positive-data-202051395.html)
+- Apr 09 - [U.S. announces $138 million in emergency military sales of Hawk missile systems support for Ukraine](https://www.yahoo.com/news/u-announces-138-million-emergency-200421004.html)
+- Apr 09 - [Former assistant principal charged with child neglect in case of 6-year-old boy who shot teacher](https://www.yahoo.com/news/former-assistant-principal-charged-child-194910951.html)
+- Apr 09 - [15 Incredibly Hilarious Fails From The Internet This Week That Will Make You Die Of Laughter](https://www.yahoo.com/entertainment/15-incredibly-hilarious-fails-internet-193251194.html)
 <!-- feed end -->
 
 ### Onstream
