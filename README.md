@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Person comes forward to claim $1.3 billion Powerball jackpot in Oregon](https://finance.yahoo.com/news/person-comes-forward-claim-1-004241162.html)
-- Apr 09 - [Special counsel urges US Supreme Court to reject Trump immunity bid](https://www.yahoo.com/news/special-counsel-urges-us-supreme-000042631.html)
+- Apr 09 - [Pediatrician on way to see solar eclipse dies after falling out of Airstream: Reports](https://www.yahoo.com/news/pediatrician-way-see-solar-eclipse-025508337.html)
+- Apr 09 - [‘Elegant’: Nixon White House counsel reacts to newest special counsel filing](https://www.yahoo.com/news/elegant-nixon-white-house-counsel-015124814.html)
+- Apr 09 - [Why these Black voters in key state say they won’t vote for Biden](https://www.yahoo.com/news/why-black-voters-key-state-014525628.html)
+- Apr 09 - [Most people moving to San Diego are from these 5 cities, according to Redfin](https://www.yahoo.com/news/most-people-moving-san-diego-001618540.html)
 - Apr 08 - ['Genius' pre-med student seen on Ring video holding knife seconds before allegedly stabbing his mom to death](https://www.yahoo.com/news/genius-pre-med-student-seen-234303396.html)
-- Apr 08 - [Trump attacks Lindsey Graham during social media back-and-forth](https://www.yahoo.com/news/trump-attacks-lindsey-graham-during-232920089.html)
-- Apr 08 - [Trump takes credit for Roe v. Wade reversal; says states should decide abortion laws](https://www.yahoo.com/news/trump-takes-credit-roe-v-230903624.html)
 <!-- feed end -->
 
 ### Onstream
