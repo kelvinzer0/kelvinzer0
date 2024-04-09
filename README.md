@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 09 - [Colobus Monkey Mom Shows Off New Baby at Indiana Zoo](https://www.yahoo.com/news/colobus-monkey-mom-shows-off-171822248.html)
-- Apr 09 - [Republican operatives to pay $1.25 million for robocalls threatening Black voters, NY prosecutor says](https://www.yahoo.com/news/republican-operatives-pay-1-25-170511480.html)
-- Apr 09 - [The little-known disaster paralysing both the US and Royal Navies](https://www.yahoo.com/news/little-known-disaster-paralysing-both-163729999.html)
-- Apr 09 - ["Unprecedented": Jared Kushner’s “unusual” dependence on foreign money shocks other investors](https://finance.yahoo.com/news/unprecedented-jared-kushner-unusual-dependence-162054342.html)
-- Apr 09 - [Oral surgeon who guided prison guard through extraction of inmate's teeth given absolute discharge](https://www.yahoo.com/news/oral-surgeon-guided-prison-guard-161724713.html)
+- Apr 09 - [Videos show Chicago police fired nearly 100 shots over 41 seconds during fatal traffic stop](https://www.yahoo.com/news/videos-show-chicago-police-fired-183202649.html)
+- Apr 09 - [Jim Jordan shows how Trump would pressure private companies to do his bidding](https://www.yahoo.com/news/jim-jordan-shows-trump-pressure-223642355.html)
+- Apr 09 - [An Arizona court ruling makes nearly all abortions illegal in a presidential battleground state](https://www.yahoo.com/news/arizona-court-ruling-makes-nearly-175930382.html)
+- Apr 09 - [18-year-old in Idaho planned to attack more than 21 churches on behalf of ISIS, feds say](https://www.yahoo.com/news/18-old-idaho-planned-attack-173933906.html)
+- Apr 09 - [Ancient sea turtle housed at Boston aquarium for more than 50 years passes another physical](https://www.yahoo.com/news/ancient-sea-turtle-housed-boston-173430609.html)
 <!-- feed end -->
 
 ### Onstream
