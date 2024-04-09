@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 08 - [Trump Says States Should Decide on Abortion](https://finance.yahoo.com/video/trump-says-states-decide-abortion-223717146.html)
+- Apr 09 - [Special counsel urges US Supreme Court to reject Trump immunity bid](https://www.yahoo.com/news/special-counsel-urges-us-supreme-000042631.html)
+- Apr 08 - [Trump says he's proud of role in overturning Roe v. Wade](https://www.yahoo.com/news/trump-says-hes-proud-role-233315231.html)
+- Apr 08 - [Trump attacks Lindsey Graham during social media back-and-forth](https://www.yahoo.com/news/trump-attacks-lindsey-graham-during-232920089.html)
 - Apr 08 - [Donald Trump's media company falls 12%, extends selloff](https://finance.yahoo.com/news/donald-trumps-media-company-falls-222555610.html)
 - Apr 08 - [N.Y. Pediatrician Was Trying to 'Secure' Door When She Was 'Thrown' from Moving Trailer, Daughter Says](https://www.yahoo.com/news/n-y-pediatrician-trying-secure-215728491.html)
-- Apr 08 - [Fact Check: Kyle Rittenhouse Purportedly Was 'Banned' from Marines After Badly Failing Military Entrance Exam. Here Are the Facts](https://www.yahoo.com/news/fact-check-kyle-rittenhouse-purportedly-214000476.html)
-- Apr 08 - ['Slap in the face': Mike Pence blasts Donald Trump for saying abortion restrictions should be up to states](https://www.yahoo.com/news/slap-face-mike-pence-blasts-212811022.html)
 <!-- feed end -->
 
 ### Onstream
