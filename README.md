@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 09 - [A Chicago traffic stop turned fatal. Here’s what bodycam footage shows](https://www.yahoo.com/news/chicago-traffic-stop-turned-fatal-200531747.html)
+- Apr 09 - [Sen. Bob Menendez's wife cites need for surgery in request to delay her trial](https://www.yahoo.com/news/sen-bob-menendezs-wife-cites-221502387.html)
+- Apr 09 - [Here’s who will pay for Biden’s student loan cancellations](https://finance.yahoo.com/news/heres-who-will-pay-for-bidens-student-loan-cancellations-211059829.html)
 - Apr 09 - [Newsom's 'California Dream' Faces $26K 'Cost-of-living Penalty,' Homelessness Director Flees High-Cost State After Another Eviction](https://finance.yahoo.com/news/newsoms-california-dream-faces-26k-210014260.html)
 - Apr 09 - ['Fantastic Four' actress Jessica Alba to step down as creative chief at Honest Company](https://finance.yahoo.com/news/fantastic-four-actress-jessica-alba-205348238.html)
-- Apr 09 - [Company that made millions of defective sleep apnea machines ordered to overhaul manufacturing](https://www.yahoo.com/news/company-made-millions-defective-sleep-203125854.html)
-- Apr 09 - [House to delay sending Mayorkas impeachment articles to Senate](https://www.yahoo.com/news/speaker-johnson-delay-sending-mayorkas-202756998.html)
-- Apr 09 - [A Chicago traffic stop turned fatal. Here’s what bodycam footage shows](https://www.yahoo.com/news/chicago-traffic-stop-turned-fatal-200531747.html)
 <!-- feed end -->
 
 ### Onstream
