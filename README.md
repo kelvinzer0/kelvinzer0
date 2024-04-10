@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Three sons of Hamas leader Haniyeh killed in Israeli airstrike](https://www.yahoo.com/news/three-sons-hamas-leader-haniyeh-153428894.html)
+- Apr 10 - [Father sentenced in Germany for attempted murder for injecting mercury into his daughter's foot](https://www.yahoo.com/news/father-sentenced-germany-attempted-murder-150555731.html)
 - Apr 10 - [Trump urges House Republicans to kill FISA bill, adding to headaches for Speaker Johnson](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
 - Apr 10 - [Hamas tells negotiators it doesn’t have 40 Israeli hostages needed for first round of ceasefire](https://www.yahoo.com/news/hamas-tells-negotiators-doesn-t-122909377.html)
 - Apr 10 - ["Nowhere to go": Experts say Judge Cannon reversed herself because Smith had her "dead to rights"](https://www.yahoo.com/news/nowhere-experts-judge-cannon-reversed-141017852.html)
-- Apr 10 - [Judge Takes Away Man's Dodge Charger Hellcat After He Acted Like A Hellcat Owner](https://www.yahoo.com/news/judge-takes-away-mans-dodge-134000619.html)
-- Apr 10 - [Fact Check: Viral Story Claims Vet Called Police After Reviewing Ultrasound of Horse Refusing to Give Birth. Here's the Truth](https://www.yahoo.com/news/fact-check-viral-story-claims-130000381.html)
 <!-- feed end -->
 
 ### Onstream
