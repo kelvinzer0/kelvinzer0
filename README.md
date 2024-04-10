@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Biden with 4-point lead over Trump in new poll](https://www.yahoo.com/news/biden-4-point-lead-over-054005574.html)
 - Apr 10 - [Ex-Trump CFO Allen Weisselberg to be sentenced for perjury, faces second stint in jail](https://www.yahoo.com/news/ex-trump-cfo-allen-weisselberg-040259357.html)
 - Apr 10 - [Trump Spokesperson Hilariously Self-Owns While Trying To Insult Joe Biden](https://www.yahoo.com/news/trump-spokesperson-hilariously-self-owns-035925644.html)
 - Apr 10 - [University of Washington football player arrested, charged with raping 2 women](https://sports.yahoo.com/university-washington-football-player-arrested-030258521.html)
 - Apr 10 - [US Coast Guard says boardings of Chinese fishing vessels in South Pacific legal](https://www.yahoo.com/news/us-coast-guard-says-boardings-021831335.html)
-- Apr 10 - [Witnesses in Trump documents case can remain private, judge rules](https://www.yahoo.com/news/witnesses-trump-documents-case-remain-000237536.html)
 <!-- feed end -->
 
 ### Onstream
