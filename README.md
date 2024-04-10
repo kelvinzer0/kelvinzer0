@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Iowa governor signs bill that gives state authority to arrest and deport some migrants](https://www.yahoo.com/news/iowa-governor-signs-bill-gives-210430540.html)
+- Apr 10 - [US military veteran accused of having explicit images of a child apparently joined Russian army](https://www.yahoo.com/news/us-military-veteran-accused-having-223950204.html)
 - Apr 10 - [Conservatives deal another blow to Speaker Johnson, defeating FISA rule after Trump push](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
+- Apr 10 - [Iowa governor signs bill that gives state authority to arrest and deport some migrants](https://www.yahoo.com/news/iowa-governor-signs-bill-gives-210430540.html)
 - Apr 10 - [Attackers laughed as they raped and murdered a woman in Israel on October 7, witness says](https://www.yahoo.com/news/attackers-laughed-raped-murdered-woman-000903312.html)
-- Apr 10 - [Disney Reveals ‘Final Straw’ for Firing ‘The Mandalorian’s’ Gina Carano](https://www.yahoo.com/entertainment/disney-reveals-final-straw-firing-201109396.html)
-- Apr 10 - [Letitia James is not done with Donald Trump. Now she wants to know if he withheld evidence in her fraud case.](https://www.yahoo.com/news/letitia-james-not-done-donald-200251346.html)
+- Apr 10 - [Rich Americans who want a backup plan are getting second passports. These are the countries they're choosing.](https://www.yahoo.com/news/rich-americans-want-backup-plan-203415996.html)
 <!-- feed end -->
 
 ### Onstream
