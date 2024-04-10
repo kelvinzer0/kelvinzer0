@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 10 - [Trump urges House Republicans to kill FISA bill, adding to headaches for Speaker Johnson](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
-- Apr 10 - [Trump attorneys trolled after they subpoena wrong Jeremy Rosenberg for hush money trial: ‘I’m keeping the $15’](https://www.yahoo.com/news/trump-attorneys-trolled-subpoena-wrong-104413925.html)
-- Apr 10 - [‘Skeletal Remains’ of Dylan Rounds Believed to Have Been Found 2 Years After He Vanished](https://www.yahoo.com/news/skeletal-remains-dylan-rounds-believed-091342138.html)
-- Apr 10 - [China's Xi says nobody can stop 'family reunion' with Taiwan](https://www.yahoo.com/news/chinese-president-xi-meets-former-081610938.html)
-- Apr 10 - [Dear Abby: Which relative should I give my nude photographs to once I die?](https://www.yahoo.com/lifestyle/dear-abby-relative-nude-photographs-070000788.html)
+- Apr 10 - [Hamas tells negotiators it doesn’t have 40 Israeli hostages needed for first round of ceasefire](https://www.yahoo.com/news/hamas-tells-negotiators-doesn-t-122909377.html)
+- Apr 10 - ["Nowhere to go": Experts say Judge Cannon reversed herself because Smith had her "dead to rights"](https://www.yahoo.com/news/nowhere-experts-judge-cannon-reversed-141017852.html)
+- Apr 10 - [Judge Takes Away Man's Dodge Charger Hellcat After He Acted Like A Hellcat Owner](https://www.yahoo.com/news/judge-takes-away-mans-dodge-134000619.html)
+- Apr 10 - [Fact Check: Viral Story Claims Vet Called Police After Reviewing Ultrasound of Horse Refusing to Give Birth. Here's the Truth](https://www.yahoo.com/news/fact-check-viral-story-claims-130000381.html)
 <!-- feed end -->
 
 ### Onstream
