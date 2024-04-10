@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Disney Reveals ‘Final Straw’ for Firing ‘The Mandalorian’s’ Gina Carano](https://www.yahoo.com/entertainment/disney-reveals-final-straw-firing-201109396.html)
+- Apr 10 - [Letitia James is not done with Donald Trump. Now she wants to know if he withheld evidence in her fraud case.](https://www.yahoo.com/news/letitia-james-not-done-donald-200251346.html)
+- Apr 10 - [Judge Breaks Gavel Ordering 60 Days in Jail for Former Sheriff](https://www.yahoo.com/news/judge-breaks-gavel-ordering-60-192802799.html)
+- Apr 10 - [Russia Seizes Over 650,000 Acres Of Farmland And Other Assets From Company With Ties To 'Unfriendly' Country](https://finance.yahoo.com/news/russia-seizes-over-650-000-192617579.html)
 - Apr 10 - [Why one country spent a small fortune to kill a single, elusive, furry predator](https://www.yahoo.com/news/why-one-country-spent-small-190025129.html)
-- Apr 10 - [Conservatives deal another blow to Speaker Johnson, defeating FISA rule after Trump push](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
-- Apr 10 - [Video of panicked people fleeing Myrtle Beach’s Ocean Boulevard goes viral. What happened?](https://www.yahoo.com/news/video-panicked-people-fleeing-myrtle-181952202.html)
-- Apr 10 - [RNC under Lara Trump spreads ‘massive fraud’ claims about 2020 election](https://www.yahoo.com/news/rnc-under-lara-trump-spreads-180948495.html)
-- Apr 10 - [Challenger to the judge in Trump's 2020 Georgia election interference case is disqualified](https://www.yahoo.com/news/challenger-judge-trumps-2020-georgia-174808824.html)
 <!-- feed end -->
 
 ### Onstream
