@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Why one country spent a small fortune to kill a single, elusive, furry predator](https://www.yahoo.com/news/why-one-country-spent-small-190025129.html)
+- Apr 10 - [Conservatives deal another blow to Speaker Johnson, defeating FISA rule after Trump push](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
+- Apr 10 - [Video of panicked people fleeing Myrtle Beach’s Ocean Boulevard goes viral. What happened?](https://www.yahoo.com/news/video-panicked-people-fleeing-myrtle-181952202.html)
 - Apr 10 - [RNC under Lara Trump spreads ‘massive fraud’ claims about 2020 election](https://www.yahoo.com/news/rnc-under-lara-trump-spreads-180948495.html)
 - Apr 10 - [Challenger to the judge in Trump's 2020 Georgia election interference case is disqualified](https://www.yahoo.com/news/challenger-judge-trumps-2020-georgia-174808824.html)
-- Apr 10 - [Boston pizza chain owner charged with defrauding U.S. Small Business Administration](https://finance.yahoo.com/news/boston-pizza-chain-owner-charged-173056725.html)
-- Apr 10 - [Mom’s Son Was ‘Fully Unconscious’ When Sorority Sisters Saved Him. They All Cried When He Began Breathing Again](https://www.yahoo.com/news/mom-son-fully-unconscious-sorority-171138738.html)
-- Apr 10 - ["You Are A Culinary Colonizer": People Are Calling For A Boycott Of David Chang's Momofuku After The Company Sent Cease-And-Desists To Asian-Owned Businesses](https://www.yahoo.com/news/trying-claim-ketchup-people-calling-030602567.html)
 <!-- feed end -->
 
 ### Onstream
