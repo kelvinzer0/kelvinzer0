@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Republican Sen. Rick Scott softens his abortion position after Florida Supreme Court ruling](https://www.yahoo.com/news/republican-sen-rick-scott-softens-174403084.html)
 - Apr 10 - ["You Are A Culinary Colonizer": People Are Calling For A Boycott Of David Chang's Momofuku After The Company Sent Cease-And-Desists To Asian-Owned Businesses](https://www.yahoo.com/news/trying-claim-ketchup-people-calling-030602567.html)
-- Apr 10 - [Biden says he's considering Australia's request to drop prosecution of Wikileaks founder Assange](https://www.yahoo.com/news/biden-says-hes-considering-australias-160152960.html)
-- Apr 10 - [FISA reauthorization bill at risk of collapse after Trump push, creating headache for Speaker Johnson](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
-- Apr 10 - [Father sentenced in Germany for attempted murder for injecting mercury into his daughter's foot](https://www.yahoo.com/news/father-sentenced-germany-attempted-murder-150555731.html)
-- Apr 10 - [A Fresno intersection is so dangerous, a YouTube channel shows its bad collisions](https://www.yahoo.com/news/fresno-intersection-dangerous-youtube-channel-150000161.html)
+- Apr 10 - [Japan is giving Washington 250 new cherry trees to replace those to be lost in construction work](https://www.yahoo.com/news/japan-giving-washington-250-cherry-164459434.html)
+- Apr 10 - [Mystery object found on Cape Cod beach linked to once top-secret program, park says](https://www.yahoo.com/news/mystery-object-found-cape-cod-163838688.html)
+- Apr 10 - [David Hume Kennerly resigns from Gerald Ford foundation board over refusal to honor Liz Cheney with top award](https://www.yahoo.com/news/david-hume-kennerly-resigns-gerald-161951864.html)
 <!-- feed end -->
 
 ### Onstream
