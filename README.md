@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [University of Washington football player arrested, charged with raping 2 women](https://sports.yahoo.com/university-washington-football-player-arrested-030258521.html)
 - Apr 10 - [Witnesses in Trump documents case can remain private, judge rules](https://www.yahoo.com/news/witnesses-trump-documents-case-remain-000237536.html)
 - Apr 09 - [Ohio police release body camera video of officer shooting 15-year-old boy who family says had toy gun](https://www.yahoo.com/news/ohio-police-release-body-camera-225702279.html)
 - Apr 09 - [A mother releases video of her autistic son being hit by an aide on a school bus to raise awareness](https://www.yahoo.com/news/mother-releases-video-her-autistic-211924926.html)
 - Apr 09 - [Here’s who will pay for Biden’s student loan cancellations](https://finance.yahoo.com/news/heres-who-will-pay-for-bidens-student-loan-cancellations-211059829.html)
-- Apr 09 - [Newsom's 'California Dream' Faces $26K 'Cost-of-living Penalty,' Homelessness Director Flees High-Cost State After Another Eviction](https://finance.yahoo.com/news/newsoms-california-dream-faces-26k-210014260.html)
 <!-- feed end -->
 
 ### Onstream
