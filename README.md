@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Trump urges House Republicans to kill FISA bill, adding to headaches for Speaker Johnson](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
 - Apr 10 - [Trump attorneys trolled after they subpoena wrong Jeremy Rosenberg for hush money trial: ‘I’m keeping the $15’](https://www.yahoo.com/news/trump-attorneys-trolled-subpoena-wrong-104413925.html)
-- Apr 10 - [Fox Guest Sparks Anger With Heartless Comment About Travel For Abortion](https://www.yahoo.com/news/fox-guest-sparks-anger-heartless-103846553.html)
 - Apr 10 - [‘Skeletal Remains’ of Dylan Rounds Believed to Have Been Found 2 Years After He Vanished](https://www.yahoo.com/news/skeletal-remains-dylan-rounds-believed-091342138.html)
+- Apr 10 - [China's Xi says nobody can stop 'family reunion' with Taiwan](https://www.yahoo.com/news/chinese-president-xi-meets-former-081610938.html)
 - Apr 10 - [Dear Abby: Which relative should I give my nude photographs to once I die?](https://www.yahoo.com/lifestyle/dear-abby-relative-nude-photographs-070000788.html)
-- Apr 10 - [Israel threatens to strike Iran directly if Iran launches attack from its territory](https://www.yahoo.com/news/iran-supreme-leader-reiterates-promise-062217519.html)
 <!-- feed end -->
 
 ### Onstream
