@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Three sons of Hamas leader Haniyeh killed in Israeli airstrike](https://www.yahoo.com/news/three-sons-hamas-leader-haniyeh-153428894.html)
+- Apr 10 - ["You Are A Culinary Colonizer": People Are Calling For A Boycott Of David Chang's Momofuku After The Company Sent Cease-And-Desists To Asian-Owned Businesses](https://www.yahoo.com/news/trying-claim-ketchup-people-calling-030602567.html)
+- Apr 10 - [Biden says he's considering Australia's request to drop prosecution of Wikileaks founder Assange](https://www.yahoo.com/news/biden-says-hes-considering-australias-160152960.html)
+- Apr 10 - [FISA reauthorization bill at risk of collapse after Trump push, creating headache for Speaker Johnson](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
 - Apr 10 - [Father sentenced in Germany for attempted murder for injecting mercury into his daughter's foot](https://www.yahoo.com/news/father-sentenced-germany-attempted-murder-150555731.html)
-- Apr 10 - [Trump urges House Republicans to kill FISA bill, adding to headaches for Speaker Johnson](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
-- Apr 10 - [Hamas tells negotiators it doesn’t have 40 Israeli hostages needed for first round of ceasefire](https://www.yahoo.com/news/hamas-tells-negotiators-doesn-t-122909377.html)
-- Apr 10 - ["Nowhere to go": Experts say Judge Cannon reversed herself because Smith had her "dead to rights"](https://www.yahoo.com/news/nowhere-experts-judge-cannon-reversed-141017852.html)
+- Apr 10 - [A Fresno intersection is so dangerous, a YouTube channel shows its bad collisions](https://www.yahoo.com/news/fresno-intersection-dangerous-youtube-channel-150000161.html)
 <!-- feed end -->
 
 ### Onstream
