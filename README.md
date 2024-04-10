@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 10 - [Witnesses in Trump documents case can remain private, judge rules](https://www.yahoo.com/news/witnesses-trump-documents-case-remain-000237536.html)
-- Apr 09 - [Ohio police release body camera video of officer shooting 15-year-old boy who had toy gun](https://www.yahoo.com/news/ohio-police-release-body-camera-225702279.html)
+- Apr 09 - [Ohio police release body camera video of officer shooting 15-year-old boy who family says had toy gun](https://www.yahoo.com/news/ohio-police-release-body-camera-225702279.html)
 - Apr 09 - [Lyft driver was kidnapped, drugged and raped by passenger in Alpharetta, police say](https://www.yahoo.com/news/lyft-driver-kidnapped-drugged-raped-200510016.html)
-- Apr 09 - [Sen. Bob Menendez's wife cites need for surgery in request to delay her trial](https://www.yahoo.com/news/sen-bob-menendezs-wife-cites-221502387.html)
 - Apr 09 - [Here’s who will pay for Biden’s student loan cancellations](https://finance.yahoo.com/news/heres-who-will-pay-for-bidens-student-loan-cancellations-211059829.html)
+- Apr 09 - [Newsom's 'California Dream' Faces $26K 'Cost-of-living Penalty,' Homelessness Director Flees High-Cost State After Another Eviction](https://finance.yahoo.com/news/newsoms-california-dream-faces-26k-210014260.html)
 <!-- feed end -->
 
 ### Onstream
