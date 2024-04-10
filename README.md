@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 10 - [Iowa governor signs bill that gives state authority to arrest and deport some migrants](https://www.yahoo.com/news/iowa-governor-signs-bill-gives-210430540.html)
+- Apr 10 - [Conservatives deal another blow to Speaker Johnson, defeating FISA rule after Trump push](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
+- Apr 10 - [Attackers laughed as they raped and murdered a woman in Israel on October 7, witness says](https://www.yahoo.com/news/attackers-laughed-raped-murdered-woman-000903312.html)
 - Apr 10 - [Disney Reveals ‘Final Straw’ for Firing ‘The Mandalorian’s’ Gina Carano](https://www.yahoo.com/entertainment/disney-reveals-final-straw-firing-201109396.html)
 - Apr 10 - [Letitia James is not done with Donald Trump. Now she wants to know if he withheld evidence in her fraud case.](https://www.yahoo.com/news/letitia-james-not-done-donald-200251346.html)
-- Apr 10 - [Judge Breaks Gavel Ordering 60 Days in Jail for Former Sheriff](https://www.yahoo.com/news/judge-breaks-gavel-ordering-60-192802799.html)
-- Apr 10 - [Russia Seizes Over 650,000 Acres Of Farmland And Other Assets From Company With Ties To 'Unfriendly' Country](https://finance.yahoo.com/news/russia-seizes-over-650-000-192617579.html)
-- Apr 10 - [Why one country spent a small fortune to kill a single, elusive, furry predator](https://www.yahoo.com/news/why-one-country-spent-small-190025129.html)
 <!-- feed end -->
 
 ### Onstream
