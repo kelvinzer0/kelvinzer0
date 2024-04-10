@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 10 - [Republican Sen. Rick Scott softens his abortion position after Florida Supreme Court ruling](https://www.yahoo.com/news/republican-sen-rick-scott-softens-174403084.html)
+- Apr 10 - [RNC under Lara Trump spreads ‘massive fraud’ claims about 2020 election](https://www.yahoo.com/news/rnc-under-lara-trump-spreads-180948495.html)
+- Apr 10 - [Challenger to the judge in Trump's 2020 Georgia election interference case is disqualified](https://www.yahoo.com/news/challenger-judge-trumps-2020-georgia-174808824.html)
+- Apr 10 - [Boston pizza chain owner charged with defrauding U.S. Small Business Administration](https://finance.yahoo.com/news/boston-pizza-chain-owner-charged-173056725.html)
+- Apr 10 - [Mom’s Son Was ‘Fully Unconscious’ When Sorority Sisters Saved Him. They All Cried When He Began Breathing Again](https://www.yahoo.com/news/mom-son-fully-unconscious-sorority-171138738.html)
 - Apr 10 - ["You Are A Culinary Colonizer": People Are Calling For A Boycott Of David Chang's Momofuku After The Company Sent Cease-And-Desists To Asian-Owned Businesses](https://www.yahoo.com/news/trying-claim-ketchup-people-calling-030602567.html)
-- Apr 10 - [Japan is giving Washington 250 new cherry trees to replace those to be lost in construction work](https://www.yahoo.com/news/japan-giving-washington-250-cherry-164459434.html)
-- Apr 10 - [Mystery object found on Cape Cod beach linked to once top-secret program, park says](https://www.yahoo.com/news/mystery-object-found-cape-cod-163838688.html)
-- Apr 10 - [David Hume Kennerly resigns from Gerald Ford foundation board over refusal to honor Liz Cheney with top award](https://www.yahoo.com/news/david-hume-kennerly-resigns-gerald-161951864.html)
 <!-- feed end -->
 
 ### Onstream
