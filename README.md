@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [Ex-Ford foundation member calls Liz Cheney 'only person on this planet' worthy of top award after snub he says was over Trump](https://www.yahoo.com/news/ex-ford-foundation-member-calls-191136742.html)
+- Apr 11 - [A Principal Confronted a Teenage Girl. Now He’s Facing Prison Time.](https://www.yahoo.com/news/principal-confronted-teenage-girl-now-184358371.html)
 - Apr 11 - [Want to visit Brazil? From next year, US travelers will need to share their bank statements first](https://www.yahoo.com/news/want-visit-brazil-next-us-162805474.html)
 - Apr 11 - [Trump tests limits of gag order with post insulting 2 likely witnesses in criminal trial](https://www.yahoo.com/news/trump-tests-limits-gag-order-174532516.html)
-- Apr 11 - [Muslim leaders are 'out of words' as they tire of the White House outreach on the war in Gaza](https://www.yahoo.com/news/muslim-leaders-words-tire-white-171649908.html)
-- Apr 11 - [Man’s ‘inappropriate conduct’ on dance floor leads to bar fight, broken jaw, North Ga. deputies say](https://www.yahoo.com/news/man-inappropriate-conduct-dance-floor-165004187.html)
-- Apr 11 - [Dad Takes Aim at Cruise Staff After 20-Year-Old Son’s Fatal Jump](https://www.yahoo.com/news/dad-takes-aim-cruise-staff-163335173.html)
+- Apr 11 - [Pastors respond after Trump says Christianity is under attack](https://www.yahoo.com/news/pastors-respond-trump-says-christianity-174139638.html)
 <!-- feed end -->
 
 ### Onstream
