@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [21-Year-Old Skier Dies Trying to Jump Over Colorado Highway](https://www.yahoo.com/news/21-old-skier-dies-trying-114728660.html)
 - Apr 11 - [Vietnam sentences real estate tycoon Truong My Lan to death in its largest-ever fraud case](https://finance.yahoo.com/news/vietnam-sentences-real-estate-tycoon-090021820.html)
 - Apr 11 - [Ex-Aide Reveals What 'Humiliated' Melania Trump Did After Stormy Daniels News](https://www.yahoo.com/entertainment/ex-aide-reveals-humiliated-melania-074644879.html)
 - Apr 11 - [John Bolton Reveals Who He'll Vote For And... Um...](https://www.yahoo.com/news/john-bolton-reveals-hell-vote-070250287.html)
 - Apr 11 - [Pacific castaways’ ‘HELP’ sign sparks US rescue mission – and an unexpected family reunion](https://www.yahoo.com/news/pacific-castaways-help-sign-sparks-054332919.html)
-- Apr 11 - [RFK Jr. New York campaign staff member Rita Palma has been fired](https://www.yahoo.com/news/rfk-jr-york-campaign-staff-042112592.html)
 <!-- feed end -->
 
 ### Onstream
