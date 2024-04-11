@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 11 - [US President Biden ‘considering’ dropping Assange charges](https://www.yahoo.com/news/us-president-biden-considering-dropping-135716464.html)
-- Apr 11 - [21-Year-Old Skier Dies Trying to Jump Over Colorado Highway](https://www.yahoo.com/news/21-old-skier-dies-trying-114728660.html)
-- Apr 11 - [Vietnam sentences real estate tycoon Truong My Lan to death in its largest-ever fraud case](https://finance.yahoo.com/news/vietnam-sentences-real-estate-tycoon-090021820.html)
-- Apr 11 - [Ex-Aide Reveals What 'Humiliated' Melania Trump Did After Stormy Daniels News](https://www.yahoo.com/entertainment/ex-aide-reveals-humiliated-melania-074644879.html)
-- Apr 11 - [John Bolton Reveals Who He'll Vote For And... Um...](https://www.yahoo.com/news/john-bolton-reveals-hell-vote-070250287.html)
+- Apr 11 - [Here’s who will pay for Biden’s student loan cancellations](https://finance.yahoo.com/news/heres-who-will-pay-for-bidens-student-loan-cancellations-211059829.html)
+- Apr 11 - [The US Air Force is bringing a 40-year-old supersonic bomber out of mothballs. This is why](https://www.yahoo.com/news/us-air-force-bringing-40-152519455.html)
+- Apr 11 - [Pacific castaways’ ‘HELP’ sign sparks US rescue mission – and an unexpected family reunion](https://www.yahoo.com/news/pacific-castaways-help-sign-sparks-054332919.html)
+- Apr 11 - ["She's on to something": NY AG Letitia James suggests Trump lawyers may have "withheld" evidence](https://www.yahoo.com/news/shes-something-ny-ag-letitia-143354174.html)
+- Apr 11 - [Trump’s Big Lie About Biden Implodes After MAGA Ally Admits Truth](https://www.yahoo.com/news/steve-bannon-accidentally-wrecks-one-141802201.html)
 <!-- feed end -->
 
 ### Onstream
