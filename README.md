@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [Water pouring out of rural Utah dam through 60-foot crack, putting nearby town at risk](https://www.yahoo.com/news/water-pouring-rural-utah-dam-003453807.html)
+- Apr 10 - [Judge in Trump's election interference case rejects 'hostages' label for jailed Jan. 6 defendants](https://www.yahoo.com/news/judge-trumps-election-interference-case-225315532.html)
 - Apr 10 - [US military veteran accused of having explicit images of a child apparently joined Russian army](https://www.yahoo.com/news/us-military-veteran-accused-having-223950204.html)
 - Apr 10 - [Conservatives deal another blow to Speaker Johnson, defeating FISA rule after Trump push](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
-- Apr 10 - [Iowa governor signs bill that gives state authority to arrest and deport some migrants](https://www.yahoo.com/news/iowa-governor-signs-bill-gives-210430540.html)
-- Apr 10 - [Attackers laughed as they raped and murdered a woman in Israel on October 7, witness says](https://www.yahoo.com/news/attackers-laughed-raped-murdered-woman-000903312.html)
-- Apr 10 - [Rich Americans who want a backup plan are getting second passports. These are the countries they're choosing.](https://www.yahoo.com/news/rich-americans-want-backup-plan-203415996.html)
+- Apr 10 - [Passenger Lands Plane After Pilot Suffers Medical Emergency](https://www.yahoo.com/news/passenger-lands-plane-pilot-suffers-214602023.html)
 <!-- feed end -->
 
 ### Onstream
