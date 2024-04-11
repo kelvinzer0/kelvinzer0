@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [Dad Takes Aim at Cruise Staff After 20-Year-Old Son’s Fatal Jump](https://www.yahoo.com/news/dad-takes-aim-cruise-staff-163335173.html)
 - Apr 11 - [Here’s who will pay for Biden’s student loan cancellations](https://finance.yahoo.com/news/heres-who-will-pay-for-bidens-student-loan-cancellations-211059829.html)
-- Apr 11 - [The US Air Force is bringing a 40-year-old supersonic bomber out of mothballs. This is why](https://www.yahoo.com/news/us-air-force-bringing-40-152519455.html)
-- Apr 11 - [Pacific castaways’ ‘HELP’ sign sparks US rescue mission – and an unexpected family reunion](https://www.yahoo.com/news/pacific-castaways-help-sign-sparks-054332919.html)
-- Apr 11 - ["She's on to something": NY AG Letitia James suggests Trump lawyers may have "withheld" evidence](https://www.yahoo.com/news/shes-something-ny-ag-letitia-143354174.html)
-- Apr 11 - [Trump’s Big Lie About Biden Implodes After MAGA Ally Admits Truth](https://www.yahoo.com/news/steve-bannon-accidentally-wrecks-one-141802201.html)
+- Apr 11 - [Mike Johnson and Donald Trump to promote bill to prevent non-citizens from voting](https://www.yahoo.com/news/mike-johnson-donald-trump-propose-161326371.html)
+- Apr 11 - [Ford sends 144,000 trucks toward North American dealers](https://finance.yahoo.com/news/ford-sends-144-000-trucks-160335760.html)
+- Apr 11 - [US Navy mocked for image of captain firing gun with back-to-front scope](https://www.yahoo.com/news/us-navy-mocked-image-captain-160125953.html)
 <!-- feed end -->
 
 ### Onstream
