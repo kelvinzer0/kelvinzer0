@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [Want to visit Brazil? From next year, US travelers will need to share their bank statements first](https://www.yahoo.com/news/want-visit-brazil-next-us-162805474.html)
 - Apr 11 - [Trump tests limits of gag order with post insulting 2 likely witnesses in criminal trial](https://www.yahoo.com/news/trump-tests-limits-gag-order-174532516.html)
-- Apr 11 - [17-year-old dies from gunshot after ‘friends’ run instead of helping him, Florida cops say](https://www.yahoo.com/news/17-old-dies-gunshot-friends-174127868.html)
+- Apr 11 - [Muslim leaders are 'out of words' as they tire of the White House outreach on the war in Gaza](https://www.yahoo.com/news/muslim-leaders-words-tire-white-171649908.html)
+- Apr 11 - [Man’s ‘inappropriate conduct’ on dance floor leads to bar fight, broken jaw, North Ga. deputies say](https://www.yahoo.com/news/man-inappropriate-conduct-dance-floor-165004187.html)
 - Apr 11 - [Dad Takes Aim at Cruise Staff After 20-Year-Old Son’s Fatal Jump](https://www.yahoo.com/news/dad-takes-aim-cruise-staff-163335173.html)
-- Apr 11 - [Mike Johnson and Donald Trump to promote bill to prevent non-citizens from voting](https://www.yahoo.com/news/mike-johnson-donald-trump-propose-161326371.html)
-- Apr 11 - [Ford sends 144,000 trucks toward North American dealers](https://finance.yahoo.com/news/ford-sends-144-000-trucks-160335760.html)
 <!-- feed end -->
 
 ### Onstream
