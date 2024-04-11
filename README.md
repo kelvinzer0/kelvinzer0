@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [Here's how investigators allege Ippei Mizuhara stole $16 million from Shohei Ohtani](https://www.yahoo.com/news/heres-investigators-allege-ippei-mizuhara-210049419.html)
+- Apr 11 - [Missing teen never came home from school — then cops get shocking call 13 years later](https://www.yahoo.com/news/missing-teen-never-came-home-204953355.html)
+- Apr 11 - [15 Celebrities Who Committed Horrific Crimes And Are In Jail Right Now](https://www.yahoo.com/entertainment/15-celebrities-committed-horrific-crimes-201602149.html)
 - Apr 11 - [8-year-old Kentucky boy died from fentanyl not from eating strawberries, coroner reveals](https://www.yahoo.com/news/8-old-kentucky-boy-died-191140003.html)
 - Apr 11 - [Ex-Ford foundation member calls Liz Cheney 'only person on this planet' worthy of top award after snub he says was over Trump](https://www.yahoo.com/news/ex-ford-foundation-member-calls-191136742.html)
-- Apr 11 - [A Principal Confronted a Teenage Girl. Now He’s Facing Prison Time.](https://www.yahoo.com/news/principal-confronted-teenage-girl-now-184358371.html)
-- Apr 11 - [Selma Unified employee arrested on alleged child sexual abuse charges, released on bail](https://www.yahoo.com/news/selma-unified-employee-arrested-alleged-183123208.html)
-- Apr 11 - [Trump couldn’t pardon Jan 6 rioters even if he wins in November, suggests new report](https://www.yahoo.com/news/trump-couldn-t-pardon-jan-175442867.html)
 <!-- feed end -->
 
 ### Onstream
