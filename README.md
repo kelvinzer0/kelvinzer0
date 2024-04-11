@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [John Bolton Reveals Who He'll Vote For And... Um...](https://www.yahoo.com/news/john-bolton-reveals-hell-vote-070250287.html)
+- Apr 11 - [Pacific castaways’ ‘HELP’ sign sparks US rescue mission – and an unexpected family reunion](https://www.yahoo.com/news/pacific-castaways-help-sign-sparks-054332919.html)
 - Apr 11 - [Hawaii-born sumo champion Akebono Taro dies at the age of 54 in Japan](https://sports.yahoo.com/hawaii-born-sumo-champion-akebono-045734738.html)
 - Apr 11 - [RFK Jr. New York campaign staff member Rita Palma has been fired](https://www.yahoo.com/news/rfk-jr-york-campaign-staff-042112592.html)
 - Apr 11 - [RNC under Lara Trump spreads ‘massive fraud’ claims about 2020 election](https://www.yahoo.com/news/rnc-under-lara-trump-spreads-180948495.html)
-- Apr 11 - [Conservatives deal another blow to Speaker Johnson, defeating FISA rule after Trump push](https://www.yahoo.com/news/trump-urges-house-republicans-kill-125512577.html)
-- Apr 11 - [Shohei Ohtani's ex-interpreter, Ippei Mizuhara, reportedly in negotiations to plead guilty in gambling scandal](https://sports.yahoo.com/shohei-ohtanis-ex-interpreter-ippei-mizuhara-reportedly-in-negotiations-to-plead-guilty-in-gambling-scandal-010338159.html)
 <!-- feed end -->
 
 ### Onstream
