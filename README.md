@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [Ex-Aide Reveals What 'Humiliated' Melania Trump Did After Stormy Daniels News](https://www.yahoo.com/entertainment/ex-aide-reveals-humiliated-melania-074644879.html)
 - Apr 11 - [John Bolton Reveals Who He'll Vote For And... Um...](https://www.yahoo.com/news/john-bolton-reveals-hell-vote-070250287.html)
 - Apr 11 - [Pacific castaways’ ‘HELP’ sign sparks US rescue mission – and an unexpected family reunion](https://www.yahoo.com/news/pacific-castaways-help-sign-sparks-054332919.html)
-- Apr 11 - [Hawaii-born sumo champion Akebono Taro dies at the age of 54 in Japan](https://sports.yahoo.com/hawaii-born-sumo-champion-akebono-045734738.html)
 - Apr 11 - [RFK Jr. New York campaign staff member Rita Palma has been fired](https://www.yahoo.com/news/rfk-jr-york-campaign-staff-042112592.html)
 - Apr 11 - [RNC under Lara Trump spreads ‘massive fraud’ claims about 2020 election](https://www.yahoo.com/news/rnc-under-lara-trump-spreads-180948495.html)
 <!-- feed end -->
