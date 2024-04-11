@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [Pacific castaways’ ‘HELP’ sign sparks US rescue mission – and an unexpected family reunion](https://www.yahoo.com/news/pacific-castaways-help-sign-sparks-054332919.html)
+- Apr 11 - [Putin mocks planned Ukraine conference and says Russia won't accept any enforced peace plans](https://www.yahoo.com/news/putin-mocks-planned-ukraine-conference-211748582.html)
 - Apr 11 - [Here's how investigators allege Ippei Mizuhara stole $16 million from Shohei Ohtani](https://www.yahoo.com/news/heres-investigators-allege-ippei-mizuhara-210049419.html)
 - Apr 11 - [Missing teen never came home from school — then cops get shocking call 13 years later](https://www.yahoo.com/news/missing-teen-never-came-home-204953355.html)
 - Apr 11 - [15 Celebrities Who Committed Horrific Crimes And Are In Jail Right Now](https://www.yahoo.com/entertainment/15-celebrities-committed-horrific-crimes-201602149.html)
-- Apr 11 - [8-year-old Kentucky boy died from fentanyl not from eating strawberries, coroner reveals](https://www.yahoo.com/news/8-old-kentucky-boy-died-191140003.html)
-- Apr 11 - [Ex-Ford foundation member calls Liz Cheney 'only person on this planet' worthy of top award after snub he says was over Trump](https://www.yahoo.com/news/ex-ford-foundation-member-calls-191136742.html)
 <!-- feed end -->
 
 ### Onstream
