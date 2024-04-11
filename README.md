@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [Trump tests limits of gag order with post insulting 2 likely witnesses in criminal trial](https://www.yahoo.com/news/trump-tests-limits-gag-order-174532516.html)
+- Apr 11 - [17-year-old dies from gunshot after ‘friends’ run instead of helping him, Florida cops say](https://www.yahoo.com/news/17-old-dies-gunshot-friends-174127868.html)
 - Apr 11 - [Dad Takes Aim at Cruise Staff After 20-Year-Old Son’s Fatal Jump](https://www.yahoo.com/news/dad-takes-aim-cruise-staff-163335173.html)
-- Apr 11 - [Here’s who will pay for Biden’s student loan cancellations](https://finance.yahoo.com/news/heres-who-will-pay-for-bidens-student-loan-cancellations-211059829.html)
 - Apr 11 - [Mike Johnson and Donald Trump to promote bill to prevent non-citizens from voting](https://www.yahoo.com/news/mike-johnson-donald-trump-propose-161326371.html)
 - Apr 11 - [Ford sends 144,000 trucks toward North American dealers](https://finance.yahoo.com/news/ford-sends-144-000-trucks-160335760.html)
-- Apr 11 - [US Navy mocked for image of captain firing gun with back-to-front scope](https://www.yahoo.com/news/us-navy-mocked-image-captain-160125953.html)
 <!-- feed end -->
 
 ### Onstream
