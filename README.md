@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [Dozens of Palestinians killed in Gaza as Hamas official vows to 'break' Israel](https://www.yahoo.com/news/dozens-palestinians-killed-gaza-hamas-130647886.html)
 - Apr 12 - [People Are Sharing The Extremely Small Inconveniences That Can Ruin A Day, And I've Never Felt So Seen In My Life](https://www.yahoo.com/lifestyle/people-sharing-extremely-small-inconveniences-110201311.html)
 - Apr 12 - [Fact Check: Trump Allegedly Asked in 1995, 'Is It Wrong to Be More Sexually Attracted to Your Own Daughter Than Your Wife.' Here Are the Facts](https://www.yahoo.com/news/fact-check-trump-allegedly-asked-110000598.html)
 - Apr 12 - ['Unprecedented' and 'stunning' number of Trump administration alums oppose his reelection](https://www.yahoo.com/news/unprecedented-stunning-number-trump-administration-090641415.html)
-- Apr 12 - [On eve of hush money trial, big, bold Donald Trump shows he's nothing but a giant chicken](https://www.yahoo.com/news/eve-hush-money-trial-big-080523088.html)
-- Apr 12 - [Donald Trump Jokes About How Longtime Aide Could End His Career In A Flash](https://www.yahoo.com/news/donald-trump-jokes-longtime-aide-073739620.html)
+- Apr 12 - [Newsmax Host Makes Geography Goof-Up For The Ages: 'Very Embarrassing Stuff'](https://www.yahoo.com/news/newsmax-host-makes-geography-goof-080626701.html)
 <!-- feed end -->
 
 ### Onstream
