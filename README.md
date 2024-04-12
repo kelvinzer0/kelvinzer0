@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [Washington rule could leave Biden off the November ballot, but state has a solution](https://www.yahoo.com/news/washington-becomes-latest-state-could-040400012.html)
+- Apr 12 - [Russian soldiers who quit Putin's war get no hero’s welcome abroad as asylum claims surge](https://www.yahoo.com/news/russian-soldiers-quit-putins-war-060725648.html)
+- Apr 12 - [FBI interview transcript reveals how Trump aide characterized boxes at Mar-a-Lago to investigators](https://www.yahoo.com/news/fbi-interview-transcript-reveals-trump-052758908.html)
+- Apr 12 - [If O.J. Simpson's assets go to court, Goldman, Brown families could be first in line](https://www.yahoo.com/news/o-j-simpsons-assets-court-042033248.html)
 - Apr 12 - [Convicted killer of college student Kristin Smart attacked at California prison for second time](https://www.yahoo.com/news/convicted-killer-college-student-kristin-033754178.html)
 - Apr 12 - [Trump attorney who became a crucial witness against him has departed legal team](https://www.yahoo.com/news/trump-attorney-became-crucial-witness-010038218.html)
-- Apr 12 - [Lauren Boebert's son says he has trouble affording a lawyer to defend him: 'It's just been kind of hard with the prices'](https://www.yahoo.com/news/lauren-boeberts-son-says-trouble-024102256.html)
-- Apr 12 - [Parents discovered bruises on their child. Then the school turned over video](https://www.yahoo.com/news/parents-discovered-bruises-child-then-002822599.html)
 <!-- feed end -->
 
 ### Onstream
