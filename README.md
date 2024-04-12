@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 12 - [Oops. Colorado lawmaker forgets loaded 9mm Glock unattended in capitol restroom](https://www.yahoo.com/news/oops-colorado-lawmaker-forgets-loaded-160843291.html)
-- Apr 12 - [Lauren Boebert's son says he's had trouble affording a lawyer to defend him: 'It's just been kind of hard with the prices'](https://www.yahoo.com/news/lauren-boeberts-son-says-trouble-024102256.html)
+- Apr 12 - [Austin is home to 10 billionaires. Here's who they are, and how they made their money](https://finance.yahoo.com/news/austin-home-10-billionaires-heres-155530621.html)
+- Apr 12 - [Former Strongsville football coach indicted on sex charges involving minors at West Geauga schools](https://www.yahoo.com/news/former-strongsville-football-coach-indicted-144450596.html)
+- Apr 12 - [Ohio catfish record? New Richmond 15-year-old catches monster while jug fishing](https://sports.yahoo.com/ohio-catfish-record-richmond-15-141730393.html)
 - Apr 12 - [Dozens of Palestinians killed in Gaza as Hamas official vows to 'break' Israel](https://www.yahoo.com/news/dozens-palestinians-killed-gaza-hamas-130647886.html)
-- Apr 12 - [Mike Pence lands new gig after failed 2024 presidential bid](https://www.yahoo.com/news/mike-pence-lands-gig-failed-123859384.html)
-- Apr 12 - [Fact Check: Trump Allegedly Asked in 1995, 'Is It Wrong to Be More Sexually Attracted to Your Own Daughter Than Your Wife.' Here Are the Facts](https://www.yahoo.com/news/fact-check-trump-allegedly-asked-110000598.html)
 <!-- feed end -->
 
 ### Onstream
