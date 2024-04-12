@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [Washington becomes latest state that could leave Biden off their November ballot](https://www.yahoo.com/news/washington-becomes-latest-state-could-040400012.html)
+- Apr 12 - [Convicted killer of college student Kristin Smart attacked at California prison for second time](https://www.yahoo.com/news/convicted-killer-college-student-kristin-033754178.html)
 - Apr 12 - [Trump attorney who became a crucial witness against him has departed legal team](https://www.yahoo.com/news/trump-attorney-became-crucial-witness-010038218.html)
 - Apr 12 - [Lauren Boebert's son says he has trouble affording a lawyer to defend him: 'It's just been kind of hard with the prices'](https://www.yahoo.com/news/lauren-boeberts-son-says-trouble-024102256.html)
 - Apr 12 - [Parents discovered bruises on their child. Then the school turned over video](https://www.yahoo.com/news/parents-discovered-bruises-child-then-002822599.html)
-- Apr 12 - [Former Obama adviser: Kushner engaged in ‘level of corruption that we’ve just never seen’ with foreign relations](https://www.yahoo.com/news/former-obama-advisor-kushner-engaged-002307981.html)
-- Apr 11 - [US airlines ask the Biden administration not to approve additional flights between the US and China](https://finance.yahoo.com/news/us-airlines-ask-biden-administration-232031104.html)
 <!-- feed end -->
 
 ### Onstream
