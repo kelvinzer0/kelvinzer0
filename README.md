@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 12 - [People Are Sharing The Extremely Small Inconveniences That Can Ruin A Day, And I've Never Felt So Seen In My Life](https://www.yahoo.com/lifestyle/people-sharing-extremely-small-inconveniences-110201311.html)
+- Apr 12 - [Fact Check: Trump Allegedly Asked in 1995, 'Is It Wrong to Be More Sexually Attracted to Your Own Daughter Than Your Wife.' Here Are the Facts](https://www.yahoo.com/news/fact-check-trump-allegedly-asked-110000598.html)
 - Apr 12 - ['Unprecedented' and 'stunning' number of Trump administration alums oppose his reelection](https://www.yahoo.com/news/unprecedented-stunning-number-trump-administration-090641415.html)
 - Apr 12 - [On eve of hush money trial, big, bold Donald Trump shows he's nothing but a giant chicken](https://www.yahoo.com/news/eve-hush-money-trial-big-080523088.html)
-- Apr 12 - [Georgia man who added antifreeze into breast milk for newborn daughter sentenced to prison](https://www.yahoo.com/news/georgia-man-added-antifreeze-breast-073149123.html)
-- Apr 12 - [Russian soldiers who quit Putin's war get no hero’s welcome abroad as asylum claims surge](https://www.yahoo.com/news/russian-soldiers-quit-putins-war-060725648.html)
+- Apr 12 - [Donald Trump Jokes About How Longtime Aide Could End His Career In A Flash](https://www.yahoo.com/news/donald-trump-jokes-longtime-aide-073739620.html)
 <!-- feed end -->
 
 ### Onstream
