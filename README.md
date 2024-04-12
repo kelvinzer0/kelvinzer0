@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [US intelligence finding shows China surging equipment sales to Russia to help war effort in Ukraine](https://www.yahoo.com/news/us-intelligence-finding-shows-china-183204749.html)
 - Apr 12 - [6 Super Shady Human Experiments The Government Has Literally Fessed Up To, Like, This Isn't Fake News](https://www.yahoo.com/news/6-super-shady-human-experiments-181602664.html)
 - Apr 12 - [Israeli settlers rampage through a West Bank village, killing 1 Palestinian and wounding 25](https://www.yahoo.com/news/israeli-settlers-rampage-west-bank-181520633.html)
-- Apr 12 - [Woman fails to show up for prison, then posts that she’s at the beach, officials say](https://www.yahoo.com/news/woman-fails-show-prison-then-175654526.html)
 - Apr 12 - [Neglect contributed to Jersey baby death, inquest concludes](https://www.yahoo.com/news/neglect-contributed-jersey-baby-death-164141282.html)
 - Apr 12 - [Oops. Colorado lawmaker forgets loaded 9mm Glock unattended in capitol restroom](https://www.yahoo.com/news/oops-colorado-lawmaker-forgets-loaded-160843291.html)
 <!-- feed end -->
