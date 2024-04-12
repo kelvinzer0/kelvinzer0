@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [Donald Trump Jokes About How Longtime Aide Could End His Career In A Flash](https://www.yahoo.com/news/donald-trump-jokes-longtime-aide-073739620.html)
 - Apr 12 - [Russian soldiers who quit Putin's war get no hero’s welcome abroad as asylum claims surge](https://www.yahoo.com/news/russian-soldiers-quit-putins-war-060725648.html)
 - Apr 12 - [FBI interview transcript reveals how Trump aide characterized boxes at Mar-a-Lago to investigators](https://www.yahoo.com/news/fbi-interview-transcript-reveals-trump-052758908.html)
 - Apr 12 - [If O.J. Simpson's assets go to court, Goldman, Brown families could be first in line](https://www.yahoo.com/news/o-j-simpsons-assets-court-042033248.html)
 - Apr 12 - [Convicted killer of college student Kristin Smart attacked at California prison for second time](https://www.yahoo.com/news/convicted-killer-college-student-kristin-033754178.html)
-- Apr 12 - [Trump attorney who became a crucial witness against him has departed legal team](https://www.yahoo.com/news/trump-attorney-became-crucial-witness-010038218.html)
 <!-- feed end -->
 
 ### Onstream
