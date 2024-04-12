@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [Opinion: How Trump plans to win the presidency](https://www.yahoo.com/news/opinion-trump-plans-win-presidency-151333950.html)
+- Apr 12 - [Oops. Colorado lawmaker forgets loaded 9mm Glock unattended in capitol restroom](https://www.yahoo.com/news/oops-colorado-lawmaker-forgets-loaded-160843291.html)
+- Apr 12 - [Lauren Boebert's son says he's had trouble affording a lawyer to defend him: 'It's just been kind of hard with the prices'](https://www.yahoo.com/news/lauren-boeberts-son-says-trouble-024102256.html)
 - Apr 12 - [Dozens of Palestinians killed in Gaza as Hamas official vows to 'break' Israel](https://www.yahoo.com/news/dozens-palestinians-killed-gaza-hamas-130647886.html)
+- Apr 12 - [Mike Pence lands new gig after failed 2024 presidential bid](https://www.yahoo.com/news/mike-pence-lands-gig-failed-123859384.html)
 - Apr 12 - [Fact Check: Trump Allegedly Asked in 1995, 'Is It Wrong to Be More Sexually Attracted to Your Own Daughter Than Your Wife.' Here Are the Facts](https://www.yahoo.com/news/fact-check-trump-allegedly-asked-110000598.html)
-- Apr 12 - [Newsmax Host Makes Geography Goof-Up For The Ages: 'Very Embarrassing Stuff'](https://www.yahoo.com/news/newsmax-host-makes-geography-goof-080626701.html)
-- Apr 12 - [On eve of hush money trial, big, bold Donald Trump shows he's nothing but a giant chicken](https://www.yahoo.com/news/eve-hush-money-trial-big-080523088.html)
 <!-- feed end -->
 
 ### Onstream
