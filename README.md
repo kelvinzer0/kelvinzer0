@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [Murdered Milkman Cold Case Solved More Than 60 Years Later](https://www.yahoo.com/news/murdered-milkman-cold-case-solved-201402975.html)
+- Apr 12 - [Riley Strain Case: Family Friend Reveals "Huge" Development](https://www.yahoo.com/news/riley-strain-case-family-friend-194755799.html)
+- Apr 12 - [Hard-liners vow retaliation against Republicans who sank FISA warrant mandate](https://www.yahoo.com/news/hard-liners-vow-retaliation-against-194400159.html)
 - Apr 12 - [US intelligence finding shows China surging equipment sales to Russia to help war effort in Ukraine](https://www.yahoo.com/news/us-intelligence-finding-shows-china-183204749.html)
 - Apr 12 - [6 Super Shady Human Experiments The Government Has Literally Fessed Up To, Like, This Isn't Fake News](https://www.yahoo.com/news/6-super-shady-human-experiments-181602664.html)
-- Apr 12 - [Israeli settlers rampage through a West Bank village, killing 1 Palestinian and wounding 25](https://www.yahoo.com/news/israeli-settlers-rampage-west-bank-181520633.html)
-- Apr 12 - [Neglect contributed to Jersey baby death, inquest concludes](https://www.yahoo.com/news/neglect-contributed-jersey-baby-death-164141282.html)
-- Apr 12 - [Oops. Colorado lawmaker forgets loaded 9mm Glock unattended in capitol restroom](https://www.yahoo.com/news/oops-colorado-lawmaker-forgets-loaded-160843291.html)
 <!-- feed end -->
 
 ### Onstream
