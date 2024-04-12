@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 11 - [US airlines ask the Biden administration not to approve additional flights between the US and China](https://finance.yahoo.com/news/us-airlines-ask-biden-administration-232031104.html)
+- Apr 11 - [House Speaker Mike Johnson negotiating with White House to advance Ukraine aid](https://www.yahoo.com/news/house-speaker-mike-johnson-negotiating-231026798.html)
 - Apr 11 - [Pacific castaways’ ‘HELP’ sign sparks US rescue mission – and an unexpected family reunion](https://www.yahoo.com/news/pacific-castaways-help-sign-sparks-054332919.html)
-- Apr 11 - [Putin mocks planned Ukraine conference and says Russia won't accept any enforced peace plans](https://www.yahoo.com/news/putin-mocks-planned-ukraine-conference-211748582.html)
-- Apr 11 - [Here's how investigators allege Ippei Mizuhara stole $16 million from Shohei Ohtani](https://www.yahoo.com/news/heres-investigators-allege-ippei-mizuhara-210049419.html)
-- Apr 11 - [Missing teen never came home from school — then cops get shocking call 13 years later](https://www.yahoo.com/news/missing-teen-never-came-home-204953355.html)
-- Apr 11 - [15 Celebrities Who Committed Horrific Crimes And Are In Jail Right Now](https://www.yahoo.com/entertainment/15-celebrities-committed-horrific-crimes-201602149.html)
+- Apr 11 - [Man who fired at Hennepin deputies in Minnetonka before his death was not subject of arrest warrant](https://www.yahoo.com/news/man-fired-hennepin-deputies-minnetonka-221700251.html)
+- Apr 11 - [New Report Reveals Matt Gaetz Is an Even Bigger Creep Than You Thought](https://www.yahoo.com/news/report-reveals-matt-gaetz-even-220015400.html)
 <!-- feed end -->
 
 ### Onstream
