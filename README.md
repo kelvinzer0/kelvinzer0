@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [6 Super Shady Human Experiments The Government Has Literally Fessed Up To, Like, This Isn't Fake News](https://www.yahoo.com/news/6-super-shady-human-experiments-181602664.html)
+- Apr 12 - [Woman fails to show up for prison, then posts that she’s at the beach, officials say](https://www.yahoo.com/news/woman-fails-show-prison-then-175654526.html)
 - Apr 12 - [Oops. Colorado lawmaker forgets loaded 9mm Glock unattended in capitol restroom](https://www.yahoo.com/news/oops-colorado-lawmaker-forgets-loaded-160843291.html)
 - Apr 12 - [Austin is home to 10 billionaires. Here's who they are, and how they made their money](https://finance.yahoo.com/news/austin-home-10-billionaires-heres-155530621.html)
-- Apr 12 - [Former Strongsville football coach indicted on sex charges involving minors at West Geauga schools](https://www.yahoo.com/news/former-strongsville-football-coach-indicted-144450596.html)
-- Apr 12 - [Ohio catfish record? New Richmond 15-year-old catches monster while jug fishing](https://sports.yahoo.com/ohio-catfish-record-richmond-15-141730393.html)
-- Apr 12 - [Dozens of Palestinians killed in Gaza as Hamas official vows to 'break' Israel](https://www.yahoo.com/news/dozens-palestinians-killed-gaza-hamas-130647886.html)
+- Apr 12 - [This job can pay $100K with no degree, and 1,800 spots are available. Hiring opens for 4 days.](https://www.yahoo.com/news/job-pay-100k-no-degree-150632999.html)
 <!-- feed end -->
 
 ### Onstream
