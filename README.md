@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [Trump attorney who became a crucial witness against him has departed legal team](https://www.yahoo.com/news/trump-attorney-became-crucial-witness-010038218.html)
 - Apr 11 - [US airlines ask the Biden administration not to approve additional flights between the US and China](https://finance.yahoo.com/news/us-airlines-ask-biden-administration-232031104.html)
-- Apr 11 - [House Speaker Mike Johnson negotiating with White House to advance Ukraine aid](https://www.yahoo.com/news/house-speaker-mike-johnson-negotiating-231026798.html)
 - Apr 11 - [Pacific castaways’ ‘HELP’ sign sparks US rescue mission – and an unexpected family reunion](https://www.yahoo.com/news/pacific-castaways-help-sign-sparks-054332919.html)
 - Apr 11 - [Man who fired at Hennepin deputies in Minnetonka before his death was not subject of arrest warrant](https://www.yahoo.com/news/man-fired-hennepin-deputies-minnetonka-221700251.html)
 - Apr 11 - [New Report Reveals Matt Gaetz Is an Even Bigger Creep Than You Thought](https://www.yahoo.com/news/report-reveals-matt-gaetz-even-220015400.html)
