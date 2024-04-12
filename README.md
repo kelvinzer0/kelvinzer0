@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 12 - [Kentucky GOP lawmakers remove Democratic governor's role in filling US Senate vacancies](https://www.yahoo.com/news/kentucky-gop-lawmakers-remove-democratic-223540329.html)
+- Apr 12 - [Judge declines to delay Trump’s NY hush money trial over complaints of pretrial publicity](https://www.yahoo.com/news/judge-declines-delay-trump-ny-214546836.html)
 - Apr 12 - [Murdered Milkman Cold Case Solved More Than 60 Years Later](https://www.yahoo.com/news/murdered-milkman-cold-case-solved-201402975.html)
 - Apr 12 - [Riley Strain Case: Family Friend Reveals "Huge" Development](https://www.yahoo.com/news/riley-strain-case-family-friend-194755799.html)
-- Apr 12 - [Hard-liners vow retaliation against Republicans who sank FISA warrant mandate](https://www.yahoo.com/news/hard-liners-vow-retaliation-against-194400159.html)
-- Apr 12 - [US intelligence finding shows China surging equipment sales to Russia to help war effort in Ukraine](https://www.yahoo.com/news/us-intelligence-finding-shows-china-183204749.html)
-- Apr 12 - [6 Super Shady Human Experiments The Government Has Literally Fessed Up To, Like, This Isn't Fake News](https://www.yahoo.com/news/6-super-shady-human-experiments-181602664.html)
+- Apr 12 - [6 Unbelievably Appalling Experiments The US Government Has Carried Out On Its Own People](https://www.yahoo.com/news/6-super-shady-human-experiments-181602664.html)
 <!-- feed end -->
 
 ### Onstream
