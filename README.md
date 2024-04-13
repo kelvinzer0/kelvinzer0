@@ -63,7 +63,7 @@ https://kelvinzer0.github.io
 - Apr 13 - [I Know I Shouldn't Laugh, But These Extremely Dumb Things People Posted On The Internet Last Week Are Absolutely Killing Me](https://www.yahoo.com/entertainment/know-shouldnt-laugh-extremely-dumb-124858890.html)
 - Apr 13 - [Israel finds the body of a teen whose disappearance sparked a deadly settler attack in the West Bank](https://www.yahoo.com/news/israel-body-boy-whose-disappearance-120151753.html)
 - Apr 13 - [Search continues in Maine as officer is charged with lying about taking missing person to hospital](https://www.yahoo.com/news/search-continues-maine-officer-charged-113018999.html)
-- Apr 13 - [More than 40 people still stranded the day after a deadly cable car accident in Turkey](https://www.yahoo.com/news/more-40-people-still-stranded-094246345.html)
+- Apr 13 - [174 people stranded in the air are rescued, almost a day after a fatal cable car accident in Turkey](https://www.yahoo.com/news/more-40-people-still-stranded-094246345.html)
 - Apr 13 - [Iran's Revolutionary Guard seizes a container ship near Strait of Hormuz amid tensions with Israel](https://www.yahoo.com/news/british-military-warns-possible-vessel-081956588.html)
 <!-- feed end -->
 
