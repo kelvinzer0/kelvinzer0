@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 12 - [US lawmakers angry after Huawei unveils laptop with new Intel AI chip](https://finance.yahoo.com/news/us-lawmakers-angry-huawei-unveils-235349439.html)
+- Apr 13 - [Guilty plea by leader of polygamous sect near the Arizona-Utah border is at risk of being thrown out](https://www.yahoo.com/news/guilty-plea-leader-polygamous-sect-000141423.html)
+- Apr 12 - [Dallas doctor convicted of tampering with IV bags linked to coworker's death and other emergencies](https://www.yahoo.com/news/dallas-doctor-convicted-tampering-iv-225649164.html)
 - Apr 12 - [Kentucky GOP lawmakers remove Democratic governor's role in filling US Senate vacancies](https://www.yahoo.com/news/kentucky-gop-lawmakers-remove-democratic-223540329.html)
 - Apr 12 - [California man sentenced to 40 years to life for fatal freeway shooting of 6-year-old boy](https://www.yahoo.com/news/california-man-sentenced-40-years-220919486.html)
 - Apr 12 - [Murdered Milkman Cold Case Solved More Than 60 Years Later](https://www.yahoo.com/news/murdered-milkman-cold-case-solved-201402975.html)
-- Apr 12 - [Israeli settlers rampage through a West Bank village, killing 1 Palestinian and wounding 25](https://www.yahoo.com/news/israeli-settlers-rampage-west-bank-181520633.html)
 <!-- feed end -->
 
 ### Onstream
