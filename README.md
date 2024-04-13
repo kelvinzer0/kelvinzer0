@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 13 - [Undercover Female Agent Recalls Infiltrating Infamous Biker Gang: ‘We're All Just Property of the Hells Angels’](https://www.yahoo.com/entertainment/undercover-female-agent-recalls-infiltrating-160000820.html)
 - Apr 13 - [Vatican complains after French court rules in favor of nun dismissed from religious order](https://www.yahoo.com/news/vatican-complains-french-court-rules-141357160.html)
+- Apr 13 - [Nearing 50 Supreme Court arguments in, lawyer Lisa Blatt keeps winning](https://www.yahoo.com/news/nearing-50-supreme-court-arguments-131138357.html)
 - Apr 13 - [I Know I Shouldn't Laugh, But These Extremely Dumb Things People Posted On The Internet Last Week Are Absolutely Killing Me](https://www.yahoo.com/entertainment/know-shouldnt-laugh-extremely-dumb-124858890.html)
-- Apr 13 - [West Bank sees some of its worst violence since war in Gaza began as Israeli teen's body is found](https://www.yahoo.com/news/israel-body-boy-whose-disappearance-120151753.html)
-- Apr 13 - [Search continues in Maine as officer is charged with lying about taking missing person to hospital](https://www.yahoo.com/news/search-continues-maine-officer-charged-113018999.html)
+- Apr 13 - [West Bank sees biggest settler rampage since war in Gaza began as Israeli teen's body is found](https://www.yahoo.com/news/israel-body-boy-whose-disappearance-120151753.html)
 <!-- feed end -->
 
 ### Onstream
