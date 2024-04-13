@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 13 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
 - Apr 12 - [Dallas doctor convicted of tampering with IV bags linked to coworker's death and other emergencies](https://www.yahoo.com/news/dallas-doctor-convicted-tampering-iv-225649164.html)
 - Apr 12 - [Kentucky GOP lawmakers remove Democratic governor's role in filling US Senate vacancies](https://www.yahoo.com/news/kentucky-gop-lawmakers-remove-democratic-223540329.html)
 - Apr 12 - [California man sentenced to 40 years to life for fatal freeway shooting of 6-year-old boy](https://www.yahoo.com/news/california-man-sentenced-40-years-220919486.html)
 - Apr 12 - [Murdered Milkman Cold Case Solved More Than 60 Years Later](https://www.yahoo.com/news/murdered-milkman-cold-case-solved-201402975.html)
-- Apr 12 - [Israeli settlers rampage through a West Bank village, killing 1 Palestinian and wounding 25](https://www.yahoo.com/news/israeli-settlers-rampage-west-bank-181520633.html)
 <!-- feed end -->
 
 ### Onstream
