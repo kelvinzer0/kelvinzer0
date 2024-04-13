@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Apr 12 - [Dallas doctor convicted of tampering with IV bags linked to coworker's death and other emergencies](https://www.yahoo.com/news/dallas-doctor-convicted-tampering-iv-225649164.html)
 - Apr 12 - [Kentucky GOP lawmakers remove Democratic governor's role in filling US Senate vacancies](https://www.yahoo.com/news/kentucky-gop-lawmakers-remove-democratic-223540329.html)
 - Apr 12 - [California man sentenced to 40 years to life for fatal freeway shooting of 6-year-old boy](https://www.yahoo.com/news/california-man-sentenced-40-years-220919486.html)
-- Apr 12 - [Victim punched and kicked more than 50 times in ‘unprovoked attack’ at Folsom park](https://www.yahoo.com/news/victim-punched-kicked-more-50-211029365.html)
+- Apr 12 - [Houston area teacher, son charged with recruiting teenage students for prostitution](https://www.yahoo.com/news/houston-area-teacher-son-charged-213608587.html)
 <!-- feed end -->
 
 ### Onstream
