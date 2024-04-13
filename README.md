@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 13 - [More than 40 people still stranded the day after a deadly cable car accident in Turkey](https://www.yahoo.com/news/more-40-people-still-stranded-094246345.html)
+- Apr 13 - [Police took possession of E. Jean Carroll's unregistered gun after her testimony in Trump defamation trial](https://www.yahoo.com/news/police-took-possession-e-jean-043311408.html)
 - Apr 13 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
 - Apr 12 - [Dallas doctor convicted of tampering with IV bags linked to coworker's death and other emergencies](https://www.yahoo.com/news/dallas-doctor-convicted-tampering-iv-225649164.html)
 - Apr 12 - [Kentucky GOP lawmakers remove Democratic governor's role in filling US Senate vacancies](https://www.yahoo.com/news/kentucky-gop-lawmakers-remove-democratic-223540329.html)
-- Apr 12 - [California man sentenced to 40 years to life for fatal freeway shooting of 6-year-old boy](https://www.yahoo.com/news/california-man-sentenced-40-years-220919486.html)
-- Apr 12 - [Houston area teacher, son charged with recruiting teenage students for prostitution](https://www.yahoo.com/news/houston-area-teacher-son-charged-213608587.html)
 <!-- feed end -->
 
 ### Onstream
