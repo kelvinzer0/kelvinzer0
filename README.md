@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 13 - [Israel finds the body of a teen whose disappearance sparked a deadly settler attack in the West Bank](https://www.yahoo.com/news/israel-body-boy-whose-disappearance-120151753.html)
 - Apr 13 - [More than 40 people still stranded the day after a deadly cable car accident in Turkey](https://www.yahoo.com/news/more-40-people-still-stranded-094246345.html)
 - Apr 13 - [Iran's Revolutionary Guard seizes a container ship near Strait of Hormuz amid tensions with Israel](https://www.yahoo.com/news/british-military-warns-possible-vessel-081956588.html)
 - Apr 13 - [10 years after armed standoff with federal agents, Bundy cattle are still grazing disputed rangeland](https://www.yahoo.com/news/10-years-armed-standoff-federal-080350716.html)
-- Apr 13 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
-- Apr 12 - [Dallas doctor convicted of tampering with IV bags linked to coworker's death and other emergencies](https://www.yahoo.com/news/dallas-doctor-convicted-tampering-iv-225649164.html)
+- Apr 13 - [Police took possession of E. Jean Carroll's unregistered gun after her testimony in Trump defamation trial](https://www.yahoo.com/news/police-took-possession-e-jean-043311408.html)
 <!-- feed end -->
 
 ### Onstream
