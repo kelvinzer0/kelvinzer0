@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [‘Massive failure of Israeli and American deterrence’: John Bolton on Iranian strikes](https://www.yahoo.com/news/massive-failure-israeli-american-deterrence-031707163.html)
-- Apr 14 - [Iran ally Venezuela follows 'worrying events' in Middle East](https://www.yahoo.com/news/iran-ally-venezuela-follows-worrying-034952682.html)
-- Apr 14 - [Man punches 9-year-old girl in the face at Grand Central Terminal: NYPD](https://www.yahoo.com/news/man-punches-9-old-girl-014447931.html)
-- Apr 13 - [Iran offers Israel off-ramp to 'conclude' attack after launching missiles, drones on Jewish state](https://www.yahoo.com/news/iran-offers-israel-off-ramp-234315634.html)
-- Apr 13 - [Police: 20 cars have windows smashed at N. High St. restaurant](https://www.yahoo.com/news/police-20-cars-windows-smashed-233117148.html)
+- Apr 14 - [Fallout from Trump's bid to overturn election loss heads to Supreme Court](https://www.yahoo.com/news/fallout-trumps-bid-overturn-election-100300785.html)
+- Apr 14 - [Moms for Liberty co-founder tells American parents they have something in common with Trump](https://www.yahoo.com/news/moms-liberty-co-founder-tells-090850839.html)
+- Apr 14 - [Sydney attacker Joel Cauchi was a teacher turned male escort](https://www.yahoo.com/news/sydney-attacker-teacher-turned-male-090141183.html)
+- Apr 14 - [Condemning 'death to America' chants should be easy. Not for liberal Michigan Gov. Whitmer.](https://www.yahoo.com/news/condemning-death-america-chants-easy-080214456.html)
+- Apr 14 - [Former undercover agent recalls infiltrating the Hells Angels: 'A dangerous game to play'](https://www.yahoo.com/news/former-undercover-agent-recalls-infiltrating-080056507.html)
 <!-- feed end -->
 
 ### Onstream
