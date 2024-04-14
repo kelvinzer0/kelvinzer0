@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 13 - [The world stands on the brink of all-out war](https://www.yahoo.com/news/world-stands-brink-war-222133967.html)
+- Apr 13 - [Jordan airforce shoots down Iranian drones flying over to Israel](https://www.yahoo.com/news/jordans-air-defence-ready-shoot-213037583.html)
+- Apr 13 - [UPDATE 3-Jordan airforce shoots down Iranian drones flying over to Israel](https://finance.yahoo.com/news/1-jordans-air-defence-ready-212838258.html)
+- Apr 13 - [Hamas rejects Israel's ceasefire response, sticks to main demands](https://www.yahoo.com/news/hamas-rejects-israels-ceasefire-response-201120613.html)
 - Apr 13 - [Authorities discover body after Florida woman is carjacked at gunpoint; had called husband to say she was being followed](https://www.yahoo.com/news/authorities-discover-body-florida-woman-194907950.html)
-- Apr 13 - [‘I just saw this empty pram’: How strangers frantically tried to help Ash Good and her baby](https://www.yahoo.com/news/just-saw-empty-pram-strangers-190817906.html)
-- Apr 13 - [The 1968 killing of a milkman who was a WWII veteran has been solved 56 years later](https://www.yahoo.com/news/1968-killing-milkman-wwii-veteran-171112552.html)
-- Apr 13 - [Gordon Ramsay’s pub taken over by brazen squatters who threaten legal action if evicted](https://www.yahoo.com/news/gordon-ramsay-pub-taken-over-164710628.html)
-- Apr 13 - [Undercover Female Agent Recalls Infiltrating Infamous Biker Gang: ‘We're All Just Property of the Hells Angels’](https://www.yahoo.com/entertainment/undercover-female-agent-recalls-infiltrating-160000820.html)
 <!-- feed end -->
 
 ### Onstream
