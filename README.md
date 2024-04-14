@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [She cleaned Phoenix mayors' offices for a decade. Then she was fired over her uniform](https://www.yahoo.com/news/she-cleaned-phoenix-mayors-offices-140039180.html)
-- Apr 14 - [I'm a conservative who was born and raised in California. I moved to Arizona for political reasons but only lasted 3 months.](https://www.yahoo.com/news/im-conservative-born-raised-california-120602782.html)
-- Apr 14 - [Fact check: Trump’s false and unsubstantiated claims about his Manhattan criminal case](https://www.yahoo.com/news/fact-check-trump-false-unsubstantiated-120006361.html)
-- Apr 14 - [A college student missed work after a date. Then her body parts were found scattered across the county](https://www.yahoo.com/news/college-student-missed-date-then-112246469.html)
-- Apr 14 - [Fallout from Trump's bid to overturn election loss heads to Supreme Court](https://www.yahoo.com/news/fallout-trumps-bid-overturn-election-100300785.html)
+- Apr 14 - [Small-time investors in Trump’s Truth Social reckon with stock collapse](https://www.yahoo.com/lifestyle/small-time-investors-trump-truth-185507366.html)
+- Apr 14 - [A harrowing trail of evidence led to an arrest in case of missing college student](https://www.yahoo.com/news/college-student-missed-date-then-112246469.html)
+- Apr 14 - [Iran has just exposed how impotent it really is](https://www.yahoo.com/news/iran-just-exposed-impotent-really-180000911.html)
+- Apr 14 - [How to catch a Russian submarine](https://www.yahoo.com/news/catch-russian-submarine-160000667.html)
+- Apr 14 - [Two men shove boulders off ancient rock formation in Nevada, wrecking it, video shows](https://www.yahoo.com/news/two-men-shove-boulders-off-154735168.html)
 <!-- feed end -->
 
 ### Onstream
