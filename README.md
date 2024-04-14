@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 14 - [She cleaned Phoenix mayors' offices for a decade. Then she was fired over her uniform](https://www.yahoo.com/news/she-cleaned-phoenix-mayors-offices-140039180.html)
+- Apr 14 - [I'm a conservative who was born and raised in California. I moved to Arizona for political reasons but only lasted 3 months.](https://www.yahoo.com/news/im-conservative-born-raised-california-120602782.html)
+- Apr 14 - [Fact check: Trump’s false and unsubstantiated claims about his Manhattan criminal case](https://www.yahoo.com/news/fact-check-trump-false-unsubstantiated-120006361.html)
+- Apr 14 - [A college student missed work after a date. Then her body parts were found scattered across the county](https://www.yahoo.com/news/college-student-missed-date-then-112246469.html)
 - Apr 14 - [Fallout from Trump's bid to overturn election loss heads to Supreme Court](https://www.yahoo.com/news/fallout-trumps-bid-overturn-election-100300785.html)
-- Apr 14 - [Moms for Liberty co-founder tells American parents they have something in common with Trump](https://www.yahoo.com/news/moms-liberty-co-founder-tells-090850839.html)
-- Apr 14 - [Sydney attacker Joel Cauchi was a teacher turned male escort](https://www.yahoo.com/news/sydney-attacker-teacher-turned-male-090141183.html)
-- Apr 14 - [Condemning 'death to America' chants should be easy. Not for liberal Michigan Gov. Whitmer.](https://www.yahoo.com/news/condemning-death-america-chants-easy-080214456.html)
-- Apr 14 - [Former undercover agent recalls infiltrating the Hells Angels: 'A dangerous game to play'](https://www.yahoo.com/news/former-undercover-agent-recalls-infiltrating-080056507.html)
 <!-- feed end -->
 
 ### Onstream
