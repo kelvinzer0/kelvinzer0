@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 14 - [Man punches 9-year-old girl in the face at Grand Central Terminal: NYPD](https://www.yahoo.com/news/man-punches-9-old-girl-014447931.html)
 - Apr 13 - [Iran offers Israel off-ramp to 'conclude' attack after launching missiles, drones on Jewish state](https://www.yahoo.com/news/iran-offers-israel-off-ramp-234315634.html)
 - Apr 13 - [Police: 20 cars have windows smashed at N. High St. restaurant](https://www.yahoo.com/news/police-20-cars-windows-smashed-233117148.html)
 - Apr 13 - [Jordan airforce shoots down Iranian drones flying over to Israel](https://www.yahoo.com/news/jordans-air-defence-ready-shoot-213037583.html)
 - Apr 13 - [Hamas rejects Israel's ceasefire response, sticks to main demands](https://www.yahoo.com/news/hamas-rejects-israels-ceasefire-response-201120613.html)
-- Apr 13 - [Authorities discover body after Florida woman is carjacked at gunpoint; had called husband to say she was being followed](https://www.yahoo.com/news/authorities-discover-body-florida-woman-194907950.html)
 <!-- feed end -->
 
 ### Onstream
