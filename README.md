@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 15 - [What Trump is signaling with his possible Treasury and Fed picks](https://finance.yahoo.com/news/what-trump-is-signaling-with-his-possible-treasury-and-fed-picks-140008359.html)
+- Apr 15 - [Critics Trash Trump For Most 'Deranged' Claim Yet Ahead Of Criminal Trial](https://www.yahoo.com/news/critics-trash-trump-most-deranged-080133097.html)
+- Apr 15 - [Pranksters Troll MAGA Faithful With Brutally Honest 'Trump Bible'](https://www.yahoo.com/news/pranksters-troll-maga-faithful-brutally-072358774.html)
 - Apr 15 - [Johnson signals he won’t put Senate supplemental on the floor despite increased pressure](https://www.yahoo.com/news/johnson-signals-won-t-put-224519266.html)
 - Apr 15 - [Beijing half marathon probes 'embarrassing' win by Chinese runner](https://sports.yahoo.com/beijing-half-marathon-probes-embarrassing-050228529.html)
-- Apr 15 - ['Dimbulb' Trump Torched After Rambling Attempt To Explain Gettysburg Goes Wrong](https://www.yahoo.com/news/dimbulb-trump-torched-rambling-attempt-042438659.html)
-- Apr 15 - [Missing California student contacts family after disappearing in L.A.](https://www.yahoo.com/news/missing-california-student-contacts-family-020934226.html)
 <!-- feed end -->
 
 ### Onstream
