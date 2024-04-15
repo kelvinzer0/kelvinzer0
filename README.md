@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 15 - [Supreme Court snubs House Republicans who dodged metal detectors in Congress after Jan. 6](https://www.yahoo.com/news/supreme-court-snubs-house-republicans-134306876.html)
+- Apr 15 - [Philippine president says he won't give US military access to additional local camps](https://www.yahoo.com/news/philippine-president-says-wont-us-133122217.html)
 - Apr 15 - [When Trump Said, “They Don’t Look Like Indians to Me”](https://www.yahoo.com/news/trump-said-don-t-look-122607375.html)
-- Apr 15 - [FBI opens criminal probe into Maryland bridge collapse, Washington Post says](https://www.yahoo.com/news/fbi-opens-criminal-probe-maryland-114643815.html)
+- Apr 15 - [Read the memo Elon Musk sent Tesla staff announcing that the company is laying off more than 10% of the workforce](https://www.yahoo.com/news/read-memo-elon-musk-sent-113716134.html)
 - Apr 15 - [Beijing half marathon probes 'embarrassing' win by Chinese runner](https://sports.yahoo.com/beijing-half-marathon-probes-embarrassing-050228529.html)
-- Apr 15 - [Maggie Haberman Recalls Donald Trump 'Literally Poking At' Alina Habba In Frustration](https://www.yahoo.com/news/maggie-haberman-recalls-donald-trump-104423497.html)
-- Apr 15 - [Israeli military renews warnings to Palestinians not to return to war-torn northern Gaza](https://www.yahoo.com/news/israeli-military-renews-warnings-palestinians-102019827.html)
 <!-- feed end -->
 
 ### Onstream
