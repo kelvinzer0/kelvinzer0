@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 15 - [Prince Harry in legal setback about security protection in UK](https://www.yahoo.com/news/prince-harry-legal-setback-security-162441041.html)
+- Apr 15 - [Lawmakers brawl in Georgian parliament](https://www.yahoo.com/news/lawmakers-brawl-georgian-parliament-161709299.html)
 - Apr 15 - [Trump Shockingly Finishes First In New Poll — And It's Not About The Election](https://www.yahoo.com/news/trump-shockingly-finishes-first-poll-153903785.html)
 - Apr 15 - [Justice Clarence Thomas absent from US Supreme Court session](https://www.yahoo.com/news/justice-clarence-thomas-absent-us-151527195.html)
 - Apr 15 - [Bureau of Prisons to close California women's prison where inmates have been subjected to sex abuse](https://www.yahoo.com/news/bureau-prisons-close-california-womens-144020256.html)
-- Apr 15 - [Elon Musk Fires More Than Ten Percent of Tesla's Staff After Alienating Pretty Much Everyone Who Might Have Bought a Tesla](https://finance.yahoo.com/news/elon-musk-fires-more-ten-143938210.html)
-- Apr 15 - [Supreme Court snubs House Republicans who dodged metal detectors in Congress after Jan. 6](https://www.yahoo.com/news/supreme-court-snubs-house-republicans-134306876.html)
 <!-- feed end -->
 
 ### Onstream
