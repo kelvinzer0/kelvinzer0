@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [Prince Harry in legal setback about security protection in UK](https://www.yahoo.com/news/prince-harry-legal-setback-security-162441041.html)
+- Apr 15 - [Trump Wanted to See Crowd Outside Trial. He Got 50 Randos.](https://www.yahoo.com/news/trump-wanted-see-crowd-outside-172424956.html)
+- Apr 15 - [Car Goes Airborne Before Crashing Into Home’s Garage](https://www.yahoo.com/news/car-goes-airborne-crashing-home-172348391.html)
+- Apr 15 - [Houston hospital halts liver and kidney transplants as it investigates ‘inappropriate changes’ to patient records](https://www.yahoo.com/news/houston-hospital-halts-liver-kidney-034053962.html)
 - Apr 15 - [Lawmakers brawl in Georgian parliament](https://www.yahoo.com/news/lawmakers-brawl-georgian-parliament-161709299.html)
-- Apr 15 - [Trump Shockingly Finishes First In New Poll — And It's Not About The Election](https://www.yahoo.com/news/trump-shockingly-finishes-first-poll-153903785.html)
-- Apr 15 - [Justice Clarence Thomas absent from US Supreme Court session](https://www.yahoo.com/news/justice-clarence-thomas-absent-us-151527195.html)
-- Apr 15 - [Bureau of Prisons to close California women's prison where inmates have been subjected to sex abuse](https://www.yahoo.com/news/bureau-prisons-close-california-womens-144020256.html)
+- Apr 15 - [Two women wanted, accused of stealing $30K in property from victim in Downtown New Orleans](https://www.yahoo.com/news/two-women-wanted-accused-stealing-154818587.html)
 <!-- feed end -->
 
 ### Onstream
