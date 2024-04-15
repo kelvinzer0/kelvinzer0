@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 14 - [Johnson signals he won’t put Senate supplemental on the floor despite increased pressure](https://www.yahoo.com/news/johnson-signals-won-t-put-224519266.html)
+- Apr 14 - [Native American-led nonprofit says it bought 40 acres in the Black Hills of South Dakota](https://www.yahoo.com/news/native-american-led-nonprofit-says-221222158.html)
+- Apr 14 - [Pinellas County husband accused of beating wife of 55 years because she wouldn’t let him drive: affidavit](https://www.yahoo.com/news/pinellas-county-husband-accused-beating-200953271.html)
 - Apr 14 - [Small-time investors in Trump’s Truth Social reckon with stock collapse](https://www.yahoo.com/lifestyle/small-time-investors-trump-truth-185507366.html)
 - Apr 14 - [A harrowing trail of evidence led to an arrest in case of missing college student](https://www.yahoo.com/news/college-student-missed-date-then-112246469.html)
-- Apr 14 - [Iran has just exposed how impotent it really is](https://www.yahoo.com/news/iran-just-exposed-impotent-really-180000911.html)
-- Apr 14 - [How to catch a Russian submarine](https://www.yahoo.com/news/catch-russian-submarine-160000667.html)
-- Apr 14 - [Two men shove boulders off ancient rock formation in Nevada, wrecking it, video shows](https://www.yahoo.com/news/two-men-shove-boulders-off-154735168.html)
 <!-- feed end -->
 
 ### Onstream
