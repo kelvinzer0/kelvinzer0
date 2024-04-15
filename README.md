@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [‘Sleepy Don’: Trump sparks Twitter hilarity as he appears to fall asleep at trial](https://www.yahoo.com/news/sleepy-don-trump-sparks-twitter-183118413.html)
-- Apr 15 - [2 bodies found in rural Oklahoma as 4 suspects face murder charges in case of missing women](https://www.yahoo.com/news/4-people-facing-murder-charges-192541066.html)
-- Apr 15 - [Fed's reverse repo facility plummets to lowest level in nearly three years](https://finance.yahoo.com/news/feds-reverse-repo-facility-plummets-174128420.html)
-- Apr 15 - [Trump Wanted to See Crowd Outside Trial. He Got 50 Randos.](https://www.yahoo.com/news/trump-wanted-see-crowd-outside-172424956.html)
-- Apr 15 - [Car Goes Airborne Before Crashing Into Home’s Garage](https://www.yahoo.com/news/car-goes-airborne-crashing-home-172348391.html)
+- Apr 15 - [Lawsuit asks Wisconsin Supreme Court to strike down governor's 400-year veto](https://www.yahoo.com/news/lawsuit-asks-wisconsin-supreme-court-195445863.html)
+- Apr 15 - [Judge awards $23.5 million to undercover St. Louis officer beaten by colleagues during protest](https://www.yahoo.com/news/judge-awards-23-5-million-194112114.html)
+- Apr 15 - [Iran has chosen self-destruction, and is happy to take the world down with it](https://www.yahoo.com/news/iran-chosen-self-destruction-happy-193151064.html)
+- Apr 15 - [Black-led women’s running group sues Boston Marathon organizers and Newton police chief for alleged racial discrimination](https://www.yahoo.com/news/black-led-women-running-group-092926196.html)
+- Apr 15 - [Atlantic City mayor, wife charged with abusing and assaulting teenage daughter](https://www.yahoo.com/news/atlantic-city-mayor-wife-charged-185957555.html)
 <!-- feed end -->
 
 ### Onstream
