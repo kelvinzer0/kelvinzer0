@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 15 - [‘Sleepy Don’: Trump sparks Twitter hilarity as he appears to fall asleep at trial](https://www.yahoo.com/news/sleepy-don-trump-sparks-twitter-183118413.html)
+- Apr 15 - [2 bodies found in rural Oklahoma as 4 suspects face murder charges in case of missing women](https://www.yahoo.com/news/4-people-facing-murder-charges-192541066.html)
+- Apr 15 - [Fed's reverse repo facility plummets to lowest level in nearly three years](https://finance.yahoo.com/news/feds-reverse-repo-facility-plummets-174128420.html)
 - Apr 15 - [Trump Wanted to See Crowd Outside Trial. He Got 50 Randos.](https://www.yahoo.com/news/trump-wanted-see-crowd-outside-172424956.html)
 - Apr 15 - [Car Goes Airborne Before Crashing Into Home’s Garage](https://www.yahoo.com/news/car-goes-airborne-crashing-home-172348391.html)
-- Apr 15 - [Houston hospital halts liver and kidney transplants as it investigates ‘inappropriate changes’ to patient records](https://www.yahoo.com/news/houston-hospital-halts-liver-kidney-034053962.html)
-- Apr 15 - [Lawmakers brawl in Georgian parliament](https://www.yahoo.com/news/lawmakers-brawl-georgian-parliament-161709299.html)
-- Apr 15 - [Two women wanted, accused of stealing $30K in property from victim in Downtown New Orleans](https://www.yahoo.com/news/two-women-wanted-accused-stealing-154818587.html)
 <!-- feed end -->
 
 ### Onstream
