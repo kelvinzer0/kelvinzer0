@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 15 - [Johnson signals he won’t put Senate supplemental on the floor despite increased pressure](https://www.yahoo.com/news/johnson-signals-won-t-put-224519266.html)
+- Apr 15 - [Beijing half marathon probes 'embarrassing' win by Chinese runner](https://sports.yahoo.com/beijing-half-marathon-probes-embarrassing-050228529.html)
 - Apr 15 - ['Dimbulb' Trump Torched After Rambling Attempt To Explain Gettysburg Goes Wrong](https://www.yahoo.com/news/dimbulb-trump-torched-rambling-attempt-042438659.html)
 - Apr 15 - [Missing California student contacts family after disappearing in L.A.](https://www.yahoo.com/news/missing-california-student-contacts-family-020934226.html)
-- Apr 15 - [Johnson signals he won’t put Senate supplemental on the floor despite increased pressure](https://www.yahoo.com/news/johnson-signals-won-t-put-224519266.html)
 - Apr 15 - [Violence erupts as novelty shop in Southern California robbed at gunpoint](https://www.yahoo.com/news/violence-erupts-novelty-shop-southern-000040665.html)
-- Apr 14 - ['I'm a Urologist Who's Been Studying Prostate Health for More Than 25 Years—Here Are the 5 Things I Tell Men With an Enlarged Prostate to Do'](https://www.yahoo.com/lifestyle/im-urologist-whos-studying-prostate-232500770.html)
 <!-- feed end -->
 
 ### Onstream
