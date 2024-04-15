@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 15 - [Flowers Left at Sydney Mall in Tribute to Attack Victims](https://www.yahoo.com/news/flowers-left-sydney-mall-tribute-110409525.html)
+- Apr 15 - [Biden administration agrees to provide $6.4 billion to Samsung for making computer chips in Texas](https://finance.yahoo.com/news/biden-administration-agrees-6-4-090030949.html)
+- Apr 15 - [Ex-Aide Sums Up Donald Trump’s Attitude To Melania Trump With 3 Words](https://www.yahoo.com/news/ex-aide-sums-donald-trump-085804388.html)
 - Apr 15 - [What Trump is signaling with his possible Treasury and Fed picks](https://finance.yahoo.com/news/what-trump-is-signaling-with-his-possible-treasury-and-fed-picks-140008359.html)
 - Apr 15 - [Critics Trash Trump For Most 'Deranged' Claim Yet Ahead Of Criminal Trial](https://www.yahoo.com/news/critics-trash-trump-most-deranged-080133097.html)
-- Apr 15 - [Pranksters Troll MAGA Faithful With Brutally Honest 'Trump Bible'](https://www.yahoo.com/news/pranksters-troll-maga-faithful-brutally-072358774.html)
-- Apr 15 - [Johnson signals he won’t put Senate supplemental on the floor despite increased pressure](https://www.yahoo.com/news/johnson-signals-won-t-put-224519266.html)
-- Apr 15 - [Beijing half marathon probes 'embarrassing' win by Chinese runner](https://sports.yahoo.com/beijing-half-marathon-probes-embarrassing-050228529.html)
 <!-- feed end -->
 
 ### Onstream
