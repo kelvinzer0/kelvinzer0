@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 14 - [Johnson signals he won’t put Senate supplemental on the floor despite increased pressure](https://www.yahoo.com/news/johnson-signals-won-t-put-224519266.html)
+- Apr 15 - [Johnson signals he won’t put Senate supplemental on the floor despite increased pressure](https://www.yahoo.com/news/johnson-signals-won-t-put-224519266.html)
+- Apr 15 - [Violence erupts as novelty shop in Southern California robbed at gunpoint](https://www.yahoo.com/news/violence-erupts-novelty-shop-southern-000040665.html)
+- Apr 14 - ['I'm a Urologist Who's Been Studying Prostate Health for More Than 25 Years—Here Are the 5 Things I Tell Men With an Enlarged Prostate to Do'](https://www.yahoo.com/lifestyle/im-urologist-whos-studying-prostate-232500770.html)
+- Apr 14 - [Dementia Experts Shared The 7 Things They Would Never Do, And We're Taking Notes](https://www.yahoo.com/lifestyle/7-things-dementia-experts-never-221602358.html)
 - Apr 14 - [Native American-led nonprofit says it bought 40 acres in the Black Hills of South Dakota](https://www.yahoo.com/news/native-american-led-nonprofit-says-221222158.html)
-- Apr 14 - [Pinellas County husband accused of beating wife of 55 years because she wouldn’t let him drive: affidavit](https://www.yahoo.com/news/pinellas-county-husband-accused-beating-200953271.html)
-- Apr 14 - [Small-time investors in Trump’s Truth Social reckon with stock collapse](https://www.yahoo.com/lifestyle/small-time-investors-trump-truth-185507366.html)
-- Apr 14 - [A harrowing trail of evidence led to an arrest in case of missing college student](https://www.yahoo.com/news/college-student-missed-date-then-112246469.html)
 <!-- feed end -->
 
 ### Onstream
