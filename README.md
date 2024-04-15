@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [DJT stock plunges following plans to issue 21.5M new shares](https://finance.yahoo.com/video/djt-stock-plunges-following-plans-142846611.html)
-- Apr 15 - [MyPillow CEO Mike Lindell, a Trump ally, has his phone seizure case rejected by Supreme Court](https://www.yahoo.com/news/mypillow-ceo-mike-lindell-trump-140427532.html)
+- Apr 15 - [Trump Shockingly Finishes First In New Poll — And It's Not About The Election](https://www.yahoo.com/news/trump-shockingly-finishes-first-poll-153903785.html)
+- Apr 15 - [Justice Clarence Thomas absent from US Supreme Court session](https://www.yahoo.com/news/justice-clarence-thomas-absent-us-151527195.html)
+- Apr 15 - [Bureau of Prisons to close California women's prison where inmates have been subjected to sex abuse](https://www.yahoo.com/news/bureau-prisons-close-california-womens-144020256.html)
+- Apr 15 - [Elon Musk Fires More Than Ten Percent of Tesla's Staff After Alienating Pretty Much Everyone Who Might Have Bought a Tesla](https://finance.yahoo.com/news/elon-musk-fires-more-ten-143938210.html)
 - Apr 15 - [Supreme Court snubs House Republicans who dodged metal detectors in Congress after Jan. 6](https://www.yahoo.com/news/supreme-court-snubs-house-republicans-134306876.html)
-- Apr 15 - [The Philippine president says he won't give US access to more local military bases](https://www.yahoo.com/news/philippine-president-says-wont-us-133122217.html)
-- Apr 15 - [When Trump Said, “They Don’t Look Like Indians to Me”](https://www.yahoo.com/news/trump-said-don-t-look-122607375.html)
 <!-- feed end -->
 
 ### Onstream
