@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 15 - [DJT stock plunges following plans to issue 21.5M new shares](https://finance.yahoo.com/video/djt-stock-plunges-following-plans-142846611.html)
+- Apr 15 - [MyPillow CEO Mike Lindell, a Trump ally, has his phone seizure case rejected by Supreme Court](https://www.yahoo.com/news/mypillow-ceo-mike-lindell-trump-140427532.html)
 - Apr 15 - [Supreme Court snubs House Republicans who dodged metal detectors in Congress after Jan. 6](https://www.yahoo.com/news/supreme-court-snubs-house-republicans-134306876.html)
-- Apr 15 - [Philippine president says he won't give US military access to additional local camps](https://www.yahoo.com/news/philippine-president-says-wont-us-133122217.html)
+- Apr 15 - [The Philippine president says he won't give US access to more local military bases](https://www.yahoo.com/news/philippine-president-says-wont-us-133122217.html)
 - Apr 15 - [When Trump Said, “They Don’t Look Like Indians to Me”](https://www.yahoo.com/news/trump-said-don-t-look-122607375.html)
-- Apr 15 - [Read the memo Elon Musk sent Tesla staff announcing that the company is laying off more than 10% of the workforce](https://www.yahoo.com/news/read-memo-elon-musk-sent-113716134.html)
-- Apr 15 - [Beijing half marathon probes 'embarrassing' win by Chinese runner](https://sports.yahoo.com/beijing-half-marathon-probes-embarrassing-050228529.html)
 <!-- feed end -->
 
 ### Onstream
