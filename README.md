@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [Flowers Left at Sydney Mall in Tribute to Attack Victims](https://www.yahoo.com/news/flowers-left-sydney-mall-tribute-110409525.html)
-- Apr 15 - [Biden administration agrees to provide $6.4 billion to Samsung for making computer chips in Texas](https://finance.yahoo.com/news/biden-administration-agrees-6-4-090030949.html)
-- Apr 15 - [Ex-Aide Sums Up Donald Trump’s Attitude To Melania Trump With 3 Words](https://www.yahoo.com/news/ex-aide-sums-donald-trump-085804388.html)
-- Apr 15 - [What Trump is signaling with his possible Treasury and Fed picks](https://finance.yahoo.com/news/what-trump-is-signaling-with-his-possible-treasury-and-fed-picks-140008359.html)
-- Apr 15 - [Critics Trash Trump For Most 'Deranged' Claim Yet Ahead Of Criminal Trial](https://www.yahoo.com/news/critics-trash-trump-most-deranged-080133097.html)
+- Apr 15 - [FBI opens criminal probe into Maryland bridge collapse, Washington Post says](https://www.yahoo.com/news/fbi-opens-criminal-probe-maryland-114643815.html)
+- Apr 15 - [Beijing half marathon probes 'embarrassing' win by Chinese runner](https://sports.yahoo.com/beijing-half-marathon-probes-embarrassing-050228529.html)
+- Apr 15 - [Maggie Haberman Recalls Donald Trump 'Literally Poking At' Alina Habba In Frustration](https://www.yahoo.com/news/maggie-haberman-recalls-donald-trump-104423497.html)
+- Apr 15 - [Israeli military renews warnings to Palestinians not to return to war-torn northern Gaza](https://www.yahoo.com/news/israeli-military-renews-warnings-palestinians-102019827.html)
+- Apr 15 - [Black-led women’s running group sues Boston Marathon organizers and Newton police chief for alleged racial discrimination](https://www.yahoo.com/news/black-led-women-running-group-092926196.html)
 <!-- feed end -->
 
 ### Onstream
