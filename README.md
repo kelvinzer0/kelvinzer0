@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [Dismissed Juror Has 1 Word To Describe What It’s Like Seeing Trump In Person](https://www.yahoo.com/news/dismissed-juror-1-word-describe-192022016.html)
+- Apr 16 - [‘Reacher’ Star Alan Ritchson Fires Back at Cops Who Trolled Him Online](https://www.yahoo.com/entertainment/reacher-star-alan-ritchson-fires-190929345.html)
+- Apr 16 - [Say What? MTG Suggests Slain U.S. Student Should’ve Been Deported](https://www.yahoo.com/news/mtg-suggests-slain-u-student-183147793.html)
+- Apr 16 - [Southern governors tell autoworkers that voting for a union will put their jobs in jeopardy](https://www.yahoo.com/news/southern-governors-tell-autoworkers-voting-182048332.html)
 - Apr 16 - [Dad runs Boston Marathon in memory of 3 slain children](https://www.yahoo.com/news/dad-runs-boston-marathon-memory-181422032.html)
-- Apr 16 - [House panel says China subsidizes fentanyl production to fuel crisis in the United States](https://www.yahoo.com/news/house-panel-says-china-subsidizes-172025915.html)
-- Apr 16 - [Texas inmate Melissa Lucio's death sentence should be overturned, judge says](https://www.yahoo.com/news/texas-inmate-melissa-lucios-death-165212158.html)
-- Apr 16 - [US Navy warships shot down Iranian missiles with a weapon they've never used in combat before](https://www.yahoo.com/news/us-navy-warships-shot-down-165135162.html)
-- Apr 16 - [Turkey's Erdogan: Israel's Netanyahu solely responsible for recent Middle East tensions](https://www.yahoo.com/news/turkeys-erdogan-israels-netanyahu-solely-163355050.html)
 <!-- feed end -->
 
 ### Onstream
