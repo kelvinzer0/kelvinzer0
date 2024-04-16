@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [California valedictorian will no longer give graduation speech over 'alarming' discussion](https://www.yahoo.com/news/california-valedictorian-no-longer-graduation-031542263.html)
+- Apr 16 - [Florida joins Texas in banning local heat protections for outdoor workers](https://www.yahoo.com/news/florida-joins-texas-banning-local-023328303.html)
+- Apr 16 - [South Korea Yoon orders preemptive response to Middle East tensions](https://www.yahoo.com/news/south-korea-yoon-orders-preemptive-020218512.html)
 - Apr 16 - [Judge bench-slaps Trump lawyer 5 times on day 1 of hush money trial](https://www.yahoo.com/news/judge-bench-slaps-trump-lawyer-015834890.html)
-- Apr 16 - [USC Cancels Valedictorian’s Commencement Address Amid Accusations of Antisemitism](https://www.yahoo.com/news/usc-cancels-valedictorian-commencement-address-014930921.html)
-- Apr 16 - [White House rejects long-shot House Republican effort to get President Joe Biden to testify](https://www.yahoo.com/news/white-house-rejects-long-shot-013148939.html)
 - Apr 16 - [‘Sleepy Don’: Trump sparks Twitter hilarity as he appears to fall asleep at trial](https://www.yahoo.com/news/sleepy-don-trump-sparks-twitter-183118413.html)
-- Apr 15 - [Audit says Arkansas governor's office potentially violated laws with $19,000 lectern purchase](https://www.yahoo.com/news/audit-cites-potential-legal-violations-230846983.html)
 <!-- feed end -->
 
 ### Onstream
