@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [Second GOP lawmaker backs ousting House speaker, putting Johnson's job in peril](https://www.yahoo.com/news/second-gop-lawmaker-backs-ousting-152444651.html)
-- Apr 16 - [Israel hopes its response to Iranian salvo will end 'exchange of blows'](https://www.yahoo.com/news/israel-hopes-response-iranian-salvo-152328231.html)
-- Apr 16 - [Justice Thomas returns to Supreme Court after 1-day absence](https://www.yahoo.com/news/justice-thomas-returns-supreme-court-141438880.html)
-- Apr 16 - [Man Casually Enjoys Tea After Stoping Suspect From Getting Away](https://www.yahoo.com/news/man-casually-enjoys-tea-stoping-134802790.html)
-- Apr 16 - [A London court rules against a Muslim girl who wanted to pray at a school known for strict rules](https://www.yahoo.com/news/london-court-rules-against-muslim-130942481.html)
+- Apr 16 - [A "deeply uncomfortable" Trump stares down journalist who reported that he fell asleep in court](https://www.yahoo.com/news/deeply-uncomfortable-trump-stares-down-161656742.html)
+- Apr 16 - ['Gross And Vulgar' Rob Schneider Comedy Set Reportedly Cut Short At GOP Event](https://www.yahoo.com/entertainment/gross-vulgar-rob-schneider-comedy-160354734.html)
+- Apr 16 - ["Imagine The Lawsuit If That Happened Today": Older Adults Revealed 29 Things That Used To Be "Normal" In Schools](https://www.yahoo.com/lifestyle/imagine-lawsuit-happened-today-older-154628350.html)
+- Apr 16 - [28 photos show what Iran looked like before the 1979 revolution turned the nation into an Islamic republic](https://www.yahoo.com/news/25-photos-show-iran-looked-190806215.html)
+- Apr 16 - [Non-Americans Are Convinced Only A Handful Of Americans Can Comprehend These 32 Things](https://www.yahoo.com/lifestyle/non-americans-convinced-only-handful-152708378.html)
 <!-- feed end -->
 
 ### Onstream
