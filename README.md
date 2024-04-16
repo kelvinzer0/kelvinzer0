@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [Judge bench-slaps Trump lawyer 5 times on day 1 of hush money trial](https://www.yahoo.com/news/judge-bench-slaps-trump-lawyer-015834890.html)
+- Apr 16 - [USC Cancels Valedictorian’s Commencement Address Amid Accusations of Antisemitism](https://www.yahoo.com/news/usc-cancels-valedictorian-commencement-address-014930921.html)
 - Apr 16 - [White House rejects long-shot House Republican effort to get President Joe Biden to testify](https://www.yahoo.com/news/white-house-rejects-long-shot-013148939.html)
 - Apr 16 - [‘Sleepy Don’: Trump sparks Twitter hilarity as he appears to fall asleep at trial](https://www.yahoo.com/news/sleepy-don-trump-sparks-twitter-183118413.html)
 - Apr 15 - [Audit says Arkansas governor's office potentially violated laws with $19,000 lectern purchase](https://www.yahoo.com/news/audit-cites-potential-legal-violations-230846983.html)
-- Apr 15 - [NASA confirms mystery object that crashed through roof of Florida home came from space station](https://www.yahoo.com/news/nasa-confirms-mystery-object-crashed-225512629.html)
-- Apr 15 - [Las Vegas lawyer and wife killed amid custody fight for children from prior marriage, family says](https://www.yahoo.com/news/las-vegas-lawyer-wife-killed-221701284.html)
 <!-- feed end -->
 
 ### Onstream
