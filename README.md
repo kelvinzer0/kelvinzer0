@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [Trump’s campaign is going the way of his media company](https://finance.yahoo.com/news/trumps-campaign-is-going-the-way-of-his-media-company-211151954.html)
 - Apr 16 - [Medical Mysteries: Years of hives and fevers traced to a startling cause](https://www.yahoo.com/news/medical-mysteries-years-hives-fevers-193708822.html)
-- Apr 16 - [University of Southern California cancels Muslim valedictorian's speech, citing security concerns](https://www.yahoo.com/news/university-southern-california-cancels-muslim-205208668.html)
-- Apr 16 - [Courtroom Drama: Judge Accuses Trump of Trying to Intimidate Jurors on Day 2](https://www.yahoo.com/news/courtroom-drama-judge-accuses-trump-194008679.html)
+- Apr 16 - [Trump goes from court to campaign at a bodega in his heavily Democratic hometown](https://www.yahoo.com/news/trump-goes-court-campaign-bodega-205548560.html)
+- Apr 16 - [Trump Media stock sinks after company announces plans to launch live TV streaming platform](https://finance.yahoo.com/news/trump-media-stock-sinks-after-company-announces-plans-to-launch-live-tv-streaming-platform-165111515.html)
 - Apr 16 - [Dismissed Juror Has 1 Word To Describe What It’s Like Seeing Trump In Person](https://www.yahoo.com/news/dismissed-juror-1-word-describe-192022016.html)
-- Apr 16 - [‘Reacher’ Star Alan Ritchson Fires Back at Cops Who Trolled Him Online](https://www.yahoo.com/entertainment/reacher-star-alan-ritchson-fires-190929345.html)
 <!-- feed end -->
 
 ### Onstream
