@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [Second GOP lawmaker backs ousting House speaker, putting Johnson's job in peril](https://www.yahoo.com/news/second-gop-lawmaker-backs-ousting-152444651.html)
+- Apr 16 - [Israel hopes its response to Iranian salvo will end 'exchange of blows'](https://www.yahoo.com/news/israel-hopes-response-iranian-salvo-152328231.html)
 - Apr 16 - [Justice Thomas returns to Supreme Court after 1-day absence](https://www.yahoo.com/news/justice-thomas-returns-supreme-court-141438880.html)
+- Apr 16 - [Man Casually Enjoys Tea After Stoping Suspect From Getting Away](https://www.yahoo.com/news/man-casually-enjoys-tea-stoping-134802790.html)
 - Apr 16 - [A London court rules against a Muslim girl who wanted to pray at a school known for strict rules](https://www.yahoo.com/news/london-court-rules-against-muslim-130942481.html)
-- Apr 16 - [How an Arizona school's response to a perceived gun threat upended a 12-year-old's life](https://www.yahoo.com/news/arizona-schools-response-perceived-gun-130058454.html)
-- Apr 16 - [Biden's latest plan for student loan cancellation moves forward as a proposed regulation](https://www.yahoo.com/news/bidens-latest-plan-student-loan-124649124.html)
-- Apr 16 - [Protesters, vehicles block traffic at Seattle-Tacoma International Airport; 46 arrested](https://www.yahoo.com/news/protesters-blocking-traffic-seattle-tacoma-221208523.html)
 <!-- feed end -->
 
 ### Onstream
