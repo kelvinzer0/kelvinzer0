@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [Justice Thomas returns to Supreme Court after 1-day absence](https://www.yahoo.com/news/justice-thomas-returns-supreme-court-141438880.html)
 - Apr 16 - [A London court rules against a Muslim girl who wanted to pray at a school known for strict rules](https://www.yahoo.com/news/london-court-rules-against-muslim-130942481.html)
-- Apr 16 - [America’s ‘God of War’ is now many decades old. The US Army can’t replace it](https://www.yahoo.com/tech/us-army-struggling-build-today-110610720.html)
-- Apr 16 - [Biden administration announces new partnership with 50 countries to stifle future pandemics](https://www.yahoo.com/news/biden-administration-announces-partnership-50-110013220.html)
-- Apr 16 - [I went to Day 1 of Trump's criminal trial and realized something: Not enough people care](https://www.yahoo.com/news/went-day-1-trumps-criminal-092749106.html)
-- Apr 16 - [Donald Trump Flips Out Over Barron’s Graduation Ban. Here's What The Judge Really Said.](https://www.yahoo.com/news/donald-trump-flips-over-barron-091434981.html)
+- Apr 16 - [How an Arizona school's response to a perceived gun threat upended a 12-year-old's life](https://www.yahoo.com/news/arizona-schools-response-perceived-gun-130058454.html)
+- Apr 16 - [Biden's latest plan for student loan cancellation moves forward as a proposed regulation](https://www.yahoo.com/news/bidens-latest-plan-student-loan-124649124.html)
+- Apr 16 - [Protesters, vehicles block traffic at Seattle-Tacoma International Airport; 46 arrested](https://www.yahoo.com/news/protesters-blocking-traffic-seattle-tacoma-221208523.html)
 <!-- feed end -->
 
 ### Onstream
