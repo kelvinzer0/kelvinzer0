@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 16 - ['Bollard Man': Hero who confronted stabber promised Australia visa](https://www.yahoo.com/news/bollard-man-hero-confronted-stabber-031337464.html)
+- Apr 16 - [Salvage crews race against the clock to remove massive chunks of fallen Baltimore bridge](https://www.yahoo.com/news/salvage-crews-race-against-clock-050544660.html)
 - Apr 16 - [California valedictorian will no longer give graduation speech over 'alarming' discussion](https://www.yahoo.com/news/california-valedictorian-no-longer-graduation-031542263.html)
 - Apr 16 - [An accounting firm hired to vet Truth Social's financials quit after less than a year because it no longer wanted to be linked to Trump: FT](https://www.yahoo.com/news/accounting-firm-hired-vet-truth-025907451.html)
 - Apr 16 - [Florida joins Texas in banning local heat protections for outdoor workers](https://www.yahoo.com/news/florida-joins-texas-banning-local-023328303.html)
-- Apr 16 - [Judge bench-slaps Trump lawyer 5 times on day 1 of hush money trial](https://www.yahoo.com/news/judge-bench-slaps-trump-lawyer-015834890.html)
 <!-- feed end -->
 
 ### Onstream
