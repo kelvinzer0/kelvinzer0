@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 15 - [‘Sleepy Don’: Trump sparks Twitter hilarity as he appears to fall asleep at trial](https://www.yahoo.com/news/sleepy-don-trump-sparks-twitter-183118413.html)
+- Apr 16 - [‘Sleepy Don’: Trump sparks Twitter hilarity as he appears to fall asleep at trial](https://www.yahoo.com/news/sleepy-don-trump-sparks-twitter-183118413.html)
+- Apr 15 - [Audit says Arkansas governor's office potentially violated laws with $19,000 lectern purchase](https://www.yahoo.com/news/audit-cites-potential-legal-violations-230846983.html)
 - Apr 15 - [Las Vegas lawyer and wife killed amid custody fight for children from prior marriage, family says](https://www.yahoo.com/news/las-vegas-lawyer-wife-killed-221701284.html)
-- Apr 15 - [4 family members plead not guilty in abduction and abuse of a malnourished Iowa teen](https://www.yahoo.com/news/4-family-members-plead-not-204447841.html)
-- Apr 15 - [This mouthwatering chain finally plans to open its first Idaho restaurant: When, where](https://finance.yahoo.com/news/mouthwatering-chain-finally-plans-open-202619327.html)
-- Apr 15 - [Lawsuit asks Wisconsin Supreme Court to strike down governor's 400-year veto](https://www.yahoo.com/news/lawsuit-asks-wisconsin-supreme-court-195445863.html)
+- Apr 15 - [It Took One Day for Trump to Get in Trouble at His First Criminal Trial](https://www.yahoo.com/news/took-one-day-trump-trouble-210848349.html)
+- Apr 15 - [GM is moving out of its Detroit headquarters towers](https://www.autoblog.com/2024/04/15/gm-reportedly-moving-out-of-its-detroit-headquarters-towers/)
 <!-- feed end -->
 
 ### Onstream
