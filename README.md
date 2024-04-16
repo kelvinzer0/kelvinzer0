@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [Medical Mysteries: Years of hives and fevers traced to a startling cause](https://www.yahoo.com/news/medical-mysteries-years-hives-fevers-193708822.html)
+- Apr 16 - [University of Southern California cancels Muslim valedictorian's speech, citing security concerns](https://www.yahoo.com/news/university-southern-california-cancels-muslim-205208668.html)
+- Apr 16 - [Courtroom Drama: Judge Accuses Trump of Trying to Intimidate Jurors on Day 2](https://www.yahoo.com/news/courtroom-drama-judge-accuses-trump-194008679.html)
 - Apr 16 - [Dismissed Juror Has 1 Word To Describe What It’s Like Seeing Trump In Person](https://www.yahoo.com/news/dismissed-juror-1-word-describe-192022016.html)
 - Apr 16 - [‘Reacher’ Star Alan Ritchson Fires Back at Cops Who Trolled Him Online](https://www.yahoo.com/entertainment/reacher-star-alan-ritchson-fires-190929345.html)
-- Apr 16 - [Say What? MTG Suggests Slain U.S. Student Should’ve Been Deported](https://www.yahoo.com/news/mtg-suggests-slain-u-student-183147793.html)
-- Apr 16 - [Southern governors tell autoworkers that voting for a union will put their jobs in jeopardy](https://www.yahoo.com/news/southern-governors-tell-autoworkers-voting-182048332.html)
-- Apr 16 - [Dad runs Boston Marathon in memory of 3 slain children](https://www.yahoo.com/news/dad-runs-boston-marathon-memory-181422032.html)
 <!-- feed end -->
 
 ### Onstream
