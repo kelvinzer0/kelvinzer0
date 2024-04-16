@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [A former youth detention center resident testifies about 'hit squad' attack](https://www.yahoo.com/news/former-youth-detention-center-resident-220956296.html)
+- Apr 16 - [Man gets 4 death sentences for kidnapping, rape and murder of 5-year-old Georgia girl](https://www.yahoo.com/news/man-gets-4-death-sentences-215959585.html)
+- Apr 16 - [DeSantis tweaks Florida book challenge law, blames liberal activist who wanted Bible out of schools](https://www.yahoo.com/news/desantis-tweaks-florida-book-challenge-214212497.html)
+- Apr 16 - [New Discovery Suggests Riley Strain May Have Hinted That His Drink Was Roofied](https://www.yahoo.com/news/discovery-suggests-riley-strain-may-211736709.html)
 - Apr 16 - [Trump’s campaign is going the way of his media company](https://finance.yahoo.com/news/trumps-campaign-is-going-the-way-of-his-media-company-211151954.html)
-- Apr 16 - [Medical Mysteries: Years of hives and fevers traced to a startling cause](https://www.yahoo.com/news/medical-mysteries-years-hives-fevers-193708822.html)
-- Apr 16 - [Trump goes from court to campaign at a bodega in his heavily Democratic hometown](https://www.yahoo.com/news/trump-goes-court-campaign-bodega-205548560.html)
-- Apr 16 - [Trump Media stock sinks after company announces plans to launch live TV streaming platform](https://finance.yahoo.com/news/trump-media-stock-sinks-after-company-announces-plans-to-launch-live-tv-streaming-platform-165111515.html)
-- Apr 16 - [Dismissed Juror Has 1 Word To Describe What It’s Like Seeing Trump In Person](https://www.yahoo.com/news/dismissed-juror-1-word-describe-192022016.html)
 <!-- feed end -->
 
 ### Onstream
