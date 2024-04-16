@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [Citing safety, USC cancels speech by valedictorian who has publicly supported Palestinians](https://www.yahoo.com/news/citing-safety-usc-cancels-speech-172730575.html)
+- Apr 16 - [Dad runs Boston Marathon in memory of 3 slain children](https://www.yahoo.com/news/dad-runs-boston-marathon-memory-181422032.html)
+- Apr 16 - [House panel says China subsidizes fentanyl production to fuel crisis in the United States](https://www.yahoo.com/news/house-panel-says-china-subsidizes-172025915.html)
+- Apr 16 - [Texas inmate Melissa Lucio's death sentence should be overturned, judge says](https://www.yahoo.com/news/texas-inmate-melissa-lucios-death-165212158.html)
 - Apr 16 - [US Navy warships shot down Iranian missiles with a weapon they've never used in combat before](https://www.yahoo.com/news/us-navy-warships-shot-down-165135162.html)
-- Apr 16 - [Dismissed juror describes the moment she saw Trump in court](https://www.yahoo.com/news/dismissed-juror-describes-moment-she-162438711.html)
-- Apr 16 - [A "deeply uncomfortable" Trump stares down journalist who reported that he fell asleep in court](https://www.yahoo.com/news/deeply-uncomfortable-trump-stares-down-161656742.html)
-- Apr 16 - ['Gross And Vulgar' Rob Schneider Comedy Set Reportedly Cut Short At GOP Event](https://www.yahoo.com/entertainment/gross-vulgar-rob-schneider-comedy-160354734.html)
+- Apr 16 - [Turkey's Erdogan: Israel's Netanyahu solely responsible for recent Middle East tensions](https://www.yahoo.com/news/turkeys-erdogan-israels-netanyahu-solely-163355050.html)
 <!-- feed end -->
 
 ### Onstream
