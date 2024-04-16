@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 16 - [I went to Day 1 of Trump's criminal trial and realized something: Not enough people care](https://www.yahoo.com/news/went-day-1-trumps-criminal-092749106.html)
 - Apr 16 - [Donald Trump Flips Out Over Barron’s Graduation Ban. Here's What The Judge Really Said.](https://www.yahoo.com/news/donald-trump-flips-over-barron-091434981.html)
 - Apr 16 - ['Bollard Man': Hero who confronted stabber promised Australia visa](https://www.yahoo.com/news/bollard-man-hero-confronted-stabber-031337464.html)
 - Apr 16 - [Salvage crews race against the clock to remove massive chunks of fallen Baltimore bridge](https://www.yahoo.com/news/salvage-crews-race-against-clock-050544660.html)
-- Apr 16 - [Trump says $175 million bond is financially secure, asks judge to reject New York attorney general’s challenge](https://finance.yahoo.com/news/trump-says-175-million-bond-041049736.html)
 - Apr 16 - [California valedictorian will no longer give graduation speech over 'alarming' discussion](https://www.yahoo.com/news/california-valedictorian-no-longer-graduation-031542263.html)
 <!-- feed end -->
 
