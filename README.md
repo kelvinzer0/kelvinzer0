@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 16 - [A former youth detention center resident testifies about 'hit squad' attack](https://www.yahoo.com/news/former-youth-detention-center-resident-220956296.html)
-- Apr 16 - [Man gets 4 death sentences for kidnapping, rape and murder of 5-year-old Georgia girl](https://www.yahoo.com/news/man-gets-4-death-sentences-215959585.html)
+- Apr 16 - [Ohio man allegedly shoots, kills Uber driver after both received scam calls](https://www.yahoo.com/news/ohio-man-allegedly-shoots-kills-233415123.html)
+- Apr 16 - [Chicago woman pleads guilty, gets 50 years for cutting child from victim's womb](https://www.yahoo.com/news/chicago-woman-pleads-guilty-gets-222825349.html)
+- Apr 16 - [Accused drunk driver flees law for 15 years overseas — until trip to Florida, cops say](https://www.yahoo.com/news/accused-drunk-driver-flees-law-215445952.html)
+- Apr 16 - [Mexican drug lord Joaquín 'El Chapo' Guzmán claims he can't get calls or visits in a US prison](https://www.yahoo.com/news/mexican-drug-lord-joaqu-n-215436251.html)
 - Apr 16 - [DeSantis tweaks Florida book challenge law, blames liberal activist who wanted Bible out of schools](https://www.yahoo.com/news/desantis-tweaks-florida-book-challenge-214212497.html)
-- Apr 16 - [New Discovery Suggests Riley Strain May Have Hinted That His Drink Was Roofied](https://www.yahoo.com/news/discovery-suggests-riley-strain-may-211736709.html)
-- Apr 16 - [Trump’s campaign is going the way of his media company](https://finance.yahoo.com/news/trumps-campaign-is-going-the-way-of-his-media-company-211151954.html)
 <!-- feed end -->
 
 ### Onstream
