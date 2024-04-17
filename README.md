@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [Air National Guard changes in Alaska could affect national security, civilian rescues, staffers say](https://www.yahoo.com/news/air-national-guard-changes-alaska-200708877.html)
-- Apr 17 - [Lebanon says Israeli agents likely killed Hezbollah-linked currency exchanger near Beirut](https://www.yahoo.com/news/lebanon-says-israeli-agents-likely-200531818.html)
 - Apr 17 - [House hearing turns into chaos as Republican chairman challenged over Biden ‘corruption’ smear: ‘No, you need therapy!’](https://www.yahoo.com/news/house-hearing-turns-chaos-republican-192458697.html)
-- Apr 17 - [Uber is helping investigators look into account that sent driver to Ohio home where she was killed](https://www.yahoo.com/news/uber-helping-investigators-look-account-183151707.html)
+- Apr 17 - [Biden says uncle shot down over area populated by cannibals in World War Two](https://www.yahoo.com/news/biden-says-uncle-shot-down-200759048.html)
+- Apr 17 - [Air National Guard changes in Alaska could affect national security, civilian rescues, staffers say](https://www.yahoo.com/news/air-national-guard-changes-alaska-200708877.html)
 - Apr 17 - [Trump's confession? Legal experts say his post-court rant could be a "big issue" going forward](https://www.yahoo.com/news/trumps-confession-legal-experts-post-175714153.html)
+- Apr 17 - [Lab chief faces sentencing in Michigan 12 years after fatal US meningitis outbreak](https://www.yahoo.com/news/lab-chief-faces-sentencing-michigan-172041562.html)
 <!-- feed end -->
 
 ### Onstream
