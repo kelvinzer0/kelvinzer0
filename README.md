@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - [Republican Couple Absolutely Trashes Donald Trump Before Performing A Stunning 180](https://www.yahoo.com/news/republican-couple-absolutely-trashes-donald-081838533.html)
+- Apr 17 - [Michael Cohen Explains Exactly Why Donald Trump’s Barron Graduation Ban Whine Is ‘Comical’](https://www.yahoo.com/news/michael-cohen-explains-exactly-why-075151781.html)
 - Apr 17 - [Jimmy Kimmel Pokes Trump's Sorest Of All Sore Spots With Embarrassing Revelation](https://www.yahoo.com/entertainment/jimmy-kimmel-pokes-trumps-sorest-053117362.html)
 - Apr 17 - [Jordan Klepper Has Mind-Melting Encounter With Trump Supporters Outside NY Trial](https://www.yahoo.com/news/jordan-klepper-mind-melting-encounter-032948369.html)
 - Apr 17 - [Ex-Trump Payroll Corp. attorney guesses why Trump motioned at potential juror](https://www.yahoo.com/news/ex-trump-payroll-corp-attorney-011418226.html)
-- Apr 17 - [A woman who accused Trevor Bauer of sex assault is now charged with defrauding ex-MLB player](https://sports.yahoo.com/woman-accused-trevor-bauer-sex-005952193.html)
-- Apr 17 - [Violent sexual assault suspect at large in Southern California, police say](https://www.yahoo.com/news/violent-sexual-assault-suspect-large-001505046.html)
 <!-- feed end -->
 
 ### Onstream
