@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Apr 17 - [Michael Cohen Explains Exactly Why Donald Trump’s Barron Graduation Ban Whine Is ‘Comical’](https://www.yahoo.com/news/michael-cohen-explains-exactly-why-075151781.html)
 - Apr 17 - [Jimmy Kimmel Pokes Trump's Sorest Of All Sore Spots With Embarrassing Revelation](https://www.yahoo.com/entertainment/jimmy-kimmel-pokes-trumps-sorest-053117362.html)
 - Apr 17 - [Jordan Klepper Has Mind-Melting Encounter With Trump Supporters Outside NY Trial](https://www.yahoo.com/news/jordan-klepper-mind-melting-encounter-032948369.html)
-- Apr 17 - [Ex-Trump Payroll Corp. attorney guesses why Trump motioned at potential juror](https://www.yahoo.com/news/ex-trump-payroll-corp-attorney-011418226.html)
+- Apr 17 - [Man accused of shooting 5 people over parking spot in Detroit arrested at airport](https://www.yahoo.com/news/man-accused-shooting-5-people-032130716.html)
 <!-- feed end -->
 
 ### Onstream
