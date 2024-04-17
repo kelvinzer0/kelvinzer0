@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Apr 17 - [Ex-Trump Payroll Corp. attorney guesses why Trump motioned at potential juror](https://www.yahoo.com/news/ex-trump-payroll-corp-attorney-011418226.html)
 - Apr 17 - [A woman who accused Trevor Bauer of sex assault is now charged with defrauding ex-MLB player](https://sports.yahoo.com/woman-accused-trevor-bauer-sex-005952193.html)
 - Apr 17 - [Violent sexual assault suspect at large in Southern California, police say](https://www.yahoo.com/news/violent-sexual-assault-suspect-large-001505046.html)
-- Apr 16 - [Ohio man allegedly shoots, kills Uber driver after both received scam calls](https://www.yahoo.com/news/ohio-man-allegedly-shoots-kills-233415123.html)
+- Apr 16 - [Sacramento Cracker Barrel suddenly closes for good](https://www.yahoo.com/news/sacramento-cracker-barrel-suddenly-closes-233501039.html)
 <!-- feed end -->
 
 ### Onstream
