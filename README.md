@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - [Jimmy Kimmel Pokes Trump's Sorest Of All Sore Spots With Embarrassing Revelation](https://www.yahoo.com/entertainment/jimmy-kimmel-pokes-trumps-sorest-053117362.html)
+- Apr 17 - [Ohio GOP leaders reject Democrats' plan to get President Joe Biden on November ballot](https://www.yahoo.com/news/ohio-gop-leaders-reject-democrats-033115761.html)
 - Apr 17 - [Jordan Klepper Has Mind-Melting Encounter With Trump Supporters Outside NY Trial](https://www.yahoo.com/news/jordan-klepper-mind-melting-encounter-032948369.html)
 - Apr 17 - [Ex-Trump Payroll Corp. attorney guesses why Trump motioned at potential juror](https://www.yahoo.com/news/ex-trump-payroll-corp-attorney-011418226.html)
 - Apr 17 - [A woman who accused Trevor Bauer of sex assault is now charged with defrauding ex-MLB player](https://sports.yahoo.com/woman-accused-trevor-bauer-sex-005952193.html)
-- Apr 17 - [Violent sexual assault suspect at large in Southern California, police say](https://www.yahoo.com/news/violent-sexual-assault-suspect-large-001505046.html)
-- Apr 16 - [Sacramento Cracker Barrel suddenly closes for good](https://www.yahoo.com/news/sacramento-cracker-barrel-suddenly-closes-233501039.html)
 <!-- feed end -->
 
 ### Onstream
