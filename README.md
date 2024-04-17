@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [Texas Mother Arrested After Leaving Her Young Children Home Alone to Go on Cruise](https://www.yahoo.com/news/texas-mother-arrested-leaving-her-144107217.html)
+- Apr 17 - [Senator's son pleads not guilty to charges from crash that killed North Dakota sheriff's deputy](https://www.yahoo.com/news/senators-son-pleads-not-guilty-161024327.html)
+- Apr 17 - [Fox News columnist: Marjorie Taylor Greene ‘an idiot’ trying to ‘wreck the GOP’](https://www.yahoo.com/news/fox-news-columnist-marjorie-taylor-155254398.html)
+- Apr 17 - [Woman Rescued After Texting Employer She Couldn't Come to Work Because She'd Been Kidnapped](https://www.yahoo.com/news/woman-rescued-texting-employer-she-154649603.html)
+- Apr 17 - [Police in Southern California warning residents of spoofing scam](https://www.yahoo.com/news/police-southern-california-warning-residents-144047566.html)
 - Apr 17 - [Former Naval Officer Raises Alarm About “World-Changing” Underwater UFO Captured on Video](https://www.yahoo.com/news/former-naval-officer-raises-alarm-130527618.html)
-- Apr 17 - [Hugh Grant says he took 'enormous sum' to settle suit alleging illegal snooping by The Sun tabloid](https://www.yahoo.com/news/hugh-grant-says-got-enormous-124601564.html)
-- Apr 17 - [Alan Dershowitz Stuns Critics With A Delusional Trump Legal Take On Fox News](https://www.yahoo.com/news/alan-dershowitz-stuns-critics-delusional-124319875.html)
-- Apr 17 - [Russia begins withdrawing peacekeeping forces from Karabakh, now under full Azerbaijan control](https://www.yahoo.com/news/russia-begins-withdrawing-peacekeeping-forces-115538529.html)
 <!-- feed end -->
 
 ### Onstream
