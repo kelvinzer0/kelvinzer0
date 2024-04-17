@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - [Alan Dershowitz Stuns Critics With A Delusional Trump Legal Take On Fox News](https://www.yahoo.com/news/alan-dershowitz-stuns-critics-delusional-124319875.html)
+- Apr 17 - [Intimate artifact from warship sunk off Key West found stashed in piece of furniture](https://www.yahoo.com/news/intimate-artifact-warship-sunk-off-114944780.html)
+- Apr 17 - [They got pregnant with 'Ozempic babies' and quit the drug cold turkey. Then came the side effects.](https://www.yahoo.com/news/got-pregnant-ozempic-babies-quit-112606721.html)
 - Apr 17 - ["Unabomber" Ted Kaczynski had late-stage rectal cancer and was "depressed" before prison suicide, autopsy says](https://www.yahoo.com/news/unabomber-ted-kaczynski-had-stage-110000657.html)
 - Apr 17 - [Gov. Newsom and California show why liberals can't be trusted with the economy](https://finance.yahoo.com/news/gov-newsom-california-show-why-092613827.html)
-- Apr 17 - [Mary Trump Predicts Uncle's Trial Backfire: ‘It’s Not Going To Play Well’](https://www.yahoo.com/news/mary-trump-predicts-uncles-trial-092542693.html)
-- Apr 17 - [Republican Couple Absolutely Trashes Donald Trump Before Performing A Stunning 180](https://www.yahoo.com/news/republican-couple-absolutely-trashes-donald-081838533.html)
-- Apr 17 - [Michael Cohen Explains Exactly Why Donald Trump’s Barron Graduation Ban Whine Is ‘Comical’](https://www.yahoo.com/news/michael-cohen-explains-exactly-why-075151781.html)
 <!-- feed end -->
 
 ### Onstream
