@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - ["Unabomber" Ted Kaczynski had late-stage rectal cancer and was "depressed" before prison suicide, autopsy says](https://www.yahoo.com/news/unabomber-ted-kaczynski-had-stage-110000657.html)
+- Apr 17 - [Gov. Newsom and California show why liberals can't be trusted with the economy](https://finance.yahoo.com/news/gov-newsom-california-show-why-092613827.html)
+- Apr 17 - [Mary Trump Predicts Uncle's Trial Backfire: ‘It’s Not Going To Play Well’](https://www.yahoo.com/news/mary-trump-predicts-uncles-trial-092542693.html)
 - Apr 17 - [Republican Couple Absolutely Trashes Donald Trump Before Performing A Stunning 180](https://www.yahoo.com/news/republican-couple-absolutely-trashes-donald-081838533.html)
 - Apr 17 - [Michael Cohen Explains Exactly Why Donald Trump’s Barron Graduation Ban Whine Is ‘Comical’](https://www.yahoo.com/news/michael-cohen-explains-exactly-why-075151781.html)
-- Apr 17 - [Jimmy Kimmel Pokes Trump's Sorest Of All Sore Spots With Embarrassing Revelation](https://www.yahoo.com/entertainment/jimmy-kimmel-pokes-trumps-sorest-053117362.html)
-- Apr 17 - [Jordan Klepper Has Mind-Melting Encounter With Trump Supporters Outside NY Trial](https://www.yahoo.com/news/jordan-klepper-mind-melting-encounter-032948369.html)
-- Apr 17 - [Man accused of shooting 5 people over parking spot in Detroit arrested at airport](https://www.yahoo.com/news/man-accused-shooting-5-people-032130716.html)
 <!-- feed end -->
 
 ### Onstream
