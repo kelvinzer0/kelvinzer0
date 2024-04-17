@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - [Owner of ship in Baltimore bridge collapse asks cargo owners to help cover salvage costs](https://www.yahoo.com/news/owner-ship-baltimore-bridge-collapse-164820778.html)
 - Apr 17 - [Senator's son pleads not guilty to charges from crash that killed North Dakota sheriff's deputy](https://www.yahoo.com/news/senators-son-pleads-not-guilty-161024327.html)
 - Apr 17 - [Fox News columnist: Marjorie Taylor Greene ‘an idiot’ trying to ‘wreck the GOP’](https://www.yahoo.com/news/fox-news-columnist-marjorie-taylor-155254398.html)
 - Apr 17 - [Woman Rescued After Texting Employer She Couldn't Come to Work Because She'd Been Kidnapped](https://www.yahoo.com/news/woman-rescued-texting-employer-she-154649603.html)
-- Apr 17 - [Police in Southern California warning residents of spoofing scam](https://www.yahoo.com/news/police-southern-california-warning-residents-144047566.html)
-- Apr 17 - [Former Naval Officer Raises Alarm About “World-Changing” Underwater UFO Captured on Video](https://www.yahoo.com/news/former-naval-officer-raises-alarm-130527618.html)
+- Apr 17 - [Netanyahu says 9 chilling words as Iran's president vows to completely destroy Israel](https://www.yahoo.com/news/netanyahu-says-9-chilling-words-151443025.html)
 <!-- feed end -->
 
 ### Onstream
