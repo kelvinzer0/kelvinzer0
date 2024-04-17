@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - [Texas Mother Arrested After Leaving Her Young Children Home Alone to Go on Cruise](https://www.yahoo.com/news/texas-mother-arrested-leaving-her-144107217.html)
 - Apr 17 - [Former Naval Officer Raises Alarm About “World-Changing” Underwater UFO Captured on Video](https://www.yahoo.com/news/former-naval-officer-raises-alarm-130527618.html)
-- Apr 17 - [Hugh Grant says he got 'enormous sum' to settle suit alleging illegal snooping by The Sun tabloid](https://www.yahoo.com/news/hugh-grant-says-got-enormous-124601564.html)
+- Apr 17 - [Hugh Grant says he took 'enormous sum' to settle suit alleging illegal snooping by The Sun tabloid](https://www.yahoo.com/news/hugh-grant-says-got-enormous-124601564.html)
 - Apr 17 - [Alan Dershowitz Stuns Critics With A Delusional Trump Legal Take On Fox News](https://www.yahoo.com/news/alan-dershowitz-stuns-critics-delusional-124319875.html)
-- Apr 17 - [Intimate artifact from warship sunk off Key West found stashed in piece of furniture](https://www.yahoo.com/news/intimate-artifact-warship-sunk-off-114944780.html)
-- Apr 17 - [They got pregnant with 'Ozempic babies' and quit the drug cold turkey. Then came the side effects.](https://www.yahoo.com/news/got-pregnant-ozempic-babies-quit-112606721.html)
+- Apr 17 - [Russia begins withdrawing peacekeeping forces from Karabakh, now under full Azerbaijan control](https://www.yahoo.com/news/russia-begins-withdrawing-peacekeeping-forces-115538529.html)
 <!-- feed end -->
 
 ### Onstream
