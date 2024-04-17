@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - [Man sentenced to 47 years to life for kidnapping 9-year-old girl from upstate New York park](https://www.yahoo.com/news/man-sentenced-47-years-life-192111032.html)
+- Apr 17 - [Uber is helping investigators look into account that sent driver to Ohio home where she was killed](https://www.yahoo.com/news/uber-helping-investigators-look-account-183151707.html)
+- Apr 17 - [Trump's confession? Legal experts say his post-court rant could be a "big issue" going forward](https://www.yahoo.com/news/trumps-confession-legal-experts-post-175714153.html)
+- Apr 17 - [Flagship Kennywood roller coaster will not open this season](https://www.yahoo.com/news/flagship-kennywood-roller-coaster-not-173451608.html)
 - Apr 17 - [Lab chief faces sentencing in Michigan 12 years after fatal US meningitis outbreak](https://www.yahoo.com/news/lab-chief-faces-sentencing-michigan-172041562.html)
-- Apr 17 - [Man charged in transport of Masters golf tournament memorabilia taken from Augusta National](https://www.yahoo.com/news/man-charged-transport-masters-golf-164852073.html)
-- Apr 17 - [Owner of ship in Baltimore bridge collapse asks cargo owners to help cover salvage costs](https://www.yahoo.com/news/owner-ship-baltimore-bridge-collapse-164820778.html)
-- Apr 17 - [Senator's son pleads not guilty to charges from crash that killed North Dakota sheriff's deputy](https://www.yahoo.com/news/senators-son-pleads-not-guilty-161024327.html)
-- Apr 17 - [Fox News columnist: Marjorie Taylor Greene ‘an idiot’ trying to ‘wreck the GOP’](https://www.yahoo.com/news/fox-news-columnist-marjorie-taylor-155254398.html)
 <!-- feed end -->
 
 ### Onstream
