@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 17 - [Trevor Bauer accuser charged with felony fraud after she said pitcher got her pregnant](https://sports.yahoo.com/trevor-bauer-accuser-charged-felony-003132432.html)
+- Apr 17 - [Ex-Trump Payroll Corp. attorney guesses why Trump motioned at potential juror](https://www.yahoo.com/news/ex-trump-payroll-corp-attorney-011418226.html)
+- Apr 17 - [Violent sexual assault suspect at large in Southern California, police say](https://www.yahoo.com/news/violent-sexual-assault-suspect-large-001505046.html)
 - Apr 16 - [Ohio man allegedly shoots, kills Uber driver after both received scam calls](https://www.yahoo.com/news/ohio-man-allegedly-shoots-kills-233415123.html)
 - Apr 16 - [Chicago woman pleads guilty, gets 50 years for cutting child from victim's womb](https://www.yahoo.com/news/chicago-woman-pleads-guilty-gets-222825349.html)
 - Apr 16 - [Accused drunk driver flees law for 15 years overseas — until trip to Florida, cops say](https://www.yahoo.com/news/accused-drunk-driver-flees-law-215445952.html)
-- Apr 16 - [Mexican drug lord Joaquín 'El Chapo' Guzmán claims he can't get calls or visits in a US prison](https://www.yahoo.com/news/mexican-drug-lord-joaqu-n-215436251.html)
 <!-- feed end -->
 
 ### Onstream
