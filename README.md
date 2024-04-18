@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 18 - [Johnson won’t change rules over removing him from speakership after hardliners revolt](https://www.yahoo.com/news/gop-members-urge-johnson-swiftly-133143097.html)
 - Apr 18 - [Okla. Fisherman Who Thought Friend Was Trying to Feed Him to Bigfoot Convicted of Murder](https://www.yahoo.com/news/okla-fisherman-thought-friend-trying-184950060.html)
 - Apr 18 - [Convenience store chain where Biden bought snacks while campaigning hit with discrimination lawsuit](https://www.yahoo.com/news/convenience-store-chain-where-biden-180857839.html)
-- Apr 18 - [Giant prehistoric snake longer than a T-Rex found in India](https://www.yahoo.com/news/giant-prehistoric-snake-longer-t-161052526.html)
-- Apr 18 - [Girl’s record catfish sparks controversy; criticism appalls her mother](https://www.yahoo.com/news/girl-record-catfish-sparks-controversy-160151163.html)
-- Apr 18 - [With one letter, Trump turned the Republican Party into an extortion racket](https://www.yahoo.com/news/one-letter-trump-turned-republican-153019321.html)
+- Apr 18 - [Daniel Riley sentenced for causing crash that cost teenager her legs](https://www.yahoo.com/news/daniel-riley-sentenced-causing-crash-175921889.html)
+- Apr 18 - [Trump Media stock jumps for second day as company goes to battle with short sellers](https://finance.yahoo.com/news/trump-media-stock-jumps-for-second-day-as-company-goes-to-battle-with-short-sellers-170612776.html)
 <!-- feed end -->
 
 ### Onstream
