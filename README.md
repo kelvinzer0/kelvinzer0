@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 18 - [Kremlin Crying About France Seizing Villa From Putin’s Ex-Wife](https://www.yahoo.com/news/kremlin-crying-france-seizing-villa-115054702.html)
+- Apr 18 - [Colon cancer rates are rising in young people. If you have two symptoms you should get a colonoscopy, a GI oncologist says.](https://www.yahoo.com/lifestyle/colon-cancer-rates-rising-young-101415932.html)
+- Apr 18 - [Reuters photographer wins World Press Photo of the Year with poignant shot from Gaza](https://www.yahoo.com/news/reuters-photographer-wins-world-press-095359218.html)
+- Apr 18 - [He's dropping little clues: The troubling message we are missing from Trump's MAGA rallies](https://www.yahoo.com/news/hes-dropping-little-clues-troubling-093103855.html)
 - Apr 18 - [George Conway Details ‘Oh, It’s Daddy’ Call To Ivanka That Exposed Trump’s Fears](https://www.yahoo.com/news/george-conway-details-oh-daddy-091339186.html)
-- Apr 18 - [Expert will testify Bryan Kohberger’s cell phone was outside of Moscow on the night of the Idaho murders, defense says](https://www.yahoo.com/news/cellphone-tower-expert-testify-bryan-013518510.html)
-- Apr 18 - [GOP Rep. Dan Crenshaw Burns Tucker Carlson With 1 Stinging Question About His Job](https://www.yahoo.com/news/gop-rep-dan-crenshaw-burns-033812568.html)
-- Apr 18 - [Biden says military unable to recover uncle’s remains during WWII because ‘there used to be a lot of cannibals’ in New Guinea](https://www.yahoo.com/news/biden-says-military-unable-recover-013925903.html)
-- Apr 18 - [Poland's president becomes the latest leader to visit Donald Trump as allies eye a possible return](https://www.yahoo.com/news/polands-president-becomes-latest-leader-010127820.html)
 <!-- feed end -->
 
 ### Onstream
