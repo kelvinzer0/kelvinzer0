@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 17 - [Fact Check: Rumor Alleges Reba McEntire Faces 'Serious Charges' and Asked for Prayers Regarding Fox News Lawsuit. Here's the Truth](https://www.yahoo.com/entertainment/fact-check-rumor-alleges-reba-225700416.html)
 - Apr 17 - [Trump lawyers say Stormy Daniels refused subpoena outside a Brooklyn bar, papers left 'at her feet'](https://www.yahoo.com/news/trump-lawyers-stormy-daniels-refused-222520971.html)
-- Apr 17 - [House hearing turns into chaos as Republican chairman challenged over Biden ‘corruption’ smear: ‘No, you need therapy!’](https://www.yahoo.com/news/house-hearing-turns-chaos-republican-192458697.html)
+- Apr 17 - [Man Shoots Carjacker Who Then Kills Him](https://autos.yahoo.com/man-shoots-carjacker-then-kills-213000041.html)
 - Apr 17 - [Biden says uncle shot down over area populated by cannibals in World War Two](https://www.yahoo.com/news/biden-says-uncle-shot-down-200759048.html)
 - Apr 17 - [Air National Guard changes in Alaska could affect national security, civilian rescues, staffers say](https://www.yahoo.com/news/air-national-guard-changes-alaska-200708877.html)
-- Apr 17 - [Trump's confession? Legal experts say his post-court rant could be a "big issue" going forward](https://www.yahoo.com/news/trumps-confession-legal-experts-post-175714153.html)
 <!-- feed end -->
 
 ### Onstream
