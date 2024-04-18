@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [Biden says military unable to recover uncle’s remains during WWII because ‘there used to be a lot of cannibals’ in New Guinea](https://www.yahoo.com/news/biden-says-military-unable-recover-013925903.html)
+- Apr 18 - [GOP Rep. Dan Crenshaw Burns Tucker Carlson With 1 Stinging Question About His Job](https://www.yahoo.com/news/gop-rep-dan-crenshaw-burns-033812568.html)
 - Apr 18 - [Cellphone tower expert will testify Bryan Kohberger’s mobile device was outside of Moscow night of the Idaho murders, defense says](https://www.yahoo.com/news/cellphone-tower-expert-testify-bryan-013518510.html)
 - Apr 18 - [Poland's president becomes the latest leader to visit Donald Trump as allies eye a possible return](https://www.yahoo.com/news/polands-president-becomes-latest-leader-010127820.html)
 - Apr 17 - [Fact Check: Rumor Alleges Reba McEntire Faces 'Serious Charges' and Asked for Prayers Regarding Fox News Lawsuit. Here's the Truth](https://www.yahoo.com/entertainment/fact-check-rumor-alleges-reba-225700416.html)
