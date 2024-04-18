@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 18 - [Cellphone tower expert will testify Bryan Kohberger’s mobile device was outside of Moscow night of the Idaho murders, defense says](https://www.yahoo.com/news/cellphone-tower-expert-testify-bryan-013518510.html)
 - Apr 18 - [Poland's president becomes the latest leader to visit Donald Trump as allies eye a possible return](https://www.yahoo.com/news/polands-president-becomes-latest-leader-010127820.html)
 - Apr 17 - [Fact Check: Rumor Alleges Reba McEntire Faces 'Serious Charges' and Asked for Prayers Regarding Fox News Lawsuit. Here's the Truth](https://www.yahoo.com/entertainment/fact-check-rumor-alleges-reba-225700416.html)
 - Apr 17 - [Trump lawyers say Stormy Daniels refused subpoena outside a Brooklyn bar, papers left 'at her feet'](https://www.yahoo.com/news/trump-lawyers-stormy-daniels-refused-222520971.html)
 - Apr 17 - [Man Shoots Carjacker Who Then Kills Him](https://autos.yahoo.com/man-shoots-carjacker-then-kills-213000041.html)
-- Apr 17 - [Biden says uncle shot down over area populated by cannibals in World War Two](https://www.yahoo.com/news/biden-says-uncle-shot-down-200759048.html)
 <!-- feed end -->
 
 ### Onstream
