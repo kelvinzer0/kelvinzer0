@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 18 - [Fact Check: People Are Claiming Trump Never Attended His Children's Graduations. Here's What We Found](https://www.yahoo.com/news/fact-check-people-claiming-trump-212200336.html)
 - Apr 18 - [Trump loses bid to halt Jan. 6 lawsuits while he fights criminal charges in the 2020 election case](https://www.yahoo.com/news/trump-loses-bid-halt-jan-204540802.html)
 - Apr 18 - [Court releases details of Little Rock’s Immanuel Baptist Church volunteer’s alleged sexual assault, investigation](https://www.yahoo.com/news/court-releases-details-little-rock-194849967.html)
-- Apr 18 - [George Santos Just Had to Admit How Much Money He Owes People. Oh Boy.](https://finance.yahoo.com/news/george-santos-just-had-admit-185741780.html)
-- Apr 18 - [Okla. Fisherman Who Thought Friend Was Trying to Feed Him to Bigfoot Convicted of Murder](https://www.yahoo.com/news/okla-fisherman-thought-friend-trying-184950060.html)
-- Apr 18 - [Convenience store chain with hundreds of outlets in 6 states hit with discrimination lawsuit](https://www.yahoo.com/news/convenience-store-chain-where-biden-180857839.html)
+- Apr 18 - [US vetoes widely supported UN resolution backing full UN membership for Palestine](https://www.yahoo.com/news/security-council-plans-vote-un-192121806.html)
+- Apr 18 - [Why Queen Letizia of Spain Sat to Greet Guests in Her Ballgown at State Banquet in the Netherlands](https://www.yahoo.com/entertainment/why-queen-letizia-spain-sat-190614106.html)
 <!-- feed end -->
 
 ### Onstream
