@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [An Aspen Estate Sells for $108 Million, Becoming Colorado’s Most Expensive Residential Sale](https://finance.yahoo.com/news/aspen-estate-sells-108-million-143000552.html)
+- Apr 18 - [With one letter, Trump turned the Republican Party into an extortion racket](https://www.yahoo.com/news/one-letter-trump-turned-republican-153019321.html)
+- Apr 18 - [42 Tweets From April That Genuinely Gave Me A Very, Very Good Laugh](https://www.yahoo.com/entertainment/42-tweets-april-genuinely-gave-150346968.html)
 - Apr 18 - [Expert will testify Bryan Kohberger’s cell phone was outside of Moscow on the night of the Idaho murders, defense says](https://www.yahoo.com/news/cellphone-tower-expert-testify-bryan-013518510.html)
 - Apr 18 - [Trump Trial Day 3 Starts With Outed Juror Quitting](https://www.yahoo.com/news/trump-trial-day-3-starts-140535513.html)
-- Apr 18 - [Reuters photographer wins World Press Photo of the Year with poignant shot from Gaza](https://www.yahoo.com/news/reuters-photographer-wins-world-press-095359218.html)
-- Apr 18 - [He's dropping little clues: The troubling message we are missing from Trump's MAGA rallies](https://www.yahoo.com/news/hes-dropping-little-clues-troubling-093103855.html)
+- Apr 18 - [Once praised, settlement to help sickened BP oil spill workers leaves most with nearly nothing](https://www.yahoo.com/news/once-praised-settlement-help-sickened-133428373.html)
 <!-- feed end -->
 
 ### Onstream
