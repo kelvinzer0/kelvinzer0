@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [District attorney says Memphis police officer may have been killed by friendly fire](https://www.yahoo.com/news/district-attorney-says-memphis-police-172000926.html)
+- Apr 18 - [Okla. Fisherman Who Thought Friend Was Trying to Feed Him to Bigfoot Convicted of Murder](https://www.yahoo.com/news/okla-fisherman-thought-friend-trying-184950060.html)
+- Apr 18 - [Convenience store chain where Biden bought snacks while campaigning hit with discrimination lawsuit](https://www.yahoo.com/news/convenience-store-chain-where-biden-180857839.html)
 - Apr 18 - [Giant prehistoric snake longer than a T-Rex found in India](https://www.yahoo.com/news/giant-prehistoric-snake-longer-t-161052526.html)
 - Apr 18 - [Girl’s record catfish sparks controversy; criticism appalls her mother](https://www.yahoo.com/news/girl-record-catfish-sparks-controversy-160151163.html)
 - Apr 18 - [With one letter, Trump turned the Republican Party into an extortion racket](https://www.yahoo.com/news/one-letter-trump-turned-republican-153019321.html)
-- Apr 18 - [GOP strategist reacts to Trump’s ‘unconventional’ request](https://www.yahoo.com/news/gop-strategist-reacts-trump-unconventional-142447663.html)
 <!-- feed end -->
 
 ### Onstream
