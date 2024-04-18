@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 18 - [Colon cancer rates are rising in young people. If you have two symptoms you should get a colonoscopy, a GI oncologist says.](https://www.yahoo.com/lifestyle/colon-cancer-rates-rising-young-101415932.html)
+- Apr 18 - [Colon cancer rates are rising in young people. If you have two symptoms you should get a colonoscopy, a GI oncologist says.](https://www.yahoo.com/news/colon-cancer-rates-rising-young-101415932.html)
 - Apr 18 - [Reuters photographer wins World Press Photo of the Year with poignant shot from Gaza](https://www.yahoo.com/news/reuters-photographer-wins-world-press-095359218.html)
 - Apr 18 - [He's dropping little clues: The troubling message we are missing from Trump's MAGA rallies](https://www.yahoo.com/news/hes-dropping-little-clues-troubling-093103855.html)
 - Apr 18 - [Trump is funneling campaign money into cash-strapped businesses. Experts say it looks bad.](https://finance.yahoo.com/news/trump-funneling-campaign-money-cash-092243043.html)
