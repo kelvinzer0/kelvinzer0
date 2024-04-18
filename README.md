@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 18 - [Expert will testify Bryan Kohberger’s cell phone was outside of Moscow on the night of the Idaho murders, defense says](https://www.yahoo.com/news/cellphone-tower-expert-testify-bryan-013518510.html)
 - Apr 18 - [GOP Rep. Dan Crenshaw Burns Tucker Carlson With 1 Stinging Question About His Job](https://www.yahoo.com/news/gop-rep-dan-crenshaw-burns-033812568.html)
-- Apr 18 - [Cellphone tower expert will testify Bryan Kohberger’s mobile device was outside of Moscow night of the Idaho murders, defense says](https://www.yahoo.com/news/cellphone-tower-expert-testify-bryan-013518510.html)
+- Apr 18 - [Biden says military unable to recover uncle’s remains during WWII because ‘there used to be a lot of cannibals’ in New Guinea](https://www.yahoo.com/news/biden-says-military-unable-recover-013925903.html)
 - Apr 17 - [Fact Check: Rumor Alleges Reba McEntire Faces 'Serious Charges' and Asked for Prayers Regarding Fox News Lawsuit. Here's the Truth](https://www.yahoo.com/entertainment/fact-check-rumor-alleges-reba-225700416.html)
 - Apr 17 - [Trump lawyers say Stormy Daniels refused subpoena outside a Brooklyn bar, papers left 'at her feet'](https://www.yahoo.com/news/trump-lawyers-stormy-daniels-refused-222520971.html)
-- Apr 17 - [Man Shoots Carjacker Who Then Kills Him](https://autos.yahoo.com/man-shoots-carjacker-then-kills-213000041.html)
 <!-- feed end -->
 
 ### Onstream
