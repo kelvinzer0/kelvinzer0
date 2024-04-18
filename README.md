@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 18 - [District attorney says Memphis police officer may have been killed by friendly fire](https://www.yahoo.com/news/district-attorney-says-memphis-police-172000926.html)
+- Apr 18 - [Giant prehistoric snake longer than a T-Rex found in India](https://www.yahoo.com/news/giant-prehistoric-snake-longer-t-161052526.html)
+- Apr 18 - [Girl’s record catfish sparks controversy; criticism appalls her mother](https://www.yahoo.com/news/girl-record-catfish-sparks-controversy-160151163.html)
 - Apr 18 - [With one letter, Trump turned the Republican Party into an extortion racket](https://www.yahoo.com/news/one-letter-trump-turned-republican-153019321.html)
-- Apr 18 - [China's newest aircraft carrier was spotted with aircraft mock-ups hinting at what its future air wing could look like](https://www.yahoo.com/news/chinas-newest-aircraft-carrier-spotted-151754432.html)
 - Apr 18 - [GOP strategist reacts to Trump’s ‘unconventional’ request](https://www.yahoo.com/news/gop-strategist-reacts-trump-unconventional-142447663.html)
-- Apr 18 - [Expert will testify Bryan Kohberger’s cell phone was outside of Moscow on the night of the Idaho murders, defense says](https://www.yahoo.com/news/cellphone-tower-expert-testify-bryan-013518510.html)
-- Apr 18 - [Trump Trial in Chaos: Second Juror Axed in One Day](https://www.yahoo.com/news/trump-trial-day-3-starts-140535513.html)
 <!-- feed end -->
 
 ### Onstream
