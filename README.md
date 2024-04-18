@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 18 - [Trump juror quits over fear of being outed after Fox News host says he's "not sure" about her](https://www.yahoo.com/news/trump-juror-quits-over-fear-155749123.html)
 - Apr 18 - [With one letter, Trump turned the Republican Party into an extortion racket](https://www.yahoo.com/news/one-letter-trump-turned-republican-153019321.html)
-- Apr 18 - [42 Tweets From April That Genuinely Gave Me A Very, Very Good Laugh](https://www.yahoo.com/entertainment/42-tweets-april-genuinely-gave-150346968.html)
+- Apr 18 - [China's newest aircraft carrier was spotted with aircraft mock-ups hinting at what its future air wing could look like](https://www.yahoo.com/news/chinas-newest-aircraft-carrier-spotted-151754432.html)
+- Apr 18 - [This ancient snake in India might have been longer than a school bus and weighed a ton](https://www.yahoo.com/news/ancient-snake-india-might-longer-151402248.html)
 - Apr 18 - [Expert will testify Bryan Kohberger’s cell phone was outside of Moscow on the night of the Idaho murders, defense says](https://www.yahoo.com/news/cellphone-tower-expert-testify-bryan-013518510.html)
-- Apr 18 - [Trump Trial Day 3 Starts With Outed Juror Quitting](https://www.yahoo.com/news/trump-trial-day-3-starts-140535513.html)
-- Apr 18 - [Once praised, settlement to help sickened BP oil spill workers leaves most with nearly nothing](https://www.yahoo.com/news/once-praised-settlement-help-sickened-133428373.html)
 <!-- feed end -->
 
 ### Onstream
