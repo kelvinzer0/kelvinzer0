@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 19 - [Russia pummels exhausted Ukrainian forces with smaller attacks ahead of a springtime advance](https://www.yahoo.com/news/russia-pummels-exhausted-ukrainian-forces-050358543.html)
 - Apr 19 - [Emergency rooms refused to treat pregnant women, leaving one to miscarry in a lobby restroom](https://www.yahoo.com/news/emergency-rooms-refused-treat-pregnant-040150594.html)
 - Apr 19 - [Maryland high school student arrested after authorities discovered a 129-page document detailing school shooting plan, police say](https://www.yahoo.com/news/maryland-high-school-student-arrested-022851216.html)
 - Apr 19 - [Israel attacks Iran, sources say, drones reported over Isfahan](https://www.yahoo.com/news/israeli-missiles-hit-iran-abc-015447864.html)
 - Apr 18 - [Hear what Trump said minutes after jury was seated in hush money trial](https://www.yahoo.com/news/trump-speaks-hush-money-trial-220354480.html)
-- Apr 18 - [Fact Check: People Are Claiming Trump Never Attended His Children's Graduations. Here's What We Found](https://www.yahoo.com/news/fact-check-people-claiming-trump-212200336.html)
 <!-- feed end -->
 
 ### Onstream
