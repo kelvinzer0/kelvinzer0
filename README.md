@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 19 - [Man Sets Himself on Fire Outside Trump Trial](https://www.yahoo.com/news/person-self-immolates-near-courthouse-183838287.html)
 - Apr 19 - [Trump trial updates: Jury selection finished, man sets himself on fire outside courthouse](https://www.yahoo.com/news/trump-trial-updates-jury-selection-finished-man-sets-himself-on-fire-outside-courthouse-181824988.html)
+- Apr 19 - [Woman in Trump jury pool breaks down in tears](https://www.yahoo.com/news/woman-trump-jury-pool-breaks-171103087.html)
 - Apr 19 - [Aldi’s ‘aisle of shame’ is a middle row of goodies that have nothing to do with groceries. Shoppers are huge fans of it](https://finance.yahoo.com/news/aldi-aisle-shame-middle-row-154639194.html)
 - Apr 19 - [Trump Finally Sees Consequences for his Big Mouth in Hush-Money Trial](https://www.yahoo.com/news/trump-finally-sees-consequences-big-144854318.html)
 - Apr 19 - ['I tried telling them to stop': Video shows people yank bear cubs from tree for selfie](https://www.yahoo.com/news/tried-telling-them-stop-video-144639818.html)
