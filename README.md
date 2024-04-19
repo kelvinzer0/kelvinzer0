@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 19 - [Maryland high school student arrested after authorities discovered a 129-page document detailing school shooting plan, police say](https://www.yahoo.com/news/maryland-high-school-student-arrested-022851216.html)
+- Apr 19 - [If Congress passes funding, this is how the US could rush weapons to Ukraine for its war with Russia](https://www.yahoo.com/news/congress-passes-funding-us-could-103109156.html)
 - Apr 19 - [Clackamas Fire battles blaze at historic Timberline Lodge](https://www.yahoo.com/news/clackamas-fire-battles-blaze-historic-061303582.html)
+- Apr 19 - [Bouncer at West Hollywood nightclub arrested after violent altercation](https://www.yahoo.com/news/bouncer-west-hollywood-nightclub-arrested-053849988.html)
 - Apr 19 - [Emergency rooms refused to treat pregnant women, leaving one to miscarry in a lobby restroom](https://www.yahoo.com/news/emergency-rooms-refused-treat-pregnant-040150594.html)
-- Apr 19 - [Tehran signals no retaliation against Israel after drones attack Iran](https://www.yahoo.com/news/israeli-missiles-hit-iran-abc-015447864.html)
-- Apr 18 - ['Cowardly judge:' Dismissed Trump hush money trial juror number 4 shares his story: Exclusive](https://www.yahoo.com/news/cowardly-judge-dismissed-trump-hush-225359544.html)
 <!-- feed end -->
 
 ### Onstream
