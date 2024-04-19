@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 19 - [Ukraine claims it shot down a Russian strategic bomber. Moscow says the plane crashed](https://www.yahoo.com/news/ukraine-claims-shot-down-russian-082715260.html)
+- Apr 19 - [Ukraine claims it shot down a Russian strategic bomber as Moscow's missiles kill 8 Ukrainians](https://www.yahoo.com/news/ukraine-claims-shot-down-russian-082715260.html)
 - Apr 19 - [Pranksters Ask Trump Rally-Goers Some Simple Questions, And... Wow. Just Wow.](https://www.yahoo.com/news/pranksters-ask-trump-rally-goers-082058489.html)
 - Apr 19 - [Emergency rooms refused to treat pregnant women, leaving one to miscarry in a lobby restroom](https://www.yahoo.com/news/emergency-rooms-refused-treat-pregnant-040150594.html)
 - Apr 19 - [Maryland high school student arrested after authorities discovered a 129-page document detailing school shooting plan, police say](https://www.yahoo.com/news/maryland-high-school-student-arrested-022851216.html)
