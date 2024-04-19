@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 19 - [Israeli missiles hit site in Iran, ABC News reports](https://www.yahoo.com/news/israeli-missiles-hit-iran-abc-015447864.html)
+- Apr 19 - [Oil prices jump $3/bbl on unconfirmed reports of explosions in Iran](https://finance.yahoo.com/news/oil-prices-ease-prospect-persistently-010457016.html)
 - Apr 18 - [Hear what Trump said minutes after jury was seated in hush money trial](https://www.yahoo.com/news/trump-speaks-hush-money-trial-220354480.html)
-- Apr 18 - [Kentucky governor announces lottery to award initial round of medical cannabis business licenses](https://www.yahoo.com/news/kentucky-governor-announces-lottery-award-220628247.html)
 - Apr 18 - [Fact Check: People Are Claiming Trump Never Attended His Children's Graduations. Here's What We Found](https://www.yahoo.com/news/fact-check-people-claiming-trump-212200336.html)
 - Apr 18 - [Trump loses bid to halt Jan. 6 lawsuits while he fights criminal charges in the 2020 election case](https://www.yahoo.com/news/trump-loses-bid-halt-jan-204540802.html)
-- Apr 18 - [Ilhan Omar's daughter mocked as 'psycho' after college suspends her for anti-Israel demonstrations](https://www.yahoo.com/news/ilhan-omars-daughter-mocked-psycho-203305786.html)
 <!-- feed end -->
 
 ### Onstream
