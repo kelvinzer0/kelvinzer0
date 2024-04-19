@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 19 - [Arnold Palmer's Green Jacket reportedly among items stolen from Augusta National Golf Club](https://sports.yahoo.com/arnold-palmers-green-jacket-reportedly-among-items-stolen-from-augusta-national-golf-club-213423186.html)
 - Apr 19 - [Trump trial updates: Jury selection finished, man sets himself on fire outside courthouse](https://www.yahoo.com/news/trump-trial-updates-jury-selection-finished-man-sets-himself-on-fire-outside-courthouse-181824988.html)
-- Apr 19 - [Seattle gave low-income residents $500 monthly payments with no strings attached. Some got new housing and employment rates nearly doubled.](https://finance.yahoo.com/news/seattle-gave-low-income-residents-175101720.html)
 - Apr 19 - [Woman in Trump jury pool breaks down in tears](https://www.yahoo.com/news/woman-trump-jury-pool-breaks-171103087.html)
 - Apr 19 - [Aldi’s ‘aisle of shame’ is a middle row of goodies that have nothing to do with groceries. Shoppers are huge fans of it](https://finance.yahoo.com/news/aldi-aisle-shame-middle-row-154639194.html)
 - Apr 19 - [Sen. Josh Hawley Hit With Receipts After Gaslighting Gripe On Fox News](https://www.yahoo.com/news/sen-josh-hawley-hit-receipts-161133432.html)
