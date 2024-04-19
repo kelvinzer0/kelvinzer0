@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 19 - [Trump Finally Sees Consequences for his Big Mouth in Hush-Money Trial](https://www.yahoo.com/news/trump-finally-sees-consequences-big-144854318.html)
 - Apr 19 - [Watch: Ukraine ‘shoots down’ Russian bomber armed with cruise missiles](https://www.yahoo.com/news/watch-ukraine-shoots-down-russian-135447239.html)
-- Apr 19 - [Opinion: I survived the Holocaust. What I see happening in Berkeley is frightening](https://www.yahoo.com/news/opinion-survived-holocaust-see-happening-131929530.html)
-- Apr 19 - [Could you be an impartial juror in Trump’s trial? Hear what New Yorkers say](https://www.yahoo.com/news/could-impartial-juror-trump-trial-113515997.html)
 - Apr 19 - [Maryland high school student arrested after authorities discovered a 129-page document detailing school shooting plan, police say](https://www.yahoo.com/news/maryland-high-school-student-arrested-022851216.html)
 - Apr 19 - [Cleaning up from storm damage across the St. Louis region](https://www.yahoo.com/news/cleaning-storm-damage-across-st-105806487.html)
+- Apr 19 - [If Congress passes funding, this is how the US could rush weapons to Ukraine for its war with Russia](https://www.yahoo.com/news/congress-passes-funding-us-could-103109156.html)
 <!-- feed end -->
 
 ### Onstream
