@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 19 - [Savannah Chrisley on hope for parents' future, raising teen brother and niece](https://www.yahoo.com/news/savannah-chrisley-hope-parents-future-135700761.html)
 - Apr 19 - [More than half of the US Air Force's B-2 stealth bombers just staged a mass fly-off](https://www.yahoo.com/news/more-half-us-air-forces-212210455.html)
+- Apr 19 - [Trump Fumes as Judge Orders Him to Sit Like a Dog](https://www.yahoo.com/news/trump-fumes-judge-orders-him-210004033.html)
 - Apr 19 - [Florida man set himself on fire near NYC courthouse holding Trump trial](https://www.yahoo.com/news/florida-man-set-himself-fire-205642460.html)
-- Apr 19 - [This Johnson County fast-food restaurant just closed. It had been open for decades](https://www.yahoo.com/news/johnson-county-fast-food-restaurant-175530823.html)
-- Apr 19 - [Aldi’s ‘aisle of shame’ is a middle row of goodies that have nothing to do with groceries. Shoppers are huge fans of it](https://finance.yahoo.com/news/aldi-aisle-shame-middle-row-154639194.html)
-- Apr 19 - [Republican Wisconsin Senate candidate says he doesn't oppose elderly people voting](https://www.yahoo.com/news/republican-wisconsin-senate-candidate-says-164953061.html)
+- Apr 19 - [Israel’s strike has exposed Iran’s fatal weakness](https://www.yahoo.com/news/israel-strike-exposed-iran-fatal-173548741.html)
 <!-- feed end -->
 
 ### Onstream
