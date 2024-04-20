@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 19 - [Savannah Chrisley on hope for parents' future, raising teen brother and niece](https://www.yahoo.com/news/savannah-chrisley-hope-parents-future-135700761.html)
+- Apr 19 - [Man Who Set Himself On Fire Outside Trump's Trial Reveals Shocking Motive In His Political Manifesto](https://www.yahoo.com/entertainment/man-set-himself-fire-outside-221623666.html)
+- Apr 19 - [Hospital looking to identify woman found at downtown L.A. apartment complex](https://www.yahoo.com/news/hospital-looking-identify-woman-found-212859845.html)
 - Apr 19 - [More than half of the US Air Force's B-2 stealth bombers just staged a mass fly-off](https://www.yahoo.com/news/more-half-us-air-forces-212210455.html)
-- Apr 19 - [Trump Fumes as Judge Orders Him to Sit Like a Dog](https://www.yahoo.com/news/trump-fumes-judge-orders-him-210004033.html)
-- Apr 19 - [Florida man set himself on fire near NYC courthouse holding Trump trial](https://www.yahoo.com/news/florida-man-set-himself-fire-205642460.html)
-- Apr 19 - [Israel’s strike has exposed Iran’s fatal weakness](https://www.yahoo.com/news/israel-strike-exposed-iran-fatal-173548741.html)
+- Apr 19 - [Trump trial updates: Jury selection finished, man sets himself on fire outside courthouse](https://www.yahoo.com/news/trump-trial-updates-jury-selection-finished-man-sets-himself-on-fire-outside-courthouse-181824988.html)
 <!-- feed end -->
 
 ### Onstream
