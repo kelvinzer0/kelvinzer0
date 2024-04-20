@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 20 - [Trump forced to listen silently to people insulting him as he trades a cocoon of adulation for court](https://www.yahoo.com/news/trump-forced-listen-silently-people-040458432.html)
+- Apr 20 - [How a store manager from India ended up killed on the battlefields of Ukraine fighting for Russia](https://www.yahoo.com/news/store-manager-india-ended-killed-013107660.html)
+- Apr 19 - [‘He was rattled’: Legal expert reacts to Trump’s statement after hearing](https://www.yahoo.com/news/rattled-legal-expert-reacts-trump-224821591.html)
 - Apr 19 - [Savannah Chrisley on hope for parents' future, raising teen brother and niece](https://www.yahoo.com/news/savannah-chrisley-hope-parents-future-135700761.html)
 - Apr 19 - [Man Who Set Himself On Fire Outside Trump's Trial Reveals Shocking Motive In His Political Manifesto](https://www.yahoo.com/entertainment/man-set-himself-fire-outside-221623666.html)
-- Apr 19 - [Hospital looking to identify woman found at downtown L.A. apartment complex](https://www.yahoo.com/news/hospital-looking-identify-woman-found-212859845.html)
-- Apr 19 - [More than half of the US Air Force's B-2 stealth bombers just staged a mass fly-off](https://www.yahoo.com/news/more-half-us-air-forces-212210455.html)
-- Apr 19 - [Trump trial updates: Jury selection finished, man sets himself on fire outside courthouse](https://www.yahoo.com/news/trump-trial-updates-jury-selection-finished-man-sets-himself-on-fire-outside-courthouse-181824988.html)
 <!-- feed end -->
 
 ### Onstream
