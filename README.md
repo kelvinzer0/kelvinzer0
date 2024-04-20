@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 20 - [Marjorie Taylor Green mocked by fellow lawmaker calling on her to be appointed as 'Putin's Special Envoy'](https://www.yahoo.com/news/marjorie-taylor-green-mocked-fellow-162753093.html)
+- Apr 20 - [These 112 House Republicans voted against Ukraine aid](https://www.yahoo.com/news/112-house-republicans-voted-against-175745429.html)
 - Apr 20 - [Barron Trump May Be Breaking This Trump Tradition With His Surprising First Choice for College](https://www.yahoo.com/entertainment/barron-trump-may-breaking-trump-144600435.html)
 - Apr 20 - [Satellite image analyzed by AP shows damage after Iranian attack on Israeli desert air base](https://www.yahoo.com/news/satellite-image-analyzed-ap-shows-142915844.html)
+- Apr 20 - [Trump Privately Rages About His Sketch Artist, Courtroom Nap Reports](https://www.yahoo.com/news/trump-privately-rages-sketch-artist-140000547.html)
 - Apr 20 - [Fact Check: The Truth About Hitler's Condition That Made Him Pass Gas a Lot](https://www.yahoo.com/news/fact-check-truth-hitlers-condition-130000525.html)
-- Apr 20 - [I'm So, So, So Sorry, But These Extremely Dumb Things People Posted On The Internet Last Week Are Absolutely Killing Me](https://www.yahoo.com/entertainment/im-sorry-extremely-dumb-things-121617520.html)
 <!-- feed end -->
 
 ### Onstream
