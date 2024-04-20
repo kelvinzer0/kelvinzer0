@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Apr 20 - [Trump forced to listen silently to people insulting him as he trades a cocoon of adulation for court](https://www.yahoo.com/news/trump-forced-listen-silently-people-040458432.html)
 - Apr 19 - [Live video of man who set himself on fire outside court proves challenging for news organizations](https://www.yahoo.com/news/live-video-man-set-himself-231546791.html)
 - Apr 19 - [Golden Gate Ferry service suspended between SF and Sausalito until further notice](https://www.yahoo.com/news/golden-gate-ferry-suspended-between-230920359.html)
+- Apr 19 - [‘He was rattled’: Legal expert reacts to Trump’s statement after hearing](https://www.yahoo.com/news/rattled-legal-expert-reacts-trump-224821591.html)
 - Apr 19 - [Savannah Chrisley talks about the fate of her parents Todd and Julie](https://www.yahoo.com/entertainment/savannah-chrisley-hope-parents-future-135700761.html)
-- Apr 19 - [Man Who Set Himself On Fire Outside Trump's Trial Reveals Shocking Motive In His Political Manifesto](https://www.yahoo.com/entertainment/man-set-himself-fire-outside-221623666.html)
 <!-- feed end -->
 
 ### Onstream
