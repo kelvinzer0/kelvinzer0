@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 19 - [More than half of the US Air Force's B-2 stealth bombers just staged a mass fly-off](https://www.yahoo.com/news/more-half-us-air-forces-212210455.html)
-- Apr 19 - [Trump trial updates: Jury selection finished, man sets himself on fire outside courthouse](https://www.yahoo.com/news/trump-trial-updates-jury-selection-finished-man-sets-himself-on-fire-outside-courthouse-181824988.html)
-- Apr 19 - [Woman in Trump jury pool breaks down in tears](https://www.yahoo.com/news/woman-trump-jury-pool-breaks-171103087.html)
+- Apr 19 - [Florida man set himself on fire near NYC courthouse holding Trump trial](https://www.yahoo.com/news/florida-man-set-himself-fire-205642460.html)
+- Apr 19 - [This Johnson County fast-food restaurant just closed. It had been open for decades](https://www.yahoo.com/news/johnson-county-fast-food-restaurant-175530823.html)
 - Apr 19 - [Aldi’s ‘aisle of shame’ is a middle row of goodies that have nothing to do with groceries. Shoppers are huge fans of it](https://finance.yahoo.com/news/aldi-aisle-shame-middle-row-154639194.html)
-- Apr 19 - [Trump Finally Sees Consequences for his Big Mouth in Hush-Money Trial](https://www.yahoo.com/news/trump-finally-sees-consequences-big-144854318.html)
+- Apr 19 - [Republican Wisconsin Senate candidate says he doesn't oppose elderly people voting](https://www.yahoo.com/news/republican-wisconsin-senate-candidate-says-164953061.html)
 <!-- feed end -->
 
 ### Onstream
