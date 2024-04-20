@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 20 - [American sniper in Ukraine says his unit prefers Soviet-era rifles because bullets are easier to find and they can take them from the Russians](https://www.yahoo.com/news/american-sniper-ukraine-says-unit-114501657.html)
+- Apr 20 - [Sen. Tuberville thinks Social Security wastes taxpayer money. What's wrong — and what it might take to fix it](https://finance.yahoo.com/news/sen-tuberville-thinks-social-security-102900102.html)
 - Apr 20 - [Harbor-UCLA doctor is fired after county finds he regularly gawked at patients' genitalia](https://www.yahoo.com/news/harbor-ucla-doctor-fired-county-100000276.html)
-- Apr 20 - [Israel and Iran's apparent strikes and counterstrikes give new insights into both militaries](https://www.yahoo.com/news/israel-irans-apparent-strikes-counterstrikes-043943480.html)
-- Apr 20 - [Trump forced to listen silently to people insulting him as he trades a cocoon of adulation for court](https://www.yahoo.com/news/trump-forced-listen-silently-people-040458432.html)
+- Apr 20 - [Man dies after setting himself on fire outside courthouse where Trump is on trial](https://www.yahoo.com/news/man-sets-himself-fire-outside-220526870.html)
 - Apr 19 - [New York AG Letitia James asks judge to void Trump's bond in his civil fraud verdict](https://www.yahoo.com/news/york-ag-letitia-james-asks-233142759.html)
-- Apr 19 - [Live video of man who set himself on fire outside court proves challenging for news organizations](https://www.yahoo.com/news/live-video-man-set-himself-231546791.html)
 <!-- feed end -->
 
 ### Onstream
