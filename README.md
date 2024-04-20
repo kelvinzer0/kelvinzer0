@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 20 - [Satellite image analyzed by AP shows damage after Iranian attack on Israeli desert air base](https://www.yahoo.com/news/satellite-image-analyzed-ap-shows-142915844.html)
+- Apr 20 - [Trump Privately Rages About His Sketch Artist, Courtroom Nap Reports](https://www.yahoo.com/news/trump-privately-rages-sketch-artist-140000547.html)
+- Apr 20 - [San Francisco sues Oakland to stop it from changing the name of its airport](https://www.yahoo.com/news/san-francisco-sues-oakland-stop-201130715.html)
 - Apr 20 - [Duke University’s move to end full ride scholarship for Black students gets mixed reaction from former scholars](https://www.yahoo.com/news/duke-university-move-end-full-122353060.html)
 - Apr 20 - [American sniper in Ukraine says his unit prefers Soviet-era rifles because bullets are easier to find and they can take them from the Russians](https://www.yahoo.com/news/american-sniper-ukraine-says-unit-114501657.html)
-- Apr 20 - [Sen. Tuberville thinks Social Security wastes taxpayer money. What's wrong — and what it might take to fix it](https://finance.yahoo.com/news/sen-tuberville-thinks-social-security-102900102.html)
-- Apr 20 - [Harbor-UCLA doctor is fired after county finds he regularly gawked at patients' genitalia](https://www.yahoo.com/news/harbor-ucla-doctor-fired-county-100000276.html)
-- Apr 20 - [Man dies after setting himself on fire outside courthouse where Trump is on trial](https://www.yahoo.com/news/man-sets-himself-fire-outside-220526870.html)
 <!-- feed end -->
 
 ### Onstream
