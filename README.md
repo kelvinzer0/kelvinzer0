@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 21 - [Israel hit Iran with a half-ton supersonic 'Rampage' missile, report says](https://www.yahoo.com/news/israel-hit-iran-half-ton-144054231.html)
+- Apr 21 - [Israeli PM Netanyahu says he will fight any sanctions on army battalions](https://www.yahoo.com/news/israeli-pm-netanyahu-says-fight-142558416.html)
+- Apr 21 - [Prague flash mob advocates Ukraine solution via the Estonian plan](https://www.yahoo.com/news/prague-flash-mob-advocates-ukraine-140100057.html)
 - Apr 21 - [20 reasons why Donald Trump has been good for America: No, seriously](https://www.yahoo.com/news/20-reasons-why-donald-trump-130006514.html)
-- Apr 21 - [Iran's supreme leader tacitly acknowledges Tehran hit little in its massive attack on Israel](https://www.yahoo.com/news/irans-supreme-leader-tacitly-acknowledges-125640313.html)
 - Apr 21 - [Roaring fire at historic New Hampshire performance center](https://www.yahoo.com/news/roaring-fire-breaks-historic-hampshire-030036466.html)
-- Apr 21 - [When it comes to government planes and political trips, who pays for a president's campaign travel?](https://www.yahoo.com/news/comes-government-planes-political-trips-123547501.html)
-- Apr 21 - [Israel indicts sister of Hamas leader Haniyeh on terrorism incitement](https://www.yahoo.com/news/israel-indicts-sister-hamas-leader-122936716.html)
 <!-- feed end -->
 
 ### Onstream
