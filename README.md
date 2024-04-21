@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 20 - [Trump cancels North Carolina rally due to storm](https://www.yahoo.com/news/trump-cancels-north-carolina-rally-225328980.html)
+- Apr 20 - ['I've Studied Longevity for 30 Years—These Are the 5 Foods to Avoid if You Want to Live to 100'](https://www.yahoo.com/lifestyle/ive-studied-longevity-30-years-222500362.html)
+- Apr 20 - [Severe storms with tennis ball-size hail pummel Charlotte area Saturday, NWS says](https://www.yahoo.com/news/severe-storms-tennis-ball-size-214954336.html)
+- Apr 20 - [Kremlin: US House passage of Ukraine aid bill will hurt Ukraine, cause more deaths](https://www.yahoo.com/news/kremlin-us-house-passage-ukraine-212403868.html)
 - Apr 20 - [A rare 'devil comet' will reach peak brightness this weekend. Here's how you can see it.](https://www.yahoo.com/news/a-rare-devil-comet-will-reach-peak-brightness-this-weekend-heres-how-you-can-see-it-202739338.html)
-- Apr 20 - [These 112 House Republicans voted against Ukraine aid](https://www.yahoo.com/news/112-house-republicans-voted-against-175745429.html)
-- Apr 20 - [Marjorie Taylor Green mocked by fellow lawmaker calling on her to be appointed as 'Putin's Special Envoy'](https://www.yahoo.com/news/marjorie-taylor-green-mocked-fellow-162753093.html)
-- Apr 20 - [Barron Trump May Be Breaking This Trump Tradition With His Surprising First Choice for College](https://www.yahoo.com/entertainment/barron-trump-may-breaking-trump-144600435.html)
-- Apr 20 - [Satellite image analyzed by AP shows damage after Iranian attack on Israeli desert air base](https://www.yahoo.com/news/satellite-image-analyzed-ap-shows-142915844.html)
 <!-- feed end -->
 
 ### Onstream
