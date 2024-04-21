@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Russia says deeper U.S. hybrid war using Ukraine will end in Vietnam-style humiliation](https://www.yahoo.com/news/russia-says-deeper-u-hybrid-094205842.html)
-- Apr 21 - [Ukrainian and Western leaders laud US aid package while the Kremlin warns of 'further ruin'](https://www.yahoo.com/news/ukrainian-western-leaders-laud-us-085709494.html)
+- Apr 21 - [After rocky start, Kamala Harris emerges as the Biden campaign’s lead prosecutor on top issues](https://www.yahoo.com/news/rocky-start-kamala-harris-emerges-110026956.html)
+- Apr 21 - [Accused of double murder: The grandmother, her boyfriend and the couple who hosted anti-government religious meetings](https://www.yahoo.com/news/accused-double-murder-grandmother-her-100214870.html)
+- Apr 21 - [Column: Kevin McCarthy wants vengeance. Now he's free to pursue it](https://www.yahoo.com/news/column-kevin-mccarthy-wants-vengeance-100058265.html)
+- Apr 21 - [Former Hells Angels leader reveals why he left outlaw biker club: 'I don't miss going to prison'](https://www.yahoo.com/news/former-hells-angels-leader-reveals-080035136.html)
 - Apr 21 - [Roaring fire at historic New Hampshire performance center](https://www.yahoo.com/news/roaring-fire-breaks-historic-hampshire-030036466.html)
-- Apr 21 - [What the world's media makes of Trump going on trial](https://www.yahoo.com/news/worlds-media-makes-trump-going-011244246.html)
-- Apr 21 - [Marijuana grow busted in Maine as feds investigate trend in 20 states](https://www.yahoo.com/news/marijuana-grow-busted-maine-feds-050522239.html)
 <!-- feed end -->
 
 ### Onstream
