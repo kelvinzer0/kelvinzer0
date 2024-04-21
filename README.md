@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Russia says it has taken Bohdanivka in eastern Ukraine](https://www.yahoo.com/news/russia-says-taken-bohdanivka-eastern-190041460.html)
+- Apr 21 - [Marjorie Taylor Greene calls on Johnson to resign after foreign aid bills pass: ‘If he doesn’t do so, he will be vacated’](https://www.yahoo.com/news/marjorie-taylor-greene-calls-johnson-162351944.html)
+- Apr 21 - [A Palestinian baby in Gaza is born an orphan in an urgent cesarean section after an Israeli strike](https://www.yahoo.com/news/palestinian-baby-gaza-born-orphan-195533883.html)
 - Apr 21 - [Poll: Growing majority of Americans want Congress to restore Roe v. Wade protections nationwide](https://www.yahoo.com/news/poll-growing-majority-americans-want-185938716.html)
-- Apr 21 - [UPDATE 1-Russia says it has taken Bohdanivka in eastern Ukraine](https://finance.yahoo.com/news/1-russia-says-taken-bohdanivka-185838177.html)
 - Apr 21 - [Kevin Bacon returns to ‘Footloose’ high school to mark film’s 40th anniversary](https://www.yahoo.com/entertainment/kevin-bacon-returns-footloose-high-165126283.html)
 - Apr 21 - [Texas Congressman Roasts Fellow Republicans on CNN: ‘I Serve With Some Real Scumbags’ | Video](https://www.yahoo.com/news/texas-congressman-roasts-fellow-republicans-172507359.html)
 <!-- feed end -->
