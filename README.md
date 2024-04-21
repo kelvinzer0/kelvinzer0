@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Texas Congressman Roasts Fellow Republicans on CNN: ‘I Serve With Some Real Scumbags’ | Video](https://www.yahoo.com/news/texas-congressman-roasts-fellow-republicans-172507359.html)
-- Apr 21 - [The world isn’t as messed up as you might think](https://finance.yahoo.com/news/the-world-isnt-as-messed-up-as-you-might-think-170048030.html)
-- Apr 21 - [Stormy Daniels' Ex-Lawyer Michael Avenatti Says He Is 'Happy To Testify' For Donald Trump](https://www.yahoo.com/news/stormy-daniels-ex-lawyer-michael-170018580.html)
+- Apr 21 - [Russia says it has taken Bohdanivka in eastern Ukraine](https://www.yahoo.com/news/russia-says-taken-bohdanivka-eastern-190041460.html)
+- Apr 21 - [Poll: Growing majority of Americans want Congress to restore Roe v. Wade protections nationwide](https://www.yahoo.com/news/poll-growing-majority-americans-want-185938716.html)
+- Apr 21 - [UPDATE 1-Russia says it has taken Bohdanivka in eastern Ukraine](https://finance.yahoo.com/news/1-russia-says-taken-bohdanivka-185838177.html)
 - Apr 21 - [Kevin Bacon returns to ‘Footloose’ high school to mark film’s 40th anniversary](https://www.yahoo.com/entertainment/kevin-bacon-returns-footloose-high-165126283.html)
-- Apr 21 - [Marjorie Taylor Greene calls on Johnson to resign after foreign aid bills pass: ‘If he doesn’t do so, he will be vacated’](https://www.yahoo.com/news/marjorie-taylor-greene-calls-johnson-162351944.html)
+- Apr 21 - [Texas Congressman Roasts Fellow Republicans on CNN: ‘I Serve With Some Real Scumbags’ | Video](https://www.yahoo.com/news/texas-congressman-roasts-fellow-republicans-172507359.html)
 <!-- feed end -->
 
 ### Onstream
