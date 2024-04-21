@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 21 - [Marjorie Taylor Greene calls on Johnson to resign after foreign aid bills pass: ‘If he doesn’t do so, he will be vacated’](https://www.yahoo.com/news/marjorie-taylor-greene-calls-johnson-162351944.html)
 - Apr 21 - [Trump’s Trial Challenge: Being Stripped of Control](https://www.yahoo.com/news/trump-trial-challenge-being-stripped-161032326.html)
 - Apr 21 - [Israel hit Iran with a half-ton supersonic 'Rampage' missile, report says](https://www.yahoo.com/news/israel-hit-iran-half-ton-144054231.html)
+- Apr 21 - [Man convicted in killing of two Dartmouth professors is set to be released on parole](https://www.yahoo.com/news/man-convicted-killing-two-dartmouth-143601495.html)
 - Apr 21 - [Prague flash mob advocates Ukraine solution via the Estonian plan](https://www.yahoo.com/news/prague-flash-mob-advocates-ukraine-140100057.html)
-- Apr 21 - [20 reasons why Donald Trump has been good for America: No, seriously](https://www.yahoo.com/news/20-reasons-why-donald-trump-130006514.html)
-- Apr 21 - [Roaring fire at historic New Hampshire performance center](https://www.yahoo.com/news/roaring-fire-breaks-historic-hampshire-030036466.html)
 <!-- feed end -->
 
 ### Onstream
