@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 21 - [How a store manager from India ended up killed on the battlefields of Ukraine fighting for Russia](https://www.yahoo.com/news/store-manager-india-ended-killed-013107660.html)
 - Apr 20 - [Trump cancels North Carolina rally due to storm](https://www.yahoo.com/news/trump-cancels-north-carolina-rally-225328980.html)
 - Apr 20 - ['I've Studied Longevity for 30 Years—These Are the 5 Foods to Avoid if You Want to Live to 100'](https://www.yahoo.com/lifestyle/ive-studied-longevity-30-years-222500362.html)
 - Apr 20 - [Severe storms with tennis ball-size hail pummel Charlotte area Saturday, NWS says](https://www.yahoo.com/news/severe-storms-tennis-ball-size-214954336.html)
 - Apr 20 - [Kremlin: US House passage of Ukraine aid bill will hurt Ukraine, cause more deaths](https://www.yahoo.com/news/kremlin-us-house-passage-ukraine-212403868.html)
-- Apr 20 - [A rare 'devil comet' will reach peak brightness this weekend. Here's how you can see it.](https://www.yahoo.com/news/a-rare-devil-comet-will-reach-peak-brightness-this-weekend-heres-how-you-can-see-it-202739338.html)
 <!-- feed end -->
 
 ### Onstream
