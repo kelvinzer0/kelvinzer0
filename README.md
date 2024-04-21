@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 21 - [20 reasons why Donald Trump has been good for America: No, seriously](https://www.yahoo.com/news/20-reasons-why-donald-trump-130006514.html)
 - Apr 21 - [Iran's supreme leader tacitly acknowledges Tehran hit little in its massive attack on Israel](https://www.yahoo.com/news/irans-supreme-leader-tacitly-acknowledges-125640313.html)
 - Apr 21 - [Roaring fire at historic New Hampshire performance center](https://www.yahoo.com/news/roaring-fire-breaks-historic-hampshire-030036466.html)
-- Apr 21 - [After rocky start, Kamala Harris emerges as the Biden campaign’s lead prosecutor on top issues](https://www.yahoo.com/news/rocky-start-kamala-harris-emerges-110026956.html)
-- Apr 21 - [In chance for Trump, youth at rally see him as answer to economic woes](https://www.yahoo.com/news/chance-trump-youth-rally-see-100530613.html)
-- Apr 21 - [Accused of double murder: The grandmother, her boyfriend and the couple who hosted anti-government religious meetings](https://www.yahoo.com/news/accused-double-murder-grandmother-her-100214870.html)
+- Apr 21 - [When it comes to government planes and political trips, who pays for a president's campaign travel?](https://www.yahoo.com/news/comes-government-planes-political-trips-123547501.html)
+- Apr 21 - [Israel indicts sister of Hamas leader Haniyeh on terrorism incitement](https://www.yahoo.com/news/israel-indicts-sister-hamas-leader-122936716.html)
 <!-- feed end -->
 
 ### Onstream
