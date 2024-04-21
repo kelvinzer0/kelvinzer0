@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Terry Anderson, AP reporter held captive for years, has died](https://www.yahoo.com/news/terry-anderson-ap-reporter-held-211444971.html)
+- Apr 21 - [Terry Anderson, AP reporter abducted in Lebanon and held captive for years, has died](https://www.yahoo.com/news/terry-anderson-ap-reporter-held-211444971.html)
 - Apr 21 - [Marjorie Taylor Greene calls on Johnson to resign after foreign aid bills pass: ‘If he doesn’t do so, he will be vacated’](https://www.yahoo.com/news/marjorie-taylor-greene-calls-johnson-162351944.html)
 - Apr 21 - [Opinion: I’ve been a criminal attorney for decades. Here’s what I think about the case against Trump](https://www.yahoo.com/news/opinion-one-veteran-criminal-defense-201655444.html)
 - Apr 21 - [Pittsburgh ice cream shop closing after decades of business](https://www.yahoo.com/news/pittsburgh-ice-cream-shop-closing-203407387.html)
