@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [Russia should confiscate Western assets now after U.S. move, top lawmaker says](https://www.yahoo.com/news/russia-confiscate-western-assets-now-062320537.html)
 - Apr 22 - ['This Actually Happened': Trump Courtroom Witness Confirms Embarrassing Moment](https://www.yahoo.com/news/actually-happened-trump-courtroom-witness-034634778.html)
 - Apr 22 - [Columbia University faces full-blown crisis as rabbi calls for Jewish students to ‘return home’](https://www.yahoo.com/news/rabbi-associated-columbia-university-recommends-191842821.html)
-- Apr 22 - [Kennedy says he loves his family 'either way' after relatives endorse Biden's campaign over his](https://www.yahoo.com/news/kennedy-says-loves-family-either-023811672.html)
 - Apr 22 - [2 women randomly attacked on Ventura Boulevard in Sherman Oaks](https://www.yahoo.com/news/2-women-randomly-attacked-ventura-015126547.html)
 - Apr 21 - [Bricks of cocaine found in lamp offer clue into a Homestead woman’s deadly carjacking](https://www.yahoo.com/news/bricks-cocaine-found-lamp-offer-235539435.html)
 <!-- feed end -->
