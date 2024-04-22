@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [Family mourns Wisconsin mother of 10 whose body was found in trunk](https://www.yahoo.com/news/family-mourns-wisconsin-mother-10-172030556.html)
+- Apr 22 - [Sebastian Steudtner says he has surfed the ‘unsurfable’ after drone technology measures 93.7-foot wave as world record](https://sports.yahoo.com/sebastian-steudtner-says-surfed-unsurfable-120916444.html)
+- Apr 22 - [Target store in Woodbury on lockdown; SWAT team dispatched to ‘active scene’](https://www.yahoo.com/news/target-store-woodbury-lockdown-swat-164900912.html)
 - Apr 22 - [Russia has up to 25,000 troops trying to storm Chasiv Yar area, Kyiv says](https://www.yahoo.com/news/russia-25-000-troops-trying-162944343.html)
 - Apr 22 - [‘Iran is broke’: How clerics crippled the Islamic Republic](https://finance.yahoo.com/news/iran-broke-clerics-crippled-islamic-162729483.html)
-- Apr 22 - [Supreme Court denies request by Arizona candidates seeking to ban electronic vote tabulators](https://www.yahoo.com/news/supreme-court-denies-request-arizona-162633059.html)
-- Apr 22 - [Judge approves safeguards for Donald Trump's $175 million civil business fraud appeal bond](https://finance.yahoo.com/news/judge-approves-safeguards-donald-trumps-160556516.html)
-- Apr 22 - [Snoozy Trump Wakes Up as Prosecutor Calls Him a Liar](https://www.yahoo.com/news/snoozy-trump-wakes-prosecutor-paints-155813689.html)
 <!-- feed end -->
 
 ### Onstream
