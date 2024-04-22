@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [Peruvian psychologist dies by euthanasia after fighting for years in courts for 'death with dignity'](https://www.yahoo.com/news/peruvian-psychologist-dies-euthanasia-fighting-220544463.html)
+- Apr 22 - [Chicago Bears to announce plans Wednesday for new domed stadium on lakefront](https://sports.yahoo.com/chicago-bears-announce-plans-wednesday-214100215.html)
 - Apr 22 - [Alina Habba Shows Up at Trump’s Trial and Suddenly Makes Things Worse](https://www.yahoo.com/news/alina-habba-shows-trump-trial-211739272.html)
 - Apr 22 - [Rapper Chris King, friend of Justin Bieber and Trippie Redd, killed in Nashville](https://www.yahoo.com/entertainment/rapper-chris-king-friend-justin-211347078.html)
 - Apr 22 - [NCDOT removes homeless camp and 45 tons of trash and debris from a Raleigh interchange](https://www.yahoo.com/news/ncdot-removes-homeless-camp-45-205250885.html)
-- Apr 22 - [Tennessee's GOP governor says Volkswagen plant workers made a mistake in union vote](https://www.yahoo.com/news/tennessees-gop-governor-says-volkswagen-191410302.html)
-- Apr 22 - [Sotomayor Asks One Damning Question in Supreme Court Homelessness Case](https://www.yahoo.com/news/sotomayor-asks-one-damning-supreme-183417064.html)
 <!-- feed end -->
 
 ### Onstream
