@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Family mourns Wisconsin mother of 10 whose body was found in trunk](https://www.yahoo.com/news/family-mourns-wisconsin-mother-10-172030556.html)
+- Apr 22 - [Before and after: See Dubai flooding from space](https://www.yahoo.com/news/see-dubai-flooding-space-153437087.html)
+- Apr 22 - [23 Black Tweets That Are So Funny, I'm 99.99% Sure You'll Be Snickering Through Your Monday Meetings](https://www.yahoo.com/entertainment/23-black-tweets-funny-im-181345287.html)
+- Apr 22 - [Texas appeals court sides with Sidney Powell, rejecting attorney discipline over her Trump election lawsuits](https://www.yahoo.com/news/texas-appeals-court-sides-sidney-174401853.html)
+- Apr 22 - [Once estimated to cost $1.7 million, San Francisco's long-mocked toilet is up and running](https://www.yahoo.com/news/once-estimated-cost-1-7-172402510.html)
 - Apr 22 - [Sebastian Steudtner says he has surfed the ‘unsurfable’ after drone technology measures 93.7-foot wave as world record](https://sports.yahoo.com/sebastian-steudtner-says-surfed-unsurfable-120916444.html)
-- Apr 22 - [Target store in Woodbury on lockdown; SWAT team dispatched to ‘active scene’](https://www.yahoo.com/news/target-store-woodbury-lockdown-swat-164900912.html)
-- Apr 22 - [Russia has up to 25,000 troops trying to storm Chasiv Yar area, Kyiv says](https://www.yahoo.com/news/russia-25-000-troops-trying-162944343.html)
-- Apr 22 - [‘Iran is broke’: How clerics crippled the Islamic Republic](https://finance.yahoo.com/news/iran-broke-clerics-crippled-islamic-162729483.html)
 <!-- feed end -->
 
 ### Onstream
