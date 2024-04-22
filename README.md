@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [2 brothers condemned to die for the 'Wichita massacre' want a new sentencing hearing](https://www.yahoo.com/news/2-brothers-condemned-die-wichita-123656646.html)
+- Apr 22 - [A woman who lost 105 pounds shares two things that made eating healthy and exercising regularly easier](https://www.yahoo.com/news/woman-lost-105-pounds-shares-113153993.html)
 - Apr 22 - [Michael Douglas Defends Joe Biden With A Stark Reminder About Donald Trump](https://www.yahoo.com/entertainment/michael-douglas-defends-joe-biden-111737196.html)
 - Apr 22 - [Columbia University faces full-blown crisis as rabbi calls for Jewish students to ‘return home’](https://www.yahoo.com/news/rabbi-associated-columbia-university-recommends-191842821.html)
 - Apr 22 - [Anti-doping agency defends handling of Chinese swimmers who tested positive for banned drug](https://www.yahoo.com/news/anti-doping-agency-defends-handling-104031031.html)
-- Apr 22 - [European nations with Patriots hesitate to give their missile systems to Ukraine](https://www.yahoo.com/news/european-nations-patriots-hesitate-missile-103208642.html)
-- Apr 22 - [Israel hit Iran with a half-ton supersonic 'Rampage' missile, report says](https://www.yahoo.com/news/israel-hit-iran-half-ton-144054231.html)
 <!-- feed end -->
 
 ### Onstream
