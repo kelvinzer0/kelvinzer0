@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Israel hit Iran with a half-ton supersonic 'Rampage' missile, report says](https://www.yahoo.com/news/israel-hit-iran-half-ton-144054231.html)
-- Apr 22 - [Trump's $175 million bond goes before judge on New York AG's concerns](https://www.yahoo.com/news/trumps-175-million-bond-goes-101103777.html)
-- Apr 22 - [Ex-Prosecutor Spots A Big 'Oops' In Donald Trump's Likely Legal Defense](https://www.yahoo.com/news/ex-prosecutor-spots-big-oops-094950732.html)
-- Apr 22 - [4 Germans caught marking Hitler's birthday outside Nazi dictator's birthplace in Austria](https://www.yahoo.com/news/4-germans-caught-marking-hitlers-093230590.html)
+- Apr 22 - [Michael Douglas Defends Joe Biden With A Stark Reminder About Donald Trump](https://www.yahoo.com/entertainment/michael-douglas-defends-joe-biden-111737196.html)
 - Apr 22 - [Columbia University faces full-blown crisis as rabbi calls for Jewish students to ‘return home’](https://www.yahoo.com/news/rabbi-associated-columbia-university-recommends-191842821.html)
+- Apr 22 - [Anti-doping agency defends handling of Chinese swimmers who tested positive for banned drug](https://www.yahoo.com/news/anti-doping-agency-defends-handling-104031031.html)
+- Apr 22 - [European nations with Patriots hesitate to give their missile systems to Ukraine](https://www.yahoo.com/news/european-nations-patriots-hesitate-missile-103208642.html)
+- Apr 22 - [Israel hit Iran with a half-ton supersonic 'Rampage' missile, report says](https://www.yahoo.com/news/israel-hit-iran-half-ton-144054231.html)
 <!-- feed end -->
 
 ### Onstream
