@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Two teens, 14 and 17, die in murder-suicide at drug-fueled party, Florida cops say](https://www.yahoo.com/news/two-teens-14-17-die-151341002.html)
-- Apr 22 - [UPDATE 3-Trump accepts new restrictions on $175 million bond in New York civil fraud case](https://finance.yahoo.com/news/1-trumps-175-million-bond-135336107.html)
-- Apr 22 - [Donald Trump is on the verge of another $1 billion Truth Social windfall](https://finance.yahoo.com/news/donald-trump-verge-another-1-102228108.html)
-- Apr 22 - [Oprah Winfrey and Dwayne Johnson pledged $10M for Maui wildfire survivors. They gave much more.](https://finance.yahoo.com/news/oprah-winfrey-dwayne-johnson-pledged-131939315.html)
-- Apr 22 - [Israeli troops storm back into eastern Khan Younis; bodies recovered in hospital ruins](https://www.yahoo.com/news/israeli-troops-storm-back-eastern-130837952.html)
+- Apr 22 - [Russia has up to 25,000 troops trying to storm Chasiv Yar area, Kyiv says](https://www.yahoo.com/news/russia-25-000-troops-trying-162944343.html)
+- Apr 22 - [‘Iran is broke’: How clerics crippled the Islamic Republic](https://finance.yahoo.com/news/iran-broke-clerics-crippled-islamic-162729483.html)
+- Apr 22 - [Supreme Court denies request by Arizona candidates seeking to ban electronic vote tabulators](https://www.yahoo.com/news/supreme-court-denies-request-arizona-162633059.html)
+- Apr 22 - [Judge approves safeguards for Donald Trump's $175 million civil business fraud appeal bond](https://finance.yahoo.com/news/judge-approves-safeguards-donald-trumps-160556516.html)
+- Apr 22 - [Snoozy Trump Wakes Up as Prosecutor Calls Him a Liar](https://www.yahoo.com/news/snoozy-trump-wakes-prosecutor-paints-155813689.html)
 <!-- feed end -->
 
 ### Onstream
