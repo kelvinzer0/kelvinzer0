@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [Israel hit Iran with a half-ton supersonic 'Rampage' missile, report says](https://www.yahoo.com/news/israel-hit-iran-half-ton-144054231.html)
+- Apr 22 - [Trump's $175 million bond goes before judge on New York AG's concerns](https://www.yahoo.com/news/trumps-175-million-bond-goes-101103777.html)
+- Apr 22 - [Ex-Prosecutor Spots A Big 'Oops' In Donald Trump's Likely Legal Defense](https://www.yahoo.com/news/ex-prosecutor-spots-big-oops-094950732.html)
 - Apr 22 - [4 Germans caught marking Hitler's birthday outside Nazi dictator's birthplace in Austria](https://www.yahoo.com/news/4-germans-caught-marking-hitlers-093230590.html)
 - Apr 22 - [Columbia University faces full-blown crisis as rabbi calls for Jewish students to ‘return home’](https://www.yahoo.com/news/rabbi-associated-columbia-university-recommends-191842821.html)
-- Apr 22 - [VP Harris to unveil nursing home rules in battleground state of Wisconsin](https://www.yahoo.com/news/vp-harris-unveil-nursing-home-090314365.html)
-- Apr 22 - [Vice President Harris to reveal final rules mandating minimum standards for nursing home staffing](https://www.yahoo.com/news/vice-president-harris-reveal-final-090235935.html)
-- Apr 22 - [Documents found on a North Korean server suggest US studios may have unknowingly outsourced animation work](https://www.yahoo.com/tech/documents-found-north-korean-server-070026501.html)
 <!-- feed end -->
 
 ### Onstream
