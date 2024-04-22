@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [Oprah Winfrey and Dwayne Johnson pledged $10M for Maui wildfire survivors. They gave much more.](https://www.yahoo.com/news/oprah-winfrey-dwayne-johnson-pledged-131939343.html)
+- Apr 22 - [“Devastating”: Legal experts say first Trump trial witness sitting on “dynamite evidence”](https://www.yahoo.com/news/devastating-legal-experts-first-trump-124104667.html)
 - Apr 22 - [2 brothers condemned to die for the 'Wichita massacre' want a new sentencing hearing](https://www.yahoo.com/news/2-brothers-condemned-die-wichita-123656646.html)
-- Apr 22 - [A woman who lost 105 pounds shares two things that made eating healthy and exercising regularly easier](https://www.yahoo.com/news/woman-lost-105-pounds-shares-113153993.html)
+- Apr 22 - [A woman who lost 105 pounds shares two things that made eating healthy and exercising regularly easier](https://www.yahoo.com/lifestyle/woman-lost-105-pounds-shares-113153993.html)
 - Apr 22 - [Michael Douglas Defends Joe Biden With A Stark Reminder About Donald Trump](https://www.yahoo.com/entertainment/michael-douglas-defends-joe-biden-111737196.html)
-- Apr 22 - [Columbia University faces full-blown crisis as rabbi calls for Jewish students to ‘return home’](https://www.yahoo.com/news/rabbi-associated-columbia-university-recommends-191842821.html)
-- Apr 22 - [Anti-doping agency defends handling of Chinese swimmers who tested positive for banned drug](https://www.yahoo.com/news/anti-doping-agency-defends-handling-104031031.html)
 <!-- feed end -->
 
 ### Onstream
