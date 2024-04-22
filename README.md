@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [Fed's favorite inflation gauge and Big Tech earnings greet a slumping stock market: What to know this week](https://finance.yahoo.com/news/feds-favorite-inflation-gauge-and-big-tech-earnings-greet-a-slumping-stock-market-what-to-know-this-week-114204074.html)
 - Apr 22 - [Columbia University faces full-blown crisis as rabbi calls for Jewish students to ‘return home’](https://www.yahoo.com/news/rabbi-associated-columbia-university-recommends-191842821.html)
-- Apr 22 - [Mary Trump 'Can't Help Laughing' At This 'Schadenfreude' In Uncle's Trial](https://www.yahoo.com/news/mary-trump-cant-help-laughing-065830826.html)
-- Apr 22 - [Russia should confiscate Western assets now after U.S. move, top lawmaker says](https://www.yahoo.com/news/russia-confiscate-western-assets-now-062320537.html)
-- Apr 22 - [Ex-Trump Official Busts 1 Of Trump's Favorite Myths About Himself Wide Open](https://www.yahoo.com/news/ex-trump-official-busts-1-061759737.html)
-- Apr 22 - ['This Actually Happened': Trump Courtroom Witness Confirms Embarrassing Moment](https://www.yahoo.com/news/actually-happened-trump-courtroom-witness-034634778.html)
+- Apr 22 - [US and Philippine forces launch combat drills in the disputed South China Sea](https://www.yahoo.com/news/us-philippine-forces-launch-combat-072856758.html)
+- Apr 22 - [North Koreans may have helped create Western cartoons, report says](https://www.yahoo.com/news/north-koreans-may-helped-create-070504616.html)
+- Apr 22 - [Documents found on a North Korean server suggest US studios may have unknowingly outsourced animation work](https://www.yahoo.com/tech/documents-found-north-korean-server-070026501.html)
 <!-- feed end -->
 
 ### Onstream
