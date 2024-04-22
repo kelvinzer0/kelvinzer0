@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 21 - [Terry Anderson, AP reporter abducted in Lebanon and held captive for years, has died](https://www.yahoo.com/news/terry-anderson-ap-reporter-held-211444971.html)
+- Apr 21 - [Bricks of cocaine found in lamp offer clue into a Homestead woman’s deadly carjacking](https://www.yahoo.com/news/bricks-cocaine-found-lamp-offer-235539435.html)
+- Apr 21 - [Kevin Bacon returns to ‘Footloose’ high school to mark film’s 40th anniversary](https://www.yahoo.com/entertainment/kevin-bacon-returns-footloose-high-165126283.html)
+- Apr 21 - [Iran-backed Hezbollah downs Israeli drone in southern Lebanon](https://www.yahoo.com/news/iran-backed-hezbollah-downs-israeli-215036164.html)
+- Apr 21 - [Terry Anderson, AP reporter abducted in Lebanon and held captive for years, has died at 76](https://www.yahoo.com/news/terry-anderson-ap-reporter-held-211444971.html)
 - Apr 21 - [Marjorie Taylor Greene calls on Johnson to resign after foreign aid bills pass: ‘If he doesn’t do so, he will be vacated’](https://www.yahoo.com/news/marjorie-taylor-greene-calls-johnson-162351944.html)
-- Apr 21 - [Opinion: I’ve been a criminal attorney for decades. Here’s what I think about the case against Trump](https://www.yahoo.com/news/opinion-one-veteran-criminal-defense-201655444.html)
-- Apr 21 - [Pittsburgh ice cream shop closing after decades of business](https://www.yahoo.com/news/pittsburgh-ice-cream-shop-closing-203407387.html)
-- Apr 21 - [A Palestinian baby in Gaza is born an orphan in an urgent cesarean section after an Israeli strike](https://www.yahoo.com/news/palestinian-baby-gaza-born-orphan-195533883.html)
 <!-- feed end -->
 
 ### Onstream
