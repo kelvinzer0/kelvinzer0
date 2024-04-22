@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [Tennessee's GOP governor says Volkswagen plant workers made a mistake in union vote](https://www.yahoo.com/news/tennessees-gop-governor-says-volkswagen-191410302.html)
+- Apr 22 - [Sotomayor Asks One Damning Question in Supreme Court Homelessness Case](https://www.yahoo.com/news/sotomayor-asks-one-damning-supreme-183417064.html)
 - Apr 22 - [Before and after: See Dubai flooding from space](https://www.yahoo.com/news/see-dubai-flooding-space-153437087.html)
 - Apr 22 - [23 Black Tweets That Are So Funny, I'm 99.99% Sure You'll Be Snickering Through Your Monday Meetings](https://www.yahoo.com/entertainment/23-black-tweets-funny-im-181345287.html)
-- Apr 22 - [Texas appeals court sides with Sidney Powell, rejecting attorney discipline over her Trump election lawsuits](https://www.yahoo.com/news/texas-appeals-court-sides-sidney-174401853.html)
-- Apr 22 - [Once estimated to cost $1.7 million, San Francisco's long-mocked toilet is up and running](https://www.yahoo.com/news/once-estimated-cost-1-7-172402510.html)
-- Apr 22 - [Sebastian Steudtner says he has surfed the ‘unsurfable’ after drone technology measures 93.7-foot wave as world record](https://sports.yahoo.com/sebastian-steudtner-says-surfed-unsurfable-120916444.html)
+- Apr 22 - [70-year-old Uber driver brutally beaten by passenger in Los Angeles](https://www.yahoo.com/news/70-old-uber-driver-brutally-173956112.html)
 <!-- feed end -->
 
 ### Onstream
