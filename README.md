@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Fed's favorite inflation gauge and Big Tech earnings greet a slumping stock market: What to know this week](https://finance.yahoo.com/news/feds-favorite-inflation-gauge-and-big-tech-earnings-greet-a-slumping-stock-market-what-to-know-this-week-114204074.html)
+- Apr 22 - [4 Germans caught marking Hitler's birthday outside Nazi dictator's birthplace in Austria](https://www.yahoo.com/news/4-germans-caught-marking-hitlers-093230590.html)
 - Apr 22 - [Columbia University faces full-blown crisis as rabbi calls for Jewish students to ‘return home’](https://www.yahoo.com/news/rabbi-associated-columbia-university-recommends-191842821.html)
-- Apr 22 - [US and Philippine forces launch combat drills in the disputed South China Sea](https://www.yahoo.com/news/us-philippine-forces-launch-combat-072856758.html)
-- Apr 22 - [North Koreans may have helped create Western cartoons, report says](https://www.yahoo.com/news/north-koreans-may-helped-create-070504616.html)
+- Apr 22 - [VP Harris to unveil nursing home rules in battleground state of Wisconsin](https://www.yahoo.com/news/vp-harris-unveil-nursing-home-090314365.html)
+- Apr 22 - [Vice President Harris to reveal final rules mandating minimum standards for nursing home staffing](https://www.yahoo.com/news/vice-president-harris-reveal-final-090235935.html)
 - Apr 22 - [Documents found on a North Korean server suggest US studios may have unknowingly outsourced animation work](https://www.yahoo.com/tech/documents-found-north-korean-server-070026501.html)
 <!-- feed end -->
 
