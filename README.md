@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - [Columbia University faces full-blown crisis as rabbi calls for Jewish students to ‘return home’](https://www.yahoo.com/news/rabbi-associated-columbia-university-recommends-191842821.html)
+- Apr 22 - [China's Xi Orders Biggest Military Reorganization Since 2015](https://finance.yahoo.com/video/chinas-xi-orders-biggest-military-011829075.html)
 - Apr 21 - [Bricks of cocaine found in lamp offer clue into a Homestead woman’s deadly carjacking](https://www.yahoo.com/news/bricks-cocaine-found-lamp-offer-235539435.html)
 - Apr 21 - [Kevin Bacon returns to ‘Footloose’ high school to mark film’s 40th anniversary](https://www.yahoo.com/entertainment/kevin-bacon-returns-footloose-high-165126283.html)
 - Apr 21 - [Iran-backed Hezbollah downs Israeli drone in southern Lebanon](https://www.yahoo.com/news/iran-backed-hezbollah-downs-israeli-215036164.html)
-- Apr 21 - [Terry Anderson, AP reporter abducted in Lebanon and held captive for years, has died at 76](https://www.yahoo.com/news/terry-anderson-ap-reporter-held-211444971.html)
-- Apr 21 - [Marjorie Taylor Greene calls on Johnson to resign after foreign aid bills pass: ‘If he doesn’t do so, he will be vacated’](https://www.yahoo.com/news/marjorie-taylor-greene-calls-johnson-162351944.html)
 <!-- feed end -->
 
 ### Onstream
