@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 22 - ['This Actually Happened': Trump Courtroom Witness Confirms Embarrassing Moment](https://www.yahoo.com/news/actually-happened-trump-courtroom-witness-034634778.html)
 - Apr 22 - [Columbia University faces full-blown crisis as rabbi calls for Jewish students to ‘return home’](https://www.yahoo.com/news/rabbi-associated-columbia-university-recommends-191842821.html)
+- Apr 22 - [Kennedy says he loves his family 'either way' after relatives endorse Biden's campaign over his](https://www.yahoo.com/news/kennedy-says-loves-family-either-023811672.html)
 - Apr 22 - [China's Xi Orders Biggest Military Reorganization Since 2015](https://finance.yahoo.com/video/chinas-xi-orders-biggest-military-011829075.html)
 - Apr 21 - [Bricks of cocaine found in lamp offer clue into a Homestead woman’s deadly carjacking](https://www.yahoo.com/news/bricks-cocaine-found-lamp-offer-235539435.html)
-- Apr 21 - [Kevin Bacon returns to ‘Footloose’ high school to mark film’s 40th anniversary](https://www.yahoo.com/entertainment/kevin-bacon-returns-footloose-high-165126283.html)
-- Apr 21 - [Iran-backed Hezbollah downs Israeli drone in southern Lebanon](https://www.yahoo.com/news/iran-backed-hezbollah-downs-israeli-215036164.html)
 <!-- feed end -->
 
 ### Onstream
