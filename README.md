@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Without cameras to go live, the Trump trial is proving the potency of live blogs as news tools](https://www.yahoo.com/news/without-cameras-live-trump-trial-202844579.html)
+- Apr 22 - [Alina Habba Shows Up at Trump’s Trial and Suddenly Makes Things Worse](https://www.yahoo.com/news/alina-habba-shows-trump-trial-211739272.html)
+- Apr 22 - [Rapper Chris King, friend of Justin Bieber and Trippie Redd, killed in Nashville](https://www.yahoo.com/entertainment/rapper-chris-king-friend-justin-211347078.html)
+- Apr 22 - [NCDOT removes homeless camp and 45 tons of trash and debris from a Raleigh interchange](https://www.yahoo.com/news/ncdot-removes-homeless-camp-45-205250885.html)
 - Apr 22 - [Tennessee's GOP governor says Volkswagen plant workers made a mistake in union vote](https://www.yahoo.com/news/tennessees-gop-governor-says-volkswagen-191410302.html)
 - Apr 22 - [Sotomayor Asks One Damning Question in Supreme Court Homelessness Case](https://www.yahoo.com/news/sotomayor-asks-one-damning-supreme-183417064.html)
-- Apr 22 - [Before and after: See Dubai flooding from space](https://www.yahoo.com/news/see-dubai-flooding-space-153437087.html)
-- Apr 22 - [CNN reporter describes what Trump was doing during opening statements](https://www.yahoo.com/news/cnn-reporter-describes-trump-doing-182205190.html)
 <!-- feed end -->
 
 ### Onstream
