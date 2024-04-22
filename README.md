@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Oprah Winfrey and Dwayne Johnson pledged $10M for Maui wildfire survivors. They gave much more.](https://www.yahoo.com/news/oprah-winfrey-dwayne-johnson-pledged-131939343.html)
-- Apr 22 - [“Devastating”: Legal experts say first Trump trial witness sitting on “dynamite evidence”](https://www.yahoo.com/news/devastating-legal-experts-first-trump-124104667.html)
+- Apr 22 - [Opinion: I’ve been a criminal attorney for decades. Here’s what I think about the case against Trump](https://www.yahoo.com/news/opinion-one-veteran-criminal-defense-201655444.html)
+- Apr 22 - [Donald Trump is on the verge of another $1 billion Truth Social windfall](https://finance.yahoo.com/news/donald-trump-verge-another-1-102228108.html)
+- Apr 22 - [Israeli troops storm back into eastern Khan Younis; bodies recovered in hospital ruins](https://www.yahoo.com/news/israeli-troops-storm-back-eastern-130837952.html)
+- Apr 22 - [Ukraine says it hit one of Russia's oldest and proudest ships, continuing its rampage against the Black Sea Fleet](https://www.yahoo.com/news/ukraine-says-hit-one-russias-125659396.html)
 - Apr 22 - [2 brothers condemned to die for the 'Wichita massacre' want a new sentencing hearing](https://www.yahoo.com/news/2-brothers-condemned-die-wichita-123656646.html)
-- Apr 22 - [A woman who lost 105 pounds shares two things that made eating healthy and exercising regularly easier](https://www.yahoo.com/lifestyle/woman-lost-105-pounds-shares-113153993.html)
-- Apr 22 - [Michael Douglas Defends Joe Biden With A Stark Reminder About Donald Trump](https://www.yahoo.com/entertainment/michael-douglas-defends-joe-biden-111737196.html)
 <!-- feed end -->
 
 ### Onstream
