@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 23 - [Ten dead as navy helicopters collide mid-air in Malaysia](https://www.yahoo.com/news/two-helicopters-crash-during-training-034037128.html)
+- Apr 23 - [OOPS! Eric Trump Freaks Out Over Dad’s Trial But Gets 1 Very Awkward Thing Wrong](https://www.yahoo.com/news/oops-eric-trump-freaks-over-070750448.html)
 - Apr 23 - [Russia warns Europe: if you take our assets, we have a response that will hurt](https://www.yahoo.com/news/russia-warns-europe-assets-response-061530314.html)
-- Apr 23 - [Alec Baldwin smacks phone of protester who demanded he say ‘Free Palestine’ in coffee shop](https://www.yahoo.com/entertainment/watch-alec-baldwin-smacks-phone-052336874.html)
+- Apr 23 - [Watch: Alec Baldwin smacks phone of protester who demanded he say ‘Free Palestine’](https://www.yahoo.com/entertainment/watch-alec-baldwin-smacks-phone-052336874.html)
 - Apr 23 - [Trump called this visa 'very bad' for Americans. Truth Social applied for one](https://www.yahoo.com/news/trump-called-visa-very-bad-040312217.html)
-- Apr 23 - [Joe Biden Taunts Rep. Lauren Boebert With 2-Word Message From 'Dark Brandon'](https://www.yahoo.com/news/joe-biden-taunts-rep-lauren-032932978.html)
-- Apr 23 - [Minnesota Sen. Nicole Mitchell arrested on suspicion of burglary after being found in home](https://www.yahoo.com/news/minnesota-sen-nicole-mitchell-arrested-020822382.html)
 <!-- feed end -->
 
 ### Onstream
