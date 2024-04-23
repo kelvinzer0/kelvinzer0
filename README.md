@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 22 - [Peruvian psychologist dies by euthanasia after fighting for years in courts for 'death with dignity'](https://www.yahoo.com/news/peruvian-psychologist-dies-euthanasia-fighting-220544463.html)
-- Apr 22 - [Chicago Bears to announce plans Wednesday for new domed stadium on lakefront](https://sports.yahoo.com/chicago-bears-announce-plans-wednesday-214100215.html)
-- Apr 22 - [Alina Habba Shows Up at Trump’s Trial and Suddenly Makes Things Worse](https://www.yahoo.com/news/alina-habba-shows-trump-trial-211739272.html)
-- Apr 22 - [Rapper Chris King, friend of Justin Bieber and Trippie Redd, killed in Nashville](https://www.yahoo.com/entertainment/rapper-chris-king-friend-justin-211347078.html)
-- Apr 22 - [NCDOT removes homeless camp and 45 tons of trash and debris from a Raleigh interchange](https://www.yahoo.com/news/ncdot-removes-homeless-camp-45-205250885.html)
+- Apr 23 - [Judge declares mistrial in case of Arizona rancher accused of killing unarmed migrant](https://www.yahoo.com/news/judge-declares-mistrial-case-arizona-000328385.html)
+- Apr 22 - [Fact Check: Viral Meme Says Biden Graduated 76th in a Class of 85 at Syracuse University College of Law in '68. Here Are the Facts](https://www.yahoo.com/news/fact-check-viral-meme-says-234400023.html)
+- Apr 22 - [Minnesota state senator arrested on suspicion of burglary](https://www.yahoo.com/news/minnesota-state-senator-arrested-suspicion-223302474.html)
+- Apr 22 - [Trump co-defendant in classified documents case was told he’d be pardoned in a second term, notes in FBI interview say](https://www.yahoo.com/news/trump-co-defendant-classified-documents-221716860.html)
+- Apr 22 - [Psychologist becomes first person in Peru to die by euthanasia after fighting in court for years](https://www.yahoo.com/news/peruvian-psychologist-dies-euthanasia-fighting-220544463.html)
 <!-- feed end -->
 
 ### Onstream
