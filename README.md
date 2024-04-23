@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 23 - [New Marine One helicopters the US spent $5 billion on aren't allowed to carry the president because they could scorch the lawn](https://www.yahoo.com/news/marine-one-helicopters-us-spent-164949785.html)
+- Apr 23 - [Trump co-defendant in classified documents case was told he’d be pardoned in a second term, notes in FBI interview say](https://www.yahoo.com/news/trump-co-defendant-classified-documents-221716860.html)
+- Apr 23 - ["You're losing all credibility": Judge shuts down Trump lawyer at brutal contempt hearing](https://www.yahoo.com/news/youre-losing-credibility-judge-shuts-155817028.html)
 - Apr 23 - [Peruvian woman dies by euthanasia after long legal battle](https://www.yahoo.com/news/peruvian-woman-dies-euthanasia-long-155308428.html)
-- Apr 23 - [‘Losing All Credibility’: Judge Rips Trump Team at Tense Gag Order Hearing](https://www.yahoo.com/news/losing-credibility-judge-rips-trump-153618878.html)
-- Apr 23 - [Fact Check: Rumor Says Country Star Reba McEntire Is Facing 'Serious Charges' and Asked for Prayers Regarding Fox News Lawsuit. Here's the Truth](https://www.yahoo.com/entertainment/fact-check-rumor-says-country-152600093.html)
-- Apr 23 - [“Really poor way to start”: Experts knock Trump lawyer's "weird" opening statement after objections](https://www.yahoo.com/news/really-poor-way-start-experts-142904587.html)
-- Apr 23 - [Barefoot man recorded jumping on alligator in Florida highway. ‘Hold my sweet tea’](https://www.yahoo.com/news/barefoot-man-recorded-jumping-alligator-140413970.html)
+- Apr 23 - [CNN correspondent says Trump’s gag order hearing was a ‘disaster’](https://www.yahoo.com/news/cnn-correspondent-says-trump-gag-155013335.html)
 <!-- feed end -->
 
 ### Onstream
