@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 23 - [George Santos ends comeback bid for Congress after raising no money](https://www.yahoo.com/news/george-santos-ends-comeback-bid-221401866.html)
+- Apr 23 - [Remains from a mother-daughter cold case were found nearly 24 years later, after a deathbed confession from the suspect](https://www.yahoo.com/news/remains-mother-daughter-cold-case-213400590.html)
 - Apr 23 - [74-year-old Ohio woman charged with bank robbery was victim of a scam, family says](https://www.yahoo.com/news/74-old-ohio-woman-charged-212526209.html)
 - Apr 23 - [10-Year-Old Boy Wakes to Find Entire Family Massacred in Horrific Murder-Suicide](https://www.yahoo.com/news/10-old-boy-wakes-entire-205754068.html)
 - Apr 23 - [L.A. student dies after safety team member allegedly does not intervene to try to prevent fight](https://www.yahoo.com/news/l-student-dies-safety-team-202615228.html)
-- Apr 23 - [Officials identify Idaho man who was killed by police after fatal shooting of deputy](https://www.yahoo.com/news/officials-identify-idaho-man-killed-194918090.html)
-- Apr 23 - [Someone fishing with a magnet dredged up new evidence in Georgia couple's killing, officials say](https://www.yahoo.com/news/someone-fishing-magnet-dredged-evidence-192154058.html)
 <!-- feed end -->
 
 ### Onstream
