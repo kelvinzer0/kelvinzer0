@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [Minnesota senator wanted late father's ashes when she broke into stepmother's home, charges say](https://www.yahoo.com/news/minnesota-senator-wanted-fathers-ashes-160303223.html)
 - Apr 23 - [Peruvian woman dies by euthanasia after long legal battle](https://www.yahoo.com/news/peruvian-woman-dies-euthanasia-long-155308428.html)
 - Apr 23 - [‘Losing All Credibility’: Judge Rips Trump Team at Tense Gag Order Hearing](https://www.yahoo.com/news/losing-credibility-judge-rips-trump-153618878.html)
-- Apr 23 - [Man kills wife, 3 kids in murder-suicide mass shooting; 4th child survives unharmed: Police](https://www.yahoo.com/news/5-people-including-least-2-183832387.html)
+- Apr 23 - [Fact Check: Rumor Says Country Star Reba McEntire Is Facing 'Serious Charges' and Asked for Prayers Regarding Fox News Lawsuit. Here's the Truth](https://www.yahoo.com/entertainment/fact-check-rumor-says-country-152600093.html)
 - Apr 23 - [“Really poor way to start”: Experts knock Trump lawyer's "weird" opening statement after objections](https://www.yahoo.com/news/really-poor-way-start-experts-142904587.html)
+- Apr 23 - [Barefoot man recorded jumping on alligator in Florida highway. ‘Hold my sweet tea’](https://www.yahoo.com/news/barefoot-man-recorded-jumping-alligator-140413970.html)
 <!-- feed end -->
 
 ### Onstream
