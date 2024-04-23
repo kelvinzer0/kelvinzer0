@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 23 - [Jamie Dimon is worried the US economy is headed back to the 1970s](https://finance.yahoo.com/news/jamie-dimon-is-worried-the-us-economy-is-headed-back-to-the-1970s-182241605.html)
+- Apr 23 - [Biden rule grants overtime pay to 4 million US workers](https://www.yahoo.com/news/biden-rule-grants-overtime-pay-170406165.html)
 - Apr 23 - [New Marine One helicopters the US spent $5 billion on aren't allowed to carry the president because they could scorch the lawn](https://www.yahoo.com/news/marine-one-helicopters-us-spent-164949785.html)
 - Apr 23 - [Trump co-defendant in classified documents case was told he’d be pardoned in a second term, notes in FBI interview say](https://www.yahoo.com/news/trump-co-defendant-classified-documents-221716860.html)
-- Apr 23 - ["You're losing all credibility": Judge shuts down Trump lawyer at brutal contempt hearing](https://www.yahoo.com/news/youre-losing-credibility-judge-shuts-155817028.html)
-- Apr 23 - [Peruvian woman dies by euthanasia after long legal battle](https://www.yahoo.com/news/peruvian-woman-dies-euthanasia-long-155308428.html)
-- Apr 23 - [CNN correspondent says Trump’s gag order hearing was a ‘disaster’](https://www.yahoo.com/news/cnn-correspondent-says-trump-gag-155013335.html)
+- Apr 23 - [Trump Picks Another Fight With Judge as He Waits for Contempt Ruling](https://www.yahoo.com/news/trump-picks-another-fight-judge-162442587.html)
 <!-- feed end -->
 
 ### Onstream
