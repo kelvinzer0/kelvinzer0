@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 23 - [Fire tears through Westmoreland County shopping center](https://www.yahoo.com/news/crews-battle-fire-westmoreland-county-092809528.html)
+- Apr 23 - [A powerful volcano is erupting. Here’s what that could mean for weather and climate](https://www.yahoo.com/news/powerful-volcano-erupting-could-mean-090026062.html)
 - Apr 23 - [How Toxic Is Trump? Republican Group's Hidden Camera Reveals Uncomfortable Truth.](https://www.yahoo.com/news/toxic-trump-republican-groups-hidden-082646093.html)
-- Apr 23 - [Opinion: I’d rather live in the ‘world’s most dangerous place’ than America](https://www.yahoo.com/news/opinion-now-d-rather-raise-010025196.html)
 - Apr 23 - [3 New Jersey spots make the list of 'America's 100 Most Charming Main Streets'](https://www.yahoo.com/lifestyle/3-jersey-spots-list-americas-082031944.html)
 - Apr 23 - [Ten dead as navy helicopters collide mid-air in Malaysia](https://www.yahoo.com/news/two-helicopters-crash-during-training-034037128.html)
 <!-- feed end -->
