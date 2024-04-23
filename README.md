@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 23 - [Russia warns Europe: if you take our assets, we have a response that will hurt](https://www.yahoo.com/news/russia-warns-europe-assets-response-061530314.html)
+- Apr 23 - [Alec Baldwin smacks phone of protester who demanded he say ‘Free Palestine’ in coffee shop](https://www.yahoo.com/entertainment/watch-alec-baldwin-smacks-phone-052336874.html)
 - Apr 23 - [Trump called this visa 'very bad' for Americans. Truth Social applied for one](https://www.yahoo.com/news/trump-called-visa-very-bad-040312217.html)
 - Apr 23 - [Joe Biden Taunts Rep. Lauren Boebert With 2-Word Message From 'Dark Brandon'](https://www.yahoo.com/news/joe-biden-taunts-rep-lauren-032932978.html)
-- Apr 23 - [Judge declares mistrial in case of Arizona rancher accused of killing unarmed migrant](https://www.yahoo.com/news/judge-declares-mistrial-case-arizona-000328385.html)
-- Apr 23 - [Fact Check: Russian TV Described Marjorie Taylor Greene as a 'Demonstrably Heterosexual' Beauty. Here's What Else We Learned](https://www.yahoo.com/news/fact-check-russian-tv-described-000300171.html)
-- Apr 22 - [Fact Check: Viral Meme Says Biden Graduated 76th in a Class of 85 at Syracuse University College of Law in '68. Here Are the Facts](https://www.yahoo.com/news/fact-check-viral-meme-says-234400023.html)
+- Apr 23 - [Minnesota Sen. Nicole Mitchell arrested on suspicion of burglary after being found in home](https://www.yahoo.com/news/minnesota-sen-nicole-mitchell-arrested-020822382.html)
 <!-- feed end -->
 
 ### Onstream
