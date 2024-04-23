@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [Gator Tackled on the Tarmac of Florida Air Force Base](https://www.yahoo.com/news/gator-tackled-tarmac-florida-air-094224386.html)
+- Apr 23 - [Opinion: I’d rather live in the ‘world’s most dangerous place’ than America](https://www.yahoo.com/news/opinion-now-d-rather-raise-010025196.html)
+- Apr 23 - [Veteran Courtroom Artist Surprised By 1 Donald Trump Behavior In Trial](https://www.yahoo.com/news/veteran-courtroom-artist-surprised-1-080147845.html)
 - Apr 23 - [Ten dead as navy helicopters collide mid-air in Malaysia](https://www.yahoo.com/news/two-helicopters-crash-during-training-034037128.html)
-- Apr 23 - [OOPS! Eric Trump Freaks Out Over Dad’s Trial But Gets 1 Very Awkward Thing Wrong](https://www.yahoo.com/news/oops-eric-trump-freaks-over-070750448.html)
 - Apr 23 - [Russia warns Europe: if you take our assets, we have a response that will hurt](https://www.yahoo.com/news/russia-warns-europe-assets-response-061530314.html)
 - Apr 23 - [Trump called this visa 'very bad' for Americans. Truth Social applied for one](https://www.yahoo.com/news/trump-called-visa-very-bad-040312217.html)
 <!-- feed end -->
