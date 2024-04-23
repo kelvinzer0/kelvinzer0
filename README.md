@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Apr 23 - [Judge declares mistrial in case of Arizona rancher accused of killing unarmed migrant](https://www.yahoo.com/news/judge-declares-mistrial-case-arizona-000328385.html)
 - Apr 23 - [Fact Check: Russian TV Described Marjorie Taylor Greene as a 'Demonstrably Heterosexual' Beauty. Here's What Else We Learned](https://www.yahoo.com/news/fact-check-russian-tv-described-000300171.html)
 - Apr 22 - [Fact Check: Viral Meme Says Biden Graduated 76th in a Class of 85 at Syracuse University College of Law in '68. Here Are the Facts](https://www.yahoo.com/news/fact-check-viral-meme-says-234400023.html)
+- Apr 22 - [Video shows Arizona mother violently assault bus driver in front of 11 children: police](https://www.yahoo.com/news/video-shows-arizona-mother-violently-230502692.html)
 - Apr 22 - [Minnesota state senator arrested on suspicion of burglary](https://www.yahoo.com/news/minnesota-state-senator-arrested-suspicion-223302474.html)
-- Apr 22 - [Trump co-defendant in classified documents case was told he’d be pardoned in a second term, notes in FBI interview say](https://www.yahoo.com/news/trump-co-defendant-classified-documents-221716860.html)
 <!-- feed end -->
 
 ### Onstream
