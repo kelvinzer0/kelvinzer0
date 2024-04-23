@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 23 - [Fire tears through Westmoreland County shopping center](https://www.yahoo.com/news/crews-battle-fire-westmoreland-county-092809528.html)
+- Apr 23 - [How Toxic Is Trump? Republican Group's Hidden Camera Reveals Uncomfortable Truth.](https://www.yahoo.com/news/toxic-trump-republican-groups-hidden-082646093.html)
 - Apr 23 - [Opinion: I’d rather live in the ‘world’s most dangerous place’ than America](https://www.yahoo.com/news/opinion-now-d-rather-raise-010025196.html)
-- Apr 23 - [Veteran Courtroom Artist Surprised By 1 Donald Trump Behavior In Trial](https://www.yahoo.com/news/veteran-courtroom-artist-surprised-1-080147845.html)
+- Apr 23 - [3 New Jersey spots make the list of 'America's 100 Most Charming Main Streets'](https://www.yahoo.com/lifestyle/3-jersey-spots-list-americas-082031944.html)
 - Apr 23 - [Ten dead as navy helicopters collide mid-air in Malaysia](https://www.yahoo.com/news/two-helicopters-crash-during-training-034037128.html)
-- Apr 23 - [Russia warns Europe: if you take our assets, we have a response that will hurt](https://www.yahoo.com/news/russia-warns-europe-assets-response-061530314.html)
-- Apr 23 - [Trump called this visa 'very bad' for Americans. Truth Social applied for one](https://www.yahoo.com/news/trump-called-visa-very-bad-040312217.html)
 <!-- feed end -->
 
 ### Onstream
