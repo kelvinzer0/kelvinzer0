@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [Officials identify Idaho man who was killed by police after fatal shooting of deputy](https://www.yahoo.com/news/officials-identify-idaho-man-killed-194918090.html)
 - Apr 23 - [Someone fishing with a magnet dredged up new evidence in Georgia couple's killing, officials say](https://www.yahoo.com/news/someone-fishing-magnet-dredged-evidence-192154058.html)
-- Apr 23 - [Nikola Jokic's brother reportedly involved in an altercation after the Nuggets beat the Lakers](https://sports.yahoo.com/nikola-jokics-brother-reportedly-involved-190451104.html)
 - Apr 23 - [CNN correspondent describes why she thinks Trump’s gag order hearing was a ‘disaster’](https://www.yahoo.com/news/cnn-correspondent-says-trump-gag-155013335.html)
+- Apr 23 - [This chain made a splash in Boise 25 years ago. Now its first restaurant here has closed](https://www.yahoo.com/news/famous-chain-made-splash-boise-185627895.html)
 - Apr 23 - [Jamie Dimon is worried the US economy is headed back to the 1970s](https://finance.yahoo.com/news/jamie-dimon-is-worried-the-us-economy-is-headed-back-to-the-1970s-182241605.html)
+- Apr 23 - [Biden rule grants overtime pay to 4 million US workers](https://www.yahoo.com/news/biden-rule-grants-overtime-pay-170406165.html)
 <!-- feed end -->
 
 ### Onstream
