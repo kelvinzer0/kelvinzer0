@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 23 - [A memorial opens on the site of a Nazi concentration camp for Roma after a pig farm was removed](https://www.yahoo.com/news/memorial-opens-nazi-concentration-camp-133541448.html)
-- Apr 23 - [I’m a Car Expert: Here are 3 Reasons I’d Never Buy a Used Car From a Dealership](https://finance.yahoo.com/news/m-car-expert-3-reasons-130034364.html)
-- Apr 23 - [Several businesses damaged after fire tears through Westmoreland County shopping center](https://www.yahoo.com/news/crews-battle-fire-westmoreland-county-092809528.html)
+- Apr 23 - [Man kills wife, 3 kids in murder-suicide mass shooting; 4th child survives unharmed: Police](https://www.yahoo.com/news/5-people-including-least-2-183832387.html)
+- Apr 23 - [“Really poor way to start”: Experts knock Trump lawyer's "weird" opening statement after objections](https://www.yahoo.com/news/really-poor-way-start-experts-142904587.html)
+- Apr 23 - [Iran threatens to annihilate Israel should it launch a major attack](https://www.yahoo.com/news/iran-threatens-annihilate-israel-launch-141937368.html)
+- Apr 23 - [Barefoot man recorded jumping on alligator in Florida highway. ‘Hold my sweet tea’](https://www.yahoo.com/news/barefoot-man-recorded-jumping-alligator-140413970.html)
 - Apr 23 - [A powerful volcano is erupting. Here’s what that could mean for weather and climate](https://www.yahoo.com/news/powerful-volcano-erupting-could-mean-090026062.html)
-- Apr 23 - [How Toxic Is Trump? Republican Group's Hidden Camera Reveals Uncomfortable Truth.](https://www.yahoo.com/news/toxic-trump-republican-groups-hidden-082646093.html)
 <!-- feed end -->
 
 ### Onstream
