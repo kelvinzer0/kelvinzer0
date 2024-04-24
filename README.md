@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 24 - [Photos shine a light on Taiwan’s ‘betel nut beauties’](https://www.yahoo.com/lifestyle/photos-shine-light-taiwan-betel-030007065.html)
+- Apr 24 - [Sketch artist details how Trump’s attention changed after hearing Karen McDougal’s name](https://www.yahoo.com/news/sketch-artist-details-trump-attention-012732893.html)
 - Apr 23 - [Photographer alleges he was forced to watch Megan Thee Stallion have sex and was unfairly fired](https://www.yahoo.com/entertainment/photographer-alleges-forced-watch-megan-232430819.html)
-- Apr 23 - [How Putin’s Whirlwind Bromance Could End in a Kremlin Tragedy](https://www.yahoo.com/news/putin-whirlwind-bromance-could-end-214518690.html)
 - Apr 23 - [Remains from a mother-daughter cold case were found nearly 24 years later, after a deathbed confession from the suspect](https://www.yahoo.com/news/remains-mother-daughter-cold-case-213400590.html)
 - Apr 23 - [74-year-old Ohio woman charged with bank robbery was victim of a scam, family says](https://www.yahoo.com/news/74-old-ohio-woman-charged-212526209.html)
-- Apr 23 - [These public high schools are the best in San Diego: U.S. News and World Report](https://www.yahoo.com/news/public-high-schools-best-san-203635240.html)
 <!-- feed end -->
 
 ### Onstream
