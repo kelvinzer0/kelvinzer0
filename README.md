@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 24 - [TikTok may be banned in the US. Here's what happened when India did it](https://www.yahoo.com/tech/tiktok-may-banned-us-heres-095253733.html)
-- Apr 24 - [Russian court orders seizure of JPMorgan Chase funds in VTB lawsuit](https://finance.yahoo.com/news/russian-court-orders-seizure-jpmorgan-090751323.html)
+- Apr 24 - [Biden's long fight with Republicans over Ukraine aid has ended, but significant damage has been done](https://www.yahoo.com/news/long-battle-more-us-aid-090321935.html)
+- Apr 24 - [Kim Jong Un's sister vows 'overwhelming' military power](https://www.yahoo.com/news/kim-jong-uns-sister-vows-064121050.html)
 - Apr 24 - [North Korea sends a delegation to Iran in a growing effort to break its diplomatic isolation](https://www.yahoo.com/news/north-korea-sends-delegation-iran-061716646.html)
 - Apr 24 - [Florida Man Runs Over 11-Foot Alligator with Truck to Save Neighbor from Attack](https://www.yahoo.com/news/florida-man-runs-over-11-045617345.html)
-- Apr 24 - [Sketch artist details how Trump’s attention changed after hearing Karen McDougal’s name](https://www.yahoo.com/news/sketch-artist-details-trump-attention-012732893.html)
 <!-- feed end -->
 
 ### Onstream
