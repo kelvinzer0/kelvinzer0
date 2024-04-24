@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 24 - [Family of man killed when Chicago police fired 96 times during traffic stop file wrongful death suit](https://www.yahoo.com/news/family-man-killed-chicago-police-153955662.html)
+- Apr 24 - [Biden pardons 11 people, commutes sentences of five others, says White House](https://www.yahoo.com/news/biden-pardons-11-people-commutes-134321786.html)
 - Apr 24 - [Woman Dies After Eating Raw Mushroom in Sushi Roll: Family](https://www.yahoo.com/news/woman-dies-eating-raw-mushroom-130601172.html)
-- Apr 24 - [TikTok may be banned in the US. Here's what happened when India did it](https://www.yahoo.com/tech/tiktok-may-banned-us-heres-095253733.html)
-- Apr 24 - [A woman said her tattoos got her rejected for a job, but experts say personality is far more important](https://www.yahoo.com/entertainment/woman-said-her-tattoos-got-094523496.html)
-- Apr 24 - [Russian court orders seizure of JPMorgan Chase funds in VTB lawsuit](https://finance.yahoo.com/news/russian-court-orders-seizure-jpmorgan-090751323.html)
-- Apr 24 - [Biden signs a $95 billion war aid measure with assistance for Ukraine, Israel and Taiwan](https://www.yahoo.com/news/long-battle-more-us-aid-090321935.html)
+- Apr 24 - [Exclusive: New evidence challenges the Pentagon’s account of a horrific attack as the US withdrew from Afghanistan](https://www.yahoo.com/news/exclusive-evidence-challenges-pentagon-account-090146927.html)
+- Apr 24 - [Blood-Soaked Royal Horses Escape and Bolt Through London](https://www.yahoo.com/news/blood-soaked-royal-horses-escape-095759836.html)
 <!-- feed end -->
 
 ### Onstream
