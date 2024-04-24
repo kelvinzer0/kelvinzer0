@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 23 - [Photographer alleges he was forced to watch Megan Thee Stallion have sex and was unfairly fired](https://www.yahoo.com/entertainment/photographer-alleges-forced-watch-megan-232430819.html)
-- Apr 23 - [George Santos ends comeback bid for Congress after raising no money](https://www.yahoo.com/news/george-santos-ends-comeback-bid-221401866.html)
+- Apr 23 - [How Putin’s Whirlwind Bromance Could End in a Kremlin Tragedy](https://www.yahoo.com/news/putin-whirlwind-bromance-could-end-214518690.html)
 - Apr 23 - [Remains from a mother-daughter cold case were found nearly 24 years later, after a deathbed confession from the suspect](https://www.yahoo.com/news/remains-mother-daughter-cold-case-213400590.html)
 - Apr 23 - [74-year-old Ohio woman charged with bank robbery was victim of a scam, family says](https://www.yahoo.com/news/74-old-ohio-woman-charged-212526209.html)
 - Apr 23 - [These public high schools are the best in San Diego: U.S. News and World Report](https://www.yahoo.com/news/public-high-schools-best-san-203635240.html)
