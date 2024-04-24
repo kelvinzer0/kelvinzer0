@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [La. Man Sentenced to Physical Castration, 50 Years for Raping 14-Year-Old Girl](https://www.yahoo.com/news/la-man-sentenced-physical-castration-202901740.html)
-- Apr 24 - [Officials offer $20,000 reward in case of young dolphin found shot to death on Louisiana beach](https://www.yahoo.com/news/officials-offer-20-000-reward-155752505.html)
-- Apr 24 - [Former Wisconsin college chancellor fired over porn career is fighting to keep his faculty post](https://www.yahoo.com/news/former-wisconsin-college-chancellor-fired-190039815.html)
-- Apr 24 - [Fox News Anchor Comes Unglued, Berates ‘Dumb’ Liberal Colleague](https://www.yahoo.com/news/fox-news-anchor-comes-unglued-185245532.html)
-- Apr 24 - [Seventy Israeli hostages have been killed, says captive](https://www.yahoo.com/news/seventy-israeli-hostages-killed-says-185017633.html)
+- Apr 24 - ['We will call him President Trump': Defense lawyers vacillate between honorifics](https://www.yahoo.com/news/call-him-president-trump-defense-214819631.html)
+- Apr 24 - [Oklahoma prosecutors charge fifth member of anti-government group in Kansas women's killings](https://www.yahoo.com/news/oklahoma-prosecutors-charge-fifth-member-210152534.html)
+- Apr 24 - ['So appalled': What witnesses told special counsel about Trump's handling of classified info while still president](https://www.yahoo.com/news/appalled-witnesses-told-special-counsel-205822504.html)
+- Apr 24 - [The US is now allowed to seize Russian state assets. How would that work?](https://finance.yahoo.com/news/us-now-allowed-seize-russian-200506024.html)
+- Apr 24 - [Gaza Protesters at UT Austin Arrested by Armed Police](https://www.yahoo.com/news/gaza-protesters-ut-austin-arrested-195700424.html)
 <!-- feed end -->
 
 ### Onstream
