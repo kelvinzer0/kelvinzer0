@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - ['We will call him President Trump': Defense lawyers vacillate between honorifics](https://www.yahoo.com/news/call-him-president-trump-defense-214819631.html)
+- Apr 24 - [Authorities confirm 2nd victim of ex-Washington officer was 17-year-old with whom he had a baby](https://www.yahoo.com/news/authorities-confirm-2nd-victim-ex-224429474.html)
+- Apr 24 - [A grand jury declined to indict a Texas man 2 years ago in the killing of a 9-year-old. He’s now been indicted for murder](https://www.yahoo.com/news/grand-jury-declined-indict-texas-212831227.html)
 - Apr 24 - [Oklahoma prosecutors charge fifth member of anti-government group in Kansas women's killings](https://www.yahoo.com/news/oklahoma-prosecutors-charge-fifth-member-210152534.html)
 - Apr 24 - ['So appalled': What witnesses told special counsel about Trump's handling of classified info while still president](https://www.yahoo.com/news/appalled-witnesses-told-special-counsel-205822504.html)
-- Apr 24 - [The US is now allowed to seize Russian state assets. How would that work?](https://finance.yahoo.com/news/us-now-allowed-seize-russian-200506024.html)
-- Apr 24 - [Gaza Protesters at UT Austin Arrested by Armed Police](https://www.yahoo.com/news/gaza-protesters-ut-austin-arrested-195700424.html)
+- Apr 24 - [Former Wisconsin college chancellor fired over porn career is fighting to keep his faculty post](https://www.yahoo.com/news/former-wisconsin-college-chancellor-fired-190039815.html)
 <!-- feed end -->
 
 ### Onstream
