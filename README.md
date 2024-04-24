@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 24 - [North Korea sends a delegation to Iran in a growing effort to break its diplomatic isolation](https://www.yahoo.com/news/north-korea-sends-delegation-iran-061716646.html)
 - Apr 24 - [Florida Man Runs Over 11-Foot Alligator with Truck to Save Neighbor from Attack](https://www.yahoo.com/news/florida-man-runs-over-11-045617345.html)
-- Apr 24 - [Woman who accused ex-Dodgers pitcher Trevor Bauer of sexual assault is charged with defrauding him](https://www.yahoo.com/news/woman-accused-ex-dodgers-pitcher-010621569.html)
 - Apr 24 - [Sketch artist details how Trump’s attention changed after hearing Karen McDougal’s name](https://www.yahoo.com/news/sketch-artist-details-trump-attention-012732893.html)
 - Apr 23 - [Photographer alleges he was forced to watch Megan Thee Stallion have sex and was unfairly fired](https://www.yahoo.com/entertainment/photographer-alleges-forced-watch-megan-232430819.html)
+- Apr 23 - [How Putin’s Whirlwind Bromance Could End in a Kremlin Tragedy](https://www.yahoo.com/news/putin-whirlwind-bromance-could-end-214518690.html)
 <!-- feed end -->
 
 ### Onstream
