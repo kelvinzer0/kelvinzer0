@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 24 - [Ukraine uses long-range missiles secretly provided by US to hit Russian-held areas, officials say](https://www.yahoo.com/news/ukraine-uses-long-range-missiles-163218186.html)
+- Apr 24 - [Lara Trump Alarms Critics With 'Frightening' Comment About RNC's Election Plans](https://www.yahoo.com/news/lara-trump-alarms-critics-frightening-161530496.html)
+- Apr 24 - [A Fort Worth neighborhood was a food desert. Then an ex-Dallas Cowboys linebacker moved in](https://www.yahoo.com/lifestyle/fort-worth-neighborhood-food-desert-155815393.html)
 - Apr 24 - [Family of man killed when Chicago police fired 96 times during traffic stop file wrongful death suit](https://www.yahoo.com/news/family-man-killed-chicago-police-153955662.html)
-- Apr 24 - [Biden pardons 11 people, commutes sentences of five others, says White House](https://www.yahoo.com/news/biden-pardons-11-people-commutes-134321786.html)
-- Apr 24 - [Woman Dies After Eating Raw Mushroom in Sushi Roll: Family](https://www.yahoo.com/news/woman-dies-eating-raw-mushroom-130601172.html)
-- Apr 24 - [Exclusive: New evidence challenges the Pentagon’s account of a horrific attack as the US withdrew from Afghanistan](https://www.yahoo.com/news/exclusive-evidence-challenges-pentagon-account-090146927.html)
-- Apr 24 - [Blood-Soaked Royal Horses Escape and Bolt Through London](https://www.yahoo.com/news/blood-soaked-royal-horses-escape-095759836.html)
+- Apr 24 - ['Shooting incident' at Pittsford Wegmans puts store in lockdown; investigation underway](https://www.yahoo.com/news/shooting-incident-pittsford-wegmans-puts-144601284.html)
 <!-- feed end -->
 
 ### Onstream
