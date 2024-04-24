@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 24 - [La. Man Sentenced to Physical Castration, 50 Years for Raping 14-Year-Old Girl](https://www.yahoo.com/news/la-man-sentenced-physical-castration-202901740.html)
+- Apr 24 - [Officials offer $20,000 reward in case of young dolphin found shot to death on Louisiana beach](https://www.yahoo.com/news/officials-offer-20-000-reward-155752505.html)
+- Apr 24 - [Former Wisconsin college chancellor fired over porn career is fighting to keep his faculty post](https://www.yahoo.com/news/former-wisconsin-college-chancellor-fired-190039815.html)
 - Apr 24 - [Fox News Anchor Comes Unglued, Berates ‘Dumb’ Liberal Colleague](https://www.yahoo.com/news/fox-news-anchor-comes-unglued-185245532.html)
-- Apr 24 - [Pilot reported fire onboard plane carrying fuel, attempted to return to Fairbanks just before crash](https://www.yahoo.com/news/pilot-reported-fire-onboard-plane-184016955.html)
-- Apr 24 - [Team Trump Is Ready to Lose the Supreme Court Immunity Case. They’re Celebrating](https://www.yahoo.com/news/team-trump-ready-lose-supreme-181317125.html)
-- Apr 24 - [Veteran DEA agent sentenced to 4 years for leaking intelligence in Miami bribery conspiracy](https://www.yahoo.com/news/veteran-dea-agent-sentenced-4-173020875.html)
-- Apr 24 - [US Rep. Donald Payne Jr., a Democrat from New Jersey, has died at 65 after a heart attack](https://www.yahoo.com/news/us-rep-donald-payne-jr-172808937.html)
+- Apr 24 - [Seventy Israeli hostages have been killed, says captive](https://www.yahoo.com/news/seventy-israeli-hostages-killed-says-185017633.html)
 <!-- feed end -->
 
 ### Onstream
