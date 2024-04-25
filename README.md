@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Body-cam footage shows police left an Ohio man handcuffed and facedown on a bar floor before he died](https://www.yahoo.com/news/body-cam-footage-shows-police-192047091.html)
-- Apr 25 - [DeSantis: Florida ‘will not comply’ with new Biden Title IX rules](https://www.yahoo.com/news/desantis-florida-not-comply-biden-183121703.html)
-- Apr 25 - [Secret Service says agent on Harris’ detail was removed from assignment after distressing behavior](https://www.yahoo.com/news/secret-says-agent-harris-detail-182318979.html)
-- Apr 25 - [Apparent road rage brawl on busy Los Angeles freeway caught on video](https://www.yahoo.com/news/apparent-road-rage-brawl-busy-180403633.html)
-- Apr 25 - [A California woman bought a vacant lot in Hawaii and discovered a $500,000 house was built on it without her permission](https://www.yahoo.com/news/california-woman-bought-vacant-lot-175640970.html)
+- Apr 25 - [Key Hush-Money Trial Witness Throws Trump Under Bus As Hard as He Can](https://www.yahoo.com/news/key-hush-money-trial-witness-195737688.html)
+- Apr 25 - [Arkansas officials say a Missouri doctor whose body was found in a lake died by suicide](https://www.yahoo.com/news/arkansas-officials-missouri-doctor-whose-195442765.html)
+- Apr 25 - [Owner retiring from, selling beloved metro Atlanta restaurants gives big update](https://www.yahoo.com/news/owner-retiring-selling-beloved-metro-194201274.html)
+- Apr 25 - [See inside historic $6M mansion once owned by head of iconic KC department store](https://www.yahoo.com/lifestyle/see-inside-historic-6m-mansion-193808777.html)
+- Apr 25 - [Federal judge upholds verdict in E. Jean Carroll case and denies Trump’s motion for a new trial](https://www.yahoo.com/news/federal-judge-upholds-verdict-e-163333296.html)
 <!-- feed end -->
 
 ### Onstream
