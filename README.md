@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [2 military horses that broke free and ran loose across London are in serious condition](https://www.yahoo.com/news/2-military-horses-broke-free-102106431.html)
+- Apr 25 - [Southwest will limit hiring and drop 4 airports after loss. American Airlines posts 1Q loss as well](https://finance.yahoo.com/news/southwest-posts-1q-loss-limit-111837432.html)
 - Apr 25 - [People Are Cackling At Monica Lewinsky's 'Iconic' Take On The Taylor Swift Meme](https://www.yahoo.com/entertainment/people-cackling-monica-lewinskys-iconic-093544932.html)
 - Apr 25 - [Frontline Ukrainians Fear New Aid From U.S. Will Be a Disaster](https://www.yahoo.com/news/frontline-ukrainians-fear-aid-u-083843561.html)
 - Apr 25 - ['How Embarrassing': Trump Mocked For 'Pretending To Be President' In Strange Ceremony](https://www.yahoo.com/news/embarrassing-trump-mocked-pretending-president-082959700.html)
