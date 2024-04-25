@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Key Hush-Money Trial Witness Throws Trump Under Bus As Hard as He Can](https://www.yahoo.com/news/key-hush-money-trial-witness-195737688.html)
+- Apr 25 - [Trump's three US Supreme Court appointees thrash out immunity claim](https://www.yahoo.com/news/trumps-three-us-supreme-court-213135552.html)
+- Apr 25 - [Key Witness Says Trump Knew About Every Single Hush Money Payment](https://www.yahoo.com/news/key-hush-money-trial-witness-195737688.html)
 - Apr 25 - [Arkansas officials say a Missouri doctor whose body was found in a lake died by suicide](https://www.yahoo.com/news/arkansas-officials-missouri-doctor-whose-195442765.html)
 - Apr 25 - [Owner retiring from, selling beloved metro Atlanta restaurants gives big update](https://www.yahoo.com/news/owner-retiring-selling-beloved-metro-194201274.html)
 - Apr 25 - [See inside historic $6M mansion once owned by head of iconic KC department store](https://www.yahoo.com/lifestyle/see-inside-historic-6m-mansion-193808777.html)
-- Apr 25 - [Federal judge upholds verdict in E. Jean Carroll case and denies Trump’s motion for a new trial](https://www.yahoo.com/news/federal-judge-upholds-verdict-e-163333296.html)
 <!-- feed end -->
 
 ### Onstream
