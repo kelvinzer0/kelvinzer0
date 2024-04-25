@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 24 - [Authorities confirm 2nd victim of ex-Washington officer was 17-year-old with whom he had a baby](https://www.yahoo.com/news/authorities-confirm-2nd-victim-ex-224429474.html)
 - Apr 24 - [A grand jury declined to indict a Texas man 2 years ago in the killing of a 9-year-old. He’s now been indicted for murder](https://www.yahoo.com/news/grand-jury-declined-indict-texas-212831227.html)
-- Apr 24 - [Oklahoma prosecutors charge fifth member of anti-government group in Kansas women's killings](https://www.yahoo.com/news/oklahoma-prosecutors-charge-fifth-member-210152534.html)
-- Apr 24 - ['So appalled': What witnesses told special counsel about Trump's handling of classified info while still president](https://www.yahoo.com/news/appalled-witnesses-told-special-counsel-205822504.html)
-- Apr 24 - [Former Wisconsin college chancellor fired over porn career is fighting to keep his faculty post](https://www.yahoo.com/news/former-wisconsin-college-chancellor-fired-190039815.html)
+- Apr 24 - [Arizona indicts 18 in case over 2020 election in Arizona, including Giuliani and Meadows](https://www.yahoo.com/news/arizona-grand-jury-indicts-11-232335673.html)
+- Apr 24 - [Authorities confirm 2nd victim of ex-Washington officer was 17-year-old with whom he had a baby](https://www.yahoo.com/news/authorities-confirm-2nd-victim-ex-224429474.html)
+- Apr 24 - [‘There’s a lot of people on the waiting list’: DeSantis signs bill to give $200M boost to My Safe Florida Home program](https://www.yahoo.com/news/lot-people-waiting-list-desantis-223616738.html)
+- Apr 24 - [What is the healthiest fish? This surprising No. 1 pick beat out salmon](https://www.yahoo.com/lifestyle/healthiest-fish-surprising-no-1-211655154.html)
 <!-- feed end -->
 
 ### Onstream
