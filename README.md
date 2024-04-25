@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Watch video of Gisele Bundchen after her car gets pulled over by a cop in Surfside](https://www.yahoo.com/entertainment/watch-video-gisele-bundchen-her-142448993.html)
-- Apr 25 - [Harvey Weinstein's rape conviction overturned by New York appeals court](https://www.yahoo.com/news/harvey-weinsteins-rape-conviction-overturned-135824253.html)
-- Apr 25 - [New York appeals court overturns Harvey Weinstein’s 2020 rape conviction from landmark #MeToo trial](https://www.yahoo.com/news/york-appeals-court-overturns-harvey-130902489.html)
-- Apr 25 - [Man Sues Dealership After Loaner Car Gets Reported as Stolen](https://www.yahoo.com/news/man-sues-dealership-loaner-car-130202906.html)
-- Apr 25 - [16-Year-Old Daughter of Billionaire Slack Cofounder Reported Missing After 'Running Away’](https://www.yahoo.com/news/16-old-daughter-billionaire-slack-125310510.html)
+- Apr 25 - [8 years after the National Enquirer's deal with Donald Trump, the iconic tabloid is limping badly](https://www.yahoo.com/news/8-years-national-enquirers-deal-152330276.html)
+- Apr 25 - [Florida man charged with first-degree murder in rape, killing of Madeline 'Maddie' Soto](https://www.yahoo.com/news/florida-man-charged-first-degree-151849594.html)
+- Apr 25 - [Tom Brady accused of ruining collectibles with shoddy autograph at $3,600 event: 'It's horrible'](https://sports.yahoo.com/tom-brady-accused-ruining-collectibles-151456696.html)
+- Apr 25 - [High schooler accused of killing fellow student on campus in Arlington, Texas](https://www.yahoo.com/news/high-schooler-accused-killing-fellow-151132227.html)
+- Apr 25 - [Putin urges restraint in state seizure of assets](https://www.yahoo.com/news/putin-urges-restraint-state-seizure-143508917.html)
 <!-- feed end -->
 
 ### Onstream
