@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 25 - [NYPD responds to AOC, says officers 'have to teach' anti-Israel mobs the 'consequences of their actions'](https://www.yahoo.com/news/nypd-responds-aoc-says-officers-153903868.html)
 - Apr 25 - [8 years after the National Enquirer's deal with Donald Trump, the iconic tabloid is limping badly](https://www.yahoo.com/news/8-years-national-enquirers-deal-152330276.html)
-- Apr 25 - [Florida man charged with first-degree murder in rape, killing of Madeline 'Maddie' Soto](https://www.yahoo.com/news/florida-man-charged-first-degree-151849594.html)
-- Apr 25 - [Tom Brady accused of ruining collectibles with shoddy autograph at $3,600 event: 'It's horrible'](https://sports.yahoo.com/tom-brady-accused-ruining-collectibles-151456696.html)
+- Apr 25 - [Satellite photos show new port construction in Gaza Strip for US-led aid operation](https://www.yahoo.com/news/satellite-photos-show-port-construction-151923457.html)
 - Apr 25 - [High schooler accused of killing fellow student on campus in Arlington, Texas](https://www.yahoo.com/news/high-schooler-accused-killing-fellow-151132227.html)
-- Apr 25 - [A Chinese ship remains the focus of the investigation into Baltic Sea gas pipeline damaged last year](https://www.yahoo.com/news/chinese-ship-remains-prime-suspect-144459917.html)
+- Apr 25 - [Putin urges restraint in state seizure of assets](https://www.yahoo.com/news/putin-urges-restraint-state-seizure-143508917.html)
 <!-- feed end -->
 
 ### Onstream
