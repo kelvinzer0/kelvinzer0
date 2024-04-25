@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 25 - [Exclusive-China harbors ship tied to North Korea-Russia arms transfers, satellite images show](https://www.yahoo.com/news/exclusive-china-harbors-ship-tied-051043065.html)
 - Apr 25 - [Hamas official says group would lay down its weapons if a two-state solution is implemented](https://www.yahoo.com/news/hamas-official-says-group-lay-042617098.html)
 - Apr 25 - [A high-profile murder trial in Kazakhstan boosts awareness of domestic violence](https://www.yahoo.com/news/high-profile-murder-trial-kazakhstan-040250902.html)
+- Apr 25 - [Woman wanted for assault inside Southern California retail shop](https://www.yahoo.com/news/woman-wanted-assault-inside-southern-034246655.html)
 - Apr 25 - [Secret Service agent on VP Harris' detail removed from assignment after physical fight while on duty](https://www.yahoo.com/news/secret-agent-vp-harris-detail-020324217.html)
-- Apr 24 - [A grand jury declined to indict a Texas man 2 years ago in the killing of a 9-year-old. He’s now been indicted for murder](https://www.yahoo.com/news/grand-jury-declined-indict-texas-212831227.html)
-- Apr 24 - [Authorities confirm 2nd victim of ex-Washington officer was 17-year-old with whom he had a baby](https://www.yahoo.com/news/authorities-confirm-2nd-victim-ex-224429474.html)
 <!-- feed end -->
 
 ### Onstream
