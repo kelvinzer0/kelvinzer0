@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 25 - [New York appeals court overturns Harvey Weinstein’s 2020 rape conviction from landmark #MeToo trial](https://www.yahoo.com/entertainment/york-appeals-court-overturns-harvey-130902489.html)
+- Apr 25 - [Man Sues Dealership After Loaner Car Gets Reported as Stolen](https://www.yahoo.com/news/man-sues-dealership-loaner-car-130202906.html)
+- Apr 25 - [16-Year-Old Daughter of Billionaire Slack Cofounder Reported Missing After 'Running Away’](https://www.yahoo.com/news/16-old-daughter-billionaire-slack-125310510.html)
 - Apr 25 - [Southwest will limit hiring and drop 4 airports after loss. American Airlines posts 1Q loss as well](https://finance.yahoo.com/news/southwest-posts-1q-loss-limit-111837432.html)
 - Apr 25 - [People Are Cackling At Monica Lewinsky's 'Iconic' Take On The Taylor Swift Meme](https://www.yahoo.com/entertainment/people-cackling-monica-lewinskys-iconic-093544932.html)
-- Apr 25 - [Frontline Ukrainians Fear New Aid From U.S. Will Be a Disaster](https://www.yahoo.com/news/frontline-ukrainians-fear-aid-u-083843561.html)
-- Apr 25 - ['How Embarrassing': Trump Mocked For 'Pretending To Be President' In Strange Ceremony](https://www.yahoo.com/news/embarrassing-trump-mocked-pretending-president-082959700.html)
-- Apr 25 - [Trump Attorney Alina Habba Makes Blunt Admission About Trial, But It’s No Surprise](https://www.yahoo.com/news/trump-attorney-alina-habba-makes-082506062.html)
 <!-- feed end -->
 
 ### Onstream
