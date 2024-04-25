@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Trump's three US Supreme Court appointees thrash out immunity claim](https://www.yahoo.com/news/trumps-three-us-supreme-court-213135552.html)
+- Apr 25 - [Jack Wagoner, attorney who challenged Arkansas' same-sex marriage ban, dies](https://www.yahoo.com/news/jack-wagoner-attorney-challenged-arkansas-215838862.html)
 - Apr 25 - [Key Witness Says Trump Knew About Every Single Hush Money Payment](https://www.yahoo.com/news/key-hush-money-trial-witness-195737688.html)
 - Apr 25 - [Arkansas officials say a Missouri doctor whose body was found in a lake died by suicide](https://www.yahoo.com/news/arkansas-officials-missouri-doctor-whose-195442765.html)
 - Apr 25 - [Owner retiring from, selling beloved metro Atlanta restaurants gives big update](https://www.yahoo.com/news/owner-retiring-selling-beloved-metro-194201274.html)
