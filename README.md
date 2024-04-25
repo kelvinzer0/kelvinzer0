@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 25 - [Hamas official says group would lay down its weapons if a two-state solution is implemented](https://www.yahoo.com/news/hamas-official-says-group-lay-042617098.html)
+- Apr 25 - [A high-profile murder trial in Kazakhstan boosts awareness of domestic violence](https://www.yahoo.com/news/high-profile-murder-trial-kazakhstan-040250902.html)
+- Apr 24 - [A grand jury declined to indict a Texas man 2 years ago in the killing of a 9-year-old. He’s now been indicted for murder](https://www.yahoo.com/news/grand-jury-declined-indict-texas-212831227.html)
 - Apr 24 - [Arizona indicts 18 in election interference case, including Giuliani and Meadows](https://www.yahoo.com/news/arizona-grand-jury-indicts-11-232335673.html)
 - Apr 24 - [Authorities confirm 2nd victim of ex-Washington officer was 17-year-old with whom he had a baby](https://www.yahoo.com/news/authorities-confirm-2nd-victim-ex-224429474.html)
-- Apr 24 - [‘There’s a lot of people on the waiting list’: DeSantis signs bill to give $200M boost to My Safe Florida Home program](https://www.yahoo.com/news/lot-people-waiting-list-desantis-223616738.html)
-- Apr 24 - [What is the healthiest fish? This surprising No. 1 pick beat out salmon](https://www.yahoo.com/lifestyle/healthiest-fish-surprising-no-1-211655154.html)
-- Apr 24 - ['So appalled': What witnesses told special counsel about Trump's handling of classified info while still president](https://www.yahoo.com/news/appalled-witnesses-told-special-counsel-205822504.html)
 <!-- feed end -->
 
 ### Onstream
