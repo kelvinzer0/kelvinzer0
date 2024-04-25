@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 25 - [NYPD responds to AOC, says officers 'have to teach' anti-Israel mobs the 'consequences of their actions'](https://www.yahoo.com/news/nypd-responds-aoc-says-officers-153903868.html)
-- Apr 25 - [8 years after the National Enquirer's deal with Donald Trump, the iconic tabloid is limping badly](https://www.yahoo.com/news/8-years-national-enquirers-deal-152330276.html)
 - Apr 25 - [Satellite photos show new port construction in Gaza Strip for US-led aid operation](https://www.yahoo.com/news/satellite-photos-show-port-construction-151923457.html)
 - Apr 25 - [High schooler accused of killing fellow student on campus in Arlington, Texas](https://www.yahoo.com/news/high-schooler-accused-killing-fellow-151132227.html)
-- Apr 25 - [Putin urges restraint in state seizure of assets](https://www.yahoo.com/news/putin-urges-restraint-state-seizure-143508917.html)
+- Apr 25 - [A Chinese ship remains the focus of the investigation into Baltic Sea gas pipeline damaged last year](https://www.yahoo.com/news/chinese-ship-remains-prime-suspect-144459917.html)
+- Apr 25 - [Orbiter Spots "Spiders" on Surface of Mars](https://www.yahoo.com/news/orbiter-spots-spiders-surface-mars-142745137.html)
 <!-- feed end -->
 
 ### Onstream
