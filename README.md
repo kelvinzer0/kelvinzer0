@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [NYPD responds to AOC, says officers 'have to teach' anti-Israel mobs the 'consequences of their actions'](https://www.yahoo.com/news/nypd-responds-aoc-says-officers-153903868.html)
-- Apr 25 - [Satellite photos show new port construction in Gaza Strip for US-led aid operation](https://www.yahoo.com/news/satellite-photos-show-port-construction-151923457.html)
-- Apr 25 - [High schooler accused of killing fellow student on campus in Arlington, Texas](https://www.yahoo.com/news/high-schooler-accused-killing-fellow-151132227.html)
-- Apr 25 - [A Chinese ship remains the focus of the investigation into Baltic Sea gas pipeline damaged last year](https://www.yahoo.com/news/chinese-ship-remains-prime-suspect-144459917.html)
-- Apr 25 - [Orbiter Spots "Spiders" on Surface of Mars](https://www.yahoo.com/news/orbiter-spots-spiders-surface-mars-142745137.html)
+- Apr 25 - [Body-cam footage shows police left an Ohio man handcuffed and facedown on a bar floor before he died](https://www.yahoo.com/news/body-cam-footage-shows-police-192047091.html)
+- Apr 25 - [DeSantis: Florida ‘will not comply’ with new Biden Title IX rules](https://www.yahoo.com/news/desantis-florida-not-comply-biden-183121703.html)
+- Apr 25 - [Secret Service says agent on Harris’ detail was removed from assignment after distressing behavior](https://www.yahoo.com/news/secret-says-agent-harris-detail-182318979.html)
+- Apr 25 - [Apparent road rage brawl on busy Los Angeles freeway caught on video](https://www.yahoo.com/news/apparent-road-rage-brawl-busy-180403633.html)
+- Apr 25 - [A California woman bought a vacant lot in Hawaii and discovered a $500,000 house was built on it without her permission](https://www.yahoo.com/news/california-woman-bought-vacant-lot-175640970.html)
 <!-- feed end -->
 
 ### Onstream
