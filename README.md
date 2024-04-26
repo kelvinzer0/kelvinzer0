@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 26 - [Secret Service says agent on Harris’ detail was removed from assignment after distressing behavior](https://www.yahoo.com/news/secret-says-agent-harris-detail-182318979.html)
 - Apr 26 - [China passes tariff law as tensions with trading partners simmer](https://www.yahoo.com/news/china-passes-tariff-law-tensions-021355611.html)
+- Apr 26 - [New Jersey Target employee thwarts 3 women stealing shopping cart full of merchandise: police](https://finance.yahoo.com/news/jersey-target-employee-thwarts-3-015253542.html)
 - Apr 26 - [Las Vegas man exposes new scam in hopes of saving others from it](https://www.yahoo.com/news/las-vegas-man-exposes-scam-012250884.html)
-- Apr 25 - [Ukraine pulls US-provided Abrams tanks from the front lines over Russian drone threats](https://www.yahoo.com/news/ukraine-pulls-us-provided-abrams-232304130.html)
-- Apr 25 - [Fight between high school substitute teacher and student caught on camera in Las Vegas: sources](https://www.yahoo.com/news/fight-between-high-school-substitute-230548186.html)
+- Apr 25 - [‘A big mistake’: Ex-Trump White House lawyer reacts to Trump’s mention of Charlottesville](https://www.yahoo.com/news/big-mistake-former-trump-lawyer-215528864.html)
 <!-- feed end -->
 
 ### Onstream
