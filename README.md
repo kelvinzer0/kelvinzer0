@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 25 - [Jack Wagoner, attorney who challenged Arkansas' same-sex marriage ban, dies](https://www.yahoo.com/news/jack-wagoner-attorney-challenged-arkansas-215838862.html)
-- Apr 25 - [Key Witness Says Trump Knew About Every Single Hush Money Payment](https://www.yahoo.com/news/key-hush-money-trial-witness-195737688.html)
-- Apr 25 - [Arkansas officials say a Missouri doctor whose body was found in a lake died by suicide](https://www.yahoo.com/news/arkansas-officials-missouri-doctor-whose-195442765.html)
-- Apr 25 - [Owner retiring from, selling beloved metro Atlanta restaurants gives big update](https://www.yahoo.com/news/owner-retiring-selling-beloved-metro-194201274.html)
-- Apr 25 - [See inside historic $6M mansion once owned by head of iconic KC department store](https://www.yahoo.com/lifestyle/see-inside-historic-6m-mansion-193808777.html)
+- Apr 25 - [Ukraine pulls US-provided Abrams tanks from the front lines over Russian drone threats](https://www.yahoo.com/news/ukraine-pulls-us-provided-abrams-232304130.html)
+- Apr 25 - [CNN Poll: Few think Trump is being treated the same as other defendants](https://www.yahoo.com/news/cnn-poll-few-think-trump-220155521.html)
+- Apr 25 - [Stacy McKay, Dino Tripodis share response after being taken off-air at Sunny 95](https://www.yahoo.com/entertainment/stacy-mckay-dino-tripodis-share-211651435.html)
+- Apr 25 - [Former Ohio State football player accused of bank robbery](https://www.yahoo.com/news/former-ohio-state-football-player-210632412.html)
+- Apr 25 - [‘Karen’ in viral video facing sexual battery charge for pulling down teen’s skirt in Utah restaurant](https://www.yahoo.com/news/karen-viral-video-facing-sexual-205052845.html)
 <!-- feed end -->
 
 ### Onstream
