@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 26 - [A lower Manhattan courtroom just dealt a fatal blow to the Trump mystique](https://www.yahoo.com/news/lower-manhattan-courtroom-just-dealt-101806906.html)
+- Apr 26 - [Jamie Raskin Suggests Fitting New Home For 'Partisan' Supreme Court In Blistering Take](https://www.yahoo.com/news/jamie-raskin-suggests-fitting-home-093830538.html)
 - Apr 26 - [Suspects Caught on Camera Loading Up Shopping Cart With Chainsaws](https://www.yahoo.com/news/suspects-caught-camera-loading-shopping-085731686.html)
+- Apr 26 - [Contractor makes million-dollar mistake on I-55 project: who’s paying the bill?](https://www.yahoo.com/news/contractor-makes-million-dollar-mistake-024006174.html)
 - Apr 26 - [Secret Service says agent on Harris’ detail was removed from assignment after distressing behavior](https://www.yahoo.com/news/secret-says-agent-harris-detail-182318979.html)
-- Apr 26 - [China passes tariff law as tensions with trading partners simmer](https://www.yahoo.com/news/china-passes-tariff-law-tensions-021355611.html)
-- Apr 26 - [New Jersey Target employee thwarts 3 women stealing shopping cart full of merchandise: police](https://finance.yahoo.com/news/jersey-target-employee-thwarts-3-015253542.html)
-- Apr 26 - [Las Vegas man exposes new scam in hopes of saving others from it](https://www.yahoo.com/news/las-vegas-man-exposes-scam-012250884.html)
 <!-- feed end -->
 
 ### Onstream
