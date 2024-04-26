@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 26 - [Owner of exploding Michigan building arrested at airport while trying to leave US, authorities say](https://www.yahoo.com/news/owner-exploding-michigan-building-arrested-150036371.html)
+- Apr 26 - [Pictured: Joe Biden ‘uses team of walkers to hide shuffling gait’ to Marine One](https://www.yahoo.com/news/pictured-joe-biden-uses-team-144836082.html)
+- Apr 26 - [Samuel Alito’s Resentment Goes Full Tilt on a Black Day for the Court](https://www.yahoo.com/news/samuel-alito-resentment-goes-full-141827625.html)
 - Apr 26 - [John Roberts isn’t happy with previous ruling against Trump – what happens now?](https://www.yahoo.com/news/john-roberts-donald-trump-together-090026207.html)
-- Apr 26 - [Russia has found the critical vulnerability in Nato’s American tanks](https://www.yahoo.com/news/russia-found-critical-vulnerability-nato-122350488.html)
-- Apr 26 - [A lower Manhattan courtroom just dealt a fatal blow to the Trump mystique](https://www.yahoo.com/news/lower-manhattan-courtroom-just-dealt-101806906.html)
-- Apr 26 - [Jamie Dimon says America needs to ‘take a deep breath’ before facing off with China, because the U.S. is actually in a ‘very good position’ to negotiate](https://finance.yahoo.com/news/jamie-dimon-says-america-needs-104646579.html)
-- Apr 26 - [Jamie Raskin Suggests Fitting New Home For 'Partisan' Supreme Court In Blistering Take](https://www.yahoo.com/news/jamie-raskin-suggests-fitting-home-093830538.html)
+- Apr 26 - [Carpool violator busted in Southern California with ‘next level’ dummy](https://www.yahoo.com/news/carpool-violator-busted-southern-california-124115337.html)
 <!-- feed end -->
 
 ### Onstream
