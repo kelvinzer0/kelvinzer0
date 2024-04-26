@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 26 - [Russia has found the critical vulnerability in Nato’s American tanks](https://www.yahoo.com/news/russia-found-critical-vulnerability-nato-122350488.html)
 - Apr 26 - [John Roberts isn’t happy with previous ruling against Trump – what happens now?](https://www.yahoo.com/news/john-roberts-donald-trump-together-090026207.html)
+- Apr 26 - [Russia has found the critical vulnerability in Nato’s American tanks](https://www.yahoo.com/news/russia-found-critical-vulnerability-nato-122350488.html)
 - Apr 26 - [A lower Manhattan courtroom just dealt a fatal blow to the Trump mystique](https://www.yahoo.com/news/lower-manhattan-courtroom-just-dealt-101806906.html)
-- Apr 26 - [Analysis-Arrest of Russian defence minister's deputy may be strike by rival 'clan'](https://www.yahoo.com/news/analysis-arrest-russian-defence-ministers-102547175.html)
 - Apr 26 - [Jamie Raskin Suggests Fitting New Home For 'Partisan' Supreme Court In Blistering Take](https://www.yahoo.com/news/jamie-raskin-suggests-fitting-home-093830538.html)
+- Apr 26 - [Suspects Caught on Camera Loading Up Shopping Cart With Chainsaws](https://www.yahoo.com/news/suspects-caught-camera-loading-shopping-085731686.html)
 <!-- feed end -->
 
 ### Onstream
