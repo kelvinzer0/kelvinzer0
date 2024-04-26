@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 26 - [Secret Service says agent on Harris’ detail was removed from assignment after distressing behavior](https://www.yahoo.com/news/secret-says-agent-harris-detail-182318979.html)
 - Apr 25 - [‘A big mistake’: Ex-Trump White House lawyer reacts to Trump’s mention of Charlottesville](https://www.yahoo.com/news/big-mistake-former-trump-lawyer-215528864.html)
 - Apr 25 - [Ukraine pulls US-provided Abrams tanks from the front lines over Russian drone threats](https://www.yahoo.com/news/ukraine-pulls-us-provided-abrams-232304130.html)
 - Apr 25 - [Fight between high school substitute teacher and student caught on camera in Las Vegas: sources](https://www.yahoo.com/news/fight-between-high-school-substitute-230548186.html)
 - Apr 25 - [CNN Poll: Few think Trump is being treated the same as other defendants](https://www.yahoo.com/news/cnn-poll-few-think-trump-220155521.html)
-- Apr 25 - [North Little Rock defense attorney identified as suspect shot in attempted armored truck robbery at Bank of America](https://www.yahoo.com/news/north-little-rock-defense-attorney-222532893.html)
 <!-- feed end -->
 
 ### Onstream
