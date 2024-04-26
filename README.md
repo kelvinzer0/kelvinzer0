@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 26 - [Siren Blares as Large Tornado Moves Through Lincoln, Nebraska](https://www.yahoo.com/news/siren-blares-large-tornado-moves-223055753.html)
+- Apr 26 - [Kristi Noem, a Trump VP contender, defends killing dog on family farm](https://www.yahoo.com/news/kristi-noem-trump-vp-contender-215117956.html)
+- Apr 26 - [They say don't leave valuables in parked cars in San Francisco. Rep. Adam Schiff didn't listen](https://www.yahoo.com/news/dont-leave-valuables-parked-cars-213121352.html)
 - Apr 26 - [‘Trump f----ed you, idiot’, Stormy Daniels’ lawyer told tabloid](https://www.yahoo.com/news/trump-f-ed-idiot-stormy-204757957.html)
 - Apr 26 - [Remains of Man Who Vanished After Asking Brother to Pick Him Up from Work in 2018 Have Been Found](https://www.yahoo.com/news/remains-man-vanished-asking-brother-201215154.html)
-- Apr 26 - [Planning for potential presidential transition underway as Biden administration kicks it off](https://www.yahoo.com/news/planning-potential-presidential-transition-underway-200308603.html)
-- Apr 26 - [Flight attendant indicted in attempt to record teen girl in airplane bathroom](https://www.yahoo.com/news/flight-attendant-indicted-attempt-record-193718120.html)
-- Apr 26 - [‘True monster’: Man convicted of raping, killing Mass. teacher pleads guilty in brutal assault case](https://www.yahoo.com/news/man-convicted-raping-killing-mass-164551988.html)
 <!-- feed end -->
 
 ### Onstream
