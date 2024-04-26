@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 26 - [Some urge boycott of Wyoming as rural angst over wolves clashes with cruel scenes of one in a bar](https://www.yahoo.com/news/urge-boycott-wyoming-rural-angst-181325877.html)
 - Apr 26 - [‘True monster’: Man convicted of raping, killing Mass. teacher pleads guilty in brutal assault case](https://www.yahoo.com/news/man-convicted-raping-killing-mass-164551988.html)
-- Apr 26 - [President Joe Biden says he's 'happy to debate' Donald Trump. Trump says he's ready to go](https://www.yahoo.com/news/president-joe-biden-says-hes-161137694.html)
+- Apr 26 - [Model Gisele Bündchen, ex-wife of Tom Brady, breaks down during traffic stop](https://www.yahoo.com/news/model-gisele-b-ndchen-ex-191405493.html)
+- Apr 26 - [Judge upholds disqualification of challenger to judge in Trump’s Georgia election interference case](https://www.yahoo.com/news/judge-upholds-disqualification-challenger-judge-184343368.html)
+- Apr 26 - [Opinion: The Supreme Court just showed us that Trump is not incompetent. He's a master of corruption](https://www.yahoo.com/news/opinion-supreme-court-just-showed-184314188.html)
 - Apr 26 - [Best images from Boca Bash, the wild boating party on Lake Boca Raton](https://www.yahoo.com/lifestyle/best-images-boca-bash-wild-154759299.html)
-- Apr 26 - [Pictured: Joe Biden ‘uses team of walkers to hide shuffling gait’ to Marine One](https://www.yahoo.com/news/pictured-joe-biden-uses-team-144836082.html)
 <!-- feed end -->
 
 ### Onstream
