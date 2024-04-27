@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Apr 27 - ["I Wish More People Talked About It": Women Are Sharing Things They Didn’t Learn About Their Bodies Until It Happened To Them](https://www.yahoo.com/lifestyle/wish-more-people-talked-women-034602324.html)
 - Apr 27 - [Hamas says it received Israel's response to its ceasefire proposal](https://www.yahoo.com/news/hamas-says-received-israels-response-004004187.html)
 - Apr 26 - [Retired pro wrestler, failed congressional candidate indicted in Vegas murder case](https://www.yahoo.com/news/retired-pro-wrestler-failed-congressional-234629928.html)
-- Apr 26 - ["In About Four Months, You're Going To Be 45 Pounds, And You're Going To Be Dead": 11 Celebs Who Opened Up About The Consequences Of Extreme Dieting](https://www.yahoo.com/entertainment/11-celebs-opened-negative-effects-221603522.html)
+- Apr 26 - [Kristi Noem, a Trump VP contender, defends killing dog on family farm](https://www.yahoo.com/news/kristi-noem-trump-vp-contender-215117956.html)
 <!-- feed end -->
 
 ### Onstream
