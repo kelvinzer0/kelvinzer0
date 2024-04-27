@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Apr 27 - [Last letters of pioneering climber who died on Everest reveal dark side of mountaineering](https://www.yahoo.com/news/read-everest-scaling-mountaineer-george-183143032.html)
 - Apr 27 - [Harvey Weinstein hospitalized after his return to New York from upstate prison](https://www.yahoo.com/entertainment/lawyer-harvey-weinstein-hospitalized-return-183656957.html)
+- Apr 27 - [Man stabbed while walking along San Diego street; no arrests made](https://www.yahoo.com/news/man-stabbed-while-walking-along-173837685.html)
 - Apr 27 - [‘Suspend all Post Office executives involved in Horizon scandal’](https://www.yahoo.com/news/suspend-post-office-executives-involved-161408534.html)
 - Apr 27 - [Student accused of viciously beating aide in viral video blames school in new lawsuit: 'Ticking time bomb'](https://www.yahoo.com/news/student-accused-viciously-beating-aide-155948035.html)
-- Apr 27 - [Yemen's Houthi rebels claim downing US Reaper drone, release footage showing wreckage of aircraft](https://www.yahoo.com/news/yemens-houthi-rebels-claim-downing-152119563.html)
 <!-- feed end -->
 
 ### Onstream
