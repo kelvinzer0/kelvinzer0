@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - Apr 27 - [Yemen's Houthi rebels claim downing US Reaper drone, release footage showing wreckage of aircraft](https://www.yahoo.com/news/yemens-houthi-rebels-claim-downing-152119563.html)
 - Apr 27 - [An apology 47 years in the making: New Orleans ‘juvenile lifer’ who killed 3 men in 1977 is granted parole](https://www.yahoo.com/news/apology-47-years-making-orleans-145420368.html)
 - Apr 27 - [Reporter describes moment ex-assistant rejected Trump’s handshake in front of jurors](https://www.yahoo.com/news/reporter-describes-moment-ex-assistant-142846954.html)
+- Apr 27 - [Papa Dan's, a Palm Desert pizzeria destroyed in a fire, plans to reopen nearby](https://www.yahoo.com/news/papa-dans-palm-desert-pizzeria-130037241.html)
 - Apr 27 - [Fact Check: Rumor Says Biden Finished 76th Academically in a Class of 85 at Syracuse University College of Law in '68. Here Are the Facts](https://www.yahoo.com/news/fact-check-rumor-says-biden-130000833.html)
-- Apr 27 - [Opinion: I’m a Jewish student at Yale. Here’s what everyone is getting wrong about the protests](https://www.yahoo.com/news/opinion-m-jewish-student-yale-123026904.html)
 <!-- feed end -->
 
 ### Onstream
