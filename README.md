@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 26 - [Siren Blares as Large Tornado Moves Through Lincoln, Nebraska](https://www.yahoo.com/news/siren-blares-large-tornado-moves-223055753.html)
+- Apr 26 - [Retired pro wrestler, failed congressional candidate indicted in Vegas murder case](https://www.yahoo.com/news/retired-pro-wrestler-failed-congressional-234629928.html)
 - Apr 26 - [Kristi Noem, a Trump VP contender, defends killing dog on family farm](https://www.yahoo.com/news/kristi-noem-trump-vp-contender-215117956.html)
+- Apr 26 - [US Air Force awards $13 billion Doomsday plane contract to Sierra Nevada](https://finance.yahoo.com/news/us-air-force-awards-doomsday-214423052.html)
 - Apr 26 - [They say don't leave valuables in parked cars in San Francisco. Rep. Adam Schiff didn't listen](https://www.yahoo.com/news/dont-leave-valuables-parked-cars-213121352.html)
-- Apr 26 - [‘Trump f----ed you, idiot’, Stormy Daniels’ lawyer told tabloid](https://www.yahoo.com/news/trump-f-ed-idiot-stormy-204757957.html)
 - Apr 26 - [Remains of Man Who Vanished After Asking Brother to Pick Him Up from Work in 2018 Have Been Found](https://www.yahoo.com/news/remains-man-vanished-asking-brother-201215154.html)
 <!-- feed end -->
 
