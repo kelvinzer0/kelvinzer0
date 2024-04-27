@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 27 - [Last letters of pioneering climber who died on Everest reveal dark side of mountaineering](https://www.yahoo.com/news/read-everest-scaling-mountaineer-george-183143032.html)
 - Apr 27 - [Harvey Weinstein hospitalized after his return to New York from upstate prison](https://www.yahoo.com/entertainment/lawyer-harvey-weinstein-hospitalized-return-183656957.html)
-- Apr 27 - [An Ivy League sophomore says he found a $105,000 side hustle: selling coveted restaurant reservations](https://www.yahoo.com/tech/ivy-league-sophomore-says-found-164701283.html)
 - Apr 27 - [‘Suspend all Post Office executives involved in Horizon scandal’](https://www.yahoo.com/news/suspend-post-office-executives-involved-161408534.html)
+- Apr 27 - [Student accused of viciously beating aide in viral video blames school in new lawsuit: 'Ticking time bomb'](https://www.yahoo.com/news/student-accused-viciously-beating-aide-155948035.html)
 - Apr 27 - [Yemen's Houthi rebels claim downing US Reaper drone, release footage showing wreckage of aircraft](https://www.yahoo.com/news/yemens-houthi-rebels-claim-downing-152119563.html)
-- Apr 27 - [An apology 47 years in the making: New Orleans ‘juvenile lifer’ who killed 3 men in 1977 is granted parole](https://www.yahoo.com/news/apology-47-years-making-orleans-145420368.html)
 <!-- feed end -->
 
 ### Onstream
