@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 27 - [Reporter describes moment ex-assistant rejected Trump’s handshake in front of jurors](https://www.yahoo.com/news/reporter-describes-moment-ex-assistant-142846954.html)
 - Apr 27 - [Fact Check: Rumor Says Biden Finished 76th Academically in a Class of 85 at Syracuse University College of Law in '68. Here Are the Facts](https://www.yahoo.com/news/fact-check-rumor-says-biden-130000833.html)
 - Apr 27 - [Opinion: I’m a Jewish student at Yale. Here’s what everyone is getting wrong about the protests](https://www.yahoo.com/news/opinion-m-jewish-student-yale-123026904.html)
 - Apr 27 - [Shocker From Top Conservative Judge: Trump Likely To Skate Completely](https://www.yahoo.com/news/shocker-top-conservative-judge-trump-100000802.html)
 - Apr 27 - [U.S. intelligence believes Putin probably didn't order Navalny to be killed - WSJ](https://www.yahoo.com/news/u-intelligence-believes-putin-probably-084100285.html)
-- Apr 27 - [Former Russian sex spy says she was trained as a ‘master manipulator’](https://www.yahoo.com/news/former-russian-sex-spy-says-080030253.html)
 <!-- feed end -->
 
 ### Onstream
