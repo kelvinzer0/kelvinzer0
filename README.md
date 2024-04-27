@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 27 - [Opinion: I’m a Jewish student at Yale. Here’s what everyone is getting wrong about the protests](https://www.yahoo.com/news/opinion-m-jewish-student-yale-123026904.html)
 - Apr 27 - [Shocker From Top Conservative Judge: Trump Likely To Skate Completely](https://www.yahoo.com/news/shocker-top-conservative-judge-trump-100000802.html)
 - Apr 27 - [Former Russian sex spy says she was trained as a ‘master manipulator’](https://www.yahoo.com/news/former-russian-sex-spy-says-080030253.html)
 - Apr 27 - [Trump promised big plans to flip Black and Latino voters. Many Republicans are waiting to see them](https://www.yahoo.com/news/trump-promised-big-plans-flip-040531078.html)
 - Apr 27 - [21 Things Women Didn't Realize Their Body Was Capable Of Doing Until It Just... Happened](https://www.yahoo.com/lifestyle/wish-more-people-talked-women-034602324.html)
-- Apr 27 - [South Dakota Gov. Kristi Noem defends 'tough decisions' like killing own dog in her new book](https://www.yahoo.com/news/south-dakota-gov-kristi-noem-015548588.html)
 <!-- feed end -->
 
 ### Onstream
