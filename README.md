@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [Huge explosion in northern Gaza as Israeli bombardment continues](https://www.yahoo.com/news/huge-explosion-northern-gaza-israeli-114730833.html)
 - Apr 28 - [Donald Trump is running against Joe Biden. But he keeps bringing up another Democrat: Jimmy Carter](https://www.yahoo.com/news/donald-trump-running-against-joe-114155689.html)
 - Apr 28 - [Historic Johnson County village is falling apart. Will Panasonic plant save or kill it?](https://www.yahoo.com/news/historic-johnson-county-village-falling-103000657.html)
+- Apr 28 - [Ukrainian 'Grandpa' leads over-60s unit fighting Russian forces for free](https://www.yahoo.com/news/ukrainian-grandpa-leads-over-60s-094532567.html)
 - Apr 28 - [How one evangelical leader uses the Bible to expose the ‘False White Gospel’](https://www.yahoo.com/news/one-evangelical-leader-uses-bible-090025360.html)
 - Apr 28 - [Dubai plans to move its busy international airport to a $35 billion new facility within 10 years](https://finance.yahoo.com/news/dubai-plans-move-busy-international-084932406.html)
 <!-- feed end -->
