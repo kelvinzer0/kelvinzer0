@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 28 - [AstraZeneca admits for first time its Covid vaccine can cause rare side effect](https://www.yahoo.com/news/astrazeneca-admits-first-time-covid-180000780.html)
 - Apr 28 - [Tech Billionaire’s Missing Teen Found on Streets of San Francisco](https://www.yahoo.com/news/tech-billionaire-missing-teen-found-170746739.html)
+- Apr 28 - [Many Ukrainian Prisoners of War Show Signs of Trauma and Sexual Violence](https://www.yahoo.com/news/many-ukrainian-prisoners-war-show-152907161.html)
 - Apr 28 - [US buys 81 Soviet-era combat aircraft from Russia's ally costing on average less than $20,000 each, report says](https://www.yahoo.com/news/us-buys-81-soviet-era-145127753.html)
 - Apr 28 - [Have you heard the one about Trump? Biden tries humor on the campaign trail](https://www.yahoo.com/news/heard-one-trump-biden-tries-140304006.html)
-- Apr 28 - [19 Signs From The Past Week That Made Me Laugh So Hard, I Popped A Muscle In My Back And Shed A Single Tear](https://www.yahoo.com/entertainment/19-signs-past-week-made-121602364.html)
-- Apr 28 - [Donald Trump is running against Joe Biden. But he keeps bringing up another Democrat: Jimmy Carter](https://www.yahoo.com/news/donald-trump-running-against-joe-114155689.html)
 <!-- feed end -->
 
 ### Onstream
