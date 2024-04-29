@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Trump and DeSantis meet to bury the hatchet](https://www.yahoo.com/news/trump-desantis-meet-bury-hatchet-144011107.html)
-- Apr 29 - [Fed rate cut uncertainty intensifies ahead of FOMC meeting](https://finance.yahoo.com/video/fed-rate-cut-uncertainty-intensifies-142835484.html)
+- Apr 29 - [Supporters rally at courthouse as Minnesota State trooper appears for murder hearing](https://www.yahoo.com/news/hundreds-supporters-rally-courthouse-minnesota-144400314.html)
+- Apr 29 - [Less alcohol, or none at all, is one path to better health](https://www.yahoo.com/lifestyle/less-alcohol-none-one-path-143538066.html)
+- Apr 29 - [Behind enemy lines, Ukraine is busy setting Russia ablaze](https://www.yahoo.com/news/behind-enemy-lines-ukraine-busy-143349633.html)
 - Apr 29 - [Trump is reportedly annoyed by Kari Lake's frequent Mar-a-Lago jaunts](https://www.yahoo.com/news/trump-reportedly-annoyed-kari-lakes-141029125.html)
-- Apr 29 - [California is joining with a New Jersey company to buy a generic opioid overdose reversal drug](https://www.yahoo.com/news/california-joining-jersey-company-buy-140108799.html)
-- Apr 29 - [An Engineer Says He’s Found a Way to Overcome Earth’s Gravity](https://www.yahoo.com/tech/engineer-says-found-way-overcome-140000230.html)
+- Apr 29 - [Officials warning of hotter temperatures this summer after record-breaking 2023](https://www.yahoo.com/news/officials-warning-hotter-temperatures-summer-141020936.html)
 <!-- feed end -->
 
 ### Onstream
