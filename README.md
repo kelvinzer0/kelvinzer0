@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [Immigrant battling cancer among trio who won $1.326 billion Powerball ticket: Oregon Lottery](https://finance.yahoo.com/news/oregon-lottery-announces-3-winners-202238829.html)
+- Apr 29 - [Opinion: With this serious misstep, prosecutors might be handing Trump a get-out-of-jail-free card](https://www.yahoo.com/news/opinion-harvey-weinstein-prosecutors-made-184146018.html)
 - Apr 29 - [Several law enforcement officers shot while trying to serve warrant in North Carolina, police say](https://www.yahoo.com/news/several-law-enforcement-officers-shot-203218019.html)
-- Apr 29 - [Family of a Black teen who was shot after ringing the wrong doorbell files lawsuit against homeowner](https://www.yahoo.com/news/family-black-teen-shot-ringing-201603032.html)
 - Apr 29 - [Rep. Jim Jordan pressed on 'congressional investigations that go nowhere'](https://www.yahoo.com/news/rep-jim-jordan-pressed-congressional-194900096.html)
 - Apr 29 - [Popular metro Atlanta Waffle House abruptly shuts its doors for good Monday](https://www.yahoo.com/news/popular-metro-atlanta-waffle-house-194555154.html)
-- Apr 29 - [French actor Gérard Depardieu to face trial over sexual assault allegations](https://www.yahoo.com/entertainment/french-actor-g-rard-depardieu-104619476.html)
 <!-- feed end -->
 
 ### Onstream
