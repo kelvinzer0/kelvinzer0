@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - Apr 28 - [US buys 81 Soviet-era combat aircraft from Russia's ally costing on average less than $20,000 each, report says](https://www.yahoo.com/news/us-buys-81-soviet-era-145127753.html)
 - Apr 28 - [Exclusive-China firms go 'underground' on Russia payments as banks pull back](https://finance.yahoo.com/news/exclusive-china-firms-underground-russia-232225267.html)
 - Apr 28 - [Newsom gets hilarious reality check after turning to public for new state coin design](https://www.yahoo.com/news/newsom-gets-hilarious-reality-check-231232766.html)
-- Apr 28 - [Runner dies after receiving emergency treatment at Nashville race, organizers say](https://www.yahoo.com/news/runner-dies-receiving-emergency-treatment-205045562.html)
+- Apr 28 - [Texans WR Tank Dell sustains 'minor injury' in mass shooting, was reportedly 1 of 10 shot at Florida nightclub](https://sports.yahoo.com/texans-wr-tank-dell-sustains-minor-injury-in-mass-shooting-was-reportedly-1-of-10-shot-at-florida-nightclub-213058207.html)
 <!-- feed end -->
 
 ### Onstream
