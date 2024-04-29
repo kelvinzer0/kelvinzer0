@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 28 - [2 dead, 1 hurt after 350,000-pound load detaches from 18-wheeler and pins vehicle in Texas](https://www.yahoo.com/news/2-dead-1-hurt-350-200443497.html)
-- Apr 28 - [AstraZeneca admits for first time in court documents its Covid vaccine can cause rare side effect](https://www.yahoo.com/news/astrazeneca-admits-first-time-covid-180000780.html)
-- Apr 28 - [Tech Billionaire’s Missing Teen Found on Streets of San Francisco](https://www.yahoo.com/news/tech-billionaire-missing-teen-found-170746739.html)
-- Apr 28 - [Many Ukrainian Prisoners of War Show Signs of Trauma and Sexual Violence](https://www.yahoo.com/news/many-ukrainian-prisoners-war-show-152907161.html)
 - Apr 28 - [US buys 81 Soviet-era combat aircraft from Russia's ally costing on average less than $20,000 each, report says](https://www.yahoo.com/news/us-buys-81-soviet-era-145127753.html)
+- Apr 28 - [Exclusive-China firms go 'underground' on Russia payments as banks pull back](https://finance.yahoo.com/news/exclusive-china-firms-underground-russia-232225267.html)
+- Apr 28 - [2 dead, 1 hurt after 350,000-pound load detaches from 18-wheeler and pins vehicle in Texas](https://www.yahoo.com/news/2-dead-1-hurt-350-200443497.html)
+- Apr 28 - [Racer dies during St. Jude Rock ‘n’ Roll Running Series in Nashville](https://www.yahoo.com/news/racer-dies-during-st-jude-191912498.html)
+- Apr 28 - [AstraZeneca admits for first time in court documents its Covid vaccine can cause rare side effect](https://www.yahoo.com/news/astrazeneca-admits-first-time-covid-180000780.html)
 <!-- feed end -->
 
 ### Onstream
