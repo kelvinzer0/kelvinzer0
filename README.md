@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [Apple stock rises on upgrade from Bernstein](https://finance.yahoo.com/video/apple-stock-rises-upgrade-bernstein-134748283.html)
+- Apr 29 - [Opinion: My family lost the Civil War. Last year they finally lost this symbol of power](https://www.yahoo.com/news/opinion-relative-fought-confederacy-why-105900983.html)
+- Apr 29 - [US buys 81 Soviet-era combat aircraft from Russia's ally costing on average less than $20,000 each, report says](https://www.yahoo.com/news/us-buys-81-soviet-era-145127753.html)
 - Apr 29 - [Father of Olympic champion Ingebrigtsen charged with abusing one of his other children, lawyer says](https://www.yahoo.com/news/father-olympic-champion-ingebrigtsen-charged-112253746.html)
-- Apr 29 - [China's Xi to visit France, Serbia, Hungary as Beijing appears to seek a larger role in Ukraine](https://www.yahoo.com/news/chinas-xi-visit-france-serbia-110314938.html)
-- Apr 29 - [Election Predictor With Near-Perfect Record Gives Major Clue On His 2024 Pick](https://www.yahoo.com/news/election-predictor-near-perfect-record-101431456.html)
-- Apr 29 - [Israeli officials concerned about possible ICC arrest warrants as pressure mounts over war in Gaza](https://www.yahoo.com/news/israeli-officials-concerned-possible-icc-090617636.html)
-- Apr 29 - [China hints at retaliation after Biden signs Taiwan, TikTok legislation](https://www.yahoo.com/news/china-hints-retaliation-biden-signs-084902530.html)
+- Apr 29 - [Waffle House brawl near Ohio State involving 20 leaves one dead](https://www.yahoo.com/news/waffle-house-brawl-near-ohio-104034209.html)
 <!-- feed end -->
 
 ### Onstream
