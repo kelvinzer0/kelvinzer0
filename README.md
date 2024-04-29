@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [Election Predictor With Near-Perfect Record Gives Major Clue On His 2024 Pick](https://www.yahoo.com/news/election-predictor-near-perfect-record-101431456.html)
 - Apr 29 - [French media: Police summon actor Gérard Depardieu for questioning about sexual assault allegations](https://www.yahoo.com/entertainment/french-media-police-summon-actor-094604445.html)
 - Apr 29 - [Israeli officials concerned about possible ICC arrest warrants as pressure mounts over war in Gaza](https://www.yahoo.com/news/israeli-officials-concerned-possible-icc-090617636.html)
 - Apr 29 - [Gangs forced out Haiti’s government. This FBI ‘Most Wanted’ gang leader claims they’re liberating the country](https://www.yahoo.com/news/gangs-forced-haiti-government-fbi-090026920.html)
-- Apr 29 - [Hillary Clinton’s 2021 Post About Dogs Comes Back To Haunt Kristi Noem](https://www.yahoo.com/news/hillary-clinton-2021-post-dogs-074502775.html)
-- Apr 29 - ['MAGA Hero To Zero': MSNBC Host Predicts Marjorie Taylor Greene's 'Humiliating' Fall](https://www.yahoo.com/news/maga-hero-zero-msnbc-host-073207933.html)
+- Apr 29 - [China hints at retaliation after Biden signs Taiwan, TikTok legislation](https://www.yahoo.com/news/china-hints-retaliation-biden-signs-084902530.html)
 <!-- feed end -->
 
 ### Onstream
