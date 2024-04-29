@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Apple stock rises on upgrade from Bernstein](https://finance.yahoo.com/video/apple-stock-rises-upgrade-bernstein-134748283.html)
-- Apr 29 - [Opinion: My family lost the Civil War. Last year they finally lost this symbol of power](https://www.yahoo.com/news/opinion-relative-fought-confederacy-why-105900983.html)
-- Apr 29 - [US buys 81 Soviet-era combat aircraft from Russia's ally costing on average less than $20,000 each, report says](https://www.yahoo.com/news/us-buys-81-soviet-era-145127753.html)
-- Apr 29 - [Father of Olympic champion Ingebrigtsen charged with abusing one of his other children, lawyer says](https://www.yahoo.com/news/father-olympic-champion-ingebrigtsen-charged-112253746.html)
-- Apr 29 - [Waffle House brawl near Ohio State involving 20 leaves one dead](https://www.yahoo.com/news/waffle-house-brawl-near-ohio-104034209.html)
+- Apr 29 - [Trump and DeSantis meet to bury the hatchet](https://www.yahoo.com/news/trump-desantis-meet-bury-hatchet-144011107.html)
+- Apr 29 - [Fed rate cut uncertainty intensifies ahead of FOMC meeting](https://finance.yahoo.com/video/fed-rate-cut-uncertainty-intensifies-142835484.html)
+- Apr 29 - [Trump is reportedly annoyed by Kari Lake's frequent Mar-a-Lago jaunts](https://www.yahoo.com/news/trump-reportedly-annoyed-kari-lakes-141029125.html)
+- Apr 29 - [California is joining with a New Jersey company to buy a generic opioid overdose reversal drug](https://www.yahoo.com/news/california-joining-jersey-company-buy-140108799.html)
+- Apr 29 - [An Engineer Says He’s Found a Way to Overcome Earth’s Gravity](https://www.yahoo.com/tech/engineer-says-found-way-overcome-140000230.html)
 <!-- feed end -->
 
 ### Onstream
