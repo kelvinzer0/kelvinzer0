@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [HUNDREDS ARRESTED: Campuses CRACKDOWN on Protesters as Columbia Gives ULTIMATUM](https://www.yahoo.com/news/hundreds-arrested-campuses-crackdown-protesters-181700760.html)
+- Apr 29 - [US found five Israeli military units committed gross human rights violations before Gaza war](https://www.yahoo.com/news/us-found-five-israeli-military-181355641.html)
+- Apr 29 - [Autopsy Sheds Light on Suzanne Morphew’s Mysterious Death](https://www.yahoo.com/news/autopsy-sheds-light-suzanne-morphew-180012975.html)
 - Apr 29 - [Facing weight loss drug side effects? GNC wants to help](https://finance.yahoo.com/video/facing-weight-loss-drug-side-175603625.html)
-- Apr 29 - ['Vampire facials' were linked to cases of HIV. Here's what to know about the beauty treatment](https://www.yahoo.com/news/cdc-vampire-facials-unlicensed-spa-164601799.html)
-- Apr 29 - [UGA students, staff arrested after set up of encampment on campus](https://www.yahoo.com/news/uga-students-staff-arrested-set-145826047.html)
-- Apr 29 - [Hunter Biden demands that Fox News remove ‘intimate’ images from its platforms](https://www.yahoo.com/news/hunter-biden-demands-fox-news-160134096.html)
-- Apr 29 - [A second new nuclear reactor is completed Georgia. The carbon-free power comes at a high price](https://www.yahoo.com/news/second-nuclear-reactor-completed-georgia-155053569.html)
+- Apr 29 - ['Vampire facials' were linked to cases of HIV. Here's what to know about the beauty treatment](https://www.yahoo.com/lifestyle/cdc-vampire-facials-unlicensed-spa-164601799.html)
 <!-- feed end -->
 
 ### Onstream
