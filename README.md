@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [Supporters rally at courthouse as Minnesota State trooper appears for murder hearing](https://www.yahoo.com/news/hundreds-supporters-rally-courthouse-minnesota-144400314.html)
-- Apr 29 - [Less alcohol, or none at all, is one path to better health](https://www.yahoo.com/lifestyle/less-alcohol-none-one-path-143538066.html)
-- Apr 29 - [Behind enemy lines, Ukraine is busy setting Russia ablaze](https://www.yahoo.com/news/behind-enemy-lines-ukraine-busy-143349633.html)
-- Apr 29 - [Trump is reportedly annoyed by Kari Lake's frequent Mar-a-Lago jaunts](https://www.yahoo.com/news/trump-reportedly-annoyed-kari-lakes-141029125.html)
-- Apr 29 - [Officials warning of hotter temperatures this summer after record-breaking 2023](https://www.yahoo.com/news/officials-warning-hotter-temperatures-summer-141020936.html)
+- Apr 29 - [CDC: 'Vampire facials' at an unlicensed spa in New Mexico led to HIV infections in three women](https://www.yahoo.com/news/cdc-vampire-facials-unlicensed-spa-164601799.html)
+- Apr 29 - [Consumer is 'stretched' under current rates: NerdWallet CEO](https://finance.yahoo.com/video/consumer-stretched-under-current-rates-161822691.html)
+- Apr 29 - [Hunter Biden demands that Fox News remove ‘intimate’ images from its platforms](https://www.yahoo.com/news/hunter-biden-demands-fox-news-160134096.html)
+- Apr 29 - [A second new nuclear reactor is completed Georgia. The carbon-free power comes at a high price](https://www.yahoo.com/news/second-nuclear-reactor-completed-georgia-155053569.html)
+- Apr 29 - [Chaos Erupts At Busch Gardens As A Violent Brawl Breaks Out In Line](https://www.yahoo.com/news/chaos-erupts-busch-gardens-violent-144518408.html)
 <!-- feed end -->
 
 ### Onstream
