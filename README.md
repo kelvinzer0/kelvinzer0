@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [HUNDREDS ARRESTED: Campuses CRACKDOWN on Protesters as Columbia Gives ULTIMATUM](https://www.yahoo.com/news/hundreds-arrested-campuses-crackdown-protesters-181700760.html)
-- Apr 29 - [US found five Israeli military units committed gross human rights violations before Gaza war](https://www.yahoo.com/news/us-found-five-israeli-military-181355641.html)
-- Apr 29 - [Autopsy Sheds Light on Suzanne Morphew’s Mysterious Death](https://www.yahoo.com/news/autopsy-sheds-light-suzanne-morphew-180012975.html)
-- Apr 29 - [Facing weight loss drug side effects? GNC wants to help](https://finance.yahoo.com/video/facing-weight-loss-drug-side-175603625.html)
-- Apr 29 - ['Vampire facials' were linked to cases of HIV. Here's what to know about the beauty treatment](https://www.yahoo.com/lifestyle/cdc-vampire-facials-unlicensed-spa-164601799.html)
+- Apr 29 - [A Colorado woman disappeared in 2020. Her death was just ruled a homicide](https://www.yahoo.com/news/colorado-woman-disappeared-2020-her-200339185.html)
+- Apr 29 - [Dueling crowds rally at hearing for Minnesota trooper charged with murder](https://www.yahoo.com/news/dueling-crowds-rally-hearing-minnesota-195218317.html)
+- Apr 29 - [French actor Gérard Depardieu to face trial over sexual assault allegations](https://www.yahoo.com/entertainment/french-actor-g-rard-depardieu-104619476.html)
+- Apr 29 - [Study says California's 2023 snowy rescue from megadrought was a freak event. Don't get used to it](https://www.yahoo.com/news/study-says-californias-2023-snowy-191804838.html)
+- Apr 29 - ['Midtown Jane Doe,' whose remains were found in cement of NYC bar basement 20 years ago, finally ID'd](https://www.yahoo.com/news/midtown-jane-doe-whose-remains-191659992.html)
 <!-- feed end -->
 
 ### Onstream
