@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [John Dean Says 1 Thing ‘Keeping Me On The Edge Of My Seat' In Donald Trump Trial](https://www.yahoo.com/news/john-dean-says-1-thing-055558530.html)
+- Apr 29 - [A Fed meeting, jobs report, and more Big Tech earnings: What to know this week](https://finance.yahoo.com/news/a-fed-meeting-jobs-report-and-more-big-tech-earnings-what-to-know-this-week-113643323.html)
+- Apr 29 - [Hillary Clinton’s 2021 Post About Dogs Comes Back To Haunt Kristi Noem](https://www.yahoo.com/news/hillary-clinton-2021-post-dogs-074502775.html)
+- Apr 29 - ['MAGA Hero To Zero': MSNBC Host Predicts Marjorie Taylor Greene's 'Humiliating' Fall](https://www.yahoo.com/news/maga-hero-zero-msnbc-host-073207933.html)
 - Apr 29 - [Hawaii is known for its macadamia nuts. Lawmakers want to keep it that way](https://www.yahoo.com/news/hawaii-known-macadamia-nuts-lawmakers-053302787.html)
-- Apr 29 - [This congresswoman was born and raised in Ukraine. She just voted against aid for her homeland](https://www.yahoo.com/news/congresswoman-born-raised-ukraine-she-041129407.html)
-- Apr 28 - [US buys 81 Soviet-era combat aircraft from Russia's ally costing on average less than $20,000 each, report says](https://www.yahoo.com/news/us-buys-81-soviet-era-145127753.html)
-- Apr 28 - [Exclusive-China firms go 'underground' on Russia payments as banks pull back](https://finance.yahoo.com/news/exclusive-china-firms-underground-russia-232225267.html)
+- Apr 29 - [Tourists continue to visit Hawaii’s Haiku Stairs even as it gets removed for overtourism](https://www.yahoo.com/lifestyle/tourists-continue-visit-hawaii-haiku-044227829.html)
 <!-- feed end -->
 
 ### Onstream
