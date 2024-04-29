@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [A Colorado woman disappeared in 2020. Her death was just ruled a homicide](https://www.yahoo.com/news/colorado-woman-disappeared-2020-her-200339185.html)
-- Apr 29 - [Dueling crowds rally at hearing for Minnesota trooper charged with murder](https://www.yahoo.com/news/dueling-crowds-rally-hearing-minnesota-195218317.html)
+- Apr 29 - [Several law enforcement officers shot while trying to serve warrant in North Carolina, police say](https://www.yahoo.com/news/several-law-enforcement-officers-shot-203218019.html)
+- Apr 29 - [Family of a Black teen who was shot after ringing the wrong doorbell files lawsuit against homeowner](https://www.yahoo.com/news/family-black-teen-shot-ringing-201603032.html)
+- Apr 29 - [Rep. Jim Jordan pressed on 'congressional investigations that go nowhere'](https://www.yahoo.com/news/rep-jim-jordan-pressed-congressional-194900096.html)
+- Apr 29 - [Popular metro Atlanta Waffle House abruptly shuts its doors for good Monday](https://www.yahoo.com/news/popular-metro-atlanta-waffle-house-194555154.html)
 - Apr 29 - [French actor Gérard Depardieu to face trial over sexual assault allegations](https://www.yahoo.com/entertainment/french-actor-g-rard-depardieu-104619476.html)
-- Apr 29 - [Study says California's 2023 snowy rescue from megadrought was a freak event. Don't get used to it](https://www.yahoo.com/news/study-says-californias-2023-snowy-191804838.html)
-- Apr 29 - ['Midtown Jane Doe,' whose remains were found in cement of NYC bar basement 20 years ago, finally ID'd](https://www.yahoo.com/news/midtown-jane-doe-whose-remains-191659992.html)
 <!-- feed end -->
 
 ### Onstream
