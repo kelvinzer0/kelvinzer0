@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 29 - [CDC: 'Vampire facials' at an unlicensed spa in New Mexico led to HIV infections in three women](https://www.yahoo.com/news/cdc-vampire-facials-unlicensed-spa-164601799.html)
-- Apr 29 - [Consumer is 'stretched' under current rates: NerdWallet CEO](https://finance.yahoo.com/video/consumer-stretched-under-current-rates-161822691.html)
+- Apr 29 - [Facing weight loss drug side effects? GNC wants to help](https://finance.yahoo.com/video/facing-weight-loss-drug-side-175603625.html)
+- Apr 29 - ['Vampire facials' were linked to cases of HIV. Here's what to know about the beauty treatment](https://www.yahoo.com/news/cdc-vampire-facials-unlicensed-spa-164601799.html)
+- Apr 29 - [UGA students, staff arrested after set up of encampment on campus](https://www.yahoo.com/news/uga-students-staff-arrested-set-145826047.html)
 - Apr 29 - [Hunter Biden demands that Fox News remove ‘intimate’ images from its platforms](https://www.yahoo.com/news/hunter-biden-demands-fox-news-160134096.html)
 - Apr 29 - [A second new nuclear reactor is completed Georgia. The carbon-free power comes at a high price](https://www.yahoo.com/news/second-nuclear-reactor-completed-georgia-155053569.html)
-- Apr 29 - [Chaos Erupts At Busch Gardens As A Violent Brawl Breaks Out In Line](https://www.yahoo.com/news/chaos-erupts-busch-gardens-violent-144518408.html)
 <!-- feed end -->
 
 ### Onstream
