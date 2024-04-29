@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [This congresswoman was born and raised in Ukraine. She just voted against aid for her homeland](https://www.yahoo.com/news/congresswoman-born-raised-ukraine-she-041129407.html)
 - Apr 28 - [US buys 81 Soviet-era combat aircraft from Russia's ally costing on average less than $20,000 each, report says](https://www.yahoo.com/news/us-buys-81-soviet-era-145127753.html)
 - Apr 28 - [Exclusive-China firms go 'underground' on Russia payments as banks pull back](https://finance.yahoo.com/news/exclusive-china-firms-underground-russia-232225267.html)
-- Apr 28 - [Texans WR Tank Dell sustains 'minor injury' in mass shooting, was reportedly 1 of 10 shot at Florida nightclub](https://sports.yahoo.com/texans-wr-tank-dell-sustains-minor-injury-in-mass-shooting-was-reportedly-1-of-10-shot-at-florida-nightclub-213058207.html)
-- Apr 28 - [CDC says it's identified 1st documented cases of HIV transmitted through cosmetic needles](https://www.yahoo.com/news/cdc-says-identified-1st-documented-200813516.html)
-- Apr 28 - [2 dead, 1 hurt after 350,000-pound load detaches from 18-wheeler and pins vehicle in Texas](https://www.yahoo.com/news/2-dead-1-hurt-350-200443497.html)
+- Apr 28 - [Newsom gets hilarious reality check after turning to public for new state coin design](https://www.yahoo.com/news/newsom-gets-hilarious-reality-check-231232766.html)
+- Apr 28 - [Runner dies after receiving emergency treatment at Nashville race, organizers say](https://www.yahoo.com/news/runner-dies-receiving-emergency-treatment-205045562.html)
 <!-- feed end -->
 
 ### Onstream
