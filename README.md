@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 28 - [US buys 81 Soviet-era combat aircraft from Russia's ally costing on average less than $20,000 each, report says](https://www.yahoo.com/news/us-buys-81-soviet-era-145127753.html)
-- Apr 28 - [Exclusive-China firms go 'underground' on Russia payments as banks pull back](https://finance.yahoo.com/news/exclusive-china-firms-underground-russia-232225267.html)
 - Apr 28 - [Runner dies after receiving emergency treatment at Nashville race, organizers say](https://www.yahoo.com/news/runner-dies-receiving-emergency-treatment-205045562.html)
 - Apr 28 - [CDC says it's identified 1st documented cases of HIV transmitted through cosmetic needles](https://www.yahoo.com/news/cdc-says-identified-1st-documented-200813516.html)
 - Apr 28 - [2 dead, 1 hurt after 350,000-pound load detaches from 18-wheeler and pins vehicle in Texas](https://www.yahoo.com/news/2-dead-1-hurt-350-200443497.html)
+- Apr 28 - [Racer dies during St. Jude Rock ‘n’ Roll Running Series in Nashville](https://www.yahoo.com/news/racer-dies-during-st-jude-191912498.html)
 <!-- feed end -->
 
 ### Onstream
