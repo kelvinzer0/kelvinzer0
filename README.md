@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [King Charles visits cancer center, returns to public duties](https://www.yahoo.com/news/king-charles-visits-cancer-center-142225504.html)
+- Apr 30 - [Trump won't rule out election violence if he loses to Biden in November: 'It depends'](https://www.yahoo.com/news/trump-wont-rule-election-violence-151803526.html)
+- Apr 30 - [Donald Trump Is Pissed At His Trial Lawyer, Maggie Haberman Reports](https://www.yahoo.com/news/donald-trump-pissed-trial-lawyer-151108124.html)
+- Apr 30 - [Massive drone strike suggests Ukraine is going after Russia's devastating glide bombs](https://www.yahoo.com/news/massive-drone-strike-suggests-ukraine-150746150.html)
+- Apr 30 - [Dead bodies are left behind on Mount Everest, so why are hundreds of climbers heading into the ‘death zone’ this spring?](https://www.yahoo.com/lifestyle/dead-bodies-left-behind-mount-103935944.html)
 - Apr 30 - [Skeletons with missing limbs found under Nazi commander Goering’s bunker](https://www.yahoo.com/news/skeletons-missing-limbs-found-under-134423491.html)
-- Apr 30 - [Watch: China attacks Filipino ship with our reporter on board – here’s what happened next](https://www.yahoo.com/news/onboard-filipino-coast-guard-ship-072618015.html)
-- Apr 30 - [Gisele Bundchen Cries After Police Officer Pulls Her Over](https://www.yahoo.com/news/gisele-bundchen-cries-police-officer-123859280.html)
-- Apr 30 - [A woman hid her tattoos to get her corporate job, and thinks others should too](https://www.yahoo.com/entertainment/woman-hid-her-tattoos-her-120626668.html)
 <!-- feed end -->
 
 ### Onstream
