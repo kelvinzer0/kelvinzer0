@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [Musk disbands Tesla EV charging team, leaving customers in the dark](https://finance.yahoo.com/news/musk-disbands-tesla-ev-charging-202301433.html)
+- Apr 30 - [Trump lashes out after being held in contempt of court](https://www.yahoo.com/news/trump-lashes-being-held-contempt-210145462.html)
+- Apr 30 - [ABC News Kicks GMA Weatherman to the Curb Over Complaints](https://www.yahoo.com/entertainment/abc-news-kicks-gma-weatherman-205231009.html)
+- Apr 30 - [2-year-old Arizona boy dies after bounce house goes airborne in strong gust of wind](https://www.yahoo.com/news/2-old-arizona-boy-dies-204713314.html)
 - Apr 30 - [Father of former youth detention center resident testifies against him in New Hampshire trial](https://www.yahoo.com/news/father-former-youth-detention-center-201027087.html)
 - Apr 30 - [Five killed in Russian missile attack as Ukraine’s ‘Harry Potter castle’ goes up in flames](https://www.yahoo.com/news/five-killed-russian-missile-attack-195300897.html)
-- Apr 30 - [Bill Romanowski, wife file for bankruptcy amid DOJ lawsuit over unpaid taxes](https://finance.yahoo.com/news/bill-romanowski-wife-file-bankruptcy-185352478.html)
-- Apr 30 - [Squatters who killed woman over inherited home bought diamond ring, PS5 on interstate shopping spree: docs](https://www.yahoo.com/news/squatters-killed-woman-over-inherited-183544980.html)
 <!-- feed end -->
 
 ### Onstream
