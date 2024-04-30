@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Apr 30 - [OOPS! Kayleigh McEnany Gets Quick Math Lesson After Awkward Trump Blunder](https://www.yahoo.com/news/oops-kayleigh-mcenany-gets-quick-072954696.html)
-- Apr 30 - [Professor who correctly predicts elections says Biden can win despite latest polls](https://www.yahoo.com/news/professor-correctly-predicts-elections-says-042714171.html)
 - Apr 30 - [A massive Powerball win draws attention to a little-known immigrant culture in the US](https://www.yahoo.com/news/massive-powerball-win-draws-attention-041315940.html)
+- Apr 30 - [New York special election will fill vacancy in Congress created by resignation of Democrat Higgins](https://www.yahoo.com/news/york-special-election-fill-vacancy-040705239.html)
 - Apr 30 - [Philippines accuses China of damaging its vessel in disputed South China Sea shoal](https://www.yahoo.com/news/chinas-coast-guard-expels-philippine-023536887.html)
 - Apr 30 - [Ashley Judd speaks out on the right of women to control their bodies and be free from male violence](https://www.yahoo.com/news/ashley-judd-speaks-women-control-020159403.html)
 <!-- feed end -->
