@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [Opposing Demonstrators Face Off Near Columbia University Gates](https://www.yahoo.com/news/opposing-demonstrators-face-off-near-193948425.html)
+- Apr 30 - [Musk disbands Tesla EV charging team, leaving customers in the dark](https://finance.yahoo.com/news/musk-disbands-tesla-ev-charging-202301433.html)
+- Apr 30 - [Father of former youth detention center resident testifies against him in New Hampshire trial](https://www.yahoo.com/news/father-former-youth-detention-center-201027087.html)
+- Apr 30 - [Five killed in Russian missile attack as Ukraine’s ‘Harry Potter castle’ goes up in flames](https://www.yahoo.com/news/five-killed-russian-missile-attack-195300897.html)
 - Apr 30 - [Bill Romanowski, wife file for bankruptcy amid DOJ lawsuit over unpaid taxes](https://finance.yahoo.com/news/bill-romanowski-wife-file-bankruptcy-185352478.html)
-- Apr 30 - [Social Media Reacts To Trump Being Allowed To Attend Barron's Graduation](https://www.yahoo.com/news/social-media-reacts-trump-being-182917935.html)
-- Apr 30 - [Fact Check: Rumor Says Meghan Markle Made a 'Heartbreaking' Announcement, Leaving British Royal Family 'Furious.' Here's the Truth](https://www.yahoo.com/entertainment/fact-check-rumor-says-meghan-180900039.html)
-- Apr 30 - [Police seek public’s help in identifying assault suspect in downtown Boston incident](https://www.yahoo.com/news/police-seek-public-help-identifying-175411208.html)
+- Apr 30 - [Squatters who killed woman over inherited home bought diamond ring, PS5 on interstate shopping spree: docs](https://www.yahoo.com/news/squatters-killed-woman-over-inherited-183544980.html)
 <!-- feed end -->
 
 ### Onstream
