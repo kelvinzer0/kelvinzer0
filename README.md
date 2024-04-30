@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [Trump won't rule out election violence if he loses to Biden in November: 'It depends'](https://www.yahoo.com/news/trump-wont-rule-election-violence-151803526.html)
+- Apr 30 - [Wisconsin high school football coach unable to get chemo due to shortage dies at 60](https://www.yahoo.com/news/wisconsin-high-school-football-coach-160621874.html)
+- Apr 30 - [New details from officials on shooting that killed 4 officers in Charlotte](https://www.yahoo.com/news/details-officials-shooting-killed-4-160015003.html)
+- Apr 30 - [Trump Is Allowed to Attend Barron’s High School Graduation After All](https://www.yahoo.com/news/trump-allowed-attend-barron-high-151612913.html)
 - Apr 30 - [Donald Trump Is Pissed At His Trial Lawyer, Maggie Haberman Reports](https://www.yahoo.com/news/donald-trump-pissed-trial-lawyer-151108124.html)
-- Apr 30 - [Massive drone strike suggests Ukraine is going after Russia's devastating glide bombs](https://www.yahoo.com/news/massive-drone-strike-suggests-ukraine-150746150.html)
-- Apr 30 - [Dead bodies are left behind on Mount Everest, so why are hundreds of climbers heading into the ‘death zone’ this spring?](https://www.yahoo.com/lifestyle/dead-bodies-left-behind-mount-103935944.html)
-- Apr 30 - [Skeletons with missing limbs found under Nazi commander Goering’s bunker](https://www.yahoo.com/news/skeletons-missing-limbs-found-under-134423491.html)
+- Apr 30 - [Trump Reveals Exactly Who He’d Go After in a Second Term](https://www.yahoo.com/news/trump-reveals-exactly-d-second-145820751.html)
 <!-- feed end -->
 
 ### Onstream
