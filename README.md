@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [Man stabs police officer from behind in Jerusalem’s Old City](https://www.yahoo.com/news/man-stabs-police-officer-behind-133254321.html)
+- Apr 30 - [King Charles visits cancer center, returns to public duties](https://www.yahoo.com/news/king-charles-visits-cancer-center-142225504.html)
+- Apr 30 - [Skeletons with missing limbs found under Nazi commander Goering’s bunker](https://www.yahoo.com/news/skeletons-missing-limbs-found-under-134423491.html)
 - Apr 30 - [Watch: China attacks Filipino ship with our reporter on board – here’s what happened next](https://www.yahoo.com/news/onboard-filipino-coast-guard-ship-072618015.html)
+- Apr 30 - [Gisele Bundchen Cries After Police Officer Pulls Her Over](https://www.yahoo.com/news/gisele-bundchen-cries-police-officer-123859280.html)
 - Apr 30 - [A woman hid her tattoos to get her corporate job, and thinks others should too](https://www.yahoo.com/entertainment/woman-hid-her-tattoos-her-120626668.html)
-- Apr 30 - [The CHP was sent into this California city to crack down on crime. Here is what happened](https://www.yahoo.com/news/chp-sent-california-city-crack-120054171.html)
-- Apr 30 - [After 96 Years, Archaeologists Finally Found the Missing Part of a Legendary Statue](https://www.yahoo.com/news/96-years-archaeologists-finally-found-120000547.html)
 <!-- feed end -->
 
 ### Onstream
