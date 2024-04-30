@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 30 - [25 killed in highway accident in northern Peru](https://www.yahoo.com/news/25-killed-highway-accident-northern-025709237.html)
+- Apr 30 - [4 law officers serving warrant are killed, 4 wounded in shootout at North Carolina home, police say](https://www.yahoo.com/news/4-law-officers-serving-warrant-022932180.html)
 - Apr 30 - [Fact Check: Angelina Jolie Was Purported To Have Said 'Arabs and Muslims Are Not Terrorists' and 'the World Should Unite Against Israel.' Here's the Truth](https://www.yahoo.com/entertainment/fact-check-angelina-jolie-purported-001500228.html)
 - Apr 29 - [GOP leaders still can't overcome the Kansas governor's veto to enact big tax cuts](https://www.yahoo.com/news/gop-leaders-still-cant-overcome-235340565.html)
-- Apr 29 - [Multiple officers killed while serving warrant in North Carolina](https://www.yahoo.com/news/multiple-officers-killed-while-serving-234448113.html)
-- Apr 29 - [Secret document says Iran security forces molested and killed teen protester](https://www.yahoo.com/news/secret-document-says-iran-security-230038647.html)
-- Apr 29 - [Matt Gaetz becomes latest Kevin McCarthy defector to draw a primary challenger: From the Politics Desk](https://www.yahoo.com/news/matt-gaetz-becomes-latest-kevin-230000167.html)
+- Apr 29 - [Predator prowls through California town for a week — then ends up trapped inside shed](https://www.yahoo.com/news/predator-prowls-california-town-week-231917622.html)
 <!-- feed end -->
 
 ### Onstream
