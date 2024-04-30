@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - ['Surprising' and 'disturbing': Legal experts react to Supreme Court arguments on Trump's immunity claim](https://www.yahoo.com/news/surprising-disturbing-legal-experts-react-105229908.html)
+- Apr 30 - [Watch: China attacks Filipino ship with our reporter on board – here’s what happened next](https://www.yahoo.com/news/onboard-filipino-coast-guard-ship-072618015.html)
+- Apr 30 - [The CHP was sent into this California city to crack down on crime. Here is what happened](https://www.yahoo.com/news/chp-sent-california-city-crack-120054171.html)
+- Apr 30 - [After 96 Years, Archaeologists Finally Found the Missing Part of a Legendary Statue](https://www.yahoo.com/news/96-years-archaeologists-finally-found-120000547.html)
+- Apr 30 - [Russia shoots down six U.S.-made ATACMS missiles](https://www.yahoo.com/news/russia-shoots-down-six-u-113840736.html)
 - Apr 30 - [India 'shocked' as Musk's surprise China visit leaves them spurned](https://www.yahoo.com/news/india-shocked-musks-surprise-china-093733652.html)
-- Apr 30 - [Barack Obama Hits Donald Trump With A Harsh Truth About His Home Town](https://www.yahoo.com/news/barack-obama-hits-donald-trump-083545922.html)
-- Apr 30 - [Chinese scientist who first published COVID sequence stages protest after being locked out of lab](https://www.yahoo.com/news/chinese-scientist-published-first-sequence-071229718.html)
-- Apr 30 - [New York special election will fill vacancy in Congress created by resignation of Democrat Higgins](https://www.yahoo.com/news/york-special-election-fill-vacancy-040705239.html)
 <!-- feed end -->
 
 ### Onstream
