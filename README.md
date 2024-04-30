@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 30 - [Trump speaks as he leaves courthouse for the day](https://www.yahoo.com/news/trump-speaks-leaves-courthouse-day-220654867.html)
+- Apr 30 - [‘That was rough’: Steve Bannon, Donald Trump Jr. criticize Kristi Noem for killing her dog](https://www.yahoo.com/news/rough-steve-bannon-donald-trump-213224189.html)
+- Apr 30 - [‘It’s unfortunate’: Boise restaurant closed after 30 years and will be torn down for this](https://www.yahoo.com/news/unfortunate-boise-restaurant-closed-30-212846996.html)
 - Apr 30 - [Trump lashes out after being held in contempt of court](https://www.yahoo.com/news/trump-lashes-being-held-contempt-210145462.html)
 - Apr 30 - [ABC News Kicks GMA Weatherman to the Curb Over Complaints](https://www.yahoo.com/entertainment/abc-news-kicks-gma-weatherman-205231009.html)
-- Apr 30 - [2-year-old Arizona boy dies after bounce house goes airborne in strong gust of wind](https://www.yahoo.com/news/2-old-arizona-boy-dies-204713314.html)
-- Apr 30 - [Father of former youth detention center resident testifies against him in New Hampshire trial](https://www.yahoo.com/news/father-former-youth-detention-center-201027087.html)
-- Apr 30 - [Five killed in Russian missile attack as Ukraine’s ‘Harry Potter castle’ goes up in flames](https://www.yahoo.com/news/five-killed-russian-missile-attack-195300897.html)
 <!-- feed end -->
 
 ### Onstream
