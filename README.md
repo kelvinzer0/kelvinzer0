@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 30 - [Professor who correctly predicts elections says Biden can win despite latest polls](https://www.yahoo.com/news/professor-correctly-predicts-elections-says-042714171.html)
 - Apr 30 - [Philippines accuses China of damaging its vessel at hotly contested shoal](https://www.yahoo.com/news/chinas-coast-guard-expels-philippine-023536887.html)
 - Apr 30 - [Ashley Judd speaks out on the right of women to control their bodies and be free from male violence](https://www.yahoo.com/news/ashley-judd-speaks-women-control-020159403.html)
 - Apr 30 - [Fact Check: Angelina Jolie Was Purported To Have Said 'Arabs and Muslims Are Not Terrorists' and 'the World Should Unite Against Israel.' Here's the Truth](https://www.yahoo.com/entertainment/fact-check-angelina-jolie-purported-001500228.html)
 - Apr 29 - [GOP leaders still can't overcome the Kansas governor's veto to enact big tax cuts](https://www.yahoo.com/news/gop-leaders-still-cant-overcome-235340565.html)
-- Apr 29 - [A Yellowstone trip that ended with a man being arrested for kicking a bison](https://www.yahoo.com/news/yellowstone-trip-ended-man-being-232510432.html)
 <!-- feed end -->
 
 ### Onstream
