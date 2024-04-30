@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 30 - [A 98-year-old in Ukraine walked miles to safety from Russians, with slippers and a cane](https://www.yahoo.com/news/98-old-ukraine-walked-miles-170739382.html)
+- Apr 30 - [Man allegedly pours bleach into Oregon hatchery tank and kills 18,000 salmon](https://www.yahoo.com/news/man-allegedly-pours-bleach-oregon-170701356.html)
+- Apr 30 - [US drug control agency will move to reclassify marijuana in a historic shift, AP sources say](https://www.yahoo.com/news/us-drug-control-agency-move-170458916.html)
+- Apr 30 - [Supreme Court leaves in place a Texas law requiring pornographic websites to verify users' ages](https://www.yahoo.com/news/supreme-court-leaves-place-texas-161616580.html)
 - Apr 30 - [Wisconsin high school football coach unable to get chemo due to shortage dies at 60](https://www.yahoo.com/news/wisconsin-high-school-football-coach-160621874.html)
-- Apr 30 - [New details from officials on shooting that killed 4 officers in Charlotte](https://www.yahoo.com/news/details-officials-shooting-killed-4-160015003.html)
-- Apr 30 - [Trump Is Allowed to Attend Barron’s High School Graduation After All](https://www.yahoo.com/news/trump-allowed-attend-barron-high-151612913.html)
-- Apr 30 - [Donald Trump Is Pissed At His Trial Lawyer, Maggie Haberman Reports](https://www.yahoo.com/news/donald-trump-pissed-trial-lawyer-151108124.html)
-- Apr 30 - [Trump Reveals Exactly Who He’d Go After in a Second Term](https://www.yahoo.com/news/trump-reveals-exactly-d-second-145820751.html)
 <!-- feed end -->
 
 ### Onstream
