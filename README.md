@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [FBI data shows America is seeing a 'considerable' drop in crime. Trump says the opposite.](https://www.yahoo.com/news/fbi-data-shows-america-seeing-091242868.html)
-- Apr 30 - [OOPS! Kayleigh McEnany Gets Quick Math Lesson After Awkward Trump Blunder](https://www.yahoo.com/news/oops-kayleigh-mcenany-gets-quick-072954696.html)
+- Apr 30 - ['Surprising' and 'disturbing': Legal experts react to Supreme Court arguments on Trump's immunity claim](https://www.yahoo.com/news/surprising-disturbing-legal-experts-react-105229908.html)
+- Apr 30 - [India 'shocked' as Musk's surprise China visit leaves them spurned](https://www.yahoo.com/news/india-shocked-musks-surprise-china-093733652.html)
+- Apr 30 - [Barack Obama Hits Donald Trump With A Harsh Truth About His Home Town](https://www.yahoo.com/news/barack-obama-hits-donald-trump-083545922.html)
 - Apr 30 - [Chinese scientist who first published COVID sequence stages protest after being locked out of lab](https://www.yahoo.com/news/chinese-scientist-published-first-sequence-071229718.html)
-- Apr 30 - [A massive Powerball win draws attention to a little-known immigrant culture in the US](https://www.yahoo.com/news/massive-powerball-win-draws-attention-041315940.html)
 - Apr 30 - [New York special election will fill vacancy in Congress created by resignation of Democrat Higgins](https://www.yahoo.com/news/york-special-election-fill-vacancy-040705239.html)
 <!-- feed end -->
 
