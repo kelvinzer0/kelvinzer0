@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 30 - [Man stabs police officer from behind in Jerusalem’s Old City](https://www.yahoo.com/news/man-stabs-police-officer-behind-133254321.html)
 - Apr 30 - [Watch: China attacks Filipino ship with our reporter on board – here’s what happened next](https://www.yahoo.com/news/onboard-filipino-coast-guard-ship-072618015.html)
+- Apr 30 - [A woman hid her tattoos to get her corporate job, and thinks others should too](https://www.yahoo.com/entertainment/woman-hid-her-tattoos-her-120626668.html)
 - Apr 30 - [The CHP was sent into this California city to crack down on crime. Here is what happened](https://www.yahoo.com/news/chp-sent-california-city-crack-120054171.html)
 - Apr 30 - [After 96 Years, Archaeologists Finally Found the Missing Part of a Legendary Statue](https://www.yahoo.com/news/96-years-archaeologists-finally-found-120000547.html)
-- Apr 30 - [Russia shoots down six U.S.-made ATACMS missiles](https://www.yahoo.com/news/russia-shoots-down-six-u-113840736.html)
-- Apr 30 - [India 'shocked' as Musk's surprise China visit leaves them spurned](https://www.yahoo.com/news/india-shocked-musks-surprise-china-093733652.html)
 <!-- feed end -->
 
 ### Onstream
