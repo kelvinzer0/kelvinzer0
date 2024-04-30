@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [25 killed in highway accident in northern Peru](https://www.yahoo.com/news/25-killed-highway-accident-northern-025709237.html)
-- Apr 30 - [4 law officers serving warrant are killed, 4 wounded in shootout at North Carolina home, police say](https://www.yahoo.com/news/4-law-officers-serving-warrant-022932180.html)
 - Apr 30 - [Fact Check: Angelina Jolie Was Purported To Have Said 'Arabs and Muslims Are Not Terrorists' and 'the World Should Unite Against Israel.' Here's the Truth](https://www.yahoo.com/entertainment/fact-check-angelina-jolie-purported-001500228.html)
 - Apr 29 - [GOP leaders still can't overcome the Kansas governor's veto to enact big tax cuts](https://www.yahoo.com/news/gop-leaders-still-cant-overcome-235340565.html)
+- Apr 29 - [A Yellowstone trip that ended with a man being arrested for kicking a bison](https://www.yahoo.com/news/yellowstone-trip-ended-man-being-232510432.html)
 - Apr 29 - [Predator prowls through California town for a week — then ends up trapped inside shed](https://www.yahoo.com/news/predator-prowls-california-town-week-231917622.html)
+- Apr 29 - [UN experts say North Korea missile landed in Kharkiv](https://www.yahoo.com/news/un-experts-north-korea-missile-230310870.html)
 <!-- feed end -->
 
 ### Onstream
