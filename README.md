@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Apr 29 - [Multiple officers killed while serving warrant in North Carolina](https://www.yahoo.com/news/multiple-officers-killed-while-serving-234448113.html)
+- Apr 29 - [Secret document says Iran security forces molested and killed teen protester](https://www.yahoo.com/news/secret-document-says-iran-security-230038647.html)
+- Apr 29 - [Matt Gaetz becomes latest Kevin McCarthy defector to draw a primary challenger: From the Politics Desk](https://www.yahoo.com/news/matt-gaetz-becomes-latest-kevin-230000167.html)
+- Apr 29 - [Kimberly Guilfoyle Picked The Wrong Day To Announce Her New Dog Book](https://www.yahoo.com/entertainment/kimberly-guilfoyle-picked-wrong-day-224500798.html)
 - Apr 29 - ['Midtown Jane Doe,' whose remains were found in cement of NYC bar basement 20 years ago, finally ID'd](https://www.yahoo.com/news/midtown-jane-doe-whose-remains-191659992.html)
-- Apr 29 - [Hunter Biden demands that Fox News remove ‘intimate’ images from its platforms](https://www.yahoo.com/news/hunter-biden-demands-fox-news-160134096.html)
-- Apr 29 - [Yellowstone tourist kicks bison in its leg before it turns and injures him, rangers say](https://www.yahoo.com/news/yellowstone-tourist-kicks-bison-leg-211757176.html)
-- Apr 29 - [Andie MacDowell’s Daughter Rainey Qualley Seeks Guardianship Of Young Girl](https://www.yahoo.com/entertainment/andie-macdowell-daughter-rainey-qualley-211549686.html)
-- Apr 29 - [Opinion: With this serious misstep, prosecutors might be handing Trump a get-out-of-jail-free card](https://www.yahoo.com/news/opinion-harvey-weinstein-prosecutors-made-184146018.html)
 <!-- feed end -->
 
 ### Onstream
