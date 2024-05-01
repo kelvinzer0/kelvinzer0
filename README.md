@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Apr 30 - [Trump speaks as he leaves courthouse for the day](https://www.yahoo.com/news/trump-speaks-leaves-courthouse-day-220654867.html)
+- May 01 - [New details emerge in alleged gambling ring behind Shohei Ohtani-Ippei Mizuhara scandal](https://sports.yahoo.com/new-details-emerge-in-alleged-gambling-ring-behind-shohei-ohtani-ippei-mizuhara-scandal-004930035.html)
+- Apr 30 - [Georgia police unleash water cannons on protesters](https://www.yahoo.com/news/georgia-police-unleash-water-cannons-235748270.html)
+- Apr 30 - [Trump campaign managers criticize Commission on Presidential Debates for sticking to original debate schedule](https://www.yahoo.com/news/trump-campaign-managers-criticize-commission-225717585.html)
+- Apr 30 - [Deceased suspect identified in fatal shooting of four officers in N.C.](https://www.yahoo.com/news/deceased-suspect-identified-fatal-shooting-222951553.html)
 - Apr 30 - [‘That was rough’: Steve Bannon, Donald Trump Jr. criticize Kristi Noem for killing her dog](https://www.yahoo.com/news/rough-steve-bannon-donald-trump-213224189.html)
-- Apr 30 - [‘It’s unfortunate’: Boise restaurant closed after 30 years and will be torn down for this](https://www.yahoo.com/news/unfortunate-boise-restaurant-closed-30-212846996.html)
-- Apr 30 - [Trump lashes out after being held in contempt of court](https://www.yahoo.com/news/trump-lashes-being-held-contempt-210145462.html)
-- Apr 30 - [ABC News Kicks GMA Weatherman to the Curb Over Complaints](https://www.yahoo.com/entertainment/abc-news-kicks-gma-weatherman-205231009.html)
 <!-- feed end -->
 
 ### Onstream
