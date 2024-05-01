@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 01 - [Columbia protester mocked after asking for food for occupiers](https://www.yahoo.com/news/watch-columbia-protester-mocked-asking-040731315.html)
+- May 01 - [George W. Bush's portraits of veterans are heading to Disney World](https://www.yahoo.com/news/george-w-bushs-portraits-veterans-164003189.html)
+- May 01 - [Russians throng to display of Western 'trophy' tanks captured in Ukraine](https://www.yahoo.com/news/russians-throng-display-western-trophy-155525991.html)
 - May 01 - [A man repeatedly punched by Mike Tyson in a viral video taken on a JetBlue flight is suing the former heavyweight champ — 2 years after the incident](https://www.yahoo.com/news/man-repeatedly-punched-mike-tyson-150356922.html)
 - May 01 - [Five human skeletons, missing hands and feet, found outside house of Nazi leader Hermann Göring](https://www.yahoo.com/news/five-human-skeletons-missing-hands-144354624.html)
-- May 01 - [Woman Shoots Home Intruder Who Interrupted Taylor Swift Movie](https://www.yahoo.com/news/woman-shoots-home-intruder-interrupted-135002403.html)
-- May 01 - [Americans have tipping fatigue. Domino’s thinks it has the answer](https://finance.yahoo.com/news/domino-knows-customers-tired-tipping-121508226.html)
-- May 01 - [Law Firm Defending Trump Seeks to Withdraw From a Long-Running Case](https://www.yahoo.com/news/law-firm-defending-trump-seeks-120030915.html)
 <!-- feed end -->
 
 ### Onstream
