@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 01 - [Californians fed up with fast food chains hiking prices are now biting back — by taking their business elsewhere](https://finance.yahoo.com/news/californians-fed-fast-food-chains-100100149.html)
+- May 01 - [Local TV Anchor Catches Donald Trump Off Guard With A Simple Question](https://www.yahoo.com/news/local-tv-anchor-catches-donald-095452899.html)
+- May 01 - [Saudi Arabia confirms a fitness influencer received an 11-year sentence over 'terrorist offenses'](https://www.yahoo.com/news/saudi-arabia-confirms-fitness-influencer-094838282.html)
 - May 01 - [Opinion: If Trump wins, I might leave America for good](https://www.yahoo.com/news/opinion-trump-wins-might-leave-080946175.html)
-- May 01 - [Lebanese Christian leader says Hezbollah's fighting with Israel has harmed Lebanon](https://www.yahoo.com/news/lebanese-christian-leader-says-hezbollahs-080529207.html)
-- May 01 - [Watch: Columbia protester mocked after asking for food for occupiers](https://www.yahoo.com/news/watch-columbia-protester-mocked-asking-040731315.html)
-- May 01 - ['A step back in time': America's Catholic Church sees an immense shift toward the old ways](https://www.yahoo.com/news/step-back-time-americas-catholic-040718410.html)
-- May 01 - [Trump Had 'Different Devices' To Keep Him Awake. You Can Guess What Happened.](https://www.yahoo.com/news/trump-had-different-devices-keep-035245242.html)
+- May 01 - [Oklahoma suburban dad 'hunted' family, left one child alive 'who is surrounded by love': family](https://www.yahoo.com/news/oklahoma-suburban-dad-hunted-family-080002688.html)
 <!-- feed end -->
 
 ### Onstream
