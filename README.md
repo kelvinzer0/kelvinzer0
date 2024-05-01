@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Wild fight breaks out between group of moms with strollers at Disneyland](https://www.yahoo.com/news/wild-fight-breaks-between-group-205238258.html)
-- May 01 - [I’m an Economist: Here Are My Predictions for Inflation If Biden Wins Again](https://finance.yahoo.com/news/m-economist-predictions-inflation-biden-201039156.html)
+- May 01 - [Man says his emotional support alligator, known for its big social media audience, has gone missing](https://www.yahoo.com/news/man-says-emotional-support-alligator-215618078.html)
 - May 01 - [El Salvador ‘gang member’ arrested in New Orleans, U.S. Border Patrol reports](https://www.yahoo.com/news/el-salvador-gang-member-arrested-195323279.html)
 - May 01 - [Elephant Returns Child's Shoe After It Falls Into Zoo Enclosure in Moment of Pure Sweetness](https://www.yahoo.com/lifestyle/elephant-returns-childs-shoe-falls-192832616.html)
+- May 01 - [Had to pay more than expected at a California restaurant? A new law will stop surcharges](https://www.yahoo.com/news/had-pay-more-expected-california-190313295.html)
 - May 01 - [This Texas veterinarian helped crack the mystery of bird flu in cows](https://www.yahoo.com/news/texas-veterinarian-helped-crack-mystery-184038542.html)
 <!-- feed end -->
 
