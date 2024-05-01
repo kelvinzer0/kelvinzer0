@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 01 - [Marjorie Taylor Greene Changed 1 Letter In 'MAGA' — And It Didn't Go So Well](https://www.yahoo.com/news/marjorie-taylor-greene-changed-1-184453651.html)
 - May 01 - [Columbia protester mocked after asking for food for occupiers](https://www.yahoo.com/news/watch-columbia-protester-mocked-asking-040731315.html)
-- May 01 - [George W. Bush's portraits of veterans are heading to Disney World](https://www.yahoo.com/news/george-w-bushs-portraits-veterans-164003189.html)
-- May 01 - [Russians throng to display of Western 'trophy' tanks captured in Ukraine](https://www.yahoo.com/news/russians-throng-display-western-trophy-155525991.html)
-- May 01 - [A man repeatedly punched by Mike Tyson in a viral video taken on a JetBlue flight is suing the former heavyweight champ — 2 years after the incident](https://www.yahoo.com/news/man-repeatedly-punched-mike-tyson-150356922.html)
-- May 01 - [Five human skeletons, missing hands and feet, found outside house of Nazi leader Hermann Göring](https://www.yahoo.com/news/five-human-skeletons-missing-hands-144354624.html)
+- May 01 - [This 15-Year-Old's Comment About A Car Hitting A Dunkin' In Rhode Island Is Going Viral For Obvious Reasons](https://www.yahoo.com/news/15-olds-car-hitting-dunkin-173502751.html)
+- May 01 - [Active shooter 'neutralized' outside Wisconsin school, officials say, amid reports of shots, panic](https://www.yahoo.com/news/wisconsin-school-district-says-person-172048066.html)
+- May 01 - [Ex-Ohio Treasurer Josh Mandel has been threatened with jail time in his divorce case](https://www.yahoo.com/news/ex-ohio-treasurer-josh-mandel-171756954.html)
 <!-- feed end -->
 
 ### Onstream
