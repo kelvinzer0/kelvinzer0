@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Colombia's president says country will break diplomatic relations with Israel over war in Gaza](https://www.yahoo.com/news/colombias-president-says-country-break-191856429.html)
-- May 01 - [Former Kentucky Gov. Matt Bevin barred from home by court order amid divorce](https://www.yahoo.com/news/former-kentucky-gov-matt-bevin-191331428.html)
-- May 01 - [Marjorie Taylor Greene Changed 1 Letter In 'MAGA' — And It Didn't Go So Well](https://www.yahoo.com/news/marjorie-taylor-greene-changed-1-184453651.html)
-- May 01 - [Columbia protester mocked after asking for food for occupiers](https://www.yahoo.com/news/watch-columbia-protester-mocked-asking-040731315.html)
-- May 01 - [UNC fraternity brothers defend reinstated American flag from campus mob who replaced with Palestinian flag](https://www.yahoo.com/news/unc-fraternity-brothers-defend-reinstated-180619001.html)
+- May 01 - [Wild fight breaks out between group of moms with strollers at Disneyland](https://www.yahoo.com/news/wild-fight-breaks-between-group-205238258.html)
+- May 01 - [I’m an Economist: Here Are My Predictions for Inflation If Biden Wins Again](https://finance.yahoo.com/news/m-economist-predictions-inflation-biden-201039156.html)
+- May 01 - [El Salvador ‘gang member’ arrested in New Orleans, U.S. Border Patrol reports](https://www.yahoo.com/news/el-salvador-gang-member-arrested-195323279.html)
+- May 01 - [Elephant Returns Child's Shoe After It Falls Into Zoo Enclosure in Moment of Pure Sweetness](https://www.yahoo.com/lifestyle/elephant-returns-childs-shoe-falls-192832616.html)
+- May 01 - [This Texas veterinarian helped crack the mystery of bird flu in cows](https://www.yahoo.com/news/texas-veterinarian-helped-crack-mystery-184038542.html)
 <!-- feed end -->
 
 ### Onstream
