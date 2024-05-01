@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 01 - [New details emerge in alleged gambling ring behind Shohei Ohtani-Ippei Mizuhara scandal](https://sports.yahoo.com/new-details-emerge-in-alleged-gambling-ring-behind-shohei-ohtani-ippei-mizuhara-scandal-004930035.html)
 - Apr 30 - [Georgia police unleash water cannons on protesters](https://www.yahoo.com/news/georgia-police-unleash-water-cannons-235748270.html)
+- Apr 30 - [Tim Ballard arranged for AG Reyes to use cocaine in downtown penthouse, amended lawsuit claims](https://www.yahoo.com/news/tim-ballard-arranged-ag-reyes-231418902.html)
 - Apr 30 - [Trump campaign managers criticize Commission on Presidential Debates for sticking to original debate schedule](https://www.yahoo.com/news/trump-campaign-managers-criticize-commission-225717585.html)
 - Apr 30 - [Deceased suspect identified in fatal shooting of four officers in N.C.](https://www.yahoo.com/news/deceased-suspect-identified-fatal-shooting-222951553.html)
-- Apr 30 - [‘That was rough’: Steve Bannon, Donald Trump Jr. criticize Kristi Noem for killing her dog](https://www.yahoo.com/news/rough-steve-bannon-donald-trump-213224189.html)
 <!-- feed end -->
 
 ### Onstream
