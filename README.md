@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 01 - [Colombia's president says country will break diplomatic relations with Israel over war in Gaza](https://www.yahoo.com/news/colombias-president-says-country-break-191856429.html)
+- May 01 - [Former Kentucky Gov. Matt Bevin barred from home by court order amid divorce](https://www.yahoo.com/news/former-kentucky-gov-matt-bevin-191331428.html)
 - May 01 - [Marjorie Taylor Greene Changed 1 Letter In 'MAGA' — And It Didn't Go So Well](https://www.yahoo.com/news/marjorie-taylor-greene-changed-1-184453651.html)
 - May 01 - [Columbia protester mocked after asking for food for occupiers](https://www.yahoo.com/news/watch-columbia-protester-mocked-asking-040731315.html)
-- May 01 - [This 15-Year-Old's Comment About A Car Hitting A Dunkin' In Rhode Island Is Going Viral For Obvious Reasons](https://www.yahoo.com/news/15-olds-car-hitting-dunkin-173502751.html)
-- May 01 - [Active shooter 'neutralized' outside Wisconsin school, officials say amid reports of gunshots, panic](https://www.yahoo.com/news/wisconsin-school-district-says-person-172048066.html)
+- May 01 - [UNC fraternity brothers defend reinstated American flag from campus mob who replaced with Palestinian flag](https://www.yahoo.com/news/unc-fraternity-brothers-defend-reinstated-180619001.html)
 <!-- feed end -->
 
 ### Onstream
