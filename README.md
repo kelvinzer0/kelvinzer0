@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Xi Jinping’s vast gold war chest will let him take Taiwan without a fight](https://www.yahoo.com/news/xi-jinping-vast-gold-war-050000718.html)
+- May 01 - [Opinion: If Trump wins, I might leave America for good](https://www.yahoo.com/news/opinion-trump-wins-might-leave-080946175.html)
+- May 01 - [Lebanese Christian leader says Hezbollah's fighting with Israel has harmed Lebanon](https://www.yahoo.com/news/lebanese-christian-leader-says-hezbollahs-080529207.html)
+- May 01 - [Watch: Columbia protester mocked after asking for food for occupiers](https://www.yahoo.com/news/watch-columbia-protester-mocked-asking-040731315.html)
 - May 01 - ['A step back in time': America's Catholic Church sees an immense shift toward the old ways](https://www.yahoo.com/news/step-back-time-americas-catholic-040718410.html)
 - May 01 - [Trump Had 'Different Devices' To Keep Him Awake. You Can Guess What Happened.](https://www.yahoo.com/news/trump-had-different-devices-keep-035245242.html)
-- May 01 - [Five killed in Russian missile attack as Ukraine’s ‘Harry Potter castle’ goes up in flames](https://www.yahoo.com/news/five-killed-russian-missile-attack-195300897.html)
-- May 01 - [NYPD release video showing professional 'protest consultant' at Columbia University](https://www.yahoo.com/news/nypd-release-video-showing-professional-025331163.html)
 <!-- feed end -->
 
 ### Onstream
