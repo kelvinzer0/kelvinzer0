@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 01 - [Law Firm Defending Trump Seeks to Withdraw From a Long-Running Case](https://www.yahoo.com/news/law-firm-defending-trump-seeks-120030915.html)
 - May 01 - [Kremlin parades Western equipment captured from Ukrainian army at Moscow exhibition](https://www.yahoo.com/news/kremlin-parades-western-equipment-captured-111249256.html)
 - May 01 - [Californians fed up with fast food chains hiking prices are now biting back — by taking their business elsewhere](https://finance.yahoo.com/news/californians-fed-fast-food-chains-100100149.html)
-- May 01 - [2 London police officers remain hospitalized after confronting sword-wielding suspect](https://www.yahoo.com/news/2-london-police-officers-remain-095612147.html)
+- May 01 - [Here’s what a Chiefs stadium in Kansas could look like, and some necessary context](https://sports.yahoo.com/chiefs-stadium-kansas-could-look-100000599.html)
 - May 01 - [Local TV Anchor Catches Donald Trump Off Guard With A Simple Question](https://www.yahoo.com/news/local-tv-anchor-catches-donald-095452899.html)
-- May 01 - [Saudi Arabia confirms a fitness influencer received an 11-year sentence over 'terrorist offenses'](https://www.yahoo.com/news/saudi-arabia-confirms-fitness-influencer-094838282.html)
 <!-- feed end -->
 
 ### Onstream
