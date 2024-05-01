@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 01 - ['A step back in time': America's Catholic Church sees an immense shift toward the old ways](https://www.yahoo.com/news/step-back-time-americas-catholic-040718410.html)
 - May 01 - [Five killed in Russian missile attack as Ukraine’s ‘Harry Potter castle’ goes up in flames](https://www.yahoo.com/news/five-killed-russian-missile-attack-195300897.html)
-- May 01 - [Trump campaign managers criticize Commission on Presidential Debates for sticking to original debate schedule](https://www.yahoo.com/news/trump-campaign-managers-criticize-commission-225717585.html)
 - May 01 - [Democrats will win New York special election, CNN projects, temporarily narrowing House GOP’s slim majority](https://www.yahoo.com/news/democrats-win-york-special-election-013826495.html)
 - May 01 - [New details emerge in alleged gambling ring behind Shohei Ohtani-Ippei Mizuhara scandal](https://sports.yahoo.com/new-details-emerge-in-alleged-gambling-ring-behind-shohei-ohtani-ippei-mizuhara-scandal-004930035.html)
+- Apr 30 - [Georgia police unleash water cannons on protesters](https://www.yahoo.com/news/georgia-police-unleash-water-cannons-235748270.html)
 <!-- feed end -->
 
 ### Onstream
