@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 01 - [Woman Shoots Home Intruder Who Interrupted Taylor Swift Movie](https://www.yahoo.com/news/woman-shoots-home-intruder-interrupted-135002403.html)
+- May 01 - [House back in turmoil: Marjorie Taylor Greene makes her move to oust Speaker Mike Johnson](https://www.yahoo.com/news/house-back-turmoil-marjorie-taylor-131659287.html)
 - May 01 - [Law Firm Defending Trump Seeks to Withdraw From a Long-Running Case](https://www.yahoo.com/news/law-firm-defending-trump-seeks-120030915.html)
 - May 01 - [Kremlin parades Western equipment captured from Ukrainian army at Moscow exhibition](https://www.yahoo.com/news/kremlin-parades-western-equipment-captured-111249256.html)
 - May 01 - [This Bathroom Issue Is a Common Sign of Colon Cancer, According to a GI Doc](https://www.yahoo.com/news/bathroom-issue-common-sign-colon-102500668.html)
