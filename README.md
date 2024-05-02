@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 02 - [Second Boeing whistleblower found dead. Here’s a timeline of the company’s mounting problems.](https://www.yahoo.com/news/second-boeing-whistleblower-found-dead-heres-a-timeline-of-the-companys-mounting-problems-175734321.html)
 - May 02 - [In a first, an orangutan was seen treating his wound with a medicinal plant](https://www.yahoo.com/news/first-orangutan-seen-treating-wound-150254658.html)
+- May 02 - [Why Rivian Automotive Stock Pushed Higher Today](https://finance.yahoo.com/news/why-rivian-automotive-stock-pushed-164839081.html)
+- May 02 - [Court hearing starts for suspect in fatal Downtown Tunnel crash](https://www.yahoo.com/news/court-hearing-starts-suspect-fatal-164254621.html)
 - May 02 - ["Shaking his head": Trump "in disbelief" as lawyer admits he went out of his way to bash witnesses](https://www.yahoo.com/news/shaking-head-trump-disbelief-lawyer-152122360.html)
-- May 02 - [Why Palestinians can count on American students but not Arab allies to protest](https://www.yahoo.com/news/why-palestinians-count-american-students-145418373.html)
-- May 02 - [President Joe Biden calls Japan and India 'xenophobic' nations that do not welcome immigrants](https://www.yahoo.com/news/president-joe-biden-calls-japan-143757033.html)
-- May 02 - [Another Elon Musk Promise Dies As Tesla Scraps ‘Gigacasting’](https://www.yahoo.com/tech/another-elon-musk-promise-dies-141000009.html)
 <!-- feed end -->
 
 ### Onstream
