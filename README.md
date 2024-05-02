@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 02 - [Captain faces 10 years in prison for fiery deaths of 34 people aboard California scuba dive boat](https://www.yahoo.com/news/captain-faces-10-years-prison-050308670.html)
 - May 02 - [Hakeem Jeffries isn't speaker yet, but the Democrat may be the most powerful person in Congress](https://www.yahoo.com/news/hakeem-jeffries-isnt-speaker-yet-040635771.html)
 - May 02 - [Photo of Swedish woman falsely shared as 'Ukrainian winner of World Sex Championship'](https://www.yahoo.com/news/photo-swedish-woman-falsely-shared-024459814.html)
 - May 02 - [Trump slurs words and struggles to gain crowd enthusiasm in Midwest rallies](https://www.yahoo.com/news/trump-slurs-words-struggles-gain-023422305.html)
 - May 01 - [Scientists reveal the face of a Neanderthal who lived 75,000 years ago](https://www.yahoo.com/news/facial-reconstruction-reveals-40-something-230347509.html)
-- May 01 - [Why the 12th Amendment could prevent a Trump-Rubio ticket](https://www.yahoo.com/news/why-12th-amendment-could-prevent-232635467.html)
 <!-- feed end -->
 
 ### Onstream
