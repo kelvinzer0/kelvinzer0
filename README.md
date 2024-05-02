@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 02 - [Scientists reveal the face of a Neanderthal who lived 75,000 years ago](https://www.yahoo.com/news/facial-reconstruction-reveals-40-something-230347509.html)
 - May 02 - [Donald Trump Appears To Reveal His Plan If He Loses Election To Joe Biden](https://www.yahoo.com/news/donald-trump-appears-reveal-plan-105444872.html)
-- May 02 - [A whistleblower who accused a Boeing supplier of turning a blind eye to defects has died after a sudden illness: reports](https://www.yahoo.com/news/whistleblower-accused-boeing-supplier-turning-090942761.html)
-- May 02 - [Captain faces 10 years in prison for fiery deaths of 34 people aboard California scuba dive boat](https://www.yahoo.com/news/captain-faces-10-years-prison-050308670.html)
-- May 02 - ['Dehumanizing': Texas student protester on her arrest](https://www.yahoo.com/news/dehumanizing-texas-student-protester-her-044237087.html)
-- May 02 - [Hakeem Jeffries isn't speaker yet, but the Democrat may be the most powerful person in Congress](https://www.yahoo.com/news/hakeem-jeffries-isnt-speaker-yet-040635771.html)
+- May 02 - [Insurer Chubb readies $350 million payout tied to Baltimore bridge collapse](https://www.yahoo.com/news/insurer-chubb-prepares-pay-350-102701998.html)
+- May 02 - [‘Stupid n****r’: KC-area Christian school student used racial slur. Leaders must act | Opinion](https://www.yahoo.com/news/stupid-n-r-kc-area-100700602.html)
+- May 02 - [Trump Gets Quick Lesson In Recent History After Awkward Error During Rally Rant](https://www.yahoo.com/news/trump-gets-quick-lesson-recent-055505128.html)
 <!-- feed end -->
 
 ### Onstream
