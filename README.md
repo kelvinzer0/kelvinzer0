@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Scientists reveal the face of a Neanderthal who lived 75,000 years ago](https://www.yahoo.com/news/facial-reconstruction-reveals-40-something-230347509.html)
-- May 02 - [Donald Trump Appears To Reveal His Plan If He Loses Election To Joe Biden](https://www.yahoo.com/news/donald-trump-appears-reveal-plan-105444872.html)
-- May 02 - [Insurer Chubb readies $350 million payout tied to Baltimore bridge collapse](https://www.yahoo.com/news/insurer-chubb-prepares-pay-350-102701998.html)
-- May 02 - [‘Stupid n****r’: KC-area Christian school student used racial slur. Leaders must act | Opinion](https://www.yahoo.com/news/stupid-n-r-kc-area-100700602.html)
-- May 02 - [Trump Gets Quick Lesson In Recent History After Awkward Error During Rally Rant](https://www.yahoo.com/news/trump-gets-quick-lesson-recent-055505128.html)
+- May 02 - [Senate GOP campaign chief tempers expectations for size of November win](https://www.yahoo.com/news/senate-gop-campaign-chief-tempers-144759180.html)
+- May 02 - [Underwater superyachts? A CEO is pitching fantastical ships that can go 800 feet down and stay submerged for weeks](https://www.yahoo.com/entertainment/underwater-superyachts-ceo-pitching-fantastical-141325925.html)
+- May 02 - [Russia shipping fuel to North Korea above UN cap - White House](https://www.yahoo.com/news/exclusive-russia-shipping-oil-north-140139306.html)
+- May 02 - [ConocoPhillips Q1 2024 Earnings: Surpasses EPS Estimates and Declares Dividend](https://finance.yahoo.com/news/conocophillips-q1-2024-earnings-surpasses-135216537.html)
+- May 02 - [Cannibal and Double-Murderer Selfie That Sums Up Ukraine War](https://www.yahoo.com/news/cannibal-double-murderer-selfie-sums-131523500.html)
 <!-- feed end -->
 
 ### Onstream
