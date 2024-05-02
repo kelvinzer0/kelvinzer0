@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - May 01 - [California superintendent fired for allegedly threatening students who didn't clap for her daughter](https://www.yahoo.com/news/california-superintendent-fired-allegedly-threatening-221746328.html)
 - May 01 - [The 1 Thing Colorectal Doctors Would Never Use On Their Butts](https://www.yahoo.com/lifestyle/1-thing-colorectal-doctors-never-221602926.html)
 - May 01 - [Employer of visiting nurse who was killed didn't protect her and should be fined, safety agency says](https://www.yahoo.com/news/employer-visiting-nurse-killed-didnt-212858760.html)
-- May 01 - [Wild fight breaks out between group of moms with strollers at Disneyland](https://www.yahoo.com/news/wild-fight-breaks-between-group-205238258.html)
+- May 01 - [Gorilla Tells Little Boy at the Zoo to Stop Watching Him in the Most Hilarious Way](https://www.yahoo.com/lifestyle/gorilla-tells-little-boy-zoo-202053812.html)
 <!-- feed end -->
 
 ### Onstream
