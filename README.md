@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 02 - [Multibillion-dollar plan to build luxury resorts threatens natural coastal area: 'This jewel is at risk of being lost forever'](https://www.yahoo.com/news/multibillion-dollar-plan-build-luxury-024500202.html)
 - May 02 - [Photo of Swedish woman falsely shared as 'Ukrainian winner of World Sex Championship'](https://www.yahoo.com/news/photo-swedish-woman-falsely-shared-024459814.html)
 - May 02 - [Trump slurs words and struggles to gain crowd enthusiasm in Midwest rallies](https://www.yahoo.com/news/trump-slurs-words-struggles-gain-023422305.html)
-- May 02 - [‘Detestable’: Guard busted inside Central California prison. Officials found him with fentanyl](https://www.yahoo.com/news/detestable-guard-busted-inside-central-001401863.html)
 - May 01 - [Scientists reveal the face of a Neanderthal who lived 75,000 years ago](https://www.yahoo.com/news/facial-reconstruction-reveals-40-something-230347509.html)
 - May 01 - ["Farting up a storm": "The View" airs out rumors that Trump is letting it rip in court](https://www.yahoo.com/entertainment/farting-storm-view-airs-rumors-231811256.html)
 <!-- feed end -->
