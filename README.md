@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Madison Realty Capital's Zegen on Commercial Real Estate Risks](https://finance.yahoo.com/video/madison-realty-capitals-zegen-commercial-192954278.html)
-- May 02 - [Market strategist debunks 'sell in May' strategy](https://finance.yahoo.com/video/market-strategist-debunks-sell-may-191945505.html)
+- May 02 - [Apple sales fall less than expected, CEO sees return to growth](https://www.yahoo.com/tech/apple-sales-fall-less-expected-203225673.html)
+- May 02 - [‘Rare’ ocean predator — with ‘blade-like teeth’ — seen off coast of UK, photo shows](https://www.yahoo.com/news/rare-ocean-predator-blade-teeth-195644252.html)
+- May 02 - [Paramount Gets a $26 Billion Offer from Sony, Apollo: Reports](https://www.barrons.com/articles/paramount-offer-sony-apollo-reports-53ab9cbc?siteid=yhoof2&yptr=yahoo)
 - May 02 - [Transgender Tennesseans want state's refusal to amend birth certificates declared unconstitutional](https://www.yahoo.com/news/transgender-tennesseans-want-states-refusal-191724713.html)
 - May 02 - [Exclusive-Russian troops enter base housing US military in Niger, US official says](https://www.yahoo.com/news/exclusive-russian-troops-enter-housing-191500800.html)
-- May 02 - [IRS says number of audits about to surge. Here's who it is targeting.](https://finance.yahoo.com/news/irs-says-audits-surge-heres-172149190.html)
 <!-- feed end -->
 
 ### Onstream
