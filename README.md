@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Palestinian security force kills Islamic Jihad gunman in rare internal clash](https://www.yahoo.com/news/palestinian-security-force-kills-islamic-084817805.html)
+- May 02 - [Taliban plan regional energy trade hub with Russian oil in mind](https://www.yahoo.com/news/taliban-plan-regional-energy-trade-093708521.html)
+- May 02 - [Higher ed news: EKU to take SNAP benefits on-campus, new associate provost at UK](https://www.yahoo.com/news/higher-ed-news-eku-snap-090000736.html)
 - May 02 - [Captain faces 10 years in prison for fiery deaths of 34 people aboard California scuba dive boat](https://www.yahoo.com/news/captain-faces-10-years-prison-050308670.html)
 - May 02 - [Hakeem Jeffries isn't speaker yet, but the Democrat may be the most powerful person in Congress](https://www.yahoo.com/news/hakeem-jeffries-isnt-speaker-yet-040635771.html)
-- May 02 - [Photo of Swedish woman falsely shared as 'Ukrainian winner of World Sex Championship'](https://www.yahoo.com/news/photo-swedish-woman-falsely-shared-024459814.html)
-- May 02 - [Trump slurs words and struggles to gain crowd enthusiasm in Midwest rallies](https://www.yahoo.com/news/trump-slurs-words-struggles-gain-023422305.html)
+- May 02 - [Nvidia supplier SK Hynix says HBM chips almost sold out for 2025](https://finance.yahoo.com/news/nvidia-supplier-sk-hynix-says-030401491.html)
 <!-- feed end -->
 
 ### Onstream
