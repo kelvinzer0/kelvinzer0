@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 02 - [Donald Trump Appears To Reveal His Plan If He Loses Election To Joe Biden](https://www.yahoo.com/news/donald-trump-appears-reveal-plan-105444872.html)
+- May 02 - [A whistleblower who accused a Boeing supplier of turning a blind eye to defects has died after a sudden illness: reports](https://www.yahoo.com/news/whistleblower-accused-boeing-supplier-turning-090942761.html)
 - May 02 - [Captain faces 10 years in prison for fiery deaths of 34 people aboard California scuba dive boat](https://www.yahoo.com/news/captain-faces-10-years-prison-050308670.html)
+- May 02 - ['Dehumanizing': Texas student protester on her arrest](https://www.yahoo.com/news/dehumanizing-texas-student-protester-her-044237087.html)
 - May 02 - [Hakeem Jeffries isn't speaker yet, but the Democrat may be the most powerful person in Congress](https://www.yahoo.com/news/hakeem-jeffries-isnt-speaker-yet-040635771.html)
-- May 02 - [Photo of Swedish woman falsely shared as 'Ukrainian winner of World Sex Championship'](https://www.yahoo.com/news/photo-swedish-woman-falsely-shared-024459814.html)
-- May 02 - [Trump slurs words and struggles to gain crowd enthusiasm in Midwest rallies](https://www.yahoo.com/news/trump-slurs-words-struggles-gain-023422305.html)
-- May 02 - [Central High school incident update](https://www.yahoo.com/news/central-high-school-incident-001833448.html)
 <!-- feed end -->
 
 ### Onstream
