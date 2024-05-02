@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Senate GOP campaign chief tempers expectations for size of November win](https://www.yahoo.com/news/senate-gop-campaign-chief-tempers-144759180.html)
-- May 02 - [Underwater superyachts? A CEO is pitching fantastical ships that can go 800 feet down and stay submerged for weeks](https://www.yahoo.com/entertainment/underwater-superyachts-ceo-pitching-fantastical-141325925.html)
-- May 02 - [Russia shipping fuel to North Korea above UN cap - White House](https://www.yahoo.com/news/exclusive-russia-shipping-oil-north-140139306.html)
-- May 02 - [ConocoPhillips Q1 2024 Earnings: Surpasses EPS Estimates and Declares Dividend](https://finance.yahoo.com/news/conocophillips-q1-2024-earnings-surpasses-135216537.html)
-- May 02 - [Cannibal and Double-Murderer Selfie That Sums Up Ukraine War](https://www.yahoo.com/news/cannibal-double-murderer-selfie-sums-131523500.html)
+- May 02 - [EBay, Etsy's Q1 earnings are signaling weaknesses in consumer](https://finance.yahoo.com/video/ebay-etsys-q1-earnings-signaling-160255150.html)
+- May 02 - [Polish president submits law to step up defence preparation](https://www.yahoo.com/news/polish-president-submits-law-step-150848016.html)
+- May 02 - [In a first, an orangutan was seen treating his wound with a medicinal plant](https://www.yahoo.com/news/first-orangutan-seen-treating-wound-150254658.html)
+- May 02 - [Why Palestinians can count on American students but not Arab allies to protest](https://www.yahoo.com/news/why-palestinians-count-american-students-145418373.html)
+- May 02 - [President Joe Biden calls Japan and India 'xenophobic' nations that do not welcome immigrants](https://www.yahoo.com/news/president-joe-biden-calls-japan-143757033.html)
 <!-- feed end -->
 
 ### Onstream
