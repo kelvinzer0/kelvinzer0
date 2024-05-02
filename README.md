@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [In a first, an orangutan was seen treating his wound with a medicinal plant](https://www.yahoo.com/news/first-orangutan-seen-treating-wound-150254658.html)
-- May 02 - [Allegiant Air to begin service from Orlando International Airport to these 3 cities](https://www.yahoo.com/news/allegiant-air-begin-orlando-international-162136602.html)
-- May 02 - [Donald 'Von ShitzInPantz' has now formally been entered into the public record at Trump's hush-money trial](https://www.yahoo.com/news/donald-von-shitzinpantz-now-formally-151158437.html)
-- May 02 - ["Shaking his head": Trump "in disbelief" as lawyer admits he went out of his way to bash witnesses](https://www.yahoo.com/news/shaking-head-trump-disbelief-lawyer-152122360.html)
-- May 02 - [Why Palestinians can count on American students but not Arab allies to protest](https://www.yahoo.com/news/why-palestinians-count-american-students-145418373.html)
+- May 02 - [Madison Realty Capital's Zegen on Commercial Real Estate Risks](https://finance.yahoo.com/video/madison-realty-capitals-zegen-commercial-192954278.html)
+- May 02 - [Market strategist debunks 'sell in May' strategy](https://finance.yahoo.com/video/market-strategist-debunks-sell-may-191945505.html)
+- May 02 - [Transgender Tennesseans want state's refusal to amend birth certificates declared unconstitutional](https://www.yahoo.com/news/transgender-tennesseans-want-states-refusal-191724713.html)
+- May 02 - [Exclusive-Russian troops enter base housing US military in Niger, US official says](https://www.yahoo.com/news/exclusive-russian-troops-enter-housing-191500800.html)
+- May 02 - [IRS says number of audits about to surge. Here's who it is targeting.](https://finance.yahoo.com/news/irs-says-audits-surge-heres-172149190.html)
 <!-- feed end -->
 
 ### Onstream
