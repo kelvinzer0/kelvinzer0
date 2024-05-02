@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Ukrainian soldier describes a rout that left 100 dead or missing as Russia keeps gaining ground](https://www.yahoo.com/news/ukrainian-soldier-describes-rout-left-101307787.html)
-- May 02 - [Russia seizes on final window before US weapons fortify Ukraine’s front lines](https://www.yahoo.com/news/russia-seizes-final-window-us-100000232.html)
-- May 02 - [Trump Gets Quick Lesson In Recent History After Awkward Error During Rally Rant](https://www.yahoo.com/news/trump-gets-quick-lesson-recent-055505128.html)
+- May 02 - [Captain faces 10 years in prison for fiery deaths of 34 people aboard California scuba dive boat](https://www.yahoo.com/news/captain-faces-10-years-prison-050308670.html)
 - May 02 - [Hakeem Jeffries isn't speaker yet, but the Democrat may be the most powerful person in Congress](https://www.yahoo.com/news/hakeem-jeffries-isnt-speaker-yet-040635771.html)
-- May 02 - [Nvidia supplier SK Hynix says HBM chips almost sold out for 2025](https://finance.yahoo.com/news/nvidia-supplier-sk-hynix-says-030401491.html)
+- May 02 - [Photo of Swedish woman falsely shared as 'Ukrainian winner of World Sex Championship'](https://www.yahoo.com/news/photo-swedish-woman-falsely-shared-024459814.html)
+- May 02 - [Trump slurs words and struggles to gain crowd enthusiasm in Midwest rallies](https://www.yahoo.com/news/trump-slurs-words-struggles-gain-023422305.html)
+- May 02 - [Central High school incident update](https://www.yahoo.com/news/central-high-school-incident-001833448.html)
 <!-- feed end -->
 
 ### Onstream
