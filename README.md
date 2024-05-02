@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Taliban plan regional energy trade hub with Russian oil in mind](https://www.yahoo.com/news/taliban-plan-regional-energy-trade-093708521.html)
-- May 02 - [Higher ed news: EKU to take SNAP benefits on-campus, new associate provost at UK](https://www.yahoo.com/news/higher-ed-news-eku-snap-090000736.html)
-- May 02 - [Captain faces 10 years in prison for fiery deaths of 34 people aboard California scuba dive boat](https://www.yahoo.com/news/captain-faces-10-years-prison-050308670.html)
+- May 02 - [Ukrainian soldier describes a rout that left 100 dead or missing as Russia keeps gaining ground](https://www.yahoo.com/news/ukrainian-soldier-describes-rout-left-101307787.html)
+- May 02 - [Russia seizes on final window before US weapons fortify Ukraine’s front lines](https://www.yahoo.com/news/russia-seizes-final-window-us-100000232.html)
+- May 02 - [Trump Gets Quick Lesson In Recent History After Awkward Error During Rally Rant](https://www.yahoo.com/news/trump-gets-quick-lesson-recent-055505128.html)
 - May 02 - [Hakeem Jeffries isn't speaker yet, but the Democrat may be the most powerful person in Congress](https://www.yahoo.com/news/hakeem-jeffries-isnt-speaker-yet-040635771.html)
 - May 02 - [Nvidia supplier SK Hynix says HBM chips almost sold out for 2025](https://finance.yahoo.com/news/nvidia-supplier-sk-hynix-says-030401491.html)
 <!-- feed end -->
