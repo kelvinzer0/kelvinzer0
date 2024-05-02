@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Apple sales fall less than expected, CEO sees return to growth](https://www.yahoo.com/tech/apple-sales-fall-less-expected-203225673.html)
+- May 02 - [Apple CEO Tim Cook boasts of future AI plans after earnings beat](https://finance.yahoo.com/news/apple-ceo-tim-cook-boasts-of-future-ai-plans-after-earnings-beat-214757677.html)
+- May 02 - [Turkey halts trade with Israel over 'humanitarian tragedy' in Gaza](https://www.yahoo.com/news/turkey-halts-trade-israel-over-213934316.html)
+- May 02 - [Apple sales fall less than expected, CEO sees return to growth](https://finance.yahoo.com/news/apple-sales-fall-less-expected-203225502.html)
 - May 02 - [‘Rare’ ocean predator — with ‘blade-like teeth’ — seen off coast of UK, photo shows](https://www.yahoo.com/news/rare-ocean-predator-blade-teeth-195644252.html)
-- May 02 - [Paramount Gets a $26 Billion Offer from Sony, Apollo: Reports](https://www.barrons.com/articles/paramount-offer-sony-apollo-reports-53ab9cbc?siteid=yhoof2&yptr=yahoo)
 - May 02 - [Transgender Tennesseans want state's refusal to amend birth certificates declared unconstitutional](https://www.yahoo.com/news/transgender-tennesseans-want-states-refusal-191724713.html)
-- May 02 - [Exclusive-Russian troops enter base housing US military in Niger, US official says](https://www.yahoo.com/news/exclusive-russian-troops-enter-housing-191500800.html)
 <!-- feed end -->
 
 ### Onstream
