@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 02 - [Trump slurs words and struggles to gain crowd enthusiasm in Midwest rallies](https://www.yahoo.com/news/trump-slurs-words-struggles-gain-023422305.html)
 - May 01 - [Scientists reveal the face of a Neanderthal who lived 75,000 years ago](https://www.yahoo.com/news/facial-reconstruction-reveals-40-something-230347509.html)
-- May 01 - [California superintendent fired for allegedly threatening students who didn't clap for her daughter](https://www.yahoo.com/news/california-superintendent-fired-allegedly-threatening-221746328.html)
-- May 01 - [The 1 Thing Colorectal Doctors Would Never Use On Their Butts](https://www.yahoo.com/lifestyle/1-thing-colorectal-doctors-never-221602926.html)
-- May 01 - [Former Worthington Christian coach found dead after being accused of sexual contact with students, police say](https://www.yahoo.com/news/former-worthington-christian-coach-found-220312311.html)
+- May 01 - ["Farting up a storm": "The View" airs out rumors that Trump is letting it rip in court](https://www.yahoo.com/entertainment/farting-storm-view-airs-rumors-231811256.html)
+- May 01 - [Doctors Are Sharing The 1 Bathroom Habit They Would Avoid At All Costs](https://www.yahoo.com/lifestyle/1-thing-colorectal-doctors-never-221602926.html)
 - May 01 - [Man says his emotional support alligator, known for its big social media audience, has gone missing](https://www.yahoo.com/news/man-says-emotional-support-alligator-215618078.html)
 <!-- feed end -->
 
