@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - May 01 - [Scientists reveal the face of a Neanderthal who lived 75,000 years ago](https://www.yahoo.com/news/facial-reconstruction-reveals-40-something-230347509.html)
 - May 01 - [California superintendent fired for allegedly threatening students who didn't clap for her daughter](https://www.yahoo.com/news/california-superintendent-fired-allegedly-threatening-221746328.html)
 - May 01 - [The 1 Thing Colorectal Doctors Would Never Use On Their Butts](https://www.yahoo.com/lifestyle/1-thing-colorectal-doctors-never-221602926.html)
-- May 01 - [Employer of visiting nurse who was killed didn't protect her and should be fined, safety agency says](https://www.yahoo.com/news/employer-visiting-nurse-killed-didnt-212858760.html)
-- May 01 - [Gorilla Tells Little Boy at the Zoo to Stop Watching Him in the Most Hilarious Way](https://www.yahoo.com/lifestyle/gorilla-tells-little-boy-zoo-202053812.html)
+- May 01 - [Former Worthington Christian coach found dead after being accused of sexual contact with students, police say](https://www.yahoo.com/news/former-worthington-christian-coach-found-220312311.html)
+- May 01 - [Man says his emotional support alligator, known for its big social media audience, has gone missing](https://www.yahoo.com/news/man-says-emotional-support-alligator-215618078.html)
 <!-- feed end -->
 
 ### Onstream
