@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [Coinbase Delivers Major Earnings, Revenue Beat. But Analysts Are Mixed On Outlook.](https://www.investors.com/news/coinbase-stock-q1-earnings-beat-bitcoin-cryptocurrency/?src=A00220&yptr=yahoo)
+- May 03 - [Wall Street Analysts Expect Share Prices For These Dividend Stocks To Shoot Up By Over 50%](https://finance.yahoo.com/news/wall-street-analysts-expect-share-120414955.html)
 - May 03 - [A Remarkable New Thruster Could Achieve Escape Velocity—and Interplanetary Travel](https://www.yahoo.com/tech/remarkable-thruster-could-achieve-escape-113000852.html)
+- May 03 - [Laura Ingraham Not Pleased After CNN Airs Michael Cohen's Crude Nickname For Trump](https://www.yahoo.com/news/laura-ingraham-not-pleased-cnn-104542714.html)
+- May 03 - ['Folks, it's bad': Merced sheriff warns of public safety crisis as deputy vacancies mount](https://www.yahoo.com/news/folks-bad-merced-sheriff-warns-100057364.html)
 - May 03 - [German foreign minister says Russia will face consequences for cyberattack. NATO, EU show support](https://www.yahoo.com/news/german-foreign-minister-says-russia-081324595.html)
-- May 03 - [A murderous romance or a frame job? Things to know about Boston's Karen Read murder trial](https://www.yahoo.com/news/murderous-romance-frame-job-things-043201804.html)
-- May 03 - [Spine-Chilling Stories: Nurses Recall Ghostly Encounters And Supernatural Experiences While On Duty](https://www.yahoo.com/lifestyle/nurses-share-times-saw-ghost-021602900.html)
 <!-- feed end -->
 
 ### Onstream
