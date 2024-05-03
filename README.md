@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - ['Shark Tank' star Kevin O'Leary says pro-Palestinian student protesters are 'screwed' when they apply for jobs because employers will identify them through AI](https://www.yahoo.com/news/shark-tank-star-kevin-oleary-043734450.html)
 - May 02 - [Arkansas governor says state won't comply with new federal rules on treatment of trans students](https://www.yahoo.com/news/arkansas-governor-says-state-wont-232509054.html)
-- May 02 - [58-year-old Visalia teacher arrested after lewd acts with teen girl, police say](https://www.yahoo.com/news/58-old-visalia-teacher-arrested-212906537.html)
-- May 02 - [Apple's quarterly iPhone sales plunge 10%, but stock price surges on dividend, stock buyback news](https://finance.yahoo.com/news/apple-suffers-10-drop-quarterly-205157934.html)
-- May 02 - [Apple unveils record $110 billion buyback as results beat low expectations](https://finance.yahoo.com/news/apple-sales-fall-less-expected-203225502.html)
+- May 02 - [Las Vegas driver speeding at nearly 100 mph in deadly wrong-way crash: witness](https://www.yahoo.com/news/las-vegas-driver-speeding-nearly-204011220.html)
+- May 02 - [‘Rare’ ocean predator — with ‘blade-like teeth’ — seen off coast of UK, photo shows](https://www.yahoo.com/news/rare-ocean-predator-blade-teeth-195644252.html)
+- May 02 - [Russian troops enter base housing US military in Niger, US official says](https://www.yahoo.com/news/exclusive-russian-troops-enter-housing-191500800.html)
+- May 02 - [EVs are the most expensive vehicles to operate over 1,000 miles, according to iSeeCars](https://www.autoblog.com/article/evs-are-the-most-expensive-vehicles-to-operate-over-1000-miles-according-to-iseecars/)
 <!-- feed end -->
 
 ### Onstream
