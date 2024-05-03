@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 02 - [Arkansas governor says state won't comply with new federal rules on treatment of trans students](https://www.yahoo.com/news/arkansas-governor-says-state-wont-232509054.html)
+- May 02 - [Over 200 layoffs hit Charlotte-area medical supplier as it closes distribution center](https://finance.yahoo.com/news/over-200-layoffs-hit-charlotte-204021305.html)
 - May 02 - [Apple unveils record $110 billion buyback as results beat low expectations](https://finance.yahoo.com/news/apple-sales-fall-less-expected-203225502.html)
 - May 02 - [‘Rare’ ocean predator — with ‘blade-like teeth’ — seen off coast of UK, photo shows](https://www.yahoo.com/news/rare-ocean-predator-blade-teeth-195644252.html)
 - May 02 - [EVs are the most expensive vehicles to operate over 1,000 miles, according to iSeeCars](https://www.autoblog.com/article/evs-are-the-most-expensive-vehicles-to-operate-over-1000-miles-according-to-iseecars/)
-- May 02 - [US calls out Israel and Hamas after Gaza aid shipment attacked, diverted](https://www.yahoo.com/news/us-calls-israel-hamas-gaza-184329105.html)
 <!-- feed end -->
 
 ### Onstream
