@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 03 - [Topeka murderer, 37, receives sentence leaving him ineligible for parole until he's 85](https://www.yahoo.com/news/topeka-murderer-37-receives-sentence-172341723.html)
 - May 03 - [Lawyers for teen suing NBA star Ja Morant over a fight during a pickup game withdraw from the case](https://sports.yahoo.com/lawyers-teen-suing-nba-star-163804703.html)
-- May 03 - [Sandwiches stored in a bathroom and a rat problem: Latest Stanislaus County inspections](https://www.yahoo.com/news/sandwiches-stored-bathroom-rat-problem-160000011.html)
-- May 03 - [Toddler dies from overdose 3 weeks after return to parental custody, Florida cops say](https://www.yahoo.com/news/toddler-dies-overdose-3-weeks-153515570.html)
-- May 03 - [Spacecraft Takes Close Up Video of the Sun, Revealing Otherworldly Hellscape](https://www.yahoo.com/tech/spacecraft-takes-close-video-sun-145712777.html)
-- May 03 - [‘Mysterious’ purple lump found at ancient Roman ruins was once ‘worth more than gold’](https://www.yahoo.com/news/mysterious-purple-lump-found-ancient-135511629.html)
+- May 03 - [3 High-Yield Passive Real Estate Investments To Escape Market Volatility](https://finance.yahoo.com/news/3-high-yield-passive-real-162047633.html)
+- May 03 - [An AI-controlled fighter jet took the Air Force leader for a historic ride. What that means for war](https://www.yahoo.com/tech/ai-powered-fighter-jet-took-160120201.html)
+- May 03 - [6 Popular SUVs That Aren’t Worth the Cost — and 6 Affordable Alternatives](https://finance.yahoo.com/news/6-popular-suvs-aren-t-130042282.html)
 <!-- feed end -->
 
 ### Onstream
