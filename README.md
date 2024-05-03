@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Arkansas governor says state won't comply with new federal rules on treatment of trans students](https://www.yahoo.com/news/arkansas-governor-says-state-wont-232509054.html)
-- May 02 - [Las Vegas driver speeding at nearly 100 mph in deadly wrong-way crash: witness](https://www.yahoo.com/news/las-vegas-driver-speeding-nearly-204011220.html)
+- May 03 - [Estero planners ask entertainment hub developers for 'spectacular' design](https://www.yahoo.com/entertainment/estero-planners-ask-entertainment-hub-090214547.html)
+- May 03 - [Sanctions and hobbled economy pull rug from underneath Iran's traditional carpet weavers](https://www.yahoo.com/news/sanctions-hobbled-economy-pull-rug-084545842.html)
+- May 03 - [German foreign minister says Russia will face consequences for 'absolutely intolerable' cyberattack](https://www.yahoo.com/news/german-foreign-minister-says-russia-081324595.html)
 - May 02 - [‘Rare’ ocean predator — with ‘blade-like teeth’ — seen off coast of UK, photo shows](https://www.yahoo.com/news/rare-ocean-predator-blade-teeth-195644252.html)
 - May 02 - [Russian troops enter base housing US military in Niger, US official says](https://www.yahoo.com/news/exclusive-russian-troops-enter-housing-191500800.html)
-- May 02 - [EVs are the most expensive vehicles to operate over 1,000 miles, according to iSeeCars](https://www.autoblog.com/article/evs-are-the-most-expensive-vehicles-to-operate-over-1000-miles-according-to-iseecars/)
 <!-- feed end -->
 
 ### Onstream
