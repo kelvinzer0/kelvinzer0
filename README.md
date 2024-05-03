@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 03 - [King Charles III's Funeral Plans Reportedly Updated, as He's 'Very Unwell.' Here's What We Found](https://www.yahoo.com/news/king-charles-iiis-funeral-plans-205300425.html)
-- May 03 - [Rasmussen selected to lead Wisconsin Rapids Public Schools as next superintendent](https://www.yahoo.com/news/rasmussen-selected-lead-wisconsin-rapids-202901657.html)
-- May 03 - [Police release identities of those arrested during Portland State University protests](https://www.yahoo.com/news/police-release-identities-those-arrested-193106426.html)
+- May 03 - [Holt boys basketball coach Muhammad El-Amin arrested, suspended by district](https://www.yahoo.com/news/holt-boys-basketball-coach-muhammad-194923012.html)
+- May 03 - [New ruling reveals fate of middle school girls banned for protesting trans competitor](https://www.yahoo.com/news/ruling-reveals-fate-middle-school-193609369.html)
+- May 03 - [Judge says gun found in car of Myon Burrell, sentenced to life as teen, can be evidence in new case](https://www.yahoo.com/news/judge-says-gun-found-car-180907993.html)
 - May 03 - [Bodies found in Mexico where Australian, US tourists missing, sources say](https://www.yahoo.com/news/three-bodies-found-area-where-174727717.html)
-- May 03 - [Greene fires back after Fox News columnist calls her an ‘idiot’](https://www.yahoo.com/news/greene-fires-back-fox-news-171117920.html)
 <!-- feed end -->
 
 ### Onstream
