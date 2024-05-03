@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 02 - [Report: Hamas leader calls for changes to hostage deal proposal](https://www.yahoo.com/news/report-hamas-leader-calls-changes-221548588.html)
-- May 02 - [Apple’s $110 Billion Stock Buyback Plan is Largest in US History](https://finance.yahoo.com/news/apple-110-billion-stock-buyback-220603961.html)
-- May 02 - [5 Passive Income Streams That Outperform Traditional Jobs](https://finance.yahoo.com/news/5-passive-income-streams-outperform-203606165.html)
+- May 02 - [Former Appleton Police Department narcotics investigator convicted of felony for falsifying signatures](https://www.yahoo.com/news/former-appleton-police-department-narcotics-234440052.html)
+- May 02 - [Apple's quarterly iPhone sales plunge 10%, but stock price surges on dividend, stock buyback news](https://finance.yahoo.com/news/apple-suffers-10-drop-quarterly-205157934.html)
+- May 02 - [Las Vegas driver speeding at nearly 100 mph in deadly wrong-way crash: witness](https://www.yahoo.com/news/las-vegas-driver-speeding-nearly-204011220.html)
+- May 02 - [Apple unveils record $110 billion buyback as results beat low expectations](https://finance.yahoo.com/news/apple-sales-fall-less-expected-203225502.html)
 - May 02 - [‘Rare’ ocean predator — with ‘blade-like teeth’ — seen off coast of UK, photo shows](https://www.yahoo.com/news/rare-ocean-predator-blade-teeth-195644252.html)
-- May 02 - [Transgender Tennesseans want state's refusal to amend birth certificates declared unconstitutional](https://www.yahoo.com/news/transgender-tennesseans-want-states-refusal-191724713.html)
 <!-- feed end -->
 
 ### Onstream
