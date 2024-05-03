@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [This North Carolina woman ‘super commutes’ 500 miles every other week to save $2K — what’s driving this trend](https://finance.yahoo.com/news/north-carolina-woman-super-commutes-095800607.html)
-- May 03 - [German foreign minister says Russia will face consequences for 'absolutely intolerable' cyberattack](https://www.yahoo.com/news/german-foreign-minister-says-russia-081324595.html)
-- May 03 - ['Shark Tank' star Kevin O'Leary says pro-Palestinian student protesters are 'screwed' when they apply for jobs because employers will identify them through AI](https://www.yahoo.com/news/shark-tank-star-kevin-oleary-043734450.html)
-- May 02 - [Arkansas governor says state won't comply with new federal rules on treatment of trans students](https://www.yahoo.com/news/arkansas-governor-says-state-wont-232509054.html)
-- May 02 - [Apple unveils record $110 billion buyback as results beat low expectations](https://finance.yahoo.com/news/apple-sales-fall-less-expected-203225502.html)
+- May 03 - [Coinbase Delivers Major Earnings, Revenue Beat. But Analysts Are Mixed On Outlook.](https://www.investors.com/news/coinbase-stock-q1-earnings-beat-bitcoin-cryptocurrency/?src=A00220&yptr=yahoo)
+- May 03 - [A Remarkable New Thruster Could Achieve Escape Velocity—and Interplanetary Travel](https://www.yahoo.com/tech/remarkable-thruster-could-achieve-escape-113000852.html)
+- May 03 - [German foreign minister says Russia will face consequences for cyberattack. NATO, EU show support](https://www.yahoo.com/news/german-foreign-minister-says-russia-081324595.html)
+- May 03 - [A murderous romance or a frame job? Things to know about Boston's Karen Read murder trial](https://www.yahoo.com/news/murderous-romance-frame-job-things-043201804.html)
+- May 03 - [Spine-Chilling Stories: Nurses Recall Ghostly Encounters And Supernatural Experiences While On Duty](https://www.yahoo.com/lifestyle/nurses-share-times-saw-ghost-021602900.html)
 <!-- feed end -->
 
 ### Onstream
