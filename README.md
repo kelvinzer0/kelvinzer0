@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [Walk on beach turns grisly when human remains wash out of ocean, Florida sheriff says](https://www.yahoo.com/news/walk-beach-turns-grisly-human-133610588.html)
+- May 03 - [Boss Orders Employee 'Be Prepared To Cancel Or Reschedule Your Wedding' After Layoffs, Despite Her Giving A Year's Notice](https://finance.yahoo.com/news/boss-orders-employee-prepared-cancel-154913528.html)
+- May 03 - [‘Mysterious’ purple lump found at ancient Roman ruins was once ‘worth more than gold’](https://www.yahoo.com/news/mysterious-purple-lump-found-ancient-135511629.html)
+- May 03 - [China publicizes for the first time what it claims is a 2016 agreement with Philippines](https://www.yahoo.com/news/china-publicizes-first-time-claims-134521300.html)
+- May 03 - [10 Genius Things Jim Cramer Says To Do With Your Money](https://finance.yahoo.com/news/10-genius-things-jim-cramer-130011662.html)
 - May 03 - [Tesla vs. Tesla: US carmaker sues Indian namesake for copying trademark](https://finance.yahoo.com/news/tesla-vs-tesla-us-carmaker-114200415.html)
-- May 03 - [A Remarkable New Thruster Could Achieve Escape Velocity—and Interplanetary Travel](https://www.yahoo.com/tech/remarkable-thruster-could-achieve-escape-113000852.html)
-- May 03 - ['Folks, it's bad': Merced sheriff warns of public safety crisis as deputy vacancies mount](https://www.yahoo.com/news/folks-bad-merced-sheriff-warns-100057364.html)
-- May 03 - [Houthis offer education to students suspended in US protest crackdown](https://www.yahoo.com/news/houthis-offer-education-students-suspended-091321202.html)
 <!-- feed end -->
 
 ### Onstream
