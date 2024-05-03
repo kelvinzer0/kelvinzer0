@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [Estero planners ask entertainment hub developers for 'spectacular' design](https://www.yahoo.com/entertainment/estero-planners-ask-entertainment-hub-090214547.html)
-- May 03 - [Sanctions and hobbled economy pull rug from underneath Iran's traditional carpet weavers](https://www.yahoo.com/news/sanctions-hobbled-economy-pull-rug-084545842.html)
+- May 03 - [This North Carolina woman ‘super commutes’ 500 miles every other week to save $2K — what’s driving this trend](https://finance.yahoo.com/news/north-carolina-woman-super-commutes-095800607.html)
 - May 03 - [German foreign minister says Russia will face consequences for 'absolutely intolerable' cyberattack](https://www.yahoo.com/news/german-foreign-minister-says-russia-081324595.html)
-- May 02 - [‘Rare’ ocean predator — with ‘blade-like teeth’ — seen off coast of UK, photo shows](https://www.yahoo.com/news/rare-ocean-predator-blade-teeth-195644252.html)
-- May 02 - [Russian troops enter base housing US military in Niger, US official says](https://www.yahoo.com/news/exclusive-russian-troops-enter-housing-191500800.html)
+- May 03 - ['Shark Tank' star Kevin O'Leary says pro-Palestinian student protesters are 'screwed' when they apply for jobs because employers will identify them through AI](https://www.yahoo.com/news/shark-tank-star-kevin-oleary-043734450.html)
+- May 02 - [Arkansas governor says state won't comply with new federal rules on treatment of trans students](https://www.yahoo.com/news/arkansas-governor-says-state-wont-232509054.html)
+- May 02 - [Apple unveils record $110 billion buyback as results beat low expectations](https://finance.yahoo.com/news/apple-sales-fall-less-expected-203225502.html)
 <!-- feed end -->
 
 ### Onstream
