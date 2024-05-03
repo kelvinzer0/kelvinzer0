@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [Bodies found in Mexico where Australian, US tourists missing, sources say](https://www.yahoo.com/news/three-bodies-found-area-where-174727717.html)
-- May 03 - [Greene fires back after Fox News columnist calls her an ‘idiot’](https://www.yahoo.com/news/greene-fires-back-fox-news-171117920.html)
-- May 03 - [WWE COO Brad Blum Resigns From Company](https://www.yahoo.com/news/wwe-coo-brad-blum-resigns-170857511.html)
+- May 03 - [Larry Ellison bought an entire island and Jeff Bezos owns a $78 million property there, but eBay's reclusive founder is Hawaii's richest resident](https://finance.yahoo.com/news/larry-ellison-bought-entire-island-200243587.html)
+- May 03 - [Hope Hicks Wrecks Trump’s Hush-Money Defense Minutes Into Testimony](https://www.yahoo.com/news/hope-hicks-wrecks-trump-hush-192839608.html)
+- May 03 - [Bodies of three missing surfers found, Baja California authorities say](https://www.yahoo.com/news/bodies-three-missing-surfers-found-183703140.html)
 - May 03 - [Lawyers for teen suing NBA star Ja Morant over a fight during a pickup game withdraw from the case](https://sports.yahoo.com/lawyers-teen-suing-nba-star-163804703.html)
 - May 03 - [An AI-controlled fighter jet took the Air Force leader for a historic ride. What that means for war](https://www.yahoo.com/tech/ai-powered-fighter-jet-took-160120201.html)
 <!-- feed end -->
