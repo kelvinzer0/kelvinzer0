@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [2 boaters seen on viral video dumping trash overboard in Florida ocean are minors, an official says](https://www.yahoo.com/news/florida-boaters-seen-video-dumping-220005512.html)
 - May 02 - [Arkansas governor says state won't comply with new federal rules on treatment of trans students](https://www.yahoo.com/news/arkansas-governor-says-state-wont-232509054.html)
-- May 02 - [9 arrested, guns and drugs seized on Jacksonville’s Westside after citizen tip, sheriff says](https://www.yahoo.com/news/massive-drug-bust-results-anonymous-201738500.html)
-- May 02 - [Apple unveils record $110 billion buyback as results beat low expectations](https://finance.yahoo.com/news/apple-sales-fall-less-expected-203225502.html)
+- May 02 - [58-year-old Visalia teacher arrested after lewd acts with teen girl, police say](https://www.yahoo.com/news/58-old-visalia-teacher-arrested-212906537.html)
 - May 02 - [‘Rare’ ocean predator — with ‘blade-like teeth’ — seen off coast of UK, photo shows](https://www.yahoo.com/news/rare-ocean-predator-blade-teeth-195644252.html)
+- May 02 - [EVs are the most expensive vehicles to operate over 1,000 miles, according to iSeeCars](https://www.autoblog.com/article/evs-are-the-most-expensive-vehicles-to-operate-over-1000-miles-according-to-iseecars/)
+- May 02 - [US calls out Israel and Hamas after Gaza aid shipment attacked, diverted](https://www.yahoo.com/news/us-calls-israel-hamas-gaza-184329105.html)
 <!-- feed end -->
 
 ### Onstream
