@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [Wall Street Analysts Expect Share Prices For These Dividend Stocks To Shoot Up By Over 50%](https://finance.yahoo.com/news/wall-street-analysts-expect-share-120414955.html)
+- May 03 - [China publicizes for the first time what it claims is a 2016 agreement with Philippines](https://www.yahoo.com/news/china-publicizes-first-time-claims-134521300.html)
+- May 03 - [Constellations & the Zodiac: Unlocking Celestial Mysteries](https://www.yahoo.com/lifestyle/constellations-zodiac-unlocking-celestial-mysteries-133500068.html)
+- May 03 - [Yemen's Houthis say they will target ships heading for Israel anywhere within range](https://www.yahoo.com/news/yemens-houthis-target-ships-heading-132814938.html)
+- May 03 - [Tesla vs. Tesla: US carmaker sues Indian namesake for copying trademark](https://finance.yahoo.com/news/tesla-vs-tesla-us-carmaker-114200415.html)
 - May 03 - [A Remarkable New Thruster Could Achieve Escape Velocity—and Interplanetary Travel](https://www.yahoo.com/tech/remarkable-thruster-could-achieve-escape-113000852.html)
-- May 03 - [Laura Ingraham Not Pleased After CNN Airs Michael Cohen's Crude Nickname For Trump](https://www.yahoo.com/news/laura-ingraham-not-pleased-cnn-104542714.html)
-- May 03 - ['Folks, it's bad': Merced sheriff warns of public safety crisis as deputy vacancies mount](https://www.yahoo.com/news/folks-bad-merced-sheriff-warns-100057364.html)
-- May 03 - [German foreign minister says Russia will face consequences for cyberattack. NATO, EU show support](https://www.yahoo.com/news/german-foreign-minister-says-russia-081324595.html)
 <!-- feed end -->
 
 ### Onstream
