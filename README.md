@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [Topeka murderer, 37, receives sentence leaving him ineligible for parole until he's 85](https://www.yahoo.com/news/topeka-murderer-37-receives-sentence-172341723.html)
+- May 03 - [Greene fires back after Fox News columnist calls her an ‘idiot’](https://www.yahoo.com/news/greene-fires-back-fox-news-171117920.html)
 - May 03 - [Lawyers for teen suing NBA star Ja Morant over a fight during a pickup game withdraw from the case](https://sports.yahoo.com/lawyers-teen-suing-nba-star-163804703.html)
-- May 03 - [3 High-Yield Passive Real Estate Investments To Escape Market Volatility](https://finance.yahoo.com/news/3-high-yield-passive-real-162047633.html)
+- May 03 - [Three tourists go missing in violent Mexican state](https://www.yahoo.com/news/three-tourists-missing-violent-mexican-162425159.html)
 - May 03 - [An AI-controlled fighter jet took the Air Force leader for a historic ride. What that means for war](https://www.yahoo.com/tech/ai-powered-fighter-jet-took-160120201.html)
 - May 03 - [6 Popular SUVs That Aren’t Worth the Cost — and 6 Affordable Alternatives](https://finance.yahoo.com/news/6-popular-suvs-aren-t-130042282.html)
 <!-- feed end -->
