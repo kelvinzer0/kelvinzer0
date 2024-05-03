@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [China publicizes for the first time what it claims is a 2016 agreement with Philippines](https://www.yahoo.com/news/china-publicizes-first-time-claims-134521300.html)
-- May 03 - [Constellations & the Zodiac: Unlocking Celestial Mysteries](https://www.yahoo.com/lifestyle/constellations-zodiac-unlocking-celestial-mysteries-133500068.html)
-- May 03 - [Yemen's Houthis say they will target ships heading for Israel anywhere within range](https://www.yahoo.com/news/yemens-houthis-target-ships-heading-132814938.html)
+- May 03 - [Walk on beach turns grisly when human remains wash out of ocean, Florida sheriff says](https://www.yahoo.com/news/walk-beach-turns-grisly-human-133610588.html)
 - May 03 - [Tesla vs. Tesla: US carmaker sues Indian namesake for copying trademark](https://finance.yahoo.com/news/tesla-vs-tesla-us-carmaker-114200415.html)
 - May 03 - [A Remarkable New Thruster Could Achieve Escape Velocity—and Interplanetary Travel](https://www.yahoo.com/tech/remarkable-thruster-could-achieve-escape-113000852.html)
+- May 03 - ['Folks, it's bad': Merced sheriff warns of public safety crisis as deputy vacancies mount](https://www.yahoo.com/news/folks-bad-merced-sheriff-warns-100057364.html)
+- May 03 - [Houthis offer education to students suspended in US protest crackdown](https://www.yahoo.com/news/houthis-offer-education-students-suspended-091321202.html)
 <!-- feed end -->
 
 ### Onstream
