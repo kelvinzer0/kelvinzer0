@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 03 - [Boss Orders Employee 'Be Prepared To Cancel Or Reschedule Your Wedding' After Layoffs, Despite Her Giving A Year's Notice](https://finance.yahoo.com/news/boss-orders-employee-prepared-cancel-154913528.html)
+- May 03 - [Lawyers for teen suing NBA star Ja Morant over a fight during a pickup game withdraw from the case](https://sports.yahoo.com/lawyers-teen-suing-nba-star-163804703.html)
+- May 03 - [Sandwiches stored in a bathroom and a rat problem: Latest Stanislaus County inspections](https://www.yahoo.com/news/sandwiches-stored-bathroom-rat-problem-160000011.html)
+- May 03 - [Toddler dies from overdose 3 weeks after return to parental custody, Florida cops say](https://www.yahoo.com/news/toddler-dies-overdose-3-weeks-153515570.html)
+- May 03 - [Spacecraft Takes Close Up Video of the Sun, Revealing Otherworldly Hellscape](https://www.yahoo.com/tech/spacecraft-takes-close-video-sun-145712777.html)
 - May 03 - [‘Mysterious’ purple lump found at ancient Roman ruins was once ‘worth more than gold’](https://www.yahoo.com/news/mysterious-purple-lump-found-ancient-135511629.html)
-- May 03 - [China publicizes for the first time what it claims is a 2016 agreement with Philippines](https://www.yahoo.com/news/china-publicizes-first-time-claims-134521300.html)
-- May 03 - [10 Genius Things Jim Cramer Says To Do With Your Money](https://finance.yahoo.com/news/10-genius-things-jim-cramer-130011662.html)
-- May 03 - [Tesla vs. Tesla: US carmaker sues Indian namesake for copying trademark](https://finance.yahoo.com/news/tesla-vs-tesla-us-carmaker-114200415.html)
 <!-- feed end -->
 
 ### Onstream
