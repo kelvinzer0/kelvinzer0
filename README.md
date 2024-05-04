@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [Forget Altria: Could This Be the Safest Dividend Stock to Own?](https://finance.yahoo.com/news/forget-altria-could-safest-dividend-074700323.html)
-- May 04 - [It’s been two years since the UK’s poop-engulfed beaches became a national scandal. Now it’s even worse](https://www.yahoo.com/news/two-years-since-uk-poop-050029100.html)
+- May 04 - [China’s Shaolin monks are known for their incredible acrobatics. This photographer captured them in action](https://www.yahoo.com/lifestyle/china-shaolin-monks-known-incredible-015339171.html)
+- May 04 - [Pro-Palestinian protest at Ole Miss ends in heated confrontation](https://www.yahoo.com/news/pro-palestinian-protest-ole-miss-005446669.html)
+- May 03 - [A 64-year-old 'peak boomer' worries his savings and Social Security won't be enough to retire: 'My biggest fear is finding myself at 75 standing at the door at Walmart.'](https://finance.yahoo.com/news/64-old-peak-boomer-worries-205528900.html)
 - May 03 - [King Charles and UK royals to relinquish dozens of patronages](https://www.yahoo.com/news/king-charles-uk-royals-relinquish-231052468.html)
-- May 03 - [Trump closed his eyes during Hope Hicks’ testimony. Ex-’Apprentice’ contestant has theory why](https://www.yahoo.com/news/trump-closed-eyes-during-hope-222936823.html)
-- May 03 - [Does the ‘Tonganoxie Split’ protect Kansas City from tornadoes? We asked the experts](https://www.yahoo.com/news/does-tonganoxie-split-protect-kansas-212547131.html)
+- May 03 - [Fort Mill Strawberry Festival canceled for the first time in its 15-year history](https://www.yahoo.com/news/fort-mill-strawberry-festival-canceled-211753608.html)
 <!-- feed end -->
 
 ### Onstream
