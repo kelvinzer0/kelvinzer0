@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [‘I’m Still in Denial’: Tesla Layoffs Leave Interns High and Dry](https://finance.yahoo.com/news/m-still-denial-tesla-layoffs-005829261.html)
 - May 04 - [Congressman praises heckling of war protesters, including 1 who made monkey gestures at Black woman](https://www.yahoo.com/news/congressman-praises-heckling-war-protesters-005555713.html)
 - May 03 - [A 64-year-old 'peak boomer' worries his savings and Social Security won't be enough to retire: 'My biggest fear is finding myself at 75 standing at the door at Walmart.'](https://finance.yahoo.com/news/64-old-peak-boomer-worries-205528900.html)
 - May 03 - [King Charles and UK royals to relinquish dozens of patronages](https://www.yahoo.com/news/king-charles-uk-royals-relinquish-231052468.html)
+- May 03 - [Apple’s China sales tell a different story than what analysts have heard for months. Where is the disconnect?](https://finance.yahoo.com/news/apple-china-sales-tell-different-220809141.html)
 - May 03 - [King Charles III's Funeral Plans Reportedly Updated, as He's 'Very Unwell.' Here's What We Found](https://www.yahoo.com/news/king-charles-iiis-funeral-plans-205300425.html)
 <!-- feed end -->
 
