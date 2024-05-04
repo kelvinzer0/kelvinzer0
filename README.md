@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 04 - [Berkshire has record profit, cash soars to $189 billion as Apple stake sinks](https://finance.yahoo.com/news/berkshire-posts-record-operating-profit-121448596.html)
+- May 04 - [NJ woman was told by her parents to buy a cheap home for $250K — here’s what you can learn from her situation](https://finance.yahoo.com/news/nj-woman-told-her-parents-095700273.html)
 - May 04 - [NATO drills show it is preparing for potential conflict with Russia, Moscow says](https://www.yahoo.com/news/nato-drills-show-preparing-potential-094244906.html)
 - May 04 - [A Columbia professor wanted to document history. NYPD arrested him outside his home](https://www.yahoo.com/news/columbia-professor-wanted-document-history-091227222.html)
 - May 04 - [It’s been two years since the UK’s poop-engulfed beaches became a national scandal. Now it’s even worse](https://www.yahoo.com/news/two-years-since-uk-poop-050029100.html)
-- May 04 - [Storm chaser rescues family during live coverage of Texas tornado](https://www.yahoo.com/news/storm-chaser-rescues-family-during-030722068.html)
-- May 04 - [NV Supreme Court orders removal of Las Vegas judge from case](https://www.yahoo.com/news/nv-supreme-court-orders-removal-010906714.html)
 <!-- feed end -->
 
 ### Onstream
