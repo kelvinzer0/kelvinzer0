@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [Court allows Church of Jesus Christ of Latter-day Saints to join Heber Valley Temple lawsuit](https://www.yahoo.com/news/court-allows-church-jesus-christ-021433076.html)
 - May 04 - [China’s Shaolin monks are known for their incredible acrobatics. This photographer captured them in action](https://www.yahoo.com/lifestyle/china-shaolin-monks-known-incredible-015339171.html)
-- May 04 - [NV Supreme Court orders removal of Las Vegas judge from case](https://www.yahoo.com/news/nv-supreme-court-orders-removal-010906714.html)
 - May 04 - [Congressman praises heckling of war protesters, including 1 who made monkey gestures at Black woman](https://www.yahoo.com/news/congressman-praises-heckling-war-protesters-005555713.html)
 - May 03 - [King Charles and UK royals to relinquish dozens of patronages](https://www.yahoo.com/news/king-charles-uk-royals-relinquish-231052468.html)
+- May 03 - [Plan to steal from man in church parking lot turned deadly. Now Derby man will go to prison](https://www.yahoo.com/news/plan-steal-man-church-parking-224101079.html)
+- May 03 - [Man Caught Stealing $190,000 From Tesla Backseat: Cops](https://www.yahoo.com/news/man-caught-stealing-190-000-210802959.html)
 <!-- feed end -->
 
 ### Onstream
