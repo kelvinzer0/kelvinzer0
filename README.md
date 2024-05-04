@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [UK graduation runs smoothly. No mention of war in Palestine.](https://www.yahoo.com/news/uk-graduation-runs-smoothly-no-144546354.html)
+- May 04 - [Your body needs these three forms of movement every week](https://www.yahoo.com/lifestyle/body-needs-three-forms-movement-143028403.html)
 - May 04 - [A group of Republicans has united to defend the legitimacy of US elections and those who run them](https://www.yahoo.com/news/group-republicans-united-defend-legitimacy-123244498.html)
+- May 04 - [Berkshire pares huge Apple stake as cash, operating profit set records](https://finance.yahoo.com/news/berkshire-posts-record-operating-profit-121448596.html)
 - May 04 - [Scientists Say Underwater Cave So Deep They Can't Find the Bottom](https://www.yahoo.com/news/scientists-underwater-cave-deep-cant-110043617.html)
-- May 04 - [NATO drills show it is preparing for potential conflict with Russia, Moscow says](https://www.yahoo.com/news/nato-drills-show-preparing-potential-094244906.html)
-- May 04 - [A Columbia professor wanted to document history. NYPD arrested him outside his home](https://www.yahoo.com/news/columbia-professor-wanted-document-history-091227222.html)
+- May 04 - [‘I felt like I’d been baited and switched’: Florida woman has to sell house after property tax bill soars 174%](https://finance.yahoo.com/news/felt-d-baited-switched-florida-104200397.html)
 <!-- feed end -->
 
 ### Onstream
