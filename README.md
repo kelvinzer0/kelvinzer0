@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 04 - [Your body needs these three forms of movement every week](https://www.yahoo.com/lifestyle/body-needs-three-forms-movement-143028403.html)
 - May 04 - [A group of Republicans has united to defend the legitimacy of US elections and those who run them](https://www.yahoo.com/news/group-republicans-united-defend-legitimacy-123244498.html)
-- May 04 - [What did Morro Bay Power Plant look like when first built? Surprise: There was only 1 stack](https://www.yahoo.com/tech/did-morro-bay-power-plant-120000671.html)
-- May 04 - [Scientists Say Underwater Cave So Deep They Can't Find the Bottom](https://www.yahoo.com/news/scientists-underwater-cave-deep-cant-110043617.html)
-- May 04 - [‘I felt like I’d been baited and switched’: Florida woman has to sell house after property tax bill soars 174%](https://finance.yahoo.com/news/felt-d-baited-switched-florida-104200397.html)
+- May 04 - [Berkshire pares huge Apple stake as cash, operating profit set records](https://finance.yahoo.com/news/berkshire-posts-record-operating-profit-121448596.html)
+- May 04 - [There’s been a major shift in demographics at the border. Here’s what’s behind the change.](https://www.yahoo.com/news/world-changed-wechat-snakeheads-era-120000641.html)
+- May 04 - [Boat Hits Bridge and Capsizes Amid Catastrophic Flooding in Southern Brazil](https://www.yahoo.com/news/boat-hits-bridge-capsizes-amid-113541777.html)
 <!-- feed end -->
 
 ### Onstream
