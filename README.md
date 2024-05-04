@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [China’s Shaolin monks are known for their incredible acrobatics. This photographer captured them in action](https://www.yahoo.com/lifestyle/china-shaolin-monks-known-incredible-015339171.html)
+- May 04 - [It’s been two years since the UK’s poop-engulfed beaches became a national scandal. Now it’s even worse](https://www.yahoo.com/news/two-years-since-uk-poop-050029100.html)
 - May 04 - [Congressman praises heckling of war protesters, including 1 who made monkey gestures at Black woman](https://www.yahoo.com/news/congressman-praises-heckling-war-protesters-005555713.html)
+- May 03 - [A 64-year-old 'peak boomer' worries his savings and Social Security won't be enough to retire: 'My biggest fear is finding myself at 75 standing at the door at Walmart.'](https://finance.yahoo.com/news/64-old-peak-boomer-worries-205528900.html)
+- May 03 - [UC Berkeley opens civil rights investigation into backyard confrontation between a law professor and a student](https://www.yahoo.com/news/uc-berkeley-opens-civil-rights-235042745.html)
 - May 03 - [King Charles and UK royals to relinquish dozens of patronages](https://www.yahoo.com/news/king-charles-uk-royals-relinquish-231052468.html)
-- May 03 - [Plan to steal from man in church parking lot turned deadly. Now Derby man will go to prison](https://www.yahoo.com/news/plan-steal-man-church-parking-224101079.html)
-- May 03 - [Man Caught Stealing $190,000 From Tesla Backseat: Cops](https://www.yahoo.com/news/man-caught-stealing-190-000-210802959.html)
 <!-- feed end -->
 
 ### Onstream
