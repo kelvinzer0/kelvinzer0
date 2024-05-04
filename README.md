@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 04 - [Many Are Seriously Speculating That Barron Trump May Decide His College Thanks to One Factor](https://www.yahoo.com/entertainment/many-seriously-speculating-barron-trump-175800501.html)
 - May 04 - [Your body needs these three forms of movement every week](https://www.yahoo.com/lifestyle/body-needs-three-forms-movement-143028403.html)
 - May 04 - [A group of Republicans has united to defend the legitimacy of US elections and those who run them](https://www.yahoo.com/news/group-republicans-united-defend-legitimacy-123244498.html)
 - May 04 - [Berkshire pares huge Apple stake as cash, operating profit set records](https://finance.yahoo.com/news/berkshire-posts-record-operating-profit-121448596.html)
 - May 04 - [There’s been a major shift in demographics at the border. Here’s what’s behind the change.](https://www.yahoo.com/news/world-changed-wechat-snakeheads-era-120000641.html)
-- May 04 - [Boat Hits Bridge and Capsizes Amid Catastrophic Flooding in Southern Brazil](https://www.yahoo.com/news/boat-hits-bridge-capsizes-amid-113541777.html)
 <!-- feed end -->
 
 ### Onstream
