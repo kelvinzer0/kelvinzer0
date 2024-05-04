@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [After six days, North Bend zebra finally corralled, but method questioned by locals](https://www.yahoo.com/news/six-days-north-bend-zebra-052834914.html)
-- May 04 - [‘I feel personally violated’: PSU students lament ruined library after protests](https://www.yahoo.com/news/feel-personally-violated-psu-students-051711968.html)
 - May 04 - [It’s been two years since the UK’s poop-engulfed beaches became a national scandal. Now it’s even worse](https://www.yahoo.com/news/two-years-since-uk-poop-050029100.html)
 - May 04 - [Congressman praises heckling of war protesters, including 1 who made monkey gestures at Black woman](https://www.yahoo.com/news/congressman-praises-heckling-war-protesters-005555713.html)
 - May 03 - [King Charles and UK royals to relinquish dozens of patronages](https://www.yahoo.com/news/king-charles-uk-royals-relinquish-231052468.html)
+- May 03 - [Trump closed his eyes during Hope Hicks’ testimony. Ex-’Apprentice’ contestant has theory why](https://www.yahoo.com/news/trump-closed-eyes-during-hope-222936823.html)
+- May 03 - [Does the ‘Tonganoxie Split’ protect Kansas City from tornadoes? We asked the experts](https://www.yahoo.com/news/does-tonganoxie-split-protect-kansas-212547131.html)
 <!-- feed end -->
 
 ### Onstream
