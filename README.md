@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 05 - [SLO County could get even more rain, with temps warming back up by the end of the week](https://www.yahoo.com/news/slo-county-could-even-more-120000961.html)
+- May 05 - [Who will be dumb enough to become Donald Trump's vice president?](https://www.yahoo.com/news/dumb-enough-become-donald-trumps-091555749.html)
 - May 05 - [Congress voted against funding a cure for cancer just to block a win for Biden](https://www.yahoo.com/news/congress-voted-against-funding-cure-090938329.html)
-- May 05 - [Captain jailed for jumping overboard during fire leaving 34 to die trapped below deck](https://www.yahoo.com/news/captain-jailed-jumping-overboard-during-070000362.html)
 - May 05 - [A driver dies after crashing into a security barrier around the White House complex, authorities say](https://www.yahoo.com/news/driver-dies-crashing-white-house-063506777.html)
-- May 05 - [New poll uncovers what nearly 70% of Americans believe the US should do immediately to curb rising temperatures: 'There's a sense of urgency'](https://www.yahoo.com/news/poll-uncovers-nearly-70-americans-060021771.html)
 - May 05 - [With a vest and a voice, helpers escort kids through San Francisco’s broken Tenderloin streets](https://www.yahoo.com/news/vest-voice-helpers-escort-kids-053602955.html)
 <!-- feed end -->
 
