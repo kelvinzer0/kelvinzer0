@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Local elections live: Rishi Sunak warned not to drift to right after disastrous results](https://www.yahoo.com/news/live/local-election-results-live-updates-rishi-sunak-072637649.html)
-- May 05 - [Infected blood death stigma drove widow and son overseas](https://www.yahoo.com/news/infected-blood-death-stigma-drove-071147423.html)
+- May 05 - [Foxconn reiterates Q2 revenue to grow, posts record April sales](https://finance.yahoo.com/news/foxconn-reiterates-q2-revenue-grow-080339864.html)
 - May 05 - [As Putin begins another 6-year term, he is entering a new era of extraordinary power in Russia](https://www.yahoo.com/news/putin-begins-another-6-term-045216046.html)
-- May 05 - [Emergency workers respond to hundreds of calls during busy weekend in Nashville](https://www.yahoo.com/news/emergency-workers-respond-hundreds-calls-042127390.html)
 - May 04 - [Berkshire's profit plunges 64% on portfolio holdings as Buffett sells Apple](https://finance.yahoo.com/news/berkshires-profit-plunges-64-portfolio-184345139.html)
+- May 04 - [Australian MP drugged and sexually assaulted on night out](https://www.yahoo.com/news/australian-mp-drugged-sexually-assaulted-180407098.html)
+- May 04 - [Potentially Habitable Super-Earth Has Water Vapor in Atmosphere](https://www.yahoo.com/news/potentially-habitable-super-earth-water-150000546.html)
 <!-- feed end -->
 
 ### Onstream
