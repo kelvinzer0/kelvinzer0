@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Kenan Thompson is supportive of college protests as long as they don’t involve his daughter in ‘SNL’ cold open](https://www.yahoo.com/entertainment/kenan-thompson-supportive-college-protests-061259205.html)
-- May 04 - [Interstate 80 closes after multiple spinouts on snowy roads](https://www.yahoo.com/news/interstate-80-closes-multiple-spinouts-214147470.html)
+- May 05 - [Local elections live: Rishi Sunak warned not to drift to right after disastrous results](https://www.yahoo.com/news/live/local-election-results-live-updates-rishi-sunak-072637649.html)
+- May 05 - [Infected blood death stigma drove widow and son overseas](https://www.yahoo.com/news/infected-blood-death-stigma-drove-071147423.html)
+- May 05 - [As Putin begins another 6-year term, he is entering a new era of extraordinary power in Russia](https://www.yahoo.com/news/putin-begins-another-6-term-045216046.html)
+- May 05 - [Emergency workers respond to hundreds of calls during busy weekend in Nashville](https://www.yahoo.com/news/emergency-workers-respond-hundreds-calls-042127390.html)
 - May 04 - [Berkshire's profit plunges 64% on portfolio holdings as Buffett sells Apple](https://finance.yahoo.com/news/berkshires-profit-plunges-64-portfolio-184345139.html)
-- May 04 - [Your body needs these three forms of movement every week](https://www.yahoo.com/lifestyle/body-needs-three-forms-movement-143028403.html)
-- May 04 - [A group of Republicans has united to defend the legitimacy of US elections and those who run them](https://www.yahoo.com/news/group-republicans-united-defend-legitimacy-123244498.html)
 <!-- feed end -->
 
 ### Onstream
