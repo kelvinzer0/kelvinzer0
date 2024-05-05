@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Letters to the Editor: It's not antisemitic to protest Israel's brutal war or its far-right government](https://www.yahoo.com/news/letters-editor-not-antisemitic-protest-100049730.html)
+- May 05 - [Congress voted against funding a cure for cancer just to block a win for Biden](https://www.yahoo.com/news/congress-voted-against-funding-cure-090938329.html)
+- May 05 - [Captain jailed for jumping overboard during fire leaving 34 to die trapped below deck](https://www.yahoo.com/news/captain-jailed-jumping-overboard-during-070000362.html)
+- May 05 - [A driver dies after crashing into a security barrier around the White House complex, authorities say](https://www.yahoo.com/news/driver-dies-crashing-white-house-063506777.html)
+- May 05 - [New poll uncovers what nearly 70% of Americans believe the US should do immediately to curb rising temperatures: 'There's a sense of urgency'](https://www.yahoo.com/news/poll-uncovers-nearly-70-americans-060021771.html)
 - May 05 - [With a vest and a voice, helpers escort kids through San Francisco’s broken Tenderloin streets](https://www.yahoo.com/news/vest-voice-helpers-escort-kids-053602955.html)
-- May 05 - [As Putin begins another 6-year term, he is entering a new era of extraordinary power in Russia](https://www.yahoo.com/news/putin-begins-another-6-term-045216046.html)
-- May 04 - [I Manage Money For Millionaires: 3 Things Wealthy Americans Never Spend Their Money On — and Two Things They Shouldn’t](https://finance.yahoo.com/news/manage-money-millionaires-3-things-202845879.html)
-- May 04 - [Police: NH woman arrested for driving over 110mph with unbuckled children](https://www.yahoo.com/news/police-nh-woman-arrested-driving-192645597.html)
 <!-- feed end -->
 
 ### Onstream
