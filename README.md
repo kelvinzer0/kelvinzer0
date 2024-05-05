@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Mexican authorities say thieves killed 2 Australians and an American to steal their truck](https://www.yahoo.com/news/mexican-authorities-thieves-killed-2-194354645.html)
+- May 05 - [Ohio State graduates show solidarity for Palestine, tragedy over death during commencement](https://www.yahoo.com/news/ohio-state-graduates-show-solidarity-220432757.html)
+- May 05 - [Thieves apparently killed 2 Australians and American to steal their truck, Mexican authorities say](https://www.yahoo.com/news/mexican-authorities-thieves-killed-2-194354645.html)
+- May 05 - [SPRING STORM: Road weather alerts issued ahead of statewide spring mountain snowstorm](https://www.yahoo.com/news/spring-storm-road-weather-alerts-194231432.html)
 - May 05 - [Woman arrested after baby has cardiac arrest at Legoland](https://www.yahoo.com/news/woman-arrested-baby-cardiac-arrest-190603554.html)
 - May 05 - [One dead at Ohio State University graduation after fall from stadium](https://www.yahoo.com/news/one-dead-ohio-state-university-170627880.html)
-- May 05 - [7 Things To Know If You Withdraw More Than $10,000 From Your Checking Account](https://finance.yahoo.com/news/7-things-know-withdraw-more-110115992.html)
-- May 05 - [Texas man wants court order to investigate woman’s out-of-state abortion](https://www.yahoo.com/news/texas-man-wants-court-order-162842834.html)
 <!-- feed end -->
 
 ### Onstream
