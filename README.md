@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [7 Things the Middle Class Won’t Be Able To Afford in the Next 5 Years](https://finance.yahoo.com/news/7-things-middle-class-won-150007805.html)
-- May 04 - [Russia puts Ukrainian President Zelenskyy on its wanted list](https://www.yahoo.com/news/russia-puts-ukrainian-president-zelenskyy-160957677.html)
-- May 04 - [Potentially Habitable Super-Earth Has Water Vapor in Atmosphere](https://www.yahoo.com/news/potentially-habitable-super-earth-water-150000546.html)
+- May 05 - [Kenan Thompson is supportive of college protests as long as they don’t involve his daughter in ‘SNL’ cold open](https://www.yahoo.com/entertainment/kenan-thompson-supportive-college-protests-061259205.html)
+- May 04 - [Interstate 80 closes after multiple spinouts on snowy roads](https://www.yahoo.com/news/interstate-80-closes-multiple-spinouts-214147470.html)
+- May 04 - [Berkshire's profit plunges 64% on portfolio holdings as Buffett sells Apple](https://finance.yahoo.com/news/berkshires-profit-plunges-64-portfolio-184345139.html)
 - May 04 - [Your body needs these three forms of movement every week](https://www.yahoo.com/lifestyle/body-needs-three-forms-movement-143028403.html)
 - May 04 - [A group of Republicans has united to defend the legitimacy of US elections and those who run them](https://www.yahoo.com/news/group-republicans-united-defend-legitimacy-123244498.html)
 <!-- feed end -->
