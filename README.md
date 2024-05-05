@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Israeli cable provider halts Al Jazeera broadcasts, citing government ban](https://www.yahoo.com/news/israel-says-humanitarian-crossing-gaza-121909233.html)
+- May 05 - [JSO: Man shot in foot after 2 unknown suspects pull gun, machete on him in argument](https://www.yahoo.com/news/jso-investigating-shooting-ribault-neighborhood-121753919.html)
+- May 05 - [Israel closes Gaza crossing after Hamas attack and vows military operation 'in the very near future'](https://www.yahoo.com/news/israel-says-humanitarian-crossing-gaza-121909233.html)
 - May 05 - [Hamas armed wing says responsible for Israel-Gaza border crossing attack](https://www.yahoo.com/news/hamas-claims-responsibility-attack-israel-120541105.html)
+- May 05 - [Here's What the Average Gen Xer Has Saved for Retirement. The Number Might Surprise You](https://finance.yahoo.com/news/heres-average-gen-xer-saved-100800765.html)
 - May 05 - [Who will be dumb enough to become Donald Trump's vice president?](https://www.yahoo.com/news/dumb-enough-become-donald-trumps-091555749.html)
-- May 05 - [Congress voted against funding a cure for cancer just to block a win for Biden](https://www.yahoo.com/news/congress-voted-against-funding-cure-090938329.html)
-- May 05 - [U.S. Money Supply Is Doing Something So Rare That It Hasn't Happened Since the Great Depression -- and a Big Move in Stocks May Follow](https://finance.yahoo.com/news/u-money-supply-doing-something-090600820.html)
 <!-- feed end -->
 
 ### Onstream
