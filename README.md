@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 04 - [Interstate 80 closes after multiple spinouts on snowy roads](https://www.yahoo.com/news/interstate-80-closes-multiple-spinouts-214147470.html)
-- May 04 - [Police: NH woman arrested for driving over 110mph with unbuckled children](https://www.yahoo.com/news/police-nh-woman-arrested-driving-192645597.html)
+- May 04 - [Australian MP drugged and sexually assaulted on night out](https://www.yahoo.com/news/australian-mp-drugged-sexually-assaulted-180407098.html)
+- May 04 - [Chicago police seek man who dragged woman into alley, attempted to sexually abuse her](https://www.yahoo.com/news/chicago-police-seek-man-dragged-173731026.html)
+- May 04 - [Man accused of shooting as customers wait to buy bourbon at Buffalo Trace Distillery](https://www.yahoo.com/news/man-accused-shooting-customers-wait-172331322.html)
 - May 04 - [Russia puts Ukrainian President Zelenskyy on its wanted list](https://www.yahoo.com/news/russia-puts-ukrainian-president-zelenskyy-160957677.html)
-- May 04 - [Your body needs these three forms of movement every week](https://www.yahoo.com/lifestyle/body-needs-three-forms-movement-143028403.html)
-- May 04 - [A group of Republicans has united to defend the legitimacy of US elections and those who run them](https://www.yahoo.com/news/group-republicans-united-defend-legitimacy-123244498.html)
+- May 04 - [Potentially Habitable Super-Earth Has Water Vapor in Atmosphere](https://www.yahoo.com/news/potentially-habitable-super-earth-water-150000546.html)
 <!-- feed end -->
 
 ### Onstream
