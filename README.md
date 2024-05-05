@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 05 - [Letters to the Editor: It's not antisemitic to protest Israel's brutal war or its far-right government](https://www.yahoo.com/news/letters-editor-not-antisemitic-protest-100049730.html)
+- May 05 - [With a vest and a voice, helpers escort kids through San Francisco’s broken Tenderloin streets](https://www.yahoo.com/news/vest-voice-helpers-escort-kids-053602955.html)
 - May 05 - [As Putin begins another 6-year term, he is entering a new era of extraordinary power in Russia](https://www.yahoo.com/news/putin-begins-another-6-term-045216046.html)
 - May 04 - [I Manage Money For Millionaires: 3 Things Wealthy Americans Never Spend Their Money On — and Two Things They Shouldn’t](https://finance.yahoo.com/news/manage-money-millionaires-3-things-202845879.html)
-- May 04 - [Russia puts Ukrainian President Zelenskyy on its wanted list](https://www.yahoo.com/news/russia-puts-ukrainian-president-zelenskyy-160957677.html)
-- May 04 - [Your body needs these three forms of movement every week](https://www.yahoo.com/lifestyle/body-needs-three-forms-movement-143028403.html)
-- May 04 - [The moment Trump defied gravity is coming back to haunt him](https://www.yahoo.com/news/moment-trump-defied-gravity-coming-130029582.html)
+- May 04 - [Police: NH woman arrested for driving over 110mph with unbuckled children](https://www.yahoo.com/news/police-nh-woman-arrested-driving-192645597.html)
 <!-- feed end -->
 
 ### Onstream
