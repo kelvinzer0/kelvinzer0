@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [JSO: Man shot in foot after 2 unknown suspects pull gun, machete on him in argument](https://www.yahoo.com/news/jso-investigating-shooting-ribault-neighborhood-121753919.html)
-- May 05 - [Israel closes Gaza crossing after Hamas attack and vows military operation 'in the very near future'](https://www.yahoo.com/news/israel-says-humanitarian-crossing-gaza-121909233.html)
+- May 05 - [Russia rains rockets on Orthodox Easter celebrations](https://www.yahoo.com/news/russia-rains-rockets-orthodox-easter-155447420.html)
+- May 05 - [Floods in southern Brazil kill at least 60, with 101 people missing](https://www.yahoo.com/news/floods-southern-brazil-kill-least-152735213.html)
+- May 05 - [How to watch the first crewed flight of Boeing’s long-awaited Starliner spacecraft](https://www.yahoo.com/tech/watch-first-crewed-flight-boeing-143028307.html)
 - May 05 - [Hamas armed wing says responsible for Israel-Gaza border crossing attack](https://www.yahoo.com/news/hamas-claims-responsibility-attack-israel-120541105.html)
-- May 05 - [Here's What the Average Gen Xer Has Saved for Retirement. The Number Might Surprise You](https://finance.yahoo.com/news/heres-average-gen-xer-saved-100800765.html)
-- May 05 - [Who will be dumb enough to become Donald Trump's vice president?](https://www.yahoo.com/news/dumb-enough-become-donald-trumps-091555749.html)
+- May 05 - [Arnold Schwarzenegger reveals how he made millions before becoming a movie star — and it wasn’t from bodybuilding](https://finance.yahoo.com/news/arnold-schwarzenegger-reveals-made-millions-111100613.html)
 <!-- feed end -->
 
 ### Onstream
