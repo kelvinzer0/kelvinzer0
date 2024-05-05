@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 05 - [Mexican authorities say thieves killed 2 Australians and an American to steal their truck](https://www.yahoo.com/news/mexican-authorities-thieves-killed-2-194354645.html)
 - May 05 - [Woman arrested after baby has cardiac arrest at Legoland](https://www.yahoo.com/news/woman-arrested-baby-cardiac-arrest-190603554.html)
-- May 05 - [‘We’re not leaving nobody behind’: Resident vows to save neighbors refusing to evacuate](https://www.yahoo.com/news/not-leaving-nobody-behind-resident-131955055.html)
-- May 05 - [Story Claims Toddler Went Missing for 2 Days Until a Veterinarian Checked Her Pit Bull. Here's the Truth](https://www.yahoo.com/entertainment/story-claims-toddler-went-missing-180000821.html)
 - May 05 - [One dead at Ohio State University graduation after fall from stadium](https://www.yahoo.com/news/one-dead-ohio-state-university-170627880.html)
-- May 05 - [Tesla Has a New Model. It Should Boost Sales.](https://www.barrons.com/articles/tesla-new-model-boost-sales-ef86b720?siteid=yhoof2&yptr=yahoo)
+- May 05 - [Texas man wants court order to investigate woman’s out-of-state abortion](https://www.yahoo.com/news/texas-man-wants-court-order-162842834.html)
+- May 05 - [The FDIC change that leaves wealthy bank depositors with less protection](https://finance.yahoo.com/news/the-fdic-change-that-leaves-wealthy-bank-depositors-with-less-protection-160017344.html)
 <!-- feed end -->
 
 ### Onstream
