@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Foxconn reiterates Q2 revenue to grow, posts record April sales](https://finance.yahoo.com/news/foxconn-reiterates-q2-revenue-grow-080339864.html)
 - May 05 - [As Putin begins another 6-year term, he is entering a new era of extraordinary power in Russia](https://www.yahoo.com/news/putin-begins-another-6-term-045216046.html)
-- May 04 - [Berkshire's profit plunges 64% on portfolio holdings as Buffett sells Apple](https://finance.yahoo.com/news/berkshires-profit-plunges-64-portfolio-184345139.html)
-- May 04 - [Australian MP drugged and sexually assaulted on night out](https://www.yahoo.com/news/australian-mp-drugged-sexually-assaulted-180407098.html)
-- May 04 - [Potentially Habitable Super-Earth Has Water Vapor in Atmosphere](https://www.yahoo.com/news/potentially-habitable-super-earth-water-150000546.html)
+- May 04 - [I Manage Money For Millionaires: 3 Things Wealthy Americans Never Spend Their Money On — and Two Things They Shouldn’t](https://finance.yahoo.com/news/manage-money-millionaires-3-things-202845879.html)
+- May 04 - [Russia puts Ukrainian President Zelenskyy on its wanted list](https://www.yahoo.com/news/russia-puts-ukrainian-president-zelenskyy-160957677.html)
+- May 04 - [Your body needs these three forms of movement every week](https://www.yahoo.com/lifestyle/body-needs-three-forms-movement-143028403.html)
+- May 04 - [The moment Trump defied gravity is coming back to haunt him](https://www.yahoo.com/news/moment-trump-defied-gravity-coming-130029582.html)
 <!-- feed end -->
 
 ### Onstream
