@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [SLO County could get even more rain, with temps warming back up by the end of the week](https://www.yahoo.com/news/slo-county-could-even-more-120000961.html)
+- May 05 - [Israeli cable provider halts Al Jazeera broadcasts, citing government ban](https://www.yahoo.com/news/israel-says-humanitarian-crossing-gaza-121909233.html)
+- May 05 - [Hamas armed wing says responsible for Israel-Gaza border crossing attack](https://www.yahoo.com/news/hamas-claims-responsibility-attack-israel-120541105.html)
 - May 05 - [Who will be dumb enough to become Donald Trump's vice president?](https://www.yahoo.com/news/dumb-enough-become-donald-trumps-091555749.html)
 - May 05 - [Congress voted against funding a cure for cancer just to block a win for Biden](https://www.yahoo.com/news/congress-voted-against-funding-cure-090938329.html)
-- May 05 - [A driver dies after crashing into a security barrier around the White House complex, authorities say](https://www.yahoo.com/news/driver-dies-crashing-white-house-063506777.html)
-- May 05 - [With a vest and a voice, helpers escort kids through San Francisco’s broken Tenderloin streets](https://www.yahoo.com/news/vest-voice-helpers-escort-kids-053602955.html)
+- May 05 - [U.S. Money Supply Is Doing Something So Rare That It Hasn't Happened Since the Great Depression -- and a Big Move in Stocks May Follow](https://finance.yahoo.com/news/u-money-supply-doing-something-090600820.html)
 <!-- feed end -->
 
 ### Onstream
