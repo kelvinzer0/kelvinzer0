@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 05 - [Story Claims Toddler Went Missing for 2 Days Until a Veterinarian Checked Her Pit Bull. Here's the Truth](https://www.yahoo.com/entertainment/story-claims-toddler-went-missing-180000821.html)
+- May 05 - [Netflix is removing all of these movies and TV shows this month](https://www.yahoo.com/news/netflix-remove-large-selection-movies-100515307.html)
 - May 05 - [7 Things To Know If You Withdraw More Than $10,000 From Your Checking Account](https://finance.yahoo.com/news/7-things-know-withdraw-more-110115992.html)
-- May 05 - [Wisconsin eighth grader takes the wheel of his school bus after driver loses consciousness](https://www.yahoo.com/news/wisconsin-eighth-grader-takes-wheel-162807506.html)
 - May 05 - [The FDIC change that leaves wealthy bank depositors with less protection](https://finance.yahoo.com/news/the-fdic-change-that-leaves-wealthy-bank-depositors-with-less-protection-160017344.html)
 - May 05 - [Complaints, objections swept aside as 15-year-old girl claims record for 101-pound catfish](https://sports.yahoo.com/complaints-objections-swept-aside-15-151200293.html)
-- May 05 - [Hamas kingpin holed up deep below Gaza, surrounded by hostages used as human shields, says expert](https://www.yahoo.com/news/hamas-kingpin-holed-deep-below-145149696.html)
 <!-- feed end -->
 
 ### Onstream
