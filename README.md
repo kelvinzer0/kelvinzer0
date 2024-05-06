@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Legendary Arkansas Trooper Shows Tremendous Empathy](https://autos.yahoo.com/legendary-arkansas-trooper-shows-tremendous-170000772.html)
-- May 06 - [Owner of five hospitals in South Florida files for bankruptcy. Will it affect you?](https://finance.yahoo.com/news/owner-five-hospitals-south-florida-165939357.html)
-- May 06 - [Boca Bash trash dumping: Parents of teen involved issues apology, seek community service](https://www.yahoo.com/news/boca-bash-trash-dumping-parents-165939418.html)
+- May 06 - [University of Iowa police shuts down attempted Israel-Hamas war protest encampment](https://www.yahoo.com/news/university-iowa-police-shuts-down-181626780.html)
+- May 06 - [Fact Check: Photos Purportedly Show Trump Supporters Wearing Diapers at Rallies. Here's What We Found](https://www.yahoo.com/news/fact-check-photos-purportedly-show-174100807.html)
+- May 06 - [Trump Tries Desperate Excuse to Avoid Testifying in Hush-Money Trial](https://www.yahoo.com/news/trump-tries-desperate-excuse-avoid-165850525.html)
 - May 06 - [Paulina Porizkova, 59, is 'shocked by the absence of pain' 3 months after double hip replacement — here's what to know about the surgery](https://www.yahoo.com/lifestyle/paulina-porizkova-59-is-shocked-by-the-absence-of-pain-3-months-after-double-hip-replacement--heres-what-to-know-about-the-surgery-163408460.html)
-- May 06 - [I'm A Spine Doctor — Here's 1 Thing I'd Never, Ever Do If I Had Back Pain](https://www.yahoo.com/lifestyle/im-spine-doctor-heres-1-161602765.html)
+- May 06 - [Watch an exploding Ukrainian drone boat dodge fire from the air to kill one of the small, high-speed Russian ships still fighting in the Black Sea](https://www.yahoo.com/news/watch-exploding-ukrainian-drone-boat-162636556.html)
 <!-- feed end -->
 
 ### Onstream
