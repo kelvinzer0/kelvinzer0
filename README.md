@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Black voters won a big victory in Louisiana. Some White voters said it violated their ‘personal dignity’](https://www.yahoo.com/news/black-voters-won-big-victory-090028887.html)
-- May 06 - [Study to recommend whether five Central Jersey school districts should regionalize](https://www.yahoo.com/news/study-recommend-whether-five-central-085732488.html)
-- May 06 - [Russia announces nuclear weapon drills after angry exchange with senior Western officials](https://www.yahoo.com/news/russia-announces-nuclear-weapon-drills-081031240.html)
-- May 06 - [Jen Psaki Recalls Shock At Hope Hicks' 'Major Question' For Her After Trump 2016 Win](https://www.yahoo.com/news/jen-psaki-recalls-shock-hope-080013441.html)
-- May 06 - [Key rocket launch set for Monday: What to know about the Boeing Starliner carrying 2 astronauts](https://www.yahoo.com/tech/key-rocket-launch-set-monday-070206816.html)
+- May 06 - [Can you keep a loaded gun in your car in SC? Here’s what the law and officials say](https://www.yahoo.com/news/keep-loaded-gun-car-sc-103000565.html)
+- May 06 - [City of Abilene slapped with another APD-related lawsuit](https://www.yahoo.com/news/city-abilene-slapped-another-apd-100400671.html)
+- May 06 - [Satellite images show Russia no longer using Crimean bridge to supply troops in Ukraine](https://www.yahoo.com/news/satellite-images-show-russia-no-093811228.html)
+- May 06 - [House set to vote on Marjorie Taylor Greene effort to remove Mike Johnson](https://www.yahoo.com/news/house-set-vote-marjorie-taylor-100037516.html)
+- May 06 - [Donald Trump puts America on notice again: If he loses, he won't go quietly](https://www.yahoo.com/news/donald-trump-puts-america-notice-100022877.html)
 <!-- feed end -->
 
 ### Onstream
