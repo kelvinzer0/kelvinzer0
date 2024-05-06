@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Man arrested after shooting pregnant woman in road rage crash, Manatee deputies say](https://www.yahoo.com/news/man-arrested-shooting-pregnant-woman-145436406.html)
-- May 06 - [El Pollo Loco Holdings, Inc. (NASDAQ:LOCO) Q1 2024 Earnings Call Transcript](https://finance.yahoo.com/news/el-pollo-loco-holdings-inc-144437215.html)
-- May 06 - [Female prison guard on trial for giving gangster the ‘kiss of death’](https://www.yahoo.com/news/female-prison-guard-trial-giving-141609752.html)
-- May 06 - [Nvidia Reclaims Key Level; What Analysts Expect, And Is The Stock A Buy Now?](https://www.investors.com/research/nvda-stock-is-nvidia-a-buy/?src=A00220&yptr=yahoo)
-- May 06 - [Russia warns Britain it could strike back after Cameron remark on Ukraine](https://www.yahoo.com/news/russia-warns-strike-british-military-135226225.html)
+- May 06 - [Trump Accountant on His Stormy Daniels Coverup Notes: ‘I Made a Boo-Boo’](https://www.yahoo.com/news/trump-accountant-stormy-daniels-coverup-152934446.html)
+- May 06 - [Man points gun at Pennsylvania pastor during church, police later find body at man's home](https://www.yahoo.com/news/man-points-gun-pennsylvania-pastor-150606883.html)
+- May 06 - [‘Decided to close that chapter’: Popular Boston radio station shakes up morning drive show](https://www.yahoo.com/entertainment/decided-close-chapter-popular-boston-145410318.html)
+- May 06 - [Fast-growing distillery tapped by SBA as Western PA Small Business of the Year](https://finance.yahoo.com/news/fast-growing-distillery-tapped-sba-145110762.html)
+- May 06 - [Afghanistan’s only female diplomat quits ‘after being caught smuggling gold worth £1.6m’](https://www.yahoo.com/news/afghanistan-only-female-diplomat-quits-142430126.html)
 <!-- feed end -->
 
 ### Onstream
