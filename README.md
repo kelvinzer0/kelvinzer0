@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 06 - [Italy calls for Ukraine truce, peace talks with Putin - newspaper](https://www.yahoo.com/news/italy-calls-ukraine-truce-peace-061825845.html)
+- May 06 - [China's hype video for its lunar base showed what looked like a NASA Space Shuttle lifting off, which it then realized and tried to fix](https://www.yahoo.com/tech/chinas-hype-video-lunar-showed-050755534.html)
 - May 06 - [Chinese tariffs could leave cognac makers with too much brandy](https://finance.yahoo.com/news/chinese-tariffs-could-leave-cognac-050518643.html)
 - May 06 - [As China and Iran hunt for dissidents in the US, the FBI is racing to counter the threat](https://www.yahoo.com/news/china-iran-hunt-dissidents-us-041530098.html)
-- May 06 - [Indonesia proposes cutting payments for S.Korea fighter jet project, Yonhap reports](https://www.yahoo.com/news/indonesia-proposes-cutting-payments-korea-021738869.html)
-- May 06 - [Retailers jacked up prices and squeezed consumers. They might have just blinked](https://finance.yahoo.com/news/retailers-jacked-prices-squeezed-consumers-180028231.html)
-- May 05 - [Ohio State graduates show solidarity for Palestine, tragedy over death during commencement](https://www.yahoo.com/news/ohio-state-graduates-show-solidarity-220432757.html)
+- May 06 - [Noem suggests Biden’s dog Commander should suffer a similar fate to Cricket, the dog she shot](https://www.yahoo.com/news/noem-suggests-biden-dog-commander-235007602.html)
 <!-- feed end -->
 
 ### Onstream
