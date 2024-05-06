@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Can you keep a loaded gun in your car in SC? Here’s what the law and officials say](https://www.yahoo.com/news/keep-loaded-gun-car-sc-103000565.html)
-- May 06 - [City of Abilene slapped with another APD-related lawsuit](https://www.yahoo.com/news/city-abilene-slapped-another-apd-100400671.html)
-- May 06 - [Satellite images show Russia no longer using Crimean bridge to supply troops in Ukraine](https://www.yahoo.com/news/satellite-images-show-russia-no-093811228.html)
-- May 06 - [House set to vote on Marjorie Taylor Greene effort to remove Mike Johnson](https://www.yahoo.com/news/house-set-vote-marjorie-taylor-100037516.html)
-- May 06 - [Donald Trump puts America on notice again: If he loses, he won't go quietly](https://www.yahoo.com/news/donald-trump-puts-america-notice-100022877.html)
+- May 06 - [How Much You Need To Be in the Top 5% in Every State](https://finance.yahoo.com/news/much-top-5-every-state-135726699.html)
+- May 06 - [Trump Had On-Brand Message For Donors Who Wanted Photos With Him At Fundraiser](https://www.yahoo.com/news/trump-had-brand-message-donors-113853645.html)
+- May 06 - [Mother arrested for throwing disabled son into crocodile-infested canal in India](https://www.yahoo.com/news/mother-arrested-throwing-disabled-son-113539849.html)
+- May 06 - [Buffett’s Cash Conundrum Is a Warning for Markets, and 5 Other Things to Know Before Markets Open](https://www.barrons.com/articles/buffett-disney-uber-things-to-know-today-6780ca25?siteid=yhoof2&yptr=yahoo)
+- May 06 - [Democrat Hakeem Jeffries steps up as House Republicans roast Johnson](https://www.yahoo.com/news/democrat-hakeem-jeffries-steps-house-100333106.html)
 <!-- feed end -->
 
 ### Onstream
