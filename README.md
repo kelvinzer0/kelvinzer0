@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 06 - [Black voters won a big victory in Louisiana. Some White voters said it violated their ‘personal dignity’](https://www.yahoo.com/news/black-voters-won-big-victory-090028887.html)
+- May 06 - [Study to recommend whether five Central Jersey school districts should regionalize](https://www.yahoo.com/news/study-recommend-whether-five-central-085732488.html)
 - May 06 - [Russia announces nuclear weapon drills after angry exchange with senior Western officials](https://www.yahoo.com/news/russia-announces-nuclear-weapon-drills-081031240.html)
 - May 06 - [Jen Psaki Recalls Shock At Hope Hicks' 'Major Question' For Her After Trump 2016 Win](https://www.yahoo.com/news/jen-psaki-recalls-shock-hope-080013441.html)
-- May 06 - [This ETF Is the Simplest Way to Become a Millionaire Investor](https://finance.yahoo.com/news/etf-simplest-way-become-millionaire-080000108.html)
-- May 06 - [On D-Day, 19-year-old medic Charles Shay was ready to give his life, and save as many as he could](https://www.yahoo.com/news/d-day-19-old-medic-062316880.html)
-- May 06 - [When You Look Back in 5 Years, You'll Wish You'd Bought This $3 Trillion Artificial Intelligence (AI) Stock](https://finance.yahoo.com/news/look-back-5-years-youll-051200914.html)
+- May 06 - [Key rocket launch set for Monday: What to know about the Boeing Starliner carrying 2 astronauts](https://www.yahoo.com/tech/key-rocket-launch-set-monday-070206816.html)
 <!-- feed end -->
 
 ### Onstream
