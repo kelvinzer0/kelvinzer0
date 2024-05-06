@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Return to the '70s? Today's housing market has echoes of dark era](https://finance.yahoo.com/news/return-to-the-70s-todays-housing-market-has-echoes-of-dark-era-122740663.html)
-- May 06 - [EU commission to give clean bill of health for Polish rule of law](https://www.yahoo.com/news/eu-commission-clean-bill-health-121358074.html)
-- May 06 - [DASH bus driver was pushed, punched by passenger, video shows](https://www.yahoo.com/news/dash-bus-driver-pushed-punched-120009586.html)
-- May 06 - [Trump Had On-Brand Message For Donors Who Wanted Photos With Him At Fundraiser](https://www.yahoo.com/news/trump-had-brand-message-donors-113853645.html)
-- May 06 - [North Salem High teacher Trever Ball resigns, a year after student protest alleging abuse](https://www.yahoo.com/news/north-salem-high-teacher-trever-110200536.html)
+- May 06 - [Russia warns Britain it could strike back after Cameron remark on Ukraine](https://www.yahoo.com/news/russia-warns-strike-british-military-135226225.html)
+- May 06 - [UPDATE 2-Russia warns it can strike British military targets after Cameron remarks](https://finance.yahoo.com/news/1-russia-warns-strike-british-134654028.html)
+- May 06 - [Holocaust survivors march in Auschwitz in shadow of Oct 7 attacks](https://www.yahoo.com/news/holocaust-survivors-march-auschwitz-shadow-133735265.html)
+- May 06 - [Body found in home of man who allegedly attempted to shoot pastor during sermon, police say](https://www.yahoo.com/news/man-arrested-allegedly-attempting-shoot-020633925.html)
+- May 06 - [Vladimir Putin Showed His ‘Violent Nature’ In Deer-Hunting Stunt: Report](https://www.yahoo.com/news/vladimir-putin-showed-violent-nature-130627218.html)
 <!-- feed end -->
 
 ### Onstream
