@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 06 - [Man arrested after shooting pregnant woman in road rage crash, Manatee deputies say](https://www.yahoo.com/news/man-arrested-shooting-pregnant-woman-145436406.html)
+- May 06 - [El Pollo Loco Holdings, Inc. (NASDAQ:LOCO) Q1 2024 Earnings Call Transcript](https://finance.yahoo.com/news/el-pollo-loco-holdings-inc-144437215.html)
+- May 06 - [Female prison guard on trial for giving gangster the ‘kiss of death’](https://www.yahoo.com/news/female-prison-guard-trial-giving-141609752.html)
+- May 06 - [Nvidia Reclaims Key Level; What Analysts Expect, And Is The Stock A Buy Now?](https://www.investors.com/research/nvda-stock-is-nvidia-a-buy/?src=A00220&yptr=yahoo)
 - May 06 - [Russia warns Britain it could strike back after Cameron remark on Ukraine](https://www.yahoo.com/news/russia-warns-strike-british-military-135226225.html)
-- May 06 - [UPDATE 2-Russia warns it can strike British military targets after Cameron remarks](https://finance.yahoo.com/news/1-russia-warns-strike-british-134654028.html)
-- May 06 - [Holocaust survivors march in Auschwitz in shadow of Oct 7 attacks](https://www.yahoo.com/news/holocaust-survivors-march-auschwitz-shadow-133735265.html)
-- May 06 - [Body found in home of man who allegedly attempted to shoot pastor during sermon, police say](https://www.yahoo.com/news/man-arrested-allegedly-attempting-shoot-020633925.html)
-- May 06 - [Vladimir Putin Showed His ‘Violent Nature’ In Deer-Hunting Stunt: Report](https://www.yahoo.com/news/vladimir-putin-showed-violent-nature-130627218.html)
 <!-- feed end -->
 
 ### Onstream
