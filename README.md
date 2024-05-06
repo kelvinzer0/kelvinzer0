@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Trump Says Abortion 'Not That Big Of An Issue,' GOP Is 'Party Of Fertilization'](https://www.yahoo.com/news/trump-says-abortion-not-big-205259647.html)
-- May 06 - [Palantir Beats Sales Estimates, Raises Outlook on AI Enthusiasm](https://finance.yahoo.com/news/palantir-beats-sales-estimates-raises-200110257.html)
-- May 06 - [Conservative US judges boycott Columbia grads over campus Gaza protests](https://www.yahoo.com/news/conservative-us-judges-boycott-columbia-200103812.html)
+- May 06 - [15 States with the Most Alcohol Related Deaths in the US](https://finance.yahoo.com/news/15-states-most-alcohol-related-212034676.html)
 - May 06 - [Fraternity says it removed member for 'racist actions' during Mississippi campus protest](https://www.yahoo.com/news/fraternity-says-removed-member-racist-194706962.html)
 - May 06 - [US FAA opens probe into Boeing 787 inspections](https://www.yahoo.com/news/faa-opens-investigation-boeing-wsj-191634942.html)
+- May 06 - [Auditors can't locate former St. Louis circuit attorney to complete state audit](https://www.yahoo.com/news/auditors-cant-locate-former-st-185732155.html)
+- May 06 - [Report details what led to Las Vegas substitute teacher punching student](https://www.yahoo.com/news/report-details-led-las-vegas-185001163.html)
 <!-- feed end -->
 
 ### Onstream
