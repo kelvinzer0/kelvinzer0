@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Strong tornadoes, 'giant' hail possible Monday as storms target U.S.](https://www.yahoo.com/news/strong-tornadoes-giant-hail-possible-004947419.html)
-- May 05 - ['Work to do' after local election losses - Rishi Sunak](https://www.yahoo.com/news/local-election-losses-rishi-sunak-235928988.html)
+- May 06 - [Man arrested after allegedly attempting to shoot pastor during sermon](https://www.yahoo.com/news/man-arrested-allegedly-attempting-shoot-020633925.html)
+- May 06 - [Retailers jacked up prices and squeezed consumers. They might have just blinked](https://finance.yahoo.com/news/retailers-jacked-prices-squeezed-consumers-180028231.html)
+- May 05 - [No-one can forget Mikey's stabbing at a party, even those who never knew him](https://www.yahoo.com/news/no-one-forget-mikeys-stabbing-231244977.html)
+- May 05 - [Ohio State graduates show solidarity for Palestine, tragedy over death during commencement](https://www.yahoo.com/news/ohio-state-graduates-show-solidarity-220432757.html)
 - May 05 - [People Who Felt Lonely as Children Usually Develop These 13 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-felt-lonely-children-usually-211000806.html)
-- May 05 - [Sierra Nevada records snowiest day of the season from brief but potent California storm](https://www.yahoo.com/news/sierra-nevada-records-snowiest-day-202026189.html)
-- May 05 - [Thieves apparently killed 2 Australians and American to steal their truck, Mexican authorities say](https://www.yahoo.com/news/mexican-authorities-thieves-killed-2-194354645.html)
 <!-- feed end -->
 
 ### Onstream
