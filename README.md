@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Italy calls for Ukraine truce, peace talks with Putin - newspaper](https://www.yahoo.com/news/italy-calls-ukraine-truce-peace-061825845.html)
-- May 06 - [China's hype video for its lunar base showed what looked like a NASA Space Shuttle lifting off, which it then realized and tried to fix](https://www.yahoo.com/tech/chinas-hype-video-lunar-showed-050755534.html)
-- May 06 - [Chinese tariffs could leave cognac makers with too much brandy](https://finance.yahoo.com/news/chinese-tariffs-could-leave-cognac-050518643.html)
-- May 06 - [As China and Iran hunt for dissidents in the US, the FBI is racing to counter the threat](https://www.yahoo.com/news/china-iran-hunt-dissidents-us-041530098.html)
-- May 06 - [Noem suggests Biden’s dog Commander should suffer a similar fate to Cricket, the dog she shot](https://www.yahoo.com/news/noem-suggests-biden-dog-commander-235007602.html)
+- May 06 - [Russia announces nuclear weapon drills after angry exchange with senior Western officials](https://www.yahoo.com/news/russia-announces-nuclear-weapon-drills-081031240.html)
+- May 06 - [Jen Psaki Recalls Shock At Hope Hicks' 'Major Question' For Her After Trump 2016 Win](https://www.yahoo.com/news/jen-psaki-recalls-shock-hope-080013441.html)
+- May 06 - [This ETF Is the Simplest Way to Become a Millionaire Investor](https://finance.yahoo.com/news/etf-simplest-way-become-millionaire-080000108.html)
+- May 06 - [On D-Day, 19-year-old medic Charles Shay was ready to give his life, and save as many as he could](https://www.yahoo.com/news/d-day-19-old-medic-062316880.html)
+- May 06 - [When You Look Back in 5 Years, You'll Wish You'd Bought This $3 Trillion Artificial Intelligence (AI) Stock](https://finance.yahoo.com/news/look-back-5-years-youll-051200914.html)
 <!-- feed end -->
 
 ### Onstream
