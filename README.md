@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Man arrested after allegedly attempting to shoot pastor during sermon](https://www.yahoo.com/news/man-arrested-allegedly-attempting-shoot-020633925.html)
 - May 06 - [Retailers jacked up prices and squeezed consumers. They might have just blinked](https://finance.yahoo.com/news/retailers-jacked-prices-squeezed-consumers-180028231.html)
-- May 05 - [No-one can forget Mikey's stabbing at a party, even those who never knew him](https://www.yahoo.com/news/no-one-forget-mikeys-stabbing-231244977.html)
-- May 05 - [Ohio State graduates show solidarity for Palestine, tragedy over death during commencement](https://www.yahoo.com/news/ohio-state-graduates-show-solidarity-220432757.html)
 - May 05 - [People Who Felt Lonely as Children Usually Develop These 13 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-felt-lonely-children-usually-211000806.html)
+- May 05 - [Could your menopause symptoms be something worse? A Canadian expert weighs in on possible health conditions](https://www.yahoo.com/lifestyle/could-your-menopause-symptoms-be-something-worse-a-canadian-expert-weighs-in-on-possible-health-conditions-203022189.html)
+- May 05 - [6 Hybrid Vehicles To Stay Away From Buying](https://finance.yahoo.com/news/7-hybrid-vehicles-stay-away-150021341.html)
+- May 05 - [3 bodies in Mexican well identified as Australian and American surfers killed for truck's tires](https://www.yahoo.com/news/mexican-authorities-thieves-killed-2-194354645.html)
 <!-- feed end -->
 
 ### Onstream
