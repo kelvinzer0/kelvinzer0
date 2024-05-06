@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [University of Iowa police shuts down attempted Israel-Hamas war protest encampment](https://www.yahoo.com/news/university-iowa-police-shuts-down-181626780.html)
-- May 06 - [Fact Check: Photos Purportedly Show Trump Supporters Wearing Diapers at Rallies. Here's What We Found](https://www.yahoo.com/news/fact-check-photos-purportedly-show-174100807.html)
-- May 06 - [Trump Tries Desperate Excuse to Avoid Testifying in Hush-Money Trial](https://www.yahoo.com/news/trump-tries-desperate-excuse-avoid-165850525.html)
-- May 06 - [Paulina Porizkova, 59, is 'shocked by the absence of pain' 3 months after double hip replacement — here's what to know about the surgery](https://www.yahoo.com/lifestyle/paulina-porizkova-59-is-shocked-by-the-absence-of-pain-3-months-after-double-hip-replacement--heres-what-to-know-about-the-surgery-163408460.html)
-- May 06 - [Watch an exploding Ukrainian drone boat dodge fire from the air to kill one of the small, high-speed Russian ships still fighting in the Black Sea](https://www.yahoo.com/news/watch-exploding-ukrainian-drone-boat-162636556.html)
+- May 06 - [French equality chief under fire for ‘sexist and racist’ comments](https://www.yahoo.com/news/french-equality-chief-under-fire-195233070.html)
+- May 06 - [How a fraud spree fleecing Britons became ‘a national security threat’](https://www.yahoo.com/news/m-sorry-online-lover-fake-190000561.html)
+- May 06 - [Call it Cognac diplomacy. France offered China’s Xi a special drink, in a wink at their trade spat](https://finance.yahoo.com/news/call-cognac-diplomacy-france-offered-184730584.html)
+- May 06 - [Boeing Starliner is hours away from launching 2 astronauts on long-awaited mission. Here’s what’s at stake](https://www.yahoo.com/tech/boeing-starliner-launch-set-kick-174249642.html)
+- May 06 - [Genes known to increase the risk of Alzheimer’s may actually be an inherited form of the disorder, researchers say](https://www.yahoo.com/news/genes-known-increase-risk-alzheimer-151136656.html)
 <!-- feed end -->
 
 ### Onstream
