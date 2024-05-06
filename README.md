@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Jeffries: Democrats ‘effectively’ in majority due to GOP ‘chaos, dysfunction’](https://www.yahoo.com/news/jeffries-democrats-effectively-majority-due-023607023.html)
+- May 06 - [Jack Dorsey Leaves Bluesky Board, Calls X ‘Freedom Technology’](https://finance.yahoo.com/news/jack-dorsey-leaves-bluesky-board-035716695.html)
 - May 06 - [Philippines says won't raise South China Sea tensions, won't use water cannons](https://www.yahoo.com/news/philippines-says-wont-raise-south-022043198.html)
-- May 06 - [Indonesia proposes cutting payments for S.Korea fighter jet project, Yonhap reports](https://www.yahoo.com/news/indonesia-proposes-cutting-payments-korea-021738869.html)
 - May 06 - [Gasoline demand growth to slow this year on EV growth in China, U.S.](https://finance.yahoo.com/news/gasoline-demand-growth-slow-ev-014322636.html)
 - May 06 - [Retailers jacked up prices and squeezed consumers. They might have just blinked](https://finance.yahoo.com/news/retailers-jacked-prices-squeezed-consumers-180028231.html)
+- May 06 - [Mexican authorities reveal bizarre reason they believe Australians, American were murdered on surfing vacation](https://www.yahoo.com/news/mexican-authorities-reveal-bizarre-reason-011912694.html)
 <!-- feed end -->
 
 ### Onstream
