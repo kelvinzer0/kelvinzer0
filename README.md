@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [How Much You Need To Be in the Top 5% in Every State](https://finance.yahoo.com/news/much-top-5-every-state-135726699.html)
+- May 06 - [Return to the '70s? Today's housing market has echoes of dark era](https://finance.yahoo.com/news/return-to-the-70s-todays-housing-market-has-echoes-of-dark-era-122740663.html)
+- May 06 - [EU commission to give clean bill of health for Polish rule of law](https://www.yahoo.com/news/eu-commission-clean-bill-health-121358074.html)
+- May 06 - [DASH bus driver was pushed, punched by passenger, video shows](https://www.yahoo.com/news/dash-bus-driver-pushed-punched-120009586.html)
 - May 06 - [Trump Had On-Brand Message For Donors Who Wanted Photos With Him At Fundraiser](https://www.yahoo.com/news/trump-had-brand-message-donors-113853645.html)
-- May 06 - [Mother arrested for throwing disabled son into crocodile-infested canal in India](https://www.yahoo.com/news/mother-arrested-throwing-disabled-son-113539849.html)
-- May 06 - [Buffett’s Cash Conundrum Is a Warning for Markets, and 5 Other Things to Know Before Markets Open](https://www.barrons.com/articles/buffett-disney-uber-things-to-know-today-6780ca25?siteid=yhoof2&yptr=yahoo)
-- May 06 - [Democrat Hakeem Jeffries steps up as House Republicans roast Johnson](https://www.yahoo.com/news/democrat-hakeem-jeffries-steps-house-100333106.html)
+- May 06 - [North Salem High teacher Trever Ball resigns, a year after student protest alleging abuse](https://www.yahoo.com/news/north-salem-high-teacher-trever-110200536.html)
 <!-- feed end -->
 
 ### Onstream
