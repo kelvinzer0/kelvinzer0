@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [French equality chief under fire for ‘sexist and racist’ comments](https://www.yahoo.com/news/french-equality-chief-under-fire-195233070.html)
-- May 06 - [How a fraud spree fleecing Britons became ‘a national security threat’](https://www.yahoo.com/news/m-sorry-online-lover-fake-190000561.html)
-- May 06 - [Call it Cognac diplomacy. France offered China’s Xi a special drink, in a wink at their trade spat](https://finance.yahoo.com/news/call-cognac-diplomacy-france-offered-184730584.html)
-- May 06 - [Boeing Starliner is hours away from launching 2 astronauts on long-awaited mission. Here’s what’s at stake](https://www.yahoo.com/tech/boeing-starliner-launch-set-kick-174249642.html)
-- May 06 - [Genes known to increase the risk of Alzheimer’s may actually be an inherited form of the disorder, researchers say](https://www.yahoo.com/news/genes-known-increase-risk-alzheimer-151136656.html)
+- May 06 - [Trump Says Abortion 'Not That Big Of An Issue,' GOP Is 'Party Of Fertilization'](https://www.yahoo.com/news/trump-says-abortion-not-big-205259647.html)
+- May 06 - [Palantir Beats Sales Estimates, Raises Outlook on AI Enthusiasm](https://finance.yahoo.com/news/palantir-beats-sales-estimates-raises-200110257.html)
+- May 06 - [Conservative US judges boycott Columbia grads over campus Gaza protests](https://www.yahoo.com/news/conservative-us-judges-boycott-columbia-200103812.html)
+- May 06 - [Fraternity says it removed member for 'racist actions' during Mississippi campus protest](https://www.yahoo.com/news/fraternity-says-removed-member-racist-194706962.html)
+- May 06 - [US FAA opens probe into Boeing 787 inspections](https://www.yahoo.com/news/faa-opens-investigation-boeing-wsj-191634942.html)
 <!-- feed end -->
 
 ### Onstream
