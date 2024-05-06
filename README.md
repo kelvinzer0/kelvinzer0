@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 05 - [Ohio State graduates show solidarity for Palestine, tragedy over death during commencement](https://www.yahoo.com/news/ohio-state-graduates-show-solidarity-220432757.html)
+- May 06 - [Strong tornadoes, 'giant' hail possible Monday as storms target U.S.](https://www.yahoo.com/news/strong-tornadoes-giant-hail-possible-004947419.html)
+- May 05 - ['Work to do' after local election losses - Rishi Sunak](https://www.yahoo.com/news/local-election-losses-rishi-sunak-235928988.html)
+- May 05 - [People Who Felt Lonely as Children Usually Develop These 13 Traits as Adults, Psychologists Say](https://www.yahoo.com/lifestyle/people-felt-lonely-children-usually-211000806.html)
+- May 05 - [Sierra Nevada records snowiest day of the season from brief but potent California storm](https://www.yahoo.com/news/sierra-nevada-records-snowiest-day-202026189.html)
 - May 05 - [Thieves apparently killed 2 Australians and American to steal their truck, Mexican authorities say](https://www.yahoo.com/news/mexican-authorities-thieves-killed-2-194354645.html)
-- May 05 - [SPRING STORM: Road weather alerts issued ahead of statewide spring mountain snowstorm](https://www.yahoo.com/news/spring-storm-road-weather-alerts-194231432.html)
-- May 05 - [Woman arrested after baby has cardiac arrest at Legoland](https://www.yahoo.com/news/woman-arrested-baby-cardiac-arrest-190603554.html)
-- May 05 - [One dead at Ohio State University graduation after fall from stadium](https://www.yahoo.com/news/one-dead-ohio-state-university-170627880.html)
 <!-- feed end -->
 
 ### Onstream
