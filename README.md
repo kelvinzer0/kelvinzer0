@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Boy Scouts of America Announces a Name Change to Be More Inclusive Of All Young People](https://www.yahoo.com/news/boy-scouts-america-announces-name-205708439.html)
+- May 07 - [Trump documents trial start delayed indefinitely, judge orders](https://www.yahoo.com/news/trump-documents-trial-start-delayed-212150728.html)
+- May 07 - [Former House Speaker Paul Ryan says he’s not voting for Trump : 'Character is too important'](https://finance.yahoo.com/news/former-house-speaker-paul-ryan-says-hes-not-voting-for-trump--character-is-too-important-210633204.html)
 - May 07 - [Marjorie Taylor Greene backs off threat to oust Johnson as speaker](https://www.yahoo.com/news/trump-privately-urges-greene-drop-141900809.html)
 - May 07 - [Peru port conflict escalates as Chinese firm insists on original terms](https://www.yahoo.com/news/peru-port-conflict-escalates-chinese-201451312.html)
 - May 07 - [Mom Accused of Throwing 6-Year-Old Son with Disabilities into Canal to Be Eaten by Crocodiles](https://www.yahoo.com/news/mom-accused-throwing-6-old-200711809.html)
-- May 07 - [Dali crew will stay on board during controlled demolition to remove fallen bridge from ship's deck](https://www.yahoo.com/news/dali-crew-stay-board-during-200458892.html)
 <!-- feed end -->
 
 ### Onstream
