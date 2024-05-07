@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 07 - [In bid to oust Speaker Johnson, Marjorie Taylor Greene reveals her demands](https://www.yahoo.com/news/trump-privately-urges-greene-drop-141900809.html)
-- May 07 - [Georgia woman identified as person killed in fall at Ohio State graduation ceremony](https://www.yahoo.com/news/georgia-woman-identified-person-killed-165026786.html)
-- May 07 - [Banned Chinese cotton found in 19% of US and global retailers' merchandise, study shows](https://finance.yahoo.com/news/banned-chinese-cotton-found-19-162241932.html)
 - May 07 - [GA boy thought he was drinking Mountain Dew. Why a middle school worker has now been charged](https://www.yahoo.com/news/ga-boy-thought-drinking-mountain-161914043.html)
-- May 07 - [US soldier detained in Russia traveled through China without clearance, US Army says](https://www.yahoo.com/news/us-soldier-detained-russia-travelled-160336300.html)
+- May 07 - [Boeing forced to scrub first crewed Starliner launch to the space station](https://www.yahoo.com/tech/boeing-launches-nasa-astronauts-space-011129310.html)
+- May 07 - [Apple just showed off new iPad accessories — see what's new](https://www.yahoo.com/tech/apple-just-showed-off-ipad-153540626.html)
+- May 07 - [An Inside Look at Jeff Bezos’ $500 Million Superyacht and What It Costs To Keep It Afloat](https://finance.yahoo.com/news/inside-look-jeff-bezos-500-153431694.html)
 <!-- feed end -->
 
 ### Onstream
