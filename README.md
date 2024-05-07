@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - May 07 - [Boeing forced to scrub first crewed Starliner launch to the space station](https://www.yahoo.com/tech/boeing-launches-nasa-astronauts-space-011129310.html)
 - May 06 - [The FAA investigates after Boeing says workers in South Carolina falsified 787 inspection records](https://finance.yahoo.com/news/faa-investigates-boeing-says-workers-233528894.html)
 - May 06 - [‘You broke us.’ GA lawmakers to rein in aggressive HOAs after hearing homeowner horror stories](https://www.yahoo.com/news/broke-us-ga-lawmakers-reign-150659536.html)
-- May 06 - [Divers spot weird, blobby creature for first time off Morocco. See the ‘alien species’](https://www.yahoo.com/news/divers-spot-weird-blobby-creature-215945247.html)
 - May 06 - [House Republicans are ready to hold Attorney General Merrick Garland in contempt over Biden audio](https://www.yahoo.com/news/house-republicans-ready-hold-attorney-214956869.html)
+- May 06 - [US FAA opens probe into Boeing 787 inspections](https://www.yahoo.com/news/faa-opens-investigation-boeing-wsj-191634942.html)
 <!-- feed end -->
 
 ### Onstream
