@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 06 - [Is AMD Stock a Buy?](https://finance.yahoo.com/news/amd-stock-buy-220000098.html)
+- May 06 - [The FAA investigates after Boeing says workers in South Carolina falsified 787 inspection records](https://finance.yahoo.com/news/faa-investigates-boeing-says-workers-233528894.html)
 - May 06 - [House Republicans are ready to hold Attorney General Merrick Garland in contempt over Biden audio](https://www.yahoo.com/news/house-republicans-ready-hold-attorney-214956869.html)
-- May 06 - [Husband of American woman reported missing in Spain arrested in Florida, FBI says](https://www.yahoo.com/news/husband-american-woman-reported-missing-214350861.html)
-- May 06 - [Boeing Admits That Its Employees Falsified Aircraft Records for 787 Dreamliner](https://finance.yahoo.com/news/boeing-admits-employees-falsified-aircraft-212500266.html)
-- May 06 - [Runways briefly shuttered at Savannah/Hilton Head airport after fighter jet ‘mishap’](https://www.yahoo.com/news/runways-briefly-shuttered-savannah-hilton-200103169.html)
+- May 06 - [American soldier was arrested in Russia and accused of stealing from a girlfriend, US officials say](https://www.yahoo.com/news/american-soldier-arrested-russia-accused-193337090.html)
+- May 06 - [UPDATE 2-US FAA opens probe into Boeing 787 inspections](https://finance.yahoo.com/news/1-us-faa-opens-probe-192506788.html)
+- May 06 - [Auditors can't locate former St. Louis circuit attorney to complete state audit](https://www.yahoo.com/news/auditors-cant-locate-former-st-185732155.html)
 <!-- feed end -->
 
 ### Onstream
