@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [The mental health crisis crushing teachers – and what it means for schools](https://www.independent.co.uk/life-style/teaching-mental-health-schools-quit-b2540733.html)
+- May 07 - [Father’s plan to swap aisle seats with passenger sparks debate on airplane etiquette: ‘Never switch’](https://www.yahoo.com/lifestyle/father-plan-swap-aisle-seats-154049846.html)
 - May 07 - [Xi Says China Will ‘Never Forget’ the US Bombing of Its Embassy](https://www.yahoo.com/news/xi-vows-remember-flagrant-us-065747648.html)
 - May 07 - [Ex-DOJ Official Stunned By Trump Hand Gesture In Court: ‘Can’t Begin To Fathom’](https://www.yahoo.com/news/ex-doj-official-stunned-trump-055939131.html)
 - May 07 - [Rachel Maddow Urges People to Prepare for ‘the Freakout’ When Trump ‘Inevitably’ Is ‘Ordered Into Jail’ | Video](https://www.yahoo.com/news/rachel-maddow-urges-people-prepare-041922940.html)
-- May 07 - [Pro-Palestinian protesters retake MIT encampment, occupy building at Rhode Island School of Design](https://www.yahoo.com/news/pro-palestinian-protesters-retake-mit-040908006.html)
-- May 07 - [Boeing forced to scrub first crewed Starliner launch to the space station](https://www.yahoo.com/tech/boeing-launches-nasa-astronauts-space-011129310.html)
 <!-- feed end -->
 
 ### Onstream
