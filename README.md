@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Toyota to get an earnings lift from hybrids as EV hype cools](https://finance.yahoo.com/news/toyota-earnings-lift-hybrids-ev-070144828.html)
+- May 07 - [Ex-DOJ Official Stunned By Trump Hand Gesture In Court: ‘Can’t Begin To Fathom’](https://www.yahoo.com/news/ex-doj-official-stunned-trump-055939131.html)
 - May 07 - [Rachel Maddow Urges People to Prepare for ‘the Freakout’ When Trump ‘Inevitably’ Is ‘Ordered Into Jail’ | Video](https://www.yahoo.com/news/rachel-maddow-urges-people-prepare-041922940.html)
 - May 07 - [Pro-Palestinian protesters retake MIT encampment, occupy building at Rhode Island School of Design](https://www.yahoo.com/news/pro-palestinian-protesters-retake-mit-040908006.html)
 - May 07 - [Boeing forced to scrub first crewed Starliner launch to the space station](https://www.yahoo.com/tech/boeing-launches-nasa-astronauts-space-011129310.html)
-- May 06 - [The FAA investigates after Boeing says workers in South Carolina falsified 787 inspection records](https://finance.yahoo.com/news/faa-investigates-boeing-says-workers-233528894.html)
-- May 06 - [‘Consider having a helmet available’: CNN meteorologist warns of severe weather in these states](https://www.yahoo.com/news/consider-having-helmet-available-cnn-110140113.html)
 <!-- feed end -->
 
 ### Onstream
