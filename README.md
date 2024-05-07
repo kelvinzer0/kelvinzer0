@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Nvidia Falls As Billionaire Druckenmiller Cuts Stake For One Reason; Is The Stock A Buy Now?](https://www.investors.com/research/nvda-stock-is-nvidia-a-buy/?src=A00220&yptr=yahoo)
+- May 07 - [Ohio State graduation death: Coroner identifies woman who died in fall from Ohio Stadium](https://www.yahoo.com/news/ohio-state-graduation-death-coroner-144127435.html)
+- May 07 - [Donald Trump Is Headlining a GOP Event in Minnesota on the Same Day as Barron's Florida Graduation: Reports](https://www.yahoo.com/news/donald-trump-headlining-gop-event-140750511.html)
 - May 07 - [Boeing forced to scrub first crewed Starliner launch to the space station](https://www.yahoo.com/tech/boeing-launches-nasa-astronauts-space-011129310.html)
 - May 07 - ['Tsar' Putin tells the West: Russia will talk only on equal terms](https://www.yahoo.com/news/tsar-putin-tells-west-russia-133359082.html)
-- May 07 - [Trump Deletes Post Fuming That Stormy Daniels Is Expected to Testify Today](https://www.yahoo.com/news/trump-posts-then-quickly-deletes-121949853.html)
-- May 07 - [The Best $5,000 You Can Spend Every Year in Retirement](https://finance.yahoo.com/news/best-5-000-spend-every-110121902.html)
-- May 07 - [Police: 14 charged after Kentucky cockfighting ring broken up](https://www.yahoo.com/news/police-14-charged-kentucky-cockfighting-110012737.html)
 <!-- feed end -->
 
 ### Onstream
