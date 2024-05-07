@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Kristi Noem Blows Up at Fox Anchor Pressing Her on Puppy Murder](https://www.yahoo.com/news/kristi-noem-blows-fox-anchor-162405159.html)
-- May 07 - [Fed's Kashkari cites high risk inflation is "settling"](https://finance.yahoo.com/news/feds-kashkari-cites-high-risk-161201843.html)
-- May 07 - [US soldier detained in Russia travelled through China without clearance- Army](https://www.yahoo.com/news/us-soldier-detained-russia-travelled-160336300.html)
-- May 07 - [Boeing forced to scrub first crewed Starliner launch to the space station](https://www.yahoo.com/tech/boeing-launches-nasa-astronauts-space-011129310.html)
-- May 07 - [Boy Scouts will change name to Scouting America in major rebrand after years of woes](https://www.yahoo.com/news/boy-scouts-change-name-scouting-153216359.html)
+- May 07 - [In bid to oust Speaker Johnson, Marjorie Taylor Greene reveals her demands](https://www.yahoo.com/news/trump-privately-urges-greene-drop-141900809.html)
+- May 07 - [Georgia woman identified as person killed in fall at Ohio State graduation ceremony](https://www.yahoo.com/news/georgia-woman-identified-person-killed-165026786.html)
+- May 07 - [Banned Chinese cotton found in 19% of US and global retailers' merchandise, study shows](https://finance.yahoo.com/news/banned-chinese-cotton-found-19-162241932.html)
+- May 07 - [GA boy thought he was drinking Mountain Dew. Why a middle school worker has now been charged](https://www.yahoo.com/news/ga-boy-thought-drinking-mountain-161914043.html)
+- May 07 - [US soldier detained in Russia traveled through China without clearance, US Army says](https://www.yahoo.com/news/us-soldier-detained-russia-travelled-160336300.html)
 <!-- feed end -->
 
 ### Onstream
