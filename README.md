@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Minnesota ethics panel to consider how to deal with senator charged with burglary](https://www.yahoo.com/news/minnesota-ethics-panel-consider-deal-040449752.html)
+- May 07 - [Why southern India is more resistant to Modi's Hindu-centric politics](https://www.yahoo.com/news/why-southern-india-more-resistant-035049978.html)
 - May 07 - [Boeing forced to scrub first crewed Starliner launch to the space station](https://www.yahoo.com/tech/boeing-launches-nasa-astronauts-space-011129310.html)
+- May 07 - [Indicted Arizona senator steps in it again. This time with a pro-Hitler talk show host](https://www.yahoo.com/news/indicted-arizona-senator-steps-again-002203195.html)
 - May 06 - [The FAA investigates after Boeing says workers in South Carolina falsified 787 inspection records](https://finance.yahoo.com/news/faa-investigates-boeing-says-workers-233528894.html)
-- May 06 - [‘You broke us.’ GA lawmakers to rein in aggressive HOAs after hearing homeowner horror stories](https://www.yahoo.com/news/broke-us-ga-lawmakers-reign-150659536.html)
-- May 06 - [House Republicans are ready to hold Attorney General Merrick Garland in contempt over Biden audio](https://www.yahoo.com/news/house-republicans-ready-hold-attorney-214956869.html)
-- May 06 - [US FAA opens probe into Boeing 787 inspections](https://www.yahoo.com/news/faa-opens-investigation-boeing-wsj-191634942.html)
 <!-- feed end -->
 
 ### Onstream
