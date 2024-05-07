@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Exclusive-Royal Caribbean recruiting thousands to meet surging demand, sources say](https://finance.yahoo.com/news/exclusive-royal-caribbean-recruiting-thousands-173536125.html)
-- May 07 - [In bid to oust Speaker Johnson, Marjorie Taylor Greene reveals her demands](https://www.yahoo.com/news/trump-privately-urges-greene-drop-141900809.html)
-- May 07 - [Trump To Headline Minnesota Dinner On Same Day As Son Barron's Graduation](https://www.yahoo.com/news/trump-appears-ditching-son-barron-171122180.html)
-- May 07 - [GA boy thought he was drinking Mountain Dew. Why a middle school worker has now been charged](https://www.yahoo.com/news/ga-boy-thought-drinking-mountain-161914043.html)
-- May 07 - [Bill Gates Harvests $113 Million In Nebraska Farmland, Takes Out $700 Million In Loans](https://finance.yahoo.com/news/bill-gates-harvests-113-million-160013666.html)
+- May 07 - [Boy Scouts of America Announces a Name Change to Be More Inclusive Of All Young People](https://www.yahoo.com/news/boy-scouts-america-announces-name-205708439.html)
+- May 07 - [Marjorie Taylor Greene backs off threat to oust Johnson as speaker](https://www.yahoo.com/news/trump-privately-urges-greene-drop-141900809.html)
+- May 07 - [Peru port conflict escalates as Chinese firm insists on original terms](https://www.yahoo.com/news/peru-port-conflict-escalates-chinese-201451312.html)
+- May 07 - [Mom Accused of Throwing 6-Year-Old Son with Disabilities into Canal to Be Eaten by Crocodiles](https://www.yahoo.com/news/mom-accused-throwing-6-old-200711809.html)
+- May 07 - [Dali crew will stay on board during controlled demolition to remove fallen bridge from ship's deck](https://www.yahoo.com/news/dali-crew-stay-board-during-200458892.html)
 <!-- feed end -->
 
 ### Onstream
