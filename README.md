@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Recreational marijuana backers try to overcome rocky history in South Dakota](https://www.yahoo.com/news/recreational-marijuana-backers-try-overcome-225714887.html)
+- May 07 - [Jessica Biel bathed in 20 pounds of Epsom salt ahead of the Met Gala. Why?](https://www.yahoo.com/lifestyle/jessica-biel-bathed-in-20-pounds-of-epsom-salt-ahead-of-the-met-gala-why-225131929.html)
+- May 07 - [Ruling limits hikers’ access to Hibriten Mountain in Caldwell County](https://www.yahoo.com/news/ruling-limits-hikers-access-hibriten-223601714.html)
+- May 07 - [Tesla is Luminar's largest lidar customer](https://www.yahoo.com/news/tesla-luminars-largest-lidar-customer-215150964.html)
 - May 07 - [Trump documents trial start delayed indefinitely, judge orders](https://www.yahoo.com/news/trump-documents-trial-start-delayed-212150728.html)
-- May 07 - [Former House Speaker Paul Ryan says he’s not voting for Trump : 'Character is too important'](https://finance.yahoo.com/news/former-house-speaker-paul-ryan-says-hes-not-voting-for-trump--character-is-too-important-210633204.html)
-- May 07 - [Marjorie Taylor Greene backs off threat to oust Johnson as speaker](https://www.yahoo.com/news/trump-privately-urges-greene-drop-141900809.html)
-- May 07 - [Peru port conflict escalates as Chinese firm insists on original terms](https://www.yahoo.com/news/peru-port-conflict-escalates-chinese-201451312.html)
-- May 07 - [Mom Accused of Throwing 6-Year-Old Son with Disabilities into Canal to Be Eaten by Crocodiles](https://www.yahoo.com/news/mom-accused-throwing-6-old-200711809.html)
 <!-- feed end -->
 
 ### Onstream
