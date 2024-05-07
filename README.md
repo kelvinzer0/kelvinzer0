@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Boeing forced to scrub first crewed Starliner launch to the space station](https://www.yahoo.com/tech/boeing-launches-nasa-astronauts-space-011129310.html)
 - May 06 - [The FAA investigates after Boeing says workers in South Carolina falsified 787 inspection records](https://finance.yahoo.com/news/faa-investigates-boeing-says-workers-233528894.html)
+- May 06 - [‘You broke us.’ GA lawmakers to rein in aggressive HOAs after hearing homeowner horror stories](https://www.yahoo.com/news/broke-us-ga-lawmakers-reign-150659536.html)
+- May 06 - [Divers spot weird, blobby creature for first time off Morocco. See the ‘alien species’](https://www.yahoo.com/news/divers-spot-weird-blobby-creature-215945247.html)
 - May 06 - [House Republicans are ready to hold Attorney General Merrick Garland in contempt over Biden audio](https://www.yahoo.com/news/house-republicans-ready-hold-attorney-214956869.html)
-- May 06 - [American soldier was arrested in Russia and accused of stealing from a girlfriend, US officials say](https://www.yahoo.com/news/american-soldier-arrested-russia-accused-193337090.html)
-- May 06 - [UPDATE 2-US FAA opens probe into Boeing 787 inspections](https://finance.yahoo.com/news/1-us-faa-opens-probe-192506788.html)
-- May 06 - [Auditors can't locate former St. Louis circuit attorney to complete state audit](https://www.yahoo.com/news/auditors-cant-locate-former-st-185732155.html)
 <!-- feed end -->
 
 ### Onstream
