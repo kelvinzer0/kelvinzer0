@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Exclusive-Royal Caribbean recruiting thousands to meet surging demand, sources say](https://finance.yahoo.com/news/exclusive-royal-caribbean-recruiting-thousands-173536125.html)
 - May 07 - [In bid to oust Speaker Johnson, Marjorie Taylor Greene reveals her demands](https://www.yahoo.com/news/trump-privately-urges-greene-drop-141900809.html)
+- May 07 - [Trump To Headline Minnesota Dinner On Same Day As Son Barron's Graduation](https://www.yahoo.com/news/trump-appears-ditching-son-barron-171122180.html)
 - May 07 - [GA boy thought he was drinking Mountain Dew. Why a middle school worker has now been charged](https://www.yahoo.com/news/ga-boy-thought-drinking-mountain-161914043.html)
-- May 07 - [Boeing forced to scrub first crewed Starliner launch to the space station](https://www.yahoo.com/tech/boeing-launches-nasa-astronauts-space-011129310.html)
-- May 07 - [Apple just showed off new iPad accessories — see what's new](https://www.yahoo.com/tech/apple-just-showed-off-ipad-153540626.html)
-- May 07 - [An Inside Look at Jeff Bezos’ $500 Million Superyacht and What It Costs To Keep It Afloat](https://finance.yahoo.com/news/inside-look-jeff-bezos-500-153431694.html)
+- May 07 - [Bill Gates Harvests $113 Million In Nebraska Farmland, Takes Out $700 Million In Loans](https://finance.yahoo.com/news/bill-gates-harvests-113-million-160013666.html)
 <!-- feed end -->
 
 ### Onstream
