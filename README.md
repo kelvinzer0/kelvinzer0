@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Kristi Noem Blows Up at Fox Anchor Pressing Her on Puppy Murder](https://www.yahoo.com/news/kristi-noem-blows-fox-anchor-162405159.html)
+- May 07 - [Fed's Kashkari cites high risk inflation is "settling"](https://finance.yahoo.com/news/feds-kashkari-cites-high-risk-161201843.html)
+- May 07 - [US soldier detained in Russia travelled through China without clearance- Army](https://www.yahoo.com/news/us-soldier-detained-russia-travelled-160336300.html)
 - May 07 - [Boeing forced to scrub first crewed Starliner launch to the space station](https://www.yahoo.com/tech/boeing-launches-nasa-astronauts-space-011129310.html)
-- May 07 - [Why churchgoers are being charged £16,000 after moving to Germany](https://www.yahoo.com/news/why-churchgoers-being-charged-16-150000957.html)
-- May 07 - [Oklahoma weather: Videos, pictures show damage in Barnsdall, Bartlesville after tornadoes](https://www.yahoo.com/news/oklahoma-weather-videos-pictures-show-144856483.html)
-- May 07 - [Donald Trump Is Headlining a GOP Event in Minnesota on the Same Day as Barron's Florida Graduation: Reports](https://www.yahoo.com/news/donald-trump-headlining-gop-event-140750511.html)
-- May 07 - ['Tsar' Putin tells the West: Russia will talk only on equal terms](https://www.yahoo.com/news/tsar-putin-tells-west-russia-133359082.html)
+- May 07 - [Boy Scouts will change name to Scouting America in major rebrand after years of woes](https://www.yahoo.com/news/boy-scouts-change-name-scouting-153216359.html)
 <!-- feed end -->
 
 ### Onstream
