@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 07 - [Axon Earnings Shot Past Estimates Amid Drone Deal. Here's Why The Stock Is Lower.](https://www.investors.com/news/axon-stock-taser-maker-earnings-buy-point/?src=A00220&yptr=yahoo)
+- May 07 - [Trump Deletes Post Fuming That Stormy Daniels Is Expected to Testify Today](https://www.yahoo.com/news/trump-posts-then-quickly-deletes-121949853.html)
+- May 07 - [Dollar Tree vs. Walmart: Money Expert Rachel Cruze Finds the Best Name-Brand Deals](https://finance.yahoo.com/news/dollar-tree-vs-walmart-money-120027599.html)
 - May 07 - [Analysis-Jail time for contempt could spell political trouble for Trump](https://www.yahoo.com/news/analysis-jail-time-contempt-could-100607238.html)
-- May 07 - [Fire and hide: Ukraine's artillery pinned down by Russian drones](https://www.yahoo.com/news/fire-hide-ukraines-artillery-pinned-095227587.html)
-- May 07 - [Russia is raising a stink about F-16s in Ukraine by saying they're nuclear-capable, even though the types of warplanes already deployed there can carry nukes](https://www.yahoo.com/news/russia-raising-stink-f-16s-082741151.html)
-- May 07 - [Chinese climbers stuck on cliff for more than an hour due to overcrowding](https://www.yahoo.com/news/chinese-climbers-stuck-cliff-more-063502294.html)
+- May 07 - [Xi Says China Will ‘Never Forget’ the US Bombing of Its Embassy](https://www.yahoo.com/news/xi-vows-remember-flagrant-us-065747648.html)
+- May 07 - [Ex-DOJ Official Stunned By Trump Hand Gesture In Court: ‘Can’t Begin To Fathom’](https://www.yahoo.com/news/ex-doj-official-stunned-trump-055939131.html)
 <!-- feed end -->
 
 ### Onstream
