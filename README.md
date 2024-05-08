@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 08 - [12-year-old faced ‘evil and torment’ by dad, his girlfriend before death, officials say](https://www.yahoo.com/news/12-old-faced-evil-torment-162645878.html)
+- May 08 - [The electric car carnage has only just begun](https://www.yahoo.com/tech/electric-car-carnage-only-just-160726555.html)
 - May 08 - [Pfizer Stock Is Near An 11-Year Low — But Is It A Buy On This 'Massive' Upside?](https://www.investors.com/news/technology/pfizer-stock-buy-now/?src=A00220&yptr=yahoo)
-- May 08 - [Technicolored creature — found in Brazil river — discovered as a new species. See it](https://www.yahoo.com/news/technicolored-creature-found-brazil-river-153049700.html)
-- May 08 - [China is falling behind in race to become AI superpower](https://www.yahoo.com/tech/china-falling-behind-race-become-140526154.html)
+- May 08 - [Georgia Appeals Court Hands Trump Massive Win With Fani Willis Ruling](https://www.yahoo.com/news/georgia-appeals-court-hands-trump-154341520.html)
 - May 08 - [Integrated Sierra Space Dream Chaser Space Plane Unveiled At NASA Facility](https://www.yahoo.com/news/integrated-sierra-space-dream-chaser-182117259.html)
-- May 08 - [Houston mayor says police chief is out amid probe into thousands of dropped cases](https://www.yahoo.com/news/houston-mayor-says-police-chief-135137341.html)
 <!-- feed end -->
 
 ### Onstream
