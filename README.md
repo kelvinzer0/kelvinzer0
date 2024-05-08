@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Tesla Stock Drops Again on Reports of Musk FSD Investigation](https://www.barrons.com/articles/tesla-stock-price-musk-investigation-91ce2375?siteid=yhoof2&yptr=yahoo)
-- May 08 - [US Federal Election Commission gives Trump 45 more days to file personal financial disclosures](https://www.yahoo.com/news/us-fec-gives-trump-45-181539294.html)
-- May 08 - [Tesla provides alert, coordinates to fatal crash in El Dorado County](https://www.yahoo.com/news/tesla-provides-alert-coordinates-fatal-172954735.html)
-- May 08 - [40 Tweets From The Last 40 Days That Are Just Very, Very, Very Funny To Me](https://www.yahoo.com/entertainment/40-posts-x-last-40-164556100.html)
-- May 08 - [12-year-old faced ‘evil and torment’ by dad, his girlfriend before death, officials say](https://www.yahoo.com/news/12-old-faced-evil-torment-162645878.html)
+- May 08 - [Why Is Everyone Talking About AMD Stock?](https://finance.yahoo.com/news/why-everyone-talking-amd-stock-203339999.html)
+- May 08 - [Realty Income Corporation (NYSE:O) Q1 2024 Earnings Call Transcript](https://finance.yahoo.com/news/realty-income-corporation-nyse-o-201511651.html)
+- May 08 - [Open to the public; ATVs, dump trucks, cars and more at St. Johns County surplus auction](https://www.yahoo.com/news/open-public-atvs-dump-trucks-195935708.html)
+- May 08 - [Beloved Bagby Hot Springs open in Mount Hood National Forest for first time since 2020](https://www.yahoo.com/lifestyle/beloved-bagby-hot-springs-open-182920629.html)
+- May 08 - [Tesla Surprisingly Becomes Luminar's Largest Lidar Customer, Contradicting Musk's Past Criticism](https://finance.yahoo.com/news/tesla-surprisingly-becomes-luminars-largest-182808321.html)
 <!-- feed end -->
 
 ### Onstream
