@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [The US dollar is so strong that China's central bank, among others, just keeps loading up on gold](https://finance.yahoo.com/news/us-dollar-strong-chinas-central-173902306.html)
-- May 08 - [‘Golden’-tailed creature — pregnant with 2 eggs — discovered as new species. See it](https://www.yahoo.com/news/golden-tailed-creature-pregnant-2-171226464.html)
-- May 08 - [NASA's Building A Solar Sail To Propel Space Exploration](https://www.yahoo.com/news/nasas-building-solar-sail-propel-170000974.html)
+- May 08 - [Tesla Stock Drops Again on Reports of Musk FSD Investigation](https://www.barrons.com/articles/tesla-stock-price-musk-investigation-91ce2375?siteid=yhoof2&yptr=yahoo)
+- May 08 - [US Federal Election Commission gives Trump 45 more days to file personal financial disclosures](https://www.yahoo.com/news/us-fec-gives-trump-45-181539294.html)
+- May 08 - [Tesla provides alert, coordinates to fatal crash in El Dorado County](https://www.yahoo.com/news/tesla-provides-alert-coordinates-fatal-172954735.html)
+- May 08 - [40 Tweets From The Last 40 Days That Are Just Very, Very, Very Funny To Me](https://www.yahoo.com/entertainment/40-posts-x-last-40-164556100.html)
 - May 08 - [12-year-old faced ‘evil and torment’ by dad, his girlfriend before death, officials say](https://www.yahoo.com/news/12-old-faced-evil-torment-162645878.html)
-- May 08 - [The electric car carnage has only just begun](https://www.yahoo.com/tech/electric-car-carnage-only-just-160726555.html)
 <!-- feed end -->
 
 ### Onstream
