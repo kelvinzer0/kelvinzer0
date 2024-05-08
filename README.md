@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Houston mayor says police chief is out amid probe into thousands of dropped cases](https://www.yahoo.com/news/houston-mayor-says-police-chief-135137341.html)
-- May 08 - [Well-known food brands are losing consumers according to reports | CW39 Houston](https://www.yahoo.com/news/well-known-food-brands-losing-120116884.html)
+- May 08 - [Thailand's prime minister wants to outlaw cannabis, 2 years after it was decriminalized](https://www.yahoo.com/news/thailands-prime-minister-wants-outlaw-124119446.html)
+- May 08 - [RFK Jr. Says Doctors Found a Dead Worm in His Brain](https://www.yahoo.com/news/rfk-jr-says-doctors-found-120200128.html)
 - May 08 - [Archaeologists Uncovered the Secret Hideaway of an Egyptian Pharaoh](https://www.yahoo.com/news/archaeologists-uncovered-secret-hideaway-egyptian-113000130.html)
-- May 08 - [Scientists sound alarm as growing threat looms over coastal states: 'We are preparing for the wrong disaster'](https://www.yahoo.com/news/scientists-sound-alarm-growing-threat-020000701.html)
-- May 08 - [Forecast: Severe storms to bring hail and high winds](https://www.yahoo.com/news/forecast-severe-storms-bring-hail-103218801.html)
+- May 08 - [‘It’s gone, forever.’ Customer loses trust in Hereford House after tainted food allegation](https://www.yahoo.com/news/gone-forever-customer-loses-trust-110000085.html)
+- May 08 - [A Boeing 787 full of passengers was stranded in Canada's deep north after a burning smell forced an emergency landing](https://www.yahoo.com/news/boeing-787-full-passengers-stranded-101238017.html)
 <!-- feed end -->
 
 ### Onstream
