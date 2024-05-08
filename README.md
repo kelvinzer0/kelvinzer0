@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [TC Energy's oil pipeline spin-off faces obstacles in bet on US Gulf](https://www.yahoo.com/news/tc-energys-oil-pipeline-spin-100216718.html)
-- May 08 - [Of the 10 most expensive neighborhoods in America, Naples is home to two of them](https://finance.yahoo.com/news/10-most-expensive-neighborhoods-america-090409477.html)
+- May 08 - [Supreme Court Justice Neil Gorsuch co-authors book on laws. 'Over Ruled' to be released Aug. 6](https://www.yahoo.com/news/supreme-court-justice-neil-gorsuch-120018825.html)
+- May 08 - [Judge rejects Penn State’s bid to throw out a lawsuit brought by former majorette](https://www.yahoo.com/news/judge-rejects-penn-state-bid-100000755.html)
 - May 08 - [Mary Trump Reveals Origin Of Uncle’s Alleged Pet Name For Stormy Daniels](https://www.yahoo.com/news/mary-trump-reveals-origin-uncle-074231587.html)
 - May 08 - [A Ukrainian tank crew says the Abrams is still being used on the front lines, but isn't finding 'tank-on-tank' battles where it has the edge](https://www.yahoo.com/news/ukrainian-tank-crew-says-abrams-063500481.html)
-- May 08 - [Italy's president says Russia's invasion of Ukraine can't be solved by rewarding Moscow's aggression](https://www.yahoo.com/news/italys-president-says-russias-invasion-035726582.html)
+- May 08 - [Super-aged Japan now has 9 million vacant homes. And that’s a problem](https://www.yahoo.com/news/why-too-many-homes-not-013641783.html)
 <!-- feed end -->
 
 ### Onstream
