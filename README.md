@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Italy's president says Russia's invasion of Ukraine can't be solved by rewarding Moscow's aggression](https://www.yahoo.com/news/italys-president-says-russias-invasion-035726582.html)
 - May 08 - [Super-aged Japan now has 9 million vacant homes. And that’s a problem](https://www.yahoo.com/news/why-too-many-homes-not-013641783.html)
 - May 08 - [Rape, terror and death at sea: How a boat carrying Rohingya children, women and men capsized](https://www.yahoo.com/news/rape-terror-death-sea-boat-030727364.html)
+- May 08 - [Truck driver’s medical clearance expired day after triple-fatal crash outside Las Vegas](https://www.yahoo.com/news/truck-driver-medical-clearance-expired-001202462.html)
 - May 07 - [Saudi Arabia’s $100 Billion AI Fund Will Divest China If US Asks](https://finance.yahoo.com/news/saudi-arabia-ai-fund-divest-235258599.html)
-- May 07 - [Luminar says Tesla is biggest customer for its lidar sensors](https://finance.yahoo.com/news/luminar-says-tesla-biggest-customer-233630788.html)
+- May 07 - [I’m Part of the Upper Middle Class: Here’s What My Finances Look Like](https://finance.yahoo.com/news/m-part-upper-middle-class-140020339.html)
 <!-- feed end -->
 
 ### Onstream
