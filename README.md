@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Ukraine is getting a prototype artillery shell that can strike 3 times as far as regular rounds: report](https://www.yahoo.com/news/ukraine-getting-prototype-artillery-shell-095632541.html)
-- May 08 - [The US dollar is so strong that China's central bank, among others, just keeps loading up on gold](https://www.yahoo.com/news/us-dollar-strong-chinas-central-173902306.html)
-- May 08 - [A Ukrainian tank crew says the Abrams is still being used on the front lines, but isn't finding 'tank-on-tank' battles where it has the edge](https://www.yahoo.com/news/ukrainian-tank-crew-says-abrams-063500481.html)
-- May 08 - [Canoga Park home raided by FBI agents, SWAT team](https://www.yahoo.com/news/canoga-park-home-raided-fbi-060718257.html)
-- May 08 - [Italy's president says Russia's invasion of Ukraine can't be solved by rewarding Moscow's aggression](https://www.yahoo.com/news/italys-president-says-russias-invasion-035726582.html)
+- May 08 - [Houston mayor says police chief is out amid probe into thousands of dropped cases](https://www.yahoo.com/news/houston-mayor-says-police-chief-135137341.html)
+- May 08 - [Well-known food brands are losing consumers according to reports | CW39 Houston](https://www.yahoo.com/news/well-known-food-brands-losing-120116884.html)
+- May 08 - [Archaeologists Uncovered the Secret Hideaway of an Egyptian Pharaoh](https://www.yahoo.com/news/archaeologists-uncovered-secret-hideaway-egyptian-113000130.html)
+- May 08 - [Scientists sound alarm as growing threat looms over coastal states: 'We are preparing for the wrong disaster'](https://www.yahoo.com/news/scientists-sound-alarm-growing-threat-020000701.html)
+- May 08 - [Forecast: Severe storms to bring hail and high winds](https://www.yahoo.com/news/forecast-severe-storms-bring-hail-103218801.html)
 <!-- feed end -->
 
 ### Onstream
