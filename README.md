@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Why Is Everyone Talking About AMD Stock?](https://finance.yahoo.com/news/why-everyone-talking-amd-stock-203339999.html)
-- May 08 - [Realty Income Corporation (NYSE:O) Q1 2024 Earnings Call Transcript](https://finance.yahoo.com/news/realty-income-corporation-nyse-o-201511651.html)
-- May 08 - [Open to the public; ATVs, dump trucks, cars and more at St. Johns County surplus auction](https://www.yahoo.com/news/open-public-atvs-dump-trucks-195935708.html)
-- May 08 - [Beloved Bagby Hot Springs open in Mount Hood National Forest for first time since 2020](https://www.yahoo.com/lifestyle/beloved-bagby-hot-springs-open-182920629.html)
-- May 08 - [Tesla Surprisingly Becomes Luminar's Largest Lidar Customer, Contradicting Musk's Past Criticism](https://finance.yahoo.com/news/tesla-surprisingly-becomes-luminars-largest-182808321.html)
+- May 08 - [Can I Use My RMDs to Transfer Money Into My Roth IRA?](https://finance.yahoo.com/news/rmds-transfer-money-roth-ira-121600034.html)
+- May 08 - [Tesla Quietly Removes All U.S. Job Postings](https://finance.yahoo.com/news/tesla-quietly-removes-u-job-195454153.html)
+- May 08 - [Nearly 700 Jewish professors call on Biden not to sign controversial antisemitism legislation](https://www.yahoo.com/news/nearly-700-jewish-professors-call-195223004.html)
+- May 08 - [Confirmed tornado hit near Pittsburgh International Airport during early morning storms, NWS says](https://www.yahoo.com/news/confirmed-tornado-hit-near-pittsburgh-182439118.html)
+- May 08 - [Another SpaceX launch could be visible from Coachella Valley tonight. Here's when to watch](https://www.yahoo.com/tech/another-spacex-launch-could-visible-182025510.html)
 <!-- feed end -->
 
 ### Onstream
