@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [US optimistic revised Hamas proposal may break Gaza ceasefire impasse](https://www.yahoo.com/news/us-optimistic-revised-hamas-proposal-011612000.html)
-- May 07 - [Luminar says Tesla is biggest customer for its lidar sensors](https://finance.yahoo.com/news/luminar-says-tesla-biggest-customer-233630788.html)
+- May 08 - [Italy's president says Russia's invasion of Ukraine can't be solved by rewarding Moscow's aggression](https://www.yahoo.com/news/italys-president-says-russias-invasion-035726582.html)
+- May 08 - [Super-aged Japan now has 9 million vacant homes. And that’s a problem](https://www.yahoo.com/news/why-too-many-homes-not-013641783.html)
 - May 07 - [I’m Part of the Upper Middle Class: Here’s What My Finances Look Like](https://finance.yahoo.com/news/m-part-upper-middle-class-140020339.html)
 - May 07 - [Driver gets stuck in mud on closed Death Valley road, photo shows. Rangers warn others](https://www.yahoo.com/news/driver-gets-stuck-mud-closed-222610895.html)
 - May 07 - [Trump documents trial start delayed indefinitely, judge orders](https://www.yahoo.com/news/trump-documents-trial-start-delayed-212150728.html)
