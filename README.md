@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Storm-related damage reported across Miami Valley](https://www.yahoo.com/news/storm-related-damage-reported-across-020519121.html)
+- May 08 - [US optimistic revised Hamas proposal may break Gaza ceasefire impasse](https://www.yahoo.com/news/us-optimistic-revised-hamas-proposal-011612000.html)
+- May 07 - [Luminar says Tesla is biggest customer for its lidar sensors](https://finance.yahoo.com/news/luminar-says-tesla-biggest-customer-233630788.html)
 - May 07 - [I’m Part of the Upper Middle Class: Here’s What My Finances Look Like](https://finance.yahoo.com/news/m-part-upper-middle-class-140020339.html)
+- May 07 - [Driver gets stuck in mud on closed Death Valley road, photo shows. Rangers warn others](https://www.yahoo.com/news/driver-gets-stuck-mud-closed-222610895.html)
 - May 07 - [Trump documents trial start delayed indefinitely, judge orders](https://www.yahoo.com/news/trump-documents-trial-start-delayed-212150728.html)
-- May 07 - [Former House Speaker Paul Ryan says he’s not voting for Trump : 'Character is too important'](https://finance.yahoo.com/news/former-house-speaker-paul-ryan-says-hes-not-voting-for-trump--character-is-too-important-210633204.html)
-- May 07 - [Is This Skydiving Center the Deadliest in the US?](https://www.yahoo.com/news/skydiving-center-deadliest-us-203903704.html)
 <!-- feed end -->
 
 ### Onstream
