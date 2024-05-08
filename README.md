@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 08 - [Italy's president says Russia's invasion of Ukraine can't be solved by rewarding Moscow's aggression](https://www.yahoo.com/news/italys-president-says-russias-invasion-035726582.html)
+- May 08 - [Mary Trump Reveals Origin Of Uncle’s Alleged Pet Name For Stormy Daniels](https://www.yahoo.com/news/mary-trump-reveals-origin-uncle-074231587.html)
+- May 08 - [A Ukrainian tank crew says the Abrams is still being used on the front lines, but isn't finding 'tank-on-tank' battles where it has the edge](https://www.yahoo.com/news/ukrainian-tank-crew-says-abrams-063500481.html)
 - May 08 - [Super-aged Japan now has 9 million vacant homes. And that’s a problem](https://www.yahoo.com/news/why-too-many-homes-not-013641783.html)
-- May 07 - [I’m Part of the Upper Middle Class: Here’s What My Finances Look Like](https://finance.yahoo.com/news/m-part-upper-middle-class-140020339.html)
-- May 07 - [Tennessee School Closings: May 8, 2024](https://www.yahoo.com/news/tennessee-school-closings-may-8-220826571.html)
-- May 07 - [Sex in Waukesha County Jail lobby; Waukesha man, woman accused](https://www.yahoo.com/news/sex-waukesha-county-jail-lobby-214152248.html)
+- May 08 - [Rape, terror and death at sea: How a boat carrying Rohingya children, women and men capsized](https://www.yahoo.com/news/rape-terror-death-sea-boat-030727364.html)
+- May 08 - [Students, staff at University of Amsterdam gather at dismantled pro-Palestinian protest camp](https://www.yahoo.com/news/students-staff-university-amsterdam-gather-021821338.html)
 <!-- feed end -->
 
 ### Onstream
