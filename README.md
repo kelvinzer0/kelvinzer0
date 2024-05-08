@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 07 - [Luminar says Tesla is biggest customer for its lidar sensors](https://finance.yahoo.com/news/luminar-says-tesla-biggest-customer-233630788.html)
 - May 07 - [I’m Part of the Upper Middle Class: Here’s What My Finances Look Like](https://finance.yahoo.com/news/m-part-upper-middle-class-140020339.html)
 - May 07 - [Trump documents trial start delayed indefinitely, judge orders](https://www.yahoo.com/news/trump-documents-trial-start-delayed-212150728.html)
 - May 07 - [Former House Speaker Paul Ryan says he’s not voting for Trump : 'Character is too important'](https://finance.yahoo.com/news/former-house-speaker-paul-ryan-says-hes-not-voting-for-trump--character-is-too-important-210633204.html)
-- May 07 - [UPDATE: Two people killed in crash on I-44 eastbound](https://www.yahoo.com/news/two-people-killed-crash-44-203659005.html)
-- May 07 - [Peru port conflict escalates as Chinese firm insists on original terms](https://www.yahoo.com/news/peru-port-conflict-escalates-chinese-201451312.html)
+- May 07 - [Is This Skydiving Center the Deadliest in the US?](https://www.yahoo.com/news/skydiving-center-deadliest-us-203903704.html)
 <!-- feed end -->
 
 ### Onstream
