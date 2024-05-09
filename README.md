@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 09 - [Barron Trump, 18, to make political debut as Florida delegate to the Republican convention](https://www.yahoo.com/news/barron-trump-18-political-debut-022318461.html)
 - May 08 - [Florida deputies who fatally shot US airman burst into wrong apartment, attorney says](https://www.yahoo.com/news/florida-deputies-fatally-shot-us-230554740.html)
+- May 08 - [‘Just devastating;’ Football stadium, historic park damaged in tornado outbreak](https://www.yahoo.com/news/just-devastating-football-stadium-historic-205036411.html)
 - May 08 - [Trucker acquitted in deadly crash asks for license back, but state says he contributed to accident](https://www.yahoo.com/news/trucker-acquitted-deadly-crash-asks-214304120.html)
 - May 08 - [We asked a parasite expert about RFK Jr.'s claim that a worm ate his brain. Here's what they said.](https://www.yahoo.com/news/asked-parasite-expert-rfk-jr-204907831.html)
-- May 08 - [Arm's annual revenue forecast fails to impress investors; shares tumble](https://www.yahoo.com/tech/arms-quarterly-revenue-forecast-beats-200358701.html)
 <!-- feed end -->
 
 ### Onstream
