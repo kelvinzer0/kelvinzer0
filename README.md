@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Robinhood retirement accounts offer 'compelling' values: CEO](https://finance.yahoo.com/video/robinhood-retirement-accounts-offer-compelling-194220793.html)
+- May 09 - [No more grits or waffles at this Columbus Waffle House location that will close soon](https://www.yahoo.com/news/no-more-grits-waffles-columbus-195448123.html)
+- May 09 - [Biden finally sent innocent, starving Palestinians a long overdue lifeline | Opinion](https://www.yahoo.com/news/biden-finally-sent-innocent-starving-191156822.html)
 - May 09 - [Mortgage rates drop for the first time in five weeks with experts adjusting their forecasts](https://finance.yahoo.com/news/mortgage-rates-drop-for-the-first-time-in-five-weeks-with-experts-adjusting-their-forecasts-183953551.html)
-- May 09 - [To Free Stuck Cargo Ship, Engineers Will Blow Up Baltimore Bridge](https://www.yahoo.com/news/free-stuck-cargo-ship-engineers-183212444.html)
 - May 09 - [A teen said a deputy threatened him as he filmed his mom's arrest. A jury awarded him $185,000.](https://www.yahoo.com/news/teen-said-deputy-threatened-him-182339185.html)
-- May 09 - [Bud Light sales still falling as Modelo, Coors fight to keep their gains](https://finance.yahoo.com/news/bud-light-sales-still-falling-as-modelo-coors-fight-to-keep-their-gains-173043825.html)
+- May 09 - [US Supreme Court reinforces police power in seized vehicle ruling](https://www.yahoo.com/news/us-supreme-court-reinforces-police-174111414.html)
 <!-- feed end -->
 
 ### Onstream
