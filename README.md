@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 09 - [Robinhood retirement accounts offer 'compelling' values: CEO](https://finance.yahoo.com/video/robinhood-retirement-accounts-offer-compelling-194220793.html)
 - May 09 - [Mortgage rates drop for the first time in five weeks with experts adjusting their forecasts](https://finance.yahoo.com/news/mortgage-rates-drop-for-the-first-time-in-five-weeks-with-experts-adjusting-their-forecasts-183953551.html)
-- May 09 - [Apple to power AI servers with its chips, Bloomberg News reports](https://finance.yahoo.com/news/apple-power-ai-servers-chips-181926056.html)
-- May 09 - [Trump Attorney Tries Slut-Shaming Stormy Daniels, Gets Zingers In Return](https://www.yahoo.com/news/trump-attorney-tries-slut-shaming-162952419.html)
-- May 09 - [Las Vegas alien video's previously missed detail proves 'authenticity,' expert says: 'You can't deny it'](https://www.yahoo.com/news/las-vegas-alien-videos-previously-155721090.html)
-- May 09 - [Student's viral video of trans woman in ladies' restroom spurs campus investigation, renewed debate](https://www.yahoo.com/news/students-viral-video-trans-woman-155340271.html)
+- May 09 - [To Free Stuck Cargo Ship, Engineers Will Blow Up Baltimore Bridge](https://www.yahoo.com/news/free-stuck-cargo-ship-engineers-183212444.html)
+- May 09 - [A teen said a deputy threatened him as he filmed his mom's arrest. A jury awarded him $185,000.](https://www.yahoo.com/news/teen-said-deputy-threatened-him-182339185.html)
+- May 09 - [Bud Light sales still falling as Modelo, Coors fight to keep their gains](https://finance.yahoo.com/news/bud-light-sales-still-falling-as-modelo-coors-fight-to-keep-their-gains-173043825.html)
 <!-- feed end -->
 
 ### Onstream
