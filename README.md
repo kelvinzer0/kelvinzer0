@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - May 09 - [People Are Sharing The Everyday Jobs They Used To Work That Have Slowly Become Obsolete Over Time, And I Never Considered Some Of These Until Now](https://www.yahoo.com/lifestyle/people-sharing-everyday-jobs-used-033602373.html)
 - May 09 - [Tornado recovery continues in Hot Springs, local restaurant damaged](https://www.yahoo.com/news/tornado-recovery-continues-hot-springs-025149338.html)
 - May 09 - [Barron Trump, 18, to make political debut as Florida delegate to the Republican convention](https://www.yahoo.com/news/barron-trump-18-political-debut-022318461.html)
-- May 09 - [Exclusive-Huawei's new phone uses more China-made parts, memory chip](https://finance.yahoo.com/news/exclusive-huaweis-phone-uses-more-020343933.html)
 - May 09 - [Here are the ultraprocessed foods you most need to avoid, according to a 30-year study](https://www.yahoo.com/lifestyle/ultraprocessed-foods-linked-early-death-223002085.html)
+- May 08 - [Florida deputies who fatally shot US airman burst into wrong apartment, attorney says](https://www.yahoo.com/news/florida-deputies-fatally-shot-us-230554740.html)
 <!-- feed end -->
 
 ### Onstream
