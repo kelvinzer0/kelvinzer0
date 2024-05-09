@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [People Are Sharing The Everyday Jobs They Used To Work That Have Slowly Become Obsolete Over Time, And I Never Considered Some Of These Until Now](https://www.yahoo.com/lifestyle/people-sharing-everyday-jobs-used-033602373.html)
+- May 09 - [Prediction: This Incredibly Cheap Semiconductor Stock Could Become the Next Nvidia](https://finance.yahoo.com/news/prediction-incredibly-cheap-semiconductor-stock-101500240.html)
+- May 09 - [Buffett warns you 'shouldn't own stocks' if you worry about them bobbing 'up and down' — here's his approach](https://finance.yahoo.com/news/buffett-warns-shouldnt-own-stocks-100100631.html)
+- May 09 - [Rivian Has a Huge Problem on Its Hands](https://finance.yahoo.com/news/rivian-huge-problem-hands-093000026.html)
+- May 09 - [Jamie Raskin Schools Republican With Brutal U.S. History Lesson: I 'Wrote A Paper About It'](https://www.yahoo.com/news/jamie-raskin-schools-republican-brutal-055356966.html)
 - May 09 - [Tornado recovery continues in Hot Springs, local restaurant damaged](https://www.yahoo.com/news/tornado-recovery-continues-hot-springs-025149338.html)
-- May 09 - [Barron Trump, 18, to make political debut as Florida delegate to the Republican convention](https://www.yahoo.com/news/barron-trump-18-political-debut-022318461.html)
-- May 09 - [Here are the ultraprocessed foods you most need to avoid, according to a 30-year study](https://www.yahoo.com/lifestyle/ultraprocessed-foods-linked-early-death-223002085.html)
-- May 08 - [Florida deputies who fatally shot US airman burst into wrong apartment, attorney says](https://www.yahoo.com/news/florida-deputies-fatally-shot-us-230554740.html)
 <!-- feed end -->
 
 ### Onstream
