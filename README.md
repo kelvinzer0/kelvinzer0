@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Chinese President Xi welcomed to Budapest as he continues his European tour](https://www.yahoo.com/news/chinese-president-xi-welcomed-budapest-125525108.html)
-- May 09 - [Boeing 737 Crash During Takeoff Leaves 11 Injured](https://www.yahoo.com/news/boeing-737-crashes-during-takeoff-123832965.html)
-- May 09 - [Gaza's sick and injured search for help as Rafah assault brings hospitals to their knees](https://www.yahoo.com/news/gazas-sick-injured-search-help-122707254.html)
-- May 09 - [Four historic aircraft to visit VB Military Aviation Museum for D-Day anniversary](https://www.yahoo.com/news/four-historic-aircraft-visit-vb-121134601.html)
+- May 09 - [Here are the ultraprocessed foods you most need to avoid, according to a 30-year study](https://www.yahoo.com/lifestyle/ultraprocessed-foods-linked-early-death-223002085.html)
+- May 09 - [Investigation launched into Judge Engoron’s “very troubling” chat with lawyer about Trump case](https://www.yahoo.com/news/investigation-launched-judge-engoron-very-124029480.html)
+- May 09 - [Scientists Found a Startling Glitch in Einstein’s Theory of Relativity](https://www.yahoo.com/news/scientists-found-startling-glitch-einstein-120000871.html)
 - May 09 - [‘I’m a Neurologist, and This Is the Type of Nut I Swear by for Alzheimer’s Prevention'](https://www.yahoo.com/lifestyle/m-neurologist-type-nut-swear-102500471.html)
+- May 09 - [GOP senators amused as Ted Cruz seeks to move bill: ‘The foot’s on the other hand’](https://www.yahoo.com/news/gop-senators-amused-ted-cruz-100000323.html)
 <!-- feed end -->
 
 ### Onstream
