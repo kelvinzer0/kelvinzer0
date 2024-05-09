@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Iowa law allows police to arrest and deport migrants. Civil rights groups are suing](https://www.yahoo.com/news/iowa-law-allows-police-arrest-160436125.html)
-- May 09 - [Marjorie Taylor Greene faces the beginning of the end after failed run at Mike Johnson](https://www.yahoo.com/news/marjorie-taylor-greene-faces-beginning-152842593.html)
-- May 09 - [Here are the ultraprocessed foods you most need to avoid, according to a 30-year study](https://www.yahoo.com/lifestyle/ultraprocessed-foods-linked-early-death-223002085.html)
-- May 09 - [Investigation launched into Judge Engoron’s “very troubling” chat with lawyer about Trump case](https://www.yahoo.com/news/investigation-launched-judge-engoron-very-124029480.html)
-- May 09 - [Chinese chip maker SMIC says revenue up 20% as clients restock](https://www.yahoo.com/tech/smic-misses-q1-profit-estimates-122903256.html)
+- May 09 - [Trump Attorney Tries Slut-Shaming Stormy Daniels, Gets Zingers In Return](https://www.yahoo.com/news/trump-attorney-tries-slut-shaming-162952419.html)
+- May 09 - [Texas Tech to rename one of its founding colleges, create new department](https://www.yahoo.com/news/texas-tech-rename-one-founding-161031244.html)
+- May 09 - [Divided Supreme Court rules no quick hearing required when police seize property](https://www.yahoo.com/news/divided-supreme-court-rules-no-153518851.html)
+- May 09 - [Bitcoin Drops. Why the ‘Halving’ Hasn’t Boosted the Crypto.](https://www.barrons.com/articles/bitcoin-ethereum-price-crypto-markets-today-a4e2c082?siteid=yhoof2&yptr=yahoo)
+- May 09 - [MS Coast mom knew about abuse of baby & evaded authorities until his death, judge told](https://www.yahoo.com/news/gulfport-mom-knew-abuse-baby-135616193.html)
 <!-- feed end -->
 
 ### Onstream
