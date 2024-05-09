@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Technology crushing human creativity? Apple's 'disturbing' new iPad ad has struck a nerve online](https://finance.yahoo.com/news/technology-crushing-human-creativity-apples-174552294.html)
-- May 09 - [Thunderstorm Creates Strobe Lightning in Northern Alabama](https://www.yahoo.com/news/thunderstorm-creates-strobe-lightning-northern-171119231.html)
-- May 09 - [NASA Contractor Warns That Boeing Launch Must Be Stopped "Before Something Catastrophic Happens"](https://www.yahoo.com/tech/nasa-contractor-warns-boeing-launch-165626075.html)
+- May 09 - [Mortgage rates drop for the first time in five weeks with experts adjusting their forecasts](https://finance.yahoo.com/news/mortgage-rates-drop-for-the-first-time-in-five-weeks-with-experts-adjusting-their-forecasts-183953551.html)
+- May 09 - [Apple to power AI servers with its chips, Bloomberg News reports](https://finance.yahoo.com/news/apple-power-ai-servers-chips-181926056.html)
 - May 09 - [Trump Attorney Tries Slut-Shaming Stormy Daniels, Gets Zingers In Return](https://www.yahoo.com/news/trump-attorney-tries-slut-shaming-162952419.html)
-- May 09 - [Divided Supreme Court rules no quick hearing required when police seize property](https://www.yahoo.com/news/divided-supreme-court-rules-no-153518851.html)
+- May 09 - [Las Vegas alien video's previously missed detail proves 'authenticity,' expert says: 'You can't deny it'](https://www.yahoo.com/news/las-vegas-alien-videos-previously-155721090.html)
+- May 09 - [Student's viral video of trans woman in ladies' restroom spurs campus investigation, renewed debate](https://www.yahoo.com/news/students-viral-video-trans-woman-155340271.html)
 <!-- feed end -->
 
 ### Onstream
