@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 08 - [Florida deputies who fatally shot US airman burst into wrong apartment, attorney says](https://www.yahoo.com/news/florida-deputies-fatally-shot-us-230554740.html)
 - May 08 - [Trucker acquitted in deadly crash asks for license back, but state says he contributed to accident](https://www.yahoo.com/news/trucker-acquitted-deadly-crash-asks-214304120.html)
-- May 08 - [Tony Khan: Big Free Agents Want To Come To AEW Because It’s Where The Best Wrestle](https://www.yahoo.com/entertainment/tony-khan-big-free-agents-213000732.html)
+- May 08 - [Houston police chief retires suddenly after questions raised about more than 260,000 suspended investigations](https://www.yahoo.com/news/houston-police-chief-retires-suddenly-205950333.html)
 - May 08 - [We asked a parasite expert about RFK Jr.'s claim that a worm ate his brain. Here's what they said.](https://www.yahoo.com/news/asked-parasite-expert-rfk-jr-204907831.html)
 - May 08 - [Semi-truck carrying meat incinerated by massive fire on 5 Freeway in Los Angeles](https://www.yahoo.com/news/semi-truck-carrying-meat-incinerated-204652353.html)
-- May 08 - [Nearly 700 Jewish professors call on Biden not to sign controversial antisemitism legislation](https://www.yahoo.com/news/nearly-700-jewish-professors-call-195223004.html)
 <!-- feed end -->
 
 ### Onstream
