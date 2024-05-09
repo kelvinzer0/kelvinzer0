@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Mexico surfer deaths: Man charged confessed to girlfriend, court told](https://www.yahoo.com/news/mexico-surfer-deaths-man-charged-011332075.html)
+- May 09 - [Tornado recovery continues in Hot Springs, local restaurant damaged](https://www.yahoo.com/news/tornado-recovery-continues-hot-springs-025149338.html)
 - May 09 - [Barron Trump, 18, to make political debut as Florida delegate to the Republican convention](https://www.yahoo.com/news/barron-trump-18-political-debut-022318461.html)
+- May 09 - [Owner of Minneapolis-St. Paul-West St. Paul Mexican restaurants charged with tax crimes](https://finance.yahoo.com/news/twin-cities-restaurateur-charged-tax-010300554.html)
 - May 09 - [Here are the ultraprocessed foods you most need to avoid, according to a 30-year study](https://www.yahoo.com/lifestyle/ultraprocessed-foods-linked-early-death-223002085.html)
-- May 08 - [We asked a parasite expert about RFK Jr.'s claim that a worm ate his brain. Here's what they said.](https://www.yahoo.com/news/asked-parasite-expert-rfk-jr-204907831.html)
-- May 08 - [Semi-truck carrying meat incinerated by massive fire on 5 Freeway in Los Angeles](https://www.yahoo.com/news/semi-truck-carrying-meat-incinerated-204652353.html)
+- May 08 - [Trucker acquitted in deadly crash asks for license back, but state says he contributed to accident](https://www.yahoo.com/news/trucker-acquitted-deadly-crash-asks-214304120.html)
 <!-- feed end -->
 
 ### Onstream
