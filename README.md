@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - May 08 - [Trucker acquitted in deadly crash asks for license back, but state says he contributed to accident](https://www.yahoo.com/news/trucker-acquitted-deadly-crash-asks-214304120.html)
 - May 08 - [Houston police chief retires suddenly after questions raised about more than 260,000 suspended investigations](https://www.yahoo.com/news/houston-police-chief-retires-suddenly-205950333.html)
 - May 08 - [We asked a parasite expert about RFK Jr.'s claim that a worm ate his brain. Here's what they said.](https://www.yahoo.com/news/asked-parasite-expert-rfk-jr-204907831.html)
-- May 08 - [Semi-truck carrying meat incinerated by massive fire on 5 Freeway in Los Angeles](https://www.yahoo.com/news/semi-truck-carrying-meat-incinerated-204652353.html)
+- May 08 - [Cruise ship sails into NYC port with 44-foot dead whale across bow](https://www.yahoo.com/news/cruise-ship-sails-nyc-port-204026378.html)
 <!-- feed end -->
 
 ### Onstream
