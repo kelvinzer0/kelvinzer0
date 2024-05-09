@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 09 - [McCarthy says he ‘couldn’t live’ with himself if he did deal with Democrats to save Speakership](https://www.yahoo.com/news/mccarthy-says-couldn-t-live-140449904.html)
+- May 09 - [Severe thunderstorms expected across North Florida Thursday night, Friday, forecasters say](https://www.yahoo.com/news/severe-thunderstorms-expected-across-north-140431942.html)
 - May 09 - [Here are the ultraprocessed foods you most need to avoid, according to a 30-year study](https://www.yahoo.com/lifestyle/ultraprocessed-foods-linked-early-death-223002085.html)
 - May 09 - [Investigation launched into Judge Engoron’s “very troubling” chat with lawyer about Trump case](https://www.yahoo.com/news/investigation-launched-judge-engoron-very-124029480.html)
-- May 09 - [Scientists Found a Startling Glitch in Einstein’s Theory of Relativity](https://www.yahoo.com/news/scientists-found-startling-glitch-einstein-120000871.html)
-- May 09 - [‘I’m a Neurologist, and This Is the Type of Nut I Swear by for Alzheimer’s Prevention'](https://www.yahoo.com/lifestyle/m-neurologist-type-nut-swear-102500471.html)
-- May 09 - [GOP senators amused as Ted Cruz seeks to move bill: ‘The foot’s on the other hand’](https://www.yahoo.com/news/gop-senators-amused-ted-cruz-100000323.html)
+- May 09 - [Exclusive first look inside the newest Tri-Cities high school to be built in 15 years](https://www.yahoo.com/news/exclusive-first-look-inside-newest-120000824.html)
 <!-- feed end -->
 
 ### Onstream
