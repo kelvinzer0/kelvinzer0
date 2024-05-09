@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 08 - [Florida deputies who fatally shot US airman burst into wrong apartment, attorney says](https://www.yahoo.com/news/florida-deputies-fatally-shot-us-230554740.html)
-- May 08 - [Trucker acquitted in deadly crash asks for license back, but state says he contributed to accident](https://www.yahoo.com/news/trucker-acquitted-deadly-crash-asks-214304120.html)
+- May 08 - [Crypto Markets Under Pressure as $2B Worth of Altcoin Token Unlocks and $11B Bitcoin Distribution Loom](https://finance.yahoo.com/news/crypto-markets-under-pressure-2b-211602098.html)
 - May 08 - [Houston police chief retires suddenly after questions raised about more than 260,000 suspended investigations](https://www.yahoo.com/news/houston-police-chief-retires-suddenly-205950333.html)
 - May 08 - [We asked a parasite expert about RFK Jr.'s claim that a worm ate his brain. Here's what they said.](https://www.yahoo.com/news/asked-parasite-expert-rfk-jr-204907831.html)
-- May 08 - [Cruise ship sails into NYC port with 44-foot dead whale across bow](https://www.yahoo.com/news/cruise-ship-sails-nyc-port-204026378.html)
+- May 08 - [Nearly 700 Jewish professors call on Biden not to sign controversial antisemitism legislation](https://www.yahoo.com/news/nearly-700-jewish-professors-call-195223004.html)
 <!-- feed end -->
 
 ### Onstream
