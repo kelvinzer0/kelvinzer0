@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 09 - [Technology crushing human creativity? Apple's 'disturbing' new iPad ad has struck a nerve online](https://finance.yahoo.com/news/technology-crushing-human-creativity-apples-174552294.html)
+- May 09 - [Thunderstorm Creates Strobe Lightning in Northern Alabama](https://www.yahoo.com/news/thunderstorm-creates-strobe-lightning-northern-171119231.html)
+- May 09 - [NASA Contractor Warns That Boeing Launch Must Be Stopped "Before Something Catastrophic Happens"](https://www.yahoo.com/tech/nasa-contractor-warns-boeing-launch-165626075.html)
 - May 09 - [Trump Attorney Tries Slut-Shaming Stormy Daniels, Gets Zingers In Return](https://www.yahoo.com/news/trump-attorney-tries-slut-shaming-162952419.html)
-- May 09 - [Texas Tech to rename one of its founding colleges, create new department](https://www.yahoo.com/news/texas-tech-rename-one-founding-161031244.html)
 - May 09 - [Divided Supreme Court rules no quick hearing required when police seize property](https://www.yahoo.com/news/divided-supreme-court-rules-no-153518851.html)
-- May 09 - [Bitcoin Drops. Why the ‘Halving’ Hasn’t Boosted the Crypto.](https://www.barrons.com/articles/bitcoin-ethereum-price-crypto-markets-today-a4e2c082?siteid=yhoof2&yptr=yahoo)
-- May 09 - [MS Coast mom knew about abuse of baby & evaded authorities until his death, judge told](https://www.yahoo.com/news/gulfport-mom-knew-abuse-baby-135616193.html)
 <!-- feed end -->
 
 ### Onstream
