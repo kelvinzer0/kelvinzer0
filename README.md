@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Man wanted for Tennessee homicide dies after North Ridgeville police-involved shooting: I-Team](https://www.yahoo.com/news/man-wanted-tennessee-homicide-hospitalized-005819803.html)
-- May 09 - [GOP senators amused as Ted Cruz seeks to move bill: ‘The foot’s on the other hand’](https://www.yahoo.com/news/gop-senators-amused-ted-cruz-100000323.html)
-- May 09 - [University of Tennessee looks to break parking habits, starting with freshmen](https://www.yahoo.com/news/university-tennessee-looks-break-parking-092745540.html)
-- May 09 - [If Your Poop Looks Like This, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/poop-looks-time-see-doctor-091602668.html)
-- May 09 - [Jamie Raskin Schools Republican With Brutal U.S. History Lesson: I ‘Wrote A Paper About It’](https://www.yahoo.com/news/jamie-raskin-schools-republican-brutal-055356966.html)
+- May 09 - [Chinese President Xi welcomed to Budapest as he continues his European tour](https://www.yahoo.com/news/chinese-president-xi-welcomed-budapest-125525108.html)
+- May 09 - [Boeing 737 Crash During Takeoff Leaves 11 Injured](https://www.yahoo.com/news/boeing-737-crashes-during-takeoff-123832965.html)
+- May 09 - [Gaza's sick and injured search for help as Rafah assault brings hospitals to their knees](https://www.yahoo.com/news/gazas-sick-injured-search-help-122707254.html)
+- May 09 - [Four historic aircraft to visit VB Military Aviation Museum for D-Day anniversary](https://www.yahoo.com/news/four-historic-aircraft-visit-vb-121134601.html)
+- May 09 - [‘I’m a Neurologist, and This Is the Type of Nut I Swear by for Alzheimer’s Prevention'](https://www.yahoo.com/lifestyle/m-neurologist-type-nut-swear-102500471.html)
 <!-- feed end -->
 
 ### Onstream
