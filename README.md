@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Prediction: This Incredibly Cheap Semiconductor Stock Could Become the Next Nvidia](https://finance.yahoo.com/news/prediction-incredibly-cheap-semiconductor-stock-101500240.html)
-- May 09 - [Buffett warns you 'shouldn't own stocks' if you worry about them bobbing 'up and down' — here's his approach](https://finance.yahoo.com/news/buffett-warns-shouldnt-own-stocks-100100631.html)
-- May 09 - [Rivian Has a Huge Problem on Its Hands](https://finance.yahoo.com/news/rivian-huge-problem-hands-093000026.html)
-- May 09 - [Jamie Raskin Schools Republican With Brutal U.S. History Lesson: I 'Wrote A Paper About It'](https://www.yahoo.com/news/jamie-raskin-schools-republican-brutal-055356966.html)
-- May 09 - [Tornado recovery continues in Hot Springs, local restaurant damaged](https://www.yahoo.com/news/tornado-recovery-continues-hot-springs-025149338.html)
+- May 09 - [Man wanted for Tennessee homicide dies after North Ridgeville police-involved shooting: I-Team](https://www.yahoo.com/news/man-wanted-tennessee-homicide-hospitalized-005819803.html)
+- May 09 - [GOP senators amused as Ted Cruz seeks to move bill: ‘The foot’s on the other hand’](https://www.yahoo.com/news/gop-senators-amused-ted-cruz-100000323.html)
+- May 09 - [University of Tennessee looks to break parking habits, starting with freshmen](https://www.yahoo.com/news/university-tennessee-looks-break-parking-092745540.html)
+- May 09 - [If Your Poop Looks Like This, It's Time To See A Doctor](https://www.yahoo.com/lifestyle/poop-looks-time-see-doctor-091602668.html)
+- May 09 - [Jamie Raskin Schools Republican With Brutal U.S. History Lesson: I ‘Wrote A Paper About It’](https://www.yahoo.com/news/jamie-raskin-schools-republican-brutal-055356966.html)
 <!-- feed end -->
 
 ### Onstream
