@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [No more grits or waffles at this Columbus Waffle House location that will close soon](https://www.yahoo.com/news/no-more-grits-waffles-columbus-195448123.html)
-- May 09 - [Biden finally sent innocent, starving Palestinians a long overdue lifeline | Opinion](https://www.yahoo.com/news/biden-finally-sent-innocent-starving-191156822.html)
-- May 09 - [Mortgage rates drop for the first time in five weeks with experts adjusting their forecasts](https://finance.yahoo.com/news/mortgage-rates-drop-for-the-first-time-in-five-weeks-with-experts-adjusting-their-forecasts-183953551.html)
-- May 09 - [A teen said a deputy threatened him as he filmed his mom's arrest. A jury awarded him $185,000.](https://www.yahoo.com/news/teen-said-deputy-threatened-him-182339185.html)
+- May 09 - [Severe storms headed to Austin area, tornado watch issued near Central Texas: NWS](https://www.yahoo.com/news/severe-storms-headed-austin-area-201829606.html)
+- May 09 - [Fact Check: Picture Shared Amid 2024 Protests Shows Swastikas Spray-Painted in Columbia University Office. Here's the Missing Context](https://www.yahoo.com/news/fact-check-picture-shared-amid-194200406.html)
+- May 09 - [Barron Trump Just Made a Big Move That Signifies He’s More Like His Dad Donald Trump Than We Thought](https://www.yahoo.com/entertainment/barron-trump-just-made-big-191619586.html)
+- May 09 - [A millennial who went to college in his 30s when his career stalled says his Bachelor's degree is 'worthless' and that he's been looking for a job for 3 years](https://finance.yahoo.com/news/millennial-went-college-30s-career-180301986.html)
 - May 09 - [US Supreme Court reinforces police power in seized vehicle ruling](https://www.yahoo.com/news/us-supreme-court-reinforces-police-174111414.html)
 <!-- feed end -->
 
