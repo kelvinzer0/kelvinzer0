@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 10 - [19 Things The Female Body Is Capable Of Doing, Even Though Most Of Us Don't Even Realize It](https://www.yahoo.com/lifestyle/19-things-female-body-capable-021602612.html)
-- May 10 - [‘It’s car after car after car’: Police target dangerous intersections as traffic deaths rise](https://www.yahoo.com/news/car-car-car-police-target-010014757.html)
+- May 10 - [Arizona State University dismisses scholar after video shows him verbally attacking a woman in a hijab](https://www.yahoo.com/news/arizona-state-university-research-scholar-132919732.html)
+- May 10 - [2 climbers reported missing on California's Mount Whitney are found dead](https://www.yahoo.com/news/2-climbers-reported-missing-californias-012731882.html)
 - May 09 - ['I'm an Oncologist, and This Is the Breakfast I Eat Almost Every Day for Cancer Prevention'](https://www.yahoo.com/lifestyle/im-oncologist-breakfast-eat-almost-232500808.html)
-- May 09 - [Lawler calls for Roy, Massie to be ‘immediately removed’ from Rules Committee](https://www.yahoo.com/news/lawler-calls-roy-massie-immediately-222022327.html)
-- May 09 - [Pennsylvania to ban cell phone use while driving and require police to collect traffic stop data](https://www.yahoo.com/news/pennsylvania-ban-cell-phone-while-205454526.html)
+- May 09 - [Apple to power AI servers with its chips, Bloomberg News reports](https://finance.yahoo.com/news/apple-power-ai-servers-chips-181926056.html)
 <!-- feed end -->
 
 ### Onstream
