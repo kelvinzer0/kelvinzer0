@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [How West Virginia's first transgender elected official is influencing local politics](https://www.yahoo.com/news/west-virginias-first-transgender-elected-173124927.html)
+- May 10 - [Maps show where millions in U.S. could see northern lights this weekend](https://www.yahoo.com/news/maps-show-where-millions-u-172836130.html)
 - May 10 - [Tractor-trailer hauling 15 million bees crashes on New England highway](https://www.yahoo.com/news/tractor-trailer-hauling-15-million-152657899.html)
-- May 10 - ['Retire Early Or Retire Rich?' — Man Asks Whether It's Better To Retire At 40 With $125,000 A Year Or At 60 With $300,000 Annually](https://finance.yahoo.com/news/retire-early-retire-rich-man-160018296.html)
-- May 10 - [Tesla Exec Quits, Trashes Company](https://finance.yahoo.com/news/tesla-exec-quits-trashes-company-155552485.html)
-- May 10 - [CCTV captures fatal bus crash into St Petersburg river](https://www.yahoo.com/news/cctv-captures-fatal-bus-crash-152753776.html)
+- May 10 - [Florida Man Whines About His Ruined Reputation After Pulling Gun On Uber Driver](https://autos.yahoo.com/florida-man-whines-ruined-reputation-171500860.html)
+- May 10 - [Court upholds a Nebraska woman's murder conviction, life sentence in dismemberment killing](https://www.yahoo.com/news/court-upholds-nebraska-womans-murder-165846990.html)
+- May 10 - [Chicken farmers stuck with uncertainty, massive loans in wake of Tyson Foods closures](https://www.yahoo.com/news/chicken-farmers-stuck-uncertainty-massive-153435682.html)
 <!-- feed end -->
 
 ### Onstream
