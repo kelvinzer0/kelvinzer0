@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [2 Beaten-Down Stocks to Buy and Hold for 10 Years](https://finance.yahoo.com/news/2-beaten-down-stocks-buy-134500970.html)
-- May 10 - [Storm damage following Thursday night’s severe storms (Photos)](https://www.yahoo.com/news/storm-damage-following-thursday-night-131016124.html)
+- May 10 - [Trump ally Steve Bannon loses appeal of conviction for defying Jan. 6 probe](https://www.yahoo.com/news/trump-ally-steve-bannon-loses-143715330.html)
+- May 10 - [UPDATE 1-Fed's Logan says US monetary policy may not be tight enough](https://finance.yahoo.com/news/1-feds-logan-says-us-142448956.html)
+- May 10 - [Strapped down, blindfolded, held in diapers: Israeli whistleblowers detail abuse of Palestinians in shadowy detention center](https://www.yahoo.com/news/strapped-down-blindfolded-held-diapers-080008283.html)
+- May 10 - [Storm damage along the Gulf Coast following Thursday night’s severe storms (Photos)](https://www.yahoo.com/news/storm-damage-following-thursday-night-131016124.html)
 - May 10 - [Japan defense chief urges higher security after drone video of warship posted on China social media](https://www.yahoo.com/news/japan-defense-chief-urges-higher-124202643.html)
-- May 10 - [‘Need desperate help’: Young Florida condo owner fears she’ll lose her home after ‘exorbitant’ HOA fee hike](https://finance.yahoo.com/news/desperate-help-young-florida-condo-110200076.html)
-- May 10 - [Country's last remaining coal power plant to shut down after decades of operation: 'We're going to end it'](https://www.yahoo.com/news/countrys-last-remaining-coal-power-110000531.html)
 <!-- feed end -->
 
 ### Onstream
