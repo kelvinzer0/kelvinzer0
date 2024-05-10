@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 10 - [19 Things The Female Body Is Capable Of Doing, Even Though Most Of Us Don't Even Realize It](https://www.yahoo.com/lifestyle/19-things-female-body-capable-021602612.html)
-- May 10 - [Arizona State University dismisses scholar after video shows him verbally attacking a woman in a hijab](https://www.yahoo.com/news/arizona-state-university-research-scholar-132919732.html)
 - May 10 - [2 climbers reported missing on California's Mount Whitney are found dead](https://www.yahoo.com/news/2-climbers-reported-missing-californias-012731882.html)
+- May 10 - [Residents shocked after hidden camera found in Southern California neighborhood](https://www.yahoo.com/news/residents-shocked-hidden-camera-found-012641851.html)
 - May 09 - ['I'm an Oncologist, and This Is the Breakfast I Eat Almost Every Day for Cancer Prevention'](https://www.yahoo.com/lifestyle/im-oncologist-breakfast-eat-almost-232500808.html)
-- May 09 - [Apple to power AI servers with its chips, Bloomberg News reports](https://finance.yahoo.com/news/apple-power-ai-servers-chips-181926056.html)
+- May 09 - [Amid Tesla’s bloodletting, top exec sends Musk a message: The company has ‘taken its pound of flesh’](https://finance.yahoo.com/news/amid-tesla-bloodletting-top-exec-213801909.html)
 <!-- feed end -->
 
 ### Onstream
