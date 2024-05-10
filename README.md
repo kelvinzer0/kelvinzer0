@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [2 climbers reported missing on California's Mount Whitney are found dead](https://www.yahoo.com/news/2-climbers-reported-missing-californias-012731882.html)
+- May 10 - [19 Things The Female Body Is Capable Of Doing, Even Though Most Of Us Don't Even Realize It](https://www.yahoo.com/lifestyle/19-things-female-body-capable-021602612.html)
+- May 10 - [‘It’s car after car after car’: Police target dangerous intersections as traffic deaths rise](https://www.yahoo.com/news/car-car-car-police-target-010014757.html)
+- May 09 - ['I'm an Oncologist, and This Is the Breakfast I Eat Almost Every Day for Cancer Prevention'](https://www.yahoo.com/lifestyle/im-oncologist-breakfast-eat-almost-232500808.html)
+- May 09 - [Lawler calls for Roy, Massie to be ‘immediately removed’ from Rules Committee](https://www.yahoo.com/news/lawler-calls-roy-massie-immediately-222022327.html)
 - May 09 - [Pennsylvania to ban cell phone use while driving and require police to collect traffic stop data](https://www.yahoo.com/news/pennsylvania-ban-cell-phone-while-205454526.html)
-- May 09 - [No more grits or waffles at this Columbus Waffle House location that will close soon](https://www.yahoo.com/news/no-more-grits-waffles-columbus-195448123.html)
-- May 09 - [Third member of great horned owl family found dead in Chicago's Lincoln Park](https://www.yahoo.com/news/third-member-great-horned-owl-192600821.html)
-- May 09 - [US special forces want longer reach for rockets, snipers, robots](https://www.yahoo.com/news/us-special-forces-want-longer-191053763.html)
 <!-- feed end -->
 
 ### Onstream
