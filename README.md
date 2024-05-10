@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 10 - [Strapped down, blindfolded, held in diapers: Israeli whistleblowers detail abuse of Palestinians in shadowy detention center](https://www.yahoo.com/news/strapped-down-blindfolded-held-diapers-080008283.html)
 - May 10 - [Bud Light sales still falling as Modelo, Coors fight to keep their gains](https://finance.yahoo.com/news/bud-light-sales-still-falling-as-modelo-coors-fight-to-keep-their-gains-173043825.html)
+- May 10 - [Philippines calls for expelling Chinese diplomats as South China Sea row escalates](https://www.yahoo.com/news/philippine-calls-chinese-diplomats-expelled-051446471.html)
 - May 10 - [Philippines eyes boost to nickel processing capacity](https://www.yahoo.com/news/philippines-says-u-china-eyeing-021958069.html)
 - May 10 - [19 Things The Female Body Is Capable Of Doing, Even Though Most Of Us Don't Even Realize It](https://www.yahoo.com/lifestyle/19-things-female-body-capable-021602612.html)
-- May 10 - [Arizona State University dismisses scholar after video shows him verbally attacking a woman in a hijab](https://www.yahoo.com/news/arizona-state-university-research-scholar-132919732.html)
-- May 10 - [2 climbers reported missing on California's Mount Whitney are found dead](https://www.yahoo.com/news/2-climbers-reported-missing-californias-012731882.html)
 <!-- feed end -->
 
 ### Onstream
