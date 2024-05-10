@@ -62,7 +62,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 10 - [Strapped down, blindfolded, held in diapers: Israeli whistleblowers detail abuse of Palestinians in shadowy detention center](https://www.yahoo.com/news/strapped-down-blindfolded-held-diapers-080008283.html)
 - May 10 - [Bud Light sales still falling as Modelo, Coors fight to keep their gains](https://finance.yahoo.com/news/bud-light-sales-still-falling-as-modelo-coors-fight-to-keep-their-gains-173043825.html)
-- May 10 - [Philippines calls for expelling Chinese diplomats as South China Sea row escalates](https://www.yahoo.com/news/philippine-calls-chinese-diplomats-expelled-051446471.html)
+- May 10 - [New Pinnacle Mountain State Park art stirs up conversation about ‘Natural State’ title](https://www.yahoo.com/news/pinnacle-mountain-state-park-art-032557749.html)
 - May 10 - [Philippines eyes boost to nickel processing capacity](https://www.yahoo.com/news/philippines-says-u-china-eyeing-021958069.html)
 - May 10 - [19 Things The Female Body Is Capable Of Doing, Even Though Most Of Us Don't Even Realize It](https://www.yahoo.com/lifestyle/19-things-female-body-capable-021602612.html)
 <!-- feed end -->
