@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [Grocery prices in Canada: Toronto vlogger Johnny Strides shares video comparing prices at Loblaws vs. Dollarama](https://www.yahoo.com/news/grocery-prices-in-canada-toronto-vlogger-johnny-strides-shares-video-comparing-prices-at-loblaws-vs-dollarama-203050663.html)
-- May 10 - [It's not a matter of if a hurricane will hit Florida, but when, forecasters say](https://www.yahoo.com/news/not-matter-hurricane-hit-florida-190952116.html)
-- May 10 - [Howard University nursing graduation ceremony cut short after venue reaches capacity](https://www.yahoo.com/news/howard-university-nursing-graduation-ceremony-185208747.html)
-- May 10 - [Fact Check: Biden Said Inflation Was 9% When He Became President. We Checked His Claim](https://www.yahoo.com/news/fact-check-biden-said-inflation-184800638.html)
-- May 10 - [21-year-old shoots stepmom as she goes to hug him at graduation, New Mexico police say](https://www.yahoo.com/news/21-old-shoots-stepmom-she-184737022.html)
+- May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
+- May 10 - [Justice Kavanaugh says unpopular rulings can later become 'fabric of American constitutional law'](https://www.yahoo.com/news/justice-kavanaugh-says-unpopular-rulings-212131989.html)
+- May 10 - [Best SSD deals: Samsung 990 Pro discounts](https://www.yahoo.com/tech/best-ssd-deals-samsung-990-205322937.html)
+- May 10 - [Illinois basketball star Terrence Shannon Jr. ordered to stand trial on a rape charge in Kansas](https://www.yahoo.com/news/illinois-basketball-star-terrence-shannon-194724520.html)
+- May 10 - [Trump calls it a ‘disgrace’ after judge directs Michael Cohen to refrain from talking about hush money case](https://www.yahoo.com/news/trump-calls-disgrace-judge-directs-181310155.html)
 <!-- feed end -->
 
 ### Onstream
