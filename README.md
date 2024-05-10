@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [I Turn 73 This Year. How Do I Avoid RMD Taxes?](https://finance.yahoo.com/news/turn-73-avoid-rmd-taxes-140103040.html)
 - May 09 - [Parents of boy whose heart stopped for 19 hours were stunned when it started beating again](https://www.yahoo.com/news/parents-boy-whose-heart-stopped-203500495.html)
 - May 09 - [Severe storms headed to Austin area, tornado watch issued near Central Texas: NWS](https://www.yahoo.com/news/severe-storms-headed-austin-area-201829606.html)
-- May 09 - [Barron Trump Just Made a Big Move That Signifies He’s More Like His Dad Donald Trump Than We Thought](https://www.yahoo.com/entertainment/barron-trump-just-made-big-191619586.html)
 - May 09 - [US special forces want longer reach for rockets, snipers, robots](https://www.yahoo.com/news/us-special-forces-want-longer-191053763.html)
+- May 09 - [Mortgage rates drop for the first time in five weeks with experts adjusting their forecasts](https://finance.yahoo.com/news/mortgage-rates-drop-for-the-first-time-in-five-weeks-with-experts-adjusting-their-forecasts-183953551.html)
+- May 09 - [Apple to power AI servers with its chips, Bloomberg News reports](https://finance.yahoo.com/news/apple-power-ai-servers-chips-181926056.html)
 <!-- feed end -->
 
 ### Onstream
