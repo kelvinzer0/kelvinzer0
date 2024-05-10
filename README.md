@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 10 - [Grocery prices in Canada: Toronto vlogger Johnny Strides shares video comparing prices at Loblaws vs. Dollarama](https://www.yahoo.com/news/grocery-prices-in-canada-toronto-vlogger-johnny-strides-shares-video-comparing-prices-at-loblaws-vs-dollarama-203050663.html)
+- May 10 - [It's not a matter of if a hurricane will hit Florida, but when, forecasters say](https://www.yahoo.com/news/not-matter-hurricane-hit-florida-190952116.html)
 - May 10 - [Howard University nursing graduation ceremony cut short after venue reaches capacity](https://www.yahoo.com/news/howard-university-nursing-graduation-ceremony-185208747.html)
+- May 10 - [Fact Check: Biden Said Inflation Was 9% When He Became President. We Checked His Claim](https://www.yahoo.com/news/fact-check-biden-said-inflation-184800638.html)
 - May 10 - [21-year-old shoots stepmom as she goes to hug him at graduation, New Mexico police say](https://www.yahoo.com/news/21-old-shoots-stepmom-she-184737022.html)
-- May 10 - [The 2024 LFP Supercharged Mustang Brings 810 HP for $49,995](https://autos.yahoo.com/2024-lfp-supercharged-mustang-brings-173000193.html)
-- May 10 - [Maps show where millions in U.S. could see northern lights this weekend](https://www.yahoo.com/news/maps-show-where-millions-u-172836130.html)
-- May 10 - [Tractor-trailer hauling 15 million bees crashes on New England highway](https://www.yahoo.com/news/tractor-trailer-hauling-15-million-152657899.html)
 <!-- feed end -->
 
 ### Onstream
