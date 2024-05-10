@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 10 - [Howard University nursing graduation ceremony cut short after venue reaches capacity](https://www.yahoo.com/news/howard-university-nursing-graduation-ceremony-185208747.html)
+- May 10 - [21-year-old shoots stepmom as she goes to hug him at graduation, New Mexico police say](https://www.yahoo.com/news/21-old-shoots-stepmom-she-184737022.html)
+- May 10 - [The 2024 LFP Supercharged Mustang Brings 810 HP for $49,995](https://autos.yahoo.com/2024-lfp-supercharged-mustang-brings-173000193.html)
 - May 10 - [Maps show where millions in U.S. could see northern lights this weekend](https://www.yahoo.com/news/maps-show-where-millions-u-172836130.html)
 - May 10 - [Tractor-trailer hauling 15 million bees crashes on New England highway](https://www.yahoo.com/news/tractor-trailer-hauling-15-million-152657899.html)
-- May 10 - [Florida Man Whines About His Ruined Reputation After Pulling Gun On Uber Driver](https://autos.yahoo.com/florida-man-whines-ruined-reputation-171500860.html)
-- May 10 - [Court upholds a Nebraska woman's murder conviction, life sentence in dismemberment killing](https://www.yahoo.com/news/court-upholds-nebraska-womans-murder-165846990.html)
-- May 10 - [Chicken farmers stuck with uncertainty, massive loans in wake of Tyson Foods closures](https://www.yahoo.com/news/chicken-farmers-stuck-uncertainty-massive-153435682.html)
 <!-- feed end -->
 
 ### Onstream
