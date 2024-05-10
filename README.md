@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 09 - [Parents of boy whose heart stopped for 19 hours were stunned when it started beating again](https://www.yahoo.com/news/parents-boy-whose-heart-stopped-203500495.html)
-- May 09 - [Severe storms headed to Austin area, tornado watch issued near Central Texas: NWS](https://www.yahoo.com/news/severe-storms-headed-austin-area-201829606.html)
+- May 10 - [2 climbers reported missing on California's Mount Whitney are found dead](https://www.yahoo.com/news/2-climbers-reported-missing-californias-012731882.html)
+- May 09 - [Pennsylvania to ban cell phone use while driving and require police to collect traffic stop data](https://www.yahoo.com/news/pennsylvania-ban-cell-phone-while-205454526.html)
+- May 09 - [No more grits or waffles at this Columbus Waffle House location that will close soon](https://www.yahoo.com/news/no-more-grits-waffles-columbus-195448123.html)
+- May 09 - [Third member of great horned owl family found dead in Chicago's Lincoln Park](https://www.yahoo.com/news/third-member-great-horned-owl-192600821.html)
 - May 09 - [US special forces want longer reach for rockets, snipers, robots](https://www.yahoo.com/news/us-special-forces-want-longer-191053763.html)
-- May 09 - [Mortgage rates drop for the first time in five weeks with experts adjusting their forecasts](https://finance.yahoo.com/news/mortgage-rates-drop-for-the-first-time-in-five-weeks-with-experts-adjusting-their-forecasts-183953551.html)
-- May 09 - [Apple to power AI servers with its chips, Bloomberg News reports](https://finance.yahoo.com/news/apple-power-ai-servers-chips-181926056.html)
 <!-- feed end -->
 
 ### Onstream
