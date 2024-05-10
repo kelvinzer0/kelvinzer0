@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
 - May 10 - [Justice Kavanaugh says unpopular rulings can later become 'fabric of American constitutional law'](https://www.yahoo.com/news/justice-kavanaugh-says-unpopular-rulings-212131989.html)
-- May 10 - [Best SSD deals: Samsung 990 Pro discounts](https://www.yahoo.com/tech/best-ssd-deals-samsung-990-205322937.html)
-- May 10 - [Illinois basketball star Terrence Shannon Jr. ordered to stand trial on a rape charge in Kansas](https://www.yahoo.com/news/illinois-basketball-star-terrence-shannon-194724520.html)
-- May 10 - [Trump calls it a ‘disgrace’ after judge directs Michael Cohen to refrain from talking about hush money case](https://www.yahoo.com/news/trump-calls-disgrace-judge-directs-181310155.html)
+- May 10 - [Kansas City Chiefs team physician pleads guilty for role in deadly crash](https://www.yahoo.com/news/kansas-city-chiefs-team-physician-204451408.html)
+- May 10 - [Fact Check: Biden Said Inflation Was 9% When He Became President. We Checked His Claim](https://www.yahoo.com/news/fact-check-biden-said-inflation-184800638.html)
+- May 10 - [San Angelo restaurant closes after building rent not paid](https://www.yahoo.com/news/san-angelo-restaurant-closes-building-182322415.html)
 <!-- feed end -->
 
 ### Onstream
