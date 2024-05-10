@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 10 - [Philippines eyes boost to nickel processing capacity](https://www.yahoo.com/news/philippines-says-u-china-eyeing-021958069.html)
 - May 10 - [19 Things The Female Body Is Capable Of Doing, Even Though Most Of Us Don't Even Realize It](https://www.yahoo.com/lifestyle/19-things-female-body-capable-021602612.html)
 - May 10 - [Residents shocked after hidden camera found in Southern California neighborhood](https://www.yahoo.com/news/residents-shocked-hidden-camera-found-012641851.html)
-- May 09 - [Biden gives 3-word response when asked when he'll debate Trump](https://www.yahoo.com/news/biden-gives-3-word-response-234039854.html)
 - May 09 - ['I'm an Oncologist, and This Is the Breakfast I Eat Almost Every Day for Cancer Prevention'](https://www.yahoo.com/lifestyle/im-oncologist-breakfast-eat-almost-232500808.html)
-- May 09 - [Amid Tesla’s bloodletting, top exec sends Musk a message: The company has ‘taken its pound of flesh’](https://finance.yahoo.com/news/amid-tesla-bloodletting-top-exec-213801909.html)
+- May 09 - [Pennsylvania to ban cell phone use while driving and require police to collect traffic stop data](https://www.yahoo.com/news/pennsylvania-ban-cell-phone-while-205454526.html)
 <!-- feed end -->
 
 ### Onstream
