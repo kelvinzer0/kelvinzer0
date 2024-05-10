@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 10 - [I’m a Financial Advisor: Avoid These 7 Mistakes When Rolling Over Money Between Retirement Accounts](https://finance.yahoo.com/news/m-financial-advisor-avoid-7-120020539.html)
+- May 10 - [Chief design officer emails team that he's leaving Ford](https://finance.yahoo.com/news/chief-design-officer-emails-team-100414143.html)
 - May 10 - [Strapped down, blindfolded, held in diapers: Israeli whistleblowers detail abuse of Palestinians in shadowy detention center](https://www.yahoo.com/news/strapped-down-blindfolded-held-diapers-080008283.html)
 - May 10 - [Bud Light sales still falling as Modelo, Coors fight to keep their gains](https://finance.yahoo.com/news/bud-light-sales-still-falling-as-modelo-coors-fight-to-keep-their-gains-173043825.html)
 - May 10 - [Hawaii tourist dies on Maui beach, and wife alleges state failed to warn her about snorkeling danger](https://www.yahoo.com/news/hawaii-tourist-dies-maui-beach-080039872.html)
-- May 10 - [Philippines calls for expelling Chinese diplomats as South China Sea row escalates](https://www.yahoo.com/news/philippine-calls-chinese-diplomats-expelled-051446471.html)
-- May 10 - [Trump gets Barron's age wrong when asked about his youngest son's convention role](https://www.yahoo.com/news/trump-gets-barrons-age-wrong-050442209.html)
 <!-- feed end -->
 
 ### Onstream
