@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [World Warned to Prepare for Today's Severe Geomagnetic Storm, First in 20 Years](https://www.yahoo.com/news/world-warned-prepare-todays-severe-125016419.html)
-- May 10 - [4 Best States To Grow Your Savings To $50,000 on an Average Salary](https://finance.yahoo.com/news/4-best-states-grow-savings-160020104.html)
+- May 10 - [How West Virginia's first transgender elected official is influencing local politics](https://www.yahoo.com/news/west-virginias-first-transgender-elected-173124927.html)
+- May 10 - [Tractor-trailer hauling 15 million bees crashes on New England highway](https://www.yahoo.com/news/tractor-trailer-hauling-15-million-152657899.html)
+- May 10 - ['Retire Early Or Retire Rich?' — Man Asks Whether It's Better To Retire At 40 With $125,000 A Year Or At 60 With $300,000 Annually](https://finance.yahoo.com/news/retire-early-retire-rich-man-160018296.html)
+- May 10 - [Tesla Exec Quits, Trashes Company](https://finance.yahoo.com/news/tesla-exec-quits-trashes-company-155552485.html)
 - May 10 - [CCTV captures fatal bus crash into St Petersburg river](https://www.yahoo.com/news/cctv-captures-fatal-bus-crash-152753776.html)
-- May 10 - [Trump ally Steve Bannon loses appeal of conviction for defying Jan. 6 probe](https://www.yahoo.com/news/trump-ally-steve-bannon-loses-143715330.html)
-- May 10 - [Strapped down, blindfolded, held in diapers: Israeli whistleblowers detail abuse of Palestinians in shadowy detention center](https://www.yahoo.com/news/strapped-down-blindfolded-held-diapers-080008283.html)
 <!-- feed end -->
 
 ### Onstream
