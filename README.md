@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 11 - [Melania Trump Confirms Her Son Barron Just Made a Total 180 Once Again With His Future](https://www.yahoo.com/news/melania-trump-confirms-her-son-153000721.html)
 - May 11 - [Joe Biden wants to remind 2024 voters of a record and an agenda. Often it's Donald Trump's](https://www.yahoo.com/news/joe-biden-wants-remind-2024-152210664.html)
-- May 11 - [Inspectors find moldy food, old food and dirty equipment at Kendall and Hialeah bakeries](https://www.yahoo.com/news/inspectors-moldy-food-old-food-144654510.html)
+- May 11 - [Tuna Crabs, Neither Tuna Nor Crabs, Are Swarming Near San Diego](https://www.yahoo.com/news/tuna-crabs-neither-tuna-nor-140755588.html)
 - May 11 - [How rich homebuyers are avoiding high mortgage rates](https://finance.yahoo.com/news/how-rich-homebuyers-are-avoiding-high-mortgage-rates-140220891.html)
-- May 11 - [18 Funny Signs From The Past Week That Sent Me Into A Fit Of Chuckles](https://www.yahoo.com/entertainment/18-funny-signs-past-week-121602554.html)
+- May 11 - [Name and shame: Pro-Israel website ramps up attacks on pro-Palestinian student protesters](https://www.yahoo.com/news/name-shame-pro-israel-website-121804072.html)
 <!-- feed end -->
 
 ### Onstream
