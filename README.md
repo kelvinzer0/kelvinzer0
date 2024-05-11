@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [After the storm: Indianhead neighbors gather for community cookout and share stories, help](https://www.yahoo.com/news/storm-indianhead-neighbors-gather-community-175001225.html)
-- May 11 - [Trump could owe more than $100 million in taxes as a result of IRS inquiry, report says](https://finance.yahoo.com/news/trump-could-owe-more-100-174807308.html)
+- May 11 - [Duchess of Sussex, called ‘Ifeoma’ in Nigeria, speaks with women about her Nigerian roots](https://www.yahoo.com/entertainment/duchess-sussex-called-ifeoma-nigeria-191523882.html)
+- May 11 - [New York Times: Trump could owe more than $100 million in taxes as a result of IRS inquiry](https://finance.yahoo.com/news/trump-could-owe-more-100-174807308.html)
+- May 11 - [Missed Out on Nvidia? This Incredibly Cheap Semiconductor Stock Is Crushing Nvidia in a Key Market Right Now, and It Could Soar 55%.](https://finance.yahoo.com/news/missed-nvidia-incredibly-cheap-semiconductor-181500095.html)
 - May 11 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
-- May 11 - [Portion of I-290 westbound shut down due to ‘serious’ crash](https://www.yahoo.com/news/portion-290-westbound-shut-down-160753790.html)
 - May 11 - [Melania Trump Confirms Her Son Barron Just Made a Total 180 Once Again With His Future](https://www.yahoo.com/news/melania-trump-confirms-her-son-153000721.html)
 <!-- feed end -->
 
