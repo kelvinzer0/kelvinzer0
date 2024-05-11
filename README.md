@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [Mexico heat wave melts temperature records in ten cities, including Mexico City](https://www.yahoo.com/news/mexico-heat-wave-melts-temperature-221116956.html)
-- May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
-- May 10 - [‘In his underwear:’ Man arrested for joyriding around Vilano Beach, crashing stolen $100,000 boat](https://www.yahoo.com/news/underwear-man-arrested-joyriding-around-200456881.html)
-- May 10 - [State trooper who arrested LGBTQ+ leaders in Philadelphia no longer works for state police](https://www.yahoo.com/news/state-trooper-arrested-lgbtq-leaders-195443335.html)
-- May 10 - [Woman secures $31.8 million from Smyrna concrete company in lawsuit](https://finance.yahoo.com/news/woman-secures-31-8-million-185928784.html)
+- May 11 - [Rockledge Drive tree trimming will proceed after protracted tension with Brevard County and residents](https://www.yahoo.com/news/rockledge-drive-tree-trimming-proceed-091658780.html)
+- May 11 - [Surprise: Roku's Cash Flow Is at an All-Time High. Here's What Investors Need to Know.](https://finance.yahoo.com/news/surprise-rokus-cash-flow-time-091500618.html)
+- May 11 - [Your doctor (and ChatGPT) will see you now. A peek into AI-assisted medical visits.](https://www.yahoo.com/tech/doctor-chatgpt-see-now-peek-090253466.html)
+- May 11 - [3 Magnificent S&P 500 Dividend Stocks Down 17% to 44% to Buy and Hold Forever](https://finance.yahoo.com/news/3-magnificent-p-500-dividend-081000017.html)
+- May 11 - [PHOTOS: Northern Lights illuminate skies across Tennessee, Mississippi](https://www.yahoo.com/news/photos-northern-lights-illuminate-skies-031202612.html)
 <!-- feed end -->
 
 ### Onstream
