@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [Russian attack forces frustrated, hungry residents from Ukraine border town](https://www.yahoo.com/news/russian-attack-forces-frustrated-hungry-231003918.html)
-- May 10 - [Man and Daughter Held at Gunpoint by Cops During Traffic Stop](https://www.yahoo.com/news/man-daughter-held-gunpoint-cops-224202285.html)
 - May 10 - [Mexico heat wave melts temperature records in ten cities, including Mexico City](https://www.yahoo.com/news/mexico-heat-wave-melts-temperature-221116956.html)
 - May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
-- May 10 - [Kansas City Chiefs team physician pleads guilty for role in deadly crash](https://www.yahoo.com/news/kansas-city-chiefs-team-physician-204451408.html)
+- May 10 - [‘In his underwear:’ Man arrested for joyriding around Vilano Beach, crashing stolen $100,000 boat](https://www.yahoo.com/news/underwear-man-arrested-joyriding-around-200456881.html)
+- May 10 - [State trooper who arrested LGBTQ+ leaders in Philadelphia no longer works for state police](https://www.yahoo.com/news/state-trooper-arrested-lgbtq-leaders-195443335.html)
+- May 10 - [Woman secures $31.8 million from Smyrna concrete company in lawsuit](https://finance.yahoo.com/news/woman-secures-31-8-million-185928784.html)
 <!-- feed end -->
 
 ### Onstream
