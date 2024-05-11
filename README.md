@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 10 - [Russian attack forces frustrated, hungry residents from Ukraine border town](https://www.yahoo.com/news/russian-attack-forces-frustrated-hungry-231003918.html)
 - May 10 - [Mexico heat wave melts temperature records in ten cities, including Mexico City](https://www.yahoo.com/news/mexico-heat-wave-melts-temperature-221116956.html)
 - May 10 - [McDonald's is considering a $5 meal deal. Here's what you'd get.](https://finance.yahoo.com/news/mcdonalds-considering-5-meal-deal-220253658.html)
 - May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
-- May 10 - [Illinois basketball star Terrence Shannon Jr. ordered to stand trial on a rape charge in Kansas](https://www.yahoo.com/news/illinois-basketball-star-terrence-shannon-194724520.html)
-- May 10 - [Fact Check: Biden Said Inflation Was 9% When He Became President. We Checked His Claim](https://www.yahoo.com/news/fact-check-biden-said-inflation-184800638.html)
+- May 10 - [This Apple Watch X concept is absolutely absurd](https://www.yahoo.com/tech/apple-watch-x-concept-absolutely-204644338.html)
 <!-- feed end -->
 
 ### Onstream
