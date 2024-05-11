@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [2 Artificial Intelligence (AI) Stocks to Buy Now That Could Make You a Fortune](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-142100623.html)
+- May 11 - [Spectacular aurora photos: Skies dazzle in vivid colors around the world](https://www.yahoo.com/news/spectacular-aurora-photos-skies-dazzle-150758086.html)
+- May 11 - [How rich homebuyers are avoiding high mortgage rates](https://finance.yahoo.com/news/how-rich-homebuyers-are-avoiding-high-mortgage-rates-140220891.html)
 - May 11 - [Ukraine's pilots are flying high-risk 'wild weasel' missions first developed in the Vietnam War by the USAF, says defense analyst](https://www.yahoo.com/news/ukraines-pilots-flying-high-risk-112546897.html)
-- May 11 - ['Let her go! Let her go!' Fontana officer shoots armed man who put his partner in a headlock](https://www.yahoo.com/news/let-her-let-her-fontana-110021319.html)
 - May 11 - [‘Things that only happen in dreams.’ Ky. man who found trove of gold coins shares story on KET](https://www.yahoo.com/news/things-only-happen-dreams-ky-110000932.html)
-- May 11 - [PHOTOS: Northern Lights illuminate skies across Tennessee, Mississippi](https://www.yahoo.com/news/photos-northern-lights-illuminate-skies-031202612.html)
+- May 11 - [The Rock noise, Franklin ordinance takes effect: 'Huge difference'](https://www.yahoo.com/news/rock-noise-franklin-ordinance-takes-012155645.html)
 <!-- feed end -->
 
 ### Onstream
