@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - May 10 - [Man and Daughter Held at Gunpoint by Cops During Traffic Stop](https://www.yahoo.com/news/man-daughter-held-gunpoint-cops-224202285.html)
 - May 10 - [Mexico heat wave melts temperature records in ten cities, including Mexico City](https://www.yahoo.com/news/mexico-heat-wave-melts-temperature-221116956.html)
 - May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
-- May 10 - [Illinois basketball star Terrence Shannon Jr. ordered to stand trial on a rape charge in Kansas](https://www.yahoo.com/news/illinois-basketball-star-terrence-shannon-194724520.html)
+- May 10 - [Kansas City Chiefs team physician pleads guilty for role in deadly crash](https://www.yahoo.com/news/kansas-city-chiefs-team-physician-204451408.html)
 <!-- feed end -->
 
 ### Onstream
