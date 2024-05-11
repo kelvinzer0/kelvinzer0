@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Farmers will now get paid to test their dairy cows for bird flu](https://www.yahoo.com/news/farmers-now-paid-test-dairy-003327272.html)
 - May 10 - [Justice Clarence Thomas decries Washington as ‘hideous’ and pushes back on ‘nastiness’ of critics](https://www.yahoo.com/news/justice-clarence-thomas-decries-washington-232553830.html)
+- May 10 - [Man and Daughter Held at Gunpoint by Cops During Traffic Stop](https://www.yahoo.com/news/man-daughter-held-gunpoint-cops-224202285.html)
+- May 10 - [Mexico heat wave melts temperature records in ten cities, including Mexico City](https://www.yahoo.com/news/mexico-heat-wave-melts-temperature-221116956.html)
 - May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
 - May 10 - [This Apple Watch X concept is absolutely absurd](https://www.yahoo.com/tech/apple-watch-x-concept-absolutely-204644338.html)
-- May 10 - [‘In his underwear:’ Man arrested for joyriding around Vilano Beach, crashing stolen $100,000 boat](https://www.yahoo.com/news/underwear-man-arrested-joyriding-around-200456881.html)
 <!-- feed end -->
 
 ### Onstream
