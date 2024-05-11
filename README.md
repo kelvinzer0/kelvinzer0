@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Israeli MP waves flag in shock appearance at Oxford University student protest](https://www.independent.co.uk/news/uk/home-news/oxford-university-protest-gaza-palestine-israel-b2542758.html)
+- May 11 - [Inside Oxford University’s Gaza student protests – where an Israeli MP made a bold appearance](https://www.independent.co.uk/news/uk/home-news/oxford-university-protest-gaza-palestine-israel-b2542758.html)
 - May 11 - ['Let her go! Let her go!' Fontana officer shoots armed man who put his partner in a headlock](https://www.yahoo.com/news/let-her-let-her-fontana-110021319.html)
-- May 11 - [Mexico's ruling party presidential candidate slips, says outgoing leader led by 'personal ambition'](https://www.yahoo.com/news/mexicos-ruling-party-presidential-candidate-023840932.html)
-- May 11 - [The Rock noise, Franklin ordinance takes effect: 'Huge difference'](https://www.yahoo.com/news/rock-noise-franklin-ordinance-takes-012155645.html)
 - May 10 - [11 Best Farmland and Agriculture Stocks To Buy According to Analysts](https://finance.yahoo.com/news/11-best-farmland-agriculture-stocks-234022312.html)
+- May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
+- May 10 - [Justice Kavanaugh says unpopular rulings can later become 'fabric of American constitutional law'](https://www.yahoo.com/news/justice-kavanaugh-says-unpopular-rulings-212131989.html)
 <!-- feed end -->
 
 ### Onstream
