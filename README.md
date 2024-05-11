@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 11 - [Farmers will now get paid to test their dairy cows for bird flu](https://www.yahoo.com/news/farmers-now-paid-test-dairy-003327272.html)
+- May 10 - [Justice Clarence Thomas decries Washington as ‘hideous’ and pushes back on ‘nastiness’ of critics](https://www.yahoo.com/news/justice-clarence-thomas-decries-washington-232553830.html)
 - May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
-- May 10 - [Justice Kavanaugh says unpopular rulings can later become 'fabric of American constitutional law'](https://www.yahoo.com/news/justice-kavanaugh-says-unpopular-rulings-212131989.html)
-- May 10 - [Kansas City Chiefs team physician pleads guilty for role in deadly crash](https://www.yahoo.com/news/kansas-city-chiefs-team-physician-204451408.html)
-- May 10 - [Fact Check: Biden Said Inflation Was 9% When He Became President. We Checked His Claim](https://www.yahoo.com/news/fact-check-biden-said-inflation-184800638.html)
-- May 10 - [San Angelo restaurant closes after building rent not paid](https://www.yahoo.com/news/san-angelo-restaurant-closes-building-182322415.html)
+- May 10 - [This Apple Watch X concept is absolutely absurd](https://www.yahoo.com/tech/apple-watch-x-concept-absolutely-204644338.html)
+- May 10 - [‘In his underwear:’ Man arrested for joyriding around Vilano Beach, crashing stolen $100,000 boat](https://www.yahoo.com/news/underwear-man-arrested-joyriding-around-200456881.html)
 <!-- feed end -->
 
 ### Onstream
