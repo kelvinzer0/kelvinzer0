@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 10 - [Russian attack forces frustrated, hungry residents from Ukraine border town](https://www.yahoo.com/news/russian-attack-forces-frustrated-hungry-231003918.html)
+- May 11 - [UCF Board of Trustees member, Sheriff’s Office employee bond out after sex sting arrest](https://www.yahoo.com/news/ucf-board-trustees-member-sheriff-204610448.html)
+- May 10 - [Man and Daughter Held at Gunpoint by Cops During Traffic Stop](https://www.yahoo.com/news/man-daughter-held-gunpoint-cops-224202285.html)
 - May 10 - [Mexico heat wave melts temperature records in ten cities, including Mexico City](https://www.yahoo.com/news/mexico-heat-wave-melts-temperature-221116956.html)
 - May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
-- May 10 - [Justice Kavanaugh says unpopular rulings can later become 'fabric of American constitutional law'](https://www.yahoo.com/news/justice-kavanaugh-says-unpopular-rulings-212131989.html)
-- May 10 - [‘In his underwear:’ Man arrested for joyriding around Vilano Beach, crashing stolen $100,000 boat](https://www.yahoo.com/news/underwear-man-arrested-joyriding-around-200456881.html)
+- May 10 - [San Angelo restaurant closes after building rent not paid](https://www.yahoo.com/news/san-angelo-restaurant-closes-building-182322415.html)
 <!-- feed end -->
 
 ### Onstream
