@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Rockledge Drive tree trimming will proceed after protracted tension with Brevard County and residents](https://www.yahoo.com/news/rockledge-drive-tree-trimming-proceed-091658780.html)
-- May 11 - [Surprise: Roku's Cash Flow Is at an All-Time High. Here's What Investors Need to Know.](https://finance.yahoo.com/news/surprise-rokus-cash-flow-time-091500618.html)
-- May 11 - [Your doctor (and ChatGPT) will see you now. A peek into AI-assisted medical visits.](https://www.yahoo.com/tech/doctor-chatgpt-see-now-peek-090253466.html)
-- May 11 - [3 Magnificent S&P 500 Dividend Stocks Down 17% to 44% to Buy and Hold Forever](https://finance.yahoo.com/news/3-magnificent-p-500-dividend-081000017.html)
-- May 11 - [PHOTOS: Northern Lights illuminate skies across Tennessee, Mississippi](https://www.yahoo.com/news/photos-northern-lights-illuminate-skies-031202612.html)
+- May 11 - [Adrian school board considering Callie Yatzek to be administrator at Prairie Elementary](https://www.yahoo.com/news/adrian-school-board-considering-callie-075403063.html)
+- May 11 - [Police: Driver killed after crashing into block wall in west Las Vegas](https://www.yahoo.com/news/police-driver-killed-crashing-block-040126062.html)
+- May 11 - [UCF Board of Trustees member, Sheriff’s Office employee bond out after sex sting arrest](https://www.yahoo.com/news/ucf-board-trustees-member-sheriff-204610448.html)
+- May 10 - [Mexico heat wave melts temperature records in ten cities, including Mexico City](https://www.yahoo.com/news/mexico-heat-wave-melts-temperature-221116956.html)
+- May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
 <!-- feed end -->
 
 ### Onstream
