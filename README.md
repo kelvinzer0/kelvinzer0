@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [New York Times: Trump could owe more than $100 million in taxes as a result of IRS inquiry](https://finance.yahoo.com/news/trump-could-owe-more-100-174807308.html)
+- May 11 - [What is the deadliest tornado in West Texas? Heres is what you need to know.](https://www.yahoo.com/news/deadliest-tornado-west-texas-heres-192944337.html)
+- May 11 - [Pelosi rebuked to her face during Oxford debate after condemning Americans clouded by 'guns, gays, God'](https://www.yahoo.com/news/pelosi-rebuked-her-face-during-182359130.html)
 - May 11 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 - May 11 - [Jill Biden tells Arizona college graduates to tune out people who tell them what they 'can't' do](https://www.yahoo.com/news/jill-biden-tells-arizona-college-163123953.html)
-- May 11 - [Melania Trump Confirms Her Son Barron Just Made a Total 180 Once Again With His Future](https://www.yahoo.com/news/melania-trump-confirms-her-son-153000721.html)
-- May 11 - [Tuna Crabs, Neither Tuna Nor Crabs, Are Swarming Near San Diego](https://www.yahoo.com/news/tuna-crabs-neither-tuna-nor-140755588.html)
+- May 11 - [Melania Trump Reveals Why Son Barron 'Regretfully Declined' Florida Delegate Role](https://www.yahoo.com/news/melania-trump-reveals-why-son-150656446.html)
 <!-- feed end -->
 
 ### Onstream
