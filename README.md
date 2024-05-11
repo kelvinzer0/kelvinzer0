@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 11 - [Inside Oxford University’s Gaza student protests – where an Israeli MP made a bold appearance](https://www.independent.co.uk/news/uk/home-news/oxford-university-protest-gaza-palestine-israel-b2542758.html)
+- May 11 - [Hamas publishes first sign of life for Israeli hostage Nadav Popplewell](https://www.yahoo.com/news/hamas-publishes-first-sign-life-131648859.html)
+- May 11 - [Earn $1000 Every Month From These 3 Stocks](https://finance.yahoo.com/news/earn-1000-every-month-3-123800903.html)
+- May 11 - [Ukraine's pilots are flying high-risk 'wild weasel' missions first developed in the Vietnam War by the USAF, says defense analyst](https://www.yahoo.com/news/ukraines-pilots-flying-high-risk-112546897.html)
 - May 11 - ['Let her go! Let her go!' Fontana officer shoots armed man who put his partner in a headlock](https://www.yahoo.com/news/let-her-let-her-fontana-110021319.html)
-- May 10 - [11 Best Farmland and Agriculture Stocks To Buy According to Analysts](https://finance.yahoo.com/news/11-best-farmland-agriculture-stocks-234022312.html)
-- May 10 - [Trump's son Barron, 18, pulls out of political debut](https://www.yahoo.com/news/trumps-son-barron-18-pulls-212939813.html)
-- May 10 - [Justice Kavanaugh says unpopular rulings can later become 'fabric of American constitutional law'](https://www.yahoo.com/news/justice-kavanaugh-says-unpopular-rulings-212131989.html)
+- May 11 - [‘I was terrified.’ NC woman captures time-lapse video of funnel cloud near her home](https://www.yahoo.com/news/terrified-nc-woman-captures-time-100000614.html)
 <!-- feed end -->
 
 ### Onstream
