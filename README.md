@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Kentucky deputy jailer arrested, accused of sexually abusing an inmate](https://www.yahoo.com/news/kentucky-deputy-jailer-arrested-accused-193726574.html)
-- May 12 - [After Tallahassee power grid blasted, an around-the-clock response, overloaded outage map](https://www.yahoo.com/news/tallahassee-power-grid-blasted-around-183227529.html)
-- May 12 - [Russia's Putin proposes moving defence chief Shoigu in surprise reshuffle](https://www.yahoo.com/news/putin-proposes-sacking-defence-minister-182453851.html)
+- May 12 - [Prediction: This Artificial Intelligence (AI) Cloud Stock Will Join Microsoft, Alphabet, and Amazon in the $1 Trillion Club](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-cloud-202700632.html)
+- May 12 - [Springsteen Fans Roast Trump For Bizarre Boast About Size Of New Jersey Crowd](https://www.yahoo.com/entertainment/springsteen-fans-roast-trump-bizarre-201418976.html)
+- May 12 - [Putin taps civilian economist to run defence](https://www.yahoo.com/news/putin-proposes-sacking-defence-minister-182453851.html)
+- May 12 - [Flames engulf a Polish shopping center](https://www.yahoo.com/news/flames-engulf-polish-shopping-center-181904750.html)
 - May 12 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
-- May 12 - [Queen Greta has exposed the truth about the green movement](https://www.yahoo.com/news/queen-greta-exposed-truth-green-163206621.html)
 <!-- feed end -->
 
 ### Onstream
