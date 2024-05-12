@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 12 - [Trump, reciting songs and praising cannibals, draws yawns and raises eyebrows](https://www.yahoo.com/news/trump-reciting-songs-praising-cannibals-031853239.html)
 - May 12 - [A brief history of airline food’s rapid descent](https://finance.yahoo.com/news/airline-meals-used-plentiful-luxurious-070002223.html)
+- May 11 - [PHOTOS: Rare solar storm brings northern lights to San Diego County](https://www.yahoo.com/news/photos-rare-solar-storm-brings-210524526.html)
 - May 11 - [Pelosi rebuked to her face during Oxford debate after condemning Americans clouded by 'guns, gays, God'](https://www.yahoo.com/news/pelosi-rebuked-her-face-during-182359130.html)
 - May 11 - [Experts Say These 6 Common Work Habits May Actually Be Signs Of ADHD In Adults](https://www.yahoo.com/lifestyle/6-habits-may-secretly-sign-181602996.html)
-- May 11 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 <!-- feed end -->
 
 ### Onstream
