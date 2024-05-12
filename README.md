@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 12 - [Flash floods and cold lava flow hit Indonesia’s Sumatra island, killing at least 15 people](https://www.yahoo.com/news/flash-floods-cold-lava-flow-070919696.html)
 - May 12 - [Trump, reciting songs and praising cannibals, draws yawns and raises eyebrows](https://www.yahoo.com/news/trump-reciting-songs-praising-cannibals-031853239.html)
-- May 12 - [A brief history of airline food’s rapid descent](https://finance.yahoo.com/news/airline-meals-used-plentiful-luxurious-070002223.html)
-- May 11 - [Northern lights could illuminate Coachella Valley skies Saturday night. Here's where to go](https://www.yahoo.com/news/northern-lights-could-illuminate-coachella-194204889.html)
+- May 11 - [Ex-Nixon White House counsel on why he thinks case against Trump in New York is ‘very powerful’](https://www.yahoo.com/news/ex-nixon-white-house-counsel-213036103.html)
 - May 11 - [Pelosi rebuked to her face during Oxford debate after condemning Americans clouded by 'guns, gays, God'](https://www.yahoo.com/news/pelosi-rebuked-her-face-during-182359130.html)
-- May 11 - [Experts Say These 6 Common Work Habits May Actually Be Signs Of ADHD In Adults](https://www.yahoo.com/lifestyle/6-habits-may-secretly-sign-181602996.html)
+- May 11 - [The northern lights dazzled Idaho skygazers. See photos from Boise and beyond](https://www.yahoo.com/news/northern-lights-dazzled-idaho-skygazers-171631792.html)
 <!-- feed end -->
 
 ### Onstream
