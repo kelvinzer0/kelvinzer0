@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Russian glide bombs shatter ‘peace and quiet’ in northern Ukraine](https://www.yahoo.com/news/russian-glide-bombs-shatter-peace-183639595.html)
-- May 12 - [Maybe This Should Be the Next Defense Company to IPO](https://finance.yahoo.com/news/maybe-next-defense-company-ipo-183600978.html)
-- May 12 - [Search for survivors after apartment block collapses in Russia border city after heavy shelling](https://www.yahoo.com/news/search-survivors-apartment-block-collapses-174148410.html)
-- May 12 - [Blinken delivers some of the strongest US public criticism of Israel's conduct of the war in Gaza](https://www.yahoo.com/news/blinken-delivers-strongest-us-public-171635775.html)
+- May 12 - [Kentucky deputy jailer arrested, accused of sexually abusing an inmate](https://www.yahoo.com/news/kentucky-deputy-jailer-arrested-accused-193726574.html)
+- May 12 - [After Tallahassee power grid blasted, an around-the-clock response, overloaded outage map](https://www.yahoo.com/news/tallahassee-power-grid-blasted-around-183227529.html)
+- May 12 - [Russia's Putin proposes moving defence chief Shoigu in surprise reshuffle](https://www.yahoo.com/news/putin-proposes-sacking-defence-minister-182453851.html)
 - May 12 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
+- May 12 - [Queen Greta has exposed the truth about the green movement](https://www.yahoo.com/news/queen-greta-exposed-truth-green-163206621.html)
 <!-- feed end -->
 
 ### Onstream
