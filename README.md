@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 12 - [Rishi Sunak warns UK is entering a dangerous era in desperate pre-election pitch to voters](https://www.yahoo.com/news/rishi-sunak-warns-uk-entering-223616362.html)
 - May 12 - [Actor Steve Buscemi is OK after being punched in the face in New York City](https://www.yahoo.com/entertainment/actor-steve-buscemi-ok-being-214031557.html)
-- May 12 - [The US-China rivalry will reshape the landscape for Big Tech earnings](https://finance.yahoo.com/news/us-china-rivalry-reshape-landscape-123102764.html)
 - May 12 - [Springsteen Fans Roast Trump For Bizarre Boast About Size Of New Jersey Crowd](https://www.yahoo.com/entertainment/springsteen-fans-roast-trump-bizarre-201418976.html)
 - May 12 - [Rescuers free 2 horses stuck in the mud in Connecticut](https://www.yahoo.com/news/rescuers-free-2-horses-stuck-190744199.html)
 - May 12 - [Putin taps economist to run defence, replacing Shoigu in unexpected move](https://www.yahoo.com/news/putin-proposes-sacking-defence-minister-182453851.html)
