@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Deadly 2023 shooting outside North Linden Dollar General remains unsolved](https://www.yahoo.com/news/deadly-2023-shooting-outside-north-120000327.html)
+- May 12 - [In the mystery of Florida’s bizarre spinning fish, a leading suspect has emerged](https://www.yahoo.com/news/mystery-florida-bizarre-spinning-fish-131046386.html)
+- May 12 - [1 No-Brainer Dividend ETF to Buy Right Now for Less Than $1,000](https://finance.yahoo.com/news/1-no-brainer-dividend-etf-125800551.html)
+- May 12 - [Here's 1 big investing mistake you are probably still making](https://finance.yahoo.com/news/heres-1-big-investing-mistake-you-are-probably-still-making-003020722.html)
 - May 12 - [Trump leads his supporters in vulgar chants at Jersey Shore rally](https://www.yahoo.com/news/trump-leads-supporters-vulgar-chants-105013027.html)
-- May 12 - [What’s on the line? Local fisherman catches 7-foot shark fishing near the Skyway Bridge](https://sports.yahoo.com/line-local-fisherman-catches-7-095000479.html)
 - May 12 - [Seven killed in Ukrainian missile strike on Russian apartment block](https://www.yahoo.com/news/ukrainian-shelling-kills-least-three-090235652.html)
-- May 12 - [As Israel pushes deeper into Rafah, Hamas regroups elsewhere in ungoverned Gaza](https://www.yahoo.com/news/israel-pushes-deeper-rafah-hamas-075008842.html)
 <!-- feed end -->
 
 ### Onstream
