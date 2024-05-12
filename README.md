@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Prediction: This Artificial Intelligence (AI) Cloud Stock Will Join Microsoft, Alphabet, and Amazon in the $1 Trillion Club](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-cloud-202700632.html)
+- May 12 - [Actor Steve Buscemi is OK after being punched in the face in New York City](https://www.yahoo.com/entertainment/actor-steve-buscemi-ok-being-214031557.html)
+- May 12 - [The US-China rivalry will reshape the landscape for Big Tech earnings](https://finance.yahoo.com/news/us-china-rivalry-reshape-landscape-123102764.html)
 - May 12 - [Springsteen Fans Roast Trump For Bizarre Boast About Size Of New Jersey Crowd](https://www.yahoo.com/entertainment/springsteen-fans-roast-trump-bizarre-201418976.html)
-- May 12 - [Putin taps civilian economist to run defence](https://www.yahoo.com/news/putin-proposes-sacking-defence-minister-182453851.html)
-- May 12 - [Flames engulf a Polish shopping center](https://www.yahoo.com/news/flames-engulf-polish-shopping-center-181904750.html)
-- May 12 - [7 Ways People Destroy the Value of Their Homes, According to a Real Estate Agent](https://finance.yahoo.com/news/m-real-estate-agent-7-130011857.html)
+- May 12 - [Rescuers free 2 horses stuck in the mud in Connecticut](https://www.yahoo.com/news/rescuers-free-2-horses-stuck-190744199.html)
+- May 12 - [Putin taps economist to run defence, replacing Shoigu in unexpected move](https://www.yahoo.com/news/putin-proposes-sacking-defence-minister-182453851.html)
 <!-- feed end -->
 
 ### Onstream
