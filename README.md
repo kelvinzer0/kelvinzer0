@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 12 - [Trump, reciting songs and praising cannibals, draws yawns and raises eyebrows](https://www.yahoo.com/news/trump-reciting-songs-praising-cannibals-031853239.html)
+- May 12 - [A brief history of airline food’s rapid descent](https://finance.yahoo.com/news/airline-meals-used-plentiful-luxurious-070002223.html)
 - May 11 - [Pelosi rebuked to her face during Oxford debate after condemning Americans clouded by 'guns, gays, God'](https://www.yahoo.com/news/pelosi-rebuked-her-face-during-182359130.html)
 - May 11 - [Experts Say These 6 Common Work Habits May Actually Be Signs Of ADHD In Adults](https://www.yahoo.com/lifestyle/6-habits-may-secretly-sign-181602996.html)
-- May 11 - [It Is Claimed that Black Babies Were Used as Alligator Bait in the American South. The Evidence Is Scant](https://www.yahoo.com/news/claimed-black-babies-were-used-180000008.html)
-- May 11 - [1 seriously injured after motorcycle crash on I-290 West](https://www.yahoo.com/news/portion-290-westbound-shut-down-160753790.html)
-- May 11 - [Melania Trump Reveals Why Son Barron 'Regretfully Declined' Florida Delegate Role](https://www.yahoo.com/news/melania-trump-reveals-why-son-150656446.html)
+- May 11 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 <!-- feed end -->
 
 ### Onstream
