@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 12 - [Deadly 2023 shooting outside North Linden Dollar General remains unsolved](https://www.yahoo.com/news/deadly-2023-shooting-outside-north-120000327.html)
 - May 12 - [Trump leads his supporters in vulgar chants at Jersey Shore rally](https://www.yahoo.com/news/trump-leads-supporters-vulgar-chants-105013027.html)
+- May 12 - [What’s on the line? Local fisherman catches 7-foot shark fishing near the Skyway Bridge](https://sports.yahoo.com/line-local-fisherman-catches-7-095000479.html)
 - May 12 - [Seven killed in Ukrainian missile strike on Russian apartment block](https://www.yahoo.com/news/ukrainian-shelling-kills-least-three-090235652.html)
 - May 12 - [As Israel pushes deeper into Rafah, Hamas regroups elsewhere in ungoverned Gaza](https://www.yahoo.com/news/israel-pushes-deeper-rafah-hamas-075008842.html)
-- May 12 - [Trump, reciting songs and praising cannibals, draws yawns and raises eyebrows](https://www.yahoo.com/news/trump-reciting-songs-praising-cannibals-031853239.html)
-- May 12 - [A brief history of airline food’s rapid descent](https://finance.yahoo.com/news/airline-meals-used-plentiful-luxurious-070002223.html)
 <!-- feed end -->
 
 ### Onstream
