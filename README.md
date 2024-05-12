@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Fierce fighting reported in northern Gaza amid mass evacuations](https://www.yahoo.com/news/fierce-fighting-reported-northern-gaza-132927646.html)
-- May 12 - [Map: Will you see the northern lights again on Sunday?](https://www.yahoo.com/news/map-see-northern-lights-again-131505922.html)
+- May 12 - [Utility stocks are on fire — here are Wall Street analysts' top picks](https://finance.yahoo.com/news/utility-stocks-are-on-fire--here-are-wall-street-analysts-top-picks-153808020.html)
+- May 12 - [Students Walk Out on Jerry Seinfeld’s Duke Commencement Speech](https://www.yahoo.com/entertainment/students-walk-jerry-seinfeld-duke-150027458.html)
+- May 12 - [1 dead, 4 injured after head-on crash in Robertson County](https://www.yahoo.com/news/1-dead-4-injured-head-143406843.html)
 - May 12 - [Here's 1 big investing mistake you are probably still making](https://finance.yahoo.com/news/heres-1-big-investing-mistake-you-are-probably-still-making-003020722.html)
 - May 12 - [German men with the strongest fingers compete in Bavaria's 'Fingerhakeln' wrestling champion](https://sports.yahoo.com/german-men-strongest-fingers-compete-122745296.html)
-- May 12 - [These 2 Incredible Stocks Just Went on Sale – Here's Why You Should Take a Closer Look](https://finance.yahoo.com/news/2-incredible-stocks-just-went-111100519.html)
 <!-- feed end -->
 
 ### Onstream
