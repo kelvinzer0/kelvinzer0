@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Grant Cardone calls America's middle class 'oppressed' and 'naive' — here's why](https://finance.yahoo.com/news/grant-cardone-calls-americas-middle-104400603.html)
+- May 12 - [Trump leads his supporters in vulgar chants at Jersey Shore rally](https://www.yahoo.com/news/trump-leads-supporters-vulgar-chants-105013027.html)
+- May 12 - [Seven killed in Ukrainian missile strike on Russian apartment block](https://www.yahoo.com/news/ukrainian-shelling-kills-least-three-090235652.html)
 - May 12 - [As Israel pushes deeper into Rafah, Hamas regroups elsewhere in ungoverned Gaza](https://www.yahoo.com/news/israel-pushes-deeper-rafah-hamas-075008842.html)
 - May 12 - [Trump, reciting songs and praising cannibals, draws yawns and raises eyebrows](https://www.yahoo.com/news/trump-reciting-songs-praising-cannibals-031853239.html)
-- May 12 - [WATCH: Tornado touches ground in Washington County](https://www.yahoo.com/news/watch-tornado-touches-ground-washington-025408927.html)
-- May 12 - [First person to receive a genetically modified pig kidney transplant dies nearly 2 months later](https://www.yahoo.com/news/first-person-receive-genetically-modified-010509774.html)
+- May 12 - [A brief history of airline food’s rapid descent](https://finance.yahoo.com/news/airline-meals-used-plentiful-luxurious-070002223.html)
 <!-- feed end -->
 
 ### Onstream
