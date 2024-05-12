@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 12 - [Grant Cardone calls America's middle class 'oppressed' and 'naive' — here's why](https://finance.yahoo.com/news/grant-cardone-calls-americas-middle-104400603.html)
+- May 12 - [As Israel pushes deeper into Rafah, Hamas regroups elsewhere in ungoverned Gaza](https://www.yahoo.com/news/israel-pushes-deeper-rafah-hamas-075008842.html)
 - May 12 - [Trump, reciting songs and praising cannibals, draws yawns and raises eyebrows](https://www.yahoo.com/news/trump-reciting-songs-praising-cannibals-031853239.html)
-- May 11 - [Ex-Nixon White House counsel on why he thinks case against Trump in New York is ‘very powerful’](https://www.yahoo.com/news/ex-nixon-white-house-counsel-213036103.html)
-- May 11 - [The city told a homeowner to hide his boat behind a fence — his creative and hilarious response went viral](https://www.yahoo.com/lifestyle/city-told-homeowner-hide-boat-222959602.html)
-- May 11 - [Northern lights dazzle Las Vegas valley](https://www.yahoo.com/news/northern-lights-dazzle-las-vegas-185211285.html)
-- May 11 - [Pelosi rebuked to her face during Oxford debate after condemning Americans clouded by 'guns, gays, God'](https://www.yahoo.com/news/pelosi-rebuked-her-face-during-182359130.html)
+- May 12 - [WATCH: Tornado touches ground in Washington County](https://www.yahoo.com/news/watch-tornado-touches-ground-washington-025408927.html)
+- May 12 - [First person to receive a genetically modified pig kidney transplant dies nearly 2 months later](https://www.yahoo.com/news/first-person-receive-genetically-modified-010509774.html)
 <!-- feed end -->
 
 ### Onstream
