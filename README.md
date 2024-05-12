@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [Flash floods and cold lava flow hit Indonesia’s Sumatra island, killing at least 15 people](https://www.yahoo.com/news/flash-floods-cold-lava-flow-070919696.html)
 - May 12 - [Trump, reciting songs and praising cannibals, draws yawns and raises eyebrows](https://www.yahoo.com/news/trump-reciting-songs-praising-cannibals-031853239.html)
-- May 11 - [Ex-Nixon White House counsel on why he thinks case against Trump in New York is ‘very powerful’](https://www.yahoo.com/news/ex-nixon-white-house-counsel-213036103.html)
+- May 12 - [First person to receive a genetically modified pig kidney transplant dies nearly 2 months later](https://www.yahoo.com/news/first-person-receive-genetically-modified-010509774.html)
 - May 11 - [Pelosi rebuked to her face during Oxford debate after condemning Americans clouded by 'guns, gays, God'](https://www.yahoo.com/news/pelosi-rebuked-her-face-during-182359130.html)
-- May 11 - [The northern lights dazzled Idaho skygazers. See photos from Boise and beyond](https://www.yahoo.com/news/northern-lights-dazzled-idaho-skygazers-171631792.html)
+- May 11 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
+- May 11 - [Melania Trump Reveals Why Son Barron 'Regretfully Declined' Florida Delegate Role](https://www.yahoo.com/news/melania-trump-reveals-why-son-150656446.html)
 <!-- feed end -->
 
 ### Onstream
