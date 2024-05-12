@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [In the mystery of Florida’s bizarre spinning fish, a leading suspect has emerged](https://www.yahoo.com/news/mystery-florida-bizarre-spinning-fish-131046386.html)
-- May 12 - [1 No-Brainer Dividend ETF to Buy Right Now for Less Than $1,000](https://finance.yahoo.com/news/1-no-brainer-dividend-etf-125800551.html)
+- May 12 - [Fierce fighting reported in northern Gaza amid mass evacuations](https://www.yahoo.com/news/fierce-fighting-reported-northern-gaza-132927646.html)
+- May 12 - [Map: Will you see the northern lights again on Sunday?](https://www.yahoo.com/news/map-see-northern-lights-again-131505922.html)
 - May 12 - [Here's 1 big investing mistake you are probably still making](https://finance.yahoo.com/news/heres-1-big-investing-mistake-you-are-probably-still-making-003020722.html)
-- May 12 - [Trump leads his supporters in vulgar chants at Jersey Shore rally](https://www.yahoo.com/news/trump-leads-supporters-vulgar-chants-105013027.html)
-- May 12 - [Seven killed in Ukrainian missile strike on Russian apartment block](https://www.yahoo.com/news/ukrainian-shelling-kills-least-three-090235652.html)
+- May 12 - [German men with the strongest fingers compete in Bavaria's 'Fingerhakeln' wrestling champion](https://sports.yahoo.com/german-men-strongest-fingers-compete-122745296.html)
+- May 12 - [These 2 Incredible Stocks Just Went on Sale – Here's Why You Should Take a Closer Look](https://finance.yahoo.com/news/2-incredible-stocks-just-went-111100519.html)
 <!-- feed end -->
 
 ### Onstream
