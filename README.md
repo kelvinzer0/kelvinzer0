@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Local chef murdered in light rail attack; Search continues for suspects](https://www.yahoo.com/news/local-chef-murdered-light-rail-031830559.html)
+- May 13 - [Small, well-built Chinese EV called the Seagull poses a big threat to the US auto industry](https://www.yahoo.com/tech/small-well-built-chinese-ev-055434766.html)
+- May 13 - [Trump suggests Chinese migrants are in the US to build an 'army.' The migrants tell another story](https://www.yahoo.com/news/trump-suggests-chinese-migrants-us-041342668.html)
 - May 13 - [Tragedy at Henry Clay High School: Student dies after breaking up on-campus bathroom fight](https://www.yahoo.com/news/tragedy-henry-clay-high-school-004623351.html)
 - May 12 - [Springsteen Fans Roast Trump For Bizarre Boast About Size Of New Jersey Crowd](https://www.yahoo.com/entertainment/springsteen-fans-roast-trump-bizarre-201418976.html)
 - May 12 - [Charger Vs Charger: Watch A Suspect Challenge A Florida Trooper](https://autos.yahoo.com/charger-vs-charger-watch-suspect-120000247.html)
-- May 12 - [Flames engulf a Polish shopping center](https://www.yahoo.com/news/flames-engulf-polish-shopping-center-181904750.html)
 <!-- feed end -->
 
 ### Onstream
