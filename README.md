@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [2 Americans among 20 arrested at protest over nation of Georgia's future](https://www.yahoo.com/news/2-americans-among-20-arrested-144539811.html)
-- May 13 - [UNC-Chapel Hill trustees move to divert DEI funds to police and public safety](https://www.yahoo.com/news/unc-chapel-hill-trustees-move-143847149.html)
-- May 13 - [Gardener uncovers odd rock and finds 1,600-year-old inscription. Now, it’s on display](https://www.yahoo.com/news/gardener-uncovers-odd-rock-finds-141458115.html)
-- May 13 - [Musk's SpaceX is quick to build in Texas, slow to pay its bills](https://finance.yahoo.com/news/musks-spacex-quick-build-texas-140207758.html)
-- May 13 - [Roaring Kitty is back and so are meme stocks, GameStop and AMC surge at the opening bell](https://finance.yahoo.com/news/roaring-kitty-back-meme-stocks-122329652.html)
+- May 13 - [Magnificent Seven Stocks: Nvidia, Tesla Rally; Google, Meta Slide](https://www.investors.com/research/magnificent-seven-stocks-to-buy-and-and-watch/?src=A00220&yptr=yahoo)
+- May 13 - [Four dead, several feared trapped under billboard in freak accident during Mumbai rainstorm](https://www.yahoo.com/news/four-dead-several-feared-trapped-160227813.html)
+- May 13 - [Naval ships spotted off the coast of North Myrtle Beach, SC. Here’s why they are here](https://www.yahoo.com/news/naval-ships-spotted-off-coast-152828168.html)
+- May 13 - [I’m a Financial Advisor: These Are the 9 Worst Money Moves People Make After 70](https://finance.yahoo.com/news/m-financial-advisor-9-worst-150016766.html)
+- May 13 - [Postal worker seen stealing cash, lottery tickets from mail on USPS footage, feds say](https://www.yahoo.com/news/postal-worker-seen-stealing-cash-145800161.html)
 <!-- feed end -->
 
 ### Onstream
