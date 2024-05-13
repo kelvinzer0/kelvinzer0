@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Pro-Palestinian protesters attempt to disrupt Pomona College commencement](https://www.yahoo.com/news/pro-palestinian-protesters-attempt-disrupt-083811918.html)
-- May 13 - [Augusta County Black families tell school board something has to be done about racism](https://www.yahoo.com/news/augusta-county-black-families-tell-083114907.html)
-- May 13 - [‘Sleep in heavenly peace’: Bed project leads to building Monroe chapter](https://www.yahoo.com/lifestyle/sleep-heavenly-peace-bed-project-081034641.html)
-- May 13 - [Jim Mattis Gave Absolutely Brutal Description Of Donald Trump, New Book Claims](https://www.yahoo.com/news/jim-mattis-gave-absolutely-brutal-061141119.html)
+- May 13 - [This family of singers performed in Owego. Then disaster struck](https://www.yahoo.com/news/family-singers-performed-owego-then-085105505.html)
+- May 13 - [China Probes Hedge Fund With 795% Product Gain, Missing Owner](https://finance.yahoo.com/news/china-probes-hedge-fund-795-083801606.html)
+- May 13 - [How rich homebuyers are avoiding high mortgage rates](https://finance.yahoo.com/news/how-rich-homebuyers-are-avoiding-high-mortgage-rates-140220891.html)
+- May 13 - ['Jaw Dropped In Horror': Trump's Praise Of Fictional Serial Killer Has People Worried](https://www.yahoo.com/news/jaw-dropped-horror-trumps-praise-070605795.html)
 - May 13 - [Small, well-built Chinese EV called the Seagull poses a big threat to the US auto industry](https://www.yahoo.com/tech/small-well-built-chinese-ev-055434766.html)
 <!-- feed end -->
 
