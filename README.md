@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [AMC Set to Cash In on Meme-Stock Traders Driving Shares Higher](https://finance.yahoo.com/news/amc-set-cash-meme-stock-223151539.html)
 - May 13 - [Republican group takes rare step of targeting GOP incumbent who voted to oust McCarthy](https://www.yahoo.com/news/republican-group-takes-rare-step-212511597.html)
-- May 13 - [Explosives break up Key Bridge section atop Dali, readying to refloat vessel](https://www.yahoo.com/news/explosives-break-key-bridge-section-211100332.html)
-- May 13 - [In China’s backyard: The new Marine ­regiments changing the fight](https://www.yahoo.com/news/china-backyard-marine-regiments-changing-203922444.html)
+- May 13 - [US to force China-linked firm to sell land near US missile silos](https://www.yahoo.com/news/us-force-china-linked-firm-211934238.html)
+- May 13 - [Angry Trump blasts judge after Cohen testimony](https://www.yahoo.com/news/angry-trump-blasts-judge-cohen-211321788.html)
 - May 13 - [This Utah city to see groundbreaking of nearly $50 million hangar development](https://finance.yahoo.com/news/utah-city-see-groundbreaking-nearly-203142113.html)
-- May 13 - [AMC Theatres Shares Soar 80 Percent After Meme Stock Investor “Roaring Kitty” Resurfaces](https://finance.yahoo.com/news/amc-theatres-shares-soar-80-202853833.html)
 <!-- feed end -->
 
 ### Onstream
