@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Monroe County sheriff warns homeowners about seasonal scams](https://www.yahoo.com/news/monroe-county-sheriff-warns-homeowners-073711971.html)
-- May 13 - [A Ukrainian recon commander in Kharkiv said its first line of defense was missing, in a 'betrayal' that allowed Russian troops to just walk in](https://www.yahoo.com/news/ukrainian-recon-commander-kharkiv-said-061235500.html)
+- May 13 - [Pro-Palestinian protesters attempt to disrupt Pomona College commencement](https://www.yahoo.com/news/pro-palestinian-protesters-attempt-disrupt-083811918.html)
+- May 13 - [Augusta County Black families tell school board something has to be done about racism](https://www.yahoo.com/news/augusta-county-black-families-tell-083114907.html)
+- May 13 - [‘Sleep in heavenly peace’: Bed project leads to building Monroe chapter](https://www.yahoo.com/lifestyle/sleep-heavenly-peace-bed-project-081034641.html)
+- May 13 - [Jim Mattis Gave Absolutely Brutal Description Of Donald Trump, New Book Claims](https://www.yahoo.com/news/jim-mattis-gave-absolutely-brutal-061141119.html)
 - May 13 - [Small, well-built Chinese EV called the Seagull poses a big threat to the US auto industry](https://www.yahoo.com/tech/small-well-built-chinese-ev-055434766.html)
-- May 13 - [Trump suggests Chinese migrants are in the US to build an 'army.' The migrants tell another story](https://www.yahoo.com/news/trump-suggests-chinese-migrants-us-041342668.html)
-- May 13 - [People Who Had Heart Attacks Share What It Was Like — And How They Knew Something Was Wrong](https://www.yahoo.com/news/people-had-heart-attacks-share-021602376.html)
 <!-- feed end -->
 
 ### Onstream
