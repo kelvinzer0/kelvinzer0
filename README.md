@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [Monroe County sheriff warns homeowners about seasonal scams](https://www.yahoo.com/news/monroe-county-sheriff-warns-homeowners-073711971.html)
+- May 13 - [A Ukrainian recon commander in Kharkiv said its first line of defense was missing, in a 'betrayal' that allowed Russian troops to just walk in](https://www.yahoo.com/news/ukrainian-recon-commander-kharkiv-said-061235500.html)
 - May 13 - [Small, well-built Chinese EV called the Seagull poses a big threat to the US auto industry](https://www.yahoo.com/tech/small-well-built-chinese-ev-055434766.html)
 - May 13 - [Trump suggests Chinese migrants are in the US to build an 'army.' The migrants tell another story](https://www.yahoo.com/news/trump-suggests-chinese-migrants-us-041342668.html)
-- May 13 - [Tragedy at Henry Clay High School: Student dies after breaking up on-campus bathroom fight](https://www.yahoo.com/news/tragedy-henry-clay-high-school-004623351.html)
-- May 12 - [A millennial couple invested in a $143,000 vacation home in Bali. It's become the crux of their early retirement strategy.](https://www.yahoo.com/news/millennial-couple-invested-143-000-231401652.html)
-- May 12 - [Springsteen Fans Roast Trump For Bizarre Boast About Size Of New Jersey Crowd](https://www.yahoo.com/entertainment/springsteen-fans-roast-trump-bizarre-201418976.html)
+- May 13 - [People Who Had Heart Attacks Share What It Was Like — And How They Knew Something Was Wrong](https://www.yahoo.com/news/people-had-heart-attacks-share-021602376.html)
 <!-- feed end -->
 
 ### Onstream
