@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [The Falklands have just become the most valuable piece of real estate on earth](https://www.yahoo.com/news/falklands-just-become-most-valuable-121604015.html)
-- May 13 - [Truck Takes A Licking And Keeps On Ticking In Oklahoma Police Chase](https://autos.yahoo.com/truck-takes-licking-keeps-ticking-120000053.html)
-- May 13 - [Eric Trump's Claim About His 'Good Family' Goes Down Like A Bag Of Bricks](https://www.yahoo.com/news/eric-trumps-claim-good-family-113848762.html)
-- May 13 - [9 Headstrong Homeowners Who Refused To Move, Despite Their Neighborhood Rapidly Changing Around Them](https://www.yahoo.com/lifestyle/9-headstrong-homeowners-refused-move-111602881.html)
-- May 13 - ["Dead Butt Syndrome" Is A Real Thing — Here's How To Tell If You Have It](https://www.yahoo.com/lifestyle/dead-butt-syndrome-real-thing-091602489.html)
+- May 13 - [Flooding wreaks havoc across East Africa with thousands displaced in Burundi](https://www.yahoo.com/news/flooding-wreaks-havoc-across-east-134156210.html)
+- May 13 - [Dutch artist expelled from Eurovision Song Contest is likely to face charges, Swedish police say](https://www.yahoo.com/entertainment/dutch-artist-expelled-eurovision-song-132921325.html)
+- May 13 - [Gas just went down by double digits across Florida. Will prices continue to drop?](https://finance.yahoo.com/news/gas-just-went-down-double-132149029.html)
+- May 13 - [12 Discontinued Bourbon Bottles Due For A Comeback](https://www.yahoo.com/lifestyle/12-discontinued-bourbon-bottles-due-131506374.html)
+- May 13 - [25 Luxury Cars With Notoriously High Repair Costs](https://finance.yahoo.com/news/25-luxury-cars-notoriously-high-230002779.html)
 <!-- feed end -->
 
 ### Onstream
