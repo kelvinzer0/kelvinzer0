@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [Local chef murdered in light rail attack; Search continues for suspects](https://www.yahoo.com/news/local-chef-murdered-light-rail-031830559.html)
 - May 13 - [Tragedy at Henry Clay High School: Student dies after breaking up on-campus bathroom fight](https://www.yahoo.com/news/tragedy-henry-clay-high-school-004623351.html)
-- May 12 - [Have you seen this car? SLO County police search for driver who allegedly hit bicyclist](https://www.yahoo.com/news/seen-car-slo-county-police-223505043.html)
 - May 12 - [Springsteen Fans Roast Trump For Bizarre Boast About Size Of New Jersey Crowd](https://www.yahoo.com/entertainment/springsteen-fans-roast-trump-bizarre-201418976.html)
+- May 12 - [Charger Vs Charger: Watch A Suspect Challenge A Florida Trooper](https://autos.yahoo.com/charger-vs-charger-watch-suspect-120000247.html)
 - May 12 - [Flames engulf a Polish shopping center](https://www.yahoo.com/news/flames-engulf-polish-shopping-center-181904750.html)
-- May 12 - [A 19-year-old called 911 in a crisis and ended up dead. For advocates, it’s a call for a better way of policing](https://www.yahoo.com/news/19-old-called-911-crisis-172013225.html)
 <!-- feed end -->
 
 ### Onstream
