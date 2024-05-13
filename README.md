@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Flooding wreaks havoc across East Africa with thousands displaced in Burundi](https://www.yahoo.com/news/flooding-wreaks-havoc-across-east-134156210.html)
-- May 13 - [Dutch artist expelled from Eurovision Song Contest is likely to face charges, Swedish police say](https://www.yahoo.com/entertainment/dutch-artist-expelled-eurovision-song-132921325.html)
-- May 13 - [Gas just went down by double digits across Florida. Will prices continue to drop?](https://finance.yahoo.com/news/gas-just-went-down-double-132149029.html)
-- May 13 - [12 Discontinued Bourbon Bottles Due For A Comeback](https://www.yahoo.com/lifestyle/12-discontinued-bourbon-bottles-due-131506374.html)
-- May 13 - [25 Luxury Cars With Notoriously High Repair Costs](https://finance.yahoo.com/news/25-luxury-cars-notoriously-high-230002779.html)
+- May 13 - [2 Americans among 20 arrested at protest over nation of Georgia's future](https://www.yahoo.com/news/2-americans-among-20-arrested-144539811.html)
+- May 13 - [UNC-Chapel Hill trustees move to divert DEI funds to police and public safety](https://www.yahoo.com/news/unc-chapel-hill-trustees-move-143847149.html)
+- May 13 - [Gardener uncovers odd rock and finds 1,600-year-old inscription. Now, it’s on display](https://www.yahoo.com/news/gardener-uncovers-odd-rock-finds-141458115.html)
+- May 13 - [Musk's SpaceX is quick to build in Texas, slow to pay its bills](https://finance.yahoo.com/news/musks-spacex-quick-build-texas-140207758.html)
+- May 13 - [Roaring Kitty is back and so are meme stocks, GameStop and AMC surge at the opening bell](https://finance.yahoo.com/news/roaring-kitty-back-meme-stocks-122329652.html)
 <!-- feed end -->
 
 ### Onstream
