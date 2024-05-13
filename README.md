@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [Michael Cohen testifies about Trump’s reaction to Stormy Daniels story: ‘Women will hate me. Guys will think it’s cool’](https://www.yahoo.com/news/trump-warning-michael-cohen-launched-152231833.html)
+- May 13 - [Senior prank at DeLand High School went too far, district officials say](https://www.yahoo.com/news/senior-prank-deland-high-school-163809438.html)
 - May 13 - [Magnificent Seven Stocks: Nvidia, Tesla Rally; Google, Meta Slide](https://www.investors.com/research/magnificent-seven-stocks-to-buy-and-and-watch/?src=A00220&yptr=yahoo)
 - May 13 - [Four dead, several feared trapped under billboard in freak accident during Mumbai rainstorm](https://www.yahoo.com/news/four-dead-several-feared-trapped-160227813.html)
-- May 13 - [Naval ships spotted off the coast of North Myrtle Beach, SC. Here’s why they are here](https://www.yahoo.com/news/naval-ships-spotted-off-coast-152828168.html)
-- May 13 - [I’m a Financial Advisor: These Are the 9 Worst Money Moves People Make After 70](https://finance.yahoo.com/news/m-financial-advisor-9-worst-150016766.html)
-- May 13 - [Postal worker seen stealing cash, lottery tickets from mail on USPS footage, feds say](https://www.yahoo.com/news/postal-worker-seen-stealing-cash-145800161.html)
+- May 13 - [12 Undervalued Stocks That Just Raised Their Dividends](https://finance.yahoo.com/news/12-undervalued-stocks-just-raised-154424384.html)
 <!-- feed end -->
 
 ### Onstream
