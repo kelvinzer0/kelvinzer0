@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Michael Cohen testifies about Trump’s reaction to Stormy Daniels story: ‘Women will hate me. Guys will think it’s cool’](https://www.yahoo.com/news/trump-warning-michael-cohen-launched-152231833.html)
-- May 13 - [Senior prank at DeLand High School went too far, district officials say](https://www.yahoo.com/news/senior-prank-deland-high-school-163809438.html)
-- May 13 - [Magnificent Seven Stocks: Nvidia, Tesla Rally; Google, Meta Slide](https://www.investors.com/research/magnificent-seven-stocks-to-buy-and-and-watch/?src=A00220&yptr=yahoo)
-- May 13 - [Four dead, several feared trapped under billboard in freak accident during Mumbai rainstorm](https://www.yahoo.com/news/four-dead-several-feared-trapped-160227813.html)
-- May 13 - [12 Undervalued Stocks That Just Raised Their Dividends](https://finance.yahoo.com/news/12-undervalued-stocks-just-raised-154424384.html)
+- May 13 - [Magnificent Seven Stocks: Apple, Nvidia, Tesla Rally; Google, Meta Slide](https://www.investors.com/research/magnificent-seven-stocks-to-buy-and-and-watch/?src=A00220&yptr=yahoo)
+- May 13 - [The New Hybrid Porsche 911 Just Set a Lightning-Fast Time on the Nürburgring](https://www.yahoo.com/tech/hybrid-porsche-911-just-set-173000702.html)
+- May 13 - [United Nations cuts estimates of women, children deaths in Gaza war in half](https://www.yahoo.com/news/united-nations-cuts-estimates-women-170941270.html)
+- May 13 - [Columbia student rips up diploma in protest for Gaza](https://www.yahoo.com/news/columbia-student-rips-diploma-protest-170629557.html)
+- May 13 - [Dr. Cyril Wecht, celebrity pathologist who argued more than 1 shooter killed JFK, dies at 93](https://www.yahoo.com/news/dr-cyril-wecht-celebrity-pathologist-170318252.html)
 <!-- feed end -->
 
 ### Onstream
