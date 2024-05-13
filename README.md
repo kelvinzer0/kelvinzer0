@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [This family of singers performed in Owego. Then disaster struck](https://www.yahoo.com/news/family-singers-performed-owego-then-085105505.html)
-- May 13 - [China Probes Hedge Fund With 795% Product Gain, Missing Owner](https://finance.yahoo.com/news/china-probes-hedge-fund-795-083801606.html)
-- May 13 - [How rich homebuyers are avoiding high mortgage rates](https://finance.yahoo.com/news/how-rich-homebuyers-are-avoiding-high-mortgage-rates-140220891.html)
+- May 13 - ["Dead Butt Syndrome" Is A Real Thing — Here's How To Tell If You Have It](https://www.yahoo.com/lifestyle/dead-butt-syndrome-real-thing-091602489.html)
+- May 13 - [Ukraine's Zelenskyy says his army is locked in 'fierce' border battles amid a Russian assault](https://www.yahoo.com/news/ukraines-zelenskyy-says-army-locked-081805795.html)
+- May 13 - [Surfers' deaths in Mexico 'eerily' similar to San Diego couple's murders: 'Anyone can be killed for anything'](https://www.yahoo.com/news/surfers-deaths-mexico-eerily-similar-080025874.html)
 - May 13 - ['Jaw Dropped In Horror': Trump's Praise Of Fictional Serial Killer Has People Worried](https://www.yahoo.com/news/jaw-dropped-horror-trumps-praise-070605795.html)
-- May 13 - [Small, well-built Chinese EV called the Seagull poses a big threat to the US auto industry](https://www.yahoo.com/tech/small-well-built-chinese-ev-055434766.html)
+- May 13 - [Want To Avoid Food Poisoning? Skip These Items At Your Hotel's Breakfast Buffet](https://www.yahoo.com/lifestyle/want-avoid-food-poisoning-skip-070040370.html)
 <!-- feed end -->
 
 ### Onstream
