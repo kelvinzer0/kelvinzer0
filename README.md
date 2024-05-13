@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 12 - [A millennial couple invested in a $143,000 vacation home in Bali. It's become the crux of their early retirement strategy.](https://www.yahoo.com/news/millennial-couple-invested-143-000-231401652.html)
-- May 12 - [Have you seen this car? SLO County police search for driver who allegedly hit bicyclist](https://www.yahoo.com/news/seen-car-slo-county-police-223505043.html)
+- May 13 - [Tragedy at Henry Clay High School: Student dies after breaking up on-campus bathroom fight](https://www.yahoo.com/news/tragedy-henry-clay-high-school-004623351.html)
+- May 12 - [Criminal defense lawyer says this is the first question he would ask Michael Cohen](https://www.yahoo.com/news/criminal-defense-lawyer-says-first-224102570.html)
 - May 12 - [Actor Steve Buscemi is OK after being punched in the face in New York City](https://www.yahoo.com/entertainment/actor-steve-buscemi-ok-being-214031557.html)
 - May 12 - [Springsteen Fans Roast Trump For Bizarre Boast About Size Of New Jersey Crowd](https://www.yahoo.com/entertainment/springsteen-fans-roast-trump-bizarre-201418976.html)
-- May 12 - [Flames engulf a Polish shopping center](https://www.yahoo.com/news/flames-engulf-polish-shopping-center-181904750.html)
+- May 12 - [Rescuers free 2 horses stuck in the mud in Connecticut](https://www.yahoo.com/news/rescuers-free-2-horses-stuck-190744199.html)
 <!-- feed end -->
 
 ### Onstream
