@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 13 - [Proposed Minnesota Equal Rights Amendment draws rival crowds to Capitol for crucial votes](https://www.yahoo.com/news/proposed-minnesota-equal-rights-amendment-204243824.html)
+- May 13 - [Wisconsin Senate plans to vote on overriding Evers vetoes of 36 bills, including PFAS funding](https://www.yahoo.com/news/wisconsin-senate-plans-vote-overriding-204110649.html)
+- May 13 - [3 men charged in Whitey Bulger's 2018 prison killing have plea deals, prosecutors say](https://www.yahoo.com/news/3-men-charged-whitey-bulgers-202737806.html)
 - May 13 - [This Kansas City highway is one of the deadliest roads in the US, new analysis shows](https://www.yahoo.com/news/kansas-city-highway-one-deadliest-193023859.html)
-- May 13 - [With peak season approaching at Lake Pueblo, CPW stresses importance of water safety](https://www.yahoo.com/lifestyle/peak-season-approaching-lake-pueblo-192811950.html)
 - May 13 - [Scorpions invade southwest Las Vegas valley neighborhoods, residents say](https://www.yahoo.com/news/scorpions-invade-southwest-las-vegas-191919110.html)
-- May 13 - [Donald Trump Reveals Wife Melania's Blunt Remark After He 'Struggled' To Exit A Stage At A Rally](https://www.yahoo.com/entertainment/donald-trump-reveals-wife-melanias-184518033.html)
-- May 13 - [Harris utters a profanity in advice to young Asian Americans, Native Hawaiians and Pacific Islanders](https://www.yahoo.com/news/harris-utters-profanity-advice-young-180435059.html)
 <!-- feed end -->
 
 ### Onstream
