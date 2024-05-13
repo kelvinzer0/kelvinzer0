@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Israeli protesters block aid convoy headed to Gaza](https://www.yahoo.com/news/israeli-protesters-block-aid-convoy-183127738.html)
-- May 13 - [Magnificent Seven Stocks: Apple, Nvidia, Tesla Rally; Google, Meta Slide](https://www.investors.com/research/magnificent-seven-stocks-to-buy-and-and-watch/?src=A00220&yptr=yahoo)
+- May 13 - [This Kansas City highway is one of the deadliest roads in the US, new analysis shows](https://www.yahoo.com/news/kansas-city-highway-one-deadliest-193023859.html)
+- May 13 - [With peak season approaching at Lake Pueblo, CPW stresses importance of water safety](https://www.yahoo.com/lifestyle/peak-season-approaching-lake-pueblo-192811950.html)
+- May 13 - [Scorpions invade southwest Las Vegas valley neighborhoods, residents say](https://www.yahoo.com/news/scorpions-invade-southwest-las-vegas-191919110.html)
+- May 13 - [Donald Trump Reveals Wife Melania's Blunt Remark After He 'Struggled' To Exit A Stage At A Rally](https://www.yahoo.com/entertainment/donald-trump-reveals-wife-melanias-184518033.html)
 - May 13 - [Harris utters a profanity in advice to young Asian Americans, Native Hawaiians and Pacific Islanders](https://www.yahoo.com/news/harris-utters-profanity-advice-young-180435059.html)
-- May 13 - [United Nations cuts estimates of women, children deaths in Gaza war in half](https://www.yahoo.com/news/united-nations-cuts-estimates-women-170941270.html)
-- May 13 - [Dr. Cyril Wecht, celebrity pathologist who argued more than 1 shooter killed JFK, dies at 93](https://www.yahoo.com/entertainment/dr-cyril-wecht-celebrity-pathologist-170318252.html)
 <!-- feed end -->
 
 ### Onstream
