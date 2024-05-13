@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Man charged in meningitis outbreak that killed 11 in Michigan sentenced](https://www.yahoo.com/news/man-charged-meningitis-outbreak-killed-121040772.html)
+- May 13 - [The Falklands have just become the most valuable piece of real estate on earth](https://www.yahoo.com/news/falklands-just-become-most-valuable-121604015.html)
+- May 13 - [Truck Takes A Licking And Keeps On Ticking In Oklahoma Police Chase](https://autos.yahoo.com/truck-takes-licking-keeps-ticking-120000053.html)
+- May 13 - [Eric Trump's Claim About His 'Good Family' Goes Down Like A Bag Of Bricks](https://www.yahoo.com/news/eric-trumps-claim-good-family-113848762.html)
 - May 13 - [9 Headstrong Homeowners Who Refused To Move, Despite Their Neighborhood Rapidly Changing Around Them](https://www.yahoo.com/lifestyle/9-headstrong-homeowners-refused-move-111602881.html)
-- May 13 - [Metro-east city named among the ‘cheapest, safest’ places to live in US. Here’s why](https://finance.yahoo.com/news/metro-east-city-named-among-110000765.html)
-- May 13 - [Deadly officer-involved shooting in Alexander County](https://www.yahoo.com/news/deadly-officer-involved-shooting-alexander-104704010.html)
-- May 13 - [GOP senators see warning signs for Trump after embarrassing week](https://www.yahoo.com/news/gop-senators-see-warning-signs-100000400.html)
+- May 13 - ["Dead Butt Syndrome" Is A Real Thing — Here's How To Tell If You Have It](https://www.yahoo.com/lifestyle/dead-butt-syndrome-real-thing-091602489.html)
 <!-- feed end -->
 
 ### Onstream
