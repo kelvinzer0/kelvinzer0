@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Proposed Minnesota Equal Rights Amendment draws rival crowds to Capitol for crucial votes](https://www.yahoo.com/news/proposed-minnesota-equal-rights-amendment-204243824.html)
-- May 13 - [Wisconsin Senate plans to vote on overriding Evers vetoes of 36 bills, including PFAS funding](https://www.yahoo.com/news/wisconsin-senate-plans-vote-overriding-204110649.html)
-- May 13 - [3 men charged in Whitey Bulger's 2018 prison killing have plea deals, prosecutors say](https://www.yahoo.com/news/3-men-charged-whitey-bulgers-202737806.html)
-- May 13 - [This Kansas City highway is one of the deadliest roads in the US, new analysis shows](https://www.yahoo.com/news/kansas-city-highway-one-deadliest-193023859.html)
-- May 13 - [Scorpions invade southwest Las Vegas valley neighborhoods, residents say](https://www.yahoo.com/news/scorpions-invade-southwest-las-vegas-191919110.html)
+- May 13 - [Republican group takes rare step of targeting GOP incumbent who voted to oust McCarthy](https://www.yahoo.com/news/republican-group-takes-rare-step-212511597.html)
+- May 13 - [Explosives break up Key Bridge section atop Dali, readying to refloat vessel](https://www.yahoo.com/news/explosives-break-key-bridge-section-211100332.html)
+- May 13 - [In China’s backyard: The new Marine ­regiments changing the fight](https://www.yahoo.com/news/china-backyard-marine-regiments-changing-203922444.html)
+- May 13 - [This Utah city to see groundbreaking of nearly $50 million hangar development](https://finance.yahoo.com/news/utah-city-see-groundbreaking-nearly-203142113.html)
+- May 13 - [AMC Theatres Shares Soar 80 Percent After Meme Stock Investor “Roaring Kitty” Resurfaces](https://finance.yahoo.com/news/amc-theatres-shares-soar-80-202853833.html)
 <!-- feed end -->
 
 ### Onstream
