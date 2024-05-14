@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Read Nottingham attack victims' family statements in full](https://www.yahoo.com/news/nottingham-attack-victims-family-statements-120900385.html)
-- May 14 - [Risks of handcuffing someone facedown long known; people die when police training fails to keep up](https://www.yahoo.com/news/risks-handcuffing-someone-facedown-long-101852725.html)
-- May 14 - [Three prisoners accused of killing Boston mob boss James ‘Whitey’ Bulger agree to plea deals, prosecutors say](https://www.yahoo.com/news/three-prisoners-accused-killing-boston-100350970.html)
-- May 14 - [A woman gave herself poop transplants using her brother's feces to treat debilitating IBS. Then she started getting acne just like him.](https://www.yahoo.com/news/woman-gave-herself-poop-transplants-094922020.html)
-- May 14 - [Why do storms keep missing Wichita, and how do meteorologists feel taking the blame?](https://www.yahoo.com/news/why-storms-keep-missing-wichita-090800235.html)
+- May 14 - [US producer prices increase more than expected in April](https://finance.yahoo.com/news/us-producer-prices-increase-more-124215678.html)
+- May 14 - [Group is hoping to raise $3 million to improve Modesto library for kids and other patrons](https://www.yahoo.com/news/group-hoping-raise-3-million-123000763.html)
+- May 14 - [As Insurers Around the U.S. Bleed Cash From Climate Shocks, Homeowners Lose](https://www.yahoo.com/news/insurers-around-u-bleed-cash-121902346.html)
+- May 14 - [India’s Only Female State Head Hinders Modi’s Win in West Bengal](https://www.yahoo.com/news/india-only-female-state-head-105910485.html)
+- May 14 - [China's Alibaba profit tumbles 86% though revenue beats estimates](https://finance.yahoo.com/news/chinas-alibaba-beats-quarterly-revenue-103328364.html)
 <!-- feed end -->
 
 ### Onstream
