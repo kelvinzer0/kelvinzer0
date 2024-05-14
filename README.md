@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [Central Florida Red Lobster locations to be auctioned off as employees hunt for new jobs](https://finance.yahoo.com/news/central-florida-red-lobster-locations-231005354.html)
+- May 14 - [Ex-Hanford worker admits COVID loan fraud for his solar-powered wheelchair company](https://finance.yahoo.com/news/ex-hanford-worker-admits-covid-003605847.html)
+- May 13 - [What the results of Wegovy’s longest clinical trial yet show about weight loss, side effects and heart protection](https://www.yahoo.com/news/results-wegovy-longest-clinical-trial-223705224.html)
 - May 13 - [Bank forecloses on The Greene for nearly $113 million in unpaid debt](https://finance.yahoo.com/news/bank-forecloses-greene-nearly-113-214445722.html)
+- May 13 - [Historic Death Valley tower topples over as driver uses it to free vehicle, rangers say](https://www.yahoo.com/news/historic-death-valley-tower-topples-212518158.html)
 - May 13 - [Republican group takes rare step of targeting GOP incumbent who voted to oust McCarthy](https://www.yahoo.com/news/republican-group-takes-rare-step-212511597.html)
-- May 13 - [US to force China-linked firm to sell land near US missile silos](https://www.yahoo.com/news/us-force-china-linked-firm-211934238.html)
-- May 13 - [Tuberville after attending Trump trial: ‘Most depressing thing I’ve ever been in’](https://www.yahoo.com/news/tuberville-attending-trump-trial-most-211841009.html)
 <!-- feed end -->
 
 ### Onstream
