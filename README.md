@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Pfizer Stock Is Near An 11-Year Low — But Is It A Buy On This 'Massive' Upside?](https://www.investors.com/news/technology/pfizer-stock-buy-now/?src=A00220&yptr=yahoo)
-- May 14 - [Out-of-control truck on I-95 had 3 men brawling in front seat, cops say. It crashed](https://www.yahoo.com/news/control-truck-95-had-3-112131512.html)
-- May 14 - [10 Cars That Outlast the Average American Brand](https://finance.yahoo.com/news/10-cars-outlast-average-american-110226559.html)
-- May 14 - [China's Alibaba profit tumbles 86% though revenue beats estimates](https://finance.yahoo.com/news/chinas-alibaba-beats-quarterly-revenue-103328364.html)
-- May 14 - [‘I'm a Cardiologist and This Is the Vegetable I Eat Almost Every Day for Heart Health’](https://www.yahoo.com/lifestyle/im-cardiologist-vegetable-eat-almost-102500217.html)
+- May 14 - [Argentines Flock to Banks as Milei Awakens Mortgage Market](https://finance.yahoo.com/news/argentines-flock-banks-mortgage-market-150000824.html)
+- May 14 - [Speaker Mike Johnson's appearance at Trump's felony trial marks a remarkable moment in US politics](https://www.yahoo.com/news/speaker-mike-johnsons-appearance-trumps-152914047.html)
+- May 14 - [Yevgeny Prigozhin Finally Gets His Revenge From Beyond the Grave](https://www.yahoo.com/news/yevgeny-prigozhin-finally-gets-revenge-151850576.html)
+- May 14 - [10 Signs You're Using Illegal Movie Websites](https://www.yahoo.com/entertainment/10-signs-youre-using-illegal-151300605.html)
+- May 14 - [‘Large’ sea creature — with ‘blade-like’ claws — discovered as new species. See it](https://www.yahoo.com/news/large-sea-creature-blade-claws-144117471.html)
 <!-- feed end -->
 
 ### Onstream
