@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Group of displaced Palestinians move into heavily damaged school in Gaza that was run by UN agency](https://www.yahoo.com/news/group-displaced-palestinians-move-heavily-100856975.html)
-- May 14 - [New tool from Pennsylvania Department of Health shows where ticks are prevalent](https://www.yahoo.com/news/tool-pennsylvania-department-health-shows-092416767.html)
+- May 14 - [Read Nottingham attack victims' family statements in full](https://www.yahoo.com/news/nottingham-attack-victims-family-statements-120900385.html)
+- May 14 - [Risks of handcuffing someone facedown long known; people die when police training fails to keep up](https://www.yahoo.com/news/risks-handcuffing-someone-facedown-long-101852725.html)
+- May 14 - [Three prisoners accused of killing Boston mob boss James ‘Whitey’ Bulger agree to plea deals, prosecutors say](https://www.yahoo.com/news/three-prisoners-accused-killing-boston-100350970.html)
+- May 14 - [A woman gave herself poop transplants using her brother's feces to treat debilitating IBS. Then she started getting acne just like him.](https://www.yahoo.com/news/woman-gave-herself-poop-transplants-094922020.html)
 - May 14 - [Why do storms keep missing Wichita, and how do meteorologists feel taking the blame?](https://www.yahoo.com/news/why-storms-keep-missing-wichita-090800235.html)
-- May 14 - [Kansas City Chiefs kicker blasts Biden, pro-choice movement in commencement speech](https://www.yahoo.com/news/kansas-city-chiefs-kicker-blasts-024141346.html)
-- May 14 - [The Nebraska GOP is rejecting all Republican congressional incumbents in Tuesday's primary election](https://www.yahoo.com/news/nebraska-gop-rejecting-republican-congressional-012429419.html)
 <!-- feed end -->
 
 ### Onstream
