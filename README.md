@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Sparks Fly as Trump’s Lawyer Brutally Cross-Examines Michael Cohen](https://www.yahoo.com/news/sparks-fly-trump-lawyer-brutally-183750480.html)
+- May 14 - [Watch: Manchester police capture half-naked suspect as he flees through gardens](https://www.yahoo.com/news/watch-manchester-police-capture-half-195102649.html)
+- May 14 - [Pig kidney transplant not linked to man's death, doctors say](https://www.yahoo.com/news/pig-kidney-transplant-not-linked-192711692.html)
+- May 14 - [‘Large’ creature found lurking in ‘underground cavern’ in Serbia. It’s a new species](https://www.yahoo.com/news/large-creature-found-lurking-underground-183854045.html)
 - May 14 - [Google launches Trillium chip, improving AI data center performance fivefold](https://finance.yahoo.com/news/google-launches-trillium-chip-improving-174358972.html)
-- May 14 - [American sought after ‘So I raped you’ Facebook message detained in France on 2021 warrant](https://www.yahoo.com/news/american-sought-raped-facebook-message-173821368.html)
-- May 14 - [SpaceX Starship’s 2nd Flight Footage Released Under Freedom Of Information Act By NASA](https://www.yahoo.com/news/spacex-starship-2nd-flight-footage-190320555.html)
-- May 14 - [Guy Fieri says rucking — the hot new fat-burning workout — helped him lose 30 pounds](https://www.yahoo.com/news/guy-fieri-says-rucking-mdash-164907405.html)
+- May 14 - [Delaware police at standoff occuring in Chester, Pennsylvania; part of I-95 NB closed](https://www.yahoo.com/news/delaware-police-standoff-occuring-chester-170752804.html)
 <!-- feed end -->
 
 ### Onstream
