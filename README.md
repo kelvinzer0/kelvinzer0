@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Argentina reports its first single-digit inflation in 6 months as markets swoon and costs hit home](https://www.yahoo.com/news/argentina-reports-first-single-digit-215703735.html)
-- May 14 - [Inside the Newly Opened Aston Martin Residences in Miami](https://www.yahoo.com/lifestyle/inside-newly-opened-aston-martin-210000823.html)
-- May 14 - [Winning $1 million lottery ticket sold at Farmington grocery store](https://www.yahoo.com/news/winning-1-million-lottery-ticket-171905566.html)
+- May 14 - [Giuliani bankruptcy judge frustrated with case, rebuffs attempt to challenge $148 million judgement](https://finance.yahoo.com/news/giuliani-bankruptcy-judge-frustrated-case-215433668.html)
+- May 14 - [One of The People on Donald Trump’s Frequently Contacted List Has Us Utterly Shocked](https://www.yahoo.com/entertainment/one-people-donald-trump-frequently-213826132.html)
+- May 14 - [3M shareholders vote down executives' pay packages in annual meeting](https://finance.yahoo.com/news/3m-shareholders-vote-down-executives-211651541.html)
 - May 14 - [Trump's former lawyer Giuliani stumbles in bid to appeal defamation ruling](https://www.yahoo.com/news/trumps-former-lawyer-giuliani-stumbles-203637796.html)
-- May 14 - [After their annual party at Lake Shasta, here's what Oregon college students left behind](https://www.yahoo.com/news/annual-party-lake-shasta-heres-202410244.html)
+- May 14 - [Grandson says Carter is ‘coming to the end’ in brief update about former president’s health](https://www.yahoo.com/news/grandson-says-carter-coming-end-192453687.html)
 <!-- feed end -->
 
 ### Onstream
