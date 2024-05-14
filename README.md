@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Zelenskiy lauds U.S. aid package, asks Blinken for air defences](https://www.yahoo.com/news/zelenskiy-lauds-u-aid-package-084202906.html)
-- May 14 - [Whistleblower who exposed alleged war crimes in Afghanistan jailed for leaking documents](https://www.yahoo.com/news/whistleblower-exposed-alleged-war-crimes-081859201.html)
-- May 14 - [How to rewater historic raceways by Great Falls and replicate what occurred 230 years ago](https://www.yahoo.com/news/rewater-historic-raceways-great-falls-081216792.html)
-- May 14 - [Tesla will drop 70% after robotaxi and AI ambitions stop shielding a failing business, 'Big Short' investor says](https://finance.yahoo.com/news/tesla-drop-70-robotaxi-ai-030107002.html)
-- May 14 - [Kansas City Chiefs kicker blasts Biden, pro-choice movement in commencement speech](https://www.yahoo.com/news/kansas-city-chiefs-kicker-blasts-024141346.html)
+- May 14 - [Nvidia Stock Is Drifting but Wall Street Is Excited About Earnings](https://www.barrons.com/articles/nvidia-stock-price-buy-sell-005b79d1?siteid=yhoof2&yptr=yahoo)
+- May 14 - [Tencent Beats Estimates After WeChat, Video Lift Ad Growth](https://finance.yahoo.com/news/tencent-revenue-beat-estimates-wechat-083345030.html)
+- May 14 - [Goldman Looks to Entice Wealthy Clients to Plow Cash Across Gulf](https://finance.yahoo.com/news/goldman-looks-entice-wealthy-clients-091807776.html)
+- May 14 - [German Investor Confidence Jumps as Economic Recovery Takes Hold](https://finance.yahoo.com/news/german-investor-confidence-jumps-economic-090824542.html)
+- May 14 - [2 Texas nude beaches make top 12 U.S. list. Is strutting around in the buff even legal?](https://www.yahoo.com/lifestyle/2-texas-nude-beaches-top-090000182.html)
 <!-- feed end -->
 
 ### Onstream
