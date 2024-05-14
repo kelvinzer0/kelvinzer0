@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Ex-Hanford worker admits COVID loan fraud for his solar-powered wheelchair company](https://finance.yahoo.com/news/ex-hanford-worker-admits-covid-003605847.html)
-- May 13 - [What the results of Wegovy’s longest clinical trial yet show about weight loss, side effects and heart protection](https://www.yahoo.com/news/results-wegovy-longest-clinical-trial-223705224.html)
-- May 13 - [Bank forecloses on The Greene for nearly $113 million in unpaid debt](https://finance.yahoo.com/news/bank-forecloses-greene-nearly-113-214445722.html)
-- May 13 - [Historic Death Valley tower topples over as driver uses it to free vehicle, rangers say](https://www.yahoo.com/news/historic-death-valley-tower-topples-212518158.html)
-- May 13 - [Republican group takes rare step of targeting GOP incumbent who voted to oust McCarthy](https://www.yahoo.com/news/republican-group-takes-rare-step-212511597.html)
+- May 14 - [Video shows Marion County principal accused of abusing student](https://www.yahoo.com/news/video-shows-marion-county-principal-031819975.html)
+- May 14 - [Uber to buy Delivery Hero's foodpanda business in Taiwan for $950 million](https://finance.yahoo.com/news/uber-buy-delivery-heros-foodpanda-031531975.html)
+- May 14 - [Kansas City Chiefs kicker blasts Biden, pro-choice movement in commencement speech](https://www.yahoo.com/news/kansas-city-chiefs-kicker-blasts-024141346.html)
+- May 14 - [Wrong way driver causes deadly crash on I-75 in Atlanta](https://www.yahoo.com/news/wrong-way-driver-causes-deadly-023407808.html)
+- May 14 - [The Michael Cohen who testified Monday was not the witness anyone expected](https://www.yahoo.com/news/reinvention-michael-cohen-001212376.html)
 <!-- feed end -->
 
 ### Onstream
