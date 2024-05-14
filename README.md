@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Video shows Marion County principal accused of abusing student](https://www.yahoo.com/news/video-shows-marion-county-principal-031819975.html)
-- May 14 - [Uber to buy Delivery Hero's foodpanda business in Taiwan for $950 million](https://finance.yahoo.com/news/uber-buy-delivery-heros-foodpanda-031531975.html)
+- May 14 - [Australian judge says it is unreasonable to require X to hide video of church stabbing for all users](https://finance.yahoo.com/news/australian-judge-says-unreasonable-require-042033780.html)
 - May 14 - [Kansas City Chiefs kicker blasts Biden, pro-choice movement in commencement speech](https://www.yahoo.com/news/kansas-city-chiefs-kicker-blasts-024141346.html)
-- May 14 - [Wrong way driver causes deadly crash on I-75 in Atlanta](https://www.yahoo.com/news/wrong-way-driver-causes-deadly-023407808.html)
+- May 14 - [The Nebraska GOP is rejecting all Republican congressional incumbents in Tuesday's primary election](https://www.yahoo.com/news/nebraska-gop-rejecting-republican-congressional-012429419.html)
 - May 14 - [The Michael Cohen who testified Monday was not the witness anyone expected](https://www.yahoo.com/news/reinvention-michael-cohen-001212376.html)
+- May 13 - [What the results of Wegovy’s longest clinical trial yet show about weight loss, side effects and heart protection](https://www.yahoo.com/news/results-wegovy-longest-clinical-trial-223705224.html)
 <!-- feed end -->
 
 ### Onstream
