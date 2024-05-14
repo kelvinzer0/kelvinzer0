@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Two men charged with plotting Islamic State-inspired marauding gun attack on Jewish community](https://www.yahoo.com/news/two-men-plotted-islamic-state-131430570.html)
-- May 14 - [US producer prices surge in April on strong services, goods](https://finance.yahoo.com/news/us-producer-prices-increase-more-124215678.html)
-- May 14 - [Belousov says Russia must win in Ukraine while minimising casualties](https://www.yahoo.com/news/belousov-says-russia-must-win-120720206.html)
-- May 14 - [Tornado Watch issued for parts of Florida as dangerous storms race across South on Tuesday](https://www.yahoo.com/news/tornado-watch-issued-parts-florida-102508179.html)
-- May 14 - [Home Depot sales drop more than expected as wary customers delay big projects](https://finance.yahoo.com/news/home-depot-posts-bigger-expected-100517193.html)
+- May 14 - [Pfizer Stock Is Near An 11-Year Low — But Is It A Buy On This 'Massive' Upside?](https://www.investors.com/news/technology/pfizer-stock-buy-now/?src=A00220&yptr=yahoo)
+- May 14 - [Out-of-control truck on I-95 had 3 men brawling in front seat, cops say. It crashed](https://www.yahoo.com/news/control-truck-95-had-3-112131512.html)
+- May 14 - [10 Cars That Outlast the Average American Brand](https://finance.yahoo.com/news/10-cars-outlast-average-american-110226559.html)
+- May 14 - [China's Alibaba profit tumbles 86% though revenue beats estimates](https://finance.yahoo.com/news/chinas-alibaba-beats-quarterly-revenue-103328364.html)
+- May 14 - [‘I'm a Cardiologist and This Is the Vegetable I Eat Almost Every Day for Heart Health’](https://www.yahoo.com/lifestyle/im-cardiologist-vegetable-eat-almost-102500217.html)
 <!-- feed end -->
 
 ### Onstream
