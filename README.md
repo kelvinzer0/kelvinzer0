@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [US producer prices increase more than expected in April](https://finance.yahoo.com/news/us-producer-prices-increase-more-124215678.html)
-- May 14 - [Group is hoping to raise $3 million to improve Modesto library for kids and other patrons](https://www.yahoo.com/news/group-hoping-raise-3-million-123000763.html)
-- May 14 - [As Insurers Around the U.S. Bleed Cash From Climate Shocks, Homeowners Lose](https://www.yahoo.com/news/insurers-around-u-bleed-cash-121902346.html)
-- May 14 - [India’s Only Female State Head Hinders Modi’s Win in West Bengal](https://www.yahoo.com/news/india-only-female-state-head-105910485.html)
-- May 14 - [China's Alibaba profit tumbles 86% though revenue beats estimates](https://finance.yahoo.com/news/chinas-alibaba-beats-quarterly-revenue-103328364.html)
+- May 14 - [Two men charged with plotting Islamic State-inspired marauding gun attack on Jewish community](https://www.yahoo.com/news/two-men-plotted-islamic-state-131430570.html)
+- May 14 - [US producer prices surge in April on strong services, goods](https://finance.yahoo.com/news/us-producer-prices-increase-more-124215678.html)
+- May 14 - [Belousov says Russia must win in Ukraine while minimising casualties](https://www.yahoo.com/news/belousov-says-russia-must-win-120720206.html)
+- May 14 - [Tornado Watch issued for parts of Florida as dangerous storms race across South on Tuesday](https://www.yahoo.com/news/tornado-watch-issued-parts-florida-102508179.html)
+- May 14 - [Home Depot sales drop more than expected as wary customers delay big projects](https://finance.yahoo.com/news/home-depot-posts-bigger-expected-100517193.html)
 <!-- feed end -->
 
 ### Onstream
