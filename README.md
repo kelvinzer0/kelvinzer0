@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Palestinians in Israel demand refugee return on 'Nakba' anniversary](https://www.yahoo.com/news/palestinians-israel-demand-refugee-return-165355718.html)
-- May 14 - [Russia intensifies attacks around Kharkiv as Blinken says US weapons will make ‘real difference’ on frontline](https://www.yahoo.com/news/russia-intensifies-attacks-around-kharkiv-151513683.html)
-- May 14 - [Magnificent Seven Stocks: Nvidia, Tesla Rise](https://www.investors.com/research/magnificent-seven-stocks-to-buy-and-and-watch/?src=A00220&yptr=yahoo)
-- May 14 - [O’Reilly: Trump should stay away from ‘crazy land’ at rallies](https://www.yahoo.com/news/o-reilly-trump-stay-away-154201980.html)
+- May 14 - [Google launches Trillium chip, improving AI data center performance fivefold](https://www.yahoo.com/news/google-launches-trillium-chip-improving-174358386.html)
+- May 14 - [Boeing Starliner's crew debut delayed again over spacecraft issue](https://finance.yahoo.com/news/boeing-starliners-crew-debut-delayed-164622743.html)
+- May 14 - [Mysterious skeletal remains in music store’s chimney ID’d 34 years later: WI officials](https://www.yahoo.com/news/mysterious-skeletal-remains-music-store-155857072.html)
 - May 14 - [Speaker Mike Johnson's appearance at Trump's felony trial marks a remarkable moment in US politics](https://www.yahoo.com/news/speaker-mike-johnsons-appearance-trumps-152914047.html)
+- May 14 - [Yevgeny Prigozhin Finally Gets His Revenge From Beyond the Grave](https://www.yahoo.com/news/yevgeny-prigozhin-finally-gets-revenge-151850576.html)
 <!-- feed end -->
 
 ### Onstream
