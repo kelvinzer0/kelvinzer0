@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Watch: Manchester police capture half-naked suspect as he flees through gardens](https://www.yahoo.com/news/watch-manchester-police-capture-half-195102649.html)
-- May 14 - [Pig kidney transplant not linked to man's death, doctors say](https://www.yahoo.com/news/pig-kidney-transplant-not-linked-192711692.html)
+- May 14 - [Cargo ship that caused Baltimore bridge collapse had power blackout hours before leaving port](https://www.yahoo.com/news/cargo-ship-caused-baltimore-bridge-201854378.html)
+- May 14 - [The $1.7 Billion News That Sent Plug Power Stock Surging: Here's What You Need to Know Before Buying](https://finance.yahoo.com/news/1-7-billion-news-sent-201619027.html)
 - May 14 - [‘Large’ creature found lurking in ‘underground cavern’ in Serbia. It’s a new species](https://www.yahoo.com/news/large-creature-found-lurking-underground-183854045.html)
+- May 14 - [Four St. Louis area schools receive Gold Star designation](https://www.yahoo.com/news/four-st-louis-area-schools-182033118.html)
 - May 14 - [Google launches Trillium chip, improving AI data center performance fivefold](https://finance.yahoo.com/news/google-launches-trillium-chip-improving-174358972.html)
-- May 14 - [Delaware police at standoff occuring in Chester, Pennsylvania; part of I-95 NB closed](https://www.yahoo.com/news/delaware-police-standoff-occuring-chester-170752804.html)
 <!-- feed end -->
 
 ### Onstream
