@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [A flood of crypto tokens with names referencing GameStop and famed trader Roaring Kitty have been created in the last 24 hours as developers try to ride a meme-coin resurgence](https://finance.yahoo.com/news/flood-crypto-tokens-names-referencing-002202252.html)
-- May 13 - [California high schoolers awarded $1 million after 'blackface' claims linked to acne-mask photos](https://www.yahoo.com/news/california-high-schoolers-awarded-1-225444938.html)
+- May 13 - [Central Florida Red Lobster locations to be auctioned off as employees hunt for new jobs](https://finance.yahoo.com/news/central-florida-red-lobster-locations-231005354.html)
+- May 13 - [Bank forecloses on The Greene for nearly $113 million in unpaid debt](https://finance.yahoo.com/news/bank-forecloses-greene-nearly-113-214445722.html)
 - May 13 - [Republican group takes rare step of targeting GOP incumbent who voted to oust McCarthy](https://www.yahoo.com/news/republican-group-takes-rare-step-212511597.html)
 - May 13 - [US to force China-linked firm to sell land near US missile silos](https://www.yahoo.com/news/us-force-china-linked-firm-211934238.html)
 - May 13 - [Tuberville after attending Trump trial: ‘Most depressing thing I’ve ever been in’](https://www.yahoo.com/news/tuberville-attending-trump-trial-most-211841009.html)
