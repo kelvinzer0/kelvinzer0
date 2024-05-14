@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Gary Lineker’s latest outburst about Israel is his worst yet](https://www.yahoo.com/news/gary-lineker-latest-outburst-israel-060000505.html)
+- May 14 - [The US dollar has become so weaponized that central banks are snapping up politically-neutral gold](https://www.yahoo.com/news/us-dollar-become-weaponized-central-073442580.html)
 - May 14 - [Kansas City Chiefs kicker blasts Biden, pro-choice movement in commencement speech](https://www.yahoo.com/news/kansas-city-chiefs-kicker-blasts-024141346.html)
 - May 14 - [The Nebraska GOP is rejecting all Republican congressional incumbents in Tuesday's primary election](https://www.yahoo.com/news/nebraska-gop-rejecting-republican-congressional-012429419.html)
+- May 14 - [Red Lobster to close at least 48 restaurants after ‘endless shrimp’ debacle](https://finance.yahoo.com/news/red-lobster-close-least-48-012358549.html)
 - May 14 - [Walmart to lay off hundreds of corporate staff and relocate others, WSJ reports](https://finance.yahoo.com/news/walmart-lay-off-hundreds-corporate-011614138.html)
-- May 14 - [The Michael Cohen who testified Monday was not the witness anyone expected](https://www.yahoo.com/news/reinvention-michael-cohen-001212376.html)
 <!-- feed end -->
 
 ### Onstream
