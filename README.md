@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Google launches Trillium chip, improving AI data center performance fivefold](https://www.yahoo.com/news/google-launches-trillium-chip-improving-174358386.html)
-- May 14 - [Boeing Starliner's crew debut delayed again over spacecraft issue](https://finance.yahoo.com/news/boeing-starliners-crew-debut-delayed-164622743.html)
-- May 14 - [Mysterious skeletal remains in music store’s chimney ID’d 34 years later: WI officials](https://www.yahoo.com/news/mysterious-skeletal-remains-music-store-155857072.html)
-- May 14 - [Speaker Mike Johnson's appearance at Trump's felony trial marks a remarkable moment in US politics](https://www.yahoo.com/news/speaker-mike-johnsons-appearance-trumps-152914047.html)
-- May 14 - [Yevgeny Prigozhin Finally Gets His Revenge From Beyond the Grave](https://www.yahoo.com/news/yevgeny-prigozhin-finally-gets-revenge-151850576.html)
+- May 14 - [Sparks Fly as Trump’s Lawyer Brutally Cross-Examines Michael Cohen](https://www.yahoo.com/news/sparks-fly-trump-lawyer-brutally-183750480.html)
+- May 14 - [Google launches Trillium chip, improving AI data center performance fivefold](https://finance.yahoo.com/news/google-launches-trillium-chip-improving-174358972.html)
+- May 14 - [American sought after ‘So I raped you’ Facebook message detained in France on 2021 warrant](https://www.yahoo.com/news/american-sought-raped-facebook-message-173821368.html)
+- May 14 - [SpaceX Starship’s 2nd Flight Footage Released Under Freedom Of Information Act By NASA](https://www.yahoo.com/news/spacex-starship-2nd-flight-footage-190320555.html)
+- May 14 - [Guy Fieri says rucking — the hot new fat-burning workout — helped him lose 30 pounds](https://www.yahoo.com/news/guy-fieri-says-rucking-mdash-164907405.html)
 <!-- feed end -->
 
 ### Onstream
