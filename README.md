@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Nvidia Stock Is Drifting but Wall Street Is Excited About Earnings](https://www.barrons.com/articles/nvidia-stock-price-buy-sell-005b79d1?siteid=yhoof2&yptr=yahoo)
-- May 14 - [Tencent Beats Estimates After WeChat, Video Lift Ad Growth](https://finance.yahoo.com/news/tencent-revenue-beat-estimates-wechat-083345030.html)
-- May 14 - [Goldman Looks to Entice Wealthy Clients to Plow Cash Across Gulf](https://finance.yahoo.com/news/goldman-looks-entice-wealthy-clients-091807776.html)
-- May 14 - [German Investor Confidence Jumps as Economic Recovery Takes Hold](https://finance.yahoo.com/news/german-investor-confidence-jumps-economic-090824542.html)
-- May 14 - [2 Texas nude beaches make top 12 U.S. list. Is strutting around in the buff even legal?](https://www.yahoo.com/lifestyle/2-texas-nude-beaches-top-090000182.html)
+- May 14 - [Group of displaced Palestinians move into heavily damaged school in Gaza that was run by UN agency](https://www.yahoo.com/news/group-displaced-palestinians-move-heavily-100856975.html)
+- May 14 - [New tool from Pennsylvania Department of Health shows where ticks are prevalent](https://www.yahoo.com/news/tool-pennsylvania-department-health-shows-092416767.html)
+- May 14 - [Why do storms keep missing Wichita, and how do meteorologists feel taking the blame?](https://www.yahoo.com/news/why-storms-keep-missing-wichita-090800235.html)
+- May 14 - [Kansas City Chiefs kicker blasts Biden, pro-choice movement in commencement speech](https://www.yahoo.com/news/kansas-city-chiefs-kicker-blasts-024141346.html)
+- May 14 - [The Nebraska GOP is rejecting all Republican congressional incumbents in Tuesday's primary election](https://www.yahoo.com/news/nebraska-gop-rejecting-republican-congressional-012429419.html)
 <!-- feed end -->
 
 ### Onstream
