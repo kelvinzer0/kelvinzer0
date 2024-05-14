@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 14 - [Gary Lineker’s latest outburst about Israel is his worst yet](https://www.yahoo.com/news/gary-lineker-latest-outburst-israel-060000505.html)
+- May 14 - [Kansas City Chiefs kicker blasts Biden, pro-choice movement in commencement speech](https://www.yahoo.com/news/kansas-city-chiefs-kicker-blasts-024141346.html)
+- May 14 - [The Nebraska GOP is rejecting all Republican congressional incumbents in Tuesday's primary election](https://www.yahoo.com/news/nebraska-gop-rejecting-republican-congressional-012429419.html)
+- May 14 - [Walmart to lay off hundreds of corporate staff and relocate others, WSJ reports](https://finance.yahoo.com/news/walmart-lay-off-hundreds-corporate-011614138.html)
 - May 14 - [The Michael Cohen who testified Monday was not the witness anyone expected](https://www.yahoo.com/news/reinvention-michael-cohen-001212376.html)
-- May 13 - [US calls on Iran to halt `unprecedented' weapons transfers to Yemen's Houthis for attacks on ships](https://www.yahoo.com/news/us-calls-iran-halt-unprecedented-234856569.html)
-- May 13 - [What the results of Wegovy’s longest clinical trial yet show about weight loss, side effects and heart protection](https://www.yahoo.com/news/results-wegovy-longest-clinical-trial-223705224.html)
-- May 13 - [Republican group takes rare step of targeting GOP incumbent who voted to oust McCarthy](https://www.yahoo.com/news/republican-group-takes-rare-step-212511597.html)
-- May 13 - [US to force China-linked firm to sell land near US missile silos](https://www.yahoo.com/news/us-force-china-linked-firm-211934238.html)
 <!-- feed end -->
 
 ### Onstream
