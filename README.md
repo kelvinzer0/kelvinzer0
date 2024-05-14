@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 14 - [Cargo ship that caused Baltimore bridge collapse had power blackout hours before leaving port](https://www.yahoo.com/news/cargo-ship-caused-baltimore-bridge-201854378.html)
-- May 14 - [The $1.7 Billion News That Sent Plug Power Stock Surging: Here's What You Need to Know Before Buying](https://finance.yahoo.com/news/1-7-billion-news-sent-201619027.html)
-- May 14 - [‘Large’ creature found lurking in ‘underground cavern’ in Serbia. It’s a new species](https://www.yahoo.com/news/large-creature-found-lurking-underground-183854045.html)
-- May 14 - [Four St. Louis area schools receive Gold Star designation](https://www.yahoo.com/news/four-st-louis-area-schools-182033118.html)
-- May 14 - [Google launches Trillium chip, improving AI data center performance fivefold](https://finance.yahoo.com/news/google-launches-trillium-chip-improving-174358972.html)
+- May 14 - [Argentina reports its first single-digit inflation in 6 months as markets swoon and costs hit home](https://www.yahoo.com/news/argentina-reports-first-single-digit-215703735.html)
+- May 14 - [Inside the Newly Opened Aston Martin Residences in Miami](https://www.yahoo.com/lifestyle/inside-newly-opened-aston-martin-210000823.html)
+- May 14 - [Winning $1 million lottery ticket sold at Farmington grocery store](https://www.yahoo.com/news/winning-1-million-lottery-ticket-171905566.html)
+- May 14 - [Trump's former lawyer Giuliani stumbles in bid to appeal defamation ruling](https://www.yahoo.com/news/trumps-former-lawyer-giuliani-stumbles-203637796.html)
+- May 14 - [After their annual party at Lake Shasta, here's what Oregon college students left behind](https://www.yahoo.com/news/annual-party-lake-shasta-heres-202410244.html)
 <!-- feed end -->
 
 ### Onstream
