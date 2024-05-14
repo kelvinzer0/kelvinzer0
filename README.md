@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 13 - [AMC Set to Cash In on Meme-Stock Traders Driving Shares Higher](https://finance.yahoo.com/news/amc-set-cash-meme-stock-223151539.html)
+- May 14 - [A flood of crypto tokens with names referencing GameStop and famed trader Roaring Kitty have been created in the last 24 hours as developers try to ride a meme-coin resurgence](https://finance.yahoo.com/news/flood-crypto-tokens-names-referencing-002202252.html)
+- May 13 - [California high schoolers awarded $1 million after 'blackface' claims linked to acne-mask photos](https://www.yahoo.com/news/california-high-schoolers-awarded-1-225444938.html)
 - May 13 - [Republican group takes rare step of targeting GOP incumbent who voted to oust McCarthy](https://www.yahoo.com/news/republican-group-takes-rare-step-212511597.html)
 - May 13 - [US to force China-linked firm to sell land near US missile silos](https://www.yahoo.com/news/us-force-china-linked-firm-211934238.html)
-- May 13 - [Angry Trump blasts judge after Cohen testimony](https://www.yahoo.com/news/angry-trump-blasts-judge-cohen-211321788.html)
-- May 13 - [This Utah city to see groundbreaking of nearly $50 million hangar development](https://finance.yahoo.com/news/utah-city-see-groundbreaking-nearly-203142113.html)
+- May 13 - [Tuberville after attending Trump trial: ‘Most depressing thing I’ve ever been in’](https://www.yahoo.com/news/tuberville-attending-trump-trial-most-211841009.html)
 <!-- feed end -->
 
 ### Onstream
