@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Climbing stairs has lots of health benefits. Here are 3 ways to make the most of it.](https://www.yahoo.com/lifestyle/climbing-stairs-has-lots-of-health-benefits-here-are-3-ways-to-make-the-most-of-it-154603181.html)
-- May 15 - [Ancient family’s tomb uncovered after 1,800 years in China. See the treasures inside](https://www.yahoo.com/news/ancient-family-tomb-uncovered-1-124843497.html)
+- May 15 - [Israeli military calls for investigation after releasing video showing armed men at UN facility in Gaza](https://www.yahoo.com/news/israeli-military-calls-investigation-releasing-161707873.html)
+- May 15 - [The 3M Dividend Cut Is Here. It’s Big.](https://www.barrons.com/articles/3m-stock-dividend-cut-c8076f27?siteid=yhoof2&yptr=yahoo)
 - May 15 - [Grant Cardone warns of a 50% pullback in Americans’ retirement accounts — here's what he's doing with his money](https://finance.yahoo.com/news/grant-cardone-warns-50-pullback-115500964.html)
 - May 15 - [Sports Illustrated Model Genevieve Morton Files $7 Million Lawsuit Over Adult Content Exposure](https://www.yahoo.com/entertainment/sports-illustrated-model-genevieve-morton-113002459.html)
 - May 15 - [Archaeologists Found 23,000-Year-Old Footprints That Rewrite the Story of Humans in America](https://www.yahoo.com/news/archaeologists-found-23-000-old-113000782.html)
