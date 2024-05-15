@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 15 - [Putin backs China's Ukraine peace plan, says Beijing understands the conflict](https://www.yahoo.com/news/putin-backs-chinas-ukraine-peace-001941641.html)
+- May 14 - [JPMorgan's trading desk lays out 6 scenarios for tomorrow's inflation report, and how the stock market will react to each of them](https://finance.yahoo.com/news/jpmorgans-trading-desk-lays-6-234604797.html)
+- May 14 - [Chinese firms make headway in producing high bandwidth memory for AI chipsets](https://www.yahoo.com/tech/chinese-firms-headway-producing-high-230448588.html)
+- May 14 - [The Case is Pretty Much Over: Akerman on Trump Trial](https://finance.yahoo.com/video/case-pretty-much-over-akerman-223725895.html)
 - May 14 - [Giuliani bankruptcy judge frustrated with case, rebuffs attempt to challenge $148 million judgement](https://finance.yahoo.com/news/giuliani-bankruptcy-judge-frustrated-case-215433668.html)
-- May 14 - [One of The People on Donald Trump’s Frequently Contacted List Has Us Utterly Shocked](https://www.yahoo.com/entertainment/one-people-donald-trump-frequently-213826132.html)
-- May 14 - [3M shareholders vote down executives' pay packages in annual meeting](https://finance.yahoo.com/news/3m-shareholders-vote-down-executives-211651541.html)
-- May 14 - [Trump's former lawyer Giuliani stumbles in bid to appeal defamation ruling](https://www.yahoo.com/news/trumps-former-lawyer-giuliani-stumbles-203637796.html)
-- May 14 - [Grandson says Carter is ‘coming to the end’ in brief update about former president’s health](https://www.yahoo.com/news/grandson-says-carter-coming-end-192453687.html)
 <!-- feed end -->
 
 ### Onstream
