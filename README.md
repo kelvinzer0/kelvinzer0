@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Nvidia Q1 earnings: What to expect](https://finance.yahoo.com/video/nvidia-q1-earnings-expect-144207780.html)
-- May 15 - [U.S. homebuilder sentiment tumbles as rates slow buyer traffic](https://www.yahoo.com/news/u-homebuilder-sentiment-tumbles-rates-140144638.html)
-- May 15 - [Russia's Belbek Airbase In Crimea Hammered By Ukrainian Long-Range Strike](https://www.yahoo.com/news/russias-belbek-airbase-crimea-hammered-140112148.html)
-- May 15 - [The inside story of Elon Musk’s mass firings of Tesla Supercharger staff](https://finance.yahoo.com/news/inside-story-elon-musk-mass-100216178.html)
-- May 15 - [We're 60, Have $1.3 Million in 401(k)s and Will Receive $5,100 Monthly From Social Security. What's Our Retirement Budget?](https://finance.yahoo.com/news/were-60-1-3-million-100000664.html)
+- May 15 - [Climbing stairs has lots of health benefits. Here are 3 ways to make the most of it.](https://www.yahoo.com/lifestyle/climbing-stairs-has-lots-of-health-benefits-here-are-3-ways-to-make-the-most-of-it-154603181.html)
+- May 15 - [Ancient family’s tomb uncovered after 1,800 years in China. See the treasures inside](https://www.yahoo.com/news/ancient-family-tomb-uncovered-1-124843497.html)
+- May 15 - [Grant Cardone warns of a 50% pullback in Americans’ retirement accounts — here's what he's doing with his money](https://finance.yahoo.com/news/grant-cardone-warns-50-pullback-115500964.html)
+- May 15 - [Sports Illustrated Model Genevieve Morton Files $7 Million Lawsuit Over Adult Content Exposure](https://www.yahoo.com/entertainment/sports-illustrated-model-genevieve-morton-113002459.html)
+- May 15 - [Archaeologists Found 23,000-Year-Old Footprints That Rewrite the Story of Humans in America](https://www.yahoo.com/news/archaeologists-found-23-000-old-113000782.html)
 <!-- feed end -->
 
 ### Onstream
