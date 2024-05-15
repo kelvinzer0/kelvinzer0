@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 15 - [GOP Sen. Mitt Romney says Biden should have pardoned Trump](https://www.yahoo.com/news/gop-sen-mitt-romney-says-202202446.html)
-- May 15 - [Elon Musk Didn't Like What a Woman Told Him, So He Fired Her Entire Department](https://finance.yahoo.com/news/elon-musk-didnt-woman-told-192805486.html)
-- May 15 - [Teacher refused to use preferred pronouns and was fired, suit says. Now district owes](https://www.yahoo.com/news/teacher-refused-preferred-pronouns-fired-192436328.html)
-- May 15 - [This, too, could pass: Christian group's rule keeping beaches closed on Sunday mornings may end](https://www.yahoo.com/news/too-could-pass-christian-groups-192429978.html)
-- May 15 - [‘Bizarre’ creature — that hunts like an ‘assassin’ — discovered as new species. See it](https://www.yahoo.com/news/bizarre-creature-hunts-assassin-discovered-182032204.html)
+- May 15 - [Will the ACC hold together or fall apart? 'The SEC and Big Ten have cut us open and they’re just watching us bleed out'](https://sports.yahoo.com/will-the-acc-hold-together-or-fall-apart-the-sec-and-big-ten-have-cut-us-open-and-theyre-just-watching-us-bleed-out-214121376.html)
+- May 15 - [Mock-Up Patriot System Sparks China-Ukraine Conspiracy Theories](https://www.yahoo.com/news/mock-patriot-system-sparks-china-212354522.html)
+- May 15 - [The Mirage casino, which ushered in an era of Las Vegas Strip megaresorts in the '90s, is closing](https://www.yahoo.com/news/mirage-casino-ushered-era-las-204340878.html)
+- May 15 - [Semi crashes, spills fuel along I-75 in Dayton; Roadway closed for 10 hours](https://www.yahoo.com/news/lanes-closed-due-semi-crash-071648843.html)
 <!-- feed end -->
 
 ### Onstream
