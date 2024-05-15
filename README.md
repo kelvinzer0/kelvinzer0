@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 15 - [Jets Abort Formation as Wings Touch During Fort Lauderdale Airshow](https://www.yahoo.com/news/jets-abort-formation-wings-touch-070435440.html)
 - May 15 - [Jordan foils arms plot as kingdom caught in Iran-Israel shadow war](https://www.yahoo.com/news/jordan-foils-arms-plot-kingdom-050321243.html)
 - May 15 - [Stormy Daniels’ husband says they’ll likely leave country if Trump is acquitted](https://www.yahoo.com/news/stormy-daniels-husband-says-ll-023903789.html)
 - May 15 - [Putin backs China's Ukraine peace plan, says Beijing understands the conflict](https://www.yahoo.com/news/putin-backs-chinas-ukraine-peace-001941641.html)
 - May 15 - [Terrifying home invasion leaves Southern California family shaken, baffled](https://www.yahoo.com/news/terrifying-home-invasion-leaves-southern-001137547.html)
-- May 14 - [Chinese firms make headway in producing high bandwidth memory for AI chipsets](https://www.yahoo.com/tech/chinese-firms-headway-producing-high-230448588.html)
 <!-- feed end -->
 
 ### Onstream
