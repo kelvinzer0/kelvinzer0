@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 15 - [GOP Sen. Mitt Romney says Biden should have pardoned Trump](https://www.yahoo.com/news/gop-sen-mitt-romney-says-202202446.html)
+- May 15 - [Billionaire Bill Ackman Holds Only 8 Stocks in His Portfolio — Should You Buy Them?](https://finance.yahoo.com/news/billionaire-bill-ackman-holds-only-200152611.html)
+- May 15 - [Pickleball, splash pad, river access: Major park project planned in Ada](https://www.yahoo.com/news/pickleball-splash-pad-river-access-193835330.html)
 - May 15 - [Teacher refused to use preferred pronouns and was fired, suit says. Now district owes](https://www.yahoo.com/news/teacher-refused-preferred-pronouns-fired-192436328.html)
-- May 15 - [‘Bizarre’ creature — that hunts like an ‘assassin’ — discovered as new species. See it](https://www.yahoo.com/news/bizarre-creature-hunts-assassin-discovered-182032204.html)
-- May 15 - [Barge hits bridge connecting Galveston and Pelican Island, causing partial collapse and oil spill](https://www.yahoo.com/news/barge-hits-bridge-galveston-texas-170614447.html)
-- May 15 - [Astronomers say we may live at the center of a cosmic void 2 billion light-years wide that defies the laws of cosmology](https://www.yahoo.com/tech/astronomers-may-live-center-cosmic-170022144.html)
-- May 15 - [Manchin, GOP senators move to overturn retirement investment planning rule](https://finance.yahoo.com/news/manchin-gop-senators-move-overturn-165435660.html)
+- May 15 - [7 Secret Perks of Having a High Credit Score You’ve Never Heard Of](https://finance.yahoo.com/news/7-secret-perks-having-high-184605843.html)
 <!-- feed end -->
 
 ### Onstream
