@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [The inside story of Elon Musk’s mass firings of Tesla Supercharger staff](https://finance.yahoo.com/news/inside-story-elon-musk-mass-100216178.html)
-- May 15 - [Morning bid: New stock records jump the CPI gun](https://finance.yahoo.com/news/morning-bid-stock-records-jump-100117654.html)
-- May 15 - [From supply tips to pet-friendly SC hotels: A Hilton Head guide to protect pets after a hurricane](https://www.yahoo.com/lifestyle/supply-tips-pet-friendly-sc-100000525.html)
-- May 15 - [Trump’s attacks on Judge Juan Merchan trigger Truth Social calls for violence](https://www.yahoo.com/news/trump-attacks-judge-juan-merchan-093305131.html)
+- May 15 - [City approves vision for downtown Stevens Point. What changes and projects does the Master Plan prioritize?](https://www.yahoo.com/news/city-approves-vision-downtown-stevens-102012759.html)
+- May 15 - [We're 60, Have $1.3 Million in 401(k)s and Will Receive $5,100 Monthly From Social Security. What's Our Retirement Budget?](https://finance.yahoo.com/news/were-60-1-3-million-100000664.html)
 - May 15 - [Ex-Aide Sums Up Melania’s Marriage To Donald Trump With 1 Word](https://www.yahoo.com/entertainment/ex-aide-sums-melania-marriage-083456100.html)
+- May 15 - [Jordan foils arms plot as kingdom caught in Iran-Israel shadow war](https://www.yahoo.com/news/jordan-foils-arms-plot-kingdom-050321243.html)
+- May 15 - [Putin backs China's Ukraine peace plan, says Beijing understands the conflict](https://www.yahoo.com/news/putin-backs-chinas-ukraine-peace-001941641.html)
 <!-- feed end -->
 
 ### Onstream
