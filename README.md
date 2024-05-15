@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 15 - [Michael Cohen’s cross-examination starts strangely and doesn’t get much better](https://www.yahoo.com/news/michael-cohen-cross-examination-starts-011508750.html)
+- May 15 - [Sun releases the strongest flare in current cycle from the same region that triggered auroras this weekend](https://www.yahoo.com/news/sun-releases-strongest-flare-current-010333053.html)
+- May 15 - [L.A. City Council backs plan to double sewer fees](https://www.yahoo.com/news/l-city-council-backs-plan-005638852.html)
 - May 15 - [Putin backs China's Ukraine peace plan, says Beijing understands the conflict](https://www.yahoo.com/news/putin-backs-chinas-ukraine-peace-001941641.html)
-- May 14 - [JPMorgan's trading desk lays out 6 scenarios for tomorrow's inflation report, and how the stock market will react to each of them](https://finance.yahoo.com/news/jpmorgans-trading-desk-lays-6-234604797.html)
 - May 14 - [Chinese firms make headway in producing high bandwidth memory for AI chipsets](https://www.yahoo.com/tech/chinese-firms-headway-producing-high-230448588.html)
-- May 14 - [The Case is Pretty Much Over: Akerman on Trump Trial](https://finance.yahoo.com/video/case-pretty-much-over-akerman-223725895.html)
-- May 14 - [Giuliani bankruptcy judge frustrated with case, rebuffs attempt to challenge $148 million judgement](https://finance.yahoo.com/news/giuliani-bankruptcy-judge-frustrated-case-215433668.html)
 <!-- feed end -->
 
 ### Onstream
