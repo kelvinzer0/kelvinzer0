@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [‘Come and toke it’: Take a look inside Power Biopharms, a cannabis farm in North Texas](https://finance.yahoo.com/news/come-toke-look-inside-power-100000190.html)
+- May 15 - [The inside story of Elon Musk’s mass firings of Tesla Supercharger staff](https://finance.yahoo.com/news/inside-story-elon-musk-mass-100216178.html)
+- May 15 - [Morning bid: New stock records jump the CPI gun](https://finance.yahoo.com/news/morning-bid-stock-records-jump-100117654.html)
+- May 15 - [From supply tips to pet-friendly SC hotels: A Hilton Head guide to protect pets after a hurricane](https://www.yahoo.com/lifestyle/supply-tips-pet-friendly-sc-100000525.html)
+- May 15 - [Trump’s attacks on Judge Juan Merchan trigger Truth Social calls for violence](https://www.yahoo.com/news/trump-attacks-judge-juan-merchan-093305131.html)
 - May 15 - [Ex-Aide Sums Up Melania’s Marriage To Donald Trump With 1 Word](https://www.yahoo.com/entertainment/ex-aide-sums-melania-marriage-083456100.html)
-- May 15 - [Kim Jong Un inspects new missile system amid growing Russia military ties](https://www.yahoo.com/news/kim-jong-un-inspects-missile-083121376.html)
-- May 15 - [Why Thai farmers are launching gunpowder propelled homemade rockets](https://www.yahoo.com/news/why-thai-farmers-launching-gunpowder-060000268.html)
-- May 15 - [Jordan foils arms plot as kingdom caught in Iran-Israel shadow war](https://www.yahoo.com/news/jordan-foils-arms-plot-kingdom-050321243.html)
 <!-- feed end -->
 
 ### Onstream
