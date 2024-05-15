@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 15 - [‘Come and toke it’: Take a look inside Power Biopharms, a cannabis farm in North Texas](https://finance.yahoo.com/news/come-toke-look-inside-power-100000190.html)
 - May 15 - [Ex-Aide Sums Up Melania’s Marriage To Donald Trump With 1 Word](https://www.yahoo.com/entertainment/ex-aide-sums-melania-marriage-083456100.html)
+- May 15 - [Kim Jong Un inspects new missile system amid growing Russia military ties](https://www.yahoo.com/news/kim-jong-un-inspects-missile-083121376.html)
+- May 15 - [Why Thai farmers are launching gunpowder propelled homemade rockets](https://www.yahoo.com/news/why-thai-farmers-launching-gunpowder-060000268.html)
 - May 15 - [Jordan foils arms plot as kingdom caught in Iran-Israel shadow war](https://www.yahoo.com/news/jordan-foils-arms-plot-kingdom-050321243.html)
-- May 15 - [About 100 Filipino activists and fishermen sail on wooden boats to disputed shoal guarded by China](https://www.yahoo.com/news/filipino-activists-fishermen-sail-100-035209829.html)
-- May 15 - [Stormy Daniels’ husband says they’ll likely leave country if Trump is acquitted](https://www.yahoo.com/news/stormy-daniels-husband-says-ll-023903789.html)
-- May 15 - [Putin backs China's Ukraine peace plan, says Beijing understands the conflict](https://www.yahoo.com/news/putin-backs-chinas-ukraine-peace-001941641.html)
 <!-- feed end -->
 
 ### Onstream
