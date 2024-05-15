@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Israeli military calls for investigation after releasing video showing armed men at UN facility in Gaza](https://www.yahoo.com/news/israeli-military-calls-investigation-releasing-161707873.html)
-- May 15 - [The 3M Dividend Cut Is Here. It’s Big.](https://www.barrons.com/articles/3m-stock-dividend-cut-c8076f27?siteid=yhoof2&yptr=yahoo)
-- May 15 - [Grant Cardone warns of a 50% pullback in Americans’ retirement accounts — here's what he's doing with his money](https://finance.yahoo.com/news/grant-cardone-warns-50-pullback-115500964.html)
-- May 15 - [Sports Illustrated Model Genevieve Morton Files $7 Million Lawsuit Over Adult Content Exposure](https://www.yahoo.com/entertainment/sports-illustrated-model-genevieve-morton-113002459.html)
-- May 15 - [Archaeologists Found 23,000-Year-Old Footprints That Rewrite the Story of Humans in America](https://www.yahoo.com/news/archaeologists-found-23-000-old-113000782.html)
+- May 15 - [Cheektowaga man receives indeterminate sentence for 14 vehicle thefts](https://www.yahoo.com/news/cheektowaga-man-receives-indeterminate-sentence-165920548.html)
+- May 15 - [Manchin, GOP senators move to overturn retirement investment planning rule](https://finance.yahoo.com/news/manchin-gop-senators-move-overturn-165435660.html)
+- May 15 - [Rescue dog enjoys first look at blue whale, footage is ‘priceless’](https://www.yahoo.com/lifestyle/dog-named-fin-enjoys-first-164342374.html)
+- May 15 - [Ancient family’s tomb uncovered after 1,800 years in China. See the treasures inside](https://www.yahoo.com/news/ancient-family-tomb-uncovered-1-124843497.html)
+- May 15 - [JPMorgan gives a lift to another troubled regional bank](https://finance.yahoo.com/news/jpmorgan-gives-a-lift-to-another-troubled-regional-bank-124530445.html)
 <!-- feed end -->
 
 ### Onstream
