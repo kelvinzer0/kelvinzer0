@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Stormy Daniels’ husband says they’ll likely leave country if Trump is acquitted](https://www.yahoo.com/news/stormy-daniels-husband-says-ll-023903789.html)
 - May 15 - [Putin backs China's Ukraine peace plan, says Beijing understands the conflict](https://www.yahoo.com/news/putin-backs-chinas-ukraine-peace-001941641.html)
+- May 15 - [China's Mysterious Stealthy Warship Has Headed Out To Sea](https://www.yahoo.com/tech/chinas-mysterious-stealthy-warship-headed-001230647.html)
 - May 15 - [Terrifying home invasion leaves Southern California family shaken, baffled](https://www.yahoo.com/news/terrifying-home-invasion-leaves-southern-001137547.html)
+- May 14 - [Tesla plans to cut 601 more jobs in California, notice to government says](https://www.yahoo.com/tech/tesla-lay-off-additional-601-234551601.html)
 - May 14 - [Chinese firms make headway in producing high bandwidth memory for AI chipsets](https://www.yahoo.com/tech/chinese-firms-headway-producing-high-230448588.html)
-- May 14 - [The Case is Pretty Much Over: Akerman on Trump Trial](https://finance.yahoo.com/video/case-pretty-much-over-akerman-223725895.html)
 <!-- feed end -->
 
 ### Onstream
