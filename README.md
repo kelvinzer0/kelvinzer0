@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Seeking 12% Dividend Yield? Analysts Suggest 2 Dividend Stocks to Buy](https://finance.yahoo.com/news/seeking-12-dividend-yield-analysts-130525353.html)
-- May 15 - [Grant Cardone warns of a 50% pullback in Americans’ retirement accounts — here's what he's doing with his money](https://finance.yahoo.com/news/grant-cardone-warns-50-pullback-115500964.html)
+- May 15 - [Nvidia Q1 earnings: What to expect](https://finance.yahoo.com/video/nvidia-q1-earnings-expect-144207780.html)
+- May 15 - [U.S. homebuilder sentiment tumbles as rates slow buyer traffic](https://www.yahoo.com/news/u-homebuilder-sentiment-tumbles-rates-140144638.html)
+- May 15 - [Russia's Belbek Airbase In Crimea Hammered By Ukrainian Long-Range Strike](https://www.yahoo.com/news/russias-belbek-airbase-crimea-hammered-140112148.html)
 - May 15 - [The inside story of Elon Musk’s mass firings of Tesla Supercharger staff](https://finance.yahoo.com/news/inside-story-elon-musk-mass-100216178.html)
-- May 15 - [Tornado watch issued for 19 Florida counties as storms move through. See weather radar](https://www.yahoo.com/news/tornado-watch-issued-19-florida-093124379.html)
-- May 15 - [Ex-Aide Sums Up Melania’s Marriage To Donald Trump With 1 Word](https://www.yahoo.com/entertainment/ex-aide-sums-melania-marriage-083456100.html)
+- May 15 - [We're 60, Have $1.3 Million in 401(k)s and Will Receive $5,100 Monthly From Social Security. What's Our Retirement Budget?](https://finance.yahoo.com/news/were-60-1-3-million-100000664.html)
 <!-- feed end -->
 
 ### Onstream
