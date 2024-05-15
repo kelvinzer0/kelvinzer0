@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [Cheektowaga man receives indeterminate sentence for 14 vehicle thefts](https://www.yahoo.com/news/cheektowaga-man-receives-indeterminate-sentence-165920548.html)
+- May 15 - [Trump trial, his Florida guests, reveal what a sick joke American politics have become | Opinion](https://www.yahoo.com/news/trump-trial-florida-guests-reveal-184229295.html)
+- May 15 - [‘Bizarre’ creature — that hunts like an ‘assassin’ — discovered as new species. See it](https://www.yahoo.com/news/bizarre-creature-hunts-assassin-discovered-182032204.html)
+- May 15 - [Barge hits a bridge in Galveston, Texas, damaging the structure and causing an oil spill](https://www.yahoo.com/news/barge-hits-bridge-galveston-texas-170614447.html)
+- May 15 - [Astronomers say we may live at the center of a cosmic void 2 billion light-years wide that defies the laws of cosmology](https://www.yahoo.com/tech/astronomers-may-live-center-cosmic-170022144.html)
 - May 15 - [Manchin, GOP senators move to overturn retirement investment planning rule](https://finance.yahoo.com/news/manchin-gop-senators-move-overturn-165435660.html)
-- May 15 - [Rescue dog enjoys first look at blue whale, footage is ‘priceless’](https://www.yahoo.com/lifestyle/dog-named-fin-enjoys-first-164342374.html)
-- May 15 - [Ancient family’s tomb uncovered after 1,800 years in China. See the treasures inside](https://www.yahoo.com/news/ancient-family-tomb-uncovered-1-124843497.html)
-- May 15 - [JPMorgan gives a lift to another troubled regional bank](https://finance.yahoo.com/news/jpmorgan-gives-a-lift-to-another-troubled-regional-bank-124530445.html)
 <!-- feed end -->
 
 ### Onstream
