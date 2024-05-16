@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Body of missing Tampa mom believed to have been found](https://www.yahoo.com/news/body-missing-tampa-mom-believed-005354775.html)
+- May 16 - [TSMC says no damage to its Arizona facilities after incident](https://finance.yahoo.com/news/tsmc-says-no-damage-arizona-025529478.html)
 - May 16 - [Warren Buffett finally reveals the mysterious company he’s invested billions of dollars in](https://finance.yahoo.com/news/warren-buffett-finally-reveals-mysterious-001135942.html)
-- May 15 - [Chileans bundle up amid the fiercest cold snap in decades](https://www.yahoo.com/news/chileans-bundle-amid-fiercest-cold-214719331.html)
+- May 15 - [10 Signs You’ll Retire Comfortably in the Middle Class](https://finance.yahoo.com/news/10-signs-ll-retire-comfortably-160020141.html)
 - May 15 - [Fire breaks out at Kearny Mesa dealership](https://www.yahoo.com/news/fire-breaks-kearny-mesa-dealership-212035465.html)
-- May 15 - [China's BYD just unleashed a hybrid pickup truck that has no rival in America — see the Shark](https://www.yahoo.com/news/chinas-byd-just-unleashed-hybrid-210954975.html)
+- May 15 - [Pathetic Trump Already Trying to Weasel Out of Debating Biden](https://www.yahoo.com/news/trump-already-trying-weasel-way-205314213.html)
 <!-- feed end -->
 
 ### Onstream
