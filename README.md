@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Alphabet Just Announced Spectacular News for Nvidia Stock Investors](https://finance.yahoo.com/news/alphabet-just-announced-spectacular-news-133000730.html)
-- May 16 - [Aftermath of violence in New Caledonia as France rushes reinforcements to Pacific territory](https://www.yahoo.com/news/aftermath-violence-caledonia-france-rushes-125838325.html)
-- May 16 - [‘You guys are seriously broke’: Dave Ramsey delivers wake up call to Iowa couple making nearly $200,000](https://finance.yahoo.com/news/guys-seriously-broke-dave-ramsey-111400261.html)
-- May 16 - [Algerian man missing for more than 25 years ‘held captive by neighbour’](https://www.yahoo.com/news/algerian-man-missing-more-25-111246414.html)
-- May 16 - [Israel moves in on north Gaza Hamas stronghold, pounds Rafah without advancing](https://www.yahoo.com/news/israel-moves-north-gaza-hamas-101336596.html)
+- May 16 - [Supreme Court sides with the Consumer Financial Protection Bureau, spurning a conservative attack](https://www.yahoo.com/news/supreme-court-sides-consumer-financial-141123969.html)
+- May 16 - [‘No Wonder They Shot Him’: Marjorie Taylor Greene Shares Wild Conspiracy Theory](https://www.yahoo.com/news/no-wonder-shot-him-marjorie-135115394.html)
+- May 16 - [Tickfaw man accused of breaking into Covington home, sexually assaulting child is indicted](https://www.yahoo.com/news/tickfaw-man-accused-breaking-covington-133344851.html)
+- May 16 - [Cancer Survivors Are Sharing The Symptom That Finally Made Them Go To The Doctor](https://www.yahoo.com/news/cancer-survivors-sharing-symptom-finally-131602936.html)
+- May 16 - [Anti-Putin Russian paramilitaries join Ukraine's fight in Kharkiv region](https://www.yahoo.com/news/anti-putin-russian-paramilitaries-join-123843024.html)
 <!-- feed end -->
 
 ### Onstream
