@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [TSMC says no damage to its Arizona facilities after incident](https://finance.yahoo.com/news/tsmc-says-no-damage-arizona-025529478.html)
+- May 16 - [Microsoft asks hundreds of China staff to relocate, WSJ reports](https://finance.yahoo.com/news/microsoft-asks-hundreds-china-based-041944118.html)
 - May 16 - [Warren Buffett finally reveals the mysterious company he’s invested billions of dollars in](https://finance.yahoo.com/news/warren-buffett-finally-reveals-mysterious-001135942.html)
-- May 15 - [10 Signs You’ll Retire Comfortably in the Middle Class](https://finance.yahoo.com/news/10-signs-ll-retire-comfortably-160020141.html)
-- May 15 - [Fire breaks out at Kearny Mesa dealership](https://www.yahoo.com/news/fire-breaks-kearny-mesa-dealership-212035465.html)
-- May 15 - [Pathetic Trump Already Trying to Weasel Out of Debating Biden](https://www.yahoo.com/news/trump-already-trying-weasel-way-205314213.html)
+- May 16 - [TSMC says no damage to its Arizona facilities after incident](https://finance.yahoo.com/news/tsmc-says-no-damage-arizona-025529478.html)
+- May 16 - [GOP congressman corrected after flubbing who signed the Constitution](https://www.yahoo.com/news/gop-congressman-corrected-flubbing-signed-015754107.html)
+- May 15 - [Alleged Porch Pirate Takes Package In Front of Homeowner](https://www.yahoo.com/news/alleged-porch-pirate-takes-package-224702127.html)
 <!-- feed end -->
 
 ### Onstream
