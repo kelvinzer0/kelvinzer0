@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [10 Affordable Compact Cars That Will Last 300,000 Miles](https://finance.yahoo.com/news/10-affordable-compact-cars-last-185347887.html)
 - May 15 - [10 Signs You’ll Retire Comfortably in the Middle Class](https://finance.yahoo.com/news/10-signs-ll-retire-comfortably-160020141.html)
 - May 15 - [Fire breaks out at Kearny Mesa dealership](https://www.yahoo.com/news/fire-breaks-kearny-mesa-dealership-212035465.html)
 - May 15 - [China's BYD just unleashed a hybrid pickup truck that has no rival in America — see the Shark](https://www.yahoo.com/news/chinas-byd-just-unleashed-hybrid-210954975.html)
 - May 15 - [Pathetic Trump Already Trying to Weasel Out of Debating Biden](https://www.yahoo.com/news/trump-already-trying-weasel-way-205314213.html)
+- May 15 - [The Mirage casino, which ushered in an era of Las Vegas Strip megaresorts in the '90s, is closing](https://www.yahoo.com/news/mirage-casino-ushered-era-las-204340878.html)
 <!-- feed end -->
 
 ### Onstream
