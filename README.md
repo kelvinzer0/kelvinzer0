@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Microsoft asks cloud staff in China to relocate amid tensions with the US](https://finance.yahoo.com/news/microsoft-asks-hundreds-china-based-041944118.html)
-- May 16 - [GOP congressman corrected after flubbing who signed the Constitution](https://www.yahoo.com/news/gop-congressman-corrected-flubbing-signed-015754107.html)
-- May 15 - [Tesla must face vehicle owners' lawsuit over self-driving claims](https://finance.yahoo.com/news/tesla-must-face-vehicle-owners-225222673.html)
-- May 15 - [Alleged Porch Pirate Takes Package In Front of Homeowner](https://www.yahoo.com/news/alleged-porch-pirate-takes-package-224702127.html)
-- May 15 - [10 Signs You’ll Retire Comfortably in the Middle Class](https://finance.yahoo.com/news/10-signs-ll-retire-comfortably-160020141.html)
+- May 16 - [A second Trump presidency would target IEA's green focus, advisers say](https://www.yahoo.com/news/second-trump-presidency-target-ieas-100557617.html)
+- May 16 - [George Stephanopoulos Brings House Down With First Thing He'd Ask At Biden-Trump Debate](https://www.yahoo.com/news/george-stephanopoulos-brings-house-down-100224747.html)
+- May 16 - [Construction has begun to reshape Nashville's massive East Bank. See the timeline and to what to expect](https://www.yahoo.com/news/construction-begun-reshape-nashvilles-massive-100220145.html)
+- May 16 - [A Palestinian converted to Judaism. An Israeli soldier saw him as a threat and opened fire](https://www.yahoo.com/news/palestinian-converted-judaism-israeli-soldier-075435370.html)
+- May 16 - [Mary Trump Thinks She Knows Exactly Why Ivanka And Don Jr. Haven't Turned Up In Court](https://www.yahoo.com/news/mary-trump-thinks-she-knows-065400055.html)
 <!-- feed end -->
 
 ### Onstream
