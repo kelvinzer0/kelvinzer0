@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [5 Car Brands With the Most Reliable Engines](https://finance.yahoo.com/news/5-car-brands-most-reliable-170022581.html)
-- May 16 - [Supercharged C5 Corvette Tackles Dodge Demon](https://autos.yahoo.com/supercharged-c5-corvette-tackles-dodge-211500621.html)
-- May 16 - [San Francisco Taxpayers Forced To Fund Free Alcohol For Homeless; California Tax Rates Increase Further, Prompting More Exodus](https://finance.yahoo.com/news/san-francisco-taxpayers-forced-fund-150029769.html)
-- May 16 - [Supreme Court sides with the Consumer Financial Protection Bureau, spurning a conservative attack](https://www.yahoo.com/news/supreme-court-sides-consumer-financial-141123969.html)
-- May 16 - [Scientists May Have Found a Particle Made of Pure Force](https://www.yahoo.com/news/scientists-may-found-particle-made-140600415.html)
+- May 16 - [Lawyer for family of slain US Air Force airman says video and calls show deputy went to wrong home](https://www.yahoo.com/news/lawyer-family-slain-us-air-163536814.html)
+- May 16 - [MAGA Rep’s Insane Biden Claim Is Too Much Even for Maria Bartiromo](https://www.yahoo.com/news/maga-rep-insane-biden-claim-163308950.html)
+- May 16 - [Stable Genius Trump Once Again Violates Gag Order in Incoherent Rant](https://www.yahoo.com/news/stable-genius-trump-once-again-161122500.html)
+- May 16 - [Lauren Boebert Admits Exactly Why Trump Stooges Descended on Trial](https://www.yahoo.com/news/lauren-boebert-admits-exactly-why-160340241.html)
+- May 16 - [National steakhouse returning to central Ohio with restaurant in former O’Charley’s](https://www.yahoo.com/news/national-steakhouse-returning-central-ohio-143000188.html)
 <!-- feed end -->
 
 ### Onstream
