@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 16 - [Nvidia Dethroned: This AI Chip Stock Now Rules This Elite Screen](https://www.investors.com/etfs-and-funds/mutual-funds/best-mutual-funds-broadcom-dethrones-nvidia/?src=A00220&yptr=yahoo)
+- May 16 - [22 People Who Embarrassed Themselves Much, Much, Much, Much, Much, Much, Much, Much Worse Than You Probably Ever Have](https://www.yahoo.com/entertainment/22-people-embarrassed-themselves-much-181602897.html)
 - May 16 - [Top NATO commander says Russian troop numbers insufficient for Kharkiv breakthrough](https://www.yahoo.com/news/top-nato-commander-says-russian-175415490.html)
+- May 16 - [Texas judge orders new election after GOP lawsuit challenged 2022 election result in Houston area](https://www.yahoo.com/news/texas-judge-orders-election-gop-174606131.html)
 - May 16 - [Plane Breaks Up Mid-Air Over Tennessee, Killing 3 People Onboard](https://autos.yahoo.com/plane-breaks-mid-air-over-173039020.html)
-- May 16 - [Woman Tries Walking Out Front Door With Store’s Cash Register: Cops](https://www.yahoo.com/news/woman-tries-walking-front-door-172448637.html)
-- May 16 - [Democratic senator says ‘dazzling’ wife hid $400,000 stash of gold bars and cash in his home](https://www.yahoo.com/news/democratic-senator-says-dazzling-wife-171157186.html)
-- May 16 - [McDonald’s $5 menu is out – and people are not happy](https://finance.yahoo.com/news/mcdonald-5-menu-people-not-164106530.html)
 <!-- feed end -->
 
 ### Onstream
