@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [A second Trump presidency would target IEA's green focus, advisers say](https://www.yahoo.com/news/second-trump-presidency-target-ieas-100557617.html)
+- May 16 - [Suze Orman: Get an HSA — It’s ‘One of the Best Retirement Accounts Out There’](https://finance.yahoo.com/news/suze-orman-hsa-one-best-113214619.html)
 - May 16 - [George Stephanopoulos Brings House Down With First Thing He'd Ask At Biden-Trump Debate](https://www.yahoo.com/news/george-stephanopoulos-brings-house-down-100224747.html)
-- May 16 - [Construction has begun to reshape Nashville's massive East Bank. See the timeline and to what to expect](https://www.yahoo.com/news/construction-begun-reshape-nashvilles-massive-100220145.html)
+- May 16 - [Python hunters must humanely kill snakes: How Florida has cracked down in contests through the years](https://www.yahoo.com/news/python-hunters-must-humanely-kill-093000095.html)
+- May 16 - [Slain Microsoft exec's ex-wife wished 'good luck!' to hit man she allegedly paid to carry out murder: witness](https://www.yahoo.com/news/slain-microsoft-execs-ex-wife-080003993.html)
 - May 16 - [A Palestinian converted to Judaism. An Israeli soldier saw him as a threat and opened fire](https://www.yahoo.com/news/palestinian-converted-judaism-israeli-soldier-075435370.html)
-- May 16 - [Mary Trump Thinks She Knows Exactly Why Ivanka And Don Jr. Haven't Turned Up In Court](https://www.yahoo.com/news/mary-trump-thinks-she-knows-065400055.html)
 <!-- feed end -->
 
 ### Onstream
