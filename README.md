@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 15 - [GOP Sen. Mitt Romney says Biden should have pardoned Trump](https://www.yahoo.com/news/gop-sen-mitt-romney-says-202202446.html)
-- May 15 - [Will the ACC hold together or fall apart? 'The SEC and Big Ten have cut us open and they’re just watching us bleed out'](https://sports.yahoo.com/will-the-acc-hold-together-or-fall-apart-the-sec-and-big-ten-have-cut-us-open-and-theyre-just-watching-us-bleed-out-214121376.html)
-- May 15 - [Mock-Up Patriot System Sparks China-Ukraine Conspiracy Theories](https://www.yahoo.com/news/mock-patriot-system-sparks-china-212354522.html)
+- May 15 - [10 Signs You’ll Retire Comfortably in the Middle Class](https://finance.yahoo.com/news/10-signs-ll-retire-comfortably-160020141.html)
+- May 15 - [China's BYD just unleashed a hybrid pickup truck that has no rival in America — see the Shark](https://www.yahoo.com/news/chinas-byd-just-unleashed-hybrid-210954975.html)
+- May 15 - [Pathetic Trump Already Trying to Weasel Out of Debating Biden](https://www.yahoo.com/news/trump-already-trying-weasel-way-205314213.html)
 - May 15 - [The Mirage casino, which ushered in an era of Las Vegas Strip megaresorts in the '90s, is closing](https://www.yahoo.com/news/mirage-casino-ushered-era-las-204340878.html)
-- May 15 - [Semi crashes, spills fuel along I-75 in Dayton; Roadway closed for 10 hours](https://www.yahoo.com/news/lanes-closed-due-semi-crash-071648843.html)
+- May 15 - [Americans have been driving these Chinese-built cars for years — and Biden's tariffs likely won't impact them](https://autos.yahoo.com/americans-driving-chinese-built-cars-195812549.html)
 <!-- feed end -->
 
 ### Onstream
