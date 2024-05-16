@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 16 - [Costco Is Raising Prices: 3 Unexpected Items That Will Cost More Money This Year](https://finance.yahoo.com/news/costco-raising-prices-3-unexpected-210251308.html)
+- May 16 - [Archaeologists believe they've found site of Revolutionary War barracks in Virginia](https://www.yahoo.com/news/archaeologists-believe-theyve-found-revolutionary-204435746.html)
 - May 16 - [British Dancer, 26, Was Killed by BF in ‘Reckless Sex Game Gone Wrong’](https://www.yahoo.com/news/british-dancer-26-killed-bf-203914015.html)
-- May 16 - [Nvidia Dethroned: This AI Chip Stock Now Rules This Elite Screen](https://www.investors.com/etfs-and-funds/mutual-funds/best-mutual-funds-broadcom-dethrones-nvidia/?src=A00220&yptr=yahoo)
-- May 16 - ['$2 Million Is Nothing' Suze Orman Warns Don't Retire If You Don't Have At Least $5 Million Or $10 Million Saved](https://finance.yahoo.com/news/2-million-nothing-suze-orman-200011774.html)
-- May 16 - [Hertz's Used Teslas Are Glitchy, Damaged Nightmares](https://autos.yahoo.com/hertzs-used-teslas-glitchy-damaged-181500775.html)
-- May 16 - [Plane Breaks Up Mid-Air Over Tennessee, Killing 3 People Onboard](https://autos.yahoo.com/plane-breaks-mid-air-over-173039020.html)
+- May 16 - [Michael Cohen Schools Trump’s Dumb Lawyer](https://www.yahoo.com/news/michael-cohen-schools-trump-dumb-202646793.html)
+- May 16 - [First Neuralink Patient Alarmed as Device Starts Glitching](https://www.yahoo.com/tech/first-neuralink-patient-alarmed-device-195602199.html)
 <!-- feed end -->
 
 ### Onstream
