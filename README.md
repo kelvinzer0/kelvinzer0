@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Lawyer for family of slain US Air Force airman says video and calls show deputy went to wrong home](https://www.yahoo.com/news/lawyer-family-slain-us-air-163536814.html)
-- May 16 - [MAGA Rep’s Insane Biden Claim Is Too Much Even for Maria Bartiromo](https://www.yahoo.com/news/maga-rep-insane-biden-claim-163308950.html)
-- May 16 - [Stable Genius Trump Once Again Violates Gag Order in Incoherent Rant](https://www.yahoo.com/news/stable-genius-trump-once-again-161122500.html)
+- May 16 - [South Africa explains its position after latest top UN court hearing on Israel offensive in Gaza](https://www.yahoo.com/news/south-africa-explains-position-latest-175515154.html)
+- May 16 - [The New Bentley Continental GT Will Be the Marque’s Most Powerful Car Ever](https://www.yahoo.com/tech/bentley-continental-gt-marque-most-173000170.html)
+- May 16 - [Mel Tucker wins court fight against Brenda Tracy over release of text messages](https://www.yahoo.com/news/mel-tucker-wins-court-fight-161935266.html)
 - May 16 - [Lauren Boebert Admits Exactly Why Trump Stooges Descended on Trial](https://www.yahoo.com/news/lauren-boebert-admits-exactly-why-160340241.html)
-- May 16 - [National steakhouse returning to central Ohio with restaurant in former O’Charley’s](https://www.yahoo.com/news/national-steakhouse-returning-central-ohio-143000188.html)
+- May 16 - [Gorsuch, Alito break from conservatives on CFPB ruling](https://www.yahoo.com/news/gorsuch-alito-break-conservatives-cfpb-153537946.html)
 <!-- feed end -->
 
 ### Onstream
