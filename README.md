@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 16 - [Alphabet Just Announced Spectacular News for Nvidia Stock Investors](https://finance.yahoo.com/news/alphabet-just-announced-spectacular-news-133000730.html)
+- May 16 - [Aftermath of violence in New Caledonia as France rushes reinforcements to Pacific territory](https://www.yahoo.com/news/aftermath-violence-caledonia-france-rushes-125838325.html)
 - May 16 - [‘You guys are seriously broke’: Dave Ramsey delivers wake up call to Iowa couple making nearly $200,000](https://finance.yahoo.com/news/guys-seriously-broke-dave-ramsey-111400261.html)
-- May 16 - [US prisoners are being assigned dangerous jobs. But what happens if they are hurt or killed?](https://www.yahoo.com/news/us-prisoners-being-assigned-dangerous-100534055.html)
-- May 16 - [George Stephanopoulos Brings House Down With First Thing He'd Ask At Biden-Trump Debate](https://www.yahoo.com/news/george-stephanopoulos-brings-house-down-100224747.html)
-- May 16 - [Erie optometry worker accused of stealing money from practice. What police say she did](https://www.yahoo.com/news/erie-optometry-worker-accused-stealing-093441131.html)
-- May 16 - [Python hunters must humanely kill snakes: How Florida has cracked down in contests through the years](https://www.yahoo.com/news/python-hunters-must-humanely-kill-093000095.html)
+- May 16 - [Algerian man missing for more than 25 years ‘held captive by neighbour’](https://www.yahoo.com/news/algerian-man-missing-more-25-111246414.html)
+- May 16 - [Israel moves in on north Gaza Hamas stronghold, pounds Rafah without advancing](https://www.yahoo.com/news/israel-moves-north-gaza-hamas-101336596.html)
 <!-- feed end -->
 
 ### Onstream
