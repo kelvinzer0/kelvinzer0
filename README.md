@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [Suze Orman: Get an HSA — It’s ‘One of the Best Retirement Accounts Out There’](https://finance.yahoo.com/news/suze-orman-hsa-one-best-113214619.html)
+- May 16 - [‘You guys are seriously broke’: Dave Ramsey delivers wake up call to Iowa couple making nearly $200,000](https://finance.yahoo.com/news/guys-seriously-broke-dave-ramsey-111400261.html)
+- May 16 - [US prisoners are being assigned dangerous jobs. But what happens if they are hurt or killed?](https://www.yahoo.com/news/us-prisoners-being-assigned-dangerous-100534055.html)
 - May 16 - [George Stephanopoulos Brings House Down With First Thing He'd Ask At Biden-Trump Debate](https://www.yahoo.com/news/george-stephanopoulos-brings-house-down-100224747.html)
+- May 16 - [Erie optometry worker accused of stealing money from practice. What police say she did](https://www.yahoo.com/news/erie-optometry-worker-accused-stealing-093441131.html)
 - May 16 - [Python hunters must humanely kill snakes: How Florida has cracked down in contests through the years](https://www.yahoo.com/news/python-hunters-must-humanely-kill-093000095.html)
-- May 16 - [Slain Microsoft exec's ex-wife wished 'good luck!' to hit man she allegedly paid to carry out murder: witness](https://www.yahoo.com/news/slain-microsoft-execs-ex-wife-080003993.html)
-- May 16 - [A Palestinian converted to Judaism. An Israeli soldier saw him as a threat and opened fire](https://www.yahoo.com/news/palestinian-converted-judaism-israeli-soldier-075435370.html)
 <!-- feed end -->
 
 ### Onstream
