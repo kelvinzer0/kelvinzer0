@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 16 - [South Africa explains its position after latest top UN court hearing on Israel offensive in Gaza](https://www.yahoo.com/news/south-africa-explains-position-latest-175515154.html)
-- May 16 - [The New Bentley Continental GT Will Be the Marque’s Most Powerful Car Ever](https://www.yahoo.com/tech/bentley-continental-gt-marque-most-173000170.html)
-- May 16 - [Mel Tucker wins court fight against Brenda Tracy over release of text messages](https://www.yahoo.com/news/mel-tucker-wins-court-fight-161935266.html)
-- May 16 - [Lauren Boebert Admits Exactly Why Trump Stooges Descended on Trial](https://www.yahoo.com/news/lauren-boebert-admits-exactly-why-160340241.html)
-- May 16 - [Gorsuch, Alito break from conservatives on CFPB ruling](https://www.yahoo.com/news/gorsuch-alito-break-conservatives-cfpb-153537946.html)
+- May 16 - [Top NATO commander says Russian troop numbers insufficient for Kharkiv breakthrough](https://www.yahoo.com/news/top-nato-commander-says-russian-175415490.html)
+- May 16 - [Plane Breaks Up Mid-Air Over Tennessee, Killing 3 People Onboard](https://autos.yahoo.com/plane-breaks-mid-air-over-173039020.html)
+- May 16 - [Woman Tries Walking Out Front Door With Store’s Cash Register: Cops](https://www.yahoo.com/news/woman-tries-walking-front-door-172448637.html)
+- May 16 - [Democratic senator says ‘dazzling’ wife hid $400,000 stash of gold bars and cash in his home](https://www.yahoo.com/news/democratic-senator-says-dazzling-wife-171157186.html)
+- May 16 - [McDonald’s $5 menu is out – and people are not happy](https://finance.yahoo.com/news/mcdonald-5-menu-people-not-164106530.html)
 <!-- feed end -->
 
 ### Onstream
