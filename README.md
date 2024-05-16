@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 16 - [Mary Trump Thinks She Knows Exactly Why Ivanka And Don Jr. Haven't Turned Up In Court](https://www.yahoo.com/news/mary-trump-thinks-she-knows-065400055.html)
 - May 16 - [TSMC says no damage to its Arizona facilities after incident](https://finance.yahoo.com/news/tsmc-says-no-damage-arizona-025529478.html)
-- May 16 - [GOP congressman corrected after flubbing who signed the Constitution](https://www.yahoo.com/news/gop-congressman-corrected-flubbing-signed-015754107.html)
-- May 15 - [Pathetic Trump Already Trying to Weasel Out of Debating Biden](https://www.yahoo.com/news/trump-already-trying-weasel-way-205314213.html)
-- May 15 - [Americans have been driving these Chinese-built cars for years — and Biden's tariffs likely won't impact them](https://autos.yahoo.com/americans-driving-chinese-built-cars-195812549.html)
-- May 15 - [Twin Probes Suffer Thruster Glitch on the Way to Mercury](https://www.yahoo.com/tech/twin-probes-suffer-thruster-glitch-194500755.html)
+- May 15 - [Tesla must face vehicle owners' lawsuit over self-driving claims](https://finance.yahoo.com/news/tesla-must-face-vehicle-owners-225222673.html)
+- May 15 - [Alleged Porch Pirate Takes Package In Front of Homeowner](https://www.yahoo.com/news/alleged-porch-pirate-takes-package-224702127.html)
+- May 15 - [10 Signs You’ll Retire Comfortably in the Middle Class](https://finance.yahoo.com/news/10-signs-ll-retire-comfortably-160020141.html)
 <!-- feed end -->
 
 ### Onstream
