@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 16 - [British Dancer, 26, Was Killed by BF in ‘Reckless Sex Game Gone Wrong’](https://www.yahoo.com/news/british-dancer-26-killed-bf-203914015.html)
 - May 16 - [Nvidia Dethroned: This AI Chip Stock Now Rules This Elite Screen](https://www.investors.com/etfs-and-funds/mutual-funds/best-mutual-funds-broadcom-dethrones-nvidia/?src=A00220&yptr=yahoo)
-- May 16 - [22 People Who Embarrassed Themselves Much, Much, Much, Much, Much, Much, Much, Much Worse Than You Probably Ever Have](https://www.yahoo.com/entertainment/22-people-embarrassed-themselves-much-181602897.html)
-- May 16 - [Top NATO commander says Russian troop numbers insufficient for Kharkiv breakthrough](https://www.yahoo.com/news/top-nato-commander-says-russian-175415490.html)
-- May 16 - [Texas judge orders new election after GOP lawsuit challenged 2022 election result in Houston area](https://www.yahoo.com/news/texas-judge-orders-election-gop-174606131.html)
+- May 16 - ['$2 Million Is Nothing' Suze Orman Warns Don't Retire If You Don't Have At Least $5 Million Or $10 Million Saved](https://finance.yahoo.com/news/2-million-nothing-suze-orman-200011774.html)
+- May 16 - [Hertz's Used Teslas Are Glitchy, Damaged Nightmares](https://autos.yahoo.com/hertzs-used-teslas-glitchy-damaged-181500775.html)
 - May 16 - [Plane Breaks Up Mid-Air Over Tennessee, Killing 3 People Onboard](https://autos.yahoo.com/plane-breaks-mid-air-over-173039020.html)
 <!-- feed end -->
 
