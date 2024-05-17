@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Israeli army finds bodies of 3 hostages in Gaza killed at Oct. 7 music festival](https://www.yahoo.com/news/israeli-military-finds-bodies-3-153235148.html)
-- May 17 - [Scottie Scheffler releases statement after Friday morning arrest at PGA Championship](https://sports.yahoo.com/scottie-scheffler-releases-statement-friday-141619435.html)
-- May 17 - [Idiot Trump Wrecks Hush-Money Defense in Just Six Words](https://www.yahoo.com/news/idiot-trump-wrecks-hush-money-141401943.html)
-- May 17 - [Scottie Scheffler releases statement following arrest: 'There was a big misunderstanding of what I thought I was being asked to do'](https://sports.yahoo.com/scottie-scheffler-releases-statement-following-arrest-there-was-a-big-misunderstanding-of-what-i-thought-i-was-being-asked-to-do-140523316.html)
-- May 17 - [Apple could owe you up to $349 in the iPhone 7 settlement. The deadline to register is coming up.](https://finance.yahoo.com/news/apple-could-owe-349-iphone-170900759.html)
+- May 17 - [Greene called ‘bleach blonde bad-built butch body’ in House screaming match where ‘drinking was involved’](https://www.yahoo.com/news/greene-called-bleach-blonde-bad-174434071.html)
+- May 17 - [What's Going On With AMD Stock Friday?](https://finance.yahoo.com/news/whats-going-amd-stock-friday-165446005.html)
+- May 17 - [Death Valley visitor admits to damaging 113-year-old tower in an act of 'desperation'](https://www.yahoo.com/news/death-valley-visitor-admits-damaging-164733478.html)
+- May 17 - [Israel recovers bodies of three  hostages, including Shani Louk](https://www.yahoo.com/news/israel-recovers-bodies-three-dead-163748817.html)
+- May 17 - [Memphis man gets 80 years in prison for raping a woman a year before jogger’s killing](https://www.yahoo.com/news/memphis-man-gets-80-years-161542341.html)
 <!-- feed end -->
 
 ### Onstream
