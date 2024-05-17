@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [California's water tunnel to cost $20 billion. State officials say the benefits are worth it](https://www.yahoo.com/news/californias-water-tunnel-cost-20-000730877.html)
+- May 17 - [GOP Rep Files for Divorce as Wife Drops Cryptic Hint About His ‘Colleague’](https://www.yahoo.com/news/gop-rep-files-divorce-wife-005101473.html)
 - May 16 - [Women Are Sharing The Worst Things A Male Boss Or Colleague Said To Them](https://www.yahoo.com/lifestyle/women-sharing-worst-things-male-235102321.html)
 - May 16 - [Archaeologists believe they've found site of Revolutionary War barracks in Virginia](https://www.yahoo.com/news/archaeologists-believe-theyve-found-revolutionary-204435746.html)
 - May 16 - [British Dancer, 26, Was Killed by BF in ‘Reckless Sex Game Gone Wrong’](https://www.yahoo.com/news/british-dancer-26-killed-bf-203914015.html)
-- May 16 - [Applied Materials' third-quarter forecast disappoints investors, shares fall](https://finance.yahoo.com/news/applied-materials-forecasts-third-quarter-200654135.html)
+- May 16 - [Michael Cohen Schools Trump’s Dumb Lawyer](https://www.yahoo.com/news/michael-cohen-schools-trump-dumb-202646793.html)
 <!-- feed end -->
 
 ### Onstream
