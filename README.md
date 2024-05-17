@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 17 - [Massive Ukrainian drone attack on Crimea causes power cutoffs in Sevastopol](https://www.yahoo.com/news/massive-ukrainian-drone-attack-crimea-062852579.html)
 - May 17 - [Hezbollah introduces new weapons and tactics against Israel as war in Gaza drags on](https://www.yahoo.com/news/hezbollah-introduces-weapons-tactics-against-051724972.html)
 - May 17 - [Homeless California parolee dragged female jogger by ponytail on beach in attempted sexual assault: police](https://www.yahoo.com/news/homeless-california-parolee-dragged-female-020021581.html)
+- May 17 - [Parents say repeated bullying at Las Vegas-area school led to daughter’s suicide](https://www.yahoo.com/news/parents-repeated-bullying-las-vegas-012212980.html)
 - May 17 - [All lanes of northbound I-5 in Everett closed after fatal trooper involved shooting](https://www.yahoo.com/news/traffic-being-diverted-off-northbound-001210538.html)
-- May 17 - [California's water tunnel to cost $20 billion. State officials say the benefits are worth it](https://www.yahoo.com/news/californias-water-tunnel-cost-20-000730877.html)
-- May 16 - [Women Are Sharing The Times Their Male Boss Or Colleague Said Something Truly Inappropriate To Them](https://www.yahoo.com/lifestyle/women-sharing-worst-things-male-235102321.html)
 <!-- feed end -->
 
 ### Onstream
