@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Israeli military finds bodies of 3 hostages in Gaza, including Shani Louk, killed at music festival](https://www.yahoo.com/news/israeli-military-finds-bodies-3-153235148.html)
-- May 17 - [Trump and Melania attend Barron’s graduation after she failed to show at hush money trial](https://www.yahoo.com/news/trump-melania-attend-barron-graduation-143242531.html)
+- May 17 - [Israeli army finds bodies of 3 hostages in Gaza killed at Oct. 7 music festival](https://www.yahoo.com/news/israeli-military-finds-bodies-3-153235148.html)
 - May 17 - [Scottie Scheffler releases statement after Friday morning arrest at PGA Championship](https://sports.yahoo.com/scottie-scheffler-releases-statement-friday-141619435.html)
-- May 17 - [Hundreds of Salem-Keizer Public Schools employees terminated or reassigned](https://www.yahoo.com/news/hundreds-salem-keizer-public-schools-140108784.html)
-- May 17 - [Pursuit ends with suspect slamming head-on into cars on 405 Freeway](https://www.yahoo.com/news/police-pursuit-suspect-van-santa-120729987.html)
+- May 17 - [Idiot Trump Wrecks Hush-Money Defense in Just Six Words](https://www.yahoo.com/news/idiot-trump-wrecks-hush-money-141401943.html)
+- May 17 - [Scottie Scheffler releases statement following arrest: 'There was a big misunderstanding of what I thought I was being asked to do'](https://sports.yahoo.com/scottie-scheffler-releases-statement-following-arrest-there-was-a-big-misunderstanding-of-what-i-thought-i-was-being-asked-to-do-140523316.html)
+- May 17 - [Apple could owe you up to $349 in the iPhone 7 settlement. The deadline to register is coming up.](https://finance.yahoo.com/news/apple-could-owe-349-iphone-170900759.html)
 <!-- feed end -->
 
 ### Onstream
