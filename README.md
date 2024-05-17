@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 17 - [Departing Boeing CEO's board status faces Friday vote by shareholders](https://finance.yahoo.com/news/departing-boeing-ceos-board-status-050633395.html)
+- May 17 - [Majorie Taylor Greene Insults Jasmine Crockett, Sends Oversight Committee Hearing Into Chaos](https://www.yahoo.com/news/majorie-taylor-greene-insults-jasmine-033707344.html)
+- May 17 - [Homeless California parolee dragged female jogger by ponytail on beach in attempted sexual assault: police](https://www.yahoo.com/news/homeless-california-parolee-dragged-female-020021581.html)
 - May 17 - [All lanes of northbound I-5 in Everett closed after fatal trooper involved shooting](https://www.yahoo.com/news/traffic-being-diverted-off-northbound-001210538.html)
-- May 17 - [California's water tunnel to cost $20 billion. State officials say the benefits are worth it](https://www.yahoo.com/news/californias-water-tunnel-cost-20-000730877.html)
-- May 16 - [Women Are Sharing The Times Their Male Boss Or Colleague Said Something Truly Inappropriate To Them](https://www.yahoo.com/lifestyle/women-sharing-worst-things-male-235102321.html)
 - May 16 - [‘I'm an Endocrinologist, and This Is the #1 Type of Fruit (Yes, Fruit) I Recommend to Everyone With Diabetes'](https://www.yahoo.com/lifestyle/im-endocrinologist-1-type-fruit-232500088.html)
-- May 16 - [UNT Dallas student makes history as first grad to be accepted to medical school through JAMP](https://www.yahoo.com/news/unt-dallas-student-makes-history-214545968.html)
 <!-- feed end -->
 
 ### Onstream
