@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [2-year-old boy found in makeshift cage, covered in fecal matter; mother arrested](https://www.yahoo.com/news/2-old-boy-found-makeshift-191546872.html)
 - May 17 - [Exclusive: Sean ‘Diddy’ Combs seen physically assaulting Cassie Ventura in 2016 surveillance video obtained by CNN](https://www.yahoo.com/entertainment/exclusive-sean-diddy-combs-seen-170001146.html)
+- May 17 - [Barron Trump, 18, Graduates High School with Parents in Attendance: Photos](https://www.yahoo.com/entertainment/barron-trump-18-graduates-high-170918045.html)
+- May 17 - [Scientists Identify Seven Star Systems That May Be Hosting Alien Megastructures](https://www.yahoo.com/news/scientists-identify-seven-star-systems-160134658.html)
 - May 17 - [Israeli army finds bodies of 3 hostages in Gaza killed at Oct. 7 music festival](https://www.yahoo.com/news/israeli-military-finds-bodies-3-153235148.html)
 - May 17 - [Idiot Trump Wrecks Hush-Money Defense in Just Six Words](https://www.yahoo.com/news/idiot-trump-wrecks-hush-money-141401943.html)
-- May 17 - [“Don't tell me to calm down!” Jasmine Crockett gets into heated argument with Anna Paulina Luna at House hearing.](https://www.yahoo.com/news/dont-tell-calm-down-jasmine-122522929.html)
 <!-- feed end -->
 
 ### Onstream
