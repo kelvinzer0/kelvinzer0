@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Israel recovers bodies of three  hostages, including Shani Louk](https://www.yahoo.com/news/israel-recovers-bodies-three-dead-163748817.html)
-- May 17 - [Barron Trump, 18, Graduates High School with Parents in Attendance: Photos](https://www.yahoo.com/entertainment/barron-trump-18-graduates-high-170918045.html)
+- May 17 - [2-year-old boy found in makeshift cage, covered in fecal matter; mother arrested](https://www.yahoo.com/news/2-old-boy-found-makeshift-191546872.html)
 - May 17 - [Exclusive: Sean ‘Diddy’ Combs seen physically assaulting Cassie Ventura in 2016 surveillance video obtained by CNN](https://www.yahoo.com/entertainment/exclusive-sean-diddy-combs-seen-170001146.html)
-- May 17 - [Boeing shareholders approve CEO's compensation as company faces investigations, possible prosecution](https://finance.yahoo.com/news/boeing-shareholders-approve-ceo-compensation-164801983.html)
-- May 17 - [Memphis man gets 80 years in prison for raping a woman a year before jogger’s killing](https://www.yahoo.com/news/memphis-man-gets-80-years-161542341.html)
+- May 17 - [Israeli army finds bodies of 3 hostages in Gaza killed at Oct. 7 music festival](https://www.yahoo.com/news/israeli-military-finds-bodies-3-153235148.html)
+- May 17 - [Idiot Trump Wrecks Hush-Money Defense in Just Six Words](https://www.yahoo.com/news/idiot-trump-wrecks-hush-money-141401943.html)
+- May 17 - [“Don't tell me to calm down!” Jasmine Crockett gets into heated argument with Anna Paulina Luna at House hearing.](https://www.yahoo.com/news/dont-tell-calm-down-jasmine-122522929.html)
 <!-- feed end -->
 
 ### Onstream
