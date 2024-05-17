@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Greene called ‘bleach blonde bad-built butch body’ in House screaming match where ‘drinking was involved’](https://www.yahoo.com/news/greene-called-bleach-blonde-bad-174434071.html)
-- May 17 - [What's Going On With AMD Stock Friday?](https://finance.yahoo.com/news/whats-going-amd-stock-friday-165446005.html)
-- May 17 - [Death Valley visitor admits to damaging 113-year-old tower in an act of 'desperation'](https://www.yahoo.com/news/death-valley-visitor-admits-damaging-164733478.html)
 - May 17 - [Israel recovers bodies of three  hostages, including Shani Louk](https://www.yahoo.com/news/israel-recovers-bodies-three-dead-163748817.html)
+- May 17 - [Barron Trump, 18, Graduates High School with Parents in Attendance: Photos](https://www.yahoo.com/entertainment/barron-trump-18-graduates-high-170918045.html)
+- May 17 - [Exclusive: Sean ‘Diddy’ Combs seen physically assaulting Cassie Ventura in 2016 surveillance video obtained by CNN](https://www.yahoo.com/entertainment/exclusive-sean-diddy-combs-seen-170001146.html)
+- May 17 - [Boeing shareholders approve CEO's compensation as company faces investigations, possible prosecution](https://finance.yahoo.com/news/boeing-shareholders-approve-ceo-compensation-164801983.html)
 - May 17 - [Memphis man gets 80 years in prison for raping a woman a year before jogger’s killing](https://www.yahoo.com/news/memphis-man-gets-80-years-161542341.html)
 <!-- feed end -->
 
