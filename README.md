@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 17 - [Lake nears record water levels after years of severe drought: 'It's been a while since we've seen this'](https://www.yahoo.com/news/lake-nears-record-water-levels-001500060.html)
+- May 17 - [California's water tunnel to cost $20 billion. State officials say the benefits are worth it](https://www.yahoo.com/news/californias-water-tunnel-cost-20-000730877.html)
 - May 16 - [State College superintendent responds to reports of bullying after death of eighth-grade student](https://www.yahoo.com/news/state-college-superintendent-responds-reports-214702785.html)
-- May 16 - [The US is worried about an invasion, but China could take control of Taiwan without firing a shot, war experts warn](https://www.yahoo.com/news/us-worried-invasion-china-could-214601138.html)
-- May 16 - [Costco Is Raising Prices: 3 Unexpected Items That Will Cost More Money This Year](https://finance.yahoo.com/news/costco-raising-prices-3-unexpected-210251308.html)
 - May 16 - [Archaeologists believe they've found site of Revolutionary War barracks in Virginia](https://www.yahoo.com/news/archaeologists-believe-theyve-found-revolutionary-204435746.html)
 - May 16 - [British Dancer, 26, Was Killed by BF in ‘Reckless Sex Game Gone Wrong’](https://www.yahoo.com/news/british-dancer-26-killed-bf-203914015.html)
 <!-- feed end -->
