@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Majorie Taylor Greene Insults Jasmine Crockett, Sends Oversight Committee Hearing Into Chaos](https://www.yahoo.com/news/majorie-taylor-greene-insults-jasmine-033707344.html)
-- May 16 - [Costco Is Raising Prices: 3 Unexpected Items That Will Cost More Money This Year](https://finance.yahoo.com/news/costco-raising-prices-3-unexpected-210251308.html)
-- May 16 - [Archaeologists believe they've found site of Revolutionary War barracks in Virginia](https://www.yahoo.com/news/archaeologists-believe-theyve-found-revolutionary-204435746.html)
-- May 16 - [British Dancer, 26, Was Killed by BF in ‘Reckless Sex Game Gone Wrong’](https://www.yahoo.com/news/british-dancer-26-killed-bf-203914015.html)
-- May 16 - [Michael Cohen Schools Trump’s Dumb Lawyer](https://www.yahoo.com/news/michael-cohen-schools-trump-dumb-202646793.html)
+- May 17 - [All lanes of northbound I-5 in Everett closed after fatal trooper involved shooting](https://www.yahoo.com/news/traffic-being-diverted-off-northbound-001210538.html)
+- May 17 - [California's water tunnel to cost $20 billion. State officials say the benefits are worth it](https://www.yahoo.com/news/californias-water-tunnel-cost-20-000730877.html)
+- May 16 - [Women Are Sharing The Times Their Male Boss Or Colleague Said Something Truly Inappropriate To Them](https://www.yahoo.com/lifestyle/women-sharing-worst-things-male-235102321.html)
+- May 16 - [‘I'm an Endocrinologist, and This Is the #1 Type of Fruit (Yes, Fruit) I Recommend to Everyone With Diabetes'](https://www.yahoo.com/lifestyle/im-endocrinologist-1-type-fruit-232500088.html)
+- May 16 - [UNT Dallas student makes history as first grad to be accepted to medical school through JAMP](https://www.yahoo.com/news/unt-dallas-student-makes-history-214545968.html)
 <!-- feed end -->
 
 ### Onstream
