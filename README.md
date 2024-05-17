@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 17 - [Tesla chair sees challenges in getting shareholder vote for Musk's pay package, FT reports](https://finance.yahoo.com/news/tesla-chair-sees-challenges-getting-133144896.html)
 - May 17 - [Scottie Scheffler arrested before start of Round 2 of the PGA Championship](https://sports.yahoo.com/scottie-scheffler-handcuffed-police-start-113446037.html)
-- May 17 - [China develops revolutionary electric car battery that can charge in 10 minutes](https://www.yahoo.com/tech/china-develops-revolutionary-electric-car-113440354.html)
 - May 17 - [Biden's poll numbers are awful. America, brace for a Trump victory in November.](https://www.yahoo.com/news/bidens-poll-numbers-awful-america-091503041.html)
 - May 17 - [Authorities continue hunt for 2 people who committed 'archeological theft' at US national park](https://www.yahoo.com/news/authorities-hunt-2-people-committed-071737983.html)
 - May 17 - [Hezbollah introduces new weapons and tactics against Israel as war in Gaza drags on](https://www.yahoo.com/news/hezbollah-introduces-weapons-tactics-against-051724972.html)
