@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [Massive Ukrainian drone attack on Crimea causes power cutoffs in Sevastopol](https://www.yahoo.com/news/massive-ukrainian-drone-attack-crimea-062852579.html)
 - May 17 - [Hezbollah introduces new weapons and tactics against Israel as war in Gaza drags on](https://www.yahoo.com/news/hezbollah-introduces-weapons-tactics-against-051724972.html)
+- May 17 - [Taiwan is selling more to the US than China in major shift away from Beijing](https://finance.yahoo.com/news/taiwan-selling-more-us-china-040244020.html)
+- May 17 - [Majorie Taylor Greene Insults Jasmine Crockett, Sends Oversight Committee Hearing Into Chaos](https://www.yahoo.com/news/majorie-taylor-greene-insults-jasmine-033707344.html)
 - May 17 - [Homeless California parolee dragged female jogger by ponytail on beach in attempted sexual assault: police](https://www.yahoo.com/news/homeless-california-parolee-dragged-female-020021581.html)
-- May 17 - [Parents say repeated bullying at Las Vegas-area school led to daughter’s suicide](https://www.yahoo.com/news/parents-repeated-bullying-las-vegas-012212980.html)
-- May 17 - [All lanes of northbound I-5 in Everett closed after fatal trooper involved shooting](https://www.yahoo.com/news/traffic-being-diverted-off-northbound-001210538.html)
+- May 17 - [These 21 Stories From Women Who Were Dismissed By Their Doctors Will Make Your Blood Boil](https://www.yahoo.com/lifestyle/women-sharing-times-were-dismissed-015102854.html)
 <!-- feed end -->
 
 ### Onstream
