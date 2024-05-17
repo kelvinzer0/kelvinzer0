@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 17 - [Massive Ukrainian drone attack on Crimea causes power cutoffs in Sevastopol](https://www.yahoo.com/news/massive-ukrainian-drone-attack-crimea-062852579.html)
 - May 17 - [Hezbollah introduces new weapons and tactics against Israel as war in Gaza drags on](https://www.yahoo.com/news/hezbollah-introduces-weapons-tactics-against-051724972.html)
-- May 17 - [Taiwan is selling more to the US than China in major shift away from Beijing](https://finance.yahoo.com/news/taiwan-selling-more-us-china-040244020.html)
+- May 17 - [Energy company builds high-temperature concentrated solar systems for round-the-clock power: 'Trying to solve the problem of intermittency'](https://www.yahoo.com/tech/energy-company-builds-high-temperature-040000673.html)
 - May 17 - [Homeless California parolee dragged female jogger by ponytail on beach in attempted sexual assault: police](https://www.yahoo.com/news/homeless-california-parolee-dragged-female-020021581.html)
 - May 17 - [All lanes of northbound I-5 in Everett closed after fatal trooper involved shooting](https://www.yahoo.com/news/traffic-being-diverted-off-northbound-001210538.html)
-- May 16 - [‘I'm an Endocrinologist, and This Is the #1 Type of Fruit (Yes, Fruit) I Recommend to Everyone With Diabetes'](https://www.yahoo.com/lifestyle/im-endocrinologist-1-type-fruit-232500088.html)
 <!-- feed end -->
 
 ### Onstream
