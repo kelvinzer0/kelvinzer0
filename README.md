@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 17 - [Scottie Scheffler arrested by police ahead of second round at 2024 PGA Championship](https://sports.yahoo.com/report-scottie-scheffler-detained-police-111036800.html)
+- May 17 - [ODOT's Gateway to the Islands project in Port Clinton nears completion](https://www.yahoo.com/news/odots-gateway-islands-project-port-092045854.html)
+- May 17 - [Biden's poll numbers are awful. America, brace for a Trump victory in November.](https://www.yahoo.com/news/bidens-poll-numbers-awful-america-091503041.html)
+- May 17 - [Authorities continue hunt for 2 people who committed 'archeological theft' at US national park](https://www.yahoo.com/news/authorities-hunt-2-people-committed-071737983.html)
 - May 17 - [Hezbollah introduces new weapons and tactics against Israel as war in Gaza drags on](https://www.yahoo.com/news/hezbollah-introduces-weapons-tactics-against-051724972.html)
-- May 17 - [Taiwan is selling more to the US than China in major shift away from Beijing](https://finance.yahoo.com/news/taiwan-selling-more-us-china-040244020.html)
-- May 17 - [Majorie Taylor Greene Insults Jasmine Crockett, Sends Oversight Committee Hearing Into Chaos](https://www.yahoo.com/news/majorie-taylor-greene-insults-jasmine-033707344.html)
-- May 17 - [Homeless California parolee dragged female jogger by ponytail on beach in attempted sexual assault: police](https://www.yahoo.com/news/homeless-california-parolee-dragged-female-020021581.html)
-- May 17 - [These 21 Stories From Women Who Were Dismissed By Their Doctors Will Make Your Blood Boil](https://www.yahoo.com/lifestyle/women-sharing-times-were-dismissed-015102854.html)
 <!-- feed end -->
 
 ### Onstream
