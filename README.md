@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 18 - [For the first time, I see why reasonable people will vote for Donald Trump](https://www.yahoo.com/news/first-time-see-why-reasonable-151056410.html)
+- May 18 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
+- May 18 - [He’s been accepted to 122 colleges with $5.3 million in scholarships. His choice came down to his love of music](https://www.yahoo.com/news/accepted-122-colleges-5-3-133316335.html)
 - May 18 - [Jesus is their savior, Trump is their candidate. Ex-president's backers say he shares faith, values](https://www.yahoo.com/news/jesus-savior-trump-candidate-ex-123010933.html)
-- May 18 - [Vanguard 'nickel-and-dimes Grandma' after 49 years without junk fees](https://finance.yahoo.com/news/vanguard-nickel-and-dimes-grandma-after-49-years-without-junk-fees-100022222.html)
-- May 18 - [Charles Barkley reveals why nearly 80% of pro athletes go broke after retirement — how to avoid their mistakes](https://finance.yahoo.com/news/charles-barkley-reveals-why-nearly-095700400.html)
-- May 18 - [I worked with Michael Cohen and covered Donald Trump. Guess which man I trust](https://www.yahoo.com/news/worked-michael-cohen-covered-donald-094504102.html)
-- May 18 - ['Not paradise.' Cape Cod wealth a myth for some. Oscar Mayer heir to give a perspective](https://www.yahoo.com/news/not-paradise-cape-cod-wealth-085608696.html)
+- May 18 - [Archaeologists Found an ‘Anomaly’ Near the Pyramids That May Reveal an Ancient Portal](https://www.yahoo.com/news/archaeologists-found-anomaly-near-pyramids-113000821.html)
 <!-- feed end -->
 
 ### Onstream
