@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Exclusive: Sean ‘Diddy’ Combs seen physically assaulting Cassie Ventura in 2016 surveillance video obtained by CNN](https://www.yahoo.com/entertainment/exclusive-sean-diddy-combs-seen-170001146.html)
-- May 18 - [Father shoots 6-month-old child several times at Surprise home; officers in standoff, police say](https://www.yahoo.com/news/father-shoots-6-month-old-004201476.html)
 - May 18 - [Man shoots his 6-month-old baby multiple times at home near Phoenix, but child expected to survive](https://www.yahoo.com/news/man-shot-6-month-old-002738825.html)
-- May 18 - [Canadian teen says he was fined $580 at McDonald's drive-thru for using app; police dispute](https://www.yahoo.com/news/canadian-teen-says-fined-580-002235949.html)
-- May 17 - [Stock market's record-setting rebound may have further to go](https://finance.yahoo.com/news/stock-markets-record-setting-rebound-215230110.html)
+- May 17 - [Pittsburgh Zoo & Aquarium assessing damage after EF-1 tornado touched down in Highland Park](https://www.yahoo.com/news/pittsburgh-zoo-aquarium-assessing-damage-233609618.html)
+- May 17 - [Phoenix Police announce hundreds of arrests in five-day operation cracking down on violent crime](https://www.yahoo.com/news/phoenix-police-announce-hundreds-arrests-225421808.html)
+- May 17 - [Driver Crashes Into Several Cars During High-Speed Chase](https://www.yahoo.com/news/driver-crashes-several-cars-during-215002244.html)
+- May 17 - ['Absolute dinosaur' gator seen on Florida school path](https://www.yahoo.com/news/absolute-dinosaur-gator-seen-florida-203923467.html)
 <!-- feed end -->
 
 ### Onstream
