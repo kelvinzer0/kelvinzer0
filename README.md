@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Turning Trash Into Treasure: These Energy Stocks Are Betting Big on Converting Garbage Into Gas (and Cash)](https://finance.yahoo.com/news/turning-trash-treasure-energy-stocks-140500992.html)
-- May 18 - [Exclusive: Sean ‘Diddy’ Combs seen physically assaulting Cassie Ventura in 2016 surveillance video obtained by CNN](https://www.yahoo.com/entertainment/exclusive-sean-diddy-combs-seen-170001146.html)
-- May 18 - [He’s been accepted to 122 colleges with $5.3 million in scholarships. His choice came down to his love of music](https://www.yahoo.com/news/accepted-122-colleges-5-3-133316335.html)
 - May 18 - [Jesus is their savior, Trump is their candidate. Ex-president's backers say he shares faith, values](https://www.yahoo.com/news/jesus-savior-trump-candidate-ex-123010933.html)
+- May 18 - [Vanguard 'nickel-and-dimes Grandma' after 49 years without junk fees](https://finance.yahoo.com/news/vanguard-nickel-and-dimes-grandma-after-49-years-without-junk-fees-100022222.html)
 - May 18 - [Charles Barkley reveals why nearly 80% of pro athletes go broke after retirement — how to avoid their mistakes](https://finance.yahoo.com/news/charles-barkley-reveals-why-nearly-095700400.html)
+- May 18 - [I worked with Michael Cohen and covered Donald Trump. Guess which man I trust](https://www.yahoo.com/news/worked-michael-cohen-covered-donald-094504102.html)
+- May 18 - ['Not paradise.' Cape Cod wealth a myth for some. Oscar Mayer heir to give a perspective](https://www.yahoo.com/news/not-paradise-cape-cod-wealth-085608696.html)
 <!-- feed end -->
 
 ### Onstream
