@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 17 - [GOP fighting, 50-hour Democratic filibuster kill push to make amending Missouri Constitution harder](https://www.yahoo.com/news/gop-fighting-50-hour-democratic-183158491.html)
-- May 17 - [Barron Trump, 18, Graduates High School with Parents in Attendance: Photos](https://www.yahoo.com/entertainment/barron-trump-18-graduates-high-170918045.html)
-- May 17 - [Memphis man gets 80 years in prison for raping a woman a year before jogger’s killing](https://www.yahoo.com/news/memphis-man-gets-80-years-161542341.html)
-- May 17 - [Scientists Identify Seven Star Systems That May Be Hosting Alien Megastructures](https://www.yahoo.com/news/scientists-identify-seven-star-systems-160134658.html)
-- May 17 - [A New Study Says Quantum Entanglement May Be Reversible](https://www.yahoo.com/tech/study-says-quantum-entanglement-may-154500935.html)
+- May 18 - [Exclusive: Sean ‘Diddy’ Combs seen physically assaulting Cassie Ventura in 2016 surveillance video obtained by CNN](https://www.yahoo.com/entertainment/exclusive-sean-diddy-combs-seen-170001146.html)
+- May 18 - [Man shoots his 6-month-old baby multiple times at home near Phoenix, but child expected to survive](https://www.yahoo.com/news/man-shot-6-month-old-002738825.html)
+- May 17 - ['Absolute dinosaur' gator seen on Florida school path](https://www.yahoo.com/news/absolute-dinosaur-gator-seen-florida-203923467.html)
+- May 17 - [McDonald's Customers Are Not Lovin' a Major Change Coming to Restaurants: 'McRipoff'](https://www.yahoo.com/news/mcdonalds-customers-not-lovin-major-191539941.html)
+- May 17 - ['I don't think that's wise': Video captures herd of bison charging tourists in Yellowstone](https://www.yahoo.com/news/dont-think-thats-wise-video-184047436.html)
 <!-- feed end -->
 
 ### Onstream
