@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Man shoots his 6-month-old baby multiple times at home near Phoenix, but child expected to survive](https://www.yahoo.com/news/man-shot-6-month-old-002738825.html)
-- May 17 - [Pittsburgh Zoo & Aquarium assessing damage after EF-1 tornado touched down in Highland Park](https://www.yahoo.com/news/pittsburgh-zoo-aquarium-assessing-damage-233609618.html)
-- May 17 - [Phoenix Police announce hundreds of arrests in five-day operation cracking down on violent crime](https://www.yahoo.com/news/phoenix-police-announce-hundreds-arrests-225421808.html)
 - May 17 - [Driver Crashes Into Several Cars During High-Speed Chase](https://www.yahoo.com/news/driver-crashes-several-cars-during-215002244.html)
 - May 17 - ['Absolute dinosaur' gator seen on Florida school path](https://www.yahoo.com/news/absolute-dinosaur-gator-seen-florida-203923467.html)
+- May 17 - [Apple may release a completely new type of iPhone in 2025](https://www.yahoo.com/tech/apple-may-release-completely-type-200339282.html)
+- May 17 - [GOP fighting, 50-hour Democratic filibuster kill push to make amending Missouri Constitution harder](https://www.yahoo.com/news/gop-fighting-50-hour-democratic-183158491.html)
+- May 17 - [Scientists Identify Seven Star Systems That May Be Hosting Alien Megastructures](https://www.yahoo.com/news/scientists-identify-seven-star-systems-160134658.html)
 <!-- feed end -->
 
 ### Onstream
