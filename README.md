@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Abnormally hot summer expected for New York in latest NOAA forecast](https://www.yahoo.com/news/abnormally-hot-summer-expected-york-114318149.html)
-- May 18 - [Charlie Munger said he 'wouldn't be so rich' if others 'weren't so often wrong' — 5 deadly investing mistakes](https://finance.yahoo.com/news/charlie-munger-said-wouldnt-rich-114200276.html)
+- May 18 - [I’m a Self-Made Millionaire: 8 Reasons I Always Purchase and Never Rent or Lease](https://finance.yahoo.com/news/m-self-made-millionaire-8-130041984.html)
+- May 18 - [Jesus is their savior, Trump is their candidate. Ex-president's backers say he shares faith, values](https://www.yahoo.com/news/jesus-savior-trump-candidate-ex-123010933.html)
+- May 18 - [Exclusive: Sean ‘Diddy’ Combs seen physically assaulting Cassie Ventura in 2016 surveillance video obtained by CNN](https://www.yahoo.com/entertainment/exclusive-sean-diddy-combs-seen-170001146.html)
 - May 18 - [Vanguard 'nickel-and-dimes Grandma' after 49 years without junk fees](https://finance.yahoo.com/news/vanguard-nickel-and-dimes-grandma-after-49-years-without-junk-fees-100022222.html)
-- May 18 - [I worked with Michael Cohen and covered Donald Trump. Guess which man I trust](https://www.yahoo.com/news/worked-michael-cohen-covered-donald-094504102.html)
-- May 18 - [Derek Jeter's Greenwood Lake 'castle' back on the market at drastically reduced price](https://finance.yahoo.com/news/derek-jeters-greenwood-lake-castle-071015602.html)
+- May 18 - [Charles Barkley reveals why nearly 80% of pro athletes go broke after retirement — how to avoid their mistakes](https://finance.yahoo.com/news/charles-barkley-reveals-why-nearly-095700400.html)
 <!-- feed end -->
 
 ### Onstream
