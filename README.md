@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Man impersonates social worker, tries to kidnap child from Vernal home in premeditated plan, police say](https://www.yahoo.com/news/man-impersonates-social-worker-tries-171347315.html)
 - May 18 - [Biden Camp Has a Field Day With Wobbly Trump at Podium](https://www.yahoo.com/news/biden-camp-field-day-wobbly-165312701.html)
 - May 18 - [Exclusive: Sean ‘Diddy’ Combs seen physically assaulting Cassie Ventura in 2016 surveillance video obtained by CNN](https://www.yahoo.com/entertainment/exclusive-sean-diddy-combs-seen-170001146.html)
 - May 18 - [Thousands are expected to rally on Washington's National Mall in support of Palestinian rights](https://www.yahoo.com/news/thousands-expected-rally-washingtons-national-152338199.html)
-- May 18 - [Hubble View Of Runaway Black Hole Leaves Massive Streak Of Stars In Its Wake](https://www.yahoo.com/news/hubble-view-runaway-black-hole-210000149.html)
+- May 18 - [Arizona Attorney General confirms Rudy Guiliani served indictment after taunting prosecutors](https://www.yahoo.com/news/arizona-attorney-general-confirms-rudy-142848331.html)
+- May 18 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
 <!-- feed end -->
 
 ### Onstream
