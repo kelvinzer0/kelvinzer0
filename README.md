@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Canadian teen says he was fined $580 at McDonald's drive-thru for using app; police dispute](https://www.yahoo.com/news/canadian-teen-says-fined-580-002235949.html)
-- May 17 - [Nearly 50 vehicles towed, 40 arrests made in Northern California sideshow](https://www.yahoo.com/news/nearly-50-vehicles-towed-40-233048803.html)
-- May 17 - [Far-Right Loses Its Mind Over Sentencing of Paul Pelosi Attacker](https://www.yahoo.com/news/far-loses-mind-over-sentencing-215924882.html)
 - May 17 - [Driver Crashes Into Several Cars During High-Speed Chase](https://www.yahoo.com/news/driver-crashes-several-cars-during-215002244.html)
-- May 17 - [Chris Paul Was Offered $100K By His Agent When Going To The NBA, But Here’s Why His Parents Insisted That He Should Accept $25K](https://sports.yahoo.com/chris-paul-offered-100k-agent-200646783.html)
+- May 17 - [Apple may release a completely new type of iPhone in 2025](https://www.yahoo.com/tech/apple-may-release-completely-type-200339282.html)
+- May 17 - [2-year-old boy found in makeshift cage, covered in fecal matter; mother arrested](https://www.yahoo.com/news/2-old-boy-found-makeshift-191546872.html)
+- May 17 - [McDonald's Customers Are Not Lovin' a Major Change Coming to Restaurants: 'McRipoff'](https://www.yahoo.com/news/mcdonalds-customers-not-lovin-major-191539941.html)
+- May 17 - ['A gentle giant': Palm Beach family mourning loss of son in spearfishing accident](https://www.yahoo.com/news/gentle-giant-palm-beach-family-190703437.html)
 <!-- feed end -->
 
 ### Onstream
