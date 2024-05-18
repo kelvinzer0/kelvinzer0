@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 18 - [Recovery operations for man in Great Miami River conclude; Body not located](https://www.yahoo.com/news/recovery-operations-man-great-miami-212102088.html)
+- May 18 - [Person shot on Kennesaw State University’s campus, suspect ‘no longer’ a threat](https://www.yahoo.com/news/person-shot-kennesaw-state-university-204846948.html)
 - May 18 - [Signs of Alzheimer’s were everywhere. Then his brain improved](https://www.yahoo.com/news/signs-alzheimer-were-everywhere-then-060003462.html)
-- May 18 - [Billionaire CEO gifts 1,200 UMass grads 'envelopes full of cash' totaling about $1.2 million — but there's a catch](https://www.yahoo.com/news/billionaire-ceo-gifts-1-200-190629568.html)
-- May 18 - [People Who Regret Getting Cosmetic Work Done Are Sharing What Happened](https://www.yahoo.com/lifestyle/people-regret-getting-cosmetic-done-181602616.html)
-- May 18 - [Police to be given new powers to shut down pro-Palestinian protests](https://www.yahoo.com/news/police-given-powers-shut-down-170442041.html)
-- May 18 - [Biden Camp Has a Field Day With Wobbly Trump at Podium](https://www.yahoo.com/news/biden-camp-field-day-wobbly-165312701.html)
+- May 18 - [Watch An Arkansas Trooper Wreck Out Pitting A Mustang At 117 MPH](https://autos.yahoo.com/watch-arkansas-trooper-wreck-pitting-140900075.html)
+- May 18 - [Two Chiefs arrested in Kansas ahead of OTAs](https://sports.yahoo.com/two-chiefs-arrested-kansas-ahead-183546172.html)
 <!-- feed end -->
 
 ### Onstream
