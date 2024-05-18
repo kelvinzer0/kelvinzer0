@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Want Decades of Passive Income? 2 Stocks to Buy Now and Hold Forever](https://finance.yahoo.com/news/want-decades-passive-income-2-064700077.html)
-- May 18 - [Man shoots his 6-month-old baby multiple times at home near Phoenix, but child expected to survive](https://www.yahoo.com/news/man-shot-6-month-old-002738825.html)
-- May 17 - [McDonald's Customers Are Not Lovin' a Major Change Coming to Restaurants: 'McRipoff'](https://www.yahoo.com/news/mcdonalds-customers-not-lovin-major-191539941.html)
+- May 18 - [Prediction: 2 Stocks That'll Be Worth More Than Palantir 2 Years From Now](https://finance.yahoo.com/news/prediction-2-stocks-thatll-worth-083000416.html)
+- May 18 - ['Working on a men’s psychiatric ward drove me to the brink'](https://www.yahoo.com/lifestyle/psychiatric-ward-mental-health-080046866.html)
+- May 17 - [Chris Paul Was Offered $100K By His Agent When Going To The NBA, But Here’s Why His Parents Insisted That He Should Accept $25K](https://sports.yahoo.com/chris-paul-offered-100k-agent-200646783.html)
+- May 17 - [2-year-old boy found in makeshift cage, covered in fecal matter; mother arrested](https://www.yahoo.com/news/2-old-boy-found-makeshift-191546872.html)
 - May 17 - [GOP fighting, 50-hour Democratic filibuster kill push to make amending Missouri Constitution harder](https://www.yahoo.com/news/gop-fighting-50-hour-democratic-183158491.html)
-- May 17 - [Memphis man gets 80 years in prison for raping a woman a year before jogger’s killing](https://www.yahoo.com/news/memphis-man-gets-80-years-161542341.html)
 <!-- feed end -->
 
 ### Onstream
