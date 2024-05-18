@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Arizona and Pennsylvania voters think Biden will handle abortion issues better than Trump](https://www.yahoo.com/news/arizona-pennsylvania-voters-think-biden-090608688.html)
-- May 18 - [2 Millionaire-Maker Artificial Intelligence (AI) Stocks to Buy Right Now](https://finance.yahoo.com/news/2-millionaire-maker-artificial-intelligence-090200749.html)
-- May 18 - [Man shoots his 6-month-old baby multiple times at home near Phoenix, but child expected to survive](https://www.yahoo.com/news/man-shot-6-month-old-002738825.html)
-- May 18 - [Canadian teen says he was fined $580 at McDonald's drive-thru for using app; police dispute](https://www.yahoo.com/news/canadian-teen-says-fined-580-002235949.html)
-- May 17 - [Pittsburgh Zoo & Aquarium assessing damage after EF-1 tornado touched down in Highland Park](https://www.yahoo.com/news/pittsburgh-zoo-aquarium-assessing-damage-233609618.html)
+- May 18 - [Charles Barkley reveals why nearly 80% of pro athletes go broke after retirement — how to avoid their mistakes](https://finance.yahoo.com/news/charles-barkley-reveals-why-nearly-095700400.html)
+- May 18 - [I worked with Michael Cohen and covered Donald Trump. Guess which man I trust](https://www.yahoo.com/news/worked-michael-cohen-covered-donald-094504102.html)
+- May 18 - [Derek Jeter's Greenwood Lake 'castle' back on the market at drastically reduced price](https://finance.yahoo.com/news/derek-jeters-greenwood-lake-castle-071015602.html)
+- May 18 - [Man accused of sucker-punching Steve Buscemi on NYC street is arrested](https://www.yahoo.com/entertainment/man-accused-sucker-punching-steve-015944566.html)
+- May 18 - [New Orleans City Council staff member wakes to find home vandalized](https://www.yahoo.com/news/orleans-city-council-staff-member-013255673.html)
 <!-- feed end -->
 
 ### Onstream
