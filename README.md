@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [For the first time, I see why reasonable people will vote for Donald Trump](https://www.yahoo.com/news/first-time-see-why-reasonable-151056410.html)
-- May 18 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
-- May 18 - [He’s been accepted to 122 colleges with $5.3 million in scholarships. His choice came down to his love of music](https://www.yahoo.com/news/accepted-122-colleges-5-3-133316335.html)
-- May 18 - [Jesus is their savior, Trump is their candidate. Ex-president's backers say he shares faith, values](https://www.yahoo.com/news/jesus-savior-trump-candidate-ex-123010933.html)
-- May 18 - [Archaeologists Found an ‘Anomaly’ Near the Pyramids That May Reveal an Ancient Portal](https://www.yahoo.com/news/archaeologists-found-anomaly-near-pyramids-113000821.html)
+- May 18 - [Man impersonates social worker, tries to kidnap child from Vernal home in premeditated plan, police say](https://www.yahoo.com/news/man-impersonates-social-worker-tries-171347315.html)
+- May 18 - [Biden Camp Has a Field Day With Wobbly Trump at Podium](https://www.yahoo.com/news/biden-camp-field-day-wobbly-165312701.html)
+- May 18 - [Exclusive: Sean ‘Diddy’ Combs seen physically assaulting Cassie Ventura in 2016 surveillance video obtained by CNN](https://www.yahoo.com/entertainment/exclusive-sean-diddy-combs-seen-170001146.html)
+- May 18 - [Thousands are expected to rally on Washington's National Mall in support of Palestinian rights](https://www.yahoo.com/news/thousands-expected-rally-washingtons-national-152338199.html)
+- May 18 - [Hubble View Of Runaway Black Hole Leaves Massive Streak Of Stars In Its Wake](https://www.yahoo.com/news/hubble-view-runaway-black-hole-210000149.html)
 <!-- feed end -->
 
 ### Onstream
