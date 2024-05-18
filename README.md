@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Recovery operations for man in Great Miami River conclude; Body not located](https://www.yahoo.com/news/recovery-operations-man-great-miami-212102088.html)
-- May 18 - [Person shot on Kennesaw State University’s campus, suspect ‘no longer’ a threat](https://www.yahoo.com/news/person-shot-kennesaw-state-university-204846948.html)
+- May 18 - [Hanania Subaru of Orange Park giving Nemours over $37k donation](https://www.yahoo.com/news/hanania-subaru-orange-park-giving-214020132.html)
+- May 18 - [Apple will reportedly offer higher trade-in credit for old iPhones for the next two weeks](https://www.yahoo.com/news/apple-will-reportedly-offer-higher-trade-in-credit-for-old-iphones-for-the-next-two-weeks-205239618.html)
 - May 18 - [Signs of Alzheimer’s were everywhere. Then his brain improved](https://www.yahoo.com/news/signs-alzheimer-were-everywhere-then-060003462.html)
+- May 18 - [The case against Israel has just collapsed](https://www.yahoo.com/news/case-against-israel-just-collapsed-193000267.html)
 - May 18 - [Watch An Arkansas Trooper Wreck Out Pitting A Mustang At 117 MPH](https://autos.yahoo.com/watch-arkansas-trooper-wreck-pitting-140900075.html)
-- May 18 - [Two Chiefs arrested in Kansas ahead of OTAs](https://sports.yahoo.com/two-chiefs-arrested-kansas-ahead-183546172.html)
 <!-- feed end -->
 
 ### Onstream
