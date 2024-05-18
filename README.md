@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [The case against Israel has just collapsed](https://www.yahoo.com/news/case-against-israel-just-collapsed-193000267.html)
+- May 18 - [Signs of Alzheimer’s were everywhere. Then his brain improved](https://www.yahoo.com/news/signs-alzheimer-were-everywhere-then-060003462.html)
+- May 18 - [Billionaire CEO gifts 1,200 UMass grads 'envelopes full of cash' totaling about $1.2 million — but there's a catch](https://www.yahoo.com/news/billionaire-ceo-gifts-1-200-190629568.html)
+- May 18 - [People Who Regret Getting Cosmetic Work Done Are Sharing What Happened](https://www.yahoo.com/lifestyle/people-regret-getting-cosmetic-done-181602616.html)
 - May 18 - [Police to be given new powers to shut down pro-Palestinian protests](https://www.yahoo.com/news/police-given-powers-shut-down-170442041.html)
 - May 18 - [Biden Camp Has a Field Day With Wobbly Trump at Podium](https://www.yahoo.com/news/biden-camp-field-day-wobbly-165312701.html)
-- May 18 - [Arizona Attorney General confirms Rudy Guiliani served indictment after taunting prosecutors](https://www.yahoo.com/news/arizona-attorney-general-confirms-rudy-142848331.html)
-- May 18 - [I’m a Car Expert: Here are 3 Reasons I’d Never Buy a Used Car From a Dealership](https://finance.yahoo.com/news/m-car-expert-3-reasons-130034364.html)
 <!-- feed end -->
 
 ### Onstream
