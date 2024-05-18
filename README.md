@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 18 - [The case against Israel has just collapsed](https://www.yahoo.com/news/case-against-israel-just-collapsed-193000267.html)
+- May 18 - [Police to be given new powers to shut down pro-Palestinian protests](https://www.yahoo.com/news/police-given-powers-shut-down-170442041.html)
 - May 18 - [Biden Camp Has a Field Day With Wobbly Trump at Podium](https://www.yahoo.com/news/biden-camp-field-day-wobbly-165312701.html)
-- May 18 - [Exclusive: Sean ‘Diddy’ Combs seen physically assaulting Cassie Ventura in 2016 surveillance video obtained by CNN](https://www.yahoo.com/entertainment/exclusive-sean-diddy-combs-seen-170001146.html)
-- May 18 - [Thousands are expected to rally on Washington's National Mall in support of Palestinian rights](https://www.yahoo.com/news/thousands-expected-rally-washingtons-national-152338199.html)
 - May 18 - [Arizona Attorney General confirms Rudy Guiliani served indictment after taunting prosecutors](https://www.yahoo.com/news/arizona-attorney-general-confirms-rudy-142848331.html)
-- May 18 - [I’m an Average Middle-Class Retiree: Here’s How Much Savings I Have](https://finance.yahoo.com/news/m-average-middle-class-retiree-130020378.html)
+- May 18 - [I’m a Car Expert: Here are 3 Reasons I’d Never Buy a Used Car From a Dealership](https://finance.yahoo.com/news/m-car-expert-3-reasons-130034364.html)
 <!-- feed end -->
 
 ### Onstream
