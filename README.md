@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Roads closed, serious injuries reported in northwest Las Vegas crash](https://www.yahoo.com/news/roads-closed-serious-injuries-reported-014714838.html)
-- May 19 - [Trump at NRA convention floats a three-term presidency](https://www.yahoo.com/news/trump-nra-convention-floats-three-005609663.html)
+- May 19 - [Nashville crews working to rescue base jumper at rock quarry](https://www.yahoo.com/news/nashville-crews-working-rescue-jumper-023308214.html)
 - May 19 - [CNN political commentator Alice Stewart dies](https://www.yahoo.com/news/cnn-political-commentator-alice-stewart-223848521.html)
-- May 18 - [Apple will reportedly offer higher trade-in credit for old iPhones for the next two weeks](https://www.yahoo.com/news/apple-will-reportedly-offer-higher-trade-in-credit-for-old-iphones-for-the-next-two-weeks-205239618.html)
-- May 18 - [Opinion: I changed my mind about the strength of the prosecution’s case against Donald Trump. Here’s why](https://www.yahoo.com/news/opinion-changed-mind-strength-prosecution-200002948.html)
+- May 19 - [Trump at NRA convention floats a three-term presidency](https://www.yahoo.com/news/trump-nra-convention-floats-three-005609663.html)
+- May 19 - [Flooding turns North Carolina speedway into a swimming pool for NASCAR crews](https://sports.yahoo.com/flooding-turns-north-carolina-speedway-001028421.html)
+- May 18 - [6 Best New Cars for the Upper Middle Class](https://finance.yahoo.com/news/6-best-cars-upper-middle-110027145.html)
 <!-- feed end -->
 
 ### Onstream
