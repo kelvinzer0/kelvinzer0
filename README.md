@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 19 - [Speedier Wall Street Trades Are Putting Global Finance On Edge](https://finance.yahoo.com/news/speedier-wall-street-trades-putting-210020019.html)
+- May 19 - [Hunter hospitalized with ‘significant injuries’ after grizzly bear attack in British Columbia](https://www.yahoo.com/news/hunter-hospitalized-significant-injuries-grizzly-201116404.html)
 - May 19 - [What do we know so far about the mysterious crash of the helicopter carrying Iran's president?](https://www.yahoo.com/news/know-far-mysterious-crash-helicopter-192442169.html)
 - May 19 - [Arizona man sentenced to natural life in prison for the 2017 death of his wife, who was buried alive](https://www.yahoo.com/news/arizona-man-sentenced-natural-life-173601048.html)
 - May 19 - [Here's What Happens When You Eat Cashews Every Day](https://www.yahoo.com/lifestyle/heres-happens-eat-cashews-every-172518870.html)
-- May 19 - [Factbox-What happens if an Iranian president dies in office?](https://www.yahoo.com/news/factbox-happens-iranian-president-dies-172040688.html)
-- May 19 - [Stefanik Loses It When Fox News Host Reminds Her She Called Trump a ‘Whack Job’](https://www.yahoo.com/news/stefanik-loses-fox-news-host-161334016.html)
 <!-- feed end -->
 
 ### Onstream
