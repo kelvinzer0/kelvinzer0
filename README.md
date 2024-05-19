@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - May 19 - [Trump at NRA convention floats a three-term presidency](https://www.yahoo.com/news/trump-nra-convention-floats-three-005609663.html)
 - May 18 - [Rare fish found near Cannon Beach, 1st time in Oregon](https://www.yahoo.com/news/rare-fish-found-near-cannon-222252647.html)
 - May 18 - [Man repeatedly slams car into vehicle carrying a family of 5 in north Austin: documents](https://www.yahoo.com/news/man-repeatedly-slams-car-vehicle-215416160.html)
-- May 18 - [Apple will reportedly offer higher trade-in credit for old iPhones for the next two weeks](https://www.yahoo.com/news/apple-will-reportedly-offer-higher-trade-in-credit-for-old-iphones-for-the-next-two-weeks-205239618.html)
+- May 18 - [Opinion: I changed my mind about the strength of the prosecution’s case against Donald Trump. Here’s why](https://www.yahoo.com/news/opinion-changed-mind-strength-prosecution-200002948.html)
 <!-- feed end -->
 
 ### Onstream
