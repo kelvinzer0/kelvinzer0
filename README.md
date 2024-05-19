@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 19 - [Sentencing trial set to begin for Florida man who executed 5 women at a bank in 2019](https://www.yahoo.com/news/sentencing-trial-set-begin-florida-053018333.html)
+- May 19 - [Disneyland character and parade performers in California vote to join labor union](https://www.yahoo.com/news/disneyland-character-parade-performers-california-044909505.html)
 - May 19 - [CNN political commentator Alice Stewart dies](https://www.yahoo.com/news/cnn-political-commentator-alice-stewart-223848521.html)
 - May 19 - [Trump at NRA convention floats a three-term presidency](https://www.yahoo.com/news/trump-nra-convention-floats-three-005609663.html)
 - May 18 - [Rare fish found near Cannon Beach, 1st time in Oregon](https://www.yahoo.com/news/rare-fish-found-near-cannon-222252647.html)
-- May 18 - [Man repeatedly slams car into vehicle carrying a family of 5 in north Austin: documents](https://www.yahoo.com/news/man-repeatedly-slams-car-vehicle-215416160.html)
-- May 18 - [Opinion: I changed my mind about the strength of the prosecution’s case against Donald Trump. Here’s why](https://www.yahoo.com/news/opinion-changed-mind-strength-prosecution-200002948.html)
 <!-- feed end -->
 
 ### Onstream
