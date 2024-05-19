@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Man Utd co-owner Jim Ratcliffe says Brexit hasn't worked and voters will punish Tories](https://www.yahoo.com/news/man-utd-co-owner-jim-ratcliffe-brexit-tories-104430633.html)
-- May 19 - [Why Your 2025 Social Security COLA Could Be the Biggest Increase You'll Get for Years to Come](https://finance.yahoo.com/news/why-2025-social-security-cola-064300055.html)
-- May 19 - [CNN political commentator Alice Stewart dies](https://www.yahoo.com/news/cnn-political-commentator-alice-stewart-223848521.html)
-- May 18 - [Rare fish found near Cannon Beach, 1st time in Oregon](https://www.yahoo.com/news/rare-fish-found-near-cannon-222252647.html)
-- May 18 - [Apple will reportedly offer higher trade-in credit for old iPhones for the next two weeks](https://www.yahoo.com/news/apple-will-reportedly-offer-higher-trade-in-credit-for-old-iphones-for-the-next-two-weeks-205239618.html)
+- May 19 - [Farmington woman lives with daily reminder of May 15, 2023, shooting](https://www.yahoo.com/news/farmington-woman-lives-daily-reminder-110345771.html)
+- May 19 - [You Can Do Better Than the S&P 500. Buy This ETF Instead](https://finance.yahoo.com/news/better-p-500-buy-etf-075000482.html)
+- May 19 - [Is It Better to Take Social Security at 62, 67, or 70? An All-Encompassing Study Offers a Clear Answer.](https://finance.yahoo.com/news/better-social-security-62-67-074400400.html)
+- May 19 - [‘I have never in my lifetime seen as much anger’: how Ireland’s migration system was overwhelmed](https://www.yahoo.com/news/never-lifetime-seen-much-anger-050000664.html)
+- May 19 - [Scammers find new ways to steal private information, including card skimmers](https://www.yahoo.com/tech/scammers-ways-steal-private-information-032649093.html)
 <!-- feed end -->
 
 ### Onstream
