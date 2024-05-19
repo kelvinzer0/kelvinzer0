@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 19 - [CNN political commentator Alice Stewart dies](https://www.yahoo.com/news/cnn-political-commentator-alice-stewart-223848521.html)
-- May 19 - [Trump at NRA convention floats a three-term presidency](https://www.yahoo.com/news/trump-nra-convention-floats-three-005609663.html)
 - May 18 - [Rare fish found near Cannon Beach, 1st time in Oregon](https://www.yahoo.com/news/rare-fish-found-near-cannon-222252647.html)
+- May 18 - [Bicyclist, 66, dies after crashing into open car door on Kalakaua Ave.](https://www.yahoo.com/news/bicyclist-66-dies-crashing-open-214000760.html)
 - May 18 - [Apple will reportedly offer higher trade-in credit for old iPhones for the next two weeks](https://www.yahoo.com/news/apple-will-reportedly-offer-higher-trade-in-credit-for-old-iphones-for-the-next-two-weeks-205239618.html)
-- May 18 - [Opinion: I changed my mind about the strength of the prosecution’s case against Donald Trump. Here’s why](https://www.yahoo.com/news/opinion-changed-mind-strength-prosecution-200002948.html)
+- May 18 - [Signs of Alzheimer’s were everywhere. Then his brain improved](https://www.yahoo.com/news/signs-alzheimer-were-everywhere-then-060003462.html)
 <!-- feed end -->
 
 ### Onstream
