@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Thunderstorms, Wind and Climate Change: Here’s What to Know](https://www.yahoo.com/news/thunderstorms-wind-climate-change-know-143815714.html)
-- May 19 - [Qatari royal facing UK arrest after failing to turn up to court over $6bn debt](https://finance.yahoo.com/news/qatari-royal-facing-uk-arrest-141317937.html)
-- May 19 - [Boy, 14, dies and another critical after ‘playing on rope swing’ by River Tyne](https://www.yahoo.com/news/boy-14-dies-another-13-100147420.html)
-- May 19 - [Helicopter carrying Iran's President Raisi makes rough landing, Iranian media say](https://www.yahoo.com/news/helicopter-iranian-presidents-convoy-accident-125435509.html)
-- May 19 - [Helicopter carrying Iran's president suffers a 'hard landing,' state TV says without further details](https://www.yahoo.com/news/rescuers-trying-reach-helicopter-involved-124226701.html)
+- May 19 - [Power still out in much of Houston as heat rises; Kansas faces high wind risk](https://www.yahoo.com/news/power-still-much-houston-heat-155038331.html)
+- May 19 - [Diddy admits beating ex-girlfriend Cassie, says he's sorry, calls his actions 'inexcusable'](https://www.yahoo.com/entertainment/diddy-admits-beating-ex-girlfriend-153806597.html)
+- May 19 - [Trump appears to freeze for 30 seconds on stage during NRA speech](https://www.yahoo.com/news/trump-appears-freeze-30-seconds-153101840.html)
+- May 19 - [Fetterman responds to Ocasio-Cortez’s criticism: ‘That’s absurd’](https://www.yahoo.com/news/fetterman-responds-ocasio-cortez-criticism-135933483.html)
+- May 19 - [Ukraine bombs the port where Russia's Black Sea fleet moved to after Crimea got too risky for its warships, reports say](https://www.yahoo.com/news/ukraine-bombs-port-where-russias-131709765.html)
 <!-- feed end -->
 
 ### Onstream
