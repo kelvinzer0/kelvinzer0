@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [1 "Magnificent Seven" Stock Could Soar 1,027% or Plunge 87%, According to Select Wall Street Analysts. Who's Right?](https://finance.yahoo.com/news/1-magnificent-seven-stock-could-090600681.html)
+- May 19 - [Man Utd co-owner Jim Ratcliffe says Brexit hasn't worked and voters will punish Tories](https://www.yahoo.com/news/man-utd-co-owner-jim-ratcliffe-brexit-tories-104430633.html)
+- May 19 - [Why Your 2025 Social Security COLA Could Be the Biggest Increase You'll Get for Years to Come](https://finance.yahoo.com/news/why-2025-social-security-cola-064300055.html)
 - May 19 - [CNN political commentator Alice Stewart dies](https://www.yahoo.com/news/cnn-political-commentator-alice-stewart-223848521.html)
-- May 19 - [Roads closed, serious injuries reported in northwest Las Vegas crash](https://www.yahoo.com/news/roads-closed-serious-injuries-reported-014714838.html)
 - May 18 - [Rare fish found near Cannon Beach, 1st time in Oregon](https://www.yahoo.com/news/rare-fish-found-near-cannon-222252647.html)
 - May 18 - [Apple will reportedly offer higher trade-in credit for old iPhones for the next two weeks](https://www.yahoo.com/news/apple-will-reportedly-offer-higher-trade-in-credit-for-old-iphones-for-the-next-two-weeks-205239618.html)
 <!-- feed end -->
