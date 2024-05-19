@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Speedier Wall Street Trades Are Putting Global Finance On Edge](https://finance.yahoo.com/news/speedier-wall-street-trades-putting-210020019.html)
-- May 19 - [Hunter hospitalized with ‘significant injuries’ after grizzly bear attack in British Columbia](https://www.yahoo.com/news/hunter-hospitalized-significant-injuries-grizzly-201116404.html)
+- May 19 - [MSNBC’s Jen Psaki Calls Out Justice Samuel Alito’s Hypocrisy for Flying Upside-Down US Flag | Video](https://www.yahoo.com/news/msnbc-jen-psaki-calls-justice-225327184.html)
+- May 19 - [Spring reveals a mess on Anchorage's trails, and a vexing conversation about homelessness](https://www.yahoo.com/news/spring-reveals-mess-anchorages-trails-220600248.html)
+- May 19 - [Mother, stepfather of Madalina Cojocari set to face a judge on Monday](https://www.yahoo.com/news/mother-stepfather-madalina-cojocari-set-214005636.html)
+- May 19 - [The NHS needs wholescale reform, not tinkering](https://www.yahoo.com/news/nhs-needs-wholescale-reform-not-210000319.html)
 - May 19 - [What do we know so far about the mysterious crash of the helicopter carrying Iran's president?](https://www.yahoo.com/news/know-far-mysterious-crash-helicopter-192442169.html)
-- May 19 - [Arizona man sentenced to natural life in prison for the 2017 death of his wife, who was buried alive](https://www.yahoo.com/news/arizona-man-sentenced-natural-life-173601048.html)
-- May 19 - [Here's What Happens When You Eat Cashews Every Day](https://www.yahoo.com/lifestyle/heres-happens-eat-cashews-every-172518870.html)
 <!-- feed end -->
 
 ### Onstream
