@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 19 - [1 "Magnificent Seven" Stock Could Soar 1,027% or Plunge 87%, According to Select Wall Street Analysts. Who's Right?](https://finance.yahoo.com/news/1-magnificent-seven-stock-could-090600681.html)
 - May 19 - [CNN political commentator Alice Stewart dies](https://www.yahoo.com/news/cnn-political-commentator-alice-stewart-223848521.html)
-- May 19 - [Trump at NRA convention floats a three-term presidency](https://www.yahoo.com/news/trump-nra-convention-floats-three-005609663.html)
+- May 19 - [Roads closed, serious injuries reported in northwest Las Vegas crash](https://www.yahoo.com/news/roads-closed-serious-injuries-reported-014714838.html)
 - May 18 - [Rare fish found near Cannon Beach, 1st time in Oregon](https://www.yahoo.com/news/rare-fish-found-near-cannon-222252647.html)
-- May 18 - [Bicyclist, 66, dies after crashing into open car door on Kalakaua Ave.](https://www.yahoo.com/news/bicyclist-66-dies-crashing-open-214000760.html)
 - May 18 - [Apple will reportedly offer higher trade-in credit for old iPhones for the next two weeks](https://www.yahoo.com/news/apple-will-reportedly-offer-higher-trade-in-credit-for-old-iphones-for-the-next-two-weeks-205239618.html)
 <!-- feed end -->
 
