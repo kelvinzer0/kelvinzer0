@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 18 - [Hanania Subaru of Orange Park giving Nemours over $37k donation](https://www.yahoo.com/news/hanania-subaru-orange-park-giving-214020132.html)
-- May 18 - [Apple will reportedly offer higher trade-in credit for old iPhones for the next two weeks](https://www.yahoo.com/news/apple-will-reportedly-offer-higher-trade-in-credit-for-old-iphones-for-the-next-two-weeks-205239618.html)
+- May 19 - [Post Office: Fujitsu sacked top boss at height of Horizon scandal](https://finance.yahoo.com/news/post-office-fujitsu-sacked-top-004154184.html)
+- May 18 - [CNN political commentator Alice Stewart dies](https://www.yahoo.com/news/cnn-political-commentator-alice-stewart-223848521.html)
+- May 18 - [Opinion: I changed my mind about the strength of the prosecution’s case against Donald Trump. Here’s why](https://www.yahoo.com/news/opinion-changed-mind-strength-prosecution-200002948.html)
 - May 18 - [Signs of Alzheimer’s were everywhere. Then his brain improved](https://www.yahoo.com/news/signs-alzheimer-were-everywhere-then-060003462.html)
-- May 18 - [The case against Israel has just collapsed](https://www.yahoo.com/news/case-against-israel-just-collapsed-193000267.html)
-- May 18 - [Watch An Arkansas Trooper Wreck Out Pitting A Mustang At 117 MPH](https://autos.yahoo.com/watch-arkansas-trooper-wreck-pitting-140900075.html)
+- May 18 - [Police to be given new powers to shut down pro-Palestinian protests](https://www.yahoo.com/news/police-given-powers-shut-down-170442041.html)
 <!-- feed end -->
 
 ### Onstream
