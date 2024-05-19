@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 19 - [U.S. regulators reconsider capital hike for big banks, WSJ reports](https://finance.yahoo.com/news/u-regulators-reconsider-capital-hike-132323677.html)
+- May 19 - [US forces lose strategic African position in Niger](https://www.yahoo.com/news/us-forces-lose-strategic-african-125058276.html)
+- May 19 - [Helicopter carrying Iran's president suffers a 'hard landing,' state TV says without further details](https://www.yahoo.com/news/rescuers-trying-reach-helicopter-involved-124226701.html)
+- May 19 - [Under Armour is collapsing — And Kevin Plank has to take the blame](https://finance.yahoo.com/news/under-armour-is-collapsing--and-kevin-plank-has-to-take-the-blame-123052660.html)
 - May 19 - [Housing experts revise mortgage rate forecasts for remainder of 2024](https://finance.yahoo.com/news/housing-experts-revise-mortgage-rate-forecasts-for-remainder-of-2024-113354358.html)
-- May 19 - [Is It Better to Take Social Security at 62, 67, or 70? An All-Encompassing Study Offers a Clear Answer.](https://finance.yahoo.com/news/better-social-security-62-67-074400400.html)
-- May 19 - [CNN political commentator Alice Stewart dies](https://www.yahoo.com/news/cnn-political-commentator-alice-stewart-223848521.html)
-- May 19 - [Trump at NRA convention floats a 3-term presidency](https://www.yahoo.com/news/trump-nra-convention-floats-three-005609663.html)
-- May 18 - [Rare fish found near Cannon Beach, 1st time in Oregon](https://www.yahoo.com/news/rare-fish-found-near-cannon-222252647.html)
 <!-- feed end -->
 
 ### Onstream
