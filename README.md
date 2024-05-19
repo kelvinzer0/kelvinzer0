@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [Power still out in much of Houston as heat rises; Kansas faces high wind risk](https://www.yahoo.com/news/power-still-much-houston-heat-155038331.html)
-- May 19 - [Diddy admits beating ex-girlfriend Cassie, says he's sorry, calls his actions 'inexcusable'](https://www.yahoo.com/entertainment/diddy-admits-beating-ex-girlfriend-153806597.html)
+- May 19 - [US Senator Rubio says he won't accept election results if 'unfair'](https://www.yahoo.com/news/us-senator-rubio-says-wont-161044897.html)
+- May 19 - [Ukraine ups pressure on US to allow strikes in Russia: ‘This is insane’](https://www.yahoo.com/news/ukraine-ups-pressure-us-allow-160000987.html)
 - May 19 - [Trump appears to freeze for 30 seconds on stage during NRA speech](https://www.yahoo.com/news/trump-appears-freeze-30-seconds-153101840.html)
-- May 19 - [Fetterman responds to Ocasio-Cortez’s criticism: ‘That’s absurd’](https://www.yahoo.com/news/fetterman-responds-ocasio-cortez-criticism-135933483.html)
-- May 19 - [Ukraine bombs the port where Russia's Black Sea fleet moved to after Crimea got too risky for its warships, reports say](https://www.yahoo.com/news/ukraine-bombs-port-where-russias-131709765.html)
+- May 19 - [Park rangers seen enforcing San Diego’s ban on beachside classes](https://www.yahoo.com/news/park-rangers-seen-enforcing-san-152617124.html)
+- May 19 - [Crockett offering ‘bleach blonde’ t-shirts following spat with Greene](https://www.yahoo.com/news/crockett-offering-bleach-blonde-t-152111899.html)
 <!-- feed end -->
 
 ### Onstream
