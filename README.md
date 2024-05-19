@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 19 - [Boy, 14, dies and another critical after ‘playing on rope swing’ by River Tyne](https://www.yahoo.com/news/boy-14-dies-another-13-100147420.html)
+- May 19 - [LAPD officer injured when she was ejected from patrol car after it was stolen](https://www.yahoo.com/news/lapd-officer-injured-she-ejected-174503849.html)
+- May 19 - [Blue Origin launch is 'life-changing experience' for former NASA candidate](https://www.yahoo.com/tech/blue-origin-launch-life-changing-174255776.html)
+- May 19 - [Factbox-What happens if an Iranian president dies in office?](https://www.yahoo.com/news/factbox-happens-iranian-president-dies-172040688.html)
 - May 19 - [US Senator Rubio says he won't accept election results if 'unfair'](https://www.yahoo.com/news/us-senator-rubio-says-wont-161044897.html)
-- May 19 - [Ukraine ups pressure on US to allow strikes in Russia: ‘This is insane’](https://www.yahoo.com/news/ukraine-ups-pressure-us-allow-160000987.html)
-- May 19 - [Trump appears to freeze for 30 seconds on stage during NRA speech](https://www.yahoo.com/news/trump-appears-freeze-30-seconds-153101840.html)
-- May 19 - [Park rangers seen enforcing San Diego’s ban on beachside classes](https://www.yahoo.com/news/park-rangers-seen-enforcing-san-152617124.html)
-- May 19 - [Crockett offering ‘bleach blonde’ t-shirts following spat with Greene](https://www.yahoo.com/news/crockett-offering-bleach-blonde-t-152111899.html)
 <!-- feed end -->
 
 ### Onstream
