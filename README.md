@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [U.S. regulators reconsider capital hike for big banks, WSJ reports](https://finance.yahoo.com/news/u-regulators-reconsider-capital-hike-132323677.html)
-- May 19 - [US forces lose strategic African position in Niger](https://www.yahoo.com/news/us-forces-lose-strategic-african-125058276.html)
+- May 19 - [Thunderstorms, Wind and Climate Change: Here’s What to Know](https://www.yahoo.com/news/thunderstorms-wind-climate-change-know-143815714.html)
+- May 19 - [Qatari royal facing UK arrest after failing to turn up to court over $6bn debt](https://finance.yahoo.com/news/qatari-royal-facing-uk-arrest-141317937.html)
+- May 19 - [Boy, 14, dies and another critical after ‘playing on rope swing’ by River Tyne](https://www.yahoo.com/news/boy-14-dies-another-13-100147420.html)
+- May 19 - [Helicopter carrying Iran's President Raisi makes rough landing, Iranian media say](https://www.yahoo.com/news/helicopter-iranian-presidents-convoy-accident-125435509.html)
 - May 19 - [Helicopter carrying Iran's president suffers a 'hard landing,' state TV says without further details](https://www.yahoo.com/news/rescuers-trying-reach-helicopter-involved-124226701.html)
-- May 19 - [Under Armour is collapsing — And Kevin Plank has to take the blame](https://finance.yahoo.com/news/under-armour-is-collapsing--and-kevin-plank-has-to-take-the-blame-123052660.html)
-- May 19 - [Housing experts revise mortgage rate forecasts for remainder of 2024](https://finance.yahoo.com/news/housing-experts-revise-mortgage-rate-forecasts-for-remainder-of-2024-113354358.html)
 <!-- feed end -->
 
 ### Onstream
