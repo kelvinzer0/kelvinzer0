@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 19 - [Boy, 14, dies and another critical after ‘playing on rope swing’ by River Tyne](https://www.yahoo.com/news/boy-14-dies-another-13-100147420.html)
-- May 19 - [LAPD officer injured when she was ejected from patrol car after it was stolen](https://www.yahoo.com/news/lapd-officer-injured-she-ejected-174503849.html)
-- May 19 - [Blue Origin launch is 'life-changing experience' for former NASA candidate](https://www.yahoo.com/tech/blue-origin-launch-life-changing-174255776.html)
+- May 19 - [Arizona man sentenced to natural life in prison for the 2017 death of his wife, who was buried alive](https://www.yahoo.com/news/arizona-man-sentenced-natural-life-173601048.html)
+- May 19 - [Here's What Happens When You Eat Cashews Every Day](https://www.yahoo.com/lifestyle/heres-happens-eat-cashews-every-172518870.html)
 - May 19 - [Factbox-What happens if an Iranian president dies in office?](https://www.yahoo.com/news/factbox-happens-iranian-president-dies-172040688.html)
-- May 19 - [US Senator Rubio says he won't accept election results if 'unfair'](https://www.yahoo.com/news/us-senator-rubio-says-wont-161044897.html)
+- May 19 - [Stefanik Loses It When Fox News Host Reminds Her She Called Trump a ‘Whack Job’](https://www.yahoo.com/news/stefanik-loses-fox-news-host-161334016.html)
 <!-- feed end -->
 
 ### Onstream
