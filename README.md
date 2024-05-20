@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Ex-Red Sox player arrested in undercover sting after arranging to meet girl for sex, sheriff says](https://sports.yahoo.com/ex-red-sox-player-arrested-183425524.html)
-- May 20 - [Zelensky says Western allies making decisions over Ukraine military aid ‘a year late’](https://www.yahoo.com/news/zelensky-says-western-allies-making-165310267.html)
-- May 20 - [New study focuses on what happens if you stay on weight loss drug Wegovy for years](https://www.yahoo.com/news/study-focuses-happens-stay-weight-182642553.html)
-- May 20 - [Cognitive Decline? Trump Melts Down After Reports on Freezing Episode](https://www.yahoo.com/news/cognitive-decline-trump-melts-down-165224307.html)
-- May 20 - [Greene posts workout video after Crockett fundraising crack](https://www.yahoo.com/news/greene-posts-workout-video-crockett-164616794.html)
+- May 20 - [Netanyahu denounces bid to arrest him over Gaza war](https://www.yahoo.com/news/netanyahu-arrest-warrant-request-outrageous-192156526.html)
+- May 20 - [Economic data setting up market for 'great scenario': Yardeni](https://finance.yahoo.com/video/economic-data-setting-market-great-195340505.html)
+- May 20 - [3 Things at Five Below That Are Cheaper Than at Dollar Tree](https://finance.yahoo.com/news/3-things-five-below-cheaper-185725305.html)
+- May 20 - [We finally know when Apple may release a second-gen AirTag](https://www.yahoo.com/tech/finally-know-apple-may-release-185701609.html)
+- May 20 - [Ex-Red Sox player arrested in undercover sting after arranging to meet girl for sex, sheriff says](https://www.yahoo.com/news/ex-red-sox-player-arrested-183425524.html)
 <!-- feed end -->
 
 ### Onstream
