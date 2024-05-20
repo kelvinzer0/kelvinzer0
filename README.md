@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Lamborghini Just Confirmed Its Next Supercar Will Have a Twin-Turbo V-8](https://www.yahoo.com/tech/lamborghini-just-confirmed-next-supercar-173000538.html)
+- May 20 - [Ex-Red Sox player arrested in undercover sting after arranging to meet girl for sex, sheriff says](https://sports.yahoo.com/ex-red-sox-player-arrested-183425524.html)
+- May 20 - [Zelensky says Western allies making decisions over Ukraine military aid ‘a year late’](https://www.yahoo.com/news/zelensky-says-western-allies-making-165310267.html)
+- May 20 - [New study focuses on what happens if you stay on weight loss drug Wegovy for years](https://www.yahoo.com/news/study-focuses-happens-stay-weight-182642553.html)
+- May 20 - [Cognitive Decline? Trump Melts Down After Reports on Freezing Episode](https://www.yahoo.com/news/cognitive-decline-trump-melts-down-165224307.html)
 - May 20 - [Greene posts workout video after Crockett fundraising crack](https://www.yahoo.com/news/greene-posts-workout-video-crockett-164616794.html)
-- May 20 - [Biden Says He Was Still VP During COVID and Obama Sent Him to ‘Fix It’](https://www.yahoo.com/news/biden-says-still-vp-during-162400706.html)
-- May 20 - [This is how police are now enforcing Georgia’s news squatter laws following Channel 2 investigations](https://www.yahoo.com/news/police-now-enforcing-georgia-news-160503540.html)
-- May 20 - [Crashed Iranian helicopter was US-made and may be so old it predates the 1979 Islamic Revolution](https://www.yahoo.com/news/crashed-iranian-helicopter-us-made-160444500.html)
 <!-- feed end -->
 
 ### Onstream
