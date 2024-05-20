@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Trading stocks all day and all night might be an 'inevitability' for investors](https://finance.yahoo.com/news/trading-stocks-all-day-and-all-night-might-be-an-inevitability-for-investors-140152597.html)
-- May 20 - [Eversource in New Bedford controls Southeastern MA's electricity. Here's how it works.](https://www.yahoo.com/tech/eversource-bedford-controls-southeastern-mas-080308316.html)
-- May 20 - [Iran's Foreign Minister Hossein Amirabdollahian, a hard-line diplomat, dies in helicopter crash](https://www.yahoo.com/news/irans-foreign-minister-hossein-amirabdollahian-045226890.html)
-- May 20 - [After the only hospital in town closed, a North Carolina city directs its ire at politicians](https://www.yahoo.com/news/only-hospital-town-closed-north-042520542.html)
-- May 20 - [Who is Mohammad Mokhber, the man set to become Iran's interim president?](https://www.yahoo.com/news/factbox-mohammad-mokhber-irans-interim-041516538.html)
+- May 20 - [Sub wars heating up as a nationwide sandwich chain readies 5 new Jacksonville-area shops](https://www.yahoo.com/news/sub-wars-heating-nationwide-sandwich-092608669.html)
+- May 20 - [Apple slashes iPhone prices in China amid fierce Huawei competition](https://finance.yahoo.com/news/apple-slashes-iphone-prices-china-092211486.html)
+- May 20 - [Grassroots School buried under trees, buildings destroyed, but its community has hope](https://www.yahoo.com/news/grassroots-school-buried-under-trees-090914995.html)
+- May 20 - [US pediatricians group reverses decades-old ban on breastfeeding for those with HIV](https://www.yahoo.com/news/us-pediatricians-group-reverses-decades-040302800.html)
+- May 20 - [Iran's president, foreign minister and others found dead at helicopter crash site](https://www.yahoo.com/news/official-says-rescuers-see-helicopter-023159433.html)
 <!-- feed end -->
 
 ### Onstream
