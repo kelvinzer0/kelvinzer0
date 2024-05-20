@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - ['Embarrassing' Tim Scott Gets Stark Reminder After Latest Toadying To Trump](https://www.yahoo.com/news/embarrassing-tim-scott-gets-stark-105148814.html)
-- May 20 - [The Latest | Israeli defense minister says the military will expand operations into Rafah](https://www.yahoo.com/news/latest-israeli-defense-minister-says-105103023.html)
-- May 20 - [Russia-Ukraine war – latest: Putin loses more than 1,500 soldiers in faltering Kharkiv offensive](https://www.yahoo.com/news/russia-ukraine-war-latest-putin-035046932.html)
-- May 20 - [The 5.5 Billion Reasons Why Ford Just Made a Smart Decision for Investors](https://finance.yahoo.com/news/5-5-billion-reasons-why-100000478.html)
-- May 20 - [Puppy Abandoned Tied to Pole in Parking Lot in Pennsylvania](https://www.yahoo.com/lifestyle/puppy-abandoned-tied-pole-parking-053926211.html)
+- May 20 - [Trump Hilariously Claims He ‘Doesn’t Freeze!’ in Viral Gaffe Pushback](https://www.yahoo.com/news/trump-hilariously-claims-doesn-t-113449359.html)
+- May 20 - [Inquiry slams successive UK governments for failures that killed thousands in infected blood scandal](https://www.yahoo.com/news/report-due-uks-infected-blood-104530767.html)
+- May 20 - [Kansas City mafia loved to eat at this Italian restaurant. Until the FBI bugged it](https://www.yahoo.com/news/kansas-city-mafia-loved-eat-103000944.html)
+- May 20 - [This Florida mom’s lottery win turned to ‘absolute nightmare’ after the state snatched her winnings](https://finance.yahoo.com/news/florida-mom-lottery-win-turned-100500496.html)
+- May 20 - [Ask an Advisor: I Don't Need Them ‘Dumped Into My Checking Account.' What Can I Do With RMDs?](https://finance.yahoo.com/news/ask-advisor-dont-them-dumped-154734843.html)
 <!-- feed end -->
 
 ### Onstream
