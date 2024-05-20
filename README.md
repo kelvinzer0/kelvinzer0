@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [After the only hospital in town closed, a North Carolina city directs its ire at politicians](https://www.yahoo.com/news/only-hospital-town-closed-north-042520542.html)
 - May 20 - [Who is Mohammad Mokhber, the man set to become Iran's interim president?](https://www.yahoo.com/news/factbox-mohammad-mokhber-irans-interim-041516538.html)
 - May 20 - [US pediatricians group reverses decades-old ban on breastfeeding for those with HIV](https://www.yahoo.com/news/us-pediatricians-group-reverses-decades-040302800.html)
+- May 20 - [19 Of The Funniest Signs From The Past Week That'll Make You Wonder Why Male Comedians Even Try](https://www.yahoo.com/entertainment/19-funniest-signs-past-week-034602749.html)
 - May 20 - [Iran's president, foreign minister and others found dead at helicopter crash site, state media says](https://www.yahoo.com/news/official-says-rescuers-see-helicopter-023159433.html)
 - May 19 - [Man shot several times at stop light in drive-by shooting on Jacksonville’s Westside](https://www.yahoo.com/news/shooting-investigation-underway-jacksonville-westside-212124586.html)
 <!-- feed end -->
