@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Sub wars heating up as a nationwide sandwich chain readies 5 new Jacksonville-area shops](https://www.yahoo.com/news/sub-wars-heating-nationwide-sandwich-092608669.html)
-- May 20 - [Apple slashes iPhone prices in China amid fierce Huawei competition](https://finance.yahoo.com/news/apple-slashes-iphone-prices-china-092211486.html)
-- May 20 - [Grassroots School buried under trees, buildings destroyed, but its community has hope](https://www.yahoo.com/news/grassroots-school-buried-under-trees-090914995.html)
-- May 20 - [US pediatricians group reverses decades-old ban on breastfeeding for those with HIV](https://www.yahoo.com/news/us-pediatricians-group-reverses-decades-040302800.html)
-- May 20 - [Iran's president, foreign minister and others found dead at helicopter crash site](https://www.yahoo.com/news/official-says-rescuers-see-helicopter-023159433.html)
+- May 20 - ['Embarrassing' Tim Scott Gets Stark Reminder After Latest Toadying To Trump](https://www.yahoo.com/news/embarrassing-tim-scott-gets-stark-105148814.html)
+- May 20 - [The Latest | Israeli defense minister says the military will expand operations into Rafah](https://www.yahoo.com/news/latest-israeli-defense-minister-says-105103023.html)
+- May 20 - [Russia-Ukraine war – latest: Putin loses more than 1,500 soldiers in faltering Kharkiv offensive](https://www.yahoo.com/news/russia-ukraine-war-latest-putin-035046932.html)
+- May 20 - [The 5.5 Billion Reasons Why Ford Just Made a Smart Decision for Investors](https://finance.yahoo.com/news/5-5-billion-reasons-why-100000478.html)
+- May 20 - [Puppy Abandoned Tied to Pole in Parking Lot in Pennsylvania](https://www.yahoo.com/lifestyle/puppy-abandoned-tied-pole-parking-053926211.html)
 <!-- feed end -->
 
 ### Onstream
