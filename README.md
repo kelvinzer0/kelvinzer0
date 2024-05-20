@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Local TV Station Catches Donald Trump In A Lie About 'Never Coming Back'](https://www.yahoo.com/news/local-tv-station-catches-donald-063144313.html)
-- May 20 - [After the only hospital in town closed, a North Carolina city directs its ire at politicians](https://www.yahoo.com/news/only-hospital-town-closed-north-042520542.html)
+- May 20 - [Russia-Ukraine war – latest: Putin loses more than 1,500 soldiers in faltering Kharkiv offensive](https://www.yahoo.com/news/russia-ukraine-war-latest-putin-035046932.html)
 - May 20 - [Who is Mohammad Mokhber, the man set to become Iran's interim president?](https://www.yahoo.com/news/factbox-mohammad-mokhber-irans-interim-041516538.html)
 - May 20 - [US pediatricians group reverses decades-old ban on breastfeeding for those with HIV](https://www.yahoo.com/news/us-pediatricians-group-reverses-decades-040302800.html)
-- May 20 - [Iran's president, foreign minister and others found dead at helicopter crash site, state media says](https://www.yahoo.com/news/official-says-rescuers-see-helicopter-023159433.html)
+- May 20 - [Iran's president, foreign minister and others found dead at helicopter crash site](https://www.yahoo.com/news/official-says-rescuers-see-helicopter-023159433.html)
+- May 19 - [Multiple vehicles damaged by fire in Nashville Shores parking lot](https://www.yahoo.com/news/multiple-vehicles-damaged-fire-nashville-235735653.html)
 <!-- feed end -->
 
 ### Onstream
