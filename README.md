@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Russia-Ukraine war – latest: Putin loses more than 1,500 soldiers in faltering Kharkiv offensive](https://www.yahoo.com/news/russia-ukraine-war-latest-putin-035046932.html)
-- May 20 - [Trump, Biden spar over whether Trump's 30-second pause was intentional or a 'glitch'](https://www.yahoo.com/news/trump-biden-spar-over-whether-144055876.html)
-- May 20 - [Experts find cardiometabolic risk signs in kids young as 3. Here is the food they say is linked](https://www.yahoo.com/news/kids-ultraprocessed-food-consumption-may-150002553.html)
-- May 20 - [Secretive Hamas military chief masterminded Oct 7 strike on Israel](https://www.yahoo.com/news/secretive-hamas-military-chief-masterminded-134502384.html)
-- May 20 - [Airplane passenger uproar as woman with baby on her lap should be 'ashamed' for bothering others](https://www.yahoo.com/lifestyle/airplane-passenger-uproar-woman-baby-120827879.html)
+- May 20 - [Lamborghini Just Confirmed Its Next Supercar Will Have a Twin-Turbo V-8](https://www.yahoo.com/tech/lamborghini-just-confirmed-next-supercar-173000538.html)
+- May 20 - [Greene posts workout video after Crockett fundraising crack](https://www.yahoo.com/news/greene-posts-workout-video-crockett-164616794.html)
+- May 20 - [Biden Says He Was Still VP During COVID and Obama Sent Him to ‘Fix It’](https://www.yahoo.com/news/biden-says-still-vp-during-162400706.html)
+- May 20 - [This is how police are now enforcing Georgia’s news squatter laws following Channel 2 investigations](https://www.yahoo.com/news/police-now-enforcing-georgia-news-160503540.html)
+- May 20 - [Crashed Iranian helicopter was US-made and may be so old it predates the 1979 Islamic Revolution](https://www.yahoo.com/news/crashed-iranian-helicopter-us-made-160444500.html)
 <!-- feed end -->
 
 ### Onstream
