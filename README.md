@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 20 - [Iranian President Ebrahim Raisi killed in helicopter crash, official says](https://www.yahoo.com/news/hopes-fade-wreckage-found-helicopter-025508728.html)
 - May 20 - ['No sign of life' at crash site of helicopter carrying Iran's president, others](https://www.yahoo.com/news/official-says-rescuers-see-helicopter-023159433.html)
-- May 19 - [Multiple vehicles damaged by fire in Nashville Shores parking lot](https://www.yahoo.com/news/multiple-vehicles-damaged-fire-nashville-235735653.html)
-- May 19 - [Man shot several times at stop light in drive-by shooting on Jacksonville’s Westside](https://www.yahoo.com/news/shooting-investigation-underway-jacksonville-westside-212124586.html)
-- May 19 - [Closing arguments set in trial of University of Arizona grad student accused of killing a professor](https://www.yahoo.com/news/closing-arguments-set-trial-university-205939647.html)
-- May 19 - [Helicopter crash could reverberate across the Middle East, where Iran's influence runs wide and deep](https://www.yahoo.com/news/helicopter-crash-could-reverberate-across-203640739.html)
+- May 19 - [Trump suggests he could be a 3-term president if he wins election](https://www.yahoo.com/news/trump-suggests-could-3-term-205054407.html)
+- May 19 - [Guy Fieri reveals the key piece of fitness gear that helped him lose 30 pounds](https://www.yahoo.com/lifestyle/guy-fieri-reveals-key-piece-190758171.html)
+- May 19 - [Consumers are so demoralized by inflation and high rates that they’ve given up on saving for the American Dream and are spending money instead, economist says](https://finance.yahoo.com/news/consumers-demoralized-inflation-high-rates-174002384.html)
 <!-- feed end -->
 
 ### Onstream
