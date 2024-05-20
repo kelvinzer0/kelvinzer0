@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 19 - [MSNBC’s Jen Psaki Calls Out Justice Samuel Alito’s Hypocrisy for Flying Upside-Down US Flag | Video](https://www.yahoo.com/news/msnbc-jen-psaki-calls-justice-225327184.html)
-- May 19 - [Spring reveals a mess on Anchorage's trails, and a vexing conversation about homelessness](https://www.yahoo.com/news/spring-reveals-mess-anchorages-trails-220600248.html)
-- May 19 - [Mother, stepfather of Madalina Cojocari set to face a judge on Monday](https://www.yahoo.com/news/mother-stepfather-madalina-cojocari-set-214005636.html)
-- May 19 - [The NHS needs wholescale reform, not tinkering](https://www.yahoo.com/news/nhs-needs-wholescale-reform-not-210000319.html)
+- May 19 - [Man shot several times at stop light in drive-by shooting on Jacksonville’s Westside](https://www.yahoo.com/news/shooting-investigation-underway-jacksonville-westside-212124586.html)
+- May 19 - [Former CIA director reacts to Stefanik’s remarks about ‘wiping’ Hamas ‘off the face of the Earth’](https://www.yahoo.com/news/former-cia-director-reacts-stefanik-231144443.html)
+- May 19 - [Trump suggests he could be a 3-term president if he wins election](https://www.yahoo.com/news/trump-suggests-could-3-term-205054407.html)
 - May 19 - [What do we know so far about the mysterious crash of the helicopter carrying Iran's president?](https://www.yahoo.com/news/know-far-mysterious-crash-helicopter-192442169.html)
+- May 19 - [Arizona man sentenced to natural life in prison for the 2017 death of his wife, who was buried alive](https://www.yahoo.com/news/arizona-man-sentenced-natural-life-173601048.html)
 <!-- feed end -->
 
 ### Onstream
