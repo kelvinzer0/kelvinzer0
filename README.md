@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Nvidia will 'clearly beat expectations': Analyst on earnings](https://finance.yahoo.com/video/nvidia-clearly-beat-expectations-analyst-135300824.html)
+- May 20 - [Trump, Biden spar over whether Trump's 30-second pause was intentional or a 'glitch'](https://www.yahoo.com/news/trump-biden-spar-over-whether-144055876.html)
+- May 20 - [Czech ammunition buy for Ukraine nears first delivery, faces headwinds](https://www.yahoo.com/news/czech-ammunition-buy-ukraine-nears-141308220.html)
+- May 20 - [US Supreme Court rebuffs appeal over Maryland assault weapons ban](https://www.yahoo.com/news/us-supreme-court-rebuffs-appeal-135007550.html)
 - May 20 - [Crashed ship that took down Baltimore bridge refloated, towed from channel](https://www.yahoo.com/news/crashed-ship-took-down-baltimore-133124553.html)
-- May 20 - [Dali: Ship that hit Baltimore bridge on the move again](https://www.yahoo.com/news/dali-ship-hit-baltimore-bridge-132418472.html)
-- May 20 - [Carmen charter schools won’t leave Milwaukee Public Schools buildings without a fight](https://www.yahoo.com/news/carmen-charter-schools-won-t-131302764.html)
-- May 20 - [Samuel Alito Dumped Bud Light Stock at Quite a Suspicious Time](https://finance.yahoo.com/news/samuel-alito-dumped-bud-light-130827608.html)
+- May 20 - [Airplane passenger uproar as woman with baby on her lap should be 'ashamed' for bothering others](https://www.yahoo.com/lifestyle/airplane-passenger-uproar-woman-baby-120827879.html)
 <!-- feed end -->
 
 ### Onstream
