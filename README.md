@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Trump Trial Judge Seals the Courtroom to Unleash on MAGA Lawyer](https://www.yahoo.com/news/trump-trial-judge-seals-courtroom-202540080.html)
-- May 20 - [Ex-Red Sox player arrested in undercover sting after arranging to meet girl for sex, sheriff says](https://www.yahoo.com/news/ex-red-sox-player-arrested-183425524.html)
-- May 20 - [US says it was 'unable' to provide Iran assistance after helicopter cash](https://www.yahoo.com/news/us-says-unable-iran-assistance-194308491.html)
-- May 20 - [2 L.A. women suspected of running prostitution business out of Ventura County spa](https://www.yahoo.com/news/2-l-women-suspected-running-190754071.html)
-- May 20 - [Successful Patriot Interceptor Test From Naval Vertical Launcher Is A Big Deal](https://www.yahoo.com/tech/successful-patriot-interceptor-test-naval-185509222.html)
+- May 20 - [Jen Psaki Reveals How She Really Felt About Fox’s Peter Doocy](https://www.yahoo.com/entertainment/jen-psaki-reveals-she-really-212554364.html)
+- May 20 - [Graceland set for foreclosure auction, notice states; Elvis heir claims fraud, fights sale](https://www.yahoo.com/news/graceland-set-foreclosure-auction-elvis-203440220.html)
+- May 20 - [US Navy warships in the Red Sea are fighting off missiles new to combat that are 'way faster' than anything else, destroyer captain says](https://www.yahoo.com/news/us-navy-warships-red-sea-202816849.html)
+- May 20 - [Mother who said school officials hid her teen's gender expression appeals judge's dismissal of case](https://www.yahoo.com/news/mother-said-school-officials-hid-202615149.html)
+- May 20 - [Trump Trial Judge Seals the Courtroom to Unload on MAGA Lawyer](https://www.yahoo.com/news/trump-trial-judge-seals-courtroom-202540080.html)
 <!-- feed end -->
 
 ### Onstream
