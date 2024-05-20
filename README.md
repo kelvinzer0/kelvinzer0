@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Princess Tatiana of Greece’s stepfather goes missing in Malibu after disappearing in middle of the night](https://www.yahoo.com/news/princess-tatiana-greece-stepfather-goes-115921557.html)
-- May 20 - [Why Jay Powell really wants to lower interest rates this September](https://finance.yahoo.com/news/why-jay-powell-really-wants-113411854.html)
-- May 20 - [Inquiry slams UK authorities for failures that killed thousands in infected blood scandal](https://www.yahoo.com/news/report-due-uks-infected-blood-104530767.html)
-- May 20 - ['I'll start panicking': Comedian Bobby Lee clueless about his savings, mortgage, and paying his phone bill](https://finance.yahoo.com/news/ill-start-panicking-comedian-bobby-103200850.html)
-- May 20 - [Kansas City mafia loved to eat at this Italian restaurant. Until the FBI bugged it](https://www.yahoo.com/news/kansas-city-mafia-loved-eat-103000944.html)
+- May 20 - [Nvidia will 'clearly beat expectations': Analyst on earnings](https://finance.yahoo.com/video/nvidia-clearly-beat-expectations-analyst-135300824.html)
+- May 20 - [Crashed ship that took down Baltimore bridge refloated, towed from channel](https://www.yahoo.com/news/crashed-ship-took-down-baltimore-133124553.html)
+- May 20 - [Dali: Ship that hit Baltimore bridge on the move again](https://www.yahoo.com/news/dali-ship-hit-baltimore-bridge-132418472.html)
+- May 20 - [Carmen charter schools won’t leave Milwaukee Public Schools buildings without a fight](https://www.yahoo.com/news/carmen-charter-schools-won-t-131302764.html)
+- May 20 - [Samuel Alito Dumped Bud Light Stock at Quite a Suspicious Time](https://finance.yahoo.com/news/samuel-alito-dumped-bud-light-130827608.html)
 <!-- feed end -->
 
 ### Onstream
