@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Netanyahu denounces bid to arrest him over Gaza war](https://www.yahoo.com/news/netanyahu-arrest-warrant-request-outrageous-192156526.html)
-- May 20 - [Economic data setting up market for 'great scenario': Yardeni](https://finance.yahoo.com/video/economic-data-setting-market-great-195340505.html)
-- May 20 - [3 Things at Five Below That Are Cheaper Than at Dollar Tree](https://finance.yahoo.com/news/3-things-five-below-cheaper-185725305.html)
-- May 20 - [We finally know when Apple may release a second-gen AirTag](https://www.yahoo.com/tech/finally-know-apple-may-release-185701609.html)
+- May 20 - [Trump Trial Judge Seals the Courtroom to Unleash on MAGA Lawyer](https://www.yahoo.com/news/trump-trial-judge-seals-courtroom-202540080.html)
 - May 20 - [Ex-Red Sox player arrested in undercover sting after arranging to meet girl for sex, sheriff says](https://www.yahoo.com/news/ex-red-sox-player-arrested-183425524.html)
+- May 20 - [US says it was 'unable' to provide Iran assistance after helicopter cash](https://www.yahoo.com/news/us-says-unable-iran-assistance-194308491.html)
+- May 20 - [2 L.A. women suspected of running prostitution business out of Ventura County spa](https://www.yahoo.com/news/2-l-women-suspected-running-190754071.html)
+- May 20 - [Successful Patriot Interceptor Test From Naval Vertical Launcher Is A Big Deal](https://www.yahoo.com/tech/successful-patriot-interceptor-test-naval-185509222.html)
 <!-- feed end -->
 
 ### Onstream
