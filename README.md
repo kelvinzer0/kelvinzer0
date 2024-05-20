@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 20 - ['No sign of life' at crash site of helicopter carrying Iran's president, others](https://www.yahoo.com/news/official-says-rescuers-see-helicopter-023159433.html)
+- May 19 - [Multiple vehicles damaged by fire in Nashville Shores parking lot](https://www.yahoo.com/news/multiple-vehicles-damaged-fire-nashville-235735653.html)
+- May 19 - [Man shot several times at stop light in drive-by shooting on Jacksonville’s Westside](https://www.yahoo.com/news/shooting-investigation-underway-jacksonville-westside-212124586.html)
 - May 19 - [Closing arguments set in trial of University of Arizona grad student accused of killing a professor](https://www.yahoo.com/news/closing-arguments-set-trial-university-205939647.html)
-- May 19 - [Trump suggests he could be a 3-term president if he wins election](https://www.yahoo.com/news/trump-suggests-could-3-term-205054407.html)
-- May 19 - [What do we know so far about the mysterious crash of the helicopter carrying Iran's president?](https://www.yahoo.com/news/know-far-mysterious-crash-helicopter-192442169.html)
-- May 19 - [Arizona man sentenced to natural life in prison for the 2017 death of his wife, who was buried alive](https://www.yahoo.com/news/arizona-man-sentenced-natural-life-173601048.html)
-- May 19 - [Morehouse Students Turn Their Backs, Walk Out of Graduation as Joe Biden Gives Speech](https://www.yahoo.com/news/morehouse-students-turn-backs-walk-172531126.html)
+- May 19 - [Helicopter crash could reverberate across the Middle East, where Iran's influence runs wide and deep](https://www.yahoo.com/news/helicopter-crash-could-reverberate-across-203640739.html)
 <!-- feed end -->
 
 ### Onstream
