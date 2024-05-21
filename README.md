@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Arizona Supreme Court Justice Clint Bolick makes a paltry appeal to keep his job](https://www.yahoo.com/news/arizona-supreme-court-justice-clint-202656391.html)
-- May 21 - [Heavy equipment, snow shovels used to clean up hail piled knee-deep in small Colorado city](https://www.yahoo.com/news/heavy-equipment-snow-shovels-used-201624007.html)
 - May 21 - [Egypt changed terms of Gaza ceasefire deal presented to Hamas, surprising negotiators, sources say](https://www.yahoo.com/news/egypt-changed-terms-gaza-ceasefire-195014642.html)
-- May 21 - [Docs: Teen charged with murder after drug deal gone wrong](https://www.yahoo.com/news/docs-teen-charged-murder-drug-191227238.html)
-- May 21 - [Woman found living in Michigan store sign told police it was a little-known 'safe spot'](https://www.yahoo.com/news/woman-found-living-michigan-store-185203095.html)
+- May 21 - [Giuliani agrees to stop spreading 2020 vote-tampering lies about Georgia election workers](https://www.yahoo.com/news/giuliani-agrees-stop-spreading-2020-211934021.html)
+- May 21 - [Pentagon says none of the aid unloaded from US pier off coast of Gaza has been delivered to broader Palestinian population](https://www.yahoo.com/news/pentagon-says-none-aid-unloaded-210844718.html)
+- May 21 - [Heavy equipment, snow shovels used to clean up hail piled knee-deep in small Colorado city](https://www.yahoo.com/news/heavy-equipment-snow-shovels-used-201624007.html)
+- May 21 - [Bodies of 2 women killed amid Oklahoma custody battle were found in buried freezer, police say](https://www.yahoo.com/news/bodies-2-women-killed-amid-195301250.html)
 <!-- feed end -->
 
 ### Onstream
