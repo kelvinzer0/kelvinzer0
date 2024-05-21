@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 21 - [Butker speech was intolerant and inaccurate. Why would Sen. Marshall ‘stand with’ him? | Opinion](https://www.yahoo.com/news/butker-speech-intolerant-inaccurate-why-195242923.html)
+- May 21 - [Woman found living in Michigan store sign told police it was a little-known 'safe spot'](https://www.yahoo.com/news/woman-found-living-michigan-store-185203095.html)
 - May 21 - [Russia begins nuclear drills following West's remarks suggesting possible deepening role in Ukraine](https://www.yahoo.com/news/russia-begins-nuclear-drills-following-182150535.html)
-- May 21 - [Trump says he is open to restrictions on contraception. His campaign says he misspoke](https://www.yahoo.com/news/trump-says-open-restrictions-contraception-180245827.html)
-- May 21 - [Man who murdered and hid Ann Marie Shirran granted 46 temporary absences from prison](https://www.yahoo.com/news/man-murdered-hid-ann-marie-175836341.html)
-- May 21 - [WFISD officials split on homeschoolers-UIL issue](https://www.yahoo.com/news/wfisd-officials-split-homeschoolers-uil-174304685.html)
-- May 21 - [France supports Netanyahu arrest warrant in break with Western allies](https://www.yahoo.com/news/france-supports-netanyahu-arrest-warrant-173754021.html)
+- May 21 - [Trump says he is open to restrictions on contraception before backing away from the statement](https://www.yahoo.com/news/trump-says-open-restrictions-contraception-180245827.html)
+- May 21 - [Tesla stock pops after company reveals new details, deliveries for its semitruck program](https://finance.yahoo.com/news/tesla-stock-pops-after-company-reveals-new-details-deliveries-for-its-semitruck-program-174933019.html)
 <!-- feed end -->
 
 ### Onstream
