@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Tesla stock pops after company reveals new details, deliveries for its semi-truck program](https://finance.yahoo.com/news/tesla-stock-pops-after-company-reveals-new-details-deliveries-for-its-semi-truck-program-174933899.html)
-- May 21 - [Attorneys stop representing a Utah mom and children's grief author accused of killing her husband](https://www.yahoo.com/news/attorneys-stop-representing-utah-mom-172928919.html)
-- May 21 - [Prince Harry ‘rejected King’s invitation to stay at royal residence’](https://www.yahoo.com/lifestyle/prince-harry-turned-down-invite-161853306.html)
-- May 21 - [Biden releasing 1 million barrels of gasoline from Northeast reserve in bid to lower prices at pump](https://www.yahoo.com/news/biden-releasing-1-million-barrels-164017347.html)
-- May 21 - [Bill Maher Met With Dead Silence After Joke on ‘The View’: ‘Too Dark!’](https://www.yahoo.com/entertainment/bill-maher-met-dead-silence-162603005.html)
+- May 21 - [Russia begins nuclear drills following West's remarks suggesting possible deepening role in Ukraine](https://www.yahoo.com/news/russia-begins-nuclear-drills-following-182150535.html)
+- May 21 - [Trump says he is open to restrictions on contraception. His campaign says he misspoke](https://www.yahoo.com/news/trump-says-open-restrictions-contraception-180245827.html)
+- May 21 - [Man who murdered and hid Ann Marie Shirran granted 46 temporary absences from prison](https://www.yahoo.com/news/man-murdered-hid-ann-marie-175836341.html)
+- May 21 - [WFISD officials split on homeschoolers-UIL issue](https://www.yahoo.com/news/wfisd-officials-split-homeschoolers-uil-174304685.html)
+- May 21 - [France supports Netanyahu arrest warrant in break with Western allies](https://www.yahoo.com/news/france-supports-netanyahu-arrest-warrant-173754021.html)
 <!-- feed end -->
 
 ### Onstream
