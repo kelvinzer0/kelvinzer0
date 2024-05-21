@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Could ARM Holdings Dethrone Nvidia?](https://finance.yahoo.com/news/could-arm-holdings-dethrone-nvidia-113000946.html)
+- May 21 - [Nonprofits may apply for part of $10K being offered by Exchange Club for Orrville projects](https://www.yahoo.com/news/nonprofits-may-apply-part-10k-120802482.html)
+- May 21 - [Ford Mustang Sedan Rumors Confirmed](https://autos.yahoo.com/ford-mustang-sedan-rumors-confirmed-120000101.html)
+- May 21 - [Congo names third American in a foiled coup plot as mourners gather in Utah to remember plot leader](https://www.yahoo.com/news/congo-names-third-american-foiled-110114701.html)
+- May 21 - [Charlotte eatery gets its third ‘B’ grade after ‘flying pests,’ improper food storage](https://www.yahoo.com/news/charlotte-eatery-gets-third-b-110000845.html)
 - May 21 - [Bill Maher Asks Fox News' Greg Gutfeld 'You're In News?' During Trump Argument](https://www.yahoo.com/entertainment/bill-maher-asks-fox-news-105441380.html)
-- May 21 - [Yellen says US, Europe must respond jointly to China's industrial overcapacity](https://finance.yahoo.com/news/yellen-says-us-europe-must-094118261.html)
-- May 21 - [Kremlin says it is very curious that U.S. appears ready to sanction the ICC](https://www.yahoo.com/news/kremlin-says-very-curious-u-093628453.html)
-- May 21 - [Ocean water is rushing miles underneath the ‘Doomsday Glacier’ with potentially dire impacts on sea level rise](https://www.yahoo.com/news/ocean-water-rushing-miles-underneath-190002444.html)
 <!-- feed end -->
 
 ### Onstream
