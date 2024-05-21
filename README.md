@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - ['We're not about to fold': Janet Yellen says efforts are underway to package a $50 billion loan to Ukraine using frozen Russian funds](https://finance.yahoo.com/news/were-not-fold-janet-yellen-041040260.html)
-- May 21 - [Trump posts social media video seemingly suggesting his victory will bring 'unified Reich'](https://www.yahoo.com/news/trump-posts-social-media-video-033720745.html)
-- May 21 - [Ex-Red Sox player arrested in undercover sting after arranging to meet girl for sex, sheriff says](https://sports.yahoo.com/ex-red-sox-player-arrested-183425524.html)
-- May 21 - [Australia and New Zealand begin evacuating nationals from unrest in New Caledonia](https://www.yahoo.com/news/australia-zealand-sending-planes-evacuate-011552958.html)
-- May 21 - [Trump's social media account shares a campaign video with a headline about a 'unified Reich'](https://www.yahoo.com/news/trumps-social-media-account-shares-010440754.html)
+- May 21 - [Kremlin says it is very curious that U.S. appears ready to sanction the ICC](https://www.yahoo.com/news/kremlin-says-very-curious-u-093628453.html)
+- May 21 - [Baerbock accuses Putin of targeted terror against Ukrainian civilians](https://www.yahoo.com/news/baerbock-accuses-putin-targeted-terror-092945393.html)
+- May 21 - [5 St. Lucie County restaurants fail inspection](https://www.yahoo.com/news/5-st-lucie-county-restaurants-091245903.html)
+- May 21 - [Ocean water is rushing miles underneath the ‘Doomsday Glacier’ with potentially dire impacts on sea level rise](https://www.yahoo.com/news/ocean-water-rushing-miles-underneath-190002444.html)
+- May 21 - [Caught on camera: Thieves break into Denver restaurant, taking cash, cards](https://www.yahoo.com/news/caught-camera-thieves-break-denver-053749022.html)
 <!-- feed end -->
 
 ### Onstream
