@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Russia-Ukraine war – latest: Zelensky calls on Nato to shoot down Putin’s missiles](https://www.yahoo.com/news/russia-ukraine-war-latest-putin-035046932.html)
-- May 21 - [Savings Account Rates Are Falling. Why Some Banks Are Paying Less.](https://www.barrons.com/articles/bank-account-online-savings-interest-rate-b8bfb6b2?siteid=yhoof2&yptr=yahoo)
 - May 21 - [Trump posts social media video seemingly suggesting his victory will bring 'unified Reich'](https://www.yahoo.com/news/trump-posts-social-media-video-033720745.html)
 - May 21 - [Ex-Red Sox player arrested in undercover sting after arranging to meet girl for sex, sheriff says](https://sports.yahoo.com/ex-red-sox-player-arrested-183425524.html)
-- May 21 - [Australia and New Zealand sending planes to evacuate nationals from New Caledonia's unrest](https://www.yahoo.com/news/australia-zealand-sending-planes-evacuate-011552958.html)
+- May 21 - [Australia and New Zealand begin evacuating nationals from unrest in New Caledonia](https://www.yahoo.com/news/australia-zealand-sending-planes-evacuate-011552958.html)
+- May 21 - [Trump's social media account shares a campaign video with a headline about a 'unified Reich'](https://www.yahoo.com/news/trumps-social-media-account-shares-010440754.html)
+- May 21 - [Frontier Airlines passenger refuses to comply with exit row instructions causing plane to deboard](https://www.yahoo.com/news/frontier-airlines-passenger-refuses-comply-010403445.html)
 <!-- feed end -->
 
 ### Onstream
