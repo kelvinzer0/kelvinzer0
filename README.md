@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 21 - [Pickup truck crashes through roof of Butler County jewelry store, driver flown to hospital](https://www.yahoo.com/news/pickup-truck-crashes-roof-butler-024621911.html)
+- May 21 - [China’s Gold Imports Slow as Record Prices Temper Demand](https://finance.yahoo.com/news/china-gold-imports-slow-record-022317325.html)
+- May 21 - [Ex-Red Sox player arrested in undercover sting after arranging to meet girl for sex, sheriff says](https://sports.yahoo.com/ex-red-sox-player-arrested-183425524.html)
 - May 21 - [Australia and New Zealand sending planes to evacuate nationals from New Caledonia's unrest](https://www.yahoo.com/news/australia-zealand-sending-planes-evacuate-011552958.html)
 - May 21 - [Trump's social media account shares a campaign video with a headline about a 'unified Reich'](https://www.yahoo.com/news/trumps-social-media-account-shares-010440754.html)
-- May 21 - [Frontier Airlines passenger refuses to comply with exit row instructions causing plane to deboard](https://www.yahoo.com/news/frontier-airlines-passenger-refuses-comply-010403445.html)
-- May 20 - [Northern California deputies search for mountain lion after second sighting](https://www.yahoo.com/news/northern-california-deputies-search-mountain-224208764.html)
-- May 20 - [Jamie Dimon says the end to his time as JPMorgan CEO is 'not 5 years anymore'](https://finance.yahoo.com/news/jamie-dimon-says-the-end-to-his-time-as-jpmorgan-ceo-is-not-5-years-anymore-204739937.html)
 <!-- feed end -->
 
 ### Onstream
