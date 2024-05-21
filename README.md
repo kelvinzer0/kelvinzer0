@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Comcast prices Peacock, Netflix, Apple TV+ streaming bundle at $15 a month](https://finance.yahoo.com/news/comcast-prices-peacock-netflix-apple-152156822.html)
-- May 21 - [Climber dies after falling during solo attempt of North America’s tallest peak](https://www.yahoo.com/news/climber-dies-falling-during-solo-150046738.html)
-- May 21 - [Boeing to invest C$240 million in Canadian aerospace development](https://finance.yahoo.com/news/boeing-invest-c-240-million-145021286.html)
-- May 21 - [After backlash, Trump pulls social media post with reference to 'unified Reich'](https://www.yahoo.com/news/backlash-trump-pulls-social-media-142823222.html)
-- May 21 - [‘Once a cheater, always a cheater’: I’m the beneficiary on my ex-husband’s $250,000 life insurance. He’s now threatening to change it. Is he in breach of our divorce decree?](https://finance.yahoo.com/news/once-cheater-always-cheater-m-105200124.html)
+- May 21 - [Damning emails reveal pressure campaign on Michael Cohen from Trump’s inner circle: ‘He’s playing with the most powerful man on the planet’](https://www.yahoo.com/news/damning-emails-reveal-pressure-campaign-153009680.html)
+- May 21 - [Earthquake rattles upstate New York: USGS](https://www.yahoo.com/news/earthquake-rattles-upstate-york-usgs-160934419.html)
+- May 21 - [Thousands Attend Iranian President Raisi’s Funeral Procession, as Others Celebrate](https://www.yahoo.com/news/thousands-attend-iranian-president-raisi-153937777.html)
+- May 21 - [A Scientist Says He Has Evidence That Ice-Age Humans Lived in Maryland 22,000 Years Ago](https://www.yahoo.com/news/scientist-says-evidence-ice-age-153000502.html)
+- May 21 - [Former Florida signee Jaden Rashada sues coach Billy Napier and others over failed $14M NIL deal](https://sports.yahoo.com/former-florida-signee-jaden-rashada-152802178.html)
 <!-- feed end -->
 
 ### Onstream
