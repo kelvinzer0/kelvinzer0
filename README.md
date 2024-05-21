@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 21 - [Trump rests his brief, tumultuous hush-money defense without testifying. Prosecutors turned his key witness against him.](https://www.yahoo.com/news/trump-rests-brief-tumultuous-hush-141727539.html)
+- May 21 - [‘Once a cheater, always a cheater’: I’m the beneficiary on my ex-husband’s $250,000 life insurance. He’s now threatening to change it. Is he in breach of our divorce decree?](https://finance.yahoo.com/news/once-cheater-always-cheater-m-105200124.html)
 - May 21 - [Trump deletes social media video about election victory referencing 'Unified Reich' after facing backlash](https://www.yahoo.com/news/trump-posts-social-media-video-033720745.html)
 - May 21 - [Singapore Airlines plane made 'dramatic drop', people flung into lockers, says passenger](https://www.yahoo.com/news/singapore-airlines-plane-made-dramatic-132139020.html)
-- May 21 - [‘Unblockable’ HMRC scam message on iPhones sparks warning](https://www.yahoo.com/news/hmrc-scam-message-iphone--warning-130848566.html)
 - May 21 - [Ukraine says it may have destroyed Russia's last cruise missile carrier based out of Crimea](https://www.yahoo.com/news/ukraine-says-may-destroyed-russias-123424167.html)
-- May 21 - [Congo names third American in a foiled coup plot as mourners gather in Utah to remember plot leader](https://www.yahoo.com/news/congo-names-third-american-foiled-110114701.html)
 <!-- feed end -->
 
 ### Onstream
