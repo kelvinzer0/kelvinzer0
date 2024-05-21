@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Trump Campaign Vows To Sue ‘The Apprentice’ Filmmakers Over Scene Of Ivana Trump Rape By Then-Real Estate Mogul](https://www.yahoo.com/entertainment/trump-campaign-vows-sue-apprentice-235036778.html)
-- May 20 - [US lawsuit challenges Southwest Air's free ticket program for Hispanic students](https://finance.yahoo.com/news/us-lawsuit-challenges-southwest-airs-223302020.html)
+- May 21 - [Australia and New Zealand sending planes to evacuate nationals from New Caledonia's unrest](https://www.yahoo.com/news/australia-zealand-sending-planes-evacuate-011552958.html)
+- May 21 - [Trump's social media account shares a campaign video with a headline about a 'unified Reich'](https://www.yahoo.com/news/trumps-social-media-account-shares-010440754.html)
+- May 21 - [Frontier Airlines passenger refuses to comply with exit row instructions causing plane to deboard](https://www.yahoo.com/news/frontier-airlines-passenger-refuses-comply-010403445.html)
+- May 20 - [Northern California deputies search for mountain lion after second sighting](https://www.yahoo.com/news/northern-california-deputies-search-mountain-224208764.html)
 - May 20 - [Jamie Dimon says the end to his time as JPMorgan CEO is 'not 5 years anymore'](https://finance.yahoo.com/news/jamie-dimon-says-the-end-to-his-time-as-jpmorgan-ceo-is-not-5-years-anymore-204739937.html)
-- May 20 - [US Navy warships in the Red Sea are fighting off missiles new to combat that are 'way faster' than anything else, destroyer captain says](https://www.yahoo.com/news/us-navy-warships-red-sea-202816849.html)
-- May 20 - [Amal Clooney is one of the legal experts who recommended war crimes charges in Israel-Hamas war](https://www.yahoo.com/news/amal-clooney-one-legal-experts-201623045.html)
 <!-- feed end -->
 
 ### Onstream
