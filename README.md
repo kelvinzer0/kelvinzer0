@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 21 - [Trump rests his brief, tumultuous hush-money defense without testifying. Prosecutors turned his key witness against him.](https://www.yahoo.com/news/trump-rests-brief-tumultuous-hush-141727539.html)
+- May 21 - [Comcast prices Peacock, Netflix, Apple TV+ streaming bundle at $15 a month](https://finance.yahoo.com/news/comcast-prices-peacock-netflix-apple-152156822.html)
+- May 21 - [Climber dies after falling during solo attempt of North America’s tallest peak](https://www.yahoo.com/news/climber-dies-falling-during-solo-150046738.html)
+- May 21 - [Boeing to invest C$240 million in Canadian aerospace development](https://finance.yahoo.com/news/boeing-invest-c-240-million-145021286.html)
+- May 21 - [After backlash, Trump pulls social media post with reference to 'unified Reich'](https://www.yahoo.com/news/backlash-trump-pulls-social-media-142823222.html)
 - May 21 - [‘Once a cheater, always a cheater’: I’m the beneficiary on my ex-husband’s $250,000 life insurance. He’s now threatening to change it. Is he in breach of our divorce decree?](https://finance.yahoo.com/news/once-cheater-always-cheater-m-105200124.html)
-- May 21 - [Trump deletes social media video about election victory referencing 'Unified Reich' after facing backlash](https://www.yahoo.com/news/trump-posts-social-media-video-033720745.html)
-- May 21 - [Singapore Airlines plane made 'dramatic drop', people flung into lockers, says passenger](https://www.yahoo.com/news/singapore-airlines-plane-made-dramatic-132139020.html)
-- May 21 - [Ukraine says it may have destroyed Russia's last cruise missile carrier based out of Crimea](https://www.yahoo.com/news/ukraine-says-may-destroyed-russias-123424167.html)
 <!-- feed end -->
 
 ### Onstream
