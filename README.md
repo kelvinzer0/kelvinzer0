@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 20 - [Austin says 'expectation' is Ukraine won't use US weapons outside its territory, despite Russian advance](https://www.yahoo.com/news/austin-says-expectation-ukraine-wont-220243300.html)
-- May 20 - [Trump Considers Biggest Fascist Possible for Attorney General Pick](https://www.yahoo.com/news/trump-considers-biggest-fascist-possible-205203984.html)
+- May 20 - [Trump Campaign Vows To Sue ‘The Apprentice’ Filmmakers Over Scene Of Ivana Trump Rape By Then-Real Estate Mogul](https://www.yahoo.com/entertainment/trump-campaign-vows-sue-apprentice-235036778.html)
+- May 20 - [US lawsuit challenges Southwest Air's free ticket program for Hispanic students](https://finance.yahoo.com/news/us-lawsuit-challenges-southwest-airs-223302020.html)
+- May 20 - [Jamie Dimon says the end to his time as JPMorgan CEO is 'not 5 years anymore'](https://finance.yahoo.com/news/jamie-dimon-says-the-end-to-his-time-as-jpmorgan-ceo-is-not-5-years-anymore-204739937.html)
 - May 20 - [US Navy warships in the Red Sea are fighting off missiles new to combat that are 'way faster' than anything else, destroyer captain says](https://www.yahoo.com/news/us-navy-warships-red-sea-202816849.html)
 - May 20 - [Amal Clooney is one of the legal experts who recommended war crimes charges in Israel-Hamas war](https://www.yahoo.com/news/amal-clooney-one-legal-experts-201623045.html)
-- May 20 - [Ex-Red Sox player arrested in undercover sting after arranging to meet girl for sex, sheriff says](https://www.yahoo.com/news/ex-red-sox-player-arrested-183425524.html)
 <!-- feed end -->
 
 ### Onstream
