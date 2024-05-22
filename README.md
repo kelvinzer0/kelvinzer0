@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 21 - [Ukrainian gunners finally get shells to stop Russians near Kharkiv](https://www.yahoo.com/news/ukrainian-gunners-finally-shells-stop-230402408.html)
 - May 21 - [‘Once a cheater, always a cheater’: I’m the beneficiary on my ex-husband’s $250,000 life insurance. He’s now threatening to change it. Is he in breach of our divorce decree?](https://finance.yahoo.com/news/once-cheater-always-cheater-m-105200124.html)
 - May 21 - [Fact Check: Online Ad Claims Dana Perino Is Leaving Fox News' 'The Five' Due to 'Tensions' with Sean Hannity. Here Are the Facts](https://www.yahoo.com/news/fact-check-online-ad-claims-220200576.html)
+- May 21 - [Pentagon: Russia likely launched counter space weapon into low Earth orbit last week](https://www.yahoo.com/news/pentagon-russia-likely-launched-counter-215700171.html)
 - May 21 - [Pentagon says none of the aid unloaded from US pier off coast of Gaza has been delivered to broader Palestinian population](https://www.yahoo.com/news/pentagon-says-none-aid-unloaded-210844718.html)
-- May 21 - [Best iPad Memorial Day deals: Get an Apple tablet from just $245](https://www.yahoo.com/tech/best-ipad-memorial-day-deals-204147476.html)
-- May 21 - [1 dead, 71 injured as Singapore Airlines flight hits severe turbulence](https://www.yahoo.com/news/1-dead-71-injured-singapore-202902783.html)
 <!-- feed end -->
 
 ### Onstream
