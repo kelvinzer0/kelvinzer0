@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [New details revealed in death of aspiring El Paso rapper in parking lot drug deal shooting](https://www.yahoo.com/news/details-revealed-death-aspiring-el-125217053.html)
-- May 22 - [The stock market has already chosen a winner in the 2024 presidential election](https://finance.yahoo.com/news/stock-market-already-chosen-winner-123000226.html)
-- May 22 - [Snack company releases first-of-its-kind chip bag: 'The potential to revolutionize packaging as we know it'](https://www.yahoo.com/news/snack-company-releases-first-kind-113500551.html)
-- May 22 - [‘Once a cheater, always a cheater’: I’m the beneficiary on my ex-husband’s $250,000 life insurance. He’s now threatening to change it. Is he in breach of our divorce decree?](https://finance.yahoo.com/news/once-cheater-always-cheater-m-105200124.html)
-- May 22 - [Fact Check: This Video Clip Supposedly Shows a Female 'Time Traveler' Using a Cellphone in 1938. Here's the Backstory](https://www.yahoo.com/tech/fact-check-video-clip-supposedly-110000225.html)
+- May 22 - [Indian election casts spotlight on Modi look-alikes](https://www.yahoo.com/news/indian-election-casts-spotlight-modi-152216873.html)
+- May 22 - [Highway Cameras Show Tornado Barreling Through Iowa](https://www.yahoo.com/news/highway-cameras-show-tornado-barreling-151808944.html)
+- May 22 - [NASA indefinitely postpones launch of Boeing’s Starliner crewed capsule](https://www.yahoo.com/tech/nasa-indefinitely-postpones-launch-boeing-151200961.html)
+- May 22 - ["Stain on the judicial system": Legal experts slam Judge Cannon after damning Trump ruling released](https://www.yahoo.com/news/stain-judicial-system-legal-experts-144500702.html)
+- May 22 - [‘Is he trying to bamboozle me?’ My husband wants a divorce after 20 years. He offered his $275,000 401(k) in exchange for our $250,000 house.](https://finance.yahoo.com/news/trying-bamboozle-husband-wants-divorce-111300435.html)
 <!-- feed end -->
 
 ### Onstream
