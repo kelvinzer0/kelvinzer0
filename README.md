@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 22 - [Recent Corpus Christi motorcycle crashes leave 3 dead, officer injured](https://www.yahoo.com/news/recent-corpus-christi-motorcycle-crashes-172332916.html)
+- May 22 - [Pfizer rolls out another cost-cutting program, sets $1.5 billion target by 2027](https://finance.yahoo.com/news/pfizer-launches-multi-cost-cuts-165200060.html)
 - May 22 - [Israel releases film of female conscripts held by Hamas](https://www.yahoo.com/news/israel-releases-film-female-conscripts-161812146.html)
-- May 22 - [Springfield Memorial Hospital has a new president and CEO. What to know](https://www.yahoo.com/news/springfield-memorial-hospital-president-ceo-154205378.html)
-- May 22 - [Groundbreaking Measurement Reveals a Black Hole Spinning at a Quarter the Speed of Light](https://www.yahoo.com/news/groundbreaking-measurement-reveals-black-hole-150620456.html)
 - May 22 - ["Stain on the judicial system": Legal experts slam Judge Cannon after damning Trump ruling released](https://www.yahoo.com/news/stain-judicial-system-legal-experts-144500702.html)
 - May 22 - [‘Is he trying to bamboozle me?’ My husband wants a divorce after 20 years. He offered his $275,000 401(k) in exchange for our $250,000 house.](https://finance.yahoo.com/news/trying-bamboozle-husband-wants-divorce-111300435.html)
 <!-- feed end -->
