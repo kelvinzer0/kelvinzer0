@@ -60,7 +60,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Stellantis CEO: Tariffs on China's EVs are a trap](https://finance.yahoo.com/news/stellantis-ceo-very-tough-battle-075327801.html)
+- May 22 - [People Are Sharing Famous Companies That Went Bankrupt Over Dumb Decisions, And Now I Finally Know What Happened To Circuit City](https://finance.yahoo.com/news/people-sharing-famous-companies-went-091602853.html)
 - May 22 - [Iran's Supreme Leader and Hamas chief at funeral ceremony for Iranian president](https://www.yahoo.com/news/irans-supreme-leader-hamas-chief-071953577.html)
 - May 22 - [Morning Bid: Nvidia vigil almost over](https://finance.yahoo.com/news/morning-bid-nvidia-vigil-almost-043220045.html)
 - May 22 - [China ramps up de-dollarization efforts by dumping a record amount of US bonds](https://finance.yahoo.com/news/china-ramps-dollarization-efforts-dumping-040610198.html)
