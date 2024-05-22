@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Filmmaker’s former Sacramento estate with 1880s farmhouse, unique mansion for sale. See it](https://www.yahoo.com/news/filmmaker-former-sacramento-estate-1880s-120000556.html)
-- May 22 - [Severe storms with strong winds, hail and flooding possible for Kentucky](https://www.yahoo.com/news/severe-storms-strong-winds-hail-115450902.html)
-- May 22 - [Critics Sum Up Donald Trump’s Latest Courthouse Rant With 1 Scathing Word](https://www.yahoo.com/news/critics-sum-donald-trump-latest-115341253.html)
+- May 22 - [The stock market has already chosen a winner in the 2024 presidential election](https://finance.yahoo.com/news/stock-market-already-chosen-winner-123000226.html)
+- May 22 - [Why I Keep Loading Up on These 2 Passive Income Machines](https://finance.yahoo.com/news/why-keep-loading-2-passive-121300312.html)
+- May 22 - [One of the largest healthcare systems in Mass. is laying off nearly 200 workers](https://finance.yahoo.com/news/one-largest-healthcare-systems-mass-120110237.html)
 - May 22 - [Fact Check: This Video Clip Supposedly Shows a Female 'Time Traveler' Using a Cellphone in 1938. Here's the Backstory](https://www.yahoo.com/tech/fact-check-video-clip-supposedly-110000225.html)
 - May 22 - ['Snowflake' Eric Trump Mercilessly Mocked Over Raging Response To MSNBC Host's Joke](https://www.yahoo.com/news/snowflake-eric-trump-mercilessly-mocked-100523983.html)
 <!-- feed end -->
