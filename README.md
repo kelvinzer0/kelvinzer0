@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [People Are Sharing Famous Companies That Went Bankrupt Over Dumb Decisions, And Now I Finally Know What Happened To Circuit City](https://finance.yahoo.com/news/people-sharing-famous-companies-went-091602853.html)
-- May 22 - [Iran's Supreme Leader and Hamas chief at funeral ceremony for Iranian president](https://www.yahoo.com/news/irans-supreme-leader-hamas-chief-071953577.html)
-- May 22 - [Morning Bid: Nvidia vigil almost over](https://finance.yahoo.com/news/morning-bid-nvidia-vigil-almost-043220045.html)
-- May 22 - [China ramps up de-dollarization efforts by dumping a record amount of US bonds](https://finance.yahoo.com/news/china-ramps-dollarization-efforts-dumping-040610198.html)
-- May 22 - [How 2 debunked accounts of sexual violence on Oct. 7 fueled a global dispute over Israel-Hamas war](https://www.yahoo.com/news/2-debunked-accounts-sexual-violence-040202794.html)
+- May 22 - [A Taco John's is coming to South Main Street in West Bend; construction is underway](https://www.yahoo.com/news/taco-johns-coming-south-main-100926196.html)
+- May 22 - ['Snowflake' Eric Trump Mercilessly Mocked Over Raging Response To MSNBC Host's Joke](https://www.yahoo.com/news/snowflake-eric-trump-mercilessly-mocked-100523983.html)
+- May 22 - [Jealousy of porn actor led to murder attempt with golf club, LAPD says](https://www.yahoo.com/news/jealousy-porn-actor-led-murder-100038820.html)
+- May 22 - [China takes measures against 12 U.S. military-linked firms](https://www.yahoo.com/news/china-takes-measures-against-12-095623400.html)
+- May 22 - [Asheville I-26 Connector contract the 'largest' in NC history; What about local companies?](https://finance.yahoo.com/news/asheville-26-connector-contract-largest-092459184.html)
 <!-- feed end -->
 
 ### Onstream
