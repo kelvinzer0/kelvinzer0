@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Recent Corpus Christi motorcycle crashes leave 3 dead, officer injured](https://www.yahoo.com/news/recent-corpus-christi-motorcycle-crashes-172332916.html)
-- May 22 - [Pfizer rolls out another cost-cutting program, sets $1.5 billion target by 2027](https://finance.yahoo.com/news/pfizer-launches-multi-cost-cuts-165200060.html)
+- May 22 - [Religious Zealot Mike Johnson Is Speechless About Trump’s Womanizing](https://www.yahoo.com/news/religious-zealot-mike-johnson-speechless-180632155.html)
+- May 22 - [The stock market has already chosen a winner in the 2024 presidential election](https://finance.yahoo.com/news/stock-market-already-chosen-winner-123000226.html)
+- May 22 - [Members of the U.S. Senate face a vote on whether they support contraception access](https://www.yahoo.com/news/members-u-senate-face-vote-164454608.html)
 - May 22 - [Israel releases film of female conscripts held by Hamas](https://www.yahoo.com/news/israel-releases-film-female-conscripts-161812146.html)
-- May 22 - ["Stain on the judicial system": Legal experts slam Judge Cannon after damning Trump ruling released](https://www.yahoo.com/news/stain-judicial-system-legal-experts-144500702.html)
-- May 22 - [‘Is he trying to bamboozle me?’ My husband wants a divorce after 20 years. He offered his $275,000 401(k) in exchange for our $250,000 house.](https://finance.yahoo.com/news/trying-bamboozle-husband-wants-divorce-111300435.html)
+- May 22 - [A pit bull attacked a boy twice. Now, owner owes MS Coast family hundreds of thousands](https://www.yahoo.com/news/pit-bull-attacked-boy-twice-151807892.html)
 <!-- feed end -->
 
 ### Onstream
