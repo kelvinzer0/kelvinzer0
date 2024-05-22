@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Morning Bid: Nvidia vigil almost over](https://finance.yahoo.com/news/morning-bid-nvidia-vigil-almost-043220045.html)
 - May 22 - [China ramps up de-dollarization efforts by dumping a record amount of US bonds](https://finance.yahoo.com/news/china-ramps-dollarization-efforts-dumping-040610198.html)
+- May 22 - [How 2 debunked accounts of sexual violence on Oct. 7 fueled a global dispute over Israel-Hamas war](https://www.yahoo.com/news/2-debunked-accounts-sexual-violence-040202794.html)
 - May 22 - [‘Once a cheater, always a cheater’: I’m the beneficiary on my ex-husband’s $250,000 life insurance. He’s now threatening to change it. Is he in breach of our divorce decree?](https://finance.yahoo.com/news/once-cheater-always-cheater-m-105200124.html)
-- May 22 - [New Veterans Wellness Center is one step closer to completion](https://www.yahoo.com/lifestyle/veterans-wellness-center-one-step-032658972.html)
+- May 22 - [Pentagon says none of the aid unloaded from US pier off coast of Gaza has been delivered to broader Palestinian population](https://www.yahoo.com/news/pentagon-says-none-aid-unloaded-210844718.html)
 - May 22 - [Mexico's intense heat sees howler monkeys fall dead from trees](https://www.yahoo.com/news/mexicos-intense-heat-sees-howler-014708182.html)
 <!-- feed end -->
 
