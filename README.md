@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 22 - [‘Everything is burning’: Battles rage outside Kharkiv as Ukraine tries to hold back Russian advance](https://www.yahoo.com/news/everything-burning-battles-rage-outside-191129858.html)
 - May 22 - [Religious Zealot Mike Johnson Is Speechless About Trump’s Womanizing](https://www.yahoo.com/news/religious-zealot-mike-johnson-speechless-180632155.html)
 - May 22 - [The stock market has already chosen a winner in the 2024 presidential election](https://finance.yahoo.com/news/stock-market-already-chosen-winner-123000226.html)
-- May 22 - [Members of the U.S. Senate face a vote on whether they support contraception access](https://www.yahoo.com/news/members-u-senate-face-vote-164454608.html)
 - May 22 - [Israel releases film of female conscripts held by Hamas](https://www.yahoo.com/news/israel-releases-film-female-conscripts-161812146.html)
-- May 22 - [A pit bull attacked a boy twice. Now, owner owes MS Coast family hundreds of thousands](https://www.yahoo.com/news/pit-bull-attacked-boy-twice-151807892.html)
+- May 22 - [Woman Who Took Dog for Compassionate Euthanasia Stunned To Discover He's Up for Adoption](https://www.yahoo.com/lifestyle/woman-took-dog-compassionate-euthanasia-161500802.html)
 <!-- feed end -->
 
 ### Onstream
