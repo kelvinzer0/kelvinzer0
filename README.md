@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [A Taco John's is coming to South Main Street in West Bend; construction is underway](https://www.yahoo.com/news/taco-johns-coming-south-main-100926196.html)
+- May 22 - [Filmmaker’s former Sacramento estate with 1880s farmhouse, unique mansion for sale. See it](https://www.yahoo.com/news/filmmaker-former-sacramento-estate-1880s-120000556.html)
+- May 22 - [Severe storms with strong winds, hail and flooding possible for Kentucky](https://www.yahoo.com/news/severe-storms-strong-winds-hail-115450902.html)
+- May 22 - [Critics Sum Up Donald Trump’s Latest Courthouse Rant With 1 Scathing Word](https://www.yahoo.com/news/critics-sum-donald-trump-latest-115341253.html)
+- May 22 - [Fact Check: This Video Clip Supposedly Shows a Female 'Time Traveler' Using a Cellphone in 1938. Here's the Backstory](https://www.yahoo.com/tech/fact-check-video-clip-supposedly-110000225.html)
 - May 22 - ['Snowflake' Eric Trump Mercilessly Mocked Over Raging Response To MSNBC Host's Joke](https://www.yahoo.com/news/snowflake-eric-trump-mercilessly-mocked-100523983.html)
-- May 22 - [Jealousy of porn actor led to murder attempt with golf club, LAPD says](https://www.yahoo.com/news/jealousy-porn-actor-led-murder-100038820.html)
-- May 22 - [China takes measures against 12 U.S. military-linked firms](https://www.yahoo.com/news/china-takes-measures-against-12-095623400.html)
-- May 22 - [Asheville I-26 Connector contract the 'largest' in NC history; What about local companies?](https://finance.yahoo.com/news/asheville-26-connector-contract-largest-092459184.html)
 <!-- feed end -->
 
 ### Onstream
