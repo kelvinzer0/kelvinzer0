@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Teen arrested after allegedly doing donuts in grass area of Henderson park](https://www.yahoo.com/news/teen-arrested-allegedly-doing-donuts-010620950.html)
+- May 22 - [Asia stocks edge up on Nvidia hopes, NZ dollar jumps](https://finance.yahoo.com/news/asia-stocks-edge-nvidia-hopes-024624303.html)
 - May 22 - [Pentagon says none of the aid unloaded from US pier off coast of Gaza has been delivered to broader Palestinian population](https://www.yahoo.com/news/pentagon-says-none-aid-unloaded-210844718.html)
+- May 22 - [Colonial Williamsburg president to be charged after hitting William & Mary student with SUV](https://www.yahoo.com/news/colonial-williamsburg-president-charged-hitting-005706546.html)
 - May 21 - [Ukrainian gunners finally get shells to stop Russians near Kharkiv](https://www.yahoo.com/news/ukrainian-gunners-finally-shells-stop-230402408.html)
 - May 21 - [‘Once a cheater, always a cheater’: I’m the beneficiary on my ex-husband’s $250,000 life insurance. He’s now threatening to change it. Is he in breach of our divorce decree?](https://finance.yahoo.com/news/once-cheater-always-cheater-m-105200124.html)
-- May 21 - [Fact Check: Online Ad Claims Dana Perino Is Leaving Fox News' 'The Five' Due to 'Tensions' with Sean Hannity. Here Are the Facts](https://www.yahoo.com/news/fact-check-online-ad-claims-220200576.html)
 <!-- feed end -->
 
 ### Onstream
