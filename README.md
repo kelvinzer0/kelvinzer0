@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 22 - [China ramps up de-dollarization efforts by dumping a record amount of US bonds](https://finance.yahoo.com/news/china-ramps-dollarization-efforts-dumping-040610198.html)
 - May 22 - [‘Once a cheater, always a cheater’: I’m the beneficiary on my ex-husband’s $250,000 life insurance. He’s now threatening to change it. Is he in breach of our divorce decree?](https://finance.yahoo.com/news/once-cheater-always-cheater-m-105200124.html)
-- May 22 - [These San Diego County places are often mispronounced](https://www.yahoo.com/lifestyle/san-diego-county-places-often-024049541.html)
 - May 22 - [Pentagon says none of the aid unloaded from US pier off coast of Gaza has been delivered to broader Palestinian population](https://www.yahoo.com/news/pentagon-says-none-aid-unloaded-210844718.html)
 - May 21 - [Suze Orman: This Is the Biggest Mistake You Can Make When Saving For Retirement](https://finance.yahoo.com/news/suze-orman-biggest-mistake-saving-235356654.html)
+- May 21 - [Ukrainian gunners finally get shells to stop Russians near Kharkiv](https://www.yahoo.com/news/ukrainian-gunners-finally-shells-stop-230402408.html)
 <!-- feed end -->
 
 ### Onstream
