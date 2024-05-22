@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 22 - [New details revealed in death of aspiring El Paso rapper in parking lot drug deal shooting](https://www.yahoo.com/news/details-revealed-death-aspiring-el-125217053.html)
 - May 22 - [The stock market has already chosen a winner in the 2024 presidential election](https://finance.yahoo.com/news/stock-market-already-chosen-winner-123000226.html)
-- May 22 - [Cathie Wood Is Loading Up on This Beaten-Down Growth Stock](https://finance.yahoo.com/news/cathie-wood-loading-beaten-down-122247100.html)
+- May 22 - [Snack company releases first-of-its-kind chip bag: 'The potential to revolutionize packaging as we know it'](https://www.yahoo.com/news/snack-company-releases-first-kind-113500551.html)
 - May 22 - [‘Once a cheater, always a cheater’: I’m the beneficiary on my ex-husband’s $250,000 life insurance. He’s now threatening to change it. Is he in breach of our divorce decree?](https://finance.yahoo.com/news/once-cheater-always-cheater-m-105200124.html)
-- May 22 - [Water levels of iconic American lake rise near capacity for first time in years: 'Water year 2024 is well on its way to receiving an A'](https://www.yahoo.com/news/water-levels-iconic-american-lake-110000504.html)
-- May 22 - [This Is What May’s Full Moon—The Flower Moon—Means for You](https://www.yahoo.com/lifestyle/may-full-moon-flower-moon-101900500.html)
+- May 22 - [Fact Check: This Video Clip Supposedly Shows a Female 'Time Traveler' Using a Cellphone in 1938. Here's the Backstory](https://www.yahoo.com/tech/fact-check-video-clip-supposedly-110000225.html)
 <!-- feed end -->
 
 ### Onstream
