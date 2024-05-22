@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Nvidia Forecast Shatters Estimates as AI Boom Stays Strong](https://finance.yahoo.com/news/nvidia-forecast-shatters-estimates-ai-210754051.html)
-- May 22 - [Family wants 6-time DUI offender, suspect in deadly crash ‘in prison for the rest of his life’](https://www.yahoo.com/news/family-wants-6-time-dui-203145143.html)
+- May 22 - [Extreme weather is having a dire effects on animals. Here’s what’s being done to protect them.](https://www.yahoo.com/news/extreme-weather-is-having-a-dire-effects-on-animals-heres-whats-being-done-to-protect-them-225415572.html)
+- May 22 - [Families of Israeli hostages release video of female soldiers being captured by Hamas](https://www.yahoo.com/news/families-israeli-hostages-release-video-214405610.html)
+- May 22 - [Nvidia’s incredibly pricey shares are about to get much cheaper](https://finance.yahoo.com/news/nvidia-incredibly-pricey-shares-much-211433712.html)
+- May 22 - [Nvidia forecasts quarterly revenue above estimates, unveils stock split](https://finance.yahoo.com/news/ai-heavyweight-nvidia-forecasts-quarterly-202236454.html)
 - May 22 - [What Chiefs coach Andy Reid said about Harrison Butker’s graduation speech comments](https://sports.yahoo.com/chiefs-coach-andy-reid-said-200002938.html)
-- May 22 - [Former Buckeye arrested on federal charges](https://sports.yahoo.com/former-buckeye-arrested-federal-charges-195412641.html)
-- May 22 - [Religious Zealot Mike Johnson Is Speechless About Trump’s Womanizing](https://www.yahoo.com/news/religious-zealot-mike-johnson-speechless-180632155.html)
 <!-- feed end -->
 
 ### Onstream
