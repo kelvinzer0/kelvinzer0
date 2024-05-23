@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 22 - [Extreme weather is having a dire effects on animals. Here’s what’s being done to protect them.](https://www.yahoo.com/news/extreme-weather-is-having-a-dire-effects-on-animals-heres-whats-being-done-to-protect-them-225415572.html)
+- May 22 - [Chechen leader meets Russia's Putin, offers more troops for Ukraine](https://www.yahoo.com/news/chechen-leader-meets-russias-putin-230956566.html)
+- May 22 - [Nvidia Announces a 10-for-1 Stock Split. Here's What Investors Need to Know.](https://finance.yahoo.com/news/nvidia-announces-10-1-stock-224801311.html)
+- May 22 - [One man dies, another taken to hospital after shooting at Wichita massage parlor](https://www.yahoo.com/news/one-man-dies-another-taken-221831586.html)
 - May 22 - [Families of Israeli hostages release video of female soldiers being captured by Hamas](https://www.yahoo.com/news/families-israeli-hostages-release-video-214405610.html)
-- May 22 - [Nvidia’s incredibly pricey shares are about to get much cheaper](https://finance.yahoo.com/news/nvidia-incredibly-pricey-shares-much-211433712.html)
 - May 22 - [Nvidia forecasts quarterly revenue above estimates, unveils stock split](https://finance.yahoo.com/news/ai-heavyweight-nvidia-forecasts-quarterly-202236454.html)
-- May 22 - [What Chiefs coach Andy Reid said about Harrison Butker’s graduation speech comments](https://sports.yahoo.com/chiefs-coach-andy-reid-said-200002938.html)
 <!-- feed end -->
 
 ### Onstream
