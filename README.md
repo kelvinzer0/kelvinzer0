@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - ['Demand is just so strong': Nvidia CEO Jensen Huang tells Yahoo Finance supply can't keep up](https://finance.yahoo.com/news/demand-is-just-so-strong-nvidia-ceo-jensen-huang-tells-yahoo-finance-supply-cant-keep-up-012653951.html)
-- May 23 - [Man shot 10 times with assault rifle when guns are pulled outside a Tri-Cities bar](https://www.yahoo.com/news/man-shot-10-times-assault-005416651.html)
-- May 23 - [Taiwan mobilises forces after China starts 'punishment' drills](https://www.yahoo.com/news/china-starts-military-drills-around-003531004.html)
+- May 23 - [American Airlines claimed a child was at fault for being secretly recorded in a restroom. It’s now changing its response](https://www.yahoo.com/news/american-airlines-claimed-child-fault-021220538.html)
+- May 23 - [Furious China launches 'punishment' war games around Taiwan](https://www.yahoo.com/news/china-starts-military-drills-around-003531004.html)
 - May 22 - [Chechen leader meets Russia's Putin, offers more troops for Ukraine](https://www.yahoo.com/news/chechen-leader-meets-russias-putin-230956566.html)
 - May 22 - [Nvidia Announces a 10-for-1 Stock Split. Here's What Investors Need to Know.](https://finance.yahoo.com/news/nvidia-announces-10-1-stock-224801311.html)
+- May 22 - [Families of Israeli hostages release video of female soldiers being captured by Hamas](https://www.yahoo.com/news/families-israeli-hostages-release-video-214405610.html)
 <!-- feed end -->
 
 ### Onstream
