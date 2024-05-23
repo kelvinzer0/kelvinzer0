@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 23 - ['Demand is just so strong': Nvidia CEO Jensen Huang tells Yahoo Finance supply can't keep up](https://finance.yahoo.com/news/demand-is-just-so-strong-nvidia-ceo-jensen-huang-tells-yahoo-finance-supply-cant-keep-up-012653951.html)
+- May 23 - [Man shot 10 times with assault rifle when guns are pulled outside a Tri-Cities bar](https://www.yahoo.com/news/man-shot-10-times-assault-005416651.html)
+- May 23 - [Taiwan mobilises forces after China starts 'punishment' drills](https://www.yahoo.com/news/china-starts-military-drills-around-003531004.html)
 - May 22 - [Chechen leader meets Russia's Putin, offers more troops for Ukraine](https://www.yahoo.com/news/chechen-leader-meets-russias-putin-230956566.html)
 - May 22 - [Nvidia Announces a 10-for-1 Stock Split. Here's What Investors Need to Know.](https://finance.yahoo.com/news/nvidia-announces-10-1-stock-224801311.html)
-- May 22 - [New pictures of the US Air Force's newest stealth bomber — the B-21 Raider — just dropped as flight testing continues](https://www.yahoo.com/news/pictures-us-air-forces-newest-211024145.html)
-- May 22 - [Stretch of Grand Haven boardwalk closed ‘effective immediately’](https://www.yahoo.com/news/stretch-grand-haven-boardwalk-closed-205143616.html)
 <!-- feed end -->
 
 ### Onstream
