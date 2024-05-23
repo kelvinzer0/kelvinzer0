@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [UPS Driver Fatally Shot By Childhood Friend While Delivering Packages: DA](https://www.yahoo.com/news/ups-driver-fatally-shot-childhood-210655553.html)
+- May 23 - [Rapper Sean Kingston's home raided by SWAT; mother arrested on fraud and theft charges](https://www.yahoo.com/entertainment/rapper-sean-kingstons-home-raided-220456135.html)
+- May 23 - [Car crash near Erie's Bayfront Parkway claims life of motorist whose car flipped over](https://www.yahoo.com/news/car-crash-near-eries-bayfront-202658650.html)
 - May 23 - [Dow falls more than 600 points, notching worst day of the year](https://finance.yahoo.com/news/dow-falls-more-600-points-181937911.html)
-- May 23 - [Comedian Dave Chappelle calls Israel-Hamas war a 'genocide,' urges Americans to fight antisemitism](https://www.yahoo.com/entertainment/comedian-dave-chappelle-calls-israel-194425293.html)
+- May 23 - [Dave Chappelle says there's a 'genocide' in the Gaza Strip as Israel-Hamas war rages on there](https://www.yahoo.com/entertainment/comedian-dave-chappelle-calls-israel-194425293.html)
 - May 23 - [He fell ill on a cruise. Before he boarded the rescue boat, they handed him the bill](https://www.yahoo.com/news/fell-ill-cruise-boarded-rescue-193244621.html)
-- May 23 - [Explorers discover possible wreckage of World War II ace Richard Bong's plane in South Pacific](https://www.yahoo.com/news/explorers-discover-possible-wreckage-world-191743836.html)
 <!-- feed end -->
 
 ### Onstream
