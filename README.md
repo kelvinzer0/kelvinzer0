@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [The stock market has already chosen a winner in the 2024 presidential election](https://finance.yahoo.com/news/stock-market-already-chosen-winner-123000226.html)
-- May 23 - [Google Parent Alphabet Is Selling Shares of 2 Hypergrowth Stocks and Piling Into a Promising Artificial Intelligence (AI) Company](https://finance.yahoo.com/news/google-parent-alphabet-selling-shares-092100032.html)
-- May 23 - [Hurricane season 2024: What Coastal Benders need to know](https://www.yahoo.com/news/hurricane-season-2024-coastal-benders-080751350.html)
+- May 23 - [‘You can never break the casino’: NBA legend Charles Barkley reflects on losing $25 million in Las Vegas](https://finance.yahoo.com/news/never-break-casino-nba-legend-101400905.html)
+- May 23 - [They flew to New Caledonia for a romantic escape. Now they’re trapped as Macron tries to quell deadly riots](https://www.yahoo.com/news/flew-caledonia-romantic-escape-now-054547470.html)
 - May 23 - [China's food security dream faces land, soil and water woes](https://www.yahoo.com/news/chinas-food-security-dream-faces-063705718.html)
+- May 23 - [Norway to block entry for most Russian tourists, Moscow says it will respond](https://www.yahoo.com/news/norway-further-restricts-access-russian-052425745.html)
 - May 23 - [Here’s what we know about the Trump aide known as ‘the human printer’](https://www.yahoo.com/news/know-trump-aide-known-human-043720643.html)
 <!-- feed end -->
 
