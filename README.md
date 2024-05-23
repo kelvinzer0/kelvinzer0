@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 23 - [Scottie Scheffler incident: Louisville police release findings of investigation into police officer](https://sports.yahoo.com/scottie-scheffler-incident-louisville-police-release-findings-of-investigation-into-police-officer-154703271.html)
+- May 23 - [Tesla drops reference to its goal of delivering 20 million vehicles annually in impact report](https://finance.yahoo.com/news/tesla-drops-reference-goal-delivering-143539555.html)
 - May 23 - [Estonia says Russia removed navigation buoys on border river](https://www.yahoo.com/news/estonia-says-russia-removed-navigation-135328597.html)
-- May 23 - [Pro-Palestinian protesters leave after Drexel University decides to have police clear encampment](https://www.yahoo.com/news/pro-palestinian-protesters-leave-drexel-120019670.html)
-- May 23 - [Scientists believe accident with battery-like supercapacitors allows for greater energy storage: 'It could be a turning point'](https://www.yahoo.com/tech/scientists-believe-accident-battery-supercapacitors-120000633.html)
+- May 23 - [Putin decree outlines Russian response to any US seizure of frozen assets](https://www.yahoo.com/news/putin-decree-outlines-russian-response-123224147.html)
 - May 23 - [Here's how much the average American has in their 401(k) — in their 40s, 50s, 60s and 70s. How do you compare?](https://finance.yahoo.com/news/heres-much-average-american-401-110400839.html)
-- May 23 - [‘You can never break the casino’: NBA legend Charles Barkley reflects on losing $25 million in Las Vegas](https://finance.yahoo.com/news/never-break-casino-nba-legend-101400905.html)
 <!-- feed end -->
 
 ### Onstream
