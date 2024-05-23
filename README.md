@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 23 - ['Demand is just so strong': Nvidia CEO Jensen Huang tells Yahoo Finance supply can't keep up](https://finance.yahoo.com/news/demand-is-just-so-strong-nvidia-ceo-jensen-huang-tells-yahoo-finance-supply-cant-keep-up-012653951.html)
+- May 23 - [Female driver arrested for 405 Freeway rampage identified](https://www.yahoo.com/news/female-driver-arrested-405-freeway-003239437.html)
 - May 22 - [Chechen leader meets Russia's Putin, offers more troops for Ukraine](https://www.yahoo.com/news/chechen-leader-meets-russias-putin-230956566.html)
-- May 22 - [Nvidia Announces a 10-for-1 Stock Split. Here's What Investors Need to Know.](https://finance.yahoo.com/news/nvidia-announces-10-1-stock-224801311.html)
-- May 22 - [One man dies, another taken to hospital after shooting at Wichita massage parlor](https://www.yahoo.com/news/one-man-dies-another-taken-221831586.html)
-- May 22 - [Families of Israeli hostages release video of female soldiers being captured by Hamas](https://www.yahoo.com/news/families-israeli-hostages-release-video-214405610.html)
-- May 22 - [Nvidia forecasts quarterly revenue above estimates, unveils stock split](https://finance.yahoo.com/news/ai-heavyweight-nvidia-forecasts-quarterly-202236454.html)
+- May 22 - [Harvard board bars 13 pro-Palestine student protesters from graduating, overruling faculty](https://www.yahoo.com/news/harvard-board-bars-13-pro-230843224.html)
+- May 22 - [Armed road rage incident under investigation in Virginia Beach](https://www.yahoo.com/news/armed-road-rage-incident-under-215627730.html)
 <!-- feed end -->
 
 ### Onstream
