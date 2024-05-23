@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Prince William forced to cancel royal visit last-minute](https://www.yahoo.com/lifestyle/prince-william-forced-cancel-royal-202054877.html)
+- May 23 - [The stock market has already chosen a winner in the 2024 presidential election](https://finance.yahoo.com/news/stock-market-already-chosen-winner-123000226.html)
+- May 23 - [Google Parent Alphabet Is Selling Shares of 2 Hypergrowth Stocks and Piling Into a Promising Artificial Intelligence (AI) Company](https://finance.yahoo.com/news/google-parent-alphabet-selling-shares-092100032.html)
+- May 23 - [Hurricane season 2024: What Coastal Benders need to know](https://www.yahoo.com/news/hurricane-season-2024-coastal-benders-080751350.html)
+- May 23 - [China's food security dream faces land, soil and water woes](https://www.yahoo.com/news/chinas-food-security-dream-faces-063705718.html)
 - May 23 - [Here’s what we know about the Trump aide known as ‘the human printer’](https://www.yahoo.com/news/know-trump-aide-known-human-043720643.html)
-- May 23 - [“Lives will be saved”: Crestwood Medical opening North Alabama’s first freestanding medical center](https://www.yahoo.com/news/lives-saved-crestwood-medical-opening-035621448.html)
-- May 23 - [Kaitlin Collins Shuts Down Ted Cruz for Pushing 2020 Election Fraud Lies: ‘There Was no Basis’ | Video](https://www.yahoo.com/news/kaitlin-collins-shuts-down-ted-031010097.html)
-- May 23 - [Furious China launches 'punishment' war games around Taiwan](https://www.yahoo.com/news/china-starts-military-drills-around-003531004.html)
 <!-- feed end -->
 
 ### Onstream
