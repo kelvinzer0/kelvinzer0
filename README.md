@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Russian forces may have seized first Estonian ground robot in Ukraine](https://www.yahoo.com/news/russian-forces-may-seized-first-150320050.html)
-- May 23 - [Pennsylvania dad demands answers after son, 5, has teeth knocked out in bloody assault at school, lawyer says](https://www.yahoo.com/news/pennsylvania-dad-demands-answers-son-144323454.html)
-- May 23 - [Estonia says Russia removed navigation buoys on border river](https://www.yahoo.com/news/estonia-says-russia-removed-navigation-135328597.html)
-- May 23 - [Putin decree outlines Russian response to any US seizure of frozen assets](https://www.yahoo.com/news/putin-decree-outlines-russian-response-123224147.html)
-- May 23 - [Oldham County High School teacher allegedly said he 'would become the next school shooter'](https://www.yahoo.com/news/oldham-county-high-school-teacher-121548136.html)
+- May 23 - [Japan's new whaling ship ready for first hunt](https://www.yahoo.com/news/japans-whaling-ship-ready-first-184303646.html)
+- May 23 - [Mike Johnson Spews Racist “Great Replacement” Screed](https://www.yahoo.com/news/mike-johnson-spews-racist-great-173826634.html)
+- May 23 - [Leander ISD employee on leave following ‘inappropriate’ behavior during 8th-grade field trip](https://www.yahoo.com/news/leander-isd-employee-leave-following-164401413.html)
+- May 23 - [Mountain Lion Attacks & Drags Away Dog in California](https://www.yahoo.com/news/mountain-lion-attacks-drags-away-163809660.html)
+- May 23 - [Some Americans live in a parallel economy where everything is terrible](https://finance.yahoo.com/news/some-americans-live-in-a-parallel-economy-where-everything-is-terrible-162707378.html)
 <!-- feed end -->
 
 ### Onstream
