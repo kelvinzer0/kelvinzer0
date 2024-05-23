@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Georgian PM says EU official made 'horrific threat'](https://www.yahoo.com/news/georgian-pm-says-eu-official-202820159.html)
+- May 23 - [UPS Driver Fatally Shot By Childhood Friend While Delivering Packages: DA](https://www.yahoo.com/news/ups-driver-fatally-shot-childhood-210655553.html)
+- May 23 - [Dow falls more than 600 points, notching worst day of the year](https://finance.yahoo.com/news/dow-falls-more-600-points-181937911.html)
 - May 23 - [Comedian Dave Chappelle calls Israel-Hamas war a 'genocide,' urges Americans to fight antisemitism](https://www.yahoo.com/entertainment/comedian-dave-chappelle-calls-israel-194425293.html)
 - May 23 - [He fell ill on a cruise. Before he boarded the rescue boat, they handed him the bill](https://www.yahoo.com/news/fell-ill-cruise-boarded-rescue-193244621.html)
-- May 23 - [Biden canceling student debt for more than 160,000 borrowers](https://www.yahoo.com/news/biden-canceling-student-debt-more-193200960.html)
-- May 23 - [The UK Just Got Some New Banknotes, And Everyone Is Making The Same Exact Joke About Them](https://finance.yahoo.com/news/everyone-making-same-exact-joke-191828444.html)
+- May 23 - [Explorers discover possible wreckage of World War II ace Richard Bong's plane in South Pacific](https://www.yahoo.com/news/explorers-discover-possible-wreckage-world-191743836.html)
 <!-- feed end -->
 
 ### Onstream
