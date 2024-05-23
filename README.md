@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 23 - [Japan's new whaling ship ready for first hunt](https://www.yahoo.com/news/japans-whaling-ship-ready-first-184303646.html)
-- May 23 - [Mike Johnson Spews Racist “Great Replacement” Screed](https://www.yahoo.com/news/mike-johnson-spews-racist-great-173826634.html)
-- May 23 - [Leander ISD employee on leave following ‘inappropriate’ behavior during 8th-grade field trip](https://www.yahoo.com/news/leander-isd-employee-leave-following-164401413.html)
-- May 23 - [Mountain Lion Attacks & Drags Away Dog in California](https://www.yahoo.com/news/mountain-lion-attacks-drags-away-163809660.html)
-- May 23 - [Some Americans live in a parallel economy where everything is terrible](https://finance.yahoo.com/news/some-americans-live-in-a-parallel-economy-where-everything-is-terrible-162707378.html)
+- May 23 - [Comedian Dave Chappelle calls Israel-Hamas war a 'genocide,' urges Americans to fight antisemitism](https://www.yahoo.com/entertainment/comedian-dave-chappelle-calls-israel-194425293.html)
+- May 23 - [Congratulations Class of 2024! Dreyfoos School of the Arts graduation photos](https://www.yahoo.com/news/congratulations-class-2024-dreyfoos-school-191626586.html)
+- May 23 - [Louisiana Republicans vote to criminalize possession of abortion pills](https://www.yahoo.com/news/louisiana-republicans-vote-criminalize-possession-185737322.html)
+- May 23 - ['It's a crushing weight': Baird family partners with TxDOT after losing teen](https://www.yahoo.com/news/crushing-weight-baird-family-partners-174703033.html)
+- May 23 - [Scientists Attempt to Explain Why Hundreds of Stars Disappeared From Night Sky](https://www.yahoo.com/news/scientists-attempt-explain-why-hundreds-170321215.html)
 <!-- feed end -->
 
 ### Onstream
