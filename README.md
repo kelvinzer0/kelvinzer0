@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [American missionary couple killed by gang in Haiti, family says](https://www.yahoo.com/news/american-missionary-couple-killed-gang-150126309.html)
-- May 24 - [The wreck of a legendary WWII US submarine has been found at the bottom of the South China Sea](https://www.yahoo.com/tech/wreck-legendary-wwii-us-submarine-171546231.html)
-- May 24 - [US student invited school football team to Congo to ‘dig wells’ but trip was a coup attempt](https://www.yahoo.com/news/us-student-invited-school-football-164502121.html)
+- May 24 - [Central KY school district hires new superintendent. ‘Her passion ... is infectious’](https://www.yahoo.com/news/central-ky-school-district-hires-184156604.html)
+- May 24 - [Machete-swinging man killed by police in Pasco identified. He’d made threats before](https://www.yahoo.com/news/machete-swinging-man-killed-police-181343811.html)
+- May 24 - [Federal judge makes key rulings ahead of Hunter Biden’s trial on gun charges in June](https://www.yahoo.com/news/federal-judge-makes-key-rulings-175353704.html)
 - May 24 - [Trump Has a New V.P. Contender—and He’s the Worst of Them All](https://www.yahoo.com/news/trump-v-p-contender-worst-153130049.html)
 - May 24 - [Italian teenage computer wizard set to become the first saint of the Millennial generation](https://www.yahoo.com/news/italian-teenage-computer-wizard-set-144057476.html)
 <!-- feed end -->
