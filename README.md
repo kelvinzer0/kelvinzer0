@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [American bank issues one-of-a-kind 100-year CD. How does it work and should you invest?](https://finance.yahoo.com/news/american-bank-issues-one-kind-112200301.html)
-- May 24 - [Here's the average Social Security check at age 62 — is it enough for you to collect your benefits early?](https://finance.yahoo.com/news/heres-average-social-security-check-102800050.html)
+- May 24 - [Trump supporters sound off on New York criminal trial](https://www.yahoo.com/news/trump-supporters-sound-off-york-122804137.html)
+- May 24 - [The Challenger 3 Tank Must Address the Harsh Truths of War—or Else](https://www.yahoo.com/tech/challenger-3-tank-must-address-120000679.html)
+- May 24 - [Americans Are Absolutely Certain Europeans Have NO IDEA What Is Happening In These Pictures](https://www.yahoo.com/entertainment/americans-absolutely-certain-europeans-no-103621165.html)
+- May 24 - [Opryland USA missed in Nashville, but where are the old theme park relics?](https://www.yahoo.com/news/nashville-nostalgia-opryland-usa-missed-100151265.html)
 - May 24 - [Putin wants Ukraine ceasefire on current frontlines, sources say](https://www.yahoo.com/news/putin-wants-ukraine-ceasefire-current-090432297.html)
-- May 24 - [Killer whales keep attacking and sinking boats. Scientists now know why, study says.](https://www.yahoo.com/news/killer-whales-keep-attacking-sinking-090349442.html)
-- May 24 - [Iran's military says Raisi's helicopter caught fire soon after crash and there was no sign of attack](https://www.yahoo.com/news/irans-military-says-raisis-helicopter-081827665.html)
 <!-- feed end -->
 
 ### Onstream
