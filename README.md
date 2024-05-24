@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [Nashville nostalgia: Opryland USA missed by many, but where are the old theme park relics?](https://www.yahoo.com/news/nashville-nostalgia-opryland-usa-missed-100151265.html)
-- May 24 - [New program offering up to $10,000 to protect your home from a hurricane. How to apply](https://finance.yahoo.com/news/program-offering-10-000-protect-100000860.html)
-- May 24 - [Storms forecasted for Myrtle Beach area this weekend. Will it be a washout? What to expect](https://www.yahoo.com/news/storms-forecasted-myrtle-beach-area-100000895.html)
-- May 24 - [Dead bugs, flies and improperly thawing raw meat. Worst Horry County restaurant inspections](https://www.yahoo.com/news/dead-bugs-flies-improperly-thawing-093000360.html)
+- May 24 - [American bank issues one-of-a-kind 100-year CD. How does it work and should you invest?](https://finance.yahoo.com/news/american-bank-issues-one-kind-112200301.html)
+- May 24 - [Here's the average Social Security check at age 62 — is it enough for you to collect your benefits early?](https://finance.yahoo.com/news/heres-average-social-security-check-102800050.html)
 - May 24 - [Putin wants Ukraine ceasefire on current frontlines, sources say](https://www.yahoo.com/news/putin-wants-ukraine-ceasefire-current-090432297.html)
+- May 24 - [Killer whales keep attacking and sinking boats. Scientists now know why, study says.](https://www.yahoo.com/news/killer-whales-keep-attacking-sinking-090349442.html)
+- May 24 - [Iran's military says Raisi's helicopter caught fire soon after crash and there was no sign of attack](https://www.yahoo.com/news/irans-military-says-raisis-helicopter-081827665.html)
 <!-- feed end -->
 
 ### Onstream
