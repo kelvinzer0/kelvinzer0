@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [Nvidia Is Just One 'Perfect' Stock To Watch. Here Are 22 More.](https://www.investors.com/research/stock-screener-stocks-to-buy-watch/?src=A00220&yptr=yahoo)
-- May 24 - [What Haley donors, voters think about her saying she'll vote for Trump in November](https://www.yahoo.com/news/haley-donors-voters-think-her-193318554.html)
-- May 24 - [Scientists have discovered a theoretically habitable, Earth-size planet](https://www.yahoo.com/news/scientists-discovered-theoretically-habitable-earth-191608025.html)
-- May 24 - [Video of protest against Iran's Raisi at UN is altered](https://www.yahoo.com/news/video-protest-against-irans-raisi-191209477.html)
-- May 24 - [Clarence Thomas Criticizes Brown V. Board Of Education Decision While Ruling In Racial Gerrymandering Case, Black Twitter Calls Him ‘Uncle Ruckus’](https://www.yahoo.com/news/clarence-thomas-criticizes-brown-v-174419147.html)
+- May 24 - [Canada groceries: Vancouver shopper's video goes viral for showing underweight bag of frozen No Name veggies](https://www.yahoo.com/news/canada-groceries-vancouver-shoppers-video-goes-viral-for-showing-underweight-bag-of-frozen-no-name-veggies-204920012.html)
+- May 24 - [Rapper Sean Kingston and his mother stole more than $1 million through fraud, authorities say](https://www.yahoo.com/entertainment/rapper-sean-kingston-mother-stole-202052279.html)
+- May 24 - [Mother who beat her toddler with bamboo cane before shaking him to death jailed for murder](https://www.yahoo.com/news/mother-beat-her-toddler-bamboo-141539462.html)
+- May 24 - [UAW files objection to Mercedes vote, accuses company of intimidating workers](https://www.yahoo.com/news/uaw-files-objection-mercedes-vote-194008644.html)
+- May 24 - [Strike On Russian Strategic Early Warning Radar Site Is A Big Deal](https://www.yahoo.com/news/strike-russian-strategic-early-warning-190843708.html)
 <!-- feed end -->
 
 ### Onstream
