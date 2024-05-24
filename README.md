@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 24 - [Top Russian military officials are being arrested. Why is it happening?](https://www.yahoo.com/news/top-russian-military-officials-being-042420984.html)
 - May 24 - [USS Harder: Wreck of famed US Navy World War II sub found off Philippines](https://www.yahoo.com/news/uss-harder-wreck-famed-us-040741587.html)
-- May 23 - [Substitute teacher accused of engaging in sex act with student indicted, facing additional charges](https://www.yahoo.com/news/substitute-teacher-accused-engaging-sex-234950583.html)
+- May 24 - [U.S., allies call for Taiwan to be allowed to take part in WHO meeting](https://www.yahoo.com/news/u-allies-call-taiwan-allowed-021816075.html)
+- May 24 - [China stages mock missile strikes on Taiwan, jets with live missiles used in drills](https://www.yahoo.com/news/china-starts-second-day-war-003752965.html)
 - May 23 - [SpaceX mulling tender offer at $200 billion valuation, Bloomberg News reports](https://finance.yahoo.com/news/spacex-mulling-tender-offer-200-220934351.html)
-- May 23 - [Woman accused of conspiring with Las Vegas casino dealer to cheat](https://www.yahoo.com/news/woman-accused-conspiring-las-vegas-215029477.html)
 <!-- feed end -->
 
 ### Onstream
