@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [Canada groceries: Vancouver shopper's video goes viral for showing underweight bag of frozen No Name veggies](https://www.yahoo.com/news/canada-groceries-vancouver-shoppers-video-goes-viral-for-showing-underweight-bag-of-frozen-no-name-veggies-204920012.html)
+- May 24 - [Aerials show standoff between police and suspect on Anaheim freeway](https://www.yahoo.com/news/aerials-show-standoff-between-police-210024486.html)
+- May 24 - [Is Skate Legend Tony Hawk About To Buy An Entire Southern California Town For $6,600,000?](https://finance.yahoo.com/news/skate-legend-tony-hawk-buy-210012834.html)
 - May 24 - [Rapper Sean Kingston and his mother stole more than $1 million through fraud, authorities say](https://www.yahoo.com/entertainment/rapper-sean-kingston-mother-stole-202052279.html)
-- May 24 - [Mother who beat her toddler with bamboo cane before shaking him to death jailed for murder](https://www.yahoo.com/news/mother-beat-her-toddler-bamboo-141539462.html)
-- May 24 - [UAW files objection to Mercedes vote, accuses company of intimidating workers](https://www.yahoo.com/news/uaw-files-objection-mercedes-vote-194008644.html)
-- May 24 - [Strike On Russian Strategic Early Warning Radar Site Is A Big Deal](https://www.yahoo.com/news/strike-russian-strategic-early-warning-190843708.html)
+- May 24 - [US-supplied Himars ‘completely ineffective’ as Russia jams skies with new tech](https://www.yahoo.com/tech/us-supplied-himars-completely-ineffective-190152865.html)
+- May 24 - [Warning: You Can't Unsee Donald Trump's Bizarre Dance](https://www.yahoo.com/entertainment/warning-cant-unsee-donald-trumps-185745441.html)
 <!-- feed end -->
 
 ### Onstream
