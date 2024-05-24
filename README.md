@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 24 - [Man insults judge who sentenced him to 12 years in prison for attacking police during Capitol riot](https://www.yahoo.com/news/man-insults-judge-sentenced-him-215559676.html)
 - May 24 - [Aerials show standoff between police and suspect on Anaheim freeway](https://www.yahoo.com/news/aerials-show-standoff-between-police-210024486.html)
-- May 24 - [Is Skate Legend Tony Hawk About To Buy An Entire Southern California Town For $6,600,000?](https://finance.yahoo.com/news/skate-legend-tony-hawk-buy-210012834.html)
-- May 24 - [Rapper Sean Kingston and his mother stole more than $1 million through fraud, authorities say](https://www.yahoo.com/entertainment/rapper-sean-kingston-mother-stole-202052279.html)
-- May 24 - [US-supplied Himars ‘completely ineffective’ as Russia jams skies with new tech](https://www.yahoo.com/tech/us-supplied-himars-completely-ineffective-190152865.html)
 - May 24 - [Warning: You Can't Unsee Donald Trump's Bizarre Dance](https://www.yahoo.com/entertainment/warning-cant-unsee-donald-trumps-185745441.html)
+- May 24 - [The wreck of a legendary WWII US submarine has been found at the bottom of the South China Sea](https://www.yahoo.com/tech/wreck-legendary-wwii-us-submarine-171546231.html)
+- May 24 - [Suspect dead after chase, standoff on Orange County freeway](https://www.yahoo.com/news/police-standoff-91-freeway-orange-171330820.html)
 <!-- feed end -->
 
 ### Onstream
