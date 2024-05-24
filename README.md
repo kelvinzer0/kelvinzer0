@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [Central KY school district hires new superintendent. ‘Her passion ... is infectious’](https://www.yahoo.com/news/central-ky-school-district-hires-184156604.html)
-- May 24 - [Machete-swinging man killed by police in Pasco identified. He’d made threats before](https://www.yahoo.com/news/machete-swinging-man-killed-police-181343811.html)
-- May 24 - [Federal judge makes key rulings ahead of Hunter Biden’s trial on gun charges in June](https://www.yahoo.com/news/federal-judge-makes-key-rulings-175353704.html)
-- May 24 - [Trump Has a New V.P. Contender—and He’s the Worst of Them All](https://www.yahoo.com/news/trump-v-p-contender-worst-153130049.html)
-- May 24 - [Italian teenage computer wizard set to become the first saint of the Millennial generation](https://www.yahoo.com/news/italian-teenage-computer-wizard-set-144057476.html)
+- May 24 - [Nvidia Is Just One 'Perfect' Stock To Watch. Here Are 22 More.](https://www.investors.com/research/stock-screener-stocks-to-buy-watch/?src=A00220&yptr=yahoo)
+- May 24 - [What Haley donors, voters think about her saying she'll vote for Trump in November](https://www.yahoo.com/news/haley-donors-voters-think-her-193318554.html)
+- May 24 - [Scientists have discovered a theoretically habitable, Earth-size planet](https://www.yahoo.com/news/scientists-discovered-theoretically-habitable-earth-191608025.html)
+- May 24 - [Video of protest against Iran's Raisi at UN is altered](https://www.yahoo.com/news/video-protest-against-irans-raisi-191209477.html)
+- May 24 - [Clarence Thomas Criticizes Brown V. Board Of Education Decision While Ruling In Racial Gerrymandering Case, Black Twitter Calls Him ‘Uncle Ruckus’](https://www.yahoo.com/news/clarence-thomas-criticizes-brown-v-174419147.html)
 <!-- feed end -->
 
 ### Onstream
