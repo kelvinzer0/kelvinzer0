@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 24 - [American missionary couple killed by gang in Haiti, family says](https://www.yahoo.com/news/american-missionary-couple-killed-gang-150126309.html)
+- May 24 - [The wreck of a legendary WWII US submarine has been found at the bottom of the South China Sea](https://www.yahoo.com/tech/wreck-legendary-wwii-us-submarine-171546231.html)
 - May 24 - [US student invited school football team to Congo to ‘dig wells’ but trip was a coup attempt](https://www.yahoo.com/news/us-student-invited-school-football-164502121.html)
+- May 24 - [Trump Has a New V.P. Contender—and He’s the Worst of Them All](https://www.yahoo.com/news/trump-v-p-contender-worst-153130049.html)
 - May 24 - [Italian teenage computer wizard set to become the first saint of the Millennial generation](https://www.yahoo.com/news/italian-teenage-computer-wizard-set-144057476.html)
-- May 24 - [‘Enough is enough’: Police say ‘Middle School bicycle gangs’ wreaking havoc in downtown Plymouth](https://www.yahoo.com/news/enough-enough-police-middle-school-134032521.html)
-- May 24 - [CNN reporter struck by size of pro-Trump rally in 'one of the bluest counties in the entire country'](https://www.yahoo.com/news/cnn-reporter-struck-size-pro-130354425.html)
-- May 24 - [Toyota SUV explodes in Los Angeles parking lot](https://www.yahoo.com/news/toyota-suv-explodes-los-angeles-125243301.html)
 <!-- feed end -->
 
 ### Onstream
