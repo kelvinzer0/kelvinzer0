@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 24 - [Top Russian military officials are being arrested. Why is it happening?](https://www.yahoo.com/news/top-russian-military-officials-being-042420984.html)
-- May 24 - [U.S., allies call for Taiwan to be allowed to take part in WHO meeting](https://www.yahoo.com/news/u-allies-call-taiwan-allowed-021816075.html)
-- May 23 - [Decades of industrial waste to be cleaned up in Montana following years of negotiations](https://www.yahoo.com/news/decades-industrial-waste-cleaned-montana-224650994.html)
+- May 24 - [USS Harder: Wreck of famed US Navy World War II sub found off Philippines](https://www.yahoo.com/news/uss-harder-wreck-famed-us-040741587.html)
+- May 24 - [Exclusive-Nvidia cuts China prices in Huawei chip fight, sources say](https://www.yahoo.com/tech/exclusive-nvidia-cuts-china-prices-033402120.html)
+- May 24 - [‘Makes me sick:’ Detectives search for crime syndicate pickpocketing Costco shoppers](https://www.yahoo.com/news/makes-sick-detectives-search-crime-001735963.html)
 - May 23 - [SpaceX mulling tender offer at $200 billion valuation, Bloomberg News reports](https://finance.yahoo.com/news/spacex-mulling-tender-offer-200-220934351.html)
-- May 23 - [Man robbed, beaten while eating at south St. Louis restaurant](https://www.yahoo.com/news/man-robbed-beaten-while-eating-215158628.html)
 <!-- feed end -->
 
 ### Onstream
