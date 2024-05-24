@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [Amazon Memorial Day sale: Get unreal savings on Aiper, DeWalt, and Shark](https://www.yahoo.com/tech/amazon-early-memorial-day-sale-155132562.html)
-- May 24 - [Why every business in Goodyear must meet a new license requirement](https://finance.yahoo.com/news/why-every-business-goodyear-must-130211942.html)
-- May 24 - [Fact Check: True Story of a South African Farmer Killed by a Wild Hippopotamus He Rescued](https://www.yahoo.com/news/fact-check-true-story-south-130000902.html)
+- May 24 - [3 Things You’ll Have To Give Up If You Want To Build Wealth](https://finance.yahoo.com/news/why-not-getting-rich-3-120029703.html)
+- May 24 - [Toyota SUV explodes in Los Angeles parking lot](https://www.yahoo.com/news/toyota-suv-explodes-los-angeles-125243301.html)
 - May 24 - [Cognitive Decline? Trump Brags About Putting His Pants On by Himself](https://www.yahoo.com/news/cognitive-decline-trump-brags-putting-125138917.html)
-- May 24 - [Retirement Planning: What Is the Safe Withdrawal Rate?](https://finance.yahoo.com/news/retirement-planning-safe-withdrawal-rate-120009787.html)
+- May 24 - [Rattlesnake Bites 2-Year-Old in Family’s Backyard](https://www.yahoo.com/news/rattlesnake-bites-2-old-family-124842601.html)
+- May 24 - [Americans Are Absolutely Certain Europeans Have NO IDEA What Is Happening In These Pictures](https://www.yahoo.com/entertainment/americans-absolutely-certain-europeans-no-103621165.html)
 <!-- feed end -->
 
 ### Onstream
