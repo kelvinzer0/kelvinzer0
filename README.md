@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [Macron hits Putin for rejecting truce with Ukraine during Olympics](https://www.yahoo.com/news/macron-hits-putin-rejecting-truce-002755416.html)
 - May 24 - [Former Train bassist Charlie Colin, 58, died after slipping in the shower. Here's why experts say bathrooms are uniquely hazardous places.](https://www.yahoo.com/entertainment/former-train-bassist-charlie-colin-58-died-after-slipping-in-the-shower-heres-why-experts-say-bathrooms-are-uniquely-hazardous-places-002302845.html)
-- May 23 - [Sutter Medical Center to expand in midtown Sacramento](https://www.yahoo.com/news/sutter-medical-center-expand-midtown-232826967.html)
-- May 23 - [Rapper Sean Kingston's home raided by SWAT; mother arrested on fraud and theft charges](https://www.yahoo.com/entertainment/rapper-sean-kingstons-home-raided-220456135.html)
-- May 23 - [Ukraine's long-range glide bomb blunted by Russian jamming](https://www.yahoo.com/news/ukraines-long-range-glide-bomb-210622891.html)
+- May 23 - [Man robbed, beaten while eating at south St. Louis restaurant](https://www.yahoo.com/news/man-robbed-beaten-while-eating-215158628.html)
+- May 23 - [Trump Is Suddenly Very Worried About Protesters](https://www.yahoo.com/news/trump-suddenly-very-worried-protesters-214001624.html)
+- May 23 - [Car crash near Erie's Bayfront Parkway claims life of motorist whose car flipped over](https://www.yahoo.com/news/car-crash-near-eries-bayfront-202658650.html)
+- May 23 - [Dow falls more than 600 points, notching worst day of the year](https://finance.yahoo.com/news/dow-falls-more-600-points-181937911.html)
 <!-- feed end -->
 
 ### Onstream
