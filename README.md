@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 25 - [China's rejection of Guatemalan shipments could be related to Taiwan ties, Guatemala president says](https://www.yahoo.com/news/chinas-rejection-guatemalan-shipments-could-004015678.html)
+- May 24 - [Apple stock is poised to surge nearly 50% as it heads toward its most important day in a decade, Wedbush says](https://finance.yahoo.com/news/apple-stock-poised-surge-nearly-230852798.html)
+- May 24 - [A woman took her dog to a shelter to be euthanized. A year later, the dog is up for adoption again.](https://www.yahoo.com/news/woman-took-her-dog-shelter-222959072.html)
 - May 24 - [Man insults judge who sentenced him to 12 years in prison for attacking police during Capitol riot](https://www.yahoo.com/news/man-insults-judge-sentenced-him-215559676.html)
 - May 24 - [Aerials show standoff between police and suspect on Anaheim freeway](https://www.yahoo.com/news/aerials-show-standoff-between-police-210024486.html)
-- May 24 - [Warning: You Can't Unsee Donald Trump's Bizarre Dance](https://www.yahoo.com/entertainment/warning-cant-unsee-donald-trumps-185745441.html)
-- May 24 - [The wreck of a legendary WWII US submarine has been found at the bottom of the South China Sea](https://www.yahoo.com/tech/wreck-legendary-wwii-us-submarine-171546231.html)
-- May 24 - [Suspect dead after chase, standoff on Orange County freeway](https://www.yahoo.com/news/police-standoff-91-freeway-orange-171330820.html)
 <!-- feed end -->
 
 ### Onstream
