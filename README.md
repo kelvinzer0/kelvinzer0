@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Is It Time to Dump Nvidia Stock for Advanced Micro Devices After Microsoft Announcement?](https://finance.yahoo.com/news/time-dump-nvidia-stock-advanced-073500897.html)
-- May 25 - [Nvidia and Other Tech Stocks Have Made Big Gains—but the Rally Isn’t Over Yet](https://www.barrons.com/articles/tech-stock-rally-nvidia-2024-ac5dcc85?siteid=yhoof2&yptr=yahoo)
-- May 25 - [This quiet British island was once the site of Nazi atrocities. A new inquiry reveals its truths](https://www.yahoo.com/news/quiet-british-island-once-nazi-060015484.html)
+- May 25 - [A 50-year-old man used an obscure IRS rule to withdraw $20K a year from his retirement savings — without any penalty. Here's how](https://finance.yahoo.com/news/50-old-man-used-obscure-110000573.html)
+- May 25 - [1 Ridiculously Undervalued Growth Stock Down 70% You'll Regret Not Buying on the Dip](https://finance.yahoo.com/news/1-ridiculously-undervalued-growth-stock-110000520.html)
 - May 25 - [Utah man declined $100K offer to travel to Congo on 'security job' that was covert coup attempt](https://www.yahoo.com/news/utah-man-declined-100k-offer-011437624.html)
-- May 25 - [Crews respond to train derailment on Highway 79 northeast of Stuttgart](https://www.yahoo.com/news/crews-respond-train-derailment-highway-003506409.html)
+- May 25 - [Ukrainian M1 Abrams Tanks Get Elaborate 'Cope Cages,' Soviet Explosive Reactive Armor](https://www.yahoo.com/news/ukrainian-m1-abrams-tanks-elaborate-001115734.html)
+- May 24 - [Plans for China's invasion of Taiwan could be thwarted by a leading European chipmaker's "kill switch," which can remotely deactivate sophisticated chipmaking equipment](https://www.yahoo.com/tech/plans-chinas-invasion-taiwan-could-235501383.html)
 <!-- feed end -->
 
 ### Onstream
