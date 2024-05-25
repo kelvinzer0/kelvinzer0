@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [China's rejection of Guatemalan shipments could be related to Taiwan ties, Guatemala president says](https://www.yahoo.com/news/chinas-rejection-guatemalan-shipments-could-004015678.html)
-- May 24 - [Apple stock is poised to surge nearly 50% as it heads toward its most important day in a decade, Wedbush says](https://finance.yahoo.com/news/apple-stock-poised-surge-nearly-230852798.html)
 - May 24 - [A woman took her dog to a shelter to be euthanized. A year later, the dog is up for adoption again.](https://www.yahoo.com/news/woman-took-her-dog-shelter-222959072.html)
-- May 24 - [Man insults judge who sentenced him to 12 years in prison for attacking police during Capitol riot](https://www.yahoo.com/news/man-insults-judge-sentenced-him-215559676.html)
 - May 24 - [Aerials show standoff between police and suspect on Anaheim freeway](https://www.yahoo.com/news/aerials-show-standoff-between-police-210024486.html)
+- May 24 - [ATACMS Obliterates Russian Air Defense System As It Desperately Tries To Defend Itself](https://www.yahoo.com/news/atacms-obliterates-russian-air-defense-202055595.html)
+- May 24 - [Rapper Sean Kingston and his mother stole more than $1 million through fraud, authorities say](https://www.yahoo.com/entertainment/rapper-sean-kingston-mother-stole-202052279.html)
+- May 24 - [Warning: You Can't Unsee Donald Trump's Bizarre Dance](https://www.yahoo.com/entertainment/warning-cant-unsee-donald-trumps-185745441.html)
 <!-- feed end -->
 
 ### Onstream
