@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Record broken for most passengers screened at US airports, TSA says](https://www.yahoo.com/news/record-broken-most-passengers-screened-145317714.html)
-- May 25 - ['Inequities are glaring': Consultant gives honest review of Akron Public Schools](https://www.yahoo.com/news/inequities-glaring-consultant-gives-honest-135754659.html)
+- May 25 - [How GOP lies are impacting voters across the country](https://www.yahoo.com/news/gop-lies-impacting-voters-across-143927081.html)
+- May 25 - [This woman bought a four-bedroom, two-bathroom house for $135,000. In the Midwest, it's still possible.](https://finance.yahoo.com/news/this-woman-bought-a-four-bedroom-two-bathroom-house-for-135000-in-the-midwest-its-still-possible-121629584.html)
 - May 25 - [US assault ship USS Bataan raced at 'best speed' into the Red Sea fight ready to 'punch somebody in the face' if needed, top officers say](https://www.yahoo.com/news/us-assault-ship-uss-bataan-114701017.html)
-- May 25 - [‘I'm an Oncologist and This Is the One Type of Food I Never, Ever Eat’](https://www.yahoo.com/lifestyle/im-oncologist-one-type-food-112500170.html)
-- May 25 - [A 50-year-old man used an obscure IRS rule to withdraw $20K a year from his retirement savings — without any penalty. Here's how](https://finance.yahoo.com/news/50-old-man-used-obscure-110000573.html)
+- May 25 - [After fatal crash in Peoria, investigation continues into Dunlap HS student's death](https://www.yahoo.com/news/fatal-crash-peoria-investigation-continues-110922770.html)
+- May 25 - [Electric car drivers face astronomical costs to replace tyres](https://www.yahoo.com/tech/electric-hatchback-heavy-jeep-needed-110200363.html)
 <!-- feed end -->
 
 ### Onstream
