@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 24 - [A woman took her dog to a shelter to be euthanized. A year later, the dog is up for adoption again.](https://www.yahoo.com/news/woman-took-her-dog-shelter-222959072.html)
+- May 25 - [Utah man declined $100K offer to travel to Congo on 'security job' that was covert coup attempt](https://www.yahoo.com/news/utah-man-declined-100k-offer-011437624.html)
+- May 25 - [Ukrainian M1 Abrams Tanks Get Elaborate 'Cope Cages,' Soviet Explosive Reactive Armor](https://www.yahoo.com/news/ukrainian-m1-abrams-tanks-elaborate-001115734.html)
+- May 24 - [Portland police identify 3 men accused of pickpocketing Costco, WinCo shoppers on multiple occasions](https://www.yahoo.com/news/portland-police-id-3-men-231821830.html)
 - May 24 - [Aerials show standoff between police and suspect on Anaheim freeway](https://www.yahoo.com/news/aerials-show-standoff-between-police-210024486.html)
 - May 24 - [ATACMS Obliterates Russian Air Defense System As It Desperately Tries To Defend Itself](https://www.yahoo.com/news/atacms-obliterates-russian-air-defense-202055595.html)
-- May 24 - [Rapper Sean Kingston and his mother stole more than $1 million through fraud, authorities say](https://www.yahoo.com/entertainment/rapper-sean-kingston-mother-stole-202052279.html)
-- May 24 - [Warning: You Can't Unsee Donald Trump's Bizarre Dance](https://www.yahoo.com/entertainment/warning-cant-unsee-donald-trumps-185745441.html)
 <!-- feed end -->
 
 ### Onstream
