@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 25 - [Northwest Las Vegas valley neighborhoods report spike in crime as gang relations rises](https://www.yahoo.com/news/northwest-las-vegas-valley-neighborhoods-013334153.html)
 - May 25 - [Utah man declined $100K offer to travel to Congo on 'security job' that was covert coup attempt](https://www.yahoo.com/news/utah-man-declined-100k-offer-011437624.html)
 - May 25 - [Ukrainian M1 Abrams Tanks Get Elaborate 'Cope Cages,' Soviet Explosive Reactive Armor](https://www.yahoo.com/news/ukrainian-m1-abrams-tanks-elaborate-001115734.html)
 - May 24 - [A woman took her dog to a shelter to be euthanized. A year later, the dog is up for adoption again.](https://www.yahoo.com/news/woman-took-her-dog-shelter-222959072.html)
-- May 24 - [Man insults judge who sentenced him to 12 years in prison for attacking police during Capitol riot](https://www.yahoo.com/news/man-insults-judge-sentenced-him-215559676.html)
-- May 24 - [Rapper Sean Kingston and his mother stole more than $1 million through fraud, authorities say](https://www.yahoo.com/entertainment/rapper-sean-kingston-mother-stole-202052279.html)
+- May 24 - [6 Kroger stores now checking shoppers' receipts. Here's why](https://www.yahoo.com/news/6-kroger-stores-now-checking-205526604.html)
 <!-- feed end -->
 
 ### Onstream
