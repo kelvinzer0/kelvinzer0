@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Three missionaries, including American couple, killed by gang in Haiti](https://www.yahoo.com/news/american-missionary-couple-killed-gang-150126309.html)
-- May 25 - [Northwest Las Vegas valley neighborhoods report spike in crime as gang relations rises](https://www.yahoo.com/news/northwest-las-vegas-valley-neighborhoods-013334153.html)
+- May 25 - [Crockett says GOP colleagues gave her a ‘thumbs up, winks’ after Greene tiff](https://www.yahoo.com/news/crockett-says-gop-colleagues-gave-022152612.html)
 - May 25 - [Utah man declined $100K offer to travel to Congo on 'security job' that was covert coup attempt](https://www.yahoo.com/news/utah-man-declined-100k-offer-011437624.html)
 - May 25 - [Ukrainian M1 Abrams Tanks Get Elaborate 'Cope Cages,' Soviet Explosive Reactive Armor](https://www.yahoo.com/news/ukrainian-m1-abrams-tanks-elaborate-001115734.html)
 - May 24 - [A woman took her dog to a shelter to be euthanized. A year later, the dog is up for adoption again.](https://www.yahoo.com/news/woman-took-her-dog-shelter-222959072.html)
+- May 24 - [Instagram Users Report Issues In Viewing Stories, Uploading Posts, And Sending Direct Messages](https://www.yahoo.com/tech/instagram-users-report-issues-viewing-221153615.html)
 <!-- feed end -->
 
 ### Onstream
