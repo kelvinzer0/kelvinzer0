@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Elon Musk is reportedly planning an xAI supercomputer to power a better version of Grok](https://www.yahoo.com/news/elon-musk-is-reportedly-planning-an-xai-supercomputer-to-power-a-better-version-of-grok-204145785.html)
-- May 25 - [Bear meat kebabs at a family reunion lead to rare outbreak of roundworm disease](https://www.yahoo.com/news/bear-meat-kebabs-family-reunion-184422488.html)
+- May 25 - [Nicki Minaj concert in Manchester postponed after her arrest in Amsterdam](https://www.yahoo.com/news/nicki-minaj-concert-manchester-postponed-205635416.html)
 - May 25 - [Washington Post: Justice Samuel Alito’s wife said upside-down American flag was ‘an international signal of distress’ in 2021](https://www.yahoo.com/news/washington-post-justice-samuel-alito-180452669.html)
-- May 25 - [“Fascism isn’t a day job”: Historian talks Trump, Alito, and the delegitimization of democracy](https://www.yahoo.com/news/fascism-isn-t-day-job-163001639.html)
-- May 25 - [Girl with peanut allergy ‘thrown off flight by captain’](https://www.yahoo.com/news/girl-peanut-allergy-thrown-off-144929061.html)
+- May 25 - [Bear meat kebabs at a family reunion lead to rare outbreak of roundworm disease](https://www.yahoo.com/news/bear-meat-kebabs-family-reunion-184422488.html)
+- May 25 - [Man killed after interrupting suspected catalytic converter thieves in downtown L.A.](https://www.yahoo.com/news/man-killed-interrupting-suspected-catalytic-183916612.html)
+- May 25 - [Elon Musk plans xAI supercomputer, The Information reports](https://finance.yahoo.com/news/elon-musk-plans-xai-supercomputer-163349861.html)
 <!-- feed end -->
 
 ### Onstream
