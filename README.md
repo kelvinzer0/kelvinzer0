@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 25 - [Three missionaries, including American couple, killed by gang in Haiti](https://www.yahoo.com/news/american-missionary-couple-killed-gang-150126309.html)
 - May 25 - [Northwest Las Vegas valley neighborhoods report spike in crime as gang relations rises](https://www.yahoo.com/news/northwest-las-vegas-valley-neighborhoods-013334153.html)
 - May 25 - [Utah man declined $100K offer to travel to Congo on 'security job' that was covert coup attempt](https://www.yahoo.com/news/utah-man-declined-100k-offer-011437624.html)
 - May 25 - [Ukrainian M1 Abrams Tanks Get Elaborate 'Cope Cages,' Soviet Explosive Reactive Armor](https://www.yahoo.com/news/ukrainian-m1-abrams-tanks-elaborate-001115734.html)
-- May 24 - [A woman took her dog to a shelter to be euthanized. A year later, the dog is up for adoption again.](https://www.yahoo.com/news/woman-took-her-dog-shelter-222959072.html)
-- May 24 - [6 Kroger stores now checking shoppers' receipts. Here's why](https://www.yahoo.com/news/6-kroger-stores-now-checking-205526604.html)
+- May 24 - [Apple stock is poised to surge nearly 50% as it heads toward its most important day in a decade, Wedbush says](https://finance.yahoo.com/news/apple-stock-poised-surge-nearly-230852798.html)
 <!-- feed end -->
 
 ### Onstream
