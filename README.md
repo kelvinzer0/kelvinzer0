@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Florida Rents Are Dropping Fast Is It Time For Investors To Look Elsewhere?](https://finance.yahoo.com/news/florida-rents-dropping-fast-time-170012164.html)
+- May 25 - [Washington Post: Justice Samuel Alito’s wife said upside-down American flag was ‘an international signal of distress’ in 2021](https://www.yahoo.com/news/washington-post-justice-samuel-alito-180452669.html)
+- May 25 - [Central Arkansas faces downed trees, power outages after Saturday morning storm](https://www.yahoo.com/news/central-arkansas-faces-downed-trees-171402154.html)
 - May 25 - [Elon Musk plans xAI supercomputer, The Information reports](https://finance.yahoo.com/news/elon-musk-plans-xai-supercomputer-163349861.html)
-- May 25 - [5 SUVs To Avoid Buying in 2024](https://finance.yahoo.com/news/5-suvs-avoid-buying-2024-130036342.html)
+- May 25 - [Kahala property collapses onto shoreline, blocking beachgoers](https://www.yahoo.com/news/kahala-property-collapses-onto-shoreline-160100815.html)
 - May 25 - [Girl with peanut allergy ‘thrown off flight by captain’](https://www.yahoo.com/news/girl-peanut-allergy-thrown-off-144929061.html)
-- May 25 - ['A great sadness': Venezuela is first Andean country to lose of all its glaciers](https://www.yahoo.com/news/great-sadness-venezuela-first-andean-111108097.html)
 <!-- feed end -->
 
 ### Onstream
