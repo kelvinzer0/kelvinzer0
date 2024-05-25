@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - May 25 - [Utah man declined $100K offer to travel to Congo on 'security job' that was covert coup attempt](https://www.yahoo.com/news/utah-man-declined-100k-offer-011437624.html)
 - May 25 - [Ukrainian M1 Abrams Tanks Get Elaborate 'Cope Cages,' Soviet Explosive Reactive Armor](https://www.yahoo.com/news/ukrainian-m1-abrams-tanks-elaborate-001115734.html)
 - May 24 - [Portland police identify 3 men accused of pickpocketing Costco, WinCo shoppers on multiple occasions](https://www.yahoo.com/news/portland-police-id-3-men-231821830.html)
-- May 24 - [Aerials show standoff between police and suspect on Anaheim freeway](https://www.yahoo.com/news/aerials-show-standoff-between-police-210024486.html)
-- May 24 - [ATACMS Obliterates Russian Air Defense System As It Desperately Tries To Defend Itself](https://www.yahoo.com/news/atacms-obliterates-russian-air-defense-202055595.html)
+- May 24 - [Apple stock is poised to surge nearly 50% as it heads toward its most important day in a decade, Wedbush says](https://finance.yahoo.com/news/apple-stock-poised-surge-nearly-230852798.html)
+- May 24 - [Man insults judge who sentenced him to 12 years in prison for attacking police during Capitol riot](https://www.yahoo.com/news/man-insults-judge-sentenced-him-215559676.html)
 <!-- feed end -->
 
 ### Onstream
