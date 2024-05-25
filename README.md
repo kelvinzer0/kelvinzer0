@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Crockett says GOP colleagues gave her a ‘thumbs up, winks’ after Greene tiff](https://www.yahoo.com/news/crockett-says-gop-colleagues-gave-022152612.html)
+- May 25 - [Is It Time to Dump Nvidia Stock for Advanced Micro Devices After Microsoft Announcement?](https://finance.yahoo.com/news/time-dump-nvidia-stock-advanced-073500897.html)
+- May 25 - [Nvidia and Other Tech Stocks Have Made Big Gains—but the Rally Isn’t Over Yet](https://www.barrons.com/articles/tech-stock-rally-nvidia-2024-ac5dcc85?siteid=yhoof2&yptr=yahoo)
+- May 25 - [This quiet British island was once the site of Nazi atrocities. A new inquiry reveals its truths](https://www.yahoo.com/news/quiet-british-island-once-nazi-060015484.html)
 - May 25 - [Utah man declined $100K offer to travel to Congo on 'security job' that was covert coup attempt](https://www.yahoo.com/news/utah-man-declined-100k-offer-011437624.html)
-- May 25 - [Ukrainian M1 Abrams Tanks Get Elaborate 'Cope Cages,' Soviet Explosive Reactive Armor](https://www.yahoo.com/news/ukrainian-m1-abrams-tanks-elaborate-001115734.html)
-- May 24 - [A woman took her dog to a shelter to be euthanized. A year later, the dog is up for adoption again.](https://www.yahoo.com/news/woman-took-her-dog-shelter-222959072.html)
-- May 24 - [Instagram Users Report Issues In Viewing Stories, Uploading Posts, And Sending Direct Messages](https://www.yahoo.com/tech/instagram-users-report-issues-viewing-221153615.html)
+- May 25 - [Crews respond to train derailment on Highway 79 northeast of Stuttgart](https://www.yahoo.com/news/crews-respond-train-derailment-highway-003506409.html)
 <!-- feed end -->
 
 ### Onstream
