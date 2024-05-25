@@ -64,7 +64,7 @@ https://kelvinzer0.github.io
 - May 25 - [Mutation Has Led to a New Type of Cat, Scientists Say](https://www.yahoo.com/news/mutation-led-type-cat-scientists-110005549.html)
 - May 25 - [A 50-year-old man used an obscure IRS rule to withdraw $20K a year from his retirement savings — without any penalty. Here's how](https://finance.yahoo.com/news/50-old-man-used-obscure-110000573.html)
 - May 25 - [US Stryker armored fighting vehicles help Ukraine recapture lost territory in Kharkiv region, report says](https://www.yahoo.com/news/us-stryker-armored-fighting-vehicles-105426712.html)
-- May 25 - [Crockett says GOP colleagues gave her a ‘thumbs up, winks’ after Greene tiff](https://www.yahoo.com/news/crockett-says-gop-colleagues-gave-022152612.html)
+- May 25 - [New In-N-Out location may be coming to San Diego area](https://www.yahoo.com/news/n-location-may-coming-san-053449378.html)
 <!-- feed end -->
 
 ### Onstream
