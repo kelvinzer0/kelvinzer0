@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [How GOP lies are impacting voters across the country](https://www.yahoo.com/news/gop-lies-impacting-voters-across-143927081.html)
+- May 25 - [President warns new army officers to be ‘guardians of American democracy’](https://www.yahoo.com/news/biden-warns-army-officers-west-162550472.html)
+- May 25 - [Elon Musk plans xAI supercomputer, The Information reports](https://finance.yahoo.com/news/elon-musk-plans-xai-supercomputer-163349861.html)
+- May 25 - [Deadly Russian strikes hit Kharkiv hardware store](https://www.yahoo.com/news/deadly-russian-strikes-hit-kharkiv-160518305.html)
+- May 25 - [Girl with peanut allergy ‘thrown off flight by captain’](https://www.yahoo.com/news/girl-peanut-allergy-thrown-off-144929061.html)
 - May 25 - [This woman bought a four-bedroom, two-bathroom house for $135,000. In the Midwest, it's still possible.](https://finance.yahoo.com/news/this-woman-bought-a-four-bedroom-two-bathroom-house-for-135000-in-the-midwest-its-still-possible-121629584.html)
-- May 25 - [US assault ship USS Bataan raced at 'best speed' into the Red Sea fight ready to 'punch somebody in the face' if needed, top officers say](https://www.yahoo.com/news/us-assault-ship-uss-bataan-114701017.html)
-- May 25 - [After fatal crash in Peoria, investigation continues into Dunlap HS student's death](https://www.yahoo.com/news/fatal-crash-peoria-investigation-continues-110922770.html)
-- May 25 - [Electric car drivers face astronomical costs to replace tyres](https://www.yahoo.com/tech/electric-hatchback-heavy-jeep-needed-110200363.html)
 <!-- feed end -->
 
 ### Onstream
