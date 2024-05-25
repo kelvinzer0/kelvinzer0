@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 25 - [US assault ship USS Bataan raced at 'best speed' into the Red Sea fight ready to 'punch somebody in the face' if needed, top officers say](https://www.yahoo.com/news/us-assault-ship-uss-bataan-114701017.html)
+- May 25 - [Mutation Has Led to a New Type of Cat, Scientists Say](https://www.yahoo.com/news/mutation-led-type-cat-scientists-110005549.html)
 - May 25 - [A 50-year-old man used an obscure IRS rule to withdraw $20K a year from his retirement savings — without any penalty. Here's how](https://finance.yahoo.com/news/50-old-man-used-obscure-110000573.html)
-- May 25 - [1 Ridiculously Undervalued Growth Stock Down 70% You'll Regret Not Buying on the Dip](https://finance.yahoo.com/news/1-ridiculously-undervalued-growth-stock-110000520.html)
-- May 25 - [Utah man declined $100K offer to travel to Congo on 'security job' that was covert coup attempt](https://www.yahoo.com/news/utah-man-declined-100k-offer-011437624.html)
-- May 25 - [Ukrainian M1 Abrams Tanks Get Elaborate 'Cope Cages,' Soviet Explosive Reactive Armor](https://www.yahoo.com/news/ukrainian-m1-abrams-tanks-elaborate-001115734.html)
-- May 24 - [Plans for China's invasion of Taiwan could be thwarted by a leading European chipmaker's "kill switch," which can remotely deactivate sophisticated chipmaking equipment](https://www.yahoo.com/tech/plans-chinas-invasion-taiwan-could-235501383.html)
+- May 25 - [US Stryker armored fighting vehicles help Ukraine recapture lost territory in Kharkiv region, report says](https://www.yahoo.com/news/us-stryker-armored-fighting-vehicles-105426712.html)
+- May 25 - [Crockett says GOP colleagues gave her a ‘thumbs up, winks’ after Greene tiff](https://www.yahoo.com/news/crockett-says-gop-colleagues-gave-022152612.html)
 <!-- feed end -->
 
 ### Onstream
