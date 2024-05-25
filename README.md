@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 25 - [Nicki Minaj concert in Manchester postponed after her arrest in Amsterdam](https://www.yahoo.com/news/nicki-minaj-concert-manchester-postponed-205635416.html)
 - May 25 - [Washington Post: Justice Samuel Alito’s wife said upside-down American flag was ‘an international signal of distress’ in 2021](https://www.yahoo.com/news/washington-post-justice-samuel-alito-180452669.html)
+- May 25 - [Memorial Day activities scheduled around Los Angeles](https://www.yahoo.com/lifestyle/memorial-day-activities-scheduled-around-205942780.html)
+- May 25 - [Startup CEO has vision to revolutionize energy systems for schools and public agencies: 'The same issue kept coming up'](https://www.yahoo.com/news/startup-ceo-vision-revolutionize-energy-200000705.html)
 - May 25 - [Bear meat kebabs at a family reunion lead to rare outbreak of roundworm disease](https://www.yahoo.com/news/bear-meat-kebabs-family-reunion-184422488.html)
-- May 25 - [Man killed after interrupting suspected catalytic converter thieves in downtown L.A.](https://www.yahoo.com/news/man-killed-interrupting-suspected-catalytic-183916612.html)
-- May 25 - [Elon Musk plans xAI supercomputer, The Information reports](https://finance.yahoo.com/news/elon-musk-plans-xai-supercomputer-163349861.html)
+- May 25 - [Deion's son Shilo Sanders facing legal mess after filing for bankruptcy](https://sports.yahoo.com/deions-son-shilo-sanders-facing-175421889.html)
 <!-- feed end -->
 
 ### Onstream
