@@ -62,9 +62,9 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - May 26 - [The dreams of a 60-year-old beauty contestant come to an abrupt end in Argentina](https://www.yahoo.com/lifestyle/dreams-60-old-beauty-contestant-045450631.html)
 - May 26 - [Trump booed and heckled by raucous crowd at Libertarian convention](https://www.yahoo.com/news/trump-booed-heckled-raucous-crowd-020356627.html)
-- May 25 - [Tesla shareholders advised to reject Musk's $56 billion pay](https://finance.yahoo.com/news/tesla-shareholders-advised-reject-musks-231818864.html)
 - May 25 - [I’m a Mechanic: Never Go to the Car Dealership for These 10 Services](https://finance.yahoo.com/news/m-mechanic-never-car-dealership-141706592.html)
 - May 25 - [Hamas says it captured Israeli soldiers in Gaza; Israel denies](https://www.yahoo.com/news/hamas-armed-wing-says-fighters-221844245.html)
+- May 25 - [Hailstorm covers Mexican city with thick ice amid heat wave](https://www.yahoo.com/news/hailstorm-covers-mexican-city-thick-215851243.html)
 <!-- feed end -->
 
 ### Onstream
