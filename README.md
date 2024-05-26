@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Family infected with brain worms after eating undercooked bear meat, CDC says](https://www.yahoo.com/news/family-infected-brain-worms-eating-173553310.html)
-- May 26 - [Ukrainian strike on Russian nuclear radar system causes alarm in West](https://www.yahoo.com/news/ukrainian-strike-russian-nuclear-radar-163845828.html)
+- May 26 - [Indy 500 start time, TV blackout lifted, pre-race activities](https://sports.yahoo.com/indy-500-start-time-tv-184808610.html)
+- May 26 - [Don’t Buy a House in These 3 Cities Facing a ‘Climate Change Real Estate Bubble’](https://finance.yahoo.com/news/don-t-buy-house-3-191521721.html)
+- May 26 - [Spain's foreign minister condemns 'scandalous' Israeli flamenco video](https://www.yahoo.com/news/spains-foreign-minister-condemns-scandalous-161816038.html)
 - May 26 - [5 Car Brands With the Most Reliable Engines](https://finance.yahoo.com/news/5-car-brands-most-reliable-170022581.html)
-- May 26 - [California launching pilot program to charge drivers for miles driven](https://www.autoblog.com/2024/05/26/california-launching-pilot-program-to-charge-drivers-for-miles-driven/)
-- May 26 - [The US gave up sending Ukraine Excalibur guided artillery shells costing $100,000 because they rarely hit their target, report says](https://www.yahoo.com/news/us-gave-sending-ukraine-excalibur-130324037.html)
+- May 26 - [6 stabbed, including 4 girls, in separate attacks Massachusetts police say are likely connected](https://www.yahoo.com/news/4-girls-were-stabbed-massachusetts-052807995.html)
 <!-- feed end -->
 
 ### Onstream
