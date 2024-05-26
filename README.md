@@ -61,8 +61,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 26 - [Trump booed and heckled by raucous crowd at Libertarian convention](https://www.yahoo.com/news/trump-booed-heckled-raucous-crowd-020356627.html)
-- May 26 - [A drive-by shooting killed a man in Durham. His companion fled before police arrived](https://www.yahoo.com/news/drive-shooting-killed-man-durham-020221837.html)
-- May 25 - [Tesla shareholders advised to reject Musk's $56 billion pay](https://finance.yahoo.com/news/tesla-shareholders-advised-reject-musks-231818864.html)
+- May 26 - [Attempted home invasion scheme caught on camera in Whittier](https://www.yahoo.com/news/attempted-home-invasion-scheme-caught-015437468.html)
+- May 26 - [Powerball winning numbers for May 25 drawing: Jackpot rises to $120 million](https://www.yahoo.com/news/powerball-winning-numbers-may-25-010005288.html)
 - May 25 - [Hailstorm covers Mexican city with thick ice amid heat wave](https://www.yahoo.com/news/hailstorm-covers-mexican-city-thick-215851243.html)
 - May 25 - [CNN’s Kaitlan Collins calls out Trump for claim about trial judge: ‘That’s not true’](https://www.yahoo.com/news/cnn-kaitlan-collins-calls-trump-211933124.html)
 <!-- feed end -->
