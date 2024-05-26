@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 26 - [Israeli police and Jewish pilgrims clash at beleaguered festival site](https://www.yahoo.com/news/israeli-police-jewish-pilgrims-clash-223912921.html)
 - May 26 - [James Carville tears into Democratic Party over messaging: 'Full of s---'](https://www.yahoo.com/news/james-carville-tears-democratic-party-200024163.html)
 - May 26 - [Watch Trump react to getting booed at Libertarian convention](https://www.yahoo.com/news/watch-trump-react-getting-booed-105334472.html)
-- May 26 - [19 Signs From The Past Week That Made Me Chuckle, Chortle, And Everything In Between](https://www.yahoo.com/entertainment/19-signs-past-week-made-191802228.html)
+- May 26 - [WATCH: Huge crowds gather at Pinellas beach ahead of Memorial Day](https://www.yahoo.com/news/watch-huge-crowds-gather-pinellas-173853157.html)
 - May 26 - [Ukrainian strike on Russian nuclear radar system causes alarm in West](https://www.yahoo.com/news/ukrainian-strike-russian-nuclear-radar-163845828.html)
-- May 26 - [Spain's foreign minister condemns 'scandalous' Israeli flamenco video](https://www.yahoo.com/news/spains-foreign-minister-condemns-scandalous-161816038.html)
 <!-- feed end -->
 
 ### Onstream
