@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 26 - [Family infected with brain worms after eating undercooked bear meat, CDC says](https://www.yahoo.com/news/family-infected-brain-worms-eating-173553310.html)
+- May 26 - [Ukrainian strike on Russian nuclear radar system causes alarm in West](https://www.yahoo.com/news/ukrainian-strike-russian-nuclear-radar-163845828.html)
 - May 26 - [5 Car Brands With the Most Reliable Engines](https://finance.yahoo.com/news/5-car-brands-most-reliable-170022581.html)
-- May 26 - [One employee shoots another at California Dreaming restaurant, SC police say](https://www.yahoo.com/news/one-employee-shoots-another-california-154606387.html)
-- May 26 - [Why parents with young children are reporting a dramatic drop-off in their financial well-being](https://finance.yahoo.com/news/why-parents-young-children-reporting-140000440.html)
 - May 26 - [California launching pilot program to charge drivers for miles driven](https://www.autoblog.com/2024/05/26/california-launching-pilot-program-to-charge-drivers-for-miles-driven/)
 - May 26 - [The US gave up sending Ukraine Excalibur guided artillery shells costing $100,000 because they rarely hit their target, report says](https://www.yahoo.com/news/us-gave-sending-ukraine-excalibur-130324037.html)
 <!-- feed end -->
