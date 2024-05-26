@@ -60,9 +60,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Possible Tornado Swirls in Central Texas as Severe Weather Continues](https://www.yahoo.com/news/possible-tornado-swirls-central-texas-145301987.html)
-- May 26 - [‘I feel like an idiot. I need every cent to retire’: I gave a friend $20,000 to buy me a car. He ghosted me. I called the police. What options do I have?](https://finance.yahoo.com/news/feel-idiot-every-cent-retire-190200748.html)
-- May 26 - [Deputies: 2 arrested in road-rage shooting](https://www.yahoo.com/news/deputies-2-arrested-road-rage-140932360.html)
+- May 26 - [Washington sets aside $240 million for pilot shortages as busy summer travel season starts](https://finance.yahoo.com/news/washington-sets-aside-240-million-for-pilot-shortages-as-busy-summer-travel-season-starts-153059467.html)
+- May 26 - [MPD: Driver rams into food truck, attempts to strike two people](https://www.yahoo.com/news/mpd-driver-rams-food-truck-133250279.html)
+- May 26 - [The US gave up sending Ukraine Excalibur guided artillery shells costing $100,000 because they rarely hit their target, report says](https://www.yahoo.com/news/us-gave-sending-ukraine-excalibur-130324037.html)
 - May 26 - [I’m an Economist: Here Are My Predictions for Inflation If Biden Wins Again](https://finance.yahoo.com/news/m-economist-predictions-inflation-biden-201039156.html)
 - May 26 - [A cop gave Fresno man a jaywalking ticket. Then came ‘campaign of hate and revenge’](https://www.yahoo.com/news/cop-gave-fresno-man-jaywalking-123000172.html)
 <!-- feed end -->
