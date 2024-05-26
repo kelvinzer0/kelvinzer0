@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Price Breakdown: Electric vs Hybrid – Which Is a Better Value For You?](https://finance.yahoo.com/news/price-breakdown-electric-vs-hybrid-120031086.html)
-- May 26 - [Most Americans do not know these 3 important facts about Social Security benefits](https://finance.yahoo.com/news/most-americans-not-know-3-101200306.html)
-- May 26 - [21 People Who Died And Then Had Unspeakably Shocking Secrets Revealed About Them](https://www.yahoo.com/lifestyle/21-people-died-then-had-091602392.html)
-- May 26 - [The Bond Market Is Sending a Message. Investors Should Listen.](https://www.barrons.com/articles/bond-market-yield-curve-inversion-b08a3fa9?siteid=yhoof2&yptr=yahoo)
-- May 26 - [How Hadrian’s Wall is revealing a hidden side of Roman history](https://www.yahoo.com/news/hadrian-wall-revealing-hidden-side-070015827.html)
+- May 26 - [The US gave up sending Ukraine Excalibur guided artillery shells costing $100,000 because they rarely hit their target, report says](https://www.yahoo.com/news/us-gave-sending-ukraine-excalibur-130324037.html)
+- May 26 - [F1 Monaco Grand Prix live stream: Watch the race for free](https://sports.yahoo.com/f1-bahrain-grand-prix-live-085613664.html)
+- May 26 - [George Conway predicts Trump won’t be unanimously acquitted in hush money trial](https://www.yahoo.com/news/george-conway-predicts-trump-won-120721907.html)
+- May 26 - [A man who lost 40 pounds — and cut 10 inches from his waistline — recommends walking, protein swaps, and drinking vinegar water](https://www.yahoo.com/news/man-lost-40-pounds-mdash-120102390.html)
+- May 26 - [In Less Than a Decade, You’ll Wish You Bought a Home in These 14 Metros](https://finance.yahoo.com/news/less-decade-ll-wish-bought-151225967.html)
 <!-- feed end -->
 
 ### Onstream
