@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [National Spelling Bee reflects the economic success and cultural impact of immigrants from India](https://www.yahoo.com/news/national-spelling-bee-reflects-economic-045811618.html)
+- May 26 - [The Israeli Air Force may have to think twice about taking on Hezbollah](https://www.yahoo.com/news/israeli-air-force-may-think-080001029.html)
+- May 26 - [11 locals on Monroe County's War on Terror Memorial](https://www.yahoo.com/news/11-locals-monroe-countys-war-073713315.html)
+- May 26 - [Man arrested after fiery Cape crash wanted for stabbing 4 girls in Braintree, 2 others in Plymouth](https://www.yahoo.com/news/large-police-presence-braintree-amc-231655937.html)
 - May 26 - [The dreams of a 60-year-old beauty contestant come to an abrupt end in Argentina](https://www.yahoo.com/lifestyle/dreams-60-old-beauty-contestant-045450631.html)
-- May 26 - [Trump booed and heckled by raucous crowd at Libertarian convention](https://www.yahoo.com/news/trump-booed-heckled-raucous-crowd-020356627.html)
-- May 25 - [I’m a Mechanic: Never Go to the Car Dealership for These 10 Services](https://finance.yahoo.com/news/m-mechanic-never-car-dealership-141706592.html)
-- May 25 - [California teenager arrested after violent swarm pounded and kicked a deputy's car](https://www.yahoo.com/news/california-teenager-arrested-violent-swarm-225815848.html)
+- May 26 - [State wildlife agency will pay residents $100 to catch one type of fish — here's why](https://www.yahoo.com/news/state-wildlife-agency-pay-residents-023000615.html)
 <!-- feed end -->
 
 ### Onstream
