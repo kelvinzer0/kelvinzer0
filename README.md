@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [3 High Yielding ASX Dividend Stocks With Up To 7.5% Yield](https://finance.yahoo.com/news/3-high-yielding-asx-dividend-190546971.html)
+- May 26 - [James Carville tears into Democratic Party over messaging: 'Full of s---'](https://www.yahoo.com/news/james-carville-tears-democratic-party-200024163.html)
+- May 26 - [Watch Trump react to getting booed at Libertarian convention](https://www.yahoo.com/news/watch-trump-react-getting-booed-105334472.html)
+- May 26 - [19 Signs From The Past Week That Made Me Chuckle, Chortle, And Everything In Between](https://www.yahoo.com/entertainment/19-signs-past-week-made-191802228.html)
+- May 26 - [Ukrainian strike on Russian nuclear radar system causes alarm in West](https://www.yahoo.com/news/ukrainian-strike-russian-nuclear-radar-163845828.html)
 - May 26 - [Spain's foreign minister condemns 'scandalous' Israeli flamenco video](https://www.yahoo.com/news/spains-foreign-minister-condemns-scandalous-161816038.html)
-- May 26 - [5 Car Brands With the Most Reliable Engines](https://finance.yahoo.com/news/5-car-brands-most-reliable-170022581.html)
-- May 26 - [Stillwater prison on lockdown after 2 corrections officers injured in assault](https://www.yahoo.com/news/stillwater-prison-lockdown-2-corrections-154300711.html)
-- May 26 - [Bruce Springsteen’s Drummer Sues Car Restoration Shop](https://autos.yahoo.com/bruce-springsteen-drummer-sues-car-150000681.html)
 <!-- feed end -->
 
 ### Onstream
