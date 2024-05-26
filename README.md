@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Trump Proxy Alina Habba Worries Memorial Day Hangouts Will Corrupt Hush Money Jurors](https://www.yahoo.com/news/trump-proxy-alina-habba-worries-194000127.html)
-- May 26 - [A Missouri fifth grader raised enough money to pay off his entire school’s meal debt](https://www.yahoo.com/news/missouri-fifth-grader-raised-enough-161026552.html)
+- May 26 - [3 High Yielding ASX Dividend Stocks With Up To 7.5% Yield](https://finance.yahoo.com/news/3-high-yielding-asx-dividend-190546971.html)
+- May 26 - [Spain's foreign minister condemns 'scandalous' Israeli flamenco video](https://www.yahoo.com/news/spains-foreign-minister-condemns-scandalous-161816038.html)
 - May 26 - [5 Car Brands With the Most Reliable Engines](https://finance.yahoo.com/news/5-car-brands-most-reliable-170022581.html)
-- May 26 - [‘I feel like an idiot. I need every cent to retire’: I gave a friend $20,000 to buy me a car. He ghosted me. I called the police. What options do I have?](https://finance.yahoo.com/news/feel-idiot-every-cent-retire-190200748.html)
-- May 26 - [6 stabbed, including 4 girls, in separate attacks Massachusetts police say are likely connected](https://www.yahoo.com/news/4-girls-were-stabbed-massachusetts-052807995.html)
+- May 26 - [Stillwater prison on lockdown after 2 corrections officers injured in assault](https://www.yahoo.com/news/stillwater-prison-lockdown-2-corrections-154300711.html)
+- May 26 - [Bruce Springsteen’s Drummer Sues Car Restoration Shop](https://autos.yahoo.com/bruce-springsteen-drummer-sues-car-150000681.html)
 <!-- feed end -->
 
 ### Onstream
