@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Washington sets aside $240 million for pilot shortages as busy summer travel season starts](https://finance.yahoo.com/news/washington-sets-aside-240-million-for-pilot-shortages-as-busy-summer-travel-season-starts-153059467.html)
-- May 26 - [MPD: Driver rams into food truck, attempts to strike two people](https://www.yahoo.com/news/mpd-driver-rams-food-truck-133250279.html)
+- May 26 - [5 Car Brands With the Most Reliable Engines](https://finance.yahoo.com/news/5-car-brands-most-reliable-170022581.html)
+- May 26 - [One employee shoots another at California Dreaming restaurant, SC police say](https://www.yahoo.com/news/one-employee-shoots-another-california-154606387.html)
+- May 26 - [Why parents with young children are reporting a dramatic drop-off in their financial well-being](https://finance.yahoo.com/news/why-parents-young-children-reporting-140000440.html)
+- May 26 - [California launching pilot program to charge drivers for miles driven](https://www.autoblog.com/2024/05/26/california-launching-pilot-program-to-charge-drivers-for-miles-driven/)
 - May 26 - [The US gave up sending Ukraine Excalibur guided artillery shells costing $100,000 because they rarely hit their target, report says](https://www.yahoo.com/news/us-gave-sending-ukraine-excalibur-130324037.html)
-- May 26 - [I’m an Economist: Here Are My Predictions for Inflation If Biden Wins Again](https://finance.yahoo.com/news/m-economist-predictions-inflation-biden-201039156.html)
-- May 26 - [A cop gave Fresno man a jaywalking ticket. Then came ‘campaign of hate and revenge’](https://www.yahoo.com/news/cop-gave-fresno-man-jaywalking-123000172.html)
 <!-- feed end -->
 
 ### Onstream
