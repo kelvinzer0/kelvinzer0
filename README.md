@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Indy 500 start time, TV blackout lifted, pre-race activities](https://sports.yahoo.com/indy-500-start-time-tv-184808610.html)
-- May 26 - [Don’t Buy a House in These 3 Cities Facing a ‘Climate Change Real Estate Bubble’](https://finance.yahoo.com/news/don-t-buy-house-3-191521721.html)
-- May 26 - [Spain's foreign minister condemns 'scandalous' Israeli flamenco video](https://www.yahoo.com/news/spains-foreign-minister-condemns-scandalous-161816038.html)
+- May 26 - [Trump Proxy Alina Habba Worries Memorial Day Hangouts Will Corrupt Hush Money Jurors](https://www.yahoo.com/news/trump-proxy-alina-habba-worries-194000127.html)
+- May 26 - [A Missouri fifth grader raised enough money to pay off his entire school’s meal debt](https://www.yahoo.com/news/missouri-fifth-grader-raised-enough-161026552.html)
 - May 26 - [5 Car Brands With the Most Reliable Engines](https://finance.yahoo.com/news/5-car-brands-most-reliable-170022581.html)
+- May 26 - [‘I feel like an idiot. I need every cent to retire’: I gave a friend $20,000 to buy me a car. He ghosted me. I called the police. What options do I have?](https://finance.yahoo.com/news/feel-idiot-every-cent-retire-190200748.html)
 - May 26 - [6 stabbed, including 4 girls, in separate attacks Massachusetts police say are likely connected](https://www.yahoo.com/news/4-girls-were-stabbed-massachusetts-052807995.html)
 <!-- feed end -->
 
