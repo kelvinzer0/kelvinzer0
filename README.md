@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 26 - [National Spelling Bee reflects the economic success and cultural impact of immigrants from India](https://www.yahoo.com/news/national-spelling-bee-reflects-economic-045811618.html)
 - May 26 - [The dreams of a 60-year-old beauty contestant come to an abrupt end in Argentina](https://www.yahoo.com/lifestyle/dreams-60-old-beauty-contestant-045450631.html)
 - May 26 - [Trump booed and heckled by raucous crowd at Libertarian convention](https://www.yahoo.com/news/trump-booed-heckled-raucous-crowd-020356627.html)
 - May 25 - [I’m a Mechanic: Never Go to the Car Dealership for These 10 Services](https://finance.yahoo.com/news/m-mechanic-never-car-dealership-141706592.html)
-- May 25 - [Hamas says it captured Israeli soldiers in Gaza; Israel denies](https://www.yahoo.com/news/hamas-armed-wing-says-fighters-221844245.html)
-- May 25 - [Hailstorm covers Mexican city with thick ice amid heat wave](https://www.yahoo.com/news/hailstorm-covers-mexican-city-thick-215851243.html)
+- May 25 - [California teenager arrested after violent swarm pounded and kicked a deputy's car](https://www.yahoo.com/news/california-teenager-arrested-violent-swarm-225815848.html)
 <!-- feed end -->
 
 ### Onstream
