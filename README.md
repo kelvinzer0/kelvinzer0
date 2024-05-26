@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [The US gave up sending Ukraine Excalibur guided artillery shells costing $100,000 because they rarely hit their target, report says](https://www.yahoo.com/news/us-gave-sending-ukraine-excalibur-130324037.html)
-- May 26 - [F1 Monaco Grand Prix live stream: Watch the race for free](https://sports.yahoo.com/f1-bahrain-grand-prix-live-085613664.html)
-- May 26 - [George Conway predicts Trump won’t be unanimously acquitted in hush money trial](https://www.yahoo.com/news/george-conway-predicts-trump-won-120721907.html)
-- May 26 - [A man who lost 40 pounds — and cut 10 inches from his waistline — recommends walking, protein swaps, and drinking vinegar water](https://www.yahoo.com/news/man-lost-40-pounds-mdash-120102390.html)
-- May 26 - [In Less Than a Decade, You’ll Wish You Bought a Home in These 14 Metros](https://finance.yahoo.com/news/less-decade-ll-wish-bought-151225967.html)
+- May 26 - [Possible Tornado Swirls in Central Texas as Severe Weather Continues](https://www.yahoo.com/news/possible-tornado-swirls-central-texas-145301987.html)
+- May 26 - [‘I feel like an idiot. I need every cent to retire’: I gave a friend $20,000 to buy me a car. He ghosted me. I called the police. What options do I have?](https://finance.yahoo.com/news/feel-idiot-every-cent-retire-190200748.html)
+- May 26 - [Deputies: 2 arrested in road-rage shooting](https://www.yahoo.com/news/deputies-2-arrested-road-rage-140932360.html)
+- May 26 - [I’m an Economist: Here Are My Predictions for Inflation If Biden Wins Again](https://finance.yahoo.com/news/m-economist-predictions-inflation-biden-201039156.html)
+- May 26 - [A cop gave Fresno man a jaywalking ticket. Then came ‘campaign of hate and revenge’](https://www.yahoo.com/news/cop-gave-fresno-man-jaywalking-123000172.html)
 <!-- feed end -->
 
 ### Onstream
