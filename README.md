@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Ron Johnson claims failed border bill was ‘political ploy’ for Schumer](https://www.yahoo.com/news/ron-johnson-claims-failed-border-110000323.html)
-- May 26 - [The dreams of a 60-year-old beauty contestant come to an abrupt end in Argentina](https://www.yahoo.com/lifestyle/dreams-60-old-beauty-contestant-045450631.html)
-- May 26 - [State wildlife agency will pay residents $100 to catch one type of fish — here's why](https://www.yahoo.com/news/state-wildlife-agency-pay-residents-023000615.html)
-- May 26 - [Trump booed and heckled by raucous crowd at Libertarian convention](https://www.yahoo.com/news/trump-booed-heckled-raucous-crowd-020356627.html)
-- May 25 - [Multiple people struck by gunfire in Sacramento](https://www.yahoo.com/news/multiple-people-struck-gunfire-sacramento-235442347.html)
+- May 26 - [Price Breakdown: Electric vs Hybrid – Which Is a Better Value For You?](https://finance.yahoo.com/news/price-breakdown-electric-vs-hybrid-120031086.html)
+- May 26 - [Most Americans do not know these 3 important facts about Social Security benefits](https://finance.yahoo.com/news/most-americans-not-know-3-101200306.html)
+- May 26 - [21 People Who Died And Then Had Unspeakably Shocking Secrets Revealed About Them](https://www.yahoo.com/lifestyle/21-people-died-then-had-091602392.html)
+- May 26 - [The Bond Market Is Sending a Message. Investors Should Listen.](https://www.barrons.com/articles/bond-market-yield-curve-inversion-b08a3fa9?siteid=yhoof2&yptr=yahoo)
+- May 26 - [How Hadrian’s Wall is revealing a hidden side of Roman history](https://www.yahoo.com/news/hadrian-wall-revealing-hidden-side-070015827.html)
 <!-- feed end -->
 
 ### Onstream
