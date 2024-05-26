@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 26 - [Trump booed and heckled by raucous crowd at Libertarian convention](https://www.yahoo.com/news/trump-booed-heckled-raucous-crowd-020356627.html)
+- May 26 - [A drive-by shooting killed a man in Durham. His companion fled before police arrived](https://www.yahoo.com/news/drive-shooting-killed-man-durham-020221837.html)
+- May 25 - [Tesla shareholders advised to reject Musk's $56 billion pay](https://finance.yahoo.com/news/tesla-shareholders-advised-reject-musks-231818864.html)
 - May 25 - [Hailstorm covers Mexican city with thick ice amid heat wave](https://www.yahoo.com/news/hailstorm-covers-mexican-city-thick-215851243.html)
-- May 25 - [Bear meat kebabs at a family reunion lead to rare outbreak of roundworm disease](https://www.yahoo.com/news/bear-meat-kebabs-family-reunion-184422488.html)
-- May 25 - [15 Food Recalls That Will Always Haunt Aldi](https://www.yahoo.com/news/15-food-recalls-always-haunt-172545244.html)
-- May 25 - [Central Arkansas faces downed trees, power outages after Saturday morning storm](https://www.yahoo.com/news/central-arkansas-faces-downed-trees-171402154.html)
+- May 25 - [CNN’s Kaitlan Collins calls out Trump for claim about trial judge: ‘That’s not true’](https://www.yahoo.com/news/cnn-kaitlan-collins-calls-trump-211933124.html)
 <!-- feed end -->
 
 ### Onstream
