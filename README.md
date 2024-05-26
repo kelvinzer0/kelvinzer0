@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [4 girls were stabbed at a Massachusetts movie theater and it appears linked to another stabbing at restaurant, police say](https://www.yahoo.com/news/4-girls-were-stabbed-massachusetts-052807995.html)
+- May 26 - [Ron Johnson claims failed border bill was ‘political ploy’ for Schumer](https://www.yahoo.com/news/ron-johnson-claims-failed-border-110000323.html)
 - May 26 - [The dreams of a 60-year-old beauty contestant come to an abrupt end in Argentina](https://www.yahoo.com/lifestyle/dreams-60-old-beauty-contestant-045450631.html)
 - May 26 - [State wildlife agency will pay residents $100 to catch one type of fish — here's why](https://www.yahoo.com/news/state-wildlife-agency-pay-residents-023000615.html)
 - May 26 - [Trump booed and heckled by raucous crowd at Libertarian convention](https://www.yahoo.com/news/trump-booed-heckled-raucous-crowd-020356627.html)
-- May 26 - [Black plume of smoke visible in Fresno as fire erupts near an elementary school](https://www.yahoo.com/news/black-plume-smoke-visible-fresno-012433215.html)
+- May 25 - [Multiple people struck by gunfire in Sacramento](https://www.yahoo.com/news/multiple-people-struck-gunfire-sacramento-235442347.html)
 <!-- feed end -->
 
 ### Onstream
