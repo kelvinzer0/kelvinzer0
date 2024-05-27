@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Small Asteroid Captured Hours Prior To Earth Impact](https://www.yahoo.com/news/watch-small-asteroid-captured-hours-220000587.html)
-- May 27 - [The one thing stopping me from buying a new iPad](https://www.yahoo.com/tech/one-thing-stopping-buying-ipad-153049121.html)
+- May 27 - [Congresswoman Rashida Tlaib slams bombing of Rafah as ‘intentional’ as Israel calls it a ‘mistake’](https://www.yahoo.com/news/congresswoman-rashida-tlaib-slams-bombing-184948373.html)
+- May 27 - [Ukraine commander says French military instructors to visit Ukrainian training centres](https://www.yahoo.com/news/ukraine-commander-french-military-instructors-155524431.html)
 - May 27 - [Russia’s most modern battle tank hit by ‘disco head’ glitch](https://www.yahoo.com/news/russia-most-modern-battle-tank-151050676.html)
 - May 27 - [‘Went in for kill bite’: Mass. man who survived grizzly bear attack reveals what saved his life](https://www.yahoo.com/news/went-kill-bite-mass-man-144600269.html)
-- May 27 - [WHO states decide not to invite Taiwan to annual assembly](https://www.yahoo.com/news/states-decide-not-invite-taiwan-133940185.html)
+- May 27 - [Mt. Trashmore visitors react to weekend deadly shooting](https://www.yahoo.com/news/mt-trashmore-visitors-react-weekend-144059544.html)
 <!-- feed end -->
 
 ### Onstream
