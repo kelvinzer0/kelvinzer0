@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Congresswoman Rashida Tlaib slams bombing of Rafah as ‘intentional’ as Israel calls it a ‘mistake’](https://www.yahoo.com/news/congresswoman-rashida-tlaib-slams-bombing-184948373.html)
-- May 27 - [Ukraine commander says French military instructors to visit Ukrainian training centres](https://www.yahoo.com/news/ukraine-commander-french-military-instructors-155524431.html)
+- May 27 - [Argentina’s inflation, propped-up peso hit Paraguay border town](https://finance.yahoo.com/video/argentina-inflation-propped-peso-hit-194430535.html)
+- May 27 - [Accused murderer in court after victim's remains found in grass fire last month](https://www.yahoo.com/news/accused-murderer-court-victims-remains-192842223.html)
+- May 27 - [CNN legal expert says idea of Trump being acquitted in hush money case is ‘out of reach’](https://www.yahoo.com/news/cnn-legal-expert-says-idea-172857439.html)
+- May 27 - [A millennial who made over $300,000 secretly working 2 remote jobs says he'll do whatever he can to ensure he never has to commute to work again](https://finance.yahoo.com/news/millennial-made-over-300-000-171701093.html)
 - May 27 - [Russia’s most modern battle tank hit by ‘disco head’ glitch](https://www.yahoo.com/news/russia-most-modern-battle-tank-151050676.html)
-- May 27 - [‘Went in for kill bite’: Mass. man who survived grizzly bear attack reveals what saved his life](https://www.yahoo.com/news/went-kill-bite-mass-man-144600269.html)
-- May 27 - [Mt. Trashmore visitors react to weekend deadly shooting](https://www.yahoo.com/news/mt-trashmore-visitors-react-weekend-144059544.html)
 <!-- feed end -->
 
 ### Onstream
