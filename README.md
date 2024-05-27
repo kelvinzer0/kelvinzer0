@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Ex-White House aide targets Haley for choosing to ‘bend the knee’ to Trump](https://www.yahoo.com/news/ex-white-house-aide-targets-120310092.html)
-- May 27 - [JSO: Man shot while driving, crashes car in Englewood neighborhood](https://www.yahoo.com/news/jso-man-shot-while-driving-115858990.html)
-- May 27 - [A boomer moved from Texas to Missouri for her retirement thinking everything would be cheaper. She was 'so wrong.'](https://www.yahoo.com/news/boomer-moved-texas-missouri-her-093202932.html)
-- May 27 - [Judge presiding over LSU student's attack makes unprecedented decision, prompting questions about conflicts](https://www.yahoo.com/news/judge-presiding-over-lsu-students-080047516.html)
-- May 27 - [Philippines protests China's annual fishing ban](https://www.yahoo.com/news/philippines-protests-chinas-annual-fishing-074114690.html)
+- May 27 - [Exploring Three Growth Companies With High Insider Ownership On SIX Swiss Exchange](https://finance.yahoo.com/news/exploring-three-growth-companies-high-123357231.html)
+- May 27 - [Why the US can't send humans to Mars](https://www.yahoo.com/tech/why-us-cant-send-humans-114901244.html)
+- May 27 - [British event rider Georgie Campbell dies from fall during competition](https://sports.yahoo.com/british-event-rider-georgie-campbell-105726470.html)
+- May 27 - [Think your boss is scary? Check out the brutal emails these tech CEOs sent their employees.](https://www.yahoo.com/tech/think-boss-scary-check-brutal-105301823.html)
+- May 27 - [Donald Trump Shares Absolutely Vile Video About Joe Scarborough](https://www.yahoo.com/news/donald-trump-shares-absolutely-vile-103726497.html)
 <!-- feed end -->
 
 ### Onstream
