@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 26 - [Israeli police and Jewish pilgrims clash at beleaguered festival site](https://www.yahoo.com/news/israeli-police-jewish-pilgrims-clash-223912921.html)
-- May 26 - [James Carville tears into Democratic Party over messaging: 'Full of s---'](https://www.yahoo.com/news/james-carville-tears-democratic-party-200024163.html)
+- May 27 - [‘I feel like an idiot. I need every cent to retire’: I gave a friend $20,000 to buy me a car. He ghosted me. I called the police. What options do I have?](https://finance.yahoo.com/news/feel-idiot-every-cent-retire-190200748.html)
+- May 26 - [Letters: Young voters will have their say on the PM’s plan for National Service](https://www.yahoo.com/news/letters-young-voters-pm-plan-230100286.html)
+- May 26 - ['General Hospital's' Johnny Wactor killed in catalytic converter heist in downtown L.A., police say](https://www.yahoo.com/entertainment/general-hospitals-johnny-wactor-killed-225823969.html)
+- May 26 - [Christian group temporarily opens beaches it has closed on Sunday mornings as court fight plays out](https://www.yahoo.com/news/christian-group-temporarily-opens-beaches-204633898.html)
 - May 26 - [Watch Trump react to getting booed at Libertarian convention](https://www.yahoo.com/news/watch-trump-react-getting-booed-105334472.html)
-- May 26 - [WATCH: Huge crowds gather at Pinellas beach ahead of Memorial Day](https://www.yahoo.com/news/watch-huge-crowds-gather-pinellas-173853157.html)
-- May 26 - [Ukrainian strike on Russian nuclear radar system causes alarm in West](https://www.yahoo.com/news/ukrainian-strike-russian-nuclear-radar-163845828.html)
 <!-- feed end -->
 
 ### Onstream
