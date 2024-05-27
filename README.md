@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Russia started new offensive early and with too few soldiers, as it tried to get ahead of US aid to Ukraine, experts say](https://www.yahoo.com/news/russia-started-offensive-early-too-161230104.html)
-- May 27 - [Ukraine commander says French military instructors to visit Ukrainian training centres](https://www.yahoo.com/news/ukraine-commander-french-military-instructors-155524431.html)
+- May 27 - [Small Asteroid Captured Hours Prior To Earth Impact](https://www.yahoo.com/news/watch-small-asteroid-captured-hours-220000587.html)
+- May 27 - [The one thing stopping me from buying a new iPad](https://www.yahoo.com/tech/one-thing-stopping-buying-ipad-153049121.html)
+- May 27 - [Russia’s most modern battle tank hit by ‘disco head’ glitch](https://www.yahoo.com/news/russia-most-modern-battle-tank-151050676.html)
 - May 27 - [‘Went in for kill bite’: Mass. man who survived grizzly bear attack reveals what saved his life](https://www.yahoo.com/news/went-kill-bite-mass-man-144600269.html)
-- May 27 - [Why This 1 Momentum Stock Could Be a Great Addition to Your Portfolio](https://finance.yahoo.com/news/why-1-momentum-stock-could-135012851.html)
-- May 27 - [Rhode Island asking kei car owners to turn in their registration](https://www.autoblog.com/2024/05/27/rhode-island-asking-kei-car-owners-to-turn-in-their-registration/)
+- May 27 - [WHO states decide not to invite Taiwan to annual assembly](https://www.yahoo.com/news/states-decide-not-invite-taiwan-133940185.html)
 <!-- feed end -->
 
 ### Onstream
