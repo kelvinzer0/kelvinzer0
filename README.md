@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 27 - [Can I Retire at 50 With $1.5 Million?](https://finance.yahoo.com/news/retire-comfortably-50-1-5-130041575.html)
+- May 27 - [US company rejects Mexico's criticism, buy-out offer, says president's projects hurt the environment](https://finance.yahoo.com/news/us-company-rejects-mexicos-criticism-193256451.html)
 - May 27 - [Pope used vulgar Italian word to refer to LGBT people, Italian newspapers report](https://www.yahoo.com/news/pope-used-vulgar-italian-word-192422008.html)
-- May 27 - [El Paso woman dies after striking median on I-10 East](https://www.yahoo.com/news/el-paso-woman-dies-striking-185211779.html)
-- May 27 - [Russia’s most modern battle tank hit by ‘disco head’ glitch](https://www.yahoo.com/news/russia-most-modern-battle-tank-151050676.html)
-- May 27 - [‘Went in for kill bite’: Mass. man who survived grizzly bear attack reveals what saved his life](https://www.yahoo.com/news/went-kill-bite-mass-man-144600269.html)
-- May 27 - [Pakistan temperatures cross 52 C in heatwave](https://www.yahoo.com/news/pakistan-temperatures-cross-52-c-144110810.html)
+- May 27 - [Putin Takes Steps To Seize Property Owned By U.S. Citizens And Companies](https://finance.yahoo.com/news/putin-takes-steps-seize-property-182853519.html)
+- May 27 - [CNN legal expert says idea of Trump being acquitted in hush money case is ‘out of reach’](https://www.yahoo.com/news/cnn-legal-expert-says-idea-172857439.html)
 <!-- feed end -->
 
 ### Onstream
