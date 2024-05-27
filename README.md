@@ -63,8 +63,8 @@ https://kelvinzer0.github.io
 - May 27 - [A synthetic drug ravages youth in Sierra Leone. There's little help, and some people are chained](https://www.yahoo.com/news/synthetic-drug-ravages-youth-sierra-050530990.html)
 - May 27 - [Eric Trump Slammed For ‘Particularly Disgusting’ Memorial Day Weekend Post](https://www.yahoo.com/news/eric-trump-slammed-particularly-disgusting-043230168.html)
 - May 27 - [China has threatened trade with some countries after feuds. They're calling 'the firm' for help](https://www.yahoo.com/news/china-threatened-trade-countries-feuds-040646810.html)
-- May 27 - [Libertarians nominate Chase Oliver for president, spurning both Trump and Kennedy](https://www.yahoo.com/news/libertarians-nominate-chase-oliver-president-030728015.html)
-- May 26 - [State officials declare humanitarian emergency as death toll climbs after flash flooding: 'Many people are still missing'](https://www.yahoo.com/news/state-officials-declare-humanitarian-emergency-230000980.html)
+- May 27 - [Russian POWs get to make phone calls home. Ukrainians don't. A growing movement wants that to change](https://www.yahoo.com/news/russian-pows-phone-calls-home-040137196.html)
+- May 26 - [7 Signs You’re Working Too Hard for Your Money & How To Work Less and Make More](https://finance.yahoo.com/news/7-signs-working-too-hard-230122032.html)
 <!-- feed end -->
 
 ### Onstream
