@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [‘I feel like an idiot. I need every cent to retire’: I gave a friend $20,000 to buy me a car. He ghosted me. I called the police. What options do I have?](https://finance.yahoo.com/news/feel-idiot-every-cent-retire-190200748.html)
-- May 26 - [Letters: Young voters will have their say on the PM’s plan for National Service](https://www.yahoo.com/news/letters-young-voters-pm-plan-230100286.html)
+- May 27 - [China Defies Global Copper Squeeze With Near-Record Production](https://finance.yahoo.com/news/china-defies-global-copper-squeeze-002540284.html)
+- May 27 - [8 injured after porch collapsed in New Jersey: officials](https://www.yahoo.com/news/8-injured-porch-collapsed-jersey-000729867.html)
+- May 26 - [State officials declare humanitarian emergency as death toll climbs after flash flooding: 'Many people are still missing'](https://www.yahoo.com/news/state-officials-declare-humanitarian-emergency-230000980.html)
 - May 26 - ['General Hospital's' Johnny Wactor killed in catalytic converter heist in downtown L.A., police say](https://www.yahoo.com/entertainment/general-hospitals-johnny-wactor-killed-225823969.html)
 - May 26 - [Christian group temporarily opens beaches it has closed on Sunday mornings as court fight plays out](https://www.yahoo.com/news/christian-group-temporarily-opens-beaches-204633898.html)
-- May 26 - [Watch Trump react to getting booed at Libertarian convention](https://www.yahoo.com/news/watch-trump-react-getting-booed-105334472.html)
 <!-- feed end -->
 
 ### Onstream
