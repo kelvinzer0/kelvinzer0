@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [EU-Israel relations take a nosedive as Spain, Ireland set to formally recognize a Palestinian state](https://www.yahoo.com/news/eu-israel-relations-nosedive-spain-095906965.html)
-- May 27 - [Mural honors Kokomo Engine Plant veterans](https://www.yahoo.com/news/mural-honors-kokomo-engine-plant-094700247.html)
-- May 27 - [NC regulators inspect Mission/HCA in Asheville; nurse: conditions better when they visit](https://www.yahoo.com/news/nc-regulators-inspect-mission-hca-091110752.html)
-- May 27 - [Report: Japanese carmaker Toyota set to end massive Olympic sponsorship deal](https://finance.yahoo.com/news/report-japanese-carmaker-toyota-set-052315042.html)
+- May 27 - [South Korea conducts jet drills amid North's satellite plans](https://www.yahoo.com/news/south-korea-conducts-jet-drills-104843995.html)
+- May 27 - [Donald Trump Shares Absolutely Vile Video About Joe Scarborough](https://www.yahoo.com/news/donald-trump-shares-absolutely-vile-103726497.html)
+- May 27 - [Philippines protests China's annual fishing ban](https://www.yahoo.com/news/philippines-protests-chinas-annual-fishing-074114690.html)
 - May 27 - [A synthetic drug ravages youth in Sierra Leone. There's little help, and some people are chained](https://www.yahoo.com/news/synthetic-drug-ravages-youth-sierra-050530990.html)
+- May 27 - [Eric Trump Slammed For ‘Particularly Disgusting’ Memorial Day Weekend Post](https://www.yahoo.com/news/eric-trump-slammed-particularly-disgusting-043230168.html)
 <!-- feed end -->
 
 ### Onstream
