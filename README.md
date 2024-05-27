@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Could Alphabet Stock Help You Retire a Millionaire?](https://finance.yahoo.com/news/could-alphabet-stock-help-retire-133700002.html)
-- May 27 - [How Hennepin County spends nearly $200 million a year on homelessness prevention](https://www.yahoo.com/news/hennepin-county-spends-nearly-200-133000866.html)
-- May 27 - [SLO County bakery owner opens Jewish bagel shop and deli right next door](https://www.yahoo.com/lifestyle/slo-county-bakery-owner-opens-120000618.html)
+- May 27 - [‘Driving recklessly’: 60 drivers caught speeding 90 mph or greater on I-95 during holiday weekend](https://www.yahoo.com/news/driving-recklessly-60-drivers-caught-142631212.html)
+- May 27 - [Rhode Island asking kei car owners to turn in their registration](https://www.autoblog.com/2024/05/27/rhode-island-asking-kei-car-owners-to-turn-in-their-registration/)
 - May 27 - [Why the US can't send humans to Mars](https://www.yahoo.com/tech/why-us-cant-send-humans-114901244.html)
-- May 27 - [Donald Trump Shares Absolutely Vile Video Of Heckler Confronting Joe Scarborough](https://www.yahoo.com/news/donald-trump-shares-absolutely-vile-103726497.html)
+- May 27 - [Brazil surpasses Belgium as top export market for Chinese EVs, hybrids, data shows](https://finance.yahoo.com/news/brazil-surpasses-belgium-top-export-113244113.html)
+- May 27 - [British event rider Georgie Campbell dies from fall during competition](https://sports.yahoo.com/british-event-rider-georgie-campbell-105726470.html)
 <!-- feed end -->
 
 ### Onstream
