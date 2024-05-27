@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [South Korea conducts jet drills amid North's satellite plans](https://www.yahoo.com/news/south-korea-conducts-jet-drills-104843995.html)
-- May 27 - [Donald Trump Shares Absolutely Vile Video About Joe Scarborough](https://www.yahoo.com/news/donald-trump-shares-absolutely-vile-103726497.html)
+- May 27 - [Ex-White House aide targets Haley for choosing to ‘bend the knee’ to Trump](https://www.yahoo.com/news/ex-white-house-aide-targets-120310092.html)
+- May 27 - [JSO: Man shot while driving, crashes car in Englewood neighborhood](https://www.yahoo.com/news/jso-man-shot-while-driving-115858990.html)
+- May 27 - [A boomer moved from Texas to Missouri for her retirement thinking everything would be cheaper. She was 'so wrong.'](https://www.yahoo.com/news/boomer-moved-texas-missouri-her-093202932.html)
+- May 27 - [Judge presiding over LSU student's attack makes unprecedented decision, prompting questions about conflicts](https://www.yahoo.com/news/judge-presiding-over-lsu-students-080047516.html)
 - May 27 - [Philippines protests China's annual fishing ban](https://www.yahoo.com/news/philippines-protests-chinas-annual-fishing-074114690.html)
-- May 27 - [A synthetic drug ravages youth in Sierra Leone. There's little help, and some people are chained](https://www.yahoo.com/news/synthetic-drug-ravages-youth-sierra-050530990.html)
-- May 27 - [Eric Trump Slammed For ‘Particularly Disgusting’ Memorial Day Weekend Post](https://www.yahoo.com/news/eric-trump-slammed-particularly-disgusting-043230168.html)
 <!-- feed end -->
 
 ### Onstream
