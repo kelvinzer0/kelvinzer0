@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [‘Driving recklessly’: 60 drivers caught speeding 90 mph or greater on I-95 during holiday weekend](https://www.yahoo.com/news/driving-recklessly-60-drivers-caught-142631212.html)
+- May 27 - [Trump Freaks Out at New York Trial Judge as Jury Deliberation Nears](https://www.yahoo.com/news/trump-freaks-york-trial-judge-154210883.html)
+- May 27 - [Trump says he 'would have absolutely gotten' Libertarian Party nomination if he could have run, slams RFK Jr.](https://www.yahoo.com/news/trump-says-absolutely-gotten-libertarian-234000114.html)
+- May 27 - [‘Went in for kill bite’: Mass. man who survived grizzly bear attack reveals what saved his life](https://www.yahoo.com/news/went-kill-bite-mass-man-144600269.html)
+- May 27 - [WHO states decide not to invite Taiwan to annual assembly](https://www.yahoo.com/news/states-decide-not-invite-taiwan-133940185.html)
 - May 27 - [Rhode Island asking kei car owners to turn in their registration](https://www.autoblog.com/2024/05/27/rhode-island-asking-kei-car-owners-to-turn-in-their-registration/)
-- May 27 - [Why the US can't send humans to Mars](https://www.yahoo.com/tech/why-us-cant-send-humans-114901244.html)
-- May 27 - [Brazil surpasses Belgium as top export market for Chinese EVs, hybrids, data shows](https://finance.yahoo.com/news/brazil-surpasses-belgium-top-export-113244113.html)
-- May 27 - [British event rider Georgie Campbell dies from fall during competition](https://sports.yahoo.com/british-event-rider-georgie-campbell-105726470.html)
 <!-- feed end -->
 
 ### Onstream
