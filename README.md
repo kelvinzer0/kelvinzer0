@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Baltic officials said they could send troops to Ukraine without waiting for NATO if Russia scores a breakthrough: report](https://www.yahoo.com/news/baltic-officials-said-could-send-071820267.html)
+- May 27 - [EU-Israel relations take a nosedive as Spain, Ireland set to formally recognize a Palestinian state](https://www.yahoo.com/news/eu-israel-relations-nosedive-spain-095906965.html)
+- May 27 - [Mural honors Kokomo Engine Plant veterans](https://www.yahoo.com/news/mural-honors-kokomo-engine-plant-094700247.html)
+- May 27 - [NC regulators inspect Mission/HCA in Asheville; nurse: conditions better when they visit](https://www.yahoo.com/news/nc-regulators-inspect-mission-hca-091110752.html)
 - May 27 - [Report: Japanese carmaker Toyota set to end massive Olympic sponsorship deal](https://finance.yahoo.com/news/report-japanese-carmaker-toyota-set-052315042.html)
 - May 27 - [A synthetic drug ravages youth in Sierra Leone. There's little help, and some people are chained](https://www.yahoo.com/news/synthetic-drug-ravages-youth-sierra-050530990.html)
-- May 27 - [Eric Trump Slammed For ‘Particularly Disgusting’ Memorial Day Weekend Post](https://www.yahoo.com/news/eric-trump-slammed-particularly-disgusting-043230168.html)
-- May 27 - [China has threatened trade with some countries after feuds. They're calling 'the firm' for help](https://www.yahoo.com/news/china-threatened-trade-countries-feuds-040646810.html)
 <!-- feed end -->
 
 ### Onstream
