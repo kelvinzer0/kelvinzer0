@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Argentina’s inflation, propped-up peso hit Paraguay border town](https://finance.yahoo.com/video/argentina-inflation-propped-peso-hit-194430535.html)
-- May 27 - [Accused murderer in court after victim's remains found in grass fire last month](https://www.yahoo.com/news/accused-murderer-court-victims-remains-192842223.html)
-- May 27 - [CNN legal expert says idea of Trump being acquitted in hush money case is ‘out of reach’](https://www.yahoo.com/news/cnn-legal-expert-says-idea-172857439.html)
-- May 27 - [A millennial who made over $300,000 secretly working 2 remote jobs says he'll do whatever he can to ensure he never has to commute to work again](https://finance.yahoo.com/news/millennial-made-over-300-000-171701093.html)
+- May 27 - [Pope used vulgar Italian word to refer to LGBT people, Italian newspapers report](https://www.yahoo.com/news/pope-used-vulgar-italian-word-192422008.html)
+- May 27 - [El Paso woman dies after striking median on I-10 East](https://www.yahoo.com/news/el-paso-woman-dies-striking-185211779.html)
 - May 27 - [Russia’s most modern battle tank hit by ‘disco head’ glitch](https://www.yahoo.com/news/russia-most-modern-battle-tank-151050676.html)
+- May 27 - [‘Went in for kill bite’: Mass. man who survived grizzly bear attack reveals what saved his life](https://www.yahoo.com/news/went-kill-bite-mass-man-144600269.html)
+- May 27 - [Pakistan temperatures cross 52 C in heatwave](https://www.yahoo.com/news/pakistan-temperatures-cross-52-c-144110810.html)
 <!-- feed end -->
 
 ### Onstream
