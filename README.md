@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 27 - [‘I feel like an idiot. I need every cent to retire’: I gave a friend $20,000 to buy me a car. He ghosted me. I called the police. What options do I have?](https://finance.yahoo.com/news/feel-idiot-every-cent-retire-190200748.html)
-- May 26 - [State officials declare humanitarian emergency as death toll climbs after flash flooding: 'Many people are still missing'](https://www.yahoo.com/news/state-officials-declare-humanitarian-emergency-230000980.html)
 - May 26 - ['General Hospital's' Johnny Wactor killed in catalytic converter heist; family, friends 'heartbroken'](https://www.yahoo.com/entertainment/general-hospitals-johnny-wactor-killed-225823969.html)
 - May 26 - [Don’t Buy a House in These 5 US Cities That Have Shrinking Populations and Fewer Buyers](https://finance.yahoo.com/news/don-t-buy-house-5-205253698.html)
 - May 26 - [Christian group temporarily opens beaches it has closed on Sunday mornings as court fight plays out](https://www.yahoo.com/news/christian-group-temporarily-opens-beaches-204633898.html)
+- May 26 - [Watch Trump react to getting booed at Libertarian convention](https://www.yahoo.com/news/watch-trump-react-getting-booed-105334472.html)
 <!-- feed end -->
 
 ### Onstream
