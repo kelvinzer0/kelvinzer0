@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Manager at towing service charged with skimming more than $500,000 from business](https://finance.yahoo.com/news/manager-towing-charged-skimming-more-133300090.html)
-- May 28 - [Image shows a 7-layer defensive line planned for the border between NATO and Russia](https://www.yahoo.com/news/image-shows-7-layer-defensive-131439284.html)
-- May 28 - [International murder suspect arrested in Splendora](https://www.yahoo.com/news/international-murder-suspect-arrested-splendora-124732461.html)
-- May 28 - [The Biden admin just finalized a controversial new retirement rule — here are 5 things you need to know now](https://finance.yahoo.com/news/biden-admin-just-finalized-controversial-110200136.html)
-- May 28 - [The Best Tea for Lowering Inflammation, According to a Dietitian](https://www.yahoo.com/lifestyle/best-tea-lowering-inflammation-according-110000647.html)
+- May 28 - [‘Trump’s brain is rotting in front of us,’ says American professor](https://www.yahoo.com/news/trump-brain-rotting-front-us-144444722.html)
+- May 28 - [Prediction: This Will Be the Next Semiconductor Company to Join Nvidia in the Trillion-Dollar Club (Hint: It's Not AMD)](https://finance.yahoo.com/news/prediction-next-semiconductor-company-join-143000644.html)
+- May 28 - [US Consumer Confidence Unexpectedly Rises to 102 in May](https://finance.yahoo.com/video/us-consumer-confidence-unexpectedly-rises-141609410.html)
+- May 28 - [GameStop stock soars as meme icon raises almost $1 billion in stock sale](https://finance.yahoo.com/news/gamestop-stock-soars-as-meme-icon-raises-almost-1-billion-in-stock-sale-141141591.html)
+- May 28 - [Teen diagnosed with concussion after encounter with Gastonia police](https://www.yahoo.com/news/teen-diagnosed-concussion-encounter-gastonia-134734902.html)
 <!-- feed end -->
 
 ### Onstream
