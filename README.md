@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Mexico's first woman president will inherit a huge public safety problem](https://www.yahoo.com/news/mexicos-first-woman-president-inherit-200144670.html)
-- May 28 - [1 dead in 'serious accident' on WB I-64 near downtown Louisville. Interstate shut down until further notice](https://www.yahoo.com/news/1-dead-serious-accident-wb-200116798.html)
+- May 28 - [Wichita County warns people's personal data may be impacted by cyberattack](https://www.yahoo.com/tech/wichita-county-warns-peoples-personal-214254127.html)
+- May 28 - [US Treasury sets $492 million minimum price for airline warrants auctions](https://finance.yahoo.com/news/us-treasury-sets-492-million-203239862.html)
 - May 28 - [Cracker Barrel announces changes to restaurant chain](https://www.yahoo.com/news/cracker-barrel-announces-changes-restaurant-194816670.html)
 - May 28 - [A Kentucky family is left homeless for a second time by a tornado that hit the same location](https://www.yahoo.com/news/kentucky-family-left-homeless-second-194811847.html)
-- May 28 - [Why Bitcoin, Ethereum, and Dogecoin Are Taking a Breather Today](https://finance.yahoo.com/news/why-bitcoin-ethereum-dogecoin-taking-191541223.html)
+- May 28 - [York County School Board removes controversial right-wing board chair](https://www.yahoo.com/news/york-county-school-board-removes-191520302.html)
 <!-- feed end -->
 
 ### Onstream
