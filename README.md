@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [People urged to stop getting Ozempic from 'faceless' illegitimate sources](https://www.yahoo.com/lifestyle/ozempic-weight-loss-pharmacy-doctors-083044817.html)
 - May 28 - [Trump Ripped For Bragging About 'Very Beautiful' Relationship With Brutal Dictator](https://www.yahoo.com/news/trump-ripped-bragging-very-beautiful-082615859.html)
 - May 28 - [Toyota showcases compact engines adaptable to different fuels](https://www.yahoo.com/tech/toyota-subaru-mazda-commit-developing-041647374.html)
 - May 28 - [Last year's deadly heat wave in metro Phoenix didn't discriminate](https://www.yahoo.com/news/last-years-deadly-heat-wave-040534747.html)
-- May 28 - [“This is one of the positive places in Memphis”: Patrons defend restaurant after stabbing incident](https://www.yahoo.com/news/one-positive-places-memphis-patrons-005955328.html)
+- May 27 - [Cockroaches wouldn't exist without humans. We helped them become one of the world's worst pests, according to a new study.](https://www.yahoo.com/tech/cockroaches-wouldnt-exist-without-humans-235717660.html)
+- May 27 - [This Study Just Explained Why Pickleball Is So Popular, And No It's Not Just Because Of The Cute Outfits](https://www.yahoo.com/lifestyle/pickleball-mood-booster-sport-major-201602559.html)
 <!-- feed end -->
 
 ### Onstream
