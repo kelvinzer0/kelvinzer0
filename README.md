@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Wichita County warns people's personal data may be impacted by cyberattack](https://www.yahoo.com/tech/wichita-county-warns-peoples-personal-214254127.html)
+- May 28 - [Jurors hear about Karen Read's blood alcohol level as murder trial enters fifth week](https://www.yahoo.com/news/jurors-hear-karen-reads-blood-215307898.html)
+- May 28 - [Lightning strike kills Colorado cattle rancher, 34 of his herd; wife, father-in-law survive](https://www.yahoo.com/news/lightning-strike-kills-colorado-cattle-203716545.html)
 - May 28 - [US Treasury sets $492 million minimum price for airline warrants auctions](https://finance.yahoo.com/news/us-treasury-sets-492-million-203239862.html)
-- May 28 - [Cracker Barrel announces changes to restaurant chain](https://www.yahoo.com/news/cracker-barrel-announces-changes-restaurant-194816670.html)
-- May 28 - [A Kentucky family is left homeless for a second time by a tornado that hit the same location](https://www.yahoo.com/news/kentucky-family-left-homeless-second-194811847.html)
-- May 28 - [York County School Board removes controversial right-wing board chair](https://www.yahoo.com/news/york-county-school-board-removes-191520302.html)
+- May 28 - [Retired Las Vegas police officer penned anonymous letters targeting lieutenant, detectives say](https://www.yahoo.com/news/retired-las-vegas-police-officer-200044932.html)
+- May 28 - [Kentucky families struggling after being hit for a second time by a tornado in the same locations](https://www.yahoo.com/news/kentucky-family-left-homeless-second-194811847.html)
 <!-- feed end -->
 
 ### Onstream
