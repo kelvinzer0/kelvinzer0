@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 28 - [An influx of new residents to GOP-leaning Montana could be the key voting bloc that decides the state's hotly-contested Senate race](https://www.yahoo.com/news/influx-residents-gop-leaning-montana-020324457.html)
+- May 28 - [Popular California beach closed for the holiday after shark bumped surfer off his board](https://www.yahoo.com/news/popular-california-beach-closed-holiday-003933916.html)
 - May 27 - [Cockroaches wouldn't exist without humans. We helped them become one of the world's worst pests, according to a new study.](https://www.yahoo.com/tech/cockroaches-wouldnt-exist-without-humans-235717660.html)
-- May 27 - [Richard Dreyfuss Sparks Outrage, Massachusetts Theater Apologizes For His ‘Offensive and Distressing’ Remarks at ‘Jaws’ Screening](https://www.yahoo.com/entertainment/richard-dreyfuss-sparks-outrage-massachusetts-203502330.html)
-- May 27 - [Spirit Airlines passengers told to put on life vests: "Nerve racking"](https://www.yahoo.com/news/spirit-airlines-passengers-told-put-200300655.html)
-- May 27 - [US company rejects Mexico's criticism, buy-out offer, says president's projects hurt the environment](https://finance.yahoo.com/news/us-company-rejects-mexicos-criticism-193256451.html)
-- May 27 - [Pope used vulgar Italian word to refer to LGBT people, Italian newspapers report](https://www.yahoo.com/news/pope-used-vulgar-italian-word-192422008.html)
+- May 27 - [Wrong-way driver airlifted after I-80 crash with horse trailer, UHP says](https://www.yahoo.com/news/wrong-way-driver-airlifted-80-225446301.html)
+- May 27 - [TN man arrested, facing federal child porn charges](https://www.yahoo.com/news/tn-man-arrested-facing-federal-211718130.html)
 <!-- feed end -->
 
 ### Onstream
