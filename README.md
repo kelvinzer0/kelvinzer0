@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Donald Trump sells private jet to Republican donor amid cash squeeze](https://finance.yahoo.com/news/donald-trump-sells-private-jet-181516960.html)
-- May 28 - [Signal: Buy the Dip on DraftKings Stock](https://finance.yahoo.com/news/signal-buy-dip-draftkings-stock-180556792.html)
-- May 28 - [Elderly Man Gets Pick-Pocketed Outside Grocery Store: Cops](https://www.yahoo.com/news/elderly-man-gets-pick-pocketed-180501449.html)
-- May 28 - [SC pair accused of locking boys in room, denying food, bathroom access. One was near death](https://www.yahoo.com/news/sc-pair-accused-locking-boys-165437539.html)
-- May 28 - [Putin warns West not to let Ukraine use its missiles to hit Russia](https://www.yahoo.com/news/putin-warns-west-not-let-163041799.html)
+- May 28 - [Nvidia stock leaps to latest record — thanks to Elon Musk](https://finance.yahoo.com/news/nvidia-stock-leaps-to-latest-record--thanks-to-elon-musk-201145788.html)
+- May 28 - [A big F-16 donation to Ukraine comes with a major condition](https://www.yahoo.com/news/big-f-16-donation-ukraine-190724734.html)
+- May 28 - ['You are gangsters': Robert De Niro clashes with pro-Trump protesters](https://www.yahoo.com/news/gangsters-robert-niro-clashes-pro-183323597.html)
+- May 28 - [Judge scolds Trump lawyer for ‘outrageous’ comments in closing about Trump’s prison threat](https://www.yahoo.com/news/judge-scolds-trump-lawyer-outrageous-183000389.html)
+- May 28 - [Ukraine's FrankenSAM That Uses RIM-7 Sea Sparrow Missiles Breaks Cover](https://www.yahoo.com/news/ukraines-frankensam-uses-rim-7-175835342.html)
 <!-- feed end -->
 
 ### Onstream
