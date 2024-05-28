@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [“This is one of the positive places in Memphis”: Patrons defend restaurant after stabbing incident](https://www.yahoo.com/news/one-positive-places-memphis-patrons-005955328.html)
-- May 28 - [Popular California beach closed for the holiday after shark bumped surfer off his board](https://www.yahoo.com/news/popular-california-beach-closed-holiday-003933916.html)
+- May 28 - [Toyota, Subaru and Mazda commit to developing new engines](https://www.yahoo.com/tech/toyota-subaru-mazda-commit-developing-041647374.html)
+- May 28 - [Paper towels catch fire at Charlotte Harris Teeter, prompting evacuation](https://www.yahoo.com/news/paper-towels-catch-fire-charlotte-004505556.html)
 - May 27 - [Cockroaches wouldn't exist without humans. We helped them become one of the world's worst pests, according to a new study.](https://www.yahoo.com/tech/cockroaches-wouldnt-exist-without-humans-235717660.html)
-- May 27 - [Wrong-way driver airlifted after I-80 crash with horse trailer, UHP says](https://www.yahoo.com/news/wrong-way-driver-airlifted-80-225446301.html)
+- May 27 - [Richard Dreyfuss Sparks Outrage, Massachusetts Theater Apologizes For His ‘Offensive and Distressing’ Remarks at ‘Jaws’ Screening](https://www.yahoo.com/entertainment/richard-dreyfuss-sparks-outrage-massachusetts-203502330.html)
 - May 27 - [US company rejects Mexico's criticism, buy-out offer, says president's projects hurt the environment](https://finance.yahoo.com/news/us-company-rejects-mexicos-criticism-193256451.html)
 <!-- feed end -->
 
