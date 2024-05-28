@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 27 - [Brazil plans to raise minimum cigarette price, source says](https://www.yahoo.com/news/brazil-plans-raise-minimum-cigarette-220959113.html)
-- May 27 - [Popular swimming area in Caldwell County being overrun, leaders say](https://www.yahoo.com/news/popular-swimming-area-caldwell-county-164146480.html)
 - May 27 - [Richard Dreyfuss Sparks Outrage, Massachusetts Theater Apologizes For His ‘Offensive and Distressing’ Remarks at ‘Jaws’ Screening](https://www.yahoo.com/entertainment/richard-dreyfuss-sparks-outrage-massachusetts-203502330.html)
 - May 27 - [US company rejects Mexico's criticism, buy-out offer, says president's projects hurt the environment](https://finance.yahoo.com/news/us-company-rejects-mexicos-criticism-193256451.html)
 - May 27 - [Pope used vulgar Italian word to refer to LGBT people, Italian newspapers report](https://www.yahoo.com/news/pope-used-vulgar-italian-word-192422008.html)
+- May 27 - [Home insurance was once a ‘must.’ Now more homeowners are going without.](https://finance.yahoo.com/news/home-insurance-once-must-now-192257969.html)
+- May 27 - [People who use weight loss drugs like Ozempic face a problem: What to do when they run out or can't take them anymore](https://www.yahoo.com/news/people-weight-loss-drugs-ozempic-185651645.html)
 <!-- feed end -->
 
 ### Onstream
