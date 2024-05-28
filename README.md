@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Toyota, Subaru and Mazda commit to developing new engines](https://www.yahoo.com/tech/toyota-subaru-mazda-commit-developing-041647374.html)
+- May 28 - [Post-COVID, China is back in Africa and doubling down on minerals](https://finance.yahoo.com/news/analysis-post-covid-china-back-060537673.html)
+- May 28 - [Taiwan president thanks pilots who scrambled against China drills](https://www.yahoo.com/news/taiwan-president-thanks-pilots-scrambled-050756801.html)
+- May 28 - [Toyota showcases compact engines adaptable to different fuels](https://www.yahoo.com/tech/toyota-subaru-mazda-commit-developing-041647374.html)
 - May 28 - [“This is one of the positive places in Memphis”: Patrons defend restaurant after stabbing incident](https://www.yahoo.com/news/one-positive-places-memphis-patrons-005955328.html)
-- May 28 - [Popular California beach closed for the holiday after shark bumped surfer off his board](https://www.yahoo.com/news/popular-california-beach-closed-holiday-003933916.html)
 - May 27 - [Cockroaches wouldn't exist without humans. We helped them become one of the world's worst pests, according to a new study.](https://www.yahoo.com/tech/cockroaches-wouldnt-exist-without-humans-235717660.html)
-- May 27 - [Homeowner exchanges gunfire with group attempting to steal Ferrari, Range Rover outside North Shore home](https://www.yahoo.com/news/homeowner-exchanges-gunfire-group-attempting-204045973.html)
 <!-- feed end -->
 
 ### Onstream
