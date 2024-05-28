@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [The Biden admin just finalized a controversial new retirement rule — here are 5 things you need to know now](https://finance.yahoo.com/news/biden-admin-just-finalized-controversial-110200136.html)
-- May 28 - [An airline kicked a family off the plane after they made their own no-peanut announcement when the crew refused to](https://www.yahoo.com/news/airline-kicked-family-off-plane-105229831.html)
-- May 28 - [Japan's Toyota announces 'an engine born' with biofuel despite global push for battery electric cars](https://www.yahoo.com/tech/japans-toyota-announces-engine-born-103753954.html)
-- May 28 - [E. Jean Carroll’s Lawyer Responds To New Donald Trump Attack](https://www.yahoo.com/news/e-jean-carroll-lawyer-responds-094127348.html)
-- May 28 - [70 years after Brown v Board, Alabama town still grapples with divided schools](https://www.yahoo.com/news/70-years-brown-v-board-091735312.html)
+- May 28 - [Why your thyroid can have such a big impact on your health](https://www.yahoo.com/lifestyle/thyroid-gland-health-impact-tips-125121083.html)
+- May 28 - [UK vows action over hundreds of Ukrainians with disabilities vanished into Russia](https://www.yahoo.com/news/uk-vows-action-over-hundreds-124519555.html)
+- May 28 - [China's latest weapon of war is a gun-toting robot dog](https://www.yahoo.com/news/chinas-latest-weapon-war-gun-120744165.html)
+- May 28 - [Arizona state elections 2024: Legislative majority at risk for Republicans](https://www.yahoo.com/news/arizona-state-elections-2024-legislative-120159118.html)
+- May 28 - [Mandatory KID watering restrictions possible this summer. What you can do now](https://www.yahoo.com/lifestyle/mandatory-kid-watering-restrictions-possible-120000848.html)
 <!-- feed end -->
 
 ### Onstream
