@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Nvidia stock leaps to latest record — thanks to Elon Musk](https://finance.yahoo.com/news/nvidia-stock-leaps-to-latest-record--thanks-to-elon-musk-201145788.html)
-- May 28 - [A big F-16 donation to Ukraine comes with a major condition](https://www.yahoo.com/news/big-f-16-donation-ukraine-190724734.html)
-- May 28 - ['You are gangsters': Robert De Niro clashes with pro-Trump protesters](https://www.yahoo.com/news/gangsters-robert-niro-clashes-pro-183323597.html)
-- May 28 - [Judge scolds Trump lawyer for ‘outrageous’ comments in closing about Trump’s prison threat](https://www.yahoo.com/news/judge-scolds-trump-lawyer-outrageous-183000389.html)
-- May 28 - [Ukraine's FrankenSAM That Uses RIM-7 Sea Sparrow Missiles Breaks Cover](https://www.yahoo.com/news/ukraines-frankensam-uses-rim-7-175835342.html)
+- May 28 - [Mexico's first woman president will inherit a huge public safety problem](https://www.yahoo.com/news/mexicos-first-woman-president-inherit-200144670.html)
+- May 28 - [1 dead in 'serious accident' on WB I-64 near downtown Louisville. Interstate shut down until further notice](https://www.yahoo.com/news/1-dead-serious-accident-wb-200116798.html)
+- May 28 - [Cracker Barrel announces changes to restaurant chain](https://www.yahoo.com/news/cracker-barrel-announces-changes-restaurant-194816670.html)
+- May 28 - [A Kentucky family is left homeless for a second time by a tornado that hit the same location](https://www.yahoo.com/news/kentucky-family-left-homeless-second-194811847.html)
+- May 28 - [Why Bitcoin, Ethereum, and Dogecoin Are Taking a Breather Today](https://finance.yahoo.com/news/why-bitcoin-ethereum-dogecoin-taking-191541223.html)
 <!-- feed end -->
 
 ### Onstream
