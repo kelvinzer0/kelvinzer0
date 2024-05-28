@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Why your thyroid can have such a big impact on your health](https://www.yahoo.com/lifestyle/thyroid-gland-health-impact-tips-125121083.html)
-- May 28 - [UK vows action over hundreds of Ukrainians with disabilities vanished into Russia](https://www.yahoo.com/news/uk-vows-action-over-hundreds-124519555.html)
-- May 28 - [China's latest weapon of war is a gun-toting robot dog](https://www.yahoo.com/news/chinas-latest-weapon-war-gun-120744165.html)
-- May 28 - [Arizona state elections 2024: Legislative majority at risk for Republicans](https://www.yahoo.com/news/arizona-state-elections-2024-legislative-120159118.html)
-- May 28 - [Mandatory KID watering restrictions possible this summer. What you can do now](https://www.yahoo.com/lifestyle/mandatory-kid-watering-restrictions-possible-120000848.html)
+- May 28 - [Manager at towing service charged with skimming more than $500,000 from business](https://finance.yahoo.com/news/manager-towing-charged-skimming-more-133300090.html)
+- May 28 - [Image shows a 7-layer defensive line planned for the border between NATO and Russia](https://www.yahoo.com/news/image-shows-7-layer-defensive-131439284.html)
+- May 28 - [International murder suspect arrested in Splendora](https://www.yahoo.com/news/international-murder-suspect-arrested-splendora-124732461.html)
+- May 28 - [The Biden admin just finalized a controversial new retirement rule — here are 5 things you need to know now](https://finance.yahoo.com/news/biden-admin-just-finalized-controversial-110200136.html)
+- May 28 - [The Best Tea for Lowering Inflammation, According to a Dietitian](https://www.yahoo.com/lifestyle/best-tea-lowering-inflammation-according-110000647.html)
 <!-- feed end -->
 
 ### Onstream
