@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 28 - [American sentenced to time served, fined $9,000 for bringing ammo to Turks and Caicos](https://www.yahoo.com/news/american-sentenced-time-served-fined-155844593.html)
 - May 28 - [Trump’s enemies have just handed him the keys to the White House](https://www.yahoo.com/news/trump-enemies-just-handed-him-154024631.html)
 - May 28 - [Judge nixes bid to restrict Trump statements that could endanger officers in classified records case](https://www.yahoo.com/news/judge-nixes-bid-restrict-trump-153608308.html)
+- May 28 - [Judge Cannon denies special counsel request to bar Trump from making statements about law enforcement](https://www.yahoo.com/news/judge-cannon-denies-special-counsel-153500904.html)
 - May 28 - [Passenger dies after jumping off world’s largest cruise ship as it sets sail from Florida](https://www.yahoo.com/news/passenger-dies-jumping-off-world-152613418.html)
-- May 28 - [‘Went in for kill bite’: Mass. man who survived grizzly bear attack reveals what saved his life](https://www.yahoo.com/news/went-kill-bite-mass-man-144600269.html)
-- May 28 - [Canada finance minister says budget created conditions for cut in interest rates](https://www.yahoo.com/news/canada-finance-minister-says-budget-150334147.html)
 <!-- feed end -->
 
 ### Onstream
