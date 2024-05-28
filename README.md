@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [‘Trump’s brain is rotting in front of us,’ says American professor](https://www.yahoo.com/news/trump-brain-rotting-front-us-144444722.html)
-- May 28 - [Prediction: This Will Be the Next Semiconductor Company to Join Nvidia in the Trillion-Dollar Club (Hint: It's Not AMD)](https://finance.yahoo.com/news/prediction-next-semiconductor-company-join-143000644.html)
-- May 28 - [US Consumer Confidence Unexpectedly Rises to 102 in May](https://finance.yahoo.com/video/us-consumer-confidence-unexpectedly-rises-141609410.html)
-- May 28 - [GameStop stock soars as meme icon raises almost $1 billion in stock sale](https://finance.yahoo.com/news/gamestop-stock-soars-as-meme-icon-raises-almost-1-billion-in-stock-sale-141141591.html)
-- May 28 - [Teen diagnosed with concussion after encounter with Gastonia police](https://www.yahoo.com/news/teen-diagnosed-concussion-encounter-gastonia-134734902.html)
+- May 28 - [Trump’s enemies have just handed him the keys to the White House](https://www.yahoo.com/news/trump-enemies-just-handed-him-154024631.html)
+- May 28 - [Judge nixes bid to restrict Trump statements that could endanger officers in classified records case](https://www.yahoo.com/news/judge-nixes-bid-restrict-trump-153608308.html)
+- May 28 - [Passenger dies after jumping off world’s largest cruise ship as it sets sail from Florida](https://www.yahoo.com/news/passenger-dies-jumping-off-world-152613418.html)
+- May 28 - [‘Went in for kill bite’: Mass. man who survived grizzly bear attack reveals what saved his life](https://www.yahoo.com/news/went-kill-bite-mass-man-144600269.html)
+- May 28 - [Canada finance minister says budget created conditions for cut in interest rates](https://www.yahoo.com/news/canada-finance-minister-says-budget-150334147.html)
 <!-- feed end -->
 
 ### Onstream
