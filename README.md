@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Pictured: The Colorado rancher killed with 34 cows in freak lightning strike](https://www.yahoo.com/news/rancher-34-cows-shockingly-killed-191343987.html)
+- May 28 - [The Biden admin just finalized a controversial new retirement rule — here are 5 things you need to know now](https://finance.yahoo.com/news/biden-admin-just-finalized-controversial-110200136.html)
+- May 28 - [An airline kicked a family off the plane after they made their own no-peanut announcement when the crew refused to](https://www.yahoo.com/news/airline-kicked-family-off-plane-105229831.html)
+- May 28 - [Japan's Toyota announces 'an engine born' with biofuel despite global push for battery electric cars](https://www.yahoo.com/tech/japans-toyota-announces-engine-born-103753954.html)
 - May 28 - [E. Jean Carroll’s Lawyer Responds To New Donald Trump Attack](https://www.yahoo.com/news/e-jean-carroll-lawyer-responds-094127348.html)
-- May 28 - [Warren Buffett Recommends This Index Fund. It Could Turn $350 Per Month Into $903,800, With Help From AI Stocks.](https://finance.yahoo.com/news/warren-buffett-recommends-index-fund-093000132.html)
 - May 28 - [70 years after Brown v Board, Alabama town still grapples with divided schools](https://www.yahoo.com/news/70-years-brown-v-board-091735312.html)
-- May 28 - [Trump Ripped For Bragging About 'Very Beautiful' Relationship With Brutal Dictator](https://www.yahoo.com/news/trump-ripped-bragging-very-beautiful-082615859.html)
 <!-- feed end -->
 
 ### Onstream
