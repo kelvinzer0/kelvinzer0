@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 28 - [Pictured: The Colorado rancher killed with 34 cows in freak lightning strike](https://www.yahoo.com/news/rancher-34-cows-shockingly-killed-191343987.html)
+- May 28 - [E. Jean Carroll’s Lawyer Responds To New Donald Trump Attack](https://www.yahoo.com/news/e-jean-carroll-lawyer-responds-094127348.html)
+- May 28 - [Warren Buffett Recommends This Index Fund. It Could Turn $350 Per Month Into $903,800, With Help From AI Stocks.](https://finance.yahoo.com/news/warren-buffett-recommends-index-fund-093000132.html)
+- May 28 - [70 years after Brown v Board, Alabama town still grapples with divided schools](https://www.yahoo.com/news/70-years-brown-v-board-091735312.html)
 - May 28 - [Trump Ripped For Bragging About 'Very Beautiful' Relationship With Brutal Dictator](https://www.yahoo.com/news/trump-ripped-bragging-very-beautiful-082615859.html)
-- May 28 - [Toyota showcases compact engines adaptable to different fuels](https://www.yahoo.com/tech/toyota-subaru-mazda-commit-developing-041647374.html)
-- May 28 - [Last year's deadly heat wave in metro Phoenix didn't discriminate](https://www.yahoo.com/news/last-years-deadly-heat-wave-040534747.html)
-- May 27 - [Cockroaches wouldn't exist without humans. We helped them become one of the world's worst pests, according to a new study.](https://www.yahoo.com/tech/cockroaches-wouldnt-exist-without-humans-235717660.html)
-- May 27 - [This Study Just Explained Why Pickleball Is So Popular, And No It's Not Just Because Of The Cute Outfits](https://www.yahoo.com/lifestyle/pickleball-mood-booster-sport-major-201602559.html)
 <!-- feed end -->
 
 ### Onstream
