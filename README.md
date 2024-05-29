@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Musk's $56 billion pay package opposed by CalPERS CEO, CNBC reports](https://finance.yahoo.com/news/musks-56-billion-pay-package-193940664.html)
+- May 29 - [Fox News anchor to Alina Habba: Biden ‘not responsible’ for Trump trial](https://www.yahoo.com/news/fox-news-anchor-alina-habba-212219331.html)
 - May 29 - [Miami-Dade man recorded rape of a Palm Beach schoolgirl. He had her sell the videos](https://www.yahoo.com/news/miami-dade-man-recorded-rape-193736099.html)
-- May 29 - [Popular SLO hiking trail to temporarily close this summer. Here’s what’s happening](https://www.yahoo.com/news/popular-slo-hiking-trail-temporarily-183258633.html)
-- May 29 - [OTD In Space – May 29: Einstein's Theory Of Relativity Tested With Total Solar Eclipse](https://www.yahoo.com/news/otd-space-may-29-einsteins-180000772.html)
-- May 29 - [Think tank close to Kremlin says Russia should consider a 'demonstrative' nuclear explosion](https://www.yahoo.com/news/think-tank-close-kremlin-says-164723170.html)
+- May 29 - [Video Shows China's Rifle-Equipped Robot Dog Opening Fire on Targets](https://www.yahoo.com/tech/video-shows-chinas-rifle-equipped-174742949.html)
+- May 29 - [Charges against Scottie Scheffler dropped in police incident during PGA Championship](https://sports.yahoo.com/charges-against-scottie-scheffler-dropped-in-police-incident-during-pga-championship-170247480.html)
+- May 29 - [New sex crime charges filed against Ocean Springs Middle School substitute teacher](https://www.yahoo.com/news/sex-crime-charges-filed-against-170132499.html)
 <!-- feed end -->
 
 ### Onstream
