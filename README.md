@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Delhi temperature may break record for India's highest: 126.1 degrees](https://www.yahoo.com/news/delhi-temperature-may-break-record-185916496.html)
-- May 29 - [Update: Small plane lands on busy US 501 near Carolina Forest. It was flying to airport](https://www.yahoo.com/news/plane-makes-landing-busy-us-172024851.html)
-- May 29 - [New sex crime charges filed against Ocean Springs Middle School substitute teacher](https://www.yahoo.com/news/sex-crime-charges-filed-against-170132499.html)
-- May 29 - [Wisconsin judge hearing lawsuit challenging union law appears to have signed Walker recall petition](https://www.yahoo.com/news/name-wisconsin-judge-hearing-lawsuit-164757910.html)
+- May 29 - [Musk's $56 billion pay package opposed by CalPERS CEO, CNBC reports](https://finance.yahoo.com/news/musks-56-billion-pay-package-193940664.html)
+- May 29 - [Miami-Dade man recorded rape of a Palm Beach schoolgirl. He had her sell the videos](https://www.yahoo.com/news/miami-dade-man-recorded-rape-193736099.html)
+- May 29 - [Popular SLO hiking trail to temporarily close this summer. Here’s what’s happening](https://www.yahoo.com/news/popular-slo-hiking-trail-temporarily-183258633.html)
+- May 29 - [OTD In Space – May 29: Einstein's Theory Of Relativity Tested With Total Solar Eclipse](https://www.yahoo.com/news/otd-space-may-29-einsteins-180000772.html)
 - May 29 - [Think tank close to Kremlin says Russia should consider a 'demonstrative' nuclear explosion](https://www.yahoo.com/news/think-tank-close-kremlin-says-164723170.html)
 <!-- feed end -->
 
