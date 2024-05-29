@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 29 - [Delhi temperature may break record for India's highest: 126.1 degrees](https://www.yahoo.com/news/delhi-temperature-may-break-record-185916496.html)
+- May 29 - [Update: Small plane lands on busy US 501 near Carolina Forest. It was flying to airport](https://www.yahoo.com/news/plane-makes-landing-busy-us-172024851.html)
 - May 29 - [New sex crime charges filed against Ocean Springs Middle School substitute teacher](https://www.yahoo.com/news/sex-crime-charges-filed-against-170132499.html)
+- May 29 - [Wisconsin judge hearing lawsuit challenging union law appears to have signed Walker recall petition](https://www.yahoo.com/news/name-wisconsin-judge-hearing-lawsuit-164757910.html)
 - May 29 - [Think tank close to Kremlin says Russia should consider a 'demonstrative' nuclear explosion](https://www.yahoo.com/news/think-tank-close-kremlin-says-164723170.html)
-- May 29 - [Amy Coney Barrett’s Husband Has a New Client—and It’s Disturbing](https://www.yahoo.com/news/amy-coney-barrett-husband-client-161428403.html)
-- May 29 - [Former TV weatherman Mike Davis released from prison after four years](https://www.yahoo.com/news/former-tv-weatherman-mike-davis-160000282.html)
-- May 29 - [Dine-and-dash couple jailed and fined](https://www.yahoo.com/news/dine-dash-couple-jailed-fined-145116002.html)
 <!-- feed end -->
 
 ### Onstream
