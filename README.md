@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Stock market today: US futures sink as rising Treasury yields rattle nerves](https://finance.yahoo.com/news/stock-market-today-us-futures-sink-as-rising-treasury-yields-rattle-nerves-115257822.html)
-- May 29 - [Nvidia Rallies on Astronomical Revenue Growth and Stock Split. Is It Too Late to Buy the Stock?](https://finance.yahoo.com/news/nvidia-rallies-astronomical-revenue-growth-115000714.html)
+- May 29 - [Nvidia Accelerates AI Chip Production with New Packaging Tech to Meet Soaring Demand](https://finance.yahoo.com/news/nvidia-accelerates-ai-chip-production-135422094.html)
+- May 29 - [How old is too old for jury duty in California? Here are the age requirements to serve](https://www.yahoo.com/news/old-too-old-jury-duty-120000585.html)
+- May 29 - [Gravitational changes, 178-feet drop caused injuries on Singapore Airlines jet that hit turbulence](https://finance.yahoo.com/news/gravitational-changes-178-feet-drop-115311886.html)
 - May 29 - [NC agents make drug arrests, seize guns in investigation of downtown Raleigh bars](https://www.yahoo.com/news/nc-special-agents-charge-suspects-114231262.html)
-- May 29 - [US consumers show the Fed its backward problem with high rates: Morning Brief](https://finance.yahoo.com/news/us-consumers-show-the-fed-its-backward-problem-with-high-rates-morning-brief-100047960.html)
-- May 29 - [Gen X is the 401(k) 'experiment generation.' Here's how that's playing out.](https://finance.yahoo.com/news/gen-x-is-the-401k-experiment-generation-heres-how-thats-playing-out-100010909.html)
+- May 29 - [Here’s how much you can expect your Social Security benefits to be — if you make $35K, $50K or $80K](https://finance.yahoo.com/news/much-expect-social-security-benefits-110800713.html)
 <!-- feed end -->
 
 ### Onstream
