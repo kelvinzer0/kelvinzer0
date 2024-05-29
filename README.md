@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 28 - [Jurors hear about Karen Read's blood alcohol level as murder trial enters fifth week](https://www.yahoo.com/news/jurors-hear-karen-reads-blood-215307898.html)
-- May 28 - [Lightning strike kills Colorado cattle rancher, 34 of his herd; wife, father-in-law survive](https://www.yahoo.com/news/lightning-strike-kills-colorado-cattle-203716545.html)
-- May 28 - [US Treasury sets $492 million minimum price for airline warrants auctions](https://finance.yahoo.com/news/us-treasury-sets-492-million-203239862.html)
-- May 28 - [Retired Las Vegas police officer penned anonymous letters targeting lieutenant, detectives say](https://www.yahoo.com/news/retired-las-vegas-police-officer-200044932.html)
-- May 28 - [Kentucky families struggling after being hit for a second time by a tornado in the same locations](https://www.yahoo.com/news/kentucky-family-left-homeless-second-194811847.html)
+- May 29 - [Nvidia stock has 258% upside as its 'impenetrable moat' will propel it to a $10 trillion valuation by 2030, tech analyst says](https://finance.yahoo.com/news/nvidia-stock-258-upside-impenetrable-004136396.html)
+- May 28 - [‘Egregious and disturbing.’ NC audit questions $600,000 put on university credit cards](https://finance.yahoo.com/news/egregious-disturbing-nc-audit-questions-225547344.html)
+- May 28 - [Former California water official pleads guilty to conspiring to steal water from irrigation canal](https://www.yahoo.com/news/former-california-water-official-pleads-223019673.html)
+- May 28 - [Fact Check: There's More to an Image Allegedly Showing Astronauts Not Wearing Helmets on the Moon Than Meets the Eye](https://www.yahoo.com/news/fact-check-theres-more-image-221200761.html)
+- May 28 - [Two KFC locations are closed in Peoria. Here’s what we know](https://www.yahoo.com/news/two-kfc-locations-closed-peoria-213602369.html)
 <!-- feed end -->
 
 ### Onstream
