@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 29 - [In the Market: In Asia, people ask, how do I derisk from America?](https://finance.yahoo.com/news/market-asia-people-ask-derisk-050634531.html)
 - May 29 - [Ukraine can use French weapons to strike inside Russia, Macron says](https://www.yahoo.com/news/ukraine-french-weapons-strike-inside-034116410.html)
-- May 29 - [IMF upgrades China's 2024, 2025 GDP growth forecasts after 'strong' Q1](https://finance.yahoo.com/news/imf-upgrades-chinas-2024-2025-020349210.html)
 - May 29 - [2 men accused of stealing over $4,000 from Allegheny County Giant Eagle in several trips](https://www.yahoo.com/news/2-men-accused-stealing-over-013902825.html)
 - May 29 - [These 5 foods can slow aging in your brain, new study finds](https://www.yahoo.com/lifestyle/dietitian-shares-no-1-food-021256476.html)
 - May 29 - [Bill Maher clashes with Jewish actress saying antisemitism comes from the right: 'No, it doesn't'](https://www.yahoo.com/news/bill-maher-clashes-jewish-actress-000046951.html)
