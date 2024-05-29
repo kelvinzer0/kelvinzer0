@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 29 - [Charges against Scottie Scheffler dropped in police incident during PGA Championship](https://sports.yahoo.com/charges-against-scottie-scheffler-dropped-in-police-incident-during-pga-championship-170247480.html)
 - May 29 - [Think tank close to Kremlin says Russia should consider a 'demonstrative' nuclear explosion](https://www.yahoo.com/news/think-tank-close-kremlin-says-164723170.html)
-- May 29 - [Charges Against Pro Golfer Scottie Scheffler to Be Dropped: Reports](https://sports.yahoo.com/charges-against-pro-golfer-scottie-162536969.html)
-- May 29 - [American Airlines’ ‘Odor’ Excuse Reeked of Racism: Lawsuit](https://www.yahoo.com/news/american-airlines-odor-excuse-reeked-153136400.html)
-- May 29 - [Building explosion kills bank employee and injures 7 others in Youngstown, Ohio](https://www.yahoo.com/news/building-explosion-kills-bank-employee-145712268.html)
-- May 29 - [11 of the best high-protein foods for weight loss, according to dietitians](https://www.yahoo.com/news/11-best-high-protein-foods-140710873.html)
+- May 29 - [Amy Coney Barrett’s Husband Has a New Client—and It’s Disturbing](https://www.yahoo.com/news/amy-coney-barrett-husband-client-161428403.html)
+- May 29 - [North Korea sends excrement balloons over South](https://www.yahoo.com/news/north-korea-sends-excrement-balloons-160751477.html)
+- May 29 - [Former TV weatherman Mike Davis released from prison after four years](https://www.yahoo.com/news/former-tv-weatherman-mike-davis-160000282.html)
 <!-- feed end -->
 
 ### Onstream
