@@ -60,10 +60,10 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- May 29 - [Trump Boasted About Sex With Stormy in Tahoe, Athlete Says](https://www.yahoo.com/news/trump-boasted-sex-stormy-tahoe-081921141.html)
 - May 29 - [In the Market: In Asia, people ask, how do I derisk from America?](https://finance.yahoo.com/news/market-asia-people-ask-derisk-050634531.html)
 - May 29 - [California's $20 Fast Food Minimum Wage Law Is Already Having Disastrous Unintended Consequences](https://finance.yahoo.com/news/californias-20-fast-food-minimum-043059963.html)
 - May 29 - [Ukraine can use French weapons to strike inside Russia, Macron says](https://www.yahoo.com/news/ukraine-french-weapons-strike-inside-034116410.html)
-- May 29 - [A teen told his graduating class Jesus is 'your answer.' Now he's facing consequences](https://www.yahoo.com/news/teen-told-graduating-class-jesus-022022569.html)
 - May 29 - [Bill Maher clashes with Jewish actress saying antisemitism comes from the right: 'No, it doesn't'](https://www.yahoo.com/news/bill-maher-clashes-jewish-actress-000046951.html)
 <!-- feed end -->
 
