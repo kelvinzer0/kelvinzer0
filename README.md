@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Oconto Falls beach will have lifeguards this summer - at least three days a week](https://www.yahoo.com/news/oconto-falls-beach-lifeguards-summer-034554522.html)
-- May 29 - [A teen told his graduating class Jesus is 'your answer.' Now he's facing consequences](https://www.yahoo.com/news/teen-told-graduating-class-jesus-022022569.html)
-- May 29 - [Prized Russian Long Range Radar System Attacked In Eastern Ukraine](https://www.yahoo.com/news/prized-russian-long-range-radar-021318456.html)
+- May 29 - [Ukraine can use French weapons to strike inside Russia, Macron says](https://www.yahoo.com/news/ukraine-french-weapons-strike-inside-034116410.html)
+- May 29 - [Evacuation warning issued as wildfire burns 1,200 acres in Santa Barbara County hills](https://www.yahoo.com/news/evacuation-warning-issued-wildfire-burns-004843256.html)
 - May 29 - [Bill Maher clashes with Jewish actress saying antisemitism comes from the right: 'No, it doesn't'](https://www.yahoo.com/news/bill-maher-clashes-jewish-actress-000046951.html)
 - May 28 - [Franklin community mourns loss of Page High graduate killed in shooting](https://www.yahoo.com/news/franklin-community-mourns-loss-page-232128908.html)
+- May 28 - [Former California water official pleads guilty to conspiring to steal water from irrigation canal](https://www.yahoo.com/news/former-california-water-official-pleads-223019673.html)
 <!-- feed end -->
 
 ### Onstream
