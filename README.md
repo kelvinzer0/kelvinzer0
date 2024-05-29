@@ -61,10 +61,10 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - May 29 - [Fox News anchor to Alina Habba: Biden ‘not responsible’ for Trump trial](https://www.yahoo.com/news/fox-news-anchor-alina-habba-212219331.html)
-- May 29 - [Miami-Dade man recorded rape of a Palm Beach schoolgirl. He had her sell the videos](https://www.yahoo.com/news/miami-dade-man-recorded-rape-193736099.html)
-- May 29 - [Video Shows China's Rifle-Equipped Robot Dog Opening Fire on Targets](https://www.yahoo.com/tech/video-shows-chinas-rifle-equipped-174742949.html)
-- May 29 - [Charges against Scottie Scheffler dropped in police incident during PGA Championship](https://sports.yahoo.com/charges-against-scottie-scheffler-dropped-in-police-incident-during-pga-championship-170247480.html)
-- May 29 - [New sex crime charges filed against Ocean Springs Middle School substitute teacher](https://www.yahoo.com/news/sex-crime-charges-filed-against-170132499.html)
+- May 29 - [Boeing making progress on 737 MAX engine issue delaying certification of some models](https://finance.yahoo.com/news/boeing-says-making-progress-737-202940553.html)
+- May 29 - [Interstate 41 reopens after early morning semitractor-trailer crash, fire](https://www.yahoo.com/news/interstate-41-reopens-early-morning-202608011.html)
+- May 29 - [Ukraine's Zelenskiy says Russia putting pressure on countries to shun peace summit](https://www.yahoo.com/news/ukraines-zelenskiy-says-russia-putting-201230853.html)
+- May 29 - [Musk's $56 billion pay package opposed by CalPERS, CNBC reports](https://finance.yahoo.com/news/musks-56-billion-pay-package-193940664.html)
 <!-- feed end -->
 
 ### Onstream
