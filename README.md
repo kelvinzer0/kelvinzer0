@@ -60,11 +60,11 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- May 29 - [Nvidia stock has 258% upside as its 'impenetrable moat' will propel it to a $10 trillion valuation by 2030, tech analyst says](https://finance.yahoo.com/news/nvidia-stock-258-upside-impenetrable-004136396.html)
-- May 28 - [‘Egregious and disturbing.’ NC audit questions $600,000 put on university credit cards](https://finance.yahoo.com/news/egregious-disturbing-nc-audit-questions-225547344.html)
-- May 28 - [Former California water official pleads guilty to conspiring to steal water from irrigation canal](https://www.yahoo.com/news/former-california-water-official-pleads-223019673.html)
+- May 29 - [Teens were live on Instagram during high-speed pursuit before crash, Sacramento deputies say](https://www.yahoo.com/news/teens-were-live-instagram-during-015453502.html)
+- May 28 - [New York Times: Neighbor called police in 2021 after exchanging words with Justice Alito’s wife](https://www.yahoo.com/news/york-times-neighbor-called-police-235432433.html)
+- May 28 - [Judge assured that Tesla won't contest Musk pay ruling outside Delaware](https://finance.yahoo.com/news/judge-assured-tesla-wont-contest-225235355.html)
+- May 28 - [US defines 'major' Rafah operation that would change Israel policy](https://www.yahoo.com/news/us-defines-major-rafah-operation-222456889.html)
 - May 28 - [Fact Check: There's More to an Image Allegedly Showing Astronauts Not Wearing Helmets on the Moon Than Meets the Eye](https://www.yahoo.com/news/fact-check-theres-more-image-221200761.html)
-- May 28 - [Two KFC locations are closed in Peoria. Here’s what we know](https://www.yahoo.com/news/two-kfc-locations-closed-peoria-213602369.html)
 <!-- feed end -->
 
 ### Onstream
